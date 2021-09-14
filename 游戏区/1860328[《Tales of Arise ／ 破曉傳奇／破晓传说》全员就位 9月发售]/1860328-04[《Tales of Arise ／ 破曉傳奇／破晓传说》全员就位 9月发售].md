@@ -4067,3 +4067,23 @@ xsx反正没有秒读
 小剧场我觉得挺不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Bani82  
+##### 4812#       发表于 2021-9-14 21:35
+
+
+练到50级上天后一路吊打剧情怪<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 4813#       发表于 2021-9-14 21:36
+
+
+艹，这婚礼任务太生草了，而且给的武器还很强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
