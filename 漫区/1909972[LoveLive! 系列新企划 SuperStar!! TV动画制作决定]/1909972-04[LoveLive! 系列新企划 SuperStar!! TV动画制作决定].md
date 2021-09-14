@@ -3552,3 +3552,26 @@ Galaxy也太惨了吧 水藻以下的存在<img src="https://static.saraba1st.co
 花田真有你的。
 
 
+
+
+*****
+
+####  lyflyflxf  
+##### 4782#       发表于 2021-9-15 06:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751415&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-15 00:34</a>
+
+那边大学也要四六级的吧，</blockquote>
+要是有，日本人的英语水平就不会是个梗了
+
+
+*****
+
+####  凡人  
+##### 4783#       发表于 2021-9-15 06:55
+
+
+八话恋就要入队的话多半是恋妈留下来的歌之类的吧
+
+

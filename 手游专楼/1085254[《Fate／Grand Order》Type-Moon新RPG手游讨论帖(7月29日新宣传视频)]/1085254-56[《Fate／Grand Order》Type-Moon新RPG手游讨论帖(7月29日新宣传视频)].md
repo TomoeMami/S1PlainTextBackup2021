@@ -13273,3 +13273,19 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 百度了一下达芬奇跟哥伦布出生是同一年，感觉还挺有意思的设计。
 
 
+
+
+*****
+
+####  白金口袋  
+##### 83625#       发表于 2021-9-15 06:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748374&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-14 05:52</a>
+
+有没有看完剧情的，给臭打游戏的加班狗总结一下剧情
+
+全·跳·了</blockquote>
+剧情总不总结其实都差不多，并不是像去年夏天那种解密类的，就是普通的冒险谭，也没啥惊天阴谋或者情感过山车，主要是角色之间聊天扯皮的搞笑小品<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
