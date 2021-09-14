@@ -13070,3 +13070,38 @@ QQ图片20210912170921.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这结晶是给7个嘛 这么大方
 
 
+
+
+*****
+
+####  zakki  
+##### 83608#       发表于 2021-9-14 18:30
+
+
+这宝具也太简陋了吧，就一张ppt加点儿特效？不过画的实在太色了
+
+
+*****
+
+####  alucardcz  
+##### 83609#       发表于 2021-9-14 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747493&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-14 18:30</a>
+
+这宝具也太简陋了吧，就一张ppt加点儿特效？不过画的实在太色了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重要吗！ 这不重要！
+
+
+对  画的美就是能为所欲为（
+
+
+*****
+
+####  白金口袋  
+##### 83610#       发表于 2021-9-14 18:37
+
+
+话说我怎么没跟伽摩战斗就通关了？因为选项选了下面吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

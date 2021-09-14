@@ -21584,3 +21584,26 @@ Gura 昨天游来游去是因为腿部的定位器没送到<img src="https://sta
 <[img src="https://i.loli.net/2021/09/14/7Px5GK2wmTHqaXJ.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  PureIllusion  
+##### 1373#       发表于 2021-9-14 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741499&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-9-14 10:15</a>
+
+鲨鱼让华生cos成小学生，这是什么高级play</blockquote>
+[https://twitter.com/mecha_na/status/1436850342159806464](https://twitter.com/mecha_na/status/1436850342159806464)
+
+&gt;VERY NERVOUS guy asks how she feels about Gura taking Shion.
+
+&gt;&gt;Ame: i don't know if i told you before but she made me dress up as shion once so i saw it coming
+
+前几天在活动现场回答的问题，当时还以为是说笑话的
+
+[https://twitter.com/oh_nyoo/status/1437269015374745603?s=12](https://twitter.com/oh_nyoo/status/1437269015374745603?s=12)
+<img src="https://p.sda1.dev/2/d3084b11eec74b98c8a12238151f889c/oh_nyoo-1437269015374745603-20210913_121651-img1.jpg" referrerpolicy="no-referrer">
+
+
