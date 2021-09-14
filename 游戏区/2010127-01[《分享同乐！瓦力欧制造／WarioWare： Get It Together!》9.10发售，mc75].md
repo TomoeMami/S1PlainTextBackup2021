@@ -1834,3 +1834,18 @@ Switch要考虑有Switch Lite存在，不可能弄成Switch专属的特异性游
 看到有人说露露的操作对应卡比，仔细一想除了不能吸入，手感确实有点像<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  berserker210  
+##### 150#       发表于 2021-9-15 07:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751793&amp;ptid=2010127" target="_blank">Tilocal 发表于 2021-9-15 01:26</a>
+看到有人说露露的操作对应卡比，仔细一想除了不能吸入，手感确实有点像 ...</blockquote>
+我觉得露露是对应气球大战，致敬聪哥？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
