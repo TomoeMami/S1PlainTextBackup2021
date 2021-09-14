@@ -3513,3 +3513,38 @@ skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火�
 之前的一些小洞窟和上下层也是，地图都不对齐。也就这地图关卡设计是比较古板直白，如果复杂点这小地图比xb2的还难用
 
 
+
+
+*****
+
+####  rainsheep  
+##### 4768#       发表于 2021-9-14 17:23
+
+
+话说有ai设置的建议吗，感觉默认平衡设置的ai有些莽
+
+
+*****
+
+####  法拉  
+##### 4769#       发表于 2021-9-14 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52746681&amp;ptid=1860328" target="_blank">rainsheep 发表于 2021-9-14 17:23</a>
+
+话说有ai设置的建议吗，感觉默认平衡设置的ai有些莽</blockquote>
+默认平衡，25%血以下远离敌人的优先度很低，往上调一点就好了，只是觉得队友有点莽的话，不用改太复杂的
+
+
+*****
+
+####  asclepiusz  
+##### 4770#       发表于 2021-9-14 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52746503&amp;ptid=1860328" target="_blank">Zhangsmallquan 发表于 2021-9-14 17:08</a>
+
+玩到地领主的宫殿，实在忍不住想吐槽下这个进房间读取，技术力不行不能做成完整场景就算了，有必要把每个房 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">读取的问题，PS4才有……PS5和PC都很丝滑
+
+

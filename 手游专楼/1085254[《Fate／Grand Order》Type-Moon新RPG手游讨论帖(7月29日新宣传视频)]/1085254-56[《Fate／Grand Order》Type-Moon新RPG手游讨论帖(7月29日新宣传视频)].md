@@ -13028,3 +13028,23 @@ QQ图片20210912170921.jpg
 这夹馍泳装居然真的可以做到比本体穿的还少...另外的着装干脆连bgo的和谐版泳装都替你画好了（
 
 
+
+
+*****
+
+####  qb0079  
+##### 83604#       发表于 2021-9-14 17:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这夹馍正脸宝具好像有点顶
+
+
+*****
+
+####  白夜羽  
+##### 83605#       发表于 2021-9-14 17:26
+
+
+嗯…夹馍这个宝具，是什么蒙蔽了我的双眼<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">感觉不抽都对不起我兄弟
+
+
