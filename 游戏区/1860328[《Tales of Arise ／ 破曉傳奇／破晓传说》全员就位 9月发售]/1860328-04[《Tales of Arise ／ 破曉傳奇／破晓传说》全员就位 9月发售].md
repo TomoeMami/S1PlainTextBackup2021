@@ -4174,3 +4174,26 @@ xsx反正没有秒读
 —— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  fateultraone  
+##### 4821#       发表于 2021-9-14 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748867&amp;ptid=1860328" target="_blank">听风不是雨 发表于 2021-9-14 20:38</a>
+
+战斗不如TOB，剧情不如TOB，小剧场也不如TOB，这样的庸作留着有何用？</blockquote>
+tob就算了吧，画面玩法很多都过时了，要是toar还做成tob以前那套，玩的人根本不可能这么多，媒体也不会普遍高评分，这作只能说有点小问题，总体可以
+
+
+*****
+
+####  燃烬  
+##### 4822#       发表于 2021-9-14 22:37
+
+
+请教一下，我按了rt却根本不闪避，和没按一样，只会跑来跑去，这是什么情况
+
+

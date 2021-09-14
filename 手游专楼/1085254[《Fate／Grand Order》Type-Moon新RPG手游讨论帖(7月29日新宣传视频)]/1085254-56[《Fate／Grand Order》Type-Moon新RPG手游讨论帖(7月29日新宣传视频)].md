@@ -13251,3 +13251,14 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 两个人还真是同一时代的，至于有没有见过面那就不清楚了。
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83623#       发表于 2021-9-14 22:23
+
+
+这是给2圣杯6个结晶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
