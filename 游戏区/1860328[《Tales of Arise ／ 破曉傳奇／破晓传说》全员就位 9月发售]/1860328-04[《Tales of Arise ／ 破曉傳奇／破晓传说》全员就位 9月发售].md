@@ -3455,3 +3455,37 @@ skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火�
 —— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  笛普达克范太希  
+##### 4763#       发表于 2021-9-14 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745032&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-14 15:07</a>
+
+篝火的羁绊要怎么刷，我第一天篝火看到四个箭头，第二天接着坐篝火就没箭头了 ...</blockquote>
+没被剧情进度锁住的话，每小时刷新一次，pc版想速刷就开风大师的游戏10倍速，等个6分钟就好
+
+
+*****
+
+####  JC_AR  
+##### 4764#       发表于 2021-9-14 16:25
+
+
+水领主好菜啊，还没门口两条狗强，主角一直跳来跳去，全靠队友打，等硬直了用一招鲜轰霸斩爆一下3000多，伤害无敌。其他连击数高的技能完全没吊用
+
+
+*****
+
+####  上坂莲华  
+##### 4765#       发表于 2021-9-14 16:32
+
+
+名场面太典了，人见人吐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+我甚至开始怀疑这小子是不是一直记着第二章法师妹给他那一下所以现在跳出来私报私仇来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

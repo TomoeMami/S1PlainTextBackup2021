@@ -2670,3 +2670,20 @@ Windows central的jez说可能是真的，因为微软的几个“代号”游�
 需要的话到时候人为制造点技术卡顿就行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zdejiju  
+##### 226#       发表于 2021-9-14 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745844&amp;ptid=2026252" target="_blank">Chia 发表于 2021-9-14 16:14</a>
+
+没啥奇怪的，Nvidia铁内鬼了
+
+
+之前的</blockquote>
+是2080mq。。。
+
+
