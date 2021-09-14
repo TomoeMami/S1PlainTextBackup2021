@@ -13262,3 +13262,14 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 这是给2圣杯6个结晶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  newfaceryo  
+##### 83624#       发表于 2021-9-15 03:28
+
+
+百度了一下达芬奇跟哥伦布出生是同一年，感觉还挺有意思的设计。
+
+

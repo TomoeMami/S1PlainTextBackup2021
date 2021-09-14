@@ -4601,3 +4601,16 @@ SW-IVY+高贵灰烬+恶魔角，黑蕾丝YYDS<img src="https://static.saraba1st.
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
+
+
+*****
+
+####  superlink  
+##### 4855#       发表于 2021-9-15 03:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小剧场没办法，就那表情建模根本恶搞不起来。原来2d颜艺丰富多彩，3d的话可能也就xb2那个颜艺能用用，但这玩意儿堆料活
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
