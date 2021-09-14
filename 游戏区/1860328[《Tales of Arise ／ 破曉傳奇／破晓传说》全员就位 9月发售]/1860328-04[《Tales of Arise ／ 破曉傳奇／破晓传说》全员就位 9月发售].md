@@ -4141,3 +4141,36 @@ xsx反正没有秒读
 —— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  kiralzb  
+##### 4818#       发表于 2021-9-14 22:02
+
+
+这终章前的支线是不是全是沙雕任务？婚礼，厨艺大赛，温泉，比之前的都搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 4819#       发表于 2021-9-14 22:12
+
+
+说个我个人失望的地方！这次没有花牌！！！！！！！！！！！！！！！！！！！！！
+
+我要花牌不要钓鱼啊！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+
+*****
+
+####  hummysiren  
+##### 4820#       发表于 2021-9-14 22:16
+
+
+盾姐真的是好妈，五章开头完全是妈带孩子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

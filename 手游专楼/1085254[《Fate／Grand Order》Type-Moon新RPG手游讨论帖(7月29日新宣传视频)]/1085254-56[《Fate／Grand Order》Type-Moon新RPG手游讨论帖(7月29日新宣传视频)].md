@@ -13237,3 +13237,17 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 达芬奇跟哥伦布是同一个时代的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 83622#       发表于 2021-9-14 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52749724&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-9-14 21:52</a>
+
+达芬奇跟哥伦布是同一个时代的人吗</blockquote>
+两个人还真是同一时代的，至于有没有见过面那就不清楚了。
+
+
