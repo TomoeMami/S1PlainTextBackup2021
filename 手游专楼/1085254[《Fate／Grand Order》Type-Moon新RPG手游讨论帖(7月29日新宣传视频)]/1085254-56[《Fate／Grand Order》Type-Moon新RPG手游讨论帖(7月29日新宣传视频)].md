@@ -13201,3 +13201,17 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 不过说来奇怪，我作为凛厨，对樱没啥感觉，但樱的几个衍生，bb，迦摩我都挺喜欢的，相反，凛的衍生里也就伊什塔尔算比较喜欢，宇宙凛都不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83619#       发表于 2021-9-14 19:52
+
+
+有没有看完剧情的，给臭打游戏的加班狗总结一下剧情
+
+全·跳·了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

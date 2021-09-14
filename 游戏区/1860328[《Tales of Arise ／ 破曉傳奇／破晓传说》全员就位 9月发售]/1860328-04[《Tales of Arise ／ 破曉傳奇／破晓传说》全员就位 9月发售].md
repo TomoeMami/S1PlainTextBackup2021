@@ -3840,3 +3840,16 @@ xsx反正没有秒读
 讨伐任务建议主线破了再去打 主线破了之后会有个最终BOSS战前的存档
 
 
+
+
+*****
+
+####  lucky95  
+##### 4793#       发表于 2021-9-14 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747227&amp;ptid=1860328" target="_blank">正直的黄瓜 发表于 2021-9-14 18:08</a>
+ 这讨伐任务不写推荐等级的吗？我大老远跑过去进入战斗才看到敌人等级比我高一大截，被秒杀很不爽啊。 ...</blockquote>
+第一个不就很有XB的醍醐味<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+
