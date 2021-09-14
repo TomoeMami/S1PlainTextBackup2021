@@ -4423,3 +4423,17 @@ SW-IVY+高贵灰烬+恶魔角，黑蕾丝YYDS<img src="https://static.saraba1st.
 困难难度打到第5章顶不住了，不是打不过，太刮了。一怒之下换成Easy，舒服了。Boss战设计的蛮失败的，打起来感觉就是你打你的我打我的
 
 
+
+
+*****
+
+####  wseedx  
+##### 4841#       发表于 2021-9-15 01:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751411&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-15 00:34</a>
+
+问下白金最麻烦的在哪里？我猜是钓鱼和100级？</blockquote>
+通关后顺着支线走 这两个基本不是问题 最麻烦可能是支线和全武器
+
+
