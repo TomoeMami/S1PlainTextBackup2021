@@ -4045,3 +4045,25 @@ xsx反正没有秒读
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那差不多，和我预估的时间一样，我也是和你一样玩法，支线看着不舒服，刚才还误入一个遗迹，打了几波怪发现很吃力。。一看61级。赶紧跑出来了
 
 
+
+
+*****
+
+####  kiralzb  
+##### 4810#       发表于 2021-9-14 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52749013&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-14 20:51</a>
+那差不多，和我预估的时间一样，我也是和你一样玩法，支线看着不舒服，刚才还误入一个遗迹，打了 ...</blockquote>
+我现在玩游戏已经不太有耐心刷级了，所以即使那些加被动的dlc全买了，只是一路清怪的话最终大概还是会比boss等级要低一点，我也不感冒这种搓招的战斗，所以大概风到水那里我直接就买等级包了，不过我也喜欢偶尔回去旧地图看看，有些人物的地图技能在后期才解锁，这样前面的地图也会出现！提示之类的，还有些小剧场触发，如果还要练级我大概玩不下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓝雉  
+##### 4811#       发表于 2021-9-14 21:12
+
+
+小剧场我觉得挺不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
