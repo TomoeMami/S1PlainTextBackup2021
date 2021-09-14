@@ -2493,3 +2493,25 @@ B站评论区只说了otto，我也不知道哈 sry
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  陈玉礼  
+##### 208#       发表于 2021-9-15 05:34
+
+
+耐久挑战为啥到中间变成120了？
+
+
+*****
+
+####  EnbuRiAs  
+##### 209#       发表于 2021-9-15 05:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752504&amp;ptid=2021175" target="_blank">陈玉礼 发表于 2021-9-15 05:34</a>
+耐久挑战为啥到中间变成120了？</blockquote>
+一开始说有上提督加5个，总督加10个
+
+

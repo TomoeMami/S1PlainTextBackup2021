@@ -4614,3 +4614,26 @@ SW-IVY+高贵灰烬+恶魔角，黑蕾丝YYDS<img src="https://static.saraba1st.
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  kiralzb  
+##### 4856#       发表于 2021-9-15 03:58
+
+
+追加的猫头鹰怕不是除了一只金色的之外都是几个将领的猫头鹰版配音估计也是，给的都是开启通关继承要素的古董<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不得不说红色那只连身型都大一圈，模仿到位啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wuliang  
+##### 4857#       发表于 2021-9-15 05:39
+
+
+打完了，进到二周目发现，好像没有用分数的地方啊，这个分数到底是干嘛的？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
