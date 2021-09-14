@@ -13226,3 +13226,14 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 糟了，这个正脸太顶了，等不及明天的池子了要
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 83621#       发表于 2021-9-14 21:52
+
+
+达芬奇跟哥伦布是同一个时代的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

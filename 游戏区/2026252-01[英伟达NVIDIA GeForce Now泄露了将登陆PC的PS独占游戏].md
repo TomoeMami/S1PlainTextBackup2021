@@ -2790,3 +2790,17 @@ FF9 Remake？！<img src="https://static.saraba1st.com/image/smiley/face2017/105
 比较期待杀出重围，天知道啥时候新作能出来，人类分裂已经是17年的事了吧，销量不佳估摸着怕是下一作要没了，现在看到消息挺好的，就是按现在SE的节奏，怕是还要有5、6年
 
 
+
+
+*****
+
+####  windaria  
+##### 235#       发表于 2021-9-14 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745435&amp;ptid=2026252" target="_blank">左梓喵右受兔 发表于 2021-9-14 15:41</a>
+
+就算是真的又怎么样  有显卡用么</blockquote>
+你们都是瞎子吗，都说了是now
+
+

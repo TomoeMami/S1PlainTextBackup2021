@@ -4087,3 +4087,57 @@ xsx反正没有秒读
 艹，这婚礼任务太生草了，而且给的武器还很强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 4814#       发表于 2021-9-14 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748867&amp;ptid=1860328" target="_blank">听风不是雨 发表于 2021-9-14 20:38</a>
+
+战斗不如TOB，剧情不如TOB，小剧场也不如TOB，这样的庸作留着有何用？</blockquote>
+正统bmg还是好评的，tob小孩开大车我接受不来
+
+
+*****
+
+####  JudgmentEye  
+##### 4815#       发表于 2021-9-14 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747342&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-14 18:16</a>
+
+进房间要读取会不会是为了老PS4？一次加载不了太多？
+
+不过无论如何体验确实不怎么样，哪怕其实只是黑一下屏 ...</blockquote>
+可能是迁就ps4内存吧，不过从虚幻4解包的文件来看，更可能就是财团b的码农技术不行，他所有地图全是分割的文件，用的同一块内存，新文件读取后强制覆盖旧的，没有类似上一个读取完的文件缓存到内存里别的地方的设计，和手游大厂那个开关菜单也要读盘的勇气默示录2差不多
+
+
+*****
+
+####  黑耀星尘  
+##### 4816#       发表于 2021-9-14 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后这迷宫又臭又长最后没耐性了开修改器速战速决看剧情了
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hummysiren  
+##### 4817#       发表于 2021-9-14 21:57
+
+
+目前第四章打完进村，怎么说呢，一开始阻止法师妹我是能接受的，动画过场的群众表情的确很骇人，脑子一股劲复仇然而被领主算计。不是阻止法师妹复仇而是让她考虑完成这个目标后的下一个目标，加上盾姐举例了自己也加深了说服力。
+但这些都是在名场面结束后的剧情才感受到的，友方敌方集体看戏实在很出戏，拳师那挡炮也没啥必要，强行拉住法师妹等敌人走后一脸空虚坐地然后怒斥为啥要拦住我（可以适当加场战斗）再讲上面那堆道理感觉观感更好
+然后就是不杀了，这段的确有点emm。如果是战后领主气急败坏想要煽动法师妹的仇恨再耍小手段，但法师妹一脸平静地拆招，说我要为了解放达娜打倒你，然后再接新敌人登场那段，可能会好些？
+但四章结尾过场真的很不错，以为只是伸手错过但出乎我的意料一下子虐感就上来了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+最后吐槽下cp就不能有休息和吃药外的战斗内回复手段么，四章后期就老是红条了
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

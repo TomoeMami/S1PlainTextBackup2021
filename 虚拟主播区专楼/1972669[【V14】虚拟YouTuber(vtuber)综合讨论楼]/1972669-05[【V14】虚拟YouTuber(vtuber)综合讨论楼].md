@@ -13601,3 +13601,16 @@ Suha、Ray、Chiho、Ara、Nagi、Kiru、Hari、Mia
 고야미 / Ko Yami（黑猫）  ₩0 
 
 
+
+
+*****
+
+####  winda  
+##### 7005#       发表于 2021-9-14 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743851&amp;ptid=1972669" target="_blank">sgssk 发表于 2021-9-14 13:13</a>
+QQ甚至搭到了叶队，上大分啊上大分</blockquote>
+上上届最协后夜祭随机组队时就搭上了，还是吃鸡队
+
+
