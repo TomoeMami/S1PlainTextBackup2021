@@ -1185,3 +1185,34 @@ Toar卖相挺好的，不管是对比自己的传说系列还是对比这两年�
 上周末玩了两小时TOAR和快20小时正义之怒<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  茛菪  
+##### 87#       发表于 2021-9-14 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744445&amp;ptid=2026260" target="_blank">Dgnic_ 发表于 2021-9-14 14:15</a>
+
+那可能是我真的和这个系列不对付了，粗暴的踢门还可以接受，堆怪有点耐不了...
+
+也可能是我游玩方式不对， ...</blockquote>
+其实这游戏“技巧性”“策略性”都不强，毕竟AI比较蠢，战点的设置也不算精细。就是考验你系统熟悉度，知道哪些buff能叠，那些套路比较强力，与其看流程不如看强力build……
+
+
+*****
+
+####  huhu0007  
+##### 88#       发表于 2021-9-14 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742571&amp;ptid=2026260" target="_blank">nukejoker 发表于 2021-9-14 11:28</a>
+
+贴吧里说得25W销量没算众筹的吧。
+
+
+而且制作组说了拥王者1就是长卖型，最后收入很令人满意的。</blockquote>
+建完号就超过退款时间了这个确实很劝退。。。
+
+

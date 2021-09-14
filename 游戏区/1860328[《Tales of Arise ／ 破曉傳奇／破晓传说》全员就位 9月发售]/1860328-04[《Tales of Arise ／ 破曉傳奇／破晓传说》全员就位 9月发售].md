@@ -3895,3 +3895,75 @@ xsx反正没有秒读
 之前还等着发糖，就这三对实在是提不起兴趣，ToB比本作强了大概有一个ToZ？
 
 
+
+
+*****
+
+####  司马千晶  
+##### 4797#       发表于 2021-9-14 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748673&amp;ptid=1860328" target="_blank">sdfzzha 发表于 2021-9-14 20:19</a>
+通关了。
+
+肉眼可见的贫穷，钱都拿来做模型和地图了，其他地方全都是敷衍，前两章还有点意思，后面全都摆烂 ...</blockquote>
+系列虽然每代都有换皮怪，但是第一次换的这么过分，比如“狂战士”那个模型，从头到尾都是那招王八拳，以前换皮僵尸还用“低级僵尸扔石头，中级僵尸下级暗魔法，高级僵尸中级暗魔法”糊弄一下呢。
+
+
+*****
+
+####  kiralzb  
+##### 4798#       发表于 2021-9-14 20:35
+
+
+说到钓鱼，我第一条池塘主还是用老哥电杆钓上来的，那酸爽真是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+之后两条用初级杆和中级杆，最后才剧情推到上天了才解锁竞技场的新等级，原来高级杆在这里，最后一条海主海没鱼钩疯狂抛杆刷出来的，结果40条鱼才给的海主鱼钩，吐了
+而且一看图鉴，有44，就是还有4条鱼不知道在哪里钓的……
+
+
+*****
+
+####  shiko  
+##### 4799#       发表于 2021-9-14 20:36
+
+
+本来觉得女主的颜不是很戳我，虽然人设差不多但不如希卡利。直到给女主换上了黑框眼镜。。啧啧啧
+
+
+*****
+
+####  ac130-2020  
+##### 4800#       发表于 2021-9-14 20:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747479&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-14 18:28</a>
+
+这作的小剧场其实我觉得真不如以前的有魔性，以前的小细节很多的
+
+这次用漫画分镜做的效果一般，以前小头像 ...</blockquote>
+演出和对话的趣味性都不如TOB
+
+
+
+
+*****
+
+####  听风不是雨  
+##### 4801#       发表于 2021-9-14 20:38
+
+
+战斗不如TOB，剧情不如TOB，小剧场也不如TOB，这样的庸作留着有何用？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuochai  
+##### 4802#       发表于 2021-9-14 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748834&amp;ptid=1860328" target="_blank">kiralzb 发表于 2021-9-14 20:35</a>
+说到钓鱼，我第一条池塘主还是用老哥电杆钓上来的，那酸爽真是
+之后两条用初级杆和中级杆，最后才剧 ...</blockquote>
+问那个塔尔加池那个npc 给他看钓鱼纪录 会告诉你哪里有没收集的
+
+
