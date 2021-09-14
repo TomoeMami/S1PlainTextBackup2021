@@ -2687,3 +2687,37 @@ Windows central的jez说可能是真的，因为微软的几个“代号”游�
 是2080mq。。。
 
 
+
+
+*****
+
+####  liqiyan1210  
+##### 227#       发表于 2021-9-14 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737572&amp;ptid=2026252" target="_blank">Junchoon 发表于 2021-9-13 22:00</a>
+
+马里奥据外网猜测可能是特供给中国的NVIDIA Shield的......</blockquote>
+特供啥，那玩意儿商店都关了，我之前买的国行马银直接随风而逝
+
+
+*****
+
+####  stage111st  
+##### 228#       发表于 2021-9-14 17:12
+
+
+<blockquote>辞冬 发表于 2021-9-13 21:38
+monster hunter 6是啥，rise？</blockquote>
+世界2吧
+
+
+*****
+
+####  Gandalf  
+##### 229#       发表于 2021-9-14 17:22
+
+
+pc永远是大家的归宿
+
+

@@ -3489,3 +3489,27 @@ skit有漏的怎么补啊游玩记录里显示301但是成就还没跳，篝火�
 我甚至开始怀疑这小子是不是一直记着第二章法师妹给他那一下所以现在跳出来私报私仇来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Zhangsmallquan  
+##### 4766#       发表于 2021-9-14 17:08
+
+
+玩到地领主的宫殿，实在忍不住想吐槽下这个进房间读取，技术力不行不能做成完整场景就算了，有必要把每个房间在地图里单独列成一层吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+之前的一些小洞窟和上下层也是，地图都不对齐。也就这地图关卡设计是比较古板直白，如果复杂点这小地图比xb2的还难用
+
+
+*****
+
+####  Zhangsmallquan  
+##### 4767#       发表于 2021-9-14 17:08
+
+
+玩到地领主的宫殿，实在忍不住想吐槽下这个进房间读取，技术力不行不能做成完整场景就算了，有必要把每个房间在地图里单独列成一层吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+之前的一些小洞窟和上下层也是，地图都不对齐。也就这地图关卡设计是比较古板直白，如果复杂点这小地图比xb2的还难用
+
+

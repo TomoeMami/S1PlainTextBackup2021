@@ -50,3 +50,18 @@
 双拼是坏文明<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  genki  
+##### 6005#       发表于 2021-9-14 17:16
+
+
+活动突击完了，该抽的也抽了，最后没想到落下什么
+
+然后登陆，发现发了一堆金币
+
+啊忘记抽衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
