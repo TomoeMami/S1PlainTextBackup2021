@@ -13193,3 +13193,34 @@ mua，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" refe
 我超，扯旗了！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2686#       发表于 2021-9-14 18:15
+
+
+待机间建好了，10点歌回，最近封面都懒得做了
+
+
+*****
+
+####  往世雷书  
+##### 2687#       发表于 2021-9-14 18:26
+
+
+什么时候回到手写封面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 2688#       发表于 2021-9-14 18:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -2721,3 +2721,28 @@ monster hunter 6是啥，rise？</blockquote>
 pc永远是大家的归宿
 
 
+
+
+*****
+
+####  1a不解释  
+##### 230#       发表于 2021-9-14 18:11
+
+
+表应该是nv的，但是最终会不会按这个表来还不好说，是不是这个意思
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  riin  
+##### 231#       发表于 2021-9-14 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52744946&amp;ptid=2026252" target="_blank">frankCC 发表于 2021-9-14 14:59</a>
+
+内部测试能测出和卡普空内部同样的怪猎代号，我觉得卡普空不但要查黑客，还要查下有没有老黄内鬼 ...</blockquote>
+美国人最擅长木马了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
