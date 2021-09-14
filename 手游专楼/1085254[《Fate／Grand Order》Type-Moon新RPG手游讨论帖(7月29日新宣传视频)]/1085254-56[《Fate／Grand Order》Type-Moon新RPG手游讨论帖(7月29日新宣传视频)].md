@@ -13144,3 +13144,38 @@ QQ图片20210912170921.jpg
 问题是加点儿动作啊，真就一张动态ptt动都不动一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  白夜羽  
+##### 83614#       发表于 2021-9-14 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747770&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-14 18:56</a>
+问题是加点儿动作啊，真就一张动态ptt动都不动一下</blockquote>
+我记着bb好像也差不多来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83615#       发表于 2021-9-14 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747901&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-9-14 19:09</a>
+我记着bb好像也差不多来着只能说是撒苦辣酱的一种传承</blockquote>
+bb有动作的，而且动作很多，你对比下就能看出这个宝具有多敷衍了
+
+
+*****
+
+####  白夜羽  
+##### 83616#       发表于 2021-9-14 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747952&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-14 19:13</a>
+bb有动作的，而且动作很多，你对比下就能看出这个宝具有多敷衍了</blockquote>
+是吗，bb基本就没在我这上过场，只记得大体上是把盘子捧起来捏碎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -13540,3 +13540,64 @@ QQ甚至搭到了叶队，上大分啊上大分<img src="https://static.saraba1s
 vspo的新人清楚担当<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 和木口en2期一个画师啊
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7002#       发表于 2021-9-14 19:01
+
+
+我好喜欢，破晓传说啊！！！好———久————没有看到郡道这么投入玩游戏了，而且人物比较和她口味也很少骂人，太爽了…买一份支持一下表达感谢…
+看来她说喜欢p5不是假话<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suzutsuki  
+##### 7003#       发表于 2021-9-14 19:16
+
+
+是我喜欢的淡金毛，虽然是清楚役，但既然是vspo的，那打枪一定很强吧<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 7004#       发表于 2021-9-14 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743851&amp;ptid=1972669" target="_blank">sgssk 发表于 2021-9-14 13:13</a>
+
+QQ甚至搭到了叶队，上大分啊上大分</blockquote>
+Qu和叶今年一月就一起打过枪了
+
+
+Syl，虹KR八月的SC统计
+
+<img src="https://img.saraba1st.com/forum/202109/14/190418ezgiqll55ergqgxo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじKRのの8月のスパチャ比較一覧.jpeg</strong> (40.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 19:04 上传
+
+
+上起：Bora、Seffyna、Hada、Nari、Jiyu、Gaon、Siu、Roha
+
+Suha、Ray、Chiho、Ara、Nagi、Kiru、Hari、Mia
+
+
+九月新人截至目前（*PB数据）：
+
+나세라 / Na Sera（偶像）  ₩1,923,066
+
+하윤 / Ha Yun（枪男）  ₩1,303,324
+
+이온 / Lee On（鱼耳）  ₩0
+
+고야미 / Ko Yami（黑猫）  ₩0 
+
+

@@ -3769,3 +3769,51 @@ xsx反正没有秒读
 这次用漫画分镜做的效果一般，以前小头像表演那种来回走动之类的感觉这次完全没有
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 4787#       发表于 2021-9-14 19:07
+
+
+钓鱼会有什么稀有奖励么，实在是不想玩这个。。。
+
+
+*****
+
+####  山风短  
+##### 4788#       发表于 2021-9-14 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747885&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-14 19:07</a>
+钓鱼会有什么稀有奖励么，实在是不想玩这个。。。</blockquote>
+盾姐的技能盘要全开就必须钓
+
+
+*****
+
+####  Rinne70  
+##### 4789#       发表于 2021-9-14 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747479&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-14 18:28</a>
+这作的小剧场其实我觉得真不如以前的有魔性，以前的小细节很多的
+
+这次用漫画分镜做的效果一般，以前小头像 ...</blockquote>
+同感，我也不知道算不算老害思维，但以前跳头像框感觉确实比分镜演出灵性
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  奈奈未喵  
+##### 4790#       发表于 2021-9-14 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747885&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-14 19:07</a>
+钓鱼会有什么稀有奖励么，实在是不想玩这个。。。</blockquote>
+可以挣钱用 一次钓到想吐能卖好几千 然后等自己慢慢平复
+
+
