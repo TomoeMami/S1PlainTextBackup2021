@@ -4266,3 +4266,91 @@ tob就算了吧，画面玩法很多都过时了，要是toar还做成tob以前�
 老实说那个加80%穿透的饰品打一般的小怪都有奇效，基本能几刀破刚体，带盾怪砍背后也是，你会发现平常不能连的招都可以连起来了
 
 
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 4829#       发表于 2021-9-14 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750687&amp;ptid=1860328" target="_blank">whzfjk 发表于 2021-9-14 23:13</a>
+
+火刀不都是要蓄力的吗</blockquote>
+有个技能是火刀可以蓄力，然后自己根据情况看烧多少血
+
+
+*****
+
+####  lucky95  
+##### 4830#       发表于 2021-9-14 23:27
+
+
+<img src="https://img.saraba1st.com/forum/202109/14/232419ftf4wikikjnjkc3j.png" referrerpolicy="no-referrer">
+
+
+<strong>破曉傳奇   14_09_2021 23_15_15.png</strong> (259.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 23:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/14/232433gk5uoa96ok6g7vlp.png" referrerpolicy="no-referrer">
+
+
+<strong>破曉傳奇   14_09_2021 23_13_36.png</strong> (220.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 23:24 上传
+
+
+我婆太棒了，氪金万岁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+SW-IVY+高贵灰烬+恶魔角，黑蕾丝YYDS<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  aaronluray  
+##### 4831#       发表于 2021-9-14 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750607&amp;ptid=1860328" target="_blank">kazamatsuri 发表于 2021-9-14 23:05</a>
+
+你们pc按键可以保存吗，我每次退出鼠标按键就重置了</blockquote>
+我也是这样的，我是把地图键绑到鼠标侧键，结果每次重开游戏又要重新绑，我一直以为是我用的5键鼠标的问题
+
+
+*****
+
+####  wseedx  
+##### 4832#       发表于 2021-9-14 23:34
+
+
+已经白金了 吐槽一下第二奥义远程的两个人真难放 白金了还没看到过女主的第二奥义<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 4833#       发表于 2021-9-14 23:36
+
+
+后面几个炎剑技能啥时候能学 例如霸道灭封之类的
+
+
+*****
+
+####  fuochai  
+##### 4834#       发表于 2021-9-14 23:40
+
+
+【【破晓传说】美尼斯 压级逃课攻略-哔哩哔哩】[https://b23.tv/N2tZB5](https://b23.tv/N2tZB5)
+林薇儿单挑梦幻之花 这游戏真好玩
+
+
