@@ -3817,3 +3817,26 @@ xsx反正没有秒读
 可以挣钱用 一次钓到想吐能卖好几千 然后等自己慢慢平复
 
 
+
+
+*****
+
+####  rgauss  
+##### 4791#       发表于 2021-9-14 19:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">钓鱼成就好累
+
+
+*****
+
+####  yangas123  
+##### 4792#       发表于 2021-9-14 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747227&amp;ptid=1860328" target="_blank">正直的黄瓜 发表于 2021-9-14 18:08</a>
+
+这讨伐任务不写推荐等级的吗？我大老远跑过去进入战斗才看到敌人等级比我高一大截，被秒杀很不爽啊。 ...</blockquote>
+讨伐任务建议主线破了再去打 主线破了之后会有个最终BOSS战前的存档
+
+

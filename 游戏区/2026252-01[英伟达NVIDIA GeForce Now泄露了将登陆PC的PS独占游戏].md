@@ -2746,3 +2746,31 @@ pc永远是大家的归宿
 美国人最擅长木马了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ilylxt  
+##### 232#       发表于 2021-9-14 19:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737255&amp;ptid=2026252" target="_blank">针刺骑士 发表于 2021-9-13 21:33</a>
+
+可不止这些，有大量厂商的未公开游戏在列，今年最大规模泄露~
+
+
+Sony: Uncharted: Legacy of Thieves Editio ...</blockquote>
+FF9 Remake？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫煜  
+##### 233#       发表于 2021-9-14 19:37
+
+
+2077真是我玩过最伟大的游戏。。毕竟它促使我买了一块原价3080<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

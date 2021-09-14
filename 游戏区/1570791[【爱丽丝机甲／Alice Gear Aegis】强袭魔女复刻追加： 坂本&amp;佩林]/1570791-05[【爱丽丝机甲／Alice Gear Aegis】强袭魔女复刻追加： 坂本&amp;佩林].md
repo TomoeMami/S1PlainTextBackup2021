@@ -65,3 +65,41 @@
 啊忘记抽衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  unsh  
+##### 6006#       发表于 2021-9-14 19:37
+
+
+话说如果要玩3星佩琳的话，把哪件强到70级比较好？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unsh  
+##### 6007#       发表于 2021-9-14 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52746609&amp;ptid=1570791" target="_blank">genki 发表于 2021-9-14 17:16</a>
+活动突击完了，该抽的也抽了，最后没想到落下什么
+
+然后登陆，发现发了一堆金币
+
+啊忘记抽衣服了 ...</blockquote>
+查了下我也漏了两张没换<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">完全忘了
+
+
+*****
+
+####  江戸前ルナ  
+##### 6008#       发表于 2021-9-14 19:44
+
+
+看看专属三星手的伤害如何。四星是6W，看看差多少。
+
+
+个人建议是步枪或者手，比较推荐步枪。步枪的提升貌似比较大。调查肯定够横扫了。
+
+

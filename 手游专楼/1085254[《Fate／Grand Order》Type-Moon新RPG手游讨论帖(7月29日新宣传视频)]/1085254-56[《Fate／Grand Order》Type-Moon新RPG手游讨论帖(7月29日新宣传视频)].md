@@ -13179,3 +13179,25 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 是吗，bb基本就没在我这上过场，只记得大体上是把盘子捧起来捏碎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83617#       发表于 2021-9-14 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748021&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-9-14 19:19</a>
+是吗，bb基本就没在我这上过场，只记得大体上是把盘子捧起来捏碎了 ...</blockquote>
+表情也有变化。水b很好用啊，暴击队最强打手
+
+
+*****
+
+####  zakki  
+##### 83618#       发表于 2021-9-14 19:26
+
+
+不过说来奇怪，我作为凛厨，对樱没啥感觉，但樱的几个衍生，bb，迦摩我都挺喜欢的，相反，凛的衍生里也就伊什塔尔算比较喜欢，宇宙凛都不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
