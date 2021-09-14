@@ -3967,3 +3967,81 @@ xsx反正没有秒读
 问那个塔尔加池那个npc 给他看钓鱼纪录 会告诉你哪里有没收集的
 
 
+
+
+*****
+
+####  lelouchwang  
+##### 4803#       发表于 2021-9-14 20:42
+
+
+为什么小情侣找朵花会冒出个这么强的BOSS啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  fuochai  
+##### 4804#       发表于 2021-9-14 20:42
+
+
+【【破晓传说】温蒂妮之滴 压级逃课攻略-哔哩哔哩】[https://b23.tv/VMnv26](https://b23.tv/VMnv26)
+分享一下 林薇儿全堆BG增幅是可行的 无限打断小怪詠唱 为了钓鱼磨了一个多小时
+
+
+*****
+
+####  ac130-2020  
+##### 4805#       发表于 2021-9-14 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748867&amp;ptid=1860328" target="_blank">听风不是雨 发表于 2021-9-14 20:38</a>
+
+战斗不如TOB，剧情不如TOB，小剧场也不如TOB，这样的庸作留着有何用？</blockquote>
+画面和剧情演出这些硬件都提升很多，毕竟虚幻4
+
+另外系统改了之后更加好上手，新玩家应该会更喜欢
+
+
+*****
+
+####  elven119  
+##### 4806#       发表于 2021-9-14 20:46
+
+
+今晚打着打着看了下图鉴，怪物都才开了一半，我故意这一周目正常玩，要60小时才能通关了吧。。我已经40小时。还在清支线，刚打完5城
+
+
+*****
+
+####  kiralzb  
+##### 4807#       发表于 2021-9-14 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748890&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-14 20:40</a>
+问那个塔尔加池那个npc 给他看钓鱼纪录 会告诉你哪里有没收集的</blockquote>
+39条时就只说剩海的了，40后也没问过就是，回去问问看吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 4808#       发表于 2021-9-14 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748946&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-14 20:46</a>
+今晚打着打着看了下图鉴，怪物都才开了一半，我故意这一周目正常玩，要60小时才能通关了吧。。我已经40小时 ...</blockquote>
+我按轨迹的套路玩的，所有路人全对话，能清的任务全清，加上有时候吃饭啥的待机，现在到最终迷宫前，60多小时了
+
+
+*****
+
+####  elven119  
+##### 4809#       发表于 2021-9-14 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748983&amp;ptid=1860328" target="_blank">kiralzb 发表于 2021-9-14 20:49</a>
+
+我按轨迹的套路玩的，所有路人全对话，能清的任务全清，加上有时候吃饭啥的待机，现在到最终迷宫前，60多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那差不多，和我预估的时间一样，我也是和你一样玩法，支线看着不舒服，刚才还误入一个遗迹，打了几波怪发现很吃力。。一看61级。赶紧跑出来了
+
+
