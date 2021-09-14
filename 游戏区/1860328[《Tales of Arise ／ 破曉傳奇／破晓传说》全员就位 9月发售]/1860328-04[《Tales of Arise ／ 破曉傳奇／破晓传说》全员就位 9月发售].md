@@ -3853,3 +3853,45 @@ xsx反正没有秒读
 第一个不就很有XB的醍醐味<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hugosol  
+##### 4794#       发表于 2021-9-14 20:13
+
+
+这次skit确实不行
+
+难道是考虑要做给外国人看，不敢放太日式的笑话进去<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hzh3355  
+##### 4795#       发表于 2021-9-14 20:13
+
+
+法师冰牢打BOSS实在是太无脑了
+
+
+原地起跳，冰牢复读，中间看情况用伙伴增强技打倒地或者打断
+
+一路用这个打法从水将打到隐藏迷宫1层<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sdfzzha  
+##### 4796#       发表于 2021-9-14 20:19
+
+
+通关了。
+
+肉眼可见的贫穷，钱都拿来做模型和地图了，其他地方全都是敷衍，前两章还有点意思，后面全都摆烂了，连个大地图都没有，再说最后迷宫是个啥啊……
+
+剧情上一个个苦大仇深，一转眼“就这”，只能用没钱来解释了。
+
+之前还等着发糖，就这三对实在是提不起兴趣，ToB比本作强了大概有一个ToZ？
+
+

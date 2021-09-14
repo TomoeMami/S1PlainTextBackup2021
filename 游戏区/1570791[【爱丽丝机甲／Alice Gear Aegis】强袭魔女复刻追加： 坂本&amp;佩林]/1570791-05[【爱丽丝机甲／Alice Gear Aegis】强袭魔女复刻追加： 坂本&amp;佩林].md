@@ -103,3 +103,32 @@
 个人建议是步枪或者手，比较推荐步枪。步枪的提升貌似比较大。调查肯定够横扫了。
 
 
+
+
+*****
+
+####  unsh  
+##### 6009#       发表于 2021-9-14 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748300&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-14 19:44</a>
+看看专属三星手的伤害如何。四星是6W，看看差多少。
+
+
+个人建议是步枪或者手，比较推荐步枪。步枪的提升貌似 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">3星佩琳+60级手大概是1w8到2w之间浮动，差那么多的吗
+
+
+*****
+
+####  江戸前ルナ  
+##### 6010#       发表于 2021-9-14 20:04
+
+
+ 本帖最后由 江戸前ルナ 于 2021-9-14 20:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748487&amp;ptid=1570791" target="_blank">unsh 发表于 2021-9-14 20:01</a>
+
+3星佩琳+60级手大概是1w8到2w之间浮动，差那么多的吗</blockquote>
+是专属手，不是活动绿装。手的技能是3HIT。专属70四星大概是3HIT，每HIT 2W。升到80三发大概共6W5多点。
+
+
