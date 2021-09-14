@@ -1823,3 +1823,14 @@ Switch要考虑有Switch Lite存在，不可能弄成Switch专属的特异性游
 操，这代捅鼻孔变成用角色去捅了，完全没有之前手指捅那股kuso味。
 
 
+
+
+*****
+
+####  Tilocal  
+##### 149#       发表于 2021-9-15 01:26
+
+
+看到有人说露露的操作对应卡比，仔细一想除了不能吸入，手感确实有点像<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
