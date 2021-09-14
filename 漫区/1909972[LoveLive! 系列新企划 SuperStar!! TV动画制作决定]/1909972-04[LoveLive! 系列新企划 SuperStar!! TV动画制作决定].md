@@ -3489,3 +3489,32 @@ Galaxy也太惨了吧 水藻以下的存在<img src="https://static.saraba1st.co
 下话给钥匙的是理事长的话应该能救一救
 
 
+
+
+*****
+
+####  saglork  
+##### 4777#       发表于 2021-9-15 00:12
+
+
+就现在这个境遇，恋妈在神秘小箱子里藏有好多0的存折最能解决问题，没有什么比突然搞到一大笔钱更能解决现在的问题了，鸡汤遗书可没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4778#       发表于 2021-9-15 00:16
+
+
+鲤鱼居然是她们团里英语最好的吗…………佩佩她爹从来没给她教过英语吗……
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4779#       发表于 2021-9-15 00:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青山那次expo有说过英文吗？两个大学生也说不准谁英语力更高
+
+
