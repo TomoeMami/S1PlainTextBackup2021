@@ -4637,3 +4637,29 @@ SW-IVY+高贵灰烬+恶魔角，黑蕾丝YYDS<img src="https://static.saraba1st.
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  森兰丸  
+##### 4858#       发表于 2021-9-15 06:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752177&amp;ptid=1860328" target="_blank">江口夕 发表于 2021-9-15 02:27</a>
+
+单纯为了配cp而已，而且你说解释也能解释，法师妹子也可能和广场上人一样捐了，这作全程突出一个王道bg， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">TOV是百合塑造的太成功....日式RPG我基本想不出有什么男主能超越百合的塑造
+
+
+另外也就TOZ是公然在卖腐........TOX和TOB不都是BG么.....只是结局有缺憾
+
+
+*****
+
+####  森兰丸  
+##### 4859#       发表于 2021-9-15 06:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">刚上天.....这作的地图城镇设计真是败笔....不是说不好看....而是根本没有任何能给玩家留下印象的设计....就是一片非常好看的空地....其它什么都没.....这种感觉到了レネギス后更是强烈....几块这么大的区域就用来触发几段主线剧情对话么
+
+
