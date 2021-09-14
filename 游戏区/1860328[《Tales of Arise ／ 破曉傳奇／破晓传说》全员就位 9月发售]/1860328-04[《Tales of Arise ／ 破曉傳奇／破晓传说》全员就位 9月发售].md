@@ -4354,3 +4354,40 @@ SW-IVY+高贵灰烬+恶魔角，黑蕾丝YYDS<img src="https://static.saraba1st.
 林薇儿单挑梦幻之花 这游戏真好玩
 
 
+
+
+*****
+
+####  Bani82  
+##### 4835#       发表于 2021-9-14 23:42
+
+
+从N难度到E难度，我现在体验无比好，除了个别怪不能空连以外战斗上我觉得完全没缺点了
+
+哦，曝气不能自己控制也算一个
+
+
+*****
+
+####  火红之眼  
+##### 4836#       发表于 2021-9-14 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750921&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-14 23:36</a>
+
+后面几个炎剑技能啥时候能学 例如霸道灭封之类的</blockquote>
+霸道灭封后期剧情，剩下的老实堆炎击熟练
+
+
+*****
+
+####  Bani82  
+##### 4837#       发表于 2021-9-14 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750921&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-14 23:36</a>
+
+后面几个炎剑技能啥时候能学 例如霸道灭封之类的</blockquote>
+很后面第二部OP后还要起码1、2小时流程
+
+
