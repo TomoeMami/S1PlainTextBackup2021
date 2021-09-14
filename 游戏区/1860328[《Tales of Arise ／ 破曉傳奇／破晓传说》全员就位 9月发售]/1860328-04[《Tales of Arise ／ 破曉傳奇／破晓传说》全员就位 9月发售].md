@@ -4208,3 +4208,61 @@ tob就算了吧，画面玩法很多都过时了，要是toar还做成tob以前�
 原来是要按的超级重才行
 
 
+
+
+*****
+
+####  lucky95  
+##### 4824#       发表于 2021-9-14 23:02
+
+
+打盾姐那真的被恶心到了
+
+他妈的各种技巧要来干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kazamatsuri  
+##### 4825#       发表于 2021-9-14 23:05
+
+
+你们pc按键可以保存吗，我每次退出鼠标按键就重置了
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 4826#       发表于 2021-9-14 23:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">这游戏我有2次打开新世界的大门
+
+第一次是从基本不开火刀到现在特喜欢无脑火刀BA接火刀蓄力直接带走杂兵
+
+第二次是尝试使用文物敌我双方伤害翻倍，那叫个刺激
+
+
+*****
+
+####  whzfjk  
+##### 4827#       发表于 2021-9-14 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750640&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-9-14 23:09</a>
+
+这游戏我有2次打开新世界的大门
+
+第一次是从基本不开火刀到现在特喜欢无脑火刀BA接火刀蓄力直接带走 ...</blockquote>
+火刀不都是要蓄力的吗
+
+
+*****
+
+####  tstx2005  
+##### 4828#       发表于 2021-9-14 23:18
+
+
+老实说那个加80%穿透的饰品打一般的小怪都有奇效，基本能几刀破刚体，带盾怪砍背后也是，你会发现平常不能连的招都可以连起来了
+
+

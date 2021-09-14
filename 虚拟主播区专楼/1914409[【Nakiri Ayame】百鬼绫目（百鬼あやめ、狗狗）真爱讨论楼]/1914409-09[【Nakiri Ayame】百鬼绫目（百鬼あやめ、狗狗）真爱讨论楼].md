@@ -13668,3 +13668,16 @@ Subaru好惨
 绫总:😂👍
 
 
+
+
+*****
+
+####  天悬星河  
+##### 13164#       发表于 2021-9-14 23:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">aya48
+
+绫总，我的冷笑话大师
+
+
