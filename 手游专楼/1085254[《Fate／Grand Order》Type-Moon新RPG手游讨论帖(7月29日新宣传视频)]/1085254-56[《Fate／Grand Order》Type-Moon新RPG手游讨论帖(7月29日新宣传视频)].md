@@ -13105,3 +13105,42 @@ QQ图片20210912170921.jpg
 话说我怎么没跟伽摩战斗就通关了？因为选项选了下面吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83611#       发表于 2021-9-14 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747565&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-9-14 18:37</a>
+
+话说我怎么没跟伽摩战斗就通关了？因为选项选了下面吗</blockquote>
+不在主线 通关后的omake
+
+
+*****
+
+####  zakki  
+##### 83612#       发表于 2021-9-14 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747565&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-9-14 18:37</a>
+话说我怎么没跟伽摩战斗就通关了？因为选项选了下面吗</blockquote>
+迦摩是支线不是主线
+
+
+*****
+
+####  zakki  
+##### 83613#       发表于 2021-9-14 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747510&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-14 18:31</a>
+重要吗！ 这不重要！
+
+
+对  画的美就是能为所欲为（</blockquote>
+问题是加点儿动作啊，真就一张动态ptt动都不动一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
