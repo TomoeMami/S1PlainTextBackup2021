@@ -6291,3 +6291,20 @@ TOV是百合塑造的太成功....日式RPG我基本想不出有什么男主能�
 我觉得toar的垃圾程度可以在我的游戏生涯中排进前几了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hotsmile  
+##### 4988#       发表于 2021-9-16 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766759&amp;ptid=1860328" target="_blank">focus 发表于 2021-9-15 23:59</a>
+
+https://www.bilibili.com/video/BV1TL4y187HE
+
+
+5个小时肝满魔武器，太爽了。希侬后期唯一神，录了个1血秒 ...</blockquote>
+这个是DLC技能吧？
+
+
