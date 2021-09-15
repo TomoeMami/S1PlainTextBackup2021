@@ -4833,3 +4833,46 @@ boss好歹有奖励，这只打完10sp，破防了
 第三章扫图碰到乱入龙了，直接把cp都打空了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  红烧肉  
+##### 4875#       发表于 2021-9-15 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754627&amp;ptid=1860328" target="_blank">水边井 发表于 2021-9-15 10:29</a>
+
+秘奥义怎么按？是要在击中的瞬间按XYA中的两个吗</blockquote>
+直接按住任意两个，比如XY，这时候会释放这两个XY的其中一个技能，按住不动。
+
+技能放完之后就会接上秘奥义。
+
+
+注意技能要打中人。
+
+
+*****
+
+####  红烧肉  
+##### 4876#       发表于 2021-9-15 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754940&amp;ptid=1860328" target="_blank">horacio 发表于 2021-9-15 10:48</a>
+
+我什么dlc都没买，就像前面说的一样，小怪男主打，boss切法师用弱点魔法，难度还行，就是有点无聊，打boss ...</blockquote>
+打BOSS要把AI近战的一些动作长的废招关掉。
+
+
+*****
+
+####  Bani82  
+##### 4877#       发表于 2021-9-15 11:50
+
+
+其实2倍经验有最好，但是2倍SP我觉得还是比较迫切需要的
+
+
+打上雷纳本土了，目前来说黑皮人真的不错
+
+

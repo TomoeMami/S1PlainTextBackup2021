@@ -13328,3 +13328,26 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 铁球佬微博下面突然冒出来一堆说腻了ML的，挺搞笑的，这次泳装这几个又不是突然冒出来的，要喷也回头喷2.6那几个莫名其妙的啊23333，还是说他们喜欢被水布姐的狗粮宝具糊一脸，顺便还是要带一句苍月nmsl
 
 
+
+
+*****
+
+####  yzj134100  
+##### 83628#       发表于 2021-9-15 11:56
+
+
+虽然对樱脸不感冒还是会抽一下
+
+
+*****
+
+####  DARKGRAY  
+##### 83629#       发表于 2021-9-15 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754714&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-9-15 10:34</a>
+
+铁球佬微博下面突然冒出来一堆说腻了ML的，挺搞笑的，这次泳装这几个又不是突然冒出来的，要喷也回头喷2.6 ...</blockquote>
+而且皇女就是缺这么一段力度足够的描写<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+

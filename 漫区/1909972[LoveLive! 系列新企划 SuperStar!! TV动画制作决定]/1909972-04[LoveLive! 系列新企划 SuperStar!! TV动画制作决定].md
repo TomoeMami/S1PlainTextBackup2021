@@ -3921,3 +3921,21 @@ op也是这样，动画首次播没几天就发售了，正常。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三赢！
 
 
+
+
+*****
+
+####  ads147147  
+##### 4811#       发表于 2021-9-15 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52755234&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-15 11:08</a>
+
+吹死婊活，万一能拉回来算是EMP功德一件；
+
+拉低心理预期，保不准拉了也不至于zqsg破防；
+
+落井下石，可以看 ...</blockquote>
+是不是还有我要吹爆田中仁jpg。
+
+
