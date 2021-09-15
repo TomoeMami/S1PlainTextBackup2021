@@ -13954,3 +13954,14 @@ BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1
 问题是不出四星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cckuku  
+##### 83679#       发表于 2021-9-15 22:08
+
+
+听说水迦摩语音又被批斗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你月又要搞两头吃？
+
+

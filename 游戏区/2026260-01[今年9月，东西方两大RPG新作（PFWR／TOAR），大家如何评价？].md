@@ -1510,3 +1510,18 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  dumplingpro  
+##### 112#       发表于 2021-9-15 22:21
+
+
+ 本帖最后由 dumplingpro 于 2021-9-15 22:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754214&amp;ptid=2026260" target="_blank">Rinne70 发表于 2021-9-15 10:01</a>
+
+其实我觉着沃尔吉夫就像从乙女游戏里走出来的男角色一样，提夫林长得也很有风味，居然没有感情线吗。。 ...</blockquote>
+隔壁博德之门3半吸血鬼盗贼也是GAYGAY的傲娇小奶狗人设，最近的盗贼都比较那个。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

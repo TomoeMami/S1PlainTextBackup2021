@@ -13778,3 +13778,23 @@ mua太多就太廉价了<img src="https://static.saraba1st.com/image/smiley/face
 咩的两首原创曲，偶像打歌服和女仆服那两个。官号收藏里应该有分类吧。
 
 
+
+
+*****
+
+####  汇聚群光  
+##### 2740#       发表于 2021-9-15 22:09
+
+
+好不容易注册了Line账号，想买表情包时却被告知国内的银行卡无法进行Google Play上的交易<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">各位有什么解决办法吗？
+
+
+*****
+
+####  T_Hb  
+##### 2741#       发表于 2021-9-15 22:12
+
+
+SL打钱，直接偷表情包
+
+
