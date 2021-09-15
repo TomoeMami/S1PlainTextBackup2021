@@ -5927,3 +5927,31 @@ toz是36吧
 我现在第四个国家，BOSS战前，药已经吃干净了。。。难受
 
 
+
+
+*****
+
+####  索田八公  
+##### 4962#       发表于 2021-9-15 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752505&amp;ptid=1860328" target="_blank">wuliang 发表于 2021-09-15 05:39:30</a>
+打完了，进到二周目发现，好像没有用分数的地方啊，这个分数到底是干嘛的？
+
+ ...</blockquote>确实没有地方用，score的作用是提高sp获得量，只是给你看的而已
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  urvark  
+##### 4963#       发表于 2021-9-15 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764786&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-15 21:34</a>
+
+秘奥义不是能单独关掉的吗..你关了试试</blockquote>
+我已经知道这个怎么禁止了，不是关的问题，而是秘奥义和增幅强击的动画出来后会中断连击，这个有没有办法在设置里调整，比如不要播动画一类……
+
+
