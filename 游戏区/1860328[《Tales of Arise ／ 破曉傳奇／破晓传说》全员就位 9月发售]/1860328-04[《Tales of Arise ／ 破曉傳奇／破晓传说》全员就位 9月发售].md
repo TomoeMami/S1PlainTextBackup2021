@@ -4888,3 +4888,80 @@ boss好歹有奖励，这只打完10sp，破防了
 现在鱼钓完了，猫头鹰也找齐，该通关了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  laoz  
+##### 4879#       发表于 2021-9-15 13:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">塞钱通35分
+
+
+*****
+
+####  hallowilliam  
+##### 4880#       发表于 2021-9-15 13:26
+
+
+问一下这游戏队友ai，如果我不主动把队友的技能关了，他们打boss的时候会主动用克制属性打吗。。。
+
+
+*****
+
+####  言嘉  
+##### 4881#       发表于 2021-9-15 13:32
+
+
+礼问篝火刷新特殊对话的机制是什么，如果是若干场战斗后露营才能刷新对话，具体要几场
+
+
+*****
+
+####  alucardcz  
+##### 4882#       发表于 2021-9-15 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757543&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-15 13:32</a>
+
+礼问篝火刷新特殊对话的机制是什么，如果是若干场战斗后露营才能刷新对话，具体要几场 ...</blockquote>
+忘记在哪看到的了  据说是现实时间1小时
+
+
+*****
+
+####  言嘉  
+##### 4883#       发表于 2021-9-15 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52753082&amp;ptid=1860328" target="_blank">哌啶 发表于 2021-9-15 08:25</a>
+
+我接了个去？？？调查的任务就进了地灵迷宫，直接战斗状态还不准逃跑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那堆刷新的支线没一个好打的，进钟乳洞看见54级的小怪还可以回头，进地灵迷宫就……
+
+
+*****
+
+####  言嘉  
+##### 4884#       发表于 2021-9-15 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757553&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-15 13:33</a>
+
+忘记在哪看到的了  据说是现实时间1小时</blockquote>
+？？？那男主最后那个称号不得刷到天长地久？
+
+
+*****
+
+####  aaronluray  
+##### 4885#       发表于 2021-9-15 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757574&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-15 13:34</a>
+
+？？？那男主最后那个称号不得刷到天长地久？</blockquote>
+不用吧，和一个队友关系达到max应该就行了，建议刷红毛的
+
+

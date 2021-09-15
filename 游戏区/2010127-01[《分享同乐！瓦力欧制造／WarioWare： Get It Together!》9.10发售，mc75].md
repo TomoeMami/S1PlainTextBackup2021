@@ -1849,3 +1849,20 @@ Switch要考虑有Switch Lite存在，不可能弄成Switch专属的特异性游
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  Tilocal  
+##### 151#       发表于 2021-9-15 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752688&amp;ptid=2010127" target="_blank">berserker210 发表于 2021-9-15 07:18</a>
+
+我觉得露露是对应气球大战，致敬聪哥？
+
+
+—— 来自 S1Fun</blockquote>
+主要还有个屁股下坠攻击，虽然这个2D马和瓦都有，对应卡比也有岩石的下坠
+
+

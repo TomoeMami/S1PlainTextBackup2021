@@ -6986,3 +6986,25 @@ Best Windows 11 Start Menu Made by Google
 有没有其他办法改jpg，png，mp4这几个文件的关联，这几个居然没法在设置里改动，醉了
 
 
+
+
+*****
+
+####  GStar  
+##### 574#       发表于 2021-9-15 13:21
+
+
+这个任务栏图标居中结果偏右的bug真是绝了，先改回靠左了，等修复了再改回居中来自: iPhone客户端
+
+
+*****
+
+####  Heliko  
+##### 575#       发表于 2021-9-15 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745605&amp;ptid=2011727" target="_blank">colodes 发表于 2021-9-14 15:56</a>
+Best Windows 11 Start Menu Made by Google</blockquote>
+这是 chrome OS？
+
+
