@@ -4616,3 +4616,32 @@ Screenshot_20210915_163635_com.sina.weibo_edit_1405468411792832.jpg
 鲤鱼完全不接梗啊，还是有偶像包袱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 4870#       发表于 2021-9-15 19:38
+
+
+一是性格原因，还有一个就是鲤鱼日语水平还是不够
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4871#       发表于 2021-9-15 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次怎么念来信都阿巴阿巴的
+
+
+*****
+
+####  cybernetics31  
+##### 4872#       发表于 2021-9-15 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这次剧情主要也不是她 鲤鱼明显划水 之前连续三周可香时期多活跃
+
+

@@ -255,3 +255,30 @@ ova今天开始播出？
 风怒
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6020#       发表于 2021-9-15 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52762738&amp;ptid=1570791" target="_blank">蕾丝 发表于 2021-9-15 19:28</a>
+
+终于把小寡妇的专武刷齐了……
+
+最后用勋章换了近战，本来是长枪类型没抱啥希望，没想到居然是镰刀
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">进化之前是个镐，种地寡妇喜不喜欢啊
+
+
+*****
+
+####  windaria  
+##### 6021#       发表于 2021-9-15 19:35
+
+
+yoyo这反差萌真可爱
+
+
