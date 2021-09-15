@@ -1494,3 +1494,19 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  zris  
+##### 111#       发表于 2021-9-15 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741141&amp;ptid=2026260" target="_blank">Dgnic_ 发表于 2021-9-14 09:49</a>
+正义之怒评价这么高
+我最近一代玩不下去都想卸载了，难道二者爽度相差那么大吗 ...</blockquote>
+我也一代玩不下去，二代玩得津津有味 可以试试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

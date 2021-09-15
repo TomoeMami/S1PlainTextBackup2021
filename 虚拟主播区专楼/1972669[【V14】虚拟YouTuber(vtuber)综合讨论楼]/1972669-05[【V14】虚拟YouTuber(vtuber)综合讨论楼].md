@@ -13724,3 +13724,29 @@ ark又又又又又要来了
 vspo新人看样子之前不怎么玩apex，到时候直播看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7013#       发表于 2021-9-15 19:55
+
+
+运营之前就说过这次新人不是枪女了
+
+
+*****
+
+####  free  
+##### 7014#       发表于 2021-9-15 19:59
+
+
+[https://www.bigislandrecords.com/post/amatsu_virtual](https://www.bigislandrecords.com/post/amatsu_virtual)
+
+あま津軍団解散，10月末全员毕业
+
+[https://twitter.com/p_LittleLindo](https://twitter.com/p_LittleLindo)
+
+Lamuril、依音伽音毕业
+
+

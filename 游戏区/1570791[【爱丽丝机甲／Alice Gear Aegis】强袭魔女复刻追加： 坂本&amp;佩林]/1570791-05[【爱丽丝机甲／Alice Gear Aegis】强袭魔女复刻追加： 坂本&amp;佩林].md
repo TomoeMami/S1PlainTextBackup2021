@@ -282,3 +282,32 @@ ova今天开始播出？
 yoyo这反差萌真可爱
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6022#       发表于 2021-9-15 19:52
+
+
+我的BBA还没发货，嫖别的大佬的，感谢分享
+
+
+这OVA动画前18分钟太混沌了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/15/195140hgcrc40uer0u9c4g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210915195107.jpg</strong> (41.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-15 19:51 上传
+
+
+看完就非常懂这图了。而且充分体现了有出胶才有人权<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+正片其实只有最后2分钟。土偶：为啥PV和动画出来被打的都是我<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
