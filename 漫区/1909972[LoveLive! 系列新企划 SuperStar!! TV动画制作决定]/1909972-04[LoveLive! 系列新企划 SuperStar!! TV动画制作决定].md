@@ -4386,3 +4386,59 @@ Screenshot_20210915_163635_com.sina.weibo_edit_1405468411792832.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">之前还有指责五个人各怀鬼胎不纯粹的，为不废校好好努力去当偶像的才是不功利的好偶像，这下可纯粹了www
 
 
+
+
+*****
+
+####  cao1rui2  
+##### 4848#       发表于 2021-9-15 17:02
+
+
+我倒没觉得很差，就中规中矩吧，再说ll什么时候以剧情著称了
+
+
+*****
+
+####  寒风夜  
+##### 4849#       发表于 2021-9-15 17:03
+
+
+ 本帖最后由 寒风夜 于 2021-9-15 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760670&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-15 16:56</a>
+
+草，刚刚逛贴吧有人说可可做学院偶像太功利了，有什么目的……我想了半天都没想通她来日本不是为了学院偶像 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">有天放学看到桑泥帕受到冲击就想这样了，从第3话应该看的 出来吧
+
+
+*****
+
+####  寒风夜  
+##### 4850#       发表于 2021-9-15 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760670&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-15 16:56</a>
+
+草，刚刚逛贴吧有人说可可做学院偶像太功利了，有什么目的……我想了半天都没想通她来日本不是为了学院偶像 ...</blockquote>
+
+
+*****
+
+####  megapikachu  
+##### 4851#       发表于 2021-9-15 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760691&amp;ptid=1909972" target="_blank">Karin11974 发表于 2021-9-15 16:57</a>
+
+工地日语听力完整听完，没有什么值得留意的点，不过日记趣事挺好笑的 ...</blockquote>
+最起码有点收获不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 4852#       发表于 2021-9-15 17:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我期待值已经无限降低了
+
+
