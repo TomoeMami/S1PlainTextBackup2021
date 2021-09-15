@@ -5181,3 +5181,26 @@ TVアニメ『ラブライブ！スーパースター!!』特別パート
 就别纠结这个了……你就当是呗…………
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 4916#       发表于 2021-9-15 23:36
+
+
+为什么鲤鱼和pay酱离得那么远啊，是故意安排的吗，正常来说知道这集的评价后应该安排的近一点才对啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星降る森  
+##### 4917#       发表于 2021-9-15 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766495&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-15 23:36</a>
+
+为什么鲤鱼和pay酱离得那么远啊，是故意安排的吗，正常来说知道这集的评价后应该安排的近一点才对啊 ...</blockquote>
+明显早就录完了啊，又不是这话后录的
+
+

@@ -14060,3 +14060,57 @@ NGA全在讨论转日服了，以后云玩家的纯度要下降了<img src="http
 我3年前日方原1.0就跑路日服无初始转生了，一群国服在那边舍不得千里眼然后又批判攒石党的样子看的想笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  枪聆弹语  
+##### 83689#       发表于 2021-9-15 23:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个夹馍村正郎才女貌，你一个加勒比皇帝差不多得了的节奏
+
+
+*****
+
+####  alucardcz  
+##### 83690#       发表于 2021-9-15 23:29
+
+
+ 本帖最后由 alucardcz 于 2021-9-15 23:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52765995&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-15 22:55</a>
+
+国服这和谐，真就是bgo早死早超生
+
+可以等一批转生玩家了</blockquote>
+这一口气废掉了那么多 吓到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有不少还是5星 这波比以前奶光夸张多了
+
+
+*****
+
+####  飞霞精灵  
+##### 83691#       发表于 2021-9-15 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766050&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-9-15 22:59</a>
+
+国服早关了算了，可以少很多云玩家，我本来以为国内剧本写不好是水平关系，现在我觉得是被国内观众这种二极 ...</blockquote>
+最主要还有姥爷铁拳不讲理……像是去年秦始皇把长城保护协会拉出来已经是求生欲拉满的操作了。
+
+但真铁拳砸下来时候哪里管这个。
+
+当然，阿b摆烂也是其中因素之一。
+
+
+*****
+
+####  飞霞精灵  
+##### 83692#       发表于 2021-9-15 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766192&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-9-15 23:10</a>
+
+我3年前日方原1.0就跑路日服无初始转生了，一群国服在那边舍不得千里眼然后又批判攒石党的样子看的想笑啊[f ...</blockquote>
+fgo终究是个重氪游戏，已经5年了，沉没成本太高回不来确实麻烦。
+
+

@@ -6015,3 +6015,17 @@ toz是36吧
 我玩过的高度差复杂的游戏通常会把同一层的东西不重叠地放在同一张图上，不同层地图之间切换时对应的楼梯洞口通常是对齐的，而破晓传说两者都没做到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 4969#       发表于 2021-9-15 23:29
+
+
+打到第四章了，感觉那段还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能已经习惯了
+目前最弱智的还是第二章，无法超越<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
