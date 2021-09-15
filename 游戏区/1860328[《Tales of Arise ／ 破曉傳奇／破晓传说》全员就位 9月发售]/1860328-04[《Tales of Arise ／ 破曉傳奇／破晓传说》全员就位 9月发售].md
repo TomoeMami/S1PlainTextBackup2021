@@ -5991,3 +5991,27 @@ toz是36吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这最终BOSS也太弱了，还是无名岛那条龙，暂时是我打过最强的boss了，全身cp药和复活药都吃完才过
 
 
+
+
+*****
+
+####  hotsmile  
+##### 4967#       发表于 2021-9-15 23:12
+
+
+饰品4个战斗狂能叠加吗？
+
+
+*****
+
+####  Zhangsmallquan  
+##### 4968#       发表于 2021-9-15 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758442&amp;ptid=1860328" target="_blank">asclepiusz 发表于 2021-9-15 14:26</a>
+你玩过高低差复杂的游戏就知道这种地图真的很人性化了……
+
+现实里比如重庆，你看电子地图根本看不懂[f:06 ...</blockquote>
+我玩过的高度差复杂的游戏通常会把同一层的东西不重叠地放在同一张图上，不同层地图之间切换时对应的楼梯洞口通常是对齐的，而破晓传说两者都没做到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

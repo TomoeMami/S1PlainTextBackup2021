@@ -14049,3 +14049,14 @@ NGA全在讨论转日服了，以后云玩家的纯度要下降了<img src="http
 国服早关了算了，可以少很多云玩家，我本来以为国内剧本写不好是水平关系，现在我觉得是被国内观众这种二极管思维给倒逼出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sosgame67  
+##### 83688#       发表于 2021-9-15 23:10
+
+
+我3年前日方原1.0就跑路日服无初始转生了，一群国服在那边舍不得千里眼然后又批判攒石党的样子看的想笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
