@@ -5761,3 +5761,28 @@ toz是36吧
 感觉动画里的人物尤其是女角色比游戏里好看不少，游戏里女角色的脸有一点男人味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 4950#       发表于 2021-9-15 19:04
+
+
+快通关了大概。突然回想起女主的黑色小裙子上非要画个爱心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，简直恶趣味
+
+
+
+
+*****
+
+####  cube  
+##### 4951#       发表于 2021-9-15 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761600&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-9-15 17:58</a>
+
+矿石刷新机制是杀怪次数吗？还是现实时间？</blockquote>
+离开当前地图后10分钟左右刷新。矿的等级刷新的时候就已经决定，但是可以被食物提星，不放心的话可以在火堆那吃个料理。
+
+

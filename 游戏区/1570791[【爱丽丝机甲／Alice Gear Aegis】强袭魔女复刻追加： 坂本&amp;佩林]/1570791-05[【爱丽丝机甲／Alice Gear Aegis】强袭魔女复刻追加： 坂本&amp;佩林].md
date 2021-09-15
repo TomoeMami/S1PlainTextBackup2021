@@ -220,3 +220,38 @@ yoyo涛哥四谷早就出了an
 结果原来是山东人，我完全把这人忘了...
 
 
+
+
+*****
+
+####  windaria  
+##### 6017#       发表于 2021-9-15 18:49
+
+
+[https://colopl.co.jp/alicegearaegis/lp/ova/](https://colopl.co.jp/alicegearaegis/lp/ova/)
+
+ova今天开始播出？
+
+
+*****
+
+####  蕾丝  
+##### 6018#       发表于 2021-9-15 19:28
+
+
+终于把小寡妇的专武刷齐了……
+最后用勋章换了近战，本来是长枪类型没抱啥希望，没想到居然是镰刀<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+这角色的设计也太用心了吧
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+*****
+
+####  蕾丝  
+##### 6019#       发表于 2021-9-15 19:28
+
+
+风怒
+
+

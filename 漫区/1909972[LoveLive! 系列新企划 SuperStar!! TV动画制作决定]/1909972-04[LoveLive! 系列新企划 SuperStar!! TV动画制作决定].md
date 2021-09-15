@@ -4482,3 +4482,137 @@ Screenshot_20210915_163635_com.sina.weibo_edit_1405468411792832.jpg
 楼友期待值还是不够低，太在意一点风吹草动了，再坏还能坏过水13？
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4857#       发表于 2021-9-15 18:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都怪前三集把它带到了不该有的高度
+
+
+*****
+
+####  JustW  
+##### 4858#       发表于 2021-9-15 18:54
+
+
+花田：懂了，这就整个更大的
+
+
+*****
+
+####  kata魂  
+##### 4859#       发表于 2021-9-15 19:00
+
+
+该死，差点，鲤鱼跟nako换个位置就好了！差点就能验证一下含金量了
+
+
+*****
+
+####  chenflyyy  
+##### 4860#       发表于 2021-9-15 19:01
+
+
+这直播间怎么那么破旧
+
+
+
+
+*****
+
+####  kata魂  
+##### 4861#       发表于 2021-9-15 19:05
+
+
+迎合一下恋恋家破产的气氛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  名津流  
+##### 4862#       发表于 2021-9-15 19:08
+
+
+人均黑眼圈
+
+
+*****
+
+####  cybernetics31  
+##### 4863#       发表于 2021-9-15 19:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这按头发长度排的？
+
+
+*****
+
+####  Norkey1  
+##### 4864#       发表于 2021-9-15 19:08
+
+
+青山右边那幅画仿佛就是她自己画的一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 4865#       发表于 2021-9-15 19:08
+
+
+ 本帖最后由 kata魂 于 2021-9-15 19:17 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202109/15/191627k09bycpkk9bk0xbx.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (85.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-15 19:16 上传
+
+
+这次座位是op站位
+
+
+*****
+
+####  chenflyyy  
+##### 4866#       发表于 2021-9-15 19:09
+
+
+原来已经一周年了吗
+
+
+*****
+
+####  cybernetics31  
+##### 4867#       发表于 2021-9-15 19:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海滩往事
+
+
+*****
+
+####  pliee  
+##### 4868#       发表于 2021-9-15 19:25
+
+
+官方宣传上海滩
+
+
+*****
+
+####  Norkey1  
+##### 4869#       发表于 2021-9-15 19:31
+
+
+鲤鱼完全不接梗啊，还是有偶像包袱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
