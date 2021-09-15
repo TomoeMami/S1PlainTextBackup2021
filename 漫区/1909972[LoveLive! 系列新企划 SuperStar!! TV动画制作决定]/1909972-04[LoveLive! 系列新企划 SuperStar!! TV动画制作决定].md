@@ -3603,3 +3603,87 @@ Galaxy也太惨了吧 水藻以下的存在<img src="https://static.saraba1st.co
 我看看谁还说日本人不在意，国人太敏感的啧啧
 
 
+
+
+*****
+
+####  优妮可  
+##### 4786#       发表于 2021-9-15 07:44
+
+
+<img src="https://img.saraba1st.com/forum/202109/15/074352kv6q56p3m6zjqq6c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210915_074346.jpg</strong> (27.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-15 07:43 上传
+
+
+第五项有点多，前几集加起来都没到7
+
+
+*****
+
+####  lj205  
+##### 4787#       发表于 2021-9-15 07:46
+
+
+系列最低了吧？
+
+
+*****
+
+####  黑雪姫  
+##### 4788#       发表于 2021-9-15 07:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752813&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-15 07:46</a>
+系列最低了吧？</blockquote>
+不是 水团有几话更低
+
+
+*****
+
+####  梶原ひかり  
+##### 4789#       发表于 2021-9-15 07:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752813&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-15 07:46</a>
+
+系列最低了吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">水团第一季最后一集39 第二季最后一集49
+
+
+*****
+
+####  damian-wade  
+##### 4790#       发表于 2021-9-15 07:59
+
+
+迫害待遇问题是拉拉人传统的关注点，这集还整各种迫害致敬，强度创造新高，摆明了staff无视了以往粉丝对类似情节的恶评，就很无语
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  we89623  
+##### 4791#       发表于 2021-9-15 08:06
+
+
+无主见和积极性却受到万般宠爱的队长香音
+
+强迫他人和语言冷暴力的可可
+
+香音的大腿挂件路人小千
+
+丑角担当平安名堇
+
+迁怒他人的恋
+
+
+第七话的人物塑造简直是灾难性的
+
+
