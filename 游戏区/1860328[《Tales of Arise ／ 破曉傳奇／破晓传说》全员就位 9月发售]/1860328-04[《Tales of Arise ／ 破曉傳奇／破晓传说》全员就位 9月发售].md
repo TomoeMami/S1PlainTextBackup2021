@@ -6308,3 +6308,58 @@ https://www.bilibili.com/video/BV1TL4y187HE
 这个是DLC技能吧？
 
 
+
+
+*****
+
+####  Bani82  
+##### 4989#       发表于 2021-9-16 01:27
+
+
+其实除了红霸斩，在天上不停风神剑也很舒服，脚不沾地<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 4990#       发表于 2021-9-16 01:30
+
+
+ 本帖最后由 Bani82 于 2021-9-16 01:32 编辑 
+
+真的，不要折磨自己换了E差不多等于以前的N，你们为什么非要开局拿相当以前C难度打呢
+
+主要这难度毫无意义，既没有难度限定路线也没有难度限定角色和道具，估摸着AI也不会有变化，和数值死磕干什么
+
+
+但凡和上面除了数值以外的有点沾边的我也就不推荐E了
+
+
+*****
+
+####  黑夜守望者  
+##### 4991#       发表于 2021-9-16 01:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726679&amp;ptid=1860328" target="_blank">红烧肉 发表于 2021-9-12 23:44</a>
+
+近几代的传说都这德行了。
+
+
+怀念旧时代大地图+踩地雷版本的传说，虽然踩地雷很烦。</blockquote>
+玩的时候无比怀念TOE的上天入地，探索度可以媲美FF。md传说怎么现在成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 4992#       发表于 2021-9-16 01:45
+
+
+对了，这次买了中文版感觉翻译上私货或者说一部分并不是那么恰当
+
+好几个地方莫名其妙来一个TMD，原文一点点都没有这类词
+
+个人还是挺不喜欢这种翻译方式的，甚至有几个地方连用词都没统一
+
+

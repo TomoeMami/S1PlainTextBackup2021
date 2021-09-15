@@ -3040,3 +3040,24 @@ TV版好感是慢慢刷出来的,一开始香和丽都不喜欢真嗣,虽然因�
 看到真嗣和真希波手牵手跑出站台，为什么这么想哭呢
 
 
+
+
+*****
+
+####  女神アイギス  
+##### 1695#       发表于 2021-9-16 01:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52645312&amp;ptid=2013091" target="_blank">mj0017 发表于 2021-9-6 23:22</a>
+
+TV版好感是慢慢刷出来的,一开始香和丽都不喜欢真嗣,虽然因为温柔所以喜欢很中二其实很现实
+
+
+真希波完全不能 ...</blockquote>
+就是想表达真嗣成年了吧
+
+对成年人来说，大胸的好女人已经是一个足够合理的cp理由了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过这也太俗了，我还是喜欢那个宛如机战附身大吼“把凌波还给我”的真嗣
+
+

@@ -5218,3 +5218,25 @@ TVアニメ『ラブライブ！スーパースター!!』特別パート
 我说的是今天的生放送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cat1230  
+##### 4919#       发表于 2021-9-16 01:27
+
+
+看了下做游戏打气球那段，感觉鲤鱼跟4人两种画风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 4920#       发表于 2021-9-16 01:47
+
+
+第七集有一个违和感是默认香的人缘很好，虽然和香互动的都是团里人和工具人同学，但是可可希望香当学生会长的时候周围的同学都很支持。仔细一想成为了学园偶像之后基本没有侧面展现过偶像部的一行人到底受欢迎到什么程度了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
