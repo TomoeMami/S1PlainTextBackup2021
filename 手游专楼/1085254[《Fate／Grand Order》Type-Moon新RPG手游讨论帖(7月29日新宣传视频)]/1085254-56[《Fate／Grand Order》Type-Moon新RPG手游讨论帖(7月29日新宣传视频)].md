@@ -13965,3 +13965,20 @@ BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1
 听说水迦摩语音又被批斗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你月又要搞两头吃？
 
 
+
+
+*****
+
+####  シャル  
+##### 83680#       发表于 2021-9-15 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52765356&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-9-15 22:08</a>
+
+听说水迦摩语音又被批斗了你月又要搞两头吃？</blockquote>
+夹摩比撒库拉可爱多了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+批斗的脑子不正常
+
+

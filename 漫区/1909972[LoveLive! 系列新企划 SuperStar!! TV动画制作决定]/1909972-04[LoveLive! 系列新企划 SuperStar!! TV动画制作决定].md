@@ -5084,3 +5084,36 @@ TVアニメ『ラブライブ！スーパースター!!』特別パート
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼最后虽然没倒下，但最后绝对有一瞬间失神了
 
 
+
+
+*****
+
+####  二月十日  
+##### 4909#       发表于 2021-9-15 22:27
+
+
+ 本帖最后由 二月十日 于 2021-9-15 22:28 编辑 
+
+希望动画可以把这段做进去…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/7162347a9f687bc787f05e6de14a400f/IMG_CMP_195759230.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 4910#       发表于 2021-9-15 22:30
+
+
+【ライブグッズ情報】
+
+ラブライブ！スーパースター!! Liella! First LoveLive! Tour ～Starlines～のオフィシャルグッズの第2回事前通販を本日開始しました🌟
+
+→ [https://official-goods-store.jp/lovelive/product/list?c1=387](https://official-goods-store.jp/lovelive/product/list?c1=387)
+
+
+1stライブキービジュアルも公開❗✨
+
+第2回事前通販受付は9/26(日)まで🌟
+<img src="https://p.sda1.dev/2/cf1427697659a12b6037a4ea503b440e/20210915_222934.jpg" referrerpolicy="no-referrer">
+
+

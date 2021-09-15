@@ -5968,3 +5968,26 @@ toz是36吧
 顺便感觉林薇儿也有点喜欢迪奥，有句对白是，希望洛能早点变得和迪奥一样
 
 
+
+
+*****
+
+####  laoz  
+##### 4965#       发表于 2021-9-15 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52765311&amp;ptid=1860328" target="_blank">urvark 发表于 2021-9-15 22:05</a>
+
+我已经知道这个怎么禁止了，不是关的问题，而是秘奥义和增幅强击的动画出来后会中断连击，这个有没有办法 ...</blockquote>
+动画是不可能给你关的，你可以不用，继续连
+
+
+*****
+
+####  天使的赤瞳  
+##### 4966#       发表于 2021-9-15 22:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这最终BOSS也太弱了，还是无名岛那条龙，暂时是我打过最强的boss了，全身cp药和复活药都吃完才过
+
+

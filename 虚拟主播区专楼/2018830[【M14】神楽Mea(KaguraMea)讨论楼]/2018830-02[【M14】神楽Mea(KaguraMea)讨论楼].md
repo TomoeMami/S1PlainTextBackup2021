@@ -13798,3 +13798,36 @@ mua太多就太廉价了<img src="https://static.saraba1st.com/image/smiley/face
 SL打钱，直接偷表情包
 
 
+
+
+*****
+
+####  Klience  
+##### 2742#       发表于 2021-9-15 22:29
+
+
+妈的 奖励自己游戏结果不是在101  我anti了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2743#       发表于 2021-9-15 22:36
+
+
+在爽玩魔圆
+
+
+*****
+
+####  往世雷书  
+##### 2744#       发表于 2021-9-15 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52765380&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2021-9-15 22:09</a>
+好不容易注册了Line账号，想买表情包时却被告知国内的银行卡无法进行Google Play上的交易各位有什么 ...</blockquote>
+要用信用卡吧，储蓄卡不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
