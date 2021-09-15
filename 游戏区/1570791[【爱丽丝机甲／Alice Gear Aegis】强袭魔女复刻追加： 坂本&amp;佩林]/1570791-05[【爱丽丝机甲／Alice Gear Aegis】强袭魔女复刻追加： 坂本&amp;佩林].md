@@ -191,3 +191,18 @@
 后部装甲放浮游炮时开口的位置<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  蕾丝  
+##### 6015#       发表于 2021-9-15 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52756325&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-15 12:10</a>
+后部装甲放浮游炮时开口的位置</blockquote>
+已经注意到了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+

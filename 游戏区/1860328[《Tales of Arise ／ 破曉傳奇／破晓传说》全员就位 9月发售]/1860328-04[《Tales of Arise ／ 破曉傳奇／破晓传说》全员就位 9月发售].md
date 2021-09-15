@@ -4965,3 +4965,185 @@ boss好歹有奖励，这只打完10sp，破防了
 不用吧，和一个队友关系达到max应该就行了，建议刷红毛的
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4886#       发表于 2021-9-15 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757574&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-15 13:34</a>
+
+？？？那男主最后那个称号不得刷到天长地久？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找到了 隔壁nga白金贴里看到的  的确是现实时间1小时
+
+
+*****
+
+####  言嘉  
+##### 4887#       发表于 2021-9-15 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757655&amp;ptid=1860328" target="_blank">aaronluray 发表于 2021-9-15 13:39</a>
+
+不用吧，和一个队友关系达到max应该就行了，建议刷红毛的</blockquote>
+我看描述貌似是要和所有同伴加深感情，鉴于红毛的称号要和男主搞基我就优先刷了他的……
+
+
+*****
+
+####  alucardcz  
+##### 4888#       发表于 2021-9-15 13:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757435&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-15 13:24</a>
+
+塞钱通35分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tob几分
+
+
+*****
+
+####  6847651  
+##### 4889#       发表于 2021-9-15 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752167&amp;ptid=1860328" target="_blank">whzfjk 发表于 2021-9-15 02:24</a>
+
+但让杜哈林主观放走他在观感上还是不太行，可以口胡个隐形魔兽帮他逃跑之类的 ...</blockquote>
+最SB的不是盾女双标吗 黑皮领主解放奴隶国家治理井井有条 人民安居乐业生活幸福 她自我**感动失败就要杀一个好领主（被男主拦住） 真的杀了哥哥和一大堆百姓的仇人在自己面前被放跑一个字都不说 把我看呆了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 4890#       发表于 2021-9-15 13:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757780&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-15 13:46</a>
+
+tob几分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">一样
+
+
+
+
+*****
+
+####  alucardcz  
+##### 4891#       发表于 2021-9-15 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757819&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-15 13:48</a>
+
+一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">画面演出超进化 其他全部倒退 最后综合平分！  很合理（
+
+
+*****
+
+####  司马千晶  
+##### 4892#       发表于 2021-9-15 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757435&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-15 13:24</a>
+
+塞钱通35分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多是这个分数，应该是南猛攻交了保护费，所以晚发一周
+
+
+*****
+
+####  hallowilliam  
+##### 4893#       发表于 2021-9-15 13:51
+
+
+所以还是想问问这作AI技能怎么设置，ai到底聪不聪明，需不需要把逆属性的技能都取消
+
+
+*****
+
+####  言嘉  
+##### 4894#       发表于 2021-9-15 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757691&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-15 13:42</a>
+
+找到了 隔壁nga白金贴里看到的  的确是现实时间1小时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这……每个人的对话有几次啊，我之前还雨露均沾想着都刷满呢，现在一看简直就是个大纱布
+
+
+*****
+
+####  EigenVesper  
+##### 4895#       发表于 2021-9-15 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757853&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-15 13:50</a>
+
+差不多是这个分数，应该是南猛攻交了保护费，所以晚发一周</blockquote>
+查了一下，从tov到toar，除了tog36和tox39，其他什么tov toz tob tox2全是35
+
+
+*****
+
+####  angela5d30  
+##### 4896#       发表于 2021-9-15 14:03
+
+
+有坛友知道撇开男主以外的秘奥义2是随剧情解锁吗？刚才我无意用男主的炎刀相关技能后莫名其妙就按出来了，然后看了下技能列表才发现男主多了这招，可其他队友依然只有秘奥义1 
+
+谢谢了。
+
+— from Xiaomi MI 8 Lite, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  qiyu1234  
+##### 4897#       发表于 2021-9-15 14:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757951&amp;ptid=1860328" target="_blank">EigenVesper 发表于 2021-9-15 13:56</a>
+
+查了一下，从tov到toar，除了tog36和tox39，其他什么tov toz tob tox2全是35</blockquote>
+TOZ 36
+
+TOGF 37
+
+
+*****
+
+####  makar0601  
+##### 4898#       发表于 2021-9-15 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758071&amp;ptid=1860328" target="_blank">angela5d30 发表于 2021-9-15 14:03</a>
+
+有坛友知道撇开男主以外的秘奥义2是随剧情解锁吗？刚才我无意用男主的炎刀相关技能后莫名其妙就按出来了， ...</blockquote>
+露营好感度拉满给的
+
+
+*****
+
+####  喵喵叫的猫  
+##### 4899#       发表于 2021-9-15 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758071&amp;ptid=1860328" target="_blank">angela5d30 发表于 2021-9-15 14:03</a>
+有坛友知道撇开男主以外的秘奥义2是随剧情解锁吗？刚才我无意用男主的炎刀相关技能后莫名其妙就按出来了， ...</blockquote>
+营火好感度对话满了解锁
+
+
+*****
+
+####  Ivent  
+##### 4900#       发表于 2021-9-15 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758071&amp;ptid=1860328" target="_blank">angela5d30 发表于 2021-9-15 14:03</a>
+有坛友知道撇开男主以外的秘奥义2是随剧情解锁吗？刚才我无意用男主的炎刀相关技能后莫名其妙就按出来了， ...</blockquote>
+其他人的秘奥义2应该是篝火羁绊对话满了有，我现在解锁的三个都是这样的。
+
+
