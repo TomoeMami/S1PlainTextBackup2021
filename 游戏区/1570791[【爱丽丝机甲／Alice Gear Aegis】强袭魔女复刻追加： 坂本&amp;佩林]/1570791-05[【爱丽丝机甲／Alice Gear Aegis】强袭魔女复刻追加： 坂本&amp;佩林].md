@@ -132,3 +132,14 @@
 是专属手，不是活动绿装。手的技能是3HIT。专属70四星大概是3HIT，每HIT 2W。升到80三发大概共6W5多点。
 
 
+
+
+*****
+
+####  unsh  
+##### 6011#       发表于 2021-9-15 09:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是专属啊，60级人，近远手脚一套分别是60 50 60 40级，到靶场按技能是跳3个6k。还是说参照物不对吗
+
+
