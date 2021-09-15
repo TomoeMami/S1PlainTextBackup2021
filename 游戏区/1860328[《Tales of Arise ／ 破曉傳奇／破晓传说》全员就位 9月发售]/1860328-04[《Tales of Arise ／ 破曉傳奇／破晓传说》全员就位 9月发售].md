@@ -5901,3 +5901,29 @@ toz是36吧
 那头鹿也太强了 四种形态 近身和远程都有秒杀技 防御力又高 砍都砍不动<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4960#       发表于 2021-9-15 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764322&amp;ptid=1860328" target="_blank">urvark 发表于 2021-9-15 21:05</a>
+
+请问要如何禁止队友使用秘奥义？秘奥义播片会自动打断连击计数，这也太蠢了，谁想出来的设计，纯粹就为了恶 ...</blockquote>
+秘奥义不是能单独关掉的吗..你关了试试
+
+
+*****
+
+####  正直的黄瓜  
+##### 4961#       发表于 2021-9-15 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763660&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-15 20:22</a>
+
+已经打完麻婆了，现在最大的感想就是这原来是个磕药游戏</blockquote>
+我现在第四个国家，BOSS战前，药已经吃干净了。。。难受
+
+
