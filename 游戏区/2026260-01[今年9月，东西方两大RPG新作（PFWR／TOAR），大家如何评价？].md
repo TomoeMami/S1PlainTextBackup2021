@@ -1477,3 +1477,20 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 正义之怒通了 破晓2章扔了
 
 
+
+
+*****
+
+####  jf8350143  
+##### 110#       发表于 2021-9-15 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760473&amp;ptid=2026260" target="_blank">EigenVesper 发表于 2021-9-15 16:42</a>
+没玩过crpg，但看这贴甚至有点羡慕crpg玩家了，有点想试一下</blockquote>
+没玩过可以试试，crpg是个很有意思的类型，虽然没有花里胡哨的开放世界但是自由度其实还要远远超过巫师3啊老滚辐射4这种主流的rpg。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">不过我玩惯了crpg现在不能捏人剧情**的游戏已经完全玩不下去了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

@@ -13618,3 +13618,65 @@ mua太多就太廉价了<img src="https://static.saraba1st.com/image/smiley/face
 为什么不多开几个网页<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2725#       发表于 2021-9-15 17:49
+
+
+看了一下，line这注册太麻烦了···我给肥婆打钱得了
+
+
+*****
+
+####  黒長直姫  
+##### 2726#       发表于 2021-9-15 17:50
+
+
+不麻烦啊 挂个日本梯子 国内手机号一样收验证码
+
+
+那么有人爬了表情包出来了吗
+
+
+*****
+
+####  2014720  
+##### 2727#       发表于 2021-9-15 17:51
+
+
+我用几把line啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 2728#       发表于 2021-9-15 17:53
+
+
+用line可以和小麻私联 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 2729#       发表于 2021-9-15 18:01
+
+
+表情包可爱的
+
+
+*****
+
+####  turezyy  
+##### 2730#       发表于 2021-9-15 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761120&amp;ptid=2018830" target="_blank">Mr.shelter 发表于 2021-9-15 17:23</a>
+
+无关问题，鹅球为什么每次开M楼都是前几页，没法跳转到上次看的地方或者最后呢 ...</blockquote>
+鹅球左上角-&gt;设置-&gt;浏览进度-&gt;自动存储自动读取都打开，可能需要手机的文件存储权限
+
+

@@ -4442,3 +4442,23 @@ Screenshot_20210915_163635_com.sina.weibo_edit_1405468411792832.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我期待值已经无限降低了
 
 
+
+
+*****
+
+####  lj205  
+##### 4853#       发表于 2021-9-15 17:55
+
+
+星团画伯应该就是nagi了吧？
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4854#       发表于 2021-9-15 18:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nagi是画伯到自己有心理阴影的地步
+
+

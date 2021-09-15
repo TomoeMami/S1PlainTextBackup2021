@@ -206,3 +206,17 @@
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6016#       发表于 2021-9-15 18:07
+
+
+喷了，你们一直说中野an就是那个人，我一直都想不起是谁
+yoyo涛哥四谷早就出了an
+吉他妹又太新不可能出an
+结果原来是山东人，我完全把这人忘了...
+
+

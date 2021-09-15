@@ -13710,3 +13710,95 @@ BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1
 一发溜了，阿清不要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 83660#       发表于 2021-9-15 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761328&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-15 17:36</a>
+
+今天都UP啊？
+
+明天才是单UP</blockquote>
+……那就是俩四星up都没出，三次都歪了= =
+
+
+*****
+
+####  シャル  
+##### 83661#       发表于 2021-9-15 17:45
+
+
+这次出货太容易了
+
+
+20连
+
+
+0546F1FE-FF15-4252-8022-594458BA0AE0.png
+(1.08 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-15 17:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/15/174509iqnusb4ov5nqz24o.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 83662#       发表于 2021-9-15 17:46
+
+
+看楼上大家
+
+
+这夹馍简直就是送啊
+
+
+*****
+
+####  sosgame67  
+##### 83663#       发表于 2021-9-15 17:47
+
+
+500石1宝伽摩，还歪了一个三藏，溜了溜了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 83664#       发表于 2021-9-15 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761460&amp;ptid=1085254" target="_blank">シャル 发表于 2021-9-15 17:46</a>
+看楼上大家
+
+
+这夹馍简直就是送啊</blockquote>
+请问没送到的去哪补领<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 83665#       发表于 2021-9-15 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761188&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-9-15 17:27</a>
+
+虽然卡面很色，但是微妙的没有戳到我的点。没有妖兰卡面那种让人看了就很想抽的冲动
+
+可能我确实对樱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有证据怀疑你炼铜
+
+
