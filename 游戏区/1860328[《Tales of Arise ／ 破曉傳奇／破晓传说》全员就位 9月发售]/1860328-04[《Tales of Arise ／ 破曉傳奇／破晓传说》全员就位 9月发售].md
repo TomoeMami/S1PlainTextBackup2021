@@ -6250,3 +6250,44 @@ https://www.bilibili.com/video/BV1TL4y187HE
 这游戏中后期最关键的道具是黑皮个人修炼给的双向100％增伤文物吧，游戏体验直接上升一个台阶，再也不刮痧了
 
 
+
+
+*****
+
+####  魂淡放我出去  
+##### 4985#       发表于 2021-9-16 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766763&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-15 23:59</a>
+主要还是因为杜欧哈林改变了雷纳人在她心目中的印象吧
+
+包括后面有一个悼念儿子的支线也是
+
+杜欧哈林表面上 ...</blockquote>
+题外话，那个支线出现的时间点不对，这个时候琳薇儿已经想开了，整个队伍总算是有了队伍的样子，却又出现小内讧总觉得怪怪的
+
+
+*****
+
+####  黑夜守望者  
+##### 4986#       发表于 2021-9-16 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752568&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-15 06:30</a>
+
+TOV是百合塑造的太成功....日式RPG我基本想不出有什么男主能超越百合的塑造
+
+
+另外也就TOZ是公然在 ...</blockquote><blockquote>日式RPG我基本想不出有什么男主能超越百合的塑造</blockquote>
+我觉得百合塑造不如FF9吉坦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4987#       发表于 2021-9-16 00:59
+
+
+我觉得toar的垃圾程度可以在我的游戏生涯中排进前几了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
