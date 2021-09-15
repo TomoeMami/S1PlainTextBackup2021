@@ -5473,3 +5473,42 @@ toz是36吧
 但我一看回复，这秘奥义2还得满好感，结果还是要刷……坑爹啊
 
 
+
+
+*****
+
+####  言嘉  
+##### 4927#       发表于 2021-9-15 16:12
+
+
+风怒，编辑掉
+
+
+*****
+
+####  Rainwedell  
+##### 4928#       发表于 2021-9-15 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758966&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-15 15:01</a>
+虽然还没通关，不过是越玩越不满，现在素材引擎都有了，两年能交出下一作吗 ...</blockquote>
+年货化那质量真上了怕不又是个流量密码，3年好好弄下合适一点，中间塞个togf这种冷饭上ns
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hallowilliam  
+##### 4929#       发表于 2021-9-15 16:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759747&amp;ptid=1860328" target="_blank">cube 发表于 2021-9-15 15:56</a>
+
+目前我的体感是AI有一定的智能选择，他不一定会放属性克制的，但是会避免放被逆克制的技能。
+
+
+有个问题是 ...</blockquote>
+合体技有属性吗？我都不知道，我知道必杀是有属性的。
+
+

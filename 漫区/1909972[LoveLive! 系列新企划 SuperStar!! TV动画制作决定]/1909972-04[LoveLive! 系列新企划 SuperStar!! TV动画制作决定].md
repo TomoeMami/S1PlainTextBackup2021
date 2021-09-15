@@ -4131,3 +4131,147 @@ op也是这样，动画首次播没几天就发售了，正常。
 你花田哥之前搞南极电子邮件的时候可是哭倒一片人，不过这次还能这么弄吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  寒风夜  
+##### 4829#       发表于 2021-9-15 16:07
+
+
+ 本帖最后由 寒风夜 于 2021-9-15 16:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759883&amp;ptid=1909972" target="_blank">Jobtownb 发表于 2021-9-15 16:05</a>
+
+你花田哥之前搞南极电子邮件的时候可是哭倒一片人，不过这次还能这么弄吗？ ...</blockquote>
+那太难了 那可是铺垫了一整季的，这边搞去世我只感觉不行...而且还是一集抛出
+
+
+*****
+
+####  寒风夜  
+##### 4830#       发表于 2021-9-15 16:07
+
+
+ 本帖最后由 寒风夜 于 2021-9-15 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759883&amp;ptid=1909972" target="_blank">Jobtownb 发表于 2021-9-15 16:05</a>
+
+你花田哥之前搞南极电子邮件的时候可是哭倒一片人，不过这次还能这么弄吗？ ...</blockquote>。好多设定我还是觉得不  
+
+
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4831#       发表于 2021-9-15 16:11
+
+
+邮件不能复刻，但让大人们努力的桥段可以复刻啊，让理事长和恋妈前队友支棱起来。
+
+恋恋就可以卸下废校的担子去追逐偶像之路了。
+
+算了生放都说gg了，还意淫这干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4832#       发表于 2021-9-15 16:12
+
+
+邮件不能复刻，但让大人们努力的桥段可以复刻啊，让理事长和恋妈前队友支棱起来。
+
+恋恋就可以卸下废校的担子去追逐偶像之路了。
+
+算了生放都说gg了，还意淫这干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4833#       发表于 2021-9-15 16:12
+
+
+邮件不能复刻，但让大人们努力的桥段可以复刻啊，让理事长和恋妈前队友支棱起来。
+
+恋恋就可以卸下废校的担子去追逐偶像之路了。
+
+算了生放都说gg了，还意淫这干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  ads147147  
+##### 4834#       发表于 2021-9-15 16:16
+
+
+我敢说第八集箱子里的是当年老妈穿过的演出服，甚至不会有第二种猜想。
+
+
+花田就是俗，俗到烂的程度，最多是无聊点，炸裂是不可能的。突然理解了痞子在纪录片里说大家做了那么多年的动画，都有自己的流程，但是现在要找突破的心情了。
+
+
+*****
+
+####  寒风夜  
+##### 4835#       发表于 2021-9-15 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760098&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-15 16:16</a>
+
+我敢说第八集箱子里的是当年老妈穿过的演出服，甚至不会有第二种猜想。
+
+
+花田就是俗，俗到烂的程度，最多是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4836#       发表于 2021-9-15 16:21
+
+
+ 本帖最后由 寒风夜 于 2021-9-15 16:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">话说这4-7还不如 水吧
+
+
+*****
+
+####  秋月艾莉  
+##### 4837#       发表于 2021-9-15 16:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">听完一遍，关于第8集的事就开头和结尾提了一下，除了很期待！好在意！快点来！以外好像P都没有
+
+第七话也是随便回顾了一下，吐槽了一下民警惨败啊www然后三人一起表示要我投也选恋之类的，中间全在回顾一单发售live和绘日记趣事，然后就是卖广告
+
+不过我有些地方是跳着听的可能有遗漏，楼友看到那个信源有没有丢确切时间？
+
+
+*****
+
+####  Troy_VoV  
+##### 4838#       发表于 2021-9-15 16:29
+
+
+官方广播特别是这种提前录好的能指望爆啥料啊还是能暗示后面会爆炸的料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 4839#       发表于 2021-9-15 16:29
+
+
+说起来这期裂啦绘还挺草的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+各种意义上
+
+
