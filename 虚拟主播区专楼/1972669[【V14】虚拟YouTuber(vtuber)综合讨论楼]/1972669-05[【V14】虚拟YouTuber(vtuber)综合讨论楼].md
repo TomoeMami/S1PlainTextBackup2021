@@ -13785,3 +13785,15 @@ Lamuril、依音伽音毕业
 绿仙、相羽和弦月的坂道48カラオケ也能听到开闭，偶像厨真好
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7017#       发表于 2021-9-15 20:34
+
+
+开闭...我的开闭...
+syl くりいむ动了啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+

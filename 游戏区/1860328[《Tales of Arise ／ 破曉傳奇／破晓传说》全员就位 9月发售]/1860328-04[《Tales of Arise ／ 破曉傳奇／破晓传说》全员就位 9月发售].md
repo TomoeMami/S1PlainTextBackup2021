@@ -5786,3 +5786,42 @@ toz是36吧
 离开当前地图后10分钟左右刷新。矿的等级刷新的时候就已经决定，但是可以被食物提星，不放心的话可以在火堆那吃个料理。
 
 
+
+
+*****
+
+####  shiko  
+##### 4952#       发表于 2021-9-15 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52762326&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-15 18:59</a>
+
+有说可以留一个小怪，这样boss不会再招，但我没试过，我是用水抗饰品硬顶过去的 ...</blockquote>
+已经打完麻婆了，现在最大的感想就是这原来是个磕药游戏<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  畜男不是人  
+##### 4953#       发表于 2021-9-15 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761790&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-15 05:13</a>
+我靠这游戏是不是有点难啊，15级打泥怪boss，两个法师根本没法读条，一停下就被暴打，林薇儿的打断转的太慢 ...</blockquote>
+我觉得这个小boss比后面那些章节大boss难得多<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魂淡放我出去  
+##### 4954#       发表于 2021-9-15 20:36
+
+
+ 本帖最后由 魂淡放我出去 于 2021-9-15 20:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763660&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-15 20:22</a>
+已经打完麻婆了，现在最大的感想就是这原来是个磕药游戏</blockquote>
+药这种东西，你打人形boss和巨体怪切法师妹子复读低阶魔法就能省下来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还要记得把ai一些时间长的技能关一下，特别是洛，ai生存率就会**提升
+
+
