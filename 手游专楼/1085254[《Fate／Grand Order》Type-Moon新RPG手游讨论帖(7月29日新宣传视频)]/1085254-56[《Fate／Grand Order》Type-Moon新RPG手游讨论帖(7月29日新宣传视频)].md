@@ -14114,3 +14114,49 @@ NGA全在讨论转日服了，以后云玩家的纯度要下降了<img src="http
 fgo终究是个重氪游戏，已经5年了，沉没成本太高回不来确实麻烦。
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83693#       发表于 2021-9-15 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766421&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-15 23:29</a>
+
+这一口气废掉了那么多 吓到我了还有不少还是5星 这波比以前奶光夸张多了
+
+ ...</blockquote>
+就特别喜感
+
+下午楼里还在说迦摩要遭重，结果还没到呢就一发重拳
+
+我还是刷着破晓的时候被群友@出来的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83694#       发表于 2021-9-15 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766421&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-15 23:29</a>
+这一口气废掉了那么多 吓到我了还有不少还是5星 这波比以前奶光夸张多了
+
+ ...</blockquote>
+奶光那个只是p图，这次名字语音全废掉了
+
+
+*****
+
+####  sosgame67  
+##### 83695#       发表于 2021-9-15 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766500&amp;ptid=1085254" target="_blank">飞霞精灵 发表于 2021-9-15 23:36</a>
+
+fgo终究是个重氪游戏，已经5年了，沉没成本太高回不来确实麻烦。</blockquote>
+所以我日服安心无氪了..国服停氪多年，温水煮青蛙这么久了还对b站有期望也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

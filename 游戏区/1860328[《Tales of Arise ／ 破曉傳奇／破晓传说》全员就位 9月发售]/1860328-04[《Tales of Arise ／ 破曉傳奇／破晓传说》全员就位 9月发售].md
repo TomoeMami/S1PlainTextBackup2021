@@ -6029,3 +6029,78 @@ toz是36吧
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  魂淡放我出去  
+##### 4970#       发表于 2021-9-15 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764440&amp;ptid=1860328" target="_blank">lelouchwang 发表于 2021-9-15 21:12</a>
+那头鹿也太强了 四种形态 近身和远程都有秒杀技 防御力又高 砍都砍不动 ...</blockquote>
+那头鹿我觉得算是设计得挺好打的，总共技能就几个，往前冲，向前跳一下再近身aoe，再有一个丢魔法
+
+切法师妹子只要注意一下丢魔法和前冲，复读就行
+男主也可以等ba技打倒直接霸道灭封蓄满打伤害，打完一套就溜它
+
+
+*****
+
+####  法拉  
+##### 4971#       发表于 2021-9-15 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766214&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-9-15 23:12</a>
+
+饰品4个战斗狂能叠加吗？</blockquote>
+应该能
+
+
+*****
+
+####  focus  
+##### 4972#       发表于 2021-9-15 23:59
+
+
+[https://www.bilibili.com/video/BV1TL4y187HE](https://www.bilibili.com/video/BV1TL4y187HE)
+
+
+5个小时肝满魔武器，太爽了。希侬后期唯一神，录了个1血秒杀混沌难度11boss连战。三疾风堪称全游戏最**招数。
+
+
+*****
+
+####  法拉  
+##### 4973#       发表于 2021-9-15 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52765482&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-15 22:17</a>
+
+少年组这糖太甜了，林薇儿各种吃醋
+
+顺便感觉林薇儿也有点喜欢迪奥，有句对白是，希望洛能早点变得和迪奥一 ...</blockquote>
+主要还是因为杜欧哈林改变了雷纳人在她心目中的印象吧
+
+包括后面有一个悼念儿子的支线也是
+
+杜欧哈林表面上看起来不会说话总是踩雷，实际上情商还蛮高的，也算是成熟的大人型角色
+
+
+*****
+
+####  JudgmentEye  
+##### 4974#       发表于 2021-9-16 00:03
+
+
+ 本帖最后由 JudgmentEye 于 2021-9-16 00:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759748&amp;ptid=1860328" target="_blank">魔皇崩裂拳 发表于 2021-9-15 15:56</a>
+
+正在玩，进度较慢。
+
+
+看网上视频，热情传说的艾多拉客串了。</blockquote>
+反白
+艾多拉，tob的艾多拉她哥，tox2的克洛诺斯
+
+
