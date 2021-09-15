@@ -3704,3 +3704,27 @@ Galaxy也太惨了吧 水藻以下的存在<img src="https://static.saraba1st.co
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 4793#       发表于 2021-9-15 08:32
+
+
+反正现在星团第一季的动画基本上做的差不多了，改剧本是不可能的了，要不就是花田有自己的想法后面能圆回来，要不就是犯病，那星团就真的寄了。
+
+
+*****
+
+####  player3960  
+##### 4794#       发表于 2021-9-15 08:46
+
+
+第八话拉胯，直接寄。
+
+第八话不拉胯，但是后续剧情不对人物关系往回找补，继续摆烂玩失忆，还是寄....
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">凶多吉少
+
+

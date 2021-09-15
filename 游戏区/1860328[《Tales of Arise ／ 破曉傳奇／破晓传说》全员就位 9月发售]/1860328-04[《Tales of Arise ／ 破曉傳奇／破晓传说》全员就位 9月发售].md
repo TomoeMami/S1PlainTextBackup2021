@@ -4674,3 +4674,60 @@ SW-IVY+高贵灰烬+恶魔角，黑蕾丝YYDS<img src="https://static.saraba1st.
 我40级跑去触发了年下组支线，找个花冒出个54级的boss，直接把我教做人
 
 
+
+
+*****
+
+####  猫将军  
+##### 4861#       发表于 2021-9-15 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751324&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-15 00:21</a>
+第四章这装备换得好快啊，刚刚在山脚那边打了鹰嘴一类的道具锻造新武器，出门就遇上蜥蜴这些又换了一次武器 ...</blockquote>
+不就是前面boss当杂兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哌啶  
+##### 4862#       发表于 2021-9-15 08:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52752953&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-15 08:07</a>
+
+我40级跑去触发了年下组支线，找个花冒出个54级的boss，直接把我教做人</blockquote>
+我接了个去？？？调查的任务就进了地灵迷宫，直接战斗状态还不准逃跑<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficul  
+##### 4863#       发表于 2021-9-15 08:25
+
+
+<blockquote>猫将军 发表于 2021-9-15 08:21
+不就是前面boss当杂兵</blockquote>
+boss好歹有奖励，这只打完10sp，破防了
+
+
+*****
+
+####  MMIno  
+##### 4864#       发表于 2021-9-15 08:28
+
+
+不行了，这傻逼游戏，我放弃虐待自己了，我把难度调整到最低了
+
+
+*****
+
+####  ♂藤冈豆腐店♂  
+##### 4865#       发表于 2021-9-15 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751411&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-15 00:34</a>
+
+问下白金最麻烦的在哪里？我猜是钓鱼和100级？</blockquote>
+100个武器，相当于基本所有武器都要做了
+
+
