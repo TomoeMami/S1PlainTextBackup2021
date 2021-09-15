@@ -8304,3 +8304,17 @@ image.png
 这集除了化妆其他都挺好的，就是这妆实在是接受不来<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ddy2811  
+##### 2101#       发表于 2021-9-15 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741823&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-9-14 10:39</a>
+
+话说不是在直播，还有两队人是在不同地方是怎么同框变身的而且珊瑚现在就只会说赞成跟可爱了，还有 ...</blockquote>
+所以应该还有哪一集要解决这个问题吧，现在和她入队以前有区别么……
+
+

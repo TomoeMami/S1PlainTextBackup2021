@@ -5725,3 +5725,39 @@ toz是36吧
 我靠这游戏是不是有点难啊，15级打泥怪boss，两个法师根本没法读条，一停下就被暴打，林薇儿的打断转的太慢了，根本管不住boss加上一堆小怪，先杀小怪刚杀完又招一波。。
 
 
+
+
+*****
+
+####  司马千晶  
+##### 4947#       发表于 2021-9-15 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761790&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-15 18:13</a>
+我靠这游戏是不是有点难啊，15级打泥怪boss，两个法师根本没法读条，一停下就被暴打，林薇儿的打断转的太慢 ...</blockquote>
+可以留一两个杂兵，男主专注躲法术找空隙输出boss，单个杂兵咏唱就不值得打断了，在两三个杂兵一起读条时候再用林威尔打断，然后切到林威尔，反手就是一个洗衣机清屏，这场思路比较清晰的话，杂兵是自己人。
+
+
+*****
+
+####  魂淡放我出去  
+##### 4948#       发表于 2021-9-15 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761790&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-15 18:13</a>
+我靠这游戏是不是有点难啊，15级打泥怪boss，两个法师根本没法读条，一停下就被暴打，林薇儿的打断转的太慢 ...</blockquote>
+有说可以留一个小怪，这样boss不会再招，但我没试过，我是用水抗饰品硬顶过去的
+
+
+*****
+
+####  PureWaltz  
+##### 4949#       发表于 2021-9-15 19:00
+
+
+解锁OP2了，歌很好听，看样子后面男女主还会解锁新的外观<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+感觉动画里的人物尤其是女角色比游戏里好看不少，游戏里女角色的脸有一点男人味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
