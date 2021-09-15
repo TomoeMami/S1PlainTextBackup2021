@@ -3871,3 +3871,25 @@ LL监督不但不拉住花田，反而陪他一起放飞甚至飞得更远，实
 live放到第9话的话得26号才放出，然而插入曲2在29号就要发售了。第8话还有生放，怕不是下一集就解决恋+live了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4807#       发表于 2021-9-15 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754584&amp;ptid=1909972" target="_blank">蜜梨柑 发表于 2021-9-15 10:26</a>
+live放到第9话的话得26号才放出，然而插入曲2在29号就要发售了。第8话还有生放，怕不是下一集就解决恋+live ...</blockquote>
+op也是这样，动画首次播没几天就发售了，正常。
+
+
+*****
+
+####  寒风夜  
+##### 4808#       发表于 2021-9-15 10:30
+
+
+药丸
+
+
