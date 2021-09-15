@@ -14257,3 +14257,14 @@ fgo日服也想过玩啊，你让我从一堆2星3星卡无拐无礼装，宝石
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这仇伽摩语音给我听笑了,tm还是™的tm
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83705#       发表于 2021-9-16 06:56
+
+
+一觉起来才知道，这国服有点狠呀<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
