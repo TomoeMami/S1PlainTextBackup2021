@@ -143,3 +143,16 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是专属啊，60级人，近远手脚一套分别是60 50 60 40级，到靶场按技能是跳3个6k。还是说参照物不对吗
 
 
+
+
+*****
+
+####  蕾丝  
+##### 6012#       发表于 2021-9-15 11:40
+
+
+小寡妇就连专武都辣么涩……第一次这么有动力肝一个角色的专武
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
