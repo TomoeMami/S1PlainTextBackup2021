@@ -5301,3 +5301,111 @@ toz是36吧
 交了钱难道不应该和TOX一样的39吗……
 
 
+
+
+*****
+
+####  cube  
+##### 4914#       发表于 2021-9-15 15:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757869&amp;ptid=1860328" target="_blank">hallowilliam 发表于 2021-9-15 13:51</a>
+
+所以还是想问问这作AI技能怎么设置，ai到底聪不聪明，需不需要把逆属性的技能都取消 ...</blockquote>
+如果你打的是普通难度，不需要，这作的战斗相对友好，只要装备更新及时技能盘点的勤快，半手动就行了，甚至不用切人打。
+
+
+*****
+
+####  cube  
+##### 4915#       发表于 2021-9-15 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759055&amp;ptid=1860328" target="_blank">hallowilliam 发表于 2021-9-15 15:07</a>
+
+刚打完第三章，这黑皮领主是该怎么用，怎么我去打训练场如此刮痧。。。</blockquote>
+训练场最简单的推荐等级都是30级，而你刚打完第三章那个等级、装备和技能水平，就是这么刮痧...
+
+
+*****
+
+####  hallowilliam  
+##### 4916#       发表于 2021-9-15 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759298&amp;ptid=1860328" target="_blank">cube 发表于 2021-9-15 15:25</a>
+
+训练场最简单的推荐等级都是30级，而你刚打完第三章那个等级、装备和技能水平，就是这么刮痧... ...</blockquote>
+没啊，推荐等级是20和25啊，我看其他角色就挺好打的。。。
+
+
+*****
+
+####  hallowilliam  
+##### 4917#       发表于 2021-9-15 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759266&amp;ptid=1860328" target="_blank">cube 发表于 2021-9-15 15:24</a>
+
+如果你打的是普通难度，不需要，这作的战斗相对友好，只要装备更新及时技能盘点的勤快，半手动就行了，甚 ...</blockquote>
+打的次级。。。难度到没觉得很夸张，就是好奇AI队友能做到什么程度。。。
+
+
+*****
+
+####  燃烧的石头  
+##### 4918#       发表于 2021-9-15 15:30
+
+
+<blockquote>hallowilliam 发表于 2021-9-15 15:28
+没啊，推荐等级是20和25啊，我看其他角色就挺好打的。。。</blockquote>
+招式太少了吧，根本连不起来，就那几招打起来很痛苦
+
+
+*****
+
+####  cube  
+##### 4919#       发表于 2021-9-15 15:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759351&amp;ptid=1860328" target="_blank">hallowilliam 发表于 2021-9-15 15:29</a>
+
+打的次级。。。难度到没觉得很夸张，就是好奇AI队友能做到什么程度。。。 ...</blockquote>
+次级你等级装备跟得上的话，切成全自动普通战斗AI基本能自己帮你打完的程度，不过困难难度开始要考虑配装和技能克制了。
+
+
+*****
+
+####  hallowilliam  
+##### 4920#       发表于 2021-9-15 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759423&amp;ptid=1860328" target="_blank">cube 发表于 2021-9-15 15:33</a>
+
+次级你等级装备跟得上的话，切成全自动普通战斗AI基本能自己帮你打完的程度，不过困难难度开始要考虑配装 ...</blockquote>
+。。。这我知道，毕竟目前也没卡过，但我只是想问，ai能不能自己知道属性克制，还是你不勾选的话完全就是乱放技能。。。。
+
+
+
+
+*****
+
+####  hallowilliam  
+##### 4921#       发表于 2021-9-15 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759370&amp;ptid=1860328" target="_blank">燃烧的石头 发表于 2021-9-15 15:30</a>
+
+招式太少了吧，根本连不起来，就那几招打起来很痛苦</blockquote>
+就感觉用啥都没伤害，棍法刮痧，法术咏唱还长，因为推荐20级我25想着就先练练这角色怎么玩，结果试了半天也没啥结果。。。难道就是个近战奶妈？
+
+
+*****
+
+####  天堂蜘蛛  
+##### 4922#       发表于 2021-9-15 15:47
+
+
+有大佬能推荐一下队友技能都该勾些啥么<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
