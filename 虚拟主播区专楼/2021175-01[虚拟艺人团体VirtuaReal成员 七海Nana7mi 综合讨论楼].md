@@ -2539,3 +2539,25 @@ B站评论区只说了otto，我也不知道哈 sry
 有无棍鲨小团体？速速拉我
 
 
+
+
+*****
+
+####  DKD  
+##### 212#       发表于 2021-9-15 16:23
+
+
+棍鲨两边都明确排斥啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电磁炮233  
+##### 213#       发表于 2021-9-15 16:36
+
+
+虽然排斥，但只要还有热度还有佬佬佬送钱，两边都不会铁下心切割吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

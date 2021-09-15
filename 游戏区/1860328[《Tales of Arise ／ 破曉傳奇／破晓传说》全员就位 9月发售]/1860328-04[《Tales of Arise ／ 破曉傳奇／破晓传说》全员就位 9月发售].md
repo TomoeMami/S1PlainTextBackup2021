@@ -5512,3 +5512,102 @@ toz是36吧
 合体技有属性吗？我都不知道，我知道必杀是有属性的。
 
 
+
+
+*****
+
+####  hotsmile  
+##### 4930#       发表于 2021-9-15 16:34
+
+
+饰品词条怎样配比较好？说真的，HARD打到通关都没弄饰品，除了打特定BOSS，主角幸运护符一直带到结尾，
+
+是用15%攻击还是50%消耗减半？下面词条选攻击和倒地伤害加成 ？
+
+
+*****
+
+####  bm7号  
+##### 4931#       发表于 2021-9-15 16:34
+
+
+满级全宝箱全小剧场了，技能盘没满，试了下混沌难度时停boss也随便打。
+
+普通难度全程不练级做完全支线之后92级，再打几次时停boss就满级了。
+
+没什么亮点，可能只有没有to be continue和跳瀑布，jrpg还得看我地雷社。
+
+
+*****
+
+####  cube  
+##### 4932#       发表于 2021-9-15 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760253&amp;ptid=1860328" target="_blank">hallowilliam 发表于 2021-9-15 16:26</a>
+
+合体技有属性吗？我都不知道，我知道必杀是有属性的。</blockquote>
+有的，比如琳薇尔、女主这俩和盾妹的合体技属性都是冰。
+
+
+*****
+
+####  cube  
+##### 4933#       发表于 2021-9-15 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760353&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-9-15 16:34</a>
+
+饰品词条怎样配比较好？说真的，HARD打到通关都没弄饰品，除了打特定BOSS，主角幸运护符一直带到结尾，
+
+是 ...</blockquote>
+按你感觉舒服的来，第五章开始会开放词条复制功能，你可以随意搭配你想要的属性（不过需要先把饰品强满）。
+
+
+主玩的角色用消耗减半的饰品更舒服一些，尤其是打竞技场的时候，所有的饰品你后面都能捡到高等级的石头迭代升级，不过我通关了也只给我出了4级的消耗减半石头。
+
+
+*****
+
+####  言嘉  
+##### 4934#       发表于 2021-9-15 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760353&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-9-15 16:34</a>
+
+饰品词条怎样配比较好？说真的，HARD打到通关都没弄饰品，除了打特定BOSS，主角幸运护符一直带到结尾，
+
+是 ...</blockquote>
+推荐两个近战特别是男主用自动复活（
+
+
+*****
+
+####  cube  
+##### 4935#       发表于 2021-9-15 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760458&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-15 16:41</a>
+
+推荐两个近战特别是男主用自动复活（</blockquote>
+熟练使用精准闪避的话，其实男主暴毙率没那么高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+但是洛如果你让AI控制他的话，上个复活石头还是很好用的...太脆了
+
+
+*****
+
+####  言嘉  
+##### 4936#       发表于 2021-9-15 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760487&amp;ptid=1860328" target="_blank">cube 发表于 2021-9-15 16:43</a>
+
+熟练使用精准闪避的话，其实男主暴毙率没那么高了
+
+
+但是洛如果你让AI控制他的话，上个复活石头还 ...</blockquote>
+男主自动时掉血太离谱，本来就容易吃技能还自带烧灼DEBUFF，手控还好，自动是真打不了消耗战……
+
+

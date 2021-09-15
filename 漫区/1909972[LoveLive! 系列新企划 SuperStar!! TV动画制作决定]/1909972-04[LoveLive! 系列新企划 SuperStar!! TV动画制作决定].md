@@ -4275,3 +4275,55 @@ op也是这样，动画首次播没几天就发售了，正常。
 各种意义上
 
 
+
+
+*****
+
+####  player3960  
+##### 4840#       发表于 2021-9-15 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760241&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-15 16:25</a>
+
+听完一遍，关于第8集的事就开头和结尾提了一下，除了很期待！好在意！快点来！以外好像P都没有
+
+第七 ...</blockquote>
+不知道说的是不是这个人的发言，微博名一藏羚羊一，如果不是就算了，感觉也没说啥...
+
+
+*****
+
+####  秋月艾莉  
+##### 4841#       发表于 2021-9-15 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760335&amp;ptid=1909972" target="_blank">player3960 发表于 2021-9-15 16:32</a>
+
+不知道说的是不是这个人的发言，微博名一藏羚羊一，如果不是就算了，感觉也没说啥... ...</blockquote>
+不是这人吧，她一也说据说，二也没说寄
+
+就算漏了点剧情也不会这么快就能判断寄了吧，感觉是哪里瞎说瞎传的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  megapikachu  
+##### 4842#       发表于 2021-9-15 16:42
+
+
+开头一个“据说”，后面来一个“下午去听一下”，考虑是时间是13:15，所以应该是还没听。人家去年as21章搞假剧透，最起码弄了一堆细节让一群sb高潮了半个上午呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+Screenshot_20210915_163635_com.sina.weibo_edit_1405468411792832.jpg
+(84.16 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-15 16:39 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/15/163907bzzbw1cptlp966lb.jpg" referrerpolicy="no-referrer">
+
+
