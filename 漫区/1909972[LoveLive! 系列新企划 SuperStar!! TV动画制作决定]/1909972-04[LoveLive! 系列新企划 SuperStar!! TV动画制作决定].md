@@ -3755,3 +3755,25 @@ LL监督不但不拉住花田，反而陪他一起放飞甚至飞得更远，实
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">星团也是有点生不逢时，生放现在也不能放开玩，LIVE一直是线上，面对面宣传几乎没有，动画再拉跨真的有点担心
 
 
+
+
+*****
+
+####  Norkey1  
+##### 4797#       发表于 2021-9-15 09:16
+
+
+不犯病就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hummysiren  
+##### 4798#       发表于 2021-9-15 09:18
+
+
+忘名字的桥段也不是没见过，但小千这段感觉就是非常不自然缺少了种做作感，结果就是没把人逗笑还连日本人都以为小千真忘了
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
