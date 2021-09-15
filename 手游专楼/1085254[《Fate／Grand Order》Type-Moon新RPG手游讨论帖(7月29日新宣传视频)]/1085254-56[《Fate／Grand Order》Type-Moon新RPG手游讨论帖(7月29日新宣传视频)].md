@@ -13802,3 +13802,53 @@ BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有证据怀疑你炼铜
 
 
+
+
+*****
+
+####  khxooo  
+##### 83666#       发表于 2021-9-15 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761460&amp;ptid=1085254" target="_blank">シャル 发表于 2021-9-15 17:46</a>
+
+看楼上大家
+
+
+这夹馍简直就是送啊</blockquote>
+在，给个伽摩？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 83667#       发表于 2021-9-15 18:03
+
+
+看来就我是非洲人了，3单没出，泳装总计5单啥都没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83668#       发表于 2021-9-15 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761203&amp;ptid=1085254" target="_blank">阿提拉 发表于 2021-9-15 17:28</a>
+
+一单只有两个4星，补一单3个夹馍，还行。可惜五星礼装开不了图鉴只能去蹭了
+
+
+顺便夹馍这个泳装满破 ...</blockquote>
+二期卡池BGO可以全部枪毙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 83669#       发表于 2021-9-15 18:14
+
+
+这破游戏出货就不能正常点吗？一池12发11连4宝总司，后面到20发11连一个5星都没有。二池前25发11连一个5星都没有，后面4发11连每发1个还2连彩光（虽然歪了一个妖僧）。30发11连3泡馍5阿清4沸羊羊，除开出货曲线刺激了点还算是不错的战绩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
