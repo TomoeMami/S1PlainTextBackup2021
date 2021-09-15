@@ -6213,3 +6213,40 @@ https://www.bilibili.com/video/BV1TL4y187HE
 药也太贵了，传说系列没见过这么贵的果冻，打个boss吃了好几千的药，攒了一章的钱还不够那点药的
 
 
+
+
+*****
+
+####  focus  
+##### 4982#       发表于 2021-9-16 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766977&amp;ptid=1860328" target="_blank">信长的呕吐 发表于 2021-9-16 00:18</a>
+
+这次魔武器上限多少？</blockquote>
+9999啊
+
+
+*****
+
+####  reficul  
+##### 4983#       发表于 2021-9-16 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767010&amp;ptid=1860328" target="_blank">TriSPD 发表于 2021-9-16 00:21</a>
+
+药也太贵了，传说系列没见过这么贵的果冻，打个boss吃了好几千的药，攒了一章的钱还不够那点药的 ...</blockquote>
+去打铠甲士兵，有银狗牌也有魔力块，算是目前我看到的最贵的素材了。打到第四章，一口气刷了10w
+
+
+*****
+
+####  市松椿  
+##### 4984#       发表于 2021-9-16 00:38
+
+
+ 本帖最后由 市松椿 于 2021-9-16 00:44 编辑 
+
+这游戏中后期最关键的道具是黑皮个人修炼给的双向100％增伤文物吧，游戏体验直接上升一个台阶，再也不刮痧了
+
+

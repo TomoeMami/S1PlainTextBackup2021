@@ -13752,3 +13752,14 @@ YouTube既然这样不如下次开个Twitcast的号吧
 我不能接受……<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Nitro901  
+##### 13171#       发表于 2021-9-16 00:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">才看到今天本来要开台，错过了，但完全没错过
+
+

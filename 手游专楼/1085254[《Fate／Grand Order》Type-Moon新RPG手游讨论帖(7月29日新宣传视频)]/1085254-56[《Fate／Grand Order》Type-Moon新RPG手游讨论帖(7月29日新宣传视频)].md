@@ -14160,3 +14160,18 @@ fgo终究是个重氪游戏，已经5年了，沉没成本太高回不来确实�
 所以我日服安心无氪了..国服停氪多年，温水煮青蛙这么久了还对b站有期望也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  白夜羽  
+##### 83696#       发表于 2021-9-16 00:30
+
+
+ 本帖最后由 白夜羽 于 2021-9-16 00:31 编辑 
+
+所以说有外服可选的情况下玩国服真的不是一个好选择<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">前车之鉴不少了，这肯定不会是最后一次
+
+尤其肥狗甚至都不需要翻墙，直接就可以玩
+
+
