@@ -3939,3 +3939,38 @@ op也是这样，动画首次播没几天就发售了，正常。
 是不是还有我要吹爆田中仁jpg。
 
 
+
+
+*****
+
+####  笋狐  
+##### 4812#       发表于 2021-9-15 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52755967&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-15 11:52</a>
+
+是不是还有我要吹爆田中仁jpg。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别，人家现在手上握着AS那阴间玩意儿改动画的重大使命，瞎jb奶出了问题是要向全体拉拉人谢罪的（
+
+
+*****
+
+####  寒风夜  
+##### 4813#       发表于 2021-9-15 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52756450&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-15 12:18</a>
+
+别，人家现在手上握着AS那阴间玩意儿改动画的重大使命，瞎jb奶出了问题是要向全体拉拉人谢罪的（ ...</blockquote>
+前路坎坷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 4814#       发表于 2021-9-15 12:21
+
+
+三次元入坑的我只希望别反噬到真人了，本来因为疫情影响这个企划已经进行得足够艰难了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

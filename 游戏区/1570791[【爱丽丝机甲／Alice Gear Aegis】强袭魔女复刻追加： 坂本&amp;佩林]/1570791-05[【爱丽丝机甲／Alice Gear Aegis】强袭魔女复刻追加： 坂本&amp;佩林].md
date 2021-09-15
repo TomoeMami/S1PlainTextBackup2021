@@ -174,3 +174,20 @@
 4星步枪是短时间就能4发蓄力满，打出4发爆风弹，而且有高威胁值，能射到VW不敢冲的。3星性能我没注意。如果手伤害差得比较多的话……看自己平时立回风格吧，偏向步枪还是有弹数限制但高伤的手。
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6014#       发表于 2021-9-15 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52755741&amp;ptid=1570791" target="_blank">蕾丝 发表于 2021-9-15 11:40</a>
+
+小寡妇就连专武都辣么涩……第一次这么有动力肝一个角色的专武
+
+
+—— 来自 OnePlus KB2000, Android 11上的 ...</blockquote>
+后部装甲放浮游炮时开口的位置<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
