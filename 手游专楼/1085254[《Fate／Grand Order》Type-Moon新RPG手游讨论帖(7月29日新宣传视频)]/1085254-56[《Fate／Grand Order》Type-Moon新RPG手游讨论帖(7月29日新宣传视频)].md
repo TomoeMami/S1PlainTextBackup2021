@@ -13351,3 +13351,38 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 而且皇女就是缺这么一段力度足够的描写<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83630#       发表于 2021-9-15 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754714&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-9-15 10:34</a>
+
+铁球佬微博下面突然冒出来一堆说腻了ML的，挺搞笑的，这次泳装这几个又不是突然冒出来的，要喷也回头喷2.6 ...</blockquote>
+有一说一，剧情里ml和个人空间ml是两码事，个人空间ml某种程度上算是你抽到后给的专属剧情，但活动/主线剧情里ml就是另一回事了
+
+
+*****
+
+####  alucardcz  
+##### 83631#       发表于 2021-9-15 13:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天出2期？
+
+
+*****
+
+####  areklose  
+##### 83632#       发表于 2021-9-15 13:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757927&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-15 13:55</a>
+
+今天出2期？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你是不是准备15石头五宝
+
+

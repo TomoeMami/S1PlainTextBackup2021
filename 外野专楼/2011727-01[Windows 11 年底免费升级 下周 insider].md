@@ -7008,3 +7008,17 @@ Best Windows 11 Start Menu Made by Google</blockquote>
 这是 chrome OS？
 
 
+
+
+*****
+
+####  colodes  
+##### 576#       发表于 2021-9-15 13:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757476&amp;ptid=2011727" target="_blank">Heliko 发表于 2021-9-15 13:26</a>
+
+这是 chrome OS？</blockquote>
+恩，也是测试版(94ver)，本来是半屏或全屏开始菜单的
+
+
