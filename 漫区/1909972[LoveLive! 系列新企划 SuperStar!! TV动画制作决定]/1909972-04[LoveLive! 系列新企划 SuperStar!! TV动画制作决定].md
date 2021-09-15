@@ -3728,3 +3728,30 @@ Galaxy也太惨了吧 水藻以下的存在<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">凶多吉少
 
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4795#       发表于 2021-9-15 08:58
+
+
+花田的间断性放飞自我，得有个优秀的监督来拉住啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+小南极好评如潮，不也有暴风雨出舱的这种蜜汁操作？
+
+
+LL监督不但不拉住花田，反而陪他一起放飞甚至飞得更远，实在无法理解。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  lj205  
+##### 4796#       发表于 2021-9-15 08:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">星团也是有点生不逢时，生放现在也不能放开玩，LIVE一直是线上，面对面宣传几乎没有，动画再拉跨真的有点担心
+
+

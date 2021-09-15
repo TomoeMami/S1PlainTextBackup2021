@@ -1354,3 +1354,44 @@ Toar卖相挺好的，不管是对比自己的传说系列还是对比这两年�
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  farseer123  
+##### 100#       发表于 2021-9-15 08:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52749643&amp;ptid=2026260" target="_blank">zpower 发表于 2021-9-14 21:45</a>
+
+我喜欢玩JRPG,但CRPG玩不来。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">crpg的受众远比jrpg小众
+
+
+*****
+
+####  yangkaim4  
+##### 101#       发表于 2021-9-15 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742520&amp;ptid=2026260" target="_blank">trentswd 发表于 2021-9-14 11:24</a>
+
+正义之怒很好，是最近几年难得能让我玩完发现天亮了的游戏
+
+
+就是销量不怎么好看</blockquote>
+首周25W很强拉，成本已经回来了，crpg都是长卖型，赚钱的日子还长。
+
+
+*****
+
+####  yangkaim4  
+##### 102#       发表于 2021-9-15 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742747&amp;ptid=2026260" target="_blank">茛菪 发表于 2021-9-14 11:39</a>
+
+Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说直男那边又能泡大小姐又能泡女王的，直女怎么就给 ...</blockquote>
+蓝恩这种男人多好啊，有一个精品就够了，女NPC那边各个都是问题人士。
+
+
