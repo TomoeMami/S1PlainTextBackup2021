@@ -6104,3 +6104,112 @@ toz是36吧
 艾多拉，tob的艾多拉她哥，tox2的克洛诺斯
 
 
+
+
+*****
+
+####  古留  
+##### 4975#       发表于 2021-9-16 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764322&amp;ptid=1860328" target="_blank">urvark 发表于 2021-9-15 21:05</a>
+
+请问要如何禁止队友使用秘奥义？秘奥义播片会自动打断连击计数，这也太蠢了，谁想出来的设计，纯粹就为了恶 ...</blockquote>
+队友还能放秘奥义的？
+
+我到现在就发现洛动不动爆气，开了自动能出狼影脚
+
+其他人基本上死都不进极限状态
+
+
+远程的两个女角色就更别提了
+
+
+*****
+
+####  真田源次郎信繁  
+##### 4976#       发表于 2021-9-16 00:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763660&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-15 20:22</a>
+
+已经打完麻婆了，现在最大的感想就是这原来是个磕药游戏</blockquote>
+打麻婆之前我都不知道战斗里能吃药<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  urvark  
+##### 4977#       发表于 2021-9-16 00:18
+
+
+ 本帖最后由 urvark 于 2021-9-16 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766914&amp;ptid=1860328" target="_blank">古留 发表于 2021-9-16 00:13</a>
+
+队友还能放秘奥义的？
+
+我到现在就发现洛动不动爆气，开了自动能出狼影脚
+
+其他人基本上死都不进极限状态</blockquote>
+能啊，能爆气就能放秘奥义
+
+
+不过这些完全不可控，啥时爆气随机，爆了后放不放秘奥义也随机，但按我的经验看，爆后大概率是会放的，你如果没见过，不妨把技能里那几个提高进入OVL状态概率的加出来
+
+
+多挨打会增加爆气概率，你说你发现洛经常爆气，两个远程女不爆，证明你自己用的是另一个肉搏主角，那就很好理解了……我是主控伏露露，两个肉搏经常爆气，女主确实很少爆
+
+
+*****
+
+####  法拉  
+##### 4978#       发表于 2021-9-16 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766914&amp;ptid=1860328" target="_blank">古留 发表于 2021-9-16 00:13</a>
+
+队友还能放秘奥义的？
+
+我到现在就发现洛动不动爆气，开了自动能出狼影脚
+
+其他人基本上死都不进极限状态</blockquote>
+琪莎兰也经常爆ovl的，因为容易挨打
+
+
+*****
+
+####  信长的呕吐  
+##### 4979#       发表于 2021-9-16 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766759&amp;ptid=1860328" target="_blank">focus 发表于 2021-9-15 23:59</a>
+https://www.bilibili.com/video/BV1TL4y187HE
+
+
+5个小时肝满魔武器，太爽了。希侬后期唯一神，录了个1血秒 ...</blockquote>
+这次魔武器上限多少？
+
+
+*****
+
+####  alucardcz  
+##### 4980#       发表于 2021-9-16 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766928&amp;ptid=1860328" target="_blank">真田源次郎信繁 发表于 2021-9-16 00:14</a>
+
+打麻婆之前我都不知道战斗里能吃药</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不知道没关系ai说不定已经帮你自动用掉了不少（
+
+
+
+
+*****
+
+####  TriSPD  
+##### 4981#       发表于 2021-9-16 00:21
+
+
+药也太贵了，传说系列没见过这么贵的果冻，打个boss吃了好几千的药，攒了一章的钱还不够那点药的
+
+

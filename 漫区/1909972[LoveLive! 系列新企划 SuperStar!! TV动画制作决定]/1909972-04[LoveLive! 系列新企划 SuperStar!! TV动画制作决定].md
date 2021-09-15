@@ -5204,3 +5204,17 @@ TVアニメ『ラブライブ！スーパースター!!』特別パート
 明显早就录完了啊，又不是这话后录的
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 4918#       发表于 2021-9-16 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52766569&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-15 23:41</a>
+
+明显早就录完了啊，又不是这话后录的</blockquote>
+我说的是今天的生放送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
