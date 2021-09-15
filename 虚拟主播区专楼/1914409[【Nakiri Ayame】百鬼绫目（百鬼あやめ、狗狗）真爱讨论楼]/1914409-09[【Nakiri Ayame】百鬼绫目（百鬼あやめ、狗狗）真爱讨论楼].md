@@ -13681,3 +13681,14 @@ Subaru好惨
 绫总，我的冷笑话大师
 
 
+
+
+*****
+
+####  stedckk  
+##### 13165#       发表于 2021-9-15 18:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">直播没几次，整天喊累的也就绫总一个了
+
+

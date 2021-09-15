@@ -13852,3 +13852,14 @@ BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1
 这破游戏出货就不能正常点吗？一池12发11连4宝总司，后面到20发11连一个5星都没有。二池前25发11连一个5星都没有，后面4发11连每发1个还2连彩光（虽然歪了一个妖僧）。30发11连3泡馍5阿清4沸羊羊，除开出货曲线刺激了点还算是不错的战绩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zore  
+##### 83670#       发表于 2021-9-15 18:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个紧身衣和印度涂装是灵衣吗
+
+
