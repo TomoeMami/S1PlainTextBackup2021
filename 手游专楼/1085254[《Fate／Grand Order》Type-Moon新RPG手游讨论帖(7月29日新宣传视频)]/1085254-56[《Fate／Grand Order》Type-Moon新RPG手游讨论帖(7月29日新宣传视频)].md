@@ -13982,3 +13982,70 @@ BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1
 批斗的脑子不正常
 
 
+
+
+*****
+
+####  qixinno2  
+##### 83681#       发表于 2021-9-15 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">我又是抽不到的那个 好惨
+
+
+*****
+
+####  里村紅葉  
+##### 83682#       发表于 2021-9-15 22:43
+
+
+代充排队100多个人，太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  承尘  
+##### 83683#       发表于 2021-9-15 22:48
+
+
+只出了一个，歪了贞德和pp枪，真是吐了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千叶铁矢  
+##### 83684#       发表于 2021-9-15 22:49
+
+
+卧槽，喂了一个102才发现这狗粮也吃太多了吧，比98-100吃的多太多了，一点心理准备都没有<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 83685#       发表于 2021-9-15 22:54
+
+
+NGA全在讨论转日服了，以后云玩家的纯度要下降了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83686#       发表于 2021-9-15 22:55
+
+
+国服这和谐，真就是bgo早死早超生
+可以等一批转生玩家了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 83687#       发表于 2021-9-15 22:59
+
+
+国服早关了算了，可以少很多云玩家，我本来以为国内剧本写不好是水平关系，现在我觉得是被国内观众这种二极管思维给倒逼出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
