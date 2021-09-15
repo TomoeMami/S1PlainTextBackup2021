@@ -5198,3 +5198,64 @@ TOGF 37</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个就没办法了，技术力问题
 
 
+
+
+*****
+
+####  asclepiusz  
+##### 4905#       发表于 2021-9-15 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52746951&amp;ptid=1860328" target="_blank">Zhangsmallquan 发表于 2021-9-14 17:43</a>
+
+我是pc ssd，秒读但是完全没必要，体验还是很割裂。另外我想说的重点是比起读取更难受的是小地图也割裂， ...</blockquote>
+你玩过高低差复杂的游戏就知道这种地图真的很人性化了……
+
+现实里比如重庆，你看电子地图根本看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asclepiusz  
+##### 4906#       发表于 2021-9-15 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747030&amp;ptid=1860328" target="_blank">lucky95 发表于 2021-9-14 17:52</a>
+
+980pro也要花几秒来读，有人已经发现这是loading欺诈，读取怎样快都要黑屏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 4907#       发表于 2021-9-15 14:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打巨大怪和boss换成琳薇尔后体验好了很多  但是基本都是读弱点魔法接ba读魔法接ba读魔法接ba读魔法接ba读魔法  总感觉哪里不对劲
+
+
+话说这大魔法一丢基本什么都看不见了  
+
+
+*****
+
+####  angela5d30  
+##### 4908#       发表于 2021-9-15 14:35
+
+
+好的，谢谢。看来这以后我得每路过篝火就休息一次了，以前大概率都是去城市才睡一觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 4909#       发表于 2021-9-15 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757936&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-15 13:55</a>
+
+这……每个人的对话有几次啊，我之前还雨露均沾想着都刷满呢，现在一看简直就是个大纱布 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更正下是游戏时间1小时 关机1小时后上线是不行的 只能挂机
+
+

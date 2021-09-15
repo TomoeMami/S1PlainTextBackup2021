@@ -4007,3 +4007,58 @@ op也是这样，动画首次播没几天就发售了，正常。
 希望今晚生放多整点阳间活
 
 
+
+
+*****
+
+####  sjbssd  
+##### 4818#       发表于 2021-9-15 14:27
+
+
+唉，欺负堇没粉丝，堇都哭了也没人关心一下的
+
+
+*****
+
+####  lj205  
+##### 4819#       发表于 2021-9-15 14:34
+
+
+悲报，看微博上说昨晚广播透了点剧情，看来可以提前盖印GG了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4820#       发表于 2021-9-15 14:38
+
+
+ 本帖最后由 寒风夜 于 2021-9-15 14:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758572&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-15 14:34</a>
+
+悲报，看微博上说昨晚广播透了点剧情，看来可以提前盖印GG了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4821#       发表于 2021-9-15 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758572&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-15 14:34</a>
+
+悲报，看微博上说昨晚广播透了点剧情，看来可以提前盖印GG了</blockquote>
+
+
+*****
+
+####  JustW  
+##### 4822#       发表于 2021-9-15 14:40
+
+
+<blockquote>lj205 发表于 2021-9-15 14:34
+悲报，看微博上说昨晚广播透了点剧情，看来可以提前盖印GG了</blockquote>
+什么内容啊
+
+

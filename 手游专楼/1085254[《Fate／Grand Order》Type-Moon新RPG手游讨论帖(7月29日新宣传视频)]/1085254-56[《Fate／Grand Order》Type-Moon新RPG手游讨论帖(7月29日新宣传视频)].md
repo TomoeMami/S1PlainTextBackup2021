@@ -13397,3 +13397,65 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 ML个啥啊，每个都只能配合他们做做戏而已，真敢下手你有几条命都不够，咕哒简直就是模范租借恋人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cckuku  
+##### 83634#       发表于 2021-9-15 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757787&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-15 13:47</a>
+ 有一说一，剧情里ml和个人空间ml是两码事，个人空间ml某种程度上算是你抽到后给的专属剧情，但活动/主线 ...</blockquote>
+典型例子就是2.6的各个ml系角色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83635#       发表于 2021-9-15 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758009&amp;ptid=1085254" target="_blank">areklose 发表于 2021-9-15 13:59</a>
+
+你是不是准备15石头五宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 这次一共有55石!
+
+
+*****
+
+####  zakki  
+##### 83636#       发表于 2021-9-15 14:36
+
+
+ 本帖最后由 zakki 于 2021-9-15 14:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758499&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-9-15 14:29</a>
+
+典型例子就是2.6的各个ml系角色</blockquote>
+个人空间里ml的太多了，2.6的一帮子是，还有很多，什么帝王花，刑部姬，泳装的一大堆等等
+
+
+*****
+
+####  zakki  
+##### 83637#       发表于 2021-9-15 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758539&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-15 14:31</a>
+
+不 这次一共有55石!</blockquote>
+为什么你们还攒的下石头，我现在已经一颗不剩了，下午连抽一发都抽不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83638#       发表于 2021-9-15 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758621&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-15 14:37</a>
+
+为什么你们还攒的下石头，我现在已经一颗不剩了，下午连抽一发都抽不了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第1个池太拉我没抽啊
+
+
