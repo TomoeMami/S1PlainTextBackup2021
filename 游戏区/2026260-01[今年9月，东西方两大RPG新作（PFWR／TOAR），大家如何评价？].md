@@ -1395,3 +1395,38 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 蓝恩这种男人多好啊，有一个精品就够了，女NPC那边各个都是问题人士。
 
 
+
+
+*****
+
+####  升职加薪  
+##### 103#       发表于 2021-9-15 09:54
+
+
+前几天群里还有人问，龙腾23为啥要做那种大图标，为啥要动作化，为啥键鼠那么别扭，因为传统crpg不好卖啊。。。
+
+
+*****
+
+####  Rinne70  
+##### 104#       发表于 2021-9-15 10:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742747&amp;ptid=2026260" target="_blank">茛菪 发表于 2021-9-14 11:39</a>
+
+Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说直男那边又能泡大小姐又能泡女王的，直女怎么就给 ...</blockquote>
+其实我觉着沃尔吉夫就像从乙女游戏里走出来的男角色一样，提夫林长得也很有风味，居然没有感情线吗。。
+
+
+*****
+
+####  bad_alloc  
+##### 105#       发表于 2021-9-15 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737897&amp;ptid=2026260" target="_blank">qty 发表于 2021-9-13 22:33</a>
+
+这作正义之怒内容量怎么样？一周目通关时间和神界原罪2比是长是短？还是有点想玩的，不过最近感觉自己精力 ...</blockquote>
+我玩了70多小时，才玩到第三章开头，一张大的剧情地图清四五个小时是常态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
