@@ -5409,3 +5409,67 @@ toz是36吧
 有大佬能推荐一下队友技能都该勾些啥么<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cube  
+##### 4923#       发表于 2021-9-15 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759527&amp;ptid=1860328" target="_blank">hallowilliam 发表于 2021-9-15 15:41</a>
+
+。。。这我知道，毕竟目前也没卡过，但我只是想问，ai能不能自己知道属性克制，还是你不勾选的话完全就是 ...</blockquote>
+目前我的体感是AI有一定的智能选择，他不一定会放属性克制的，但是会避免放被逆克制的技能。
+
+
+有个问题是合体技，这个放的时候不会给你自动选属性克制的，貌似是纯随机搭配...
+
+
+*****
+
+####  魔皇崩裂拳  
+##### 4924#       发表于 2021-9-15 15:56
+
+
+ 本帖最后由 魔皇崩裂拳 于 2021-9-15 15:59 编辑 
+
+正在玩，进度较慢。
+
+
+看网上视频，热情传说的艾多拉客串了。
+
+
+总共有哪些客串人物？
+
+
+*****
+
+####  cube  
+##### 4925#       发表于 2021-9-15 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759619&amp;ptid=1860328" target="_blank">天堂蜘蛛 发表于 2021-9-15 15:47</a>
+
+有大佬能推荐一下队友技能都该勾些啥么</blockquote>
+普通难度怕麻烦就全都点上就行了，不过如果你不经常切队友角色自己打打的话，有些技能AI熟练度太低会导致学新招太慢，AI基本上不怎么用精准闪避和空中技。
+
+
+困难难度稍微考虑下地图怪的属性，这游戏水火、风土、光暗互克，同地图的怪属性大致都是一样的。
+
+
+*****
+
+####  言嘉  
+##### 4926#       发表于 2021-9-15 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758313&amp;ptid=1860328" target="_blank">aaronluray 发表于 2021-9-15 14:18</a>
+
+不用，刷红毛的就够了，刷满后会先开红毛的技能盘，再去露次营就解锁男主的了 ...</blockquote>
+是这样吗，那还好
+
+
+但我一看回复，这秘奥义2还得满好感，结果还是要刷……坑爹啊
+
+

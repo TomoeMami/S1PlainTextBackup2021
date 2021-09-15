@@ -4098,3 +4098,36 @@ op也是这样，动画首次播没几天就发售了，正常。
 广播B站就有，懂日语的可以去听听看，我不懂日语就不丢人了
 
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4826#       发表于 2021-9-15 15:43
+
+
+不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  cybernetics31  
+##### 4827#       发表于 2021-9-15 15:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">日语苦手，会日语的大佬们讲讲广播都说了啥
+
+
+*****
+
+####  Jobtownb  
+##### 4828#       发表于 2021-9-15 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751258&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-15 00:12</a>
+就现在这个境遇，恋妈在神秘小箱子里藏有好多0的存折最能解决问题，没有什么比突然搞到一大笔钱更能解决现 ...</blockquote>
+你花田哥之前搞南极电子邮件的时候可是哭倒一片人，不过这次还能这么弄吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
