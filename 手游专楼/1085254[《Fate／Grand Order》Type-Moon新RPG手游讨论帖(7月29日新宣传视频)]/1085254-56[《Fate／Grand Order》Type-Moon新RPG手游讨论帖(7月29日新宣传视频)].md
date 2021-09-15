@@ -13470,3 +13470,16 @@ ML个啥啊，每个都只能配合他们做做戏而已，真敢下手你有几
 今天到底有没有二期，萌新等不及要抽个泛用蓝卡光炮打手了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  angelooo  
+##### 83640#       发表于 2021-9-15 15:09
+
+
+<blockquote>上坂莲华 发表于 2021-9-15 14:44
+今天到底有没有二期，萌新等不及要抽个泛用蓝卡光炮打手了</blockquote>
+今天肯定有啊，不然也太拉了
+
+
