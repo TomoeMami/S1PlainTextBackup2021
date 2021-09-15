@@ -13750,3 +13750,38 @@ vspo新人看样子之前不怎么玩apex，到时候直播看看<img src="https
 Lamuril、依音伽音毕业
 
 
+
+
+*****
+
+####  purdre  
+##### 7015#       发表于 2021-9-15 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760134&amp;ptid=1972669" target="_blank">NBXX 发表于 2021-9-15 16:18</a>
+
+—— 来自 S1Fun</blockquote>
+耳毛好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 7016#       发表于 2021-9-15 20:17
+
+
+ 本帖最后由 alcoholic1000 于 2021-9-15 20:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">ヘビーローテーション
+
+谢谢你，小绿 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+大好きだ 君が大好きだ...
+
+大声ダイヤモンド<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 
+
+
+绿仙、相羽和弦月的坂道48カラオケ也能听到开闭，偶像厨真好
+
+
