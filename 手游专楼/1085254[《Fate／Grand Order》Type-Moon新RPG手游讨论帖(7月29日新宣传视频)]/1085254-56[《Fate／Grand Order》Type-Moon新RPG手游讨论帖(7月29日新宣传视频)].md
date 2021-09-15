@@ -14246,3 +14246,14 @@ fgo日服也想过玩啊，你让我从一堆2星3星卡无拐无礼装，宝石
 翻页
 
 
+
+
+*****
+
+####  zore  
+##### 83704#       发表于 2021-9-16 02:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这仇伽摩语音给我听笑了,tm还是™的tm
+
+

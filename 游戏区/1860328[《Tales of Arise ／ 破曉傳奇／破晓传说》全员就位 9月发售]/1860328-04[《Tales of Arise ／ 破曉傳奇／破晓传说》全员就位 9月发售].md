@@ -6363,3 +6363,82 @@ https://www.bilibili.com/video/BV1TL4y187HE
 个人还是挺不喜欢这种翻译方式的，甚至有几个地方连用词都没统一
 
 
+
+
+*****
+
+####  cube  
+##### 4993#       发表于 2021-9-16 01:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767143&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-16 00:35</a>
+
+去打铠甲士兵，有银狗牌也有魔力块，算是目前我看到的最贵的素材了。打到第四章，一口气刷了10w ...</blockquote>
+其实来钱最快的是钓鱼，只不过初期没好钓竿的时候很痛苦。
+
+
+*****
+
+####  Errey  
+##### 4994#       发表于 2021-9-16 02:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741725&amp;ptid=1860328" target="_blank">squaresfc 发表于 2021-9-14 10:33</a>
+
+“说一个人复仇就变成鬼的推测”就是阿洛他自己的经历，他为了报复自己老爸，最后害死了他老爸，所以他会 ...</blockquote>
+然后他乐呵呵的把光领主灭了，他知道复仇成鬼把爹害死，然后换了个目标报仇成了，入队搞谐，承担新责任
+
+报复成功迈向新生活也是他的经历，你怎么完全没看剧情啊？
+
+
+要不要帮你回顾下齐尔法死后他们拖尸体回基地的对话？
+
+在他说了“这是我和他的恩怨”之后，男主说“想为齐尔法报仇的不止你一个”，他也没否定
+
+按他这行为和脑回路，在第二章报仇就不是什么错事，倒不如早早铲除祸根才是正确的
+
+
+结局是**的恶心，男主一样违背了这种铲除祸根的思维
+
+
+*****
+
+####  市松椿  
+##### 4995#       发表于 2021-9-16 02:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767591&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-16 01:30</a>
+
+真的，不要折磨自己换了E差不多等于以前的N，你们为什么非要开局拿相当以前C难度打呢
+
+主要这难度毫无意义， ...</blockquote>
+这难度随便就能调，自己接受就好，不懂有啥好纠结的。
+
+我一开始选的次级觉得有点吃力就换回普通了，打到后半程熟悉整个系统后开始割草就又改回次级了
+
+
+*****
+
+####  森兰丸  
+##### 4996#       发表于 2021-9-16 04:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767812&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-16 02:17</a>
+
+然后他乐呵呵的把光领主灭了，他知道复仇成鬼把爹害死，然后换了个目标报仇成了，入队搞谐，承担新责任
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">首先不应该去剧透楼说这些么
+
+结局互相理解那段是恶心....然而对面根本不领情直接带着男主的救命护符一起自爆想让男主后悔一辈子....结果男主还真用另一种方法都救回来了....弄得对面自爆的就像个小丑.....就问你服不服
+
+
+*****
+
+####  森兰丸  
+##### 4997#       发表于 2021-9-16 04:14
+
+
+辣鸡游戏总算通关了.....整个剧情除了发糖一无是处....最终BOSS大概是系列历代最弱了.....还有一些吐槽在剧透楼里说了
+
+

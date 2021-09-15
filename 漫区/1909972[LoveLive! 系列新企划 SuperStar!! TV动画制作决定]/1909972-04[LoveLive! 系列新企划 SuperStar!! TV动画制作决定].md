@@ -5240,3 +5240,25 @@ TVアニメ『ラブライブ！スーパースター!!』特別パート
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 4921#       发表于 2021-9-16 01:56
+
+
+恋的设定那么沉重的话我倒希望后面剧情不要轻拿轻放啊
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  plazum  
+##### 4922#       发表于 2021-9-16 02:35
+
+
+看了这一集，感觉恋恋的棒读很严重啊……
+
+
