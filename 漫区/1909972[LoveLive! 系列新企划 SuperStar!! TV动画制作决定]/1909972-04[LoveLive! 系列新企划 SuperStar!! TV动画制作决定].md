@@ -4062,3 +4062,39 @@ op也是这样，动画首次播没几天就发售了，正常。
 什么内容啊
 
 
+
+
+*****
+
+####  player3960  
+##### 4823#       发表于 2021-9-15 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758572&amp;ptid=1909972" target="_blank">lj205 发表于 2021-09-15 14:34:27</a>
+悲报，看微博上说昨晚广播透了点剧情，看来可以提前盖印GG了</blockquote>什么内容啊，给个链接也行啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 4824#       发表于 2021-9-15 14:52
+
+
+ 本帖最后由 lj205 于 2021-9-15 14:57 编辑 
+
+没内容，就看那人冷笑了一下，提前打个预防也不错？要是传达错消息，还请各位多原谅
+
+
+*****
+
+####  chenflyyy  
+##### 4825#       发表于 2021-9-15 14:56
+
+
+[https://www.bilibili.com/video/B ... id_from=333.999.0.0](https://www.bilibili.com/video/BV1b64y1h7Ra?spm_id_from=333.999.0.0)
+
+广播B站就有，懂日语的可以去听听看，我不懂日语就不丢人了
+
+

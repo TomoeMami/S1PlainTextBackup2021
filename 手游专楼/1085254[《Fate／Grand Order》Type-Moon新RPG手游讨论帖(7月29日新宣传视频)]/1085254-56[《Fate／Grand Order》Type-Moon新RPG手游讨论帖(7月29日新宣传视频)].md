@@ -13459,3 +13459,14 @@ ML个啥啊，每个都只能配合他们做做戏而已，真敢下手你有几
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第1个池太拉我没抽啊
 
 
+
+
+*****
+
+####  上坂莲华  
+##### 83639#       发表于 2021-9-15 14:44
+
+
+今天到底有没有二期，萌新等不及要抽个泛用蓝卡光炮打手了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
