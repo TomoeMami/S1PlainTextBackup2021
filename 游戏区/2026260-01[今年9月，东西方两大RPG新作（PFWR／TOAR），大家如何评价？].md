@@ -1330,3 +1330,27 @@ Toar卖相挺好的，不管是对比自己的传说系列还是对比这两年�
 拥王者那会就说过了，猫头鹰那套王国/军队管理的问题是和角色扮演割裂的。王国风调雨顺，圣教军节节胜利，也就是送装备而已。你对玩家的印象还是一个冒险者，代入感还不如无冬2的要塞指挥官。但其他方面正义之怒强太多了，能出完整版的话至少也是和无冬之夜一个级别的。而且我感觉pf的版权真是大方，允许游戏涉足影响世界观的大事件，真有拯救世界的感觉。反观卫生纸，玩家车到30级的神仙，游戏里吹破天也就那么回事，还可能被官方背刺<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Rinne70  
+##### 98#       发表于 2021-9-15 08:46
+
+
+只说结论的话，wotr在crpg地位比toar在jrpg甚至在传说系列的地位都要高。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Rinne70  
+##### 99#       发表于 2021-9-15 08:49
+
+
+针对一个二次元一个老炮的说法，其实toar虽然画面提升很足，其实玩着主线和任务结构甚至部分套路也都是jrpg老一套，只是表现方式有所改动而已，也算是老炮二刺螈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
