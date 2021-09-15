@@ -4925,3 +4925,74 @@ galaxy手在live上拿出来应该挺有气氛的
 聊第七话已经沉重的连士大夫都没笑了
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4899#       发表于 2021-9-15 20:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看三次元明显更香，动画就这样吧
+
+
+*****
+
+####  kata魂  
+##### 4900#       发表于 2021-9-15 20:47
+
+
+说起来这次全卷特典双人曲一首千香，一首可恋。青梅竹马意料之中，但在动画五六集强推可堇的情况下居然没趁热打铁出双人，是不是真的要把两个人之间的问题安排在第二季上，换句话说会不会之后会有一集臭女人到恋恋的场合？
+
+
+*****
+
+####  Piano-Forest  
+##### 4901#       发表于 2021-9-15 20:48
+
+
+ 本帖最后由 Piano-Forest 于 2021-9-15 20:50 编辑 
+
+【💫Blu-ray💫】
+
+10/27発売のTVアニメ『ラブライブ！スーパースター!!』Blu-ray第2巻のジャケットを初公開🎊
+
+1stツアーチケット最速先行抽選申込券、キャストロケ映像「Liella!のドコいく？」など豪華特典盛り沢山✨
+
+9/20迄のご予約がオススメです🎶
+
+詳細→[https://www.lovelive-anime.jp/yuigaoka/bd/#bd02](https://www.lovelive-anime.jp/yuigaoka/bd/#bd02)
+<img src="https://p.sda1.dev/2/f43b218d56ee61b92c5c6d013a19c292/20210915_204705.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/712cf09597a4221bbf2312d882154a06/bd02.jpg" referrerpolicy="no-referrer">
+
+
+【💫CD情報💫】
+
+10/27（水）発売✨
+
+TVアニメ『ラブライブ！スーパースター!!』特別パート
+
+「リエラのうた」ジャケット公開✨
+
+
+試聴動画は本日22時よりプレミア公開👀
+[https://youtu.be/7Hbkv0AZ3zA](https://youtu.be/7Hbkv0AZ3zA)
+
+
+同日発売のオリジナルサウンドトラックの2枚同時購入特典も✨
+[https://www.lovelive-anime.jp/yuigaoka/news/?id=8341](https://www.lovelive-anime.jp/yuigaoka/news/?id=8341)
+<img src="https://p.sda1.dev/2/da9e8f0732139d4c3b42075d98afa73f/20210915_204819.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/2d3d85079c6cb2bd5bfd14f5663f43c7/20210915_204821.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 4902#       发表于 2021-9-15 20:59
+
+
+<blockquote>寒风夜 发表于 2021-9-15 20:18
+话说10月 妃那个主役偶像片有人追么</blockquote>
+追啊，还有那啥冰球，加友奈。
+
+
