@@ -13863,3 +13863,78 @@ BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个紧身衣和印度涂装是灵衣吗
 
 
+
+
+*****
+
+####  白金口袋  
+##### 83671#       发表于 2021-9-15 18:46
+
+
+清少纳言死活出不来，凯尼斯倒是疯狂宝具+1
+
+一池没有皇女，二池没有阿清，总得给我留点遗憾是吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 83672#       发表于 2021-9-15 18:54
+
+
+清少纳言和夹馍都只要10000就5绊了，超好搞定的两个女的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霧谷藤乃  
+##### 83673#       发表于 2021-9-15 18:56
+
+
+缺技能石没法点技能好难受啊…
+
+
+*****
+
+####  不垃圾屌丝  
+##### 83674#       发表于 2021-9-15 19:00
+
+
+三个清少纳言一个凯尼斯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  白金口袋  
+##### 83675#       发表于 2021-9-15 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52762246&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-9-15 04:54</a>
+
+清少纳言和夹馍都只要10000就5绊了，超好搞定的两个女的</blockquote>
+刚才把伽摩拖出去打本三把直接绊3，吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 83676#       发表于 2021-9-15 19:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760804&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-15 17:04</a>
+
+合理!!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗 羡慕
+
+
+*****
+
+####  龙娘777  
+##### 83677#       发表于 2021-9-15 19:52
+
+
+感觉宙斯美神农神快落地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
