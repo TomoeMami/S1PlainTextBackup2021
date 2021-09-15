@@ -5147,3 +5147,54 @@ TOGF 37
 其他人的秘奥义2应该是篝火羁绊对话满了有，我现在解锁的三个都是这样的。
 
 
+
+
+*****
+
+####  EigenVesper  
+##### 4901#       发表于 2021-9-15 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52758135&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-15 14:07</a>
+
+TOZ 36
+
+TOGF 37</blockquote>
+好吧，尴尬了，toz可能是我查的那个网站写错了，看了下确实是36
+
+
+*****
+
+####  轨迹老实人  
+##### 4902#       发表于 2021-9-15 14:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"> 35不是问题
+
+同期世嘉游戏38 尴尬
+
+
+*****
+
+####  aaronluray  
+##### 4903#       发表于 2021-9-15 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52757701&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-15 13:42</a>
+
+我看描述貌似是要和所有同伴加深感情，鉴于红毛的称号要和男主搞基我就优先刷了他的…… ...</blockquote>
+不用，刷红毛的就够了，刷满后会先开红毛的技能盘，再去露次营就解锁男主的了
+
+
+*****
+
+####  asclepiusz  
+##### 4904#       发表于 2021-9-15 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52746947&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-14 17:43</a>
+
+并没有  读盘虽然飞快但是要黑一下还是很不爽的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个就没办法了，技术力问题
+
+
