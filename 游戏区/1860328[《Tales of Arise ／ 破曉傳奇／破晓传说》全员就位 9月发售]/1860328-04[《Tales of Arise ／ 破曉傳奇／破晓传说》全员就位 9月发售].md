@@ -5636,3 +5636,59 @@ toz是36吧
 训练场先解锁个盘就好了，等后面黑皮技能多起来。反正黑皮有治疗，混过训练场还是挺简单
 
 
+
+
+*****
+
+####  shiko  
+##### 4939#       发表于 2021-9-15 17:32
+
+
+有没有什么办法看到素材都是从什么怪上出来的？制作武器素材一直不够
+
+
+*****
+
+####  hallowilliam  
+##### 4940#       发表于 2021-9-15 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761263&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-15 17:32</a>
+
+有没有什么办法看到素材都是从什么怪上出来的？制作武器素材一直不够</blockquote>
+图鉴里有吧，没有就是你还没遇到。
+
+
+*****
+
+####  中泽君  
+##### 4941#       发表于 2021-9-15 17:38
+
+
+明天应该会出销量，会不会超过绯夜的实体首周25万
+
+
+*****
+
+####  hallowilliam  
+##### 4942#       发表于 2021-9-15 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761353&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-15 17:38</a>
+
+明天应该会出销量，会不会超过绯夜的实体首周25万</blockquote>
+额，steam在线就超5w了。日本实体25w毫无压力吧
+
+
+*****
+
+####  hallowilliam  
+##### 4943#       发表于 2021-9-15 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760706&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-15 16:58</a>
+
+训练场先解锁个盘就好了，等后面黑皮技能多起来。反正黑皮有治疗，混过训练场还是挺简单 ...</blockquote>
+过到是很容易，但是挂的我难受。。。打了6分钟才过的。。。
+
+

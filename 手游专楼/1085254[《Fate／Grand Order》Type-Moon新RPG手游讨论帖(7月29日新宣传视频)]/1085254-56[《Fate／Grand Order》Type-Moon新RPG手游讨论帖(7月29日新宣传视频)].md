@@ -13596,3 +13596,117 @@ ML个啥啊，每个都只能配合他们做做戏而已，真敢下手你有几
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 83651#       发表于 2021-9-15 17:24
+
+
+ 本帖最后由 霧谷藤乃 于 2021-9-15 17:26 编辑 
+
+12发11连没有清少就很微妙……
+
+另一个没up没出也就算了……
+
+
+*****
+
+####  cckuku  
+##### 83652#       发表于 2021-9-15 17:27
+
+
+虽然卡面很色，但是微妙的没有戳到我的点。没有妖兰卡面那种让人看了就很想抽的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+可能我确实对樱脸无感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿提拉  
+##### 83653#       发表于 2021-9-15 17:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">一单只有两个4星，补一单3个夹馍，还行。可惜五星礼装开不了图鉴只能去蹭了
+
+
+顺便夹馍这个泳装满破明年基本不可能上BGO了，绝对会被毙掉，改成蓝皮估计都不行
+
+
+*****
+
+####  exiaexa  
+##### 83654#       发表于 2021-9-15 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761188&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-9-15 17:27</a>
+
+虽然卡面很色，但是微妙的没有戳到我的点。没有妖兰卡面那种让人看了就很想抽的冲动
+
+可能我确实对樱 ...</blockquote>
+主要是redrop画脸一直就容易歪一点
+
+他选的这个姿势刚好又把所有头发甩到后面，把自己的弱点全给暴出来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eyeego  
+##### 83655#       发表于 2021-9-15 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761203&amp;ptid=1085254" target="_blank">阿提拉 发表于 2021-9-15 17:28</a>
+一单只有两个4星，补一单3个夹馍，还行。可惜五星礼装开不了图鉴只能去蹭了
+
+
+顺便夹馍这个泳装满破 ...</blockquote>
+BGO这么折腾能不能活到明年都是问题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83656#       发表于 2021-9-15 17:35
+
+
+三破很好看，满破虽然色但没啥戳点
+
+
+*****
+
+####  香蜂草  
+##### 83657#       发表于 2021-9-15 17:36
+
+
+350石伽摩3宝凯尼斯一宝 清少纳言竟然没出<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">……
+
+
+*****
+
+####  黑上シグマ  
+##### 83658#       发表于 2021-9-15 17:36
+
+
+<blockquote>引用第83650楼霧谷藤乃于2021-09-15 17:24发表的  :
+
+本帖最后由 霧谷藤乃 于 2021-9-15 17:26 编辑 12发11连没有清少就很微妙……另一......</blockquote>
+今天都UP啊？
+明天才是单UP
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  yzj134100  
+##### 83659#       发表于 2021-9-15 17:37
+
+
+<img src="https://pic.imgdb.cn/item/6141be8d2ab3f51d91f61572.jpg" referrerpolicy="no-referrer">
+
+
+一发溜了，阿清不要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
