@@ -6490,3 +6490,57 @@ https://www.bilibili.com/video/BV1TL4y187HE
 不去弄钓鱼的话会不会错过什么隐藏要素....比如有什么任务是要钓鱼完成才能开启什么的
 
 
+
+
+*****
+
+####  法拉  
+##### 5001#       发表于 2021-9-16 07:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767812&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-16 02:17</a>
+
+然后他乐呵呵的把光领主灭了，他知道复仇成鬼把爹害死，然后换了个目标报仇成了，入队搞谐，承担新责任
+
+ ...</blockquote>
+他也没说他爹是爹你爹不是爹，我能寻仇你不能，无非就是说悲愤不等于憎恨，寻仇不等于只为了寻仇，不就是标准日漫看开型角色
+
+有个小剧场我记得他也有点后悔，说当时阻止琳薇儿是脑子一热一时冲动，看到自己的影子
+
+<img src="https://img.saraba1st.com/forum/202109/16/072524jvudvv97f6yg6yqq.png" referrerpolicy="no-referrer">
+
+
+<strong>2GNTAH]6){NAWJ`9FJ6S1}0.png</strong> (45.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 07:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/072527b86zy8dwb88swzhk.png" referrerpolicy="no-referrer">
+
+
+<strong>S{2PXB{3J[Z`Y)M{4I@WUCO.png</strong> (50.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 07:25 上传
+
+
+*****
+
+####  火红之眼  
+##### 5002#       发表于 2021-9-16 07:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768361&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-16 07:28</a>
+
+问下不追求白金的话能不能不鸟这破钓鱼 
+
+
+不管是什么游戏最烦的就是这钓鱼......实在不想去动</blockquote>
+钓鱼有不少小剧场，也涉及盾妈称号，任务那就没了
+
+其实鱼饵齐全的话鱼都是100%出想要的，拿个三星杆钓一两小时也就完事了
+
+
