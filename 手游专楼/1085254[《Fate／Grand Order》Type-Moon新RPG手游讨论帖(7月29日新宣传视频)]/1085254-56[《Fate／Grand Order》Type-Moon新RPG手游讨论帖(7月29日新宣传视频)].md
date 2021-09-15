@@ -13289,3 +13289,31 @@ bb有动作的，而且动作很多，你对比下就能看出这个宝具有多
 剧情总不总结其实都差不多，并不是像去年夏天那种解密类的，就是普通的冒险谭，也没啥惊天阴谋或者情感过山车，主要是角色之间聊天扯皮的搞笑小品<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  الطائر  
+##### 83626#       发表于 2021-9-15 10:16
+
+
+<img src="https://img.saraba1st.com/forum/202109/15/101608okrmeh3w98vwrx8l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E-xLm0_UcAY9eX3.jpg</strong> (166.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-15 10:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/15/101614puh1kykswhizmjib.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E_PUmnfVEAIaky7.jpg</strong> (301.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-15 10:16 上传
+
+

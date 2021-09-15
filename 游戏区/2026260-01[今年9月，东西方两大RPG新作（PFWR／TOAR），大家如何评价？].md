@@ -1430,3 +1430,30 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 我玩了70多小时，才玩到第三章开头，一张大的剧情地图清四五个小时是常态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  574802531  
+##### 106#       发表于 2021-9-15 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742747&amp;ptid=2026260" target="_blank">茛菪 发表于 2021-9-14 11:39</a>
+Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说直男那边又能泡大小姐又能泡女王的，直女怎么就给 ...</blockquote>
+柱子1也没有队员romance
+
+—— 来自 HUAWEI CLT-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  gh1023  
+##### 107#         楼主| 发表于 2021-9-15 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754214&amp;ptid=2026260" target="_blank">Rinne70 发表于 2021-9-15 10:01</a>
+
+其实我觉着沃尔吉夫就像从乙女游戏里走出来的男角色一样，提夫林长得也很有风味，居然没有感情线吗。。 ...</blockquote>
+沃尔吉夫这贱贱的小贼人设，听说很多基佬都想狂暴鸿儒了
+
+
