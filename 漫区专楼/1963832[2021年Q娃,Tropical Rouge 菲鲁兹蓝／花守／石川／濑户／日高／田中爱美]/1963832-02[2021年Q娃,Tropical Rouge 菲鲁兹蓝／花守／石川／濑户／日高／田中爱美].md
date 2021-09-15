@@ -8293,3 +8293,14 @@ image.png
 话说不是在直播，还有两队人是在不同地方是怎么同框变身的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">而且珊瑚现在就只会说赞成跟可爱了，还有当化妆工具人
 
 
+
+
+*****
+
+####  PrincessBanana  
+##### 2100#       发表于 2021-9-15 16:48
+
+
+这集除了化妆其他都挺好的，就是这妆实在是接受不来<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+

@@ -4327,3 +4327,62 @@ Screenshot_20210915_163635_com.sina.weibo_edit_1405468411792832.jpg
 <img src="https://img.saraba1st.com/forum/202109/15/163907bzzbw1cptlp966lb.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 4843#       发表于 2021-9-15 16:47
+
+
+原来这个人有黑历史吗？那看来还是我太心急了，各位老哥抱歉了。
+
+
+来个好消息吧，小星星第三周销量排第11。
+
+
+*****
+
+####  megapikachu  
+##### 4844#       发表于 2021-9-15 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760537&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-15 16:47</a>
+
+原来这个人有黑历史吗？那看来还是我太心急了，各位老哥抱歉了。
+
+
+来个好消息吧，小星星第三周销量排第11。 ...</blockquote>
+也不是说黑历史，只是之前就有人趁大家对剧情不满，弄点假东西火上添油，我算是经历过那一段，所以会警惕一点。注意一下就好了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 4845#       发表于 2021-9-15 16:56
+
+
+草，刚刚逛贴吧有人说可可做学院偶像太功利了，有什么目的……我想了半天都没想通她来日本不是为了学院偶像是为了啥……
+
+
+*****
+
+####  Karin11974  
+##### 4846#       发表于 2021-9-15 16:57
+
+
+工地日语听力完整听完，没有什么值得留意的点，不过日记趣事挺好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 4847#       发表于 2021-9-15 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760670&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-15 16:56</a>
+
+草，刚刚逛贴吧有人说可可做学院偶像太功利了，有什么目的……我想了半天都没想通她来日本不是为了学院偶像 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">之前还有指责五个人各怀鬼胎不纯粹的，为不废校好好努力去当偶像的才是不功利的好偶像，这下可纯粹了www
+
+
