@@ -6979,3 +6979,66 @@ toar就算整个类似的平铺大地图哪怕只能用光标十字键选目的�
 我记得N难度是有的
 
 
+
+
+*****
+
+####  火红之眼  
+##### 5035#       发表于 2021-9-16 10:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770310&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-16 10:27</a>
+分身是指那几个站着不动的，放完大招后会出来砍人的？
+
+我记得N难度是有的 ...</blockquote>
+hard在这之前就会放分身，不是站桩沙包那种
+
+
+*****
+
+####  oniwarud  
+##### 5036#       发表于 2021-9-16 10:42
+
+
+<blockquote>火红之眼 发表于 2021-9-16 10:23
+加个地图界面就有大气感不会是认真的吧……
+
+且不说传说什么时候到了要顾及大气感的档次了，感觉很多人对 ...</blockquote>
+问题是这种道馆级别的“国家”对观感影响的确大啊，特别是你还整了个解放各国的宏大目标，结果现在看起来整个过程都小气得不行，很多剧情上赶得飞起或者各种迷惑操作也有很大一部分原因是场景就那么点就算想扩充剧情都地方塞了
+
+
+*****
+
+####  mazin001  
+##### 5037#       发表于 2021-9-16 10:45
+
+
+我寻思自己一路从风雨玩到这部传说玩得也不少了
+
+但这次无论是原谅还是说教还是战斗系统越玩越觉得像...轨迹
+
+是看泥潭每天轮轨迹侠看上脑了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜守望者  
+##### 5038#       发表于 2021-9-16 10:47
+
+
+其实咋一看之下女主的人设和建模不太戳我，但是眼睛真的很漂亮，看得着迷<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜守望者  
+##### 5039#       发表于 2021-9-16 10:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770554&amp;ptid=1860328" target="_blank">mazin001 发表于 2021-9-16 10:45</a>
+我寻思自己一路从风雨玩到这部传说玩得也不少了
+
+但这次无论是原谅还是说教还是战斗系统越玩越觉得像...轨迹 ...</blockquote>
+我觉得还是那个传说味啊（指白开水）
+
+

@@ -14378,3 +14378,30 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 笑死，你帮我预言一下一个月后的双色球好不好
 
 
+
+
+*****
+
+####  zakki  
+##### 83715#       发表于 2021-9-16 10:32
+
+
+ 本帖最后由 zakki 于 2021-9-16 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770187&amp;ptid=1085254" target="_blank">sjbssd 发表于 2021-9-16 10:19</a>
+
+笑死，你帮我预言一下一个月后的双色球好不好</blockquote>
+？我寻思2.6没up C呆？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sjbssd  
+##### 83716#       发表于 2021-9-16 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770378&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-16 10:32</a>
+
+？我寻思2.6没up C呆？ C呆up的时候不是当时的顶级拐？日服周年会送一堆石头不是惯例？日服周年会 ...</blockquote>
+现在周年过了你说这些有用吗，你开个日服小号开荒试试，站着说话不腰疼
+
+

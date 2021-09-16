@@ -21640,3 +21640,17 @@ Ina是棒读啊..
 把ina的叫声写成inaina的运营是脑子进桃桃星了吗
 
 
+
+
+*****
+
+####  smy20011  
+##### 1377#         楼主| 发表于 2021-9-16 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52769217&amp;ptid=1989758" target="_blank">窓付き 发表于 2021-9-16 09:13</a>
+
+把ina的叫声写成inaina的运营是脑子进桃桃星了吗</blockquote>
+怕日本观众不熟悉吧，gura也很久没sharrrrk这么叫了
+
+
