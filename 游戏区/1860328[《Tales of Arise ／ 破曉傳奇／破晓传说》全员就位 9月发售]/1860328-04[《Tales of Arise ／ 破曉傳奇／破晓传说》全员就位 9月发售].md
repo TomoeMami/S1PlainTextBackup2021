@@ -7682,3 +7682,16 @@ nice啊，各个公司的当家rpg赶紧安排上。卡婊龙战士，科乐美�
 倒地几个兽性的巨体boss就行了的，但是基本上一倒地就起身，没啥意义
 
 
+
+
+*****
+
+####  火红之眼  
+##### 5093#       发表于 2021-9-16 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773001&amp;ptid=1860328" target="_blank">最浅的语言 发表于 2021-9-16 13:36</a>
+确实是年轻人的第一款传说了，所以这个系列开发周期是多久呢</blockquote>
+素材重用的续作一般一年左右
+
+

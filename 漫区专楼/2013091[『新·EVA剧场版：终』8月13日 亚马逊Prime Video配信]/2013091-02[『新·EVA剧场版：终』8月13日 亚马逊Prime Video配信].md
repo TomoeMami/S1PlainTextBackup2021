@@ -3090,3 +3090,19 @@ TV版好感是慢慢刷出来的,一开始香和丽都不喜欢真嗣,虽然因�
 看到最后这幕只有一个感受:好恶心
 
 
+
+
+*****
+
+####  女神アイギス  
+##### 1697#       发表于 2021-9-16 15:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773900&amp;ptid=2013091" target="_blank">mj0017 发表于 2021-9-16 14:50</a>
+
+看到最后这幕只有一个感受:好恶心</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">经历了Q和终喂得这么多翔，我要是真嗣可能也只想找一个不麻烦的好女人完事
+
+还能说句爱过就不错了
+
+
