@@ -754,3 +754,48 @@ tv全靠今石，冈妈那全员精神病剧本再来一次，谁受的了？</b
 原作就是一张图的东西，为什么TV要和OVA做成一样呢
 
 
+
+
+*****
+
+####  白房子  
+##### 66#       发表于 2021-9-16 17:58
+
+
+新作会不会和之前要卖的塑料小人有关系（。
+
+看着都有两道杠的。
+
+发售时间也差不多可以宣传（。
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/175710irj2azllyl5ht85l.png" referrerpolicy="no-referrer">
+
+
+<strong>截图.png</strong> (126.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 17:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/175710f2k6by02ah9k4hdu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>gallery-image-02.jpg</strong> (96.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 17:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/175710ihcdsu4c8rwd9vsh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>image-13.jpg</strong> (178.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 17:57 上传
+
+
