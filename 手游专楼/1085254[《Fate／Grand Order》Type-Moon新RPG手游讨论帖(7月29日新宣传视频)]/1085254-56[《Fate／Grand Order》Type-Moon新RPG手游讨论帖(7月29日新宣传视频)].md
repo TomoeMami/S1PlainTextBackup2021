@@ -14503,3 +14503,38 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 这程度还不如抱怨没保底导致抽不到强力角色去打主线来得信服
 
 
+
+
+*****
+
+####  sjbssd  
+##### 83725#       发表于 2021-9-16 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771362&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-16 11:29</a>
+
+啊这，太低级了吧，你还不如祝我千石沉船，不过我也没有千石</blockquote>
+嗐，还是你懂你自己，那就祝你抽不到5星吧，反正没保底<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83726#       发表于 2021-9-16 11:56
+
+
+追三宝失败
+
+等一个发工资
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 83727#       发表于 2021-9-16 11:57
+
+
+话说有没有谁考虑开新楼啊，感觉卡页现象越发严重了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+

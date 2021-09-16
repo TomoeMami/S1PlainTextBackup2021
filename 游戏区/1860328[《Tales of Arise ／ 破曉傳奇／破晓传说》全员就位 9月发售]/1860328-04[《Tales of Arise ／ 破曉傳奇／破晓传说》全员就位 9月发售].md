@@ -7196,3 +7196,34 @@ hard在这之前就会放分身，不是站桩沙包那种
 女主第二部造型很戳我，初看还有点像TOV的艾丝蒂尔开始的公主装，满足了TOV没有这换装称号的遗憾
 
 
+
+
+*****
+
+####  放大镜  
+##### 5052#       发表于 2021-9-16 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771403&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-16 11:32</a>
+
+都差不多长？反正我全领地解放时间大概是33小时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那应该差不多。之前看评论提到过剧情赶，没想到这么赶
+
+
+*****
+
+####  魂淡放我出去  
+##### 5053#       发表于 2021-9-16 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771720&amp;ptid=1860328" target="_blank">放大镜 发表于 2021-9-16 11:51</a>
+
+那应该差不多。之前看评论提到过剧情赶，没想到这么赶</blockquote>
+反正就不像领国，更像是解放村子建立根据地<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+而且第二部剧情更赶，巴不得往你嘴里塞设定和剧情
+
+
