@@ -8420,3 +8420,23 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 玛德又想到这作杂兵战这么爽，我也原谅它了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  被击坠王  
+##### 5146#       发表于 2021-9-17 01:17
+
+
+当初还敢说做成开放世界，只能说毙得好。。。有道理
+
+
+*****
+
+####  松霖  
+##### 5147#       发表于 2021-9-17 01:23
+
+
+这游戏用主角玩到后期还真是越来越简单，巴不得全部按键都是一个技能<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+

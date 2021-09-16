@@ -14821,3 +14821,17 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 我都没看公告，刚一个金苹果下去www
 
 
+
+
+*****
+
+####  stefanie张  
+##### 83751#       发表于 2021-9-17 01:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781461&amp;ptid=1085254" target="_blank">马桶3 发表于 2021-9-17 00:32</a>
+
+我就问一句，现在日服是不是有C呆和5宝宇宙凛，基本就随便冲了？单体需要补谁？ ...</blockquote>
+大公，金钻头，性价比都很高
+
+
