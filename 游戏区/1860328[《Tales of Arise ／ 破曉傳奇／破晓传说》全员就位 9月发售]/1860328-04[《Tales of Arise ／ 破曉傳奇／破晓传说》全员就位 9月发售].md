@@ -7967,3 +7967,14 @@ UFO这动画做的什么鸡掰哦，风将画的也太丑哦
 这样会不会通顺一点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">现在这段演出，洛跑出去挡刀的逻辑确实有点怪
 
 
+
+
+*****
+
+####  hotsmile  
+##### 5112#       发表于 2021-9-16 20:40
+
+
+各角色有什么招式好用的啊？打竞技场一看其他人整页技能选择困难（不算DLC）
+
+
