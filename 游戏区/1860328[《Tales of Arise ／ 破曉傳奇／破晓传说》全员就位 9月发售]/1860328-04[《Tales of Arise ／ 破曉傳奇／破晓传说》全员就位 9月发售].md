@@ -6617,3 +6617,78 @@ https://www.bilibili.com/video/BV1TL4y187HE
 谢谢
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5008#       发表于 2021-9-16 08:31
+
+
+ 本帖最后由 qiyu1234 于 2021-9-16 08:34 编辑 
+
+株式会社ハイエスター的3D动画师 大西佑二参与了TOAR的战斗演出和动作作成
+
+像本作的秘奥义和增幅强击就有他的作品
+
+另外这个公司其实是搞剧本创作的。。。
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/083130qf0iwzfi0w9ww9sw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (325.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 08:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/083130o9e4hlhdl57ley0e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.JPG</strong> (79.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 08:31 上传
+
+
+*****
+
+####  不应  
+##### 5009#       发表于 2021-9-16 08:35
+
+
+这个巨大boss战也太失望了，结果就是打召唤出来的换皮小怪。打倒的演出也特敷衍，你让我砍两只手最后来个qte一刀两断我也当你努力过啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oniwarud  
+##### 5010#       发表于 2021-9-16 08:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768316&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-16 07:17</a>
+
+还真不能怪传说，JRPG里差不多是最晚放弃大地图那批作品了，倒不如说FF进了PS2时代就率先放弃大地图，传 ...</blockquote>
+dq啊，论不抛弃老传统怎么能忘了这位
+
+
+
+
+*****
+
+####  水宝宝  
+##### 5011#       发表于 2021-9-16 08:44
+
+
+ 本帖最后由 水宝宝 于 2021-9-16 08:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768511&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-16 07:57</a>
+
+就是烦一个池塘钓没钓齐所有鱼还要手动去记.....很多池塘还要跑步过去
+
+
+而为了先要换出钓竿几个池 ...</blockquote>不用手动记，在池塘按选钓饵的页面，选钓饵时可以在右下角看到该池塘有几种鱼，以及你钓到过几种（钓过的字体会标绿色，没钓过的是白色）跟钓鱼大叔他会告诉你你还有哪几个池塘没钓齐
+
+
