@@ -14753,3 +14753,35 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  約翰法雷爾  
+##### 83746#       发表于 2021-9-16 23:05
+
+
+国服走的真惨
+
+
+推上的恨国党们，狂喜乱舞中
+
+
+以后中国元素就不配进游戏
+
+
+*****
+
+####  J-002  
+##### 83747#       发表于 2021-9-16 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52780553&amp;ptid=1085254" target="_blank">約翰法雷爾 发表于 2021-9-16 23:05</a>
+
+国服走的真惨
+
+
+推上的恨国党们，狂喜乱舞中</blockquote>
+当初日服2.3，全世界都在夸中国人的皇帝真牛逼时，只有中国人自己因为皇帝头发不黑举报他乳化
+
+

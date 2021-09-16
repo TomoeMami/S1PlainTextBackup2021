@@ -13962,3 +13962,14 @@ SL打钱，直接偷表情包
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苔总真是抬举
 
 
+
+
+*****
+
+####  路人庚  
+##### 2755#       发表于 2021-9-16 23:06
+
+
+懂了，应该是放录像，看来是合唱一首曲子就无了
+
+

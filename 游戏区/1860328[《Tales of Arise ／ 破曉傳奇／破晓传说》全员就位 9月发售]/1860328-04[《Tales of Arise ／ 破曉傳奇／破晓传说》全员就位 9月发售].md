@@ -8185,3 +8185,14 @@ TO系列如果想再进一步的话，音乐这部分，现在的程度还需要
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">体感可能流程过半了吧。。结果一查发现已经3/4了。。。。
 
 
+
+
+*****
+
+####  hkguty  
+##### 5127#       发表于 2021-9-16 23:12
+
+
+玩到后面又是恶心的地图，又是星灵力的自我意志啥的，这剧情跟TOG也太尼玛像了
+
+
