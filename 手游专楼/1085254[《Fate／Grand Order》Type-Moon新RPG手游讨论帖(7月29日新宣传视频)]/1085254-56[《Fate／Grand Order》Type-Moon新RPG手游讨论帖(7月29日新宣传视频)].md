@@ -14405,3 +14405,26 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 现在周年过了你说这些有用吗，你开个日服小号开荒试试，站着说话不腰疼
 
 
+
+
+*****
+
+####  zakki  
+##### 83717#       发表于 2021-9-16 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770453&amp;ptid=1085254" target="_blank">sjbssd 发表于 2021-9-16 10:38</a>
+
+现在周年过了你说这些有用吗，你开个日服小号开荒试试，站着说话不腰疼 ...</blockquote>
+废话，让早准备不准备出事了才跑这抱怨。还有我凭什么开小号开荒？我早run了，所以现在打本舒服的很。你觉得现在开荒难受，那你为什么不早run？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 83718#       发表于 2021-9-16 10:58
+
+
+千里眼玩家可以去 FGO 美服啊，梦回绿卡时代
+
+

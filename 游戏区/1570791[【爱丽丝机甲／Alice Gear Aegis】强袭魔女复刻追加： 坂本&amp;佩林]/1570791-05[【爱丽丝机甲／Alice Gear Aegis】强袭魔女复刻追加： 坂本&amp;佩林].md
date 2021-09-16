@@ -311,3 +311,14 @@ yoyo这反差萌真可爱
 正片其实只有最后2分钟。土偶：为啥PV和动画出来被打的都是我<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  unsh  
+##### 6023#       发表于 2021-9-16 10:50
+
+
+又找日常本弱电的小怪试了下，60级手1hit是1w6左右，感觉提升也不算太大？
+
+

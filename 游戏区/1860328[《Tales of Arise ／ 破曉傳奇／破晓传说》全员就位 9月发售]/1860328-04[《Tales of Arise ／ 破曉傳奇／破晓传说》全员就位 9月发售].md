@@ -7042,3 +7042,32 @@ hard在这之前就会放分身，不是站桩沙包那种
 我觉得还是那个传说味啊（指白开水）
 
 
+
+
+*****
+
+####  TerryBlues  
+##### 5040#       发表于 2021-9-16 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770250&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-16 10:23</a>
+
+加个地图界面就有大气感不会是认真的吧……
+
+且不说传说什么时候到了要顾及大气感的档次了，感觉很多人对 ...</blockquote>
+看那个XB3怎么才能胜过TOAR的钓鱼贴就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  火红之眼  
+##### 5041#       发表于 2021-9-16 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770512&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-16 10:42</a>
+问题是这种道馆级别的“国家”对观感影响的确大啊，特别是你还整了个解放各国的宏大目标，结果现在看起来 ...</blockquote>
+祖传小家是这样的，看个设定就得了，也没打算展开这些，所以我才说多了很多奇怪的期待
+
+
