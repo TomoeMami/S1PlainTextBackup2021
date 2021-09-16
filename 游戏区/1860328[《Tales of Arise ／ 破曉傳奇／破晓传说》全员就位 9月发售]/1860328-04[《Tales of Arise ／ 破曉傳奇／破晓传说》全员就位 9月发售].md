@@ -7583,3 +7583,45 @@ nice啊，各个公司的当家rpg赶紧安排上。卡婊龙战士，科乐美�
 2021-9-16 14:27 上传
 
 
+
+
+*****
+
+####  hugosol  
+##### 5084#       发表于 2021-9-16 14:36
+
+
+全球首周出货100w听着挺吓人，日本本土20w算预期内水平吧
+
+反正这系列应该是死不了，超一线守门员水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+毕竟系列宣发和品牌运营一直做得不错的，就希望发展下去不要丢掉一些独有的特质吧
+
+
+*****
+
+####  rainsheep  
+##### 5085#       发表于 2021-9-16 14:38
+
+
+草，这第四章男二也太迷惑了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 5086#       发表于 2021-9-16 14:38
+
+
+玩到后面，我感觉这一作最大的问题是演出，太nm怪了，前期第四章那剧情很多人应该都知道了，后面女主谜语人也是伏笔连续挖得太久了点，完全没必要，影响观感太大了
+
+
+*****
+
+####  不应  
+##### 5087#       发表于 2021-9-16 14:43
+
+
+万代是打了很多广告吗，说宣发nb其实发售前我也没从几个发布会以外收到这游戏的消息<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
