@@ -8227,3 +8227,66 @@ TO系列如果想再进一步的话，音乐这部分，现在的程度还需要
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么看流程差不多是tob的一半  太短了  
 
 
+
+
+*****
+
+####  不应  
+##### 5130#       发表于 2021-9-16 23:49
+
+
+终于最后一章了，问下通关后是后日谈还是类型xb2那种回到最终boss门口的。如果是后者我就现在把支线全清了
+
+
+
+
+*****
+
+####  森兰丸  
+##### 5131#       发表于 2021-9-16 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781076&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-16 23:49</a>
+
+终于最后一章了，问下通关后是后日谈还是类型xb2那种回到最终boss门口的。如果是后者我就现在把支线全清了 ...</blockquote>
+后者
+
+不过我怕你现在打不过那些新出的支线<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 5132#       发表于 2021-9-16 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781028&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-16 23:44</a>
+
+这么看流程差不多是tob的一半  太短了</blockquote>
+主线剧情赶火车.....但好好打一遍通关要的时间一点都不少.....所以才说这次这作除了画面之外是全方位的都做崩了
+
+
+*****
+
+####  alucardcz  
+##### 5133#       发表于 2021-9-16 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781123&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-16 23:54</a>
+
+主线剧情赶火车.....但好好打一遍通关要的时间一点都不少.....所以才说这次这作除了画面之外是全方位的都 ...</blockquote>
+这作战斗想玩的舒服 优化到最后都变成单技能复读了。男主复读法师复读女主跳起来复读。。。总感觉哪里不对劲
+
+
+*****
+
+####  火红之眼  
+##### 5134#       发表于 2021-9-17 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781145&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-16 23:57</a>
+
+这作战斗想玩的舒服 优化到最后都变成单技能复读了。男主复读法师复读女主跳起来复读。。。总感觉哪里不对 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CC系统最早就这毛病了吧，只能每作换着法子不让复读了
+
+
