@@ -2836,3 +2836,14 @@ Brian Jarrard解释称知道大家有这个需求（指登陆PC），但是正�
 我一直不明白这个为啥非要潜入，做个多技能的TPS让大家爽爽不好吗
 
 
+
+
+*****
+
+####  Kabine  
+##### 238#       发表于 2021-9-16 12:37
+
+
+kh4也不是不可能……就kh3那堆隐藏来看，说不定就是真v13换皮，早都做好了那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

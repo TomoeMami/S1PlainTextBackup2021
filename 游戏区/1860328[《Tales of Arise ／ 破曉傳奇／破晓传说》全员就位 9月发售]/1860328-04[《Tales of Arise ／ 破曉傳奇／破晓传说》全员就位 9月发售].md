@@ -7227,3 +7227,26 @@ hard在这之前就会放分身，不是站桩沙包那种
 而且第二部剧情更赶，巴不得往你嘴里塞设定和剧情
 
 
+
+
+*****
+
+####  Emmerich  
+##### 5054#       发表于 2021-9-16 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52769632&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-16 09:40</a>
+
+后期的蟾蜍都是带盾的，盾存在的时候男主BA技无法倒地，洛的BA技就能把它放倒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">多谢 难怪昨天感觉好像看到了那个护罩的特效....
+
+
+*****
+
+####  shiko  
+##### 5055#       发表于 2021-9-16 12:39
+
+
+地国真漂亮啊，要不是看到地将也是主角团，这么美好肯定是反乌托邦
+
+
