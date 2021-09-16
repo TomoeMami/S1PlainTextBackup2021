@@ -7978,3 +7978,20 @@ UFO这动画做的什么鸡掰哦，风将画的也太丑哦
 各角色有什么招式好用的啊？打竞技场一看其他人整页技能选择困难（不算DLC）
 
 
+
+
+*****
+
+####  Bani82  
+##### 5113#       发表于 2021-9-16 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52778627&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-16 20:20</a>
+
+终于玩到论坛说的圣母剧情了仔细一想其实就是个特长见的日系套路，但是写的很迷惑
+
+
+如果让我来改改 ...</blockquote>
+太麻烦了，只要改成林薇儿也吃过果实就行了
+
+

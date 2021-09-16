@@ -857,3 +857,17 @@ tv全靠今石，冈妈那全员精神病剧本再来一次，谁受的了？</b
 整部动画做小人广告吗
 
 
+
+
+*****
+
+####  新HGCG  
+##### 71#         楼主| 发表于 2021-9-16 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52777547&amp;ptid=2026666" target="_blank">hqtkkb 发表于 2021-9-16 19:02</a>
+
+黑岩当年那个人设和打戏可太戳我了，就是剧情……我说真的，冈田阿姨脚本的片子我是一个也看不下去，这位还 ...</blockquote>
+冈妈脚本最好的作品是快杰佐罗狸
+
+
