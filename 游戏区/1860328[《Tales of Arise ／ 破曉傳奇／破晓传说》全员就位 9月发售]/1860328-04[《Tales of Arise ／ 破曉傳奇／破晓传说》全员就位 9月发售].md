@@ -8101,3 +8101,87 @@ pc打折
 FOV调整补丁已出，可以玩了
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5122#       发表于 2021-9-16 22:46
+
+
+大家觉得这作 “日本小旭” 樱庭统的表现如何呢？（避免引战就不发在外面了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+个人觉得他这作表现在传说系列算不错的水准了
+
+
+他擅长氛围多于旋律
+
+
+这作战斗曲整体而言我认为还行，就是普通战斗曲数量太少，那么几首放着早听腻了，巨体战用的那首TOV老曲remix我觉得一般
+
+领将迷宫和相应的迷宫主题战斗曲的音乐，以及洛，土国迷宫最终BOSS等几个剧情BOSS和最终战斗曲还不错
+
+
+场景曲方面，奥罗姆大瀑布的曲子既视感很重，特别这张还是高低差较大的地图
+
+其他的话要么印象不深，要么就是想把BGM关掉的程度，特别是后期一些场景
+
+
+过场氛围曲的话，这个是他长项，跟演出协调，但不抓耳，不会有再听一遍的想法
+
+
+主题界面/人物主题音乐，这个就真比较薄弱了，我是没什么深刻印象的
+
+
+这么一看他的弱项真的跟椎名豪的强项形成互补，要是能把豪仔请回来就好了
+
+
+TO系列如果想再进一步的话，音乐这部分，现在的程度还需要加油
+
+
+*****
+
+####  Eric_方歌阙  
+##### 5123#       发表于 2021-9-16 22:54
+
+
+到最终boss门口了，最后这迷宫也太恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，大怪一堆一堆地上，地图还复用。
+还好pc有风灵月影<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 5124#       发表于 2021-9-16 22:57
+
+
+这王城双基是在玩梗么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真尼玛厚啊，要不是有无限复读魔法不知道怎么打
+
+
+*****
+
+####  红魔馆的糖  
+##### 5125#       发表于 2021-9-16 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52780331&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-16 22:46</a>
+大家觉得这作 “日本小旭” 樱庭统的表现如何呢？（避免引战就不发在外面了
+
+
+个人觉得他这作表现在 ...</blockquote>
+这乐谱打字机出了名的经常翻车吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正这次音乐方面是真的不行
+
+
+*****
+
+####  alucardcz  
+##### 5126#       发表于 2021-9-16 23:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到水城了。。还挺壮观的
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">体感可能流程过半了吧。。结果一查发现已经3/4了。。。。
+
+
