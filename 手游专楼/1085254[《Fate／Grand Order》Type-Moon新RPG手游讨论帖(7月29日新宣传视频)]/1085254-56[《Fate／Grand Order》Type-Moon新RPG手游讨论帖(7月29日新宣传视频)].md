@@ -14428,3 +14428,29 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 千里眼玩家可以去 FGO 美服啊，梦回绿卡时代
 
 
+
+
+*****
+
+####  sjbssd  
+##### 83719#       发表于 2021-9-16 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770587&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-16 10:46</a>
+
+废话，让早准备不准备出事了才跑这抱怨。还有我凭什么开小号开荒？我早run了，所以现在打本舒服的很。你 ...</blockquote>
+你在说太平洋没加盖是吧？
+
+
+*****
+
+####  sjbssd  
+##### 83720#       发表于 2021-9-16 11:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770587&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-16 10:46</a>
+
+废话，让早准备不准备出事了才跑这抱怨。还有我凭什么开小号开荒？我早run了，所以现在打本舒服的很。你 ...</blockquote>
+那太好了，祝你以后厨的老婆都是苍月给你画<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
