@@ -8290,3 +8290,96 @@ TO系列如果想再进一步的话，音乐这部分，现在的程度还需要
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CC系统最早就这毛病了吧，只能每作换着法子不让复读了
 
 
+
+
+*****
+
+####  hkguty  
+##### 5135#       发表于 2021-9-17 00:06
+
+
+这作演出真的太糟糕了，跟隔壁的绯红一起，不知道怎么做到比几年前的CV还要糟糕的，一件很简单的事剧情都能演得很怪，只能说可能是做着做着没钱了只能省事地修修补补了吧
+
+
+*****
+
+####  森兰丸  
+##### 5136#       发表于 2021-9-17 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781199&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-17 00:03</a>
+
+CC系统最早就这毛病了吧，只能每作换着法子不让复读了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？TODR和TOGF我可是随便都能轻轻松松几十上百连啊......
+
+
+*****
+
+####  哌啶  
+##### 5137#       发表于 2021-9-17 00:07
+
+
+上天之后的叙事真的是……
+打开一台电脑给你灌设定
+走进一个空间站一堆工具人给你讲设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 5138#       发表于 2021-9-17 00:08
+
+
+ 本帖最后由 红魔馆的糖 于 2021-9-17 00:09 编辑 
+
+后面打的很痛苦，剧情没盼头，打架就复读，看个狗粮对话都扣扣索索的<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+大量的注水迷宫一点惊喜都没有，跑的发困
+
+
+*****
+
+####  alucardcz  
+##### 5139#       发表于 2021-9-17 00:11
+
+
+ 本帖最后由 alucardcz 于 2021-9-17 00:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781199&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-17 00:03</a>
+
+CC系统最早就这毛病了吧，只能每作换着法子不让复读了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前也不至于大后期单技能复读 tob和togf不是挺正常的。也就手操法师可能复读一下
+
+
+*****
+
+####  不应  
+##### 5140#       发表于 2021-9-17 00:20
+
+
+手操林薇儿听语音也太生草了，放技能咒语念个开头，后面就是以下省略，再次省略复读了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火红之眼  
+##### 5141#       发表于 2021-9-17 00:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781275&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-17 00:11</a>
+
+以前也不至于大后期单技能复读 tob和togf不是挺正常的。也就手操法师可能复读一下 ...</blockquote>
+只能说系统做得好了，有鼓励的打法就没人去复读了，这作但凡把弱点连携什么的做进去都不止于变成现在这德性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火红之眼  
+##### 5142#       发表于 2021-9-17 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781351&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-17 00:20</a>
+
+手操林薇儿听语音也太生草了，放技能咒语念个开头，后面就是以下省略，再次省略复读了 ...</blockquote>
+TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
