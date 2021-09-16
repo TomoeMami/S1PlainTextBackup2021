@@ -14709,3 +14709,17 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 他X的！我才知道日服不需要翻墙了！这是我迟了6年的启程之日！我的Grand Order！！！やっちゃえ！バーサーカー！！！
 
 
+
+
+*****
+
+####  qixinno2  
+##### 83743#       发表于 2021-9-16 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52778731&amp;ptid=1085254" target="_blank">J-002 发表于 2021-9-16 20:27</a>
+
+他X的！我才知道日服不需要翻墙了！这是我迟了6年的启程之日！我的Grand Order！！！やっちゃえ！バーサー ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死
+
+
