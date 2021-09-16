@@ -6544,3 +6544,61 @@ https://www.bilibili.com/video/BV1TL4y187HE
 其实鱼饵齐全的话鱼都是100%出想要的，拿个三星杆钓一两小时也就完事了
 
 
+
+
+*****
+
+####  森兰丸  
+##### 5003#       发表于 2021-9-16 07:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768411&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-16 07:39</a>
+
+钓鱼有不少小剧场，也涉及盾妈称号，任务那就没了
+
+其实鱼饵齐全的话鱼都是100%出想要的，拿个三星杆钓一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">就是烦一个池塘钓没钓齐所有鱼还要手动去记.....很多池塘还要跑步过去
+
+
+而为了先要换出钓竿几个池塘又要反复跑好几遍
+
+
+*****
+
+####  黑夜守望者  
+##### 5004#       发表于 2021-9-16 08:01
+
+
+钓鱼不是挺好玩的吗
+
+
+*****
+
+####  人如其名  
+##### 5005#       发表于 2021-9-16 08:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768511&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-16 07:57</a>
+
+就是烦一个池塘钓没钓齐所有鱼还要手动去记.....很多池塘还要跑步过去
+
+
+而为了先要换出钓竿几个池 ...</blockquote>
+钓没钓齐鱼这个，你找钓鱼大叔，他会告诉你还有哪些池子可以钓到新鱼的
+
+
+*****
+
+####  火红之眼  
+##### 5006#       发表于 2021-9-16 08:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768511&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-16 07:57</a>
+就是烦一个池塘钓没钓齐所有鱼还要手动去记.....很多池塘还要跑步过去
+
+
+而为了先要换出钓竿几个池 ...</blockquote>
+很多鱼种重复的，不用太刻意记，有没钓完的池子老爹会告诉你
+钓竿直接用斗技场那个就行了
+
+

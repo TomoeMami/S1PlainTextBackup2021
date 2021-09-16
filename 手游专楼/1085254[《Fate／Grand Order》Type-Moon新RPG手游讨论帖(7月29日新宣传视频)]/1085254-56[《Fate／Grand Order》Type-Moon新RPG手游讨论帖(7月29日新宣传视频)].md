@@ -14268,3 +14268,16 @@ fgo日服也想过玩啊，你让我从一堆2星3星卡无拐无礼装，宝石
 一觉起来才知道，这国服有点狠呀<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83706#       发表于 2021-9-16 08:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767464&amp;ptid=1085254" target="_blank">sjbssd 发表于 2021-9-16 01:08</a>
+fgo日服也想过玩啊，你让我从一堆2星3星卡无拐无礼装，宝石翁都没有重头开始？那你把活动难度调低点啊，你 ...</blockquote>
+6月开始到现在日服up了3个顶级拐，和一堆顶级打手，再加还有各种减半活动和大量石头送，如果真有准备和打算的话2.6的时候就会备一个号
+
+

@@ -5262,3 +5262,18 @@ TVアニメ『ラブライブ！スーパースター!!』特別パート
 看了这一集，感觉恋恋的棒读很严重啊……
 
 
+
+
+*****
+
+####  ads147147  
+##### 4923#       发表于 2021-9-16 07:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767678&amp;ptid=1909972" target="_blank">一个陆仁贾 发表于 2021-9-16 01:47</a>
+第七集有一个违和感是默认香的人缘很好，虽然和香互动的都是团里人和工具人同学，但是可可希望香当学生会长 ...</blockquote>
+kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很多人围观，香给可可问其他人要不要当偶像也说明这次入校的时候不少人都是初中的同学。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
