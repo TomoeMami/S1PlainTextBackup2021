@@ -14572,3 +14572,50 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 不过周年不去日服，现在去根本没意义啊
 
 
+
+
+*****
+
+####  bearYou  
+##### 83731#       发表于 2021-9-16 12:35
+
+
+玩bgo不是活该嘛哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83732#       发表于 2021-9-16 13:04
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 83733#       发表于 2021-9-16 13:04
+
+
+再翻页
+
+
+*****
+
+####  stefanie张  
+##### 83734#       发表于 2021-9-16 13:18
+
+
+梵高是开被动2好还被动3好
+
+
+*****
+
+####  areklose  
+##### 83735#       发表于 2021-9-16 13:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">清少纳言最好看还是初始卡面。。。
+
+
