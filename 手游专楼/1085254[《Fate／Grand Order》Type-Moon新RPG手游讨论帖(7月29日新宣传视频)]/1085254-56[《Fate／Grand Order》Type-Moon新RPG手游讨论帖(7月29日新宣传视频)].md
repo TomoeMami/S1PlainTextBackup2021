@@ -14644,3 +14644,25 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 千里眼是优势？也就那帮国服千里眼魔怔人会觉得是优势，昨天看到隔壁喷日服，一没千里眼，二全是日文，看的我一脸懵逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yangun22  
+##### 83738#       发表于 2021-9-16 14:40
+
+
+这事最开心的其实是WW，又在推上狂欢了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 83739#       发表于 2021-9-16 14:41
+
+
+<blockquote>areklose 发表于 2021-9-16 13:18
+清少纳言最好看还是初始卡面。。。</blockquote>
+对的，我和我同学也都这么觉得，后面几张感觉颜色太多太杂和背景混起来了，初始看起来最清爽
+
+

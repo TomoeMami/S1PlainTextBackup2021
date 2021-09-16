@@ -7625,3 +7625,60 @@ nice啊，各个公司的当家rpg赶紧安排上。卡婊龙战士，科乐美�
 万代是打了很多广告吗，说宣发nb其实发售前我也没从几个发布会以外收到这游戏的消息<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  oniwarud  
+##### 5088#       发表于 2021-9-16 14:51
+
+
+<blockquote>不应 发表于 2021-9-16 14:43
+万代是打了很多广告吗，说宣发nb其实发售前我也没从几个发布会以外收到这游戏的消息 ...</blockquote>
+科隆展上都专门花钱搞了现场音乐会演出
+
+
+*****
+
+####  izayoi39  
+##### 5089#       发表于 2021-9-16 14:55
+
+
+通关后测了几次boss战，倒地属性堆够高是把boss能打出来短暂的倒地硬直的，不过这个数值要求是在是太高了
+
+
+*****
+
+####  whzfjk  
+##### 5090#       发表于 2021-9-16 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773977&amp;ptid=1860328" target="_blank">izayoi39 发表于 2021-9-16 14:55</a>
+
+通关后测了几次boss战，倒地属性堆够高是把boss能打出来短暂的倒地硬直的，不过这个数值要求是在是太高了 ...</blockquote>
+问题是倒地也持续不了多长时间，刚赶过去就起身了
+
+
+*****
+
+####  魂淡放我出去  
+##### 5091#       发表于 2021-9-16 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52772589&amp;ptid=1860328" target="_blank">hugosol 发表于 2021-9-16 13:03</a>
+
+忽然想起来麻婆不是雷纳人么，怎么会用光魔法</blockquote>
+因为他有光灵石，所以只有他一个雷纳人能用光魔法
+
+
+*****
+
+####  不应  
+##### 5092#       发表于 2021-9-16 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773977&amp;ptid=1860328" target="_blank">izayoi39 发表于 2021-9-16 14:55</a>
+通关后测了几次boss战，倒地属性堆够高是把boss能打出来短暂的倒地硬直的，不过这个数值要求是在是太高了 ...</blockquote>
+倒地几个兽性的巨体boss就行了的，但是基本上一倒地就起身，没啥意义
+
+

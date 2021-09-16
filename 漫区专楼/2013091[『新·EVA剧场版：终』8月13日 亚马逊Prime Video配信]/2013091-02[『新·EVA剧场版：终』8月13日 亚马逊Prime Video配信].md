@@ -3061,3 +3061,32 @@ TV版好感是慢慢刷出来的,一开始香和丽都不喜欢真嗣,虽然因�
 不过这也太俗了，我还是喜欢那个宛如机战附身大吼“把凌波还给我”的真嗣
 
 
+
+
+*****
+
+####  mj0017  
+##### 1696#       发表于 2021-9-16 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767542&amp;ptid=2013091" target="_blank">女神アイギス 发表于 2021-9-16 01:23</a>
+
+就是想表达真嗣成年了吧
+
+对成年人来说，大胸的好女人已经是一个足够合理的cp理由了
+
+不过这也太俗 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/16/144835fdllvoex1llvb10w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4d912e88ly1gu55mnc4mtj21ha0mon16.jpg</strong> (160.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 14:48 上传
+
+
+看到最后这幕只有一个感受:好恶心
+
+
