@@ -8383,3 +8383,14 @@ CC系统最早就这毛病了吧，只能每作换着法子不让复读了</bloc
 TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  索非亚  
+##### 5143#       发表于 2021-9-17 00:36
+
+
+草，这伊芙利特就是杂兵战阿，打完3波一个qte就结束了。3波打完地上躺着2人还浪费了我一个CP糖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
