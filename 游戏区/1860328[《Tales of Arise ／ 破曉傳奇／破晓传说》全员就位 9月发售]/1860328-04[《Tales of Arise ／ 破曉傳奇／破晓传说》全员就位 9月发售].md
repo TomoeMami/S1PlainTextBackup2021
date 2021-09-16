@@ -8087,3 +8087,17 @@ tov的重制版就卖了这么多？卖的比原版还多</blockquote>
 pc打折
 
 
+
+
+*****
+
+####  The_Fool_  
+##### 5121#       发表于 2021-9-16 22:24
+
+
+[https://bbs.3dmgame.com/thread-6208311-1-1.html](https://bbs.3dmgame.com/thread-6208311-1-1.html)
+
+
+FOV调整补丁已出，可以玩了
+
+
