@@ -14619,3 +14619,14 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">清少纳言最好看还是初始卡面。。。
 
 
+
+
+*****
+
+####  zhc016  
+##### 83736#       发表于 2021-9-16 13:23
+
+
+利好rmt，昨晚一看带几个新拐的石头号全部涨了一圈，早知道也屯几个抽抽乐<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

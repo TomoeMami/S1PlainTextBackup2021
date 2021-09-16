@@ -2877,3 +2877,14 @@ kh4也不是不可能……就kh3那堆隐藏来看，说不定就是真v13换�
 这系列估计受限于资金沙盒规模不大，又是个RPG，来来回回几个点直线爽文也没啥意思，关卡设计前期整复杂点倒确实不容易腻味，后期也一直鼓励潜入倒是可以改改
 
 
+
+
+*****
+
+####  唯_change  
+##### 241#       发表于 2021-9-16 13:29
+
+
+FF9 remake，一看到这条就知道是假消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
