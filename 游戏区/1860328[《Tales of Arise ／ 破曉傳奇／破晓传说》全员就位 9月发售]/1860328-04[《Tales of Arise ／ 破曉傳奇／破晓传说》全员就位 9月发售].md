@@ -8524,3 +8524,16 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 希侬跳起来复读不一定有奥尔芬琳薇尔伤害高，但是安全简单又无脑啊
 
 
+
+
+*****
+
+####  yzqray  
+##### 5154#       发表于 2021-9-17 07:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782134&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-17 04:07</a>
+这招到底是隐藏秘奥义还是废弃数据？</blockquote>
+这是最终战那招特殊演出的第二秘奥义啊
+
+
