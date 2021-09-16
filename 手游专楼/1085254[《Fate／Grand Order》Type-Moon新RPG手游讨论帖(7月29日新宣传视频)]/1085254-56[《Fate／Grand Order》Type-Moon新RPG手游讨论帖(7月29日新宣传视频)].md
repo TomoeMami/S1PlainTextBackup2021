@@ -14454,3 +14454,52 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 那太好了，祝你以后厨的老婆都是苍月给你画<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  シャル  
+##### 83721#       发表于 2021-9-16 11:22
+
+
+ 本帖最后由 シャル 于 2021-9-16 11:29 编辑 
+
+哈哈，有新热搜了
+
+
+真名削除、真名封锁
+
+
+河奥伯龙真名溶解一样给力啊
+
+
+*****
+
+####  zakki  
+##### 83722#       发表于 2021-9-16 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771177&amp;ptid=1085254" target="_blank">sjbssd 发表于 2021-9-16 11:19</a>
+
+那太好了，祝你以后厨的老婆都是苍月给你画</blockquote>
+啊这，太低级了吧，你还不如祝我千石沉船，反正我也没有千石<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sandro  
+##### 83723#       发表于 2021-9-16 11:34
+
+
+能看日文的早玩日服了吧，国服比日服只多个中文优势
+
+
+*****
+
+####  yzj134100  
+##### 83724#       发表于 2021-9-16 11:37
+
+
+这程度还不如抱怨没保底导致抽不到强力角色去打主线来得信服
+
+

@@ -7137,3 +7137,62 @@ hard在这之前就会放分身，不是站桩沙包那种
 后期天天对着换皮小BOSS打qte确实烦人
 
 
+
+
+*****
+
+####  放大镜  
+##### 5047#       发表于 2021-9-16 11:30
+
+
+昨天刚打完斧男，这算是个序章？
+
+
+是只有序章这么短，还是后边几块领地的解放事业都是这么的如火如荼……
+
+
+*****
+
+####  魂淡放我出去  
+##### 5048#       发表于 2021-9-16 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771375&amp;ptid=1860328" target="_blank">放大镜 发表于 2021-9-16 11:30</a>
+
+昨天刚打完斧男，这算是个序章？
+
+
+是只有序章这么短，还是后边几块领地的解放事业都是这么的如火如荼…… ...</blockquote>
+都差不多长？反正我全领地解放时间大概是33小时
+
+
+*****
+
+####  火之魂  
+##### 5049#       发表于 2021-9-16 11:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">25小时多点全程主线打完了猴子难度，虽然不是奖杯党不过最后3个剧情杯bug没得卡的非常膈应，最后那个迷宫一正一反半夜打的直犯困，DLC整了双倍经验双倍sp之后感觉良好，支线歇两天等假期再玩了
+
+
+*****
+
+####  最浅的语言  
+##### 5050#       发表于 2021-9-16 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52770594&amp;ptid=1860328" target="_blank">黑夜守望者 发表于 2021-9-16 10:47</a>
+
+其实咋一看之下女主的人设和建模不太戳我，但是眼睛真的很漂亮，看得着迷 ...</blockquote>
+毕竟是发光眼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中泽君  
+##### 5051#       发表于 2021-9-16 11:41
+
+
+女主第二部造型很戳我，初看还有点像TOV的艾丝蒂尔开始的公主装，满足了TOV没有这换装称号的遗憾
+
+
