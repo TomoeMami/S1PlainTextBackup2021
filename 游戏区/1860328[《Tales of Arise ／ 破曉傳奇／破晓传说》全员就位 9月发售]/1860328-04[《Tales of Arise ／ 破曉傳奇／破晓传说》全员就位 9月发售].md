@@ -8196,3 +8196,34 @@ TO系列如果想再进一步的话，音乐这部分，现在的程度还需要
 玩到后面又是恶心的地图，又是星灵力的自我意志啥的，这剧情跟TOG也太尼玛像了
 
 
+
+
+*****
+
+####  森兰丸  
+##### 5128#       发表于 2021-9-16 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52780510&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-16 23:02</a>
+
+到水城了。。还挺壮观的
+
+体感可能流程过半了吧。。结果一查发现已经3/4了。。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没这么多.....还剩差不多3分之1吧.....不过之后基本都是给你灌输流水线剧情和用又长又臭的迷宫来恶心你
+
+
+辣鸡游戏大后期是真的做崩了
+
+
+*****
+
+####  alucardcz  
+##### 5129#       发表于 2021-9-16 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52780934&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-16 23:36</a>
+
+没这么多.....还剩差不多3分之1吧.....不过之后基本都是给你灌输流水线剧情和用又长又臭的迷宫来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么看流程差不多是tob的一半  太短了  
+
+

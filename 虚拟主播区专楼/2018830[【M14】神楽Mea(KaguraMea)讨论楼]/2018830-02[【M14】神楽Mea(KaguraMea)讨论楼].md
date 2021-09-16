@@ -13973,3 +13973,30 @@ SL打钱，直接偷表情包
 懂了，应该是放录像，看来是合唱一首曲子就无了
 
 
+
+
+*****
+
+####  2014720  
+##### 2756#       发表于 2021-9-16 23:28
+
+
+开头就翻，你唱的是个几把<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2757#       发表于 2021-9-16 23:29
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/232928alv0q8qfmq19bv0q.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (13.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 23:29 上传
+
+
