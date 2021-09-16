@@ -14364,3 +14364,17 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我一个臭装备怎么就能让master卡进度了
 
 
+
+
+*****
+
+####  sjbssd  
+##### 83714#       发表于 2021-9-16 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768523&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-16 08:00</a>
+
+6月开始到现在日服up了3个顶级拐，和一堆顶级打手，再加还有各种减半活动和大量石头送，如果真有准备和打 ...</blockquote>
+笑死，你帮我预言一下一个月后的双色球好不好
+
+

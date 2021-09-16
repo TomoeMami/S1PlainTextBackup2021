@@ -6940,3 +6940,42 @@ toar就算整个类似的平铺大地图哪怕只能用光标十字键选目的�
 我觉得FF7R后面应该还会有的，毕竟原版就有，总不能砍了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hotsmile  
+##### 5032#       发表于 2021-9-16 10:22
+
+
+盾娘到底力气有多大，奥尔芬居然双手拿不起她的棒子，人家单手轻松拿起
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  火红之眼  
+##### 5033#       发表于 2021-9-16 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52769081&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-16 09:03</a>
+toar就算整个类似的平铺大地图哪怕只能用光标十字键选目的地，地图的小气感都不会有现在那么强吧 ...</blockquote>
+加个地图界面就有大气感不会是认真的吧……
+且不说传说什么时候到了要顾及大气感的档次了，感觉很多人对这作要求高得有点不可思议
+
+
+*****
+
+####  Bani82  
+##### 5034#       发表于 2021-9-16 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768942&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-16 08:50</a>
+
+难度会影响boss AI的，比如光领主的二阶段分身，就只有困难会出，次级都不会有这个阶段 ...</blockquote>
+分身是指那几个站着不动的，放完大招后会出来砍人的？
+
+我记得N难度是有的
+
+
