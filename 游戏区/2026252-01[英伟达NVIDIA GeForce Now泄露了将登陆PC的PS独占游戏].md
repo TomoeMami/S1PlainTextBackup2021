@@ -2822,3 +2822,17 @@ FF9 Remake？！<img src="https://static.saraba1st.com/image/smiley/face2017/105
 Brian Jarrard解释称知道大家有这个需求（指登陆PC），但是正如之前说过的这是不可能的，因为工作室正专注于无限和MCC，也并不是说永远不，但目前确实是没有任何进展。
 
 
+
+
+*****
+
+####  五元请收好  
+##### 237#       发表于 2021-9-16 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748530&amp;ptid=2026252" target="_blank">雁落北山 发表于 2021-9-14 20:05</a>
+
+老实说如果不是英伟达做消息源，这名单有太多未知数，有些续作项目怕是要5年后才有可能进入宣传期，现在很 ...</blockquote>
+我一直不明白这个为啥非要潜入，做个多技能的TPS让大家爽爽不好吗
+
+

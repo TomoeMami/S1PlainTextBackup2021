@@ -14538,3 +14538,37 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 话说有没有谁考虑开新楼啊，感觉卡页现象越发严重了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83728#       发表于 2021-9-16 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771762&amp;ptid=1085254" target="_blank">sjbssd 发表于 2021-9-16 11:53</a>
+嗐，还是你懂你自己，那就祝你抽不到5星吧，反正没保底</blockquote>
+你是想要笑死我吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83729#       发表于 2021-9-16 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771446&amp;ptid=1085254" target="_blank">sandro 发表于 2021-9-16 11:34</a>
+
+能看日文的早玩日服了吧，国服比日服只多个中文优势</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是你不对了 国服还有千里眼啊(
+
+
+*****
+
+####  シャル  
+##### 83730#       发表于 2021-9-16 12:12
+
+
+不过周年不去日服，现在去根本没意义啊
+
+
