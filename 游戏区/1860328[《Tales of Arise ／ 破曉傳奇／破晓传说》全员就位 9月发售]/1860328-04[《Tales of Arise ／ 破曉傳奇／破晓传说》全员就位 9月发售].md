@@ -6925,3 +6925,18 @@ toar就算整个类似的平铺大地图哪怕只能用光标十字键选目的�
 选的人是你的十字键，另一个人随机
 
 
+
+
+*****
+
+####  黑夜守望者  
+##### 5031#       发表于 2021-9-16 10:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52769074&amp;ptid=1860328" target="_blank">ranapocket 发表于 2021-9-16 09:02</a>
+然而ff自己也放弃大地图了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+我觉得FF7R后面应该还会有的，毕竟原版就有，总不能砍了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

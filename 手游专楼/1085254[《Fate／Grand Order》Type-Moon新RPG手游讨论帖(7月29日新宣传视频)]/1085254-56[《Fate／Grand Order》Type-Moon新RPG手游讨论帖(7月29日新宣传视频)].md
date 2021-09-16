@@ -14351,3 +14351,16 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">完蛋 你楼的纯度要**降低了 
 
 
+
+
+*****
+
+####  yzj134100  
+##### 83713#       发表于 2021-9-16 09:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近体感直连比我挂梯子还要快
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">按钮做了按钮应做的事怎么还要被吐槽
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我一个臭装备怎么就能让master卡进度了
+
+
