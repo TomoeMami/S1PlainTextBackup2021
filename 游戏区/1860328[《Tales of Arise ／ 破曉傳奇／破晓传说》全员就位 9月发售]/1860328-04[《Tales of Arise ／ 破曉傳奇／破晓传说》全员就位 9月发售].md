@@ -7866,3 +7866,16 @@ steam在线率那么高，感觉日本那边没啥销量<img src="https://static
 林薇儿的第二个羁绊对话好甜啊，终于有点冒险同伴的感觉了
 
 
+
+
+*****
+
+####  Bani82  
+##### 5105#       发表于 2021-9-16 19:29
+
+
+这次最林薇尔感官真的很不错，男的话迪奥绝对是可靠的伙伴
+
+不过脑部温泉情节两个男的帮迪奥脱衣服实在是<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
