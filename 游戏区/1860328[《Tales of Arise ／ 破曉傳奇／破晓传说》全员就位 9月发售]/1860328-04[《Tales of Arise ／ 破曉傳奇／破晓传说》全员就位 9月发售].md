@@ -7828,3 +7828,19 @@ steam在线率那么高，感觉日本那边没啥销量<img src="https://static
 日本那会不会有人有完全版商法ptsd不敢买
 
 
+
+
+*****
+
+####  squaresfc  
+##### 5102#       发表于 2021-9-16 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52767812&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-16 02:17</a>
+
+然后他乐呵呵的把光领主灭了，他知道复仇成鬼把爹害死，然后换了个目标报仇成了，入队搞谐，承担新责任
+
+ ...</blockquote>
+你看，你又没搞懂，复仇本身没错，错的是不能被复仇蒙蔽了双眼，问题的关键你还是没搞对，你的认知还处于低级水平，和你已经没什么好说了。
+
+
