@@ -14320,3 +14320,14 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 现在转日服的利好消息也不是没有，在2.6开始出半拐的情况下，可能之后强度迭代的速度会非常快了
 
 
+
+
+*****
+
+####  zore  
+##### 83710#       发表于 2021-9-16 09:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">利好rmt
+
+

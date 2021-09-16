@@ -6817,3 +6817,78 @@ dq啊，论不抛弃老传统怎么能忘了这位</blockquote>
 toar就算整个类似的平铺大地图哪怕只能用光标十字键选目的地，地图的小气感都不会有现在那么强吧
 
 
+
+
+*****
+
+####  蓝雉  
+##### 5022#       发表于 2021-9-16 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52769077&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-16 09:02</a>
+
+和罗爷与丽霞的比翼双龙击一个道理吧</blockquote>
+结果反而是他和希侬的bs最朴素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魂淡放我出去  
+##### 5023#       发表于 2021-9-16 09:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52768272&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-16 07:02</a>
+我觉得其实没毛病，如果是我的朋友指手画脚我家乡的习俗，我肯定也不爽
+
+何况达纳人焚烧尸体也不是他们的 ...</blockquote>
+琳薇儿反应我是能够理解，但就是这个支线应该再往前提一下，出现的时间点不对
+
+
+*****
+
+####  ranapocket  
+##### 5024#       发表于 2021-9-16 09:07
+
+
+杜欧哈林和林薇儿的增幅演出也挺配的
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  语法错误  
+##### 5025#       发表于 2021-9-16 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52769112&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-9-16 09:05</a>
+
+结果反而是他和希侬的bs最朴素</blockquote>
+这么一说我打了30多小时还没见过阿周那和希侬的bs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Emmerich  
+##### 5026#       发表于 2021-9-16 09:17
+
+
+蟾蜍车轮滚滚怎么打来着…火刀bg有时候打上去都不倒地 盾牌还得等他滚出来才能断 感觉小怪里就这种体验最差 
+
+
+*****
+
+####  法拉  
+##### 5027#       发表于 2021-9-16 09:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52769021&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-16 08:57</a>
+
+阻扰别人报仇一定程度上就是表达“我能寻仇你不能”的想法了，起码是“不能这样”
+
+因为是典中典通透人， ...</blockquote>
+阻止复仇的前提是被阻止人有能力复仇，琳薇儿还是要被风领主吊着打，阻止她被仇恨驱使以卵击石应该叫帮她悬崖勒马
+
+实际上就是演出味儿太冲，不挡攻击就没那么多破事，不论怎么事后解释这个桥段都不见得有太大毛病，一旦涉及到这个场景的人物具体行动上面，就很有问题了，然而这种简单粗暴又夸张的演出是jrpg甩不掉的糟粕，不得不品
+
+

@@ -5277,3 +5277,16 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  player3960  
+##### 4924#       发表于 2021-9-16 09:14
+
+
+第四集看香音的得票数也能看出她人缘最好了，而且音乐科同学也有人认识她，真要是参选，怕不是音乐科还会跑票投给她……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
