@@ -8537,3 +8537,14 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 这是最终战那招特殊演出的第二秘奥义啊
 
 
+
+
+*****
+
+####  godless2020  
+##### 5155#       发表于 2021-9-17 07:33
+
+
+敌我2倍伤害已经无法拿下来了，复活药成最大赢家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
