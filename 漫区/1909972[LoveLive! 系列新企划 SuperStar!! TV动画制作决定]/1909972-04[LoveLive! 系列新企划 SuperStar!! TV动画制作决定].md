@@ -5290,3 +5290,15 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  Erikas  
+##### 4925#       发表于 2021-9-16 09:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这样一说感觉小千更没啥赢面了
+以前跟香音关系好的人里的其中一个
+
+

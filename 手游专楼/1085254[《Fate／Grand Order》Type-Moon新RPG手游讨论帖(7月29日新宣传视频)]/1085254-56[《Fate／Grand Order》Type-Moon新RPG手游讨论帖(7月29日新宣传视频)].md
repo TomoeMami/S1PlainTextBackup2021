@@ -14331,3 +14331,23 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">利好rmt
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 83711#       发表于 2021-9-16 09:28
+
+
+4单没出，明年再见<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usoda  
+##### 83712#       发表于 2021-9-16 09:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">完蛋 你楼的纯度要**降低了 
+
+
