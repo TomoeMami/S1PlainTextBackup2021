@@ -7533,3 +7533,53 @@ nice啊，各个公司的当家rpg赶紧安排上。卡婊龙战士，科乐美�
 所以有了治疗机构的谎言，不是失踪进去的，是被送进去的
 
 
+
+
+*****
+
+####  放大镜  
+##### 5081#       发表于 2021-9-16 14:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773004&amp;ptid=1860328" target="_blank">魔皇崩裂拳 发表于 2021-9-16 13:36</a>
+
+玩了第一节的感受：
+
+
+主角从初始地点跑几步，就到了反抗军基地，然后出门上电梯，到了敌军总部。</blockquote>
+有大地图的时候这些都不是问题。
+
+
+传说系列现在是把大地图砍了，聚落间的通路做得又不够长，才会讨得现在这副窘态。
+
+
+归根结底，学啥不好学砍大地图，大地图也算是增强冒险感的最传统也最经济的选项了。
+
+
+*****
+
+####  最浅的语言  
+##### 5082#       发表于 2021-9-16 14:08
+
+
+所以冷饭HD也会是虚幻4引擎吗
+
+
+*****
+
+####  laoz  
+##### 5083#       发表于 2021-9-16 14:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">tgs也要把破晓拉出来
+
+<img src="https://img.saraba1st.com/forum/202109/16/142745hke0ljpoppllfplu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (58.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 14:27 上传
+
+
