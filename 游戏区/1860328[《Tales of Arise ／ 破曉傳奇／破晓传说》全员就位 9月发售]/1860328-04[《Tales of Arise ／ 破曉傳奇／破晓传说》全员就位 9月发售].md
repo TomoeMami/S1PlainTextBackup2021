@@ -7844,3 +7844,14 @@ steam在线率那么高，感觉日本那边没啥销量<img src="https://static
 你看，你又没搞懂，复仇本身没错，错的是不能被复仇蒙蔽了双眼，问题的关键你还是没搞对，你的认知还处于低级水平，和你已经没什么好说了。
 
 
+
+
+*****
+
+####  godless2020  
+##### 5103#       发表于 2021-9-16 19:05
+
+
+全种类石头分布地图还没有吧，只能靠记忆记住几个位置<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

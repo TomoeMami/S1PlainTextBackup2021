@@ -812,3 +812,14 @@ tv全靠今石，冈妈那全员精神病剧本再来一次，谁受的了？</b
 山内重保？
 
 
+
+
+*****
+
+####  hqtkkb  
+##### 68#       发表于 2021-9-16 19:02
+
+
+黑岩当年那个人设和打戏可太戳我了，就是剧情……我说真的，冈田阿姨脚本的片子我是一个也看不下去，这位还是高抬贵手吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
