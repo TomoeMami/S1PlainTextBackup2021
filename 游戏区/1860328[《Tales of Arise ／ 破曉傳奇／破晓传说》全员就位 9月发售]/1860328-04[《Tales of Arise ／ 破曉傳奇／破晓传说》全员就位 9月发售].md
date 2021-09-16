@@ -8440,3 +8440,87 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 这游戏用主角玩到后期还真是越来越简单，巴不得全部按键都是一个技能<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Errey  
+##### 5148#       发表于 2021-9-17 02:10
+
+
+ 本帖最后由 Errey 于 2021-9-17 02:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52775771&amp;ptid=1860328" target="_blank">squaresfc 发表于 2021-9-16 16:51</a>
+
+你看，你又没搞懂，复仇本身没错，错的是不能被复仇蒙蔽了双眼，问题的关键你还是没搞对，你的认知还处于 ...</blockquote>讨论什么都没弄清楚就别拿人身攻击开场了，讨论的是洛这种行为是否极端，剧作想要传达什么观点根本不重要，拿着大纲就往别人脸上怼，表达一塌糊涂，跟编剧一样自己理解自己的，谁能比你提取得更深刻？
+
+拿着经验就往上套，第四章到底谁被复仇蒙蔽了双眼，你说的还是编剧说的？法师放狠话就蒙蔽了双眼？她是长了一张臭嘴，但是干啥不在理的事至于不长眼了？还是洛那不知所谓的发言直接间接传达了这意思？
+
+洛，一个因复仇受害也收益的，全凭臆想、猜想和自己那点经历就断定别人的想法和将来，替别人慷慨、做决定；没太多比这强要当你爹更极端了
+
+
+*****
+
+####  江口夕  
+##### 5149#       发表于 2021-9-17 03:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781145&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-16 23:57</a>
+这作战斗想玩的舒服 优化到最后都变成单技能复读了。男主复读法师复读女主跳起来复读。。。总感觉哪里不对 ...</blockquote>
+没有，大部分通关后还在修炼的已经开始洗4个火15%玩一刀流了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  市松椿  
+##### 5150#       发表于 2021-9-17 04:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782115&amp;ptid=1860328" target="_blank">江口夕 发表于 2021-9-17 03:50</a>
+
+没有，大部分通关后还在修炼的已经开始洗4个火15%玩一刀流了
+
+
+—— 来自 Xiaomi Redmi K30 Pro, Android  ...</blockquote>
+主能力用啥呢
+
+
+*****
+
+####  izayoi39  
+##### 5151#       发表于 2021-9-17 04:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782125&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-17 04:00</a>
+主能力用啥呢</blockquote>
+主用属性攻击力或者对人品有自信用贯穿力
+
+
+*****
+
+####  JudgmentEye  
+##### 5152#       发表于 2021-9-17 04:07
+
+
+这招到底是隐藏秘奥义还是废弃数据？
+
+<img src="https://img.saraba1st.com/forum/202109/17/040727m40w6ndnz0ad0911.png" referrerpolicy="no-referrer">
+
+
+<strong>skill.png</strong> (184.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 04:07 上传
+
+
+*****
+
+####  kangkangsama  
+##### 5153#       发表于 2021-9-17 05:14
+
+
+希侬跳起来复读不一定有奥尔芬琳薇尔伤害高，但是安全简单又无脑啊
+
+
