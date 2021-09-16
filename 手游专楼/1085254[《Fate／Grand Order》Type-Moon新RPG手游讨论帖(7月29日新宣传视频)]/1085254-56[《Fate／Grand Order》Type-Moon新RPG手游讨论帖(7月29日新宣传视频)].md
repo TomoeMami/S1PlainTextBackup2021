@@ -14723,3 +14723,19 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死
 
 
+
+
+*****
+
+####  芭德薇  
+##### 83744#       发表于 2021-9-16 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773066&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-16 13:41</a>
+
+千里眼是优势？也就那帮国服千里眼魔怔人会觉得是优势，昨天看到隔壁喷日服，一没千里眼，二全是日文，看 ...</blockquote>
+千里眼 x  
+
+一年前的冷饭 o
+
+

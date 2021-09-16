@@ -8030,3 +8030,60 @@ UFO这动画做的什么鸡掰哦，风将画的也太丑哦
 最后，底裤四角安全裤是原罪。
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 5116#       发表于 2021-9-16 21:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打了白嫖dlc补丁后打开游戏就会进op是什么鬼
+
+
+*****
+
+####  奈奈未喵  
+##### 5117#       发表于 2021-9-16 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52779140&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-16 20:59</a>
+太麻烦了，只要改成林薇儿也吃过果实就行了</blockquote>
+那就很难了 毕竟她是最不信任雷纳人的 红毛宴会上都一口没吃 如果按吃了果实的前提写这段 前面也得改 血海深仇的人设就崩了
+
+
+*****
+
+####  JudgmentEye  
+##### 5118#       发表于 2021-9-16 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52775465&amp;ptid=1860328" target="_blank">いみじくも萌二 发表于 2021-9-16 16:33</a>
+
+日本那会不会有人有完全版商法ptsd不敢买</blockquote>
+真要这样卡婊早倒闭了
+
+
+*****
+
+####  shiko  
+##### 5119#       发表于 2021-9-16 21:35
+
+
+<blockquote>奈奈未喵 发表于 2021-9-16 21:30
+那就很难了 毕竟她是最不信任雷纳人的 红毛宴会上都一口没吃 如果按吃了果实的前提写这段 前面也得改 血 ...</blockquote>
+可以改成漆黑之翼那个和蔼的爷爷喂的嘛，其实也不难
+
+
+*****
+
+####  JudgmentEye  
+##### 5120#       发表于 2021-9-16 21:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52775276&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-16 16:22</a>
+
+tov的重制版就卖了这么多？卖的比原版还多</blockquote>
+pc打折
+
+
