@@ -2847,3 +2847,17 @@ Brian Jarrard解释称知道大家有这个需求（指登陆PC），但是正�
 kh4也不是不可能……就kh3那堆隐藏来看，说不定就是真v13换皮，早都做好了那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  雁落北山  
+##### 239#       发表于 2021-9-16 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52771779&amp;ptid=2026252" target="_blank">医生狼多 发表于 2021-9-16 11:55</a>
+
+343也出来否了</blockquote>
+那估计就只是名单上的作品在这个世代开发过程中PC可运行，实际有没计划是另一回事，移植问题，只能说这个名单里的可能性很大就是了，里面的主机第一方作品最多2~3年后才可能有所考虑，第三方倒是最有可能在不签署协议的情况下同步或者延后1~2年
+
+

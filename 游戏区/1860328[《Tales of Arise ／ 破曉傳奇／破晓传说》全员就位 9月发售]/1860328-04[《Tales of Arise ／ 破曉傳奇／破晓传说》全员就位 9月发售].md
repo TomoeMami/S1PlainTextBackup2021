@@ -7250,3 +7250,35 @@ hard在这之前就会放分身，不是站桩沙包那种
 地国真漂亮啊，要不是看到地将也是主角团，这么美好肯定是反乌托邦
 
 
+
+
+*****
+
+####  hugosol  
+##### 5056#       发表于 2021-9-16 13:03
+
+
+忽然想起来麻婆不是雷纳人么，怎么会用光魔法
+
+
+*****
+
+####  haru橙子  
+##### 5057#       发表于 2021-9-16 13:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52772589&amp;ptid=1860328" target="_blank">hugosol 发表于 2021-9-16 13:03</a>
+
+忽然想起来麻婆不是雷纳人么，怎么会用光魔法</blockquote>
+女主也会啊
+
+
+*****
+
+####  黑夜守望者  
+##### 5058#       发表于 2021-9-16 13:07
+
+
+第四章编剧和演出应该拉去游街示众<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
