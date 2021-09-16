@@ -14630,3 +14630,17 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 利好rmt，昨晚一看带几个新拐的石头号全部涨了一圈，早知道也屯几个抽抽乐<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83737#       发表于 2021-9-16 13:41
+
+
+ 本帖最后由 zakki 于 2021-9-16 13:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52772014&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-16 12:11</a>
+这就是你不对了 国服还有千里眼啊(</blockquote>
+千里眼是优势？也就那帮国服千里眼魔怔人会觉得是优势，昨天看到隔壁喷日服，一没千里眼，二全是日文，看的我一脸懵逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
