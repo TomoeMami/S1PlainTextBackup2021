@@ -7922,3 +7922,48 @@ UFO这动画做的什么鸡掰哦，风将画的也太丑哦
 准备入PC，想问下拯救者1650显卡跑起来如何
 
 
+
+
+*****
+
+####  makar0601  
+##### 5109#       发表于 2021-9-16 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52778422&amp;ptid=1860328" target="_blank">lzmmzlzm 发表于 2021-9-16 20:06</a>
+准备入PC，想问下拯救者1650显卡跑起来如何</blockquote>
+还行，60大多时候都稳，有些复杂地图掉点
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lzmmzlzm  
+##### 5110#       发表于 2021-9-16 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52778493&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-16 20:11</a>
+
+还行，60大多时候都稳，有些复杂地图掉点
+
+
+—— 来自 motorola XT2153-1, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+那安心了，我开个中画质就好了，不是画面党
+
+
+*****
+
+####  shiko  
+##### 5111#       发表于 2021-9-16 20:20
+
+
+终于玩到论坛说的圣母剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">仔细一想其实就是个特长见的日系套路，但是写的很迷惑
+
+
+如果让我来改改的话，应该这么写：林薇儿报仇宣言，进战斗，必败战，出战之后来一段林薇儿失去理智乱放魔法影响团队配合，差点打中队友什么的，被风将抓空子单杀，然后洛挡刀，然后风将放出恐龙，林薇儿和洛暂时无法战斗，打败了恐龙之后林薇儿自责让洛受伤，然后众人教育“被憎恨控制是不对的”
+
+
+这样会不会通顺一点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">现在这段演出，洛跑出去挡刀的逻辑确实有点怪
+
+
