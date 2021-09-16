@@ -7855,3 +7855,14 @@ steam在线率那么高，感觉日本那边没啥销量<img src="https://static
 全种类石头分布地图还没有吧，只能靠记忆记住几个位置<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  shiko  
+##### 5104#       发表于 2021-9-16 19:19
+
+
+林薇儿的第二个羁绊对话好甜啊，终于有点冒险同伴的感觉了
+
+

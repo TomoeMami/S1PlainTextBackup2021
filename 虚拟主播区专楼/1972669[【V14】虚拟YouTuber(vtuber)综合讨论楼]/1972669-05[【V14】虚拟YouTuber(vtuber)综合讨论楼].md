@@ -13889,3 +13889,23 @@ vspo这新人的apex剪辑开头还吧hnn带她进训练场放进来了
 nijirock已成绝唱，但好歹有个代餐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7023#       发表于 2021-9-16 19:24
+
+
+这RIG杯是不是本番前只能打一次练习<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 7024#       发表于 2021-9-16 19:25
+
+
+rig肯定被诅咒了，上次也是各种状况
+
+
