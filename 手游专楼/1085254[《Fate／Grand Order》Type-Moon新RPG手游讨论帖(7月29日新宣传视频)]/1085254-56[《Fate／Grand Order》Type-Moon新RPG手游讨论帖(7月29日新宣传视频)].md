@@ -14807,3 +14807,17 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 我就问一句，现在日服是不是有C呆和5宝宇宙凛，基本就随便冲了？单体需要补谁？
 
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 83750#       发表于 2021-9-17 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781119&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-9-16 23:54</a>
+
+有维护，不过，各位估计也知道了。</blockquote>
+我都没看公告，刚一个金苹果下去www
+
+

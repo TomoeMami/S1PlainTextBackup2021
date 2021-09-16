@@ -8394,3 +8394,29 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 草，这伊芙利特就是杂兵战阿，打完3波一个qte就结束了。3波打完地上躺着2人还浪费了我一个CP糖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  9α  
+##### 5144#       发表于 2021-9-17 00:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打到播放op2了。
+
+药差点就没了
+
+
+*****
+
+####  魂淡放我出去  
+##### 5145#       发表于 2021-9-17 00:56
+
+
+打通关了，什么傻逼剧情，吐了
+什么阴间配色堪比dmc5的最终迷宫，吐了
+什么阴间六个传送门混了一个boss的设计，真的吐了
+
+玛德又想到这作杂兵战这么爽，我也原谅它了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
