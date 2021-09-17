@@ -6487,3 +6487,31 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 贴吧nga各种已完结论，不过这里也差不多～
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 5026#       发表于 2021-9-17 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52789491&amp;ptid=1909972" target="_blank">TTAA 发表于 2021-9-17 16:35</a>
+第六话还拉，大概看的不是同一个第六集吧</blockquote>
+不是有个虹团的人称之为“全世界人最要看的live”吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">那时候我满心期待呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  普之舜舜  
+##### 5027#       发表于 2021-9-17 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52793347&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-17 21:44</a>
+贴吧nga各种已完结论，不过这里也差不多～</blockquote>
+你打错了，我们这里是nga，不是s1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
