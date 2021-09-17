@@ -6563,3 +6563,36 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 我看还是下架吧
 
 
+
+
+*****
+
+####  笋狐  
+##### 5031#       发表于 2021-9-17 23:46
+
+
+ 本帖最后由 笋狐 于 2021-9-17 23:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等更了4-6话那些被前三话养成的可香党就知道叔叔拖更的良苦用心了，与其卡在目前不上不下的剧情进度上不如等完结一下更完不用受折磨，更能一口气品味后续可能会有的追飞机形成与开头的首尾呼应，追番体验简直爽歪歪（
+
+
+*****
+
+####  player3960  
+##### 5032#       发表于 2021-9-17 23:50
+
+
+阿b别更了，就让他们活在前三话的美好里吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  优妮可  
+##### 5033#       发表于 2021-9-17 23:56
+
+
+下架那不是冲的更厉害嘛，小无职是吧
+
+
