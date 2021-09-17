@@ -9380,3 +9380,43 @@ pro已经国庆后一个星期了，无印版还是随便首发日<img src="http
 今年疫情+芯片短缺，买啥电子产品都别指望货源充足，哪怕是苹果。。加下来的macbook和airpod肯定也是
 
 
+
+
+*****
+
+####  letrain  
+##### 854#       发表于 2021-9-17 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792198&amp;ptid=2015640" target="_blank">唯一指定用户名 发表于 2021-9-17 20:19</a>
+ 付款了显示未付款</blockquote>
+我也是，后面才找到
+
+
+*****
+
+####  letrain  
+##### 855#       发表于 2021-9-17 20:56
+
+
+25号自提，期待
+
+
+*****
+
+####  幽远ghofar  
+##### 856#       发表于 2021-9-17 21:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么JB，官网收货地址那里要我选择城市，我按了半天它还是当没看到，显示我没填
+
+
+*****
+
+####  幽远ghofar  
+##### 857#       发表于 2021-9-17 21:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">破案了，是因为官方服务器太卡，点了城市之后跳不出区的选项导致无法选择，智障
+
+

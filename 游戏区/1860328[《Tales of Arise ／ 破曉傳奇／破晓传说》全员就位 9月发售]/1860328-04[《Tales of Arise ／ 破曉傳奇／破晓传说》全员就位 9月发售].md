@@ -9146,3 +9146,26 @@ TOX合集TOD合集TOGF，加起来算上骨折也能卖个四五百万
 肯定是冷饭来得更快了，完全新作估计23-24年左右吧
 
 
+
+
+*****
+
+####  loley  
+##### 5200#       发表于 2021-9-17 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52789728&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-09-17 16:52:37</a>
+学会女主角空中复读后hard也能轻松越级打巨大怪了。。。。。这一切真的合理吗 ...</blockquote>领悟了法师复读和5级矿石之后我都是hard40多级去干水光那只加强版泥怪和塔上的大鸟的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，只能说不合理，但是还挺爽的。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  tstx2005  
+##### 5201#       发表于 2021-9-17 20:52
+
+
+贯通力明显就是破刚体的啊，你装不装命中饰品已经很明显了，原来五刀普攻才能破的小怪，装了命中饰品2 3刀就能破，原来不能连的连招也可以连起来了。
+
+
