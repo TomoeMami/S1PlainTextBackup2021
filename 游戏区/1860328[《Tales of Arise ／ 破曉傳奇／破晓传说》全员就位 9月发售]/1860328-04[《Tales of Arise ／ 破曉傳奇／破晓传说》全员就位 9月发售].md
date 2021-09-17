@@ -8850,3 +8850,41 @@ chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主�
 有人总结下哪些主词条、副词条比较好用吗
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5177#       发表于 2021-9-17 16:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">学会女主角空中复读后hard也能轻松越级打巨大怪了。。。。。这一切真的合理吗
+
+
+*****
+
+####  法拉  
+##### 5178#       发表于 2021-9-17 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52789429&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-17 16:30</a>
+
+有人总结下哪些主词条、副词条比较好用吗</blockquote>
+主词条，貫通力+80%／耐久力-80%、貫通力+30%、咏唱时间20%缩短、50%几率AG减半、50%几率复活、CP消耗减少20%、道具入手率提升
+
+副词条，战斗狂、火属性伤害+15%、咏唱时间5%缩短、消耗CP减少10%、被锁定几率降低大、20%几率AG减半、稀有道具入手率提升
+
+我觉得这些是比较好的
+
+这部和tod2一样贯通力很重要，战斗成员一定要加贯通力，战斗成员可以叠战斗狂，男主也可以叠火伤，其他的看情况，打特定boss降属性伤害的也不错
+
+
+*****
+
+####  黑夜守望者  
+##### 5179#       发表于 2021-9-17 17:07
+
+
+我觉得这游戏最傻逼的一点是boss和精英怪即使hp为1了也必须用增幅强击才能打死，其他包括第四章都没这个来得傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
