@@ -9584,3 +9584,26 @@ jd抢不到，还是在官网24期分期了，看样子要等到10月底了
 —— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 874#       发表于 2021-9-17 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52793557&amp;ptid=2015640" target="_blank">heemoon 发表于 2021-9-17 22:01</a>
+
+jd抢不到，还是在官网24期分期了，看样子要等到10月底了</blockquote>
+23点狗东还有一次抢购...<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chia7  
+##### 875#       发表于 2021-9-17 22:32
+
+
+pro抢的人是不是巨多，怎么一直不显示发货时间
+
+

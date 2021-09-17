@@ -1230,3 +1230,26 @@ pro max太大了
 多了高刷还能增强续航，不是特调好体质soc就是挖到天顶星科技了吧<img src="https://static.saraba1st.com/image/smiley/animal2017/016.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  禽兽公爵  
+##### 100#         楼主| 发表于 2021-9-17 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786239&amp;ptid=2026389" target="_blank">斑驳的阴影 发表于 2021-9-17 12:22</a>
+
+多了高刷还能增强续航，不是特调好体质soc就是挖到天顶星科技了吧</blockquote>
+续航是对比之前的,电池大了一点,可能是极限情况加1.5个小时吧
+
+
+*****
+
+####  奶绷子  
+##### 101#       发表于 2021-9-17 22:46
+
+
+买个高端安卓不就行了
+
+

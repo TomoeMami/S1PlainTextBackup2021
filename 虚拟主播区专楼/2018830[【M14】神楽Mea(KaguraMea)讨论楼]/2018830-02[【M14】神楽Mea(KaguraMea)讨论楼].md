@@ -14826,3 +14826,117 @@ lol就别想了 不可能lol的 lol都删好友了 估计都不会上神乐mea�
 2个小时等开了嗓可能就不拉了，每次都是下播前那几首给力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2842#       发表于 2021-9-17 22:26
+
+
+世末舞厅和人形挺难的yysy，罗密欧这人是稳定拉的
+
+
+*****
+
+####  雪风utopia  
+##### 2843#       发表于 2021-9-17 22:30
+
+
+咩咩咩咩咩咩咩<img src="https://p.sda1.dev/2/0a6adb6c5d8b3a9c968b267ff32441ab/53474f718ada64b.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 2844#       发表于 2021-9-17 22:31
+
+
+咋回事，这首突然状态那么好
+
+
+*****
+
+####  T_Hb  
+##### 2845#       发表于 2021-9-17 22:32
+
+
+猛毒这歌还是唱的熟，完全不拉
+
+
+*****
+
+####  时间在我手中  
+##### 2846#       发表于 2021-9-17 22:45
+
+
+批限不过是丶的任务罢了（）
+
+
+*****
+
+####  T_Hb  
+##### 2847#       发表于 2021-9-17 22:45
+
+
+怎么卖表情包卖到批站来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  追风小星星  
+##### 2848#       发表于 2021-9-17 22:48
+
+
+还是等到了 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鷹書たかしょ  
+##### 2849#       发表于 2021-9-17 22:48
+
+
+中秋定番月兔
+
+
+*****
+
+####  Klience  
+##### 2850#       发表于 2021-9-17 22:48
+
+
+我说什么来着 批限歌会 然后会有月兔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 2851#       发表于 2021-9-17 22:49
+
+
+这人甚至都不知道21号中秋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就丶的任务了
+
+
+*****
+
+####  Mikumiku831  
+##### 2852#       发表于 2021-9-17 22:49
+
+
+高音拉不上去 
+
+我的麻<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2853#       发表于 2021-9-17 22:50
+
+
+那天烧鸡班高音就不错，只能说还没到2小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
