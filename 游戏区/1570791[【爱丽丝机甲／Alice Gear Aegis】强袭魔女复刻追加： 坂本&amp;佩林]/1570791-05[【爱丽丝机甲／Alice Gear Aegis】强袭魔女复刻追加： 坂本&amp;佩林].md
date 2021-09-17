@@ -358,3 +358,16 @@ yoyo这反差萌真可爱
 中野有4个人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6027#       发表于 2021-9-17 18:44
+
+
+佩林这个手的减防是概率性的吗？
+
+怎么有时候砸中了有破盾有时候没有
+
+

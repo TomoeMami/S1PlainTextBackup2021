@@ -9011,3 +9011,31 @@ chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主�
 贯通目的不是为了那点暴击率，是为了BREAK，让你有快感把连击继续下去，一直在有效输出，伤害自然就上来，BOSS不吃这一套，就不去搞这个了，而且战斗中可以换装备，功利些直接4炎卖血一刀
 
 
+
+
+*****
+
+####  godless2020  
+##### 5190#       发表于 2021-9-17 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791144&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-17 18:43</a>
+
+我也只有在hard难度下简单测试过，贯通大幅低于耐久的时候甚至会出现0伤害，适当提高贯通力则很少出现或者 ...</blockquote>
+具体数值要等官方本子解析，耐久目前来看类似以前的回避，有条件可以搞JSZ，把人物的耐久力搞成9999，看看敌人打你伤害有多少
+
+
+
+
+*****
+
+####  法拉  
+##### 5191#       发表于 2021-9-17 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791225&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-17 18:53</a>
+
+具体数值要等官方本子解析，耐久目前来看类似以前的回避，有条件可以搞JSZ，把人物的耐久力搞成9999，看 ...</blockquote>
+d2的无效命中十分明显，arise却没有，也只能靠猜了
+
+
