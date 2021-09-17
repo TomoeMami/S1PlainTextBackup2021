@@ -5460,3 +5460,17 @@ Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
 PC版游戏都进不去，这游戏对win10版本还有要求的么
 
 
+
+
+*****
+
+####  量子大蛇  
+##### 477#       发表于 2021-9-18 00:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792406&amp;ptid=1972138" target="_blank">hkguty 发表于 2021-9-17 20:33</a>
+
+PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
+对显卡驱动版本有要求
+
+

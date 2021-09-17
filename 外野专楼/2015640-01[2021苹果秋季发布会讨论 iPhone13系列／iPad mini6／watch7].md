@@ -9671,3 +9671,22 @@ jd11点额抢到了pro…老婆那台任务完成了…
 抢到了pro，24号（指10月的24号
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 882#       发表于 2021-9-18 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794454&amp;ptid=2015640" target="_blank">pandaman7777 发表于 2021-9-17 23:17</a>
+
+坛友们都是脚本手速吗，京东我这一下子就没了
+
+
+气死了，2021年了买个手机还是要抢</blockquote>
+是的 20点是魔法抢到的 23点魔法估计也不好使了 
+
+因为黄牛看见这么紧 肯定已经跟进更专业魔法了<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
