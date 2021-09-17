@@ -5429,3 +5429,23 @@ Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
 这作的密码应该都是随机的 没固定的 
 
 
+
+
+*****
+
+####  oniwarud  
+##### 474#       发表于 2021-9-17 19:46
+
+
+又一个全新的bug，打艺术家那一关拿了反应堆设计图后整个ui界面卡住无法操作，也无法退出，又是收集的两个石板两个紫配件泡汤。你既然想搞这种模式就老老实实把优化做好点，现在又不能中途存档出个什么问题直接一两个小时泡汤谁能遭得住？我这边已经整出三次幺蛾子了，直接卸载隐藏一条龙，什么时候把游戏优化整好什么时候再玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  サリシノハラ  
+##### 475#         楼主| 发表于 2021-9-17 19:48
+
+
+进了间谍藏身点，里面有个录音机会放Drunken Whaler<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+

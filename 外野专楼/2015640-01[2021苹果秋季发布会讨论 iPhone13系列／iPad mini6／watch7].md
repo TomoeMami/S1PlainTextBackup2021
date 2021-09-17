@@ -8859,3 +8859,161 @@ SE从来都是次年三四月份的发布会才有消息
 不用怕，promotion是可以关掉的
 
 
+
+
+*****
+
+####  (wing)  
+##### 803#       发表于 2021-9-17 19:51
+
+
+官网卡死了，想抢蓝色PROMAX
+
+
+*****
+
+####  Totokei  
+##### 804#       发表于 2021-9-17 20:03
+
+
+马 上 就 好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  松川奈々  
+##### 805#       发表于 2021-9-17 20:04
+
+
+妈的F5都爆了
+
+
+*****
+
+####  kelveen  
+##### 806#       发表于 2021-9-17 20:04
+
+
+就这，还笑话安卓耍猴<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  jiangnux  
+##### 807#       发表于 2021-9-17 20:05
+
+
+为啥看不到预约界面
+
+
+*****
+
+####  一色いろは  
+##### 808#       发表于 2021-9-17 20:06
+
+
+几年没刷这个页面了,前几年也是这样马 上 就 好吗?
+
+
+*****
+
+####  jiangnux  
+##### 809#       发表于 2021-9-17 20:06
+
+
+是真的马上就好
+
+还是只是我没进去？
+
+
+*****
+
+####  宮脇咲良  
+##### 810#       发表于 2021-9-17 20:07
+
+
+各大电商秒无 官网装死 看来今年是猴了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  zksandy  
+##### 811#       发表于 2021-9-17 20:07
+
+
+京东秒没，官网进不去…ps5抢购噩梦再临…
+
+
+*****
+
+####  Totokei  
+##### 812#       发表于 2021-9-17 20:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下到了订单，但是付不了款只能看着待付款里面转圈
+
+已经排到10月7日了
+
+
+*****
+
+####  linekm  
+##### 813#       发表于 2021-9-17 20:07
+
+
+香港这也差不多了，f5按的累
+
+
+*****
+
+####  kelveen  
+##### 814#       发表于 2021-9-17 20:08
+
+
+得，那安心等了，我就说咋可能这么多货。
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  moekyo  
+##### 815#       发表于 2021-9-17 20:08
+
+
+成猴Again<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kotori68  
+##### 816#       发表于 2021-9-17 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想给老婆抢一个，券根本没有
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cybernetics31  
+##### 817#       发表于 2021-9-17 20:09
+
+
+什么鬼 说好的货源充足呢。。。。。。。。。。这电商都秒无还行 
+
+
+*****
+
+####  cuiluzhu  
+##### 818#       发表于 2021-9-17 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我佛啦 刚进去就10月8号了
+
+
