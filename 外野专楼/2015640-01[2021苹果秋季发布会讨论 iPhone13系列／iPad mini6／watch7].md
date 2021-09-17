@@ -9732,3 +9732,16 @@ jd11点额抢到了pro…老婆那台任务完成了…
 —— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  rak1  
+##### 887#       发表于 2021-9-18 06:44
+
+
+预计送达10.1-10.10，难顶
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
