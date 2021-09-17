@@ -9440,3 +9440,66 @@ pro已经国庆后一个星期了，无印版还是随便首发日<img src="http
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">订单是有了，就是确认收到付款的邮件还没有收到
 
 
+
+
+*****
+
+####  rak1  
+##### 860#       发表于 2021-9-17 21:29
+
+
+还没出预计送达时间，话说有没有人知道更改送货联系人电话会不会影响发货啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  来看你  
+##### 861#       发表于 2021-9-17 21:34
+
+
+白色 13没人抢，还好
+
+
+*****
+
+####  松川奈々  
+##### 862#       发表于 2021-9-17 21:40
+
+
+在海鲜市场找黄牛加300买了pro max的线下交易首发货
+
+就当是终于用掉了马桶柜上的300块现金吧，当然支持了黄牛的我是傻逼
+
+
+自己24期分期好不容易买到的都排期到10月底了，真的没意思了
+
+
+*****
+
+####  平井姨夫  
+##### 863#       发表于 2021-9-17 21:44
+
+
+抢到ProMax 256G了，24号<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宮脇咲良  
+##### 864#       发表于 2021-9-17 21:46
+
+
+用魔法在狗东保底了promax256蓝 可惜昨天忘了抢分期券<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holywind  
+##### 865#       发表于 2021-9-17 21:47
+
+
+pro 256 远峰蓝 24号，收工
+
+
