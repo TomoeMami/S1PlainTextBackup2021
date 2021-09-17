@@ -5886,3 +5886,134 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 这集的期望值已经降到最低了，希望到时出来别比期望得更差<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  离心  
+##### 4976#       发表于 2021-9-17 12:23
+
+
+纯听歌了，剩下的什么都不敢想
+
+
+*****
+
+####  player3960  
+##### 4977#       发表于 2021-9-17 12:25
+
+
+寄了就退坑，ll这企划真是伤透我了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  saglork  
+##### 4978#       发表于 2021-9-17 12:35
+
+
+搞不懂这种莫名的期待和莫名的失望都从哪来的，要是年轻人的第一部ll或者外传虹团入坑当我没说，前两代看过来的话，这剧情压根不出圈啊，无论吹上天的前三话和骂成屎的后四话，基本都是符合lovelive动画正常水准的表现，甚至可以说标准样板戏和系列祖传元素堆砌，有什么值得特别失望的？怎么这才播了一半就世界末日了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 4979#       发表于 2021-9-17 12:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785726&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-17 11:48</a>
+
+还不是想卖碟…………单唱版，可香版，4人版…………这么一凑加个cw 又是一张cd……………… ...</blockquote>
+LL系列播出版的ED从来都是OST收录啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+换人唱就单卖碟那吃相也太差了点
+
+
+*****
+
+####  寒风夜  
+##### 4980#       发表于 2021-9-17 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786398&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-17 12:35</a>
+
+搞不懂这种莫名的期待和莫名的失望都从哪来的，要是年轻人的第一部ll或者外传虹团入坑当我没说，前两代看过 ...</blockquote>
+就没奔着剧情，不过这些问题这么久还这样就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  寒风夜  
+##### 4981#       发表于 2021-9-17 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786398&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-17 12:35</a>
+
+搞不懂这种莫名的期待和莫名的失望都从哪来的，要是年轻人的第一部ll或者外传虹团入坑当我没说，前两代看过 ...</blockquote>
+就没奔着剧情，不过这些问题这么久还这样就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4982#       发表于 2021-9-17 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786398&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-17 12:35</a>
+
+搞不懂这种莫名的期待和莫名的失望都从哪来的，要是年轻人的第一部ll或者外传虹团入坑当我没说，前两代看过 ...</blockquote>
+就没奔着剧情，不过这些问题这么久还这样就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 4983#       发表于 2021-9-17 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786398&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-17 12:35</a>
+搞不懂这种莫名的期待和莫名的失望都从哪来的，要是年轻人的第一部ll或者外传虹团入坑当我没说，前两代看过 ...</blockquote>
+长颈鹿不想看蕉哥哥玩了无数次的再演不是很正常么。
+
+顺便可香拉高了太多期待。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  megapikachu  
+##### 4984#       发表于 2021-9-17 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786398&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-17 12:35</a>
+
+搞不懂这种莫名的期待和莫名的失望都从哪来的，要是年轻人的第一部ll或者外传虹团入坑当我没说，前两代看过 ...</blockquote>
+新入坑或者虹团入坑的暂且不论，一直关注LL的人当中，的确有一些很喜欢强调（虹团动画出来以后就更多了）动画做得好对企划的存续，包括什么出圈、拉新之类的作用的。那反过来，动画做得不好不就世界末日啰。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 4985#       发表于 2021-9-17 12:47
+
+
+草，第七话播完民警人气变高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/17/124341eix9x98x03zdpwxl.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (15.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 12:43 上传
+
+
+5ch的投票
+
+
