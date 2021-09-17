@@ -8836,3 +8836,26 @@ SE从来都是次年三四月份的发布会才有消息
 加价上pro值得吗...
 
 
+
+
+*****
+
+####  cuiluzhu  
+##### 801#       发表于 2021-9-17 17:56
+
+
+手上11pm想换13pm，但是担心比如b站弹幕是强行锁120帧的，不知道会不会电量尿崩，还不如我的11pm
+
+
+*****
+
+####  六尺之下  
+##### 802#       发表于 2021-9-17 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52790663&amp;ptid=2015640" target="_blank">cuiluzhu 发表于 2021-9-17 17:56</a>
+
+手上11pm想换13pm，但是担心比如b站弹幕是强行锁120帧的，不知道会不会电量尿崩，还不如我的11pm ...</blockquote>
+不用怕，promotion是可以关掉的
+
+

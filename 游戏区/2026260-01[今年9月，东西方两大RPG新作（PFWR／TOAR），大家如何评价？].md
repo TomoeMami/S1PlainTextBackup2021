@@ -1525,3 +1525,19 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 隔壁博德之门3半吸血鬼盗贼也是GAYGAY的傲娇小奶狗人设，最近的盗贼都比较那个。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  紫锦衾  
+##### 113#       发表于 2021-9-17 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741141&amp;ptid=2026260" target="_blank">Dgnic_ 发表于 2021-9-14 09:49</a>
+正义之怒评价这么高
+我最近一代玩不下去都想卸载了，难道二者爽度相差那么大吗 ...</blockquote>
+二代剧情比一代抓人很多，一代队友和剧情都更中规中矩，优点是量大管饱，二代从队友到主线都爆点十足<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
