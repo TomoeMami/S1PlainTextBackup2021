@@ -6017,3 +6017,19 @@ LL系列播出版的ED从来都是OST收录啊<img src="https://static.saraba1st
 5ch的投票
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4986#       发表于 2021-9-17 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786557&amp;ptid=1909972" target="_blank">megapikachu 发表于 2021-9-17 12:47</a>
+
+新入坑或者虹团入坑的暂且不论，一直关注LL的人当中，的确有一些很喜欢强调（虹团动画出来以后就更多了） ...</blockquote>
+水水够差了吧红白东蛋还不是一个不缺
+
+也就国内缪斯林数被腰斩，虽然腰斩也不全是因为动画hhhhh
+
+

@@ -14950,3 +14950,38 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 <img src="https://img.saraba1st.com/forum/202109/17/123635bxm0j0032sjthjhz.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  龙娘777  
+##### 83758#       发表于 2021-9-17 12:45
+
+
+日本人是真喜欢白毛萝莉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yzj134100  
+##### 83759#       发表于 2021-9-17 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52778731&amp;ptid=1085254" target="_blank">J-002 发表于 2021-9-16 20:27</a>
+
+他X的！我才知道日服不需要翻墙了！这是我迟了6年的启程之日！我的Grand Order！！！やっちゃえ！バーサー ...</blockquote>
+hhhh
+
+
+*****
+
+####  qixinno2  
+##### 83760#       发表于 2021-9-17 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786537&amp;ptid=1085254" target="_blank">龙娘777 发表于 2021-9-17 12:45</a>
+
+日本人是真喜欢白毛萝莉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你敢对着舰B恶毒新皮说一句自己不喜欢么 我这只买大奶奶皮的都直接买了
+
+
