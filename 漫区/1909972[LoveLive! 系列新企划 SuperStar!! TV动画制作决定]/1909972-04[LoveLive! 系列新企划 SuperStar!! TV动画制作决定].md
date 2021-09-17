@@ -6033,3 +6033,32 @@ LL系列播出版的ED从来都是OST收录啊<img src="https://static.saraba1st
 也就国内缪斯林数被腰斩，虽然腰斩也不全是因为动画hhhhh
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4987#       发表于 2021-9-17 13:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说ed里恋不是冬天入团吗，第7话才刚刚开学下一话直接要跳到冬天吗
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 4988#       发表于 2021-9-17 13:19
+
+
+千也是夏天入的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 4989#       发表于 2021-9-17 13:19
+
+
+她们是不是刚放完暑假？小千也入队了，现在是秋天了？感觉不太像
+
+

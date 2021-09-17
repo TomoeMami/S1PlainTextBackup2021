@@ -14985,3 +14985,110 @@ hhhh
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你敢对着舰B恶毒新皮说一句自己不喜欢么 我这只买大奶奶皮的都直接买了
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83761#       发表于 2021-9-17 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786675&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-9-17 12:57</a>
+
+你敢对着舰B恶毒新皮说一句自己不喜欢么 我这只买大奶奶皮的都直接买了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抱歉 我就不喜欢
+
+
+*****
+
+####  qixinno2  
+##### 83762#       发表于 2021-9-17 13:09
+
+
+翻页<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 83763#       发表于 2021-9-17 13:09
+
+
+翻页
+
+
+*****
+
+####  qixinno2  
+##### 83764#       发表于 2021-9-17 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786742&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-17 13:03</a>
+
+抱歉 我就不喜欢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不对劲
+
+
+*****
+
+####  alucardcz  
+##### 83765#       发表于 2021-9-17 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786826&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-9-17 13:10</a>
+
+你不对劲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">no给no铜
+
+
+*****
+
+####  qixinno2  
+##### 83766#       发表于 2021-9-17 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786830&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-17 13:10</a>
+
+no给no铜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也不铜啊 但太sao了 我把握不住
+
+
+*****
+
+####  alucardcz  
+##### 83767#       发表于 2021-9-17 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786846&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-9-17 13:11</a>
+
+我也不铜啊 但太sao了 我把握不住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就是铜 别不了 像我这种真正no铜的 看了都没任何感觉
+
+
+*****
+
+####  黑上シグマ  
+##### 83768#       发表于 2021-9-17 13:13
+
+
+<blockquote>引用第83759楼qixinno2于2021-09-17 12:57发表的  :
+
+引用:龙娘777 发表于 2021-9-17 12:45日本人是真喜欢白毛萝莉你敢对着舰B恶毒新皮说......</blockquote>
+敢，毫无兴趣，甚至觉得有点恶心
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qixinno2  
+##### 83769#       发表于 2021-9-17 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786863&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-17 13:12</a>
+
+你就是铜 别不了 像我这种真正no铜的 看了都没任何感觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只是色批而已 不是炼铜术士
+
+
