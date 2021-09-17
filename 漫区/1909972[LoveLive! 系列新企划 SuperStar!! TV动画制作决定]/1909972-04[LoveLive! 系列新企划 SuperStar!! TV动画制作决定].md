@@ -5766,3 +5766,103 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 再烂不会比水烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 4966#       发表于 2021-9-17 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785172&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-17 11:15</a>
+
+讲道理，虹团第一季没敌团，没比赛任务，镣铐松多了吧，节奏说是gal改也没问题。
+
+
+田中仁还是得看第二季， ...</blockquote>
+不能理解为啥非得播ed，之前水1有几集就是把ED砍了
+
+
+*****
+
+####  cybernetics31  
+##### 4967#       发表于 2021-9-17 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785644&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-17 11:42</a>
+不能理解为啥非得播ed，之前水1有几集就是把ED砍了</blockquote>
+还不是想卖碟…………单唱版，可香版，4人版…………这么一凑加个cw 又是一张cd………………
+
+
+*****
+
+####  lj205  
+##### 4968#       发表于 2021-9-17 11:53
+
+
+看来疫情把企划节奏拖慢，上头急啊
+
+
+*****
+
+####  寒风夜  
+##### 4969#       发表于 2021-9-17 11:56
+
+
+卖歌一定要live我感觉才死板，就不能学爱马仕一集一ed，不也能卖
+
+
+*****
+
+####  ads147147  
+##### 4970#       发表于 2021-9-17 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785837&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-17 11:56</a>
+卖歌一定要live我感觉才死板，就不能学爱马仕一集一ed，不也能卖</blockquote>
+上头不想花那么多钱，又想赚更多的钱jpg
+
+那我只能来句资本主义cnm
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 4971#       发表于 2021-9-17 12:00
+
+
+ 本帖最后由 寒风夜 于 2021-9-17 12:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785885&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-17 11:59</a>
+
+上头不想花那么多钱，又想赚更多的钱jpg
+
+
+那我只能来句资本主义cnm</blockquote>
+现在歌不也很多
+
+
+*****
+
+####  寒风夜  
+##### 4972#       发表于 2021-9-17 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785885&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-17 11:59</a>
+
+上头不想花那么多钱，又想赚更多的钱jpg
+
+
+那我只能来句资本主义cnm</blockquote>
+
+
+*****
+
+####  秋月艾莉  
+##### 4973#       发表于 2021-9-17 12:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可以像是第一话哈利路亚一样来个恋独唱当ED用啊
+
+

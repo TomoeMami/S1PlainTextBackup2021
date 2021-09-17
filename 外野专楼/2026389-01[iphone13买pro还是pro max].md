@@ -1191,3 +1191,19 @@ GPU，不是CPU，不过我觉得对游戏实际性能应该影响不太大反�
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
+
+
+*****
+
+####  禽兽公爵  
+##### 97#         楼主| 发表于 2021-9-17 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782698&amp;ptid=2026389" target="_blank">飞侠小黑 发表于 2021-9-17 08:28</a>
+13PRO还没13大，电池就12WH大概3100mha
+高刷和5g刚需还是推荐pro max，不然续航怕是要血崩</blockquote>
+pro max太大了
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
