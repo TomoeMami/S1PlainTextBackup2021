@@ -9682,3 +9682,127 @@ X2那也就是刚出那阵子在角色方面有不少争议，时间长了以后
 你说内讧我第一时间想到的就是tor勇者王夕阳下基情打架
 
 
+
+
+*****
+
+####  hkguty  
+##### 5237#       发表于 2021-9-18 01:51
+
+
+有谁知道奇莎兰技能盘里的被包围加属性到底是什么意思？还有男主的火刀到底吃不吃饰品的火伤害加成？
+
+
+*****
+
+####  whzfjk  
+##### 5238#       发表于 2021-9-18 01:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794502&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-17 23:21</a>
+
+其实就是，她嘴臭得再有道理那也是嘴臭，给人观感并不好，哪怕是剧情需要
+
+
+对比tob同样是敌队成员 ...</blockquote>
+tob 是说那个双马尾吗，看起来毕竟比较稳重？
+
+
+*****
+
+####  Bani82  
+##### 5239#       发表于 2021-9-18 02:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795362&amp;ptid=1860328" target="_blank">久井路路 发表于 2021-9-18 01:00</a>
+
+其实差不多就是这个意思，观感这东西就不是建立在讲道理的基础上的，讨厌的角色干啥都让人烦躁
+
+
+非要说的 ...</blockquote>
+想她爸，后面说的
+
+
+*****
+
+####  JC_AR  
+##### 5240#       发表于 2021-9-18 02:11
+
+
+还蛮无语的，老粉不太可能想要重置吧，幻想传说都重置多少遍了天天重置，出新啊
+
+
+*****
+
+####  久井路路  
+##### 5241#       发表于 2021-9-18 02:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795662&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-18 02:10</a>
+
+想她爸，后面说的</blockquote>
+要是把这个放在去雪国前的小对话里应该会更好些
+
+
+大叔感觉林薇尔经常在看他，问她之后她说大叔像她爹，听见爹这个字之后提了两句表示自己也当过爹。之类的小对话。
+
+
+这样应该能让之后初遇洛那部分更自然些（
+
+
+这游戏的剧情观感想变得比现在更好，肯定不需要花费什么太大的劳力（
+
+
+*****
+
+####  市松椿  
+##### 5242#       发表于 2021-9-18 04:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794502&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-17 23:21</a>
+
+其实就是，她嘴臭得再有道理那也是嘴臭，给人观感并不好，哪怕是剧情需要
+
+
+对比tob同样是敌队成员 ...</blockquote>
+从不和谐变得和谐我觉得挺好的，本来大家一开始就是陌生人为啥要相亲相爱啊，玩到最终战看到六个人都把背后交给伙伴才深感旅途的意义
+
+
+*****
+
+####  市松椿  
+##### 5243#       发表于 2021-9-18 04:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794766&amp;ptid=1860328" target="_blank">天堂蜘蛛 发表于 2021-9-17 23:48</a>
+
+打到终章了，不得不说这代的战斗简直就是折磨
+
+后期一个个BOSS全是30W血，BOSS战也极其拉胯毫无亮点，二阶段 ...</blockquote>
+觉得刮痧的恐怕是没拿100％增伤文物
+
+
+*****
+
+####  市松椿  
+##### 5244#       发表于 2021-9-18 04:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795607&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-9-18 01:51</a>
+
+有谁知道奇莎兰技能盘里的被包围加属性到底是什么意思？还有男主的火刀到底吃不吃饰品的火伤害加成？ ...</blockquote>
+吃饰品加成
+
+
+*****
+
+####  森兰丸  
+##### 5245#       发表于 2021-9-18 05:07
+
+
+突然想到这作好像连有头有脸的NPC都没一个.....基本上都是路人模型改良一下
+
+
+看ED男女主的结婚图除了同伴之外请的都是什么寒酸嘉宾.....这作真是光有个好画面了
+
+

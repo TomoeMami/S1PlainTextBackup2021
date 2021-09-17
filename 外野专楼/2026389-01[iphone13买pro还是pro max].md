@@ -1267,3 +1267,32 @@ pro max太大了
 之前都是买三星的,用安卓的国内app太毒瘤了,就想换个苹果了
 
 
+
+
+*****
+
+####  斑驳的阴影  
+##### 103#       发表于 2021-9-18 05:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794038&amp;ptid=2026389" target="_blank">禽兽公爵 发表于 2021-9-17 22:40</a>
+
+续航是对比之前的,电池大了一点,可能是极限情况加1.5个小时吧</blockquote>
+是说的13vs13p官方续航数据对比，本地和流媒体分别是19vs22和15vs20，13p流媒体能多出30%的续航时间，感觉挺离谱<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zmw_831110  
+##### 104#       发表于 2021-9-18 05:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795990&amp;ptid=2026389" target="_blank">斑驳的阴影 发表于 2021-9-18 05:36</a>
+是说的13vs13p官方续航数据对比，本地和流媒体分别是19vs22和15vs20，13p流媒体能多出30%的续航时间，感 ...</blockquote>
+可变刷新率，视频算的是24帧吧，是会比原本的60Hz省电。
+你不动，界面刷新率就只有10，只要你不是一直不停滑动，看个网页刷个论坛，续航是会不错。
+就是不清楚不停聊qq的话是什么情况
+
+—— 来自 Xiaomi M2007J3SG, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+

@@ -6596,3 +6596,18 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 下架那不是冲的更厉害嘛，小无职是吧
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 5034#       发表于 2021-9-18 02:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794743&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-17 23:46</a>
+等更了4-6话那些被前三话养成的可香党就知道叔叔拖更的良苦用心了，与其卡在目前不上不下的剧情进度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们可香党，就要毁灭了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
