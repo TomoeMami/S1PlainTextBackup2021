@@ -1253,3 +1253,17 @@ pro max太大了
 买个高端安卓不就行了
 
 
+
+
+*****
+
+####  禽兽公爵  
+##### 102#         楼主| 发表于 2021-9-17 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794104&amp;ptid=2026389" target="_blank">奶绷子 发表于 2021-9-17 22:46</a>
+
+买个高端安卓不就行了</blockquote>
+之前都是买三星的,用安卓的国内app太毒瘤了,就想换个苹果了
+
+

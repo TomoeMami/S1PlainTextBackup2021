@@ -3817,3 +3817,35 @@ P1020004.JPG
 96号公路各种定体问元素，确实是可以炸一炸的
 
 
+
+
+*****
+
+####  维斯瓦军团  
+##### 336#       发表于 2021-9-17 22:42
+
+
+文静的弹幕真tm逆天啊，笑死我了
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  rgauss  
+##### 337#       发表于 2021-9-17 22:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这节目效果还好
+看几条逆天弹幕就更乐了
+
+
+*****
+
+####  rgauss  
+##### 338#       发表于 2021-9-17 22:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">乐 哈哈哈哈哈哈哈
+
+
