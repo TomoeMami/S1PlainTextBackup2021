@@ -5340,3 +5340,26 @@ Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
 2B好像是黑过一次永久生效的？上一天音乐家那黑掉了，结果下一天进游乐园打游戏还是会说是除错模式，直接可以找他把死宅设置成入侵者，被外面杂兵干掉后跳了个成就
 
 
+
+
+*****
+
+####  415452356  
+##### 467#       发表于 2021-9-17 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52786256&amp;ptid=1972138" target="_blank">九十九忍 发表于 2021-9-17 12:24</a>
+
+2B好像是黑过一次永久生效的？上一天音乐家那黑掉了，结果下一天进游乐园打游戏还是会说是除错模式，直接可 ...</blockquote>
+  不剧透的话，你去推其他先驱者的线索就知道了
+
+
+*****
+
+####  formlt  
+##### 468#       发表于 2021-9-17 13:45
+
+
+这游戏应该出个app，关联账号和进度，平时没事就看文档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

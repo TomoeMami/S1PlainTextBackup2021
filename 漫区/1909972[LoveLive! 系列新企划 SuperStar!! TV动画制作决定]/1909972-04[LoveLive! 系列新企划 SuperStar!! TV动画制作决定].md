@@ -6062,3 +6062,25 @@ LL系列播出版的ED从来都是OST收录啊<img src="https://static.saraba1st
 她们是不是刚放完暑假？小千也入队了，现在是秋天了？感觉不太像
 
 
+
+
+*****
+
+####  1096beam  
+##### 4990#       发表于 2021-9-17 13:40
+
+
+你能再表演一下那个吗？
+
+LL是2.9次元企划<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 4991#       发表于 2021-9-17 13:42
+
+
+季节好像没严格对应，不过等机场回应该到冬天了吧
+
+
