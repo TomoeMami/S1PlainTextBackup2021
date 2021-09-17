@@ -8788,3 +8788,26 @@ SE从来都是次年三四月份的发布会才有消息
 在考虑要不要把12换成13pro……
 
 
+
+
+*****
+
+####  M1NG  
+##### 798#       发表于 2021-9-17 16:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52777857&amp;ptid=2015640" target="_blank">中川花音 发表于 2021-9-16 19:27</a>
+
+借楼问这次pro的主摄跟13的有什么不同</blockquote>
+直接看官网呗，基本也就光圈的差别吧
+
+<img src="https://img.saraba1st.com/forum/202109/17/161315dgsulflcc0ltdfwb.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (188.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 16:13 上传
+
+

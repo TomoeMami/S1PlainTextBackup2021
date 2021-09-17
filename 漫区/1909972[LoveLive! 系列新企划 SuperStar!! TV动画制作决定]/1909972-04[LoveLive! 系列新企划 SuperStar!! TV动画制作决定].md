@@ -6273,3 +6273,18 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 年轻人第一次买碟，是我小看资本家的骗钱手段了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 5007#       发表于 2021-9-17 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52788967&amp;ptid=1909972" target="_blank">TTAA 发表于 2021-9-17 15:58</a>
+以后就只看live质量，动画剧情看能整多少活吧</blockquote>
+第六话的live拉成什么样子了哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
