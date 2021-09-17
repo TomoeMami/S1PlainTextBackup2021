@@ -8602,3 +8602,41 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主要点运气，双boss有点不稳，女主是100%稳定
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5160#       发表于 2021-9-17 10:22
+
+
+话说回来啊
+
+那几个客串角色（防剧透不说是谁了）的模型我对比了一下旧作
+
+感觉是直接拿进来的啊,材质和模型精度并没有肉眼可见的提升
+
+
+那这么说理论上TOV往后那几部旧作也可以直接上新引擎？（系统不变）
+
+
+
+
+*****
+
+####  REDXIII  
+##### 5161#       发表于 2021-9-17 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784160&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-17 10:22</a>
+
+话说回来啊
+
+那几个客串角色（防剧透不说是谁了）的模型我对比了一下旧作
+
+感觉是直接拿进来的啊,材质和模型 ...</blockquote>
+精度还是舒服点了，除了大精灵
+
+用新引擎来一个TOS或者TOA啥的吧<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+

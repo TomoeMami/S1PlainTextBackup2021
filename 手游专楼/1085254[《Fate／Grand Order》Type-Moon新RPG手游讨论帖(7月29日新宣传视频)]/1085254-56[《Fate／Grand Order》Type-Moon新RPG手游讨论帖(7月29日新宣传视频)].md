@@ -14869,3 +14869,34 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 至于C呆和五宝宇宙凛遇到阴间本就冲不起来。真正无视配置全加成的无脑冲应该是术狗和妖兰。个人建议C呆，狐狸，奥伯龙都要有。现在有奥伯龙我觉得不用太追求仇凛的宝具等级。不过仇凛可蓝可红。的确是最优选择了。
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83754#       发表于 2021-9-17 10:12
+
+
+随便去看了一眼，MD现在这些卖初始的怎么还是打死不提礼装
+
+我脑洞一下0宝石开荒+打日常，画美不看
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83755#       发表于 2021-9-17 10:15
+
+
+ 本帖最后由 areklose 于 2021-9-17 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784024&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-17 10:12</a>
+
+随便去看了一眼，MD现在这些卖初始的怎么还是打死不提礼装
+
+我脑洞一下0宝石开荒+打日常，画美不看
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没提的都是没有，提了的话才是有。讲真。现在有孔明。有被动技能。2个50NP礼装。带个爱酱。嫖个能原地起爆周常还是没问题的。只不过友情点要抽得有点手软了。现在活动有一张十分好的50NP礼装。再手搓一个龙脉。或者等下次活动送50NP。或者40NP礼装加被动先凑合当50NP
+
+
