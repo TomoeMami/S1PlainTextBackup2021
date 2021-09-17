@@ -9710,3 +9710,25 @@ jd11点额抢到了pro…老婆那台任务完成了…
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">睡前刷新了下显示9月24送达，可以安睡了
 
 
+
+
+*****
+
+####  唯一指定用户名  
+##### 885#       发表于 2021-9-18 06:05
+
+
+九月三十至十月九日送达，是我太慢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑耀星尘  
+##### 886#       发表于 2021-9-18 06:22
+
+
+草 早上一看10月9日到14日发货，
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
