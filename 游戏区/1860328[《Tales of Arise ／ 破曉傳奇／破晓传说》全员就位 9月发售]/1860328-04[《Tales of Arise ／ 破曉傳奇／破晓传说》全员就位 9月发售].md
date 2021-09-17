@@ -8963,3 +8963,51 @@ chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主�
 贯通力不只是反应在暴击上，伤害计算感觉是会过贯通耐久对抗的，类似tod2的命中力，避免被boss的耐久力压制还是很重要的，虽然我也还没打chaos所以不清楚chaos是什么情况
 
 
+
+
+*****
+
+####  focus  
+##### 5186#       发表于 2021-9-17 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52790843&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-17 18:11</a>
+
+贯通力不只是反应在暴击上，伤害计算感觉是会过贯通耐久对抗的，类似tod2的命中力，避免被boss的耐久力压 ...</blockquote>
+对抗耐久有什么用啊？boss压根就没硬直。会多打出几个倒地吗？似乎也没感觉到。
+
+
+*****
+
+####  peh  
+##### 5187#       发表于 2021-9-17 18:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发现了这游戏打boss就应该把队友全送了然后阿鲁芬走位复读崩爆斩
+
+
+*****
+
+####  法拉  
+##### 5188#       发表于 2021-9-17 18:43
+
+
+ 本帖最后由 法拉 于 2021-9-17 18:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52790999&amp;ptid=1860328" target="_blank">focus 发表于 2021-9-17 18:27</a>
+
+对抗耐久有什么用啊？boss压根就没硬直。会多打出几个倒地吗？似乎也没感觉到。 ...</blockquote>
+我也只有在hard难度下简单测试过，贯通大幅低于耐久的时候甚至会出现0伤害，适当提高贯通力则很少出现或者不出现，我的猜测通过不了贯通耐久对抗就会出现伤害极端低下，甚至攻击命中却没有命中伤害的情况，但是样本量不足，我也没心思打chaos，需要数据大佬来做进一步验证
+
+
+*****
+
+####  godless2020  
+##### 5189#       发表于 2021-9-17 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52790183&amp;ptid=1860328" target="_blank">focus 发表于 2021-9-17 17:24</a>
+
+到后期贯通力根本没用。chaos难度的boss，即使装上贯通力+80%的饰品，暴击率依旧在5%以下，跟不装没啥区别 ...</blockquote>
+贯通目的不是为了那点暴击率，是为了BREAK，让你有快感把连击继续下去，一直在有效输出，伤害自然就上来，BOSS不吃这一套，就不去搞这个了，而且战斗中可以换装备，功利些直接4炎卖血一刀
+
+
