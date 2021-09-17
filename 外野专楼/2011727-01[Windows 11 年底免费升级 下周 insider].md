@@ -7035,3 +7035,18 @@ Best Windows 11 Start Menu Made by Google</blockquote>
 —— 来自 vivo V1924A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  yapzi  
+##### 578#       发表于 2021-9-17 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782919&amp;ptid=2011727" target="_blank">卡爹 发表于 2021-9-17 08:53</a>
+滚回Win10了，我感觉11有一种卡得很均匀的感觉，就是没有特别卡，但是每一个操作都有点卡
+
+—— 来自 vivo  ...</blockquote>
+这不就是输入延迟吗，当年vista也是这么个卡法
+
+

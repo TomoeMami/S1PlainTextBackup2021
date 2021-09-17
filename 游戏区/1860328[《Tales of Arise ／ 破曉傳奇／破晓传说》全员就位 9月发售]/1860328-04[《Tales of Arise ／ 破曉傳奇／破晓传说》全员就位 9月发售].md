@@ -8574,3 +8574,17 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 真心用屁股做的数值设定
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 5158#       发表于 2021-9-17 09:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782324&amp;ptid=1860328" target="_blank">yzqray 发表于 2021-9-17 07:16</a>
+
+这是最终战那招特殊演出的第二秘奥义啊</blockquote>
+谢谢，还以为平时也能用，可惜了
+
+
