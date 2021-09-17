@@ -9792,3 +9792,30 @@ jd11点额抢到了pro…老婆那台任务完成了…
 —— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  来看你  
+##### 891#       发表于 2021-9-18 07:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52796086&amp;ptid=2015640" target="_blank">松川奈々 发表于 2021-9-18 06:57</a>
+
+可能是我火星了
+
+微信小程序“Apple授权专营店”里面也可以买
+
+每人限购一台，没法分期，只能买当地货源，可 ...</blockquote>
+加盟店？还是旗舰店好点
+
+
+*****
+
+####  rak1  
+##### 892#       发表于 2021-9-18 07:13
+
+
+官网找不到这个小程序的授权资格，别买
+
+
