@@ -8786,3 +8786,22 @@ chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主�
 男主这全脸好路人啊。。。还是带着半个面具更帅
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5172#       发表于 2021-9-17 15:26
+
+
+ 本帖最后由 alucardcz 于 2021-9-17 15:44 编辑 
+
+打到op2了   本来应该感叹 哇 原来游戏才刚开始啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然而现实太残酷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说这水城做的还是挺不错 虽然大而空的问题依旧没能解决
+
+学会女主角空中复读和法师复读后hard的boss战体验也变好了。。就是。。有点单调
+
+

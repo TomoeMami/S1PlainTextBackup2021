@@ -6216,3 +6216,17 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次应该不会有tp插入了
 
 
+
+
+*****
+
+####  ads147147  
+##### 5002#       发表于 2021-9-17 15:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52787948&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-17 14:42</a>
+
+季节应该只是个象征。春天的可可代表故事的开始，夏天的民堇代学院偶像的气氛升高。秋天是青梅竹马约定的季 ...</blockquote>
+大纲意向大家都看得出来，问题是花田京极用的不好阿。
+
+
