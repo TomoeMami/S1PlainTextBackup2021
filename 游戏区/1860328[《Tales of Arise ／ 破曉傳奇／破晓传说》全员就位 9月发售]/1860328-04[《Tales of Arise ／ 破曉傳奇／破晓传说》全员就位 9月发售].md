@@ -9039,3 +9039,36 @@ chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主�
 d2的无效命中十分明显，arise却没有，也只能靠猜了
 
 
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 5192#       发表于 2021-9-17 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784160&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-17 10:22</a>
+
+话说回来啊
+
+那几个客串角色（防剧透不说是谁了）的模型我对比了一下旧作
+
+感觉是直接拿进来的啊,材质和模型 ...</blockquote>
+美术资产在生产环节一般会保留通用格式的，如果bn现在手上还有现成的tos模型，大概丢进toar的工程也就是随手拖拽这么简单的事情了
+
+
+美术资产管理标准跟制作引擎无关
+
+
+*****
+
+####  qiyu1234  
+##### 5193#       发表于 2021-9-17 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791483&amp;ptid=1860328" target="_blank">Suzutsuki.Mk.II 发表于 2021-9-17 19:21</a>
+
+美术资产在生产环节一般会保留通用格式的，如果bn现在手上还有现成的tos模型，大概丢进toar的工程也就是 ...</blockquote>
+不，我觉得TOS的模型他们是没脸直接拿来用的，头身比都变了
+
+
