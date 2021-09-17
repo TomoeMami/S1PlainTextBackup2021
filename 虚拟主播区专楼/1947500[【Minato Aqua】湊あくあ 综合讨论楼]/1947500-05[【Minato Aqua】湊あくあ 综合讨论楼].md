@@ -11779,3 +11779,21 @@ EN联动
 这个组合的马趴，可以算是海王争霸赛吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨鱼，章鱼，海贼，cosplay海上女仆。
 
 
+
+
+*****
+
+####  nian1538  
+##### 6948#       发表于 2021-9-17 21:21
+
+
+会限里原来还说了23号还有一次稀有联动
+
+
+UMISEA这个小动画感觉都在棒读
+
+新数字44.2
+
+今天联动感觉比马趴那次稍微好点
+
+

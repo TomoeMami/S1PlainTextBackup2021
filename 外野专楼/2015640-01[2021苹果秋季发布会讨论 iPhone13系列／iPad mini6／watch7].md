@@ -9420,3 +9420,23 @@ pro已经国庆后一个星期了，无印版还是随便首发日<img src="http
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">破案了，是因为官方服务器太卡，点了城市之后跳不出区的选项导致无法选择，智障
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 858#       发表于 2021-9-17 21:15
+
+
+24号到，还行，订单页面也有了
+
+
+*****
+
+####  Totokei  
+##### 859#       发表于 2021-9-17 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">订单是有了，就是确认收到付款的邮件还没有收到
+
+

@@ -14055,3 +14055,14 @@ DAY4：7月2日  18時～（2試合のみ）
 所以第一届只好好打了一天的练习赛，这次第二届因为第一天人不够没开起来，结果一天都没得打了
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7034#       发表于 2021-9-17 21:10
+
+
+怎么hnn还特地转推解释一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

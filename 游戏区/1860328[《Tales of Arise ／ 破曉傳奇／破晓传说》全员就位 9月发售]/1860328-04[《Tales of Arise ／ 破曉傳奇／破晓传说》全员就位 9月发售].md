@@ -9169,3 +9169,74 @@ TOX合集TOD合集TOGF，加起来算上骨折也能卖个四五百万
 贯通力明显就是破刚体的啊，你装不装命中饰品已经很明显了，原来五刀普攻才能破的小怪，装了命中饰品2 3刀就能破，原来不能连的连招也可以连起来了。
 
 
+
+
+*****
+
+####  kangkangsama  
+##### 5202#       发表于 2021-9-17 21:08
+
+
+琳薇尔的四个最高级魔法习得的要求出来了吗
+
+
+*****
+
+####  ky怪  
+##### 5203#       发表于 2021-9-17 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792882&amp;ptid=1860328" target="_blank">kangkangsama 发表于 2021-9-17 21:08</a>
+琳薇尔的四个最高级魔法习得的要求出来了吗</blockquote>
+我只知道瞬星射击是光魔法满熟练度
+
+
+*****
+
+####  后入芙蓉王  
+##### 5204#       发表于 2021-9-17 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52790843&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-17 18:11</a>
+贯通力不只是反应在暴击上，伤害计算感觉是会过贯通耐久对抗的，类似tod2的命中力，避免被boss的耐久力压 ...</blockquote>
+贯通根本就没用，又不能一刀破钢体，那么3刀破刚体跟5刀破钢体其实没分别
+
+还不如老实叠伤害，伤害越高，打小怪才越快出共鸣
+
+
+*****
+
+####  黑夜守望者  
+##### 5205#       发表于 2021-9-17 21:22
+
+
+见识了黑皮的活化本事后
+盾女：野菜也可以吗？！
+黑皮：求你别把我当肥料
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜守望者  
+##### 5206#       发表于 2021-9-17 21:23
+
+
+这咋一个比一个妻管严啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  法拉  
+##### 5207#       发表于 2021-9-17 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792912&amp;ptid=1860328" target="_blank">后入芙蓉王 发表于 2021-9-17 21:11</a>
+
+贯通根本就没用，又不能一刀破钢体，那么3刀破刚体跟5刀破钢体其实没分别
+
+
+还不如老实叠伤害，伤害越高， ...</blockquote>
+贯通高暴击高，破刚快，容易出硬直，还有我前面说的耐力对抗，贯通没用是不可能的，而且叠伤害很简单，战斗狂*4和武器，而贯通只需要一个貫通+80%的首饰，收益肯定是完爆其他主词条的，保持比较高的一个贯通值准没错
+
+

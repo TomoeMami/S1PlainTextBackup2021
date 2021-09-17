@@ -14367,3 +14367,104 @@ lol就别想了 不可能lol的 lol都删好友了 估计都不会上神乐mea�
 因为是音乐播放器所以对不上，除非有人拉她一起玩
 
 
+
+
+*****
+
+####  路人庚  
+##### 2793#       发表于 2021-9-17 21:04
+
+
+开了
+
+
+*****
+
+####  T_Hb  
+##### 2794#       发表于 2021-9-17 21:05
+
+
+听这开场BGM，怀念原创曲，她都不唱了
+
+
+*****
+
+####  Klience  
+##### 2795#       发表于 2021-9-17 21:06
+
+
+歌会 果然没错 批限101民已经可以埋了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2796#       发表于 2021-9-17 21:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该B限学中文了
+
+
+*****
+
+####  Klience  
+##### 2797#       发表于 2021-9-17 21:08
+
+
+一股广东味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 2798#       发表于 2021-9-17 21:10
+
+
+你好 谢谢 小笼包 再见
+
+
+*****
+
+####  Rem-清曲  
+##### 2799#       发表于 2021-9-17 21:11
+
+
+不会偷学中文了8 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 2800#       发表于 2021-9-17 21:11
+
+
+拉夫复读机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 2801#       发表于 2021-9-17 21:12
+
+
+这是LL新番的梗（
+
+
+*****
+
+####  yywzjsw  
+##### 2802#       发表于 2021-9-17 21:15
+
+
+吐槽debu已经是本能了
+
+
+*****
+
+####  T_Hb  
+##### 2803#       发表于 2021-9-17 21:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起小笼包，我之前看到一个小笼包馅的包子，双层面皮
+
+
