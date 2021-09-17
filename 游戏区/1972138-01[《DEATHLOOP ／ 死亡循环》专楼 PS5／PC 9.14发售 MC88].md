@@ -5449,3 +5449,14 @@ Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
 进了间谍藏身点，里面有个录音机会放Drunken Whaler<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hkguty  
+##### 476#       发表于 2021-9-17 20:33
+
+
+PC版游戏都进不去，这游戏对win10版本还有要求的么
+
+

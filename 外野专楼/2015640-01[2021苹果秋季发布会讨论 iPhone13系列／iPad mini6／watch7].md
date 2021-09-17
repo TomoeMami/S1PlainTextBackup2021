@@ -9237,3 +9237,146 @@ jd又可以买了，老套路了
 太草了 钱付了订单木的。。。。。。
 
 
+
+
+*****
+
+####  用户名已注册  
+##### 840#       发表于 2021-9-17 20:27
+
+
+直营店取货不行了，一直卡。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  linuslinus  
+##### 841#       发表于 2021-9-17 20:29
+
+
+Applestore里的订单也不见了
+
+
+*****
+
+####  唯一指定用户名  
+##### 842#       发表于 2021-9-17 20:30
+
+
+估计首发是赶不上了 争取十一前拿到吧
+
+
+*****
+
+####  moekyo  
+##### 843#       发表于 2021-9-17 20:31
+
+
+给钱了，不管了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  linekm  
+##### 844#       发表于 2021-9-17 20:32
+
+
+apple store土豆服务器，订单被下了两个，不过还没扣钱<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  唯一指定用户名  
+##### 845#       发表于 2021-9-17 20:32
+
+
+这次最蠢的事忘了关信用卡限额<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jyions  
+##### 846#       发表于 2021-9-17 20:32
+
+
+查看订单状态，开十个标签页九个说sorry，好不容易进去跟我说未确认<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  cybernetics31  
+##### 847#       发表于 2021-9-17 20:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邮件收到了 钱付了 不管了 就这样吧 垃圾土豆服务器
+
+
+*****
+
+####  平井姨夫  
+##### 848#       发表于 2021-9-17 20:35
+
+
+8分钟内付款基本都能首发，明早苹果服务器就正常了，现在不显示发货时间或者显示发货时间不是首发都别担心
+
+
+*****
+
+####  白白白  
+##### 849#       发表于 2021-9-17 20:36
+
+
+pro已经国庆后一个星期了，无印版还是随便首发日<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 850#       发表于 2021-9-17 20:39
+
+
+四舍五入一个月了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/17/203943nfi522dk2b1dl0ll.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (18.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 20:39 上传
+
+
+*****
+
+####  (wing)  
+##### 851#       发表于 2021-9-17 20:42
+
+
+我是8点16分的时候付的款，能赶上首发么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  噗哩噗  
+##### 852#       发表于 2021-9-17 20:42
+
+
+京东怎么又崩了，我要买配件啊
+
+顺便大家有什么配件推荐吗
+
+
+*****
+
+####  flyang  
+##### 853#       发表于 2021-9-17 20:44
+
+
+今年疫情+芯片短缺，买啥电子产品都别指望货源充足，哪怕是苹果。。加下来的macbook和airpod肯定也是
+
+

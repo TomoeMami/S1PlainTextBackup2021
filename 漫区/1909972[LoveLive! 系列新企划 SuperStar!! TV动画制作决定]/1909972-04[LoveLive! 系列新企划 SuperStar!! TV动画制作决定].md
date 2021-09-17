@@ -6427,3 +6427,41 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 其实就是想到啥叫啥吧？
 
 
+
+
+*****
+
+####  megapikachu  
+##### 5021#       发表于 2021-9-17 20:22
+
+
+鲤鱼是打铁、sayu都会叫的
+
+
+*****
+
+####  优妮可  
+##### 5022#       发表于 2021-9-17 20:31
+
+
+<img src="https://img.saraba1st.com/forum/202109/17/203106z8hzn8lbhw1s8981.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210917_202640.jpg</strong> (235.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 20:31 上传
+
+
+*****
+
+####  後藤正文  
+##### 5023#       发表于 2021-9-17 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791796&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-17 19:53</a>
+最近肯定有一次叫了伊达的，我忘记是大前天的生放还是哪里了</blockquote>
+有次生放放送事故，大家开立德身高玩笑的时候突然来了句伊達がここに座れないじゃん
+
+
