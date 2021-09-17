@@ -9690,3 +9690,23 @@ jd11点额抢到了pro…老婆那台任务完成了…
 因为黄牛看见这么紧 肯定已经跟进更专业魔法了<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hotstar  
+##### 883#       发表于 2021-9-18 01:01
+
+
+9月24号选广州天环拿货，结果手贱换了点资料再点交易显示只能10月1号寄出了
+
+
+*****
+
+####  芸芸提不起劲  
+##### 884#       发表于 2021-9-18 01:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">睡前刷新了下显示9月24送达，可以安睡了
+
+

@@ -5474,3 +5474,24 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 对显卡驱动版本有要求
 
 
+
+
+*****
+
+####  量子大蛇  
+##### 478#       发表于 2021-9-18 00:49
+
+
+<img src="https://img.saraba1st.com/forum/202109/18/004815n5v2jxxc12j2zda7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210918002650_1.jpg</strong> (256.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-18 00:48 上传
+
+
+大哥，你死成这样让我很难办呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
