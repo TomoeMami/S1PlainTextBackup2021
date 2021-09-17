@@ -5513,3 +5513,14 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cwlqxs  
+##### 480#       发表于 2021-9-18 01:42
+
+
+每打两三个小时就报错闪退，真的服了
+
+
