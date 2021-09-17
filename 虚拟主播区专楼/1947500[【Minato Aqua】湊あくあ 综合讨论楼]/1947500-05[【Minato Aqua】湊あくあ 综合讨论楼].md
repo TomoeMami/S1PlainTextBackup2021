@@ -11797,3 +11797,19 @@ UMISEA这个小动画感觉都在棒读
 今天联动感觉比马趴那次稍微好点
 
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 6949#       发表于 2021-9-18 07:47
+
+
+没想到486也是气味控，被486说了气味好闻
+
+[https://www.youtube.com/watch?v=bWXmTyubBeE&amp;t=3996s](https://www.youtube.com/watch?v=bWXmTyubBeE&amp;t=3996s)
+
+
+再补个本田的访谈 [https://www.youtube.com/watch?v=VMYdPvmFkAE](https://www.youtube.com/watch?v=VMYdPvmFkAE)
+
+

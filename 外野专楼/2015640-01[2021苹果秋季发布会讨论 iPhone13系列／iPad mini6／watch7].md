@@ -9819,3 +9819,16 @@ jd11点额抢到了pro…老婆那台任务完成了…
 官网找不到这个小程序的授权资格，别买
 
 
+
+
+*****
+
+####  kanpachi  
+##### 893#       发表于 2021-9-18 07:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52796101&amp;ptid=2015640" target="_blank">黑耀星尘 发表于 2021-9-18 07:03</a>
+ 缺不缺货也要看地方吧pm256苏州地区自取没货了，送货要等到10底11月去了，13倒是直接有现货  —— 来自 sam ...</blockquote>
+直接去魔都好了，魔都全是25号现货<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
