@@ -8640,3 +8640,52 @@ chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主�
 用新引擎来一个TOS或者TOA啥的吧<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 5162#         楼主| 发表于 2021-9-17 10:29
+
+
+楼主用了58小时，把成就全部解锁了，这样《破晓传奇》就是第二个有记录的全成就系列作了。关于个人感想近期将会列出。
+
+
+<img src="https://img.saraba1st.com/forum/202109/17/102906m64o9q2b3164ot9q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021-09-17_10-27-53.jpg</strong> (28.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 10:29 上传
+
+
+*****
+
+####  希望之异热同心  
+##### 5163#       发表于 2021-9-17 10:36
+
+
+秘奥义的伤害究竟高不高，每次复读光炮丢得正嗨的时候突然有个队友进了ovl然后放秘奥义把我加速状态给重置了好不爽，如果伤害不高那我想关了所有人的秘奥义
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JudgmentEye  
+##### 5164#       发表于 2021-9-17 10:40
+
+
+ 本帖最后由 JudgmentEye 于 2021-9-17 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784160&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-17 10:22</a>
+
+话说回来啊
+
+那几个客串角色（防剧透不说是谁了）的模型我对比了一下旧作
+
+感觉是直接拿进来的啊,材质和模型 ...</blockquote>
+这年头不管你用虚幻4还是unity还是厂商自研引擎，做模型都得老老实实上自动桌全家桶，就算不用自动桌用zbush用blender等同行，这些模型也都能转换成fbx之类业界通用格式，是个游戏引擎都支持
+
+
