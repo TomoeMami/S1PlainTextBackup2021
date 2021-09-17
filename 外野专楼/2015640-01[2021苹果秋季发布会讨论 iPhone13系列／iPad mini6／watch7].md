@@ -9017,3 +9017,223 @@ SE从来都是次年三四月份的发布会才有消息
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我佛啦 刚进去就10月8号了
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 819#       发表于 2021-9-17 20:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">什么鬼 官网咋只能3期了？
+
+
+*****
+
+####  redsibyl  
+##### 820#       发表于 2021-9-17 20:15
+
+
+京东真tm纯耍猴，就这点存货卖jb呢
+
+
+*****
+
+####  韭菜  
+##### 821#       发表于 2021-9-17 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791995&amp;ptid=2015640" target="_blank">Totokei 发表于 2021-9-17 20:07</a>
+
+下到了订单，但是付不了款只能看着待付款里面转圈
+
+已经排到10月7日了
+
+钱付了，订单没了</blockquote>
+等一下就好，我付完也是10.7 付款未收到，
+
+过个几分钟就是9.24 付款已收到了
+
+
+*****
+
+####  rak1  
+##### 822#       发表于 2021-9-17 20:16
+
+
+我进去就是抢购失败 再进去就是没抢到，狗东真的纯耍猴
+
+
+*****
+
+####  韭菜  
+##### 823#       发表于 2021-9-17 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792119&amp;ptid=2015640" target="_blank">cybernetics31 发表于 2021-9-17 20:14</a>
+
+什么鬼 官网咋只能3期了？</blockquote>
+有啊 只是指定的几个付款银行， 最高24免息啊
+
+
+*****
+
+####  nomhrpls  
+##### 824#       发表于 2021-9-17 20:17
+
+
+啥情况 我第一时间刷出来的，显示924自提，10.8送到，然后我鬼使神差的选了10.8送到
+
+
+*****
+
+####  世界的膀胱者  
+##### 825#       发表于 2021-9-17 20:18
+
+
+草，订单消失了
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Damenly  
+##### 826#       发表于 2021-9-17 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792174&amp;ptid=2015640" target="_blank">nomhrpls 发表于 2021-9-17 20:17</a>
+
+啥情况 我第一时间刷出来的，显示924自提，10.8送到，然后我鬼使神差的选了10.8送到 ...</blockquote>
+我也是这样，我选的自提，填好信息之后发现24号满了，只能25
+
+
+*****
+
+####  唯一指定用户名  
+##### 827#       发表于 2021-9-17 20:19
+
+
+付款了显示未付款<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  六尺之下  
+##### 828#       发表于 2021-9-17 20:21
+
+
+朋友圈都看到买不到抱怨得了，今年难不成要破纪录？
+
+
+*****
+
+####  Totokei  
+##### 829#       发表于 2021-9-17 20:22
+
+
+ 本帖最后由 Totokei 于 2021-9-17 20:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792154&amp;ptid=2015640" target="_blank">韭菜 发表于 2021-9-17 20:16</a>
+
+等一下就好，我付完也是10.7 付款未收到，
+
+过个几分钟就是9.24 付款已收到了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">主要是怕那个30分钟内付款然后把我付了钱的订单给取消了
+
+偶尔能刷出的订单界面显示已经付款了，但是还没收到邮件估计也是妥了？
+
+
+*****
+
+####  jiangnux  
+##### 830#       发表于 2021-9-17 20:23
+
+
+我支付完还显示未支付
+
+到这还需要做什么吗？
+
+
+*****
+
+####  moekyo  
+##### 831#       发表于 2021-9-17 20:23
+
+
+我都准备付款了，但是掌上生活加载不出来。。。
+
+
+*****
+
+####  moekyo  
+##### 832#       发表于 2021-9-17 20:24
+
+
+逼我等双十一了吗<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Urakawa  
+##### 833#       发表于 2021-9-17 20:24
+
+
+买的时候配送时间已经9/30～10/03，直接选25号到店取了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  (wing)  
+##### 834#       发表于 2021-9-17 20:24
+
+
+钱已付，前面送达日期还10月2号到14号，后来要说订单处理后确定
+
+
+*****
+
+####  Urakawa  
+##### 835#       发表于 2021-9-17 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52792249&amp;ptid=2015640" target="_blank">moekyo 发表于 2021-9-17 20:23</a>
+我都准备付款了，但是掌上生活加载不出来。。。</blockquote>
+我不知道为啥，一直提示密码错误，最后重置了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  遗尿  
+##### 836#       发表于 2021-9-17 20:25
+
+
+本来想下单的，但是想想我又不急着换，反正厦门有直营店等想换的时候自提算了。
+
+
+*****
+
+####  redsibyl  
+##### 837#       发表于 2021-9-17 20:25
+
+
+jd又可以买了，老套路了
+
+
+*****
+
+####  噗哩噗  
+##### 838#       发表于 2021-9-17 20:25
+
+
+订单还没处理，有点慌
+
+
+*****
+
+####  cybernetics31  
+##### 839#       发表于 2021-9-17 20:25
+
+
+太草了 钱付了订单木的。。。。。。
+
+
