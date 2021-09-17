@@ -9430,3 +9430,39 @@ TOX合集TOD合集TOGF，加起来算上骨折也能卖个四五百万
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  魂淡放我出去  
+##### 5221#       发表于 2021-9-17 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794469&amp;ptid=1860328" target="_blank">loley 发表于 2021-9-17 23:18</a>
+我玩完之后上论坛一看才发现那么多人在吐槽琳薇尔嘴臭，印象中挺多地方都是大家交口称赞的红毛口不择言冒犯 ...</blockquote>
+其实就是，她嘴臭得再有道理那也是嘴臭，给人观感并不好，哪怕是剧情需要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+对比tob同样是敌队成员加入，tob的队伍就没这么不和谐
+
+
+*****
+
+####  不应  
+##### 5222#       发表于 2021-9-17 23:33
+
+
+终于打通主线了，只能说结局的氛围全被ufo这个垃圾ppt动画毁了，就不能用实机演示吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JudgmentEye  
+##### 5223#       发表于 2021-9-17 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791225&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-17 18:53</a>
+
+具体数值要等官方本子解析，耐久目前来看类似以前的回避，有条件可以搞JSZ，把人物的耐久力搞成9999，看 ...</blockquote>
+0-几十
+
+
