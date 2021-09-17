@@ -5488,3 +5488,108 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 老套路呗..
 
 
+
+
+*****
+
+####  a92063256  
+##### 4942#       发表于 2021-9-17 10:47
+
+
+为啥要这么急啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">难不成是要和恋一起live招揽生源，废校危机放在之后解决吗？
+
+
+*****
+
+####  ads147147  
+##### 4943#       发表于 2021-9-17 10:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">12话说不定还要塞1单的画面进去，那完蛋了，花田能有勇气牺牲其他三个去强行弄三集来写可香，我只有花田nb可以说了，感恩花田给可香党一条活路。
+
+
+*****
+
+####  lj205  
+##### 4944#       发表于 2021-9-17 10:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下周还没生放………………
+
+
+*****
+
+####  寒风夜  
+##### 4945#       发表于 2021-9-17 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784637&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-17 10:48</a>
+
+12话说不定还要塞1单的画面进去，那完蛋了，花田能有勇气牺牲其他三个去强行弄三集来写可香，我只有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这种大方向肯定不是他能说了算
+
+
+*****
+
+####  寒风夜  
+##### 4946#       发表于 2021-9-17 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784637&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-17 10:48</a>
+
+12话说不定还要塞1单的画面进去，那完蛋了，花田能有勇气牺牲其他三个去强行弄三集来写可香，我只有 ...</blockquote>
+
+
+*****
+
+####  kata魂  
+##### 4947#       发表于 2021-9-17 10:52
+
+
+五个人写的比九个人崩，花田已经不是牛逼能形容的了
+
+
+*****
+
+####  ads147147  
+##### 4948#       发表于 2021-9-17 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784706&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-17 10:52</a>
+
+这种大方向肯定不是他能说了算</blockquote>
+谁不是带脚镣跳舞的，花田就属于能力不足了。
+
+
+好，谁去开楼去奶要接锅as垃圾剧本，一季度番要塞12个人的田中仁（
+
+
+*****
+
+####  寒风夜  
+##### 4949#       发表于 2021-9-17 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784756&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-17 10:55</a>
+
+谁不是带脚镣跳舞的，花田就属于能力不足了。
+
+
+好，谁去开楼去奶要接锅as垃圾剧本，一季度番要塞12个人的 ...</blockquote>
+是这样
+
+
+*****
+
+####  寒风夜  
+##### 4950#       发表于 2021-9-17 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784756&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-17 10:55</a>
+
+谁不是带脚镣跳舞的，花田就属于能力不足了。
+
+
+好，谁去开楼去奶要接锅as垃圾剧本，一季度番要塞12个人的 ...</blockquote>
+
+
