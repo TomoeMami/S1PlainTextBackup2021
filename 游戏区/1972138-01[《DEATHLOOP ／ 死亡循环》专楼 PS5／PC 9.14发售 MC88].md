@@ -5376,3 +5376,42 @@ Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
 你没跟他对话过？你都进去了不跟电脑交流下，他自己说了有之前的记忆，不仅如此你还可以命令他干事情
 
 
+
+
+*****
+
+####  量子大蛇  
+##### 470#       发表于 2021-9-17 14:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52787421&amp;ptid=1972138" target="_blank">redsibyl 发表于 2021-9-17 13:59</a>
+
+你没跟他对话过？你都进去了不跟电脑交流下，他自己说了有之前的记忆，不仅如此你还可以命令他干事情 ...</blockquote>
+第一次跑到电脑那一层暂停了一下，结果当时开的是仅限好友模式，并没有真的暂停，直接被杂兵干掉了（前面还被杂兵杀死一次，跳后门断崖跳死一次），第二次进城堡才触发和电脑对话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Keynes  
+##### 471#       发表于 2021-9-17 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781881&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-17 01:46</a>
+ 问个问题，有什么针对地雷的护符么，我做综合研究中心发电站任务被地雷阴死两条命，麻的不行。就没有拆雷的 ...</blockquote>
+昨天掉了一个紫色的抄雷专家（大概是叫这个名字）效果是能把雷变成自己的或者远程激活爆炸<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 472#       发表于 2021-9-17 14:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782338&amp;ptid=1972138" target="_blank">火红之眼 发表于 2021-9-17 07:20</a>
+
+对着地雷按键就拆了，和拆镭射一个道理，就是要听声辨位而已
+
+雷区还不如直接瞬移过去省得麻烦 ...</blockquote>
+我觉得找雷还真不是事儿，我有强迫症看到个雷就想拆，所以被自己坑了很多次
+
+
