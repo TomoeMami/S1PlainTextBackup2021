@@ -8948,3 +8948,18 @@ chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主�
 还有更傻逼的是，你不去摸一下，哪怕只剩1滴血，AI打半年都不会触发处决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  法拉  
+##### 5185#       发表于 2021-9-17 18:11
+
+
+ 本帖最后由 法拉 于 2021-9-17 18:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52790183&amp;ptid=1860328" target="_blank">focus 发表于 2021-9-17 17:24</a>
+
+到后期贯通力根本没用。chaos难度的boss，即使装上贯通力+80%的饰品，暴击率依旧在5%以下，跟不装没啥区别 ...</blockquote>
+贯通力不只是反应在暴击上，伤害计算感觉是会过贯通耐久对抗的，类似tod2的命中力，避免被boss的耐久力压制还是很重要的，虽然我也还没打chaos所以不清楚chaos是什么情况
+
+

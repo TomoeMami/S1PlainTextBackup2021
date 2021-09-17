@@ -13976,3 +13976,45 @@ rig肯定被诅咒了，上次也是各种状况
 出于各种原因（直播里讲挺细），今年百物语（如果还有空的话）预计冬天做
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7030#       发表于 2021-9-17 18:18
+
+
+熊猫人果然要来b限<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sgssk  
+##### 7031#       发表于 2021-9-17 18:19
+
+
+前u社游戏部企划的最后两个遗子，克蕾雅老师和二代目粉毛宣布带皮移籍至HIGHWAY STAR
+
+<img src="https://img.saraba1st.com/forum/202109/17/181436regsdyszdymqkaag.png" referrerpolicy="no-referrer">
+
+
+<strong>4_6CR6M%CM4}6%M7@~G77TP.png</strong> (55.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 18:14 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/17/181436gvnwmnwwrwfhz5su.png" referrerpolicy="no-referrer">
+
+
+<strong>QCN@R(8ZNQA%P]H93N]T9.png</strong> (52.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-17 18:14 上传
+
+
+突然间就可以把名字列在JAM 和田 梶浦由记的下面了。u社很给面子啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
