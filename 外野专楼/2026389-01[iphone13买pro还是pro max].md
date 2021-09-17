@@ -1207,3 +1207,26 @@ pro max太大了
 —— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  强尼高达  
+##### 98#       发表于 2021-9-17 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782698&amp;ptid=2026389" target="_blank">飞侠小黑 发表于 2021-9-17 08:28</a>
+13PRO还没13大，电池就12WH大概3100mha
+高刷和5g刚需还是推荐pro max，不然续航怕是要血崩</blockquote>
+官方数据是Pro续航更好，请勿脑补
+
+
+*****
+
+####  斑驳的阴影  
+##### 99#       发表于 2021-9-17 12:22
+
+
+多了高刷还能增强续航，不是特调好体质soc就是挖到天顶星科技了吧<img src="https://static.saraba1st.com/image/smiley/animal2017/016.png" referrerpolicy="no-referrer">
+
+

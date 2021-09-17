@@ -5866,3 +5866,23 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可以像是第一话哈利路亚一样来个恋独唱当ED用啊
 
 
+
+
+*****
+
+####  寒风夜  
+##### 4974#       发表于 2021-9-17 12:09
+
+
+不想啦 
+
+
+*****
+
+####  chenflyyy  
+##### 4975#       发表于 2021-9-17 12:14
+
+
+这集的期望值已经降到最低了，希望到时出来别比期望得更差<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
