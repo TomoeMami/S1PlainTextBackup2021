@@ -5755,3 +5755,14 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  Norkey1  
+##### 4965#       发表于 2021-9-17 11:39
+
+
+再烂不会比水烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+

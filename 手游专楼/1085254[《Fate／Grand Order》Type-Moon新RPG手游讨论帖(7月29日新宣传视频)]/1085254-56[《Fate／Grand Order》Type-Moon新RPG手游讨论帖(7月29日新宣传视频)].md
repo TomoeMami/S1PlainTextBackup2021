@@ -14900,3 +14900,16 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没提的都是没有，提了的话才是有。讲真。现在有孔明。有被动技能。2个50NP礼装。带个爱酱。嫖个能原地起爆周常还是没问题的。只不过友情点要抽得有点手软了。现在活动有一张十分好的50NP礼装。再手搓一个龙脉。或者等下次活动送50NP。或者40NP礼装加被动先凑合当50NP
 
 
+
+
+*****
+
+####  红丽  
+##### 83756#       发表于 2021-9-17 11:29
+
+
+2年没怎么玩了
+
+现在补主线第二部第五章这个强度有点大啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
