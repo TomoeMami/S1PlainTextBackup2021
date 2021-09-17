@@ -14835,3 +14835,20 @@ BGO跑路日服18年出那几个大事的时候就有不少人了，结果自己
 大公，金钻头，性价比都很高
 
 
+
+
+*****
+
+####  UNISONIA  
+##### 83752#       发表于 2021-9-17 08:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52780591&amp;ptid=1085254" target="_blank">J-002 发表于 2021-9-16 23:08</a>
+
+当初日服2.3，全世界都在夸中国人的皇帝真牛逼时，只有中国人自己因为皇帝头发不黑举报他乳化 ...</blockquote>
+其实也就reddit上的欧美人是真的玩了而且夸了（国内则是那段时间在云和乱吹虚空剧情）
+
+
+日本人对LB3的评价相对微妙，一边倒好评的人不多
+
+

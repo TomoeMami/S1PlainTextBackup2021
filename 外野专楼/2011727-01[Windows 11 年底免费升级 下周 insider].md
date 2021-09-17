@@ -7022,3 +7022,16 @@ Best Windows 11 Start Menu Made by Google</blockquote>
 恩，也是测试版(94ver)，本来是半屏或全屏开始菜单的
 
 
+
+
+*****
+
+####  卡爹  
+##### 577#       发表于 2021-9-17 08:53
+
+
+滚回Win10了，我感觉11有一种卡得很均匀的感觉，就是没有特别卡，但是每一个操作都有点卡
+
+—— 来自 vivo V1924A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
