@@ -5495,3 +5495,21 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 大哥，你死成这样让我很难办呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  AlerHugues  
+##### 479#       发表于 2021-9-18 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791715&amp;ptid=1972138" target="_blank">oniwarud 发表于 2021-9-17 19:46</a>
+又一个全新的bug，打艺术家那一关拿了反应堆设计图后整个ui界面卡住无法操作，也无法退出，又是收集的两个 ...</blockquote>
+退了重进是从那一关继续的吧
+不是整个循环都要重打
+一张图白打浪费一两个小时犯不着
+后期我都五到十分钟一张图这么扫的
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
