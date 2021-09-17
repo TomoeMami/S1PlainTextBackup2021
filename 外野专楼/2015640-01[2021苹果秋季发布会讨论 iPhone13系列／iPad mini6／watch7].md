@@ -8811,3 +8811,17 @@ SE从来都是次年三四月份的发布会才有消息
 2021-9-17 16:13 上传
 
 
+
+
+*****
+
+####  汝者  
+##### 799#       发表于 2021-9-17 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52774372&amp;ptid=2015640" target="_blank">闽明 发表于 2021-9-16 15:25</a>
+
+不谈屏幕尺寸，air4换mini6有体验提升吗？</blockquote>
+没 mini6就是air缩小 双手变单手算不算？
+
+

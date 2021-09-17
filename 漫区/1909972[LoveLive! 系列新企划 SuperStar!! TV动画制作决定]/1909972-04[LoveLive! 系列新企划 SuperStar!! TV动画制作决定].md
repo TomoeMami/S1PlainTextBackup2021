@@ -6288,3 +6288,42 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  寒风夜  
+##### 5008#       发表于 2021-9-17 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52789403&amp;ptid=1909972" target="_blank">普之舜舜 发表于 2021-9-17 16:28</a>
+
+第六话的live拉成什么样子了哈
+
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">没啊 只觉得衣服不行
+
+
+*****
+
+####  TTAA  
+##### 5009#       发表于 2021-9-17 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52789403&amp;ptid=1909972" target="_blank">普之舜舜 发表于 2021-9-17 16:28</a>
+第六话的live拉成什么样子了哈
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅 ...</blockquote>
+第六话还拉，大概看的不是同一个第六集吧
+
+
+*****
+
+####  cybernetics31  
+##### 5010#       发表于 2021-9-17 16:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这企划碟真的太多了………………
+
+
