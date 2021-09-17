@@ -5363,3 +5363,16 @@ Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
 这游戏应该出个app，关联账号和进度，平时没事就看文档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  redsibyl  
+##### 469#       发表于 2021-9-17 13:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785544&amp;ptid=1972138" target="_blank">量子大蛇 发表于 2021-9-17 11:37</a>
+好像除了两名主角，死宅的机器人也是有记忆的，第一次进城堡翻窗进去，第二次刚到窗口就把护栏降下来不让进 ...</blockquote>
+你没跟他对话过？你都进去了不跟电脑交流下，他自己说了有之前的记忆，不仅如此你还可以命令他干事情
+
+
