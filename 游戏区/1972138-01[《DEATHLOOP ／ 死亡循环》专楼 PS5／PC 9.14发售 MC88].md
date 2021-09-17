@@ -5415,3 +5415,17 @@ Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
 我觉得找雷还真不是事儿，我有强迫症看到个雷就想拆，所以被自己坑了很多次
 
 
+
+
+*****
+
+####  粪坑战士  
+##### 473#       发表于 2021-9-17 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52780260&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-16 22:39</a>
+
+这作我至今没找到可以输入0451的密码锁，我要输入0451啊混蛋</blockquote>
+这作的密码应该都是随机的 没固定的 
+
+

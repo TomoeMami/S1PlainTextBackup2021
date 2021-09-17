@@ -6105,3 +6105,35 @@ LL是2.9次元企划<img src="https://static.saraba1st.com/image/smiley/face2017
 感谢祭，香千
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4993#       发表于 2021-9-17 14:32
+
+
+话说双版本2+1这种卖碟方式是谁先开始的，太会骗钱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 4994#       发表于 2021-9-17 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52787326&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-17 13:52</a>
+
+感谢祭，香千</blockquote>
+sayurin真是劳模啊，liella参加的活动她好像就没缺席的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 4995#       发表于 2021-9-17 14:42
+
+
+季节应该只是个象征。春天的可可代表故事的开始，夏天的民堇代学院偶像的气氛升高。秋天是青梅竹马约定的季节，冬天是恋处境严寒
+
+
