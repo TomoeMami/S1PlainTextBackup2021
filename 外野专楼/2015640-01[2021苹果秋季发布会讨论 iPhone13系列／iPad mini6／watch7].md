@@ -9571,3 +9571,16 @@ jd抢不到，还是在官网24期分期了，看样子要等到10月底了
 但是订单里还是看不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑耀星尘  
+##### 873#       发表于 2021-9-17 22:18
+
+
+官网16分付款的之前显示10月1号以后发货，最后结账时是时间未定现在订单里已付款了确认邮件没收到具体发货时间也还没有
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -6515,3 +6515,37 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  寒风夜  
+##### 5028#       发表于 2021-9-17 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52793572&amp;ptid=1909972" target="_blank">普之舜舜 发表于 2021-9-17 22:02</a>
+
+不是有个虹团的人称之为“全世界人最要看的live”吗？那时候我满心期待呀
+
+
+—— 来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你这是看岔了，没说live，不过也是搞事
+
+
+*****
+
+####  星降る森  
+##### 5029#       发表于 2021-9-17 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52793572&amp;ptid=1909972" target="_blank">普之舜舜 发表于 2021-9-17 22:02</a>
+
+不是有个虹团的人称之为“全世界人最要看的live”吗？那时候我满心期待呀
+
+
+—— 来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">你的记忆错的离谱啊，首先吹的人是星团的，一定要说和虹有关系的，也就是虹动画人物设定的横田，他说的也只是剧情，又不是live part，难道你把剧情和live画等号的？
+
+要说剧情有问题不理想也就算了，live part本身没什么大问题，年一拉？
+
+
