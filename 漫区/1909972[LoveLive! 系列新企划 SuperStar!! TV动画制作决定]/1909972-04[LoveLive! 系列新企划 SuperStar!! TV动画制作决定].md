@@ -5593,3 +5593,165 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 好，谁去开楼去奶要接锅as垃圾剧本，一季度番要塞12个人的 ...</blockquote>
 
 
+
+
+*****
+
+####  lj205  
+##### 4951#       发表于 2021-9-17 11:00
+
+
+12话除去头尾两集，剩10话，还真是一人两集<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">，中间还要推敌团和观光，每集挤1分多2分钟唱歌，想想还真是忙……
+
+
+*****
+
+####  a92063256  
+##### 4952#       发表于 2021-9-17 11:02
+
+
+我猜下集的剧情是恋在香音的嘴炮下态度软化，改变之前做出的以音乐科为主举办学园祭的决定，然后在学园祭上开live，live和学园祭大获成功，生源大量增加，废校危机直接解除<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 4953#       发表于 2021-9-17 11:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经做好了到时候生放送用声优盾的心理预期了。
+
+再离谱，也就是追飞机而已，总比水13的唱歌剧好。
+
+
+直说，只是第一次看花田这样搞，其实还好，问题是，这tm都第几次了，年轻人第一次花田十辉（比年轻人第一次冈田磨里好
+
+
+*****
+
+####  普之舜舜  
+##### 4954#       发表于 2021-9-17 11:08
+
+
+<img src="https://p.sda1.dev/2/b8138e96dc75bb04486181147fb6d952/98F5D18F1E0BC22756FA76C5512E1FF4.jpg" referrerpolicy="no-referrer">第八话live确定
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  普之舜舜  
+##### 4955#       发表于 2021-9-17 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784970&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-17 11:07</a>
+我已经做好了到时候生放送用声优盾的心理预期了。
+
+再离谱，也就是追飞机而已，总比水13的唱歌剧好。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你咋知道，星团还是我追的第一部偶像番剧，上一部“年轻人追的第一部原创番剧”让我pstd了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 4956#       发表于 2021-9-17 11:11
+
+
+<blockquote>普之舜舜 发表于 2021-9-17 11:09
+你咋知道，星团还是我追的第一部偶像番剧，上一部“年轻人追的第一部原创番剧”让 ...</blockquote>
+那兄弟你这运气有点不太好哈哈，有考虑补一下去年的宝石幻想和虹团嘛。
+
+
+*****
+
+####  寒风夜  
+##### 4957#       发表于 2021-9-17 11:15
+
+
+ 本帖最后由 寒风夜 于 2021-9-17 11:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784886&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-17 11:02</a>
+
+我猜下集的剧情是恋在香音的嘴炮下态度软化，改变之前做出的以音乐科为主举办学园祭的决定，然后在学园祭上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 学校，为什么不支持偶像要说清楚，恐怕这都难
+
+
+*****
+
+####  寒风夜  
+##### 4958#       发表于 2021-9-17 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52784886&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-17 11:02</a>
+
+我猜下集的剧情是恋在香音的嘴炮下态度软化，改变之前做出的以音乐科为主举办学园祭的决定，然后在学园祭上 ...</blockquote>
+
+
+*****
+
+####  ads147147  
+##### 4959#       发表于 2021-9-17 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52785028&amp;ptid=1909972" target="_blank">普之舜舜 发表于 2021-9-17 11:09</a>
+
+你咋知道，星团还是我追的第一部偶像番剧，上一部“年轻人追的第一部原创番剧”让 ...</blockquote>
+去看看少女歌剧。。蕉哥哥那两集已经完美嘲讽了现在花田的做法了。。。
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4960#       发表于 2021-9-17 11:15
+
+
+讲道理，虹团第一季没敌团，没比赛任务，镣铐松多了吧，节奏说是gal改也没问题。
+
+田中仁还是得看第二季，但也只是as剧情和人物设定改编难度大，篇幅上其实很宽裕。
+
+花田这是被live和主线卡得窒息了，还有强迫症必须播ed。
+
+上面说得对，前三集可香篇简直是大手大脚，提前消费。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  优妮可  
+##### 4961#       发表于 2021-9-17 11:16
+
+
+看了下各论坛和群，大伙期望都掉到很低了，基本寄了的状态。
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4962#       发表于 2021-9-17 11:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前天生放是不是都没怎么吹过第八集。。。第六集之前吹了半天结果就这。是不是官方要我们放低期待
+
+
+*****
+
+####  寒风夜  
+##### 4963#       发表于 2021-9-17 11:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我觉得5人这速度还慢了..
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4964#       发表于 2021-9-17 11:23
+
+
+自信一点，这季n站放送就能打破ll系列好评最低记录<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+

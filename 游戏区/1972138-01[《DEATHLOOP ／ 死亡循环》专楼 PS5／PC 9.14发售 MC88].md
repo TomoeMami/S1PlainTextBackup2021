@@ -1,0 +1,5289 @@
+
+
+*****
+
+####  サリシノハラ  
+##### 1#       楼主       发表于 2020-11-14 09:26
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-13 23:56 编辑 
+
+[官方网站](https://bethesda.net/zh-CN/game/deathloop)
+
+
+商店页面：
+[PS5港服](https://store.playstation.com/zh-hans-hk/product/HP1003-PPSA02532_00-DE1CS1DLOOPPREST) 
+[Steam](https://store.steampowered.com/app/1252330/) 
+[bethesda.net](https://bethesda.net/zh-TW/store/product/DE1CD1PCBG01BASE?edition=DE1CDXPCBG01)
+
+
+商店介绍：
+
+如果你一开始没能成功……那就，再死一次。
+每一次新循环都是改写过去的良机。从每次过往经历中汲取知识并灵活改变你的玩法，决定究竟该悄无声息地安然通关，还是该肆无忌惮地持枪冲锋陷阵。在每次循环中，你将会发现新秘密、发掘关于目标和黑礁岛的新信息，同时扩充你的军火库。配备一系列超凡能力和残暴武器后，你可以尽情使用它们，以引人注目且破坏力惊人的方式打倒敌人。明智选择你的配备，使你在这场致命的狩猎游戏中抢占生机。
+
+
+为单人游戏玩法注入多人游戏的致命元素
+你是英雄还是反派？在DEATHLOOP的主线剧情中，你将扮演柯尔特，在黑礁岛上四处追击目标，试图打破循环并重获自由。与此同时，你的劲敌朱莉安娜将会对你穷追不舍，朱莉安娜有可能是由另一名玩家所操控。如果你想尝试反派作风，你也可以扮演朱莉安娜悄然潜入其他玩家的战役剧情并追杀柯尔特。<strong>玩家可自行选择多人游戏模式，你也可选择由AI控制自己战役剧情中的朱莉安娜。</strong>
+
+
+黑礁岛：天堂或囚牢……
+一直以来，Arkane所打造的游戏世界不仅具有宏伟的艺术风格，且以其提供的多种通关途径和涌现式游戏玩法而闻名。DEATHLOOP将会呈现一个受启于上世纪60年代，具有复古未来风格的惊人环境。如游戏世界中的各人物一样，这个故事的舞台本身也极具个性。虽然黑礁岛是一个风格十足的奇境，但对柯尔特而言，这个岛屿却是他的囚牢。这个世界受堕落掌控：在这里，死亡毫无意义，犯罪分子永远在狂欢；而他，却受囚于这牢笼之中。
+
+
+<img src="https://s3.ax1x.com/2020/11/14/D9HUiR.jpg" referrerpolicy="no-referrer">
+
+
+注：
+
+1. PS5主机平台限时独占一年，将在登陆Xbox主机平台时加入XGP
+
+2. PS5独占武器：皇家圣卫砍刀（预购奖励）/ 转星掘沟者（豪华版内容）
+
+3. PS5/PC版本适配DualSense触觉反馈 / 自适应扳机 ：[https://www.bilibili.com/video/BV1fP4y1p7tb](https://www.bilibili.com/video/BV1fP4y1p7tb)
+
+
+ *本主题由 从来不吃青菜 于 2021-9-13 15:54 设置高亮* 
+
+
+*****
+
+####  佐伯香織  
+##### 2#       发表于 2020-11-14 09:28
+
+
+ 本帖最后由 佐伯香織 于 2020-11-14 09:31 编辑 
+
+这个肯定玩，已预购steam版
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  ffmzsj  
+##### 3#       发表于 2020-11-14 09:31
+
+
+ps5还是70刀吗
+
+
+*****
+
+####  国家免检虎B  
+##### 4#       发表于 2020-11-14 09:42
+
+
+少数能完全信任的游戏工作室（除了优化）
+
+—— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  サリシノハラ  
+##### 5#         楼主| 发表于 2020-11-14 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49388783&amp;ptid=1972138" target="_blank">ffmzsj 发表于 2020-11-14 09:31</a>
+
+ps5还是70刀吗</blockquote>
+和PC一样是60。PS+的话有个九折
+
+
+*****
+
+####  内森德雷克  
+##### 6#       发表于 2020-11-14 09:45
+
+
+阿肯，我的超人
+
+
+*****
+
+####  佐伯香織  
+##### 7#       发表于 2020-11-14 09:49
+
+
+不过我没太关注这个多人机制，别最后搞得和prey的pvp那样翻车
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  qty  
+##### 8#       发表于 2020-11-14 09:57
+
+
+ 本帖最后由 qty 于 2020-11-14 10:04 编辑 
+
+啥意思，PS5有独占武器？草，看了一眼还真是，sb索尼连这种游戏都要搞独占dlc那一套，恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  frankCC  
+##### 9#       发表于 2020-11-14 10:08
+
+
+加入xgp确定了，但我想知道会在发售时加入xgp for pc吗？那样就有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NegativeRamos  
+##### 10#       发表于 2020-11-14 10:16
+
+
+大家都觉得Arkane是完全可以信任的，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clears  
+##### 11#       发表于 2020-11-14 10:20
+
+
+如果是纯单机就好了
+
+
+*****
+
+####  サリシノハラ  
+##### 12#         楼主| 发表于 2020-11-14 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49389034&amp;ptid=1972138" target="_blank">frankCC 发表于 2020-11-14 10:08</a>
+
+加入xgp确定了，但我想知道会在发售时加入xgp for pc吗？那样就有趣了 ...</blockquote><blockquote>@klobrille
+
+The situation around Deathloop and Ghostwire Tokyo is quite ... Interesting, to say the least. Knowing both of these titles will hit Xbox Game Pass Day One <strong>when they'll come to Xbox consoles</strong> changes the perspective a bit.</blockquote>
+
+暂时看不出来，谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chillstar  
+##### 13#       发表于 2020-11-14 13:55
+
+
+我记得arkane参与制作的youngblood就搞砸了来着，也不用过于吹嘘吧
+
+
+*****
+
+####  サリシノハラ  
+##### 14#         楼主| 发表于 2021-2-26 08:48
+
+
+新播片
+[https://www.bilibili.com/video/BV13f4y167gV](https://www.bilibili.com/video/BV13f4y167gV)
+[https://www.youtube.com/watch?v=QKVqwEsw4Uo](https://www.youtube.com/watch?v=QKVqwEsw4Uo)
+
+
+*****
+
+####  byisme001  
+##### 15#       发表于 2021-2-26 08:54
+
+
+会是playstation上最后的杯赛游戏吗
+
+—— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Dgnic_  
+##### 16#       发表于 2021-2-26 09:57
+
+
+游戏目前看来游戏性不会比阿肯之前的游戏差，新播片演示的攻击方式相当丰富，就是不知道这个时间循环要怎么与游戏相契合了。
+
+
+*****
+
+####  多狼医生  
+##### 17#       发表于 2021-2-26 10:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443849&amp;ptid=1972138" target="_blank">byisme001 发表于 2021-2-26 08:54</a>
+会是playstation上最后的杯赛游戏吗
+
+—— 来自 Xiaomi M2002J9E, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+不是
+至少还有幽灵线
+
+
+*****
+
+####  dbz9643  
+##### 18#       发表于 2021-2-26 10:23
+
+
+首发会不会上pc xgp呢, 一个明确会上xgp的游戏实在不想再多花一分钱, 但是阿肯的游戏又想早点玩到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 19#       发表于 2021-2-26 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50444531&amp;ptid=1972138" target="_blank">多狼医生 发表于 2021-2-26 10:08</a>
+不是
+至少还有幽灵线</blockquote>
+这俩哪个先出?
+
+—— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  多狼医生  
+##### 20#       发表于 2021-2-26 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445050&amp;ptid=1972138" target="_blank">byisme001 发表于 2021-2-26 10:55</a>
+这俩哪个先出?
+
+—— 来自 Xiaomi M2002J9E, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+dl发售日都确定这么久了你说谁先出……
+之前索尼给的幽灵线窗口是10月，后来删了
+
+
+*****
+
+####  byisme001  
+##### 21#       发表于 2021-2-26 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445151&amp;ptid=1972138" target="_blank">多狼医生 发表于 2021-2-26 11:04</a>
+dl发售日都确定这么久了你说谁先出……
+之前索尼给的幽灵线窗口是10月，后来删了 ...</blockquote>
+dl定了?什么时候出?
+
+—— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  refiver  
+##### 22#       发表于 2021-2-26 11:26
+
+
+这游戏必玩，之前玩不下去耻辱的原因还是觉得潜行杀人太慢
+
+这次看PV节奏快了不止一倍而且完全不用潜行，应该会很有乐趣
+
+
+*****
+
+####  多狼医生  
+##### 23#       发表于 2021-2-26 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445407&amp;ptid=1972138" target="_blank">byisme001 发表于 2021-2-26 11:22</a>
+dl定了?什么时候出?
+
+—— 来自 Xiaomi M2002J9E, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+你看下标题啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是我把死亡循环缩写成dl让你误会是什么其他游戏了
+
+
+*****
+
+####  byisme001  
+##### 24#       发表于 2021-2-26 11:28
+
+
+<blockquote>多狼医生 发表于 2021-2-26 11:28
+你看下标题啊还是我把死亡循环缩写成dl让你误会是什么其他游戏了</blockquote>
+哦，没注意
+
+
+*****
+
+####  kalavinka  
+##### 25#       发表于 2021-2-26 11:33
+
+
+之前不是说限时独占吗 同步上pc狂喜， 阿肯 我的超人！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  moimoi  
+##### 26#       发表于 2021-2-26 11:45
+
+
+看了pv，这超能力也太耻辱了，完全就是耻辱精神续作
+
+
+*****
+
+####  dragrass  
+##### 27#       发表于 2021-2-26 12:10
+
+
+这是arkane创始人老板离职后的第一作啊
+
+建议谨慎乐观
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  supergilaboy  
+##### 28#       发表于 2021-9-5 21:25
+
+
+顶一下吧，10天后也要发售了
+
+
+*****
+
+####  415452356  
+##### 29#       发表于 2021-9-5 21:50
+
+
+  打完破晓刚好接着玩，这次要是关卡水平依旧高水准的话我今年的年度游戏又是arkan拿下了
+
+
+*****
+
+####  サリシノハラ  
+##### 30#         楼主| 发表于 2021-9-5 22:03
+
+
+上次sop的9分钟gameplay：[https://www.bilibili.com/video/BV13M4y1M7ZV](https://www.bilibili.com/video/BV13M4y1M7ZV)
+
+最近gs的15分钟gameplay：[https://www.bilibili.com/video/BV1S64y1e7di](https://www.bilibili.com/video/BV1S64y1e7di)
+
+quakecon上聊多人模式：[https://www.youtube.com/watch?v=IbG1OOjlI9Y](https://www.youtube.com/watch?v=IbG1OOjlI9Y)
+
+
+
+
+*****
+
+####  moimoi  
+##### 31#       发表于 2021-9-5 22:06
+
+
+耻辱味太浓太浓了，可以说就是耻辱续作，甚至不能叫精神续作，但是感觉各方面吧都不如耻辱精妙，哪怕如此都是我最期待的游戏，没有之一
+
+
+*****
+
+####  サリシノハラ  
+##### 32#         楼主| 发表于 2021-9-5 22:23
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-5 22:25 编辑 
+
+杯赛近期把死亡循环pc平台的零售key改成了steam激活，不知道是不是以后的趋势 [https://www.resetera.com/threads/apparently-3rd-party-key-sellers-will-sell-steam-keys-for-deathloop-instead-of-bethesda-launcher-keys.481696/](https://www.resetera.com/threads/apparently-3rd-party-key-sellers-will-sell-steam-keys-for-deathloop-instead-of-bethesda-launcher-keys.481696/#post-72647935)
+
+
+*****
+
+####  屑猫猫  
+##### 33#       发表于 2021-9-5 22:51
+
+
+那俩预购武器基本都是捏他耻辱和掠食了吧，皇家护卫和转星都写在上面了，我是直接屎腚预购的
+
+
+*****
+
+####  bsdlxy  
+##### 34#       发表于 2021-9-5 22:54
+
+
+期待哦！
+
+
+*****
+
+####  D-JoeII  
+##### 35#       发表于 2021-9-5 23:14
+
+
+都只剩10天就發售但感覺就是現在兩邊都不太願意幫這遊戲大規模宣傳
+
+
+*****
+
+####  wolfwood  
+##### 36#       发表于 2021-9-5 23:28
+
+
+199，买了买了，刚好游戏荒
+
+
+*****
+
+####  套路设计师  
+##### 37#       发表于 2021-9-6 00:17
+
+
+到时候看看文洁-伊文思博士到底是谁
+
+<img src="https://img.saraba1st.com/forum/202109/06/001713onvik9b33rtr90rn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>a.jpg</strong> (80.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 00:17 上传
+
+
+*****
+
+####  恋妖壶  
+##### 38#       发表于 2021-9-6 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632764&amp;ptid=1972138" target="_blank">套路设计师 发表于 2021-9-6 00:17</a>
+
+到时候看看文洁-伊文思博士到底是谁</blockquote>
+靠，怎么还有三体梗的？岛哥哥推荐的？
+
+
+*****
+
+####  屑猫猫  
+##### 39#       发表于 2021-9-6 00:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632168&amp;ptid=1972138" target="_blank">D-JoeII 发表于 2021-9-5 23:14</a>
+
+都只剩10天就發售但感覺就是現在兩邊都不太願意幫這遊戲大規模宣傳</blockquote>
+其实也不用特意宣传了，arkane销量已经远比它的前辈好多了，这类型就这样了，卖相再好宣传也没太大用
+
+
+*****
+
+####  qty  
+##### 40#       发表于 2021-9-6 02:07
+
+
+是错觉吗？怎么感觉除了处决动作以外的近战观感还不如耻辱2，另外这画面，真的需要PS5级别的硬件吗？
+
+
+*****
+
+####  920619lqy  
+##### 41#       发表于 2021-9-6 04:22
+
+
+<blockquote>サリシノハラ 发表于 2021-9-5 08:23
+杯赛近期把死亡循环pc平台的零售key改成了steam激活，不知道是不是以后的趋势 https://www.resetera.com/th ...</blockquote>
+引用：“The fact that major game retailer are making an explicitly point to advertise this really drives home how ridiculous the whole "it's just another launcher" argument really is. If a majority of PC gamers really thought that way then sites like Green Man Gaming would feel no compunction to do do this.” 杯赛启动器什么时候死
+
+
+*****
+
+####  415452356  
+##### 42#       发表于 2021-9-6 07:59
+
+
+  杯赛连doom1+2和quake1高清这种老游戏都要强行加个杯赛账号登陆，纯属脑瘫
+
+
+*****
+
+####  xgazer  
+##### 43#       发表于 2021-9-6 10:09
+
+
+刚买了啊啃套餐开玩Prey 特别系统震荡
+
+
+*****
+
+####  套路设计师  
+##### 44#       发表于 2021-9-6 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632910&amp;ptid=1972138" target="_blank">恋妖壶 发表于 2021-9-6 00:36</a>
+
+靠，怎么还有三体梗的？岛哥哥推荐的？</blockquote>
+岛哥哥顶多算三体不错的科幻爱好者。
+
+
+Arkane是铁杆三体厨的水平。
+
+
+*****
+
+####  サリシノハラ  
+##### 45#         楼主| 发表于 2021-9-8 23:03
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-8 23:08 编辑 
+
+PC配置需求： <blockquote><strong>4K超高畫質規格：4K/60 FPS（超高畫質設定）</strong>作業系統：64位元Windows 10 1909版以上版本
+
+處理器：Intel Core i9-10900K @ 3.70GHz或AMD Ryzen 7 3800XT
+
+記憶體：16GB系統隨機存取記憶體
+
+顯示卡：Nvidia RTX 3080（10GB）或AMD Radeon RX 6800 XT（16GB）
+
+DirectX：12版
+
+儲存空間：30GB可用空間（SSD）
+<strong>建議規格：1080P/60 FPS（高畫質設定）</strong>作業系統：64位元Windows 10 1909版以上版本
+
+處理器：Intel Core i7-9700K @ 3.60GHz或AMD Ryzen 7 2700X
+
+記憶體：16GB
+
+顯示卡：Nvidia RTX 2060（6GB）或AMD Radeon RX 5700（8GB）
+
+DirectX：12版
+
+儲存空間：30GB可用空間（SSD）
+<strong>最低規格：1080P/30 FPS（低畫質設定）</strong>作業系統：64位元Windows 10 1909版以上版本
+
+處理器：Intel Core i5-8400 @ 2.80GHz或AMD Ryzen 5 1600
+
+記憶體：12GB
+
+顯示卡：Nvidia GTX 1060（6GB）或AMD Radeon RX 580（8GB）
+
+DirectX：12版
+
+儲存空間：30GB可用空間（HDD）</blockquote>
+
+
+*****
+
+####  サリシノハラ  
+##### 46#         楼主| 发表于 2021-9-8 23:05
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-8 23:13 编辑 
+
+预载与解锁时间： <blockquote>預先下載
+
+可於PlayStation 5和PC進行數位版預先下載。PS5版預先下載將於DEATHLOOP在你所在地區上市前48小時開放，PC版預先下載將全球統一於台灣時間9月13日凌晨1:00開放。
+
+全球解鎖時間
+
+PLAYSTATION 5
+
+DEATHLOOP將於你所在時區的9月14日半夜12:00解鎖。
+
+- 在北美洲，DEATHLOOP將於東部時間9月14日半夜12:00解鎖
+
+PC
+
+PC版（Steam與Bethesda.net）將依地區分為三個解鎖時間
+
+北／南美洲：太平洋時間9月13日晚上9:01（東部時間9月14日半夜12:01）解鎖
+
+澳洲／紐西蘭／亞洲：太平洋時間9月13日早上8:01（日本標準時間9月14日半夜12:01）解鎖
+
+歐洲／世界其他地區：太平洋夏令時間9月13日下午4:01（格林威治標準時間9月14日半夜12:01）解鎖</blockquote>
+
+
+*****
+
+####  屑猫猫  
+##### 47#       发表于 2021-9-8 23:08
+
+
+现在较高的标准都是2060了，换显卡刻不容缓了。
+
+感觉这代初期不会有掠食耻辱那么多那么恶劣影响的bug了。
+
+
+*****
+
+####  サリシノハラ  
+##### 48#         楼主| 发表于 2021-9-9 08:05
+
+
+奖杯列表 [https://www.powerpyx.com/deathloop-trophy-list-revealed/](https://www.powerpyx.com/deathloop-trophy-list-revealed/)
+
+
+*****
+
+####  サリシノハラ  
+##### 49#         楼主| 发表于 2021-9-10 05:56
+
+
+新播片 [https://www.bilibili.com/video/BV1R341117YA](https://www.bilibili.com/video/BV1R341117YA)
+
+
+*****
+
+####  razielzyc  
+##### 50#       发表于 2021-9-10 09:26
+
+
+所以首发进xgpu么。进的话我买一年。
+
+
+*****
+
+####  BK10  
+##### 51#       发表于 2021-9-10 09:27
+
+
+<blockquote>razielzyc 发表于 2021-9-10 09:26
+所以首发进xgpu么。进的话我买一年。</blockquote>
+9月14发售现在不宣布多半没戏，明年redfall进你想的话明年买
+
+
+*****
+
+####  razielzyc  
+##### 52#       发表于 2021-9-10 09:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690044&amp;ptid=1972138" target="_blank">BK10 发表于 2021-9-10 09:27</a>
+
+9月14发售现在不宣布多半没戏，明年redfall进你想的话明年买</blockquote>
+那就不等了。steam先入了。
+
+
+*****
+
+####  Freakyyu  
+##### 53#       发表于 2021-9-10 09:45
+
+
+配置要求太高了，我的老电脑感觉要顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  谢俊豪  
+##### 54#       发表于 2021-9-10 09:47
+
+
+PC支持ps5扳机震动吗？不支持的话我入ps5版了
+
+
+*****
+
+####  陈玉礼  
+##### 55#       发表于 2021-9-10 09:58
+
+
+同问
+
+
+*****
+
+####  量子大蛇  
+##### 56#       发表于 2021-9-10 10:12
+
+
+牛逼啊，光速发售
+
+
+*****
+
+####  サリシノハラ  
+##### 57#         楼主| 发表于 2021-9-10 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690331&amp;ptid=1972138" target="_blank">谢俊豪 发表于 2021-9-10 09:47</a>
+PC支持ps5扳机震动吗？不支持的话我入ps5版了</blockquote>
+游戏出来之前应该不会知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 58#       发表于 2021-9-10 11:10
+
+
+又去打了一次掠食，听到mind games听哭了，Rapheal大佬不在arkane工作室了。现在arkane的核心人物估计是哈维那批人了，不知道拉斐尔还能给arkane这边作曲不
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 芷雅居| + 1|草 回忆起来了|
+
+
+查看全部评分
+
+
+*****
+
+####  サリシノハラ  
+##### 59#         楼主| 发表于 2021-9-10 11:11
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-10 11:12 编辑 
+
+话说那个打爆扭蛋机?让敌人踩上去摔倒让我想起了Dark Messiah里的冰地板<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 60#       发表于 2021-9-10 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691959&amp;ptid=1972138" target="_blank">サリシノハラ 发表于 2021-9-10 11:11</a>
+
+话说那个打爆扭蛋机?让敌人踩上去摔倒让我想起了Dark Messiah里的冰地板 ...</blockquote>
+哦哦哦，你一说还真有黑暗弥赛亚那么个意思，不过弥赛亚里要施法来着吧
+
+
+
+
+*****
+
+####  サリシノハラ  
+##### 61#         楼主| 发表于 2021-9-10 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692243&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-10 11:23</a>
+
+哦哦哦，你一说还真有黑暗弥赛亚那么个意思，不过弥赛亚里要施法来着吧 ...</blockquote>
+用冰弓也可以
+
+
+*****
+
+####  bsdlxy  
+##### 62#       发表于 2021-9-12 11:21
+
+
+主机28GB，豪华版的内容98MB。
+
+
+*****
+
+####  恋妖壶  
+##### 63#       发表于 2021-9-12 13:26
+
+
+要发售了改专贴吧
+
+
+*****
+
+####  supergilaboy  
+##### 64#       发表于 2021-9-12 13:38
+
+
+ 本帖最后由 supergilaboy 于 2021-9-12 13:39 编辑 
+
+还要等12小时才能预载<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crosz  
+##### 65#       发表于 2021-9-12 13:40
+
+
+评分什么时候解禁啊
+
+
+*****
+
+####  サリシノハラ  
+##### 66#         楼主| 发表于 2021-9-12 13:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720149&amp;ptid=1972138" target="_blank">crosz 发表于 2021-9-12 13:40</a>
+评分什么时候解禁啊</blockquote>
+明天
+
+
+*****
+
+####  qianoooo  
+##### 67#       发表于 2021-9-12 18:05
+
+
+主机有啥独占特性啊 还有豪华版送的枪只是皮肤还是解锁的新枪
+
+
+*****
+
+####  crosz  
+##### 68#       发表于 2021-9-12 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722821&amp;ptid=1972138" target="_blank">qianoooo 发表于 2021-9-12 18:05</a>
+
+主机有啥独占特性啊 还有豪华版送的枪只是皮肤还是解锁的新枪</blockquote>
+就是PS5手柄那些特性
+[https://www.bilibili.com/video/B ... 2853113222159628736](https://www.bilibili.com/video/BV1mQ4y1h7Na?from=search&amp;seid=2853113222159628736)
+
+
+*****
+
+####  Fuero  
+##### 69#       发表于 2021-9-13 00:30
+
+
+时光荏苒，从4月宣布跳票起 5个月就这么过来了
+
+
+*****
+
+####  サリシノハラ  
+##### 70#         楼主| 发表于 2021-9-13 10:22
+
+
+【油管搬运】死亡循环 游戏前一小时流程  [https://www.bilibili.com/video/BV1GP4y1Y76T](https://www.bilibili.com/video/BV1GP4y1Y76T)
+
+
+*****
+
+####  你号又双叒没了  
+##### 71#       发表于 2021-9-13 10:23
+
+
+nmd，为什么没有PS4版
+
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 72#       发表于 2021-9-13 10:38
+
+
+现在看女主角好像还行，甚至觉得有点好看了，我记得当时第一个预告片就是个纯尼姐，现在像巴西人了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  サリシノハラ  
+##### 73#         楼主| 发表于 2021-9-13 12:25
+
+
+看有几段偷跑里AI好弱智，不过说是动态难度？<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 74#       发表于 2021-9-13 13:31
+
+
+Ai还是耻辱掠食那股子弱智味儿，笑死我了，希望这代不会出现女巫那种鬼畜视野作弊其实反侦查性能超低的敌人
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  サリシノハラ  
+##### 75#         楼主| 发表于 2021-9-13 20:01
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-13 20:09 编辑 
+
+GI 9/10 [https://www.gameinformer.com/rev ... -of-death-and-dying](https://www.gameinformer.com/review/deathloop/deathloop-review-the-joys-of-death-and-dying)
+
+VGC 5/5 [https://www.videogameschronicle.com/review/deathloop/](https://www.videogameschronicle.com/review/deathloop/)
+
+
+*****
+
+####  D-JoeII  
+##### 76#       发表于 2021-9-13 20:03
+
+
+GS 10
+[https://www.gamespot.com/reviews ... -kill/1900-6417729/](https://www.gamespot.com/reviews/deathloop-review-all-you-need-is-kill/1900-6417729/)
+
+IGN 10
+[https://www.ign.com/articles/deathloop-review](https://www.ign.com/articles/deathloop-review)
+
+OP平均89分
+[https://opencritic.com/game/10993/deathloop/reviews](https://opencritic.com/game/10993/deathloop/reviews)
+
+
+*****
+
+####  サリシノハラ  
+##### 77#         楼主| 发表于 2021-9-13 20:04
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-13 20:07 编辑 
+
+重复，编辑
+
+
+*****
+
+####  crosz  
+##### 78#       发表于 2021-9-13 20:06
+
+
+神作了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Chia  
+##### 79#       发表于 2021-9-13 20:07
+
+
+媒体这么给面子，论坛都成充值色了
+
+
+*****
+
+####  莉拉厨  
+##### 80#       发表于 2021-9-13 20:10
+
+
+Arkane起飞了！
+
+
+*****
+
+####  Kazepollar  
+##### 81#       发表于 2021-9-13 20:11
+
+
+呜呜起飞了起飞了
+
+
+*****
+
+####  界外魔阿历克斯  
+##### 82#       发表于 2021-9-13 20:11
+
+
+is再次崛起<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+----发送自 [samsung SM-G9810,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  最好不说  
+##### 83#       发表于 2021-9-13 20:13
+
+
+能上90吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  国家免检虎B  
+##### 84#       发表于 2021-9-13 20:15
+
+
+看得批爆
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  SpaceCowboy  
+##### 85#       发表于 2021-9-13 20:17
+
+
+arkane是该拿goty了！！！！
+
+
+*****
+
+####  whzfjk  
+##### 86#       发表于 2021-9-13 20:17
+
+
+tga有救了
+
+
+*****
+
+####  supergilaboy  
+##### 87#       发表于 2021-9-13 20:18
+
+
+我的，我的，我的，超人
+
+
+*****
+
+####  恋妖壶  
+##### 88#       发表于 2021-9-13 20:18
+
+
+俩10才89？为啥啊
+
+
+*****
+
+####  clears  
+##### 89#       发表于 2021-9-13 20:18
+
+
+草，阿肯熬出头了。
+
+
+*****
+
+####  IcarusInFire  
+##### 90#       发表于 2021-9-13 20:21
+
+
+arkane熬出头了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  TTAA  
+##### 91#       发表于 2021-9-13 20:21
+
+
+媒体不靠谱。等坛友一个评测
+
+
+*****
+
+####  恋妖壶  
+##### 92#       发表于 2021-9-13 20:22
+
+
+《死亡循环》（Deathloop）媒体评分：  Eurogamer 'Essential' GameSpot 10 IGN 10 VG247 5/5 TheSixthAxis 10 VGC 5/5 Game Informer 9 Destructoid 9 Press Start 9 Easy Allies 8  目前 MC 均分 89分。  本作是一款次世代第一人称射击游戏，由屡获殊荣的 Arkane里昂 开发。此工作室曾打造好评如潮的《Dishonored》系列。  本游戏中，两名敌对刺客受困于黑礁岛神秘的时间循环，注定要永远重复同一天。对于柯尔特来说，唯有赶在时间重置之前刺杀八名关键目标，从而结束时间循环，他才有机会逃脱。从每次循环中汲取教训：不断尝试新路径、发掘信息并寻找新的武器和能力。不惜一切代价打破循环。
+
+
+*****
+
+####  masterkeaton  
+##### 93#       发表于 2021-9-13 20:23
+
+
+为什么没上90！
+
+
+*****
+
+####  D-JoeII  
+##### 94#       发表于 2021-9-13 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736458&amp;ptid=1972138" target="_blank">最好不说 发表于 2021-9-13 20:13</a>
+
+能上90吗？
+
+
+—— 来自 S1Fun</blockquote>
+不容易,有不少8分以下的
+[https://opencritic.com/game/1099 ... score&amp;order=asc](https://opencritic.com/game/10993/deathloop/reviews?sort=score&amp;order=asc)
+
+有點像是高配型的"極端"評價
+
+
+*****
+
+####  屑猫猫  
+##### 95#       发表于 2021-9-13 20:25
+
+
+pc评分低的多，估计是进去的媒体比较少的原因，gamepleasure拉低平均分了
+
+
+*****
+
+####  BallanceHZ  
+##### 96#       发表于 2021-9-13 20:26
+
+
+arkane我的超人
+破晓不管了，先打deathloop
+
+
+*****
+
+####  moimoi  
+##### 97#       发表于 2021-9-13 20:26
+
+
+😯牛逼啊！没想到卖相看起来不行居然评分这么好
+
+
+*****
+
+####  屑猫猫  
+##### 98#       发表于 2021-9-13 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736496&amp;ptid=1972138" target="_blank">恋妖壶 发表于 2021-9-13 20:18</a>
+
+俩10才89？为啥啊</blockquote>
+我看了下评语，不少媒体还在拿fps说事，说到沉浸模拟的媒体算是少数，不过这成绩很高了，有望90
+
+
+*****
+
+####  Artless追随者  
+##### 99#       发表于 2021-9-13 20:27
+
+
+重振IS荣光
+
+
+*****
+
+####  mayahoho  
+##### 100#       发表于 2021-9-13 20:27
+
+
+不愧是阿肯啊，看来在羞辱和prey的基础上又有了突破
+现在起要避免一切剧透<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恋妖壶  
+##### 101#       发表于 2021-9-13 20:27
+
+
+大媒体好像纷纷满分，小媒体拉分
+
+
+*****
+
+####  moimoi  
+##### 102#       发表于 2021-9-13 20:29
+
+
+不行了，我这段时间加班没办法打怎么办，而且我手残肯定对付不了玩家扮演的敌人
+
+
+*****
+
+####  IcarusInFire  
+##### 103#       发表于 2021-9-13 20:29
+
+
+给对手做满分游戏，给自己做redfall这种玩意，arkane老内鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 104#       发表于 2021-9-13 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736581&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-13 20:26</a>
+
+😯牛逼啊！没想到卖相看起来不行居然评分这么好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这卖相再不行也比年轻人的第二款jrpg看着舒服多了啊，而且这作感觉有个媒体说对头了，arkane做的杀手类沉浸模拟游戏
+
+
+*****
+
+####  Kazepollar  
+##### 105#       发表于 2021-9-13 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736601&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-13 20:29</a>
+
+不行了，我这段时间加班没办法打怎么办，而且我手残肯定对付不了玩家扮演的敌人 ...</blockquote>
+肯定可以离线玩的
+
+
+*****
+
+####  crosz  
+##### 106#       发表于 2021-9-13 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736601&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-13 20:29</a>
+不行了，我这段时间加班没办法打怎么办，而且我手残肯定对付不了玩家扮演的敌人 ...</blockquote>
+可以关闭玩家入侵的功能由ai代替
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  屑猫猫  
+##### 107#       发表于 2021-9-13 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736601&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-13 20:29</a>
+
+不行了，我这段时间加班没办法打怎么办，而且我手残肯定对付不了玩家扮演的敌人 ...</blockquote>
+设置里可以关闭网上联机入侵来着吧，跟ai打就是了
+
+
+*****
+
+####  moimoi  
+##### 108#       发表于 2021-9-13 20:35
+
+
+好好好，等我忙完这一阵一定跟上大部队，之前耻辱都是补票太遗憾了
+
+
+*****
+
+####  D-JoeII  
+##### 109#       发表于 2021-9-13 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736604&amp;ptid=1972138" target="_blank">IcarusInFire 发表于 2021-9-13 20:29</a>
+
+给对手做满分游戏，给自己做redfall这种玩意，arkane老内鬼了</blockquote>
+最後不還是在XGP玩
+
+
+*****
+
+####  水边井  
+##### 110#       发表于 2021-9-13 20:38
+
+
+类似黑魂入侵一样的联机模式吧
+
+
+*****
+
+####  ub001  
+##### 111#       发表于 2021-9-13 20:39
+
+
+都双10了，做个光追版的吧。
+
+
+*****
+
+####  芷雅居  
+##### 112#       发表于 2021-9-13 20:39
+
+
+呜呜呜，要等一年才能在xsx上玩了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  casle  
+##### 113#       发表于 2021-9-13 20:49
+
+
+刚打通正义生气正好玩deathloop，最近太充实了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 114#       发表于 2021-9-13 20:49
+
+
+虽然媒体不值得相信，但 arkane 值得！
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+*****
+
+####  屑猫猫  
+##### 115#       发表于 2021-9-13 20:51
+
+
+arkane我的超人，现在ps5版本60家媒体89分了
+
+
+*****
+
+####  新八  
+##### 116#       发表于 2021-9-13 20:57
+
+
+GS是不是挺久没给出过10分了？
+
+
+*****
+
+####  back57992  
+##### 117#       发表于 2021-9-13 21:00
+
+
+我去 传说还没打通又来个高分。这个月有点爽
+
+
+*****
+
+####  サリシノハラ  
+##### 118#         楼主| 发表于 2021-9-13 21:01
+
+
+ 本帖最后由 サリシノハラ 于 2021-9-13 21:05 编辑 
+
+发售宣传片  [https://youtu.be/8phmhAoxeIs](https://youtu.be/8phmhAoxeIs)
+
+
+*****
+
+####  RushMove  
+##### 119#       发表于 2021-9-13 21:01
+
+
+ 本帖最后由 RushMove 于 2021-9-13 21:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736903&amp;ptid=1972138" target="_blank">新八 发表于 2021-9-13 20:57</a>
+
+GS是不是挺久没给出过10分了？</blockquote>
+上一个是ff7re intergrade
+
+
+*****
+
+####  ace8848  
+##### 120#       发表于 2021-9-13 21:02
+
+
+<blockquote>恋妖壶 发表于 2021-9-13 20:22
+《死亡循环》（Deathloop）媒体评分：  Eurogamer 'Essential' GameSpot 10 IGN 10 VG247 5/5 TheSixthAxis ...</blockquote>
+本来因为卖相上和arkane过去的游戏差的有点大还真没怎么太注意这游戏，不过看这内容的意思，感觉又像是肉鸽游戏？
+
+
+
+
+*****
+
+####  qianoooo  
+##### 121#       发表于 2021-9-13 21:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736949&amp;ptid=1972138" target="_blank">ace8848 发表于 2021-9-13 21:02</a>
+
+本来因为卖相上和arkane过去的游戏差的有点大还真没怎么太注意这游戏，不过看这内容的意思，感觉又像是肉 ...</blockquote>
+不是rogue 是关卡制的fps 其实和他们之前做的游戏路数差不多
+
+
+*****
+
+####  SpaceCowboy  
+##### 122#       发表于 2021-9-13 21:07
+
+
+看了几个评测视频，提到的缺点有弱智的ai，以及bug（杀了目标后不掉能力/打开菜单有时候会卡个几十秒）
+
+
+*****
+
+####  mayahoho  
+##### 123#       发表于 2021-9-13 21:08
+
+
+怎么说呢，有这种评价可能还算不上神作，但是绝对有某一些地方是相当牛逼的
+
+
+*****
+
+####  D-JoeII  
+##### 124#       发表于 2021-9-13 21:11
+
+
+上不了90還是因為Arkane祖傳初版會出現令人惱火的bug吧,這其實有點無奈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萩原组土狼p  
+##### 125#       发表于 2021-9-13 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737048&amp;ptid=1972138" target="_blank">D-JoeII 发表于 2021-9-13 21:11</a>
+
+上不了90還是因為Arkane祖傳初版會出現令人惱火的bug吧,這其實有點無奈</blockquote>
+关卡要品味，bug也要品味！营养要均衡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ace8848  
+##### 126#       发表于 2021-9-13 21:16
+
+
+<blockquote>qianoooo 发表于 2021-9-13 21:06
+不是rogue 是关卡制的fps 其实和他们之前做的游戏路数差不多</blockquote>
+不是肉鸽那还好，至少可以加一下愿望单先。
+
+
+*****
+
+####  新八  
+##### 127#       发表于 2021-9-13 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736945&amp;ptid=1972138" target="_blank">RushMove 发表于 2021-9-13 21:01</a>
+
+上一个是ff7re intergrade</blockquote>
+忽略这种资料片型的呢？上一个是啥啊
+
+
+*****
+
+####  D-JoeII  
+##### 128#       发表于 2021-9-13 21:20
+
+
+ 本帖最后由 D-JoeII 于 2021-9-13 21:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737108&amp;ptid=1972138" target="_blank">新八 发表于 2021-9-13 21:17</a>
+
+忽略这种资料片型的呢？上一个是啥啊</blockquote>
+看錯,上一個初版拿10的是極樂迪斯可
+
+
+*****
+
+####  屑猫猫  
+##### 129#       发表于 2021-9-13 21:23
+
+
+emmmm弱智ai这个问题我都说过几年了，作为第一人称is跟潜行御三家有差距不是不能理解。耻辱里面我蹲下在督军附近呆个半分钟他都发现不了我，掠食的带属性异魔也是不怎么愿意搜查，这问题还挺明显的，不知道这代是啥特别蠢
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hotsmile  
+##### 130#       发表于 2021-9-13 21:23
+
+
+讲道理，这么多提到AI问题和BUG，两个10分是认真的吗？恰饭了吧
+
+
+*****
+
+####  新八  
+##### 131#       发表于 2021-9-13 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737130&amp;ptid=1972138" target="_blank">D-JoeII 发表于 2021-9-13 21:20</a>
+
+看錯,上一個初版拿10的是極樂迪斯可</blockquote>
+那跟我体感差不多
+
+
+*****
+
+####  makar0601  
+##### 132#       发表于 2021-9-13 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737108&amp;ptid=1972138" target="_blank">新八 发表于 2021-9-13 21:17</a>
+忽略这种资料片型的呢？上一个是啥啊</blockquote>
+<img src="https://p.sda1.dev/2/eb8273687b9a20af81d12bf256e73411/1631539555785.jpg" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  RushMove  
+##### 133#       发表于 2021-9-13 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737130&amp;ptid=1972138" target="_blank">D-JoeII 发表于 2021-9-13 21:20</a>
+
+看錯,上一個初版拿10的是極樂迪斯可</blockquote>
+初版的话应该是ff7re，20年的游戏，disco是19年的
+
+
+*****
+
+####  lbb3313725  
+##### 134#       发表于 2021-9-13 21:44
+
+
+刚刚看微博才知道这游戏，好像不错啊
+
+
+*****
+
+####  bsdlxy  
+##### 135#       发表于 2021-9-13 21:45
+
+
+AI问题在耻辱里，我觉得还好，因为我可以借此做一些利益最大化的事情，AI问题和神界原罪2里对话偷窃有异曲同工之妙。
+但是死亡循环没有和平城市区域，没有商店，没有友善NPC吧，AI问题就被放大了。
+
+
+*****
+
+####  Dgnic_  
+##### 136#       发表于 2021-9-13 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737000&amp;ptid=1972138" target="_blank">qianoooo 发表于 2021-9-13 21:06</a>
+
+不是rogue 是关卡制的fps 其实和他们之前做的游戏路数差不多</blockquote>
+不是关卡制吧，看起来有点星际拓荒的意思
+
+
+*****
+
+####  サリシノハラ  
+##### 137#         楼主| 发表于 2021-9-13 21:55
+
+
+[PC平台会支持DualSense的主要特性，包括震动反馈和自适应扳机](https://keylol.com/t748586-1-1)
+
+
+*****
+
+####  hotsmile  
+##### 138#       发表于 2021-9-13 21:56
+
+
+AKEN的游戏很快就骨折了吧，耻辱2 各平台10多块就有了
+
+
+*****
+
+####  bsdlxy  
+##### 139#       发表于 2021-9-13 21:56
+
+
+ 本帖最后由 bsdlxy 于 2021-9-13 22:16 编辑 
+
+[https://bethesda.net/zh-CN/game/deathloop](https://bethesda.net/zh-CN/account/transaction-history/product-codes)
+
+记得去杯赛官网注册，然后关联PSN或者STEAM账号，然后领取皮肤武器奖励
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 屑猫猫| + 1|我不想登陆杯赛官网…|
+| alter_ego_| + 1|好评加鹅|
+| moimoi| + 1|谢谢提醒|
+
+
+查看全部评分
+
+
+*****
+
+####  盖·福克斯  
+##### 140#       发表于 2021-9-13 22:07
+
+
+不是之前那种杀敌人多了进坏结局的话倒是想试试。
+
+
+*****
+
+####  bluebirdy.  
+##### 141#       发表于 2021-9-13 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737532&amp;ptid=1972138" target="_blank">bsdlxy 发表于 2021-9-13 21:56</a>
+
+https://bethesda.net/zh-CN/account/transaction-history/product-codes
+
+记得去杯赛官网注册，然后关联PSN ...</blockquote>
+我之前就关联过了，登陆在哪个地方领皮肤啊
+
+
+*****
+
+####  oniwarud  
+##### 142#       发表于 2021-9-13 22:15
+
+
+ 本帖最后由 oniwarud 于 2021-9-13 22:17 编辑 
+
+买了，为什么steam无法预载<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，点预载直接报错提示游戏尚未发行
+
+
+*****
+
+####  bsdlxy  
+##### 143#       发表于 2021-9-13 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737675&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-13 22:11</a>
+
+我之前就关联过了，登陆在哪个地方领皮肤啊</blockquote>
+游戏的页面，我编辑了链接，之前的是历史交易界面。
+
+
+*****
+
+####  JoelBirch  
+##### 144#       发表于 2021-9-13 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737712&amp;ptid=1972138" target="_blank">oniwarud 发表于 2021-9-13 22:15</a>
+买了，为什么steam无法预载，点预载直接报错提示游戏尚未发行</blockquote>
+我都预载完了啊，网络问题吧
+
+
+*****
+
+####  bluebirdy.  
+##### 145#       发表于 2021-9-13 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737732&amp;ptid=1972138" target="_blank">bsdlxy 发表于 2021-9-13 22:16</a>
+
+游戏的页面，我编辑了链接，之前的是历史交易界面。</blockquote>
+OK，我刚看了下，好像是进游戏登账号直接给
+
+
+*****
+
+####  crosz  
+##### 146#       发表于 2021-9-13 22:20
+
+
+淘宝直接虚空涨价到400+了
+
+
+*****
+
+####  oniwarud  
+##### 147#       发表于 2021-9-13 22:27
+
+
+<blockquote>JoelBirch 发表于 2021-9-13 22:18
+我都预载完了啊，网络问题吧</blockquote>
+试了下各种方法都不行就差重装了，算了等发售再下了
+
+
+*****
+
+####  modkingr  
+##### 148#       发表于 2021-9-13 22:29
+
+
+什么鬼，IGN GS双10？
+
+
+*****
+
+####  真实之影  
+##### 149#       发表于 2021-9-13 22:34
+
+
+为啥PC版不能预载……
+
+
+*****
+
+####  矢量路比  
+##### 150#       发表于 2021-9-13 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737901&amp;ptid=1972138" target="_blank">真实之影 发表于 2021-9-13 22:34</a>
+
+为啥PC版不能预载……</blockquote>
+是不是买的 key
+
+我刚换的也提示不能预载
+
+
+
+
+*****
+
+####  ub001  
+##### 151#       发表于 2021-9-13 23:01
+
+
+ 本帖最后由 ub001 于 2021-9-13 23:04 编辑 
+
+进去了，我来测测AI
+
+
+*****
+
+####  supergilaboy  
+##### 152#       发表于 2021-9-13 23:02
+
+
+开始了，不过还得解压
+
+
+*****
+
+####  屑猫猫  
+##### 153#       发表于 2021-9-13 23:03
+
+
+在解压了，各位我们通关后再见，这段时间准备先屏蔽掉互联网（
+
+
+*****
+
+####  Alaaddin1013  
+##### 154#       发表于 2021-9-13 23:07
+
+
+N卡启动时候还建议升级一下驱动。
+
+
+*****
+
+####  oniwarud  
+##### 155#       发表于 2021-9-13 23:10
+
+
+好家伙，下载都下载不了，这游戏的key是有啥大病吗
+
+
+*****
+
+####  真实之影  
+##### 156#       发表于 2021-9-13 23:18
+
+
+看来都是买key的出问题了……
+
+
+*****
+
+####  屑猫猫  
+##### 157#       发表于 2021-9-13 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738261&amp;ptid=1972138" target="_blank">oniwarud 发表于 2021-9-13 23:10</a>
+好家伙，下载都下载不了，这游戏的key是有啥大病吗</blockquote>
+有群友是说没给key激活配置depot，就导致不正常了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 158#       发表于 2021-9-13 23:35
+
+
+进去了我也准备开死
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  oniwarud  
+##### 159#       发表于 2021-9-13 23:36
+
+
+<blockquote>屑猫猫 发表于 2021-9-13 23:34
+有群友是说没给key激活配置depot，就导致不正常了
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 S1Next- ...</blockquote>
+那就只能明天中午再搞了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mimic  
+##### 160#       发表于 2021-9-13 23:43
+
+
+那么现在购买还给预购奖励嘛
+
+
+*****
+
+####  屑猫猫  
+##### 161#       发表于 2021-9-13 23:44
+
+
+老问题了，arkane的加载还是好长
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Alaaddin1013  
+##### 162#       发表于 2021-9-13 23:49
+
+
+把视角拉到100，关闭头部晃动和动态模糊意外不晕。
+
+
+*****
+
+####  supergilaboy  
+##### 163#       发表于 2021-9-13 23:51
+
+
+加载很快啊，难道因为我几乎全低？
+
+
+*****
+
+####  kalavinka  
+##### 164#       发表于 2021-9-14 00:03
+
+
+草 进去直接白屏未响应，是驱动太老了吗来自: iPhone客户端
+
+
+*****
+
+####  kalavinka  
+##### 165#       发表于 2021-9-14 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738701&amp;ptid=1972138" target="_blank"> kalavinka 发表于 2021-9-14 00:03</a> 草 进去直接白屏未响应，是驱动太老了吗 </blockquote>
+解决了 果然是驱动太老<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  屑猫猫  
+##### 166#       发表于 2021-9-14 00:14
+
+
+嚯，越看朱丽安娜越觉得这个角色有意思，俩主角都充满了俏皮话，suki
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Fuero  
+##### 167#       发表于 2021-9-14 00:18
+
+
+PC版第一次引导配装的时候必crash，有一样的谭友吗？
+
+
+*****
+
+####  栗悟龟波  
+##### 168#       发表于 2021-9-14 00:23
+
+
+刚打完序章，感觉Juliana挺好看的
+
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  白白白  
+##### 169#       发表于 2021-9-14 00:28
+
+
+为什么我给枪装饰品就会闪退，这什么狗屎bug............
+
+
+*****
+
+####  Fuero  
+##### 170#       发表于 2021-9-14 00:29
+
+
+<blockquote>Fuero 发表于 2021-9-14 00:18
+PC版第一次引导配装的时候必crash，有一样的谭友吗？</blockquote>
+重启后没事了…
+
+
+*****
+
+####  bluebirdy.  
+##### 171#       发表于 2021-9-14 00:30
+
+
+预购送的东西在哪领啊，我看换装界面咩有送的衣服
+
+
+*****
+
+####  白白白  
+##### 172#       发表于 2021-9-14 00:32
+
+
+这优化真够屎的，求求杯赛快把垃圾引擎换了吧，真的拖后腿啊
+
+
+*****
+
+####  萩原组土狼p  
+##### 173#       发表于 2021-9-14 00:34
+
+
+傻了，这个任务怎么做
+
+
+N0QW5P{M)`O{PBL3I7RWA8O.jpg
+(150.6 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-14 00:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/14/003434m8de3t0mbynl6smm.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  战术核辣条  
+##### 174#       发表于 2021-9-14 00:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">steam帮我新建了一个空文件夹然后直接报下载完成是什么玩意，电子版游戏还能发假货的？（
+
+
+*****
+
+####  D-JoeII  
+##### 175#       发表于 2021-9-14 00:44
+
+
+對於簡體字體有意見的可以試試繁體
+
+
+<img src="https://img.saraba1st.com/forum/202109/14/004445pqbmjbc8i9xbb28x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>DEATHLOOP_20210913121554.jpg</strong> (460.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 00:44 上传
+
+
+DEATHLOOP_20210913122306.jpg
+(252.88 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-14 00:43 上传
+
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202109/14/004334e99n6t744tlc471d.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hshiki  
+##### 176#       发表于 2021-9-14 00:49
+
+
+简体的字体太违和了，虽然没法和doom永恒比
+
+
+*****
+
+####  bluebirdy.  
+##### 177#       发表于 2021-9-14 00:53
+
+
+ 本帖最后由 bluebirdy. 于 2021-9-14 01:06 编辑 
+
+军械库那个锁着的房间解谜，结果里面的武器隔着铁窗户直接就能拿到了，门密码找了也是白找<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  矢量路比  
+##### 178#       发表于 2021-9-14 01:02
+
+
+怎么感觉杯赛的游戏从狂怒 2 开始就喜欢用一些奇怪的中文字体………
+
+
+*****
+
+####  Mimic  
+##### 179#       发表于 2021-9-14 01:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739126&amp;ptid=1972138" target="_blank">矢量路比 发表于 2021-9-14 01:02</a>
+
+怎么感觉杯赛的游戏从狂怒 2 开始就喜欢用一些奇怪的中文字体………</blockquote>
+毕竟Bethesda的美工一贯品味枣糕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Asukalangley33  
+##### 180#       发表于 2021-9-14 01:07
+
+
+玩了2小时，因为太过谨慎，第一次循环重置了一次都没死过
+
+感觉错过了很多很多东西<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+看预告片里占大篇幅的魔法我现在一个都没学会
+
+不会跟耻辱一样可以全程不用技能潜行通关吧
+
+
+
+
+*****
+
+####  萩原组土狼p  
+##### 181#       发表于 2021-9-14 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739159&amp;ptid=1972138" target="_blank">Asukalangley33 发表于 2021-9-14 01:07</a>
+
+玩了2小时，因为太过谨慎，第一次循环重置了一次都没死过
+
+感觉错过了很多很多东西
+
+看预告片里占大篇 ...</blockquote>
+arkane的游戏肯定可以，不用技能通关他们肯定考虑过，还有各种花哨通关方法
+
+
+*****
+
+####  白昼梦  
+##### 182#       发表于 2021-9-14 01:12
+
+
+这优化也太烂了
+
+
+*****
+
+####  屑猫猫  
+##### 183#       发表于 2021-9-14 01:14
+
+
+优化真的不行，顺带我给卡门里面去了…
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Asukalangley33  
+##### 184#       发表于 2021-9-14 01:15
+
+
+话说这回直接打0451居然还会跳个成就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+成就框还是会发光的那种
+
+
+*****
+
+####  屑猫猫  
+##### 185#       发表于 2021-9-14 01:16
+
+
+哭了，市中心那个倒霉鬼我还没杀呢就让我进入下一个场景了。我这次绝对稳妥暗杀流，不跟敌人对射了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 186#       发表于 2021-9-14 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739217&amp;ptid=1972138" target="_blank">Asukalangley33 发表于 2021-9-14 01:15</a>
+话说这回直接打0451居然还会跳个成就
+
+成就框还是会发光的那种</blockquote>
+arkane：你们老害不要看见一个保险柜就想到是0451.jpg，旧习难改这个成就还蛮有意思
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  casle  
+##### 187#       发表于 2021-9-14 01:18
+
+
+任务没怎么做，一直在收集武器，金枪真帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/14/011813spk1f3diplczpfud.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (158.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 01:18 上传
+
+
+*****
+
+####  hshiki  
+##### 188#       发表于 2021-9-14 01:21
+
+
+武器是拿出去丢在外面就消失吗，我还以为只要带回过基地就登录系统了
+
+
+*****
+
+####  qianoooo  
+##### 189#       发表于 2021-9-14 01:26
+
+
+主机体验还不错 arkane这次主机优化挺上心的 就是选的这个中文字体太瞎眼了 以及主机不能改fov差评
+
+
+*****
+
+####  casle  
+##### 190#       发表于 2021-9-14 01:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739249&amp;ptid=1972138" target="_blank">hshiki 发表于 2021-9-14 01:21</a>
+
+武器是拿出去丢在外面就消失吗，我还以为只要带回过基地就登录系统了</blockquote>
+配件好像不能乱装，装了配件的武器被换掉回基地那个配件也没了
+
+
+*****
+
+####  Asukalangley33  
+##### 191#       发表于 2021-9-14 01:29
+
+
+话说这会玩下来感觉挺星际拓荒的
+
+每次循环道具重置，信息保留
+
+通过上次获得的信息推进流程
+
+
+*****
+
+####  bsdlxy  
+##### 192#       发表于 2021-9-14 01:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738921&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 00:30</a>
+预购送的东西在哪领啊，我看换装界面咩有送的衣服</blockquote>
+要做完最糟糕的一天这个线索吧。
+
+
+*****
+
+####  hshiki  
+##### 193#       发表于 2021-9-14 01:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739274&amp;ptid=1972138" target="_blank">casle 发表于 2021-9-14 01:26</a>
+
+配件好像不能乱装，装了配件的武器被换掉回基地那个配件也没了</blockquote>
+我把最开始给的配件弄没了……
+
+
+*****
+
+####  屑猫猫  
+##### 194#       发表于 2021-9-14 01:36
+
+
+羡慕金枪，我都是见到什么就用什么，从不在意
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kalavinka  
+##### 195#       发表于 2021-9-14 01:37
+
+
+这菜单楷体字和游戏中的幼体字看着真是太累了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1070全调中或下纹理最高1080p下也还行，就人多会掉到50左右来自: iPhone客户端
+
+
+*****
+
+####  kts1mg  
+##### 196#       发表于 2021-9-14 01:42
+
+
+这次PC好像支持ps5手柄？
+
+
+*****
+
+####  半分宅  
+##### 197#       发表于 2021-9-14 01:43
+
+
+等出完一轮补丁再入手。现在看评价，Arkane祖传首发bug还是很严重。
+
+
+*****
+
+####  bluebirdy.  
+##### 198#       发表于 2021-9-14 01:49
+
+
+ 本帖最后由 bluebirdy. 于 2021-9-14 01:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739289&amp;ptid=1972138" target="_blank">bsdlxy 发表于 2021-9-14 01:30</a>
+
+要做完最糟糕的一天这个线索吧。</blockquote>
+我又看了下，最糟糕的一天原来是大线，那我还没做完呢，时间推到下午了
+
+
+*****
+
+####  bluebirdy.  
+##### 199#       发表于 2021-9-14 01:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739324&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 01:36</a>
+
+羡慕金枪，我都是见到什么就用什么，从不在意
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 S1Next-鹅版 v ...</blockquote>
+金枪要解谜的，就在军械库那个要插4个电池的地方
+
+
+*****
+
+####  屑猫猫  
+##### 200#       发表于 2021-9-14 01:52
+
+
+最糟糕的一天我是跑到市中心获取了一个人的信息，不知道为啥就到下一个区域了，这次是找控制中心
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 201#       发表于 2021-9-14 01:53
+
+
+睡了，早上起来再慢慢想思路
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 202#       发表于 2021-9-14 01:54
+
+
+顺便一提大狙是真的不好用，每次暗杀一个人绝对会窜过来一大堆永恒者，我还是想用钉枪，虽然钉枪它手感不太行
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  bluebirdy.  
+##### 203#       发表于 2021-9-14 01:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739394&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 01:54</a>
+顺便一提大狙是真的不好用，每次暗杀一个人绝对会窜过来一大堆永恒者，我还是想用钉枪，虽然钉枪它手感不太 ...</blockquote>
+打了三四个区域，我都没见到过掉大狙的
+
+
+*****
+
+####  BallanceHZ  
+##### 204#       发表于 2021-9-14 02:00
+
+
+撸了3h，感想就是arkane真的nb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+第一次干死文洁之后就有手段保留装备了，这设计有意思
+
+
+*****
+
+####  屑猫猫  
+##### 205#       发表于 2021-9-14 02:04
+
+
+文洁是谁，我完全没有印象，顺便这一作的炮塔怎么比掠食的还要凶残，我都不敢招惹了，只能远处先打掉再说
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 206#       发表于 2021-9-14 02:06
+
+
+优化很烂吗，3090感觉不到..在PC上也能用DS的自适应扳机有点爽到
+
+
+*****
+
+####  BallanceHZ  
+##### 207#       发表于 2021-9-14 02:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739432&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 02:04</a>
+文洁是谁，我完全没有印象，顺便这一作的炮塔怎么比掠食的还要凶残，我都不敢招惹了，只能远处先打掉再说
+
+ ...</blockquote>
+用你无敌的无线电啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SpaceCowboy  
+##### 208#       发表于 2021-9-14 02:12
+
+
+ps5碰到了卡死在菜单的bug<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fuero  
+##### 209#       发表于 2021-9-14 02:14
+
+
+30系优化应该算可以吧，3070开fsr可以4K60跑最高画质+光追
+
+
+*****
+
+####  johanliebert  
+##### 210#       发表于 2021-9-14 02:34
+
+
+讲个笑话<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">3080掉帧
+
+
+
+
+*****
+
+####  CharlieZ-  
+##### 211#       发表于 2021-9-14 02:46
+
+
+那个入侵系统做得怎么样，是随机的吗
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 212#       发表于 2021-9-14 03:20
+
+
+ 本帖最后由 爱护动物抓根宝 于 2021-9-14 03:22 编辑 
+
+之前我预想设计思路会接近杀手系列，注重重复挑战，不过目前看来更接近星际拓荒，一周目神作
+
+
+*****
+
+####  wtf317  
+##### 213#       发表于 2021-9-14 03:58
+
+
+看了下Steam截图，是不是用的Doom Eternal同款猛男字体啊？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YESIARE  
+##### 214#       发表于 2021-9-14 04:54
+
+
+耻辱+outerwilds 你们说这个我可就精神了 立马起床开steam付款
+
+
+*****
+
+####  屑猫猫  
+##### 215#       发表于 2021-9-14 06:15
+
+
+好像真不是猛男同款，建议改繁体吧
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  wyy123  
+##### 216#       发表于 2021-9-14 06:45
+
+
+开头那个图书馆需进去吗，里面一堆敌人打不过，死了好几次了。
+
+
+*****
+
+####  屑猫猫  
+##### 217#       发表于 2021-9-14 06:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739800&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-9-14 06:45</a>
+开头那个图书馆需进去吗，里面一堆敌人打不过，死了好几次了。</blockquote>
+从后面迂回绕过去吧，其实我是不推荐打的，我觉得不如规划好慢慢完成目标。看到是有几个坛友杀了那个演示npc的，我没做到，太浪了不太好，我就收集了个信息然后下面全部人出动来干我
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  casle  
+##### 218#       发表于 2021-9-14 07:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739800&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-9-14 06:45</a>
+
+开头那个图书馆需进去吗，里面一堆敌人打不过，死了好几次了。</blockquote>
+先推主线到能保存装备比较好，图书馆早上最高只有蓝装备和一个绿专长，没必要去
+
+
+*****
+
+####  火红之眼  
+##### 219#       发表于 2021-9-14 07:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">早起打了两关，有点一头雾水....
+
+虽说不再鼓吹潜入玩法了，但还是有做潜入，然而潜了半天感觉没怎么做巧妙的路线设计，也没啥回报，反而影响探索，索性直接开干了......打完也是一个空虚寂寞，完全没羞辱那种设计感
+
+
+*****
+
+####  godless2020  
+##### 220#       发表于 2021-9-14 07:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739850&amp;ptid=1972138" target="_blank">火红之眼 发表于 2021-9-14 07:08</a>
+
+早起打了两关，有点一头雾水....
+
+虽说不再鼓吹潜入玩法了，但还是有做潜入，然而潜了半天感觉没怎么 ...</blockquote>
+不是肉鸽类型的吧？？？
+
+
+*****
+
+####  屑猫猫  
+##### 221#       发表于 2021-9-14 07:55
+
+
+啊，开始怀念耻辱的机械心脏，我第二关前脚进的军械库我几分钟后就忘记在哪里了，都怪这个炮台，我就是想找块儿电池
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 222#       发表于 2021-9-14 08:05
+
+
+找到军械库了，拿到快乐的双枪
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 223#       发表于 2021-9-14 08:11
+
+
+第二关我没找到一个密码锁的相关信息，那个加油补给站的密码我也找不到，实在找不到了。说不定后面回来就有线索了…
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  量子大蛇  
+##### 224#       发表于 2021-9-14 08:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739644&amp;ptid=1972138" target="_blank">wtf317 发表于 2021-9-14 03:58</a>
+
+看了下Steam截图，是不是用的Doom Eternal同款猛男字体啊？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/14/083142ey4ekz4et61kt52r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210914000050_1.jpg</strong> (409.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 08:31 上传
+
+
+全程都是这个圆润的字体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  E1EVEM  
+##### 225#       发表于 2021-9-14 08:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739268&amp;ptid=1972138" target="_blank">qianoooo 发表于 2021-9-14 01:26</a>
+
+主机体验还不错 arkane这次主机优化挺上心的 就是选的这个中文字体太瞎眼了 以及主机不能改fov差评 ...</blockquote>
+繁中的字体好点，另外英文字体阅读也不是太舒服
+
+
+*****
+
+####  屑猫猫  
+##### 226#       发表于 2021-9-14 09:23
+
+
+你死于爆炸 你死于爆炸 你死于爆炸，被地雷埋伏麻了，最后一次是我丢电池把自己炸死了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  有钱多买小人  
+##### 227#       发表于 2021-9-14 09:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739856&amp;ptid=1972138" target="_blank">godless2020 发表于 2021-9-14 07:11</a>
+不是肉鸽类型的吧？？？</blockquote>
+不算。反过来经常要干重复劳动。
+
+
+*****
+
+####  wyy123  
+##### 228#       发表于 2021-9-14 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739810&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 06:51</a>
+
+从后面迂回绕过去吧，其实我是不推荐打的，我觉得不如规划好慢慢完成目标。看到是有几个坛友杀了那个演示 ...</blockquote>
+再单位没事，看了下网上的19分钟游戏流程，还能从水桶爬到2楼从窗户进去。达成目标的路线有很多种
+
+
+*****
+
+####  屑猫猫  
+##### 229#       发表于 2021-9-14 09:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741066&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-9-14 09:42</a>
+再单位没事，看了下网上的19分钟游戏流程，还能从水桶爬到2楼从窗户进去。达成目标的路线有很多种 ...</blockquote>
+对啊，从高处进发一直都是它家游戏的稳妥选择，而且这代初始就有二段跳，实际上很多地方并不会像耻辱无能力那么难跳
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 230#       发表于 2021-9-14 09:58
+
+
+哎这都到晚上了我怎么还是一点超能力都没有，我也想用瞬移啊
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Kazepollar  
+##### 231#       发表于 2021-9-14 10:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741251&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 09:58</a>
+
+哎这都到晚上了我怎么还是一点超能力都没有，我也想用瞬移啊
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 ...</blockquote>
+我关注的一个耻辱高手已经开秀了，瞬移跳杀一气呵成
+
+
+*****
+
+####  qappip  
+##### 232#       发表于 2021-9-14 10:02
+
+
+有人知道图书馆装备怎么拿吗？ 装备全锁柜子人都被我突突完了。
+
+
+*****
+
+####  火红之眼  
+##### 233#       发表于 2021-9-14 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741319&amp;ptid=1972138" target="_blank">qappip 发表于 2021-9-14 10:02</a>
+有人知道图书馆装备怎么拿吗？ 装备全锁柜子人都被我突突完了。</blockquote>
+破解上面的锁啊
+
+
+*****
+
+####  qappip  
+##### 234#       发表于 2021-9-14 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741328&amp;ptid=1972138" target="_blank">火红之眼 发表于 2021-9-14 10:03</a>
+
+破解上面的锁啊</blockquote>
+... 对哦我还有个对讲机
+
+
+*****
+
+####  Mimic  
+##### 235#       发表于 2021-9-14 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739844&amp;ptid=1972138" target="_blank">casle 发表于 2021-9-14 07:07</a>
+
+先推主线到能保存装备比较好，图书馆早上最高只有蓝装备和一个绿专长，没必要去 ...</blockquote>
+我在图书馆那附近捡到个紫色射钉枪诶，开心
+
+
+*****
+
+####  evilpanda  
+##### 236#       发表于 2021-9-14 10:14
+
+
+这游戏竟然D加密。。。
+
+
+*****
+
+####  bluebirdy.  
+##### 237#       发表于 2021-9-14 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741251&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 09:58</a>
+哎这都到晚上了我怎么还是一点超能力都没有，我也想用瞬移啊
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 ...</blockquote>
+晚上必定有剧情的，你把女主杀了就有了，还能把那个狼头男杀了会给另一个能力
+
+
+*****
+
+####  屑猫猫  
+##### 238#       发表于 2021-9-14 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741277&amp;ptid=1972138" target="_blank">Kazepollar 发表于 2021-9-14 10:00</a>
+我关注的一个耻辱高手已经开秀了，瞬移跳杀一气呵成</blockquote>
+指明一下地址，我也好学习学习
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 239#       发表于 2021-9-14 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741414&amp;ptid=1972138" target="_blank">qappip 发表于 2021-9-14 10:10</a>
+... 对哦我还有个对讲机</blockquote>
+跟我一样忘记自己还有个无敌的对讲机<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Artless追随者  
+##### 240#       发表于 2021-9-14 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741596&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 10:23</a>
+
+指明一下地址，我也好学习学习
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+应该是猫丁糸吧：
+[https://live.bilibili.com/1468279?spm_id_from=333.999.0.0](https://live.bilibili.com/1468279?spm_id_from=333.999.0.0)
+
+
+
+
+*****
+
+####  Kazepollar  
+##### 241#       发表于 2021-9-14 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741596&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 10:23</a>
+
+指明一下地址，我也好学习学习
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+B站的猫丁糸
+
+
+*****
+
+####  屑猫猫  
+##### 242#       发表于 2021-9-14 11:11
+
+
+啊，我没从退出点退出直接死了之后退游戏，它不给我保存我的金色双枪。那个手感还挺不错的，可惜了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alter_ego_  
+##### 243#       发表于 2021-9-14 11:39
+
+
+游戏里的文本太逗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bluebirdy.  
+##### 244#       发表于 2021-9-14 11:41
+
+
+所以预购送的衣服在哪领啊，我已经能侵入别人游戏了，还是没衣服<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Emmerich  
+##### 245#       发表于 2021-9-14 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742773&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 11:41</a>
+
+所以预购送的衣服在哪领啊，我已经能侵入别人游戏了，还是没衣服</blockquote>
+配装的界面点点尼格的模型
+
+
+*****
+
+####  屑猫猫  
+##### 246#       发表于 2021-9-14 12:02
+
+
+我甚至没找到预购送我的枪，是得绑定杯赛账号么
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  葛葉景明  
+##### 247#       发表于 2021-9-14 12:19
+
+
+我入侵搜半天也搜不到人啊
+
+
+*****
+
+####  bluebirdy.  
+##### 248#       发表于 2021-9-14 12:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742852&amp;ptid=1972138" target="_blank">Emmerich 发表于 2021-9-14 11:46</a>
+配装的界面点点尼格的模型</blockquote>
+点了，只有默认服装<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">，预购不是说送一套衣服
+
+
+*****
+
+####  bluebirdy.  
+##### 249#       发表于 2021-9-14 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743324&amp;ptid=1972138" target="_blank">葛葉景明 发表于 2021-9-14 12:19</a>
+我入侵搜半天也搜不到人啊</blockquote>
+可能很多人还没打完第一大关？我刚就被网友入侵了
+
+
+*****
+
+####  Emmerich  
+##### 250#       发表于 2021-9-14 12:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743422&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 12:32</a>
+
+点了，只有默认服装，预购不是说送一套衣服</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">怪了 照理说就是打完漫长的一天以后就能换了 我就是这样的...
+
+
+*****
+
+####  bluebirdy.  
+##### 251#       发表于 2021-9-14 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743497&amp;ptid=1972138" target="_blank">Emmerich 发表于 2021-9-14 12:42</a>
+怪了 照理说就是打完漫长的一天以后就能换了 我就是这样的...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oniwarud  
+##### 252#       发表于 2021-9-14 12:56
+
+
+台词设计有点意思
+
+
+*****
+
+####  サリシノハラ  
+##### 253#         楼主| 发表于 2021-9-14 12:59
+
+
+预购的没收到，只收到官网领的那个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oniwarud  
+##### 254#       发表于 2021-9-14 12:59
+
+
+40w的残血3050ti laptop，1920*1200分辨率，特效基本都开的中，帧数还是挺稳的，是不是对30系之外的显卡优化很差啊
+
+
+*****
+
+####  谢俊豪  
+##### 255#       发表于 2021-9-14 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743705&amp;ptid=1972138" target="_blank">oniwarud 发表于 2021-9-14 12:59</a>
+
+40w的残血3050ti laptop，1920*1200分辨率，特效基本都开的中，帧数还是挺稳的，是不是对30系之外的显卡优 ...</blockquote>
+据说是npc一多就爆显存，和耻辱2的情况有点像
+
+
+*****
+
+####  屑猫猫  
+##### 256#       发表于 2021-9-14 13:07
+
+
+事不过三啊，我这第二天早晨都卡bug第二次了，这次还出bug…其实我还是要打下去的
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  真实之影  
+##### 257#       发表于 2021-9-14 13:18
+
+
+为啥我还玩不了，主界面一读取就跳出……
+
+
+*****
+
+####  屑猫猫  
+##### 258#       发表于 2021-9-14 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743887&amp;ptid=1972138" target="_blank">真实之影 发表于 2021-9-14 13:18</a>
+为啥我还玩不了，主界面一读取就跳出……</blockquote>
+系统太老了吧，我也有这个问题，也懒得管这问题。多尝试启动几次说不定就进去了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  bluebirdy.  
+##### 259#       发表于 2021-9-14 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743696&amp;ptid=1972138" target="_blank">サリシノハラ 发表于 2021-9-14 12:59</a>
+预购的没收到，只收到官网领的那个</blockquote>
+官网跟预购的我都没<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真实之影  
+##### 260#       发表于 2021-9-14 13:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743895&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 13:20</a>
+
+系统太老了吧，我也有这个问题，也懒得管这问题。多尝试启动几次说不定就进去了
+
+
+—— 来自 HUAWEI TEL-A ...</blockquote>
+看了眼讨论，要关了RivaTuner……
+
+
+*****
+
+####  kalavinka  
+##### 261#       发表于 2021-9-14 13:52
+
+
+过了漫长的一天，我也没找到预购衣服，那十几套都是灰的<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  bluebirdy.  
+##### 262#       发表于 2021-9-14 13:53
+
+
+这神奇的bug。我去侵入别人时间线，结果系统识别我是柯尔特，小怪跟我都是敌对的，直接把我喷死了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 263#       发表于 2021-9-14 14:15
+
+
+第三次跳出了，这是复刻辐射新维加斯吧…我的紫色钉枪
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  新八  
+##### 264#       发表于 2021-9-14 15:04
+
+
+看到很多人说优化稀烂各种20系爆显存让我很担心。我的2060S有没有机会整？
+
+
+*****
+
+####  姬茧墨  
+##### 265#       发表于 2021-9-14 15:10
+
+
+我2060也爆显存，但玩着没感觉到影响游戏进程，也不想管了
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  新八  
+##### 266#       发表于 2021-9-14 15:11
+
+
+。。。那我还是等啥时候入手PS5版吧
+
+
+*****
+
+####  屑猫猫  
+##### 267#       发表于 2021-9-14 15:55
+
+
+20个文洁…最后一个分身用霰弹配合炮塔把我喷死了，早知道先汇集一下炮塔
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  不灭人形  
+##### 268#       发表于 2021-9-14 16:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏PS5体验怎么样
+
+
+*****
+
+####  wyy123  
+##### 269#       发表于 2021-9-14 16:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52745782&amp;ptid=1972138" target="_blank">不灭人形 发表于 2021-9-14 16:09</a>
+
+这游戏PS5体验怎么样</blockquote>
+用性能模式体验挺好，字体跟pc一样，性能模式稳定60，画质模式战斗最低44，平均50多，不战斗60。光追模式稳定30。
+
+
+*****
+
+####  nma  
+##### 270#       发表于 2021-9-14 17:10
+
+
+本地化团队这么喜欢幼圆？难道英文版用的Comic Sans<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  椎名mahuyo  
+##### 271#       发表于 2021-9-14 17:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">PS5版这价格跟PC一比完全没欲望了
+
+
+*****
+
+####  mememe!  
+##### 272#       发表于 2021-9-14 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52746637&amp;ptid=1972138" target="_blank">椎名mahuyo 发表于 2021-9-14 17:19</a>
+PS5版这价格跟PC一比完全没欲望了</blockquote>
+没欲望加一，再想到明年xgp免费玩就下不了手了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  姬茧墨  
+##### 273#       发表于 2021-9-14 18:05
+
+
+我怎么蓝屏一次后直接打不开游戏了...steam显示在运行但根本就没游戏进程
+
+
+*****
+
+####  hshiki  
+##### 274#       发表于 2021-9-14 18:28
+
+
+大部分人应该都是离线玩，暗杀匹配特别慢，好不容易排进去一次，感觉打中不掉血，怕不是延迟杀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  从来不吃青菜  
+##### 275#       发表于 2021-9-14 18:47
+
+
+摸了2个小时，笑死了，这对白有点HADES当时读的会心一笑的感觉了，而且细致许多，主角发现了和自己有关的东西还会自我吐槽。
+
+剧情上来说很有趣啊，真是环环相扣的循环一日找破解方法的故事。很扎实的叙事。
+
+战斗射击手感一般，潜行倒是老样子。能不能让人在4个固定区域玩的很开心，全靠后续演变了。也许后面AI也会提升难度，或者有许多场景元素可以使用，到时候看看吧。
+
+
+*****
+
+####  flyfish  
+##### 276#       发表于 2021-9-14 18:49
+
+
+稍微云了一会，头晕，之前耻辱也是晕到弃坑，明明打别的fps都还好的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alter_ego_  
+##### 277#       发表于 2021-9-14 18:56
+
+
+淦，晚上做完任务，走了个近道退出，然后系统不给灌注，直接到了第二天早晨，两万残渣+两个石板能力无了 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鹿斗典善  
+##### 278#       发表于 2021-9-14 19:26
+
+
+原来不止我一个没有预购和豪华奖励<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shoes  
+##### 279#       发表于 2021-9-14 20:05
+
+
+评分双十，steam上的评价是褒贬不一啊，只能再看看了。
+
+
+*****
+
+####  wyy123  
+##### 280#       发表于 2021-9-14 20:06
+
+
+<blockquote>shoes 发表于 2021-9-14 20:05
+评分双十，steam上的评价是褒贬不一啊，只能再看看了。</blockquote>
+主要是优化问题给的差评，不是游戏内容。
+
+
+*****
+
+####  415452356  
+##### 281#       发表于 2021-9-14 20:08
+
+
+  打完破晓歇了一会开始玩，这打枪手感有点生硬，美术和对白依旧在线，很快就能进入状态。
+
+  女尼哥从纯尼哥改的有点像墨西哥裔还可以，否则就这开场真的是开幕尼击
+
+
+*****
+
+####  萩原组土狼p  
+##### 282#       发表于 2021-9-14 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748092&amp;ptid=1972138" target="_blank">鹿斗典善 发表于 2021-9-14 19:26</a>
+
+原来不止我一个没有预购和豪华奖励</blockquote>
+我也没拿到，不知道是不是要过了第一天才行
+
+
+*****
+
+####  moimoi  
+##### 283#       发表于 2021-9-14 20:13
+
+
+<img src="https://i.loli.net/2021/09/14/xZFgB1j5ipzurTL.png" referrerpolicy="no-referrer">
+
+这什么毛病啊，steam版本点开始就这样
+
+
+*****
+
+####  moimoi  
+##### 284#       发表于 2021-9-14 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748585&amp;ptid=1972138" target="_blank">萩原组土狼p 发表于 2021-9-14 20:10</a>
+
+我也没拿到，不知道是不是要过了第一天才行</blockquote>
+是，要过了漫长的一天才可以
+
+
+*****
+
+####  火红之眼  
+##### 285#       发表于 2021-9-14 20:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这黑妹入侵真能赢？特么主角三条命，不是开黑刷我都没杀成过....
+
+
+*****
+
+####  shoes  
+##### 286#       发表于 2021-9-14 20:32
+
+
+<blockquote>wyy123 发表于 2021-9-14 20:06
+主要是优化问题给的差评，不是游戏内容。</blockquote>
+嗯，我还是等等，起码等他把Denuvo加密去掉再买不迟。
+
+
+*****
+
+####  套路设计师  
+##### 287#       发表于 2021-9-14 20:46
+
+
+文洁-伊文思博士游戏里面出来了吗
+
+
+*****
+
+####  Case  
+##### 288#       发表于 2021-9-14 20:50
+
+
+这优化也太稀烂了。
+
+
+*****
+
+####  oniwarud  
+##### 289#       发表于 2021-9-14 20:57
+
+
+毒气室那个地方要怎么过啊
+
+
+*****
+
+####  Kazepollar  
+##### 290#       发表于 2021-9-14 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748617&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-14 20:13</a>
+ 这什么毛病啊，steam版本点开始就这样</blockquote>
+我也遇到这种问题了，你咋处理的
+
+
+*****
+
+####  Fuero  
+##### 291#       发表于 2021-9-14 21:19
+
+
+你们觉得光追效果好吗？我开了以后为啥感觉还不如不开
+
+
+*****
+
+####  萩原组土狼p  
+##### 292#       发表于 2021-9-14 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52749063&amp;ptid=1972138" target="_blank">oniwarud 发表于 2021-9-14 20:57</a>
+
+毒气室那个地方要怎么过啊</blockquote>
+先把左上角的电线版黑了，然后从门上的窗户看里面黑板的两行数字，然后到楼梯下面把门板踹开蹲下进去让，有几个标了数字的电闸，把与黑板上数字对应的电闸拉下，然后再到楼梯闪电板上的开关按了，就可以打开了
+
+应该是个多段任务
+
+
+*****
+
+####  萩原组土狼p  
+##### 293#       发表于 2021-9-14 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748617&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-14 20:13</a>
+
+这什么毛病啊，steam版本点开始就这样</blockquote>
+我是打一半遇见了，不知道咋回事
+
+
+*****
+
+####  wolfwood  
+##### 294#       发表于 2021-9-14 21:22
+
+
+PC优化没感觉出来啥好不好的，3090直接全开上4K完事。玩了一下感觉。。。潜行个J8，全部突突突掉完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moimoi  
+##### 295#       发表于 2021-9-14 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52749290&amp;ptid=1972138" target="_blank">Kazepollar 发表于 2021-9-14 21:18</a>
+
+我也遇到这种问题了，你咋处理的</blockquote>
+[https://www.bilibili.com/read/cv13173369](https://www.bilibili.com/read/cv13173369)
+
+我搜出了这个，我是没有GPU，也就是无解
+
+GPU出现UNKNOMN的提示 
+
+解决方法：目前没有，需要等待官方补丁。 
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+阿肯，你真是一个弱智
+
+
+*****
+
+####  Chenlh  
+##### 296#       发表于 2021-9-14 21:23
+
+
+这游戏没被入侵就是最简单难度羞辱，被入侵简直就是个恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moimoi  
+##### 297#       发表于 2021-9-14 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52749334&amp;ptid=1972138" target="_blank">萩原组土狼p 发表于 2021-9-14 21:22</a>
+
+我是打一半遇见了，不知道咋回事</blockquote>
+[https://www.bilibili.com/read/cv13173369](https://www.bilibili.com/read/cv13173369)
+
+看这个，你可能内存内存占用过高 
+
+
+*****
+
+####  电磁炮233  
+##### 298#       发表于 2021-9-14 21:26
+
+
+黑妹入侵就没赢过，不是打不过，而是打死对面一次后就再也找不到人了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电磁炮233  
+##### 299#       发表于 2021-9-14 21:29
+
+
+所以应该和耻辱一样有混乱度设定吧，反正我已经鲨疯了，为了超能力全鲨光<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  躺倒之龙  
+##### 300#       发表于 2021-9-14 21:29
+
+
+就来来回回打这几关捡他们的枪和能力然后攒钱注入吗，玩到现在没懂出彩在哪里
+
+
+
+
+*****
+
+####  萩原组土狼p  
+##### 301#       发表于 2021-9-14 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52749438&amp;ptid=1972138" target="_blank">电磁炮233 发表于 2021-9-14 21:29</a>
+
+所以应该和耻辱一样有混乱度设定吧，反正我已经鲨疯了，为了超能力全鲨光
+
+
+—— 来自 S1Fun ...</blockquote>
+没有，全杀完了第二天重新复活的，这座就是不用在乎混乱度，可以随心所欲干人的完美加强羞辱
+
+
+*****
+
+####  fateultraone  
+##### 302#       发表于 2021-9-14 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748784&amp;ptid=1972138" target="_blank">shoes 发表于 2021-9-14 20:32</a>
+
+嗯，我还是等等，起码等他把Denuvo加密去掉再买不迟。</blockquote>
+这也不能全怪d加密,这游戏用到的羞辱2一样的虚空引擎，这破引擎做的游戏本来问题就多，一个很明显的问题就是如果这游戏你不能跑稳定的60帧，就会跳帧卡顿
+
+
+*****
+
+####  bsdlxy  
+##### 303#       发表于 2021-9-14 22:27
+
+
+宅男好烦啊，跟着线索，一直找不到目标。
+
+
+*****
+
+####  屑猫猫  
+##### 304#       发表于 2021-9-14 22:39
+
+
+那个邪教头子的石板怎么进去拿，我看她自杀了进不去房间好气呀
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  椎名mahuyo  
+##### 305#       发表于 2021-9-14 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">低配电脑体验不好，敌人一多发现瞬间突然游戏就卡着了，糟了2次，后悔买PC版了
+
+
+*****
+
+####  Fuero  
+##### 306#       发表于 2021-9-14 22:57
+
+
+我放弃折腾pc版，又入了ps5版，值了
+
+另外dualsense直接让游戏体验提升了不止一个台阶，本作的调教相当出色，就算是pc上也推荐用用ps5手柄
+
+
+*****
+
+####  hkguty  
+##### 307#       发表于 2021-9-14 23:00
+
+
+昨天一看到评分就冲动买了PC版·······这公司怎么PC优化依然那么菜
+
+
+*****
+
+####  bluebirdy.  
+##### 308#       发表于 2021-9-14 23:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52747773&amp;ptid=1972138" target="_blank">alter_ego_ 发表于 2021-9-14 18:56</a>
+
+淦，晚上做完任务，走了个近道退出，然后系统不给灌注，直接到了第二天早晨，两万残渣+两个石板能力无了 [f ...</blockquote>
+啥近道退出，他不是只能从那个隧道退吗
+
+
+*****
+
+####  九十九忍  
+##### 309#       发表于 2021-9-14 23:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杀疯了，结果马上被吐槽dont shoot everything
+
+
+*****
+
+####  bluebirdy.  
+##### 310#       发表于 2021-9-14 23:08
+
+
+这游戏真的有狙击枪吗，步枪图标是个狙，但我一次也没见过，只见过机枪跟喷子
+
+
+*****
+
+####  Asukalangley33  
+##### 311#       发表于 2021-9-14 23:12
+
+
+ 本帖最后由 Asukalangley33 于 2021-9-14 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750632&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 23:08</a>
+
+这游戏真的有狙击枪吗，步枪图标是个狙，但我一次也没见过，只见过机枪跟喷子 ...</blockquote>
+不知道这个游戏装备是不是随机的
+
+但是我第二天下午去市中心就拿到了一把橙色的狙，是我第一个橙色武器
+
+但是狙感觉好菜，打身体居然不是秒杀<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+还不如拉大栓或者左轮
+
+
+SYL，刚刚被一个黑妹入侵了，明显是真人，终极卡批，走路一顿一顿的
+
+我绕后在他背后拿大狙一发头，她屁事没有
+
+然后我们两个贴脸互射了上百发子弹两人都没掉血，最后她莫名卡住了，我拿着喷子走脸上爆头才把她打死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hshiki  
+##### 312#       发表于 2021-9-14 23:14
+
+
+看到过一个无视毒气的符文，但是没保存下来
+
+
+*****
+
+####  hshiki  
+##### 313#       发表于 2021-9-14 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750632&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 23:08</a>
+
+这游戏真的有狙击枪吗，步枪图标是个狙，但我一次也没见过，只见过机枪跟喷子 ...</blockquote>
+貌似只有一把任务解锁的金狙，在市中心触发一个礼包的任务，不知道直接杀掉狙击手能不能拿到，位置是主角公寓隔壁的二楼
+
+
+常规武器就那么几样，紫色多一个随机词条
+
+
+*****
+
+####  bluebirdy.  
+##### 314#       发表于 2021-9-14 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750674&amp;ptid=1972138" target="_blank">Asukalangley33 发表于 2021-9-14 23:12</a>
+
+不知道这个游戏装备是不是随机的
+
+但是我第二天下午去市中心就拿到了一把橙色的狙，是我第一个橙色武器
+
+但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我遇到的入侵延迟还好，刚还遇见一个有皮肤的黑妹
+
+
+*****
+
+####  萩原组土狼p  
+##### 315#       发表于 2021-9-14 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750674&amp;ptid=1972138" target="_blank">Asukalangley33 发表于 2021-9-14 23:12</a>
+
+不知道这个游戏装备是不是随机的
+
+但是我第二天下午去市中心就拿到了一把橙色的狙，是我第一个橙色武器
+
+但 ...</blockquote>
+你是不是做了早上那个在桥洞下面的那个调游戏中心难度的任务，那把橙狙应该是做那个任务给的，你在早上把游戏难度调了以后，下午会有npc去打那个游戏通关获得那把武器，然后玩家好像可以获得
+
+
+*****
+
+####  bluebirdy.  
+##### 316#       发表于 2021-9-14 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750757&amp;ptid=1972138" target="_blank">hshiki 发表于 2021-9-14 23:20</a>
+
+貌似只有一把任务解锁的金狙，在市中心触发一个礼包的任务，不知道直接杀掉狙击手能不能拿到，位置是主角 ...</blockquote>
+我找找看，我就觉得女主默认手里都是把狙，应该不会没有
+
+
+*****
+
+####  BallanceHZ  
+##### 317#       发表于 2021-9-14 23:22
+
+
+干死死宅一次了，这叙事有点意思啊，就是不断靠线索把8个人集中起来最后一起宰了的意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hshiki  
+##### 318#       发表于 2021-9-14 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750784&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 23:22</a>
+
+我找找看，我就觉得女主默认手里都是把狙，应该不会没有</blockquote>
+女主和八大人好像都掉随机紫武器，我就找到一把金狙，另一个实验室地图的武器库任务还没做
+
+
+*****
+
+####  bluebirdy.  
+##### 319#       发表于 2021-9-14 23:25
+
+
+这游戏AI蛮逗的。有俩ai一个人举着燃气罐一个人开枪打他，把燃气罐打爆了。然后这俩人突然开始进入戒备状态。开始说“我知道你在这”之类的话<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，这罐子明明是你俩打爆的
+
+
+*****
+
+####  bluebirdy.  
+##### 320#       发表于 2021-9-14 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750803&amp;ptid=1972138" target="_blank">hshiki 发表于 2021-9-14 23:24</a>
+
+女主和八大人好像都掉随机紫武器，我就找到一把金狙，另一个实验室地图的武器库任务还没做 ...</blockquote>
+应该是入侵你的女主带啥装备会随机掉一个，也会随机掉一个符文。你可以去杯赛官网关联账号，他会送你一个皮肤跟枪，枪就是武器库的那个枪换皮，换的还挺好看的，渐变色。[https://bethesda.net/zh-CN/game/deathloop](https://bethesda.net/zh-CN/game/deathloop)
+
+
+*****
+
+####  hshiki  
+##### 321#       发表于 2021-9-14 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750779&amp;ptid=1972138" target="_blank">萩原组土狼p 发表于 2021-9-14 23:22</a>
+
+你是不是做了早上那个在桥洞下面的那个调游戏中心难度的任务，那把橙狙应该是做那个任务给的，你在早上把 ...</blockquote>
+我是在市中心走着走着，弹出一个任务，告诉我广场上有我的礼物，调查礼物盒会被二楼狙击手放阴枪，爬上二楼打死狙击手拿枪，任务就完成了，难道任务是随机触发的
+
+
+*****
+
+####  hshiki  
+##### 322#       发表于 2021-9-14 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750832&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 23:27</a>
+
+应该是入侵你的女主带啥装备会随机掉一个，也会随机掉一个符文。你可以去杯赛官网关联账号，他会送你一个 ...</blockquote>
+我去看看，预购的奖励也一直没发，不知道是不是bug……
+
+
+*****
+
+####  redsibyl  
+##### 323#       发表于 2021-9-14 23:37
+
+
+不是，这也太恶心了把，第一天结束啥都不会剩下
+
+
+虽然这也怪我，喜欢到处跑，但我好不容易第一天把敌人都杀光了，一身紫，就这样啥都没了？那个狼人聚会都空了，就这样对我？
+
+
+*****
+
+####  FUZE  
+##### 324#       发表于 2021-9-14 23:40
+
+
+入侵模式太卡了
+
+
+*****
+
+####  江少寒  
+##### 325#       发表于 2021-9-14 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750803&amp;ptid=1972138" target="_blank">hshiki 发表于 2021-09-14 23:24:21</a>
+女主和八大人好像都掉随机紫武器，我就找到一把金狙，另一个实验室地图的武器库任务还没做 ...</blockquote>武器库里给橙色双枪，双枪可以切换成冲锋，手感还不错
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  火红之眼  
+##### 326#       发表于 2021-9-14 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750930&amp;ptid=1972138" target="_blank">redsibyl 发表于 2021-9-14 23:37</a>
+
+不是，这也太恶心了把，第一天结束啥都不会剩下
+
+
+虽然这也怪我，喜欢到处跑，但我好不容易第一天把敌人都杀 ...</blockquote>
+打完新手教程学了注入才能保留装备的，前面的就算了吧
+
+
+*****
+
+####  bluebirdy.  
+##### 327#       发表于 2021-9-14 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750850&amp;ptid=1972138" target="_blank">hshiki 发表于 2021-9-14 23:28</a>
+
+我去看看，预购的奖励也一直没发，不知道是不是bug……</blockquote>
+预购的我也没有，杯赛这个应该都可以领到
+
+
+*****
+
+####  elleryasimov  
+##### 328#       发表于 2021-9-14 23:50
+
+
+没买游戏，看描述确实很像Mooncrash啊
+
+
+*****
+
+####  屑猫猫  
+##### 329#       发表于 2021-9-14 23:52
+
+
+除了金狙金双枪，目前还有别的金武器么，那个金双枪火力还挺猛弹夹也够多
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  萩原组土狼p  
+##### 330#       发表于 2021-9-14 23:54
+
+
+草死，布置了3个机枪塔，成功卡死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  屑猫猫  
+##### 331#       发表于 2021-9-14 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750779&amp;ptid=1972138" target="_blank">萩原组土狼p 发表于 2021-9-14 23:22</a>
+你是不是做了早上那个在桥洞下面的那个调游戏中心难度的任务，那把橙狙应该是做那个任务给的，你在早上把 ...</blockquote>
+那个游戏是不是得查理去打来着，就是太空侵略者还是什么游戏，然后下午我去搜刮他
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  casle  
+##### 332#       发表于 2021-9-15 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751077&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 23:52</a>
+
+除了金狙金双枪，目前还有别的金武器么，那个金双枪火力还挺猛弹夹也够多
+
+
+—— 来自 HUAWEI TEL-AN00a, An ...</blockquote>
+打死音乐家可以拿一个金冲锋枪，效果是可以边换弹边开枪
+
+
+*****
+
+####  BallanceHZ  
+##### 333#       发表于 2021-9-15 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750930&amp;ptid=1972138" target="_blank">redsibyl 发表于 2021-9-14 23:37</a>
+不是，这也太恶心了把，第一天结束啥都不会剩下
+
+
+虽然这也怪我，喜欢到处跑，但我好不容易第一天把敌人都杀 ...</blockquote>
+先做主线才能保留装备<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 334#       发表于 2021-9-15 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750976&amp;ptid=1972138" target="_blank">江少寒 发表于 2021-9-14 23:41</a>
+武器库里给橙色双枪，双枪可以切换成冲锋，手感还不错
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+那个得安装三个电池进去，找三个电池比金狙那个任务感觉好做一些
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  bluebirdy.  
+##### 335#       发表于 2021-9-15 00:33
+
+
+我操了，大家到那个福利斯塔德岩岛的话，别乱交互，会有大惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  风真人  
+##### 336#       发表于 2021-9-15 00:57
+
+
+我服了，第二天开保险箱拿协议就卡死<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">老子真是操了
+
+
+*****
+
+####  屑猫猫  
+##### 337#       发表于 2021-9-15 01:07
+
+
+喷了，文洁和宅男那个对话笑喷了，这俩商业互吹有点尬的，真就这俩科学怪胎怎么尬怎么来。“我想拥有你的头脑”还互相说了出来
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 338#       发表于 2021-9-15 01:21
+
+
+死宅那个2B机器人是怎么个处理法啊，我想办法给它供电但是找不到接入口。还有那个等级通行证是不是无法进入，得后期开拓地图才能进去
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  SpaceCowboy  
+##### 339#       发表于 2021-9-15 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52751743&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-15 01:21</a>
+
+死宅那个2B机器人是怎么个处理法啊，我想办法给它供电但是找不到接入口。还有那个等级通行证是不是无法进入 ...</blockquote>
+2bit不需要供电吧，如果你是指给火箭供电的话，是要给中间的一个操纵仓一样的平台插五个电池。
+
+
+等级通行证你第一次做杀frank的任务就能进了，杀了他之后能拿一把金冲锋枪
+
+
+*****
+
+####  ppp爱好者  
+##### 340#       发表于 2021-9-15 01:57
+
+
+这黑妹能玩？卡的爹妈不认 直接单机打不开黑妹有啥剧情问题么
+
+
+*****
+
+####  Develde_001  
+##### 341#       发表于 2021-9-15 02:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个投递亭是干啥的啊
+
+
+*****
+
+####  真实之影  
+##### 342#       发表于 2021-9-15 02:32
+
+
+特异功能只能选两个，不够用锕……
+
+
+*****
+
+####  minyejia  
+##### 343#       发表于 2021-9-15 02:33
+
+
+我遇到个玩家入侵，在市中心豪华住宅窗户附近放了三个拌雷，恶心死了
+
+
+*****
+
+####  Develde_001  
+##### 344#       发表于 2021-9-15 03:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这入侵也太难排到人了
+
+
+*****
+
+####  战术核辣条  
+##### 345#       发表于 2021-9-15 03:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么全是机瞄，loop系的探索模式太有意思了
+arkaen真的有才
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ub001  
+##### 346#       发表于 2021-9-15 06:06
+
+
+石板拿到新的替换了就没了这不智障么
+
+
+*****
+
+####  屑猫猫  
+##### 347#       发表于 2021-9-15 07:05
+
+
+ 本帖最后由 屑猫猫 于 2021-9-15 07:11 编辑 
+
+准备去做金步枪的任务了，这把枪还是得留下来
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alter_ego_  
+##### 348#       发表于 2021-9-15 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750595&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-14 23:04</a>
+
+啥近道退出，他不是只能从那个隧道退吗</blockquote>
+市中心沿海边有一个石洞，杀完目标后这个石洞比隧道更近一点。门的密码也是隧道的密码，我直接走石洞退出了。
+
+
+*****
+
+####  bluebirdy.  
+##### 349#       发表于 2021-9-15 08:31
+
+
+那应该也是一样的，每个地图隧道出口都有两个。你已经学会灌注了吗
+
+
+*****
+
+####  丹德里恩  
+##### 350#       发表于 2021-9-15 09:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">刚开始打，一进图书馆光注意扫描了直接被炮台社保，必须站在范围内才能入侵么，我躲墙后面探出身没法互动
+
+
+*****
+
+####  oniwarud  
+##### 351#       发表于 2021-9-15 09:22
+
+
+目前感觉大栓好强啊，前期还有什么实用好获得的武器吗
+
+
+*****
+
+####  白昼梦  
+##### 352#       发表于 2021-9-15 09:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52753709&amp;ptid=1972138" target="_blank">丹德里恩 发表于 2021-9-15 09:21</a>
+
+刚开始打，一进图书馆光注意扫描了直接被炮台社保，必须站在范围内才能入侵么，我躲墙后面探出身没 ...</blockquote>
+可以探身互动的，往外点就行，探出来的时候炮台还扫不到你
+
+
+*****
+
+####  Cyau  
+##### 353#       发表于 2021-9-15 09:39
+
+
+大栓真强，第一回见到朱莉她窗口冒出来直接一枪送走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RushMove  
+##### 354#       发表于 2021-9-15 10:10
+
+
+如果牺牲一把已经注入过的武器，下个轮回还能自动得到它吗
+
+
+*****
+
+####  bluebirdy.  
+##### 355#       发表于 2021-9-15 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52753709&amp;ptid=1972138" target="_blank">丹德里恩 发表于 2021-9-15 09:21</a>
+
+刚开始打，一进图书馆光注意扫描了直接被炮台社保，必须站在范围内才能入侵么，我躲墙后面探出身没 ...</blockquote>
+这作黑入进度可以保留，不会自动回退。怕被发现可以黑一点缩回来再黑
+
+
+*****
+
+####  量子大蛇  
+##### 356#       发表于 2021-9-15 10:14
+
+
+好玩是好玩，剧情一开始看不懂，慢慢的一些抓人的悬念就出来了，美术风格也很喜欢，就是太费脑子了。
+
+第一是地图看着不大但是很复杂，比如说找到一个地方需要曲柄，后来拿到了曲柄却无论怎么反走地图都找不着位置了
+
+第二是线索太多了，虽然整理的时候能看笔记，估计需要自己手动做好笔记才能方便在游戏里随时查阅
+
+现在主线打到学灌注那儿，感觉难度开始上来了，不过最后一次死亡是因为不看脚下踩进水里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外就是强烈要求Steam版搞联动出《传送门》小炮塔皮肤
+
+
+*****
+
+####  bluebirdy.  
+##### 357#       发表于 2021-9-15 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754339&amp;ptid=1972138" target="_blank">RushMove 发表于 2021-9-15 10:10</a>
+
+如果牺牲一把已经注入过的武器，下个轮回还能自动得到它吗</blockquote>
+注入就永远有了，每次轮回都会给你，但是比如你轮回一天中早上给扔了，那这一天里就没了
+
+
+*****
+
+####  火红之眼  
+##### 358#       发表于 2021-9-15 10:15
+
+
+黑东西其实只要按了第一下就可以缩回掩体按住了，不用一直对准黑
+
+
+*****
+
+####  量子大蛇  
+##### 359#       发表于 2021-9-15 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52743745&amp;ptid=1972138" target="_blank">谢俊豪 发表于 2021-9-14 13:03</a>
+
+据说是npc一多就爆显存，和耻辱2的情况有点像</blockquote>
+应该是，我到了文洁那个场景就疯狂卡顿
+
+
+*****
+
+####  屑猫猫  
+##### 360#       发表于 2021-9-15 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52753709&amp;ptid=1972138" target="_blank">丹德里恩 发表于 2021-9-15 09:21</a>
+
+刚开始打，一进图书馆光注意扫描了直接被炮台社保，必须站在范围内才能入侵么，我躲墙后面探出身没 ...</blockquote>
+频繁QE吧，这炮台警戒时间有些长，所以就慢慢入侵，后面还有更多的炮台只能这么做，拿到骇客相关的护符很关键
+
+
+
+
+*****
+
+####  屑猫猫  
+##### 361#       发表于 2021-9-15 10:18
+
+
+其实我很建议你们第二个去把死宅给宰了，他给传送，不用等朱莉安娜刷出来拿她能力，拿了传送瞬移到炮台脸上蹲下来它就射击不到人可以直接安全地扫描
+
+
+*****
+
+####  seki_m  
+##### 362#       发表于 2021-9-15 10:22
+
+
+这游戏有类似混乱的设定吗？我还在打羞辱2
+
+
+*****
+
+####  屑猫猫  
+##### 363#       发表于 2021-9-15 10:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754520&amp;ptid=1972138" target="_blank">seki_m 发表于 2021-9-15 10:22</a>
+
+这游戏有类似混乱的设定吗？我还在打羞辱2</blockquote>
+无，估计大多数人都是潜行烦了就开干，状态不太好就缩回去。这作设定上这些人都是跟着玩家一起循环的，应该是什么实验造物，这个世界算是虚拟世界吧，甚至老巫婆都有了（
+
+
+*****
+
+####  陆战型胡杀马  
+##### 364#       发表于 2021-9-15 10:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642261&amp;ptid=1972138" target="_blank">套路设计师 发表于 2021-9-6 18:31</a>
+
+岛哥哥顶多算三体不错的科幻爱好者。
+
+
+Arkane是铁杆三体厨的水平。</blockquote>
+老哥，展开讲讲
+
+
+*****
+
+####  白昼梦  
+##### 365#       发表于 2021-9-15 10:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从设定来说主角开局失忆之前已经闹了好久混乱度已经刷满了，所以就不需要这个值了
+
+
+*****
+
+####  casle  
+##### 366#       发表于 2021-9-15 10:44
+
+
+本来还担心会被剧透，现在发现好多剧情都看不明白
+
+所以说主角身份大概是什么？只是开过火箭进过精神病院的老兵吗
+
+
+*****
+
+####  seki_m  
+##### 367#       发表于 2021-9-15 10:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">那就好，不能乱杀真心不爽
+
+
+*****
+
+####  bluebirdy.  
+##### 368#       发表于 2021-9-15 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754882&amp;ptid=1972138" target="_blank">casle 发表于 2021-9-15 10:44</a>
+
+本来还担心会被剧透，现在发现好多剧情都看不明白
+
+所以说主角身份大概是什么？只是开过火箭进过精神病院的 ...</blockquote>
+从文档来看，这岛就是主角发现的，之前也是头头之一，负责安保的
+
+
+*****
+
+####  dazzle  
+##### 369#       发表于 2021-9-15 11:20
+
+
+Deathloop Gets Review Bombed On Steam After Denuvo Issues
+[https://screenrant.com/deathloop ... uvo-arkane-studios/](https://screenrant.com/deathloop-review-bomb-denuvo-arkane-studios/)
+
+
+阿肯为什么每个游戏都要出幺蛾子，小公司经不起这么折腾啊
+
+
+*****
+
+####  九十九忍  
+##### 370#       发表于 2021-9-15 11:28
+
+
+不多于五人的地方真的是玩出弯刀屠杀黑礁岛的感觉
+
+
+*****
+
+####  粪坑战士  
+##### 371#       发表于 2021-9-15 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52753709&amp;ptid=1972138" target="_blank">丹德里恩 发表于 2021-9-15 09:21</a>
+
+刚开始打，一进图书馆光注意扫描了直接被炮台社保，必须站在范围内才能入侵么，我躲墙后面探出身没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">图书馆有好几个窗户都能进去 从窗户进去扫了炮台比较方便
+
+
+*****
+
+####  ysn132  
+##### 372#       发表于 2021-9-15 12:00
+
+
+通关了，说实话不怎么满意，arkane游戏一贯的游戏性和重复可玩性在这个游戏上没有体现出来，四张地图做得远没有想象中的耐玩，原本看宣传以为的任务完成方式和顺序多种多样放手给你搞，结果到手一发现本质还是只有一种方式的线性流程，只不过多了个loop的机制，这游戏后期基本就是在不停地根据线索loop到正确的时间点跑图，这四张图的大小根本经不起这么跑，可以说是有失arkane水准的，而pc首发优化这一点还是保持了arkane之前的水平，出奇地烂，相结合一下我个人觉得7分最多，这流程长度我买个豪华版真的是亏
+
+
+*****
+
+####  白昼梦  
+##### 373#       发表于 2021-9-15 12:07
+
+
+当时媒体低分就有提到每个boss击杀方式都是单一线性的
+
+
+*****
+
+####  屑猫猫  
+##### 374#       发表于 2021-9-15 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52755563&amp;ptid=1972138" target="_blank">九十九忍 发表于 2021-9-15 11:28</a>
+
+不多于五人的地方真的是玩出弯刀屠杀黑礁岛的感觉</blockquote>
+你在说什么，屋顶的狙击手他怒了
+
+
+*****
+
+####  oniwarud  
+##### 375#       发表于 2021-9-15 12:21
+
+
+查理那关的毒气怎么关闭啊，电池全都插上了也没反应吗
+
+
+*****
+
+####  躺倒之龙  
+##### 376#       发表于 2021-9-15 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754399&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-15 10:14</a>
+注入就永远有了，每次轮回都会给你，但是比如你轮回一天中早上给扔了，那这一天里就没了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前一天晚上我把注入过的金枪和能力分解了，之后一个早上起来发现他们都消失了，再过了一天发现还是没有，不能随便乱分解的吧
+
+
+*****
+
+####  缺德猫  
+##### 377#       发表于 2021-9-15 12:41
+
+
+不知道是索尼塞钱还是微软塞钱，这游戏能IGN、GS双十就离谱儿。
+
+
+*****
+
+####  hshiki  
+##### 378#       发表于 2021-9-15 12:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52756844&amp;ptid=1972138" target="_blank">躺倒之龙 发表于 2021-9-15 12:41</a>
+
+前一天晚上我把注入过的金枪和能力分解了，之后一个早上起来发现他们都消失了，再过了一天发现还 ...</blockquote>
+分解就不在永恒库里了，除了开始就能拿到的一些物品，比如二段跳，每次轮回最后都可以卖了白嫖
+
+
+*****
+
+####  bluebirdy.  
+##### 379#       发表于 2021-9-15 12:49
+
+
+ 本帖最后由 bluebirdy. 于 2021-9-15 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52756844&amp;ptid=1972138" target="_blank">躺倒之龙 发表于 2021-9-15 12:41</a>
+
+前一天晚上我把注入过的金枪和能力分解了，之后一个早上起来发现他们都消失了，再过了一天发现还 ...</blockquote>
+我看了下，可以分解，你分解了肯定就没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不然你每天不都能白嫖上一天的点数，点数会越滚越大
+
+
+*****
+
+####  Eina  
+##### 380#       发表于 2021-9-15 13:49
+
+
+感觉这游戏还是挺乐的，打查理的时候，BOSS瞬移到我脸上，一个F直接暗杀了
+
+
+*****
+
+####  屑猫猫  
+##### 381#       发表于 2021-9-15 13:59
+
+
+我本来以为文杰是最菜的，死宅显然更菜好吧，只会启动俩炮台然后开始逃跑，真就瞬移到玩家脸上送人头的那种
+
+
+*****
+
+####  alter_ego_  
+##### 382#       发表于 2021-9-15 14:26
+
+
+杀弗兰克的关卡设计的太好了，光是绕过“禁用石板措施”的隐藏通道就找到两个，在查理住宅的一个密码也能解除弗兰克的安保措施。
+
+按弗兰克的规矩"禁用石板"就常规潜行或硬实力火并; 想尽办法绕过“禁用石板”之后就是花式虐杀，怎么开心怎么来。
+
+
+*****
+
+####  带带阿苏卡  
+##### 383#       发表于 2021-9-15 15:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有老哥讲讲这游戏主机优化和dualsense适配如何吗？PC有点带不动了，想买个PS5版。
+
+
+*****
+
+####  张献忠  
+##### 384#       发表于 2021-9-15 15:22
+
+
+原来不是洛克人模式吗？
+
+
+*****
+
+####  姬茧墨  
+##### 385#       发表于 2021-9-15 15:40
+
+
+这个入侵的丢包真的难顶
+
+
+*****
+
+####  谢俊豪  
+##### 386#       发表于 2021-9-15 16:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52759179&amp;ptid=1972138" target="_blank">带带阿苏卡 发表于 2021-9-15 15:17</a>
+
+有老哥讲讲这游戏主机优化和dualsense适配如何吗？PC有点带不动了，想买个PS5版。 ...</blockquote>
+帧数模式 1368P-4K，稳60帧。
+
+质量模式 1800P-4K，最低40帧，大部分战斗情况55帧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要图个60帧，画质也就中高水准
+
+
+*****
+
+####  屑猫猫  
+##### 387#       发表于 2021-9-15 16:19
+
+
+啊，突然忘记金色双枪那个军械库在哪里了，我都搬了四台炮台过去都没太大用
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  哈毛  
+##### 388#       发表于 2021-9-15 16:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 通关了，感觉9分-9.5分。
+
+唯一可惜是武器，能力，自定义种类再丰富一点就好了。
+
+中后期很容易依赖，也没什么其他更好选的。这部分Hades做的好。
+
+
+妹子送的猎枪当炮，消音手枪，配连接（回血，串人）都好用。
+
+
+*****
+
+####  哈毛  
+##### 389#       发表于 2021-9-15 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750632&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-15 01:08</a>
+
+这游戏真的有狙击枪吗，步枪图标是个狙，但我一次也没见过，只见过机枪跟喷子 ...</blockquote>
+妹子随机出一把金狙。
+
+这游戏金色枪总体不多的感觉。
+
+
+*****
+
+####  c029384756  
+##### 390#       发表于 2021-9-15 17:38
+
+
+怎么bug这么多啊，一个是光字乱闪，闪的眼睛疼
+
+再就是爆显存,我2060的机器1080p下60都稳不了，经常顿卡
+
+2080ti的机器2k下特效拉满开光追关fsr也能稳100多，性能差距应该没这么大啊
+
+
+
+
+*****
+
+####  qianoooo  
+##### 391#       发表于 2021-9-15 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761372&amp;ptid=1972138" target="_blank">c029384756 发表于 2021-9-15 17:38</a>
+怎么bug这么多啊，一个是光字乱闪，闪的眼睛疼
+
+再就是爆显存,我2060的机器1080p下60都稳不了，经常顿卡
+
+208 ...</blockquote>
+https://bbs.saraba1st.com/2b/thread-2026322-0-1.html 跟着泥潭这个帖子改配置
+
+
+*****
+
+####  萩原组土狼p  
+##### 392#       发表于 2021-9-15 18:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52760283&amp;ptid=1972138" target="_blank">哈毛 发表于 2021-9-15 16:28</a>
+
+妹子随机出一把金狙。
+
+这游戏金色枪总体不多的感觉。</blockquote>
+不是随机的，你下午去城市会给你一个任务，就是被这个女的骗过去说是给你礼物，然后在你家楼下有个礼盒，然后这个女的带着俩小弟在你家对面的楼上等着狙击你，你可以不管礼物直接从下面爬上去给他们个惊喜干掉他们，然后这个女的会固定出个金狙
+
+
+*****
+
+####  屑猫猫  
+##### 393#       发表于 2021-9-15 18:29
+
+
+城市是说那个放烟花的地图么，就是在家附近会刷新出朱丽安娜和她的小弟么？下午是概率刷新还是必然会刷新出这个任务，如果是玩家入侵不会有这个任务吧？
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Develde_001  
+##### 394#       发表于 2021-9-15 18:38
+
+
+ 本帖最后由 Develde_001 于 2021-9-15 18:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉一般般，还是觉得prey和羞辱2更好玩点。这个入侵倒是玩起来挺有意思的，就是根本排不到人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ub001  
+##### 395#       发表于 2021-9-15 18:55
+
+
+b战评论已经开始了，“太快餐，妥协，不如耻辱prey”……
+
+
+*****
+
+####  屑猫猫  
+##### 396#       发表于 2021-9-15 19:02
+
+
+我感觉也是差掠食一些。但这个还快餐的话，怎么不直接批评大多数中大型游戏都是快餐，就是有些时候太线型了，建筑的高低差精髓设计还是在的，只是希望多来几个同弗兰克一样的任务，如果只是多路线探索其实还是体现不了is的系统驱动特点的。看后续有没有dlc来着…
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JoelBirch  
+##### 397#       发表于 2021-9-15 19:37
+
+
+有老哥知道发电厂最深处那个设置了地雷的发电机怎么启动吗？试了好多次，枪击排雷不行，枪击按钮发电机启动后也会引爆地雷，也没有排雷技能解除……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萩原组土狼p  
+##### 398#       发表于 2021-9-15 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52762920&amp;ptid=1972138" target="_blank">JoelBirch 发表于 2021-9-15 19:37</a>
+
+有老哥知道发电厂最深处那个设置了地雷的发电机怎么启动吗？试了好多次，枪击排雷不行，枪击按钮发电机启动 ...</blockquote>
+蹲着走过去按f就能拆雷，不要跳，那两个板之间是可以走过去的，慢慢走过去然后拆雷就可以了
+
+
+*****
+
+####  SpaceCowboy  
+##### 399#       发表于 2021-9-15 19:43
+
+
+打完了，整体节奏感觉太平了，没有耻辱和prey里面那种能震到你的关卡设计或者演出；能力也有点太少了，而且还不能全带。
+
+话说石板有十二个槽，但一共只有五个能力，感觉像是要用dlc补完的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  redsibyl  
+##### 400#       发表于 2021-9-15 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52762920&amp;ptid=1972138" target="_blank">JoelBirch 发表于 2021-9-15 19:37</a>
+
+有老哥知道发电厂最深处那个设置了地雷的发电机怎么启动吗？试了好多次，枪击排雷不行，枪击按钮发电机启动 ...</blockquote>
+有一个能力插件叫做，黑地雷，黑了之后地雷都是你的好伙伴
+
+
+*****
+
+####  bluebirdy.  
+##### 401#       发表于 2021-9-15 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52762920&amp;ptid=1972138" target="_blank">JoelBirch 发表于 2021-9-15 19:37</a>
+有老哥知道发电厂最深处那个设置了地雷的发电机怎么启动吗？试了好多次，枪击排雷不行，枪击按钮发电机启动 ...</blockquote>
+有排雷插件，没有插件你直接蹲在发电机上面也把电池插进去加按按钮
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 402#       发表于 2021-9-15 20:29
+
+
+一周目神作，冷静下来之后想想问题还是挺多的，
+
+这游戏的loop本质上还是个点子游戏，只不过arkane用自己独有的战斗机制和关卡设计填充了进去，抛开arkane的部分后这个点子的实现只能说是无功无过，也没有星际拓荒式的惊天反转（也有可能是我看剧情不仔细），我反倒是觉得这个点子拖累了arkane自己的发挥，整个设计水平并没有达到耻辱2的高度，
+
+当然看作是一周目游戏来说的话还是非常优秀了，至少在游玩部分完爆索尼第一方那一票一周目动作冒险游戏没有任何问题，放今年这青黄不接的情况拿个年度也不是不可能，
+
+不如说我挺期待这游戏拿年度的，想必到时候索索和软软都会很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  oniwarud  
+##### 403#       发表于 2021-9-15 20:34
+
+
+吐了，打完boss回家路上直接爆显存死机重启，一个多小时推图找线索直接白费，两个收集的石板直接没了，不能直接保存这个设定是在是太蠢了，现在瞬间动力全都没了，谁知道你以后是不是还会给来个游戏出错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 404#       发表于 2021-9-15 20:35
+
+
+有没有老哥介绍下查理的小女友在哪里触发，我在查理的私密房间找线索，只找到他们两个人打算在一个秘密地点约会，别的消息我没有找到
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  415452356  
+##### 405#       发表于 2021-9-15 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763788&amp;ptid=1972138" target="_blank">爱护动物抓根宝 发表于 2021-9-15 20:29</a>
+
+一周目神作，冷静下来之后想想问题还是挺多的，
+
+这游戏的loop本质上还是个点子游戏，只不过arkane用自己独 ...</blockquote>
+  好游戏拿年度没有谁有意见，你这就是典型的阵营入脑
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 406#       发表于 2021-9-15 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763953&amp;ptid=1972138" target="_blank">415452356 发表于 2021-9-15 20:40</a>
+
+好游戏拿年度没有谁有意见，你这就是典型的阵营入脑</blockquote>
+你看，连我都阵营入脑了，这世上阵营入脑的人还少吗？
+
+
+*****
+
+####  415452356  
+##### 407#       发表于 2021-9-15 20:44
+
+
+  今天才开始玩，打到可以自由探索黑礁岛了，目前感想就是虽然地图是固定的那几个，但是地图塞满了料和自己慢慢找线索获取有用信息这一点还是挺好的。
+
+  不过这打枪手感是真的一般，不过也不是主打战斗的游戏，不要太丢人就可以。
+
+
+*****
+
+####  fateultraone  
+##### 408#       发表于 2021-9-15 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763788&amp;ptid=1972138" target="_blank">爱护动物抓根宝 发表于 2021-9-15 20:29</a>
+
+一周目神作，冷静下来之后想想问题还是挺多的，
+
+这游戏的loop本质上还是个点子游戏，只不过arkane用自己独 ...</blockquote>
+年度不可能的，虚空引擎就是个垃圾，任何高于60fps的体验都是一团糟，讲道理在ps5上也就性能模式能玩玩，这游戏完全被这破引擎毁了
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 409#       发表于 2021-9-15 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764011&amp;ptid=1972138" target="_blank">fateultraone 发表于 2021-9-15 20:44</a>
+
+年度不可能的，虚空引擎就是个垃圾，任何高于60fps的体验都是一团糟，讲道理在ps5上也就性能模式能玩玩， ...</blockquote>
+就今年这一个90分以上的游戏都没有的鸟样子，tga给arkane个奖也不是不行
+
+唯一我还能想到的可能上90的就剩一个地平线5了，但tga这些年明显更青睐动作冒险游戏
+
+
+*****
+
+####  サリシノハラ  
+##### 410#         楼主| 发表于 2021-9-15 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763883&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-15 20:35</a>
+
+有没有老哥介绍下查理的小女友在哪里触发，我在查理的私密房间找线索，只找到他们两个人打算在一个秘密地点 ...</blockquote>
+追踪一下菲亚的线索进对应地图，对照照片找约会地点
+
+
+*****
+
+####  zxtree  
+##### 411#       发表于 2021-9-15 21:01
+
+
+载入界面的色调好像ubuntu
+
+
+*****
+
+####  JoelBirch  
+##### 412#       发表于 2021-9-15 21:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52763588&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-15 20:17</a>
+有排雷插件，没有插件你直接蹲在发电机上面也把电池插进去加按按钮</blockquote>
+蹲上去不行，我试过了，只能把电池插上去，没法触发按钮的互动，应该还是得排雷插件
+
+
+*****
+
+####  elleryasimov  
+##### 413#       发表于 2021-9-15 21:19
+
+
+现在看，IGN和GS这两个满分有没有给当年Prey找补的成分？
+
+
+*****
+
+####  姬茧墨  
+##### 414#       发表于 2021-9-15 21:23
+
+
+问一下，那个把人扔过去扔过来的超能力怎么控制方向啊，二段砸人学会了就没成功过
+
+
+*****
+
+####  Lisylfn  
+##### 415#       发表于 2021-9-15 21:31
+
+
+ 本帖最后由 Lisylfn 于 2021-9-15 23:04 编辑 
+
+确定steam版适配dualsense了吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">怎么图标还是Xbox的
+
+好吧, 禁用steam输入蓝牙连接不行, 用有线可以了
+
+
+*****
+
+####  bluebirdy.  
+##### 416#       发表于 2021-9-15 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764284&amp;ptid=1972138" target="_blank">JoelBirch 发表于 2021-9-15 21:02</a>
+蹲上去不行，我试过了，只能把电池插上去，没法触发按钮的互动，应该还是得排雷插件 ...</blockquote>
+这个200电够开一个开关，总共有8台还是6台，所以分批次做就可以，不需要必需弄那个插件
+
+
+*****
+
+####  bluebirdy.  
+##### 417#       发表于 2021-9-15 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764613&amp;ptid=1972138" target="_blank">姬茧墨 发表于 2021-9-15 21:23</a>
+问一下，那个把人扔过去扔过来的超能力怎么控制方向啊，二段砸人学会了就没成功过 ...</blockquote>
+应该是鼠标往哪晃就往哪扔
+
+
+*****
+
+####  FUZE  
+##### 418#       发表于 2021-9-15 21:36
+
+
+这游戏剧情到底是什么意思啊 ！
+
+太谜语了吧
+
+羞辱2剧情很直接
+
+PERY目的性也很强
+
+这游戏剧情太迷了 我玩了三个小时也没有整明白
+
+还有 各种游戏的即视感确实很强
+
+羞辱2 pery：moon 确实很像
+
+
+*****
+
+####  bluebirdy.  
+##### 419#       发表于 2021-9-15 22:00
+
+
+ 本帖最后由 bluebirdy. 于 2021-9-15 22:41 编辑 
+
+这破游戏入侵是什么匹配机制，我入侵卡到游戏报错<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">，怎么还一直报错的  ui_str_savegame_need_space 。我看了下我还有空间啊
+
+刚升级送了把金枪。可以独头弹霰弹模式切换，独头弹可以打出燃气然后霰弹可以引燃。
+
+
+*****
+
+####  FUZE  
+##### 420#       发表于 2021-9-15 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52765226&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-15 22:00</a>
+
+这破游戏入侵是什么匹配机制，我入侵卡到游戏报错
+
+刚升级送了把金枪。可以独头弹霰弹模式切换，独头 ...</blockquote>
+这游戏入侵没啥用
+
+因为服务器特别差 所以特别卡
+
+像手枪 喷子这种单发输出高的特别吃亏
+
+冲锋枪 轻机枪 厉害
+
+那个很像刘易斯的那把枪威力大挺好用的
+
+但是最好用的还是大砍刀，直接冲上去啪啪乱砍
+
+这游戏我都玩成卢旺达模拟器了，最好用的就是那个西瓜刀
+
+
+
+
+*****
+
+####  bluebirdy.  
+##### 421#       发表于 2021-9-15 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52765744&amp;ptid=1972138" target="_blank">FUZE 发表于 2021-9-15 22:35</a>
+这游戏入侵没啥用
+
+因为服务器特别差 所以特别卡
+
+像手枪 喷子这种单发输出高的特别吃亏</blockquote>
+还好吧，我都是贴脸开无敌喷人的
+
+
+*****
+
+####  c029384756  
+##### 422#       发表于 2021-9-15 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52761557&amp;ptid=1972138" target="_blank">qianoooo 发表于 2021-9-15 17:54</a>
+
+https://bbs.saraba1st.com/2b/thread-2026322-0-1.html 跟着泥潭这个帖子改配置</blockquote>
+fsr是真的拉，我开个超级质量，画面糊了一截，帧数涨了3到4…<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萩原组土狼p  
+##### 423#       发表于 2021-9-15 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764831&amp;ptid=1972138" target="_blank">FUZE 发表于 2021-9-15 21:36</a>
+
+这游戏剧情到底是什么意思啊 ！
+
+太谜语了吧
+
+羞辱2剧情很直接</blockquote>
+剧情就是男主想来点薯条，所以要把其他所有人都杀死<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+剧情里面说了，这群人来岛上的第一天就把所有炸鱼薯条吃完了，然后轮回开始以后就再也没有薯条吃了
+
+整个剧情就是男主想整点薯条，就去破坏轮回了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（雾）
+
+
+*****
+
+####  cwlqxs  
+##### 424#       发表于 2021-9-15 23:59
+
+
+刚打了四小时，朱利安娜可能是近年我最喜欢的游戏女角色，男主女主的塑造都很出色，是羞辱和prey里面没有见过的东西
+
+
+*****
+
+####  13.  
+##### 425#       发表于 2021-9-16 03:05
+
+
+结局就这？
+
+
+*****
+
+####  普通哈尼  
+##### 426#       发表于 2021-9-16 03:12
+
+
+通关了，结局有一种“这就完了？”的感觉，我还期待来一场超能力乱飞的最终boss战呢。
+
+
+*****
+
+####  半分宅  
+##### 427#       发表于 2021-9-16 04:15
+
+
+Arkane是不是不擅长做BOSS战。Prey的战斗也算不上有趣。
+
+
+*****
+
+####  JoelBirch  
+##### 428#       发表于 2021-9-16 07:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52764805&amp;ptid=1972138" target="_blank">bluebirdy. 发表于 2021-9-15 21:35</a>
+这个200电够开一个开关，总共有8台还是6台，所以分批次做就可以，不需要必需弄那个插件 ...</blockquote>
+总共应该就是六台，我就是想试试能不能全开，这样理论上可以少一次循环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  战术核辣条  
+##### 429#       发表于 2021-9-16 07:29
+
+
+剧情这根本没讲完啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+男主身上全部都是坑
+难道要去读文件吗
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  roP6lFN  
+##### 430#       发表于 2021-9-16 11:17
+
+
+刚入手游戏，请问这个游戏是繁体中文学习软件吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  18013966290  
+##### 431#       发表于 2021-9-16 12:03
+
+
+剧情到底啥意思，打通关也没懂，感觉什么都没说清楚啊，为什么有循环，这八个人为什么会进入循环，外面世界到底怎么样了，以前军方在这岛上干啥，结尾也是莫名其妙的就放职员表了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  量子大蛇  
+##### 432#       发表于 2021-9-16 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52748950&amp;ptid=1972138" target="_blank">套路设计师 发表于 2021-9-14 20:46</a>
+
+文洁-伊文思博士游戏里面出来了吗</blockquote>
+何止是出来了，而且毫无疑问是所有BOSS里出来的最“多”的一个了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  415452356  
+##### 433#       发表于 2021-9-16 12:18
+
+
+  那个面具店的老板要怎么救，摸进去打死女教主之后放他下去的同时打爆毒气不然他被毒死或者炸死？
+
+
+*****
+
+####  量子大蛇  
+##### 434#       发表于 2021-9-16 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52750317&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-14 22:39</a>
+
+那个邪教头子的石板怎么进去拿，我看她自杀了进不去房间好气呀
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上 ...</blockquote>
+房间那一侧外面有个突出的平台，站在那儿把里面窗口处的绊雷点掉，然后回到房间对面，从窗户跳进去
+
+
+*****
+
+####  量子大蛇  
+##### 435#       发表于 2021-9-16 12:25
+
+
+<img src="https://img.saraba1st.com/forum/202109/16/122449i1hdbohohh9ydotz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210915231320_1.jpg</strong> (281.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-16 12:24 上传
+
+
+这里不知道是不是求生之路安全屋的小彩蛋
+
+
+*****
+
+####  屑猫猫  
+##### 436#       发表于 2021-9-16 14:15
+
+
+死宅那个游戏太kuso了，有坛友把死宅在市中心那个活力小游戏打完了的么，我找不到技巧，我都是开局跑几步接着两个瞬移，但时间总是不够，而且这死宅还有失败惩罚。太恶心了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 437#       发表于 2021-9-16 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52772182&amp;ptid=1972138" target="_blank">量子大蛇 发表于 2021-9-16 12:25</a>
+这里不知道是不是求生之路安全屋的小彩蛋</blockquote>
+算是吧，这游戏还蛮多这样的小房间来着，实际上也没多安全。死宅的游戏厅和狐狸那边都有一个类似的房间来着？
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Asukalangley33  
+##### 438#       发表于 2021-9-16 14:55
+
+
+我遇到了一个能100%复现导致游戏崩溃的BUG，感觉要卡关了...
+
+开演唱会那张图，我只要拿橙色狙击（特效是爆头会爆炸）爆头击杀戴白色面具的女性杂兵，游戏100%崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+现在人麻了
+
+
+*****
+
+####  bluebirdy.  
+##### 439#       发表于 2021-9-16 14:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773439&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-16 14:15</a>
+死宅那个游戏太kuso了，有坛友把死宅在市中心那个活力小游戏打完了的么，我找不到技巧，我都是开局跑几步接 ...</blockquote>
+活力游戏左边就有个屋子，黑了那里的机器可以作弊
+
+
+*****
+
+####  bluebirdy.  
+##### 440#       发表于 2021-9-16 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52773981&amp;ptid=1972138" target="_blank">Asukalangley33 发表于 2021-9-16 14:55</a>
+我遇到了一个能100%复现导致游戏崩溃的BUG，感觉要卡关了...
+
+开演唱会那张图，我只要拿橙色狙击（特效是爆 ...</blockquote>
+你换个枪不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SpaceCowboy  
+##### 441#       发表于 2021-9-16 14:59
+
+
+话说结局的手枪很像是耻辱里的啊，难不成是同一个宇宙
+
+
+*****
+
+####  量子大蛇  
+##### 442#       发表于 2021-9-16 15:41
+
+
+不能暂停太烦了，正在激烈枪战的时候切出来处理一下信息，回去之后就死了，前面两个时段的努力都白费了
+
+
+*****
+
+####  Asukalangley33  
+##### 443#       发表于 2021-9-16 17:17
+
+
+我人晕了，下午玩了3个小时，跳出了6,7次
+
+刚刚那次是在回安全屋前杀了最后一个杂兵，然后游戏直接没了
+
+
+*****
+
+####  黄衣鱿鱼  
+##### 444#       发表于 2021-9-16 17:42
+
+
+才打完文洁，现在想吐槽的点：过于弱智的ai和随处可见的提示语（尤其是自己探索第二条路径时！）有点破坏体验；希望之后流程长度适当，不需要过度消费场景设计
+
+
+*****
+
+####  Keynes  
+##### 445#       发表于 2021-9-16 18:48
+
+
+查理城堡下面那个要通行证开的门里有啥啊，试了一次感觉带通行证有点难，如果东西不是很好就不去了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 446#       发表于 2021-9-16 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52777391&amp;ptid=1972138" target="_blank">Keynes 发表于 2021-9-16 18:48</a>
+
+查理城堡下面那个要通行证开的门里有啥啊，试了一次感觉带通行证有点难，如果东西不是很好就不去了 ...</blockquote>
+别去，他们人多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要进去我建议从那个冰面下去，也就是谷底那个小冰湖有进入的通道，还有个窗口的位置不太好描述。这个任务是有隐藏入口的，你禁止超能力挺难受的，那里只潜行容错有点低
+
+
+*****
+
+####  サリシノハラ  
+##### 447#         楼主| 发表于 2021-9-16 20:31
+
+
+之前一直潜行还好，开始刚正面以后同时吸引太多敌人就经常报错跳出，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alter_ego_  
+##### 448#       发表于 2021-9-16 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52777391&amp;ptid=1972138" target="_blank">Keynes 发表于 2021-9-16 18:48</a>
+
+查理城堡下面那个要通行证开的门里有啥啊，试了一次感觉带通行证有点难，如果东西不是很好就不去了 ...</blockquote>
+没记错的话，应该是关闭弗兰克安保系统的密码
+
+
+*****
+
+####  姬茧墨  
+##### 449#       发表于 2021-9-16 22:09
+
+
+那arkane的游戏的背景故事和一些设定也基本不会在主线说的，像是耻辱一代的鼠疫小男孩怎么引发顿沃的瘟疫，都是藏在文本里等你自己去读去整理的
+
+这作还没打完，不知道arkane这作是不是也像以前藏起来了
+
+
+*****
+
+####  bluebirdy.  
+##### 450#       发表于 2021-9-16 22:18
+
+
+结局试了三种方法，第三次对话都变了。总共就两种会跳字幕表的结局吗
+
+
+
+
+*****
+
+####  reemccoy  
+##### 451#       发表于 2021-9-16 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739217&amp;ptid=1972138" target="_blank">Asukalangley33 发表于 2021-9-14 01:15</a>
+
+话说这回直接打0451居然还会跳个成就
+
+成就框还是会发光的那种</blockquote>
+那个门一直说你知道密码，结果密码还真不是0451…………
+
+
+*****
+
+####  屑猫猫  
+##### 452#       发表于 2021-9-16 22:39
+
+
+这作我至今没找到可以输入0451的密码锁，我要输入0451啊混蛋
+
+
+*****
+
+####  bluebirdy.  
+##### 453#       发表于 2021-9-16 23:20
+
+
+什么傻逼？这游戏开个在线还开挂？他站在我面前我打了他几十枪都不死<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  415452356  
+##### 454#       发表于 2021-9-17 00:53
+
+
+  “你已经发现了死亡循环的核心秘密。”这个通关致谢也太嘲讽了，我是真的没看懂最后想表达啥。
+
+  游戏里面也没有找到什么比较直白的文档来解释为什么最后结局会是这个样子，只知道柯尔特和这个岛颇有渊源，男女主都把整个loop机制都摸透了（虽然游戏开始的时候柯尔特失忆了），这故事莫非就是个死局？
+
+  结局谜语人我是怀疑他们是默认你把游戏的全部文档，语音都收集完了也看完听完了才去的结局所以才这么不讲人话？
+
+
+*****
+
+####  九十九忍  
+##### 455#       发表于 2021-9-17 01:34
+
+
+石板不能存的？毙掉朱利安娜换了个自己没有的结果我已经注入的都没了？
+
+
+*****
+
+####  屑猫猫  
+##### 456#       发表于 2021-9-17 01:46
+
+
+问个问题，有什么针对地雷的护符么，我做综合研究中心发电站任务被地雷阴死两条命，麻的不行。就没有拆雷的方法么，用攻击拆被炸一下掉血是小问题，那个硬直和吹飞是真的要人命的。
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hshiki  
+##### 457#       发表于 2021-9-17 02:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781881&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-17 01:46</a>
+
+问个问题，有什么针对地雷的护符么，我做综合研究中心发电站任务被地雷阴死两条命，麻的不行。就没有拆雷的 ...</blockquote>
+有拆雷的紫色符文，我拿到一个，不过不知道是固定拾取还是随机掉的
+
+
+*****
+
+####  JoelBirch  
+##### 458#       发表于 2021-9-17 06:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781834&amp;ptid=1972138" target="_blank">九十九忍 发表于 2021-9-17 01:34</a>
+石板不能存的？毙掉朱利安娜换了个自己没有的结果我已经注入的都没了？</blockquote>
+可以啊，我还特意试了，石板只要灌注了就一直存在，和中途把装备扔了不一样，不然也太弱智了
+
+
+*****
+
+####  bluebirdy.  
+##### 459#       发表于 2021-9-17 07:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781881&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-17 01:46</a>
+问个问题，有什么针对地雷的护符么，我做综合研究中心发电站任务被地雷阴死两条命，麻的不行。就没有拆雷的 ...</blockquote>
+还有延时雷爆炸的
+
+
+*****
+
+####  bluebirdy.  
+##### 460#       发表于 2021-9-17 07:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781834&amp;ptid=1972138" target="_blank">九十九忍 发表于 2021-9-17 01:34</a>
+石板不能存的？毙掉朱利安娜换了个自己没有的结果我已经注入的都没了？</blockquote>
+你一天中灌注过丢的东西，第二天才会回来。很合理
+
+
+*****
+
+####  火红之眼  
+##### 461#       发表于 2021-9-17 07:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52781881&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-17 01:46</a>
+
+问个问题，有什么针对地雷的护符么，我做综合研究中心发电站任务被地雷阴死两条命，麻的不行。就没有拆雷的 ...</blockquote>
+对着地雷按键就拆了，和拆镭射一个道理，就是要听声辨位而已
+
+雷区还不如直接瞬移过去省得麻烦
+
+
+*****
+
+####  415452356  
+##### 462#       发表于 2021-9-17 08:13
+
+
+ 本帖最后由 415452356 于 2021-9-17 08:19 编辑 
+
+  到后面紫色强化物都是多到溢出的，而且枪再好都不如带个瞬移隐身，带个增加蓝上限和hack速度加快的强化，一个个潜行摸掉。
+
+  最后一个时间段聚到一起的那几个目标用狙和传承喷都要输出一会，但是暗杀的话依旧是直接摸完走人
+
+
