@@ -9072,3 +9072,35 @@ d2的无效命中十分明显，arise却没有，也只能靠猜了
 不，我觉得TOS的模型他们是没脸直接拿来用的，头身比都变了
 
 
+
+
+*****
+
+####  森兰丸  
+##### 5194#       发表于 2021-9-17 19:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">怎么都在讨论冷饭.......有点追求啊....比起冷饭当然是要新作啊
+
+
+*****
+
+####  godless2020  
+##### 5195#       发表于 2021-9-17 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791609&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-17 19:33</a>
+
+怎么都在讨论冷饭.......有点追求啊....比起冷饭当然是要新作啊</blockquote>
+TOX1+2 4K60 带全部DLC NB躺着收钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5196#       发表于 2021-9-17 19:43
+
+
+有本事拿toar的资源重作份tos/toa 那我买  hd冷饭还是洗洗睡吧
+
+
