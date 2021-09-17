@@ -6137,3 +6137,55 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的<img src="
 季节应该只是个象征。春天的可可代表故事的开始，夏天的民堇代学院偶像的气氛升高。秋天是青梅竹马约定的季节，冬天是恋处境严寒
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4996#       发表于 2021-9-17 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52787849&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-17 14:32</a>
+
+话说双版本2+1这种卖碟方式是谁先开始的，太会骗钱了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">这叫良心
+
+时至今日都还有发双A无CW曲换个封面就双版本卖的，这边双A有CW双版本加一起四首歌绝对称不上坑，人还没给你上剧场盘/初回限定ABC/通常TYPEABC呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lanslort  
+##### 4997#       发表于 2021-9-17 14:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虹插入曲就开始三版本了，只不过没新歌而已
+
+
+*****
+
+####  lanslort  
+##### 4998#       发表于 2021-9-17 14:56
+
+
+这都啥跟啥啊，就不说水了，无印京极为了抄glee给妮可强行安排了一段特别招黑的剧情，相比起来星星这点都不算事 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星降る森  
+##### 4999#       发表于 2021-9-17 14:59
+
+
+ 本帖最后由 星降る森 于 2021-9-17 15:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喂，别说的好像是上头压迫花田才把剧情搞这么屎好吧。
+
+虹团solo为主，不搞那么多团建和苦大仇深展开一下子就正常很多，缪水星3代都不知道为啥吊死在废校一棵树上，还喜欢搞一堆莫名其妙的过去。
+
+就正常入队搞社团，卖萌插科打诨卖LIVE一点问题没有。
+
+
+无责任奶下第8话，搞不好是什么恋妈看到神宫中学倒闭的消息，四处奔走想办法买下学校把身体搞垮了，弥留之际被问起为何如此拼命的时候，告诉小小恋这学校是自己有学院偶像回忆的地方。搞的小小恋看到学院偶像就想起妈病逝，PTSD发了。可香堇千打开真偶像部房间（也可能是排练室）看到恋妈以前的回忆，去嘴炮恋，希望她能继承母亲的遗愿。Liella这名字，可能是恋妈团的名字。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">最后live就在学院祭上搞，这个切下镜头应该怎么都比第6话插入合理一点
+
+
