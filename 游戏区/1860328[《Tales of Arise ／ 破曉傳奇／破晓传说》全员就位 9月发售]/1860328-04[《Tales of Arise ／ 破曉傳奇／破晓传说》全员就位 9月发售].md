@@ -8588,3 +8588,17 @@ TOV的梗了，玩洗衣机的听到这个就太熟了<img src="https://static.s
 谢谢，还以为平时也能用，可惜了
 
 
+
+
+*****
+
+####  focus  
+##### 5159#       发表于 2021-9-17 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52782194&amp;ptid=1860328" target="_blank">kangkangsama 发表于 2021-9-17 05:14</a>
+
+希侬跳起来复读不一定有奥尔芬琳薇尔伤害高，但是安全简单又无脑啊</blockquote>
+chaos难度11连战，男主5分半，女主可以打进5分钟。而且男主要点运气，双boss有点不稳，女主是100%稳定
+
+
