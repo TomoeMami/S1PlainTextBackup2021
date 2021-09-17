@@ -6327,3 +6327,32 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这企划碟真的太多了………………
 
 
+
+
+*****
+
+####  寒风夜  
+##### 5011#       发表于 2021-9-17 16:49
+
+
+其实早就想说了，这作live服属实独特.好几个就欣赏不了，看了看这作设计职位（デザインワークス）不是动画原画师的，前3部都是
+
+
+*****
+
+####  lj205  
+##### 5012#       发表于 2021-9-17 16:58
+
+
+昨晚下单了LIVE GOODS，接下来保证CD就好，其他的周边实在无力了，刚买了房明年还装修<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5013#       发表于 2021-9-17 17:21
+
+
+昨晚下单了live goods，随便就是1万yen……，后面争取保证新单至少一版吧……，买房加装修是真的没钱了……
+
+
