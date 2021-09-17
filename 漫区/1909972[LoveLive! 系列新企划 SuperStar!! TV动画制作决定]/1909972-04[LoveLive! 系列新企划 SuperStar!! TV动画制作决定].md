@@ -5403,3 +5403,14 @@ kanon人缘好第一集开局就描写了啊，初中吉他清唱的时候就很
 完蛋
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4934#       发表于 2021-9-17 09:40
+
+
+下一集真要插live，那没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
