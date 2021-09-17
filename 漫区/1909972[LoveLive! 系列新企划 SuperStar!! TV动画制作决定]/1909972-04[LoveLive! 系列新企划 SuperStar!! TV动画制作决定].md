@@ -6189,3 +6189,30 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的<img src="
 无责任奶下第8话，搞不好是什么恋妈看到神宫中学倒闭的消息，四处奔走想办法买下学校把身体搞垮了，弥留之际被问起为何如此拼命的时候，告诉小小恋这学校是自己有学院偶像回忆的地方。搞的小小恋看到学院偶像就想起妈病逝，PTSD发了。可香堇千打开真偶像部房间（也可能是排练室）看到恋妈以前的回忆，去嘴炮恋，希望她能继承母亲的遗愿。Liella这名字，可能是恋妈团的名字。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">最后live就在学院祭上搞，这个切下镜头应该怎么都比第6话插入合理一点
 
 
+
+
+*****
+
+####  saglork  
+##### 5000#       发表于 2021-9-17 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52787879&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-17 14:35</a>
+sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquote>
+这是leader福利好吧，前两代也是一样的
+
+
+*****
+
+####  寒风夜  
+##### 5001#       发表于 2021-9-17 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52788175&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-17 14:59</a>
+
+喂，别说的好像是上头压迫花田才把剧情搞这么屎好吧。
+
+虹团solo为主，不搞那么多团建和苦大仇深展开 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次应该不会有tp插入了
+
+
