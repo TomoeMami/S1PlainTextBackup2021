@@ -6643,3 +6643,14 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 之前三校联合生放小百合说过平时昵称也有人叫打铁酱，而且觉得打铁酱还比较有亲近感。应该是这个姓比较少见，而且叫起来还挺琅琅上口吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  NODY  
+##### 5037#       发表于 2021-9-18 20:36
+
+
+叫什么全看爱好和顺口，不一定叫姓就是不熟，虹那边一堆人喜欢管切咪叫田中呢
+
+
