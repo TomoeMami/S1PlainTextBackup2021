@@ -8331,3 +8331,17 @@ image.png
 明天作监是拥抱Q娃4和16话的主力原画（露露当机那part），第一次当作监，可以期待看看
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2103#       发表于 2021-9-18 15:35
+
+
+<img src="https://p.sda1.dev/2/f08f88471634aa2452d38a6f574ccc75/IMG_CMP_125802949.jpeg" referrerpolicy="no-referrer">
+明天的截图，看起来就很劲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
