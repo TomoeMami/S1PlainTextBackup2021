@@ -14195,3 +14195,20 @@ RIG竞技场大赛是uto冠军
 lack的简单无面捕皮还蛮乐的...希望有一天V虽然衰落，但套皮行为还是能留下来。
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7044#       发表于 2021-9-19 01:23
+
+
+hell let loose这游戏希望有朝一日能在管人界流行开来
+
+但一是需要的人数多二来吃指挥效果，希望渺茫...
+
+
+Syl,管人无关，之前B站删掉的LC苏拉指挥视频
+[https://www.youtube.com/watch?v=1UJwKY6800Y](https://www.youtube.com/watch?v=1UJwKY6800Y)
+
+

@@ -7145,3 +7145,15 @@ sayurin穿过黑丝的，我决定还行啊，没什么不适合的，不太明�
 被人提醒才发现今天鲤鱼的Liella两个官方活动都没有去，都是剩下的四个人去的，企划看起来是相当重视中国这边的市场的，居然给鲤鱼放假了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 5078#       发表于 2021-9-19 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52807096&amp;ptid=1909972" target="_blank">Piano-Forest 发表于 2021-9-19 00:31</a></blockquote>
+这张合照把可香单独拿出来看，和普通的小情侣没什么区别吧
+
+
