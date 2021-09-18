@@ -10059,3 +10059,27 @@ emmmm，13到现在我这都可以24号当天拿货，着实凉了
 问一下，mini6和mini5屏幕尺寸有对比吗？只找到对角线是8.3＞7.9，但是网上又说宽度一样长度反而短了，这不符合常识啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  eden0412  
+##### 914#       发表于 2021-9-18 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52801430&amp;ptid=2015640" target="_blank">伊森温特斯 发表于 2021-9-18 14:40</a>
+问一下，mini6和mini5屏幕尺寸有对比吗？只找到对角线是8.3＞7.9，但是网上又说宽度一样长度反而短了，这不 ...</blockquote>
+mini6 195.4 x 134.8 x 6.3mm
+mini5 203.2 x 134.8 x 6.1mm
+这次mini6屏幕比例变了，更长了，所以同样宽度屏幕尺寸大了，然后这次是全面屏设计，上下的额头砍了所以变短了
+
+
+*****
+
+####  heemoon  
+##### 915#       发表于 2021-9-18 15:08
+
+
+刷了个把小时官网终于抢到25号自提。现在仿佛进入了贤者时间思考为什么要浪费时间做这些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
