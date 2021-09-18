@@ -9928,3 +9928,14 @@ jd11点额抢到了pro…老婆那台任务完成了…
 真的要10月下旬才送货的活还不如等双11呢
 
 
+
+
+*****
+
+####  M1NG  
+##### 902#       发表于 2021-9-18 09:52
+
+
+问下，在京东八点第一时间下订付款成功是不是就没问题了？应该也是第一批的吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+

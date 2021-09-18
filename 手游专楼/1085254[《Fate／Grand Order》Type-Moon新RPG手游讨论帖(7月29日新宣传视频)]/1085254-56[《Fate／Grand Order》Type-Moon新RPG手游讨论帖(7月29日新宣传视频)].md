@@ -15156,3 +15156,37 @@ no给no铜</blockquote>
 381739636刷了7个号终于是B叔开局<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  dawning  
+##### 83775#       发表于 2021-9-18 09:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795938&amp;ptid=1085254" target="_blank">sjbssd 发表于 2021-9-18 04:42</a>
+
+381739636刷了7个号终于是B叔开局</blockquote>
+已加，话说，
+
+你这从零开始，超级地狱难度呀<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，
+
+我买的初始号，要不是有五宝摩根，几个拐基本齐了，
+
+昨天可能就打退堂鼓了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usoda  
+##### 83776#       发表于 2021-9-18 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791350&amp;ptid=1085254" target="_blank">dawning 发表于 2021-9-17 19:06</a>
+
+108,331,096，
+
+难民，求几个好友</blockquote>
+加了 id刹那 不过除了拐其余全是看心情摆的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
