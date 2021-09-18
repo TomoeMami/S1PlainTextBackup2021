@@ -10101,3 +10101,19 @@ mini5 203.2 x 134.8 x 6.1mm
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  madbird302  
+##### 917#       发表于 2021-9-18 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52802840&amp;ptid=2015640" target="_blank">黑上シグマ 发表于 2021-9-18 16:36</a>
+
+说件不开心的事让你们开心下：
+
+第一次买苹果产品，昨晚官网订的mini6，早上看写配送日期10月28日～11月11日 ...</blockquote>
+这时候应该先下了新订单再取消原来的啊
+
+
