@@ -6879,3 +6879,37 @@ Screenshot_20210918_204731_com.sina.weibo_edit_1609308023927353.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不奇怪了 放假了毕竟
 
 
+
+
+*****
+
+####  优妮可  
+##### 5058#       发表于 2021-9-18 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805602&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-18 21:35</a>
+
+不奇怪了 放假了毕竟</blockquote>
+我想象中的，大家复读一句铭记，或者夸一下鲤鱼就行了。没想到就开始引用名言然后扣帽子分析成份，这，这去团团或者央视那边搞不好嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5059#       发表于 2021-9-18 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805704&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-18 21:45</a>
+我想象中的，大家复读一句铭记，或者夸一下鲤鱼就行了。没想到就开始引用名言然后扣帽子分析成份，这，这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟不是微博，b站找存在感的用户不要太多
+
+
+*****
+
+####  秋月艾莉  
+##### 5060#       发表于 2021-9-18 21:54
+
+
+阿b评论还是一边倒的，再怎么精日也不敢明着给japannazi挽尊
+
+
