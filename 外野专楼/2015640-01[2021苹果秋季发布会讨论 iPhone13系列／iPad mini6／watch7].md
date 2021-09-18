@@ -10382,3 +10382,52 @@ mini5 203.2 x 134.8 x 6.1mm
 我在拼多多买了，一直显示待发货，是还没砍单的意思吗？
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 937#       发表于 2021-9-19 02:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806912&amp;ptid=2015640" target="_blank">Rockzero 发表于 2021-9-19 00:05</a>
+
+我在拼多多买了，一直显示待发货，是还没砍单的意思吗？</blockquote>
+什么型号?13的话应该问题不大 至于PRO和MAX嘛
+
+并夕夕不到最后一刻谁知道啊 如果无理由退货少导致的后封货源不足 
+
+搞不好到30号之前就给你砍了
+
+劝你还是狗东先领张免息券 然后多刷刷捡个漏 不比那玩意靠谱 
+
+买首发为那500不值当 平时货足的时候也就算了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LLLLLuB  
+##### 938#       发表于 2021-9-19 02:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52807634&amp;ptid=2015640" target="_blank">宮脇咲良 发表于 2021-9-19 02:20</a>
+什么型号?13的话应该问题不大 至于PRO和MAX嘛
+
+并夕夕不到最后一刻谁知道啊 如果无理由退货少导致的后封货 ...</blockquote>
+免息券在哪里领？
+
+
+*****
+
+####  宮脇咲良  
+##### 939#       发表于 2021-9-19 02:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52807664&amp;ptid=2015640" target="_blank">LLLLLuB 发表于 2021-9-19 02:31</a>
+
+免息券在哪里领？</blockquote>
+狗东关注并加入旗舰店会员 在店铺会员个人页面 
+
+最好每天0点准点去抢 不过昨天白天说是也放了一批<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
+
+
