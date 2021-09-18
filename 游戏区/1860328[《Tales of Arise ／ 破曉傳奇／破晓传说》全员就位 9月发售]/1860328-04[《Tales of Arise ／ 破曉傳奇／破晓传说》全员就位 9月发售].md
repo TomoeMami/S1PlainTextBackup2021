@@ -10302,3 +10302,46 @@ tob是真的好了很多。
 高。。高开？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  maverickhunter  
+##### 5273#       发表于 2021-9-18 13:37
+
+
+牵起世界的环这个任务怎么一直接不到啊，没出现任务提示，水城的美食家任务我也做了啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5274#       发表于 2021-9-18 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52800455&amp;ptid=1860328" target="_blank">黑夜守望者 发表于 2021-9-18 13:08</a>
+
+后期剧情真是直线下降，一口一个三鹿相互原谅，说教味太浓了，废话太多恨不能二倍速谜底也太无聊了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里高开了? 明明是低开低走
+
+
+*****
+
+####  黑夜守望者  
+##### 5275#       发表于 2021-9-18 13:42
+
+
+ 本帖最后由 黑夜守望者 于 2021-9-18 13:45 编辑 
+
+高低是相比之下的啊，至少前期男主的面具女主的妹中剑让我有想打下去的兴致，后期我只想钓鱼看skit<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜守望者  
+##### 5276#       发表于 2021-9-18 13:43
+
+
+婚礼这个支线给的武器真是乐死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
