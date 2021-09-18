@@ -9991,3 +9991,35 @@ jd11点额抢到了pro…老婆那台任务完成了…
 emmmm，13到现在我这都可以24号当天拿货，着实凉了
 
 
+
+
+*****
+
+####  rak1  
+##### 908#       发表于 2021-9-18 10:51
+
+
+反复刷 终于抢到了台京东applecare的13pm 256蓝色，大伙没抢到可以蹲一会儿别人取消订单的
+
+
+*****
+
+####  紫吹兰  
+##### 909#       发表于 2021-9-18 10:52
+
+
+昨晚PDD -500的蓝色13，显示30号发货，不过看不少人砍单了，不知道我的会不会砍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wing233  
+##### 910#       发表于 2021-9-18 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795408&amp;ptid=2015640" target="_blank">芸芸提不起劲 发表于 2021-9-18 01:08</a>
+
+睡前刷新了下显示9月24送达，可以安睡了</blockquote>
+你这抢的啥，我8点15付款抢的PORMAX256的蓝色，要到10月11-17日了
+
+
