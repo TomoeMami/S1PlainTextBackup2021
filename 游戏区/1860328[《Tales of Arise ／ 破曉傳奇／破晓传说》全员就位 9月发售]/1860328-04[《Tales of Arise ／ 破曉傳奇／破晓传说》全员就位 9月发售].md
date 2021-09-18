@@ -10598,3 +10598,31 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关之后我就这表情，这游戏到底MC是咋上87分的。
 
 
+
+
+*****
+
+####  loley  
+##### 5299#       发表于 2021-9-18 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806154&amp;ptid=1860328" target="_blank">lelouchwang 发表于 2021-09-18 22:35:17</a>
+冰淇淋的食谱在哪啊</blockquote>印象中貌似是在雅旦遗迹井里的宝箱或者房子里的宝箱 还有可能是雅旦湖那边的，你地毯式搜索一下这两个地方吧。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  9α  
+##### 5300#       发表于 2021-9-18 22:44
+
+
+ 本帖最后由 9α 于 2021-9-18 22:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么鬼支线，我不到40j跑进了个支线。进去60多的怪，我说咋刮了半天。还不能退。
+
+
+只能关掉游戏，之前支线白做。
+
+
