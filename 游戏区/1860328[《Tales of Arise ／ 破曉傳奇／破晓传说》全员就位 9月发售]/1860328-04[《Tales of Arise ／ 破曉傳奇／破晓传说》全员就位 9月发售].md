@@ -10677,3 +10677,17 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 绷不住了，这火焰之剑居然到最后都只是根烧火棍。本来以为这火焰之剑到后期能变个型什么的
 
 
+
+
+*****
+
+####  jimclack  
+##### 5305#       发表于 2021-9-19 01:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806805&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-18 23:48</a>
+
+绷不住了，这火焰之剑居然到最后都只是根烧火棍。本来以为这火焰之剑到后期能变个型什么的 ...</blockquote>
+流刃若火之残火太刀
+
+
