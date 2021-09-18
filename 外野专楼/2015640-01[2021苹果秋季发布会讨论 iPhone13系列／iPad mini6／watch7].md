@@ -10259,3 +10259,17 @@ mini5 203.2 x 134.8 x 6.1mm
 —— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  stannislas  
+##### 929#       发表于 2021-9-18 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52798800&amp;ptid=2015640" target="_blank">芸芸提不起劲 发表于 2021-9-18 11:17</a>
+
+我是8:03:27付款买的pro max 128G远峰蓝，好像前7分钟付款的基本都能24号拿到 ...</blockquote>
+20:07:08 13pro 512 远峰蓝 就已经10/1-10/7了...
+
+

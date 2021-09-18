@@ -6935,3 +6935,23 @@ Screenshot_20210918_204731_com.sina.weibo_edit_1609308023927353.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候看怎么寄的吧
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 5063#       发表于 2021-9-18 22:37
+
+
+你们说的我还以为在推上发了呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在国内发能有什么问题啊
+
+
+*****
+
+####  chenflyyy  
+##### 5064#       发表于 2021-9-18 22:38
+
+
+剧情我是不报期待了，只求live做得好点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
