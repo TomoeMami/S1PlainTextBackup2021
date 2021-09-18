@@ -10569,3 +10569,32 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 最终迷宫做大点是jrpg的传统啊
 
 
+
+
+*****
+
+####  lelouchwang  
+##### 5296#       发表于 2021-9-18 22:35
+
+
+冰淇淋的食谱在哪啊来自: iPhone客户端
+
+
+*****
+
+####  司马千晶  
+##### 5297#       发表于 2021-9-18 22:38
+
+
+地精灵的boss战设计挺好的，用刷出来的小怪速出bs溅射大怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这种停不下来的感觉很爽。
+
+
+*****
+
+####  majiyabakunei  
+##### 5298#       发表于 2021-9-18 22:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关之后我就这表情，这游戏到底MC是咋上87分的。
+
+
