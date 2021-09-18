@@ -14066,3 +14066,23 @@ DAY4：7月2日  18時～（2試合のみ）
 怎么hnn还特地转推解释一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7035#       发表于 2021-9-18 15:59
+
+
+RIG杯改打竞技场了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/18/155932i38n678v18vm3m8k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E_iYxegVQAEP7iF.jpg</strong> (151.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-18 15:59 上传
+
+
