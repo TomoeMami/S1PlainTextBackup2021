@@ -6986,3 +6986,52 @@ Screenshot_20210918_204731_com.sina.weibo_edit_1609308023927353.jpg
 明天就能看到第8集了，岳父们兴不兴奋啊？～
 
 
+
+
+*****
+
+####  ads147147  
+##### 5068#       发表于 2021-9-18 23:28
+
+
+ 本帖最后由 ads147147 于 2021-9-18 23:30 编辑 
+
+睡前点开知乎发现自己当年感想水2期13的感想，结果我回答说傻逼花田砍掉了剧情的冬装，结果裤袜梨子也没了，原来那时候我已经无法原谅花田了，好耶可以肆无忌惮的黑花田了。
+
+水2期13也是谜一样的时间跳跃了三个月，直接到了春天，这次星我觉得跳过冬天完全不是问题，圣诞节情歌估计也别想了。
+
+联想到这次也砍掉了花音的黑丝，我有理由仍为这个企划和黑丝有仇。
+
+<img src="https://img.saraba1st.com/forum/202109/18/232725vj05bfsba16sa115.jpg" referrerpolicy="no-referrer">
+
+
+<strong>v2-f6e0f0db3c6161df9939fb9bb27f8952_1440w.jpg</strong> (270.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-18 23:27 上传
+
+
+*****
+
+####  cybernetics31  
+##### 5069#       发表于 2021-9-18 23:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806600&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-18 23:28</a>
+睡前点开知乎发现自己当年感想水2期13的感想，结果我回答说傻逼花田砍掉了剧情的冬装，结果裤袜梨子也没了 ...</blockquote>
+………………小百合不适合裤袜就是了…………
+
+
+*****
+
+####  ads147147  
+##### 5070#       发表于 2021-9-18 23:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806612&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-18 23:30</a>
+
+………………小百合不适合裤袜就是了…………</blockquote>
+挨打桑也没穿黑丝啊（不过这身冬装我记得生放送有穿过。
+
+

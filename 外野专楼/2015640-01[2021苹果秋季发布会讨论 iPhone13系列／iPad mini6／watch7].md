@@ -10300,3 +10300,20 @@ mini5 203.2 x 134.8 x 6.1mm
 就是弹幕很多一直在高刷啊哈哈哈
 
 
+
+
+*****
+
+####  moekyo  
+##### 932#       发表于 2021-9-18 23:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806376&amp;ptid=2015640" target="_blank">一色いろは 发表于 2021-9-18 23:01</a>
+
+你们为啥都能在8点20之前付款？
+
+
+好吧我今天刷到店取货刷出来一个9.24的，已经把送货上门的退了... ...</blockquote>
+随机刷出来的吗
+
+
