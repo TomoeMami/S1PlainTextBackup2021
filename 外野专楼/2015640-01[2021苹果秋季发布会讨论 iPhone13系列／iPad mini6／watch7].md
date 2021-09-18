@@ -10317,3 +10317,68 @@ mini5 203.2 x 134.8 x 6.1mm
 随机刷出来的吗
 
 
+
+
+*****
+
+####  一色いろは  
+##### 933#       发表于 2021-9-18 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806630&amp;ptid=2015640" target="_blank">moekyo 发表于 2021-9-18 23:31</a>
+
+随机刷出来的吗</blockquote>
+不知道，下午我一直刷就刷到了
+
+
+*****
+
+####  moekyo  
+##### 934#       发表于 2021-9-18 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806818&amp;ptid=2015640" target="_blank">一色いろは 发表于 2021-9-18 23:51</a>
+
+不知道，下午我一直刷就刷到了</blockquote>
+这样吗，我中午也看到一下，但是到付款的时候就不行了，明天我也刷刷看，不然我的要10月13号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一色いろは  
+##### 935#       发表于 2021-9-18 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806834&amp;ptid=2015640" target="_blank">moekyo 发表于 2021-9-18 23:53</a>
+
+这样吗，我中午也看到一下，但是到付款的时候就不行了，明天我也刷刷看，不然我的要10月13号了 ...</blockquote>
+你得点进去，然后在每一步都会没货，然后你在每一步都刷到有货继续推进，直到成功
+
+
+哦我是APP刷的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| moekyo| + 2|感谢，明天试试|
+
+
+查看全部评分
+
+
+*****
+
+####  Rockzero  
+##### 936#       发表于 2021-9-19 00:05
+
+
+我在拼多多买了，一直显示待发货，是还没砍单的意思吗？
+
+
