@@ -9831,3 +9831,25 @@ tob 是说那个双马尾吗，看起来毕竟比较稳重？
 — from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5248#       发表于 2021-9-18 07:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795665&amp;ptid=1860328" target="_blank">JC_AR 发表于 2021-9-18 02:11</a>
+还蛮无语的，老粉不太可能想要重置吧，幻想传说都重置多少遍了天天重置，出新啊 ...</blockquote>
+这作规格拉上去以后下部新作至少三年，还没影的事有什么好期待的，还不如期待下明年新重制会不会加东西
+
+
+*****
+
+####  司马千晶  
+##### 5249#       发表于 2021-9-18 07:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">棍子在某支线里用诗a上去了，但是这种剧情都不给个语音。
+
+
