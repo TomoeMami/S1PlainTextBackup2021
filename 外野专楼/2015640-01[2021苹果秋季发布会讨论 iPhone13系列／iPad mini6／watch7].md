@@ -9863,3 +9863,35 @@ jd11点额抢到了pro…老婆那台任务完成了…
 —— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  すぴぱら  
+##### 896#       发表于 2021-9-18 08:54
+
+
+魔都白色机器已经没货了，其他颜色倒是直营店随便买，白色这么火的么
+
+
+*****
+
+####  你瞅啥？  
+##### 897#       发表于 2021-9-18 09:01
+
+
+南宁已经是11月初了。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  幽远ghofar  
+##### 898#       发表于 2021-9-18 09:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52796731&amp;ptid=2015640" target="_blank">すぴぱら 发表于 2021-9-18 08:54</a>
+
+魔都白色机器已经没货了，其他颜色倒是直营店随便买，白色这么火的么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我选了个白色的，显示10.9~14送货
+
+
