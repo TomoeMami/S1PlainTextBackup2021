@@ -10117,3 +10117,50 @@ mini5 203.2 x 134.8 x 6.1mm
 这时候应该先下了新订单再取消原来的啊
 
 
+
+
+*****
+
+####  战狼PTSD  
+##### 918#       发表于 2021-9-18 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52802840&amp;ptid=2015640" target="_blank">黑上シグマ 发表于 2021-9-18 16:36</a>
+
+说件不开心的事让你们开心下：
+
+第一次买苹果产品，昨晚官网订的mini6，早上看写配送日期10月28日～11月11日 ...</blockquote>
+你去京东买算了
+
+
+*****
+
+####  國立中央大學  
+##### 919#       发表于 2021-9-18 19:08
+
+
+拼多多的13自带-500，万人团承诺30号之前发完，不比官网香？来自: iPhone客户端
+
+
+*****
+
+####  404489039  
+##### 920#       发表于 2021-9-18 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52801430&amp;ptid=2015640" target="_blank">伊森温特斯 发表于 2021-9-18 14:40</a>
+问一下，mini6和mini5屏幕尺寸有对比吗？只找到对角线是8.3＞7.9，但是网上又说宽度一样长度反而短了，这不 ...</blockquote>
+官网有写详细尺寸自己比划下不就行了
+
+
+*****
+
+####  985604670  
+##### 921#       发表于 2021-9-18 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804394&amp;ptid=2015640" target="_blank">國立中央大學 发表于 2021-9-18 19:08</a>
+ 拼多多的13自带-500，万人团承诺30号之前发完，不比官网香？</blockquote>
+很多人看中24期免息呐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

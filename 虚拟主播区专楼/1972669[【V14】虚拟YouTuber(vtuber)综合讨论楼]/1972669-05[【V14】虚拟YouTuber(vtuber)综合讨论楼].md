@@ -14128,3 +14128,14 @@ RIG杯改打竞技场了啊<img src="https://static.saraba1st.com/image/smiley/f
 这ぶいすぽ新人不还是一堆FPS游戏吗，好！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7039#       发表于 2021-9-18 19:09
+
+
+总觉得新人声音有点耳熟，虽然清楚是清楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

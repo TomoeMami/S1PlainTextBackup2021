@@ -10471,3 +10471,17 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第三章恶评不都是因为声优演出过猛么
 
 
+
+
+*****
+
+####  黑夜守望者  
+##### 5288#       发表于 2021-9-18 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804119&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-9-18 18:34</a>
+
+第三章恶评不都是因为声优演出过猛么</blockquote>
+啊？我还以为第三章恶评是因为黑皮那“我做好事但我不是好人因为我有私心我是坏人”的奇怪逻辑，当然声优配音不好连我这个一向不重配音的都听出来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
