@@ -10037,3 +10037,14 @@ emmmm，13到现在我这都可以24号当天拿货，着实凉了
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">我是8:03:27付款买的pro max 128G远峰蓝，好像前7分钟付款的基本都能24号拿到
 
 
+
+
+*****
+
+####  来看你  
+##### 912#       发表于 2021-9-18 11:36
+
+
+看了下实拍 白色这次真是漂亮，粉色也不错
+
+

@@ -5569,3 +5569,14 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 还行吧，我打了半天，看到设置最下面多出了个好大的按钮，点了两下就从头开始了。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zxtree  
+##### 484#       发表于 2021-9-18 11:36
+
+
+为什么会出现那些字也没解释啊，而且大部分字都没啥意思，都是指引性的，除了you know the code那个。感觉这个整活空间挺大的啊，浪费了
+
+

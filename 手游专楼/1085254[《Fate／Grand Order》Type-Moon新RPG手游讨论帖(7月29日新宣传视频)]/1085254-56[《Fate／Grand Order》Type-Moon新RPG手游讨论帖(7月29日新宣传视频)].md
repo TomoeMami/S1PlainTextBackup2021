@@ -15201,3 +15201,49 @@ no给no铜</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">bearYou这傻逼谁啊 这么弱智
 
 
+
+
+*****
+
+####  quanlix  
+##### 83778#       发表于 2021-9-18 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791350&amp;ptid=1085254" target="_blank">dawning 发表于 2021-9-17 19:06</a>
+
+108,331,096，
+
+难民，求几个好友</blockquote>
+id X，支援感觉能用的上的都放上了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| dawning| + 2|谢|
+
+
+查看全部评分
+
+
+*****
+
+####  exiaexa  
+##### 83779#       发表于 2021-9-18 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791350&amp;ptid=1085254" target="_blank">dawning 发表于 2021-9-17 19:06</a>
+108,331,096，
+
+难民，求几个好友</blockquote>
+加了，id Alisha.W
+没啥要求维持上线就行，需要什么就在楼里说
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
