@@ -5594,3 +5594,19 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 一直想找耻辱的彩蛋，结果到结局才见到<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  415452356  
+##### 486#       发表于 2021-9-18 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52799110&amp;ptid=1972138" target="_blank">zxtree 发表于 2021-9-18 11:36</a>
+
+为什么会出现那些字也没解释啊，而且大部分字都没啥意思，都是指引性的，除了you know the code那个。感觉 ...</blockquote>
+  根据第一个地堡的语音提示和朱丽安娜的对话来看，看到字是柯尔特在地平线行动的实验幸存下来之后的后遗症，同时也是不同世界线上的自己给他的留言提示。
+
+  根据我的理解来看，打开飞机大门之前能捡到的录音带应该是柯尔特在当年因为傻逼上级跳过所有检查程序就起飞之后出事故，虽然没死但是也被抓去做实验了，和loop需要的这个装置可能有很大关系，也是为什么最后朱丽安娜会在loop装置的核心里面等你
+
+
