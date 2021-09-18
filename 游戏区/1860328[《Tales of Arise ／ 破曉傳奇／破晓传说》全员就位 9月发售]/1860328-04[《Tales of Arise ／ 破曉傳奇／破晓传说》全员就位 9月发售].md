@@ -10742,3 +10742,15 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我甚至没有get到为什么在最终战门口放了6个那玩意来解锁快速传送，太迷惑了，6个里面还夹着一个质量比最终boss还高的精英
 
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 5310#       发表于 2021-9-19 06:02
+
+
+快打完了，感觉剧情绝对量是够的就是分配出了点问题
+前面那么多纯跑路地图每张其实都可以塞点剧情的
+
+
