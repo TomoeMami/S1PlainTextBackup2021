@@ -10626,3 +10626,43 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 只能关掉游戏，之前支线白做。
 
 
+
+
+*****
+
+####  蓝雉  
+##### 5301#       发表于 2021-9-18 23:03
+
+
+第三章二五仔搞事时唯有斗技场风平浪静，因为这里都是精锐没人敢进去搞事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  司马千晶  
+##### 5302#       发表于 2021-9-18 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806241&amp;ptid=1860328" target="_blank">9α 发表于 2021-9-18 22:44</a>
+什么鬼支线，我不到40j跑进了个支线。进去60多的怪，我说咋刮了半天。还不能退。
+
+
+只能关掉游戏，之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你一定是去地宫了
+
+
+*****
+
+####  loley  
+##### 5303#       发表于 2021-9-18 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52806241&amp;ptid=1860328" target="_blank">9α 发表于 2021-09-18 22:44:42</a>
+什么鬼支线，我不到40j跑进了个支线。进去60多的怪，我说咋刮了半天。还不能退。
+
+
+只能关掉游戏，之前支线 ...</blockquote>幸好我第一次去的是洞穴，好歹养成了接支线之后在门口存档的习惯。这也许就是冒险的醍醐味吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
