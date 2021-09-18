@@ -5580,3 +5580,17 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 为什么会出现那些字也没解释啊，而且大部分字都没啥意思，都是指引性的，除了you know the code那个。感觉这个整活空间挺大的啊，浪费了
 
 
+
+
+*****
+
+####  鹿斗典善  
+##### 485#       发表于 2021-9-18 17:05
+
+
+通了，总体来说还是短了点，AI很有问题
+
+
+一直想找耻辱的彩蛋，结果到结局才见到<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+

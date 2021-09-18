@@ -10389,3 +10389,14 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 我觉得可以啊，反正张无忌长得更像娘，说明导演没看原著<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  躺倒之龙  
+##### 5281#       发表于 2021-9-18 16:55
+
+
+林薇尔是唯一喜欢的角色，其他人陈词滥调主旋律正能量活该被嘴臭
+
+
