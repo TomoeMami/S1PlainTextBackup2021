@@ -5555,3 +5555,17 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 主要是这几次问题都是出在第一次在那个时间段去那个场景，探索得就很仔细，然后就给我整出这种问题，多来几次血压就直接拉满，探索解迷的兴致直接全没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Mimic  
+##### 483#       发表于 2021-9-18 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52797918&amp;ptid=1972138" target="_blank">oniwarud 发表于 2021-9-18 10:20</a>
+
+主要是这几次问题都是出在第一次在那个时间段去那个场景，探索得就很仔细，然后就给我整出这种问题，多来 ...</blockquote>
+还行吧，我打了半天，看到设置最下面多出了个好大的按钮，点了两下就从头开始了。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+

@@ -10102,3 +10102,14 @@ BOSS演出做的很好
 能把流程和剧情体验搞成这样我真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  horacio  
+##### 5257#       发表于 2021-9-18 10:24
+
+
+我刚打到op2，为什么我的男主还有个火剑是黑的，需要什么条件还是等剧情到？
+
+
