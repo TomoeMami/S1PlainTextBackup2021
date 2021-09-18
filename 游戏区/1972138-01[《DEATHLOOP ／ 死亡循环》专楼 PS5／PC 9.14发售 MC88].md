@@ -5537,3 +5537,21 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  oniwarud  
+##### 482#       发表于 2021-9-18 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52795443&amp;ptid=1972138" target="_blank">AlerHugues 发表于 2021-9-18 01:15</a>
+
+退了重进是从那一关继续的吧
+
+不是整个循环都要重打
+
+一张图白打浪费一两个小时犯不着</blockquote>
+主要是这几次问题都是出在第一次在那个时间段去那个场景，探索得就很仔细，然后就给我整出这种问题，多来几次血压就直接拉满，探索解迷的兴致直接全没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

@@ -9939,3 +9939,55 @@ jd11点额抢到了pro…老婆那台任务完成了…
 问下，在京东八点第一时间下订付款成功是不是就没问题了？应该也是第一批的吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 903#       发表于 2021-9-18 10:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52797489&amp;ptid=2015640" target="_blank">M1NG 发表于 2021-9-18 09:52</a>
+
+问下，在京东八点第一时间下订付款成功是不是就没问题了？应该也是第一批的吧 ...</blockquote>
+20点场问客服最差都是26号前 不过也说了是先付先发 或许早付的能24到吧 
+
+23点场才改成30号前的<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  溯夜  
+##### 904#       发表于 2021-9-18 10:22
+
+
+我的是十月中旬发货，如果等双十一又得再等一个多月，还是将就买吧
+
+
+*****
+
+####  冰箱研会长  
+##### 905#       发表于 2021-9-18 10:25
+
+
+我也得等到10.1之后了...
+
+
+*****
+
+####  assdfe123  
+##### 906#       发表于 2021-9-18 10:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">10.14-10.20发货，白色256pro真的很少。。
+
+
+*****
+
+####  溯夜  
+##### 907#       发表于 2021-9-18 10:27
+
+
+emmmm，13到现在我这都可以24号当天拿货，着实凉了
+
+
