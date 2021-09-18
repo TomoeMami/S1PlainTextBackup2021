@@ -9832,3 +9832,34 @@ jd11点额抢到了pro…老婆那台任务完成了…
 直接去魔都好了，魔都全是25号现货<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  用户名已注册  
+##### 894#       发表于 2021-9-18 08:21
+
+
+ 本帖最后由 用户名已注册 于 2021-9-18 08:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52794298&amp;ptid=2015640" target="_blank">用户名已注册 发表于 2021-9-17 23:03</a>
+
+京东23点补货买了，石墨色128g。
+
+
+—— 来自 S1Fun</blockquote>
+我是京东抢购了那么多次各种东西，第一次买到。
+
+看了下，上海25号取货有货的，杭州两家都没有；12 Pro我也看过，杭州这边一直缺货到1月份的样子，上海苏州一直有货。
+
+
+*****
+
+####  禽兽公爵  
+##### 895#       发表于 2021-9-18 08:25
+
+
+10月9号，落泪
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

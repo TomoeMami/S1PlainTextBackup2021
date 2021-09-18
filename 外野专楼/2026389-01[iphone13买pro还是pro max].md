@@ -1296,3 +1296,19 @@ pro max太大了
 —— 来自 Xiaomi M2007J3SG, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  斑驳的阴影  
+##### 105#       发表于 2021-9-18 08:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52796003&amp;ptid=2026389" target="_blank">zmw_831110 发表于 2021-9-18 05:47</a>
+
+可变刷新率，视频算的是24帧吧，是会比原本的60Hz省电。
+
+你不动，界面刷新率就只有10，只要你不是一直不 ...</blockquote>
+24是电影的帧率了，一般平台常见的都是30或者60，SNS浏览的话短停操作也有可能省一些，这样抠出来的续航么。。。qq 微信这种的话估计就全程60了吧
+
+

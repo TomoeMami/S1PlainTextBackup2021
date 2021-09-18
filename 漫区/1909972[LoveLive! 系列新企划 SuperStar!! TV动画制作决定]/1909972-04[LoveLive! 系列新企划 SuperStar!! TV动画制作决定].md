@@ -6611,3 +6611,24 @@ sayurin真是劳模啊，liella参加的活动她好像就没缺席的</blockquo
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  D麦林  
+##### 5035#       发表于 2021-9-18 08:05
+
+
+ 本帖最后由 D麦林 于 2021-9-18 08:12 编辑 
+
+秋叶原2都不转今天晚上的生放了（官网播出平台都没有bilibili）
+
+批站今天求生欲拉满啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我都记不得了 以前有这样过吗
+
+说起来我都以为批站今天打算把日漫区下架一天表态度了呢 结果倒也没有 也没见番剧区官方号火速转发团团动态什么的（
+
+大概也就仅止于怕死了吧（
+
+
