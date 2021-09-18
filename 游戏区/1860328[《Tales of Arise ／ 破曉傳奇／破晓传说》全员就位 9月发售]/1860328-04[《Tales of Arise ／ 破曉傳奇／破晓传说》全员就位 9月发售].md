@@ -10220,3 +10220,48 @@ tob是真的好了很多。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  蓝雉  
+##### 5266#       发表于 2021-9-18 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52799458&amp;ptid=1860328" target="_blank">黑夜守望者 发表于 2021-9-18 11:55</a>
+借toar吐槽一下jrpg界是不是脚本上过文化课的没几个啊，见过好几个游戏后代和祖先长得“一模一样”了，虽说 ...</blockquote>
+这种艺术处理有啥好质疑的……
+
+
+*****
+
+####  真田源次郎信繁  
+##### 5267#       发表于 2021-9-18 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52799458&amp;ptid=1860328" target="_blank">黑夜守望者 发表于 2021-9-18 11:55</a>
+
+借toar吐槽一下jrpg界是不是脚本上过文化课的没几个啊，见过好几个游戏后代和祖先长得“一模一样”了，虽说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不应  
+##### 5268#       发表于 2021-9-18 12:45
+
+
+我觉得这游戏的战斗体验就是中期最差，前期新鲜感足，虽然没啥技能打起来也快乐。后期套路起来了，无论是女主三疾风，法师连读魔法，还有男主一刀超人，打起来效率高也足够爽。我打最终迷宫的时候，攻大料理加双倍伤害，小怪一刀秒杀，精英和boss一刀一个qte，体验还蛮好的。唯独是中期，干啥啥不行，还要被boss战恶心，只能刮痧。而且这时候刷也刷不快，玩的是真的烦躁。
+
+
+*****
+
+####  黑夜守望者  
+##### 5269#       发表于 2021-9-18 12:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52799742&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-18 12:17</a>
+不是，原来现在很多人连这种程度的戏剧化巧合都接受不了了吗。。。</blockquote>
+那可真是抱歉，都合有很多种，世界中心牛家村我都没意见。唯独就是这点我不能接受。
+
+

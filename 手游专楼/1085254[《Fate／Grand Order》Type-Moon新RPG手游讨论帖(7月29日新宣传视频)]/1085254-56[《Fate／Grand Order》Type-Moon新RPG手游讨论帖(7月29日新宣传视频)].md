@@ -15247,3 +15247,21 @@ id X，支援感觉能用的上的都放上了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sjbssd  
+##### 83780#       发表于 2021-9-18 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52797521&amp;ptid=1085254" target="_blank">dawning 发表于 2021-9-18 09:54</a>
+
+已加，话说，
+
+你这从零开始，超级地狱难度呀，
+
+我买的初始号，要不是有五宝摩根，几个拐基本齐了 ...</blockquote>
+不是自己的号玩起来没劲，玩着老丢
+
+
