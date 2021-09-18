@@ -10023,3 +10023,17 @@ emmmm，13到现在我这都可以24号当天拿货，着实凉了
 你这抢的啥，我8点15付款抢的PORMAX256的蓝色，要到10月11-17日了
 
 
+
+
+*****
+
+####  芸芸提不起劲  
+##### 911#       发表于 2021-9-18 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52798412&amp;ptid=2015640" target="_blank">wing233 发表于 2021-9-18 10:52</a>
+
+你这抢的啥，我8点15付款抢的PORMAX256的蓝色，要到10月11-17日了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">我是8:03:27付款买的pro max 128G远峰蓝，好像前7分钟付款的基本都能24号拿到
+
+
