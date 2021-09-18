@@ -10520,3 +10520,52 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 不是，这游戏后半部分的迷宫设计怎么回事啊？怎么每个迷宫打完都不能传送回门口，一样的路再跑一遍很爽？
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 5292#       发表于 2021-9-18 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52803867&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-18 17:58</a>
+
+拳男的最终防具名字和其他人不是一个格式的吗？还是说我漏了异界的箱子</blockquote>
+魔武器都一样，打完隐藏boss给的不一样
+
+
+*****
+
+####  JudgmentEye  
+##### 5293#       发表于 2021-9-18 22:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805434&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-18 21:15</a>
+
+不是，这游戏后半部分的迷宫设计怎么回事啊？怎么每个迷宫打完都不能传送回门口，一样的路再跑一遍很爽？ ...</blockquote>
+后期赶工做成拖时间，还能因为什么
+
+
+*****
+
+####  shiko  
+##### 5294#       发表于 2021-9-18 22:11
+
+
+<blockquote>JudgmentEye 发表于 2021-9-18 22:09
+后期赶工做成拖时间，还能因为什么</blockquote>
+搞不懂靠拖时间有什么意义，全程跑酷逃跑脱战的话，加起来也花不了半个小时，难道是有什么流程长度的硬指标吗
+
+
+*****
+
+####  JudgmentEye  
+##### 5295#       发表于 2021-9-18 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805937&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-18 22:11</a>
+
+搞不懂靠拖时间有什么意义，全程跑酷逃跑脱战的话，加起来也花不了半个小时，难道是有什么流程长度的硬指 ...</blockquote>
+最终迷宫做大点是jrpg的传统啊
+
+

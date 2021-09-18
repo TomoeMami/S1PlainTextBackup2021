@@ -10244,3 +10244,18 @@ mini5 203.2 x 134.8 x 6.1mm
 从来都没这种说法，倒是有很多第一批用料最良心的说法……而且iPhone这种量级的产品，早早就开始量产备货了，其实没那么严格第几批的说法的
 
 
+
+
+*****
+
+####  saintsimpler  
+##### 928#       发表于 2021-9-18 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805523&amp;ptid=2015640" target="_blank">heseran 发表于 2021-9-18 21:25</a>
+所以说现在还有没有第一批有瑕疵的概率大等第二批次的说法啊？有的话是什么时候才算第二批啊。虽然有14天退 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去年第一批iPhone12pm绿屏的事情也是上了热搜的，实在不放心可以别等第一批，双十一就已经有很大的优惠了，那个时候买也行
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

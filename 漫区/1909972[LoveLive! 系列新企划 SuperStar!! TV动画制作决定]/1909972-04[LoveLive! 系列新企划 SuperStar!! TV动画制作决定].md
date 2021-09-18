@@ -6913,3 +6913,25 @@ Screenshot_20210918_204731_com.sina.weibo_edit_1609308023927353.jpg
 阿b评论还是一边倒的，再怎么精日也不敢明着给japannazi挽尊
 
 
+
+
+*****
+
+####  player3960  
+##### 5061#       发表于 2021-9-18 22:18
+
+
+明天第八话一出就都该集火花田了，鲤鱼这事不要紧的啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cybernetics31  
+##### 5062#       发表于 2021-9-18 22:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候看怎么寄的吧
+
+
