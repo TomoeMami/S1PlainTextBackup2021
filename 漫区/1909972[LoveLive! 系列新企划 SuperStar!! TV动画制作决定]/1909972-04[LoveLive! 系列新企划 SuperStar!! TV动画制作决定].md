@@ -6844,3 +6844,38 @@ Screenshot_20210918_204731_com.sina.weibo_edit_1609308023927353.jpg
 这倒不用担心，那边老的不承认历史，年轻的没教这段历史，发生什么事了他们都不清楚。7.1那个转发也影响可可什么人气，还不如花田的第七集来的猛烈。
 
 
+
+
+*****
+
+####  Norkey1  
+##### 5055#       发表于 2021-9-18 21:30
+
+
+看追日本偶像番的阿宅就 该不该杀光日本人 这一问题大战也够精彩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5056#       发表于 2021-9-18 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805475&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-18 21:21</a>
+
+主要还是担心企划那边…………</blockquote>
+不用担心 71也转了 根本没啥大事 
+
+
+*****
+
+####  cybernetics31  
+##### 5057#       发表于 2021-9-18 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805509&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-18 21:23</a>
+
+我看微博那边挺平静的，b站是什么时候开始变得人人都想输出自己观点的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不奇怪了 放假了毕竟
+
+
