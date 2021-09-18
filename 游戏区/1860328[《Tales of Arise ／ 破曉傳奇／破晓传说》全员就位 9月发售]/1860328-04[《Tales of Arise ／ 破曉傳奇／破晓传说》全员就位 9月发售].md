@@ -10400,3 +10400,19 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 林薇尔是唯一喜欢的角色，其他人陈词滥调主旋律正能量活该被嘴臭
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5282#       发表于 2021-9-18 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52802474&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-18 16:14</a>
+
+OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘来的感觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一说一我都不知道这游戏做第2个op有什么意义  人家op2一般都是用来告诉你 游戏正式开始了  而toar 放完op2直接开始摆烂了。。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉当初做op2的时候后面预定还有很长流程。。 最后因为赶工变成了现在这鸟样。。但是op2既然做了那就放进去吧 
+
+

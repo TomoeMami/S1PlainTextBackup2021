@@ -1555,3 +1555,39 @@ Lann在大部分女玩家那里不如小崔吧，鬼佬不少女玩家暴动说�
 是神界2，博德3，正义之怒？正义之怒需要先玩拥王者吗
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 115#       发表于 2021-9-18 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52803422&amp;ptid=2026260" target="_blank">煌焰 发表于 2021-9-18 17:23</a>
+新人想接触crpg的话从哪作开始比较好？比较侧重剧情和自由度，战斗乐趣可以往后稍稍
+
+
+是神界2，博德3，正义 ...</blockquote>
+按你的需求，玩神界原罪2
+
+博得3还没出，玩正义之怒不需要玩拥王者
+
+
+*****
+
+####  yanghuangu  
+##### 116#       发表于 2021-9-18 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52803422&amp;ptid=2026260" target="_blank">煌焰 发表于 2021-9-18 17:23</a>
+
+新人想接触crpg的话从哪作开始比较好？比较侧重剧情和自由度，战斗乐趣可以往后稍稍
+
+
+是神界2，博德3，正义 ...</blockquote>
+能接受上古画面的话，辐射2、异域镇魂曲、博德1&amp;2更符合你的要求
+
+
+新时代的画面还行的，永恒之柱应该是个不错的选择
+
+
