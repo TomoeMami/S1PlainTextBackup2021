@@ -15314,3 +15314,32 @@ id X，支援感觉能用的上的都放上了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  khxooo  
+##### 83785#       发表于 2021-9-18 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52803294&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-18 17:14</a>
+今年这活动完了就10月了，长草一周，DL纪念（接着长草），万圣活动
+无限池等圣诞吧</blockquote>
+万圣……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83786#       发表于 2021-9-18 18:27
+
+
+<blockquote>引用第83784楼khxooo于2021-09-18 18:27发表的  :
+
+引用:黑上シグマ 发表于 2021-9-18 17:14今年这活动完了就10月了，长草一周，DL纪念......</blockquote>
+今年还是有希望复活的
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+

@@ -10449,3 +10449,25 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 做妖精戒指，我给女主带的戒指减少50%cp消耗，cp根本用不完，终章林薇尔光魔法轰全程脚打
 
 
+
+
+*****
+
+####  peh  
+##### 5286#       发表于 2021-9-18 18:31
+
+
+我靠，第四章剧情给我整麻了，第三章我还觉得网上恶评夸大了，这第四章剧情真是给人看乐了
+
+
+*****
+
+####  rgauss  
+##### 5287#       发表于 2021-9-18 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804100&amp;ptid=1860328" target="_blank">peh 发表于 2021-9-18 18:31</a>
+我靠，第四章剧情给我整麻了，第三章我还觉得网上恶评夸大了，这第四章剧情真是给人看乐了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第三章恶评不都是因为声优演出过猛么
+
+
