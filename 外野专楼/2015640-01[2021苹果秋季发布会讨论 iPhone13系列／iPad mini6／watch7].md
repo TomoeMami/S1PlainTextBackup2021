@@ -10178,3 +10178,45 @@ mini5 203.2 x 134.8 x 6.1mm
 已经被砍单了
 
 
+
+
+*****
+
+####  战狼PTSD  
+##### 923#       发表于 2021-9-18 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804610&amp;ptid=2015640" target="_blank">miao123177 发表于 2021-9-18 19:32</a>
+
+已经被砍单了</blockquote>
+你之前用过百亿补贴吗，我去年买过一台，今年帮朋友买一台，还没砍单有点虚。
+
+
+*****
+
+####  miao123177  
+##### 924#       发表于 2021-9-18 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804776&amp;ptid=2015640" target="_blank">战狼PTSD 发表于 2021-9-18 19:54</a>
+
+你之前用过百亿补贴吗，我去年买过一台，今年帮朋友买一台，还没砍单有点虚。 ...</blockquote>
+用过啊 现在用的华为9Xpro就是百亿补贴买的  然后今年买iqoo的z1也被砍了
+
+昨晚下完单 今天中午被砍的
+
+
+*****
+
+####  战狼PTSD  
+##### 925#       发表于 2021-9-18 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804790&amp;ptid=2015640" target="_blank">miao123177 发表于 2021-9-18 19:56</a>
+
+用过啊 现在用的华为9Xpro就是百亿补贴买的  然后今年买iqoo的z1也被砍了
+
+昨晚下完单 今天中午被砍的 ...</blockquote>
+估计一个帐号只能占一次便宜了，我平常也就买些零碎东西，让他做个砍单的心理准备算了
+
+
