@@ -14117,3 +14117,14 @@ RIG杯改打竞技场了啊<img src="https://static.saraba1st.com/image/smiley/f
 2021-9-18 17:28 上传
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7038#       发表于 2021-9-18 18:06
+
+
+这ぶいすぽ新人不还是一堆FPS游戏吗，好！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
