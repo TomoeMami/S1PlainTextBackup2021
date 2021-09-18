@@ -9895,3 +9895,14 @@ jd11点额抢到了pro…老婆那台任务完成了…
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我选了个白色的，显示10.9~14送货
 
 
+
+
+*****
+
+####  tclm  
+##### 899#       发表于 2021-9-18 09:22
+
+
+昨晚拼多多抢到了13的减500元券，犹豫了大半小时没买，还是忍了。
+
+
