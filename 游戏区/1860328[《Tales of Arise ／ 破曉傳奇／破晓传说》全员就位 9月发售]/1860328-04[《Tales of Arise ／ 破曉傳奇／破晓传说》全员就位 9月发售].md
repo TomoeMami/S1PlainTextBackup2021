@@ -10715,3 +10715,30 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 敌人编排真的是一言难尽，最后塞了一堆大型怪，完全不能get传说的爽快，最后迷宫重复利用打得我整个人都麻了，直接切E难度无脑复读打了过去，太折磨了。
 
 
+
+
+*****
+
+####  shiko  
+##### 5308#       发表于 2021-9-19 01:27
+
+
+<blockquote>齿轮轴君 发表于 2021-9-19 01:19
+终于打完了，整体的剧本有点失衡，虎头蛇尾的，OP2还是好听的。
+
+敌人编排真的是一言难尽，最后塞了一堆大型 ...</blockquote>
+最后两个迷宫就差每个门口放一个大型怪了，真的绷不住，导致我最终迷宫能逃的全都逃了
+
+
+*****
+
+####  齿轮轴君  
+##### 5309#       发表于 2021-9-19 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52807416&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-19 01:27</a>
+
+最后两个迷宫就差每个门口放一个大型怪了，真的绷不住，导致我最终迷宫能逃的全都逃了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我甚至没有get到为什么在最终战门口放了6个那玩意来解锁快速传送，太迷惑了，6个里面还夹着一个质量比最终boss还高的精英
+
+
