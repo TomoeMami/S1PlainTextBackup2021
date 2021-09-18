@@ -10278,3 +10278,27 @@ tob是真的好了很多。
 纸片人脸随便捏，电视剧难不成演员还得拍部戏就整个容<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑夜守望者  
+##### 5271#       发表于 2021-9-18 13:08
+
+
+ 本帖最后由 黑夜守望者 于 2021-9-18 13:11 编辑 
+
+后期剧情真是直线下降，一口一个三鹿相互原谅，说教味太浓了，废话太多恨不能二倍速<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">谜底也太无聊了，典型高开低走
+
+
+*****
+
+####  红魔馆的糖  
+##### 5272#       发表于 2021-9-18 13:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52800455&amp;ptid=1860328" target="_blank">黑夜守望者 发表于 2021-9-18 13:08</a>
+后期剧情真是直线下降，一口一个三鹿相互原谅，说教味太浓了，废话太多恨不能二倍速谜底也太无聊了 ...</blockquote>
+高。。高开？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
