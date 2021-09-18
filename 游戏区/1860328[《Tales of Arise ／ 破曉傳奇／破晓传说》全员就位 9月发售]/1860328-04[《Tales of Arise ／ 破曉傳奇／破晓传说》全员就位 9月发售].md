@@ -10356,3 +10356,36 @@ tob是真的好了很多。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一说一 这支线为什么不标个等级  好歹什么水平的怪有点底
 
 
+
+
+*****
+
+####  shiko  
+##### 5278#       发表于 2021-9-18 16:14
+
+
+OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘来的感觉
+
+
+*****
+
+####  shiko  
+##### 5279#       发表于 2021-9-18 16:18
+
+
+<blockquote>黑夜守望者 发表于 2021-9-18 12:58
+纸片人脸随便捏，电视剧难不成演员还得拍部戏就整个容</blockquote>
+按照你的想法张翠山直接找个完全不相干的人演不也一样，反正儿子也可以跟爹长的很不一样。
+
+
+*****
+
+####  黑夜守望者  
+##### 5280#       发表于 2021-9-18 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52802554&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-18 16:18</a>
+按照你的想法张翠山直接找个完全不相干的人演不也一样，反正儿子也可以跟爹长的很不一样。 ...</blockquote>
+我觉得可以啊，反正张无忌长得更像娘，说明导演没看原著<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+

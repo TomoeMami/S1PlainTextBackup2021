@@ -15174,3 +15174,42 @@ lol就别想了 不可能lol的 lol都删好友了 估计都不会上神乐mea�
 可怜的小麻，呜呜
 
 
+
+
+*****
+
+####  路人庚  
+##### 2878#       发表于 2021-9-18 16:24
+
+
+插句题外话，不得不说，推特选择在20年11月开启的fleet功能，属实让我这个要回头去翻当时阿咩发过的fleet的人大吃几吨屎（），同时还因为s1、lga以及各个乱七八糟的楼里保留的fleet都不怎么全（直至12月中下旬才有所改善）所以整体感受宛如屎屎屎屎屎屎屎屎屎里淘金，虽说现在回头看当时的历史也许会有极少量的新认知但总体而言还是不推荐回头看的
+
+
+不过比起上面这些，我更想说的是，wtm总算是找到这个fleet了（悲）
+
+
+<img src="https://img.saraba1st.com/forum/202109/18/161103r2aodee3p55hh2lh.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (4.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-18 16:11 上传
+
+
+TOP ZHENQING SHIGAN！
+
+
+于此同时，在这个fleet之后总算可以基本进入高速收集阶段了（咕咕咕
+
+
+*****
+
+####  T_Hb  
+##### 2879#       发表于 2021-9-18 16:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
