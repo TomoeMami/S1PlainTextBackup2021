@@ -10182,3 +10182,41 @@ BOSS演出做的很好
 不是，原来现在很多人连这种程度的戏剧化巧合都接受不了了吗。。。
 
 
+
+
+*****
+
+####  9α  
+##### 5264#       发表于 2021-9-18 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52797573&amp;ptid=1860328" target="_blank">ac130-2020 发表于 2021-9-18 09:57</a>
+
+40小时通关了
+
+写个大概的评价
+
+这座总体一个高开低走，不管是战斗流程设计地图设计剧情演出各方面全是如此</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+打完我觉得toz太短了，没讲什么剧情。
+
+tob是真的好了很多。
+
+
+但这部我没想到从第二章剧情开始一直不停被雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三章还好没怎么被雷，第四章又被雷爆。
+
+刚打完op2没多久我都没啥动力了。
+
+
+*****
+
+####  loley  
+##### 5265#       发表于 2021-9-18 12:29
+
+
+话说突然想起来一回事，想评价下这作的钓鱼系统。个人感觉QTE部分略无聊，学会了之后完全变成机械操作了。有趣的部分主要是前面钓的种类少的时候，要争取钓更多不同种类的鱼换新拟饵。靠按不同的键引诱还没钓过的鱼还有看鱼的外形来判断有没有新鱼可以钓，能不能在新鱼和旧鱼的键位差不多的时候刚好钓起来新鱼，略有点开盲盒和捉娃娃机的感觉。后面专用鱼饵多起来之后简直变成重复操作，也就能看看钓起大王鱼之后的小剧场了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
