@@ -14086,3 +14086,16 @@ RIG杯改打竞技场了啊<img src="https://static.saraba1st.com/image/smiley/f
 2021-9-18 15:59 上传
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7036#       发表于 2021-9-18 16:36
+
+
+【漪月灵】9.11 Sound Horizon主题歌回https://b23.tv/6lQtYj
+
+我十分想念那次sh歌会
+
+
