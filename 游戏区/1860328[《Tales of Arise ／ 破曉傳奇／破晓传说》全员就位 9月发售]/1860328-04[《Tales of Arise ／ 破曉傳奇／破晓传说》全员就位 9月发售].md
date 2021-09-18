@@ -10498,3 +10498,25 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 —— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  Kojimaru  
+##### 5290#       发表于 2021-9-18 21:15
+
+
+第四章我还以为是法师妹妹也吃了好多那种果子，拳师阻止她是因为他看出了领主的激将法
+后来发现是我想多了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">只是想告诉你“复仇尽是一场空”这种大道理
+还是小剧场好
+
+
+*****
+
+####  shiko  
+##### 5291#       发表于 2021-9-18 21:15
+
+
+不是，这游戏后半部分的迷宫设计怎么回事啊？怎么每个迷宫打完都不能传送回门口，一样的路再跑一遍很爽？
+
+

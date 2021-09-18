@@ -14139,3 +14139,37 @@ RIG杯改打竞技场了啊<img src="https://static.saraba1st.com/image/smiley/f
 总觉得新人声音有点耳熟，虽然清楚是清楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7040#       发表于 2021-9-18 21:03
+
+
+<img src="https://img.saraba1st.com/forum/202109/18/210242vqjszkavesjmqm78.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E_kcMMvVQAQeN61.jpg</strong> (397.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-18 21:02 上传
+
+
+RIG竞技场大赛是uto冠军
+
+竞技场大会还挺精彩，bora,met都表现不少
+
+
+*****
+
+####  fastary  
+##### 7041#       发表于 2021-9-18 21:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">虽然不抱希望还是来s1问一句，有人存了虹谜event的录播吗
+
+可凭票换
+
+

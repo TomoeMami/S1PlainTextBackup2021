@@ -6756,3 +6756,91 @@ Screenshot_20210918_204731_com.sina.weibo_edit_1609308023927353.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没白粉她 稳得不行
 
 
+
+
+*****
+
+####  lj205  
+##### 5046#       发表于 2021-9-18 21:02
+
+
+保护好自己
+
+
+*****
+
+####  chenflyyy  
+##### 5047#       发表于 2021-9-18 21:04
+
+
+71那次都没什么影响，不用怕啦
+
+
+*****
+
+####  Norkey1  
+##### 5048#       发表于 2021-9-18 21:11
+
+
+挺佩服的，反正换我靠日本人吃饭我肯定不发，多一事不如少一事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是7月和现在的曝光度不能一概而论，今天评论区已经有大战趋势了，我直接搬起板凳看戏。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 5049#       发表于 2021-9-18 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在国内今天的舆论也想大战？嫌死的早是吗
+
+
+*****
+
+####  lj205  
+##### 5050#       发表于 2021-9-18 21:21
+
+
+主要还是担心企划那边…………
+
+
+*****
+
+####  chenflyyy  
+##### 5051#       发表于 2021-9-18 21:21
+
+
+刚看了下评论区也没什么大战啊，只是最顶层那个评论对于该处死所有日本人还是处死部分日本人产生分歧而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 5052#       发表于 2021-9-18 21:23
+
+
+我看微博那边挺平静的，b站是什么时候开始变得人人都想输出自己观点的。
+
+
+*****
+
+####  ghsakv  
+##### 5053#       发表于 2021-9-18 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52805486&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-18 21:21</a>
+刚看了下评论区也没什么大战啊，只是最顶层那个评论对于该处死所有日本人还是处死部分日本人产生分歧而已[f ...</blockquote>
+几十年前总理不就帮我们定调了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 5054#       发表于 2021-9-18 21:26
+
+
+<blockquote>lj205 发表于 2021-9-18 21:21
+主要还是担心企划那边…………</blockquote>
+这倒不用担心，那边老的不承认历史，年轻的没教这段历史，发生什么事了他们都不清楚。7.1那个转发也影响可可什么人气，还不如花田的第七集来的猛烈。
+
+
