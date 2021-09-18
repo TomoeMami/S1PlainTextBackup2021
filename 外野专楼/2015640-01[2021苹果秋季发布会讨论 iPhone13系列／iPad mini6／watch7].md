@@ -10164,3 +10164,17 @@ mini5 203.2 x 134.8 x 6.1mm
 很多人看中24期免息呐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  miao123177  
+##### 922#       发表于 2021-9-18 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804394&amp;ptid=2015640" target="_blank">國立中央大學 发表于 2021-9-18 19:08</a>
+
+拼多多的13自带-500，万人团承诺30号之前发完，不比官网香？</blockquote>
+已经被砍单了
+
+

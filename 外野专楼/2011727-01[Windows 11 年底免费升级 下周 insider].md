@@ -7061,3 +7061,23 @@ Best Windows 11 Start Menu Made by Google</blockquote>
 回滚win10了，任务栏不能移到右侧，16：9笔记本屏幕难受，滚回10后发现复制图片到QQ聊天框会是空白。11ui我挺喜欢的，但是微软总要在小地方恶心一下，不如照搬谷歌OS算了。
 
 
+
+
+*****
+
+####  limon  
+##### 580#       发表于 2021-9-18 19:27
+
+
+我也回滚了，前面还好这两个版本莫名就卡下 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  404489039  
+##### 581#       发表于 2021-9-18 19:34
+
+
+越更新越垃圾，已经绿屏了3  4次了
+
+

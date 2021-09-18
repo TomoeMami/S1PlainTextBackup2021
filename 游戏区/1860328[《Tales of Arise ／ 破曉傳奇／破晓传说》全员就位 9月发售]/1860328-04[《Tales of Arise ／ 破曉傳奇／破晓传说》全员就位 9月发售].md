@@ -10485,3 +10485,16 @@ OP2还挺好听的。尤其是boss三连战之后给首OP听，有点苦尽甘�
 啊？我还以为第三章恶评是因为黑皮那“我做好事但我不是好人因为我有私心我是坏人”的奇怪逻辑，当然声优配音不好连我这个一向不重配音的都听出来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  makar0601  
+##### 5289#       发表于 2021-9-18 19:21
+
+
+我倒是觉得第三章是这游戏剧情节奏最正常的一章，算是有比较实在的介绍国家社会情况，也有足够的铺垫。一二四五简直是到个地方说几句就去打boss没了
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
