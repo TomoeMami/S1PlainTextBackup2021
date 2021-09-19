@@ -9565,3 +9565,154 @@ LL平均水平的展开，没到不能看的地步，LIVE曲子不错，挺好�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">中之人选这么好 可不就往那集中资源嘛。。。。。。
 
 
+
+
+*****
+
+####  寒风夜  
+##### 5302#       发表于 2021-9-19 20:46
+
+
+ 本帖最后由 寒风夜 于 2021-9-19 20:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814338&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-19 20:35</a>
+
+总体看下来感觉一般般，恋的理由和转变都过于牵强了，音乐科和普通科的矛盾也化解的太儿戏，但最主要的是最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌我觉得还成  舞台我觉得也不行 感觉适合放全片结尾
+
+
+*****
+
+####  shine888kire  
+##### 5303#       发表于 2021-9-19 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814486&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 20:44</a>
+
+中之人选这么好 可不就往那集中资源嘛。。。。。。</blockquote>
+毕竟水团证明了这条路线肯定能赚的嘛，这次大概就是老害们对当初谬没能赚到最大利益心有不甘，想复制一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行么，反正还有退路的嘛
+
+
+*****
+
+####  寒风夜  
+##### 5304#       发表于 2021-9-19 20:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">坏了 我突然想到 不会后面会复刻果皇雨里训练造矛盾吧
+
+
+*****
+
+####  笋狐  
+##### 5305#       发表于 2021-9-19 20:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电话伏笔能埋2季？不现实，何况睿站源列表里那个疑似可可姐姐的cv也还没登场
+
+
+*****
+
+####  灼眼の安娜  
+##### 5306#       发表于 2021-9-19 20:54
+
+
+有一说一，这集的歌我觉得还是挺好听的，和ed并列是我最喜欢的两首星团动画歌曲了。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 5307#       发表于 2021-9-19 20:56
+
+
+还没看不过看你们讨论知道果不其然崩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那我看看live得了
+
+
+*****
+
+####  一个陆仁贾  
+##### 5308#       发表于 2021-9-19 20:57
+
+
+tv歌曲目前只有Tiny Stars和未来予報ハレルヤ！我听着最喜欢
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 5309#       发表于 2021-9-19 21:00
+
+
+刚看完live，我觉得歌还行，就是这衣服还是一如既往地一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有有点动作帧数不够的感觉
+
+
+*****
+
+####  Arccueid  
+##### 5310#       发表于 2021-9-19 21:01
+
+
+bd这首可可solo我挺喜欢的，希望早点出完整版
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+*****
+
+####  kata魂  
+##### 5311#       发表于 2021-9-19 21:01
+
+
+有一说一，第六话的live还是蛮好看的歌也好听，为什么感觉有人不喜欢呢，那套衣服我觉得中之人穿上肯定都在prpr了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5312#       发表于 2021-9-19 21:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在这复刻初代 阵容 算盘打歪了吧
+
+
+*****
+
+####  megapikachu  
+##### 5313#       发表于 2021-9-19 21:05
+
+
+比起live这首，我更喜欢第8话盘的cw，考虑到这几个人的唱功，可以期待一下live的效果。
+
+
+*****
+
+####  努斯万克  
+##### 5314#       发表于 2021-9-19 21:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814453&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-19 20:42</a>
+
+前两周都是晚上十点多就能在资源网站上看到汉化好的了</blockquote>
+ok
+
+
+*****
+
+####  cybernetics31  
+##### 5315#       发表于 2021-9-19 21:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814618&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-19 20:54</a>
+
+电话伏笔能埋2季？不现实，何况睿站源列表里那个疑似可可姐姐的cv也还没登场 ...</blockquote>
+那个列表纯粹是nhk不显示全staff的原因 流媒体上的都有那个列表 虽然确实岩井映美里是可可姐cv的一个好选择 毕竟会说上海话
+
+

@@ -11511,3 +11511,39 @@ TOV第三部<img src="https://static.saraba1st.com/image/smiley/face2017/048.png
 很早就有消息本作编剧是tov的编辑吧，当初听到这个消息我就没对剧情有啥期待了
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5369#       发表于 2021-9-19 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814131&amp;ptid=1860328" target="_blank">izayoi39 发表于 2021-9-19 20:21</a>
+
+很早就有消息本作编剧是tov的编辑吧，当初听到这个消息我就没对剧情有啥期待了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是tov分3段  前2段不说好但也没拉啊
+
+
+*****
+
+####  shiko  
+##### 5370#       发表于 2021-9-19 20:49
+
+
+<blockquote>alucardcz 发表于 2021-9-19 15:17
+这游戏感觉后面各方面都做崩了...包括战斗系统  hard后面打boss和路上大怪也没有什么区别 都是复读 ...</blockquote>
+最终迷宫更明目张胆。。。直接找了个剧情借口名正言顺的让玩家把最终迷宫走两遍。。
+
+
+
+
+*****
+
+####  Kedger  
+##### 5371#       发表于 2021-9-19 20:55
+
+
+tov虽然整体剧情不咸不淡，但人物好啊，我看着百合耍嘴皮子耍帅就能下三碗饭，你给我一个这种水平的人物，剧情随便糊弄一下都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
