@@ -8407,3 +8407,16 @@ image.png
 [https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4683051998052435?from=old_pc_videoshow)
 
 
+
+
+*****
+
+####  星のMerita  
+##### 2109#       发表于 2021-9-19 10:58
+
+
+太奢侈的一回了，既有畅快的动作戏，又有主线展开，细节处的沙雕脱线和贴贴也好评
+
+话说海豹无存在感也是官方承认的梗了w
+
+

@@ -10876,3 +10876,55 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 后面减ag没什么用啊..不如直接一轰把对面秒了..法师不如堆唱速
 
 
+
+
+*****
+
+####  jyyyjgy  
+##### 5319#       发表于 2021-9-19 10:54
+
+
+ 本帖最后由 jyyyjgy 于 2021-9-19 10:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52808945&amp;ptid=1860328" target="_blank">七氷 发表于 2021-9-19 10:22</a>
+
+问下 ，50%几率减ag的饰品 ，再叠加两个20%是不是就90%了</blockquote>
+玩法师吧，狂放激光完事，玩其他按得手累。
+
++咏唱速度，就可以啦！
+
+
+*****
+
+####  shiko  
+##### 5320#       发表于 2021-9-19 10:55
+
+
+早上起床又想了想，这结局是不是有点不清不楚，雷纳到底咋样了？被达纳救活了？
+
+
+*****
+
+####  bairn  
+##### 5321#       发表于 2021-9-19 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809173&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-19 10:55</a>
+早上起床又想了想，这结局是不是有点不清不楚，雷纳到底咋样了？被达纳救活了？ ...</blockquote>
+合二为一了啊
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  七氷  
+##### 5322#       发表于 2021-9-19 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809163&amp;ptid=1860328" target="_blank">jyyyjgy 发表于 2021-9-19 10:54</a>
+玩法师吧，狂放激光完事，玩其他按得手累。
+
++咏唱速度，就可以啦！</blockquote>
+哪个技能
+
+

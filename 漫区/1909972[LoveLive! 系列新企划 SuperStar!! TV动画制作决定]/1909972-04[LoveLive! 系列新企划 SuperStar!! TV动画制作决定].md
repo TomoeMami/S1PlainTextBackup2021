@@ -7262,3 +7262,27 @@ sayurin穿过黑丝的，我决定还行啊，没什么不适合的，不太明�
 live回应该不会有啥花活了吧，轻拿轻放快速过完剧情就是了。
 
 
+
+
+*****
+
+####  dozen  
+##### 5088#       发表于 2021-9-19 10:50
+
+
+打亲情牌煽情就完事儿了，总有受众的
+
+
+*****
+
+####  ads147147  
+##### 5089#       发表于 2021-9-19 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52808585&amp;ptid=1909972" target="_blank">安瓦尔阿明 发表于 2021-9-19 09:24</a>
+拿老人救场，这是屑游AS用过的操作吧。</blockquote>
+就是用过了，才能梦到这个情节。。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
