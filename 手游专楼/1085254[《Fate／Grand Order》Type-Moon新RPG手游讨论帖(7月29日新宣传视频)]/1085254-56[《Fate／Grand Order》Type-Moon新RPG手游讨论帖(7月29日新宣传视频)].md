@@ -15391,3 +15391,37 @@ id X，支援感觉能用的上的都放上了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83791#       发表于 2021-9-19 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809360&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-19 11:16</a>
+
+白又大三宝达成，收工</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">欧 羡慕 萌新一个4星都没抽到 合理吗
+
+
+*****
+
+####  dawning  
+##### 83792#       发表于 2021-9-19 11:46
+
+
+活动就剩个高难了，
+
+不知道能不能打的过去，
+
+
+*****
+
+####  alucardcz  
+##### 83793#       发表于 2021-9-19 11:48
+
+
+翻页
+
+

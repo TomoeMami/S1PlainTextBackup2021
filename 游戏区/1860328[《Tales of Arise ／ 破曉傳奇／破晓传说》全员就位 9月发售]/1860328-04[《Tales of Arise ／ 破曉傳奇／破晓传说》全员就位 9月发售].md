@@ -11040,3 +11040,17 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不缺啊  一套ba打完横跳个几下ag就满了 也不会取消之前的唱速
 
 
+
+
+*****
+
+####  yzqray  
+##### 5332#       发表于 2021-9-19 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809511&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-19 11:35</a>
+不缺啊  一套ba打完横跳个几下ag就满了 也不会取消之前的唱速</blockquote>
+堆90%减耗以后配合bg可以原地无限复读4ag大招，根本不用动
+其他任何配置没这个输出效率
+
+

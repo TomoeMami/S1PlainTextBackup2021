@@ -8435,3 +8435,16 @@ image.png
 话说这个kururu好惨，放置部室一晚上，海上冒出来被误伤都无任何怨言<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2111#       发表于 2021-9-19 11:52
+
+
+<img src="https://p.sda1.dev/2/c56b53246231637332777965082ad785/IMG_CMP_47883913.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
