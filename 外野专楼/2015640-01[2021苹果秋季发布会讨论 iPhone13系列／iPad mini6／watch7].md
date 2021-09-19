@@ -10446,3 +10446,14 @@ mini5 203.2 x 134.8 x 6.1mm
 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  mrlunzer  
+##### 941#       发表于 2021-9-19 11:15
+
+
+麻了，并夕夕马云逛了一圈只有mini6的膜没有mini6的壳，说好的华强北速度世界第一呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+

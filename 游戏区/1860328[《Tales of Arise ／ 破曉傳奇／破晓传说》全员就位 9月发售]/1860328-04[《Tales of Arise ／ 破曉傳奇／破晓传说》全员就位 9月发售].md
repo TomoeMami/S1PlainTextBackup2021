@@ -10928,3 +10928,77 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 哪个技能
 
 
+
+
+*****
+
+####  godless2020  
+##### 5323#       发表于 2021-9-19 11:11
+
+
+法师咏唱不差那么点时间，缺的是AG，AG消耗90%必须.......
+
+
+*****
+
+####  godless2020  
+##### 5324#       发表于 2021-9-19 11:12
+
+
+4炎一刀太霸道了，大家还是调剂用下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shiko  
+##### 5325#       发表于 2021-9-19 11:15
+
+
+<blockquote>bairn 发表于 2021-9-19 10:58
+合二为一了啊
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+哪里能看出合二为一了呀，感觉没有明显的表示
+
+
+*****
+
+####  hypnossz86  
+##### 5326#       发表于 2021-9-19 11:20
+
+
+风领主放大招的时候怎么应对啊？
+试了一次林薇儿ba能打断，但是只打断了一次
+后面怎么都不行了
+难道只有那一次是演出所以才能打断的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shiko  
+##### 5327#       发表于 2021-9-19 11:22
+
+
+<blockquote>hypnossz86 发表于 2021-9-19 11:20
+风领主放大招的时候怎么应对啊？
+
+试了一次林薇儿ba能打断，但是只打断了一次
+
+后面怎么都不行了</blockquote>
+堆DPS堆过去呗，这游戏的boss不都是红血之后霸体复读大招吗
+
+
+*****
+
+####  魂淡放我出去  
+##### 5328#       发表于 2021-9-19 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809395&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-19 11:20</a>
+风领主放大招的时候怎么应对啊？
+试了一次林薇儿ba能打断，但是只打断了一次
+后面怎么都不行了</blockquote>
+是的只有那么一次，后面你就只能看她复读
+
+
