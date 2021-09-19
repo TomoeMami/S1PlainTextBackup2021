@@ -6156,3 +6156,17 @@ redfall我感觉应该是b社要求做的。arkane austin现在这个班底都�
 也没说为啥能不失忆
 
 
+
+
+*****
+
+####  fateultraone  
+##### 529#       发表于 2021-9-20 07:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814242&amp;ptid=1972138" target="_blank">ysn132 发表于 2021-9-19 20:29</a>
+
+死亡循环这次在PS5上玩的评价应该会比在PC上玩的好不少，PC上不仅仅是优化拉以及崩溃的问题，还有一些void ...</blockquote>
+ps5好不了多少本来就是void引擎的问题倒不如说ps5是给你帧数固定了所以反而问题少点，这游戏帧数只有完全固定在60帧和120帧下才没有卡顿多一帧少一帧都不行羞辱2一样的问题，ps5只有在分辨率低于1440p的性能模式下才能跑固定60帧玩，其他什么画质，光追模式变动帧数下表现一样一团糟
+
+
