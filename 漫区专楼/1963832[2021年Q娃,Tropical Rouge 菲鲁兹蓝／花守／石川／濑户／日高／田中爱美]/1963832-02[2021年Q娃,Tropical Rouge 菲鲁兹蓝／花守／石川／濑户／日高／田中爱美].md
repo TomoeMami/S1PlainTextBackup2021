@@ -8778,3 +8778,33 @@ image.png
 东映你就不要那么扣，每个季度弄一个多好啊
 
 
+
+
+*****
+
+####  Sliurus  
+##### 2138#       发表于 2021-9-19 23:04
+
+
+ 本帖最后由 Sliurus 于 2021-9-19 23:07 编辑 
+
+确实很有剧场版的味道，无论是分镜还是无双清怪的套路
+
+就是最后那段战斗帧数不足，明明分镜这么赞，太可惜了
+
+意识流那段很神
+
+新玩具的必杀又色又生草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最低人间肥宅  
+##### 2139#       发表于 2021-9-19 23:18
+
+
+这是我能看的小女孩动画吗？（各种意义上）
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

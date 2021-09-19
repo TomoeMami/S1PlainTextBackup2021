@@ -10688,3 +10688,17 @@ mini有多小众？一个情况告诉你：其他机型都到十月底发货了�
 看了你的回帖后我打算把到店自取的星光色128gb  mini退了改成邮寄，发现要10月14日送到上海。果断放弃重新下单了。
 
 
+
+
+*****
+
+####  平井姨夫  
+##### 961#       发表于 2021-9-19 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815651&amp;ptid=2015640" target="_blank">zikimi 发表于 2021-9-19 21:56</a>
+
+有推荐壳的吗？最好支持magsafe，官方去年买了皮革和硅胶的，质量好是好，不过我用的也不爱惜，一年 ...</blockquote>
+某宝凯夫拉克，亮黑的手感最好
+
+
