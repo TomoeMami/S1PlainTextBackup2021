@@ -8597,3 +8597,24 @@ image.png
 这话非常不错。好几年没看q娃这样高兴了
 
 
+
+
+*****
+
+####  leleq  
+##### 2125#       发表于 2021-9-19 18:25
+
+
+雨天出神回！！！近几年最好的一会<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+中原麻衣！我想但觉得绝不可能当Q娃的人之一啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+一开始夏夏拨开罗拉镜子那真美啊 后面睡在一起懂 夏夏复活后2人对望美爆了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+分镜作画不说了无敌还有各种细节小角落的演出田中裕太yyds
+
+海豹被友军误伤应该是系列第一次吧？
+
+最后召唤小象飞踢笑死了（这招叫“大地”考虑到图透还有罗拉c位那是不是有“海洋”呢那海洋是召唤鲸鱼么？）
+
+

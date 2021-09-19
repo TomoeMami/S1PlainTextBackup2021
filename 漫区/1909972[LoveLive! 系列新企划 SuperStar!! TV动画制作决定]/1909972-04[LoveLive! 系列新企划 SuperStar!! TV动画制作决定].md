@@ -8077,3 +8077,342 @@ lielia之歌倒是满有趣的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这集我真蚌埠住了，京极和花田都在搞啥啊
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 5167#       发表于 2021-9-19 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">这集。。。。。。。。。。。。。 演出迷 歌一般 唯一亮点香哥哥的行动力 
+
+
+*****
+
+####  寒风夜  
+##### 5168#       发表于 2021-9-19 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812760&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-19 18:24</a>
+
+这集包括了，谜一样的误会理由，奇怪的物品搜索，玛莎~，学不来eva还要学的哦没得多鼓掌，最后live失忆术， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老路呗？
+
+
+*****
+
+####  player3960  
+##### 5169#       发表于 2021-9-19 18:27
+
+
+果然寄了，哈哈哈，吐血
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Norkey1  
+##### 5170#       发表于 2021-9-19 18:27
+
+
+看完了，还是挺牵强的，理事长一句话的事非得要恋自己领会<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不过弱智归弱智起码圆回来了，不发病就算成功…还有这集live衣服设计感觉不太行，欣赏不来
+
+
+*****
+
+####  待宵  
+##### 5171#       发表于 2021-9-19 18:27
+
+
+中间我还以为要一转冰菓了
+
+
+*****
+
+####  凡人  
+##### 5172#       发表于 2021-9-19 18:28
+
+
+本来想着恋恋入团至少能和堇抱团取暖吧，结果这集看下来像是可香千恋+堇
+
+
+*****
+
+####  寒风夜  
+##### 5173#       发表于 2021-9-19 18:29
+
+
+看来不如水9
+
+
+*****
+
+####  优妮可  
+##### 5174#       发表于 2021-9-19 18:30
+
+
+按任务走剧情，入队，报数，开live完全没那味，强行来的。
+
+
+*****
+
+####  cybernetics31  
+##### 5175#       发表于 2021-9-19 18:30
+
+
+ 本帖最后由 cybernetics31 于 2021-9-19 18:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以为啥要一季塞这么多歌呢 。。。。。。还剩4集啊这 
+
+
+*****
+
+####  player3960  
+##### 5176#       发表于 2021-9-19 18:30
+
+
+这具足虫认真的吗？堇这算又被迫害吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ads147147  
+##### 5177#       发表于 2021-9-19 18:30
+
+
+不要慌，起码第九集就是欢乐的日常➕取名回了，是花田最擅长的类型。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  秋月艾莉  
+##### 5178#       发表于 2021-9-19 18:30
+
+
+香音真卑鄙，还你要站C吗
+
+五人团谁站中间谁就是C啊wwwwwww
+
+
+*****
+
+####  cybernetics31  
+##### 5179#       发表于 2021-9-19 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这还不如水第一季呢 好歹人家9相当好
+
+
+*****
+
+####  cat1230  
+##### 5180#       发表于 2021-9-19 18:31
+
+
+青山姐这配音水准……一堆比鲤鱼还蛮有声优天赋的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+花田大老师压根就没认真写啊，凑数字呢。
+
+只能指望可可线收尾好一些，不然裂啦这片儿可能还不如水团……叔叔英明啊，告诉你们他星团只有3话，已完结。
+
+
+*****
+
+####  a92063256  
+##### 5181#       发表于 2021-9-19 18:31
+
+
+打游戏忘了看生放，这集是又拉了胯吗？
+
+
+*****
+
+####  kata魂  
+##### 5182#       发表于 2021-9-19 18:32
+
+
+天啊
+
+神啊
+
+妈呀
+
+为什么这种剧情还能通过的，制作组整个都没脑子的吗
+
+
+*****
+
+####  寒风夜  
+##### 5183#       发表于 2021-9-19 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812828&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-19 18:31</a>
+
+打游戏忘了看生放，这集是又拉了胯吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看上去是老一套
+
+
+*****
+
+####  寒风夜  
+##### 5184#       发表于 2021-9-19 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812828&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-19 18:31</a>
+
+打游戏忘了看生放，这集是又拉了胯吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看上去是老一套
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5185#       发表于 2021-9-19 18:33
+
+
+早说了星团的核心问题在香音身上<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+什么难题都把香音抬出来卍解，这角色还缺乏主动性，万事灵光一闪，最后不只能落到玛莎这种烂梗上？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 5186#       发表于 2021-9-19 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812828&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-19 18:31</a>
+
+打游戏忘了看生放，这集是又拉了胯吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看上去是老一套
+
+
+*****
+
+####  damian-wade  
+##### 5187#       发表于 2021-9-19 18:33
+
+
+完全不行的一集，其他学生完全是工具人，说不满就不满，说倒戈就倒戈，本来是解决两科矛盾的校会，莫名其妙听她们几个讲什么校园偶像家族史，然后就平息了……之后整个音乐名校，学园祭就围着你们几个人转，太扯了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5188#       发表于 2021-9-19 18:34
+
+
+不自量力咯
+
+
+*****
+
+####  D麦林  
+##### 5189#       发表于 2021-9-19 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812807&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 18:30</a>
+
+所以为啥要一季塞这么多歌呢 。。。。。。还剩4集啊这</blockquote>
+年末就live了 现在不算动画一共就只有一单两首歌 第一季不多塞点到时候live演什么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5190#       发表于 2021-9-19 18:34
+
+
+我看到你们的鬼哭狼嚎了，我还是不看了
+
+
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 5191#       发表于 2021-9-19 18:35
+
+
+LL平均水平的展开，没到不能看的地步，LIVE曲子不错，挺好听的，挺期待这曲子的真人版
+
+
+可恋假药是假的，光速恋恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 5192#       发表于 2021-9-19 18:36
+
+
+白二球入队那集那么快，live像这集一样当ed多好啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5193#       发表于 2021-9-19 18:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情再这样下去堇厨要爆炸了，疯狂迫害，又不给闪光点，互怼也是单方面被骂
+
+
+*****
+
+####  Arccueid  
+##### 5194#       发表于 2021-9-19 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812801&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-19 18:29</a>
+
+看来不如水9</blockquote>
+不是看来，确实不如
+
+
+*****
+
+####  damian-wade  
+##### 5195#       发表于 2021-9-19 18:37
+
+
+整个事件就是卡农一路天启解决，其他人完全挂件，这是什么大女主剧情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+恋一来就说让C，结果还只是双C……然后还在迫害一下民警没C位（下次一定）
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  D麦林  
+##### 5196#       发表于 2021-9-19 18:37
+
+
+不行 受不了了
+
+一开始还只/是感觉全程好像有人按着快进键心想live回赶一点也就赶一点吧
+
+知道会突然解开误会入队 但这误会的产生方式和解开方式都太离谱
+
+直到后来连续两次全体鼓掌真的绷不住了 感觉自己的大脑被强x了
+
+
+*****
+
+####  lj205  
+##### 5197#       发表于 2021-9-19 18:39
+
+
+还是听歌就好了吧
+
+
