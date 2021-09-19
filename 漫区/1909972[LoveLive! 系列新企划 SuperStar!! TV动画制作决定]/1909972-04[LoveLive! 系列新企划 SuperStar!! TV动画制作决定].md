@@ -9996,3 +9996,45 @@ bd下单完毕
 恋怎么变普通科有眉目了吗
 
 
+
+
+*****
+
+####  笋狐  
+##### 5341#       发表于 2021-9-19 22:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，想想小千，恋恋下集一开头就转科，别问，问就是她乐意
+
+
+*****
+
+####  D麦林  
+##### 5342#       发表于 2021-9-19 22:33
+
+
+上集我还觉得未来可期 毕竟上集的主要喷点和主线关系也真的不大
+
+这集我真不知道怎么洗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5343#       发表于 2021-9-19 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52816146&amp;ptid=1909972" target="_blank">dozen 发表于 2021-9-19 22:26</a>
+恋怎么变普通科有眉目了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5344#       发表于 2021-9-19 22:43
+
+
+还没有熟肉，很急
+
+

@@ -8751,3 +8751,30 @@ image.png
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  待宵  
+##### 2136#       发表于 2021-9-19 22:31
+
+
+ 本帖最后由 待宵 于 2021-9-19 22:32 编辑 
+
+抱Q有4和16
+
+
+治Q是真不行，剧情水准一直在线但真没有能吹一吹的战斗
+
+
+*****
+
+####  199april  
+##### 2137#       发表于 2021-9-19 22:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">剧场版级别的作画回，看爽了
+
+东映你就不要那么扣，每个季度弄一个多好啊
+
+
