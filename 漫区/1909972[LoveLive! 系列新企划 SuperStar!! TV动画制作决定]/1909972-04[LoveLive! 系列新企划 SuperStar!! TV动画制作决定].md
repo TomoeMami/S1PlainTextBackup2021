@@ -9327,3 +9327,85 @@ LL平均水平的展开，没到不能看的地步，LIVE曲子不错，挺好�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">鲤鱼唠嗑的时候也说过也很想配其他的动画 现在表现看确实可以试试多往cv走 毕竟歌手更卷
 
 
+
+
+*****
+
+####  fatimagg01  
+##### 5280#       发表于 2021-9-19 19:42
+
+
+她们像女排姑娘们一样拥抱在了一起。。。。。。怎么会突然想起这句话
+
+
+
+
+*****
+
+####  优妮可  
+##### 5281#       发表于 2021-9-19 19:43
+
+
+之前国漫里配过一个路人，过几年等星的工作稳定了应该就可以去尝试别的番了。
+
+
+*****
+
+####  寒风夜  
+##### 5282#       发表于 2021-9-19 19:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">田中仁写过Q娃  带货还是在行
+
+
+*****
+
+####  ads147147  
+##### 5283#       发表于 2021-9-19 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813550&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 19:39</a>
+鲤鱼唠嗑的时候也说过也很想配其他的动画 现在表现看确实可以试试多往cv走 毕竟歌手更卷 ...</blockquote>
+水树那条路挺难走的。。专注cv可能还好点。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 5284#       发表于 2021-9-19 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813573&amp;ptid=1909972" target="_blank">fatimagg01 发表于 2021-9-19 19:42</a>
+她们像女排姑娘们一样拥抱在了一起。。。。。。怎么会突然想起这句话</blockquote>
+花田惯例抄体育番的路子，结果还是四不像。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Blackson  
+##### 5285#       发表于 2021-9-19 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813472&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-19 19:30</a>
+
+每次总是矛盾的产生和解决不合理
+
+我懂了 建议之后给ll加入钢普拉战斗环节
+
+你看这两次和恋恋交锋 如果改成第 ...</blockquote>
+前几天看的奥尔加x水团的二创，就是加入了钢普拉战斗环节
+
+
+*****
+
+####  笋狐  
+##### 5286#       发表于 2021-9-19 19:57
+
+
+如果一个女学生是黑长直，外表看上去像是大和抚子系，家里似乎很有钱是学校的创立者，老妈过世老爸飞去海外不管事，所以重担都压到了身为学生会长的她身上，而她还整天一副苦大仇深的样子，同样有一个橘色头发的元气系少女来帮她走出困境，那么这个角色一定是…………蓝原芽衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

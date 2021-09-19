@@ -11365,3 +11365,74 @@ cnm我不想打了，这什么傻逼**明雷啊做得还不如一些给避怪手
 当然40打60支线还是不现实的
 
 
+
+
+*****
+
+####  regular  
+##### 5358#       发表于 2021-9-19 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812365&amp;ptid=1860328" target="_blank">peh 发表于 2021-9-19 17:45</a>
+
+cnm我不想打了，这什么傻逼**明雷啊做得还不如一些给避怪手段的暗雷，道中回复手段仅限有限的药和cp ...</blockquote>
+躲不过进战斗那就逃跑，逃了怪就没了，可开心了。
+
+
+红箱子才是防具，蓝的都是药什么的。
+
+
+*****
+
+####  qiyu1234  
+##### 5359#       发表于 2021-9-19 19:56
+
+
+本作编剧是 奥田孝明和平岡鉄太郎
+
+前者参与了TOV 第三部分的剧本以及TOV小说版的编写
+
+后者在万南工作室也呆了不少时间，之前主要活动内容是社交游戏
+
+
+*****
+
+####  无动于衷  
+##### 5360#       发表于 2021-9-19 19:57
+
+
+除了那些个堵门堵死的怪物 最终迷宫很多地方都是可以逃课的
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 5361#       发表于 2021-9-19 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813689&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-19 19:56</a>
+
+本作编剧是 奥田孝明和平岡鉄太郎
+
+前者参与了TOV 第三部分的剧本以及TOV小说版的编写
+
+后者在万南工作室也呆 ...</blockquote>
+社交游戏是指手游吗
+
+
+*****
+
+####  alucardcz  
+##### 5362#       发表于 2021-9-19 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813689&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-19 19:56</a>
+
+本作编剧是 奥田孝明和平岡鉄太郎
+
+前者参与了TOV 第三部分的剧本以及TOV小说版的编写
+
+后者在万南工作室也呆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这  tov最拉的不就是第3部吗
+
+
