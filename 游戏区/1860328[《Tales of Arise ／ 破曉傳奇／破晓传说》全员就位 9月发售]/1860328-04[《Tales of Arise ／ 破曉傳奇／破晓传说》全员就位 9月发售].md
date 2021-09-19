@@ -11301,3 +11301,31 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 后面打地水风的那三个精灵还是有点难度的，当然前提是你混沌难度40级去打……级别装备上去后依然轻松
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5353#       发表于 2021-9-19 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812365&amp;ptid=1860328" target="_blank">peh 发表于 2021-9-19 17:45</a>
+
+cnm我不想打了，这什么傻逼**明雷啊做得还不如一些给避怪手段的暗雷，道中回复手段仅限有限的药和cp ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些一堆怪在一起占满了整个通道 根本避不了 只能逃 圣气瓶也没了
+
+
+*****
+
+####  shiko  
+##### 5354#       发表于 2021-9-19 18:20
+
+
+<blockquote>hkguty 发表于 2021-9-19 17:02
+似乎有点儿伏笔留了下来，感觉这世界观，是不是也可以像TOZ、TOB那样出个千年前的前传 ...</blockquote>
+感觉只是强行为了让男主也原谅雷纳找个理由
+
+
+其实我觉得真大可不必，这么多国仇家恨，到最后居然连一个终极背锅侠都没有。
+
+

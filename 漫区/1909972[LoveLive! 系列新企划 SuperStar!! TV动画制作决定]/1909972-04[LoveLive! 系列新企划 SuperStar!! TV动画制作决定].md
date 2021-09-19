@@ -7447,3 +7447,633 @@ LL直播在哪儿看，只知道魔纪在蓝原那儿，星团他播不播啊？
 求个直播地址啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 5104#       发表于 2021-9-19 18:02
+
+
+岳父居然还活着，在海外，难道追飞机其实是恋恋。。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  离心  
+##### 5105#       发表于 2021-9-19 18:02
+
+
+恋爸在海外啊，艹也太不负责了
+
+
+*****
+
+####  Norkey1  
+##### 5106#       发表于 2021-9-19 18:03
+
+
+YY 直播间 1354822109
+
+
+*****
+
+####  离心  
+##### 5107#       发表于 2021-9-19 18:07
+
+
+果然啊
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5108#       发表于 2021-9-19 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">恋的话一多，棒读感就更明显了
+
+
+*****
+
+####  新HGCG  
+##### 5109#       发表于 2021-9-19 18:09
+
+
+原来这个学校曾经废校过一次，恋妈当时为了拯救学校发起了校园偶像活动然后失败了
+
+
+*****
+
+####  寒风夜  
+##### 5110#       发表于 2021-9-19 18:09
+
+
+箱子会有日记还什么
+
+
+*****
+
+####  笋狐  
+##### 5111#       发表于 2021-9-19 18:09
+
+
+ 本帖最后由 笋狐 于 2021-9-19 18:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这理由....花田你认真的吗，别和我说女儿以前费了半天找不到偏偏被4人找到了啊
+
+
+*****
+
+####  ads147147  
+##### 5112#       发表于 2021-9-19 18:09
+
+
+恋妈在缪之前就在当学院偶像了啊，说起来缪本来也是看别人的活动才想弄的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5113#       发表于 2021-9-19 18:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">找不到老妈的学园偶像相关回忆→怎么会事呢→学园偶像⑧行，原来是这个原因
+
+
+*****
+
+####  寒风夜  
+##### 5114#       发表于 2021-9-19 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812569&amp;ptid=1909972" target="_blank">新HGCG 发表于 2021-9-19 18:09</a>
+
+原来这个学校曾经废校过一次，恋妈当时为了拯救学校发起了校园偶像活动然后失败了 ...</blockquote>
+典 
+
+
+*****
+
+####  ads147147  
+##### 5115#       发表于 2021-9-19 18:10
+
+
+恋恋讨厌偶像的原因，妈妈当初组团想要救校失败，没救成失败了
+恋恋找遍全校和家里，都没有找到任何和学院偶像有关的资料和照片，明明其他所有的活动记录都能找到，所以恋恋觉得，妈妈对学院偶像后悔了，所以坚决反对偶像
+
+花田这个理由。。。是认真的吗？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  没有爱就看不见  
+##### 5116#       发表于 2021-9-19 18:11
+
+
+太蠢了这理由
+
+
+*****
+
+####  新HGCG  
+##### 5117#       发表于 2021-9-19 18:11
+
+
+发现主线道具“恋妈的回忆”？
+
+
+*****
+
+####  新HGCG  
+##### 5118#       发表于 2021-9-19 18:11
+
+
+发现主线道具“恋妈的回忆”？
+
+
+*****
+
+####  寒风夜  
+##### 5119#       发表于 2021-9-19 18:12
+
+
+所以箱子 就是了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5120#       发表于 2021-9-19 18:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太蠢了，果然被香音找到了
+
+
+*****
+
+####  Arccueid  
+##### 5121#       发表于 2021-9-19 18:12
+
+
+钥匙这个情节太弱智了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  ads147147  
+##### 5122#       发表于 2021-9-19 18:12
+
+
+果然不能期待花田写人物冲突，现在普通班和音乐班的冲突完全无法拉回来。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  新HGCG  
+##### 5123#       发表于 2021-9-19 18:13
+
+
+发现主线道具“恋妈的回忆”？
+
+
+*****
+
+####  Troy_VoV  
+##### 5124#       发表于 2021-9-19 18:13
+
+
+花田十辉，死刑<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5125#       发表于 2021-9-19 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812603&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-19 18:12</a>
+
+太蠢了，果然被香音找到了</blockquote>
+不就 这一套嘛
+
+
+*****
+
+####  Troy_VoV  
+##### 5126#       发表于 2021-9-19 18:14
+
+
+这道歉，真日本啊
+
+
+*****
+
+####  ads147147  
+##### 5127#       发表于 2021-9-19 18:14
+
+
+还好，只是弱智，没到冈田磨里那种程度。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 5128#       发表于 2021-9-19 18:14
+
+
+算了 弱智就弱智，图一乐
+
+香音的转变也是太生硬了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5129#       发表于 2021-9-19 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">正经人谁写日记啊，我当学园偶像很高兴难道就得记录下来？
+
+
+*****
+
+####  笋狐  
+##### 5130#       发表于 2021-9-19 18:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完了个蛋，剧情不幸言中，演出还比想象的拉跨
+
+
+
+
+*****
+
+####  寒风夜  
+##### 5131#       发表于 2021-9-19 18:15
+
+
+看你们说我就知道 什么了
+
+
+*****
+
+####  平贺才人  
+##### 5132#       发表于 2021-9-19 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，太太越看越像梨子
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5133#       发表于 2021-9-19 18:16
+
+
+槽点满满
+
+
+*****
+
+####  Arccueid  
+##### 5134#       发表于 2021-9-19 18:16
+
+
+青山的CV演出也是灾难性的我只能说<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5135#       发表于 2021-9-19 18:16
+
+
+哦莫得都
+
+
+*****
+
+####  ads147147  
+##### 5136#       发表于 2021-9-19 18:16
+
+
+你说了我妈妈说过的话，所以我认了jpg
+
+学园偶像的玛莎梗（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5137#       发表于 2021-9-19 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以妈妈都说了是最好的回忆了，为啥一定要找到？找不到就觉得有问题？
+
+
+*****
+
+####  寒风夜  
+##### 5138#       发表于 2021-9-19 18:17
+
+
+就套路呗 明白
+
+
+*****
+
+####  Arccueid  
+##### 5139#       发表于 2021-9-19 18:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812660&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-19 18:16</a>
+
+所以妈妈都说了是最好的回忆了，为啥一定要找到？找不到就觉得有问题？ ...</blockquote>
+不要细想，看就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 5140#       发表于 2021-9-19 18:17
+
+
+不行，太弱智了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5141#       发表于 2021-9-19 18:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812655&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-19 18:16</a>
+
+青山的CV演出也是灾难性的我只能说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几集别人说棒读我还没太大感觉，这集话一多我就蚌埠住了
+
+
+*****
+
+####  95jiuwu  
+##### 5142#       发表于 2021-9-19 18:17
+
+
+这集真的难看啊，冲突理由太牵强了吧。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  新HGCG  
+##### 5143#       发表于 2021-9-19 18:17
+
+
+欢迎欢迎
+
+
+*****
+
+####  ads147147  
+##### 5144#       发表于 2021-9-19 18:18
+
+
+不如贴吧吧友假药jpg
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 5145#       发表于 2021-9-19 18:18
+
+
+ 本帖最后由 Arccueid 于 2021-9-19 18:20 编辑 
+
+不过终于入团了，看看团齐之后的故事吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看来这季收尾是学园祭了吗，哦看来不是，只是9集live吧
+
+
+*****
+
+####  ads147147  
+##### 5146#       发表于 2021-9-19 18:19
+
+
+4~8集就当不存在吧。1~3，直接跳后面追飞机好了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5147#       发表于 2021-9-19 18:19
+
+
+噗又鼓掌，绷不住了。
+
+
+*****
+
+####  离心  
+##### 5148#       发表于 2021-9-19 18:19
+
+
+这拍手我麻了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5149#       发表于 2021-9-19 18:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">这演出什么鬼啊
+
+
+*****
+
+####  Troy_VoV  
+##### 5150#       发表于 2021-9-19 18:19
+
+
+欢迎欢迎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平贺才人  
+##### 5151#       发表于 2021-9-19 18:19
+
+
+立马就恋恋了。。
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5152#       发表于 2021-9-19 18:19
+
+
+恋恋上线<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5153#       发表于 2021-9-19 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看 你们 说没什么  烂活 就 憨呗
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5154#       发表于 2021-9-19 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">你可以永远相信花田
+
+
+*****
+
+####  ads147147  
+##### 5155#       发表于 2021-9-19 18:21
+
+
+叔叔是为了大家好，光看1~3可香就好了，后面什么玩意。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 5156#       发表于 2021-9-19 18:22
+
+
+青山到了唱歌的部分真的挺值得信赖的，虽然没小百合那么夸张。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 5157#       发表于 2021-9-19 18:22
+
+
+有个LIVE看还不错，前面的剧情已经忘了
+
+LIVE还可以
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5158#       发表于 2021-9-19 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">live感觉也一般，咋回事
+
+
+*****
+
+####  离心  
+##### 5159#       发表于 2021-9-19 18:24
+
+
+ll平均水平，但演出太灾难了
+
+
+*****
+
+####  笋狐  
+##### 5160#       发表于 2021-9-19 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我早说了恋这棒读比可可这外国人听着还违和
+
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5161#       发表于 2021-9-19 18:24
+
+
+nhk的ed还挺有意思的
+
+
+*****
+
+####  ads147147  
+##### 5162#       发表于 2021-9-19 18:24
+
+
+这集包括了，谜一样的误会理由，奇怪的物品搜索，玛莎~，学不来eva还要学的哦没得多鼓掌，最后live失忆术，非常花田十辉。
+
+下一集取团队名。
+
+可香天下第一！！
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  离心  
+##### 5163#       发表于 2021-9-19 18:25
+
+
+lielia之歌倒是满有趣的
+
+
+*****
+
+####  寒风夜  
+##### 5164#       发表于 2021-9-19 18:25
+
+
+看来就是  老一套咯
+
+
+*****
+
+####  tjshibc21  
+##### 5165#       发表于 2021-9-19 18:26
+
+
+这歌还不如后面那个nhk特供了
+
+
+*****
+
+####  soranoguiji  
+##### 5166#       发表于 2021-9-19 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这集我真蚌埠住了，京极和花田都在搞啥啊
+
+
