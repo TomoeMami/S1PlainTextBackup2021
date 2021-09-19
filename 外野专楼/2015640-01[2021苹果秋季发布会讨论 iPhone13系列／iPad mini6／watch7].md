@@ -10702,3 +10702,28 @@ mini有多小众？一个情况告诉你：其他机型都到十月底发货了�
 某宝凯夫拉克，亮黑的手感最好
 
 
+
+
+*****
+
+####  madbird302  
+##### 962#       发表于 2021-9-20 02:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52816499&amp;ptid=2015640" target="_blank">Sangria 发表于 2021-9-19 22:55</a>
+
+mini有多小众？一个情况告诉你：其他机型都到十月底发货了，13mini 18号下午下单还是9月24日送达。
+
+ ...</blockquote>
+18号我就见过7-10天的，今天又变成4-6周了，不过工厂肯定在加班了
+
+
+*****
+
+####  承尘  
+##### 963#       发表于 2021-9-20 05:30
+
+
+mini6有推荐的壳吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+

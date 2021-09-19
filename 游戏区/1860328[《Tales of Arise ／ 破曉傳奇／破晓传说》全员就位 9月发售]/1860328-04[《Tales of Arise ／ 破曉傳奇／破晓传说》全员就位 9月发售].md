@@ -11745,3 +11745,121 @@ FF那边 野岛一成这种也不是SE的社员
 这最终章的迷宫……不如像ff7那样直接演出接着boss战连战得了……制作组做这迷宫打换皮怪不会以为拖时间很好玩吧。玩家忍受了很久的粪流程还得忍受你这演出，最后机械降神强行皆大欢喜的好结局，完全就是为了大团圆而大团圆。也没有日后谈这种发糖的，就结尾两张图敷衍过去……
 
 
+
+
+*****
+
+####  武者小路紫苑  
+##### 5386#       发表于 2021-9-20 01:48
+
+
+之前上班太累，进度很慢，这次放假第一天狂肝10个小时，现在到第六章五个国家连通，把能做的支线都做完了。
+
+
+一目十行爬了一下楼，感觉想说的都被说的差不多了：缺点是剧情充满JRPG臭，布景空虚，全员赶时间导致NPC和城市缺少记忆点；优点是CP很稳，六个队友正好三对BG应该是系列史上唯一一遭，你问我支不支持我是很支持的，反正TOZ和TOX2兄结局这种男同屎我这辈子不想再吃第二次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+虽然很多人吐槽BOSS战设计有问题，但是我倒觉得还好，主要是比之前几作更强调机制处理，有点网游味道，放在传说系列里还挺新颖的。
+
+
+另外点名表扬双人终结技。我打了500多场战斗，几乎平均每场要看一次以上终结技，但是至今都没看腻，永远是有就必按。只能说BN把双人终结技的速度感和打击感都做到极致了，这点确实是传说系列的看家本事。相比之下秘奥义系统倒是有点边缘化。
+
+
+装备系统感觉没啥深挖的地方，有点可惜。不过大多数蓝海玩家应该不会喜欢GF那种又烧钱又耗脑又废肝的装备合成系统吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 5387#       发表于 2021-9-20 02:10
+
+
+ 本帖最后由 Bani82 于 2021-9-20 02:14 编辑 
+
+法师复读怎么玩？一个AOE反复放？还是有什么别的操作？
+
+
+进入最后刷白金阶段了，求点快速复读套路
+
+
+*****
+
+####  whzfjk  
+##### 5388#       发表于 2021-9-20 02:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814979&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-19 21:15</a>
+
+那意思是绯红结系剧情值得一看？</blockquote>
+故事结构比较有野心，但塑料政治观感难受，男女主角都没立起来（其实 TOAR 两个人放过去正好），其他角色个性与动机都很不突出。
+
+
+*****
+
+####  名字已被吃  
+##### 5389#       发表于 2021-9-20 02:19
+
+
+普通难度刚打完水将，打他觉醒后都战斗把我恶心吐了，我悟了，后面boss我直接开简单难度得了，赶紧打完飞盘<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  希望之异热同心  
+##### 5390#       发表于 2021-9-20 02:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817865&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-20 02:10</a>
+法师复读怎么玩？一个AOE反复放？还是有什么别的操作？
+
+
+进入最后刷白金阶段了，求点快速复读套路</blockquote>
+放一个ag2技能+平a3下就能进入最快加速，然后不断复读ag4技能，没ag了就按十字键补充一下，ba打空了就躲避，躲避不会取消加速状态，等ag回起来继续复读，打boss也可以雷阵传说不过容易扑街
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Bani82  
+##### 5391#       发表于 2021-9-20 02:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817896&amp;ptid=1860328" target="_blank">希望之异热同心 发表于 2021-9-20 02:19</a>
+
+放一个ag2技能+平a3下就能进入最快加速，然后不断复读ag4技能，没ag了就按十字键补充一下，ba打空了就躲 ...</blockquote>
+THX~之前没仔细看怎么加速，原来如此
+
+
+*****
+
+####  Bani82  
+##### 5392#       发表于 2021-9-20 02:48
+
+
+魔武器成长怎么算的？是不是先要去刷一堆低级怪？
+
+
+*****
+
+####  六至九  
+##### 5393#       发表于 2021-9-20 03:00
+
+
+唉，买了究极版也不说啥了，就是又掏一百多买的bgm包有些亏
+
+
+*****
+
+####  secretgarnet  
+##### 5394#       发表于 2021-9-20 03:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817976&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-20 02:48</a>
+
+魔武器成长怎么算的？是不是先要去刷一堆低级怪？</blockquote>
+魔武器按装备中的杀敌数算成长，一只好像+10还是+11，直接去修炼场初级刷就ok，不过听说到9999要刷很久
+
+
