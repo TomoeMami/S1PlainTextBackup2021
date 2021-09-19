@@ -15545,3 +15545,14 @@ id X，支援感觉能用的上的都放上了
 谢谢大佬一直以来的帮助，一路顺风，好好享受其他游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83803#       发表于 2021-9-20 06:56
+
+
+艹，周年以来坚持一付费石单抽，今天终于出货了，但是为什么是阿脚呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
