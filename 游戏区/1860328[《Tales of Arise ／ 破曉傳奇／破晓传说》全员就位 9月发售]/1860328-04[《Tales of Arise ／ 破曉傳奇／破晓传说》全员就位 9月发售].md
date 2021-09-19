@@ -11153,3 +11153,48 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 希侬有几个配装太好看了
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 5341#       发表于 2021-9-19 15:13
+
+
+这火焰巨人的设计是有病吧
+
+到底是多懒，多不想做，才能做出这种boss战<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5342#       发表于 2021-9-19 15:17
+
+
+ 本帖最后由 alucardcz 于 2021-9-19 15:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏感觉后面各方面都做崩了...包括战斗系统  hard后面打boss和路上大怪也没有什么区别 都是复读碾压    也就前期还能有点“来回”
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最看不懂的还是打完boss要我自己走回去是什么套路  退1万步走回去也就算了。。怪还刷新了什么鬼。。拖时间拖的这么明目张胆的吗
+
+
+*****
+
+####  红魔馆的糖  
+##### 5343#       发表于 2021-9-19 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811121&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-19 15:17</a>
+这游戏感觉后面各方面都做崩了...包括战斗系统  hard后面打boss和路上大怪也没有什么区别 都是复读 ...</blockquote>
+大植物和火山那两段打的一直哈欠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大小白帝  
+##### 5344#       发表于 2021-9-19 15:24
+
+
+这种高清画面作缩水不是很正常吗，倒不如说水国后面可以直接视作二周目了（
+
+
