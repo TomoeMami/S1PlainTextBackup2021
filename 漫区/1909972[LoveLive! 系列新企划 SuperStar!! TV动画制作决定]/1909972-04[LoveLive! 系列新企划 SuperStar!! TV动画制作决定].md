@@ -10197,3 +10197,40 @@ kano找了下就找到了恋你是不是没有认真找啊，明明听着母亲�
 题外话，从虹开始一直整剪辑好活的那位好像被这集气得弃番了
 
 
+
+
+*****
+
+####  Arccueid  
+##### 5357#       发表于 2021-9-20 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817179&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-20 00:12</a>
+
+题外话，从虹开始一直整剪辑好活的那位好像被这集气得弃番了</blockquote>
+哪位
+
+
+*****
+
+####  优妮可  
+##### 5358#       发表于 2021-9-20 00:29
+
+
+<blockquote>Arccueid 发表于 2021-9-20 00:28
+哪位</blockquote>
+星无吧
+
+
+*****
+
+####  Arccueid  
+##### 5359#       发表于 2021-9-20 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817297&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-20 00:29</a>
+
+星无吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">噢
+
+

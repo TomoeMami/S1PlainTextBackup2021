@@ -15521,3 +15521,27 @@ id X，支援感觉能用的上的都放上了
 才注意到结晶又没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还需要发20个才够啊
 
 
+
+
+*****
+
+####  w-pluto  
+##### 83801#       发表于 2021-9-20 00:22
+
+
+4年来心境变化很大，终于玩不下去，把号卖掉了。游戏里的泥潭好友好像只有khxooo，请把我删掉吧。我经常看你的助战的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83802#       发表于 2021-9-20 00:25
+
+
+ 本帖最后由 khxooo 于 2021-9-20 00:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817241&amp;ptid=1085254" target="_blank">w-pluto 发表于 2021-9-20 00:22</a>
+
+4年来心境变化很大，终于玩不下去，把号卖掉了。游戏里的泥潭好友好像只有khxooo，请把我删掉吧。我经常看 ...</blockquote>
+谢谢大佬一直以来的帮助，一路顺风，好好享受其他游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
