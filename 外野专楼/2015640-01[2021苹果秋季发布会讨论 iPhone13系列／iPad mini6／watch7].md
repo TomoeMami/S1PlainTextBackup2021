@@ -10470,3 +10470,43 @@ mini5 203.2 x 134.8 x 6.1mm
 也要真机开模吧，还没倒模怎么出壳
 
 
+
+
+*****
+
+####  Rockzero  
+##### 943#       发表于 2021-9-19 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52807634&amp;ptid=2015640" target="_blank">宮脇咲良 发表于 2021-9-19 02:20</a>
+
+什么型号?13的话应该问题不大 至于PRO和MAX嘛
+
+并夕夕不到最后一刻谁知道啊 如果无理由退货少导致的后封货 ...</blockquote>
+买的是13 512G，目前还没被砍
+
+我是第二次在拼多多购物，听到一种说法是官方会优先保新号的单？
+
+不过30号没到也不好说，手机壳都在路上了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫不萌  
+##### 944#       发表于 2021-9-19 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809352&amp;ptid=2015640" target="_blank">mrlunzer 发表于 2021-9-19 11:15</a>
+麻了，并夕夕马云逛了一圈只有mini6的膜没有mini6的壳，说好的华强北速度世界第一呢 ...</blockquote>
+我反正坐等tomtac的横竖立壳了，太早买，壳子不太好选只能上官方的双面夹
+
+
+*****
+
+####  cybernetics31  
+##### 945#       发表于 2021-9-19 13:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">壳发货了…………手机应该也能早点发了
+
+

@@ -15459,3 +15459,17 @@ id X，支援感觉能用的上的都放上了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qixinno2  
+##### 83796#       发表于 2021-9-19 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809545&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-19 11:39</a>
+
+欧 羡慕 萌新一个4星都没抽到 合理吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但你抽到了伽摩 狗
+
+

@@ -8448,3 +8448,23 @@ image.png
 —— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2112#       发表于 2021-9-19 12:50
+
+
+这魔女和传说Q娃是不是也可能要映射萝拉真夏，萝拉可能会面对和魔女同样的选择困境之类的。总之，这话太精彩了
+
+
+*****
+
+####  暗黑能乐  
+##### 2113#       发表于 2021-9-19 13:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有这话真夏有个奥特曼变身太搞了
+
+
