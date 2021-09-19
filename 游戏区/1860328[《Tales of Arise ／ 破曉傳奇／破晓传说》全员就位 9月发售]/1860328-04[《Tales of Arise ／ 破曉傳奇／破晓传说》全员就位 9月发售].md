@@ -11198,3 +11198,33 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 这种高清画面作缩水不是很正常吗，倒不如说水国后面可以直接视作二周目了（
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5345#       发表于 2021-9-19 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811135&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-19 15:19</a>
+
+大植物和火山那两段打的一直哈欠</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面打什么boss都一个样  随便你干什么我反正就复读 然后boss死了
+
+
+*****
+
+####  secretgarnet  
+##### 5346#       发表于 2021-9-19 15:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52810117&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-19 12:47</a>
+
+话说你们法师都复读的啥技能。激光（圣光镭射）？
+
+后面出的瞬星射击 天赐之剑复读效果不好吗？</blockquote>
+圣光镭射AG消耗低，但复读的话还是天赐之剑好，发动快范围大追踪强；单纯论伤害的话瞬星射击和雷阵高（全吃的话，雷阵还得加上敌人体型较大这个前提），所以倒地的时候可以用。
+
+主玩法师的话到后面可以考虑给男主配一个带4条BG+8%词条的五级饰品，基本可以用火焰剑把对面一直摁在地上，这时候复读啥区别就不大了
+
+

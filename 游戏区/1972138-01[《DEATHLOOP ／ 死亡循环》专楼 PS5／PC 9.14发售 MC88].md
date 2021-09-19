@@ -5667,3 +5667,26 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 见到火箭了怎么又是密码挡道，喷了，一串接着一串
 
 
+
+
+*****
+
+####  Keynes  
+##### 492#       发表于 2021-9-19 15:27
+
+
+打了“完美的一天”结局了，感觉这游戏有点高开低走了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  415452356  
+##### 493#       发表于 2021-9-19 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811199&amp;ptid=1972138" target="_blank">Keynes 发表于 2021-9-19 15:27</a>
+
+打了“完美的一天”结局了，感觉这游戏有点高开低走了</blockquote>
+  这游戏的本质是就是一个表面模仿重启光头47，实质上是一个伪装的很好的线性游戏，等你发现的时候已经马上要通关了
+
+
