@@ -8380,3 +8380,17 @@ image.png
 这集Q娃是我能免费在电视上看的么
 
 
+
+
+*****
+
+####  kerfars  
+##### 2107#       发表于 2021-9-19 08:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">太强了，这集各种镜头感一气呵成，虽然能感觉帧数不足，但是打起来非常畅快！！！
+
+
+魔女和传说Q娃有段往事，今年老女人们（？）都有黑历史啊
+
+

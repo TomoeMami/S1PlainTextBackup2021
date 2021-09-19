@@ -1883,3 +1883,14 @@ Switch要考虑有Switch Lite存在，不可能弄成Switch专属的特异性游
 还有一个很令人在意的点就是，萨姐看起来是直接摸着母脑就吸取了母脑的能量，既然萨姐因为密特罗德的基因获取了怕冷和不怕寄生物x的特性，那会不会她也继承了吸取能量这个密特罗德最大的特点？没准萨姐就是这世上最后一个密特罗德？反正鸟人族语言里的“密特罗德”就是最强的战士的意思，还能顺便呼应标题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  otakun  
+##### 153#       发表于 2021-9-19 08:31
+
+
+佩妮的单人关分数成就打了十多次才完成，要被加速的BGM**了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
