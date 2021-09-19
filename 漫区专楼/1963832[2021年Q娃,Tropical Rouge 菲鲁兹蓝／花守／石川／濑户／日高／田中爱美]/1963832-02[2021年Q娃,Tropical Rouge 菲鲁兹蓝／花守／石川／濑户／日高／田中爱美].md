@@ -8648,3 +8648,14 @@ image.png
 嗯……人鱼有奶也哺乳啊（大概）……那就之前罗拉说过的大过蓝鲸的大王乌贼？好像不错来个触手抽大耳光<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  adsn  
+##### 2128#       发表于 2021-9-19 19:07
+
+
+一整集都给我一种看剧场版的错觉，作画也好剧情也好都是神回<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+

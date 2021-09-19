@@ -8706,3 +8706,475 @@ LL平均水平的展开，没到不能看的地步，LIVE曲子不错，挺好�
 [https://www.youtube.com/watch?v=1mZ6KrgfjVc](https://www.youtube.com/watch?v=1mZ6KrgfjVc) 来听可可solo
 
 
+
+
+*****
+
+####  lanslort  
+##### 5225#       发表于 2021-9-19 19:01
+
+
+真不如水，水日常无聊了点细节做得不好但主线还是可以的。果南只是自己不当偶像了都能挨一巴掌，恋仗着二代的身份拉着全校学生陪她折腾的巨婴行为怎么也得挨三下<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 5226#       发表于 2021-9-19 19:02
+
+
+演出也不行啊，太尬了，一群学生鼓掌，还tm两次。理事长乐子人，多说一点会死吗？上一集你还可以说爆点多，这一集全给你忽略掉了。最后又给你来个唐突恋恋。麻了，新歌不做评价蛮普通的。亮点还是在最后的lielia之歌还有趣的。小千可爱
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5227#       发表于 2021-9-19 19:03
+
+
+<img src="https://img.saraba1st.com/forum/202109/19/190256cqhxvuha7uhhdcf9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (139.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-19 19:02 上传
+
+
+希望花田没事.jpg
+
+
+*****
+
+####  Arccueid  
+##### 5228#       发表于 2021-9-19 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813143&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-19 19:01</a>
+
+真不如水，水日常无聊了点细节做得不好但主线还是可以的。果南只是自己不当偶像了都能挨一巴掌，恋仗着二代 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">给我感觉就是摆烂了，前面的铺垫全不管了，香音嘴炮之后全员理解和解了
+
+
+*****
+
+####  cybernetics31  
+##### 5229#       发表于 2021-9-19 19:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 可可这首开头是中文。。。。。。好嘛。。。完全听不出
+
+
+*****
+
+####  shine888kire  
+##### 5230#       发表于 2021-9-19 19:06
+
+
+现在看下来的感觉是他们想复刻当初谬的路线，但他们也没理清楚当初谬为什么就起来了，所以就套路复刻，起得来也好，起不来就转水团路线，反正这次中之人抽得相当不错，肯定不会亏
+
+
+*****
+
+####  a92063256  
+##### 5231#       发表于 2021-9-19 19:07
+
+
+这歌开头那几句一听就感觉是中文，但是还听不懂是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就很怪，反复听了好几遍才听出来心跳在悦动幸福满天空
+
+
+*****
+
+####  寒风夜  
+##### 5232#       发表于 2021-9-19 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813148&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-19 19:02</a>
+
+演出也不行啊，太尬了，一群学生鼓掌，还tm两次。理事长乐子人，多说一点会死吗？上一集你还可以说爆点多， ...</blockquote>
+就 敷衍呗
+
+
+*****
+
+####  寒风夜  
+##### 5233#       发表于 2021-9-19 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813148&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-19 19:02</a>
+
+演出也不行啊，太尬了，一群学生鼓掌，还tm两次。理事长乐子人，多说一点会死吗？上一集你还可以说爆点多， ..</blockquote>
+
+
+*****
+
+####  寒风夜  
+##### 5234#       发表于 2021-9-19 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813191&amp;ptid=1909972" target="_blank">shine888kire 发表于 2021-9-19 19:06</a>
+
+现在看下来的感觉是他们想复刻当初谬的路线，但他们也没理清楚当初谬为什么就起来了，所以就套路复刻，起得 ...</blockquote>
+没毛病
+
+
+*****
+
+####  秋月艾莉  
+##### 5235#       发表于 2021-9-19 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813032&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-19 18:51</a>
+
+可惜唱歌的时候没凹声线，这大概是ll第一个不用角色声线唱歌的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掐还是掐了的，听live可以听出跟鲤鱼自己唱歌还是有些不同，不过可可的音高了点不太把握的住有时又滑回来了
+
+
+*****
+
+####  JustW  
+##### 5236#       发表于 2021-9-19 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813148&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-19 19:02</a>
+
+演出也不行啊，太尬了，一群学生鼓掌，还tm两次。理事长乐子人，多说一点会死吗？上一集你还可以说爆点多， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">没看生放，所以可可是突然就开始喊恋恋了嘛
+
+
+*****
+
+####  ads147147  
+##### 5237#       发表于 2021-9-19 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813191&amp;ptid=1909972" target="_blank">shine888kire 发表于 2021-9-19 19:06</a>
+现在看下来的感觉是他们想复刻当初谬的路线，但他们也没理清楚当初谬为什么就起来了，所以就套路复刻，起得 ...</blockquote>
+精准概括。
+
+大不了一转2.99次元，或者游戏里补糖。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  永恒的王牌  
+##### 5238#       发表于 2021-9-19 19:09
+
+
+欸，那什么，飞机追出新意就算成功.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5239#       发表于 2021-9-19 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813230&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-19 19:09</a>
+没看生放，所以可可是突然就开始喊恋恋了嘛</blockquote>
+突然转的，不过也不算没铺垫，因为恋很早就来道歉，大家就是单纯是理解了对方苦衷。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  凡人  
+##### 5240#       发表于 2021-9-19 19:10
+
+
+可香党赢了又赢，前三集虽然不是完美无瑕但最后有双人live让情绪彻底释放，接下来的可可回不管有多烂只要躺着数糖就行了。
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5241#       发表于 2021-9-19 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813230&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-19 19:09</a>
+
+没看生放，所以可可是突然就开始喊恋恋了嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是的，一入队直接恋恋。
+
+
+*****
+
+####  ads147147  
+##### 5242#       发表于 2021-9-19 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813239&amp;ptid=1909972" target="_blank">永恒的王牌 发表于 2021-9-19 19:09</a>
+欸，那什么，飞机追出新意就算成功.jpg</blockquote>
+我也不求有新意了，来一个“你夺走了我的心”的呼应句我就当花田用心了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JustW  
+##### 5243#       发表于 2021-9-19 19:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">都是一场误会.jpg
+
+
+*****
+
+####  笋狐  
+##### 5244#       发表于 2021-9-19 19:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">现在只能祈祷个人回希望可可人没事了
+
+
+*****
+
+####  离心  
+##### 5245#       发表于 2021-9-19 19:12
+
+
+ 本帖最后由 离心 于 2021-9-19 19:14 编辑 
+
+我始终认为ll系列剧情大纲是没问题的，但细节和打磨的不同导致观感的差异不同。水水剧情大纲我是认可的，但细节和支线太糟糕了。星团同理，商业味太重了。唉……等虹二了看看田中仁能不能完成13话卖碟顺带塑造13人的壮举了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 5246#       发表于 2021-9-19 19:12
+
+
+我因为后面太sb了所以没太注意剧情，恋是怎么变成普通科的
+
+
+*****
+
+####  没有爱就看不见  
+##### 5247#       发表于 2021-9-19 19:13
+
+
+这集放水里也是偏下的，前面说什么都没留下加没能阻止废校我就一股子繆水的缝合感
+
+
+*****
+
+####  离心  
+##### 5248#       发表于 2021-9-19 19:13
+
+
+没讲啊！看下一集才能说了八成就随口一提吧
+
+
+*****
+
+####  离心  
+##### 5249#       发表于 2021-9-19 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813230&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-19 19:09</a>
+
+没看生放，所以可可是突然就开始喊恋恋了嘛</blockquote>
+对，就入团之后啥都没铺垫喊恋恋的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5250#       发表于 2021-9-19 19:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一想到恋那个让人蚌埠住的棒读，我连熟肉都不想看了
+
+
+
+
+*****
+
+####  寒风夜  
+##### 5251#       发表于 2021-9-19 19:17
+
+
+5人 就搞这个<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5252#       发表于 2021-9-19 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813262&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-19 19:12</a>
+我始终认为ll系列剧情大纲是没问题的，但细节和打磨的不同导致观感的差异不同。水水剧情大纲我是认可的，但 ...</blockquote>
+继续奶，奶到全系列爆炸，这样就可以不用再折腾什么2.5次元了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lj205  
+##### 5253#       发表于 2021-9-19 19:18
+
+
+可可角色歌好听
+
+
+*****
+
+####  秋月艾莉  
+##### 5254#       发表于 2021-9-19 19:18
+
+
+可以定论香音才是理解版本最迅速最透彻的上分之王了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CP越新越强，香千和可堇可以收拾东西回家了，可香赢了又赢
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5255#       发表于 2021-9-19 19:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看完魔纪总集篇的心情都比看完这集生放好一些。下次还是等熟肉了，，。
+
+
+*****
+
+####  lj205  
+##### 5256#       发表于 2021-9-19 19:22
+
+
+就想问问这集会不会又拿可可垫背？我现在就是角色厨了
+
+
+*****
+
+####  优妮可  
+##### 5257#       发表于 2021-9-19 19:22
+
+
+真是麻了，第八集这观感加上隔壁邦邦这联动，破防了。
+
+
+*****
+
+####  寒风夜  
+##### 5258#       发表于 2021-9-19 19:23
+
+
+可可 回不用看了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5259#       发表于 2021-9-19 19:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这集没上集过分，但还是建议可堇人赶紧润
+
+
+*****
+
+####  iuhehc  
+##### 5260#       发表于 2021-9-19 19:24
+
+
+[https://www.youtube.com/watch?v=cY0ePhjGuOw](https://www.youtube.com/watch?v=cY0ePhjGuOw)
+
+
+19.png
+(191.88 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-19 19:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/19/192336oziyyppyrw0k1fiy.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5261#       发表于 2021-9-19 19:24
+
+
+好吧，没事，只要闺女好我就好
+
+
+*****
+
+####  JustW  
+##### 5262#       发表于 2021-9-19 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">别奶田中仁了，能把as烂活收收味儿就行，不求更多
+
+
+*****
+
+####  星降る森  
+##### 5263#       发表于 2021-9-19 19:25
+
+
+四期下来，还是虹团阻止的理由最正常，雪菜只是没法统一所有人意见，自己不干了，也没不让别人办，其他三期会长阻止的理由都是啥跟啥啊？
+
+水团学缪，去用偶像阻止废校还有点合理性，最后学校在乡下实在救不了，也说的过去。结女一个在原宿核心区的怎么还能倒闭的？
+
+突发奇想用偶像拯救学校的剧本来第三次真的要看吐了
+
+
+*****
+
+####  JustW  
+##### 5264#       发表于 2021-9-19 19:26
+
+
+虹团那个机场学校规模太夸张了，根本不用救（
+
+
+*****
+
+####  kata魂  
+##### 5265#       发表于 2021-9-19 19:27
+
+
+听着可可的歌心情也变好了，动画是什么？没看过呢
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5266#       发表于 2021-9-19 19:28
+
+
+<img src="https://img.saraba1st.com/forum/202109/19/192752q7753d044561l70x.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (47.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-19 19:27 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">汉 堡 肉（要素察觉）
+
+
+*****
+
+####  cybernetics31  
+##### 5267#       发表于 2021-9-19 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">花田老贼要是把可可回也弄烂了。。。。。。
+
+
