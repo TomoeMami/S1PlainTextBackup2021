@@ -5704,3 +5704,14 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 我是抱着玩loop系游戏的心态来玩的，玩到后面才发现就是一个线性流程游戏<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rak1  
+##### 495#       发表于 2021-9-19 16:20
+
+
+这游戏热度是真的低，其他论坛也是这样，都没啥讨论
+
+
