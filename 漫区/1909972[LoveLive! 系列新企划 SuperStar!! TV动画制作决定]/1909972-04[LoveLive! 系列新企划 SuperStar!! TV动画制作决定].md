@@ -10144,3 +10144,34 @@ liyuu脸上被蚊子叮了个小包
 今天熟肉出的好慢，怕不是字幕组也破防了
 
 
+
+
+*****
+
+####  ads147147  
+##### 5352#       发表于 2021-9-19 23:52
+
+
+<img src="https://p.sda1.dev/2/fab7d28f02f94f3df4b40b5335fd6c0f/IMG_CMP_61170451.jpeg" referrerpolicy="no-referrer">岬鱼糖才是真的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  笋狐  
+##### 5353#       发表于 2021-9-19 23:55
+
+
+说起来这话吃到了可千的糖渣，不亏
+
+
+*****
+
+####  JustW  
+##### 5354#       发表于 2021-9-19 23:58
+
+
+今天看来是没熟肉了，先眠了
+
+

@@ -6051,3 +6051,17 @@ md发现一个bug。。。。在上城区晚上派对门口放5个炮塔，游�
 只能说prey销量上的失败对arkane内部的打击挺大的，前两天noclip出了个prey的纪录片，员工内部也在想是不是游戏里能力做太多了太劝退了才导致现在这个叫好不叫座的局面。当raphael（arkane创始人）被问到prey销量问题的时候，感觉他真的快哭了
 
 
+
+
+*****
+
+####  SpaceCowboy  
+##### 522#       发表于 2021-9-19 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52816314&amp;ptid=1972138" target="_blank">415452356 发表于 2021-9-19 22:42</a>
+
+arkane作为目前沉浸模拟游戏的栋梁，粉丝希望他们的作品延续这种游戏设计或者创作精神也是合理诉求，再说 ...</blockquote>
+redfall我感觉应该是b社要求做的。arkane austin现在这个班底都是做prey的时候组建的，基本上都是喜欢玩thief/system shock/deus ex/ultima的老屁股，更不要说harvey smith这个几乎一辈子都在做沉浸模拟的老大了。他们有主动做looter shooter的想法我是绝对不信的。
+
+

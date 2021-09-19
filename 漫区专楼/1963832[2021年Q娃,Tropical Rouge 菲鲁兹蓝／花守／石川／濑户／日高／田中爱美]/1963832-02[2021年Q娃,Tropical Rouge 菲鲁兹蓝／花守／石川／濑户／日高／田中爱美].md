@@ -8808,3 +8808,17 @@ image.png
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  杂灰  
+##### 2140#       发表于 2021-9-19 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812227&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-9-19 17:33</a>
+
+还没看，听说这集神作画回？</blockquote>
+这是20分钟版剧场版哦
+
+
