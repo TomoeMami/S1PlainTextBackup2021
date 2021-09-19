@@ -6065,3 +6065,43 @@ arkane作为目前沉浸模拟游戏的栋梁，粉丝希望他们的作品延�
 redfall我感觉应该是b社要求做的。arkane austin现在这个班底都是做prey的时候组建的，基本上都是喜欢玩thief/system shock/deus ex/ultima的老屁股，更不要说harvey smith这个几乎一辈子都在做沉浸模拟的老大了。他们有主动做looter shooter的想法我是绝对不信的。
 
 
+
+
+*****
+
+####  鹿斗典善  
+##### 523#       发表于 2021-9-20 00:10
+
+
+到底哪儿出防毒饰件...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+想带着去毒气室看看的
+
+
+*****
+
+####  Emmerich  
+##### 524#       发表于 2021-9-20 00:18
+
+
+市中心那3个烟鬼的房间 会有对应的线索吗 完全整不明白怎么回事
+
+
+*****
+
+####  鹿斗典善  
+##### 525#       发表于 2021-9-20 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817224&amp;ptid=1972138" target="_blank">Emmerich 发表于 2021-9-20 00:18</a>
+
+市中心那3个烟鬼的房间 会有对应的线索吗 完全整不明白怎么回事</blockquote>
+早上进烟鬼房会有线索，然后亮绿灯的管是安全的
+
+按一下或者两下，活下来那个会在下午回卡尔湾，进他家就能拿密码，红房子旁边就是其中一个，另一个在弹吉他的永恒者后面
+
+
+都拿到以后早上去烟鬼房开锁即可
+
+

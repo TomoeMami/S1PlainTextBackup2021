@@ -10175,3 +10175,25 @@ liyuu脸上被蚊子叮了个小包
 今天看来是没熟肉了，先眠了
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 5355#       发表于 2021-9-20 00:08
+
+
+无印废校救回来，sunshine救不回来废校，星团废校后重建，虹团单纯偶像活动，如果要有系列4得是什么理由<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+kano找了下就找到了恋你是不是没有认真找啊，明明听着母亲天天说学院偶像最高还是想是不是母亲黑历史，讲台上说完沉重内容下面拍掌简直意义不明 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 5356#       发表于 2021-9-20 00:12
+
+
+题外话，从虹开始一直整剪辑好活的那位好像被这集气得弃番了
+
+
