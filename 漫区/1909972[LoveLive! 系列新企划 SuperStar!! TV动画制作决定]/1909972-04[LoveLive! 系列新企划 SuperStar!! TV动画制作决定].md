@@ -9178,3 +9178,152 @@ LL平均水平的展开，没到不能看的地步，LIVE曲子不错，挺好�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">花田老贼要是把可可回也弄烂了。。。。。。
 
 
+
+
+*****
+
+####  寒风夜  
+##### 5268#       发表于 2021-9-19 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813415&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-19 19:25</a>
+
+四期下来，还是虹团阻止的理由最正常，雪菜只是没法统一所有人意见，自己不干了，也没不让别人办，其他三期 ...</blockquote>
+就不能 快乐的偶像活动，捏麻麻的 看这个是重建的 学校 还以为换味
+
+
+*****
+
+####  寒风夜  
+##### 5269#       发表于 2021-9-19 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813415&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-19 19:25</a>
+
+四期下来，还是虹团阻止的理由最正常，雪菜只是没法统一所有人意见，自己不干了，也没不让别人办，其他三期 ...</blockquote>
+
+
+*****
+
+####  D麦林  
+##### 5270#       发表于 2021-9-19 19:30
+
+
+每次总是矛盾的产生和解决不合理
+我懂了 建议之后给ll加入钢普拉战斗环节
+你看这两次和恋恋交锋 如果改成第一次钢破烂战斗被恋恋打爆
+第二次香音换上新机打爆了心思不定的恋恋然后成功说服其入队看起来就很合理了（）
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5271#       发表于 2021-9-19 19:30
+
+
+回看了下之前因为水群没看到的几个画面，才发现堇又穿具足虫衣服出来宣传了，我要是堇厨我肯定破防<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5272#       发表于 2021-9-19 19:31
+
+
+刚刚翻到的，曜酱来说这话也是讽刺<img src="https://p.sda1.dev/2/9106db2816b937ae3097ab3029af8807/IMG_CMP_180896074.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 5273#       发表于 2021-9-19 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813472&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-19 19:30</a>
+每次总是矛盾的产生和解决不合理
+我懂了 建议之后给ll加入钢普拉战斗环节
+你看这两次和恋恋交锋 如果改成第 ...</blockquote>
+但是刚破烂也有nt或者裸x房来兜底啊<img src="https://static.saraba1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5274#       发表于 2021-9-19 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813472&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-19 19:30</a>
+
+每次总是矛盾的产生和解决不合理
+
+我懂了 建议之后给ll加入钢普拉战斗环节
+
+你看这两次和恋恋交锋 如果改成第 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5275#       发表于 2021-9-19 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813472&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-19 19:30</a>
+
+每次总是矛盾的产生和解决不合理
+
+我懂了 建议之后给ll加入钢普拉战斗环节
+
+你看这两次和恋恋交锋 如果改成第 ...</blockquote>
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5276#       发表于 2021-9-19 19:37
+
+
+<img src="https://img.saraba1st.com/forum/202109/19/193740e6zv5bslvavv9zsv.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (42.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-19 19:37 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 5277#       发表于 2021-9-19 19:38
+
+
+前面一点没看，原来恋爹出国了啊，我还以为真变狗了呢
+
+
+*****
+
+####  Norkey1  
+##### 5278#       发表于 2021-9-19 19:38
+
+
+按现在的发展，可可是不是不要开个人回比较好<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5279#       发表于 2021-9-19 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">鲤鱼唠嗑的时候也说过也很想配其他的动画 现在表现看确实可以试试多往cv走 毕竟歌手更卷
+
+
