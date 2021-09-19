@@ -10663,3 +10663,28 @@ MINI6的膜咋那么贵我日，有1688推荐吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有推荐壳的吗？最好支持magsafe，官方去年买了皮革和硅胶的，质量好是好，不过我用的也不爱惜，一年下来基本上不成样子，就不浪费钱了
 
 
+
+
+*****
+
+####  Sangria  
+##### 959#       发表于 2021-9-19 22:55
+
+
+mini有多小众？一个情况告诉你：其他机型都到十月底发货了，13mini 18号下午下单还是9月24日送达。<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  有口皆悲  
+##### 960#       发表于 2021-9-19 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52816499&amp;ptid=2015640" target="_blank">Sangria 发表于 2021-9-19 22:55</a>
+mini有多小众？一个情况告诉你：其他机型都到十月底发货了，13mini 18号下午下单还是9月24日送达。
+ ...</blockquote>
+看了你的回帖后我打算把到店自取的星光色128gb  mini退了改成邮寄，发现要10月14日送到上海。果断放弃重新下单了。
+
+
