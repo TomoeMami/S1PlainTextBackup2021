@@ -8490,3 +8490,26 @@ image.png
 演出作画剧情都碉堡了，抱Q之后好久没这样的神回了
 
 
+
+
+*****
+
+####  chentry  
+##### 2116#       发表于 2021-9-19 16:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811219&amp;ptid=1963832" target="_blank">DARK_HGCG 发表于 2021-9-19 15:30</a>
+
+演出作画剧情都碉堡了，抱Q之后好久没这样的神回了</blockquote>
+这集作监是抱Q16话原画之后第一次回到Q娃组
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2117#       发表于 2021-9-19 16:35
+
+
+星闪Q娃以来最佳单集了吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
