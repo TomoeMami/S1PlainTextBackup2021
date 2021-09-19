@@ -11002,3 +11002,41 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 是的只有那么一次，后面你就只能看她复读
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5329#       发表于 2021-9-19 11:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809412&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-19 11:22</a>
+是的只有那么一次，后面你就只能看她复读</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹，好吧，这个机制也是够恶心的
+靠演出引导你破，然后其实又不能破
+服了
+
+
+*****
+
+####  alucardcz  
+##### 5330#       发表于 2021-9-19 11:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来当初看op 5个球 选了个火球拔剑  我还以为男主后面能出5把属性剑。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实证明是我想太多了
+
+
+*****
+
+####  alucardcz  
+##### 5331#       发表于 2021-9-19 11:35
+
+
+ 本帖最后由 alucardcz 于 2021-9-19 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809291&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-19 11:11</a>
+
+法师咏唱不差那么点时间，缺的是AG，AG消耗90%必须.......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不缺啊  一套ba打完横跳个几下ag就满了 也不会取消之前的唱速
+
+

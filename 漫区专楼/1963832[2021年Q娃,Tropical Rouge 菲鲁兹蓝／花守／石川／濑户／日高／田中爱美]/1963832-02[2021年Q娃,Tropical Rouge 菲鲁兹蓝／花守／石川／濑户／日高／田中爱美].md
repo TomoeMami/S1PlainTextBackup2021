@@ -8420,3 +8420,18 @@ image.png
 话说海豹无存在感也是官方承认的梗了w
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2110#       发表于 2021-9-19 11:20
+
+
+劲得说不出话，还是田中懂q娃，摄影都高级了不少，高质量维持了一整集，连路人逃跑倒下都那么有力<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+没想到是百合魔女，看来大boss真是海马了
+
+话说这个kururu好惨，放置部室一晚上，海上冒出来被误伤都无任何怨言<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

@@ -10457,3 +10457,16 @@ mini5 203.2 x 134.8 x 6.1mm
 麻了，并夕夕马云逛了一圈只有mini6的膜没有mini6的壳，说好的华强北速度世界第一呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
+
+
+*****
+
+####  macos  
+##### 942#       发表于 2021-9-19 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809352&amp;ptid=2015640" target="_blank">mrlunzer 发表于 2021-9-19 11:15</a>
+麻了，并夕夕马云逛了一圈只有mini6的膜没有mini6的壳，说好的华强北速度世界第一呢 ...</blockquote>
+也要真机开模吧，还没倒模怎么出壳
+
+
