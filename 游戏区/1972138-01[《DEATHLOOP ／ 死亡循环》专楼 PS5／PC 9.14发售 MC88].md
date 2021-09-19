@@ -5690,3 +5690,17 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
   这游戏的本质是就是一个表面模仿重启光头47，实质上是一个伪装的很好的线性游戏，等你发现的时候已经马上要通关了
 
 
+
+
+*****
+
+####  Keynes  
+##### 494#       发表于 2021-9-19 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811301&amp;ptid=1972138" target="_blank">415452356 发表于 2021-9-19 15:41</a>
+
+这游戏的本质是就是一个表面模仿重启光头47，实质上是一个伪装的很好的线性游戏，等你发现的时候已经马 ...</blockquote>
+我是抱着玩loop系游戏的心态来玩的，玩到后面才发现就是一个线性流程游戏<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+

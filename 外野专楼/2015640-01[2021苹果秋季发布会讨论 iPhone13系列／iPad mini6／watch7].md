@@ -10558,3 +10558,16 @@ mini5 203.2 x 134.8 x 6.1mm
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  rak1  
+##### 950#       发表于 2021-9-19 15:45
+
+
+ 本帖最后由 rak1 于 2021-9-19 15:51 编辑 
+
+京东好像全现货了，现在还送ac+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚才随便订来着，现在又没了，太怪了这狗东
+
+
