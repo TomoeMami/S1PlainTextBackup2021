@@ -8722,3 +8722,19 @@ image.png
 所以说几年一次嘛。。。星闪治愈都没有，再往前推也有很多没神回的年份。。。全看社里给不给资源
 
 
+
+
+*****
+
+####  新HGCG  
+##### 2134#       发表于 2021-9-19 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815056&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-9-19 21:20</a>
+
+去年好像没有</blockquote>
+去年真没有
+
+前年也有田中里昂回，但是碰不上能打的作画炸裂不了
+
+

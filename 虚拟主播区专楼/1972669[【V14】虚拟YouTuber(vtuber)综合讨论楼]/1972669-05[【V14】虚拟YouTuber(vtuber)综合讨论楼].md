@@ -14287,3 +14287,15 @@ VALORANTを運営している、RiotGames様のサポートのもと、ぶいす
 2021-9-19 19:49 上传
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7049#       发表于 2021-9-19 22:05
+
+
+自从郡道开始打麻之后，看她直播时常有一种看狂赌之渊的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">。
+这回打牌阵容有德比真是，呃，微妙
+
+

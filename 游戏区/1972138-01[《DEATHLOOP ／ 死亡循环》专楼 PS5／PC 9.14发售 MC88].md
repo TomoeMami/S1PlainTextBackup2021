@@ -5961,3 +5961,20 @@ ps5不知道，steam在线峰值还不如羞辱2和prey了<img src="https://stat
 这次的时间循环+开放场景+任务线的形式比耻辱更讨喜，让懒人也有掌握开放地图的错觉，又懒又没耐心推线性关卡游戏，可能是现在大众玩家普遍的心态吧，arkane想打开市场的方向应该没错
 
 
+
+
+*****
+
+####  bayes  
+##### 515#       发表于 2021-9-19 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815160&amp;ptid=1972138" target="_blank">hshiki 发表于 2021-9-19 21:27</a>
+
+这次的时间循环+开放场景+任务线的形式比耻辱更讨喜，让懒人也有掌握开放地图的错觉，又懒又没耐心推线性 ...</blockquote>
+确实更讨喜了，而且这一代没有了道德审判，不关心你杀多少人，这应该也是相对耻辱prey最大的改变之一了。
+
+
+感觉arkane这次就是想让玩家感到轻松和爽（除了优化和bug的问题），确实是面向市场的行为，所以泥潭觉得婆度不足也挺正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 只是希望这种改变能从销量上体现出来吧。
+
+

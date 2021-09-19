@@ -9865,3 +9865,81 @@ bd下单完毕
 不知道三次元能拉多少…………
 
 
+
+
+*****
+
+####  ads147147  
+##### 5329#       发表于 2021-9-19 21:54
+
+
+贴吧又在自我催眠未来可期了。
+
+花田要是争气我还犯得着骂他么。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 5330#       发表于 2021-9-19 21:55
+
+
+话说恋恋的人气怕是真要垫底了吧，本来入团晚塑造少就算了关键回还这么烂，而且还被说棒读严重<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明明单看人设是最戳我的一个，太惨了
+
+
+*****
+
+####  chenflyyy  
+##### 5331#       发表于 2021-9-19 21:57
+
+
+如果接下来别作妖老老实实写日常回而且人设不崩有贴贴，我可以当4-8集没发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 5332#       发表于 2021-9-19 21:57
+
+
+“这下全校都知道恋她妈妈死了”
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5333#       发表于 2021-9-19 21:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815635&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-19 21:55</a>
+话说恋恋的人气怕是真要垫底了吧，本来入团晚塑造少就算了关键回还这么烂，而且还被说棒读严重明明 ...</blockquote>
+历代动画抗拒的最厉害的学生会长………………………看青山姐能不能拉点回来吧
+
+
+*****
+
+####  寒风夜  
+##### 5334#       发表于 2021-9-19 21:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815627&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-19 21:54</a>
+
+贴吧又在自我催眠未来可期了。
+
+
+花田要是争气我还犯得着骂他么。</blockquote>
+我只看到那个15级的催眠
+
+
+*****
+
+####  寒风夜  
+##### 5335#       发表于 2021-9-19 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是去重看本家千早回吧
+
+
