@@ -10842,3 +10842,23 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 法爷太好玩了，魔法连炸爽透了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">............
 
 
+
+
+*****
+
+####  jimclack  
+##### 5316#       发表于 2021-9-19 10:12
+
+
+只有林是干净的，其他两个雷纳人，一个前内奸，一个失忆哥，一个给雷纳人打过工。。。。还没打完别剧透
+
+
+*****
+
+####  七氷  
+##### 5317#       发表于 2021-9-19 10:22
+
+
+问下 ，50%几率减ag的饰品 ，再叠加两个20%是不是就90%了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
