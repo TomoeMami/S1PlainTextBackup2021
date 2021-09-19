@@ -3904,3 +3904,16 @@ P1020004.JPG
 兄弟萌有没有文静代餐啊，昨天没播可把我难受坏了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 344#       发表于 2021-9-19 14:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">我已经分不清楚千鸟的哈批运营是真的炒作上脑，还是迫真脑瘫了。
+
+但是看今天二姨的表现，确实挺无力的。
+
+
