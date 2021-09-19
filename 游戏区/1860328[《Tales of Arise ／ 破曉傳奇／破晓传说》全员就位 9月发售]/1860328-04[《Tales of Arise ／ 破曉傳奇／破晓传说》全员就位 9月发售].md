@@ -11500,3 +11500,14 @@ TOV第三部<img src="https://static.saraba1st.com/image/smiley/face2017/048.png
 ++....原来又是个有前科的老害<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  izayoi39  
+##### 5368#       发表于 2021-9-19 20:21
+
+
+很早就有消息本作编剧是tov的编辑吧，当初听到这个消息我就没对剧情有啥期待了
+
+

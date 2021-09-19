@@ -9440,3 +9440,128 @@ LL平均水平的展开，没到不能看的地步，LIVE曲子不错，挺好�
 角色歌是不是有唱中文？心跳在跃动幸福满天空？
 
 
+
+
+*****
+
+####  emmerMK2  
+##### 5290#       发表于 2021-9-19 20:26
+
+
+吃麦当劳这么憨啊，太可爱了吧
+
+
+*****
+
+####  寒风夜  
+##### 5291#       发表于 2021-9-19 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814135&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-19 20:22</a>
+
+找了个资源看完了堇这属实是有点被迫害过头了，和可可对恋的态度相比就显得更惨了
+
+另外为啥恋妈亲口 ...</blockquote>
+太抽象了吧
+
+
+*****
+
+####  saglork  
+##### 5292#       发表于 2021-9-19 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814135&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-19 20:22</a>
+找了个资源看完了堇这属实是有点被迫害过头了，和可可对恋的态度相比就显得更惨了
+
+另外为啥恋妈亲口 ...</blockquote>
+当唐女士只对大王具足虫一个人恶言恶语的时候，这就变成另一种糖了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5293#       发表于 2021-9-19 20:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么说 又要转 进2.99次元了么
+
+
+*****
+
+####  saglork  
+##### 5294#       发表于 2021-9-19 20:35
+
+
+总体看下来感觉一般般，恋的理由和转变都过于牵强了，音乐科和普通科的矛盾也化解的太儿戏，但最主要的是最后的live和歌的质量不行，比起3和6缺乏冲击力，lovelive这片啥都能凑活就是live不行，同样的幼儿园舞台风格，水团一单的质量比这个好太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5295#       发表于 2021-9-19 20:37
+
+
+剧情不行歌也不行，这个节骨眼上，到底在想什么
+
+
+*****
+
+####  saglork  
+##### 5296#       发表于 2021-9-19 20:38
+
+
+看下集预告应该是进入取名参赛环节了，感觉第一季可能不会有唐可可个人回了，比赛水一水，参赛挫折一下，可能就混过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  努斯万克  
+##### 5297#       发表于 2021-9-19 20:40
+
+
+中文字幕什么时候出来
+
+
+*****
+
+####  saglork  
+##### 5298#       发表于 2021-9-19 20:42
+
+
+青山的配音说棒读也有点吧，但我觉得不是真么太严重的事，如果pile配音有30分，那青山最起码有60分，关键是恋这个角色大部分时间感情都不是太激烈，而且没什么耍宝情节，所以语气一直四平八稳，总体感觉上青山渚和小宫有纱无论音色还是配音技巧差别都不算大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 5299#       发表于 2021-9-19 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814414&amp;ptid=1909972" target="_blank">努斯万克 发表于 2021-9-19 20:40</a>
+
+中文字幕什么时候出来</blockquote>
+前两周都是晚上十点多就能在资源网站上看到汉化好的了
+
+
+*****
+
+####  lj205  
+##### 5300#       发表于 2021-9-19 20:42
+
+
+我现在就想听到可可角色歌完整版
+
+
+*****
+
+####  cybernetics31  
+##### 5301#       发表于 2021-9-19 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814336&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-19 20:35</a>
+
+怎么说 又要转 进2.99次元了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">中之人选这么好 可不就往那集中资源嘛。。。。。。
+
+

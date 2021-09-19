@@ -8670,3 +8670,18 @@ image.png
 保持整体轻松沙雕基调不变的前提下完全不吝啬的散发着文艺气息，流石神回
 
 
+
+
+*****
+
+####  小兰兰  
+##### 2130#       发表于 2021-9-19 20:20
+
+
+啊啊啊啊太强了太强了太强了太强了！！田中裕太永远滴神！！永远滴神！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+这是我看Q娃以来看的最爽的一集，看湿了看麻了，全明星之后最令人激动的一回，太遗憾今天早上没追生放了！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+田中裕太，我的超人！<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
