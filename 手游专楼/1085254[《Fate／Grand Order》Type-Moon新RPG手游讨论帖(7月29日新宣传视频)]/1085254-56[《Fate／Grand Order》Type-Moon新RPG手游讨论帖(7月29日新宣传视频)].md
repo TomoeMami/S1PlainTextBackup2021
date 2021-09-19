@@ -15425,3 +15425,20 @@ id X，支援感觉能用的上的都放上了
 翻页
 
 
+
+
+*****
+
+####  1a不解释  
+##### 83794#       发表于 2021-9-19 12:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52791350&amp;ptid=1085254" target="_blank">dawning 发表于 2021-9-17 19:06</a>
+108,331,096，
+
+难民，求几个好友</blockquote>
+刚加你了，也是萌新<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
