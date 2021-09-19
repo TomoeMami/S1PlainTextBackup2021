@@ -10510,3 +10510,51 @@ mini5 203.2 x 134.8 x 6.1mm
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">壳发货了…………手机应该也能早点发了
 
 
+
+
+*****
+
+####  万一被塞了呢  
+##### 946#       发表于 2021-9-19 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52810245&amp;ptid=2015640" target="_blank">cybernetics31 发表于 2021-9-19 13:05</a>
+
+壳发货了…………手机应该也能早点发了</blockquote>
+我记得壳一直都是提前发的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  左凉川  
+##### 947#       发表于 2021-9-19 13:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809352&amp;ptid=2015640" target="_blank">mrlunzer 发表于 2021-9-19 11:15</a>
+
+麻了，并夕夕马云逛了一圈只有mini6的膜没有mini6的壳，说好的华强北速度世界第一呢 ...</blockquote>
+有的 ，亿色出了mini6的壳，我的都已经到货了
+
+
+*****
+
+####  ykyin09  
+##### 948#       发表于 2021-9-19 13:54
+
+
+话说12系的壳跟13通用吗，之前买了一堆12的壳。
+
+
+*****
+
+####  rak1  
+##### 949#       发表于 2021-9-19 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52810562&amp;ptid=2015640" target="_blank">ykyin09 发表于 2021-9-19 13:54</a>
+话说12系的壳跟13通用吗，之前买了一堆12的壳。</blockquote>
+不通用，孔位厚度都不一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
