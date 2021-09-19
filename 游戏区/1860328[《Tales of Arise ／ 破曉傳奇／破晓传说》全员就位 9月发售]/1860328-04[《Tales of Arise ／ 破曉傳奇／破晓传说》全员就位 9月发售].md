@@ -11239,3 +11239,26 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 首饰怎么继承属性，是要推进剧情么.....
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5348#       发表于 2021-9-19 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811821&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-19 16:46</a>
+
+首饰怎么继承属性，是要推进剧情么.....</blockquote>
+主线打到一定程度开放
+
+
+*****
+
+####  hkguty  
+##### 5349#       发表于 2021-9-19 17:02
+
+
+似乎有点儿伏笔留了下来，感觉这世界观，是不是也可以像TOZ、TOB那样出个千年前的前传
+
+

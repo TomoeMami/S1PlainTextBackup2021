@@ -15473,3 +15473,26 @@ id X，支援感觉能用的上的都放上了
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但你抽到了伽摩 狗
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 83797#       发表于 2021-9-19 16:48
+
+
+这荚膜池子已经歪了一个蓝呆一个南丁了，什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83798#       发表于 2021-9-19 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811854&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-9-19 16:48</a>
+
+这荚膜池子已经歪了一个蓝呆一个南丁了，什么情况</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">当你上半年欧的时候萌新非了。所以现在是...
+
+

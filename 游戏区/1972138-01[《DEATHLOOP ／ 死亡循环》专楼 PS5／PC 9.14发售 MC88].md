@@ -5715,3 +5715,17 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 这游戏热度是真的低，其他论坛也是这样，都没啥讨论
 
 
+
+
+*****
+
+####  サリシノハラ  
+##### 496#         楼主| 发表于 2021-9-19 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811578&amp;ptid=1972138" target="_blank">rak1 发表于 2021-9-19 16:20</a>
+
+这游戏热度是真的低，其他论坛也是这样，都没啥讨论</blockquote>
+ps5不知道，steam在线峰值还不如羞辱2和prey了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
