@@ -8536,3 +8536,17 @@ image.png
 等了两年的神回
 
 
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2120#       发表于 2021-9-19 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811877&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-9-19 16:51</a>
+
+抱q全明星那两集以来吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我是星Q开始追的，两年多来第一次追番中看到这种高质量的。
+
+
