@@ -10862,3 +10862,17 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 问下 ，50%几率减ag的饰品 ，再叠加两个20%是不是就90%了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5318#       发表于 2021-9-19 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52808945&amp;ptid=1860328" target="_blank">七氷 发表于 2021-9-19 10:22</a>
+
+问下 ，50%几率减ag的饰品 ，再叠加两个20%是不是就90%了</blockquote>
+后面减ag没什么用啊..不如直接一轰把对面秒了..法师不如堆唱速
+
+
