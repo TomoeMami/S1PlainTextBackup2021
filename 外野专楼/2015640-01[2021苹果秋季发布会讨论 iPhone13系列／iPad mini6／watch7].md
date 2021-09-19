@@ -10727,3 +10727,37 @@ mini有多小众？一个情况告诉你：其他机型都到十月底发货了�
 mini6有推荐的壳吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  blare86  
+##### 964#       发表于 2021-9-20 06:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818147&amp;ptid=2015640" target="_blank">承尘 发表于 2021-9-20 05:30</a>
+mini6有推荐的壳吗</blockquote>
+同求啊，官方那个磁吸的感觉太没有保护能力了
+
+
+*****
+
+####  乔尼·乔斯达  
+##### 965#       发表于 2021-9-20 06:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815651&amp;ptid=2015640" target="_blank">zikimi 发表于 2021-9-19 21:56</a>
+
+有推荐壳的吗？最好支持magsafe，官方去年买了皮革和硅胶的，质量好是好，不过我用的也不爱惜，一年 ...</blockquote>
+pitaka怎么样
+
+
+*****
+
+####  乔尼·乔斯达  
+##### 966#       发表于 2021-9-20 06:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">借楼求问ipad pro要不要买ac+，壳膜（只写字不画画）求推荐
+
+
