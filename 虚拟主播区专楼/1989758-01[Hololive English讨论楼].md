@@ -21698,3 +21698,23 @@ One might even say it seemed INAppropriate…<img src="https://static.saraba1st.
 2021-9-17 07:50 上传
 
 
+
+
+*****
+
+####  smy20011  
+##### 1380#         楼主| 发表于 2021-9-19 09:12
+
+
+"Why do you like the color blue so much?"
+
+🔱 You're wearing my hoodie and you're gonna ask me why I like the color blue?
+
+🔍 Its like the color of the sea!
+
+🔱 Also the color of my beloved Watson's eyes. Yes I like blue :)
+
+
+贴
+
+
