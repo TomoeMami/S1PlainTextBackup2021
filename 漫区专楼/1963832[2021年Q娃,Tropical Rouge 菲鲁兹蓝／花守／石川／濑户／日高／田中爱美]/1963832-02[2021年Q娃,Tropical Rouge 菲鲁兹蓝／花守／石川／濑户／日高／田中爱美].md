@@ -8618,3 +8618,33 @@ image.png
 最后召唤小象飞踢笑死了（这招叫“大地”考虑到图透还有罗拉c位那是不是有“海洋”呢那海洋是召唤鲸鱼么？）
 
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2126#       发表于 2021-9-19 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812770&amp;ptid=1963832" target="_blank">leleq 发表于 2021-9-19 18:25</a>
+
+雨天出神回！！！近几年最好的一会
+
+中原麻衣！我想但觉得绝不可能当Q娃的人之一啊
+
+一开始夏 ...</blockquote>
+虽然鲸鱼是海底的，但其实是哺乳动物，好像有点尴尬
+
+
+*****
+
+####  leleq  
+##### 2127#       发表于 2021-9-19 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812995&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-9-19 18:48</a>
+
+虽然鲸鱼是海底的，但其实是哺乳动物，好像有点尴尬</blockquote>
+嗯……人鱼有奶也哺乳啊（大概）……那就之前罗拉说过的大过蓝鲸的大王乌贼？好像不错来个触手抽大耳光<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+

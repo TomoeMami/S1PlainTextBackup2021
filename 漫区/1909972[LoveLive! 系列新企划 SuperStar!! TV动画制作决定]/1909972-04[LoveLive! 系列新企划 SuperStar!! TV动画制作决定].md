@@ -8416,3 +8416,293 @@ LL平均水平的展开，没到不能看的地步，LIVE曲子不错，挺好�
 还是听歌就好了吧
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 5198#       发表于 2021-9-19 18:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">动画彻底为现实live让路了。。。。。。。。果然去年的虹是个错觉了
+
+
+*****
+
+####  Arccueid  
+##### 5199#       发表于 2021-9-19 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812917&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 18:41</a>
+
+动画彻底为现实live让路了。。。。。。。。果然去年的虹是个错觉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少前三集完整了不是，入团后也许也能可以精彩点吧，拉人忘记了就算了
+
+
+*****
+
+####  寒风夜  
+##### 5200#       发表于 2021-9-19 18:43
+
+
+那我 觉得挺多矛盾就没必要，不自量力啊
+
+
+*****
+
+####  AlfredXC  
+##### 5201#       发表于 2021-9-19 18:43
+
+
+有可可塔塔开的截图吗
+
+
+*****
+
+####  ads147147  
+##### 5202#       发表于 2021-9-19 18:43
+
+
+下一次生放送肯定是声优盾来给花田擦屁股了，TMD，花田就这点破水平为毛还请他写剧本，而且真就是过去的雷对着一个个踩过去，用魔法live**打成世界大同，你不认可偶像这种东西我理解，你当作家就别表露出来好不好。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5203#       发表于 2021-9-19 18:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来可以预见的可可剧情大概率也是加农单c解决了，其他人就安心当挂件吧
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 5204#       发表于 2021-9-19 18:45
+
+
+所以可以结论动画可香大胜利
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 5205#       发表于 2021-9-19 18:45
+
+
+所以可以结论动画可香大胜利
+
+
+*****
+
+####  笋狐  
+##### 5206#       发表于 2021-9-19 18:46
+
+
+为什么找不到老妈的活动记录就擅自觉得老妈后悔了啊；为什么自己找半天找不到香音一来就找到了啊；为什么理事长知道这事恋在找的时候不告诉她啊（你姬友说等恋自己找你？她找老妈东西的时候你不说？）；为什么香音上来就问刚入队的恋要不要当C啊，你这是不是有一种钦定的...（还有可可你不是香音唯粉吗，怎么让C这事一点反应都没还很高兴的样子）；为什么入队后画面一转就喊上恋恋了啊（劳资的过程呢？老师有没教过你没过程不给分啊花田）；为什么民警你又穿具足虫cos了啊；为什么恋你能这么棒读啊；为什么刚才还气势汹汹台下群声讨伐学生会长的学生听了福尔摩斯香音的念恋妈的日记要鼓掌啊；为什么上集抛出一人扛整个家庭的沉重设定这话毛都没讲直接略过啊？！
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这槽点细想之下都tm吐不过来我的妈....run去制假药happy了
+
+
+*****
+
+####  寒风夜  
+##### 5207#       发表于 2021-9-19 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812938&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-19 18:43</a>
+
+下一次生放送肯定是声优盾来给花田擦屁股了，TMD，花田就这点破水平为毛还请他写剧本，而且真就是过去的雷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉不会 星期三那场不没说什么
+
+
+*****
+
+####  寒风夜  
+##### 5208#       发表于 2021-9-19 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812938&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-19 18:43</a>
+
+下一次生放送肯定是声优盾来给花田擦屁股了，TMD，花田就这点破水平为毛还请他写剧本，而且真就是过去的雷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉不会 星期三那场不没说什么
+
+
+*****
+
+####  Arccueid  
+##### 5209#       发表于 2021-9-19 18:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到这里的可香已经跟前三集的可香不是一个人了，两个人性格都被改了
+
+
+*****
+
+####  秋月艾莉  
+##### 5210#       发表于 2021-9-19 18:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说了青山姐挺棒的
+
+对比一下鲤鱼演技是真的不错，她还是团内唯一一个掐了声线去演的
+
+
+看5ch吐槽这舞台怎么搭这么快
+
+有人回有可可一天就够了好吧hhhhhhh
+
+
+*****
+
+####  JustW  
+##### 5211#       发表于 2021-9-19 18:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">看文献竟然错过生放了，罢了，等晚上熟肉了
+
+
+*****
+
+####  Arccueid  
+##### 5212#       发表于 2021-9-19 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813010&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-19 18:49</a>
+
+都说了青山姐挺棒的
+
+对比一下鲤鱼演技是真的不错，她还是团内唯一一个掐了声线去演的</blockquote>
+主要这集演出效果有大半其实就看她配的如何了，剧情都这样了你也没办法，所以棒读一放大就太拉了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5213#       发表于 2021-9-19 18:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前三话肯定是公野樱子写的吧
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5214#       发表于 2021-9-19 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813010&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-19 18:49</a>
+
+都说了青山姐挺棒的
+
+对比一下鲤鱼演技是真的不错，她还是团内唯一一个掐了声线去演的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可惜唱歌的时候没凹声线，这大概是ll第一个不用角色声线唱歌的？
+
+
+*****
+
+####  寒风夜  
+##### 5215#       发表于 2021-9-19 18:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">其实倒推来我感觉第一集 有些问题 就暴露了 
+
+
+*****
+
+####  ads147147  
+##### 5216#       发表于 2021-9-19 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813024&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-19 18:50</a>
+前三话肯定是公野樱子写的吧</blockquote>
+我信了，可香那么高浓度友情的台词，完全不像是花田的水平。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5217#       发表于 2021-9-19 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813021&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-19 18:50</a>
+
+主要这集演出效果有大半其实就看她配的如何了，剧情都这样了你也没办法，所以棒读一放大就太拉了 ...</blockquote>
+
+
+*****
+
+####  寒风夜  
+##### 5218#       发表于 2021-9-19 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813021&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-19 18:50</a>
+
+主要这集演出效果有大半其实就看她配的如何了，剧情都这样了你也没办法，所以棒读一放大就太拉了 ...</blockquote>
+寄!
+
+
+*****
+
+####  笋狐  
+##### 5219#       发表于 2021-9-19 18:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懂了，小陈提前看过剧本知道后面拉跨所以死活摁着前三话之后的不给放甚至还狙杀直播间避免观众吃翔，是你守护了拉拉人吗，叔叔你好温柔（
+
+
+*****
+
+####  lj205  
+##### 5220#       发表于 2021-9-19 18:56
+
+
+下周没生放，这是要直接放生了吗
+
+
+
+
+*****
+
+####  寒风夜  
+##### 5221#       发表于 2021-9-19 18:56
+
+
+花田式 矛盾
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 5222#       发表于 2021-9-19 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812967&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-19 18:46</a>
+
+为什么找不到老妈的活动记录就擅自觉得老妈后悔了啊；为什么自己找半天找不到香音一来就找到了啊；为什么理 ...</blockquote>
+答案就是理事长是乐子人，真是坏事做尽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 5223#       发表于 2021-9-19 18:57
+
+
+我对这一集的评价是：完全没新意的剧本+强烈的抖音快手摆拍小视频既视感
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5224#       发表于 2021-9-19 18:58
+
+
+[https://www.youtube.com/watch?v=1mZ6KrgfjVc](https://www.youtube.com/watch?v=1mZ6KrgfjVc) 来听可可solo
+
+

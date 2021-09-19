@@ -11329,3 +11329,39 @@ cnm我不想打了，这什么傻逼**明雷啊做得还不如一些给避怪手
 其实我觉得真大可不必，这么多国仇家恨，到最后居然连一个终极背锅侠都没有。
 
 
+
+
+*****
+
+####  godless2020  
+##### 5355#       发表于 2021-9-19 19:02
+
+
+等级补正太强了，我要升级！！！！
+
+
+*****
+
+####  Kedger  
+##### 5356#       发表于 2021-9-19 19:04
+
+
+真心安利被后期上天以后大怪扎堆折磨的朋友们都试试主控琳薇尔，点两个连招咏唱缩短，拿个光书，无限复读天赐之剑就完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然和轰霸一样都是复读，但满场电闪雷鸣视觉效果比轰霸爽多了，而且还很安逸，只用看怪有没有冲你来就行，次级没特意练级一路电疗到通关基本没有卡过
+
+
+*****
+
+####  alucardcz  
+##### 5357#       发表于 2021-9-19 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813174&amp;ptid=1860328" target="_blank">Kedger 发表于 2021-9-19 19:04</a>
+
+真心安利被后期上天以后大怪扎堆折磨的朋友们都试试主控琳薇尔，点两个连招咏唱缩短，拿个光书，无限复读天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hard也不会卡   还能越级  就是复读有点无聊
+
+
+当然40打60支线还是不现实的
+
+

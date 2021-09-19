@@ -5816,3 +5816,29 @@ ps5不知道，steam在线峰值还不如羞辱2和prey了<img src="https://stat
 没玩之前还以为需要反复尝试，每个玩家规划出来不同的击杀路线，结果实际游戏是按任务一步一步做就完事了，不想做得太难太婆吧，让不动脑的玩家也能玩完
 
 
+
+
+*****
+
+####  415452356  
+##### 504#       发表于 2021-9-19 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812988&amp;ptid=1972138" target="_blank">hshiki 发表于 2021-9-19 18:47</a>
+
+没玩之前还以为需要反复尝试，每个玩家规划出来不同的击杀路线，结果实际游戏是按任务一步一步做就完事了， ...</blockquote>
+  掠食对于不想动脑的人来说可能确实玩起来很吃力，耻辱1和2基本上跟着路标走就没啥问题，提示挺足的，尤其耻辱1，只是以通关为目标的话要探索的东西就不太多。
+
+
+*****
+
+####  サリシノハラ  
+##### 505#         楼主| 发表于 2021-9-19 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812795&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-19 18:28</a>
+
+对，这作还有很讨厌的字体引导，生怕你找不到破关信息似的。我很喜欢arkane的关卡设计师举个一个例子就是， ...</blockquote>
+采访里说过这是故意的，为了扩大受众“避免玩家经常感到不知所措”，估计redfall会更加直球的
+
+
