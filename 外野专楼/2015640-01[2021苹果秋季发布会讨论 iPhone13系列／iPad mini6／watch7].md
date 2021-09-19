@@ -10571,3 +10571,25 @@ mini5 203.2 x 134.8 x 6.1mm
 京东好像全现货了，现在还送ac+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚才随便订来着，现在又没了，太怪了这狗东
 
 
+
+
+*****
+
+####  mrlunzer  
+##### 951#       发表于 2021-9-19 17:33
+
+
+<blockquote>[ ykyin09 replied on 2021-9-19 13:54](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52810562&amp;ptid=2015640) 话说12系的壳跟13通用吗，之前买了一堆12的壳。 </blockquote>
+看了下，这也太丑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  mrlunzer  
+##### 952#       发表于 2021-9-19 17:34
+
+
+<blockquote>[ mrlunzer replied on 2021-9-19 17:33](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812238&amp;ptid=2015640) 引用: ykyin09 replied on 2021-9-19 13:54 话说12系的壳跟13通用吗，之前买了一堆12的壳。  看了下，这也太丑了 </blockquote>
+回错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+

@@ -5729,3 +5729,16 @@ PC版游戏都进不去，这游戏对win10版本还有要求的么</blockquote>
 ps5不知道，steam在线峰值还不如羞辱2和prey了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  astrayveller  
+##### 497#       发表于 2021-9-19 17:40
+
+
+玩了一整天 感觉就是耻辱那个mooncrash的加强版啊 多时段收集线索通关 
+
+— from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
