@@ -10593,3 +10593,15 @@ mini5 203.2 x 134.8 x 6.1mm
 回错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
+
+
+*****
+
+####  國立中央大學  
+##### 953#       发表于 2021-9-19 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52804610&amp;ptid=2015640" target="_blank"> miao123177 发表于 2021-9-18 19:32</a> 引用:國立中央大學 发表于 2021-9-18 19:08 拼多多的13自带-500，万人团承诺30号之前发完，不比官网香？ 已经被砍单了 </blockquote>
+你地址或者手机号有问题吧，我在多多买了很多次苹果了，无一被砍。来自: iPhone客户端
+
+

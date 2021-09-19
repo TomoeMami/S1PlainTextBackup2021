@@ -11287,3 +11287,17 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">cnm我不想打了，这什么傻逼**明雷啊做得还不如一些给避怪手段的暗雷，道中回复手段仅限有限的药和cp，boss直接下放当野怪几万血的刮痧，给一点点钱又循环不了足够的药，傻逼一样一个宝箱外面堆一堆血牛，打开给你两块肉打发一下，不打开又不知道里面是不是防具
 
 
+
+
+*****
+
+####  urvark  
+##### 5352#       发表于 2021-9-19 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811226&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-19 15:30</a>
+
+后面打什么boss都一个样  随便你干什么我反正就复读 然后boss死了</blockquote>
+后面打地水风的那三个精灵还是有点难度的，当然前提是你混沌难度40级去打……级别装备上去后依然轻松
+
+

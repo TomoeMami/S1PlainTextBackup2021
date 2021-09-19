@@ -5742,3 +5742,42 @@ ps5不知道，steam在线峰值还不如羞辱2和prey了<img src="https://stat
 — from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
+
+
+*****
+
+####  415452356  
+##### 498#       发表于 2021-9-19 17:47
+
+
+  不要低估现在玩家的通关速度，只要不是因为生活原因（上班/上学）不能玩太久，再长的游戏内容都顶不住玩家废寝忘食一天玩20个小时。
+
+  打完之后替耻辱2和掠食不值，这两作都是媒体评分一般但是玩家口碑只要打通的没说不好的，这次死亡循环是反过来了。
+
+
+*****
+
+####  屑猫猫  
+##### 499#       发表于 2021-9-19 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812305&amp;ptid=1972138" target="_blank">astrayveller 发表于 2021-9-19 17:40</a>
+玩了一整天 感觉就是prey那个mooncrash的加强版啊 多时段收集线索通关 
+说实话 地图论大小不如耻辱论纵深不 ...</blockquote>
+大胆点，是规模和纵深都不如耻辱和掠食这四部作品，我只觉得点子不错，但是效果表达的并不是很好。到后面越发不想探索和战斗，疲惫感太强了。
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  415452356  
+##### 500#       发表于 2021-9-19 17:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52812422&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-19 17:51</a>
+
+大胆点，是规模和纵深都不如耻辱和掠食这四部作品，我只觉得点子不错，但是效果表达的并不是很好。到后面 ...</blockquote>
+  没有凑齐线索前不能杀8个，凑齐线索之后只能用固定顺序杀8个，发现自己被骗了之后有种强烈的空虚感，耻辱和掠食都是当你撤离走回头路的时候会发现“原来我可以这样玩”，死亡循环就是“只能这么玩”。
+
+

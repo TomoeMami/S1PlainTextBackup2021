@@ -7375,3 +7375,75 @@ LL直播在哪儿看，只知道魔纪在蓝原那儿，星团他播不播啊？
 出来玩，不敢看直播，晚上回来看评论
 
 
+
+
+*****
+
+####  kata魂  
+##### 5097#       发表于 2021-9-19 17:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">好激动好激动，我花田神要回来惹
+
+
+*****
+
+####  寒风夜  
+##### 5098#       发表于 2021-9-19 17:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">你歌好就行...
+
+
+*****
+
+####  chenflyyy  
+##### 5099#       发表于 2021-9-19 17:49
+
+
+已经做好最坏的打算<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5100#       发表于 2021-9-19 17:54
+
+
+感觉理事长也有关键，不过今天看不了，随便想一想
+
+
+
+
+*****
+
+####  lyflyflxf  
+##### 5101#       发表于 2021-9-19 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52811411&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-19 15:58</a>
+
+你日声优不管吃啥都哦一西，鲤鱼一口下去“什么玩意儿？”</blockquote>
+太不会读空气了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5102#       发表于 2021-9-19 18:00
+
+
+看看钥匙开的格子里是遗书还是演出服
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cat1230  
+##### 5103#       发表于 2021-9-19 18:01
+
+
+求个直播地址啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
