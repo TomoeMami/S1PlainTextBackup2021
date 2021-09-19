@@ -11083,3 +11083,51 @@ H难度70小时全成就通关，中途用了修改器改了点钱，最终章�
 遍地的粉玫瑰和蓝玫瑰表现星灵合一了。
 
 
+
+
+*****
+
+####  shiko  
+##### 5335#       发表于 2021-9-19 13:11
+
+
+<blockquote>ccow 发表于 2021-9-19 12:50
+遍地的粉玫瑰和蓝玫瑰表现星灵合一了。</blockquote>
+所以雷纳没能把达纳吃了，但是达纳成功把雷纳吃了吗（
+
+
+*****
+
+####  森兰丸  
+##### 5336#       发表于 2021-9-19 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52810117&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-19 12:47</a>
+
+话说你们法师都复读的啥技能。激光（圣光镭射）？
+
+后面出的瞬星射击 天赐之剑复读效果不好吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">当然是ディバインセイバー啊....TOD2时就被敌方小兵蜥蜴人用这招给弄出PTSD了
+
+
+*****
+
+####  ccow  
+##### 5337#       发表于 2021-9-19 13:12
+
+
+就是融合了了吧，没有谁吞谁。
+
+
+*****
+
+####  alucardcz  
+##### 5338#       发表于 2021-9-19 13:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52810291&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-19 13:11</a>
+
+当然是ディバインセイバー啊....TOD2时就被敌方小兵蜥蜴人用这招给弄出PTSD了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要我看到一直有人说放激光 我想激光也就是个前期技能
+
+
