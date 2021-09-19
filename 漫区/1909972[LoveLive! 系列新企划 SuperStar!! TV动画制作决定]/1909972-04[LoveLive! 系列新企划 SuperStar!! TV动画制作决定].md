@@ -9716,3 +9716,58 @@ ok
 那个列表纯粹是nhk不显示全staff的原因 流媒体上的都有那个列表 虽然确实岩井映美里是可可姐cv的一个好选择 毕竟会说上海话
 
 
+
+
+*****
+
+####  JustW  
+##### 5316#       发表于 2021-9-19 21:08
+
+
+光看了下live，正常好的水平吧
+
+
+*****
+
+####  笋狐  
+##### 5317#       发表于 2021-9-19 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814829&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 21:06</a>
+
+那个列表纯粹是nhk不显示全staff的原因 流媒体上的都有那个列表 虽然确实岩井映美里是可可姐cv的一个好选 ...</blockquote>
+私以为写故事最起码的“如无必要，勿增实体”还是要的，后面不展开写前面就没必要加上这段剧情
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然不得不说，这几话看下来我已经产生动摇了，毕竟真的不能对花田抱有什么期待..
+
+
+*****
+
+####  七百年后  
+##### 5318#       发表于 2021-9-19 21:13
+
+
+团名如果不是继承的话，谁能想出来这个缝合法语和意大利语的词啊，难道是香音回家翻老爹词典翻出来的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5319#       发表于 2021-9-19 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814935&amp;ptid=1909972" target="_blank">七百年后 发表于 2021-9-19 21:13</a>
+
+团名如果不是继承的话，谁能想出来这个缝合法语和意大利语的词啊，难道是香音回家翻老爹词典翻出来的。[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">老爹是哪种语言的翻译啊，难道翻译家都是翻好几种的？
+
+
+*****
+
+####  lj205  
+##### 5320#       发表于 2021-9-19 21:18
+
+
+bd下单完毕
+
+

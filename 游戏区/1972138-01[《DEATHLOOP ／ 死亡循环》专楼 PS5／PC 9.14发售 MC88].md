@@ -5947,3 +5947,17 @@ ps5不知道，steam在线峰值还不如羞辱2和prey了<img src="https://stat
 四张图真的不够玩。。。
 
 
+
+
+*****
+
+####  hshiki  
+##### 514#       发表于 2021-9-19 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813040&amp;ptid=1972138" target="_blank">415452356 发表于 2021-9-19 18:52</a>
+
+掠食对于不想动脑的人来说可能确实玩起来很吃力，耻辱1和2基本上跟着路标走就没啥问题，提示挺足的，尤 ...</blockquote>
+这次的时间循环+开放场景+任务线的形式比耻辱更讨喜，让懒人也有掌握开放地图的错觉，又懒又没耐心推线性关卡游戏，可能是现在大众玩家普遍的心态吧，arkane想打开市场的方向应该没错
+
+

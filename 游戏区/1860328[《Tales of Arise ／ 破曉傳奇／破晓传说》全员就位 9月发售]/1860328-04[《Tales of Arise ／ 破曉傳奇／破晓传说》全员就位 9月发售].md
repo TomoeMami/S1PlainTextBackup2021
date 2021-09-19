@@ -11547,3 +11547,104 @@ TOV第三部<img src="https://static.saraba1st.com/image/smiley/face2017/048.png
 tov虽然整体剧情不咸不淡，但人物好啊，我看着百合耍嘴皮子耍帅就能下三碗饭，你给我一个这种水平的人物，剧情随便糊弄一下都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5372#       发表于 2021-9-19 21:07
+
+
+因为无人可用了吧
+
+
+TOV四个编剧
+
+松元弘毅 退社
+
+马场常和 退社
+
+長谷川崇 同为第三部编剧，本来就是director和TO第一开发部部长（12年后部门合并到万南工作室里了），TOZ里 他也参与了剧本和主剧本 山本尚基一同作为战犯被炎上，自然不可能再参与TO剧本创作
+
+奥田孝明 ARISE主笔
+
+
+TODR TOG 编剧 田中豪 退社，在跟前面提到的松元弘毅一起混
+
+TOG 副编剧，也是TOX的编剧 木賀大介 退社
+
+TOH TOX2 TOZ TOB 主笔 山本尚基 在TOB之后就走人了，去了SE，现在在浅野组做三角战略的主剧本
+
+TOB另一位编剧 平松正樹 本来就不是万南工作室的，自由作家
+
+
+没人了啊
+
+
+*****
+
+####  alucardcz  
+##### 5373#       发表于 2021-9-19 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814842&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-19 21:07</a>
+
+因为无人可用了吧
+
+
+TOV四个编剧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那toa和s的编剧呢
+
+
+*****
+
+####  loley  
+##### 5374#       发表于 2021-9-19 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813190&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-09-19 19:06:20</a>
+hard也不会卡   还能越级  就是复读有点无聊
+
+
+当然40打60支线还是不现实的
+
+
+ ...</blockquote>可以的，我就是用法师过了之后才发现这游戏后期数值之崩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，也就安心开玩琳薇尔传说了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  laoz  
+##### 5375#       发表于 2021-9-19 21:14
+
+
+<blockquote>alucardcz 发表于 2021-9-19 21:10
+那toa和s的编剧呢</blockquote>
+一边给rays写，一边在绯红结系放飞自我
+
+
+*****
+
+####  alucardcz  
+##### 5376#       发表于 2021-9-19 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814947&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-19 21:14</a>
+
+一边给rays写，一边在绯红结系放飞自我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那意思是绯红结系剧情值得一看？
+
+
+*****
+
+####  laoz  
+##### 5377#       发表于 2021-9-19 21:17
+
+
+<blockquote>alucardcz 发表于 2021-9-19 21:15
+那意思是绯红结系剧情值得一看？</blockquote>
+也是一坨翔
+
+
