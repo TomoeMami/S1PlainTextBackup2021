@@ -8696,3 +8696,29 @@ image.png
 我看Q娃就是为了几年一次的这种回数啊，一本满足了
 
 
+
+
+*****
+
+####  csolfans  
+##### 2132#       发表于 2021-9-19 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814604&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-9-19 20:53</a>
+
+我看Q娃就是为了几年一次的这种回数啊，一本满足了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">去年好像没有
+
+
+*****
+
+####  舞野咲  
+##### 2133#       发表于 2021-9-19 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815056&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-9-19 21:20</a>
+
+去年好像没有</blockquote>
+所以说几年一次嘛。。。星闪治愈都没有，再往前推也有很多没神回的年份。。。全看社里给不给资源
+
+

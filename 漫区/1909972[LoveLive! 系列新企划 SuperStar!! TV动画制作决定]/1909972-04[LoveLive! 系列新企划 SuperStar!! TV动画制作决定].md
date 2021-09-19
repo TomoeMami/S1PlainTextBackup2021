@@ -9771,3 +9771,97 @@ ok
 bd下单完毕
 
 
+
+
+*****
+
+####  七百年后  
+##### 5321#       发表于 2021-9-19 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814981&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-19 21:15</a>
+
+老爹是哪种语言的翻译啊，难道翻译家都是翻好几种的？</blockquote>
+都有现代汉语词典了，有别的语言也合理吧，总不能她爸其实是中文翻译家吧。（如果是中文翻译家感觉可以造可香假药了，父辈曾经认识什么的。）
+
+
+*****
+
+####  寒风夜  
+##### 5322#       发表于 2021-9-19 21:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉着可以物色10月番了
+
+
+*****
+
+####  chenflyyy  
+##### 5323#       发表于 2021-9-19 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815238&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-19 21:31</a>
+
+我觉着可以物色10月番了</blockquote>
+10月有动工的偶像番，看着还行，虽然脚本是高桥悠也<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5324#       发表于 2021-9-19 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52814904&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-19 21:11</a>
+
+私以为写故事最起码的“如无必要，勿增实体”还是要的，后面不展开写前面就没必要加上这段剧情
+
+
+当 ...</blockquote>
+上头企划定位和观众预期严重不符了只能说 再加上花田。。。。这基本上就看个三次元了
+
+
+*****
+
+####  寒风夜  
+##### 5325#       发表于 2021-9-19 21:37
+
+
+ 本帖最后由 寒风夜 于 2021-9-19 21:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815299&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 21:35</a>
+
+上头企划定位和观众预期严重不符了只能说 再加上花田。。。。这基本上就看个三次元了 ...</blockquote>
+打初代阵容算盘打歪了，其实初代就不知道为什么找他，，<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">09年日升片他系构的穿越宇宙的少女干了几集就跑了
+
+
+*****
+
+####  寒风夜  
+##### 5326#       发表于 2021-9-19 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815299&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 21:35</a>
+
+上头企划定位和观众预期严重不符了只能说 再加上花田。。。。这基本上就看个三次元了 ...</blockquote>
+
+
+*****
+
+####  寒风夜  
+##### 5327#       发表于 2021-9-19 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815299&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-19 21:35</a>
+
+上头企划定位和观众预期严重不符了只能说 再加上花田。。。。这基本上就看个三次元了 ...</blockquote>
+
+
+*****
+
+####  lj205  
+##### 5328#       发表于 2021-9-19 21:44
+
+
+不知道三次元能拉多少…………
+
+
