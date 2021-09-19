@@ -6037,3 +6037,17 @@ md发现一个bug。。。。在上城区晚上派对门口放5个炮塔，游�
 感觉金枪不是很好用，现在用的是紫色消音SMG+紫色击中爆炸特效的单发枪
 
 
+
+
+*****
+
+####  SpaceCowboy  
+##### 521#       发表于 2021-9-19 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815720&amp;ptid=1972138" target="_blank">bayes 发表于 2021-9-19 21:59</a>
+
+确实更讨喜了，而且这一代没有了道德审判，不关心你杀多少人，这应该也是相对耻辱prey最大的改变之一了。 ...</blockquote>
+只能说prey销量上的失败对arkane内部的打击挺大的，前两天noclip出了个prey的纪录片，员工内部也在想是不是游戏里能力做太多了太劝退了才导致现在这个叫好不叫座的局面。当raphael（arkane创始人）被问到prey销量问题的时候，感觉他真的快哭了
+
+
