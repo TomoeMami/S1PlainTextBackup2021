@@ -9943,3 +9943,56 @@ bd下单完毕
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是去重看本家千早回吧
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 5336#       发表于 2021-9-19 22:06
+
+
+严重怀疑前三集是公野写的剧本，要不实在无法解释前三集跟后面几集的割裂感。
+
+
+*****
+
+####  Arccueid  
+##### 5337#       发表于 2021-9-19 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815697&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-09-19 21:58:38</a>
+我只看到那个15级的催眠</blockquote>那个人病得有点重 每周只有他在给大师洗地
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 5338#       发表于 2021-9-19 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815298&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-19 21:35</a>
+
+10月有动工的偶像番，看着还行，虽然脚本是高桥悠也</blockquote>
+那个下周日有先行，可以看看
+
+
+*****
+
+####  寒风夜  
+##### 5339#       发表于 2021-9-19 22:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今年我看的补的几个偶像番，IP i7 马娘（？）这边怕是最。。
+
+
+*****
+
+####  dozen  
+##### 5340#       发表于 2021-9-19 22:26
+
+
+恋怎么变普通科有眉目了吗
+
+

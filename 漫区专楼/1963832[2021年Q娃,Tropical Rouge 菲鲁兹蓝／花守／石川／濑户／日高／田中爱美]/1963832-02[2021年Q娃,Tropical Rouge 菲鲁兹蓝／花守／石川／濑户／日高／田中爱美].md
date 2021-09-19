@@ -8738,3 +8738,16 @@ image.png
 前年也有田中里昂回，但是碰不上能打的作画炸裂不了
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2135#       发表于 2021-9-19 22:08
+
+
+到甜点为止都挺多出色作画的，抱q开始就不咋地了，作画特别好的只有巧大和全明星那几集，田中10来话有过集演出不过看访谈说这集虽然叫来熟人不过用的比较节省，星q有一集板冈作监回感觉都没有他茶几里画的好，另外有2集日升作画塾过来帮忙的印象深刻，治q我不记得了，可能也没有认真看。总之今天这集我要加弹幕再看几遍<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
