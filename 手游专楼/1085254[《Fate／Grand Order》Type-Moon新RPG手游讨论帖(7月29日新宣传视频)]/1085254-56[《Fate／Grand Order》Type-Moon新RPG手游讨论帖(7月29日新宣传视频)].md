@@ -15442,3 +15442,20 @@ id X，支援感觉能用的上的都放上了
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83795#       发表于 2021-9-19 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52809545&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-19 11:39</a>
+欧 羡慕 萌新一个4星都没抽到 合理吗</blockquote>
+那可太他妈合理了
+迦摩扔了8单，只能说幸好没歪
+
+快使用蓝色修改器逆天改命
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
