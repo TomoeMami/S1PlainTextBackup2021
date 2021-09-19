@@ -11436,3 +11436,67 @@ cnm我不想打了，这什么傻逼**明雷啊做得还不如一些给避怪手
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这  tov最拉的不就是第3部吗
 
 
+
+
+*****
+
+####  rak1  
+##### 5363#       发表于 2021-9-19 20:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果早知道会是这个素质。。。日你吗，退钱！
+
+
+*****
+
+####  qiyu1234  
+##### 5364#       发表于 2021-9-19 20:05
+
+
+ 本帖最后由 qiyu1234 于 2021-9-19 20:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813717&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-9-19 19:57</a>
+
+社交游戏是指手游吗</blockquote>
+不一定，页游也可以是社交游戏，当然主要还是在智能手机上
+
+
+平岡在CEDEC 2016上做过一次关于社交游戏的演讲
+[https://www.gamer.ne.jp/news/201608270015/](https://www.gamer.ne.jp/news/201608270015/)
+
+
+*****
+
+####  Kedger  
+##### 5365#       发表于 2021-9-19 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52813689&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-19 19:56</a>
+本作编剧是 奥田孝明和平岡鉄太郎
+
+前者参与了TOV 第三部分的剧本以及TOV小说版的编写
+
+后者在万南工作室也呆 ...</blockquote>
+Tov第三部<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魂淡放我出去  
+##### 5366#       发表于 2021-9-19 20:10
+
+
+TOV第三部<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+虽然JRPG最后开始摆烂的也不是少数
+
+
+*****
+
+####  森兰丸  
+##### 5367#       发表于 2021-9-19 20:18
+
+
+++....原来又是个有前科的老害<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
