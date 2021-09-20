@@ -10843,3 +10843,19 @@ pitaka怎么样
 麻痹，疫情，到不了现场拿了。草
 
 
+
+
+*****
+
+####  soli1tude0  
+##### 974#       发表于 2021-9-20 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818193&amp;ptid=2015640" target="_blank">乔尼·乔斯达 发表于 2021-9-20 06:24</a>
+借楼求问ipad pro要不要买ac+，壳膜（只写字不画画）求推荐</blockquote>
+ipad的ac+是可以保官方配件的，比如笔和键盘
+另外ipad现在还是只换不修的策略吧，我感觉预算够可以买一个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

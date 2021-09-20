@@ -12126,3 +12126,28 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 减AG的矿石在哪 在最终迷宫里？
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 5417#       发表于 2021-9-20 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821470&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-20 14:20</a>
+
+减AG的矿石在哪 在最终迷宫里？</blockquote>
+无尽辉石在天之楔和佛葛渥钟乳洞可以捡到
+
+其他矿石位置可以参考这个[ [url]https://tieba.baidu.com/p/7542653017](https://tieba.baidu.com/p/7542653017)[/url]
+
+
+*****
+
+####  大哀之君  
+##### 5418#       发表于 2021-9-20 14:40
+
+
+究竟是为了钓鱼设计了盾姐的后背，还是为了盾姐后背而加入了钓鱼环节<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+

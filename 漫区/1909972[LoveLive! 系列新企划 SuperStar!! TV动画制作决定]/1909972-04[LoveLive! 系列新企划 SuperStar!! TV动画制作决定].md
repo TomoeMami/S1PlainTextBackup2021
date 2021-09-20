@@ -11791,3 +11791,192 @@ cd也是，以前ll企划方发售cd基本上都是只有一个团的，这样�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5487#       发表于 2021-9-20 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821418&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-20 14:13</a>
+
+.。。我真跳了  细节落实的太烂 了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老哥你是不是不止鼠标有问题，键盘也不太行，我看你说话像个BOT
+
+
+*****
+
+####  UnhappyTails  
+##### 5488#       发表于 2021-9-20 14:33
+
+
+我最最无法接受的还是对于唐可可的前后设定崩坏
+
+
+作品从一开始就是拿唐可可做的队长役，香音做c役，结果最后队长不像队长，c不像c
+
+
+作为一个堇推，我并不生气于唐可可这两集的行为，我生气的是这个角色因为花田水平不行做出了这些行为
+
+
+前一集这么多人洗可可无法接受堇没把四轱辘爱豆当回事儿所以生气，从而把矛盾指向花田给堇的人设塑造过程拉跨，其实这根本就是避重就轻了
+
+
+偶像部还处在如此的危机之下，这个时候会为了队伍纯洁性，给本质上是在兢兢业业只是出发点不那么纯洁的人穿小鞋的人，根本就不是一个认真办事的，只是一个狂热粉丝。
+
+
+可是唐可可是什么人啊，是为了追梦追到日本来的人，是为了做偶像可以退学的人，是跑到学校广场号召散步的人
+
+
+花田的这些剧情衬托出的，不但是一个会对着传奇偶像发情，大搞特搞wota艺的粉丝，更是一个有绝对行动力，为了实现梦想屡败屡战付出一切的人。一言蔽之，是拧绳哥，是队长。
+
+
+这么有行动力的一个人会因为这些事情把已经跟练了几集的堇挤兑走么？这对偶像部，对她的梦想有什么好处吗？有什么事情不能通过好好说话解决吗？
+
+
+为什么第七集显得割裂？因为花田塑造了一个很nb的可可，然后到了第七集，她突然就发疯了，没有任何关键事件，这才是让人不满的地方。
+
+
+进行到这一集，这一情况更加令人无法忍耐
+
+
+多的我不说了，大家都说到了，我无法理解的是，如果你花田又要把唐可可塑造成眼睛里容不得一点沙子，连堇这样一个只是出发点不那么纯洁的人都可以排挤的人设，那恋算什么？她可是实打实的针对了你四轱辘爱抖露七集多掌握着学生会实权对你们这个小团体百般刁难，一言蔽之，她就是那个危机啊。
+
+
+对于危机中的伙伴重拳出击，对于危机本身一秒失忆，这是一个正常人能觉得合理的人设成长故事吗？
+
+
+看完前三集后，我对于团队的成长规划是，香音越来越主动越来越可靠，可可在中后期慢慢把拧绳的工作交出来，一步步让香音成为真正的核心，而可可则成为最可靠的那个后盾和团内大家都喜欢的存在，而堇无论是当面引发矛盾还是迅速化解矛盾，都有比现在好很多的走法，至于小千则可以在剧情的中后期拿下自己的个人高光，随后会长加入引发矛盾，最后会长关键时刻全力以赴大家解开心结，队伍正式完全体
+
+
+结果呢？香音还是被动，关键时刻才机械降神，越来越像一个工具人，可可拧绳拧到一半自己发病，堇到恋入队还毫无进展，会长刚进来就恋恋恋恋叫上了
+
+
+这都是什么啊！你花田十辉作为碧阳的系列构成，写出这种故事来，你真的觉得能服众吗？！！！
+
+
+更让人恶心的是，这些有才能的声优一定能在动画第一季结束后把企划风评迅速拉回来，而此后，花田和日升一定还会觉得自己是对的吧
+
+
+没啥好说的了，什么都说不出来了
+
+
+*****
+
+####  depthlee  
+##### 5489#       发表于 2021-9-20 14:33
+
+
+<blockquote>光宗薫 发表于 2021-9-20 13:16
+创始人女儿就是可以为所欲为啊
+
+我妈不喜欢所以不许搞，我妈喜欢所以不仅要搞，还要大搞特稿
+
+学生会 ...</blockquote>
+鲁道夫象征（皇帝）：难道不是吗？（强行串戏）
+
+
+*****
+
+####  JustW  
+##### 5490#       发表于 2021-9-20 14:34
+
+
+ 本帖最后由 JustW 于 2021-9-20 14:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">企划前景虽然和我一个小观众没有关系，不过也挺好拿来解释动画现状的，能躺何站嘛。就比如动画后面把唐可可塑造再失败，大家为了支持鲤鱼而掏的钱也不会少多少，说不定还会虐粉赚更多。至少我觉得这几集不光是能力问题，也不光是戴着镣铐跳舞的问题。
+
+
+
+
+*****
+
+####  寒风夜  
+##### 5491#       发表于 2021-9-20 14:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821552&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-20 14:31</a>
+
+老哥你是不是不止鼠标有问题，键盘也不太行，我看你说话像个BOT</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5492#       发表于 2021-9-20 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821570&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 14:33</a>
+
+我最最无法接受的还是对于唐可可的前后设定崩坏
+
+
+作品从一开始就是拿唐可可做的队长役，香音做c役，结果最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+第七集可可：果然我还是觉得应该由香音来（参选）
+
+
+第八集可可：（恋当C位这件事）我也赞成
+
+
+合着就是针对堇一个人
+
+
+*****
+
+####  JustW  
+##### 5493#       发表于 2021-9-20 14:39
+
+
+翻页
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5494#       发表于 2021-9-20 14:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5495#       发表于 2021-9-20 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821621&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-20 14:40</a>
+
+看了尾巴哥的小作文才发现原来花田还是碧阳的系列构成（还是好评较多的第一季，第二季还没花田了）[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5496#       发表于 2021-9-20 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821621&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-20 14:40</a>
+
+看了尾巴哥的小作文才发现原来花田还是碧阳的系列构成（还是好评较多的第一季，第二季还没花田了）[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这b写改编是真行
+
+
+*****
+
+####  Arccueid  
+##### 5497#       发表于 2021-9-20 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821621&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-09-20 14:40:19</a></blockquote>
+他负责写得好的作品多了(改编为主，原创也有好的)，要不然也不会喷他喷得那么厉害
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
