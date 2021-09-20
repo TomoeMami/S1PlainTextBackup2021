@@ -10900,3 +10900,16 @@ mini6有推荐的壳吗</blockquote>
 目前好像只有亿色出了mini6的壳子，我的已经到货了，对于一百块来说还不错
 
 
+
+
+*****
+
+####  橋白  
+##### 978#       发表于 2021-9-20 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818147&amp;ptid=2015640" target="_blank">承尘 发表于 2021-9-20 05:30</a>
+mini6有推荐的壳吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">之前买iPadpro的时候泥潭推荐的益博思（应该是叫这个？）带笔槽的壳 感觉还行 就符合价格吧 也不是太厚
+
+

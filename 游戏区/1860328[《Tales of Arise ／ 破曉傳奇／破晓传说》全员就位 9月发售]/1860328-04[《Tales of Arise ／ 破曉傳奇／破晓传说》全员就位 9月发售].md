@@ -12212,3 +12212,28 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 钓鱼以后能不能换成打麻将<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  法拉  
+##### 5424#       发表于 2021-9-20 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822320&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-20 16:01</a>
+
+咏唱缩短单个词条最大是百分之多少？
+
+是不是只会在5星素材上出现啊？</blockquote>
+单条最大5%，配合主词条一共最多40%，只有5星有
+
+
+*****
+
+####  czy1997  
+##### 5425#       发表于 2021-9-20 16:33
+
+
+温泉剧情怎么解锁啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

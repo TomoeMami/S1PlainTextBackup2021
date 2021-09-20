@@ -12406,3 +12406,145 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 这是因为堇视LL为踏脚石吧，可可是为了LL跑去日本的深度LL迷，堇这种心态相等于在粉丝面前践踏偶像，最让可可感到痛恨。
 
 
+
+
+*****
+
+####  寒风夜  
+##### 5527#       发表于 2021-9-20 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822235&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-20 15:50</a>
+
+虽然但是，niconiconi对应的应该是民警的galaxy，但nico这口头禅起码还是取自名字读音，民警这个是真的迷， ...</blockquote>
+妈的  还真是
+
+
+*****
+
+####  寒风夜  
+##### 5528#       发表于 2021-9-20 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822235&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-20 15:50</a>
+
+虽然但是，niconiconi对应的应该是民警的galaxy，但nico这口头禅起码还是取自名字读音，民警这个是真的迷， ...</blockquote>
+风怒    
+
+
+*****
+
+####  qratosone  
+##### 5529#       发表于 2021-9-20 16:30
+
+
+妈的傻X花田就是不好好说话，仔细看的话很多逻辑也不是圆不回来，就是非得不说清楚
+
+
+*****
+
+####  qratosone  
+##### 5530#       发表于 2021-9-20 16:35
+
+
+ 本帖最后由 qratosone 于 2021-9-20 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818338&amp;ptid=1909972" target="_blank">kirimori 发表于 2021-9-20 07:47</a>
+
+这套样板戏不做评价，我觉得最大的问题是全校学生面前搞这一出。5个人小范围内搞的话香音她们去了恋家了 ...</blockquote>
+所谓学科对立倒也不是啥大事，从前几话来看音乐科的学生基本上以恋为中心，然后从早会时期普通科学生对恋的反应来看，香哥哥和学院偶像团体基本上就是普通科的骄傲。现在两边的话事人在台上和解，然后活动形式改成两科合办Live，一起支援由两科成员共同组成的学园偶像团体，这样的话等于各退一步，兼顾了让普通科参与+以音乐为中心的两头的政治正确，于是之后最起码在学园祭这个事上，剩下的人就算有不满也掀不起什么风浪了。
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5531#       发表于 2021-9-20 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822583&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-09-20 16:30:01</a>
+妈的傻X花田就是不好好说话，仔细看的话很多逻辑也不是圆不回来，就是非得不说清楚 ...</blockquote>因为说清楚需要篇幅啊，总不能砍了他最爱的搞笑情节吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  安瓦尔阿明  
+##### 5532#       发表于 2021-9-20 16:37
+
+
+ 本帖最后由 安瓦尔阿明 于 2021-9-20 16:40 编辑 
+
+看了熟肉，我认为剧情俗套没有感染力，我只能摆着一张扑克脸看小姑娘们流泪、鼓掌、唱歌跳舞。另外，虽说学园祭顺利举办了，但经费的事好像还没解决呢？
+
+
+*****
+
+####  寒风夜  
+##### 5533#       发表于 2021-9-20 16:37
+
+
+ 本帖最后由 寒风夜 于 2021-9-20 16:39 编辑 
+
+我觉得现在这样大伙也别想太多了，该喷就喷，该跑就跑  然后看点别的平复下心情吧
+
+
+*****
+
+####  待宵  
+##### 5534#       发表于 2021-9-20 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822632&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-20 16:35</a>
+
+因为说清楚需要篇幅啊，总不能砍了他最爱的搞笑情节吧
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户 ...</blockquote>
+所以花田十辉和麻枝准应该挺合得来的
+
+
+*****
+
+####  JustW  
+##### 5535#       发表于 2021-9-20 16:41
+
+
+<blockquote>Gooddays 发表于 2021-9-20 16:15
+这是因为堇视LL为踏脚石吧，可可是为了LL跑去日本的深度LL迷，堇这种心态相等于在粉丝面前践踏偶像，最让 ...</blockquote>
+但也一块唱跳两回了，感觉关系不进反退了，除非后面会加一集堇个人回专门讲垫脚石心态的纠正，否则就只是个别扭的设定
+
+
+*****
+
+####  秋月艾莉  
+##### 5536#       发表于 2021-9-20 16:44
+
+
+ 本帖最后由 秋月艾莉 于 2021-9-20 16:46 编辑 
+
+具足虫这梗从设计开始明显就是拿来复读的，怎会往创伤的方向去搞……
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我连QQ的中二签名都不愿看第二次，人阿堇能把片留手机上不时经典回顾，还怕香音不入脑给她当场表演一个这么爷们，这是哪门子的创伤
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对演艺圈专业人士阿堇多点信心好吧
+
+
+*****
+
+####  灼眼の安娜  
+##### 5537#       发表于 2021-9-20 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822697&amp;ptid=1909972" target="_blank">JustW 发表于 2021-09-20 16:41:38</a>
+但也一块唱跳两回了，感觉关系不进反退了，除非后面会加一集堇个人回专门讲垫脚石心态的纠正，否则就只是 ...</blockquote>这个我觉得是迟早的事，要么这一季最后的矛盾就是可堇再次爆发矛盾并最终解决，皆大欢喜。要么就是放到第二季的前半部的某一集里解决，毕竟第二季也有个人回也是企划传统了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  星降る森  
+##### 5538#       发表于 2021-9-20 16:47
+
+
+战吧都开始吹无印了，有点想笑，花田过手的三代也就是卧龙凤雏吧，还没到哪代能拿来吹的地步，星前三话倒是有点到达前辈没有的高度，现在原型毕露了
+
+

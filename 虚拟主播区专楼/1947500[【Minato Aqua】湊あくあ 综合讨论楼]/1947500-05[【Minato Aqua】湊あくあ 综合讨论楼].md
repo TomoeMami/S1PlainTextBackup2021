@@ -11855,3 +11855,22 @@ UMISEA这个小动画感觉都在棒读
 友友们还有记得阿夸唱的luka luka night fever是哪期么，应该是18 19的老物了
 
 
+
+
+*****
+
+####  s32244153  
+##### 6953#       发表于 2021-9-20 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822464&amp;ptid=1947500" target="_blank">m4suzu 发表于 2021-9-20 16:17</a>
+
+友友们还有记得阿夸唱的luka luka night fever是哪期么，应该是18 19的老物了</blockquote>
+[https://www.bilibili.com/video/BV1h7411h73b](https://www.bilibili.com/video/BV1h7411h73b)
+
+-
+[https://www.bilibili.com/video/BV1Hi4y1s7xH](https://www.bilibili.com/video/BV1Hi4y1s7xH)
+
+21:30
+
+
