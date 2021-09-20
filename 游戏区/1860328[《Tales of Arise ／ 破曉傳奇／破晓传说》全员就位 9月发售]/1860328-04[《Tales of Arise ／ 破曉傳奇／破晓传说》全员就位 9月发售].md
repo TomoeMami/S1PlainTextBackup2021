@@ -12522,3 +12522,51 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 最后迷宫开了C难度，57级进入，怪物基本弱光，开2倍伤害是光系魔法连炸，40秒解决牛头马面，一路屠杀，男猪脚走4炎卖血一刀女主全程奶效率低些，但即使这样，也能理解大家说的不友好了，怪都是血牛，如果你没有思考如何提高伤害输出，这段路是非常烦躁的，因为你就是打不动，一场战斗要打近5MIN，这种烦躁感是很强烈的，印象中这是历代最艰难的最后迷宫，正常玩家即使开H难度，都不会这么烦躁，一个游戏在最后面流程，应该是要给大家快感的，因为经历了几十个小时的成长，是出成果的时候了..结果被当头一棒....游戏的体验机制对玩家来说不友好， 等级补正和饰品技能是最能提高输出的，但这2点一般玩家不大会去关注，走主线为什么去练级，饰品技能搞不懂随便合的...玩家希望在不仔细思考的情况下，顺势就把问题解决了....
 
 
+
+
+*****
+
+####  godless2020  
+##### 5449#       发表于 2021-9-20 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822308&amp;ptid=1860328" target="_blank">secretgarnet 发表于 2021-9-20 15:59</a>
+
+本作的boss和精英的贯穿力/耐久力的数值设计问题很大。贯穿/耐久作为一组影响打出break或者人型boss倒仰的 ...</blockquote>
+香川是不是负责过TOD2的战斗设计<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5450#       发表于 2021-9-20 21:26
+
+
+ 本帖最后由 alucardcz 于 2021-9-20 21:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825614&amp;ptid=1860328" target="_blank">loley 发表于 2021-9-20 21:14</a>
+
+我觉得他们可能把这定义为，JRPG的醍醐味。。这作还算好吧，等级差20级也不是打不过，TOB进去一看差40多级 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个塔上的大鸟我打不过啊 当时4x级
+
+
+*****
+
+####  司马千晶  
+##### 5451#       发表于 2021-9-20 21:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">流程里那些怪物围杀宝箱和堵门的场景大部分都可以配合圣洁瓶料理绕掉的。最终迷宫就屑在把门堵死了，我是把素材打够就传送回去更新装备了。等回来遇到没素材需求的旧怪一律逃跑。
+
+
+*****
+
+####  loley  
+##### 5452#       发表于 2021-9-20 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825810&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-09-20 21:26:10</a>
+那个塔上的大鸟我打不过啊 当时4x级</blockquote>我45级打过去了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

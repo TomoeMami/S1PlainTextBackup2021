@@ -6342,3 +6342,24 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 这游戏出卡顺序真是迷，不过卡面是真心好看，上期沙季那大裙子3d建模一点都无感，结果看到卡面瞬间十连就点下去了。这回的怜估计也要管不住手了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  伊布桑  
+##### 454#         楼主| 发表于 2021-9-20 21:36
+
+
+这技能管得着也得管不住啊，强度党卡面党都给我下池（
+
+
+<img src="https://img.saraba1st.com/forum/202109/20/213610dcno9j2hcc9hnf96.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210920_205624.jpg</strong> (351.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 21:36 上传
+
+

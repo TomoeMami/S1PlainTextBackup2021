@@ -8991,3 +8991,24 @@ image.png
 建议魔女给萝拉来个幻术圈套，回到海里成为女王后，发现没有真夏做什么都不tropical，然后就做什么都提不起劲，于是也走向了怠惰魔女的终末。。。
 
 
+
+
+*****
+
+####  PrincessBanana  
+##### 2155#       发表于 2021-9-20 21:30
+
+
+这集真是太棒了啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">质量拉满！
+果子学姐大地球拉枪打骨碌伦那段笑死
+
+
+*****
+
+####  PrincessBanana  
+##### 2156#       发表于 2021-9-20 21:32
+
+
+这话除了战斗质量拉满，角色的小动作做得也特别可爱，罗拉和真夏两人之间的互动实在是看得我dokidoki的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
