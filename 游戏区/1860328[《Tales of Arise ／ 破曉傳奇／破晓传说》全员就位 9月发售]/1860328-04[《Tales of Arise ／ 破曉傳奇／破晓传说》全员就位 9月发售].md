@@ -12753,3 +12753,63 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 2021-9-20 23:58 上传
 
 
+
+
+*****
+
+####  6847651  
+##### 5467#       发表于 2021-9-21 00:04
+
+
+盾女斗技场怎么打...打不过
+
+
+*****
+
+####  火之魂  
+##### 5468#       发表于 2021-9-21 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827345&amp;ptid=1860328" target="_blank">Shabadadoo 发表于 2021-9-20 23:42</a>
+
+20小时玩到见漆黑之鹰老大那里，一直冲冲冲打打打，感觉已经疲倦了。后面还有多少流程？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">纯主线的话，大概一半了
+
+
+*****
+
+####  peh  
+##### 5469#       发表于 2021-9-21 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827092&amp;ptid=1860328" target="_blank">先生空气 发表于 2021-9-20 23:13</a>
+
+鸟连40w血都没有，等级虚高罢了，通关前的支线只要准备15个复活药15个cp回复60，策略设置成除了回复都不 ...</blockquote>
+呃，买药钱怎么搞呢，除了买dlc<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5470#       发表于 2021-9-21 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827475&amp;ptid=1860328" target="_blank">春风女神狄璐卡 发表于 2021-9-20 23:58</a>
+
+不是，我就玩了个序章实在忍不住了，这男主戴这么个JB玩意是怎么看东西的 吃饭还能勉强说从下面塞进去</blockquote>
+剧情里吐槽过
+
+这面具是高科技<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓝雉  
+##### 5471#       发表于 2021-9-21 00:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827475&amp;ptid=1860328" target="_blank">春风女神狄璐卡 发表于 2021-9-20 23:58</a>
+不是，我就玩了个序章实在忍不住了，这男主戴这么个JB玩意是怎么看东西的 吃饭还能勉强说从下面塞进去</blockquote>
+这不是有两条的缝吗
+
+
