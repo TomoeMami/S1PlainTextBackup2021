@@ -10836,3 +10836,51 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 5409#       发表于 2021-9-20 10:41
+
+
+ 本帖最后由 chenflyyy 于 2021-9-20 10:42 编辑 
+
+战吧都到了需要开单集集中贴的地步了，这集的不满和争议是真的挺严重的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且节奏也是真的多
+
+
+*****
+
+####  Goisdust  
+##### 5410#       发表于 2021-9-20 10:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行了我笑得好开心啊
+
+叶月恋妳真是个前无古人的小丑
+
+
+*****
+
+####  player3960  
+##### 5411#       发表于 2021-9-20 10:54
+
+
+原来偶像部的特别新人赏才是这个学校最高成就额，虽然小千有一个舞蹈冠军可惜人家已经跑去普通科了，突然觉得这学校音乐科好废的感觉……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  damian-wade  
+##### 5412#       发表于 2021-9-20 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819479&amp;ptid=1909972" target="_blank">player3960 发表于 2021-9-20 10:54</a>
+原来偶像部的特别新人赏才是这个学校最高成就额，虽然小千有一个舞蹈冠军可惜人家已经跑去普通科了，突然觉 ...</blockquote>
+对对对，这里为了捧她们简直离谱，就这点成绩都好意思自称音乐名校，xswl<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
