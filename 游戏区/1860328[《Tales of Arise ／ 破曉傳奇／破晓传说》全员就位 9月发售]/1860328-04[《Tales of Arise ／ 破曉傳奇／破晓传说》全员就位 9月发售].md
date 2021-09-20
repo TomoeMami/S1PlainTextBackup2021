@@ -12583,3 +12583,79 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 40多可以过，这里和地宫boss思路有点重复，都是触发bs打死小怪后溅射其他单位，压低血量然后逐个击杀，地宫那里有意思的地方在于红色射线打不到空中单位，空连有用武之地后真就砍了个爽。
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5454#       发表于 2021-9-20 23:03
+
+
+ 本帖最后由 alucardcz 于 2021-9-20 23:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说最终迷宫死路宝箱给一堆1级饰品是怎么想的 恶心人吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道设计的人觉得这都要结束了玩家还不会做饰品？
+
+
+*****
+
+####  reficul  
+##### 5455#       发表于 2021-9-20 23:05
+
+
+我目前63级，Hard难度，54小时进入雷纳的反转领域，准备打最终BOSS了，我反而觉得游戏后半段给我的体验更佳，后半段内容更多，战斗则基本全部限制解除更加爽快（手操洛和男主），从登上飞艇开始我就无停歇地玩，昨晚玩到3点，看了眼攻略发现还有不少剧情这才停下来去睡觉，本来还想直接通关的。
+
+然后今天玩了一天支线，体验极佳，今晚就真的要通关了
+
+
+*****
+
+####  先生空气  
+##### 5456#       发表于 2021-9-20 23:13
+
+
+<blockquote>alucardcz 发表于 2021-9-20 21:26
+那个塔上的大鸟我打不过啊 当时4x级</blockquote>
+鸟连40w血都没有，等级虚高罢了，通关前的支线只要准备15个复活药15个cp回复60，策略设置成除了回复都不干，做一下饰品，无论是火剑还是法术连轰boss活不过三分钟。
+
+
+*****
+
+####  alucardcz  
+##### 5457#       发表于 2021-9-20 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827009&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-20 23:05</a>
+
+我目前63级，Hard难度，54小时进入雷纳的反转领域，准备打最终BOSS了，我反而觉得游戏后半段给我的体验更佳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你接下来就要进入体验暴跌环节了。。你要是练了60火伤霸道的话至少战斗能稍微好点
+
+
+*****
+
+####  alucardcz  
+##### 5458#       发表于 2021-9-20 23:15
+
+
+ 本帖最后由 alucardcz 于 2021-9-20 23:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827092&amp;ptid=1860328" target="_blank">先生空气 发表于 2021-9-20 23:13</a>
+
+鸟连40w血都没有，等级虚高罢了，通关前的支线只要准备15个复活药15个cp回复60，策略设置成除了回复都不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候还没做饰品 
+
+后面再回去打的时候已经是无敌是多么寂寞的状态了
+
+
+*****
+
+####  先生空气  
+##### 5459#       发表于 2021-9-20 23:16
+
+
+<blockquote>alucardcz 发表于 2021-9-20 23:03
+话说最终迷宫死路宝箱给一堆1级饰品是怎么想的 恶心人吗
+
+难道设计的人觉得这都要结束了玩家 ...</blockquote>
+因为没有1级饰品就没法做对应饰品，模版饰品基本上游戏里都有多个宝箱避免玩家做不出来。不过图就这么小，基本上最终地图除了咏速其他饰品前面一般都拿到了
+
+

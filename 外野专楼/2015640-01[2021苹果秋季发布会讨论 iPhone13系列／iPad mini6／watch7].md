@@ -10986,3 +10986,14 @@ mini6有推荐的壳吗</blockquote>
 iphone13promax这么重,有什么轻薄的玻璃膜推荐下,手感要好
 
 
+
+
+*****
+
+####  sc流亡湿人  
+##### 985#       发表于 2021-9-20 23:29
+
+
+在官网用招行分期买的用户，可以在掌上生活APP参加活动领88元还款金，基本必中88，欧皇能中888。相当于又便宜了88元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -13586,3 +13586,281 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 动画商业效应这件事关注壁吧时间越长，越知道这东西影响因素太多了，很难预测。可能长眼睛的都知道A比B好，但A就是卖得好，赚钱多。王之力？大环境？谁也说不清。对于大多数人来说操心不了这个。作为普通观众，高兴了喝彩，动心了掏钱，失望了跑路，恶心了吐痰，大抵就是只能做这些。
 
 
+
+
+*****
+
+####  星降る森  
+##### 5616#       发表于 2021-9-20 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826788&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-20 22:41</a>
+
+还是不要拉虹团动画过来了。虽然一部动画的好看与否可能对整个企划没有什么影响，但是姑且在动画放 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你的理解歪的离谱了吧？
+
+如果一部动画真的很出色，显然是能吸引更多来关注的，现在并没有达成这效果，从实际剧情角度评论，也符合这样的认知，虹个人回有好有坏，像艾玛回，爱姐回完全可以说平淡如水。真说比星强在哪里，也就是好在个不过不失。11话后靠夹脚的激进展开有一定话题度，但处理方式连差强人意都称不上。
+
+要不是现在星动画展开拉胯的离谱，都不见得有人会拿出来比较。按泥潭评分法，我觉得介于+0~+1间
+
+
+*****
+
+####  UnhappyTails  
+##### 5617#       发表于 2021-9-20 23:06
+
+
+ 本帖最后由 UnhappyTails 于 2021-9-20 23:11 编辑 
+
+楼友的分歧还是在于认为可可会因为堇出发点不纯洁就去挤兑堇
+
+可我恰恰认为这和人设是冲突的，如果可可只是一个单纯的偶像原教旨主义者，这不是不能理解，但可可是前三话甚至一直以来的团队发起者，她辛辛苦苦把这个队伍攒起来，她为什么要因为这种事去挤兑堇？还是用这种方式，你要真的不满意，以可可的性格更正常的不是当面把这个事儿提出来把这个矛盾提前引发并解决吗？
+
+
+楼友一直觉得这个的问题是花田害了堇，花田给堇了一个不讨喜的人设
+
+
+其实呢？作为堇推我很明确地说，从我，到我身边的观众，到目前我看到的舆论，也没有几个因为这个确实不讨喜的人设讨厌堇的，真吃亏的肯定是可可啊！她一开始被安了一个又主动又强大的队长役人设，但是现在又被强行改成原教旨主义还有挤兑同帮的黑点（你阻止不了别人拿这个黑她，关键根本没必要，是无妄之灾）
+
+
+最后，那个说可可认为恋有苦衷的，既然解释清楚了就是好同志的我真是无语了。且不说第八话的这个戏剧矛盾设定的有多不合理多强行，哪怕你说偶像番全员降智，仅凭一个“幡然悔悟”一个“悬崖勒马”就足以让被扣了原教旨主义者帽子的可可低头了？可可是有三国志的忠诚度查询系统吗
+
+
+无论怎么说，你宁愿信任和支持一直针对你的恋恋，也不愿意相信一直跟你一起练歌练舞的堇，我认为这个你说破天也没法解释通。
+
+
+*****
+
+####  hkjhkj  
+##### 5618#       发表于 2021-9-20 23:07
+
+
+花田也就这水平了，LL一期看过来的还不清楚<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5619#       发表于 2021-9-20 23:12
+
+
+ 本帖最后由 JustW 于 2021-9-20 23:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826984&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 23:02</a>
+
+你的理解歪的离谱了吧？
+
+如果一部动画真的很出色，显然是能吸引更多来关注的，现在并没有达成这效 ...</blockquote>
+【如果一部动画真的很出色，显然是能吸引更多来关注的】这是伪命题，反例数不胜数，除非你对“出色”的定义就是“有更多关注”
+
+
+【从实际剧情角度评论，也符合这样的认知】这是你的个人感受，我不评价
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少在我只会看的s1和bangumi投票结果都是我说的这样，你要是不满意我也尊重你的观感，毕竟没有人的观感是一样的
+
+
+*****
+
+####  cybernetics31  
+##### 5620#       发表于 2021-9-20 23:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 5621#       发表于 2021-9-20 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826842&amp;ptid=1909972" target="_blank">梶原ひかり 发表于 2021-9-20 22:46</a>
+不必然向花田看齐...毕竟虹咲投入资源跟水团和裂裂没得比..但是也不要过分吹虹咲 虹咲动画播放效应实属一 ...</blockquote>
+动画不就是用来救手游的，别想太多
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  saglork  
+##### 5622#       发表于 2021-9-20 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827029&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 23:06</a>
+楼友的分歧还是在于认为可可会因为堇出发点不纯洁就去挤兑堇
+
+可我恰恰认为这和人设是冲突的，如果可可只是 ...</blockquote>
+你真想太多了，没有什么迫害，也没有什么可可崩坏，说白了就是花田式欢喜冤家模板互动，只不过可堇相对于妮姬善丸有点单方面，而且用力过猛罢了，前面我也说了，基本可以确定可可对堇的态度往后也是这种挑刺和针对偏多的，可可对谁都好态度，只有对堇很针对，换个角度就是反而很特别，也是一种糖，至于你吃不吃那是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+“关系好到可以吵架”本来就是日本人很喜欢的一种模板，剧中说两个人关系好也不止一次了，在花田lovelive里这种互动还是人气属性，等第二季再给堇来个类似妮可的个人回，人气刷的杠杠的，就这么点事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚瑟邓特  
+##### 5623#       发表于 2021-9-20 23:20
+
+
+蛙🐸对可可真是最纯粹的恶意<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 5624#       发表于 2021-9-20 23:20
+
+
+花田对堇的思路就没变过，无非56话是黑可可给堇提人气，78变成了黑可香千恋给堇提人气，真是被他给懂完了。
+
+
+*****
+
+####  没有爱就看不见  
+##### 5625#       发表于 2021-9-20 23:23
+
+
+其实要进一步这种说法就挺奇怪的，再进一步要进到哪，新国立竞技场吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 5626#       发表于 2021-9-20 23:23
+
+
+堇主要是第五话第六话提前把贤惠好脾气的一面暴露了，所以可可一怼就显得单方面无理取闹，要整得跟妮可前期一样死小孩，就没啥问题了，好的一方面往后边个人回塞，反差一出来，人气就上去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UnhappyTails  
+##### 5627#       发表于 2021-9-20 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827146&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 23:19</a>
+
+你真想太多了，没有什么迫害，也没有什么可可崩坏，说白了就是花田式欢喜冤家模板互动，只不过可堇相对于 ...</blockquote>
+我觉得这个用力过猛有点太“过”了，而且就...很蠢啊
+
+
+欢喜冤家没必要这么写，堇的人物也没必要这么展开
+
+
+你非要把可可原本已经比较完善的人设里加进这些乱七八糟的欢喜冤家设定然后弄得可堇都尴里不尴尬的，就很让人生气啊
+
+
+而且这还是我没说可堇之前那个很离谱的营业的，你一会儿营业一会儿搞这出还没个度真的太失调了
+
+
+而且第七集那个真的就不大像关系好到要吵架<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说这个刻画也有问题
+
+
+以及最后，我是磕中美组（声优和角色都是），但我真的觉得这种欢喜冤家的磕法非常蠢
+
+
+可可这样的队长役就是应该成为堇摆脱心结的关键，现在...现在可能会成为那个扇巴掌的？？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">无论怎么说也不那么有趣啊
+
+
+*****
+
+####  星降る森  
+##### 5628#       发表于 2021-9-20 23:25
+
+
+ 本帖最后由 星降る森 于 2021-9-20 23:28 编辑 
+
+泥潭比较令我意外的点，是不少人认为平安名扮具足虫不算阴影，没什么问题。
+
+在我看来，平安名现阶段是绝对不可能主动去扮具足虫的，更不可能为了让叶月恋当C，大度地说“等到更大舞台我再来当C”这剧情不就是花田为了展开强行把平安名当工具人？又没有【平安名有所成长】的前因后果，根本不合理。
+
+
+这不叫迫害角色啥叫迫害？
+
+
+*****
+
+####  UnhappyTails  
+##### 5629#       发表于 2021-9-20 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827153&amp;ptid=1909972" target="_blank">亚瑟邓特 发表于 2021-9-20 23:20</a>
+
+蛙🐸对可可真是最纯粹的恶意</blockquote>
+没必要去在意这种事啊
+
+
+你在意昆虫想什么，对你没意义，对他们也没意义......<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 5630#       发表于 2021-9-20 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827191&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 23:24</a>
+
+我觉得这个用力过猛有点太“过”了，而且就...很蠢啊
+
+
+欢喜冤家没必要这么写，堇的人物也没必要这么展开</blockquote>
+你懂欢喜冤家，但你不懂花田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚瑟邓特  
+##### 5631#       发表于 2021-9-20 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827205&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 23:26</a>
+ 没必要去在意这种事啊  你在意昆虫想什么，对你没意义，对他们也没意义...... ...</blockquote>
+主要是我加了两星期的屏蔽词还屏蔽不干净心态崩了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5632#       发表于 2021-9-20 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827177&amp;ptid=1909972" target="_blank">没有爱就看不见 发表于 2021-9-20 23:23</a>
+其实要进一步这种说法就挺奇怪的，再进一步要进到哪，新国立竞技场吗？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼の安娜  
+##### 5633#       发表于 2021-9-20 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827029&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-09-20 23:06:47</a>
+楼友的分歧还是在于认为可可会因为堇出发点不纯洁就去挤兑堇
+
+可我恰恰认为这和人设是冲突的，如果可可只 ...</blockquote>起初可可确实是正面怼堇呀。第四集那不是都要上天台跟堇决斗了，说要代表所有学园偶像惩罚堇，只是决斗即将开始的时候突然下起雨来了，决斗不得不中断，然后下一集可堇都成了配角，也没篇幅再去拍可堇决斗了，然后这个事情就一直被搁置了。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  UnhappyTails  
+##### 5634#       发表于 2021-9-20 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827195&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 23:25</a>
+
+泥潭比较令我意外的点，是不少人认为平安名扮具足虫不算阴影，没什么问题。
+
+在我看来，平安名现阶段是绝对 ...</blockquote>
+对啊，上面老哥说了5-8集给堇拉人气，我也几乎以为花田在用很蠢的方式展现他的偏爱，事实上堇确实是得利了——如果没有这一集的话
+
+
+我觉得正常人都不会觉得堇说出那种话不ooc吧，所以说那个坚持想成名想到会让原教旨主义可可不快的堇突然又可以把自己执念的来源，具足虫这个烂梗当成综艺演员的一发艺了？？?
+
+
+所以我觉得花田不是偏爱堇啊，而是单纯在让她ooc罢了，把这么有张力和潜力的角色写成这样大家不可能满意啊
+
+
