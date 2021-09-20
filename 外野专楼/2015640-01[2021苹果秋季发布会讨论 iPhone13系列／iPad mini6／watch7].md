@@ -10949,3 +10949,29 @@ mini6有推荐的壳吗</blockquote>
 请问有没有黄的比较慢的清水magsafe手机壳推荐？
 
 
+
+
+*****
+
+####  Sangria  
+##### 982#       发表于 2021-9-20 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821749&amp;ptid=2015640" target="_blank">(wing) 发表于 2021-9-20 14:56</a>
+
+我第一时间买的都是26号送达</blockquote>
+少说了一个条件，黑色 256GB的
+
+
+*****
+
+####  战狼PTSD  
+##### 983#       发表于 2021-9-20 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818147&amp;ptid=2015640" target="_blank">承尘 发表于 2021-9-20 05:30</a>
+
+mini6有推荐的壳吗</blockquote>
+我买了MOROCK的壳，就这家好看点了，别家一个好看的都没
+
+

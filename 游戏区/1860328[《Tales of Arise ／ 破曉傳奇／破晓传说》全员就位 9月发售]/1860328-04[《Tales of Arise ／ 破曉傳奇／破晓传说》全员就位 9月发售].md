@@ -12313,3 +12313,40 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 商业成功就成功吧，只能期待下一作了
 
 
+
+
+*****
+
+####  regular  
+##### 5432#       发表于 2021-9-20 19:49
+
+
+剧情通关了感觉实在恶心，万一还有犹豫没买的我建议起码等实在没得玩了+打五折吧。
+
+
+*****
+
+####  alucardcz  
+##### 5433#       发表于 2021-9-20 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824301&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-20 19:35</a>
+
+不是，这游戏后面算崩了吧，前面有多惊喜后面就有多失望，整体给我的感觉还不如老祖宗TOP
+
+1.没有迷宫没有城 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说第1点 其实从tox开始就这样了
+
+
+*****
+
+####  恋妖壶  
+##### 5434#       发表于 2021-9-20 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824432&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-20 19:50</a>
+
+你说第1点 其实从tox开始就这样了</blockquote>
+确实，所以我最后一句说了啊，一部部等
+
+
