@@ -12849,3 +12849,79 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 鲤鱼fc问答10问今晚生放答案  。。。。。。只有一个粉丝答对9题   法国和喷雾基本全跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5560#       发表于 2021-9-20 19:32
+
+
+说再完整看一遍熟肉还能分析出点啥，结果到台下鼓掌还是坚持不住拖进度条了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这尬得也不比水13逊色啊，香音上台这段，只是少了肢体动作，本质上都是一张嘴在那尬述，连个闪回都舍不得切，就是硬煽情。
+
+倒是找日记本那里，香音说“我们第一次来的时候有没有发现哪里不对劲”，感觉是staff
+自黑吐槽，既然你知道太都合了，那就在第一集埋个伏笔啊！
+
+越来越觉得星团的制作是切割后同时进行的，123一组，4一组，56一组，78一组，压根没有统筹，贯穿主线的伏笔更是在想桃吃。
+
+这不前后割裂才怪了！
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  辉耀还差3800  
+##### 5561#       发表于 2021-9-20 19:37
+
+
+尾宝的小论文还是有点道理
+
+
+*****
+
+####  寒风夜  
+##### 5562#       发表于 2021-9-20 19:38
+
+
+ 本帖最后由 寒风夜 于 2021-9-20 19:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824273&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-20 19:32</a>
+
+说再完整看一遍熟肉还能分析出点啥，结果到台下鼓掌还是坚持不住拖进度条了
+
+
+这尬得也不比水13逊色 ...</blockquote>
+铺垫只有4集拿到钥匙疑惑了一点点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">     我有点确信他们压根没想好写什么了 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5563#       发表于 2021-9-20 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824322&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-09-20 19:38:01</a>
+我有点确信他们压根没想好写什么了</blockquote>去看了一下，确实有一点迟疑，不过习惯性都会认为是门钥匙配了两把吧。
+
+真要埋不如埋箱子的伏笔，当时打不开，到第八集再找到钥匙，效果估计好不少。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Gooddays  
+##### 5564#       发表于 2021-9-20 19:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822697&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-20 16:41</a>
+但也一块唱跳两回了，感觉关系不进反退了，除非后面会加一集堇个人回专门讲垫脚石心态的纠正，否则就只是 ...</blockquote>
+为了LL可可什么也能忍，要在台上表演成功那怎也不能在台下或训练时期搞事，但跟LL没直接关係的日常事情上可可便把心中对堇的积怨爆出来了。
+
+例如以往 Smap 五人组个别访问中的讯息也曾显示他们虽然在台上欢笑，训练时也没出什么问题，但工作以外的关係未必好。Smap 这种多年拍挡也可能关系止于工作方面，那可可跟堇相处不久，堇还一开始便碰触到可可逆鳞，当中问题不可能单靠数次表演解决。
+
+只要可可相信或至少怀疑堇还把LL当踏脚石，可可对堇的态度便不可能有多好。当中最大问题是不管堇如何努力，对可可来说堇也只是 “努力地利用LL这踏脚石” 吧。
+
+
