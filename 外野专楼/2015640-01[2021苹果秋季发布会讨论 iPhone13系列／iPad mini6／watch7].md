@@ -10886,3 +10886,17 @@ mini有多小众？一个情况告诉你：其他机型都到十月底发货了�
 为啥我的pro的发货为啥纹丝不动啊
 
 
+
+
+*****
+
+####  左凉川  
+##### 977#       发表于 2021-9-20 16:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818147&amp;ptid=2015640" target="_blank">承尘 发表于 2021-9-20 05:30</a>
+
+mini6有推荐的壳吗</blockquote>
+目前好像只有亿色出了mini6的壳子，我的已经到货了，对于一百块来说还不错
+
+

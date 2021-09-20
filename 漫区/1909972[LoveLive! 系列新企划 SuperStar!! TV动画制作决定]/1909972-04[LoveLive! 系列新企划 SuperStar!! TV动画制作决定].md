@@ -12381,3 +12381,28 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  笋狐  
+##### 5525#       发表于 2021-9-20 16:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我现在越来越期待田中仁怎么处理as这团不可燃垃圾般的剧情了
+
+
+*****
+
+####  Gooddays  
+##### 5526#       发表于 2021-9-20 16:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821613&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-20 14:38</a>
+第七集可可：果然我还是觉得应该由香音来（参选）
+
+
+第八集可可：（恋当C位这件事）我也赞成</blockquote>
+这是因为堇视LL为踏脚石吧，可可是为了LL跑去日本的深度LL迷，堇这种心态相等于在粉丝面前践踏偶像，最让可可感到痛恨。
+
+
