@@ -13456,3 +13456,133 @@ Fo这东西看看就行，中之人fo数还是看三次元活动知名度和人�
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
+
+
+*****
+
+####  JustW  
+##### 5607#       发表于 2021-9-20 22:41
+
+
+ 本帖最后由 JustW 于 2021-9-20 22:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">还是不要拉虹团动画过来了。虽然一部动画的好看与否可能对整个企划没有什么影响，但是姑且在动画放送期间这还是个动画讨论楼，要是动画讨论楼都没必要讨论动画好看不好看，那他们还能坚持不懈砸钱砸人力做四五季动画实在是太有无私奉献精神了。总不能讨论半天得出一个结论：虹团动画就该向花田系看齐，这样带动效应一定更好？我看也不见得吧。而且我也不是股东，这些东西不怎么关心。
+
+
+*****
+
+####  星降る森  
+##### 5608#       发表于 2021-9-20 22:44
+
+
+正好有人统计CD销量，说白了，这企划也没到缪以后一路右肩，想靠星重振光辉的时候，水疫情前都准备开蛋巡，情况能差到哪里去
+
+
+<img src="https://img.saraba1st.com/forum/202109/20/223152cauviirscgeseciv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210920221418.jpg</strong> (34.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 22:31 上传
+
+
+现在三团并立分散消费力，加上疫情活动开不起来影响还比较大。不如说就是这舒适区太舒服了，套在这模板里出不去了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 5609#       发表于 2021-9-20 22:45
+
+
+费劲巴力从中之人选人才就是为了让动画偷懒的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梶原ひかり  
+##### 5610#       发表于 2021-9-20 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826788&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-20 22:41</a>
+还是不要拉虹团动画过来了。虽然一部动画的好看与否可能对整个企划没有什么影响，但是姑且在动画放 ...</blockquote>
+不必然向花田看齐...毕竟虹咲投入资源跟水团和裂裂没得比..但是也不要过分吹虹咲 虹咲动画播放效应实属一般 另一方面BD CD碟片成绩播前什么样 播后还是那个样子...跟缪斯 水团那时候效果真的差太多了
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+*****
+
+####  星降る森  
+##### 5611#       发表于 2021-9-20 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826731&amp;ptid=1909972" target="_blank">江口夕 发表于 2021-9-20 22:36</a>
+
+Fo这东西看看就行，中之人fo数还是看三次元活动知名度和人本身，从换钱角度远不如YouTube
+
+
+—— 来自 Xia ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你拉除了虹以外都是卖身企划，可以说人气完全源于LL动画的。列这个只是从侧面说虹的关注度也就那样。
+
+
+*****
+
+####  梶原ひかり  
+##### 5612#       发表于 2021-9-20 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822362&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-20 16:05</a>
+想了一下，虹团的成功，除了不受主线束缚，也有AS在前踩雷的功劳，到了电视动画的剧本就知道该怎么规避和优 ...</blockquote>
+AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事完全不一样..
+缪斯 水团也是公野樱子提供原案人设 还会写一下部分设定 之后到动画人设故事就大改特改了..
+理论上虹咲动画和 缪斯 水团都是完全原创的..
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  Jobtownb  
+##### 5613#       发表于 2021-9-20 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824273&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-20 19:32</a>
+说再完整看一遍熟肉还能分析出点啥，结果到台下鼓掌还是坚持不住拖进度条了
+
+这尬得也不比水13逊色 ...</blockquote>
+系构也是花田，这还是他**锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dozen  
+##### 5614#       发表于 2021-9-20 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826842&amp;ptid=1909972" target="_blank">梶原ひかり 发表于 2021-9-20 22:46</a>
+
+不必然向花田看齐...毕竟虹咲投入资源跟水团和裂裂没得比..但是也不要过分吹虹咲 虹咲动画播放效应实属一 ...</blockquote>
+水播前播后CD销量之类是什么效果来着？
+
+
+*****
+
+####  JustW  
+##### 5615#       发表于 2021-9-20 22:55
+
+
+ 本帖最后由 JustW 于 2021-9-20 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826842&amp;ptid=1909972" target="_blank">梶原ひかり 发表于 2021-9-20 22:46</a>
+
+不必然向花田看齐...毕竟虹咲投入资源跟水团和裂裂没得比..但是也不要过分吹虹咲 虹咲动画播放效应实属一 ...</blockquote>
+我当然也不是要吹虹，现在有些人把虹抬到百合圣经的位置，我也是不屑一顾的，战吧那些扭曲入脑的我也笑笑就好。但动画质量和动画商业效应还是需要分开的，喜欢虹团动画的、对星团近几集表现有意见的，想必想讨论的不是后者，而是前者。
+
+
+动画商业效应这件事关注壁吧时间越长，越知道这东西影响因素太多了，很难预测。可能长眼睛的都知道A比B好，但A就是卖得好，赚钱多。王之力？大环境？谁也说不清。对于大多数人来说操心不了这个。作为普通观众，高兴了喝彩，动心了掏钱，失望了跑路，恶心了吐痰，大抵就是只能做这些。
+
+

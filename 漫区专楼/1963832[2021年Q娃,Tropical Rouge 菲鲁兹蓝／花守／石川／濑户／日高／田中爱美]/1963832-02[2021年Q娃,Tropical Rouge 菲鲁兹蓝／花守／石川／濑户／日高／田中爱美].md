@@ -9012,3 +9012,14 @@ image.png
 这话除了战斗质量拉满，角色的小动作做得也特别可爱，罗拉和真夏两人之间的互动实在是看得我dokidoki的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  小兰兰  
+##### 2157#       发表于 2021-9-20 22:55
+
+
+重看了几回，萝拉这劲也太大了，真让人上头，有没有人细数一下这集萝拉叫了多少声马娜自啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
