@@ -10818,3 +10818,17 @@ pitaka怎么样
 看你们说pm订单提前了，去看了看提前了一天淦<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  (wing)  
+##### 972#       发表于 2021-9-20 13:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818405&amp;ptid=2015640" target="_blank">nomhrpls 发表于 2021-9-20 08:08</a>
+
+13pm订单提前了，之前是10.1-10.8，现在变9.30-10.2了</blockquote>
+是提前了，我的也提前了几天
+
+

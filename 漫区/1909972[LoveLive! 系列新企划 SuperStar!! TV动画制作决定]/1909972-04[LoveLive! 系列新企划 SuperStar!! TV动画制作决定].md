@@ -11660,3 +11660,62 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我 觉得就该换批新监督脚本
 
 
+
+
+*****
+
+####  Goisdust  
+##### 5476#       发表于 2021-9-20 13:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820933&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 13:14</a>
+
+这么大IP还能不看好吗？不如说很多人一直没认清这企划上限在三次元上。碟销量正相关的也是抽选。 ...</blockquote>
+整个企划的销量都是在右肩的，配信时代抽选也已经不管用了
+
+
+*****
+
+####  星降る森  
+##### 5477#       发表于 2021-9-20 13:26
+
+
+<blockquote>qratosone 发表于 2021-9-20 02:32
+重新看了一下机翻熟肉，感觉恋恋的逻辑线虽然轴了点，但还是比较清晰的。叶月花女士对神宫音乐学校显然有非 ...</blockquote>
+理事长哪怕不知道资料在哪里还不知道她妈对偶像的态度吗？说到底就是恋根本没想过别人怎么看，全靠自己脑补的，这观感比as的栞子还差好吧，栞子姐好歹还有个前车之鉴，恋有啥……
+
+
+*****
+
+####  星降る森  
+##### 5478#       发表于 2021-9-20 13:28
+
+
+<blockquote>Goisdust 发表于 2021-9-20 13:24
+整个企划的销量都是在右肩的，配信时代抽选也已经不管用了</blockquote>
+同时开三个企划，加上疫情下live不确定性，这些你都不看的吗?你的统计区间是什么时候开始的?
+
+
+*****
+
+####  寒风夜  
+##### 5479#       发表于 2021-9-20 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821047&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 13:26</a>
+
+理事长哪怕不知道资料在哪里还不知道她妈对偶像的态度吗？说到底就是恋根本没想过别人怎么看，全靠自己脑 ...</blockquote>
+矛盾 制造太低级了 
+
+
+*****
+
+####  寒风夜  
+##### 5480#       发表于 2021-9-20 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821047&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 13:26</a>
+
+理事长哪怕不知道资料在哪里还不知道她妈对偶像的态度吗？说到底就是恋根本没想过别人怎么看，全靠自己脑 ...</blockquote>
+
+

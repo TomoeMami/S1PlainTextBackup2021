@@ -12012,3 +12012,17 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 最后拿到的魔剑一看加成比其他人的魔武器强一大截，应该是从游戏开始就直接累加击杀数了
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5407#       发表于 2021-9-20 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820770&amp;ptid=1860328" target="_blank">先生空气 发表于 2021-9-20 12:57</a>
+
+Hard打下来其实整体难度还好，难的地方基本就是光将，没钱买药不知道怎么打伤害。后面是越来越简单，风将视 ...</blockquote>
+我觉得主要还是后面做崩了...麻婆战就是最难的boss战了。。后面学会复读后感觉打啥都一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

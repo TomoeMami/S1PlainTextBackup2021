@@ -15615,3 +15615,19 @@ c呆奥博龙呗
 第三特异点是不是重置过了，怎么感觉哪里不太一样了
 
 
+
+
+*****
+
+####  qixinno2  
+##### 83809#       发表于 2021-9-20 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820173&amp;ptid=1085254" target="_blank">红丽 发表于 2021-9-20 12:01</a>
+
+日服老咸鱼最近卡在2.52了
+
+求一波大腿：857900037</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得C呆实装后252不都是虐杀么
+
+
