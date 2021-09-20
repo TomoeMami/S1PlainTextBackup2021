@@ -13052,3 +13052,71 @@ nako脸上这痣有点多啊
 只有堇同样是普通科，不怯场，唱歌跳舞也擅长，可可无法从中感受到对等的关系，所以才会不断地贬低<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kbtit  
+##### 5575#       发表于 2021-9-20 20:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824958&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-20 21:30</a>
+
+感觉各个地方觉得民警活该受迫害的好像就只有“堇瞧不起学园偶像”这一个观点，只要这个前提条件还存在，可 ...</blockquote>
+没怎么看到有人说“活该”受迫害，你这是自己脑补的吗？大多数都在给唐可可怼人寻找合理性，她为什么要这么做？目前不就一个“看不起学院偶像”比较合理吗？那不然是什么呢？liyuu指使唐可可故意霸凌平安名堇？<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5576#       发表于 2021-9-20 20:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825190&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-20 20:46</a>
+
+那新观点就是可可对于堇高傲的态度不满，她的自尊无法忍受自上而下的关照
+
+与香音的关系是因为两个人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5577#       发表于 2021-9-20 20:52
+
+
+<blockquote>kbtit 发表于 2021-9-20 20:50
+没怎么看到有人说“活该”受迫害，你这是自己脑补的吗？大多数都在给唐可可怼人寻找合理性，她为什么要这 ...</blockquote>
+我认为怼人的剧内合理性越来越没有说服力，硬要合理化反而让唐可可这个角色失真，而剧外合理性我认为更有可能：编剧认为自己设计的这个欢喜冤家实在是太棒太有趣啦（
+
+
+*****
+
+####  VirMoe  
+##### 5578#       发表于 2021-9-20 20:53
+
+
+星团每个人的矛盾实际上看都很拧巴，感觉过于表演，经常把我尬住<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 5579#       发表于 2021-9-20 20:56
+
+
+<blockquote>soranoguiji 发表于 2021-9-20 18:28
+昨天看战吧吹虹踩星感觉好可怕，感觉虹二期被捧得太高万一拉了要被反噬的 ...</blockquote>
+拿无印绘里回和水鞠南回打第八集的也不少，怎么主流观点反而是战吧虹斯林带节奏黑星，外传果然位于鄙视链下层
+
+
+*****
+
+####  cybernetics31  
+##### 5580#       发表于 2021-9-20 20:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹先看二期吧 
+
+

@@ -12474,3 +12474,28 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5445#       发表于 2021-9-20 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824957&amp;ptid=1860328" target="_blank">loley 发表于 2021-9-20 20:30</a>
+
+有一说一，我就是在TOB那边被高我N级的支线的米拉裘德打到生活不能自理才学会在这作里做支线前存档的，你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这都2021年了啊。还重蹈覆辙呢
+
+
+*****
+
+####  TOWA  
+##### 5446#       发表于 2021-9-20 20:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对比之下ufo的2d动画为什么会这么拉
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
