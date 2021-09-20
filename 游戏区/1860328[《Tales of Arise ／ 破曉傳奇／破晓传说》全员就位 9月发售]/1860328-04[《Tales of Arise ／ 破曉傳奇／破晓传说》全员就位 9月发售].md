@@ -11956,3 +11956,17 @@ THX~之前没仔细看怎么加速，原来如此
 剧情推进到禁区搜真相，走两步一次切屏唠嗑真有点烦，更别提打完红衣女还得原路折返一遍。对话部分应该集中一下别一会儿操作一会儿看片
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 5402#       发表于 2021-9-20 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817976&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-20 02:48</a>
+
+魔武器成长怎么算的？是不是先要去刷一堆低级怪？</blockquote>
+装备魔武器的角色打死一个敌人+1，上限9999
+
+

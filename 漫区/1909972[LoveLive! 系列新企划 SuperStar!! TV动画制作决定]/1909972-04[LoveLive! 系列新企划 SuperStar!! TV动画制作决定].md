@@ -11364,3 +11364,95 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理事长的问题
 
 
+
+
+*****
+
+####  tiro_finale  
+##### 5449#       发表于 2021-9-20 12:04
+
+
+全力反对最后真香是可以写得很有意思的，写好了说不定还能成名梗，打来打去最后“我们在一起了”可是脍炙人口的经典桥段
+
+
+*****
+
+####  gggzh  
+##### 5450#       发表于 2021-9-20 12:04
+
+
+看不懂偶像番了
+
+
+*****
+
+####  优妮可  
+##### 5451#       发表于 2021-9-20 12:07
+
+
+<blockquote>chenflyyy 发表于 2021-9-20 10:41
+战吧都到了需要开单集集中贴的地步了，这集的不满和争议是真的挺严重的而且节奏也是真的多 ...</blockquote>
+主要是有两个贴，一个吹虹好在哪，一个说其实虹也没那么好看。不开集中贴怕是要打起来了。
+
+
+*****
+
+####  Goisdust  
+##### 5452#       发表于 2021-9-20 12:16
+
+
+连学校第一才女都留不住的音乐科还有什么存在的必要吗。小千拿的的舞蹈冠军都被认证是新人赏以下的野鸡比赛了，还不如倾注全校力量来支持偶像事业
+
+
+*****
+
+####  寒风夜  
+##### 5453#       发表于 2021-9-20 12:23
+
+
+就这矛盾塑造突出一个瞎猜疑瞎行动，最后发现其实就是自己没把该找的东西找全自己导致的一场大乌龙误会，这不毁了角色就有鬼了，看人说的  挺对 
+
+
+*****
+
+####  cybernetics31  
+##### 5454#       发表于 2021-9-20 12:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sjbssd  
+##### 5455#       发表于 2021-9-20 12:27
+
+
+合着你别扭了7集主要原因是记性不好自己忘了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+忘啦！！！（唄：玄烨）
+
+
+*****
+
+####  寒风夜  
+##### 5456#       发表于 2021-9-20 12:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这大伙吹b都比动画有意思
+
+
+*****
+
+####  ads147147  
+##### 5457#       发表于 2021-9-20 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820414&amp;ptid=1909972" target="_blank">sjbssd 发表于 2021-9-20 12:27</a>
+合着你别扭了7集主要原因是记性不好自己忘了。[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/336.png" referrerpolicy="no-referrer">这可是dc名梗之why you say that name的变种，不得不品尝。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

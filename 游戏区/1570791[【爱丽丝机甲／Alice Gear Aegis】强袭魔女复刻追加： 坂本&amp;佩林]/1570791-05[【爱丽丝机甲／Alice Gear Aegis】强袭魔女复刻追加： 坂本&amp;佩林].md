@@ -382,3 +382,27 @@ yoyo这反差萌真可爱
 要中4HIT，一发手是3HIT。一发就能出减防一般是多部位有判定的敌人
 
 
+
+
+*****
+
+####  hashire.owl  
+##### 6029#       发表于 2021-9-20 12:14
+
+
+模型买了多份，奉上一份动画ova码，有需求的朋友自取。
+
+
+E0B718C7-51AE-4580-B7B4-DFB12ACEED5E.jpeg
+(1.95 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-20 12:14 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/20/121434tq2mdd242dol443r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
