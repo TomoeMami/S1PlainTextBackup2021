@@ -11456,3 +11456,43 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  sjbssd  
+##### 5458#       发表于 2021-9-20 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820447&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-20 12:30</a>
+
+这可是dc名梗之why you say that name的变种，不得不品尝。
+
+
+—— 来自 Xiaomi Mi 10 Pro, Androi ...</blockquote>
+讲真，当搞笑番组看还挺乐的，会长像个傻子一样，特别是canon摘下话筒，跟圆规似的站着，然后举着个相册那边，给爷笑傻了。连带着堇那边也释怀了，就把她当是漫才里面的逗哏了，反正我笑了，我觉得最好结局的时候大家站在台上表示刚才11集都是我们排练的话剧，这样乐子程度就满分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5459#       发表于 2021-9-20 12:39
+
+
+理性讲，不出访谈的情况下，我们也不知道是花田能力不足还是京极拍板有问题，或是制作人/企划方的压力。
+只能说，系构是你，背锅不是你来就是导演来，那就麻烦借花田你人头一用了。
+
+我到要看看这么赶的进度，到结局的情节要有多好才值得这样写。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5460#       发表于 2021-9-20 12:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我 先扔了 大伙，
+
+

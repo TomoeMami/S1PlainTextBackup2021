@@ -6198,3 +6198,28 @@ ps5好不了多少本来就是void引擎的问题倒不如说ps5是给你帧数�
 我觉得就连接和瞬移特别好用，后期人多起来卡尔尼西斯杀不动，浩劫容易五秒真男人过了当场暴毙，以太远距离打狙还可以，一旦进入室内根本顶不住敌人的搜查
 
 
+
+
+*****
+
+####  astrayveller  
+##### 532#       发表于 2021-9-20 12:34
+
+
+日文配音意外的好 特别是朱莉安娜
+
+— from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 533#       发表于 2021-9-20 12:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820193&amp;ptid=1972138" target="_blank">量子大蛇 发表于 2021-9-20 12:04</a>
+
+我觉得就连接和瞬移特别好用，后期人多起来卡尔尼西斯杀不动，浩劫容易五秒真男人过了当场暴毙，以太远距 ...</blockquote>
+链接和瞬移就是终极答案啊，这个链接作用范围比耻辱的还要大，直接一杀一大片
+
+
