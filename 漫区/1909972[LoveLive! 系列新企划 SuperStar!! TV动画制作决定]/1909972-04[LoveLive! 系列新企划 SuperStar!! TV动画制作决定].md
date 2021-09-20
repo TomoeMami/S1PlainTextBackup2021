@@ -14073,3 +14073,15 @@ fc的有特典和直签，买还是要买的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">学院偶像二代，巴结下有什么关系
 
 
+
+
+*****
+
+####  猫睛石  
+##### 5650#       发表于 2021-9-21 00:49
+
+
+我觉得四话后可可没正面提出对民警的不满是因为拉民警入队的是香音，可可都疑似对香音重女了怎么也不能太不给香音面子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而恋目的不管是什么方式明确为搞学园偶像，而且我怀疑恋妈比缪还早的学园偶像经历把可可闪瞎了已经。
+
+
