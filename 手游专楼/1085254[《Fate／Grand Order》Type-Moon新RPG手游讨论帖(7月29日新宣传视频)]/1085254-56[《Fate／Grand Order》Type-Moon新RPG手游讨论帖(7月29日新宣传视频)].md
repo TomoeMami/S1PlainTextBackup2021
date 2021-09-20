@@ -15675,3 +15675,17 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 好像有那种C呆杀狐奥博龙+摩根的初始，你自己用带的石头再抽个水夹馍，接下来一年就都随便打都不用抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  红丽  
+##### 83813#       发表于 2021-9-20 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822127&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-9-20 15:37</a>
+
+申请了 不嫌菜就加吧</blockquote>
+通过啦，谢谢大腿们<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
