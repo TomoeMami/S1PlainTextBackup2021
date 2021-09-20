@@ -13405,3 +13405,54 @@ nako脸上这痣有点多啊
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  星降る森  
+##### 5604#       发表于 2021-9-20 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822909&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-20 17:03</a>
+
+具足虫哪能算心理阴影，顶多就相当于现实中的汉堡肉之于逢田姐罢了，后来逢田姐上厨艺类节目还不是玩得很开 ...</blockquote>
+逢田在推上是发过让你们不要说的，而且说了不止一次，你们这些梗小鬼像可可一样停不下来罢了。
+
+加害者倒是脑补玩的开心？顺便，逢田从来没有上过厨艺节目，做料理那次还是附加一句让你们不要唧唧歪歪的，回到平安名，以她性格没有到为了学校不要脸的地步，至少也不会再去演具足虫，剧本为了搞笑这么乱写，你还能觉得是符合性格？
+
+
+选举回叫什么拖后腿，星团其他人一个都不愿意上倒反过来指责平安名不认真，笑了
+
+
+*****
+
+####  星降る森  
+##### 5605#       发表于 2021-9-20 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822362&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-20 16:05</a>
+
+想了一下，虹团的成功，除了不受主线束缚，也有AS在前踩雷的功劳，到了电视动画的剧本就知道该怎么规避和优 ...</blockquote>
+虹团说成功也没多成功，无非是全靠同系列衬托。
+
+夹脚后纠结的东西是自己粉丝多了没法只当侑一个人的偶像，这段理由和观感怎么都称不上强。
+
+
+顺便题外说一下，虹的动画效应是四个团里最差的，无论是播出后官推fo数提升，还是声优fo数提升幅度都是倒数第一（比没播完的星还差）
+
+
+*****
+
+####  江口夕  
+##### 5606#       发表于 2021-9-20 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826671&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 22:30</a>
+虹团说成功也没多成功，无非是全靠同系列衬托。
+
+夹脚后纠结的东西是自己粉丝多了没法只当侑一个人的偶像 ...</blockquote>
+Fo这东西看看就行，中之人fo数还是看三次元活动知名度和人本身，从换钱角度远不如YouTube
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
