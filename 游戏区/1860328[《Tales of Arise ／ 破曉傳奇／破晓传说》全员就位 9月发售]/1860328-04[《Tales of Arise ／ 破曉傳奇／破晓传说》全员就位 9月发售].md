@@ -12675,3 +12675,81 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 卖钱的10000一个，锻造一把武器就要近20000...
 
 
+
+
+*****
+
+####  Shabadadoo  
+##### 5461#       发表于 2021-9-20 23:42
+
+
+20小时玩到见漆黑之鹰老大那里，一直冲冲冲打打打，感觉已经疲倦了。后面还有多少流程？
+
+
+*****
+
+####  式琉弘  
+##### 5462#       发表于 2021-9-20 23:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打算每种饰品都做一个5级的出来 然后卡尖锐矿（强袭徽章）了 
+
+就是技能效果贯通30%那个 反而贯通80%的后者瀑布和湿地一大堆 结果现在全图挖矿都没挖到一个尖锐矿 怀疑是比较前期的图的素材 有没人知道出处
+
+
+*****
+
+####  alucardcz  
+##### 5463#       发表于 2021-9-20 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827382&amp;ptid=1860328" target="_blank">式琉弘 发表于 2021-9-20 23:47</a>
+
+打算每种饰品都做一个5级的出来 然后卡尖锐矿（强袭徽章）了 
+
+就是技能效果贯通30%那个 反而贯通80% ...</blockquote>
+5417楼有说
+
+
+*****
+
+####  魂淡放我出去  
+##### 5464#       发表于 2021-9-20 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827345&amp;ptid=1860328" target="_blank">Shabadadoo 发表于 2021-9-20 23:42</a>
+20小时玩到见漆黑之鹰老大那里，一直冲冲冲打打打，感觉已经疲倦了。后面还有多少流程？ ...</blockquote>
+包括通关后出现的支线，全支线的话60小时左右，从你的时间点开始直接一路干主线，45到50个小时左右吧大概
+
+
+*****
+
+####  式琉弘  
+##### 5465#       发表于 2021-9-20 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827423&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-20 23:51</a>
+
+5417楼有说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">居然是雪国特产 我印象最早强袭徽章在女主换婚纱的那个仓库里面开到一个结果在荒地绕了半天以为是在那边出的
+
+
+*****
+
+####  春风女神狄璐卡  
+##### 5466#       发表于 2021-9-20 23:58
+
+
+不是，我就玩了个序章实在忍不住了，这男主戴这么个JB玩意是怎么看东西的 吃饭还能勉强说从下面塞进去
+
+
+<img src="https://img.saraba1st.com/forum/202109/20/235848unnnijn22isx80zx.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (46.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 23:58 上传
+
+

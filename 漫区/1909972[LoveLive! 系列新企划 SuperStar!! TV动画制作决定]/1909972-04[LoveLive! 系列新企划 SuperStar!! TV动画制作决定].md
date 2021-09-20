@@ -13962,3 +13962,80 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 堇自己都去抓具足虫的娃娃，那怎么可能会是她的阴影。也许被外人看了有些难为情，但那也是她演员梦想的一部分
 
 
+
+
+*****
+
+####  UnhappyTails  
+##### 5641#       发表于 2021-9-20 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827265&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 23:32</a>
+
+队长役你是想多了，可可可以成为香音喜欢上学院偶像的契机，可以作为拯救她歌唱生涯的同伴，但绝对不会成 ...</blockquote>
+不不不，你看下我之前写的，队长役和核心的概念不一样
+
+
+用偶像来说，队长就是那个团队里大家都喜欢的，c就是站在当中到处跑外务对外交流第一个讲话的
+
+
+可可这个形象做队长没毛病，这里的队长不算leader啦，和果还有千歌不是一码事
+
+
+而且我之前也说了，正常的交接方式应该是可可把主动发起的功能慢慢交给小百合，然后自己成为纯拧绳的那种人人都好说话的后盾系角色——这就牵涉到我对小百合成长路线的不满，这未免也太慢了，这都第几话了还让香音被人推着走图啥呢？每次都是临了让香音突然机械降神领导力爆表，搞得人家像把妹爆种的后宫男一样<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5642#       发表于 2021-9-20 23:40
+
+
+鲤鱼这台历不敢在办公室用，私心希望是私服外景的照片
+
+
+*****
+
+####  NODY  
+##### 5643#       发表于 2021-9-20 23:43
+
+
+民警剧情现在几个解释也是矛盾的，有的说她没悔改所以可可一直臭脸挤兑，另一边说民警愿意穿具足虫套装宣传和给恋让c是塑造民警成长，你说民警成长了吧那可可岂不是无理取闹，说民警没成长吧又不好解释她干脆让c还主动扮演具足虫，只能说不要带脑子看了
+
+
+*****
+
+####  灼眼の安娜  
+##### 5644#       发表于 2021-9-20 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827356&amp;ptid=1909972" target="_blank">NODY 发表于 2021-09-20 23:43:17</a>
+民警剧情现在几个解释也是矛盾的，有的说她没悔改所以可可一直臭脸挤兑，另一边说民警愿意穿具足虫套装宣传 ...</blockquote>民警成长了，但是依然瞧不起学园偶像。
+可可最关心的只有学园偶像，民警别的方面再成长，只要她还是瞧不起学园偶像那可可就是讨厌她。
+二者并不矛盾，说到底就是民警成长了走出心理阴影和民警瞧不起学园偶像之间并不存在必然联系，这是两件事情。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  cybernetics31  
+##### 5645#       发表于 2021-9-20 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827334&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-20 23:40</a>
+鲤鱼这台历不敢在办公室用，私心希望是私服外景的照片</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">fc的有特典和直签，买还是要买的
+
+
+*****
+
+####  CharlieZ-  
+##### 5646#       发表于 2021-9-21 00:05
+
+
+我也觉得离谱，就算LL对可可来说大过一切，她和恋真正认识的时间也才几天，这集怎么就能光速改称呼让c位了，和民警好歹也处了几个月，情商再低态度也不至于是这两集这个样子吧，这集的双标也就让我很迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也不怪网上争议那么大，这人物关系处理的是真差，最后还来一段具足虫，不知道让多少堇厨破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
