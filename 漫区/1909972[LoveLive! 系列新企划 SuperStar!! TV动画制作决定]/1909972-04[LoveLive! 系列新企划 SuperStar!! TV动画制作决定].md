@@ -12772,3 +12772,37 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 这话看的笑死了，你是C还是她是C啊。加农作为主角在三集之后就塑造的挺割裂的，甚至让人有点讨厌。可可回有的话就是这季挽回的最后机会了。
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 5555#       发表于 2021-9-20 18:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 昨天看战吧吹虹踩星感觉好可怕，感觉虹二期被捧得太高万一拉了要被反噬的
+
+
+*****
+
+####  优妮可  
+##### 5556#       发表于 2021-9-20 18:34
+
+
+<blockquote>soranoguiji 发表于 2021-9-20 18:28
+昨天看战吧吹虹踩星感觉好可怕，感觉虹二期被捧得太高万一拉了要被反噬的 ...</blockquote>
+那个吹虹的贴出来之后有一个围虹救星的贴，大乱斗了属于是。
+
+
+*****
+
+####  crcln  
+##### 5557#       发表于 2021-9-20 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823675&amp;ptid=1909972" target="_blank">soranoguiji 发表于 2021-9-20 18:28</a>
+
+昨天看战吧吹虹踩星感觉好可怕，感觉虹二期被捧得太高万一拉了要被反噬的 ...</blockquote>
+我看得很过瘾，打起来，爬了一下午战吧的楼了。可惜吧务把那个帖子删了，真的可惜了。
+
+

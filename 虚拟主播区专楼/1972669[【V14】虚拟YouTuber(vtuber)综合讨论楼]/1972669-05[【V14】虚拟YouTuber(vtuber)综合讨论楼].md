@@ -14299,3 +14299,14 @@ VALORANTを運営している、RiotGames様のサポートのもと、ぶいす
 这回打牌阵容有德比真是，呃，微妙
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7050#       发表于 2021-9-20 18:44
+
+
+憨憨组拿了个第一，社筑熊猫人最后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

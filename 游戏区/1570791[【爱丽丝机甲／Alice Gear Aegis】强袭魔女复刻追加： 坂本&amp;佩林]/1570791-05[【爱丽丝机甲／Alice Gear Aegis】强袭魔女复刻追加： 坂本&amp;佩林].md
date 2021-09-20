@@ -473,3 +473,33 @@ E0B718C7-51AE-4580-B7B4-DFB12ACEED5E.jpeg
 垃圾的是小芦ansp吧
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6035#       发表于 2021-9-20 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823323&amp;ptid=1570791" target="_blank">黑炎凤凰 发表于 2021-9-20 17:45</a>
+
+所以最佳组合是原版带ansp吗</blockquote>
+现在国服没AN装备，an绫香穿原来的出力装伤害高不了多少但是会变得更脆。而且没任何自充自身120的SP条，SP回转很差。但是伤害是实打实提升而且还有个被动是防御成功后加5，6秒攻速，常态打伤害肯定是比原版强的。不过一般来说原版开局自充100+ANSP就已经很流氓，多一次SP呢。
+
+
+*****
+
+####  江戸前ルナ  
+##### 6036#       发表于 2021-9-20 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823412&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-9-20 17:56</a>
+
+四谷ansp也不算太垃圾吧
+
+输出不是爆炸吗
+
+垃圾的是小芦ansp吧</blockquote>
+输出只能说还可以，比双手剑平砍好点，追身能力**强化了。但是剑炮太变态啊，DPS被剑炮吊打啊……ANSP影响了BBA打剑炮！
+
+
