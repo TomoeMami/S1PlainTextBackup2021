@@ -10761,3 +10761,23 @@ pitaka怎么样
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">借楼求问ipad pro要不要买ac+，壳膜（只写字不画画）求推荐
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 967#       发表于 2021-9-20 07:56
+
+
+妹子突然想换mini了 楼里有在并夕夕抢过的吗 感觉好抢不<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nomhrpls  
+##### 968#       发表于 2021-9-20 08:08
+
+
+13pm订单提前了，之前是10.1-10.8，现在变9.30-10.2了
+
+

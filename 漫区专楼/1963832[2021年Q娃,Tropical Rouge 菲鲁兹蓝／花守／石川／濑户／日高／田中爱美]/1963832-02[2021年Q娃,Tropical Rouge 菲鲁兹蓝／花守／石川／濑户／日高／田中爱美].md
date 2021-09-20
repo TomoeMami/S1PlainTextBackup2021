@@ -8863,3 +8863,17 @@ image.png
 新必杀全员裸足，可惜镜头不是很多，倒是有个问题有一段用手划过镜子的，只划过了三次，看手环颜色三次全是真夏，为什么会这么设计？
 
 
+
+
+*****
+
+####  新HGCG  
+##### 2144#       发表于 2021-9-20 07:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818182&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-9-20 06:12</a>
+
+新必杀全员裸足，可惜镜头不是很多，倒是有个问题有一段用手划过镜子的，只划过了三次，看手环颜色三次全是 ...</blockquote>
+可能是因为玩具就是这么设计的？
+
+
