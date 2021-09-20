@@ -15631,3 +15631,33 @@ c呆奥博龙呗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得C呆实装后252不都是虐杀么
 
 
+
+
+*****
+
+####  红丽  
+##### 83810#       发表于 2021-9-20 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821072&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-9-20 13:28</a>
+
+我记得C呆实装后252不都是虐杀么</blockquote>
+我没有呀
+
+a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡。。。
+
+
+*****
+
+####  qixinno2  
+##### 83811#       发表于 2021-9-20 15:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822061&amp;ptid=1085254" target="_blank">红丽 发表于 2021-9-20 15:28</a>
+
+我没有呀
+
+a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">申请了 不嫌菜就加吧
+
+

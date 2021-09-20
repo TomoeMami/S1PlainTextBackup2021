@@ -12136,3 +12136,136 @@ cd也是，以前ll企划方发售cd基本上都是只有一个团的，这样�
 很遗憾是的，除了虹团以外缪水星三作总是有这样标签化的人……这样也为什么是我讨厌花田的原因，本来以为他想开了结果还是那个样子……。
 
 
+
+
+*****
+
+####  球獭  
+##### 5509#       发表于 2021-9-20 15:26
+
+
+明白虹团为何好评居多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 5510#       发表于 2021-9-20 15:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821894&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 15:10</a>
+我算是这作刚进坑的新人，前面三作还没来及补
+
+
+但我想说，这标签化已经在吞噬人物的合理性了，超越了人设 ...</blockquote>
+你想的没错，lovelive动画是服务企划的，本质上动画的最终目的除了扩大影响做宣传，就是强化角色印象，给角色更多特殊标签，包括后期还有声优所谓的逆输入，也是对角色的进一步印象强化和补充，主线剧情合理性反而是次要的东西
+
+
+*****
+
+####  UnhappyTails  
+##### 5511#       发表于 2021-9-20 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822039&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 15:26</a>
+
+你想的没错，lovelive动画是服务企划的，本质上动画的最终目的除了扩大影响做宣传，就是强化角色印象，给 ...</blockquote>
+你没有理解我的意思，为了人设牺牲剧情这一点在动画业界已经非常普遍了，而角色/人设导向的片子里也不乏可以一看的
+
+
+我说的是为了大王具足虫这种meme而牺牲人物和剧情的合理性，完完全全地冲着造梗去
+
+
+前三作也是这么干的吗（因为ll这边的烂梗并没有那么普遍，所以不太确定）
+
+
+*****
+
+####  灼眼の安娜  
+##### 5512#       发表于 2021-9-20 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821894&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-09-20 15:10:52</a>
+我算是这作刚进坑的新人，前面三作还没来及补
+
+
+但我想说，这标签化已经在吞噬人物的合理性了，超越了人设 ...</blockquote>前三作的话虹还好，缪水两代都是这样的。
+每个角色都有标签，只是程度不一样。
+果：今天的面包真好吃。
+海：破廉耻。
+鸟：果厨。
+凛：男孩子气运动猫娘喵喵喵。
+花：腼腆的米饭狂和偶像厨。
+姬：傲娇提款机。
+妮：自尊心极强的niconiconi。
+希：神秘莫测的会长助理兼巫女。
+绘：哈拉秀会长。
+千：普通怪兽缪斯厨。
+梨：天降钢琴少女。
+曜：挺好青梅yosoro。
+露：刚把露比小透明。
+丸：zura土妹子。
+善：倒霉中二。
+鞠：shiny提款机理事长。
+南：鞠莉cp体力极好。
+黛：脱线妹控学生会长噗噗跌斯瓦。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  灼眼の安娜  
+##### 5513#       发表于 2021-9-20 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822088&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-09-20 15:31:19</a>
+你没有理解我的意思，为了人设牺牲剧情这一点在动画业界已经非常普遍了，而角色/人设导向的片子里也不乏可 ...</blockquote>别的不说，至少刚把露比当年的口碑也很不好，为了强化露比的这个口头禅，愣是在粉丝群体中搞出了“露比的手都被胶水粘住了”这样的戏虐，说的就是动画里露比只会说这个，然后两个胳膊始终贴在一起，不说没有别的作用了，甚至露比都快没有别的动作了。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  UnhappyTails  
+##### 5514#       发表于 2021-9-20 15:40
+
+
+ 本帖最后由 UnhappyTails 于 2021-9-20 15:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822093&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 15:32</a>
+
+前三作的话虹还好，缪水两代都是这样的。
+
+每个角色都有标签，只是程度不一样。
+
+果：今天的面包真好吃。</blockquote>
+你说的这些除了破廉耻niconiconi其实都只是人设导向的范畴（小部分可能是属性导向？）
+
+
+所谓的meme优先是必须要有一个烂梗，然后这个烂梗超过一切
+
+
+以堇为例，堇作为配角在作品中合理的成长，对剧情的种种矛盾做出反应，最后在完成作用后退场/离开舞台中央，这是剧情导向。堇作为“想出名的傲娇迫害役”活跃，并以此为中心和别人发生联系和互动，成长，这是人设导向。堇作为受迫害的人登场，全程都在说她受迫害的事情，人物完全不成长，翻来覆去炒“受迫害”这个属性的冷饭，大家也都是各式各样的属性标签，整个就是一沓标签在台上尬演，这叫属性导向。
+
+
+堇作为“大王具足虫”这一非常有传播性的烂梗的持有者，让她的相关剧情，互动和人物成长统统为重复这个烂梗让路，这叫造梗优先。
+
+
+海爷和niconiconi可能是最贴合这一叙述的，但是我觉得无印不至于为了让妮可多来几遍niconiconi而不顾剧情合理性（...?）
+
+
+花田在第三层，而堇的遭遇让我觉得企划是不是要进入第四层了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UnhappyTails  
+##### 5515#       发表于 2021-9-20 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822150&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 15:40</a>
+
+别的不说，至少刚把露比当年的口碑也很不好，为了强化露比的这个口头禅，愣是在粉丝群体中搞出了“露比的手 ...</blockquote>
+对，那这么说的话，水水的这个露比也能算梗优先迫害角色了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
