@@ -10617,3 +10617,43 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 5390#       发表于 2021-9-20 09:49
+
+
+ 本帖最后由 黑雪姫 于 2021-9-20 09:52 编辑 
+
+看完熟肉我觉得还可以啊，没有节奏带的那么糟，这集至少平均以上水准了吧 虽然live的歌我个人觉得不太好听。
+
+
+*****
+
+####  midearth  
+##### 5391#       发表于 2021-9-20 09:53
+
+
+这live说是让恋来当c，实际不还是双c么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 5392#       发表于 2021-9-20 09:54
+
+
+这就是恋恋刚来就能当C，而具足虫做不了C的原因了
+
+
+*****
+
+####  笋狐  
+##### 5393#       发表于 2021-9-20 09:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭还算温和的，仅止于吐槽剧情和鞭尸花田上，把脑袋放空来看这集也不是不能看下去，个人观感来说只是恋在台上那段着实有点难绷，要不是因为生放不好暂停我一次性肯定看不完这段戏
+
+
