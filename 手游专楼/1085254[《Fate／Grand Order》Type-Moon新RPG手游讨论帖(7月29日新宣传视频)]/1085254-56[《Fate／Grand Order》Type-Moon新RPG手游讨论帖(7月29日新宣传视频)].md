@@ -15689,3 +15689,14 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 通过啦，谢谢大腿们<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ddr  
+##### 83814#       发表于 2021-9-20 21:59
+
+
+把裤裆里的石头都掏出来了也没第二张夹馍，可以放弃了
+
+

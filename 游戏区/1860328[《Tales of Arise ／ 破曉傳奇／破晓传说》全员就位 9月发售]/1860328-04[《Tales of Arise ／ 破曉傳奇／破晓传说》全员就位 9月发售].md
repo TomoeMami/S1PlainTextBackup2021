@@ -12570,3 +12570,16 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  司马千晶  
+##### 5453#       发表于 2021-9-20 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825810&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-20 21:26</a>
+那个塔上的大鸟我打不过啊 当时4x级</blockquote>
+40多可以过，这里和地宫boss思路有点重复，都是触发bs打死小怪后溅射其他单位，压低血量然后逐个击杀，地宫那里有意思的地方在于红色射线打不到空中单位，空连有用武之地后真就砍了个爽。
+
+

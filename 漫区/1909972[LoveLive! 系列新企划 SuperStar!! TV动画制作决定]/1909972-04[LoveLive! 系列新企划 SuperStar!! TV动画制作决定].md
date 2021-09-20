@@ -13311,3 +13311,73 @@ nako脸上这痣有点多啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正按花田无印的心理预期来看还是处处是惊喜，放平心态
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 5596#       发表于 2021-9-20 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825257&amp;ptid=1909972" target="_blank">kbtit 发表于 2021-9-20 20:50</a>
+
+没怎么看到有人说“活该”受迫害，你这是自己脑补的吗？大多数都在给唐可可怼人寻找合理性，她为什么要这 ...</blockquote>
+这里的环境还行，贴吧倒是有不少这种极端观点，虽然反驳他们的人更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上集用这个观点就算了，这集可可对恋和堇的区别对待再用这个观点就有点站不住脚了
+
+
+*****
+
+####  东方求胜  
+##### 5597#       发表于 2021-9-20 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475640&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-8-23 14:26</a>
+
+五块磁铁，可可颜色离的最远</blockquote>
+这对应的颜色其实是liella的紫色，可可的蓝，民警的绿和香音的橙，也就是下面4个，上面我感觉无关啊
+
+
+*****
+
+####  cat1230  
+##### 5598#       发表于 2021-9-20 21:57
+
+
+星团还是看三次元吧，2次元目前拉跨了，等等看会不会有奇迹<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 5599#       发表于 2021-9-20 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825512&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-20 21:08</a>
+
+同情营销。
+
+
+类似卖宠物的故意把小动物弄得很可怜。</blockquote>
+还没投我就知道垫底的一定会是小千<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5600#       发表于 2021-9-20 21:59
+
+
+堇动机或许不纯，但千恋两人也不能说就有多纯吧，千只说过自己有兴趣，五六集演出来的完全是为了帮香音才当偶像的感觉，恋更是一开始就挑明是为了拯救学校招生。而且把可可塑造成一个学园偶像原教旨主义者，这么多集一直薅这个设定有点不有趣了。
+
+
+*****
+
+####  1096beam  
+##### 5601#       发表于 2021-9-20 22:00
+
+
+没事，实在不行还能追加战士<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
