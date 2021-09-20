@@ -14310,3 +14310,23 @@ VALORANTを運営している、RiotGames様のサポートのもと、ぶいす
 憨憨组拿了个第一，社筑熊猫人最后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  shpdw  
+##### 7051#       发表于 2021-9-20 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">小夜快三个月不播了
+
+
+*****
+
+####  FCCHua  
+##### 7052#       发表于 2021-9-20 19:30
+
+
+3d估计今年看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
