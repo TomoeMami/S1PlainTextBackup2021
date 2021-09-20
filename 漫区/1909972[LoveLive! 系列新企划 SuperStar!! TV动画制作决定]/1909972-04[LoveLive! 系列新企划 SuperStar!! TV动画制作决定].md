@@ -10733,3 +10733,106 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
+
+
+*****
+
+####  灼眼の安娜  
+##### 5401#       发表于 2021-9-20 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819055&amp;ptid=1909972" target="_blank">saglork 发表于 2021-09-20 10:03:51</a>
+我觉得所有问题都可以归咎于年轻人的第一部花田lovelive，星剧情的问题都是在之前四季lovelive中出现过的 ...</blockquote>歌确实是完全主观的，这个是萝卜青菜各有所爱。
+不过话说回来，也确实是这次的星成为了多少年轻人的第一部花田lovelive了。缪斯那会儿火是火，但是第二季到现在都过去七年了，现在上大一的学生在缪斯第一季的时候甚至还是小学生呢，现在的初一学生甚至还在上幼儿园，几乎不可能去看日语原声的lovelive。水团时间上虽然近一点，但是国内人气太低了，除了缪水粉丝大战后留下的死忠粉外都没什么人看了，肯定有很多人是没看过水团动画直接看的星团动画的。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  普之舜舜  
+##### 5402#       发表于 2021-9-20 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819051&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-20 10:02</a>
+有些节奏带得太混账了，一口一个卡农在台上宣布恋恋你吗没了，吐了</blockquote>
+还真没 香音真的没提及恋恋母亲没了的事实，说及母亲时候放下话筒了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  普之舜舜  
+##### 5403#       发表于 2021-9-20 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818668&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-20 09:05</a>
+这楼回复是不是有时候有问题？
+有时候回复后看不见自己回帖，过若干小时后才显示。 ...</blockquote>
+怪不得那时候我一直看不见你回复哈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5404#       发表于 2021-9-20 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819113&amp;ptid=1909972" target="_blank">dd950728 发表于 2021-9-20 10:12</a>
+
+还有一点最tm搞笑的是，你非要写个剧情来解释为什么找不到学园偶像的记录，因为想让恋恋自己做决定。问题是 ...</blockquote>
+逆天
+
+
+*****
+
+####  寒风夜  
+##### 5405#       发表于 2021-9-20 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819113&amp;ptid=1909972" target="_blank">dd950728 发表于 2021-9-20 10:12</a>
+
+还有一点最tm搞笑的是，你非要写个剧情来解释为什么找不到学园偶像的记录，因为想让恋恋自己做决定。问题是 ...</blockquote>
+逆天
+
+
+*****
+
+####  普之舜舜  
+##### 5406#       发表于 2021-9-20 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819166&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 10:18</a>
+歌确实是完全主观的，这个是萝卜青菜各有所爱。
+不过话说回来，也确实是这次的星成为了多少年轻人的第一部 ...</blockquote>
+还有的直接看虹团动画入坑的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5407#       发表于 2021-9-20 10:32
+
+
+泥潭居然这么温和么
+
+
+*****
+
+####  灼眼の安娜  
+##### 5408#       发表于 2021-9-20 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819225&amp;ptid=1909972" target="_blank">普之舜舜 发表于 2021-09-20 10:24:36</a>
+还有的直接看虹团动画入坑的 v2.4.4.1</blockquote>虹入坑的这个确实有。
+但是虹咲编剧不是花田呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+花田的上一部lovelive还是水团剧场版，片子本身在国内很冷就不说了，也是我这个铁杆水水人都觉得节奏稀烂的一部电影，亮点全在唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
