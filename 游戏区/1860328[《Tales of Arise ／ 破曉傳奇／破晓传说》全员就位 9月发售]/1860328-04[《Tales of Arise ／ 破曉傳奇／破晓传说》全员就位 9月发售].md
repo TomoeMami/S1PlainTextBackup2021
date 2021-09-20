@@ -12070,3 +12070,59 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正常来说是打不断的 带饰品减伤+抬血硬抗
 
 
+
+
+*****
+
+####  乱山残照  
+##### 5412#       发表于 2021-9-20 14:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821328&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-20 14:00</a>
+正常来说是打不断的 带饰品减伤+抬血硬抗</blockquote>
+打小怪连的飞起，打boss疯狂吃瘪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好割裂
+
+
+*****
+
+####  燃烧的石头  
+##### 5413#       发表于 2021-9-20 14:11
+
+
+<blockquote>乱山残照 发表于 2021-9-20 13:46
+刚打完第二关boss，那个监狱钥匙要上哪拿舔了两遍图都没看见
+
+这boss霸体蓄力技要怎么打断，我每次都 ...</blockquote>
+监狱钥匙要打支线才能拿到
+
+
+*****
+
+####  ccow  
+##### 5414#       发表于 2021-9-20 14:12
+
+
+60多小时白金了，一周目就可以白金，没啥特别卡的地方，可谓是白金神作了。我去玩TOV整整口味。
+
+
+*****
+
+####  Bani82  
+##### 5415#       发表于 2021-9-20 14:16
+
+
+钓鱼要是换成花牌就好了，在考虑国庆要不要把TOB挖出来白了
+
+
+顺便从PS3上开始的传说剧本最好的是TOX2吧，赶紧TOX1+2整合下出个复刻吧
+
+
+*****
+
+####  alucardcz  
+##### 5416#       发表于 2021-9-20 14:20
+
+
+减AG的矿石在哪 在最终迷宫里？
+
+

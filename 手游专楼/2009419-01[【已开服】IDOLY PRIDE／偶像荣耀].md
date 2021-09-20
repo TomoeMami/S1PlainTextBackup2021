@@ -6297,3 +6297,37 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  kos_mos  
+##### 452#       发表于 2021-9-20 14:13
+
+
+？？？
+
+＼黒いハート熱帯びる狂踏ガチャ 開催予告ヤシの木／
+
+
+9/21(火)12:00から
+
+新衣装のアイドルが登場予定！
+
+【★5 失敗なんて恐れない 一ノ瀬怜】
+
+
+※本ガチャで新登場のアイドルは、ダイヤガチャからも登場します。
+
+ピックアップガチャ期間終了後もダイヤガチャから登場します。
+
+<img src="https://img.saraba1st.com/forum/202109/20/141258jpbmbca3sjm7ogfa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E_eoZICUYAQ_m0W.jpg</strong> (385.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 14:12 上传
+
+
