@@ -10781,3 +10781,16 @@ pitaka怎么样
 13pm订单提前了，之前是10.1-10.8，现在变9.30-10.2了
 
 
+
+
+*****
+
+####  Lisylfn  
+##### 969#       发表于 2021-9-20 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818369&amp;ptid=2015640" target="_blank">宮脇咲良 发表于 2021-9-20 07:56</a>
+妹子突然想换mini了 楼里有在并夕夕抢过的吗 感觉好抢不</blockquote>
+狗东好抢，昨天早上mini我随便点进去都能下单
+
+
