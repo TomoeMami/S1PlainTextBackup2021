@@ -11874,3 +11874,21 @@ UMISEA这个小动画感觉都在棒读
 21:30
 
 
+
+
+*****
+
+####  m4suzu  
+##### 6954#       发表于 2021-9-20 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822594&amp;ptid=1947500" target="_blank">s32244153 发表于 2021-9-20 16:31</a>
+
+https://www.bilibili.com/video/BV1h7411h73b
+
+-
+
+https://www.bilibili.com/video/BV1Hi4y1s7xH</blockquote>
+thx 但好像还是对不上，应该是更老一点的，那时候的live2d还没那么丝滑
+
+

@@ -12706,3 +12706,69 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 需求不同罢了，有人想看故事，有人想看女同贴贴，有人只是想要新鲜偶像，导致大家的关注点和期待度都没法统一，最后得到的满足感也不同
 
 
+
+
+*****
+
+####  kata魂  
+##### 5551#       发表于 2021-9-20 17:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823239&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 17:37</a>
+
+需求不同罢了，有人想看故事，有人想看女同贴贴，有人只是想要新鲜偶像，导致大家的关注点和期待度都没法 ...</blockquote>
+但这七八集三样一样没达到
+
+故事稀烂，贴贴快崩了，模板是抄以前的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 5552#       发表于 2021-9-20 17:40
+
+
+生放是在路上看的，所以断断续续没看完整，即便这样也实在提不起兴趣看熟肉了
+
+<img src="https://img.saraba1st.com/forum/202109/20/174033hqqpy879hn7k5kp1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>塔塔开.jpg</strong> (123.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 17:40 上传
+
+
+*****
+
+####  优妮可  
+##### 5553#       发表于 2021-9-20 17:44
+
+
+<blockquote>kata魂 发表于 2021-9-20 17:24
+看了一眼拉拉吧，那些13级14级的说战吧带节奏
+
+笑死我了，我终于明白为什么这种乱七八糟的剧情都能做出来， ...</blockquote>
+拉吧和战吧的关系什么好过来着，不一直在互相看不起么。
+
+
+*****
+
+####  凡人  
+##### 5554#       发表于 2021-9-20 17:49
+
+
+<img src="https://img.saraba1st.com/forum/202109/20/174513ju4iu44lzmlxq361.png" referrerpolicy="no-referrer">
+
+
+<strong>你行你上.png</strong> (82.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 17:45 上传
+
+
+这话看的笑死了，你是C还是她是C啊。加农作为主角在三集之后就塑造的挺割裂的，甚至让人有点讨厌。可可回有的话就是这季挽回的最后机会了。
+
+
