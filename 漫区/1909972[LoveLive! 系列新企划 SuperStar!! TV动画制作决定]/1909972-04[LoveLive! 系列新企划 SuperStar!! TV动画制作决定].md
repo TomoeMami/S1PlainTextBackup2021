@@ -14323,3 +14323,32 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 要战上大号，上个小号真缩卵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 5665#       发表于 2021-9-21 06:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827901&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-21 01:15</a>
+不是说故事不一样，就不算改编了。
+
+很多轻小说动画化故事也都面目全非的，就打个比方，还是花田的中二病， ...</blockquote>
+按你这理论缪水裂也不是原创吧...在动画播出前一年..就开始在GS连载小故事 和 展开人物设定了...
+另外 不知道你AS看的是羁绊故事还是主线故事...AS的主线故事可不是单元剧 而是按一季一整年编排的连续剧 这个连续剧对部分成员来讲十分不友好 因为没事情...也就一开始找回失踪成员和拉人的时候是一个个来的
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  hummysiren  
+##### 5666#       发表于 2021-9-21 06:41
+
+
+第一次看动画能被尬地笑出声，而且真是太赶了进团练习学园祭就几分钟<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">握手时莫名多了一堆路人围观还跟着拍掌莫名想到高达w，要真能w那么有病倒还好了
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
