@@ -13864,3 +13864,101 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 所以我觉得花田不是偏爱堇啊，而是单纯在让她ooc罢了，把这么有张力和潜力的角色写成这样大家不可能满意啊
 
 
+
+
+*****
+
+####  saglork  
+##### 5635#       发表于 2021-9-20 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827191&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 23:24</a>
+我觉得这个用力过猛有点太“过”了，而且就...很蠢啊
+
+
+欢喜冤家没必要这么写，堇的人物也没必要这么展开</blockquote>
+队长役你是想多了，可可可以成为香音喜欢上学院偶像的契机，可以作为拯救她歌唱生涯的同伴，但绝对不会成为团队的领导者，大前提就错了，可可这个角色前期再积极，后期完成团建和带领团队前进的都只会是香音，lovelive系列的leader在剧情核心的地位是绝对不会动摇的
+前两代能力上都是团队内菜的抠脚的，但有行动力，香音算是小创新，需要别人推动，但能力上无可挑剔，但哪怕她没有前两代的行动力，最后团队的前进还是会把核心剧情落在她身上，这个没什么可怀疑的
+
+
+*****
+
+####  UnhappyTails  
+##### 5636#       发表于 2021-9-20 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827222&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 23:28</a>
+
+起初可可确实是正面怼堇呀。第四集那不是都要上天台跟堇决斗了，说要代表所有学园偶像惩罚堇，只是决斗即将 ...</blockquote>
+所以第四集就该解决这个事啊，否则就在第五集解决啊
+
+
+所以到底还是花田想搞样板戏把这种矛盾往后刻意拖，但这种事儿是能切一刀拼到后面的事儿吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+而且你要是第四集没解决那你五六把堇当成一个偏反派的写不就好了？无论是比比赖赖也好还是各种给脸绷住特写也好，这种感觉很普遍啊
+
+
+但你五六集这么拍，就完全乱了啊
+
+
+*****
+
+####  cckuku  
+##### 5637#       发表于 2021-9-20 23:34
+
+
+好久没见到尾巴哥写这么长的小论文了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| UnhappyTails| + 1|气到了，另在别的楼写过更长的.|
+
+
+查看全部评分
+
+
+*****
+
+####  优妮可  
+##### 5638#       发表于 2021-9-20 23:34
+
+
+来点岬鱼
+
+<img src="https://img.saraba1st.com/forum/202109/20/233422fmfmdgsfz8g4eghj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210920_232234_com.twitter.android_edit_43435904269934.jpg</strong> (111.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 23:34 上传
+
+
+*****
+
+####  skmdfong  
+##### 5639#       发表于 2021-9-20 23:36
+
+
+抽空看完了，烂透了的一集，一群人拍手那里看吐了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Goisdust  
+##### 5640#       发表于 2021-9-20 23:36
+
+
+堇自己都去抓具足虫的娃娃，那怎么可能会是她的阴影。也许被外人看了有些难为情，但那也是她演员梦想的一部分
+
+

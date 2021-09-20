@@ -10997,3 +10997,18 @@ iphone13promax这么重,有什么轻薄的玻璃膜推荐下,手感要好
 在官网用招行分期买的用户，可以在掌上生活APP参加活动领88元还款金，基本必中88，欧皇能中888。相当于又便宜了88元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Sangria  
+##### 986#       发表于 2021-9-20 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827233&amp;ptid=2015640" target="_blank">sc流亡湿人 发表于 2021-9-20 23:29</a>
+在官网用招行分期买的用户，可以在掌上生活APP参加活动领88元还款金，基本必中88，欧皇能中888。相当于又便 ...</blockquote>
+没看到活动入口呢
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
