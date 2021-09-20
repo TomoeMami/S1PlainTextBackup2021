@@ -15765,3 +15765,47 @@ Screenshot_20210919-185718.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2927#       发表于 2021-9-20 22:10
+
+
+我有一个问题，臭眼镜到底叫啥，这个问题我好久都没弄明白，今天又想起来了
+
+
+*****
+
+####  路人庚  
+##### 2928#       发表于 2021-9-20 22:19
+
+
+什么臭眼镜？mea哪次聊的？
+
+
+*****
+
+####  T_Hb  
+##### 2929#       发表于 2021-9-20 22:21
+
+
+ 本帖最后由 T_Hb 于 2021-9-20 22:26 编辑 
+
+以前好像是和啊咩哈哥一起打pubg吧，装婴儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好像和药袋玩的多，但是我一直都不知道他到底叫啥哦
+
+这次怎么找到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">叫瀬戸あさひ，他跟哈哥玩的多，打打PUBG也挺正常
+
+
+*****
+
+####  路人庚  
+##### 2930#       发表于 2021-9-20 22:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这也太久了，我也不知道叫啥（不过那之后好像也没什么往来了，算是初期限定人物的感觉
+
+

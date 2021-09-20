@@ -15700,3 +15700,16 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 把裤裆里的石头都掏出来了也没第二张夹馍，可以放弃了
 
 
+
+
+*****
+
+####  空气蛹  
+##### 83815#       发表于 2021-9-20 22:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">转生成功了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
