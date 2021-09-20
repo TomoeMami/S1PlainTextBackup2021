@@ -11038,3 +11038,221 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 那我觉得你是记忆美化了，水团第一季最后那个舞台剧总结简直尬的前无古人后无来者，白瞎了之前0到1这个还不错的剧情转变，至今重看动画我都是快进的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  笋狐  
+##### 5422#       发表于 2021-9-20 11:21
+
+
+题外话，讲个乐子：某位每话准时给剧情洗地的花田全肯定民昨晚发了个贴，洗地思路相当不思议《觉得恋做法不对的人是不是真没体验过悲痛》，然后被回复一顿喷，晚些时候这贴没了，不知道是这货破防自删还是吧务看不下去了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个思路，不一定对：这人不会和恋有类似的经历所以有心得吧（
+
+
+*****
+
+####  一个陆仁贾  
+##### 5423#       发表于 2021-9-20 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819727&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 11:19</a>
+那我觉得你是记忆美化了，水团第一季最后那个舞台剧总结简直尬的前无古人后无来者，白瞎了之前0到1这个还 ...</blockquote>
+舞台剧我还蛮能接受的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最尴尬的明明是第二季最后一集上场前
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5424#       发表于 2021-9-20 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819747&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-20 11:21</a>
+
+题外话，讲个乐子：某位每话准时给剧情洗地的花田全肯定民昨晚发了个贴，洗地思路相当不思议《觉得恋做法不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那个 15级的?  属实有点魔怔
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5425#       发表于 2021-9-20 11:24
+
+
+去翻了一下水团13集，被特意封印的可怕记忆又打开了，我是说怎么不记得这一期的结尾是啥了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Goisdust  
+##### 5426#       发表于 2021-9-20 11:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人不满的还是恋妈和理事长当谜语人，而就算误以为偶像是母亲的创伤，以此来限制别人做偶像也是不折不扣的人间之屑，总之恋相关的剧情都太蠢了
+
+
+*****
+
+####  棒读  
+##### 5427#       发表于 2021-9-20 11:27
+
+
+这季度的星记争霸有当年京紫vs国家队内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 5428#       发表于 2021-9-20 11:30
+
+
+民警真的讨厌具足虫吗？ 不让可可叫这个词但是自己却扮起来比谁都欢...
+
+
+*****
+
+####  永恒的王牌  
+##### 5429#       发表于 2021-9-20 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819829&amp;ptid=1909972" target="_blank">棒读 发表于 2021-9-20 11:27</a>
+
+这季度的星记争霸有当年京紫vs国家队内味了</blockquote>
+烈度差远了，当年以二次元皇帝为首的各种场外因素更好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smallstep  
+##### 5430#       发表于 2021-9-20 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819829&amp;ptid=1909972" target="_blank">棒读 发表于 2021-9-20 11:27</a>
+
+这季度的星记争霸有当年京紫vs国家队内味了</blockquote>
+0.05都没有
+
+
+
+
+*****
+
+####  kata魂  
+##### 5431#       发表于 2021-9-20 11:32
+
+
+民堇应该是不讨厌具足虫，毕竟抓娃娃也在抓，而是讨厌自己扮演这个历史，所以更迷惑了
+
+
+*****
+
+####  寒风夜  
+##### 5432#       发表于 2021-9-20 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819804&amp;ptid=1909972" target="_blank">Goisdust 发表于 2021-9-20 11:25</a>
+
+个人不满的还是恋妈和理事长当谜语人，而就算误以为偶像是母亲的创伤，以此来限制别人做偶像也是不 ...</blockquote>
+还几把不如不写，，
+
+
+*****
+
+####  寒风夜  
+##### 5433#       发表于 2021-9-20 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819804&amp;ptid=1909972" target="_blank">Goisdust 发表于 2021-9-20 11:25</a>
+
+个人不满的还是恋妈和理事长当谜语人，而就算误以为偶像是母亲的创伤，以此来限制别人做偶像也是不 ...</blockquote>
+还几把不如不写，，
+
+
+*****
+
+####  Gooddays  
+##### 5434#       发表于 2021-9-20 11:33
+
+
+ 本帖最后由 Gooddays 于 2021-9-20 11:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818843&amp;ptid=1909972" target="_blank">midearth 发表于 2021-9-20 09:34</a>
+这剧情不能说多好，也是常见的套路吧，怎么就炎上了。
+
+这学校音乐科跟普通科的格差太夸张，不仅校服不一样 ...</blockquote>
+从校服差别大至说是两间无关联学校的学生也没问题时，我便觉得这学校明显搞阶级对立。特别是音乐科还要选拔，再加入校服差别后会容易让音乐科的人感到高人一等，而选拔失败的人时常看到那批 “成功精英” 更感到不是味儿难以抬起头来。
+
+而既然有心用不同校服显示 “选拔精英”，那自然不可能止于校服，会有各种安排显示精英跟一般人是不同的。
+
+如果校服相同，那除了大家相识，自己宣扬或最顶尖有名气的少数人外，大部份学生难以知道谁是音乐科，校园气氛理应能平和一点。
+
+
+*****
+
+####  乌鸦的皇冠  
+##### 5435#       发表于 2021-9-20 11:33
+
+
+歌不如小星星了
+
+
+*****
+
+####  一个陆仁贾  
+##### 5436#       发表于 2021-9-20 11:35
+
+
+暂停缓了一次后看完了，能做出第八集这种剧情的动画制作组没有一个人是无辜的<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  污陨血红  
+##### 5437#       发表于 2021-9-20 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819829&amp;ptid=1909972" target="_blank">棒读 发表于 2021-9-20 11:27</a>
+
+这季度的星记争霸有当年京紫vs国家队内味了</blockquote>
+差远了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当年那个盛况
+
+魔纪手游改限制太多了
+
+就是好奇那边会不会整第二部动画化
+
+
+*****
+
+####  player3960  
+##### 5438#       发表于 2021-9-20 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819861&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-09-20 11:30:00</a>
+民警真的讨厌具足虫吗？ 不让可可叫这个词但是自己却扮起来比谁都欢...</blockquote>我觉得她应该并不讨厌，起码没到心理阴影的地步，不然也不会还存手机里没事自己看，顶多算是觉得有点丢人吧，而且也算是自己的演艺圈经验……md我TM真不想给花田圆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  寒风夜  
+##### 5439#       发表于 2021-9-20 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819916&amp;ptid=1909972" target="_blank">一个陆仁贾 发表于 2021-9-20 11:35</a>
+
+暂停缓了一次后看完了，能做出第八集这种剧情的动画制作组没有一个人是无辜的
+
+
+—— 来自 HUAWEI SP ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">放过画画的
+
+
