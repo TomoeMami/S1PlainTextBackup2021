@@ -15567,3 +15567,16 @@ id X，支援感觉能用的上的都放上了
 想转日服了，准备买个号，现在想体验好有哪些卡是最好有的么
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83805#       发表于 2021-9-20 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820003&amp;ptid=1085254" target="_blank">空气蛹 发表于 2021-9-20 11:43</a>
+想转日服了，准备买个号，现在想体验好有哪些卡是最好有的么</blockquote>
+c呆奥博龙呗
+
+

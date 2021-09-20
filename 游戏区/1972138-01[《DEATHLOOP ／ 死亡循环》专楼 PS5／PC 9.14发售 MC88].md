@@ -6184,3 +6184,17 @@ ps5好不了多少本来就是void引擎的问题倒不如说ps5是给你帧数�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那这void比我所知的还要拉，真的还不如用回prey的ce算了
 
 
+
+
+*****
+
+####  量子大蛇  
+##### 531#       发表于 2021-9-20 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52754454&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-15 10:18</a>
+
+其实我很建议你们第二个去把死宅给宰了，他给传送，不用等朱莉安娜刷出来拿她能力，拿了传送瞬移到炮台脸上 ...</blockquote>
+我觉得就连接和瞬移特别好用，后期人多起来卡尔尼西斯杀不动，浩劫容易五秒真男人过了当场暴毙，以太远距离打狙还可以，一旦进入室内根本顶不住敌人的搜查
+
+

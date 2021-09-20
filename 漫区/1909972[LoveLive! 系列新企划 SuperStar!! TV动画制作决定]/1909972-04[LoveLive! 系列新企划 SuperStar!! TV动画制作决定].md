@@ -11256,3 +11256,111 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">放过画画的
 
 
+
+
+*****
+
+####  寒风夜  
+##### 5440#       发表于 2021-9-20 11:43
+
+
+ 本帖最后由 寒风夜 于 2021-9-20 11:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819906&amp;ptid=1909972" target="_blank">Gooddays 发表于 2021-9-20 11:33</a>
+
+从校服差别大至说是两间无关联学校的学生也没问题时，我便觉得这学校明显搞阶级对立。特别是音乐科还要选 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我觉得2科对立属实有点难掌控，结果果然，解决的啥 ，
+
+
+*****
+
+####  寒风夜  
+##### 5441#       发表于 2021-9-20 11:43
+
+
+ 本帖最后由 寒风夜 于 2021-9-20 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819906&amp;ptid=1909972" target="_blank">Gooddays 发表于 2021-9-20 11:33</a>
+
+从校服差别大至说是两间无关联学校的学生也没问题时，我便觉得这学校明显搞阶级对立。特别是音乐科还要选 ...</blockquote>
+
+
+*****
+
+####  笋狐  
+##### 5442#       发表于 2021-9-20 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820001&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-20 11:43</a>
+
+我觉得2科对立属实有点难写了 ，结果果然，解决的啥 ，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">朋友你是不是网络有问题啊，老看到你回复超级风怒一连好几条
+
+
+*****
+
+####  Gooddays  
+##### 5443#       发表于 2021-9-20 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819861&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-20 11:30</a>
+民警真的讨厌具足虫吗？ 不让可可叫这个词但是自己却扮起来比谁都欢...</blockquote>
+她不讨厌巨足虫（夹蛙蛙也选它），因这可能是她人生在演艺界最高成就，至少她演巨足虫的一刻可能很高兴自豪，幻想这一刻被选中，后续便会向上高升。
+
+但她最后便停在巨足虫了，假如巨足虫真的成为她人生最高成就，以她的梦想来说那便一定会感到痛苦。
+
+
+*****
+
+####  寒风夜  
+##### 5444#       发表于 2021-9-20 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820028&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-20 11:45</a>
+
+朋友你是不是网络有问题啊，老看到你回复超级风怒一连好几条</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鼠标抽风。连点
+
+
+*****
+
+####  寒风夜  
+##### 5445#       发表于 2021-9-20 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820028&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-20 11:45</a>
+
+朋友你是不是网络有问题啊，老看到你回复超级风怒一连好几条</blockquote>
+
+
+*****
+
+####  ads147147  
+##### 5446#       发表于 2021-9-20 11:50
+
+
+还是刻意复刻缪的错。好端端的让恋这种温柔角色去反对学园偶像。不知道是公樱脑子有问题把恋弄成真抚子还是花田脑子有问题不会写真抚子，花田写抚子还真就是海爷，黛雅那套口是心非的那一套写法，现在又直接塞在恋上，现在都得**自己是反输入才能勉强接受恋恋变成这样。
+
+从一开始就不应该有一个本团队的人来反对学园偶像，让恋恋做一个中立的左右为难的人不好吗，在音乐班找个刺头来承担矛盾点（就和虹的副会长一样），用live把她**了，展示学园偶像的美好来缓解音乐班和普通班的矛盾也是完全可以的，远比现在来的讨喜。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  一个陆仁贾  
+##### 5447#       发表于 2021-9-20 11:52
+
+
+千是觉得不能让参加偶像部的自己给音乐科拖后腿才转科，只要你学生会长以音乐科学生的身份进入偶像部就不会有对立问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得现在的制作组能这么写的
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 5448#       发表于 2021-9-20 12:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理事长的问题
+
+
