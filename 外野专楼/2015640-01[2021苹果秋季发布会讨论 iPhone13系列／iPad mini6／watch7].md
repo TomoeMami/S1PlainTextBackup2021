@@ -11051,3 +11051,70 @@ iphone13promax这么重,有什么轻薄的玻璃膜推荐下,手感要好
 虽然有点晚，建行买不要忘了报名十倍积分活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  404489039  
+##### 990#       发表于 2021-9-21 02:00
+
+
+iOS15正式版推送了
+
+
+
+
+*****
+
+####  Archlich³  
+##### 991#       发表于 2021-9-21 02:08
+
+
+ 本帖最后由 Archlich³ 于 2021-9-21 02:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826667&amp;ptid=2015640" target="_blank">roamer 发表于 2021-9-20 22:29</a>
+
+iphone13promax这么重,有什么轻薄的玻璃膜推荐下,手感要好</blockquote>
+[https://detail.1688.com/offer/538935779195.html](https://detail.1688.com/offer/538935779195.html)
+
+
+真的好，一次多买点，贴坏了也不心疼
+
+
+*****
+
+####  riin  
+##### 992#       发表于 2021-9-21 02:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818193&amp;ptid=2015640" target="_blank">乔尼·乔斯达 发表于 2021-9-20 06:24</a>
+
+借楼求问ipad pro要不要买ac+，壳膜（只写字不画画）求推荐</blockquote>
+看你使用习惯了。我平时就放在床上，不经常拿动，感觉不容易摔就没必要买。否则那个屏幕要是碎了会很花钱。为了pencil手感不建议贴膜，壳的话我推荐买那种能包裹侧边四个角的塑料壳
+
+
+*****
+
+####  你瞅啥？  
+##### 993#       发表于 2021-9-21 03:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827936&amp;ptid=2015640" target="_blank">唯一指定用户名 发表于 2021-9-21 01:23</a>
+虽然有点晚，建行买不要忘了报名十倍积分活动</blockquote>
+那个十倍积分是只要报名就能享受还是得等建行审批同意？…
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  唯一指定用户名  
+##### 994#       发表于 2021-9-21 05:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828216&amp;ptid=2015640" target="_blank">你瞅啥？ 发表于 2021-9-21 03:15</a>
+那个十倍积分是只要报名就能享受还是得等建行审批同意？…
+
+—— 来自 samsung SM-G9750, Android 11上的 ...</blockquote>
+信用卡活动都是报了秒批啊…
+
+

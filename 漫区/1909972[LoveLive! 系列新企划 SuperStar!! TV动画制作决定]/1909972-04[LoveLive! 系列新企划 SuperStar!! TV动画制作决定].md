@@ -14175,3 +14175,151 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  saya1892  
+##### 5657#       发表于 2021-9-21 02:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827940&amp;ptid=1909972" target="_blank">stota1320 发表于 2021-9-21 01:24</a>
+
+说到花田改编反而避开雷的，我提一个命运石之门0，（只是提一嘴因为我自己没看过）朋友是厨，说动画改编比 ...</blockquote>
+石头门0的动画跟游戏比起来有一些很有意思的改编，当然限于篇幅也删去了游戏一些有意思的地方，可以说各有特色吧，总之在游戏改里面算中上水平
+
+
+星团……看了下拉版对「グソクムシとは大違いです」意见还是很大的
+
+但也有个别可堇人坚持 <blockquote>78名無しで叶える物語(庭)2021/09/20(月) 11:31:18.55ID:zl26ZwrA
+
+でも実際起伏なく仲良しより見てて面白いわ
+
+7話は激寒だけどそれ以外は優等生可愛いだけじゃない可可の強気で子供っぽい一面をすみれが引き出してくれるしすみれの世話焼きな姉気質を可可が引き出してくれて可愛くて好き</blockquote>
+但即使是欢喜冤家型也得有来有回吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样只会伤害可可的风评啊
+
+
+*****
+
+####  crcln  
+##### 5658#       发表于 2021-9-21 02:49
+
+
+ 本帖最后由 crcln 于 2021-9-21 03:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826671&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 22:30</a>
+
+虹团说成功也没多成功，无非是全靠同系列衬托。
+
+夹脚后纠结的东西是自己粉丝多了没法只当侑一个人的偶像 ...</blockquote>
+讨论动画内容就讨论动画内容，一定要顺带从人气效应这种商业因素踩一脚虹是什么意思。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| we89623|-2|上大号|
+
+
+查看全部评分
+
+
+*****
+
+####  crcln  
+##### 5659#       发表于 2021-9-21 02:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826671&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-20 22:30</a>
+
+虹团说成功也没多成功，无非是全靠同系列衬托。
+
+夹脚后纠结的东西是自己粉丝多了没法只当侑一个人的偶像 ...</blockquote>
+动不动就来一句动画效应，商业上的成功和动画质量一定成正比吗？名作之壁怎么来的心里没点逼数吗？你觉得虹不行是你的主观感受，拿出你对动画内容的的分析和论据说服别人。还一定得拉上商业成绩来以此证明虹不行，一单就卖不过虹的一单无敌级，想问一句你家星团bd能卖过虹吗？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| we89623|-2|上大号|
+
+
+查看全部评分
+
+
+*****
+
+####  任天索尼子  
+##### 5660#       发表于 2021-9-21 03:18
+
+
+拉拉人又开始内卷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  stota1320  
+##### 5661#       发表于 2021-9-21 03:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑雪姫  
+##### 5662#       发表于 2021-9-21 03:20
+
+
+ 本帖最后由 黑雪姫 于 2021-9-21 03:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828195&amp;ptid=1909972" target="_blank">crcln 发表于 2021-9-21 02:59</a>
+动不动就来一句动画效应，商业上的成功和动画质量一定成正比吗？名作之壁怎么来的心里没点逼数吗？你觉得 ...</blockquote>
+有脑子吗？
+你让才出道五个月连一次线下LIVE都没开过的新团现在的CD就能卖过虹？
+
+我想问一句: 你到底多瞧不起虹？
+
+虹都出道了快四年了，线下LIVE都开过几次了，好歹赶上一波疫情前尾巴。
+
+星到底怎样起码的一年后在看。
+
+
+*****
+
+####  stota1320  
+##### 5663#       发表于 2021-9-21 03:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">毕竟商业成绩这里综合要素影响真的很多，很难控制变量来讨论
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  we89623  
+##### 5664#       发表于 2021-9-21 03:27
+
+
+ 本帖最后由 we89623 于 2021-9-21 03:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828195&amp;ptid=1909972" target="_blank">crcln 发表于 2021-9-21 02:59</a>
+
+动不动就来一句动画效应，商业上的成功和动画质量一定成正比吗？名作之壁怎么来的心里没点逼数吗？你觉得 ...</blockquote>
+要战上大号，上个小号真缩卵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

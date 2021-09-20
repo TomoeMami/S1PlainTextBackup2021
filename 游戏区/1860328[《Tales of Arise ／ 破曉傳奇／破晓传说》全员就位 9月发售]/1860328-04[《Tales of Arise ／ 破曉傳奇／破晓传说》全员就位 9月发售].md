@@ -12813,3 +12813,166 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 这不是有两条的缝吗
 
 
+
+
+*****
+
+####  先生空气  
+##### 5472#       发表于 2021-9-21 01:54
+
+
+<blockquote>peh 发表于 2021-9-21 00:07
+呃，买药钱怎么搞呢，除了买dlc</blockquote>
+后期打一个怪物支线就有3w-4w。我dlc打了七折正好每次打完怪物拿的钱能够补充上消耗的药瓶，后面等级高了伤害高了吃的药少了钱就更能堆起来了。
+
+
+*****
+
+####  先生空气  
+##### 5473#       发表于 2021-9-21 02:03
+
+
+话说巨怪攻击模组是不是很多重复的？总感觉第一部结束后的几个boss就换了个色伤害调高了点就跑出来了
+
+
+*****
+
+####  reficul  
+##### 5474#       发表于 2021-9-21 02:38
+
+
+55小时通关了，基本上能做得支线全做了才去打的boss，等级太高完全碾压他，hard难度也没感觉有什么威胁。
+
+
+这部传说我玩的其实还是非常满意的，前期招式少的时候会感觉到数值有问题，不过在解锁第二个盘之后感觉已经变成爽游了，目前最爽的体验就是在雷纳坐电梯，怪不停地冒出来，我提着炎之刃各种空连，杀掉一只通过反击又瞬移过去接着打下一只，太舒服了在电梯的这场战斗。
+
+剧情上也是前面比较糟，到后面水领主和雷聂基斯开始我感觉就没那么不适了，虽然最后男主还要来原谅一下就很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次的小剧场很充实，感觉全程都有小剧场的陪伴，不过主角组的塑造有点片面，甚至有些刻板了，例如洛和盾姐，一到谈心阶段就要把死去的老爸或者哥哥拉出来提一嘴，但是洛你跟你爸真的没什么感情基础吧。。。不过这种团队关系逐渐变得密切的变化还是肉眼可见的，后期的对话重新回到比较温馨搞笑的一类，我觉得很不错。不过只谈角色和小剧情，狂战比破晓更有一个“团队”的感觉，小剧场也更有趣，好喜欢玛琪露相关的小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+最后看了一下白金条件，需要等级100级啊。。。一下子不想刷了，把异世界的支线做完就该封盘了
+
+
+个人觉得给8分值得一玩
+
+
+*****
+
+####  火红之眼  
+##### 5475#       发表于 2021-9-21 03:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828166&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-21 02:38</a>
+
+55小时通关了，基本上能做得支线全做了才去打的boss，等级太高完全碾压他，hard难度也没感觉有什么威胁。
+
+
+ ...</blockquote>
+等级不用刷的，正常打完隐迷就差不多100了
+
+
+*****
+
+####  hummysiren  
+##### 5476#       发表于 2021-9-21 03:35
+
+
+没被剧情喂屎倒被个任务喂了。接了个任务调查地灵圣殿，结果一连串战斗不说每次到下一个战斗场地时都不解除战斗状态只能慢吞吞跑，怪还恶心就盯着我手控的法师妹扫激光，途中没有补给跑也跑不了只能把留着的高级药都吃了。总算熬过这恶心战斗到终点，结果给我蹦出来60级的boss！？我队才35级左右好么！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  whzfjk  
+##### 5477#       发表于 2021-9-21 03:38
+
+
+后知后觉，这领将电梯怎么都是同一款式
+
+
+*****
+
+####  武者小路紫苑  
+##### 5478#       发表于 2021-9-21 04:00
+
+
+今天又肝了10小时游戏，进最终迷宫了，现在跑到一半出来扫支线。这代打BOSS的支线怎么都不写推荐等级的，非要进了战斗过两招才明白自己能不能打过，野生巨大怪还不能逃跑，仗着自动存档多就胡来吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 5479#       发表于 2021-9-21 04:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828263&amp;ptid=1860328" target="_blank">武者小路紫苑 发表于 2021-9-21 04:00</a>
+今天又肝了10小时游戏，进最终迷宫了，现在跑到一半出来扫支线。这代打BOSS的支线怎么都不写推荐等级的，非 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实除了个别直接进战斗的屑任务，在你靠近boss时会有隐晦的台词提示你打不打得过，虽然这也是我中期才明白的
+
+
+*****
+
+####  free切  
+##### 5480#       发表于 2021-9-21 05:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">boss塑造的也是稀烂。沃陆朗跟个乐子人一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">火王就是一随处可见的山大王模板。比tob差多了好，不过tob的boss都是一开始和主角团有联系，塑造起来容易很多。哎算了。。。
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  secretgarnet  
+##### 5481#       发表于 2021-9-21 05:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827536&amp;ptid=1860328" target="_blank">peh 发表于 2021-9-21 00:07</a>
+
+呃，买药钱怎么搞呢，除了买dlc</blockquote>
+比较效率的方法是每一章打领将之前吃道具掉落大的料理然后去刷迷宫里的各种雷纳兵，因为他们掉的狗牌比起其他同期换金道具更值钱。沃陆朗的亲卫队掉最大的白金狗牌，钱实在不够可以在戴勒瓦利斯城刷他们。
+
+缺点是过了这村就没这店了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  secretgarnet  
+##### 5482#       发表于 2021-9-21 05:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825726&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-20 21:21</a>
+
+香川是不是负责过TOD2的战斗设计</blockquote>
+香川寛和
+
+テイルズ オブ エクシリア
+
+戦闘プログラム開発
+
+
+テイルズ オブ グレイセス エフ
+
+戦闘プログラム開発
+
+
+テイルズ オブ グレイセス
+
+戦闘プログラム開発
+
+
+テイルズ オブ デスティニー ディレクターズカット
+
+エフェクト開発
+
+
+テイルズ オブ デスティニー
+
+エフェクト開発
+
+
+去查了一下，他主要是参与toe，tog和togf的战斗开发。不过这作贯穿和耐久确实是像以前的命中和回避
+
+

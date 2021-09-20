@@ -15969,3 +15969,29 @@ ps2：这个号就不用加鹅了，我不怎么用的，不用浪费死鱼
 直播肯定没打游戏开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 2941#       发表于 2021-9-21 03:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826866&amp;ptid=2018830" target="_blank">路人辰 发表于 2021-9-20 22:50</a>
+神乐Mea目前能找到的所有fleet整理，收集率约95%，存在部分早期fleet在各大论坛中均无存档，如有自留存档欢 ...</blockquote>
+厨力高得让人害怕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  2014720  
+##### 2942#       发表于 2021-9-21 05:08
+
+
+刚刚深夜超级回复…
+
+我可去**吧怎么才看到<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
