@@ -15661,3 +15661,17 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">申请了 不嫌菜就加吧
 
 
+
+
+*****
+
+####  LOLITA  
+##### 83812#       发表于 2021-9-20 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820003&amp;ptid=1085254" target="_blank">空气蛹 发表于 2021-9-20 11:43</a>
+
+想转日服了，准备买个号，现在想体验好有哪些卡是最好有的么</blockquote>
+好像有那种C呆杀狐奥博龙+摩根的初始，你自己用带的石头再抽个水夹馍，接下来一年就都随便打都不用抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+

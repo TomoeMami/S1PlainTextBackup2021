@@ -12609,3 +12609,49 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 具足虫哪能算心理阴影，顶多就相当于现实中的汉堡肉之于逢田姐罢了，后来逢田姐上厨艺类节目还不是玩得很开心嘛
 
 
+
+
+*****
+
+####  pliee  
+##### 5544#       发表于 2021-9-20 17:22
+
+
+还没看，拉成这样了？
+
+
+*****
+
+####  saglork  
+##### 5545#       发表于 2021-9-20 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822796&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 16:52</a>
+吹无印的怕不是都忘了跑路的南小鸟了吧。
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+雪中行军能在二次元三次元两边玩成名场面，舞台剧实际live效果也说得过去，看好致敬EVA的おめでとう也变成系列代表性场景，不要小看拉拉人啊Kora<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 5546#       发表于 2021-9-20 17:24
+
+
+看了一眼拉拉吧，那些13级14级的说战吧带节奏
+
+笑死我了，我终于明白为什么这种乱七八糟的剧情都能做出来，有这种观众还用想个寄吧的剧情
+
+真是观众跟编剧一起瞎jb感动的故事啊
+
+
+*****
+
+####  Mika-S  
+##### 5547#       发表于 2021-9-20 17:25
+
+
+过了几周再看，花田果不其然又被开烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

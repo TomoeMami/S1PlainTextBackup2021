@@ -10913,3 +10913,17 @@ mini6有推荐的壳吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">之前买iPadpro的时候泥潭推荐的益博思（应该是叫这个？）带笔槽的壳 感觉还行 就符合价格吧 也不是太厚
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 979#       发表于 2021-9-20 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818942&amp;ptid=2015640" target="_blank">Lisylfn 发表于 2021-9-20 09:47</a>
+
+狗东好抢，昨天早上mini我随便点进去都能下单</blockquote>
+看了看狗东现在还有2个颜色能直接买 那我还是准点蹲个猛男粉好了 垃圾夕夕下一波直接到24号了<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
