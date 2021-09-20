@@ -8877,3 +8877,16 @@ image.png
 可能是因为玩具就是这么设计的？
 
 
+
+
+*****
+
+####  过气页游  
+##### 2145#       发表于 2021-9-20 09:11
+
+
+打斗中间的帧数没那么低就好了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+下次的神回又是何时呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
