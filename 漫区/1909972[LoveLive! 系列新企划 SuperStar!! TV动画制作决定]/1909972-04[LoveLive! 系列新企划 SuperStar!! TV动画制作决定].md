@@ -13120,3 +13120,117 @@ nako脸上这痣有点多啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹先看二期吧 
 
 
+
+
+*****
+
+####  kbtit  
+##### 5581#       发表于 2021-9-20 21:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825294&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-20 21:52</a>
+
+我认为怼人的剧内合理性越来越没有说服力，硬要合理化反而让唐可可这个角色失真，而剧外合理性我认为更有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">其实我只是想说没多少人想看迫害，贴吧论坛大多数基本都是给平安名打抱不平的，归根结底，剧中的不合理都可以说是编剧的锅
+
+
+*****
+
+####  秋月艾莉  
+##### 5582#       发表于 2021-9-20 21:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824958&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-20 20:30</a>
+
+感觉各个地方觉得民警活该受迫害的好像就只有“堇瞧不起学园偶像”这一个观点，只要这个前提条件还存在，可 ...</blockquote>
+这说服力还不够<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">要说明的只是为什么对堇态度不太好而已，你觉观感好不好是另外一回事
+
+仿佛可真的给人做了什么一样，是禁止堇上台了还是没给堇的馊主意出力了
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">等到可什么时候在后台和堇扯头花你再来说什么无论什么事都合理吧
+
+
+*****
+
+####  寒风夜  
+##### 5583#       发表于 2021-9-20 21:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825312&amp;ptid=1909972" target="_blank">VirMoe 发表于 2021-9-20 20:53</a>
+
+星团每个人的矛盾实际上看都很拧巴，感觉过于表演，经常把我尬住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">设置的就很低级
+
+
+*****
+
+####  寒风夜  
+##### 5584#       发表于 2021-9-20 21:07
+
+
+ 本帖最后由 寒风夜 于 2021-9-20 21:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825294&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-20 20:52</a>
+
+我认为怼人的剧内合理性越来越没有说服力，硬要合理化反而让唐可可这个角色失真，而剧外合理性我认为更有 ...</blockquote>
+我是觉得啊，，这欢喜冤家做的就没那味，太硬了，这样，4改成可可拉人，
+
+
+*****
+
+####  kbtit  
+##### 5585#       发表于 2021-9-20 21:07
+
+
+ 本帖最后由 kbtit 于 2021-9-20 22:08 编辑 
+
+风怒
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5586#       发表于 2021-9-20 21:08
+
+
+同情营销。
+
+类似卖宠物的故意把小动物弄得很可怜。
+
+下次人气选举1st不可避<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  kata魂  
+##### 5587#       发表于 2021-9-20 21:15
+
+
+在纠结反正也没有拉人回了，下集日常应该能正常点了
+
+只要别再弄出是香音一个人想的团名这种操作就行了
+
+
+*****
+
+####  寒风夜  
+##### 5588#       发表于 2021-9-20 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825628&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-20 21:15</a>
+
+在纠结反正也没有拉人回了，下集日常应该能正常点了
+
+只要别再弄出是香音一个人想的团名这种操作就行了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊这
+
+
+*****
+
+####  凡人  
+##### 5589#       发表于 2021-9-20 21:19
+
+
+我怎么觉得这个可能性很高呢
+
+
