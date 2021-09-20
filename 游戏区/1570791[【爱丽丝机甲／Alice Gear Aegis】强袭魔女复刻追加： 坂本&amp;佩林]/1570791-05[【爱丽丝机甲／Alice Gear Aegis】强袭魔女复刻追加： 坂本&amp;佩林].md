@@ -406,3 +406,25 @@ E0B718C7-51AE-4580-B7B4-DFB12ACEED5E.jpeg
 <img src="https://img.saraba1st.com/forum/202109/20/121434tq2mdd242dol443r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 6030#       发表于 2021-9-20 16:58
+
+
+国服接下来要出的an绫香，有人能介绍一下性能吗？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  alialex  
+##### 6031#         楼主| 发表于 2021-9-20 17:03
+
+
+性能？马鞭草除了小芦都是有原版就可以不抽的程度
+
+

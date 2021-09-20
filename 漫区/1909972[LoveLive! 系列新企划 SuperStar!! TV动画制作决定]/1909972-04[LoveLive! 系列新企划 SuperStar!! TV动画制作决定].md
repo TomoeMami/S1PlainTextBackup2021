@@ -12548,3 +12548,64 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 战吧都开始吹无印了，有点想笑，花田过手的三代也就是卧龙凤雏吧，还没到哪代能拿来吹的地步，星前三话倒是有点到达前辈没有的高度，现在原型毕露了
 
 
+
+
+*****
+
+####  灼眼の安娜  
+##### 5539#       发表于 2021-9-20 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822751&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-09-20 16:47:35</a>
+战吧都开始吹无印了，有点想笑，花田过手的三代也就是卧龙凤雏吧，还没到哪代能拿来吹的地步，星前三话倒是 ...</blockquote>吹无印的怕不是都忘了跑路的南小鸟了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 5540#       发表于 2021-9-20 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822796&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 16:52</a>
+
+吹无印的怕不是都忘了跑路的南小鸟了吧。
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雨中训练
+
+
+*****
+
+####  寒风夜  
+##### 5541#       发表于 2021-9-20 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822796&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 16:52</a>
+
+吹无印的怕不是都忘了跑路的南小鸟了吧。
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+
+
+*****
+
+####  megapikachu  
+##### 5542#       发表于 2021-9-20 16:57
+
+
+具足虫本来就不是什么创伤，无非是堇自己姿态高，一直想营造一个演艺圈pro的外在，结果工作实绩就是具足虫，被人发现了不爽罢了。她能少花点精力维系一个虚假的外在，面对现实，这倒是一个好的开始。
+
+
+*****
+
+####  qratosone  
+##### 5543#       发表于 2021-9-20 17:03
+
+
+具足虫哪能算心理阴影，顶多就相当于现实中的汉堡肉之于逢田姐罢了，后来逢田姐上厨艺类节目还不是玩得很开心嘛
+
+
