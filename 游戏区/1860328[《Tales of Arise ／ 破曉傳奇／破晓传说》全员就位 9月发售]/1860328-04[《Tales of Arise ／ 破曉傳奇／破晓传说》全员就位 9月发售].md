@@ -12151,3 +12151,28 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 究竟是为了钓鱼设计了盾姐的后背，还是为了盾姐后背而加入了钓鱼环节<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  urvark  
+##### 5419#       发表于 2021-9-20 14:45
+
+
+这个钓鱼……其实做得还挺细致的，随着鱼的不同来更换鱼饵，诱鱼的方法，还有上钩后的消耗体力，都比一般的JRPG要细节一些。遗憾的是设计这么多细节却不设计足够的奖励来激发玩家的游玩欲望，钓上来的基本全是换金道具，开启技能盘更是莫名其妙，我宁可它把技能盘多绑几个在支线上，也不愿意用钓鱼这种方法来强行解锁。我比较希望钓到的鱼能兑换一些有意义的道具，或者能和料理结合，做一些有着更好效果的食物，比如战斗AG消耗减半一类
+
+
+*****
+
+####  alucardcz  
+##### 5420#       发表于 2021-9-20 14:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821600&amp;ptid=1860328" target="_blank">secretgarnet 发表于 2021-9-20 14:37</a>
+
+无尽辉石在天之楔和佛葛渥钟乳洞可以捡到
+
+其他矿石位置可以参考这个 https://tieba.baidu.com/p/75426530 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么 天之楔就有？  我居然一个没捡到   先谢了
+
+

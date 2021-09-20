@@ -11980,3 +11980,118 @@ cd也是，以前ll企划方发售cd基本上都是只有一个团的，这样�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  UnhappyTails  
+##### 5498#       发表于 2021-9-20 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821621&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-20 14:40</a>
+
+看了尾巴哥的小作文才发现原来花田还是碧阳的系列构成（还是好评较多的第一季，第二季还没花田了）[ ...</blockquote>
+关键是，碧阳的吹点就在于细腻的人物塑造和情感把握
+
+
+而llsp最拉的也恰恰是这两个
+
+
+我真的是嗦不粗话
+
+
+*****
+
+####  Goisdust  
+##### 5499#       发表于 2021-9-20 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821570&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 14:33</a>
+
+我最最无法接受的还是对于唐可可的前后设定崩坏
+
+
+作品从一开始就是拿唐可可做的队长役，香音做c役，结果最 ...</blockquote>
+人设高于剧情的结果。可可和堇必须是欢喜冤家，堇不管做什么可可都要过度反应。我之前就说过这种生搬硬套的关系发展下去可可会很像魔怔人
+
+
+*****
+
+####  寒风夜  
+##### 5500#       发表于 2021-9-20 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821724&amp;ptid=1909972" target="_blank">Goisdust 发表于 2021-9-20 14:51</a>
+
+人设高于剧情的结果。可可和堇必须是欢喜冤家，堇不管做什么可可都要过度反应。我之前就说过这种生搬硬套 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但这种人设也不难写好啊...
+
+
+*****
+
+####  寒风夜  
+##### 5501#       发表于 2021-9-20 14:55
+
+
+ 本帖最后由 寒风夜 于 2021-9-20 15:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821724&amp;ptid=1909972" target="_blank">Goisdust 发表于 2021-9-20 14:51</a>
+
+人设高于剧情的结果。可可和堇必须是欢喜冤家，堇不管做什么可可都要过度反应。我之前就说过这种生搬硬套 ..</blockquote>
+
+
+*****
+
+####  UnhappyTails  
+##### 5502#       发表于 2021-9-20 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821724&amp;ptid=1909972" target="_blank">Goisdust 发表于 2021-9-20 14:51</a>
+
+人设高于剧情的结果。可可和堇必须是欢喜冤家，堇不管做什么可可都要过度反应。我之前就说过这种生搬硬套 ...</blockquote>
+不赞同，这是刻板印象高于剧情的结果。换言之，这是属性导向动画片的通病
+
+
+剧情导向和人设导向撕了这么久，除了得出人设导向比剧情导向好写以外没有什么结论
+
+
+但是属性导向是绝对不行的，也是最不动脑子的写作方法
+
+
+这也是我恼恨花田的
+
+
+他也不是什么新丁了，这么写东西真是不要脸不要皮
+
+
+*****
+
+####  CharlieZ-  
+##### 5503#       发表于 2021-9-20 14:58
+
+
+想不明白最后放那段具足虫是想表达什么，制作组是不是觉得自己很幽默啊，在我看来像是把伤口扒开还往里面撒了一把孜然的行为<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 5504#       发表于 2021-9-20 15:02
+
+
+ 本帖最后由 笋狐 于 2021-9-20 15:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">还不是放着人物本质矛盾不解决无视就拉去硬贴的锅，人是香音拉的，c也是她说来抢的，转头一股脑贴可可去了，他要把78和56换一下观感看着还自然点，动画这么演真就硬把阿斯巴甜往你脸上甩，转头叫恋恋和民警那个入队后摁贴简直异曲同工
+
+
+*****
+
+####  笋狐  
+##### 5505#       发表于 2021-9-20 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821775&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-20 14:58</a>
+
+想不明白最后放那段具足虫是想表达什么，制作组是不是觉得自己很幽默啊，在我看来像是把伤口扒开还往里面撒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很不幸，是的，类似的情节至少到一期结束都可能会再演几遍
+
+

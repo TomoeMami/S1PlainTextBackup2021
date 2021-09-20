@@ -10859,3 +10859,19 @@ ipad的ac+是可以保官方配件的，比如笔和键盘
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  (wing)  
+##### 975#       发表于 2021-9-20 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52816499&amp;ptid=2015640" target="_blank">Sangria 发表于 2021-9-19 22:55</a>
+
+mini有多小众？一个情况告诉你：其他机型都到十月底发货了，13mini 18号下午下单还是9月24日送达。
+
+ ...</blockquote>
+我第一时间买的都是26号送达
+
+
