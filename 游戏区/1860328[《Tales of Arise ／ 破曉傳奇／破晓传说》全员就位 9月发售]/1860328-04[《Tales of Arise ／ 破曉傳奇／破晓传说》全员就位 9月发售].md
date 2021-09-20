@@ -12399,3 +12399,78 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 个人评价 除了画面远不如tob。这游戏要是不叫传说也许还能有点救
 
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 5438#       发表于 2021-9-20 20:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么我玩了60h还没通关
+
+
+*****
+
+####  alucardcz  
+##### 5439#       发表于 2021-9-20 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824875&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-20 20:23</a>
+
+为什么我玩了60h还没通关</blockquote>
+可能因为你在挂机？ 我已经很摸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  loley  
+##### 5440#       发表于 2021-9-20 20:30
+
+
+<blockquote>alucardcz 发表于 2021-9-20 20:14
+我也通关了 43小时  除了麻婆外全程hard  说实话后面打什么都一样 我复读我的 boss打boss的  偶尔心 ...</blockquote>
+有一说一，我就是在TOB那边被高我N级的支线的米拉裘德打到生活不能自理才学会在这作里做支线前存档的，你提的这点算是老问题吧😄
+
+
+*****
+
+####  Raumanzug  
+##### 5441#       发表于 2021-9-20 20:32
+
+
+早上打完的。53h次高难度。剧情本身没什么意见，好坏都是，就是樱庭和ufo实在太菜了。战斗方面因为法师入队一直主控法师本来也没什么连招，就是买dlc前只有水风光三个一级法术能用，火1还得打五六十级的支线，用了dlc以后到终盘前想起来把称号开完前都挺快乐的，称号开完以后把天槌点上基本全在复读天槌，感觉伤害比连读光3还要高几倍，除了会一直抬高度对巨型以外不好定点是真的强。
+
+
+*****
+
+####  Raumanzug  
+##### 5442#       发表于 2021-9-20 20:34
+
+
+顺便问问暗之树血这个素材和矿石稀有大的配方在哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Raumanzug  
+##### 5443#       发表于 2021-9-20 20:34
+
+
+ 本帖最后由 Raumanzug 于 2021-9-20 20:36 编辑 
+
+风怒
+
+
+*****
+
+####  loley  
+##### 5444#       发表于 2021-9-20 20:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52825023&amp;ptid=1860328" target="_blank">Raumanzug 发表于 2021-09-20 20:34:13</a>
+顺便问问暗之树血这个素材和矿石稀有大的配方在哪啊</blockquote>暗之树血应该是打异界来访者隐藏迷宫里的怪来的，矿石稀有大的配方是松饼支线任务给的，我记得我是在梅南希亚旅馆触发的。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

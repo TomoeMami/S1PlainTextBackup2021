@@ -13024,3 +13024,31 @@ nako脸上这痣有点多啊
 看了题目直接放弃……
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 5573#       发表于 2021-9-20 20:30
+
+
+感觉各个地方觉得民警活该受迫害的好像就只有“堇瞧不起学园偶像”这一个观点，只要这个前提条件还存在，可可对民警无论什么态度做什么事都是合理的
+
+说实话，说服力属实不太够，不知道还有没有新的观点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 5574#       发表于 2021-9-20 20:46
+
+
+那新观点就是可可对于堇高傲的态度不满，她的自尊无法忍受自上而下的关照<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+与香音的关系是因为两个人都有弱点，一个无法在大众面前唱出来，一个无法在陌生国度独立支撑起学园偶像，换言之二人的关系是对等的。
+
+小千和恋是音乐科出身地位就是论外的，可可无所谓高低。
+
+只有堇同样是普通科，不怯场，唱歌跳舞也擅长，可可无法从中感受到对等的关系，所以才会不断地贬低<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
