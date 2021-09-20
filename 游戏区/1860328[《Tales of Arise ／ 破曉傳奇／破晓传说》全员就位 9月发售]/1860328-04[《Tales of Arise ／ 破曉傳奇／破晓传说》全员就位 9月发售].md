@@ -12976,3 +12976,22 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 去查了一下，他主要是参与toe，tog和togf的战斗开发。不过这作贯穿和耐久确实是像以前的命中和回避
 
 
+
+
+*****
+
+####  ranapocket  
+##### 5483#       发表于 2021-9-21 06:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828364&amp;ptid=1860328" target="_blank">secretgarnet 发表于 2021-9-21 05:29</a>
+香川寛和
+
+テイルズ オブ エクシリア
+
+戦闘プログラム開発</blockquote>
+你贴的第一条写的是tox吧？
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
