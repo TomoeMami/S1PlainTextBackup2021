@@ -12237,3 +12237,55 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 温泉剧情怎么解锁啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5426#       发表于 2021-9-20 17:22
+
+
+这无尽辉石有毒吧? 2个点挖了3轮只出了几个3级的   这是只能出3级的还是纯看脸?
+
+
+*****
+
+####  alucardcz  
+##### 5427#       发表于 2021-9-20 17:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有这作第2个秘奥都是和主角满好感才给?
+
+
+*****
+
+####  乱山残照  
+##### 5428#       发表于 2021-9-20 17:24
+
+
+刚到第三国度打野猪来了条龙<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">ai队友狂死，靠着修脚磕药攒大才打死
+
+
+*****
+
+####  火红之眼  
+##### 5429#       发表于 2021-9-20 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822615&amp;ptid=1860328" target="_blank">czy1997 发表于 2021-9-20 16:33</a>
+
+温泉剧情怎么解锁啊打通关了都没见到能接这任务，那个区域的任务都完成了的 ...</blockquote>
+几个支线星灵打完大概就会出任务提示了，还没出就把巨大兽也打完试试
+
+
+*****
+
+####  alucardcz  
+##### 5430#       发表于 2021-9-20 17:29
+
+
+话说这游戏是不是做不了巨大boss战。。
+
+一副里特打小怪 后面打支线塔上那个大鸟又是小怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

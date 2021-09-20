@@ -428,3 +428,35 @@ E0B718C7-51AE-4580-B7B4-DFB12ACEED5E.jpeg
 性能？马鞭草除了小芦都是有原版就可以不抽的程度
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6032#       发表于 2021-9-20 17:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822848&amp;ptid=1570791" target="_blank">黑炎凤凰 发表于 2021-9-20 16:58</a>
+
+国服接下来要出的an绫香，有人能介绍一下性能吗？</blockquote>
+整体性能比原版更高手向更难用。
+
+
+但ANSP的三红，其性能是游戏里顶级无赖逃课SP之一。对比国服出了的四谷，四谷的ANSP就是垃圾。
+
+
+*****
+
+####  黑炎凤凰  
+##### 6033#       发表于 2021-9-20 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823256&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-20 17:38</a>
+
+整体性能比原版更高手向更难用。
+
+
+但ANSP的三红，其性能是游戏里顶级无赖逃课SP之一。对比国服出了的四谷 ...</blockquote>
+所以最佳组合是原版带ansp吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+

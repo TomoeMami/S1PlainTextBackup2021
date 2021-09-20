@@ -10927,3 +10927,25 @@ mini6有推荐的壳吗</blockquote>
 看了看狗东现在还有2个颜色能直接买 那我还是准点蹲个猛男粉好了 垃圾夕夕下一波直接到24号了<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  唯一指定用户名  
+##### 980#       发表于 2021-9-20 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818193&amp;ptid=2015640" target="_blank">乔尼·乔斯达 发表于 2021-9-20 06:24</a>
+借楼求问ipad pro要不要买ac+，壳膜（只写字不画画）求推荐</blockquote>
+买ac+，壳膜别买，主要是两年内无论你带不带壳大概率都会弯（10.5、12.9）实测，不如随意用到时换个新的。
+
+
+*****
+
+####  芸芸提不起劲  
+##### 981#       发表于 2021-9-20 17:42
+
+
+请问有没有黄的比较慢的清水magsafe手机壳推荐？
+
+

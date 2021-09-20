@@ -12655,3 +12655,54 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 过了几周再看，花田果不其然又被开烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 5548#       发表于 2021-9-20 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823105&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-20 17:24</a>
+看了一眼拉拉吧，那些13级14级的说战吧带节奏
+
+笑死我了，我终于明白为什么这种乱七八糟的剧情都能做出来， ...</blockquote>
+战吧那边是有带节奏的没错，只不过花田现在交出来的答卷就这水平，心态失衡觉得上当啦也不奇怪。
+
+反正老粉丝大多都吃过声优盾，片拍的不好啊，生放送广播给你把中之人立好就还有办法拉。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kata魂  
+##### 5549#       发表于 2021-9-20 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823196&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-20 17:32</a>
+
+战吧那边是有带节奏的没错，只不过花田现在交出来的答卷就这水平，心态失衡觉得上当啦也不奇怪。
+
+
+反正老 ...</blockquote>
+问题是那些说自己去看熟肉，不要被节奏的
+
+可这熟肉出来也没精彩哪去啊，唯一解释的一点就是香音确实没当众说恋母亲去世的事
+
+其余的跟之前没啥差别
+
+
+*****
+
+####  saglork  
+##### 5550#       发表于 2021-9-20 17:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52823105&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-20 17:24</a>
+看了一眼拉拉吧，那些13级14级的说战吧带节奏
+
+笑死我了，我终于明白为什么这种乱七八糟的剧情都能做出来， ...</blockquote>
+需求不同罢了，有人想看故事，有人想看女同贴贴，有人只是想要新鲜偶像，导致大家的关注点和期待度都没法统一，最后得到的满足感也不同
+
+
