@@ -12026,3 +12026,47 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 我觉得主要还是后面做崩了...麻婆战就是最难的boss战了。。后面学会复读后感觉打啥都一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lelouchwang  
+##### 5408#       发表于 2021-9-20 13:46
+
+
+钓鱼真TM无聊 傻逼日本人在游戏里加这种无聊环节就算了，还偏要和技能树去挂钩<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  乱山残照  
+##### 5409#       发表于 2021-9-20 13:46
+
+
+刚打完第二关boss，那个监狱钥匙要上哪拿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">舔了两遍图都没看见
+这boss霸体蓄力技要怎么打断，我每次都是硬吃下来磕药的
+
+
+*****
+
+####  zero33333  
+##### 5410#       发表于 2021-9-20 13:58
+
+
+白了，发现差一个装备，不知道哪里获得了，有无哪里有wiki啊
+
+
+*****
+
+####  alucardcz  
+##### 5411#       发表于 2021-9-20 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52821220&amp;ptid=1860328" target="_blank">乱山残照 发表于 2021-9-20 13:46</a>
+
+刚打完第二关boss，那个监狱钥匙要上哪拿舔了两遍图都没看见
+
+这boss霸体蓄力技要怎么打断，我每次都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正常来说是打不断的 带饰品减伤+抬血硬抗
+
+
