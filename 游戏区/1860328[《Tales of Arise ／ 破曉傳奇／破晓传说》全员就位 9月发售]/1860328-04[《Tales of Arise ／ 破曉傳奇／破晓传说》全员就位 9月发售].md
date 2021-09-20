@@ -12995,3 +12995,20 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 5484#       发表于 2021-9-21 07:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828428&amp;ptid=1860328" target="_blank">ranapocket 发表于 2021-9-21 06:46</a>
+
+你贴的第一条写的是tox吧？
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+啊谢谢，我看错了。编辑了
+
+
