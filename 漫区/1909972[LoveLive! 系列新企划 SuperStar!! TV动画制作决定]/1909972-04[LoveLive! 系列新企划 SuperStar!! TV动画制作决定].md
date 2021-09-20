@@ -14085,3 +14085,93 @@ fc的有特典和直签，买还是要买的</blockquote>
 而恋目的不管是什么方式明确为搞学园偶像，而且我怀疑恋妈比缪还早的学园偶像经历把可可闪瞎了已经。
 
 
+
+
+*****
+
+####  优妮可  
+##### 5651#       发表于 2021-9-21 01:04
+
+
+<blockquote>兔姬姬姬姬姬 发表于 2021-9-21 00:28
+鲤鱼推特都快60碗粉了，我看了眼其他关注的coser，多的也就二三十万，鲤鱼这么多粉是怎么来的？总不可能都 ...</blockquote>
+鲤鱼那啥叫yami的好友，一百多万关注。。。
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5652#       发表于 2021-9-21 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52826878&amp;ptid=1909972" target="_blank">梶原ひかり 发表于 2021-09-20 22:51:36</a>
+AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事完全不一样..
+缪斯 水团也是公野樱子提供原案 ...</blockquote>不是说故事不一样，就不算改编了。
+
+很多轻小说动画化故事也都面目全非的，就打个比方，还是花田的中二病，总不能说连几个主要角色都是动画原创，这剧就是原创了。
+
+有时候，有原作提供一条脉络，哪怕我不照搬，作为参考甚至反面教材，重新来架构新的故事，都比完全初创要简单轻松的多。
+
+而且我算看过b站上as几章熟肉，觉得跟虹团动画主线也差不多，都是galgame式的单元剧风格，但它排雷做得很好，甚至部分截然不同的剧情就是明显为了排雷才改写的。
+
+缪水星，这是真的从零开始，没有可以什么参考的剧本。
+
+但我觉得花田写两代四期加剧场版，经验也够了，怎么自己一点都没突破，搞得还像是第一次写，甚至还开倒车，理解不能真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  player3960  
+##### 5653#       发表于 2021-9-21 01:20
+
+
+怎么还有直球辱骂可可的堇推额，搞清楚敌人是谁啊卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ads147147  
+##### 5654#       发表于 2021-9-21 01:21
+
+
+让我想想花田还有那些没在星里用过的缪套路：
+1、合宿，用了但是没完全用（泳装回耍宝）
+2、先辈禁止（虽然没先辈，但是堇那破事总要处理）
+3、第一次分行李散伙（比如追飞机）
+4、作曲作词瓶颈到大家发疯
+5、魔法合唱（要感动到大家哭的那种）
+6、第二次分行李散伙（5个人抱在一起哭）
+7、见迷之前辈的化身（成人果）
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  stota1320  
+##### 5655#       发表于 2021-9-21 01:24
+
+
+说到花田改编反而避开雷的，我提一个命运石之门0，（只是提一嘴因为我自己没看过）朋友是厨，说动画改编比原作gal强太多，基本把雷都避开了（也是因为朋友跟我说过这些所以开播前我也期待过花田会超常发挥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5656#       发表于 2021-9-21 01:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827924&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-09-21 01:21:42</a>
+让我想想花田还有那些没在星里用过的缪套路：
+1、合宿，用了但是没完全用（泳装回耍宝）
+2、先辈禁止（虽然 ...</blockquote>分行李散伙……
+
+西游记并感（不是
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+

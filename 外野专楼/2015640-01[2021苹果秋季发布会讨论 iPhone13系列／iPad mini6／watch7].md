@@ -11028,3 +11028,26 @@ iphone13promax这么重,有什么轻薄的玻璃膜推荐下,手感要好
 掌上生活搜苹果分期还是集赞领补贴什么的，要两个人点赞
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 988#       发表于 2021-9-21 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827233&amp;ptid=2015640" target="_blank">sc流亡湿人 发表于 2021-9-20 23:29</a>
+
+在官网用招行分期买的用户，可以在掌上生活APP参加活动领88元还款金，基本必中88，欧皇能中888。相当于又便 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而这破玩意儿分享活动好像只能用微信的样子，我不用那玩意儿……
+
+
+*****
+
+####  唯一指定用户名  
+##### 989#       发表于 2021-9-21 01:23
+
+
+虽然有点晚，建行买不要忘了报名十倍积分活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
