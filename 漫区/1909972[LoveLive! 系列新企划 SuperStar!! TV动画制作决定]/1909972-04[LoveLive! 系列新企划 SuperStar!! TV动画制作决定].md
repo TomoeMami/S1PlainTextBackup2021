@@ -14039,3 +14039,37 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 也不怪网上争议那么大，这人物关系处理的是真差，最后还来一段具足虫，不知道让多少堇厨破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 5647#       发表于 2021-9-21 00:24
+
+
+<blockquote>cybernetics31 发表于 2021-9-20 23:51
+fc的有特典和直签，买还是要买的</blockquote>
+才把各种碟下单……还以为能喘口气了，看来得再接几个私活弄点小钱钱
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5648#       发表于 2021-9-21 00:28
+
+
+鲤鱼推特都快60碗粉了，我看了眼其他关注的coser，多的也就二三十万，鲤鱼这么多粉是怎么来的？总不可能都是中华炮吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前把她推特快速翻了下，好像也没有火出圈的推文
+
+
+*****
+
+####  404489039  
+##### 5649#       发表于 2021-9-21 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827514&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-21 00:05</a>
+
+我也觉得离谱，就算LL对可可来说大过一切，她和恋真正认识的时间也才几天，这集怎么就能光速改称呼让c位了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">学院偶像二代，巴结下有什么关系
+
+
