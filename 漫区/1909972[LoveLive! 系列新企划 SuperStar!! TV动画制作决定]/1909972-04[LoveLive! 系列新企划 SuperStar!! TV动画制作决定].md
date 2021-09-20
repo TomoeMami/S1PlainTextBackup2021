@@ -12269,3 +12269,115 @@ cd也是，以前ll企划方发售cd基本上都是只有一个团的，这样�
 对，那这么说的话，水水的这个露比也能算梗优先迫害角色了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  笋狐  
+##### 5516#       发表于 2021-9-20 15:50
+
+
+虽然但是，niconiconi对应的应该是民警的galaxy，但nico这口头禅起码还是取自名字读音，民警这个是真的迷，你编一个回忆说小时候看星空璀璨自己想要成为star也行啊
+
+
+*****
+
+####  saglork  
+##### 5517#       发表于 2021-9-20 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822088&amp;ptid=1909972" target="_blank">UnhappyTails 发表于 2021-9-20 15:31</a>
+你没有理解我的意思，为了人设牺牲剧情这一点在动画业界已经非常普遍了，而角色/人设导向的片子里也不乏可 ...</blockquote>
+是你没明白，造梗对动画人物合理性有影响，但对强调角色特性是坏事吗？未必啊，偶像最怕的不是没有合理性或者变成搞笑角色，而是透明没有关注度，一个在主线剧情里人物崩坏但醒目的角色，绝对比一个前后合理统一但平淡的角色更适合做偶像
+看声优生放送和live的问候就明白了，官方不仅不反对造梗，甚至拼命拿出来强化印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南条一间  
+##### 5518#       发表于 2021-9-20 15:53
+
+
+要不叔叔考虑一下后面几集别上了，就这样让叔叔家的观众继续沉睡在永恒瑰丽的美梦中不要醒来罢
+<img src="http://p.sda1.dev/2/c48af75f1aeeac2c600d500766e5cbbf/IMG_CMP_91332440.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stota1320  
+##### 5519#       发表于 2021-9-20 15:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总算看人吐槽拉拉这边人设导向和属性导向的问题了，个人觉得大概是拉拉系列里最麻的部分
+
+
+*****
+
+####  saglork  
+##### 5520#       发表于 2021-9-20 15:57
+
+
+拿水来说的话露比确实是比较失败的塑造，不是因为那个胶水黏住的姿势，而是那个姿势和biki的小动物口癖不足以在九个人里面足够亮眼，简单说梗都没造起来，洗不到关注度和流量
+
+
+
+
+*****
+
+####  UnhappyTails  
+##### 5521#       发表于 2021-9-20 15:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822243&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 15:51</a>
+
+是你没明白，造梗对动画人物合理性有影响，但对强调角色特性是坏事吗？未必啊，偶像最怕的不是没有合理性 ...</blockquote>
+你合理造梗贴标签不能算是造梗优先啊，你得是像堇这种，为了造梗不惜往角色伤口上撒盐才行啊
+
+
+反正我感觉这个程度上还是有差距<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UnhappyTails  
+##### 5522#       发表于 2021-9-20 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52822243&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 15:51</a>
+
+是你没明白，造梗对动画人物合理性有影响，但对强调角色特性是坏事吗？未必啊，偶像最怕的不是没有合理性 ...</blockquote>
+那我觉得你说的这种造梗不能一概而论说是造梗优先迫害角色，得是阿堇这种为了搞梗在人伤口上撒盐的行为才算<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5523#       发表于 2021-9-20 16:05
+
+
+五个人按理来说没必要这么塑造也很宽裕啊（）
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5524#       发表于 2021-9-20 16:05
+
+
+想了一下，虹团的成功，除了不受主线束缚，也有AS在前踩雷的功劳，到了电视动画的剧本就知道该怎么规避和优化某些雷点了。
+
+LL每一代都是先给人设图，大背景，再给角色添加设定（贴标签），根据投票选举和真人活动反馈，还要进一步补充梗之类的。
+
+然后宣布动画化，编剧就得操刀把这么多的设定揉进一个故事剧本里，还要符合粉丝的期望同时顾及戏份平衡（这点其实是个大矛盾），我觉得这比一般原创难度大多了。
+
+虹团动画严格上算AS的改编作，真要喷缪水星原创拉垮，应该把AS拉过来一起喷了，因为AS才是和缪水星动画对标的初创。
+
+哦，忘了还有个公野原作，不过她也只是原案文艺担当，提供设定，至于漫画，比动画进度还慢吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+话说回来，初创摸着石头过河，翻车率高是必然的，关键在于花田老贼连编了三作，还是一点长进都看不到。
+
+可他无论改编原创都出过不少神作，总是让我我想到那个抗日神剧的编剧梗，故意在剧情台词里埋雷，以向观众传达“导演欠我工资”“我剧本被人剽窃了”“老子不想编这些垃圾了”之类<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
