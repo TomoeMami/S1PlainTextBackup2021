@@ -6170,3 +6170,17 @@ redfall我感觉应该是b社要求做的。arkane austin现在这个班底都�
 ps5好不了多少本来就是void引擎的问题倒不如说ps5是给你帧数固定了所以反而问题少点，这游戏帧数只有完全固定在60帧和120帧下才没有卡顿多一帧少一帧都不行羞辱2一样的问题，ps5只有在分辨率低于1440p的性能模式下才能跑固定60帧玩，其他什么画质，光追模式变动帧数下表现一样一团糟
 
 
+
+
+*****
+
+####  ysn132  
+##### 530#       发表于 2021-9-20 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818248&amp;ptid=1972138" target="_blank">fateultraone 发表于 2021-9-20 07:06</a>
+
+ps5好不了多少本来就是void引擎的问题倒不如说ps5是给你帧数固定了所以反而问题少点，这游戏帧数只有完全 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那这void比我所知的还要拉，真的还不如用回prey的ce算了
+
+

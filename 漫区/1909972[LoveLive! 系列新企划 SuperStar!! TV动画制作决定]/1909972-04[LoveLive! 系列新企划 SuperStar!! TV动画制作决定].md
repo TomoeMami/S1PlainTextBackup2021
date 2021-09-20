@@ -10657,3 +10657,79 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭还算温和的，仅止于吐槽剧情和鞭尸花田上，把脑袋放空来看这集也不是不能看下去，个人观感来说只是恋在台上那段着实有点难绷，要不是因为生放不好暂停我一次性肯定看不完这段戏
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5394#       发表于 2021-9-20 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818953&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-20 09:49</a>
+
+看完熟肉我觉得还可以啊，没有节奏带的那么糟，这集至少平均以上水准了吧 虽然live的歌我个人觉得不太好听 ...</blockquote>
+有些节奏带得太混账了，一口一个卡农在台上宣布恋恋你吗没了，吐了
+
+
+*****
+
+####  saglork  
+##### 5395#       发表于 2021-9-20 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52818902&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 09:43</a>
+怎么说呢，我感觉很多人火气还是太大了，跟隔壁大量重播业的旧片段的寒蝉卒比起来，看星团动画目前真的犯不 ...</blockquote>
+我觉得所有问题都可以归咎于年轻人的第一部花田lovelive，星剧情的问题都是在之前四季lovelive中出现过的东西，包括所谓的霸凌，leader莫名其妙的就能解决问题，丑角，成员前后性格差异，解决问题的方法经不起推敲等等，可以说都是历史重现，还是那句话，星是完全符合对花田lovelive合理期待的作品<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+这一话我观感不好主要还是live，歌、舞台风格、演出分镜全面不符合喜好，当然也有很多人也觉得好，这个属于主观观感差异<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5396#       发表于 2021-9-20 10:07
+
+
+还好我昨天没看直播，又有鲤鱼吃播看又有心跳在跃动听，感觉十分好哇
+
+
+*****
+
+####  dd950728  
+##### 5397#       发表于 2021-9-20 10:10
+
+
+花田就是喜欢把学院偶像写得像不食人间烟火的仙女一样，只要哭哭抱抱就能解决问题。但是他写的学园偶像又不是真的仙女，真的仙女得能随地开固有结界，能放雪菜绯红风暴。因为大家知道这玩意儿就是虚构的，所以看得开心就行。你花田非要把学园偶像写成普通人，然后又用普通人没法共情的方式解决问题，就开着校会呢香哥哥突然跑上来大谈特谈学园偶像光辉历史然后就把恋恋说哭了，你说的谁懂啊。这种又不是完全非现实的，正常人看了不觉得尬吗？
+
+
+*****
+
+####  dd950728  
+##### 5398#       发表于 2021-9-20 10:12
+
+
+还有一点最tm搞笑的是，你非要写个剧情来解释为什么找不到学园偶像的记录，因为想让恋恋自己做决定。问题是最后不tm还是香哥哥找到了记录让恋做了决定吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 5399#       发表于 2021-9-20 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52819102&amp;ptid=1909972" target="_blank">dd950728 发表于 2021-9-20 10:10</a>
+
+花田就是喜欢把学院偶像写得像不食人间烟火的仙女一样，只要哭哭抱抱就能解决问题。但是他写的学园偶像又不 ...</blockquote>
+你这是吹虹TV还是黑虹TV<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wolf1997  
+##### 5400#       发表于 2021-9-20 10:15
+
+
+虽然我非常喜欢香音，但不得不承认，单论从弱气怯场小太妹到一个团队立德的转变，香音不如泷川美羽
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
