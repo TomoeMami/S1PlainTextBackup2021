@@ -11560,3 +11560,103 @@ hololive吧，之前因为乳化被赶出去的霓虹管人企业
 本来还觉得这代要改革，结果还是守成路线。或许官方自己也不看好这个IP的延续，只想回防一些虹流失的原教旨粉丝
 
 
+
+
+*****
+
+####  saglork  
+##### 5467#       发表于 2021-9-20 13:08
+
+
+总体来看不是星团太烂，是lovelive传统的这一套东西玩了三遍，老人来看是审美疲劳，新人来看是缺乏冲击力，无印当初能成功，因为当时三渲二的live质量和声优シンクロ确实是有新鲜感的东西，但过去了十年，已经烂大街了，还想只靠这个撑起来还是有点难的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+外传星团负责开拓新模式，正统团延续传统的思路不能算错，但这个传统没必要死守样板戏，留下lovelive大赛和拉人组团就差不多了，把废校丑角之类的传统换换新，也没什么不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过个人来说倒是无所谓，这套样板戏看个乐子还是能接受，本来也没什么太大期待，只要live好看歌好听，漫才有意思也就够了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5468#       发表于 2021-9-20 13:09
+
+
+我倒是觉得万代什么的盯着的受众很明显，就是那些初高中的小女生，贩卖梦想嘛，生意不磕碜，然后才是试图留下有高购买力的老粉丝。加入外国人虽然是很明显的扩展，但是从现在故事的走向来说，还是骗那些涉世未深的娃入坑，本质和那些黑人篮球运动员电影没啥区别。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  没有爱就看不见  
+##### 5469#       发表于 2021-9-20 13:10
+
+
+不至于和水13比，这集唯一好的地方就是没搞出舞台剧，不会在live上重现
+
+
+*****
+
+####  星降る森  
+##### 5470#       发表于 2021-9-20 13:14
+
+
+<blockquote>Goisdust 发表于 2021-9-20 13:02
+星这种换汤不换药的复刻缪斯模式注定上限就不会太高了
+
+本来还觉得这代要改革，结果还是守成路线。或许官方 ...</blockquote>
+这么大IP还能不看好吗？不如说很多人一直没认清这企划上限在三次元上。碟销量正相关的也是抽选。
+
+
+*****
+
+####  kata魂  
+##### 5471#       发表于 2021-9-20 13:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可可的solo好有活力啊，女高中生的感觉，能循环一整天
+
+
+*****
+
+####  光宗薫  
+##### 5472#       发表于 2021-9-20 13:16
+
+
+创始人女儿就是可以为所欲为啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我妈不喜欢所以不许搞，我妈喜欢所以不仅要搞，还要大搞特稿
+
+学生会主 席是皇帝吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  胧楼  
+##### 5473#       发表于 2021-9-20 13:17
+
+
+当2.99就好了 
+
+
+*****
+
+####  星降る森  
+##### 5474#       发表于 2021-9-20 13:18
+
+
+<blockquote>黑雪姫 发表于 2021-9-20 11:30
+民警真的讨厌具足虫吗？ 不让可可叫这个词但是自己却扮起来比谁都欢...</blockquote>
+就是扮的欢才ooc啊，不在意的话哪会准备用物理手段让香音失忆
+
+
+*****
+
+####  寒风夜  
+##### 5475#       发表于 2021-9-20 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52820896&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-20 13:08</a>
+
+总体来看不是星团太烂，是lovelive传统的这一套东西玩了三遍，老人来看是审美疲劳，新人来看是缺乏冲击力， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我 觉得就该换批新监督脚本
+
+
