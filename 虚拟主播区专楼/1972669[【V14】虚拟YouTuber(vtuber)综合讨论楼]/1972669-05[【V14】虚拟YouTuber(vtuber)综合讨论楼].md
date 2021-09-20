@@ -14330,3 +14330,27 @@ VALORANTを運営している、RiotGames様のサポートのもと、ぶいす
 3d估计今年看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7053#       发表于 2021-9-20 20:17
+
+
+<img src="https://img.saraba1st.com/forum/202109/20/201450wix0di28npdn1d8k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>HOLOLIVE FANTASY 1st LIVE.jpeg</strong> (489.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 20:14 上传
+
+
+又线下
+
+三期的LIVE，会是新3D吗
+[https://fanfunisland.hololivepro.com/news](https://fanfunisland.hololivepro.com/news)
+
+

@@ -12936,3 +12936,91 @@ LL每一代都是先给人设图，大背景，再给角色添加设定（贴标
 nako换短发了？
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 5566#       发表于 2021-9-20 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824588&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-20 20:03</a>
+
+nako换短发了？</blockquote>
+。。。。。。第二张明显是绑在后头啊
+
+
+*****
+
+####  TTAA  
+##### 5567#       发表于 2021-9-20 20:13
+
+
+还是等动画全集出来再看吧
+
+
+*****
+
+####  lj205  
+##### 5568#       发表于 2021-9-20 20:13
+
+
+各位岳父来杯喜茶降降火吧
+
+
+*****
+
+####  优妮可  
+##### 5569#       发表于 2021-9-20 20:14
+
+
+<img src="https://img.saraba1st.com/forum/202109/20/201354iperqwywsn0xte4e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210920_200920.jpg</strong> (247.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-20 20:13 上传
+
+
+要还原丸子，不太可能剪吧
+
+
+*****
+
+####  kata魂  
+##### 5570#       发表于 2021-9-20 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824695&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-20 20:11</a>
+
+。。。。。。第二张明显是绑在后头啊</blockquote>
+哦草，只看小图没注意到后面<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 5571#       发表于 2021-9-20 20:20
+
+
+nako脸上这痣有点多啊
+
+
+*****
+
+####  lj205  
+##### 5572#       发表于 2021-9-20 20:24
+
+
+<blockquote>cybernetics31 发表于 2021-9-20 19:21
+1.鲤鱼是犬派还是猫派 犬
+
+2.鲤鱼喜欢哪种寿司（指原材料）エンガワ
+
+3.鲤鱼喜欢的颜色 白
+</blockquote>
+看了题目直接放弃……
+
+

@@ -12350,3 +12350,52 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 确实，所以我最后一句说了啊，一部部等
 
 
+
+
+*****
+
+####  虚无连斩  
+##### 5435#       发表于 2021-9-20 20:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完了，感觉自己浪费两周时间
+
+不说剧情，这剧情我不如滚回去打一遍前奏诗，镜游写的bmg都比这剧本强百倍
+
+开始三章排除节奏问题其实玩着还行，往后就是越打越脱力，怪物全是一个模型换色，让人根本就不想打了。水都往后能不绕路就不绕路，怪能不打就不打，结果最后那个迷宫简直设计师有毛病啊，真的受不住
+
+
+*****
+
+####  alucardcz  
+##### 5436#       发表于 2021-9-20 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824495&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-20 19:56</a>
+
+确实，所以我最后一句说了啊，一部部等</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你玩过tox应该还能体会到这作剧情结构也和tox很像 都是 “后半段本来想做成超展开实际上做成一泻千里的剧情”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不得不怀疑这作是不是拿tox的大纲做参考的
+
+
+*****
+
+####  alucardcz  
+##### 5437#       发表于 2021-9-20 20:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也通关了 43小时  除了麻婆外全程hard  说实话后面打什么都一样 我复读我的 boss打boss的  偶尔心情好躲个技能  因为中间刷矿石钓鱼+各种摸鱼实际上支线全做估计也过不了40h 
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后面剧情因为已经看到很多人说拉了 有一定的心里准备了。看的时候我只想笑
+
+
+剧情战斗系统就不谈了 有些小细节都做不好很不应该 例如支线为什么不标个等级？开战发现根本打不过只能读档 就算有自动存档也不能这样吧
+
+后半段这打完boss原路走回去简直了  除了恶心人+硬拖时间也没其他原因了吧？
+
+还有接个任务对个话就要黑一下屏 这又是为什么 技术问题？
+
+
+个人评价 除了画面远不如tob。这游戏要是不叫传说也许还能有点救
+
+
