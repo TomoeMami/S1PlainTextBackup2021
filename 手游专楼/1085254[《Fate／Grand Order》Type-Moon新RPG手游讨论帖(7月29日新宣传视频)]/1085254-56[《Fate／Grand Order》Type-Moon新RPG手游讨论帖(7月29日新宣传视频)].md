@@ -15866,3 +15866,20 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 如果有水魔总或者村正的话都可以带洗牌服打吧，第二面卡发牌的概率很低
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83828#       发表于 2021-9-21 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830808&amp;ptid=1085254" target="_blank">空气蛹 发表于 2021-9-21 13:04</a>
+
+对了，这次的90+有啥不换人的配置么
+
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是狂娜+双狐
+
+

@@ -13672,3 +13672,47 @@ TOGF之后再也没碰传说果然是选择正确，以后的传说还是继续�
 然后视角还时不时给你强制拉倒BOSS身上，场上的风看都看不清，傻逼设计师你自己玩过吗？
 
 
+
+
+*****
+
+####  BigLittle1999  
+##### 5529#       发表于 2021-9-21 21:13
+
+
+op2之后离通关还有多久，我怎么已经40h了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windtrack  
+##### 5530#       发表于 2021-9-21 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836179&amp;ptid=1860328" target="_blank">BigLittle1999 发表于 2021-9-21 21:13</a>
+
+op2之后离通关还有多久，我怎么已经40h了</blockquote>
+主线剧情还有1/3左右  算上支线的话1/2
+
+
+*****
+
+####  alucardcz  
+##### 5531#       发表于 2021-9-21 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836179&amp;ptid=1860328" target="_blank">BigLittle1999 发表于 2021-9-21 21:13</a>
+
+op2之后离通关还有多久，我怎么已经40h了</blockquote>
+按照你op2前能打40小时来算的话 大概还剩18小时左右<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lelouchwang  
+##### 5532#       发表于 2021-9-21 21:19
+
+
+希侬的时尚评鉴这个支线到底有何意义...时间跨度弄得这么长，我还以为每打完一个领将就可以触发一次剧情，结果最后一段对话就草草结束了
+
+
