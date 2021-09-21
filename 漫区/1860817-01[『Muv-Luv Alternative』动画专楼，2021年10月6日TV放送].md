@@ -8589,3 +8589,23 @@ mla漫画看完了，非常地满足。
 错过了最好的时机，现在有人肯接对鸡枞来说也是最后的机会了吧，已经没有挑三拣四的资本了
 
 
+
+
+*****
+
+####  koguohao  
+##### 601#       发表于 2021-9-21 20:31
+
+
+ 本帖最后由 koguohao 于 2021-9-21 20:43 编辑 
+<blockquote>再买自检星剁手 发表于 2021-9-12 17:00
+https://twitter.com/HoshiSoichiro/status/1435133253686480897
+
+
+保志总一朗：虽然偶尔会有声优交替的新闻 ...</blockquote>
+从pv3来看。新换的男主声优有点辣耳。
+
+
+像但是辣耳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

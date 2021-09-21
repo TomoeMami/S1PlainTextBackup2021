@@ -14448,3 +14448,19 @@ oreapo貌似今晚要继续双人成行<img src="https://static.saraba1st.com/im
 高山忍只是喜欢TRPG，而且特别喜欢看むつー的团，傀逅和沼男都画过好几张，只不过这次正好碰到有やみえん的团而已
 
 
+
+
+*****
+
+####  fastary  
+##### 7061#       发表于 2021-9-21 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834113&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-9-21 18:23</a>
+
+高山忍只是喜欢TRPG，而且特别喜欢看むつー的团，傀逅和沼男都画过好几张，只不过这次正好碰到有やみえん的 ...</blockquote>
+草，那是我想当然了
+
+本来总觉得不会这么巧只是刚好看到喜欢的团吧，没想到只是碰巧<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
