@@ -13250,3 +13250,58 @@ op2出来之后大概还有十几个小时。
 后面几个迷宫全是堆怪物数量和HP 也没解谜 太赶工了
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5502#       发表于 2021-9-21 15:50
+
+
+ 本帖最后由 alucardcz 于 2021-9-21 15:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52831454&amp;ptid=1860328" target="_blank">kurono 发表于 2021-9-21 14:02</a>
+
+传说从TOD2入门全作玩下来，
+
+感觉传说系列剧情就是这个水平，达不到某些神作那种史诗级剧本的高度但是也没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一说一我觉得toa剧情拿到现在来说也很不错 再加上泪姐（
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">次时代后就没剧情可以聊了也是真的
+
+
+其实传说从tox开始就没一个是he 这可能也是个问题 导致这次无脑he+配对
+
+
+*****
+
+####  武者小路紫苑  
+##### 5503#       发表于 2021-9-21 15:57
+
+
+最终迷宫把我乐傻了，正着走一遍再反着走一遍，一般RPG出现这种对称回路都是为了机关谜题服务，TOAR的一 本 道迷宫搞这套，不是等于告诉玩家我懒得画新的地图了就用老的复用一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  peh  
+##### 5504#       发表于 2021-9-21 16:00
+
+
+有没有什么各个角色连段汇总或者推荐啊，不想复读轰霸斩和圣剑了
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 5505#       发表于 2021-9-21 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52832531&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-21 15:50</a>
+
+有一说一我觉得toa剧情拿到现在来说也很不错 再加上泪姐（
+
+次时代后就没剧情可以聊了也是真 ...</blockquote>
+7月没事干的时候模拟器重温TOA，比起当年看不懂日语只知道砍的时候，现在看得懂了被前期二逼型卢克反复劝退，即使不断告诉自己断发之后剧情超好，依然到第一次回王都弃坑了
+
+现在想想，这年头传说认真写个超长段剧情，搭配上不管你新粉老粉都得从零开始学的战斗系统，不是系列粉怕是没几个玩的下去
+
+

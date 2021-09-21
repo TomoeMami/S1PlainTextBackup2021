@@ -14688,3 +14688,23 @@ b站为啥不更了～
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大家中秋节愉快！！
 
 
+
+
+*****
+
+####  Gooddays  
+##### 5696#       发表于 2021-9-21 15:53
+
+
+ 本帖最后由 Gooddays 于 2021-9-21 15:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830943&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-21 13:16</a>
+照你这么说的话可可的行为逻辑更像是个没有感情的机器人，目标只有LL
+
+看得出来你已经尽力在为花田 ...</blockquote>
+你是忘了剧情吧，可可第一话便清楚说了自己是因为喜欢 LL 去日本留学，你想想一个十多岁便离乡别井去日本参与 LL 的深度 LL 粉，发现自己团队有一个 LL 黑的队友，两人不打起来已算好了。
+
+你看过哪个地方的粉黑相遇不是吵起来什至打起来，而是当好朋友的？至少 S1 这论坛我便没见过，什至多年后再把旧帖挖出来继续嘲笑便见到不少。
+
+花田故事写得差，不代表可可的行为不合理。花田的问题在于没有尽快解决堇的问题。
+
+
