@@ -11519,3 +11519,27 @@ mbhkd和verge也提到了续航 应该今年果子给kol的指导里有续航增
 同问。。。有测评提吗
 
 
+
+
+*****
+
+####  芸芸提不起劲  
+##### 1027#       发表于 2021-9-22 01:13
+
+
+mkbhd说13pro一天5小时亮屏使用剩余电量54%<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好奇max这回有多猛
+
+
+*****
+
+####  saintsimpler  
+##### 1028#       发表于 2021-9-22 01:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838947&amp;ptid=2015640" target="_blank">blunder 发表于 2021-9-22 00:32</a>
+同问。。。有测评提吗</blockquote>
+480Hz<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

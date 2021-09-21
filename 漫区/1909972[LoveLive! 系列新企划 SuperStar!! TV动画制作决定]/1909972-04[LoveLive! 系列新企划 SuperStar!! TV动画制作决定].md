@@ -15648,3 +15648,89 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 没准今后花田大仙贝真变成冈妈第二了
 
 
+
+
+*****
+
+####  crcln  
+##### 5778#       发表于 2021-9-22 01:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828222&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-21 03:20</a>
+
+有脑子吗？
+
+你让才出道五个月连一次线下LIVE都没开过的新团现在的CD就能卖过虹？</blockquote>
+有脑子吗？明明讨论动画内容，谁先比动画效应，商业成绩的？既然喜欢比我就比，意思他先开口比了，踩了一脚虹，我还得谦让是吧？我还得来个理性分析是吧？还是你能永远理中客？那你是真的牛逼，你这么理智一定是天生圣人吧？
+
+
+*****
+
+####  crcln  
+##### 5779#       发表于 2021-9-22 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828229&amp;ptid=1909972" target="_blank">we89623 发表于 2021-9-21 03:27</a>
+
+要战上大号，上个小号真缩卵一个主题三回复，还都是这楼发的...
+
+ ...</blockquote>
+这就一个小号帽子扣上来了？笑死我了，这个号要是小号你全家暴毙可以吗？
+
+
+*****
+
+####  qratosone  
+##### 5780#       发表于 2021-9-22 01:11
+
+
+多听了几遍歌，感觉调音也不对劲，伴奏的声音太大了，快把人声给盖住了
+
+
+*****
+
+####  crcln  
+##### 5781#       发表于 2021-9-22 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828222&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-21 03:20</a>
+
+有脑子吗？
+
+你让才出道五个月连一次线下LIVE都没开过的新团现在的CD就能卖过虹？</blockquote>
+我寻思你这么理智，公平，谁先比的不去找，就来挑我的问题，贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？
+
+
+*****
+
+####  sjbssd  
+##### 5782#       发表于 2021-9-22 01:13
+
+
+唉，要不是鲤鱼我何苦再看一次LL，当年发誓本不想看的，结果没想到现在动画搞成这个样子，真的想出重拳
+
+
+*****
+
+####  qratosone  
+##### 5783#       发表于 2021-9-22 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839258&amp;ptid=1909972" target="_blank">sjbssd 发表于 2021-9-22 01:13</a>
+
+唉，要不是鲤鱼我何苦再看一次LL，当年发誓本不想看的，结果没想到现在动画搞成这个样子，真的想出重拳 ...</blockquote>
+想起来个事，铁血之后冈妈还接过什么剧本么
+
+
+*****
+
+####  dozen  
+##### 5784#       发表于 2021-9-22 01:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839291&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-22 01:17</a>
+
+想起来个事，铁血之后冈妈还接过什么剧本么</blockquote>
+做动画电影不亦乐乎啊
+
+
