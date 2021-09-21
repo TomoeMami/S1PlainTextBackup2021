@@ -13331,3 +13331,20 @@ luk削发明志前的剧情我真是看的胸闷（天地良心我只想开心�
 其实我觉得这次ARISE主打HE没问题的（虽然ED有没有必要这么快进另说w）早就想说球球了这些个主人公不要再没事就献祭自己玩儿了，这年头自我牺牲精神不是那么能感动人的…………<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5507#       发表于 2021-9-21 16:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52832639&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-9-21 16:00</a>
+
+7月没事干的时候模拟器重温TOA，比起当年看不懂日语只知道砍的时候，现在看得懂了被前期二逼型卢克反复劝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样才能更好的表现出成长后的转变啊
+
+
+toa战斗系统现在来说就是很朴素。。。没什么大花头。。。 不过难度设计也失败了 最高难度打boss伤害直接变成1了。。太简单粗暴了
+
+
