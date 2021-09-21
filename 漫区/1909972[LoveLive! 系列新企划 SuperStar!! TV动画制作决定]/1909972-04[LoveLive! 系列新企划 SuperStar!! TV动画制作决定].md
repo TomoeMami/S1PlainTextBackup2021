@@ -15332,3 +15332,41 @@ ku-ru-ku-ru cruller！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live都救不回来也太真实了
 
 
+
+
+*****
+
+####  优妮可  
+##### 5750#       发表于 2021-9-21 22:36
+
+
+下周看生肉直播的人应该少了吧。第九集做好了那一起吹，做差了也没人敢出来洗了吧，少点争吵也好。
+
+
+*****
+
+####  lj205  
+##### 5751#       发表于 2021-9-21 22:38
+
+
+我看鲤鱼平时没少教其他人中文吧？青山都知道红薯怎么念了，今晚打铁匠和岬都直接太好听了吧
+
+
+*****
+
+####  saglork  
+##### 5752#       发表于 2021-9-21 22:42
+
+
+n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5753#       发表于 2021-9-21 22:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

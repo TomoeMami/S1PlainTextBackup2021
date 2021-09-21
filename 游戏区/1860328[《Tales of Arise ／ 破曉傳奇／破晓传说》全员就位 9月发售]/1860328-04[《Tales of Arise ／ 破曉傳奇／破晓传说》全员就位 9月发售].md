@@ -13770,3 +13770,62 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是小剧场啊，都打后面来还互相踩雷也是没谁了。
 
 
+
+
+*****
+
+####  法拉  
+##### 5537#       发表于 2021-9-21 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837082&amp;ptid=1860328" target="_blank">vmon 发表于 2021-9-21 22:13</a>
+
+就是小剧场啊，都打后面来还互相踩雷也是没谁了。</blockquote>
+三百年的怨恨是一朝一夕能消除的？有些雷是刻入达娜人骨子里了，你怎么都会碰到，他们能相处这么融洽已经不容易了
+
+女主后期哪有谜语人，突出一个全盘托出
+
+
+*****
+
+####  alucardcz  
+##### 5538#       发表于 2021-9-21 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834552&amp;ptid=1860328" target="_blank">windtrack 发表于 2021-9-21 19:07</a>
+
+通了...感觉挺无聊的，除了画面好点找不到值得一说的东西了
+
+
+战斗设计的其实还可以，但就不知道为啥敌人设 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪正确了  tox拉了  tox2就很不错了  当然不能接受悲剧的另说
+
+
+*****
+
+####  alucardcz  
+##### 5539#       发表于 2021-9-21 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837549&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-21 22:33</a>
+
+三百年的怨恨是一朝一夕能消除的？有些雷是刻入达娜人骨子里了，你怎么都会碰到，他们能相处这么融洽已经 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这游戏有说女主角开头是怎么到达纳的 又是怎么被抓的吗  是不是我哪里漏看了  
+
+
+*****
+
+####  windtrack  
+##### 5540#       发表于 2021-9-21 22:46
+
+
+白金了 57小时
+
+通关后这等级升的真是飞快，一个隐藏BOSS恨不得升7、8级....
+
+以为隐藏迷宫最强BOSS，结果最强隐藏居然是那个人...
+
+
+隐藏迷宫最强BOSS我也是乐了，招牌看家技能在3D跑位中就是个废物...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
