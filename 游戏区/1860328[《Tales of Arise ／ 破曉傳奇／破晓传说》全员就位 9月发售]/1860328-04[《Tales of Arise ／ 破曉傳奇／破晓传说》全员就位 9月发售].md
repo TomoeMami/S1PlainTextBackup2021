@@ -13113,3 +13113,70 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  superlink  
+##### 5492#       发表于 2021-9-21 12:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是真觉得下一作不用看了，整个制作组水平态度思路还是tob那样，还因为第一次高清化全面下滑。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  七氷  
+##### 5493#       发表于 2021-9-21 12:04
+
+
+通了，这最终迷宫不太行，全是换皮怪<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5494#       发表于 2021-9-21 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830164&amp;ptid=1860328" target="_blank">superlink 发表于 2021-9-21 12:01</a>
+
+我是真觉得下一作不用看了，整个制作组水平态度思路还是tob那样，还因为第一次高清化全面下滑。
+
+
+— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下作保持这画面能有tob水平我吹爆了好吗  （
+
+
+*****
+
+####  铅笔  
+##### 5495#       发表于 2021-9-21 12:17
+
+
+相当不错。比TOB还有TOZ强多了，遗憾还是有的，后盘内容太少，城镇缩水，任务缩水。
+
+
+系统其实还行，没有传的那么不堪。
+
+
+boss战刚体其实也还好，有利于攒连击数，技能解锁的差不多之后打的还是蛮爽的，连击停不下来。。
+
+
+剧情很满意。考虑到系列定位，这作我给9分，喜欢传说系列的必玩。
+
+
+*****
+
+####  铅笔  
+##### 5496#       发表于 2021-9-21 12:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827345&amp;ptid=1860328" target="_blank">Shabadadoo 发表于 2021-9-20 23:42</a>
+
+20小时玩到见漆黑之鹰老大那里，一直冲冲冲打打打，感觉已经疲倦了。后面还有多少流程？ ...</blockquote>
+op2出来之后大概还有十几个小时。
+
+

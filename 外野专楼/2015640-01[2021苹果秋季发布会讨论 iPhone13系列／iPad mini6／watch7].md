@@ -11173,3 +11173,36 @@ https://detail.1688.com/offer/538935779195.html
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这代果子降价真只是汇率原因么,怎么算出来完全对不上啊
 
 
+
+
+*****
+
+####  Uranium233  
+##### 999#       发表于 2021-9-21 12:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824521&amp;ptid=2015640" target="_blank">战狼PTSD 发表于 2021-9-20 20:00</a>
+我买了MOROCK的壳，就这家好看点了，别家一个好看的都没</blockquote>
+我看这家只上了没边框的那种双面夹，能防摔么
+
+
+*****
+
+####  蓝川澈  
+##### 1000#       发表于 2021-9-21 12:20
+
+
+坛友都在说mini6好，我们价格敏感型选手扭头买mini5去了，我等mini7<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  那由  
+##### 1001#       发表于 2021-9-21 12:22
+
+
+有没有坛友互相点一下招行那个集赞？微信懒得一个个问人有没有招行卡了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

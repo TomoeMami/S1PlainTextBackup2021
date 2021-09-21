@@ -15713,3 +15713,35 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  sjbssd  
+##### 83816#       发表于 2021-9-21 12:04
+
+
+日服是不是没有龙脉？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 83817#       发表于 2021-9-21 12:33
+
+
+不死心往荚膜池子里又丢了两单，现在有个问题，盘子这东西是要把多出来的五星卖掉才有的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83818#       发表于 2021-9-21 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830529&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-9-21 12:33</a>
+
+不死心往荚膜池子里又丢了两单，现在有个问题，盘子这东西是要把多出来的五星卖掉才有的吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哦对了，如果是你用交换券换过的人的话，换的那个不算的，要抽出来的第6宝才给盘子
+
+
