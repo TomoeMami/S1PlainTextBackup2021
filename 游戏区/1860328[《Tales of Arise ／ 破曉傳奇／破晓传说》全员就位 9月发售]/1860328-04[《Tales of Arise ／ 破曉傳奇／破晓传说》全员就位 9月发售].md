@@ -13036,3 +13036,17 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5487#       发表于 2021-9-21 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828240&amp;ptid=1860328" target="_blank">hummysiren 发表于 2021-9-21 03:35</a>
+
+没被剧情喂屎倒被个任务喂了。接了个任务调查地灵圣殿，结果一连串战斗不说每次到下一个战斗场地时都不解除 ...</blockquote>
+这支线手操女主跳起来用那个三啥啥打最好 安全还是弱点。。不过3x能不能过后面的boss就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

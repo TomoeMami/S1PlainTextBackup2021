@@ -6383,3 +6383,14 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 沙季昨天抽到了，卡面真美，然后建模的大葡萄<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Destiny4073  
+##### 457#       发表于 2021-9-21 11:25
+
+
+强度卡都是常驻，淦
+
+

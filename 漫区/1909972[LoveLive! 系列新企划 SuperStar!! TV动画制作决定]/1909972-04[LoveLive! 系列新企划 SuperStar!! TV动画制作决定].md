@@ -14477,3 +14477,16 @@ b站为啥不更了～
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就现在这样，大家放平心态吧，今天不中秋嘛 消消气
 
 
+
+
+*****
+
+####  saglork  
+##### 5679#       发表于 2021-9-21 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52829444&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-21 10:33</a>
+别吐槽衣服了，那套衣服不是恋妈妈的传承吗？</blockquote>
+昭和爱抖露，肯定不能和花里胡哨的令和比<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
