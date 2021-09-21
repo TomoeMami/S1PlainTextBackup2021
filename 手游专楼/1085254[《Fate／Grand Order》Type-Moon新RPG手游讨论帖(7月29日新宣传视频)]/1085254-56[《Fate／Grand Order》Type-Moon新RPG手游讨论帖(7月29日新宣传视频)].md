@@ -15966,3 +15966,20 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 这次带满破倍卡伤害大概是10万 16万 26万白字
 
 
+
+
+*****
+
+####  芭德薇  
+##### 83834#       发表于 2021-9-21 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838466&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-21 23:41</a>
+
+你操作不对吧  记住c狗技能第1个点就对了   
+
+
+第1回合c狗13  奥1 狐13 减cd衣服3</blockquote>
+这样似乎不容易错，之前我是第二回合才用两个减cd技能，就会出现第二回合13技能都亮但是只有3技能需要按的情况……
+
+

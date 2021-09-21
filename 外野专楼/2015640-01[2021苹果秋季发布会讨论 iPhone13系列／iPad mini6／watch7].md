@@ -11453,3 +11453,20 @@ https://detail.1688.com/offer/538935779195.html
 —— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  404489039  
+##### 1022#       发表于 2021-9-21 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838534&amp;ptid=2015640" target="_blank">攻心为上木之本 发表于 2021-9-21 23:48</a>
+
+快充有人测吗，还是说就和去年一样？
+
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+库克没说那就是肯定没有，有提升肯定会吹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

@@ -15555,3 +15555,66 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 水13没那么好复刻——虽然想这么说但我现在也有点不自信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Skyline_R  
+##### 5771#       发表于 2021-9-21 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838245&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-21 23:24</a>
+
+后面要比水的两个13集低还是比较难的，除非花田真的抽风了
+
+话说bangumi的评分倒是没降多少，这段时 ...</blockquote>
+其实是7.6掉到7.45，bgm有插件显示小数点后四位的，明早起来估计就“破5”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 5772#       发表于 2021-9-21 23:56
+
+
+突然觉得恋好惨，第七话焦点都到堇霸凌上去了，
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  player3960  
+##### 5773#       发表于 2021-9-21 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838623&amp;ptid=1909972" target="_blank">player3960 发表于 2021-09-21 23:56:34</a>
+突然觉得恋好惨，第七话焦点都到堇霸凌上去了，</blockquote>然后第八话又彻底拉掉了，这人气还有救吗？青山姐只能靠你啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  x分裂者  
+##### 5774#       发表于 2021-9-22 00:02
+
+
+啊？有这么烂吗？堇的待遇还没比妮可那次差多少呢，烂活来说也比不过友情yosoro吧，怎么那边连友情yosoro都不如的。
+
+
+*****
+
+####  dozen  
+##### 5775#       发表于 2021-9-22 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838677&amp;ptid=1909972" target="_blank">x分裂者 发表于 2021-9-22 00:02</a>
+
+啊？有这么烂吗？堇的待遇还没比妮可那次差多少呢，烂活来说也比不过友情yosoro吧，怎么那边连友情yosoro都 ...</blockquote>
+有些情况下，上一话是要为下一话的差评负责的
+
+
+简言之就是有个风向问题
+
+
