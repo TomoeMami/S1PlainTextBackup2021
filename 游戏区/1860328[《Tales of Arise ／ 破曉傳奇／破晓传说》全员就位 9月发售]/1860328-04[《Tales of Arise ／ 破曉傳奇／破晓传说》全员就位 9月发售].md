@@ -13225,3 +13225,17 @@ op2出来之后大概还有十几个小时。
 相比前段的SCARLET NEXUS的那些个支线……………………我真是感动到落泪
 
 
+
+
+*****
+
+####  买1送1  
+##### 5500#       发表于 2021-9-21 14:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52831361&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-21 13:53</a>
+
+早中期建议用法师 爽快度爆增  就是不太像传说</blockquote>
+谢谢，有空试试<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
