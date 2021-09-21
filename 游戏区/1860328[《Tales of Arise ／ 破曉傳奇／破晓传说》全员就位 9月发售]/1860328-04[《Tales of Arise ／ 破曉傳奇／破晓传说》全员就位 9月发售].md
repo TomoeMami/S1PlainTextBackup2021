@@ -13191,3 +13191,17 @@ op2出来之后大概还有十几个小时。
 花了一天16个小时打到霸王龙boss，世界观和剧情中等偏上吧，没什么亮点也没什么雷点（以RPG游戏的标准来看）。角色建模都挺漂亮的。但是有点打不下去了，一直刮痧刮得烦了，每个boss都是霸体，太赖皮了，满屏光污染，boss的出招看不清，稍不注意就吃boss的全套招数。打击感不行，就和砍空气一样。
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5498#       发表于 2021-9-21 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830858&amp;ptid=1860328" target="_blank">买1送1 发表于 2021-9-21 13:08</a>
+
+花了一天16个小时打到霸王龙boss，世界观和剧情中等偏上吧，没什么亮点也没什么雷点（以RPG游戏的标准来看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早中期建议用法师 爽快度爆增  就是不太像传说
+
+
