@@ -13050,3 +13050,28 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 这支线手操女主跳起来用那个三啥啥打最好 安全还是弱点。。不过3x能不能过后面的boss就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hummysiren  
+##### 5488#       发表于 2021-9-21 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52829736&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-21 11:14</a>
+这支线手操女主跳起来用那个三啥啥打最好 安全还是弱点。。不过3x能不能过后面的boss就不知道了 ...</blockquote>
+全灭一次就读档跑了，不过用女主几小时刮痧打倒了另一个50多级的幻之花鹿boss，搞得现在手酸还睡眠不足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  春目漱口  
+##### 5489#       发表于 2021-9-21 11:39
+
+
+假期把剧情推到最弱智的那一段了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+打之前我以为是斩杀阶段才来这一出，没想到起手就来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
