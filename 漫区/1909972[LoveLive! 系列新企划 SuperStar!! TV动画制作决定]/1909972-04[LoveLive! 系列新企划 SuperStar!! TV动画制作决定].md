@@ -15226,3 +15226,109 @@ ku-ru-ku-ru cruller！</blockquote>
 多谢！
 
 
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5740#       发表于 2021-9-21 22:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">好评率出了啊，去贴吧逛逛。
+
+
+*****
+
+####  优妮可  
+##### 5741#       发表于 2021-9-21 22:11
+
+
+意料之中，看下集是升还是跌了。
+
+
+*****
+
+####  普之舜舜  
+##### 5742#       发表于 2021-9-21 22:13
+
+
+<img src="https://p.sda1.dev/2/372255dd36d141551708a7a1820e147a/9A050FE6B064A0A68087F474CFC0AD6A.jpg" referrerpolicy="no-referrer">有mv这个评分还这么低😂😂😂看下集了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lj205  
+##### 5743#       发表于 2021-9-21 22:13
+
+
+看来只能靠妹子们自救了……
+
+
+*****
+
+####  D麦林  
+##### 5744#       发表于 2021-9-21 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837055&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-21 22:11</a>
+
+意料之中，看下集是升还是跌了。</blockquote>
+下集多半又是造梗日常回 顶多最后一段煽情一下引出队名
+
+差也差不到哪去
+
+除非花田连这都能做烂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 5745#       发表于 2021-9-21 22:15
+
+
+别尬黑  明显日本人看不懂生肉带节奏
+
+
+*****
+
+####  寒风夜  
+##### 5746#       发表于 2021-9-21 22:15
+
+
+ 本帖最后由 寒风夜 于 2021-9-21 22:20 编辑 
+
+果然<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  放平了
+
+
+*****
+
+####  cxj649  
+##### 5747#       发表于 2021-9-21 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837113&amp;ptid=1909972" target="_blank">稀勢のささ 发表于 2021-9-21 22:15</a>
+
+别尬黑  明显日本人看不懂生肉带节奏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5748#       发表于 2021-9-21 22:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看生放看妹子就行，这企划三次元节目效果拉满的
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5749#       发表于 2021-9-21 22:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live都救不回来也太真实了
+
+

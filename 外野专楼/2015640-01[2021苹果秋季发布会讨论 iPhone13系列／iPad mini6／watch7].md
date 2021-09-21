@@ -11359,3 +11359,42 @@ https://detail.1688.com/offer/538935779195.html
 看了mkbhd小哥视频，电池看来是好评了
 
 
+
+
+*****
+
+####  橋白  
+##### 1014#       发表于 2021-9-21 22:10
+
+
+<img src="https://img.saraba1st.com/forum/202109/21/220932tdedeeceni20oce5.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题.png</strong> (187.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-21 22:09 上传
+
+
+这机器人虚化得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 谁再说计算摄影现在发展得不错我就拿这图打他
+
+
+*****
+
+####  红都剧院24排4号  
+##### 1015#       发表于 2021-9-21 22:12
+
+
+首发评测那不叫评测，那叫导购<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fuero  
+##### 1016#       发表于 2021-9-21 22:14
+
+
+续航很牛逼，120hz的13pro max居然登顶小白测评的那套续航天梯图
+
+

@@ -16189,3 +16189,47 @@ miu居然也没睡还行，而且感觉推特有bug啊，居然会自动取关mi
 希望状态能好一点
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2961#       发表于 2021-9-21 22:13
+
+
+没怎么说上话可还行，直接润了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那天挺累的样子，昏睡了一会儿
+
+
+*****
+
+####  T_Hb  
+##### 2962#       发表于 2021-9-21 22:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天讲不讲投食，小白分饭
+
+
+*****
+
+####  时间在我手中  
+##### 2963#       发表于 2021-9-21 22:16
+
+
+ 本帖最后由 时间在我手中 于 2021-9-21 22:18 编辑 
+
+打枪的时候好像是在小白旁边，这人还挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为早上就要集合了所以就累的一批了
+
+
+*****
+
+####  T_Hb  
+##### 2964#       发表于 2021-9-21 22:19
+
+
+睡着了翻白眼
+
+

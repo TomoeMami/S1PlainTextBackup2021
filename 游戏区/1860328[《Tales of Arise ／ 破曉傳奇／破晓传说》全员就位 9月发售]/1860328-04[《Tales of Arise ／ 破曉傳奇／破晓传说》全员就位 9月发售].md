@@ -13753,3 +13753,20 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主后期也不谜语人啊 战斗语音突出一个已经离不开男主了 男主一挂就是不要丢下我不要丢下我
 
 
+
+
+*****
+
+####  vmon  
+##### 5536#       发表于 2021-9-21 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836365&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-21 21:28</a>
+
+后期哪还有互相伤害 是不是部分小剧场和主线割裂了？
+
+
+女主后期也不谜语人啊 战斗语音突出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是小剧场啊，都打后面来还互相踩雷也是没谁了。
+
+
