@@ -13910,3 +13910,25 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 但是阿光对于嘴臭谜语人不受人待见这点有自知之明所以捏了个讨人喜欢的出来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  windtrack  
+##### 5545#       发表于 2021-9-22 00:21
+
+
+ 本帖最后由 windtrack 于 2021-9-22 00:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838399&amp;ptid=1860328" target="_blank">kangkangsama 发表于 2021-9-21 23:36</a>
+
+反击的伤害加成是最高的（其他像是属性伤AG0伤倒地伤最高也就15%）有30%
+
+战斗狂1个敌人才5%
+
+反击的要求是 ...</blockquote>
+还是奥尔芬用好点，隐藏迷宫几个BOSS，奥尔芬开始蓄霸道的时候，希侬就要预读全场治疗了，要不然打完下一个霸道还要等电脑给你加血太慢了。
+
+
+用希侬的话，一个是场上只有个单体奶妈后期几个隐藏BOSS打起来还是累，特别是刚进隐藏迷宫还有等级差，另外一个伤害和满蓄霸道确实没法比，奥尔芬攻击上千的时候满蓄霸道2刀就能打掉BOSS一节血了
+
+

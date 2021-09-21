@@ -11470,3 +11470,29 @@ https://detail.1688.com/offer/538935779195.html
 库克没说那就是肯定没有，有提升肯定会吹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  crosz  
+##### 1023#       发表于 2021-9-22 00:14
+
+
+Safari 更新的感觉还行，标签页分组的功能很方便，能自定义起始页背景也不错，终于可以不是大白板了
+
+
+*****
+
+####  橋白  
+##### 1024#       发表于 2021-9-22 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838311&amp;ptid=2015640" target="_blank">红都剧院24排4号 发表于 2021-9-21 23:30</a>
+小白测评曾经测出XSMax续航不如X，所以他的评测我一直比较不太当回事
+
+至于钟文泽。。。。
+
+ ...</blockquote>
+mbhkd和verge也提到了续航 应该今年果子给kol的指导里有续航增加这个特点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然真实提升多少只能等大规模到手反馈了
+
+
