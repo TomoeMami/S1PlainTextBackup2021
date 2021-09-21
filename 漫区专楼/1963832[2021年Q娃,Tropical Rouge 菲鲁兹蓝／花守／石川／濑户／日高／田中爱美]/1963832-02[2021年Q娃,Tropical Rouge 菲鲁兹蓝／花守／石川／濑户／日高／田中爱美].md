@@ -9088,3 +9088,29 @@ image.png
 但愿每年q娃都有一两集神回 重要现在东映对q娃重视太低 士大夫能打的也没有几个<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  新HGCG  
+##### 2163#       发表于 2021-9-21 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830908&amp;ptid=1963832" target="_blank">华发夜眼[CN] 发表于 2021-9-21 13:13</a>
+
+这应该是第一个被q娃打过的**吧</blockquote>
+饭饭
+
+
+*****
+
+####  待宵  
+##### 2164#       发表于 2021-9-21 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834725&amp;ptid=1963832" target="_blank">新HGCG 发表于 2021-9-21 19:24</a>
+
+饭饭</blockquote>
+这么说再往前就是可可……不是，coco？
+
+

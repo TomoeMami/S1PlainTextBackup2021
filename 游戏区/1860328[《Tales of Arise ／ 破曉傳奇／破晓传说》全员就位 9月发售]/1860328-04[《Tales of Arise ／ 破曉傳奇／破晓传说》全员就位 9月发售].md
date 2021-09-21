@@ -13586,3 +13586,17 @@ TOGF之后再也没碰传说果然是选择正确，以后的传说还是继续�
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  godless2020  
+##### 5523#       发表于 2021-9-21 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834582&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-21 19:11</a>
+
+战斗饰品是哪个？饰品没有叫这个名字的，另外男主打杂兵，追加全选+贯通120的（你应该是说这个追加词条吧 ...</blockquote>
+攻击+15%的那个，杂兵战我是体验优先，贯通还影响暴击率，BREAK后一套连招带走.....
+
+
