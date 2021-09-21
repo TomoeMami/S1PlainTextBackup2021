@@ -6330,3 +6330,14 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 有个缝隙钻进去才发现这个支线的（其实是主线剧情md）那处是唯一不用密码能进的藏身处
 
 
+
+
+*****
+
+####  moimoi  
+##### 541#       发表于 2021-9-21 20:51
+
+
+终于登入进去了，怎么关闭网络入侵？游戏里面的设置没看到，steam的话不知道在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
