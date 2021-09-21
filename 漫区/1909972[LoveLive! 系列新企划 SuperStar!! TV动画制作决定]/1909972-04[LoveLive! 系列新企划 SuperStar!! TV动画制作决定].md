@@ -15408,3 +15408,117 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">现在疫情下，大家都被没啥卵用的挡板给隔开了，还不能到处乱动，能整的活也少了
 
 
+
+
+*****
+
+####  damian-wade  
+##### 5758#       发表于 2021-9-21 23:02
+
+
+又能清静一个星期，辛苦替制作组圆的各位，下周继续加油<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cat1230  
+##### 5759#       发表于 2021-9-21 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837794&amp;ptid=1909972" target="_blank">shine888kire 发表于 2021-9-21 22:50</a>
+
+但现在感觉对LL的企划来说，只要声优活动拉满，整活生放不停，就能稳赚不赔，动画做的怎么样无所谓了[f:068 ...</blockquote>
+欧美不清楚，但是国内，肯定是动画影响力大于声优的生放啊，如果动画整残废了，就没人了吧。国内。
+
+
+*****
+
+####  amanohanei  
+##### 5760#       发表于 2021-9-21 23:07
+
+
+这水团的MV是3D的吗，好强
+
+
+
+
+*****
+
+####  凡人  
+##### 5761#       发表于 2021-9-21 23:10
+
+
+水mv最后千歌是跑出去见梨子了吗
+
+
+*****
+
+####  shine888kire  
+##### 5762#       发表于 2021-9-21 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837965&amp;ptid=1909972" target="_blank">cat1230 发表于 2021-9-21 23:03</a>
+
+欧美不清楚，但是国内，肯定是动画影响力大于声优的生放啊，如果动画整残废了，就没人了吧。国内。 ...</blockquote>
+但国内其实从来都没算在企划一开始的收益预期里吧？国内这边的收益都是额外纯赚的？
+
+
+*****
+
+####  kos_mos  
+##### 5763#       发表于 2021-9-21 23:12
+
+
+谜拍手
+
+<img src="https://img.saraba1st.com/forum/202109/21/231255up0p1g1miohr9gmy.png" referrerpolicy="no-referrer">
+
+
+<strong>ll0.png</strong> (107.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-21 23:12 上传
+
+
+*****
+
+####  chenflyyy  
+##### 5764#       发表于 2021-9-21 23:13
+
+
+ 本帖最后由 chenflyyy 于 2021-9-21 23:15 编辑 
+
+星团因为有鲤鱼这个国人在，所以国内这次对于声优中之人活动的关注度算高了，梗也很多，不至于没人，但确实不如动画来得影响力大，10组的声优活动熟肉高的就3，4万播放量这样，广播一般不过万
+
+
+*****
+
+####  蜜梨柑  
+##### 5765#       发表于 2021-9-21 23:15
+
+
+水MV好像是3d做完打印下来在纸上修改的，不过不知道工程量如何就是了
+
+
+*****
+
+####  Norkey1  
+##### 5766#       发表于 2021-9-21 23:17
+
+
+动画评分超过水团就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+总不可能到最后比水还低吧
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5767#       发表于 2021-9-21 23:18
+
+
+这集已经是水的两个13集以外最低的一集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

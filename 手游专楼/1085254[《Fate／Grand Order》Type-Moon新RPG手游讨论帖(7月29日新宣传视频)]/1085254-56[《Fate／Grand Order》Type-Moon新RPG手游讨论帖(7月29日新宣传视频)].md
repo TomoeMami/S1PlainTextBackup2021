@@ -15913,3 +15913,17 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83831#       发表于 2021-9-21 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836431&amp;ptid=1085254" target="_blank">芭德薇 发表于 2021-9-21 21:32</a>
+
+有个不用重复卡的队，倍卡魔总带伤害礼装+cba+cab。第一面魔总1技能cba3技能，第二面魔总2技能然后看情况 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">带倍卡的话直接用c狗 狐奥 无脑3连什么都不用算
+
+
