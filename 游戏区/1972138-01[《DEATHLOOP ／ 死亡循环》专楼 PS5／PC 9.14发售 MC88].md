@@ -6291,3 +6291,20 @@ ps5好不了多少本来就是void引擎的问题倒不如说ps5是给你帧数�
 —— 来自 OPPO PDHM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  江少寒  
+##### 539#       发表于 2021-9-21 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52817925&amp;ptid=1972138" target="_blank">redsibyl 发表于 2021-9-20 02:28</a>
+
+通了说真的。。。。那个三个间谍藏身处给的剧情都快能跟主线给的剧情多了md
+
+
+还有就是pick，中文好像叫瑟克 ...</blockquote>
+间谍藏身处在哪呀？
+
+
