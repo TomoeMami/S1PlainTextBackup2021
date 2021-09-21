@@ -13239,3 +13239,14 @@ op2出来之后大概还有十几个小时。
 谢谢，有空试试<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  6847651  
+##### 5501#       发表于 2021-9-21 14:54
+
+
+后面几个迷宫全是堆怪物数量和HP 也没解谜 太赶工了
+
+
