@@ -14399,3 +14399,61 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 塔塔开，塔塔开，一次摸塔塔开<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  pliee  
+##### 5671#       发表于 2021-9-21 10:22
+
+
+看完了，莫名其妙的发展，live的衣服好素，是没颜料了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  用户名已注册  
+##### 5672#       发表于 2021-9-21 10:27
+
+
+b站为啥不更了～
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5673#       发表于 2021-9-21 10:28
+
+
+这楼也有翻页bug了？外面看有回复里面看不到，试试能不能翻页
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5674#       发表于 2021-9-21 10:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">得4楼才能翻页
+
+
+*****
+
+####  lj205  
+##### 5675#       发表于 2021-9-21 10:33
+
+
+别吐槽衣服了，那套衣服不是恋妈妈的传承吗？
+
+
+*****
+
+####  夜明的月下  
+##### 5676#       发表于 2021-9-21 10:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
