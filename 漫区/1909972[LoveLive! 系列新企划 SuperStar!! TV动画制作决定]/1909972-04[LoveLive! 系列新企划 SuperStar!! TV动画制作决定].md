@@ -15630,3 +15630,21 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 结果大家发现雨野写的Liella部分剧情比花田做的动画还好
 
 
+
+
+*****
+
+####  qratosone  
+##### 5777#       发表于 2021-9-22 00:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837106&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-21 22:14</a>
+
+下集多半又是造梗日常回 顶多最后一段煽情一下引出队名
+
+差也差不到哪去
+
+除非花田连这都能做烂了 ...</blockquote>
+没准今后花田大仙贝真变成冈妈第二了
+
+

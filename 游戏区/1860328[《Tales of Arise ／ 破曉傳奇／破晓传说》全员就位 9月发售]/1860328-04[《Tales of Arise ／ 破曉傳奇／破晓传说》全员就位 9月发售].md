@@ -13966,3 +13966,14 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 不一定是漏看，因为这次太“快”了，很多细节没说清楚，也没有留出时间去说。
 
 
+
+
+*****
+
+####  qzfjnv  
+##### 5548#       发表于 2021-9-22 00:57
+
+
+黑皮哥因为太黑了导致我每次战斗带他都以为他死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -15994,3 +15994,14 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 突然发现teamup还有阵容可以抄，这下不用自己动脑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  johnkamsar  
+##### 83836#       发表于 2021-9-22 00:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">90+本刷得太精污了.......已经回去打狗粮本了.....
+
+
