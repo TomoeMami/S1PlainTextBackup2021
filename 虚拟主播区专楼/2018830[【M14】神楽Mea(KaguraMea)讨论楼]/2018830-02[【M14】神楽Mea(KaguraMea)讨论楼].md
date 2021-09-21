@@ -16017,3 +16017,27 @@ miu居然也没睡还行，而且感觉推特有bug啊，居然会自动取关mi
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来被取关的是miu
 
 
+
+
+*****
+
+####  暴走的包子  
+##### 2945#       发表于 2021-9-21 09:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大的要来了？
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  T_Hb  
+##### 2946#       发表于 2021-9-21 09:58
+
+
+几天前就取关了，但我一直不知道是谁，miu现在存在感太稀薄了
+
+今天早上打了声招呼就加回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
