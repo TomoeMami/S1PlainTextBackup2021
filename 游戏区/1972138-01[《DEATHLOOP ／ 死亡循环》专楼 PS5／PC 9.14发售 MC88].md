@@ -6356,3 +6356,20 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  moimoi  
+##### 543#       发表于 2021-9-21 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836396&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-21 21:31</a>
+
+不是选关男主头上有一排小字么，点击切换就是了
+
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 S1Next-鹅 ...</blockquote>
+谢谢，我明天看看
+
+

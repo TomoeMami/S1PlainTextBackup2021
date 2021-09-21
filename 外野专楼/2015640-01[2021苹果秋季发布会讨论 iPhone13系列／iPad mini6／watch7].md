@@ -11304,3 +11304,58 @@ https://detail.1688.com/offer/538935779195.html
 9点解禁测评？
 
 
+
+
+*****
+
+####  战狼PTSD  
+##### 1010#       发表于 2021-9-21 21:57
+
+
+<img src="https://img.saraba1st.com/forum/202109/21/215644cd5gscrvgrsuctxx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (44.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-21 21:56 上传
+
+
+惊了，A15那么牛逼？
+
+
+*****
+
+####  reedwkaka  
+##### 1011#       发表于 2021-9-21 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836847&amp;ptid=2015640" target="_blank">战狼PTSD 发表于 2021-9-21 21:57</a>
+ 惊了，A15那么牛逼？</blockquote>
+不过热降频了？
+
+
+*****
+
+####  战狼PTSD  
+##### 1012#       发表于 2021-9-21 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836924&amp;ptid=2015640" target="_blank">reedwkaka 发表于 2021-9-21 22:02</a>
+
+不过热降频了？</blockquote>
+[https://ngabbs.com/read.php?tid=28607607](https://ngabbs.com/read.php?tid=28607607)
+
+看这帖子说是吃U，低电量锁后台不过热了吧
+
+
+*****
+
+####  cybernetics31  
+##### 1013#       发表于 2021-9-21 22:04
+
+
+看了mkbhd小哥视频，电池看来是好评了
+
+

@@ -15116,3 +15116,113 @@ b站为啥不更了～
 这就是和大ip联动的mv吗？太强了……
 
 
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5731#       发表于 2021-9-21 21:45
+
+
+MV求个关键词。
+
+
+*****
+
+####  kata魂  
+##### 5732#       发表于 2021-9-21 21:51
+
+
+在隔壁生放中英双语打懵的时候，这边也看到了有中文的信，最后‘太好听了吧‘是’’小百合和nako都说了？说的挺标准的（虽然有卡顿）
+
+
+*****
+
+####  Arccueid  
+##### 5733#       发表于 2021-9-21 21:51
+
+
+MV质量高的有点哈人
+
+
+*****
+
+####  CharlieZ-  
+##### 5734#       发表于 2021-9-21 21:52
+
+
+感觉那位火气有点大，是不是上头了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我只是想正常讨论的
+
+
+*****
+
+####  灼眼の安娜  
+##### 5735#       发表于 2021-9-21 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836678&amp;ptid=1909972" target="_blank">灼眼的夏娜酱 发表于 2021-09-21 21:45:17</a>
+MV求个关键词。</blockquote>怪物弹珠
+ku-ru-ku-ru cruller！
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  kata魂  
+##### 5736#       发表于 2021-9-21 22:01
+
+
+有live 69.1我蚌埠住了 哈哈哈哈
+
+
+*****
+
+####  污陨血红  
+##### 5737#       发表于 2021-9-21 22:01
+
+
+ 本帖最后由 污陨血红 于 2021-9-21 22:03 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202109/21/220035oi39871qz4ii4u39.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0364B89214CBFE30A7C5DC3A2473B81D.jpg</strong> (280.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-21 22:00 上传
+
+
+第八话的n站好评率
+
+有live还69.1，后面两个加起来12了，如果后面再烂下去就真寄了
+
+
+*****
+
+####  CharlieZ-  
+##### 5738#       发表于 2021-9-21 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836909&amp;ptid=1909972" target="_blank">污陨血红 发表于 2021-9-21 22:01</a>
+
+第八话的n站好评率</blockquote>
+只能说不出所料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 5739#       发表于 2021-9-21 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836780&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-21 21:52</a>
+
+怪物弹珠
+
+ku-ru-ku-ru cruller！</blockquote>
+多谢！
+
+
