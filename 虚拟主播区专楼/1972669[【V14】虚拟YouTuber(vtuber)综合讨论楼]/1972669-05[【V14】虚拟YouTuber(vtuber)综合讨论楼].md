@@ -14422,3 +14422,18 @@ VALORANTを運営している、RiotGames様のサポートのもと、ぶいす
 oreapo貌似今晚要继续双人成行<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fastary  
+##### 7059#       发表于 2021-9-21 18:00
+
+
+看到画漫画那个高山忍给实况主圈子的TRPG(有ymen参加)画了FA感觉好奇妙，也不知道是结交虹人顺便了解到了前世、还是单纯前世就有交流所以顺势也成了虹人<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+说起来黛灰之前推荐漫画的作者之一也其实ymen时代就是一起玩的朋友了……
+
+之前总是下意识觉得漫画家这类人跟实况主圈子没啥交集所以默认都是先看沾点二次元的V后接触认识（或者是前世粉太少所以当v才认知到），现在想来或许很多只是再续前缘(?)而已？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
