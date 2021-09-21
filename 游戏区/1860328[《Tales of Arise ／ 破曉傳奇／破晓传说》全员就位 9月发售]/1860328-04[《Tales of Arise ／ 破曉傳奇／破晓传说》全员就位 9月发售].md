@@ -13399,3 +13399,17 @@ toa战斗系统现在来说就是很朴素。。。没什么大花头。。。 �
 魔法师有3个隐藏上系魔法 陨石风暴 巨大漩涡 瞬星射击  风 光 水3个熟练度刷到4000多基本都能解........
 
 
+
+
+*****
+
+####  reficul  
+##### 5511#       发表于 2021-9-21 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828203&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-21 03:05</a>
+
+等级不用刷的，正常打完隐迷就差不多100了</blockquote>
+确实，打完70个支线刚刚好100级，经验控制得很好。。
+
+

@@ -14437,3 +14437,14 @@ oreapo貌似今晚要继续双人成行<img src="https://static.saraba1st.com/im
 之前总是下意识觉得漫画家这类人跟实况主圈子没啥交集所以默认都是先看沾点二次元的V后接触认识（或者是前世粉太少所以当v才认知到），现在想来或许很多只是再续前缘(?)而已？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ヒトニナル  
+##### 7060#       发表于 2021-9-21 18:23
+
+
+高山忍只是喜欢TRPG，而且特别喜欢看むつー的团，傀逅和沼男都画过好几张，只不过这次正好碰到有やみえん的团而已
+
+
