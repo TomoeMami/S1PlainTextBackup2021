@@ -14363,3 +14363,16 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 你们不要再鼓掌了好不好，真的已经鼓掌ptsd 了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  shierhu125  
+##### 5668#       发表于 2021-9-21 08:08
+
+
+哦没得多真的是看乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还特么是两次
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -11118,3 +11118,19 @@ iphone13promax这么重,有什么轻薄的玻璃膜推荐下,手感要好</block
 信用卡活动都是报了秒批啊…
 
 
+
+
+*****
+
+####  Damenly  
+##### 995#       发表于 2021-9-21 08:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828102&amp;ptid=2015640" target="_blank">Archlich³ 发表于 2021-9-21 02:08</a>
+https://detail.1688.com/offer/538935779195.html
+
+
+真的好，一次多买点，贴坏了也不心疼</blockquote>
+Thanks 有壳子推荐吗
+
+
