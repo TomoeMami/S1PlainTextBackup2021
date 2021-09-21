@@ -15734,3 +15734,26 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 做动画电影不亦乐乎啊
 
 
+
+
+*****
+
+####  sjbssd  
+##### 5785#       发表于 2021-9-22 01:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839291&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-22 01:17</a>
+
+想起来个事，铁血之后冈妈还接过什么剧本么</blockquote>
+啊，那个春天回来了，反正当初大家一起闹的当事人，现在人均歌照唱舞照跳
+
+
+*****
+
+####  胧楼  
+##### 5786#       发表于 2021-9-22 01:43
+
+
+要不是因为liyuu 就这几集早弃番了，不过这评分至少能堵掉一些嗯吹+扣帽子人的嘴吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
