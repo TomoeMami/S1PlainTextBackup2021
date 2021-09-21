@@ -11247,3 +11247,25 @@ https://detail.1688.com/offer/538935779195.html
 先领十元券，然后在淘宝签到页面领红包，再在签到页面搜绿联的膜
 
 
+
+
+*****
+
+####  Totokei  
+##### 1005#       发表于 2021-9-21 16:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">国内有发货的消息了么，预计24号收货的现在还没通知
+
+
+*****
+
+####  猫不萌  
+##### 1006#       发表于 2021-9-21 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52833201&amp;ptid=2015640" target="_blank">Totokei 发表于 2021-9-21 16:54</a>
+国内有发货的消息了么，预计24号收货的现在还没通知</blockquote>
+别急，苹果首发都是货提前一周到快递点等时间到了派件的
+
+

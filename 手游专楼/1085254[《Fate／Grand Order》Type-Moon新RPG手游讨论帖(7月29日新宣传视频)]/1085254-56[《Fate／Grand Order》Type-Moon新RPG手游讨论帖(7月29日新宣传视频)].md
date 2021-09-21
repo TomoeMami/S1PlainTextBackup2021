@@ -15821,3 +15821,16 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 83825#       发表于 2021-9-21 16:45
+
+
+这次活动加成礼装不是满破加50%掉率嘛，自己一张好友一张剩下的礼装就随便放了啊
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
