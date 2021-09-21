@@ -11543,3 +11543,32 @@ mkbhd说13pro一天5小时亮屏使用剩余电量54%<img src="https://static.sa
 —— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  meltykiss  
+##### 1029#       发表于 2021-9-22 01:45
+
+
+钟文泽这大半集内容都在那尬吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stannislas  
+##### 1030#       发表于 2021-9-22 02:13
+
+
+嗯 看极客湾a15真的是杀疯了啊…
+
+
+*****
+
+####  stannislas  
+##### 1031#       发表于 2021-9-22 02:14
+
+
+话说，有人能顺道推荐个magsafe的车载充电器吗？
+
+

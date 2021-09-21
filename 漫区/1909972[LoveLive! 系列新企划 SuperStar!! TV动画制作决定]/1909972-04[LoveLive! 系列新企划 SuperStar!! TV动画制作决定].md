@@ -15757,3 +15757,17 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 要不是因为liyuu 就这几集早弃番了，不过这评分至少能堵掉一些嗯吹+扣帽子人的嘴吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  型月重工  
+##### 5787#       发表于 2021-9-22 03:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839257&amp;ptid=1909972" target="_blank">crcln 发表于 2021-9-22 01:13</a>
+
+我寻思你这么理智，公平，谁先比的不去找，就来挑我的问题，贱不贱呐？贱不贱呐？贱不贱呐？贱不贱呐？贱 ...</blockquote>
+刷屏这是气急败坏破防了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

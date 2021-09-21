@@ -16005,3 +16005,14 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">90+本刷得太精污了.......已经回去打狗粮本了.....
 
 
+
+
+*****
+
+####  ddr  
+##### 83837#       发表于 2021-9-22 02:16
+
+
+两单下去无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+

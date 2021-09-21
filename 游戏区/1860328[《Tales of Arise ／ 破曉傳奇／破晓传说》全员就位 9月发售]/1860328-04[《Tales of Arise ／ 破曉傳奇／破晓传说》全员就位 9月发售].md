@@ -13977,3 +13977,72 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 黑皮哥因为太黑了导致我每次战斗带他都以为他死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  法拉  
+##### 5549#       发表于 2021-9-22 01:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837658&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-21 22:40</a>
+
+话说这游戏有说女主角开头是怎么到达纳的 又是怎么被抓的吗  是不是我哪里漏看了   ...</blockquote>
+实际上已经说的很明白了吧，雷涅吉斯的星舰只有领战王争开始和结束时有往返，男主他们用额外的星舰回去的时候港口是空的，女主只可能是上次派人来领战王争的时候一起来的，她也说过她地位不低，别祖知道她名字
+
+马后炮来看的话，估计就是仗着自己不死浑水摸鱼进领战王争，趁机偷了主灵石，又笨手笨脚被发现了，别祖当了两次将领还没赢过一次领战王争，气急败坏拿她没办法，于是押她去送给某个人想办法，可能是沃路朗或者是赫盖姆吉尔吧
+
+
+*****
+
+####  free切  
+##### 5550#       发表于 2021-9-22 01:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">这作刷属性是不是只能慢慢等1小时cd的竞技场了。
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  饼脸遥  
+##### 5551#       发表于 2021-9-22 02:06
+
+
+确实除了画面没啥好说的
+
+三对到最后也没一对甚至哪一个能喜欢得上 
+
+人设喜欢的剧情里垮了 人社无感的剧情也没啥特别
+
+角色不喜欢所以主线剧情也不入眼 总有一种“你们要死要活与我何干”的感觉
+
+另外很奇怪我剧情难度+经验SP双倍DLC 后期打起来的感觉和你们描述的玩困难的看起来差不多
+
+我就是想战斗方面一点脑子都不动结果还是被迫动了不少脑子
+
+加上上天以后灾难一般的流程设计和迷宫怪物设置 一度逼得我像当年玩XB2最终章一样有怪就绕有剧情就跳
+
+但是XB2我补完了结局动画之后吸引我回过头来二周目打了400小时 
+
+TOAR看来是没这个缘分 除了画面其他差得太远
+
+
+*****
+
+####  LT_Harry  
+##### 5552#         楼主| 发表于 2021-9-22 02:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839543&amp;ptid=1860328" target="_blank">饼脸遥 发表于 2021-9-22 02:06</a>
+确实除了画面没啥好说的
+
+三对到最后也没一对甚至哪一个能喜欢得上 
+
+人设喜欢的剧情里垮了 人社无感的剧情也 ...</blockquote>
+我不想打击你的自信心，但是按照游戏引导趋向的打法，最终任何难度都和简单差不多——脑死亡了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">故事难度更是一绝，我试了一下自动+故事难度，这都不用人操作了，根本不可能会失去战斗力。
+
+
