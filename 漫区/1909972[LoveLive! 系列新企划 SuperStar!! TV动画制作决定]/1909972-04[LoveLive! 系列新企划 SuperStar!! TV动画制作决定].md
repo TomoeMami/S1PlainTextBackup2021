@@ -14765,3 +14765,72 @@ b站为啥不更了～
 4）堇是 LL 黑，看不起学园偶像。而且她歌不如花音，舞不如小千，训练时还想偷懒半小时，公然把 LL 视为跳板，“粉黑相遇只能一战”，“异端比异教更可恨”。再加上堇不是创始队员，堇是看到第三话的表演才来捞好处，还毫无贡献时想当队长。堇半点正面态度也没有，故视为团队毒瘤。
 
 
+
+
+*****
+
+####  kbtit  
+##### 5701#       发表于 2021-9-21 16:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么要过于妖魔化唐可可对LL的痴迷呢，还有平安名堇真的是LL黑吗，我咋看不出来，这两位真的没你们想的这么对立
+
+
+*****
+
+####  Gooddays  
+##### 5702#       发表于 2021-9-21 16:41
+
+
+在现实很多情况下堇这种人早便被踢出团队，哪来搞好关係？堇还能留在团队是基于以下原因：
+
+1）花音只想唱歌，对 LL 没多大感受，自己也是借 LL 去达成唱歌的理想，所以对堇的心态没有多大反感。
+
+2）小千想跟花音在一起，其他问题为次要。
+
+3）会长刚刚才进团，自己不久前才反对 LL，自然不好说话。
+
+4）可可即使视堇为毒瘤，但最重要的花音不在乎时，她自己这个除了热情外便什么也没有的人（唱功不足，舞技不成，体力最差）也不好太强硬破坏刚建立的团队，所以只能忍耐。但怨气总要放出来，结果便全集中在语言上了。
+
+
+*****
+
+####  秋月艾莉  
+##### 5703#       发表于 2021-9-21 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52832705&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-21 16:05</a>
+
+可可其实还行，鲤鱼国内黑子还是多。这几天在她视频和动态下面看到一堆贵物的评论。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">还是下面自以为在幽默玩梗的Sβ比较讨人厌
+
+
+*****
+
+####  秋月艾莉  
+##### 5704#       发表于 2021-9-21 17:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 5705#       发表于 2021-9-21 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 5706#       发表于 2021-9-21 17:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可可在香千面前读香千多尊多尊的邮件，什么白学
+
+可香党末日.jpg
+
+
