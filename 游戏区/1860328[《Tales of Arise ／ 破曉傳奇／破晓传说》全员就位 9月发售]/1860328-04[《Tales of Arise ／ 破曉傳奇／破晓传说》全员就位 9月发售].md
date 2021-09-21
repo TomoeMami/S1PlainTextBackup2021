@@ -13867,3 +13867,46 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 查看全部评分
 
 
+
+
+*****
+
+####  kangkangsama  
+##### 5543#       发表于 2021-9-21 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834636&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-21 19:15</a>
+
+追加的反击词条真的那么猛吗？
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+反击的伤害加成是最高的（其他像是属性伤AG0伤倒地伤最高也就15%）有30%
+
+战斗狂1个敌人才5%
+
+反击的要求是敌人在攻击的时候你打他，但是他攻击的时候你用BA击倒了的倒地时间也算在内的样子
+
+大体型敌人霸体在这里反而成了他们的劣势，面对大体型/boss的反击覆盖率极高（他们基本停不下来）
+
+
+关键不像属性伤害限定属性，这边奥尔芬同时加成轰霸和霸道，希侬可以三疾风碧色和水线一起用等等
+
+而且也因为这个你只需要做一个，操作谁给谁用就行了（战斗时开菜单随时切换）
+
+
+*****
+
+####  kangkangsama  
+##### 5544#       发表于 2021-9-21 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836309&amp;ptid=1860328" target="_blank">vmon 发表于 2021-9-21 21:24</a>
+
+这游戏的角色是真的绝了，女主前期谜语人，中期谜语人，后期还是谜语人，理由还不一样，其他角色到 ...</blockquote>
+其实希侬和你头像的谜语人程度不相上下，理由还都TM是想自杀
+
+
+但是阿光对于嘴臭谜语人不受人待见这点有自知之明所以捏了个讨人喜欢的出来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

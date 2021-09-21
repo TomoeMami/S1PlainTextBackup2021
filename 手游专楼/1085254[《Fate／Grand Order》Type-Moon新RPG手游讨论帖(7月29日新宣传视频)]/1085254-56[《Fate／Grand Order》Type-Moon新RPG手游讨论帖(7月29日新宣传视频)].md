@@ -15927,3 +15927,42 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">带倍卡的话直接用c狗 狐奥 无脑3连什么都不用算
 
 
+
+
+*****
+
+####  芭德薇  
+##### 83832#       发表于 2021-9-21 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838172&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-21 23:19</a>
+
+带倍卡的话直接用c狗 狐奥 无脑3连什么都不用算</blockquote>
+红卡队按键相对复杂顺序不能错这个不大友好，用这队有时候第二回合不小心点到c狗的一技能就没了，不过这次倍卡有50np好像没那么容易悲剧？用上面那个队还有一个原因是可以让我同时挖两个拐的梦火矿（虽然这两天刷了4个十连的石头最后还是没事发生）
+
+
+*****
+
+####  alucardcz  
+##### 83833#       发表于 2021-9-21 23:41
+
+
+ 本帖最后由 alucardcz 于 2021-9-21 23:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838398&amp;ptid=1085254" target="_blank">芭德薇 发表于 2021-9-21 23:36</a>
+
+红卡队按键相对复杂顺序不能错这个不大友好，用这队有时候第二回合不小心点到c狗的一技能就没了，不过这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你操作不对吧  记住c狗技能第1个点就对了   
+
+
+第1回合c狗13  奥1 狐13 减cd衣服3
+
+第2回合c狗13
+
+第3回合奥23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">习惯后不太容易错  有没有初始np都这么按 养成习惯（
+
+
+这次带满破倍卡伤害大概是10万 16万 26万白字
+
+

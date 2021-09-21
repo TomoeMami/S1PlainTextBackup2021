@@ -15522,3 +15522,36 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 这集已经是水的两个13集以外最低的一集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 5768#       发表于 2021-9-21 23:24
+
+
+后面要比水的两个13集低还是比较难的，除非花田真的抽风了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说bangumi的评分倒是没降多少，这段时间就从7.6降到7.5，可能是很多人在等完结在评分？
+
+
+*****
+
+####  player3960  
+##### 5769#       发表于 2021-9-21 23:25
+
+
+散了吧，这片还有什么值得期待的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  没有爱就看不见  
+##### 5770#       发表于 2021-9-21 23:40
+
+
+水13没那么好复刻——虽然想这么说但我现在也有点不自信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

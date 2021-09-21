@@ -11440,3 +11440,16 @@ https://detail.1688.com/offer/538935779195.html
 小白测评曾经测出XSMax续航不如X，所以他的评测我一直比较不太当回事
 
 
+
+
+*****
+
+####  攻心为上木之本  
+##### 1021#       发表于 2021-9-21 23:48
+
+
+快充有人测吗，还是说就和去年一样？
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
