@@ -14511,3 +14511,34 @@ b站为啥不更了～
 这集鼓掌那段确实整乐了，但是还没楼里星学家的分析有意思<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，前三集确实拉高了预期，不过看到后面民警和千入团的节奏就知道肯定要拉了，现在期望只是看看美少女聊天了
 
 
+
+
+*****
+
+####  Gooddays  
+##### 5682#       发表于 2021-9-21 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827514&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-21 00:05</a>
+我也觉得离谱，就算LL对可可来说大过一切，她和恋真正认识的时间也才几天，这集怎么就能光速改称呼让c位了 ...</blockquote>
+几个月后还未解决 “LL只能当我的踏脚石” 的堇。
+
+相识不久却只是因妈妈问题反对 LL，现在已解决的会长。
+
+双方程况差很远吧。会长加入可以视为喜爱 LL，而现在的堇有多少真心喜欢 LL（而不是踏脚石）便是问题。
+
+
+*****
+
+####  Gooddays  
+##### 5683#       发表于 2021-9-21 12:00
+
+
+ 本帖最后由 Gooddays 于 2021-9-21 12:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827356&amp;ptid=1909972" target="_blank">NODY 发表于 2021-9-20 23:43</a>
+民警剧情现在几个解释也是矛盾的，有的说她没悔改所以可可一直臭脸挤兑，另一边说民警愿意穿具足虫套装宣传 ...</blockquote>
+成长不代表心态会改善，堇成长后也可以继续视LL为踏脚石的存在啊，堇好像还没有很清楚说自己喜爱 LL 或至少对以往轻视 LL 的言行道歉吧，第六话还以保养为名想推晚训练时间，然后被可可骂了。
+
+什至谁能保证堇没有把其他四人视为重新向演艺界进发的工具人？后期成名后一脚把团队踢开，退出 LL 行其演艺之路便不是没可能。
+
+

@@ -13075,3 +13075,41 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 打之前我以为是斩杀阶段才来这一出，没想到起手就来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  godless2020  
+##### 5490#       发表于 2021-9-21 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828965&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-21 09:33</a>
+
+请问有没有饰品和词条推荐给各个角色？（洛除外
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Nex ...</blockquote>
+男主：杂兵战命中饰品+4贯通 BOSS战战斗饰品+4炎属性15% 主输出1
+
+女主：神秘饰品4咏唱5%减少 全程奶
+
+法师：体力饰品2AG20%减少2光属性15% 主输出2
+
+黑皮：目前没看到任何有效输出的手段
+
+盾女：还没研究
+
+
+
+
+*****
+
+####  BigLittle1999  
+##### 5491#       发表于 2021-9-21 11:56
+
+
+给黑皮带墨镜进露营，男主还会吐槽一嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，蛮有意思的，不知道还有没有别的类似彩蛋
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
