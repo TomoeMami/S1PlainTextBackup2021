@@ -13511,3 +13511,78 @@ toa战斗系统现在来说就是很朴素。。。没什么大花头。。。 �
 确实
 
 
+
+
+*****
+
+####  妄想中毒  
+##### 5519#       发表于 2021-9-21 19:04
+
+
+地图上的野怪摆放位置真是恶心人，必经路径上必定会放几个怪在那根本躲不了
+
+
+*****
+
+####  windtrack  
+##### 5520#       发表于 2021-9-21 19:07
+
+
+ 本帖最后由 windtrack 于 2021-9-21 19:11 编辑 
+
+通了...感觉挺无聊的，除了画面好点找不到值得一说的东西了
+
+
+战斗设计的其实还可以，但就不知道为啥敌人设计的这么智障
+
+对应每个人的BA1、2种小怪和大怪，剩下的就都是无限霸体纯粹嗑药对轰的傻逼BOSS...
+
+到最后不管是啥打起来都是躲技能复读陨石..
+
+
+角色上女主前80%都在不好好说话，而且基本就依托这个推进剧情，智障的要死
+
+强行把法师妹子和狗凑一起也是没看懂...
+
+
+最后一个音乐感觉就和没有差不多，全程下来根本感觉不到有BGM...
+
+
+TOGF之后再也没碰传说果然是选择正确，以后的传说还是继续不碰了吧...
+
+
+
+
+*****
+
+####  名字已被吃  
+##### 5521#       发表于 2021-9-21 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830073&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-21 11:51</a>
+男主：杂兵战命中饰品+4贯通 BOSS战战斗饰品+4炎属性15% 主输出1
+
+女主：神秘饰品4咏唱5%减少 全程奶
+
+法师 ...</blockquote>
+战斗饰品是哪个？饰品没有叫这个名字的，另外男主打杂兵，追加全选+贯通120的（你应该是说这个追加词条吧？），会不会太浪费？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  名字已被吃  
+##### 5522#       发表于 2021-9-21 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52833377&amp;ptid=1860328" target="_blank">kangkangsama 发表于 2021-9-21 17:09</a>
+手操追加词条无脑四反击
+
+
+底子的话体力（减ag）命中（贯通80）比较万能</blockquote>
+追加的反击词条真的那么猛吗？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
