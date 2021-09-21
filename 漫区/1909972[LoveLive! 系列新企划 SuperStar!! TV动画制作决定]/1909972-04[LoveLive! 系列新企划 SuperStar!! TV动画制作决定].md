@@ -14387,3 +14387,15 @@ AS也就给虹咲动画提供人设而已...起码第一季的故事跟AS故事�
 现在就剩这么点人都能像当年缪水一样打起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 5670#       发表于 2021-9-21 09:32
+
+
+<img src="https://p.sda1.dev/2/a82720d39b8f33c55ceb574dfa851cd1/IMG_CMP_75099511.jpeg" referrerpolicy="no-referrer">
+塔塔开，塔塔开，一次摸塔塔开<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+

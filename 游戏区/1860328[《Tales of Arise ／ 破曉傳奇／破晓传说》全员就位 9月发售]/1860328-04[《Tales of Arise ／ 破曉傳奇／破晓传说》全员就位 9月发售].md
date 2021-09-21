@@ -13023,3 +13023,16 @@ Hard打下来其实整体难度还好，难的地方基本就是光将，没钱�
 破晓传说的某些文物是不是在玩万代其它游戏的梗？
 
 
+
+
+*****
+
+####  名字已被吃  
+##### 5486#       发表于 2021-9-21 09:33
+
+
+请问有没有饰品和词条推荐给各个角色？（洛除外<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
