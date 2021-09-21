@@ -14878,3 +14878,19 @@ b站为啥不更了～
 她说母语的时候也没好到哪去～
 
 
+
+
+*****
+
+####  a92063256  
+##### 5710#       发表于 2021-9-21 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52833824&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-21 17:52</a>
+
+鲤鱼真是可爱到爆啊  真像某些日本人说的如果日语变流利的了就少了个萌点啊</blockquote>
+[https://www.bilibili.com/video/BV1G3411r7ag](https://www.bilibili.com/video/BV1G3411r7ag)
+
+那段在这个视频里的53分钟左右，不过我虽然看过这次生放我也没懂为啥不能提一单，可能是读错页了？
+
+

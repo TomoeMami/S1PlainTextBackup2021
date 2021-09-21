@@ -11269,3 +11269,14 @@ https://detail.1688.com/offer/538935779195.html
 别急，苹果首发都是货提前一周到快递点等时间到了派件的
 
 
+
+
+*****
+
+####  lelouchwang  
+##### 1007#       发表于 2021-9-21 18:44
+
+
+京东送applecare+的抢不到的话，我就等双11了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
