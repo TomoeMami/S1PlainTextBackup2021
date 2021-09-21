@@ -6341,3 +6341,18 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 终于登入进去了，怎么关闭网络入侵？游戏里面的设置没看到，steam的话不知道在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  屑猫猫  
+##### 542#       发表于 2021-9-21 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52835815&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-21 20:51</a>
+终于登入进去了，怎么关闭网络入侵？游戏里面的设置没看到，steam的话不知道在哪里 ...</blockquote>
+不是选关男主头上有一排小字么，点击切换就是了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -15883,3 +15883,20 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是狂娜+双狐
 
 
+
+
+*****
+
+####  芭德薇  
+##### 83829#       发表于 2021-9-21 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830808&amp;ptid=1085254" target="_blank">空气蛹 发表于 2021-9-21 13:04</a>
+
+对了，这次的90+有啥不换人的配置么
+
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+有个不用重复卡的队，倍卡魔总带伤害礼装+cba+cab。第一面魔总1技能cba3技能，第二面魔总2技能然后看情况打暴击，有红卡或者随意两张卡随便打，单蓝卡/绿卡加对应魔放，其他人也没有首红的话就再补一个降防。三面如果np没满就补np，脸好只要2-3个技能。唯一不能3t的情况是第二面洗牌后两次都没魔总的卡变4t，我用这个配置边看片边刷差不多刷掉100金苹果了。
+
+

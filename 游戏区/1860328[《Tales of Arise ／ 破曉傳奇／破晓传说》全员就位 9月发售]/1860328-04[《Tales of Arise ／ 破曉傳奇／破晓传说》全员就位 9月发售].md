@@ -13716,3 +13716,40 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 希侬的时尚评鉴这个支线到底有何意义...时间跨度弄得这么长，我还以为每打完一个领将就可以触发一次剧情，结果最后一段对话就草草结束了
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5533#       发表于 2021-9-21 21:23
+
+
+话说这次战斗后的小剧场也没完全取消。。。。战斗结束左下角的对话有的就是战后剧情
+
+
+说真的不太懂为什么取消战后小剧场  原本我以为没读盘直接大地图进战斗 可你还是要黑一下这就很尴尬了
+
+
+*****
+
+####  vmon  
+##### 5534#       发表于 2021-9-21 21:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏的角色是真的绝了，女主前期谜语人，中期谜语人，后期还是谜语人，理由还不一样，其他角色到后期还时不时的互相伤害，这团队太难带了，齐尔法还是死早了。
+
+
+*****
+
+####  alucardcz  
+##### 5535#       发表于 2021-9-21 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52836309&amp;ptid=1860328" target="_blank">vmon 发表于 2021-9-21 21:24</a>
+
+这游戏的角色是真的绝了，女主前期谜语人，中期谜语人，后期还是谜语人，理由还不一样，其他角色到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后期哪还有互相伤害 是不是部分小剧场和主线割裂了？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主后期也不谜语人啊 战斗语音突出一个已经离不开男主了 男主一挂就是不要丢下我不要丢下我
+
+
