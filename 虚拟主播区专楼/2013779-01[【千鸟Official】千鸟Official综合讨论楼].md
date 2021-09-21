@@ -3959,3 +3959,52 @@ P1020004.JPG
 什么上古谐音诗
 
 
+
+
+*****
+
+####  维斯瓦军团  
+##### 349#       发表于 2021-9-21 22:41
+
+
+我的评价是：兰州烧饼
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  伞沢直美  
+##### 350#       发表于 2021-9-21 22:45
+
+
+露珠湿沙壁，暮幽萧寂寂同时代了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 351#       发表于 2021-9-21 22:47
+
+
+不会真30代吧，这下牛牛嗯了。
+
+
+*****
+
+####  rgauss  
+##### 352#       发表于 2021-9-21 22:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">换个麦吧 上次艾瑞思也唱了这首来着
+
+
+*****
+
+####  伞沢直美  
+##### 353#       发表于 2021-9-21 22:53
+
+
+《乐观》笑死，什么负能量阿姨
+
+

@@ -13829,3 +13829,41 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 隐藏迷宫最强BOSS我也是乐了，招牌看家技能在3D跑位中就是个废物...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5541#       发表于 2021-9-21 22:56
+
+
+挖矿挖到的种类和地图有关系么，纯看脸？
+
+
+*****
+
+####  alucardcz  
+##### 5542#       发表于 2021-9-21 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837857&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-21 22:56</a>
+
+挖矿挖到的种类和地图有关系么，纯看脸？</blockquote>
+[https://tieba.baidu.com/p/7542653017](https://tieba.baidu.com/p/7542653017)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hypnossz86| + 1|好评加鹅|
+
+
+查看全部评分
+
+

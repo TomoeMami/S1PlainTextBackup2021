@@ -15370,3 +15370,41 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 5754#       发表于 2021-9-21 22:49
+
+
+以后再教教上海话嘛好哩，菜宝教鱼讲粤语，不错不错
+
+
+*****
+
+####  shine888kire  
+##### 5755#       发表于 2021-9-21 22:50
+
+
+但现在感觉对LL的企划来说，只要声优活动拉满，整活生放不停，就能稳赚不赔，动画做的怎么样无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5756#       发表于 2021-9-21 22:52
+
+
+然而这周没生放……
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5757#       发表于 2021-9-21 22:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">现在疫情下，大家都被没啥卵用的挡板给隔开了，还不能到处乱动，能整的活也少了
+
+
