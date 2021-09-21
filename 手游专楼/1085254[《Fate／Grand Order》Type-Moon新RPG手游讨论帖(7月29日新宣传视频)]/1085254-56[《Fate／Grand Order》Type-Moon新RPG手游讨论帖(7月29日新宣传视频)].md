@@ -15770,3 +15770,39 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83821#       发表于 2021-9-21 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830791&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-9-21 13:02</a>
+
+可以，我就是换的那个现在第六宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看看你
+
+
+*****
+
+####  千叶铁矢  
+##### 83822#       发表于 2021-9-21 13:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830808&amp;ptid=1085254" target="_blank">空气蛹 发表于 2021-9-21 13:04</a>
+对了，这次的90+有啥不换人的配置么
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+加成礼装有50np，随便组吧
+
+
+*****
+
+####  千叶铁矢  
+##### 83823#       发表于 2021-9-21 13:27
+
+
+翻页
+
+
