@@ -13466,3 +13466,48 @@ toa战斗系统现在来说就是很朴素。。。没什么大花头。。。 �
 箱子文物对话等等其他收集都全了
 
 
+
+
+*****
+
+####  法拉  
+##### 5516#       发表于 2021-9-21 18:44
+
+
+ 本帖最后由 法拉 于 2021-9-21 18:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834153&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-21 18:28</a>
+
+是500个道具，不是180个箱子……
+
+箱子文物对话等等其他收集都全了</blockquote>
+食谱钓具鱼饵我记得都算道具，所以想了想有什么容易错过的而已，现在找到的攻略都不全，我也找不出我差了哪些，只能等官方攻略本了
+
+
+*****
+
+####  言嘉  
+##### 5517#       发表于 2021-9-21 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834336&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-21 18:44</a>
+
+食谱钓具鱼饵我记得都算道具，所以想了想有什么容易错过的而已，现在找到的攻略都不全，我也找不出我差了 ...</blockquote>
+食谱钓具鱼饵这些你其他收集都完工了自然就全完工了
+
+差的只可能是等级不同的矿石
+
+
+*****
+
+####  法拉  
+##### 5518#       发表于 2021-9-21 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834377&amp;ptid=1860328" target="_blank">言嘉 发表于 2021-9-21 18:48</a>
+
+食谱钓具鱼饵这些你其他收集都完工了自然就全完工了
+
+差的只可能是等级不同的矿石 ...</blockquote>
+确实
+
+

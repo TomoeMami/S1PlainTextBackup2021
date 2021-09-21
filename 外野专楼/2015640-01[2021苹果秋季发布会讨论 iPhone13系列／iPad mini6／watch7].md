@@ -11280,3 +11280,16 @@ https://detail.1688.com/offer/538935779195.html
 京东送applecare+的抢不到的话，我就等双11了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  bubuyu  
+##### 1008#       发表于 2021-9-21 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52833201&amp;ptid=2015640" target="_blank">Totokei 发表于 2021-9-21 16:54</a>
+国内有发货的消息了么，预计24号收货的现在还没通知</blockquote>
+外国发货早是因为也是从中国发货运送时间长，国内东部省份城市一般也就是在上市前一天发货。
+
+
