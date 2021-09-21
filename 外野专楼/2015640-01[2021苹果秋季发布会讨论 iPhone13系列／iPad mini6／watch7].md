@@ -11496,3 +11496,26 @@ Safari 更新的感觉还行，标签页分组的功能很方便，能自定义�
 mbhkd和verge也提到了续航 应该今年果子给kol的指导里有续航增加这个特点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然真实提升多少只能等大规模到手反馈了
 
 
+
+
+*****
+
+####  YESIARE  
+##### 1025#       发表于 2021-9-22 00:28
+
+
+信号没人提 pro的续航也是个谜 就搁那嗯吹摄像头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blunder  
+##### 1026#       发表于 2021-9-22 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838248&amp;ptid=2015640" target="_blank">报应啊报应 发表于 2021-9-21 23:24</a>
+
+到底是不是低频pwm调光啊……</blockquote>
+同问。。。有测评提吗
+
+

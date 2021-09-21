@@ -13932,3 +13932,37 @@ op2之后离通关还有多久，我怎么已经40h了</blockquote>
 用希侬的话，一个是场上只有个单体奶妈后期几个隐藏BOSS打起来还是累，特别是刚进隐藏迷宫还有等级差，另外一个伤害和满蓄霸道确实没法比，奥尔芬攻击上千的时候满蓄霸道2刀就能打掉BOSS一节血了
 
 
+
+
+*****
+
+####  kangkangsama  
+##### 5546#       发表于 2021-9-22 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838836&amp;ptid=1860328" target="_blank">windtrack 发表于 2021-9-22 00:21</a>
+
+还是奥尔芬用好点，隐藏迷宫几个BOSS，奥尔芬开始蓄霸道的时候，希侬就要预读全场治疗了，要不然打完下一 ...</blockquote>
+上希侬琳薇尔的话都不怎么管NPC了（琳薇尔危险一点）
+
+
+满蓄霸道自然是最强套路之一，只是时不时还是会翻车
+
+
+兄妹不说领将连战这种基本是摸不到希侬的，还能给奥尔芬上满加速BG，上魔武器那输出差距也小了
+
+关键还是boss们真的脆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LT_Harry  
+##### 5547#         楼主| 发表于 2021-9-22 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52837658&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-21 22:40</a>
+
+话说这游戏有说女主角开头是怎么到达纳的 又是怎么被抓的吗  是不是我哪里漏看了   ...</blockquote>
+不一定是漏看，因为这次太“快”了，很多细节没说清楚，也没有留出时间去说。
+
+
