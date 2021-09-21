@@ -11134,3 +11134,20 @@ https://detail.1688.com/offer/538935779195.html
 Thanks 有壳子推荐吗
 
 
+
+
+*****
+
+####  SICP  
+##### 996#       发表于 2021-9-21 09:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52828102&amp;ptid=2015640" target="_blank">Archlich³ 发表于 2021-9-21 02:08</a>
+
+https://detail.1688.com/offer/538935779195.html
+
+
+真的好，一次多买点，贴坏了也不心疼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">卧槽，牛逼
+
+
