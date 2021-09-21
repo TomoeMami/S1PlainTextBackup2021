@@ -14586,3 +14586,64 @@ b站为啥不更了～
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扣霸凌帽子进而喷之的多半是发动效果没取准对象的民警单推或者可堇魔怔cp人
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 5688#       发表于 2021-9-21 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830096&amp;ptid=1909972" target="_blank">Gooddays 发表于 2021-9-21 11:53</a>
+
+几个月后还未解决 “LL只能当我的踏脚石” 的堇。
+
+
+相识不久却只是因妈妈问题反对 LL，现在已解决的会长 ...</blockquote>
+照你这么说的话可可的行为逻辑更像是个没有感情的机器人，目标只有LL<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看得出来你已经尽力在为花田圆剧情了，我建议还是一起骂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 5689#       发表于 2021-9-21 13:18
+
+
+目前来看可堇这CP对可可的人气是不是完全是负作用<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 5690#       发表于 2021-9-21 13:20
+
+
+现在看来这剧情最有问题的是一个对学院偶像最上心反而成了被抨击的对象
+
+
+*****
+
+####  寒风夜  
+##### 5691#       发表于 2021-9-21 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830955&amp;ptid=1909972" target="_blank">凡人 发表于 2021-9-21 13:18</a>
+
+目前来看可堇这CP对可可的人气是不是完全是负作用</blockquote>
+还是根没写好
+
+
+*****
+
+####  寒风夜  
+##### 5692#       发表于 2021-9-21 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830955&amp;ptid=1909972" target="_blank">凡人 发表于 2021-9-21 13:18</a>
+
+目前来看可堇这CP对可可的人气是不是完全是负作用</blockquote>
+还是根没写好
+
+
