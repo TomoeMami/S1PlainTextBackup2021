@@ -15745,3 +15745,28 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哦对了，如果是你用交换券换过的人的话，换的那个不算的，要抽出来的第6宝才给盘子
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 83819#       发表于 2021-9-21 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830565&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-21 12:37</a>
+
+并不是，有时候会漏发，我碰到过，请给运营发邮件问他们要哦对了，如果是你用交换券换过的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">可以，我就是换的那个现在第六宝
+
+
+*****
+
+####  空气蛹  
+##### 83820#       发表于 2021-9-21 13:04
+
+
+对了，这次的90+有啥不换人的配置么
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

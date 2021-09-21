@@ -14573,3 +14573,16 @@ b站为啥不更了～
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢突然觉得唐可可有点可怜了，因为编剧的问题，不仅掉人气还要被扣霸凌的帽子，还要被极端毒唯人身攻击，希望中之人本人不要受影响吧 
 
 
+
+
+*****
+
+####  笋狐  
+##### 5687#       发表于 2021-9-21 12:56
+
+
+ 本帖最后由 笋狐 于 2021-9-21 12:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扣霸凌帽子进而喷之的多半是发动效果没取准对象的民警单推或者可堇魔怔cp人
+
+
