@@ -14968,3 +14968,38 @@ b站为啥不更了～
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
+
+
+*****
+
+####  qratosone  
+##### 5718#       发表于 2021-9-21 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52834838&amp;ptid=1909972" target="_blank">wolf1997 发表于 2021-9-21 19:36</a>
+估计下一步就要跟兽娘2相比了
+
+—— 来自 OPPO PCLM10, Android 11上的 S1Next-鹅版 v1.3.3.2-play ...</blockquote>
+下一步应该是花田大先辈变成冈妈第二吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 5719#       发表于 2021-9-21 20:12
+
+
+这掉的也太快了吧，轻羽飞扬b站评分只有4.0啊
+
+
+*****
+
+####  凡人  
+##### 5720#       发表于 2021-9-21 20:20
+
+
+水的联动MV太强了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

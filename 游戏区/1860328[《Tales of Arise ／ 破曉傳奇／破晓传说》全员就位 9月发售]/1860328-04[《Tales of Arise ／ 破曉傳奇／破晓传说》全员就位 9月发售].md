@@ -13617,3 +13617,18 @@ TOGF之后再也没碰传说果然是选择正确，以后的传说还是继续�
 我主角大概900多攻击，轰霸斩正常3000多，只要怪抬手就能打8000多，暴击可以打18000，关键倒地也算，那就开局叫个人，然后上去轰霸斩接上蓄力火剑，那些30多w的boss就可以半血读条了，然后他继续倒地你再来一套。我感觉早知道整个套路打起来都不一样
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5525#       发表于 2021-9-21 20:17
+
+
+ 本帖最后由 alucardcz 于 2021-9-21 20:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后期拿魔武器 属性伤害+4个15%火  基本打什么都是上去轰霸+霸道进qte 不过爽归爽 混乱的时候1血会浪死  
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">法师和女主打怪也去血飞快 还安全 就是按的手酸
+
+
