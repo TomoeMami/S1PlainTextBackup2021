@@ -15771,3 +15771,18 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 刷屏这是气急败坏破防了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Norkey1  
+##### 5788#       发表于 2021-9-22 07:15
+
+
+ 本帖最后由 Norkey1 于 2021-9-22 07:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839214&amp;ptid=1909972" target="_blank">crcln 发表于 2021-9-22 01:06</a>
+
+有脑子吗？明明讨论动画内容，谁先比动画效应，商业成绩的？既然喜欢比我就比，意思他先开口比了，踩了一 ...</blockquote>
+这里多少人开除虹ll籍视虹咲为女同糟粕的，你和他们较什么劲，求同存异吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
