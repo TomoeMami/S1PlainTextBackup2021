@@ -15806,3 +15806,18 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 翻页
 
 
+
+
+*****
+
+####  空气蛹  
+##### 83824#       发表于 2021-9-21 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52831082&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-9-21 13:27</a>
+加成礼装有50np，随便组吧</blockquote>
+50np的不是倍卡么，那个也能加掉落么
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
