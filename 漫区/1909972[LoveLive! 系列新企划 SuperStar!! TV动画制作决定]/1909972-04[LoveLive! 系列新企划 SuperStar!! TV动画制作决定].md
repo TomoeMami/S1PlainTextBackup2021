@@ -14662,3 +14662,18 @@ b站为啥不更了～
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  灼眼の安娜  
+##### 5694#       发表于 2021-9-21 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830502&amp;ptid=1909972" target="_blank">kbtit 发表于 2021-09-21 12:31:29</a>
+怎么说呢突然觉得唐可可有点可怜了，因为编剧的问题，不仅掉人气还要被扣霸凌的帽子，还要被极端毒唯人身攻 ...</blockquote>鲤鱼应该不会受影响，至少国内应该不会。
+你看现在多少中国拉拉人现在都是不喜欢钟岚珠，但是想当菜宝的狗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+

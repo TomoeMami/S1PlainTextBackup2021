@@ -11217,3 +11217,19 @@ https://detail.1688.com/offer/538935779195.html
 今晚九点还是八点出视频了吧，等一个钟文泽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  战狼PTSD  
+##### 1003#       发表于 2021-9-21 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52830314&amp;ptid=2015640" target="_blank">Uranium233 发表于 2021-9-21 12:14</a>
+
+我看这家只上了没边框的那种双面夹，能防摔么</blockquote>
+有个不是磁吸的软壳，32块的，那个应该好点
+
+磁吸感觉都不防摔，只是图个手感好点
+
+
