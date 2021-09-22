@@ -16588,3 +16588,40 @@ LL不会为了调和关系去写这么一话，不如说现在就是已经达成
 是推和ins的短视频么，摸头，十指相扣。
 
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5848#       发表于 2021-9-22 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845423&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-09-22 16:02:50</a>
+如何评价《LoveLive!Sunshine!!》第二季第十三话的曜梨告白? - 硫酸亚铁的回答 - 知乎
+
+
+意外翻到19年人家 ...</blockquote>虽然套在这里还挺有道理。
+
+但是这答主的结论不到一个月就被小南极打脸了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 5849#       发表于 2021-9-22 17:16
+
+
+要讨论动画对销量的影响可以等过几天看看插2能卖多少
+
+
+*****
+
+####  凡人  
+##### 5850#       发表于 2021-9-22 17:16
+
+
+贴吧有人做过统计，除了香音之外其他人互叫名字的次数都挺少的
+
+

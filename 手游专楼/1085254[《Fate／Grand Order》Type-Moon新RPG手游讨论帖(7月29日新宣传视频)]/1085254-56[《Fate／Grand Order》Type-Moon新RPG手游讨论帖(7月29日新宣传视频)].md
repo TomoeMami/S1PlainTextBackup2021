@@ -16063,3 +16063,59 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 明年复刻一定要补个2宝出来
 
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83842#       发表于 2021-9-22 17:07
+
+
+道满复刻艹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83843#       发表于 2021-9-22 17:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845595&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-9-22 16:15</a>
+
+上油管随便点开一个视频看到1宝夹馍带2个C呆和倍卡礼装打这次的阴间枪本也稳的很.....这蓝卡队不还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夹馍本身就是倍卡  顺便欧羡慕
+
+
+*****
+
+####  黑上シグマ  
+##### 83844#       发表于 2021-9-22 17:12
+
+
+<blockquote>引用第83841楼仰望神的括约肌于2021-09-22 17:07发表的  :
+
+道满复刻艹</blockquote>
+毫不意外，理所当然
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  空气蛹  
+##### 83845#       发表于 2021-9-22 17:16
+
+
+草，这次转生日服就是想着买号花点钱就少充点，结果迦摩没忍住上手就冲了两单，已经是输的透彻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 83846#       发表于 2021-9-22 17:17
+
+
+伽摩一个灵衣没有，叶狗死啊
+
+

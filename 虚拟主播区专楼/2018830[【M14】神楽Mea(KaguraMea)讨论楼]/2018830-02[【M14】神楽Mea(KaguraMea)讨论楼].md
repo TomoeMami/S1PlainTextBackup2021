@@ -16571,3 +16571,14 @@ tc根本就不知道
 今天居然三场吗，泪目。
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2997#       发表于 2021-9-22 17:24
+
+
+Pokerchase确实挺无聊的，直播都还没开始我已经感到无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
