@@ -16487,3 +16487,104 @@ Screenshot_2021-09-21-02-42-11-665_com.miui.video.jpg
 这楼翻页BUG好严重，回复发出去老是刷不出来，过了好一会才全出，我在砍C的超高楼都没遇到过这情况
 
 
+
+
+*****
+
+####  星降る森  
+##### 5840#       发表于 2021-9-22 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52841085&amp;ptid=1909972" target="_blank">Gooddays 发表于 2021-9-22 09:54</a>
+
+其实说堇被霸凌是错的，因为现在是堇要主动加入团队，而不是可可及小千作主动拉她进团，堇不喜欢大可以退 ...</blockquote>
+LL不会为了调和关系去写这么一话，不如说现在就是已经达成编剧要的状态了，至于7,8话可堇关系为什么这么烂，纯粹是花田完全不会写或者说写崩的锅。
+
+真要像你说的，现在还有恶感，那么之前5,6话可可看到sunnypa的时候，可可会为了确认是不是在做梦，让平安名去捏她脸吗？
+
+
+*****
+
+####  lj205  
+##### 5841#       发表于 2021-9-22 16:45
+
+
+快看微博HOSI_TIRI新发的贴贴视频，绝对救命药啊
+
+
+*****
+
+####  秋月艾莉  
+##### 5842#       发表于 2021-9-22 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845957&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-22 16:44</a>
+
+LL不会为了调和关系去写这么一话，不如说现在就是已经达成编剧要的状态了，至于7,8话可堇关系为什么这么 ...</blockquote>
+恶感这种事就很迷，属于公说公有理，婆说婆有理
+
+比如可和堇认识都5集了，可还没正面喊过堇的名字，连平安名桑都没有，唯一一次疑似喊的还是第五话里跟着大伙一起的
+
+堇也是除了做料理那里场面话喊了一声可可，除此以外也没喊过唐桑可可桑
+
+我只能说这两人命里八字犯冲www
+
+
+*****
+
+####  chenflyyy  
+##### 5843#       发表于 2021-9-22 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845977&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-22 16:45</a>
+
+快看微博HOSI_TIRI新发的贴贴视频，绝对救命药啊</blockquote>
+我们可香党复活了（错乱
+
+
+*****
+
+####  dozen  
+##### 5844#       发表于 2021-9-22 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845886&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-22 16:38</a></blockquote>
+我看你贴吧从不风怒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 如果是网页和app的区别还是早点下个鹅球吧
+
+
+*****
+
+####  星降る森  
+##### 5845#       发表于 2021-9-22 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827081&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-20 23:12</a>
+
+【如果一部动画真的很出色，显然是能吸引更多来关注的】这是伪命题，反例数不胜数，除非你对“出色”的定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对LL还真不是伪命题，事实上，虹动画三张插曲里，覆盖到我说的比较无聊的2话的插曲2就是比其他2张插曲少了5000张销量。
+
+楼里有拿名作之壁来说事，那根本不是一回事，LL企划的粉丝构成是相当稳定的。
+
+
+*****
+
+####  dozen  
+##### 5846#       发表于 2021-9-22 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52846188&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-22 17:00</a>
+对LL还真不是伪命题，事实上，虹动画三张插曲里，覆盖到我说的比较无聊的2话的插曲2就是比其他2张 ...</blockquote>
+如果不是插2那3位人气本就后排的话我也许就信了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 5847#       发表于 2021-9-22 17:11
+
+
+<blockquote>lj205 发表于 2021-9-22 16:45
+快看微博HOSI_TIRI新发的贴贴视频，绝对救命药啊</blockquote>
+是推和ins的短视频么，摸头，十指相扣。
+
+
