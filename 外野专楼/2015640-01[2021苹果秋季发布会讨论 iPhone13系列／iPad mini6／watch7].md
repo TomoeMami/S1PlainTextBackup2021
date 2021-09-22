@@ -11867,3 +11867,58 @@ mini6跑原神太强了
 ----发送自 [Xiaomi M2011K2C,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  a12885084  
+##### 1056#       发表于 2021-9-23 03:00
+
+
+<img src="https://img.saraba1st.com/forum/202109/23/030036hnajarn1lr8jon2j.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (94.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-23 03:00 上传
+
+
+测试出来了，这波是真满血，某神最高画质帧数测试，mini一骑绝尘这么看CPU频率阉割了反而是优势，有利于温度控制，能更长时间保持满血
+
+
+*****
+
+####  404489039  
+##### 1057#       发表于 2021-9-23 03:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52851854&amp;ptid=2015640" target="_blank">a12885084 发表于 2021-9-23 03:00</a>
+测试出来了，这波是真满血，某神最高画质帧数测试，mini一骑绝尘这么看CPU频率阉割了反而是优势，有利于温 ...</blockquote>
+同代mini一直是性能最好的，比手机散热强比大板分辨率低
+
+
+*****
+
+####  FrozenA  
+##### 1058#       发表于 2021-9-23 04:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">mini发布的时间确实好
+
+马上买个了送给刚开学的妹妹，喜欢的很
+
+
+*****
+
+####  riin  
+##### 1059#       发表于 2021-9-23 05:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52851854&amp;ptid=2015640" target="_blank">a12885084 发表于 2021-9-23 03:00</a>
+
+测试出来了，这波是真满血，某神最高画质帧数测试，mini一骑绝尘这么看CPU频率阉割了反而是优势，有利于温 ...</blockquote>
+原神在m1 ipad上面有结论了吗？
+
+

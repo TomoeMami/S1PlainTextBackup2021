@@ -14120,3 +14120,25 @@ Collab比较有印象的也就是去润润Live，去三才Live，去Kanata的Liv
 从做了的事情的比例来说倒是挺偶像的
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13201#       发表于 2021-9-23 01:41
+
+
+去年差不多这时候开始打LOL的
+
+估计live结束准备闭关冲分到月底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  昆西昆希昆  
+##### 13202#       发表于 2021-9-23 01:47
+
+
+我懂了 是在看lol世界赛
+
+
