@@ -14681,3 +14681,29 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 草，地灵的圣堂这什么傻逼支线啊，进迷宫就自动战斗状态没地图每个路口都有怪，怪就那么几种类型还特别硬，打了5、6战受不了自杀滚出迷宫了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5599#       发表于 2021-9-22 22:17
+
+
+因为想看op2所以打开了游戏，想着反正都打开了就玩会咯，结果把支线都清完了，等级也到了95<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  peh  
+##### 5600#       发表于 2021-9-22 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52848101&amp;ptid=1860328" target="_blank">桧月彩花 发表于 2021-9-22 19:36</a>
+
+玩完了第三章，剧情看得我一脸懵逼
+
+
+抛开演出，不管合理性，咱们就说剧情</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种真的还好了，你仔细想一想，这所谓的国家也就一个村的规模，低头不见抬头见你还想怎么样
+
+
