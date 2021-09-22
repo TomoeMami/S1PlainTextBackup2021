@@ -16582,3 +16582,14 @@ tc根本就不知道
 Pokerchase确实挺无聊的，直播都还没开始我已经感到无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Rem-清曲  
+##### 2998#       发表于 2021-9-22 18:46
+
+
+all in就完事了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

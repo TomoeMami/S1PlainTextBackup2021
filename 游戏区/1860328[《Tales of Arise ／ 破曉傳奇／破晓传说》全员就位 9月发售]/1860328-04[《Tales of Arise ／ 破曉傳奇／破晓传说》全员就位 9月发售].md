@@ -14466,3 +14466,29 @@ AI策略这块有没有什么好的设置啊，自从前面有一次用与强敌
 整体获得经验值和掉落都会上升
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 5586#       发表于 2021-9-22 18:34
+
+
+「CODE VEIN」のコンセプトアーティストなどを担当した、高木 昌史（Masafumi Takagi）が描いたシオンが到着！
+
+シオンの持つ意志の力が溢れる、迫力のイラストです！
+<img src="https://p.sda1.dev/2/836a22e0bc3ba43234a4669036f96c68/20210922_183246.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  godless2020  
+##### 5587#       发表于 2021-9-22 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52846644&amp;ptid=1860328" target="_blank">windtrack 发表于 2021-9-22 17:37</a>
+
+话说这个战斗点数有啥用，这次二周目继承是直接根据文物来的，又没有商店，纯摆设？ ...</blockquote>
+G值大家刷了这么久，也累了，1周目大后期直接给原来G值商店的奖给你用
+
+
