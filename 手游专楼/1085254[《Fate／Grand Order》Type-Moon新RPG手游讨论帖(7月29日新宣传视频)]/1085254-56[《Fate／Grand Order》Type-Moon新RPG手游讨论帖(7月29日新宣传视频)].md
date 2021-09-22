@@ -16132,3 +16132,24 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 这太不合理了，从三期开始，每次女性泳装英灵都有人至少能捞到简易灵衣的，哪怕五期也给了新的学妹泳装灵衣，这期水夹馍都画了立绘了你跟我说没有灵衣？不到活动结束我是不会死心的
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 83848#       发表于 2021-9-22 17:43
+
+
+我tm惊呆了，7发11连居然一个哥伦布都没出来，这是3星的up率吗？反正道满无事补到4宝了，哥伦布还是乖乖2宝呆着吧，反正也不会有你上场的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83849#       发表于 2021-9-22 17:53
+
+
+NMD，道满这么快的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

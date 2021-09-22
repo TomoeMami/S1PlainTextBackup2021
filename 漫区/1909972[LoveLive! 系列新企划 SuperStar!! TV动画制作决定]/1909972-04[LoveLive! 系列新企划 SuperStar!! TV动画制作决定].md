@@ -16680,3 +16680,31 @@ LL不会为了调和关系去写这么一话，不如说现在就是已经达成
 鱼还想亲小百合的手来着
 
 
+
+
+*****
+
+####  dozen  
+##### 5856#       发表于 2021-9-22 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52846439&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-22 17:22</a>
+
+有人气排前二的插1也没比插3多卖5000咯，别说鬼头，g’s选举倒一的涩图，彼方还上过榜 ...</blockquote>
+插1就是累计比插3多啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">而且销量也和各自抽选有关
+
+说到阿卡林，g's涩图时期可没到鬼历元年啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 战吧有个ksks厨拿那个时期的投票结果哭ksks人气可是引嘲讽了，排名本身就和现在人气有出入
+
+
+*****
+
+####  qratosone  
+##### 5857#       发表于 2021-9-22 18:08
+
+
+<img src="https://p.sda1.dev/2/e5e5bff4e84c2548083fecb08f10f782/IMG_CMP_211563789.jpeg" referrerpolicy="no-referrer">
+更衣室play
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
