@@ -16038,3 +16038,14 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 最后还是村正带倍卡打了，少几个按键刷本体验直线上升
 
 
+
+
+*****
+
+####  rooarr  
+##### 83840#       发表于 2021-9-22 15:57
+
+
+这次活动最方便的肯定是2个宝石加1个满破倍卡，只需要按4个技能就刷完了，反正加成礼装用不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

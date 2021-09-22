@@ -9170,3 +9170,20 @@ http://himado.in/493766
 谢谢
 
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2169#       发表于 2021-9-22 15:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52844047&amp;ptid=1963832" target="_blank">白金口袋 发表于 2021-9-22 13:58</a>
+有大地应该就有海洋和天空
+
+问题是剩下俩是啥</blockquote>
+应该只有大地和海洋我觉得。。毕竟分别是人类和人鱼，象征性的一边在大地上一边在海洋里，没有天上的
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
