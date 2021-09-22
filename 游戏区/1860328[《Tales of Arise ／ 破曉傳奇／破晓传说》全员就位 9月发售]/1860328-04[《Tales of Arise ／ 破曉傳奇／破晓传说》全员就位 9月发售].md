@@ -14046,3 +14046,14 @@ TOAR看来是没这个缘分 除了画面其他差得太远
 我不想打击你的自信心，但是按照游戏引导趋向的打法，最终任何难度都和简单差不多——脑死亡了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">故事难度更是一绝，我试了一下自动+故事难度，这都不用人操作了，根本不可能会失去战斗力。
 
 
+
+
+*****
+
+####  欠陷制品  
+##### 5553#       发表于 2021-9-22 08:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">AI策略这块有没有什么好的设置啊，自从前面有一次用与强敌全力战斗AI给我药都吃光了，现在到打完第五章一直锁死不用道具了
+
+
