@@ -8631,3 +8631,20 @@ https://twitter.com/HoshiSoichiro/status/1435133253686480897
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 603#       发表于 2021-9-22 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52842812&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-9-22 11:54</a>
+
+抽中先行上映，但忘记付款……</blockquote>
+抽中没有邮件通知什么的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+不能给俺们剧透了，不过即使一二话不错也不能掉以轻心，ate的一二话也还行，后面就……
+
+
