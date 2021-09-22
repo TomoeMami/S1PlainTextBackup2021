@@ -11594,3 +11594,29 @@ mkbhd说13pro一天5小时亮屏使用剩余电量54%<img src="https://static.sa
 钟文泽单独发了3个视频评测，绝了
 
 
+
+
+*****
+
+####  沧兰殇  
+##### 1034#       发表于 2021-9-22 08:12
+
+
+100%是标准865<img src="https://p.sda1.dev/2/9e7462c65d07e435549ace0d4cc38506/IMG_CMP_149906252.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  报应啊报应  
+##### 1035#         楼主| 发表于 2021-9-22 08:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839316&amp;ptid=2015640" target="_blank">saintsimpler 发表于 2021-9-22 01:20</a>
+480Hz
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+真的假的啊！请问是哪个评测里说的啊
+
+
