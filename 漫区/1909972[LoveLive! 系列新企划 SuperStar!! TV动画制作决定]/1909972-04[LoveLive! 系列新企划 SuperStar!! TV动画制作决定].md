@@ -16863,3 +16863,27 @@ galaxy
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 5871#       发表于 2021-9-23 01:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面老哥提到的翻页问题的确严重 昨天有个人回复我 一直没找到回复内容 还以为注销了 我记得隔壁寒蝉业卒的楼也很高，但没出现什么问题呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5872#       发表于 2021-9-23 01:08
+
+
+ 本帖最后由 兔姬姬姬姬姬 于 2021-9-23 01:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
