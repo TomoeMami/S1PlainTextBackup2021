@@ -9114,3 +9114,16 @@ image.png
 这么说再往前就是可可……不是，coco？
 
 
+
+
+*****
+
+####  lyflyflxf  
+##### 2165#       发表于 2021-9-22 08:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52815892&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-9-19 22:08</a>
+到甜点为止都挺多出色作画的，抱q开始就不咋地了，作画特别好的只有巧大和全明星那几集，田中10来话有过集 ...</blockquote>
+求问哪里有弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

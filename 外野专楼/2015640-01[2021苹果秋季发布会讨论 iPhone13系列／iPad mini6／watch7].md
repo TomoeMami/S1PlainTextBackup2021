@@ -11620,3 +11620,30 @@ mkbhd说13pro一天5小时亮屏使用剩余电量54%<img src="https://static.sa
 真的假的啊！请问是哪个评测里说的啊
 
 
+
+
+*****
+
+####  归英章华  
+##### 1036#       发表于 2021-9-22 08:36
+
+
+ 本帖最后由 归英章华 于 2021-9-22 08:46 编辑 
+
+我在美国东部，UPS app里19号从郑州发货，今天早上包裹都运到肯塔基了，
+
+苹果官方还没显示发货
+
+
+*****
+
+####  saintsimpler  
+##### 1037#       发表于 2021-9-22 09:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52840336&amp;ptid=2015640" target="_blank">报应啊报应 发表于 2021-9-22 08:25</a>
+
+真的假的啊！请问是哪个评测里说的啊</blockquote>
+微博@flypig，做显示评测的大佬Navis-MDT也确认了，这代iPhone确实没有12系列护眼
+
+
