@@ -8661,3 +8661,37 @@ https://twitter.com/HoshiSoichiro/status/1435133253686480897
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太惨了吧
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 605#       发表于 2021-9-23 00:09
+
+
+动画快开播了，鸡枞推特转了好几个科普视频
+
+mla动画不再是付费电视台 独占了，众人的努力可喜可贺，鸡枞也亲自转推祝贺
+
+这冥夜不知道的还以为是菊池政治画的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/2db928587ebf717e912ab252bbc1fc63/IMG_CMP_217028720.jpeg" referrerpolicy="no-referrer">
+
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  kamarus  
+##### 606#       发表于 2021-9-23 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52851151&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-9-23 00:09</a>
+动画快开播了，鸡枞推特转了好几个科普视频
+
+mla动画不再是付费电视台 独占了，众人的努力可喜可贺，鸡枞也 ...</blockquote>
+艹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要和隔壁水无月中尉比哪个更幼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
