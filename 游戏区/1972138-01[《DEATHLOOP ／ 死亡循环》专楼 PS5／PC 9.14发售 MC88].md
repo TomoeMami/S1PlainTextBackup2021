@@ -6384,3 +6384,16 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">妈的 打通了觉得不做支线直接全主线体验最好，支线都什么破玩意
 
 
+
+
+*****
+
+####  thoroughwort  
+##### 545#       发表于 2021-9-22 14:58
+
+
+打通后感觉后期游戏流程中体验最好的地方是被入侵，熟悉地图后任务全在跑流程<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+最开始觉得每跑两三张图就被入侵一次太多了，配好石板和perk之后简直是盼着朱莉安娜来
+食爹地的以太蹲坑不耗蓝暗杀和近战回血疾跑大刀啦<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
