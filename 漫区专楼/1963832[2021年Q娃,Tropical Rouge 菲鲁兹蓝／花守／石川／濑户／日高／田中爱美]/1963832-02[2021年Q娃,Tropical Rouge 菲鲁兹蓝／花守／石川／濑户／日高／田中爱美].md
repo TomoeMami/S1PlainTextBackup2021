@@ -9155,3 +9155,18 @@ http://himado.in/493766
 问题是剩下俩是啥
 
 
+
+
+*****
+
+####  lyflyflxf  
+##### 2168#       发表于 2021-9-22 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52843574&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-9-22 13:10</a>
+http://himado.in/493766
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1</blockquote>
+谢谢
+
+
