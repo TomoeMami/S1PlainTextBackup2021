@@ -14707,3 +14707,17 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种真的还好了，你仔细想一想，这所谓的国家也就一个村的规模，低头不见抬头见你还想怎么样
 
 
+
+
+*****
+
+####  火红之眼  
+##### 5601#       发表于 2021-9-22 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52849502&amp;ptid=1860328" target="_blank">妄想中毒 发表于 2021-9-22 21:43</a>
+
+草，地灵的圣堂这什么傻逼支线啊，进迷宫就自动战斗状态没地图每个路口都有怪，怪就那么几种类型还特别硬， ...</blockquote>
+问题是打个五六战就到终点了......<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
