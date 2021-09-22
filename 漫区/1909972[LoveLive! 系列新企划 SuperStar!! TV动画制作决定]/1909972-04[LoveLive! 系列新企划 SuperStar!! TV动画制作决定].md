@@ -16970,3 +16970,17 @@ s1是挂3天就能发帖是吧？民警皮套应该能在下集之前就建新�
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 准备换新楼了吗，好的，
 
 
+
+
+*****
+
+####  平安名すみれ  
+##### 5880#       发表于 2021-9-23 07:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52850223&amp;ptid=1909972" target="_blank">中須かすみ 发表于 2021-09-22 22:44:29</a>
+s1官方版客户端我记得可以绕过注册后的cd时间，不知道现在还行不行</blockquote>看样子是可以，但想了想还是等cd结束了再开，客户端用的有点不方便而且现在也没什么好讨论的了。等下一集要播出的时候再开吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
