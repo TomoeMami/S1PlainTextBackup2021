@@ -14584,3 +14584,43 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 剧情量比前面的要多，但是流程比前面的敷衍很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 5593#       发表于 2021-9-22 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52848133&amp;ptid=1860328" target="_blank">shiko 发表于 2021-9-22 19:39</a>
+
+然而第三章从故事节奏到逻辑流程程度，已经堪称前半部分之最了XD
+
+
+这游戏除了感情戏之外的部分，可能只有 ...</blockquote>
+这游戏现在我当看着三对小情侣组队旅游了，主要看互动骚话为主。
+
+
+主线已经扔一边去了。
+
+
+另外这游戏的钓鱼是不是JRPG的钓鱼小游戏里最硬核的？
+
+
+教程阶段都失败我还是头一次<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓝雉  
+##### 5594#       发表于 2021-9-22 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52848101&amp;ptid=1860328" target="_blank">桧月彩花 发表于 2021-9-22 19:36</a>
+玩完了第三章，剧情看得我一脸懵逼
+
+
+抛开演出，不管合理性，咱们就说剧情</blockquote>
+300年的统治，达纳的体制和文化本来就丢光了，现在有个领袖能提供乌托邦一样的生活对达纳人来说已经很好了
+
+
