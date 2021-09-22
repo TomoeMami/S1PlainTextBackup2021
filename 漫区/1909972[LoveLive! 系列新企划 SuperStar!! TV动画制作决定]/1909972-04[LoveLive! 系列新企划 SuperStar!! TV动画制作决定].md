@@ -16850,3 +16850,16 @@ galaxy
 刚才闲的没事翻了一下鲤鱼图包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好多直女营业
 
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 5870#       发表于 2021-9-23 00:33
+
+
+如果虹2期动画能把原作原封不动的搬上来，我看单推怕是吵得比现在还厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

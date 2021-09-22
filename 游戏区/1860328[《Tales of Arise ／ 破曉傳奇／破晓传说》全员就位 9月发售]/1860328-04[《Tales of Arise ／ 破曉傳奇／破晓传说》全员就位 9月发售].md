@@ -14796,3 +14796,37 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 轨迹的打斗尴到让我之后看到角色拔武器开干就快进的水平
 
 
+
+
+*****
+
+####  魂淡放我出去  
+##### 5608#       发表于 2021-9-23 00:21
+
+
+ 本帖最后由 魂淡放我出去 于 2021-9-23 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52851038&amp;ptid=1860328" target="_blank">peh 发表于 2021-9-22 23:56</a>
+第五章演出还是可以的啊，不玩轨迹，轨迹现在有这种水平的打斗吗
+
+不过最后被炎剑一剑戳死然后慢慢把 ...</blockquote>
+打到最后还有一场战斗演出和过场演出也不错的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+虽然我觉得第五章那场演出不如tob六郎火山最终战好看
+
+
+*****
+
+####  JudgmentEye  
+##### 5609#       发表于 2021-9-23 00:25
+
+
+ 本帖最后由 JudgmentEye 于 2021-9-23 00:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52850920&amp;ptid=1860328" target="_blank">桧月彩花 发表于 2021-9-22 23:43</a>
+
+借路问怎么快速升级，除了买DLC
+
+
+感觉这一作等级压制非常明显，差个三五级就是磕完背包和闭眼脚搓的差距 ...</blockquote>
+修改器欢迎你，ps4也可以用sw改存档，至于ps5和巨硬家的……还是买dlc吧
+
+
