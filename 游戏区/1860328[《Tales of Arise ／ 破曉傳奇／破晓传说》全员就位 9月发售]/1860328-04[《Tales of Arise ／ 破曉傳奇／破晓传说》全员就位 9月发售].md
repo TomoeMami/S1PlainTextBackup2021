@@ -14656,3 +14656,17 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 回来翻了翻剧情录像，仪式房间涅薇丽的一年后自述里明确得说球没了（[https://www.bilibili.com/video/BV1E34y1Q7LK?p=34](https://www.bilibili.com/video/BV1E34y1Q7LK?p=34)  46'34'' 附近） ，后面飘离的太空站里一个研究员说了为了造球搞得制度（P36 16'56'' 附近）
 
 
+
+
+*****
+
+####  reficul  
+##### 5597#       发表于 2021-9-22 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52848868&amp;ptid=1860328" target="_blank">君往何处 发表于 2021-9-22 20:35</a>
+
+回来翻了翻剧情录像，仪式房间涅薇丽的一年后自述里明确得说球没了（https://www.bilibili.com/video/BV1E ...</blockquote>
+谢谢，有心了
+
+

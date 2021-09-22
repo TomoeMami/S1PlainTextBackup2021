@@ -16201,3 +16201,23 @@ NMD，道满这么快的吗
 —— 来自 Lenovo TB-J716F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 83854#       发表于 2021-9-22 20:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这就是欧洲大佬的实力么
+
+
+*****
+
+####  承尘  
+##### 83855#       发表于 2021-9-22 20:57
+
+
+最后一发十连，金卡<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
