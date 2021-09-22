@@ -14624,3 +14624,35 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 300年的统治，达纳的体制和文化本来就丢光了，现在有个领袖能提供乌托邦一样的生活对达纳人来说已经很好了
 
 
+
+
+*****
+
+####  loley  
+##### 5595#       发表于 2021-9-22 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52848101&amp;ptid=1860328" target="_blank">桧月彩花 发表于 2021-09-22 19:36:04</a>
+玩完了第三章，剧情看得我一脸懵逼
+
+
+抛开演出，不管合理性，咱们就说剧情
+
+
+第一章整体还行，结尾工具人大叔 ...</blockquote>第二章那估计清算不动吧，大部分人不是自己举报就是默许举报，被大叔吼一吼唤醒下人性这种处理还算OK。第三章能从奴隶活成人，感恩一下也正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  君往何处  
+##### 5596#       发表于 2021-9-22 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52842962&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-22 12:05</a>
+
+剧情里好像只演到黑烟从球里冒出来，炸没炸好像没明确交代，忘记有没有直接说到了 ...</blockquote>
+回来翻了翻剧情录像，仪式房间涅薇丽的一年后自述里明确得说球没了（[https://www.bilibili.com/video/BV1E34y1Q7LK?p=34](https://www.bilibili.com/video/BV1E34y1Q7LK?p=34)  46'34'' 附近） ，后面飘离的太空站里一个研究员说了为了造球搞得制度（P36 16'56'' 附近）
+
+

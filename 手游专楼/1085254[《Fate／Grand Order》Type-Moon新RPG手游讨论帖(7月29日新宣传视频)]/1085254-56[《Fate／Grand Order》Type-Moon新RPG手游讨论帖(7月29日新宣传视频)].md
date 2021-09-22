@@ -16166,3 +16166,38 @@ NMD，道满这么快的吗
 就是可能对村正配置要求比较高。
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83851#       发表于 2021-9-22 20:26
+
+
+卧槽卧槽我一发双黄卧槽<img src="https://p.sda1.dev/2/59471132693d0b988d6f7ffef3292e44/IMG_CMP_72188781.png" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo TB-J716F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  千叶铁矢  
+##### 83852#       发表于 2021-9-22 20:27
+
+
+翻页
+
+—— 来自 Lenovo TB-J716F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  千叶铁矢  
+##### 83853#       发表于 2021-9-22 20:27
+
+
+翻页
+
+—— 来自 Lenovo TB-J716F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
