@@ -14568,3 +14568,19 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 整个游戏还有三分之一吧
 
 
+
+
+*****
+
+####  ff2077  
+##### 5592#       发表于 2021-9-22 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52848207&amp;ptid=1860328" target="_blank">人畜无害沃特碧 发表于 2021-9-22 19:43</a>
+
+我以为打完几大领主就结束了，突然来了一个op2然后告诉我这才刚开始
+
+所以后面的流程还有多少 ...</blockquote>
+剧情量比前面的要多，但是流程比前面的敷衍很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

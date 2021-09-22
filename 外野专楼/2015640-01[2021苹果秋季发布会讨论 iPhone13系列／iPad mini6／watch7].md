@@ -11827,3 +11827,18 @@ mini6的NDA要什么时候结束？</blockquote>
 B站科技美学有测评
 
 
+
+
+*****
+
+####  saintsimpler  
+##### 1053#       发表于 2021-9-22 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52843375&amp;ptid=2015640" target="_blank">月亮上的珊瑚 发表于 2021-9-22 12:50</a>
+12的PWM不是240吗</blockquote>
+12系列一定亮度之上是类DC，亮度太低才是pwm
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
