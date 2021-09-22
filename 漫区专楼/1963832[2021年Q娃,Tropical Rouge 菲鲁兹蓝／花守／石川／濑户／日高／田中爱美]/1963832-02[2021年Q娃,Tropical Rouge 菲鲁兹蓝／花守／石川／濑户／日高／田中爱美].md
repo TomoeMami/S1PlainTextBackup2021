@@ -9127,3 +9127,18 @@ image.png
 求问哪里有弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2166#       发表于 2021-9-22 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52840470&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-9-22 08:45</a>
+求问哪里有弹幕</blockquote>
+http://himado.in/493766
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -16016,3 +16016,14 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 两单下去无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yzj134100  
+##### 83838#       发表于 2021-9-22 13:06
+
+
+1T魔总放宝具一堆星，2T只要有她一张红绿卡都能刀了那只大眼
+
+
