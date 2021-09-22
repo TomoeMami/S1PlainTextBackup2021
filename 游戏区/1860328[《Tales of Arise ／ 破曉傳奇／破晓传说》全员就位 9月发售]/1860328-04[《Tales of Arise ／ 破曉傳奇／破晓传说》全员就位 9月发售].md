@@ -14424,3 +14424,45 @@ AI策略这块有没有什么好的设置啊，自从前面有一次用与强敌
 不然我玩到卫星上那段反转，第一反应不是“”卧槽这设定的真相原来是这样的”而是“啊？原来你们还有这个设定？”
 
 
+
+
+*****
+
+####  windtrack  
+##### 5583#       发表于 2021-9-22 17:37
+
+
+话说这个战斗点数有啥用，这次二周目继承是直接根据文物来的，又没有商店，纯摆设？
+
+
+*****
+
+####  zero12  
+##### 5584#       发表于 2021-9-22 17:43
+
+
+《噬血代码》概念美术师“高木昌史”绘制的希侬
+
+
+<img src="https://img.saraba1st.com/forum/202109/22/174302urvxllrs8vevek7e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>004dqAV7ly1gupjgej4njj60u00u0tem02.jpg</strong> (225.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-22 17:43 上传
+
+
+*****
+
+####  法拉  
+##### 5585#       发表于 2021-9-22 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52846644&amp;ptid=1860328" target="_blank">windtrack 发表于 2021-9-22 17:37</a>
+
+话说这个战斗点数有啥用，这次二周目继承是直接根据文物来的，又没有商店，纯摆设？ ...</blockquote>
+整体获得经验值和掉落都会上升
+
+
