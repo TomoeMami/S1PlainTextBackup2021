@@ -15797,3 +15797,693 @@ n站弹幕除了部分脑瘫政治梗小鬼，配合这一集效果奇佳<img sr
 要对线吵架的能不能滚出去不要污染环境<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Troy_VoV  
+##### 5790#       发表于 2021-9-22 08:42
+
+
+嗨呀当年无印水看了几集觉得不对劲就跑路了，结果又被虹+前三集骗进来，花田我信了你的邪<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  lj205  
+##### 5791#       发表于 2021-9-22 09:10
+
+
+楼上这人看了一下回帖是之前在贴吧里看乐子看爽就跑进来开嘲的吧？
+
+
+*****
+
+####  lj205  
+##### 5792#       发表于 2021-9-22 09:15
+
+
+ 本帖最后由 lj205 于 2021-9-22 09:57 编辑 
+
+风怒
+
+
+*****
+
+####  SRyeB  
+##### 5793#       发表于 2021-9-22 09:45
+
+
+虹团现在才2400+楼，这里都要5800了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gooddays  
+##### 5794#       发表于 2021-9-22 09:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838623&amp;ptid=1909972" target="_blank">player3960 发表于 2021-9-21 23:56</a>
+突然觉得恋好惨，第七话焦点都到堇霸凌上去了，
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+其实说堇被霸凌是错的，因为现在是堇要主动加入团队，而不是可可及小千作主动拉她进团，堇不喜欢大可以退团。
+
+真正霸凌是受害者无路可逃（至少受害者想不到退路），只能受苦的情况。而堇原本便是自己要进团，退路非常清楚（不参与便成了），加上她一开始便轻视学园偶像，要退团有何难？难道可可或小千会禁止堇退团吗？
+
+堇的情况便像在 S1 有人进入专楼当巨魔黑了讨论主题，然后被楼中粉丝围着喷时便说被人霸凌了。“我这么努力参与讨论，你们为何还恶言恶语？”，没有反思自己是否干了什么错事，或事后是否有好好道歉澄清去改善大家关系。
+
+所以整个问题来源是堇，她的态度及行为引来团员恶感，而花田却没有尽快帮堇弄一话去改善大家的交情。
+
+
+*****
+
+####  黑雪姫  
+##### 5795#       发表于 2021-9-22 10:12
+
+
+鲤鱼简直生放鬼才啊，看似播放事故，但实际这种恰到好处的蠢憨憨犯傻真的超吸粉...
+
+
+不知道日本人对此咋看的？
+
+
+*****
+
+####  player3960  
+##### 5796#       发表于 2021-9-22 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52841085&amp;ptid=1909972" target="_blank">Gooddays 发表于 2021-9-22 09:54</a>
+
+其实说堇被霸凌是错的，因为现在是堇要主动加入团队，而不是可可及小千作主动拉她进团，堇不喜欢大可以退 ...</blockquote>
+我和你观点是一致的，我也不认为堇有被霸凌，因为程度太低了，可惜节奏被带起来了。
+
+我只是想说7话的焦点都集中在“堇和霸凌”这方面...
+
+
+*****
+
+####  Karin11974  
+##### 5797#       发表于 2021-9-22 10:25
+
+
+油管生放评论都是清一色可爱就完事了，鲤鱼b站自己直播就没啥整的，星团这边其实多数还是不会念字口吃这种而已
+
+
+*****
+
+####  优妮可  
+##### 5798#       发表于 2021-9-22 10:25
+
+
+<blockquote>黑雪姫 发表于 2021-9-22 10:12
+鲤鱼简直生放鬼才啊，看似播放事故，但实际这种恰到好处的蠢憨憨犯傻真的超吸粉...
+
+</blockquote>
+无心插柳吧
+
+
+*****
+
+####  JustW  
+##### 5799#       发表于 2021-9-22 10:26
+
+
+ 本帖最后由 JustW 于 2021-9-22 10:30 编辑 
+
+堇这是犯了什么天条了还态度和行为引来团队恶感……难道想靠学园偶像出名就比想靠学园偶像招生要罪大恶极吗（）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家又是排练又是表演又是帮你做饭又是帮忙开导，都白瞎了，直接和s1巨魔画等号了还行
+
+
+拉人入伙也是香音拉的，现在说是人家故意进来巨魔了
+
+
+*****
+
+####  chenflyyy  
+##### 5800#       发表于 2021-9-22 10:31
+
+
+骂角色是真的没必要，尤其是ll这种角色和声优高度捆绑的企划
+
+
+*****
+
+####  cybernetics31  
+##### 5801#       发表于 2021-9-22 10:46
+
+
+都知道中之人更香，cd啥的能支持就支持吧。虽然这企划cd太tm多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有谷子…………
+
+
+*****
+
+####  寒风夜  
+##### 5802#       发表于 2021-9-22 10:50
+
+
+散了
+
+
+*****
+
+####  寒风夜  
+##### 5803#       发表于 2021-9-22 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52841539&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-22 10:26</a>
+
+堇这是犯了什么天条了还态度和行为引来团队恶感……难道想靠学园偶像出名就比想靠学园偶像招生要罪大恶极吗 ...</blockquote>
+不懂
+
+
+*****
+
+####  寒风夜  
+##### 5804#       发表于 2021-9-22 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52841539&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-22 10:26</a>
+
+堇这是犯了什么天条了还态度和行为引来团队恶感……难道想靠学园偶像出名就比想靠学园偶像招生要罪大恶极吗 ...</blockquote>
+
+
+*****
+
+####  秋月艾莉  
+##### 5805#       发表于 2021-9-22 11:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52841341&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-22 10:12</a>
+
+鲤鱼简直生放鬼才啊，看似播放事故，但实际这种恰到好处的蠢憨憨犯傻真的超吸粉...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人差不多
+
+然后推上关注的几个韩国粉丝更是吃得不行，明明是个美人结果一开口像个笨比机器人，反差萌蚌埠住了
+
+
+*****
+
+####  猫睛石  
+##### 5806#       发表于 2021-9-22 11:47
+
+
+区别大概是当跳板的吃到人气红利后随时可能退团进入演艺圈，为招生的只要学校在就会一直干比较稳定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 5807#       发表于 2021-9-22 11:53
+
+
+反正我已经是单推可可了……本来推卡农更多些，但是现在<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……………………
+
+
+当然三次元还是星团箱推，CD还是会保证的。
+
+
+鲤鱼以前人不多的时候直播还更有趣些，说了挺多东西的其实。不过耿直性格也确实很吸引我，吃播那句“什么玩意儿”直接把我朋友逗笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 5808#       发表于 2021-9-22 11:56
+
+
+看到战吧有人说香音就是ll的御田，我一下子就理解了
+
+
+*****
+
+####  寒风夜  
+##### 5809#       发表于 2021-9-22 11:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">构成 真的大问题
+
+
+*****
+
+####  笋狐  
+##### 5810#       发表于 2021-9-22 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52842794&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-22 11:53</a>
+
+反正我已经是单推可可了……本来推卡农更多些，但是现在……………………
+
+
+当然三次元还是星团箱推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">吃播有无指路
+
+
+*****
+
+####  cat1230  
+##### 5811#       发表于 2021-9-22 12:41
+
+
+<blockquote>引用第5806楼lj205于2021-09-22 11:53发表的  :
+
+反正我已经是单推可可了……本来推卡农更多些，但是现在……………………当然三次元还是星团箱推，CD还是......</blockquote>
+@lj205
+
+我被星团吸引是因为咧啦队员集合前那个花絮视频。开会时5张椅子4个人，鲤鱼椅子上是个平板电脑，弹幕飘过一句平板鱼，差点喷了，这场面太有意思了。
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lj205| + 1|那段视频真是让人感慨|
+
+
+查看全部评分
+
+
+*****
+
+####  qratosone  
+##### 5812#       发表于 2021-9-22 12:46
+
+
+今后花田改姓谏山比较好呢还是改姓冈田比较好呢
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  CharlieZ-  
+##### 5813#       发表于 2021-9-22 13:01
+
+
+看得出来楼上有几位是真的讨厌民警<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是觉得把堇骂那么难听属实没必要吧
+
+
+*****
+
+####  kbtit  
+##### 5814#       发表于 2021-9-22 13:07
+
+
+ 本帖最后由 kbtit 于 2021-9-22 14:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52843472&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-22 14:01</a>
+
+看得出来楼上有几位是真的讨厌民警我是觉得把堇骂那么难听属实没必要吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">你说的楼上有“骂”吗？我没看出来啊，倒是贴吧的某些人讨厌唐可可对其直球辱骂人身攻击更离谱吧，要不要我去截几个发言过来给你看看
+
+
+*****
+
+####  离心  
+##### 5815#       发表于 2021-9-22 13:09
+
+
+别吵了，对角色进行攻击的都离谱……
+
+
+*****
+
+####  lj205  
+##### 5816#       发表于 2021-9-22 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52843192&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-22 12:30</a>
+
+吃播有无指路</blockquote>
+就是她在B站庆祝20碗粉吃麦当劳月见八嘎套餐的小视频
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋狐| + 1|多磨|
+
+
+查看全部评分
+
+
+*****
+
+####  lj205  
+##### 5817#       发表于 2021-9-22 13:15
+
+
+ 本帖最后由 lj205 于 2021-9-22 13:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52843472&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-22 13:01</a>
+
+看得出来楼上有几位是真的讨厌民警我是觉得把堇骂那么难听属实没必要吧 ...</blockquote>
+没人讨厌民警吧？更别说哪里有骂她的？只不过针对那些说可可霸凌的观点，大家试着分析而已
+
+
+*****
+
+####  笋狐  
+##### 5818#       发表于 2021-9-22 13:28
+
+
+ 本帖最后由 笋狐 于 2021-9-22 13:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来从剧本逻辑角度试图分析角色行为的合理性与不合理性算骂，这个思维在下觉得比较适合去贴吧weibo和那些角色黑mzr激情掰头
+
+
+*****
+
+####  saya1892  
+##### 5819#       发表于 2021-9-22 13:34
+
+
+【Lovelive】在世界中心呼唤恋的涩谷香音 叶月恋补完计划
+[https://www.bilibili.com/video/BV1t64y1a7HG](https://www.bilibili.com/video/BV1t64y1a7HG)
+
+
+比正片好看
+
+
+*****
+
+####  不能摸的屁屁  
+##### 5820#       发表于 2021-9-22 14:05
+
+
+怎么就霸凌了嘛
+
+LL一直是几个小女生之间打打闹闹的童话故事
+
+过激二创脑补禁止
+
+你这都能叫霸凌，那水11曜已经跳海了，虹11步梦已经拔刀了……
+
+可可是有瞧不上堇的地方，香音小千也有冷落她，堇自己也有对校偶态度不端正的问题
+
+这些都不能否认，关键还有个指标是程度啊，光提事不讲度就是耍流氓
+
+要真是过度，过分了，按照逻辑堇自己就该退团了，人家轻音阿梓喵万千宠爱于一身还不是说退就退了，堇明显还开开心心吐槽，说白了这点“霸凌”算啥啊？
+
+提事不讲度，再进一步就是二极管，二级管再进一步就是zzzq，以后角色干脆相敬如宾毫无矛盾，也不需要成长了，样板戏变八股文。
+
+就是那句话，观感差，对角色剧情不满，请大力喷花田喷京极，不要上纲上线，拿自己脑补的黑暗面去喷其他角色。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| saglork| + 1|确实，脑补加戏没必要|
+| chenflyyy| + 1|这有什么好扣鹅的|
+| TRIScRE|-1|思路广|
+
+
+查看全部评分
+
+
+
+
+*****
+
+####  yanayosihana  
+##### 5821#       发表于 2021-9-22 14:09
+
+
+ 本帖最后由 yanayosihana 于 2021-9-22 15:45 编辑 
+
+为了吸引别人入学，只给音乐科办学园祭，让普通科打下手，这是什么鬼逻辑……
+
+
+*****
+
+####  yanayosihana  
+##### 5822#       发表于 2021-9-22 14:25
+
+
+ 本帖最后由 yanayosihana 于 2021-9-22 15:43 编辑 
+
+堇要能退团才行呀，一直欺负她，然后还让她开开心心的，这难道不就是最变扭的地方吗？
+
+
+要是真给堇撂下一句，你们玩吧，我走了，这啥后果？只有这样生气才能让大家意识到自己欺负的太过了是吗？
+
+
+*****
+
+####  CharlieZ-  
+##### 5823#       发表于 2021-9-22 14:39
+
+
+真不是来吵架的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">堇收到的待遇肯定不至于是霸凌
+
+我觉得分析为什么不是霸凌是可以的，但不要过于恶意的揣测民警的动机，像s1巨魔，团队毒瘤这种词都来了是不是就有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然我也只是提点反对意见，像贴吧那样上来扣个饭圈cp入脑的帽子我觉得大可不必<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+七八集评分已经烂成这样了，在楼里吵架肯定是没啥意义的
+
+
+*****
+
+####  Norkey1  
+##### 5824#       发表于 2021-9-22 15:01
+
+
+😅太纯了
+
+
+*****
+
+####  lj205  
+##### 5825#       发表于 2021-9-22 15:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">花田写烂咱们阻止不了，要骂就骂他好了，但是别迁怒到角色上就行，毕竟还有广播可以磕
+
+
+*****
+
+####  qratosone  
+##### 5826#       发表于 2021-9-22 15:11
+
+
+ 本帖最后由 qratosone 于 2021-9-22 15:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52843472&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-22 13:01</a>
+
+看得出来楼上有几位是真的讨厌民警我是觉得把堇骂那么难听属实没必要吧 ...</blockquote>
+核心还是骂花田，哪怕水时间也不如多做一点日常回让民警多展现自己的闪光点。
+
+
+*****
+
+####  寒风夜  
+##### 5827#       发表于 2021-9-22 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52844142&amp;ptid=1909972" target="_blank">yanayosihana 发表于 2021-9-22 14:09</a>
+
+为了吸引别人入学，只给音乐课办学园祭，让普通科打下手，这是什么鬼逻辑…… ...</blockquote>
+不是，这矛盾塑造的就低能，就禁止学院偶像突出一个瞎猜  不毁了角色就有鬼了。
+
+
+*****
+
+####  惘时之轮  
+##### 5828#       发表于 2021-9-22 15:55
+
+
+在阳光下面无表情的人
+
+在阳光下笑的人
+
+在阳光和阴影之间的人
+
+在阴影中面无表情的人
+
+
+Screenshot_2021-09-21-02-42-11-665_com.miui.video.jpg
+(220.28 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-22 15:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/22/155420nfzvohm9nehh4hnf.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 5829#       发表于 2021-9-22 16:02
+
+
+如何评价《LoveLive!Sunshine!!》第二季第十三话的曜梨告白? - 硫酸亚铁的回答 - 知乎
+[https://www.zhihu.com/question/310317482/answer/612682173](https://www.zhihu.com/question/310317482/answer/612682173)
+
+
+意外翻到19年人家骂水13的回复，里头对花田的评价可以原封不动的搬过来，花田真的是毫无长进。
+ <blockquote>——注重刻画角色内心，而将角色的情感矛盾置于一切矛盾之上。环境高度的为角色的精神斗争服务，换言之，只要角色获得了所谓「历练」「成长」，一些不合理之处是无妨的。
+
+
+这就是我对花田的指控。</blockquote>
+<blockquote>如果能让我选，我希望花田以后只做moe anime，不做青春肥皂剧；如果非要做青春片，我希望没有主线，只有日常回。
+
+——这也是我对LLSS动画、对花田十辉的评价。</blockquote>
+
+或许，没有主线才是最好的花田十辉。
+
+
+*****
+
+####  ads147147  
+##### 5830#       发表于 2021-9-22 16:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845332&amp;ptid=1909972" target="_blank">惘时之轮 发表于 2021-9-22 15:55</a>
+
+在阳光下面无表情的人
+
+在阳光下笑的人
+
+在阳光和阴影之间的人</blockquote>
+这个微表情。。所以说制作组到底在想什么。
+
+
+*****
+
+####  星降る森  
+##### 5831#       发表于 2021-9-22 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52827222&amp;ptid=1909972" target="_blank">灼眼の安娜 发表于 2021-9-20 23:28</a>
+
+起初可可确实是正面怼堇呀。第四集那不是都要上天台跟堇决斗了，说要代表所有学园偶像惩罚堇，只是决斗即将 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那话第一回合就把可可秒了啊。压根没入团的堇只是看了一遍就把可可辛辛苦苦练的舞给复原了。
+
+而在动画播出前的附声小短剧里，可可还像平安名请教，但平安名一直galaxy galaxy，气的可可用魔术手去挠平安名痒痒（然而平安名不怕痒，可可被反杀）
+
+如果看5,6话，和这个小短剧（这短剧还被改编成漫画），可堇关系完全是正常化的。
+
+7,8话的塑造相比之下就是完全失败的
+
+
+*****
+
+####  寒风夜  
+##### 5832#       发表于 2021-9-22 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845602&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-22 16:15</a>
+
+这个微表情。。所以说制作组到底在想什么。</blockquote>
+大概就没想太多
+
+
+*****
+
+####  寒风夜  
+##### 5833#       发表于 2021-9-22 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845602&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-22 16:15</a>
+
+这个微表情。。所以说制作组到底在想什么。</blockquote>
+
+
+*****
+
+####  普之舜舜  
+##### 5834#       发表于 2021-9-22 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845752&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-22 16:28</a>
+大概就没想太多</blockquote>
+老哥你咋说话自带空格，和鲤鱼姐姐学的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 5835#       发表于 2021-9-22 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845752&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-22 16:28</a>
+
+大概就没想太多</blockquote>
+老哥你怎么一直抽风发两次，还经常发些短句，像个bot一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 5836#       发表于 2021-9-22 16:37
+
+
+星现在角色描写不足造成的弊端就是角色厨互相打架啊，同情民警的觉得可可的行为太过分，站可可的就列举民警罪状表示民警是对学院偶像心不够诚的异教徒（还有一部分试图论证可可是偶像狂信徒所以讨厌民警没错的，我感觉也不是可可厨，可能是花田厨吧），然后两边厨子就互相妖魔化对方角色行为互相撕逼了
+
+
+事实上看了官漫就知道这些纯粹是花田写太过的问题，官漫可可会吐槽民警满口演艺圈但也会老实表示民警的一些知识确实有用，民警也表示我既然入团了就会做到最好你们大可放心
+
+
+*****
+
+####  寒风夜  
+##### 5837#       发表于 2021-9-22 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845820&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-22 16:34</a>
+
+老哥你怎么一直抽风发两次，还经常发些短句，像个bot一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么尴尬吗。。鼠标连击的厉害 该换了😱
+
+
+*****
+
+####  寒风夜  
+##### 5838#       发表于 2021-9-22 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845820&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-22 16:34</a>
+
+老哥你怎么一直抽风发两次，还经常发些短句，像个bot一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么尴尬吗。。鼠标连击的厉害 该换了😱
+
+
+*****
+
+####  lj205  
+##### 5839#       发表于 2021-9-22 16:39
+
+
+这楼翻页BUG好严重，回复发出去老是刷不出来，过了好一会才全出，我在砍C的超高楼都没遇到过这情况
+
+

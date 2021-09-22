@@ -11647,3 +11647,155 @@ mkbhd说13pro一天5小时亮屏使用剩余电量54%<img src="https://static.sa
 微博@flypig，做显示评测的大佬Navis-MDT也确认了，这代iPhone确实没有12系列护眼
 
 
+
+
+*****
+
+####  Fizbo  
+##### 1038#       发表于 2021-9-22 09:27
+
+
+基本都在尬吹这个电影模式
+
+大部分人都用不到这个模式吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平井姨夫  
+##### 1039#       发表于 2021-9-22 10:49
+
+
+这次13系列续航翻身了，本来以为高刷更费电，没想到这个自适应刷新这么省电
+
+
+*****
+
+####  saintsimpler  
+##### 1040#       发表于 2021-9-22 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52841897&amp;ptid=2015640" target="_blank">平井姨夫 发表于 2021-9-22 10:49</a>
+
+这次13系列续航翻身了，本来以为高刷更费电，没想到这个自适应刷新这么省电 ...</blockquote>
+与其说是LTPO的原因，不如说是电池增大带来的效果，等着看看13pro的续航实测就知道了
+
+
+*****
+
+####  月亮上的珊瑚  
+##### 1041#       发表于 2021-9-22 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839316&amp;ptid=2015640" target="_blank">saintsimpler 发表于 2021-9-22 01:20</a>
+480Hz
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+13和13pro都是吗
+
+
+*****
+
+####  月亮上的珊瑚  
+##### 1042#       发表于 2021-9-22 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52840685&amp;ptid=2015640" target="_blank">saintsimpler 发表于 2021-9-22 09:16</a>
+微博@flypig，做显示评测的大佬Navis-MDT也确认了，这代iPhone确实没有12系列护眼 ...</blockquote>
+12的PWM不是240吗
+
+
+*****
+
+####  噗哩噗  
+##### 1043#       发表于 2021-9-22 12:56
+
+
+<blockquote>Fizbo 发表于 2021-9-22 09:27
+基本都在尬吹这个电影模式
+
+大部分人都用不到这个模式吧</blockquote>
+全自动模式比pro的专享模式还是用的人更多点，至少普通人也愿意试试
+
+
+*****
+
+####  cuiluzhu  
+##### 1044#       发表于 2021-9-22 13:04
+
+
+这代pro和promax是只有电池和尺寸的差别么
+
+
+*****
+
+####  希远闹  
+##### 1045#       发表于 2021-9-22 13:10
+
+
+这沙雕官网订单退不了 老是出错叫你重试
+
+
+*****
+
+####  soli1tude0  
+##### 1046#       发表于 2021-9-22 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52839569&amp;ptid=2015640" target="_blank">stannislas 发表于 2021-9-22 02:13</a>
+嗯 看极客湾a15真的是杀疯了啊…</blockquote>
+今年a15 gpu这么猛，让人期待m1x上的核显
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  用户名已注册  
+##### 1047#       发表于 2021-9-22 13:50
+
+
+<img src="https://img.saraba1st.com/forum/202109/22/134948fqmmqa23qykbb3k6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>F26D09A7-F1A0-4357-9CD9-288849DDBECE.jpg</strong> (983.05 KB, 下载次数: 1)
+
+下载附件
+
+2021-9-22 13:49 上传
+
+
+壳到了，硕大得摄像头模组。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  s1-5-5  
+##### 1048#       发表于 2021-9-22 14:09
+
+
+不会真要等一个月吧,小城市没有可以提货的点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madbird302  
+##### 1049#       发表于 2021-9-22 16:41
+
+
+mini6的NDA要什么时候结束？
+
+
+*****
+
+####  猫不萌  
+##### 1050#       发表于 2021-9-22 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845926&amp;ptid=2015640" target="_blank">madbird302 发表于 2021-9-22 16:41</a>
+mini6的NDA要什么时候结束？</blockquote>
+预计今晚吧
+
+
