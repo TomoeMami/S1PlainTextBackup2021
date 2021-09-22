@@ -242,3 +242,19 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">面包超人
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3026#       发表于 2021-9-23 00:58
+
+
+ 本帖最后由 T_Hb 于 2021-9-23 01:00 编辑 
+
+bsyl
+<img src="https://p.sda1.dev/2/b4a15063dadea49c1ae9f324fb9433e5/IMG_CMP_220666589.jpeg" referrerpolicy="no-referrer">
+
+难以理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗贝尔在罗贝尔模仿比赛中荣获第一？
+
+
