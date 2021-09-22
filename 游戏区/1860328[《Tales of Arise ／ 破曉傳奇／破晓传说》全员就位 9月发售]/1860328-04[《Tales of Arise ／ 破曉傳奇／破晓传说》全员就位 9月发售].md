@@ -14721,3 +14721,38 @@ G值大家刷了这么久，也累了，1周目大后期直接给原来G值商�
 问题是打个五六战就到终点了......<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  windtrack  
+##### 5602#       发表于 2021-9-22 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52849502&amp;ptid=1860328" target="_blank">妄想中毒 发表于 2021-9-22 21:43</a>
+
+草，地灵的圣堂这什么傻逼支线啊，进迷宫就自动战斗状态没地图每个路口都有怪，怪就那么几种类型还特别硬， ...</blockquote>
+就是一个楔子BOSS的前戏，连续打个5、6组就行，底层BOSS要打3个阶段，第二阶段特别烦，建议55左右再来打
+
+
+*****
+
+####  妄想中毒  
+##### 5603#       发表于 2021-9-22 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52850486&amp;ptid=1860328" target="_blank">windtrack 发表于 2021-9-22 23:05</a>
+
+就是一个楔子BOSS的前戏，连续打个5、6组就行，底层BOSS要打3个阶段，第二阶段特别烦，建议55左右再来打 ...</blockquote>
+那我自杀还是很明智的，我才38后面更没法打了
+
+
+*****
+
+####  horacio  
+##### 5604#       发表于 2021-9-22 23:15
+
+
+说真的，要按以前的套路，每个国家起码两个村子加个首都才行
+
+
