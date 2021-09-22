@@ -16049,3 +16049,17 @@ a的太久了，好像差不多整整有2年，啥活动也没打，也没抽卡
 这次活动最方便的肯定是2个宝石加1个满破倍卡，只需要按4个技能就刷完了，反正加成礼装用不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  森兰丸  
+##### 83841#       发表于 2021-9-22 16:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">上油管随便点开一个视频看到1宝夹馍带2个C呆和倍卡礼装打这次的阴间枪本也稳的很.....这蓝卡队不还是能玩么
+
+
+明年复刻一定要补个2宝出来
+
+
