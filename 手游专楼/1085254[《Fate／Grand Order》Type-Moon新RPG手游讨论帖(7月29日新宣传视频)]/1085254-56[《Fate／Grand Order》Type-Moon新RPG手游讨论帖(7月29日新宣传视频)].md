@@ -16251,3 +16251,17 @@ NMD，道满这么快的吗
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  阿提拉  
+##### 83858#       发表于 2021-9-23 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52855813&amp;ptid=1085254" target="_blank">空气蛹 发表于 2021-9-23 12:45</a>
+
+对了，日服氪金的话现在除了信用卡直接氪就是代充和礼品卡了么，信用卡冲太亏了。我看前段时间说礼品卡会锁 ...</blockquote>
+别想了，礼品卡基本上已经不可能了
+
+
