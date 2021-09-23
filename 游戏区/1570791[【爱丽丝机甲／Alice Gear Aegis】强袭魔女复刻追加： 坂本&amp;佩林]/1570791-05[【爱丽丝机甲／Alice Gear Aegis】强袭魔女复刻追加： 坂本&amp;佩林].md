@@ -628,3 +628,18 @@ an本体专心搓剑炮就完事了对吗
 ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸继续专心剑炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没普通SP或者现在未能换装，不是敲柱子又不是要追人的话个人建议开ANSP后直接终结来一发大号剑炮后继续剑炮（
 
 
+
+
+*****
+
+####  蕾丝  
+##### 6046#       发表于 2021-9-23 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52850368&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-22 22:56</a>
+ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸继续专心剑炮没普通SP或者现在未能换装， ...</blockquote>
+嗯我现在就这样，ansp开了直接下滑把剑炮放掉
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+

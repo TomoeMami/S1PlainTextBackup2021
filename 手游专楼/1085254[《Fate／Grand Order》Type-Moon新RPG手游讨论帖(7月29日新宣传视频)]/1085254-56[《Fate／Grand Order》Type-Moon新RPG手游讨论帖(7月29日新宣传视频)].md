@@ -16341,3 +16341,15 @@ iOS现在充日服礼品卡需要一直在用而且有消费的老号
 新号注册马上倒腾礼品卡大概率永久锁号，新号用信用卡什么情况不清楚
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83865#       发表于 2021-9-23 16:06
+
+
+我已经当了一年多的信用卡战神了，本来是美区用来氪e7的，结果被锁死了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
