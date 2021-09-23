@@ -16324,3 +16324,20 @@ NMD，道满这么快的吗
 礼品卡  我反正没翻车过 不过我fgo只买福袋 多数用来买其他游戏的  应该一样
 
 
+
+
+*****
+
+####  UNISONIA  
+##### 83864#       发表于 2021-9-23 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52857190&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-9-23 15:01</a>
+
+现在ios还有办法充日服么....？</blockquote>
+iOS现在充日服礼品卡需要一直在用而且有消费的老号
+
+
+新号注册马上倒腾礼品卡大概率永久锁号，新号用信用卡什么情况不清楚
+
+
