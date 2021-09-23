@@ -6590,3 +6590,18 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 这游戏不会真的有人开挂入侵吧，这也太脑瘫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cwlqxs  
+##### 557#       发表于 2021-9-24 01:52
+
+
+ 本帖最后由 cwlqxs 于 2021-9-24 03:56 编辑 
+
+看喂狗组佩奇视频可以入侵时候在下水道门口qe来回蹭开门，今天试了下成功了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过也没啥意义
+
+金狙好像不如那个紫爆炸狙，金狙不能打身体秒人紫狙可以
+
+
