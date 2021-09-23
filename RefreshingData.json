@@ -52,7 +52,7 @@
     "title": "[【后花园】满朝文武哭死B站同好会批斗专楼（优爱腾御三家联合谴责叔叔）]",
     "lastedit": 1631916025,
     "category": "漫区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1914409": {
@@ -108,7 +108,7 @@
     "title": "[国产新冠疫苗消息]",
     "lastedit": 1632215165,
     "category": "外野",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1976031": {
@@ -124,7 +124,7 @@
     "title": "[2021年Q娃,Tropical Rouge 菲鲁兹蓝／花守／石川／濑户／日高／田中爱美]",
     "lastedit": 1632297626,
     "category": "漫区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1972634": {
@@ -132,7 +132,7 @@
     "title": "[宝钟马琳楼]",
     "lastedit": 1632234031,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1034361": {
@@ -220,7 +220,7 @@
     "title": "[每天更新进展，靠薅羊毛赚生活费存钱（4月纯羊毛收入1022）]",
     "lastedit": 1632200436,
     "category": "外野",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1983001": {
@@ -276,7 +276,7 @@
     "title": "[空间站核心舱发射成功，太阳能帆板已展开]",
     "lastedit": 1632300368,
     "category": "外野",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2001907": {
@@ -396,7 +396,7 @@
     "title": "[真女神转生五，11.11中文同步发售，中文宣传片公开／6.16晚七点直播节目]",
     "lastedit": 1631286052,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2010244": {
@@ -404,7 +404,7 @@
     "title": "[任天堂病栋4号楼！万丈高楼平地起，剑指新机和秋直！]",
     "lastedit": 1632301794,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2010295": {
@@ -540,7 +540,7 @@
     "title": "[机战30发布会讨论贴，更新B站直播地址]",
     "lastedit": 1632303656,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2014516": {
@@ -820,7 +820,7 @@
     "title": "[【P3】P-HP非官方组织讨论楼（b综水不了的时候可以在这里增加KPI）]",
     "lastedit": 1631763972,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2019657": {
@@ -1004,7 +1004,7 @@
     "title": "[s1娘贴贴]",
     "lastedit": 1632107174,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1570791": {
@@ -1012,7 +1012,7 @@
     "title": "[【爱丽丝机甲／Alice Gear Aegis】强袭魔女复刻追加： 坂本&amp;佩林]",
     "lastedit": 1632137359,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2001784": {
@@ -1548,7 +1548,7 @@
     "title": "[西恩刀塔节奏楼二号机 (TI10：10月7日开赛)]",
     "lastedit": 1632300072,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2022389": {
@@ -3269,7 +3269,7 @@
     "newtitle": "[]",
     "lastedit": 1631207249,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2023567": {
     "totalreply": 107,
@@ -3301,7 +3301,7 @@
     "newtitle": "[]",
     "lastedit": 1631613184,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2023523": {
     "totalreply": 73,
@@ -5045,7 +5045,7 @@
     "newtitle": "[]",
     "lastedit": 1631268529,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2024451": {
     "totalreply": 105,
@@ -5413,7 +5413,7 @@
     "newtitle": "[]",
     "lastedit": 1631285321,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2024612": {
     "totalreply": 72,
@@ -5461,7 +5461,7 @@
     "newtitle": "[]",
     "lastedit": 1631097394,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2024812": {
     "totalreply": 101,
@@ -5485,7 +5485,7 @@
     "newtitle": "[]",
     "lastedit": 1631066155,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2024817": {
     "totalreply": 145,
@@ -10087,14 +10087,6 @@
     "category": "外野",
     "active": true
   },
-  "2027672": {
-    "totalreply": 445,
-    "title": "[真没有姑娘看的出，闹下去的走向是在往男权社会加速么]",
-    "newtitle": "[]",
-    "lastedit": 1632286933,
-    "category": "外野",
-    "active": false
-  },
   "2027645": {
     "totalreply": 104,
     "title": "[求近期剧情不尬／演出能看的游戏推荐,附破晓和风来的吐槽]",
@@ -10183,14 +10175,6 @@
     "category": "外野",
     "active": true
   },
-  "2027688": {
-    "totalreply": 98,
-    "title": "[人和人之间的差距真的大到难以想象]",
-    "newtitle": "[]",
-    "lastedit": 1632285799,
-    "category": "外野",
-    "active": false
-  },
   "2027586": {
     "totalreply": 64,
     "title": "[大学生想买好用低调价格适中的非国产车是不是只有卡罗拉可选了]",
@@ -10214,14 +10198,6 @@
     "lastedit": 1632354454,
     "category": "外野",
     "active": true
-  },
-  "2027754": {
-    "totalreply": 105,
-    "title": "[东南亚漂在知乎被永封了]",
-    "newtitle": "[]",
-    "lastedit": 1632274943,
-    "category": "外野",
-    "active": false
   },
   "2027627": {
     "totalreply": 74,
@@ -10415,14 +10391,6 @@
     "category": "外野",
     "active": true
   },
-  "2027913": {
-    "totalreply": 108,
-    "title": "[从未真正树立理想信念，从未对党忠诚老实的省政法委]",
-    "newtitle": "[]",
-    "lastedit": 1632300363,
-    "category": "外野",
-    "active": false
-  },
   "2023343": {
     "totalreply": 181,
     "title": "[这次泥潭游戏区没人来聊一下失控玩家吗？(楼内有剧透)]",
@@ -10454,14 +10422,6 @@
     "lastedit": 1632306506,
     "category": "漫区",
     "active": true
-  },
-  "2027922": {
-    "totalreply": 97,
-    "title": "[窜稀时该怎么办]",
-    "newtitle": "[]",
-    "lastedit": 1632328086,
-    "category": "外野",
-    "active": false
   },
   "2027031": {
     "totalreply": 83,
