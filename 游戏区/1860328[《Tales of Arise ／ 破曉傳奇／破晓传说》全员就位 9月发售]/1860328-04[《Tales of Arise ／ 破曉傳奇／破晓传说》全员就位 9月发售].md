@@ -14993,3 +14993,17 @@ steam就差这个成就了  
 没几个，一个国顶天一个大城两三个村
 
 
+
+
+*****
+
+####  chan  
+##### 5622#       发表于 2021-9-23 10:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52853908&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-23 10:19</a>
+
+没几个，一个国顶天一个大城两三个村</blockquote>
+村算不上，也就国道边上有几栋房子的程度
+
+
