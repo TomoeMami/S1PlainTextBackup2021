@@ -14965,3 +14965,14 @@ vspo这新人，发色跟bora基本没差
 …说起来vtuber好像也不是不可以兼职？
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7095#       发表于 2021-9-23 19:44
+
+
+beni这队现在选了2个，花芽姐noa再加个beni，另外一队打个毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
