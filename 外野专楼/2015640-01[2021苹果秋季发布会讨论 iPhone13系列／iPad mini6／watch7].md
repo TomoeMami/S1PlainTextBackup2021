@@ -12117,3 +12117,14 @@ mini 6是CPU/GPU双降频版本，好处是续航和温度表现都很不错，�
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  rak1  
+##### 1075#       发表于 2021-9-23 14:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">京东怎么还在采购，人家官网都发货了
+
+
