@@ -12273,3 +12273,14 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿这，那还挺尴尬的
 
 
+
+
+*****
+
+####  mggr  
+##### 1088#       发表于 2021-9-23 16:50
+
+
+想问下明天线下会有ipad mini6的官方套现货吗？现在官网买要10.28日才到货。
+
+

@@ -14787,3 +14787,29 @@ vspo大联动怒砍5w
 我好像很早就说过vspo就是堂堂正正第三箱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7081#       发表于 2021-9-23 16:44
+
+
+虽然我也同意之前楼友的论断
+不过当初讨论的时候vspo和774的差距还没这么明显，top带小废物的构图跟774也是大差不差的
+我记得beni出道也就几千同接吧，之前vspo夏日祭mc同接表现也一般
+然后前几天ema就大跃进了
+
+这次5w正事宣告了vspo的地位
+
+
+*****
+
+####  bluebaby  
+##### 7082#       发表于 2021-9-23 16:59
+
+
+实际还是，要抽卡，隔段时间抽一次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+抽卡除了给你新的可能性，本身也是一次大型宣传，足够的人数对减少观众流失也有帮助。
+
+

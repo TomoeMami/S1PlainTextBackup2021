@@ -17258,3 +17258,35 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 鲤鱼这个中国直女怎么这么会撩女？
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 5902#       发表于 2021-9-23 16:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿鱼这左手就这么搂过去了
+
+
+*****
+
+####  tiro_finale  
+##### 5903#       发表于 2021-9-23 16:43
+
+
+“教祖化なろう系主人公”草，这个还挺准确的，香音这几话总感觉没什么特别突出的，但莫名就成了剧中所有人公认的最有分量人物，《转生成了JK所以打算去当最强的偶像》，堂堂连载
+
+
+*****
+
+####  chenflyyy  
+##### 5904#       发表于 2021-9-23 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52857766&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-23 15:55</a>
+
+又有新的贴贴视频了，官方这是剪了多少草</blockquote>
+新的贴贴视频在哪看？
+
+
