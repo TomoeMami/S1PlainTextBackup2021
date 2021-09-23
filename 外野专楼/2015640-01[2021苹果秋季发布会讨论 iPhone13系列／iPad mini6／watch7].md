@@ -12410,3 +12410,17 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 —— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 1098#       发表于 2021-9-23 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52861250&amp;ptid=2015640" target="_blank">togochina 发表于 2021-9-23 21:44</a>
+
+10月10号？</blockquote>
+是的 可能是天选之人吧 我记得是pro远锋蓝256<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
+
+

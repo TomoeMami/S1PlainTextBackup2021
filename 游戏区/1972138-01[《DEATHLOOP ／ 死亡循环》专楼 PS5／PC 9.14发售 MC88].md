@@ -6552,3 +6552,41 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 要是像星际拓荒一样按照真实时间限制周目+无缝地图，配上ARKANE的场景细节+线索引导，那才是真的完全体神作<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  量子大蛇  
+##### 555#       发表于 2021-9-23 23:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52861279&amp;ptid=1972138" target="_blank">Asukalangley33 发表于 2021-9-23 21:48</a>
+
+通关了，结局感觉突然一下就完了，缺一点爽感
+
+而且越玩到后面越可惜,ARKANE不能把整个世界做成一个整体
+
+分 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/23/234010naforojhf7sdaytf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210920191221_1.jpg</strong> (199.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-23 23:40 上传
+
+
+我还专门截了张图，站在狼穴能看到邪教头子的机库
+
+
+*****
+
+####  CharlieZ-  
+##### 556#       发表于 2021-9-23 23:45
+
+
+这游戏不会真的有人开挂入侵吧，这也太脑瘫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
