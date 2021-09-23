@@ -17061,3 +17061,34 @@ s1官方版客户端我记得可以绕过注册后的cd时间，不知道现在�
 花田用心良苦
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 5886#       发表于 2021-9-23 11:03
+
+
+【9月30日発売！表紙をW初公開】
+
+LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブライブ！スーパースター!! 」より、嵐千砂都と葉月恋💫
+
+電撃G'sマガジン11月号の表紙はLiella!の5人💫
+
+どちらも9月30日に発売です。お見逃しなく
+<img src="https://p.sda1.dev/2/e6857f8fcc8b090c993988af72361084/20210923_110217.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/868c56cfe63f3abbc07f32b47584b9c2/20210923_110219.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 5887#       发表于 2021-9-23 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52853046&amp;ptid=1909972" target="_blank">saya1892 发表于 2021-9-23 09:15</a>
+
+看了几个帖子，感觉拉版认真讨论的人还是觉得大家塑造都有问题，并没有抓着可可一个人怼，这个概括还是有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">恋这个评价是不是过分了
+
+

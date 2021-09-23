@@ -367,3 +367,23 @@ line表情包有人扒下来了吗
 搞联动和事业心有啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">倒还不如说这女人没活了，除了穿插着杂谈的歌会之外想不到其他能播的东西，所以为了调剂调剂生活去参加各种联动
 
 
+
+
+*****
+
+####  十九号大侠  
+##### 3037#       发表于 2021-9-23 11:14
+
+
+主播想干啥就干啥，观众管不了
+
+
+*****
+
+####  雪风utopia  
+##### 3038#       发表于 2021-9-23 11:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
