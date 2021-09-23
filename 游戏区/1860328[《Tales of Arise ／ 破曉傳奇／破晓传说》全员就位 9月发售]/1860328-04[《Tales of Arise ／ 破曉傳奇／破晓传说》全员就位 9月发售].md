@@ -15448,3 +15448,14 @@ steam就差这个成就了   ...</blockquote>
 然而这鬼地方从头到尾没半个鬼影....也只有这一次主线剧情时有用到过....感觉是真的浪费....真不知道制作组在想什么
 
 
+
+
+*****
+
+####  godless2020  
+##### 5649#       发表于 2021-9-24 07:32
+
+
+最后一个杯子果然是钓鱼，比想象的简单....<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
