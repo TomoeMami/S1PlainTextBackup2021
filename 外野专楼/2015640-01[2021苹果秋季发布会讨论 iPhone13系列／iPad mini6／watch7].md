@@ -12164,3 +12164,17 @@ mini 6是CPU/GPU双降频版本，好处是续航和温度表现都很不错，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想起了以前双十一买京东的iPhone，拖了一两个星期才发货。原价的永远次日到
 
 
+
+
+*****
+
+####  用户名已注册  
+##### 1079#       发表于 2021-9-23 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52857182&amp;ptid=2015640" target="_blank">M1NG 发表于 2021-9-23 14:59</a>
+
+按客服说的首批也得26才发，可能jd是从官网买了再发吧</blockquote>
+诶，我那天买的时候，显示是25日0点前发货，预定首日23点下单的那批。
+
+

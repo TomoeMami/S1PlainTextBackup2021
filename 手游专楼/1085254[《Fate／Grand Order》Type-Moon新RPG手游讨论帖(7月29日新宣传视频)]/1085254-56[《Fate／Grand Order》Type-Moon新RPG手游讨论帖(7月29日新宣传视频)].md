@@ -16278,3 +16278,23 @@ NMD，道满这么快的吗
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  johnkamsar  
+##### 83860#       发表于 2021-9-23 15:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在ios还有办法充日服么....？
+
+
+*****
+
+####  阿提拉  
+##### 83861#       发表于 2021-9-23 15:12
+
+
+90+夹馍魔总一个带倍卡一个带50NP礼装，夹馍打一二面支援就找CAB反之支援就找CBA，剩下带羁绊礼装和掉落礼装可劲刷就是了，完全不换人还能有效刷羁绊
+
+
