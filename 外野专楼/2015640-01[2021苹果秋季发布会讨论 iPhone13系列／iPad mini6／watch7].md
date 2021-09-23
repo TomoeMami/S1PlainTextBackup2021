@@ -12128,3 +12128,39 @@ mini 6是CPU/GPU双降频版本，好处是续航和温度表现都很不错，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">京东怎么还在采购，人家官网都发货了
 
 
+
+
+*****
+
+####  用户名已注册  
+##### 1076#       发表于 2021-9-23 14:54
+
+
+<blockquote>I’ve only had the phones for a little less than a week, so I focused most of my use on the smaller iPhone 13 Pro as a kind of worst-case test. And my results are in line with Apple’s claims. On a day when we really pushed the phone with lots of 4K video and max brightness on the screen, it still lasted from early morning to 11PM with 20 percent remaining — with somewhere north of four hours of very heavy use in the screen time tracking app. A day with less intense usage clocked me at seven hours of screen on time before the low battery warning kicked in.</blockquote>
+
+[https://www.theverge.com/22684033/apple-iphone-13-pro-max-review](https://www.theverge.com/22684033/apple-iphone-13-pro-max-review)
+
+
+*****
+
+####  M1NG  
+##### 1077#       发表于 2021-9-23 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856599&amp;ptid=2015640" target="_blank">rak1 发表于 2021-9-23 14:01</a>
+
+京东怎么还在采购，人家官网都发货了</blockquote>
+按客服说的首批也得26才发，可能jd是从官网买了再发吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Totokei  
+##### 1078#       发表于 2021-9-23 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856599&amp;ptid=2015640" target="_blank">rak1 发表于 2021-9-23 14:01</a>
+京东怎么还在采购，人家官网都发货了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想起了以前双十一买京东的iPhone，拖了一两个星期才发货。原价的永远次日到
+
+
