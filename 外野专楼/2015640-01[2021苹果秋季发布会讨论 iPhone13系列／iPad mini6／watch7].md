@@ -12077,3 +12077,43 @@ mini 6是CPU/GPU双降频版本，好处是续航和温度表现都很不错，�
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  情報屋  
+##### 1072#       发表于 2021-9-23 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856077&amp;ptid=2015640" target="_blank">moekyo 发表于 2021-9-23 13:09</a>
+
+应该会绑序列号的吧，而且就是这样的骚操作多了，才让大陆售后保修环境变差的吧 ...</blockquote>
+懂了，那直接拒收等等好了，反正不着急用
+
+
+*****
+
+####  布拉德莱恩  
+##### 1073#       发表于 2021-9-23 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856241&amp;ptid=2015640" target="_blank">prayto7f 发表于 2021-9-23 13:23</a>
+补个图
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+这是古希腊盾牌么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  prayto7f  
+##### 1074#       发表于 2021-9-23 13:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856373&amp;ptid=2015640" target="_blank">布拉德莱恩 发表于 2021-9-23 13:36</a>
+这是古希腊盾牌么内侧还藏着把短剑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">确实丑，但是目前就找到那么一款
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

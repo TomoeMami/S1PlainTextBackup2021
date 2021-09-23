@@ -17200,3 +17200,27 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 花田能把回国失声的样板戏写好就不错了，还能对他有更高的要求吗
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 5897#       发表于 2021-9-23 13:21
+
+
+我只希望花田别写正戏了，来点日常贴贴回吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 5898#       发表于 2021-9-23 13:34
+
+
+ 本帖最后由 笋狐 于 2021-9-23 13:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856161&amp;ptid=1909972" target="_blank">稀勢のささ 发表于 2021-9-23 13:16</a>
+
+“何でもない”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是第五六集的香音说的，和第十一集的香音有什么关系（
+
+
