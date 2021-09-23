@@ -15206,3 +15206,34 @@ steam就差这个成就了  
 艹，op2居然是那首歌，我还以为要卖佳能相机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 5635#       发表于 2021-9-23 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52848839&amp;ptid=1860328" target="_blank">loley 发表于 2021-9-22 20:33</a>
+
+第二章那估计清算不动吧，大部分人不是自己举报就是默许举报，被大叔吼一吼唤醒下人性这种处理还算OK。第三 ...</blockquote>
+第四章结束了，很多方面确实炸裂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+要说前三章虽然也有很尬的嘴炮但也不是不能接受
+
+这第四章中段的内讧嘴炮我实在看的不好意思，干脆上厕所去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桧月彩花  
+##### 5636#       发表于 2021-9-23 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52851288&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-23 00:25</a>
+
+修改器欢迎你，ps4也可以用sw改存档，至于ps5和巨硬家的……还是买dlc吧</blockquote>
+想了想还是买了DLC，就当三十块买瓶护肝丸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
