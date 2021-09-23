@@ -17092,3 +17092,16 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">恋这个评价是不是过分了
 
 
+
+
+*****
+
+####  saglork  
+##### 5888#       发表于 2021-9-23 11:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52853046&amp;ptid=1909972" target="_blank">saya1892 发表于 2021-9-23 09:15</a>
+看了几个帖子，感觉拉版认真讨论的人还是觉得大家塑造都有问题，并没有抓着可可一个人怼，这个概括还是有 ...</blockquote>
+除了ガイジ，不是挺恰当的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+

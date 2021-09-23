@@ -15007,3 +15007,16 @@ steam就差这个成就了  
 村算不上，也就国道边上有几栋房子的程度
 
 
+
+
+*****
+
+####  七氷  
+##### 5623#       发表于 2021-9-23 11:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52852299&amp;ptid=1860328" target="_blank">z.s 发表于 2021-9-23 08:01</a>
+准备买，这作的城市规模宏大不？城镇，村庄多不？</blockquote>
+道馆
+
+
