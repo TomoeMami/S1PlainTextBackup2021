@@ -14153,3 +14153,18 @@ Collab比较有印象的也就是去润润Live，去三才Live，去Kanata的Liv
 绫总但凡每年看点比赛英雄池和游戏理解也不会这么僵硬了
 
 
+
+
+*****
+
+####  Fami水  
+##### 13204#       发表于 2021-9-23 23:16
+
+
+摸这件事，绫总之前那种直播频率对于我来说感觉是最好的
+
+直播这个对于双方都应该是兴趣使然的，如果单纯的把直播当做上班，那对于播的人和看得人来说，都太过于痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+当然，这几个月的绫总太过于摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
