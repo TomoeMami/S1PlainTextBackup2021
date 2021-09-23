@@ -2555,3 +2555,26 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 应该送去给天龙人和姨母看，然后全剧终
 
 
+
+
+*****
+
+####  白金口袋  
+##### 55681#       发表于 2021-9-16 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726761&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2021-9-12 09:53</a>
+
+这活很怪很好。</blockquote>
+这不是猎人那个王子的圣经吗？谁看谁入教而且死心塌地的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南条一间  
+##### 55682#       发表于 2021-9-23 17:43
+
+
+霸王色霸气撕裂天空，五皇的表现终于算踏入皇级了
+
+

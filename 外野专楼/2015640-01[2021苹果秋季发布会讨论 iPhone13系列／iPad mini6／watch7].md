@@ -12284,3 +12284,17 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 想问下明天线下会有ipad mini6的官方套现货吗？现在官网买要10.28日才到货。
 
 
+
+
+*****
+
+####  madbird302  
+##### 1089#       发表于 2021-9-23 17:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52858397&amp;ptid=2015640" target="_blank">mggr 发表于 2021-9-23 16:50</a>
+
+想问下明天线下会有ipad mini6的官方套现货吗？现在官网买要10.28日才到货。</blockquote>
+本地的applestore的说法是，明后和大后天全部只接待预定用户提货，买别的东西请下周晚些时候
+
+

@@ -643,3 +643,14 @@ ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸�
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 6047#       发表于 2021-9-23 17:54
+
+
+不愧是涛哥，就算只有一个剪影也依然是那么搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
