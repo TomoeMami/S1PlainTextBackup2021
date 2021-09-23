@@ -17163,3 +17163,40 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 最有趣的不是对恋的迫害吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  笋狐  
+##### 5894#       发表于 2021-9-23 13:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">内因的失声已经解决了，可不得安排个外因的失声啊
+
+
+「わたしはクゥクゥちゃんのスター、そう言ましたね、でもそれは違うよ、クゥクゥちゃんがいなければ、わたしは...また歌えない臆病なわたしに..だからお願いクゥクゥちゃん！行かないで、クゥクゥちゃんはークゥクゥちゃんもーわたしのスターなんですから！！」
+
+
+*****
+
+####  稀勢のささ  
+##### 5895#       发表于 2021-9-23 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856132&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-23 13:13</a>
+内因的失声已经解决了，可不得安排个外因的失声啊
+
+
+「わたしはクゥクゥちゃんのスター、そう言まし ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">“何でもない”
+
+
+*****
+
+####  凡人  
+##### 5896#       发表于 2021-9-23 13:16
+
+
+花田能把回国失声的样板戏写好就不错了，还能对他有更高的要求吗
+
+

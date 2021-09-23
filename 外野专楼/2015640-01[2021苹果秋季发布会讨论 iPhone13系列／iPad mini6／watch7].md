@@ -11996,3 +11996,84 @@ mini其实不是满血，cpu和gpu都降频处理了，相当于出场省电模�
 原价mini6发货了，教育优惠mini6要10/1到，可以拆了先到的把后到的退回去吗
 
 
+
+
+*****
+
+####  moekyo  
+##### 1066#       发表于 2021-9-23 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52855972&amp;ptid=2015640" target="_blank">情報屋 发表于 2021-9-23 13:00</a>
+
+原价mini6发货了，教育优惠mini6要10/1到，可以拆了先到的把后到的退回去吗</blockquote>
+应该会绑序列号的吧，而且就是这样的骚操作多了，才让大陆售后保修环境变差的吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leeex  
+##### 1067#       发表于 2021-9-23 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52855142&amp;ptid=2015640" target="_blank">prayto7f 发表于 2021-9-23 11:50</a>
+
+查了下快递大概明天就能收到mini6了，找了一圈保护壳竟然没有那种后面可以套手防掉的，其他壳也比较少，有 ...</blockquote>
+终于找到同志了，我也找了好几天也没看到这样的套。要么就是给儿童用的很大一个壳。
+
+回头兄弟要是找到了记得来论坛说一声。
+
+
+*****
+
+####  万一被塞了呢  
+##### 1068#       发表于 2021-9-23 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856101&amp;ptid=2015640" target="_blank">leeex 发表于 2021-9-23 13:11</a>
+
+终于找到同志了，我也找了好几天也没看到这样的套。要么就是给儿童用的很大一个壳。
+
+回头兄弟要是找到了 ...</blockquote>
+同需求 插眼
+
+
+*****
+
+####  starash  
+##### 1069#       发表于 2021-9-23 13:19
+
+
+mini 6是CPU/GPU双降频版本，好处是续航和温度表现都很不错，坏处是性能基本和Air4一致。
+
+
+*****
+
+####  prayto7f  
+##### 1070#       发表于 2021-9-23 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856101&amp;ptid=2015640" target="_blank">leeex 发表于 2021-9-23 13:11</a>
+终于找到同志了，我也找了好几天也没看到这样的套。要么就是给儿童用的很大一个壳。
+
+回头兄弟要是找到了 ...</blockquote>
+阿里巴巴上面找到了一款，20多块，后面有个笔槽跟手托带，不过不支持横放，而且现在只有批发渠道，估计要过段时间tb上面才会有零售吧，先买个普通的用着了只能
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  prayto7f  
+##### 1071#       发表于 2021-9-23 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52856101&amp;ptid=2015640" target="_blank">leeex 发表于 2021-9-23 13:11</a>
+终于找到同志了，我也找了好几天也没看到这样的套。要么就是给儿童用的很大一个壳。
+
+回头兄弟要是找到了 ...</blockquote>
+补个图<img src="https://p.sda1.dev/2/ec1895776b37f3c43fefd2b8d9c1b965/IMG_CMP_255394407.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
