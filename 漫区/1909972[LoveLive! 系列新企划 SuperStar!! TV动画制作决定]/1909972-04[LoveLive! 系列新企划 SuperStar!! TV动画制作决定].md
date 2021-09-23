@@ -17351,3 +17351,18 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">动画人际关系玩崩了全靠真人了
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5910#       发表于 2021-9-23 22:01
+
+
+ 本帖最后由 秋月艾莉 于 2021-9-23 22:02 编辑 
+
+哪怕是批判得最猛的5ch，版面上星团最多的可堇同人小作文都还是这个套路呢，90％的文都是唐可可爆喷阿堇然后最后娇一下
+
+推上同人图也一样是唐可可连呼大王具足虫，吃的人自然会吃的，根本无需担心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
