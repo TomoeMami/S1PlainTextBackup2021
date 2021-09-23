@@ -14968,3 +14968,28 @@ steam就差这个成就了  
 一报还一报啊
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5620#       发表于 2021-9-23 10:15
+
+
+北京时间下午五点公开 ARISE角色 参战 THE RAYS的情报
+
+[https://www.youtube.com/watch?v=4S3lwxOpRvg](https://www.youtube.com/watch?v=4S3lwxOpRvg)
+
+
+*****
+
+####  JudgmentEye  
+##### 5621#       发表于 2021-9-23 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52852299&amp;ptid=1860328" target="_blank">z.s 发表于 2021-9-23 08:01</a>
+
+准备买，这作的城市规模宏大不？城镇，村庄多不？</blockquote>
+没几个，一个国顶天一个大城两三个村
+
+

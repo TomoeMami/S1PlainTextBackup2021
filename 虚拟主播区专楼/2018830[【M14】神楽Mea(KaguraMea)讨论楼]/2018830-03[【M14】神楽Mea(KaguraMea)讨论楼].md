@@ -323,3 +323,36 @@ line表情包有人扒下来了吗
 从事业民的角度考虑，搞联动直播正是该主播拥有事业心的表现，等什么时候没有一个人找她联动、仿佛已经被整个v圈遗忘的时候才是她真正入土的时候
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3033#       发表于 2021-9-23 10:06
+
+
+ 本帖最后由 T_Hb 于 2021-9-23 10:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实就是总要找人玩的嘛，联动顺便一起玩
+
+万用工具人，玩的又熟，肯定爱找她
+
+
+*****
+
+####  雪风utopia  
+##### 3034#       发表于 2021-9-23 10:14
+
+
+期待主播没钱，上播哭诉的哪一天<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3035#       发表于 2021-9-23 10:18
+
+
+到时候找苔总介绍个老板，或者直接给苔总打工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
