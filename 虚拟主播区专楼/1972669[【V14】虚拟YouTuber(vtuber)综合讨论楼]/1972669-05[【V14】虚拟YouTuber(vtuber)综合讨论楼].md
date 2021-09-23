@@ -14906,3 +14906,39 @@ vspo的应该算是异种独角兽吧
 什么枪女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7090#       发表于 2021-9-23 18:23
+
+
+配种型独角兽还行，虽然你说得对，但是还是被逗笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 7091#       发表于 2021-9-23 18:31
+
+
+ 本帖最后由 poipanchao 于 2021-9-23 18:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52859441&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2021-9-23 18:23</a>
+配种型独角兽还行，虽然你说得对，但是还是被逗笑了</blockquote>
+我主要是想到了眼前闪过的无数连体人
+包括但不限于六字母，六字母，三汉字，四汉字等等
+
+syl，怎么说呢，他不看kmt只看hnn，只允许kmt一个男人，别的男人来就要踩
+不涉及cp的时候完全是独角兽形态
+
+
+*****
+
+####  ヒトニナル  
+##### 7092#       发表于 2021-9-23 18:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这种难道不应该是厄介CP厨吗
+
+
