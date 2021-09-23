@@ -11922,3 +11922,51 @@ mini6跑原神太强了
 原神在m1 ipad上面有结论了吗？
 
 
+
+
+*****
+
+####  Eadric  
+##### 1060#       发表于 2021-9-23 11:49
+
+
+mini6已发货了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  prayto7f  
+##### 1061#       发表于 2021-9-23 11:50
+
+
+查了下快递大概明天就能收到mini6了，找了一圈保护壳竟然没有那种后面可以套手防掉的，其他壳也比较少，有的甚至还要预约<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  橋白  
+##### 1062#       发表于 2021-9-23 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52855142&amp;ptid=2015640" target="_blank">prayto7f 发表于 2021-9-23 11:50</a>
+查了下快递大概明天就能收到mini6了，找了一圈保护壳竟然没有那种后面可以套手防掉的，其他壳也比较少，有 ...</blockquote>
+可以考虑买个额外的指环扣？
+
+
+*****
+
+####  prayto7f  
+##### 1063#       发表于 2021-9-23 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52855181&amp;ptid=2015640" target="_blank">橋白 发表于 2021-9-23 11:53</a>
+可以考虑买个额外的指环扣？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">之前手机弄过一个，感觉不是很舒服
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
