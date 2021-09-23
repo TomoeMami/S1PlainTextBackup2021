@@ -16298,3 +16298,29 @@ NMD，道满这么快的吗
 90+夹馍魔总一个带倍卡一个带50NP礼装，夹馍打一二面支援就找CAB反之支援就找CBA，剩下带羁绊礼装和掉落礼装可劲刷就是了，完全不换人还能有效刷羁绊
 
 
+
+
+*****
+
+####  Coda  
+##### 83862#       发表于 2021-9-23 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52857190&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-9-23 15:01</a>
+
+现在ios还有办法充日服么....？</blockquote>
+礼品卡可以 我没翻车
+
+
+*****
+
+####  alucardcz  
+##### 83863#       发表于 2021-9-23 15:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52857190&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-9-23 15:01</a>
+
+现在ios还有办法充日服么....？</blockquote>
+礼品卡  我反正没翻车过 不过我fgo只买福袋 多数用来买其他游戏的  应该一样
+
+
