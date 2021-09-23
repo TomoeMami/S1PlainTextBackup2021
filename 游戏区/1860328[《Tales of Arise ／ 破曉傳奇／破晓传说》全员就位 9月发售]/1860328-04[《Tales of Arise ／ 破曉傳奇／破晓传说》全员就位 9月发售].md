@@ -15378,3 +15378,21 @@ steam就差这个成就了   ...</blockquote>
 什么叫大规模城市..参考巫师3或者wow的主城
 
 
+
+
+*****
+
+####  Dashuaibi  
+##### 5644#       发表于 2021-9-24 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52863076&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-24 00:58</a>
+
+很多路都不能走 例如水城大吗 壮观吗..但是能去的地方就那么几条道
+
+这能叫宏大?</blockquote>
+怎么这么多人咬着个宏大不放的，布景宏大和可活动范围小不冲突有那么难理解吗
+
+还是说宏大这个词有什么我不知道的出警定义，那ff15的水城算不算宏大？
+
+
