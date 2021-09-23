@@ -2852,3 +2852,16 @@ A：“A，鲨鱼头姐姐你还不毕业吗？在想台本吗？”
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  逸yi  
+##### 227#       发表于 2021-9-23 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52853720&amp;ptid=2021175" target="_blank">猫溺泉君 发表于 2021-9-23 10:05</a>
+我纯路人，群里有人整天犯病才来看看这楼的，什么vtb什么的真不熟</blockquote>
+她在塞纳河的时候就是坛友了  那时候泥潭有几个去握她的
+
+
