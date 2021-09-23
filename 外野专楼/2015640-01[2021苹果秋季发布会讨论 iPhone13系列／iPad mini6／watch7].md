@@ -12367,3 +12367,19 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也是1~13没变化还是处理中
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 1095#       发表于 2021-9-23 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52859653&amp;ptid=2015640" target="_blank">togochina 发表于 2021-9-23 18:47</a>
+
+预计10.1-13号的手机已经准备发货了，有经验的大手子能说下可能提前吗？
+
+ ...</blockquote>
+别坛看到的图 10号的已经发出来了 明天就能收到的样子<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
+
+

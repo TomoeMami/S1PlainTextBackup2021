@@ -6457,3 +6457,80 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  屑猫猫  
+##### 549#       发表于 2021-9-23 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52844616&amp;ptid=1972138" target="_blank">thoroughwort 发表于 2021-9-22 14:58</a>
+打通后感觉后期游戏流程中体验最好的地方是被入侵，熟悉地图后任务全在跑流程
+最开始觉得每跑两三张 ...</blockquote>
+我是专门给精妙反射组了一套提升dps的插件，一般遇到入侵我4秒就能杀掉他了。今天还把毒霰弹弄了出来，感觉被入侵时会更快乐
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  moimoi  
+##### 550#       发表于 2021-9-23 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52860762&amp;ptid=1972138" target="_blank">电磁炮233 发表于 2021-9-23 20:48</a>
+
+你还没过新手关，直接按指引做主线
+
+
+—— 来自 S1Fun</blockquote>
+已经在做了吧……好歹把都离开中央区了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+新手关这么长吗
+
+
+*****
+
+####  屑猫猫  
+##### 551#       发表于 2021-9-23 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52861044&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-23 21:19</a>
+已经在做了吧……好歹把都离开中央区了
+
+新手关这么长吗</blockquote>
+新手关是打完那个最多的boss才算过了教学关，把攒资源的系统拿到才算的
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  moimoi  
+##### 552#       发表于 2021-9-23 21:22
+
+
+这次开头剧情可以说十分吸引人，男主十分讨喜，好喜欢他的吐槽，一路探索下来一点都不寂寞，朱莉安娜也是，性格好可爱
+
+比起prey过于寂寞的探索进步了不少
+
+剧情上埋伏的细节也很多，我迫不及待探索所有文本录音，而且信息的反馈感也很深
+
+阿肯进步很大
+
+
+*****
+
+####  电磁炮233  
+##### 553#       发表于 2021-9-23 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52861044&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-23 21:19</a>
+
+已经在做了吧……好歹把都离开中央区了
+
+新手关这么长吗</blockquote>
+至少要到获得灌注能力才算开始吧，否则之前再怎么探索资源都保留不了
+
+
