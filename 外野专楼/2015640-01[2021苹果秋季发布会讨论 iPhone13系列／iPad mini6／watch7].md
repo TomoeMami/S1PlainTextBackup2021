@@ -12211,3 +12211,65 @@ mini 6是CPU/GPU双降频版本，好处是续航和温度表现都很不错，�
 明天中午去香港广场拿mini6<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  madbird302  
+##### 1083#       发表于 2021-9-23 16:30
+
+
+今天又看了眼256G mini6发货日已经到11月3-11月17，感觉就算过了双11也要跟欧美黑五连上了
+
+
+*****
+
+####  M1NG  
+##### 1084#       发表于 2021-9-23 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52857374&amp;ptid=2015640" target="_blank">用户名已注册 发表于 2021-9-23 15:20</a>
+
+诶，我那天买的时候，显示是25日0点前发货，预定首日23点下单的那批。</blockquote>
+我还是八点一分钟内的首发，今天问客服说是26号发，尽早，也不知道有多早<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  starash  
+##### 1085#       发表于 2021-9-23 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52858030&amp;ptid=2015640" target="_blank">chivalry 发表于 2021-9-23 16:21</a>
+
+看了一圈评测好像都没提信号强度，是因为从12开始已经改善了不值得提还是提不成，我这xs准备换13瑟瑟发抖啊 ...</blockquote>
+12和XR之前的iPhone差不多。就这么回事。
+
+iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行模式4秒再解除的捷径来快速重置网络。
+
+
+*****
+
+####  用户名已注册  
+##### 1086#       发表于 2021-9-23 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52858147&amp;ptid=2015640" target="_blank">M1NG 发表于 2021-9-23 16:31</a>
+
+我还是八点一分钟内的首发，今天问客服说是26号发，尽早，也不知道有多早 ...</blockquote>
+那也有可能的，给一个保守的数字，省的来不及。
+
+
+*****
+
+####  chivalry  
+##### 1087#       发表于 2021-9-23 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52858272&amp;ptid=2015640" target="_blank">starash 发表于 2021-9-23 16:41</a>
+12和XR之前的iPhone差不多。就这么回事。
+
+iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行模式4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿这，那还挺尴尬的
+
+
