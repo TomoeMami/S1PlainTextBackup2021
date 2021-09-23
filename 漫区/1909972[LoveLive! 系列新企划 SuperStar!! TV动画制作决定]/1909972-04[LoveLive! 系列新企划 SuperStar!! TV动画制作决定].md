@@ -17130,3 +17130,36 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 <img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">どうしてこうなった
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5891#       发表于 2021-9-23 12:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几个专楼串里夹杂的剧情猜想也挺有趣的
+
+几乎一致是9成团10合宿11可可回国卡农失声12大团圆
+
+有人吐槽为什么你们怎么说得这么笃定，被反吐槽那不然还能演什么啊wwwww<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 5892#       发表于 2021-9-23 12:56
+
+
+卡农别失声了，都已经整两回了
+
+
+*****
+
+####  没有爱就看不见  
+##### 5893#       发表于 2021-9-23 12:58
+
+
+最有趣的不是对恋的迫害吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -11970,3 +11970,29 @@ mini6已发货了
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  soli1tude0  
+##### 1064#       发表于 2021-9-23 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52851854&amp;ptid=2015640" target="_blank">a12885084 发表于 2021-9-23 03:00</a>
+测试出来了，这波是真满血，某神最高画质帧数测试，mini一骑绝尘这么看CPU频率阉割了反而是优势，有利于温 ...</blockquote>
+mini其实不是满血，cpu和gpu都降频处理了，相当于出场省电模式
+
+另外原神还没适配mini，过段时间再看吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  情報屋  
+##### 1065#       发表于 2021-9-23 13:00
+
+
+原价mini6发货了，教育优惠mini6要10/1到，可以拆了先到的把后到的退回去吗
+
+

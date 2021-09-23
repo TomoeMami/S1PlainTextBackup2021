@@ -16221,3 +16221,16 @@ NMD，道满这么快的吗
 最后一发十连，金卡<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  空气蛹  
+##### 83856#       发表于 2021-9-23 12:45
+
+
+对了，日服氪金的话现在除了信用卡直接氪就是代充和礼品卡了么，信用卡冲太亏了。我看前段时间说礼品卡会锁地区是怎么回事，我play商店在日区挂日本梯子能不能用啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
