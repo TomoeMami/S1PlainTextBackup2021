@@ -1894,3 +1894,17 @@ Switch要考虑有Switch Lite存在，不可能弄成Switch专属的特异性游
 佩妮的单人关分数成就打了十多次才完成，要被加速的BGM**了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  islxyqwe  
+##### 154#       发表于 2021-9-24 00:26
+
+
+<img src="https://p.sda1.dev/2/b6c99cf11f1d62d655c7969a46030902/IMG_CMP_178320414.jpeg" referrerpolicy="no-referrer">
+暂停大法好（
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
