@@ -15034,3 +15034,80 @@ steam就差这个成就了  
 哪里刷钱快啊...
 
 
+
+
+*****
+
+####  武者小路紫苑  
+##### 5625#       发表于 2021-9-23 17:02
+
+
+老有人把这代五个国家比作道馆，说实话有点过分了，宝可梦一个城能进的房子不比TOAR多多了
+
+
+*****
+
+####  qzfjnv  
+##### 5626#       发表于 2021-9-23 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52858470&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-23 16:57</a>
+
+终于通了，玩了整整70小时
+
+我打游戏真的是很慢了...
+
+准备开始挖挖矿洗首饰了，但是发现很缺钱</blockquote>
+挖矿掉的那些金碎片卖了完全够用吧，还可以吃个获得矿石数量大的料理再去挖
+
+
+*****
+
+####  qiyu1234  
+##### 5627#       发表于 2021-9-23 17:07
+
+
+希侬 奥尔芬 参战镜光传说 PV
+[https://www.youtube.com/watch?v=4S3lwxOpRvg](https://www.youtube.com/watch?v=4S3lwxOpRvg)
+
+
+<img src="https://img.saraba1st.com/forum/202109/23/170750kq6qiwr3bqwjqdwh.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (372.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-23 17:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/23/170750gvs3nzzoof6w443s.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (389.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-23 17:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/23/170750lq4tbryyihat5b7h.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (348.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-23 17:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/23/170751dcas8xy8xvqqguxx.png" referrerpolicy="no-referrer">
+
+
+<strong>4.png</strong> (295.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-23 17:07 上传
+
+
