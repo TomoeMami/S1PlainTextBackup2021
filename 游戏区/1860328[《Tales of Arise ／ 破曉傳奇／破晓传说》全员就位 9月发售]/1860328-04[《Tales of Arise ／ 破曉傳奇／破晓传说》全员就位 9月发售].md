@@ -15429,3 +15429,22 @@ steam就差这个成就了   ...</blockquote>
 入了队之后好像就再没见过了 走和跑都没那味 属实遗憾
 
 
+
+
+*****
+
+####  森兰丸  
+##### 5648#       发表于 2021-9-24 06:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52863076&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-24 00:58</a>
+
+很多路都不能走 例如水城大吗 壮观吗..但是能去的地方就那么几条道
+
+这能叫宏大?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">说到这个印象最深的就是游戏进度到刚放完OP2游戏开场时水城城顶的那个天台....做的又大又漂亮
+
+
+然而这鬼地方从头到尾没半个鬼影....也只有这一次主线剧情时有用到过....感觉是真的浪费....真不知道制作组在想什么
+
+
