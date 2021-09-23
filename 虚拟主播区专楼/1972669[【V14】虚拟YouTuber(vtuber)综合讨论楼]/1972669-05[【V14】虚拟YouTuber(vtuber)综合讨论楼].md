@@ -14953,3 +14953,15 @@ syl，怎么说呢，他不看kmt只看hnn，只允许kmt一个男人，别的�
 厄介连体人也比レインさん身上那些厄介🦄（还是男人那边的母🦄？）好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7094#       发表于 2021-9-23 19:02
+
+
+vspo这新人，发色跟bora基本没差
+…说起来vtuber好像也不是不可以兼职？
+
+
