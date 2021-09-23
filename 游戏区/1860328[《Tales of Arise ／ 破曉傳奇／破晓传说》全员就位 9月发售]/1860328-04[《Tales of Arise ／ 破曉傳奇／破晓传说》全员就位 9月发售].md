@@ -15357,3 +15357,24 @@ steam就差这个成就了   ...</blockquote>
 所以我说了可活动范围一般布景宏大，层主发帖问规模如何按前面描述不知道还以为每座城市就两三栋楼
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5643#       发表于 2021-9-24 00:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52859709&amp;ptid=1860328" target="_blank">Dashuaibi 发表于 2021-9-23 18:53</a>
+
+楼上怀疑玩的不是一个游戏，主城说可活动范围一般还能接受，规模这还不叫宏大吗。
+
+几个城里至少草原城和 ...</blockquote>
+很多路都不能走 例如水城大吗 壮观吗..但是能去的地方就那么几条道
+
+这能叫宏大?
+
+
+什么叫大规模城市..参考巫师3或者wow的主城
+
+
