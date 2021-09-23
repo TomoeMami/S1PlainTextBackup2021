@@ -545,3 +545,86 @@ BBA的ANSP要高输出，得那飞出来慢得要死的刀波全吃才行。实�
 绫香的ANSP就是强在追身极强而且骑上脸后可<strong>简单地</strong>全程无敌还能保持不俗的输出，换言之就是可以简单逃课。单论DPS的话比不上很多人，也不如自己的派生烈火三刀。
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6040#       发表于 2021-9-22 21:01
+
+
+利佳的专用战斗服是对魔忍吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道月底会不会实装
+
+
+*****
+
+####  江戸前ルナ  
+##### 6041#       发表于 2021-9-22 21:07
+
+
+原来后面对自己叠DB分数才高……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  若菜  
+##### 6042#       发表于 2021-9-22 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52824192&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-20 19:24</a>
+
+BBA的ANSP要高输出，得那飞出来慢得要死的刀波全吃才行。实战除了柱子外敌人基本就没啥机会吃全
+
+
+绫香的ANS ...</blockquote>
+现在自己玩下来，和其他大佬的绫香视频
+
+
+ansp基本没用处了，远不如用普通SP的效率高，普通sp还能来段无敌。那个一段取消无敌输出也没比普通取消伤害高太多，在结合反击加速，派生，真的用处不大了。
+
+
+*****
+
+####  江戸前ルナ  
+##### 6043#       发表于 2021-9-22 22:25
+
+
+ 本帖最后由 江戸前ルナ 于 2021-9-22 22:48 编辑 
+
+逃课的，有精准的操作做到普通2连+盾防没失误一直无敌就哪里还需要逃课<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+而且，近战加速的BUFF对ANSP一样生效。顶着弹幕骑脸又不能打烈火三刀。三红SP怎么狠怎么无赖可以看看这个视频就是了
+
+[https://www.bilibili.com/video/BV1iq4y1X7x9/](https://www.bilibili.com/video/BV1iq4y1X7x9/)
+
+
+作为对比，可以看看这个普通SP秀钻电网式的，这操作当然不需要三红SP<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1344y1175Z/](https://www.bilibili.com/video/BV1344y1175Z/)
+
+
+所以我觉得有的大佬不用有可能是觉得用了就太简单，不如秀普通的钻电网式无敌2连+盾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蕾丝  
+##### 6044#       发表于 2021-9-22 22:49
+
+
+bba的ansp无非就是帅吧，看着赏心悦目
+反正有舰炮在普通sp也没那么重要了
+an本体专心搓剑炮就完事了对吗
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+*****
+
+####  江戸前ルナ  
+##### 6045#       发表于 2021-9-22 22:56
+
+
+ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸继续专心剑炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没普通SP或者现在未能换装，不是敲柱子又不是要追人的话个人建议开ANSP后直接终结来一发大号剑炮后继续剑炮（
+
+

@@ -9187,3 +9187,31 @@ http://himado.in/493766
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  红焖菠菜  
+##### 2170#       发表于 2021-9-22 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52845195&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-9-22 15:45</a>
+
+应该只有大地和海洋我觉得。。毕竟分别是人类和人鱼，象征性的一边在大地上一边在海洋里，没有天上的
+
+
+— ...</blockquote>
+最终话是不是要合体变身sv形态<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天邪鬼  
+##### 2171#       发表于 2021-9-22 19:22
+
+
+大地大海大空戒指，你们是要演家教吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
