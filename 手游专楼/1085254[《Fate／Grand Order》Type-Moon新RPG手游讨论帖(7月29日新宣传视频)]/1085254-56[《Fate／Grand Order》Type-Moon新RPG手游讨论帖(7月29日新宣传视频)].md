@@ -16375,3 +16375,19 @@ iOS现在充日服礼品卡需要一直在用而且有消费的老号
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  johnkamsar  
+##### 83868#       发表于 2021-9-23 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52857599&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-9-23 15:41</a>
+iOS现在充日服礼品卡需要一直在用而且有消费的老号
+
+
+新号注册马上倒腾礼品卡大概率永久锁号，新号用信用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">玩了三年多的应该不算新号了吧....？
+
+
