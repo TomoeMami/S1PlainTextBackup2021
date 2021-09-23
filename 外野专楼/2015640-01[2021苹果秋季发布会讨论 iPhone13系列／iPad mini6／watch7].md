@@ -12383,3 +12383,17 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 别坛看到的图 10号的已经发出来了 明天就能收到的样子<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  togochina  
+##### 1096#       发表于 2021-9-23 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52860981&amp;ptid=2015640" target="_blank">宮脇咲良 发表于 2021-9-23 21:12</a>
+
+别坛看到的图 10号的已经发出来了 明天就能收到的样子</blockquote>
+10月10号？
+
+
