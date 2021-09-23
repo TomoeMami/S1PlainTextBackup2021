@@ -15156,3 +15156,53 @@ steam就差这个成就了  
 可它五颗空的星星就放在那里啊……
 
 
+
+
+*****
+
+####  隔壁老黄  
+##### 5631#       发表于 2021-9-23 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52858535&amp;ptid=1860328" target="_blank">武者小路紫苑 发表于 2021-9-23 17:02</a>
+老有人把这代五个国家比作道馆，说实话有点过分了，宝可梦一个城能进的房子不比TOAR多多了 ...</blockquote>
+你说的是NS的宝可梦吗？那还真没多多少
+
+
+*****
+
+####  Dashuaibi  
+##### 5632#       发表于 2021-9-23 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52852299&amp;ptid=1860328" target="_blank">z.s 发表于 2021-9-23 08:01</a>
+
+准备买，这作的城市规模宏大不？城镇，村庄多不？</blockquote>
+楼上怀疑玩的不是一个游戏，主城说可活动范围一般还能接受，规模这还不叫宏大吗。
+
+几个城里至少草原城和水城看布景范围怎么也是大规模城市了
+
+
+*****
+
+####  Dashuaibi  
+##### 5633#       发表于 2021-9-23 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52852299&amp;ptid=1860328" target="_blank">z.s 发表于 2021-9-23 08:01</a>
+
+准备买，这作的城市规模宏大不？城镇，村庄多不？</blockquote>
+楼上怀疑玩的不是一个游戏，主城说可活动范围一般还能接受，规模这还不叫宏大吗。
+
+几个城里至少草原城和水城看布景范围怎么也是大规模城市了
+
+
+*****
+
+####  qwe33551  
+##### 5634#       发表于 2021-9-23 19:04
+
+
+艹，op2居然是那首歌，我还以为要卖佳能相机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

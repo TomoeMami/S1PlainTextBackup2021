@@ -12309,3 +12309,50 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 十一线下有货吗 想去把11变成13<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  togochina  
+##### 1091#       发表于 2021-9-23 18:47
+
+
+<img src="https://img.saraba1st.com/forum/202109/23/184608y6h25cpq11y5p9p0.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-09-23_18-45-38.png</strong> (119.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-23 18:46 上传
+
+
+预计10.1-13号的手机已经准备发货了，有经验的大手子能说下可能提前吗？
+
+
+*****
+
+####  凶手  
+##### 1092#       发表于 2021-9-23 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52859653&amp;ptid=2015640" target="_blank">togochina 发表于 2021-9-23 18:47</a>
+
+预计10.1-13号的手机已经准备发货了，有经验的大手子能说下可能提前吗？
+
+ ...</blockquote>
+去年我的12pm就提前了
+
+
+*****
+
+####  togochina  
+##### 1093#       发表于 2021-9-23 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52859665&amp;ptid=2015640" target="_blank">凶手 发表于 2021-9-23 18:48</a>
+
+去年我的12pm就提前了</blockquote>
+希望吧，我的钢化膜还没买……
+
+
