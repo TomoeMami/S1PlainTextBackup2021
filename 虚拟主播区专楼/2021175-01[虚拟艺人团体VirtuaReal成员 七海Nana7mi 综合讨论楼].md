@@ -2892,3 +2892,18 @@ A：“A，鲨鱼头姐姐你还不毕业吗？在想台本吗？”
 —— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  mishidexieyu  
+##### 230#       发表于 2021-9-24 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52849436&amp;ptid=2021175" target="_blank">伞沢直美 发表于 2021-9-22 21:35</a>
+[主播就是我的电子宠物-哔哩哔哩][https://b23.tv/mepGP0]
+
+泥潭看见的，xswl，这下电子宠物了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">正是在下！
+
+

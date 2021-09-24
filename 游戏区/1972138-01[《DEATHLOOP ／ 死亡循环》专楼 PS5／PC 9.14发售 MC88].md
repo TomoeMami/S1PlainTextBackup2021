@@ -6774,3 +6774,17 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 谢谢，明天实验一下，今天下来感觉已经能应付了
 
 
+
+
+*****
+
+####  supergilaboy  
+##### 571#       发表于 2021-9-24 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52875680&amp;ptid=1972138" target="_blank">redsibyl 发表于 2021-9-24 20:08</a>
+
+有跳出的。。。。城区晚上炮台放多了正面刚俱乐部就跳了，我还3080ti，估计东西一多就炸 ...</blockquote>
+啊，我1060全低至今唯一跳出也是在这里跳
+
+
