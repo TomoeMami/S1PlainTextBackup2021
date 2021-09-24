@@ -15495,3 +15495,45 @@ steam就差这个成就了   ...</blockquote>
 游戏流程里好像没有啊
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5653#       发表于 2021-9-24 08:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">通关之后再回来看一些新的skit
+这波互动其实就是后日谈吧
+天上的光柱还悬着呢，队伍里一群嘻嘻哈哈
+希农也是软妹模式，真好啊
+
+
+*****
+
+####  桧月彩花  
+##### 5654#       发表于 2021-9-24 08:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52865151&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-24 08:29</a>
+
+通关之后再回来看一些新的skit
+
+这波互动其实就是后日谈吧
+
+天上的光柱还悬着呢，队伍里一群嘻嘻哈哈</blockquote>
+说到小剧场其实有个问题
+
+
+主线剧情经常会随着推进，BGM突然变得沉重或者欢快。而小剧场一旦触发了，BGM是不会变的。
+
+
+于是经常出现沉痛的BGM中一群人欢快的吃喝的场景，或者反之亦然
+
+
+==================================================
+
+
+希侬被抓走以后、救回来之前，如果选回忆小剧场，她也会穿那身黑色连衣裙出来，就很欢快<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

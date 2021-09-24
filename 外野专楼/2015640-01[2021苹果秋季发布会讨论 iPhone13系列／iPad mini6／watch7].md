@@ -12487,3 +12487,16 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">上海地区京东18号十点买的还没发货，东哥给点力啊
 
 
+
+
+*****
+
+####  lelouchwang  
+##### 1104#       发表于 2021-9-24 08:27
+
+
+ 本帖最后由 lelouchwang 于 2021-9-24 08:31 编辑 
+
+终于京东上买到了，8点没抢到，结果现在随手进去随便买<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

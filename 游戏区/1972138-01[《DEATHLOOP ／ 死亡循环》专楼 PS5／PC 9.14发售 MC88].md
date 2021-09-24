@@ -6605,3 +6605,20 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 金狙好像不如那个紫爆炸狙，金狙不能打身体秒人紫狙可以
 
 
+
+
+*****
+
+####  moimoi  
+##### 558#       发表于 2021-9-24 08:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52861051&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-23 21:20</a>
+
+新手关是打完那个最多的boss才算过了教学关，把攒资源的系统拿到才算的
+
+
+—— 来自 HUAWEI TEL-AN00a, An ...</blockquote>
+好的，继续努力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
