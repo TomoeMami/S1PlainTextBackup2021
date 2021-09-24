@@ -15459,3 +15459,25 @@ steam就差这个成就了   ...</blockquote>
 最后一个杯子果然是钓鱼，比想象的简单....<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  気の优昙华  
+##### 5650#       发表于 2021-9-24 07:49
+
+
+今天在营地把小剧场回忆全再点了一遍 把最后一个也做了 堆到320 才跳300小剧场奖杯。。莫名其妙的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kanpachi  
+##### 5651#       发表于 2021-9-24 07:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52807321&amp;ptid=1860328" target="_blank">jimclack 发表于 2021-9-19 01:04</a>
+ 流刃若火之残火太刀</blockquote>
+残火太刀有东西南北呢，这棍子配吗……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
