@@ -15063,3 +15063,80 @@ beni这队现在选了2个，花芽姐noa再加个beni，另外一队打个毛<i
 2021-9-24 16:55 上传
 
 
+
+
+*****
+
+####  free  
+##### 7102#       发表于 2021-9-24 17:33
+
+
+[https://twitter.com/nijisanji_app/status/1441334128025108491](https://twitter.com/nijisanji_app/status/1441334128025108491)
+
+
+【『NIJIROCK NEXT BEAT』開催決定！！】
+
+
+「にじロック」が、リアルイベントとして開催！
+
+10月30日(土) 横浜・ぴあアリーナMMにて、7名が3D出演 &amp; 全編生バンドライブ！
+
+
+本日より、一部ファンクラブ先行・e+アプリ最速先行・ネットチケット販売開始！
+
+
+詳細▽
+[https://prtimes.jp/main/html/rd/p/000000322.000030865.html](https://prtimes.jp/main/html/rd/p/000000322.000030865.html)
+
+
+#NIJIROCK_NB
+
+
+<img src="https://img.saraba1st.com/forum/202109/24/173312fssskvwi77elxiwb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAClvVlVQAwilsE.jpg</strong> (640.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-24 17:33 上传
+
+
+*****
+
+####  alcoholic1000  
+##### 7103#       发表于 2021-9-24 17:33
+
+
+<img src="https://img.saraba1st.com/forum/202109/24/173305pxkk9zvy7g6nzp6q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【『NIJIROCK NEXT BEAT』開催決定！！】.jpeg</strong> (650.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-24 17:33 上传
+
+
+【『NIJIROCK NEXT BEAT』開催決定！！】
+
+「にじロック」が、リアルイベントとして開催！
+
+10月30日(土) 横浜・ぴあアリーナMMにて、<strong>7名が3D出演 &amp; 全編生バンドライブ</strong>！
+
+
+本日より、一部ファンクラブ先行・e+アプリ最速先行・ネットチケット販売開始！
+
+
+京子、小夜3D！
+
+
+*****
+
+####  IDIDIDID  
+##### 7104#       发表于 2021-9-24 17:36
+
+
+seeds派🐮🍺啊
+
+
