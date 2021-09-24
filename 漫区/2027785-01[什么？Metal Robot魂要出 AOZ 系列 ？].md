@@ -837,3 +837,26 @@ AOZ3是藤冈亲笔的漫画，目前因为他的重症而成了填不完的大�
 查看全部评分
 
 
+
+
+*****
+
+####  wingzerocos  
+##### 63#       发表于 2021-9-24 15:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52869349&amp;ptid=2027785" target="_blank">行政裁定书 发表于 2021-9-24 13:04</a>
+
+Deep Striker不就是简易版GP03D嘛，完全符合那个那个时代的东西。
+
+你要搞清楚简单叠甲、堆炮、堆推进器和 ...</blockquote>
+在作品内，冰箱资料全消，这两个长得像是趋同进化。
+
+在作品外，DS是冰箱的原型之一，用后来插进去的冰箱证明DS符合时代？
+
+何况整个GP系列也没少被骂破格。
+
+
+而且叠甲堆炮堆推进器算简单思路的话，那银雷把现成的TR5和TR4上下一叠再外挂上TR3和TR2的设计不是更简单？
+
+
