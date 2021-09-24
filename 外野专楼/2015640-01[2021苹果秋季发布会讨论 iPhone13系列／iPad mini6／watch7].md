@@ -12667,3 +12667,32 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 官网买送货太迟了
 
 
+
+
+*****
+
+####  owada  
+##### 1119#       发表于 2021-9-24 10:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">下午1点半去香港广场取,会不会排队排到热虚脱
+
+
+*****
+
+####  自主规制  
+##### 1120#       发表于 2021-9-24 10:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">配送一早上了怎么还在配送，急急急
+
+
+*****
+
+####  我是快乐小马甲  
+##### 1121#       发表于 2021-9-24 10:21
+
+
+晚点去还需不需要排队额。说提早去要排队？
+
+

@@ -16436,3 +16436,20 @@ iOS现在充日服礼品卡需要一直在用而且有消费的老号
 所以信用卡有啥推荐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">代充的石头太非了遭不住
 
 
+
+
+*****
+
+####  UNISONIA  
+##### 83873#       发表于 2021-9-24 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866006&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-9-24 09:33</a>
+
+也是啊，注册了好多年只是一直没消费</blockquote>
+旧号一直没消费（但是有在下载免费app）的话比纯新号稍微好那么一点，可能不会直接上来就判定跨区被锁
+
+
+最好还是一直有在消费付费内容的账号（哪怕是拿来买歌买买断制app也行）
+
+
