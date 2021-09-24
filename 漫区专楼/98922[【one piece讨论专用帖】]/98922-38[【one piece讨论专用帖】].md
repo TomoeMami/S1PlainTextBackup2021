@@ -2777,3 +2777,17 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 九侠用的本来就是御田流也不给人喊喊 之前不还一起桃园十拳
 
 
+
+
+*****
+
+####  Algie  
+##### 55699#       发表于 2021-9-25 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52878398&amp;ptid=98922" target="_blank">faiths 发表于 2021-09-24 23:18:01</a>
+蛋糕岛之后再有一个中等故事篇章主做草帽团战斗，然后再讲和之国节奏会好很多，现在马上就还有两个两年后 ...</blockquote>而且现在五黄水平突然撕裂天空就让罗和基德这两个之前一直在镜头上平起平坐的同辈变得很尴尬
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
