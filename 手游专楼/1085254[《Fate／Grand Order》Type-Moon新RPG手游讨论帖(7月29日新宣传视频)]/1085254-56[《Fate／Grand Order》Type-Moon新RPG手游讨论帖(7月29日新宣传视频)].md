@@ -16495,3 +16495,20 @@ jcb就行啊
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 83877#       发表于 2021-9-24 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872668&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-24 16:56</a>
+
+能比礼品卡便宜一百多块，怕不是黑卡
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+我最初是买的苹果礼品卡，640一单，后来换手机了而且苹果经常封我号，就整了个谷歌账号绑定了，买谷歌礼品卡，五百二三十一张。8.16之后开始找代充，上次发现一直用的代充店好像不太安全，就去了月下的小铺，老店了，结果480一单（今天460了）.......但是月下有回执...希望不要封我号<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
