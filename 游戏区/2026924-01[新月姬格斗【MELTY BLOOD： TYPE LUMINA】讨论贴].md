@@ -797,3 +797,17 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 额 真的没五月吗？
 
 
+
+
+*****
+
+####  DARKGRAY  
+##### 65#       发表于 2021-9-24 19:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52874193&amp;ptid=2026924" target="_blank">wuizzard 发表于 2021-9-24 18:35</a>
+
+额 真的没五月吗？</blockquote>
+人气没大到给她提早出场或者重做一个角色的程度，甚至不如担心一下本篇会不会真让她彻底路人化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

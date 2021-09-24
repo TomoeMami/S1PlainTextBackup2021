@@ -13130,3 +13130,20 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  rak1  
+##### 1158#       发表于 2021-9-24 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52874470&amp;ptid=2015640" target="_blank">宮脇咲良 发表于 2021-9-24 18:52</a>
+说起来东哥到手的能不能说说AC+是不是已经自动绑定了还是要别的什么操作?
+
+我东西是送到了 不过人不在家[f:2 ...</blockquote>
+客服说是到手激活的7天内自动绑定
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
