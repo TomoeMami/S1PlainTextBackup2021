@@ -882,3 +882,43 @@ sb明年夏天出，结局再拆开更新到明年年底，一年又混过去了
 由开发团队亲自为观众介绍刚刚公开的《MONSTER HUNTER RISE: SUNBREAK》游戏概要、世界观与追加的新消息。不容错过！
 
 
+
+
+*****
+
+####  xiang2323  
+##### 78#       发表于 2021-9-24 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52865015&amp;ptid=2028210" target="_blank">培根芝士蛋堡XD 发表于 2021-9-24 08:13</a>
+
+看得出来很多人真把mh当网游了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你要不看看初代的MH是不是网游?
+
+
+*****
+
+####  猫不萌  
+##### 79#       发表于 2021-9-24 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866503&amp;ptid=2028210" target="_blank">任天索尼子 发表于 2021-9-24 10:03</a>
+也就泥潭非要嗯洗rise 油管上的外国人发视频抱怨人都回去玩冰原了。
+
+—— 来自 realme RMX2072, Android 1 ...</blockquote>
+现在哪有人洗了，刚发售时候好评很奇怪吗
+
+
+*****
+
+####  嘉术2015  
+##### 80#       发表于 2021-9-24 14:20
+
+
+<blockquote>Cyau 发表于 2021-9-24 10:44
+拿一个小例子来说，经常看到泥潭很多人不喜欢mhw的地图，更喜欢mhr这种更偏向前作的更简单直接的设计
+
+但是 ...</blockquote>
+设计烂就是设计烂，用不用心有什么用，这世界上用心做出来的烂游戏还少吗？
+
+
