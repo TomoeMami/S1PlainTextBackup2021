@@ -2735,3 +2735,17 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 这一话单独来说观感还是挺好的，看最后大蛇这个意思这是投靠世界政府了？
 
 
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 55696#       发表于 2021-9-25 00:13
+
+
+猫狗最后秒人的时候招式名前边还一起喊“御田一刀流"，真TM恶心到家了
+
+
+接下来就画路飞大和按着凯多脑袋给长大桃之助口一管然后哭着喊“御田爸爸我错了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">”好不好啊？
+
+
