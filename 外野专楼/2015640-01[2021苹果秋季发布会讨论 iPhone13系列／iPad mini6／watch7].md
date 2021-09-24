@@ -12765,3 +12765,50 @@ mini到了，玩的游戏还没适配，玩了会儿感觉跟mini5比升级了�
 所以我果子更换都是存储方面不能满足了或者有些新功能必须上新机子（比如手写笔）
 
 
+
+
+*****
+
+####  Damenly  
+##### 1128#       发表于 2021-9-24 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866290&amp;ptid=2015640" target="_blank">mashav 发表于 2021-9-24 09:51</a>
+
+我预约的是9/26下班过去自营店取，刚看Apple Store APP显示商品已备好，状态是随时取货，但点进去订单详情 ...</blockquote>
+今天可以去的，威锋很多人都提了
+
+
+*****
+
+####  Eadric  
+##### 1129#       发表于 2021-9-24 11:34
+
+
+mini6终于送到了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  橋白  
+##### 1130#       发表于 2021-9-24 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867908&amp;ptid=2015640" target="_blank">Damenly 发表于 2021-9-24 11:34</a>
+今天可以去的，威锋很多人都提了</blockquote>
+我的Apple浦东取货就还是正在处理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来上海还是卖爆了
+
+
+*****
+
+####  985604670  
+##### 1131#       发表于 2021-9-24 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867469&amp;ptid=2015640" target="_blank">saintsimpler 发表于 2021-9-24 11:06</a>
+ mini到了，玩的游戏还没适配，玩了会儿感觉跟mini5比升级了个寂寞  —— 来自 HUAWEI NOP-AN00, And ...</blockquote>
+求试个4k60录像，发热怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

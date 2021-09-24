@@ -764,3 +764,86 @@ MHRSB！！！！！！！！！！！！！！！！！！卡普空我**
 等等党的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  TheOccuria  
+##### 69#       发表于 2021-9-24 11:27
+
+
+日本人的夏季时7到9月..这是不是历史上间隔最远的g位
+
+
+不过pc看起来大概率同步
+
+
+*****
+
+####  梦窗  
+##### 70#       发表于 2021-9-24 11:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">设计用心，指的是地底火山冰海原生林遗迹平原改造后的旧沙漠斗技场这种吗？
+
+
+*****
+
+####  stage111st  
+##### 71#       发表于 2021-9-24 11:37
+
+
+<blockquote>TheOccuria 发表于 2021-9-24 11:27
+日本人的夏季时7到9月..这是不是历史上间隔最远的g位
+
+
+不过pc看起来大概率同步 ...</blockquote>
+世界冰原主机版隔了20个月
+
+
+*****
+
+####  peh  
+##### 72#       发表于 2021-9-24 11:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866305&amp;ptid=2028210" target="_blank">kyonkoism 发表于 2021-9-24 09:52</a>
+
+可惜NS和PC没法跨平台，不然我真想在房间名里写switch x 啊</blockquote>
+不能跨平台啊..尴尬死了
+
+
+*****
+
+####  TheOccuria  
+##### 73#       发表于 2021-9-24 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867982&amp;ptid=2028210" target="_blank">stage111st 发表于 2021-9-24 11:37</a>
+
+世界冰原主机版隔了20个月</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来世界这么久，可能是pc晚好久发售让我体感上觉得没那么久吧...
+
+
+*****
+
+####  stage111st  
+##### 74#       发表于 2021-9-24 11:44
+
+
+<blockquote>TheOccuria 发表于 2021-9-24 11:42
+原来世界这么久，可能是pc晚好久发售让我体感上觉得没那么久吧...</blockquote>
+pc是隔17个月，本土
+
+体晚6.5月，冰原3.5月
+
+
+*****
+
+####  FanKiE  
+##### 75#       发表于 2021-9-24 11:46
+
+
+标题写错了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
