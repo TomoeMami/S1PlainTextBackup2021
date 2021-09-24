@@ -12812,3 +12812,26 @@ mini6终于送到了<img src="https://static.saraba1st.com/image/smiley/face2017
 求试个4k60录像，发热怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saintsimpler  
+##### 1132#       发表于 2021-9-24 12:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867954&amp;ptid=2015640" target="_blank">985604670 发表于 2021-9-24 11:36</a>
+
+求试个4k60录像，发热怎么样</blockquote>
+10分钟内发热不明显，过了10分钟有明显感知，发热位置在苹果标上面
+
+
+*****
+
+####  nomhrpls  
+##### 1133#       发表于 2021-9-24 12:06
+
+
+我930-10.2的13pm今天竟然发短信说发货了，估计明天就能到了，这次提前了好多啊。
+
+
