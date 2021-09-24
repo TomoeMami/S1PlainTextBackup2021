@@ -15537,3 +15537,37 @@ steam就差这个成就了   ...</blockquote>
 希侬被抓走以后、救回来之前，如果选回忆小剧场，她也会穿那身黑色连衣裙出来，就很欢快<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fifman  
+##### 5655#       发表于 2021-9-24 09:57
+
+
+请教一下，破晓传说哪个平台好一点？pc还是ps4？
+
+
+*****
+
+####  hypnossz86  
+##### 5656#       发表于 2021-9-24 09:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866376&amp;ptid=1860328" target="_blank">fifman 发表于 2021-9-24 09:57</a>
+请教一下，破晓传说哪个平台好一点？pc还是ps4？</blockquote>
+pc
+
+
+*****
+
+####  fifman  
+##### 5657#       发表于 2021-9-24 09:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866411&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-24 09:58</a>
+
+pc</blockquote>
+了解，感谢！
+
+

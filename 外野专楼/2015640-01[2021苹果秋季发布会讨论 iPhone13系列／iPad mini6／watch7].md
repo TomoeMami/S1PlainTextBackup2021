@@ -12604,3 +12604,66 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 远峰蓝在室内中亮度下有一股灰色的感觉，室外就是宣传片的淡亮蓝，感觉苹果这几年的新颜色都有这种特性，挺好看的
 
 
+
+
+*****
+
+####  mashav  
+##### 1114#       发表于 2021-9-24 09:51
+
+
+我预约的是9/26下班过去自营店取，刚看Apple Store APP显示商品已备好，状态是随时取货，但点进去订单详情还是提示26号去取
+
+那现在是今天可以去的意思，还是26号再过去？
+
+
+*****
+
+####  saintsimpler  
+##### 1115#       发表于 2021-9-24 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866290&amp;ptid=2015640" target="_blank">mashav 发表于 2021-9-24 09:51</a>
+我预约的是9/26下班过去自营店取，刚看Apple Store APP显示商品已备好，状态是随时取货，但点进去订单详情 ...</blockquote>
+看你收到的邮件和短信，如果收到说是24号可以取才可以去，否则不行
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  报应啊报应  
+##### 1116#         楼主| 发表于 2021-9-24 09:56
+
+
+唔，8点好像秒空
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  mashav  
+##### 1117#       发表于 2021-9-24 09:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52866311&amp;ptid=2015640" target="_blank">saintsimpler 发表于 2021-9-24 09:53</a>
+
+看你收到的邮件和短信，如果收到说是24号可以取才可以去，否则不行
+
+
+—— 来自 HUAWEI NOP-AN00, Android ...</blockquote>
+好的，谢谢
+
+
+*****
+
+####  伊森温特斯  
+##### 1118#       发表于 2021-9-24 10:03
+
+
+话说我定了一台ipad mini6  26号取，到了之后我退掉改成教育优惠买可以不？
+
+官网买送货太迟了
+
+
