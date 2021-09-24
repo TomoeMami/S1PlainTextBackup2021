@@ -13007,3 +13007,49 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 哎，我也想玩新手机<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  mashav  
+##### 1148#       发表于 2021-9-24 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867908&amp;ptid=2015640" target="_blank">Damenly 发表于 2021-9-24 11:34</a>
+今天可以去的，威锋很多人都提了</blockquote>
+感谢，刚去环球港拿到啦
+
+
+*****
+
+####  Fizbo  
+##### 1149#       发表于 2021-9-24 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52871350&amp;ptid=2015640" target="_blank">mashav 发表于 2021-9-24 15:28</a>
+
+感谢，刚去环球港拿到啦</blockquote>
+是提前一天的吗？
+
+
+*****
+
+####  mashav  
+##### 1150#       发表于 2021-9-24 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52871377&amp;ptid=2015640" target="_blank">Fizbo 发表于 2021-9-24 15:30</a>
+是提前一天的吗？</blockquote>
+提前2天，预约的26号晚上
+刚过去扫了下取货码，出示身份证，3分钟就拿到了
+
+
+*****
+
+####  星野心叶  
+##### 1151#       发表于 2021-9-24 15:44
+
+
+13P用了半天，很满意
+
+
