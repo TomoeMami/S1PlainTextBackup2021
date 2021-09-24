@@ -15481,3 +15481,17 @@ steam就差这个成就了   ...</blockquote>
 残火太刀有东西南北呢，这棍子配吗……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  シャル  
+##### 5652#       发表于 2021-9-24 08:16
+
+
+追忆机器任务里同时打四将的飞空船场景
+
+
+游戏流程里好像没有啊
+
+

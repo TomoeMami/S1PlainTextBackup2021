@@ -12456,3 +12456,34 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">好耶，俺也一样！来自: iPhone客户端
 
 
+
+
+*****
+
+####  rak1  
+##### 1101#       发表于 2021-9-24 08:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">18号早上10点下的订单，也发货了，东哥给力啊
+
+
+*****
+
+####  松川奈々  
+##### 1102#       发表于 2021-9-24 08:10
+
+
+京东这几波次抢的都能第一时间发货，只能说明明明货源就是充足的，京东却非要搞好几波抢购，就摁是要把人当猴耍
+
+耍猴开心吗，我真想问候这些王八蛋们全家
+
+
+*****
+
+####  NorLaTu  
+##### 1103#       发表于 2021-9-24 08:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">上海地区京东18号十点买的还没发货，东哥给点力啊
+
+
