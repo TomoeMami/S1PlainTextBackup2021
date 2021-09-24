@@ -13147,3 +13147,29 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  芸芸提不起劲  
+##### 1159#       发表于 2021-9-24 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么手机刚拿到手就要我更新系统
+
+
+*****
+
+####  宮脇咲良  
+##### 1160#       发表于 2021-9-24 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52874878&amp;ptid=2015640" target="_blank">rak1 发表于 2021-9-24 19:19</a>
+
+客服说是到手激活的7天内自动绑定
+
+
+—— 来自 S1Fun</blockquote>
+多谢 省得去问了<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
+
+
