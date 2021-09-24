@@ -13102,3 +13102,31 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 惊了，mini6的发货日从昨天的1103-1117直接提前到1028-1103了，仁宝偷偷摸摸也招工了？
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 1156#       发表于 2021-9-24 18:52
+
+
+说起来东哥到手的能不能说说AC+是不是已经自动绑定了还是要别的什么操作?
+
+我东西是送到了 不过人不在家<img src="https://static.saraba1st.com/image/smiley/face2017/259.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 1157#       发表于 2021-9-24 18:56
+
+
+<blockquote>引用第1149楼mashav于2021-09-24 15:40发表的  :
+
+引用:Fizbo 发表于 2021-9-24 15:30是提前一天的吗？提前2天，预约的26号晚上刚......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我也预约的26号晚上环球港取货，然而目前没收到任何通知……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
