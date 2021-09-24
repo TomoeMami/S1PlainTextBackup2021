@@ -12523,3 +12523,60 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 不错不错，我23点那批明天也能收到了。
 
 
+
+
+*****
+
+####  橋白  
+##### 1107#       发表于 2021-9-24 09:08
+
+
+今天上班 只能明天去店里提货<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">第一次直营店提货 有啥要注意的吗
+
+
+*****
+
+####  唯一指定用户名  
+##### 1108#       发表于 2021-9-24 09:09
+
+
+ 本帖最后由 唯一指定用户名 于 2021-9-24 09:21 编辑 
+
+官网30号送达的刚刚发货了，这是提前了吧
+
+更新了，26日或之前
+
+
+*****
+
+####  985604670  
+##### 1109#       发表于 2021-9-24 09:11
+
+
+还是下单了ipp11，mini6没有Face ID不能搞拟真表情是硬伤<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  老贝  
+##### 1110#       发表于 2021-9-24 09:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52865650&amp;ptid=2015640" target="_blank">橋白 发表于 2021-9-24 09:08</a>
+今天上班 只能明天去店里提货第一次直营店提货 有啥要注意的吗</blockquote>
+人多早点去，排队1个小时起步。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  橋白  
+##### 1111#       发表于 2021-9-24 09:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52865730&amp;ptid=2015640" target="_blank">老贝 发表于 2021-9-24 09:13</a>
+人多早点去，排队1个小时起步。</blockquote>
+订的11点半的提货<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那我干脆9点半去排得了
+
+
