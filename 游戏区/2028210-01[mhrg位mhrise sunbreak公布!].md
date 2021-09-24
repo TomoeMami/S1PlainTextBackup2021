@@ -933,3 +933,14 @@ sb明年夏天出，结局再拆开更新到明年年底，一年又混过去了
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">波兰蠢驴能学到卡普空 1成的脸皮，2077都不会被骂 ，直接拆成两半出就行了
 
 
+
+
+*****
+
+####  supergilaboy  
+##### 82#       发表于 2021-9-24 14:55
+
+
+问题不是有没有网游式运营，问题是你一边网游式更新，但更新的基本都是些什么啊
+
+
