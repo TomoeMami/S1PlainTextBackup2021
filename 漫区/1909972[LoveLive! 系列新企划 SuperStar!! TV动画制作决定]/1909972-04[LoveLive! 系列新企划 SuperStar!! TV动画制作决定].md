@@ -17438,3 +17438,24 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 —— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 5917#       发表于 2021-9-24 09:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52862953&amp;ptid=1909972" target="_blank">普之舜舜 发表于 2021-9-24 00:43</a>
+
+太难受了我直播间因为寒蝉被封禁了，所以这周星团直播不了了 转战腾讯会议
+
+
+—— 来 ...</blockquote>
+怪了，你播LL就没事，播寒蝉居然能被封
+
+那个蓝原延珠播寒蝉没事，一播LL就被叔叔警告<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+昨天寒蝉真把我乐死了，年度最佳搞笑番，弹幕都起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

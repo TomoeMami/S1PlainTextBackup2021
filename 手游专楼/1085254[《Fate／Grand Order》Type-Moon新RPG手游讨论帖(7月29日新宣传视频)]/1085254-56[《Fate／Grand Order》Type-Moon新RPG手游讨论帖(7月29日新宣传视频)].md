@@ -16414,3 +16414,25 @@ iOS现在充日服礼品卡需要一直在用而且有消费的老号
 时隔4年多终于又缺黄技能石了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  johnkamsar  
+##### 83871#       发表于 2021-9-24 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52865281&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-9-24 08:41</a>
+是说你的日区app store号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">也是啊，注册了好多年只是一直没消费
+
+
+*****
+
+####  里村紅葉  
+##### 83872#       发表于 2021-9-24 09:37
+
+
+所以信用卡有啥推荐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">代充的石头太非了遭不住
+
+

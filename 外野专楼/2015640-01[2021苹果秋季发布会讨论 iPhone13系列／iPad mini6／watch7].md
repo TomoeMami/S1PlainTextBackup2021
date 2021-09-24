@@ -12580,3 +12580,27 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 订的11点半的提货<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那我干脆9点半去排得了
 
 
+
+
+*****
+
+####  芸芸提不起劲  
+##### 1112#       发表于 2021-9-24 09:48
+
+
+拿到手了，但是现在在开大组会，还用不了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+远峰蓝在室内中亮度下有一股灰色的感觉，室外就是宣传片的淡亮蓝，感觉苹果这几年的新颜色都有这种特性，挺好看的
+
+
+*****
+
+####  芸芸提不起劲  
+##### 1113#       发表于 2021-9-24 09:48
+
+
+拿到手了，但是现在在开大组会，还用不了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+远峰蓝在室内中亮度下有一股灰色的感觉，室外就是宣传片的淡亮蓝，感觉苹果这几年的新颜色都有这种特性，挺好看的
+
+
