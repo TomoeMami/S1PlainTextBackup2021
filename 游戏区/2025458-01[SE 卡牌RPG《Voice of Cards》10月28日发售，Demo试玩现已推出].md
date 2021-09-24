@@ -787,3 +787,56 @@ Demo：
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  LinPC  
+##### 63#       发表于 2021-9-25 01:32
+
+
+卡牌的特点在游戏机制上几乎没有体现，反而导致画面和声音都很单调。肉眼可见的贫穷。
+
+
+*****
+
+####  loaflace  
+##### 64#       发表于 2021-9-25 01:33
+
+
+这个地图和人物动作的表现形式还蛮有趣的，但真的好无聊，打着打着我都快睡着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  woodey  
+##### 65#       发表于 2021-9-25 01:36
+
+
+通关了，难度太低了，建议给个hard难度<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JudgmentEye  
+##### 66#       发表于 2021-9-25 01:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52879398&amp;ptid=2025458" target="_blank">LinPC 发表于 2021-9-25 01:32</a>
+
+卡牌的特点在游戏机制上几乎没有体现，反而导致画面和声音都很单调。肉眼可见的贫穷。 ...</blockquote>
+穷不穷其实不是关键，新野村世界开发费不低吧，照样不给你出中文，虽然也可能是游戏里出现的某些实际存在的品牌的海外版权问题，但这回8国语言没中文可和版权没关系，根本就是手游大厂的传统操作
+
+
+*****
+
+####  JudgmentEye  
+##### 67#       发表于 2021-9-25 01:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52877859&amp;ptid=2025458" target="_blank">西多士 发表于 2021-9-24 22:23</a>
+
+挺好玩，这游戏就期待中文了</blockquote>
+指望手游大厂还不如等三大妈的机翻汉化
+
+

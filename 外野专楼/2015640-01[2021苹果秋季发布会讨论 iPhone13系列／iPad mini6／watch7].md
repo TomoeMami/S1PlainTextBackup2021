@@ -13307,3 +13307,19 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 找到了麻烦分享下，先随便买了个透明壳<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saintsimpler  
+##### 1172#       发表于 2021-9-25 01:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872805&amp;ptid=2015640" target="_blank">heseran 发表于 2021-9-24 17:05</a>
+
+看有测评机构用仪器测出13pro系列（13和mini没说），全亮度低频pwm调光,480Hz。这是不是算瞎眼屏啊……一下 ...</blockquote>
+事实就是如此，特别伤眼睛。不过也分人，可以先买来试试，我周围有人今天刚拿到用了俩小时就觉得不舒服。
+
+另外，12系列是高亮度类DC，低亮度pwm,因此13系列还不如12护眼
+
+
