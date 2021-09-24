@@ -17790,3 +17790,34 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 明显水团 和 裂裂可能性大不少 特别是裂裂
 
 
+
+
+*****
+
+####  D麦林  
+##### 5947#       发表于 2021-9-24 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872059&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-24 16:18</a>
+年轻人第一次看ll，问下ll这个企划之前国内开过live吗？非拼盘那种</blockquote>
+缪FMT 水FMT 水亚巡 都来国内开过专场
+
+
+*****
+
+####  cybernetics31  
+##### 5948#       发表于 2021-9-24 16:32
+
+
+虹好几个都是大忙人，肯定是到不全的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但现在也都只能想想<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 5949#       发表于 2021-9-24 16:34
+
+
+不懂就问，为啥虹比星的可能性大啊
+
+
