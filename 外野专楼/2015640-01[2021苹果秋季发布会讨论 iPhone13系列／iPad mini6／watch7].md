@@ -12931,3 +12931,36 @@ app实在太贵了而且还容易丢
 到手,店里都是人
 
 
+
+
+*****
+
+####  FrozenA  
+##### 1142#       发表于 2021-9-24 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52869721&amp;ptid=2015640" target="_blank">Miyalla 发表于 2021-9-24 13:27</a>
+借楼问问
+有必要买蓝牙耳机吗
+app实在太贵了而且还容易丢</blockquote>
+AirPods普通版买过的朋友（包括我自己）都觉得生活体验上一档，教育优惠车AirPods二代700一个，感觉还是很值
+
+APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生活中不太需要降噪，二代有着比APP舒适的多的戴感，挂个一天都没有感觉，还比AirPods Pro便宜那么多。
+
+如果降噪刚需，想要体验空间音频非要AirPods Pro就没办法了，不过也要考虑这种入耳式到底适不适合自己，戴着不舒服就是不舒服，不能靠适应
+
+回到最初的问题，耳机必要是非必要，甚至可以做等等党，这系列产品那么久没更新了，明年3月突然蹦出一个新的AirPods一点都不奇怪
+
+
+*****
+
+####  星野心叶  
+##### 1143#       发表于 2021-9-24 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52865778&amp;ptid=2015640" target="_blank">橋白 发表于 2021-9-24 09:16</a>
+
+订的11点半的提货那我干脆9点半去排得了</blockquote>
+可以早点去，我原本预约的时间是今天9点45，但是8点第一批去取店员也让我进去了
+
+
