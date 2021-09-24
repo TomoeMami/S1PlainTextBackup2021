@@ -16391,3 +16391,26 @@ iOS现在充日服礼品卡需要一直在用而且有消费的老号
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">玩了三年多的应该不算新号了吧....？
 
 
+
+
+*****
+
+####  UNISONIA  
+##### 83869#       发表于 2021-9-24 08:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52859347&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-9-23 18:14</a>
+
+玩了三年多的应该不算新号了吧....？</blockquote>
+是说你的日区app store号
+
+
+*****
+
+####  千叶铁矢  
+##### 83870#       发表于 2021-9-24 09:00
+
+
+时隔4年多终于又缺黄技能石了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

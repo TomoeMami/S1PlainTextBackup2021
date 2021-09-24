@@ -12500,3 +12500,26 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 终于京东上买到了，8点没抢到，结果现在随手进去随便买<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  白白白  
+##### 1105#       发表于 2021-9-24 08:54
+
+
+一大早就收到13和mini6了，爽！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  用户名已注册  
+##### 1106#       发表于 2021-9-24 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52864778&amp;ptid=2015640" target="_blank">宮脇咲良 发表于 2021-9-24 07:43</a>
+
+东哥牛皮(破音) 17日20点场</blockquote>
+不错不错，我23点那批明天也能收到了。
+
+

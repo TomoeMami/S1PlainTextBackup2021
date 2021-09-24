@@ -17366,3 +17366,48 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 推上同人图也一样是唐可可连呼大王具足虫，吃的人自然会吃的，根本无需担心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 5911#       发表于 2021-9-24 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52861390&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-23 22:01</a>
+
+哪怕是批判得最猛的5ch，版面上星团最多的可堇同人小作文都还是这个套路呢，90％的文都是唐可可爆喷阿堇然 ...</blockquote>
+有没有可可被民警雷普的2333
+
+
+*****
+
+####  普之舜舜  
+##### 5912#       发表于 2021-9-24 00:43
+
+
+太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">我直播间因为寒蝉被封禁了，所以这周星团直播不了了 转战腾讯会议
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 5913#       发表于 2021-9-24 08:06
+
+
+马尔福x波特不也是这个套路，很值得开心么。花田要赶紧把大家关系拉好才是真，而不是声优盾和假药。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  安瓦尔阿明  
+##### 5914#       发表于 2021-9-24 09:00
+
+
+好像确实bug了？我只能看到昨晚10点左右的回帖。
+
+
