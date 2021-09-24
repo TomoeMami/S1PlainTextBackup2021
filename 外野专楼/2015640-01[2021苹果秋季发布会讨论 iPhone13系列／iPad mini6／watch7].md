@@ -13210,3 +13210,18 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 估计纯粹因为是人多 能踢一个去明天就踢去明天吧<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  夏风  
+##### 1164#       发表于 2021-9-24 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52876604&amp;ptid=2015640" target="_blank">宮脇咲良 发表于 2021-9-24 21:05</a>
+估计纯粹因为是人多 能踢一个去明天就踢去明天吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">我都到店里了对于他们来说应该没什么区别吧
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -682,3 +682,16 @@ ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸�
 联机是会更新的，应该是更新4次，建议至起码每次打完拿到初见奖励，减轻压力。（除了VH难度单挑都没啥问题的）
 
 
+
+
+*****
+
+####  蕾丝  
+##### 6050#       发表于 2021-9-24 21:22
+
+
+协力本很简单啦，前三个难度根本就是bba剑炮体验本<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">射的根本停不下来
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
