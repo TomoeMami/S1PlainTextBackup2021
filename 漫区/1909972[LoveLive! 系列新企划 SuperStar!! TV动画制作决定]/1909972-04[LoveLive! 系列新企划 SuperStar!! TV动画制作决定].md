@@ -17821,3 +17821,46 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 不懂就问，为啥虹比星的可能性大啊
 
 
+
+
+*****
+
+####  Norkey1  
+##### 5950#       发表于 2021-9-24 16:44
+
+
+18年水的那场当时身边好多人都谈这个事情，连我这个退坑的都听说了，太有名了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 5951#       发表于 2021-9-24 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872454&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-9-24 16:44</a>
+18年水的那场当时身边好多人都谈这个事情，连我这个退坑的都听说了，太有名了 ...</blockquote>
+静安动物园，家虎处处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 5952#       发表于 2021-9-24 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872481&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-24 16:45</a>
+
+静安动物园，家虎处处</blockquote>
+听你这么说好像有点印象了，当年fmt的厄介行为火到我个圈外人都有耳闻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 5953#       发表于 2021-9-24 16:58
+
+
+水虎传，那场之后水族馆那首歌的风评就没法看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

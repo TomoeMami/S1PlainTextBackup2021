@@ -2695,3 +2695,19 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 非要把人丢进监狱刷经验是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 55693#       发表于 2021-9-24 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52870922&amp;ptid=98922" target="_blank">hagane 发表于 2021-9-24 14:55</a>
+
+上一个开启预借的刚叔半死不活被外挂救了后遗症是变成普通人
+
+桃子这预借肯定也有后遗症吧 ...</blockquote>
+直接少了20年生命啊，这代价还不够？
+
+
