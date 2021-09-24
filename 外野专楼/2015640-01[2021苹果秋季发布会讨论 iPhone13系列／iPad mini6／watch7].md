@@ -13272,3 +13272,14 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 今年13pm的屏幕比11pm更伤眼么
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 1169#       发表于 2021-9-24 23:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这ios15不是一般的bug多啊………………迷之某几个app下不了…………
+
+

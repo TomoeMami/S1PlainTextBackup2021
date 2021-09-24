@@ -1071,3 +1071,95 @@ yysy，谷雨这种就是烂屁股阴阳人，天天只会在女粉和尼哥面�
 这BGM感觉好怪，和放错了BGM一样
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 3101#       发表于 2021-9-24 23:26
+
+
+退了让我养吧肥婆
+
+
+*****
+
+####  Klience  
+##### 3102#       发表于 2021-9-24 23:31
+
+
+你有钱还是肥婆有钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3103#       发表于 2021-9-24 23:31
+
+
+那就肥婆养我，从零开始的小白脸生活<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 3104#       发表于 2021-9-24 23:33
+
+
+那她还不如包养一个牛郎更好一点呢 长得帅声音好听又能把肥婆的钱骗走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3105#       发表于 2021-9-24 23:36
+
+
+又在痛苦猪叫了，几年后愚蠢的独角兽加弱智事业民加弱智贝贝壬是不是也会这么鬼叫呢
+
+
+*****
+
+####  T_Hb  
+##### 3106#       发表于 2021-9-24 23:37
+
+
+你不是照叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 3107#       发表于 2021-9-24 23:39
+
+
+《我骂我自己》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3108#       发表于 2021-9-24 23:42
+
+
+老子还真不会这么叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行走着瞧吧，别到时候你们两个都死了嗷
+
+
+*****
+
+####  Klience  
+##### 3109#       发表于 2021-9-24 23:45
+
+
+几年后会不会在在这里水都不知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3110#       发表于 2021-9-24 23:45
+
+
+说不定明年就被彻底图图了，这年头什么都在加速<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
