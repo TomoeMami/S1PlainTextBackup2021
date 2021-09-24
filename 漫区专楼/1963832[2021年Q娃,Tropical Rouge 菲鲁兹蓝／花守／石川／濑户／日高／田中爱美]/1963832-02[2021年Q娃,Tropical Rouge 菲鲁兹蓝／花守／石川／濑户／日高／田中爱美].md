@@ -9239,3 +9239,20 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 当然是看玩梗小鬼和狗大友 刷心跳光之美少女名梗呗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  新HGCG  
+##### 2174#       发表于 2021-9-24 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52847953&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-9-22 19:22</a>
+
+大地大海大空戒指，你们是要演家教吗
+
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+集齐三枚戒指学会大地天空海洋的必杀技后就能领悟到乔冈田快速斩
+
+
