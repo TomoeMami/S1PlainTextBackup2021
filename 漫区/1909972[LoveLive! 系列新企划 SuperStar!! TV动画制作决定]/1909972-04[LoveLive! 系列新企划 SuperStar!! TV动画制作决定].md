@@ -17544,3 +17544,48 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 <img src="https://p.sda1.dev/2/3b367a67967e697716891fd595aa2190/20210924_123115.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 5925#       发表于 2021-9-24 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52868631&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-24 12:21</a>
+过审的都能下，越来越看不懂了，要不把B站的3话当成一个剧场版打上已完结吧 ...</blockquote>
+什么过审
+过审的是1-3集 和4-6集不过审也没关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+10月那两部没买倒还不能下定论 但是星团不在10月番的连载中宣传栏就很危险
+
+
+*****
+
+####  JustW  
+##### 5926#       发表于 2021-9-24 12:53
+
+
+有可能真的是赶上禁止偶像养成类了吧（）
+
+
+*****
+
+####  cybernetics31  
+##### 5927#       发表于 2021-9-24 12:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 5928#       发表于 2021-9-24 12:53
+
+
+啊 再按规律看
+如果真是星无佬说的那个撞了关键词没过审那改改还能重新送审估计在排队 如果明天播的话今天傍晚应该有消息了 如果这周还没有那下周该有消息了
+要是下周都没播我觉得搞不好真就是题材原因被直接毙了
+那明年虹二期不是也大概率无了
+
+

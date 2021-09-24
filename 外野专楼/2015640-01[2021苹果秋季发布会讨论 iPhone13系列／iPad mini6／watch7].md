@@ -12870,3 +12870,16 @@ thanks<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" refe
 —— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  Damenly  
+##### 1137#       发表于 2021-9-24 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867950&amp;ptid=2015640" target="_blank">橋白 发表于 2021-9-24 11:36</a>
+我的Apple浦东取货就还是正在处理看来上海还是卖爆了</blockquote>
+正在处理也可以拿，我拿到手了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
