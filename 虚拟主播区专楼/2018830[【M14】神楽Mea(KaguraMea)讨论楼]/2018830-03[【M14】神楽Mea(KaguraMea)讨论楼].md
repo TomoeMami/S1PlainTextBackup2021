@@ -987,3 +987,27 @@ yysy，谷雨这种就是烂屁股阴阳人，天天只会在女粉和尼哥面�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  Day_One  
+##### 3093#       发表于 2021-9-24 20:06
+
+
+我也有这个毛病<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但我觉得这个毛病不至于导致毕业吧   可能是我的比较轻   晨起不吃饭再加上注意饮食不吃冷吃辣就不会犯病
+
+—— 来自 Xiaomi M2103K19C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  T_Hb  
+##### 3094#       发表于 2021-9-24 20:16
+
+
+肠易激还是颚关节紊乱阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+肠易激病理不明，症状严不严重个体差异很大
+
+
