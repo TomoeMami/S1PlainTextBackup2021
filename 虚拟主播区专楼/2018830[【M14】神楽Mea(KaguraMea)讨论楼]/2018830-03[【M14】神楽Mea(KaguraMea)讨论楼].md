@@ -792,3 +792,16 @@ mea，这就是你想要的吗<img src="https://static.saraba1st.com/image/smile
 大概是有黑泥和没黑泥的区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 3075#       发表于 2021-9-24 16:00
+
+
+没见过2019年的nga和s1吗，那时候有些人两面双人格切换，在s1倒完黑泥去nga装纯良被当场叫破的场面可是一大乐子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

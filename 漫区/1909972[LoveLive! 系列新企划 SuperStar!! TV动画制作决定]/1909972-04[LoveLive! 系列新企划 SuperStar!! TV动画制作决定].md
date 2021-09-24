@@ -17662,3 +17662,25 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 也挺好，留下个好印象？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 5935#       发表于 2021-9-24 15:51
+
+
+好个p咧 鲤鱼还想回老家开live呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+虽然那块主要问题是疫情吧大概
+也没什么能说的 还能怎么样
+
+
+*****
+
+####  kbtit  
+##### 5936#       发表于 2021-9-24 15:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来国内开live起码要2023年吧，今年明年估计是别想了
+
+

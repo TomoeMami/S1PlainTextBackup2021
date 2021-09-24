@@ -2672,3 +2672,26 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  Yeaha123  
+##### 55691#       发表于 2021-9-24 15:47
+
+
+撕裂天空也不是那么容易，要霸王色天赋
+
+
+*****
+
+####  真红眼教授  
+##### 55692#       发表于 2021-9-24 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52871283&amp;ptid=98922" target="_blank">Algie 发表于 2021-9-24 15:23</a>
+
+和之国打打闹闹没过一个月吧，五黄就从被一棒子打晕变成手接棒子外加撕裂天空了，这天空是不是太好撕了一点 ...</blockquote>
+非要把人丢进监狱刷经验是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
