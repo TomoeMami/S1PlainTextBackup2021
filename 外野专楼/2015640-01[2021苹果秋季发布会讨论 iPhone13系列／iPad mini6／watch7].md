@@ -12696,3 +12696,34 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 晚点去还需不需要排队额。说提早去要排队？
 
 
+
+
+*****
+
+####  s1-5-5  
+##### 1122#       发表于 2021-9-24 10:24
+
+
+有点裂开,这官网比东哥还要慢吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">,往年也是这种样子?
+
+
+*****
+
+####  commanderyuri  
+##### 1123#       发表于 2021-9-24 10:28
+
+
+天猫教育优惠的有人发货了吗
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  猫不萌  
+##### 1124#       发表于 2021-9-24 10:49
+
+
+天猫mini6教育优惠1个月内发货被提前到26号到货了
+
+
