@@ -1163,3 +1163,75 @@ yysy，谷雨这种就是烂屁股阴阳人，天天只会在女粉和尼哥面�
 说不定明年就被彻底图图了，这年头什么都在加速<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  2014720  
+##### 3111#       发表于 2021-9-24 23:54
+
+
+ 这楼今年有去年1/3人吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时间在我手中|-1|看你这么不要脸，祝你妈死一次，不客气.|
+
+
+查看全部评分
+
+
+*****
+
+####  时间在我手中  
+##### 3112#       发表于 2021-9-24 23:55
+
+
+不会真有楼gachi吧，满嘴szm的人也配是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要点脸就滚回V8群臊皮去
+
+
+*****
+
+####  T_Hb  
+##### 3113#       发表于 2021-9-25 00:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 3114#       发表于 2021-9-25 00:00
+
+
+毕竟我没偷某人的复活甲呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么不好好看直播啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3115#       发表于 2021-9-25 00:03
+
+
+ 本帖最后由 时间在我手中 于 2021-9-25 00:06 编辑 
+
+谁不好好看直播啊，我扯的算直播相关啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+害复活甲，是不是傻逼黑屁入脑了真当某位的专利了啊，也就弱智贴杂才会这么关注那位的黑屁梗了，不得不说很符合你的弱智风格
+
+你不会真觉得我死两天跑回来是什么很值得羞耻的事吧，总好过你满嘴szm还只会狗叫啊
+
+滚回你的V8群继续弱智就完事了，叫你妈呢傻狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
