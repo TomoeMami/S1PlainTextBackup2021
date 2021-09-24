@@ -12727,3 +12727,14 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 天猫mini6教育优惠1个月内发货被提前到26号到货了
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 1125#       发表于 2021-9-24 10:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">ems龟速…………送了一上午了还没到手………………
+
+
