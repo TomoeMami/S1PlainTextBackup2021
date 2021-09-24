@@ -12964,3 +12964,46 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 可以早点去，我原本预约的时间是今天9点45，但是8点第一批去取店员也让我进去了
 
 
+
+
+*****
+
+####  平井姨夫  
+##### 1144#       发表于 2021-9-24 14:27
+
+
+13 PM到手，高刷太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  硫黄  
+##### 1145#       发表于 2021-9-24 14:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有mini6好壳推荐吗
+
+大康家的膜停电30号才能出货我好醉
+
+
+*****
+
+####  用户名已注册  
+##### 1146#       发表于 2021-9-24 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52865575&amp;ptid=2015640" target="_blank">用户名已注册 发表于 2021-9-24 09:03</a>
+
+不错不错，我23点那批明天也能收到了。</blockquote>
+暂时不想要了，趁着没发货，先退了~
+
+
+*****
+
+####  moekyo  
+##### 1147#       发表于 2021-9-24 14:42
+
+
+哎，我也想玩新手机<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
