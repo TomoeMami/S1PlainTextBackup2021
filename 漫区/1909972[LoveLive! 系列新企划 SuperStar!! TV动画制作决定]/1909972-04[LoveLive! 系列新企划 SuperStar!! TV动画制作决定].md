@@ -17521,3 +17521,26 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过审的都能下，越来越看不懂了，要不把B站的3话当成一个剧场版打上已完结吧
 
 
+
+
+*****
+
+####  优妮可  
+##### 5923#       发表于 2021-9-24 12:27
+
+
+<blockquote>寒风夜 发表于 2021-9-24 12:20
+尼玛 那个打冰球为主都不行？</blockquote>
+不知道后面会不会买，但都快开播了，偶像那个还有先行。
+
+
+*****
+
+####  Piano-Forest  
+##### 5924#       发表于 2021-9-24 12:31
+
+
+[https://twitter.com/no_k622/status/1441057318477516801](https://twitter.com/no_k622/status/1441057318477516801)
+<img src="https://p.sda1.dev/2/3b367a67967e697716891fd595aa2190/20210924_123115.jpg" referrerpolicy="no-referrer">
+
+

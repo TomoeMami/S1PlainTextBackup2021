@@ -12857,3 +12857,16 @@ thanks<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" refe
 到了，二代笔附在mini6上真的是笔记本加中性笔的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑耀星尘  
+##### 1136#       发表于 2021-9-24 12:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">同事10.1～13发货的这会已经顺丰发出了卧槽，我的同样的时间还是处理中…不过他是p我是pm
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
