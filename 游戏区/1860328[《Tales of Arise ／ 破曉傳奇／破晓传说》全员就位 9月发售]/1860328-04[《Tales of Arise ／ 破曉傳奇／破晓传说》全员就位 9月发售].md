@@ -15585,3 +15585,14 @@ pc</blockquote>
 秘奥义范围太小，根本打不中我方
 
 
+
+
+*****
+
+####  卡博雷z  
+##### 5659#       发表于 2021-9-24 22:30
+
+
+演出真的好差啊......打到救希侬那块，差点把人逗笑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
