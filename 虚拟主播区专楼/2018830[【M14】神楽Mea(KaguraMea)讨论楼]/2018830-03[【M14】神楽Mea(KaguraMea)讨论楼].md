@@ -730,3 +730,26 @@ mea，这就是你想要的吗<img src="https://static.saraba1st.com/image/smile
 联动的月底，我也寄了
 
 
+
+
+*****
+
+####  GRMeA104  
+##### 3070#       发表于 2021-9-24 13:28
+
+
+现在尼哥谭的天狗和s1天狗是走向不同的演化方向了吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 3071#       发表于 2021-9-24 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52869739&amp;ptid=2018830" target="_blank">GRMeA104 发表于 2021-9-24 13:28</a>
+
+现在尼哥谭的天狗和s1天狗是走向不同的演化方向了吗</blockquote>
+同一个人的两种人格罢了
+
+
