@@ -17684,3 +17684,109 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来国内开live起码要2023年吧，今年明年估计是别想了
 
 
+
+
+*****
+
+####  lj205  
+##### 5937#       发表于 2021-9-24 16:09
+
+
+对的，就是明年我看都不行，还有两年沉淀，不着急
+
+主要还是日本那边成绩要起来才行
+
+
+*****
+
+####  cybernetics31  
+##### 5938#       发表于 2021-9-24 16:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 5939#       发表于 2021-9-24 16:15
+
+
+现阶段虹都比星有希望来国内开live
+
+
+*****
+
+####  chenflyyy  
+##### 5940#       发表于 2021-9-24 16:18
+
+
+年轻人第一次看ll，问下ll这个企划之前国内开过live吗？非拼盘那种
+
+
+
+
+*****
+
+####  cybernetics31  
+##### 5941#       发表于 2021-9-24 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872059&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-24 16:18</a>
+年轻人第一次看ll，问下ll这个企划之前国内开过live吗？非拼盘那种</blockquote>
+水来过
+
+
+*****
+
+####  cybernetics31  
+##### 5942#       发表于 2021-9-24 16:20
+
+
+虹的问题是人全不了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">菜宝能来肯定去就是了
+
+
+*****
+
+####  chenflyyy  
+##### 5943#       发表于 2021-9-24 16:21
+
+
+翻页
+
+
+*****
+
+####  chenflyyy  
+##### 5944#       发表于 2021-9-24 16:21
+
+
+翻页
+
+
+*****
+
+####  没有爱就看不见  
+##### 5945#       发表于 2021-9-24 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872059&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-24 16:18</a>
+
+年轻人第一次看ll，问下ll这个企划之前国内开过live吗？非拼盘那种</blockquote>
+有，就是一直在这楼被嘴的水团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梶原ひかり  
+##### 5946#       发表于 2021-9-24 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872023&amp;ptid=1909972" target="_blank">没有爱就看不见 发表于 2021-9-24 16:15</a>
+
+现阶段虹都比星有希望来国内开live</blockquote>
+虹单独来国内开live是不可能的 最多来几个参加拼盘..
+
+明显水团 和 裂裂可能性大不少 特别是裂裂
+
+
