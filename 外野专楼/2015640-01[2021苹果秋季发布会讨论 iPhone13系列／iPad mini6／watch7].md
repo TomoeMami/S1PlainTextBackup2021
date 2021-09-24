@@ -13091,3 +13091,14 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 然后3小时iCloud恢复还没恢复完微信这傻逼APP，不知道是iCloud的问题还是zxl又去给亲妈烧纸钱了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  madbird302  
+##### 1155#       发表于 2021-9-24 17:54
+
+
+惊了，mini6的发货日从昨天的1103-1117直接提前到1028-1103了，仁宝偷偷摸摸也招工了？
+
+
