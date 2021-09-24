@@ -17478,3 +17478,46 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 2021-9-24 10:06 上传
 
 
+
+
+*****
+
+####  优妮可  
+##### 5919#       发表于 2021-9-24 12:15
+
+
+阿b公布的十月番里没有那两部偶像番，不会真的被针对了吧。
+
+
+*****
+
+####  寒风夜  
+##### 5920#       发表于 2021-9-24 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52868544&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-24 12:15</a>
+
+阿b公布的十月番里没有那两部偶像番，不会真的被针对了吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">尼玛 那个打冰球为主都不行？
+
+
+*****
+
+####  寒风夜  
+##### 5921#       发表于 2021-9-24 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52868544&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-24 12:15</a>
+
+阿b公布的十月番里没有那两部偶像番，不会真的被针对了吧。</blockquote>
+
+
+*****
+
+####  笋狐  
+##### 5922#       发表于 2021-9-24 12:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过审的都能下，越来越看不懂了，要不把B站的3话当成一个剧场版打上已完结吧
+
+

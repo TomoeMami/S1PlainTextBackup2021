@@ -12835,3 +12835,25 @@ mini6终于送到了<img src="https://static.saraba1st.com/image/smiley/face2017
 我930-10.2的13pm今天竟然发短信说发货了，估计明天就能到了，这次提前了好多啊。
 
 
+
+
+*****
+
+####  985604670  
+##### 1134#       发表于 2021-9-24 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52868329&amp;ptid=2015640" target="_blank">saintsimpler 发表于 2021-9-24 12:02</a>
+ 10分钟内发热不明显，过了10分钟有明显感知，发热位置在苹果标上面</blockquote>
+thanks<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  自主规制  
+##### 1135#       发表于 2021-9-24 12:12
+
+
+到了，二代笔附在mini6上真的是笔记本加中性笔的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
