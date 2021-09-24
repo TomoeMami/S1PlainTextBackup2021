@@ -13066,3 +13066,28 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  rak1  
+##### 1153#       发表于 2021-9-24 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52872805&amp;ptid=2015640" target="_blank">heseran 发表于 2021-9-24 17:05</a>
+
+看有测评机构用仪器测出13pro系列（13和mini没说），全亮度低频pwm调光,480Hz。这是不是算瞎眼屏啊……一下 ...</blockquote>
+每年都这么说 [https://www.notebookcheck.net/PW ... h-PWM.163979.0.html](https://www.notebookcheck.net/PWM-Ranking-Notebooks-Smartphones-and-Tablets-with-PWM.163979.0.html) 建议参考这个 
+
+
+*****
+
+####  芸芸提不起劲  
+##### 1154#       发表于 2021-9-24 17:22
+
+
+13 Pro Max到手电量75%，快速设置加iCloud恢复备份，中途把玩时间超过两小时，拍照拍HDR视频接近半小时，三个多小时后还剩50%电，手机温度勉强称得上温热，真的香疯了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+然后3小时iCloud恢复还没恢复完微信这傻逼APP，不知道是iCloud的问题还是zxl又去给亲妈烧纸钱了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

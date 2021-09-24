@@ -17864,3 +17864,35 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 水虎传，那场之后水族馆那首歌的风评就没法看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 5954#       发表于 2021-9-24 17:05
+
+
+难道不是某海鲜mix视频出来以后就没法看了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我当时感觉明明是日本人搞得这个但是我们这边玩得比日本人还起劲…
+
+
+*****
+
+####  ads147147  
+##### 5955#       发表于 2021-9-24 17:19
+
+
+厄介都是玩人家玩剩下的，结果还弄得水族馆这曲子完全没法听，国内素质说实话被人喷差也不是没道理。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 5956#       发表于 2021-9-24 17:22
+
+
+新的一期女骗子出了，整活还得看青山姐
+
+
