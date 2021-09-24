@@ -13294,3 +13294,16 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 今天去店里到手了，真爽啊
 
 
+
+
+*****
+
+####  Django  
+##### 1171#       发表于 2021-9-25 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52877275&amp;ptid=2015640" target="_blank">linuslinus 发表于 2021-9-24 21:48</a>
+求推荐一个13mini的手机壳</blockquote>
+找到了麻烦分享下，先随便买了个透明壳<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+

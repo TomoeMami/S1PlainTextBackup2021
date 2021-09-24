@@ -2749,3 +2749,31 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 接下来就画路飞大和按着凯多脑袋给长大桃之助口一管然后哭着喊“御田爸爸我错了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">”好不好啊？
 
 
+
+
+*****
+
+####  若槻镜  
+##### 55697#       发表于 2021-9-25 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52878898&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2021-9-25 00:13</a>
+
+猫狗最后秒人的时候招式名前边还一起喊“御田一刀流"，真TM恶心到家了
+
+
+接下来就画路飞大和按着凯多脑袋给 ...</blockquote>
+泥潭homo竟臻如此化境。我不过想看大和给桃之助口，一边大喊关东煮大人的基因之类的
+
+
+*****
+
+####  klzxs  
+##### 55698#       发表于 2021-9-25 00:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大和别喊就行了 
+
+九侠用的本来就是御田流也不给人喊喊 之前不还一起桃园十拳
+
+

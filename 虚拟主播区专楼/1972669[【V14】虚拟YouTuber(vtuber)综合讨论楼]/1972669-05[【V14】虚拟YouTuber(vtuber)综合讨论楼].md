@@ -15375,3 +15375,46 @@ seeds派🐮🍺啊
 刚看到，原来vspo大师喜加一了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 7116#       发表于 2021-9-25 00:21
+
+
+补了一下兔头凸待，小绿和鲨鱼妹是来给阴湿囚人上眼药是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 7117#       发表于 2021-9-25 00:22
+
+
+[https://twitter.com/kotonegami/status/1441375997153087501](https://twitter.com/kotonegami/status/1441375997153087501)
+
+
+『NEWS』
+
+
+Kotone VOCALOID Cover Mini Album.....
+
+<strong>【I scream】</strong>
+
+
+11/24　発売決定
+
+[https://store.universal-music.co ... %E3%83%A0#itemTitle](https://store.universal-music.co.jp/artist/kotone/?s18=%E3%82%A2%E3%83%AB%E3%83%90%E3%83%A0#itemTitle)
+
+
+SPECIAL BOX版のうさ耳パーカーには
+
+受注生産分すべてに生で手書きサインを書くことが
+
+決定しました。
+
+
+名起的挺好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
