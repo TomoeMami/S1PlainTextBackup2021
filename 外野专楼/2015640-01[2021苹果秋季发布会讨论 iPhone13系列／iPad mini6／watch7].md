@@ -13173,3 +13173,40 @@ APP我也有，但是我觉得AirPods二代还是最好的那款耳机，我生�
 多谢 省得去问了<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1161#       发表于 2021-9-24 20:43
+
+
+刚说完两小时，通知来了，明儿个去取
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  夏风  
+##### 1162#       发表于 2021-9-24 20:44
+
+
+到店取货是不是和身份证上性别一样就行了，我拿着我家领导的身份证她说不是本人就不给我取了，但是我看她也没有太复杂的手段去验是不是本人
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  宮脇咲良  
+##### 1163#       发表于 2021-9-24 21:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52876235&amp;ptid=2015640" target="_blank">夏风 发表于 2021-9-24 20:44</a>
+
+到店取货是不是和身份证上性别一样就行了，我拿着我家领导的身份证她说不是本人就不给我取了，但是我看她也 ...</blockquote>
+估计纯粹因为是人多 能踢一个去明天就踢去明天吧<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
+
+

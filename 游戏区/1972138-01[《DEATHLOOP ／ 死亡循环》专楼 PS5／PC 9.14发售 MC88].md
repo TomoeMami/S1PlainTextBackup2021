@@ -6730,3 +6730,47 @@ PS：黑收音机的提示虽然有（说上午的收音机发出奇怪的声音
 有跳出的。。。。城区晚上炮台放多了正面刚俱乐部就跳了，我还3080ti，估计东西一多就炸
 
 
+
+
+*****
+
+####  moimoi  
+##### 568#       发表于 2021-9-24 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52875680&amp;ptid=1972138" target="_blank">redsibyl 发表于 2021-9-24 20:08</a>
+
+有跳出的。。。。城区晚上炮台放多了正面刚俱乐部就跳了，我还3080ti，估计东西一多就炸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我比较谨慎（手残），从不正面和别人刚，也不参与群殴，谢谢提醒，下次我多注意看显存
+
+
+*****
+
+####  moimoi  
+##### 569#       发表于 2021-9-24 21:08
+
+
+今天把灌注的主线任务搞完了，松了一口气
+
+因为这个游戏机制，玩的提心吊胆，着实体会到了什么叫代价，但也是很久以来没这么投入地认认真真去玩游戏了，确实有肾上腺素飙升的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+整体还是很开心的，文洁女士完全代入了叶文洁，对她好感倍增，就是这些人见我就杀，我想和她们说个话都不成
+
+就系统看来，确实是一个耻辱和prey之子，世界观也结合了两者的样子，一直很遗憾耻辱没续作的感情得以慰藉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+明天继续
+
+
+*****
+
+####  moimoi  
+##### 570#       发表于 2021-9-24 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52875642&amp;ptid=1972138" target="_blank">415452356 发表于 2021-9-24 20:06</a>
+
+没有这么复杂，你进去一次地图会保持你进地图的人物配置，给你SL留了后门，无论你在关卡里面干了什么， ...</blockquote>
+谢谢，明天实验一下，今天下来感觉已经能应付了
+
+
