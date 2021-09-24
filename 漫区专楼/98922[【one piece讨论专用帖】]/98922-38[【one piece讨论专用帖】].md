@@ -2791,3 +2791,18 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  绝赞販売中  
+##### 55700#       发表于 2021-9-25 02:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52879235&amp;ptid=98922" target="_blank">Algie 发表于 2021-9-25 01:02</a>
+而且现在五黄水平突然撕裂天空就让罗和基德这两个之前一直在镜头上平起平坐的同辈变得很尴尬
+
+  -- 来自 能 ...</blockquote>
+哪里尴尬了，五黄从黑老大那里学流樱领悟了霸王色缠绕.基德在监狱少点傲气跟武士学了不也能变强.路飞见闻色武装色霸王色都升级了，而且超新星还有黑胡子和卡彭这些中年人，没啥尴尬的.
+
+
