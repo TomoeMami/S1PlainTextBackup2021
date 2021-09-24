@@ -17589,3 +17589,65 @@ LoveLive!Daysラブライブ！総合マガジンVol.20の表紙は「ラブラ�
 那明年虹二期不是也大概率无了
 
 
+
+
+*****
+
+####  Norkey1  
+##### 5929#       发表于 2021-9-24 13:10
+
+
+看了下好像连邦多利的pico都没有，偶像番大概率无了，三集就三集呗，不也挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 5930#       发表于 2021-9-24 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52869115&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-24 12:50</a>
+
+什么过审
+
+过审的是1-3集 和4-6集不过审也没关系啊
+
+10月那两部没买倒还不能下定论 但是星团不在10 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我说的是现在进行时疑似人民日报家长调查名单里被下的那些，比如re0和迪迦
+
+
+*****
+
+####  寒风夜  
+##### 5931#       发表于 2021-9-24 13:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52869440&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-9-24 13:10</a>
+
+看了下好像连邦多利的pico都没有，偶像番大概率无了，三集就三集呗，不也挺好的吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">邦邦不是乐队吗....
+
+
+*****
+
+####  寒风夜  
+##### 5932#       发表于 2021-9-24 13:19
+
+
+ 本帖最后由 寒风夜 于 2021-9-24 13:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52869440&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-9-24 13:10</a>
+
+看了下好像连邦多利的pico都没有，偶像番大概率无了，三集就三集呗，不也挺好的吗 ...</blockquote>
+
+
+*****
+
+####  Norkey1  
+##### 5933#       发表于 2021-9-24 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52869582&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-24 13:19</a>
+邦邦不是乐队吗....</blockquote>
+是啊，和它是偶像番不冲突…
+
+

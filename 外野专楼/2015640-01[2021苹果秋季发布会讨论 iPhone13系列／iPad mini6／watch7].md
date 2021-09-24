@@ -12883,3 +12883,16 @@ thanks<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" refe
 正在处理也可以拿，我拿到手了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  longrider  
+##### 1138#       发表于 2021-9-24 13:22
+
+
+mini6已到，手感不错。等二代笔的好价
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
