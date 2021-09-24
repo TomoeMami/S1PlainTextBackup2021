@@ -744,3 +744,23 @@ MHRSB！！！！！！！！！！！！！！！！！！卡普空我**
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  Lamas  
+##### 67#       发表于 2021-9-24 11:13
+
+
+又能摆烂一年<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">笑嘻了 
+
+
+*****
+
+####  抹茶瓜  
+##### 68#       发表于 2021-9-24 11:21
+
+
+等等党的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+

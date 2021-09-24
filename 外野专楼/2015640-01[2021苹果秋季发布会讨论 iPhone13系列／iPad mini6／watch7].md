@@ -12738,3 +12738,30 @@ iPhone信号最大的弱点是切换和重连很慢，我自己写了个飞行�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">ems龟速…………送了一上午了还没到手………………
 
 
+
+
+*****
+
+####  saintsimpler  
+##### 1126#       发表于 2021-9-24 11:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">mini到了，玩的游戏还没适配，玩了会儿感觉跟mini5比升级了个寂寞
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  橋白  
+##### 1127#       发表于 2021-9-24 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867469&amp;ptid=2015640" target="_blank">saintsimpler 发表于 2021-9-24 11:06</a>
+mini到了，玩的游戏还没适配，玩了会儿感觉跟mini5比升级了个寂寞
+
+—— 来自 HUAWEI NOP-AN00, And ...</blockquote>
+除了样子变了以外，99%的使用情况下就是没差别啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+所以我果子更换都是存储方面不能满足了或者有些新功能必须上新机子（比如手写笔）
+
+
