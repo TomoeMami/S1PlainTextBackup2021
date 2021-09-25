@@ -656,3 +656,38 @@ psvtv解锁了部分频率，忍龙掉帧比掌机好点了
 Hikakin唯一的优势就是人不错了。
 
 
+
+
+*****
+
+####  faithlifer  
+##### 62#       发表于 2021-9-25 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52888504&amp;ptid=2028204" target="_blank">miu255 发表于 2021-9-25 20:28</a>
+
+你看的手机评测是不是只有王自如
+
+
+—— 来自 motorola XT2125-4, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
+其实就是想说日版王自如<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萼绿华  
+##### 63#       发表于 2021-9-25 21:02
+
+
+看到hikakin就想和他口技対決 Bad Apple!!
+
+
+*****
+
+####  无色辉火  
+##### 64#       发表于 2021-9-25 21:06
+
+
+ps5手柄疑似漏电.jpg
+
+
