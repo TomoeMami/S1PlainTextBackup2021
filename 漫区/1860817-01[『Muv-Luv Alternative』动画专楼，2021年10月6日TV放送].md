@@ -8783,3 +8783,55 @@ TVアニメ『マブラヴ オルタネイティヴ』
 <strong>それと、佐渡島を舞台にしたらどうだろうというのは、原作者の吉宗鋼紀さんが出してくださったアイデアでもあります。</strong></blockquote>
 
 
+
+
+*****
+
+####  kyonkoism  
+##### 612#       发表于 2021-9-25 19:30
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/192941j54545za5ir4zii9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>9RAIUZNI)Z}HV2R%MA6JTB4.jpg</strong> (126.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 19:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/192950ptqnt67f3c1336fp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>MKTWBOHL7`F_9Q{OF@8302G.jpg</strong> (134.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 19:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/192958whifb4ndiy444b1z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>K_2}_3KULMF33~8ROMUN6_F.jpg</strong> (115.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 19:29 上传
+
+
+这老师怎么感觉年轻那么多，像是从前传过来的
+
+
+*****
+
+####  Yeaha123  
+##### 613#       发表于 2021-9-25 19:45
+
+
+直接从al篇开始，是默认观众都玩过ex和un，完全粉丝向的样子
+
+竟然还有原创，难道集数非常充裕?
+
+
