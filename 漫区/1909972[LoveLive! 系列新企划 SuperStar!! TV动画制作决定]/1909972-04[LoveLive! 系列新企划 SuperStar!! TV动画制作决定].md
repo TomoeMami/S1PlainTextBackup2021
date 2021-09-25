@@ -18432,3 +18432,25 @@ cos有加成的啦 不奇怪</blockquote>
 那还能期待出个新手游么，别让klab做了
 
 
+
+
+*****
+
+####  kata魂  
+##### 5992#       发表于 2021-9-25 16:58
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/165733laj3bisuk3snts3n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E6E2983A313CFF4D99CE3C4F94DDE693.jpg</strong> (245.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-9-25 16:57 上传
+
+
+ 现在剧情已经离谱到あｓ都开始帮着圆的地步了吗
+
+
