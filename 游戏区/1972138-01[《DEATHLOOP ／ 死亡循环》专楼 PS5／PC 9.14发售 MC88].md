@@ -7045,3 +7045,17 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 市中心探索完了，除了俱乐部没进去。查理的游戏屋真的能算关卡设计吗，就一直上直下正正方方的水泥盒子，感觉本作的设计量撑死耻辱dlc。
 
 
+
+
+*****
+
+####  lxskcool  
+##### 592#       发表于 2021-9-26 01:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52887198&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-25 18:31</a>
+你是抖m吗</blockquote>
+玩到后面都灌注成一身神装了，不如每次循环都让玩家做取舍
+当然也可以做成一种难度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
