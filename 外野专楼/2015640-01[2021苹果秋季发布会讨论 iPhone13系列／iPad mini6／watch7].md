@@ -13492,3 +13492,17 @@ Apple浦东人其实不多<img src="https://static.saraba1st.com/image/smiley/fa
 有人遇到键盘闪烁的问题吗，敲几下就闪，吐了
 
 
+
+
+*****
+
+####  平井姨夫  
+##### 1187#       发表于 2021-9-25 13:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52883050&amp;ptid=2015640" target="_blank">skives 发表于 2021-9-25 12:37</a>
+
+马上就要去取货了 大家有眼睛不适的感觉吗</blockquote>
+重度使用一天半了，没有
+
+
