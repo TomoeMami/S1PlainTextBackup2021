@@ -1145,3 +1145,35 @@ SE这屌公司次次没中文真搞不懂你们为什么要惯着它
 后面有类似塔防的种田阶段，那天使也有一大坨魔法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  eulereld  
+##### 91#       发表于 2021-9-25 22:12
+
+
+DEMO玩完，感想上面各樓都講完了
+卡牌只是個外皮，本質是個RPG，做成卡牌表現大概是省錢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+RPG部份也很傳統，俯視地圖+踩地雷式遇怪有回到以前玩FF1時的感覺，難度不高，甚至想它提高點難度，不然總有一天會打到睡著
+動畫很多很繁瑣，速度慢，NS版還會卡，卡得有點頭暈了
+故事…那是橫尾呢，不過有點對黑深殘膩了，就不能寫點光明點的東西嗎
+總論是減價可入，喜歡那傳統的味道，待會玩玩Steam版看看卡不卡，不卡就挑Steam好了
+
+
+*****
+
+####  UnrealApartheid  
+##### 92#       发表于 2021-9-25 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52883859&amp;ptid=2025458" target="_blank">病態極端 发表于 2021-09-25 13:47:09</a>
+橫尾真乃省錢大師。
+
+就連RM遊戲，立繪也是會變表情，有動作差分的吧。而且一般地圖上還有會動的像素人物。
+
+ ...</blockquote>这游戏是Unity引擎制作的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

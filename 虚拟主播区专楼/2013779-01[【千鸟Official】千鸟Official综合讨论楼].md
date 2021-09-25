@@ -4076,3 +4076,35 @@ P1020004.JPG
 今晚突击之前喝了吧
 
 
+
+
+*****
+
+####  伞沢直美  
+##### 360#       发表于 2021-9-25 22:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文二姨开玩idol manager，不打mod没劲啊
+
+
+
+
+*****
+
+####  伞沢直美  
+##### 361#       发表于 2021-9-25 22:21
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/222103xp81r4jwr7s1zhop.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20210925222035.png</strong> (246.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 22:21 上传
+
+
+马文静是吧，蝈楠K48是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
