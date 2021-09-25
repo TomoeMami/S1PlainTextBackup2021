@@ -1130,3 +1130,18 @@ SE这屌公司次次没中文真搞不懂你们为什么要惯着它
 我下了个学习版试了一下感觉不怎么样就删了。。。
 
 
+
+
+*****
+
+####  谜の宝箱  
+##### 90#       发表于 2021-9-25 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52888738&amp;ptid=2025458" target="_blank">华理傻宅 发表于 2021-9-25 20:45</a>
+一个ACT游戏要啥中文。。。
+
+我下了个学习版试了一下感觉不怎么样就删了。。。 ...</blockquote>
+后面有类似塔防的种田阶段，那天使也有一大坨魔法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
