@@ -13463,3 +13463,32 @@ Apple浦东人其实不多<img src="https://static.saraba1st.com/image/smiley/fa
 不过之前SE一代一直用的官方皮套，直角的包裹和手感还是挺好的
 
 
+
+
+*****
+
+####  唯一指定用户名  
+##### 1184#       发表于 2021-9-25 12:35
+
+
+到手了 很爽<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  skives  
+##### 1185#       发表于 2021-9-25 12:37
+
+
+马上就要去取货了 大家有眼睛不适的感觉吗
+
+
+*****
+
+####  松川奈々  
+##### 1186#       发表于 2021-9-25 12:37
+
+
+有人遇到键盘闪烁的问题吗，敲几下就闪，吐了
+
+
