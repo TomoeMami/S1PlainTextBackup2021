@@ -13815,3 +13815,18 @@ usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.c
 然而反而我的官方壳还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
+
+
+*****
+
+####  cyrano57  
+##### 1213#       发表于 2021-9-26 07:15
+
+
+13Pro用了一天，续航满意，高刷感知较强，新的通知管理也很实用
+
+realme要沦为游戏机了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

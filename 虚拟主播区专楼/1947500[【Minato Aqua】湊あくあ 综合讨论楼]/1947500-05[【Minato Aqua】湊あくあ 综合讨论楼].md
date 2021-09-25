@@ -11990,3 +11990,17 @@ https://youtu.be/425-oc3ZEgg
 最近的摸鱼还是能接受的，不像之前那段时间<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 6963#       发表于 2021-9-26 07:13
+
+
+0点偷偷发了个英文版的aqua iro palette
+这就是今天要公告的内容吗，设错时间了还是公告鸽了？
+
+不看歌词不知道在唱什么，您还是讲日语吧
+
+
