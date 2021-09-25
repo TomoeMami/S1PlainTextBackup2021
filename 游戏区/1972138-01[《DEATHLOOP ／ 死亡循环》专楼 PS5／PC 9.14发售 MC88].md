@@ -6976,3 +6976,37 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 但是回头想想这样或许更带感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  moimoi  
+##### 587#       发表于 2021-9-25 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52886973&amp;ptid=1972138" target="_blank">lxskcool 发表于 2021-9-25 18:13</a>
+
+通关了，一开始还以为灌注理念只能把装备带进“下个”循环，下下个循环想用还得灌注
+
+但是回头想想这样或许 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你是抖m吗
+
+
+*****
+
+####  moimoi  
+##### 588#       发表于 2021-9-25 18:44
+
+
+刚把弗岛从头到尾探索了一遍，把所有人杀光了，除了几个因为时段进不去的地方，关卡其实很小，比耻辱一关还小的样子，地图设计的也就普普通通水平吧，进俱乐部的的方式全都琢磨了一遍还有点意思，但弗兰克俱乐部内部地图设计太简单太敷衍了，一个岛屿就一栋房子还设计出这水平实在夸不出口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+比起我一直很嫌弃的耻辱2的大皇宫差老远，能预想到等把四个地图探索完一遍后就没什么重复可玩性了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+美术风格很喜欢，外部环境大气，音乐也不错
+
+杀人音效烂，每次成功击杀搞得我被发现一样
+
+每次遇上打不开的门，都不知道到底是设计的打不开，还是我解密水平太差打不开，一直在纠结<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

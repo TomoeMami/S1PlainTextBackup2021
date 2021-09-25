@@ -8706,3 +8706,32 @@ mla动画不再是付费电视台 独占了，众人的努力可喜可贺，鸡�
 要开播了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 608#       发表于 2021-9-25 18:33
+
+
+下面内容为转帖，来源：https://tieba.baidu.com/p/7552932080
+
+剧情意外地没有开战术机全力喷射<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+-------------------
+
+动画内容（这里讲梗概，后详述）
+第一集原创故事 讲述佐渡岛防卫战（1998年9月24日）
+以沙雾副官，駒木大尉（故事中少尉？）为主视角，讲述帝国军于佐渡岛抗击beta败退这一部分
+小沢和安倍两位舰长有出镜
+最后以部分市民在卫士们的奋战下成功登船，駒木看着自己救出的孩子，这一话结束
+
+第二集为主线
+以白银武醒来开始，参考了部分漫画元素（如武拿着皆琉神威目送冥夜乘坐的火箭上天）
+之后基本按游戏剧情来，到武在操场上遇见自我锻炼的武结束
+
+个人感觉第一集观感好于第二集
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
