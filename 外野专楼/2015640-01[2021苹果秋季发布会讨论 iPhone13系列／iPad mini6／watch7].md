@@ -13374,3 +13374,17 @@ mini6太棒了，意外发现超配笔
 Apple浦东人其实不多<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 1177#       发表于 2021-9-25 10:18
+
+
+结果我是今天第一个在环球港取货的人，在店开的同时到店，排我前面的进店以后开始东张西望，我直接往最里面走成了第一，后面顿时大排长龙……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+

@@ -18155,3 +18155,48 @@ ace7ecdb0404e136aebc7e854f8174b1bec113b7_raw.jpg
 <img src="https://img.saraba1st.com/forum/202109/25/100003ptkpja1arhak2r7h.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 5971#       发表于 2021-9-25 10:10
+
+
+看感谢祭生放 我突然悟了
+
+因为疫情关系现场的阿宅都不能wooooo和fooooo了 只能鼓掌
+
+原来SP第8话的两次迷鼓掌情节是在致敬这个啊（）
+
+
+*****
+
+####  JustW  
+##### 5972#       发表于 2021-9-25 10:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52881249&amp;ptid=1909972" target="_blank">megapikachu 发表于 2021-9-25 10:00</a>
+
+鲤鱼距离60碗粉还差一周</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">降维打击太可怕了
+
+
+*****
+
+####  a92063256  
+##### 5973#       发表于 2021-9-25 10:15
+
+
+啊，又卡翻页了
+
+
+*****
+
+####  JustW  
+##### 5974#       发表于 2021-9-25 10:20
+
+
+翻页
+
+
