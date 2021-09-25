@@ -951,3 +951,14 @@ RPG部分中规中矩，试玩还看不出卡牌系统的优点，卡片收集�
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  谜の宝箱  
+##### 75#       发表于 2021-9-25 12:24
+
+
+没有中文这种打牌的怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

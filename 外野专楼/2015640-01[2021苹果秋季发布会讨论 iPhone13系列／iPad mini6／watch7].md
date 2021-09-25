@@ -13449,3 +13449,17 @@ Apple浦东人其实不多<img src="https://static.saraba1st.com/image/smiley/fa
 想问下各位会出现弹窗写网络中断，下面是英文写着Your selected cellular network for null is no longer available。昨晚恢复系统之后就偶尔会弹
 
 
+
+
+*****
+
+####  bedmax  
+##### 1183#       发表于 2021-9-25 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52877275&amp;ptid=2015640" target="_blank">linuslinus 发表于 2021-9-24 21:48</a>
+求推荐一个13mini的手机壳</blockquote>
+首发忘记连壳一起买了，第二天下单了官方皮套到现在还没发货…
+不过之前SE一代一直用的官方皮套，直角的包裹和手感还是挺好的
+
+

@@ -18291,3 +18291,23 @@ cos有加成的啦 不奇怪</blockquote>
 日本那边的偶像文化是怎么样的，如果动画人物塑造崩了，会影响到三次元企划的人气吗，还是说两边分得很开，不是很了解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  离心  
+##### 5983#       发表于 2021-9-25 12:02
+
+
+水水动画拉了也不妨碍她现在是2.5次元的最强女团啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  沈淮  
+##### 5984#       发表于 2021-9-25 12:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 鲤鱼最近B站动态发的好勤
+
+
