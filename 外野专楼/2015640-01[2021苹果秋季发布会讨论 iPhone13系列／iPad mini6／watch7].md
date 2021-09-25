@@ -13535,3 +13535,20 @@ MINI的官壳450忒贵了，看图也没啥特别的
 是有什么隐藏要素所以卖这么贵吗
 
 
+
+
+*****
+
+####  平井姨夫  
+##### 1190#       发表于 2021-9-25 14:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52883880&amp;ptid=2015640" target="_blank">攻心为上木之本 发表于 2021-9-25 13:49</a>
+
+小白测评昨天测出来pro max有30w，要么是刀法太好了其他款都没有这么高所以不敢吹？
+
+
+—— 来自 HUAWEI A ...</blockquote>
+看其他人也测试过了，只有13PM是30W充电
+
+
