@@ -6964,3 +6964,15 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 谢谢，有点意思啊……就是好复杂的解密
 
 
+
+
+*****
+
+####  lxskcool  
+##### 586#       发表于 2021-9-25 18:13
+
+
+通关了，一开始还以为灌注理念只能把装备带进“下个”循环，下下个循环想用还得灌注
+但是回头想想这样或许更带感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

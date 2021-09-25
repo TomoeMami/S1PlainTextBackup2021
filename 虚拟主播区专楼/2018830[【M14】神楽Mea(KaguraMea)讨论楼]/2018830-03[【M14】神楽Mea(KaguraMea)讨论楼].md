@@ -1555,3 +1555,16 @@ https://www.pixiv.net/artworks/93001227<img src="https://p.sda1.dev/2/4435b44aee
 猪坚强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 3143#       发表于 2021-9-25 18:17
+
+
+大骨架不是很符合人设吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
