@@ -13336,3 +13336,19 @@ Max这电量比我想象的还要耐用，太爽了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  平井姨夫  
+##### 1174#       发表于 2021-9-25 08:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52878189&amp;ptid=2015640" target="_blank">Miyalla 发表于 2021-9-24 22:54</a>
+
+实际显示效果怎么样
+
+影响大不大啊</blockquote>
+没什么影响，就是觉得开弹幕也会比之前省电了
+
+
