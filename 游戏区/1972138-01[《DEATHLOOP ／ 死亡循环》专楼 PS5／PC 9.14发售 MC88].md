@@ -7010,3 +7010,16 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 每次遇上打不开的门，都不知道到底是设计的打不开，还是我解密水平太差打不开，一直在纠结<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  bayes  
+##### 589#       发表于 2021-9-25 18:47
+
+
+说到这个艺术家boss，就我一个人觉得有点戳中xp吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">）
+
+虽然到通关我都没正面跟她刚过几次。
+
+
