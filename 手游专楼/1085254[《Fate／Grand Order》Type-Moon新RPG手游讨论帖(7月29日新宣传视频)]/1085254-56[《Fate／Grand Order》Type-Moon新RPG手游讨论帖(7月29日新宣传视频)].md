@@ -16523,3 +16523,17 @@ jcb就行啊
 每日单抽又出货了，可是为什么是月神呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83879#       发表于 2021-9-25 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52874239&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-9-24 18:38</a>
+
+我最初是买的苹果礼品卡，640一单，后来换手机了而且苹果经常封我号，就整了个谷歌账号绑定了，买谷歌礼 ...</blockquote>
+什么次元的苹果礼品卡要640。。你怕不是被人忽悠了。。。
+
+
