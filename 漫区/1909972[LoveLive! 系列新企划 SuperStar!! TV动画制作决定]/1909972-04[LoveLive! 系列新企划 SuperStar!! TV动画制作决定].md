@@ -18200,3 +18200,17 @@ ace7ecdb0404e136aebc7e854f8174b1bec113b7_raw.jpg
 翻页
 
 
+
+
+*****
+
+####  megapikachu  
+##### 5975#       发表于 2021-9-25 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52881369&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-25 10:12</a>
+
+降维打击太可怕了</blockquote>
+而且动画开播以后，鲤鱼的增长速度还比其他人快，所以差距还拉大了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
