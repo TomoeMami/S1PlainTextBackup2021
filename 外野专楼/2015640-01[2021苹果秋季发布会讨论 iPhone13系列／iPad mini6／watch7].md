@@ -13438,3 +13438,14 @@ Apple浦东人其实不多<img src="https://static.saraba1st.com/image/smiley/fa
 借楼问，ipad pro 2021 11’屏幕怎么样，长期使用的话
 
 
+
+
+*****
+
+####  Totokei  
+##### 1182#       发表于 2021-9-25 11:40
+
+
+想问下各位会出现弹窗写网络中断，下面是英文写着Your selected cellular network for null is no longer available。昨晚恢复系统之后就偶尔会弹
+
+
