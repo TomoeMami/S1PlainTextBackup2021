@@ -6938,3 +6938,29 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 请问投递亭是干嘛的？我脑补以为是可以让我随时关注的地方，现在发现好像不是
 
 
+
+
+*****
+
+####  astrayveller  
+##### 584#       发表于 2021-9-25 17:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52885746&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-25 16:26</a>
+请问投递亭是干嘛的？我脑补以为是可以让我随时关注的地方，现在发现好像不是 ...</blockquote>
+可以预约东西的 电池 曲柄之类的东西有些地方有保险箱或者机关但是地图里没有响应的道具就要用这个预约邮寄
+
+— from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  moimoi  
+##### 585#       发表于 2021-9-25 17:58
+
+
+<blockquote>astrayveller 发表于 2021-9-25 17:48
+可以预约东西的 电池 曲柄之类的东西有些地方有保险箱或者机关但是地图里没有响应的道具就要用这个预约邮 ...</blockquote>
+谢谢，有点意思啊……就是好复杂的解密
+
+

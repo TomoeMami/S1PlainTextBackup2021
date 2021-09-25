@@ -18465,3 +18465,29 @@ cos有加成的啦 不奇怪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常吃可堇的画师都润了，剩下的都是给擦屁股的
 
 
+
+
+*****
+
+####  名津流  
+##### 5994#       发表于 2021-9-25 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52877436&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-24 21:59</a>
+
+草</blockquote>
+跟广播剧里说的一样，她们全去找liyuu这个coser学拍照姿势，于是就全团同化了吧
+
+
+*****
+
+####  JustW  
+##### 5995#       发表于 2021-9-25 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52886124&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-25 16:58</a>
+
+现在剧情已经离谱到あｓ都开始帮着圆的地步了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位老师各种大尺度扭曲发病短漫信手拈来，但在动画面前也摘下头套变得温暖人心起来
+
+

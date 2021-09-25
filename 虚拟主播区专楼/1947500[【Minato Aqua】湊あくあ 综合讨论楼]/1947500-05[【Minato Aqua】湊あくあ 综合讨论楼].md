@@ -11946,3 +11946,23 @@ https://youtu.be/425-oc3ZEgg
 今天这杂谈还挺有内容，很多之前好奇的东西
 
 
+
+
+*****
+
+####  星の守  
+##### 6959#       发表于 2021-9-25 18:01
+
+
+抽卡突然取消，没说原因<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Maonpuyo  
+##### 6960#       发表于 2021-9-25 18:08
+
+
+来了来了，久违的休止要来了吗
+
+
