@@ -18105,3 +18105,16 @@ pay酱这个动作单独看还挺沉重的<img src="https://static.saraba1st.com
 可可这人气是很谜，感觉现场应援灯不多哎
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 5969#       发表于 2021-9-25 09:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52880918&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-25 09:28</a>
+可可这人气是很谜，感觉现场应援灯不多哎</blockquote>
+就4-8集的人物塑造人气早掉光了
+
+
