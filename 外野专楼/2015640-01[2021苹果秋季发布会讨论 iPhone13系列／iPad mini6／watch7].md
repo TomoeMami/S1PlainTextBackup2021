@@ -13705,3 +13705,23 @@ usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.c
 重度用了半天 pm这电池真的强<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
+
+
+*****
+
+####  ykyin09  
+##### 1203#       发表于 2021-9-25 23:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">话说手表有消息吗，我这S5电池快顶不住了。
+
+
+*****
+
+####  松霖  
+##### 1204#       发表于 2021-9-25 23:15
+
+
+13pro难买到，手表遥遥无期，难受
+
+

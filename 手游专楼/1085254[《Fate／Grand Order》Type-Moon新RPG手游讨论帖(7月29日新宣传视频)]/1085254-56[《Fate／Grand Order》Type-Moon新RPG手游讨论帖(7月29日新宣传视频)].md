@@ -16548,3 +16548,35 @@ jcb就行啊
 礼品卡不都是500出头的吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 83881#       发表于 2021-9-25 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52883768&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-25 13:38</a>
+
+什么次元的苹果礼品卡要640。。你怕不是被人忽悠了。。。</blockquote>
+淘宝的苹果控，应该是被忽悠了，当初随便一搜就一直买的那个...现在再看好多五百二三的卡...就当买个教训吧，反正现在找到便宜的安卓代充了...
+
+
+*****
+
+####  空气蛹  
+##### 83882#       发表于 2021-9-25 23:06
+
+
+翻页
+
+
+*****
+
+####  空气蛹  
+##### 83883#       发表于 2021-9-25 23:06
+
+
+翻页
+
+

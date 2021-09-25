@@ -8848,3 +8848,17 @@ TVアニメ『マブラヴ オルタネイティヴ』
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  安瓦尔阿明  
+##### 615#       发表于 2021-9-25 23:23
+
+
+[https://mantan-web.jp/article/20210925dog00m200046000c.html](https://mantan-web.jp/article/20210925dog00m200046000c.html)
+
+
+今天放映的短新闻，主要聚焦于声优。
+
+
