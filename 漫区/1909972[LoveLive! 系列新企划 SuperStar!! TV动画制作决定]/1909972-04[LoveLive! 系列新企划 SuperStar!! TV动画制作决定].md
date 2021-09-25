@@ -18333,3 +18333,16 @@ cos有加成的啦 不奇怪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到上映会的应援色，我记得上次唐可可的也不多，难道可厨都喜欢家里蹲
 
 
+
+
+*****
+
+####  D麦林  
+##### 5987#       发表于 2021-9-25 14:16
+
+
+应援色这玩意说不清的 有的人是喜欢一直用推的颜色有的人就是随缘的
+
+也不一定就能说谁的推多 指不定就是正好这一场别的人的推去的多了 毕竟现在上座率限制一场其实也来不了几个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
