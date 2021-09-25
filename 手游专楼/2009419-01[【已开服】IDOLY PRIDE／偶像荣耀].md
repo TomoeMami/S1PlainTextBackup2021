@@ -6498,3 +6498,16 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不管,麻奈是神,一定要抽到手
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 466#       发表于 2021-9-25 08:55
+
+
+不愧是cy的爸爸ca，轻而易举就做到了儿子做不到的事情（指在现实背景的偶像养成游戏里让玩家P一个幽灵）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你问我怎么看？当然是井了。麻奈抽爆啥的我就不多说了，同池的樱这强度简直爆炸，可以比肩目前的辅助幻神原皮葵了。Vi连着来了两员大将之后已经从原来的三色垫底变成三色最强了。Da的樱和怜同款sp什么时候安排一下
+
+
