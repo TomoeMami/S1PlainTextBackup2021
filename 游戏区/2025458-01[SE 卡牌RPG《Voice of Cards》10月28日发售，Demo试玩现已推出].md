@@ -1177,3 +1177,21 @@ RPG部份也很傳統，俯視地圖+踩地雷式遇怪有回到以前玩FF1時�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  MVnetVn  
+##### 93#       发表于 2021-9-26 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52864741&amp;ptid=2025458" target="_blank">onlv星骸 发表于 2021-9-24 07:37</a>
+
+好像就是个jrpg配上卡牌的美术？没啥特别的玩法啊。完全抛弃卡牌要素也毫无违和感，我拒绝承认这是个卡牌游 ...</blockquote>
++65535
+
+先还以为是 TRPG
+
+结果就是省钱作
+
+

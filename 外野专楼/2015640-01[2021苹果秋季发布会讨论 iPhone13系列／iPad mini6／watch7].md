@@ -13725,3 +13725,26 @@ usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.c
 13pro难买到，手表遥遥无期，难受
 
 
+
+
+*****
+
+####  heseran  
+##### 1205#       发表于 2021-9-26 00:20
+
+
+一直是12到17号，都不带变的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Yui_hirasawa  
+##### 1206#       发表于 2021-9-26 00:22
+
+
+看到nga上很多反馈13pro的屏幕低频调光伤眼睛，我这用了4年的三星S8+不知道是哪种调光啊？打算双11换手机，给我整的犹豫了。
+这种眼睛对调光的适应性在实体店里短时间的看手机应该测不出来吧？
+
+
