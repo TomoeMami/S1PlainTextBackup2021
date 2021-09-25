@@ -962,3 +962,14 @@ RPG部分中规中矩，试玩还看不出卡牌系统的优点，卡片收集�
 没有中文这种打牌的怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  iceplatinum  
+##### 76#       发表于 2021-9-25 13:11
+
+
+感觉是游戏上的倒退，更不要说横尾编制，让我下意识觉得怪物才是白的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

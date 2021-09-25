@@ -21934,3 +21934,14 @@ AME新衣！
 AME BEE CUTE <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  smy20011  
+##### 1390#         楼主| 发表于 2021-9-25 13:05
+
+
+EN的MC感觉看不过来了，一大堆drama
+
+

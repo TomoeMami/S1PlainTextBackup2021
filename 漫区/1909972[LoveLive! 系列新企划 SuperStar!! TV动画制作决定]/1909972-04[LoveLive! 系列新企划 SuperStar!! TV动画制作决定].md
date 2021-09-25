@@ -18322,3 +18322,14 @@ cos有加成的啦 不奇怪</blockquote>
 现在还没到最忙的时候，碰上节日，个人活动和二十万粉。
 
 
+
+
+*****
+
+####  kbtit  
+##### 5986#       发表于 2021-9-25 13:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到上映会的应援色，我记得上次唐可可的也不多，难道可厨都喜欢家里蹲
+
+

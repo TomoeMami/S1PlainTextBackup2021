@@ -1482,3 +1482,14 @@ wdnmd  忽然鬼叫这么大声
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那又是一觉睡起来就联动的剧本了
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 3136#       发表于 2021-9-25 13:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">听她唱歌真是有种安心感啊不行啊不行啊不要再做管人痴了
+
+
