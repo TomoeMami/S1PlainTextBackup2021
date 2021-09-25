@@ -13563,3 +13563,17 @@ MINI的官壳450忒贵了，看图也没啥特别的
 京东的 快求到货
 
 
+
+
+*****
+
+####  Totokei  
+##### 1192#       发表于 2021-9-25 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52884457&amp;ptid=2015640" target="_blank">平井姨夫 发表于 2021-9-25 14:34</a>
+
+看其他人也测试过了，只有13PM是30W充电</blockquote>
+这个是全程高功率还是几秒真男人<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+

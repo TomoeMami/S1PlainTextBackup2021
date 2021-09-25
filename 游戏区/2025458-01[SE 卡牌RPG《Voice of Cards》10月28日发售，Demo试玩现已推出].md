@@ -998,3 +998,25 @@ SE應該考慮一下用自家引擎复刻這遊戲的框架，拿出來當CardRP
 这就是个rpg，只不过披了卡牌的皮。剧情挺简单的，基本都能看懂。港服可以先买着，预约还有特典送，等之后更中吧。
 
 
+
+
+*****
+
+####  jy000129  
+##### 79#       发表于 2021-9-25 16:01
+
+
+SE这屌公司次次没中文真搞不懂你们为什么要惯着它
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  谜の宝箱  
+##### 80#       发表于 2021-9-25 16:03
+
+
+比起这个，我更想玩那个重制的雷莎出击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
