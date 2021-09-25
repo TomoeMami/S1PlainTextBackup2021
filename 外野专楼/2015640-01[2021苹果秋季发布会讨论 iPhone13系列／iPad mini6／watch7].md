@@ -13388,3 +13388,53 @@ Apple浦东人其实不多<img src="https://static.saraba1st.com/image/smiley/fa
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  nomhrpls  
+##### 1178#       发表于 2021-9-25 11:16
+
+
+ 本帖最后由 nomhrpls 于 2021-9-25 11:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13pm到了，镜头大我11pm好多，一开始还以为是套了层透明塑料。不过现在换机是一点兴奋感都没了，传完数据，一模一样的背景，一样的软件。玩了会电影模式就扔一边了。
+
+
+*****
+
+####  乔尼·乔斯达  
+##### 1179#       发表于 2021-9-25 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52877275&amp;ptid=2015640" target="_blank">linuslinus 发表于 2021-9-24 21:48</a>
+
+求推荐一个13mini的手机壳</blockquote>
+官壳最好  evutec pitaka uag  大康  spigen
+
+我一般买这几家的
+
+
+*****
+
+####  乔尼·乔斯达  
+##### 1180#       发表于 2021-9-25 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52870618&amp;ptid=2015640" target="_blank">硫黄 发表于 2021-9-24 14:29</a>
+
+有mini6好壳推荐吗
+
+大康家的膜停电30号才能出货我好醉</blockquote>
+官壳，以及官壳
+
+
+*****
+
+####  乔尼·乔斯达  
+##### 1181#       发表于 2021-9-25 11:27
+
+
+借楼问，ipad pro 2021 11’屏幕怎么样，长期使用的话
+
+

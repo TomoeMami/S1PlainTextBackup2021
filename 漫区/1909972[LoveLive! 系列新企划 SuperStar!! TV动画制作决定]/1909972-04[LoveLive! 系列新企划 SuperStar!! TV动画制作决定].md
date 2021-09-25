@@ -18214,3 +18214,25 @@ ace7ecdb0404e136aebc7e854f8174b1bec113b7_raw.jpg
 而且动画开播以后，鲤鱼的增长速度还比其他人快，所以差距还拉大了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 5976#       发表于 2021-9-25 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52881624&amp;ptid=1909972" target="_blank">megapikachu 发表于 2021-9-25 10:38</a>
+而且动画开播以后，鲤鱼的增长速度还比其他人快，所以差距还拉大了 ...</blockquote>
+宣布中之人前鲤鱼推特粉丝是51W
+
+
+*****
+
+####  cybernetics31  
+##### 5977#       发表于 2021-9-25 11:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">cos有加成的啦 不奇怪
+
+
