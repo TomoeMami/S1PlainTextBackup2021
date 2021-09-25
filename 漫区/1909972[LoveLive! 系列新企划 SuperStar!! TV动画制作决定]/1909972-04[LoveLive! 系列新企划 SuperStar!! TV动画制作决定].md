@@ -18271,3 +18271,23 @@ cos有加成的啦 不奇怪</blockquote>
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  离心  
+##### 5981#       发表于 2021-9-25 12:00
+
+
+还要等一下，名堇的cd还没好今天晚上就可以了
+
+
+*****
+
+####  CharlieZ-  
+##### 5982#       发表于 2021-9-25 12:01
+
+
+日本那边的偶像文化是怎么样的，如果动画人物塑造崩了，会影响到三次元企划的人气吗，还是说两边分得很开，不是很了解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
