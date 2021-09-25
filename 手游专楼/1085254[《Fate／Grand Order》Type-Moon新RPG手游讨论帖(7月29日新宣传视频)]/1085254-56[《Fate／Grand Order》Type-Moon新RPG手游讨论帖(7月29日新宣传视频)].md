@@ -16512,3 +16512,14 @@ jcb就行啊
 我最初是买的苹果礼品卡，640一单，后来换手机了而且苹果经常封我号，就整了个谷歌账号绑定了，买谷歌礼品卡，五百二三十一张。8.16之后开始找代充，上次发现一直用的代充店好像不太安全，就去了月下的小铺，老店了，结果480一单（今天460了）.......但是月下有回执...希望不要封我号<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83878#       发表于 2021-9-25 08:36
+
+
+每日单抽又出货了，可是为什么是月神呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
