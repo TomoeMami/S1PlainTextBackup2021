@@ -13779,3 +13779,39 @@ usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.c
 官网十四天无理由啊
 
 
+
+
+*****
+
+####  madbird302  
+##### 1210#       发表于 2021-9-26 06:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52891752&amp;ptid=2015640" target="_blank">moekyo 发表于 2021-9-26 00:41</a>
+
+官网十四天无理由啊</blockquote>
+前提是未激活
+
+
+*****
+
+####  乔尼·乔斯达  
+##### 1211#       发表于 2021-9-26 06:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52882229&amp;ptid=2015640" target="_blank">乔尼·乔斯达 发表于 2021-9-25 11:27</a>
+
+借楼问，ipad pro 2021 11’屏幕怎么样，长期使用的话伤眼吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">有人做过类似测试吗
+
+
+*****
+
+####  lelouchwang  
+##### 1212#       发表于 2021-9-26 06:58
+
+
+东哥可以啊 24号抢到的 今天已经发货了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+然而反而我的官方壳还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
