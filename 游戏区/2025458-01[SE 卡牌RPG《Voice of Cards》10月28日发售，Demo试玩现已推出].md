@@ -1020,3 +1020,14 @@ SE这屌公司次次没中文真搞不懂你们为什么要惯着它
 比起这个，我更想玩那个重制的雷莎出击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  black199  
+##### 81#       发表于 2021-9-25 16:38
+
+
+其实就是桌游式rpg 类似命运之手和深红裹尸布那种
+
+

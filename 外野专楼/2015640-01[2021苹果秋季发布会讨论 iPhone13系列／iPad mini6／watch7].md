@@ -13577,3 +13577,44 @@ MINI的官壳450忒贵了，看图也没啥特别的
 这个是全程高功率还是几秒真男人<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  soli1tude0  
+##### 1193#       发表于 2021-9-25 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52883053&amp;ptid=2015640" target="_blank">松川奈々 发表于 2021-9-25 12:37</a>
+有人遇到键盘闪烁的问题吗，敲几下就闪，吐了</blockquote>
+有，不过我只有在快捷指令里出现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你重启试试，我现在好像是好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  owada  
+##### 1194#       发表于 2021-9-25 16:42
+
+
+usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  松川奈々  
+##### 1195#       发表于 2021-9-25 16:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52885869&amp;ptid=2015640" target="_blank">soli1tude0 发表于 2021-9-25 16:37</a>
+
+有，不过我只有在快捷指令里出现你重启试试，我现在好像是好了
+
+
+—— 来自 S1Fun ...</blockquote>
+我直接重置手机了，最后发现只要在chrome浏览器里面使用虚拟键盘就会出问题
+
+现在只能先Safari用着了
+
+
