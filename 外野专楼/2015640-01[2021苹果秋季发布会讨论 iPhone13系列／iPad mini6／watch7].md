@@ -13506,3 +13506,32 @@ Apple浦东人其实不多<img src="https://static.saraba1st.com/image/smiley/fa
 重度使用一天半了，没有
 
 
+
+
+*****
+
+####  攻心为上木之本  
+##### 1188#       发表于 2021-9-25 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52838597&amp;ptid=2015640" target="_blank">404489039 发表于 2021-9-21 23:54</a>
+库克没说那就是肯定没有，有提升肯定会吹</blockquote>
+小白测评昨天测出来pro max有30w，要么是刀法太好了其他款都没有这么高所以不敢吹？
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  硫黄  
+##### 1189#       发表于 2021-9-25 14:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52882204&amp;ptid=2015640" target="_blank">乔尼·乔斯达 发表于 2021-9-25 11:25</a>
+
+官壳，以及官壳</blockquote>
+MINI的官壳450忒贵了，看图也没啥特别的
+
+是有什么隐藏要素所以卖这么贵吗
+
+

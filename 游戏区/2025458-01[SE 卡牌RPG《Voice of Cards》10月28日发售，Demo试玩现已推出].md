@@ -973,3 +973,28 @@ RPG部分中规中矩，试玩还看不出卡牌系统的优点，卡片收集�
 感觉是游戏上的倒退，更不要说横尾编制，让我下意识觉得怪物才是白的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  病態極端  
+##### 77#       发表于 2021-9-25 13:47
+
+
+橫尾真乃省錢大師。
+
+就連RM遊戲，立繪也是會變表情，有動作差分的吧。而且一般地圖上還有會動的像素人物。
+
+
+SE應該考慮一下用自家引擎复刻這遊戲的框架，拿出來當CardRPG Maker賣。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  西多士  
+##### 78#       发表于 2021-9-25 13:50
+
+
+这就是个rpg，只不过披了卡牌的皮。剧情挺简单的，基本都能看懂。港服可以先买着，预约还有特典送，等之后更中吧。
+
+
