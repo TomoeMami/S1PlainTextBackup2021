@@ -15596,3 +15596,37 @@ pc</blockquote>
 演出真的好差啊......打到救希侬那块，差点把人逗笑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chiefshi  
+##### 5660#       发表于 2021-9-26 00:31
+
+
+空间站修完船是不是就到终章了
+
+
+*****
+
+####  alucardcz  
+##### 5661#       发表于 2021-9-26 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52891645&amp;ptid=1860328" target="_blank">chiefshi 发表于 2021-9-26 00:31</a>
+
+空间站修完船是不是就到终章了</blockquote>
+不不 修完船直接就最终决战了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chiefshi  
+##### 5662#       发表于 2021-9-26 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52891691&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-26 00:35</a>
+不不 修完船直接就最终决战了</blockquote>
+还能回去把支线再清一清？还是只能通关了再继续
+
+

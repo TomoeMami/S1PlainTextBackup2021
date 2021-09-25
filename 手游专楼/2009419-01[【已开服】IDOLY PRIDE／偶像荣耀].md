@@ -6522,3 +6522,17 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 作为开服元老只缺葵樱的麻奈厨，看到这个卡池简直狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  伊布桑  
+##### 468#         楼主| 发表于 2021-9-26 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52891156&amp;ptid=2009419" target="_blank">krowbullet 发表于 2021-09-25 23:49:05</a>
+作为开服元老只缺葵樱的麻奈厨，看到这个卡池简直狂喜</blockquote>这也太惨了吧。。。如果我是你我都觉得被人针对了，这个游戏最强的17元老两张卡都搞不到<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

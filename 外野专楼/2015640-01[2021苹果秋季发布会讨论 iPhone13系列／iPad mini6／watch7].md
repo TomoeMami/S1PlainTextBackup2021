@@ -13748,3 +13748,34 @@ usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.c
 这种眼睛对调光的适应性在实体店里短时间的看手机应该测不出来吧？
 
 
+
+
+*****
+
+####  a4425421  
+##### 1207#       发表于 2021-9-26 00:34
+
+
+苹果是脑子进shi了吗，安排ems，昨晚在上海，今天去南京。朋友的顺丰当晚就上飞机第二天到了
+
+
+*****
+
+####  huangzh  
+##### 1208#       发表于 2021-9-26 00:35
+
+
+13mini杀后台好像有点厉害...有人有一样的情况嘛
+
+
+*****
+
+####  moekyo  
+##### 1209#       发表于 2021-9-26 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52891521&amp;ptid=2015640" target="_blank">Yui_hirasawa 发表于 2021-9-26 00:22</a>
+看到nga上很多反馈13pro的屏幕低频调光伤眼睛，我这用了4年的三星S8+不知道是哪种调光啊？打算双11换手机， ...</blockquote>
+官网十四天无理由啊
+
+

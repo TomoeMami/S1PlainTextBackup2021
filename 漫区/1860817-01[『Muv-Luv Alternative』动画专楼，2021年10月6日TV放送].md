@@ -8873,3 +8873,17 @@ TVアニメ『マブラヴ オルタネイティヴ』
 对了，不是独占的话国内该在哪看
 
 
+
+
+*****
+
+####  hlazd  
+##### 617#       发表于 2021-9-26 00:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52891347&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-9-26 00:05</a>
+
+对了，不是独占的话国内该在哪看</blockquote>
+看下载吧
+
+
