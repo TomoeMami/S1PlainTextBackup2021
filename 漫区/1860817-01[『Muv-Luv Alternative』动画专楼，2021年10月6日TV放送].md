@@ -8887,3 +8887,64 @@ TVアニメ『マブラヴ オルタネイティヴ』
 看下载吧
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 618#       发表于 2021-9-26 01:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52887722&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-9-25 19:16</a>
+▶︎第一話の制作にあたっての監督インタビューはこちらから
+
+TVアニメ『マブラヴ オルタネイティヴ』
+
+西本 ...</blockquote>
+为了卖模型，资方会提出开场就有战术机战斗的要求不奇怪。
+
+不过佐渡岛沦陷是个从未涉及的视角，该建议由吉宗钢纪提出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  噗呸破屁诚  
+##### 619#       发表于 2021-9-26 02:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">居然直接al开场，惊了，看来是纯粉丝向的了
+
+
+*****
+
+####  hlazd  
+##### 620#       发表于 2021-9-26 02:17
+
+
+我个人感觉第一集的爽点除了战术机就是舰队战列线炮击的几个镜头了，我看贴吧那楼主对这个一带而过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 只能说喜好不一样
+
+
+*****
+
+####  hacisiki  
+##### 621#       发表于 2021-9-26 02:51
+
+
+<blockquote>hlazd 发表于 2021-9-26 02:17
+我个人感觉第一集的爽点除了战术机就是舰队战列线炮击的几个镜头了，我看贴吧那楼主对这个一带而过  ...</blockquote>
+根据国内看过的其他人说好像是手绘。之前的几次手绘传统兵器都吓死人。
+
+
+*****
+
+####  ReginaldMorgan  
+##### 622#       发表于 2021-9-26 03:03
+
+
+看兔子的人设感觉整体的线条都是往偏软的方向设计的
+
+但是这个小麻也太……认不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -15541,3 +15541,26 @@ SPECIAL BOX版のうさ耳パーカーには
 2021-9-26 00:21 上传
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7123#       发表于 2021-9-26 02:13
+
+
+ 本帖最后由 FCCHua 于 2021-9-26 02:19 编辑 
+
+大半夜点开直播间一看，hnn kmt 胡桃apex排位五连胜，真不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过hnn这次不参加cr，要看的欲望瞬间降低<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 7124#       发表于 2021-9-26 03:26
+
+
+怎么melody也从3d退化到2d了
+
+
