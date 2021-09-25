@@ -6915,3 +6915,26 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 — from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
+
+
+*****
+
+####  wwddrte  
+##### 582#       发表于 2021-9-25 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52884668&amp;ptid=1972138" target="_blank">葛葉景明 发表于 2021-9-25 14:49</a>
+
+boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失效箱子放她附近 ...</blockquote>
+嗯我后来就是先剪了引线然后把她突突突了
+
+
+*****
+
+####  moimoi  
+##### 583#       发表于 2021-9-25 16:26
+
+
+请问投递亭是干嘛的？我脑补以为是可以让我随时关注的地方，现在发现好像不是
+
+
