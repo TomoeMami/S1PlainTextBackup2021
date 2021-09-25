@@ -13629,3 +13629,17 @@ usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.c
 买了benks的0.15厚度的钢化膜 薄就是爽啊 tb上买的均价28 坛友会用1688的话可以看看有没有更便宜的薄的钢化膜试试看<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  suibiankk  
+##### 1197#       发表于 2021-9-25 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52886117&amp;ptid=2015640" target="_blank">橋白 发表于 2021-9-25 16:57</a>
+
+买了benks的0.15厚度的钢化膜 薄就是爽啊 tb上买的均价28 坛友会用1688的话可以看看有没有更便宜的薄的钢化 ...</blockquote>
+请问下，看了看，写0。15的膜要90块呀？
+
+

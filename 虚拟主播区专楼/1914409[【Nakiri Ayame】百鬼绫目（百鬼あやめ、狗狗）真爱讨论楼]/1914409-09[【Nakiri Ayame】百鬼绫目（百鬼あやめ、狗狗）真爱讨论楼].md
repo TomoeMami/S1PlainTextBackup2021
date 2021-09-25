@@ -14202,3 +14202,14 @@ Collab比较有印象的也就是去润润Live，去三才Live，去Kanata的Liv
 明天有联动，会是谁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 13208#       发表于 2021-9-25 19:47
+
+
+三才这周一说26号带2老1新打EDF，感觉有可能是这个
+
+
