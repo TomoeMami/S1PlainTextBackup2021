@@ -15418,3 +15418,81 @@ SPECIAL BOX版のうさ耳パーカーには
 名起的挺好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7118#       发表于 2021-9-25 21:09
+
+
+ 本帖最后由 alcoholic1000 于 2021-9-25 21:15 编辑 
+
+葛King告知的告知：
+
+1.发新原创曲上平台
+
+2.9/28 <strong>30w人纪念</strong>+重大告知+新衣装（→新3D？）
+
+3.CR 杯会参加，King主动邀请的人
+
+4.随手毛出来了一件新衣装
+
+今日的新衣装
+
+<img src="https://img.saraba1st.com/forum/202109/25/210154jcnjnincz066t787.png" referrerpolicy="no-referrer">
+
+
+<strong>【雑】告知醤油【#Zatsu】.png</strong> (112 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 21:01 上传
+
+
+宿舍楼刮阵风能吹掉四件那种
+
+<img src="https://img.saraba1st.com/forum/202109/25/210539i5ski8g6sk8wnnee.png" referrerpolicy="no-referrer">
+
+
+<strong>【#長尾景断髪式】前を向いて歩こう【長尾景:にじさんじ】-1.png.png</strong> (23.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 21:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/210539hvfif5t7f58p788i.png" referrerpolicy="no-referrer">
+
+
+<strong>【#長尾景断髪式】前を向いて歩こう【長尾景:にじさんじ】--2.png.png</strong> (31.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 21:05 上传
+
+
+日系建模游戏PV在脑海闪回
+
+<img src="https://img.saraba1st.com/forum/202109/25/210912shtxll3jt6dm99d9.png" referrerpolicy="no-referrer">
+
+
+<strong>【#白雪巴新衣装】上から見るか下から見るか【白雪 巴:にじさんじ】-1.png.png</strong> (98.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-25 21:09 上传
+
+
+吉原ラメント
+
+
+*****
+
+####  ledo  
+##### 7119#       发表于 2021-9-25 21:09
+
+
+月灵播了..今天是高雅歌回
+
+

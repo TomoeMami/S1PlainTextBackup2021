@@ -13669,3 +13669,17 @@ usbc真是好文明,照片导入速度飞升<img src="https://static.saraba1st.c
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  suibiankk  
+##### 1200#       发表于 2021-9-25 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52888732&amp;ptid=2015640" target="_blank">橋白 发表于 2021-9-25 20:45</a>
+
+不要去旗舰店 有个代理店 三张84 不过我之前是有活动优惠 现在可能贵一点 ...</blockquote>
+哦，我翻翻
+
+
