@@ -15716,3 +15716,24 @@ apex2000时间
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">bora终于上大师了
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7133#       发表于 2021-9-26 19:17
+
+
+在转播间看到上大师的时候，010还出来说了句话
+cn第一枪女跟kr第一枪女联动一下不过分吧
+
+
+*****
+
+####  死体残留  
+##### 7134#       发表于 2021-9-26 19:19
+
+
+rock革命为啥要开那么多窗啊
+
+

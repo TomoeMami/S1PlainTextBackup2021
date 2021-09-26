@@ -1970,3 +1970,41 @@ Eテレ 10/3(日)夜7時
 次回もどうぞお楽しみに！
 
 
+
+
+*****
+
+####  DDWarrior  
+##### 157#       发表于 2021-9-26 19:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有谁能告诉我，可可这集里面突然飚的那句中文是啥吗...
+
+
+*****
+
+####  离心  
+##### 158#       发表于 2021-9-26 19:09
+
+
+等liyuu官宣吧
+
+
+*****
+
+####  秋月艾莉  
+##### 159#       发表于 2021-9-26 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">チクレカス上热搜了
+
+
+*****
+
+####  凡人  
+##### 160#       发表于 2021-9-26 19:23
+
+
+星团容易跳戏到邦邦，但我印象中就连剧情里上下关系最明显的r组主唱也没到香音这地步
+
+
