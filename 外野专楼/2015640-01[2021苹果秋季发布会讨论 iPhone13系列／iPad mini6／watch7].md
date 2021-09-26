@@ -14084,3 +14084,20 @@ mini6果冻的很不爽，还好没贴膜，问题现在换货有用吗</blockqu
 去长沙apple store摸了一下13pro，这个扎实的手感真棒啊
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 1236#       发表于 2021-9-27 01:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52903429&amp;ptid=2015640" target="_blank">rak1 发表于 2021-9-26 22:25</a>
+
+狗东送的ac+终于绑定好了
+
+
+—— 来自 S1Fun</blockquote>
++1 我老婆的mini比我晚买 结果一起到的 也是奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
