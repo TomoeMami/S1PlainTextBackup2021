@@ -12026,3 +12026,14 @@ https://open.spotify.com/album/2aSTD2eb1g0Jd7l4VRYycF?si=WrkFmFCsTDCXQeVS2OdKuw&
 https://mora.jp/package/43000033/PA00091622-0-2/?fmid=newRelease_all_0001
 
 
+
+
+*****
+
+####  面具13  
+##### 6966#       发表于 2021-9-26 13:54
+
+
+看上去是cover传的？突然不播可能是因为草台cover没先让她告知一下，也没先在频道里上传就扔到主题里？
+
+

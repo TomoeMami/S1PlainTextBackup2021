@@ -15966,3 +15966,21 @@ pc</blockquote>
 还有那个大沙漠 完全就是设计失误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种阴间东西放现在是要被喷爆的
 
 
+
+
+*****
+
+####  nervpp  
+##### 5683#       发表于 2021-9-26 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52895688&amp;ptid=1860328" target="_blank">vaststars 发表于 2021-9-26 11:43</a>
+
+第一章平均之上
+
+第二章凑合
+
+第三章不错</blockquote>
+开修改器后还没打出连招就把怪打死了……真的乐趣就更少了……（开了修改器之后又关上了……把技能都给调出来了）
+
+

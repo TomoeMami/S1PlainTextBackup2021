@@ -749,3 +749,36 @@ ns基本是没这个问题的 有也是触摸和手柄控制并存的
 瞟了一眼友和那边，看来拿OLED的货很难
 
 
+
+
+*****
+
+####  riin  
+##### 70#       发表于 2021-9-26 13:52
+
+
+这个up主是不是类似于中国boy？中国boy也差不多顶流了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  benhawk  
+##### 71#       发表于 2021-9-26 13:52
+
+
+不是说底座也能升级，那块塑料砖头能升级什么很好奇。可以更稳定？
+
+
+*****
+
+####  沧兰殇  
+##### 72#       发表于 2021-9-26 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52897165&amp;ptid=2028204" target="_blank">benhawk 发表于 2021-9-26 13:52</a>
+不是说底座也能升级，那块塑料砖头能升级什么很好奇。可以更稳定？</blockquote>
+就加了一个网口，代价是里面的3.0a口少一个，除了颜值其他零提升
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
