@@ -1259,3 +1259,23 @@ demo玩了下，发困···
 还不如做成手游<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  johanliebert  
+##### 98#       发表于 2021-9-27 02:54
+
+
+PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
+
+
+*****
+
+####  jacket  
+##### 99#       发表于 2021-9-27 02:57
+
+
+挂机一段时间，能听到GM打哈欠，再挂机一段时间，GM说有事叫醒我，然后开始打呼噜
+
+
