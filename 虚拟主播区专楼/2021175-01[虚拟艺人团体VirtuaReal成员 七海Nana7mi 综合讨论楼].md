@@ -3114,3 +3114,20 @@ ybb就是去年有病吧事件，一个v吧吧友发现海子姐一个著名 ...
 另外其中之人的睿站小号，贴吧账号，手机号是怎么被盒出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  EnbuRiAs  
+##### 242#       发表于 2021-9-26 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52899854&amp;ptid=2021175" target="_blank">阿矿 发表于 2021-9-26 17:44</a>
+1)二创组当大爷不切片 
+
+2)没送花篮导致海子姐尬住
+
+3)直播间熟人S1锐评导致可爱小七海</blockquote>
+贴吧号貌似是她自己直播说xx吧多少级，xx吧多少级，然后被人大数据了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

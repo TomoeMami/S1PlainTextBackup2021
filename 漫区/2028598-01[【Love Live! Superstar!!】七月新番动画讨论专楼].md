@@ -1151,3 +1151,458 @@ yy1354822109
 KASU笑倒了
 
 
+
+
+*****
+
+####  kata魂  
+##### 85#       发表于 2021-9-26 18:08
+
+
+好久不见的圆厨（
+
+
+*****
+
+####  待宵  
+##### 86#       发表于 2021-9-26 18:08
+
+
+回家路上，哭了
+
+
+*****
+
+####  Arccueid  
+##### 87#       发表于 2021-9-26 18:09
+
+
+看来很稳定的香音取名了
+
+
+*****
+
+####  ads147147  
+##### 88#       发表于 2021-9-26 18:09
+
+
+名字找同学募集。。。。应该会采用当时杂志取名的理由。
+
+话说一人取一个字怎么最后变成ks的。
+
+青山还是棒读。。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 89#       发表于 2021-9-26 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900109&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-9-26 18:09</a>
+
+名字找同学募集。。。。应该会采用当时杂志取名的理由。
+
+
+话说一人取一个字怎么最后变成ks的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，本来这里应该挺可爱的，棒读就没啥感觉了
+
+
+*****
+
+####  qratosone  
+##### 90#       发表于 2021-9-26 18:11
+
+
+恋恋kksk
+
+
+
+
+*****
+
+####  ads147147  
+##### 91#       发表于 2021-9-26 18:12
+
+
+青山这个整活外星人演一个直播素人。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 92#       发表于 2021-9-26 18:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田你妈死了惦记烂活过不去了
+
+
+*****
+
+####  ads147147  
+##### 93#       发表于 2021-9-26 18:14
+
+
+excellent草
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 94#       发表于 2021-9-26 18:15
+
+
+风怒
+
+话说这集节奏好怪，像是命题作文。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 95#       发表于 2021-9-26 18:15
+
+
+笑死，最速配信事故传说
+
+
+*****
+
+####  Arccueid  
+##### 96#       发表于 2021-9-26 18:16
+
+
+关禁闭了
+
+
+*****
+
+####  kata魂  
+##### 97#       发表于 2021-9-26 18:17
+
+
+这集怎么这么白开水啊·····
+
+
+*****
+
+####  寒风夜  
+##### 98#       发表于 2021-9-26 18:18
+
+
+就是玩
+
+
+*****
+
+####  ads147147  
+##### 99#       发表于 2021-9-26 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900213&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-9-26 18:17</a>
+这集怎么这么白开水啊·····</blockquote>
+因为是命题作文，所以花田就疯狂往里头塞见过的段子。
+
+对于没看过这套的人来说应该很有趣吧
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 100#       发表于 2021-9-26 18:19
+
+
+就致敬和日常咯。
+
+
+*****
+
+####  Arccueid  
+##### 101#       发表于 2021-9-26 18:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来对花田也没啥期望，这集人设不怎么崩就行了
+
+可以说剧情跟设想的基本没差
+
+
+*****
+
+####  ads147147  
+##### 102#       发表于 2021-9-26 18:19
+
+
+看来团名延后了？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 103#       发表于 2021-9-26 18:20
+
+
+看来团名延后了？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JustW  
+##### 104#       发表于 2021-9-26 18:20
+
+
+可堇叠一起了，等as老师新图（）
+
+
+*****
+
+####  JustW  
+##### 105#       发表于 2021-9-26 18:21
+
+
+冲鸭艹
+
+
+*****
+
+####  JustW  
+##### 106#       发表于 2021-9-26 18:21
+
+
+冲鸭艹
+
+
+*****
+
+####  JustW  
+##### 107#       发表于 2021-9-26 18:21
+
+
+冲鸭艹
+
+
+*****
+
+####  ads147147  
+##### 108#       发表于 2021-9-26 18:22
+
+
+原来母上回是给团名拉铺垫的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 109#       发表于 2021-9-26 18:22
+
+
+复读团名这块有点蚌埠住
+
+
+*****
+
+####  qratosone  
+##### 110#       发表于 2021-9-26 18:23
+
+
+花田暂时获得呼吸权
+
+
+*****
+
+####  寒风夜  
+##### 111#       发表于 2021-9-26 18:23
+
+
+要是4-8写好了 呃 
+
+
+*****
+
+####  ads147147  
+##### 112#       发表于 2021-9-26 18:24
+
+
+原来母上回是给团名拉铺垫的。
+
+这集花田水平搞笑单元集，只能说观感拉回来点。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 113#       发表于 2021-9-26 18:24
+
+
+可可solo好听。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 114#       发表于 2021-9-26 18:24
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/182324fvsutpxwgwuwv4t4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>83E818C3BAB79E9EEC060A4DF2605E65.jpg</strong> (60.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 18:23 上传
+
+
+还行吧这集，大伙基本猜到按任务走剧情。
+
+
+*****
+
+####  JustW  
+##### 115#       发表于 2021-9-26 18:24
+
+
+下集看来还是日常回
+
+
+*****
+
+####  zero12  
+##### 116#       发表于 2021-9-26 18:25
+
+
+超越母神是什么意思？
+
+
+*****
+
+####  ads147147  
+##### 117#       发表于 2021-9-26 18:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900309&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-9-26 18:24</a>
+还行吧这集，大伙基本猜到按任务走剧情。</blockquote>
+超越母神。。为什么恋恋会想到这个，难道是海爷的中二黑历史属性么。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Norkey1  
+##### 118#       发表于 2021-9-26 18:27
+
+
+这集迫害观感好一些了，但是民警戏份全靠可可提那么两句，galaxy 复读机还是惨…
+
+
+*****
+
+####  cybernetics31  
+##### 119#       发表于 2021-9-26 18:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜可可回要下季了
+
+
+*****
+
+####  笋狐  
+##### 120#       发表于 2021-9-26 18:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行吧，平平淡淡才是真，毫无信息的预告，看来转折得等下话后半了
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 121#       发表于 2021-9-26 18:28
+
+
+老老实实写日常回就好了，这集该看了
+
+
+*****
+
+####  寒风夜  
+##### 122#       发表于 2021-9-26 18:29
+
+
+花田大师果然只能写日常。。所以搞那么多哦冲突，何必i
+
+
+*****
+
+####  CharlieZ-  
+##### 123#       发表于 2021-9-26 18:29
+
+
+看之前就已经放低标准了，这集还行吧，不过可可和民警的互动感觉还是写的稀烂
+
+
+*****
+
+####  damian-wade  
+##### 124#       发表于 2021-9-26 18:30
+
+
+不难看，普通日常回的水平，只是又是卡农和她的四个小伙伴的分配有些单调，下集又是整活日常，最后剩两集感觉搞不成好多人希望的追飞机了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  没有爱就看不见  
+##### 125#       发表于 2021-9-26 18:30
+
+
+日常回还是很难出啥大问题的，就是民警的戏份可能还是会让推不爽
+
+
+*****
+
+####  黑雪姫  
+##### 126#       发表于 2021-9-26 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900367&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-9-26 18:30</a>
+
+不难看，普通日常回的水平，只是又是卡农和她的四个小伙伴的分配有些单调，下集又是整活日常，最后剩两集感 ...</blockquote>
+但是可可到现在还没有单独SOLO过ED，不可能其他四人都SOLO，唯独可可没有吧。
+
+
+*****
+
+####  寒风夜  
+##### 127#       发表于 2021-9-26 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900353&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-9-26 18:29</a>
+
+看之前就已经放低标准了，这集还行吧，不过可可和民警的互动感觉还是写的稀烂 ...</blockquote>
+还是那句话 进展太快问题
+
+

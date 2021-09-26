@@ -16132,3 +16132,21 @@ pc</blockquote>
 这作弱点属性攻击没有钢体破坏加成，DLC术技的钢体B加成是0
 
 
+
+
+*****
+
+####  zero12  
+##### 5694#       发表于 2021-9-26 18:10
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/181016as7n7888sen87s7b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>VB99E]M~CNBX(78Z6U{SO[S.jpg</strong> (47.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 18:10 上传
+
+
