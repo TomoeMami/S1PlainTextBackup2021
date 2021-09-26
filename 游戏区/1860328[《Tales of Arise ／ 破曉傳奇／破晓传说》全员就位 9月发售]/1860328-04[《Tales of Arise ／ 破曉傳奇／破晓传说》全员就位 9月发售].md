@@ -16290,3 +16290,26 @@ dq11占剧情设计便宜，如果把打败魔王后的内容当都当后日谈�
 读取通关存档会回到boss战之前，然后会追加隐藏任务，例如见到历代的角色作为boss
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 5705#       发表于 2021-9-27 06:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905127&amp;ptid=1860328" target="_blank">BRRM 发表于 2021-9-27 06:04</a>
+
+读取通关存档会回到boss战之前，然后会追加隐藏任务，例如见到历代的角色作为boss ...</blockquote>
+是的，之前，我想看的是之后的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BRRM  
+##### 5706#       发表于 2021-9-27 06:32
+
+
+被评价最低的闪轨的剧情虽然大架构不行，但文本的细腻、成熟度秒杀破晓几百条街
+
+
