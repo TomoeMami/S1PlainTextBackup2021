@@ -15945,3 +15945,24 @@ pc</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 这游戏能进入的房子就这几个  别想太多了 城镇这方面可以说远不如轨迹
 
 
+
+
+*****
+
+####  leitingkai  
+##### 5682#       发表于 2021-9-26 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896019&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-26 12:14</a>
+
+城市内的平均可活动范围也比破晓要广吧，龙城和圣都我记得都挺大的
+
+
+更别说外面地图，特别是大沙漠，跑图 ...</blockquote>
+破晓城镇地图太拉了 很难有JRPG可以输给它 有些RPGmaker做的城镇都比它行
+
+只是说游戏可探索范围比设计要小很多这点这两个像
+
+还有那个大沙漠 完全就是设计失误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种阴间东西放现在是要被喷爆的
+
+
