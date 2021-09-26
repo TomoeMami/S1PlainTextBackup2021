@@ -16214,3 +16214,22 @@ pc</blockquote>
 通关了，一时语噻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FanFun  
+##### 5701#       发表于 2021-9-27 01:30
+
+
+55小时支线全清打通了
+
+林薇儿人设对口真是可爱，和洛斗嘴也挺有趣，但在风城中林的剧情演出有点毒<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">平时最反感的黑皮人设，反而是游戏中最多的快乐源泉
+
+战斗基本就无脑砍砍砍类似无双系列，前期刮痧砍的欢乐，后面装备起来大数字的快感也不错
+
+剧情方面前期悬念挺多引人打下去，但揭开的时候感觉就这？还有无时无刻的宽恕原谅都要PTSD，毕竟现实原因日本不配
+
+作为体验的第一款传说系列，整体没有惊艳，画面突出，缺点不大，还行吧
+
+
