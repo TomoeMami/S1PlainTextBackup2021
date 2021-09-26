@@ -999,3 +999,155 @@ lovelive不可能翻车，我要吹爆花田十辉<img src="https://static.sarab
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  ads147147  
+##### 72#       发表于 2021-9-26 17:56
+
+
+yy1354822109
+
+转移到这里了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 73#       发表于 2021-9-26 18:01
+
+
+开头还要再说一次误会老妈想法的烂梗。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 74#       发表于 2021-9-26 18:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">感觉只有可可关心lovelive比赛，其他人真不熟
+
+
+*****
+
+####  qratosone  
+##### 75#       发表于 2021-9-26 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900006&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-9-26 18:01</a>
+
+开头还要再说一次误会老妈想法的烂梗。。
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.4. ...</blockquote>
+那个只是上集回顾吧，虽然再说一遍确实生草
+
+
+*****
+
+####  寒风夜  
+##### 76#       发表于 2021-9-26 18:03
+
+
+前情
+
+
+*****
+
+####  Arccueid  
+##### 77#       发表于 2021-9-26 18:03
+
+
+一点意外都没有
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Arccueid  
+##### 78#       发表于 2021-9-26 18:05
+
+
+自由选校服草
+
+前三集的可可又回来了属于是
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  -Vanitas-  
+##### 79#       发表于 2021-9-26 18:05
+
+
+[https://twitter.com/sankuro396/status/1441774063467196427?s=21](https://twitter.com/sankuro396/status/1441774063467196427?s=21)
+396老师画的可可
+
+<img src="https://img.saraba1st.com/forum/202109/26/180548mer8lkjr1wlrrkdt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_6427.JPG</strong> (469.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 18:05 上传
+
+
+*****
+
+####  cat1230  
+##### 80#       发表于 2021-9-26 18:06
+
+
+修车不能看直播了，哭
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  kata魂  
+##### 81#       发表于 2021-9-26 18:06
+
+
+音乐科到底有什么用呢.jpg
+
+
+*****
+
+####  ads147147  
+##### 82#       发表于 2021-9-26 18:06
+
+
+部室里其他团的海报挺漂亮的。为啥会强推sp。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 83#       发表于 2021-9-26 18:07
+
+
+自己选择。。
+
+
+*****
+
+####  秋月艾莉  
+##### 84#       发表于 2021-9-26 18:08
+
+
+KASU笑倒了
+
+

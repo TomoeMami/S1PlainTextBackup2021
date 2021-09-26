@@ -3086,3 +3086,31 @@ ybb就是去年有病吧事件，一个v吧吧友发现海子姐一个著名 ...
 应该是这样把？
 
 
+
+
+*****
+
+####  阿矿  
+##### 241#       发表于 2021-9-26 17:44
+
+
+ 本帖最后由 阿矿 于 2021-9-26 01:45 编辑 
+
+1)二创组当大爷不切片 
+
+2)没送花篮导致海子姐尬住
+
+3)直播间熟人S1锐评导致可爱小七海
+
+4)S1微博账号无端开团
+
+5)stf伙同逆天府孝子给乐府送生日祝福
+
+6)数不尽骚扰电话和吻别P图
+
+
+还差这些，有好心人补充科普下吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+另外其中之人的睿站小号，贴吧账号，手机号是怎么被盒出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
