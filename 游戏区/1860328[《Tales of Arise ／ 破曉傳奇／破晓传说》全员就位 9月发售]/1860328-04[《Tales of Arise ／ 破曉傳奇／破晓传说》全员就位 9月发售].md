@@ -16111,3 +16111,24 @@ pc</blockquote>
 连段中带进5种以上术技就行了，炎之剑这种也算
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5693#       发表于 2021-9-26 17:13
+
+
+ 本帖最后由 qiyu1234 于 2021-9-26 17:14 编辑 
+
+看了下reddit tales串有人把术技数据搞出来了
+[https://www.reddit.com/r/tales/c ... sheet_artes_damage/](https://www.reddit.com/r/tales/comments/pnyooi/tales_of_arise_spreadsheet_artes_damage/)
+[https://docs.google.com/spreadsh ... /edit#gid=278363053](https://docs.google.com/spreadsheets/d/1n8UQbohEGyjAFIBdbWa1gxeJVT0AYoGazPd29PqHSGw/edit#gid=278363053)
+
+贴吧有人搬运了
+[https://tieba.baidu.com/p/7551704892](https://tieba.baidu.com/p/7551704892)
+
+
+这作弱点属性攻击没有钢体破坏加成，DLC术技的钢体B加成是0
+
+

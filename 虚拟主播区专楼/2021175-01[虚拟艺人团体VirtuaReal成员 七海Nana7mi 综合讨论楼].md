@@ -3004,3 +3004,62 @@ A：“A，鲨鱼头姐姐你还不毕业吗？在想台本吗？”
 维阿信日常开她德不配位，知名粉头要为她爆破二创组，二创组当大爷不切片，没送花篮导致海子姐尬住，典中典ybb沾上V8，直播间熟人S1锐评导致可爱小七海，S1微博账号无端开团，stf伙同逆天府孝子给乐府送生日祝福，数不尽骚扰电话和吻别P图，给ylg au当了两三个月的电子宠物，暂时也就想到这么多吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  阿矿  
+##### 236#       发表于 2021-9-26 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52898755&amp;ptid=2021175" target="_blank">EnbuRiAs 发表于 2021-9-26 00:14</a>
+
+维阿信日常开她德不配位，知名粉头要为她爆破二创组，二创组当大爷不切片，没送花篮导致海子姐尬住，典中典 ...</blockquote>
+坏了，一条都没看懂，一堆名词不认识
+
+有给之前没看过皮套人的快速科普指南吗
+
+
+*****
+
+####  余情自取  
+##### 237#       发表于 2021-9-26 17:15
+
+
+ 本帖最后由 余情自取 于 2021-9-26 17:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52899378&amp;ptid=2021175" target="_blank">阿矿 发表于 2021-9-26 17:04</a>
+坏了，一条都没看懂，一堆名词不认识
+
+有给之前没看过皮套人的快速科普指南吗 ...</blockquote>
+维阿信就是VR信者，你可以理解成VR大家庭粉丝；
+ybb就是去年有病吧事件，一个v吧吧友发现海子姐一个著名粉丝夏末希偷偷换了另有其人头像，就在v吧发贴想锤死他。但是海子姐咨询了staff后发现后台没有更换（其实是有的），就亲自下场发了那句著名的有病吧；
+府就是Vtuber吧空降吧主乐府，做过的事罄竹难书，反正不是什么好人就对了；
+ylg就是引流狗的意思，au指asoul粉丝，上半年很多au喜欢去海子姐评论区躁皮，所以直播通知大多都是在微博发。
+
+
+*****
+
+####  电磁炮233  
+##### 238#       发表于 2021-9-26 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52899378&amp;ptid=2021175" target="_blank">阿矿 发表于 2021-9-26 17:04</a>
+坏了，一条都没看懂，一堆名词不认识
+
+有给之前没看过皮套人的快速科普指南吗 ...</blockquote>
+具体内容不需要清楚，大致就是被粉丝背刺，被公司staff背刺，被v圈其他群体（v8，au）当乐子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  电磁炮233  
+##### 239#       发表于 2021-9-26 17:17
+
+
+另外被维阿信劈真算不上什么吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
