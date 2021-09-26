@@ -695,3 +695,14 @@ ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸�
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
+
+
+*****
+
+####  JAS39-Gripen  
+##### 6051#       发表于 2021-9-27 00:13
+
+
+小鸟游生日贺图应该是最多的了。群众创作热情明显高于其他角色。甚至是超越素组的真实女主人气。
+
+
