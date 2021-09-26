@@ -852,3 +852,20 @@ B站顶流也是这种啊<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中国boy和他很像
 
 
+
+
+*****
+
+####  女神アーリィ  
+##### 79#       发表于 2021-9-26 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867662&amp;ptid=2028204" target="_blank">沙发沙发 发表于 2021-9-24 11:18</a>
+
+细看的话720p的oled细腻度肯定是不行的，而且还很有可能有频闪问题
+
+
+—— 来自 Xiaomi M2011K2C, Android ...</blockquote>
+屏幕还大了 细腻度肯定不行 
+
+

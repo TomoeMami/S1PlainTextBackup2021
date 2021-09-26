@@ -2188,3 +2188,96 @@ Eテレ 10/3(日)夜7時
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">邦邦的互动跟收人真是好多了（第一季），害
 
 
+
+
+*****
+
+####  beifx  
+##### 172#       发表于 2021-9-26 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900655&amp;ptid=2028598" target="_blank">笋狐 发表于 2021-9-26 18:56</a>
+
+众所周知，ll里的大和抚子都是中二病（</blockquote>
+lovelive本质还是leader的故事，缪剧场版就体现的很明显了，可能这代只有5个人，显得更突出了
+
+
+*****
+
+####  Norkey1  
+##### 173#       发表于 2021-9-26 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900986&amp;ptid=2028598" target="_blank">凡人 发表于 2021-9-26 19:23</a>
+星团容易跳戏到邦邦，但我印象中就连剧情里上下关系最明显的r组主唱也没到香音这地步 ...</blockquote>
+r组主唱…？roselia的话倒是没这么多上下关系，基本上大家都有帮忙的，主唱一个人很多事都做不到。ras上下关系很明显那边队长是dj位，而且队长基本是无所不能很自信的状态，和加农差太多了
+
+
+*****
+
+####  JustW  
+##### 174#       发表于 2021-9-26 19:54
+
+
+ 本帖最后由 JustW 于 2021-9-26 19:56 编辑 
+<blockquote>凡人 发表于 2021-9-26 19:23
+星团容易跳戏到邦邦，但我印象中就连剧情里上下关系最明显的r组主唱也没到香音这地步 ...</blockquote>
+Roselia主唱只是建队元老+最初目标制定者+偶尔强硬做决定，前期带队伍靠lisa，后期sayo也帮忙，两个小辈也戏份不弱，主唱反而像团宠宝宝，有点成熟表现其他队友都是“妈妈落泪”（）
+
+真正能和ll对标的应该是ppp，但ppp主唱从始至终就是社交力点满的执行力怪物，危机中挑大梁也很自然
+
+
+*****
+
+####  saglork  
+##### 175#       发表于 2021-9-26 19:56
+
+
+这集最大亮点是结尾的liella之歌还挺好听<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+说leader太过天命所归显然是没看过前两代，lovelive系列强捧leader是传统，早说了一个核心不可动摇，故事的中心肯定会回到leader的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这一季要是没有可可回挺正常的，前两代很多个人回也是扔到第二季的，感觉现在的重心还是在参赛主线，剩下的集数做一下第一次参赛和失败，然后再走出来，也就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 176#       发表于 2021-9-26 19:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还要来参赛失败再振作啊，不要啊
+
+
+*****
+
+####  saglork  
+##### 177#       发表于 2021-9-26 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901334&amp;ptid=2028598" target="_blank">beifx 发表于 2021-9-26 19:53</a>
+lovelive本质还是leader的故事，缪剧场版就体现的很明显了，可能这代只有5个人，显得更突出了 ...</blockquote>
+是的，本质leader一直都是在被强调天命所归和重大事件收束点，成员少了体现的更明显<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 178#       发表于 2021-9-26 19:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901391&amp;ptid=2028598" target="_blank">JustW 发表于 2021-9-26 19:57</a>
+还要来参赛失败再振作啊，不要啊</blockquote>
+必然的啊，她们肯定要参赛的，参赛了又不可能第一次就成功，要不然第二季演什么？守擂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 179#       发表于 2021-9-26 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901410&amp;ptid=2028598" target="_blank">saglork 发表于 2021-9-26 19:59</a>
+
+必然的啊，她们肯定要参赛的，参赛了又不可能第一次就成功，要不然第二季演什么？守擂吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">招新人进来，然后发现整体水平变次了，这样的……？
+
+
