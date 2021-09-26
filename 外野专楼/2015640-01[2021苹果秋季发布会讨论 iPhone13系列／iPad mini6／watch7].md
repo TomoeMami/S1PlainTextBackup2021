@@ -13830,3 +13830,51 @@ realme要沦为游戏机了<img src="https://static.saraba1st.com/image/smiley/f
 —— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  风雪天  
+##### 1214#       发表于 2021-9-26 07:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52892722&amp;ptid=2015640" target="_blank">madbird302 发表于 2021-9-26 06:47</a>
+前提是未激活</blockquote>
+官网以前不是不管激活与否都14天无理由吗，难道现在改了？
+
+
+*****
+
+####  togochina  
+##### 1215#       发表于 2021-9-26 08:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52892722&amp;ptid=2015640" target="_blank">madbird302 发表于 2021-9-26 06:47</a>
+
+前提是未激活</blockquote>
+激活一样退
+
+
+*****
+
+####  小妻水亚美  
+##### 1216#       发表于 2021-9-26 08:05
+
+
+自从高刷屏出来之后，频闪的热度就下来很多啊。
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  madbird302  
+##### 1217#       发表于 2021-9-26 08:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52892956&amp;ptid=2015640" target="_blank">风雪天 发表于 2021-9-26 07:53</a>
+
+官网以前不是不管激活与否都14天无理由吗，难道现在改了？</blockquote>
+看了下，官网还是14天无理由，官方天猫店是7天无理由，狗东是激活就完
+
+

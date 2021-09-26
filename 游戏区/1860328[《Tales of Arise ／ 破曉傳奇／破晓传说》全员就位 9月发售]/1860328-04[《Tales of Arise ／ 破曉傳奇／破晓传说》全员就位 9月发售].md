@@ -15630,3 +15630,28 @@ pc</blockquote>
 还能回去把支线再清一清？还是只能通关了再继续
 
 
+
+
+*****
+
+####  シャル  
+##### 5663#       发表于 2021-9-26 07:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52891770&amp;ptid=1860328" target="_blank">chiefshi 发表于 2021-9-26 00:43</a>
+
+还能回去把支线再清一清？还是只能通关了再继续</blockquote>
+可以回去清光大怪和支线再打最终迷宫
+
+
+*****
+
+####  birdma  
+##### 5664#       发表于 2021-9-26 07:53
+
+
+<blockquote>chiefshi 发表于 2021-9-26 00:43
+还能回去把支线再清一清？还是只能通关了再继续</blockquote>
+打最终boss前都可以回去清支线，如果通关前把支线清完，这次通关后只会追加两个支线，异界和boss连战
+
+
