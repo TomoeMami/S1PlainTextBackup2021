@@ -16259,3 +16259,34 @@ pc</blockquote>
 我花了五十个小时，好不容易剥开糖纸把一整块糖往嘴里一塞，甜，真甜，30秒后没了，吐出来发现这特么是拔丝铁球，就外面薄薄一层糖<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Dashuaibi  
+##### 5703#       发表于 2021-9-27 06:01
+
+
+说起来jrpg真有啥结尾后的内容故事吃到撑的吗，一般jrpg通关后世界都会大变样为了省钱继承通关存档都只是到决战前。
+
+
+dq11占剧情设计便宜，如果把打败魔王后的内容当都当后日谈那确实够足量的
+
+然后p5的p5s，都专门出衍生作收钱了也算是后续内容足量
+
+
+*****
+
+####  BRRM  
+##### 5704#       发表于 2021-9-27 06:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905109&amp;ptid=1860328" target="_blank">桧月彩花 发表于 2021-9-27 05:34</a>
+
+50h，主线结束支线还差几个。
+
+
+为什么没有通关后满世界溜达的选项啊，</blockquote>
+读取通关存档会回到boss战之前，然后会追加隐藏任务，例如见到历代的角色作为boss
+
+
