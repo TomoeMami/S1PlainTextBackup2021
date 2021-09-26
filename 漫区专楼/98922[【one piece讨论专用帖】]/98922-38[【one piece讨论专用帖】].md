@@ -2912,3 +2912,18 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 断臂是红发干的
 
 
+
+
+*****
+
+####  绝赞販売中  
+##### 55707#       发表于 2021-9-26 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896779&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-9-26 13:13</a>
+基德和大妈到是有断臂之仇。
+
+基德最大问题是明明超新星三巨头之一，和路飞一样双超新星配置，居然没自己的 ...</blockquote>
+断臂是红发干的，基德是把大妈将星打败了.但是现在他被神棍下蛊，半退出战斗，事实上很离谱的点是罗一个人拖住大妈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
