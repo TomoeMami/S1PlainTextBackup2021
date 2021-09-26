@@ -16000,3 +16000,26 @@ gbr也是，毕竟没开直播
 生唱虹女还得是我们枫床<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7152#       发表于 2021-9-26 22:28
+
+
+暴言:hnn以后真的可以考虑放弃播valorant...
+
+
+*****
+
+####  poipanchao  
+##### 7153#       发表于 2021-9-26 22:34
+
+
+雪叔现在直播总的来说还是玩票为主
+
+
+syl，开了盒失去兴趣很正常，有可能厄介厨享受的是开盒的过程
+
+

@@ -7070,3 +7070,62 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 经常画面卡住不动，这种情况是不是显存爆了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  moimoi  
+##### 594#       发表于 2021-9-26 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52902119&amp;ptid=1972138" target="_blank">Kojimaru 发表于 2021-9-26 20:46</a>
+
+经常画面卡住不动，这种情况是不是显存爆了</blockquote>
+大概率是
+
+
+*****
+
+####  moimoi  
+##### 595#       发表于 2021-9-26 22:29
+
+
+探索完卡岛了，这次密码解密好复杂啊，以前耻辱prey密码大多在附近，这次……竟然穿越时间在各个地方，就没一个在附近的，每次看到密码箱都很绝望<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 596#       发表于 2021-9-26 22:32
+
+
+这作我已经放弃解谜很多内容了，安心打主线吧。把支线清一清我就要接着玩耻辱得了，死亡循环是真的不耐玩。
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  moimoi  
+##### 597#       发表于 2021-9-26 22:33
+
+
+玩卡尔湾的那个违法实验的支线时，真的心惊肉跳，当时没补充子弹，手上就20发子弹，源源不绝的敌人，对我这个手残而言，被迫当了一次英雄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+卡尔湾的美术风格好棒，梦回水淹区
+
+
+*****
+
+####  屑猫猫  
+##### 598#       发表于 2021-9-26 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52903523&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-9-26 22:33</a>
+玩卡尔湾的那个违法实验的支线时，真的心惊肉跳，当时没补充子弹，手上就20发子弹，源源不绝的敌人，对我这 ...</blockquote>
+遇事不决上链接啊，拿了连接一刀过去多连几个直接倒一大排啊。女巫给的连接贼好用，等于是加强版骨牌了。
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
