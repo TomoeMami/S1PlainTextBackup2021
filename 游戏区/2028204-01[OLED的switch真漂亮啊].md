@@ -841,3 +841,14 @@ B站顶流也是这种啊<img src="https://static.saraba1st.com/image/smiley/fac
 全世界都是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是喜欢这种夸张，疯狂的，欧美不还一大堆随便就亢奋得不行的顶流
 
 
+
+
+*****
+
+####  hisousihou  
+##### 78#       发表于 2021-9-26 16:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中国boy和他很像
+
+
