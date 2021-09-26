@@ -793,3 +793,18 @@ ns基本是没这个问题的 有也是触摸和手柄控制并存的
 这竟然是顶流UP，要是出现在B站肯定被我第一时间屏蔽<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  电磁炮233  
+##### 74#       发表于 2021-9-26 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52898102&amp;ptid=2028204" target="_blank">amzonme 发表于 2021-9-26 15:18</a>
+这竟然是顶流UP，要是出现在B站肯定被我第一时间屏蔽</blockquote>
+B站顶流也是这种啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
