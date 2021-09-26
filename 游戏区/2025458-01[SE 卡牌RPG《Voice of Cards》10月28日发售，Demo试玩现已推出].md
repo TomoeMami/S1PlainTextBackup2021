@@ -1246,3 +1246,16 @@ demo玩了下，发困···
 女王バニラ没说是不是教团的人，不过名字叫vanilla服装也是白色
 
 
+
+
+*****
+
+####  fuochai  
+##### 97#       发表于 2021-9-27 00:50
+
+
+只有大叔旁白吗，真的服了，甚至不给美少女配个cv
+
+还不如做成手游<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+

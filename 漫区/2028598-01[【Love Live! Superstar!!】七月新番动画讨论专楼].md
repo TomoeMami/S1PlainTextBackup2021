@@ -2737,3 +2737,31 @@ dmhy也更新了
 但是并不太影响整体的可看性。写歌词起团名这段致敬了初代，玩着玩着感觉到了，就水到渠成一气呵成。不过拉拉就是这样的风格，反正我看得很快乐，有这集后面只要不太离谱我就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 212#       发表于 2021-9-27 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52904482&amp;ptid=2028598" target="_blank">qds 发表于 2021-9-27 00:36</a>
+
+看完熟肉，我觉得这是继第三集以后最好看的一集了
+
+五人直播那里真的看得很快乐凑够五个人以后日常戏 ...</blockquote>
+小千喜欢圆的东西不是一直都有么
+
+
+*****
+
+####  qds  
+##### 213#       发表于 2021-9-27 01:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52904595&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-9-27 00:55</a>
+小千喜欢圆的东西不是一直都有么</blockquote>
+这，可能是我看得不太仔细了，之前都没啥印象<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+这集小千画了一黑板圆，从头到尾一直marumaru我才知道还有这种喜好（
+
+

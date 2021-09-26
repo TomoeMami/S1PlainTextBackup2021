@@ -2968,3 +2968,33 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至于罗现在已经完全是草帽团的保姆了
 
 
+
+
+*****
+
+####  サクラ  
+##### 55711#       发表于 2021-9-26 23:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">接下来的剧情，路飞拼尽全力和凯多对大招，僵持稍有落败的时候，凯多被偷袭了一下，然后回过头去，看到的是当年御田的样子，（插一段回忆），定睛一看还是有点差别，原来是桃之助。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这时再给五皇的左膀右臂一个特写，顺便小窗口带上九侠附上的脸，台词我都想好了，【いまだ】
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后凯多这边【そ。。。そんな。。。バ。。。バカな】落败，最后五皇从超2变为常态，啊不是，从4挡变回平常状态，掉落在地喘着粗气
+<img src="http://comic.dragonballcn.com/list/0.Dragon_Ball-buyao_daolian_ya/0.jp_Kanzenban/DRAGONBALLvol28/156-OSbxy.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  银翼的维罗西  
+##### 55712#       发表于 2021-9-27 01:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52903826&amp;ptid=98922" target="_blank">klzxs 发表于 2021-9-26 23:01</a>
+
+虽然基德肯定不会觉得自己低于草帽
+
+但读者大概没真把他当成过和路飞对等的存在吧
+
+至于罗现在已经完 ...</blockquote>
+不禁没当成路飞的对手，甚至觉得这个角色都是多余的，宿敌有黑胡子，盟友有罗，镜像有科比，这个角色强行拔高没有任何意义，放入超新星中当个小配角就够了
+
+
