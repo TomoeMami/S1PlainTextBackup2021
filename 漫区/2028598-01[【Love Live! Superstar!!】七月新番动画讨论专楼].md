@@ -2605,3 +2605,30 @@ liyuu才发推，是看gk看忘了吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">健康码红啦
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 202#       发表于 2021-9-26 23:30
+
+
+ 本帖最后由 普之舜舜 于 2021-9-26 23:35 编辑 
+
+熟肉出来了，是隔壁拉拉群友友情制作的，我只负责搬运，来和坛友一起讨论。泥潭坛友不要用于商业目的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对拉拉人的个人翻译保持友好态度。用于阿里网盘可以直接在网页端还有客户端直接看。
+我用阿里云盘分享了「第九话（包含生肉和熟肉，不要用于商业目的)」，你可以不限速下载🚀
+复制这段内容打开「阿里云盘」App 即可获取
+链接：https://www.aliyundrive.com/s/48UzrqgbWVU
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 203#       发表于 2021-9-26 23:39
+
+
+dmhy也更新了
+
+

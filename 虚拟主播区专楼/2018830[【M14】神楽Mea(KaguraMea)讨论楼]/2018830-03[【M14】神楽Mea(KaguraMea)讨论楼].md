@@ -2102,3 +2102,30 @@ https://mall.jd.com/index-10233193.html
 bgm的人声吵是吧，好的（把自己mute了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3192#       发表于 2021-9-26 23:28
+
+
+ 本帖最后由 T_Hb 于 2021-9-26 23:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊癫疯
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，太浮夸了
+
+
+*****
+
+####  梦魂落叶  
+##### 3193#       发表于 2021-9-26 23:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52903779&amp;ptid=2018830" target="_blank">2014720 发表于 2021-9-26 22:58</a>
+突然看见有人发的
+
+https://mall.jd.com/index-10233193.html</blockquote>
+别问，问就a4腰小麻<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
