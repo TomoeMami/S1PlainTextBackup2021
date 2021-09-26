@@ -13964,3 +13964,17 @@ realme要沦为游戏机了<img src="https://static.saraba1st.com/image/smiley/f
 目前看上了老七的机基地0.1mm钢化膜，有没有用过的老兄介绍下？
 
 
+
+
+*****
+
+####  moekyo  
+##### 1226#       发表于 2021-9-26 14:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896551&amp;ptid=2015640" target="_blank">芸芸提不起劲 发表于 2021-9-26 12:55</a>
+才三天绿联的手机膜已经刮花了
+目前看上了老七的机基地0.1mm钢化膜，有没有用过的老兄介绍下？ ...</blockquote>
+买了，手机没到<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
