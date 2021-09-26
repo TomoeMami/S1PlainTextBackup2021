@@ -15672,3 +15672,41 @@ pc</blockquote>
 顺便这个秘奥义，好躲是好躲，但是自己躲起来会引着他横扫一片，队友经常就被扫死了...
 
 
+
+
+*****
+
+####  pf67  
+##### 5666#       发表于 2021-9-26 08:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52849502&amp;ptid=1860328" target="_blank">妄想中毒 发表于 2021-9-22 21:43</a>
+草，地灵的圣堂这什么傻逼支线啊，进迷宫就自动战斗状态没地图每个路口都有怪，怪就那么几种类型还特别硬， ...</blockquote>
+是的，这地方设计巨傻逼
+
+我也是不到40级就进来了，然后坚持打了一小时，进退两难。
+
+最后想了想，不想浪费这一小时，最后去游侠下了个风灵月影强行过了……
+
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  pf67  
+##### 5667#       发表于 2021-9-26 08:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52849502&amp;ptid=1860328" target="_blank">妄想中毒 发表于 2021-9-22 21:43</a>
+草，地灵的圣堂这什么傻逼支线啊，进迷宫就自动战斗状态没地图每个路口都有怪，怪就那么几种类型还特别硬， ...</blockquote>
+是的，这地方设计巨傻逼
+
+我也是不到40级就进来了，然后坚持打了一小时，进退两难。
+
+最后想了想，不想浪费这一小时，最后去游侠下了个风灵月影强行过了……
+
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
