@@ -3152,3 +3152,30 @@ ybb就是去年有病吧事件，一个v吧吧友发现海子姐一个著名 ...
 6）V吧当初无吧主状态十分混乱，又因为海子姐另有其人的自拍特别流传（尤其是那张和菠萝包的迪士尼吻别），就被一群人P成师徒到处发。
 
 
+
+
+*****
+
+####  阿矿  
+##### 244#       发表于 2021-9-26 21:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901300&amp;ptid=2021175" target="_blank">余情自取 发表于 2021-9-26 03:49</a>
+
+1）之前海子姐有个二创组号（脆脆鲨的生产空间），中间一段时间一度停摆，能产出内容的组员屈指可数。最 ...</blockquote>
+我为什么感觉全是逆天鲨鱼头的问题<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电磁炮233  
+##### 245#       发表于 2021-9-26 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52902309&amp;ptid=2021175" target="_blank">阿矿 发表于 2021-9-26 21:01</a>
+我为什么感觉全是逆天鲨鱼头的问题</blockquote>
+别的不说，师徒也能给v8区洗吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
