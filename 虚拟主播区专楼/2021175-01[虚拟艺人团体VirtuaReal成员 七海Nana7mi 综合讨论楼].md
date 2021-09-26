@@ -3179,3 +3179,32 @@ ybb就是去年有病吧事件，一个v吧吧友发现海子姐一个著名 ...
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  阿矿  
+##### 246#       发表于 2021-9-26 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52902477&amp;ptid=2021175" target="_blank">电磁炮233 发表于 2021-9-26 05:13</a>
+
+别的不说，师徒也能给v8区洗吗？
+
+
+—— 来自 S1Fun</blockquote>
+BLB那图我懂，师徒又是啥梗
+
+
+*****
+
+####  OldGlory  
+##### 247#       发表于 2021-9-26 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52902701&amp;ptid=2021175" target="_blank">阿矿 发表于 2021-9-26 21:31</a>
+
+BLB那图我懂，师徒又是啥梗</blockquote>
+屎图
+
+
