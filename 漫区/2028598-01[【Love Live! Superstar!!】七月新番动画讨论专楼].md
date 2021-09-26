@@ -2281,3 +2281,108 @@ lovelive本质还是leader的故事，缪剧场版就体现的很明显了，可
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">招新人进来，然后发现整体水平变次了，这样的……？
 
 
+
+
+*****
+
+####  Norkey1  
+##### 180#       发表于 2021-9-26 20:10
+
+
+ 本帖最后由 Norkey1 于 2021-9-26 20:25 编辑 
+
+如果加农和前两代一样是元气笨蛋什么都要试一试的性格还好，“相信的心就是你的魔法”嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是她这种自信不足的性格，套上这种模板剧情还挺奇怪的…换句话说，前两代大部分是立德拉着大家或者是共同解决问题，加农是要其他队员推着她让她解决问题。这样钦定感更强了
+
+
+
+
+*****
+
+####  黑雪姫  
+##### 181#       发表于 2021-9-26 20:10
+
+
+话说 这集可可和小千有几处好有CP感啊
+
+
+*****
+
+####  qratosone  
+##### 182#       发表于 2021-9-26 20:14
+
+
+ 本帖最后由 qratosone 于 2021-9-26 20:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901410&amp;ptid=2028598" target="_blank">saglork 发表于 2021-9-26 19:59</a>
+必然的啊，她们肯定要参赛的，参赛了又不可能第一次就成功，要不然第二季演什么？守擂吗 ...</blockquote>
+真对标初代的话肯定是不参赛的，先可可回解决团队问题，然后第二季正式参赛从头打到尾。
+
+另外第一季结尾走完参赛+失败+重新振作的全流程也不符合前两代的先例。缪第一季直接果皇追鸟，把LL拖到第二季，水第一季是断在决赛Live上，第二季开篇再说结果。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 183#       发表于 2021-9-26 20:14
+
+
+风怒
+
+
+*****
+
+####  qratosone  
+##### 184#       发表于 2021-9-26 20:15
+
+
+风怒
+
+
+*****
+
+####  寒风夜  
+##### 185#       发表于 2021-9-26 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901598&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-26 20:10</a>
+
+如果加农和前两代一样是元气笨蛋什么都要试一试的性格还好，“相信的心就是你的魔法”嘛
+
+但是她这种 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我就是这种感觉
+
+
+*****
+
+####  秋月艾莉  
+##### 186#       发表于 2021-9-26 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901598&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-26 20:10</a>
+
+如果加农和前两代一样是元气笨蛋什么都要试一试的性格还好，“相信的心就是你的魔法”嘛
+
+但是她这种 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凤傲天，这个立德明明社恐却实力超强，“真拿你没办法”一出手便屌炸天
+
+其他四个才是元气笨蛋，就一副“相信卡农的心就是你的魔法”的样子
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">已经不用怕了，要问为什么，因为卡农来了！
+
+
+不过看制作组这集自己也吐槽什么都推给卡农，取名难题也提到是因为她们五个本就バラバラ凑起来的什么都不一致这些观众也有的吐槽，感觉制作组脑子也没有完全浆糊，这个问题在未来也许能得到改进
+
+
+*****
+
+####  最强惠酱  
+##### 187#       发表于 2021-9-26 20:23
+
+
+5人喊名字一到可可就只听到 裂啦！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
