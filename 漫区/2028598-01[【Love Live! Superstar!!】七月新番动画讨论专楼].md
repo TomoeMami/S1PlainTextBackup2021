@@ -2713,3 +2713,27 @@ dmhy也更新了
 日常喜欢逢田姐
 
 
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 210#       发表于 2021-9-27 00:32
+
+
+怀念前三集，希望能失忆变回循环Tiny Star时的自己来自: iPhone客户端
+
+
+
+
+*****
+
+####  qds  
+##### 211#       发表于 2021-9-27 00:36
+
+
+看完熟肉，我觉得这是继第三集以后最好看的一集了
+五人直播那里真的看得很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">凑够五个人以后日常戏观感好了不少，不过还是惯例迫害民警，还给小千又加了个marumaru的设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+但是并不太影响整体的可看性。写歌词起团名这段致敬了初代，玩着玩着感觉到了，就水到渠成一气呵成。不过拉拉就是这样的风格，反正我看得很快乐，有这集后面只要不太离谱我就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
