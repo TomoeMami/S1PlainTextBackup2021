@@ -16025,3 +16025,34 @@ pc</blockquote>
 那个也是法师复读光魔法
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5687#       发表于 2021-9-26 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896327&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-26 12:38</a>
+减ag和4个火伤15%没做吗
+
+
+魔武器其实打jjc很好刷的  花不了多久</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">火伤叠起来有那么屌？
+男主的魔攻本来就不高啊，难道要竞技场刷道具喂上去吗？
+
+
+*****
+
+####  alucardcz  
+##### 5688#       发表于 2021-9-26 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52897453&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-26 14:21</a>
+
+火伤叠起来有那么屌？
+
+男主的魔攻本来就不高啊，难道要竞技场刷道具喂上去吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那可。。。太屌了  就是混战1血容易直接躺地板
+
+
