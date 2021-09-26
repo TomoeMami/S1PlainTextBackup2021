@@ -2896,3 +2896,19 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 凯多这边手下主要战力没剩几个了吧，BIG MOM那边还要打一波吗？
 
 
+
+
+*****
+
+####  莫老五  
+##### 55706#       发表于 2021-9-26 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896779&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-9-26 13:13</a>
+
+基德和大妈到是有断臂之仇。
+
+基德最大问题是明明超新星三巨头之一，和路飞一样双超新星配置，居然没自己的 ...</blockquote>
+断臂是红发干的
+
+

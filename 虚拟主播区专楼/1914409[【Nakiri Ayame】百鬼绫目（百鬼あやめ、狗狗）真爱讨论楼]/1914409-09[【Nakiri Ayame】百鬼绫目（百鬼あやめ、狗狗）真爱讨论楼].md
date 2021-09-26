@@ -14235,3 +14235,23 @@ Collab比较有印象的也就是去润润Live，去三才Live，去Kanata的Liv
 看起来应该还是去团长的3D Live的样子
 
 
+
+
+*****
+
+####  nian1538  
+##### 13211#       发表于 2021-9-26 14:13
+
+
+⏰今日20時から⏰
+
+EDF！EDF！！！！
+ホロ地球防衛軍が再び結成！！！！
+地球がこんな状態なのに新しい隊員が・・😇ありがたや・・！
+
+放送こちら➔ https://youtu.be/huBKQYqHvuI
+ハッシュタグ： #ホロ地球防衛軍
+
+<img src="https://p.sda1.dev/2/1740f5f0f99b07b1df5093f95704c0bf/IMG_CMP_237033514.jpeg" referrerpolicy="no-referrer">
+
+
