@@ -2440,3 +2440,90 @@ lovelive本质还是leader的故事，缪剧场版就体现的很明显了，可
 敲锣打鼓那里说的应该不是中文是マジ甘いです
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 192#       发表于 2021-9-26 20:51
+
+
+ 本帖最后由 Piano-Forest 于 2021-9-26 20:52 编辑 
+
+LoveLive!Superstar!!2人の時間!～Special times～01
+<img src="https://p.sda1.dev/2/98da5fdef28ce9b48e8844ed2d4f584c/91R3gcqqpWL._AC_SL1500_ _1_.jpg" referrerpolicy="no-referrer">
+
+
+A店特典：B6サイズビジュアルボード
+<img src="https://p.sda1.dev/2/b18f43e98890157f43ab66632ce87257/20210926_204940.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 193#       发表于 2021-9-26 20:52
+
+
+[https://twitter.com/aozora_art/status/1442072714924093443](https://twitter.com/aozora_art/status/1442072714924093443)
+<img src="https://p.sda1.dev/2/99b31c8160b79daa95fb121292dce59d/20210926_204955.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/hotetige/status/1441809455864156163](https://twitter.com/hotetige/status/1441809455864156163)
+<img src="https://p.sda1.dev/2/dd3108098fcfc3dd0844e19552100d8b/20210926_204958.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 194#       发表于 2021-9-26 21:01
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/210059bt0qfa2newm11aag.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021-09-26.20.38.029.jpg</strong> (154.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 21:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/210059dqv87po8o2naj8v8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021-09-26.20.38.043.jpg</strong> (65.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 21:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/210100uj32pce92gvoeg2v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021-09-26.20.38.046.jpg</strong> (141.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 21:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/210102cdhfdoddr18r1z6i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021-09-26.20.38.050.jpg</strong> (69.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 21:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/210102u1ggbymzjp6m2mnb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021-09-26.20.38.037.jpg</strong> (199.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 21:01 上传
+
+

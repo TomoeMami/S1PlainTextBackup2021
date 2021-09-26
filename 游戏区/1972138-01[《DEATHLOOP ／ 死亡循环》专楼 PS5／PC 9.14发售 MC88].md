@@ -7059,3 +7059,14 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 当然也可以做成一种难度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Kojimaru  
+##### 593#       发表于 2021-9-26 20:46
+
+
+经常画面卡住不动，这种情况是不是显存爆了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
