@@ -3063,3 +3063,26 @@ ylg就是引流狗的意思，au指asoul粉丝，上半年很多au喜欢去海�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  阿矿  
+##### 240#       发表于 2021-9-26 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52899509&amp;ptid=2021175" target="_blank">余情自取 发表于 2021-9-26 01:15</a>
+
+维阿信就是VR信者，你可以理解成VR大家庭粉丝；
+
+ybb就是去年有病吧事件，一个v吧吧友发现海子姐一个著名 ...</blockquote>
+维阿信日常开她德不配位：VR大家庭粉丝觉得海子姐吃最多的资源拉最大的跨，所以都在喷她
+
+典中典ybb沾上V8:逆天鲨鱼头下场站粉头
+
+给ylg au当了两三个月的电子宠物:易拉罐这个我太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+应该是这样把？
+
+
