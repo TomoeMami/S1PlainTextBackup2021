@@ -782,3 +782,14 @@ ns基本是没这个问题的 有也是触摸和手柄控制并存的
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  amzonme  
+##### 73#       发表于 2021-9-26 15:18
+
+
+这竟然是顶流UP，要是出现在B站肯定被我第一时间屏蔽<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+

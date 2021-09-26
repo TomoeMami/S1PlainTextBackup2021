@@ -874,3 +874,64 @@ lovelive不可能翻车，我要吹爆花田十辉<img src="https://static.sarab
 迟报：油管小星星播放破100w了
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 62#       发表于 2021-9-26 15:11
+
+
+群里的老哥说我第八集写嗨了，导致戾气严重，我也该反思自我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 63#       发表于 2021-9-26 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52898027&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-9-26 15:11</a>
+
+群里的老哥说我第八集写嗨了，导致戾气严重，我也该反思自我
+
+
+—— 来自 OPPO PDKM00 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你就盯住那猪b矛盾塑造喷呗
+
+
+*****
+
+####  寒风夜  
+##### 64#       发表于 2021-9-26 15:20
+
+
+ 本帖最后由 寒风夜 于 2021-9-26 15:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52898027&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-9-26 15:11</a>
+
+群里的老哥说我第八集写嗨了，导致戾气严重，我也该反思自我
+
+
+—— 来自 OPPO PDKM00 ...</blockquote>
+
+
+*****
+
+####  优妮可  
+##### 65#       发表于 2021-9-26 15:24
+
+
+外面那帖有点离谱啊，那张人肉出来的照片就这么随意发的么。
+
+
+*****
+
+####  十九号大侠  
+##### 66#       发表于 2021-9-26 15:27
+
+
+别人根本不在乎呀，
+
+

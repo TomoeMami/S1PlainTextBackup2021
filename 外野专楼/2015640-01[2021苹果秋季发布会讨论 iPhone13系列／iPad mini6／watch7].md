@@ -13978,3 +13978,15 @@ realme要沦为游戏机了<img src="https://static.saraba1st.com/image/smiley/f
 买了，手机没到<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  bedmax  
+##### 1227#       发表于 2021-9-26 15:25
+
+
+13mini官方皮壳到了，刚称了一下机+壳+膜共170g，比之前SE2+硅胶重2g。皮质偏软偏滑，SE1就是带皮壳从口袋掏出来直接掉地上了，“包浆”后稍微好一点。
+13mini比SE2厚不少，宽度尺寸一致但是变成直角后还是感觉变大了，而且有个傻不拉几的刘海，不过屏幕变大了，续航强了几个档次，也算是非常适合我了。
+
+
