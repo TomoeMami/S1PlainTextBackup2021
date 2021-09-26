@@ -1606,3 +1606,210 @@ excellent草
 还是那句话 进展太快问题
 
 
+
+
+*****
+
+####  寒风夜  
+##### 128#       发表于 2021-9-26 18:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可可回就整点土的得了   别大了 
+
+
+*****
+
+####  qratosone  
+##### 129#       发表于 2021-9-26 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900367&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-9-26 18:30</a>
+
+不难看，普通日常回的水平，只是又是卡农和她的四个小伙伴的分配有些单调，下集又是整活日常，最后剩两集感 ...</blockquote>
+反过来最后两集参加LL也来不及
+
+
+*****
+
+####  we89623  
+##### 130#       发表于 2021-9-26 18:35
+
+
+如果有可可个人回下话结尾就应该会铺垫了
+
+
+*****
+
+####  JustW  
+##### 131#       发表于 2021-9-26 18:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">缪水看的不完整，看过的也忘了不少，有没有记得的告诉我一下，缪水立德也立德这么明显吗
+
+
+*****
+
+####  寒风夜  
+##### 132#       发表于 2021-9-26 18:36
+
+
+正常水平吧这集，但3个入队回救不了了 
+
+
+*****
+
+####  kata魂  
+##### 133#       发表于 2021-9-26 18:37
+
+
+哪有，缪斯安慰靠三年级老大姐坐镇，会长靠海爷了解情况，名字是希取得
+
+水团也是大致的情况，除了名字就是会长取得
+
+
+*****
+
+####  Norkey1  
+##### 134#       发表于 2021-9-26 18:38
+
+
+忘了，但是一边说自己不行，然后最后忽然主角光环加身把问题全解决了的立德，还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 135#       发表于 2021-9-26 18:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卡农要是前2代性格，立德感更好吧？
+
+
+*****
+
+####  cybernetics31  
+##### 136#       发表于 2021-9-26 18:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可可那个冲鸭我是绷不住了
+
+
+*****
+
+####  秋月艾莉  
+##### 137#       发表于 2021-9-26 18:41
+
+
+超越母神是什么烂名字，谁想的拖出去殴打一个小时
+
+
+*****
+
+####  笋狐  
+##### 138#       发表于 2021-9-26 18:42
+
+
+日常回各自照着人设一个劲凹属性就行了，顺便下话看标题难道要rap斗法了吗<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  球獭  
+##### 139#       发表于 2021-9-26 18:42
+
+
+印象中果皇是混子
+
+
+*****
+
+####  秋月艾莉  
+##### 140#       发表于 2021-9-26 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900109&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-9-26 18:09</a>
+
+名字找同学募集。。。。应该会采用当时杂志取名的理由。
+
+
+话说一人取一个字怎么最后变成ks的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 141#       发表于 2021-9-26 18:46
+
+
+草，恋恋还有中二的一面
+
+
+*****
+
+####  没有爱就看不见  
+##### 142#       发表于 2021-9-26 18:47
+
+
+果皇能操纵天气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+超越母神是恋想的吧，看她中间有个藏笔记的动作，很可能是个中二
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 143#       发表于 2021-9-26 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900506&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-9-26 18:41</a>
+
+超越母神是什么烂名字，谁想的拖出去殴打一个小时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得黑板上那些东西应该是让声优本人想出来的，所以……
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 144#       发表于 2021-9-26 18:49
+
+
+果是负责拧绳和发动场地魔法卡的<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">其他时候当当谐星把剧情让给其他人
+果皇为什么是果皇<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 145#       发表于 2021-9-26 18:50
+
+
+果是负责拧绳和发动场地魔法卡的<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">其他时候当当谐星把剧情让给其他人
+果皇为什么是果皇<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 146#       发表于 2021-9-26 18:50
+
+
+果是负责拧绳和发动场地魔法卡的<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">其他时候当当谐星把剧情让给其他人
+果皇为什么是果皇<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 147#       发表于 2021-9-26 18:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">香音这个有点过于钦定的感觉了，说实话有点破坏观感
+
+
