@@ -2538,3 +2538,28 @@ A店特典：B6サイズビジュアルボード
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小百合穿这类更显矮了
 
 
+
+
+*****
+
+####  qratosone  
+##### 196#       发表于 2021-9-26 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901774&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-9-26 20:21</a>
+
+凤傲天，这个立德明明社恐却实力超强，“真拿你没办法”一出手便屌炸天
+
+其他四个才是元气笨蛋，就 ...</blockquote>
+取名字本身最后是香哥哥决定的倒是比较合理，毕竟Liella这个名字本身就是冷门语言，香哥哥的父亲是翻译家
+
+
+*****
+
+####  kata魂  
+##### 197#       发表于 2021-9-26 22:08
+
+
+liyuu才发推，是看gk看忘了吗
+
+
