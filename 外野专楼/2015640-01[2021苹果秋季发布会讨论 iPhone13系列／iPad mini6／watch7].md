@@ -13990,3 +13990,15 @@ realme要沦为游戏机了<img src="https://static.saraba1st.com/image/smiley/f
 13mini比SE2厚不少，宽度尺寸一致但是变成直角后还是感觉变大了，而且有个傻不拉几的刘海，不过屏幕变大了，续航强了几个档次，也算是非常适合我了。
 
 
+
+
+*****
+
+####  Totokei  
+##### 1228#       发表于 2021-9-26 16:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原本昨天手表解锁手机用起来还不错
+今天感觉只有一半的成功率还要自己输密码
+
+

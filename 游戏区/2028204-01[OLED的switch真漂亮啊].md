@@ -828,3 +828,16 @@ B站顶流也是这种啊<img src="https://static.saraba1st.com/image/smiley/fac
 一亮屏幕瞎狗眼
 
 
+
+
+*****
+
+####  2659646573  
+##### 77#       发表于 2021-9-26 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52898102&amp;ptid=2028204" target="_blank">amzonme 发表于 2021-9-26 15:18</a>
+这竟然是顶流UP，要是出现在B站肯定被我第一时间屏蔽</blockquote>
+全世界都是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是喜欢这种夸张，疯狂的，欧美不还一大堆随便就亢奋得不行的顶流
+
+

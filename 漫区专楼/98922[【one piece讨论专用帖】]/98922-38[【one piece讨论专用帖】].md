@@ -2927,3 +2927,30 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 断臂是红发干的，基德是把大妈将星打败了.但是现在他被神棍下蛊，半退出战斗，事实上很离谱的点是罗一个人拖住大妈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qwxbtgb  
+##### 55708#       发表于 2021-9-26 16:28
+
+
+<blockquote>莫老五 发表于 2021-9-26 14:12
+断臂是红发干的</blockquote>
+原来是红发干的吗，记得之前说他去大妈那捣乱，还以为是大妈那丢的
+
+
+*****
+
+####  武男  
+##### 55709#       发表于 2021-9-26 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52881958&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-9-25 11:07</a>
+
+平起平坐？路飞宣言一定会打败凯多的时候基德回话这不是当然的吗
+
+这台词就差把路飞小弟几个字写在他脸上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">巴雷特的定位吧
+
+
