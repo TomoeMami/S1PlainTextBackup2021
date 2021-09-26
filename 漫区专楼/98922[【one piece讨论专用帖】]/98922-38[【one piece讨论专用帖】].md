@@ -2954,3 +2954,17 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">巴雷特的定位吧
 
 
+
+
+*****
+
+####  klzxs  
+##### 55710#       发表于 2021-9-26 23:01
+
+
+虽然基德肯定不会觉得自己低于草帽
+
+但读者大概没真把他当成过和路飞对等的存在吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至于罗现在已经完全是草帽团的保姆了
+
+

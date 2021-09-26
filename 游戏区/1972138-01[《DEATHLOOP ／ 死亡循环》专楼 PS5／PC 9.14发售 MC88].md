@@ -7129,3 +7129,17 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  鹿斗典善  
+##### 599#       发表于 2021-9-26 23:18
+
+
+密码总会摸得出来，对我来说更烦各种不用快递就开不了的保险箱，不开很亏，要开就得浪费一整天<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+哦，市中心那个所谓打电话就能开的门我至今未解....
+
+

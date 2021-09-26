@@ -2047,3 +2047,58 @@ https://www.pixiv.net/artworks/93001227<img src="https://p.sda1.dev/2/4435b44aee
 整地整到日本时间五点，漫画看到今天中午一点多，真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3187#       发表于 2021-9-26 22:54
+
+
+长文恐惧症
+
+
+*****
+
+####  Rem-清曲  
+##### 3188#       发表于 2021-9-26 22:55
+
+
+想听恋音雨空  <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 3189#       发表于 2021-9-26 22:58
+
+
+突然看见有人发的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+https://mall.jd.com/index-10233193.html
+
+谁来相信说说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3190#       发表于 2021-9-26 22:59
+
+
+ 本帖最后由 T_Hb 于 2021-9-26 23:09 编辑 
+
+连RPG都唱成抒情版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+正好九月，很应景
+
+
+*****
+
+####  时间在我手中  
+##### 3191#       发表于 2021-9-26 23:22
+
+
+bgm的人声吵是吧，好的（把自己mute了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
