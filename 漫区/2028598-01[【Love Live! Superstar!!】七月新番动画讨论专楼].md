@@ -1813,3 +1813,160 @@ excellent草
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">香音这个有点过于钦定的感觉了，说实话有点破坏观感
 
 
+
+
+*****
+
+####  qratosone  
+##### 148#       发表于 2021-9-26 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900553&amp;ptid=2028598" target="_blank">没有爱就看不见 发表于 2021-9-26 18:47</a>
+
+果皇能操纵天气
+
+超越母神是恋想的吧，看她中间有个藏笔记的动作，很可能是个中二 ...</blockquote>
+不用很可能，就是
+
+[看看恋恋取的团名【lovelive吧】_百度贴吧 (baidu.com)](https://tieba.baidu.com/p/7554488434)
+
+
+*****
+
+####  秋月艾莉  
+##### 149#       发表于 2021-9-26 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900608&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-9-26 18:51</a>
+
+不用很可能，就是
+
+
+看看恋恋取的团名【lovelive吧】_百度贴吧 (baidu.com)</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很难绷得住
+
+怎么不叫龟派神功
+
+
+*****
+
+####  笋狐  
+##### 150#       发表于 2021-9-26 18:56
+
+
+众所周知，ll里的大和抚子都是中二病（
+
+<img src="https://img.saraba1st.com/forum/202109/26/185413x6vxx0fz3dix23ci.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (35.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 18:54 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然她们嘴上说着类似散落在银河的五颗星星之类的话（艾斯：？），但什么事都要强推香音C这个表现，怎么看都是四颗小星星围着一颗大星星啊（嘶.............）
+
+
+
+
+*****
+
+####  黑雪姫  
+##### 151#       发表于 2021-9-26 19:01
+
+
+看预告，堇对学园偶像态度的转变有可能下话就会演到。可堇两人和解？ 然后在结尾在引出11话的可可回？？
+
+
+*****
+
+####  damian-wade  
+##### 152#       发表于 2021-9-26 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900383&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-9-26 18:31</a>
+但是可可到现在还没有单独SOLO过ED，不可能其他四人都SOLO，唯独可可没有吧。 ...</blockquote>
+没那么标准的，像这集明明主角还是卡农，但是ED就是缺卡农的版本……
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 153#       发表于 2021-9-26 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900593&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-9-26 18:50</a>
+
+香音这个有点过于钦定的感觉了，说实话有点破坏观感</blockquote>
+是这问题
+
+
+*****
+
+####  damian-wade  
+##### 154#       发表于 2021-9-26 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900425&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-9-26 18:34</a>
+反过来最后两集参加LL也来不及</blockquote>
+第一季肯定赢不了的，弄点挫折然后克服，输掉比赛，两集可以了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 155#       发表于 2021-9-26 19:04
+
+
+今天S1好卡
+
+
+*****
+
+####  Piano-Forest  
+##### 156#       发表于 2021-9-26 19:04
+
+
+『Ringing!』
+
+作曲:小幡康裕
+
+編曲:森悠也
+
+
+本日放送された第9話にて流れた「dreaming Energy」は、
+
+Liella!アニメーションMV付きデビューシングル
+
+「始まりは君の空」［みんなで叶える物語盤］
+
+に収録✨
+
+
+是非チェックしてくださいね💿
+<img src="https://p.sda1.dev/2/213153d5a832f26105010f76c179624a/20210926_190256.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/nhk_animeworld/status/1442073995004743682](https://twitter.com/nhk_animeworld/status/1442073995004743682)
+
+＼次回予告／
+
+💫✨💫✨💫✨💫✨💫✨
+
+ラブライブ！スーパースター!!
+
+第10話「チェケラッ!!」
+
+Eテレ 10/3(日)夜7時
+
+💫✨💫✨💫✨💫✨💫✨
+
+
+次回もどうぞお楽しみに！
+
+

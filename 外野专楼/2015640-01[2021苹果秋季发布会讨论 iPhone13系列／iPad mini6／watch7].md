@@ -14013,3 +14013,17 @@ realme要沦为游戏机了<img src="https://static.saraba1st.com/image/smiley/f
 mini6果冻的很不爽，还好没贴膜，问题现在换货有用吗
 
 
+
+
+*****
+
+####  Yalbsd  
+##### 1230#       发表于 2021-9-26 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900530&amp;ptid=2015640" target="_blank">战狼PTSD 发表于 2021-9-26 18:44</a>
+
+mini6果冻的很不爽，还好没贴膜，问题现在换货有用吗</blockquote>
+我直接换了ipadpro
+
+

@@ -16150,3 +16150,36 @@ pc</blockquote>
 2021-9-26 18:10 上传
 
 
+
+
+*****
+
+####  heseran  
+##### 5695#       发表于 2021-9-26 18:53
+
+
+昨晚终于有时间通关了，最后打boss前那个地图哪个天才设计的，反着再走一遍艹，使人焦虑。游戏里面最怕找队友聊天的任务，对于ps4机械硬盘来说简直折磨……幸亏不太多。总得来说作为年轻人的第一款传说，体验还是很不错的，不过剧情感觉一般，槽点有点多。接下来开始白金<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  隔壁老黄  
+##### 5696#       发表于 2021-9-26 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900116&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-26 18:10</a></blockquote>
+细节真的不错！
+
+
+*****
+
+####  hypnossz86  
+##### 5697#       发表于 2021-9-26 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900116&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-26 18:10</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">有全图吗
+
+
