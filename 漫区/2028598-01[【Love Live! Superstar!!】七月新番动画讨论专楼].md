@@ -2008,3 +2008,183 @@ Eテレ 10/3(日)夜7時
 星团容易跳戏到邦邦，但我印象中就连剧情里上下关系最明显的r组主唱也没到香音这地步
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 161#       发表于 2021-9-26 19:28
+
+
+从预告来看，堇对学园偶像的态度是否改变就看下集了。
+
+可可对堇的态度也会因为堇的改变而改变（预告里两人也在争执估计是引子）
+
+然后就是可可回，如果有的话下集最后尾就应该引出了。
+
+虽然预告看起来是日常回但这种预告欺诈的例子太多了。
+
+
+总之下集是关键。
+
+
+以我的罗辑来猜测后面走向....
+
+堇对学园偶像态度的转变有可能下话就会演到。可堇两人和解。
+
+然后在结尾在引出11话的可可回。12话五人大集合第一季结束。
+
+
+当然花田是自由的...
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 162#       发表于 2021-9-26 19:30
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/193011drvjztvzv4t8akky.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (68.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 19:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/193020ohthvhilhrz7avsz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (10.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 19:30 上传
+
+
+无端联想
+
+
+*****
+
+####  HGCG-闪  
+##### 163#       发表于 2021-9-26 19:34
+
+
+怎么只有六页了
+
+
+*****
+
+####  黑雪姫  
+##### 164#       发表于 2021-9-26 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900719&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-9-26 19:01</a>
+
+没那么标准的，像这集明明主角还是卡农，但是ED就是缺卡农的版本……
+
+
+—— 来自 HUAWEI TEL-AN10, Andro ...</blockquote>
+那不一定，5人合唱ED肯定是会有吧，这集没有不代表后面三集都没有，同样可可SOLO的ED也是必须有的，否则就太偏心了
+
+
+*****
+
+####  qratosone  
+##### 165#       发表于 2021-9-26 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901117&amp;ptid=2028598" target="_blank">HGCG-闪 发表于 2021-9-26 19:34</a>
+
+怎么只有六页了</blockquote>
+这个是新的专楼
+
+
+*****
+
+####  名津流  
+##### 166#       发表于 2021-9-26 19:39
+
+
+这次的Liella!之歌换了个曲风啊，相比之前那首更喜欢现在这个，但还会是每个人都唱一次吗？感觉这首歌只会有可可的版本？
+
+
+*****
+
+####  kata魂  
+##### 167#       发表于 2021-9-26 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901172&amp;ptid=2028598" target="_blank">名津流 发表于 2021-9-26 19:39</a>
+
+这次的Liella!之歌换了个曲风啊，相比之前那首更喜欢现在这个，但还会是每个人都唱一次吗？感觉这首歌只会 ...</blockquote>
+这个是跟小千一起的吧
+
+特供曲一直是两人一首，千香，可恋，堇香，千可
+
+
+*****
+
+####  黑雪姫  
+##### 168#       发表于 2021-9-26 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901172&amp;ptid=2028598" target="_blank">名津流 发表于 2021-9-26 19:39</a>
+
+这次的Liella!之歌换了个曲风啊，相比之前那首更喜欢现在这个，但还会是每个人都唱一次吗？感觉这首歌只会 ...</blockquote>
+两个人一首歌，估计下集小千也是这个曲子
+
+
+*****
+
+####  优妮可  
+##### 169#       发表于 2021-9-26 19:40
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/194057dtskvg8a12gyafv5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210926_193957.jpg</strong> (364.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 19:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/194058n3izs1gezqdrxt6r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210926_193910.jpg</strong> (315.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 19:40 上传
+
+
+*****
+
+####  kata魂  
+##### 170#       发表于 2021-9-26 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52901197&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-9-26 19:40</a>
+
+两个人一首歌，估计下集小千也是这个曲子</blockquote>
+小千不是上一集的吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 171#       发表于 2021-9-26 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900986&amp;ptid=2028598" target="_blank">凡人 发表于 2021-9-26 19:23</a>
+
+星团容易跳戏到邦邦，但我印象中就连剧情里上下关系最明显的r组主唱也没到香音这地步 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">邦邦的互动跟收人真是好多了（第一季），害
+
+
