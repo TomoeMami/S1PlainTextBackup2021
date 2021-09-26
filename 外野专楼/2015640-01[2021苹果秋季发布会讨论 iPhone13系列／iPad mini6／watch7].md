@@ -13878,3 +13878,89 @@ realme要沦为游戏机了<img src="https://static.saraba1st.com/image/smiley/f
 看了下，官网还是14天无理由，官方天猫店是7天无理由，狗东是激活就完
 
 
+
+
+*****
+
+####  紫吹兰  
+##### 1218#       发表于 2021-9-26 10:12
+
+
+求13性价比比较高的壳和膜
+
+
+*****
+
+####  乔尼·乔斯达  
+##### 1219#       发表于 2021-9-26 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52894356&amp;ptid=2015640" target="_blank">紫吹兰 发表于 2021-9-26 10:12</a>
+
+求13性价比比较高的壳和膜</blockquote>
+壳可以大康
+
+
+*****
+
+####  发条计算机  
+##### 1220#       发表于 2021-9-26 11:33
+
+
+没想到关了5G开省电模式的13mini可以跟其他手机一样30%-70%搞电池循环还不会觉得充电频繁。<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  (wing)  
+##### 1221#       发表于 2021-9-26 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52890326&amp;ptid=2015640" target="_blank">mrlunzer 发表于 2021-9-25 22:39</a>
+
+老哥们买了膜别急着贴啊，mini6这人均果冻屏不知道咋整啊</blockquote>
+没发现，群里的人也没发现，用起来很爽，反正我是看不出
+
+
+*****
+
+####  (wing)  
+##### 1222#       发表于 2021-9-26 11:55
+
+
+我的13PM我准备就买个碎屏险，然后啥保护壳都不用可以么，或者就买张屏保贴膜？
+
+
+*****
+
+####  橋白  
+##### 1223#       发表于 2021-9-26 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52892722&amp;ptid=2015640" target="_blank">madbird302 发表于 2021-9-26 06:47</a>
+前提是未激活</blockquote>
+官网你只要东西没少激活了也退
+
+
+*****
+
+####  喵咪咪格勒  
+##### 1224#       发表于 2021-9-26 12:18
+
+
+问几个问题啊
+想十一再去直营店现场看看再买 按往年经验有现货吗？
+苹果不是还有个回收低值的服务 我去直营店可以直接回收吗？
+如果能买到 在直营店新老机器传数据靠谱吗？会不会很久？
+
+
+*****
+
+####  芸芸提不起劲  
+##### 1225#       发表于 2021-9-26 12:55
+
+
+才三天绿联的手机膜已经刮花了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+目前看上了老七的机基地0.1mm钢化膜，有没有用过的老兄介绍下？
+
+

@@ -691,3 +691,50 @@ Hikakin唯一的优势就是人不错了。
 ps5手柄疑似漏电.jpg
 
 
+
+
+*****
+
+####  ChrisSnake  
+##### 65#       发表于 2021-9-26 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52886672&amp;ptid=2028204" target="_blank">JudgmentEye 发表于 2021-9-25 17:48</a>
+
+那不就是psvtv吗</blockquote>
+pstv问题是 当时受ds影响 触摸屏还很火 很多游戏需要触摸 导致tv无法支持
+
+
+ns基本是没这个问题的 有也是触摸和手柄控制并存的
+
+
+*****
+
+####  汤圆です  
+##### 66#       发表于 2021-9-26 10:27
+
+
+我愿称之为开箱之神<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  茗夜雨  
+##### 67#       发表于 2021-9-26 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52863583&amp;ptid=2028204" target="_blank">Dashuaibi 发表于 2021-9-24 03:30</a>
+
+这风格居然是顶流够离谱，2077里明星装束个个猎奇看来并不只是瞎猜</blockquote>
+想想视觉系发源何处，再想想日本综艺什么风格，就理解了
+
+
+*****
+
+####  闽明  
+##### 68#       发表于 2021-9-26 10:28
+
+
+新版的底座是只有任天堂商店销售是么，没有一般渠道销售？
+
+

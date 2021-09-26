@@ -4176,3 +4176,25 @@ P1020004.JPG
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  东英零  
+##### 368#       发表于 2021-9-26 09:46
+
+
+文静9月17海龟汤有弹幕录播或者直播回放吗？没找到这一场的回放啊
+
+
+*****
+
+####  夜潇箫  
+##### 369#       发表于 2021-9-26 10:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52894021&amp;ptid=2013779" target="_blank">东英零 发表于 2021-9-26 09:46</a>
+文静9月17海龟汤有弹幕录播或者直播回放吗？没找到这一场的回放啊</blockquote>
+BV1Ab4y1m7Tm<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+

@@ -2907,3 +2907,78 @@ A：“A，鲨鱼头姐姐你还不毕业吗？在想台本吗？”
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">正是在下！
 
 
+
+
+*****
+
+####  阿矿  
+##### 231#       发表于 2021-9-26 09:17
+
+
+我是新脆鲨，最新在找逆天鲨鱼头的讨论贴看刚好看到隔壁说海子姐遇到网爆，这看得我一愣一愣的，有懂哥来科普一下具体什么情况嘛？
+
+<img src="https://img.saraba1st.com/forum/202109/25/171509y29yjjz5m6em2hem.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题.png</strong> (49.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 09:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/171515a9jj8srz6j968869.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题2.png</strong> (42.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 09:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/25/171515bbbfobow2n7hrnws.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题3.png</strong> (42.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 09:15 上传
+
+
+还有去年6月是指YBB那回吗？S1的专楼又是在哪的？
+
+<img src="https://img.saraba1st.com/forum/202109/25/171517tjj5kukayug8u8k9.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题4.png</strong> (23.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 09:15 上传
+
+
+*****
+
+####  余情自取  
+##### 232#       发表于 2021-9-26 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52893668&amp;ptid=2021175" target="_blank">阿矿 发表于 2021-9-26 09:17</a>
+我是新脆鲨，最新在找逆天鲨鱼头的讨论贴看刚好看到隔壁说海子姐遇到网爆，这看得我一愣一愣的，有懂哥来科 ...</blockquote>
+网暴就是海子姐一系列信息账号全被开出来公布了，包括且不限于另有其人睿站小号，贴吧账号，手机号。她之前说过因为骚扰电话和短信，几次外卖和手办补款都没注意到。跟s1有关的事件，你可以去睿站搜“可爱小七海”，当事人已经跟海子姐私信道歉了
+
+
+*****
+
+####  余情自取  
+##### 233#       发表于 2021-9-26 11:34
+
+
+ 本帖最后由 余情自取 于 2021-9-26 11:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52893668&amp;ptid=2021175" target="_blank">阿矿 发表于 2021-9-26 09:17</a>
+我是新脆鲨，最新在找逆天鲨鱼头的讨论贴看刚好看到隔壁说海子姐遇到网爆，这看得我一愣一愣的，有懂哥来科 ...</blockquote>
+去年夏天，应该说的维阿大家庭的幻灭吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那时候我还不看国V，你可以等其他人补充
+
+

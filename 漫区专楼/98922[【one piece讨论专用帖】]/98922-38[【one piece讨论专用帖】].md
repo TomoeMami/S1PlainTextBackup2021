@@ -2851,3 +2851,19 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 搞得大妈也很尴尬，拿不下两个超新星
 
 
+
+
+*****
+
+####  陶矢  
+##### 55703#       发表于 2021-9-26 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52881958&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-9-25 11:07</a>
+
+平起平坐？路飞宣言一定会打败凯多的时候基德回话这不是当然的吗
+
+这台词就差把路飞小弟几个字写在他脸上 ...</blockquote>
+基德这属于武松遇宋江，霸王色作用不是就是小兵倒地不起，大佬纳头便拜吗？
+
+

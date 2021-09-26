@@ -21956,3 +21956,18 @@ EN的MC感觉看不过来了，一大堆drama
 Calli总是选很多老黑怕唱，这是好的
 
 
+
+
+*****
+
+####  shimmy1996  
+##### 1392#       发表于 2021-9-26 11:49
+
+
+ 本帖最后由 shimmy1996 于 2021-9-26 12:02 编辑 
+
+council剩下fauna和mumei还没和myth collab
+
+想看amemumei<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+

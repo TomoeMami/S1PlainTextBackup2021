@@ -12004,3 +12004,25 @@ https://youtu.be/425-oc3ZEgg
 不看歌词不知道在唱什么，您还是讲日语吧
 
 
+
+
+*****
+
+####  面具13  
+##### 6964#       发表于 2021-9-26 11:35
+
+
+没看到啊，删了吗？
+
+
+*****
+
+####  nian1538  
+##### 6965#       发表于 2021-9-26 11:54
+
+
+https://youtu.be/HJ0Nhf9wiy8
+https://open.spotify.com/album/2aSTD2eb1g0Jd7l4VRYycF?si=WrkFmFCsTDCXQeVS2OdKuw&amp;dl_branch=1
+https://mora.jp/package/43000033/PA00091622-0-2/?fmid=newRelease_all_0001
+
+

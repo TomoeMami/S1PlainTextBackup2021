@@ -15721,3 +15721,227 @@ pc</blockquote>
 这游戏的剧情设计成上太空真是一毫克的必要都没有，真不知道日本这些编剧脑子里装得什么狗屎。
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5669#       发表于 2021-9-26 11:29
+
+
+ 本帖最后由 alucardcz 于 2021-9-26 11:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52893263&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-26 08:36</a>
+
+上面说时精灵好打的真是大佬啊
+
+我91级进去磨了半天在boss还剩一千多点血的时候吃了个时停全灭了... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你饰品做了没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还可以刷一刷女主或者法师的魔武器把他秒了
+
+
+*****
+
+####  vaststars  
+##### 5670#       发表于 2021-9-26 11:43
+
+
+第一章平均之上
+第二章凑合
+第三章不错
+第四章什么奇葩剧情
+
+对战斗部分毕竟没有感觉因为过于刮痧
+
+还有什么乐趣么 想开修改器直接通关算了。
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  vaststars  
+##### 5671#       发表于 2021-9-26 11:43
+
+
+第一章平均之上
+第二章凑合
+第三章不错
+第四章什么奇葩剧情
+
+对战斗部分毕竟没有感觉因为过于刮痧
+
+还有什么乐趣么 想开修改器直接通关算了。
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  vaststars  
+##### 5672#       发表于 2021-9-26 11:43
+
+
+第一章平均之上
+第二章凑合
+第三章不错
+第四章什么奇葩剧情
+
+对战斗部分毕竟没有感觉因为过于刮痧
+
+还有什么乐趣么 想开修改器直接通关算了。
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  vaststars  
+##### 5673#       发表于 2021-9-26 11:43
+
+
+第一章平均之上
+第二章凑合
+第三章不错
+第四章什么奇葩剧情
+
+对战斗部分毕竟没有感觉因为过于刮痧
+
+还有什么乐趣么 想开修改器直接通关算了。
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  leitingkai  
+##### 5674#       发表于 2021-9-26 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52861188&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-23 21:36</a>
+我怀疑你玩的确实和我们不是一个游戏，布景宏大有什么用，布景还有俩星球呢实际呢？
+
+
+一个国家=一个城市= ...</blockquote>
+想起最后的神迹
+每个城市都围绕着大型神迹设计得很宏大
+但是可利用区域都是分区靠传送进的 可活动范围贼小2333
+
+
+*****
+
+####  hypnossz86  
+##### 5675#       发表于 2021-9-26 12:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52895511&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-26 11:29</a>
+
+你饰品做了没有
+
+你还可以刷一刷女主或者法师的魔武器把他秒了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">饰品是指的减光暗伤害那个吗.....
+
+没做....洗了三个减咏唱的和减cp的首饰
+
+没钱了.....这游戏赚钱挺难的就懒得刷了......
+
+魔武器也是懒得刷.....拿到的时候属性还没做出来的好........
+
+
+*****
+
+####  魂淡放我出去  
+##### 5676#       发表于 2021-9-26 12:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52895912&amp;ptid=1860328" target="_blank">leitingkai 发表于 2021-9-26 12:04</a>
+想起最后的神迹
+每个城市都围绕着大型神迹设计得很宏大
+但是可利用区域都是分区靠传送进的 可活动范围贼 ...</blockquote>
+城市内的平均可活动范围也比破晓要广吧，龙城和圣都我记得都挺大的
+
+更别说外面地图，特别是大沙漠，跑图跑到吐血
+
+
+*****
+
+####  4ckc  
+##### 5677#       发表于 2021-9-26 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896019&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-26 12:14</a>
+城市内的平均可活动范围也比破晓要广吧，龙城和圣都我记得都挺大的
+
+更别说外面地图，特别是大沙漠，跑图 ...</blockquote>
+比破晓广多了
+而且每个区都有互动要素，破晓偷懒直接全扔旅馆了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hypnossz86  
+##### 5678#       发表于 2021-9-26 12:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896282&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-26 12:34</a>
+比破晓广多了
+而且每个区都有互动要素，破晓偷懒直接全扔旅馆了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全扔旅馆不是挺好
+不然整备一次要跑一遍全城那可是累死了
+都像野营点那样一个npc搞定更好(
+
+
+*****
+
+####  alucardcz  
+##### 5679#       发表于 2021-9-26 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896000&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-26 12:13</a>
+
+饰品是指的减光暗伤害那个吗.....
+
+没做....洗了三个减咏唱的和减cp的首饰
+
+没钱了.....这游戏赚钱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">减ag和4个火伤15%没做吗
+
+
+魔武器其实打jjc很好刷的  花不了多久
+
+
+*****
+
+####  4ckc  
+##### 5680#       发表于 2021-9-26 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896302&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-26 12:36</a>
+全扔旅馆不是挺好
+不然整备一次要跑一遍全城那可是累死了
+都像野营点那样一个npc搞定更好( ...</blockquote>
+那还设计互动npc干嘛，一个菜单全搞定不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+代入感和沉浸感是游戏体验很重要的一部分，做减法不是这么减的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  alucardcz  
+##### 5681#       发表于 2021-9-26 12:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52896371&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-26 12:40</a>
+
+那还设计互动npc干嘛，一个菜单全搞定不行吗
+
+代入感和沉浸感是游戏体验很重要的一部分，做减法不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 这游戏能进入的房子就这几个  别想太多了 城镇这方面可以说远不如轨迹
+
+

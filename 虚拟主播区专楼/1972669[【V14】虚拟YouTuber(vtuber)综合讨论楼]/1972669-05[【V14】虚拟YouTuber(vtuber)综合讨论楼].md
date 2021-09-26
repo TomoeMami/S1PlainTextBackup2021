@@ -15564,3 +15564,65 @@ SPECIAL BOX版のうさ耳パーカーには
 怎么melody也从3d退化到2d了
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7125#       发表于 2021-9-26 09:22
+
+
+hnn去cr基本只能打debu，估计打烦了
+
+昨晚noah五连鸡，bora牢车
+bo啊，虽然你跟reid关系好，但是你们打枪真的只能坐牢，节奏完全对不上
+我感觉bora，hnn，noah这三条疯狗如果能一起打一场会很好看
+
+
+*****
+
+####  free  
+##### 7126#       发表于 2021-9-26 11:05
+
+
+[https://twitter.com/nijisanji_app/status/1441960998848450562](https://twitter.com/nijisanji_app/status/1441960998848450562)
+
+
+【 纸屑球イベント開催告知‼ 】
+
+
+にじさんじを支え続けてきた8名による3Dライブイベント
+
+「initial step in NIJISANJI」の開催が決定しました！
+
+
+2021年10月31日17:00 START
+
+
+■出演
+
+月ノ美兎、樋口楓、静凛、える、勇気ちひろ、鈴谷アキ、モイラ、渋谷ハジメ
+
+
+詳細はこちら！▼
+
+
+<img src="https://img.saraba1st.com/forum/202109/26/110552d77jjj5vvwdhzb7v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FALf4RMUcAIBa98.jpg</strong> (202.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-26 11:05 上传
+
+
+*****
+
+####  winda  
+##### 7127#       发表于 2021-9-26 11:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hnn上届明明实力比nrk强一个level却被nrk硬是把debu位给塞给她，正赛体验贼差
+
+
