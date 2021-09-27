@@ -16180,3 +16180,16 @@ SYL：
 就好像搞蛆皇，到了只剩下kson就没几个人去管了
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 7165#       发表于 2021-9-27 15:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没人管，kson之前要参加的一个较有名的游戏发布工商就被橄榄了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
