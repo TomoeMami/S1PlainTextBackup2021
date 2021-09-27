@@ -16457,3 +16457,37 @@ vspo这运营应对有点快，不错<img src="https://static.saraba1st.com/imag
 syl，刚才在met那里还看到有人来刷屏vspo啥啥的，观众表示你走错门了
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7183#       发表于 2021-9-27 22:45
+
+
+以后终于能看到beni不玩Valorant这傻逼游戏了，某种程度上对我来说是好事，我连bora和胡桃的volo都看不下来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 7184#       发表于 2021-9-27 22:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">beni主心骨是在valo，这波下来把cr那边的关系也弄僵了，实在很伤
+
+
+*****
+
+####  poipanchao  
+##### 7185#       发表于 2021-9-27 23:07
+
+
+不好说，这锅我觉得得ojj背，他不来凑热闹估计闹不起来
+
+我反而觉得ojj会补偿beni
+
+
+and valo真是傻逼游戏，直播效果太差了
+
+
