@@ -4229,3 +4229,17 @@ BV1Ab4y1m7Tm<img src="https://static.saraba1st.com/image/smiley/face2017/030.png
 除了文静，艾瑞思，其他人舰队好少
 
 
+
+
+*****
+
+####  丢了五块钱  
+##### 373#       发表于 2021-9-27 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52904023&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-9-26 23:28</a>
+
+除了文静，艾瑞思，其他人舰队好少</blockquote>
+co20 琳40 白60，也挺配的了
+
+
