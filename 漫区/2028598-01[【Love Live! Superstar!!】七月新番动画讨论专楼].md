@@ -3536,3 +3536,27 @@ bd1特典曲
 Ringing 到时要扯嗓子唱咯
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 271#       发表于 2021-9-27 18:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香音的新剧情矛盾该怎么做有思路了
+
+Liella都是我在C.jpg
+
+感觉今年lovelive去不去都可以啊好像没什么意思了.jpg
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 272#       发表于 2021-9-27 18:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">nhk的特供曲会在live上唱吗？不太懂，会被nhk铁拳吗
+
+
