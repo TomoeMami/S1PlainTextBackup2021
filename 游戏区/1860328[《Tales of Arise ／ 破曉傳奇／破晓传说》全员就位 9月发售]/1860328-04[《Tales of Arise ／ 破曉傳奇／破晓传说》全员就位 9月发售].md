@@ -16409,3 +16409,43 @@ dq11占剧情设计便宜，如果把打败魔王后的内容当都当后日谈�
 三人bg 四人bg 合体秘奥义肯定放到以后的作品了
 
 
+
+
+*****
+
+####  tjc8730  
+##### 5714#       发表于 2021-9-27 13:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905159&amp;ptid=1860328" target="_blank">BRRM 发表于 2021-9-27 06:32</a>
+
+被评价最低的闪轨的剧情虽然大架构不行，但文本的细腻、成熟度秒杀破晓几百条街 ...</blockquote>
+请您说说文本的细腻和成熟度体现在哪儿呢？总不会就是那些灌水内容吧。
+
+关于闪轨，我提出过一个剧情展开模板：[https://bbs.nga.cn/read.php?tid=28288496](https://bbs.nga.cn/read.php?tid=28288496)
+
+
+*****
+
+####  alucardcz  
+##### 5715#       发表于 2021-9-27 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905159&amp;ptid=1860328" target="_blank">BRRM 发表于 2021-9-27 06:32</a>
+
+被评价最低的闪轨的剧情虽然大架构不行，但文本的细腻、成熟度秒杀破晓几百条街 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是哪个次元的闪轨啊? 成熟度是指闪2内战全靠学生玩过家家吗？
+
+
+*****
+
+####  alucardcz  
+##### 5716#       发表于 2021-9-27 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52907066&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-27 10:38</a>
+
+看了下日亚的评分已经跌到4.0了，自发售以来就一直在跌。看了下差评基本就是国内也经常提的，数值设计和dlc ...</blockquote>
+dlc我觉得关系不大 后期就是做崩了。。有没有dlc反正都是复读  学会复读越个10几20级问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
