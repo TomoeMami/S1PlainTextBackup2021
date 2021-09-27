@@ -3919,3 +3919,18 @@ pay酱还是那种光线拉满的
 BD1的香哥哥solo真不错啊，这是给可可and小千的情歌吧
 
 
+
+
+*****
+
+####  帕林马哲理  
+##### 296#       发表于 2021-9-28 04:52
+
+
+<img src="https://p.sda1.dev/2/f722090618114955eabb01be0dec010d/1632775454405.jpg" referrerpolicy="no-referrer">
+
+前两个“现代中国语词典”“encyclopedic dictionary（百科词典）”没啥大问题。
+但是第三个法语词典怎么写成了英文（French）加法文（dictionnaire）？按照我手上的词典应该是dictionnaire de français。
+第四个则是拼写错误，词性没有问题，但是Wörterbuch是ch，喝的音，德语里没有sh，只有sch。
+
+

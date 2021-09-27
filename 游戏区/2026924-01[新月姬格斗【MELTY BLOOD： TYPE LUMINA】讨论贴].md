@@ -996,3 +996,14 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 新的视频里看到红摩的蓄5C和蓄JC都加了霸体，这波得翻身了
 
 
+
+
+*****
+
+####  ibuki  
+##### 82#       发表于 2021-9-28 03:48
+
+
+这次有没有充豪华版送提前游玩？<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
