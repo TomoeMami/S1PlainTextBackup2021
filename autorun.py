@@ -8,6 +8,7 @@ import io
 import os
 import json
 
+old_number = 2026200
 
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
@@ -18,7 +19,7 @@ def parse_html(html,threadict):
         if(threadids):
             levels = re.search(r'\d{1,5}</a></span>',str(i))
             threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
-            if(levels) and (int(threadid) > 2026200):
+            if(levels) and (int(threadid) > old_number):
                 level = re.sub(r'</a></span>','',str(levels.group(0)))
                 lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
                 replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
