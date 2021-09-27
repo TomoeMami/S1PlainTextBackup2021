@@ -16580,3 +16580,16 @@ jcb就行啊
 翻页
 
 
+
+
+*****
+
+####  zakki  
+##### 83884#       发表于 2021-9-27 17:29
+
+
+ 本帖最后由 zakki 于 2021-9-27 17:31 编辑 
+
+周常3个石头单抽竟然彩圈出了迦摩，两个五星全了，四星一个没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

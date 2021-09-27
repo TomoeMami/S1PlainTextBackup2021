@@ -3465,3 +3465,38 @@ Marumaru不光是初设里的基本设定，而且动画前面反复提了很多
 剧情看到破防的基本都是新晋拉拉人，从缪水一路走过来的对花田的三板斧套路早就免疫了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 266#       发表于 2021-9-27 17:35
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/173514jzsw54r9c6fnkas3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210927_172658_com.twitter.android_edit_29900057289187.jpg</strong> (123.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 17:35 上传
+
+
+又上节目了，表演op
+
+
+*****
+
+####  武男  
+##### 267#       发表于 2021-9-27 17:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52909004&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-9-27 12:49</a>
+
+四保一是吧
+
+等卡农三件套，这团还能打</blockquote>
+这把香音一次都不能死.jpg
+
+

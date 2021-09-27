@@ -706,3 +706,14 @@ ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸�
 小鸟游生日贺图应该是最多的了。群众创作热情明显高于其他角色。甚至是超越素组的真实女主人气。
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6052#       发表于 2021-9-27 17:27
+
+
+官图这歪脸，让你们说我不给手绘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
