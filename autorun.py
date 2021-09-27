@@ -23,7 +23,7 @@ def parse_html(html,threadict):
                 level = re.sub(r'</a></span>','',str(levels.group(0)))
                 lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
                 replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
-                if(int(level) > 2) and ((int(time.time()) - replytime )< 1296000):
+                if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
                     threadict[threadid] = replytime
     # replylist = soup.find_all(name="td", attrs={"class":"t_f"})
     # replylist = soup.find_all(name='div', attrs={"class":"pcb"})
@@ -93,7 +93,7 @@ if __name__ == '__main__':
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
     for i in thdata.keys():
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 2592000) or (int(threadid) > old_number):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 2419200) or (int(threadid) > old_number):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
