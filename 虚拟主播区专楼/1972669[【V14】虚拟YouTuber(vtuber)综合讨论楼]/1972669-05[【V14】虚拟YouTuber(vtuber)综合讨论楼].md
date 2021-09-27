@@ -16193,3 +16193,14 @@ SYL：
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  ヒトニナル  
+##### 7166#       发表于 2021-9-27 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，这届cr怎么还有纯酱的
+
+
