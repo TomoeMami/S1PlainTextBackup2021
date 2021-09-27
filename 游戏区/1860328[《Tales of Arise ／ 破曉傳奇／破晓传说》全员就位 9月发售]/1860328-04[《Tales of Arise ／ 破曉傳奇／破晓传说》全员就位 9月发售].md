@@ -16449,3 +16449,61 @@ dq11占剧情设计便宜，如果把打败魔王后的内容当都当后日谈�
 dlc我觉得关系不大 后期就是做崩了。。有没有dlc反正都是复读  学会复读越个10几20级问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5717#       发表于 2021-9-27 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52907066&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-27 10:38</a>
+看了下日亚的评分已经跌到4.0了，自发售以来就一直在跌。看了下差评基本就是国内也经常提的，数值设计和dlc ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是东亚玩家的问题
+黄皮懂个p的jpg
+
+
+*****
+
+####  ff2077  
+##### 5718#       发表于 2021-9-27 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52907066&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-27 10:38</a>
+
+看了下日亚的评分已经跌到4.0了，自发售以来就一直在跌。看了下差评基本就是国内也经常提的，数值设计和dlc ...</blockquote>
+隔壁nga早就有说辞了“看NGA游综区, 我以为破晓除了画面其他地方就是一无是处的辣鸡游戏。
+
+但当我看了steam上7600+评价中91%的好评，我才发现，啊原来特别的是游综区的这部分人。”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 5719#       发表于 2021-9-27 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910417&amp;ptid=1860328" target="_blank">ff2077 发表于 2021-9-27 14:41</a>
+隔壁nga早就有说辞了“看NGA游综区, 我以为破晓除了画面其他地方就是一无是处的辣鸡游戏。
+
+但当我看了ste ...</blockquote>
+steam这个评价系统只有好评差评还是太极端了
+改成打分制才能客观一点
+
+
+*****
+
+####  BRRM  
+##### 5720#       发表于 2021-9-27 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52909756&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-27 13:47</a>
+
+你这是哪个次元的闪轨啊? 成熟度是指闪2内战全靠学生玩过家家吗？</blockquote>
+成熟指的是每个性格的角色都能拿一个合适的模板去套，让人一看就看得出这是个什么样的角色，虽然看上去很无聊模式化，但这也是成熟的体现。
+
+破晓随便举两个例子，基尔法的剧情也不少了，除了硬塞一些打大道理，几乎看不出这是个什么性格的人，为什么主角和洛那么怀念他，为什么他在见到洛后要留下来，留下来被抓有什么好处，好像也没见得能和他儿子叙叙旧，这里有什么逻辑吗？例如风将，除了看得出她对操纵人心有一套方法以外，好像也没有其他讨厌的地方了，她跟林薇尔的家仇读者其实并不太知道是怎么回事，如果换一个人来代替她（例如火将、光将）对魔法师进行屠杀行不行？她跟主角这么有渊源，结果只是被当作一个普通的恶人干掉了。
+
+太粗了，这文本。
+
+
