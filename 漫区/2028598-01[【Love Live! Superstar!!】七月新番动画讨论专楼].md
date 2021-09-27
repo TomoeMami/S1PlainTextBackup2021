@@ -3116,3 +3116,57 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 花田去写龙傲天凤傲天穿越异世界肯定比做什么垃圾偶像动画来的有天赋，毕竟人家真的可以用魔法。
 
 
+
+
+*****
+
+####  寒风夜  
+##### 237#       发表于 2021-9-27 10:31
+
+
+嘛，除了太过立德 还行
+
+
+*****
+
+####  亚瑟邓特  
+##### 238#       发表于 2021-9-27 10:34
+
+
+有没有一种钦定钦点的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Norkey1  
+##### 239#       发表于 2021-9-27 10:35
+
+
+算上路费啥的趴趴价格11区其实也没便宜，除非能在娃娃机里500日元夹出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+星团国内普通大趴预定95元左右，一单趴240元左右，小趴挂件75元一只。供参考
+
+
+*****
+
+####  lj205  
+##### 240#       发表于 2021-9-27 10:37
+
+
+这话还没看，不过看大家讨论应该可以放心观看了。就是还以为下一话开始进入可可剧情，看预告又好像没有，个人回也不太可能拖到第二季，毕竟后面就是稳定活动的剧情了，不然之前剧透可能是姐姐的那个声优也想不到啥出场的理由。看剧透里，评价可可只有热情，拜托之前的技术力都是假的咩？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+那这么算就是最后两集变成可可回？然后第12集最后正式团结完毕，跟一单画面相呼应，开始“我们的LOVE LIVE！”
+
+
+
+
+*****
+
+####  cybernetics31  
+##### 241#       发表于 2021-9-27 10:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田老贼怕不是把前三集也算可可回了
+
+
