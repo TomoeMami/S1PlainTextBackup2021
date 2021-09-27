@@ -910,3 +910,26 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">留给七夜的时间不多了！
 
 
+
+
+*****
+
+####  zakki  
+##### 75#       发表于 2021-9-27 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905550&amp;ptid=2026924" target="_blank">MMIno 发表于 2021-9-27 08:21</a>
+
+暴走公主没以前那个味道了，一点都没暴走范</blockquote>
+因为不是一个设定，不是暴走，病娇化而已
+
+
+*****
+
+####  zakki  
+##### 76#       发表于 2021-9-27 10:54
+
+
+不知道等里线出来后，剩下那些新人物是以dlc加进去，还是再出个新版本的游戏
+
+

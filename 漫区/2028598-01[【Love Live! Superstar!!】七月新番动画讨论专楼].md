@@ -3170,3 +3170,41 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田老贼怕不是把前三集也算可可回了
 
 
+
+
+*****
+
+####  lj205  
+##### 242#       发表于 2021-9-27 10:56
+
+
+ 本帖最后由 lj205 于 2021-9-27 10:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52907012&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-27 10:35</a>
+
+算上路费啥的趴趴价格11区其实也没便宜，除非能在娃娃机里500日元夹出来
+
+星团国内普通大趴预定95元 ...</blockquote>
+肯定是得疫情后亲自人肉带回，想起来我朋友那已经放着我大概两年的FC和LIVE GOODS、然后CD、BD还有各种啥的，到时一个28寸旅行箱可能都够呛<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 243#       发表于 2021-9-27 11:03
+
+
+【💫#毎日Liella💫】
+
+【毎週月曜更新】ちょこっとリエラ～真夏の事件簿編～
+
+第10話「かのんの部屋でひと休み。あれ、ベッドと壁の間に……？」
+
+イラスト／moffmachi　構成／笹波ことみ
+
+
+「ちょこっとリエラ」は毎週月曜に #毎日Liella で更新します🌟
+
+来週もお楽しみに💞
+<img src="https://p.sda1.dev/2/ba04eb0cbcaaeaf9b3ce3b250854075a/20210927_110142.jpg" referrerpolicy="no-referrer">
+
+
