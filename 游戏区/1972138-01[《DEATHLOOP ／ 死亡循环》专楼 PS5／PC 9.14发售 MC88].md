@@ -7168,3 +7168,16 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没得到那个石板，我现在才（游戏里的）第三天，刚拿到瞬移
 
 
+
+
+*****
+
+####  Freakyyu  
+##### 602#       发表于 2021-9-27 09:19
+
+
+玩完了，199还算不亏。但它要是能10分，羞辱2就该12分<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
