@@ -3297,3 +3297,33 @@ Marumaru不光是初设里的基本设定，而且动画前面反复提了很多
 等一个lovelive香音生病其他四人退赛
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 252#       发表于 2021-9-27 12:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52908748&amp;ptid=2028598" target="_blank">凡人 发表于 2021-9-27 12:30</a>
+
+等一个lovelive香音生病其他四人退赛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四保一是吧
+
+等卡农三件套，这团还能打
+
+
+*****
+
+####  寒风夜  
+##### 253#       发表于 2021-9-27 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52909004&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-9-27 12:49</a>
+
+四保一是吧
+
+等卡农三件套，这团还能打</blockquote>
+香音=乌兹是吧
+
+

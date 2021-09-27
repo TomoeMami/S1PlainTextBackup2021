@@ -1292,3 +1292,14 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cowgp01  
+##### 101#       发表于 2021-9-27 13:06
+
+
+试玩版可以看卡牌背面了么，还以为要正式版呢
+
+

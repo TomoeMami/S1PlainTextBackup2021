@@ -14255,3 +14255,54 @@ EDF！EDF！！！！
 <img src="https://p.sda1.dev/2/1740f5f0f99b07b1df5093f95704c0bf/IMG_CMP_237033514.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Fami水  
+##### 13212#       发表于 2021-9-26 18:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全对，但又没全猜对
+
+
+*****
+
+####  stedckk  
+##### 13213#       发表于 2021-9-26 19:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么绫总才播了半小时
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Fami水| + 1|应该是ytb上那个显示卡了|
+
+
+查看全部评分
+
+
+*****
+
+####  nian1538  
+##### 13214#       发表于 2021-9-26 23:09
+
+
+ 本帖最后由 nian1538 于 2021-9-26 23:36 编辑 
+
+这次去团长那里也是Connect啊
+
+看了一眼频道上次唱歌都40天前了
+
+
+想了想近期动向，感觉还真挺有可能在录OKFAMS的东西
+
+
