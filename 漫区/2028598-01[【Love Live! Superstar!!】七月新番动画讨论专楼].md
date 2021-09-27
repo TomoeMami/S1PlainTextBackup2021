@@ -3236,3 +3236,53 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 Marumaru不光是初设里的基本设定，而且动画前面反复提了很多次，这个锅花田先辈不背
 
 
+
+
+*****
+
+####  qratosone  
+##### 246#       发表于 2021-9-27 12:12
+
+
+重新看了一下动画里的直播部分，一开始民警刚出场的时候就有弹幕提到了“具足虫女孩”，大概率是民警童星时期的老粉。然后后面开始整活之后有一个弹幕刷“具足虫是什么”，剩下的都是“具足虫可爱”，“单推具足虫”，估计是童星时期的民警其实比她自己想的要更火一些，一次整活把老粉都炸出来了
+
+
+*****
+
+####  lanslort  
+##### 247#       发表于 2021-9-27 12:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 懂了，香音是二刺猿平手友梨奈
+
+
+*****
+
+####  王留美  
+##### 248#       发表于 2021-9-27 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52907050&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-27 10:37</a>
+这话还没看，不过看大家讨论应该可以放心观看了。就是还以为下一话开始进入可可剧情，看预告又好像没有，个 ...</blockquote>
+学园祭需要自己搭舞台，爱与演唱会那么大活动还要你自己搭舞台么
+
+
+*****
+
+####  ayara  
+##### 249#       发表于 2021-9-27 12:19
+
+
+香音等于把步侑两个人角色合体了，才会导致戏份失衡严重
+
+
+*****
+
+####  saglork  
+##### 250#       发表于 2021-9-27 12:20
+
+
+可可就是努力家的设定啊，就偶像本身业务素质，香音和千是特长破格，堇和恋恋是唱跳能力都很高，可可不仅有体力debuff，特长还都在场外，可不就只剩下努力和热情了吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+本质来说前两代leader也是这个属性<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
