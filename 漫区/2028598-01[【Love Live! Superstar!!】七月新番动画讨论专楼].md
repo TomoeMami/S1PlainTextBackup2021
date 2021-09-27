@@ -3701,3 +3701,94 @@ Liella都是我在C.jpg
 日语啊，就是非常奇葩的音调吧，感觉算口癖了。liyuu在b站唠嗑也偶然会发出些奇怪的音调,我觉得挺萌的。
 
 
+
+
+*****
+
+####  lj205  
+##### 282#       发表于 2021-9-27 22:28
+
+
+<blockquote>cat1230 发表于 2021-9-27 22:25
+日语啊，就是非常奇葩的音调吧，感觉算口癖了。liyuu在b站唠嗑也偶然会发出些奇怪的音调,我觉得挺萌的。 ...</blockquote>
+鲤鱼叫我知道，但是前一句还是正常日语后面几个感觉像是外文……
+
+
+说起来木棉花这翻译是不是有问题？怎么每次把可可吐槽瑾的话翻的那么恶毒 ​​​？这集又给翻成臭三八。
+
+
+*****
+
+####  名津流  
+##### 283#       发表于 2021-9-27 22:30
+
+
+ 本帖最后由 名津流 于 2021-9-27 22:34 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/223027xmzaa715571gqvfv.png" referrerpolicy="no-referrer">
+
+
+<strong>snap_screen_20210927222842.png</strong> (17.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/223424ncsspl6zvv99jvjv.png" referrerpolicy="no-referrer">
+
+
+<strong>932ff1e3849dc3382924f10a0176849952d88bf0.png</strong> (256.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/223424c9z9ly19ahrwtp9c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>53767a109fa6a62f22efedbf97037aa8703f3e8f.jpg</strong> (55.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:34 上传
+
+
+小偶像这种生物果然就是每天发点可爱的图片让人沉重了一天的心情稍微变得明快一点的吧
+
+
+*****
+
+####  cat1230  
+##### 284#       发表于 2021-9-27 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52916097&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-27 22:28</a>
+
+鲤鱼叫我知道，但是前一句还是正常日语后面几个感觉像是外文……
+
+
+说起来木棉花这翻译是不是有问题？怎么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没看过木棉花的，都是下载字幕组的，之前在星像馆看，万恶的叔叔买了又怂了，还把馆给律师函了。
+
+
+*****
+
+####  lj205  
+##### 285#       发表于 2021-9-27 22:35
+
+
+把打铁匠和岬教出师了，光影结合。
+
+
+*****
+
+####  优妮可  
+##### 286#       发表于 2021-9-27 22:45
+
+
+pay酱还是那种光线拉满的
+
+
