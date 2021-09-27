@@ -3000,3 +3000,28 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 小千对圆的东西迷之痴迷是基本设定了www，你看ed还在对着圆形甜品露出惊人表情
 
 
+
+
+*****
+
+####  qds  
+##### 227#       发表于 2021-9-27 08:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905627&amp;ptid=2028598" target="_blank">JustW 发表于 2021-9-27 08:32</a>
+小千对圆的东西迷之痴迷是基本设定了www，你看ed还在对着圆形甜品露出惊人表情 ...</blockquote>
+光看可可和卡农了，注意力没怎么放在小千上，关键设定都没注意www
+
+
+*****
+
+####  NODY  
+##### 228#       发表于 2021-9-27 09:03
+
+
+看到5ch猜这集明示活都给香音干是要后面让香音过劳病倒，刚好无印也有果皇雨天晕倒，感觉好有道理<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+10集暗示可可问题+新歌然后香音病倒，11集可可自爆回国香音自闭解散民警巴掌，12集千酱说服香音去机场追可可然后live，民警要对标妮可的话还可以加个解散期间只有她坚持偶像活动刚好收回民警伏笔，样板戏齐活了
+
+

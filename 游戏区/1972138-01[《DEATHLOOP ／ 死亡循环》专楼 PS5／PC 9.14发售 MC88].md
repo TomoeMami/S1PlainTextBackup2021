@@ -7154,3 +7154,17 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 电话是那种圆形黑掉了能吸引敌人的装置，这作支线突出一个莫名奇妙，间谍窝藏得这么深进去结果给你一些主线早八百年就摸出来的小路线索，死宅那些游戏更是突出一个语焉不详
 
 
+
+
+*****
+
+####  moimoi  
+##### 601#       发表于 2021-9-27 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52903578&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-9-26 22:37</a>
+
+遇事不决上链接啊，拿了连接一刀过去多连几个直接倒一大排啊。女巫给的连接贼好用，等于是加强版骨牌了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没得到那个石板，我现在才（游戏里的）第三天，刚拿到瞬移
+
+
