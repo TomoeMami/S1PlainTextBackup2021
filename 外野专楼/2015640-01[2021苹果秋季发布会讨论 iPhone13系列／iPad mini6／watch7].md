@@ -14101,3 +14101,15 @@ mini6果冻的很不爽，还好没贴膜，问题现在换货有用吗</blockqu
 +1 我老婆的mini比我晚买 结果一起到的 也是奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  喵咪咪格勒  
+##### 1237#       发表于 2021-9-27 11:38
+
+
+每天在applestore上看下货源 都是附近十二家零售店无货
+我计划十一去实体店 感觉够呛买得到啊
+
+
