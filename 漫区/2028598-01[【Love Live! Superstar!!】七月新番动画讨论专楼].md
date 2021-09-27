@@ -3286,3 +3286,14 @@ Marumaru不光是初设里的基本设定，而且动画前面反复提了很多
 本质来说前两代leader也是这个属性<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  凡人  
+##### 251#       发表于 2021-9-27 12:30
+
+
+等一个lovelive香音生病其他四人退赛
+
+
