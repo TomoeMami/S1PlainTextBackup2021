@@ -3560,3 +3560,37 @@ Liella都是我在C.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">nhk的特供曲会在live上唱吗？不太懂，会被nhk铁拳吗
 
 
+
+
+*****
+
+####  kata魂  
+##### 273#       发表于 2021-9-27 19:06
+
+
+ 本帖最后由 kata魂 于 2021-9-27 19:08 编辑 
+
+快进到被踢，来了新人当主c，人称小香音
+
+算了，直接江湖人称小gala的民堇当c就行了
+
+
+*****
+
+####  脚底心，洗则白  
+##### 274#       发表于 2021-9-27 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910992&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-9-27 15:27</a>
+
+还有我们五人为什么凑一起，为什么事儿都是我在干之类
+
+从动画制作周期来看应该不是因为看了观众反馈才弄出 ...</blockquote>
+我的意思是也许花田很早就知道四话开始他的剧本很没意思。高高挂起轻轻放下，为剧情需要修改人设，冲突全围着主角转等等...【说白了，就是花田三板斧】因为前三话做的太好了，就连全片主旨也快用完了，后面剧情都是为了让新人入团而逆推、制造矛盾，为写而写。现在在这和观众对话：终于齐活了！写的很屎很抱歉，后面看我们整活。
+
+备的是好活还是烂活，那就不知道了。
+
+
+最好是烂活，这样我就有了比寒蝉更乐的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
