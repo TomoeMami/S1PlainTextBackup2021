@@ -16607,3 +16607,22 @@ steam这个评价系统只有好评差评还是太极端了
 刻板印象都能被定义成成熟，闪轨大转型赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 5728#       发表于 2021-9-27 18:11
+
+
+JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游戏性
+
+樱花大战123的数值系统是啥水平，诸位还有印象没<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+对我来说，演出画面好，代入感强，逻辑硬伤低于感情起伏，我觉得就及格了。我要求很低的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+但即使如此，第四章还是看得我忍不住出去上厕所了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

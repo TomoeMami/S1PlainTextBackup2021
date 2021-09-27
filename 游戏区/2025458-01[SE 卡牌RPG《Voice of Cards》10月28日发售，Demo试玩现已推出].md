@@ -1316,3 +1316,31 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 就是没中文还是有点难顶
 
 
+
+
+*****
+
+####  redsouris  
+##### 103#       发表于 2021-9-27 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52909228&amp;ptid=2025458" target="_blank">cowgp01 发表于 2021-9-27 13:06</a>
+试玩版可以看卡牌背面了么，还以为要正式版呢</blockquote>
+人物卡看不了，怪物卡可以
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  redsouris  
+##### 104#       发表于 2021-9-27 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52909228&amp;ptid=2025458" target="_blank">cowgp01 发表于 2021-9-27 13:06</a>
+试玩版可以看卡牌背面了么，还以为要正式版呢</blockquote>
+人物卡看不了，怪物卡可以
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
