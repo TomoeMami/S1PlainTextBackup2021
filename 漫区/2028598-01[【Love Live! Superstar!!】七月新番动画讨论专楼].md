@@ -3036,3 +3036,44 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 现在要买可可的周边是不是都得加价买？想买趴趴和立牌
 
 
+
+
+*****
+
+####  笋狐  
+##### 230#       发表于 2021-9-27 09:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">似乎观众里部分人已经有从一个极端走向另一个极端的趋势了，现在他们看下去似乎是为了每话带着放大镜找待遇问题，这么弄下去迟早被其他党派排挤，这把人逼得，花田你坏事做尽
+
+
+*****
+
+####  Karin11974  
+##### 231#       发表于 2021-9-27 09:37
+
+
+这次除了“大家一起实现的故事”，还加了个“实现自我的故事”这口号，感觉目前为止也没怎么表现，估计就是最后要等卡农觉醒自我动力成为真正的立德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  长日留痕  
+##### 232#       发表于 2021-9-27 09:44
+
+
+这集日常观感还行，主要是前面两集太拉胯了衬托的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 233#       发表于 2021-9-27 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905997&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-27 09:16</a>
+现在要买可可的周边是不是都得加价买？想买趴趴和立牌</blockquote>
+去某宝看了一眼，之前预定的时候可可价格还是正常的，顶多是下面人在炒，现在预定价居然也这么高了…
+我个人是不建议买的，要是真喜欢就加价吧…
+
+
