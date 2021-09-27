@@ -3033,3 +3033,19 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 两年前的罗还是邪道医生，现在变草帽团奶妈辅助保姆，大男主剧就是这么霸道。。。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  athena_1982  
+##### 55716#       发表于 2021-9-27 13:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905625&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-9-27 08:32</a>
+
+我感觉基德正气的很，他真的杀了很多人吗？</blockquote>
+基德杀人在书里只有两处提及，一个是海军的报道，这个其实很不好说。然后就是基德自己亲口说过的话，“所有嘲笑我梦想的人，我把他们都杀了”。
+
+所以真的假的，自己判别呗
+
+
