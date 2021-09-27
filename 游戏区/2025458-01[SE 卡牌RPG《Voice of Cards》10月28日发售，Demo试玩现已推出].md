@@ -1279,3 +1279,16 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 挂机一段时间，能听到GM打哈欠，再挂机一段时间，GM说有事叫醒我，然后开始打呼噜
 
 
+
+
+*****
+
+####  redsouris  
+##### 100#       发表于 2021-9-27 09:55
+
+
+同一种怪打够数量解锁卡片背面，都是阴间故事设定<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

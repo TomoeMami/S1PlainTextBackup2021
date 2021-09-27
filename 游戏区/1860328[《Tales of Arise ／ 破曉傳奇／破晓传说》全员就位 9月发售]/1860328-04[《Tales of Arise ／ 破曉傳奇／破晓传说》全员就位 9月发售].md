@@ -16368,3 +16368,18 @@ dq11占剧情设计便宜，如果把打败魔王后的内容当都当后日谈�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  法拉  
+##### 5711#       发表于 2021-9-27 09:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905159&amp;ptid=1860328" target="_blank">BRRM 发表于 2021-9-27 06:32</a>
+被评价最低的闪轨的剧情虽然大架构不行，但文本的细腻、成熟度秒杀破晓几百条街 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两部能讲完的灌五部水就叫细腻成熟是吧？破晓这剧本扔轨迹能做几部？至少三部吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

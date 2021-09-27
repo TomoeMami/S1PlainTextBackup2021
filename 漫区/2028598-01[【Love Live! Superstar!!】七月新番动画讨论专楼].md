@@ -3077,3 +3077,19 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 我个人是不建议买的，要是真喜欢就加价吧…
 
 
+
+
+*****
+
+####  lj205  
+##### 234#       发表于 2021-9-27 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52906344&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-27 09:47</a>
+
+去某宝看了一眼，之前预定的时候可可价格还是正常的，顶多是下面人在炒，现在预定价居然也这么高了…
+
+我 ...</blockquote>
+谢谢。看来还是得麻烦11区朋友帮忙了……
+
+
