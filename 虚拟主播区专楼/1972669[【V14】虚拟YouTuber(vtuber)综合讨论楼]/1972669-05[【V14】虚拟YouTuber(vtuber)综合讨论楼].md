@@ -16502,3 +16502,16 @@ and valo真是傻逼游戏，直播效果太差了
 我说スマーフ和ブースティング怎么挂在趋势挂了那么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 7187#       发表于 2021-9-27 23:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑流量也是流量，属于崛起的新一步了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
