@@ -3208,3 +3208,31 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 <img src="https://p.sda1.dev/2/ba04eb0cbcaaeaf9b3ce3b250854075a/20210927_110142.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 244#       发表于 2021-9-27 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905381&amp;ptid=2028598" target="_blank">saglork 发表于 2021-9-27 07:49</a>
+
+我觉得明显是现在还揪着具足虫复读“霸凌”“阴影”的堇推看上去更难受，这摆明了具足虫就是做成角色特色 ...</blockquote>
+前几集锅在花田，但是到现在还没完没了地复读“霸凌”的魔怔人现在已经更加令人生厌了，建议后几集加带力度大力让魔怔人破防
+
+
+*****
+
+####  qratosone  
+##### 245#       发表于 2021-9-27 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905726&amp;ptid=2028598" target="_blank">qds 发表于 2021-9-27 08:47</a>
+
+光看可可和卡农了，注意力没怎么放在小千上，关键设定都没注意www</blockquote>
+你这看番看得太粗枝大叶了233333
+
+Marumaru不光是初设里的基本设定，而且动画前面反复提了很多次，这个锅花田先辈不背
+
+
