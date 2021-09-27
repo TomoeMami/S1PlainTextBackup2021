@@ -16507,3 +16507,62 @@ steam这个评价系统只有好评差评还是太极端了
 太粗了，这文本。
 
 
+
+
+*****
+
+####  先生空气  
+##### 5721#       发表于 2021-9-27 14:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们为什么要垃圾比较...
+
+
+*****
+
+####  alucardcz  
+##### 5722#       发表于 2021-9-27 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910465&amp;ptid=1860328" target="_blank">BRRM 发表于 2021-9-27 14:45</a>
+
+成熟指的是每个性格的角色都能拿一个合适的模板去套，让人一看就看得出这是个什么样的角色，虽然看上去很 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重新定义成熟 笑爆了
+
+
+*****
+
+####  BRRM  
+##### 5723#       发表于 2021-9-27 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910498&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-27 14:48</a>
+
+重新定义成熟 笑爆了</blockquote>
+这是最低要求的成熟，就像好莱坞、日本动画那些快餐片一样，连这个都做不到只能叫烂。
+
+
+*****
+
+####  alucardcz  
+##### 5724#       发表于 2021-9-27 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910511&amp;ptid=1860328" target="_blank">BRRM 发表于 2021-9-27 14:49</a>
+
+这是最低要求的成熟，就像好莱坞、日本动画那些快餐片一样，连这个都做不到只能叫烂。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不是很懂你说的最低要求 我只知道2个都很烂 硬要说哪个更烂 那肯定是闪2了
+
+
+*****
+
+####  BRRM  
+##### 5725#       发表于 2021-9-27 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910569&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-27 14:52</a>
+
+我不是很懂你说的最低要求 我只知道2个都很烂 硬要说哪个更烂 那肯定是闪2了 ...</blockquote>
+你确实不懂，破晓的细节比闪2烂多了。
+
+

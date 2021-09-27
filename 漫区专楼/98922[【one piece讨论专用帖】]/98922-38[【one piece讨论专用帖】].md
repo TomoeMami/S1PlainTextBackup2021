@@ -3071,3 +3071,16 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗名义上是杀人医生 结果上算战国直属海军外包  他干的活怕不是海军想干又不好动手的事 没有辜负罗西南提
 
 
+
+
+*****
+
+####  Supermangunv3  
+##### 55719#       发表于 2021-9-27 14:56
+
+
+<blockquote>裤袜大落 发表于 2021-9-27 14:34
+罗名义上是杀人医生 结果上算战国直属海军外包  他干的活怕不是海军想干又不好动手的事 没有辜负罗 ...</blockquote>
+罗和罗宾的对应也挺有意思。
+
+

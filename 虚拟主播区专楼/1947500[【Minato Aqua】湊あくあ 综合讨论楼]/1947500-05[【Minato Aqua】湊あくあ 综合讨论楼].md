@@ -12120,3 +12120,19 @@ https://mora.jp/package/43000033/PA00091622-0-2/?fmid=newRelease_all_0001
 这次还好，结果是家里有点事
 
 
+
+
+*****
+
+####  499  
+##### 6974#       发表于 2021-9-27 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910480&amp;ptid=1947500" target="_blank">nian1538 发表于 2021-9-27 14:46</a>
+
+拉米昨天都播过了，最后没抽到自己签了一张
+
+这次还好，结果是家里有点事 ...</blockquote>
+拉米开的那个是预组，发售早一周
+
+

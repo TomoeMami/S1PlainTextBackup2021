@@ -3367,3 +3367,14 @@ Marumaru不光是初设里的基本设定，而且动画前面反复提了很多
 这集比前面好多了，特别是网络直播有种脱离LOVELIVE的现实感
 
 
+
+
+*****
+
+####  kbtit  
+##### 258#       发表于 2021-9-27 14:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内ll最近新粉很多啊，微博逛了一圈还真有好多不识缪水的
+
+
