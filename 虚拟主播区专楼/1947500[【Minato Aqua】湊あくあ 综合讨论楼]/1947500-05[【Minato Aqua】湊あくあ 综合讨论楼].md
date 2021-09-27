@@ -12147,3 +12147,34 @@ https://mora.jp/package/43000033/PA00091622-0-2/?fmid=newRelease_all_0001
 Mane酱买的看推特照片也全是トライアルデッキ啊
 
 
+
+
+*****
+
+####  bluebaby  
+##### 6976#       发表于 2021-9-27 15:27
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/152414gth6hvttuq9666f4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C00DFE19-3FD0-4042-8A3F-EF2C349B8C31.jpeg</strong> (89.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 15:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/152415ffu0qff78q78sbsh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0C236CDC-BDB7-48E0-84D6-354CB7CB57EC.jpeg</strong> (189.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 15:24 上传
+
+
+直播封面毫无疑问是搞错了，马内甲到底怎么沟通的我觉得很难说。夸和雪花一开始的抽卡推都被官方转发了，我倾向于马内甲给错封面素材（这玩意不大会自己找）告知了错误的预组内容。
+
+

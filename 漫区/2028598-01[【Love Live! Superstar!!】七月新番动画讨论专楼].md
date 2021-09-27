@@ -3435,3 +3435,20 @@ Marumaru不光是初设里的基本设定，而且动画前面反复提了很多
 动画播到现在，以唐可可为代表，人设都经历过一定的修正。香音作为主角，参与度实在太高，四人都对香音表现出依赖。对我来说，这两点确实是动画从四话开始观感急降的原因。
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 264#       发表于 2021-9-27 15:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910901&amp;ptid=2028598" target="_blank">脚底心，洗则白 发表于 2021-9-27 15:19</a>
+
+不对劲，不对劲儿。几段演出和对白，是不是在跟我们观众对暗号？比方说那句：唐可可人设是不是换了？还有加 ...</blockquote>
+还有我们五人为什么凑一起，为什么事儿都是我在干之类
+
+从动画制作周期来看应该不是因为看了观众反馈才弄出这些桥段的，像是有备而来
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">备的是好活还是烂活就不好说了
+
+
