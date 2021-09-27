@@ -933,3 +933,17 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 不知道等里线出来后，剩下那些新人物是以dlc加进去，还是再出个新版本的游戏
 
 
+
+
+*****
+
+####  xvi黑翼公  
+##### 77#       发表于 2021-9-27 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52907328&amp;ptid=2026924" target="_blank">zakki 发表于 2021-9-27 10:54</a>
+
+不知道等里线出来后，剩下那些新人物是以dlc加进去，还是再出个新版本的游戏 ...</blockquote>
+这就要取决于什么时候出了……如果拖个两三年甚至更长那必然是再发一作新MB啊
+
+

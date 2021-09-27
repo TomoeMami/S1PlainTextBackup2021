@@ -3019,3 +3019,17 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 两年前基德的人设比较邪恶，两年后只感觉是个傻大个来自: iPhone客户端
 
 
+
+
+*****
+
+####  tyauto  
+##### 55715#       发表于 2021-9-27 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905663&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-9-27 08:37</a>
+
+两年前基德的人设比较邪恶，两年后只感觉是个傻大个</blockquote>
+两年前的罗还是邪道医生，现在变草帽团奶妈辅助保姆，大男主剧就是这么霸道。。。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
