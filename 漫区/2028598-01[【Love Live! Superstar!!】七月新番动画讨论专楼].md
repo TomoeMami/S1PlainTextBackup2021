@@ -3452,3 +3452,16 @@ Marumaru不光是初设里的基本设定，而且动画前面反复提了很多
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">备的是好活还是烂活就不好说了
 
 
+
+
+*****
+
+####  saglork  
+##### 265#       发表于 2021-9-27 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52910663&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-9-27 14:59</a>
+国内ll最近新粉很多啊，微博逛了一圈还真有好多不识缪水的</blockquote>
+剧情看到破防的基本都是新晋拉拉人，从缪水一路走过来的对花田的三板斧套路早就免疫了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
