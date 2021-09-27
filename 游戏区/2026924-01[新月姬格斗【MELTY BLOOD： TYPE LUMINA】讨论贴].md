@@ -883,3 +883,19 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 暴走ARC北条沙都子说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  MMIno  
+##### 73#       发表于 2021-9-27 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52867827&amp;ptid=2026924" target="_blank">RiesbyfeAtlasia 发表于 2021-9-24 11:28</a>
+
+居然是长裙暴走公主......
+
+很意外只能说</blockquote>
+暴走公主没以前那个味道了，一点都没暴走范
+
+
