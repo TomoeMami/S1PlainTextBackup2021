@@ -2923,3 +2923,31 @@ liella这组合你说要给它总结一个统一的印象确实也总结不出�
 不过关于星团的主旨，我记得企划最开始的时候提过一句“成为全新的自己”，动画里面似乎没怎么强调这个？
 
 
+
+
+*****
+
+####  saglork  
+##### 222#       发表于 2021-9-27 07:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52904950&amp;ptid=2028598" target="_blank">永恒的王牌 发表于 2021-9-27 02:54</a>
+我一个非堇推看着堇推哀嚎都要感觉难受了，贴标签就贴标签吧可咋就整天抓着演艺圈和具足虫不放呢 ...</blockquote>
+我觉得明显是现在还揪着具足虫复读“霸凌”“阴影”的堇推看上去更难受，这摆明了具足虫就是做成角色特色整活了，角色自己和声优本人都玩的飞起，非要自己脑补加戏坚持受迫害，何必呢，真受不了就弃了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 223#       发表于 2021-9-27 08:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905112&amp;ptid=2028598" target="_blank">名津流 发表于 2021-9-27 05:39</a>
+
+@kata魂 
+
+
+但这次的ED版本不是只写着可可吗，就算是双人曲，还剩的集数也不够各种组合轮流唱一遍了吧 ...</blockquote>
+一直都是只写一个人的名字的，相比双人曲应该说是风格相似二人一组的。
+
+
