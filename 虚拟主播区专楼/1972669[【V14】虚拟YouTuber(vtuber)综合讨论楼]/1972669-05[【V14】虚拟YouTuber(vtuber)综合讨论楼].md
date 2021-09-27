@@ -16226,3 +16226,23 @@ SYL：
 美兔桑这唱的是个_____<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7169#       发表于 2021-9-27 20:11
+
+
+贵在真实
+
+
+*****
+
+####  FCCHua  
+##### 7170#       发表于 2021-9-27 20:25
+
+
+两场居然都在b站同步直播
+
+
