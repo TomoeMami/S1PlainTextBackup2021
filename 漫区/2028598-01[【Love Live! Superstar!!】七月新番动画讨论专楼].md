@@ -3500,3 +3500,39 @@ Marumaru不光是初设里的基本设定，而且动画前面反复提了很多
 这把香音一次都不能死.jpg
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 268#       发表于 2021-9-27 17:52
+
+
+https://share.api.weibo.cn/share/252843196.html?weibo_id=4686055351257900
+bd1特典曲
+
+
+*****
+
+####  名津流  
+##### 269#       发表于 2021-9-27 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52912764&amp;ptid=2028598" target="_blank">武男 发表于 2021-9-27 17:38</a>
+
+这把香音一次都不能死.jpg</blockquote>
+等第一季最后一集，裂啦初次LL参赛遭遇挫败，当SP上舞台碾压对手平推过去的那一刻，一个画外音响起：
+
+
+香音倒了(哭腔).jpg
+
+
+*****
+
+####  lj205  
+##### 270#       发表于 2021-9-27 18:08
+
+
+Ringing 到时要扯嗓子唱咯
+
+
