@@ -3084,3 +3084,17 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 罗和罗宾的对应也挺有意思。
 
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 55720#       发表于 2021-9-27 16:22
+
+
+罗和基德明显以后是银牌选手定位，微存共享金牌可能
+我劝老一辈不要不识抬举<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
