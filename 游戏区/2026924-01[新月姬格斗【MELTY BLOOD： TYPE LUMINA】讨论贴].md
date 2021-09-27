@@ -947,3 +947,19 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 这就要取决于什么时候出了……如果拖个两三年甚至更长那必然是再发一作新MB啊
 
 
+
+
+*****
+
+####  华理傻宅  
+##### 78#       发表于 2021-9-27 21:18
+
+
+感觉新增的诺艾尔和伏拉夫就特别有夜下降生味儿，并不是单纯指人设，而是这两角色看演示都不怎么贴身怼一串小拳的，都是用武器的距离优势憨砍
+
+楼主这段看的笑死我，太懂了
+贴身怼一串小拳才是旧mb的醍醐味啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
