@@ -1387,3 +1387,18 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 兽人小子每晚会去收集魔物的尸体。为了将这些被武器杀死的魔物，变成新的武器材料。
 
 
+
+
+*****
+
+####  redsouris  
+##### 108#       发表于 2021-9-27 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52914362&amp;ptid=2025458" target="_blank">ziyer 发表于 2021-9-27 20:02</a>
+所以背面到底写的啥，怎么没一个人说说看的这种大概率会是雷区的东西没人预警下吗 ...</blockquote>
+也就是比较恶趣味，不到出警的程度
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

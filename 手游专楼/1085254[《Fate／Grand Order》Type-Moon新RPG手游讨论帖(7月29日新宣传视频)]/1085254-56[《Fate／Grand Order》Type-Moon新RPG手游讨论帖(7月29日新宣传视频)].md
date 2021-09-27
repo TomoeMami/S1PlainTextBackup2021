@@ -16593,3 +16593,17 @@ jcb就行啊
 周常3个石头单抽竟然彩圈出了迦摩，两个五星全了，四星一个没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83885#       发表于 2021-9-27 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52912646&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-27 17:29</a>
+
+周常3个石头单抽竟然彩圈出了迦摩，两个五星全了，四星一个没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+

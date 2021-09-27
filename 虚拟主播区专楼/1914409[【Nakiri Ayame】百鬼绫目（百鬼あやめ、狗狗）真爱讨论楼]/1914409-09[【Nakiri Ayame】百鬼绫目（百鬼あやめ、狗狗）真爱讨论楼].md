@@ -14317,3 +14317,36 @@ EDF！EDF！！！！
 啥歌值得专门发推说一句啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 13216#       发表于 2021-9-27 21:30
+
+
+要播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+😈放送告知😈
+9月27日　23:30～START✨✨
+久しぶりの歌枠！！下手っぴだけど頑張る😵‍💫😵‍💫
+修行するぞおおおおおおおおおお！😤😤
+
+
+*****
+
+####  绿色子龙  
+##### 13217#       发表于 2021-9-27 21:31
+
+
+一个小时后，大概是今年最后几次直播了
+
+
+*****
+
+####  Fami水  
+##### 13218#       发表于 2021-9-27 21:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说的那么吓人 会吓到新人的
+
+
