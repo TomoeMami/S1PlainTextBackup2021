@@ -3934,3 +3934,23 @@ BD1的香哥哥solo真不错啊，这是给可可and小千的情歌吧
 第四个则是拼写错误，词性没有问题，但是Wörterbuch是ch，喝的音，德语里没有sh，只有sch。
 
 
+
+
+*****
+
+####  lj205  
+##### 297#       发表于 2021-9-28 07:40
+
+
+这里鲤鱼是不是还特意往后站了一个身位
+
+<img src="https://img.saraba1st.com/forum/202109/28/073756qug6nbn54zu5oocc.png" referrerpolicy="no-referrer">
+
+
+<strong>A52B7A23-365C-4F72-8EC8-FF3A96E9B2FE.png</strong> (19.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 07:37 上传
+
+
