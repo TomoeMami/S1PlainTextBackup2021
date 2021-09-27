@@ -1366,3 +1366,24 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 所以背面到底写的啥，怎么没一个人说说看的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这种大概率会是雷区的东西没人预警下吗
 
 
+
+
+*****
+
+####  人如其名  
+##### 107#       发表于 2021-9-27 20:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52914362&amp;ptid=2025458" target="_blank">ziyer 发表于 2021-9-27 20:02</a>
+
+所以背面到底写的啥，怎么没一个人说说看的这种大概率会是雷区的东西没人预警下吗 ...</blockquote>
+我就解锁了三个，其实也没啥。
+
+渣翻错翻预警：
+毛球年老时会脱毛，最后一根毛没了的时候，体液会一下子变成眼泪流出来，剩下一个木乃伊化的躯壳
+
+长大得到了智慧的哥布林，会潜入人们的生活中。广场上那个在和小孩在玩耍的老人，说不定就是哥布林假扮的？
+
+兽人小子每晚会去收集魔物的尸体。为了将这些被武器杀死的魔物，变成新的武器材料。
+
+

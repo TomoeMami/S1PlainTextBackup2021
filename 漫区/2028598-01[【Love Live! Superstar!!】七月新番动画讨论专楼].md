@@ -3605,3 +3605,61 @@ Liella都是我在C.jpg
 小百合能不能在live上自弹自唱？
 
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 276#       发表于 2021-9-27 20:33
+
+
+在她们输入团名报名的时候脑补出了一个“此昵称已存在，请换一个昵称”，谁来p下图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 277#       发表于 2021-9-27 20:41
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/204120tjwk49w4chpokjzc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>$SH%8KS~KM42Q_PLQAH3X]K.jpg</strong> (31.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 20:41 上传
+
+
+微博上不是早就有p图了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  名津流  
+##### 278#       发表于 2021-9-27 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52914713&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-9-27 20:33</a>
+
+在她们输入团名报名的时候脑补出了一个“此昵称已存在，请换一个昵称”，谁来p下图
+
+
+—— 来自 HUAW ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/27/204211yzdwlmwfxm3ntitl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210927204150.jpg</strong> (25.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 20:42 上传
+
+
+这个吗，昨晚好像就见有人P这图了
+
+
