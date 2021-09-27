@@ -14141,3 +14141,17 @@ https://detail.1688.com/offer/538935779195.html
 买了十张，贴上完美，刚发现阿里巴巴配件这么便宜，感觉损失了一个亿
 
 
+
+
+*****
+
+####  Archlich³  
+##### 1240#       发表于 2021-9-28 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52914377&amp;ptid=2015640" target="_blank">囧面超人 发表于 2021-9-27 20:03</a>
+
+买了十张，贴上完美，刚发现阿里巴巴配件这么便宜，感觉损失了一个亿</blockquote>
+但是水也深，只能一家家试过去。好在成本够低就是了。
+
+
