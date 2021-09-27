@@ -3678,3 +3678,26 @@ Liella都是我在C.jpg
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  lj205  
+##### 280#       发表于 2021-9-27 22:09
+
+
+第9话看了，青山这棒读有点…………然后可可在说他们想的太天真的那句台词是日语吗？
+
+
+*****
+
+####  cat1230  
+##### 281#       发表于 2021-9-27 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52915908&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-27 22:09</a>
+
+第9话看了，青山这棒读有点…………然后可可在说他们想的太天真的那句台词是日语吗？ ...</blockquote>
+日语啊，就是非常奇葩的音调吧，感觉算口癖了。liyuu在b站唠嗑也偶然会发出些奇怪的音调,我觉得挺萌的。
+
+

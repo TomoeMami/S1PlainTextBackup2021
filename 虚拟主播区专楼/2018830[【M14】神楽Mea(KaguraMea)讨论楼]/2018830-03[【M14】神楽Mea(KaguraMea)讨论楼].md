@@ -2441,3 +2441,33 @@ https://mall.jd.com/index-10233193.html</blockquote>
 开始人身攻击了草（）
 
 
+
+
+*****
+
+####  咸鱼渣  
+##### 3224#       发表于 2021-9-27 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52913406&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-9-27 18:33</a>
+然后半夜TC？</blockquote>
+话说她最近tc播过几次？
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  T_Hb  
+##### 3225#       发表于 2021-9-27 22:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52915942&amp;ptid=2018830" target="_blank">咸鱼渣 发表于 2021-9-27 22:12</a>
+
+话说她最近tc播过几次？
+
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+8月3次，这个月就1次，不过我的记忆力不太可靠
+
+

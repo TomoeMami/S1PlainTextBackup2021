@@ -16304,3 +16304,112 @@ https://twitter.com/Vspo77/status/1442467908521627650
 火星<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7176#       发表于 2021-9-27 22:05
+
+
+看了下，beni这是要休止+大会辞退
+
+有点惨
+
+
+*****
+
+####  OldGlory  
+##### 7177#       发表于 2021-9-27 22:15
+
+
+至于吗，搞这么大
+
+
+*****
+
+####  winda  
+##### 7178#       发表于 2021-9-27 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52915591&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-9-27 21:42</a>
+
+八雲べにに関してお騒がせしている件につきまして
+
+https://twitter.com/Vspo77/status/1442467908521627650 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/27/221734ynmn7cmmp3fipppt.png" referrerpolicy="no-referrer">
+
+
+<strong>FAPBgZrVkAIb309.png</strong> (36.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/221752qltbqcutqa9huc7c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FASSlhRUUAAlrZP.jpg</strong> (96.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/221812rrgjn4nd7qpz6xnx.png" referrerpolicy="no-referrer">
+
+
+<strong>FASSlhSVcAggjJE.png</strong> (44.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/221815jtq15x5sssada2at.png" referrerpolicy="no-referrer">
+
+
+<strong>FASSlhRUYAMOa4n.png</strong> (49.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/221818gf6e7fy7rrx6herb.png" referrerpolicy="no-referrer">
+
+
+<strong>FASSlhSVIAIFzVu.png</strong> (45.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:18 上传
+
+
+这次暴露后发现她已经不是第一次和rion zepher的小号组队上分了
+
+另一方面她以前推特上发的剪辑被发现和一般直播时技能的键位绑的不一样
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/221823hgv5nh6nxvkkhrj6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAS5Cd0VUAM-0Vz.jpg</strong> (131.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/27/221826ntokudtfffb963pf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAS5CqsVkAQSv77.jpg</strong> (104.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-27 22:18 上传
+
+
