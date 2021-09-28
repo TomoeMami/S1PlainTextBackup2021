@@ -3259,3 +3259,17 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 微博评论区笑死了，我是直播员我全麻了
 
 
+
+
+*****
+
+####  faithlifer  
+##### 253#       发表于 2021-9-28 17:55
+
+
+七海娜娜米✨你是银河中滚烫的星辰✨是努力又向上的绝佳代表✨你同火焰一同迸发✨是偶然坠入凡间的天使泪滴✨ 期待魅力舞担
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">麻了
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

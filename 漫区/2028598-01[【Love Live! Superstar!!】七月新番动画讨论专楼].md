@@ -4265,3 +4265,26 @@ BD就收了2，等后面有活动的时候再收1，剩下不收了。
 第四集难看反正也不看啊，bd不是用来收藏的吗
 
 
+
+
+*****
+
+####  emmerMK2  
+##### 320#       发表于 2021-9-28 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52923127&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-9-28 14:18</a>
+
+这是鲤鱼画的吗，感觉有点天赋啊</blockquote>
+画得好可爱哦
+
+
+*****
+
+####  宋西湖  
+##### 321#       发表于 2021-9-28 17:58
+
+
+平安名すみれ生日愉快！！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
