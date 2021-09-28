@@ -6658,3 +6658,29 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 —— 来自 OPPO PDHM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
+
+
+*****
+
+####  镜hinata  
+##### 478#       发表于 2021-9-28 14:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">还没出mana
+
+
+*****
+
+####  xiongxingyu  
+##### 479#       发表于 2021-9-28 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52921922&amp;ptid=2009419" target="_blank">最强惠酱 发表于 2021-9-28 12:34</a>
+
+10连就中了，开心，话说看推特说是mana特别演出出来就必中？这演出好时髦啊
+
+
+—— 來自 samsung SM-G981N,  ...</blockquote>
+卧槽，我的麻奈是井出来的，没有特殊演出看，一口老血喷了出来<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
