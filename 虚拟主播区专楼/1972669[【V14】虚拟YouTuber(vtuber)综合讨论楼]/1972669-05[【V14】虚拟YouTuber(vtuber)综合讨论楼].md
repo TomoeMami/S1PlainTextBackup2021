@@ -16759,3 +16759,17 @@ hnn这个状态去肌肉apex，其实挺不合适的
 最近宝可梦卡牌是很火么，这几天哈弟、兔皇、润姨都来播开箱。
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7202#       发表于 2021-9-28 19:06
+
+
+ 本帖最后由 FCCHua 于 2021-9-28 19:22 编辑 
+
+狱卒和selly组队，结果selly还是参加了
+syl 没事了，联动不延期开窗了，冲大师如果不取消的话又又又要连续长时间直播，恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
