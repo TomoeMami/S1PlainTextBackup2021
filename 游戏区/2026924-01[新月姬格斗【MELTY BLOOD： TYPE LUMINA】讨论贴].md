@@ -1020,3 +1020,31 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 诺艾尔感觉还好，弗拉夫是真的制作组夜瘾犯了
 
 
+
+
+*****
+
+####  axl3ds  
+##### 84#       发表于 2021-9-28 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52905550&amp;ptid=2026924" target="_blank">MMIno 发表于 2021-9-27 08:21</a>
+
+暴走公主没以前那个味道了，一点都没暴走范</blockquote>
+官方名不是暴走爱尔奎特而是红爱尔奎特，对应的应该是月姬R学姐线里被志贵甩了之后任性（病娇？）的爱尔奎特。学姐线我还没推完，具体情况还不是很清楚。
+
+
+*****
+
+####  axl3ds  
+##### 85#       发表于 2021-9-28 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52907633&amp;ptid=2026924" target="_blank">xvi黑翼公 发表于 2021-9-27 11:14</a>
+
+这就要取决于什么时候出了……如果拖个两三年甚至更长那必然是再发一作新MB啊
+
+ ...</blockquote>
+应该会出大型更新包的，UNIst升级到UNIcl-r就只是一个补丁的事，角色卖DLC。
+
+
