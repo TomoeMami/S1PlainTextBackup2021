@@ -14403,3 +14403,15 @@ EDF！EDF！！！！
 今天说了好多私人话题啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 13224#       发表于 2021-9-28 11:45
+
+
+还唱挺好的，不过就唱了一个半小时
+后面全在瞎聊，之后有时间看看，没时间看看切片
+
+
