@@ -6634,3 +6634,14 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  sodah  
+##### 476#       发表于 2021-9-28 13:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">对于我来说抽到樱皇就满足了。
+
+
