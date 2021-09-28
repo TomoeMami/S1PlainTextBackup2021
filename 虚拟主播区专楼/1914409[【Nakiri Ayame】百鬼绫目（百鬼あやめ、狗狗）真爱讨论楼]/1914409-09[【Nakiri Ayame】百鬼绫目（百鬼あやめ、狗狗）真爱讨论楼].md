@@ -14415,3 +14415,56 @@ EDF！EDF！！！！
 后面全在瞎聊，之后有时间看看，没时间看看切片
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13225#       发表于 2021-9-28 16:56
+
+
+没看直播 靠弹幕的英文同传云的
+
+
+讲了不少生活用品和化妆品的事
+
+有8种香水<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 被夸宝直球说很好闻
+
+被舞蹈老师夸有天分 早点学基础可以当职业的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很喜欢哈利波特
+
+2.3天敷一次面膜 问就是懒
+
+不喜欢东卍
+
+最近可能会线下过夜连动
+
+最近可能会开会限晚酌
+
+---------------------------------
+
+附上完整的英文同传
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/text.gif" referrerpolicy="no-referrer">
+
+0928chat.txt
+(27.01 KB, 下载次数: 1)
+
+
+2021-9-28 16:54 上传
+
+点击文件名下载附件
+
+
+*****
+
+####  nian1538  
+##### 13226#       发表于 2021-9-28 17:05
+
+
+可是夸夸自己上星期刚说的不好意思去用力闻绫总啊
+
+怀疑是聊天室传信鸽报道上出了偏差
+
+

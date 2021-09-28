@@ -6765,3 +6765,18 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把付费钻也抽光总算抽到了
 
 
+
+
+*****
+
+####  镜hinata  
+##### 486#       发表于 2021-9-28 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52924065&amp;ptid=2009419" target="_blank">最强惠酱 发表于 2021-9-28 15:27</a>
+推特看看呗，竖横排版还不一样
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+官推吗？
+
+

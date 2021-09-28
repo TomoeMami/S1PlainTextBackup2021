@@ -4183,3 +4183,33 @@ bd就不收了 插曲单6张倒是预定了（还有限定特典
 顺便929同时frrn迷你砖也发售了
 
 
+
+
+*****
+
+####  lj205  
+##### 316#       发表于 2021-9-28 16:55
+
+
+BD就收了2，等后面有活动的时候再收1，剩下不收了。
+
+
+跨年那张CD在阿玛搜不到，有预定路径吗？
+
+
+*****
+
+####  ads147147  
+##### 317#       发表于 2021-9-28 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52924442&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-28 15:57</a>
+是第一、二集
+
+
+重头戏第三集和心跳在悦动是BD2</blockquote>
+难受了，第四话观感一言难尽，不过买两个封面刚好可香。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
