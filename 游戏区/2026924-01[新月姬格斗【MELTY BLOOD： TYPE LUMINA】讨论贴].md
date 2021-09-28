@@ -1062,3 +1062,17 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 日文写的就是暴走アルクェイド（【MELTY BLOOD: TYPE LUMINA「暴走アルクェイドvs軋間紅摩」ゲームプレイ動画①】），英文表记是red而已，说哪个都不算错
 
 
+
+
+*****
+
+####  axl3ds  
+##### 87#       发表于 2021-9-28 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52920559&amp;ptid=2026924" target="_blank">sgssk 发表于 2021-9-28 10:58</a>
+
+日文写的就是暴走アルクェイド（【MELTY BLOOD: TYPE LUMINA「暴走アルクェイドvs軋間紅摩」ゲームプレイ ...</blockquote>
+啊，确实忘了注意日文这边了。官网写的也是暴走，是我疏忽了。
+
+

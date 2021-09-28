@@ -6645,3 +6645,16 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">对于我来说抽到樱皇就满足了。
 
 
+
+
+*****
+
+####  小倉朝日  
+##### 477#       发表于 2021-9-28 14:03
+
+
+能给你打电话的幽灵www
+
+—— 来自 OPPO PDHM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+

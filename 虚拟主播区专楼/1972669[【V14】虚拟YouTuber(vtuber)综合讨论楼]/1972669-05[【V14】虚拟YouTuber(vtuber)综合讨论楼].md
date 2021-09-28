@@ -16674,3 +16674,21 @@ stylishnoobさん
 这两天批站首页不断推送veibae，不得不说，皮不错，但既视感强烈，她这个live2d是杏🐏的建模师做的？确实感觉很熟悉，但是人设的感觉也很……
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7196#       发表于 2021-9-28 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52921536&amp;ptid=1972669" target="_blank">JoelBirch 发表于 2021-9-28 12:06</a>
+
+这两天批站首页不断推送veibae，不得不说，皮不错，但既视感强烈，她这个live2d是杏🐏的建模师做的？确实感 ...</blockquote>
+けっふぃー@Live2Dデザイナー
+
+@keffiy
+
+◾︎#Vtuber rigging 【ホロライブ】 ・角巻わため ・アキロゼ ・Takanashi Kiara ・Kureiji Ollie ・桐生ココ ・尾丸ポルカ ・Ouro Kronii 【AXEL-V】 ・来音こくり ・水久良かなる 【Vshojo】 ・veibae 依頼は現在受け付けておりません。
+
+
