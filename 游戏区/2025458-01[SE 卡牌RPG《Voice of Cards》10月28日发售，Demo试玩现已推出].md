@@ -1402,3 +1402,33 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  ziyer  
+##### 109#       发表于 2021-9-28 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52915466&amp;ptid=2025458" target="_blank">redsouris 发表于 2021-9-27 21:32</a>
+也就是比较恶趣味，不到出警的程度
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+还以为横尾又要整烂活了，如果是这种程度的倒是还好
+
+
+*****
+
+####  ziyer  
+##### 110#       发表于 2021-9-28 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52914716&amp;ptid=2025458" target="_blank">人如其名 发表于 2021-9-27 20:34</a>
+我就解锁了三个，其实也没啥。
+
+渣翻错翻预警：
+
+毛球年老时会脱毛，最后一根毛没了的时候，体液会一下子变 ...</blockquote>
+感谢，如果是这种程度那只是有点恶趣味而已，还好
+
+

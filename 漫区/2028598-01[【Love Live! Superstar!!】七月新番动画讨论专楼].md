@@ -3965,3 +3965,52 @@ BD1的香哥哥solo真不错啊，这是给可可and小千的情歌吧
 可可日语本当上手，我压根都不知道日语有这些骂人的词
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 299#       发表于 2021-9-28 09:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52918922&amp;ptid=2028598" target="_blank">AlfredXC 发表于 2021-9-28 08:49</a>
+可可日语本当上手，我压根都不知道日语有这些骂人的词</blockquote>
+因为可可的用语都非常有年代感，听说是江户时代流行的脏话？现代日本人不会用的。
+
+就好比外国人学中文脏话不是“CNM” 而说的是“直娘的”
+
+
+*****
+
+####  lj205  
+##### 300#       发表于 2021-9-28 09:25
+
+
+民警生日快乐，早日和可可化解各种误会，早日坦诚相见~
+
+
+
+
+*****
+
+####  一个陆仁贾  
+##### 301#       发表于 2021-9-28 09:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52916134&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-9-27 22:31</a>
+没看过木棉花的，都是下载字幕组的，之前在星像馆看，万恶的叔叔买了又怂了，还把馆给律师函了。 ...</blockquote>
+<img src="https://p.sda1.dev/2/78e4769f38b3dd971367454f79703eaf/IMG_CMP_182964611.jpeg" referrerpolicy="no-referrer">
+可以直接关注他们的微博和b站账号
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  苹果皮卡丘  
+##### 302#       发表于 2021-9-28 09:29
+
+
+直娘贼！兀那生徒会长，却是甚么东西！
+
+
