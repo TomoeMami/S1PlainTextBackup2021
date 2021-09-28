@@ -4124,3 +4124,41 @@ BD1的香哥哥solo真不错啊，这是给可可and小千的情歌吧
 画可爱，可是鲤鱼是不是有点不分ツシ<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">还是其实手写不用太区分？
 
 
+
+
+*****
+
+####  ads147147  
+##### 311#       发表于 2021-9-28 15:53
+
+
+话说bd1就是前三集么，那我就收第一卷bd好了。
+
+
+*****
+
+####  lj205  
+##### 312#       发表于 2021-9-28 15:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52924384&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-9-28 15:53</a>
+
+话说bd1就是前三集么，那我就收第一卷bd好了。</blockquote>
+是第一、二集
+
+
+重头戏第三集和心跳在悦动是BD2
+
+
+*****
+
+####  秋月艾莉  
+##### 313#       发表于 2021-9-28 15:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52924384&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-9-28 15:53</a>
+
+话说bd1就是前三集么，那我就收第一卷bd好了。</blockquote>
+全六卷，一卷两话
+
+
