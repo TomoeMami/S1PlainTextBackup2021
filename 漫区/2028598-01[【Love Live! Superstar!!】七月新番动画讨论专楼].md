@@ -4723,3 +4723,61 @@ pay酱的自拍总感觉怪怪的，去多跟鲤鱼姐姐学学吧</blockquote>
 喜茶上新，明天大概又是一波狂@~
 
 
+
+
+*****
+
+####  Norkey1  
+##### 360#       发表于 2021-9-28 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52929758&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-9-28 22:27</a>
+你搞错一件事了，虹杂是战吧部分人自称的。别人可没这样说，星畜反而是躺枪的。给你个链接看就知道了http ...</blockquote>
+别撇的太干净了，今天刚看到那个叫经验值的骂虹杂的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后才被反击星畜的
+
+
+
+
+*****
+
+####  安瓦尔阿明  
+##### 361#       发表于 2021-9-28 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52929641&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-9-28 22:17</a>
+
+pay酱的自拍总感觉怪怪的，去多跟鲤鱼姐姐学学吧</blockquote>
+这张莫名有点东南亚风格……
+
+
+*****
+
+####  tjshibc21  
+##### 362#       发表于 2021-9-28 23:11
+
+
+6话的cw真不错
+
+
+*****
+
+####  lj205  
+##### 363#       发表于 2021-9-28 23:14
+
+
+<blockquote>Norkey1 发表于 2021-9-28 23:09
+别撇的太干净了，今天刚看到那个叫经验值的骂虹杂的然后才被反击星畜的 ...</blockquote>
+这位好像也是泥潭谭友
+
+
+*****
+
+####  优妮可  
+##### 364#       发表于 2021-9-28 23:22
+
+
+<blockquote>Norkey1 发表于 2021-9-28 23:09
+别撇的太干净了，今天刚看到那个叫经验值的骂虹杂的然后才被反击星畜的 ...</blockquote>
+没洗他，他在战吧也是被婊的，我说的是这两个称呼由来。
+
+

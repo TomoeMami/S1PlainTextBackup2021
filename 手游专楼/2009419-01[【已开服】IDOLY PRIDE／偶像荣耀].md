@@ -6879,3 +6879,16 @@ song for you也实装了啊，真好啊真好<img src="https://static.saraba1st.
 17000没抽到麻奈，难顶<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 495#       发表于 2021-9-28 23:21
+
+
+mana个人剧情好甜啊，疯狂推妹妹给牧野当女友笑死
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -933,3 +933,14 @@ OLED版Lite，价格下去的话还真的可以考虑整一个试试
 这差得也太多了点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  小修  
+##### 85#       发表于 2021-9-28 23:19
+
+
+我怎么记得以前有人自己diy了oled屏幕，不然是改全贴合？
+
+
