@@ -967,3 +967,17 @@ OLED版Lite，价格下去的话还真的可以考虑整一个试试
 话说我觉得lite的屏幕挺好的
 
 
+
+
+*****
+
+####  nailuo1993  
+##### 88#       发表于 2021-9-29 01:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930113&amp;ptid=2028204" target="_blank">JoelBirch 发表于 2021-9-28 22:55</a>
+
+这差得也太多了点</blockquote>
+oled颜色好像过饱和了，ns的游戏应该是基于srgb开发的吧，oled版不限制色域只能说见仁见智了
+
+
