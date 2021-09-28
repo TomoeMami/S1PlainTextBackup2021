@@ -4113,3 +4113,14 @@ BD1的香哥哥solo真不错啊，这是给可可and小千的情歌吧
 新盘偷跑咯，贡献了一张8话盘，后面再买一份6话盘流媒体版
 
 
+
+
+*****
+
+####  gothicmaid  
+##### 310#       发表于 2021-9-28 15:23
+
+
+画可爱，可是鲤鱼是不是有点不分ツシ<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">还是其实手写不用太区分？
+
+

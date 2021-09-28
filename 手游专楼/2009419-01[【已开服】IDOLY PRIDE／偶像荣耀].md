@@ -6698,3 +6698,42 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  两个路人  
+##### 481#       发表于 2021-9-28 15:20
+
+
+没想到这卡池这么快就提到了2倍出货率，30张白女票券出5个5星，比开服刷初始的时候稍微好了点。抽中幽灵UP还能提前看到特殊演出，绝了，可惜没录像（躺
+
+
+*****
+
+####  最强惠酱  
+##### 482#       发表于 2021-9-28 15:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52923545&amp;ptid=2009419" target="_blank">伊布桑 发表于 2021-9-28 14:48</a>
+我还在井的路上，井是没有演出的吗？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+井的不知道诶，反正有演出必中
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  最强惠酱  
+##### 483#       发表于 2021-9-28 15:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52923443&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-9-28 14:41</a>
+卧槽，我的麻奈是井出来的，没有特殊演出看，一口老血喷了出来</blockquote>
+推特看看呗，竖横排版还不一样
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
