@@ -4472,3 +4472,16 @@ SYL：</blockquote>
 今天被文静回了，满足满足。
 
 
+
+
+*****
+
+####  GAKOTO  
+##### 393#         楼主| 发表于 2021-9-28 14:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52922649&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-9-28 13:39</a>
+静栗惹已经在杜松子评论区大规模团建了</blockquote>
+这哪是团建？分明是扔炸弹<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

@@ -4066,3 +4066,28 @@ BD1的香哥哥solo真不错啊，这是给可可and小千的情歌吧
 资深划水侠
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 307#       发表于 2021-9-28 14:18
+
+
+ 本帖最后由 CharlieZ- 于 2021-9-28 14:19 编辑 
+
+这是鲤鱼画的吗，感觉有点天赋啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/28/141934z1lwn9nk1lookw4n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>c4edbf0f4bfbfbedbf28e1943df0f736aec31fae.jpg</strong> (52.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 14:19 上传
+
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=3a3f690ff61c8701d6b6b2ee177e9e6e/c4edbf0f4bfbfbedbf28e1943df0f736aec31fae.jpg" referrerpolicy="no-referrer">
+
+
