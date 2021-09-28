@@ -6791,3 +6791,17 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 自己一旦如live、拍照、gacha等变成横板的时候就大概率黑屏只剩声音，过会自动退出，所以gacha演出一直是skip的，这次加了纵版挺好。
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 488#       发表于 2021-9-28 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52925493&amp;ptid=2009419" target="_blank">镜hinata 发表于 2021-9-28 17:01</a>
+
+官推吗？</blockquote>
+搜#アイプラ　演出 就能看到
+
+
