@@ -22035,3 +22035,38 @@ council剩下fauna和mumei还没和myth collab
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  shimmy1996  
+##### 1395#       发表于 2021-9-28 08:24
+
+
+[https://twitter.com/nab0i/status/1441808847471996934](https://twitter.com/nab0i/status/1441808847471996934)
+
+<img src="https://img.saraba1st.com/forum/202109/28/082256pdm2c8tkvmkpnzc6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAJVLsoVQA8WiA5.jpg</strong> (249.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 08:22 上传
+
+
+[https://twitter.com/na_shi_en/status/1441804241216032769](https://twitter.com/na_shi_en/status/1441804241216032769)
+
+<img src="https://img.saraba1st.com/forum/202109/28/082256n84z1h8262lplbba.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAJQykDVgAcf1r6.jpg</strong> (254.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 08:22 上传
+
+
+CUTE<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+

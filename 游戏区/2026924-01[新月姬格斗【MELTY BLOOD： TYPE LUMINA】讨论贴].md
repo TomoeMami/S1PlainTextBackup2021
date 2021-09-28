@@ -1007,3 +1007,16 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 这次有没有充豪华版送提前游玩？<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 83#       发表于 2021-9-28 08:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52915262&amp;ptid=2026924" target="_blank">华理傻宅 发表于 2021-9-27 21:18</a>
+感觉新增的诺艾尔和伏拉夫就特别有夜下降生味儿，并不是单纯指人设，而是这两角色看演示都不怎么贴身怼一串 ...</blockquote>
+诺艾尔感觉还好，弗拉夫是真的制作组夜瘾犯了
+
+
