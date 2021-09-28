@@ -16735,3 +16735,28 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 说起来奥尔芬恢复痛觉之后还是喜欢吃辣的料理，那恢复痛觉之前做的料理是因为自己爱吃还是因为没有痛觉不知道具体味道呢
 
 
+
+
+*****
+
+####  火红之眼  
+##### 5736#       发表于 2021-9-28 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52919127&amp;ptid=1860328" target="_blank">最浅的语言 发表于 2021-9-28 09:12</a>
+说起来奥尔芬恢复痛觉之后还是喜欢吃辣的料理，那恢复痛觉之前做的料理是因为自己爱吃还是因为没有痛觉不知 ...</blockquote>
+单纯是以前就爱吃吧，恢复痛觉后耐受力也不是一般人能比那种……估计吃着区别也不大
+
+
+*****
+
+####  最浅的语言  
+##### 5737#       发表于 2021-9-28 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52919299&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-28 09:27</a>
+
+单纯是以前就爱吃吧，恢复痛觉后耐受力也不是一般人能比那种……估计吃着区别也不大 ...</blockquote>
+我之前还期待恢复痛觉后料理环节有反转呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
