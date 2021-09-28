@@ -4497,3 +4497,125 @@ v4字幕组刚出的广播肉，三人商业互夸
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">到时候菜和鱼同台
 
 
+
+
+*****
+
+####  a92063256  
+##### 341#       发表于 2021-9-28 22:09
+
+
+这集我看的时候有一个挺疑惑的点就是香音作词没思路做不出来，恋为什么不同时去作曲呢？也不是一定要先作词再作曲的吧，这样搞得好像重担全压在了香音一人身上，其他人离了香音就一事无成一样，虽然整集都很欢乐，但是细想还是不大合理。
+
+
+*****
+
+####  名津流  
+##### 342#       发表于 2021-9-28 22:13
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/220912s98h996n177x9gzb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210928220421.png</strong> (55.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:09 上传
+
+
+女性声优INS粉丝数排行，26个声优，参演了LL和没参演LL的正好各13个
+
+不像推特，ins这种更晚出现而且以图为主的平**全是新生代偶像声优的主场了
+
+
+*****
+
+####  beifx  
+##### 343#       发表于 2021-9-28 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52929529&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-9-28 22:09</a>
+
+这集我看的时候有一个挺疑惑的点就是香音作词没思路做不出来，恋为什么不同时去作曲呢？也不是一定要先作词 ...</blockquote>
+一般作曲和作词总有个先后吧
+
+
+*****
+
+####  cybernetics31  
+##### 344#       发表于 2021-9-28 22:16
+
+
+鲤鱼ins优势太大了也………………<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">她推特即将60万………………
+
+
+*****
+
+####  chenflyyy  
+##### 345#       发表于 2021-9-28 22:17
+
+
+pay酱的自拍总感觉怪怪的，去多跟鲤鱼姐姐学学吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 346#       发表于 2021-9-28 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52929641&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-9-28 22:17</a>
+pay酱的自拍总感觉怪怪的，去多跟鲤鱼姐姐学学吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质还是个纯情jk
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 347#       发表于 2021-9-28 22:23
+
+
+一段时间没看发现之前阿B上播放最高那个Tiny Stars 多了好多高级弹幕，真好啊
+
+
+*****
+
+####  名津流  
+##### 348#       发表于 2021-9-28 22:23
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/222336dmmsekvduwe8a2ro.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210928222251.png</strong> (138.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/222335dszk3bkm3izl233h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210928222242.jpg</strong> (168.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:23 上传
+
+
+俗话说，夫妻在一起生活时间久了会长得越来越像<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 349#       发表于 2021-9-28 22:27
+
+
+<blockquote>chenflyyy 发表于 2021-9-28 20:20
+在战吧看到有用虹杂星畜互骂的，拉拉现在在国内都糊成这样了，不同企划之间竟然都还能吵起来吗 ...</blockquote>
+你搞错一件事了，虹杂是战吧部分人自称的。别人可没这样说，星畜反而是躺枪的。给你个链接看就知道了http://tieba.baidu.com/p/7545824269?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.11.1.0&amp;st=1632839171&amp;unique=AF7D0E1704FB11D1C75DE04728EF2002
+
+

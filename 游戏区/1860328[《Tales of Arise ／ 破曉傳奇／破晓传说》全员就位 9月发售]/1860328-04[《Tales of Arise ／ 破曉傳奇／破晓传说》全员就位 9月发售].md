@@ -16856,3 +16856,86 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 通关了，最终迷宫+元素槽+决战一连串打得心累，然后ed完发糖就发了3张图<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">，希望通关之后的支线和小剧场能欢乐一些
 
 
+
+
+*****
+
+####  克里斯蒂娜  
+##### 5745#       发表于 2021-9-28 22:09
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/220633faas3y3asaee7zyy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928211729_1.jpg</strong> (166 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/220634hu3gamzmkfgasb86.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928211737_1.jpg</strong> (167.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/220634ks3ztfuijzgtkwsz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928211745_1.jpg</strong> (166.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/220634kmt11naammk1smtt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928211753_1.jpg</strong> (164.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/220634w8kc8i6uuki480mb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928211800_1.jpg</strong> (166.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/220635bqwfrc00ci360yrc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928214132_1.jpg</strong> (166.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 22:06 上传
+
+
+初级最速差不多就这样了吧，用来刷魔武挺快的
+
+
+*****
+
+####  森兰丸  
+##### 5746#       发表于 2021-9-28 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52929281&amp;ptid=1860328" target="_blank">桧月彩花 发表于 2021-9-28 21:51</a>
+
+不管是什么原因，此处应有（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么都不会有....按照速水这个疯子的性格如果是奥尔芬被抓走可能还会有点什么
+
+
