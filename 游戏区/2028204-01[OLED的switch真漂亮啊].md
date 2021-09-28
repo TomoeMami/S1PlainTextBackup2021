@@ -893,3 +893,32 @@ B站顶流也是这种啊<img src="https://static.saraba1st.com/image/smiley/fac
 但是这完全350刀，我选择坐定等真Pro出来，剑指明年！
 
 
+
+
+*****
+
+####  BuffaloBills  
+##### 82#       发表于 2021-9-28 20:32
+
+
+<blockquote>第四人称 发表于 2021-9-28 19:26
+乍一看的话真的挺不错的，现在看着我这个首发非续航版都有些嫌弃了
+
+但是这完全350刀，我选择坐定等真Pro出 ...</blockquote>
+明年大概率先出OLED版NSL，再过一年才出PRO
+
+
+*****
+
+####  第四人称  
+##### 83#       发表于 2021-9-28 20:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52928364&amp;ptid=2028204" target="_blank">BuffaloBills 发表于 2021-9-28 20:32</a>
+
+明年大概率先出OLED版NSL，再过一年才出PRO</blockquote>
+OLED版Lite，价格下去的话还真的可以考虑整一个试试
+
+屏幕大小介于Lite和原版NS也很合适了
+
+

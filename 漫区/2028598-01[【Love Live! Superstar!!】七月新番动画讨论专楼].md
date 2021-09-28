@@ -4371,3 +4371,40 @@ BD就收了2，等后面有活动的时候再收1，剩下不收了。
 教徒互相图图异端不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 330#       发表于 2021-9-28 20:27
+
+
+说起来八单的歌服白色短裙加裤袜，超级想看上身效果怎样，总觉得不是很好驾驭～～
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 331#       发表于 2021-9-28 20:28
+
+
+鲤鱼的<img src="https://p.sda1.dev/2/5ab97a8ac05b49e0f83152331619608d/IMG_CMP_257404007.jpeg" referrerpolicy="no-referrer">
+pay酱的<img src="https://p.sda1.dev/2/3a103663f33231be558b73fc010bda92/FATOBbAVIAoQpfr.jpeg" referrerpolicy="no-referrer">
+nako的<img src="https://p.sda1.dev/2/707f22fbdc66c9da6f706f1a562b3f46/IMG_CMP_96259236.jpeg" referrerpolicy="no-referrer">
+sayurin的<img src="https://p.sda1.dev/2/10cdd972eecf3b94e58a35c94b2708f3/FATOVPHVcAEEOrx.jpeg" referrerpolicy="no-referrer">
+就差青山这个画伯的了
+
+
+*****
+
+####  型月重工  
+##### 332#       发表于 2021-9-28 20:30
+
+
+<blockquote>chenflyyy 发表于 2021-9-28 20:20
+在战吧看到有用虹杂星畜互骂的，拉拉现在在国内都糊成这样了，不同企划之间竟然都还能吵起来吗 ...</blockquote>
+这很稀奇吗？5ch上的日本人也是天天吵。虹因为出生血统问题一项不受原教旨拉拉人待见。 这就是饭圈
+
+

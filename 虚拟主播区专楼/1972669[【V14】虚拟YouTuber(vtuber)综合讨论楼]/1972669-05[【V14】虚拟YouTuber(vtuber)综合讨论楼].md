@@ -16849,3 +16849,72 @@ King各种意义上的不忘初心了<img src="https://static.saraba1st.com/imag
 烂货圆脸前几天也烧到41度了，现在居然好了！不知道有没有把脸烧的小一点<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7209#       发表于 2021-9-28 20:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">呜呜
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/203127rvyzeyb03ygl0ib3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAXSqFtUcAAjpAC.jpg</strong> (476.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 20:31 上传
+
+
+[https://twitter.com/sainexxx/status/1442791231587643396](https://twitter.com/sainexxx/status/1442791231587643396) <blockquote>さいね @sainexxx
+
+这是一本我期待已久的Ruru-chan书，但似乎需要更多时间，因为我已经放入了各种各样的东西......！抱歉让您久等了……！
+
+我们将在准备就绪后立即发布，因此请稍等...🙏</blockquote>
+
+
+*****
+
+####  IDIDIDID  
+##### 7210#       发表于 2021-9-28 20:37
+
+
+<img src="https://img.saraba1st.com/forum/202109/28/203757hg5d6gg6y3vr350r.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210928203749.png</strong> (83.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 20:37 上传
+
+
+*****
+
+####  IDIDIDID  
+##### 7211#       发表于 2021-9-28 20:41
+
+
+ 本帖最后由 IDIDIDID 于 2021-9-28 20:47 编辑 
+
+这是要有新3D了吧，不然睡衣拖鞋开活动啊
+
+
+SYL：
+
+到底要从哪里才能找来这种优质韭菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/28/204641fjjz4jj6sfmavff5.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210928204548.png</strong> (38.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 20:46 上传
+
+
