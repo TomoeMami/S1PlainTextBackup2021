@@ -6903,3 +6903,16 @@ mana个人剧情好甜啊，疯狂推妹妹给牧野当女友笑死
 麻奈可以打工但是没有人出现，想看泳装都不行 草
 
 
+
+
+*****
+
+####  镜hinata  
+##### 497#       发表于 2021-9-29 04:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">睡前沉船不服气，靠着新樱肝了6话主线打到37话把商店主线礼包的钻都拿了终于在188抽到了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">新樱真的强得离谱
+
+

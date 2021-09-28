@@ -3166,3 +3166,16 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就算血量还够 精力如果都没耗也太离谱了
 
 
+
+
+*****
+
+####  小野寺熊介  
+##### 55726#       发表于 2021-9-29 02:42
+
+
+如果不算摘手铐强化这个可能性
+
+那引奈落就是凯多的全力了（生命卡设定）
+
+
