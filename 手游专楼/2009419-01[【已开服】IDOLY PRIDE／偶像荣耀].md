@@ -6684,3 +6684,17 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 卧槽，我的麻奈是井出来的，没有特殊演出看，一口老血喷了出来<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  伊布桑  
+##### 480#         楼主| 发表于 2021-9-28 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52923443&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-09-28 14:41:35</a>
+卧槽，我的麻奈是井出来的，没有特殊演出看，一口老血喷了出来</blockquote>我还在井的路上，井是没有演出的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
