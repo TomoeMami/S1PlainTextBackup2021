@@ -12189,3 +12189,14 @@ Mane酱买的看推特照片也全是トライアルデッキ啊
 没事就好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  面具13  
+##### 6978#       发表于 2021-9-28 18:51
+
+
+推上动了，看上去没问题，跟普通摸几天应该没差别。
+
+

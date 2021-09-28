@@ -6805,3 +6805,26 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 搜#アイプラ　演出 就能看到
 
 
+
+
+*****
+
+####  镜hinata  
+##### 489#       发表于 2021-9-28 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52926753&amp;ptid=2009419" target="_blank">kos_mos 发表于 2021-9-28 18:18</a>
+
+自己一旦如live、拍照、gacha等变成横板的时候就大概率黑屏只剩声音，过会自动退出，所以gacha演出一直是sk ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">纵版适配不行....刚刚歪的新怜就是横版拉伸很糊
+
+
+*****
+
+####  kos_mos  
+##### 490#       发表于 2021-9-28 18:55
+
+
+没舍得抽怜用的2700没出麻奈、樱，出了张没有过的水着堇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
