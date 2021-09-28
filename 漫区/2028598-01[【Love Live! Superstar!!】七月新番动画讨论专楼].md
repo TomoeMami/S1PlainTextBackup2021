@@ -4781,3 +4781,46 @@ pay酱的自拍总感觉怪怪的，去多跟鲤鱼姐姐学学吧</blockquote>
 没洗他，他在战吧也是被婊的，我说的是这两个称呼由来。
 
 
+
+
+*****
+
+####  dozen  
+##### 365#       发表于 2021-9-28 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930289&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-28 23:09</a>
+别撇的太干净了，今天刚看到那个叫经验值的骂虹杂的然后才被反击星畜的 ...</blockquote>
+那位不就是楼里的黑雪姬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 366#       发表于 2021-9-28 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930409&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-9-28 23:22</a>
+没洗他，他在战吧也是被婊的，我说的是这两个称呼由来。</blockquote>
+“别人可没这么说，星畜才是躺枪”很难让人不误解<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+syl，星畜这个词啥时候开始出现的，我这边吧内搜索是今天才有的
+
+
+*****
+
+####  cybernetics31  
+##### 367#       发表于 2021-9-28 23:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么多年了还是一点没变，明明国内圈子就那么点大
+
+
+*****
+
+####  安瓦尔阿明  
+##### 368#       发表于 2021-9-28 23:41
+
+
+当年缪水争得多热闹，到现在对家碰面都可能会撕。不过我个人觉得虹星之间没有缪水那种“深仇大恨”。
+
+

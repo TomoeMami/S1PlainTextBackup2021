@@ -944,3 +944,26 @@ OLED版Lite，价格下去的话还真的可以考虑整一个试试
 我怎么记得以前有人自己diy了oled屏幕，不然是改全贴合？
 
 
+
+
+*****
+
+####  985604670  
+##### 86#       发表于 2021-9-28 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930113&amp;ptid=2028204" target="_blank">JoelBirch 发表于 2021-9-28 22:55</a>
+
+这差得也太多了点</blockquote>
+果然还是oled好啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古畑任三郎2015  
+##### 87#       发表于 2021-9-28 23:38
+
+
+话说我觉得lite的屏幕挺好的
+
+
