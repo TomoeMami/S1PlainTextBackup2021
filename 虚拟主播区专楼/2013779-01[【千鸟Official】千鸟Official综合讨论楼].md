@@ -4313,3 +4313,15 @@ SYL：</blockquote>
 琳主要是播的太少了，声音好听也挺会聊天的
 
 
+
+
+*****
+
+####  夜潇箫  
+##### 379#       发表于 2021-9-28 10:48
+
+
+琳还说寄明月挺好学的，可惜没机会看她跳舞。
+她的声音有点深夜电台女主播的感觉，听久了有点腻<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+

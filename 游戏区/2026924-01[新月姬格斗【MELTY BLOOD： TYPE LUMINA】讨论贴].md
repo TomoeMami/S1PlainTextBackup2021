@@ -1048,3 +1048,17 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 应该会出大型更新包的，UNIst升级到UNIcl-r就只是一个补丁的事，角色卖DLC。
 
 
+
+
+*****
+
+####  sgssk  
+##### 86#       发表于 2021-9-28 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52920209&amp;ptid=2026924" target="_blank">axl3ds 发表于 2021-9-28 10:36</a>
+
+官方名不是暴走爱尔奎特而是红爱尔奎特，对应的应该是月姬R学姐线里被志贵甩了之后任性（病娇？）的爱尔 ...</blockquote>
+日文写的就是暴走アルクェイド（【MELTY BLOOD: TYPE LUMINA「暴走アルクェイドvs軋間紅摩」ゲームプレイ動画①】），英文表记是red而已，说哪个都不算错
+
+
