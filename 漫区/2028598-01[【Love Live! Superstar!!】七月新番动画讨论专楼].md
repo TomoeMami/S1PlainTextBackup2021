@@ -4338,3 +4338,14 @@ BD就收了2，等后面有活动的时候再收1，剩下不收了。
 这下没人喷星星销量了吧
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 327#       发表于 2021-9-28 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新一期的广播还在复刻千记不住堇名字的操作 小丑竟是观众
+
+

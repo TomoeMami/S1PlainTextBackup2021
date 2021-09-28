@@ -880,3 +880,16 @@ B站顶流也是这种啊<img src="https://static.saraba1st.com/image/smiley/fac
 傻逼香港人砍单了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  第四人称  
+##### 81#       发表于 2021-9-28 19:26
+
+
+乍一看的话真的挺不错的，现在看着我这个首发非续航版都有些嫌弃了
+
+但是这完全350刀，我选择坐定等真Pro出来，剑指明年！
+
+
