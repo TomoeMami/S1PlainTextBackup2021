@@ -16784,3 +16784,18 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 后面碰女主时也是强忍着别人不能忍受的痛楚.....反正这游戏就是要突出一个男主对女主的一往情深
 
 
+
+
+*****
+
+####  火红之眼  
+##### 5740#       发表于 2021-9-28 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52919552&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-28 09:50</a>
+所以奥尔芬其实是m体质嘛
+对他来说没了荆棘的希农肯定不够过瘾吧</blockquote>
+女子意外发现丈夫深夜用大锅蒸煮自己
+"哎……水不够烫啊"
+
+
