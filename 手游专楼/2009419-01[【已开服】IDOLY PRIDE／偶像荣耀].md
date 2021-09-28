@@ -6609,3 +6609,28 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 她筛选里默认都是没打勾的状态，你在筛选里打下勾就可以选了
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 474#       发表于 2021-9-28 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52921665&amp;ptid=2009419" target="_blank">bawula 发表于 2021-9-28 12:15</a>
+
+她筛选里默认都是没打勾的状态，你在筛选里打下勾就可以选了</blockquote>
+原来是bug，我还以为是什么奇奇怪怪的设定呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 475#       发表于 2021-9-28 12:34
+
+
+10连就中了，开心，话说看推特说是mana特别演出出来就必中？这演出好时髦啊
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -1455,3 +1455,17 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 哥布林那是传统的妖精交换儿吧，哥布林的原型就是做恶作剧的妖精
 
 
+
+
+*****
+
+####  jacket  
+##### 113#       发表于 2021-9-28 12:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52920418&amp;ptid=2025458" target="_blank">redsouris 发表于 2021-9-28 10:49</a>
+
+特意数了一下，怪物卡是打倒五只解锁背面，试玩版比较难解锁的是最后两种石头怪，太难碰上。两种石头怪虽然 ...</blockquote>
+我后来想那玩意扔炸弹行不行，感觉炸弹是固定伤害
+
+

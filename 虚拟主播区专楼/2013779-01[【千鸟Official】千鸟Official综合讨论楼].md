@@ -4368,3 +4368,48 @@ SYL：</blockquote>
 这模型我破防了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  天邪鬼  
+##### 384#       发表于 2021-9-28 12:23
+
+
+这是同一个人？
+而且不是说都是星瞳陪跑，就连七海都是
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  tankai  
+##### 385#       发表于 2021-9-28 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52921581&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-9-28 12:10</a>
+这模型我破防了</blockquote>
+还不如倭瓜，我真是操了。
+
+
+*****
+
+####  夜潇箫  
+##### 386#       发表于 2021-9-28 12:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">星瞳是大表姐，那扇宝算什么辈分
+
+
+*****
+
+####  tn_teana  
+##### 387#       发表于 2021-9-28 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52922031&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-9-28 12:45</a>
+星瞳是大表姐，那扇宝算什么辈分</blockquote>
+扇宝还真是出道最早的大表姐，不过酷狗跟腾讯游戏腾讯视频一比，说养子都抬举了
+
+
