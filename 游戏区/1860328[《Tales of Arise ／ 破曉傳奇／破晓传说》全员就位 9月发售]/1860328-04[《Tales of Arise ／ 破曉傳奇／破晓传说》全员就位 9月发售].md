@@ -16830,3 +16830,29 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 可能是用王的力量压制了痛觉.....更可能是脑子被烧坏到丧失了痛觉....你看被奥尔芬都用火剑捅穿和结局被打翻在地时都没尖叫一下
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 5743#       发表于 2021-9-28 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52928724&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-28 21:08</a>
+
+游戏反正没有提起过这段.....那就只能留着玩家自己脑补了
+
+
+可能是用王的力量压制了痛觉.....更可 ...</blockquote>
+不管是什么原因，此处应有（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BigLittle1999  
+##### 5744#       发表于 2021-9-28 21:54
+
+
+通关了，最终迷宫+元素槽+决战一连串打得心累，然后ed完发糖就发了3张图<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">，希望通关之后的支线和小剧场能欢乐一些
+
+

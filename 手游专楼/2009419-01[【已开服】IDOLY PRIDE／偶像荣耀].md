@@ -6868,3 +6868,14 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 song for you也实装了啊，真好啊真好<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Porsche  
+##### 494#       发表于 2021-9-28 21:50
+
+
+17000没抽到麻奈，难顶<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
