@@ -4441,3 +4441,24 @@ sayurin的<img src="https://p.sda1.dev/2/10cdd972eecf3b94e58a35c94b2708f3/FATOVP
 吵一吵，两边就都更忠诚了，要是再拿销量互相打擂台，那就更好了
 
 
+
+
+*****
+
+####  Norkey1  
+##### 336#       发表于 2021-9-28 21:11
+
+
+v4字幕组刚出的广播肉，三人商业互夸
+青山正经起来还是挺正经的，上尉不愧是jk也太纯情了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜明的月下  
+##### 337#       发表于 2021-9-28 21:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+

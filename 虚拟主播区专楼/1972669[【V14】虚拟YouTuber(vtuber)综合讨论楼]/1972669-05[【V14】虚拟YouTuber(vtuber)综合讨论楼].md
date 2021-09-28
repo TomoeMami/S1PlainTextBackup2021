@@ -16929,3 +16929,45 @@ SYL：
 和大猩猩，kmt三排，安心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7213#       发表于 2021-9-28 21:13
+
+
+<blockquote>rion@R_7qq
+
+この度はお騒がせして申し訳ありませんでした。
+
+サブアカウントを使ってRANKマッチに参加した事は事実であり、内部レートの関係で同等の敵とマッチングすると軽率な考えで行いました。
+
+このような行動をとってしまったことにつきまして深く反省しております。
+
+
+配信は数日間自粛させていただきます。</blockquote><blockquote>CR.おじじ　(リテイルローのおじさん)@riteiruozisan
+
+この度は、弊社所属ストリーマーのサブアカウントとのランクマッチに参加してしまい、誠に申し訳ございませんでした。
+
+なにより私自身監督者として止めなければいけない行為でしたし、インフルエンサーとして恥ずべき行為でありました。
+
+今後こういったことが決して無いよう私含め全員で猛省致します。</blockquote>
+
+要不Rion你也来虹吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我看你朋友混的也不错
+
+
+*****
+
+####  winda  
+##### 7214#       发表于 2021-9-28 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52928782&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-9-28 21:13</a>
+
+要不Rion你也来虹吧我看你朋友混的也不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这次的事情他以前聊天性骚扰的旧账又被翻出来了，过来是想让他当火车王么
+
+不过他还是奈罗花的valo师傅，关系这么近也不一定
+
+

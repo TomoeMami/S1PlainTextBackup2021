@@ -16813,3 +16813,20 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 我想知道水领将为什么眉毛都不皱一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  森兰丸  
+##### 5742#       发表于 2021-9-28 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52928040&amp;ptid=1860328" target="_blank">桧月彩花 发表于 2021-9-28 20:06</a>
+
+我想知道水领将为什么眉毛都不皱一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">游戏反正没有提起过这段.....那就只能留着玩家自己脑补了
+
+
+可能是用王的力量压制了痛觉.....更可能是脑子被烧坏到丧失了痛觉....你看被奥尔芬都用火剑捅穿和结局被打翻在地时都没尖叫一下
+
+
