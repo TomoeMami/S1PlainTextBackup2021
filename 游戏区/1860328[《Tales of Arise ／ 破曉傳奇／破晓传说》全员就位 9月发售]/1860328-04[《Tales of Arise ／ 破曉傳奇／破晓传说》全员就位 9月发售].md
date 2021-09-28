@@ -16939,3 +16939,23 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么都不会有....按照速水这个疯子的性格如果是奥尔芬被抓走可能还会有点什么
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5747#       发表于 2021-9-28 22:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">男女主野营的最高好感skit真甜啊
+
+
+*****
+
+####  黄昏的轮回  
+##### 5748#       发表于 2021-9-28 22:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">60个钟头打通了，其实我觉得key item应该是敌我伤害x2的文物，装上之后立刻就愉悦了，享受一刀霸道灭封就是一个阶段的快乐
+
+
