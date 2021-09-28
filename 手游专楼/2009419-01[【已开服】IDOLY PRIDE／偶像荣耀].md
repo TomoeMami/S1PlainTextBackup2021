@@ -6754,3 +6754,14 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 没有，天井换卡甚至都没有演出，直接一张卡塞你仓库里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  一之江瑞江  
+##### 485#       发表于 2021-9-28 16:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把付费钻也抽光总算抽到了
+
+

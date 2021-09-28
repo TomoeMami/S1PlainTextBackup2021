@@ -4509,3 +4509,14 @@ SYL：</blockquote>
 文静看弹幕速度好快，我找了半天没看到杜松子发的弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  小憨1  
+##### 396#       发表于 2021-9-28 16:30
+
+
+杜松子是上舰吧，发言了吗
+
+
