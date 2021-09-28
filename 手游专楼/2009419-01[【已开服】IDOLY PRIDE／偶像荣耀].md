@@ -6841,3 +6841,19 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 可是我想要缨 衣服好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  伊布桑  
+##### 492#         楼主| 发表于 2021-9-28 20:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52927582&amp;ptid=2009419" target="_blank">404489039 发表于 2021-09-28 19:23:14</a>
+一发特殊演出3虹 2重复1麻奈。
+
+可是我想要缨 衣服好看</blockquote>其实个人感觉衣服建模不怎么好看<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">。卡面当然好就是了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
