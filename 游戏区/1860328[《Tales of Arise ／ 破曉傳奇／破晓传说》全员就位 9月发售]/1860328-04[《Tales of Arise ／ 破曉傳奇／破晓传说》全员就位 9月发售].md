@@ -16760,3 +16760,27 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 我之前还期待恢复痛觉后料理环节有反转呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5738#       发表于 2021-9-28 09:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以奥尔芬其实是m体质嘛
+对他来说没了荆棘的希农肯定不够过瘾吧
+
+
+*****
+
+####  森兰丸  
+##### 5739#       发表于 2021-9-28 10:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">男主刚恢复痛觉时碰女主不也是被痛的弹了出去.....直接造成了女主的自闭....后面被冲上岸时打2个小怪都吃力
+
+
+后面碰女主时也是强忍着别人不能忍受的痛楚.....反正这游戏就是要突出一个男主对女主的一往情深
+
+
