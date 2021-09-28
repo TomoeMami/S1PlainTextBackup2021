@@ -6737,3 +6737,20 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 484#       发表于 2021-9-28 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52923545&amp;ptid=2009419" target="_blank">伊布桑 发表于 2021-9-28 14:48</a>
+
+我还在井的路上，井是没有演出的吗？
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+没有，天井换卡甚至都没有演出，直接一张卡塞你仓库里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
