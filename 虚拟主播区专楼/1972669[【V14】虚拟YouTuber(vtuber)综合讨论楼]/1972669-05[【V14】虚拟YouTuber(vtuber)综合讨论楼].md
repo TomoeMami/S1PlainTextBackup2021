@@ -16661,3 +16661,16 @@ stylishnoobさん
 经过10个多小时的折磨，kmt终于大师，hnn还差300多分，吃完饭后准备solo<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  JoelBirch  
+##### 7195#       发表于 2021-9-28 12:06
+
+
+ 本帖最后由 JoelBirch 于 2021-9-28 12:28 编辑 
+
+这两天批站首页不断推送veibae，不得不说，皮不错，但既视感强烈，她这个live2d是杏🐏的建模师做的？确实感觉很熟悉，但是人设的感觉也很……
+
+

@@ -6582,3 +6582,30 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">涨粉好慢好痛苦，这远征一派就是一整天真是难顶
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 472#       发表于 2021-9-28 12:10
+
+
+ 本帖最后由 xiongxingyu 于 2021-9-28 12:13 编辑 
+
+fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5樱是什么鬼？最最可气的是我甚至歪了两个琴乃把原皮琴乃升到8星了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说麻奈不光不能出去拉客，甚至不能带练？level assist里不能选，不知道有没有大佬试过升上去以后能不能提援助等级，不能的话就有点微妙了，等于要要从练5个变成练6个了。p.s.甚至不能设成名片背景，只有自己看得到的卡面，果然是幽灵写真吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bawula  
+##### 473#       发表于 2021-9-28 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52921585&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-9-28 12:10</a>
+
+fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5樱是什么鬼？最最可气的是我甚至歪了两个琴乃把 ...</blockquote>
+她筛选里默认都是没打勾的状态，你在筛选里打下勾就可以选了
+
+
