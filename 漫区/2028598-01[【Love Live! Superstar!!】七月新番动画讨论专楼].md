@@ -4288,3 +4288,33 @@ BD就收了2，等后面有活动的时候再收1，剩下不收了。
 平安名すみれ生日愉快！！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 322#       发表于 2021-9-28 18:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">水团弹珠联动的碟都能暴死，星团之后扎堆放碟的时候估计也好看不到哪里去
+
+
+*****
+
+####  kbtit  
+##### 323#       发表于 2021-9-28 18:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是日本人都去看vtuber了，
+
+
+*****
+
+####  chenflyyy  
+##### 324#       发表于 2021-9-28 18:24
+
+
+水团这碟初动就剩1w出头了，真的药丸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+明天插2就发售了，看壁吧说预订pt比插1高，贡献了张第6话盘，希望能卖多点吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
