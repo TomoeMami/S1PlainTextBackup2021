@@ -4890,3 +4890,67 @@ syl，星畜这个词啥时候开始出现的，我这边吧内 ...</blockquote>
 楼上还有人还分析的头头是道，闲的。
 
 
+
+
+*****
+
+####  Norkey1  
+##### 374#       发表于 2021-9-29 07:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930922&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-9-29 00:16</a>
+所以才说躺枪了啊，本来虹杂是调侃吹第六话的横田才出现，那时虹杂这词也只是指他一人。第八话炸了之后， ...</blockquote>
+[http://tieba.baidu.com/p/7556850 ... amp;share_from=post](http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=B051617C0F857C46AD1F222590B44A89&amp;st=1632871158&amp;client_type=1&amp;client_version=12.7.8&amp;sfc=copy&amp;share_from=post)
+你这偏架拉的，x杂x畜本来就有辱骂的意味，不会因为它在战吧就是好词了，自嘲和被骂不可一概而论。你看这贴人家就说了个具足虫就被说虹杂，这不是纯纯的扣帽子真不知道什么是扣帽子了…骂人被反击不叫躺枪，是自己犯贱
+
+
+*****
+
+####  型月重工  
+##### 375#       发表于 2021-9-29 07:31
+
+
+ 本帖最后由 型月重工 于 2021-9-29 07:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52931972&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 07:25</a>
+[http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=B051617C0F857C46AD1F222590B44A](http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=B051617C0F857C46AD1F222590B44A) ...</blockquote>
+那贴我也看了，先不说地图炮虹团的那位，层主也不是啥善茬谢谢。
+
+什么叫“还在提具足虫” 这个词不能说吗？提了又怎样？又想往霸凌节奏带是不？
+
+至于地图炮虹团的没啥好说的，非常常见的饭圈粉丝互掐，这种还不算什么，你是没见过缪水时期的“盛况”
+
+
+*****
+
+####  Makinohara  
+##### 376#       发表于 2021-9-29 07:32
+
+
+插入歌第八话盘的cw好好听，就是怎么这么催泪啊，想起了缪的从今以后<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 377#       发表于 2021-9-29 07:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52931996&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-9-29 07:31</a>
+那贴我也看了，先不说地图炮虹团的那位，层主也不是啥善茬谢谢。
+
+什么叫“还在提具足虫” 这个词不能说吗 ...</blockquote>
+这…要说带节奏有点太捕风捉影了…不是“还在提足具虫”而是“左下还在唱足具虫”…然而事实就是如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  型月重工  
+##### 378#       发表于 2021-9-29 07:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932040&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 07:42</a>
+
+这…要说带节奏有点太捕风捉影了…不是“还在提足具虫”而是“左下还在唱足具虫”…然而事实就是如此[f:0 ...</blockquote>
+最近你拉圈谁提具足虫谁就是霸凌谁就是拿童年阴影调侃的风气就别怪别人敏感了，还不是自找的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
