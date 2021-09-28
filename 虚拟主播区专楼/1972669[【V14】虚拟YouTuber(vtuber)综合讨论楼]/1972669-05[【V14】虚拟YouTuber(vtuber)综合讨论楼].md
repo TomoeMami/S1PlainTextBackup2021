@@ -16650,3 +16650,14 @@ stylishnoobさん
 还奇怪crylix怎么挂在了推的趋势上面，原来昨天和哈弟纯桑一起排位了（
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7194#       发表于 2021-9-28 12:01
+
+
+经过10个多小时的折磨，kmt终于大师，hnn还差300多分，吃完饭后准备solo<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

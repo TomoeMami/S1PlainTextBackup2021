@@ -4325,3 +4325,35 @@ SYL：</blockquote>
 她的声音有点深夜电台女主播的感觉，听久了有点腻<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  tn_teana  
+##### 380#       发表于 2021-9-28 11:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tn_teana  
+##### 381#       发表于 2021-9-28 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52920401&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-9-28 10:48</a>
+琳还说寄明月挺好学的，可惜没机会看她跳舞。
+她的声音有点深夜电台女主播的感觉，听久了有点腻 ...</blockquote>
+可能是我电台听的少，现在挺入脑的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tankai  
+##### 382#       发表于 2021-9-28 11:52
+
+
+这是南京原力制作的3D皮吧。
+
+
