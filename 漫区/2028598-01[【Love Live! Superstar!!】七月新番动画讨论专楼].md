@@ -4462,3 +4462,27 @@ v4字幕组刚出的广播肉，三人商业互夸
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 338#       发表于 2021-9-28 21:35
+
+
+青山看她聊天什么的都不错，确实配动画感觉和角色货不对板，广播其实也有点怪。
+
+更青涩的三森的感觉？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kata魂  
+##### 339#       发表于 2021-9-28 21:36
+
+
+难道不是成熟的pile吗
+
+

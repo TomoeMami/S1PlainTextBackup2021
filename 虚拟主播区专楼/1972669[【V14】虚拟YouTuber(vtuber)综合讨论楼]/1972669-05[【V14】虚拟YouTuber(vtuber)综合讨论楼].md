@@ -16971,3 +16971,26 @@ SYL：
 不过他还是奈罗花的valo师傅，关系这么近也不一定
 
 
+
+
+*****
+
+####  winda  
+##### 7215#       发表于 2021-9-28 21:30
+
+
+VSPO这边关于代打的补丁公告也有了，阿裁新视频也出了，这事最热闹的时候估计就是30号的公式大会了
+
+<img src="https://img.saraba1st.com/forum/202109/28/212850q01pabv41ddd9pf1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAXtA_4UYAcAnf8.jpg</strong> (231.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-28 21:28 上传
+
+
+[https://youtu.be/OtTc7wXMWz4](https://youtu.be/OtTc7wXMWz4)
+
+

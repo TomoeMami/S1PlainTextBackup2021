@@ -1109,3 +1109,17 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 但你mb怎么不能整一个
 
 
+
+
+*****
+
+####  シャル  
+##### 91#       发表于 2021-9-28 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52928236&amp;ptid=2026924" target="_blank">zakki 发表于 2021-9-28 20:22</a>
+
+格斗游戏，还就13个人，还想要多大啊，想想fex的容量</blockquote>
+可以整些其他的甜进去呢
+
+
