@@ -4349,3 +4349,25 @@ BD就收了2，等后面有活动的时候再收1，剩下不收了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新一期的广播还在复刻千记不住堇名字的操作 小丑竟是观众
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 328#       发表于 2021-9-28 20:20
+
+
+在战吧看到有用虹杂星畜互骂的，拉拉现在在国内都糊成这样了，不同企划之间竟然都还能吵起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xpisces  
+##### 329#       发表于 2021-9-28 20:23
+
+
+企划=宗教
+
+教徒互相图图异端不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

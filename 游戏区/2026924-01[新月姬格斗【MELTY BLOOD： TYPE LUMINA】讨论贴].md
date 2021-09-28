@@ -1076,3 +1076,36 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 啊，确实忘了注意日文这边了。官网写的也是暴走，是我疏忽了。
 
 
+
+
+*****
+
+####  シャル  
+##### 88#       发表于 2021-9-28 20:17
+
+
+妈的，才2.79G<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 89#       发表于 2021-9-28 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52928167&amp;ptid=2026924" target="_blank">シャル 发表于 2021-9-28 20:17</a>
+妈的，才2.79G</blockquote>
+格斗游戏，还就13个人，还想要多大啊，想想fex的容量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Booorunestud  
+##### 90#       发表于 2021-9-28 20:23
+
+
+夜下降生现在已经臃肿到21g了
+虽然是因为有个很消磨人生的编年史剧情模式
+但你mb怎么不能整一个
+
+

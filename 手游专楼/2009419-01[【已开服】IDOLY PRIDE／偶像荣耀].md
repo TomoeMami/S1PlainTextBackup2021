@@ -6857,3 +6857,14 @@ fes池井了虽说为了升星我本来也是打算井的，但是200抽0麻奈5
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  rosental  
+##### 493#       发表于 2021-9-28 20:22
+
+
+song for you也实装了啊，真好啊真好<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
