@@ -5221,3 +5221,18 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 你可以有想法，只要你觉得是那就是吧，被骂都是自找的。我可不回复你了，再下去就是胡搅蛮缠了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 398#       发表于 2021-9-29 09:17
+
+
+不来个lovelive新剧场版 ：丨丨估计这事是消停不了了。
+
+说到底花田菜是原罪。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -17069,3 +17069,26 @@ hnn，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/1
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  winda  
+##### 7223#       发表于 2021-9-29 09:23
+
+
+<blockquote>・CRオーナーらによるスマーフ及び八雲べにブースティング発覚
+・八雲べにスマーフ言及ツイート削除
+・CR運営からの謝罪文は無し(個人の謝罪のみ)
+・八雲べに代行疑惑(キーバインドが変更されてる)
+・chelsyfps(代行彼氏疑惑の元プロ)のvcに八雲べに(前世のりんこ)
+・chelsyfps動画大量削除
+・chelsyfpsとrionは友人(その他プロとも繋がりあり)
+・Rionら(プロ)と裏で繋がってるvtuber多勢
+・CR_Rion自粛中にも関わらず通常通り動画投稿
+・CR_Rionによるスマーフ及び花芽すみれ(元カノ)のブースティング
+・CR_Rionによるスマーフ及び天月のブースティング
+・ZETA_takejによる過去ブースト発言ツイート</blockquote>
+连代打嫌疑人前男友都挖了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
