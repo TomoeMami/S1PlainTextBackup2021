@@ -5884,3 +5884,19 @@ edit ...</blockquote>
 这个月的星声优访谈是nako，鲤鱼居然放最后阿
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 444#       发表于 2021-9-30 01:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52944438&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-9-30 00:27</a>
+
+妈耶，这楼是不想要了吗………………
+
+默然大佬图透出来了，音响协力菜宝参加企划的时间直接3年前， ...</blockquote>
+那是在说虹的事，跟星有什么关系……
+
+
