@@ -981,3 +981,14 @@ OLED版Lite，价格下去的话还真的可以考虑整一个试试
 oled颜色好像过饱和了，ns的游戏应该是基于srgb开发的吧，oled版不限制色域只能说见仁见智了
 
 
+
+
+*****
+
+####  zhouaa  
+##### 89#       发表于 2021-9-29 08:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不管怎么样 大屏就是正义   前提是不涨价
+
+

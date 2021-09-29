@@ -5068,3 +5068,106 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  型月重工  
+##### 388#       发表于 2021-9-29 08:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932319&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-29 08:22</a>
+
+差不多就行了，星团从后面剧情拉垮开始谁都来踩一脚，下礼拜还要被销量锤，自己人就不要被某些上头的也给拐 ...</blockquote>
+水团联动曲那PV质量销量都能糊成那样说明你拉气数已尽，还有什么好怕的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 389#       发表于 2021-9-29 08:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932356&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-9-29 08:25</a>
+你不是说话前后矛盾？ 双标？
+
+你楼下是不是说要允许两种声音？
+
+那好我就质疑层主在带节奏怎么了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你能不能仔细看，我不允许你质疑了吗，“不攻击别人的看法”懂吗？你当然可以质疑带节奏，我也可以说你捕风捉影，但是辱骂就是辱骂，有什么可洗的
+
+
+*****
+
+####  型月重工  
+##### 390#       发表于 2021-9-29 08:34
+
+
+ 本帖最后由 型月重工 于 2021-9-29 08:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932415&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 08:31</a>
+
+你能不能仔细看，我不允许你质疑了吗，“不攻击别人的看法”懂吗？你当然可以质疑带节奏，我也可 ...</blockquote>
+我辱骂谁了？ 
+
+我洗谁了？ 
+
+辱骂虹的不是我
+
+我也没给谁洗地
+
+是谁干的去找谁谢谢
+
+还是说你觉得我质疑层主带节奏就等于给骂虹的洗地？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Norkey1  
+##### 391#       发表于 2021-9-29 08:38
+
+
+“我从来没觉得他是受害者”
+“层主也不是什么善茬”
+“还不是自找的”
+这是质疑还是定性我暂时蒙在鼓里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  型月重工  
+##### 392#       发表于 2021-9-29 08:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932465&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 08:38</a>
+
+“我从来没觉得他是受害者”
+
+“层主也不是什么善茬”
+
+“还不是自找的”</blockquote>
+开始咬文嚼字玩文字游戏了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 393#       发表于 2021-9-29 08:42
+
+
+…………都去吃早餐吧…
+
+
+*****
+
+####  Norkey1  
+##### 394#       发表于 2021-9-29 08:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932491&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-9-29 08:41</a>
+开始咬文嚼字玩文字游戏了是吧</blockquote>
+这可都是你自己说的，我又听不到你说话当然只能看文字啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不然你承认自己表述有问题也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
