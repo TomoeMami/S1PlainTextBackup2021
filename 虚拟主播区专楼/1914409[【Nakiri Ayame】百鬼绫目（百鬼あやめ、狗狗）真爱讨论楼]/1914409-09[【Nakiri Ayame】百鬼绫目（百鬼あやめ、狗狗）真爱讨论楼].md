@@ -14507,3 +14507,36 @@ EDF！EDF！！！！
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">大概率是去Mio家吧
 
 
+
+
+*****
+
+####  nian1538  
+##### 13230#       发表于 2021-9-29 14:52
+
+
+JST22点和Korosan二人世界
+
+
+
+
+*****
+
+####  Fami水  
+##### 13231#       发表于 2021-9-29 14:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还在想这个💗是谁，原来就两个人
+
+
+*****
+
+####  nian1538  
+##### 13232#       发表于 2021-9-29 15:06
+
+
+恰玛晚上要和润润做菜呢
+
+不过听说好像和Korosan也约了联动的样子
+
+
