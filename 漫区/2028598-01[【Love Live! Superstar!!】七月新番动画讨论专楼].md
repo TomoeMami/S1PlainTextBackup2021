@@ -5599,3 +5599,32 @@ B站直播时直言去下载《美少女梦工厂2》打不开，日本人听到
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 424#       发表于 2021-9-29 16:51
+
+
+ 本帖最后由 qratosone 于 2021-9-29 16:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52938462&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-9-29 15:55</a>
+
+怎么说呢，鲤鱼对国内互联网环境太熟悉了，国内大多数人怎么 “听”  她都门清的。
+
+
+连她自己都是想玩游戏 ...</blockquote>
+其实国区Apple Music算是正版，能听到（虽然要晚一段时间才能上）
+
+
+*****
+
+####  lj205  
+##### 425#       发表于 2021-9-29 16:59
+
+
+ 本帖最后由 lj205 于 2021-9-29 17:06 编辑 
+
+阿婆音乐终于上架了
+
+

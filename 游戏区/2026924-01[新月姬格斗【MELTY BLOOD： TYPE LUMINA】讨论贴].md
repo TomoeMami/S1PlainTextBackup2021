@@ -1595,3 +1595,76 @@ MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的
 这里是MB 该滚的是你们月姬角色吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  axl3ds  
+##### 134#       发表于 2021-9-29 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52936407&amp;ptid=2026924" target="_blank">Booorunestud 发表于 2021-9-29 13:05</a>
+
+姑且打听一下，有没有人知道日版有没有中文</blockquote>
+有中文，日版自带日文、中文、韩文、英文
+
+
+*****
+
+####  dualist  
+##### 135#       发表于 2021-9-29 16:52
+
+
+这波啊是联动琥珀Ace<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> ，马上红Saber Rider入场，靠琥珀人脉叫来的，也没毛病 
+
+
+*****
+
+####  lurenasa  
+##### 136#       发表于 2021-9-29 16:55
+
+
+想了想曾经fe加公主，现在mb加saber，风水轮流转<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  axl3ds  
+##### 137#       发表于 2021-9-29 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52937811&amp;ptid=2026924" target="_blank">usoulo 发表于 2021-9-29 15:02</a>
+
+这个参战角色数量，只能用悲剧来形容。
+
+MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的BLUE， ...</blockquote>
+白莲是青子做出来的，而且莲没出来也不可能有白莲。五月MB的剧情里会出现，会不会成为可用角色不明，七夜剧情完全没涉及到，本身也是月姬FD的歌月十夜里出现的，参战可能性低。
+
+红魔和都古在月姬R里有提到名字，虽然没登场但是不影响剧情发展所以放了（大概）。虽然都古有个穿着熊猫装的七夜师傅而且还作为大招演出登场了（没出现人，safe）
+
+目前最惨的还是MB第一女主Sion，毕竟当年UNI用的素材就是MBHD开发一半做出来的。
+
+
+*****
+
+####  dualist  
+##### 138#       发表于 2021-9-29 17:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">不要慌 一定五月是隐藏角色，剧情模式通关后解放
+
+
+*****
+
+####  axl3ds  
+##### 139#       发表于 2021-9-29 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939193&amp;ptid=2026924" target="_blank">lurenasa 发表于 2021-9-29 16:55</a>
+
+想了想曾经fe加公主，现在mb加saber，风水轮流转</blockquote>
+但是FE那个世界观加谁都可以，月姬的世界观蘑菇自己都说和fate分离了还这么搞（而且联动的角色品味真的差
+
+那个重视世界观的型月去哪了
+
+
