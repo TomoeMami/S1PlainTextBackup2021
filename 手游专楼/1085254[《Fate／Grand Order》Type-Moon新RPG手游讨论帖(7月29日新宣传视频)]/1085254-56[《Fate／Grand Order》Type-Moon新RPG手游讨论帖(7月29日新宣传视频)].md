@@ -16802,3 +16802,17 @@ MB联动看来快了<img src="https://static.saraba1st.com/image/smiley/face2017
 今后不知道会不会轮到水BB复刻……
 
 
+
+
+*****
+
+####  holyblood  
+##### 83899#       发表于 2021-9-30 06:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52940724&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-29 19:01</a>
+
+丢了个10连无事发生  说好的shuanghuang梵高+魔总呢</blockquote>
+欧皇平时都是十连五宝收工么<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
