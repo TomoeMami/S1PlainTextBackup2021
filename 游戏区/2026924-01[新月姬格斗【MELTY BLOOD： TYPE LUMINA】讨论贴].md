@@ -1668,3 +1668,28 @@ MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的
 那个重视世界观的型月去哪了
 
 
+
+
+*****
+
+####  人形灾害  
+##### 140#       发表于 2021-9-29 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939290&amp;ptid=2026924" target="_blank">axl3ds 发表于 2021-9-29 17:03</a>
+但是FE那个世界观加谁都可以，月姬的世界观蘑菇自己都说和fate分离了还这么搞（而且联动的角色品味真的差 ...</blockquote>
+月姬存在二十七祖的世界不可能召唤英灵这点我就看他怎么圆（说不定还是直接吃书
+
+
+*****
+
+####  dualist  
+##### 141#       发表于 2021-9-29 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939337&amp;ptid=2026924" target="_blank">人形灾害 发表于 2021-9-29 17:08</a>
+
+月姬存在二十七祖的世界不可能召唤英灵这点我就看他怎么圆（说不定还是直接吃书 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">梦世界 琥珀的Ace之梦
+
+
