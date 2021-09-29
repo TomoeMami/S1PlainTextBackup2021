@@ -1816,3 +1816,43 @@ steamNSPS5买哪个版本好一点？
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">魔法少女琥珀：黑幕就是在下。身为型月第一强的人召唤蓝saber很简单的啦
 
 
+
+
+*****
+
+####  pgain2004  
+##### 152#       发表于 2021-9-29 19:50
+
+
+动画看得少，有人觉得呆毛这个咖喱棒大招喊得太有气无力了吗……
+
+
+*****
+
+####  Narrative  
+##### 153#       发表于 2021-9-29 19:56
+
+
+pc怎么还没有价格<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sgssk  
+##### 154#       发表于 2021-9-29 19:59
+
+
+ 本帖最后由 sgssk 于 2021-9-29 20:00 编辑 
+
+编辑
+
+
+*****
+
+####  zxtree  
+##### 155#       发表于 2021-9-29 19:59
+
+
+剑有点短啊，成匕首了
+
+
