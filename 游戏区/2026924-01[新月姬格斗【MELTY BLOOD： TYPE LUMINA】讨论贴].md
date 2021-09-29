@@ -2044,3 +2044,64 @@ ps解锁了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  真实之影  
+##### 170#       发表于 2021-9-30 01:12
+
+
+PC啥时解锁？
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 171#       发表于 2021-9-30 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52944807&amp;ptid=2026924" target="_blank">真实之影 发表于 2021-9-30 01:12</a>
+
+PC啥时解锁？</blockquote>
+好像是下午三点
+
+
+*****
+
+####  任天索尼子  
+##### 172#       发表于 2021-9-30 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52944487&amp;ptid=2026924" target="_blank">シャル 发表于 2021-9-30 00:32</a>
+
+打完了，呆毛没说是谁召唤的，我看是世界本身召唤出来的
+
+
+在城市里打架搞破坏 ...</blockquote>
+我说啥来着，客串角色别想太多。
+
+
+*****
+
+####  不垃圾屌丝  
+##### 173#       发表于 2021-9-30 01:22
+
+
+ 本帖最后由 不垃圾屌丝 于 2021-9-30 01:25 编辑 
+
+七夜DLC还有盼头，在都古的LA里会出现一下<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+第七圣典加了新形态了啊
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  红魔馆的糖  
+##### 174#       发表于 2021-9-30 01:25
+
+
+这连打我超，逼着你精准输入么
+
+
