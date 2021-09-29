@@ -5642,3 +5642,38 @@ B站直播时直言去下载《美少女梦工厂2》打不开，日本人听到
 这么快就上了？我还以为又要拖好久
 
 
+
+
+*****
+
+####  lj205  
+##### 427#       发表于 2021-9-29 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939429&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-9-29 17:14</a>
+
+这么快就上了？我还以为又要拖好久</blockquote>
+插1就挺准时的，这张应该也是，但是藏的挺深，在单曲EP栏里没有，只有在热门歌曲清单那里才显示
+
+
+*****
+
+####  qratosone  
+##### 428#       发表于 2021-9-29 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939584&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-29 17:27</a>
+
+插1就挺准时的，这张应该也是，但是藏的挺深，在单曲EP栏里没有，只有在热门歌曲清单那里才显示 ...</blockquote>
+看到了，确实不太好找
+
+
+*****
+
+####  lj205  
+##### 429#       发表于 2021-9-29 17:36
+
+
+6号有生放
+
+

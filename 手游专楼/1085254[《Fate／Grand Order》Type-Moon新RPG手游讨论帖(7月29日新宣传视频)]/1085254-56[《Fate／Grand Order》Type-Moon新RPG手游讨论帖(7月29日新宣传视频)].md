@@ -16739,3 +16739,27 @@ MB联动看来快了<img src="https://static.saraba1st.com/image/smiley/face2017
 幕间，呵呵
 
 
+
+
+*****
+
+####  yzj134100  
+##### 83894#       发表于 2021-9-29 17:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MB能放SABER，那么FGO也···
+
+
+*****
+
+####  exiaexa  
+##### 83895#       发表于 2021-9-29 17:24
+
+
+ 本帖最后由 exiaexa 于 2021-9-29 17:25 编辑 
+
+这俩强化，本体还算凑活，alter这个也太感动人心了
+
+成功打消了补宝的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
