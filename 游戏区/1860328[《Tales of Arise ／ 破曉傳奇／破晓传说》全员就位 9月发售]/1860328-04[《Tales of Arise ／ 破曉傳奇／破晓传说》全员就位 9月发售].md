@@ -17161,3 +17161,17 @@ tob已经打完了，主要就是冲着tob还不错的体验首发的toar
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  法拉  
+##### 5763#       发表于 2021-9-30 01:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52943477&amp;ptid=1860328" target="_blank">chiefshi 发表于 2021-9-29 22:40</a>
+
+魔装备的攻击力去哪里刷好点，周黑鸭什么的都没怎么用过，和终极装备属性差了一大截 ...</blockquote>
+竞技场初级啊，一直按普攻就可以了
+
+

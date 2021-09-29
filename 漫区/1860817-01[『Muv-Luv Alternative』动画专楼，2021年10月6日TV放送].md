@@ -9069,3 +9069,26 @@ TVアニメ『マブラヴ オルタネイティヴ』
 当然只有前两集能看后面拉了也有可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 631#       发表于 2021-9-30 02:55
+
+
+说到声优，刚才在想子安要不要换，然后再一想不对alt有个屁的子安<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hacisiki  
+##### 632#       发表于 2021-9-30 04:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945143&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-9-30 02:55</a>
+
+说到声优，刚才在想子安要不要换，然后再一想不对alt有个屁的子安</blockquote>
+沙雾和一文字是一个CV啊，还都在ALT里出场了的。虽然一文字在游戏里只出了个声音。
+
+
