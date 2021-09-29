@@ -17081,3 +17081,17 @@ tob已经打完了，主要就是冲着tob还不错的体验首发的toar
 第一次接触传说系列。最开始看到R1小剧场还觉得挺新鲜的、像在看漫画。后来走两步一个R1有点不耐烦了。。而且对话太多围绕着“我不配战斗”，“我之后该怎么办”，多了真的很烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我还是喜欢FF7RE那种边走/跑边说的流畅对话
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5757#       发表于 2021-9-29 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52933935&amp;ptid=1860328" target="_blank">莓胸莓屁股 发表于 2021-9-29 10:27</a>
+第一次接触传说系列。最开始看到R1小剧场还觉得挺新鲜的、像在看漫画。后来走两步一个R1有点不耐烦了。。而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说这次这个对话风格算是本作特色了
+以往的都是搞笑类型的轻松风格的对话小剧场
+
+
