@@ -1212,3 +1212,80 @@ MB型光<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" re
 捏麻麻的，军刀都来了，能不能加个有珠进去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  任天索尼子  
+##### 100#       发表于 2021-9-29 11:28
+
+
+这是武内的私货吧 蘑菇自己应该是没什么想法的。可以看看剧情里面的互动台词 不是挺好的么。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Booorunestud  
+##### 101#       发表于 2021-9-29 11:31
+
+
+编辑
+
+
+*****
+
+####  Porsche  
+##### 102#       发表于 2021-9-29 11:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呆毛在如今的fate宇宙里人气很一般了吧，还会有多少人为了她玩mb
+
+
+*****
+
+####  任天索尼子  
+##### 103#       发表于 2021-9-29 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52935067&amp;ptid=2026924" target="_blank">Porsche 发表于 2021-9-29 11:33</a>
+呆毛在如今的fate宇宙里人气很一般了吧，还会有多少人为了她玩mb</blockquote>
+蓝呆毛本人的人气分散到众多马甲里面了 所以不显眼而已 实际人气依然很高。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  猫坤  
+##### 104#         楼主| 发表于 2021-9-29 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52934550&amp;ptid=2026924" target="_blank">Porsche 发表于 2021-9-29 11:00</a>
+
+2.9G不是问题 接下来国内大家等的肯定是更便捷的联机启动器不知道真神还有没有兴趣碰这个，avc也不 ...</blockquote>
+AVC怎么可能会回来玩，人家不是98就是吞食天地
+
+
+*****
+
+####  zakki  
+##### 105#       发表于 2021-9-29 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52935067&amp;ptid=2026924" target="_blank">Porsche 发表于 2021-9-29 11:33</a>
+
+呆毛在如今的fate宇宙里人气很一般了吧，还会有多少人为了她玩mb</blockquote>
+高，就算现在fgo投票本体蓝色呆毛大概率还是第一
+
+
+*****
+
+####  zakki  
+##### 106#       发表于 2021-9-29 11:44
+
+
+我懂了，这波是呆毛去mb把紫苑置换进了fgo，原来这就是mb没紫苑的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
