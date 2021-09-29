@@ -1693,3 +1693,34 @@ MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">梦世界 琥珀的Ace之梦
 
 
+
+
+*****
+
+####  桐野心音  
+##### 142#       发表于 2021-9-29 17:51
+
+
+紫苑属于是被踢出月世界女主了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 143#       发表于 2021-9-29 18:00
+
+
+蘑菇昨天的访谈刚说月姬没从者，今天就吃了？哪有那么快，彩蛋罢了，甚至可能没有剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 144#       发表于 2021-9-29 18:03
+
+
+这蓝呆加进来明显就是没想过要圆，型月第一女主角来你这串个场是给你脸了，还敢有意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要是蓝呆都能圆回来那mb原生角色就没有圆不了的了
+
+
