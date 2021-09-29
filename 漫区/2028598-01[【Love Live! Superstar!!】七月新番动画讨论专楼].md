@@ -5385,3 +5385,18 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 比上集高了点
 
 
+
+
+*****
+
+####  ads147147  
+##### 409#       发表于 2021-9-29 12:46
+
+
+只能说还好，不烂。观感没能拉回来。
+
+所以说78集给恋恋下那么重的设定做什么。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
