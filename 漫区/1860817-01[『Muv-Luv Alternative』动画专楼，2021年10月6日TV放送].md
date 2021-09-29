@@ -9001,3 +9001,16 @@ TVアニメ『マブラヴ オルタネイティヴ』
 2021-9-29 21:17 上传
 
 
+
+
+*****
+
+####  oskneo  
+##### 626#       发表于 2021-9-29 21:25
+
+
+果然栗林不能上吗
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
