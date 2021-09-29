@@ -17402,3 +17402,15 @@ v圈人气高的高玩人设好像总会出事啊
 这届CR杯，感觉有很多点数欺诈，最重要的是bora那队太弱，我很不爽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7248#       发表于 2021-9-29 23:12
+
+
+郡道老公出新皮了恭喜恭喜，月之莉莉姆接sc工商了恭喜恭喜，
+and 小琥珀过生日啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">！
+
+

@@ -16789,3 +16789,16 @@ MB联动看来快了<img src="https://static.saraba1st.com/image/smiley/face2017
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢了个10连无事发生  说好的shuanghuang梵高+魔总呢
 
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 83898#       发表于 2021-9-29 23:16
+
+
+100抽捞了一宝梵高，辛酸跑路……
+
+今后不知道会不会轮到水BB复刻……
+
+
