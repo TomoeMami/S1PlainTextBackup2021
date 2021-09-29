@@ -14562,3 +14562,26 @@ JST22点和Korosan二人世界
 必須的，要是她開台多，我想我現在應該在覆讀「我已經五分鐘沒聽百鬼姐姐講再見宣言1000萬播放的故事」了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  一仙  
+##### 13235#       发表于 2021-9-29 21:09
+
+
+久违的ayameru<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这游戏不3D搞少了点味啊
+
+
+*****
+
+####  Fami水  
+##### 13236#       发表于 2021-9-29 21:11
+
+
+这两人笑起来太魔性了
+
+

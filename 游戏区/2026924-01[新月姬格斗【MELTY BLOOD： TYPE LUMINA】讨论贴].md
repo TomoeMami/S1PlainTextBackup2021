@@ -1904,3 +1904,14 @@ steamNSPS5买哪个版本好一点？</blockquote>
 N+C那个版本不怎么好看啊
 
 
+
+
+*****
+
+####  nanjolno  
+##### 160#       发表于 2021-9-29 21:22
+
+
+这次MB琥珀出场可是连圣晶石都秀给你看的，召唤个军刀又怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
