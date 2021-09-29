@@ -2154,3 +2154,18 @@ PC啥时解锁？</blockquote>
 这游戏能跨平台吗
 
 
+
+
+*****
+
+####  Porsche  
+##### 180#       发表于 2021-9-30 06:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945167&amp;ptid=2026924" target="_blank">ロラン・ローラ 发表于 2021-9-30 03:13</a>
+新建了个群，欢迎加入
+
+37196751</blockquote>
+你确定是这个群号吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
