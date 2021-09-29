@@ -1333,3 +1333,43 @@ AVC怎么可能会回来玩，人家不是98就是吞食天地
 姑且打听一下，有没有人知道日版有没有中文
 
 
+
+
+*****
+
+####  tttabc1  
+##### 111#       发表于 2021-9-29 13:09
+
+
+艹，看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕改成只猫都不至于这样
+
+
+*****
+
+####  帕林马哲理  
+##### 112#       发表于 2021-9-29 13:13
+
+
+看到saber又想起crucis fatal fake了，这个纯爱好同人比所有fate的商业格斗游戏加起来都好玩，唉。
+
+
+*****
+
+####  基因之蛇  
+##### 113#       发表于 2021-9-29 13:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">就不能弄个青子橙子互轰么，往空境联动都比往FATE联动要强，或者往夜下联动把ELTNUM加进来也可以
+
+
+*****
+
+####  asclepiusz  
+##### 114#       发表于 2021-9-29 13:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真是想不到，真有你的啊，我瞬间就不想玩了
+
+
