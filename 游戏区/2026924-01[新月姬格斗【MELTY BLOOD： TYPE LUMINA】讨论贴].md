@@ -1869,3 +1869,38 @@ steamNSPS5买哪个版本好一点？</blockquote>
 能加群约战买steam，纯自闭打匹配买ps，格斗游戏不考虑ns
 
 
+
+
+*****
+
+####  dualist  
+##### 157#       发表于 2021-9-29 20:30
+
+
+问题来了 有S1月姬格斗群吗
+
+
+*****
+
+####  シャル  
+##### 158#       发表于 2021-9-29 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52941073&amp;ptid=2026924" target="_blank">dualist 发表于 2021-9-29 19:30</a>
+
+魔法少女琥珀：黑幕就是在下。身为型月第一强的人召唤蓝saber很简单的啦 ...</blockquote>
+对了，忘了这个大黑幕，制造一个召唤机器好像不是啥大不了的
+
+
+*****
+
+####  adretyu67  
+##### 159#       发表于 2021-9-29 20:34
+
+
+蓝saber的动作莫名其妙像是隔壁N+C格斗穿过来的。。。。
+
+
+N+C那个版本不怎么好看啊
+
+
