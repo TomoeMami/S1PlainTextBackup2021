@@ -1856,3 +1856,16 @@ pc怎么还没有价格<img src="https://static.saraba1st.com/image/smiley/face2
 剑有点短啊，成匕首了
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 156#       发表于 2021-9-29 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52941041&amp;ptid=2026924" target="_blank">BigLittle1999 发表于 2021-9-29 19:27</a>
+steamNSPS5买哪个版本好一点？</blockquote>
+能加群约战买steam，纯自闭打匹配买ps，格斗游戏不考虑ns
+
+
