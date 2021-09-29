@@ -9014,3 +9014,20 @@ TVアニメ『マブラヴ オルタネイティヴ』
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 627#       发表于 2021-9-29 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52942615&amp;ptid=1860817" target="_blank">oskneo 发表于 2021-9-29 21:25</a>
+
+果然栗林不能上吗
+
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+翻翻看以前的Gal，后面很多大牌都请不动了。比如水树奈奈<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+

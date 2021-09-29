@@ -17300,3 +17300,41 @@ hnn，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/1
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 7240#       发表于 2021-9-29 21:50
+
+
+Nyanners也太懂了，我一直觉得这只应该归类为“英语叫chuang系vtuber”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">    
+
+
+新衣服+新头饰+新饰品，哥特萝莉吸血鬼，这个倒不重要（噗
+
+
+主要是顺带加了1.可选皮肤：绷带；2.可开关的黑眼圈；3.新发型（比如浅色长双马尾
+
+
+黑眼圈绷带双马尾💗💗眼，药劲儿也太猛了，什么drug系本子设定，我太行了（这货叫chuang越来越熟练了啊喂
+
+
+*****
+
+####  ヒトニナル  
+##### 7241#       发表于 2021-9-29 21:56
+
+
+裁狗这是被虹和杏混合双打吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 7242#       发表于 2021-9-29 22:00
+
+
+看来还是cover下手狠啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

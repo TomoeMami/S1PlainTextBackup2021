@@ -793,3 +793,58 @@ an小芦实力角度要抽是吧？打算抽一下试试</blockquote>
 （虽然猜到后面的真相大概是啥应该还是会很沙雕
 
 
+
+
+*****
+
+####  overmind00  
+##### 6059#       发表于 2021-9-29 21:50
+
+
+借助战看了下,其实背面和侧面还是能看的:
+
+<img src="https://img.saraba1st.com/forum/202109/29/214903avrnqztnlllutxs7.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210929214340.png</strong> (58.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 21:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/29/214904lngajak2s8gqggkk.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210929214347.png</strong> (98.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 21:49 上传
+
+
+*****
+
+####  江戸前ルナ  
+##### 6060#       发表于 2021-9-29 21:55
+
+
+ 本帖最后由 江戸前ルナ 于 2021-9-29 21:58 编辑 
+
+这妹子的上身虽然是翅膀但技能是防反，按的时候会像蝙蝠一样收起来，再配SP的镰刀就非常死神高达<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可惜常态不是镰刀
+
+<img src="https://img.saraba1st.com/forum/202109/29/215756w9gdgctdt5xsz5v2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAcSoCYVQAEtdn2.jpg</strong> (165.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 21:57 上传
+
+
+[https://twitter.com/team_tawara/status/1443142697150128133](https://twitter.com/team_tawara/status/1443142697150128133)
+
+[https://twitter.com/siki__yuyu/status/1443127587425775619](https://twitter.com/siki__yuyu/status/1443127587425775619)
+
+
