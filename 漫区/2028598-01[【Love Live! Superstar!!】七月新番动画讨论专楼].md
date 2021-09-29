@@ -5448,3 +5448,62 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 评论区那么在乎口水巾的么
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 414#       发表于 2021-9-29 15:24
+
+
+B站的评论基本就是几个烂梗反复玩来玩去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 415#       发表于 2021-9-29 15:25
+
+
+你鲤鱼宣传新CD就是让人多听………………
+
+
+*****
+
+####  cybernetics31  
+##### 416#       发表于 2021-9-29 15:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">阿鱼这滤镜开的…………
+
+
+*****
+
+####  cat1230  
+##### 417#       发表于 2021-9-29 15:35
+
+
+<blockquote>引用第415楼cybernetics31于2021-09-29 15:28发表的  :
+
+阿鱼这滤镜开的…………</blockquote>
+@cybernetics31
+
+不是一直以来的滤镜么，没换过吧
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  黑雪姫  
+##### 418#       发表于 2021-9-29 15:42
+
+
+ 本帖最后由 黑雪姫 于 2021-9-29 15:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52938078&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-29 15:25</a>
+
+你鲤鱼宣传新CD就是让人多听………………</blockquote>
+她其实应该是想说多多支持购买， 但国内没有正规购买渠道，代沟这种灰色领域又不能拿到明面上说，所以只能说多听了。 我猜的。
+
+

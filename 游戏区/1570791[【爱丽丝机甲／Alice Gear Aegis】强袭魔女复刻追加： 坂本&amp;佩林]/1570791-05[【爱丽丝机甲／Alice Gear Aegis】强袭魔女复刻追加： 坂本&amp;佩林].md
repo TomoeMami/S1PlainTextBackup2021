@@ -728,3 +728,14 @@ ANBBA的SP效率很高，最好就是带普通核弹，一满就炸一满就炸�
 这新女演员剪刀的语音语气，如果还是初期解包时的设定是队长势的话，不就是个暗黑小鸟游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  unsh  
+##### 6054#       发表于 2021-9-29 15:45
+
+
+个人剧情，惨。
+
+
