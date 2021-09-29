@@ -5171,3 +5171,53 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 不然你承认自己表述有问题也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  型月重工  
+##### 395#       发表于 2021-9-29 08:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932168&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-9-29 08:02</a>
+
+拉啥偏架哦，这一切本来可以避免的。之前就有说堇不喜欢具足虫，具足虫是堇的阴影霸凌之类的。这个经验值 ...</blockquote>
+风波始作俑者可是泥潭资深坛友。
+
+泥潭出去的能是什么善茬
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  型月重工  
+##### 396#       发表于 2021-9-29 08:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932508&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 08:43</a>
+
+这可都是你自己说的，我又听不到你说话当然只能看文字啊
+
+不然你承认自己表述有问题也行 ...</blockquote>
+想多了。
+
+我就算把质疑换成定性又能怎样。
+
+你不是说要两种声音吗？
+
+我就定性他在带节奏了。
+
+怎么不允许我的想法吗？
+
+
+*****
+
+####  Norkey1  
+##### 397#       发表于 2021-9-29 08:59
+
+
+姐，有台阶下就下了吧。
+你可以有想法，只要你觉得是那就是吧，被骂都是自找的。我可不回复你了，再下去就是胡搅蛮缠了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
