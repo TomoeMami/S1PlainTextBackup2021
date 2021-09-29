@@ -3123,3 +3123,72 @@ https://mall.jd.com/index-10233193.html</blockquote>
 啥情况进来就这话题，今天是和野男人出去玩了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3277#       发表于 2021-9-29 22:21
+
+
+怎么又发作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> time leap?
+
+
+*****
+
+####  路人庚  
+##### 3278#       发表于 2021-9-29 22:23
+
+
+开播前跟朋友装病，朋友说赶快去歇着吧，评论区有人说“真是好男友啊”，然后就开始了（
+
+
+*****
+
+####  yywzjsw  
+##### 3279#       发表于 2021-9-29 22:26
+
+
+迟到半小时，还没唱
+
+
+*****
+
+####  T_Hb  
+##### 3280#       发表于 2021-9-29 22:30
+
+
+ 本帖最后由 T_Hb 于 2021-9-29 22:34 编辑 
+
+今天聊兴有点大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被出警了
+
+
+*****
+
+####  路人庚  
+##### 3281#       发表于 2021-9-29 22:34
+
+
+该歌回警察警察出警了
+
+
+*****
+
+####  路人庚  
+##### 3282#       发表于 2021-9-29 22:36
+
+
+ 本帖最后由 路人庚 于 2021-9-29 22:37 编辑 
+
+买了15箱冰棒？（还是15个来着
+
+
+*****
+
+####  T_Hb  
+##### 3283#       发表于 2021-9-29 22:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉了
+
+

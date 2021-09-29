@@ -1926,3 +1926,26 @@ N+C那个版本不怎么好看啊
 琥珀Ace：这次的经费又被型月摇钱树吃光了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Porsche  
+##### 162#       发表于 2021-9-29 22:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52941934&amp;ptid=2026924" target="_blank">dualist 发表于 2021-9-29 20:30</a>
+问题来了 有S1月姬格斗群吗</blockquote>
+限定s1估计没多少人了
+本来mb这些年就只剩老人了
+
+
+*****
+
+####  dualist  
+##### 163#       发表于 2021-9-29 22:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">开群？这楼里应该大多都是买steam mb的吧
+
+

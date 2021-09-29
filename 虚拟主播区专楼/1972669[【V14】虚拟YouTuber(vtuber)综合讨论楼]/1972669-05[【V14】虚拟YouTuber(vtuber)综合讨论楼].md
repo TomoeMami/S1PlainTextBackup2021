@@ -17338,3 +17338,47 @@ Nyanners也太懂了，我一直觉得这只应该归类为“英语叫chuang系
 看来还是cover下手狠啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7243#       发表于 2021-9-29 22:21
+
+
+cr那边罚的更严啊，多大点事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 7244#       发表于 2021-9-29 22:34
+
+
+ 本帖最后由 IDIDIDID 于 2021-9-29 22:37 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202109/29/223425r6sg7d716mrhagss.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAdEX1xUYAQAiWS.jpg</strong> (184.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 22:34 上传
+
+
+这下立本55开了
+
+
+*****
+
+####  真飞鸟i  
+##### 7245#       发表于 2021-9-29 22:38
+
+
+v圈人气高的高玩人设好像总会出事啊
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
