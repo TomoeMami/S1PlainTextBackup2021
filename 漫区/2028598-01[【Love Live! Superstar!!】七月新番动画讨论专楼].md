@@ -4954,3 +4954,63 @@ syl，星畜这个词啥时候开始出现的，我这边吧内 ...</blockquote>
 最近你拉圈谁提具足虫谁就是霸凌谁就是拿童年阴影调侃的风气就别怪别人敏感了，还不是自找的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Norkey1  
+##### 379#       发表于 2021-9-29 07:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932062&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-9-29 07:46</a>
+最近你拉圈谁提具足虫谁就是霸凌谁就是拿童年阴影调侃的风气就别怪别人敏感了，还不是自找的。 ...</blockquote>
+受害者有罪论，好<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kbtit  
+##### 380#       发表于 2021-9-29 07:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，我听着虹杂星畜怎么这么押韵，这是偷撸圈的梗吗
+
+
+*****
+
+####  型月重工  
+##### 381#       发表于 2021-9-29 07:57
+
+
+ 本帖最后由 型月重工 于 2021-9-29 08:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932092&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 07:51</a>
+
+受害者有罪论，好</blockquote>
+我从来没觉那个层主是受害者，那层的回复就有不少人看出来层主是带霸凌节奏了，就说明有异议的不光只是我谢谢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 382#       发表于 2021-9-29 08:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932092&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 07:51</a>
+
+受害者有罪论，好</blockquote>
+花田鲤鱼都是加害者，建议一起冲，不能双标啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 383#       发表于 2021-9-29 08:02
+
+
+<blockquote>Norkey1 发表于 2021-9-29 07:25
+http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=B051617C0F857C46AD1F222590B44A ...</blockquote>
+拉啥偏架哦，这一切本来可以避免的。之前就有说堇不喜欢具足虫，具足虫是堇的阴影霸凌之类的。这个经验值在解释的过程中变魔怔了，哪个堇推拿具足虫说事他就怼回去。我觉得他可能患上具足虫ptsd了，本来贺图就是有的，他看层主说具足虫以为要带节奏没过脑子说了虹杂，又引起新的节奏，出来一个星畜。这下好了，虹杂变味了，又多了星畜，我感觉被这群傻宝带了两顶帽子，麻了好吧。
+
+
