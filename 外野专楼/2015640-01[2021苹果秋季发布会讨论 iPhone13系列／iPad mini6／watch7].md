@@ -14181,3 +14181,17 @@ https://detail.1688.com/offer/538935779195.html
 话说京东的ac能年年换新吗
 
 
+
+
+*****
+
+####  baoer  
+##### 1243#       发表于 2021-9-29 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52914377&amp;ptid=2015640" target="_blank">囧面超人 发表于 2021-9-27 20:03</a>
+
+买了十张，贴上完美，刚发现阿里巴巴配件这么便宜，感觉损失了一个亿</blockquote>
+这些批发的膜疏油层很差 很快就会很油腻
+
+

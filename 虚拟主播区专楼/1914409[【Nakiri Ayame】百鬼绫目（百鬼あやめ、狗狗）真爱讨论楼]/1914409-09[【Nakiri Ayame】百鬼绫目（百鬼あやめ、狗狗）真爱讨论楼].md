@@ -14551,3 +14551,14 @@ JST22点和Korosan二人世界
 昨天又在念叨她那再见宣言1000W播放了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  寺川愛美  
+##### 13234#       发表于 2021-9-29 19:19
+
+
+必須的，要是她開台多，我想我現在應該在覆讀「我已經五分鐘沒聽百鬼姐姐講再見宣言1000萬播放的故事」了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
