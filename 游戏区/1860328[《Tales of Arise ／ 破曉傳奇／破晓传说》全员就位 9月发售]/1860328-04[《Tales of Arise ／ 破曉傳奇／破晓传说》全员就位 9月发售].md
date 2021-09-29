@@ -17117,3 +17117,14 @@ tob已经打完了，主要就是冲着tob还不错的体验首发的toar
 我以为第三章已经是烂出底线了，妹想到第四章更乐了，洛出来阻止林薇尔的时候属实蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chiefshi  
+##### 5760#       发表于 2021-9-29 22:40
+
+
+魔装备的攻击力去哪里刷好点，周黑鸭什么的都没怎么用过，和终极装备属性差了一大截
+
+

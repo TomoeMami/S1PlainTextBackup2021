@@ -17382,3 +17382,23 @@ v圈人气高的高玩人设好像总会出事啊
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  ヒトニナル  
+##### 7246#       发表于 2021-9-29 23:01
+
+
+这次届CR杯可真是前所未有的热闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶得住吗！白雪レイド！
+
+
+*****
+
+####  Suzutsuki  
+##### 7247#       发表于 2021-9-29 23:05
+
+
+这届CR杯，感觉有很多点数欺诈，最重要的是bora那队太弱，我很不爽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
