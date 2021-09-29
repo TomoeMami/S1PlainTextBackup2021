@@ -1915,3 +1915,14 @@ N+C那个版本不怎么好看啊
 这次MB琥珀出场可是连圣晶石都秀给你看的，召唤个军刀又怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zpsw00000  
+##### 161#       发表于 2021-9-29 22:15
+
+
+琥珀Ace：这次的经费又被型月摇钱树吃光了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
