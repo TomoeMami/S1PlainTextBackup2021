@@ -17141,3 +17141,17 @@ hnn，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/1
 众所周知，B和NGA一直都是净土，容不得这种负面新闻的，谁敢发谁就是野怪
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7228#       发表于 2021-9-29 14:35
+
+
+ 本帖最后由 FCCHua 于 2021-9-29 14:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52936934&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2021-9-29 13:46</a>
+众所周知，B和NGA一直都是净土，容不得这种负面新闻的，谁敢发谁就是野怪 ...</blockquote>
+不过nga虹楼还是有讨论这个事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
