@@ -17414,3 +17414,99 @@ v圈人气高的高玩人设好像总会出事啊
 and 小琥珀过生日啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">！
 
 
+
+
+*****
+
+####  winda  
+##### 7249#       发表于 2021-9-29 23:20
+
+
+<blockquote>IDIDIDID 发表于 2021-9-29 22:34
+这下立本55开了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/29/232004s5f5e5n2ldecd5h0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210929_231906.jpg</strong> (340.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-9-29 23:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/29/232012cncxu38j29uy3pzi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>UI0NW0VGNYZZWJLGWI9.jpg</strong> (187.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-9-29 23:20 上传
+
+
+有了cr的，再补上vspo和拳头的
+
+
+*****
+
+####  poipanchao  
+##### 7250#       发表于 2021-9-29 23:29
+
+
+bora那队其实还好，aim会指挥，虾的胖子好像也还行
+
+
+*****
+
+####  OldGlory  
+##### 7251#       发表于 2021-9-29 23:30
+
+
+[https://fortune.com/2021/09/23/v ... e-nijisanji-vshojo/](https://fortune.com/2021/09/23/virtual-youtuber-vtubers-japan-streaming-hololive-nijisanji-vshojo/)
+
+听君一席话如听一席话
+
+
+*****
+
+####  Suzutsuki  
+##### 7252#       发表于 2021-9-29 23:39
+
+
+ 本帖最后由 Suzutsuki 于 2021-9-29 23:42 编辑 
+
+ras那队怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">然后bora10分，跟ありさか一个分数
+
+
+*****
+
+####  poipanchao  
+##### 7253#       发表于 2021-9-29 23:42
+
+
+不至于，现在ras挺菜的
+
+上次带叶+myk都打不出来
+
+这次king+不破更菜了
+
+
+*****
+
+####  Suzutsuki  
+##### 7254#       发表于 2021-9-29 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52943992&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-9-29 23:42</a>
+
+不至于，现在ras挺菜的
+
+上次带叶+myk都打不出来
+
+这次king+不破更菜了</blockquote>
+实质还是16分，也就是想跟虹2个臭男人拉满热度，脸都不要了，希望能被暴打<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+

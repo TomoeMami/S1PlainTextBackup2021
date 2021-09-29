@@ -5779,3 +5779,46 @@ B站直播时直言去下载《美少女梦工厂2》打不开，日本人听到
 sayurin生日快乐，真的越来越会拍了，太可爱了8<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Skyline_R  
+##### 435#       发表于 2021-9-29 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930289&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-28 23:09</a>
+
+别撇的太干净了，今天刚看到那个叫经验值的骂虹杂的然后才被反击星畜的 ...</blockquote>
+考虑到你缪的(极端)粉丝被称作“缪斯林”，
+
+我本还以为虹团的(极端)粉丝应该被叫作“虹卫兵”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 436#       发表于 2021-9-29 23:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当下这个互联网环境，这称呼找锤呢
+
+
+*****
+
+####  Norkey1  
+##### 437#       发表于 2021-9-29 23:36
+
+
+可不敢乱卫兵<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 438#       发表于 2021-9-29 23:44
+
+
+这可不能乱说的
+
+

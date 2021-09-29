@@ -9042,3 +9042,30 @@ TVアニメ『マブラヴ オルタネイティヴ』
 一直想问，这片子要去哪儿看，叔叔家和爱奇艺都没有，又要回归下载时代了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 629#       发表于 2021-9-29 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52943534&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-9-29 22:46</a>
+
+一直想问，这片子要去哪儿看，叔叔家和爱奇艺都没有，又要回归下载时代了吗 ...</blockquote>
+这种右翼大毒草当然只能网盘独播了，当年恶魔人就是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 630#       发表于 2021-9-29 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52942519&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-9-29 21:17</a></blockquote>
+各位婆罗门当然预期很低，先行上映会的反馈实际上不错。
+
+
+当然只有前两集能看后面拉了也有可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
