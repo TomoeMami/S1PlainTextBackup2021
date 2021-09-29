@@ -1724,3 +1724,73 @@ MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的
 要是蓝呆都能圆回来那mb原生角色就没有圆不了的了
 
 
+
+
+*****
+
+####  信长的呕吐  
+##### 145#       发表于 2021-9-29 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52940023&amp;ptid=2026924" target="_blank">RiesbyfeAtlasia 发表于 2021-9-29 18:03</a>
+这蓝呆加进来明显就是没想过要圆，型月第一女主角来你这串个场是给你脸了，还敢有意见
+
+要是蓝呆都能 ...</blockquote>
+[https://meltyblood.typelumina.com/sp/character/](https://meltyblood.typelumina.com/sp/character/) 官网那个角色简介看着是打算圆的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 146#       发表于 2021-9-29 18:52
+
+
+没有dlc吗
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 147#       发表于 2021-9-29 18:59
+
+
+<img src="https://img.saraba1st.com/forum/202109/29/185803a1veqrqr6wbgireg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (17.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 18:58 上传
+
+
+追寻谜团来到平行世界的骑士王？你也是旧剑？
+
+
+*****
+
+####  シャル  
+##### 148#       发表于 2021-9-29 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939290&amp;ptid=2026924" target="_blank">axl3ds 发表于 2021-9-29 17:03</a>
+
+但是FE那个世界观加谁都可以，月姬的世界观蘑菇自己都说和fate分离了还这么搞（而且联动的角色品味真的差 ...</blockquote>
+所以是新设定
+
+
+*****
+
+####  シャル  
+##### 149#       发表于 2021-9-29 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939337&amp;ptid=2026924" target="_blank">人形灾害 发表于 2021-9-29 17:08</a>
+
+月姬存在二十七祖的世界不可能召唤英灵这点我就看他怎么圆（说不定还是直接吃书 ...</blockquote>
+不能召唤是因为阿赖耶识比盖亚弱，人理低，兽不会出现，不存在冠位召唤式，也就没有英灵召唤了
+
+
+要召唤除非是武藏那样？
+
+
