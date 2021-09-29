@@ -16763,3 +16763,18 @@ MB联动看来快了<img src="https://static.saraba1st.com/image/smiley/face2017
 成功打消了补宝的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qb0079  
+##### 83896#       发表于 2021-9-29 18:23
+
+
+ 本帖最后由 qb0079 于 2021-9-29 18:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">魔神总司这强化还可以啊，5CD3T30宝威，配合双A狐奥伯龙，开2次宝威也能一战了
+
+至于没什么用的OC+2和回避次数从1→2也是聊胜于无，当个添头
+
+
