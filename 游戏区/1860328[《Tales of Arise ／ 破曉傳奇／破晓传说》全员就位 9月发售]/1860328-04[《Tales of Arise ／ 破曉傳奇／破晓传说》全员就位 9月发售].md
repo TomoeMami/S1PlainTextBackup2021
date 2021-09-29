@@ -17042,3 +17042,17 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 不过随着好感度上升，基本通关前刚好大家好感度满了，所以在后面刷的时候一直看同样的对话，有点审美疲劳了
 
 
+
+
+*****
+
+####  武者小路紫苑  
+##### 5754#       发表于 2021-9-29 09:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930144&amp;ptid=1860328" target="_blank">chiefshi 发表于 2021-9-28 22:58</a>
+
+可能是预期不高的原因，剧情还在接受范围内，上限也就内样毕竟，有的东西图一乐就完事了。最终迷宫是真的打 ...</blockquote>
+真の仲間反而掩盖了toz自身品质上的许多问题，甚至让一些人误以为toz是个好游戏只是被宣发害了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">讲真对传说有兴趣的话还是推荐tob
+
+

@@ -5247,3 +5247,16 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 我以为星团能搞个复兴，进楼看还是那个味儿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 400#       发表于 2021-9-29 09:48
+
+
+ 本帖最后由 优妮可 于 2021-9-29 09:54 编辑 
+
+能吵起来也算复兴的一种了，可惜阿b不更，不然评论区更厉害。但十月番又快开播了，到时动画热度就没那么高了。
+
+
