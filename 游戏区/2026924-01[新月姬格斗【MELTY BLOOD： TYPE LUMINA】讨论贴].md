@@ -1584,3 +1584,14 @@ MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的
 防剧透的话dlc要出也没几个人可以出吧 
 
 
+
+
+*****
+
+####  zhliiiii  
+##### 133#       发表于 2021-9-29 16:30
+
+
+这里是MB 该滚的是你们月姬角色吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
