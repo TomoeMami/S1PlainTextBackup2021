@@ -17127,3 +17127,17 @@ hnn，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/1
 说起来b站那个公式号到现在也没搬运这件事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 7227#       发表于 2021-9-29 13:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52935974&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-9-29 12:35</a>
+
+说起来b站那个公式号到现在也没搬运这件事</blockquote>
+众所周知，B和NGA一直都是净土，容不得这种负面新闻的，谁敢发谁就是野怪
+
+
