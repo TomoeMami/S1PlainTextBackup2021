@@ -5507,3 +5507,59 @@ B站的评论基本就是几个烂梗反复玩来玩去<img src="https://static.
 她其实应该是想说多多支持购买， 但国内没有正规购买渠道，代沟这种灰色领域又不能拿到明面上说，所以只能说多听了。 我猜的。
 
 
+
+
+*****
+
+####  lj205  
+##### 419#       发表于 2021-9-29 15:53
+
+
+<blockquote>黑雪姫 发表于 2021-9-29 15:42
+她其实应该是想说多多支持购买， 但国内没有正规购买渠道，代购这种灰色领域又不能拿到明面上说，所以只能 ...</blockquote>
+我觉得用多多支持这种相对中性的词应该也可以，看她宣传fc的时候好像就没咋顾虑的。
+
+
+说起来口水巾这个梗现在看到就烦…………
+
+
+*****
+
+####  黑雪姫  
+##### 420#       发表于 2021-9-29 15:55
+
+
+ 本帖最后由 黑雪姫 于 2021-9-29 16:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52938439&amp;ptid=2028598" target="_blank">lj205 发表于 2021-9-29 15:53</a>
+
+我觉得用多多支持这种相对中性的词应该也可以，看她宣传fc的时候好像就没咋顾虑的。
+
+
+说起来口水巾这个梗 ...</blockquote>
+怎么说呢，鲤鱼对国内互联网环境太熟悉了，国内大多数人怎么“听”  她都门清的。
+
+
+连她自己都是想玩游戏都是去找下载网站去下载来玩。
+
+
+B站直播时直言去下载《美少女梦工厂2》打不开，日本人听到这句话估计匪夷所思。
+
+
+以她目前所在的立场来说她应该是站在版权方的，但她又是从国内互联网爬出来的矛盾综合体。
+
+
+
+
+*****
+
+####  cybernetics31  
+##### 421#       发表于 2021-9-29 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52938213&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-9-29 15:35</a>
+@cybernetics31
+
+不是一直以来的滤镜么，没换过吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，就是想吐槽下，看封面图而且依旧戴了美瞳
+
+

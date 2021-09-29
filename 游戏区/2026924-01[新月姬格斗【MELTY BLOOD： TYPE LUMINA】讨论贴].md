@@ -1542,3 +1542,16 @@ MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的
 确实是防剧透 但是下和歌月怕不是要再十年才能出完mb这是要等本篇十年吗
 
 
+
+
+*****
+
+####  smdzh2  
+##### 129#       发表于 2021-9-29 16:06
+
+
+蓝呆是你月财富密码，百万王厨不可不品<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+紫苑？等加强版再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
