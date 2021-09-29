@@ -1289,3 +1289,25 @@ AVC怎么可能会回来玩，人家不是98就是吞食天地
 我懂了，这波是呆毛去mb把紫苑置换进了fgo，原来这就是mb没紫苑的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 107#       发表于 2021-9-29 11:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">所以今晚的TYPE-MOON TIMES本来是准备公布这个吗，还好偷跑了
+
+狗都不看！紫苑我的紫苑
+
+
+*****
+
+####  onemoment  
+##### 108#       发表于 2021-9-29 11:56
+
+
+怎么还塞了个呆毛进来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
