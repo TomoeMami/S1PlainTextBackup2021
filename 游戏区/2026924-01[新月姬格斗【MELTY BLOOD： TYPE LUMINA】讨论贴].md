@@ -1794,3 +1794,25 @@ MB系列的真女主角呢？白莲黑莲，栗子，包括remake里出过场的
 要召唤除非是武藏那样？
 
 
+
+
+*****
+
+####  BigLittle1999  
+##### 150#       发表于 2021-9-29 19:27
+
+
+steamNSPS5买哪个版本好一点？
+
+
+
+
+*****
+
+####  dualist  
+##### 151#       发表于 2021-9-29 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">魔法少女琥珀：黑幕就是在下。身为型月第一强的人召唤蓝saber很简单的啦
+
+
