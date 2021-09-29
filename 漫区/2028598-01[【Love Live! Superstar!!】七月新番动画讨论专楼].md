@@ -5260,3 +5260,74 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 能吵起来也算复兴的一种了，可惜阿b不更，不然评论区更厉害。但十月番又快开播了，到时动画热度就没那么高了。
 
 
+
+
+*****
+
+####  JustW  
+##### 401#       发表于 2021-9-29 10:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种论战参与进去就干净不了，最好别参与，要是喜欢团建那当我没说。
+
+
+阿b现在都不更估计就不会更了，审核不会这么久的
+
+
+*****
+
+####  Goisdust  
+##### 402#       发表于 2021-9-29 10:06
+
+
+第9集刚看。。感觉这系列已经到头了，整不出新活
+
+
+*****
+
+####  cybernetics31  
+##### 403#       发表于 2021-9-29 10:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就这样吧，复兴？不存在的
+
+
+*****
+
+####  优妮可  
+##### 404#       发表于 2021-9-29 10:18
+
+
+<img src="https://img.saraba1st.com/forum/202109/29/101807mbc7mi7k669kkoqj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928_171401.jpg</strong> (404.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 10:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/29/101808x63kcsksurit1su1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210928_171408.jpg</strong> (377.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 10:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/29/101809trauu6h0crwablwl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210929_093112.jpg</strong> (448.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-29 10:18 上传
+
+
+看点图吃糖
+
+

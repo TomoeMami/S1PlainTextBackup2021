@@ -17056,3 +17056,17 @@ JRPG就是带入自己看戏，演出 &gt; 剧情逻辑 &gt;&gt; 数值平衡游
 真の仲間反而掩盖了toz自身品质上的许多问题，甚至让一些人误以为toz是个好游戏只是被宣发害了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">讲真对传说有兴趣的话还是推荐tob
 
 
+
+
+*****
+
+####  chiefshi  
+##### 5755#       发表于 2021-9-29 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52933442&amp;ptid=1860328" target="_blank">武者小路紫苑 发表于 2021-9-29 09:54</a>
+
+真の仲間反而掩盖了toz自身品质上的许多问题，甚至让一些人误以为toz是个好游戏只是被宣发害了讲 ...</blockquote>
+tob已经打完了，主要就是冲着tob还不错的体验首发的toar
+
+
