@@ -5563,3 +5563,39 @@ B站直播时直言去下载《美少女梦工厂2》打不开，日本人听到
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，就是想吐槽下，看封面图而且依旧戴了美瞳
 
 
+
+
+*****
+
+####  a92063256  
+##### 422#       发表于 2021-9-29 16:13
+
+
+那么有没有可能是鲤鱼面皮薄不好意思说大家多买呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑雪姫  
+##### 423#       发表于 2021-9-29 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52938688&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-9-29 16:13</a>
+
+那么有没有可能是鲤鱼面皮薄不好意思说大家多买呢
+
+
+—— 来自 vivo V1981A, Android 11上的 S1Next- ...</blockquote>
+你去看下她宣传小星星CD的那期。
+
+
+51秒开始 请大家多多..z...听一下哦
+
+
+在 多多 和 听 之前明显卡顿了一下，而且有个发出了支(z)的发音。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
