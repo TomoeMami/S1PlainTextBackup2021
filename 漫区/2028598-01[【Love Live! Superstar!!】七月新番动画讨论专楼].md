@@ -5014,3 +5014,57 @@ http://tieba.baidu.com/p/7556850420?&amp;share=9105&amp;fr=sharewise&amp;unique=
 拉啥偏架哦，这一切本来可以避免的。之前就有说堇不喜欢具足虫，具足虫是堇的阴影霸凌之类的。这个经验值在解释的过程中变魔怔了，哪个堇推拿具足虫说事他就怼回去。我觉得他可能患上具足虫ptsd了，本来贺图就是有的，他看层主说具足虫以为要带节奏没过脑子说了虹杂，又引起新的节奏，出来一个星畜。这下好了，虹杂变味了，又多了星畜，我感觉被这群傻宝带了两顶帽子，麻了好吧。
 
 
+
+
+*****
+
+####  Norkey1  
+##### 384#       发表于 2021-9-29 08:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932127&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-9-29 07:57</a>
+我从来没觉那个层主是受害者，那层的回复就有不少人看出来层主是带霸凌节奏了，就说明有异议的不光只是我 ...</blockquote>
+你的逻辑就是，虽然我没有任何证据证明这几个文字带了节奏，但是因为这楼里有一些人和我一样觉得是带节奏，所以不管我是不是误解，他都是在带节奏<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+所以即使层主没有任何过激的言论被骂虹畜，那都是他自己活该，他完全不是受害者<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 385#       发表于 2021-9-29 08:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932168&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-9-29 08:02</a>
+拉啥偏架哦，这一切本来可以避免的。之前就有说堇不喜欢具足虫，具足虫是堇的阴影霸凌之类的。这个经验值 ...</blockquote>
+只要有依据，任何观点和看法都应该是合理的，只要不强制改变别人看法攻击别人的看法，不同的声音应该被允许…为啥非得让别人赞同“不是霸凌”这个观点，当时我们这楼里也有两种不同看法讨论的不也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 386#       发表于 2021-9-29 08:22
+
+
+差不多就行了，星团从后面剧情拉垮开始谁都来踩一脚，下礼拜还要被销量锤，自己人就不要被某些上头的也给拐进去
+
+
+*****
+
+####  型月重工  
+##### 387#       发表于 2021-9-29 08:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52932227&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-9-29 08:11</a>
+
+你的逻辑就是，虽然我没有任何证据证明这几个文字带了节奏，但是因为这楼里有一些人和我一样觉得是带节奏 ...</blockquote>
+你不是说话前后矛盾？ 双标？
+
+你楼下是不是说要允许两种声音？
+
+那好我就质疑层主在带节奏怎么了？
+
+你不允许这个质疑的存在吗？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
