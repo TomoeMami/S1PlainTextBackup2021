@@ -1402,3 +1402,29 @@ AVC怎么可能会回来玩，人家不是98就是吞食天地
 真的是无几把语...一下就不想买了
 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 118#       发表于 2021-9-29 13:49
+
+
+当年想看这两个联动的时候没动静
+说吧废狗的MB联动什么时候来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  quanlix  
+##### 119#       发表于 2021-9-29 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52936516&amp;ptid=2026924" target="_blank">帕林马哲理 发表于 2021-9-29 13:13</a>
+
+看到saber又想起crucis fatal fake了，这个纯爱好同人比所有fate的商业格斗游戏加起来都好玩，唉。 ...</blockquote>
+这家出过三个fate的同人作，之后是不是就解散了？
+
+
