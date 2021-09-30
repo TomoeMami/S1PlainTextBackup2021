@@ -2962,3 +2962,27 @@ S1娱乐群 37196751
 便捷跑还要推方向，等于按两下，前前也是按两下，等于没有便捷
 
 
+
+
+*****
+
+####  tttabc1  
+##### 244#       发表于 2021-9-30 19:44
+
+
+ 本帖最后由 tttabc1 于 2021-9-30 19:46 编辑 
+
+开场动画这个分辨率哟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有就是怎么才能不让按键的时候弹输入法的框，用的是搜狗...
+
+
+*****
+
+####  Sakaiyuki  
+##### 245#       发表于 2021-9-30 19:46
+
+
+这鸡掰游戏有pc版？爷的700块钱啊……我好死不死买的是ns版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
