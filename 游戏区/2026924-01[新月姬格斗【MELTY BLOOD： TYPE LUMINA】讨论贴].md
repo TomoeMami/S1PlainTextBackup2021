@@ -3062,3 +3062,46 @@ S1娱乐群 37196751
 按学姐线te来的
 
 
+
+
+*****
+
+####  tgwing  
+##### 253#       发表于 2021-9-30 20:45
+
+
+别的都好说，这多按一下就触发自动连段的能给个开关不
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  arikado  
+##### 254#       发表于 2021-9-30 20:45
+
+
+这游戏为什么老是闪退……没法玩了……
+
+
+*****
+
+####  Porsche  
+##### 255#       发表于 2021-9-30 20:55
+
+
+看了眼日区价格：7480
+国区简直是跳楼价
+
+
+*****
+
+####  白银の心  
+##### 256#       发表于 2021-9-30 21:05
+
+
+只有一个秋叶<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

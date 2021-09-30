@@ -1058,3 +1058,119 @@ B站房间号：22529805
 自物语2以来的黑暗终于迎来了曙光<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  医生狼多  
+##### 91#         楼主| 发表于 2021-9-30 21:01
+
+
+开始了
+
+
+*****
+
+####  armagemon  
+##### 92#       发表于 2021-9-30 21:02
+
+
+魔界村联动是吧，靠
+
+
+*****
+
+####  我有一个朋友  
+##### 93#       发表于 2021-9-30 21:03
+
+
+这也能联动的啊……
+
+
+*****
+
+####  医生狼多  
+##### 94#         楼主| 发表于 2021-9-30 21:03
+
+
+官方直播间
+【CAPCOM 东京电玩节2021特别节目-哔哩哔哩直播】 https://b23.tv/6p1u6U
+
+
+*****
+
+####  医生狼多  
+##### 95#         楼主| 发表于 2021-9-30 21:04
+
+
+ 本帖最后由 医生狼多 于 2021-9-30 21:05 编辑 
+
+索尼克<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">联动都挤牙膏吗
+
+
+*****
+
+####  armagemon  
+##### 96#       发表于 2021-9-30 21:05
+
+
+太行了 直接聊天了
+
+
+*****
+
+####  yzqray  
+##### 97#       发表于 2021-9-30 21:05
+
+
+摆烂到sb，哈哈哈
+
+
+*****
+
+####  任天索尼子  
+##### 98#       发表于 2021-9-30 21:06
+
+
+崛起必秒冰原<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 99#       发表于 2021-9-30 21:06
+
+
+以上就是mhr全部新消息<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thecatnie  
+##### 100#       发表于 2021-9-30 21:07
+
+
+预料之中，崛起也就这了，后面配信送点贴图称号什么的就直接混到明年了
+
+
+*****
+
+####  Mikumiku831  
+##### 101#       发表于 2021-9-30 21:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">一个烂的摆
+
+
+*****
+
+####  Humpy  
+##### 102#       发表于 2021-9-30 21:08
+
+
+总算有社外联动，但怎么还这么挤牙膏……
+11月以后如果每个月都来一次社外联动我勉强能接受，但不要都是外观装备啊
+
+—— 来自 HUAWEI NXT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
