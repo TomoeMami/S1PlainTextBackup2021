@@ -6033,3 +6033,46 @@ B站 4-6集 10月2日 晚上8点上
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">该来的还是来了，评论区咋样已经可以预想到了
 
 
+
+
+*****
+
+####  player3960  
+##### 456#       发表于 2021-9-30 12:48
+
+
+4-6还可以吧，及格线以上，还有个不错的幼驯染加live回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+7-8才是灾难，live都救不回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  优妮可  
+##### 457#       发表于 2021-9-30 12:54
+
+
+4-6还行
+
+
+*****
+
+####  chenflyyy  
+##### 458#       发表于 2021-9-30 12:54
+
+
+第4，5集当时评价还是可以的，这作国内口碑开始崩应该是从开播前被吹爆的第6集开始，然后到第8集降到最低点，第9集虽然反弹了些，但看的人明显少了很多
+
+
+*****
+
+####  ads147147  
+##### 459#       发表于 2021-9-30 12:56
+
+
+最起码可以玩梗不是么，反正叙事灾难不代表段子不行。只能这样安慰自己了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
