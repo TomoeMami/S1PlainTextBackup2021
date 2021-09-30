@@ -6345,3 +6345,22 @@ nako和青山都是有舞蹈基础的，强很正常。像是曾经的偶像jk�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  emmerMK2  
+##### 484#       发表于 2021-9-30 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52954440&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-9-30 20:13</a>
+
+我觉得生放送的鲤鱼比她自己直播时开美颜的样子好看多了。
+
+
+可见只要化妆就可以了，完全不需要开美颜，属于 ...</blockquote>
+确实，鲤鱼自己直播那个滤镜有点不自然
+
+其实本身就够可爱啦
+
+

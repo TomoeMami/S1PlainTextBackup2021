@@ -3422,3 +3422,75 @@ https://mall.jd.com/index-10233193.html</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她发推向来会移花接木和夸大化，看一乐
 
 
+
+
+*****
+
+####  Cushaw  
+##### 3305#       发表于 2021-9-30 20:28
+
+
+自演乙是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  路人庚  
+##### 3306#       发表于 2021-9-30 20:30
+
+
+虽然可能没被说的这么厉害但她会脑补自己被说的这么厉害
+
+
+*****
+
+####  T_Hb  
+##### 3307#       发表于 2021-9-30 20:30
+
+
+<img src="https://img.saraba1st.com/forum/202109/30/203037tub8rn8gni10gura.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (43.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-30 20:30 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是被苔总训了
+
+
+*****
+
+####  路人庚  
+##### 3308#       发表于 2021-9-30 20:33
+
+
+苔总也在discord上抓不到人要上推抓人还行（
+
+
+*****
+
+####  草牛  
+##### 3309#       发表于 2021-9-30 20:33
+
+
+我的评价是，早该骂骂了
+
+
+*****
+
+####  clvan_  
+##### 3310#       发表于 2021-9-30 20:39
+
+
+ 本帖最后由 clvan_ 于 2021-9-30 20:40 编辑 
+
+看说法不是苔总啊，苔总只是说可以提供电话叫醒服务，可能是被爸妈训了（
+
+上推抓羊可还行
+
+
