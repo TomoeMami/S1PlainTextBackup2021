@@ -6635,3 +6635,29 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 我的我的，记错了，看着时间表以为还有。
 
 
+
+
+*****
+
+####  宿  
+##### 507#       发表于 2021-10-1 01:35
+
+
+这第九话看的我……中途甚至觉得这团解散得了
+
+
+*****
+
+####  cat1230  
+##### 508#       发表于 2021-10-1 01:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957966&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-10-1 00:59</a>
+
+魔纪不是完结了吗？
+
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+不是才8集吗，没了?
+
+
