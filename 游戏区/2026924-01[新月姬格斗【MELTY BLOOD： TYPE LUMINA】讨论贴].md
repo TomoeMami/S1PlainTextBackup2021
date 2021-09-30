@@ -2750,3 +2750,31 @@ wo
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好的，可以删游戏了
 
 
+
+
+*****
+
+####  obelisk  
+##### 227#       发表于 2021-9-30 15:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950913&amp;ptid=2026924" target="_blank">ロラン・ローラ 发表于 2021-9-30 15:12</a>
+
+最低配置:
+
+操作系统: Windows 10</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">只能指望破解大佬们做个win7补丁了
+
+
+*****
+
+####  yukiness  
+##### 228#       发表于 2021-9-30 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950644&amp;ptid=2026924" target="_blank">雪菜碧池 发表于 2021-9-30 14:49</a>
+
+那是开场语音</blockquote>
+好的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">等下班了
+
+

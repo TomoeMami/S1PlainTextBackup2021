@@ -14585,3 +14585,25 @@ JST22点和Korosan二人世界
 这两人笑起来太魔性了
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13237#       发表于 2021-9-30 15:38
+
+
+[https://holosoku.com/hololive2/47646/](https://holosoku.com/hololive2/47646/)
+
+绫总用的香水 可以体验绫味
+
+
+JILLSTUART
+
+クロエ
+
+LANVIN
+
+Dior(匂わせ)
+
+
