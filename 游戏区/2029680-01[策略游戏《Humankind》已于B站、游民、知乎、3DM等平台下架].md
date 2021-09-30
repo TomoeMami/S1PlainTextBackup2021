@@ -726,3 +726,62 @@ se---ga----
 是啥事件就被封了，没看到任何新闻和消息
 
 
+
+
+*****
+
+####  Mr.BBWoLf  
+##### 63#       发表于 2021-10-1 00:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957509&amp;ptid=2029680" target="_blank">flypig_zhy 发表于 2021-10-1 00:16</a>
+
+然而军事论坛炸了一个又一个，外野都没什么军事帖子了</blockquote>
+可以搜搜官方整的活，玄女计划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这个游戏论坛可以谈
+
+
+当成游戏宣传片毫不违和
+
+
+*****
+
+####  飞姆托  
+##### 64#       发表于 2021-10-1 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957697&amp;ptid=2029680" target="_blank">1096beam 发表于 2021-10-1 00:33</a>
+这种亲者痛仇者快的事情能不能不要再干了好吗</blockquote>
+这时候就该请鲁迅了，你也配是亲？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  CharlieZ-  
+##### 65#       发表于 2021-10-1 00:56
+
+
+隔壁又夹了一个贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实要说预兆还是有的，之前有段时间我看寅子天天在玩人类难度，上瘾的不行，突然有一天说被禁播了，理由也没说，当时就觉得要坏事
+
+
+*****
+
+####  张献忠  
+##### 66#       发表于 2021-10-1 00:56
+
+
+<blockquote>1096beam 发表于 2021-10-1 00:33
+这种亲者痛仇者快的事情能不能不要再干了好吗</blockquote>
+亲不亲阶级分
+
+
+*****
+
+####  onlv星骸  
+##### 67#       发表于 2021-10-1 00:59
+
+
+真是tm吐了，真就任何游戏都不能有一点中国要素呗。对于喜欢中国文化，中国要素的玩家真是打击。
+
+

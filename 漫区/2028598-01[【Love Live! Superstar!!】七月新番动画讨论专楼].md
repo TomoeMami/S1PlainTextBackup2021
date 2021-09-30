@@ -6603,3 +6603,18 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 明天友奈魔纪
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 505#       发表于 2021-10-1 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957808&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-1 00:43</a>
+明天友奈魔纪，后天星团。刺激</blockquote>
+魔纪不是完结了吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
