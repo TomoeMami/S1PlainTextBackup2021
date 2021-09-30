@@ -2866,3 +2866,40 @@ ac老害来支持坤哥了，真没想到还能有新作。
 狂公主的6C到底是不是逆向，怎么一直被防<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 236#       发表于 2021-9-30 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52952553&amp;ptid=2026924" target="_blank">猫坤 发表于 2021-9-30 17:26</a>
+
+大幅更新了基础系统说明，喜欢的就点个赞</blockquote>
+S1娱乐群 37196751
+
+这个可以帮忙更新到主楼么
+
+
+*****
+
+####  icecry  
+##### 237#       发表于 2021-9-30 18:42
+
+
+喷了，随便玩了一下，这连段也太傻瓜式了吧。。。。
+
+
+*****
+
+####  华理傻宅  
+##### 238#       发表于 2021-9-30 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52953450&amp;ptid=2026924" target="_blank">icecry 发表于 2021-9-30 18:42</a>
+
+喷了，随便玩了一下，这连段也太傻瓜式了吧。。。。</blockquote>
+123连段我看下来都是超级差评，这游戏开发的时候就没有听过玩家意见吗
+
+
