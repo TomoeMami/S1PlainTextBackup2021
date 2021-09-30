@@ -2986,3 +2986,26 @@ S1娱乐群 37196751
 这鸡掰游戏有pc版？爷的700块钱啊……我好死不死买的是ns版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  xunit  
+##### 246#       发表于 2021-9-30 20:05
+
+
+这手一多抖一下就直接进入123连，怕不是逼着你精准输入啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 247#       发表于 2021-9-30 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52954147&amp;ptid=2026924" target="_blank">Sakaiyuki 发表于 2021-9-30 19:46</a>
+
+这鸡掰游戏有pc版？爷的700块钱啊……我好死不死买的是ns版</blockquote>
+印象里从公布起就有pc版了
+
+
