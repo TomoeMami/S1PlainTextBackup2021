@@ -17186,3 +17186,18 @@ tob已经打完了，主要就是冲着tob还不错的体验首发的toar
 开始玩了，这游戏到啥进度能有个看着差不多的城镇啊
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5765#       发表于 2021-9-30 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955656&amp;ptid=1860328" target="_blank">EigenVesper 发表于 2021-9-30 21:55</a>
+
+开始玩了，这游戏到啥进度能有个看着差不多的城镇啊</blockquote>
+
+黑皮那<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
