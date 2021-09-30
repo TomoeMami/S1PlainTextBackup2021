@@ -2816,3 +2816,22 @@ wo
 秋叶基本就是f制服，打法差不多
 
 
+
+
+*****
+
+####  obelisk  
+##### 232#       发表于 2021-9-30 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950913&amp;ptid=2026924" target="_blank">ロラン・ローラ 发表于 2021-9-30 15:12</a>
+
+最低配置:
+
+操作系统: Windows 10</blockquote>
+win7的解决方法找到了， 下个xaudio2_9.dll放到游戏根目录下(即和mbtl.exe同目录)就行
+
+这个是我网上随便找的
+[https://appleofeden.de-doc.com/i ... d/xaudio2-9-legacy/](https://appleofeden.de-doc.com/index.php/download/xaudio2-9-legacy/)
+
+
