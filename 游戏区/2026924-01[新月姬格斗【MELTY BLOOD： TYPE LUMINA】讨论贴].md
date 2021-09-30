@@ -2635,3 +2635,32 @@ fgo棉被那动作改模后不是fuc的吗。
 MD，居然还有脑子不正常的聊月世界战力，是嫌fate吧屎不够臭，要来污染别的地方？
 
 
+
+
+*****
+
+####  yukiness  
+##### 217#       发表于 2021-9-30 14:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我想问下这些DLC不买的话。这些角色就没有语音了？
+
+
+*****
+
+####  BigLittle1999  
+##### 218#       发表于 2021-9-30 14:36
+
+
+steam版可以买了，138<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">，比想象当中便宜好多
+
+
+*****
+
+####  usoulo  
+##### 219#       发表于 2021-9-30 14:47
+
+
+DLC全角色开场语音150，本体普通版才138，这DLC怎么定这么高。。。希望日后能出角色DLC，哪怕没有剧情只是对战可选角色也好啊。
+
+
