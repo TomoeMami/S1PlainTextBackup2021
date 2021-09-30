@@ -2566,3 +2566,36 @@ Steam定价是多少？
 顺带现在月光群还活着吗
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 212#       发表于 2021-9-30 11:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52948002&amp;ptid=2026924" target="_blank">Caa 发表于 2021-9-30 11:15</a>
+
+07年的群，求通过一下
+
+顺带现在月光群还活着吗</blockquote>
+07年建群，一直群员0人
+
+月光还活着吧，只是我太久没发言，被清理了
+
+
+*****
+
+####  syndrome2032  
+##### 213#       发表于 2021-9-30 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945921&amp;ptid=2026924" target="_blank">月夕 发表于 2021-9-30 08:39</a>
+不如n+也就算了，甚至不如FGO是最绝的……
+
+两个公主也不太行，武内厨力就这啊
+
+ ...</blockquote>
+fgo棉被那动作改模后不是fuc的吗。
+
+
