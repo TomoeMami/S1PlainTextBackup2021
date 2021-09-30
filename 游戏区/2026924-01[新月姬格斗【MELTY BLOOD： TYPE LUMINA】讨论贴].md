@@ -2903,3 +2903,40 @@ S1娱乐群 37196751
 123连段我看下来都是超级差评，这游戏开发的时候就没有听过玩家意见吗
 
 
+
+
+*****
+
+####  基因之蛇  
+##### 239#       发表于 2021-9-30 18:53
+
+
+这新系统玩吐了，感觉就和当年BBCTB一样的让人无力吐槽
+
+
+*****
+
+####  红魔馆的糖  
+##### 240#       发表于 2021-9-30 19:00
+
+
+我觉得还行
+
+
+如果这连打可以自由开关的话<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  icecry  
+##### 241#       发表于 2021-9-30 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52953470&amp;ptid=2026924" target="_blank">华理傻宅 发表于 2021-9-30 18:45</a>
+
+123连段我看下来都是超级差评，这游戏开发的时候就没有听过玩家意见吗</blockquote>
+这一键连段有点吐了，虽然以前我就吐槽过以后估计会出一个一键连段的格斗游戏，没想到这游戏是mb
+
+
