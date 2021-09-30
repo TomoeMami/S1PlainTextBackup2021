@@ -6222,3 +6222,32 @@ https://b23.tv/YD4qSB
 nako两连冠了吧，音乐科好强
 
 
+
+
+*****
+
+####  kata魂  
+##### 473#       发表于 2021-9-30 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢人的普通科
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 474#       发表于 2021-9-30 17:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下期是要玩什么游戏 都没看懂
+
+
+*****
+
+####  优妮可  
+##### 475#       发表于 2021-9-30 17:59
+
+
+群友提醒，千酱已经转科了。我们普通科真厉害.jpg
+
+
