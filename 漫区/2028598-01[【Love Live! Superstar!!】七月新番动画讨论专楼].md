@@ -6076,3 +6076,44 @@ B站 4-6集 10月2日 晚上8点上
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  优妮可  
+##### 460#       发表于 2021-9-30 13:14
+
+
+最重要的大会员还是会拦了不少观众的
+
+
+*****
+
+####  kbtit  
+##### 461#       发表于 2021-9-30 13:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">第6集不是还行吗，暴雷的是7，8两集
+
+
+*****
+
+####  lj205  
+##### 462#       发表于 2021-9-30 13:18
+
+
+跨年演唱会那个灯颜色真多，到时妹子在台上跳，台下人忙着对颜色切灯~
+
+
+不过价钱看着不贵，毕竟星团灯也就便宜300日币
+
+
+*****
+
+####  chenflyyy  
+##### 463#       发表于 2021-9-30 13:21
+
+
+第6集主要是开播前被staff吹爆（全人类都来看的一集），拉高了观众的期待值，结果播出后就这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
