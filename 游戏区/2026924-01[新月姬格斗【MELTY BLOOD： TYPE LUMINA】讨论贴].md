@@ -2218,3 +2218,32 @@ PC啥时解锁？</blockquote>
 军刀真系型月世界蟑螂，哪里都出来恶心人一下mmp
 
 
+
+
+*****
+
+####  任天索尼子  
+##### 186#       发表于 2021-9-30 08:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945624&amp;ptid=2026924" target="_blank">绯樱月姬 发表于 2021-9-30 07:59</a>
+军刀真系型月世界蟑螂，哪里都出来恶心人一下mmp</blockquote>
+棉被给你月赚了这么多钱  请去骂武内
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  月夕  
+##### 187#       发表于 2021-9-30 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945584&amp;ptid=2026924" target="_blank">小李子大脸猫 发表于 2021-9-30 07:50</a>
+
+看了LA的演出，有好有坏，想不到的是坏的里居然还有呆毛的，呆毛参战了这么多次，所有制作方还是做不出应该 ...</blockquote>
+不如n+也就算了，甚至不如FGO是最绝的……
+
+两个公主也不太行，武内厨力就这啊
+
+
