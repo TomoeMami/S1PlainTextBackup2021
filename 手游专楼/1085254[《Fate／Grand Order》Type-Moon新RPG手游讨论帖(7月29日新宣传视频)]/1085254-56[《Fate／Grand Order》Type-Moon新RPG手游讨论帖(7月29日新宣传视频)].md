@@ -16865,3 +16865,41 @@ MB能放SABER，那么FGO也···</blockquote>
 MB里紫苑都无了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yzj134100  
+##### 83904#       发表于 2021-9-30 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946623&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-30 09:42</a>
+
+都说了很多次了，是fgo先有的mb女主紫苑，后来mb才有的fgo看板娘呆毛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实装嘛实装，要不就直接pickup紫苑吧
+
+
+*****
+
+####  yzj134100  
+##### 83905#       发表于 2021-9-30 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946835&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-9-30 09:56</a>
+
+MB里紫苑都无了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">fgo剧情里看板娘也约等于无（
+
+
+*****
+
+####  zakki  
+##### 83906#       发表于 2021-9-30 10:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946835&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-9-30 09:56</a>
+
+MB里紫苑都无了啊</blockquote>
+我知道啊，所以才是呆毛进mb把紫苑置换进了fgo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

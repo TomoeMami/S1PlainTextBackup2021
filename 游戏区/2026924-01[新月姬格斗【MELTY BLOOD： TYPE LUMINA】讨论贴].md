@@ -2327,3 +2327,98 @@ saber打不打得过爱尔奎特啊</blockquote>
 看柳田分析，塞巴放波蒸发海怪的能量已经超过星球级了啊
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 194#       发表于 2021-9-30 10:08
+
+
+怎么又在翻设定争战斗力……只要作品销量高，蘑菇就能吹到天上去，他吃书的次数还少么
+
+
+*****
+
+####  zakki  
+##### 195#       发表于 2021-9-30 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946803&amp;ptid=2026924" target="_blank">lzlgzs 发表于 2021-9-30 09:54</a>
+
+看柳田分析，塞巴放波蒸发海怪的能量已经超过星球级了啊</blockquote>
+。。。那种数据就不要在意了，月球数学都是内华达大学毕业的。saber是不可能会有星球级的
+
+
+*****
+
+####  シャル  
+##### 196#       发表于 2021-9-30 10:16
+
+
+ 本帖最后由 シャル 于 2021-9-30 10:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946595&amp;ptid=2026924" target="_blank">mye 发表于 2021-9-30 09:40</a>
+
+刚刚云的剧情笑尿了 老师你27岁就那么急吗</blockquote>
+学姐也急了对志贵洗**脑求同居啊
+
+住一起就可以省钱了哈哈
+
+
+都是一路货色
+
+
+*****
+
+####  シャル  
+##### 197#       发表于 2021-9-30 10:20
+
+
+ 本帖最后由 シャル 于 2021-9-30 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946761&amp;ptid=2026924" target="_blank">zakki 发表于 2021-9-30 09:52</a>
+
+拿头打公主。。。公主正儿八经的月球顶级战力，按远古访谈来看，闪闪靠着王财相性杀也只能碰碰三成实力的 ...</blockquote>
+地球精灵也就神灵级
+
+
+古代圣剑使能干掉白兔子，没理由不能打败巨人公主
+
+公主也说了她和ex咖喱棒是亲戚，当然能打出伤害
+
+
+*****
+
+####  紫煜  
+##### 198#       发表于 2021-9-30 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946761&amp;ptid=2026924" target="_blank">zakki 发表于 2021-9-30 09:52</a>
+
+拿头打公主。。。公主正儿八经的月球顶级战力，按远古访谈来看，闪闪靠着王财相性杀也只能碰碰三成实力的 ...</blockquote>
+迷之女主角xx表示无压力<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 199#       发表于 2021-9-30 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947164&amp;ptid=2026924" target="_blank">紫煜 发表于 2021-9-30 10:20</a>
+
+迷之女主角xx表示无压力</blockquote>
+从者宇宙的都是单体爆星水平
+
+
+这个没法谈
+
+
+*****
+
+####  シャル  
+##### 200#       发表于 2021-9-30 10:25
+
+
+暴走公主的剧情是庄周梦蝶，究竟是梦是现实呢，还是现实是梦
+
+
