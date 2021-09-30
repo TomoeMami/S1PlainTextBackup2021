@@ -4644,3 +4644,17 @@ syl 艾瑞思这建模真不行 建议枪毙掉建模的
 模型真的还行，就是这脑袋的比例明显不对劲啊，这搞个大头比例干嘛啊，正常人体比例不行么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  天邪鬼  
+##### 408#       发表于 2021-9-30 17:18
+
+
+这可以个锤子，不说是艾瑞思我都认不出来
+“这照片上的人是你吗？”
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

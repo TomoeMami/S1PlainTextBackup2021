@@ -16928,3 +16928,25 @@ MB里紫苑都无了啊</blockquote>
 有麻花辫的才是MB女主角，所以呆毛当然是 MB 女主角。
 
 
+
+
+*****
+
+####  阿提拉  
+##### 83909#       发表于 2021-9-30 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">呆毛池...yls你的脑子真的没问题吗
+
+
+*****
+
+####  不垃圾屌丝  
+##### 83910#       发表于 2021-9-30 17:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">是MB联动
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -2835,3 +2835,14 @@ win7的解决方法找到了， 下个xaudio2_9.dll放到游戏根目录下(即�
 [https://appleofeden.de-doc.com/i ... d/xaudio2-9-legacy/](https://appleofeden.de-doc.com/index.php/download/xaudio2-9-legacy/)
 
 
+
+
+*****
+
+####  猫坤  
+##### 233#         楼主| 发表于 2021-9-30 17:26
+
+
+大幅更新了基础系统说明，喜欢的就点个赞
+
+
