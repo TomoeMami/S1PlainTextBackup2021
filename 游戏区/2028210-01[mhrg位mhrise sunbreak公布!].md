@@ -1047,3 +1047,14 @@ B站房间号：22529805
 由开发团队亲自为观众介绍日前公开的《怪物猎人崛起：曙光》游戏概要、世界观与追加的新消息。
 
 
+
+
+*****
+
+####  Ayre不发糖哟  
+##### 90#       发表于 2021-9-30 07:55
+
+
+自物语2以来的黑暗终于迎来了曙光<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
