@@ -2789,3 +2789,30 @@ wo
 草，我也是win7，求一个win10绿色安全更新包
 
 
+
+
+*****
+
+####  シャル  
+##### 230#       发表于 2021-9-30 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950441&amp;ptid=2026924" target="_blank">yukiness 发表于 2021-9-30 14:31</a>
+
+我想问下这些DLC不买的话。这些角色就没有语音了？</blockquote>
+只是开场语音
+
+没必要买
+
+
+*****
+
+####  Caa  
+##### 231#       发表于 2021-9-30 16:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950893&amp;ptid=2026924" target="_blank">user_3399 发表于 2021-9-30 15:10</a>
+有老哥说下秋叶的思路吗?</blockquote>
+秋叶基本就是f制服，打法差不多
+
+
