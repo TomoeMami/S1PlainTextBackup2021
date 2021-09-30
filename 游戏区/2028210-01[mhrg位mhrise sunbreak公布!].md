@@ -1174,3 +1174,168 @@ B站房间号：22529805
 —— 来自 HUAWEI NXT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  塔奇克马  
+##### 103#       发表于 2021-9-30 21:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在聊的都是什么啊,能快进吗?
+
+
+*****
+
+####  laoz  
+##### 104#       发表于 2021-9-30 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">内容不够，吹水来凑
+
+
+*****
+
+####  任天索尼子  
+##### 105#       发表于 2021-9-30 21:09
+
+
+这联动的用心程度也比世界差远了，巫师和FF14的联动多用心，崛起就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  口三才信徒  
+##### 106#       发表于 2021-9-30 21:12
+
+
+还在尬聊。。。
+
+
+*****
+
+####  多拉贡荡不死  
+##### 107#       发表于 2021-9-30 21:13
+
+
+直播摆烂
+
+
+*****
+
+####  希远闹  
+##### 108#       发表于 2021-9-30 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955229&amp;ptid=2028210" target="_blank">任天索尼子 发表于 2021-9-30 21:09</a>
+
+这联动的用心程度也比世界差远了，巫师和FF14的联动多用心，崛起就这 ...</blockquote>
+别急，任天堂联动还没出
+
+
+*****
+
+####  泡吧_  
+##### 109#       发表于 2021-9-30 21:13
+
+
+吐了，卡普空去死吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tureleona  
+##### 110#       发表于 2021-9-30 21:14
+
+
+50分钟呢，不得聊个40分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 111#       发表于 2021-9-30 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955268&amp;ptid=2028210" target="_blank">希远闹 发表于 2021-9-30 21:13</a>
+
+别急，任天堂联动还没出</blockquote>
+跟任天堂联动也不能像FF14那样追加新怪啊，说了半天无非还是套装备，不上心就是不上心。
+
+
+*****
+
+####  新八  
+##### 112#       发表于 2021-9-30 21:17
+
+
+这都啥啊。。。。。。。。
+
+刚看完拉姐直播的我感受到了震撼（）
+
+
+*****
+
+####  plok201  
+##### 113#       发表于 2021-9-30 21:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">三太子很贴心的为无聊的大家加入了唱歌项目
+
+
+*****
+
+####  ff2077  
+##### 114#       发表于 2021-9-30 21:18
+
+
+一转唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mikumiku831  
+##### 115#       发表于 2021-9-30 21:18
+
+
+卡普空 可真有你的
+
+
+*****
+
+####  kimmmmmm  
+##### 116#       发表于 2021-9-30 21:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">太阴间了
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  thecatnie  
+##### 117#       发表于 2021-9-30 21:20
+
+
+和任天堂的联动又上不了PC，我觉得以现在卡普空的抠搜劲不可能做这种没法重复利用的东西。
+
+
+*****
+
+####  格雷殿下  
+##### 118#       发表于 2021-9-30 21:21
+
+
+听音乐还不用花钱，不挺好
+
+
+*****
+
+####  hagaren  
+##### 119#       发表于 2021-9-30 21:23
+
+
+东奥会又开了一遍，快放英雄之证
+
+

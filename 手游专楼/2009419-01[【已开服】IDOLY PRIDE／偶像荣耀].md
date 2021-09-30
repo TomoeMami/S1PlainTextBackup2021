@@ -6927,3 +6927,18 @@ mana个人剧情好甜啊，疯狂推妹妹给牧野当女友笑死
 188抽 可以井了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kos_mos  
+##### 499#       发表于 2021-9-30 21:11
+
+
+ 本帖最后由 kos_mos 于 2021-9-30 21:14 编辑 
+
+发工资后一次抽到麻奈
+
+不过没法工作，本来想总算可以3的倍数不会有谁体力没另2个足了……
+
+
