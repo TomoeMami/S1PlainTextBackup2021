@@ -16950,3 +16950,32 @@ MB里紫苑都无了啊</blockquote>
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  zakki  
+##### 83911#       发表于 2021-9-30 17:42
+
+
+没想到竟然把fgo和月姬切割的这么开。月姬r发售fgo没动静，mb发售也是纪念呆毛参战而不是纪念mb发售，而且纪念礼装里也没出现公主。
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83912#       发表于 2021-9-30 19:09
+
+
+四舍五入也算开了月姬联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83913#       发表于 2021-9-30 19:10
+
+
+翻页
+
+

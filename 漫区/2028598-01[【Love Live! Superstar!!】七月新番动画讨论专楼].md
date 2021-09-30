@@ -6280,3 +6280,14 @@ nako两连冠了吧，音乐科好强
 我觉得佩佩除了世界史和地理……貌似数学也不太灵光…………
 
 
+
+
+*****
+
+####  kata魂  
+##### 479#       发表于 2021-9-30 19:11
+
+
+别尬黑······总之，别尬黑<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
