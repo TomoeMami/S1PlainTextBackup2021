@@ -2247,3 +2247,46 @@ PC啥时解锁？</blockquote>
 两个公主也不太行，武内厨力就这啊
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 188#       发表于 2021-9-30 09:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945396&amp;ptid=2026924" target="_blank">Porsche 发表于 2021-9-30 06:47</a>
+
+你确定是这个群号吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/30/092838spqp1uqhsqlqauau.png" referrerpolicy="no-referrer">
+
+
+<strong>月姬格斗群二维码.png</strong> (21.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-30 09:28 上传
+
+
+群号应该没发错，至于建群时间不用在意
+
+
+*****
+
+####  mye  
+##### 189#       发表于 2021-9-30 09:40
+
+
+<img src="https://p.sda1.dev/2/fa7b1227c522e1ef27457e10365bc047/IMG_CMP_162639300.jpeg" referrerpolicy="no-referrer">刚刚云的剧情笑尿了 老师你27岁就那么急吗
+
+
+*****
+
+####  lzlgzs  
+##### 190#       发表于 2021-9-30 09:46
+
+
+saber打不打得过爱尔奎特啊
+
+
