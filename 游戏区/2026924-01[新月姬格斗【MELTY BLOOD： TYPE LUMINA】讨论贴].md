@@ -2478,3 +2478,49 @@ saber打不打得过爱尔奎特啊</blockquote>
 Steam定价是多少？
 
 
+
+
+*****
+
+####  シャル  
+##### 206#       发表于 2021-9-30 10:58
+
+
+ 本帖最后由 シャル 于 2021-9-30 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947292&amp;ptid=2026924" target="_blank">zakki 发表于 2021-9-30 10:27</a>
+
+你先让呆毛打出古代圣剑使的表现再说吧，这么多年了不也就捅捅柳洞寺的地板，炸炸圣杯。公主不完全实体光 ...</blockquote>
+亚瑟不就用圣剑打爆了666
+
+说白了就是出力问题
+
+
+没见打爆小行星啊
+
+
+*****
+
+####  zakki  
+##### 207#       发表于 2021-9-30 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947745&amp;ptid=2026924" target="_blank">シャル 发表于 2021-9-30 10:58</a>
+
+亚瑟不就用圣剑打爆了666
+
+说白了就是出力问题</blockquote>
+让旧剑在fgo再打爆一次吧，之前的都陈年黄历了，当时都还没beast的概念
+
+
+*****
+
+####  シャル  
+##### 208#       发表于 2021-9-30 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947810&amp;ptid=2026924" target="_blank">zakki 发表于 2021-9-30 11:02</a>
+
+让旧剑在fgo再打爆一次吧，之前的都陈年黄历了，当时都还没beast的概念</blockquote>
+啥叫没有，666不就是兽的半身
+
+
