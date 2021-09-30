@@ -17596,3 +17596,16 @@ ras那队怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/0
 是有字幕组吗？
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7262#       发表于 2021-9-30 13:35
+
+
+ 本帖最后由 FCCHua 于 2021-9-30 13:39 编辑 
+
+有吧？不过也有可能都是同一批人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

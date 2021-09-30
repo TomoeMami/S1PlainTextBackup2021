@@ -6117,3 +6117,14 @@ B站 4-6集 10月2日 晚上8点上
 第6集主要是开播前被staff吹爆（全人类都来看的一集），拉高了观众的期待值，结果播出后就这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 464#       发表于 2021-9-30 13:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我觉得那个吹爆都像下套一样……，明明自己没参与制作…………，但这集倒是把小千的人气一下拉起来
+
+
