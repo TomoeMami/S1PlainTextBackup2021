@@ -1056,3 +1056,30 @@ Big brother is watching you！
 说到底，文化相关的官僚体制就是极端废物，不仅被各路大佬当垃圾桶（前段时间那个落马的大贪官就想下架人民的名义），科层制考察的kpi来说，负面绩效影响远远大于正面绩效，所以采取的就是防守型策略，这种策略加码到最后就是不要讨论，不论是赞扬还是批评，不论是不合理还是合理。
 
 
+
+
+*****
+
+####  医生狼多  
+##### 92#       发表于 2021-10-1 07:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957284&amp;ptid=2029680" target="_blank">椎名mahuyo 发表于 2021-10-1 00:00</a>
+封的理由其实如果能说还是会说吧，参考瘟疫公司
+
+很多不说的，我怀疑还是怕说出来了以后被其他某些人拿去搞 ...</blockquote>
+近十年封禁的游戏有审核单位官宣过理由的?你看tlou2，毒血俱全，可以封的光明正大，它们开干的时候还不是一句话都没说
+从动森到tlou2，可全是“平台自主行为”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rsgdn  
+##### 93#       发表于 2021-10-1 07:44
+
+
+建议读个函授，享受留学生待遇
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
