@@ -22165,3 +22165,14 @@ meimei突袭..没跟到
 syl群里说前世是马来社团的，大马华人？鄙视链越掉越底了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  shimmy1996  
+##### 1404#       发表于 2021-9-30 09:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">道理我都懂，为啥kronii这么大只
+
+
