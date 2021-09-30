@@ -6661,3 +6661,27 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 不是才8集吗，没了?
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 509#       发表于 2021-10-1 02:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52958261&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-1 01:37</a>
+不是才8集吗，没了?</blockquote>
+那个是上半片，上半片没了，B站那边进度慢。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lj205  
+##### 510#       发表于 2021-10-1 02:45
+
+
+我寻思着巴士上这么睡能睡着吗？…………而且就那么点空间……算了……给我继续使劲贴…………让我们看看中国直女的厉害…………
+
+

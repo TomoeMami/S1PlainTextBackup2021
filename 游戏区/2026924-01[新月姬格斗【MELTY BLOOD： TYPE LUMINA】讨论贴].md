@@ -3105,3 +3105,59 @@ S1娱乐群 37196751
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 257#       发表于 2021-10-1 03:17
+
+
+ 本帖最后由 ロラン・ローラ 于 2021-10-1 03:22 编辑 
+
+[http://jbbs.shitaraba.net/game/48793/](http://jbbs.shitaraba.net/game/48793/)
+
+MBTL 2CH揭示板
+
+[https://matsuri.5ch.net/test/read.cgi/gamefight/1633005640/](https://matsuri.5ch.net/test/read.cgi/gamefight/1633005640/)
+
+5CH揭示板
+
+[https://wiki.gbl.gg/w/Melty_Blood/MBTL](https://wiki.gbl.gg/w/Melty_Blood/MBTL)
+
+MBTL英文WIKI
+
+
+日文WIKI似乎还没建，待更
+
+PS：主楼有一个地方写错了，旧世代6AB同样是dash，（AACC）2AB是闪身回避
+
+
+*****
+
+####  噗呸破屁诚  
+##### 258#       发表于 2021-10-1 04:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asclepiusz  
+##### 259#       发表于 2021-10-1 04:28
+
+
+<img src="https://img.saraba1st.com/forum/202110/01/042745e97zyowv2pzmm45j.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211001042648.png</strong> (116.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-1 04:27 上传
+
+
+地 狱 绘 图
+
+
