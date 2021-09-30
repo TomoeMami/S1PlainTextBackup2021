@@ -2524,3 +2524,45 @@ Steam定价是多少？
 啥叫没有，666不就是兽的半身
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 209#       发表于 2021-9-30 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947437&amp;ptid=2026924" target="_blank">Porsche 发表于 2021-9-30 10:38</a>
+
+现在肯定设置成了只靠群号查询不到的状态</blockquote>
+设置没问题，可能是因为群长久不用，被冻结了
+
+手动拉了一个好友之后，现在应该是可搜索状态了，你试试
+
+
+*****
+
+####  zakki  
+##### 210#       发表于 2021-9-30 11:08
+
+
+ 本帖最后由 zakki 于 2021-9-30 11:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947823&amp;ptid=2026924" target="_blank">シャル 发表于 2021-9-30 11:03</a>
+
+啥叫没有，666不就是兽的半身，剩下半身在废狗世界</blockquote>
+是半身啊，完全羽化了吗？我记得只是个幼体吧。而且当年都没有beast这个概念，只是用兽模糊的指代。兽的设定重新再设定是在1.7。而且现在旧剑在fgo追的就是666，beast6的另外一半是巴比伦大**。而且就算是旧剑来打，打公主圣剑能全解吗？半解也就是个对城宝具
+
+
+
+
+*****
+
+####  Caa  
+##### 211#       发表于 2021-9-30 11:15
+
+
+07年的群，<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">求通过一下
+
+顺带现在月光群还活着吗
+
+
