@@ -6302,3 +6302,46 @@ nako两连冠了吧，音乐科好强
 能毕业吧
 
 
+
+
+*****
+
+####  ads147147  
+##### 481#       发表于 2021-9-30 20:11
+
+
+nako和青山都是有舞蹈基础的，强很正常。像是曾经的偶像jk啊，coser转歌手啊，企划前完全没练过舞的矮子啊，差点也很正常（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑雪姫  
+##### 482#       发表于 2021-9-30 20:13
+
+
+ 本帖最后由 黑雪姫 于 2021-9-30 20:15 编辑 
+
+我觉得生放送的鲤鱼比她自己直播时开美颜的样子好看多了。
+
+可见只要化妆就可以了，完全不需要开美颜，属于画蛇添足了。
+
+
+*****
+
+####  ads147147  
+##### 483#       发表于 2021-9-30 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52954440&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-9-30 20:13</a>
+我觉得生放送的鲤鱼比她自己直播时开美颜的样子好看多了。
+
+可见只要化妆就可以了，完全不需要开美颜，属于 ...</blockquote>
+节目上的妆还是有的，真的素颜多少都会有瑕疵不会随便放的。
+
+不过上滤镜感觉更像是一种态度，像是pay都弄到时空扭曲了，只能说非常可爱<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
