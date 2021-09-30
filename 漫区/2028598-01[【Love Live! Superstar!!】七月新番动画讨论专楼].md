@@ -5956,3 +5956,17 @@ edit ...</blockquote>
 也许比花田写的好呢，可惜了
 
 
+
+
+*****
+
+####  kata魂  
+##### 450#       发表于 2021-9-30 08:20
+
+
+ 本帖最后由 kata魂 于 2021-9-30 08:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945633&amp;ptid=2028598" target="_blank">待宵 发表于 2021-9-30 08:02</a>
+
+也许比花田写的好呢，可惜了</blockquote>应该不咋地，开头就是来日本前家里人给可可定了要求，当学院偶像人气到了多少才能做下去，然后就醒了，我觉得开局蛮烂的
+
+
