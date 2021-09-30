@@ -17855,3 +17855,24 @@ bsyl：还有初期葵皇
 当我没说
 
 
+
+
+*****
+
+####  noHentai  
+##### 7285#       发表于 2021-9-30 21:38
+
+
+ 本帖最后由 noHentai 于 2021-9-30 21:40 编辑 
+
+后知后觉，King捞了个配信单曲日冠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+忘了是不是管人首位配信单曲日冠了，holo那些配信没有过的话应该就是了。
+
+
+syl
+
+P丸这样也算是给辉夜月画个句号了吧，之后那边可能会正式宣布引退之类的？
+<img src="https://p.sda1.dev/2/68e45995712e51f6a5354931f1065b03/image.png" referrerpolicy="no-referrer">
+
+

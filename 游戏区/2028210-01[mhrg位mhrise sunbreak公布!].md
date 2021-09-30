@@ -1339,3 +1339,210 @@ B站房间号：22529805
 东奥会又开了一遍，快放英雄之证
 
 
+
+
+*****
+
+####  美人希  
+##### 120#       发表于 2021-9-30 21:24
+
+
+哈哈，演唱会也不错
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+*****
+
+####  Mikumiku831  
+##### 121#       发表于 2021-9-30 21:25
+
+
+要搞音乐会不如把东京爱乐交响乐团出来搞个狩猎祭
+
+
+*****
+
+####  duraa  
+##### 122#       发表于 2021-9-30 21:26
+
+
+ 本帖最后由 duraa 于 2021-9-30 21:28 编辑 
+
+光头爬了还行<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 123#       发表于 2021-9-30 21:33
+
+
+草，这说了个啥
+
+
+*****
+
+####  thecatnie  
+##### 124#       发表于 2021-9-30 21:33
+
+
+PC是不是就相当于HD版了
+
+
+*****
+
+####  新八  
+##### 125#       发表于 2021-9-30 21:33
+
+
+所以是不是在DLC发售前本体不会有任何新增内容了？（不考虑联动这种）
+
+
+*****
+
+####  duraa  
+##### 126#       发表于 2021-9-30 21:33
+
+
+就这，爬爬爬<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thecatnie  
+##### 127#       发表于 2021-9-30 21:35
+
+
+XX里剩下哪些二名是不是要全在资料片里当霸主用啊
+
+
+*****
+
+####  plok201  
+##### 128#       发表于 2021-9-30 21:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总的来说，就介绍了一只蟹
+
+
+*****
+
+####  安心院紫苑  
+##### 129#       发表于 2021-9-30 21:36
+
+
+<img src="https://p.sda1.dev/2/713fab21bf26e9358098f4402d95756f/IMG_CMP_101970821.jpeg" referrerpolicy="no-referrer">
+
+哈哈哈哈哈啊哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sekaizz  
+##### 130#       发表于 2021-9-30 21:36
+
+
+把大家拉出来就这？你发个文2句话就完了
+
+
+*****
+
+####  任天索尼子  
+##### 131#       发表于 2021-9-30 21:37
+
+
+好兄弟卡普空 京都企业的友情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stage111st  
+##### 132#       发表于 2021-9-30 21:38
+
+
+你们觉得这4K咋样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jajajzz  
+##### 133#       发表于 2021-9-30 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955476&amp;ptid=2028210" target="_blank">任天索尼子 发表于 2021-9-30 21:37</a>
+
+好兄弟卡普空 京都企业的友情</blockquote>
+卡普空是大阪的...
+
+
+*****
+
+####  医生狼多  
+##### 134#         楼主| 发表于 2021-9-30 21:40
+
+
+把大家叫出来就为了这点事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  名字已被吃  
+##### 135#       发表于 2021-9-30 21:40
+
+
+感觉这pc版贴图也不咋地，不知道是不是因为直播间码率本身就不咋地
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ff2077  
+##### 136#       发表于 2021-9-30 21:40
+
+
+这个pc画面看起来一般，看来是基于ns做的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 137#       发表于 2021-9-30 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955500&amp;ptid=2028210" target="_blank">jajajzz 发表于 2021-9-30 21:39</a>
+
+卡普空是大阪的...</blockquote>
+重点是友情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不应  
+##### 138#       发表于 2021-9-30 21:43
+
+
+把大家叫出来就这
+
+
+*****
+
+####  armagemon  
+##### 139#       发表于 2021-9-30 21:44
+
+
+这pc画面和ns没多少差别，感觉就是hd化
+
+
+*****
+
+####  北条早苗  
+##### 140#       发表于 2021-9-30 21:45
+
+
+就这点事把大伙叫出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

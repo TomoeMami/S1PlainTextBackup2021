@@ -6364,3 +6364,43 @@ nako和青山都是有舞蹈基础的，强很正常。像是曾经的偶像jk�
 其实本身就够可爱啦
 
 
+
+
+*****
+
+####  kata魂  
+##### 485#       发表于 2021-9-30 21:34
+
+
+现在在看看二人的时间
+
+“一定是跟千砂都在一起所以才会这么美味”
+
+“恋恋就像可可的专属老师”
+
+在加上动画对香音的那句心被夺走
+
+可可好像很喜欢说这种让对方觉得有机会的话啊<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cat1230  
+##### 486#       发表于 2021-9-30 21:39
+
+
+P酱也就能靠靠鲤鱼肩膀了，你看，如果她靠立德肩膀不就世界名画了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 487#       发表于 2021-9-30 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955495&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-9-30 21:39</a>
+
+P酱也就能靠靠鲤鱼肩膀了，你看，如果她靠立德肩膀不就世界名画了么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可以只拍上半身
+
+
