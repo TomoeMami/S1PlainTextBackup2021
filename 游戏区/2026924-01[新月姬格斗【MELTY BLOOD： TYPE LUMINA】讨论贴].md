@@ -2422,3 +2422,59 @@ saber打不打得过爱尔奎特啊</blockquote>
 暴走公主的剧情是庄周梦蝶，究竟是梦是现实呢，还是现实是梦
 
 
+
+
+*****
+
+####  zakki  
+##### 201#       发表于 2021-9-30 10:27
+
+
+ 本帖最后由 zakki 于 2021-9-30 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947162&amp;ptid=2026924" target="_blank">シャル 发表于 2021-9-30 10:20</a>
+
+地球精灵也就神灵级
+
+
+古代圣剑使能干掉白兔子，没理由不能打败巨人公主</blockquote>
+你先让呆毛打出古代圣剑使的表现再说吧，这么多年了不也就捅捅柳洞寺的地板，炸炸圣杯。公主不完全实体光体殉爆至少灭城，还不算一堆乱七八糟别的东西，而且还有盖亚的星球支援，一个是阿赖耶的打工仔，一个是盖亚女儿，这就没得比了。其实你就按完全体公主&gt;beast的盒子来叠就是了，呆毛打的过beast吗
+
+
+*****
+
+####  Booorunestud  
+##### 202#       发表于 2021-9-30 10:36
+
+
+其实都古剧情里那个白猫是谁…白莲吗
+
+
+*****
+
+####  蓮華  
+##### 203#       发表于 2021-9-30 10:38
+
+
+督瑞尔怎么打，真祖从者谁强，回来了，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Porsche  
+##### 204#       发表于 2021-9-30 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946481&amp;ptid=2026924" target="_blank">ロラン・ローラ 发表于 2021-9-30 09:30</a>
+群号应该没发错，至于建群时间不用在意</blockquote>
+现在肯定设置成了只靠群号查询不到的状态
+
+
+*****
+
+####  tttabc1  
+##### 205#       发表于 2021-9-30 10:44
+
+
+Steam定价是多少？
+
+

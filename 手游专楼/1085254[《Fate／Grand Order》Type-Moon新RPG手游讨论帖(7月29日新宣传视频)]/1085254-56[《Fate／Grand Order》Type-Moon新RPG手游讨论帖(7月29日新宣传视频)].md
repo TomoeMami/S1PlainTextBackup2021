@@ -16903,3 +16903,17 @@ MB里紫苑都无了啊</blockquote>
 我知道啊，所以才是呆毛进mb把紫苑置换进了fgo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  真红眼教授  
+##### 83907#       发表于 2021-9-30 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52947023&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-30 10:12</a>
+
+我知道啊，所以才是呆毛进mb把紫苑置换进了fgo</blockquote>
+呆毛在FGO没有戏份的原因找到了
+
+
