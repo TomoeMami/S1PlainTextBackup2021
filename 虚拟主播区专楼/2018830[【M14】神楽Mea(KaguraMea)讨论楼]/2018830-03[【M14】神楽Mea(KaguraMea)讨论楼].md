@@ -3312,3 +3312,35 @@ https://mall.jd.com/index-10233193.html</blockquote>
 可是今天30号才是烈士纪念日啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 3295#       发表于 2021-9-30 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52945445&amp;ptid=2018830" target="_blank">whbstc4545 发表于 2021-9-30 07:14</a>
+
+可是今天30号才是烈士纪念日啊</blockquote>
+那怕不是和国庆一起连着避嫌了，也不奇怪
+
+
+*****
+
+####  TomDu  
+##### 3296#       发表于 2021-9-30 09:55
+
+
+昨天歌回是跨了两天的，所以就提前回避了吧
+
+
+*****
+
+####  T_Hb  
+##### 3297#       发表于 2021-9-30 09:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自肃就完事儿了，据说明天也自肃
+
+

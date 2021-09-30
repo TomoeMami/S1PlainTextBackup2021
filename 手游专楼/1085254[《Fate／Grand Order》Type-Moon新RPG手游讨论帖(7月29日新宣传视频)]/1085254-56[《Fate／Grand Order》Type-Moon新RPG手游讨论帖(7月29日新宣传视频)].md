@@ -16827,3 +16827,41 @@ MB联动看来快了<img src="https://static.saraba1st.com/image/smiley/face2017
 这妖兰是真的水枪啊，二宝子自buff狗粮一面打不死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83901#       发表于 2021-9-30 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52939538&amp;ptid=1085254" target="_blank">yzj134100 发表于 2021-9-29 17:23</a>
+
+MB能放SABER，那么FGO也···</blockquote>
+都说了很多次了，是fgo先有的mb女主紫苑，后来mb才有的fgo看板娘呆毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83902#       发表于 2021-9-30 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946346&amp;ptid=1085254" target="_blank">空气蛹 发表于 2021-9-30 09:19</a>
+
+这妖兰是真的水枪啊，二宝子自buff狗粮一面打不死</blockquote>
+妖兰还水枪？谁打狗粮会用自buff的白字啊。
+
+
+*****
+
+####  真红眼教授  
+##### 83903#       发表于 2021-9-30 09:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946623&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-30 09:42</a>
+
+都说了很多次了，是fgo先有的mb女主紫苑，后来mb才有的fgo看板娘呆毛</blockquote>
+MB里紫苑都无了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

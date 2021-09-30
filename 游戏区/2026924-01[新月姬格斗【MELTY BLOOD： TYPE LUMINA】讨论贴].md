@@ -2290,3 +2290,40 @@ PC啥时解锁？</blockquote>
 saber打不打得过爱尔奎特啊
 
 
+
+
+*****
+
+####  小姜不辣  
+##### 191#       发表于 2021-9-30 09:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946678&amp;ptid=2026924" target="_blank">lzlgzs 发表于 2021-9-30 09:46</a>
+saber打不打得过爱尔奎特啊</blockquote>
+爱尔奎特必秒Saber
+
+
+*****
+
+####  zakki  
+##### 192#       发表于 2021-9-30 09:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946678&amp;ptid=2026924" target="_blank">lzlgzs 发表于 2021-9-30 09:46</a>
+
+saber打不打得过爱尔奎特啊</blockquote>
+拿头打公主。。。公主正儿八经的月球顶级战力，按远古访谈来看，闪闪靠着王财相性杀也只能碰碰三成实力的公主，更别说现在月姬R又给公主大加强了，saber估计打不过两成实力的公主吧
+
+
+*****
+
+####  lzlgzs  
+##### 193#       发表于 2021-9-30 09:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946761&amp;ptid=2026924" target="_blank">zakki 发表于 2021-9-30 09:52</a>
+
+拿头打公主。。。公主正儿八经的月球顶级战力，按远古访谈来看，闪闪靠着王财相性杀也只能碰碰三成实力的 ...</blockquote>
+看柳田分析，塞巴放波蒸发海怪的能量已经超过星球级了啊
+
+
