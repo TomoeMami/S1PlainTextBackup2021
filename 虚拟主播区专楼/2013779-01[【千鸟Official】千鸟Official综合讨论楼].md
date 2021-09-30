@@ -4624,3 +4624,23 @@ syl 艾瑞思这建模真不行 建议枪毙掉建模的
 看到艾瑞思自己发模型了 我的心已经麻木了
 
 
+
+
+*****
+
+####  tn_teana  
+##### 406#       发表于 2021-9-30 16:26
+
+
+<img src="https://p.sda1.dev/2/4a108acea823f3c5fdfc02e9304dd353/IMG_CMP_95834468.jpeg" referrerpolicy="no-referrer">意外的，还可以？
+
+
+*****
+
+####  xiaosa  
+##### 407#       发表于 2021-9-30 16:35
+
+
+模型真的还行，就是这脑袋的比例明显不对劲啊，这搞个大头比例干嘛啊，正常人体比例不行么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

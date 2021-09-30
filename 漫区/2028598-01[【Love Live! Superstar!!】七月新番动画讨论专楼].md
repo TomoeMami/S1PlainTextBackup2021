@@ -6139,3 +6139,27 @@ B站 4-6集 10月2日 晚上8点上
 刚定完星的又要跨年预定了，live东西出的太快了，感觉要买不起了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  平贺才人  
+##### 466#       发表于 2021-9-30 16:32
+
+
+4-6没啥事吧  后面直接跳到9也没事
+
+
+*****
+
+####  一个陆仁贾  
+##### 467#       发表于 2021-9-30 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52949701&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-9-30 13:21</a>
+第6集主要是开播前被staff吹爆（全人类都来看的一集），拉高了观众的期待值，结果播出后就这 ...</blockquote>
+你说的这个因素会影响到的应该也就随时关注星团的人，像等着b站更的一般人可能随便看看就过去了呢
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
