@@ -2664,3 +2664,26 @@ steam版可以买了，138<img src="https://static.saraba1st.com/image/smiley/an
 DLC全角色开场语音150，本体普通版才138，这DLC怎么定这么高。。。希望日后能出角色DLC，哪怕没有剧情只是对战可选角色也好啊。
 
 
+
+
+*****
+
+####  雪菜碧池  
+##### 220#       发表于 2021-9-30 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950441&amp;ptid=2026924" target="_blank">yukiness 发表于 2021-9-30 14:31</a>
+
+我想问下这些DLC不买的话。这些角色就没有语音了？</blockquote>
+那是开场语音
+
+
+*****
+
+####  dualist  
+##### 221#       发表于 2021-9-30 14:52
+
+
+那个语音倒是不关键吧，是那个round1 round2 那个语音吧 播音员
+
+
