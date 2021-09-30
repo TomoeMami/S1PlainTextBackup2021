@@ -785,3 +785,43 @@ se---ga----
 真是tm吐了，真就任何游戏都不能有一点中国要素呗。对于喜欢中国文化，中国要素的玩家真是打击。
 
 
+
+
+*****
+
+####  crosz  
+##### 68#       发表于 2021-10-1 01:06
+
+
+ 本帖最后由 crosz 于 2021-10-1 01:11 编辑 
+
+现在禁个游戏还要理由了以后你们要干什么简直不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azccc52  
+##### 69#       发表于 2021-10-1 01:13
+
+
+利好文化自信<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cheatdeath3  
+##### 70#       发表于 2021-10-1 01:14
+
+
+防止历史虚无主义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lushark  
+##### 71#       发表于 2021-10-1 01:20
+
+
+玩儿过的都知道这游戏已经相当亲中，努力避免刻板印象，上市后立绘里亚洲脸一被批评很快就改成二次元。说白了现在你外国文艺创作者敢提中国就属于乳化，快和N词儿差不多了。
+
+
