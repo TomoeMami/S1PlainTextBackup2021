@@ -1769,3 +1769,21 @@ sunbreak的界面下只有ns，那估计steam版的M位要晚个半年左右？<
 mhwi里长枪斗技迅龙 得先踩一下尾刺出裂伤开怨恨
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 161#       发表于 2021-10-1 06:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52958864&amp;ptid=2028210" target="_blank">奈奈未喵 发表于 2021-10-1 06:07</a>
+
+现在就有吧 怨恨
+
+mhwi里长枪斗技迅龙 得先踩一下尾刺出裂伤开怨恨</blockquote>
+怨恨是只要有红血就能触发，我想说的是仅限裂伤才会触发的buff
+
+不过这么一说感觉确实和怨恨定位重复了
+
+
