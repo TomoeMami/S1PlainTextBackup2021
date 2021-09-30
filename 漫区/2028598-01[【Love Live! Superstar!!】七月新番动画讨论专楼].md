@@ -6519,3 +6519,65 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 看三次元美少女贴贴更香啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿鱼你咋这么懂啊
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 497#       发表于 2021-10-1 00:10
+
+
+水团都没下9分，不至于不至于，估计就降到9.5这样，而且我并不觉得现在还有多少人会去看，国内热度都快散没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 498#       发表于 2021-10-1 00:12
+
+
+寒蝉太难受了，就这么没了，在这个楼里面找安慰了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  普之舜舜  
+##### 499#       发表于 2021-10-1 00:13
+
+
+花田呀，你别整龙骑士那样的烂活😭😭😭😭求你了，剧情平庸不要紧，看的开心快乐就可以了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  普之舜舜  
+##### 500#       发表于 2021-10-1 00:14
+
+
+我求求花田支棱点，别像龙骑士那样把拉拉整个企划给搞烂了😭😭😭<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 501#       发表于 2021-10-1 00:16
+
+
+寒蝉业最后一集还没看，这么拉吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 502#       发表于 2021-10-1 00:21
+
+
+已经被骂飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
