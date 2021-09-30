@@ -6404,3 +6404,21 @@ P酱也就能靠靠鲤鱼肩膀了，你看，如果她靠立德肩膀不就世�
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可以只拍上半身
 
 
+
+
+*****
+
+####  lj205  
+##### 488#       发表于 2021-9-30 21:50
+
+
+<blockquote>kata魂 发表于 2021-9-30 21:34
+现在在看看二人的时间
+
+“一定是跟千砂都在一起所以才会这么美味”
+
+“恋恋就像可可的专属老师”
+</blockquote>
+中国直女不就是这样吗
+
+

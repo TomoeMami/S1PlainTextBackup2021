@@ -1546,3 +1546,137 @@ XX里剩下哪些二名是不是要全在资料片里当霸主用啊
 就这点事把大伙叫出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  壳壳牛  
+##### 141#       发表于 2021-9-30 21:48
+
+
+300块钱5只怪.jpg
+
+
+*****
+
+####  nagitoY  
+##### 142#       发表于 2021-9-30 21:49
+
+
+sunbreak的界面下只有ns，那估计steam版的M位要晚个半年左右？
+
+
+*****
+
+####  多拉贡荡不死  
+##### 143#       发表于 2021-9-30 21:49
+
+
+卡婊这是在告诉大家《该吃大闸蟹了》，蟹蟹你，卡普空
+
+
+*****
+
+####  hisousihou  
+##### 144#       发表于 2021-9-30 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955589&amp;ptid=2028210" target="_blank">nagitoY 发表于 2021-9-30 21:49</a>
+
+sunbreak的界面下只有ns，那估计steam版的M位要晚个半年左右？</blockquote>
+同步的
+
+
+*****
+
+####  _lulu_o  
+##### 145#       发表于 2021-9-30 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/244.png" referrerpolicy="no-referrer">就得等pc出了打折买，不能买什么首发数字版现在连二手都没法出
+
+
+*****
+
+####  最好不说  
+##### 146#       发表于 2021-9-30 21:53
+
+
+虽然tgs一贯都很拉吧，但卡婊这水时长的方法真长见识了，杂谈加歌会凑二十分钟，一个pv播三遍，有这心思能不能整点阳间活<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nagitoY  
+##### 147#       发表于 2021-9-30 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52955600&amp;ptid=2028210" target="_blank">hisousihou 发表于 2021-9-30 21:50</a>
+
+同步的</blockquote>
+那爽了，直接放弃ns。ns的性能实在是太辣了
+
+
+*****
+
+####  重巡羊舰  
+##### 148#       发表于 2021-9-30 21:54
+
+
+ 本帖最后由 重巡羊舰 于 2021-9-30 21:57 编辑 
+
+396……是梁静茹给你的勇气嘛，卡裱？？？？
+
+世界207，冰原271<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ffmzsj  
+##### 149#       发表于 2021-9-30 21:55
+
+
+<blockquote>hisousihou 发表于 2021-9-30 21:50
+同步的</blockquote>
+都是夏也不一定同步吧
+
+
+*****
+
+####  泉美  
+##### 150#       发表于 2021-9-30 21:59
+
+
+モンスターハンターライズ：サンブレイク
+
+発売日：2022年夏　発売予定
+
+対応ハード：Steam
+
+ジャンル：ハンティングアクション
+
+プレイ人数：1人（オンライン:1～4人）
+
+
+
+
+*****
+
+####  名字已被吃  
+##### 151#       发表于 2021-9-30 22:02
+
+
+这定价，感觉要被喷爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  猫不萌  
+##### 152#       发表于 2021-9-30 22:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">估计这模型上限就是NS Pro本来的效果，现在直接丢在PC上卖400块不是等着被喷爆
+
+
