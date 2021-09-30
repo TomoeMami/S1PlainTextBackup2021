@@ -2687,3 +2687,66 @@ DLC全角色开场语音150，本体普通版才138，这DLC怎么定这么高�
 那个语音倒是不关键吧，是那个round1 round2 那个语音吧 播音员
 
 
+
+
+*****
+
+####  obelisk  
+##### 222#       发表于 2021-9-30 15:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">有人是win7的吗？我游戏启动不起来
+
+
+*****
+
+####  真实之影  
+##### 223#       发表于 2021-9-30 15:06
+
+wo
+
+
+ 本帖最后由 真实之影 于 2021-9-30 15:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950441&amp;ptid=2026924" target="_blank">yukiness 发表于 2021-9-30 14:31</a>
+
+我想问下这些DLC不买的话。这些角色就没有语音了？</blockquote>
+我记得过去这些都是游戏内可以解锁的
+
+
+*****
+
+####  ロラン・ローラ  
+##### 224#       发表于 2021-9-30 15:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950832&amp;ptid=2026924" target="_blank">obelisk 发表于 2021-9-30 15:05</a>
+
+有人是win7的吗？我游戏启动不起来</blockquote>
+我也是WIN7，启动不了
+
+
+*****
+
+####  user_3399  
+##### 225#       发表于 2021-9-30 15:10
+
+
+有老哥说下秋叶的思路吗?
+
+
+*****
+
+####  ロラン・ローラ  
+##### 226#       发表于 2021-9-30 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52950832&amp;ptid=2026924" target="_blank">obelisk 发表于 2021-9-30 15:05</a>
+
+有人是win7的吗？我游戏启动不起来</blockquote>
+最低配置:
+
+操作系统: Windows 10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好的，可以删游戏了
+
+

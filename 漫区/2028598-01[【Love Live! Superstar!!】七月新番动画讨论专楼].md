@@ -6128,3 +6128,14 @@ B站 4-6集 10月2日 晚上8点上
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我觉得那个吹爆都像下套一样……，明明自己没参与制作…………，但这集倒是把小千的人气一下拉起来
 
 
+
+
+*****
+
+####  Norkey1  
+##### 465#       发表于 2021-9-30 15:14
+
+
+刚定完星的又要跨年预定了，live东西出的太快了，感觉要买不起了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
