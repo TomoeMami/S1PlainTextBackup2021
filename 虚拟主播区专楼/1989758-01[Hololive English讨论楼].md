@@ -22336,3 +22336,19 @@ en到底是什么🤔
 Ameback <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  smy20011  
+##### 1411#         楼主| 发表于 2021-9-30 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52946887&amp;ptid=1989758" target="_blank">窓付き 发表于 2021-9-30 10:00</a>
+
+kronii是韩国人，sana是澳大利亚亚裔，hakos是马来人，还有个夏威夷日裔irys
+
+en到底是什么🤔 ...</blockquote>
+Ina也是韩裔啊，英语发音比较流利就行了吧
+
+
