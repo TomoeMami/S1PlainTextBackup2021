@@ -1924,3 +1924,16 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  挖泥船  
+##### 165#       发表于 2021-10-1 15:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来感觉这个游戏就是文明翻版没啥意思……
+
+现在这一折腾让我反而想玩了。
+
+

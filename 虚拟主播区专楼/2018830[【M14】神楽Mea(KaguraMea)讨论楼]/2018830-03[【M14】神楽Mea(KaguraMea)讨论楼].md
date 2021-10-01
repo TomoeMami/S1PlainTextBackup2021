@@ -3558,3 +3558,39 @@ https://mall.jd.com/index-10233193.html</blockquote>
 今天早起怎么没发推<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3315#       发表于 2021-10-1 15:02
+
+
+ 本帖最后由 T_Hb 于 2021-10-1 15:03 编辑 
+
+bsyl
+
+<img src="https://img.saraba1st.com/forum/202110/01/150159f3u116lkf4rf3xnz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (26.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-1 15:01 上传
+
+
+原来今天有事是去打疫苗了
+
+
+*****
+
+####  pei23333  
+##### 3316#       发表于 2021-10-1 15:03
+
+
+惊了，居然打疫苗了，所以昨天是说打疫苗鸽了？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
