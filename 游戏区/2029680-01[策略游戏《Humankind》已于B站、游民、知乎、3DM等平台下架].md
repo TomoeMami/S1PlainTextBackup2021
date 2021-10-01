@@ -2053,3 +2053,27 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 希望只是国庆节特殊情况避免风头，等其他情况再过去
 
 
+
+
+*****
+
+####  天邪鬼  
+##### 175#       发表于 2021-10-1 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963033&amp;ptid=2029680" target="_blank">代练水笔 发表于 2021-10-1 16:33</a>
+我早说了要搞一个游戏届的中国文化ngo，出了问题还有机会回旋，总好过直接下架 ...</blockquote>
+我怎么感觉这是变相给搞审核的一个权力寻租的机会
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  千千千千鸟  
+##### 176#       发表于 2021-10-1 17:58
+
+
+P站游戏以后都学十字军之王3，不要出现中国，然后留个口子让玩家自己制作中国mod<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
