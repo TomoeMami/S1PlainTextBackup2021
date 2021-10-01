@@ -18272,3 +18272,85 @@ Let's goooooo!
 你刚才是不是说漏嘴了
 
 
+
+
+*****
+
+####  free  
+##### 7314#       发表于 2021-10-1 21:06
+
+
+刷こんるる的能不能消停点......
+
+
+居然是圆脸<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  icecry  
+##### 7315#       发表于 2021-10-1 21:07
+
+
+这声音完全不带变的..
+
+
+*****
+
+####  FCCHua  
+##### 7316#       发表于 2021-10-1 21:11
+
+
+没了皮看多少有点不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skyhood  
+##### 7317#       发表于 2021-10-1 21:14
+
+
+令人安心的声音 苹果肌羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  rrrimo  
+##### 7318#       发表于 2021-10-1 21:16
+
+
+她说话真的是眼睛瞪老大然后带点微笑，然后表情基本不变，其实还真有点哈人<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 7319#       发表于 2021-10-1 21:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">是live2d限制了七夫人啊
+还秀身上那件恐怖片主题的T恤<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 7320#       发表于 2021-10-1 21:18
+
+
+<blockquote>大魔界村が好きかな？</blockquote>
+
+
+
+
+*****
+
+####  IDIDIDID  
+##### 7321#       发表于 2021-10-1 21:24
+
+
+和海苔男一样习惯说话摇头了，皮套人工伤了属于是
+
+
