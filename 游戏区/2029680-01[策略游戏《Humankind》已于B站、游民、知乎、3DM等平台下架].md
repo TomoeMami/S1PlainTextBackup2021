@@ -1430,3 +1430,16 @@ Big brother is watching you！
 诶嘿…
 
 
+
+
+*****
+
+####  bbf10000  
+##### 123#       发表于 2021-10-1 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959271&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 08:38</a>
+安于现状就是保护既得利益，这是政策变化和改革的一贯之难，手游网游那套市场机制，营收规模，税收和退税 ...</blockquote>
+麻烦用你的奸臣逻辑解释下隔壁动画区的审核黑泥帖。对于姥爷来说，文化意识形态方面的问题可比克金问题严重得多
+
+

@@ -915,3 +915,35 @@ an小芦实力角度要抽是吧？打算抽一下试试</blockquote>
 女仆要是和美幸下去了那才是黑礁化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6066#       发表于 2021-10-1 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960232&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-10-1 11:05</a>
+
+我就服了所谓的地下完全就是shard的核心区域吧
+
+各种涉及安保民生的关键设备设施都在这里
+
+搞得这么无 ...</blockquote>
+黑帮又不是SB，这次也说了月人的管理区域是安全的。当然你说的没错，主线毛子已经渗透恐袭了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 6067#       发表于 2021-10-1 11:21
+
+
+ 本帖最后由 江戸前ルナ 于 2021-10-1 11:22 编辑 
+
+看之前中野某次打工活动，控制区域还是在管辖下的。这次也提到地下很多地方没图纸，于是就成了三不管地带了。不过这些管辖区域月人权限到底有多大现在不好说。黑帮势力估计也不敢在地上区域搞大武器火拼。要是这样就和**SIN一个等级了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+只能说外国（船团）自有国情在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
