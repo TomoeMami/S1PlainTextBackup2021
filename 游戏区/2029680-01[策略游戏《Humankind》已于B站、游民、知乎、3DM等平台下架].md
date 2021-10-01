@@ -1964,3 +1964,42 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 本来我是想等打折再买的 现在趁有可能的锁国区之前豪华版走起
 
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 168#       发表于 2021-10-1 16:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉以后真要做涉及国内的东西，特别是涉及近代的，理论上可能是真要和国内机构合作，有机构给他背书，然后真出事了国内也能找到地方担任
+
+然而估计这么搞可能有2种不好发展倾向，第一个是国内没机构敢做这种事情，另外一种就是诞生只为了钱啥都能放过的机构，把整个环境搞的很乱然后召唤铁拳。要避免二极管情况，太难了
+
+
+*****
+
+####  代练水笔  
+##### 169#       发表于 2021-10-1 16:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52962966&amp;ptid=2029680" target="_blank">椎名mahuyo 发表于 2021-10-1 16:25</a>
+感觉以后真要做涉及国内的东西，特别是涉及近代的，理论上可能是真要和国内机构合作，有机构给他背 ...</blockquote>
+我早说了要搞一个游戏届的中国文化ngo，出了问题还有机会回旋，总好过直接下架
+
+
+*****
+
+####  魔法使い2019  
+##### 170#       发表于 2021-10-1 16:33
+
+
+ 本帖最后由 魔法使い2019 于 2021-10-1 16:39 编辑 
+
+答案只有一个: 别做现实(包括古代)中国相关。 我对一切文化产品都是这个意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我知道我是站着说话不腰疼因为我不属于喜欢中国元素的人之一(我怀疑这是因为我没体验过(我认为的)优秀的中国风作品所以才会这样。 不过说这个也没意义了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+喜欢中国元素的可以向我扔石头了((虽然这没有意义
+
+
