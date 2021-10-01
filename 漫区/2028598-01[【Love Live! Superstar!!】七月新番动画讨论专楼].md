@@ -6982,3 +6982,45 @@ d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌
 另外按理说类型相似的企划不该联动啊，难道真要走硬核音游路线了？<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 531#       发表于 2021-10-1 23:08
+
+
+<img src="https://img.saraba1st.com/forum/202110/01/230746za0avparhnsnqgqj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211001_230016.jpg</strong> (212.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-1 23:07 上传
+
+
+正经的青山姐好有气质好好看
+
+
+*****
+
+####  cat1230  
+##### 532#       发表于 2021-10-1 23:19
+
+
+青山算不算LL系列中之人颜值巅峰？
+
+
+*****
+
+####  4869Bi  
+##### 533#       发表于 2021-10-1 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52966825&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-1 23:19</a>
+
+青山算不算LL系列中之人颜值巅峰？</blockquote>
+要不先把缪水虹各自的颜值代表选出来，然后四团对战？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
