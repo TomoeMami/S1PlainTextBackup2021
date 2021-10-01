@@ -891,3 +891,27 @@ an小芦实力角度要抽是吧？打算抽一下试试</blockquote>
 夜露的夜魔无道的“地下”是卫星里居住区里的黑帮势力或不良集团吧，只是单纯的“非法不见得光”的意思。现在的是地下设施层，看米亚和巫女的对话，一般来说要取得许可才能进入的，是真正的“地下”。结合上次MOE的活动所说的存在大量无政府管辖区域，活跃地区完全不同，瞬间黑礁化也能理解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6064#       发表于 2021-10-1 11:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就服了所谓的地下完全就是shard的核心区域吧
+各种涉及安保民生的关键设备设施都在这里
+搞得这么无政府主义真的不会对shard整体运行有破坏性的影响吗...
+
+
+*****
+
+####  不灭的旋律  
+##### 6065#       发表于 2021-10-1 11:07
+
+
+5000人规模的不良团伙不可能只在地上的，而且你看这次和毛子火并的Inferno上次还不是到地上去找夜露的茬了（夜露还下去了），肯定有不少秘密通道出入很频繁的。
+
+女仆要是和美幸下去了那才是黑礁化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

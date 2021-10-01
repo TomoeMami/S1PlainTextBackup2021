@@ -1394,3 +1394,39 @@ Big brother is watching you！
 风雪夜归人。
 
 
+
+
+*****
+
+####  Antidote丶  
+##### 121#       发表于 2021-10-1 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957032&amp;ptid=2029680" target="_blank">Cloudfarron 发表于 2021-9-30 23:42</a>
+
+我最受不了国内的审核制度的一点：没有任何书面通知，没有任何理由，莫名其妙的突然封禁一个游戏。封完了大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实他也不会告诉你封了。然后就会有人给姥爷找理由说是平台自肃。
+
+
+*****
+
+####  扭头就走  
+##### 122#       发表于 2021-10-1 11:02
+
+
+<blockquote>Antidote丶 发表于 2021-10-1 10:51
+其实他也不会告诉你封了。然后就会有人给姥爷找理由说是平台自肃。 ...</blockquote>
+豆瓣一个在新加坡写稿的前员工写过
+
+上头会给你一个电话：哪哪哪有些不对，什么什么内容太多。处理一下。
+
+
+然后豆瓣开始讨论该怎么处理，范围多大，多细，时间多久要追述多久。一通操作鸡飞狗跳。然后上头觉得合适，就觉得可以了，否则继续电话乃至喝茶。
+
+
+然后用户开始提问了，为什么他发可以我发不行？为什么最近又删了，为什么…于是开始报复性举报，于是有电话：你们最近举报激增，是不是没处理好用户矛盾啊，处理一下。
+
+
+诶嘿…
+
+
