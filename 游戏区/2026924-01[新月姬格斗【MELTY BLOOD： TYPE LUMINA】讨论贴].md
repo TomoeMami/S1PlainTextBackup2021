@@ -3227,3 +3227,14 @@ steam国区这价格真是日厂里的一股清流啊，直接买了<img src="ht
 能down就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  华理傻宅  
+##### 265#       发表于 2021-10-1 14:29
+
+
+油管上已经看到各种看不懂的连段了，这些触手是怎么发明连段的，也太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+

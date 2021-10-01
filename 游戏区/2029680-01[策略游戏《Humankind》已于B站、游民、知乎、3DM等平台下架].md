@@ -1886,3 +1886,26 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 比如封BL的时候就觉得自己代表民意，下奥特曼的时候自己又跑到小圈子里了
 
 
+
+
+*****
+
+####  belmen  
+##### 162#       发表于 2021-10-1 14:43
+
+
+姥爷轮铁锤就两个逻辑
+1.你有没有可能说些姥爷不喜欢的话，注意不是有没有，是有可能
+2.你要是说了，姥爷能不能第一时间拧断你的脖子
+如果1是2否，那被轮只是早晚的事，管你表了多少次衷心<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笑歌自若  
+##### 163#       发表于 2021-10-1 14:44
+
+
+笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
