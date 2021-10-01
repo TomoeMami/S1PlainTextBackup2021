@@ -18484,3 +18484,25 @@ Let's goooooo!
 gbr转了七夫人的直播推
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 7333#       发表于 2021-10-1 22:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初次同接是有buff的，很难留存这么多，记得当初游戏部跑路的三个人好像初配信最高3k多，第二次直播就只剩1k多了来着。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  本间日阳  
+##### 7334#       发表于 2021-10-1 22:56
+
+
+完完全全就是露露嘛<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+

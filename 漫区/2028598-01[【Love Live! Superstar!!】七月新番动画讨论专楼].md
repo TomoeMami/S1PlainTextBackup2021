@@ -6970,3 +6970,15 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 好像说是直接上原唱
 
 
+
+
+*****
+
+####  Norkey1  
+##### 530#       发表于 2021-10-1 22:49
+
+
+d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌也塞进去了，邦多利都没这个待遇。这游戏有这么多人玩吗值得砸钱买这么多歌的版权
+另外按理说类型相似的企划不该联动啊，难道真要走硬核音游路线了？<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
