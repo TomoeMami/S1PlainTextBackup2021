@@ -14695,3 +14695,21 @@ Korosan虽然早就也被绫总脑控了，但昨天生日倒计时的时候又�
 ？？？？？？？？？我不能接受
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13244#       发表于 2021-10-1 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964323&amp;ptid=1914409" target="_blank">水城雪风_Z 发表于 2021-10-1 18:57</a>
+
+绫总凭借一己之力让这同接平均值排行成为笑话
+
+摸余强者，恐怖如斯！</blockquote>
+这是中位数榜 绫总9月只开了5次
+
+3次同接3W以上就是榜首了
+
+
