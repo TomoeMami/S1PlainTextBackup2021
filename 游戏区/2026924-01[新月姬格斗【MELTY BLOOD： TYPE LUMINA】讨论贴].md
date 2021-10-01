@@ -3439,3 +3439,20 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 mbaacc都插上直接用的
 
 
+
+
+*****
+
+####  Caa  
+##### 283#       发表于 2021-10-1 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964586&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2021-10-1 19:23</a>
+
+小姑娘的逆向八极拳我就防不住
+
+
+这群人太坏了，就是攒气出这个，不管中不中直接月取消，中了就接 ...</blockquote>
+逆向八极拳可以直接插5A反打一套，而且挺好读的
+
+
