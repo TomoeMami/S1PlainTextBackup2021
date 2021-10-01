@@ -3242,3 +3242,29 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 我看这次有多少人说阿金<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  南条一间  
+##### 55732#       发表于 2021-10-1 23:50
+
+
+看微博分析才意识到消耗凯多的还有一直被他托着的鬼岛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+"哪怕被无数小辈围攻，需一手托鬼岛，我凯多一样无敌世间！"
+
+……
+
+"皇不可辱！！"
+
+
+……
+
+
+……
+
+
+"大妈救我！！！！"
+
+

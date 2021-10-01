@@ -18506,3 +18506,37 @@ gbr转了七夫人的直播推
 完完全全就是露露嘛<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  whzfjd  
+##### 7335#       发表于 2021-10-1 23:57
+
+
+vtuber 配音水平如何啊，感觉 hololive 这么推下去很多游戏和动画的 cast 得是皮套人了……
+
+
+*****
+
+####  生麦之发杀  
+##### 7336#       发表于 2021-10-2 00:02
+
+
+NIJISANJI KR 一期生Shin yuya 신유야 转生 
+[https://twitter.com/lolminyeo](https://twitter.com/lolminyeo)
+[https://www.twitch.tv/lolminyeo](https://www.twitch.tv/lolminyeo)
+
+只在twitch直播
+
+消息来源：韩语namuwiki：[https://namu.wiki/w/%EC%8B%A0%EC%9C%A0%EC%95%BC](https://namu.wiki/w/%EC%8B%A0%EC%9C%A0%EC%95%BC)
+
+查了编辑历史是9月12号加上去的信息，推特号是9月2号开的，不过似乎6月毕业没多久就开始在twitch上播了
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">反正人家wiki就直接写上去了，前几天我突发奇想想找转生翻半天没有结果人wiki里就有
+
+只要听过yuya的点进去一听就知道，声线没大变化，而且之前几个yuya铁粉也跟过去了，绝对是yuya
+
+
+PS：没开摄像头，没有美照。
+
+
