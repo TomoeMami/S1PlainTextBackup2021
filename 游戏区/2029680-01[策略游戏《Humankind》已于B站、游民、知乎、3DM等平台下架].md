@@ -1743,3 +1743,49 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 承认管文化的从上到下都是一群草包烂逼废物有这么难吗？呵，文化自信。
 
 
+
+
+*****
+
+####  920619lqy  
+##### 151#       发表于 2021-10-1 13:31
+
+
+<blockquote>叁佰陆拾伍式捌 发表于 2021-9-30 23:24
+承认管文化的从上到下都是一群草包烂逼废物有这么难吗？呵，文化自信。</blockquote>
+那为什么他们可以坐在这个位置上呢？
+
+
+*****
+
+####  有优越感的人mk2  
+##### 152#       发表于 2021-10-1 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961698&amp;ptid=2029680" target="_blank">920619lqy 发表于 2021-10-1 13:31</a>
+
+那为什么他们可以坐在这个位置上呢？</blockquote>
+一个残酷的结论，他们这样做似乎真的代表了目前社会的主流民意
+
+
+*****
+
+####  Frimp  
+##### 153#       发表于 2021-10-1 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959947&amp;ptid=2029680" target="_blank">flypig_zhy 发表于 2021-10-1 10:31</a>
+
+？</blockquote>
+发什么问号？中国不是人民代表大会制度？
+
+
+*****
+
+####  makece  
+##### 154#       发表于 2021-10-1 13:48
+
+
+讨论一转“算来算去就会算到皇上身上。jpg”
+
+

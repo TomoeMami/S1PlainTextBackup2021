@@ -18068,3 +18068,19 @@ seeds刚成立的时候不能和无印联动，所以整体混得比较惨淡，
 省一楼，gamers是哪一回事我想不起来了
 
 
+
+
+*****
+
+####  Junchoon  
+##### 7299#       发表于 2021-10-1 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961552&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-10-1 13:14</a>
+
+虽然由我这个云的人来说可能不太好，总之抛砖引玉一下。
+
+早期虹分批出道，seed作为独立出道的liver团体不 ...</blockquote>
+凛前辈YYDS！
+
+

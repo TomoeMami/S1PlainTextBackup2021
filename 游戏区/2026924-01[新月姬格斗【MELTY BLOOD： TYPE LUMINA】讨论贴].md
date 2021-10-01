@@ -3194,3 +3194,19 @@ steam国区这价格真是日厂里的一股清流啊，直接买了<img src="ht
 有买steam版的测试网战效果如何
 
 
+
+
+*****
+
+####  MVnetVn  
+##### 263#       发表于 2021-10-1 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52953684&amp;ptid=2026924" target="_blank">icecry 发表于 2021-9-30 19:04</a>
+
+这一键连段有点吐了，虽然以前我就吐槽过以后估计会出一个一键连段的格斗游戏，没想到这游戏是mb ...</blockquote>
+1键连段 挺好的 这游戏速度太快了 刚开始很难确认的 一键挺好的
+
+高端连目押、蓄力、延迟还在的啊
+
+
