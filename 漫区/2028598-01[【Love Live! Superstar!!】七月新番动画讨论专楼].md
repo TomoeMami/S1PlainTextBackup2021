@@ -7024,3 +7024,14 @@ d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌
 要不先把缪水虹各自的颜值代表选出来，然后四团对战？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 534#       发表于 2021-10-1 23:25
+
+
+其他企划的中人不太了解，但在星团中单论颜绝对是最戳我xp的一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
