@@ -2448,3 +2448,16 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 我觉得我是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kimmmmmm  
+##### 204#       发表于 2021-10-2 06:10
+
+
+有中国内容的乳滑，没有中国内容的历史虚无主义，带mod的不安全，这游戏真难做……
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
