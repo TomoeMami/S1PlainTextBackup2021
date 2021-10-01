@@ -1937,3 +1937,30 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 现在这一折腾让我反而想玩了。
 
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 166#       发表于 2021-10-1 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960479&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 11:30</a>
+
+所以我觉得目前的方向不对。商业模式决定了产品的文化形态。不解决商业模式，产品怎么会转向？氪金抽卡抽 ...</blockquote>
+我觉得你不是干这个的，我也希望你不是干这个的。
+
+
+*****
+
+####  陈玉礼  
+##### 167#       发表于 2021-10-1 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52962529&amp;ptid=2029680" target="_blank">挖泥船 发表于 2021-10-1 15:24</a>
+本来感觉这个游戏就是文明翻版没啥意思……
+
+现在这一折腾让我反而想玩了。 ...</blockquote>
+本来我是想等打折再买的 现在趁有可能的锁国区之前豪华版走起
+
+
