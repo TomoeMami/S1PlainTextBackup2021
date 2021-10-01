@@ -7074,3 +7074,16 @@ d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌
 看发型吧
 
 
+
+
+*****
+
+####  damian-wade  
+##### 538#       发表于 2021-10-2 07:30
+
+
+青山姐好看归好看，但辨识度有点低，大概是眼睛比较小的关系？个人看法
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
