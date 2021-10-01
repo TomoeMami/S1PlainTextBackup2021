@@ -17012,3 +17012,17 @@ FZ十周年了，隔壁开始吹四战刷强于五战狗了，回来了，都回
 刷子要碰瓷大狗起码得上剑阶大号，枪阶的刷子实在是不够看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 83917#       发表于 2021-10-1 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961474&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-10-1 13:05</a>
+
+FZ十周年了，隔壁开始吹四战刷强于五战狗了，回来了，都回来了</blockquote>
+月球传统不能丢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+

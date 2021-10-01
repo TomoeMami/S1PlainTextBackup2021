@@ -2020,3 +2020,25 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 同意，这样对大家都好，只有想在游戏中扮演强国的一部分人受苦了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 172#       发表于 2021-10-1 17:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中国最大的文化输出是不要在文化内容中做中国
+
+可惜我活不到100年以后，不然我真想看看后续是什么情况
+
+
+*****
+
+####  Ne0  
+##### 173#       发表于 2021-10-1 17:20
+
+
+什么原因，历史虚无主义？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
