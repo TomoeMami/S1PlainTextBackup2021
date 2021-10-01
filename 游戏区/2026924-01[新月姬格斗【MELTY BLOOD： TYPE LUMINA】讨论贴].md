@@ -3352,3 +3352,16 @@ steam国区这价格真是日厂里的一股清流啊，直接买了<img src="ht
 我记得他们家游戏是逆向46都能防，海胆格斗就是。
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 276#       发表于 2021-10-1 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964381&amp;ptid=2026924" target="_blank">节艾司 发表于 2021-10-1 19:02</a>
+我记得他们家游戏是逆向46都能防，海胆格斗就是。</blockquote>
+小姑娘的逆向八极拳我救防不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
