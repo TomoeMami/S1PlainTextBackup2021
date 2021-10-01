@@ -6780,3 +6780,28 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 求问日历有没有代购或者拼的？微博问了个老粉，人家不带我玩，我这边购买老卡登录认证那
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 517#       发表于 2021-10-1 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960816&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-1 12:01</a>
+
+求问日历有没有代购或者拼的？微博问了个老粉，人家不带我玩，我这边购买老卡登录认证那 ...</blockquote>
+可以淘宝直接找代购 还便宜点
+
+
+*****
+
+####  lj205  
+##### 518#       发表于 2021-10-1 12:22
+
+
+<blockquote>cybernetics31 发表于 2021-10-1 12:05
+可以淘宝直接找代购 还便宜点</blockquote>
+莫名其妙又成功了……年底让朋友打包一起发回来好了…………
+
+

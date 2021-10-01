@@ -1563,3 +1563,71 @@ Big brother is watching you！
 你游戏行业在姥爷眼里是个什么货色自己没点逼数吗？
 
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 135#       发表于 2021-10-1 12:13
+
+
+<blockquote>斗鱼当时和主播说的是，这里面有现代中国，有很多主播用其他国家打中国，上面没有任何指示，但是斗鱼非常害怕，就不让播了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nightmare902015  
+##### 136#       发表于 2021-10-1 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960946&amp;ptid=2029680" target="_blank">椎名mahuyo 发表于 2021-10-1 12:13</a></blockquote>
+看到现代中国很困惑，作为势力被打会很害怕，希望不要再播了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那tm帝国4不是也吹了，中国天天被打
+
+
+*****
+
+####  口口子_  
+##### 137#       发表于 2021-10-1 12:18
+
+
+忍一忍，会习惯的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheOccuria  
+##### 138#       发表于 2021-10-1 12:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不要慌，是这些平台们故意扩大化给国家政策施压，资本家们太坏了！
+
+
+*****
+
+####  椎名mahuyo  
+##### 139#       发表于 2021-10-1 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960992&amp;ptid=2029680" target="_blank">nightmare902015 发表于 2021-10-1 12:17</a>
+
+看到现代中国很困惑，作为势力被打会很害怕，希望不要再播了
+
+
+那tm帝国4不是也吹了，中国天天被打 ...</blockquote>
+本来还说帝国4要做现代呢，后面改成古代也是考虑了这些吧
+
+有一说一，宋代被打管现代什么关系？当然你搞历史虚无主义那一套扣帽子，我也无语了 
+
+
+*****
+
+####  一生未立寸功  
+##### 140#       发表于 2021-10-1 12:23
+
+
+既然都是奸臣作祟搞扩大化，那什么时候来个清君侧啊
+
+
