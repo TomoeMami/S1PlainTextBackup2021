@@ -3313,3 +3313,29 @@ steam国区这价格真是日厂里的一股清流啊，直接买了<img src="ht
 这游戏44有无敌么
 
 
+
+
+*****
+
+####  zakki  
+##### 273#       发表于 2021-10-1 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963180&amp;ptid=2026924" target="_blank">double8 发表于 2021-10-1 16:51</a>
+真的吐了，一个全last_arc的视频评论都在吐槽伤害和hit不挂钩，以及各种手感问题……玩过前作的昨晚稍微玩 ...</blockquote>
+最草的是有人说这游戏是dw做的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kazuhira  
+##### 274#       发表于 2021-10-1 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52954128&amp;ptid=2026924" target="_blank">tttabc1 发表于 2021-9-30 19:44</a>
+开场动画这个分辨率哟
+
+还有就是怎么才能不让按键的时候弹输入法的框，用的是搜狗...</blockquote>
+添加英语语言，打游戏的时候Alt+Shift切换过去，就不用担心按出输入法了
+
+
