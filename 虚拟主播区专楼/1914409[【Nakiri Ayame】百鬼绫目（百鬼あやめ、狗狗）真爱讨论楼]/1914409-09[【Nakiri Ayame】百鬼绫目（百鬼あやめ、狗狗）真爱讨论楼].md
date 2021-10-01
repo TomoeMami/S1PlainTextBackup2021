@@ -14735,3 +14735,14 @@ Korosan虽然早就也被绫总脑控了，但昨天生日倒计时的时候又�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能蹦起来就算成功
 
 
+
+
+*****
+
+####  寺川愛美  
+##### 13247#       发表于 2021-10-2 00:13
+
+
+颱風好像還未走,看來也是獨自3D live了
+
+

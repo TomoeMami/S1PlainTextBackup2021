@@ -3506,3 +3506,29 @@ mbaacc都插上直接用的
 这次我怎么觉得空中派生技比想的要单一。浮空的变化段倒是还说。另外魔盾招架实在太克升龙了。
 
 
+
+
+*****
+
+####  Porsche  
+##### 289#       发表于 2021-10-2 00:08
+
+
+go1这个性能厨已经抱着傻巴不撒手了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还开的小号
+
+
+*****
+
+####  obelisk  
+##### 290#       发表于 2021-10-2 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52965075&amp;ptid=2026924" target="_blank">路西恩 发表于 2021-10-1 20:11</a>
+
+win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
+
+
+—— 来自 S1Fun</blockquote>
+看一下232楼，有解决方法
+
+

@@ -18540,3 +18540,17 @@ NIJISANJI KR 一期生Shin yuya 신유야 转生
 PS：没开摄像头，没有美照。
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7337#       发表于 2021-10-2 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967142&amp;ptid=1972669" target="_blank">whzfjd 发表于 2021-10-1 23:57</a>
+
+vtuber 配音水平如何啊，感觉 hololive 这么推下去很多游戏和动画的 cast 得是皮套人了…… ...</blockquote>
+业余水平
+
+
