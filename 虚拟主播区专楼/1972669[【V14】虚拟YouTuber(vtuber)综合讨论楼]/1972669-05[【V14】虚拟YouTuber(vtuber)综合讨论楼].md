@@ -18554,3 +18554,94 @@ vtuber 配音水平如何啊，感觉 hololive 这么推下去很多游戏和动
 业余水平
 
 
+
+
+*****
+
+####  nonecat  
+##### 7338#       发表于 2021-10-2 01:48
+
+
+社内是不是发生过什么
+
+也不是不想做这行了 一个两个放着原本还不错的粉丝数不要出来单干
+
+
+*****
+
+####  Junchoon  
+##### 7339#       发表于 2021-10-2 01:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967890&amp;ptid=1972669" target="_blank">nonecat 发表于 2021-10-2 01:48</a>
+
+社内是不是发生过什么
+
+也不是不想做这行了 一个两个放着原本还不错的粉丝数不要出来单干
+
+ ...</blockquote>
+gbr可能是想单干，露露那是.......呜呜呜呜，我的露露.......
+
+
+*****
+
+####  alcoholic1000  
+##### 7340#       发表于 2021-10-2 02:13
+
+
+KR的问题是运营轻视，支持力度不够，初期皮质量不行。2.0靠liver逼宫，Roha的新衣装一拖再拖逼得liver对粉丝多次失约（不只她）；
+
+KR的staff敷衍了事，音声/官号管理频繁出错，纪念活动一拉再拉...
+
+
+liver的营收数字难看，看不到未来
+
+
+*****
+
+####  Paisley  
+##### 7341#       发表于 2021-10-2 02:31
+
+
+nga虹楼又阴阳怪气楼人双标冲塔了，看了感觉真好笑<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 7342#       发表于 2021-10-2 02:54
+
+
+泥哥谭这种滑稽的打哑谜表演还要持续多久
+
+
+*****
+
+####  smy20011  
+##### 7343#       发表于 2021-10-2 04:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967142&amp;ptid=1972669" target="_blank">whzfjd 发表于 2021-10-1 23:57</a>
+
+vtuber 配音水平如何啊，感觉 hololive 这么推下去很多游戏和动画的 cast 得是皮套人了…… ...</blockquote>
+棒读
+
+
+*****
+
+####  我不是很好  
+##### 7344#       发表于 2021-10-2 04:36
+
+
+kr学bora啊，成功人士的经验多借鉴借鉴<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tiro_finale  
+##### 7345#       发表于 2021-10-2 04:52
+
+
+蜕皮单刷是新的版本答案吗
+
+

@@ -2365,3 +2365,86 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 这个扣鹅不活该么
 
 
+
+
+*****
+
+####  Antidote丶  
+##### 198#       发表于 2021-10-2 02:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960202&amp;ptid=2029680" target="_blank">扭头就走 发表于 2021-10-1 11:02</a>
+
+豆瓣一个在新加坡写稿的前员工写过
+
+上头会给你一个电话：哪哪哪有些不对，什么什么内容太多。处理一下。
+
+ ...</blockquote>
+我的意思是不会跟广大群众说我封了xxxxx，当然是私下联系平台让他们干了，而且平台也不敢说出来。
+
+
+*****
+
+####  khxooo  
+##### 199#       发表于 2021-10-2 02:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52956810&amp;ptid=2029680" target="_blank">soursoul 发表于 2021-9-30 23:25</a>
+很喜欢Kards开发者的一句话“我们十分喜爱中国，所以不会在游戏里加入任何中国内容” ...</blockquote>
+哈哈哈哈，还是这个人懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  勇者护手  
+##### 200#       发表于 2021-10-2 03:42
+
+
+乳 都可以乳
+
+
+*****
+
+####  pf67  
+##### 201#       发表于 2021-10-2 04:23
+
+
+ 本帖最后由 pf67 于 2021-10-2 04:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964100&amp;ptid=2029680" target="_blank">codecloud 发表于 2021-10-1 18:38</a>
+
+其实我最高不懂的一点就是：一群安安分分，用打游戏来消遣找不到老婆空余时间和多余的荷尔蒙的臭游戏宅，但 ...</blockquote>
+说白了，就是安安分分的才好打压，每次风吹草动，游戏就是第一个打压对象。
+
+
+反而那些巨跳的，大家都觉得危害非常大的，迟迟不见动手，因为难度大牵扯面广啊。
+
+
+只会列软柿子算是官僚主义通病了，只不过在文化这一领域是极其的突出
+
+
+*****
+
+####  pf67  
+##### 202#       发表于 2021-10-2 04:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961715&amp;ptid=2029680" target="_blank">有优越感的人mk2 发表于 2021-10-1 13:33</a>
+
+一个残酷的结论，他们这样做似乎真的代表了目前社会的主流民意</blockquote>
+想想前段时间的拉闸限电，类比下就知道这和主流民意有没有关系了
+
+
+*****
+
+####  LamdaHT  
+##### 203#       发表于 2021-10-2 04:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961608&amp;ptid=2029680" target="_blank">kanpachi 发表于 2021-10-1 13:21</a>
+
+上吊之前的崇祯大概觉得自己是</blockquote>
+你觉得你是明君吗？
+
+我觉得我是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
