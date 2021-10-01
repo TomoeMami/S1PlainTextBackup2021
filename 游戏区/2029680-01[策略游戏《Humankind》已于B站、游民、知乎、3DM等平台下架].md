@@ -1300,3 +1300,60 @@ Big brother is watching you！
 上一位野生的天才国师已经关小黑屋了，看这位新生公公能坚持多久
 
 
+
+
+*****
+
+####  五元请收好  
+##### 113#       发表于 2021-10-1 10:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52956797&amp;ptid=2029680" target="_blank">flypig_zhy60 发表于 2021-9-30 23:24</a>
+
+有个势力是现代中国，特色建筑就是people's congress,我猜就是这原因</blockquote>
+这难道有错吗？
+
+
+*****
+
+####  Stellar_Frost  
+##### 114#       发表于 2021-10-1 10:07
+
+
+即使奥威尔对托司机有明显和事实不符的评价，本尊也干过告发英共的事，他的书还是值得重读的，就当寓言故事了，反正也是小说
+
+
+*****
+
+####  五元请收好  
+##### 115#       发表于 2021-10-1 10:08
+
+
+ 本帖最后由 五元请收好 于 2021-10-1 10:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52956795&amp;ptid=2029680" target="_blank">gdsgdfhd 发表于 2021-9-30 23:24</a>
+
+他们想的不是你吹或黑，而是你不讨论b</blockquote>编辑了
+
+
+*****
+
+####  dogod  
+##### 116#       发表于 2021-10-1 10:11
+
+
+“没关系，还有三大妈”
+
+
+*****
+
+####  Magician_G  
+##### 117#       发表于 2021-10-1 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957941&amp;ptid=2029680" target="_blank">CharlieZ- 发表于 2021-10-1 00:56</a>
+隔壁又夹了一个贴其实要说预兆还是有的，之前有段时间我看寅子天天在玩人类难度，上瘾的不行，突然 ...</blockquote>
+寅子几月几日播的我去翻翻录播看看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

@@ -1787,3 +1787,16 @@ mhwi里长枪斗技迅龙 得先踩一下尾刺出裂伤开怨恨</blockquote>
 不过这么一说感觉确实和怨恨定位重复了
 
 
+
+
+*****
+
+####  Sine77  
+##### 162#       发表于 2021-10-1 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52958779&amp;ptid=2028210" target="_blank">アルメリア 发表于 2021-10-1 04:41</a>
+你是眼瞎还是没玩过mhw以前的mh？以前有多少配信任务mhr有多少自己数数？</blockquote>
+你是眼瞎还是理解不了汉语<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
