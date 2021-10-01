@@ -1275,3 +1275,17 @@ Big brother is watching you！
 泥潭怎么总有高中生姿势水平的傻逼激情cosplay野生国师
 
 
+
+
+*****
+
+####  厨具战士  
+##### 111#       发表于 2021-10-1 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959454&amp;ptid=2029680" target="_blank">Cloudfarron 发表于 2021-10-1 09:16</a>
+
+谁能告诉我一下，心理学上有没有什么专门的名词来描述这种心态？？我真的很好奇 ...</blockquote>
+末世论
+
+
