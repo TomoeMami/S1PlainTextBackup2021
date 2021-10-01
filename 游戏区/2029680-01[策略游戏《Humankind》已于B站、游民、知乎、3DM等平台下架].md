@@ -2003,3 +2003,20 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 喜欢中国元素的可以向我扔石头了((虽然这没有意义
 
 
+
+
+*****
+
+####  920619lqy  
+##### 171#       发表于 2021-10-1 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963036&amp;ptid=2029680" target="_blank">魔法使い2019 发表于 2021-10-1 02:33</a>
+
+答案只有一个: 别做现实(包括古代)中国相关。 我对一切文化产品都是这个意见
+
+
+我知道我是站着说话不 ...</blockquote>
+同意，这样对大家都好，只有想在游戏中扮演强国的一部分人受苦了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+

@@ -6805,3 +6805,19 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 莫名其妙又成功了……年底让朋友打包一起发回来好了…………
 
 
+
+
+*****
+
+####  emmerMK2  
+##### 519#       发表于 2021-10-1 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960548&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-1 11:37</a></blockquote>
+啊想要
+
+这个国内可以买到吗
+
+虽然我不看动画但是还是想要可可
+
+
