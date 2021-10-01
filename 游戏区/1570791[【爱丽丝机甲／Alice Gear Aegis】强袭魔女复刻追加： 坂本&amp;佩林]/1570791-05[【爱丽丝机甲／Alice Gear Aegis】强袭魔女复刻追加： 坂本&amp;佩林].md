@@ -947,3 +947,15 @@ an小芦实力角度要抽是吧？打算抽一下试试</blockquote>
 只能说外国（船团）自有国情在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6068#       发表于 2021-10-1 12:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上海shard还有黑帮呢
+一点都不符合主流价值观
+
+

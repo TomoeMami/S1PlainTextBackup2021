@@ -3161,3 +3161,16 @@ PS：主楼有一个地方写错了，旧世代6AB同样是dash，（AACC）2AB�
 地 狱 绘 图
 
 
+
+
+*****
+
+####  ギナ  
+##### 260#       发表于 2021-10-1 12:50
+
+
+steam国区这价格真是日厂里的一股清流啊，直接买了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

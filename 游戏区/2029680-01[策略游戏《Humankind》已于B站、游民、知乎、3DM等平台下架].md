@@ -1696,3 +1696,16 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">所以说也就别把别人做二战题材不带中国玩说成忽视中国作用了。。。
 
 
+
+
+*****
+
+####  robertjiong  
+##### 147#       发表于 2021-10-1 12:51
+
+
+跪下的是秦桧夫妻可不包括赵构啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
