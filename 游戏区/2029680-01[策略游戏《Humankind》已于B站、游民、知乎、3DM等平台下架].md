@@ -1631,3 +1631,68 @@ Big brother is watching you！
 既然都是奸臣作祟搞扩大化，那什么时候来个清君侧啊
 
 
+
+
+*****
+
+####  nightmare902015  
+##### 141#       发表于 2021-10-1 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961047&amp;ptid=2029680" target="_blank">椎名mahuyo 发表于 2021-10-1 12:22</a>
+本来还说帝国4要做现代呢，后面改成古代也是考虑了这些吧
+
+有一说一，宋代被打管现代什么关系？当然你搞历 ...</blockquote>
+至少近现代都是确定的雷。看了blue的培训笔记以后，以后帝国这类是不是历史虚无主义我也不好说。
+
+
+*****
+
+####  后藤P  
+##### 142#       发表于 2021-10-1 12:33
+
+
+epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
+
+
+*****
+
+####  walfeds  
+##### 143#       发表于 2021-10-1 12:40
+
+
+<blockquote>事实上，历史事实作为一种客观的发展进程，具有不可重复性、一维性、不可假设性。特别是对于关系一个国家和民族发展全局、发展方向和发展道路的历史事实，以及从历史事实抽象出来并为历史实践检验的基本理论前提，都不能假设。为了达到其政治目的，历史虚无主义者随意涂抹历史，无视历史发展的具体事实，忽视历史事实发生的具体条件，脱离历史事实发展进程中各种因素的普遍联系，缺乏对历史史料全面客观具体的分析，以主观臆断任意裁剪编排历史，以历史发展的个别现象取代历史发展进程中的普遍规律，将所谓的“新评价”“新思考”“新定位”等“假设历史”取代历史的真实发生，用主观“选择”的所谓历史事实推演真实发展的历史过程，假设、臆测根本没有任何历史依据的所谓中国近现代历史发展规律和道路，虚化100多年的中国近现代史。事实证明，历史虚无主义根本违背了尊重历史事实、实事求是的历史研究的根本原则和方法，将历史的客观可知性变成游戏符号，让历史游离于事实和虚构之间，其实质就是用唯心史观来看待历史。</blockquote>
+往小了说两百年内历史别碰，往大了说什么历史都别碰，都是历史虚无主义大毒草<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ギナ  
+##### 144#       发表于 2021-10-1 12:46
+
+
+三大妈下架对厂商应该是好事才对啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  历史厨  
+##### 145#       发表于 2021-10-1 12:46
+
+
+所以我朝上下五千的历史上有过哪些被一群“私自”瞎揣摩圣意的奸臣围绕的大明君呢？ 咱才疏学浅是没想到有这样的存在<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ESAKA!!!!  
+##### 146#       发表于 2021-10-1 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960591&amp;ptid=2029680" target="_blank">soursoul 发表于 2021-10-1 11:42</a>
+群里看别人说的，从现象来看真实性还是挺高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">所以说也就别把别人做二战题材不带中国玩说成忽视中国作用了。。。
+
+
