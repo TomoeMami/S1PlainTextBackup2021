@@ -1909,3 +1909,18 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Unlight  
+##### 164#       发表于 2021-10-1 14:49
+
+
+让我想起之前一个段子：（仅转发）
+
+中国的文化产业迟早跟英国的餐饮行业一样，本来有着不错的基础（基础是法餐），却因为种种机缘巧合，最终成了全世界的笑柄
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

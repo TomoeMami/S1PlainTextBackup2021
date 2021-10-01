@@ -14631,3 +14631,16 @@ Korosan虽然早就也被绫总脑控了，但昨天生日倒计时的时候又�
 最后还表示绫总是允许观众看直播的女人
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13240#       发表于 2021-10-1 14:54
+
+
+绫总又在pua船姨了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你杏还有哪个姨还没被脑控
+
+
