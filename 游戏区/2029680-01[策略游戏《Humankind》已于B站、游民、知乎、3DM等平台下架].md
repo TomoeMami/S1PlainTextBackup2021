@@ -1507,3 +1507,59 @@ Big brother is watching you！
 这游戏真的至少对中国挺有诚意的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过宣布自己要做现代中国时，很多人都想到这一刻了吧
 
 
+
+
+*****
+
+####  不知道还一直说  
+##### 130#       发表于 2021-10-1 11:52
+
+
+这游戏都已经狂舔了。。。
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 131#       发表于 2021-10-1 11:52
+
+
+历史虚无主义
+
+？
+
+
+*****
+
+####  koodooliz  
+##### 132#       发表于 2021-10-1 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960479&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 11:30</a>
+
+所以我觉得目前的方向不对。商业模式决定了产品的文化形态。不解决商业模式，产品怎么会转向？氪金抽卡抽 ...</blockquote>
+请问这跟封禁一个国外的游戏有什么关系？哦，资本为了防止老爷打击自己，联合一小撮砍头一个国外的游戏来给自己创造舆论优势是吧？这扩大化说了这么多年，你我能想到的那老爷肯定也能想到，但我也没见有谁壮士断腕啊，反倒是一刀切和限制版号越来越严，大资本肆无忌惮地给人民群众投喂“渣滓”呢。
+
+
+*****
+
+####  shikiki  
+##### 133#       发表于 2021-10-1 11:59
+
+
+也难怪现在熟悉国外历史的比国内的多，<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">为了保乌纱帽全都一刀切。
+
+
+*****
+
+####  bbf10000  
+##### 134#       发表于 2021-10-1 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52960479&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 11:30</a>
+所以我觉得目前的方向不对。商业模式决定了产品的文化形态。不解决商业模式，产品怎么会转向？氪金抽卡抽 ...</blockquote>
+你这个思路就不对啊，你觉得那些题材是厂商因为赚钱的原因不想做，但实际上是不敢做。电影电视剧可以抗日，网文和游戏不配抗日，你懂吗？
+
+你游戏行业在姥爷眼里是个什么货色自己没点逼数吗？
+
+
