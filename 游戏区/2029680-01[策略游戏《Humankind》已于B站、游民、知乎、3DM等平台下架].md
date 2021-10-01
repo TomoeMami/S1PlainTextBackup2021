@@ -2077,3 +2077,74 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 P站游戏以后都学十字军之王3，不要出现中国，然后留个口子让玩家自己制作中国mod<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qwwsong  
+##### 177#       发表于 2021-10-1 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963745&amp;ptid=2029680" target="_blank">千千千千鸟 发表于 2021-10-1 17:58</a>
+
+P站游戏以后都学十字军之王3，不要出现中国，然后留个口子让玩家自己制作中国mod ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">留口子做MOD无非也就是动森下场罢了
+
+
+*****
+
+####  千千千千鸟  
+##### 178#       发表于 2021-10-1 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963811&amp;ptid=2029680" target="_blank">qwwsong 发表于 2021-10-1 18:06</a>
+
+留口子做MOD无非也就是动森下场罢了</blockquote>
+那就基本扩大到所有PC游戏了，毕竟所有PC上的游戏都可以改进去一些不和谐的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  吃饭传说  
+##### 179#       发表于 2021-10-1 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  robertjiong  
+##### 180#       发表于 2021-10-1 18:10
+
+
+就算写古代也要战战兢兢啊 辽宋金时期 明朝 清朝 要是像走严肃路线 很多都是爱讨论内容
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  魔法使い2019  
+##### 181#       发表于 2021-10-1 18:10
+
+
+ 本帖最后由 魔法使い2019 于 2021-10-1 18:15 编辑 
+
+如果你为文化产业现状感到痛心疾首的话， 只要稍微“反转”一下， 改变自身立场就能开心了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+就像一个故事里好人一直被欺负， 坏人一直爽， 感到郁闷的话就把自身立场换到坏人那边<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+就像某些人声称自己看ntr作品代入黄毛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+同理， 只要你把自己的心理调整到文化产业的对立面就能爽了， 找什么合理化的理由都好 - 比如说加速啊什么的。
+
+
+不负责任地怀疑所谓“逆向民族主义”就是这么来的？ 原本的立场太过郁闷了， 所以就跑到对面去...然后发现原本让你郁闷的事都变成超级爽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
