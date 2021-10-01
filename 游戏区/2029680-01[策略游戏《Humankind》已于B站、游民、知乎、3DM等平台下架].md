@@ -1118,3 +1118,107 @@ Big brother is watching you！
 平台扩大化从几年前小说被锤用到现在，还拿这个洗的腻不腻啊
 
 
+
+
+*****
+
+####  结夜野棠.  
+##### 97#       发表于 2021-10-1 08:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52958800&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 05:06</a>
+我认为现在这是典型的故意扩大化来对抗上级政策方向。首先本来管制的方向主力是剑指当前的手游模式和商法。 ...</blockquote>
+你思考一下 什么政策和活动都会扩大化 那是哪里出了问题呢
+
+
+*****
+
+####  nukacolamania  
+##### 98#       发表于 2021-10-1 08:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957069&amp;ptid=2029680" target="_blank">flypig_zhy60 发表于 2021-9-30 23:45</a>
+
+蒙古战役，历史虚无主义</blockquote>
+蒙古战役按照某些专家的理论不是民族融合的进程吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flypig_zhy60  
+##### 99#       发表于 2021-10-1 08:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959160&amp;ptid=2029680" target="_blank">医生狼多 发表于 2021-10-1 08:16</a>
+
+平台扩大化从几年前小说被锤用到现在，还拿这个洗的腻不腻啊</blockquote>
+因为不说都是东林党的错，世界观会爆炸呗
+
+
+*****
+
+####  flypig_zhy60  
+##### 100#       发表于 2021-10-1 08:37
+
+
+ 本帖最后由 flypig_zhy60 于 2021-10-1 08:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959261&amp;ptid=2029680" target="_blank">nukacolamania 发表于 2021-10-1 08:36</a>
+
+蒙古战役按照某些专家的理论不是民族融合的进程吗</blockquote>
+不是官方的都是历史虚无主义<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">，居然敢先打西夏南宋，最后打金国（低难度）
+
+
+*****
+
+####  高龙  
+##### 101#       发表于 2021-10-1 08:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959244&amp;ptid=2029680" target="_blank">结夜野棠. 发表于 2021-10-1 08:33</a>
+
+你思考一下 什么政策和活动都会扩大化 那是哪里出了问题呢</blockquote>
+安于现状就是保护既得利益，这是政策变化和改革的一贯之难，手游网游那套市场机制，营收规模，税收和退税等等之下，既得利益的庞大程度可想而知。这部分其实也是改革深水区。所以我觉得为什么现在管事的是个游戏界老鸟，但是政策这么一刀切，也有一定原因。其它行业的改革也是一样，不过游戏这个产业在中国已经相当规模化了。换到别的国家，如果行业已经这样定型了，改革是不现实的，因为行业、官僚的利益纠葛和改革冲突，扩大化带来的选情压力等等。HK不是被精准扩大化的，它也是扩大化的余波波及的。当然，这属于我这边横向比较感觉的脑洞了。
+
+
+*****
+
+####  高龙  
+##### 102#       发表于 2021-10-1 08:39
+
+
+还有个有趣的共性现象，每次管理国内游戏发行的时候，都会有舆论造势要封Steam国区。这个也看过很多次了。这个是我觉得典型化的舆论导向扩大化。
+
+
+*****
+
+####  hv3gil  
+##### 103#       发表于 2021-10-1 08:41
+
+
+<blockquote>高龙 发表于 2021-10-1 08:38
+安于现状就是保护既得利益，这是政策变化和改革的一贯之难，手游网游那套市场机制，营收规模，税收和退税 ...</blockquote>
+真可怜
+
+
+*****
+
+####  hv3gil  
+##### 104#       发表于 2021-10-1 08:42
+
+
+<blockquote>高龙 发表于 2021-10-1 08:39
+还有个有趣的共性现象，每次管理国内游戏发行的时候，都会有舆论造势要封Steam国区。这个也看过很多次了。 ...</blockquote>
+噗嗤。
+
+啊哈哈哈哈哈哈哈哈
+
+
+*****
+
+####  flypig_zhy60  
+##### 105#       发表于 2021-10-1 08:43
+
+
+皇上都是好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
