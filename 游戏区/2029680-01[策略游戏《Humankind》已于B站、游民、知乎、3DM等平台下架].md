@@ -2267,3 +2267,31 @@ P站游戏以后都学十字军之王3，不要出现中国，然后留个口子
 上个月有个老哥发帖说希望任何游戏里都不要出现中国要素，被扣了几十鹅，那楼是不是被炸了？刚搜了下没找到<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  leachiman  
+##### 191#       发表于 2021-10-1 19:48
+
+
+可是你说的b站、知乎、3dm，它卖这个游戏嘛？
+
+
+不卖，那不就没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dqjsss  
+##### 192#       发表于 2021-10-1 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964557&amp;ptid=2029680" target="_blank">zashou 发表于 2021-10-1 19:20</a>
+
+20年前大家痛心的一是好游戏没能力做出来，二是盗版太多赚不到钱。
+
+现在这样这也不能做那也不能做是没预 ...</blockquote>
+怎么会没预料到，还记得当年网上流传的一个导演要拍一部末世科幻电影的自黑文章么 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+

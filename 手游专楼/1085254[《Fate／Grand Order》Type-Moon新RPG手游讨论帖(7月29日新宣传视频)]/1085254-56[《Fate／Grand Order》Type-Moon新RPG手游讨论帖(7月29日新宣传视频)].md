@@ -17074,3 +17074,26 @@ FZ十周年了，隔壁开始吹四战刷强于五战狗了，回来了，都回
 那应该是大量结晶放送了吧
 
 
+
+
+*****
+
+####  yangun22  
+##### 83922#       发表于 2021-10-1 19:49
+
+
+只有主线任务，过后给你一张，补宝具和硬币在新活动里拿
+
+
+*****
+
+####  白金口袋  
+##### 83923#       发表于 2021-10-1 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964588&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-10-1 05:23</a>
+
+那应该是大量结晶放送了吧</blockquote>
+运营终于意识到了老咸鱼们的结晶都差不多个位数了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
