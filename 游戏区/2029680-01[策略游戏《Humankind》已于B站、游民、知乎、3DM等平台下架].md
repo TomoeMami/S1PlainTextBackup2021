@@ -2306,3 +2306,32 @@ P站游戏以后都学十字军之王3，不要出现中国，然后留个口子
 看到你们破防，狗洞大师又要说禁得老对了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  扭头就走  
+##### 194#       发表于 2021-10-1 20:29
+
+
+<blockquote>hyakusiki 发表于 2021-10-1 19:33
+上个月有个老哥发帖说希望任何游戏里都不要出现中国要素，被扣了几十鹅，那楼是不是被炸了？刚搜了下没找到 ...</blockquote>
+找不到就是没发生过。
+
+下次再说下次再扣
+
+
+互联网有记忆，泥潭可没有。
+
+
+*****
+
+####  ttgg777  
+##### 195#       发表于 2021-10-1 20:39
+
+
+Steam靠着完美能活到现在我越想越觉得离谱，想搞死他的人多得数不完吧
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

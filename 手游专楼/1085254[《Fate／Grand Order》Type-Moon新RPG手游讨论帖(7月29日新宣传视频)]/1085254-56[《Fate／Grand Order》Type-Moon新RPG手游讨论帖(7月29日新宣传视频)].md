@@ -17097,3 +17097,16 @@ FZ十周年了，隔壁开始吹四战刷强于五战狗了，回来了，都回
 运营终于意识到了老咸鱼们的结晶都差不多个位数了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83924#       发表于 2021-10-1 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964897&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-10-1 19:54</a>
+运营终于意识到了老咸鱼们的结晶都差不多个位数了吗</blockquote>
+个位数？我结晶常年0个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
