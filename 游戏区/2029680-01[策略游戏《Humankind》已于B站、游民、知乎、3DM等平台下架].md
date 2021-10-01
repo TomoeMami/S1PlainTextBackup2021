@@ -1222,3 +1222,14 @@ Big brother is watching you！
 皇上都是好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  你好s1  
+##### 106#       发表于 2021-10-1 08:51
+
+
+            这游戏不好玩，不过很重视中国市场，发了不少中文视频，甚至是制作人自己说中文
+
+
