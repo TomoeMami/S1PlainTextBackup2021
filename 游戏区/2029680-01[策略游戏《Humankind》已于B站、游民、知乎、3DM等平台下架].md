@@ -2335,3 +2335,33 @@ Steam靠着完美能活到现在我越想越觉得离谱，想搞死他的人多
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  azccc52  
+##### 196#       发表于 2021-10-1 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52964693&amp;ptid=2029680" target="_blank">hyakusiki 发表于 2021-10-1 19:33</a>
+上个月有个老哥发帖说希望任何游戏里都不要出现中国要素，被扣了几十鹅，那楼是不是被炸了？刚搜了下没找到 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2025958-7-1.html](https://bbs.saraba1st.com/2b/thread-2025958-7-1.html)
+你说的是这个吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  扭头就走  
+##### 197#       发表于 2021-10-1 20:51
+
+
+<blockquote>azccc52 发表于 2021-10-1 20:49
+https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
+
+你说的是这个吗</blockquote>
+原来是这个……我还以为是另外一个“做中国题材=乳化”那位…
+
+
+这个扣鹅不活该么
+
+

@@ -3414,3 +3414,14 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 说起来op的音频一卡一卡的是怎么回事...
 
 
+
+
+*****
+
+####  modkingr  
+##### 281#       发表于 2021-10-1 20:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">格斗游戏老生常谈之摇杆带斜下的招有什么窍门吗 在练习模式练习连段 带斜下摇杆的招别说加入连段了 搓出来的概率都没有20％。。
+
+
