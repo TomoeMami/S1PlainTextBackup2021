@@ -3532,3 +3532,41 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 看一下232楼，有解决方法
 
 
+
+
+*****
+
+####  路西恩  
+##### 291#       发表于 2021-10-2 00:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967315&amp;ptid=2026924" target="_blank">obelisk 发表于 2021-10-2 00:20</a>
+看一下232楼，有解决方法</blockquote>
+感谢
+
+这个方法我一开始就试了，弹出一个更夸张的窗口说没有正常启动这个dll
+
+不过依然很感谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+国庆上班以后拿公司电脑玩吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  obelisk  
+##### 292#       发表于 2021-10-2 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967354&amp;ptid=2026924" target="_blank">路西恩 发表于 2021-10-2 00:27</a>
+
+感谢
+
+
+这个方法我一开始就试了，弹出一个更夸张的窗口说没有正常启动这个dll</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">好吧，如果是用的我那个链接下的dll还不行的话就不知道了
+
+这个dll网上版本还挺多的。。。
+
+
