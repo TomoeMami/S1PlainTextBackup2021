@@ -3210,3 +3210,20 @@ steam国区这价格真是日厂里的一股清流啊，直接买了<img src="ht
 高端连目押、蓄力、延迟还在的啊
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 264#       发表于 2021-10-1 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961750&amp;ptid=2026924" target="_blank">MVnetVn 发表于 2021-10-1 13:36</a>
+1键连段 挺好的 这游戏速度太快了 刚开始很难确认的 一键挺好的
+
+高端连目押、蓄力、延迟还在的啊 ...</blockquote>
+版边能多个一两千，版中就。。。
+
+能down就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

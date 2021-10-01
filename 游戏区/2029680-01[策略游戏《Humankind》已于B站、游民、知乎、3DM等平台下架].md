@@ -1813,3 +1813,76 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 我就是问清楚他在指代什么
 
 
+
+
+*****
+
+####  zashou  
+##### 157#       发表于 2021-10-1 14:14
+
+
+ 本帖最后由 zashou 于 2021-10-1 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52958800&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 05:06</a>
+
+我认为现在这是典型的故意扩大化来对抗上级政策方向。首先本来管制的方向主力是剑指当前的手游模式和商法。 ...</blockquote>
+放屁，简直无知到极点。中国游戏在有分级的海外一样冲畅销榜第一，还TMD怕分级。
+
+恶心玩意儿。
+
+
+*****
+
+####  CharlieZ-  
+##### 158#       发表于 2021-10-1 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959840&amp;ptid=2029680" target="_blank">Magician_G 发表于 2021-10-1 10:18</a>
+
+寅子几月几日播的我去翻翻录播看看
+
+
+—— 来自 S1Fun</blockquote>
+我记得整个八月底都在玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zashou  
+##### 159#       发表于 2021-10-1 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959276&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 08:39</a>
+
+还有个有趣的共性现象，每次管理国内游戏发行的时候，都会有舆论造势要封Steam国区。这个也看过很多次了。 ...</blockquote>
+号称做几把游戏传媒的人连业内人尽皆知的上意都不知道，还野鸡造势，你TMD野鸡自媒体吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cheatdeath3  
+##### 160#       发表于 2021-10-1 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961715&amp;ptid=2029680" target="_blank">有优越感的人mk2 发表于 2021-10-1 13:33</a>
+
+一个残酷的结论，他们这样做似乎真的代表了目前社会的主流民意</blockquote>
+难道不是吗？谁看得起臭打游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zashou  
+##### 161#       发表于 2021-10-1 14:23
+
+
+ 本帖最后由 zashou 于 2021-10-1 14:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961715&amp;ptid=2029680" target="_blank">有优越感的人mk2 发表于 2021-10-1 13:33</a>
+
+一个残酷的结论，他们这样做似乎真的代表了目前社会的主流民意</blockquote>
+从来没有民意
+
+只有自己在多数或者少数的错觉罢了
+
+比如封BL的时候就觉得自己代表民意，下奥特曼的时候自己又跑到小圈子里了
+
+
