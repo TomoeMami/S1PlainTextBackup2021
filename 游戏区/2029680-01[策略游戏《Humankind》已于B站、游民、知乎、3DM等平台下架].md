@@ -1709,3 +1709,37 @@ epic微博今天想发欧陆风云4也被限流了，好日子还在后头呢
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  燃烬之眼  
+##### 148#       发表于 2021-10-1 13:13
+
+
+封就封了8 
+
+—— 来自 vivo V2073A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kanpachi  
+##### 149#       发表于 2021-10-1 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961282&amp;ptid=2029680" target="_blank">历史厨 发表于 2021-10-1 12:46</a>
+
+ 所以我朝上下五千的历史上有过哪些被一群“私自”瞎揣摩圣意的奸臣围绕的大明君呢？ 咱才疏学浅是没想到有 ...</blockquote>
+上吊之前的崇祯大概觉得自己是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  叁佰陆拾伍式捌  
+##### 150#       发表于 2021-10-1 13:24
+
+
+承认管文化的从上到下都是一群草包烂逼废物有这么难吗？呵，文化自信。
+
+

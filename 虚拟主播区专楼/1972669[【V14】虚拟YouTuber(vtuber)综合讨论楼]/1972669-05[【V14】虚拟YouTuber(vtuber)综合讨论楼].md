@@ -18031,3 +18031,40 @@ mika都跳反了，索尼罪大恶极
 看V晚，谁能和我科普一下？谢谢
 
 
+
+
+*****
+
+####  Devi_Lito  
+##### 7297#       发表于 2021-10-1 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961314&amp;ptid=1972669" target="_blank">Junchoon 发表于 2021-10-1 12:49</a>
+
+隔壁楼看到的：“不是凛仙贝带着seeds组造反，以及gamers组上洛，虹可能这俩子企划在统合前都要无 ，就别大 ...</blockquote>
+seeds刚成立的时候不能和无印联动，所以整体混得比较惨淡，后面静凛在推上直接夯运营打破了这个规定
+
+
+*****
+
+####  渡鸦骑士  
+##### 7298#       发表于 2021-10-1 13:14
+
+
+ 本帖最后由 渡鸦骑士 于 2021-10-1 13:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52961314&amp;ptid=1972669" target="_blank">Junchoon 发表于 2021-10-1 12:49</a>
+
+隔壁楼看到的：“不是凛仙贝带着seeds组造反，以及gamers组上洛，虹可能这俩子企划在统合前都要无 ，就别大 ...</blockquote>
+虽然由我这个云的人来说可能不太好，总之抛砖引玉一下。
+
+早期虹分批出道，seed作为独立出道的liver团体不允许和当时正火热的一期二期联动。
+
+某种程度上导致了seed没有得到应有的关注度。
+
+在这种情况下凛前辈直接发推，怼运营觉得这种策略是不对的，并开始和seed联动破冰。
+
+这之后彩虹主家最终就不分分部了，全部统合为彩虹本部。
+
+省一楼，gamers是哪一回事我想不起来了
+
+
