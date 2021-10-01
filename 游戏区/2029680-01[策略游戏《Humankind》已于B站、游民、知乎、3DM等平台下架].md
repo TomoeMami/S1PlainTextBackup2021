@@ -1357,3 +1357,40 @@ Big brother is watching you！
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  flypig_zhy  
+##### 118#       发表于 2021-10-1 10:31
+
+
+<blockquote>五元请收好 发表于 2021-10-1 10:05
+这难道有错吗？</blockquote>
+？
+
+
+*****
+
+####  扭头就走  
+##### 119#       发表于 2021-10-1 10:37
+
+
+<blockquote>Cloudfarron 发表于 2021-10-1 09:16
+谁能告诉我一下，心理学上有没有什么专门的名词来描述这种心态？？我真的很好奇 ...</blockquote>
+有
+
+精神病。
+
+
+*****
+
+####  Stellar_Frost  
+##### 120#       发表于 2021-10-1 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959276&amp;ptid=2029680" target="_blank">高龙 发表于 2021-10-1 08:39</a>
+还有个有趣的共性现象，每次管理国内游戏发行的时候，都会有舆论造势要封Steam国区。这个也看过很多次了。 ...</blockquote>
+风雪夜归人。
+
+
