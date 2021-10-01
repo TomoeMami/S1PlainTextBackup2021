@@ -14644,3 +14644,20 @@ Korosan虽然早就也被绫总脑控了，但昨天生日倒计时的时候又�
 你杏还有哪个姨还没被脑控
 
 
+
+
+*****
+
+####  stmule  
+##### 13241#       发表于 2021-10-1 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52962347&amp;ptid=1914409" target="_blank">cctvyt1 发表于 2021-10-1 14:54</a>
+绫总又在pua船姨了 
+
+你杏还有哪个姨还没被脑控</blockquote>
+那必然是白姨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
