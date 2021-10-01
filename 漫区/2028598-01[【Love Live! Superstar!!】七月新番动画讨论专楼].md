@@ -6696,3 +6696,21 @@ b站要是敢上七八集我感觉怕是连9分都没有了<img src="https://sta
 鲤鱼的素颜在她b站和油管都有啊。直接放出来的，就那个圣诞妆容视频的一开始，没什么不让人看的吧
 
 
+
+
+*****
+
+####  ads147147  
+##### 512#       发表于 2021-10-1 09:58
+
+
+ 本帖最后由 ads147147 于 2021-10-1 09:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52958601&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-1 02:45</a>
+我寻思着巴士上这么睡能睡着吗？…………而且就那么点空间……算了……给我继续使劲贴…………让我们看看中 ...</blockquote>
+杏树睡照就是巴士上睡着了被集体拍照传阅了
+
+【【生放节选】伊波：为什么那么多人有我的睡颜照？-哔哩哔哩】https://b23.tv/qz832c
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
