@@ -7046,3 +7046,31 @@ d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌
 散发岬最戳我，然后是青山和鲤鱼
 
 
+
+
+*****
+
+####  JustW  
+##### 536#       发表于 2021-10-2 06:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52966286&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-1 22:21</a>
+
+原来第6集出之前那么多人把“全人类都应该来看”当真的吗
+
+那早知道我当时应该劝劝各位的 我一开始就没把这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不，肯定没几个人真觉得“全人类都应该来看”，但第三集播出前没这么宣传，第六集播出前这么宣传了，不由得让人预期第六集至少不会差于第三集
+
+
+*****
+
+####  lyflyflxf  
+##### 537#       发表于 2021-10-2 06:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963970&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-1 18:22</a>
+
+鲤鱼和小百合感觉越来越分不清了。</blockquote>
+看发型吧
+
+
