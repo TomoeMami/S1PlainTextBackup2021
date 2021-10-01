@@ -3570,3 +3570,17 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 这个dll网上版本还挺多的。。。
 
 
+
+
+*****
+
+####  xunit  
+##### 293#       发表于 2021-10-2 00:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967044&amp;ptid=2026924" target="_blank">mye 发表于 2021-10-1 23:47</a>
+
+作为一个格斗纯新打bossrush第一关就被公主疯狂摩擦 连段也练不出来看来我不适合这游戏，老版好歹剧情模式 ...</blockquote>
+连战打下来感觉第一战的公主比较吓人，给人个下马威，可以多用24C，发生速度快，突进长，很多时候AI就傻乎乎地吃这招，在版边还能接着追击，而且由于AI进攻意识加强，D的成功率提升了不少，防御的时候可以多D试试
+
+
