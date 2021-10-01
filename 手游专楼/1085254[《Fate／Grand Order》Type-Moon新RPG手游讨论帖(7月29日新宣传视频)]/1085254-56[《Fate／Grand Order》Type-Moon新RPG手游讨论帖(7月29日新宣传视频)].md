@@ -17001,3 +17001,14 @@ MB里紫苑都无了啊</blockquote>
 FZ十周年了，隔壁开始吹四战刷强于五战狗了，回来了，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 83916#       发表于 2021-10-1 15:51
+
+
+刷子要碰瓷大狗起码得上剑阶大号，枪阶的刷子实在是不够看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
