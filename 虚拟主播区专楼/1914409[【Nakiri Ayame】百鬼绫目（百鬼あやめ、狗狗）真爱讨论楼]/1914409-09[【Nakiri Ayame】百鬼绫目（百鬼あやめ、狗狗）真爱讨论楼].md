@@ -14661,3 +14661,26 @@ Korosan虽然早就也被绫总脑控了，但昨天生日倒计时的时候又�
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  水城雪风_Z  
+##### 13242#       发表于 2021-10-1 18:57
+
+
+绫总凭借一己之力让这同接平均值排行成为笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+摸余强者，恐怖如斯！
+
+
+<img src="https://img.saraba1st.com/forum/202110/01/185642hqsqm94619re66ix.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211001185440.jpg</strong> (76.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-1 18:56 上传
+
+
