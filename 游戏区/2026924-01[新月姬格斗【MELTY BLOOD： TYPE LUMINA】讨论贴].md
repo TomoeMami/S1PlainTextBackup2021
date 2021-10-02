@@ -3665,3 +3665,24 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 没七夜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  岸浪白野  
+##### 300#       发表于 2021-10-2 17:04
+
+
+<img src="https://img.saraba1st.com/forum/202110/02/170320d3dlluu6t6t6pqj7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>006Elg4qly1guzuzvnq0fj60hi0sfacu02.jpg</strong> (81.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-2 17:03 上传
+
+
+呆毛果然人少拿出来凑数的，顺便发售当日搞点热度
+
+

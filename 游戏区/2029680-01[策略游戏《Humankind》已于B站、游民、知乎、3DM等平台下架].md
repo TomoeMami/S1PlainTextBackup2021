@@ -2541,3 +2541,18 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 比较奇怪的是为啥会通知的是3大妈游民这些，按照以前的路径不是淘宝这些电商先行的吗......好像这些地方的特点都是讨论交流氛围比较重的，这禁的是借机爱讨论不是禁这游戏？
 
 
+
+
+*****
+
+####  dumplingpro  
+##### 211#       发表于 2021-10-2 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52971082&amp;ptid=2029680" target="_blank">mwj 发表于 2021-10-2 14:02</a>
+比较奇怪的是为啥会通知的是3大妈游民这些，按照以前的路径不是淘宝这些电商先行的吗......好像这些地方的 ...</blockquote>
+又不卖盘……
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
