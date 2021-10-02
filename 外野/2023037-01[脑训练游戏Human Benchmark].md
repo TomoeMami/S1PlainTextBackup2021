@@ -774,3 +774,14 @@ humanBenchMark of Intelligence，四舍五入也是BMI</blockquote>
 [https://youtu.be/bagQCkIDJwg](https://youtu.be/bagQCkIDJwg)
 
 
+
+
+*****
+
+####  Lawliet·L  
+##### 63#         楼主| 发表于 2021-10-2 14:53
+
+
+哦，原来pc端可以把页面拉大玩啊，那visual memory应该还有提升空间。不过这个人没有拉大也玩到25了[https://www.youtube.com/watch?v=3zILU5tOS_A&amp;t=37s](https://www.youtube.com/watch?v=3zILU5tOS_A&amp;t=37s)
+
+
