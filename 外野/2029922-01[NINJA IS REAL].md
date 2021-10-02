@@ -699,3 +699,46 @@ Seal是海豹我倒是知道，为什么不能用来给Diablo2R的角色来命�
 <img src="https://wx2.sinaimg.cn/mw2000/001mg2PXly1gv1cvaofi1j60mr09tjzf02.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Kiraru  
+##### 62#       发表于 2021-10-2 23:10
+
+
+逃跑还算正常吧，毕竟肯定是要尽量避免战斗的
+
+
+*****
+
+####  swrrt_11  
+##### 63#       发表于 2021-10-2 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52975360&amp;ptid=2029922" target="_blank">coobirufas 发表于 2021-10-2 22:52</a>
+Seal是海豹我倒是知道，为什么不能用来给Diablo2R的角色来命名，我是Sealed封印之类的意思
+
+另外RA忍者其实 ...</blockquote>
+三下吧？两下就空血<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  coobirufas  
+##### 64#       发表于 2021-10-2 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52975529&amp;ptid=2029922" target="_blank">swrrt_11 发表于 2021-10-2 23:12</a>
+
+三下吧？两下就空血</blockquote>
+好几年没玩，忘了要几下<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+10年前第一次见忍者拔刀斩还是惊到了，这刀花有点帅
+
+
+所以这个忍者Coser倒是用手里剑啊，最好A一下摆个pose<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+开个玩笑
+
+
