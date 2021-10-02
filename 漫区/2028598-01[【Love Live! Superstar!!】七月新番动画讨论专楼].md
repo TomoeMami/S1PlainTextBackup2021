@@ -7307,3 +7307,14 @@ d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cat1230  
+##### 554#       发表于 2021-10-2 16:10
+
+
+LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

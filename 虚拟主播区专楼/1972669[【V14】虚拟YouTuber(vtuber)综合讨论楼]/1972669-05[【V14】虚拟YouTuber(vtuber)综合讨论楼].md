@@ -18812,3 +18812,17 @@ Qu酱selen和hada她们玩这个游戏挺有意思的<img src="https://static.sa
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ara搞了健身环运动会，圣诞音乐会，seffyna搞了跨国歌回，这次难得运营肯动动
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7359#       发表于 2021-10-2 16:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959311&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-1 08:46</a>
+看repo，hnn貌似还是要参加这届cr，剩下还没公布的是zeder队友？千草真就御用韩翻
+syl kmt昨晚直播怎么设私 ...</blockquote>
+果然是zeder，千草，hnn
+
+
