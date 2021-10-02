@@ -18941,3 +18941,23 @@ kmt这个月不仅有翻唱还有新衣服？！新衣服我信了，至于图�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 7367#       发表于 2021-10-2 19:05
+
+
+三角背包还有新衣服了阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 7368#       发表于 2021-10-2 19:07
+
+
+你怎么还活着
+
+
