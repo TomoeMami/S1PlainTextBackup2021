@@ -3635,3 +3635,16 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 那可能是街霸式，普通dp只有上半身无敌，要ex
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 298#       发表于 2021-10-2 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52970318&amp;ptid=2026924" target="_blank">华理傻宅 发表于 2021-10-2 12:21</a>
+用BC强化的升龙，反正我是根本想不起来用月槽的</blockquote>
+月升龙可以跳取消哇，安全的一笔。可是我就是按月升龙被2a康<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
