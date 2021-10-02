@@ -14789,3 +14789,50 @@ Korosan虽然早就也被绫总脑控了，但昨天生日倒计时的时候又�
 起码比以前好了 以前是广播体操
 
 
+
+
+*****
+
+####  Fami水  
+##### 13252#       发表于 2021-10-2 19:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能是老师在讲客气话，对谁都是这句话
+
+
+*****
+
+####  pliee  
+##### 13253#       发表于 2021-10-2 19:32
+
+
+来晚了，已经是站桩状态了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 13254#       发表于 2021-10-2 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，团长这出场 蚌埠住了
+
+
+*****
+
+####  cctvyt1  
+##### 13255#       发表于 2021-10-2 19:38
+
+
+同接7.5W 看来绫总今晚大概就这数字了
+
+
+*****
+
+####  Baroq  
+##### 13256#       发表于 2021-10-2 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">还是那么可爱捏
+
+

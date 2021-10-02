@@ -3699,3 +3699,27 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 这可难不住我，分别是熊猫师傅，红毛妹妹，不穿道袍的印度修女和不穿毛衣的毛衣公主！
 
 
+
+
+*****
+
+####  panda_vs_panda  
+##### 302#       发表于 2021-10-2 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52934550&amp;ptid=2026924" target="_blank">Porsche 发表于 2021-9-29 11:00</a>
+2.9G不是问题 接下来国内大家等的肯定是更便捷的联机启动器不知道真神还有没有兴趣碰这个，avc也不 ...</blockquote>
+广州今天有聚，avc今天战了
+
+
+*****
+
+####  Porsche  
+##### 303#       发表于 2021-10-2 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52973439&amp;ptid=2026924" target="_blank">panda_vs_panda 发表于 2021-10-2 19:27</a>
+广州今天有聚，avc今天战了</blockquote>
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我试试能不能把夜空叫回来
+
+
