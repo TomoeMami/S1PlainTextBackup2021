@@ -4958,3 +4958,23 @@ syl 艾瑞思这建模真不行 建议枪毙掉建模的
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  rgauss  
+##### 436#       发表于 2021-10-2 22:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这弹幕量咋突然这么多 
+
+
+*****
+
+####  DKD  
+##### 437#       发表于 2021-10-2 22:14
+
+
+草 千鸟这新皮一换 我就想看了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+

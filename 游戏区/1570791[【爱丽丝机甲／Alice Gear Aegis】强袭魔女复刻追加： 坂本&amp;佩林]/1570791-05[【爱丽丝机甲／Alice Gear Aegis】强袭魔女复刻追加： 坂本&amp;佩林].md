@@ -1074,3 +1074,14 @@ aga的这种纯电子乐希望他能发挥好点吧...
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6077#       发表于 2021-10-2 22:21
+
+
+今天的活动提到战斗服都有力场可以一定程度挡子弹了，越来越玄乎<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+

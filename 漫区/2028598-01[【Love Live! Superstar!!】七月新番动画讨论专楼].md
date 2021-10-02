@@ -7573,3 +7573,23 @@ LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st
 现在看来前三集反而没什么删减的，除了跪拜那个很多人觉得不满意的镜头
 
 
+
+
+*****
+
+####  TTAA  
+##### 578#       发表于 2021-10-2 22:23
+
+
+动画删成这样实在懒得看了，不知道还能拉到多少新人
+
+
+*****
+
+####  passion_krsw  
+##### 579#       发表于 2021-10-2 22:26
+
+
+以后还是别买了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
