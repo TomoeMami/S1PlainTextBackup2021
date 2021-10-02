@@ -1034,3 +1034,18 @@ an小芦实力角度要抽是吧？打算抽一下试试</blockquote>
 vice瞬间变beta和奇居子了？
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6074#       发表于 2021-10-2 08:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967841&amp;ptid=1570791" target="_blank">windaria 发表于 2021-10-2 01:37</a>
+樱庭统不是挺好的吗，虽然不怎么合适</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只是统哥最近给toar搞得配乐可是有点拉
+不知道是不是他不擅长交响乐风格
+aga的这种纯电子乐希望他能发挥好点吧...
+
+
