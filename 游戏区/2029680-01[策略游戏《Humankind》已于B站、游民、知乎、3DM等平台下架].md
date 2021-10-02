@@ -2461,3 +2461,18 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 —— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  旧梦囚心  
+##### 205#       发表于 2021-10-2 08:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957032&amp;ptid=2029680" target="_blank">Cloudfarron 发表于 2021-9-30 23:42</a>
+我最受不了国内的审核制度的一点：没有任何书面通知，没有任何理由，莫名其妙的突然封禁一个游戏。封完了大 ...</blockquote>
+理由是不能给的，给了第一次就要给第二次，以后就要回回给，万一哪次他们给不出理由了怎么办？不能开这个头🤣
+
+— from samsung SM-G9700, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
