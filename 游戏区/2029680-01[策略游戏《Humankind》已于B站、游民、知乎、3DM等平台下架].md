@@ -2556,3 +2556,25 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  火的意志  
+##### 212#       发表于 2021-10-2 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963507&amp;ptid=2029680" target="_blank">终焉之时 发表于 2021-10-1 17:28</a>
+希望只是国庆节特殊情况避免风头，等其他情况再过去</blockquote>
+你没发现，风头越避越多了吗
+
+
+*****
+
+####  seki_m  
+##### 213#       发表于 2021-10-2 17:40
+
+
+不说那么多的，虽然从不玩进这类游戏，但准备买一份支持一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
