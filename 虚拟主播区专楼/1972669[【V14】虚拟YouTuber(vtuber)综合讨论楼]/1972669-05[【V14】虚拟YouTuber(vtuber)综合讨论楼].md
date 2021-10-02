@@ -18895,3 +18895,49 @@ syl kmt昨晚直播怎么设私 ...</blockquote>
 2021-10-2 18:18 上传
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7364#       发表于 2021-10-2 18:35
+
+
+kmt这个月不仅有翻唱还有新衣服？！新衣服我信了，至于图灵爱的翻唱嘛...
+
+
+*****
+
+####  2black  
+##### 7365#       发表于 2021-10-2 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52972199&amp;ptid=1972669" target="_blank">hv3gil 发表于 2021-10-2 16:49</a>
+
+彩虹的主播是真的不行。
+
+看着就烦。フレン播的审判之逝，简直糟蹋游戏。
+
+对比一下前几天的正经主播ゆうな， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">现在还在看V综都是老熟人了，钓不到鱼的，放弃吧
+
+
+*****
+
+####  NBXX  
+##### 7366#       发表于 2021-10-2 18:46
+
+
+<img src="https://img.saraba1st.com/forum/202110/02/184624uxpv4idrli6eh614.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211002_184601.jpg</strong> (330.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-2 18:46 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
