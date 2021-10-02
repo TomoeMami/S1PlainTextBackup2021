@@ -895,3 +895,16 @@ When ninja dies, it explodes.
 जब निंजा मर जाता है, तो यह विस्फोट हो जाता है।
 
 
+
+
+*****
+
+####  6030sylar  
+##### 67#       发表于 2021-10-3 01:37
+
+
+oh，ninja，that is so gay
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
