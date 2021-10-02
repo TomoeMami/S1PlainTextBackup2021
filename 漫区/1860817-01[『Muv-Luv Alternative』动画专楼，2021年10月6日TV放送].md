@@ -9363,3 +9363,42 @@ alt子安在地球轨道那里掩护凄乃皇吧
 2021-10-3 01:28 上传
 
 
+
+
+*****
+
+####  healeveryone  
+##### 636#       发表于 2021-10-3 02:55
+
+
+这种右的不能再右的片子估计连港澳台都不敢放。话说这个到底是一季还是两季啊？一季怕不是要大幅魔改
+
+
+*****
+
+####  再买自检星剁手  
+##### 637#       发表于 2021-10-3 03:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52976811&amp;ptid=1860817" target="_blank">healeveryone 发表于 2021-10-3 02:55</a>
+
+这种右的不能再右的片子估计连港澳台都不敢放。话说这个到底是一季还是两季啊？一季怕不是要大幅魔改 ...</blockquote>
+没透露，现在连集数都不知道
+
+
+*****
+
+####  hlazd  
+##### 638#       发表于 2021-10-3 03:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52976811&amp;ptid=1860817" target="_blank">healeveryone 发表于 2021-10-3 02:55</a>
+
+这种右的不能再右的片子估计连港澳台都不敢放。话说这个到底是一季还是两季啊？一季怕不是要大幅魔改 ...</blockquote>
+楼里以前就发过了，是多个季度（具体没有说）
+ <blockquote>Giuseppe: So it could have multiple seasons?
+
+Kazutoshi Matsumura: Yes.</blockquote>
+[https://twinfinite.net/2020/01/muv-luv-interview-2/](https://twinfinite.net/2020/01/muv-luv-interview-2/)
+
+
