@@ -18985,3 +18985,16 @@ kmt这个月不仅有翻唱还有新衣服？！新衣服我信了，至于图�
 神椿市建設中。都市開発通信Vol.1〜始動〜
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7371#       发表于 2021-10-2 20:05
+
+
+ 本帖最后由 Suzutsuki 于 2021-10-2 20:07 编辑 
+
+以前CR专属翻译官不是bora吗，指定和CR组队时的唯一打手，先跟CPT拿了第一，后面跟selly一队就经常被人说了，练习赛乱杀，正赛被towa一坑没拿到第一，但捧selly的任务倒是完成了，后面估计是bora自己怕被说闲话，CR杯也就不跟那边的组队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
