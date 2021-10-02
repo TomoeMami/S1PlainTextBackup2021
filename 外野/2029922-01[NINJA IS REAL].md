@@ -753,3 +753,145 @@ Seal是海豹我倒是知道，为什么不能用来给Diablo2R的角色来命�
 咏唱俳句吧，SEAL桑<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kos_mos  
+##### 66#       发表于 2021-10-3 00:51
+
+
+ニンジャは紀元前から存在しています。
+
+Ninjas have existed since BC.
+
+忍者自公元前就已存在
+
+बीकस के बाद से निनजा का अस्तित्व है।
+
+
+ニンジャのスリケンが月面で発見され、アポロ11号が密かに持ち帰りました。
+
+Ninja's suriken was discovered on the moon, and Apollo 11 secretly brought it back to Earth.
+
+在月球上发现了忍者手里剑，阿波罗11号将它带回了地球
+
+
+NASAやペンタゴンも、ニンジャの脅威を知っています。
+
+NASA and the Pentagon also know the threat of Ninja.
+
+美国宇航局和五角大楼也知道忍者的威胁
+
+नासा और पेंटागन भी निंजा के खतरे को जानते हैं।
+
+
+ニンジャはとても素早い生き物です。
+
+Ninja is a very quick creature.
+
+忍者是极为快速的生物
+
+
+ニンジャの脚力はあなたの3倍以上あります。
+
+Ninja's leg strength is more than three times yours.
+
+忍者的脚力是你的3倍以上
+
+
+全力疾走するニンジャは色付きの風に見えます。
+
+A ninja sprinting at full speed looks like a colored wind.
+
+全力疾走的忍者看上去就是带色的风
+
+
+ニンジャはハイウェイを走る車と並走できます。
+
+Ninja can run side by side with cars on the highway.
+
+忍者和高速公路的车并跑
+
+
+ニンジャは歴史の影に潜んでいます。
+
+Ninjas lurk in the shadows of history.
+
+忍者潜伏在历史的影中
+
+
+関ヶ原の戦いでは両軍に多数のニンジャが参加しました。
+
+Many ninjas participated in both sides during the Battle of Sekibahara.
+
+关原之战两军多数的忍者参加
+
+
+テキサス独立戦争にもニンジャが関与しています。
+
+Ninjas are also involved in the Texas Revolutionary War.
+
+德克萨斯独立战争也和忍者有关
+
+
+グローバル企業の多くはニンジャを抱えています。
+
+Many global mega-corps have ninjas.
+
+国际企业拥有多数的忍者
+
+
+CEOもニンジャでした。
+
+The CEO is also a ninja.
+
+CEO也是忍者
+
+
+ニンジャは側転で銃弾をよけます。
+
+Ninjas can avoid bullets by cartwheeling.
+
+忍者用侧翻躲过子弹
+
+
+世界はニンジャによって操られています。
+
+The world is manipulated by ninjas.
+
+世界被忍者所操控
+
+
+議会、報道機関、治安維持機構、軍産複合体、宗教法人、空手家の組合などは全てニンジャに支配されています。
+
+Parliament, media, security organization, military-industrial complex, religious corporation, Karateka union, etc. are all manipulated by ninjas.
+
+议会、报导机关、治安维持机构、军产复合体、宗教法人、空手家的组合灯全被忍者所支配
+
+
+月面にもニンジャ基地が隠されています。
+
+There is also a ninja base on the moon.
+
+月面也隐藏着忍者基地
+
+
+ニンジャはスシが大好き。
+
+Ninja likes sushi, which is a perfect food.
+
+忍者喜欢寿司，是完全食品。
+
+निंजा को सुशी पसंद है।
+
+
+ニンジャは死ぬと爆発四散します。
+
+When ninja dies, it explodes.
+
+当忍者死亡时，会爆発四散。
+
+जब निंजा मर जाता है, तो यह विस्फोट हो जाता है।
+
+

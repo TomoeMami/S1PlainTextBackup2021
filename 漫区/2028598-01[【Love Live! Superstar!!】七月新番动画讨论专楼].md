@@ -7742,3 +7742,14 @@ LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st
 但是第六集相关内容一点都没删23333
 
 
+
+
+*****
+
+####  Norkey1  
+##### 592#       发表于 2021-10-3 00:47
+
+
+说明动画审核根本没有具体明确的标准，删改就像抽卡，要么你运气好，要么你氪金足够多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
