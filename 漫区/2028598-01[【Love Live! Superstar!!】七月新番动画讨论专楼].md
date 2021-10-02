@@ -7625,3 +7625,59 @@ LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st
 泥潭荣登色图背景板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个坛友画可可色图还要把泥潭拉上啊
 
 
+
+
+*****
+
+####  kata魂  
+##### 583#       发表于 2021-10-2 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52975222&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-2 22:42</a>
+
+泥潭荣登色图背景板哪个坛友画可可色图还要把泥潭拉上啊</blockquote>
+啥涩图，给个地址~~
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 584#       发表于 2021-10-2 22:47
+
+
+ 本帖最后由 兔姬姬姬姬姬 于 2021-10-2 22:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52975262&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-2 22:44</a>
+
+啥涩图，给个地址~~</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 585#       发表于 2021-10-2 22:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">顺便三九吕老师又画可可图了，我的超人……
+
+
+*****
+
+####  Norkey1  
+##### 586#       发表于 2021-10-2 22:55
+
+
+现在不是避风头了，是要变成新常态了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+以前除非是原则问题，看到让自己不爽的剧情都是拖进度条跳过，现在都是让大手直接删掉还在叫好，时代变了。享受公权力大手便利的同时当然要付出代价
+现在你b评论区歌舞升平的，删的再烂也会有人洗有人看的，大多数人只想看美少女卖萌，剧情逻辑真不重要，不也挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 587#       发表于 2021-10-2 22:56
+
+
+太草了，我觉得最细节的是证件居然是黑头发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
