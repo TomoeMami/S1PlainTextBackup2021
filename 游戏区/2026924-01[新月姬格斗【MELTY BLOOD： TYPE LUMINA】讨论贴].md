@@ -3622,3 +3622,16 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 用BC强化的升龙，反正我是根本想不起来用月槽的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  节艾司  
+##### 297#       发表于 2021-10-2 13:16
+
+
+<blockquote>红魔馆的糖 发表于 2021-10-1 23:55
+这游戏升龙发生是不是特别慢。玩了两个角色，升龙都会被2a康</blockquote>
+那可能是街霸式，普通dp只有上半身无敌，要ex
+
+

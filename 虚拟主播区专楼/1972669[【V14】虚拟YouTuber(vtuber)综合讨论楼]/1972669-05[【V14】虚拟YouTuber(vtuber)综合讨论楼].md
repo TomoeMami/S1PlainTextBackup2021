@@ -18795,3 +18795,20 @@ syl，露露<img src="https://static.saraba1st.com/image/smiley/face2017/138.png
 Qu酱selen和hada她们玩这个游戏挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7358#       发表于 2021-10-2 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52969887&amp;ptid=1972669" target="_blank">リスカ 发表于 2021-10-2 11:39</a>
+
+前几天kr整了个dq的galgame箱企划  运营有在做事的
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ara搞了健身环运动会，圣诞音乐会，seffyna搞了跨国歌回，这次难得运营肯动动
+
+
