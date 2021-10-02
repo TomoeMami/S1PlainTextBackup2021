@@ -1049,3 +1049,28 @@ vice瞬间变beta和奇居子了？
 aga的这种纯电子乐希望他能发挥好点吧...
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6075#       发表于 2021-10-2 13:49
+
+
+恭喜文嘉 肥姑妈化！（生放或做广告时终于不是其他人放玩具她放立牌了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+就是脸不怎么行，从高冷看垃圾的眼神变得有点憨憨，这不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灰色蔓延  
+##### 6076#       发表于 2021-10-2 14:06
+
+
+毕竟undershard和uppershard，负责shard的航行维生等基础设施由月之民的travelorder全权管理。相当于地表政府是人类帝国，travelorder是机械教。大家平时井水不犯河水，虽然outland有aegis御敌于外，但是月之民区域对于正常人来说就是完全的陌生区域了吧，虽然安全但是完全无政府化的感觉。月之民被地表政府夺走了alice之后也有好几百年…不搞事才奇怪了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
