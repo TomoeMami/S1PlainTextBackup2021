@@ -7719,3 +7719,26 @@ LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st
 2021-10-3 00:16 上传
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 590#       发表于 2021-10-3 00:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退学当然要删 不然孩子看完学坏了要跟着追梦退学咋办 按那个帖子说的审核人员要担责的话确实是得删
+
+
+*****
+
+####  qratosone  
+##### 591#       发表于 2021-10-3 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52976199&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-3 00:33</a>
+
+退学当然要删 不然孩子看完学坏了要跟着追梦退学咋办 按那个帖子说的审核人员要担责的话确实是得删 ...</blockquote>
+但是第六集相关内容一点都没删23333
+
+
