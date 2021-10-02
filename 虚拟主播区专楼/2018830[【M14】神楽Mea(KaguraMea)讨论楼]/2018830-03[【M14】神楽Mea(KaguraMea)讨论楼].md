@@ -4031,3 +4031,52 @@ syl，好吧，不是动画，是做沙雕视频的频道
 发现pmr字幕组也有个人叫小蘑菇酱
 
 
+
+
+*****
+
+####  路人庚  
+##### 3354#       发表于 2021-10-2 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52969920&amp;ptid=2018830" target="_blank">TiHaru 发表于 2021-10-2 11:42</a>
+
+当年做众筹的是不是一个叫小蘑菇酱的人啊
+
+
+发现pmr字幕组也有个人叫小蘑菇酱 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/02/115110oquqtqqqzysi2qyd.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (13.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-2 11:51 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TiHaru| + 1|谢谢|
+
+
+查看全部评分
+
+
+*****
+
+####  时间在我手中  
+##### 3355#       发表于 2021-10-2 12:03
+
+
+说起来还是别人和我说才知道，明天有批限啊，谔谔
+
+
