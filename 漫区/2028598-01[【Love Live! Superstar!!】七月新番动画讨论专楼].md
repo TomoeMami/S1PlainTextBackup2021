@@ -7087,3 +7087,19 @@ d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  Arccueid  
+##### 539#       发表于 2021-10-2 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52959871&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-1 10:22</a>
+
+追这企划是真费钱。。。。n个cd 还要留点钱给隔壁菜宝她们。。。。
+
+中之人还有fc。。。鲤鱼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">买CD还好了
+
+

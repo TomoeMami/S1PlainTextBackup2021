@@ -18674,3 +18674,29 @@ kr学bora啊，成功人士的经验多借鉴借鉴</blockquote>
 [https://www.bilibili.com/video/BV1NL4y1h7Sv](https://www.bilibili.com/video/BV1NL4y1h7Sv)
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7348#       发表于 2021-10-2 09:38
+
+
+ 本帖最后由 FCCHua 于 2021-10-2 09:42 编辑 
+
+看来hnn身体没啥事了，oreapo真的是花式被人发现在双排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 7349#       发表于 2021-10-2 09:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kr就没独立的会社，stf挂靠本社，Liver都是个人事业主，交税是老大难问题了
+
+加上stf胡搞，日子实在不好过
+
+syl 露露stk问题只能算是“能在直播里说的毕业理由”，其他理由只能问enkr了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这样露脸露房间布局，stk问题看来没那么愁了
+
+
