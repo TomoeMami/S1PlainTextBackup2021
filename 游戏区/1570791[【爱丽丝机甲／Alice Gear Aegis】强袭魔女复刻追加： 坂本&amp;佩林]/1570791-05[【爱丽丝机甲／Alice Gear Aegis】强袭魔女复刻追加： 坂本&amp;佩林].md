@@ -1085,3 +1085,25 @@ aga的这种纯电子乐希望他能发挥好点吧...
 今天的活动提到战斗服都有力场可以一定程度挡子弹了，越来越玄乎<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6078#       发表于 2021-10-2 22:30
+
+
+丽塔的小说就提过战斗服有护罩+生命维持装置，等于一个小号爱丽丝机甲了。有这双重防护当然敢吹机甲的绝对安全性。
+
+所以出击时不穿战斗服和夏亚不穿防护服在宇宙开MS一样吧，偏偏AEGIS还对服装还不做强行规定，不把女演员当人命啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灰色蔓延  
+##### 6079#       发表于 2021-10-2 22:39
+
+
+红花的ansuit也提到了专门考虑到脱离gear单兵作战进行了设计（怕不是加了动力辅助）
+
+

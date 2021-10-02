@@ -7593,3 +7593,35 @@ LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st
 以后还是别买了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Blackson  
+##### 580#       发表于 2021-10-2 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52975049&amp;ptid=2028598" target="_blank">passion_krsw 发表于 2021-10-2 22:26</a>
+
+以后还是别买了吧</blockquote>
+那估计以后更得大力地买了
+
+
+*****
+
+####  优妮可  
+##### 581#       发表于 2021-10-2 22:41
+
+
+不至于，奇蛋物语，死神少爷这些每集几乎都有删减的还是一堆人会去看的。
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 582#       发表于 2021-10-2 22:42
+
+
+泥潭荣登色图背景板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个坛友画可可色图还要把泥潭拉上啊
+
+
