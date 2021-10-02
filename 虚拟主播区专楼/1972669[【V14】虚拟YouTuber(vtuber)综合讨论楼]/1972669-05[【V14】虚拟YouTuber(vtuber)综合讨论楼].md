@@ -18700,3 +18700,34 @@ kr学bora啊，成功人士的经验多借鉴借鉴</blockquote>
 syl 露露stk问题只能算是“能在直播里说的毕业理由”，其他理由只能问enkr了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这样露脸露房间布局，stk问题看来没那么愁了
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7350#       发表于 2021-10-2 10:34
+
+
+编辑
+
+
+
+
+*****
+
+####  poipanchao  
+##### 7351#       发表于 2021-10-2 10:34
+
+
+bora也没少怼运营，见缝插针就diss一句运营废物不管事
+
+更别提还有会限直接开怼+休止一条龙，现在看来她心态已经是不抱希望就不会失望了
+
+
+syl，露露<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">在企业做中之人限制多啊
+
+毕竟她也说了“可以公开的理由”是stk，说明还有台面下的理由
+
+毕竟已经时过境迁了，没有继续纠结的必要
+
+
