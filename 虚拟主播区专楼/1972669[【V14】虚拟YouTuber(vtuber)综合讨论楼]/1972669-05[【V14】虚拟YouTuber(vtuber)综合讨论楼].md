@@ -18998,3 +18998,31 @@ kmt这个月不仅有翻唱还有新衣服？！新衣服我信了，至于图�
 以前CR专属翻译官不是bora吗，指定和CR组队时的唯一打手，先跟CPT拿了第一，后面跟selly一队就经常被人说了，练习赛乱杀，正赛被towa一坑没拿到第一，但捧selly的任务倒是完成了，后面估计是bora自己怕被说闲话，CR杯也就不跟那边的组队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 7372#       发表于 2021-10-2 20:15
+
+
+[https://twitter.com/jashinchan_PJ/status/1444167221882744840](https://twitter.com/jashinchan_PJ/status/1444167221882744840)
+
+総投票数は約2万票！オーディション参加者1661人「邪神ちゃんドロップキックX エキュートオーディション」を制したのはVtuber朝ノ瑠璃！
+
+
+看琉璃姐为了这个角色拉票几个月，终于选上了
+
+邪神酱漫画后面没看，不过看剧透应该是很重要的角色，这次恭喜了
+
+
+<img src="https://img.saraba1st.com/forum/202110/02/201531m5czhu5oo55mxv7o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>出演.jpg</strong> (388.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-2 20:15 上传
+
+

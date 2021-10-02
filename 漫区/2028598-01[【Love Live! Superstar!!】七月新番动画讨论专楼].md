@@ -7379,3 +7379,76 @@ LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st
 恋这么大吗，，原以为堇最大
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 560#       发表于 2021-10-2 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第四集感觉时间短了
+
+
+*****
+
+####  TTAA  
+##### 561#       发表于 2021-10-2 20:09
+
+
+删了民警绑架香音
+
+
+*****
+
+####  player3960  
+##### 562#       发表于 2021-10-2 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52973854&amp;ptid=2028598" target="_blank">TTAA 发表于 2021-10-02 20:09:33</a>
+删了民警绑架香音</blockquote>艹，漏了这段，不过没了这段岂不是把堇的一个黑点给洗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cybernetics31  
+##### 563#       发表于 2021-10-2 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是叔叔的温柔啊
+
+
+*****
+
+####  player3960  
+##### 564#       发表于 2021-10-2 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52973930&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-02 20:16:21</a>
+这是叔叔的温柔啊</blockquote>还别说，这段删了看起来还意外的没什么违和感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  球獭  
+##### 565#       发表于 2021-10-2 20:20
+
+
+名场面没了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cqc1021  
+##### 566#       发表于 2021-10-2 20:21
+
+
+名场面直接没了还行。搞不懂叔叔的G点。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
