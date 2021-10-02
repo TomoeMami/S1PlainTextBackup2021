@@ -4122,3 +4122,28 @@ lol
 可以表演猪猪吃饭
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 3360#       发表于 2021-10-2 15:23
+
+
+禁转期间批限，正常啦
+
+
+
+
+*****
+
+####  Klience  
+##### 3361#       发表于 2021-10-2 15:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52969108&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-10-2 09:54</a>
+
+看样子晚上通宵了，不知道是睡太饱了还是没睡好</blockquote>
+早醒了 5点就动了
+
+
