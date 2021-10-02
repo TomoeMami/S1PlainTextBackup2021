@@ -3608,3 +3608,17 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 角色待机语音要怎么出啊
 
 
+
+
+*****
+
+####  华理傻宅  
+##### 296#       发表于 2021-10-2 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967101&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2021-10-1 23:55</a>
+
+这游戏升龙发生是不是特别慢。玩了两个角色，升龙都会被2a康</blockquote>
+用BC强化的升龙，反正我是根本想不起来用月槽的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
