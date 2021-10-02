@@ -5009,3 +5009,66 @@ syl 艾瑞思这建模真不行 建议枪毙掉建模的
 2.8w,93的互动率 什么活粉
 
 
+
+
+*****
+
+####  莫洛骑士  
+##### 441#       发表于 2021-10-2 23:30
+
+
+ 本帖最后由 莫洛骑士 于 2021-10-2 23:37 编辑 
+
+静阿姨怎么只会眨眼睛不会动嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 这ED图片危险的发型，这应该都48了
+
+
+*****
+
+####  rgauss  
+##### 442#       发表于 2021-10-2 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52975690&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-2 23:30</a>
+静阿姨怎么只会眨眼睛不会动嘴了</blockquote>
+新皮设计问题吧 头好像是固定
+看着我难受死了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希波的奥古斯丁  
+##### 443#       发表于 2021-10-2 23:39
+
+
+感觉新皮不如旧皮，文静就应该是粗糙的巨乳**怪阿姨，这皮真不行
+
+
+*****
+
+####  Quark  
+##### 444#       发表于 2021-10-2 23:42
+
+
+新皮可动性好差 还是50阳光好 大小眼还能起跳座死我
+
+
+*****
+
+####  rgauss  
+##### 445#       发表于 2021-10-2 23:42
+
+
+现在希望明日思思的新皮效果能好点
+
+
+*****
+
+####  IDIDIDID  
+##### 446#       发表于 2021-10-2 23:43
+
+
+之前的rigging一坨屎，现在干脆连rigging都几乎没了，突出一个摆烂。
+
+

@@ -742,3 +742,14 @@ Seal是海豹我倒是知道，为什么不能用来给Diablo2R的角色来命�
 开个玩笑
 
 
+
+
+*****
+
+####  宏  
+##### 65#       发表于 2021-10-2 23:30
+
+
+咏唱俳句吧，SEAL桑<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
