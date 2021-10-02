@@ -2476,3 +2476,14 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 — from samsung SM-G9700, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
+
+
+*****
+
+####  skgaminger1988  
+##### 206#       发表于 2021-10-2 08:48
+
+
+什么是自信啊 这就是自信<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
