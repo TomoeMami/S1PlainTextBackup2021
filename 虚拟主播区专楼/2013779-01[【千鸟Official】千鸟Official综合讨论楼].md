@@ -4926,3 +4926,35 @@ syl 艾瑞思这建模真不行 建议枪毙掉建模的
 角川＞腾讯
 
 
+
+
+*****
+
+####  rgauss  
+##### 434#       发表于 2021-10-2 21:42
+
+
+文静的牌太多了
+
+
+*****
+
+####  人民de救星  
+##### 435#       发表于 2021-10-2 21:57
+
+
+<img src="https://img.saraba1st.com/forum/202110/02/215642ymvuqfmtlm8fls7p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>80174cf91a4c510f60b55d0e3d59252dd42aa502.jpg</strong> (34.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-2 21:56 上传
+
+
+ 希望运营赶紧修复猪耳朵缺失的Bug，不要不识抬举<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
