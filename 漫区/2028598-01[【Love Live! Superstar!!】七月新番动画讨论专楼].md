@@ -7261,3 +7261,25 @@ d4dj真是亲女儿，之前就有实装东方曲，现在holo东方拉拉的歌
 小百合还没成年啊，鲤鱼炼铜不是（
 
 
+
+
+*****
+
+####  lj205  
+##### 550#       发表于 2021-10-2 12:35
+
+
+何止打铁匠，还有佩佩，两个未成年，鲤鱼你这是犯罪
+
+
+*****
+
+####  saglork  
+##### 551#       发表于 2021-10-2 12:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52970191&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-2 12:05</a>
+照片的背后是付出了多大的努力啊，一个弯腰一个垫脚</blockquote>
+母女感溢出屏幕了，这味儿太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
