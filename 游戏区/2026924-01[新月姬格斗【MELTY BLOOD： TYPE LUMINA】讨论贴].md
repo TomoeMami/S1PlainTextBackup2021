@@ -3648,3 +3648,20 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 月升龙可以跳取消哇，安全的一笔。可是我就是按月升龙被2a康<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  欠损  
+##### 299#       发表于 2021-10-2 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52788475&amp;ptid=2026924" target="_blank">佐伯香織 发表于 2021-9-17 15:20</a>
+
+很早以前键盘练过一点点七夜连段，这次看看新作玩起来咋样
+
+
+—— 来自 OnePlus GM1910, Android 11上的 S1N ...</blockquote>
+没七夜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
