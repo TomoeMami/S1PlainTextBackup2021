@@ -7753,3 +7753,27 @@ LL系列还有这么母女CP感的中之人么<img src="https://static.saraba1st
 说明动画审核根本没有具体明确的标准，删改就像抽卡，要么你运气好，要么你氪金足够多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 593#       发表于 2021-10-3 01:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52975374&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-2 22:55</a>
+现在不是避风头了，是要变成新常态了
+以前除非是原则问题，看到让自己不爽的剧情都是拖进度条跳过， ...</blockquote>
+刚上线那会热评一排质疑为什么要删的 没一会就全没了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+可不敢不歌舞升平
+
+
+*****
+
+####  tamatama  
+##### 594#       发表于 2021-10-3 01:23
+
+
+那张S1背景图的可可发言的时间被改了，原来是14点16分的发言
+
+

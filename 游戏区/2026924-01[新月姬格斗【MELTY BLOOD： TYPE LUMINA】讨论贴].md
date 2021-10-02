@@ -3723,3 +3723,17 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 啊这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我试试能不能把夜空叫回来
 
 
+
+
+*****
+
+####  duraa  
+##### 304#       发表于 2021-10-3 01:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52972105&amp;ptid=2026924" target="_blank">欠损 发表于 2021-10-2 16:37</a>
+
+没七夜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在都古的LAST ARCS里面
+
+
