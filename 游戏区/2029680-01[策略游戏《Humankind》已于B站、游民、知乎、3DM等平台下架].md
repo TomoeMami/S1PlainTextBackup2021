@@ -2505,3 +2505,17 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 嘿…你能怎么办…
 
 
+
+
+*****
+
+####  Antidote丶  
+##### 208#       发表于 2021-10-2 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52969704&amp;ptid=2029680" target="_blank">扭头就走 发表于 2021-10-2 11:16</a>
+
+私下电话，连文件都没有。以前还有个红头文件，现在上限是请喝茶，下限是电话——甚至有时候连明确帖子和 ...</blockquote>
+哎，确实很无奈。平台也没什么办法
+
+
