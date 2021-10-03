@@ -17235,3 +17235,47 @@ tob已经打完了，主要就是冲着tob还不错的体验首发的toar
 我记得就算打不中怪也能触发加速咏唱
 
 
+
+
+*****
+
+####  crosz  
+##### 5769#       发表于 2021-10-3 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52978296&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-10-3 11:20</a>
+
+我记得就算打不中怪也能触发加速咏唱</blockquote>
+我怎么感觉没加速呢，触发加速后有什么状态显示标志吗
+
+
+*****
+
+####  hypnossz86  
+##### 5770#       发表于 2021-10-3 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52978636&amp;ptid=1860328" target="_blank">crosz 发表于 2021-10-3 11:54</a>
+
+我怎么感觉没加速呢，触发加速后有什么状态显示标志吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">以下省略
+
+
+*****
+
+####  魂淡放我出去  
+##### 5771#       发表于 2021-10-3 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52978636&amp;ptid=1860328" target="_blank">crosz 发表于 2021-10-3 11:54</a>
+
+我怎么感觉没加速呢，触发加速后有什么状态显示标志吗</blockquote>
+是的，会加速，我刚刚上游戏试了下放8次天槌全空，下来之后直接满速
+
+
+然后还有一点，普攻和特技叠速度效率比魔法体感上慢一半，小魔法叠4个就满速了，普攻+特技要叠8个左右
+
+
+状态显示标志嘛是没有的
+
+

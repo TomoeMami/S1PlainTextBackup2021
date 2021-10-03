@@ -3764,3 +3764,14 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  Narrative  
+##### 307#       发表于 2021-10-3 11:48
+
+
+刚买发现手柄坏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
