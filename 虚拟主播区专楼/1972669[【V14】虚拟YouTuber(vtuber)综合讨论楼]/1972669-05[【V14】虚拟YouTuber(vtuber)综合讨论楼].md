@@ -19134,3 +19134,18 @@ kmt这个月不仅有翻唱还有新衣服？！新衣服我信了，至于图�
 19平成组。。。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fastary  
+##### 7382#       发表于 2021-10-3 14:47
+
+
+本来因为黛灰营业雨露均沾所以我也不觉得自己是独角兽……但事到如今不得不承认自己确实是独角兽啊<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+怎么又是和小偶像双人联动啊，虽然黛灰每次都努力搞出是兄妹同期情营业的感觉但也架不住小偶像和cp党喜欢拱火，而且bls贴贴又老是不带ars玩算什么，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+倒也不是梦女，单纯不喜欢吃bg狗粮所以不希望是我推亲手塞给我吃，以前确信他不会搞所以没想过，现在也不确定他会不会哪一天就从了小偶像炒cp了……虽然多半不会吧，但双人联动多了又觉得他不是不可能，我急了我急了我急了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
