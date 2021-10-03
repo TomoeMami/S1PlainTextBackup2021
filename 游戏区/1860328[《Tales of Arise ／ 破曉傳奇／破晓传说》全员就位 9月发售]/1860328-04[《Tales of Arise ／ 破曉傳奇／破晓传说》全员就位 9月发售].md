@@ -17640,3 +17640,17 @@ sao联动，合体秘奥义
 额……被那个乱入神秘剑客打爆了……之前几个boss都打得弹尽粮绝，是不是应该去练级刷钱买装备啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，这每个boss战打得真憋屈
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 5800#       发表于 2021-10-3 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984681&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-10-3 22:32</a>
+
+每个jrpg都是nga（尤其是游综）的经验书，每周至少轮三次轨迹，话语都不变的 ...</blockquote>
+那边我看喷的都有点魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+

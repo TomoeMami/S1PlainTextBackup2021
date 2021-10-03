@@ -10502,3 +10502,113 @@ check in out作为rap的接头辞有引起别人注意的意思，用来做一�
 有rap元素就算吧，LL又不是日本有嘻哈
 
 
+
+
+*****
+
+####  wolf1997  
+##### 827#       发表于 2021-10-3 23:29
+
+
+看到要唱RAP，首先想到的居然是Snoop dogg唱着Nuthin' But A "G" Thang，有点太离谱了。最后果然是改良的日式RAP，这才对不是吗？
+
+
+*****
+
+####  -Vanitas-  
+##### 828#       发表于 2021-10-3 23:29
+
+
+可堇神回<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 829#       发表于 2021-10-3 23:30
+
+
+又看了一次，可可叫民警名字后，民警那个小表情～
+
+
+*****
+
+####  shudushimo  
+##### 830#       发表于 2021-10-3 23:34
+
+
+lovelive不可能翻车，我要吹花田gg！
+
+
+*****
+
+####  不能摸的屁屁  
+##### 831#       发表于 2021-10-3 23:36
+
+
+熟肉看完了
+
+从两位的发言来看，不仅是跟踪对方的程度，而且是“我一直知道你在跟踪我”的程度
+
+堇：关于你，我全部都了解
+可：你根本没有真正了解
+
+堇：我练习的时候你偷偷看了吧
+可：我有什么偷看的必要吗（bushi
+
+堇：通不过lovelive就要回去的吧
+可：我就知道，你偷听我打电话（丝毫不怀疑堇为什么听得懂中文，显然已知对方装了翻译软件）
+
+这是什么相互暗恋已久就差捅破一张纸的剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 832#       发表于 2021-10-3 23:39
+
+
+60w了
+
+
+*****
+
+####  优妮可  
+##### 833#       发表于 2021-10-3 23:39
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/233948nr3l90nt0y9a66z1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20211003_233548_com.twitter.android_edit_52179315186828.jpg</strong> (166.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 23:39 上传
+
+
+60万粉了
+
+
+*****
+
+####  永恒的王牌  
+##### 834#       发表于 2021-10-3 23:40
+
+
+还担心是大家看见有可堇了夸大了，看了的确不错，好！
+
+
+*****
+
+####  CharlieZ-  
+##### 835#       发表于 2021-10-3 23:42
+
+
+看完熟肉确实爽到了，最后的live风格真的顶
+
+就是中间那段“表现欲太强”这些人是怎么看出来的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
