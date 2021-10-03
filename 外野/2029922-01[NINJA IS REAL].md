@@ -908,3 +908,25 @@ oh，ninja，that is so gay
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  nekkihs  
+##### 68#       发表于 2021-10-3 08:12
+
+
+<blockquote>reficul 发表于 2021-10-2 16:18
+这忍者上来也不自报家门，何等的无礼！</blockquote>
+對於連忍者都不是的螻蟻沒有問候的必要
+
+
+*****
+
+####  死宅真恶心  
+##### 69#       发表于 2021-10-3 08:21
+
+
+隼龙是吧
+
+
