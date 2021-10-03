@@ -17558,3 +17558,31 @@ sao联动，合体秘奥义
 1700日元这价格就这点玩意真说不过去
 
 
+
+
+*****
+
+####  医生狼多  
+##### 5794#       发表于 2021-10-3 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984394&amp;ptid=1860328" target="_blank">CharlieZ- 发表于 2021-10-3 22:07</a>
+这游戏除了洛那段脑瘫操作和五国之后剧情跑火车之外我还挺喜欢的，nga那边吵那么凶不知道为什么 ...</blockquote>
+每个jrpg都是nga（尤其是游综）的经验书，每周至少轮三次轨迹，话语都不变的
+
+
+*****
+
+####  JudgmentEye  
+##### 5795#       发表于 2021-10-3 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983741&amp;ptid=1860328" target="_blank">loley 发表于 2021-10-3 21:16</a>
+
+有点没看懂，所以这个可以打SAO二人组的合作DLC是免费吗
+
+
+  -- 来自 有消息提醒的 Stage1官方 Andro ...</blockquote>
+免费的是新难度，刀剑艺术在线有料
+
+

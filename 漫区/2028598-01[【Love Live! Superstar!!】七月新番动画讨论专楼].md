@@ -10181,3 +10181,81 @@ check in out作为rap的接头辞有引起别人注意的意思，用来做一�
 金钻头和恶役大小姐风的表情实在太戳个人XP了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 798#       发表于 2021-10-3 22:24
+
+
+熟肉看完了  可堇是天！！！！！！
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 799#       发表于 2021-10-3 22:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感情戏那段可可有点棒读了，民警倒是配的挺好
+
+
+*****
+
+####  baiducaonima  
+##### 800#       发表于 2021-10-3 22:35
+
+
+感觉伊达sayuri的声音简直就是本渡枫和种田的结合体<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 801#       发表于 2021-10-3 22:36
+
+
+这集太好看了，花田棒棒的！！！！
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 802#       发表于 2021-10-3 22:39
+
+
+ 本帖最后由 灼眼的夏娜酱 于 2021-10-3 22:40 编辑 
+
+这集有没有尝鲜版的熟肉看<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+看了一下字幕组居然已经做好了，这集好快<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 803#       发表于 2021-10-3 22:39
+
+
+可以，下集再做好我就心满意足了
+
+
+*****
+
+####  稀勢のささ  
+##### 804#       发表于 2021-10-3 22:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有完整熟肉啊 字幕组油被加满了
+
+
+*****
+
+####  稀勢のささ  
+##### 805#       发表于 2021-10-3 22:43
+
+
+你这个护符没用 我这给皇冠有用
+
+
