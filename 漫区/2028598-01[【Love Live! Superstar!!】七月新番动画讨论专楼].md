@@ -9966,3 +9966,65 @@ check in out作为rap的接头辞有引起别人注意的意思，用来做一�
 这两人关系变化我觉得4→789→10→56这样还算正常点，现在这种看着就很怪，尤其是789观感太差
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 781#       发表于 2021-10-3 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983882&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-3 21:26</a>
+
+前面三集两人互动写成那个b样能不跑路的都是天使吧
+
+这两人关系变化我觉得4→789→10→56这样还算正 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以不就在问到底是谁“都”跑路了，来点ID
+
+老师！请指导我们！
+
+
+*****
+
+####  寒风夜  
+##### 782#       发表于 2021-10-3 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983778&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-3 21:19</a>
+
+check in out作为rap的接头辞有引起别人注意的意思，用来做一直是配角的堇当上C位的标题其实很有意思 ...</blockquote>
+学到了新知识 .....
+
+
+*****
+
+####  kata魂  
+##### 783#       发表于 2021-10-3 21:39
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/213943muzm4dtaa4urpouj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>C23C53B535B199F59E6E95F44CEFF02A.jpg</strong> (62.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 21:39 上传
+
+
+今晚可堇真是赢麻了
+
+
+*****
+
+####  普之舜舜  
+##### 784#       发表于 2021-10-3 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983346&amp;ptid=2028598" target="_blank">漫漫来 发表于 2021-10-3 20:45</a>
+问下现在星象馆没了之后还有哪里可以看弹幕吗？没有弹幕的整活大师看着没内味啊 ...</blockquote>
+哔哩哔哩呀<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

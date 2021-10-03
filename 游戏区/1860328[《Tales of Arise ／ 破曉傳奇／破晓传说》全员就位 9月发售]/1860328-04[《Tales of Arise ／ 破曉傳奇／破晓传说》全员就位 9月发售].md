@@ -17476,3 +17476,32 @@ sao联动，合体秘奥义
 只是说没有游戏自己的剧情dlc
 
 
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 5786#       发表于 2021-10-3 21:32
+
+
+真就靠卖衣服捞钱了啊
+
+
+*****
+
+####  alucardcz  
+##### 5787#       发表于 2021-10-3 21:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都封盘了 随意吧 除非出后日谈不然没有在开的那天了
+
+
+*****
+
+####  heseran  
+##### 5788#       发表于 2021-10-3 21:47
+
+
+洛的配音不就是桐人的配音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
