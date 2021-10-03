@@ -6942,3 +6942,33 @@ mana个人剧情好甜啊，疯狂推妹妹给牧野当女友笑死
 不过没法工作，本来想总算可以3的倍数不会有谁体力没另2个足了……
 
 
+
+
+*****
+
+####  kos_mos  
+##### 500#       发表于 2021-10-3 19:53
+
+
+明天中午新gacha 千纱和新 限定
+
+<img src="https://img.saraba1st.com/forum/202110/03/195352x9nl3avvv3zat3gt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAsoRtNVcAkcQKC.jpg</strong> (346.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 19:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/195352lurl76wzuurd4ru4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FAsoSqkVEAg-J9P.jpg</strong> (351.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 19:53 上传
+
+

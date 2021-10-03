@@ -4526,3 +4526,32 @@ bsyl，原来还有个b博，b限咕咕力
 那解释了0/10战绩怎么来的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  草牛  
+##### 3398#       发表于 2021-10-3 19:44
+
+
+什么残疾人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 3399#       发表于 2021-10-3 19:50
+
+
+可以舌头👅打
+
+
+*****
+
+####  T_Hb  
+##### 3400#       发表于 2021-10-3 19:51
+
+
+有丶恶心
+
+

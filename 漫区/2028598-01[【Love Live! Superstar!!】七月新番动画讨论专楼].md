@@ -9487,3 +9487,99 @@ nhk的工作人员难道拿不到台词本吗？得自己听？
 日本人哪懂煎饼果子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 742#       发表于 2021-10-3 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52982541&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-3 19:40</a>
+日本人哪懂煎饼果子</blockquote>
+上海人哪懂煎饼果子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 743#       发表于 2021-10-3 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52982625&amp;ptid=2028598" target="_blank">亚瑟邓特 发表于 2021-10-3 19:47</a>
+上海人哪懂煎饼果子
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+中国北方网友才不懂煎饼果子吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  saglork  
+##### 744#       发表于 2021-10-3 20:01
+
+
+以lovelive水平来说应该是神回了，可堇一集拉满，而且因为前面的可堇态度微妙，这一话被反衬的更甜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+最后这个恶役大小姐风的服装和live很不错，就是旋律有点微妙，金钻头和坏女人表情爱了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 745#       发表于 2021-10-3 20:02
+
+
+也是，可惜是煎饼果子，怎么不是大饼油条糍饭团包脚布<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 746#       发表于 2021-10-3 20:03
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/200312cabrmn78bzrbp7oa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-1633262433468b89064b64e5672f6b31d332e6d9339bd.jpg</strong> (134.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-3 20:03 上传
+
+
+  好想看这一集啊，干
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 747#       发表于 2021-10-3 20:03
+
+
+大饼油条来一套，念起来感觉也挺顺的
+
+
+*****
+
+####  beifx  
+##### 748#       发表于 2021-10-3 20:04
+
+
+吊带袜hso，不过感觉真人live大概率会改
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 749#       发表于 2021-10-3 20:05
+
+
+第八话的裤袜也挺色的，不过不知道真人能不能驾驭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟鲤鱼姐腿不算很细
+
+
