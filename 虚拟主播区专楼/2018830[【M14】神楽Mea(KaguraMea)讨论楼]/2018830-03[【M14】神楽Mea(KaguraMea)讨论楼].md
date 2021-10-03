@@ -4586,3 +4586,16 @@ B站有个消费员同志就是拿嘴玩的，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长虫的键盘
 
 
+
+
+*****
+
+####  往世雷书  
+##### 3404#       发表于 2021-10-3 20:40
+
+
+别黑嗷，长虫的是麦克风不是键盘
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

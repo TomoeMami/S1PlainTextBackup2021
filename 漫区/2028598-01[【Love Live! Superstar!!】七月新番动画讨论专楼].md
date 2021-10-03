@@ -9682,3 +9682,201 @@ u1s1，感觉可可的中文声线有点熟悉？
 唐可可这rap怕不是自己写的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 757#       发表于 2021-10-3 20:26
+
+
+鲤鱼说就加了那句
+
+
+*****
+
+####  lj205  
+##### 758#       发表于 2021-10-3 20:28
+
+
+本人说了是自己弄的。可可那个打电话声线就是鲤鱼直播时候自己的声线吧？
+
+
+*****
+
+####  qratosone  
+##### 759#       发表于 2021-10-3 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983136&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-3 20:28</a>
+
+本人说了是自己弄的。可可那个打电话声线就是鲤鱼直播时候自己的声线吧？ ...</blockquote>
+并不是，跟她本人声线差别非常大，感觉更像是崩坏3里的中文配音
+
+
+*****
+
+####  qratosone  
+##### 760#       发表于 2021-10-3 20:30
+
+
+另外看了一下可可用的聊天软件界面布局像是Line和微信的合体
+
+
+*****
+
+####  任天索尼子  
+##### 761#       发表于 2021-10-3 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983136&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-3 20:28</a>
+
+本人说了是自己弄的。可可那个打电话声线就是鲤鱼直播时候自己的声线吧？ ...</blockquote>
+她本人声音比唐可可低沉。
+
+
+*****
+
+####  ads147147  
+##### 762#       发表于 2021-10-3 20:34
+
+
+声线的事，肯定是丢锅给菜宝啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lj205  
+##### 763#       发表于 2021-10-3 20:36
+
+
+我觉得跟去日本后直播时挺像的，可能记忆偏差先入为主了
+
+
+*****
+
+####  qratosone  
+##### 764#       发表于 2021-10-3 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983226&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-3 20:36</a>
+
+我觉得跟去日本后直播时挺像的，可能记忆偏差先入为主了</blockquote>
+明显对不上，鲤鱼本人直播在B站有很多切片
+
+
+*****
+
+####  tiro_finale  
+##### 765#       发表于 2021-10-3 20:39
+
+
+烫裤裤这嘴炮场景和之前劝诱香音如出一辙了，她频繁强调的LL狂热粉人设，就给这种场景打下基础，因为观众都知道她超级在乎这事
+
+香音一开始还有热爱唱歌的设定，后来感觉都不怎么强调了，所以同样的事情换香音来做就会有点怪怪的，她说是C位但吉祥物味很重
+
+
+第一次喊名字挺有意思的，之前还真是故意的
+
+还有民警为啥存了个翻译软件能马上调出来的，烫裤裤平时都讲日语的啊，难道是偷听惯犯了吗
+
+
+*****
+
+####  秋月艾莉  
+##### 766#       发表于 2021-10-3 20:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">真尊啊
+
+就说连名字都没喊过后面肯定有大的
+
+可堇，暂时的神
+
+
+*****
+
+####  kata魂  
+##### 767#       发表于 2021-10-3 20:41
+
+
+现在有点好奇跑路的可堇画师会不会回来
+
+
+*****
+
+####  qratosone  
+##### 768#       发表于 2021-10-3 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983260&amp;ptid=2028598" target="_blank">tiro_finale 发表于 2021-10-3 20:39</a>
+
+烫裤裤这嘴炮场景和之前劝诱香音如出一辙了，她频繁强调的LL狂热粉人设，就给这种场景打下基础，因为观众都 ...</blockquote>
+这也是可堇糖233333
+
+估计平时可可说中文的频率还挺高的，于是民警就随手准备了一下，正好用上了
+
+
+*****
+
+####  chenflyyy  
+##### 769#       发表于 2021-10-3 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983290&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-3 20:41</a>
+现在有点好奇跑路的可堇画师会不会回来</blockquote>
+推上的可堇图一直都不少，真有跑路现象吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  漫漫来  
+##### 770#       发表于 2021-10-3 20:45
+
+
+问下现在星象馆没了之后还有哪里可以看弹幕吗？没有弹幕的整活大师看着没内味啊
+
+
+*****
+
+####  玙璠  
+##### 771#       发表于 2021-10-3 20:46
+
+
+<blockquote>qratosone 发表于 2021-10-3 20:42
+这也是可堇糖233333
+
+估计平时可可说中文的频率还挺高的，于是民警就随手准备了一下，正好用上了
+
+ ...</blockquote>
+也可以理解为因为可可对中文感兴趣了，偷偷学几句什么的
+
+
+*****
+
+####  秋月艾莉  
+##### 772#       发表于 2021-10-3 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983290&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-3 20:41</a>
+
+现在有点好奇跑路的可堇画师会不会回来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得先说明白具体是哪些人跑路了才能看人有没有回来
+
+所以到底是谁跑路了
+
+
+*****
+
+####  lj205  
+##### 773#       发表于 2021-10-3 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983254&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-3 20:39</a>
+
+明显对不上，鲤鱼本人直播在B站有很多切片</blockquote>
+所以说记忆偏差先入为主了啊
+
+

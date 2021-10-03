@@ -7271,3 +7271,14 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 <img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">20小时，没闪退一次，只是今天遇上了一个整理武器时的bug，武器页面卡住不动，退出去就好了
 
 
+
+
+*****
+
+####  moimoi  
+##### 610#       发表于 2021-10-3 20:27
+
+
+只要我配置开的够低，闪退就找不上我，反正玩阿肯的游戏谁也不是冲着画面去的<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
