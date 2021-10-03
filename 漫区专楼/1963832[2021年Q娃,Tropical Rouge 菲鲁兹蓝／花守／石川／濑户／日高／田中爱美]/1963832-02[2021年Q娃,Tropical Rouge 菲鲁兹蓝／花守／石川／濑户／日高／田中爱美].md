@@ -9464,3 +9464,30 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 去年和佳身体不行还要肉身赶路到现场再变身，今年是为了赶路变身Q娃一路猛跑，作品氛围不同行动方式也如此不同<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  粉儿alice  
+##### 2190#       发表于 2021-10-3 14:49
+
+
+又是小鬼子标准剧情<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">  唉
+贝泽能不能给我滚去隔壁数码去 永远别踏进q娃棚一步 有您在就出来没有什么好事过
+
+下集凉村女士回 看预告就知道她要吃瘪被婊 士大夫窝闷就不喜欢它 给一个回已经很好惹
+
+
+
+
+*****
+
+####  粉儿alice  
+##### 2191#       发表于 2021-10-3 14:56
+
+
+还有音游d4dj要实装热带和抓心op
+漫画和抓心联动
+看看这次剧场版能不能回复疫情前面的票房
+
+

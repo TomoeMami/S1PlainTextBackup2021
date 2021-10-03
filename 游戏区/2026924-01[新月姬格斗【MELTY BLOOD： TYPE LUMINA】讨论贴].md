@@ -3775,3 +3775,26 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 刚买发现手柄坏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  高龙  
+##### 308#       发表于 2021-10-3 14:43
+
+
+又玩了一段时间,我现在是去掉光盾招架这个系统的支持者了,至少空中光盾应该取消.
+
+
+*****
+
+####  ロラン・ローラ  
+##### 309#       发表于 2021-10-3 15:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52979945&amp;ptid=2026924" target="_blank">高龙 发表于 2021-10-3 14:43</a>
+
+又玩了一段时间,我现在是去掉光盾招架这个系统的支持者了,至少空中光盾应该取消. ...</blockquote>
+现在就是无限猜拳，应该添加一些限制的，比如互D之后做成类似拆投的动作，强行结束猜拳环节。另外LA的伤害也太高了，风险和回报完全不成正比，吃一次LA一局立回白打
+
+
