@@ -17841,3 +17841,17 @@ toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游�
 怪物换皮现象严重，系统深度不行，打到后面有开自动战斗的冲动，总结没有研究价值，远不如togf 
 
 
+
+
+*****
+
+####  Dashuaibi  
+##### 5814#       发表于 2021-10-4 07:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52986392&amp;ptid=1860328" target="_blank">hcf220 发表于 2021-10-4 03:11</a>
+
+玩完了，比起男主女主还是后两对cp更吸引我，结局只说了主角有点不尽兴。后面打得很烦，怪动不动大屁股，刮 ...</blockquote>
+你不加pc这个限定词那就是泥潭真爱jrpg2完美甚至更加符合了，这几年就这点jrpg，蹲一个还能不能有第二个同类
+
+

@@ -11162,3 +11162,16 @@ lovelive不可能翻车，我要吹花田gg！
 剧情开团手果然还是要靠打野可可，中单香音强推不行啊
 
 
+
+
+*****
+
+####  鹦与鹉  
+##### 880#       发表于 2021-10-4 07:25
+
+
+什么都没有的恋女士不正是她的魅力所在吗，这种让动画观众意难平的醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
