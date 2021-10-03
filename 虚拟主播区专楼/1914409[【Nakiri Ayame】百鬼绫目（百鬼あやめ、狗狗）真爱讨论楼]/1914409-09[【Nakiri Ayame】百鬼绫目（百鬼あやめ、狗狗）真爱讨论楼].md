@@ -15045,3 +15045,23 @@ syl 失蹤回归也要满一年了 时间真快<img src="https://static.saraba1s
 别别别，S11赛季要结束了，LOL该上白金了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 13274#       发表于 2021-10-3 16:33
+
+
+apex...我的apex...
+
+
+*****
+
+####  nian1538  
+##### 13275#       发表于 2021-10-3 16:40
+
+
+LOL这赛季11月10号到头，上次Rank都是7月了，感觉应该不打了
+
+
