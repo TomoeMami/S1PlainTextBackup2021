@@ -9318,3 +9318,112 @@ Eテレ 10(日)夜7時
 真正王道的是唐家大小姐来日本为二小姐打call啊
 
 
+
+
+*****
+
+####  ayara  
+##### 731#       发表于 2021-10-3 19:11
+
+
+<blockquote>黑雪姫 发表于 2021-10-3 18:49
+那么下一张封面大概率是可香，期待下香音追飞机吧</blockquote>
+第三话盘：可香
+
+第六话盘：千香
+
+第八话盘：可恋堇
+
+第十话盘：恋堇千
+
+
+最后一话封面大概率是全员吧
+
+
+*****
+
+####  cqc1021  
+##### 732#       发表于 2021-10-3 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981661&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-3 18:24</a>
+
+嗨哟切克闹
+
+唐可可我最闪耀
+
+煎饼果子来一套</blockquote>
+我在想，可可这段拉普，估计是鲤鱼自己写的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 733#       发表于 2021-10-3 19:14
+
+
+Hey yo！
+
+切克闹！
+
+唐可可我最闪耀！
+
+煎饼果子来一套！
+
+坚持联系不迟到！
+
+动次打次yo！
+
+
+*****
+
+####  HGCG-闪  
+##### 734#       发表于 2021-10-3 19:20
+
+
+字幕staff："听懂了！我听出来了她是在说'嘿哟！'剩下的不知道" ​
+
+<img src="https://img.saraba1st.com/forum/202110/03/191959fe365fohyz5f6h7l.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (102.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 19:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/192008hbkb2gk22vrftbrb.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (95.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 19:20 上传
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 735#       发表于 2021-10-3 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52982295&amp;ptid=2028598" target="_blank">HGCG-闪 发表于 2021-10-3 19:20</a>
+
+字幕staff："听懂了！我听出来了她是在说'嘿哟！'剩下的不知道" ​</blockquote>
+nhk的工作人员难道拿不到台词本吗？得自己听？
+
+
+*****
+
+####  UnrealApartheid  
+##### 736#       发表于 2021-10-3 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52982106&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-03 19:06:15</a>
+真正王道的是唐家大小姐来日本为二小姐打call啊</blockquote>那我猜一个声优为广桥凉
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

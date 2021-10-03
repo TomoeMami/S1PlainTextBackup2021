@@ -4495,3 +4495,23 @@ bsyl，原来还有个b博，b限咕咕力
 看来不良反应还挺严重，那我也只能无情的轨迹侠mode启动了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚安肥婆
 
 
+
+
+*****
+
+####  十九号大侠  
+##### 3395#       发表于 2021-10-3 19:07
+
+
+打游戏可以转移注意力，手就不会痛了
+
+
+*****
+
+####  T_Hb  
+##### 3396#       发表于 2021-10-3 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有一种可能，是脚打的
+
+

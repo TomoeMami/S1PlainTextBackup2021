@@ -9402,3 +9402,29 @@ Kazutoshi Matsumura: Yes.</blockquote>
 [https://twinfinite.net/2020/01/muv-luv-interview-2/](https://twinfinite.net/2020/01/muv-luv-interview-2/)
 
 
+
+
+*****
+
+####  KOPKOM  
+##### 639#         楼主| 发表于 2021-10-3 19:06
+
+
+ 本帖最后由 KOPKOM 于 2021-10-3 19:09 编辑 
+
+惊了，竟然在公交车上看到pv了，这宣传阵势不小啊
+
+
+FA3FB5F2-C317-4F64-8AA1-BA49DC9EBD7D.jpeg
+(922.43 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-3 19:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/190603q2xxauj6286ua3tx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
