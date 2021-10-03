@@ -11134,3 +11134,17 @@ lovelive不可能翻车，我要吹花田gg！
 不让观众在5-9集感先受到堇这个角色受到的压抑，到第10集伴随堇的心结解开带给观众情绪上的调动就不会那么明显
 
 
+
+
+*****
+
+####  名津流  
+##### 878#       发表于 2021-10-4 06:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984643&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-3 22:28</a>
+
+感情戏那段可可有点棒读了，民警倒是配的挺好</blockquote>
+不是因为习惯了动画配音腔日语，没习惯动画配音腔汉语的缘故吗？
+
+
