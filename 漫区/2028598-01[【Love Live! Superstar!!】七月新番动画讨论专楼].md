@@ -10259,3 +10259,144 @@ check in out作为rap的接头辞有引起别人注意的意思，用来做一�
 你这个护符没用 我这给皇冠有用
 
 
+
+
+*****
+
+####  gothicmaid  
+##### 806#       发表于 2021-10-3 22:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">又是一阵妖风
+
+我还以为最后堇会把头冠给可可戴上。。。。
+
+
+*****
+
+####  普之舜舜  
+##### 807#       发表于 2021-10-3 22:50
+
+
+观感真心不错，真厉害
+
+
+*****
+
+####  1096beam  
+##### 808#       发表于 2021-10-3 22:51
+
+
+看出姨母笑就是神回<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+黄金钻头的刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+恋女士你起点作用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 809#       发表于 2021-10-3 22:53
+
+
+看到有日本人说可可算是星团总监督
+
+
+*****
+
+####  player3960  
+##### 810#       发表于 2021-10-3 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984876&amp;ptid=2028598" target="_blank">1096beam 发表于 2021-10-03 22:51:17</a>
+看出姨母笑就是神回</blockquote>恋女士在和稀泥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 811#       发表于 2021-10-3 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983260&amp;ptid=2028598" target="_blank">tiro_finale 发表于 2021-10-3 20:39</a>
+
+烫裤裤这嘴炮场景和之前劝诱香音如出一辙了，她频繁强调的LL狂热粉人设，就给这种场景打下基础，因为观众都 ...</blockquote>
+磕到了
+
+
+捕获2.PNG
+(69.97 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-3 23:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/230003eaid1l4pdppiclvd.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 812#       发表于 2021-10-3 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在日中国人如此熟练用改喊名字来拉近距离（虽然敬语使用很随意），欲扬先抑。唐可可，你好强大。
+
+
+*****
+
+####  秋月艾莉  
+##### 813#       发表于 2021-10-3 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">又看了一遍熟肉，尊尊尊尊尊尊尊尊尊尊尊尊
+
+热爱偶像+有话直说的可可推剧情就是好用，开口就是直球，不跟你弯弯绕绕
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">一人产出全番唯二的双人版未来如风，唐可可，女同的神
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 814#       发表于 2021-10-3 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984550&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-3 22:19</a>
+
+那我奶个阿堇追，香音不追，然后被阿堇螺旋抽她巴掌</blockquote>
+我奶，香音去稳住可可姐姐，民警去可可家阻止可可收拾行旅<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 815#       发表于 2021-10-3 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984754&amp;ptid=2028598" target="_blank">灼眼的夏娜酱 发表于 2021-10-3 22:39</a>
+
+这集有没有尝鲜版的熟肉看
+
+看了一下字幕组居然已经做好了，这集好快
+
+ ...</blockquote>
+喵萌基本都是当晚11点左右出，第八集是第二天早上，这一集是提速到9点，字幕组也看集数的质量做基准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Faremier  
+##### 816#       发表于 2021-10-3 23:07
+
+
+花田这集终于没发病了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

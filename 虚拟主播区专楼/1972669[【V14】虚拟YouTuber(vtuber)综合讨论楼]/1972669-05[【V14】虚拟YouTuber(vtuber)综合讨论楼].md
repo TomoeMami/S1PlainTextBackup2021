@@ -19445,3 +19445,52 @@ voms这男人不会说英语啊
 又播生化4了，瘾太大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  purdre  
+##### 7406#       发表于 2021-10-3 22:56
+
+
+露露（现在已经不是了）的观众留存率好高，开心<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 7407#       发表于 2021-10-3 22:57
+
+
+不过说实话也是靠年轻和脸好才能留下来的，不少确实有趣但没法露脸的退V就很难到这效果了
+
+
+*****
+
+####  dybang  
+##### 7408#       发表于 2021-10-3 23:00
+
+
+还有声音和耐性好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能崩这么久的没几个
+
+
+*****
+
+####  free  
+##### 7409#       发表于 2021-10-3 23:02
+
+
+圆脸不人气声优佐藤希也是本人同接高过v号<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暴走的包子  
+##### 7410#       发表于 2021-10-3 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">批皮发现不了，还挺感兴趣游戏不顺的时候会是啥表情，声音倒是没怎么变过
+
+—— 來自 samsung SM-F9260, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
