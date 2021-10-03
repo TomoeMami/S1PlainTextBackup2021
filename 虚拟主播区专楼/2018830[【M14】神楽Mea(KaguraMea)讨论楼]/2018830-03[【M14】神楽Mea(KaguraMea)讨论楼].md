@@ -4555,3 +4555,34 @@ bsyl，原来还有个b博，b限咕咕力
 有丶恶心
 
 
+
+
+*****
+
+####  十九号大侠  
+##### 3401#       发表于 2021-10-3 20:06
+
+
+B站有个消费员同志就是拿嘴玩的，
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  专业划水人员  
+##### 3402#       发表于 2021-10-3 20:12
+
+
+她键盘应该挺脏的。
+
+
+*****
+
+####  T_Hb  
+##### 3403#       发表于 2021-10-3 20:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长虫的键盘
+
+

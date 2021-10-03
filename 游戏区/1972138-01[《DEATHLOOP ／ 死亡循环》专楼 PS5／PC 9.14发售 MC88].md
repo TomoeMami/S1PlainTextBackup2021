@@ -7205,3 +7205,69 @@ boss艺术家打单可以先剪掉炸弹的引线，然后拿一个超能力失�
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  moimoi  
+##### 605#       发表于 2021-10-3 20:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+之前玩的时候感觉缺点不少，今天玩的时候发现了很多优点。
+
+第一是本作的任务真的很有意思，蜘蛛网一样的一环套一环，适时选择何时做什么任务，什么顺序很是精打细算，不同时段单一场景的变化之前觉得单调，现在适应了反而自己能得心应手去绕开敌人。而且不同时段有各自可以进去的地段，学习成本得以回报的快乐。
+
+
+第二总算体会到了地图设计的巧妙，熟悉了地图之后才能各种上天入地找路。
+
+晚上去扫荡了多尔西宅邸，这是唯一一个地图设计对得起耻辱和prey的建筑，清掉所有敌人后里里外外探索了一遍，路径非常非常多，隐藏物品也好多，比起查理玩具房和弗兰克俱乐部好玩多了。
+
+
+*****
+
+####  moimoi  
+##### 606#       发表于 2021-10-3 20:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不小心看到攻略才告诉我查理不能杀，为了瞬移石板我第一件事就是去杀查理，有点遗憾
+
+然后查理那个黑客的支线任务完全不知道干嘛的，本作的支线都很不人道很麻烦，老是一头雾水不知道干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lazycat233  
+##### 607#       发表于 2021-10-3 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人能告诉一下我，最近这游戏PC版修复完BUG了么，听说BUG很夸张，一直没买
+
+
+*****
+
+####  moimoi  
+##### 608#       发表于 2021-10-3 20:20
+
+
+ 本帖最后由 moimoi 于 2021-10-3 20:23 编辑 
+
+在剧情和任务设计上，死亡循环也算是搞出新意了，可以说是阿肯最大的进步。男主和女主吐槽太可爱太可爱太可爱了，好喜欢，特别是男主，性格怎么可以这么好玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，做烟花店的任务时差点没笑死，每次都很期待男主和女主的互怼吐槽
+
+比起耻辱和prey的苦大仇深要轻松有趣太多
+
+
+*****
+
+####  moimoi  
+##### 609#       发表于 2021-10-3 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983042&amp;ptid=1972138" target="_blank">lazycat233 发表于 2021-10-3 20:20</a>
+
+有人能告诉一下我，最近这游戏PC版修复完BUG了么，听说BUG很夸张，一直没买 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">20小时，没闪退一次，只是今天遇上了一个整理武器时的bug，武器页面卡住不动，退出去就好了
+
+

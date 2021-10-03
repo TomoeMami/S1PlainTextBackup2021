@@ -19364,3 +19364,49 @@ syl
 星川又去山崩了……hnn再次登月
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7399#       发表于 2021-10-3 20:11
+
+
+ 本帖最后由 FCCHua 于 2021-10-3 20:15 编辑 
+
+好，hnn直布毕业了
+谢谢你，千草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 7400#       发表于 2021-10-3 20:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">所以VOMS这俩特出来了吗
+
+
+*****
+
+####  poipanchao  
+##### 7401#       发表于 2021-10-3 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52982930&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-3 20:11</a>
+
+好，hnn直布毕业了
+
+谢谢你，千草</blockquote>
+但是我记得hnn的狗……菜的一B
+
+
+*****
+
+####  OldGlory  
+##### 7402#       发表于 2021-10-3 20:22
+
+
+voms这男人不会说英语啊
+
+

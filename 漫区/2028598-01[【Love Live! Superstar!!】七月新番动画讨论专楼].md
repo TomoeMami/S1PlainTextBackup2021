@@ -9583,3 +9583,102 @@ nhk的工作人员难道拿不到台词本吗？得自己听？
 第八话的裤袜也挺色的，不过不知道真人能不能驾驭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟鲤鱼姐腿不算很细
 
 
+
+
+*****
+
+####  优妮可  
+##### 750#       发表于 2021-10-3 20:09
+
+
+第六话，第八话的衣服都漏肩膀腋下了吧，可能会加料
+
+
+
+
+*****
+
+####  lj205  
+##### 751#       发表于 2021-10-3 20:12
+
+
+ 本帖最后由 lj205 于 2021-10-3 20:13 编辑 
+
+煎饼果子不会要出圈了吧？
+
+
+*****
+
+####  player3960  
+##### 752#       发表于 2021-10-3 20:16
+
+
+这曲风太戳我了，完整版搞快点啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 753#       发表于 2021-10-3 20:19
+
+
+煎饼果子来一套果然是鲤鱼自己加的<img src="https://p.sda1.dev/2/7853fa5e15473f6b6baa09171cd41d3b/IMG_CMP_224581937.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucksolo  
+##### 754#       发表于 2021-10-3 20:20
+
+
+试着用了股沟翻译<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+中译日.png
+(37.17 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-3 20:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/202006xg188rs3cecyy7ey.png" referrerpolicy="no-referrer">
+
+
+再翻译.png
+(39.1 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-3 20:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/202006xy0jhh7ahiabewa7.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 755#       发表于 2021-10-3 20:20
+
+
+u1s1，感觉可可的中文声线有点熟悉？
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  长日留痕  
+##### 756#       发表于 2021-10-3 20:22
+
+
+唐可可这rap怕不是自己写的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
