@@ -9511,3 +9511,19 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 艹，一集截了二十多张图，有些地方想成段收藏，可惜经费不够各种粗糙的细节
 
 
+
+
+*****
+
+####  leleq  
+##### 2194#       发表于 2021-10-3 18:17
+
+
+这集飞鸟的回忆做的……之前我还以为是那种一人一半的问题结果这 演得会长就是反派啊
+
+
+罗拉吐舌头鬼脸<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+海豹又双叒叕被忘了这已经是官方玩梗了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

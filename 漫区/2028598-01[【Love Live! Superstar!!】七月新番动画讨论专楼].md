@@ -8109,3 +8109,575 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1633230737
 草，偶像比rap有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 622#       发表于 2021-10-3 18:06
+
+
+不过这样小千的街舞设定好像回收了？
+
+
+*****
+
+####  HGCG-闪  
+##### 623#       发表于 2021-10-3 18:06
+
+
+煎饼果子来一套！
+
+
+*****
+
+####  ads147147  
+##### 624#       发表于 2021-10-3 18:06
+
+
+这个主持人，这个主持人登场的bgm就是缪那个kiss重金属乐队neta的那个。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 625#       发表于 2021-10-3 18:07
+
+
+可可那段中文就听出煎饼果子来一套
+
+
+*****
+
+####  Norkey1  
+##### 626#       发表于 2021-10-3 18:07
+
+
+这个中文草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 627#       发表于 2021-10-3 18:07
+
+
+我会唱，跳，rap，还会打篮球🏀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 628#       发表于 2021-10-3 18:07
+
+
+堇这段可以啊
+
+
+*****
+
+####  黑雪姫  
+##### 629#       发表于 2021-10-3 18:08
+
+
+煎饼果子来一套 笑喷了
+
+
+*****
+
+####  chenflyyy  
+##### 630#       发表于 2021-10-3 18:08
+
+
+这就c位了
+
+
+
+
+*****
+
+####  qratosone  
+##### 631#       发表于 2021-10-3 18:08
+
+
+还真是民警高光时刻了
+
+
+*****
+
+####  ads147147  
+##### 632#       发表于 2021-10-3 18:10
+
+
+堇回，那么花田的妈还是回来了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 633#       发表于 2021-10-3 18:10
+
+
+这集怕不是要可堇了？
+
+
+*****
+
+####  chenflyyy  
+##### 634#       发表于 2021-10-3 18:10
+
+
+手机上都是中文，太快了没看清楚说什么
+
+
+*****
+
+####  qratosone  
+##### 635#       发表于 2021-10-3 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981511&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-3 18:10</a>
+
+手机上都是中文，太快了没看清楚说什么</blockquote>
+姐姐说LL加油，就看到这一个
+
+
+*****
+
+####  HGCG-闪  
+##### 636#       发表于 2021-10-3 18:11
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/181150k6043p0r13mmmtu3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (65.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 18:11 上传
+
+
+*****
+
+####  Arccueid  
+##### 637#       发表于 2021-10-3 18:12
+
+
+花田你支棱起来了？
+
+
+*****
+
+####  Norkey1  
+##### 638#       发表于 2021-10-3 18:12
+
+
+我宣布花田的马暂时保住了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 639#       发表于 2021-10-3 18:12
+
+
+可可这动手能力
+
+
+*****
+
+####  笋狐  
+##### 640#       发表于 2021-10-3 18:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这消息里的不要留下什么遗憾，真要搞事啊
+
+
+*****
+
+####  qratosone  
+##### 641#       发表于 2021-10-3 18:12
+
+
+草，这集还真是可堇发糖
+
+
+*****
+
+####  chenflyyy  
+##### 642#       发表于 2021-10-3 18:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981522&amp;ptid=2028598" target="_blank">HGCG-闪 发表于 2021-10-3 18:11</a></blockquote>
+姐姐还是支持的，父母可能不太支持，应该是下集伏笔
+
+
+*****
+
+####  普之舜舜  
+##### 643#       发表于 2021-10-3 18:13
+
+
+这集观感不错
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 644#       发表于 2021-10-3 18:14
+
+
+卧槽，花田真的支棱起来了！
+
+
+*****
+
+####  没有爱就看不见  
+##### 645#       发表于 2021-10-3 18:15
+
+
+果然还是这一套
+
+
+*****
+
+####  Arccueid  
+##### 646#       发表于 2021-10-3 18:16
+
+
+拿不到成绩就回去，还是样板戏，没什么问题
+
+
+*****
+
+####  HGCG-闪  
+##### 647#       发表于 2021-10-3 18:16
+
+
+平安民警居然用翻译软件听唐可可打电话
+
+
+*****
+
+####  普之舜舜  
+##### 648#       发表于 2021-10-3 18:16
+
+
+【lovelive 我依旧相信花田-哔哩哔哩直播】 https://b23.tv/0PWtAt
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 649#       发表于 2021-10-3 18:16
+
+
+拿不到成绩就回去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 650#       发表于 2021-10-3 18:16
+
+
+炮堇可三个人都有姐妹啊意外的这次大家都是大家庭。
+
+可可能是去日本有时间限制。果然是追飞机。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  iuhehc  
+##### 651#       发表于 2021-10-3 18:17
+
+
+追飞机不早就预料之中的套路吗
+
+
+*****
+
+####  chenflyyy  
+##### 652#       发表于 2021-10-3 18:17
+
+
+这集应该解决不了吧
+
+
+*****
+
+####  qratosone  
+##### 653#       发表于 2021-10-3 18:18
+
+
+这集可堇拉满了
+
+
+*****
+
+####  HGCG-闪  
+##### 654#       发表于 2021-10-3 18:19
+
+
+但这身衣服说RAP么
+
+
+*****
+
+####  ads147147  
+##### 655#       发表于 2021-10-3 18:20
+
+
+行，有第一集的味道了，花田水平上浮。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 656#       发表于 2021-10-3 18:21
+
+
+花田竟然支棱起来了！！
+
+
+*****
+
+####  chenflyyy  
+##### 657#       发表于 2021-10-3 18:21
+
+
+草，真有live，节奏还是太快了
+
+
+*****
+
+####  ads147147  
+##### 658#       发表于 2021-10-3 18:21
+
+
+草，金发钻头大小姐风格。。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 659#       发表于 2021-10-3 18:22
+
+
+小千这好色<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 660#       发表于 2021-10-3 18:22
+
+
+谢谢前线，看来可以安心食用了。话说那聊天窗口好像QQ
+
+
+
+
+*****
+
+####  普之舜舜  
+##### 661#       发表于 2021-10-3 18:22
+
+
+神回
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 662#       发表于 2021-10-3 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981635&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-3 18:22</a>
+谢谢前线，看来可以安心食用了。话说那聊天窗口好像QQ</blockquote>
+应该是微信和line的混合。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 663#       发表于 2021-10-3 18:23
+
+
+这歌不错，就是，rap呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 664#       发表于 2021-10-3 18:23
+
+
+有点帅，就是这造型总让我想到隔壁那个谁
+
+live上的千好色<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 665#       发表于 2021-10-3 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">花田的妈可以回来了，花田先继续观望一下
+
+
+*****
+
+####  优妮可  
+##### 666#       发表于 2021-10-3 18:24
+
+
+这集不错啊，心疼一下恋，
+
+
+*****
+
+####  Arccueid  
+##### 667#       发表于 2021-10-3 18:24
+
+
+我觉得这集观感追回前三了
+
+
+*****
+
+####  AlfredXC  
+##### 668#       发表于 2021-10-3 18:24
+
+
+这集算是神回了吧
+
+
+*****
+
+####  ads147147  
+##### 669#       发表于 2021-10-3 18:24
+
+
+堇回原本就不应该拖到第十回，不过感觉也想不到更好的办法。
+
+目前恋最惨jpg，接下来追飞机有可能是可恋吗。
+
+11集是香音失音的回收么。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  待宵  
+##### 670#       发表于 2021-10-3 18:24
+
+
+嗨哟切克闹
+
+唐可可我最闪耀
+
+煎饼果子来一套
+
+坚持练习不迟到
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 671#       发表于 2021-10-3 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">来个恋高光吧
+
+
+*****
+
+####  kata魂  
+##### 672#       发表于 2021-10-3 18:25
+
+
+?真的假的 我没看就神回了?
+
+
+*****
+
+####  Norkey1  
+##### 673#       发表于 2021-10-3 18:25
+
+
+感觉这个live过渡像虹咲的live过渡，个人感觉挺好的
+比起前几集可堇关系用力过猛，这集真的是好好好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 674#       发表于 2021-10-3 18:25
+
+
+藤井智之 消失2年回来了
+
+
+*****
+
+####  凡人  
+##### 675#       发表于 2021-10-3 18:25
+
+
+横田你果然是虹杂吧，好看的集数从来没见你吹过
+
+
+*****
+
+####  型月重工  
+##### 676#       发表于 2021-10-3 18:25
+
+
+我算发现了。
+
+
+只要可可来推进剧情就是好看，果然加农的性格完全不适合当领队啊
+
+
+*****
+
+####  cybernetics31  
+##### 677#       发表于 2021-10-3 18:25
+
+
+这集终于可以了 看预告完全想不到啊 可堇可以
+
+
+*****
+
+####  iuhehc  
+##### 678#       发表于 2021-10-3 18:25
+
+
+这集可以的
+
+
