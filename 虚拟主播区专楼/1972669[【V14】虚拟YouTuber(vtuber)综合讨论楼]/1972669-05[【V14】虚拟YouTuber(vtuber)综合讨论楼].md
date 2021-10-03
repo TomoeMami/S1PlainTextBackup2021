@@ -19202,3 +19202,52 @@ kmt这个月不仅有翻唱还有新衣服？！新衣服我信了，至于图�
 不是这个意思，郡道还有三套衣服一套3d七个约歌没发呢，她很难不想把这些钱赚回来，退什么退，郡郡坏透了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fastary  
+##### 7388#       发表于 2021-10-3 16:05
+
+
+ 本帖最后由 fastary 于 2021-10-3 16:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52980467&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-10-3 15:56</a>
+
+黑客不是想要金盾吗，这也算一种努力
+
+飯屋势头正旺，两手都要抓也得搞个一般向贴贴...uiha大概同理</blockquote>
+可是他都不肯破戒唱歌！<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">真两手都要抓那一个月内再来一次挑染联动我就信了好吧（）
+
+看他ymen的活动频率感觉真不像认真冲金盾的，除非十月下半空出来了之后他真联动企划直播播爆<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+syl
+
+忍不住还是打开直播看了十分钟，可能我有滤镜吧感觉还是昨天饭屋逛街情绪比较高（然后被评论的约会和好甜雷得关掉了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  FCCHua  
+##### 7389#       发表于 2021-10-3 16:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52980470&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-10-3 15:56</a>
+不是这个意思，郡道还有三套衣服一套3d七个约歌没发呢，她很难不想把这些钱赚回来，退什么退，郡郡坏透了[f ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
