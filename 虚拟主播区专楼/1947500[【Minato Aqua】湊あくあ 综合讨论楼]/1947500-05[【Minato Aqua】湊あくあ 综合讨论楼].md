@@ -12280,3 +12280,23 @@ UMISEA原来是春天就开始准备了啊，为了准备这个还学了一阵�
 英语唱不下去一转家乡话绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Scardy  
+##### 6984#       发表于 2021-10-3 22:12
+
+
+学了个锤子的英语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 6985#       发表于 2021-10-3 22:25
+
+
+感觉今天情绪还挺高的，但基本乱唱
+
+

@@ -17527,3 +17527,34 @@ sao联动，合体秘奥义
 这价格<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 两个皮肤加个新奥义一百块钱
 
 
+
+
+*****
+
+####  宛若青空  
+##### 5791#       发表于 2021-10-3 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984308&amp;ptid=1860328" target="_blank">ff2077 发表于 2021-10-3 22:00</a>
+这价格 两个皮肤加个新奥义一百块钱</blockquote>
+是1个新战斗任务+3套服装+1个秘奥义+2个新武器
+
+
+*****
+
+####  CharlieZ-  
+##### 5792#       发表于 2021-10-3 22:07
+
+
+这游戏除了洛那段脑瘫操作和五国之后剧情跑火车之外我还挺喜欢的，nga那边吵那么凶不知道为什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bruce33  
+##### 5793#       发表于 2021-10-3 22:21
+
+
+1700日元这价格就这点玩意真说不过去
+
+

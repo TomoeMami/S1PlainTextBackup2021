@@ -10091,3 +10091,93 @@ check in out作为rap的接头辞有引起别人注意的意思，用来做一�
 可可作为剧情工具人实在是太好用了，观感节奏一下子就上来了
 
 
+
+
+*****
+
+####  saglork  
+##### 791#       发表于 2021-10-3 22:09
+
+
+看好香堇一起追飞机，堇这一话得到了“两个人的秘密”关键buff，香音作为唯一核心不可能不追，其余两个关系确实有点远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这么看还是恋恋输麻了，整个团就她跟谁都没啥特殊羁绊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wolf1997  
+##### 792#       发表于 2021-10-3 22:09
+
+
+什么叫我竟然写可堇了？我不写可堇干嘛？啊？
+
+居然写可堇了是什么意思啊？这肯定写可堇呀。
+
+以后每周都来直播，一个月4周，每周都能见到可可，兄弟们。
+
+今天可堇股涨到顶点，今天是真涨到顶点，今天一点具足虫都没，随便涨今天。
+
+今天是真涨，TMD不是虚的斗嘴。
+
+今天这个绝对不是经典斗嘴，你们放心吧。
+
+今天涨到神回，该买可堇股的什么都买一下吧，准备好live了兄弟们。
+
+这个番烂不了，铁烂不了，都买一下可堇股吧。
+
+今天就打你们这些不信任花田的喷子们的脸，好吧，可堇股都买好，唱片什么，买就行了。
+
+
+*****
+
+####  ads147147  
+##### 793#       发表于 2021-10-3 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984348&amp;ptid=2028598" target="_blank">ayara 发表于 2021-10-3 22:03</a>
+可香还没有输！只要飞机追起来，一切都会好起来的</blockquote>
+我押宝恋恋追飞机jpg
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Piano-Forest  
+##### 794#       发表于 2021-10-3 22:19
+
+
+[https://twitter.com/Deadnooodles/status/1444213905606123523](https://twitter.com/Deadnooodles/status/1444213905606123523)
+<img src="https://p.sda1.dev/2/9937e0b0f152dc05ba1b8791fdc1ecff/20211003_221836.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/Deadnooodles/status/1444638162681163777](https://twitter.com/Deadnooodles/status/1444638162681163777)
+<img src="https://p.sda1.dev/2/20dbc688ec4dc2ea4376e7c71856aaeb/20211003_221841.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 795#       发表于 2021-10-3 22:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我奶个阿堇追，香音不追，然后被阿堇螺旋抽她巴掌
+
+
+*****
+
+####  lj205  
+##### 796#       发表于 2021-10-3 22:22
+
+
+都追都追大家都追，然后姐姐直接机场举办妹夫选拔大会
+
+
+*****
+
+####  saglork  
+##### 797#       发表于 2021-10-3 22:23
+
+
+金钻头和恶役大小姐风的表情实在太戳个人XP了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
