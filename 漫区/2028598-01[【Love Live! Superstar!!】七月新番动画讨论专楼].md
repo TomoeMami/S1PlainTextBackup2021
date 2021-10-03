@@ -10400,3 +10400,105 @@ check in out作为rap的接头辞有引起别人注意的意思，用来做一�
 花田这集终于没发病了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 817#       发表于 2021-10-3 23:08
+
+
+说不定根本不是回国就是送个机
+
+
+*****
+
+####  支仓爱理  
+##### 818#       发表于 2021-10-3 23:08
+
+
+虽然我喜欢可堇，但这集我怎么看着那么生草，那皇冠飞起来我都要笑死了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 819#       发表于 2021-10-3 23:09
+
+
+ 本帖最后由 稀勢のささ 于 2021-10-3 23:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再看了一遍 还是觉得这live蛮色的
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 820#       发表于 2021-10-3 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985069&amp;ptid=2028598" target="_blank">Pumpkin_ccc 发表于 2021-10-3 23:07</a>
+
+喵萌基本都是当晚11点左右出，第八集是第二天早上，这一集是提速到9点，字幕组也看集数的质量做基准[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是的，我记得之前没这么快就先来专楼看看有没有个人汉化的。谁知道搜了一下喵萌已经出了。
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 821#       发表于 2021-10-3 23:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看完这集变可堇人了。
+
+
+*****
+
+####  saglork  
+##### 822#       发表于 2021-10-3 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985091&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-3 23:09</a>
+再看了一遍 还是觉得这live蛮色的</blockquote>
+这一集live色到让我怀疑是不是西田亚沙子回来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 823#       发表于 2021-10-3 23:18
+
+
+希望接下来的剧情可堇关系别又重置了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 824#       发表于 2021-10-3 23:20
+
+
+感觉live水平和剧本水平成正比，大概花田犯病的时候制作组live也就随便做做，花田写好的时候制作组也开认真模式
+
+
+*****
+
+####  1096beam  
+##### 825#       发表于 2021-10-3 23:22
+
+
+这歌真能算rap么？只要搞一段念经就是广义的rap么？
+
+
+*****
+
+####  qratosone  
+##### 826#       发表于 2021-10-3 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985202&amp;ptid=2028598" target="_blank">1096beam 发表于 2021-10-3 23:22</a>
+
+这歌真能算rap么？只要搞一段念经就是广义的rap么？</blockquote>
+有rap元素就算吧，LL又不是日本有嘻哈
+
+
