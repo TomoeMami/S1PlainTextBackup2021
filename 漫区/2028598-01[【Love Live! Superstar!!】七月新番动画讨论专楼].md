@@ -10612,3 +10612,193 @@ lovelive不可能翻车，我要吹花田gg！
 就是中间那段“表现欲太强”这些人是怎么看出来的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 836#       发表于 2021-10-3 23:46
+
+
+恭喜恭喜🎉
+
+
+*****
+
+####  TTAA  
+##### 837#       发表于 2021-10-3 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985420&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-3 23:42</a>
+
+看完熟肉确实爽到了，最后的live风格真的顶
+
+就是中间那段“表现欲太强”这些人是怎么看出来的 ...</blockquote>
+应该是包括了堇一直以来的表现吧，估计是风评不好
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 838#       发表于 2021-10-3 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985402&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-3 23:39</a>
+
+60万粉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在又差了6个人
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 839#       发表于 2021-10-3 23:48
+
+
+<blockquote>支仓爱理 发表于 2021-10-3 23:08
+虽然我喜欢可堇，但这集我怎么看着那么生草，那皇冠飞起来我都要笑死了  ...</blockquote>
+确实 看到这一幕直接笑喷了，感情这玩意儿是纸糊的啊
+
+
+*****
+
+####  蔵女  
+##### 840#       发表于 2021-10-3 23:49
+
+
+不过我觉得可可个人回这季大概率没了，不然角色平衡就没法把握了
+
+可可在乱炖里坐拥两个写的最好的cp，人气已经足够了，千恋还是要再多带一下的，估计下集就是千香回了。
+
+
+
+
+*****
+
+####  saglork  
+##### 841#       发表于 2021-10-3 23:51
+
+
+不要为难唐小姐啊，一晚上设计裁缝一把抓，还要做金工那也太超人了，能把纸板做出金属光泽已经很牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 842#       发表于 2021-10-3 23:51
+
+
+<blockquote>蔵女 发表于 2021-10-3 23:49
+不过我觉得可可个人回这季大概率没了，不然角色平衡就没法把握了
+
+可可在乱炖里坐拥两个写的最好的cp，人气 ...</blockquote>
+铺垫都铺好了，肯定有的，一季就是要把所有人的问题都解决掉，开始她们真正的lovelive 
+
+
+*****
+
+####  kata魂  
+##### 843#       发表于 2021-10-3 23:53
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/235320d6184md5zp83dznb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6B81F5BEB7C4B60AFBDDDB3687C6B056.jpg</strong> (56.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-3 23:53 上传
+
+
+ 这回学乖了之后再评价
+
+
+*****
+
+####  黑雪姫  
+##### 844#       发表于 2021-10-3 23:54
+
+
+ 本帖最后由 黑雪姫 于 2021-10-3 23:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985478&amp;ptid=2028598" target="_blank">蔵女 发表于 2021-10-3 23:49</a>
+
+不过我觉得可可个人回这季大概率没了，不然角色平衡就没法把握了
+
+可可在乱炖里坐拥两个写的最好的cp，人气 ...</blockquote>
+这集可可的回国FLAG已经插到天上去了，不可能拖到下季的。 
+
+
+可可回国风波大概率是融到主线剧情里了。
+
+
+可以说可可回就是第一季的故事主线，从她见到香音开始...
+
+
+*****
+
+####  lj205  
+##### 845#       发表于 2021-10-3 23:55
+
+
+你鲤鱼为了60万守到现在还不睡觉
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 846#       发表于 2021-10-3 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985515&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-3 23:53</a>
+
+这回学乖了之后再评价</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">应该只有我们这儿喷他乱奶吧？本人应该不知道吧
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 847#       发表于 2021-10-3 23:55
+
+
+<blockquote>saglork 发表于 2021-10-3 23:51
+不要为难唐小姐啊，一晚上设计裁缝一把抓，还要做金工那也太超人了，能把纸板做出金属光泽已经很牛逼了[f:0 ...</blockquote>
+关键是这东西一亮出来就是卡卡的特效 闪闪发光 结果一阵小风就吹飞了 
+
+
+*****
+
+####  秋月艾莉  
+##### 848#       发表于 2021-10-3 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985478&amp;ptid=2028598" target="_blank">蔵女 发表于 2021-10-3 23:49</a>
+
+不过我觉得可可个人回这季大概率没了，不然角色平衡就没法把握了
+
+可可在乱炖里坐拥两个写的最好的cp，人气 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果这集没提拿不出成绩就润的话也许是，但这回国FLAG都糊脸上了，接下来两次未来如风肯定是可可和全员
+
+要带千恋的话，不如奶一下能不能突然杀出个可千或者可恋吧
+
+
+*****
+
+####  saglork  
+##### 849#       发表于 2021-10-4 00:00
+
+
+不管有没有回国戏，恋恋的人气第一季是肯定是救不回来了，没有这种特殊CP戏份炒热度太吃亏了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 850#       发表于 2021-10-4 00:00
+
+
+不过窝觉得这集平安名堇又动不动撂挑子的行为还是有点恶意 一对比就让唐可可的形象愈发高大伟岸了
+
+

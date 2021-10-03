@@ -17654,3 +17654,41 @@ sao联动，合体秘奥义
 那边我看喷的都有点魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  医生狼多  
+##### 5801#       发表于 2021-10-3 23:51
+
+
+ 本帖最后由 医生狼多 于 2021-10-3 23:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985431&amp;ptid=1860328" target="_blank">CharlieZ- 发表于 2021-10-3 23:43</a>
+那边我看喷的都有点魔怔了</blockquote>
+toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游综你能只了解过一张toar图片的人激情狂喷；
+虽然游综区小白和傻逼都不少，但更为加剧起脑残程度的是因为nga的板块分布，游综区可以从大漩涡进去的
+所以你能看到一堆可能只玩过一点暴雪游戏的整天建政的进去指点江山，相当于只混外野的来游戏区发表高见（比如偶有可见的早该管管了倒逼精品化）而根据他们少得可怜的游戏知识，游戏=暴雪=西式游戏牛逼=日式游戏全是five，jrpg就成为受创重灾区了
+我建议是别去，去也进游戏专版别去游综，至少在专版里发瘟有人和你一起骂
+
+
+*****
+
+####  loley  
+##### 5802#       发表于 2021-10-3 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985431&amp;ptid=1860328" target="_blank">CharlieZ- 发表于 2021-10-03 23:43:52</a>
+那边我看喷的都有点魔怔了</blockquote>其实单论破晓的话，S1喷得比NGA狠多了，只是这几页专楼比较平和一点而已，因为该喷的基本都喷完了。前段时间一堆相关帖，你可以看看来比较一下哪边力度大。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Bruce33  
+##### 5803#       发表于 2021-10-4 00:00
+
+
+确实nga那边游戏区从大漩涡来的**越来越多了，而且还经常冲水一堆帖子无法查看
+
+
