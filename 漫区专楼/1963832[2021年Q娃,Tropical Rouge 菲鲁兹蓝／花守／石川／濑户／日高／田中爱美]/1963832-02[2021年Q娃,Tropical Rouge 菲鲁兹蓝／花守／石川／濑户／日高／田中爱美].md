@@ -9453,3 +9453,14 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 不过飞鸟会长这集没和好，看来后续还会再有一集。
 
 
+
+
+*****
+
+####  待宵  
+##### 2189#       发表于 2021-10-3 13:07
+
+
+去年和佳身体不行还要肉身赶路到现场再变身，今年是为了赶路变身Q娃一路猛跑，作品氛围不同行动方式也如此不同<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
