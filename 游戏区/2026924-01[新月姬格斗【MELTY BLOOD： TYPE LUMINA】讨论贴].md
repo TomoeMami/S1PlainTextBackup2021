@@ -3840,3 +3840,16 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 按BC窜出去就可以结束
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 313#       发表于 2021-10-3 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52979945&amp;ptid=2026924" target="_blank">高龙 发表于 2021-10-3 14:43</a>
+又玩了一段时间,我现在是去掉光盾招架这个系统的支持者了,至少空中光盾应该取消. ...</blockquote>
+看了go1的教学。可以2a复合盾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这东西收益方面太高了
+
+

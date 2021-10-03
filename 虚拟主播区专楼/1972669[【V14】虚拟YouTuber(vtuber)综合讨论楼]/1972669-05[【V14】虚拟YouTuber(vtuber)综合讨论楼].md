@@ -19251,3 +19251,14 @@ syl
 草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hv3gil  
+##### 7390#       发表于 2021-10-3 16:54
+
+
+看傻逼一样的vtuber播自己最近非常喜欢的游戏真是折磨。我说的就是彩虹那个フレン
+
+
