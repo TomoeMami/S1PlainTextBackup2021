@@ -10954,3 +10954,89 @@ lovelive不可能翻车，我要吹花田gg！
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  noneoneone  
+##### 863#       发表于 2021-10-4 00:34
+
+
+这集live真是各种色气特写
+
+<img src="https://p.sda1.dev/2/cfbcc28ff46e914f29c10a7472b48030/GIF 2021-10-4 0-02-45.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/65a31bc7e249456cea47f036e560a25a/GIF 2021-10-4 0-04-22.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/4e0df87c9728774e494f637baaf815ca/GIF 2021-10-4 0-04-53.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/1d63b8eb6da12827910074e09d08e1c1/GIF 2021-10-4 0-06-22.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/3d4357ee7817896c1010e15708519893/GIF 2021-10-4 0-06-23.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/97712a14f4ca63bffa3ca38da85c66a4/GIF 2021-10-4 0-07-07.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/3390e60f2663e6a59022fa35f9df9e95/GIF 2021-10-4 0-08-07.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 864#       发表于 2021-10-4 00:35
+
+
+ 本帖最后由 qratosone 于 2021-10-4 00:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985569&amp;ptid=2028598" target="_blank">Mc凉月奏酱 发表于 2021-10-4 00:00</a>
+
+不过窝觉得这集平安名堇又动不动撂挑子的行为还是有点恶意 一对比就让唐可可的形象愈发高大伟岸了 ...</blockquote>
+跟前面几集鬼扯的所谓“霸凌”不同，这次民警遭遇的才是真正的霸凌——虽然“加害者”不是团队成员，也不是故意的。民警长期遭到失败和负反馈，现在又被人直接戳伤疤，破大防撂挑子才是正常的，所以这次最看重LL的可可反而过来安抚民警
+
+
+*****
+
+####  TTAA  
+##### 865#       发表于 2021-10-4 00:36
+
+
+踢腿的动作很性感，不知道完整live会是什么样子
+
+
+*****
+
+####  saglork  
+##### 866#       发表于 2021-10-4 00:40
+
+
+也谈不上霸凌吧，我觉得更多的是堇自己对c位主角这个东西怨念太深，心理压力过大，导致实际表演中把握不住尺度，表现欲过强，加上还有观众对以前的c位香音和恋有先入为主的好感加成，所以这个评价其实挺正常的
+当然实际画面没放出来，也只能靠猜测和推断了
+
+
+*****
+
+####  damian-wade  
+##### 867#       发表于 2021-10-4 00:40
+
+
+恋女士除了之前假药泛滥的时期，还真的和CP这玩意挺绝缘的，难啊
+
+
+*****
+
+####  ads147147  
+##### 868#       发表于 2021-10-4 00:41
+
+
+才发现这次mv有传统的菱形◇嘴（水里是迫害梨子和善子来着），这点倒是保留的挺好的，虹有人有0◇0表情么，我一直记得没有。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  离心  
+##### 869#       发表于 2021-10-4 00:42
+
+
+看完了，回来了，一切都回来了
+
+
