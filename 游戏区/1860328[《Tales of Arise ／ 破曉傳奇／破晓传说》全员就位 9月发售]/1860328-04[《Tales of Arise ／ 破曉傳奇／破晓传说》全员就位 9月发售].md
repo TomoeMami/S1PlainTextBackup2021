@@ -17365,3 +17365,114 @@ sao联动，合体秘奥义
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">搞这个有的没的还不如出个后日谈DLC
 
 
+
+
+*****
+
+####  医生狼多  
+##### 5776#       发表于 2021-10-3 21:08
+
+
+[cp]万代南梦宫宣布，将于10月7日发布《破晓传说》的更新与免费DLC，更新主要为追加两种新难度，一种比现在的“剧情”模式更简单，一种比“混沌”更难，免费DLC则会在修炼场追加新的敌人，战斗胜利后可以获得特别的武器。
+此外还将推出与《刀剑神域 彼岸游境》的合作DLC，追加奥尔芬与希侬的联动服装，和对桐人&amp;亚丝娜的战斗。[/cp]
+
+
+*****
+
+####  宛若青空  
+##### 5777#       发表于 2021-10-3 21:11
+
+
+不改进下战斗系统对BOSS战的连段吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DelayNoMore  
+##### 5778#       发表于 2021-10-3 21:11
+
+
+加个隐藏迷宫不香吗
+
+
+*****
+
+####  laoz  
+##### 5779#       发表于 2021-10-3 21:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sao的武器都是最强武器，富泽：合体秘奥义的连段数很高，很适合叠连击数
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他真的认为boss那坨屎能连起来
+
+
+*****
+
+####  zero12  
+##### 5780#       发表于 2021-10-3 21:16
+
+
+送什么？星爆气流斩？
+
+
+*****
+
+####  loley  
+##### 5781#       发表于 2021-10-3 21:16
+
+
+有点没看懂，所以这个可以打SAO二人组的合作DLC是免费吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  laoz  
+##### 5782#       发表于 2021-10-3 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983741&amp;ptid=1860328" target="_blank">loley 发表于 2021-10-3 21:16</a>
+
+有点没看懂，所以这个可以打SAO二人组的合作DLC是免费吗
+
+
+  -- 来自 有消息提醒的 Stage1官方 Andro ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">肯定是付费啊，都有秘奥义了。售价1800日元
+
+
+*****
+
+####  忧郁  
+##### 5783#       发表于 2021-10-3 21:20
+
+
+唐突加了挂哥夫妇，虽然从进to的时间点来说他们其实比ar众还要早……
+
+
+*****
+
+####  loley  
+##### 5784#       发表于 2021-10-3 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983764&amp;ptid=1860328" target="_blank">laoz 发表于 2021-10-03 21:18:23</a>
+肯定是付费啊，都有秘奥义了。售价1800日元</blockquote>我依稀记得这制作人还说不会加新DLC<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  laoz  
+##### 5785#       发表于 2021-10-3 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983819&amp;ptid=1860328" target="_blank">loley 发表于 2021-10-3 21:22</a>
+
+我依稀记得这制作人还说不会加新DLC
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+只是说没有游戏自己的剧情dlc
+
+

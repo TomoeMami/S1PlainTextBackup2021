@@ -9912,3 +9912,57 @@ u1s1，感觉可可的中文声线有点熟悉？
 2021-10-3 20:48 上传
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 776#       发表于 2021-10-3 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983473&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-3 20:56</a>
+
+没人跑的吗，贴吧nga以及老楼都说互动塑造差的有人跑路了，我还以为是真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">之前去LGA贴吧冲浪也看见有其他人好奇这个问题的，然后基本上都没人正面回答
+
+大概是传来传去的二手SHI罢了
+
+
+*****
+
+####  Norkey1  
+##### 777#       发表于 2021-10-3 21:10
+
+
+多数同人画手更图速度没那么快，而且画其他的也很正常，除非自爆，不然就算中间真跑路了也看不出来…
+
+
+*****
+
+####  saya1892  
+##### 778#       发表于 2021-10-3 21:19
+
+
+check in out作为rap的接头辞有引起别人注意的意思，用来做一直是配角的堇当上C位的标题其实很有意思
+
+
+*****
+
+####  kbtit  
+##### 779#       发表于 2021-10-3 21:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">画师跑路本来就是人云亦云
+
+
+*****
+
+####  CharlieZ-  
+##### 780#       发表于 2021-10-3 21:26
+
+
+前面三集两人互动写成那个b样能不跑路的都是天使吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这两人关系变化我觉得4→789→10→56这样还算正常点，现在这种看着就很怪，尤其是789观感太差
+
+
