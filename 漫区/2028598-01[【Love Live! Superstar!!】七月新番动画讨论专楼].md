@@ -8681,3 +8681,395 @@ live上的千好色<img src="https://static.saraba1st.com/image/smiley/face2017/
 这集可以的
 
 
+
+
+*****
+
+####  damian-wade  
+##### 679#       发表于 2021-10-3 18:26
+
+
+赞美花田……一集，可以把这集当第四集吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 680#       发表于 2021-10-3 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981685&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-10-3 18:26</a>
+赞美花田……一集，可以把这集当第四集吗
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 S1Next-鹅版 ...</blockquote>
+是第五
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  綿Tower  
+##### 681#       发表于 2021-10-3 18:27
+
+
+花田要挺到最后啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 682#       发表于 2021-10-3 18:28
+
+
+这集放到第五集确实就没后面这么多民警节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 683#       发表于 2021-10-3 18:29
+
+
+这集可以啊，花田终于支楞起来了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  YZY  
+##### 684#       发表于 2021-10-3 18:29
+
+
+可堇好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  soranoguiji  
+##### 685#       发表于 2021-10-3 18:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 不吹不黑，这集的确好看，把可堇给写活了
+
+
+*****
+
+####  yangyibani777  
+##### 686#       发表于 2021-10-3 18:29
+
+？
+
+
+什么，这集没看......花田一辉又变成花田千辉了?<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 687#       发表于 2021-10-3 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cat1230  
+##### 688#       发表于 2021-10-3 18:31
+
+
+吃个晚饭吃到了，只看了直播的三分之二。等熟肉，激动啊。可堇终于来了一回。
+
+
+*****
+
+####  chenflyyy  
+##### 689#       发表于 2021-10-3 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981727&amp;ptid=2028598" target="_blank">yangyibani777 发表于 2021-10-3 18:29</a>
+什么，这集没看......花田一辉又变成花田千辉了?</blockquote>
+给个十五辉吧，千辉过了
+
+
+*****
+
+####  player3960  
+##### 690#       发表于 2021-10-3 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981707&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-03 18:28:21</a>
+这集放到第五集确实就没后面这么多民警节奏了</blockquote>但是按现在的剧情感觉放第五集太早了点，可堇冲突酝酿不够啊，还是78集用力过猛的原因，应该稍微收一下
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+*****
+
+####  笋狐  
+##### 691#       发表于 2021-10-3 18:31
+
+
+虽然是有些套路，但观感还不错，在推进主线的同时没崩人设的情况下把故事讲好了（这标准是不是低了点）...
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这金发钻头造型有点low
+
+
+*****
+
+####  cybernetics31  
+##### 692#       发表于 2021-10-3 18:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基本上可可主动的剧集都挺好看的 但是看下一集感觉又是香音回？
+
+
+*****
+
+####  球獭  
+##### 693#       发表于 2021-10-3 18:33
+
+
+期待<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cushaw  
+##### 694#       发表于 2021-10-3 18:33
+
+
+小千好涩哦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kata魂  
+##### 695#       发表于 2021-10-3 18:33
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/183259hqzc6uuqcc0h04c9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-485f87950f0629be.jpg</strong> (78.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 18:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/183311ankb6en0rb409r3n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1168bdeec049bcc5.jpg</strong> (70.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 18:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/183319uqcaeckd7ek707a7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-10-03-18-32-21-454_com.baidu.searchbox.jpg</strong> (174.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 18:33 上传
+
+
+看过的谁能告诉我实现了几个
+
+
+*****
+
+####  lj205  
+##### 696#       发表于 2021-10-3 18:35
+
+
+鲤鱼以后可以考虑说相声
+
+
+*****
+
+####  qratosone  
+##### 697#       发表于 2021-10-3 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981766&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-3 18:33</a>
+看过的谁能告诉我实现了几个</blockquote>
+基本都实现了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Norkey1  
+##### 698#       发表于 2021-10-3 18:36
+
+
+有点区别吧，那个王冠居然能被风吹跑我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">什么纸片
+
+
+*****
+
+####  黑雪姫  
+##### 699#       发表于 2021-10-3 18:36
+
+
+ 本帖最后由 黑雪姫 于 2021-10-3 18:38 编辑 
+
+可可回国的旗子已经插上天了吧，大概率是不会留到下季的，但是下集预告看起来是讲香音的，那么猜测可可回国风波应该是归入主线划到12集里了，估计11集后半段就应该会波及到。
+
+
+*****
+
+####  待宵  
+##### 700#       发表于 2021-10-3 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981766&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-3 18:33</a>
+
+看过的谁能告诉我实现了几个</blockquote>
+LL成绩不好就回家这狗血剧情是应验了
+
+
+*****
+
+####  没有爱就看不见  
+##### 701#       发表于 2021-10-3 18:37
+
+
+<img src="https://pbs.twimg.com/media/FAxLIxnUYAAMrtc?format=jpg&amp;name=medium" id="aimg_C5Dj8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/FAxLJKlVIAAmu3K?format=jpg&amp;name=medium" id="aimg_iOs13" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+*****
+
+####  寒风夜  
+##### 702#       发表于 2021-10-3 18:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看完生放送 看虹 今天挺好
+
+
+*****
+
+####  卡罗斯  
+##### 703#       发表于 2021-10-3 18:38
+
+
+剧情推进太快，感觉就是完成任务式的跑火车，尬场面还是一如既往
+
+
+*****
+
+####  优妮可  
+##### 704#       发表于 2021-10-3 18:38
+
+
+这live还能输也只能输桑巴帕了吧，可可爸通融一下，第二名可不可以
+
+
+*****
+
+####  Arccueid  
+##### 705#       发表于 2021-10-3 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981819&amp;ptid=2028598" target="_blank">卡罗斯 发表于 2021-10-3 18:38</a>
+
+剧情推进太快，感觉就是完成任务式的跑火车，尬场面还是一如既往</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓套路和跑火车了，演出观感能自然点角色的行动符合前面的塑造观感就好太多了，可以参考下小千入队那回，结构挺像的，观感天差地别。
+
+
+*****
+
+####  CharlieZ-  
+##### 706#       发表于 2021-10-3 18:40
+
+
+这集确实可以，堇终于被当成个人来对待了
+
+不过我有点不明白，难道前面几集把堇的待遇写成那样都是为了这集铺垫吗，但写那么过火，不仅每周都有节奏，观感差，人设崩，可能还影响了可可的风评
+
+是花田能力有限还是说这集超长发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 707#       发表于 2021-10-3 18:40
+
+
+这演出服也太色了吧？live上会穿吗
+
+
+*****
+
+####  寒风夜  
+##### 708#       发表于 2021-10-3 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981840&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-3 18:40</a>
+
+无所谓套路和跑火车了，演出观感能自然点角色的行动符合前面的塑造观感就好太多了，可以参考下小 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 709#       发表于 2021-10-3 18:41
+
+
+起来了？真的假的？花田不犯病了感动
+
+
+*****
+
+####  ads147147  
+##### 710#       发表于 2021-10-3 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981843&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-3 18:40</a>
+这集确实可以，堇终于被当成个人来对待了
+
+不过我有点不明白，难道前面几集把堇的待遇写成那样都是为了这集 ...</blockquote>
+坏名声比没名声好jpg
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  笋狐  
+##### 711#       发表于 2021-10-3 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981819&amp;ptid=2028598" target="_blank">卡罗斯 发表于 2021-10-3 18:38</a>
+
+剧情推进太快，感觉就是完成任务式的跑火车，尬场面还是一如既往</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转折和冲突是有一点强行。虽然不能和前三话比，但对比4-8话已经是优质剧集了
+
+
+*****
+
+####  ads147147  
+##### 712#       发表于 2021-10-3 18:42
+
+
+话说堇的发色是天生的？妹妹也是金发诶。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

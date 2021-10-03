@@ -3868,3 +3868,16 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 不是最速BC的话还是可以D的，而且BC的资源消费有点高
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 315#       发表于 2021-10-3 18:33
+
+
+连段水的一笔都用狂公主打到A了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+还是性能机体好使<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+

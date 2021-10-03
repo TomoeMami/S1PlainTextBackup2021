@@ -15076,3 +15076,14 @@ LOL这赛季11月10号到头，上次Rank都是7月了，感觉应该不打了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近忙才没时间打而已，等有时间就会打了
 
 
+
+
+*****
+
+####  一仙  
+##### 13277#       发表于 2021-10-3 18:31
+
+
+绫总报数报第三报第二为什么不报第一啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
