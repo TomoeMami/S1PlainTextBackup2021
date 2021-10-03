@@ -7880,3 +7880,16 @@ Screenshot_20211003_102129_com.huawei.browser_edit_286731187021872.jpg
 实在是太母女了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 603#       发表于 2021-10-3 15:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">花田今晚你要加把劲，好好做后面的回数了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
