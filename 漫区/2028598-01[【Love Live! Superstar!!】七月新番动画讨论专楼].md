@@ -7970,3 +7970,71 @@ https://b23.tv/Gv3tTt
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  saya1892  
+##### 610#       发表于 2021-10-3 17:25
+
+
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1633230737](https://itest.5ch.net/fate/test/read.cgi/lovelive/1633230737)
+
+10话剧情预测帖
+
+
+前半搞笑，后半可可接电话
+
+预告阴暗风格
+
+11话ed可可solo
+
+
+花田套路大战花田套路
+
+
+*****
+
+####  寒风夜  
+##### 611#       发表于 2021-10-3 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981173&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-3 17:25</a>
+
+https://itest.5ch.net/fate/test/read.cgi/lovelive/1633230737
+
+10话剧情预测帖</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 612#       发表于 2021-10-3 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981173&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-3 17:25</a>
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1633230737](https://itest.5ch.net/fate/test/read.cgi/lovelive/1633230737)
+
+10话剧情预测帖</blockquote>
+绝了
+
+
+*****
+
+####  lj205  
+##### 613#       发表于 2021-10-3 17:35
+
+
+继续不敢看
+
+
+*****
+
+####  chenflyyy  
+##### 614#       发表于 2021-10-3 17:35
+
+
+这位国人原画之前主要负责live部分的，这集也参与了，就是说可能有live？<img src="https://p.sda1.dev/2/f4ba3f3c0ab8ae56a74068e3f92e9cc0/IMG_CMP_227373166.jpeg" referrerpolicy="no-referrer">
+
+
