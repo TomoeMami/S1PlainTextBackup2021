@@ -11040,3 +11040,51 @@ lovelive不可能翻车，我要吹花田gg！
 看完了，回来了，一切都回来了
 
 
+
+
+*****
+
+####  qratosone  
+##### 870#       发表于 2021-10-4 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985845&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-4 00:40</a>
+
+也谈不上霸凌吧，我觉得更多的是堇自己对c位主角这个东西怨念太深，心理压力过大，导致实际表演中把握不住 ...</blockquote>
+粉丝显然并不是故意的，但客观上确实达到了类似的效果，所以民警最后哭着对可可说“你不是必须要赢吗”，因为民警此时已经形成了强烈的负面心理暗示，“只要自己当C位就必输”——而可可劝她的时候也是对症下药，“正因为必须要赢所以才需要你当C”
+
+
+
+
+*****
+
+####  稀勢のささ  
+##### 871#       发表于 2021-10-4 00:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假药厂还没完全倒闭啊 还有联姻呢
+
+
+*****
+
+####  qratosone  
+##### 872#       发表于 2021-10-4 00:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985498&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-3 23:51</a>
+
+不要为难唐小姐啊，一晚上设计裁缝一把抓，还要做金工那也太超人了，能把纸板做出金属光泽已经很牛逼了[f:0 ...</blockquote>
+作为舞台演出的饰品本身也需要控制重量，就算有时间估计也不能真的用金属材料做
+
+
+*****
+
+####  lucksolo  
+##### 873#       发表于 2021-10-4 00:56
+
+
+恋爸说的去海外其实就是中国。
+
+工作上认识了可可的爸妈，双方一拍即合，指定可恋在日本相依为命<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
