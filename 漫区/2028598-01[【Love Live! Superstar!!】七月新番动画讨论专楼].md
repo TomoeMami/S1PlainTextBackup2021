@@ -9073,3 +9073,248 @@ LL成绩不好就回家这狗血剧情是应验了
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  qratosone  
+##### 713#       发表于 2021-10-3 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981843&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-3 18:40</a>
+这集确实可以，堇终于被当成个人来对待了
+
+不过我有点不明白，难道前面几集把堇的待遇写成那样都是为了这集 ...</blockquote>
+没准第九集香哥哥的吐槽是花田故意的呢，因为上面要求必须八集收完人出live，然后第九集出团名，花田先辈嫌放不开手脚就乱写一通，第十集才重新认真起来
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cybernetics31  
+##### 714#       发表于 2021-10-3 18:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">话说衣服是越来越涩了 吊带那hso
+
+
+*****
+
+####  chenflyyy  
+##### 715#       发表于 2021-10-3 18:46
+
+
+小千这一段是真的色<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 716#       发表于 2021-10-3 18:47
+
+
+这集插入曲的cd封面竟然不是可堇<img src="https://p.sda1.dev/2/9d0b1cc6d2335ad729b3ce9d8ab5c617/IMG_CMP_95290377.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 717#       发表于 2021-10-3 18:48
+
+
+想了想
+
+
+前三话拉香音入队-解决问题的人-可可-花田支棱起来了
+
+第四话民警入队-解决问题的人-香音：很赶
+
+五六话千入队-解决问题的人-香音：观感微妙
+
+七八话恋入队-解决问题的人-香音：花田亲妈飞扬
+
+十话民警C-解决问题的人-可可：花田的妈回到地球表面
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">控制变量法得出结论，要不咱还是让可可来解决问题吧，只要冲国姛发起进攻，一切都会好起来的
+
+
+*****
+
+####  黑雪姫  
+##### 718#       发表于 2021-10-3 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981918&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-3 18:47</a>
+
+这集插入曲的cd封面竟然不是可堇</blockquote>
+那么下一张封面大概率是可香，期待下香音追飞机吧
+
+
+*****
+
+####  优妮可  
+##### 719#       发表于 2021-10-3 18:49
+
+
+女同是真理是吧
+
+
+*****
+
+####  寒风夜  
+##### 720#       发表于 2021-10-3 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981928&amp;ptid=2028598" target="_blank">笋狐 发表于 2021-10-3 18:48</a>
+
+想了想
+
+
+前三话拉香音入队-解决问题的人-可可-花田支棱起来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">解决问题不是关键，，关键其他人隐形
+
+
+
+
+*****
+
+####  寒风夜  
+##### 721#       发表于 2021-10-3 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981928&amp;ptid=2028598" target="_blank">笋狐 发表于 2021-10-3 18:48</a>
+
+想了想
+
+
+前三话拉香音入队-解决问题的人-可可-花田支棱起来了</blockquote>
+
+
+*****
+
+####  Norkey1  
+##### 722#       发表于 2021-10-3 18:53
+
+
+可可更像是ll传统的主角，行动力max热情max。
+加农牡蛎牡蛎，根本推动不了剧情反而增加钦定感<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 723#       发表于 2021-10-3 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981881&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-3 18:43</a>
+话说衣服是越来越涩了 吊带那hso</blockquote>
+不说我都没太看出来是吊带袜，那可更色了，期待live是真人穿这个<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 724#       发表于 2021-10-3 18:55
+
+
+结合贴吧说的1-3和10集好看都是因为可可推动剧情，4-7则是香音，暴论一下：
+
+可可本来一直是发动机，但第四集遇到民警后，一见钟情又纠结对方歧视偶像，长期处于矛盾情绪，导致行动力掉线，香音不得不出来扛旗子，靠灵光一闪屡屡救场。
+
+到第10集矛盾积攒max，终于爆发，绝对做个了断，就重新支棱起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  没有爱就看不见  
+##### 725#       发表于 2021-10-3 18:58
+
+
+一到香音解决问题就会开启教祖模式，但说真的名警那回还好，小千和恋已经不只是教祖化的问题了
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 726#       发表于 2021-10-3 18:58
+
+
+下话香音ptsd发作直接寄了导致可可回国<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">最后在追波飞机 完美
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 727#       发表于 2021-10-3 19:02
+
+
+别来追飞机这种样板戏了，我宁愿是拿出成绩所以不用回国<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HGCG-闪  
+##### 728#       发表于 2021-10-3 19:02
+
+
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4688276989345814?from=old_pc_videoshow)
+
+
+*****
+
+####  Piano-Forest  
+##### 729#       发表于 2021-10-3 19:06
+
+
+[https://twitter.com/kamatamanankotu/status/1444617152393199622](https://twitter.com/kamatamanankotu/status/1444617152393199622)
+<img src="https://p.sda1.dev/2/61dbaa10388e96dbc4b783ed808cac65/20211003_190358.jpg" referrerpolicy="no-referrer">
+
+
+【💫CD情報💫】
+
+第10話挿入歌「ノンフィクション!!」は、10/20(水)に発売されるTVアニメ『ラブライブ！スーパースター!!』挿入歌シングル第3弾に収録🙌✨
+
+
+そして❣形態①のジャケットを公開👀
+
+
+CDの詳細は追ってお知らせいたしますので、続報をお楽しみに♪
+<img src="https://p.sda1.dev/2/a551b486e5d56cd4b5dba0821d7612fe/20211003_190432.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/2f7bcdde9451c52b32e887d40ca48bcf/20211003_190434.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/nhk_animeworld/status/1444610709728501763](https://twitter.com/nhk_animeworld/status/1444610709728501763)
+
+＼次回予告／
+
+💫✨💫✨💫✨💫✨💫✨
+
+ラブライブ！スーパースター!!
+
+第11話「もう一度、あの場所で」
+
+Eテレ 10(日)夜7時
+
+💫✨💫✨💫✨💫✨💫✨
+
+
+次回もどうぞお楽しみに！
+
+
+*****
+
+####  待宵  
+##### 730#       发表于 2021-10-3 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52982075&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-3 19:02</a>
+
+别来追飞机这种样板戏了，我宁愿是拿出成绩所以不用回国</blockquote>
+真正王道的是唐家大小姐来日本为二小姐打call啊
+
+
