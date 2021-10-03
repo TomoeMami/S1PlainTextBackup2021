@@ -17855,3 +17855,15 @@ toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游�
 你不加pc这个限定词那就是泥潭真爱jrpg2完美甚至更加符合了，这几年就这点jrpg，蹲一个还能不能有第二个同类
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5815#       发表于 2021-10-4 07:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">s1喷的就都玩过？
+说演出不如轨迹的都有
+
+
