@@ -4515,3 +4515,14 @@ bsyl，原来还有个b博，b限咕咕力
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有一种可能，是脚打的
 
 
+
+
+*****
+
+####  Klience  
+##### 3397#       发表于 2021-10-3 19:30
+
+
+那解释了0/10战绩怎么来的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

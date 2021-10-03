@@ -9427,3 +9427,63 @@ nhk的工作人员难道拿不到台词本吗？得自己听？
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 737#       发表于 2021-10-3 19:32
+
+
+可以让鲤鱼自配
+
+妮可全家除了老妈都是德井吧
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  星降る森  
+##### 738#       发表于 2021-10-3 19:34
+
+
+中间那段矛盾展开有点过于刻意了，从讨论换C到拿不出成绩就要回国，感觉有点没必要
+
+
+*****
+
+####  lj205  
+##### 739#       发表于 2021-10-3 19:36
+
+
+是不是就差可可没C了？
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 740#       发表于 2021-10-3 19:37
+
+
+有人要离开日本
+现在只有一个人知道
+有可能live出事
+最初的两人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不会再放送吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  待宵  
+##### 741#       发表于 2021-10-3 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52982191&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-10-3 19:11</a>
+
+我在想，可可这段拉普，估计是鲤鱼自己写的</blockquote>
+日本人哪懂煎饼果子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
