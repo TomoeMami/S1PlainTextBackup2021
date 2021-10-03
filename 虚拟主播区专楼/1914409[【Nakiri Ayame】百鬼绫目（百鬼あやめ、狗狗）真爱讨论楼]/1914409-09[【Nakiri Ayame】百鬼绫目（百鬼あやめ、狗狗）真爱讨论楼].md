@@ -14996,3 +14996,16 @@ Korosan虽然早就也被绫总脑控了，但昨天生日倒计时的时候又�
 syl 失蹤回归也要满一年了 时间真快<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 13270#       发表于 2021-10-3 10:59
+
+
+绫总的电竞生涯虽然结束了，但直播还是会一样的摸
+
+连发散的余地都没有了，感觉有点无趣
+
+
