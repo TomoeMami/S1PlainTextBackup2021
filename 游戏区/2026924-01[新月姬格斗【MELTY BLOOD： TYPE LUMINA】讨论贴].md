@@ -3737,3 +3737,14 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在都古的LAST ARCS里面
 
 
+
+
+*****
+
+####  猫坤  
+##### 305#         楼主| 发表于 2021-10-3 09:29
+
+
+详细修正了关于霸体、相杀、D、月技性质的攻防说明，这次应该是比较正确的了
+
+
