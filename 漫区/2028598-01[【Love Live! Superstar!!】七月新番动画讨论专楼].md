@@ -11100,3 +11100,37 @@ lovelive不可能翻车，我要吹花田gg！
 我永远喜欢拉拉.jpg
 
 
+
+
+*****
+
+####  Makinohara  
+##### 875#       发表于 2021-10-4 02:17
+
+
+回家饭都不做先看完这集，实在太棒了。观感很好，该煽情的地方情绪也确实调动起来了。另外这个live风格好喜欢，期待一巡<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 876#       发表于 2021-10-4 03:09
+
+
+想想现在恋也太惨了，个人回恶评如潮，角色没有特色，连CP都没有，第一季的戏份也到头了...
+
+
+*****
+
+####  名津流  
+##### 877#       发表于 2021-10-4 05:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981707&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-3 18:28</a>
+
+这集放到第五集确实就没后面这么多民警节奏了</blockquote>
+我觉得换不得，这集能做出堇的角色成长其实一定程度上是建立在5-9集堇的被“霸凌”剧情铺垫上的
+
+不让观众在5-9集感先受到堇这个角色受到的压抑，到第10集伴随堇的心结解开带给观众情绪上的调动就不会那么明显
+
+
