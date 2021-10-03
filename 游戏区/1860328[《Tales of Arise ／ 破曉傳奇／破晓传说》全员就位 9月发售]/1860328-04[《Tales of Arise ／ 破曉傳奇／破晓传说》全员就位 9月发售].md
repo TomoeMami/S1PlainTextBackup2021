@@ -17290,3 +17290,78 @@ tob已经打完了，主要就是冲着tob还不错的体验首发的toar
 35小时通关，最后4个支线懒得去做。除了最后几关瞎比堆怪，然后最终BOSS太LOW之外，其他都还满意。。
 
 
+
+
+*****
+
+####  laoz  
+##### 5773#       发表于 2021-10-3 20:53
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/205332oqo1vqjae6oebxao.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (62.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 20:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/205414obkxsjua6xaazj6g.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (92.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 20:54 上传
+
+
+*****
+
+####  laoz  
+##### 5774#       发表于 2021-10-3 21:03
+
+
+sao联动，合体秘奥义
+
+<img src="https://img.saraba1st.com/forum/202110/03/210129onixzhi9sinpuvl9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (95.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 21:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/210214ptbb94vg4bsvioxv.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (117.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 21:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/210242k3cm63xh3xr056q5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (120.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 21:02 上传
+
+
+*****
+
+####  森兰丸  
+##### 5775#       发表于 2021-10-3 21:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">搞这个有的没的还不如出个后日谈DLC
+
+

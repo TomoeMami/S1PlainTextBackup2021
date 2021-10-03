@@ -9880,3 +9880,35 @@ u1s1，感觉可可的中文声线有点熟悉？
 所以说记忆偏差先入为主了啊
 
 
+
+
+*****
+
+####  kata魂  
+##### 774#       发表于 2021-10-3 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983354&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-3 20:46</a>
+
+你得先说明白具体是哪些人跑路了才能看人有没有回来
+
+所以到底是谁跑路了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没人跑的吗，贴吧nga以及老楼都说互动塑造差的有人跑路了，我还以为是真的
+
+
+*****
+
+####  lj205  
+##### 775#       发表于 2021-10-3 20:58
+
+
+<img src="https://img.saraba1st.com/forum/202110/03/204836fr9emg82vjl1vede.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>360D3F79-705E-469E-A319-31C30F8E6127.jpeg</strong> (79.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-3 20:48 上传
+
+
