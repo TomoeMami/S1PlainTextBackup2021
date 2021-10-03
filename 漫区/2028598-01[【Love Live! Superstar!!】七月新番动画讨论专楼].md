@@ -7946,3 +7946,27 @@ https://b23.tv/Gv3tTt
 今晚我是看不到生肉了  等明天熟肉一起看吧
 
 
+
+
+*****
+
+####  寒风夜  
+##### 608#       发表于 2021-10-3 17:06
+
+
+还真不知这集要干嘛
+
+
+*****
+
+####  普之舜舜  
+##### 609#       发表于 2021-10-3 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981050&amp;ptid=2028598" target="_blank">寒风夜 发表于 2021-10-3 17:06</a>
+还真不知这集要干嘛</blockquote>
+他们要做音鬼畜，哟哟，切克闹切克闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
