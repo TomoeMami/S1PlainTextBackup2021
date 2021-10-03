@@ -10802,3 +10802,155 @@ lovelive不可能翻车，我要吹花田gg！
 不过窝觉得这集平安名堇又动不动撂挑子的行为还是有点恶意 一对比就让唐可可的形象愈发高大伟岸了
 
 
+
+
+*****
+
+####  kata魂  
+##### 851#       发表于 2021-10-4 00:03
+
+
+<img src="https://img.saraba1st.com/forum/202110/04/000323l0rq3gg01xckxnwr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-1633276507037793ef14ae8157689de1342aabee76641.jpg</strong> (213.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-4 00:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/04/000329bddjvbp9m82ye5bd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-16332765096183550c5d009b8077e056455ab4a29ca69.jpg</strong> (151.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-4 00:03 上传
+
+
+这集比我想象中的有意思啊～
+
+
+*****
+
+####  chenflyyy  
+##### 852#       发表于 2021-10-4 00:04
+
+
+现在剩两集，下集看预告大概率是千香回（希望写好点，第6集实在差强人意），然后最后一集我猜测是参加lovelive大赛取得成绩让父母满意（父母和姐姐可能过来看比赛什么的）。
+这么看恋恋是真的惨，作为个人回的78集写成那样，人气怕是得全靠中之人整活来救或者等第二季<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚瑟邓特  
+##### 853#       发表于 2021-10-4 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985091&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-3 23:09</a>
+再看了一遍 还是觉得这live蛮色的</blockquote>
+主要是那个唇彩的问题<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑雪姫  
+##### 854#       发表于 2021-10-4 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985597&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-4 00:04</a>
+
+现在剩两集，下集看预告大概率是千香回（希望写好点，第6集实在差强人意），然后最后一集我猜测是参加lovel ...</blockquote>
+不是，你们怎么能看出千香回的？ 至少预告里没任何暗示吧。 从预告来看更像是讲香音自己曾经的黑历史。
+
+
+*****
+
+####  ads147147  
+##### 855#       发表于 2021-10-4 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985534&amp;ptid=2028598" target="_blank">Mc凉月奏酱 发表于 2021-10-3 23:55</a>
+关键是这东西一亮出来就是卡卡的特效 闪闪发光 结果一阵小风就吹飞了</blockquote>
+泡沫塑料加喷漆涂装明显是做起来快效果又好的方式。
+能被风吹起来怕不是从箱子里弄来的废弃泡沫塑料，稍微切割粘粘一下喷漆就行，加固可以用细铁丝。闪闪的一般用闪漆或者什么粉涂一下就行了，而且这玩意轻更适合跳舞，不容易掉。
+
+这样看这次演出的设计挺考虑到学生的制作过程的，不过爱生活地域赛就要指定主题出歌，太卷了，这是啥游戏王么。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  太二EricGuo  
+##### 856#       发表于 2021-10-4 00:15
+
+
+可可已经撅腚了，你来当C位
+
+
+*****
+
+####  黑雪姫  
+##### 857#       发表于 2021-10-4 00:17
+
+
+60万了
+
+
+*****
+
+####  Boliva  
+##### 858#       发表于 2021-10-4 00:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 859#       发表于 2021-10-4 00:23
+
+
+目前最好看的一集，这mv色疯了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kata魂  
+##### 860#       发表于 2021-10-4 00:23
+
+
+建议叔叔跳过接下来的三集  直接更新第十集
+
+
+*****
+
+####  凡人  
+##### 861#       发表于 2021-10-4 00:25
+
+
+星团五个人能凑出三个热门cp，但在这五个人里有一个人没有好的个人回，有一个人没有热门cp，还有一个人没有妈
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 862#       发表于 2021-10-4 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985743&amp;ptid=2028598" target="_blank">凡人 发表于 2021-10-04 00:25:09</a>
+星团五个人能凑出三个热门cp，但在这五个人里有一个人没有好的个人回，有一个人没有热门cp，还有一个人没有 ...</blockquote>这不是一个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

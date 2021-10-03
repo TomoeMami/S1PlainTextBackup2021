@@ -17692,3 +17692,52 @@ toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游�
 确实nga那边游戏区从大漩涡来的**越来越多了，而且还经常冲水一堆帖子无法查看
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 5804#       发表于 2021-10-4 00:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985496&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-10-3 23:51</a>
+
+toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游综你能只了解过一张toar图片的人激情狂喷；
+
+虽 ...</blockquote>
+确实，感觉这边正常挺多，偏见没那么大，那边属实是群魔乱舞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 5805#       发表于 2021-10-4 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985503&amp;ptid=1860328" target="_blank">loley 发表于 2021-10-3 23:51</a>
+
+其实单论破晓的话，S1喷得比NGA狠多了，只是这几页专楼比较平和一点而已，因为该喷的基本都喷完了。前段时 ...</blockquote>
+有理有据那种是能接受的，就怕上来就对jrpg和受众群体放aoe的，游戏根本没玩过，那种挺恐怖的<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  superkin185  
+##### 5806#       发表于 2021-10-4 00:19
+
+
+正在打，发现穿模挺严重的。女主被抢走后，男主被冲到沙滩上，播片里火焰剑还在，播完就不在了～
+
+
+*****
+
+####  chiefshi  
+##### 5807#       发表于 2021-10-4 00:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985708&amp;ptid=1860328" target="_blank">superkin185 发表于 2021-10-4 00:19</a>
+
+正在打，发现穿模挺严重的。女主被抢走后，男主被冲到沙滩上，播片里火焰剑还在，播完就不在了～ ...</blockquote>
+有一个抽出剑结果剑消失掉的动画的吧
+
+
