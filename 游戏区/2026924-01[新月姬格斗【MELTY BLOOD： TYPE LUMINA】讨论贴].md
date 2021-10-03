@@ -3853,3 +3853,18 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 看了go1的教学。可以2a复合盾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这东西收益方面太高了
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 314#       发表于 2021-10-3 18:02
+
+
+ 本帖最后由 ロラン・ローラ 于 2021-10-3 18:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52980879&amp;ptid=2026924" target="_blank">猫坤 发表于 2021-10-3 16:42</a>
+
+按BC窜出去就可以结束</blockquote>
+不是最速BC的话还是可以D的，而且BC的资源消费有点高
+
+

@@ -8038,3 +8038,74 @@ https://itest.5ch.net/fate/test/read.cgi/lovelive/1633230737
 这位国人原画之前主要负责live部分的，这集也参与了，就是说可能有live？<img src="https://p.sda1.dev/2/f4ba3f3c0ab8ae56a74068e3f92e9cc0/IMG_CMP_227373166.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 615#       发表于 2021-10-3 17:45
+
+
+花田再犯病也是he结尾，没啥慌的。主要是看他怎么恶心人。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cat1230  
+##### 616#       发表于 2021-10-3 17:57
+
+
+有直播地址吗？想看啊
+
+
+*****
+
+####  普之舜舜  
+##### 617#       发表于 2021-10-3 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981412&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-3 17:57</a>
+有直播地址吗？想看啊</blockquote>
+ https://b23.tv/fXZ9az
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  礼央破流堂  
+##### 618#       发表于 2021-10-3 18:02
+
+
+阿B干什么啊，第4集春音绕着果皇咖啡店招牌躲人的画面有什么好剪的？太奇怪了。
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 619#       发表于 2021-10-3 18:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大姐您还在啊
+
+
+*****
+
+####  qratosone  
+##### 620#       发表于 2021-10-3 18:05
+
+
+草，还真是RAP
+
+
+*****
+
+####  chenflyyy  
+##### 621#       发表于 2021-10-3 18:05
+
+
+草，偶像比rap有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
