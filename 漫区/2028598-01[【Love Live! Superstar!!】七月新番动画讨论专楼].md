@@ -10028,3 +10028,66 @@ check in out作为rap的接头辞有引起别人注意的意思，用来做一�
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 785#       发表于 2021-10-3 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52984049&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-3 21:39</a>
+
+今晚可堇真是赢麻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个字赢
+
+现在去推搜可堇会自动跳出来“尊”“热搜”“结婚”
+
+
+*****
+
+####  qratosone  
+##### 786#       发表于 2021-10-3 21:52
+
+
+草，这集果然神回，字幕组现在就出来了
+
+
+*****
+
+####  lj205  
+##### 787#       发表于 2021-10-3 21:59
+
+
+……超级鸡血
+
+
+*****
+
+####  ayara  
+##### 788#       发表于 2021-10-3 22:03
+
+
+可香还没有输！只要飞机追起来，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 789#       发表于 2021-10-3 22:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">原来9点半就出熟肉了，字幕组你好强大！
+
+
+*****
+
+####  蔵女  
+##### 790#       发表于 2021-10-3 22:06
+
+
+事实证明样板戏不一定不好看，关键还是看谁演
+
+可可作为剧情工具人实在是太好用了，观感节奏一下子就上来了
+
+

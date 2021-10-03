@@ -17505,3 +17505,25 @@ sao联动，合体秘奥义
 洛的配音不就是桐人的配音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  makar0601  
+##### 5789#       发表于 2021-10-3 21:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">对toar的宽容能不能分一半给别的游戏
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ff2077  
+##### 5790#       发表于 2021-10-3 22:00
+
+
+这价格<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 两个皮肤加个新奥义一百块钱
+
+
