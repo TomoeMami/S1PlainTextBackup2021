@@ -12863,3 +12863,21 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 棒读？我只觉得很亲切，和我自己打电话的语气一模一样
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 1005#       发表于 2021-10-5 02:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52996876&amp;ptid=2028598" target="_blank">亚瑟邓特 发表于 2021-10-5 00:44</a>
+
+第一步，硬纸板剪裁搭个架子 
+
+第二步，涂上白乳胶，用水稀释过的 
+
+第三步，粘面巾纸 等干透后变得和石头一 ...</blockquote>
+好耳熟，这是小神龙俱乐部还是艺术创想里面的常见台词来着？
+
+
