@@ -11487,3 +11487,27 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 还不如吃可恋假药.
 
 
+
+
+*****
+
+####  kimibsb  
+##### 903#       发表于 2021-10-4 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988222&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-4 11:13</a>
+草被你说中了没打空格
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+你直接搜love就行 干扰资源很少的
+
+
+*****
+
+####  x分裂者  
+##### 904#       发表于 2021-10-4 11:38
+
+
+这集还嫌弃的话我都不清楚是拿什么标准看拉拉的了，love wing bell和未熟dreamer大概也就这水准。
+
+
