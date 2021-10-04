@@ -12602,3 +12602,82 @@ lyy老师依然是坚定的可香党<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">原来前面迫害黄毛是为了这集发糖
 
 
+
+
+*****
+
+####  寒风夜  
+##### 987#       发表于 2021-10-4 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52994786&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-4 21:30</a>
+
+因为这个人是隔壁爱马仕的（
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+前 川 未 来
+
+
+*****
+
+####  寒风夜  
+##### 988#       发表于 2021-10-4 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52994786&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-4 21:30</a>
+
+因为这个人是隔壁爱马仕的（
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+
+
+*****
+
+####  lj205  
+##### 989#       发表于 2021-10-4 21:50
+
+
+可可打电话说的lovelive 完全是日语发音啊
+
+
+*****
+
+####  cybernetics31  
+##### 990#       发表于 2021-10-4 21:53
+
+
+青山之前又是拍微电影又是选美的，就是冲着演艺圈去的啊。中之人浓度啥的无所谓啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我倒希望她别再搞那些阴间tiktok 视频了
+
+
+
+
+*****
+
+####  qratosone  
+##### 991#       发表于 2021-10-4 21:54
+
+
+ 本帖最后由 qratosone 于 2021-10-4 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992506&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-4 18:36</a>
+墙外就算了，毕竟我一般就只是去上推看看同人图，正常也不会看到什么建政内容（也看不太懂）
+主要是墙内 ...</blockquote>
+LL的五学梗跟鲤鱼自己没啥关系。比如第四集的西冰库二创就是主要针对民警绑架香哥哥那段，跟可可和鲤鱼都没有关系。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 992#       发表于 2021-10-4 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992999&amp;ptid=2028598" target="_blank">welcom 发表于 2021-10-4 19:09</a>
+我是觉得开头有5人试着RAP自我介绍就够了.......</blockquote>
+应该还是要一定程度上改歌曲创作，不然很难刷人
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

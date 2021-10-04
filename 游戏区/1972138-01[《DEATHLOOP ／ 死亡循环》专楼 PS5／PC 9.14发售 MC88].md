@@ -7356,3 +7356,22 @@ PC小更新了几次，只要你显存不爆炸基本没什么跳出，一些小
 [https://www.bilibili.com/read/cv13173369](https://www.bilibili.com/read/cv13173369)
 
 
+
+
+*****
+
+####  JoelBirch  
+##### 616#       发表于 2021-10-4 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52983020&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-3 20:18</a>
+不小心看到攻略才告诉我查理不能杀，为了瞬移石板我第一件事就是去杀查理，有点遗憾
+
+然后查理那个黑 ...</blockquote>
+这才是沉浸式模拟啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+黑客任务是你上传之后，会显示三个地点，在弗兰克俱乐部的顶端，去把天线打开然后守好点杀刷出来的怪，别让把天线打坏了，等绿灯亮一圈就算完成了，然后下个循环中午去查理那边找机器人，有新活儿
+
+查理也没啥不能杀的，你决定啥时候要通关了，在那个循环不杀就行，瞬移还是很实用的，优先拿没毛病
+
+
