@@ -12523,3 +12523,29 @@ lyy老师依然是坚定的可香党<img src="https://static.saraba1st.com/image
 中之人二次元浓度这个无所谓的，当初小宫生放连jojo梗都没听懂，并不影响她靠谱
 
 
+
+
+*****
+
+####  dozen  
+##### 981#       发表于 2021-10-4 19:45
+
+
+看完这话觉得堇果然还是能继承矢泽系谱的人气的
+
+就是上面聊rap让我想到了，选堇当c是因为她出色的即兴演出能力，但这和预选live是不是毫无关系()
+
+
+*****
+
+####  ads147147  
+##### 982#       发表于 2021-10-4 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52993079&amp;ptid=2028598" target="_blank">NODY 发表于 2021-10-4 19:15</a>
+中之人二次元浓度这个无所谓的，当初小宫生放连jojo梗都没听懂，并不影响她靠谱 ...</blockquote>
+特摄日常被开除二次元（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
