@@ -12083,3 +12083,19 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 947#       发表于 2021-10-4 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990384&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 14:44</a>
+
+这次要是翻车不是堇的问题
+
+是作词和作曲的问题，主题没找好是恋和香音两个人的责任，而最主要的问题就在于 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">不是阿堇的锅那不就更怪了吗，不是她的锅还要被流弹波及初C，完全没必要啊。下一首也是香音作词啊，下一次翻不行吗？课题是歌里有RAP就行，不用整首都是RAP啊，阿堇开头的一段独唱就是
+
+
