@@ -11985,3 +11985,35 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 不可能翻车的，要翻也不可能翻在这首歌上，地区预选罢了，哪怕下一轮再翻不行吗？没有任何理由给堇的首次华丽舞台抹黑的，这么干完全不符合逻辑，lovelive系列剧本从来不喜欢搞这种恶意的意外的
 
 
+
+
+*****
+
+####  qratosone  
+##### 940#       发表于 2021-10-4 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52986896&amp;ptid=2028598" target="_blank">liu461 发表于 2021-10-4 08:34</a>
+1-3集 和 第10集 剧情的推动者是可可
+
+观看马上就支棱起来了。
+
+加农就像是卢带鱼，可可就是小将，要能推动还 ...</blockquote>
+可可是十分单纯的，只为了学园偶像而生
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 941#       发表于 2021-10-4 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988964&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-4 12:16</a>
+假设她说的是真的，这季没有回国的剧情，那这也是一种剧透吗？</blockquote>
+这个时候第二季动画的企划案估计已经开始弄了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
