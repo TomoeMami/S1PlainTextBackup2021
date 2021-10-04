@@ -12211,3 +12211,18 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 反而在同学觉得歌曲很好但不应让堇当 C 位的情况下翻车，会出现同学间对堇的闲言闲语，那时便真的把 “霸凌” 上升至学校级别。
 
 
+
+
+*****
+
+####  qratosone  
+##### 957#       发表于 2021-10-4 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990789&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 15:30</a>
+但我记得是没作曲的直接淘汰，也不是说作曲的就成功晋级啊，比赛难道不是没作曲的淘汰，作曲的在从作曲中 ...</blockquote>
+实际上有完整的独立创作能力的团队不可能有那么多，一个课题足够刷掉大部分纯玩票性质的队伍了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
