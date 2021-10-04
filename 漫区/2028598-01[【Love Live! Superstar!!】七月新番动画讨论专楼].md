@@ -12183,3 +12183,31 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 说白了就是一句话，经验太少。
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 955#       发表于 2021-10-4 16:51
+
+
+草，你这是想让可可立即被驱逐出境吗？
+
+<img src="http://wx4.sinaimg.cn/mw690/005FMP70gy1gv3ava1pfij60k60figrt02.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gooddays  
+##### 956#       发表于 2021-10-4 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990384&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 14:44</a>
+这次要是翻车不是堇的问题
+
+是作词和作曲的问题，主题没找好是恋和香音两个人的责任，而最主要的问题就在于 ...</blockquote>
+第十话描写这首歌受到四周人士好评，那些人很大可能便是同学，她们唯一意见便是不要让堇当 C 位。在受到众多人士称讚的情况下翻车便等于学校一起翻了，这真没有可能。
+
+反而在同学觉得歌曲很好但不应让堇当 C 位的情况下翻车，会出现同学间对堇的闲言闲语，那时便真的把 “霸凌” 上升至学校级别。
+
+
