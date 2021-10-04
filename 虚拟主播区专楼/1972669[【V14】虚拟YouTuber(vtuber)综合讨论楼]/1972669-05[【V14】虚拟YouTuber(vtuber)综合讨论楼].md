@@ -19564,3 +19564,83 @@ sanya被放上了广告牌还行，葛叶这下新衣服不得不公布了吧<im
 星川延续最协的好状态，属实进化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 7417#       发表于 2021-10-4 21:12
+
+
+[https://twitter.com/nijisanji_app/status/1444875436740259843](https://twitter.com/nijisanji_app/status/1444875436740259843)
+
+【カバーソングアルバム『Reflexion』発売決定！本日予約開始！】
+
+
+にじさんじカバーソングアルバム『Reflexion』（11月24日(水)発売）、本日10/4(月)より各店頭・オンラインストアにて販売予約開始！
+
+
+ライバー13名が登場 &amp; 特典情報 &amp; ジャケット公開！
+
+
+詳細▽
+[https://prtimes.jp/main/html/rd/p/000000325.000030865.html](https://prtimes.jp/main/html/rd/p/000000325.000030865.html)…
+
+
+「Reflexion」収録曲
+
+M1：キミがいる（魔使マオ）
+
+M2：浮世CROSSING（不破湊）
+
+M3：secret base ～君がくれたもの～（椎名唯華）
+
+M4：Can You Keep A Secret?（白雪巴）
+
+M5：What You Want（朝日南アカネ）
+
+M6：太陽は沈まない（ジョー・力一）
+
+M7：POISON～言いたい事も言えないこんな世の中は～（花畑チャイカ）
+
+M8：LOVE&amp;JOY（笹木咲）
+
+M9：恋におちたら（鈴鹿詩子）
+
+M10：何度でも（ニュイ・ソシエール）
+
+M11：やさしくなりたい（夢追翔）
+
+M12：空も飛べるはず（緑仙）
+
+M13：Time goes by（文野環）
+
+
+*****
+
+####  FCCHua  
+##### 7418#       发表于 2021-10-4 21:16
+
+
+琥珀居然会冲银盾，感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 7419#       发表于 2021-10-4 21:19
+
+
+<img src="https://img.saraba1st.com/forum/202110/04/211845fjdnsakttka2aql8.png" referrerpolicy="no-referrer">
+
+
+<strong>キョウカ.png</strong> (97.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-4 21:18 上传
+
+
+这下真成叶师傅兄弟了
+
+
