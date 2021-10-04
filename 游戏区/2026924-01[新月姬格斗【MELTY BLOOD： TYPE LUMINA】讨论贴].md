@@ -3918,3 +3918,17 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 pc版网络好像有问题，我ps打日本人都挺流畅的，买了pc版的朋友一直吐槽掉线，排上人也ppt
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 319#       发表于 2021-10-5 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52996834&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2021-10-5 00:39</a>
+
+pc版网络好像有问题，我ps打日本人都挺流畅的，买了pc版的朋友一直吐槽掉线，排上人也ppt ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">帮我测试网络的几位网友互联一点都不卡
+
+
