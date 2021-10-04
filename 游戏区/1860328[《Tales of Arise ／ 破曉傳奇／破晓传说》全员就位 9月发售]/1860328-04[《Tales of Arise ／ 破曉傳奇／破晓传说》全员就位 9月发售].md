@@ -17889,3 +17889,18 @@ toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游�
 追加的奸夫淫 妇boss依然打不出硬直<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  4ckc  
+##### 5818#       发表于 2021-10-4 09:58
+
+
+打到OP2出来了
+就怎么说呢...这游戏绝对是腰斩了吧，我的感觉是现在的内容量最多是原来规划的一半多一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这游戏的很多问题恐怕都是由此造成的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
