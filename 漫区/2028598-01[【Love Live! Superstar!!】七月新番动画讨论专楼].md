@@ -12681,3 +12681,34 @@ LL的五学梗跟鲤鱼自己没啥关系。比如第四集的西冰库二创就
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  lj205  
+##### 993#       发表于 2021-10-4 22:09
+
+
+BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无人场真感慨，希望1st能顺利
+
+
+*****
+
+####  CharlieZ-  
+##### 994#       发表于 2021-10-4 22:10
+
+
+这集好评应该能有个85-88
+
+
+*****
+
+####  猫睛石  
+##### 995#       发表于 2021-10-4 22:24
+
+
+这集真好看，果然可可那种坚定气场好棒啊，看她在台阶上大声宣布可可反对那幕就感觉心动都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+还有民警害羞纠结可可叫自己名字了，可可也不羞涩也不否认就一句“这种小事都无所谓”，也太飒了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不愧是塔塔开jk
+
+

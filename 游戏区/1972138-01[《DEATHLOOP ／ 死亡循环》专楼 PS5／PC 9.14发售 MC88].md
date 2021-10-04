@@ -7375,3 +7375,29 @@ PC小更新了几次，只要你显存不爆炸基本没什么跳出，一些小
 查理也没啥不能杀的，你决定啥时候要通关了，在那个循环不杀就行，瞬移还是很实用的，优先拿没毛病
 
 
+
+
+*****
+
+####  moimoi  
+##### 617#       发表于 2021-10-4 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52995050&amp;ptid=1972138" target="_blank">JoelBirch 发表于 2021-10-4 21:55</a>
+
+这才是沉浸式模拟啊
+
+
+黑客任务是你上传之后，会显示三个地点对应天线位置，在弗兰克俱乐部的顶端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">谢谢，我找到了黑客的电脑，也找到了三个天线，对着天线打了半天都不知道干嘛的，但是没能打开，是要用用无线电入侵吗？
+
+
+*****
+
+####  moimoi  
+##### 618#       发表于 2021-10-4 22:26
+
+
+今天太憋屈了，那个艺术家的基地也太tm坑人了，直接整个岛都炸没了，我那些还没灌注的装备啊！！好狠的女人！！之前好像看到了楼里有说解决方式，我故意跳过去没看，现在见识到了厉害，还是打算继续摸索一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
