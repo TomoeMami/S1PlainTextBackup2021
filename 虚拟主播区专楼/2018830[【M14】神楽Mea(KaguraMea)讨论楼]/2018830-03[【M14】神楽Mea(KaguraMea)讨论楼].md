@@ -4674,3 +4674,18 @@ TC<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrer
 又在推销衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是在弄签名啊
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 3412#       发表于 2021-10-4 10:36
+
+
+ 本帖最后由 时间在我手中 于 2021-10-4 10:44 编辑 
+
+肥婆人生第一次对别人说不用找零了，觉得自己很帅气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+签名签完了，准备run的样子
+
+
