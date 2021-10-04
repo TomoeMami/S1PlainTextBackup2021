@@ -5021,3 +5021,25 @@ Nya~
 今天好多老歌
 
 
+
+
+*****
+
+####  aisakahammer  
+##### 3443#       发表于 2021-10-4 19:10
+
+
+ 这怪物唱的还不错好吧
+
+
+*****
+
+####  T_Hb  
+##### 3444#       发表于 2021-10-4 19:16
+
+
+ 本帖最后由 T_Hb 于 2021-10-4 19:17 编辑 
+
+ハルジオン被封印了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

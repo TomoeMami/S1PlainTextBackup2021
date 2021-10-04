@@ -12500,3 +12500,26 @@ lyy老师依然是坚定的可香党<img src="https://static.saraba1st.com/image
 主要是墙内这个圈子的也对建政乐此不疲，天天玩五学，江江梗这些，虽然很多只是小鬼而已，可能没多少恶意，只是觉得刷着好玩，但看到还是会感到不适（江又不是正面好梗），更有甚者还有人经常在鲤鱼的评论区和直播刷，她又不太懂这些，哪天被别有用心的人钓鱼到那真的会很麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  welcom  
+##### 979#       发表于 2021-10-4 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992300&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-4 18:16</a>
+
+而且还有一点，在Rap这个主题上纠缠太多本身就是一种作死行为，剧里剧外都是这样。你现在说Rap浓度不够就 ...</blockquote>
+我是觉得开头有5人试着RAP自我介绍就够了.......
+
+
+*****
+
+####  NODY  
+##### 980#       发表于 2021-10-4 19:15
+
+
+中之人二次元浓度这个无所谓的，当初小宫生放连jojo梗都没听懂，并不影响她靠谱
+
+
