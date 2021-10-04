@@ -9575,3 +9575,29 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  reficul  
+##### 2199#       发表于 2021-10-4 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52989980&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-10-4 14:01</a>
+
+为什么会长会知道没有那个枕头会睡不着
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4. ...</blockquote>
+运动系社团的合宿吧
+
+
+*****
+
+####  reficul  
+##### 2200#       发表于 2021-10-4 17:44
+
+
+是逃票Q娃
+
+

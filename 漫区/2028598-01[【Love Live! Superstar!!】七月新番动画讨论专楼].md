@@ -12303,3 +12303,51 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  fange  
+##### 964#       发表于 2021-10-4 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991999&amp;ptid=2028598" target="_blank">roy1996 发表于 2021-10-4 17:41</a></blockquote>
+是鲤鱼故意让编剧这样的么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 965#       发表于 2021-10-4 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992051&amp;ptid=2028598" target="_blank">fange 发表于 2021-10-4 17:47</a>
+是鲤鱼故意让编剧这样的么</blockquote>
+正常用脑子想就知道怎么可能。
+
+从B站直播就能看出来鲤鱼完全不懂政治梗。
+经常被别有用心的弹幕钓鱼。
+
+
+*****
+
+####  ads147147  
+##### 966#       发表于 2021-10-4 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991203&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-4 16:12</a>
+青山没有训练也没天生的天赋，我关注她好久了，即便是二次元浓度她也是队内较低的，或许连看动画的经验也 ...</blockquote>
+其实听她配音像是听痞子配起风了，不是不能听，就是感觉不是看画上的人，而是里头的那个
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  蔵女  
+##### 967#       发表于 2021-10-4 17:55
+
+
+这会不会有点钦定啊感觉23333b站绝对会改字幕
+
+

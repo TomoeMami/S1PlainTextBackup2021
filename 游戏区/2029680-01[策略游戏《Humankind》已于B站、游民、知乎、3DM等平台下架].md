@@ -2624,3 +2624,16 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 218#       发表于 2021-10-4 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52972816&amp;ptid=2029680" target="_blank">sjbssd 发表于 2021-10-2 18:09</a>
+说回游戏本身，本文明战狂一开心烧掉整个大陆大部分城市，这游戏这方面不行，已经很久没玩了 ...</blockquote>
+想体验比较成熟的早战还是玩P社吧我觉得...文明玩成野蛮感觉并不是他们最初开发时的目标
+
+
