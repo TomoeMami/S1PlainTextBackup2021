@@ -4945,3 +4945,41 @@ Nya~
 今天绝赞啊，可能歌难度也低一点
 
 
+
+
+*****
+
+####  Rem-清曲  
+##### 3435#       发表于 2021-10-4 18:30
+
+
+主播虚弱后又buff是吧 状态这么顶 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3436#       发表于 2021-10-4 18:32
+
+
+还有一针，下次可以论证一下
+
+
+*****
+
+####  时间在我手中  
+##### 3437#       发表于 2021-10-4 18:33
+
+
+唱出一身汗被人黑屁肉厚的肥婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3438#       发表于 2021-10-4 18:38
+
+
+​くしゃみ助かる*2
+
+

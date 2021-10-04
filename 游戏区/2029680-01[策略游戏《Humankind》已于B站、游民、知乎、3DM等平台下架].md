@@ -2637,3 +2637,20 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 想体验比较成熟的早战还是玩P社吧我觉得...文明玩成野蛮感觉并不是他们最初开发时的目标
 
 
+
+
+*****
+
+####  pf67  
+##### 219#       发表于 2021-10-4 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991873&amp;ptid=2029680" target="_blank">EdwardFrost 发表于 2021-10-4 17:27</a>
+
+不错，坛友们的觉悟越来越高了。不必解释，坛友自己就能找到到理由了
+
+
+  -- 来自 能手机投票的 Stag ...</blockquote>
+反正也重来没解释过嘛，找不找理由只会影响你的心情而不会影响事情的进展
+
+
