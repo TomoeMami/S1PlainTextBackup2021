@@ -7401,3 +7401,17 @@ PC小更新了几次，只要你显存不爆炸基本没什么跳出，一些小
 今天太憋屈了，那个艺术家的基地也太tm坑人了，直接整个岛都炸没了，我那些还没灌注的装备啊！！好狠的女人！！之前好像看到了楼里有说解决方式，我故意跳过去没看，现在见识到了厉害，还是打算继续摸索一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  JoelBirch  
+##### 619#       发表于 2021-10-5 00:28
+
+
+ 本帖最后由 JoelBirch 于 2021-10-5 00:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52995418&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-4 22:23</a>
+谢谢，我找到了黑客的电脑，也找到了三个天线，对着天线打了半天都不知道干嘛的，但是没能打开， ...</blockquote>
+忘了，应该是用无线电的，不过这个好像也是三个里随机两个有效
+
+

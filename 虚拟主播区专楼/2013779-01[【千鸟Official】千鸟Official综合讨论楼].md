@@ -5322,3 +5322,20 @@ co宝三天巨龙的时候很入脑，然后就摸了<img src="https://static.sa
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">艾瑞思厨娘也是不可替代的
 
 
+
+
+*****
+
+####  tankai  
+##### 469#       发表于 2021-10-5 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52996628&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-5 00:15</a>
+
+稍微看了一下其他四个，也就艾白装傻子有点识别度，其他几个的营业路线可替代性太高了。 ...</blockquote>
+V不可以没有成长性,包括文静也是.哪怕就一点点成长,你的粉丝也会欢欣鼓舞.
+
+
+昨天突击文静也说了希望队友能支楞起来.
+
+

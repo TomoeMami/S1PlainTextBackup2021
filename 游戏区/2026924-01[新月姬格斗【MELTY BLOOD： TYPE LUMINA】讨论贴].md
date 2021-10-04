@@ -3905,3 +3905,16 @@ win7破电脑玩不了，xaudio2_9dll报错，装dx11也没用，烦躁
 难道是因为我用的win7系统？实在想不出原因了
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 318#       发表于 2021-10-5 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52996658&amp;ptid=2026924" target="_blank">ロラン・ローラ 发表于 2021-10-5 00:18</a>
+和同城的联机，只有两格信号，把别人卡成PPT，一直回滚，我自己倒是丝滑，测ping值又只有5ms左右。和另外两 ...</blockquote>
+pc版网络好像有问题，我ps打日本人都挺流畅的，买了pc版的朋友一直吐槽掉线，排上人也ppt
+
+
