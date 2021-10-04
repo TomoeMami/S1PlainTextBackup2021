@@ -2704,3 +2704,17 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 一句话，别想了。还不满？谢恩吧。
 
 
+
+
+*****
+
+####  zhangqq_008  
+##### 223#       发表于 2021-10-4 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52993346&amp;ptid=2029680" target="_blank">sjbssd 发表于 2021-10-4 19:35</a>
+席德梅尔不让玩家完成野蛮倒也不是，不然也不会有那么多天赋就是战争的文明、宗教信条，还有后期那么多种 ...</blockquote>
+品评得很到位
+建议去宣传部上班<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
