@@ -11745,3 +11745,78 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 2021-10-4 13:17 上传
 
 
+
+
+*****
+
+####  kata魂  
+##### 924#       发表于 2021-10-4 13:50
+
+
+感觉机场回也不是不能做
+
+这次的主题是rap，结尾也没有公布晋级名单，很有可能直接翻车了
+
+不是因为歌不好，而是有其他更符合主题的团体
+
+这样11集后半段就可以接上了
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 925#       发表于 2021-10-4 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52989882&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 13:50</a>
+
+感觉机场回也不是不能做
+
+这次的主题是rap，结尾也没有公布晋级名单，很有可能直接翻车了
+
+不是因为歌不好， ...</blockquote>
+下集预告，五个人站黑板前，可可不好意思的摸着后脑勺，应该就是出成绩了向同学通报
+
+
+*****
+
+####  kata魂  
+##### 926#       发表于 2021-10-4 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52989937&amp;ptid=2028598" target="_blank">Pumpkin_ccc 发表于 2021-10-4 13:56</a>
+
+下集预告，五个人站黑板前，可可不好意思的摸着后脑勺，应该就是出成绩了向同学通报 ...</blockquote>
+万一只是普通的庆功会呢，因为表演确实出彩，大家觉得稳赢（然后八强了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 927#       发表于 2021-10-4 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52987781&amp;ptid=2028598" target="_blank">plazum 发表于 2021-10-4 10:26</a>
+
+因为看之前看到了太多人吹，结果预期过度拔高了
+
+但是即使不考虑这一点，这一集我也是不满意的
+
+几乎从头到尾 ...</blockquote>
+你以为staff表里协力的菜宝是干啥的，不就是为了让鲤鱼了解监督需要她配的日语像是初来乍到日本所说日语的语调以及能让日本人接受得了中文语调
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 928#       发表于 2021-10-4 14:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52989974&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 14:00</a>
+
+万一只是普通的庆功会呢，因为表演确实出彩，大家觉得稳赢（然后八强了）
+
+ ...</blockquote>
+被你这么一说我担心起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
