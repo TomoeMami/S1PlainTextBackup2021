@@ -9562,3 +9562,16 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2198#       发表于 2021-10-4 14:01
+
+
+为什么会长会知道没有那个枕头会睡不着
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
