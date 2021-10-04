@@ -12712,3 +12712,27 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 还有民警害羞纠结可可叫自己名字了，可可也不羞涩也不否认就一句“这种小事都无所谓”，也太飒了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不愧是塔塔开jk
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 996#       发表于 2021-10-4 22:32
+
+
+做星团鬼畜中，感觉星团有些地方挺适合整活的，可惜自己技术力不够，做视频太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  普之舜舜  
+##### 997#       发表于 2021-10-4 22:34
+
+
+看了银狼那些吐槽 人家才叫专业的，看着自己做的星团杂谈，不能看呀<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">还是要多多学习中
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

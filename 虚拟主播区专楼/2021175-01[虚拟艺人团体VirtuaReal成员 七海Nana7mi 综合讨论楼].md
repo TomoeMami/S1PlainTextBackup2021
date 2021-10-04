@@ -3273,3 +3273,14 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 —— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  伞沢直美  
+##### 254#       发表于 2021-10-4 22:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在锤子新衣回连麦
+
+

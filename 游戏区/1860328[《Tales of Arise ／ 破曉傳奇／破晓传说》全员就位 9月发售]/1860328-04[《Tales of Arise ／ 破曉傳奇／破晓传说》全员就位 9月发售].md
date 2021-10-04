@@ -17966,3 +17966,27 @@ CV联动最早那是keroro军曹吧233
 cv梗不如说是传说最爱玩的，明日铃有两套，朱雀和haseo，都是考哥
 
 
+
+
+*****
+
+####  pf67  
+##### 5824#       发表于 2021-10-4 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52987712&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-10-4 10:18</a>
+来看看几个贵物</blockquote>
+我想起泥潭那个xb2 几小时没打过灭的楼主
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hypnossz86  
+##### 5825#       发表于 2021-10-4 22:48
+
+
+那么，希农能给个光焰的联动服装吗（
+
+
