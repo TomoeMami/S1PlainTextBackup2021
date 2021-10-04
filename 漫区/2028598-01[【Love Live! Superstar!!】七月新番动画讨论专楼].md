@@ -12351,3 +12351,111 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 这会不会有点钦定啊感觉23333b站绝对会改字幕
 
 
+
+
+*****
+
+####  fange  
+##### 968#       发表于 2021-10-4 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992085&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-4 17:50</a>
+
+正常用脑子想就知道怎么可能。
+
+
+从B站直播就能看出来鲤鱼完全不懂政治梗。</blockquote>
+只能说巧合了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 969#       发表于 2021-10-4 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991203&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-4 16:12</a>
+青山没有训练也没天生的天赋，我关注她好久了，即便是二次元浓度她也是队内较低的，或许连看动画的经验也 ...</blockquote>
+哪里看得出她对二次元有兴趣了，不是完全的jd现充模板么，还参加过选美，感觉她对综艺到是很懂，没爱生活直接去演艺圈也不奇怪。
+
+说不定还真能在星不忙的时候和小宫一样去特摄片场晃荡。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 970#       发表于 2021-10-4 18:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还不如说写台词的人是键政小鬼。不过说起来，这话出了以后，推特里的日本键政小鬼发言又多了起来，p站早上还看到了几张键政图不知道现在被橄榄了没
+
+
+*****
+
+####  cat1230  
+##### 971#       发表于 2021-10-4 18:14
+
+
+青山在LL出道之前完全和二次元没啥关系吧，其他3个人有多少2次元浓度不大清楚，鲤鱼应该是很浓的了，哪怕放眼整个LL企划都是2次元浓度拍前的。
+
+
+*****
+
+####  qratosone  
+##### 972#       发表于 2021-10-4 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990789&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 15:30</a>
+但我记得是没作曲的直接淘汰，也不是说作曲的就成功晋级啊，比赛难道不是没作曲的淘汰，作曲的在从作曲中 ...</blockquote>
+而且还有一点，在Rap这个主题上纠缠太多本身就是一种作死行为，剧里剧外都是这样。你现在说Rap浓度不够就要淘汰，那就说明你要求原教旨的Rap，那么美国倪哥的原教旨Rap长啥样呢？你要一群未成年的在校学生唱原教旨Rap，那你是想干啥呢？要传达一种怎么样的价值取向呢？你这是嫌PTA提不动刀了？
+尤其是戏外LLSP动画还是在NHK教育频道上放的——普通的Rap元素和原教旨Rap根本不是一个层次的概念，你要是真的跟原教旨Rap纠缠太深的话恐怕电视台直接就不让你播了…
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 973#       发表于 2021-10-4 18:19
+
+
+星团这个企划，不管是日本中国还是英文圈，键政浓度都相当浓厚，真的难顶<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 974#       发表于 2021-10-4 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992243&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-4 18:09</a>
+哪里看得出她对二次元有兴趣了，不是完全的jd现充模板么，还参加过选美，感觉她对综艺到是很懂，没爱生活 ...</blockquote>
+至少看访谈她之前还是了解过ll的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">真没一点兴趣也不回来参加选拔了
+
+
+*****
+
+####  chenflyyy  
+##### 975#       发表于 2021-10-4 18:24
+
+
+lyy老师依然是坚定的可香党<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 976#       发表于 2021-10-4 18:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992321&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-4 18:19</a>
+星团这个企划，不管是日本中国还是英文圈，键政浓度都相当浓厚，真的难顶 ...</blockquote>
+唐可可+鲤鱼的出身在墙外就避免不了建政。
+更何况这次唐可可这个角色的外国人属性拉满了。
+可不是像之前那种会一句哈拉哨就是外国人了。
+如果唐可可找个会说中文的日本人来配节奏还能小点
+只能说日本资本家还是有点胆量的。
+
+
