@@ -12736,3 +12736,85 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  wxc060302  
+##### 998#       发表于 2021-10-4 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52981901&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-3 18:46</a>
+小千这一段是真的色</blockquote>
+第一时间想到了这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/b46036de713a6afbded51ea987917546/IMG_CMP_171430980.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/1424df7f18ea72d45a63287df03cd672/IMG_CMP_182319745.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 999#       发表于 2021-10-4 23:36
+
+
+ 本帖最后由 qratosone 于 2021-10-4 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991165&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-10-4 16:07</a>
+
+民警这次是地区预选赛，肯定不会翻车的，我们说的是之后的比赛翻不翻。 ...</blockquote>
+我觉得以LL的设定，之后的比赛因为失败而翻车的可能性也不大。因为LL本身有非常明确的成长性展现——在LL的设定里，一个完全体的主角团队是无敌的，如果不赢的话要么是内部自爆直接退出，要么是至少要取得一个足够高的站位。初代第一季的Live失败是果皇自己翻车，而且甚至都不是正式比赛，第二季的正式比赛里缪从头一路杀到尾根本就没输过。LLSS第一季里水水初次上洛惨败是因为团队实力不完整，缺少新歌，后来南黛鞠加入之后第一季结尾就直接冲到了决赛——这说明完全体的团队就算没拿冠军，也是只差临门一脚了。
+
+
+现在星团已经是个完全体的团队了，几乎没有成长空间了，而且本身初始能力就远远高于前两代。那么接下来要么一路杀过去直接拿到冠军，要么至少冲到决赛，显然星团目前加上第二季的篇幅远远不足以表现“第一次冲到决赛然后战败，再来一次才取胜”的过程。当然还有一种可能就是剩下的两集香音自己的问题爆雷，结果导致团队直接放弃掉比赛机会（参照初代果皇翻车），这样就在初期阶段强行结束了第一次参赛，并且避开了实力问题，然后第二季直接进入第二次参赛就可以了。
+
+
+所以这样下来其实就两种可能：
+
+1、这次晋级成功，然后香音爆雷（或者可可回国等其他主线剧情）直接放弃掉第一次参赛，解决香音问题之后第二季从头打到尾夺冠；
+
+2、还是这次晋级成功，主线剧情继续进展，在第二场比赛之前解决问题，第一季结尾安排第二场比赛——然后设定因为参赛队伍太多导致赛制加长，第二季继续一场一场打下去获胜。
+
+
+*****
+
+####  凡人  
+##### 1000#       发表于 2021-10-4 23:38
+
+
+星一年级就决赛，那后面不是连亚就是连冠，哪个都不太合适吧
+
+
+*****
+
+####  Piano-Forest  
+##### 1001#       发表于 2021-10-4 23:41
+
+
+[https://twitter.com/noisyu522/status/1444694752889171975](https://twitter.com/noisyu522/status/1444694752889171975)
+<img src="https://p.sda1.dev/2/d607df2cf22fe152ed7cedcc7692d3a8/20211004_233711.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/egakineco/status/1444990445394620416](https://twitter.com/egakineco/status/1444990445394620416)
+<img src="https://p.sda1.dev/2/0487ea2d91fdb1136ba3f71e1438a32d/20211004_233902.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/SwyQ6/status/1443489845205078017](https://twitter.com/SwyQ6/status/1443489845205078017)
+<img src="https://p.sda1.dev/2/2f61be5672afebf462b0bb49c3e760fb/20211004_233955.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/SwyQ6/status/1443874909457842177](https://twitter.com/SwyQ6/status/1443874909457842177)
+<img src="https://p.sda1.dev/2/b8846a4adb07a66f2940775dbb5b6a91/20211004_234001.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/SwyQ6/status/1443909106545278982](https://twitter.com/SwyQ6/status/1443909106545278982)
+<img src="https://p.sda1.dev/2/46d481ca1632140bb7f109ff7e7ed3b5/20211004_234006.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 1002#       发表于 2021-10-4 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52996300&amp;ptid=2028598" target="_blank">凡人 发表于 2021-10-4 23:38</a>
+
+星一年级就决赛，那后面不是连亚就是连冠，哪个都不太合适吧</blockquote>
+其实这个倒是问题不大，现在已经是高一的第二学期了（日本是四月春季学期开学），如果赛制比较长的话就算星团初次直接夺冠，那也要等她们高二的时候才能拿冠军。再开学就高三了，接下来直接不参赛只开Live也是很正常的。
+
+
