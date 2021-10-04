@@ -17940,3 +17940,29 @@ toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游�
 洛竟然也给了一套服装，传说主机系列外部合作作品里这是第一次有同cv联动服装吧，哦，还有猪杀苦，银河美少年联动里蕾雅那套好像也是？
 
 
+
+
+*****
+
+####  火红之眼  
+##### 5822#       发表于 2021-10-4 16:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991311&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-10-4 16:26</a>
+
+洛竟然也给了一套服装，传说主机系列外部合作作品里这是第一次有同cv联动服装吧，哦，还有猪杀苦，银河美少 ...</blockquote>
+CV联动最早那是keroro军曹吧233
+
+
+*****
+
+####  法拉  
+##### 5823#       发表于 2021-10-4 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991311&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-10-4 16:26</a>
+
+洛竟然也给了一套服装，传说主机系列外部合作作品里这是第一次有同cv联动服装吧，哦，还有猪杀苦，银河美少 ...</blockquote>
+cv梗不如说是传说最爱玩的，明日铃有两套，朱雀和haseo，都是考哥
+
+
