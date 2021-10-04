@@ -11511,3 +11511,26 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 这集还嫌弃的话我都不清楚是拿什么标准看拉拉的了，love wing bell和未熟dreamer大概也就这水准。
 
 
+
+
+*****
+
+####  有钱多买小人  
+##### 905#       发表于 2021-10-4 11:50
+
+
+介绍规则的小姐姐（阿姨）从无印就在。水团也有。
+
+<img src="https://p.sda1.dev/2/391101212d63e1fa225962a3f765735b/20211004_124811.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/ea7b36d86eebd4046dc62fe049263a89/20211004_124813.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 906#       发表于 2021-10-4 11:51
+
+
+感觉可可的中文配音有点像崩坏系列早期的琪亚娜
+
+
