@@ -11696,3 +11696,52 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  saya1892  
+##### 921#       发表于 2021-10-4 13:08
+
+
+拉版有一帖「我不信这种金发碧眼身材辣的大美女不起眼」结果下面的人回答：
+
+
+「可能是因为LL的世界女性为主，这些地方对女性来说可能并不是加分项」
+
+「因为LL世界女性为主，大家更注重内面表达，说可可華やか也不是指外表是指性格之类的，堇的个性属于那种同学路过也要绕着走的，所以」
+
+也有人说「佩酱自己在现实里不也差不多这个人设吗，唱功又厉害，演得也不错，还年纪最小，但大家的焦点还是在小百合身上」
+
+还有的答案是「动画里角色头发本来就是五颜六色的，金发没有那么显眼」
+
+
+*****
+
+####  秋月艾莉  
+##### 922#       发表于 2021-10-4 13:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">Nonfiction真好听
+
+阿堇C爆了，成团后第一个真正意义上的C位，Wish Song的时候五人站位是23，到阿堇这就变成V字+32了，加上特别样式的衣装和王冠，待遇一波拉到满中满
+
+
+*****
+
+####  AlfredXC  
+##### 923#       发表于 2021-10-4 13:17
+
+
+[https://twitter.com/_CelticWhite_/status/1444861129629515776](https://twitter.com/_CelticWhite_/status/1444861129629515776)
+
+<img src="https://img.saraba1st.com/forum/202110/04/131748ceb4cizx4b48zbeb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FA0tYHbWYAAs1Cf-orig.jpg</strong> (356.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-4 13:17 上传
+
+
