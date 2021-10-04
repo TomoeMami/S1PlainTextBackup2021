@@ -11397,3 +11397,93 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  JustW  
+##### 898#       发表于 2021-10-4 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988142&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-4 11:05</a>
+
+就是去nyaa没搜到啊，是我进的网址不对么N.10和sns的资源链接在b站被反复和谐
+
+
+—— 来自 HUAWEI  ...</blockquote>
+大马哈鱼
+
+
+*****
+
+####  秋月艾莉  
+##### 899#       发表于 2021-10-4 11:09
+
+
+ 本帖最后由 秋月艾莉 于 2021-10-4 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988142&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-4 11:05</a>
+
+就是去nyaa没搜到啊，是我进的网址不对么N.10和sns的资源链接在b站被反复和谐
+
+
+—— 来自 HUAWEI  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我盲猜一个，你是不是搜的lovelive，你要搜love live，要垫个空格，不然就直接ラブライブ
+
+
+*****
+
+####  Norkey1  
+##### 900#       发表于 2021-10-4 11:10
+
+
+其实日语不是母语还好，我个人还听不太出棒读的，包括比较严重的青山。但是这集那么长一段中文通话，对比国内专业配音演员棒读感一下就出来了，配音新人果然是配音新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但这个企划也不能太苛求。
+觉得尴尬很大一个原因是母语羞涩外加中文棒读感明显。
+
+
+
+
+*****
+
+####  一个陆仁贾  
+##### 901#       发表于 2021-10-4 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988181&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-4 11:09</a>
+我盲猜一个，你是不是搜的lovelive，你要搜love live，要垫个空格，不然就直接ラブライブ ...</blockquote>
+草被你说中了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没打空格
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  型月重工  
+##### 902#       发表于 2021-10-4 11:26
+
+
+只有恋恋悲伤的世界
+
+
+个人回被献祭剧情恶评如潮
+
+角色也没有太吸引人的地方
+
+加上青山的棒读观感就更微妙
+
+关键是最后甚至连个CP都没有
+
+靠卖CP来提升人气这条路也被掐死了
+
+动画最后两集还要解决可可的回国风波
+
+可以确定恋恋这个角色在这季是不会在有主要塑造了。
+
+
+简直后娘养的.
+
+说难听点现阶段有没有这个角色都无伤大雅..
+
+
+还不如吃可恋假药.
+
+
