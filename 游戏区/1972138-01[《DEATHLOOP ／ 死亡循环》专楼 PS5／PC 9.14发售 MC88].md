@@ -7344,3 +7344,15 @@ PC小更新了几次，只要你显存不爆炸基本没什么跳出，一些小
 不能存档唯一的缺点就是不能玩一张地图玩到一半退出游戏，只能抽出完整时间玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  moimoi  
+##### 615#       发表于 2021-10-4 17:22
+
+
+关于bug或者跳出闪退可以参考这个帖子
+[https://www.bilibili.com/read/cv13173369](https://www.bilibili.com/read/cv13173369)
+
+

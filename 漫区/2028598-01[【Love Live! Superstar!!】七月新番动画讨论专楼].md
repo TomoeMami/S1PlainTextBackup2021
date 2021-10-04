@@ -12226,3 +12226,80 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  qratosone  
+##### 958#       发表于 2021-10-4 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990789&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 15:30</a>
+但我记得是没作曲的直接淘汰，也不是说作曲的就成功晋级啊，比赛难道不是没作曲的淘汰，作曲的在从作曲中 ...</blockquote>
+你没搞清楚，课题的目的是初筛，不是判定晋级的标准。通过初筛意味着有上台资格，晋级与否跟课题就关系不大了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  无聊者X  
+##### 959#       发表于 2021-10-4 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991529&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-4 16:51</a>
+草，你这是想让可可立即被驱逐出境吗？</blockquote>
+应该是回不去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SCMR-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑雪姫  
+##### 960#       发表于 2021-10-4 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991898&amp;ptid=2028598" target="_blank">无聊者X 发表于 2021-10-4 17:30</a>
+应该是回不去吧
+
+—— 来自 HUAWEI SCMR-W09, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+但是这么做被发现会被立刻遣返的
+
+
+
+
+*****
+
+####  JustW  
+##### 961#       发表于 2021-10-4 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990059&amp;ptid=2028598" target="_blank">秋开 发表于 2021-10-4 14:10</a>
+
+“挺好哒！” 、“嗯嗯！我加油！我努力！”这段对话总觉得很怪！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我和爹妈定期联络也差不多这样
+
+
+*****
+
+####  roy1996  
+##### 962#       发表于 2021-10-4 17:41
+
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=fa3abd8c0ac2d562f208d0e5d71090f3/43a2a9315c6034a81dddab6d8e134954082376a2.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 963#       发表于 2021-10-4 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991931&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-4 17:33</a>
+但是这么做被发现会被立刻遣返的</blockquote>
+其实可可要待在日本的话解决开销问题应该就行了，香哥哥不如直接让可可当自己家上门女婿
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

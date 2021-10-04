@@ -4857,3 +4857,51 @@ Nya~
 睡不着喝魔爪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 3427#       发表于 2021-10-4 17:23
+
+
+执勤回来，坐在值班室，我是带耳机（几率听不到电台）还是开电脑功放，哪个出事几率低一点
+
+
+*****
+
+####  时间在我手中  
+##### 3428#       发表于 2021-10-4 17:24
+
+
+<img src="https://img.saraba1st.com/forum/202110/04/172353ta9pakoz9akol39a.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (5.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-4 17:23 上传
+
+
+叫的跟被追杀一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3429#       发表于 2021-10-4 17:32
+
+
+3首没拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">示弱有点好
+
+
+*****
+
+####  yywzjsw  
+##### 3430#       发表于 2021-10-4 17:39
+
+
+日了，领导来信息问我在哪
+
+

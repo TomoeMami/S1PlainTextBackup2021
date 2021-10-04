@@ -2611,3 +2611,16 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 说回游戏本身，本文明战狂一开心烧掉整个大陆大部分城市，这游戏这方面不行，已经很久没玩了
 
 
+
+
+*****
+
+####  EdwardFrost  
+##### 217#       发表于 2021-10-4 17:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不错，坛友们的觉悟越来越高了。不必解释，坛友自己就能找到到理由了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
