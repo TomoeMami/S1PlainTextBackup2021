@@ -2685,3 +2685,22 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 细想之下，发现大家这些年对国家的不满，很多都是来自于文化部门的各种封禁、无标准的审核。
 
 
+
+
+*****
+
+####  asdfg  
+##### 222#       发表于 2021-10-4 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52994309&amp;ptid=2029680" target="_blank">showyourass 发表于 2021-10-4 20:48</a>
+
+我对管文化的这帮遗老简直深恶痛绝，之前做的独立游戏因为几个图标就没过审，害我又折腾了大半年，让我感觉 ...</blockquote>
+文化部门是最直接对最上方负责的，错杀顶多就是底下不爽，万一漏了被捅出来or被对手抓住宣传就是重大政治事故<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+何况现在的目标方向是蔚蓝清净的世界，乌七八糟的东西都是污染。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+一句话，别想了。还不满？谢恩吧。
+
+
