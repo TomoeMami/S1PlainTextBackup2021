@@ -17915,3 +17915,17 @@ toar泥潭也有很多骂的，但好歹是玩了，再不济也云过，而游�
 来看看几个贵物<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 5820#         楼主| 发表于 2021-10-4 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52987712&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-10-4 10:18</a>
+
+来看看几个贵物</blockquote>
+我记得两三年前看 NGA 游戏专版（不是综合区）还蛮正常的，怎么现在一谈及 NGA 就是这种画风，两个世界了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+

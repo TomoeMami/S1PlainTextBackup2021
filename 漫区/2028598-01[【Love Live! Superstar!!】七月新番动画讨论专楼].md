@@ -12017,3 +12017,69 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  kbtit  
+##### 942#       发表于 2021-10-4 15:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是别太信任花田比较好，不过要是打我脸的话我也是乐意的
+
+
+*****
+
+####  qratosone  
+##### 943#       发表于 2021-10-4 15:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990058&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-4 14:10</a>
+主要是设定了主题，这个其实是相当可以操作的剧情
+
+我说你赢你就赢，说你输你就输
+
+赢了是因为整体强，输了说 ...</blockquote>
+你没看仔细，不存在“不能覆盖主题”的问题，因为主办方提出课题的目的就是为了刷人，减少上台数量。这次报名的队伍太多，以至于甚至无法让所有队伍都来一遍初赛演出，所以提出课题本身就是为了刷掉纯玩票性质的队伍，而能演出本身就意味着歌曲通过了先行审查
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hqtkkb  
+##### 944#       发表于 2021-10-4 15:28
+
+
+才知道原来会长那集的风评那么差劲，我一直觉得偶像番的剧情逻辑都挺扯所以反而没啥感觉，只觉得正常水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+话说第十集不是说rap吗？结尾那个是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 945#       发表于 2021-10-4 15:30
+
+
+ 本帖最后由 kata魂 于 2021-10-4 15:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990760&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-4 15:26</a>
+
+你没看仔细，不存在“不能覆盖主题”的问题，因为主办方提出课题的目的就是为了刷人，减少上台数量。这次 ...</blockquote>
+但我记得是没作曲的直接淘汰，也不是说作曲的就成功晋级啊，比赛难道不是没作曲的淘汰，作曲的在从作曲中现场表演来决定谁能晋级毕竟谁说别人做不出来的，万一大家都做出来了大家全都晋级不成·····
+
+
+*****
+
+####  ads147147  
+##### 946#       发表于 2021-10-4 15:41
+
+
+说起来，青山这么棒读到底是故意的么，感觉是塑造一本正经的感觉？不过78集里青山这样配就只剩下灾难的错位感，这也是我不喜欢78集的理由。
+
+说起来这两集恋恋戏份也很少，真的惨，人家都四边形了结果自己插不进去。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

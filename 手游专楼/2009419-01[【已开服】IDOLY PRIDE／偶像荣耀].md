@@ -6983,3 +6983,18 @@ mana个人剧情好甜啊，疯狂推妹妹给牧野当女友笑死
 缺乏强力黄卡，2700石就不留着下回用了，出了2张樱。
 
 
+
+
+*****
+
+####  黄昏的轮回  
+##### 502#       发表于 2021-10-4 15:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">挖矿挖了60抽还是没有mana，总之超强辅助樱拿到了也行吧……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">钢针哪有游戏开服半年不到一言不合就上个fes池的啊，我这种性癖抽卡的完全跟不上节奏，新的kokoro也想要结果依然是限定。狠毒。太狠毒了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
