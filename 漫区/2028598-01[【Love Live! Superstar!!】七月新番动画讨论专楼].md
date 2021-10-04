@@ -11534,3 +11534,84 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 感觉可可的中文配音有点像崩坏系列早期的琪亚娜
 
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 907#       发表于 2021-10-4 12:04
+
+
+“我练习的样子，你也偷偷看到了吧，这些我都知道，你的事情我都知道”<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">妈耶
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 908#       发表于 2021-10-4 12:10
+
+
+<img src="https://img.saraba1st.com/forum/202110/04/121028dhzdphzzd3xe3fma.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20211004_120926_tv.danmaku.bili_edit_16002139180890.jpg</strong> (70.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-4 12:10 上传
+
+
+是被官方警告了，还是被私信问烦了
+
+
+*****
+
+####  qratosone  
+##### 909#       发表于 2021-10-4 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988894&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-4 12:10</a>
+
+是被官方警告了，还是被私信问烦了</blockquote>
+估计是问烦了吧，声优肯定不能剧透
+
+
+*****
+
+####  secretgarnet  
+##### 910#       发表于 2021-10-4 12:12
+
+
+<img src="https://img.saraba1st.com/forum/202110/04/121214ug55xp8p8pl2xz5l.png" referrerpolicy="no-referrer">
+
+
+<strong>3.PNG</strong> (42.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-4 12:12 上传
+
+
+这也是装傻吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 911#       发表于 2021-10-4 12:16
+
+
+假设她说的是真的，这季没有回国的剧情，那这也是一种剧透吗？
+
+
+*****
+
+####  武男  
+##### 912#       发表于 2021-10-4 12:19
+
+
+会长，会长的逻辑确实很神棍，艹，怎么突然想起国内那帮学生会了。。。
+
+
