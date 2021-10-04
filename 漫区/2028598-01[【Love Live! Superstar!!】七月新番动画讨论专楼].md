@@ -11673,3 +11673,26 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 对比微博就知道了，微博那里简介还是中国上海人，到了b站就得加个纯字。这次也只在b站发。
 
 
+
+
+*****
+
+####  Blackson  
+##### 919#       发表于 2021-10-4 12:53
+
+
+人红是非多，没办法
+
+
+*****
+
+####  cat1230  
+##### 920#       发表于 2021-10-4 13:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
