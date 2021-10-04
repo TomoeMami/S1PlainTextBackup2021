@@ -12578,3 +12578,27 @@ lyy老师依然是坚定的可香党<img src="https://static.saraba1st.com/image
 逆生长了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 985#       发表于 2021-10-4 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52994314&amp;ptid=2028598" target="_blank">千千千千鸟 发表于 2021-10-4 20:48</a>
+逆生长了属于是</blockquote>
+因为这个人是隔壁爱马仕的（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  nerugigannte  
+##### 986#       发表于 2021-10-4 21:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">原来前面迫害黄毛是为了这集发糖
+
+

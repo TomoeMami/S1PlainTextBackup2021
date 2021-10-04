@@ -1003,3 +1003,17 @@ oled颜色好像过饱和了，ns的游戏应该是基于srgb开发的吧，oled
 友和oled砍单了，有推荐靠谱的香港转运嘛？
 
 
+
+
+*****
+
+####  985604670  
+##### 91#       发表于 2021-10-4 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52930113&amp;ptid=2028204" target="_blank">JoelBirch 发表于 2021-9-28 22:55</a>
+
+这差得也太多了点</blockquote>
+绿屏switch被oled秒杀<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
