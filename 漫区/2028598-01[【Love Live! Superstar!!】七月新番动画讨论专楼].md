@@ -11276,3 +11276,124 @@ liyuu配的很不错了，拿着王冠告白那段确实有点感觉情绪不大
 这话演出够好的，至少能排整个系列前几名，情绪带动的很合理，这还嫌不好我只能呵呵了。
 
 
+
+
+*****
+
+####  寒风夜  
+##### 889#       发表于 2021-10-4 10:50
+
+
+尴尬么  倒没这感觉
+
+
+*****
+
+####  JustW  
+##### 890#       发表于 2021-10-4 10:51
+
+
+尴尬这事儿吧，我觉得把缪水tv看完就治好了（）这集至少花田发挥出了平均水平
+
+
+*****
+
+####  remedios010000  
+##### 891#       发表于 2021-10-4 10:54
+
+
+不是，怎么还有人说可可中文配的不好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  一个陆仁贾  
+##### 892#       发表于 2021-10-4 10:56
+
+
+你们哪里搜的熟肉，我只看到第九集的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  不能摸的屁屁  
+##### 893#       发表于 2021-10-4 10:57
+
+
+附议，演出和人物逻辑完全没毛病
+
+尴尬的可能某些是内容，像昨天逛贴吧就有很多大友先天对rap尴尬，还有吵rap起源的巴拉巴拉
+
+说实话，我也觉得这期的某些“即兴表演”感到有点尬，主要是总联想到一些搞笑选秀海选里的奇葩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+总之就是有些艺术本身自带尬属性，非得很专业才能消除尬感，比如街舞，说唱，poping之类，否则就是不知所云的自嗨了
+
+当然小瑕疵，论尬，尬的过水团一期黛雅吹缪斯？花田传统艺能了，不尬不是lovelive
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  离心  
+##### 894#       发表于 2021-10-4 10:58
+
+
+能正常发挥就不错了，虽然还是有点小瑕疵但总体还是优秀的。而且live优秀，服装很涩<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">就看后两集能不能正常收尾了。只要能平稳落地应该就是7～8分了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  秋月艾莉  
+##### 895#       发表于 2021-10-4 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988063&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-4 10:56</a>
+
+你们哪里搜的熟肉，我只看到第九集的
+
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+NYAA啊，10组也在做，看他们B站动态就有
+
+
+*****
+
+####  Piano-Forest  
+##### 896#       发表于 2021-10-4 11:05
+
+
+【💫#毎日Liella💫】
+
+【毎週月曜更新】ちょこっとリエラ～真夏の事件簿編～
+
+第11話「犯人は……マンマル!?」
+
+イラスト／moffmachi　構成／笹波ことみ
+
+
+「ちょこっとリエラ」は毎週月曜に #毎日Liella で更新します🌟
+
+来週もお楽しみに🦉
+<img src="https://p.sda1.dev/2/3a755e6a060deac6caf2a5f6a0203333/20211004_110453.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 897#       发表于 2021-10-4 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52988122&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-4 11:03</a>
+NYAA啊，10组也在做，看他们B站动态就有</blockquote>
+就是去nyaa没搜到啊，是我进的网址不对么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">N.10和sns的资源链接在b站被反复和谐
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
