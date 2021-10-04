@@ -12099,3 +12099,87 @@ NYAA啊，10组也在做，看他们B站动态就有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">不是阿堇的锅那不就更怪了吗，不是她的锅还要被流弹波及初C，完全没必要啊。下一首也是香音作词啊，下一次翻不行吗？课题是歌里有RAP就行，不用整首都是RAP啊，阿堇开头的一段独唱就是
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 948#       发表于 2021-10-4 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990019&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-4 14:05</a>
+还是看剧情时间线吧
+
+这才预赛海选，不出成绩就回去，只能是第一轮就被刷了，那也太惨了（尤其是对堇）</blockquote>
+堇这次只是预选赛，这次肯定是晋级了，但之后的比赛输赢就只可预测了，可能要吃瘪
+
+
+*****
+
+####  寒风夜  
+##### 949#       发表于 2021-10-4 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990907&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-4 15:41</a>
+
+说起来，青山这么棒读到底是故意的么，感觉是塑造一本正经的感觉？不过78集里青山这样配就只剩下灾难的错位 ...</blockquote>
+故意还行，就那水平呗。毕竟没系统训练过
+
+
+*****
+
+####  型月重工  
+##### 950#       发表于 2021-10-4 16:07
+
+
+<blockquote>秋月艾莉 发表于 2021-10-4 14:28
+零可能翻车，阿堇好不容易突破心魔转眼马上给扣个大锅，花田敢这么搞亲妈直接被瞬间蒸发
+
+心态爆炸导致团 ...</blockquote>
+民警这次是地区预选赛，肯定不会翻车的，我们说的是之后的比赛翻不翻。
+
+
+*****
+
+####  saglork  
+##### 951#       发表于 2021-10-4 16:12
+
+
+青山从声线到演技我觉得跟小宫有纱都高度相似，不算棒读，只是情绪和音调没有动画专业声优的夸张化，这个一方面是角色本身的定位就比较平稳，另一方面演员转声优配动画一般都会有这种格格不入感
+还是那句话，lovelive的配音标准10年前就被pile拉到下水道里了，那才叫棒读，后来也被广泛接受了，还成了个人特色，青山这种完全没问题的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 952#       发表于 2021-10-4 16:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52990907&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-4 15:41</a>
+说起来，青山这么棒读到底是故意的么，感觉是塑造一本正经的感觉？不过78集里青山这样配就只剩下灾难的错位 ...</blockquote>
+青山没有训练也没天生的天赋，我关注她好久了，即便是二次元浓度她也是队内较低的，或许连看动画的经验也很缺失…她给我的感觉就是稍微对二次元有兴趣的标准现充<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 953#       发表于 2021-10-4 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991203&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-4 16:12</a>
+青山没有训练也没天生的天赋，我关注她好久了，即便是二次元浓度她也是队内较低的，或许连看动画的经验也 ...</blockquote>
+动画声优的表演习惯里有很多约定俗成的东西，比如放慢的语速，捏的贼高的语调，夸张的语气和感情表现之类的，放在动画这个大环境里是大家都已经听得很顺耳的东西，演员出身的本身也应该接受过一些台词方面的训练，但要求和动画声优是完全不同的两个标准，所以跨界过来的，放在动画这个大环境里往往格格不入，还不如从零开始直接接受动画声优技巧的素人
+
+
+*****
+
+####  Norkey1  
+##### 954#       发表于 2021-10-4 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991232&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-4 16:16</a>
+动画声优的表演习惯里有很多约定俗成的东西，比如放慢的语速，捏的贼高的语调，夸张的语气和感情表现之类 ...</blockquote>
+是这样，区别太大，但鉴于少歌这个企划也是舞台转声优，老艺术家的配音还是很稳，青山有一些舞台经历，但是感觉算不上专业的演员（？）所以我更倾向于青山动画看的不多，抓不到动画配音的夸张度，或者她本身的台词功底还有待提高。
+说白了就是一句话，经验太少。
+
+
