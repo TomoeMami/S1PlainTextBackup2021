@@ -13961,3 +13961,43 @@ bd1 14514，插2 25989，都很一般</blockquote>
 依稀记得逢田姐还被叫过声优界最高美女
 
 
+
+
+*****
+
+####  Blackson  
+##### 1090#       发表于 2021-10-5 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005773&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-10-5 21:17</a>
+
+补一张高清图
+
+日本的多到爆的各种野鸡排名之一
+
+前面39个里还有些小有名气的演员和偶像，而且都有写年龄， ...</blockquote>
+这野鸡排行榜怎么还有管人啊？
+
+
+*****
+
+####  cqc1021  
+##### 1091#       发表于 2021-10-5 21:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005967&amp;ptid=2028598" target="_blank">Blackson 发表于 2021-10-5 21:31</a>
+
+这野鸡排行榜怎么还有管人啊？</blockquote>
+完整的排名里
+
+1-14位是演员
+
+15-23位是模特
+
+24-39位是偶像
+
+40-50位是各路网红（不知道为啥还塞进来一个管人，可能hololive比较出名吧
+
+51-56位是声优
+
+

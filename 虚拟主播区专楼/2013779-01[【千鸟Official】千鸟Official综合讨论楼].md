@@ -5449,3 +5449,14 @@ coco感觉还没下定决心当皮套人，过于自我了，估计文静画饼�
 可以转到B站去给文静破防吗😭😭😭😭
 
 
+
+
+*****
+
+####  rgauss  
+##### 478#       发表于 2021-10-5 21:23
+
+
+看白白玩uno，又想起之前和其他人联机玩uno时，玩一把能掉七八次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

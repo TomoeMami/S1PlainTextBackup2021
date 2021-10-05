@@ -18049,3 +18049,24 @@ cv梗不如说是传说最爱玩的，明日铃有两套，朱雀和haseo，都�
 <img src="https://p.sda1.dev/2/1fa9f10fd9c6fccba4530d686b1acfe0/20211005_135651.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zero12  
+##### 5831#       发表于 2021-10-5 21:34
+
+
+<img src="https://img.saraba1st.com/forum/202110/05/213408krtzt6qz8yss6oor.jpg" referrerpolicy="no-referrer">
+
+
+<strong>001LLMobly1gv4qxfk834j61ce0u0qal02.jpg</strong> (224.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 21:34 上传
+
+
+怎么都是《噬神者》《噬血代码》组的图？传说组这边画师**了？
+
+
