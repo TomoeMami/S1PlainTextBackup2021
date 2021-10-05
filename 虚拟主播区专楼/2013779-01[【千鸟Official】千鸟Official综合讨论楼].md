@@ -5400,3 +5400,25 @@ coco感觉还没下定决心当皮套人，过于自我了，估计文静画饼�
 艾瑞思就不属于那种会玩游戏的人。文静也是，一打游戏，就顾不上看弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 474#       发表于 2021-10-5 14:27
+
+
+另外说到流量漏斗的问题，嘉然这种款式是能够把流量让到团内其他人的，文静这种款式正好相反。其他4个要靠自己努力了。
+
+
+*****
+
+####  清光の学生会长  
+##### 475#       发表于 2021-10-5 14:29
+
+
+文静的新皮太棒了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
