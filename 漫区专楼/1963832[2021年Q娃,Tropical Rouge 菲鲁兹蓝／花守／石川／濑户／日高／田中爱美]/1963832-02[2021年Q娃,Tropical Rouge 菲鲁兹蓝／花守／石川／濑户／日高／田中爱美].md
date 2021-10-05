@@ -9612,3 +9612,17 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 接下来能期待的只有萝拉强化回了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Blackson  
+##### 2202#       发表于 2021-10-5 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53002661&amp;ptid=1963832" target="_blank">红焖菠菜 发表于 2021-10-5 16:31</a>
+
+接下来能期待的只有萝拉强化回了吧</blockquote>
+应该说接下来能期待的就是萝拉个人回了
+
+
