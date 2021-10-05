@@ -13603,3 +13603,33 @@ bd1 14514，插2 25989，都很一般</blockquote>
 唐政委这当面教训小战士，背后拉着小战士给小战士好吃的既视感。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Gooddays  
+##### 1063#       发表于 2021-10-5 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52999552&amp;ptid=2028598" target="_blank">midearth 发表于 2021-10-5 11:18</a>
+可可打电话虽然还是有点吊嗓子，但还是挺自然的，尤其跟后面几个人说话一比
+
+最后成品哪里rap了
+
+ ...</blockquote>
+开始时那一点轻度 RAP 便够了，LL 本身便属自由创作，RAP 比重太大会出现不公平现象，因为不可能所有参赛团队也有同一 RAP 的基本水平。加上她们还是学生，要她们一边上学还一边初次创作 RAP 比重大的歌也太为难她们，在熟悉 RAP 的团体面前那只能跪了。
+
+而要求一个优秀团队在保留自己音乐长处下加一点点 RAP 尚算合理。
+
+
+*****
+
+####  kata魂  
+##### 1064#       发表于 2021-10-5 20:01
+
+
+这集学生们的黑屁有一点说得还蛮准的
+
+这几天反复看注意力全在堇那里了，虽然其他人也有涩涩的地方，但是目光移不开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

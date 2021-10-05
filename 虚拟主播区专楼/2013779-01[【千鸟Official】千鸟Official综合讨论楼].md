@@ -5422,3 +5422,17 @@ coco感觉还没下定决心当皮套人，过于自我了，估计文静画饼�
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  rgauss  
+##### 476#       发表于 2021-10-5 19:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53001494&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-5 14:27</a>
+另外说到流量漏斗的问题，嘉然这种款式是能够把流量让到团内其他人的，文静这种款式正好相反。其他4个要靠 ...</blockquote>
+同时推两个已经很难了
+毕竟一个月有80h指标
+
+
