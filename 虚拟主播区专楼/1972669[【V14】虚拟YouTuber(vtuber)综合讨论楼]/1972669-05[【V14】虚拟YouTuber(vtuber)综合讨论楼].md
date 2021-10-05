@@ -19832,3 +19832,54 @@ oreapo厄介喜加一，谢谢你，千草<img src="https://static.saraba1st.com
 只能看看两年前的绿仙系企划<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 7435#       发表于 2021-10-5 23:37
+
+
+[https://twitter.com/thecreators_fk/status/1445328589348499466](https://twitter.com/thecreators_fk/status/1445328589348499466)
+
+【举手NEWS举手】「エンタテ! 区 presents VTuber eレコ大话筒6組の人気VTuberによるバーチャルライブ! 
+
+出演：朝ノ瑠璃
+
+@asanoruri
+
+ /江戸レナ
+
+@edo_lena
+
+ /えのぐ
+
+@rbc_geino
+
+ /奏みみ 
+
+@kanademimimi
+
+ /獅子神レオナ 
+
+@LeonaShishigami
+
+ /MonsterZ MATE 
+
+@monsterzmate
+
+[https://the-creator.jp](https://the-creator.jp)
+
+#クリエイターズ2021
+
+
+<img src="https://img.saraba1st.com/forum/202110/05/233754uag3ix3213bdyiwa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (207.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 23:37 上传
+
+
