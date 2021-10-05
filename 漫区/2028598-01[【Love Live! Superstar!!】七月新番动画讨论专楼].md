@@ -14676,3 +14676,18 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 他早点解锁会员会更快
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 1150#       发表于 2021-10-6 01:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53008404&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-6 00:53</a>
+星团B站已经754W播放量了，超过了水2，即将超过虹——特意挑第10集出来前一天发更新，叔叔这波在大气层 ...</blockquote>
+叔叔我呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
