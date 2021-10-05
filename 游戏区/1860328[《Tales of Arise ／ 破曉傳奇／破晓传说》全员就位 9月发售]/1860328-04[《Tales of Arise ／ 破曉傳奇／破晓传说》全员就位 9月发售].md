@@ -18001,3 +18001,23 @@ cv梗不如说是传说最爱玩的，明日铃有两套，朱雀和haseo，都�
 万代，我吃神4呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">3爆裂就不指望了，把嗜血代码缝进去然后再把绯红结系破晓传说的画面用上
 
 
+
+
+*****
+
+####  HB21SautoworksR  
+##### 5827#       发表于 2021-10-5 12:29
+
+
+万南你妈妈的，刚刚摸到水领门口，队伍32级挤出最后一点钱换几件装备之后一分钱都没有了，素材卖完多余的只剩下必要数量，一个CP糖3000简直要了老命，近几年没有哪个RPG玩到中后期钱包还这么憋屈，真实达纳乞丐模拟器
+
+
+*****
+
+####  CharlieZ-  
+##### 5828#       发表于 2021-10-5 12:46
+
+
+其实我觉得最惨的是盾姐，出的服装感觉没一个特别好看的，换来换去我居然觉得原来的盔甲和里面那件色色的内衣是最适合她的，草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

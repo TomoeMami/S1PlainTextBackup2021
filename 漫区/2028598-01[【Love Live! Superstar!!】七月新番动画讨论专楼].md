@@ -13107,3 +13107,39 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 石上可可：被我弄哭的女人不计其数啊
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1023#       发表于 2021-10-5 12:27
+
+
+<img src="https://img.saraba1st.com/forum/202110/05/122555j5en6metm54beei5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (57.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 12:25 上传
+
+
+娘们的大腿！
+
+
+*****
+
+####  ads147147  
+##### 1024#       发表于 2021-10-5 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53000259&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-5 12:27</a>
+娘们的大腿！</blockquote>
+每天深蹲的代价（
+
+不过我觉得这个踢腿应该是美帝百老汇风格。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
