@@ -19735,3 +19735,18 @@ Sasaki拿到银河战士提前预览了，恭喜。
 <[img src="https://i.loli.net/2021/10/05/2bw9uTCSx6ZVgzi.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7428#       发表于 2021-10-5 20:08
+
+
+ 本帖最后由 FCCHua 于 2021-10-5 20:21 编辑 
+
+今天也是hnn睡醒就跑去kmt那里的一天
+oreapo厄介喜加一，谢谢你，千草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+因为有别的训练赛zeder不在，大猩猩来了，好耶
+
+

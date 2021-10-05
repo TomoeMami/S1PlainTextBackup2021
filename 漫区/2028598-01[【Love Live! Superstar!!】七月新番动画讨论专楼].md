@@ -13633,3 +13633,69 @@ bd1 14514，插2 25989，都很一般</blockquote>
 这几天反复看注意力全在堇那里了，虽然其他人也有涩涩的地方，但是目光移不开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Gooddays  
+##### 1065#       发表于 2021-10-5 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53004224&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-5 19:13</a>
+日本人的逻辑是这样的，LL剧中世界对堇太残酷了，没有气场导致全员漠视她
+
+这集解决了可可的问题，但「小 ...</blockquote>
+学园偶像是比赛，一输便完了，那当然倾向选择最好的方案。假如让堇当 C 位后输了便什么价值也没有。
+
+我们观众能支持堇是因为知道这是动画，製作方决定剧情结果后那让谁上也没分别（除非製作方有心针对某角色），但剧中人所处的是 “现实世界”，她们会觉得选择谁当 C 位能导至很大差别。
+
+
+*****
+
+####  kbtit  
+##### 1066#       发表于 2021-10-5 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53004224&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-5 20:13</a>
+
+日本人的逻辑是这样的，LL剧中世界对堇太残酷了，没有气场导致全员漠视她
+
+这集解决了可可的问题，但「小 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">为千砂都辩解的真的不是在黑她吗？功利厨难道是什么好词，之前国内不也是黑唐可可太功利了老是给民警的c位使绊子
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1067#       发表于 2021-10-5 20:23
+
+
+觉得10集那些学生评价就是动画里常见的随大流，人云亦云
+
+因为香音是leader，恋是会长，就理所当然觉得她们C比较好，什么堇抢眼无非是说辞罢了，只不过是选择了最“稳妥”的答案
+
+
+需要让京吹的丽奈或者小南极的香菜专门过来教育一顿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  名津流  
+##### 1068#       发表于 2021-10-5 20:27
+
+
+<img src="https://img.saraba1st.com/forum/202110/05/202635g7520m3b66seuufk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211005202615.jpg</strong> (90.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 20:26 上传
+
+
+中之人钦定可可是神
+
+
