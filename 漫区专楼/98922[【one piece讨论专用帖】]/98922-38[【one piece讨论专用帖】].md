@@ -3458,3 +3458,23 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">厨子在蛋糕岛的时候还可以为不靠血统作为普通人打出名堂而自豪的，结果这就吃书了
 
 
+
+
+*****
+
+####  斯文老狗  
+##### 55748#       发表于 2021-10-5 23:45
+
+
+不管了，山吹过年
+
+
+*****
+
+####  管他三俗  
+##### 55749#       发表于 2021-10-5 23:54
+
+
+用自己最讨厌的方式变强 最后还是靠血统<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

@@ -14490,3 +14490,41 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 搬了一天家累傻了，脑子里记着生放是6号，但是潜意识里还是觉得在后天……
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1135#       发表于 2021-10-5 23:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战吧这打也没打出啥新活啊 还在纠结正不正统
+
+
+*****
+
+####  qratosone  
+##### 1136#       发表于 2021-10-5 23:57
+
+
+突然想起个事，可可的家庭重视教育，那更应该留在日本了——本来中日韩三国就都有留学生优惠，然后可可还是卷王，在日本一路升学的话去个东大之类的名校应该比在国内考清北容易多了吧
+
+
+*****
+
+####  kata魂  
+##### 1137#       发表于 2021-10-5 23:58
+
+
+但结丘是以音乐为主的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 1138#       发表于 2021-10-5 23:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海土著真的有必要去日本镀一层留学生的金吗
+
+
