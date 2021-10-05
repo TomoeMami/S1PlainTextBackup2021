@@ -19819,3 +19819,16 @@ oreapo厄介喜加一，谢谢你，千草<img src="https://static.saraba1st.com
 至少他还是虹信一天大概还会当黛灰一天，也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7434#       发表于 2021-10-5 23:11
+
+
+真的蒸蒸日上吗，最近总感觉NijiMado从JP点到VR都没什么好看的台...
+
+只能看看两年前的绿仙系企划<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+

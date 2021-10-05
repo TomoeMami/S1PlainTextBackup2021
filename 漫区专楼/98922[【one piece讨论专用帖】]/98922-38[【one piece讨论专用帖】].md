@@ -3447,3 +3447,14 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 杰尔马之前宴会没战斗服的时候就是等死，要是有山治现在的耐打度，就算躺着给大妈团当木桩打也打不死吧
 
 
+
+
+*****
+
+####  darkddragon  
+##### 55747#       发表于 2021-10-5 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">厨子在蛋糕岛的时候还可以为不靠血统作为普通人打出名堂而自豪的，结果这就吃书了
+
+

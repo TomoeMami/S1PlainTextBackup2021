@@ -14332,3 +14332,141 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 另外星团动画上海本土出境的几率很高啊，因为又是自由高达立像，又是万代南梦宫文化馆，总感觉财团B在下部大棋。
 
 
+
+
+*****
+
+####  Norkey1  
+##### 1121#       发表于 2021-10-5 23:05
+
+
+你们是没看到之前贬低虹销量捧星的，是哪位楼里的大神我就不说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这波我只能说打起来打起来，反正大家都差不多一样菜，谁比谁高贵啊
+
+
+*****
+
+####  JustW  
+##### 1122#       发表于 2021-10-5 23:08
+
+
+我觉得不想掺和的就不要掺和这些个对线了，本质上两边粉丝团建提纯，没打算巩固自己信仰的差不多就行，对线对上头的哪个比哪个更显得不蠢一些呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一直摸塔塔开
+
+
+*****
+
+####  黑雪姫  
+##### 1123#       发表于 2021-10-5 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53007347&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-5 23:05</a>
+
+你们是没看到之前贬低虹销量捧星的，是哪位楼里的大神我就不说了
+
+这波我只能说打起来打起来，反正大 ...</blockquote>
+吓的我去翻了下新旧专楼的发言，嗯，不是我。 那我就不管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 1124#       发表于 2021-10-5 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53007022&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-5 22:40</a>
+肯定不是啊，鲤鱼在生放上都因为日语水平问题事故多少次了，都变成一个萌点了，很多日本人都等着看鲤鱼事 ...</blockquote>
+因为生放她们不是经常照着纸上念吗，还经常看，所以我以为是有台本的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+至于虹星打架，我是觉得现在又不是当年缪水那种紧张的氛围了，双方粉丝规模也没那么大，况且现在经常搞多团联动，还有菜宝这样的两团之间的沟通桥梁，所以我本以为会是双厨比较多，没想到还是能打起来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 1125#       发表于 2021-10-5 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53007453&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-5 23:13</a>
+吓的我去翻了下新旧专楼的发言，嗯，不是我。 那我就不管了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Skyline_R  
+##### 1126#       发表于 2021-10-5 23:17
+
+
+要求不高，平稳落地就行
+
+
+*****
+
+####  kbtit  
+##### 1127#       发表于 2021-10-5 23:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">挺好的，这才是饭圈，但是杂畜这种侮辱性的词语还是免了
+
+
+*****
+
+####  lj205  
+##### 1128#       发表于 2021-10-5 23:19
+
+
+后天怎么还没到，佩佩肯定又变红种人～
+
+
+*****
+
+####  Norkey1  
+##### 1129#       发表于 2021-10-5 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53007466&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-5 23:14</a>
+因为生放她们不是经常照着纸上念吗，还经常看，所以我以为是有台本的
+至于虹星打架，我是觉得现在 ...</blockquote>
+台本是以介绍流程为主，还有就是工商这类生放必须要的信息，然后可能会有一些情绪要求（？）声优还是要做点准备的。
+虹星看成魔怔人互掐就是了，只要不误伤到无辜的人，他们怎么掐都行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 1130#       发表于 2021-10-5 23:23
+
+
+孩子想家了～
+
+<img src="https://img.saraba1st.com/forum/202110/05/232315u26xs60wsar2660w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7B1482A8-ABC6-43F1-B818-3707933FA3AD.jpeg</strong> (432.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 23:23 上传
+
+
+*****
+
+####  黑雪姫  
+##### 1131#       发表于 2021-10-5 23:24
+
+
+你们看完这个视频就知道为什么大家喜欢看鲤鱼的播放事故了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV18h411p76H](https://www.bilibili.com/video/BV18h411p76H)
+
+
+*****
+
+####  chenflyyy  
+##### 1132#       发表于 2021-10-5 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53007521&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-5 23:19</a>
+后天怎么还没到，佩佩肯定又变红种人～</blockquote>
+生放是6号明晚
+
+
