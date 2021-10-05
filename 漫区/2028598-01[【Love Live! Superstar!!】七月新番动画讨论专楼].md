@@ -13143,3 +13143,45 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cqc1021  
+##### 1025#       发表于 2021-10-5 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52992051&amp;ptid=2028598" target="_blank">fange 发表于 2021-10-4 17:47</a>
+是鲤鱼故意让编剧这样的么</blockquote>
+这明显是翻译在膜啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cqc1021  
+##### 1026#       发表于 2021-10-5 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52999671&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-5 11:28</a>
+这集最后那段舞蹈设计绝对参考了韩国女团那种风格吧味太浓了</blockquote>
+不像韩国女团，瑟的风格不一样。更像开闭的小黄歌，比如著名的《诱惑吊袜带》。
+【【柏木由纪 钓师复活】现场『诱惑吊袜带+浪漫手枪』5.23-哔哩哔哩】[https://b23.tv/p43jxj](https://b23.tv/p43jxj)
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qratosone  
+##### 1027#       发表于 2021-10-5 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53000242&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-5 12:25</a>
+石上可可：被我弄哭的女人不计其数啊</blockquote>
+星团海王位定了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
