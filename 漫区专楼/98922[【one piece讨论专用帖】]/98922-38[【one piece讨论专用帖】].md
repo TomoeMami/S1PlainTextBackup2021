@@ -3352,3 +3352,16 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 作者太大牌管不住了，尾田的编辑可能都是看海贼长大的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lsmnbs  
+##### 55739#       发表于 2021-10-5 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52985970&amp;ptid=98922" target="_blank">tyauto 发表于 2021-10-4 00:56</a>
+霸道总裁王路飞</blockquote>
+这衣服什么结构啊，下面居然是连一起的
+
+
