@@ -13018,3 +13018,44 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文部分大概只能怪菜宝了（bushi
 
 
+
+
+*****
+
+####  ads147147  
+##### 1017#       发表于 2021-10-5 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52999552&amp;ptid=2028598" target="_blank">midearth 发表于 2021-10-5 11:18</a>
+可可打电话虽然还是有点吊嗓子，但还是挺自然的，尤其跟后面几个人说话一比
+
+最后成品哪里rap了
+
+ ...</blockquote>
+大概和凤凰传奇一样，有rap片段就算了（）
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 1018#       发表于 2021-10-5 11:26
+
+
+其实rap还能算偶像主题之一了，我倒是很好奇如果是neta缪第二季，要求主题是重金属摇滚，当年那个kiss扮相的neta会不会再现。。。
+
+说起来gk是有摇滚要素吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  CharlieZ-  
+##### 1019#       发表于 2021-10-5 11:28
+
+
+这集最后那段舞蹈设计绝对参考了韩国女团那种风格吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">味太浓了
+
+
