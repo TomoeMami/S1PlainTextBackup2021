@@ -7415,3 +7415,189 @@ PC小更新了几次，只要你显存不爆炸基本没什么跳出，一些小
 忘了，应该是用无线电的，不过这个好像也是三个里随机两个有效
 
 
+
+
+*****
+
+####  粪坑战士  
+##### 620#       发表于 2021-10-5 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52991813&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-4 17:22</a>
+
+关于bug或者跳出闪退可以参考这个帖子
+
+https://www.bilibili.com/read/cv13173369</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">吐了 又报错了 
+
+我3090 16g内存应该和配置没关系吧。。。
+
+
+*****
+
+####  粪坑战士  
+##### 621#       发表于 2021-10-5 22:11
+
+
+Crash summary : Error 0xC0000005 (Access Violation) occurred in thread 'DEATHLOOP' at instruction location 0x00007FF61BAFE54F.
+
+OS version : Windows 10 Pro 2009 Build 19042.1237
+
+GPU name : NVIDIA GeForce RTX 3090
+
+GPU driver : 47212
+
+
+Callstack Function(desc) Line Bytes       File Module        Address
+
+------------------------ ---- -----       ---- ------        -------
+
+()                       0    +0xaee54f        Deathloop.exe 0x7ff61bafe54f
+
+()                       0    +0xae7a97        Deathloop.exe 0x7ff61baf7a97
+
+()                       0    +0xac7bac        Deathloop.exe 0x7ff61bad7bac
+
+()                       0    +0xae4fd1        Deathloop.exe 0x7ff61baf4fd1
+
+()                       0    +0xae68d2        Deathloop.exe 0x7ff61baf68d2
+
+()                       0    +0x213671e5      Deathloop.exe 0x7ff63c3771e5
+
+()                       0    +0x21362057      Deathloop.exe 0x7ff63c372057
+
+()                       0    +0x15698ae       Deathloop.exe 0x7ff61c5798ae
+
+()                       0    +0x1568493       Deathloop.exe 0x7ff61c578493
+
+()                       0    +0x156749d       Deathloop.exe 0x7ff61c57749d
+
+()                       0    +0x16da38f       Deathloop.exe 0x7ff61c6ea38f
+
+()                       0    +0x16d977f       Deathloop.exe 0x7ff61c6e977f
+
+()                       0    +0x1541757       Deathloop.exe 0x7ff61c551757
+
+()                       0    +0xb95b69        Deathloop.exe 0x7ff61bba5b69
+
+()                       0    +0xc149cd        Deathloop.exe 0x7ff61bc249cd
+
+()                       0    +0xc14f7b        Deathloop.exe 0x7ff61bc24f7b
+
+()                       0    +0xba2901        Deathloop.exe 0x7ff61bbb2901
+
+()                       0    +0xba3c57        Deathloop.exe 0x7ff61bbb3c57
+
+()                       0    +0xb9c43b        Deathloop.exe 0x7ff61bbac43b
+
+()                       0    +0xb38b43        Deathloop.exe 0x7ff61bb48b43
+
+()                       0    +0xb39000        Deathloop.exe 0x7ff61bb49000
+
+()                       0    +0xb0a1a6        Deathloop.exe 0x7ff61bb1a1a6
+
+()                       0    +0x17034         KERNEL32.DLL  0x7ffcccd67034
+
+()                       0    +0x52651         ntdll.dll     0x7ffccda22651
+
+Register Info
+
+-------------------------------------------------------------------------
+
+RAX: 0x0000000000000000  RBX: 0x0000029D4F8A0000  RCX: 0x00007FF61D438708
+
+RDX: 0x0000000000280000  RSI: 0x00007FF620A44200  RDI: 0x0000000000000404
+
+R8:  0x000000000000005A  R9:  0x000000000000005E  R10: 0x0000000000000096
+
+R11: 0x0000000000000246  R12: 0x000000000000000A  R13: 0x0000000000280000
+
+R14: 0x0000029D4FAA0000  R15: 0x00000000000003FC  EFL: 0x0000000000010206
+
+RIP: 0x00007FF61BAFE54F  RSP: 0x000000D1B9BC9068  RBP: 0x0000000000000406
+
+
+Exception Info               
+
+---------------------------  
+
+ExpCode:          0xC0000005 (Access Violation)
+
+ExpFlags:         0         
+
+ExpAddress:       0x00007FF61BAFE54F 
+
+
+Build &amp; Runtime Info        
+
+--------------------------- 
+
+User:             szzg9        
+
+Version:          1.708.4.0        
+
+File Path:        D:\SteamLibrary\steamapps\common\DEATHLOOP\Deathloop.exe        
+
+System Time:      10/5/2021 22:02:02        
+
+Build String:     1.708.4.0        
+
+Launch Command:   "D:\SteamLibrary\steamapps\common\DEATHLOOP\Deathloop.exe"         
+
+
+Global Memory Info
+
+---------------------------
+
+In Use:        78%
+
+Physical RAM:     15.928 GB
+
+Physical Free:     3.488 GB
+
+Paging File:      34.156 GB
+
+Paging Free:       4.164 MB
+
+User Address:    128.000 TB
+
+User Free:       127.929 TB
+
+
+Process Memory Info
+
+---------------------------
+
+Current RAM:       5.626 GB
+
+Maximal RAM:       6.174 GB
+
+
+Video memory info: 
+
+--------------------------- 
+
+Current local GPU Budget      : 23580.000 Mb 
+
+Current local GPU Use         : 16028.145 Mb 
+
+Current shared GPU/CPU Budget : 7491.359 Mb 
+
+Current shared GPU/CPU Use    : 695.621 Mb 
+
+
+CPU Info                    
+
+--------------------------- 
+
+Num Packages:     1        
+
+Num Cores:        6        
+
+Num Logical:      12        
+
+CPU ID:           AMD        
+
+CPU MHz:          3700     
+
+

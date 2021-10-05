@@ -18070,3 +18070,14 @@ cv梗不如说是传说最爱玩的，明日铃有两套，朱雀和haseo，都�
 怎么都是《噬神者》《噬血代码》组的图？传说组这边画师**了？
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 5832#       发表于 2021-10-5 22:10
+
+
+我最喜欢的琳薇尔啊，这张感觉有点小崩<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+

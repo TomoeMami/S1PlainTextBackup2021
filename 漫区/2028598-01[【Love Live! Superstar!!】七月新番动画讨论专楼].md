@@ -14076,3 +14076,150 @@ bd1 14514，插2 25989，都很一般</blockquote>
 战吧星销量那帖一群虹人（虹杂？）在那yygq的，都快要打起来了，何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1099#       发表于 2021-10-5 22:04
+
+
+10集好评83.8  人数一万多
+
+
+*****
+
+####  player3960  
+##### 1100#       发表于 2021-10-5 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006361&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-05 22:00:14</a>
+战吧星销量那帖一群虹人（虹杂？）在那yygq的，都快要打起来了，何必呢</blockquote>战吧本来就是虹杂聚集地啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 1101#       发表于 2021-10-5 22:05
+
+
+83.8还是低了点啊
+
+
+*****
+
+####  优妮可  
+##### 1102#       发表于 2021-10-5 22:05
+
+
+ 本帖最后由 优妮可 于 2021-10-5 22:07 编辑 
+
+导火索应该是去年有人觉得星的动画bd会卖的比虹好，现在销量出来，有一部分嘲讽回去算正常吧。我理解不了的是有层楼说不如虹，就开始有人回应说你有多看不起虹。巴拉巴拉就开始了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 1103#       发表于 2021-10-5 22:05
+
+
+<img src="https://img.saraba1st.com/forum/202110/05/220517m3q4ft943cz9t3i4.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (71.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 22:05 上传
+
+
+听说这次评分人也蛮多的？
+
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+
+1.png.crdownload
+
+
+2021-10-5 22:04 上传
+点击文件名下载附件
+
+
+304.27 KB, 下载次数: 0
+
+
+*****
+
+####  稀勢のささ  
+##### 1104#       发表于 2021-10-5 22:07
+
+
+前两项90+ 可以了
+
+
+*****
+
+####  CharlieZ-  
+##### 1105#       发表于 2021-10-5 22:08
+
+
+85都没有吗，难道是被前面几集伤透了？
+
+
+*****
+
+####  dozen  
+##### 1106#       发表于 2021-10-5 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006449&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-5 22:05</a>
+导火索应该是去年有人觉得星的动画bd会卖的比虹好，现在销量出来，有一部分嘲讽回去算正常吧。我理解不了的 ...</blockquote>
+回这话的楼里也有号，你说不定可以蹲一个解释<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平贺才人  
+##### 1107#       发表于 2021-10-5 22:11
+
+
+<img src="http://tvax2.sinaimg.cn/large/0022VSBzly1gv4shq7zobj61xg0rs4g002.jpg" referrerpolicy="no-referrer">
+
+
+喜欢什么cp自选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1108#       发表于 2021-10-5 22:16
+
+
+大跳水走低的有，走高的不多见，除了好恶惯性，其实前面分数跌谷底，就是因为产生了严重漏洞，漏洞出现了如果不能填好，对此耿耿于怀的观众肯定不会原谅。
+
+从体感来看，最大的漏洞是78两集恋和香音，堇小丑化相比反而还没那么糟，所以你10集就算填好了可堇，那些对恋戏份不满的人依然无动于衷。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 1109#       发表于 2021-10-5 22:20
+
+
+噢噢噢
+
+
+*****
+
+####  寒风夜  
+##### 1110#       发表于 2021-10-5 22:20
+
+
+噢噢噢
+
+
