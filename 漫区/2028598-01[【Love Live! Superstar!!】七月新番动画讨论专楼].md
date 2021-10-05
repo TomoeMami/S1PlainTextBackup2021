@@ -12961,3 +12961,27 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 不止宫崎骏，像细田守和新海诚的动画电影，也是找演员来配，不过里面也有专业声优，比如香菜和umb，但是她们配音说话也是缺乏起伏，少点番剧里那种演绎的感觉，估计这类导演都好这口吧...
 
 
+
+
+*****
+
+####  damian-wade  
+##### 1012#       发表于 2021-10-5 10:00
+
+
+说起配音，不如赞美一下pay子好吧，虽然有点偶像经验，但作为最年少JK，还真是面面俱全的六边形战士（玩游戏除外），和小百合比没差多少
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Norkey1  
+##### 1013#       发表于 2021-10-5 10:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52998614&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-5 09:41</a>
+不止宫崎骏，像细田守和新海诚的动画电影，也是找演员来配，不过里面也有专业声优，比如香菜和umb，但是 ...</blockquote>
+感觉这类的电影有更多的商业考量吧，声优到底是为了配合其他演员的演技还是都是导演的喜好这个就不知道了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
