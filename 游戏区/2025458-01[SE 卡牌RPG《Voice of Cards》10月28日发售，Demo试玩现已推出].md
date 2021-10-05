@@ -1469,3 +1469,30 @@ PC用CE开了个3倍速，舒服了，原版这游戏速度实在摧残人
 我后来想那玩意扔炸弹行不行，感觉炸弹是固定伤害
 
 
+
+
+*****
+
+####  jacket  
+##### 114#       发表于 2021-10-6 07:35
+
+
+TSG 2021的直播宣传，提到部分玩家的疑问，比如为什么是主机游戏不是手游，为什么选择当前这个节奏之类的。
+
+
+『Voice of Cards ドラゴンの島』TGS2021生放送
+[https://www.youtube.com/watch?v=ph9Zlarkbgo](https://www.youtube.com/watch?v=ph9Zlarkbgo)
+
+
+还有一个感受就是，强者最终都会变成肌肉佬。
+
+
+*****
+
+####  swordofsoul1  
+##### 115#       发表于 2021-10-6 07:42
+
+
+GM并不是完全照着字幕读，某些剧情还会加入自己的吐槽，记得不要跳语音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
