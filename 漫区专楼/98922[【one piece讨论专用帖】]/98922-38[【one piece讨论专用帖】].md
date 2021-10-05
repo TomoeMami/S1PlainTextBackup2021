@@ -3409,3 +3409,30 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看这情报，政府已经默认凯多败定了可以接收和之国？
 
 
+
+
+*****
+
+####  klzxs  
+##### 55744#       发表于 2021-10-5 22:24
+
+
+杰尔马有这么强？ 之前登场的兄弟没觉得比三治强很多啊
+
+看这情报肉身都要成超人了
+
+
+*****
+
+####  银翼的维罗西  
+##### 55745#       发表于 2021-10-5 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006770&amp;ptid=98922" target="_blank">klzxs 发表于 2021-10-5 22:24</a>
+
+杰尔马有这么强？ 之前登场的兄弟没觉得比三治强很多啊
+
+看这情报肉身都要成超人了 ...</blockquote>
+有什么问题，生娃都能基因变异，山治作为海贼王左右手一路大风大浪经历过来打个区区三灾还是轻轻松松的
+
+

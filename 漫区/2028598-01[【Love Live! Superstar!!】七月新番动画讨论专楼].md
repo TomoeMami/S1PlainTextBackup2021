@@ -14223,3 +14223,78 @@ bd1 14514，插2 25989，都很一般</blockquote>
 噢噢噢
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 1111#       发表于 2021-10-5 22:24
+
+
+分下去了就不容易上来了 后两话如果花田不犯病还是有机会再次上到90%
+
+
+*****
+
+####  chenflyyy  
+##### 1112#       发表于 2021-10-5 22:26
+
+
+我还以为生放是按台本写好来的，原来不是吗<img src="https://p.sda1.dev/2/7d8929fa2edfcaa16623cb9814484c67/IMG_CMP_77706938.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1113#       发表于 2021-10-5 22:29
+
+
+LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎花田打我脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  普之舜舜  
+##### 1114#       发表于 2021-10-5 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006859&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-5 22:29</a>
+LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎花田打我脸
+
+  -- 来自 能看大图的 Stage ...</blockquote>
+蹲蹲
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lj205  
+##### 1115#       发表于 2021-10-5 22:39
+
+
+随便他们嘲呗，完全0起步，日常只有广播刷存在，没开过观客live，抽小场，三团并行，疫情加成，售价贵最贵，还要怎样？
+
+
+*****
+
+####  黑雪姫  
+##### 1116#       发表于 2021-10-5 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006806&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-5 22:26</a>
+我还以为生放是按台本写好来的，原来不是吗</blockquote>
+肯定不是啊，鲤鱼在生放上都因为日语水平问题事故多少次了，都变成一个萌点了，很多日本人都等着看鲤鱼事故呢，如果有台本事先背后好了不可能出现念错文字不会读这种事情的.
+
+
+*****
+
+####  lj205  
+##### 1117#       发表于 2021-10-5 22:43
+
+
+我觉得就算再怎么解释日本人也理解不了煎饼果子来一套的梗，简单介绍一下煎饼果子就好了（是不是后悔应该说喜茶～）
+
+

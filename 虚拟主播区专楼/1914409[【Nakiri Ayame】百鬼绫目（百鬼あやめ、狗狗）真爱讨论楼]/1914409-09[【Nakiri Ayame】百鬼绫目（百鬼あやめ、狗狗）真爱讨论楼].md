@@ -15087,3 +15087,17 @@ LOL这赛季11月10号到头，上次Rank都是7月了，感觉应该不打了
 绫总报数报第三报第二为什么不报第一啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  一仙  
+##### 13278#       发表于 2021-10-5 22:31
+
+
+绫总发推了才知道去了狐狸的生日会 这转都不转一个的 还是狐狼鬼三人组
+[https://www.youtube.com/watch?v=7Vs-5Rwu8ks&amp;t=1035s](https://www.youtube.com/watch?v=7Vs-5Rwu8ks&amp;t=1035s)
+
+这次好好的让寿星站了C位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
