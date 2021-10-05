@@ -3493,3 +3493,20 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 这这这，真六边形战士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  klzxs  
+##### 55751#       发表于 2021-10-6 00:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">op现在科技势力是真的强啊 
+
+量产的和平主义者 桃之助吃的人造果实 弗兰奇用贝加庞克技术造的光炮和弗兰奇将军
+
+杰尔马的战斗服和克隆军队再到山治现在的基因改造人
+
+不论质还是量都是极高的水准
+
+

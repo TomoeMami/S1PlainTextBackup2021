@@ -19905,3 +19905,17 @@ oreapo厄介喜加一，谢谢你，千草<img src="https://static.saraba1st.com
 可以看最热门最潮流的apex啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7438#       发表于 2021-10-6 00:53
+
+
+nrk cr原定队友没法出场本来想不参加，ojiji这边介绍的selly。
+selly哥也是不想去cr到最后还是参加了。
+sovault也说自己是1小时商谈参战。
+很难不让人联想到之前的炎上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
