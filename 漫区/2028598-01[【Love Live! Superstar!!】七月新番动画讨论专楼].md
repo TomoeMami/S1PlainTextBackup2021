@@ -13059,3 +13059,30 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 这集最后那段舞蹈设计绝对参考了韩国女团那种风格吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">味太浓了
 
 
+
+
+*****
+
+####  平贺才人  
+##### 1020#       发表于 2021-10-5 11:53
+
+
+[https://www.bilibili.com/video/BV1iR4y1p7ie](https://www.bilibili.com/video/BV1iR4y1p7ie)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死
+
+
+
+
+*****
+
+####  player3960  
+##### 1021#       发表于 2021-10-5 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52999671&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-5 11:28</a>
+
+这集最后那段舞蹈设计绝对参考了韩国女团那种风格吧味太浓了</blockquote>
+太sex了，在教育台播没问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
