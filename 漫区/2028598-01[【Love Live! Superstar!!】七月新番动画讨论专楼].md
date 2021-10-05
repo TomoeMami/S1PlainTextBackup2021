@@ -13573,3 +13573,33 @@ bd1 14514，插2 25989，都很一般</blockquote>
 草，小千这个我是真没想到，还是日本人会玩
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1060#       发表于 2021-10-5 19:37
+
+
+还有这思路的。。。
+
+
+*****
+
+####  saglork  
+##### 1061#       发表于 2021-10-5 19:40
+
+
+说到5ch，之前看讨论lovelive动画四大黑历史集数把我笑到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其他都还有争论，只有水团一季13集舞台剧和星团第八集异常稳定的占据两席<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乌鸦的皇冠  
+##### 1062#       发表于 2021-10-5 19:42
+
+
+唐政委这当面教训小战士，背后拉着小战士给小战士好吃的既视感。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
