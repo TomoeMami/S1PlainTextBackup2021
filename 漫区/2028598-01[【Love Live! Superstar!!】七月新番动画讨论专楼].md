@@ -13288,3 +13288,121 @@ bd1 14514，插2 25989，都很一般</blockquote>
 这不是比虹还拉吗</blockquote>
 
 
+
+
+*****
+
+####  ads147147  
+##### 1036#       发表于 2021-10-5 16:45
+
+
+影响的因素太多了，现在团都混在一起，加上疫情，哪有那么多钱。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  saglork  
+##### 1037#       发表于 2021-10-5 16:46
+
+
+这数据还拉啊，看看这两年除了赛马娘鬼灭这种的碟片数据，这都算拉，别家不活了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 1038#       发表于 2021-10-5 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53002732&amp;ptid=2028598" target="_blank">AlfredXC 发表于 2021-10-5 16:38</a>
+
+这不是比虹还拉吗</blockquote>
+不算，这次BD贵了快一倍，算销售额的话和虹持平
+
+
+*****
+
+####  cybernetics31  
+##### 1039#       发表于 2021-10-5 16:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在这个大环境 这数据可以了 
+
+
+*****
+
+####  型月重工  
+##### 1040#       发表于 2021-10-5 16:53
+
+
+ 本帖最后由 型月重工 于 2021-10-5 17:00 编辑 
+<blockquote>AlfredXC 发表于 2021-10-5 16:38
+这不是比虹还拉吗</blockquote>
+你在想屁吃，首先虹团首卷便宜将近一倍，而且虹团都出道了四年了，赶在疫情前开过多场演唱会，星团这个出道半年没开过一次线下演唱会的新团你让现在销量就超过虹，你到底多瞧不起虹？
+
+
+*****
+
+####  hijack997  
+##### 1041#       发表于 2021-10-5 16:54
+
+
+可以了，日本那批年轻人不买碟的只会越来越多。
+
+
+*****
+
+####  寒风夜  
+##### 1042#       发表于 2021-10-5 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53002845&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-5 16:49</a>
+
+不算，这次BD贵了快一倍，算销售额的话和虹持平</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">只是和虹首卷比贵，，因为虹首卷1集
+
+
+*****
+
+####  寒风夜  
+##### 1043#       发表于 2021-10-5 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53002845&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-5 16:49</a>
+
+不算，这次BD贵了快一倍，算销售额的话和虹持平</blockquote>
+
+
+*****
+
+####  dozen  
+##### 1044#       发表于 2021-10-5 16:59
+
+
+初动保pt，结果上还挺理想的
+
+
+同样2话一卷的虹2~虹7的初动是1w6+~1w9+，可以看到企划BD购买力现在差不多就这数
+
+
+*****
+
+####  chenflyyy  
+##### 1045#       发表于 2021-10-5 17:02
+
+
+2卷也塞了抽选，还是最后两场，估计不会右多少，看星团有多少会买bd的忠实粉丝还得看3-6卷，估计就一万出头
+
+
+*****
+
+####  Norkey1  
+##### 1046#       发表于 2021-10-5 17:05
+
+
+企划团越出越多，阿宅哪有这么多钱全支持啊，加上现实因素，两边比销量根本没什么意思…
+不过话又说回来，星比起虹国内这次bd贡献还是可以的，看到好多人都买了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
