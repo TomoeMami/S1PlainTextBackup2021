@@ -13776,3 +13776,119 @@ bd1 14514，插2 25989，都很一般</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本有煎饼果子类似的吗 
 
 
+
+
+*****
+
+####  Norkey1  
+##### 1076#       发表于 2021-10-5 20:43
+
+
+煎饼果子就是咸味可丽饼呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 1077#       发表于 2021-10-5 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005196&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-5 20:36</a>
+
+鲤鱼夺笋啊</blockquote>
+不要太过分了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 1078#       发表于 2021-10-5 20:50
+
+
+ 本帖最后由 待宵 于 2021-10-5 20:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005164&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-5 20:33</a>
+
+其实我也挺不爽那些要求换c的校友，尤其是那个“表现欲太强了有点怪”的奇怪理由我是不能接受的 ...</blockquote>
+排除上帝视角的情况下
+
+
+同学看到的是，可香组合刚成立live一战成名之后，堇就冒出来抢部长；张口闭口老娘在演艺圈混过的
+
+而且虽说堇本质是六边形战士，但这集她们自己也评论过，好比别人有一项是5，她全能力4，这样哪里都不突出
+
+
+这种做派路人能对她有好感才怪啦
+
+
+*****
+
+####  saglork  
+##### 1079#       发表于 2021-10-5 20:51
+
+
+包裹油炸制品的咸味可丽饼最好理解吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 1080#       发表于 2021-10-5 20:52
+
+
+<blockquote>待宵 发表于 2021-10-5 20:50
+排除上帝视角的情况下
+
+
+同学看到的是，可恋组合刚成立live一战成名之后，堇就冒出来抢部长；张口闭口老娘 ...</blockquote>
+可香看来确实亡了，都给记成可恋了（
+
+
+
+
+*****
+
+####  待宵  
+##### 1081#       发表于 2021-10-5 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005439&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-5 20:52</a>
+
+可香看来确实亡了，都给记成可恋了（</blockquote>
+你得给个让我编辑的机会啊
+
+
+*****
+
+####  saglork  
+##### 1082#       发表于 2021-10-5 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005402&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-5 20:50</a>
+排除上帝视角的情况下
+
+
+同学看到的是，可香组合刚成立live一战成名之后，堇就冒出来抢部长；张口闭口老娘 ...</blockquote>
+学校这个小圈子里的评价，人缘是最重要的，就堇平时那个行为模式，她跟香音和恋根本没法比的，人家看着不顺眼想换c太正常了
+就算不考虑这个，里面评论的逻辑也大致说得通，本质就是堇对c位在意到魔怔，拍的那段视频很有可能是过度表现的，路人觉得不好很正常
+
+
+*****
+
+####  光宗薫  
+##### 1083#       发表于 2021-10-5 20:59
+
+
+团结是政治正确，支持队友义不容辞，就算是你唐可可如果真因为堇C导致回国，也不许有情绪懂不懂<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1084#       发表于 2021-10-5 21:02
+
+
+主要是恋写崩了，而且恋恋还没有团队主导权，比堇还惨，五角星变成四边形的不稳定状态。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
