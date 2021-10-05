@@ -12996,3 +12996,25 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 说起配音，我是真的佩服鲤鱼，第一个ll企划的纯外国人，第一次配音就是非母语，而且还是个用各种怪腔怪调说话的角色，成品ok到这种地步，听tokyofm广播里说鲤鱼在台本上做了很多笔记，真的是很下功夫了，不服不行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  midearth  
+##### 1015#       发表于 2021-10-5 11:18
+
+
+可可打电话虽然还是有点吊嗓子，但还是挺自然的，尤其跟后面几个人说话一比
+
+最后成品哪里rap了
+
+
+*****
+
+####  cybernetics31  
+##### 1016#       发表于 2021-10-5 11:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文部分大概只能怪菜宝了（bushi
+
+
