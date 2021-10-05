@@ -14528,3 +14528,78 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海土著真的有必要去日本镀一层留学生的金吗
 
 
+
+
+*****
+
+####  Gooddays  
+##### 1139#       发表于 2021-10-6 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006173&amp;ptid=2028598" target="_blank">renkan119 发表于 2021-10-5 21:48</a>
+等下 这段是小千在念评论啊 怎么变成小千说要换C了…</blockquote>
+因为小千念完后神色平静没有表示吧，让人感到即使她没有讚成，但同时也没有反对。这种态度已接近 “评论中提议有研究的价值” 了，可以平淡面对队友被狠批便代表小千感到评论 “有道理”，既然有道理那很容易为了团队未来真的拿来讨论。
+
+
+*****
+
+####  chenflyyy  
+##### 1140#       发表于 2021-10-6 00:07
+
+
+可可设定不是混血吗，不是纯的上海人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+话说应该有母方的亲戚在日本这边吧，到现在还没出现过，不知道后面会不会有
+
+
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 1141#       发表于 2021-10-6 00:14
+
+
+[https://www.bilibili.com/video/BV1qQ4y1676D](https://www.bilibili.com/video/BV1qQ4y1676D)
+
+油库里考察第10集・感受到可堇羁绊的超尊描写整理
+
+
+*****
+
+####  黑雪姫  
+##### 1142#       发表于 2021-10-6 00:18
+
+
+ 本帖最后由 黑雪姫 于 2021-10-6 00:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53008020&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-6 00:07</a>
+
+可可设定不是混血吗，不是纯的上海人
+
+话说应该有母方的亲戚在日本这边吧，到现在还没出现过，不知道 ...</blockquote>
+虽然可可设定是中日1/2混血，但比隔壁只会句哈拉哨和扇你以及某纯血瑞士人的外国人属性要强太多了。
+
+
+完全看不出来是混血，就一纯纯的中国小妞。
+
+
+另外香音也是混血，也看不出来吧。
+
+
+同样是1/4混血，某人还能整句哈拉哨，还能回忆下在西伯利亚的外婆。
+
+
+而加农有啥西班牙元素吗？也就吉他勉强算一个吧。
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 1143#       发表于 2021-10-6 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005678&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-5 21:09</a>
+
+反正我是挺不理解国内某些魔怔人老抓着唐可可不放，10话都播完有事没事提霸凌，人家日本网右黑黑中 ...</blockquote>
+不就是饭圈毒唯那一套思想呗，“感同身受”“虐粉”然后提纯，想想就反胃
+
+

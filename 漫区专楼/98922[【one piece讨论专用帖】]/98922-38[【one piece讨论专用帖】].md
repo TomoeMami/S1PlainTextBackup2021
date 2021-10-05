@@ -3478,3 +3478,18 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 用自己最讨厌的方式变强 最后还是靠血统<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  天使的日曜日  
+##### 55750#       发表于 2021-10-6 00:18
+
+
+肉身扛断了三灾的武器，骨头断了直接恢复
+
+集力量，防御、速度、隐身，高再生力为一体
+
+这这这，真六边形战士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
