@@ -15101,3 +15101,14 @@ LOL这赛季11月10号到头，上次Rank都是7月了，感觉应该不打了
 这次好好的让寿星站了C位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 13279#       发表于 2021-10-5 22:52
+
+
+还是三才好说话，估计只要是绫总提的什么都能答应
+
+

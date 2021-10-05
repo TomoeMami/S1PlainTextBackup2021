@@ -19794,3 +19794,28 @@ oreapo厄介喜加一，谢谢你，千草<img src="https://static.saraba1st.com
 明年保底三块金盾吧
 
 
+
+
+*****
+
+####  fastary  
+##### 7433#       发表于 2021-10-5 22:54
+
+
+ 本帖最后由 fastary 于 2021-10-5 23:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006793&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-10-5 22:25</a>
+
+黛噶吃へ
+
+やみえん又要跑团咯
+
+瓦塔西より</blockquote>
+谢谢，我刚刷推看到了（哭
+
+想加鹅点成回复了还是再加点啥
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">，ymen是生活吧……
+
+
+至少他还是虹信一天大概还会当黛灰一天，也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
