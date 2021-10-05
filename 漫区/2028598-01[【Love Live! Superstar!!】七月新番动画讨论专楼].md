@@ -13406,3 +13406,25 @@ bd1 14514，插2 25989，都很一般</blockquote>
 不过话又说回来，星比起虹国内这次bd贡献还是可以的，看到好多人都买了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 1047#       发表于 2021-10-5 17:18
+
+
+国内买bd再多的能有个100就算很不错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+插1倒是真的不少，当时算了下淘宝几个大店的销量，加起来差不多1000了
+我目前就买了cd，bd暂时不考虑（太贵
+
+
+*****
+
+####  cybernetics31  
+##### 1048#       发表于 2021-10-5 17:21
+
+
+国内买bd算是真爱粉了 那价格 而且又去不了live 不过把券卖了是能回点血
+
+
