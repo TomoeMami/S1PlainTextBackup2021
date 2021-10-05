@@ -12985,3 +12985,14 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 感觉这类的电影有更多的商业考量吧，声优到底是为了配合其他演员的演技还是都是导演的喜好这个就不知道了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  player3960  
+##### 1014#       发表于 2021-10-5 10:15
+
+
+说起配音，我是真的佩服鲤鱼，第一个ll企划的纯外国人，第一次配音就是非母语，而且还是个用各种怪腔怪调说话的角色，成品ok到这种地步，听tokyofm广播里说鲤鱼在台本上做了很多笔记，真的是很下功夫了，不服不行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+

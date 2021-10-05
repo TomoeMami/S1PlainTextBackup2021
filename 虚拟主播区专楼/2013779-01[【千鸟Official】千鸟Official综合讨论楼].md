@@ -5389,3 +5389,14 @@ coco感觉还没下定决心当皮套人，过于自我了，估计文静画饼�
 而且艾瑞思和艾白游戏回太折磨了
 
 
+
+
+*****
+
+####  夜潇箫  
+##### 473#       发表于 2021-10-5 10:17
+
+
+艾瑞思就不属于那种会玩游戏的人。文静也是，一打游戏，就顾不上看弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
