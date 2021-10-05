@@ -14603,3 +14603,17 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 不就是饭圈毒唯那一套思想呗，“感同身受”“虐粉”然后提纯，想想就反胃
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1144#       发表于 2021-10-6 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53008175&amp;ptid=2028598" target="_blank">Pumpkin_ccc 发表于 2021-10-6 00:24</a>
+
+不就是饭圈毒唯那一套思想呗，“感同身受”“虐粉”然后提纯，想想就反胃，也不知怎么就招惹上这群人的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么叫招惹 拉拉难道不一直是饭圈吗
+
+
