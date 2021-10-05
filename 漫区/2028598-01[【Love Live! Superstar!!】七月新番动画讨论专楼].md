@@ -12881,3 +12881,20 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 好耳熟，这是小神龙俱乐部还是艺术创想里面的常见台词来着？
 
 
+
+
+*****
+
+####  welcom  
+##### 1006#       发表于 2021-10-5 08:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52995051&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-4 21:55</a>
+
+应该还是要一定程度上改歌曲创作，不然很难刷人
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅 ...</blockquote>
+嗯，指的是一些人之前非要追求的比较正式的RAP要素，连HIMADO都一堆弹幕说后面的LIVE的RAP要素就开头那点，问题是这地区预选又不是要正式创作RAP........
+
+
