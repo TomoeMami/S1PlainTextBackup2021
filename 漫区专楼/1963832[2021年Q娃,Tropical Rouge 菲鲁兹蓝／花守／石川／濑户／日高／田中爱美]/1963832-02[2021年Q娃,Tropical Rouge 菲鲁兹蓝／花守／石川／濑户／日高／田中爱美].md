@@ -9656,3 +9656,18 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 2021-10-5 19:27 上传
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2204#       发表于 2021-10-5 21:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53004336&amp;ptid=1963832" target="_blank">hgcg-ix 发表于 2021-10-5 19:27</a>
+33集居然是一集讲十个故事？</blockquote>
+会不会是什么实验短篇合集
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

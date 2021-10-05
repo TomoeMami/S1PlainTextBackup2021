@@ -13892,3 +13892,72 @@ bd1 14514，插2 25989，都很一般</blockquote>
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  kbtit  
+##### 1085#       发表于 2021-10-5 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我是挺不理解国内某些魔怔人老抓着唐可可不放，10话都播完有事没事提霸凌，人家日本网右黑黑中国人也就算了，好歹自家人，得饶人处且饶人啊
+
+
+*****
+
+####  待宵  
+##### 1086#       发表于 2021-10-5 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005576&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-5 21:02</a>
+
+主要是恋写崩了，而且恋恋还没有团队主导权，比堇还惨，五角星变成四边形的不稳定状态。
+
+
+—— 来自 Xiaomi ...</blockquote>
+堇个性张扬就算被黑了好几集好歹存在感强和可可的互怼就没停过，恋自从解开心结入队后就空气化了，这集还在别人秀Rap时唱起和歌，这表现多少有点大脑短路<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gooddays  
+##### 1087#       发表于 2021-10-5 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53004905&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-5 20:14</a>
+为千砂都辩解的真的不是在黑她吗？功利厨难道是什么好词，之前国内不也是黑唐可可太功利了老是给 ...</blockquote>
+只有一次机会的情况下功利厨便是好词，除非自身实力过硬赢面压倒性地大，否则重要决定上不谈功利那便相等于放弃比赛了。当然也不能排除对手也有自身问题，最后靠强运过关，但重要比赛无视功利只靠赌运便完全不靠谱，更不要说星团当中有两人只要比赛失败便退学的情况，连学校也可能不再存在，她们是真真正正只有这次机会了，可能没有下年再挑战的选择。
+
+
+*****
+
+####  cqc1021  
+##### 1088#       发表于 2021-10-5 21:17
+
+
+ 本帖最后由 cqc1021 于 2021-10-5 21:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005119&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-5 20:31</a>
+
+『週刊プレイボーイ no.42』（10/4発売号）「次世代美少女」特集什么鬼排行榜
+
+ ...</blockquote>
+<img src="http://wx2.sinaimg.cn/large/001xWjdXly1gv3ru7bipnj60u016gaoe02.jpg" referrerpolicy="no-referrer">
+
+补一张高清图
+
+日本的多到爆的各种野鸡排名之一
+
+前面39个里还有些小有名气的演员和偶像，而且都有写年龄，均未超过20岁
+
+你鲤鱼姐怕不是其中最大龄的美“少”女<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 1089#       发表于 2021-10-5 21:23
+
+
+依稀记得逢田姐还被叫过声优界最高美女
+
+
