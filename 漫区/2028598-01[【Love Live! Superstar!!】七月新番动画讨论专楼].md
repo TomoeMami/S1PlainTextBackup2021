@@ -12909,3 +12909,16 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 这集好评率多少？
 
 
+
+
+*****
+
+####  Norkey1  
+##### 1008#       发表于 2021-10-5 08:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52997029&amp;ptid=2028598" target="_blank">Dark_Zagi 发表于 2021-10-5 01:02</a>
+棒读？我只觉得很亲切，和我自己打电话的语气一模一样</blockquote>
+如果你听动画配音能和你现实中说话一摸一样，那说明这配音配的很业余…
+
+
