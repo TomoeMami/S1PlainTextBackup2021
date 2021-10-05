@@ -3946,3 +3946,19 @@ pc版网络好像有问题，我ps打日本人都挺流畅的，买了pc版的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁ggst的pc版倒是经常因为双方的电脑配置问题造成明明是个位数的延迟但是打起来却是一边觉得流畅，另一边回滚7帧这种可怕的情况，可能和你们这种类似？
 
 
+
+
+*****
+
+####  ロラン・ローラ  
+##### 321#       发表于 2021-10-5 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52997609&amp;ptid=2026924" target="_blank">噗呸破屁诚 发表于 2021-10-5 02:59</a>
+
+隔壁ggst的pc版倒是经常因为双方的电脑配置问题造成明明是个位数的延迟但是打起来却是一边觉得流 ...</blockquote>
+有这种可能……
+
+只能等主机版降价再买一份了
+
+
