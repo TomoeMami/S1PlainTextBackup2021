@@ -19713,3 +19713,14 @@ M13：Time goes by（文野環）
 kmt事到如今了怎么突然杞忧，hnn的态度反而像男方，草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Junchoon  
+##### 7426#       发表于 2021-10-5 13:15
+
+
+Sasaki拿到银河战士提前预览了，恭喜。
+
+
