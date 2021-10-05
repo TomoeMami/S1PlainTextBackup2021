@@ -14001,3 +14001,78 @@ bd1 14514，插2 25989，都很一般</blockquote>
 51-56位是声优
 
 
+
+
+*****
+
+####  凡人  
+##### 1092#       发表于 2021-10-5 21:44
+
+
+管人是怎么排的，看皮的质量？
+
+
+*****
+
+####  CharlieZ-  
+##### 1093#       发表于 2021-10-5 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53005402&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-5 20:50</a>
+
+排除上帝视角的情况下
+
+
+同学看到的是，可香组合刚成立live一战成名之后，堇就冒出来抢部长；张口闭口老娘 ...</blockquote>
+就冲那做了100个深蹲还能转圈接东西不喘气的能力，怎么看也得是个大六边形<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  renkan119  
+##### 1094#       发表于 2021-10-5 21:48
+
+
+<blockquote>saya1892 发表于 2021-10-5 19:13
+日本人的逻辑是这样的，LL剧中世界对堇太残酷了，没有气场导致全员漠视她
+
+这集解决了可可的问题，但「小 ...</blockquote>
+等下 这段是小千在念评论啊 怎么变成小千说要换C了…
+
+
+*****
+
+####  kbtit  
+##### 1095#       发表于 2021-10-5 21:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hololive感觉是事务所推的吧，毕竟管人也算“网红”
+
+
+*****
+
+####  chenflyyy  
+##### 1096#       发表于 2021-10-5 21:50
+
+
+日本这种野鸡排名太多，看着图一乐就行，别认真<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 1097#       发表于 2021-10-5 21:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看fc动态，阿鱼又在怀念家乡的喜茶了(
+
+
+*****
+
+####  chenflyyy  
+##### 1098#       发表于 2021-10-5 22:00
+
+
+战吧星销量那帖一群虹人（虹杂？）在那yygq的，都快要打起来了，何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

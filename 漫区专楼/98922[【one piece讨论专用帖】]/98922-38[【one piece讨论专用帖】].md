@@ -3398,3 +3398,14 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 卡翻页了，naive！
 
 
+
+
+*****
+
+####  yeluffy  
+##### 55743#       发表于 2021-10-5 21:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看这情报，政府已经默认凯多败定了可以接收和之国？
+
+
