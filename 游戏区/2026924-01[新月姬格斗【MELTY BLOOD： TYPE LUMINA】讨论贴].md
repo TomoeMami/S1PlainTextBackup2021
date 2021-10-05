@@ -3962,3 +3962,25 @@ pc版网络好像有问题，我ps打日本人都挺流畅的，买了pc版的�
 只能等主机版降价再买一份了
 
 
+
+
+*****
+
+####  modkingr  
+##### 322#       发表于 2021-10-6 02:27
+
+
+他这个升段的指标看的是什么啊
+
+
+*****
+
+####  红魔馆的糖  
+##### 323#       发表于 2021-10-6 02:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53008863&amp;ptid=2026924" target="_blank">modkingr 发表于 2021-10-6 02:27</a>
+他这个升段的指标看的是什么啊</blockquote>
+和水平相近或者以上的人打的胜利数吧，连胜多了就升段了
+
+
