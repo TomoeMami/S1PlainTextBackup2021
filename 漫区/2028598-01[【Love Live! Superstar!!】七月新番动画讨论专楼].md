@@ -13503,3 +13503,73 @@ bd1 14514，插2 25989，都很一般</blockquote>
 当然有啊，还有虹厨专门开贴庆祝星团爆死呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  JustW  
+##### 1055#       发表于 2021-10-5 19:06
+
+
+5ch啥没有，在乎他们就输了
+
+
+*****
+
+####  黑雪姫  
+##### 1056#       发表于 2021-10-5 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53003895&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-5 18:40</a>
+现在拉板黑星团的人成分都被划成虹厨，至少销量帖里是这样
+
+至于专门的可黑当然有不少，但10话之后现在日本 ...</blockquote>
+这集千咋了？
+
+
+*****
+
+####  saya1892  
+##### 1057#       发表于 2021-10-5 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53003910&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-5 18:42</a>
+
+这集千咋了感觉没啥黑点啊</blockquote>
+日本人的逻辑是这样的，LL剧中世界对堇太残酷了，没有气场导致全员漠视她
+
+这集解决了可可的问题，但「小千因为同学的反对意见而提出要不要换C」这件事他们认为更严重
+
+当然也有辩解，说小千是失败了就要出国的极度重视结果的效率厨，所以万事以达成目的优先（包括2话的借壳上市），堇C如果导致不能取得好结果对她来说不可接受，所以这次让她来黑脸
+
+
+当然同时还一并骂了那些对堇低评价的校友，不过也有人认为这是堇没有自信导致试拍视频太紧张没发挥好导致的
+
+
+*****
+
+####  AlfredXC  
+##### 1058#       发表于 2021-10-5 19:14
+
+
+いいよ、鯉よ
+
+<img src="https://img.saraba1st.com/forum/202110/05/191254k70yk5qd2rcik2l5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>a14c1f46f21fbe098b99c4f82e600c338544ad9b.jpg</strong> (169.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 19:12 上传
+
+
+*****
+
+####  kata魂  
+##### 1059#       发表于 2021-10-5 19:15
+
+
+草，小千这个我是真没想到，还是日本人会玩
+
+
