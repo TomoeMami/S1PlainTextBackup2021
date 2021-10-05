@@ -13254,3 +13254,37 @@ bd1 14514，插2 25989，都很一般</blockquote>
 意料之中，，不算大卖也不算是拉   
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 1033#       发表于 2021-10-5 16:38
+
+
+这不是比虹还拉吗
+
+
+*****
+
+####  寒风夜  
+##### 1034#       发表于 2021-10-5 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53002732&amp;ptid=2028598" target="_blank">AlfredXC 发表于 2021-10-5 16:38</a>
+
+这不是比虹还拉吗</blockquote>
+要是出道才半年就卖过了虹，虹也太拉了。。
+
+
+*****
+
+####  寒风夜  
+##### 1035#       发表于 2021-10-5 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53002732&amp;ptid=2028598" target="_blank">AlfredXC 发表于 2021-10-5 16:38</a>
+
+这不是比虹还拉吗</blockquote>
+
+
