@@ -17248,3 +17248,20 @@ ECA62661-747A-4A20-8E72-8A0A84C5A38F.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  红丽  
+##### 83936#       发表于 2021-10-5 09:16
+
+
+宙斯这张终于快打完了
+
+最恶心的竟然是打宙斯，大概试了四五把才过
+
+fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都是过气网红也能打过
+
+一开始卡住了去拉了个310的始皇帝，后来发现根本用不到……有场靠70级的二姐也戳过了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+

@@ -3341,3 +3341,14 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">大概作者想画的东西太多了
 
 
+
+
+*****
+
+####  天使的日曜日  
+##### 55738#       发表于 2021-10-5 09:15
+
+
+作者太大牌管不住了，尾田的编辑可能都是看海贼长大的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+

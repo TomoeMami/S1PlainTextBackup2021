@@ -12922,3 +12922,28 @@ BD1的发售活动live叔叔那有了，看着入坑歌私のsymphony那个无�
 如果你听动画配音能和你现实中说话一摸一样，那说明这配音配的很业余…
 
 
+
+
+*****
+
+####  lyflyflxf  
+##### 1009#       发表于 2021-10-5 09:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52998293&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-5 08:57</a>
+
+如果你听动画配音能和你现实中说话一摸一样，那说明这配音配的很业余… ...</blockquote>
+宫崎骏点了个踩
+
+
+*****
+
+####  Norkey1  
+##### 1010#       发表于 2021-10-5 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52998349&amp;ptid=2028598" target="_blank">lyflyflxf 发表于 2021-10-5 09:09</a>
+宫崎骏点了个踩</blockquote>
+宫崎骏的电影很大一部分也不是请专业声优来配的…所以才能听出来棒读，这个是他的喜好吧
+
+
