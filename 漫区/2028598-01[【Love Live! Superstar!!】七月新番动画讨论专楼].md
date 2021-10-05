@@ -13465,3 +13465,41 @@ bd1 14514，插2 25989，都很一般</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不怎么逛5ch，日本也有所谓的虹杂星畜吗
 
 
+
+
+*****
+
+####  优妮可  
+##### 1052#       发表于 2021-10-5 18:51
+
+
+<img src="https://img.saraba1st.com/forum/202110/05/185130fllxtjo8vczhz8jq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211005_181218.jpg</strong> (244.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-5 18:51 上传
+
+
+*****
+
+####  稀勢のささ  
+##### 1053#       发表于 2021-10-5 18:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那anti串我翻了下不少是直接一转中国人如何如何的 这种意见有啥价值
+
+
+*****
+
+####  saglork  
+##### 1054#       发表于 2021-10-5 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53003937&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-5 18:45</a>
+不怎么逛5ch，日本也有所谓的虹杂星畜吗</blockquote>
+当然有啊，还有虹厨专门开贴庆祝星团爆死呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
