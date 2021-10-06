@@ -18152,3 +18152,53 @@ ns云游戏版独占服装
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算不上铁证吧.....狒狒7那几个weapon觉醒后也不是必打的啊......
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 5839#       发表于 2021-10-6 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53015855&amp;ptid=1860328" target="_blank">Dai-Dai-Dai-Dai 发表于 2021-10-6 20:31</a>
+
+看过场动画特意给楔子散开的镜头，op2楔子全员出场，看着就像是主线，很难让人不误会。只能说是流程被砍的 ...</blockquote>
+看那五个楔子散开的样子，我还以为接下来要打高达W呢
+
+
+*****
+
+####  alucardcz  
+##### 5840#       发表于 2021-10-6 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53015930&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-10-6 20:37</a>
+
+算不上铁证吧.....狒狒7那几个weapon觉醒后也不是必打的啊......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有op1 那几个球转圈 转到火拔出一把剑 不知道设计这动画啥意思  这不是让人误解能拔5属性的剑吗！
+
+
+*****
+
+####  hypnossz86  
+##### 5841#       发表于 2021-10-6 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53016433&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-10-6 21:18</a>
+还有op1 那几个球转圈 转到火拔出一把剑 不知道设计这动画啥意思  这不是让人误解能拔5属性的剑吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没准吧，搞不好企划初是打败一个领将就能把球塞进希农里边，然后就能拔其他属性武器...
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5842#       发表于 2021-10-6 21:21
+
+
+楔子那几只怪没放在主线里我是真没想到
+
+通关重看op的时候才注意到怎么这么多没见过的大怪
+
+不过如果放进主线应该放在上星舟前吧？这样又感觉流程有点长了
+
+
