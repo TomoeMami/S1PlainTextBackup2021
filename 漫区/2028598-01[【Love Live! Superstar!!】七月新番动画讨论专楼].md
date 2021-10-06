@@ -15721,3 +15721,47 @@ S1有没有拉拉群不清楚，前面楼里我推荐过一个氛围不错的NO.
 11集和12集的剧情有且仅有可能是可可回，并且仅有可能是某种原因导致的可可心态爆炸，并且将其拉出来的绝对是以立德为首的全队人。请叫我未来战士👿👿👿
 
 
+
+
+*****
+
+####  lj205  
+##### 1235#       发表于 2021-10-6 21:46
+
+
+带了一天孩子错过生放，求好心人告诉今天有没药磕
+
+
+*****
+
+####  名津流  
+##### 1236#       发表于 2021-10-6 21:57
+
+
+ 本帖最后由 名津流 于 2021-10-6 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53016798&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-6 21:46</a>
+
+带了一天孩子错过生放，求好心人告诉今天有没药磕</blockquote>
+乐子还是不少的，直播事故非常频繁
+
+不过药和糖反倒不多，本来nako请假pay和liyuu占中了间两席，一堆人等着看鲤P糖，结果意外的没太多可吃的
+
+
+*****
+
+####  Piano-Forest  
+##### 1237#       发表于 2021-10-6 21:59
+
+
+[https://twitter.com/shimo_ushi/status/1445365149242515461](https://twitter.com/shimo_ushi/status/1445365149242515461)
+<img src="https://p.sda1.dev/2/d3b9e8776fb9aa9c4df337ba272baf41/20211006_215848.jpg" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/detail/4688741531386027](https://m.weibo.cn/detail/4688741531386027)
+<img src="https://p.sda1.dev/2/1b04094cd24ee1792db710f0713003a9/77a2d531ly1gv3rkiku14j20pg0u00zp.jpg" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/detail/4689372069235644](https://m.weibo.cn/detail/4689372069235644)
+
+趁着自己热情还未消减画个条漫，感觉可可无论怎样还是会担心能不能突破预选赛，毕竟很懂留学生是要多难才能说服家里让自己出国，于是在登台之前加了这样的小桥段w 可堇赛高
+<img src="https://p.sda1.dev/2/3a7da343035a77278580b43b92ec8e8a/002bPQ2dly1gv5rvyefkej60rs48ohdt02.jpg" referrerpolicy="no-referrer">
+
+
