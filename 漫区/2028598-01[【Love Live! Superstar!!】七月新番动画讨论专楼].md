@@ -15308,3 +15308,72 @@ https://www.bilibili.com/video/BV18h4 ...</blockquote>
 风怒
 
 
+
+
+*****
+
+####  kata魂  
+##### 1197#       发表于 2021-10-6 19:03
+
+
+pay的卷发看着还挺新鲜的，不知道跳起来会是什么效果
+
+
+*****
+
+####  chenflyyy  
+##### 1198#       发表于 2021-10-6 19:05
+
+
+今天耍宝都没人吐槽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 1199#       发表于 2021-10-6 19:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么 今天不是可堇吗 怎么心里想着的是可香
+
+
+*****
+
+####  Norkey1  
+##### 1200#       发表于 2021-10-6 19:14
+
+
+nako不在无法顺利完成生放的四人.jpg
+
+
+
+
+*****
+
+####  kata魂  
+##### 1201#       发表于 2021-10-6 19:15
+
+
+nako这个家不能没有你啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 1202#       发表于 2021-10-6 19:16
+
+
+这波nako来全吐槽完了
+
+
+*****
+
+####  普之舜舜  
+##### 1203#       发表于 2021-10-6 19:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个煎饼果子是不是要来呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
