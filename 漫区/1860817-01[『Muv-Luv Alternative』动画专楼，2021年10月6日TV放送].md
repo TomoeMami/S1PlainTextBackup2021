@@ -9855,3 +9855,439 @@ Blu-ray Box Ⅱ ※数量限定生産版 武御雷クリアーVer.プラモデ�
 第一话这个佐渡岛原创的好处就是把之后12-5的感情上的源头给讲了
 
 
+
+
+*****
+
+####  KOPKOM  
+##### 669#         楼主| 发表于 2021-10-7 01:52
+
+
+第一集质量比想象的好，就不知道后面会不会崩了，小孩那段有点莫名，是怎么躲过beta的生物感知的啊？
+
+
+*****
+
+####  桧月彩花  
+##### 670#       发表于 2021-10-7 01:55
+
+
+这个第一话的画面，肉眼可见的贫穷，而且槽点略多。。
+
+
+那么大块水泥没有地基的吗？
+
+就算是作为重力坝，在内侧也应该有斜坡啊？至少放一排作为支撑啊？
+
+而且好几个镜头既视感那么强，搁这儿致敬巨人第一话吗？
+
+音乐的选择也很迷，不知道是不是监督的品味
+
+舰炮三个管，每次只有中间那根开火
+
+
+我是不应该要求太高，但这也拉胯到一定地步了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 671#       发表于 2021-10-7 01:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019184&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-10-7 01:52</a>
+
+第一集质量比想象的好，就不知道后面会不会崩了，小孩那段有点莫名，是怎么躲过beta的生物感知的啊？ ...</blockquote>
+剧情安排剧情安排，这种小bug其实很难说怎么看
+
+最后驹木一行撤退时的舰炮掩护其实也算bug吧，光线级都已经登岛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 672#       发表于 2021-10-7 01:59
+
+
+ 本帖最后由 再买自检星剁手 于 2021-10-7 02:04 编辑 
+
+观感意外地还行
+
+
+保护墙各种巨人既视感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+开场就黑屁美国，一本满足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+制作水准能保持的话有+1的潜力<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hacisiki  
+##### 673#       发表于 2021-10-7 02:02
+
+
+第一集开头红旗作战不配有姓名么Hhh
+
+
+*****
+
+####  再买自检星剁手  
+##### 674#       发表于 2021-10-7 02:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019184&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-10-7 01:52</a>
+
+第一集质量比想象的好，就不知道后面会不会崩了，小孩那段有点莫名，是怎么躲过beta的生物感知的啊？ ...</blockquote>
+设定上战车级的牙齿可是不怕这种金属柜子的
+
+
+这一段应该是为了情节吃书了，强行解释的话就是驹木搜查幸存者的时候，beta还没啃柜子就被清干净了
+
+
+*****
+
+####  hacisiki  
+##### 675#       发表于 2021-10-7 02:04
+
+
+开场的渔业也很奇怪= =不是都是使用大型捕捞平台加工鱼肉糜的同时回收富集的重金属了么。。。。。
+
+
+*****
+
+####  hacisiki  
+##### 676#       发表于 2021-10-7 02:05
+
+
+另外队里的双马尾有点多哦。
+
+
+*****
+
+####  再买自检星剁手  
+##### 677#       发表于 2021-10-7 02:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019229&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-7 02:04</a>
+
+开场的渔业也很奇怪= =不是都是使用大型捕捞平台加工鱼肉糜的同时回收富集的重金属了么。。。。。 ...</blockquote>
+小农自己捞鱼卖钱也很正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yone0000  
+##### 678#       发表于 2021-10-7 02:12
+
+
+和TE一样先放一部外传补充世界观，不过佐渡岛的时候就有要塞级吐光线级的记录了吗，我记得本篇的时候大家还惊讶了一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  剑布衣  
+##### 679#       发表于 2021-10-7 02:22
+
+
+还行啊其实，只要不期待就会有惊喜
+
+
+*****
+
+####  再买自检星剁手  
+##### 680#       发表于 2021-10-7 02:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019253&amp;ptid=1860817" target="_blank">yone0000 发表于 2021-10-7 02:12</a>
+和TE一样先放一部外传补充世界观，不过佐渡岛的时候就有要塞级吐光线级的记录了吗，我记得本篇的时候大家还 ...</blockquote>
+只能说扣设定的话有很多穿帮情节。
+
+这里可以解释成这一情报在当时没有向上报告，后来基地守卫战会不会再惊讶一次不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  hacisiki  
+##### 681#       发表于 2021-10-7 02:31
+
+
+这防御墙看着真让人绝望，就光溜溜的一座hhhhh
+
+
+*****
+
+####  再买自检星剁手  
+##### 682#       发表于 2021-10-7 02:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019290&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-7 02:31</a>
+这防御墙看着真让人绝望，就光溜溜的一座hhhhh</blockquote>
+要不围一圈，再分个maria rose sina三层<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  天剑流星  
+##### 683#       发表于 2021-10-7 02:48
+
+
+第一集观感真的挺不错的，除非部分剧情有些强行以外可以说是符合预期了，最大的遗憾还是3d的beta吧，感觉还是差点味
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 684#       发表于 2021-10-7 02:49
+
+
+这避难所也太豆腐/渣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 685#       发表于 2021-10-7 02:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019322&amp;ptid=1860817" target="_blank">天剑流星 发表于 2021-10-7 02:48</a>
+第一集观感真的挺不错的，除非部分剧情有些强行以外可以说是符合预期了，最大的遗憾还是3d的beta吧，感觉还 ...</blockquote>
+beta怎么着也称不上最大遗憾，原作游戏里beta就长这样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  天剑流星  
+##### 686#       发表于 2021-10-7 02:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019331&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-7 02:53</a>
+beta怎么着也称不上最大遗憾，原作游戏里beta就长这样
+
+—— 来自 OnePlus HD1905, Android 11上 ...</blockquote>
+毕竟本身预期就已经很低了，主要是复制粘贴3d建模还是差点味，毕竟游戏和动画还是不能一概而论的，不太好形容这种感觉，还有一点就是画面整体偏亮，导致实际观感有点像beta春游
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hacisiki  
+##### 687#       发表于 2021-10-7 03:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019308&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-7 02:40</a>
+
+要不围一圈，再分个maria rose sina三层
+
+
+—— 来自 OnePlus HD1905, Android 11上的 S1Next-鹅版 ...</blockquote>
+不不不，从军事意义上来说两侧不布置侧射火力么= =居然要用机动兵力清理墙下死角hhhhh
+
+
+*****
+
+####  hacisiki  
+##### 688#       发表于 2021-10-7 03:06
+
+
+另外那个能上坦克的一推就倒的第二道防护墙把我看囧了……………………
+
+
+*****
+
+####  阿虚家的三味  
+##### 689#       发表于 2021-10-7 03:08
+
+
+好几个cut都是后面名场面复刻，那么早就用一遍后面怎么办哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hacisiki  
+##### 690#       发表于 2021-10-7 03:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019370&amp;ptid=1860817" target="_blank">阿虚家的三味 发表于 2021-10-7 03:08</a>
+
+好几个cut都是后面名场面复刻，那么早就用一遍后面怎么办哦</blockquote>
+所以这次的CUT全是男性hhhh到时候换美少女就完事了。
+
+
+
+
+*****
+
+####  hlazd  
+##### 691#       发表于 2021-10-7 03:12
+
+
+ 本帖最后由 hlazd 于 2021-10-7 03:15 编辑 
+
+深井涼介@fpworks
+
+アニメ、#マブラヴ オルタネイティヴへキャラクターデザイン協力で参加させて頂きました。
+
+第１話の佐渡島で登場した女の子を担当していますのでぜひご視聴ください！#マブラヴアニメ
+[https://twitter.com/fpworks/status/1445795640177356810](https://twitter.com/fpworks/status/1445795640177356810)
+
+<img src="https://img.saraba1st.com/forum/202110/07/031229w2c2mv9nm9z9g697.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FBB_TfnUUAwGoNV.jpg</strong> (330.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-7 03:12 上传
+
+
+*****
+
+####  再买自检星剁手  
+##### 692#       发表于 2021-10-7 03:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019356&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-7 03:05</a>
+不不不，从军事意义上来说两侧不布置侧射火力么= =居然要用机动兵力清理墙下死角hhhhh ...</blockquote>
+突击级beta需要炸屁股才好使，也是为了让战术机出场啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+原本设定里战术机是干要塞级，重光线级等大家伙。动画里除了海军完全没有常规部队的戏份呐
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  zet  
+##### 693#       发表于 2021-10-7 03:14
+
+
+光线级我记得是后来才变强的吧，刚出场时还没那么bug
+
+干脆就全部原创算了，这制作质量有点提不起劲，比我预想的还要差。
+
+
+*****
+
+####  hlazd  
+##### 694#       发表于 2021-10-7 03:27
+
+
+ 本帖最后由 hlazd 于 2021-10-7 03:38 编辑 
+
+佐渡岛这个纵深，指望常规装甲部队不太现实（坦克没地方停那就请他们上墙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">），短时间内完成要塞化这种建墙的思路还是可取的，用地雷+水面舰艇火力+固定炮台火力削减beta数量，漏网登上滩头的交给战术机扫荡。
+片头也说了之前驻扎在佐渡岛的一个战术机大队被派去本土填补战线，要是beta不来他们这些留守部队也得被派过去。
+顺便这集里火力支援佐渡岛的第二舰队是4BB，甲21时是3BB而且小沢的旗舰是最上，这几年间也不知道是不是有过再编之类。
+
+
+*****
+
+####  hacisiki  
+##### 695#       发表于 2021-10-7 03:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019383&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-7 03:14</a>
+
+突击级beta需要炸屁股才好使，也是为了让战术机出场啊
+
+
+原本设定里战术机是干要塞级，重光线级等 ...</blockquote>
+知道，我熟。另外，有的哦。那个被要塞级压塌的城墙上面停了一排坦克hhhh。
+
+
+*****
+
+####  hacisiki  
+##### 696#       发表于 2021-10-7 03:30
+
+
+两边山顶应该各拆一组要塞区的127舰炮组件放在那边构筑一个阵地就会好很多。
+
+
+不过这个要塞的风格大家也能理解。EVA遗毒嘛，看起来威武雄壮。
+
+
+*****
+
+####  hacisiki  
+##### 697#       发表于 2021-10-7 03:37
+
+
+去地图上拉了一下，佐渡市海湾的最大宽度8公里左右，两侧山体上部署127速射阵地的话能比较容易的打到后半球的弱点区。用机械式舰炮阵地和光学瞄准的方式也能减少BETA前去攻击的机会。
+
+
+不过说到底岛上的工程兵们也不知道BETA什么时候从哪上陆hhhhh我只能说这个阵地修的不符合发扬火力的标准。
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 698#       发表于 2021-10-7 03:43
+
+
+上来就打beta其实处理的比原作好，第一集打斗和节奏也比隔壁境界战机好，机战整体都不错，如果像原作白银武在那里墨迹了大半天，后半段才终于见到beta长啥样，观众耐心都要磨没了
+
+说起来这第一集的人物我就记得舰队的人后面有出现，剩下好像全是原创人物啊，没啥印象了
+
+
+*****
+
+####  KOPKOM  
+##### 699#         楼主| 发表于 2021-10-7 03:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019446&amp;ptid=1860817" target="_blank">培根芝士蛋堡XD 发表于 2021-10-7 03:43</a>
+上来就打beta其实处理的比原作好，第一集打斗和节奏也比隔壁境界战机好，机战整体都不错，如果像原作白银武 ...</blockquote>
+眼睛娘是沙雾的副官
+
+
+*****
+
+####  アルメリア  
+##### 700#       发表于 2021-10-7 04:33
+
+
+小女孩后面还有戏份吗，感觉这人设比其他人至少领先一个世代
+
+
+*****
+
+####  最后的法芙娜  
+##### 701#       发表于 2021-10-7 04:50
+
+
+话说横滨都被g弹炸了，为何不直接在佐渡岛用，后面xb71自爆和弹有什么区别，难不成生死存亡了还讲政治正确？
+
+
+*****
+
+####  KOPKOM  
+##### 702#         楼主| 发表于 2021-10-7 04:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019511&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-7 04:50</a>
+
+话说横滨都被g弹炸了，为何不直接在佐渡岛用，后面xb71自爆和弹有什么区别，难不成生死存亡了还讲政治正确 ...</blockquote>
+
+AL4派和AL5派的博弈啊，AL5派一直主张直接上G弹的，但狐狸作为AL4派肯定不答应，奶黄包和00 unit算是AL4派的王牌了
+
+
+*****
+
+####  最后的法芙娜  
+##### 703#       发表于 2021-10-7 04:55
+
+
+班长父亲都是卖国贼了，干脆彻底点，请美国g弹炸了佐渡岛，这样最起码岛国会短期安全不少，不用高中没毕业就去当大头兵，而且还能拿点g元素和美国分享下，推进自己那个a4计划
+
+

@@ -3534,3 +3534,36 @@ u=2878724322,1205583567&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG&amp;amp;acc
 马尔科：？？？
 
 
+
+
+*****
+
+####  蔡卓妍  
+##### 55754#       发表于 2021-10-7 01:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53013175&amp;ptid=98922" target="_blank">hagane 发表于 2021-10-6 16:05</a>
+厨子：科技改变命运，我能再生（不怕海楼石
+
+马尔科：？？？</blockquote>
+还不怕暗暗果实，以后站着给美女打都不用喊罗宾救我～^_^
+
+
+*****
+
+####  gutzz  
+##### 55755#       发表于 2021-10-7 02:03
+
+
+op的科学技术才是第一生产力<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">血统相关的能力除了拼爹的关系网也就只有秒杂鱼的霸王色了，霸王色缠绕看起来还没山治的改造人能力叼
+
+
+*****
+
+####  qwxbtgb  
+##### 55756#       发表于 2021-10-7 03:36
+
+
+等索隆觉醒霜月家血统把厨子压下去
+
+
