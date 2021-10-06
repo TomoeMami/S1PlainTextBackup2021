@@ -1178,3 +1178,17 @@ aga的这种纯电子乐希望他能发挥好点吧...
 周年能不能用一个超an换一个普池超得啊（
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6086#       发表于 2021-10-6 15:31
+
+
+这次新主线，还是在说战线在纠结中～成子坂所属各处救场。小毛纠结中，新型出现最终还是被ACE组丛云几乎拆了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">中野组你们唱着歌说着RAP去救场简直就比VICE还精神污染<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+话说演出又进化了，背景会动，还有棋盘模拟。以及新BOSS竟然是双子机……开辟新时代<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
