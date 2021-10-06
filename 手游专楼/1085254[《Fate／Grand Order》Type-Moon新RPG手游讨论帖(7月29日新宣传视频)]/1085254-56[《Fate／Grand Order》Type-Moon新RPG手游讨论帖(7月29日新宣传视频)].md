@@ -17374,3 +17374,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 居然给的圣杯，但是我想要结晶啊
 
 
+
+
+*****
+
+####  zore  
+##### 83947#       发表于 2021-10-6 19:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">挺普通的强化本
+
+
