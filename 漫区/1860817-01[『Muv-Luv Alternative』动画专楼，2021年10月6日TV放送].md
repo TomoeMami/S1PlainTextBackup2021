@@ -9489,3 +9489,16 @@ FA3FB5F2-C317-4F64-8AA1-BA49DC9EBD7D.jpeg
 Alt電視台沒放送，FOD獨占（類似Netflix的收費平台），反正我是耐心等熟肉就是了
 
 
+
+
+*****
+
+####  hlazd  
+##### 644#       发表于 2021-10-6 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53013423&amp;ptid=1860817" target="_blank">INGRAMLI 发表于 2021-10-6 16:29</a>
+Alt電視台沒放送，FOD獨占（類似Netflix的收費平台），反正我是耐心等熟肉就是了 ...</blockquote>
+电视台有的啊共5家，首播的富士台第一集比FOD晚半小时第二集恢复同步
+
+

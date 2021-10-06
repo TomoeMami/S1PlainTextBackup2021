@@ -5224,3 +5224,34 @@ bsyl，看来阿咩勾选了克苏鲁天赋（智力-1）
 我还在几十里开外的地方，也许要迟到了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3462#       发表于 2021-10-6 18:02
+
+
+ 本帖最后由 T_Hb 于 2021-10-6 18:04 编辑 
+
+今天还挺准时，是我期待已久的烂牙repo
+
+
+*****
+
+####  路人庚  
+##### 3463#       发表于 2021-10-6 18:07
+
+
+今天去看牙医了，看了之后医生说牙齿还没事于是立刻跑去买了冰淇淋来吃（
+
+
+*****
+
+####  T_Hb  
+##### 3464#       发表于 2021-10-6 18:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一上来就唱这个
+
+

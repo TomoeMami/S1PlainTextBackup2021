@@ -17303,3 +17303,44 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机械龙娘居然是2个独立的强化本
 
 
+
+
+*****
+
+####  qb0079  
+##### 83941#       发表于 2021-10-6 17:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看解包，这次龙娘又有新衣服了
+
+
+*****
+
+####  里村紅葉  
+##### 83942#       发表于 2021-10-6 17:49
+
+
+我还以为你菌已经把龙娘忘到哪个下水道了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83943#       发表于 2021-10-6 18:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">翻页
+
+
+*****
+
+####  khxooo  
+##### 83944#       发表于 2021-10-6 18:10
+
+
+[https://www.fate-go.jp/event/2021-halloween-trilogy/](https://www.fate-go.jp/event/2021-halloween-trilogy/)
+
+
+还有特设网页，DW其他地方不见你这么用心<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+

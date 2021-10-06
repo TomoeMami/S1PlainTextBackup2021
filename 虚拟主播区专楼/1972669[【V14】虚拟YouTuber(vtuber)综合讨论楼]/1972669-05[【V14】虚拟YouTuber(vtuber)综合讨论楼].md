@@ -20181,3 +20181,28 @@ So a 'male wave' is pretty much a guarantee. I don't think they'll be here until
 这holo专的初动和后续，未来可期嘛，未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7458#       发表于 2021-10-6 18:20
+
+
+ 本帖最后由 FCCHua 于 2021-10-6 18:23 编辑 
+
+【お知らせ】
+誹謗中傷行為、ストーカー行為、その他の攻撃的行為に対する対策委員会の設置をいたします。
+https://t.co/x0nI5KgpYI
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 7459#       发表于 2021-10-6 18:24
+
+
+这次要换谁休止了
+
+
