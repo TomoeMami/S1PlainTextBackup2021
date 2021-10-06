@@ -18117,3 +18117,18 @@ ns云游戏版独占服装
 地灵圣堂、风塔和那啥溶洞没影响，全是支线任务
 
 
+
+
+*****
+
+####  chiefshi  
+##### 5836#       发表于 2021-10-6 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53013081&amp;ptid=1860328" target="_blank">CALPISSODA 发表于 2021-10-6 15:53</a>
+刚到了雷纳本土开始推进这个疑似最终迷宫的地方。
+
+提前问一下，除了主线剧情必打的伊芙利特之外，另外地灵 ...</blockquote>
+都是支线，建议通了主线之后再去打，怪的等级比较高
+
+
