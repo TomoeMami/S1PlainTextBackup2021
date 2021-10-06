@@ -18081,3 +18081,39 @@ cv梗不如说是传说最爱玩的，明日铃有两套，朱雀和haseo，都�
 我最喜欢的琳薇尔啊，这张感觉有点小崩<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  CALPISSODA  
+##### 5833#       发表于 2021-10-6 15:53
+
+
+刚到了雷纳本土开始推进这个疑似最终迷宫的地方。
+
+提前问一下，除了主线剧情必打的伊芙利特之外，另外地灵圣堂、风塔和那啥溶洞这三个楔子的迷宫是不是不打也能通主线？看了下那里面的等级好高完全不像是攻略最终迷宫之前就能打过去的样子。打和不打对主线流程或者剧情会有啥影响不？
+
+
+*****
+
+####  JudgmentEye  
+##### 5834#       发表于 2021-10-6 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52995733&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-10-4 22:48</a>
+
+那么，希农能给个光焰的联动服装吗（</blockquote>
+ns云游戏版独占服装
+
+
+*****
+
+####  JudgmentEye  
+##### 5835#       发表于 2021-10-6 15:58
+
+
+ 本帖最后由 JudgmentEye 于 2021-10-6 15:59 编辑 
+
+地灵圣堂、风塔和那啥溶洞没影响，全是支线任务
+
+

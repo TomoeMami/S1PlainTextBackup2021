@@ -9462,3 +9462,17 @@ FA3FB5F2-C317-4F64-8AA1-BA49DC9EBD7D.jpeg
 <img src="http://wx3.sinaimg.cn/mw2000/002oG8lggy1gv5advec3rj60hs0hsjyb02.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 642#       发表于 2021-10-6 15:52
+
+
+之前追国家队的时候，直播应该是人在国内第一时间就看到的方法了（跟着日本电视台，把中间插入的广告也看了个遍）
+
+
+这次mla有直播吗？6号25时25分对应到北京时间就是7号0点25了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

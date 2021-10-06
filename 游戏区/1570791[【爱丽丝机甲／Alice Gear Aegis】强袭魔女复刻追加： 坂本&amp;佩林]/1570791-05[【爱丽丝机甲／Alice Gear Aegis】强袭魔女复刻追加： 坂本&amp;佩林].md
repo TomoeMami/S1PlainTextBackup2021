@@ -1192,3 +1192,14 @@ aga的这种纯电子乐希望他能发挥好点吧...
 话说演出又进化了，背景会动，还有棋盘模拟。以及新BOSS竟然是双子机……开辟新时代<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  RioShiina  
+##### 6087#       发表于 2021-10-6 15:47
+
+
+最后一关双boss同屏， 我开始冒汗了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+

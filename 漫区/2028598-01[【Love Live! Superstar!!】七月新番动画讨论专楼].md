@@ -15182,3 +15182,29 @@ nako啊……
 可惜了，还想听nako现场来段rap的
 
 
+
+
+*****
+
+####  saya1892  
+##### 1188#       发表于 2021-10-6 15:51
+
+
+继「平安名」这个姓令人想到「平安时代」「遣唐使」的YTB考察之后
+
+推特上的可堇人又声称发现了スミレ的学名（Viola mandshurica）跟中国有关联了
+
+然后去翻了下日文wiki，发现有这样一句 <blockquote>学名の種小名 mandshurica は「満州の」という意味である</blockquote>
+
+作为中国人不知道是该高兴还是生气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 1189#       发表于 2021-10-6 15:55
+
+
+啊这，还是别细究了
+
+
