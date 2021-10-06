@@ -9502,3 +9502,63 @@ Alt電視台沒放送，FOD獨占（類似Netflix的收費平台），反正我�
 电视台有的啊共5家，首播的富士台第一集比FOD晚半小时第二集恢复同步
 
 
+
+
+*****
+
+####  KOPKOM  
+##### 645#         楼主| 发表于 2021-10-6 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53014378&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-6 18:16</a>
+
+电视台有的啊共5家，首播的富士台第一集比FOD晚半小时第二集恢复同步</blockquote>
+FOD第一集也是迟播的
+
+
+15045A03-828D-4FBF-998F-AFFB23E52247.jpeg
+(133.97 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-6 18:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/06/182217iltzj2fblf2sobtm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOPKOM  
+##### 646#         楼主| 发表于 2021-10-6 18:24
+
+
+首都圈的看富士台就可以了
+
+
+EBDFC151-F61F-43D7-BAFA-190897F40113.jpeg
+(878.09 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-6 18:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/06/182455yq4bdmm4bemqmm8t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 647#       发表于 2021-10-6 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53014437&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-10-6 18:22</a>
+FOD第一集也是迟播的</blockquote>
+原来是完全同步的啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+

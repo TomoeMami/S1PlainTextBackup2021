@@ -5255,3 +5255,32 @@ bsyl，看来阿咩勾选了克苏鲁天赋（智力-1）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一上来就唱这个
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 3465#       发表于 2021-10-6 18:21
+
+
+现在开始要变肥了哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 3466#       发表于 2021-10-6 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">总有一天要抓去熬麻油
+
+
+*****
+
+####  T_Hb  
+##### 3467#       发表于 2021-10-6 18:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接就憋住了,2句一憋
+
+
