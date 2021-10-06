@@ -20110,3 +20110,16 @@ So the delay it would take to ready L2D models is probably why their auditions w
 So a 'male wave' is pretty much a guarantee. I don't think they'll be here until January but a December release also wouldn't entirely surprise me. I imagine whoever is going to be in it has already been selected.</blockquote>
 
 
+
+
+*****
+
+####  free  
+##### 7453#       发表于 2021-10-6 17:24
+
+
+[https://docs.google.com/spreadsh ... edit#gid=1181785460](https://docs.google.com/spreadsheets/d/1tVGOS7nvAC93W8wrAyMrYUj_kHVOE7iGzSqS-s86v5o/edit#gid=1181785460)
+
+管人专辑实体销量看这里，彩虹的两个拼盘大概短期内很难被超越了，星街这专不知道能不能挑战下raindrops的非拼盘销量第一<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

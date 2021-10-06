@@ -17265,3 +17265,41 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 一开始卡住了去拉了个310的始皇帝，后来发现根本用不到……有场靠70级的二姐也戳过了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83937#       发表于 2021-10-6 17:04
+
+
+这5个强化本我一口茶喷出来
+
+
+*****
+
+####  v22325  
+##### 83938#       发表于 2021-10-6 17:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 一上来记忆丧失笑死
+
+
+*****
+
+####  cckuku  
+##### 83939#       发表于 2021-10-6 17:11
+
+
+龙娘，永远的谐星<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83940#       发表于 2021-10-6 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机械龙娘居然是2个独立的强化本
+
+
