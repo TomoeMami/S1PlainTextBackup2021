@@ -17396,3 +17396,17 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 剑龙的这个技能本名字是什么情况，剧场版就是加强版的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qixinno2  
+##### 83949#       发表于 2021-10-6 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53014450&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-6 18:23</a>
+
+龙娘yyds！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不愧是萌新 又在豹跳单抽了
+
+
