@@ -15930,3 +15930,16 @@ pay酱你看看人家，再看看你这黑眼圈，多学学呀<img src="https:/
 小星星卖过4万了，不知道能不能过5万
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 1252#       发表于 2021-10-6 23:57
+
+
+<img src="https://p.sda1.dev/2/e3d4778541424c1d7668e2ef1ae46772/1633535788807.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
