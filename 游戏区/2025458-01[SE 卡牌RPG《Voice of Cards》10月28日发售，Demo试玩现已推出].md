@@ -1496,3 +1496,19 @@ TSG 2021的直播宣传，提到部分玩家的疑问，比如为什么是主机
 GM并不是完全照着字幕读，某些剧情还会加入自己的吐槽，记得不要跳语音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  redsouris  
+##### 116#       发表于 2021-10-6 08:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52922014&amp;ptid=2025458" target="_blank">jacket 发表于 2021-9-28 12:43</a>
+我后来想那玩意扔炸弹行不行，感觉炸弹是固定伤害</blockquote>
+水属性那只弱雷，壮汉可以一招秒
+另一只弱冰，出冻结效果了一样是个沙包
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
