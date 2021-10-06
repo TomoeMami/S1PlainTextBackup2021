@@ -15050,3 +15050,89 @@ https://www.bilibili.com/video/BV18h4 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上尉今天是难逃脸红了
 
 
+
+
+*****
+
+####  kata魂  
+##### 1175#       发表于 2021-10-6 14:11
+
+
+nako今晚上不了了啊~~~她疫苗是最近才接种的吗
+
+
+*****
+
+####  黑雪姫  
+##### 1176#       发表于 2021-10-6 14:11
+
+
+nako扎新冠疫苗出现副作用所以缺席今天的生放了？？？
+
+
+*****
+
+####  chenflyyy  
+##### 1177#       发表于 2021-10-6 14:15
+
+
+鲤鱼之前打疫苗也有副作用来着<img src="https://p.sda1.dev/2/663c96ecb629d9325ddcee8a427a9819/IMG_CMP_85194515.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 1178#       发表于 2021-10-6 14:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53012413&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-6 14:15</a>
+
+鲤鱼之前打疫苗也有副作用来着</blockquote>
+发烧了，不过也就一晚上。
+
+
+*****
+
+####  kbtit  
+##### 1179#       发表于 2021-10-6 14:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">liyuu发烧后第二天就去那个上映会了好像
+
+
+*****
+
+####  lj205  
+##### 1180#       发表于 2021-10-6 14:18
+
+
+岬得过新冠还能打疫苗吗。
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1181#       发表于 2021-10-6 14:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">nako真是多灾多难
+
+
+*****
+
+####  离心  
+##### 1182#       发表于 2021-10-6 14:23
+
+
+nako啊……
+
+
+*****
+
+####  kata魂  
+##### 1183#       发表于 2021-10-6 14:23
+
+
+新冠本身就会复发，以前病毒没进化的时候都有几个康复的又得了，甚至没扛过去的新闻
+
+
