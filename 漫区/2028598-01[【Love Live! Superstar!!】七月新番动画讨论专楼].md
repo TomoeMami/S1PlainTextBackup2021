@@ -15842,3 +15842,40 @@ https://twitter.com/shimo_ushi/status/1445365149242515461</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正有的是机会贴贴，后面外场活动肯定少不了
 
 
+
+
+*****
+
+####  qratosone  
+##### 1245#       发表于 2021-10-6 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53016042&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-6 20:46</a>
+
+话说这次星团是不是第一次描写路人站在主角团的对立面？
+
+从第二集可可就说有不少人看不起学园偶像，加上这 ...</blockquote>
+前面两代基本上没有正面描写过非亲友团和助攻三巨头之外的路人……
+
+
+*****
+
+####  Piano-Forest  
+##### 1246#       发表于 2021-10-6 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53017178&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-6 22:14</a>
+
+是微博和推都关注了的画师太太，没想到也逛s1，严重怀疑几个国内sns社区的ll人是同一批人 ...</blockquote>
+不不不，大佬误会了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> ，只不过是偶然看到转发了一下（不敢吱声 JPG）
+
+
+*****
+
+####  cybernetics31  
+##### 1247#       发表于 2021-10-6 22:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼赶紧教教吧
+
+

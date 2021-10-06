@@ -4008,3 +4008,17 @@ MD，居然还有脑子不正常的聊月世界战力，是嫌fate吧屎不够�
 拿arc打到A+起就很难赢了，没前作基础吃很多亏
 
 
+
+
+*****
+
+####  シャル  
+##### 326#       发表于 2021-10-6 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53009635&amp;ptid=2026924" target="_blank">完全武装希耶尔 发表于 2021-10-6 08:45</a>
+
+蘑菇自己在月r写设定写的就挺嗨的</blockquote>
+蘑菇给27祖打的补丁直接让月姫整体战斗力狂涨
+
+

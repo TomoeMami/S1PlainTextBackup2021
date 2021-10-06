@@ -5496,3 +5496,34 @@ coco感觉还没下定决心当皮套人，过于自我了，估计文静画饼�
 相信录男<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  伞沢直美  
+##### 482#       发表于 2021-10-6 22:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文二姨锐评冰菓，表示想尝试千反田那样的角色
+
+
+*****
+
+####  rgauss  
+##### 483#       发表于 2021-10-6 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53017341&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-10-6 22:28</a>
+文二姨锐评冰菓，表示想尝试千反田那样的角色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是在运营面前rp的
+
+
+*****
+
+####  IDIDIDID  
+##### 484#       发表于 2021-10-6 22:40
+
+
+文静锐评男香，你楼梦男记得下单。
+
+

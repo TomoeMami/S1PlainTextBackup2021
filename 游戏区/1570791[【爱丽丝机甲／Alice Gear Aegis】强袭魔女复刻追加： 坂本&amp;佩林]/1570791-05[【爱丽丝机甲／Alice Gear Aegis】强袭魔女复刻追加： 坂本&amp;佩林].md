@@ -1230,3 +1230,38 @@ aga的这种纯电子乐希望他能发挥好点吧...
 大概是友情
 
 
+
+
+*****
+
+####  Cyau  
+##### 6090#       发表于 2021-10-6 22:30
+
+
+拿自己的满级角色打40来级的主线是真没有代入感
+
+
+
+
+*****
+
+####  hypnossz86  
+##### 6091#       发表于 2021-10-6 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">次回预告又没有日期，唉，不知道这牙膏要挤到猴年马月
+看这架势感觉马上就要决战了啊...不知道4周年前主线能不能告一段落
+
+
+*****
+
+####  hypnossz86  
+##### 6092#       发表于 2021-10-6 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53017372&amp;ptid=1570791" target="_blank">Cyau 发表于 2021-10-6 22:30</a>
+拿自己的满级角色打40来级的主线是真没有代入感</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">这个其实可以通过上三星角色来实现
+既能按照剧情上对应人物，又能稍微打的势均力敌一些
+
+
