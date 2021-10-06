@@ -15243,3 +15243,20 @@ https://www.bilibili.com/video/BV1Th411J7Ur
 星无现在简直是高爆发期啊
 
 
+
+
+*****
+
+####  cqc1021  
+##### 1192#       发表于 2021-10-6 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53007578&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-5 23:24</a>
+
+你们看完这个视频就知道为什么大家喜欢看鲤鱼的播放事故了
+
+
+https://www.bilibili.com/video/BV18h4 ...</blockquote>
+鲤鱼这日语水平真的是太典型了，片假名看不懂，汉字看得懂不会读<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

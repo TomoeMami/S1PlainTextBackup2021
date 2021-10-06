@@ -20065,3 +20065,48 @@ msm早安美妆直播，让人不禁感叹，套皮就是个寄吧<img src="http
 还有海外呢，真不是人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7452#       发表于 2021-10-6 16:55
+
+
+惯例的那个：
+
+EN3期の4ch予想
+
+全員不自然に急に引退したそうな
+
+
+&gt;Hana Flores graduation 08/15
+[https://youtube.com/channel/UCkvYfE6_lEmstu6GoqPUOZQ](https://youtube.com/channel/UCkvYfE6_lEmstu6GoqPUOZQ)
+
+
+&gt;Marie indefinite hiatus 08/22
+[https://youtube.com/c/FDMarie](https://youtube.com/c/FDMarie)
+
+
+&gt;Shannon graduation 08/27
+[https://youtube.com/c/LemonTeaBloops](https://youtube.com/c/LemonTeaBloops)
+
+
+&gt;Lyrica graduation 09/03
+[https://youtube.com/c/LyricaCh](https://youtube.com/c/LyricaCh)
+
+
+&gt;Yaxie Channel 10/01
+[https://www.youtube.com/c/YaxieCh](https://www.youtube.com/c/YaxieCh)
+ <blockquote>Pomu herself has described it as a 'Male Wave' which implies to me that it'll be all men or at least vast majority men.
+
+
+The auditions for Wave 3 finished on July 11(?) with fully premade characters ready to go, whilst the male auditions (it wasn't confirmed if it was a wave or just a separate form they needed at this point) concluded on August 1 with no premade characters.
+
+
+So the delay it would take to ready L2D models is probably why their auditions were announced at the same time. Unlike the girls, they'll probably have a hand in designing their character themselves.
+
+
+So a 'male wave' is pretty much a guarantee. I don't think they'll be here until January but a December release also wouldn't entirely surprise me. I imagine whoever is going to be in it has already been selected.</blockquote>
+
+
