@@ -9704,3 +9704,113 @@ baha买了吧
 只有驹木。。。纱雾并不在
 
 
+
+
+*****
+
+####  坂上菠萝  
+##### 660#       发表于 2021-10-7 01:02
+
+
+我傻了，介绍BETA这个名词的时候，我脑子里想的却是，这个词会不会很容易错拼成BATE
+
+
+结果动画下一个镜头就让我心想事成了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/010212z76zce32as9zz4cr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (148.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-7 01:02 上传
+
+
+
+
+*****
+
+####  Piano-Forest  
+##### 661#       发表于 2021-10-7 01:03
+
+
+ 本帖最后由 Piano-Forest 于 2021-10-7 01:08 编辑 
+
+2卷，共12话
+
+
+━━━━━━━━━━━━━
+
+#マブラヴオルタネイティヴ
+
+▶︎Blu-ray発売決定
+
+━━━━━━━━━━━━━
+
+▶︎①巻 1/28発売
+
+通常/メインキャスト陣によるドラマCD付版
+
+
+▶︎②巻 3/25発売
+
+通常/NONスケール武御雷 Type-00R Ver.1.5
+
+クリアーVer.限定プラモ付版
+[https://muv-luv-alternative-anime.com/news/detail.php?id=1094663](https://muv-luv-alternative-anime.com/news/detail.php?id=1094663)
+
+
+Blu-ray Box Ⅱ ※数量限定生産版 武御雷クリアーVer.プラモデル付
+
+コトブキヤ製プラモデル「NONスケール 武御雷 Type-00R Ver.1.5」クリアー成型の特別版が付属した豪華仕様!
+<img src="https://p.sda1.dev/2/99bf9987233bee0d823b25ae76811a2b/20211007_010649.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/6259f3012d3652b23f9fdad3a607a481/20211007_010652.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/aad5b21b22513f53d4fab0e476c02bd6/20211007_010657.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OrianaThomson  
+##### 662#       发表于 2021-10-7 01:04
+
+
+万年抹布老粉表示还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LRS2376852435  
+##### 663#       发表于 2021-10-7 01:08
+
+
+共12话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ReginaldMorgan  
+##### 664#       发表于 2021-10-7 01:15
+
+
+想啥呢，就算是多季度也肯定是分割放送。又不是产能充足大公司的重点项目，还是有萝卜打架的片，一次性半年番那后半程肯定是一泡污。所以无论这季度做到哪，BD肯定都是先按照12集卖，不能说明任何事
+
+况且没记错的话，抹布这个档后面接的是一月份tv放送的平家物语，看到电视台档期早就能猜到剩下的部分（如果有的话）肯定不是一月播
+
+
+*****
+
+####  再买自检星剁手  
+##### 665#       发表于 2021-10-7 01:18
+
+
+ 本帖最后由 再买自检星剁手 于 2021-10-7 01:19 编辑 
+
+先做12集试试水，反响不好就鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+隔壁巨人还发愁结局怎么改呢<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
