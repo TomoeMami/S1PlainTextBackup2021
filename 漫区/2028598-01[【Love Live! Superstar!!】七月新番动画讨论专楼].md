@@ -15613,3 +15613,27 @@ nako救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/067
 今日的生放结束后5人合照
 
 
+
+
+*****
+
+####  大哀之君  
+##### 1226#       发表于 2021-10-6 20:28
+
+
+S1有拉拉群吗，氛围和谐点别天天缪水虹星混战或者跟其它偶像企划对线的那种
+
+
+*****
+
+####  普之舜舜  
+##### 1227#       发表于 2021-10-6 20:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53015803&amp;ptid=2028598" target="_blank">大哀之君 发表于 2021-10-6 20:28</a>
+S1有拉拉群吗，氛围和谐点别天天缪水虹星混战或者跟其它偶像企划对线的那种 ...</blockquote>
+专楼不好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看专楼氛围多好呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

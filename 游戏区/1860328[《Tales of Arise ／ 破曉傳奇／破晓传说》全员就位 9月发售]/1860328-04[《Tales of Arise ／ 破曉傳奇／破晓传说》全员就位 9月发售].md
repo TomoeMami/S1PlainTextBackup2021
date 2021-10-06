@@ -18132,3 +18132,23 @@ ns云游戏版独占服装
 都是支线，建议通了主线之后再去打，怪的等级比较高
 
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5837#       发表于 2021-10-6 20:31
+
+
+看过场动画特意给楔子散开的镜头，op2楔子全员出场，看着就像是主线，很难让人不误会。只能说是流程被砍的又一铁证<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 5838#       发表于 2021-10-6 20:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算不上铁证吧.....狒狒7那几个weapon觉醒后也不是必打的啊......
+
+

@@ -17421,3 +17421,17 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 今年万圣节这非比寻常的龙娘浓度，我是不是可以奶一口学士殿下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qixinno2  
+##### 83951#       发表于 2021-10-6 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53015568&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-10-6 20:09</a>
+
+今年万圣节这非比寻常的龙娘浓度，我是不是可以奶一口学士殿下了5星常驻伪装者阿基米德走起 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以那个唯一没出现的蘑菇头就是阿基米德的某一个灵基造型么
+
+
