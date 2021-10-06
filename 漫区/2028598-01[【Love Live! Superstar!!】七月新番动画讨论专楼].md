@@ -15572,3 +15572,44 @@ nako救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/067
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">千给我的感觉就一直挺瑟的 又有个擅长舞蹈的设定 动画给的各种动作就很多 エロかわい
 
 
+
+
+*****
+
+####  cat1230  
+##### 1223#       发表于 2021-10-6 20:09
+
+
+看个番忘记直播了，迟到了半小时，只能等好心网友上传叔叔家了，希望能带下直播弹幕就好了。
+
+
+*****
+
+####  player3960  
+##### 1224#       发表于 2021-10-6 20:18
+
+
+可惜nako不在啊，这期明明可以更欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  名津流  
+##### 1225#       发表于 2021-10-6 20:24
+
+
+<img src="https://img.saraba1st.com/forum/202110/06/202402fvsws6fgw7r6rggf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211006202330.jpg</strong> (417.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-6 20:24 上传
+
+
+今日的生放结束后5人合照
+
+

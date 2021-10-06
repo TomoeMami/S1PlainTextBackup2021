@@ -17410,3 +17410,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不愧是萌新 又在豹跳单抽了
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 83950#       发表于 2021-10-6 20:09
+
+
+今年万圣节这非比寻常的龙娘浓度，我是不是可以奶一口学士殿下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -5284,3 +5284,14 @@ bsyl，看来阿咩勾选了克苏鲁天赋（智力-1）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接就憋住了,2句一憋
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 3468#       发表于 2021-10-6 20:11
+
+
+今天前半唱的有点拉，后面好了不少，又是唱歌的一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
