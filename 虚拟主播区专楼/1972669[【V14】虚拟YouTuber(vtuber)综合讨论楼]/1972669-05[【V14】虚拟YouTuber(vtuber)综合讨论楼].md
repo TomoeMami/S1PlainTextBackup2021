@@ -20123,3 +20123,39 @@ So a 'male wave' is pretty much a guarantee. I don't think they'll be here until
 管人专辑实体销量看这里，彩虹的两个拼盘大概短期内很难被超越了，星街这专不知道能不能挑战下raindrops的非拼盘销量第一<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7454#       发表于 2021-10-6 17:26
+
+
+ 本帖最后由 FCCHua 于 2021-10-6 17:27 编辑 
+
+熊猫人六点b限呀哟<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 7455#       发表于 2021-10-6 17:27
+
+
+ 本帖最后由 free 于 2021-10-6 17:29 编辑 
+
+不省一楼了，关于“裸春市建设中”的游戏，这两天大概看了下
+
+
+扫官网的二维码进入游戏，只能手机使用推特或者line账号登录，电脑玩不了
+[https://uc.kamitsubaki.jp/](https://uc.kamitsubaki.jp/)
+
+
+大概就是虚拟世界的“裸春市”遇到了“Q”的入侵，玩家要帮助裸春市恢复正常，VWP的五个人担任NPC配音。
+
+总之就是一个在手机端网页上各种点点点的解谜游戏，部分谜题似乎需要一定的乐理知识，我就不参合了，此游戏只开放一个月，有兴趣的可以看看绿帽坛的讨论。
+[https://bbs.nga.cn/read.php?tid=28797026](https://bbs.nga.cn/read.php?tid=28797026)
+
+实在是给我一种“就这”的感觉，不过反正是众筹的小成本制作，就这样吧，应该和裸春之后的世界观展开有关系
+
+
