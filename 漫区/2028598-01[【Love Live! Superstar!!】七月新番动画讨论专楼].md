@@ -14691,3 +14691,16 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  雪城穗乃香  
+##### 1151#       发表于 2021-10-6 08:16
+
+
+可可（家）其实挺有钱这个设定这一季应该没机会用了吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
