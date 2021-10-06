@@ -14704,3 +14704,66 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  D麦林  
+##### 1152#       发表于 2021-10-6 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53009503&amp;ptid=2028598" target="_blank">雪城穗乃香 发表于 2021-10-6 08:16</a>
+
+可可（家）其实挺有钱这个设定这一季应该没机会用了吧
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next ...</blockquote>
+看家里人的态度 这有钱也不一定能用得上啊
+
+毕竟家里再有钱那也是家里的钱 和你一个小孩有什么关系
+
+
+*****
+
+####  hc04  
+##### 1153#       发表于 2021-10-6 11:15
+
+
+其他地方看到有人觉得风吹皇冠那段出戏，有点不理解，咱觉得那段恰恰是点睛之笔，如果单单只是可可给予阿堇拿走反而没那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 1154#       发表于 2021-10-6 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53010799&amp;ptid=2028598" target="_blank">hc04 发表于 2021-10-6 11:15</a>
+
+其他地方看到有人觉得风吹皇冠那段出戏，有点不理解，咱觉得那段恰恰是点睛之笔，如果单单只是可可给予阿堇 ...</blockquote>
+你单单看一次风吹自然没什么，你要看恋也是被风吹入队的，还有历代主角控制天气大法，再加上已经看过几个皇冠究竟有多轻的吐槽，这里就出戏到高喊花田飞马了
+
+
+*****
+
+####  永恒的王牌  
+##### 1155#       发表于 2021-10-6 11:24
+
+
+这皇冠顶了天也就学生手工作品，原料不是铁丝架子就是硬纸板，被风吹走很正常吧
+
+
+*****
+
+####  hc04  
+##### 1156#       发表于 2021-10-6 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53010823&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-6 11:18</a>
+
+你单单看一次风吹自然没什么，你要看恋也是被风吹入队的，还有历代主角控制天气大法，再加上已经看过几个 ...</blockquote>
+节奏不错跟着情绪上头，get到花田想表达什么，自然就忽视了皇冠为什么这么轻这种小bug<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+恋恋那集太崩了完全不忍再看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

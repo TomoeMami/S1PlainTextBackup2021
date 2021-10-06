@@ -2718,3 +2718,26 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 建议去宣传部上班<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  vivuhz  
+##### 224#       发表于 2021-10-6 11:21
+
+
+笑死，这下我也感恩了
+
+
+*****
+
+####  flypig_zhy60  
+##### 225#       发表于 2021-10-6 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52994309&amp;ptid=2029680" target="_blank">showyourass 发表于 2021-10-4 20:48</a>
+
+我对管文化的这帮遗老简直深恶痛绝，之前做的独立游戏因为几个图标就没过审，害我又折腾了大半年，让我感觉 ...</blockquote>
+我看皇上的意思就是收紧，你还是谢主隆恩吧
+
+
