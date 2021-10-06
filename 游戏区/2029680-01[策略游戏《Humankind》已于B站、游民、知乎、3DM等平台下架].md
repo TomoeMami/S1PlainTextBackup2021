@@ -2912,3 +2912,53 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 一句话，谁把你当自己人
 
 
+
+
+*****
+
+####  flypig_zhy60  
+##### 239#       发表于 2021-10-6 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011710&amp;ptid=2029680" target="_blank">Errey 发表于 2021-10-6 12:53</a>
+
+俗话说，正本清源；不督促改正、或者自己跑出来带头澄清反而加重封锁，对手不抓这些机会来打都不好意思
+
+ ...</blockquote>
+臭打游戏去死就是了，吸食电子毒的
+
+
+*****
+
+####  Stellar_Frost  
+##### 240#       发表于 2021-10-6 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011571&amp;ptid=2029680" target="_blank">失身招领处 发表于 2021-10-6 12:38</a>
+4个自xin
+说了几年了。</blockquote>
+humankind的所有同等级特色建筑都减稳定。从无尽传奇传下来的机制。
+虽然我觉得很蠢（A厂的很多gameplay机制都很蠢），但是要真因为这个被禁，那还真的是满满自信
+
+
+
+
+*****
+
+####  泉玲奈  
+##### 241#       发表于 2021-10-6 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52962320&amp;ptid=2029680" target="_blank">Unlight 发表于 2021-10-1 14:49</a>
+
+让我想起之前一个段子：（仅转发）
+
+
+中国的文化产业迟早跟英国的餐饮行业一样，本来有着不错的基础（基础是 ...</blockquote>
+这种前瞻远见
+
+在好多历史上都有
+
+指出会有不幸未来的人,有不少在有生之年绝望的看见时态一步步的恶化,最后救无可救和那个时代的人一起吃下这个苦果;
+
+
