@@ -15160,3 +15160,25 @@ nako啊……
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  克里斯蒂娜  
+##### 1186#       发表于 2021-10-6 15:09
+
+
+[https://www.bilibili.com/video/BV1Th411J7Ur](https://www.bilibili.com/video/BV1Th411J7Ur)
+
+唐海王之歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 1187#       发表于 2021-10-6 15:24
+
+
+可惜了，还想听nako现场来段rap的
+
+
