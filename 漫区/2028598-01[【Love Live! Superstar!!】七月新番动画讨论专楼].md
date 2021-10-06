@@ -14897,3 +14897,56 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 恋的问题要解决需要三个方面，增加戏份。人设增加别的属性。给配个CP。 但第一季的时间已经所剩不多了，还得讲可可...
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1165#       发表于 2021-10-6 12:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逛拉板看到个可香还是可堇会赢的串
+
+下面有人说应该是可堇吧，杉菜比起理想型的花泽类最终不也选了可以引出自己本性的道明寺，md谜之有说服力
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我们可香党难道真的只能迎来毁灭了吗
+
+
+*****
+
+####  saya1892  
+##### 1166#       发表于 2021-10-6 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011117&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-6 11:45</a>
+
+可可的煎饼果子RAP是不是根据这个视频改编的？？
+
+
+https://www.youtube.com/watch?v=Wx3LR8Vq7is ...</blockquote>
+《煎饼果子之歌》是网络歌手Amy妞儿演唱的歌曲，是对《let it go》重新填词的歌。
+[https://www.kuwo.cn/play_detail/14537569](https://www.kuwo.cn/play_detail/14537569)
+
+
+大概是2012年左右的歌曲，当年火到对不熟悉rap的一般人来说这就是他们听过的最rap的歌词
+
+
+*****
+
+####  Norkey1  
+##### 1167#       发表于 2021-10-6 12:42
+
+
+仔细想，皇冠就算是纸壳做的，还要算上喷漆装饰物，重量还是有的，也不至于能被吹那么高那么远，加上它本身形状就有很多空隙，不是受风面很广的，要吹跑绝对是要八级大风了
+硬要解释，那只有结丘的妖风了。<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 1168#       发表于 2021-10-6 12:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">LL又不是感情为主线写到结婚的恋爱动画，隔壁步侑锁这么死仍然有节外生枝的可能，不如先定义一下怎么叫赢
+
+

@@ -2836,3 +2836,46 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 叔叔为了保BGO又是找国家宝藏又是找长城学会合作，有啥用？还不是想掐死你就掐死你
 
 
+
+
+*****
+
+####  失身招领处  
+##### 234#       发表于 2021-10-6 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52957631&amp;ptid=2029680" target="_blank">狼影者瑞德克斯 发表于 2021-10-1 00:27</a>
+如果真是法治国家，我倒希望先在法院判决上达到法制的标准，我少玩几款游戏没什么的。 ...</blockquote>
+全面提高法制化治理……
+都已经直白告诉你了，提高，提高，提高。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  walfeds  
+##### 235#       发表于 2021-10-6 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011421&amp;ptid=2029680" target="_blank">Errey 发表于 2021-10-6 12:21</a>
+
+可对手抓住宣传的就是这些东西啊，正是这些民生的玩意一塌糊涂、胡来的封锁让他们宣传“**”变得有名分有 ...</blockquote>
+否则你以为为什么现在在死盯历史正统性<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  失身招领处  
+##### 236#       发表于 2021-10-6 12:38
+
+
+ 本帖最后由 失身招领处 于 2021-10-6 12:39 编辑 
+
+4个自xin
+说了几年了。
+
+你一个做游戏的居然对国际形式的未来还这么不自信，减社稳的特色建筑居然安排给了与人dai相关。
+这么不自信那只能帮你自信了。
+
+按照一贯的态度，就这一条够格封杀了。没什么好奇怪的吧。
+
+
