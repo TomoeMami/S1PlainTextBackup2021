@@ -20159,3 +20159,25 @@ So a 'male wave' is pretty much a guarantee. I don't think they'll be here until
 实在是给我一种“就这”的感觉，不过反正是众筹的小成本制作，就这样吧，应该和裸春之后的世界观展开有关系
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 7456#       发表于 2021-10-6 17:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹》星街》杏是吧
+
+
+*****
+
+####  渡鸦骑士  
+##### 7457#       发表于 2021-10-6 18:02
+
+
+虽然很想吐槽一下组合和个人比较……
+
+这holo专的初动和后续，未来可期嘛，未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
