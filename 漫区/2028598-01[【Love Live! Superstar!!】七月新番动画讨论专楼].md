@@ -15968,3 +15968,18 @@ pay酱你看看人家，再看看你这黑眼圈，多学学呀<img src="https:/
 鲤鱼和pay互动真少啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">一直在看小百合
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 1255#       发表于 2021-10-7 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019095&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-7 01:26</a>
+鲤鱼和pay互动真少啊一直在看小百合</blockquote>
+不是，她喜欢看左边，哈哈哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

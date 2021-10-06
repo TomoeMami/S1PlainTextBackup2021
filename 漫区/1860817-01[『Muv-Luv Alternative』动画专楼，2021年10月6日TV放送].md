@@ -9814,3 +9814,44 @@ Blu-ray Box Ⅱ ※数量限定生産版 武御雷クリアーVer.プラモデ�
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 666#       发表于 2021-10-7 01:22
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/022235rj2q2qqmq07qllzp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (63.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-7 01:22 上传
+
+
+*****
+
+####  本职是魔法使  
+##### 667#       发表于 2021-10-7 01:27
+
+
+我有点奇怪，既然alter和extra人物关系基本没变，那这个妹纸会不会就是extra里的纱雾的院长女儿老婆<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hlazd  
+##### 668#       发表于 2021-10-7 01:33
+
+
+-“美军的支援呢？”   -“美军不动如山。”
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">京都保卫战的时候还在尽职尽责，之后看样不对立马跑路，99年反攻时又跑回来扔了俩G蛋
+
+第一话这个佐渡岛原创的好处就是把之后12-5的感情上的源头给讲了
+
+
