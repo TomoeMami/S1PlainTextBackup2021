@@ -17460,3 +17460,17 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 打完了，今年这是要灰姑娘龙娘？
 
 
+
+
+*****
+
+####  khxooo  
+##### 83954#       发表于 2021-10-7 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53017818&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-10-6 23:08</a>
+
+打完了，今年这是要灰姑娘龙娘？</blockquote>
+阿基米德是王子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

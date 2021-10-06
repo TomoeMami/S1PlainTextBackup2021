@@ -9671,3 +9671,36 @@ baha买了吧
 这一集是什么？前传？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 658#       发表于 2021-10-7 00:48
+
+
+ 本帖最后由 UnrealApartheid 于 2021-10-7 00:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53018721&amp;ptid=1860817" target="_blank">蓝泽玲 发表于 2021-10-07 00:34:49</a>
+
+这一集是什么？前传？</blockquote>
+第一话为原创回，时间线比游戏更早，讲述了过去的佐渡岛败退战，纱雾和驹木的视角
+
+第二话才接武醒来
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  hlazd  
+##### 659#       发表于 2021-10-7 01:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53018849&amp;ptid=1860817" target="_blank">UnrealApartheid 发表于 2021-10-7 00:48</a>
+
+第一话为原创回，时间线比游戏更早，讲述了过去的佐渡岛败退战，纱雾和驹木的视角
+
+第二话才接武醒来</blockquote>
+只有驹木。。。纱雾并不在
+
+
