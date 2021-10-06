@@ -2786,3 +2786,53 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 养猪场老板没义务把自己管理猪的方法告诉猪
 
 
+
+
+*****
+
+####  csgjjg  
+##### 230#       发表于 2021-10-6 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53010981&amp;ptid=2029680" target="_blank">tyauto 发表于 2021-10-6 11:32</a>
+还是名气不够大，看暗黑2重制 黄 暴齐全又血腥，斗鱼还不是一堆人照样直播 ...</blockquote>
+只要不影响意识形态，人家才不管呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Errey  
+##### 231#       发表于 2021-10-6 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52995769&amp;ptid=2029680" target="_blank">asdfg 发表于 2021-10-4 22:51</a>
+
+文化部门是最直接对最上方负责的，错杀顶多就是底下不爽，万一漏了被捅出来or被对手抓住宣传就是重大政治 ...</blockquote>
+可对手抓住宣传的就是这些东西啊，正是这些民生的玩意一塌糊涂、胡来的封锁让他们宣传“**”变得有名分有道理
+
+
+*****
+
+####  Ironman_mk5  
+##### 232#       发表于 2021-10-6 12:21
+
+
+<blockquote>tyauto 发表于 2021-10-6 11:32
+还是名气不够大，看暗黑2重制 黄 暴齐全又血腥，斗鱼还不是一堆人照样直播 ...</blockquote>
+暗黑2重制拉拢这边玩家的手段是找尚气主演拍广告而不是加现代中国的内容
+
+
+*****
+
+####  被子十三  
+##### 233#       发表于 2021-10-6 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963033&amp;ptid=2029680" target="_blank">代练水笔 发表于 2021-10-1 16:33</a>
+我早说了要搞一个游戏届的中国文化ngo，出了问题还有机会回旋，总好过直接下架 ...</blockquote>
+腾讯为了让PUBG过申跑去找军委和军媒合作，最后手游还是要改名和平精英，PC端版号现在都不发
+叔叔为了保BGO又是找国家宝藏又是找长城学会合作，有啥用？还不是想掐死你就掐死你
+
+
