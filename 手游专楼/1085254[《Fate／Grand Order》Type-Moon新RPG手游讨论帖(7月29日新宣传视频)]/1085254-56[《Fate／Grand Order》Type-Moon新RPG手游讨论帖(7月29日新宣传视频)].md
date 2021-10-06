@@ -17385,3 +17385,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">挺普通的强化本
 
 
+
+
+*****
+
+####  rooarr  
+##### 83948#       发表于 2021-10-6 19:29
+
+
+剑龙的这个技能本名字是什么情况，剧场版就是加强版的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

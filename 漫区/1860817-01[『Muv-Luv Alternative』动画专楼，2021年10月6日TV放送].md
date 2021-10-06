@@ -9562,3 +9562,14 @@ FOD第一集也是迟播的</blockquote>
 原来是完全同步的啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  INGRAMLI  
+##### 648#       发表于 2021-10-6 19:40
+
+
+原來電視台也有（我之前看某巨嬰往生放送投稿以為沒有電視台沒放送，原來只是他那區沒有），不過11區午前1時（天朝12時）半也晚了點，除非能直播不然估計還是明早看熟肉？
+
+

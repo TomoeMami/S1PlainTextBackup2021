@@ -15377,3 +15377,113 @@ nako这个家不能没有你啊<img src="https://static.saraba1st.com/image/smil
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  midearth  
+##### 1204#       发表于 2021-10-6 19:24
+
+
+煎饼果子 = 中国可丽饼
+
+
+*****
+
+####  JustW  
+##### 1205#       发表于 2021-10-6 19:24
+
+
+果然解释成了咸味可丽饼了艹
+
+
+*****
+
+####  JustW  
+##### 1206#       发表于 2021-10-6 19:24
+
+
+果然解释成了咸味可丽饼了艹
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1207#       发表于 2021-10-6 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死
+
+
+*****
+
+####  cybernetics31  
+##### 1208#       发表于 2021-10-6 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 
+
+
+*****
+
+####  chenflyyy  
+##### 1209#       发表于 2021-10-6 19:25
+
+
+微博很多人都是给鲤鱼这么建议的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 1210#       发表于 2021-10-6 19:25
+
+
+鲤友立大功，蚌埠住了
+
+
+*****
+
+####  稀勢のささ  
+##### 1211#       发表于 2021-10-6 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 没想到这么直的翻译过去 真就来一套
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1212#       发表于 2021-10-6 19:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉每次鲤鱼读的都是最长的，然后每次都烫嘴日语
+
+
+*****
+
+####  cybernetics31  
+##### 1213#       发表于 2021-10-6 19:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯情JK啊
+
+
+*****
+
+####  chenflyyy  
+##### 1214#       发表于 2021-10-6 19:42
+
+
+这一幕的千酱真se啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 1215#       发表于 2021-10-6 19:46
+
+
+之前b吧里说的雷火剑
+
+
