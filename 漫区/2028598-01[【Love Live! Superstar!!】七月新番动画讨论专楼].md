@@ -14828,3 +14828,51 @@ LL除了虹最后一集就没有好评高的，重归90%做梦了，当然欢迎
 [https://www.youtube.com/watch?v=Wx3LR8Vq7is](https://www.youtube.com/watch?v=Wx3LR8Vq7is)
 
 
+
+
+*****
+
+####  kbtit  
+##### 1160#       发表于 2021-10-6 11:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">还真有希望落选看唐唐回家的人啊，吃瓜看戏喜欢找乐子是吧
+
+
+*****
+
+####  qratosone  
+##### 1161#       发表于 2021-10-6 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53010823&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-6 11:18</a>
+你单单看一次风吹自然没什么，你要看恋也是被风吹入队的，还有历代主角控制天气大法，再加上已经看过几个 ...</blockquote>
+学生手工做的，还是带着跳舞的饰品，肯定得用轻质材料，不会是真正的金属
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑雪姫  
+##### 1162#       发表于 2021-10-6 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011135&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-6 11:48</a>
+
+还真有希望落选看唐唐回家的人啊，吃瓜看戏喜欢找乐子是吧</blockquote>
+然后四人追到上海，在福利蛋下或者万达南梦宫文化馆里跳舞也不是不可能，反正场地都是现成的。
+
+
+*****
+
+####  待宵  
+##### 1163#       发表于 2021-10-6 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011157&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-6 11:50</a>
+
+然后四人追到上海，在福利蛋下或者万达南梦宫文化馆里跳舞也不是不可能，反正场地都是现成的。 ...</blockquote>
+跑国外不是剧场版才有的展开吗……
+
+

@@ -2752,3 +2752,37 @@ https://bbs.saraba1st.com/2b/thread-2025958-7-1.html
 还是名气不够大，看暗黑2重制 黄 暴齐全又血腥，斗鱼还不是一堆人照样直播<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路西恩  
+##### 227#       发表于 2021-10-6 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52994309&amp;ptid=2029680" target="_blank">showyourass 发表于 2021-10-4 20:48</a>
+我对管文化的这帮遗老简直深恶痛绝，之前做的独立游戏因为几个图标就没过审，害我又折腾了大半年，让我感觉 ...</blockquote>
+我朝没有投票<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  陈玉礼  
+##### 228#       发表于 2021-10-6 11:59
+
+
+当铁拳落下，自有大儒为其著书辩经
+入关学，诚不我欺也！
+
+
+*****
+
+####  Love_SickNess  
+##### 229#       发表于 2021-10-6 12:03
+
+
+养猪场老板没义务把自己管理猪的方法告诉猪
+
+
