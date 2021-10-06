@@ -14950,3 +14950,36 @@ https://www.youtube.com/watch?v=Wx3LR8Vq7is ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">LL又不是感情为主线写到结婚的恋爱动画，隔壁步侑锁这么死仍然有节外生枝的可能，不如先定义一下怎么叫赢
 
 
+
+
+*****
+
+####  gothicmaid  
+##### 1169#       发表于 2021-10-6 12:47
+
+
+第八集妖风都能把恋吹动了，怎么这集这么多人在意皇冠是不是纸的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">花田不行就完了
+
+
+*****
+
+####  待宵  
+##### 1170#       发表于 2021-10-6 12:57
+
+
+ 本帖最后由 待宵 于 2021-10-6 12:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011649&amp;ptid=2028598" target="_blank">gothicmaid 发表于 2021-10-6 12:47</a>
+
+第八集妖风都能把恋吹动了，怎么这集这么多人在意皇冠是不是纸的花田不行就完了 ...</blockquote>
+根本上不就是反复验证了花田不行
+
+下雨送上新曲——水
+
+转晴表达感情——缪
+
+吹风用来推动（物理）剧情——星
+
+
+啊这么一说上面觉得恋戏份少就河里了，毕竟就是一大风刮来的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
