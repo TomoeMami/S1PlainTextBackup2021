@@ -2962,3 +2962,40 @@ humankind的所有同等级特色建筑都减稳定。从无尽传奇传下来�
 指出会有不幸未来的人,有不少在有生之年绝望的看见时态一步步的恶化,最后救无可救和那个时代的人一起吃下这个苦果;
 
 
+
+
+*****
+
+####  不会武术  
+##### 242#       发表于 2021-10-6 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52963811&amp;ptid=2029680" target="_blank">qwwsong 发表于 2021-10-1 18:06</a>
+留口子做MOD无非也就是动森下场罢了</blockquote>
+创意工坊早就被爆了无所谓了
+原因和动森一样
+
+
+*****
+
+####  不会武术  
+##### 243#       发表于 2021-10-6 13:56
+
+
+文明里的hk可是 城 邦 噢
+可能老爷不太懂文明里城邦是什么概念
+
+
+*****
+
+####  不会武术  
+##### 244#       发表于 2021-10-6 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011384&amp;ptid=2029680" target="_blank">csgjjg 发表于 2021-10-6 12:17</a>
+只要不影响意识形态，人家才不管呢
+
+—— 来自 S1Fun</blockquote>
+有宗教有骑士噢
+
+
