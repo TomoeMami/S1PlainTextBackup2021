@@ -5594,3 +5594,51 @@ coco感觉还没下定决心当皮套人，过于自我了，估计文静画饼�
 看了几个视频 我也有点麻了 关键大部分我还看过
 
 
+
+
+*****
+
+####  tankai  
+##### 492#       发表于 2021-10-7 00:11
+
+
+哪儿来的这么多二创人,(别不是AS那边的吧)
+
+
+*****
+
+####  tankai  
+##### 493#       发表于 2021-10-7 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53017771&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-6 23:04</a>
+
+看到现在二创50%里带着A手，属于是自证吸血了。</blockquote>
+我也是这感觉,有一个鸟头面罩男开盒视频,桌子上是乃琳鼠标垫......
+
+
+*****
+
+####  IDIDIDID  
+##### 494#       发表于 2021-10-7 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53018549&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-7 00:13</a>
+
+我也是这感觉,有一个鸟头面罩男开盒视频,桌子上是乃琳鼠标垫......</blockquote>
+没办法的，A手没办法像轮椅人一样一天播8个小时全年无休牢牢黏住粉丝那粉丝闲着没事干就爬墙了，特别是二创作者这种创作欲旺盛的。
+
+偶像派的运营追求的是到了拿东西出来的时间点掏出来的货一定要slay全场，让粉丝拿着去拉踩全世界。
+
+然而讽刺的是文静现在做到的是第一种，她想要的也许是第二种。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 495#       发表于 2021-10-7 00:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">文静这基本都是烂活的二创视频
+
+

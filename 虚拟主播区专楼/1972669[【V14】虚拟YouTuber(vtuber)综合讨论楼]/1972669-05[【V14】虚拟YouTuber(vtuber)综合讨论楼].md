@@ -20230,3 +20230,18 @@ https://t.co/x0nI5KgpYI
 虾勇比我想的还要猛得多，应该是bora目前待过的所有队里最猛的一个胖子了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7462#       发表于 2021-10-7 00:14
+
+
+看了下成绩表，hnn又坐牢了吗……
+
+这么说起来之前排位没感觉，hnn拿手的是白给恶灵这种1号位
+
+没法在cr打啊，真的得练狗了
+
+
