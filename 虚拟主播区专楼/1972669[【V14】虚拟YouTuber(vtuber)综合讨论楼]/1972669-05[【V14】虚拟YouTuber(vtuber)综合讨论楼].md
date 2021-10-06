@@ -20217,3 +20217,16 @@ https://t.co/x0nI5KgpYI
 开幕雷击，kmt怎么在直播看戒指<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7461#       发表于 2021-10-6 23:35
+
+
+ 本帖最后由 Suzutsuki 于 2021-10-6 23:36 编辑 
+
+虾勇比我想的还要猛得多，应该是bora目前待过的所有队里最猛的一个胖子了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
