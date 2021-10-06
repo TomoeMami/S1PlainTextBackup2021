@@ -1265,3 +1265,29 @@ aga的这种纯电子乐希望他能发挥好点吧...
 既能按照剧情上对应人物，又能稍微打的势均力敌一些
 
 
+
+
+*****
+
+####  alialex  
+##### 6093#         楼主| 发表于 2021-10-6 22:54
+
+
+次回预告日期也不可信啊，昨晚清主线说的下次更新是夏天，这都10月了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 6094#       发表于 2021-10-6 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53017372&amp;ptid=1570791" target="_blank">Cyau 发表于 2021-10-6 22:30</a>
+
+拿自己的满级角色打40来级的主线是真没有代入感</blockquote>
+没问题啊，按设定现在的成子坂女演员的实力和装备来说对VICE虐菜一点问题都没啊，问题只有应付不了数量太多而已，就类似派遣任务，被车轮没补给手脚技能打光HP被磨光，只有这种威胁而已啊。
+
+
+虽然如此，初见双子BOSS时想看看什么行动模式，丛云队上第一个的也是被撞到妈到不认识啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怪不得那些2星NPC被BOSS各种秒了。
+
+
