@@ -15765,3 +15765,80 @@ S1有没有拉拉群不清楚，前面楼里我推荐过一个氛围不错的NO.
 <img src="https://p.sda1.dev/2/3a7da343035a77278580b43b92ec8e8a/002bPQ2dly1gv5rvyefkej60rs48ohdt02.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 1238#       发表于 2021-10-6 22:09
+
+
+<blockquote>名津流 发表于 2021-10-6 21:57
+乐子还是不少的，直播事故非常频繁
+
+不过药和糖反倒不多，本来nako请假pay和liyuu占中了间两席，一堆人等着 ...</blockquote>
+啊？都已经是官配了，鲤鱼还是眼里只有打铁匠吗www
+
+
+*****
+
+####  kata魂  
+##### 1239#       发表于 2021-10-6 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53017109&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-6 22:09</a>
+
+啊？都已经是官配了，鲤鱼还是眼里只有打铁匠吗www</blockquote>
+鲤鱼的眼里只有诗和远方（指rap和左边）
+
+
+*****
+
+####  lj205  
+##### 1240#       发表于 2021-10-6 22:12
+
+
+小千的小肉包好涩
+
+
+*****
+
+####  chenflyyy  
+##### 1241#       发表于 2021-10-6 22:14
+
+
+ 本帖最后由 chenflyyy 于 2021-10-6 22:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53016981&amp;ptid=2028598" target="_blank">Piano-Forest 发表于 2021-10-6 21:59</a>
+https://twitter.com/shimo_ushi/status/1445365149242515461</blockquote>
+是微博和推都关注了的画师太太，没想到也逛s1，严重怀疑几个国内sns社区的ll人是同一批人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 1242#       发表于 2021-10-6 22:17
+
+
+<blockquote>kata魂 发表于 2021-10-6 22:10
+鲤鱼的眼里只有诗和远方（指rap和左边）</blockquote>
+我咋觉得她生放里一直刻意跟佩佩保持距离，但是佩佩一撒娇，她就蚌埠住～～
+
+
+*****
+
+####  lj205  
+##### 1243#       发表于 2021-10-6 22:19
+
+
+鲤鱼这念自己的rap都能吃螺丝XD
+
+
+*****
+
+####  cybernetics31  
+##### 1244#       发表于 2021-10-6 22:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正有的是机会贴贴，后面外场活动肯定少不了
+
+

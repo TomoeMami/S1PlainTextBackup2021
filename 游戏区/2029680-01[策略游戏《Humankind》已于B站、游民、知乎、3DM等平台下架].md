@@ -2999,3 +2999,21 @@ humankind的所有同等级特色建筑都减稳定。从无尽传奇传下来�
 有宗教有骑士噢
 
 
+
+
+*****
+
+####  asdfg  
+##### 245#       发表于 2021-10-6 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53012252&amp;ptid=2029680" target="_blank">不会武术 发表于 2021-10-6 13:56</a>
+
+文明里的hk可是 城 邦 噢
+
+可能老爷不太懂文明里城邦是什么概念</blockquote>
+纯就1897至1997年之间的情况来说，基本是准确的。实质性情况来说到直到去年通过某法为止，也没什么错。
+
+但如果目的是拿出来说事，那可以说的东西就太多了……
+
+

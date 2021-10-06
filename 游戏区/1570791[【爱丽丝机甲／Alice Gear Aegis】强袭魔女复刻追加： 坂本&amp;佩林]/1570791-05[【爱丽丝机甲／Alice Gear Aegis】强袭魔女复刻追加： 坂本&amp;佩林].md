@@ -1216,3 +1216,17 @@ aga的这种纯电子乐希望他能发挥好点吧...
 然后妮娜明明感到夜露有问题上次居然对米海洛夫瞒报没说，也不知道为什么
 
 
+
+
+*****
+
+####  alialex  
+##### 6089#         楼主| 发表于 2021-10-6 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53015028&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2021-10-6 19:16</a>
+
+这东京eagis应急部队水平装备斗志都不行啊，有空间跳跃装置保命还不愿战斗到底还说自己是弃子，经历过上次 ...</blockquote>
+大概是友情
+
+
