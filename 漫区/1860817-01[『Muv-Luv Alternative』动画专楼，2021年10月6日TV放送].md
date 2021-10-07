@@ -11404,3 +11404,35 @@ cast表那个世界情绪又是个啥</blockquote>
 Beta不吃硅基生物，非常合理，非常符合设定
 
 
+
+
+*****
+
+####  二十一世纪末ayu  
+##### 786#       发表于 2021-10-7 20:34
+
+
+艾回今年不都进腾讯的内娱综艺了，有其他的拓展合作也正常吧
+
+
+*****
+
+####  星降る森  
+##### 787#       发表于 2021-10-7 20:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没玩过游戏，看这第一话绝望感比法芙娜低不少，按剧中人物说法这地方也算个要地，怎么防守兵力压倒性不足的样子，避难所直接变成了BETA的自助餐厅.......
+
+
+*****
+
+####  六識命  
+##### 788#       发表于 2021-10-7 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53027221&amp;ptid=1860817" target="_blank">星降る森 发表于 2021-10-7 20:36</a>
+
+没玩过游戏，看这第一话绝望感比法芙娜低不少，按剧中人物说法这地方也算个要地，怎么防守兵力压倒 ...</blockquote>
+奈何BETA有高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

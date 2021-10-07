@@ -7612,3 +7612,31 @@ CPU MHz:          3700     
 在艺术家的基地死了三次……我好废物啊……
 
 
+
+
+*****
+
+####  栗悟龟波  
+##### 623#       发表于 2021-10-7 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53026872&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-7 20:10</a>
+在艺术家的基地死了三次……我好废物啊……</blockquote>
+建议带隐身慢慢摸进去，或者把核弹解了开干
+
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  量子大蛇  
+##### 624#       发表于 2021-10-7 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53026872&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-7 20:10</a>
+
+在艺术家的基地死了三次……我好废物啊……</blockquote>
+艺术家确实挺难打的，正面对抗很容易被她的无敌耗死，比较安全的杀法是她的房间外面走廊里有个炮塔，基地后门岗亭也有一个炮塔，两个炮塔都带到房间门口，一个正对房间，一个斜向对着房间，然后自己蹲在没有炮塔的那一侧门边，紧贴墙壁开门，炮塔就会扫到艺术家，一般来说她最多打掉第一座炮塔就被打死了，就算跑出来，她的仇恨也在炮塔身上，可以从背后偷袭她。
+
+
