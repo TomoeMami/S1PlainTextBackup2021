@@ -11354,3 +11354,16 @@ cast表那个世界情绪又是个啥</blockquote>
 要塞的支援火力就是停靠在后方的舰队吧，不过陆军马鹿放心把后背交给海军马鹿也是心大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  千本blur  
+##### 782#       发表于 2021-10-7 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024561&amp;ptid=1860817" target="_blank">梶原ひかり 发表于 2021-10-7 16:42</a>
+管人 就是动画里 穿着像穿越者的小女孩...其实就是唱OP的</blockquote>
+虚拟歌手≠管人！（绝望）
+
+
