@@ -11018,3 +11018,61 @@ cast表那个世界情绪又是个啥</blockquote>
 而且国内也没查禁226事件的电影啊。
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 761#       发表于 2021-10-7 15:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023587&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-7 15:11</a>
+就 “日本帝國” 四个大字往那儿一摆谁敢碰啊
+
+
+只求226部分别被拉出来带节奏，到时候从动画到Steam ...</blockquote>
+226有什么可带节奏，国内要有节奏也是喀什和最开始中国对BETA的态度。
+
+
+*****
+
+####  SorroFrost  
+##### 762#       发表于 2021-10-7 15:27
+
+
+muv的steam国区我记着都上过两次吧，cn就设定里提了几嘴，你只能说他是擦边球，直球根本没有，说到底也是日美那些事。虽然现在这舆论比前几年要敏感很多
+
+
+*****
+
+####  再买自检星剁手  
+##### 763#       发表于 2021-10-7 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023547&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-7 15:07</a>
+
+感觉age的人设做了好几版了，这次TV化又是一版。</blockquote>
+动画当然要做人设，但这次是发型之类的细节最少的
+
+
+有几个角色去了头发，把眼睛颜色统一，就分不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 764#       发表于 2021-10-7 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023027&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-7 14:19</a>
+
+委员会里腾讯排在第四不知道是来干啥的（助理制片里也看到有国人应该就是腾讯的吧），这片明摆着国内谁敢买 ...</blockquote>
+别忘了，腾讯是投资公司
+
+
+思路可能是国内能接受就血赚，不能进国内也不亏
+
+
+抹布拉布在鬼佬黄油玩家里的评价可不低
+
+
