@@ -3628,3 +3628,14 @@ op的科学技术才是第一生产力<img src="https://static.saraba1st.com/ima
 queen这个变身是什么玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  先手必胜  
+##### 55762#       发表于 2021-10-8 00:29
+
+
+queen这个招式久违的给人有趣的感受，有当年长颈鹿果实的感觉了
+
+
