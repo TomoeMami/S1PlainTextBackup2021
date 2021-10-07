@@ -5664,3 +5664,16 @@ NB的也有.
 静姨竟然不知道炫狗，冲浪还不如乃琳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rgauss  
+##### 498#       发表于 2021-10-7 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023006&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-10-7 14:16</a>
+静姨竟然不知道炫狗，冲浪还不如乃琳</blockquote>
+文静不玩lol的 估计相关的梗也没深入了解额
+
+

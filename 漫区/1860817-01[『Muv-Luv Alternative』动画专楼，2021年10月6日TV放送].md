@@ -11215,3 +11215,115 @@ cast表那个世界情绪又是个啥</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  禦厨三九二  
+##### 776#       发表于 2021-10-7 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个墙像积木一样一倒倒一片是真的没绷住
+
+
+*****
+
+####  raynor_1999  
+##### 777#       发表于 2021-10-7 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53021380&amp;ptid=1860817" target="_blank">蛋炒蜂窝煤 发表于 2021-10-7 11:39</a>
+
+这剧情老犯病了，为了突出惨烈舍弃了合理性。原作有好几个重复出现的剧情是机体出了问题跑不了，出 ...</blockquote>
+司令部是真蠢，队长的推进单元坏掉了，而且右躯干被捅了，大出血基本没救了，主要是CV中气十足一点没受伤的样子<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 778#       发表于 2021-10-7 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019193&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-7 02:55</a>
+这个第一话的画面，肉眼可见的贫穷，而且槽点略多。。
+
+
+那么大块水泥没有地基的吗？</blockquote>
+至少枪炮和爆炸效果还不错，比起ATE好太多了…
+帝都保卫战那才是肉眼可见的作画贫穷，火炮和导弹弹道跟棉花糖似的，坦克和炮车的建模更别提了简直是灾难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梶原ひかり  
+##### 779#       发表于 2021-10-7 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+01.jpg
+(59.14 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-7 18:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/180817omxvxaxfdpjpdbgw.jpg" referrerpolicy="no-referrer">
+
+
+02.jpg
+(48.92 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-7 18:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/180817a6ldxlpu91ngx0wt.jpg" referrerpolicy="no-referrer">
+
+
+03.jpg
+(45.12 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-7 18:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/180817jjkjhjutgkhutj2u.jpg" referrerpolicy="no-referrer">
+
+
+04.jpg
+(38.96 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-7 18:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/180817hvzmq1aelxlix81m.jpg" referrerpolicy="no-referrer">
+
+
+05.jpg
+(37.3 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-7 18:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/180817nzyr748n8xrxif2y.jpg" referrerpolicy="no-referrer">
+
+
