@@ -11659,3 +11659,68 @@ J20的正式官方设定到底出没出来？
 2021-10-8 01:27 上传
 
 
+
+
+*****
+
+####  jdd46820  
+##### 805#       发表于 2021-10-8 02:05
+
+
+没玩过游戏。很奇怪为什么不用战术级核武，登陆那里应该很好用才对。另外也很奇怪军舰怎么又回到多炮台了，难道是嫌驱逐舰导弹数量不够吗。这火力覆盖能力也好差呀，射速也是二战级别的。然后就是，这弄弄的一股右翼味，臭不可闻。
+
+
+*****
+
+####  yone0000  
+##### 806#       发表于 2021-10-8 03:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53030782&amp;ptid=1860817" target="_blank">jdd46820 发表于 2021-10-8 02:05</a>
+
+没玩过游戏。很奇怪为什么不用战术级核武，登陆那里应该很好用才对。另外也很奇怪军舰怎么又回到多炮台了， ...</blockquote>
+几千上万的规模，驱逐舰坑里打完就没有了，而且军舰还要兼顾发射重金属弹头炮弹来削减光线级的射击效果，还需要重装甲来扛光线级的照射。还有一点不知道为什么这个世界的半导体技术没有原世界发达<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 807#       发表于 2021-10-8 04:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53031183&amp;ptid=1860817" target="_blank">yone0000 发表于 2021-10-8 03:27</a>
+
+几千上万的规模，驱逐舰坑里打完就没有了，而且军舰还要兼顾发射重金属弹头炮弹来削减光线级的射击效果， ...</blockquote>
+半导体问题很简单，因为beta世界里没有电子游戏和其他娱乐，科技和娱乐需求的相互促进作用也是公认的了。
+
+
+（冥夜一看到gameguy就沉迷不停<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+
+另外即使是unlimited里的世界线，香月夕呼所需要的芯片，技术工艺的要求是很超前的，差不多相当于14nm的技术，而2001年，我们的世界，130nm就是最先进的制程了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+顺便一提，2021年，苹果a15芯片刚好达到150亿晶体管，面积差不多是食指指甲盖大小。（原作的要求是手掌大小）
+
+
+*****
+
+####  阿虚家的三味  
+##### 808#       发表于 2021-10-8 04:37
+
+
+不知道为什么选佐渡岛沦陷这段来做，而不是选和主角团关系更紧密的明星作战，完了接个游戏开头的humanbrain也挺好
+
+
+*****
+
+####  半分宅  
+##### 809#       发表于 2021-10-8 04:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53031302&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-7 16:27</a>
+
+半导体问题很简单，因为beta世界里没有电子游戏和其他娱乐，科技和娱乐需求的相互促进作用也是公认的了。 ...</blockquote>
+这么一想，现代电子技术的发展真是可怕。记得之前看人吐槽终结者3，说天网的运算能力在2021年只相当于几块3080。
+
+

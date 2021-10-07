@@ -17474,3 +17474,15 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 阿基米德是王子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cckuku  
+##### 83955#       发表于 2021-10-8 02:48
+
+
+突然理解了外野说的白幼瘦审美是啥意思，这不就是点名妖兰吗？
+原来我就是被微博豆瓣天天批倒批臭的白幼瘦畸形审美爱好者？怪不得我对着泳装迦摩的大莱莱毫无想法但对着妖兰狂舔<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
