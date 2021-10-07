@@ -18471,3 +18471,15 @@ ns云游戏版独占服装
 tod导剪 战斗系统没的比 爽太多了
 
 
+
+
+*****
+
+####  lelouchwang  
+##### 5862#       发表于 2021-10-7 19:54
+
+
+好像一定要先把桐人砍到半血触发双刀流才能打下去，不然根本打不动两人，亚丝娜还不停回血。
+桐人的大招和亚丝娜一比真是弟弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
