@@ -20528,3 +20528,16 @@ syl，看了会儿hnn单排，日本人这毛病确实不行
 难怪一直都有liver不让打sc<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  purdre  
+##### 7482#       发表于 2021-10-8 07:41
+
+
+ 本帖最后由 purdre 于 2021-10-8 07:43 编辑 
+
+彩虹不是都说SC抽成高所以让买音声的嘛，SC不说公司抽成，光是油管本身就要抽掉30%了，还要上税啥的，最后到手的能有一半都算高的了吧，感觉都不如streamlab直接打钱，也就聊天栏里面看着风光
+
+
