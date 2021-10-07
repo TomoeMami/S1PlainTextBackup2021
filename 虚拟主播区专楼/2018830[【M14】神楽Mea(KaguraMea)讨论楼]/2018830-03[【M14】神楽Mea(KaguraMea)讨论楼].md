@@ -5356,3 +5356,14 @@ bsyl，看来阿咩勾选了克苏鲁天赋（智力-1）
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  路人庚  
+##### 3474#       发表于 2021-10-7 11:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你后知后觉的有点晚其实
+
+

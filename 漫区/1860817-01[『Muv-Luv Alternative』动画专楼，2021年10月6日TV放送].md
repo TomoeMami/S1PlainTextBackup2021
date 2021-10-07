@@ -10430,3 +10430,97 @@ ED后睁眼的三流驾驶员吗？
 那个被要塞级液体溶死机内的情节有问题吧，要塞级的丁丁鞭攻击队友有时间反应救队友，但当它倒下就没时间反应飞开或跑开只在那呆站着被压。
 
 
+
+
+*****
+
+####  ❃✽✾✶✻✼  
+##### 716#       发表于 2021-10-7 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020992&amp;ptid=1860817" target="_blank">性欲モンスター 发表于 2021-10-7 11:05</a>
+
+那个被要塞级液体溶死机内的情节有问题吧，要塞级的丁丁鞭攻击队友有时间反应救队友，但当它倒下就没时间反 ...</blockquote>
+他不是打完以后在那抒发感想吗
+
+
+*****
+
+####  ❃✽✾✶✻✼  
+##### 717#       发表于 2021-10-7 11:26
+
+
+比想象中好
+
+
+*****
+
+####  ReginaldMorgan  
+##### 718#       发表于 2021-10-7 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019446&amp;ptid=1860817" target="_blank">培根芝士蛋堡XD 发表于 2021-10-7 03:43</a>
+
+上来就打beta其实处理的比原作好，第一集打斗和节奏也比隔壁境界战机好，机战整体都不错，如果像原作白银武 ...</blockquote><blockquote>如果像原作白银武在那里墨迹了大半天，后半段才终于见到beta长啥样</blockquote>
+
+我只能说我从un开始，除了念叨“我那么大一只纯夏呢”外，就一直惦记着“BETA到底你妈长啥样”，整个un全程都是隔着屏幕看小点点，我差点以为这游戏是一个“BETA本身并不存在”的叙诡设计了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 719#       发表于 2021-10-7 11:39
+
+
+真的只有12话？
+
+那不是已经提前宣布凉凉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋炒蜂窝煤  
+##### 720#       发表于 2021-10-7 11:39
+
+
+ 本帖最后由 蛋炒蜂窝煤 于 2021-10-7 11:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这剧情老犯病了，为了突出惨烈舍弃了合理性。原作有好几个重复出现的剧情是机体出了问题跑不了，出现一次就算了，前前后后出现了好几次，强行留下牺牲。这第一集的队长也没看到她跑不了，怎么就又又又又单机堵门强行留下牺牲了。这司令部留下也没啥用，还不如跑路等以后发光发热，一般民众都能撤你们怎么就不能撤了，继续强行留下牺牲，只能说老犯病了。
+
+
+
+
+*****
+
+####  蛋炒蜂窝煤  
+##### 721#       发表于 2021-10-7 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020992&amp;ptid=1860817" target="_blank">性欲モンスター 发表于 2021-10-7 11:05</a>
+
+那个被要塞级液体溶死机内的情节有问题吧，要塞级的丁丁鞭攻击队友有时间反应救队友，但当它倒下就没时间反 ...</blockquote>
+要么就是驾驶员菜，要么纯粹没想做，大概脚本安排就是这战术机要被要赛级压住，但是没指明驾驶员的反应，不然连个推进器推进一下尝试挣扎都没有，既然是3d也就做一下的程度工程量怎么都不会大。
+
+
+*****
+
+####  殿珣  
+##### 722#       发表于 2021-10-7 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53021380&amp;ptid=1860817" target="_blank">蛋炒蜂窝煤 发表于 2021-10-7 11:39</a>
+这剧情老犯病了，为了突出惨烈舍弃了合理性。原作有好几个重复出现的剧情是机体出了问题跑不了，出 ...</blockquote>
+司令部下达的最后命令就是让他死守吧，为撤退争取时间
+
+
+*****
+
+####  殿珣  
+##### 723#       发表于 2021-10-7 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53021405&amp;ptid=1860817" target="_blank">蛋炒蜂窝煤 发表于 2021-10-7 11:42</a>
+要么就是驾驶员菜，要么纯粹没想做，大概脚本安排就是这战术机要被要赛级压住，但是没指明驾驶员的反应， ...</blockquote>
+新兵上战场没注意挂掉正常。
+
+
