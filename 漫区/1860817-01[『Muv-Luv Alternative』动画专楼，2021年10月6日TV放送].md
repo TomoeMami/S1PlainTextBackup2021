@@ -10850,3 +10850,67 @@ image.png
 <img src="https://img.saraba1st.com/forum/202110/07/144245waa3y5yu4lauua8u.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 750#       发表于 2021-10-7 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53022462&amp;ptid=1860817" target="_blank">培根芝士蛋堡XD 发表于 2021-10-7 13:24</a>
+al的绝望感其实也就那样，前期都在军营里哪里有绝望感，要我说beta其实原作做得最好的是神秘感 ...</blockquote>
+是知道原作前期就是武开无双的套路，但这集是原创剧情啊，原创剧情不就是为了给路人观众介绍世界观吗？不应该更加描写的残酷一点吗？
+
+
+
+
+*****
+
+####  ReginaldMorgan  
+##### 751#       发表于 2021-10-7 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023290&amp;ptid=1860817" target="_blank">酒神的狂欢祭 发表于 2021-10-7 14:43</a>
+有新op、ed是不是就意味着看到不到未来への咆哮了</blockquote>
+我记得游戏里未来咆哮也是最后一战前才放的吧，本来我就没期待动画oped就是未来咆哮。我要求不高，只要樱花作战的时候能听到，并且不是管人翻唱版就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qhlixpfh  
+##### 752#       发表于 2021-10-7 14:53
+
+
+所以第一集这些人只是酱油龙套吗?....
+
+cast表那个世界情绪又是个啥
+
+
+*****
+
+####  Boliva  
+##### 753#       发表于 2021-10-7 14:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能动画化就不错了，要求别太高了~
+
+
+*****
+
+####  再买自检星剁手  
+##### 754#       发表于 2021-10-7 14:57
+
+
+ 本帖最后由 再买自检星剁手 于 2021-10-7 14:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023235&amp;ptid=1860817" target="_blank">UnrealApartheid 发表于 2021-10-7 14:38</a>
+如果这个女孩子后期还有戏份，你认为会如何被安排呢？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+要我猜的话，少女应该比白银武他们早一届训练毕业。要么在12.5事件里露头然后牺牲，要么坚持到新OS测试，加入对白银武赞不绝口的老兵队伍里
+
+要么就首尾呼应，被救出的少女参加佐渡岛夺回作战
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
