@@ -12367,3 +12367,14 @@ UMISEA原来是春天就开始准备了啊，为了准备这个还学了一阵�
 被川原砾回了推，牌面
 
 
+
+
+*****
+
+####  星の守  
+##### 6990#       发表于 2021-10-8 01:26
+
+
+<img src="https://p.sda1.dev/2/9868a1217844ee54edf21dd18d4fdf79/IMG_CMP_259079476.jpeg" referrerpolicy="no-referrer">
+
+
