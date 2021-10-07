@@ -18303,3 +18303,36 @@ ns云游戏版独占服装
 就那么一点内容的DLC卖98<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  放大镜  
+##### 5851#       发表于 2021-10-7 10:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019363&amp;ptid=1860328" target="_blank">瑕在瑾中 发表于 2021-10-7 03:06</a>
+
+这作是不是法爷最牛逼呀？林薇尔中期学了雷阵和天赐之剑也太强了吧，连招咏唱叠起来，没ag还能转圈保持连招 ...</blockquote>
+实际上不一定要用双倍伤害，主线推到有极锐矿的时候做个3孔火伤命中给男主体验就极大改善了
+
+
+霸道灭封 22405*2=44810（0.8S，max）火
+
+刚华爆炎阵 6772*8=54176（2.5S，max）火
+
+
+没有霸道可以用魔神剑+刚华，因为卖血的关系动画时间对DPS的影响有限，最短站桩时间3秒
+
+有了霸道基本也能做4反击命中了，换洛打连击，男主带BG饰品在后台负责击倒，伤害也很暴力
+
+
+*****
+
+####  EigenVesper  
+##### 5852#       发表于 2021-10-7 10:38
+
+
+借楼问一句，想玩一作2d传说，从toe开始还是tod导剪开始好啊
+
+
