@@ -3319,3 +3319,17 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 今年八月删除的，被盗号了，动态发了段给v8的道歉。之后她立马说要注销账号（也不知道注销了没）
 
 
+
+
+*****
+
+####  电磁炮233  
+##### 257#       发表于 2021-10-7 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020092&amp;ptid=2021175" target="_blank">wbzdwsmnmsl 发表于 2021-10-7 09:28</a>
+
+今年八月删除的，被盗号了，动态发了段给v8的道歉。之后她立马说要注销账号（也不知道注销了没） ...</blockquote>
+应该是注销了，现在那个同名的是戏服
+
+
