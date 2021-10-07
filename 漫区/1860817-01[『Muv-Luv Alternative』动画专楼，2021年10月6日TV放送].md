@@ -11459,3 +11459,15 @@ Beta不吃硅基生物，非常合理，非常符合设定
 beta的绝望感主要是数量多，光线级封锁了空军，还有就是它们(涉及剧透，在后期beta才亮出来)
 
 
+
+
+*****
+
+####  kamarus  
+##### 791#       发表于 2021-10-7 21:18
+
+
+搞半天第一集是佐渡岛丢人战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这没有武爷小日本真的就是白给beta<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
