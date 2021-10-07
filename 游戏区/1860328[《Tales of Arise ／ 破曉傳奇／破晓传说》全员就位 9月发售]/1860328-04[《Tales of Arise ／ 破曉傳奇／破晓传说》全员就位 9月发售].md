@@ -18507,3 +18507,27 @@ tod导剪 战斗系统没的比 爽太多了
 不是都有写出处吗
 
 
+
+
+*****
+
+####  克里斯蒂娜  
+##### 5865#       发表于 2021-10-7 23:10
+
+
+桐人要先半血后再杀亚丝娜，桐人先死你就等团灭吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  法拉  
+##### 5866#       发表于 2021-10-7 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020677&amp;ptid=1860328" target="_blank">EigenVesper 发表于 2021-10-7 10:38</a>
+借楼问一句，想玩一作2d传说，从toe开始还是tod导剪开始好啊</blockquote>
+当然是toddc，感受一下早期cc制，toe只要你想玩总会玩到的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

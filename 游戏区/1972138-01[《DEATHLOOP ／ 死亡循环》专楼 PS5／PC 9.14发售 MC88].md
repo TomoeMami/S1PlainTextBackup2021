@@ -7726,3 +7726,45 @@ CPU MHz:          3700     
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  moimoi  
+##### 632#       发表于 2021-10-7 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029138&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-10-7 23:03</a>
+
+拆核弹的步骤都一样的，左上右上左下右下把核弹拆了，记得这图里最危险的是两个小金人，宁可暴露也优先击 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">小金人是什么？我清地图了没看见啊，是冒着七彩光打完掉饰品和装备的小兵吗？
+
+我两次死在拆核弹上，拆着拆着被人打死了，后面就是靠着黑客过载爆炸才杀了艺术家
+
+干扰器我记得这个地图是没有的吧，是邮寄过去的？
+
+
+*****
+
+####  moimoi  
+##### 633#       发表于 2021-10-7 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53028920&amp;ptid=1972138" target="_blank">Niyah 发表于 2021-10-7 22:46</a>
+
+菲娅直接潜行暗杀比较简单，还可以拿个成就。从二层那个休息室进去解决掉两个人，穿过左边的过道很快就能到 ...</blockquote>
+我就是从二层那个换衣间过去，打开门就是一个敌人站在平台上往这边观望，只要我出门就会被发现，我几次试图从换衣间门口远程无声手枪射击杀掉那个观望的，都被发现了然后核弹bom，后面才发现敌人前是防弹玻璃，这点还蛮阴险的<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moimoi  
+##### 634#       发表于 2021-10-7 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029108&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-10-7 23:00</a>
+
+多出来的100块大家就当是给arkane信仰充值了，别想太多…想太多就会发现除了男女主服装剩下的全都能 ...</blockquote>
+请问男女主服装怎么解锁，我除了预购送的至今都没解锁一套衣服，看了下还有十几套衣服呢，明明也20多个小时了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
