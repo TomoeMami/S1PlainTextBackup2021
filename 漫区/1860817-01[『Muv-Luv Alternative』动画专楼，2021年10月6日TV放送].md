@@ -11557,3 +11557,44 @@ beta的绝望感主要是数量多，光线级封锁了空军，还有就是它�
 就以第一集动画展现的情况来看，和前几部系列动画差不多水平。指望大制作神还原还是想多了。
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 799#       发表于 2021-10-7 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023381&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-10-7 14:51</a>
+
+我记得游戏里未来咆哮也是最后一战前才放的吧，本来我就没期待动画oped就是未来咆哮。我要求不高，只要樱 ...</blockquote>
+游戏里的未来咆哮也是后加的，初版游戏并没有轨道下降见到hive到突入巢穴的动画，直接快进到即将进入最终大厅。
+
+
+虽然吉宗钢纪自己说当初找jam和动画找管人是为了出圈，是不是实话就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿姆罗二世  
+##### 800#       发表于 2021-10-7 22:58
+
+
+黑屁美国昭和右翼左翼都喜欢吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸡总这种精神昭和壬当然是一脉相承的啦
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 801#       发表于 2021-10-7 22:59
+
+
+插嘴问一下
+
+J20的正式官方设定到底出没出来？
+
+最新的还是前几年吉宗搞的那个官同书刊里的？
+
+

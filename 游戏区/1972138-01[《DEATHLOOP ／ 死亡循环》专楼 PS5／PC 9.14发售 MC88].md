@@ -7667,3 +7667,62 @@ CPU MHz:          3700     
 这种相对有点难度的关卡过关后真的好爽啊
 
 
+
+
+*****
+
+####  Freakyyu  
+##### 627#       发表于 2021-10-7 22:41
+
+
+啊这，菲娅那个屋顶（就是核弹装置上方）有个口子可以装上旋转阀打开跳进去，偷袭过去直接两枪就带走了。旋转阀可以在那个基地仓库的战车下面找到。
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  astrayveller  
+##### 628#       发表于 2021-10-7 22:46
+
+
+除了阀门暗道还可以直接剪线啊 让她炸不了
+
+— from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  Niyah  
+##### 629#       发表于 2021-10-7 22:46
+
+
+菲娅直接潜行暗杀比较简单，还可以拿个成就。从二层那个休息室进去解决掉两个人，穿过左边的过道很快就能到她在的房间。
+
+
+*****
+
+####  屑猫猫  
+##### 630#       发表于 2021-10-7 23:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">多出来的100块大家就当是给arkane信仰充值了，别想太多…想太多就会发现除了男女主服装剩下的全都能在游戏里花几小时收集齐全，杯赛太缺德了，一想到这儿我就想骂杯赛
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  屑猫猫  
+##### 631#       发表于 2021-10-7 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53026872&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-7 20:10</a>
+在艺术家的基地死了三次……我好废物啊……</blockquote>
+拆核弹的步骤都一样的，左上右上左下右下把核弹拆了，记得这图里最危险的是两个小金人，宁可暴露也优先击杀。屑女人也有信号机，记得把她也给黑客，如果怕不稳可以把炮塔和干扰器都丢进去然后安装好，就可以等着收人头了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -1374,3 +1374,14 @@ MOE父亲公司破产的情况应该就是单纯的表现月人手脏水深吧�
 各种黑帮都不算了。什么？高次元机械生命体VICE？区区资源一边玩去不要打扰我们人类内斗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  LEOKO~  
+##### 6099#       发表于 2021-10-7 22:57
+
+
+VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了一下就没了所以是从造型上误判）
+
+
