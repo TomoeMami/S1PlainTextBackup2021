@@ -11076,3 +11076,47 @@ muv的steam国区我记着都上过两次吧，cn就设定里提了几嘴，你�
 抹布拉布在鬼佬黄油玩家里的评价可不低
 
 
+
+
+*****
+
+####  有妹是老婆  
+##### 765#       发表于 2021-10-7 15:55
+
+
+狗木眼睛妹子好看啊，后面还有戏份吗
+
+
+*****
+
+####  bartholo4  
+##### 766#       发表于 2021-10-7 15:58
+
+
+世界观设定里是人类没有掌握热核武器吗？感觉这beta也不肉，聚变空爆，地雷洗涤不好吗
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Yeaha123  
+##### 767#       发表于 2021-10-7 16:00
+
+
+第二个分矿就是核弹炸的
+
+
+*****
+
+####  KOPKOM  
+##### 768#         楼主| 发表于 2021-10-7 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024114&amp;ptid=1860817" target="_blank">bartholo4 发表于 2021-10-7 15:58</a>
+世界观设定里是人类没有掌握热核武器吗？感觉这beta也不肉，聚变空爆，地雷洗涤不好吗
+
+—— 来自 Google P ...</blockquote>
+这世界观里柏林可是被种蘑菇的，但对beta这种人海战术基本没什么大用，核地雷倒是一直有在使用的
+
+
