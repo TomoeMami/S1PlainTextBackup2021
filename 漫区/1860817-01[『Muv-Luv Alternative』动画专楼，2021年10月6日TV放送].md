@@ -10914,3 +10914,107 @@ cast表那个世界情绪又是个啥
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 755#       发表于 2021-10-7 15:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53022671&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-7 14:45</a>
+
+人设相比原作游戏简化了很多细节，应该是出于降低作画成本的考虑。
+
+
+即使如此，pv2里的人物也给人一种即 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/07/160612im23626rf7flyqza.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[アージュ] exogularity 02.rar_[アージュ] exogularity 02_img_34_35.jpg</strong> (529.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-7 15:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/160617z1w8bgl2mmtqqw2q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[アージュ] exogularity 02.rar_[アージュ] exogularity 02_img_36_37.jpg</strong> (523.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-7 15:06 上传
+
+
+感觉age的人设做了好几版了，这次TV化又是一版。
+
+
+*****
+
+####  hlazd  
+##### 756#       发表于 2021-10-7 15:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023409&amp;ptid=1860817" target="_blank">qhlixpfh 发表于 2021-10-7 14:53</a>
+所以第一集这些人只是酱油龙套吗?....
+
+cast表那个世界情绪又是个啥</blockquote>
+大部分都是龙套。
+几位舰长要甲21时再出来了，至于驹木等后面125时会出来，她手上还有A01的一条人命…
+
+
+*****
+
+####  Toby_dak  
+##### 757#       发表于 2021-10-7 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023027&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-7 15:19</a>
+
+委员会里腾讯排在第四不知道是来干啥的（助理制片里也看到有国人应该就是腾讯的吧），这片明摆着国内谁敢买 ...</blockquote>
+大胆设想下，说不定企鹅高管里面有age厨或者抹布厨呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  云映天河  
+##### 758#       发表于 2021-10-7 15:11
+
+
+这陆军马鹿搞什么昭和操作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来人就被beta给杀得差不多了，男人都不怎么够用，要不是明星作战那发G弹怕不是直接就被平推了吧。
+
+
+*****
+
+####  桧月彩花  
+##### 759#       发表于 2021-10-7 15:11
+
+
+就 “日本帝國” 四个大字往那儿一摆谁敢碰啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+只求226部分别被拉出来带节奏，到时候从动画到Steam你们一个都别想跑
+
+
+*****
+
+####  Toby_dak  
+##### 760#       发表于 2021-10-7 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023587&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-7 16:11</a>
+
+就 “日本帝國” 四个大字往那儿一摆谁敢碰啊
+
+
+只求226部分别被拉出来带节奏，到时候从动画到Steam ...</blockquote>
+125政变属于日本内政，脏水也都泼到米国身上。
+
+而且国内也没查禁226事件的电影啊。
+
+
