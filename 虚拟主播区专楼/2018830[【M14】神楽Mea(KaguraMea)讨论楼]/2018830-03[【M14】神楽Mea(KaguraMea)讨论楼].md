@@ -5341,3 +5341,18 @@ bsyl，看来阿咩勾选了克苏鲁天赋（智力-1）
 没记错的话，19年初阿b请你咩姐跟职业选手一起玩lol的那场，给你咩姐用的国服账号id就是这个
 
 
+
+
+*****
+
+####  往世雷书  
+##### 3473#       发表于 2021-10-7 11:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020095&amp;ptid=2018830" target="_blank">路人庚 发表于 2021-10-7 09:29</a>
+没记错的话，19年初阿b请你咩姐跟职业选手一起玩lol的那场，给你咩姐用的国服账号id就是这个 ...</blockquote>
+秋月朔每个字都是春日望的反义/近义词，很有巨魔味
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
