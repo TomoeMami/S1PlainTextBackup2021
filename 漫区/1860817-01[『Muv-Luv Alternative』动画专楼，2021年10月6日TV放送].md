@@ -10790,3 +10790,24 @@ beta登陆，开场感觉“就这”，后期以数量体现绝望感做得还�
 做不出绝望感一是bgm拉了，二是画面过于明亮，给人的观感更像是beta来春游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  xwr  
+##### 746#       发表于 2021-10-7 14:11
+
+
+觉得还是.....缺钱
+
+
+*****
+
+####  hlazd  
+##### 747#       发表于 2021-10-7 14:19
+
+
+委员会里腾讯排在第四不知道是来干啥的（助理制片里也看到有国人应该就是腾讯的吧），这片明摆着国内谁敢买…
+<img src="https://p.sda1.dev/2/5c94dc3a4e39b9b1b88f59b37727061d/1b2f0699841ee7f28ebc1c597247fbf2.jpg" referrerpolicy="no-referrer">
+
+

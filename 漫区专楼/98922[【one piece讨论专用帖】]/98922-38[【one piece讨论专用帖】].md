@@ -3578,3 +3578,18 @@ op的科学技术才是第一生产力<img src="https://static.saraba1st.com/ima
 这……我还以为假果实桃之助随随便便把凯多咬到嗷嗷叫已经够<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">了，结果山治嗷的一声变血统超人了。
 
 
+
+
+*****
+
+####  klzxs  
+##### 55758#       发表于 2021-10-7 14:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完整图透有了
+
+这queen实在太有趣了
+
+可惜逼反自己杂兵的部分是在太low了
+
+
