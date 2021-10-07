@@ -10662,3 +10662,29 @@ ED后睁眼的三流驾驶员吗？
 第一话观感还行，但是感觉降低了原作的绝望感，黑深残不够，赶不上ATE前两集，没有啃妹子就算了，连啃汉子都没有....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 736#       发表于 2021-10-7 12:54
+
+
+我觉得应该不是内乱结束吧，pv都出现甲二十一了，况且一季度都不让那个谁露个脸是不是很过分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+大胆猜测是结束在甲二十一，反攻回佐渡岛跟开头佐渡岛失守相呼应，具体是结束在进攻宣言还是打完还是纯夏吃醋就不知道了。虽然我确实没想明白训练兵五章+政变+反穿越+泪海尽头怎么塞到十一集里面<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Carta_Issue  
+##### 737#       发表于 2021-10-7 12:57
+
+
+真太尼玛昭和了，司令部一帮子人居然不撤退要留下来送死？！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+留下来一换一也换不了几只BETA啊
+
+想起太平洋战争联合舰队一帮经验丰富的老兵非要跟船一起沉
+
+

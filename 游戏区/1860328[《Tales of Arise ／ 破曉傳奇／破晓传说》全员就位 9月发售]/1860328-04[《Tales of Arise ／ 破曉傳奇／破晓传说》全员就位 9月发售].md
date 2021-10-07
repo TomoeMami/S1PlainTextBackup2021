@@ -18358,3 +18358,18 @@ ns云游戏版独占服装
 想钱想疯了，斗技场2场战斗卖百来块钱
 
 
+
+
+*****
+
+####  DelayNoMore  
+##### 5855#       发表于 2021-10-7 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019363&amp;ptid=1860328" target="_blank">瑕在瑾中 发表于 2021-10-7 03:06</a>
+这作是不是法爷最牛逼呀？林薇尔中期学了雷阵和天赐之剑也太强了吧，连招咏唱叠起来，没ag还能转圈保持连招 ...</blockquote>
+最牛逼是希侬，进可攻退可守，林薇尔乱战太容易被秒
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

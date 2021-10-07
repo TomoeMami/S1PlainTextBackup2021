@@ -16065,3 +16065,29 @@ lovelive的YouTube频道关于liella的视频总关评论是因为评论区里�
 唯一关评论区的只有生放送，但也把实时评论保留了啊？
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 1261#       发表于 2021-10-7 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020902&amp;ptid=2028598" target="_blank">努斯万克 发表于 2021-10-7 10:57</a>
+
+lovelive的YouTube频道关于liella的视频总关评论是因为评论区里谈政治的太多吗
+
+
+  -- 来自 能手机投票的 St ...</blockquote>
+不是，其他团也经常关
+
+
+*****
+
+####  优妮可  
+##### 1262#       发表于 2021-10-7 12:56
+
+
+【两个“外星人”-哔哩哔哩】[https://b23.tv/jGC4KU](https://b23.tv/jGC4KU)跟青山姐搭配总是能整活。
+
+
