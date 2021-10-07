@@ -5715,3 +5715,36 @@ Mea之前不是说十月份要和兰太郎线下联动来着？
 现在的游戏回好稀有啊。。。
 
 
+
+
+*****
+
+####  甘栗No.007  
+##### 3507#       发表于 2021-10-7 19:21
+
+
+我很擅长这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3508#       发表于 2021-10-7 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兰太郎这阳台这么怪异竟然没人打
+
+
+*****
+
+####  时间在我手中  
+##### 3509#       发表于 2021-10-7 19:37
+
+
+ 本帖最后由 时间在我手中 于 2021-10-7 19:38 编辑 
+
+麻了，开车刚到家
+
+哎哟，这不是躲猫猫吗，值得补了
+
+

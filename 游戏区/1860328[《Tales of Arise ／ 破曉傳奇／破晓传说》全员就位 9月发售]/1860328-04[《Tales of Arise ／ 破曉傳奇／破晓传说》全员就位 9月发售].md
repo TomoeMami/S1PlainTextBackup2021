@@ -18448,3 +18448,26 @@ ns云游戏版独占服装
 一路按键就能过关了，乱战根本不用冲进去
 
 
+
+
+*****
+
+####  lelouchwang  
+##### 5860#       发表于 2021-10-7 19:30
+
+
+故意不打想看桐人和亚丝娜大招 结果亚丝娜大招直接全屏秒人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  alucardcz  
+##### 5861#       发表于 2021-10-7 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020677&amp;ptid=1860328" target="_blank">EigenVesper 发表于 2021-10-7 10:38</a>
+
+借楼问一句，想玩一作2d传说，从toe开始还是tod导剪开始好啊</blockquote>
+tod导剪 战斗系统没的比 爽太多了
+
+
