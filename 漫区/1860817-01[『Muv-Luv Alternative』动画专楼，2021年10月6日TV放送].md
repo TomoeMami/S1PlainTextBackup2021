@@ -11198,3 +11198,20 @@ cast表那个世界情绪又是个啥</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">管人 就是动画里 穿着像穿越者的小女孩...其实就是唱OP的
 
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 775#       发表于 2021-10-7 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023587&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-07 15:11:21</a>
+就 “日本帝國” 四个大字往那儿一摆谁敢碰啊
+
+
+只求226部分别被拉出来带节奏，到时候从动画到Steam你们一个 ...</blockquote>不是没引进吗，为啥怕节奏，带一个不存在的东西节奏有什么意义
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

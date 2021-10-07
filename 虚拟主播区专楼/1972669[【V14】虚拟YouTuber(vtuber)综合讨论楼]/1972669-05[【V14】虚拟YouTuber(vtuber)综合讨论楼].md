@@ -20368,3 +20368,18 @@ B榜配信单曲专辑管人双周冠
 定期b限，啊这<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 7471#       发表于 2021-10-7 17:00
+
+
+烂货圆脸这也不是不能好好唱好好弹，为什么当V就喜欢鬼喊鬼叫呢，真是个烂货<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+这个低音不比鬼哭狼嚎的高音能听多了？
+[https://www.youtube.com/watch?v=VCCw_jXofKM](https://www.youtube.com/watch?v=VCCw_jXofKM)
+[https://www.youtube.com/watch?v=8YQny0LWNDY](https://www.youtube.com/watch?v=8YQny0LWNDY)
+
+
