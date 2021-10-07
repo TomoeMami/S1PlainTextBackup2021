@@ -18425,3 +18425,26 @@ ns云游戏版独占服装
 人名地名相比ps3民间汉化版有点怪，别的没什么问题
 
 
+
+
+*****
+
+####  シャル  
+##### 5859#       发表于 2021-10-7 17:20
+
+
+ 本帖最后由 シャル 于 2021-10-7 17:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53022192&amp;ptid=1860328" target="_blank">DelayNoMore 发表于 2021-10-7 12:57</a>
+
+最牛逼是希侬，进可攻退可守，林薇尔乱战太容易被秒
+
+
+—— 来自 S1Fun</blockquote>
+林薇儿不就是个移动炮台
+
+
+装关注减低大躲一边连发光大魔法就好了
+
+一路按键就能过关了，乱战根本不用冲进去
+
+
