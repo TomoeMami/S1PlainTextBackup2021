@@ -11367,3 +11367,14 @@ cast表那个世界情绪又是个啥</blockquote>
 虚拟歌手≠管人！（绝望）
 
 
+
+
+*****
+
+####  SorroFrost  
+##### 783#       发表于 2021-10-7 18:55
+
+
+在某微博评论区看见有人说muv编剧绝对是左翼，指能写出美军那段，给我笑的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
