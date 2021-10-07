@@ -20283,3 +20283,41 @@ B榜配信单曲专辑管人双周冠
 <img src="https://p.sda1.dev/2/378f9ab4c93897f4c9b533fc4f7db694/LH_PHA_M9__I_Y_IL_~_4FP.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  UnhappyTails  
+##### 7466#       发表于 2021-10-7 14:02
+
+
+オリコン週間ランキング　2021/10/11付
+
+
+综合专辑 
+
+
+星街すいせい　6位　
+<img src="https://s3.bmp.ovh/imgs/2021/10/314ef4951f059f8e.jpeg" referrerpolicy="no-referrer">
+
+
+配信单曲
+
+
+葛葉　4位
+<img src="https://s3.bmp.ovh/imgs/2021/10/53515dfc3a265cf4.jpeg" referrerpolicy="no-referrer">
+
+
+百鬼あやめ　18位
+<img src="https://s3.bmp.ovh/imgs/2021/10/2fa196a868c9eb1a.jpeg" referrerpolicy="no-referrer">
+
+
+配信专辑
+
+星街すいせい　1位
+<img src="https://s3.bmp.ovh/imgs/2021/10/e42d688758a9af62.jpeg" referrerpolicy="no-referrer">
+
+
+管人首冠，这下已经可以算是主流起来了
+
+

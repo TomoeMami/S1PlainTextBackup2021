@@ -10740,3 +10740,53 @@ al的绝望感其实也就那样，前期都在军营里哪里有绝望感，要
 这片子过于招核。
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 743#       发表于 2021-10-7 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020976&amp;ptid=1860817" target="_blank">shudushimo 发表于 2021-10-7 11:04</a>
+
+没玩过原作的纯路人，这人设怎么一股十年前的味道</blockquote>
+人设相比原作游戏简化了很多细节，应该是出于降低作画成本的考虑。
+
+
+即使如此，pv2里的人物也给人一种即将蚌埠住的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 744#       发表于 2021-10-7 13:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019446&amp;ptid=1860817" target="_blank">培根芝士蛋堡XD 发表于 2021-10-7 03:43</a>
+
+上来就打beta其实处理的比原作好，第一集打斗和节奏也比隔壁境界战机好，机战整体都不错，如果像原作白银武 ...</blockquote>
+第一集的场外因素是资方要求战术机和beta战斗的情节要尽早出现
+
+
+于是原作者吉宗钢纪提议制作佐渡岛沦陷这一从未涉及的剧情。为了体现残酷性，自然大部分人都牺牲了
+
+
+救下来的少女应该后期还有戏份
+
+
+*****
+
+####  再买自检星剁手  
+##### 745#       发表于 2021-10-7 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020567&amp;ptid=1860817" target="_blank">angela5d30 发表于 2021-10-7 10:28</a>
+
+10月有好多萝卜片，挑了这部来看，完全没接触过原著&amp;大抵不知道是啥展开，第一话的印象还行啊。用各式各样 ...</blockquote>
+beta登陆，开场感觉“就这”，后期以数量体现绝望感做得还行。
+
+
+做不出绝望感一是bgm拉了，二是画面过于明亮，给人的观感更像是beta来春游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
