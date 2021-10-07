@@ -20427,3 +20427,30 @@ SYL：
 有没有10年eden组老嗨来说一下枪男SC怎么这么狠，这个趋势下去可不是新黑黑而是超·黑黑了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7475#       发表于 2021-10-8 00:59
+
+
+ngo和小琥珀真的让我想大唱 love so sweet，好美的同期情...
+
+
+*****
+
+####  poipanchao  
+##### 7476#       发表于 2021-10-8 01:05
+
+
+sc狠又没用，同接加起来还打不过老叶，都不用king出手
+
+
+syl，看了会儿hnn单排，日本人这毛病确实不行
+
+前辈邀请后辈不合适，后辈邀请前辈也不合适
+
+没有契机一辈子不联动了咯
+
+
