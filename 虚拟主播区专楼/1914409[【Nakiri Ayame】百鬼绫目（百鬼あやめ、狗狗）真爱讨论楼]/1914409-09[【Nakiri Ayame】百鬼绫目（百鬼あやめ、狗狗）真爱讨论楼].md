@@ -15218,3 +15218,14 @@ LOL这赛季11月10号到头，上次Rank都是7月了，感觉应该不打了
 当然绫总肯定不指望了
 
 
+
+
+*****
+
+####  Fami水  
+##### 13290#       发表于 2021-10-7 21:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结束的好突然
+
+
