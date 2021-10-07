@@ -5706,3 +5706,16 @@ NB的也有.
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有时候也会亢奋
 
 
+
+
+*****
+
+####  伞沢直美  
+##### 502#       发表于 2021-10-7 22:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“你怎么能跟纸片人有关系，你只能和纸有关系”
+
+阿姨还是阿姨
+
+
