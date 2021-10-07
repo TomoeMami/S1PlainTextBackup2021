@@ -10548,3 +10548,51 @@ ED后睁眼的三流驾驶员吗？
 绝望感做的不够好，希望后期能改善。配乐真的算灾难级别。
 
 
+
+
+*****
+
+####  酒神的狂欢祭  
+##### 726#       发表于 2021-10-7 12:06
+
+
+ 本帖最后由 酒神的狂欢祭 于 2021-10-7 12:10 编辑 
+
+第一集还可以哎，比预想中的好多了，希望别像当年的ATE只能看2集<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">配乐还是差点意思，感觉思路偏了
+
+
+*****
+
+####  akiharo  
+##### 727#       发表于 2021-10-7 12:10
+
+
+🍎汁男那里，墙倒了是被溶解液滋了底
+
+突击级在水里一跳一跳的有点萌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jctc  
+##### 728#       发表于 2021-10-7 12:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53021505&amp;ptid=1860817" target="_blank">蛋炒蜂窝煤 发表于 2021-10-7 11:52</a>
+
+没有啊，眼镜妹想赶过去，队长让她别过来了，说咱俩都已经完成任务了。既然任务完成了，那单机留下防守就 ...</blockquote>
+其实很简单，加一点点剧情，单机移动装置受损，小队没有足够燃料救人，队长决定做个固定炮台到死，剧情合理多了
+
+
+*****
+
+####  蛋炒蜂窝煤  
+##### 729#       发表于 2021-10-7 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53021727&amp;ptid=1860817" target="_blank">jctc 发表于 2021-10-7 12:14</a>
+
+其实很简单，加一点点剧情，单机移动装置受损，小队没有足够燃料救人，队长决定做个固定炮台到死，剧情合 ...</blockquote>
+问题就是没有做，然后对比原作还有一个类似剧情重复出现的大问题。
+
+

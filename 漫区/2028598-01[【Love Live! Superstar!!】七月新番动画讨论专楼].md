@@ -16046,3 +16046,22 @@ lovelive的YouTube频道关于liella的视频总关评论是因为评论区里�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1260#       发表于 2021-10-7 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020902&amp;ptid=2028598" target="_blank">努斯万克 发表于 2021-10-7 10:57</a>
+
+lovelive的YouTube频道关于liella的视频总关评论是因为评论区里谈政治的太多吗
+
+
+  -- 来自 能手机投票的 St ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">何来的总？角色介绍、LIVE切片、广播、真人外景SHOW、带货，预告，哪个不是开的
+
+唯一关评论区的只有生放送，但也把实时评论保留了啊？
+
+
