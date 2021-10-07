@@ -18270,3 +18270,25 @@ ns云游戏版独占服装
 这新秘奥义噱头味太重，开文物后开启，一场只能一次，战斗中第一次释放的秘奥义就是新秘奥义
 
 
+
+
+*****
+
+####  Zhangsmallquan  
+##### 5848#       发表于 2021-10-7 07:46
+
+
+这个篝火的牵绊对话是有个很长的CD时间吗，为什么要这样设计啊也太拖了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 5849#       发表于 2021-10-7 07:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53019711&amp;ptid=1860328" target="_blank">Zhangsmallquan 发表于 2021-10-7 07:46</a>
+这个篝火的牵绊对话是有个很长的CD时间吗，为什么要这样设计啊也太拖了 ...</blockquote>
+记得是1小时现实时间，而且要在游戏内才会计算
+
+
