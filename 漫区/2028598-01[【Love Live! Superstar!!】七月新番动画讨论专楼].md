@@ -15983,3 +15983,19 @@ pay酱你看看人家，再看看你这黑眼圈，多学学呀<img src="https:/
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  那抹早春的葱绿  
+##### 1256#       发表于 2021-10-7 08:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53018018&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-6 23:23</a>
+
+小星星卖过4万了，不知道能不能过5万</blockquote>
+看数据不要参考N站那个“动画歌曲销量排行”，那个榜不是纯实体
+
+星团插1实体累计35574，在抽选已截止的情况下4万都很难
+
+
