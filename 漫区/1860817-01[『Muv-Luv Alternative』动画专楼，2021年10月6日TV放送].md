@@ -11378,3 +11378,29 @@ cast表那个世界情绪又是个啥</blockquote>
 在某微博评论区看见有人说muv编剧绝对是左翼，指能写出美军那段，给我笑的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Kuroe  
+##### 784#       发表于 2021-10-7 20:09
+
+
+跟基友吐槽 柜子防BETA
+
+基友：有没有一种可能，不是因为柜子，而是因为BETA是管人粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOPKOM  
+##### 785#         楼主| 发表于 2021-10-7 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53026862&amp;ptid=1860817" target="_blank">Kuroe 发表于 2021-10-7 20:09</a>
+跟基友吐槽 柜子防BETA
+
+基友：有没有一种可能，不是因为柜子，而是因为BETA是管人粉 ...</blockquote>
+Beta不吃硅基生物，非常合理，非常符合设定
+
+
