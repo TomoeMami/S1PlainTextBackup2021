@@ -11471,3 +11471,72 @@ beta的绝望感主要是数量多，光线级封锁了空军，还有就是它�
 这没有武爷小日本真的就是白给beta<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kamarus  
+##### 792#       发表于 2021-10-7 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53027221&amp;ptid=1860817" target="_blank">星降る森 发表于 2021-10-7 20:36</a>
+没玩过游戏，看这第一话绝望感比法芙娜低不少，按剧中人物说法这地方也算个要地，怎么防守兵力压倒 ...</blockquote>
+抽调去打本州岛横滨的防御战了，事实上那边也没守住<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yixiaqqq  
+##### 793#       发表于 2021-10-7 21:23
+
+
+ 本帖最后由 yixiaqqq 于 2021-10-7 21:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53027221&amp;ptid=1860817" target="_blank">星降る森 发表于 2021-10-7 20:36</a>
+
+没玩过游戏，看这第一话绝望感比法芙娜低不少，按剧中人物说法这地方也算个要地，怎么防守兵力压倒 ...</blockquote>
+佐渡岛是用来防御朝鲜方向的，也就个预警作用，现在本土都被打到横滨了，这地方要不要都一样了，亏得司令部还把自己当回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asdfdsa456  
+##### 794#       发表于 2021-10-7 21:23
+
+
+**工程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asdfdsa456  
+##### 795#       发表于 2021-10-7 21:23
+
+
+惊了doufuzha也是屏蔽词
+
+
+*****
+
+####  yixiaqqq  
+##### 796#       发表于 2021-10-7 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53027716&amp;ptid=1860817" target="_blank">kamarus 发表于 2021-10-7 21:18</a>
+
+搞半天第一集是佐渡岛丢人战
+
+这没有武爷小日本真的就是白给beta</blockquote>
+没有武爷和夕呼开挂，本子本来就是一直毫无战略眼光+遇事不决就莽一波的无能狂怒，妥妥的翻版二战<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ramiel  
+##### 797#       发表于 2021-10-7 21:36
+
+
+我记得武爷来之前要塞级基本就是无敌的吧....<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+那个滑铲镜头有点没蚌住，cos武爷么....
+
+
