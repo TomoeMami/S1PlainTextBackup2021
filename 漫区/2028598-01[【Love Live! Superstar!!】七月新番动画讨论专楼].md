@@ -16113,3 +16113,52 @@ lovelive的YouTube频道关于liella的视频总关评论是因为评论区里�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">官延区热门都快成星团的形状了。。。。。
 
 
+
+
+*****
+
+####  a92063256  
+##### 1265#       发表于 2021-10-7 18:06
+
+
+外景part5预告里这不是直接告诉第一个淘汰的是谁了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 1266#       发表于 2021-10-7 18:14
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/181316ek70aj0s4t7os470.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-10-07-18-12-40-880_com.sina.weibo.jpg</strong> (183.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-7 18:13 上传
+
+
+草，原来之前给nako庆生的时候想准备个惊喜，结果那天nagi和pay因为穿了同样的衣服被提到了，两个人开始发疯‘咱俩一样‘’’，然后拉炮掉在地上暴露了。怪不得小百合昨晚那副表情
+
+
+*****
+
+####  lj205  
+##### 1267#       发表于 2021-10-7 18:15
+
+
+鲤鱼这运动神经真的…………www
+
+
+*****
+
+####  稀勢のささ  
+##### 1268#       发表于 2021-10-7 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这传话传的东西也太长了
+
+

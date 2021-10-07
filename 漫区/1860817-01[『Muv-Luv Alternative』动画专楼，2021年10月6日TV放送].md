@@ -11327,3 +11327,30 @@ cast表那个世界情绪又是个啥</blockquote>
 <img src="https://img.saraba1st.com/forum/202110/07/180817nzyr748n8xrxif2y.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 780#       发表于 2021-10-7 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024295&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-7 16:16</a>
+
+不知道特别在意战术机动作的是不是就我一个……这滞空和打法，完全不是抹布的作战风格啊……不过目前镜头给 ...</blockquote>
+从时间上看，DDR那边此时已经有非常成熟的战术了。这边打成这样确实不应该。
+
+
+
+
+*****
+
+####  smdzh2  
+##### 781#       发表于 2021-10-7 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53022414&amp;ptid=1860817" target="_blank">yone0000 发表于 2021-10-7 14:20</a>
+想在想想就算没有纵深，墙壁后面居然只有零星步兵，没有装甲机动部队阻止漏网之鱼，要塞配置的全是直射火力 ...</blockquote>
+要塞的支援火力就是停靠在后方的舰队吧，不过陆军马鹿放心把后背交给海军马鹿也是心大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
