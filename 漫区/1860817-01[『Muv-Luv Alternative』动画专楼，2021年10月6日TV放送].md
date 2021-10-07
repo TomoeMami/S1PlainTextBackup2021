@@ -11144,3 +11144,57 @@ muv的steam国区我记着都上过两次吧，cn就设定里提了几嘴，你�
 有，但是效果一般，加拿大巢穴是落地就核武洗地推平的。但是巢穴建起来+虫子铺开之后，足够深的地下工事+分布很广的虫子核弹效果也就那样。亚欧大陆吃亏就吃亏在第一个接触没什么了解，等beta点出光线种科技之后核武效果就一般了。
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 771#       发表于 2021-10-7 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024295&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-7 16:16</a>
+
+不知道特别在意战术机动作的是不是就我一个……这滞空和打法，完全不是抹布的作战风格啊……不过目前镜头给 ...</blockquote>
+beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术机小队被调走了，本来防守就虚弱。
+
+
+守岛小队里只有驹木有实战经验，也没配近战大刀。os也是老式全手动，打成这样也情有可原
+
+
+等主角登场就是开不知火一刀一个要塞级了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  殿珣  
+##### 772#       发表于 2021-10-7 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024295&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-7 16:16</a>
+不知道特别在意战术机动作的是不是就我一个……这滞空和打法，完全不是抹布的作战风格啊……不过目前镜头给 ...</blockquote>
+都是菜鸟，傻乎乎滞空被点掉了。新人最喜欢的不就是站撸不走位吗？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hacisiki  
+##### 773#       发表于 2021-10-7 16:39
+
+
+而且还是没改进过的GEN1
+
+
+*****
+
+####  梶原ひかり  
+##### 774#       发表于 2021-10-7 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023409&amp;ptid=1860817" target="_blank">qhlixpfh 发表于 2021-10-7 14:53</a>
+
+所以第一集这些人只是酱油龙套吗?....
+
+cast表那个世界情绪又是个啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">管人 就是动画里 穿着像穿越者的小女孩...其实就是唱OP的
+
+
