@@ -20517,3 +20517,14 @@ syl，看了会儿hnn单排，日本人这毛病确实不行
 彩虹社SC抽成好像还蛮高，公司的回报也顶多安排工商，如果本身是SC收入较高那自己出来单干也还蛮正常
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 7481#       发表于 2021-10-8 07:00
+
+
+难怪一直都有liver不让打sc<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
