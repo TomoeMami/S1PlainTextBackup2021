@@ -20454,3 +20454,55 @@ syl，看了会儿hnn单排，日本人这毛病确实不行
 没有契机一辈子不联动了咯
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7477#       发表于 2021-10-8 01:34
+
+
+如果指的是おばくん9月份的sc，收益化+生日（皮&amp;中之人）+耐久叠buff了
+
+<img src="https://img.saraba1st.com/forum/202110/08/012644gx12hxv0de0mvxxi.png" referrerpolicy="no-referrer">
+
+
+<strong>ローレン・イロアス : Lauren Iroas【にじさんじ】-SC.png</strong> (81.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 01:26 上传
+
+
+顺便吐槽，这半年叶师傅变铁现充，おばくん接棒成为了新一代不安定樱花妹<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+只等狐坂ニナ，我的新姨...
+
+
+*****
+
+####  リスカ  
+##### 7478#       发表于 2021-10-8 01:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024721&amp;ptid=1972669" target="_blank">free 发表于 2021-10-7 17:00</a>
+烂货圆脸这也不是不能好好唱好好弹，为什么当V就喜欢鬼喊鬼叫呢，真是个烂货
+
+这个低音不比鬼哭狼嚎 ...</blockquote>
+弹奏的是她妈 她自己弹的有点烂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  free  
+##### 7479#       发表于 2021-10-8 01:41
+
+
+管人略微相关，最近小缘和hanser回归B站，有人直播时候问小缘为什么不也弄个皮玩玩，她是这样回答的
+[https://www.bilibili.com/video/BV1gq4y1N72J](https://www.bilibili.com/video/BV1gq4y1N72J)
+
+小缘锐评虚拟主播：《如果我是纸片人》
+
+

@@ -11625,3 +11625,37 @@ J20的正式官方设定到底出没出来？
 没有无敌，黑标外传里坦克部队集火硬打都行。主要就是体型大、皮糙肉厚、可以运小型种。
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 804#       发表于 2021-10-8 01:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53027933&amp;ptid=1860817" target="_blank">ramiel 发表于 2021-10-7 22:36</a>
+
+我记得武爷来之前要塞级基本就是无敌的吧....
+
+那个滑铲镜头有点没蚌住，cos武爷么.... ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/08/022644o03s18h863zf590z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (17.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 01:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/08/022714jvxgwkrbgxciqxqi.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (94.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 01:27 上传
+
+
