@@ -3284,3 +3284,21 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在锤子新衣回连麦
 
 
+
+
+*****
+
+####  gnoliyil  
+##### 255#       发表于 2021-10-7 09:17
+
+
+ 本帖最后由 gnoliyil 于 2021-10-6 18:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52900113&amp;ptid=2021175" target="_blank">EnbuRiAs 发表于 2021-9-26 03:10</a>
+
+贴吧号貌似是她自己直播说xx吧多少级，xx吧多少级，然后被人大数据了 ...</blockquote>
+大数据？小数据！棍莓吧牌子一共六七几十个人有
+
+
+瑞站小号是xox时期发翻唱用的，翻唱去年还是今年什么时候删了
+
+
