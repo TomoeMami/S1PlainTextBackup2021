@@ -3567,3 +3567,14 @@ op的科学技术才是第一生产力<img src="https://static.saraba1st.com/ima
 等索隆觉醒霜月家血统把厨子压下去
 
 
+
+
+*****
+
+####  Archi  
+##### 55757#       发表于 2021-10-7 13:36
+
+
+这……我还以为假果实桃之助随随便便把凯多咬到嗷嗷叫已经够<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">了，结果山治嗷的一声变血统超人了。
+
+
