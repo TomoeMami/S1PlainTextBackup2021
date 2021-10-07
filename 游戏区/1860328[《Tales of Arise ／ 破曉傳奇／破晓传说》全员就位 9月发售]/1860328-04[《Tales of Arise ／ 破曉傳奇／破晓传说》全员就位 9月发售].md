@@ -18411,3 +18411,17 @@ ns云游戏版独占服装
 男女主都比法爷牛b
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 5858#       发表于 2021-10-7 16:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53021651&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-10-7 12:07</a>
+
+话说TOV的中文翻译如何？</blockquote>
+人名地名相比ps3民间汉化版有点怪，别的没什么问题
+
+
