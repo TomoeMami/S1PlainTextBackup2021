@@ -11436,3 +11436,26 @@ Beta不吃硅基生物，非常合理，非常符合设定
 奈何BETA有高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yone0000  
+##### 789#       发表于 2021-10-7 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53025974&amp;ptid=1860817" target="_blank">SorroFrost 发表于 2021-10-7 18:55</a>
+
+在某微博评论区看见有人说muv编剧绝对是左翼，指能写出美军那段，给我笑的不行 ...</blockquote>
+以前右翼作品都敢跟美国刚，现在只能搞搞空母伊吹，实属费拉不堪了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yeaha123  
+##### 790#       发表于 2021-10-7 20:59
+
+
+beta的绝望感主要是数量多，光线级封锁了空军，还有就是它们(涉及剧透，在后期beta才亮出来)
+
+
