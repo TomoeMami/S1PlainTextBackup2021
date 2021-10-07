@@ -10811,3 +10811,42 @@ beta登陆，开场感觉“就这”，后期以数量体现绝望感做得还�
 <img src="https://p.sda1.dev/2/5c94dc3a4e39b9b1b88f59b37727061d/1b2f0699841ee7f28ebc1c597247fbf2.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 748#       发表于 2021-10-7 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53022752&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-07 13:54:38</a>
+第一集的场外因素是资方要求战术机和beta战斗的情节要尽早出现
+
+
+于是原作者吉宗钢纪提议制作佐渡岛沦陷这 ...</blockquote>如果这个女孩子后期还有戏份，你认为会如何被安排呢？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  酒神的狂欢祭  
+##### 749#       发表于 2021-10-7 14:43
+
+
+有新op、ed是不是就意味着看到不到未来への咆哮了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+image.png
+(15.06 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-7 14:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/07/144245waa3y5yu4lauua8u.png" referrerpolicy="no-referrer">
+
+
