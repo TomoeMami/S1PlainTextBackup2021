@@ -18494,3 +18494,16 @@ tod导剪 战斗系统没的比 爽太多了
 有人整理过文物都出自万代南梦宫的哪些游戏吗？我万南游戏玩的少，就看出来个吃豆人。
 
 
+
+
+*****
+
+####  喵喵叫的猫  
+##### 5864#       发表于 2021-10-7 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53028290&amp;ptid=1860328" target="_blank">阿卵真是牛逼 发表于 2021-10-7 22:02</a>
+有人整理过文物都出自万代南梦宫的哪些游戏吗？我万南游戏玩的少，就看出来个吃豆人。 ...</blockquote>
+不是都有写出处吗
+
+

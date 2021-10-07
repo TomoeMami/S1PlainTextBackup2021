@@ -15229,3 +15229,23 @@ LOL这赛季11月10号到头，上次Rank都是7月了，感觉应该不打了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结束的好突然
 
 
+
+
+*****
+
+####  collasong  
+##### 13291#       发表于 2021-10-7 22:12
+
+
+快乐就这样消失了。。。。
+
+
+*****
+
+####  夏小筱ss  
+##### 13292#       发表于 2021-10-7 22:24
+
+
+好像是地震了
+
+
