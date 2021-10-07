@@ -20411,3 +20411,19 @@ gbr发的剪影图不会是...<img src="https://static.saraba1st.com/image/smile
 这宁可自己做皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 7474#       发表于 2021-10-8 00:12
+
+
+管人要拿周榜就算避开韩团和女团也要初动10W才保险，只能搞总选买票送CD了。
+
+
+SYL：
+
+有没有10年eden组老嗨来说一下枪男SC怎么这么狠，这个趋势下去可不是新黑黑而是超·黑黑了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
