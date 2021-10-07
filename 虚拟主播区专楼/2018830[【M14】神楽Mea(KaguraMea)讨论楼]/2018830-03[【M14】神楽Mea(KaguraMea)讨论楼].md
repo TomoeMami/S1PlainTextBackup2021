@@ -5367,3 +5367,16 @@ bsyl，看来阿咩勾选了克苏鲁天赋（智力-1）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你后知后觉的有点晚其实
 
 
+
+
+*****
+
+####  往世雷书  
+##### 3475#       发表于 2021-10-7 12:43
+
+
+不是啊，我这也是之前就从别人那里听到的，只是想确认一下是不是确实有这事，捕风捉影还是实锤，就像颜出都是碧池和眼泪是女人最大的武器
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
