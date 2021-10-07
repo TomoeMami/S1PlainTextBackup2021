@@ -3302,3 +3302,20 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 瑞站小号是xox时期发翻唱用的，翻唱去年还是今年什么时候删了
 
 
+
+
+*****
+
+####  wbzdwsmnmsl  
+##### 256#       发表于 2021-10-7 09:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020033&amp;ptid=2021175" target="_blank">gnoliyil 发表于 2021-10-7 09:17</a>
+
+大数据？小数据！棍莓吧牌子一共六七几十个人有
+
+
+瑞站小号是xox时期发翻唱用的，翻唱去年还是今年什么时候 ...</blockquote>
+今年八月删除的，被盗号了，动态发了段给v8的道歉。之后她立马说要注销账号（也不知道注销了没）
+
+
