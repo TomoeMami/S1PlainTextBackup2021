@@ -11609,3 +11609,19 @@ J20的正式官方设定到底出没出来？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后结束画面的10.22以为是下一集时间，愣了半天，还在想这个月日本有啥节日不让播。
 
 
+
+
+*****
+
+####  半分宅  
+##### 803#       发表于 2021-10-7 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53027933&amp;ptid=1860817" target="_blank">ramiel 发表于 2021-10-7 09:36</a>
+
+我记得武爷来之前要塞级基本就是无敌的吧....
+
+那个滑铲镜头有点没蚌住，cos武爷么.... ...</blockquote>
+没有无敌，黑标外传里坦克部队集火硬打都行。主要就是体型大、皮糙肉厚、可以运小型种。
+
+

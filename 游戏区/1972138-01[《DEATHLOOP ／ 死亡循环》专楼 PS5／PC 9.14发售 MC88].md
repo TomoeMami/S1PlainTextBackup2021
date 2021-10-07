@@ -7768,3 +7768,33 @@ CPU MHz:          3700     
 请问男女主服装怎么解锁，我除了预购送的至今都没解锁一套衣服，看了下还有十几套衣服呢，明明也20多个小时了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  屑猫猫  
+##### 635#       发表于 2021-10-7 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029256&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-7 23:13</a>
+小金人是什么？我清地图了没看见啊，是冒着七彩光打完掉饰品和装备的小兵吗？
+
+我两次死在拆核弹上 ...</blockquote>
+不是，就是金色的会报点的那个敌人，你被一堆支援围攻的原因就是有哪个带信号机的敌人把你位置给报告了，菲亚也是，她也随身携带信号机来着
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 636#       发表于 2021-10-7 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029316&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-7 23:18</a>
+请问男女主服装怎么解锁，我除了预购送的至今都没解锁一套衣服，看了下还有十几套衣服呢，明明也20多个小 ...</blockquote>
+不知道，我也没解锁衣服，我还在用送的那套西装服
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
