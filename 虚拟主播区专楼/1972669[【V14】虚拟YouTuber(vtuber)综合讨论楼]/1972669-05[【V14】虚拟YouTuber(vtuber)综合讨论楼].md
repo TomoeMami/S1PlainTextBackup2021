@@ -20541,3 +20541,20 @@ syl，看了会儿hnn单排，日本人这毛病确实不行
 彩虹不是都说SC抽成高所以让买音声的嘛，SC不说公司抽成，光是油管本身就要抽掉30%了，还要上税啥的，最后到手的能有一半都算高的了吧，感觉都不如streamlab直接打钱，也就聊天栏里面看着风光
 
 
+
+
+*****
+
+####  purdre  
+##### 7483#       发表于 2021-10-8 07:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029912&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-10-8 00:12</a>
+
+管人要拿周榜就算避开韩团和女团也要初动10W才保险，只能搞总选买票送CD了。
+
+
+SYL：</blockquote>
+除了楼上提到的初SC解禁+生日+耐久之外，他スパチャ煽り也满上手的，什么软饭男家暴男RP，要钱语音不要钱语音，和观众一来一往信手拈来，很熟练了
+
+
