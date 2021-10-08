@@ -16716,3 +16716,68 @@ nako这晋级路线确实是普通声优选拔方式，能晋级真的太好了�
 想看香音因为PTSD导致可可回国，然后自闭的剧情
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 1316#       发表于 2021-10-8 18:23
+
+
+ 本帖最后由 黑雪姫 于 2021-10-8 18:24 编辑 
+
+有没有可能11话最后消失，12话四人去上海找回来...顺便在福利蛋下面开场LIVE，反正瞬移这种事不新鲜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 1317#       发表于 2021-10-8 18:26
+
+
+话说sunnypa的live还没有放过完整的吧，接下来两集怎么也要给了吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 1318#       发表于 2021-10-8 18:27
+
+
+B站那个100多万播放的小星星终究还是被删了
+
+
+*****
+
+####  CharlieZ-  
+##### 1319#       发表于 2021-10-8 18:31
+
+
+有没有对花田熟悉的人，最后一集整活翻车的概率大吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1320#       发表于 2021-10-8 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53039675&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-8 18:23</a>
+
+有没有可能11话最后消失，12话四人去上海找回来...顺便在福利蛋下面开场LIVE，反正瞬移这种事不新鲜了[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种多半要留给剧场版了
+
+
+
+
+*****
+
+####  黑雪姫  
+##### 1321#       发表于 2021-10-8 18:35
+
+
+现在可可回国是可堇之间的秘密，香音不知道....我怎么感觉民警要扇香音... “赶快去把可可追回来啊！！”
+
+
