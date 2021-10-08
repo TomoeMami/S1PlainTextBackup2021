@@ -15274,3 +15274,14 @@ LOL这赛季11月10号到头，上次Rank都是7月了，感觉应该不打了
 DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  stedckk  
+##### 13295#       发表于 2021-10-8 18:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总会关心比赛吗？话说绫总有没有认识的人在dfm
+
+
