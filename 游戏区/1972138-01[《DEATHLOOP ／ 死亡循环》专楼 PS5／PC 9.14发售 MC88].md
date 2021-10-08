@@ -7825,3 +7825,17 @@ CPU MHz:          3700     
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  Niyah  
+##### 639#       发表于 2021-10-8 09:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029296&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-7 23:17</a>
+
+我就是从二层那个换衣间过去，打开门就是一个敌人站在平台上往这边观望，只要我出门就会被发现，我几次试 ...</blockquote>
+我都不记得有这个人了，印象中暗杀菲娅的过程人特别少很轻松<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨天重试了一下，平台上那个人警觉条涨的确实快，不过蹲着出门就来得及缩到门左边的柱子后面
+
+

@@ -11741,3 +11741,15 @@ J20的正式官方设定到底出没出来？
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  SorroFrost  
+##### 811#       发表于 2021-10-8 09:22
+
+
+刚才去推特看了看鸡总的推特，不知道有没有人搬过
+<img src="https://p.sda1.dev/2/0cdaff030dda7de1d2724c133bf7b38d/IMG_CMP_94367311.jpeg" referrerpolicy="no-referrer">
+
+
