@@ -16407,3 +16407,61 @@ nako的杂志访谈熟肉出了
 看隔壁专楼想到的，live的时候liyuu和小百合几乎就是全勤，有点担心她们的嗓子了……希望能保养好吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1288#       发表于 2021-10-8 15:09
+
+
+访谈里nako这有点强啊 看一遍录像就能跳 拷贝忍者是吧
+
+
+*****
+
+####  永恒的王牌  
+##### 1289#       发表于 2021-10-8 15:15
+
+
+直接消失这活可太棒了，绝对能让所有人直接疯到二期开播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 1290#       发表于 2021-10-8 15:19
+
+
+nako这么强的嘛，戏里戏外都是。
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 1291#       发表于 2021-10-8 15:19
+
+
+真这么玩好不好的另说，话题度肯定爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 1292#       发表于 2021-10-8 15:21
+
+
+太损了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 1293#       发表于 2021-10-8 15:21
+
+
+风怒编辑
+
+
