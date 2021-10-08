@@ -6158,3 +6158,14 @@ mea养我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" r
 遗照？涮涮锅！
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 3547#       发表于 2021-10-8 23:45
+
+
+不要吃仓鼠啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，不干净的！
+
+
