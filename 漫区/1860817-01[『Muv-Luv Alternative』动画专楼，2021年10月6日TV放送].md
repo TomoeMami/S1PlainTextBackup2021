@@ -12131,3 +12131,62 @@ TDA里还有朱姆沃尔特呢，现实中朱母主炮都保不住了<img src="h
 2021-10-8 17:57 上传
 
 
+
+
+*****
+
+####  nervpp  
+##### 833#       发表于 2021-10-8 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024484&amp;ptid=1860817" target="_blank">殿珣 发表于 2021-10-7 16:34</a>
+
+都是菜鸟，傻乎乎滞空被点掉了。新人最喜欢的不就是站撸不走位吗？ ...</blockquote>
+佐贺当时日本应该还有主力吧，而且在确认有光纤级之前不是应该轰炸洗地嘛，战术机第一时间也是应该针对光线级出手才对，这样海军才能有效攻击……这战斗完全不是按照抹布的世界观来的啊……（或许是我吹毛求疵了）看第一话就出来的小姑娘，也许这是另外的平行世界，比如AL4发动的世界之类的……
+
+
+*****
+
+####  nervpp  
+##### 834#       发表于 2021-10-8 22:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024398&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-7 16:27</a>
+
+beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术机小队被调走了，本来防守就虚弱。
+
+
+守岛小队里 ...</blockquote>
+这样拍可不是我想看的抹布啊……这样抹布前期的压迫感，绝望感哪里能塑造的出来。
+
+而且这种战斗力的BETA是怎么把人类打的差点灭绝的……
+
+
+*****
+
+####  殿珣  
+##### 835#       发表于 2021-10-8 22:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53042356&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-8 22:13</a>
+
+佐贺当时日本应该还有主力吧，而且在确认有光纤级之前不是应该轰炸洗地嘛，战术机第一时间也是应该针对光 ...</blockquote>
+光线级是要塞级登录生出来的。当时的几架战术机根本没时间反应
+
+
+*****
+
+####  nervpp  
+##### 836#       发表于 2021-10-8 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53042386&amp;ptid=1860817" target="_blank">殿珣 发表于 2021-10-8 22:15</a>
+
+光线级是要塞级登录生出来的。当时的几架战术机根本没时间反应</blockquote>
+这个细节漏掉了，确实几个光线级是从要塞里出来的
+
+要是没有光线级，甚至可以轰炸机走起。更何况我记得最开始连要塞级都没有确认。
+
+应该是弹幕洗地，然后战术机防卫重点位置查漏补缺吧。
+
+

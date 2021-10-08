@@ -6100,3 +6100,23 @@ mea养我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" r
 也可能她买了三个月了现在才说，又或者这次说了三个月后再买，乾坤大挪移是让她玩明白了。
 
 
+
+
+*****
+
+####  甘栗No.007  
+##### 3541#       发表于 2021-10-8 22:10
+
+
+来点萌宠营业照片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3542#       发表于 2021-10-8 22:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怕只能活在推文和杂谈里了，甚至不能确定有没有这样一只仓鼠存在
+
+
