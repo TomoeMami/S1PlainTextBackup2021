@@ -16382,3 +16382,28 @@ nako的杂志访谈熟肉出了
 然后live公布二期时间，让观众发疯到明年（
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1286#       发表于 2021-10-8 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53036298&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-8 14:21</a>
+
+翻了一下NGA砖楼，看到这个想起来之后去查了一下这花的日本话语，感觉回国确实是既定事项了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接消失可太损了
+
+
+*****
+
+####  离心  
+##### 1287#       发表于 2021-10-8 15:03
+
+
+ 本帖最后由 离心 于 2021-10-8 15:05 编辑 
+
+看隔壁专楼想到的，live的时候liyuu和小百合几乎就是全勤，有点担心她们的嗓子了……希望能保养好吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
