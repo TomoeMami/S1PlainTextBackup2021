@@ -20574,3 +20574,38 @@ syl，看了会儿hnn单排，日本人这毛病确实不行</blockquote>
 没事，最后还是联动了，虽然还有同期的lisa<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  noHentai  
+##### 7485#       发表于 2021-10-8 08:55
+
+
+10万不至于，挑好日子两三万初动就能拿周冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 7486#       发表于 2021-10-8 08:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53031733&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-8 08:13</a>
+没事，最后还是联动了，虽然还有同期的lisa</blockquote>
+只看了一点点，开始没多久就被69cue了oreapo
+另外69这枪刚归刚，身法不太行啊
+
+
+*****
+
+####  渡鸦骑士  
+##### 7487#       发表于 2021-10-8 08:59
+
+
+ 本帖最后由 渡鸦骑士 于 2021-10-8 09:01 编辑 
+
+换句话说就是liver觉得sc的高抽成不值……咯<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+说的也是，对于部分liver来说运营抽成了又没有帮自己做事，那自然就不值了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
