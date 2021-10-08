@@ -16705,3 +16705,14 @@ nako这晋级路线确实是普通声优选拔方式，能晋级真的太好了�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这购买部 还是有点尬
 
 
+
+
+*****
+
+####  凡人  
+##### 1315#       发表于 2021-10-8 18:14
+
+
+想看香音因为PTSD导致可可回国，然后自闭的剧情
+
+
