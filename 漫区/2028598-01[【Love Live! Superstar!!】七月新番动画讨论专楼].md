@@ -16606,3 +16606,35 @@ nako这么强的嘛，戏里戏外都是。
 快进到泪之星或者回忆就在未来里，药量管饱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Blackson  
+##### 1306#       发表于 2021-10-8 17:09
+
+
+怕不是可可回造成的影响要比前面的集数加起来都要大(无论褒贬)
+
+
+*****
+
+####  NODY  
+##### 1307#       发表于 2021-10-8 17:14
+
+
+如果一期结尾真的是ed后发现可可不辞而别然后敬请期待第二季，那n站差评率估计有望赶超水13
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1308#       发表于 2021-10-8 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53038712&amp;ptid=2028598" target="_blank">NODY 发表于 2021-10-8 17:14</a>
+
+如果一期结尾真的是ed后发现可可不辞而别然后敬请期待第二季，那n站差评率估计有望赶超水13 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">是的，这种直接跑路的行为会被视作对粉丝的背叛的，百分百炎上
+
+
