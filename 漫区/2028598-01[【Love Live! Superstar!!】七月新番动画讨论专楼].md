@@ -16282,3 +16282,27 @@ starlight？快去请海马
 看来确实应该是飞机场唱了吧，然后neta一把4单。
 
 
+
+
+*****
+
+####  sin.yugi  
+##### 1279#       发表于 2021-10-8 12:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">是starlight breaker！
+
+
+*****
+
+####  秋月艾莉  
+##### 1280#       发表于 2021-10-8 12:57
+
+
+按常理来说12话盘应该是五人封面
+
+然而常夏/WS的情况是先出的56话主场CP香千占一个封面，剩下三人占一个
+
+这次Nonfiction10话盘却不是先出的10话主场CP可堇占一个，反而是堇千恋一个封面，剩下的那两个谁很难不叫人联想<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
