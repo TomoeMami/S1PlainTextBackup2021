@@ -16514,3 +16514,73 @@ nako这么强的嘛，戏里戏外都是。
 找个厂上班.jpg
 
 
+
+
+*****
+
+####  ads147147  
+##### 1298#       发表于 2021-10-8 16:04
+
+
+等会，难道不是追飞机而是唱完livelive直接不辞而别？
+
+花田要是画出来大家去找可可发现人去楼空，这观感怕不是强的飞起。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1299#       发表于 2021-10-8 16:06
+
+
+看到别人说新歌情报放出来之后动画下一话就会有live？？也就是11话也有个live？有这种说法吗
+
+
+*****
+
+####  ads147147  
+##### 1300#       发表于 2021-10-8 16:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53037594&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-8 16:06</a>
+看到别人说新歌情报放出来之后动画下一话就会有live？？也就是11话也有个live？有这种说法吗 ...</blockquote>
+从工期上推，应该是来不及再画个live。连13集都没有，不太可能再塞个11集live。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lj205  
+##### 1301#       发表于 2021-10-8 16:10
+
+
+怎么还不到周日呢
+
+
+*****
+
+####  iuhehc  
+##### 1302#       发表于 2021-10-8 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53036298&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-8 14:21</a>
+翻了一下NGA砖楼，看到这个想起来之后去查了一下这花的日本话语，感觉回国确实是既定事项了</blockquote>
+唱完就消失什么的，我想看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋月艾莉  
+##### 1303#       发表于 2021-10-8 16:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然人去楼空也太tm损了
+
+之前也看到个Liella全力一击败了的脑洞，可可不留遗憾心满意足笑着回国，其他人想留却发现根本不知道怎么留只能眼睁睁看人飞回上海，这个也够堵的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

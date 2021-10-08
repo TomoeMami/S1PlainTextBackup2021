@@ -20676,3 +20676,23 @@ syl，vspo又是露娜又是ema的，yygq的不基德啊
 原来你们也是直接叫king的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7493#       发表于 2021-10-8 16:11
+
+
+老了，看啥都像阴阳怪气。
+
+<img src="https://img.saraba1st.com/forum/202110/08/161027vya9ktf88t9b3zx2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211008_160954.jpg</strong> (169.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 16:10 上传
+
+
