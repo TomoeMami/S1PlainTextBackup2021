@@ -5954,3 +5954,80 @@ mea养我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" r
 如果能接受活虫子，守宫应该是最完美的新手宠物了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  pei23333  
+##### 3527#       发表于 2021-10-8 20:01
+
+
+这仓鼠要是没了这人得伤心多久，今年长时间消失的原因是不是可以预定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  呓亘  
+##### 3528#       发表于 2021-10-8 20:04
+
+
+可惜愿望单关了，要不给她邮点仓鼠饲料什么的，四舍五入就是咩咩和我一起养大的孩子了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 3529#       发表于 2021-10-8 20:10
+
+
+就她那卫生状态<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能定期清理仓鼠笼么
+
+
+*****
+
+####  路人庚  
+##### 3530#       发表于 2021-10-8 20:15
+
+
+要相信你咩姐不洗澡只是人设
+
+
+*****
+
+####  T_Hb  
+##### 3531#       发表于 2021-10-8 20:18
+
+
+别尬黑，早上刚洗
+
+
+*****
+
+####  肥到终点  
+##### 3532#       发表于 2021-10-8 20:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">仓鼠对于粗心大意的人来讲很难养的哦
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">投食错误不是医药费就是死亡报告
+
+
+*****
+
+####  thisisaspider  
+##### 3533#       发表于 2021-10-8 20:19
+
+
+会和仓鼠一起洗澡吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 3534#       发表于 2021-10-8 20:22
+
+
+她家那垃圾堆，放出来玩就找不回来了。
+
+
