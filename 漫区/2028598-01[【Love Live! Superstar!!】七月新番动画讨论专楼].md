@@ -16327,3 +16327,14 @@ nako的杂志访谈熟肉出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">等下个月鲤鱼的访谈出来就能知道到底是不是钦定了
 
 
+
+
+*****
+
+####  kata魂  
+##### 1283#       发表于 2021-10-8 13:57
+
+
+小星星加nonfiction是五个人封面，wingsong加常夏是五个人封面，现在就剩下第一张封面是香音单人的，那最后一张是千可恋堇加起来就是五人了
+
+

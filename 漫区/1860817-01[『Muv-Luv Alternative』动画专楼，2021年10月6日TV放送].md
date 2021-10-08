@@ -11926,3 +11926,24 @@ A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗�
 漫画里有，游戏里我记得没有描写
 
 
+
+
+*****
+
+####  yone0000  
+##### 824#       发表于 2021-10-8 13:57
+
+
+刚刚看到鸡枞在推特上说冒头京都陷落那段，京都站的大楼上躺着皇唯依的黄色瑞鹤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202110/08/135558th5jhnnhorr1cc9n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Muv-Luv Alternative -[2021.10.08_13.53.41].jpg</strong> (211.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 13:55 上传
+
+
