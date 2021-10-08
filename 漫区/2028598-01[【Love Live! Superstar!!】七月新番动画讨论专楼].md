@@ -16306,3 +16306,24 @@ starlight？快去请海马
 这次Nonfiction10话盘却不是先出的10话主场CP可堇占一个，反而是堇千恋一个封面，剩下的那两个谁很难不叫人联想<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 1281#       发表于 2021-10-8 13:34
+
+
+https://card.weibo.com/article/m/show/id/2309404690007251092141?ua=Mozilla%2F5.0+%28Linux%3B+Android+11%3B+V2055A+Build%2FRP1A.200720.012%3B+wv%29+AppleWebKit%2F537.36+%28KHTML%2C+like+Gecko%29+Version%2F4.0+Chrome%2F83.0.4103.106+Mobile+Safari%2F537.36V2055A_11_WeiboIntlAndroid_3970
+nako的杂志访谈熟肉出了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1282#       发表于 2021-10-8 13:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">等下个月鲤鱼的访谈出来就能知道到底是不是钦定了
+
+

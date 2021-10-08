@@ -11912,3 +11912,17 @@ J20的正式官方设定到底出没出来？
 甲21和基地保卫战的二连站连着才能紧张啊，打完也没啥内容了，我看这季做到武爷完成成长立下决心再会那啥挺好
 
 
+
+
+*****
+
+####  yone0000  
+##### 823#       发表于 2021-10-8 13:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53032532&amp;ptid=1860817" target="_blank">凭依华 发表于 2021-10-8 09:41</a>
+
+A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗？</blockquote>
+漫画里有，游戏里我记得没有描写
+
+
