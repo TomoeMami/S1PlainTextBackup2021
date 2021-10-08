@@ -11788,3 +11788,44 @@ A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗�
 高原少尉、戦死。 
 
 
+
+
+*****
+
+####  黑圆桌  
+##### 814#       发表于 2021-10-8 12:11
+
+
+<blockquote>yone0000 发表于 2021-10-7 13:20
+想在想想就算没有纵深，墙壁后面居然只有零星步兵，没有装甲机动部队阻止漏网之鱼，要塞配置的全是直射火力 ...</blockquote>
+大概是这里的很多兵(战术机也是)被调走填前线了，所以beta出现在这边的时候大家都比较慌
+
+
+*****
+
+####  鱼雷鲨  
+##### 815#       发表于 2021-10-8 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53033000&amp;ptid=1860817" target="_blank">INGRAMLI 发表于 2021-10-8 10:21</a>
+
+https://w.atwiki.jp/wiki9_alternative/pages/41.html
+
+12・5クーデター事件
+
+高原少尉、戦死。  ...</blockquote>
+是大众脸，但是有希望加剧情……
+
+
+*****
+
+####  鱼雷鲨  
+##### 816#       发表于 2021-10-8 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53025974&amp;ptid=1860817" target="_blank">SorroFrost 发表于 2021-10-7 18:55</a>
+
+在某微博评论区看见有人说muv编剧绝对是左翼，指能写出美军那段，给我笑的不行 ...</blockquote>
+左右唯一的共同语言是美军滚出去，但是两个世界看来都有岸信介……
+
+
