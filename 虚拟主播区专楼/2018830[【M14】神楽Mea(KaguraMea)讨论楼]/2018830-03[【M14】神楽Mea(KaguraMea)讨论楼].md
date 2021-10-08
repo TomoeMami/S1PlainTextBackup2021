@@ -5864,3 +5864,37 @@ bsyl，那个截图是“佐藤健”（那个自动发消息的bot
 阿咩早上洗完澡出去之后感觉很忙的亚子
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3520#       发表于 2021-10-8 19:30
+
+
+🐷养🐷
+
+
+*****
+
+####  Mr.shelter  
+##### 3521#       发表于 2021-10-8 19:36
+
+
+ 本帖最后由 Mr.shelter 于 2021-10-8 19:38 编辑 
+
+我日，买了个啥<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+害，居然是仓鼠，据说仓鼠臭臭哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 3522#       发表于 2021-10-8 19:40
+
+
+可以开始期待晒宠物照了？
+
+

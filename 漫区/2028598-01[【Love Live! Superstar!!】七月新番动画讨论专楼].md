@@ -16864,3 +16864,45 @@ B站那个100多万播放的小星星终究还是被删了</blockquote>叔叔:�
 你要自己上传切片不就万事大吉了吗？？
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1327#       发表于 2021-10-8 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53040431&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-8 19:21</a>
+
+理由是万代点名下的。
+
+
+我就搞不懂了，官方B站不是有号吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gooddays  
+##### 1328#       发表于 2021-10-8 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53040341&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-8 19:14</a>
+叔叔:我守护了可香那么久，你们怎么不去官方正片里刷啊，阔啦！
+
+唉～可惜了那么多弹幕</blockquote>
+幸好我怕会删掉所以缓存了。这么多特殊弹幕的视频我是第一次看见。
+
+
+*****
+
+####  林登·万  
+##### 1329#       发表于 2021-10-8 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53036298&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-8 14:21</a>
+
+翻了一下NGA砖楼，看到这个想起来之后去查了一下这花的日本话语，感觉回国确实是既定事项了</blockquote>
+棒  就这么来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
