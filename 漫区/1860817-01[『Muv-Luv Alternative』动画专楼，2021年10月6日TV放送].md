@@ -11770,3 +11770,21 @@ J20的正式官方设定到底出没出来？
 A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗？
 
 
+
+
+*****
+
+####  INGRAMLI  
+##### 813#       发表于 2021-10-8 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53032532&amp;ptid=1860817" target="_blank">凭依华 发表于 2021-10-8 09:41</a>
+
+A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗？</blockquote>
+[https://w.atwiki.jp/wiki9_alternative/pages/41.html](https://w.atwiki.jp/wiki9_alternative/pages/41.html)
+
+12・5クーデター事件
+
+高原少尉、戦死。 
+
+

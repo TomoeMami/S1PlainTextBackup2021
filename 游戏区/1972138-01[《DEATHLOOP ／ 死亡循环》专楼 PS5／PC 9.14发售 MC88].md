@@ -7852,3 +7852,31 @@ CPU MHz:          3700     
 所以....为什么不下午去他们密会的地方扔个连接一枪爆俩呢
 
 
+
+
+*****
+
+####  moimoi  
+##### 641#       发表于 2021-10-8 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53032540&amp;ptid=1972138" target="_blank">丹德里恩 发表于 2021-10-8 09:42</a>
+
+菲亚那个破基地要提防小金人和核弹确实麻烦
+
+所以....为什么不下午去他们密会的地方扔个连接一枪爆俩呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为要进密会基地就要先找图画啊，这个解密真气人，不把基地搜一遍都很难解密，菲亚这破地方我估计不会再去第二次了
+
+
+*****
+
+####  丹德里恩  
+##### 642#       发表于 2021-10-8 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53033240&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-8 10:38</a>
+
+因为要进密会基地就要先找图画啊，这个解密真气人，不把基地搜一遍都很难解密，菲亚这破地方我估 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这倒是，找那个图确实血压高
+
+
