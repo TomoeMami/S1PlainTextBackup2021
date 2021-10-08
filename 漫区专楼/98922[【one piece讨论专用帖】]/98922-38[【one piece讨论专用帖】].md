@@ -3696,3 +3696,14 @@ queen这我笑死
 小时候的尾田到底把恐龙当成什么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  modkingr  
+##### 55768#       发表于 2021-10-8 22:30
+
+
+山治年终于到了吗 看了个talkop的分析说山治vsQUEEN将是和之国最有看点的战斗 堪比德岛索隆砍石头人
+
+
