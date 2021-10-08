@@ -16465,3 +16465,38 @@ nako这么强的嘛，戏里戏外都是。
 风怒编辑
 
 
+
+
+*****
+
+####  lj205  
+##### 1294#       发表于 2021-10-8 15:36
+
+
+然后第二季第一集就跑回来，那不是偶活玩剩的套路吗？~~~~~~~
+
+
+*****
+
+####  普之舜舜  
+##### 1295#       发表于 2021-10-8 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53036298&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-8 14:21</a>
+翻了一下NGA砖楼，看到这个想起来之后去查了一下这花的日本话语，感觉回国确实是既定事项了</blockquote>
+直接消失什么鬼呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是传统的追飞机吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  saglork  
+##### 1296#       发表于 2021-10-8 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53036298&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-8 14:21</a>
+翻了一下NGA砖楼，看到这个想起来之后去查了一下这花的日本话语，感觉回国确实是既定事项了</blockquote>
+然后大家都疯了，其实是唐女士回家过春节，半个月后若无其事的回来了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+

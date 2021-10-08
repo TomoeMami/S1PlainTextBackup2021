@@ -11972,3 +11972,18 @@ A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗�
 男主现在在逃命中，即将掉线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hlazd  
+##### 827#       发表于 2021-10-8 15:33
+
+
+ 本帖最后由 hlazd 于 2021-10-8 15:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53035994&amp;ptid=1860817" target="_blank">yone0000 发表于 2021-10-8 13:57</a>
+
+刚刚看到鸡枞在推特上说冒头京都陷落那段，京都站的大楼上躺着皇唯依的黄色瑞鹤</blockquote>
+画面中央的要塞级尸体是和主任冲突造成坠机的凶手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
