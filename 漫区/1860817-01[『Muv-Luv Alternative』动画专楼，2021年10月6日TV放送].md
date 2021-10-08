@@ -11987,3 +11987,62 @@ A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗�
 画面中央的要塞级尸体是和主任冲突造成坠机的凶手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  柴汪汪  
+##### 828#       发表于 2021-10-8 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53030782&amp;ptid=1860817" target="_blank">jdd46820 发表于 2021-10-8 02:05</a>
+
+没玩过游戏。很奇怪为什么不用战术级核武，登陆那里应该很好用才对。另外也很奇怪军舰怎么又回到多炮台了， ...</blockquote>
+虽然鸡枞的设定是一团〇，但是大部分的细节还是有交代的。
+
+1.Beta群的出现突然，预测困难，除非先期发现并在远离阵地的位置清剿，否则在自己脸上用核弹只会增加核污染。
+
+2.横滨防线失守后佐渡岛的防守意义下降了，抗登陆部队的编制愈加缩减，只有两个战术机中队、没有远程炮兵部队很能说明问题。
+
+3.关于多炮塔，答案很简单：因为这些就是老玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鸡枞老右翼，亚码头必然是要的，甚至加了很多同型舰，而后来的重巡作旗舰也是联合舰队传统，只能说对于装备的选择很能看出一个人的政治倾向（保守派）
+
+不废话了，看第二舰队的设定：
+
+
+<img src="https://img.saraba1st.com/forum/202110/08/173043raggagiw7e7iplwg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211008172927.png</strong> (39.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 17:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/08/173038mvt22a40ekfkeaej.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211008172922.png</strong> (72.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 17:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/08/173032p33ya03lcz60z323.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211008172915.png</strong> (142.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 17:30 上传
+
+
+另外吐槽下动画里这几艘船画的真不咋地。
+
+PPS：这些话是我借用朋友账号发的，四舍五入我是不是也是管人了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+

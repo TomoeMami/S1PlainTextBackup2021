@@ -16638,3 +16638,38 @@ nako这么强的嘛，戏里戏外都是。
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">是的，这种直接跑路的行为会被视作对粉丝的背叛的，百分百炎上
 
 
+
+
+*****
+
+####  cat1230  
+##### 1309#       发表于 2021-10-8 17:30
+
+
+nako这晋级路线确实是普通声优选拔方式，能晋级真的太好了＾０＾~
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qratosone  
+##### 1310#       发表于 2021-10-8 17:35
+
+
+居然还有人想直接消失？2.5次元企划，花田敢这么玩估计整个剧本直接被企划方枪毙了——一个主要角色直接没了，在二期动画之前你线下活动怎么搞？
+
+
+*****
+
+####  qratosone  
+##### 1311#       发表于 2021-10-8 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53038742&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-8 17:15</a>
+
+是的，这种直接跑路的行为会被视作对粉丝的背叛的，百分百炎上</blockquote>
+如果企划方真敢这么玩那整个企划估计都要GG
+
+
