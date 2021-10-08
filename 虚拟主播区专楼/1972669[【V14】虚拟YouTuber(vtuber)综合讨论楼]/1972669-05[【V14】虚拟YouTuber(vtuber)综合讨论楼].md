@@ -20609,3 +20609,17 @@ syl，看了会儿hnn单排，日本人这毛病确实不行</blockquote>
 说的也是，对于部分liver来说运营抽成了又没有帮自己做事，那自然就不值了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7488#       发表于 2021-10-8 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53032069&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-8 08:58</a>
+只看了一点点，开始没多久就被69cue了oreapo
+另外69这枪刚归刚，身法不太行啊 ...</blockquote>
+她和第一位新人如果能互补就好了，那位是身法不错，枪法没那么硬
+
+
