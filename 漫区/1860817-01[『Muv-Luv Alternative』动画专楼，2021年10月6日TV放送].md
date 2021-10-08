@@ -11753,3 +11753,20 @@ J20的正式官方设定到底出没出来？
 <img src="https://p.sda1.dev/2/0cdaff030dda7de1d2724c133bf7b38d/IMG_CMP_94367311.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  凭依华  
+##### 812#       发表于 2021-10-8 09:41
+
+
+ 本帖最后由 凭依华 于 2021-10-8 09:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023554&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-7 15:07</a>
+
+大部分都是龙套。
+
+几位舰长要甲21时再出来了，至于驹木等后面125时会出来，她手上还有A01的一条人命… ...</blockquote>
+A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗？
+
+

@@ -18559,3 +18559,45 @@ TOP推荐
 我倒是推荐tod2的psp版，重新捡起来发现系统可有意思了
 
 
+
+
+*****
+
+####  DelayNoMore  
+##### 5869#       发表于 2021-10-8 09:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024893&amp;ptid=1860328" target="_blank">シャル 发表于 2021-10-7 17:20</a>
+
+林薇儿不就是个移动炮台
+
+
+装关注减低大躲一边连发光大魔法就好了</blockquote>
+怪一多就自动乱战了，根本躲无可躲
+
+
+*****
+
+####  シャル  
+##### 5870#       发表于 2021-10-8 09:59
+
+
+ 本帖最后由 シャル 于 2021-10-8 10:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53032706&amp;ptid=1860328" target="_blank">DelayNoMore 发表于 2021-10-8 09:56</a>
+
+怪一多就自动乱战了，根本躲无可躲</blockquote>
+装关注减低大，然后队友装关注增加大
+
+
+怪基本不会看你啊
+
+
+*****
+
+####  focus  
+##### 5871#       发表于 2021-10-8 10:01
+
+
+上去几发三疾风收工，129就这么花完了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
