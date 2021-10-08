@@ -12378,3 +12378,20 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 另外把墙推到海边并且竖起来没什么问题，海水可以压制光线级的设计，缓坡设计但是不搞交叉火力设计发挥火力优势很容易就会被冲上来。又不能让战术机一直在海面上从背面射击。
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 849#       发表于 2021-10-9 00:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53039325&amp;ptid=1860817" target="_blank">噗呸破屁诚 发表于 2021-10-8 17:54</a>
+
+十二集真的到的了甲21么，之前说第二集才到初见冥夜这个节奏来看，我估计十二集就只能到名场面
+
+
+  - ...</blockquote>
+都是这个节奏的话，参考漫画，做完12.5事件不错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
