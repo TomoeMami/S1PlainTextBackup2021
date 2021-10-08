@@ -20623,3 +20623,32 @@ syl，看了会儿hnn单排，日本人这毛病确实不行</blockquote>
 她和第一位新人如果能互补就好了，那位是身法不错，枪法没那么硬
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7489#       发表于 2021-10-8 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53032453&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-8 09:34</a>
+她和第一位新人如果能互补就好了，那位是身法不错，枪法没那么硬</blockquote>
+这两个新人感觉还是不能撼动vspo4大师加bora的地位（qp怎么比赛没人要的）
+69现在这身法与其说不行，不如说很菜，呆呆的
+感觉会成为另一个nrk
+
+syl，vspo又是露娜又是ema的，yygq的不基德啊
+
+
+*****
+
+####  FCCHua  
+##### 7490#       发表于 2021-10-8 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53034013&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-8 11:29</a>
+这两个新人感觉还是不能撼动vspo4大师加bora的地位（qp怎么比赛没人要的）
+69现在这身法与其说不行，不如 ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
