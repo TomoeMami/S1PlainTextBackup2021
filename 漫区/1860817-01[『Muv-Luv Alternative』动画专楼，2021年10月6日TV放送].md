@@ -11958,3 +11958,17 @@ A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗�
 动画党觉得第一话还不错，气氛都做出来了，至于黑美帝见死不救吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，话说男主呢，怎么最后没他的镜头了233
 
 
+
+
+*****
+
+####  yixiaqqq  
+##### 826#       发表于 2021-10-8 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53036208&amp;ptid=1860817" target="_blank">aptx8285144 发表于 2021-10-8 14:15</a>
+
+动画党觉得第一话还不错，气氛都做出来了，至于黑美帝见死不救吗，话说男主呢，怎么最后没他的镜头 ...</blockquote>
+男主现在在逃命中，即将掉线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
