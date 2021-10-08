@@ -7798,3 +7798,30 @@ CPU MHz:          3700     
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  moimoi  
+##### 637#       发表于 2021-10-8 08:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029680&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-10-7 23:50</a>
+
+不是，就是金色的会报点的那个敌人，你被一堆支援围攻的原因就是有哪个带信号机的敌人把你位置给报告了， ...</blockquote>
+哇哦，原来如此，我说怎么每次都增员一堆敌人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 638#       发表于 2021-10-8 08:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53031765&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-8 08:19</a>
+哇哦，原来如此，我说怎么每次都增员一堆敌人</blockquote>
+所以把他们黑掉后那个场景也就几个敌人罢了，外面的不会支援过来
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

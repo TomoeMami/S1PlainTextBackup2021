@@ -20558,3 +20558,19 @@ SYL：</blockquote>
 除了楼上提到的初SC解禁+生日+耐久之外，他スパチャ煽り也满上手的，什么软饭男家暴男RP，要钱语音不要钱语音，和观众一来一往信手拈来，很熟练了
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7484#       发表于 2021-10-8 08:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53030370&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-8 01:05</a>
+sc狠又没用，同接加起来还打不过老叶，都不用king出手
+
+
+syl，看了会儿hnn单排，日本人这毛病确实不行</blockquote>
+没事，最后还是联动了，虽然还有同期的lisa<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
