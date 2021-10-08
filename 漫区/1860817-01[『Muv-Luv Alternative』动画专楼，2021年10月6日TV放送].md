@@ -12321,3 +12321,60 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 他有个漫画叫Eagle以前出过台版，讲的是日本青年发现美国第一个亚裔总统候选人是自己亲爹，还算值得一看
 
 
+
+
+*****
+
+####  最后的法芙娜  
+##### 845#       发表于 2021-10-9 00:25
+
+
+<blockquote>柴汪汪 发表于 2021-10-8 17:42
+人家666是精锐中的精锐，乳NVA了，给我向NVA道歉Kora
+
+
+说到底第一集这俩战术机中队也就是二线部队 ...</blockquote>
+乡土师过了，算是步兵师里坦克营吧
+
+
+*****
+
+####  hacisiki  
+##### 846#       发表于 2021-10-9 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53042786&amp;ptid=1860817" target="_blank">smdzh2 发表于 2021-10-8 22:55</a>
+
+既然楼里有军宅，我一介军盲想问一下：究竟战车停在城墙上当固定炮台好使，还是留在城墙后配合轻步兵清除突 ...</blockquote>
+把坦克丢在两边海角山上用HE进行远程射击最有优势。整个海湾最宽处只有8公里。5到6公里的榴弹精确侧击是最优解。
+
+
+*****
+
+####  asdfdsa456  
+##### 847#       发表于 2021-10-9 00:36
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/003508i73d233wl3l6s7u7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>37B2E03B-DCFD-48DD-91B3-D833ED97AC2B.jpeg</strong> (201.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-9 00:35 上传
+
+
+第一话原创剧情有个镜头好像巨人探头，艾伦巨人穿越过来可以反攻beta吗哈哈哈
+
+
+*****
+
+####  hacisiki  
+##### 848#       发表于 2021-10-9 00:39
+
+
+另外把墙推到海边并且竖起来没什么问题，海水可以压制光线级的设计，缓坡设计但是不搞交叉火力设计发挥火力优势很容易就会被冲上来。又不能让战术机一直在海面上从背面射击。
+
+
