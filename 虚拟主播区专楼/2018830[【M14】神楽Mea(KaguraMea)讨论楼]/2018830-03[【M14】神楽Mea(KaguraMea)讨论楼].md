@@ -6031,3 +6031,23 @@ mea养我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" r
 她家那垃圾堆，放出来玩就找不回来了。
 
 
+
+
+*****
+
+####  clvan_  
+##### 3535#       发表于 2021-10-8 20:42
+
+
+仓鼠真的不算好养....养宠物真的一堆烦心事，不过她能多点谈资也好吧。
+
+
+*****
+
+####  Klience  
+##### 3536#       发表于 2021-10-8 20:45
+
+
+而且仓鼠寿命都不会长 基本都是2 3年左右 不知道到时候直播会不会说哪种类型的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
