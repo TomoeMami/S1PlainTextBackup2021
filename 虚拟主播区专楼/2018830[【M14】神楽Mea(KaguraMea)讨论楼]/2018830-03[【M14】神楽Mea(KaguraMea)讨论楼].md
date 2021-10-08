@@ -5842,3 +5842,14 @@ bsyl，那个截图是“佐藤健”（那个自动发消息的bot
 冷水澡好啊
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 3518#       发表于 2021-10-8 14:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
