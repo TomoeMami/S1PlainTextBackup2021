@@ -11829,3 +11829,86 @@ https://w.atwiki.jp/wiki9_alternative/pages/41.html
 左右唯一的共同语言是美军滚出去，但是两个世界看来都有岸信介……
 
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 817#       发表于 2021-10-8 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53031314&amp;ptid=1860817" target="_blank">阿虚家的三味 发表于 2021-10-8 04:37</a>
+
+不知道为什么选佐渡岛沦陷这段来做，而不是选和主角团关系更紧密的明星作战，完了接个游戏开头的humanbrain ...</blockquote>
+毕竟补充一下125独立派的背景
+
+
+*****
+
+####  鱼雷鲨  
+##### 818#       发表于 2021-10-8 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53029077&amp;ptid=1860817" target="_blank">黑雪姫 发表于 2021-10-7 22:59</a>
+
+插嘴问一下
+
+J20的正式官方设定到底出没出来？
+
+最新的还是前几年的那个官同书刊里的？ ...</blockquote>
+没出来，前几年那个貌似躯干用了Eva二号机的脸吧，不会转正
+
+
+*****
+
+####  鱼雷鲨  
+##### 819#       发表于 2021-10-8 12:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53027782&amp;ptid=1860817" target="_blank">asdfdsa456 发表于 2021-10-7 21:23</a>
+
+**工程</blockquote>
+那墙没有地基，哈哈哈哈哈
+
+
+楼趴趴
+
+
+*****
+
+####  鱼雷鲨  
+##### 820#       发表于 2021-10-8 12:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53023799&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-7 15:30</a>
+
+动画当然要做人设，但这次是发型之类的细节最少的
+
+
+有几个角色去了头发，把眼睛颜色统一，就分不出来了[f ...</blockquote>
+指挥所里面有个人我感觉是短发球藻？？？
+
+
+*****
+
+####  阿姆罗二世  
+##### 821#       发表于 2021-10-8 12:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53030782&amp;ptid=1860817" target="_blank">jdd46820 发表于 2021-10-08 02:05:55</a>
+没玩过游戏。很奇怪为什么不用战术级核武，登陆那里应该很好用才对。另外也很奇怪军舰怎么又回到多炮台了， ...</blockquote>原作作者就是老右棍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不用怀疑
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  阿虚家的三味  
+##### 822#       发表于 2021-10-8 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53031779&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-8 08:22</a>
+ 如果真的是分季制作的话，还估计本季就是甲21收尾？这样也算前后呼应吧。  ----发送自 Sony G8342,Android ...</blockquote>
+甲21和基地保卫战的二连站连着才能紧张啊，打完也没啥内容了，我看这季做到武爷完成成长立下决心再会那啥挺好
+
+
