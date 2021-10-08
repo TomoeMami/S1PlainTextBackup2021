@@ -5853,3 +5853,14 @@ bsyl，那个截图是“佐藤健”（那个自动发消息的bot
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路人庚  
+##### 3519#       发表于 2021-10-8 19:23
+
+
+阿咩早上洗完澡出去之后感觉很忙的亚子
+
+

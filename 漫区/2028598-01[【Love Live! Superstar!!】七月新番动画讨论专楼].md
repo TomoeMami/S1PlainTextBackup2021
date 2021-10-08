@@ -16794,3 +16794,73 @@ B站那个100多万播放的小星星终究还是被删了
 一下子琼瑶感就出来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 1323#       发表于 2021-10-8 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53039475&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-8 18:06</a>
+
+这购买部 还是有点尬</blockquote>
+尬归尬，但鲤鱼好像已经习惯并融入进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 1324#       发表于 2021-10-8 19:07
+
+
+笑死了，感觉椅子就是待宰的羔羊
+
+<img src="https://img.saraba1st.com/forum/202110/08/190614oejp3jvc3knjn1jc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>9B4FB385-C278-4027-82A9-4AEB308BC3B4.jpeg</strong> (178.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 19:06 上传
+
+
+*****
+
+####  player3960  
+##### 1325#       发表于 2021-10-8 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53039721&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-08 18:27:28</a>
+B站那个100多万播放的小星星终究还是被删了</blockquote>叔叔:我守护了可香那么久，你们怎么不去官方正片里刷啊，阔啦！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+唉～可惜了那么多弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 1326#       发表于 2021-10-8 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53040341&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-8 19:14</a>
+
+叔叔:我守护了可香那么久，你们怎么不去官方正片里刷啊，阔啦！
+
+
+唉～可惜了那么多弹幕</blockquote>
+理由是万代点名下的。
+
+
+我就搞不懂了，官方B站不是有号吗？
+
+
+为什么不像YTB那样自己上传切片啊？
+
+
+你要自己上传切片不就万事大吉了吗？？
+
+
