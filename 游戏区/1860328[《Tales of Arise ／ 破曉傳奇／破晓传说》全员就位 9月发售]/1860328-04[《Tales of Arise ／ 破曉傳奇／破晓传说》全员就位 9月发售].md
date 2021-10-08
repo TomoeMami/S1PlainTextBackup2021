@@ -18601,3 +18601,35 @@ TOP推荐
 上去几发三疾风收工，129就这么花完了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 5872#       发表于 2021-10-8 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53028569&amp;ptid=1860328" target="_blank">喵喵叫的猫 发表于 2021-10-7 22:20</a>
+
+不是都有写出处吗</blockquote>
+噢噢，看到了，那行字还挺淡，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hallowilliam  
+##### 5873#       发表于 2021-10-8 20:03
+
+
+xsx版全成就了。
+
+
+个人评价从前10小时的8.5，到中期的7.5，到最后差不多7分。
+
+
+打的是初见次高难，全程最难的感觉是打风领主和越级打最后钓鱼点那个大蛞蝓。
+
+
+前期评价比后面高，主要是因为堆怪和**的问题后期越发严重了，要不是角色性能差异大换着玩也有乐趣，这各种换皮怪都快打吐了。然后**也是，我一开始觉得是初期迷宫比较简单，结果到最后也没有哪个迷宫让我用到哪怕一粒脑细胞。
+
+
