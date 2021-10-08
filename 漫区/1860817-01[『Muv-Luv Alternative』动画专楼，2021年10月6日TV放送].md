@@ -12395,3 +12395,65 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 都是这个节奏的话，参考漫画，做完12.5事件不错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 850#       发表于 2021-10-9 01:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043249&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-8 23:37</a>
+两个战术机中队还基本都是新手的感觉，滞空那么久……而且出来不是跳跃就很出戏……感觉在高达片场（当然 ...</blockquote>
+第一集这个佐渡岛沦陷是98年，京都沦陷，驻日美军跑路，日本战场一退再退。佐渡岛巢穴之后建立。
+
+之后99年明星作战，美军扔G弹夺回横滨，就是alt原作开头发现那谁那段情节。然后在此基础上建立横滨基地。
+
+白银武在横滨基地建立后，01年10月22日醒来。
+
+
+*****
+
+####  pzgr43  
+##### 851#       发表于 2021-10-9 03:29
+
+
+官方同人里J20的设定是什么样子的？
+
+
+*****
+
+####  KOPKOM  
+##### 852#         楼主| 发表于 2021-10-9 04:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53044738&amp;ptid=1860817" target="_blank">pzgr43 发表于 2021-10-9 03:29</a>
+
+官方同人里J20的设定是什么样子的？</blockquote>
+这样的
+
+
+2DDC8BBB-25F7-4061-AADA-A13283C9BF48.jpeg
+(83.47 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-9 04:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/040709frfgni6mdbr2hgog.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 853#       发表于 2021-10-9 04:58
+
+
+要塞级这么菜的么，这破铜烂铁也能随便打
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
