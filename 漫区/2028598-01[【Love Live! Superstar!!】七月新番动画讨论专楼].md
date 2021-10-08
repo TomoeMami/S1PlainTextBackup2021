@@ -16673,3 +16673,35 @@ nako这晋级路线确实是普通声优选拔方式，能晋级真的太好了�
 如果企划方真敢这么玩那整个企划估计都要GG
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1312#       发表于 2021-10-8 17:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  武男  
+##### 1313#       发表于 2021-10-8 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53038271&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-8 16:47</a>
+
+我倒是挺好奇，鲤鱼家里人看爱生活吗，听到拿不到成绩就回家会是什么想法 ...</blockquote>
+拿不到成绩就找个厂上班吧.jpg
+
+
+*****
+
+####  稀勢のささ  
+##### 1314#       发表于 2021-10-8 18:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这购买部 还是有点尬
+
+

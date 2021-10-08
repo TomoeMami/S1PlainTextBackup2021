@@ -12046,3 +12046,88 @@ A01在沙雾事件中有减员吗，没有相关的印象指队员的亲属吗�
 PPS：这些话是我借用朋友账号发的，四舍五入我是不是也是管人了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  柴汪汪  
+##### 829#       发表于 2021-10-8 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53025491&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-7 18:15</a>
+
+从时间上看，DDR那边此时已经有非常成熟的战术了。这边打成这样确实不应该。 ...</blockquote>
+人家666是精锐中的精锐，乳NVA了，给我向NVA道歉Kora<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+说到底第一集这俩战术机中队也就是二线部队，充其量相当于现在南棒乡土团，你让他们和万岁军113旅的装甲营比空地协同是不是太难为人家了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 830#       发表于 2021-10-8 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53039006&amp;ptid=1860817" target="_blank">柴汪汪 发表于 2021-10-8 17:32</a>
+
+虽然鸡枞的设定是一团〇，但是大部分的细节还是有交代的。
+
+1.Beta群的出现突然，预测困难，除非先期发现 ...</blockquote>
+muv世界观下英美日三个传统海军大国都保留了相当多的BB啊（当然都做了现代化和对BETA改装），连毛子也把图纸BB造出来了
+
+tda里我记得有出现过接近现实中的那种导弹驱逐舰甚至还有盾舰
+
+
+动画我觉得是这种近防和对空都拆了有点光秃秃的BB，给俯瞰或全景确实会不好看
+
+
+*****
+
+####  噗呸破屁诚  
+##### 831#       发表于 2021-10-8 17:54
+
+
+十二集真的到的了甲21么，之前说第二集才到初见冥夜这个节奏来看，我估计十二集就只能到名场面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  柴汪汪  
+##### 832#       发表于 2021-10-8 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53039185&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-8 17:44</a>
+
+muv世界观下英美日三个传统海军大国都保留了相当多的BB啊（当然都做了现代化和对BETA改装），连毛子也把 ...</blockquote>
+TDA里还有朱姆沃尔特呢，现实中朱母主炮都保不住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+动画里除了战术机外的军事细节描写都是灾难，但还是那句话，能动就好，不求太多了。
+
+这两天关注的霓虹模型佬都是水战舰细节准备回去自己改模型的，鸡枞：我瞎做的，你确定要改？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+准备明天组织下截图水一下第一话出现的装备，有很多很出戏的细节只有傻〇军宅喜欢看
+
+
+<img src="https://img.saraba1st.com/forum/202110/08/175737giz53prk0z1rtkzf.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211008175721.png</strong> (182.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 17:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/08/175741vsn55zqkjx1cqpsg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211008175727.png</strong> (172.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-8 17:57 上传
+
+
