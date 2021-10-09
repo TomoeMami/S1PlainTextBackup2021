@@ -13316,3 +13316,63 @@ AA857D46-64E7-45CA-A193-936CB09B82DF.png
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  青菜子  
+##### 904#       发表于 2021-10-9 22:25
+
+
+请问这个Muv-Luv Alternative和Muv-Luv Alternative Total Eclipse什么关系？
+
+
+*****
+
+####  Toby_dak  
+##### 905#       发表于 2021-10-9 22:28
+
+
+<blockquote>引用第903楼青菜子于2021-10-09 23:25发表的  :
+
+请问这个Muv-Luv Alternative和Muv-Luv Alternative Total ......</blockquote>
+同一时间线上的不同时期的故事。
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  鱼雷鲨  
+##### 906#       发表于 2021-10-9 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53056305&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-9 22:13</a>
+
+能开蓝色00R武御雷就只有五大家，按年史就是斑鸠。</blockquote>
+这人好像长得很像吉总的自画像？
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 907#       发表于 2021-10-9 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53056437&amp;ptid=1860817" target="_blank">青菜子 发表于 2021-10-9 22:25</a>
+请问这个Muv-Luv Alternative和Muv-Luv Alternative Total Eclipse什么关系？</blockquote>
+al是正传，男主是最终樱花作战的核心成员，ate是外传，外传男主负责的是另外一边的牵制作战
+
+
+*****
+
+####  KOPKOM  
+##### 908#         楼主| 发表于 2021-10-9 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53056437&amp;ptid=1860817" target="_blank">青菜子 发表于 2021-10-9 22:25</a>
+请问这个Muv-Luv Alternative和Muv-Luv Alternative Total Eclipse什么关系？</blockquote>
+这部是原作三部曲的第三部动画化的，之前的TE和黑标都是外传，时间线上TE和这部发生的时间差不多，TE的最终决战（游戏中的，动画没提及）和这部的最终决战（大概率这一季动画是做不到了）是同时开展的
+
+
