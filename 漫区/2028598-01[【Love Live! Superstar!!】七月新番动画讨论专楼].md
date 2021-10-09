@@ -17639,3 +17639,57 @@ S1官博也在带这个节奏，说句死个妈不为过了，让你喜欢的东
 打call太猛男了，受不了
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 1390#       发表于 2021-10-10 00:12
+
+
+混入马娘群的鲤鱼，话说日本有什么中国出生的名马吗，看能不能给鲤鱼配一个<img src="https://p.sda1.dev/2/31948cd987e525882ab95288ad3e2077/IMG_CMP_131665674.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 1391#       发表于 2021-10-10 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53057759&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 00:12</a>
+
+混入马娘群的鲤鱼，话说日本有什么中国出生的名马吗，看能不能给鲤鱼配一个 ...</blockquote>
+鲤鱼自己不想当声优吧，估计没打算配其他东西
+
+
+*****
+
+####  chenflyyy  
+##### 1392#       发表于 2021-10-10 00:19
+
+
+看B站评论给liella打call那四位好像是个蛮有名的金爆乐队，上个好几次红白，理解不能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 1393#       发表于 2021-10-10 00:19
+
+
+<blockquote>任天索尼子 发表于 2021-10-10 00:18
+鲤鱼自己不想当声优吧，估计没打算配其他东西</blockquote>
+她说过想多尝试的
+
+
+*****
+
+####  chenflyyy  
+##### 1394#       发表于 2021-10-10 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53057802&amp;ptid=2028598" target="_blank">任天索尼子 发表于 2021-10-10 00:18</a>
+鲤鱼自己不想当声优吧，估计没打算配其他东西</blockquote>
+之前在B站直播说过有机会想配其他角色的
+
+
