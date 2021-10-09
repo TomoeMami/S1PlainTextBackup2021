@@ -6235,3 +6235,50 @@ mea养我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" r
 或者来个忘记现实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（x）
 
 
+
+
+*****
+
+####  古战场亡魂  
+##### 3554#       发表于 2021-10-9 11:42
+
+
+先养活一个礼拜再说吧。养宠物哪有不死几只的。
+
+
+*****
+
+####  时间在我手中  
+##### 3555#       发表于 2021-10-9 11:45
+
+
+这么一想是不是有机会听到肥婆哭了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 3556#       发表于 2021-10-9 11:52
+
+
+哭也是偷偷哭
+
+
+*****
+
+####  专业划水人员  
+##### 3557#       发表于 2021-10-9 11:56
+
+
+今晚怎么也应该放张图吧，或者她自己画个大概。
+
+
+*****
+
+####  makourisu-2  
+##### 3558#       发表于 2021-10-9 12:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按这女人动不动放烟雾弹习惯，说不定只是跑去宠物店看了一会，反正直播大伙也看不见，只能听她讲
+
+

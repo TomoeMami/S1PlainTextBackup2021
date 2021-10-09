@@ -152,3 +152,17 @@ bo小炎了一下，倒霉
 顺便ras真的越来越菜了，cr现役除了selly都没打出统治力
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7513#       发表于 2021-10-9 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53045939&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-10-9 09:24</a>
+想请郡噶吃评价一下.png
+虽然我觉得挺无所谓的.png</blockquote>
+斗的什么虫，谁对原神的爱更真吗…那我宣布郡郡输了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+

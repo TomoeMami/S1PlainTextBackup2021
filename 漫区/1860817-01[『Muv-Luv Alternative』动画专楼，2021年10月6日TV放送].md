@@ -12712,3 +12712,14 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 海军倒是一如既往的聪明，用这个借口留在这划水就不用去琵琶湖玩命了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  若菜  
+##### 864#       发表于 2021-10-9 12:08
+
+
+看himado鬼子弹幕，鬼子年轻人现在也无法理解这种送死行为了
+
+
