@@ -17162,3 +17162,27 @@ B站那个100多万播放的小星星终究还是被删了</blockquote>叔叔:�
 估计就是11集结尾提一嘴大的要来了这个程度
 
 
+
+
+*****
+
+####  qratosone  
+##### 1349#       发表于 2021-10-9 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047868&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-9 11:30</a>
+说起来，突然想起当年设定可可的77生日，从七夕节的角度看，是两颗星星跨越银河的相遇（不过那两颗可是超级 ...</blockquote>
+其实可以直接05-06年当年七夕的阳历日期，然后一起标注阴历，反正中国人的传统节日都是按阴历过的，也有些家庭有按阴历过生日的习惯。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ayara  
+##### 1350#       发表于 2021-10-9 12:27
+
+
+11集如果是香千回的话，结束了放可solo吗
+
+

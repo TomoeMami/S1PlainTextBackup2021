@@ -18659,3 +18659,20 @@ xsx版全成就了。
 sao联动，这黑大衣给错人了吧
 
 
+
+
+*****
+
+####  BigLittle1999  
+##### 5876#       发表于 2021-10-9 12:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043242&amp;ptid=1860328" target="_blank">泉美 发表于 2021-10-8 23:36</a>
+57小时白金了。后期用琳薇尔真是体验舒适
+
+通关的时候等级有点高已经有60级了，搭配两倍经验基本上把 ...</blockquote>
+战斗的足迹应该是要图鉴全收集后露营几次
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
