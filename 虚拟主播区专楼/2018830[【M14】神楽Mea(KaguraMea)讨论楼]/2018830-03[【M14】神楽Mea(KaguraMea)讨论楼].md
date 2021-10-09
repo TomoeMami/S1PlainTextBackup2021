@@ -6632,3 +6632,34 @@ image.png
 今天是不是打算唱一首歌保证删档，然后聊个痛
 
 
+
+
+*****
+
+####  rosevalley46  
+##### 3590#       发表于 2021-10-9 18:09
+
+
+还是聊天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3591#       发表于 2021-10-9 18:21
+
+
+ 本帖最后由 T_Hb 于 2021-10-9 18:23 编辑 
+
+巴拉莱卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天选曲有点意思
+
+
+*****
+
+####  雪风utopia  
+##### 3592#       发表于 2021-10-9 18:22
+
+
+感觉好久没听到了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+

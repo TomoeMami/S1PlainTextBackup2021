@@ -13065,3 +13065,54 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 除了甲21甲22之后的是重头脑级有微操外其他大致上是按照最大化铺菌毯的路数在建设。
 
 
+
+
+*****
+
+####  a.r.m  
+##### 889#       发表于 2021-10-9 18:07
+
+
+说起来为啥还有会步兵？步兵没什么用啊，别说斗士级了，连兵士级都打不过，面对战车级甚至就是白白牺牲……
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  突发性哮喘病患  
+##### 890#       发表于 2021-10-9 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053496&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-9 18:07</a>
+
+说起来为啥还有会步兵？步兵没什么用啊，别说斗士级了，连兵士级都打不过，面对战车级甚至就是白白牺牲…… ...</blockquote>
+不是每个人都能开机甲的，而且动画里的步兵主要是用来疏散平民的啊
+
+
+*****
+
+####  a.r.m  
+##### 891#       发表于 2021-10-9 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053592&amp;ptid=1860817" target="_blank">突发性哮喘病患 发表于 2021-10-9 18:15</a>
+不是每个人都能开机甲的，而且动画里的步兵主要是用来疏散平民的啊</blockquote>
+维持秩序是吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yone0000  
+##### 892#       发表于 2021-10-9 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053496&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-9 18:07</a>
+
+说起来为啥还有会步兵？步兵没什么用啊，别说斗士级了，连兵士级都打不过，面对战车级甚至就是白白牺牲…… ...</blockquote>
+有只存在于设定中的穿着动力装甲强化服配备12.7毫米机枪的强化步兵，可以对抗斗士级和兵士级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
