@@ -16974,3 +16974,25 @@ B站那个100多万播放的小星星终究还是被删了</blockquote>叔叔:�
 太可惜了……
 
 
+
+
+*****
+
+####  saya1892  
+##### 1335#       发表于 2021-10-9 09:18
+
+
+根据大家的猜测，11话可能会出现的歌是私のsymphony，剧情也有可能是香千
+
+但是这首歌是可可solo最长<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">或者说可香最长，怎么回事
+
+<img src="https://img.saraba1st.com/forum/202110/09/091801rfrwr819859195cc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6.jpg</strong> (59.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 09:18 上传
+
+
