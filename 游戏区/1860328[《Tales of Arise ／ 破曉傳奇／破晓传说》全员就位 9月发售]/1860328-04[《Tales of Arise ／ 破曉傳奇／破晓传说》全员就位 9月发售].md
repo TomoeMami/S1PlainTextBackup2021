@@ -18676,3 +18676,20 @@ sao联动，这黑大衣给错人了吧
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  lee0709  
+##### 5877#       发表于 2021-10-9 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020677&amp;ptid=1860328" target="_blank">EigenVesper 发表于 2021-10-7 10:38</a>
+
+借楼问一句，想玩一作2d传说，从toe开始还是tod导剪开始好啊</blockquote>
+tod导剪，2D战斗巅峰。
+
+
+TOE也是神作，不过还是打完TODR感觉对上电波了再去回味TOE吧。
+
+
