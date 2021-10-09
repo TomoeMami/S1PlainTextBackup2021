@@ -13116,3 +13116,76 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 有只存在于设定中的穿着动力装甲强化服配备12.7毫米机枪的强化步兵，可以对抗斗士级和兵士级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hlazd  
+##### 893#       发表于 2021-10-9 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053677&amp;ptid=1860817" target="_blank">yone0000 发表于 2021-10-9 18:23</a>
+有只存在于设定中的穿着动力装甲强化服配备12.7毫米机枪的强化步兵，可以对抗斗士级和兵士级 ...</blockquote>
+我记得外传里有一段机械化步兵的剧情，正好也是佐渡沦陷期间，他们在新潟和BETA交战
+
+
+*****
+
+####  a.r.m  
+##### 894#       发表于 2021-10-9 18:29
+
+
+搜了搜贴吧，找到谈了谈冷兵器的老帖子。
+
+<img src="https://img.saraba1st.com/forum/202110/09/182855t2tql8wggnigqqrz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>603BB9AC45C7CE9510E62373315A4B4A.jpg</strong> (95.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 18:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/182855ac0xqx885l38kokn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>55AB4FAEAEC4F08CB894B0E34EDAF51B.jpg</strong> (72.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 18:28 上传
+
+
+美国人不怎么热衷冷兵器是真的，英德中日都有配冷兵器
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Toby_dak  
+##### 895#       发表于 2021-10-9 18:31
+
+
+<blockquote>引用第837楼smdzh2于2021-10-08 23:55发表的  :
+
+既然楼里有军宅，我一介军盲想问一下：究竟战车停在城墙上当固定炮台好使，还是留在城墙后配合轻步兵清除突......</blockquote>
+现实是坦克俯角不足。像第一话那种高度的预制件城墙和海岸线，坦克上去只能像古代棱堡射击对角线上的目标。
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  Toby_dak  
+##### 896#       发表于 2021-10-9 18:38
+
+
+<blockquote>鱼雷鲨 发表于 2021-10-9 15:41
+难道是BETA按着G元素矿脉走的？</blockquote>
+按照游戏描述和い号標的，G元素不是天然存在的物质，而是通过类似重元素合成而制作出来的。
+
+
