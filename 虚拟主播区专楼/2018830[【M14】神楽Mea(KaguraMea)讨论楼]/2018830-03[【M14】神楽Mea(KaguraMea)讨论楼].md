@@ -6741,3 +6741,23 @@ image.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">他妈的，冒着大雨赶回来，能不能唱歌了
 
 
+
+
+*****
+
+####  295405468  
+##### 3601#       发表于 2021-10-9 19:45
+
+
+居然又有现实照片了  一眼看不出来上下左右
+
+
+*****
+
+####  T_Hb  
+##### 3602#       发表于 2021-10-9 19:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一张是从上向下，一张是从下往上
+
+
