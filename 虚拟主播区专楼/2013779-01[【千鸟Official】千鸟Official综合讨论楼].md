@@ -5886,3 +5886,14 @@ sbll，新皮越看越🍵，🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静不是摆烂，是她玩游戏就是菜，而且玩起游戏没法兼顾弹幕
 
 
+
+
+*****
+
+####  rgauss  
+##### 518#       发表于 2021-10-9 23:59
+
+
+不过要是我和文静玩早揍人了
+
+

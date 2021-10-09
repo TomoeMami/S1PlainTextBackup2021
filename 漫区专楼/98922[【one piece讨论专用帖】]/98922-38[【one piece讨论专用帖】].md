@@ -3729,3 +3729,32 @@ queen这我笑死
 不是，山治这一家在蛋糕岛不算丢人到极点了吗，没看出有多强啊
 
 
+
+
+*****
+
+####  klzxs  
+##### 55771#       发表于 2021-10-9 23:12
+
+
+类似的身体性质是有的 高防御力的皮肤和异常的回复能力
+
+但没有到三治现在表现的这么夸张
+
+其他兄弟是防弹 三治直接挡三灾一刀
+
+老四被三治打的凹了一块是锤两下后恢复 三治被折成一节节的过两个分镜就正常行动了
+
+
+*****
+
+####  武男  
+##### 55772#       发表于 2021-10-9 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53055679&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-10-9 21:12</a>
+
+这话的讨论热度真是降到冰点。除了这两话有谈到这个突发性升级，前期有铺垫过吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">剧情基本上差不多了，不过感觉真是没啥意料外的高潮和燃，嗨，倒不如让猴子在后面登场捡漏。
+
+
