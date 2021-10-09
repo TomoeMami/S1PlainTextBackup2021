@@ -17693,3 +17693,69 @@ S1官博也在带这个节奏，说句死个妈不为过了，让你喜欢的东
 之前在B站直播说过有机会想配其他角色的
 
 
+
+
+*****
+
+####  player3960  
+##### 1395#       发表于 2021-10-10 00:23
+
+
+靠ll企划吃个三五年不是问题，估计那时候日语水平也应该相当可以了，再配配
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  任天索尼子  
+##### 1396#       发表于 2021-10-10 00:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53057827&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 00:20</a>
+
+之前在B站直播说过有机会想配其他角色的</blockquote>
+还是看事务所吧。目前官网上挂的还是歌手和COSER，估计上面要考虑。
+
+
+*****
+
+####  cybernetics31  
+##### 1397#       发表于 2021-10-10 00:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明是混入偶像大师的鱼(bushi，嘛，慢慢来嘛，多条路走总是好的
+
+
+*****
+
+####  player3960  
+##### 1398#       发表于 2021-10-10 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53057846&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-10 00:23:17</a>
+靠ll企划吃个三五年不是问题，估计那时候日语水平也应该相当可以了，再配配
+
+ ...</blockquote>再配点其他角色估计就很得心应手了，现在是还要菜宝辅助的阶段
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 1399#       发表于 2021-10-10 00:26
+
+
+鲤鱼表情太生草了
+
+
+*****
+
+####  cybernetics31  
+##### 1400#       发表于 2021-10-10 00:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">国内现场看鲤鱼不知道要啥时候了
+
+
