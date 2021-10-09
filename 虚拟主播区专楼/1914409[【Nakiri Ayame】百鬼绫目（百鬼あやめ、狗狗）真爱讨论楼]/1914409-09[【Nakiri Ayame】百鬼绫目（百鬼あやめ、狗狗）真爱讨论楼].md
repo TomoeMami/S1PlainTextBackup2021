@@ -15285,3 +15285,14 @@ DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总会关心比赛吗？话说绫总有没有认识的人在dfm
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13296#       发表于 2021-10-9 16:41
+
+
+一周了绫总的原创曲MV呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
