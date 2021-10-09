@@ -17221,3 +17221,18 @@ B站那个100多万播放的小星星终究还是被删了</blockquote>叔叔:�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到现在为止就一个秋叶原放生放……………………
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 1354#       发表于 2021-10-9 14:40
+
+
+ 本帖最后由 黑雪姫 于 2021-10-9 14:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53049756&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-9 13:54</a>
+
+隔壁佐贺偶像能海外线上同步………………LL就版权炮，…………也不要求live那些了，注册个叔叔家账 ...</blockquote>
+烂铁不进入中国，却管着中国版权，占着茅坑不拉屎就是这样。
+
+

@@ -12918,3 +12918,57 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 这波beta就是从新泻来的吧？这4艘战列舰应该就是在划水<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hlazd  
+##### 879#       发表于 2021-10-9 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53050071&amp;ptid=1860817" target="_blank">yixiaqqq 发表于 2021-10-9 14:21</a>
+这波beta就是从新泻来的吧？这4艘战列舰应该就是在划水</blockquote>
+要塞级之前的几波是从本土，从要塞级开始都是从大陆长途跋涉而来的，因为监听系统受损没能及时预警到（前几楼有人发过截图了）
+
+
+*****
+
+####  若菜  
+##### 880#       发表于 2021-10-9 14:38
+
+
+<blockquote>nervpp 发表于 2021-10-9 13:09
+这可无法认同给，甲二十一打的还是非常惨烈的啊。（好吧，其实那场本质上是为了测试凄乃皇来着）
+
+其实我 ...</blockquote>
+手游明年出
+
+
+*****
+
+####  鱼雷鲨  
+##### 881#       发表于 2021-10-9 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53049065&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-9 12:58</a>
+
+按这样说，守这小岛作甚？
+
+支援没有，后备力量没有，还有这么多人在岛上避难。要不直接弃守，要不就加强力 ...</blockquote>
+古代有金矿，可能现代也要继续挖金子做电路板？
+
+
+*****
+
+####  鱼雷鲨  
+##### 882#       发表于 2021-10-9 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53050010&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-9 14:14</a>
+
+不用去琵琶湖，这时候京都已经没了
+
+不战就跑是不可能的，这时候北路的帝国军都在新潟阻击BETA（佐 ...</blockquote>
+难道是BETA按着G元素矿脉走的？
+
+

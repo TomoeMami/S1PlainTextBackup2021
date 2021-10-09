@@ -6326,3 +6326,23 @@ mea养我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" r
 本来想说猫猫狗狗至少不会轻易养死，不过仔细一想她就不一定了
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3563#       发表于 2021-10-9 14:23
+
+
+苔总也是虚拟的，照片也是虚拟的，所以仓鼠也是虚拟的
+
+
+*****
+
+####  时间在我手中  
+##### 3564#       发表于 2021-10-9 14:26
+
+
+仓鼠这东西要养死我觉得难度还是不大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
