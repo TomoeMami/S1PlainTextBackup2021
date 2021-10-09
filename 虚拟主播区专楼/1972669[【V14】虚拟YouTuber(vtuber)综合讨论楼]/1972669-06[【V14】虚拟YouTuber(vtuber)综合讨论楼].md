@@ -376,3 +376,17 @@ cpt才是cr杯最大赢家啊，之前也拿过冠军吧
 hnn正赛还行啊，本来以为按照训练赛会倒数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 7528#       发表于 2021-10-9 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53055255&amp;ptid=1972669" target="_blank">十四洲 发表于 2021-10-9 20:31</a>
+
+cpt才是cr杯最大赢家啊，之前也拿过冠军吧</blockquote>
+能介绍一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
