@@ -12723,3 +12723,26 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 看himado鬼子弹幕，鬼子年轻人现在也无法理解这种送死行为了
 
 
+
+
+*****
+
+####  aptx8285144  
+##### 865#       发表于 2021-10-9 12:30
+
+
+原作党在剧透地方还是注意点，要反白的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最后的法芙娜  
+##### 866#       发表于 2021-10-9 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047682&amp;ptid=1860817" target="_blank">yixiaqqq 发表于 2021-10-9 11:20</a>
+
+总的来说就是守岛司令部里全是猪，本土都要玩完了守岛已经没有任何意义了，本来就是机动力量全部支援本土 ...</blockquote>
+如果知道未来会要建巢的话，肯定是要死守的，人不够还得从前线拉一点过来。但是问题是谁都不知道啊
+
+
