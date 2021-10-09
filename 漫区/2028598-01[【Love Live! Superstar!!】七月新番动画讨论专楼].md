@@ -17055,3 +17055,44 @@ B站那个100多万播放的小星星终究还是被删了</blockquote>叔叔:�
 这越来越讨论越像鲤鱼说的那样，可可真是太神了
 
 
+
+
+*****
+
+####  mkong  
+##### 1341#       发表于 2021-10-9 11:14
+
+
+操  B站那个小星星有谁保存了吗？求个分享
+
+
+----发送自 [HUAWEI HLK-AL10,Android 10](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  秋月艾莉  
+##### 1342#       发表于 2021-10-9 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53045854&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-9 09:18</a>
+
+根据大家的猜测，11话可能会出现的歌是私のsymphony，剧情也有可能是香千
+
+但是这首歌是可可solo最长 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前刷推看见有英语圈的香千党提前开香槟wwwww
+
+
+*****
+
+####  黑雪姫  
+##### 1343#       发表于 2021-10-9 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53045854&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-9 09:18</a>
+根据大家的猜测，11话可能会出现的歌是私のsymphony，剧情也有可能是香千
+
+但是这首歌是可可solo最长 ...</blockquote>
+不是 就预告来说你们怎么看出有千香剧情的？ 我只看出来是讲香音怯场黑历史的。
+
+

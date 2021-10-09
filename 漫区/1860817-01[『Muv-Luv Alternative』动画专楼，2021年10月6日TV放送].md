@@ -12656,3 +12656,59 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 （没有黑波兰，没有任何这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  柴汪汪  
+##### 860#       发表于 2021-10-9 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043731&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-9 00:25</a>
+
+乡土师过了，算是步兵师里坦克营吧</blockquote>
+嘛，这里主要是说一下训练水平，差距肉眼可见的大
+
+
+*****
+
+####  柴汪汪  
+##### 861#       发表于 2021-10-9 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53042385&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-8 22:15</a>
+
+这样拍可不是我想看的抹布啊……这样抹布前期的压迫感，绝望感哪里能塑造的出来。
+
+而且这种战斗力的BETA ...</blockquote>
+佐渡岛本身就是巴掌大地方，堆不出啥气势的，不如说能让第二舰队出面已经很给面子了，放低期待，没准后面还有更精彩的）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hacisiki  
+##### 862#       发表于 2021-10-9 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53046774&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2021-10-9 10:24</a>
+
+打不穿海星的侧面</blockquote>
+你自己去看地图就知道了，那边的地形能轻易瞄准后半球。仔细康康模型就能知道突击级整个后半球都是没有防护。
+
+
+*****
+
+####  yixiaqqq  
+##### 863#       发表于 2021-10-9 11:20
+
+
+ 本帖最后由 yixiaqqq 于 2021-10-9 11:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047196&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-9 10:49</a>
+
+虽说这时候肯定是抽掉一切能抽掉的力量去支援本土，但总不能新兵带队，两个中队长实力有的不过从 ...</blockquote>
+总的来说就是守岛司令部里全是猪，本土都要玩完了守岛已经没有任何意义了，本来就是机动力量全部支援本土，岛上苟着指望beta不来，这都来了就应该直接启动跑路预案，结果还来劲了打开防御战了，大概人生追求就是玉碎？太tm昭和了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+海军倒是一如既往的聪明，用这个借口留在这划水就不用去琵琶湖玩命了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+

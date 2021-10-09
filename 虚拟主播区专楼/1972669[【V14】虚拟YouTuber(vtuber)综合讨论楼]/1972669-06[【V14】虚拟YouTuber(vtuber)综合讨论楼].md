@@ -123,3 +123,17 @@ cr流量卫门流量两头吃
 这真的是老阿姨吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7511#       发表于 2021-10-9 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53046813&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-9 10:26</a>
+bo小炎了一下，倒霉
+还好这次不是大热队伍，一下就过去了</blockquote>
+地震时那个“反日认定”也算炎起来了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
