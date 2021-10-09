@@ -12972,3 +12972,25 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 难道是BETA按着G元素矿脉走的？
 
 
+
+
+*****
+
+####  Dag8  
+##### 883#       发表于 2021-10-9 15:00
+
+
+不敢想象后面甲21白银武无双要塞级做出来的画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 884#       发表于 2021-10-9 15:04
+
+
+怎么看出篁唯依座驾的，第一次看只能模糊的看到要塞级，推特图片也糊，标了箭头也看不出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
