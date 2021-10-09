@@ -6772,3 +6772,14 @@ image.png
 玩了一个小时仓鼠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路人庚  
+##### 3604#       发表于 2021-10-9 23:29
+
+
+果然你咩姐在买宠物的时候会先考虑好它死了之后应该怎么处理（
+
+

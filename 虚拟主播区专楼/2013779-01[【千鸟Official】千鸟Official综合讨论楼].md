@@ -5866,3 +5866,23 @@ sbll，新皮越看越🍵，🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵�
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  rgauss  
+##### 516#       发表于 2021-10-9 23:44
+
+
+这团体节目回还行吧 比之前好多了..就是文静有点摆烂
+
+
+*****
+
+####  夜潇箫  
+##### 517#       发表于 2021-10-9 23:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静不是摆烂，是她玩游戏就是菜，而且玩起游戏没法兼顾弹幕
+
+
