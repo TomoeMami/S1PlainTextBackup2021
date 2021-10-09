@@ -12994,3 +12994,21 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 885#       发表于 2021-10-9 15:32
+
+
+看到沿道路行进的beta，就像是前往comic market的死宅，左边的去东馆，右边的去西馆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+来源：https://twitter.com/helmetcrab/status/1445997595071975438?t=S7CrWBlGi8JJjfV4XKR9RA&amp;s=19
+
+<img src="https://p.sda1.dev/2/e442ee92d9c102cba074b8013e247624/IMG_CMP_97333211.jpeg" referrerpolicy="no-referrer">
+
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
