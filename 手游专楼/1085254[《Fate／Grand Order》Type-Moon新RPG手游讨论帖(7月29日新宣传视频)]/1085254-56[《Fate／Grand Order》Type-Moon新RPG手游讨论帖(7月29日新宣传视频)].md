@@ -17522,3 +17522,20 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 今天居然没预告，看来下周开不了活动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83959#       发表于 2021-10-9 23:10
+
+
+4缺1万圣南丁总算满破了
+
+还附赠把4缺1绫香也给满破了
+
+
+这单我赚了.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -17522,3 +17522,100 @@ S1官博也在带这个节奏，说句死个妈不为过了，让你喜欢的东
 日综对我来说level还是太高了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就等上台了
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1379#       发表于 2021-10-9 23:03
+
+
+打call太草了
+
+
+*****
+
+####  chenflyyy  
+##### 1380#       发表于 2021-10-9 23:04
+
+
+这算是liella第一次有打call的live吧，这才对味嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说日本好像对live打call不限制了，后面1st应该能有吧
+
+
+
+
+*****
+
+####  kata魂  
+##### 1381#       发表于 2021-10-9 23:05
+
+
+草，这现场，还挺有感觉的（可能上次minilive一个人没有看起来太空虚了）
+
+
+*****
+
+####  cat1230  
+##### 1382#       发表于 2021-10-9 23:05
+
+
+外景那4个打拷的也太阴间了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 1383#       发表于 2021-10-9 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日综还是看不惯
+
+
+*****
+
+####  优妮可  
+##### 1384#       发表于 2021-10-9 23:07
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/230637wqxlzvt9mtmcoqqu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20211009_230503_tv.danmaku.bili.jpg</strong> (171.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 23:06 上传
+
+
+好像鲤鱼的麦有点小声？
+
+
+*****
+
+####  a92063256  
+##### 1385#       发表于 2021-10-9 23:07
+
+
+感觉鱼好像被那那几个打call的惊到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cat1230  
+##### 1386#       发表于 2021-10-9 23:07
+
+
+上台唱首歌就结束了吗？
+
+
+*****
+
+####  chenflyyy  
+##### 1387#       发表于 2021-10-9 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53056958&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-10-9 23:07</a>
+感觉鱼好像被那那几个打call的惊到了</blockquote>
+不管谁都会被惊到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
