@@ -12878,3 +12878,43 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 感觉这段拍出来应该比目前这个质量的突突虫子带劲，就是看起来可能更不抹布了。
 
 
+
+
+*****
+
+####  yone0000  
+##### 876#       发表于 2021-10-9 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53049004&amp;ptid=1860817" target="_blank">殿珣 发表于 2021-10-9 12:53</a>
+
+有人说在第一集看到了篁唯依的座驾。重温ate发现篁唯依确实是撞到要塞级坠毁的。正好第一集有一个要塞级[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">鸡枞怕大家都没发现亲自在推特上说了，不知道画面上的机体是不是恭子那时候偷开出来的武御雷
+
+
+*****
+
+####  hlazd  
+##### 877#       发表于 2021-10-9 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047682&amp;ptid=1860817" target="_blank">yixiaqqq 发表于 2021-10-9 11:20</a>
+总的来说就是守岛司令部里全是猪，本土都要玩完了守岛已经没有任何意义了，本来就是机动力量全部支援本土 ...</blockquote>
+不用去琵琶湖，这时候京都已经没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不战就跑是不可能的，这时候北路的帝国军都在新潟阻击BETA（佐渡被调走的兵力也是去的这里），跑了等于把帝国军的侧翼全暴露。当然这里剧情杀就来了，占领了佐渡的BETA没有继续南下而是原地建巢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yixiaqqq  
+##### 878#       发表于 2021-10-9 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53050010&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-9 14:14</a>
+
+不用去琵琶湖，这时候京都已经没了
+
+不战就跑是不可能的，这时候北路的帝国军都在新潟阻击BETA（佐 ...</blockquote>
+这波beta就是从新泻来的吧？这4艘战列舰应该就是在划水<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
