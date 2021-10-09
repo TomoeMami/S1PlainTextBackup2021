@@ -17018,3 +17018,29 @@ B站那个100多万播放的小星星终究还是被删了</blockquote>叔叔:�
     第一次专楼发言，不知道之前有没有人问，唐可可在第十集接电话时候的中文特别“地道”是我们中国人说的中文；可开始那几集的中文就特别的“anime”化，是那种只在动画存在的高调声音？ 按理来说第一集看到心仪的歌手，脱口而出“……简直是天~籁”，就非常日本人的中文，可可不至于这么短时间还能分开营业用和自用的区别吧？
 
 
+
+
+*****
+
+####  永恒的王牌  
+##### 1338#       发表于 2021-10-9 10:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53046348&amp;ptid=2028598" target="_blank">wuwo2 发表于 2021-10-9 09:54</a>
+
+第一次专楼发言，不知道之前有没有人问，唐可可在第十集接电话时候的中文特别“地道”是我们中国人说的 ...</blockquote>
+只能说这么多集过去了菜宝终于成功说服音监中国话是怎么说才显得正常了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  马桶3  
+##### 1339#       发表于 2021-10-9 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53046348&amp;ptid=2028598" target="_blank">wuwo2 发表于 2021-10-9 09:54</a>
+
+第一次专楼发言，不知道之前有没有人问，唐可可在第十集接电话时候的中文特别“地道”是我们中国人说的 ...</blockquote>
+一开始配的是正常的，但是监督觉得情感不够浓烈，就改成了现在的二次元高调版，其实你看国产二次元那帮子人就是这么配的……
+
+

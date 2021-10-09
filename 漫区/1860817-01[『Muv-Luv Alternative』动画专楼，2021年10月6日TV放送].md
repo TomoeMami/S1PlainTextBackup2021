@@ -12531,3 +12531,29 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 2021-10-9 10:08 上传
 
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 855#       发表于 2021-10-9 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043821&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-9 00:36</a>
+
+把坦克丢在两边海角山上用HE进行远程射击最有优势。整个海湾最宽处只有8公里。5到6公里的榴弹精确侧击是 ...</blockquote>
+打不穿海星的侧面
+
+
+*****
+
+####  鱼雷鲨  
+##### 856#       发表于 2021-10-9 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043932&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-9 00:47</a>
+
+都是这个节奏的话，参考漫画，做完12.5事件不错了</blockquote>
+可能就是做到125，把驹木拉出来死
+
+
