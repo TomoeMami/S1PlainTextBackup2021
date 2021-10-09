@@ -453,3 +453,14 @@ cpt真实带妹天王，2届冠军带了4个妹
 我也不熟，之前好像带bora拿过一次冠军，在cr内算是团欺的定位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7535#       发表于 2021-10-9 21:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">selly也是难受，上上上届带bora，towa被看好当冠军候补翻车了，这届鲨疯了也被当冠军候补又翻车了
+
+

@@ -5853,3 +5853,16 @@ sbll，新皮越看越🍵，🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵🍵�
 真的平均游戏力0，不看了。
 
 
+
+
+*****
+
+####  tn_teana  
+##### 515#       发表于 2021-10-9 21:27
+
+
+太猪逼了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

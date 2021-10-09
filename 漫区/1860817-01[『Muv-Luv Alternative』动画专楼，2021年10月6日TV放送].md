@@ -13230,3 +13230,18 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 除此之外，如果有战术机故障迫降，附近步兵还可能保护驾驶员撤退，驾驶员的命是非常金贵的。
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 899#       发表于 2021-10-9 21:23
+
+
+偏个题，看ate动画，第二集末尾救下篁唯依的武御雷是谁开的？层主的第一感觉是关系户真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，是为了救篁唯依特派的吗？
+
+第一枪就能精准命中即将咬人的战车级，是卫士服有定位装置吧
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
