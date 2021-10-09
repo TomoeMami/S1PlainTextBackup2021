@@ -76,3 +76,25 @@ hnn整的料理比我想象的好多了<img src="https://static.saraba1st.com/im
 虽然我觉得挺无所谓的.png
 
 
+
+
+*****
+
+####  我不是很好  
+##### 7507#       发表于 2021-10-9 09:30
+
+
+有点感知树那味了
+
+
+*****
+
+####  暴走的包子  
+##### 7508#       发表于 2021-10-9 09:41
+
+
+卧槽op
+
+—— 來自 samsung SM-F9260, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
