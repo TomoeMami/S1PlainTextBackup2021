@@ -22622,3 +22622,14 @@ Ame闭关休整接下来会少一些更新<img src="https://static.saraba1st.com
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">阿梅真的太累了，感觉她对直播的要求和热情都最高，但又不甘心就这样普通地直播，经常花很多时间准备直播相关的东西，像mc里也造了一大堆方便最近联动。而且阿梅最近的观众人数属实是堪忧，可能是游戏问题，但基本人数都不超过4000，跟隔壁同时段鲨鱼好几万比起来真的磕碜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 可能这种没有效果的直播对她也是种折磨，这样好好休息调整一下也好。
 
 
+
+
+*****
+
+####  shimmy1996  
+##### 1425#       发表于 2021-10-10 06:21
+
+
+Necklace Ame!<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
