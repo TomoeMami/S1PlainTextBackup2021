@@ -221,3 +221,25 @@ en3期特中了几个？全中吗？
 请看过的人自觉添砖加瓦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Kanchiki  
+##### 7519#       发表于 2021-10-9 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53046013&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-10-9 09:30</a>
+
+有点感知树那味了</blockquote>
+这种智障论证也cue我？
+
+要我来说，鹰宫本来就只喜欢那几个男角色，对原神就没多爱
+
+至于郡道，但凡TL被她サブ垢刷屏过都懂
+
+还有什么迪凯小论文，北凝小论文，几句对话能分析1个小时的
+
+那么多的论据不用，用一个早21天到55级是不是弱智
+
+

@@ -6346,3 +6346,14 @@ mea养我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" r
 仓鼠这东西要养死我觉得难度还是不大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  tuna  
+##### 3565#       发表于 2021-10-9 16:08
+
+
+如果不是二阶虚拟，那一个月以内这仓鼠biss
+
+
