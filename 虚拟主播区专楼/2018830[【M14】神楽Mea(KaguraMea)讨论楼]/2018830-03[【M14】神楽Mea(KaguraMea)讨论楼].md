@@ -6730,3 +6730,14 @@ image.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还唱恋爱是混沌的奴隶，今天这么欢乐
 
 
+
+
+*****
+
+####  十九号大侠  
+##### 3600#       发表于 2021-10-9 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">他妈的，冒着大雨赶回来，能不能唱歌了
+
+
