@@ -329,3 +329,50 @@ QQ图片20211009200305.png
 <img src="https://img.saraba1st.com/forum/202110/09/200326cj0tf2x4zttenc5x.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7523#       发表于 2021-10-9 20:28
+
+
+果然点数欺诈的几个队表现还是好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十四洲  
+##### 7524#       发表于 2021-10-9 20:31
+
+
+cpt才是cr杯最大赢家啊，之前也拿过冠军吧
+
+
+*****
+
+####  IDIDIDID  
+##### 7525#       发表于 2021-10-9 20:32
+
+
+又是杏女抱大腿拿冠军的一天
+
+
+*****
+
+####  格林卡罗尔  
+##### 7526#       发表于 2021-10-9 20:39
+
+
+奈罗花队第二，真就只差一点
+
+
+*****
+
+####  FCCHua  
+##### 7527#       发表于 2021-10-9 20:44
+
+
+hnn正赛还行啊，本来以为按照训练赛会倒数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
