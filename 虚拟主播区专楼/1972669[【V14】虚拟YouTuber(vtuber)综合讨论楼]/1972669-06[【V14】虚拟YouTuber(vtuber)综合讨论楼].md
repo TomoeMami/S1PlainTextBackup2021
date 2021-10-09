@@ -137,3 +137,18 @@ bo小炎了一下，倒霉
 地震时那个“反日认定”也算炎起来了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7512#       发表于 2021-10-9 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047728&amp;ptid=1972669" target="_blank">winda 发表于 2021-10-9 11:22</a>
+地震时那个“反日认定”也算炎起来了么</blockquote>
+小炎小炎，好歹三四百踩
+
+顺便ras真的越来越菜了，cr现役除了selly都没打出统治力
+
+
