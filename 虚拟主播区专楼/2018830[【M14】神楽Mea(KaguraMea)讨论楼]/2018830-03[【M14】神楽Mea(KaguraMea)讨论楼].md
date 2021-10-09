@@ -6692,3 +6692,41 @@ image.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是口水流出来了
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 3596#       发表于 2021-10-9 18:49
+
+
+这拍的是个jb，在群里第一眼看到还以为是什么猎奇图片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 3597#       发表于 2021-10-9 18:50
+
+
+今天看上去真开心
+
+
+*****
+
+####  我单推副会长  
+##### 3598#       发表于 2021-10-9 18:54
+
+
+上次听到这么劣质的歌回还是在上次。
+
+
+*****
+
+####  T_Hb  
+##### 3599#       发表于 2021-10-9 18:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还唱恋爱是混沌的奴隶，今天这么欢乐
+
+

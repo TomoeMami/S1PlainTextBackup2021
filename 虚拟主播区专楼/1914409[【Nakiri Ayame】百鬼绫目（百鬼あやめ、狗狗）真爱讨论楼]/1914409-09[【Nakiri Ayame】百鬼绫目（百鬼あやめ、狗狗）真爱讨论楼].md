@@ -15320,3 +15320,23 @@ DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大约8:20发
 
 
+
+
+*****
+
+####  因为你不会  
+##### 13299#       发表于 2021-10-9 18:49
+
+
+发誓是没必要的，这种东西谁也不知道结果，万一等等我突然没法呼吸了，这发的誓也没了。
+
+这都是不能控制的那种，万一<strong>地震</strong>了那我不可能不跑吧。
+
+万一等等海啸<strong>地震</strong>来了，那这个发的誓不就完了吗？
+
+昨天休息我挺后悔的，真的。虽然昨天是休息没来，但是我很后悔很苦恼。
+
+
+——山泥若
+
+

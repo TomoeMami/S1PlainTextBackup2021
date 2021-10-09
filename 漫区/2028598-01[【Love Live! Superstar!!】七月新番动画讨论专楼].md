@@ -17414,3 +17414,60 @@ live的话国内用eplus海外版也行，支持支付宝付款，不过价格�
 花花 公子
 
 
+
+
+*****
+
+####  qratosone  
+##### 1370#       发表于 2021-10-9 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53052411&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-10-9 16:58</a>
+S1官博也在带这个节奏，说句死个妈不为过了，让你喜欢的东西远离政治我以为是基本素养来着，营销号 ...</blockquote>
+官号运营是不是根本不刷论坛啊
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1371#       发表于 2021-10-9 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053943&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-9 18:44</a>
+
+官号运营是不是根本不刷论坛啊
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 1372#       发表于 2021-10-9 18:51
+
+
+官博不是每天高强度蹭热度吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天天发些很久以前的老图啥的
+
+
+*****
+
+####  kbtit  
+##### 1373#       发表于 2021-10-9 18:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">反正只要是这种类似的发型再戴副眼镜，总有人刷蔡
+
+
+*****
+
+####  saglork  
+##### 1374#       发表于 2021-10-9 18:57
+
+
+英文梗小鬼已经让很多短发眼镜黄本都没法看了，能不能不要在扩大污染了，真的傻逼透了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -18717,3 +18717,28 @@ TOE也是神作，不过还是打完TODR感觉对上电波了再去回味TOE吧�
 一次联动多一个卖100块的dlc，赚麻了
 
 
+
+
+*****
+
+####  alucardcz  
+##### 5880#       发表于 2021-10-9 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053582&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-10-9 18:14</a>
+
+似乎接下来ARISE还会有几次外部作品联动项目</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">有空搞这种东西还不如出个后日谈或者好好制作下个传说  哎
+
+
+
+
+*****
+
+####  laoz  
+##### 5881#       发表于 2021-10-9 18:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吔屎啦富泽，还来
+
+
