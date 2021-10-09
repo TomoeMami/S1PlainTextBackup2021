@@ -390,3 +390,66 @@ cpt才是cr杯最大赢家啊，之前也拿过冠军吧</blockquote>
 能介绍一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  HinataY  
+##### 7529#       发表于 2021-10-9 21:08
+
+
+🐒播了，是不是懒得化妆就不露脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 7530#       发表于 2021-10-9 21:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后跑出去打甲装大了，奈罗花她自己就是本届selly队的战犯啊
+
+
+
+
+*****
+
+####  poipanchao  
+##### 7531#       发表于 2021-10-9 21:16
+
+
+cpt真实带妹天王，2届冠军带了4个妹
+
+剩下5届加起来才3个女人，其中还有花芽姐占了2次
+
+
+*****
+
+####  FCCHua  
+##### 7532#       发表于 2021-10-9 21:17
+
+
+花芽姐这次没参加真可惜，本来cr杯全勤的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格林卡罗尔  
+##### 7533#       发表于 2021-10-9 21:21
+
+
+也是，奈罗花这最后一局躺得飞快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第二个圈就躺了两三次
+
+
+*****
+
+####  十四洲  
+##### 7534#       发表于 2021-10-9 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53055583&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-10-9 21:03</a>
+
+能介绍一下吗之前眼熟的几个职业哥里面好像没他</blockquote>
+我也不熟，之前好像带bora拿过一次冠军，在cr内算是团欺的定位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
