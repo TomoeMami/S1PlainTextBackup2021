@@ -17376,3 +17376,28 @@ live的话国内用eplus海外版也行，支持支付宝付款，不过价格�
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">剪的很好，不要再剪了.jpg
 
 
+
+
+*****
+
+####  王留美  
+##### 1367#       发表于 2021-10-9 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53011551&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-6 12:36</a>
+逛拉板看到个可香还是可堇会赢的串
+
+下面有人说应该是可堇吧，杉菜比起理想型的花泽类最终不也选了可 ...</blockquote>
+艹这么古老的梗
+拉拉人都是大叔吗？
+
+
+*****
+
+####  离心  
+##### 1368#       发表于 2021-10-9 17:35
+
+
+到时候真有一天超级星被禁了小鬼和营销号功不可没
+
+

@@ -17511,3 +17511,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 我就奇怪不能有白幼肥吗
 
 
+
+
+*****
+
+####  rooarr  
+##### 83958#       发表于 2021-10-9 17:35
+
+
+今天居然没预告，看来下周开不了活动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
