@@ -464,3 +464,30 @@ cpt真实带妹天王，2届冠军带了4个妹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">selly也是难受，上上上届带bora，towa被看好当冠军候补翻车了，这届鲨疯了也被当冠军候补又翻车了
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7536#       发表于 2021-10-9 21:49
+
+
+上届towa第一局选错奶妈搞队友心态，selly都想骂娘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 7537#       发表于 2021-10-9 22:03
+
+
+cpt实力可能是新老cr里垫底的，但是他够聪明，会指挥
+
+靠“push”“ゆくり”等简单的日语完成指挥就是他发明的，随着第四届夺冠传播开来
+
+cpt两次夺冠的阵容可以说是cr选手的理想形，大腿1号位，给力的副手打手，靠谱的盾奴隶
+
+
+syl，selly挺倒霉的，第一次towa整蛊，第二次nrk关键时刻拉胯，时也命也
+
+

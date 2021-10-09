@@ -13245,3 +13245,56 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  KOPKOM  
+##### 900#         楼主| 发表于 2021-10-9 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53055802&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-9 21:23</a>
+偏个题，看ate动画，第二集末尾救下篁唯依的武御雷是谁开的？层主的第一感觉是关系户真好啊，是为了 ...</blockquote>
+斑鸠吧，好像
+
+
+
+
+*****
+
+####  KOPKOM  
+##### 901#         楼主| 发表于 2021-10-9 21:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53055802&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-9 21:23</a>
+
+偏个题，看ate动画，第二集末尾救下篁唯依的武御雷是谁开的？层主的第一感觉是关系户真好啊，是为了 ...</blockquote>
+
+查了下是斑鸠和崇宰恭子，但具体是谁开的枪吃不太准
+
+
+AA857D46-64E7-45CA-A193-936CB09B82DF.png
+(558.11 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-9 21:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/215853g94zzosk0ook0tdk.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 902#       发表于 2021-10-9 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53055802&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-9 21:23</a>
+偏个题，看ate动画，第二集末尾救下篁唯依的武御雷是谁开的？层主的第一感觉是关系户真好啊，是为了 ...</blockquote>
+崇宰恭子。斯卫军高级贵族，按辈分来说是唯依的小姨？不过从小关系特别好就像姐妹一样。京都时断后的斯卫军接到求救信号，她擅自出击救了不少人（包括主任）。当然，能把当时还是保密状态的武御雷开出来，是得到了斑鸠的许可的。很可惜2000年战死了。
+<img src="https://p.sda1.dev/2/cc0996e1739d7fcab661d1dfe86274a0/1d0afa2d173af5c8da435b50396cea25.jpg" referrerpolicy="no-referrer">
+
+
