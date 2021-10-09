@@ -12457,3 +12457,77 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
+
+
+*****
+
+####  柴汪汪  
+##### 854#       发表于 2021-10-9 10:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043249&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-8 23:37</a>
+
+两个战术机中队还基本都是新手的感觉，滞空那么久……而且出来不是跳跃就很出戏……感觉在高达片场（当然 ...</blockquote>
+因为的确是新手啊，三个补充兵只有驹木一个人有战斗经验，更不用说已经把有经验的队员抽调给本土后的留守队员了。
+
+
+其实第一话里基本讲了这个部队的相关：
+
+佐渡司令部所属第三战术预备役部队，下属A中队和B中队，编制上应该是一个战术机大队欠一个中队。图中一共有13人，应该是每个中队下属两个小队（还有一个小队大概在执勤），参考一线部队都无法满编的情况，预备队缺编也是很正常了（不如说只缺编50%不到都算好了）。
+
+这个也很能解释为啥对付不来要塞级——在B中队装弹的时候第一批5头要塞级刚出现，A中队用于拦截的120炮弹不够无法及时清剿，而在B中队撑住战线等A中队装完弹药回来后，海面上出现了第二批12头——这数量打咩打，投了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+动画截图请无视左上角）
+
+<img src="https://img.saraba1st.com/forum/202110/09/100326mon5pup9km22om5x.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009094733.png</strong> (129.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/100330rxkfuuosw8k0tjjv.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009094740.png</strong> (132.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/100334hke6857a68bdz6a6.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009094722.png</strong> (101.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:03 上传
+
+
+另外附上设定集里关于编制的解释：
+
+<img src="https://img.saraba1st.com/forum/202110/09/100851xtlqd5kgq8jdtl8l.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009100823.png</strong> (75.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/100851eh1x6hyy2yhyz3yi.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009100830.png</strong> (77.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:08 上传
+
+
