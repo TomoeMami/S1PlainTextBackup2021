@@ -12557,3 +12557,102 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 可能就是做到125，把驹木拉出来死
 
 
+
+
+*****
+
+####  柴汪汪  
+##### 857#       发表于 2021-10-9 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043080&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-8 23:21</a>
+
+坦克和战舰射击镜头让我想起来《碧奇魂》的OP名场景，我倾向于这种坦克当炮台是日系浪漫，不管合理性。
+
+ ...</blockquote>
+1.其实一直想说这里的城墙其实应该是巨型预制构件，就你可以理解为一块一块的巨型水泥墩子，造好后用半潜船运到海边再推上海滩，这样比在海滩慢慢建筑快得多。
+
+因为是预制件，所以地基不可能无限大，这种隔离墙主要就是为了防突击级，你要防要塞级，更大的预制件也意味着工期更长资源更大。就像坦克可以研究如何硬抗脱穿，很少考虑硬抗小牛——后者代价太高了，希望都是寄托在战术机身上。
+
+
+2.仔细看其实是留出来的，否则A中队清理突击级不会那么快，闪过的镜头也可以看出的确留下了不少海滩用于防御。
+
+问题应该是出在潮汐上，查了下表（抱歉没有95年的观测记录所以用了今年的），可以看出佐渡的潮差还是不低的，20cm配合沙滩地质，这个流出的宽度本身就比较难把控，看战斗应该主要发生在中午，此时潮位应该是比较高的，比较适合登陆。
+
+<img src="https://img.saraba1st.com/forum/202110/09/104541gy5t55ez5ez5wk7n.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009103940.png</strong> (55.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/104547nhoya60vkhbto2ak.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009103554.png</strong> (81.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:45 上传
+
+
+3.这个片中也讲过了，因为大陆防线被突破，水下听音探测系统受损，没有办法提前预警。你可以说人类不行，但是这个应该不是动画设定的锅
+
+<img src="https://img.saraba1st.com/forum/202110/09/104645u0xcn4uf85ttutxn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009104508.png</strong> (117.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:46 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/104657o2ffth1akk2r2acx.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009104512.png</strong> (84.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:46 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/104657p7usvezru8d670u6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211009104518.jpg</strong> (69.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 10:46 上传
+
+
+*****
+
+####  hlazd  
+##### 858#       发表于 2021-10-9 10:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53046554&amp;ptid=1860817" target="_blank">柴汪汪 发表于 2021-10-9 10:09</a>
+因为的确是新手啊，三个补充兵只有驹木一个人有战斗经验，更不用说已经把有经验的队员抽调给本土后的留守 ...</blockquote>
+虽说这时候肯定是抽掉一切能抽掉的力量去支援本土，但总不能新兵带队，两个中队长实力有的<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">不过从动画里显示的接敌后减员的速度来看，除了两个中队长和驹木，这些卫士里可能真就没几个还算有经验的人了
+
+
+*****
+
+####  柴汪汪  
+##### 859#       发表于 2021-10-9 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047196&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-9 10:49</a>
+
+虽说这时候肯定是抽掉一切能抽掉的力量去支援本土，但总不能新兵带队，两个中队长实力有的不过从 ...</blockquote>
+毕竟剧情杀了，佐渡就是39年的但泽，只要Beta想，推平就是时间问题
+
+（没有黑波兰，没有任何这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
