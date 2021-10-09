@@ -12813,3 +12813,32 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 万代应该不出模型吧，都是寿屋在出
 
 
+
+
+*****
+
+####  柴汪汪  
+##### 872#       发表于 2021-10-9 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53049203&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-9 13:09</a>
+
+这可无法认同给，甲二十一打的还是非常惨烈的啊。（好吧，其实那场本质上是为了测试凄乃皇来着）
+
+其实我 ...</blockquote>
+额，赞助里有万代爸爸么）
+
+700奶黄包也不错，配个地台美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甲21里人类是攻不是守，自然惨多了，这个类比不恰当。
+
+
+*****
+
+####  qderaaa  
+##### 873#       发表于 2021-10-9 13:40
+
+
+好多情节神似电影《硫%磺岛家书》啊，有经验的部队和装备都被调走，新兵部队放在岛上死守等死，最后只有零星几个活下来。可以说招核遗风样板戏了
+
+
