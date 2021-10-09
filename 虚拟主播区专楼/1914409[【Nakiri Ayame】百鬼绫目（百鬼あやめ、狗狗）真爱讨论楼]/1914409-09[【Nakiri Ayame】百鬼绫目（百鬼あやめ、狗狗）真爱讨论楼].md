@@ -15296,3 +15296,16 @@ DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image
 一周了绫总的原创曲MV呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 13297#       发表于 2021-10-9 16:56
+
+
+绫总说好日期要发的歌都能鸽几个星期
+
+说要大家耐心等的MV不用说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
