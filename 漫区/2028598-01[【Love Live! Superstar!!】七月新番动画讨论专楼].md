@@ -17355,3 +17355,24 @@ live的话国内用eplus海外版也行，支持支付宝付款，不过价格�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">S1官博也在带这个节奏，说句死个妈不为过了，让你喜欢的东西远离政治我以为是基本素养来着，营销号不懂这道理也没办法，你婆罗门论坛的官方微博运营也要凑这热度啊？
 
 
+
+
+*****
+
+####  kata魂  
+##### 1366#       发表于 2021-10-9 17:21
+
+
+<img src="https://img.saraba1st.com/forum/202110/09/172112hv90a09188pz009a.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (85.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-9 17:21 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">剪的很好，不要再剪了.jpg
+
+

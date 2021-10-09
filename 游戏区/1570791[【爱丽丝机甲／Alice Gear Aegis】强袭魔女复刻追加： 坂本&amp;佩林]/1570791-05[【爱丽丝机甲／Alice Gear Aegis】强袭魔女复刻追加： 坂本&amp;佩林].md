@@ -1421,3 +1421,20 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 背版之王……
 
 
+
+
+*****
+
+####  蕾丝  
+##### 6102#       发表于 2021-10-9 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53052508&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-10-9 17:04</a>
+
+吸人直接近战一刀就能打断，连续撞人其实慢移动然后看准后连续两次侧滑就能闪，高速机一直耗气侧飞干脆就 ...</blockquote>
+解法其实知道，就是到时候会反应不过来，留sp是个好主意，我总喜欢在它第一次被break的时候把sp打出去，不如留一下，起码能解场
+
+
+等手恢复一下再打好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

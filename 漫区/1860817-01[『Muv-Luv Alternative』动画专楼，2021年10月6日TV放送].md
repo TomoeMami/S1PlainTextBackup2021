@@ -13012,3 +13012,43 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  hlazd  
+##### 886#       发表于 2021-10-9 17:06
+
+
+ 本帖最后由 hlazd 于 2021-10-9 17:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53050602&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-9 15:04</a>
+怎么看出篁唯依座驾的，第一次看只能模糊的看到要塞级，推特图片也糊，标了箭头也看不出
+
+— ...</blockquote>
+大河広行（山田隆弥）@hiroyuki_taiga
+あの、「京都が陥落～」のナレーションのカットの原画で要塞級の奥の京都駅らしきビルの屋上に不時着した唯依の瑞鶴も描いたのですが暗いのと煙で全く見えてませんでした。
+#マブラヴアニメ
+
+<img src="https://p.sda1.dev/2/60615ffcfd5a4ce89f62ace8ef6eb98e/777cb244b0acf629912d167f2b2fb81f.jpg" referrerpolicy="no-referrer">
+（这张比较清晰）
+
+<img src="https://p.sda1.dev/2/ed6827cbd3b86dd3f03b22275b407124/IMG_20211009_180356.jpg" referrerpolicy="no-referrer">
+（TE里主任正好坠机在楼顶）
+
+
+*****
+
+####  亚尔古水手  
+##### 887#       发表于 2021-10-9 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53042786&amp;ptid=1860817" target="_blank">smdzh2 发表于 2021-10-8 22:55</a>
+
+既然楼里有军宅，我一介军盲想问一下：究竟战车停在城墙上当固定炮台好使，还是留在城墙后配合轻步兵清除突 ...</blockquote>
+看到一整个大马路宽的要击级了嘛，一钳子下去你就飞炮塔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能不巷战就不巷战，兵家大忌。
+
+宁可和HQ要求拿坦克换一个重迫击炮营都好
+
+
