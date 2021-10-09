@@ -17309,3 +17309,27 @@ live的话国内用eplus海外版也行，支持支付宝付款，不过价格�
 微博那几个热搜挂着呢，还要这样搞。真无语
 
 
+
+
+*****
+
+####  王留美  
+##### 1362#       发表于 2021-10-9 15:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53006219&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-5 21:50</a>
+日本这种野鸡排名太多，看着图一乐就行，别认真</blockquote>
+什么野鸡排名，这可是是**的排名啊（
+
+
+*****
+
+####  chenflyyy  
+##### 1363#       发表于 2021-10-9 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53051228&amp;ptid=2028598" target="_blank">王留美 发表于 2021-10-9 15:48</a>
+什么野鸡排名，这可是是**的排名啊（</blockquote>
+和谐了什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
