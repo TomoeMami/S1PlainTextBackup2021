@@ -12772,3 +12772,44 @@ beta的小喽啰理应是交给常规部队的，剧情里岛上的一只战术�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  yixiaqqq  
+##### 869#       发表于 2021-10-9 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53049065&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-9 12:58</a>
+
+按这样说，守这小岛作甚？
+
+支援没有，后备力量没有，还有这么多人在岛上避难。要不直接弃守，要不就加强力 ...</blockquote>
+场外因素过多吧，本来佐渡失守能上年表都多亏了上面建了个巢，现在动画要求第一集就得打一仗，那只能委屈守岛司令变猪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nervpp  
+##### 870#       发表于 2021-10-9 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047500&amp;ptid=1860817" target="_blank">柴汪汪 发表于 2021-10-9 11:08</a>
+
+佐渡岛本身就是巴掌大地方，堆不出啥气势的，不如说能让第二舰队出面已经很给面子了，放低期待，没准后面 ...</blockquote>
+这可无法认同给，甲二十一打的还是非常惨烈的啊。（好吧，其实那场本质上是为了测试凄乃皇来着）
+
+其实我对动画的期待就是……能顺带出个HG甚至是MG级别的平价凄乃皇，比例1：350或者700。就不错……千万别整个手游出来啊（看了看隔壁打的正欢的悬疑系超级赛亚人）
+
+
+
+
+*****
+
+####  Yeaha123  
+##### 871#       发表于 2021-10-9 13:15
+
+
+万代应该不出模型吧，都是寿屋在出
+
+
