@@ -4033,3 +4033,16 @@ MD，居然还有脑子不正常的聊月世界战力，是嫌fate吧屎不够�
 steam版，用uu加速器进联网模式，显示已登出steam不让玩。怎么整
 
 
+
+
+*****
+
+####  zatsuza  
+##### 328#       发表于 2021-10-10 02:43
+
+
+我给9.5分！0.5分扣在网络优化上
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

@@ -13392,3 +13392,58 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 恭子也是五摄家的，游戏里就是斑鸠撺掇她去救主任，搞宣传
 
 
+
+
+*****
+
+####  pzgr43  
+##### 910#       发表于 2021-10-10 02:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53056469&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-9 22:28</a>
+
+同一时间线上的不同时期的故事。
+
+
+----发送自 Sony J9110,Android 11</blockquote>
+哪个先哪个后？ Total Eclipse TV的女主让我印象深刻，配音演绎得非常好
+
+
+*****
+
+####  hlazd  
+##### 911#       发表于 2021-10-10 02:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058605&amp;ptid=1860817" target="_blank">pzgr43 发表于 2021-10-10 02:15</a>
+
+哪个先哪个后？ Total Eclipse TV的女主让我印象深刻，配音演绎得非常好</blockquote>
+差不多相差半年时间吧。TE故事是2001年上半年开始，本篇故事在2001年10月开始。上面几楼也说了最终决战时间一样都是2002年1月。
+
+
+*****
+
+####  最后的法芙娜  
+##### 912#       发表于 2021-10-10 04:35
+
+
+<blockquote>再买自检星剁手 发表于 2021-10-9 21:23
+偏个题，看ate动画，第二集末尾救下篁唯依的武御雷是谁开的？层主的第一感觉是关系户真好啊，是为了 ...</blockquote>
+【【中文】Muv-Luv Alternative Total Eclipse——京都之战 part.12-哔哩哔哩】https://b23.tv/gX2lQ8
+
+这部分讲了主任获救前后原因和结果，可以确定是她小姨来的。
+
+
+*****
+
+####  再买自检星剁手  
+##### 913#       发表于 2021-10-10 05:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51120864&amp;ptid=1860817" target="_blank">kyonkoism 发表于 2021-5-1 20:05</a>
+其他cv不用想，肯定也是全换的，留估计也是留几个声线变化不大的配角，比如若本啥的 ...</blockquote>
+奶得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

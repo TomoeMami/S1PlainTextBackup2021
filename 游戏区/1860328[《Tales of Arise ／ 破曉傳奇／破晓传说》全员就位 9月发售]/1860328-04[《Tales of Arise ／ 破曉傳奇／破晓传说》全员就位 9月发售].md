@@ -18781,3 +18781,65 @@ TOE也是神作，不过还是打完TODR感觉对上电波了再去回味TOE吧�
 剧情太“曲折”了，暗星灵没啥反派气质，打爆了也没感觉，还不如贯彻解放战争，领主都是人渣，打完领主，最后坐星舟上去拆殖民船
 
 
+
+
+*****
+
+####  华安9527  
+##### 5885#       发表于 2021-10-10 02:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">小剧场触发了297个，还差三个解锁成就，主线已经推完，支线就剩下两个，是不是没救了解锁不了剩下的了
+
+
+*****
+
+####  TheOccuria  
+##### 5886#       发表于 2021-10-10 02:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53055974&amp;ptid=1860328" target="_blank">Yeaha123 发表于 2021-10-9 21:42</a>
+
+我更喜欢单纯讲推翻侵略者的故事，现在搞出个高位boss背锅，感觉有点浪费前面对雷纳残暴阴险的描写 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要那么写起码还得多水一倍的流程出来，而且日本人有几个能写好这种剧本的，就算有能写的为啥给游戏厂打工
+
+
+*****
+
+####  TheOccuria  
+##### 5887#       发表于 2021-10-10 02:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53020677&amp;ptid=1860328" target="_blank">EigenVesper 发表于 2021-10-7 10:38</a>
+
+借楼问一句，想玩一作2d传说，从toe开始还是tod导剪开始好啊</blockquote>
+我是推荐toe-todr这么玩，其中toe只玩一周目，todr可以深入研究下系统
+
+
+其实我觉得toe的系统已经挺好玩的了，而且内容多，很适合入坑给新人一个好印象
+
+然后再感受下to系统的进化
+
+
+*****
+
+####  喵喵叫的猫  
+##### 5888#       发表于 2021-10-10 02:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058564&amp;ptid=1860328" target="_blank">华安9527 发表于 2021-10-10 02:09</a>
+小剧场触发了297个，还差三个解锁成就，主线已经推完，支线就剩下两个，是不是没救了解锁不了剩下的 ...</blockquote>
+支线之后一般都会带小剧场的 还有一堆料理/钓鱼/好感度的小剧场肯定是够的
+
+
+*****
+
+####  火红之眼  
+##### 5889#       发表于 2021-10-10 02:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058564&amp;ptid=1860328" target="_blank">华安9527 发表于 2021-10-10 02:09</a>
+小剧场触发了297个，还差三个解锁成就，主线已经推完，支线就剩下两个，是不是没救了解锁不了剩下的 ...</blockquote>
+斗技场最上级规定时间内打完都有小剧场，心里没数可以考虑回收这些
+
+

@@ -12441,3 +12441,14 @@ UMISEA原来是春天就开始准备了啊，为了准备这个还学了一阵�
 明天MC居然正好和GuraShion同一天
 
 
+
+
+*****
+
+####  星の守  
+##### 6996#       发表于 2021-10-10 01:46
+
+
+今天鸽了，居然被人说中了，虽然是巧合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
