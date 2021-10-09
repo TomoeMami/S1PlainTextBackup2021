@@ -18742,3 +18742,16 @@ TOE也是神作，不过还是打完TODR感觉对上电波了再去回味TOE吧�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吔屎啦富泽，还来
 
 
+
+
+*****
+
+####  LMBS  
+##### 5882#       发表于 2021-10-9 19:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053945&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-10-9 18:44</a>
+有空搞这种东西还不如出个后日谈或者好好制作下个传说  哎</blockquote>
+肯定是早就做完等解锁
+
+
