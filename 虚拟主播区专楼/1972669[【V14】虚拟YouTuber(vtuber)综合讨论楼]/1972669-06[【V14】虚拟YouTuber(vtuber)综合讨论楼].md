@@ -491,3 +491,29 @@ cpt两次夺冠的阵容可以说是cr选手的理想形，大腿1号位，给�
 syl，selly挺倒霉的，第一次towa整蛊，第二次nrk关键时刻拉胯，时也命也
 
 
+
+
+*****
+
+####  winda  
+##### 7538#       发表于 2021-10-9 22:16
+
+
+ 本帖最后由 winda 于 2021-10-9 22:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53056192&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-9 22:03</a>
+
+cpt实力可能是新老cr里垫底的，但是他够聪明，会指挥
+
+靠“push”“ゆくり”等简单的日语完成指挥就是他发明 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这届mondo表现实在不行，zeder则是交流能力差，他比这两位还是强些
+
+
+*****
+
+####  天天座理世  
+##### 7539#       发表于 2021-10-9 22:22
+
+
+胡桃执行力强啊，无情的拿狙架枪机器，其他女V不是抠脚就是有自己想法然后白给。
+
+
