@@ -18954,3 +18954,14 @@ LMBS基础系统下这俩基本设计还是没什么问题的
 终于通关了，op2之后的剧情真是突出一个裹脚布，不过我这些都能原谅万代，但是为什么最后结局就给几张图就打发了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  joshua1990  
+##### 5897#       发表于 2021-10-10 21:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后半赶火车的展开实在是无力吐槽 op2内容多美好 实际体验就有多空虚 砍的内容实在是太多了 以至于飞碟社做的最后过场动画跟实际游戏内容割裂严重 所以才有了大家都吐槽的唐突原谅剧情
+
+

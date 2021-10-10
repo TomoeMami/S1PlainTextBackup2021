@@ -670,3 +670,23 @@ Stream Hatchet発表 「2021年Q3 VTuberトップ5」1位に葛葉、「女性�
 丽姐新衣服同接上3w了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7552#       发表于 2021-10-10 21:28
+
+
+能看到姊原本体吗
+
+
+*****
+
+####  icecry  
+##### 7553#       发表于 2021-10-10 21:33
+
+
+这杂谈同接都快跟露时候差不多了
+
+
