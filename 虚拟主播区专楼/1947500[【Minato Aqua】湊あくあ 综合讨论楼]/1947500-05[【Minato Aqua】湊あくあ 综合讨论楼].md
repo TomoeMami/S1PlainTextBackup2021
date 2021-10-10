@@ -12474,3 +12474,23 @@ UMISEA原来是春天就开始准备了啊，为了准备这个还学了一阵�
 这么晚没动静，估计是鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  星の守  
+##### 6999#       发表于 2021-10-10 21:46
+
+
+还好，有了，十点半<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 7000#       发表于 2021-10-10 21:51
+
+
+窗还没开，估计封面都没做好<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
