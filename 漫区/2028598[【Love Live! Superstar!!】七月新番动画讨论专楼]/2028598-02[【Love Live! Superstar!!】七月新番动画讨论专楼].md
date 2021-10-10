@@ -2091,3 +2091,108 @@ https://twitter.com/sankuro396/status/1446847038834970625
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这老师上一张可可都1w转了，crazy
 
 
+
+
+*****
+
+####  shudushimo  
+##### 1679#       发表于 2021-10-10 23:30
+
+
+这应该不算R18吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202110/10/233046ba1jrwqqqrwq68fn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>可可.jpg</strong> (114.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 23:30 上传
+
+
+*****
+
+####  player3960  
+##### 1680#       发表于 2021-10-10 23:31
+
+
+熟肉又看了一遍，观感还是不错的，希望香音这次后能真正支楞起来吧，当然偶尔小哭包一下还是OK的。
+可堇互动也好多了，起码可可又叫了堇的名字，至少没有记忆回溯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+唉～最后还是要哭我可可没有个人回<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+*****
+
+####  Arccueid  
+##### 1681#       发表于 2021-10-10 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067589&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-10 23:20</a>
+
+没有梯子，推上这是啥，老哥截个图呀</blockquote>
+以下内容需要积分高于 70 才可浏览
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/233312i5vpvth995ve2lbv.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211010233114.png</strong> (109.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 23:33 上传
+
+
+*****
+
+####  黑雪姫  
+##### 1682#       发表于 2021-10-10 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067603&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-10 23:21</a>
+
+这老师上一张可可都1w转了，crazy</blockquote>
+老熟人三九呂老师终于画星团了..
+
+
+*****
+
+####  棒读  
+##### 1683#       发表于 2021-10-10 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53066153&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-10-10 21:20</a>
+
+只能说，tiny stars不仅把花田十辉带到了不属于自己的高度，也把可香党带到了不属于他们的地位。
+
+
+—— 来 ...</blockquote>
+花田十辉套路深啊，把可香党骗进来鲨了，良心**的坏了
+
+
+*****
+
+####  秋月艾莉  
+##### 1684#       发表于 2021-10-10 23:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067758&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-10 23:36</a>
+
+老熟人三九呂老师终于画星团了..</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">言行合一的好老师，第一张就是唐可可性的也，最近越来越性的也
+
+
+*****
+
+####  lj205  
+##### 1685#       发表于 2021-10-10 23:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">好棒谢谢茄子
+
+

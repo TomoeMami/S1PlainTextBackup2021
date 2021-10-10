@@ -1150,3 +1150,16 @@ steam都无法登陆</blockquote>
 鼓掌看戏。
 
 
+
+
+*****
+
+####  Ik4ruga  
+##### 79#       发表于 2021-10-10 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067443&amp;ptid=2031158" target="_blank">zashou 发表于 2021-10-10 23:08</a>
+ 坏种又来丢脸了。  中国游戏成绩的进步，是广大玩家当韭菜贡献出全球最大市场，资本收割后高薪培养 ...</blockquote>
+我怎么感觉整个中国游戏行业都在抵制先登录国外平台？
+
+
