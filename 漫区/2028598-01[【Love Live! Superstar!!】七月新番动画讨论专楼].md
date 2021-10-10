@@ -17986,3 +17986,35 @@ PAYPAY好可爱啊好可爱啊好可爱啊
 但是鲤鱼跟马娘站一起就没那么突兀了，所以平时的极巨化鲤鱼王还是小百合全责<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1416#       发表于 2021-10-10 12:47
+
+
+这周各种生放什么的 确实比较满
+
+
+*****
+
+####  lyflyflxf  
+##### 1417#       发表于 2021-10-10 12:54
+
+
+Tiny Stars的高级弹幕录屏：
+
+
+*****
+
+####  shine888kire  
+##### 1418#       发表于 2021-10-10 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53060674&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-10-10 12:38</a>
+
+但是鲤鱼跟马娘站一起就没那么突兀了，所以平时的极巨化鲤鱼王还是小百合全责 ...</blockquote>
+这不是因为马娘这边没上内恰和北黑嘛，上了一样是超极巨鲤鱼王<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
