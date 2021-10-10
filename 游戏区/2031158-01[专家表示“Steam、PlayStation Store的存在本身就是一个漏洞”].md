@@ -1098,3 +1098,55 @@ steam都无法登陆</blockquote>
 哦转发可以扣分不行是吧？是不是要论坛上集体给这垃圾鼓掌叫好啊？怕不是没有老爷的命先得了老爷的病
 
 
+
+
+*****
+
+####  zashou  
+##### 76#       发表于 2021-10-10 23:08
+
+
+ 本帖最后由 zashou 于 2021-10-10 23:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53061047&amp;ptid=2031158" target="_blank">卿卿雅儿 发表于 2021-10-10 13:22</a>
+
+国内游戏环境是一天天变好还是一天天变坏，这是个好问题。
+
+
+十年前的国内环境，为什么没有国内企业能做出 ...</blockquote>
+坏种又来丢脸了。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+中国游戏成绩的进步，是广大玩家当韭菜贡献出全球最大市场，资本收割后高薪培养出来的制作人才努力的结果。
+
+而在如今正要收获成绩的时刻，被你们这些瘪三级别的公务员同行不负责，不专业的草台行为，拼尽全身之力拉了后腿。
+
+所以无论中国游戏业的成绩有什么进步，和你们这些不要脸的瘪三营造的环境垃圾都不矛盾啊。
+
+
+*****
+
+####  zashou  
+##### 77#       发表于 2021-10-10 23:14
+
+
+ 本帖最后由 zashou 于 2021-10-10 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53060209&amp;ptid=2031158" target="_blank">魔法酪饼 发表于 2021-10-10 11:45</a>
+
+多元化个屁，鼓吹分级这么多年不就是业界巨头想要审核权么？还有些傻逼天天跟着唱经，真当是什么好 ...</blockquote>
+你这loser不被wegame等资本看上，纯粹是因为你东西做的真的垃圾。不要去埋怨巨头了，国内巨头对投资等等条件的要求已经很低了，今年以前你demo过得去拿个小几千万都轻松的。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+业界巨头根本不想要审核权，要来干啥，版号多发几个，后面人家自己都可以搞定。
+
+
+别用你渺小的能力去衡量专业啊，外行。
+
+
+*****
+
+####  破罐子  
+##### 78#       发表于 2021-10-10 23:24
+
+
+鼓掌看戏。
+
+

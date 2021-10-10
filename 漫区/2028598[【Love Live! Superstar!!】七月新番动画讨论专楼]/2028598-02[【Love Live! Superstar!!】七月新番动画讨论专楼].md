@@ -2029,3 +2029,65 @@ Eテレ 17(日)夜7時
 现在想想我喜欢的千梨曜梨曜善花露水全死在幼驯染上了，可能真的跟幼驯染八字不合<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Arccueid  
+##### 1674#       发表于 2021-10-10 23:12
+
+
+[https://twitter.com/sankuro396/status/1446847038834970625](https://twitter.com/sankuro396/status/1446847038834970625)
+
+
+这样的可可香音真的能拒绝吗<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1675#       发表于 2021-10-10 23:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">真的有这么大吗
+
+
+*****
+
+####  chenflyyy  
+##### 1676#       发表于 2021-10-10 23:14
+
+
+喵萌的熟肉出了
+
+
+*****
+
+####  cat1230  
+##### 1677#       发表于 2021-10-10 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067485&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-10 23:12</a>
+
+https://twitter.com/sankuro396/status/1446847038834970625
+
+
+这样的可可香音真的能拒绝吗 ...</blockquote>
+没有梯子，推上这是啥，老哥截个图呀
+
+
+*****
+
+####  秋月艾莉  
+##### 1678#       发表于 2021-10-10 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067485&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-10 23:12</a>
+
+https://twitter.com/sankuro396/status/1446847038834970625
+
+
+这样的可可香音真的能拒绝吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这老师上一张可可都1w转了，crazy
+
+

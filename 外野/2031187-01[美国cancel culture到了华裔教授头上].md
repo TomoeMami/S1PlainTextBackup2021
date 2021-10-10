@@ -1139,3 +1139,25 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 补一个歌剧的介绍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  吉田美和  
+##### 102#       发表于 2021-10-10 23:15
+
+
+卧槽，楼上链接里的这歌剧主题有点狂野啊，作者屁股歪到天上去了
+
+
+*****
+
+####  christianlzl  
+##### 103#       发表于 2021-10-10 23:25
+
+
+以前哪避讳这么多，看看多明戈版本的
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
