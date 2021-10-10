@@ -13447,3 +13447,16 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 914#       发表于 2021-10-10 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058605&amp;ptid=1860817" target="_blank">pzgr43 发表于 2021-10-10 03:15</a>
+
+哪个先哪个后？ Total Eclipse TV的女主让我印象深刻，配音演绎得非常好</blockquote><blockquote>『マブラヴ オルタネイティヴ』本編が開始される2001年10月22日、物語はその約11か月前から始まる。アラスカの国連軍ユーコン基地で進められている先進戦術機技術開発計画（プロミネンス計画）実験部隊を舞台に、各国のテストパイロットやメカニックたちによる熱き戦いの物語が描かれる。 </blockquote>
+
+

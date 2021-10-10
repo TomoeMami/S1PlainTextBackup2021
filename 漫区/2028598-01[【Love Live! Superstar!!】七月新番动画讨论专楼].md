@@ -18029,3 +18029,14 @@ Tiny Stars的高级弹幕录屏：
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这次三团跨年live，估计就能看到前田和鲤鱼同台了
 
 
+
+
+*****
+
+####  kata魂  
+##### 1420#       发表于 2021-10-10 13:33
+
+
+唉，今晚又看不到了
+
+
