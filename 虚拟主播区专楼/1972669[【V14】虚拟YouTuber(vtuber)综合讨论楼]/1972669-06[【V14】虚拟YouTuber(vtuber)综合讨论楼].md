@@ -584,3 +584,14 @@ cpt实力可能是新老cr里垫底的，但是他够聪明，会指挥
 bora突击洗澡
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7546#       发表于 2021-10-10 12:42
+
+
+后知后觉星川的排名又能拿台pc，虽然一个队伍就一台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

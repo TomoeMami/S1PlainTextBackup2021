@@ -3825,3 +3825,50 @@ queen这我笑死
 挑战jack那是完全没有问题的
 
 
+
+
+*****
+
+####  C男人  
+##### 55779#       发表于 2021-10-10 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058338&amp;ptid=98922" target="_blank">青菜子 发表于 2021-10-10 01:28</a>
+
+蛋糕岛一家人围着哭那真是够丢脸的。</blockquote>
+不会啦，只有老爹伽治一个人在哭，
+
+
+剩下的兄弟们没有人类感情，只会笑不会哭。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+根本就是一帮宇宙骑士，
+
+
+“山治是不完整的宇宙骑士，保留了人类的心。”
+
+
+“哎呀，山治这周超级化了！”
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/011.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  C男人  
+##### 55780#       发表于 2021-10-10 12:24
+
+
+百兽海贼团的逗比恐龙们，普及了大量虚假的恐龙知识。
+
+
+三角龙可以像直升机那样飞，
+
+
+腕龙其实是玄武。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -17961,3 +17961,28 @@ PAYPAY好可爱啊好可爱啊好可爱啊
 PAYPAY好可爱啊好可爱啊好可爱啊
 
 
+
+
+*****
+
+####  kbtit  
+##### 1414#       发表于 2021-10-10 12:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马娘这个饭票真是香饽饽，
+
+
+*****
+
+####  cqc1021  
+##### 1415#       发表于 2021-10-10 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058947&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-10 04:17</a>
+
+@兔姬姬姬姬姬
+
+这么一堆小偶像，好像还是鲤鱼最高</blockquote>
+但是鲤鱼跟马娘站一起就没那么突兀了，所以平时的极巨化鲤鱼王还是小百合全责<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
