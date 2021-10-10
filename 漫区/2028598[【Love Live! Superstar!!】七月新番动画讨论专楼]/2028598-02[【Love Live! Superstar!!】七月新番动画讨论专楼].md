@@ -1946,3 +1946,86 @@ Eテレ 17(日)夜7時
 发错编辑
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1668#       发表于 2021-10-10 22:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这集不错是不错，但我还是要说一句日你女马的花田
+
+有没有可香其实无所谓，但我想看可可的个人回啊，她真就是超人可可了是吗，回国伏笔铺到脸上了都不写，烂俗追飞机也行啊
+
+可可是坐拥全剧最好的两个CP回+唯二两个双人未来如风不假，但没有solo版的未来如风还是有点不公平吧？剧情还可以留到下一季，ED下一季肯定要换的啊？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">未来如风这个也是怪，第六集没给香千二人版，这集也不给，反而上个全员版
+
+第六集的时候我还以为ED就是很平常地按入团顺序一个个叠加，可香二人版只是偶然，但后面出了个可堇二人版反过来看就不太对劲了。怎么了我香千不配是吗，你既然要推干嘛不推大力点？第九集直接上五人版，这集上香千duet不好吗？
+
+
+*****
+
+####  shudushimo  
+##### 1669#       发表于 2021-10-10 22:51
+
+
+可可居然没有个人回就离谱，幼驯染赢麻了
+
+<img src="https://img.saraba1st.com/forum/202110/10/225050z9rov4295hrqo94v.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (187.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 22:50 上传
+
+
+*****
+
+####  lj205  
+##### 1670#       发表于 2021-10-10 22:52
+
+
+现在比起12集我更期待1st的线上售票什么时候开
+
+
+*****
+
+####  UnrealApartheid  
+##### 1671#       发表于 2021-10-10 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064580&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-10-10 19:01:16</a>
+下集的走向无非是两种，一种平淡的，一种犯病的。
+
+
+平淡的：
+
+
+赢得东京大赛，进军全国！LoveLive大赛正式开 ...</blockquote>我觉得应该加上这一段情节：
+可可的姐姐在某处哼着歌曲安抚着可可，在可可睡觉之后带着饶有兴趣的表情看着Liella的相片……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 1672#       发表于 2021-10-10 22:58
+
+
+打铁那边也发了跟鲤鱼的贴贴，这是约好一起安慰可香党吗www
+
+
+*****
+
+####  kata魂  
+##### 1673#       发表于 2021-10-10 23:03
+
+
+现在想想我喜欢的千梨曜梨曜善花露水全死在幼驯染上了，可能真的跟幼驯染八字不合<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+

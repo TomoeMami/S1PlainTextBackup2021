@@ -701,3 +701,37 @@ Stream Hatchet発表 「2021年Q3 VTuberトップ5」1位に葛葉、「女性�
 vspo现在也太强了
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7555#       发表于 2021-10-10 22:50
+
+
+补个图
+
+<img src="https://img.saraba1st.com/forum/202110/10/224730fe7nv77zfkknxqan.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>新衣装お披露目配信ありがとうございました！.jpeg</strong> (311.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 22:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/224727rdd7mqqdi8l784mn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>新衣装お披露目配信ありがとうございました！-2.jpeg</strong> (112.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 22:47 上传
+
+
+顺便10月9号，转眼间久遠たま3D披露了
+[https://www.youtube.com/watch?v=JqxgTSbqdf0](https://www.youtube.com/watch?v=JqxgTSbqdf0)
+
+
