@@ -1331,3 +1331,23 @@ FB封大统领是公告的，而且还被起诉了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种砖家他妈的不是漏洞，是他妈了隔壁的黑洞。
 
 
+
+
+*****
+
+####  zashou  
+##### 93#       发表于 2021-10-11 06:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53069529&amp;ptid=2031158" target="_blank">Stellar_Frost 发表于 2021-10-11 04:10</a>
+
+有一说一，19-20年有些热钱现象有离谱化趋势
+
+但是这跟一边砸台子一边贪天之功还有人洗是两回事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">热钱如果是说投入的话，其实今年是最离谱的，主要还是疫情红利，腾讯今年投疯了，往年我们也没见到一个单机团队都被人抢着投这种现象对吧。
+
+说实话，这种高投入的军备竞赛对业内不全是好事，但却是最快拉高生产水平的方式了。
+
+这些傻逼们要吹所谓‘文化输出’，这其实是最有利他们吹的那种文化输出的。
+
+
