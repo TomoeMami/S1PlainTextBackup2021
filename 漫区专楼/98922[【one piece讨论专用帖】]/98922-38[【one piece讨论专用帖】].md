@@ -3812,3 +3812,16 @@ queen这我笑死
 罗布路奇  “妈的又要去抓那个女人了”
 
 
+
+
+*****
+
+####  莫老五  
+##### 55778#       发表于 2021-10-10 08:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058378&amp;ptid=98922" target="_blank">猎户座 发表于 2021-10-10 01:35</a>
+ 山治这恢复力快赶上僵尸男了，这还不无敌了…然而攻击不够，queen这血厚得快赶上凯多了….这尼玛当初就凌空 ...</blockquote>
+挑战jack那是完全没有问题的
+
+
