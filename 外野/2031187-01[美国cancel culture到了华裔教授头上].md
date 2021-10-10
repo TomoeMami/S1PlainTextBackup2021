@@ -940,3 +940,14 @@ Bright Sheng这名字绝了。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还不够进步！
 
 
+
+
+*****
+
+####  小李子大脸猫  
+##### 84#       发表于 2021-10-10 16:54
+
+
+突然想起了《钢铁苍穹》这片，对德意志继承者的美国真是莫大的讽刺
+
+

@@ -811,3 +811,45 @@ IPS那区区1000:1的对比度当然是不够的…
 这颜色感觉也太艳了
 
 
+
+
+*****
+
+####  ariettamix  
+##### 64#       发表于 2021-10-10 16:47
+
+
+内置储存储空间提升的意义有两
+部分下载版游戏已经20G了，和游戏存档只能放内部存储。
+我这四年实体版一百多，下载版没数，仅存档已经17G。比我买的更多的人估计没空间放存档了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  画大饼养蟑螂  
+##### 65#       发表于 2021-10-10 16:48
+
+
+香港这边找了个电玩店，2680hkd还送我个小游戏
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  双刀少女  
+##### 66#       发表于 2021-10-10 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063048&amp;ptid=2031125" target="_blank">ariettamix 发表于 2021-10-10 16:47</a>
+
+内置储存储空间提升的意义有两
+
+部分下载版游戏已经20G了，和游戏存档只能放内部存储。
+
+我这四年实体版一百 ...</blockquote>
+我记得内置存储读写速度比tf卡快
+
+
