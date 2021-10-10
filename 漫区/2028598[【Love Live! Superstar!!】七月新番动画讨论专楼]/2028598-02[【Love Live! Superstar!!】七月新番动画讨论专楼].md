@@ -2196,3 +2196,59 @@ https://twitter.com/sankuro396/status/1446847038834970625
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">好棒谢谢茄子
 
 
+
+
+*****
+
+####  kbtit  
+##### 1686#       发表于 2021-10-10 23:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">星团的涩图目前还不够多，再来点
+
+
+*****
+
+####  支仓爱理  
+##### 1687#       发表于 2021-10-10 23:47
+
+
+小学生：这姐姐都不带麦的，假唱？ <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1688#       发表于 2021-10-10 23:54
+
+
+还以为唱不出歌的问题已经翻篇了，没想到又拿出来演了一集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Boliva  
+##### 1689#       发表于 2021-10-10 23:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">完了，现在看到可可就觉得像菜菜子……
+
+
+*****
+
+####  qratosone  
+##### 1690#       发表于 2021-10-10 23:57
+
+
+可可有那么大吗
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1691#       发表于 2021-10-10 23:58
+
+
+独唱部分出来小香音想起来偶像大师千早独唱的时候也是出来小千早，不过看起来还是千早回好看多了。
+
+

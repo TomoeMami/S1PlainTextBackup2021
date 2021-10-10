@@ -17569,3 +17569,20 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先欧 再不羡慕
 
 
+
+
+*****
+
+####  白金口袋  
+##### 83962#       发表于 2021-10-10 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53060380&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-9 22:09</a>
+
+拖了几天总算是把这万圣总集篇给打完了.....如果不是还有点新剧情早就一路skip过去了
+
+
+不过怎么没有18年的 ...</blockquote>
+因为那次活动不是在龙娘老家的违章建筑里啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

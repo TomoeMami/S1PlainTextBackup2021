@@ -735,3 +735,65 @@ vspo现在也太强了
 [https://www.youtube.com/watch?v=JqxgTSbqdf0](https://www.youtube.com/watch?v=JqxgTSbqdf0)
 
 
+
+
+*****
+
+####  free  
+##### 7556#       发表于 2021-10-10 23:55
+
+
+[https://twitter.com/_BOOGEY_VOXX_/status/1447188024635236352](https://twitter.com/_BOOGEY_VOXX_/status/1447188024635236352)
+
+
+漩涡设计的鱼蛋糕秋のぶぎぼはマジすごい螺母和螺栓
+
+
+　　　10月31日
+
+火同　時　発　売火
+
+
+BOOGEY VOXX 3rd Album
+
+　　「#死亡的観測」
+
+
+　　#アソブカイ EP
+
+「#アソブカイ會員証」
+
+
+　　  新グッズ4+1種
+
+
+特典付きセット販売有り
+
+詳細はスレッドをチェック鬼两颗心
+
+
+鬼ご予約はこちらから
+[https://boogeyvoxx.booth.pm](https://boogeyvoxx.booth.pm)
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/235511tl90870b6nlc68nn.png" referrerpolicy="no-referrer">
+
+
+<strong>BGV.png</strong> (362.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 23:55 上传
+
+
+*****
+
+####  FCCHua  
+##### 7557#       发表于 2021-10-10 23:59
+
+
+ 本帖最后由 FCCHua 于 2021-10-11 00:03 编辑 
+
+日常被粉丝碰到oreapo私下双排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

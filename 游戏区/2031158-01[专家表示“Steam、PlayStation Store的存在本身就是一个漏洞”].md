@@ -1163,3 +1163,75 @@ steam都无法登陆</blockquote>
 我怎么感觉整个中国游戏行业都在抵制先登录国外平台？
 
 
+
+
+*****
+
+####  格雷殿下  
+##### 80#       发表于 2021-10-10 23:54
+
+
+办理许可证的费用约为5000美元?
+
+
+*****
+
+####  Errey  
+##### 81#       发表于 2021-10-10 23:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在禁止未成年玩游戏已经是破坏后十年的产业土壤了，游戏作为现代文娱的一部分，只要不打仗总有发展的机会，总之就是令人泄气
+
+
+*****
+
+####  KYO(T)  
+##### 82#       发表于 2021-10-10 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063395&amp;ptid=2031158" target="_blank">天邪鬼 发表于 2021-10-10 17:24</a>
+
+我觉得用狼来了举例子不太合适，因为在狼来了里面大人来了是能把狼给打跑的
+
+但在“steam国区即将被封”这件 ...</blockquote>
+杞人忧天更合适，看到黑云就觉得天要塌了
+
+然而如果天真的塌了，再多的忧虑也没什么卵用
+
+
+*****
+
+####  zashou  
+##### 83#       发表于 2021-10-11 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067865&amp;ptid=2031158" target="_blank">Ik4ruga 发表于 2021-10-10 23:46</a>
+
+我怎么感觉整个中国游戏行业都在抵制先登录国外平台？</blockquote>
+因为你是外行呀。
+
+
+*****
+
+####  魔法使い2019  
+##### 84#       发表于 2021-10-11 00:04
+
+
+人类的存在也是漏洞也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  边缘中心  
+##### 85#       发表于 2021-10-11 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063440&amp;ptid=2031158" target="_blank">飛鳥了 发表于 2021-10-10 17:29</a>
+当时国内论坛讨论结果就是这样 随便百度下就搜的到啊
+
+
+FB封锁漂亮国大统领账号也不用官宣啊</blockquote>
+论坛网友是V社高管吗？
+FB封大统领是公告的，而且还被起诉了
+
+
