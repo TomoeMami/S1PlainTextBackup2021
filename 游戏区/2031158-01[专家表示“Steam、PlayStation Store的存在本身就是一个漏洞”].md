@@ -1235,3 +1235,35 @@ FB封锁漂亮国大统领账号也不用官宣啊</blockquote>
 FB封大统领是公告的，而且还被起诉了
 
 
+
+
+*****
+
+####  Errey  
+##### 86#       发表于 2021-10-11 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067981&amp;ptid=2031158" target="_blank">KYO(T) 发表于 2021-10-10 23:57</a>
+
+杞人忧天更合适，看到黑云就觉得天要塌了
+
+然而如果天真的塌了，再多的忧虑也没什么卵用 ...</blockquote>
+做人要做明白鬼，寻出背后的逻辑是天性
+
+
+*****
+
+####  Hqchan  
+##### 87#       发表于 2021-10-11 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064542&amp;ptid=2031158" target="_blank">Kojimaru 发表于 2021-10-10 18:57</a>
+
+安卓手机无法直接到谷歌商店下载外服游戏，但加速器里提供了手游下载
+
+如果有天把蒸汽墙完了，不知道会不 ...</blockquote>
+现在还有什么加速器提供下载的吗，
+
+前段时间刚看的UU和奇游现在下载只能去官网了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

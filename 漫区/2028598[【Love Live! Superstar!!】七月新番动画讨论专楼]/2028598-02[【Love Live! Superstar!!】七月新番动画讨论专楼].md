@@ -2252,3 +2252,80 @@ https://twitter.com/sankuro396/status/1446847038834970625
 独唱部分出来小香音想起来偶像大师千早独唱的时候也是出来小千早，不过看起来还是千早回好看多了。
 
 
+
+
+*****
+
+####  cat1230  
+##### 1692#       发表于 2021-10-11 00:04
+
+
+5人里谁的身材最好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">可可有这么大吗
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  cqc1021  
+##### 1693#       发表于 2021-10-11 00:05
+
+
+草，看了下这老师画的三张可可，第一张还是正常大小，后面两张越来越大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  qratosone  
+##### 1694#       发表于 2021-10-11 00:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067993&amp;ptid=2028598" target="_blank">灼眼的夏娜酱 发表于 2021-10-10 23:58</a>
+
+独唱部分出来小香音想起来偶像大师千早独唱的时候也是出来小千早，不过看起来还是千早回好看多了。
+
+ ...</blockquote>
+爱马仕本家动画的质量基本上不可超越，还是不能比
+
+
+*****
+
+####  ads147147  
+##### 1695#       发表于 2021-10-11 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067959&amp;ptid=2028598" target="_blank">Boliva 发表于 2021-10-10 23:55</a>
+完了，现在看到可可就觉得像菜菜子……</blockquote>
+你应该放弃你现在的想法，去想点美好的事情，比如可香。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1696#       发表于 2021-10-11 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067716&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-10 23:33</a>
+
+**** 本内容被作者隐藏 ****</blockquote>
+本集楼爬完了，最大的收获是这张图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 1697#       发表于 2021-10-11 00:23
+
+
+昨天涉谷之音的照片都发了，只有可香组发了两人合照
+
+鲤鱼发的版本是鲨鱼照的，鲨鱼发的版本是鲤鱼照的
+
+只靠这个我就能クーカー熱く蘇れ<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
