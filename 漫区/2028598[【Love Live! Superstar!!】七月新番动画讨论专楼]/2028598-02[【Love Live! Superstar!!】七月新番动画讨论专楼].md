@@ -2329,3 +2329,29 @@ https://twitter.com/sankuro396/status/1446847038834970625
 只靠这个我就能クーカー熱く蘇れ<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yukino1981  
+##### 1698#       发表于 2021-10-11 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067959&amp;ptid=2028598" target="_blank">Boliva 发表于 2021-10-10 23:55</a>
+
+完了，现在看到可可就觉得像菜菜子……</blockquote>
+那位眼镜是本体，不要想眼镜就行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shudushimo  
+##### 1699#       发表于 2021-10-11 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067716&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-10 23:33</a>
+
+**** 本内容被作者隐藏 ****</blockquote>
+草，为啥我们俩发的图饱和度不一样
+
+
