@@ -1054,3 +1054,302 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我去，看了才知道，怎么战吧这么多人破防了
 
 
+
+
+*****
+
+####  lj205  
+##### 1595#       发表于 2021-10-10 19:42
+
+
+<blockquote>ads147147 发表于 2021-10-10 19:36
+个人感觉，如果花田这么执着于废校，就应该把78话拉到最后11，12。把香千堇的问题提前解决，而且中间的废笔 ...</blockquote>
+对对我就是这个感觉
+
+
+*****
+
+####  chenflyyy  
+##### 1596#       发表于 2021-10-10 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065039&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-10 19:40</a>
+我去，看了才知道，怎么战吧这么多人破防了</blockquote>
+nga还有人破防到拿这集和巨人结尾比的，只能说cp入脑真可怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 1597#       发表于 2021-10-10 19:43
+
+
+鲤鱼一早就说该买哪只股，还在执迷可香那也不能怨官方啊～
+
+
+*****
+
+####  chenflyyy  
+##### 1598#       发表于 2021-10-10 19:44
+
+
+是说可香党不应该在上集可堇时就跑光了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 1599#       发表于 2021-10-10 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065070&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 19:42</a>
+
+nga还有人破防到拿这集和巨人结尾比的，只能说cp入脑真可怕</blockquote>
+绷不住
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 1600#       发表于 2021-10-10 19:45
+
+
+有一种四年前推丸善的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 1601#       发表于 2021-10-10 19:45
+
+
+可香什么也就算了。我作为可可单推人，就和想看看属于她的烦恼和故事，结果这整个一季她跟个铁人一样支楞的不行，把别人的问题都解决了，自己的雷缺要埋到第二季，就感觉很亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ads147147  
+##### 1602#       发表于 2021-10-10 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065090&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 19:44</a>
+是说可香党不应该在上集可堇时就跑光了吗</blockquote>
+橘前辈（可all）看着古朗基（可堇）暴打空我jpg
+
+其实除了可恋假药太多以外，其他几个可x都有不错的糖。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1603#       发表于 2021-10-10 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064982&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-10 19:36:03</a>
+个人感觉，如果花田这么执着于废校，就应该把78话拉到最后11，12。把香千堇的问题提前解决，而且中间的废笔 ...</blockquote>确实，不过先入队再解心结的已经有了一个平安民警，再加一个不情愿的恋恋，好家伙，一共五个人2个定时炸弹，估计台上live五张笑脸都是装出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Norkey1  
+##### 1604#       发表于 2021-10-10 19:48
+
+
+贴吧真就和哭丧一样，欢乐多
+
+
+*****
+
+####  chenflyyy  
+##### 1605#       发表于 2021-10-10 19:48
+
+
+这两块钱一根的跳绳印个logo卖5000日元，万代你怎么不去抢，会不会做周边啊<img src="https://p.sda1.dev/2/5cc66774a2cff28d82f1ed0219d95ba8/IMG_CMP_9647787.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 1606#       发表于 2021-10-10 19:48
+
+
+看了十年幼驯染还要在看十年的吗……饶了我吧
+
+
+*****
+
+####  lj205  
+##### 1607#       发表于 2021-10-10 19:48
+
+
+反正可可单推人的我也不满足这集就是，这季真是硬推卡农过头，把我本来一个卡农推硬生生看成一个没感觉…………
+
+
+*****
+
+####  lj205  
+##### 1608#       发表于 2021-10-10 19:49
+
+
+那根跳绳阿里88两块钱，加点钱还能任选图案
+
+
+*****
+
+####  永恒的王牌  
+##### 1609#       发表于 2021-10-10 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065119&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-10 19:45</a>
+
+可香什么也就算了。我作为可可单推人，就和想看看属于她的烦恼和故事，结果这整个一季她跟个铁人一样支楞的 ...</blockquote>
+往好处想把可可放二期那肯定有足够时间描写了（不可能啦
+
+
+*****
+
+####  soranoguiji  
+##### 1610#       发表于 2021-10-10 19:51
+
+
+加农我还是蛮喜欢的，第一个cool系队长，而且对青梅一心一意，这不就是爱城华恋嘛，哇嘎里马斯
+
+
+*****
+
+####  tiro_finale  
+##### 1611#       发表于 2021-10-10 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065119&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-10 19:45</a>
+
+可香什么也就算了。我作为可可单推人，就和想看看属于她的烦恼和故事，结果这整个一季她跟个铁人一样支楞的 ...</blockquote>
+确实，第三集在台上一反常态露出软弱面的伏笔直接就无了
+
+
+*****
+
+####  寒风夜  
+##### 1612#       发表于 2021-10-10 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065149&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-10 19:48</a>
+
+反正可可单推人的我也不满足这集就是，这季真是硬推卡农过头，把我本来一个卡农推硬生生看成一个没感觉…… ...</blockquote>
+。这话倒没啥
+
+
+*****
+
+####  寒风夜  
+##### 1613#       发表于 2021-10-10 19:52
+
+
+ 本帖最后由 寒风夜 于 2021-10-10 19:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065149&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-10 19:48</a>
+
+反正可可单推人的我也不满足这集就是，这季真是硬推卡农过头，把我本来一个卡农推硬生生看成一个没感觉…… ...</blockquote>
+
+
+*****
+
+####  ads147147  
+##### 1614#       发表于 2021-10-10 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065142&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-10 19:47</a>
+确实，不过先入队再解心结的已经有了一个平安民警，再加一个不情愿的恋恋，好家伙，一共五个人2个定时炸弹 ...</blockquote>
+问题不大，堇炸弹的时候不还是弄了常夏，实际上不太影响现有曲子的编程，单纯的把恋的c曲挪后，本来8集里让c位的情况就很怪，特别是和10话里堇自己争取到的情况下做对比，就明显的衬托出气氛渲染不到位，本来恋背负学校的责任应该弄得更加有感染力。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1615#       发表于 2021-10-10 19:53
+
+
+懂了，其实前三集是政治任务，旨在让本次企划的领队核心（香音）和主打角色（可可）来一次完美交融，囊括一下企划的重点。
+
+所以，可香是政治联姻。
+
+千香、可堇才是真爱。
+
+联姻任务达成后，两位就各奔真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 1616#       发表于 2021-10-10 19:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">还是构成问题
+
+
+*****
+
+####  D麦林  
+##### 1617#       发表于 2021-10-10 19:57
+
+
+感觉跟5ch老哥走还挺准的
+
+上集之后看到5ch上井喷的可堇SS我就知道是时候跑路了（
+
+原来还真的有人被破防了啊
+
+
+*****
+
+####  蜜梨柑  
+##### 1618#       发表于 2021-10-10 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065215&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-10 19:53</a>
+
+懂了，其实前三集是政治任务，旨在让本次企划的领队核心（香音）和主打角色（可可）来一次完美交融，囊括一 ...</blockquote>
+草这么一说可香有水千梨那味了，只不过把水两季的事放到了一季里面
+
+
+*****
+
+####  永恒的王牌  
+##### 1619#       发表于 2021-10-10 19:59
+
+
+卡农这集还是没问题的，第三集唱了出来又不是说心理阴影就没了，作为立德后面放一集解决也是预料之中，真正有问题的是前面入队回都让她上，本人教主化队友空气化，结果效果也不咋样，那才是大问题
+
+
+*****
+
+####  JustW  
+##### 1620#       发表于 2021-10-10 20:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香什么的无所谓，但这季可可回真无了还是蛮遗憾的，可香可堇本质都是给香和堇做个人回，可可自己只有伏笔没有展开
+
+
+
+
+*****
+
+####  寒风夜  
+##### 1621#       发表于 2021-10-10 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065275&amp;ptid=2028598" target="_blank">永恒的王牌 发表于 2021-10-10 19:59</a>
+
+卡农这集还是没问题的，第三集唱了出来又不是说心理阴影就没了，作为立德后面放一集解决也是预料之中，真正 ...</blockquote>
+是咯
+
+

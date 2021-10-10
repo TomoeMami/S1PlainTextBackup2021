@@ -13509,3 +13509,50 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 之前看过两期鸡总和那俩耐久cv聊天，吹是因为他认为兔子是独裁**国家，现在环境是天然优势的
 
 
+
+
+*****
+
+####  SorroFrost  
+##### 919#       发表于 2021-10-10 19:53
+
+
+ 本帖最后由 SorroFrost 于 2021-10-10 19:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064998&amp;ptid=1860817" target="_blank">阿虚家的三味 发表于 2021-10-10 19:37</a>
+之前看过两期鸡总和那俩耐久cv聊天，吹是因为他认为兔子是独裁**国家，现在环境是天然优势的 ...</blockquote>
+没，我看的是他吹兔子对外的zz手段，还有改开后自我的调整，还吹了一下现任觉着会是兔子历史上的一颗星，不像媒体抹黑的那样，顺带还借此踩了一把西方，还不忘记吹一把原神
+
+
+*****
+
+####  SorroFrost  
+##### 920#       发表于 2021-10-10 19:53
+
+
+ 本帖最后由 SorroFrost 于 2021-10-10 19:55 编辑 
+
+编辑
+
+
+*****
+
+####  地方就是咖啡好  
+##### 921#       发表于 2021-10-10 20:00
+
+
+ 本帖最后由 地方就是咖啡好 于 2021-10-10 20:04 编辑 
+
+连夜补了漫画，能占游戏内容的几成？在考虑要不要试试原作<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SorroFrost  
+##### 922#       发表于 2021-10-10 20:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065298&amp;ptid=1860817" target="_blank">地方就是咖啡好 发表于 2021-10-10 20:00</a>
+连夜补了漫画，能占游戏内容的几成？在考虑要不要试试原作</blockquote>
+个人还是推荐游戏，muv最好的体验载体目前还是游戏
+
+
