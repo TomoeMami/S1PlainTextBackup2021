@@ -13556,3 +13556,18 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 个人还是推荐游戏，muv最好的体验载体目前还是游戏
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 923#       发表于 2021-10-11 00:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065298&amp;ptid=1860817" target="_blank">地方就是咖啡好 发表于 2021-10-10 20:00</a>
+连夜补了漫画，能占游戏内容的几成？在考虑要不要试试原作</blockquote>
+如果是同名漫画的话，内容已经覆盖了游戏的95%以上。层主最近也刚看完漫画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
