@@ -18107,3 +18107,17 @@ Tiny Stars的高级弹幕录屏：
 前排要个直播间
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 1427#       发表于 2021-10-10 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063072&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-10 16:50</a>
+
+前排要个直播间</blockquote>
+[https://live.bilibili.com/10112](https://live.bilibili.com/10112)或者[https://www.yy.com/1354822109](https://www.yy.com/1354822109)
+
+

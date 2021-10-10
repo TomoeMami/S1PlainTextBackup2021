@@ -853,3 +853,17 @@ IPS那区区1000:1的对比度当然是不够的…
 我记得内置存储读写速度比tf卡快
 
 
+
+
+*****
+
+####  翼宿一  
+##### 67#       发表于 2021-10-10 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063070&amp;ptid=2031125" target="_blank">双刀少女 发表于 2021-10-10 16:49</a>
+我记得内置存储读写速度比tf卡快</blockquote>
+内置&gt;SD&gt;&gt;&gt;&gt;&gt;卡带
+内置其实没比 SD 卡快太多，相比卡带来说 SD 已经很快了
+
+
