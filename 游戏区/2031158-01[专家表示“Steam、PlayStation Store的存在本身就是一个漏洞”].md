@@ -1003,3 +1003,51 @@ FB封锁漂亮国大统领账号也不用官宣啊</blockquote>
 就是国内厂商要赚平台钱，好几年前wegame就各种动作了，为了赚钱就拉上文化审核之类的借口而已，至于上面的人管不管谁知道，steam是大平台但是在中国不是，舆论声势和文化输出并不是大头
 
 
+
+
+*****
+
+####  病態極端  
+##### 70#       发表于 2021-10-10 18:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063216&amp;ptid=2031158" target="_blank">飛鳥了 发表于 2021-10-10 17:02</a>
+
+社区是G胖自己屏蔽掉中国的，记得是因为没屏蔽中国之前在社区里刷** 续1s之类敏感信息的人太多了。 ...</blockquote>
+成就、市集、好友、物品庫為何也不讓看?
+
+G胖自己沒辦法分清同一域名下的不同服務?
+
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 71#       发表于 2021-10-10 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063358&amp;ptid=2031158" target="_blank">yone0000 发表于 2021-10-10 17:19</a>
+
+有些人提出问题不是为了解决问题，而是为了解决大象</blockquote>
+问题是谁能真的解决大象呢
+
+真被逼到死角，也就只有润这一条路
+
+
+*****
+
+####  seedees3  
+##### 72#       发表于 2021-10-10 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063366&amp;ptid=2031158" target="_blank">horizonwalker 发表于 2021-10-10 17:20</a>
+
+噗，又来这套只要屁股坐对了，不管水平怎么样都要表扬的糟粕了？况且人家屁股还不和你坐一起呢
+
+还 ...</blockquote>
+发来奇文共赏就是在表扬他你是这么认为的吧，理解能力堪忧，
+
+阿猫阿狗写篇文章吹风和水平有毛关系，写电子**的水平很高吗，
+
+所以说凭什么不让人转发，为监管操心不想让他们被骂来自主控评是吧
+
+
