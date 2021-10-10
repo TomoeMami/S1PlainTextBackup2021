@@ -735,3 +735,166 @@
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  lj205  
+##### 1567#       发表于 2021-10-10 19:08
+
+
+下一集播放的时候刚好在飞机上，希望能平稳结束，就怕一落地打开手机一片哀嚎
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1568#       发表于 2021-10-10 19:08
+
+
+喷了，怎么还有极端可可厨推特上直球花田你🐴炸了的，还生怕日本人看不懂给机翻成日语的
+
+
+*****
+
+####  Norkey1  
+##### 1569#       发表于 2021-10-10 19:09
+
+
+动画里的跳绳都能拿出来卖，还卖4950日元…死宅的钱真好骗<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 1570#       发表于 2021-10-10 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064670&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-10 19:08</a>
+喷了，怎么还有极端可可厨推特上直球花田你🐴炸了的，还生怕日本人看不懂给机翻成日语的 ...</blockquote>
+可可厨有什么好炸的，这集真该不满的不应该是恋厨吗。。。不满没有可香？
+
+
+*****
+
+####  lj205  
+##### 1571#       发表于 2021-10-10 19:10
+
+
+大概是没有可香吧
+
+
+*****
+
+####  cybernetics31  
+##### 1572#       发表于 2021-10-10 19:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cp上脑的极端粉就这样啦。。。。。。。
+
+
+*****
+
+####  ads147147  
+##### 1573#       发表于 2021-10-10 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064680&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 19:10</a>
+可可厨有什么好炸的，这集真该不满的不应该是恋厨吗。。。不满没有可香？ ...</blockquote>
+现在还有恋厨么。不过恋粉估计是真的想杀了花田，78集真的是写的啥。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  寒风夜  
+##### 1574#       发表于 2021-10-10 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064670&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-10 19:08</a>
+
+喷了，怎么还有极端可可厨推特上直球花田你🐴炸了的，还生怕日本人看不懂给机翻成日语的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊
+
+
+*****
+
+####  永恒的王牌  
+##### 1575#       发表于 2021-10-10 19:16
+
+
+ 本帖最后由 永恒的王牌 于 2021-10-10 19:18 编辑 
+
+真炸也该恋推炸啊，整个一期就她个人回最糟，现在还整天给她堆些奇奇怪怪的属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 至于可可，有前三集高光加上10集可堇怎么看都回本了，结局有可香高强度贴贴那算惊喜，大团圆五人合唱那也不亏啦
+
+
+*****
+
+####  寒风夜  
+##### 1576#       发表于 2021-10-10 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064680&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 19:10</a>
+
+可可厨有什么好炸的，这集真该不满的不应该是恋厨吗。。。不满没有可香？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就禁止学园偶像的动机，人已经写寄了，最大的不就是这问题么
+
+
+*****
+
+####  lj205  
+##### 1577#       发表于 2021-10-10 19:18
+
+
+我猜比赛季大概会安排一次失利，然后复活赛制
+
+
+*****
+
+####  笑鼠  
+##### 1578#       发表于 2021-10-10 19:19
+
+
+恋恋不光是个人回拉了，可堇香千各自配平了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波是最后连拉cp抬人气的手段都没有了
+
+这不是退环境，是完全没进过环境
+
+
+*****
+
+####  Norkey1  
+##### 1579#       发表于 2021-10-10 19:21
+
+
+恋厨不是一开始就躺平了，中之人反正都挺奇怪了，有什么可炸的，戏份少就不会有大雷.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我挺开心的周边该买买，还不怕收不到谷
+
+
+*****
+
+####  凡人  
+##### 1580#       发表于 2021-10-10 19:21
+
+
+花田还是速给恋一个百合厨的属性吧，当个观赏植物不也挺好的
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1581#       发表于 2021-10-10 19:21
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/192127eel40j29inlnjrrr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (23 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 19:21 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">完 全 一 致
+
+

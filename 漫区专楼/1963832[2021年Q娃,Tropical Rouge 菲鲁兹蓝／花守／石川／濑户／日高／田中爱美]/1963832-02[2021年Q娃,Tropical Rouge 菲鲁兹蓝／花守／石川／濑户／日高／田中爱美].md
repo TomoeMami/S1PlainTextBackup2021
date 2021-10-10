@@ -9838,3 +9838,27 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 下一回看来要整活，准备看生放了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  leleq  
+##### 2214#       发表于 2021-10-10 19:06
+
+
+珊瑚回跟珊瑚个人目前的地位差不多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+下一集光看预告就能赶到一股 chaos<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有抓心的大家！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  isa2456  
+##### 2215#       发表于 2021-10-10 19:19
+
+
+这集看了跟没看一样，珊瑚现在就只有个可爱了，下集是要整啥活连抓心组也出来了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
