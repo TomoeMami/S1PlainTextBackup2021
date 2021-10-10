@@ -718,3 +718,74 @@ Bright Sheng这名字绝了。。。
 很舒适 非常舒适
 
 
+
+
+*****
+
+####  寂寞羽化  
+##### 65#       发表于 2021-10-10 15:48
+
+
+看了百度百科喷了，只能说当年给的投名状现在失效了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eden_hazard  
+##### 66#       发表于 2021-10-10 15:51
+
+
+我看他的百科看了一半感觉平平无奇，喝点水接着往下看……然后就差点被呛死了
+
+这人女拳已入化境啊，可惜还是敌不过黑拳
+
+
+*****
+
+####  搞不好是洗衣粉  
+##### 67#       发表于 2021-10-10 15:53
+
+
+看完百科绷不住了
+集美们，打拳真的能润！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yinacona  
+##### 68#       发表于 2021-10-10 15:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百科前面看的我还寻思好像槽点反应没想象中这么大，是不是我不太敏感，然后看到最后喷了
+
+
+*****
+
+####  tomatoKnight  
+##### 69#       发表于 2021-10-10 15:56
+
+
+<blockquote>少年kafka 发表于 2021-10-10 15:40
+这种事情争论那么大，海对岸的很多中国学生和网友都了解一些，他一个大学教授，身处运动漩涡，会不知道？ ...</blockquote>
+可能此高华过于专心研究古典乐，对于美国通俗戏剧发展毫无了解吧23333
+
+种族隔离时期黑白不可同台表演，必须白人涂黑，还乐于故意扮丑讽刺黑人，形成了专门的喜剧门类。
+
+到秀兰邓波儿的时代，这破规矩还有影响。
+
+外国人没必要被约束，
+
+美国人说自己被zzzq迫害就算了，历史上确实很恶劣，被投诉活该
+
+
+*****
+
+####  有优越感的人mk2  
+##### 70#       发表于 2021-10-10 16:00
+
+
+我还寻思百科能怎么样呢，一看真的把我逗乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
