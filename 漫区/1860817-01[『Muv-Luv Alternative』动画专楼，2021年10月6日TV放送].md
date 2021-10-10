@@ -13585,3 +13585,25 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 威权国资，Alternative日本的理想政府也是这样
 
 
+
+
+*****
+
+####  zore  
+##### 925#       发表于 2021-10-11 02:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这神棍生物BETA会变拟态萝卜吗
+
+
+*****
+
+####  若菜  
+##### 926#       发表于 2021-10-11 02:36
+
+
+<blockquote>zore 发表于 2021-10-11 02:20
+这神棍生物BETA会变拟态萝卜吗</blockquote>
+本篇之后有了
+
+

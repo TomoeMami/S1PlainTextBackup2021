@@ -3872,3 +3872,41 @@ queen这我笑死
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  faiths  
+##### 55781#       发表于 2021-10-11 01:43
+
+
+战斗力的升级确实太突兀了，蛋糕店到和之国中间再有一个中篇故事就好了，但是再画也就那样了。两年后的战斗画到罗一个人面对火鸡和藤虎是op战斗压迫感的最后巅峰了，那之后没一场战斗够海贼自身的水准的。
+
+
+*****
+
+####  音速貴公子  
+##### 55782#       发表于 2021-10-11 03:07
+
+
+ 本帖最后由 音速貴公子 于 2021-10-11 03:08 编辑 
+
+这么看应该是山治一家过于依靠血统和战斗服忽视了自身锻炼，他们爹创造了这群孩子自己本身似乎没什么能力哭的稀里哗啦也正常，而且混到这么大个邪恶组织演技也是不可或缺的，而山治肉身基础能力已经锻炼到跟海军武装色顶级高手对踢只不过轻微骨裂的程度，一觉醒干翻一两个大将还不是轻松，要不是凯多的人头要让给路飞，穿上战斗服一脚把凯多踢下海信不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-A715F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  蓝鸥之魂  
+##### 55783#       发表于 2021-10-11 04:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52931643&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2021-9-29 02:42</a>
+
+如果不算摘手铐强化这个可能性
+
+那引奈落就是凯多的全力了（生命卡设定） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这引奈落大招对五皇也太刮痧了吧，挨了一下之后翻白眼没多久就起来觉醒霸王色缠绕了
+
+

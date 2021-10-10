@@ -1267,3 +1267,67 @@ FB封大统领是公告的，而且还被起诉了
 前段时间刚看的UU和奇游现在下载只能去官网了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  扭头就走  
+##### 88#       发表于 2021-10-11 02:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067865&amp;ptid=2031158" target="_blank">Ik4ruga 发表于 2021-10-10 23:46</a>
+
+我怎么感觉整个中国游戏行业都在抵制先登录国外平台？</blockquote>
+贴吧大棋党还能感觉昨天家里多仨蚊子是美国人生化武器前兆呢…
+
+
+这感觉跟巨头赚着十位数十一位数的钱，老琢磨门口那三块钱冰棍儿啥时候给杀价杀到两块五以后买根尝尝也没啥区别。
+
+
+别的不说，你琢磨琢磨抵制这东西对游戏行业有啥好处没？哪怕全中国单机市场送给这平台还啥啥都不审核，这点玩意儿能撼动游戏巨头一根腿毛不
+
+
+*****
+
+####  nesds1234  
+##### 89#       发表于 2021-10-11 02:22
+
+
+加入WTO就是最大的漏洞
+
+
+*****
+
+####  Stellar_Frost  
+##### 90#       发表于 2021-10-11 04:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067443&amp;ptid=2031158" target="_blank">zashou 发表于 2021-10-10 23:08</a>
+坏种又来丢脸了。
+
+
+中国游戏成绩的进步，是广大玩家当韭菜贡献出全球最大市场，资本收割后高薪培养 ...</blockquote>
+有一说一，19-20年有些热钱现象有离谱化趋势
+但是这跟一边砸台子一边贪天之功还有人洗是两回事
+
+
+
+
+*****
+
+####  Vzero  
+##### 91#       发表于 2021-10-11 05:39
+
+
+崩溃论建议要附上截止日期呢，是一年内封还是三年内封还是十年内封还是五十年内封给个预测啊
+
+
+*****
+
+####  afer  
+##### 92#       发表于 2021-10-11 05:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种砖家他妈的不是漏洞，是他妈了隔壁的黑洞。
+
+

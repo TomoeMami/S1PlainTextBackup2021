@@ -797,3 +797,14 @@ BOOGEY VOXX 3rd Album
 日常被粉丝碰到oreapo私下双排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7558#       发表于 2021-10-11 02:33
+
+
+<blockquote>清优华・选择成为偶像的理由</blockquote>
+
+
