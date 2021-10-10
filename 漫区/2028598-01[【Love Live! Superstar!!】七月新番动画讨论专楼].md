@@ -18135,3 +18135,36 @@ https://b23.tv/iN6DDS
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  lj205  
+##### 1429#       发表于 2021-10-10 17:50
+
+
+不敢看…………
+
+
+*****
+
+####  a92063256  
+##### 1430#       发表于 2021-10-10 17:58
+
+
+正常收尾就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1431#       发表于 2021-10-10 18:00
+
+
+下限水13，上限也就是仆光吧，突然想想花田上限也没高到什么程度，收尾经常就是奔着平稳落地去的。
+
+每次花田写大道理总会落入说教，11集也就是阿炮被说教。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

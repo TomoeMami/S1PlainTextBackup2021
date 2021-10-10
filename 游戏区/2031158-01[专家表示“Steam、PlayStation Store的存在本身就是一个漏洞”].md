@@ -957,3 +957,38 @@ steam都无法登陆
 先上steam，再谋求版号，本来是很有效的一个开发策略。如果steam政策预期不明朗，下一个游戏开发周期你连鬼谷八荒和中国式家长都再也不会有了
 
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 67#       发表于 2021-10-10 17:55
+
+
+ 本帖最后由 Stellar_Frost 于 2021-10-10 17:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063440&amp;ptid=2031158" target="_blank">飛鳥了 发表于 2021-10-10 17:29</a>
+
+当时国内论坛讨论结果就是这样 随便百度下就搜的到啊
+
+
+FB封锁漂亮国大统领账号也不用官宣啊</blockquote>
+FB封神皇是寡廉鲜耻的政治行为，但这件事是有公开报道和补充文稿的
+[https://about.fb.com/news/2021/0 ... ommendations-trump/](https://about.fb.com/news/2021/06/facebook-response-to-oversight-board-recommendations-trump/)
+
+
+*****
+
+####  hypnossz86  
+##### 68#       发表于 2021-10-10 18:01
+
+
+ 本帖最后由 hypnossz86 于 2021-10-10 18:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063440&amp;ptid=2031158" target="_blank">飛鳥了 发表于 2021-10-10 17:29</a>
+当时国内论坛讨论结果就是这样 随便百度下就搜的到啊
+
+
+FB封锁漂亮国大统领账号也不用官宣啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">论坛讨论结果也能当成确凿论据了么...
+不如说居然还有论坛能对某件事情达成一致共识的么...
+
+
