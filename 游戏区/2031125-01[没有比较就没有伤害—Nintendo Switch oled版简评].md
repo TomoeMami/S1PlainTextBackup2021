@@ -789,3 +789,14 @@ IPS那区区1000:1的对比度当然是不够的…
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  希梦  
+##### 62#       发表于 2021-10-10 16:09
+
+
+3500+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">是不是比官方售价高了1000？
+
+

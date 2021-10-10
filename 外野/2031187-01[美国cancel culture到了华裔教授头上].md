@@ -789,3 +789,104 @@ Bright Sheng这名字绝了。。。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  xxren1  
+##### 71#       发表于 2021-10-10 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53061018&amp;ptid=2031187" target="_blank">相田明日香 发表于 2021-10-10 13:19</a>
+这人百度百科很有意思</blockquote>
+此时此刻，恰如彼此彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  斑驳的阴影  
+##### 72#       发表于 2021-10-10 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53060422&amp;ptid=2031187" target="_blank">比比巴巴波 发表于 2021-10-10 12:13</a>
+
+他的童年在嗡嗡嗡中度过
+
+好不容易来到灯塔
+
+这边也在嗡嗡嗡</blockquote>
+他才是带来嗡嗡嗡的人呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  放大镜  
+##### 73#       发表于 2021-10-10 16:18
+
+
+ 本帖最后由 放大镜 于 2021-10-10 16:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53062200&amp;ptid=2031187" target="_blank">林无德 发表于 2021-10-10 15:37</a>
+
+看来现在没多少人看百度百科了
+
+
+这种白扮黑的话题是不是跟尼哥这词一样，只有黑人们自己说才算不触 ...</blockquote>
+白脸涂黑的背面是废奴前后各个时期积累下的历史矛盾，本身就不光彩，进入现代社会以后大多数文艺工作都会选择避之为上
+
+
+黑脸涂白算是反击
+
+至于白脸涂黄，周迅女士在《云图》里也用黄脸涂白反击回去了，虽然该片白脸涂黄的更多，倒回去看了一眼脸都拧巴了……
+
+
+*****
+
+####  yario  
+##### 74#       发表于 2021-10-10 16:18
+
+
+这教授是殇吗？
+
+
+*****
+
+####  gaayas  
+##### 75#       发表于 2021-10-10 16:18
+
+
+这百度百科太搞了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  一个过路的  
+##### 76#       发表于 2021-10-10 16:19
+
+
+这是不是抗日剧里那种剧情，汉奸兢兢业业给皇军当差，结果太君把汉奸老婆给办了。
+
+
+*****
+
+####  MixRadio  
+##### 77#       发表于 2021-10-10 16:19
+
+
+这百度百科里的那个个人作品属实角度刁钻
+
+
+*****
+
+####  poppin  
+##### 78#       发表于 2021-10-10 16:25
+
+
+百度百科确实有意思，意外的联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

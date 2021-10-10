@@ -18917,3 +18917,29 @@ LMBS基础系统下这俩基本设计还是没什么问题的
 不用想这么多....把十字键+术技键的组合还回来就能解放LR这些键位.....都用了这么久的系统了现在取消的简直莫名其妙
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 5894#       发表于 2021-10-10 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53062356&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-10-10 15:53</a>
+不用想这么多....把十字键+术技键的组合还回来就能解放LR这些键位.....都用了这么久的系统了现在取消的简 ...</blockquote>
+我觉得以后的新作不会有组合术技键了
+
+
+*****
+
+####  qiyu1234  
+##### 5895#       发表于 2021-10-10 16:20
+
+
+ 本帖最后由 qiyu1234 于 2021-10-10 16:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53062356&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-10-10 15:53</a>
+
+不用想这么多....把十字键+术技键的组合还回来就能解放LR这些键位.....都用了这么久的系统了现在取消的简 ...</blockquote>
+我觉得以后的新作不会有组合术技键了，特别是从FREE RUN变成系统默认行动而不是SKILL开关指令以后就不会再有方向加术技的组合键了
+
+
