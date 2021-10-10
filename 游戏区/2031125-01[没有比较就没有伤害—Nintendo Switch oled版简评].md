@@ -800,3 +800,14 @@ IPS那区区1000:1的对比度当然是不够的…
 3500+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">是不是比官方售价高了1000？
 
 
+
+
+*****
+
+####  结夜野棠.  
+##### 63#       发表于 2021-10-10 16:37
+
+
+这颜色感觉也太艳了
+
+

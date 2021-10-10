@@ -890,3 +890,53 @@ Bright Sheng这名字绝了。。。
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  无敌神猪  
+##### 79#       发表于 2021-10-10 16:30
+
+
+为了投名状也是拼了，这角度刁钻<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  S1用户是传奇  
+##### 80#       发表于 2021-10-10 16:30
+
+
+百科确实很乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  vuder  
+##### 81#       发表于 2021-10-10 16:36
+
+
+黑人眼中黄人是白的<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+白人眼中黄人是黑的<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Waaagh!  
+##### 82#       发表于 2021-10-10 16:45
+
+
+ 本帖最后由 Waaagh! 于 2021-10-10 16:46 编辑 
+
+前面几楼一直说百度百科我还以为就是嗡嗡嗡敏感词那一套，没想到看了之后才发现其中精妙，真是妙不可言<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纸皮  
+##### 83#       发表于 2021-10-10 16:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还不够进步！
+
+
