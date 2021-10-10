@@ -898,3 +898,159 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">完 全 一 致
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 1582#       发表于 2021-10-10 19:29
+
+
+这集看完想去各大论坛贴吧看看香千讨论的，结果都是可香党破防，算是体会到同人女说的遇上美帝拆家的感受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 1583#       发表于 2021-10-10 19:30
+
+
+ 本帖最后由 寒风夜 于 2021-10-10 19:33 编辑 
+
+呃，原来cp这么哈人
+
+
+*****
+
+####  saya1892  
+##### 1584#       发表于 2021-10-10 19:32
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/193245fcsfbepvv6hjbrjs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (87.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 19:32 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|😲|
+
+
+查看全部评分
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1585#       发表于 2021-10-10 19:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说来可可喜欢cosplay的设定好像从来没用过，这张图不会……可可原来你还是补胎烧酒啊（不）
+
+
+*****
+
+####  saglork  
+##### 1586#       发表于 2021-10-10 19:34
+
+
+今天生肉怎么这么慢，错过直播就只能干瞪眼了，随便刷一刷到处都是满地打滚的破防可香人，太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1587#       发表于 2021-10-10 19:36
+
+
+个人感觉，如果花田这么执着于废校，就应该把78话拉到最后11，12。把香千堇的问题提前解决，而且中间的废笔就少很多，如果说要给恋入队，完全可以是理事长强行安排恋进队伍当辅助（舞蹈指导什么的），在活动和比赛中软化恋的态度，再一口气放出家境问题，最后大家欧美得多不是就合理多了？
+
+而且可可追飞机渲染了好几次就这样放下了，我是有点不爽的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  寒风夜  
+##### 1588#       发表于 2021-10-10 19:36
+
+
+ 本帖最后由 寒风夜 于 2021-10-10 19:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说还好完全不搞cp什么吗 
+
+
+*****
+
+####  hgcg-ix  
+##### 1589#       发表于 2021-10-10 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064941&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-10 19:32</a></blockquote>
+难道是她姐姐？
+
+
+*****
+
+####  没有爱就看不见  
+##### 1590#       发表于 2021-10-10 19:37
+
+
+可可毒唯太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  soranoguiji  
+##### 1591#       发表于 2021-10-10 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我看几个韩国人都在抱怨可香无了，可想而知前三集到底有多优秀
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1592#       发表于 2021-10-10 19:38
+
+
+看到一众天台人，才发现自己没怎么买过cp股，除了稳如老狗的妮姬，就只一个冷门到只能自嗨的曜善
+
+估计永远体会不到王道cp被拆的痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1593#       发表于 2021-10-10 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">早就说了，前三集把LL带到了不属于他的高度，太多人抱有幻想了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1594#       发表于 2021-10-10 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我去，看了才知道，怎么战吧这么多人破防了
+
+

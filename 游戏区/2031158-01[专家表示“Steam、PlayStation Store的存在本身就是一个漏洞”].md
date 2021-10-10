@@ -1083,3 +1083,18 @@ steam都无法登陆</blockquote>
 大家愿意相信是出于感情，不愿相信是出于理性
 
 
+
+
+*****
+
+####  horizonwalker  
+##### 75#       发表于 2021-10-10 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064340&amp;ptid=2031158" target="_blank">seedees3 发表于 2021-10-10 18:37</a>
+发来奇文共赏就是在表扬他你是这么认为的吧，理解能力堪忧，
+
+阿猫阿狗写篇文章吹风和水平有毛关系，写电 ...</blockquote>
+哦转发可以扣分不行是吧？是不是要论坛上集体给这垃圾鼓掌叫好啊？怕不是没有老爷的命先得了老爷的病
+
+

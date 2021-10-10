@@ -13495,3 +13495,17 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 本来搜资料，结果看到了鸡总录播吹兔子zz经济还挺有趣的
 
 
+
+
+*****
+
+####  阿虚家的三味  
+##### 918#       发表于 2021-10-10 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063864&amp;ptid=1860817" target="_blank">SorroFrost 发表于 2021-10-10 18:05</a>
+
+本来搜资料，结果看到了鸡总录播吹兔子zz经济还挺有趣的</blockquote>
+之前看过两期鸡总和那俩耐久cv聊天，吹是因为他认为兔子是独裁**国家，现在环境是天然优势的
+
+
