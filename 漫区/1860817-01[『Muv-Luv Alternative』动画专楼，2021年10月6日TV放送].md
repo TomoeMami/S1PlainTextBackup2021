@@ -13571,3 +13571,17 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 924#       发表于 2021-10-11 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065209&amp;ptid=1860817" target="_blank">SorroFrost 发表于 2021-10-10 19:53</a>
+
+没，我看的是他吹兔子对外的zz手段，还有改开后自我的经济方面调整，还吹了一下现任觉着会是兔子历史上的 ...</blockquote>
+威权国资，Alternative日本的理想政府也是这样
+
+
