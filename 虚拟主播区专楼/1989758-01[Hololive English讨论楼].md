@@ -22633,3 +22633,16 @@ Ame闭关休整接下来会少一些更新<img src="https://static.saraba1st.com
 Necklace Ame!<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  smy20011  
+##### 1426#         楼主| 发表于 2021-10-10 10:04
+
+
+AME最近实在是比较忙。。。
+
+不过最近鲨鱼天天开MC，AME开的相对小众
+
+
