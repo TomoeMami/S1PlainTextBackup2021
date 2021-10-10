@@ -595,3 +595,39 @@ bora突击洗澡
 后知后觉星川的排名又能拿台pc，虽然一个队伍就一台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 7547#       发表于 2021-10-10 20:29
+
+
+[https://panora.tokyo/archives/34998](https://panora.tokyo/archives/34998)
+
+
+Stream Hatchet発表 「2021年Q3 VTuberトップ5」1位に葛葉、「女性ストリーマートップ5」に兎田ぺこら＆さくらみこがランクイン
+
+
+●2021年第3クォーター　多く視聴されたVTuberトップ5（敬称略）
+
+1位：葛葉（YouTube）
+
+2位：兎田ぺこら（YouTube）
+
+3位：渋谷ハル（YouTube）
+
+4位：さくらみこ（YouTube）
+
+5位：叶（YouTube）
+
+
+*****
+
+####  IDIDIDID  
+##### 7548#       发表于 2021-10-10 20:30
+
+
+阿床<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
