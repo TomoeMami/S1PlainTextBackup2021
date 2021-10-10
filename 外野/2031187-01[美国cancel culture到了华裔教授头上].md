@@ -1111,3 +1111,18 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 有意思
 
 
+
+
+*****
+
+####  比比巴巴波  
+##### 100#       发表于 2021-10-10 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53062639&amp;ptid=2031187" target="_blank">斑驳的阴影 发表于 2021-10-10 16:16</a>
+他才是带来嗡嗡嗡的人呐</blockquote>
+失敬失敬，跑去瞄了眼，属实绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

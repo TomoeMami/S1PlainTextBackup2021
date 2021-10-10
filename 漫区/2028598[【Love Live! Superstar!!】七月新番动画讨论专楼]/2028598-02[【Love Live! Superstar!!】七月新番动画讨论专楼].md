@@ -1353,3 +1353,201 @@ nga还有人破防到拿这集和巨人结尾比的，只能说cp入脑真可怕
 是咯
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1622#       发表于 2021-10-10 20:02
+
+
+这集还是香千没整好 根本就没人在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+不过毕竟就一集还是幼驯染 确实也整不出啥新东西
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1623#       发表于 2021-10-10 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065275&amp;ptid=2028598" target="_blank">永恒的王牌 发表于 2021-10-10 19:59:04</a>
+卡农这集还是没问题的，第三集唱了出来又不是说心理阴影就没了，作为立德后面放一集解决也是预料之中，真正 ...</blockquote>这个切入点好，还能给可香党再来一刀：
+
+被可可治好的哑巴，不行！
+
+被小千治好的哑巴，行！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Piano-Forest  
+##### 1624#       发表于 2021-10-10 20:03
+
+
+OST封面
+
+
+【💫CD情報💫】
+
+TVアニメ『ラブライブ！スーパースター!!』
+
+
+オリジナルサウンドトラック
+
+「Dreams of the Superstar」
+
+ジャケットを公開✨
+
+
+劇伴🎼に加え、
+
+本日の第11話で澁谷かのんが歌った
+
+「私のSymphony 〜澁谷かのんVer.〜」
+
+も収録❣
+
+
+是非予約してゲットしてくださいね✨
+<img src="https://p.sda1.dev/2/80585435f0f41dfc85c93ed94b3d63e9/20211010_200211.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/nhk_animeworld/status/1447147421696512007](https://twitter.com/nhk_animeworld/status/1447147421696512007)
+
+💫✨💫✨💫✨💫✨💫✨
+
+ラブライブ！スーパースター!!
+
+第12話「Song for All」
+
+Eテレ 17(日)夜7時
+
+💫✨💫✨💫✨💫✨💫✨
+
+
+次回はついに最終回。
+
+どうぞお楽しみに！
+
+
+*****
+
+####  JustW  
+##### 1625#       发表于 2021-10-10 20:04
+
+
+ 本帖最后由 JustW 于 2021-10-10 20:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要小千在第六集的思路就挺怪了，结果还成功了，然后这一集小千想把同样的思路在香音身上复刻，结果又成功了。这或许就是香千的双向奔赴吧……（
+
+
+这个思路和虹的第四集第九集有点像，但虹本来就是solo偶像联邦制啊，星团何苦强调这个呢（而且强调得也不怎么好）
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/200838teia6ei09rh0ha9n.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕快照 2021-10-10 下午8.08.27.png</strong> (56.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 20:08 上传
+
+
+*****
+
+####  chenflyyy  
+##### 1626#       发表于 2021-10-10 20:06
+
+
+我对这集的香千还是挺满足，可能我就爱吃幼驯染这口吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 1627#       发表于 2021-10-10 20:06
+
+
+惊了，没想到还在这里看到了曜善同好，当初喜欢这cp的时候还是水一期ed的那张cut还以为曜善也是天降青梅之类的，结果还是自己想多了。不过有一首2223曲已经是很满足了。热度也就那样吧，肯定没有那几个大热cp热度高，但也不算太冷了
+
+
+*****
+
+####  saglork  
+##### 1628#       发表于 2021-10-10 20:13
+
+
+从一单广播剧和杂志信息看过来的话，就算前三集真的嗑可香，对可堇千香也该有足够的心理预期吧，何况可香哪怕最香的时候，小千的戏份一点不少啊，怎么就能破防的这么惨呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可堇完全就是按花田最喜欢的妮姬丸善夜梨这种欢喜冤家互怼模板捏出来的，随便想想就知道一定会拿出来大玩特玩的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1629#       发表于 2021-10-10 20:16
+
+
+ 本帖最后由 ads147147 于 2021-10-10 20:18 编辑 
+
+系构问题总归还是要丢在花田头上，不过京极就这样拍板了，等一手访谈分锅。
+
+还有这次莫名其妙的用了很多次时间飞跃，动不动就几个月过去了，毫无征兆，直接换衣服。
+
+照我的构想，1~3话可香没必要变，4~6要增加恋的戏份，还要把恋的态度从很奇怪的拒绝逻辑修正掉。
+加入的情节包括主动加入偶像部进行指导，打压堇的部分可以增加恋平衡可过分的态度，因为恋加入了指导，千也可以更好的把舞蹈内容转交给恋，而不是通过sp这样的敌队来生硬转折。
+最后常夏的部分可以通过恋掏钱支持香音坐飞机从神津岛回去找千来体现融入队伍，总比现在单纯的千对恋抒发自己的沉重感要好的多，还能埋一个实际上恋家已经没什么钱的戏剧冲突，加强恋的承重角色的设定。
+常夏后恋态度软化就可以解决堇的问题，还能顺便把取名篇也顺便做了，在到这集算是平淡如水的过渡集解决香音的心理问题。
+最后通过学园祭把恋家庭问题爆发出来，四人去解决恋的问题，然后lovelive要开始，请期待第二季再来搞所谓区域赛，分班之类的阶级矛盾完全可以不提及或者淡化处理（比如一开始就设定衣服可以自由选择穿）。
+
+这样时间线可以压缩一下，半个学期就好了，至于为什么能弄出神仙舞蹈，可香不也是神仙舞蹈，怎么没人在乎。该魔幻的时候就认真魔幻。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  离心  
+##### 1630#       发表于 2021-10-10 20:17
+
+
+心态没摆正吧，有糖就吃，无糖就等，ll系列青梅是真的强，虽然以前调侃过千是最没有青梅感的青梅但56和现在的11一出自己脸都被打肿了，毕竟那可是那个花田十辉啊
+
+
+*****
+
+####  寒风夜  
+##### 1631#       发表于 2021-10-10 20:18
+
+
+ 本帖最后由 寒风夜 于 2021-10-10 20:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065465&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-10 20:16</a>
+
+系构问题总归还是要丢在花田头上，不过京极就这样拍板了，等一手访谈分锅。
+
+
+还有这次莫名其妙的用了很多次 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">第一件事还是要废除禁止学园偶像这一出 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1632#       发表于 2021-10-10 20:23
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/202344jnledx2dqa1qnmvr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (272.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 20:23 上传
+
+
