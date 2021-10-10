@@ -378,3 +378,360 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仿佛看了又仿佛没看，平淡得不像定番的11话....顺便恋本期最惨的认证章可以盖上了
 
 
+
+
+*****
+
+####  Norkey1  
+##### 1537#       发表于 2021-10-10 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064322&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-10 18:35</a>
+这集能看出来可堇互动瞬间正常了，反过来说之前都是为了第十集的高潮在积蓄不满，类比一下就是少女 ...</blockquote>
+比起露女士，星团积蓄不满的好像只有观众<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+具足虫前面集数基本上脾气很好，像极了吐槽搞笑工具人，真的有积蓄不满吗
+
+
+*****
+
+####  chenflyyy  
+##### 1538#       发表于 2021-10-10 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064333&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-10 18:36</a>
+暴论的说，难道可可真的是比完赛就人间蒸发，然后大家后年第二季见，花田你来点勇气啊，玩个大的，水13你都 ...</blockquote>
+这么玩搞不好会把整个企划葬送的，别吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  型月重工  
+##### 1539#       发表于 2021-10-10 18:42
+
+
+这一季比赛比不完吧。这是打算第二季整个一季都在打比赛吗？ 什么天麻叙事...
+
+
+*****
+
+####  cybernetics31  
+##### 1540#       发表于 2021-10-10 18:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结尾玩大的话花田工作怕不是保不住了，又不是半年番分割放送…………分季度啊，肯定是平稳完结了
+
+
+*****
+
+####  JustW  
+##### 1541#       发表于 2021-10-10 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064388&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-10 18:42</a>
+
+比起露女士，星团积蓄不满的好像只有观众
+
+具足虫前面集数基本上脾气很好，像极了吐槽搞笑工具人， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的就是观众，欲扬先抑的手法嘛
+
+
+*****
+
+####  qratosone  
+##### 1542#       发表于 2021-10-10 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064392&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-10-10 18:42</a>
+这一季比赛比不完吧。这是打算第二季整个一季都在打比赛吗？ 什么天麻叙事... ...</blockquote>
+初代二期就是全程打比赛啊，一期全在处理校内问题
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  Norkey1  
+##### 1543#       发表于 2021-10-10 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064404&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-10 18:43</a>
+我说的就是观众，欲扬先抑的手法嘛</blockquote>
+观众都快把花田亲马扬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1544#       发表于 2021-10-10 18:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看不懂全员一年级的设定用意了，难不成不止两季？
+
+
+*****
+
+####  qratosone  
+##### 1545#       发表于 2021-10-10 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064391&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 18:42</a>
+这么玩搞不好会把整个企划葬送的，别吧</blockquote>
+2.5次元企划玩这个的话花田怕不是已经被沉到东京湾了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  lj205  
+##### 1546#       发表于 2021-10-10 18:47
+
+
+微博都在吹这集我确完全没有二刷的兴趣一定是我的问题……
+
+
+*****
+
+####  chenflyyy  
+##### 1547#       发表于 2021-10-10 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064428&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-10 18:44</a>
+看不懂全员一年级的设定用意了，难不成不止两季？</blockquote>
+这一季大概就是一年时间，我猜测第二季时应该是二年级了，然后剧场版三年级整个毕业剧情这样
+
+
+*****
+
+####  七七見奈波  
+##### 1548#       发表于 2021-10-10 18:49
+
+
+怕不是可可的回家flag已经在第十话半回收了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 1549#       发表于 2021-10-10 18:50
+
+
+可可这雷估计要埋到第二季去了，可香人已经毁灭了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cybernetics31  
+##### 1550#       发表于 2021-10-10 18:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这季应该是看不到可可姐登场了
+
+
+*****
+
+####  寒风夜  
+##### 1551#       发表于 2021-10-10 18:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">话说是刚进发么
+
+
+*****
+
+####  lyflyflxf  
+##### 1552#       发表于 2021-10-10 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064428&amp;ptid=2028598" target="_blank">兔姬姬姬姬姬 发表于 2021-10-10 18:44</a>
+
+看不懂全员一年级的设定用意了，难不成不止两季？</blockquote>
+可以学美剧，搞6季<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宋西湖  
+##### 1553#       发表于 2021-10-10 18:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 1554#       发表于 2021-10-10 18:58
+
+
+还是阁下强啊..
+
+
+*****
+
+####  cybernetics31  
+##### 1555#       发表于 2021-10-10 18:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这充分说明了JZGG领先业界多年（
+
+
+*****
+
+####  player3960  
+##### 1556#       发表于 2021-10-10 18:59
+
+
+这是给了两个可可合唱ed，所以就不给solo ed的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  hc04  
+##### 1557#       发表于 2021-10-10 19:00
+
+
+你们以为这波要追飞机，其实没有，花田胜！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梶原ひかり  
+##### 1558#       发表于 2021-10-10 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064452&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-10 18:47</a>
+
+这一季大概就是一年时间，我猜测第二季时应该是二年级了，然后剧场版三年级整个毕业剧情这样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">LoveLive 缪斯 水团 时候一年办了两届 ...不至于到了 裂团 要三年办一届最后夺冠吧
+
+
+*****
+
+####  chenflyyy  
+##### 1559#       发表于 2021-10-10 19:01
+
+
+看微博才发现恋看的电脑是可可的，你平时都在看什么啊，真就中国女同<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  型月重工  
+##### 1560#       发表于 2021-10-10 19:01
+
+
+下集的走向无非是两种，一种平淡的，一种犯病的。
+
+
+平淡的：
+
+
+赢得东京大赛，进军全国！LoveLive大赛正式开始..... 完
+
+
+犯病的：
+
+
+东京预选失利，结局可可消失....香音在痛哭中结束..... 完
+
+
+个人想法：
+
+
+虽然平平淡淡是好，但我还是想看怒涛展开...
+
+
+花田大师有这个胆量吗？ 观众大炎上，投资方估计也要提刀子了。
+
+
+在第一季结束和第二季出来之前这中间的星团任何表演都会有种异样感...
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  寒风夜  
+##### 1561#       发表于 2021-10-10 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064580&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-10-10 19:01</a>
+
+下集的走向无非是两种，一种平淡的，一种犯病的。
+
+
+平淡的：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">花田大师的怒涛算了
+
+
+*****
+
+####  寒风夜  
+##### 1562#       发表于 2021-10-10 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064580&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-10-10 19:01</a>
+
+下集的走向无非是两种，一种平淡的，一种犯病的。
+
+
+平淡的：</blockquote>
+
+
+*****
+
+####  lj205  
+##### 1563#       发表于 2021-10-10 19:03
+
+
+<blockquote>chenflyyy 发表于 2021-10-10 19:01
+看微博才发现恋看的电脑是可可的，你平时都在看什么啊，真就中国女同 ...</blockquote>
+其实就是女装网店而已啦 ​​​
+
+
+*****
+
+####  ads147147  
+##### 1564#       发表于 2021-10-10 19:03
+
+
+等机场发起进攻，一切都会好起来的（等会，虹不就是机场吗，我懂了，虹二期就是星二期（错乱）
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  稀勢のささ  
+##### 1565#       发表于 2021-10-10 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064580&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-10-10 19:01</a>
+
+下集的走向无非是两种，一种平淡的，一种犯病的。
+
+
+平淡的：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">从季节上看回家过个春节不是不行（
+
+
+*****
+
+####  ads147147  
+##### 1566#       发表于 2021-10-10 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064613&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-10 19:03</a>
+从季节上看回家过个春节不是不行（</blockquote>
+结果是星12集，科罗娜来袭，所有大赛终止，进入紧急事态，然后大家去电影院看鬼灭。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

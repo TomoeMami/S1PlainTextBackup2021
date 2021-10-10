@@ -1051,3 +1051,22 @@ G胖自己沒辦法分清同一域名下的不同服務?
 所以说凭什么不让人转发，为监管操心不想让他们被骂来自主控评是吧
 
 
+
+
+*****
+
+####  Kojimaru  
+##### 73#       发表于 2021-10-10 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063557&amp;ptid=2031158" target="_blank">FUZE 发表于 2021-10-10 17:42</a>
+转区没任何作用
+
+13年封过一天
+
+steam都无法登陆</blockquote>
+安卓手机无法直接到谷歌商店下载外服游戏，但加速器里提供了手游下载
+如果有天把蒸汽墙完了，不知道会不会有第三方分流下载平台出现，开全局把steam当个启动器<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+相比之下主机商店被墙就麻烦多了
+
+
