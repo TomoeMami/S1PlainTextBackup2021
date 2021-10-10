@@ -1126,3 +1126,16 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  小野賢章  
+##### 101#       发表于 2021-10-10 22:43
+
+
+[http://www.brightsheng.com/programnotes/Madammao.html](http://www.brightsheng.com/programnotes/Madammao.html)
+
+补一个歌剧的介绍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
