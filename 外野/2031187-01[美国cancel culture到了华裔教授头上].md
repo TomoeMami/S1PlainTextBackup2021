@@ -995,3 +995,53 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 —— 来自 HUAWEI AQM-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  windrarara  
+##### 89#       发表于 2021-10-10 17:25
+
+
+百科前几段还正常，正想着你们也太巨魔了点，最后直接喷了
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 90#       发表于 2021-10-10 17:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百科喷了
+
+
+
+
+*****
+
+####  YFIIII  
+##### 91#       发表于 2021-10-10 17:32
+
+
+我超，这种百科内容居然保留到了现在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  憧憬鲨  
+##### 92#       发表于 2021-10-10 17:35
+
+
+百科笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+自己就是玩这套的，被这套锤了也算活该
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 93#       发表于 2021-10-10 17:37
+
+
+当左勾拳的遇到黑拳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

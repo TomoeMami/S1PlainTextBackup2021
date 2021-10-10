@@ -18121,3 +18121,17 @@ Tiny Stars的高级弹幕录屏：
 [https://live.bilibili.com/10112](https://live.bilibili.com/10112)或者[https://www.yy.com/1354822109](https://www.yy.com/1354822109)
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 1428#       发表于 2021-10-10 17:26
+
+
+再来个分流吧【lovelive 当心夹脚-哔哩哔哩直播】
+https://b23.tv/iN6DDS
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
