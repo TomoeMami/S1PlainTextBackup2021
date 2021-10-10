@@ -17553,3 +17553,19 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 不过怎么没有18年的鬼王....被开除出万圣节活动籍了么
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83961#       发表于 2021-10-10 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53057006&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-10-9 23:10</a>
+
+4缺1万圣南丁总算满破了
+
+还附赠把4缺1绫香也给满破了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先欧 再不羡慕
+
+

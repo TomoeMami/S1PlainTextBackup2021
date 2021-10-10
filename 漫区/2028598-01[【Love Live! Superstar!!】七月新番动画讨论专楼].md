@@ -18018,3 +18018,14 @@ Tiny Stars的高级弹幕录屏：
 这不是因为马娘这边没上内恰和北黑嘛，上了一样是超极巨鲤鱼王<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1419#       发表于 2021-10-10 13:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这次三团跨年live，估计就能看到前田和鲤鱼同台了
+
+
