@@ -18168,3 +18168,654 @@ https://b23.tv/iN6DDS
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  离心  
+##### 1432#       发表于 2021-10-10 18:02
+
+
+经典
+
+
+*****
+
+####  chenflyyy  
+##### 1433#       发表于 2021-10-10 18:05
+
+
+恋恋完全谐星化了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 1434#       发表于 2021-10-10 18:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 校 园 网 看 片
+
+
+*****
+
+####  Norkey1  
+##### 1435#       发表于 2021-10-10 18:06
+
+
+恋是中之人逆输出了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1436#       发表于 2021-10-10 18:06
+
+
+青山这个棒读没救了，估计动画电影播完都是这样吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  寒风夜  
+##### 1437#       发表于 2021-10-10 18:07
+
+
+还真千香<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 1438#       发表于 2021-10-10 18:07
+
+
+<img src="https://p.sda1.dev/2/188d2d14ec31d2ba43d84c729c767dc4/IMG_CMP_264568776.png" referrerpolicy="no-referrer">笑死我了，哈哈哈哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  hgcg-ix  
+##### 1439#       发表于 2021-10-10 18:08
+
+
+用学校电脑看黄片
+
+<img src="https://img.saraba1st.com/forum/202110/10/180632f1ugt2qw3togv0zl.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (82.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 18:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/180643tkszm5z189m2hih4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (64.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 18:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/180653imnpzqe71dh37n7h.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (94.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 18:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/10/180701qdn1kohdynini188.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (59.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-10 18:07 上传
+
+
+*****
+
+####  JustW  
+##### 1440#       发表于 2021-10-10 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来这集又是香音怯场症回
+
+
+
+
+*****
+
+####  稀勢のささ  
+##### 1441#       发表于 2021-10-10 18:08
+
+
+ 本帖最后由 稀勢のささ 于 2021-10-10 18:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回母校唱那稳了啊 再翻车这PTSD真没救了 这集是整不出啥活了
+
+
+*****
+
+####  chenflyyy  
+##### 1442#       发表于 2021-10-10 18:08
+
+
+香千回写好点求求了
+
+
+*****
+
+####  ayara  
+##### 1443#       发表于 2021-10-10 18:08
+
+
+上来可堇千香拉满了，可香真的没了没了
+
+
+*****
+
+####  Arccueid  
+##### 1444#       发表于 2021-10-10 18:09
+
+
+应该是要给香音彻底治病了
+
+
+*****
+
+####  ads147147  
+##### 1445#       发表于 2021-10-10 18:10
+
+
+这次贩卖梦想已经直接往小学生群体扩展了。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  稀勢のささ  
+##### 1446#       发表于 2021-10-10 18:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有个问题 这个页面是谁打开了没关
+
+
+*****
+
+####  ads147147  
+##### 1447#       发表于 2021-10-10 18:11
+
+
+感觉也是把之前千的个人回应该有的部分硬生生扯到现在。
+看来可可个人回真的不打算弄了？
+
+而且已经直接时间飞跃了，从冬天又跳到春天了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  chenflyyy  
+##### 1448#       发表于 2021-10-10 18:12
+
+
+可可回下季度也好吧
+
+
+*****
+
+####  Arccueid  
+##### 1449#       发表于 2021-10-10 18:12
+
+
+什么左拥右抱
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1450#       发表于 2021-10-10 18:12
+
+
+搞事情啊 独唱
+
+
+*****
+
+####  JustW  
+##### 1451#       发表于 2021-10-10 18:13
+
+
+有765的约束珠玉在前，很难啊
+
+
+*****
+
+####  寒风夜  
+##### 1452#       发表于 2021-10-10 18:14
+
+
+我 超 别吓人
+
+
+*****
+
+####  a92063256  
+##### 1453#       发表于 2021-10-10 18:14
+
+
+这集真的是高强度香千
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  ads147147  
+##### 1454#       发表于 2021-10-10 18:14
+
+
+虹团的阴谋，快去找步梦女士。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  AlfredXC  
+##### 1455#       发表于 2021-10-10 18:16
+
+
+你们就演我吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 1456#       发表于 2021-10-10 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这有点太激进了吧，直接让人家单飞
+
+
+*****
+
+####  没有爱就看不见  
+##### 1457#       发表于 2021-10-10 18:16
+
+
+和偶像大师比就是找不自在了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 1458#       发表于 2021-10-10 18:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋看着像一集讲不完
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1459#       发表于 2021-10-10 18:17
+
+
+香千赢麻了
+
+
+*****
+
+####  ads147147  
+##### 1460#       发表于 2021-10-10 18:18
+
+
+花田这种解决办法，好eva。
+
+是xjbp的味道。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  lj205  
+##### 1461#       发表于 2021-10-10 18:18
+
+
+这都演的啥
+
+
+*****
+
+####  Arccueid  
+##### 1462#       发表于 2021-10-10 18:18
+
+
+香千羁绊拉满了
+
+
+*****
+
+####  离心  
+##### 1463#       发表于 2021-10-10 18:18
+
+
+大型一单衍生剧
+
+
+*****
+
+####  寒风夜  
+##### 1464#       发表于 2021-10-10 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064066&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-10 18:18</a>
+
+花田这种解决办法，好eva。
+
+
+是xjbp的味道。</blockquote>
+没有大烂活还行
+
+
+*****
+
+####  JustW  
+##### 1465#       发表于 2021-10-10 18:19
+
+
+这是什么偶像大师最后阁下的演出）
+
+
+*****
+
+####  Arccueid  
+##### 1466#       发表于 2021-10-10 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064072&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-10 18:18</a>
+
+这都演的啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以了，不整烂活就是胜利
+
+
+*****
+
+####  寒风夜  
+##### 1467#       发表于 2021-10-10 18:19
+
+
+阁下是吧
+
+
+*****
+
+####  Arccueid  
+##### 1468#       发表于 2021-10-10 18:20
+
+
+跟过去的自己释怀了是吧
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1469#       发表于 2021-10-10 18:20
+
+
+还真是私のsymphony
+
+
+*****
+
+####  离心  
+##### 1470#       发表于 2021-10-10 18:20
+
+
+来了!奶对了
+
+
+
+
+*****
+
+####  ads147147  
+##### 1471#       发表于 2021-10-10 18:21
+
+
+和自己和解，真的是eva，我悟了。
+11集就这样吧，还挺好的，说教不高。
+12集估计就插科打诨吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  Norkey1  
+##### 1472#       发表于 2021-10-10 18:22
+
+
+小百合声音好听<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">好好好
+
+
+*****
+
+####  稀勢のささ  
+##### 1473#       发表于 2021-10-10 18:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一反应少了点啥 想了想是虹的场地魔法
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1474#       发表于 2021-10-10 18:22
+
+
+什么爱的魔力转圈圈
+
+
+*****
+
+####  没有爱就看不见  
+##### 1475#       发表于 2021-10-10 18:22
+
+
+我还以为四个人会突然跳上来一起唱
+
+
+*****
+
+####  JustW  
+##### 1476#       发表于 2021-10-10 18:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然全靠中之人和歌救场，虽然剧情有丶尬到我了，歌一出来就还行
+
+
+*****
+
+####  chenflyyy  
+##### 1477#       发表于 2021-10-10 18:22
+
+
+可以了，香千人爽到了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1478#       发表于 2021-10-10 18:23
+
+
+千直接冲上去了。等机场发动进攻可香会好起来的！
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  平贺才人  
+##### 1479#       发表于 2021-10-10 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就靠小百合硬C
+
+
+*****
+
+####  Faremier  
+##### 1480#       发表于 2021-10-10 18:23
+
+
+高潮部分不太行
+
+
+*****
+
+####  qds  
+##### 1481#       发表于 2021-10-10 18:23
+
+
+卡农没有感觉自己被背刺吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 1482#       发表于 2021-10-10 18:23
+
+
+有可能一季真的没可可回了
+
+
+*****
+
+####  lj205  
+##### 1483#       发表于 2021-10-10 18:23
+
+
+我的入坑歌……还是希望可可回上呢……
+
+
+*****
+
+####  对不起天使  
+##### 1484#       发表于 2021-10-10 18:23
+
+
+啊啊啊啊啊啊，可香输了输了输了输了😭😭😭😭
+
+
+*****
+
+####  Arccueid  
+##### 1485#       发表于 2021-10-10 18:23
+
+
+很平淡的一回，歌不错。
+
+
+*****
+
+####  优妮可  
+##### 1486#       发表于 2021-10-10 18:23
+
+
+这集千香发个糖顺便解决香的阴影？
+
+
+*****
+
+####  a92063256  
+##### 1487#       发表于 2021-10-10 18:24
+
+
+可香人大势已去<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  remedios010000  
+##### 1488#       发表于 2021-10-10 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064122&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-10 18:22</a>
+
+第一反应少了点啥 想了想是虹的场地魔法</blockquote>
+清唱还要啥场地魔法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tiro_finale  
+##### 1489#       发表于 2021-10-10 18:24
+
+
+看样子没有什么飞机了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 1490#       发表于 2021-10-10 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">预告好正常
+
+
+*****
+
+####  寒风夜  
+##### 1491#       发表于 2021-10-10 18:24
+
+
+淡淡的
+
+
+*****
+
+####  Arccueid  
+##### 1492#       发表于 2021-10-10 18:24
+
+
+飞机应该是没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二季见了
+
+
+*****
+
+####  chenflyyy  
+##### 1493#       发表于 2021-10-10 18:25
+
+
+看下集预告可可回这季是没了，不过也好，别搞事就行
+
+
+*****
+
+####  稀勢のささ  
+##### 1494#       发表于 2021-10-10 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羁绊拉满这种事你光靠嘴说我感受不到啊 演出呢
+
+
