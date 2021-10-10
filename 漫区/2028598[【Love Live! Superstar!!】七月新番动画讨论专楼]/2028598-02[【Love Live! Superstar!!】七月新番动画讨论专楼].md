@@ -1734,3 +1734,38 @@ Eテレ 17(日)夜7時
 可可姐给爸爸一巴掌我觉得留在日本可能比较大<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1650#       发表于 2021-10-10 21:08
+
+
+ 本帖最后由 寒风夜 于 2021-10-10 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">5话不就破防了么，cp玩太猛咯，话说萌战吧现在怎么这么多百合贴了，，以前还不是这样啊..
+
+
+
+
+*****
+
+####  cqc1021  
+##### 1651#       发表于 2021-10-10 21:20
+
+
+只能说，tiny stars不仅把花田十辉带到了不属于自己的高度，也把可香党带到了不属于他们的地位。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  kbtit  
+##### 1652#       发表于 2021-10-10 21:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还好我早就润了，做个恋单推也挺好
+
+
