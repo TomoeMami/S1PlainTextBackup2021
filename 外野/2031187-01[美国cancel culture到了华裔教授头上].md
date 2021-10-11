@@ -1402,3 +1402,21 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重头戏在他的百度百科，赶紧去看，看到最后
 
 
+
+
+*****
+
+####  sakura79  
+##### 124#       发表于 2021-10-11 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070488&amp;ptid=2031187" target="_blank">الطائر 发表于 2021-10-11 09:19</a>
+
+美国学生发起“打老师耳光”挑战，全美学校发出警告：完全不可接受
+
+https://finance.sina.com.cn/tech/2021 ...</blockquote>
+此时此刻
+
+彼时彼刻.jpg
+
+

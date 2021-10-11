@@ -13897,3 +13897,21 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  GoInDown  
+##### 946#       发表于 2021-10-11 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53074344&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-11 13:43</a>
+
+你说链锯吗？就是锯不动突击级的甲壳，这是一大缺憾。
+
+而统一战线的77式长刀效果相当不错，能直接剁开突 ...</blockquote>
+忘记了 但是我印象中浑身插满了刀刃就是苏制战术机的特色了
+
+还是我记岔了？
+
+
