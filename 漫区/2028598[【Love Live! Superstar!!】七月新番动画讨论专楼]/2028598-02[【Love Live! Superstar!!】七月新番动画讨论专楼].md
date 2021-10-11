@@ -4084,3 +4084,14 @@ ll其实一开始就是超现实设定，几个jk，谱曲编舞做道具样样�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  中野四葉  
+##### 1832#       发表于 2021-10-12 07:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说的真好，但从这季表现来看我觉得花田写不出这种
+
+
