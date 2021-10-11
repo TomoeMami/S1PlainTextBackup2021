@@ -3972,3 +3972,20 @@ queen这我笑死
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  athena_1982  
+##### 55789#       发表于 2021-10-11 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53079089&amp;ptid=98922" target="_blank">ohi 发表于 2021-10-11 18:31</a>
+
+这样一来卷眉毛的战力可以超绿藻头了吧
+
+
+—— 来自 S1Fun</blockquote>
+那必须的，毕竟赏金高<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
