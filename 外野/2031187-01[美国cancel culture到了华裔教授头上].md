@@ -1485,3 +1485,16 @@ https://finance.sina.com.cn/tech/2021 ...</blockquote>
 在红迪上很多华裔二代痛陈自己老子或者老妈给自己**反华。导致自己之前反对自己华人身份又没有白人身份精神错乱。尤其是那种白爸黄妈的，基本生活在白人至上环境中，自己老爸就是白右，从小被老子教育种族歧视，结果长大发现自己歧视自己。很好玩的。
 
 
+
+
+*****
+
+####  洁西卡  
+##### 131#       发表于 2021-10-11 23:21
+
+
+这百科怎么活下来的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1955A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

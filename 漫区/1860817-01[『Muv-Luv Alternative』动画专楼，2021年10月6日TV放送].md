@@ -14162,3 +14162,30 @@ emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好�
 我记得的话，最早应该TSFIA里面的有链锯的具体设定，好像是为了狭窄环境下（比如hive里）清除战车级之类的小型种。
 
 
+
+
+*****
+
+####  hacisiki  
+##### 965#       发表于 2021-10-11 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53082555&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-11 23:00</a>
+
+我记得的话，最早应该TSFIA里面的有链锯的具体设定，好像是为了狭窄环境下（比如hive里）清除战车级之类 ...</blockquote>
+是链锯和身上那堆刀片吧，和武御雷身上那堆刀片一样，狭窄地带的密集接近战专用。（也就是针对说突击HIVE的时候面对巨量小型种但是可能长刀都挥不开，枪械以射1条线无法快速大量清理周边的情况）
+
+
+*****
+
+####  oskneo  
+##### 966#       发表于 2021-10-11 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53064998&amp;ptid=1860817" target="_blank">阿虚家的三味 发表于 2021-10-10 19:37</a>
+之前看过两期鸡总和那俩耐久cv聊天，吹是因为他认为兔子是独裁**国家，现在环境是天然优势的 ...</blockquote>
+想问一下关键字，那是什么声优？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
