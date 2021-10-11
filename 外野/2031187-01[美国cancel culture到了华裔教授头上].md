@@ -1316,3 +1316,14 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 文化输出<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  我特么吹爆  
+##### 118#       发表于 2021-10-11 11:54
+
+
+这百度百科属实牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
