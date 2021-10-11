@@ -14189,3 +14189,20 @@ emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好�
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  地方就是咖啡好  
+##### 967#       发表于 2021-10-11 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53079826&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-11 19:24</a>
+
+因为设定，男主是恋爱原子核。
+
+
+就像伊藤诚明明没什么出众之处却能让所有接触的女性有好感一样。 ...</blockquote>
+真有这设定啊，我还以为是调侃呢，看来是囫囵了。
+
+
