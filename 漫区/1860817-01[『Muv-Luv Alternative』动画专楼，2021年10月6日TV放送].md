@@ -13788,3 +13788,19 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  高龙  
+##### 939#       发表于 2021-10-11 10:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070882&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-11 09:51</a>
+
+拟态战术机有啥用呢，不太明白虫子的想法。
+
+想单机突破防线？可是战术机的结构本身就不怎么经打</blockquote>
+虫子没高机动单位，拟态了战术机去拦截其它战术机？
+
+

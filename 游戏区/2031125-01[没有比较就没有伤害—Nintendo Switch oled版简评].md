@@ -905,3 +905,22 @@ IPS那区区1000:1的对比度当然是不够的…
 续航版+1.5个游戏的价格
 
 
+
+
+*****
+
+####  淡定君  
+##### 71#       发表于 2021-10-11 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53063305&amp;ptid=2031125" target="_blank">翼宿一 发表于 2021-10-10 17:14</a>
+
+内置&gt;SD&gt;&gt;&gt;&gt;&gt;卡带
+
+内置其实没比 SD 卡快太多，相比卡带来说 SD 已经很快了</blockquote>
+某些游戏有奇效，比如太鼓达人 直接是差一倍的载入速度
+
+
+导致我下点4399看到读取慢一点就丢内置，总的来说64g还是不错的
+
+

@@ -2715,3 +2715,18 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 恋厨提刀逼问花田他也是有理由的，都给了你两集个人回了，其中还有一集ed都给你省了你还能要我怎样，至于水平差，人总有个发挥失常的时候。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saya1892  
+##### 1729#       发表于 2021-10-11 10:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在风评最大受害者估计还是小千，从7话她对堇开的那个玩笑很多人笑不出来开始，10话近乎炎上，到了11话都已经确信进入サイコ幼馴染系谱了
+ <blockquote>3名無しで叶える物語(茸)2021/10/10(日) 23:27:25.86ID:OqdSif0O&gt;&gt;10&gt;&gt;47&gt;&gt;75
+
+この程度のトラウマも乗り越えられないかのんちゃんは偽物だから殺すね…</blockquote>
+记得10话时也有人评价说「把小千划入疯狂幼驯染应该算是失败了吧，又没有步梦那样的正向加成」，谁能想到11话居然拉着其他人搞这种危险独走
+
+
