@@ -956,3 +956,42 @@ syl 什么紧急 ...</blockquote>
 狐狸，前世ZZ套皮人，乌克兰裔，热衷康米主义
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7570#       发表于 2021-10-12 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53083300&amp;ptid=1972669" target="_blank">purdre 发表于 2021-10-12 00:30</a>
+
+狐狸，前世ZZ套皮人，乌克兰裔，热衷康米主义</blockquote>
+这下碰到4ch的g点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+&gt;communist
+
+&gt;BLM supporter
+
+&gt;money grifter
+
+&gt;parasite that destroys it's host with pleasure
+
+&gt;brags about being an asshole
+
+What are the odds that she is jewish?
+
+
+*****
+
+####  free  
+##### 7571#       发表于 2021-10-12 01:22
+
+
+管人略相关，逛外野看到一个帖子，V和真人主播还是有差距<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[https://bbs.saraba1st.com/2b/thread-2031498-1-1.html](https://bbs.saraba1st.com/2b/thread-2031498-1-1.html)
+
+Twitch主播收入前100名只有三名女性主播
+
+
