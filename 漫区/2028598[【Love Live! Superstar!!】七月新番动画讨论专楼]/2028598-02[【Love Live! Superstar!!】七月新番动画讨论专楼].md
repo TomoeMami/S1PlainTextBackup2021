@@ -2540,3 +2540,14 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 其实现在比起每周的动画，我更期待中之人生放送和尴尬购买部……
 
 
+
+
+*****
+
+####  中野四葉  
+##### 1716#       发表于 2021-10-11 07:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好事儿，说明真的有新粉
+
+
