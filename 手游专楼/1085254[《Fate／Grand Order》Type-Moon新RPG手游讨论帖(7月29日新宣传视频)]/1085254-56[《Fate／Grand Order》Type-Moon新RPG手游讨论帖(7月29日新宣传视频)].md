@@ -17586,3 +17586,17 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 因为那次活动不是在龙娘老家的违章建筑里啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  森兰丸  
+##### 83963#       发表于 2021-10-11 09:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53067924&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-10-10 23:52</a>
+
+因为那次活动不是在龙娘老家的违章建筑里啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">话说龙娘这个活动的灵衣还没实装.....不知道会不会有能入手的那天
+
+

@@ -13700,3 +13700,76 @@ ate动画看完了，一开始被s1的一群-2分吓怕，看下来除了最终�
 专楼有指路吗）<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  亚尔古水手  
+##### 933#       发表于 2021-10-11 09:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053496&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-9 18:07</a>
+
+说起来为啥还有会步兵？步兵没什么用啊，别说斗士级了，连兵士级都打不过，面对战车级甚至就是白白牺牲…… ...</blockquote>
+战争中一线永远只是一部分甚至只是一小部分，战线后面的后勤补给指挥维修通讯电侦都需要人，都需要自己的警卫部队，更不用说佐渡岛这里还要负责平民的引导和疏散
+
+
+*****
+
+####  再买自检星剁手  
+##### 934#       发表于 2021-10-11 09:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070582&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2021-10-11 09:26</a>
+
+专楼有指路吗）</blockquote>
+[https://bbs.saraba1st.com/2b/thread-782626-1-1.html](https://bbs.saraba1st.com/2b/thread-782626-1-1.html)
+
+
+*****
+
+####  Toby_dak  
+##### 935#       发表于 2021-10-11 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53069294&amp;ptid=1860817" target="_blank">zore 发表于 2021-10-11 03:20</a>
+
+这神棍生物BETA会变拟态萝卜吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/11/103358tltdsss3bssopv4x.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (581.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-11 09:33 上传
+
+
+*****
+
+####  亚尔古水手  
+##### 936#       发表于 2021-10-11 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53047518&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-9 11:10</a>
+
+你自己去看地图就知道了，那边的地形能轻易瞄准后半球。仔细康康模型就能知道突击级整个后半球都是没有防 ...</blockquote>
+然而一旦防线突破，那种山地路况侧翼只能死啊，原来部署的计划中侧后方攻击的战术机是类似武装直升机的定位，走位支援都挺灵活的，那晓得后来出现了要塞级还没预警……有预警还是好不少
+
+
+*****
+
+####  亚尔古水手  
+##### 937#       发表于 2021-10-11 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070652&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-11 09:32</a>
+
+https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
+感谢<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+一直想找个地方水抹布，但要么是有人月经话题水过了，要么就是没人感兴趣，sad
+
+

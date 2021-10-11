@@ -2659,3 +2659,48 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">光是把恋恋的过程略掉花田的妈在假药厂这块就难逃一杀，更别说这期可可没个人回了
 
 
+
+
+*****
+
+####  cqc1021  
+##### 1725#       发表于 2021-10-11 09:29
+
+
+其实把棒读当做恋恋的人设也不是不能接受。
+毕竟现实中也有人说自己母语时棒读得像机器人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  kata魂  
+##### 1726#       发表于 2021-10-11 09:36
+
+
+<img src="https://img.saraba1st.com/forum/202110/11/093601lu151u1bueouiciq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-163391607255232b2dc32bb02db6f9464eaf10043a357.jpg</strong> (306.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-11 09:36 上传
+
+
+说起希入队回我就想起天翔幻兽这个
+
+
+*****
+
+####  D麦林  
+##### 1727#       发表于 2021-10-11 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53069047&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-11 01:48</a>
+
+之前说花田只会写果千那种的leader不会写香音这种的，现在看不是他不会写而是香音本身的性格就跟果千差不多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">呜呜呜 香音 我的メスガキ香音
+
+
