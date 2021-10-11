@@ -13817,3 +13817,17 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 说反了，这台萝卜是人类反过来拟态beta的
 
 
+
+
+*****
+
+####  高龙  
+##### 941#       发表于 2021-10-11 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53072018&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-11 11:00</a>
+
+说反了，这台萝卜是人类反过来拟态beta的</blockquote>
+想起来了。我都忘了这个设定。
+
+

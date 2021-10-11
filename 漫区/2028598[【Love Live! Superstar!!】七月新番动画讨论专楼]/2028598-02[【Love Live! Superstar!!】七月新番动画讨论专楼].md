@@ -2803,3 +2803,55 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 恋没有CP导致她在团队内很尴尬，lovelive历来是两层队内关系，表一层是主线搞得团建，里一层是官推的CP，团建在主线搞完后，日常的整活高光基本在官推CP小团体之间进行人物补完，星团缩减规模到5人，理想的分配应该是23，现在搞成了221，这个1等于是只有一层队内关系，所以哪怕不谈入队团建主线尬不尬，后续这个人物补完就很难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 1735#       发表于 2021-10-11 11:31
+
+
+说实话这集独唱，完完全全是香音自我和解，和liella这个大家连接在一起的内涵是冲突的，难道和过去的自己连接也算数？和大家一起实现的梦想的系列主题也有点搭不上，花田没能把“大家过去的助力推动了现在的香音可以想起初心，把歌声献给大家。”这样的流程写的令人信服。
+
+我现在严重怀疑12集花田真的会搞骚操作。
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  蔵女  
+##### 1736#       发表于 2021-10-11 11:33
+
+
+话说恋恋的捧读这次是不是最明显的一回了？
+
+
+*****
+
+####  kbtit  
+##### 1737#       发表于 2021-10-11 11:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">棒读已经在我这算萌点了
+
+
+*****
+
+####  稀勢のささ  
+##### 1738#       发表于 2021-10-11 11:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是习惯了 感觉还没印象里的第一集棒
+
+
+*****
+
+####  chenflyyy  
+##### 1739#       发表于 2021-10-11 11:44
+
+
+作为素人来说就这样了，不可能都像小百合那样超规格的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

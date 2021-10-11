@@ -1451,3 +1451,20 @@ FB封大统领是公告的，而且还被起诉了
 只不过作为消费者也没啥好焦虑的，这也就刚玩十来年正版，大不了再回去玩盗版，满足不了需求的产品谁爱消费谁去。
 
 
+
+
+*****
+
+####  alecwong  
+##### 102#       发表于 2021-10-11 11:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058493&amp;ptid=2031158" target="_blank">Tring 发表于 2021-10-10 01:57</a>
+
+互联网能连通国外本身就是一个漏洞。</blockquote>
+受我一拜。
+
+
+为什么我不能加鹅。
+
+

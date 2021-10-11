@@ -3924,3 +3924,16 @@ queen这我笑死
 海贼都差不多这个画风，真正打人狠还得看狗子，在他手上敌人基本上没有完整的形状，五皇身上最大的疤也是他留下的。
 
 
+
+
+*****
+
+####  stevenzero  
+##### 55785#       发表于 2021-10-11 11:25
+
+
+腕龙不就是这样的恐龙吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
