@@ -4029,3 +4029,43 @@ ll其实一开始就是超现实设定，几个jk，谱曲编舞做道具样样�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 1828#       发表于 2021-10-12 01:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53073996&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-11 13:15</a>
+我觉得说可可是钢铁超人的意思和她性格优缺点没有什么关系。而是这个人在剧中根本就没有真正的消极和失落 ...</blockquote>
+我觉得你可能是隐形粉毛哭爱好者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新人马甲2  
+##### 1829#       发表于 2021-10-12 01:34
+
+
+ 本帖最后由 新人马甲2 于 2021-10-12 01:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么你们在开演前的小学集会堂前面打电话周围会静悄悄的，不会一接电话直接暴露位置吗
+
+
+*****
+
+####  secretgarnet  
+##### 1830#       发表于 2021-10-12 01:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53083303&amp;ptid=2028598" target="_blank">七七見奈波 发表于 2021-10-12 00:31</a>
+
+之前有人提过吧，这次星团是「私を叶える物語」（区别于初代的「みんなで叶えた物語」，不过这句话在星团官 ...</blockquote>
+之前那栋专楼里面有很多人提过这次星团成员入团“动机不纯”之类的观点，像是香音为了能再次唱出来，小千为了能追上香音，堇为了能出名被星探发掘之类的。其实完全可以换成另一个视点去解释：学园偶像并不是所有人共同的终点，而是自我实现中不可缺少的一步，也就是你提到的「私を叶える物語」。
+
+但是按照这个思路，可可的故事就会变得很有意思。学园偶像是可可实现崭新自我的动因不假，但可可同时也是自始至终最为在意lovelive的人——因为对学园偶像的热爱，也因为和家里约定好不出成绩就得回国。学园偶像对可可来说既是动因更是终点，那等liella到达终点之后，香音可以solo，小千有舞蹈，堇可以踏入演艺圈，恋可以办学校（或者拍tiktok），可可又该怎么办呢？
+
+其实类似的自我实现与团队目标的二元对立，是可以写得很精彩和深入的。如果这一季没有可可个人回是因为要把这份矛盾留到下一季用更充裕的篇幅来展开描写的话我也能接受，只是花田现在表现出的水平让我觉得他很难驾驭住这种主题……
+
+
