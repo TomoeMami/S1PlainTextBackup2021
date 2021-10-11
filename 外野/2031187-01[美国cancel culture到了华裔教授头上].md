@@ -1261,3 +1261,25 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 妈耶此天才也当垂不朽哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">回旋镖典范
 
 
+
+
+*****
+
+####  tanyouyu  
+##### 113#       发表于 2021-10-11 10:46
+
+
+说起这个，我倒想起刘索拉也搞过一个舞台剧《红都女皇》，表现“年轻时候不顾一切往上爬”的故事
+
+
+*****
+
+####  UnhappyTails  
+##### 114#       发表于 2021-10-11 10:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53060676&amp;ptid=2031187" target="_blank">神無月悠也 发表于 2021-10-10 12:38</a>
+那杜波依斯是不是该被石头砸死 他凭借外貌佯装白人的white passing放到今天是不是不正确 ...</blockquote>
+杜波依斯在我上中学的时候就被广泛反对啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从那以后我就觉得现行的白左理论建设是10000%的扛着红旗反红旗了！
+
+
