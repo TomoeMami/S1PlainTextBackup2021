@@ -3524,3 +3524,17 @@ cp人破防也不能全赖他们，这话都整出几乎挖地基的操作了怎
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偶数似乎c位没了，5人理想状态是3人白学2人cp锁死
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1796#       发表于 2021-10-11 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077693&amp;ptid=2028598" target="_blank">moshizhe 发表于 2021-10-11 17:13</a>
+
+怎么没有偶数的偶像团，这样cp就好分了</blockquote>
+有啊 Re:Stage
+
+

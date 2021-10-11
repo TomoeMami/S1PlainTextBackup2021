@@ -14066,3 +14066,38 @@ AL篇等于是只有中间一个选项影响最后遗书看谁的，前面刚回
 晓得了。
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 958#       发表于 2021-10-11 17:30
+
+
+说到官中，我在本篇官中的人员表里看到了jabel以及特别鸣谢Anitama，所以就是那个jabel？
+
+
+*****
+
+####  地方就是咖啡好  
+##### 959#       发表于 2021-10-11 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077700&amp;ptid=1860817" target="_blank">噗呸破屁诚 发表于 2021-10-11 17:13</a>
+
+AL篇等于是只有中间一个选项影响最后遗书看谁的，前面刚回来兵王龙傲天部分全是无关痛痒的选项 ...</blockquote>
+是这样啊，那抱着补完的想法我得考虑考虑前两篇……
+
+
+*****
+
+####  地方就是咖啡好  
+##### 960#       发表于 2021-10-11 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077702&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-11 17:13</a>
+
+没有了，alternative的互动选项仅仅是樱花作战成员的几封遗书（冥夜这个憨憨没写） ...</blockquote>
+仔细想了想，是这样的话，攻略整队女主的行为只能理解成男主魅力值MAX了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
