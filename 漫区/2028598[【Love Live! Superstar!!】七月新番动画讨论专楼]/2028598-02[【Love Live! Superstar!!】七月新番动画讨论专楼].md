@@ -3646,3 +3646,56 @@ lovelive奇数的双c曲也有啊
 但凡lovelive有个双，当初wildstars也不会变成海爷无cp曲了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  蜜梨柑  
+##### 1806#       发表于 2021-10-11 20:46
+
+
+就是奇数才容易有党争，党争自带流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 1807#       发表于 2021-10-11 21:01
+
+
+我看隔壁发现这个暗示挺有道理的..
+
+
+<img src="https://img.saraba1st.com/forum/202110/11/210108v4sfsv2fgv21p8sd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Nekomoe kissaten][Love Live! Superstar!!][11][720p][JPSC][v2].mp4_20211011_205401.768.jpg</strong> (117.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-11 21:01 上传
+
+
+这里章鱼烧五个...
+
+这里不正常因为一般来说章鱼烧都是6个一盒。
+
+
+章鱼烧连在一起...
+
+这里是不是指如同LIELLA一样，五人的羁绊。
+
+
+可可说无所谓吃进去都一样...
+
+这里是不是在比喻可可认为大家在一起唱出来就行。
+
+
+而小千则认为不行是失败作...
+
+这里小千和可可出现分歧认为这不是真正的唱出来。
+
+
+小千感觉比想象中的重啊..<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
