@@ -1492,3 +1492,16 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 今天官群里才说起，熏子阿姨带过的3个女演员，凤，文鸟，BBA，虽然东京最强未落地，但三个都是超级狠角色没跑的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  蕾丝  
+##### 6107#       发表于 2021-10-12 00:28
+
+
+好耶，那就练了，文鸟等啥时候歪到四星再说（
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+

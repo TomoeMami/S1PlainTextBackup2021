@@ -19002,3 +19002,14 @@ BA BS想简化操作，那就做Qte呗。
 —— 来自 HONOR YOK-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 5901#       发表于 2021-10-12 00:40
+
+
+我看op2打楔子时女主掉线，还以为会有场get the regret over的桥段<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

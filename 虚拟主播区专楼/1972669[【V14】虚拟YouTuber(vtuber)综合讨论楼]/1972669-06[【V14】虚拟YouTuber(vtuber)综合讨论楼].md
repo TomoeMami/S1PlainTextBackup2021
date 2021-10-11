@@ -942,3 +942,17 @@ syl 什么紧急 ...</blockquote>
 噗酱回来后你虹还会在吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  purdre  
+##### 7569#       发表于 2021-10-12 00:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53083071&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-10-12 00:04</a>
+
+虹en好像有个新人很热心于政治啊</blockquote>
+狐狸，前世ZZ套皮人，乌克兰裔，热衷康米主义
+
+
