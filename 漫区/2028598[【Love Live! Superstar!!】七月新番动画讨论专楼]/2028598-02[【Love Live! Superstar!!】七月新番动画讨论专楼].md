@@ -3633,3 +3633,16 @@ cp人破防也不能全赖他们，这话都整出几乎挖地基的操作了怎
 少歌是奇数，但也会玩双C导致队形不对称。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kata魂  
+##### 1805#       发表于 2021-10-11 20:32
+
+
+lovelive奇数的双c曲也有啊
+
+但凡lovelive有个双，当初wildstars也不会变成海爷无cp曲了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

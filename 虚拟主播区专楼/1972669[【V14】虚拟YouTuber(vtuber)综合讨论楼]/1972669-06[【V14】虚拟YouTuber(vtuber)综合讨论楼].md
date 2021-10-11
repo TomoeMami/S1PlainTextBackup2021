@@ -866,3 +866,22 @@ syl 什么紧急 ...</blockquote>
 又违反了什么规矩，小鬼子规矩好多啊
 
 
+
+
+*****
+
+####  NBXX  
+##### 7563#       发表于 2021-10-11 20:28
+
+
+[https://twitter.com/ratna_petit/status/1447538011927834624](https://twitter.com/ratna_petit/status/1447538011927834624)
+
+ラトナ・プティ クマの顔宝石 療養中不定期《にじさんじ所属》
+
+@ratna_petit
+
+10/12  21:00から休止になります。
+<img src="https://pbs.twimg.com/media/FBawJh_UUAgk4jE?format=jpg&amp;name=large" id="aimg_yd4ez" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/FBawJjqVQAElcHI?format=jpg&amp;name=large" id="aimg_B3gjG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
