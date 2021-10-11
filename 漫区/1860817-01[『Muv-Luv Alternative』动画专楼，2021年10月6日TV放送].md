@@ -13915,3 +13915,36 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 还是我记岔了？
 
 
+
+
+*****
+
+####  a.r.m  
+##### 947#       发表于 2021-10-11 15:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53075113&amp;ptid=1860817" target="_blank">GoInDown 发表于 2021-10-11 14:39</a>
+忘记了 但是我印象中浑身插满了刀刃就是苏制战术机的特色了
+
+还是我记岔了？ ...</blockquote>
+冷兵器总是对抗的下下策，战术机在这方面着墨也不是很多……除了炫技情况下，一般火器打光了拿冷兵器基本上就是完蛋啦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  再买自检星剁手  
+##### 948#       发表于 2021-10-11 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53074051&amp;ptid=1860817" target="_blank">GoInDown 发表于 2021-10-11 13:19</a>
+
+不至于吧233
+
+之前同事看的时候看到了死亡8分钟我就帮同事说这个人下一集就要死了
+
+结果下半集就挂了</blockquote>
+相当于ate前两集压缩到一集，只有有光环的人能活下来。后面就不会这么快节奏了哇
+
+

@@ -3408,3 +3408,44 @@ cp人破防也不能全赖他们，这话都整出几乎挖地基的操作了怎
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1786#       发表于 2021-10-11 15:49
+
+
+可可的大招肯定留第二季了。
+
+肉眼看得出星团对可可的上心，不可能重拿轻放的，十有八九个人回要和主线绑定。
+
+不出成绩回国这个是设定，不过上一话就说了，十集还在海选，要输比赛只能输预赛，那也太拉了，怎么都是有歌后舞后的队伍。
+
+大胆奶一口，第二季是可可主场，说不定要追到上海来，比沼津更远的地方（不是
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  kbtit  
+##### 1787#       发表于 2021-10-11 15:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大招（指友情yosoro）
+
+
+*****
+
+####  黑雪姫  
+##### 1788#       发表于 2021-10-11 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53076247&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-11 15:49</a>
+可可的大招肯定留第二季了。
+
+肉眼看得出星团对可可的上心，不可能重拿轻放的，十有八九个人回要和主线绑定 ...</blockquote>
+她们才一年级，完全有时间承受一二次失败。
+
+
