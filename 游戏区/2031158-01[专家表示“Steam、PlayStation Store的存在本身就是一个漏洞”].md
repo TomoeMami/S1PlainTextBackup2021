@@ -1492,3 +1492,14 @@ FB封大统领是公告的，而且还被起诉了
 咦？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  泰非力的答复  
+##### 105#       发表于 2021-10-11 17:52
+
+
+那个当天就被全网禁的流出的会议记录才几天啊，这就一拥而上又开始洗地了？真当别人记忆力只有七秒吗？
+
+

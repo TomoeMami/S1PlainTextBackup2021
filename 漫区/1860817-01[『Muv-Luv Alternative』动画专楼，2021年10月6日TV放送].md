@@ -14101,3 +14101,19 @@ AL篇等于是只有中间一个选项影响最后遗书看谁的，前面刚回
 仔细想了想，是这样的话，攻略整队女主的行为只能理解成男主魅力值MAX了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  法皇干政  
+##### 961#       发表于 2021-10-11 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53075113&amp;ptid=1860817" target="_blank">GoInDown 发表于 2021-10-11 14:39</a>
+
+忘记了 但是我印象中浑身插满了刀刃就是苏制战术机的特色了
+
+还是我记岔了？ ...</blockquote>
+我记得漫画里面说这个设计是用来对付小型种爬上身的，效果不知道如何
+
+
