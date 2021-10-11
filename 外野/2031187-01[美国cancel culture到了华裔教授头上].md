@@ -1172,3 +1172,16 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 当一个人完全不侮辱黑人，说明他对侮辱黑人的点了如指掌，那么已经是在侮辱黑人了，必须出重拳！
 
 
+
+
+*****
+
+####  沈淮  
+##### 105#       发表于 2021-10-11 08:37
+
+
+笑死我了
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

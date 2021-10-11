@@ -2551,3 +2551,38 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好事儿，说明真的有新粉
 
 
+
+
+*****
+
+####  ads147147  
+##### 1717#       发表于 2021-10-11 08:29
+
+
+缪的希个人回是很不错，主要是kke入队的时候果对希的态度，花田写的也很诡异，果直接一脸懵的看着希说她要入队，好家伙是不是希不说缪就打算一直8人团。
+
+就好像这次恋的描写一样，唐突的部分特别多，让人觉得花田就是在应付，实在兜不住就来个个人回发糖。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  saglork  
+##### 1718#       发表于 2021-10-11 08:34
+
+
+うちもいれて、9人や可是lovelive迫害黑历史名场面，我一个绘希粉都经常拿出来迫害<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1719#       发表于 2021-10-11 08:37
+
+
+你以为观众在讨论剧情，其实大部分在推爱豆，磕cp，关注点都是戏份够不够，塑造好不好，士大夫疼不疼，老饭圈了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+

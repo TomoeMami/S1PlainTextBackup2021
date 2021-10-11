@@ -808,3 +808,21 @@ BOOGEY VOXX 3rd Album
 <blockquote>清优华・选择成为偶像的理由</blockquote>
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7559#       发表于 2021-10-11 08:32
+
+
+ 本帖最后由 poipanchao 于 2021-10-11 08:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53068012&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-10 23:59</a>
+日常被粉丝碰到oreapo私下双排，看来两位应该都不会开播了
+杂谈，我的杂谈   歌回，我的歌回
+syl 什么紧急 ...</blockquote>
+她们干啥了就杞憂民增生？
+还有现在oreapo能有一天不腻在一起的吗？
+不装了咯
+
+

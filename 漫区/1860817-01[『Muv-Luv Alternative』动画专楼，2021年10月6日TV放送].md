@@ -13607,3 +13607,37 @@ al是正传，男主是最终樱花作战的核心成员，ate是外传，外传
 本篇之后有了
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 927#       发表于 2021-10-11 08:37
+
+
+ 本帖最后由 再买自检星剁手 于 2021-10-11 08:38 编辑 
+
+ate动画看完了，一开始被s1的一群-2分吓怕，看下来除了最终战不明所以外还好
+
+深红姐妹谜语人，前期跨服聊天居然能聊下去……此外就是崔亦菲的不明倒贴看着头痛
+
+唯依公主挺可爱的，只不过游戏版op明示了后面要惨死<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+最后一集洗 脑装置激活后，深红姐妹先发疯，把驾驶座掏出来，装置破坏了，怎么没把他们的上司一起干掉啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  アーリィ  
+##### 928#       发表于 2021-10-11 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070096&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-11 08:37</a>
+ate动画看完了，一开始被s1的一群-2分吓怕，看下来除了最终战不明所以外还好
+
+深红姐妹谜语人，前期跨服聊 ...</blockquote>
+篁唯依假死的
+
+
