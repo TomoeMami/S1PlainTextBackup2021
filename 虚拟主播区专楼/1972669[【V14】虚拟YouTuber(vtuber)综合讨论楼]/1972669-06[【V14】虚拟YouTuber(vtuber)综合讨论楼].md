@@ -995,3 +995,31 @@ What are the odds that she is jewish?
 Twitch主播收入前100名只有三名女性主播
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7572#       发表于 2021-10-12 02:50
+
+
+乌克兰康米，是老大哥
+
+
+*****
+
+####  alcoholic1000  
+##### 7573#       发表于 2021-10-12 02:57
+
+
+ 本帖最后由 alcoholic1000 于 2021-10-12 03:18 编辑 
+
+Nina Kosaka与Monkeyism
+
+贴个视频，带有强烈个人情绪但说的还算清楚
+[https://www.youtube.com/watch?v=0BiiDS5SgP4](https://www.youtube.com/watch?v=0BiiDS5SgP4)
+
+
+看了看老姐的现存录播，挺逗的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"> 比mommy营业带劲
+
+

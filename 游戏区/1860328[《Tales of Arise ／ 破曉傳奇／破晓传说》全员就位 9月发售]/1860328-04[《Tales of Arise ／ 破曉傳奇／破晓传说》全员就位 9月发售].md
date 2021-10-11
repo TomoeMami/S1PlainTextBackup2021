@@ -19013,3 +19013,14 @@ BA BS想简化操作，那就做Qte呗。
 我看op2打楔子时女主掉线，还以为会有场get the regret over的桥段<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 5902#         楼主| 发表于 2021-10-12 01:47
+
+
+互联网上还没有很多原声音轨的二次创作，搞得我都有点技痒想用口琴吹一下 flame of hope<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
