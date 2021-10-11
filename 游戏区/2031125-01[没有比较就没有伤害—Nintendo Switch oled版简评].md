@@ -937,3 +937,23 @@ IPS那区区1000:1的对比度当然是不够的…
 2500？
 
 
+
+
+*****
+
+####  faithlifer  
+##### 73#       发表于 2021-10-11 16:32
+
+
+能多发几张对比图么，好通透<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  迷途lite  
+##### 74#       发表于 2021-10-11 16:36
+
+
+jc和dock跟续航版可以互换吗？
+
+

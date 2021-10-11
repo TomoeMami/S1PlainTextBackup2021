@@ -3472,3 +3472,23 @@ cp人破防也不能全赖他们，这话都整出几乎挖地基的操作了怎
 一开始可可推动香音突破心理障碍，能唱出来的时候，照样有人说显得小千这个青梅竹马这么多年都没发挥作用啊。现在小千发挥作用了，又轮到说可可前三集的作用被取代了啰。反正哪一边起作用了，另一边就开始玩割裂。
 
 
+
+
+*****
+
+####  TTAA  
+##### 1791#       发表于 2021-10-11 16:22
+
+
+可恋假药厂永远不倒闭！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 1792#       发表于 2021-10-11 16:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">哎都是爱女心切
+
+
