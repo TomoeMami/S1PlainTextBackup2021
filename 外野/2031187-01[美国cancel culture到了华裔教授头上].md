@@ -1161,3 +1161,14 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  耕者有其田  
+##### 104#       发表于 2021-10-11 08:21
+
+
+当一个人完全不侮辱黑人，说明他对侮辱黑人的点了如指掌，那么已经是在侮辱黑人了，必须出重拳！
+
+
