@@ -13658,3 +13658,45 @@ ate动画看完了，一开始被s1的一群-2分吓怕，看下来除了最终�
 主任没死，不过和勇爷也没能在一起，原因的话，可以考虑去玩一下游戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  最后的法芙娜  
+##### 930#       发表于 2021-10-11 09:10
+
+
+<blockquote>whitefang 发表于 2021-10-11 08:47
+主任没死，不过和勇爷也没能在一起，原因的话，可以考虑去玩一下游戏 ...</blockquote>
+当年流行的话，有情人终成兄妹
+
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 931#       发表于 2021-10-11 09:16
+
+
+坛里还有唯依公主的戏服，有趣。看样子得把ate动画专楼也爬一遍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+本篇动画化了，唯依公主不出来说两句吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚尔古水手  
+##### 932#       发表于 2021-10-11 09:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070461&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-11 09:16</a>
+
+坛里还有唯依公主的戏服，有趣。看样子得把ate动画专楼也爬一遍
+
+
+本篇动画化了，唯依公主不出来说两 ...</blockquote>
+专楼有指路吗）<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+

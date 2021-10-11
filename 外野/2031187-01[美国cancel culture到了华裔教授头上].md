@@ -1196,3 +1196,17 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 艹，看了百科笑死
 
 
+
+
+*****
+
+####  الطائر  
+##### 107#       发表于 2021-10-11 09:19
+
+
+美国学生发起“打老师耳光”挑战，全美学校发出警告：完全不可接受
+[https://finance.sina.com.cn/tech ... tzqtyu0695799.shtml](https://finance.sina.com.cn/tech/2021-10-11/doc-iktzqtyu0695799.shtml)
+
+[https://www.tiktok.com/@teachers ... 7015378801622387973](https://www.tiktok.com/@teachersdontunderstand/video/7015378801622387973)
+
+

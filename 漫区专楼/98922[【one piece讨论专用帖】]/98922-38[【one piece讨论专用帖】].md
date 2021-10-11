@@ -3910,3 +3910,17 @@ queen这我笑死
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这引奈落大招对五皇也太刮痧了吧，挨了一下之后翻白眼没多久就起来觉醒霸王色缠绕了
 
 
+
+
+*****
+
+####  武男  
+##### 55784#       发表于 2021-10-11 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53069530&amp;ptid=98922" target="_blank">蓝鸥之魂 发表于 2021-10-11 04:11</a>
+
+这引奈落大招对五皇也太刮痧了吧，挨了一下之后翻白眼没多久就起来觉醒霸王色缠绕了 ...</blockquote>
+海贼都差不多这个画风，真正打人狠还得看狗子，在他手上敌人基本上没有完整的形状，五皇身上最大的疤也是他留下的。
+
+
