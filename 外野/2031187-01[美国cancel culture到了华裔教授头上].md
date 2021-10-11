@@ -1354,3 +1354,22 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 所以这位犯啥事了？拒绝黑人扮演中国人吗？
 
 
+
+
+*****
+
+####  C.W.Nimitz  
+##### 121#       发表于 2021-10-11 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53073677&amp;ptid=2031187" target="_blank">火箭布雷器 发表于 2021-10-10 20:49</a>
+
+主楼被封了啊。
+
+所以这位犯啥事了？拒绝黑人扮演中国人吗？</blockquote>
+上课放了个白涂黑的奥赛罗结果被cancel了
+
+
+但重点不是这个<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 具体看过往回复
+
+

@@ -13831,3 +13831,35 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 想起来了。我都忘了这个设定。
 
 
+
+
+*****
+
+####  GoInDown  
+##### 942#       发表于 2021-10-11 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53053751&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-9 18:29</a>
+
+搜了搜贴吧，找到谈了谈冷兵器的老帖子。</blockquote>
+冷兵器的巅峰不是苏联人么233333
+
+
+*****
+
+####  GoInDown  
+##### 943#       发表于 2021-10-11 13:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53043932&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-9 00:47</a>
+
+都是这个节奏的话，参考漫画，做完12.5事件不错了</blockquote>
+不至于吧233
+
+之前同事看的时候看到了死亡8分钟我就帮同事说这个人下一集就要死了
+
+结果下半集就挂了
+
+这刀法比ate快了不少emmm
+
+
