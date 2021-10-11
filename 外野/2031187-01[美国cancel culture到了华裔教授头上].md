@@ -1248,3 +1248,16 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 我记得女主很爱看西片来着。即使深处黑暗，但始终心向光明！
 
 
+
+
+*****
+
+####  jasoncoop  
+##### 112#       发表于 2021-10-11 09:48
+
+
+看你们说百科百科的，心说俺见多识广再夸张还能夸张到哪去
+去看到最后
+妈耶此天才也当垂不朽哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">回旋镖典范
+
+

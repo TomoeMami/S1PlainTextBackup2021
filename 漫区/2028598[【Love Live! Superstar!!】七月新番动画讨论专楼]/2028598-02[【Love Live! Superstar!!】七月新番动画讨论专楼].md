@@ -2704,3 +2704,14 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">呜呜呜 香音 我的メスガキ香音
 
 
+
+
+*****
+
+####  凡人  
+##### 1728#       发表于 2021-10-11 09:53
+
+
+恋厨提刀逼问花田他也是有理由的，都给了你两集个人回了，其中还有一集ed都给你省了你还能要我怎样，至于水平差，人总有个发挥失常的时候。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

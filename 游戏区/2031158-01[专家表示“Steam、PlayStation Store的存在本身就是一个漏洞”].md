@@ -1398,3 +1398,20 @@ FB封大统领是公告的，而且还被起诉了
 看来泥潭有不少钻狗洞钻出自豪感的
 
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 98#       发表于 2021-10-11 09:49
+
+
+ 本帖最后由 Stellar_Frost 于 2021-10-11 09:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53069640&amp;ptid=2031158" target="_blank">zashou 发表于 2021-10-11 06:32</a>
+热钱如果是说投入的话，其实今年是最离谱的，主要还是疫情红利，腾讯今年投疯了，往年我们也没见到 ...</blockquote>
+腾讯游戏投资确定扫射战略是去年的事啊
+今年有不少人思路其实已经又转一次了
+
+军备竞赛对独立游戏也是有伤害的，但是只能说什么伤害都比不过碎地拳，兰博大拇指.jpg
+
+

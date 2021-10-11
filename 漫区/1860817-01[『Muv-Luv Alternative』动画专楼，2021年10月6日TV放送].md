@@ -13773,3 +13773,18 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 一直想找个地方水抹布，但要么是有人月经话题水过了，要么就是没人感兴趣，sad
 
 
+
+
+*****
+
+####  a.r.m  
+##### 938#       发表于 2021-10-11 09:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070665&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-11 09:34</a></blockquote>
+拟态战术机有啥用呢，不太明白虫子的想法。
+想单机突破防线？可是战术机的结构本身就不怎么经打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
