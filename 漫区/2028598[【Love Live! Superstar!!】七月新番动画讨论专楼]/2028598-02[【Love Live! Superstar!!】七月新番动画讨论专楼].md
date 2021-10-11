@@ -3339,3 +3339,72 @@ cp人破防也不能全赖他们，这话都整出几乎挖地基的操作了怎
 推可香跟一厢情愿地认为可可一手包办解决了香音的问题是两个概念
 
 
+
+
+*****
+
+####  kbtit  
+##### 1780#       发表于 2021-10-11 15:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">“为什么说香音是神”
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1781#       发表于 2021-10-11 15:25
+
+
+恋恋也没有落魄嘛，说是女仆工资发不起，到现在都换冬装了，几个月了吧，还不是住着大豪斯，日常开销也看不出有障碍。
+
+估计屑爹在海外有打钱，说不定下季多出个金发碧眼的義妹妹转校吵着闹着也要当偶像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 1782#       发表于 2021-10-11 15:27
+
+
+别那么认真啦
+
+
+*****
+
+####  qratosone  
+##### 1783#       发表于 2021-10-11 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53075844&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-11 15:25</a>
+
+恋恋也没有落魄嘛，说是女仆工资发不起，到现在都换冬装了，几个月了吧，还不是住着大豪斯，日常开销也看不 ...</blockquote>
+家里的存款支付日常开销肯定是足够的，填学校的窟窿不够并不一定代表日常生活不够用。另外第八集开篇恋恋说了她爸打算接她去海外，说明肯定不会不管她，无非就是不给学校出钱罢了。
+
+
+*****
+
+####  笋狐  
+##### 1784#       发表于 2021-10-11 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53075771&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-11 15:21</a>
+
+推可香跟一厢情愿地认为可可一手包办解决了香音的问题是两个概念，制作组本来就是按照亚撒西男主的形象来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那也是推本位问题，和攻受有啥关系啊，吃可香的有可能吃得下可堇，但多半吃不下香千
+
+
+*****
+
+####  不能摸的屁屁  
+##### 1785#       发表于 2021-10-11 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53075903&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-11 15:28:39</a>
+家里的存款支付日常开销肯定是足够的，填学校的窟窿不够并不一定代表日常生活不够用。另外第八集开篇恋恋 ...</blockquote>大抵是这么想的，就是预期的落魄路线落空了，总之恋恋的设定四不像，身世玩个大的又轻轻放下，还不如不玩，尤其是还要跟废校这种烂梗结合起来。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
