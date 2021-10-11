@@ -3549,3 +3549,19 @@ cp人破防也不能全赖他们，这话都整出几乎挖地基的操作了怎
 花田后期不推可香其实也合理，如果可香锁了剩下三个人堇千恋岂不是很尴尬，卖cp俩俩配对都要从头写起，香千+可堇基本是最优解了（可怜的恋恋）
 
 
+
+
+*****
+
+####  cqc1021  
+##### 1798#       发表于 2021-10-11 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077744&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-11 17:15</a>
+偶数似乎c位没了，5人理想状态是3人白学2人cp锁死</blockquote>
+双C呗。
+而且偶数也可以单C，站三排就行了，6个人就123，10个人就145。第三排中间的稍微斜一点就不会被挡。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
