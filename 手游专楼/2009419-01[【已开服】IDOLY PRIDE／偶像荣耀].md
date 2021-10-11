@@ -7074,3 +7074,14 @@ mana个人剧情好甜啊，疯狂推妹妹给牧野当女友笑死
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">定期巡演感觉变难了啊，第五面拿了一堆buff还是到不了S+1，最后的boss战手调不如自动，自动了才过可以说是非常丢人了。 不过辅助券换完了随缘吧。钢针这个一面12格的模式还是早点迭代了吧，有点蠢真的
 
 
+
+
+*****
+
+####  两个路人  
+##### 509#       发表于 2021-10-11 20:14
+
+
+佛系玩家每天上线就看幽灵小姐姐写日记 https://twitter.com/NagaseDiary?s=09
+
+
