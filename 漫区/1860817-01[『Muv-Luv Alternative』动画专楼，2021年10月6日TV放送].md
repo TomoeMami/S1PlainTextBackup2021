@@ -13863,3 +13863,37 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 这刀法比ate快了不少emmm
 
 
+
+
+*****
+
+####  GoInDown  
+##### 944#       发表于 2021-10-11 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53024114&amp;ptid=1860817" target="_blank">bartholo4 发表于 2021-10-7 15:58</a>
+
+世界观设定里是人类没有掌握热核武器吗？感觉这beta也不肉，聚变空爆，地雷洗涤不好吗
+
+
+—— 来自 Google P ...</blockquote>
+对于降落在北美大陆的hive人类因为已经吃瘪了直接核弹洗掉了
+
+对于欧亚大陆上已经铸好的hive设定上蘑菇用处不大
+
+
+*****
+
+####  a.r.m  
+##### 945#       发表于 2021-10-11 13:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53073982&amp;ptid=1860817" target="_blank">GoInDown 发表于 2021-10-11 13:14</a>
+冷兵器的巅峰不是苏联人么233333</blockquote>
+你说链锯吗？就是锯不动突击级的甲壳，这是一大缺憾。
+而统一战线的77式长刀效果相当不错，能直接剁开突击级的甲壳。东德（在动画里面也能看到）进口了这个武器，动画里面提到海王星作战中在美军的F-14雄猫和丽姿机的牵制配合下杀死了当时对战术机几乎不可战胜的要塞级，之后也砍死了难缠的重光线级。同样的，帝国的74式长刀也能有砍断突击级和要塞级的效果。
+而欧洲部队的BWS-3，就是那把大剑，外号就叫要塞级杀手——Fort Slayer。而其他的，像是西德的斧头和法国的镰刀，设定上没说能不能像上面几把冷兵器一样。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
