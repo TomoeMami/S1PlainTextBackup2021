@@ -3133,3 +3133,53 @@ cp玩大咯<img src="https://static.saraba1st.com/image/smiley/face2017/054.png"
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  player3960  
+##### 1763#       发表于 2021-10-11 14:11
+
+
+人家是吃一整个饼，你这左掰一点右掰一点，拼起来份量是差不多了，可tm全是皮还没有馅。
+
+恋就不说了，给的饼小不说馅还是变质的，htfm<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jobtownb  
+##### 1764#       发表于 2021-10-11 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53068177&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-11 00:14</a>
+爱马仕本家动画的质量基本上不可超越，还是不能比</blockquote>
+刚入坑的年轻人看过本家动画的应该比较少吧，他们看这集的体验会更好些
+
+
+*****
+
+####  kbtit  
+##### 1765#       发表于 2021-10-11 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53074597&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-11 15:01</a>
+
+那隔壁岚珠写成了巨婴反派也算开恩吗
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我的意思是日本动画中国角色就算边缘化也很正常，你说搞成隔壁那种我确实没法反驳
+
+
+*****
+
+####  damian-wade  
+##### 1766#       发表于 2021-10-11 14:19
+
+
+说起来阿恋突然加的那个意义不明的落魄大小姐的设定其实挺适合给动画岚珠，让她吃瘪哭哭，体验一下中之人的生活，不比雨野强？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
