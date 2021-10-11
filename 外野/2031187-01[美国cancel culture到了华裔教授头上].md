@@ -1327,3 +1327,17 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 这百度百科属实牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  神無月悠也  
+##### 119#       发表于 2021-10-11 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53072006&amp;ptid=2031187" target="_blank">UnhappyTails 发表于 2021-10-11 10:59</a>
+
+杜波依斯在我上中学的时候就被广泛反对啦至于博克尔华盛顿更是独夫黑贼！从那以后我就觉得 ...</blockquote>
+哦 原来已经被批倒批臭了 好歹杜波依斯也是黑人解放运动先驱吧
+
+

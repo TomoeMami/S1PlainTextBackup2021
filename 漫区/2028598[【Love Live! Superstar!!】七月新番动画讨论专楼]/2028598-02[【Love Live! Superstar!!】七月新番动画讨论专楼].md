@@ -2939,3 +2939,99 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来确实是年轻人的第一部LL
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 1747#       发表于 2021-10-11 12:26
+
+
+ 本帖最后由 chenflyyy 于 2021-10-11 12:28 编辑 
+
+这集风评分歧这么大我是想不到，甚至可以说是分歧最严重的一集，有人觉得是最棒的一集，有人觉得毁了这部动画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想想跟第6集差不多，怎么香千回都这样
+
+
+*****
+
+####  kata魂  
+##### 1748#       发表于 2021-10-11 12:27
+
+
+我个人是80-85，日本那边好评低于85我都当他们抛弃星团了
+
+
+*****
+
+####  笋狐  
+##### 1749#       发表于 2021-10-11 12:29
+
+
+ 本帖最后由 笋狐 于 2021-10-11 12:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果你说的最棒评价是来自那几个花田全肯定的熟面孔就算了，这几位78话的时候洗得那叫一个勤，负面更不用说了，前几集为了待遇扯头花的时候就有人吐槽过强推加农的问题，这话一出是并着角色厨cp厨我们联合了属于是
+
+
+*****
+
+####  寒风夜  
+##### 1750#       发表于 2021-10-11 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53073377&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-11 12:26</a>
+
+这集风评分歧这么大我是想不到，甚至可以说是分歧最严重的一集，有人觉得是最棒的一集，有人觉得毁了这部动 ...</blockquote>
+cp玩大咯<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 1751#       发表于 2021-10-11 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53073377&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-11 12:26</a>
+
+这集风评分歧这么大我是想不到，甚至可以说是分歧最严重的一集，有人觉得是最棒的一集，有人觉得毁了这部动 ...</blockquote>
+
+
+*****
+
+####  megapikachu  
+##### 1752#       发表于 2021-10-11 12:38
+
+
+说白了，不就是可可算是双重中国人（角色+声优），所以才总说个人回嘛，否则已经有了可香+可堇了，如果加上纯属可可的个人回，再考虑到可堇在567的铺垫，等于超过五分之三的内容可可都是重点角色了，staff真可能这么干？
+
+
+至于贴吧，不就选择性失忆嘛。之前塑造可堇的时候，表现过可可性格上的缺点和待人处事的不足之处了。那时候就上纲上线，什么“给可可招黑”啦，“可可人气都掉光”啦，甚至连“可可没有亡于国籍，却亡于花田”都来了。怎么，现在可可听从队友的劝告，更多地去了解堇，两个人也和解了，又变成没负面的钢铁超人了？
+
+
+*****
+
+####  qratosone  
+##### 1753#       发表于 2021-10-11 12:38
+
+
+不会真的有可可推想看机场回消失回这种驴唇不对马嘴的恶俗烂梗吧？
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  ads147147  
+##### 1754#       发表于 2021-10-11 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53073529&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-11 12:38</a>
+不会真的有可可推想看机场回消失回这种驴唇不对马嘴的恶俗烂梗吧？
+
+—— 来自 HUAWEI OCE-AN10, Android 1 ...</blockquote>
+泥潭一直是shit大于白开水的巨魔心态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+现在我的心态是花田赶紧滚出爱生活。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
