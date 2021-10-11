@@ -3845,3 +3845,17 @@ mzs老师的可堇本要出惹
 章鱼摊老板究竟是怎么样的存在呢，章鱼摊就一个人而且让一个打工的为所欲为甚至把摊拉到学校门口，每天疑似还能白吃章鱼丸子
 
 
+
+
+*****
+
+####  kbtit  
+##### 1815#       发表于 2021-10-11 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53081110&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-11 22:01</a>
+
+我看隔壁发现这个暗示挺有道理的..</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">可阿炮第一次能唱出来的时候只有可香两人啊
+
+
