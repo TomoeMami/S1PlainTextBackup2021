@@ -2894,3 +2894,48 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 我作为可厨肯定是不满的，虽然也真没指望追飞机，但你好歹给个像模像样的一个个人回啊，就是那种不用听别人苦恼的而是听可可讲自己的事。可香三集跟可堇塑造的可可形象确实可以，可这完全是被动接受她人的烦恼，真跟贴吧说的那样钢铁超人了，一点负面都没有。本来第六集还没这想法，第11集一出，完全是解决别人苦恼的工具人了，幼驯染一人拿可可垫脚一次是吧，solo没有，个人回得展望未来，自己三集的剧情还得给别人垫脚，甘霖娘好吧。至于恋厨有什么想法，我个人建议不要想直接去砍。一个卖角色的角色厨能没意见就见鬼了
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1743#       发表于 2021-10-11 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53072299&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-11 11:16</a>
+
+准确说是魔怔CP人，这一话作为leader补完计划其实没太大问题，花田的水平能把成长写到这个地步已经不容易 ...</blockquote>
+普通CP人被这话伤到了也很正常啊，虽说被星团巅峰养出来的可香人确实普遍要比其他CP厨入脑
+
+之前可香就被各种切香肠，起始两人里可可的作用被无限淡化，这次还来个CP的象征性事件被覆盖这种真实伤害，打到CP的根基了
+
+
+*****
+
+####  寒风夜  
+##### 1744#       发表于 2021-10-11 12:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怎么5人反而拉了呢
+
+
+*****
+
+####  damian-wade  
+##### 1745#       发表于 2021-10-11 12:22
+
+
+这集看着好多角色CP厨不高兴，但理由都比较私心，看好n站评分不会低甚至可能比上集还要高，因为单就这集来说，对拉拉而言十分王道和zzzq了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  cybernetics31  
+##### 1746#       发表于 2021-10-11 12:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来确实是年轻人的第一部LL
+
+
