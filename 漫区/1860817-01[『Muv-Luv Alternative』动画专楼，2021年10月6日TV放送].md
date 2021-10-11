@@ -13959,3 +13959,43 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 啊，ate不是白毛姐赢了吗我记得
 
 
+
+
+*****
+
+####  地方就是咖啡好  
+##### 950#       发表于 2021-10-11 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53065356&amp;ptid=1860817" target="_blank">SorroFrost 发表于 2021-10-10 20:06</a>
+
+个人还是推荐游戏，muv最好的体验载体目前还是游戏</blockquote>
+那么，游戏的官中和民间汉化哪个比较好呢？
+
+
+*****
+
+####  hlazd  
+##### 951#       发表于 2021-10-11 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077293&amp;ptid=1860817" target="_blank">地方就是咖啡好 发表于 2021-10-11 16:51</a>
+
+那么，游戏的官中和民间汉化哪个比较好呢？</blockquote>
+如果你问本篇的话，是官方收编了民间汉化，所以是一个东西
+
+
+*****
+
+####  桧月彩花  
+##### 952#       发表于 2021-10-11 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077293&amp;ptid=1860817" target="_blank">地方就是咖啡好 发表于 2021-10-11 16:51</a>
+
+那么，游戏的官中和民间汉化哪个比较好呢？</blockquote>
+官方中文 x
+
+民间招安 o
+
+
