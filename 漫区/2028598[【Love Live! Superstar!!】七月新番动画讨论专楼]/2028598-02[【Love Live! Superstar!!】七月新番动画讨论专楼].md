@@ -2786,3 +2786,20 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 <img src="https://p.sda1.dev/2/bc028841288041e11b9333486937e2bb/20211011_110318.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saglork  
+##### 1734#       发表于 2021-10-11 11:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53071974&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-11 10:57</a>
+那个ぶっちゃけスレ也是其乐融融啊，推就更不用说
+
+幼驯染只要是幼驯染就已经赢麻了，唯一有黑泥的只有可香 ...</blockquote>
+准确说是魔怔CP人，这一话作为leader补完计划其实没太大问题，花田的水平能把成长写到这个地步已经不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+唯一的遗憾就是恋和可可的补完只能等下一季了，可可还好说，毕竟现在留下的基本是积极的印象，除了体力基本完美超人，CP热度也炒的很高
+恋没有CP导致她在团队内很尴尬，lovelive历来是两层队内关系，表一层是主线搞得团建，里一层是官推的CP，团建在主线搞完后，日常的整活高光基本在官推CP小团体之间进行人物补完，星团缩减规模到5人，理想的分配应该是23，现在搞成了221，这个1等于是只有一层队内关系，所以哪怕不谈入队团建主线尬不尬，后续这个人物补完就很难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
