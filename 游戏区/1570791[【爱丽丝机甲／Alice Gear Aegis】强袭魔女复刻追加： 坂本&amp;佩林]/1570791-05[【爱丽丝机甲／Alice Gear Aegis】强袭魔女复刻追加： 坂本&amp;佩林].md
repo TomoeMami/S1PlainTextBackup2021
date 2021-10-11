@@ -1438,3 +1438,16 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 等手恢复一下再打好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  蕾丝  
+##### 6103#       发表于 2021-10-11 21:45
+
+
+话说，有打算练一个爱花之外的奶角来应付这种高难，但文鸟没有四星，薰子的话怎么样？
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+

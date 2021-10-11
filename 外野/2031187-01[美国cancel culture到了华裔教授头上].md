@@ -1462,3 +1462,26 @@ https://finance.sina.com.cn/tech/2021 ...</blockquote>
 看到百科最后，直接想到BBC今年初的一个六集纪录片《Can't Get You Out Of My Head: An Emotional History of the Modern World》：不仅把J作为主线之一，而且基本就是那个调调。当时看那纪录片的感觉大概就跟楼上们看到百科最后一段相似 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  蝶梦魂  
+##### 129#       发表于 2021-10-11 21:47
+
+
+草…这代表作品   后浪推前浪
+
+
+*****
+
+####  巫山  
+##### 130#       发表于 2021-10-11 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53060518&amp;ptid=2031187" target="_blank">墨影云水瑶 发表于 2021-10-10 12:21</a>
+
+正常，现在美国很多华裔已经被进步二代子女批斗了，</blockquote>
+在红迪上很多华裔二代痛陈自己老子或者老妈给自己**反华。导致自己之前反对自己华人身份又没有白人身份精神错乱。尤其是那种白爸黄妈的，基本生活在白人至上环境中，自己老爸就是白右，从小被老子教育种族歧视，结果长大发现自己歧视自己。很好玩的。
+
+
