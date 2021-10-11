@@ -2586,3 +2586,42 @@ sayurin的独唱没得说，顶中顶；但演出方面有两点小小的不满�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  ads147147  
+##### 1720#       发表于 2021-10-11 08:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070085&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-11 08:37</a>
+你以为观众在讨论剧情，其实大部分在推爱豆，磕cp，关注点都是戏份够不够，塑造好不好，士大夫疼不疼，老饭 ...</blockquote>
+塑造的好不好不就是剧情的一部分。
+
+而且贩卖梦想类的动画，结果都是定死的，过程很重要。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  ads147147  
+##### 1721#       发表于 2021-10-11 08:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070062&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-11 08:34</a>
+うちもいれて、9人や可是lovelive迫害黑历史名场面，我一个绘希粉都经常拿出来迫害恋恋连这种印象深 ...</blockquote>
+花田：刚看完eva是这样的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  kata魂  
+##### 1722#       发表于 2021-10-11 08:56
+
+
+本以为会搞事所以默认恋没救了，但既然不搞大事的话，最后一集不如给恋发挥一下，就算平淡收尾好歹得救一下啊
+
+

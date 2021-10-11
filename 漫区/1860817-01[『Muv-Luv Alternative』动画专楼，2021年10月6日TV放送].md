@@ -13641,3 +13641,20 @@ ate动画看完了，一开始被s1的一群-2分吓怕，看下来除了最终�
 篁唯依假死的
 
 
+
+
+*****
+
+####  whitefang  
+##### 929#       发表于 2021-10-11 08:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070096&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-11 08:37</a>
+
+ate动画看完了，一开始被s1的一群-2分吓怕，看下来除了最终战不明所以外还好
+
+
+深红姐妹谜语人，前期跨服聊 ...</blockquote>
+主任没死，不过和勇爷也没能在一起，原因的话，可以考虑去玩一下游戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
