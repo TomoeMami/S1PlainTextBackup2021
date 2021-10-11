@@ -1451,3 +1451,14 @@ https://finance.sina.com.cn/tech/2021 ...</blockquote>
 <img src="https://p.sda1.dev/2/880b47e73b928024419c44e0d352d82d/IMG_20211011_212119.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  境堺の侍  
+##### 128#       发表于 2021-10-11 21:42
+
+
+看到百科最后，直接想到BBC今年初的一个六集纪录片《Can't Get You Out Of My Head: An Emotional History of the Modern World》：不仅把J作为主线之一，而且基本就是那个调调。当时看那纪录片的感觉大概就跟楼上们看到百科最后一段相似 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
