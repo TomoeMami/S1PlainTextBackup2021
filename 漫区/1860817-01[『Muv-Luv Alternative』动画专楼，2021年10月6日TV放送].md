@@ -14206,3 +14206,17 @@ emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好�
 真有这设定啊，我还以为是调侃呢，看来是囫囵了。
 
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 968#       发表于 2021-10-12 00:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53082719&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-11 23:18</a>
+
+是链锯和身上那堆刀片吧，和武御雷身上那堆刀片一样，狭窄地带的密集接近战专用。（也就是针对说突击HIVE ...</blockquote>
+武御雷一系列不都说是气动布局么
+
+
