@@ -3565,3 +3565,29 @@ cp人破防也不能全赖他们，这话都整出几乎挖地基的操作了怎
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  待宵  
+##### 1799#       发表于 2021-10-11 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077693&amp;ptid=2028598" target="_blank">moshizhe 发表于 2021-10-11 17:13</a>
+
+怎么没有偶数的偶像团，这样cp就好分了</blockquote>
+虹团现在12人，不也乱成一锅粥
+
+
+*****
+
+####  moshizhe  
+##### 1800#       发表于 2021-10-11 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53079079&amp;ptid=2028598" target="_blank">待宵 发表于 2021-10-11 18:30</a>
+
+虹团现在12人，不也乱成一锅粥</blockquote>
+是手游剧情吗
+
+
