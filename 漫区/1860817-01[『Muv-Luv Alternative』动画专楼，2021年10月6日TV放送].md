@@ -13999,3 +13999,70 @@ https://bbs.saraba1st.com/2b/thread-782626-1-1.html</blockquote>
 民间招安 o
 
 
+
+
+*****
+
+####  地方就是咖啡好  
+##### 953#       发表于 2021-10-11 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53068634&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-11 00:58</a>
+
+如果是同名漫画的话，内容已经覆盖了游戏的95%以上。层主最近也刚看完漫画
+
+
+—— 来自 OnePlus HD ...</blockquote>
+漫画看完感觉小队里各位女主的个人线还能补充呀，但是搜了搜又有人说Alternative篇没几个选项只能看播片。（其实我就想问问老师和月咏还有互动的戏份吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  噗呸破屁诚  
+##### 954#       发表于 2021-10-11 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077559&amp;ptid=1860817" target="_blank">地方就是咖啡好 发表于 2021-10-11 17:06</a>
+
+漫画看完感觉小队里各位女主的个人线还能补充呀，但是搜了搜又有人说Alternative篇没几个选项只能看播片 ...</blockquote>
+AL篇等于是只有中间一个选项影响最后遗书看谁的，前面刚回来兵王龙傲天部分全是无关痛痒的选项
+
+
+*****
+
+####  再买自检星剁手  
+##### 955#       发表于 2021-10-11 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077559&amp;ptid=1860817" target="_blank">地方就是咖啡好 发表于 2021-10-11 17:06</a>
+
+漫画看完感觉小队里各位女主的个人线还能补充呀，但是搜了搜又有人说Alternative篇没几个选项只能看播片 ...</blockquote>
+没有了，alternative的互动选项仅仅是樱花作战成员的几封遗书（冥夜这个憨憨没写）
+
+
+*****
+
+####  地方就是咖啡好  
+##### 956#       发表于 2021-10-11 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077388&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-11 16:56</a>
+
+官方中文 x
+
+民间招安 o</blockquote>
+原来如此。
+
+
+*****
+
+####  地方就是咖啡好  
+##### 957#       发表于 2021-10-11 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077369&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-11 16:55</a>
+
+如果你问本篇的话，是官方收编了民间汉化，所以是一个东西</blockquote>
+晓得了。
+
+
