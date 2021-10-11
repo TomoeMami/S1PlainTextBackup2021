@@ -3109,3 +3109,27 @@ cp玩大咯<img src="https://static.saraba1st.com/image/smiley/face2017/054.png"
 想看唐可可受挫，那肯定是要在lovelive这个主线任务上受挫，这个放到第一季可以，第二季也可以，从现在的安排看，应该是扔到第二季去了，liella这个团体是一定会碰壁的，唐可可受挫后再给角色加戏重塑也是肯定会有的，我不觉得第一季没有这个有什么问题，比起前两团第一季各种团体入伙的附带品和小透明，唐可可待遇并不差，只是因为国人身份期待过高罢了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kbtit  
+##### 1761#       发表于 2021-10-11 13:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">确实，没给你个中国角色边缘化算企划组开恩了
+
+
+*****
+
+####  ads147147  
+##### 1762#       发表于 2021-10-11 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53074509&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-11 13:54</a>
+确实，没给你个中国角色边缘化算企划组开恩了</blockquote>
+那隔壁岚珠写成了巨婴反派也算开恩吗
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

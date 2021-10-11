@@ -1373,3 +1373,17 @@ https://baike.baidu.com/item/%E7%9B%9B%E5%AE%97%E4%BA%AE/2263664?fr=kg_general
 但重点不是这个<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 具体看过往回复
 
 
+
+
+*****
+
+####  夏拉非  
+##### 122#       发表于 2021-10-11 13:52
+
+
+看百科之前觉得你们在大惊小怪，心想无非就是几个敏感词呗
+看完百科整个人都笑尿了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HMD Global Nokia X10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
