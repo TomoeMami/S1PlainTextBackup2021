@@ -3035,3 +3035,35 @@ cp玩大咯<img src="https://static.saraba1st.com/image/smiley/face2017/054.png"
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 1755#       发表于 2021-10-11 12:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">反正区区动画也搞不烂企划 那肯定希望怎么大怎么来
+
+
+*****
+
+####  AlfredXC  
+##### 1756#       发表于 2021-10-11 12:52
+
+
+没注意，这话可可喊小千还加桑吗
+
+
+*****
+
+####  qratosone  
+##### 1757#       发表于 2021-10-11 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53073638&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-11 12:47</a>
+
+反正区区动画也搞不烂企划 那肯定希望怎么大怎么来</blockquote>
+2.5次元企划真搞出第一季断在回国回这种操作，那就不是飞不飞马的问题了，是企划方要直接把花田先辈沉进东京湾了。动画搞骚操作还真就能把整个企划都砸掉
+
+
