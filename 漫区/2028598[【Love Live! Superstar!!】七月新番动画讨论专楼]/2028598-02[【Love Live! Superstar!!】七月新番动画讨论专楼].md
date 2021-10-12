@@ -5079,3 +5079,75 @@ lovelive系列的leader的地位本来就是远高出其他人的，故事由她
 鲤鱼这姿势看得我腰和膝盖疼，说起来这个月还能有唠嗑吗？我都开始翻录屏看了
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1910#       发表于 2021-10-12 15:45
+
+
+ 本帖最后由 寒风夜 于 2021-10-12 15:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53089594&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-12 15:29</a>
+
+从之前看生放说她们一起录音来看，确实是边写边拍的，毕竟最开始是分开录音，那就说明为啥剧本起伏这么大了 ...</blockquote>
+估计有些地方卡了，脚本是开始，脚本写完了才能开始分镜等一系列工作，这样早炸穿了...
+
+
+*****
+
+####  lj205  
+##### 1911#       发表于 2021-10-12 15:50
+
+
+<blockquote>寒风夜 发表于 2021-10-12 15:45
+那倒不，脚本是开始，脚本写完了才能开始分镜等一系列工作，这样早炸穿了... ...</blockquote>
+就这么不连贯的剧情，我总觉得就一直在赶
+
+
+*****
+
+####  cybernetics31  
+##### 1912#       发表于 2021-10-12 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53089718&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-12 15:37</a>
+鲤鱼这姿势看得我腰和膝盖疼，说起来这个月还能有唠嗑吗？我都开始翻录屏看了 ...</blockquote>
+来开fc，这个月一周年活动，一小时生放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面就要开始live tour了，基本没空唠嗑了
+
+
+*****
+
+####  cat1230  
+##### 1913#       发表于 2021-10-12 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53089718&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-12 15:37</a>
+
+鲤鱼这姿势看得我腰和膝盖疼，说起来这个月还能有唠嗑吗？我都开始翻录屏看了 ...</blockquote>
+liyuu现在工作应该非常忙吧，动画1季结束后就是地狱live连击了。唠嗑的机会怕是暂时没有了。不过也许争取在出征前在播一期？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 1914#       发表于 2021-10-12 16:03
+
+
+18号在ins有直播，说是有重大发表，不知道会是什么，个人cd，写真集，还是会有fan meeting之类的？
+我也想看鲤鱼在B站唠嗑啊，上完舰后就没再直播过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 1915#       发表于 2021-10-12 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53087910&amp;ptid=2028598" target="_blank">脚底心，洗则白 发表于 2021-10-12 13:27</a>
+ 和诸位的观感不同诶，咱觉得10话无功无过挺一般，11话反而观感绝佳。虽然爱生活超级星星变成了爱演 ...</blockquote>
+正常啊。有不少圈外人就是冲着唐可可来的。
+微博上的切片都多数切唐可可的部分。
+唐可可的引流效力有多强，自然就有多少人看重她了
+
+

@@ -14518,3 +14518,17 @@ alt纯夏那段 ...</blockquote>
 啊，游戏有队长线啊？有糖吗？包甜吗？
 
 
+
+
+*****
+
+####  亚尔古水手  
+##### 989#       发表于 2021-10-12 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53089635&amp;ptid=1860817" target="_blank">yone0000 发表于 2021-10-12 15:31</a>
+
+我其实很期待小说里没有细写的TU-95超低空用反舰导弹猎杀重光线级那段，结果动画里好像也没有画 ...</blockquote>
+黑标？还是ate<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这个劲大，比什么战术机牛逼疯了
+
+
