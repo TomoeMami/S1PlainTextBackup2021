@@ -4068,3 +4068,17 @@ queen这我笑死
 更何况跟你同为双翼的另一人面对跟你的对手同样等级的双灾不觉醒升级表现都比你好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 55795#       发表于 2021-10-12 20:37
+
+
+不靠血统的只有娜美，人漂亮柰子还大，勤俭持家，没有御田病，完美<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+所以我现在开始怀疑海贼王是一部女主视角后宫爽文
+
+
