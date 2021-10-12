@@ -5256,3 +5256,46 @@ instagram直播得全程日语了吧，真能应付的过来吗
 说实话也不是黑，按liyuu的实力走歌手路线的话太难了，星团企划到后期的话还是希望她走国内cv路线的，毕竟国内声优蛋糕就只有那些人吃，没新鲜血液也不是办法
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 1925#       发表于 2021-10-12 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53090613&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-12 16:32</a>
+
+出cd好诶，不知道加入ll后销量能涨多少，听说之前两张碟低到数据都没有 ...</blockquote>
+数据还是有的..毕竟都有tie 记得第一张初动1200左右 第二张就是三位数了
+
+
+*****
+
+####  优妮可  
+##### 1926#       发表于 2021-10-12 16:59
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/165855lkazz2px8ogyg55v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20211012_165306_com.twitter.android_edit_31983956329494.jpg</strong> (154.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 16:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/165854zmtr8v6oie28ycoj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211012_165506.jpg</strong> (281.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 16:58 上传
+
+
+开始打广告了。
+
+
