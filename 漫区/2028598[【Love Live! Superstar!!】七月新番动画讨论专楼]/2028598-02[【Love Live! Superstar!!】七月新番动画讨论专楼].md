@@ -4117,3 +4117,23 @@ ll其实一开始就是超现实设定，几个jk，谱曲编舞做道具样样�
 还有花田是不是跟世界地图干上了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1835#       发表于 2021-10-12 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53082521&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-10-11 22:57</a>
+
+我果然还是无法喜欢这集，甚至可以说比起7/8/9集更反感这集。
+
+抛开CP不提，第三集里香音能开口唱歌，是她自 ...</blockquote>
+我同意，第8话我看完只觉得蠢，蠢就蠢吧结果All right就行，这话看完我觉得有点虚无
+
+五人作为一个团体本身互相扶持前进就不是什么坏事，参加LL也是作为一个团体去参加的，结果刚成团就给你搞这种戏码，仿佛香音单飞在即，你最终目标是培养五个单飞也OK的天王巨星也不用这么急着摆脱队友吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+最草的是说了这么久一个人唱最后关头还是接了通电话安慰，颇有股你们队友安慰不好，我的安慰好的味道。提出这个疗法的小千本人自己独自参加舞蹈大赛的时候一样要香音鼓励拉一把，你爽完了入团回头就给人往心理阴影里推啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
