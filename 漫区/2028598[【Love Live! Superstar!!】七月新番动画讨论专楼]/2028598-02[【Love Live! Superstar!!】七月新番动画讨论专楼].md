@@ -5383,3 +5383,17 @@ instagram直播得全程日语了吧，真能应付的过来吗
 这么一看我星的b站更新还挺靠谱的
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 1934#       发表于 2021-10-12 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53092207&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-12 18:03</a>
+
+准备征集fc生放当天的热线电话，国内能不能参加～</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">填了也打不了就是了
+
+
