@@ -14532,3 +14532,53 @@ alt纯夏那段 ...</blockquote>
 黑标？还是ate<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这个劲大，比什么战术机牛逼疯了
 
 
+
+
+*****
+
+####  blood_iron  
+##### 990#       发表于 2021-10-12 16:02
+
+
+MUV三部曲的故事终于在B站看完了，
+
+感觉整个故事的本质还是白银武和纯夏的爱情故事，Extra线虽然标记是这样，其实应该是一切的起因，是绝对的主线。
+
+Un和AL的一系列东西都是白银武在思想上的动摇（与冥夜可能的红线），纯夏的嫉妒，这对宿命情侣的情感的具象化。
+
+歌曲来说，对比大家推荐的未来咆哮，
+
+还是更喜欢远藤正明的CARRY ON，听起来太有感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+武爷第三段人生不再记得前两段的奋斗拼搏真心遗憾。
+
+
+
+
+*****
+
+####  yone0000  
+##### 991#       发表于 2021-10-12 16:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53090015&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2021-10-12 15:56</a>
+
+黑标？还是ate，这个劲大，比什么战术机牛逼疯了</blockquote>
+黑标
+
+
+*****
+
+####  nervpp  
+##### 992#       发表于 2021-10-12 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53084860&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-12 09:16</a>
+
+黑之宣告的动画也看完了。这部动画做了游戏或小说的多少内容呢？
+
+
+观感还可以，muv-luv该有的战术机、虐妹 ...</blockquote>
+同，黑标只看过动画，想要看本体
+
+
