@@ -4807,3 +4807,28 @@ apple music最全就差一首歌，全都有的我是没找到，不如去天使
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我吃幼驯染的（比如我头像）也不是什么也吃的下啊，归根结底还是看剧本和演出
 
 
+
+
+*****
+
+####  脚底心，洗则白  
+##### 1888#       发表于 2021-10-12 13:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">和诸位的观感不同诶，咱觉得10话无功无过挺一般，11话反而观感绝佳。虽然爱生活超级星星变成了爱演出速趴加农炮，但制作组总算把那个很怂却池面的帅哥香音还给观众了，不再是那个看着让我头痛的卡里斯玛教主。
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">巨魔一下：国内风气是不是太宠可可了，在我能接触到的圈子，这批人与其说是亲妈粉，到不说像爷爷宠爱孙女一样，受到一点伤害就急着帮花田打补丁。
+
+
+*****
+
+####  永恒的王牌  
+##### 1889#       发表于 2021-10-12 13:31
+
+
+上面那楼看了，怎么说呢，小千重是真重，包括但不限于没夺冠就留学，把加农炮一个人推去独唱等等，但放在LL滤镜下也不是要抓起来喷的缺点，毕竟花田就这水平了
+
+相对之下那个CP锁得太死比较说中我心思，你看那个恋恋没CP玩只能点百合广告造梗就是逊啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
