@@ -1137,3 +1137,16 @@ hnn晚上醒来，凌晨开始播好几个小时，然后大早上8点歌回，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">噗酱这休止前最后直播的工商到最后也没说什么啊
 
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 7583#       发表于 2021-10-13 00:43
+
+
+重排live王草
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
