@@ -828,3 +828,14 @@ ZZZQ的语境里..
 大火和你无冤无仇，你为什么要让别人玩索尼游戏<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chivalry  
+##### 80#       发表于 2021-10-12 17:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">ps5应该会毁在这老逼手里吧
+
+
