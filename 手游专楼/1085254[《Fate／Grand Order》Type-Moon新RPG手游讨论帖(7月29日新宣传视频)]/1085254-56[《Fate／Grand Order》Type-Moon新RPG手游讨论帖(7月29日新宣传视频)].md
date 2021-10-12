@@ -17624,3 +17624,29 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 明天能开个xx万下载就不错了
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83966#       发表于 2021-10-12 14:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要对日子呢  今天是不是该有点公告了
+
+
+*****
+
+####  黑上シグマ  
+##### 83967#       发表于 2021-10-12 14:35
+
+
+<blockquote>引用第83965楼alucardcz于2021-10-12 14:34发表的  :
+
+为什么要对日子呢  今天是不是该有点公告了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然不是，请待下周
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+

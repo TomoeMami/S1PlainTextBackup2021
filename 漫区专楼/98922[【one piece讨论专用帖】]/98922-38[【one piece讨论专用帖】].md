@@ -4030,3 +4030,17 @@ queen这我笑死
 这不是预料之中嘛
 
 
+
+
+*****
+
+####  584520184  
+##### 55793#       发表于 2021-10-12 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53088507&amp;ptid=98922" target="_blank">武男 发表于 2021-10-12 14:15</a>
+
+这不是预料之中嘛</blockquote>
+但是大和看过日记的，路飞不是不喜欢剧透么
+
+

@@ -4970,3 +4970,29 @@ Symphony cd独占，正规流媒体都没上，不用想了。
 最后一集也不期待有啥新活了，要么拼一把来个恋回，要么谈谈对lovelive有什么感情。就算是香音传也得给lovelive来点展示啊
 
 
+
+
+*****
+
+####  beifx  
+##### 1901#       发表于 2021-10-12 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53088476&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-12 14:12</a>
+
+看了评语，简直就是加农炮和她的四个小伙伴</blockquote>
+lovelive一直都是leader和她的小伙伴们的物语
+
+
+*****
+
+####  七七見奈波  
+##### 1902#       发表于 2021-10-12 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53086996&amp;ptid=2028598" target="_blank">TTAA 发表于 2021-10-12 12:04</a>
+
+国内听liella的哪里版权好点，在APmusic找私のSymphony找不到……</blockquote>
+第一单Apple Music只上传了一个版本，偏巧这首歌在另一个版本里<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
