@@ -4095,3 +4095,25 @@ ll其实一开始就是超现实设定，几个jk，谱曲编舞做道具样样�
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说的真好，但从这季表现来看我觉得花田写不出这种
 
 
+
+
+*****
+
+####  kata魂  
+##### 1833#       发表于 2021-10-12 08:10
+
+
+连学院偶像都没搞明白就开始考虑单飞了，谁在说堇是好高骛远我跟谁急
+
+
+*****
+
+####  midearth  
+##### 1834#       发表于 2021-10-12 08:15
+
+
+这话花田又放飞了怎么观众反而感觉良好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，果然只有あつこ监督才能按住花田。
+
+还有花田是不是跟世界地图干上了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
