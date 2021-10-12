@@ -5504,3 +5504,130 @@ instagram直播得全程日语了吧，真能应付的过来吗
 果然可可才是看星团的最大动力，不管是哪国人..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kata魂  
+##### 1944#       发表于 2021-10-12 22:27
+
+
+还是第十集的live质量高吧
+
+solo是打不赢团体的
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希望花田能明白这个道理
+
+
+*****
+
+####  player3960  
+##### 1945#       发表于 2021-10-12 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53095818&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-12 22:24:38</a>
+这观看人数怎么又回到三千了，第十话可是观看人数可是一万三千人...
+
+
+果然可可才是看星团的最大动力，不管 ...</blockquote>花田你看着办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  稀勢のささ  
+##### 1946#       发表于 2021-10-12 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第10话毕竟是攒了那么多话的爆发  这集无论再怎么聊也没啥爆点
+
+
+*****
+
+####  凡人  
+##### 1947#       发表于 2021-10-12 22:37
+
+
+指望花田整个大活也不现实，只能希望花田在和可可毫不相干的一集后用可可独唱ed收尾让愤怒的可厨帮助水2保住倒数第二的宝座了
+
+
+*****
+
+####  qratosone  
+##### 1948#       发表于 2021-10-12 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53095441&amp;ptid=2028598" target="_blank">secretgarnet 发表于 2021-10-12 22:01</a>
+好评率还可以，但是到场人数只有3400多，比10话少很多</blockquote>
+居然还行，我以为也就80
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  型月重工  
+##### 1949#       发表于 2021-10-12 22:38
+
+
+可可才是星团的财富密码吧
+
+
+*****
+
+####  kata魂  
+##### 1950#       发表于 2021-10-12 22:38
+
+
+最后一集再来个故障
+
+倒数第一稳拿
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 1951#       发表于 2021-10-12 22:40
+
+
+动画里炮哥一带四，现实中可可一带四，下季改为可可传吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 1952#       发表于 2021-10-12 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53096046&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-12 22:38</a>
+
+居然还行，我以为也就80
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.5.1 ...</blockquote>
+第一好评率85%左右是很正常，没什么惊喜和意外。
+
+
+关键是这观看人数比第十话少了太多太多了。 
+
+
+可见厨厨在NHK看完后并不想在看一遍第11话了。
+
+
+*****
+
+####  kata魂  
+##### 1953#       发表于 2021-10-12 22:43
+
+
+可可的两个发挥场合
+
+可香是好评率最高的，可堇是低谷后人数最多的
+
+花田可能待可香很薄，但待可可不薄啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（但对于给幼驯染垫脚的事还是甘霖娘）
+
+
