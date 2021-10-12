@@ -14620,3 +14620,17 @@ Un和AL的一系列东西都是白银武在思想上的动摇（与冥夜可能�
 草哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  万年僵尸  
+##### 996#       发表于 2021-10-12 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53092284&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-12 18:09</a>
+
+遗憾的说只有妹妹线里妹妹和队长活了下来</blockquote>
+那么有哪条线越南人能活下来吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
