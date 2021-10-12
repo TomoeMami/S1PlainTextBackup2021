@@ -4655,3 +4655,87 @@ LL不都是团队赛吗？弄个独唱比赛本来就很莫名其妙
 国内听liella的哪里版权好点，在APmusic找私のSymphony找不到……
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1875#       发表于 2021-10-12 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53086989&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-12 12:04</a>
+
+香音需要队友才能唱：
+
+
+我以为的解决方法：虽然我们四个人身不在台上，但心与你同在XXOOOOOX</blockquote>
+其实这样完全不用这一出吧，
+
+
+*****
+
+####  ads147147  
+##### 1876#       发表于 2021-10-12 12:08
+
+
+出演没能好到把观众mindfuk，导致观众没能沉浸在just feeling，那么观众去胡思乱想些逻辑问题就没法避免了，只能说这次的出演也有很大的责任。
+
+魔幻但是又不够魔幻。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  永恒的王牌  
+##### 1877#       发表于 2021-10-12 12:12
+
+
+虽然平时不怎么关心这些，但还是挺好奇外网对这集感想是怎么样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 1878#       发表于 2021-10-12 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53087110&amp;ptid=2028598" target="_blank">永恒的王牌 发表于 2021-10-12 12:12</a>
+
+虽然平时不怎么关心这些，但还是挺好奇外网对这集感想是怎么样的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5ch可以猜一个千的风评掉的更低了
+
+
+*****
+
+####  ads147147  
+##### 1879#       发表于 2021-10-12 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53087110&amp;ptid=2028598" target="_blank">永恒的王牌 发表于 2021-10-12 12:12</a>
+虽然平时不怎么关心这些，但还是挺好奇外网对这集感想是怎么样的</blockquote>
+贴吧有说5ch喷千。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 1880#       发表于 2021-10-12 12:20
+
+
+<blockquote>TTAA 发表于 2021-10-12 12:04
+国内听liella的哪里版权好点，在APmusic找私のSymphony找不到……</blockquote>
+网易有这首
+
+
+*****
+
+####  kbtit  
+##### 1881#       发表于 2021-10-12 12:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立本人阿炮粉挺多的，先不论千怎么样，最后那个solo感觉能拉不少分，看好11集评分超过第10集
+
+
