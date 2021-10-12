@@ -5738,3 +5738,65 @@ solo是打不赢团体的
 可恋确实算得上是恋人气为数不多的救法，毕竟说是cp乱炖第二季能分给恋的也就两集吧，这两集还救不回来就真寄了。目前可可的两对cp花田写的都还不错。（虽然有一对...）
 
 
+
+
+*****
+
+####  kata魂  
+##### 1964#       发表于 2021-10-12 23:25
+
+
+香恋跟堇恋都有搞头
+
+但不搞有啥办法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 1965#       发表于 2021-10-12 23:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">op里的堇恋正片里都完全没出现，只存在于杂志图里的可恋还是洗洗睡吧
+
+
+*****
+
+####  lj205  
+##### 1966#       发表于 2021-10-12 23:25
+
+
+应募了鲤鱼的生电话，反正也中不了～
+
+
+*****
+
+####  kbtit  
+##### 1967#       发表于 2021-10-12 23:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">只有我觉得千恋有搞头吗
+
+
+*****
+
+####  player3960  
+##### 1968#       发表于 2021-10-12 23:29
+
+
+花田你第二季就这么整吧，先补我可可两集个人回，剩下十集C52每二人当主角一个故事乱炖，再差几个live完事，多好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 1969#       发表于 2021-10-12 23:29
+
+
+ 本帖最后由 黑雪姫 于 2021-10-12 23:31 编辑 
+
+讲道理五人的话 每个人应该分配两组CP的  现在有 可香 可堇 千香  剩下的就应该是 堇恋 和 千恋 才是。
+
+

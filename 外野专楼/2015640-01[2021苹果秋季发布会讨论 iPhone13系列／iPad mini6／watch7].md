@@ -14206,3 +14206,16 @@ https://detail.1688.com/offer/538935779195.html
 今天到手了，基本没什么问题，就是屏幕实在太黄了，晚上跑到天环看和那里的样机对比了一下，明显是我这台黄得多，更不用对比我手上的11了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  溯夜  
+##### 1245#       发表于 2021-10-12 23:25
+
+
+第一次买iPhone，今天准备发货了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">快递会晚上送货吗，下班到家估计得7点左右了
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

@@ -4102,3 +4102,20 @@ queen这我笑死
 娜美这种来历不明的孤儿要搞血统论真是太容易了......当然要是WT到最后都没搞那就是真的牛逼
 
 
+
+
+*****
+
+####  Algie  
+##### 55798#       发表于 2021-10-12 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53094133&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2021-10-12 20:37:02</a>
+不靠血统的只有娜美，人漂亮柰子还大，勤俭持家，没有御田病，完美
+
+
+所以我现在开始怀疑海贼王是一部女主视 ...</blockquote>然而娜美已经有分析师提出过有人鱼血统的可能了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
