@@ -3989,3 +3989,19 @@ queen这我笑死
 那必须的，毕竟赏金高<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qwxbtgb  
+##### 55790#       发表于 2021-10-12 10:37
+
+
+<blockquote>ohi 发表于 2021-10-11 18:31
+这样一来卷眉毛的战力可以超绿藻头了吧
+
+
+—— 来自 S1Fun</blockquote>
+说不定过就爱几话就是绿藻头觉醒，然后压回来
+
+
