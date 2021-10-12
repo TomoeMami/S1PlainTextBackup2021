@@ -14195,3 +14195,14 @@ https://detail.1688.com/offer/538935779195.html
 这些批发的膜疏油层很差 很快就会很油腻
 
 
+
+
+*****
+
+####  moekyo  
+##### 1244#       发表于 2021-10-12 22:14
+
+
+今天到手了，基本没什么问题，就是屏幕实在太黄了，晚上跑到天环看和那里的样机对比了一下，明显是我这台黄得多，更不用对比我手上的11了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

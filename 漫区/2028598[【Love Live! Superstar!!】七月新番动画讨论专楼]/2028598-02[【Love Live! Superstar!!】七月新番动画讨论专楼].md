@@ -5397,3 +5397,110 @@ instagram直播得全程日语了吧，真能应付的过来吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">填了也打不了就是了
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 1935#       发表于 2021-10-12 22:01
+
+
+ 本帖最后由 secretgarnet 于 2021-10-12 22:03 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/220100keqegykgy7yywnq5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (78.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 22:01 上传
+
+
+好评率还可以，但是到场人数只有3400多，比10话少很多
+
+
+*****
+
+####  player3960  
+##### 1936#       发表于 2021-10-12 22:04
+
+
+结果只有第三话第一项过了90吗……我反正觉得下一集绝对到不了90
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 1937#       发表于 2021-10-12 22:09
+
+
+好像跟第6集差不多，记得是85%这样？幼驯染的固定粉丝群（
+
+
+*****
+
+####  kata魂  
+##### 1938#       发表于 2021-10-12 22:09
+
+
+人数也回到了3000人
+
+幼驯染回加小百合solo，都只有3000没过85…
+
+星团药丸.jpg
+
+
+*****
+
+####  kbtit  
+##### 1939#       发表于 2021-10-12 22:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">看看最后一话能不能给点力了
+
+
+*****
+
+####  kata魂  
+##### 1940#       发表于 2021-10-12 22:15
+
+
+这么一看的话 第十集潜力很大啊·····1w多的到场人数跟幼驯染打的不相上下
+
+
+*****
+
+####  lj205  
+##### 1941#       发表于 2021-10-12 22:16
+
+
+谢谢中之人还撑着我
+
+
+*****
+
+####  player3960  
+##### 1942#       发表于 2021-10-12 22:24
+
+
+稍微算了一下，就图一乐，现在星团播放11话，Nico第一项平均分81.9，只要下一集不低于这个数，那至少还比系列最低的水团二期79.9要高，排个倒数还是第二没问题的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 1943#       发表于 2021-10-12 22:24
+
+
+这观看人数怎么又回到三千了，第十话可是观看人数可是一万三千人...
+
+
+果然可可才是看星团的最大动力，不管是哪国人..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
