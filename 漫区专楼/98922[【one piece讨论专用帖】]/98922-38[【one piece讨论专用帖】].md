@@ -4016,3 +4016,17 @@ queen这我笑死
 完了，大和要上船
 
 
+
+
+*****
+
+####  武男  
+##### 55792#       发表于 2021-10-12 14:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53088226&amp;ptid=98922" target="_blank">584520184 发表于 2021-10-12 13:53</a>
+
+完了，大和要上船</blockquote>
+这不是预料之中嘛
+
+

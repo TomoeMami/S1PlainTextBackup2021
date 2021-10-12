@@ -14429,3 +14429,20 @@ emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好�
 alt纯夏那段我真的惊到了，而且那个时候看的乱七八糟的作品还没有那么多，是个还在喜欢死火海的单纯少年，那个震的头皮发麻的感觉，至今记忆尤新（还有小麻那段……当时第一反应是编剧你逗我呢？）
 
 
+
+
+*****
+
+####  亚尔古水手  
+##### 983#       发表于 2021-10-12 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53088329&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-12 14:01</a>
+
+我当时UN里选的小珠，不过本身就是个人爱好，所以自己还是默认这故事是纯夏冥夜二选一的。
+
+
+alt纯夏那段 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">小麻那个时候是寝室关了灯一个人插耳机玩的，屏幕一闪差点被直接送走
+
+
