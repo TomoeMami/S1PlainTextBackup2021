@@ -4832,3 +4832,79 @@ apple music最全就差一首歌，全都有的我是没找到，不如去天使
 相对之下那个CP锁得太死比较说中我心思，你看那个恋恋没CP玩只能点百合广告造梗就是逊啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  寒风夜  
+##### 1890#       发表于 2021-10-12 13:41
+
+
+才录完么
+
+
+
+
+*****
+
+####  cybernetics31  
+##### 1891#       发表于 2021-10-12 13:46
+
+
+Symphony cd独占，正规流媒体都没上，不用想了。
+
+
+*****
+
+####  Jobtownb  
+##### 1892#       发表于 2021-10-12 13:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53086042&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-12 10:54</a>
+我记得说的只是要有solopart吧 但总感觉好像跟平时live也没啥区别 总不能到时候把其他四个人都赶下 ...</blockquote>
+在动画里课题是为主角服务的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+因为花田说香音要solo，所以大赛才比这个
+要寻找合理性只能一路追溯到花田奇怪的脑回路上
+
+
+*****
+
+####  寒风夜  
+##### 1893#       发表于 2021-10-12 13:58
+
+
+真是一路迷糊哦
+
+
+*****
+
+####  稀勢のささ  
+##### 1894#       发表于 2021-10-12 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53088174&amp;ptid=2028598" target="_blank">Jobtownb 发表于 2021-10-12 13:48</a>
+在动画里课题是为主角服务的啊
+因为花田说香音要solo，所以大赛才比这个
+要寻找合理性只能一路追 ...</blockquote>
+我只是在说因为有solo part所以这集才让阿炮必须能一个人在舞台上唱出来这逻辑不成立 除非12集真就赶人下台<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 或者我对这个solo part的理解有问题
+
+
+*****
+
+####  优妮可  
+##### 1895#       发表于 2021-10-12 14:03
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/140302q8qoeu7a6aat2fk6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>61651d8c79d9e_62135930714d67676d1a0cdba3518452.jpg</strong> (131.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 14:03 上传
+
+
+这个让大家期待12集是客套话吧。
+
+
