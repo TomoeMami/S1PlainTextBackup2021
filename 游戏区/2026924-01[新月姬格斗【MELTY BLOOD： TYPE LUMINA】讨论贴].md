@@ -4083,3 +4083,17 @@ steam版，用uu加速器进联网模式，显示已登出steam不让玩。怎�
 就是因为腋下的防御手段太少压制太厉害才吸取教训做成这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  猫坤  
+##### 332#         楼主| 发表于 2021-10-12 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53092891&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2021-10-12 18:56</a>
+
+就是因为腋下的防御手段太少压制太厉害才吸取教训做成这样吧</blockquote>
+腋下压制厉害是角色大多数手长和跳跃不灵活共同造成的，搬到弹簧人游戏里就矫枉过正了
+
+
