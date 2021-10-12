@@ -4357,3 +4357,133 @@ ll其实一开始就是超现实设定 ...</blockquote>
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  1096beam  
+##### 1851#       发表于 2021-10-12 10:42
+
+
+没那么夸张吧，这集不是已经补了一个要比赛要独唱的设定了吗？为了比赛不掉链子逼香音一把也没啥吧
+
+
+*****
+
+####  JustW  
+##### 1852#       发表于 2021-10-12 10:43
+
+
+ 本帖最后由 JustW 于 2021-10-12 10:50 编辑 
+<blockquote>蔵女 发表于 2021-10-12 10:30
+这样看来偶像片的限制是真的大，楼上那些劲爆假药肯定不能拍也就算了，第11集集这种如果放在其他类型片里还 ...</blockquote>
+很难说是题材限制，我觉得是想变又不敢变，没怎么破就想立。第十一集这种思路放在广义偶像片里其实是老梗了，但拍出来的成品乏善可陈。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关于不破不立可以参考邦团的乐队剧情，都是先闹个天崩地裂再一口气把问题解决的，像是成员各怀心思这种东西，放在星团就像观众挑刺，放在邦团都是官方自己浓墨重彩的。
+
+
+*****
+
+####  chenflyyy  
+##### 1853#       发表于 2021-10-12 10:45
+
+
+这一集是一看还不错，但细想会有问题的，越想越可怕，所以我放弃了思考，动画图一乐就行了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 1854#       发表于 2021-10-12 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085888&amp;ptid=2028598" target="_blank">1096beam 发表于 2021-10-12 10:42</a>
+
+没那么夸张吧，这集不是已经补了一个要比赛要独唱的设定了吗？为了比赛不掉链子逼香音一把也没啥吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么最终话的live会是香音和她的四个伴舞吗？如果是，那还挺牛啤的；如果不是，那独唱这个设定也只是小千用来帮助香音成长的垫脚石罢了。
+
+
+*****
+
+####  平贺才人  
+##### 1855#       发表于 2021-10-12 10:50
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/105000cep949ppwa4vewpa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1634006986967.jpg</strong> (120.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-12 10:50 上传
+
+
+*****
+
+####  1096beam  
+##### 1856#       发表于 2021-10-12 10:50
+
+
+ 本帖最后由 1096beam 于 2021-10-12 10:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085939&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-12 10:46</a>
+
+那么最终话的live会是香音和她的四个伴舞吗？如果是，那还挺牛啤的；如果不是，那独唱这个设定也 ...</blockquote>
+这要看你觉得10话的live是不是民警和她的四个伴舞咯，我觉得最终话live的表现形式八九不离十了。
+
+
+*****
+
+####  lj205  
+##### 1857#       发表于 2021-10-12 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085888&amp;ptid=2028598" target="_blank">1096beam 发表于 2021-10-12 10:42</a>
+
+没那么夸张吧，这集不是已经补了一个要比赛要独唱的设定了吗？为了比赛不掉链子逼香音一把也没啥吧 ...</blockquote>
+LL不都是团队赛吗？弄个独唱比赛本来就很莫名其妙
+
+
+*****
+
+####  稀勢のささ  
+##### 1858#       发表于 2021-10-12 10:54
+
+
+ 本帖最后由 稀勢のささ 于 2021-10-12 10:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得说的只是要有solopart吧 但总感觉好像跟平时live也没啥区别 总不能到时候把其他四个人都赶下去吧 不赶人下去那所谓的为了比赛所以让她能一个人唱出来说不过去
+
+
+*****
+
+####  JustW  
+##### 1859#       发表于 2021-10-12 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085998&amp;ptid=2028598" target="_blank">1096beam 发表于 2021-10-12 10:50</a>
+
+这要看你是否觉得10话的live是不是民警和她的四个伴舞咯，我觉得最终话live的表现形式八九不离十了。 ...</blockquote>
+第十集那种live，不经历第十一集的香音就C不了，那第三集香音说的那句“我可以唱了，因为我不是一个人”限制条件也太苛刻了吧，这什么去病如抽丝（）
+
+
+*****
+
+####  寒风夜  
+##### 1860#       发表于 2021-10-12 10:58
+
+
+没想那么多，，不过构成真的怪
+
+
+
+
+*****
+
+####  kata魂  
+##### 1861#       发表于 2021-10-12 11:00
+
+
+草，我突然真真正正的体会到可可前期对堇的不满了，上帝视角来看参加lovelive却跟lovelive关联不大确实挺闹心的
+
+
