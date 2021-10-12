@@ -14316,3 +14316,37 @@ emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人类战斗中防线也有一线二线三线之分啊，但是muv设定集里缺少对beta防线构建的设定，但绝对不可能只有一条防线，只在一条线上死磕那才是没有战术）
 
 
+
+
+*****
+
+####  yone0000  
+##### 976#       发表于 2021-10-12 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53084860&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-12 09:16</a>
+
+黑之宣告的动画也看完了。这部动画做了游戏或小说的多少内容呢？
+
+
+观感还可以，muv-luv该有的战术机、虐妹 ...</blockquote>
+我记得动画做到和小说差不多内容了，游戏没玩过不知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whitefang  
+##### 977#       发表于 2021-10-12 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53084860&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-12 09:16</a>
+
+黑之宣告的动画也看完了。这部动画做了游戏或小说的多少内容呢？
+
+
+观感还可以，muv-luv该有的战术机、虐妹 ...</blockquote>
+动画算是按小说内容做的，基本和小说差不太多
+
+游戏有好几个不同线路的结局
+
+

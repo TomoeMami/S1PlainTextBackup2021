@@ -4289,3 +4289,47 @@ ll其实一开始就是超现实设定 ...</blockquote>
 这种主题还是更适合隔壁imas，实际上346动画也做了这个情节（凛与mio“单飞”到TP和PP），以此对卯月和NG三人做更进一步的角色发展。但即便这样最后从玻璃鞋到smiling也只是给我一种高高拿起再轻轻放下的感觉。不是说做得不好，只能说有些太过现实的主题就没法在偶像动画里面彻底讨论。
 
 
+
+
+*****
+
+####  megapikachu  
+##### 1845#       发表于 2021-10-12 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53084829&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-12 09:13</a>
+
+所以我说做不到同样级别，至少光看星团我觉得香千的塑造逻辑是很生硬粗糙的。小千目前看上去真的就 ...</blockquote>
+转达同学想法那个所谓的“炎上”，本来就是有些人没事找事，这个就别拿来说了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 1846#       发表于 2021-10-12 10:25
+
+
+现在越看分析越觉得写歪了，lovelive作为一个载体是角色为这个努力的，但星团11集下来是lovelive为角色努力的，甚至不惜加上要有solo的场合。以前比赛输赢自认，现在输赢全靠给主角发挥。虹团不比赛但是love,live这一点是没有变的。星团完全是love香音啊
+
+
+*****
+
+####  秋月艾莉  
+##### 1847#       发表于 2021-10-12 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53084700&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-12 08:59</a>
+
+我觉得可以打个比方了，香千的塑造有点神似乒乓里的星野和月本：同样是幼驯染，同样是小时候一方天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">不我觉得小千一开始就有意当虎妈帮香音，只是香音整个假期都躲在家颓废没找到机会，或者说还没知道香音要放弃唱歌，然后被唐可可天降截胡，而唐可可的成功经验让她更坚信香音是超人，是可以被按头治疗的，于是这话继续斯巴达
+
+
+*****
+
+####  lj205  
+##### 1848#       发表于 2021-10-12 10:27
+
+
+香千（主要是千对香）现在相处模式，做为观众的我只有种窒息感，甚至有种小千如果还继续这样，星团的团队感永远都破不了局
+
+
