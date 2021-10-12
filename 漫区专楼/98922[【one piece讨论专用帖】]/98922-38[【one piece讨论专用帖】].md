@@ -4119,3 +4119,21 @@ queen这我笑死
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  阿刚  
+##### 55799#       发表于 2021-10-12 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53091867&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-10-12 17:40</a>
+
+绿藻头要怎么觉醒才能压过改造人基因
+
+事实证明什么超新星战四皇新时代VS旧时代都是cjb
+
+哦不对，其他船长还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题我感觉尾田对剑道的描述要走唯心路线了啊，念头通达了就啥都能一刀两断了
+
+

@@ -14645,3 +14645,44 @@ Un和AL的一系列东西都是白银武在思想上的动摇（与冥夜可能�
 只看了AL漫画，感觉还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  桧月彩花  
+##### 998#       发表于 2021-10-12 23:50
+
+
+第二话是今晚还是明晚来着
+
+
+*****
+
+####  再买自检星剁手  
+##### 999#       发表于 2021-10-12 23:53
+
+
+mla第一集动画，少女存活问题，可以解释为少女存活这件事本身就是奇迹。爷爷觉得避难所也不安全，就让少女待进柜子里。爷爷或其他人通过某种方法弄死了唯一的战车级，斗士级和兵士级对铁柜子没办法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你说有这么巧的事情吗，斗士级那么多就一只战车级？还真有，ate动画里篁唯依准备爆破激光枪的时候，就只有一只战车级进来
+
+又例如ate动画第二集后半段，篁唯依战术机弃机后，开着灯找同伴，一群兵士级视而不见，咱们先接着吃手里的。被同伴要求干掉自己后，篁唯依崩溃大喊并人体描边，一群战车级尼玛还在啃战术机和她同伴仿佛篁唯依不存在一样，没办法，电子器械香多了。
+
+总结：只要有光环，就能存活
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  再买自检星剁手  
+##### 1000#       发表于 2021-10-12 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53096943&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-12 23:50</a>
+第二话是今晚还是明晚来着</blockquote>
+明晚，应该0点左右就能下载了。因为第一集的播出时间推迟了
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

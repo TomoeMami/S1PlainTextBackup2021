@@ -5800,3 +5800,16 @@ solo是打不赢团体的
 讲道理五人的话 每个人应该分配两组CP的  现在有 可香 可堇 千香  剩下的就应该是 堇恋 和 千恋 才是。
 
 
+
+
+*****
+
+####  yanayosihana  
+##### 1970#       发表于 2021-10-13 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53096715&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-12 23:29</a>
+讲道理五人的话 每个人应该分配两组CP的  现在有 可香 可堇 千香  剩下的就应该是 堇恋 和 千恋 才是。 ...</blockquote>
+排列组合了属于是
+
+
