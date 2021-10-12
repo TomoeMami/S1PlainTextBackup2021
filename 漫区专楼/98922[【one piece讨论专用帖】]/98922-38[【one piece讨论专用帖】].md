@@ -4044,3 +4044,27 @@ queen这我笑死
 但是大和看过日记的，路飞不是不喜欢剧透么
 
 
+
+
+*****
+
+####  天使的日曜日  
+##### 55794#       发表于 2021-10-12 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085816&amp;ptid=98922" target="_blank"> qwxbtgb 发表于 2021-10-12 10:37</a> 引用:ohi 发表于 2021-10-11 18:31 这样一来卷眉毛的战力可以超绿藻头了吧  —— 来自 S1Fun 说不定过就爱几话就是绿藻头觉醒，然后压回来 </blockquote>
+绿藻头要怎么觉醒才能压过改造人基因
+
+事实证明什么超新星战四皇新时代VS旧时代都是cjb
+
+哦不对，其他船长还是有四皇打，三大船长才是真正引领新时代的人物
+
+手下一人发一个小物臭的霍金斯跟二把手烬就够了
+
+吹的再响给凯多破防留疤还是得滚下来碰到皇副照样要吃瘪
+
+剑士刀都给打飞了这不得等于断条腿啊
+
+更何况跟你同为双翼的另一人面对跟你的对手同样等级的双灾不觉醒升级表现都比你好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
