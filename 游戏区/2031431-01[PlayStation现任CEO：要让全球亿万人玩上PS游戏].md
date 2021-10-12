@@ -721,3 +721,28 @@ PS2卖1.5亿台里有多少是廉价DVD播放器你心里清楚吧，PS5能干�
 哦哦！哦哦哦哦！哦哦哦！那个渣渣！
 
 
+
+
+*****
+
+####  dllplayer  
+##### 70#       发表于 2021-10-12 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53087382&amp;ptid=2031431" target="_blank">imosuke 发表于 2021-10-12 12:35</a>
+
+几亿人里包括东亚日呆游戏爱好者吗？</blockquote>
+ZZZQ的语境里..
+
+黄种人不做人算的吧
+
+
+*****
+
+####  ChrisSnake  
+##### 71#       发表于 2021-10-12 15:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都是说给股东听的
+
+
