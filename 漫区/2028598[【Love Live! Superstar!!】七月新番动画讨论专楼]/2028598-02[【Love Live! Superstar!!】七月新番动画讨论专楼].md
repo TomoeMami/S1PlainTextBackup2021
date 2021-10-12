@@ -5685,3 +5685,56 @@ solo是打不赢团体的
 你不看看可可的对手都有些什么人，恋不用说了，加农被花田推着在千歌和梨子之间反复横跳，千脑子里只有cp和圆，也就堇的塑造还行吧。
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 1959#       发表于 2021-10-12 23:06
+
+
+所以我说过宁愿不要有可可回，因为花田根本不可能写好，真出了只会让可可跌人气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 1960#       发表于 2021-10-12 23:11
+
+
+下一季能好好写其他三人的剧情了吗？
+
+
+*****
+
+####  黑雪姫  
+##### 1961#       发表于 2021-10-12 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53096399&amp;ptid=2028598" target="_blank">凡人 发表于 2021-10-12 23:02</a>
+
+你不看看可可的对手都有些什么人，恋不用说了，加农被花田推着在千歌和梨子之间反复横跳，千脑子里只有cp和 ...</blockquote>
+堇塑造也离不开可可，所以那边那个恋恋啊，你知道该怎么做了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 1962#       发表于 2021-10-12 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53096536&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-12 23:12:48</a>
+堇塑造也离不开可可，所以那边那个恋恋啊，你知道该怎么做了。</blockquote>什么战吧假药厂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  凡人  
+##### 1963#       发表于 2021-10-12 23:18
+
+
+可恋确实算得上是恋人气为数不多的救法，毕竟说是cp乱炖第二季能分给恋的也就两集吧，这两集还救不回来就真寄了。目前可可的两对cp花田写的都还不错。（虽然有一对...）
+
+
