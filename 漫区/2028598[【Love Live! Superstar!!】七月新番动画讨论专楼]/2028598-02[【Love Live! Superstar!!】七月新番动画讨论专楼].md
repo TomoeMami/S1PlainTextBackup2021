@@ -4996,3 +4996,15 @@ lovelive一直都是leader和她的小伙伴们的物语
 第一单Apple Music只上传了一个版本，偏巧这首歌在另一个版本里<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saglork  
+##### 1903#       发表于 2021-10-12 14:49
+
+
+lovelive系列的leader的地位本来就是远高出其他人的，故事由她开始由她结束，硬要说是她和她的小伙伴，那确实就是了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+有些人说这次团队各怀鬼胎，说白了就是没有拯救学校这个明确的统一目标嘛，现在的团队目标只有在lovelive比赛里打出风格打出水平了，只有唐可可和知道她死线的堇对取得成绩有特殊的紧迫性，其他人本质是追求团队和个人的自我实现，这也没什么奇怪的，怎么就没有团队精神了？
+
+

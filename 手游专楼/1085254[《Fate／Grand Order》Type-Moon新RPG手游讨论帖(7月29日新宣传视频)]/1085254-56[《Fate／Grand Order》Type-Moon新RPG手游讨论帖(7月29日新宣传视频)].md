@@ -17650,3 +17650,32 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83968#       发表于 2021-10-12 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53088776&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-10-12 14:35</a>
+
+当然不是，请待下周
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新前几天拿了50天的石头没卡池能抽 很急啊
+
+
+*****
+
+####  里村紅葉  
+##### 83969#       发表于 2021-10-12 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53088960&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-12 14:49</a>
+
+萌新前几天拿了50天的石头没卡池能抽 很急啊</blockquote>
+你看，如果你上面没出梵高，现在不就有池子抽了吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
