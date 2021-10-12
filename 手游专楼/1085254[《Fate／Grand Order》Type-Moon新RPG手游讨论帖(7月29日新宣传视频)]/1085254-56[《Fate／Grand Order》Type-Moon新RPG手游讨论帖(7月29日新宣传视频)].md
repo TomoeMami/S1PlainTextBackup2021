@@ -17600,3 +17600,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">话说龙娘这个活动的灵衣还没实装.....不知道会不会有能入手的那天
 
 
+
+
+*****
+
+####  森兰丸  
+##### 83964#       发表于 2021-10-12 08:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有这到底要长草到什么时候....不会真要到11月份才开新活动吧
+
+
