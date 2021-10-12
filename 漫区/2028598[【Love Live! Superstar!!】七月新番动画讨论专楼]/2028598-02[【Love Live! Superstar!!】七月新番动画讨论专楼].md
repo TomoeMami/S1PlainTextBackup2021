@@ -4796,3 +4796,14 @@ apple music最全就差一首歌，全都有的我是没找到，不如去天使
 日本人这莫名其妙的幼驯染情节…………
 
 
+
+
+*****
+
+####  JustW  
+##### 1887#       发表于 2021-10-12 12:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我吃幼驯染的（比如我头像）也不是什么也吃的下啊，归根结底还是看剧本和演出
+
+
