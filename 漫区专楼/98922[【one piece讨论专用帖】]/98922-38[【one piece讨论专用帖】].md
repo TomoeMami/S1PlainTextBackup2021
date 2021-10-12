@@ -4137,3 +4137,19 @@ queen这我笑死
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题我感觉尾田对剑道的描述要走唯心路线了啊，念头通达了就啥都能一刀两断了
 
 
+
+
+*****
+
+####  klzxs  
+##### 55800#       发表于 2021-10-13 01:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">娜美这水平的战力要打什么补丁……
+
+
+kiing这边是真正的皇团二把手 虽然都是三灾但索隆这边肯定是更强的
+
+对比蛋糕岛就是路飞打卡二 真正的硬仗 吃力也正常
+
+
