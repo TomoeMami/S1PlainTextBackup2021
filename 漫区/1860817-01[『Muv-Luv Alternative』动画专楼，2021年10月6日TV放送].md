@@ -14446,3 +14446,25 @@ alt纯夏那段 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">小麻那个时候是寝室关了灯一个人插耳机玩的，屏幕一闪差点被直接送走
 
 
+
+
+*****
+
+####  噗呸破屁诚  
+##### 984#       发表于 2021-10-12 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53084860&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-12 09:16</a>
+
+黑之宣告的动画也看完了。这部动画做了游戏或小说的多少内容呢？
+
+
+观感还可以，muv-luv该有的战术机、虐妹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯独政治戏里最傻逼的那几个部分倒是留了下来。
+
+黑宣原作的政治戏前半部分比ate好太多了，特别是东德那部分，很容易代入到我们文歌那会，是相当有意思的段落。然而傻逼动画那边戏份删了不说，倒是把最后的beta打到家门口还在内战的傻逼劲给一点不差的留下来，是真的无语。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外枪杀妹妹那段也是游戏渲染力最好的一部分，前年用vnr啃游戏的时候，南条那个声音给我感觉可比当年看小说强太多了，动画这里魔改的是莫名其妙，就强行为了恶心恶心观众，妹妹死的毫无意义。。。。
+
+游戏还多了爱姐线和丽兹线，不过质量都是纯充话费送的，潦草的很，而且虽然某种意义上结局都是和对应女主的he，但过场可是充满了作者的恶意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。再加上游戏没汉化，到没必要为了这两个内容去补游戏。
+
+
