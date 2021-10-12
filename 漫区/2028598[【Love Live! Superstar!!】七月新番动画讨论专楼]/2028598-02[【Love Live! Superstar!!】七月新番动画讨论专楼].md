@@ -4225,3 +4225,51 @@ ll其实一开始就是超现实设定 ...</blockquote>
 与”个人的理想和自我实现“的矛盾冲突了，即使在现实中对小型团和成员数二十人以内的固定团都是个需要平衡的大问题，何况现实中的团真正意义上的solo活动理论上起码都在养老期或者瓶颈期了。我比较悲观，很难想象花田能把这么大个主题给讲得令人信服。
 
 
+
+
+*****
+
+####  优妮可  
+##### 1843#       发表于 2021-10-12 09:41
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/094116kk6vg3vd138yhu6t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211012_093151.jpg</strong> (149.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 09:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/094116d70bxj1wjl7j73jp.png" referrerpolicy="no-referrer">
+
+
+<strong>thm_202110120955147286.png</strong> (94.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 09:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/094116zenesmm2wz77n2ne.png" referrerpolicy="no-referrer">
+
+
+<strong>thm_202110120955359679.png</strong> (39.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 09:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/12/094117to5vowbio5powvzb.png" referrerpolicy="no-referrer">
+
+
+<strong>item.png</strong> (318.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-12 09:41 上传
+
+
