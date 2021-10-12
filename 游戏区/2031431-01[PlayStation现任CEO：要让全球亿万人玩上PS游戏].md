@@ -685,3 +685,28 @@ PS2卖1.5亿台里有多少是廉价DVD播放器你心里清楚吧，PS5能干�
 居然真的存在比陈睿叔叔还可恨的人。如果说PS5现在有什么重大危机，那就是这个人。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  imosuke  
+##### 67#       发表于 2021-10-12 12:35
+
+
+几亿人里包括东亚日呆游戏爱好者吗？
+
+
+*****
+
+####  ArcticIce  
+##### 68#       发表于 2021-10-12 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53077085&amp;ptid=2031431" target="_blank">faithlifer 发表于 2021-10-11 16:39</a>
+现在就索尼不能改区跨区买低价游戏吧，ns有墨西哥steam俄区阿区，盒子更不用说了 ...</blockquote>
+“在我的steam里，我是一个阿根廷人🇦🇷。在我的ns里，我是一个巴西人🇧🇷。在看战狼电影，我实际上是一个中国人🇨🇳。”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+

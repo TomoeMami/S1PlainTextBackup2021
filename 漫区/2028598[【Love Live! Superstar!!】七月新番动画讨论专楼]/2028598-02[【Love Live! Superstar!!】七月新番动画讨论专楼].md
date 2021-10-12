@@ -4739,3 +4739,60 @@ LL不都是团队赛吗？弄个独唱比赛本来就很莫名其妙
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立本人阿炮粉挺多的，先不论千怎么样，最后那个solo感觉能拉不少分，看好11集评分超过第10集
 
 
+
+
+*****
+
+####  TTAA  
+##### 1882#       发表于 2021-10-12 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53087225&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-12 12:20</a>
+网易有这首</blockquote>
+然而am有的网易没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">纠结
+
+
+*****
+
+####  chenflyyy  
+##### 1883#       发表于 2021-10-12 12:34
+
+
+apple music最全就差一首歌，全都有的我是没找到，不如去天使动漫之类的地方下载吧
+
+
+*****
+
+####  TTAA  
+##### 1884#       发表于 2021-10-12 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53087366&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-12 12:34</a>
+apple music最全就差一首歌，全都有的我是没找到，不如去天使动漫之类的地方下载吧 ...</blockquote>
+也只能如此了
+
+
+*****
+
+####  秋月艾莉  
+##### 1885#       发表于 2021-10-12 12:38
+
+
+还不至尖锐到喷的程度，吐槽是蛮多的，除了ぶっちゃけ感想的那栋楼还另外开了几栋吐
+
+另外一个槽点就是围绕着你们三个真就答应啊之类说开来的星团没团感这点，不过这个其实一直都在车，这集再车一次罢了
+
+9话稳了一次，10话强发挥一次，已经把最近的火药味降很多了，而且5ch的东西看看得了，没必要往心里去
+
+这集事实上观感还是挺好的，只是细想不太对味罢了，而且是日本人最爱的幼驯染，这集评分很高也不奇怪
+
+
+*****
+
+####  lj205  
+##### 1886#       发表于 2021-10-12 12:40
+
+
+日本人这莫名其妙的幼驯染情节…………
+
+
