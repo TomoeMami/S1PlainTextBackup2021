@@ -1102,3 +1102,18 @@ hnn晚上醒来，凌晨开始播好几个小时，然后大早上8点歌回，�
 什么坦克对对碰
 
 
+
+
+*****
+
+####  fastary  
+##### 7580#       发表于 2021-10-12 16:46
+
+
+看到小偶像又推特cue黑客营业本来还有些不爽<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+后面看她在回复里调侃他明明高兴得蹦蹦跳跳，不知道为什么脑子里浮现出ymen像jk一样装可爱说好耶的幻视然后整个人就佛系了……<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+我是不是触发了大脑的什么神秘自我保护机制啊
+
+

@@ -5206,3 +5206,53 @@ instagram直播得全程日语了吧，真能应付的过来吗
 看fc有录歌的动态，应该是cd
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1921#       发表于 2021-10-12 16:27
+
+
+ 本帖最后由 秋月艾莉 于 2021-10-12 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53089483&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-12 15:22</a>
+
+立德的地位当然可以很高，但立德的精神可以说就是团队的精神、乃至作品的精神，立德个人线的故事主旨可以说 ...</blockquote>
+其实把香音和可可人设对换一下就好很多了
+
+香音是1号位是定死的立德，但类似历代立德的设定却安在了2号位可可身上，而可可身上除了对校偶和LL最抱有热情外甚至还给了个拥有超强后勤能力的设定，怎么看怎么好用，但却不拿来当leader用，感觉就是我要搞创新，但又不完全创新
+
+结果就是导致中间的剧情起历代立德该出马的场景本该发挥作用的可可在OMO，带有社恐设定的香音强行出场结果中间搞得像降神。星团的别扭感起码有一半来自于这个，我至今没有搞懂为什么要这么设，设了又不用
+
+
+*****
+
+####  chenflyyy  
+##### 1922#       发表于 2021-10-12 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53090394&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-12 16:20</a>
+看fc有录歌的动态，应该是cd</blockquote>
+出cd好诶，不知道加入ll后销量能涨多少，听说之前两张碟低到数据都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 1923#       发表于 2021-10-12 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53090613&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-12 16:32</a>
+出cd好诶，不知道加入ll后销量能涨多少，听说之前两张碟低到数据都没有 ...</blockquote>
+那时候毕竟还不是LL………………贴的动画也不行，卖不好也正常。说真的，鲤鱼走歌手这条路比cv难得多了………………歌手竞争更大
+
+
+*****
+
+####  离心  
+##### 1924#       发表于 2021-10-12 16:42
+
+
+说实话也不是黑，按liyuu的实力走歌手路线的话太难了，星团企划到后期的话还是希望她走国内cv路线的，毕竟国内声优蛋糕就只有那些人吃，没新鲜血液也不是办法
+
+

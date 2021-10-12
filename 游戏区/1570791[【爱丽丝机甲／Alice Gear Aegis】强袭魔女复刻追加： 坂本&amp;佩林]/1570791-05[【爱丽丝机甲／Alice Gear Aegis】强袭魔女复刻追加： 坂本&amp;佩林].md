@@ -1505,3 +1505,14 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
+
+
+*****
+
+####  alialex  
+##### 6108#         楼主| 发表于 2021-10-12 16:33
+
+
+这预告应该是an锉刀了吧
+
+
