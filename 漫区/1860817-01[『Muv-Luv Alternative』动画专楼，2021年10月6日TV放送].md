@@ -14606,3 +14606,17 @@ Un和AL的一系列东西都是白银武在思想上的动摇（与冥夜可能�
 当成旧番花了几天补完本篇三部曲可以说是意犹未尽很少有这种对话都想着看完的番了，以及看完游戏立绘对动画人设突然没了想法还我冥夜的发型<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  武蔵  
+##### 995#       发表于 2021-10-12 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53092284&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-12 18:09</a>
+
+遗憾的说只有妹妹线里妹妹和队长活了下来</blockquote>
+草哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -4059,3 +4059,27 @@ steam版，用uu加速器进联网模式，显示已登出steam不让玩。怎�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  节艾司  
+##### 330#       发表于 2021-10-12 18:54
+
+
+其实夜下做的处理比较合适，格挡失败之后盘子会碎一段时间
+
+
+
+
+*****
+
+####  红魔馆的糖  
+##### 331#       发表于 2021-10-12 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53092857&amp;ptid=2026924" target="_blank">节艾司 发表于 2021-10-12 18:54</a>
+其实夜下做的处理比较合适，格挡失败之后盘子会碎一段时间</blockquote>
+就是因为腋下的防御手段太少压制太厉害才吸取教训做成这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
