@@ -14260,3 +14260,59 @@ emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好�
 搜不到评分贴，想伸个手，看看之前的坛友评价如何<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nervpp  
+##### 972#       发表于 2021-10-12 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53070700&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2021-10-11 09:36</a>
+
+感谢
+
+
+一直想找个地方水抹布，但要么是有人月经话题水过了，要么就是没人感兴趣，sad ...</blockquote>
+同，不过现在发现自己有不少细节记不住了，还有就是很多设定上的东西其实并没有补足（比如设定本里的战术机和战线推进年表）
+
+
+*****
+
+####  nervpp  
+##### 973#       发表于 2021-10-12 09:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53078028&amp;ptid=1860817" target="_blank">地方就是咖啡好 发表于 2021-10-11 17:30</a>
+
+是这样啊，那抱着补完的想法我得考虑考虑前两篇……</blockquote>
+我最开始是UN看的漫画，然后al玩本篇，然后本篇结束后又跑回去感受的无印。
+
+算是一个奇怪的顺序吧，如果之前有玩过类似GAL的话，感觉AL开始也可以，毕竟最开始的时候你会自动带入各种模板剧情，大概能达到玩过前两代的效果吧。
+
+唯一要自己加持的观念的就是，前作的女主角你在这里没有见到，那是你最爱的人（设定上），这个观念在后期情节展开的时候还是很重要的。（在不被剧透的情况下）
+
+
+*****
+
+####  nervpp  
+##### 974#       发表于 2021-10-12 09:52
+
+
+现在，我最担心的是为了明年手游（听别人说的）的故事可以顺利展开并且给玩家足够多的抽卡空间，故事会被怎么魔改，设定有多少会被吃。
+
+毕竟在手游氪金收益的面前，其他的情怀和坚持还有什么私货展示都是弟弟
+
+
+*****
+
+####  亚尔古水手  
+##### 975#       发表于 2021-10-12 09:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53081111&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-11 21:01</a>
+
+emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好么。然后现代战争中防线这个东西的用处就是尽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人类战斗中防线也有一线二线三线之分啊，但是muv设定集里缺少对beta防线构建的设定，但绝对不可能只有一条防线，只在一条线上死磕那才是没有战术）
+
+
