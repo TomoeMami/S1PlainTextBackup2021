@@ -671,3 +671,17 @@ PS2卖1.5亿台里有多少是廉价DVD播放器你心里清楚吧，PS5能干�
 我有一计，买ps5送原神任意满命角色<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cubesun  
+##### 66#       发表于 2021-10-12 11:24
+
+
+对于Jim Ryan我只有一句话——————你的马什么时候死。
+
+
+居然真的存在比陈睿叔叔还可恨的人。如果说PS5现在有什么重大危机，那就是这个人。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
