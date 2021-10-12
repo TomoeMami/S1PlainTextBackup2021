@@ -4487,3 +4487,119 @@ LL不都是团队赛吗？弄个独唱比赛本来就很莫名其妙
 草，我突然真真正正的体会到可可前期对堇的不满了，上帝视角来看参加lovelive却跟lovelive关联不大确实挺闹心的
 
 
+
+
+*****
+
+####  笋狐  
+##### 1862#       发表于 2021-10-12 11:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了想，貌似把这集删了也对整个故事结构没有任何影响啊，什么你说这拍的是香音传，那没事了
+
+
+*****
+
+####  秋月艾莉  
+##### 1863#       发表于 2021-10-12 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085998&amp;ptid=2028598" target="_blank">1096beam 发表于 2021-10-12 10:50</a>
+
+这要看你觉得10话的live是不是民警和她的四个伴舞咯，我觉得最终话live的表现形式八九不离十了。 ...</blockquote>
+这次课题的情况是单人上台才合理吧，一起上台还特训什么，10话的情况能唱下次也自然能唱，香音的队友还能唱着唱着消失了不成
+
+
+*****
+
+####  JustW  
+##### 1864#       发表于 2021-10-12 11:06
+
+
+ 本帖最后由 JustW 于 2021-10-12 11:11 编辑 
+
+这集关键在于，表面上递进了（又是独自一人solo，又是和小时候自己的幻想交流），但内在没有递进。
+
+
+第三集香音能开口唱歌的理由，放到第十一集，也没有丝毫违和；第六集香音对小千以及小千对自己的操作，放到第十一集小千对香音身上，都是一模一样的。甚至第三集铺垫了可可的不离不弃和赛前紧张，第六集有香音闪现送鼓励，第十一集竟然直接全员鸽了+打了个电话就让香音突然成长了，不得不佩服fly bitch式的教育理念……
+
+
+第十集虽然也有些许瑕疵，但比起第四集做到了踏实的内在递进。
+
+
+*****
+
+####  kata魂  
+##### 1865#       发表于 2021-10-12 11:07
+
+
+现在才发现花田是写实派的啊，把可可那种不满的心里都能让我感受到，大师我误会你了
+
+
+*****
+
+####  megapikachu  
+##### 1866#       发表于 2021-10-12 11:11
+
+
+打电话那里其实香音自己就已经想明白了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1096beam  
+##### 1867#       发表于 2021-10-12 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53086176&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-12 11:04</a>
+
+这次课题的情况是单人上台才合理吧，一起上台还特训什么，10话的情况能唱下次也自然能唱，香音的队友还能 ...</blockquote>
+上个课题还是rap呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+最俗的展开，香音独自一人唱主歌，然后副歌来个场地魔法其他四人就登场了，反转一下香音独自唱副歌也行
+
+
+*****
+
+####  寒风夜  
+##### 1868#       发表于 2021-10-12 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53086213&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-12 11:06</a>
+
+这集关键在于，表面上递进了（又是独自一人solo，又是和小时候自己的幻想交流），但内在没有递进。
+
+
+第三集 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就构成挺怪，按以往套路，这集该是最乐观角色自闭被解决了
+
+
+*****
+
+####  JustW  
+##### 1869#       发表于 2021-10-12 11:19
+
+
+ 本帖最后由 JustW 于 2021-10-12 11:30 编辑 
+
+换一个角度，第十一集播完后，回过头来看第六集，香音闪现送鼓励这件事，起到了什么作用呢，小千想明白了什么事呢？
+
+
+第十一集前，我擅自认为成了，小千意识到了没必要极端地独自努力、不成功便成仁，别人的支持鼓励也是重要的，约定是要双方共同去实现的。
+
+
+第十一集播出后：这个小千和第五集的小千到底有甚么区别
+
+
+这说明小千从始至终的思路就是对的，根本不需要成长，只能说小千要是放在虹团违和感或许能小不少……
+
+
+*****
+
+####  kbtit  
+##### 1870#       发表于 2021-10-12 11:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集感觉本质还是卖幼馴染cp，没看到官方之后两人小时候的跳绳都拿出来卖了吗
+
+
