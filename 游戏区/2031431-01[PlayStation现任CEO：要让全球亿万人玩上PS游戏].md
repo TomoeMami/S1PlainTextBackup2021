@@ -850,3 +850,18 @@ ZZZQ的语境里..
 真不愧是香蕉企业，游戏界的漂亮国了属于是
 
 
+
+
+*****
+
+####  你好s1  
+##### 82#       发表于 2021-10-12 22:58
+
+
+太恶心了，ps中东救世主
+
+  xbox加油！
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
