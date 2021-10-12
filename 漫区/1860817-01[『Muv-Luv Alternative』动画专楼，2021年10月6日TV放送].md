@@ -14350,3 +14350,36 @@ emmmmm撤退？BETA大战中地面部队的常态是被突破绝对跑不掉好�
 游戏有好几个不同线路的结局
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 978#       发表于 2021-10-12 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085220&amp;ptid=1860817" target="_blank">nervpp 发表于 2021-10-12 09:50</a>
+我最开始是UN看的漫画，然后al玩本篇，然后本篇结束后又跑回去感受的无印。
+
+算是一个奇怪的顺序吧，如果 ...</blockquote>
+所以我一直说“extra的唯一目标是建立起‘不选纯夏有微妙的负罪感’”，事实上我确实如此并抱着“我他妈的那么大一只纯夏去哪了呢”的心态从un一直打到alt中盘那里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">演出效果是达到了
+
+
+*****
+
+####  hacisiki  
+##### 979#       发表于 2021-10-12 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53085340&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2021-10-12 09:58</a>
+
+人类战斗中防线也有一线二线三线之分啊，但是muv设定集里缺少对beta防线构建的设定，但绝对不可能 ...</blockquote>
+你也不看佐渡岛才多大块地方，那破海湾最大宽度才8公里。突击级开足马力从击穿整个大岛连半个小时都不需要。本身海水限制了激光射击后这地方其实是个很典型的热兵器防御冷兵器军团突击的棱堡结构，不在海边死磕直接会被一波带走，想啥呢。
+
+
+是有很多条防线没错。但是每条防线上的单位只能死磕，火力和后勤单位没有机动单位反突击的话根本跑不掉。所以才更应该把两个不满编中队留作预备队进行反突击。
+
+
+口口声声现代，战术，小兄弟看过一点点战役学么？
+
+

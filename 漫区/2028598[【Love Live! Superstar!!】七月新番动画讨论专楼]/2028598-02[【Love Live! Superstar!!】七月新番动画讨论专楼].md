@@ -4603,3 +4603,55 @@ LL不都是团队赛吗？弄个独唱比赛本来就很莫名其妙
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集感觉本质还是卖幼馴染cp，没看到官方之后两人小时候的跳绳都拿出来卖了吗
 
 
+
+
+*****
+
+####  lj205  
+##### 1871#       发表于 2021-10-12 11:51
+
+
+以前还没啥感觉，现在看她们活动完后鞠躬就挺烦日本人这套礼节
+
+
+*****
+
+####  秋月艾莉  
+##### 1872#       发表于 2021-10-12 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53086292&amp;ptid=2028598" target="_blank">1096beam 发表于 2021-10-12 11:12</a>
+
+上个课题还是rap呢
+
+最俗的展开，香音独自一人唱主歌，然后副歌来个场地魔法其他四人就登场了，反 ...</blockquote>
+上个课题是有RAP要素，民警那段放现实日音里完全够格称作RAP，没问题
+
+这次就当不是真独唱只是SOLO PART吧，可她们的歌本来就一直都有SOLO啊，到时队友也会上场，那香音的问题是哪怕队友也上场，但只要队友稍微离远一点，哪怕只是暂时躲躲后台，就会像收不到信号的电话一样马上失声？这也太……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 1873#       发表于 2021-10-12 12:04
+
+
+香音需要队友才能唱：
+
+
+我以为的解决方法：虽然我们四个人身不在台上，但心与你同在XXOOOOOX
+
+实际：不，你不需要，自己唱才是真的唱
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TTAA  
+##### 1874#       发表于 2021-10-12 12:04
+
+
+国内听liella的哪里版权好点，在APmusic找私のSymphony找不到……
+
+
