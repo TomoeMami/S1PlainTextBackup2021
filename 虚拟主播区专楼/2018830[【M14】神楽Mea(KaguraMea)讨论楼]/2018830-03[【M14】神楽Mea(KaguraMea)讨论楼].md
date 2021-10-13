@@ -7612,3 +7612,14 @@ tc好
 状态有点好
 
 
+
+
+*****
+
+####  路人庚  
+##### 3682#       发表于 2021-10-13 22:14
+
+
+这回的麦克风消音好像没完全打开（指可以听见她在一边摆弄桌上的东西一边说话<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
