@@ -14962,3 +14962,436 @@ mla第一集动画，少女存活问题，可以解释为少女存活这件事�
 好吧 能动就行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1020#       发表于 2021-10-14 01:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53109419&amp;ptid=1860817" target="_blank">黑圆桌 发表于 2021-10-13 20:16</a>
+
+光线种无力是怎么回事，细说</blockquote>
+苏伊士地区的沙尘暴反激光（没错，这个不是段子，而且设定出来的时间比局座那个段子更早）
+
+
+
+
+*****
+
+####  hacisiki  
+##### 1021#       发表于 2021-10-14 01:51
+
+
+这OPED还能勉强和剧情副会上，但是1没有格局2没有灵魂。
+
+
+*****
+
+####  hacisiki  
+##### 1022#       发表于 2021-10-14 01:53
+
+
+绿绿，法国人和英国人硬在苏伊士蹲到世界结束都没被突破。那边可是90年代初开始直面进攻的。土鳖也在西北蹲到90年代初侧翼突破才被迫后退的。
+
+
+*****
+
+####  kisstv22  
+##### 1023#       发表于 2021-10-14 01:57
+
+
+男主CV我哭了，真就是人人都能当声优<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LRS2376852435  
+##### 1024#       发表于 2021-10-14 02:01
+
+
+还是包子声音好听
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  alucardcz  
+##### 1025#       发表于 2021-10-14 02:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113368&amp;ptid=1860817" target="_blank">LRS2376852435 发表于 2021-10-14 02:01</a>
+
+还是包子声音好听
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没的比 这男主cv还是个新人。哎
+
+
+*****
+
+####  再买自检星剁手  
+##### 1026#       发表于 2021-10-14 02:09
+
+
+合格了，人物也没崩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+就是第一集没跟社霞见面，忘了原作是不是这样
+
+
+*****
+
+####  LRS2376852435  
+##### 1027#       发表于 2021-10-14 02:10
+
+
+<img src="https://img.saraba1st.com/forum/202110/14/021011vyjyydygxe7y85kk.gif" referrerpolicy="no-referrer">
+
+
+<strong>20211014_020824.gif</strong> (536.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 02:10 上传
+
+
+动画敬礼一点劲都没有，是没吃饭吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  passion_krsw  
+##### 1028#       发表于 2021-10-14 02:25
+
+
+这第一集和第二集怎么割裂感这么严重 根本不是同一批人 还以为我少看了一季<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 1029#       发表于 2021-10-14 02:32
+
+
+OPED在影像上是完全OK的，就是歌本身…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯夏  
+##### 1030#       发表于 2021-10-14 02:35
+
+
+作画实在是太贫穷了 肉眼可见的穷 OP emmm  我觉得比不过ATE和黑标
+
+武的新声优棒读的也太严重了 也就模仿包子配的那几句还行
+
+香月老师的声优也不行啊 缺少熟女那味 冥夜 说话没底气…
+
+剧本真是意料之中的跑火车  而且速度的也快了  好严重的撕裂感
+
+这BGM运用被游戏吊打 埋包袱的时候没BGM也是服气…
+
+ED曲的节奏 也太欢快了  不合适啊
+
+
+*****
+
+####  hacisiki  
+##### 1031#       发表于 2021-10-14 02:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113517&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-14 02:35</a>
+
+作画实在是太贫穷了 肉眼可见的穷 OP emmm  我觉得比不过ATE和黑标
+
+武的新声优棒读的也太严重了 也就模仿包 ...</blockquote>
+没有灵魂+1,看歌词可以看出至少把大概剧情拉了一遍或者被讲解了一遍，但是完全没有感动或者升华理解。还是JAM好啊，不管是歌词还是音乐都好啊。
+
+
+*****
+
+####  LRS2376852435  
+##### 1032#       发表于 2021-10-14 02:46
+
+
+现在最大的愿望是后续oped能是未来への咆哮 2022 ver.和マブラヴ 2022 ver. ，虽然感觉也没太大可能就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hacisiki  
+##### 1033#       发表于 2021-10-14 02:47
+
+
+期待下有人做替换吧
+
+
+*****
+
+####  噗呸破屁诚  
+##### 1034#       发表于 2021-10-14 02:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">另外不知道是不是煌大和的声音深入人心了，男主这配的感觉是一点味道也没有，再加上一大堆心理活动，观感实在是太差了。。。。
+
+
+*****
+
+####  天剑流星  
+##### 1035#       发表于 2021-10-14 03:06
+
+
+若本爷，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+声优棒读已经是预期内了，这剧本真的有玩过原作嘛，以及配乐是真的无话可说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1036#       发表于 2021-10-14 03:10
+
+
+看完了，虽然也没有好到哪去，但是也没有比我预料的要差<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我心态放得很低了
+
+
+我觉得最大的问题也是我最喜欢抹布本篇游戏的一点是，它的文本写的是很扎实的。哪怕私货味重如那段，各方的文本动机都是非常扎实圆满的。动画为了速度势必会大幅度削减文本导致人物动机也会改变，如果有个好的系构或许能重新理顺，但是我并不看好它的表现。
+
+
+比方说这集白银武说服香月夕呼那里，虽然可能无论白银武怎么讲香月都会留下他，但是白银武主动说服和香月看到白银武哭脸喊口号对于人物形象还是有挺大不同的。
+
+
+其他注意的点，有点鸡毛蒜皮无关痛痒，不含剧透纯动画党可以直接看（真的有吗）：
+
+- 一个字没提到纯夏，我有点不爽。说真的制作组你不现在给观众灌输一下“你有一个很爱也很爱你的青梅竹马但是你在整个上个世界线都没见到她”这一点吗？我觉得这和没见到beta就alt5发动的迷茫感是unlimited篇的两个重要任务，虽然没法表现出来了但是嘴上说说让观众客观认识到也行啊
+
+- 白银武对于安排成训练兵这一点居然没有意见，你不是很急的吗 —— 制作组：我们也很急啊戏份安排不完了你就少说两句吧
+
+- 白银武来到现场，第一个见到她的从小珠变成了冥夜wwww
+
+- 没提“特别的人”这句话啊，虽然确实无关痛痒
+
+- 这集的进度刚到1-2，虽然也有介绍背景的因素，但是这个速度……感觉按照这个进度最快应该是第四集或者第五集左右见到纯夏？取决于删不删超级兵王的戏份<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯夏  
+##### 1037#       发表于 2021-10-14 03:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113540&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-14 02:44</a>
+
+没有灵魂+1,看歌词可以看出至少把大概剧情拉了一遍或者被讲解了一遍，但是完全没有感动或者升华理解。还 ...</blockquote>
+ATE和黑标动画都能和游戏的声优保持一致 全是一线大牌
+
+然而最精彩的AL声优大换血 换一批还换的是一堆没名气新人
+
+有名气的新人声优多了去了 不懂为何选这么新的
+
+除了若本爷是原CV  动画里其他CV也就miku和楠木灯知名度最高
+
+玩过游戏的骨灰都明白这跑火车的剧本 
+
+但是新观众看了第1集再看这第2集 不知道是什么感受 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1038#       发表于 2021-10-14 03:29
+
+
+S1传图不方便口述了
+
+ed小珠那卡，你们这世界线还有吹风机啊？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桧月彩花  
+##### 1039#       发表于 2021-10-14 03:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113603&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-14 03:16</a>
+
+ATE和黑标动画都能和游戏的声优保持一致 全是一线大牌
+
+然而最精彩的AL声优大换血 换一批还换的是一堆没名 ...</blockquote>
+那俩还有做做广告的意思在，这个卖了这么久，制作再精良也不会提升太多销量吧。
+
+
+*****
+
+####  jctc  
+##### 1040#       发表于 2021-10-14 03:45
+
+
+没钱了，没钱了，经济已经崩溃了
+
+
+*****
+
+####  再买自检星剁手  
+##### 1041#       发表于 2021-10-14 03:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113603&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-14 03:16</a>
+
+ATE和黑标动画都能和游戏的声优保持一致 全是一线大牌
+
+然而最精彩的AL声优大换血 换一批还换的是一堆没名 ...</blockquote>
+换声优本来就是资方的条件之一吧，那新声优自然也得是和资方有关系的。
+
+
+别的事务所的有名新人又如何？就好比之前2077的b站合作，都是b站自家签约主播一样。
+
+
+这剧本还行了，跑火车比这个快多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  菱0零  
+##### 1042#       发表于 2021-10-14 03:52
+
+
+及格吧，声线姑且还是那个味，不过某横滨魔女怎么这么沉稳啊，剧情上1集直接跳过ex+un，不是原作党真能看明白吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这集观感最好的就是ed里面小麻给夕呼盖毯子那个画面
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  再买自检星剁手  
+##### 1043#       发表于 2021-10-14 03:54
+
+
+看推特上有人考察动画里敬礼都是海军式，这也要保持陆军马鹿传统嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202110/14/035315zddlrbfkftcvudfr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20140409_1082180.jpg</strong> (56.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 03:53 上传
+
+
+*****
+
+####  纯夏  
+##### 1044#       发表于 2021-10-14 04:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113675&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-14 03:48</a>
+
+换声优本来就是资方的条件之一吧，那新声优自然也得是和资方有关系的。
+
+
+别的事务所的有名新人又如何？就 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/14/035737hj6ejj0mj6jzz3u3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211014035648.jpg</strong> (27.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 03:57 上传
+
+
+虽然是这样 但是吉总他是有权限的 虽然他在发布会上说是为了AGE下个10年而换新CV 
+
+但是换的实在是太新了 这CV经验不足 一上来就主役说台词最多的量 只会给观众留下拉跨的印象
+
+
+*****
+
+####  再买自检星剁手  
+##### 1045#       发表于 2021-10-14 04:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113714&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-14 04:00</a>
+
+虽然是这样 但是吉总他是有权限的 虽然他在发布会上说是为了AGE下个10年而换新CV 
+
+但是换的实在是太新 ...</blockquote>
+层主猜测：吉宗钢纪确实可以选cv，但可选范围是资方定的，然后主人公cv候选就神木最不拉垮了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 1046#       发表于 2021-10-14 04:03
+
+
+鸡总说了啊他去选人的标准就是声音像不像能有多像这一条…其他的他也管不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯夏  
+##### 1047#       发表于 2021-10-14 04:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113719&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-14 04:03</a>
+
+层主猜测：吉宗钢纪确实可以选cv，但可选范围是资方定的，然后主人公cv候选就神木最不拉垮了 ...</blockquote>
+不懂资方给吉总的范围是啥 但是神木孝一所属的事务所是I'm Enterprise
+
+如果是在I'm里选  我肯定选内田弟  实力和名气共存 
+
+之前盖塔ARC配的也非常棒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最后的法芙娜  
+##### 1048#       发表于 2021-10-14 05:26
+
+
+ 本帖最后由 最后的法芙娜 于 2021-10-14 05:49 编辑 
+<blockquote>ReginaldMorgan 发表于 2021-10-14 03:10
+看完了，虽然也没有好到哪去，但是也没有比我预料的要差我心态放得很低了
+
+
+我觉得最大的问题也是我 ...</blockquote>
+编辑掉
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1049#       发表于 2021-10-14 05:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113822&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-14 05:26</a></blockquote>
+
+你这剧透有点严重，反白一下吧
+
+虽然我也不知道这楼里还有没有活的纯动画党，但是还是假装有吧
+
+
+*****
+
+####  400姨妈  
+##### 1050#       发表于 2021-10-14 05:43
+
+
+只看这ed我还以为看的是名作之壁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

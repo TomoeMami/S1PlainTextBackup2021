@@ -4110,3 +4110,14 @@ steam版，用uu加速器进联网模式，显示已登出steam不让玩。怎�
 更新了一些关于GP和霸体的对应技巧，以及防御/D朝向的说明等
 
 
+
+
+*****
+
+####  wsktcy  
+##### 334#       发表于 2021-10-14 03:45
+
+
+我是啥b，我看xbox版便宜买的xbox版，一个人也匹不到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
