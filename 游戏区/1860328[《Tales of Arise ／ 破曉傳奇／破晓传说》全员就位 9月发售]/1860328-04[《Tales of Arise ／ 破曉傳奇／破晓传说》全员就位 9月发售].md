@@ -19024,3 +19024,17 @@ BA BS想简化操作，那就做Qte呗。
 互联网上还没有很多原声音轨的二次创作，搞得我都有点技痒想用口琴吹一下 flame of hope<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  先生空气  
+##### 5903#       发表于 2021-10-13 14:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53058564&amp;ptid=1860328" target="_blank">华安9527 发表于 2021-10-10 02:09</a>
+
+小剧场触发了297个，还差三个解锁成就，主线已经推完，支线就剩下两个，是不是没救了解锁不了剩下的 ...</blockquote>
+小剧场跟着其他成就做，钓鱼这些都有小剧场的，不用担心
+
+

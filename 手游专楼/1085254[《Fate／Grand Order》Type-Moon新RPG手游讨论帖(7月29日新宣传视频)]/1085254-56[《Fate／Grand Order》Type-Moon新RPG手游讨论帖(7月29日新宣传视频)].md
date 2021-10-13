@@ -17768,3 +17768,35 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你变了 非萌1宝就满足了 你居然要2宝
 
 
+
+
+*****
+
+####  areklose  
+##### 83977#       发表于 2021-10-13 14:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103677&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-13 13:57</a>
+
+你变了 非萌1宝就满足了 你居然要2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">信你的邪。不信你没赌2宝
+
+
+*****
+
+####  森兰丸  
+##### 83978#       发表于 2021-10-13 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103677&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-13 13:57</a>
+
+你变了 非萌1宝就满足了 你居然要2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没变啊....非洲人一直是都只抽自己喜欢的....get不到点的池子不会浪费一颗石头
+
+
+哪像萌新石不过3时不时就出一个new 5
+
+
+另外这嘉年华第2集没人做字幕么....艾蕾和刑部姬最后吵架那段信息量太大....生肉还是听的有点吃力
+
+
