@@ -1202,3 +1202,14 @@ hnn晚上醒来，凌晨开始播好几个小时，然后大早上8点歌回，�
 这下真控制不住杞憂了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Junchoon  
+##### 7588#       发表于 2021-10-13 12:38
+
+
+昨天双叶郡神联动，神田的情商真的被叶完爆，一对比不免觉得这人有点讨厌......
+
+

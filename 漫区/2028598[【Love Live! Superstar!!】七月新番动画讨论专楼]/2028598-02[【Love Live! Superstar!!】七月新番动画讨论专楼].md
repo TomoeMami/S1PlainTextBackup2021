@@ -5979,3 +5979,17 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">香哥哥海王先不说，其实感觉可可推还是挺赚的，可警基本锁死，可香目前也算大热cp，感觉花田对唐可可这个中国角色确实用心，除了有些地方用力过猛。所以第二季能不能整个千恋，或者可恋啥的，恋没cp肯定是说不过去的
 
 
+
+
+*****
+
+####  cat1230  
+##### 1985#       发表于 2021-10-13 12:41
+
+
+千香更锁死了，警恋还不如香恋有笔墨。还是可恋吧，有假药，又有海外爹的背景可以和外国人可可配套下
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
