@@ -15395,3 +15395,16 @@ ATE和黑标动画都能和游戏的声优保持一致 全是一线大牌
 只看这ed我还以为看的是名作之壁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Carta_Issue  
+##### 1051#       发表于 2021-10-14 06:31
+
+
+这给白银武配音的声优又是一个跟第一话佐渡岛少女一样被资方硬塞的角色吧？！
+
+第一话那个客串的佐渡岛少女就已经严重切裂剧情了
+
+
