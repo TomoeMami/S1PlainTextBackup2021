@@ -6018,3 +6018,24 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">可香基本上第三话之后就没花什么笔墨了吧，可警也是最近才发力，那只能怪花田这次青梅写的确实不行
 
 
+
+
+*****
+
+####  kata魂  
+##### 1988#       发表于 2021-10-13 13:07
+
+
+当初入可香绝对想不到死的比千梨还惨，人家好歹撑了一季，可香撑了三集半然后啥都没了
+
+
+*****
+
+####  saglork  
+##### 1989#       发表于 2021-10-13 13:14
+
+
+一单广播剧明明已经明示了分组，只看前三话就锁死可香的只能说还是太年轻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+而且小千前三话的幼驯染存在感明明一点不低，几乎也是明示了后续一定会发力的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

@@ -1213,3 +1213,33 @@ hnn晚上醒来，凌晨开始播好几个小时，然后大早上8点歌回，�
 昨天双叶郡神联动，神田的情商真的被叶完爆，一对比不免觉得这人有点讨厌......
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7589#       发表于 2021-10-13 13:09
+
+
+粉 嫩。
+
+
+<img src="https://img.saraba1st.com/forum/202110/13/130846axxaovxzxopamm7v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211013_130646.jpg</strong> (713.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-13 13:08 上传
+
+
+*****
+
+####  OldGlory  
+##### 7590#       发表于 2021-10-13 13:22
+
+
+同样是925银戒指，彩虹卖31000，木口卖13750，anycolor确实生财有道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
