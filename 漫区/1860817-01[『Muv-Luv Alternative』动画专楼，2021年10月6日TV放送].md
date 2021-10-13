@@ -14827,3 +14827,35 @@ mla第一集动画，少女存活问题，可以解释为少女存活这件事�
 上面再弄些肉，里面掺杂肉毒杆菌，让士兵级带回老家，菌菌们繁殖的不要太开心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1010#       发表于 2021-10-13 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53106794&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2021-10-13 17:31</a>
+
+虽然想说点什么，但是感觉讨论这种本身就很荒唐的设定本身就很无聊伤和气多不好，大家就当无事发生 ...</blockquote>
+4公里外的鞭子？BETA优先会向着有高性能电子设备和人员的地方突击，所以我才说只放火力部队。因为他们只有钢铁和火药。
+
+
+*****
+
+####  hacisiki  
+##### 1011#       发表于 2021-10-13 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103243&amp;ptid=1860817" target="_blank">a.r.m 发表于 2021-10-13 13:23</a>
+
+要是第一阶段的突击级冲击防护墙支持不住，在没了固定火炮支持下，两个中队的战术机能清理跟随七八个要塞 ...</blockquote>
+突击级只要不打正面其实很脆弱，用。50都能打。两侧配合的火力单位用榴弹把它们打到失能就行了。
+
+
+另外那个防护墙的主要任务其实是给后方的部队机动提供视野遮蔽。
+
+
+在苏伊士战线因为光线种无力化绿绿们能在那边顶10年。佐渡岛这边打成这样真的是体现了帝国军在剧情上一贯的拉胯。
+
+
