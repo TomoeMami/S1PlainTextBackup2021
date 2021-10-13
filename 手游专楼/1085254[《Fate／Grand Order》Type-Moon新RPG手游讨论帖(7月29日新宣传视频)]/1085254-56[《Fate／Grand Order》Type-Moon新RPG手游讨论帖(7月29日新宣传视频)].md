@@ -17679,3 +17679,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 你看，如果你上面没出梵高，现在不就有池子抽了吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 83970#       发表于 2021-10-13 10:19
+
+
+嘉年华各种发病，官方这不是很懂自己的问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
