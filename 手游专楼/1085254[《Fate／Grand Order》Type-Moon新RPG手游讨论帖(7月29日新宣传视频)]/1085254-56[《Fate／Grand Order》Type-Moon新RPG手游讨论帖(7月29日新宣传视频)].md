@@ -17863,3 +17863,35 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 你游还是蛮保值的，有一场打武藏和那个谁我前排打手第一个回合就翻了靠替补的70级二姐也打过了，结束后第一件事情把二姐拉到90级。。。
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83983#       发表于 2021-10-13 17:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wu shi fa sheng
+
+
+*****
+
+####  阿提拉  
+##### 83984#       发表于 2021-10-13 17:10
+
+
+20号生放，基本就是放完就开了吧。看这logo的样子还真是灰姑娘
+
+
+*****
+
+####  alucardcz  
+##### 83985#       发表于 2021-10-13 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53106495&amp;ptid=1085254" target="_blank">阿提拉 发表于 2021-10-13 17:10</a>
+
+20号生放，基本就是放完就开了吧。看这logo的样子还真是灰姑娘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可今天才13号 意思还要摸1星期吗
+
+
