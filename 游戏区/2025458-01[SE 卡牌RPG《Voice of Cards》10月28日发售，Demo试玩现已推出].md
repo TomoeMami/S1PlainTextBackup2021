@@ -1512,3 +1512,17 @@ GM并不是完全照着字幕读，某些剧情还会加入自己的吐槽，记
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  jacket  
+##### 117#       发表于 2021-10-13 09:30
+
+
+直播里提到的各种筋肉人
+
+[https://twitter.com/VOICEOFCARDS/status/1447124751374299138](https://twitter.com/VOICEOFCARDS/status/1447124751374299138)
+<img src="https://img.imoutomoe.net/images/2021/10/13/1447124751374299138.jpg" referrerpolicy="no-referrer">
+
+
