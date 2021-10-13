@@ -6457,3 +6457,31 @@ https://twitter.com/Deadnooodles/status/1448202031693324292</blockquote>
 好像这楼连续两张五人时装图中香音也是穿裤子而另外四人穿裙子，真的是池面男主定位啊。
 
 
+
+
+*****
+
+####  player3960  
+##### 2024#       发表于 2021-10-13 21:34
+
+
+不管是官方图，bd封面，还是动画里，乡音的私服基本都是偏中性运动休闲风，严重怀疑要不是校服和演出，她平时估计都不会穿裙子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 2025#       发表于 2021-10-13 21:39
+
+
+简单的翻译了下
+
+<img src="http://wx4.sinaimg.cn/mw1024/0089S4Hmly1gve0i96lflj60w00u0al302.jpg" referrerpolicy="no-referrer">
+
+
+作者：
+<img src="http://wx4.sinaimg.cn/mw1024/0089S4Hmly1gve0i90efaj30j80f0mzi.jpg" referrerpolicy="no-referrer">
+
+

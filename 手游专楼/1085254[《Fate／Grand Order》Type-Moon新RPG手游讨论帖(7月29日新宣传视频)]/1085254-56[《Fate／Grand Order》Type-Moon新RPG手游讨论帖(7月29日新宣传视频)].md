@@ -17967,3 +17967,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 奥伯龙:你是龙,也好<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  上坂莲华  
+##### 83992#       发表于 2021-10-13 21:34
+
+
+看到会动的C呆了，太好了，明年什么时候到啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
