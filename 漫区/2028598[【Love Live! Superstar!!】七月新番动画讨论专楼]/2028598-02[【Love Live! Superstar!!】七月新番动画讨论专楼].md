@@ -6500,3 +6500,18 @@ https://twitter.com/Deadnooodles/status/1448202031693324292</blockquote>
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  ads147147  
+##### 2027#       发表于 2021-10-13 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53110625&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-13 21:39</a>
+简单的翻译了下</blockquote>
+草，千看的是希的本子可还行。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
