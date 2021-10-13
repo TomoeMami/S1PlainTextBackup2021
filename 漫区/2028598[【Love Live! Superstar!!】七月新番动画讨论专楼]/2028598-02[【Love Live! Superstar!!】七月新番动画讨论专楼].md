@@ -6444,3 +6444,16 @@ ed不就是2+3吗？但哪有3，不是2+2+1吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现实偶像动画，让我想起了阿宽的WUG
 
 
+
+
+*****
+
+####  Gooddays  
+##### 2023#       发表于 2021-10-13 19:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53108104&amp;ptid=2028598" target="_blank">Piano-Forest 发表于 2021-10-13 18:59</a>
+https://twitter.com/Deadnooodles/status/1448202031693324292</blockquote>
+好像这楼连续两张五人时装图中香音也是穿裤子而另外四人穿裙子，真的是池面男主定位啊。
+
+
