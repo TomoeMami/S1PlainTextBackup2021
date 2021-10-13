@@ -17800,3 +17800,17 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 另外这嘉年华第2集没人做字幕么....艾蕾和刑部姬最后吵架那段信息量太大....生肉还是听的有点吃力
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83979#       发表于 2021-10-13 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103746&amp;ptid=1085254" target="_blank">areklose 发表于 2021-10-13 14:02</a>
+
+信你的邪。不信你没赌2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">萌新战王姐2宝翻车了！ 你楼上那可是无课直接5宝王姐的天选之人！
+
+
