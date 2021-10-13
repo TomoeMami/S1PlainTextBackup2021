@@ -17906,3 +17906,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 怎么看出是灰姑娘的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 83987#       发表于 2021-10-13 18:58
+
+
+暗黑的使徒啊，那当然是阿基米德咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

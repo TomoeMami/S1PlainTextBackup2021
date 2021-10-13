@@ -6423,3 +6423,24 @@ ed不就是2+3吗？但哪有3，不是2+2+1吗
 这团体最大问题是除了可可之外，另外四人有着 LL 以外的真正目标，参与 LL 只是她们为达目标的手段，这 LL 团队本身便很不稳定，任何时候有人毕业退队也不奇怪。
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 2021#       发表于 2021-10-13 18:59
+
+
+[https://twitter.com/Deadnooodles/status/1448202031693324292](https://twitter.com/Deadnooodles/status/1448202031693324292)
+<img src="https://p.sda1.dev/2/0c8b11b00c789093a5e3ef7044826384/20211013_185832.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kbtit  
+##### 2022#       发表于 2021-10-13 19:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现实偶像动画，让我想起了阿宽的WUG
+
+

@@ -1390,3 +1390,18 @@ Replying to  @uni_mafumafu
 说起这个otaku，我才想起我好早之前就关注他了，是个玩马娘的，怎么搭上kmt和hnn的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7601#       发表于 2021-10-13 18:53
+
+
+ 本帖最后由 FCCHua 于 2021-10-13 19:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53107901&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2021-10-13 18:44</a>
+说起这个otaku，我才想起我好早之前就关注他了，是个玩马娘的，怎么搭上kmt和hnn的 ...</blockquote>
+这就要问hnn了，怎么正好看到他直播提oreapo，还神速的拉上kmt当晚三人联动apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 这位不会真的想5万粉之后参加cr杯吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
