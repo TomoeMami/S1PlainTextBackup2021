@@ -14782,3 +14782,48 @@ mla第一集动画，少女存活问题，可以解释为少女存活这件事�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  亚尔古水手  
+##### 1007#       发表于 2021-10-13 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53098693&amp;ptid=1860817" target="_blank">桧月彩花 发表于 2021-10-13 03:34</a>
+
+真实系的武器 vs 超级系的敌人</blockquote>
+我的锅，不该一本正经讨论这种根本不正经的设定的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚尔古水手  
+##### 1008#       发表于 2021-10-13 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53098003&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-13 01:34</a>
+
+突击级起伏地形突破速度60-80KM，平整野地120+的集群速度。支援单位和火力集群的撤退速度能有多少？在高 ...</blockquote>
+虽然想说点什么，但是感觉讨论这种本身就很荒唐的设定本身就很无聊伤和气多不好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，大家就当无事发生吧，军盲不太懂，也不敢继续下什么结论。
+
+
+顺便要塞级的订订是可以一鞭子扫平74的……人家也不是站桩被你按着打……
+
+
+*****
+
+####  桧月彩花  
+##### 1009#       发表于 2021-10-13 17:42
+
+
+老实说我觉得对付它们最好的选择，是不到半米高、跑的贼快的自走地雷
+
+目前看Beta都挺高挺大，而且对正下方没有防护。而且蛋白质对于破片杀伤和震荡都没什么防御能力。
+
+半米高的小车，加个1kg战斗部，配个电动机+锂电池+舵机+小陀螺仪，一台成本估计屁民币不到一万，还不用训练驾驶员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+上面再弄些肉，里面掺杂肉毒杆菌，让士兵级带回老家，菌菌们繁殖的不要太开心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
