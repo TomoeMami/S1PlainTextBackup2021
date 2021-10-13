@@ -5830,3 +5830,17 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 但这个up主的投稿命名太标题党了不喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1972#       发表于 2021-10-13 08:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53096234&amp;ptid=2028598" target="_blank">梶原ひかり 发表于 2021-10-12 22:50</a>
+
+第十集的观看人数好像事出bug了...因为弹幕数量没有随之提高的样子</blockquote>
+贴吧貌似有人当时看了直播，观众数量是慢慢逐渐上升的，并不是一下跳到1w
+
+

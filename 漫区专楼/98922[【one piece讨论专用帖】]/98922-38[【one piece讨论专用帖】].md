@@ -4153,3 +4153,33 @@ kiing这边是真正的皇团二把手 虽然都是三灾但索隆这边肯定�
 对比蛋糕岛就是路飞打卡二 真正的硬仗 吃力也正常
 
 
+
+
+*****
+
+####  萝卜roto  
+##### 55801#       发表于 2021-10-13 01:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53059269&amp;ptid=98922" target="_blank">peacemaker 发表于 2021-10-10 07:59</a>
+罗布路奇  “妈的又要去抓那个女人了”</blockquote>
+路奇我都想不懂什么脑回路，以前路飞还不出名瞧不起人家被人家打趴了。现在路飞都成长到跟四皇凯多干架的地步了，就算红狗亲自来了都不一定怂啊，真当自己什么了啊，还敢派人去抢人，这不是怒送人头么
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  saturnus  
+##### 55802#       发表于 2021-10-13 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53091867&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-10-12 17:40</a>
+绿藻头要怎么觉醒才能压过改造人基因
+
+事实证明什么超新星战四皇新时代VS旧时代都是cjb
+
+哦不对，其他船长还 ...</blockquote>
+一个黑刀就够了，这玩意儿目前比霸王色缠绕还稀有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
