@@ -1552,3 +1552,18 @@ hnn这几天播影之诗应该是他原因。
 草，那有点麻<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 7612#       发表于 2021-10-14 00:59
+
+
+<blockquote>作曲、作詞：菅原圭
+
+編曲：蛙目書店</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
