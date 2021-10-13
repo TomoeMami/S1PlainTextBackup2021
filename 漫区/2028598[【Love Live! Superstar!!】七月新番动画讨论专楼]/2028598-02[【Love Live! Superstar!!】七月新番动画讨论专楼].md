@@ -6123,3 +6123,59 @@ ed不就是2+3吗？但哪有3，不是2+2+1吗
 虽然快结束了，但企划还是继续的，一直刷贴也不合适，求问有没星团qq 群和鲤鱼群叻？
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 1997#       发表于 2021-10-13 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103937&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-13 14:18</a>
+虽然快结束了，但企划还是继续的，一直刷贴也不合适，求问有没星团qq 群和鲤鱼群叻？ ...</blockquote>
+在这贴接着讨论就挺好的，不是很喜欢q群那种大量无意义水和表情包的氛围
+鲤鱼有个本人在的官方群，不过现在好像不能进了
+
+
+*****
+
+####  蒹葭公子  
+##### 1998#       发表于 2021-10-13 14:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103849&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-13 14:10</a>
+
+我怎么觉得楼上误会了，这集难道不是单飞大于天吗，让香音solo就是为了以后单飞铺路啊。甚至连主题都给她加 ...</blockquote>
+没心情去思考中间的差别，对我来说就是香音独唱这个桥段（也可以说单飞，也可以是偶像活动本身）大过了所有逻辑，让人观感奇差无比……
+
+
+*****
+
+####  夜明的月下  
+##### 1999#       发表于 2021-10-13 14:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">我成了一个活在前三集的可香人
+
+
+*****
+
+####  寒风夜  
+##### 2000#       发表于 2021-10-13 14:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">啊，那还真想不到。。
+
+
+*****
+
+####  cat1230  
+##### 2001#       发表于 2021-10-13 14:40
+
+
+动画毕竟是动画，还是看中之人活动吧。多来点生放也好啊
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
