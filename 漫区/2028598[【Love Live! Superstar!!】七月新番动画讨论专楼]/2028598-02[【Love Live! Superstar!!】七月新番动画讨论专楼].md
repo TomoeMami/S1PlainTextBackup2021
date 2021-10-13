@@ -5844,3 +5844,25 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 贴吧貌似有人当时看了直播，观众数量是慢慢逐渐上升的，并不是一下跳到1w
 
 
+
+
+*****
+
+####  damian-wade  
+##### 1973#       发表于 2021-10-13 09:10
+
+
+和我预期的一模一样，比第十集稍高一点<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">没那么好也说不上多坏，就保持住上集拉回来的风评，比较公认的不妥之处阿恋的待遇还没像民警前几集那样到了一个要宣泄不满的临界点，就看看最后有没有什么骚操作了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  亚瑟邓特  
+##### 1974#       发表于 2021-10-13 09:19
+
+
+想了半天立德是啥￼，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都想到李德去了才想到leader
+
+
