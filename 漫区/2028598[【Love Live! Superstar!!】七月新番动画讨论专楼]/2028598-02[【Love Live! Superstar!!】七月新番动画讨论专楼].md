@@ -5968,3 +5968,14 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 小星星被下实际上是叔叔在暗示可香无了，但是没有人意识到，叔叔你好温柔
 
 
+
+
+*****
+
+####  kbtit  
+##### 1984#       发表于 2021-10-13 12:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">香哥哥海王先不说，其实感觉可可推还是挺赚的，可警基本锁死，可香目前也算大热cp，感觉花田对唐可可这个中国角色确实用心，除了有些地方用力过猛。所以第二季能不能整个千恋，或者可恋啥的，恋没cp肯定是说不过去的
+
+
