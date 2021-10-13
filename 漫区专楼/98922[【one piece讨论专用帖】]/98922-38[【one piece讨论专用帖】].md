@@ -4183,3 +4183,19 @@ kiing这边是真正的皇团二把手 虽然都是三灾但索隆这边肯定�
 一个黑刀就够了，这玩意儿目前比霸王色缠绕还稀有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  stevenzero  
+##### 55803#       发表于 2021-10-13 08:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53097753&amp;ptid=98922" target="_blank">klzxs 发表于 2021-10-13 01:10</a>
+娜美这水平的战力要打什么补丁……
+
+
+kiing这边是真正的皇团二把手 虽然都是三灾但索隆这边肯定是更 ...</blockquote>
+就跟司法岛差不多呗。厨子轻取狼，绿藻头惨胜长颈鹿。
+
+
