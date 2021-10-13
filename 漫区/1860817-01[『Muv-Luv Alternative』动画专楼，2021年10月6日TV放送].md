@@ -14767,3 +14767,18 @@ mla第一集动画，少女存活问题，可以解释为少女存活这件事�
 佐渡岛那个海湾的东南侧还有一条从市区直达海岸的主干道完全可以部署快速射击兵力。不论是ATGM还是坦克。
 
 
+
+
+*****
+
+####  a.r.m  
+##### 1006#       发表于 2021-10-13 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53102800&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-10-13 12:40</a>
+任何对现代军队机动性和BETA进攻速度都有了解的人都应该知道。除非在被突破的时候用机动部队进行反突击和堵 ...</blockquote>
+要是第一阶段的突击级冲击防护墙支持不住，在没了固定火炮支持下，两个中队的战术机能清理跟随七八个要塞级的beta是不是不太现实？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

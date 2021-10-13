@@ -17725,3 +17725,20 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 再翻
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83974#       发表于 2021-10-13 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53100890&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-13 10:38</a>
+
+懂个妹啊....低难谁还慢慢听梅林讲呆毛的故事....都是直接砍爆
+
+
+村夫和丝黛拉都退环境多久了....你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到你的id出现 我以为你爱蕾也5宝了
+
+

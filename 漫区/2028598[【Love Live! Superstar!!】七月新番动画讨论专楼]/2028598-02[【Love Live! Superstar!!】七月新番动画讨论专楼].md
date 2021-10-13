@@ -6039,3 +6039,32 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 而且小千前三话的幼驯染存在感明明一点不低，几乎也是明示了后续一定会发力的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1990#       发表于 2021-10-13 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103154&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-13 13:14</a>
+
+一单广播剧明明已经明示了分组，只看前三话就锁死可香的只能说还是太年轻
+
+而且小千前三话的幼驯染存 ...</blockquote>
+以史为鉴本就没指望一波可以锁死
+
+反倒是以为这次才5个人不会那么脑死推官配才觉得可以一推，因为觉得制作组不会那么蠢剩个空气人，以为最次也是2+3
+
+谁知他真就那么有种整个空气人<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 1991#       发表于 2021-10-13 13:41
+
+
+ed不就是2+3吗？但哪有3，不是2+2+1吗
+
+
