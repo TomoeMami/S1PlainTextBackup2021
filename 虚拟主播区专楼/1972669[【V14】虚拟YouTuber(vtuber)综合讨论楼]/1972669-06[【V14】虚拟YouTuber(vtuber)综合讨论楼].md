@@ -1342,3 +1342,40 @@ giru都是靠着厄介的牌子免遭毒手的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7599#       发表于 2021-10-13 16:35
+
+
+ 本帖最后由 alcoholic1000 于 2021-10-13 16:38 编辑 
+
+渋谷ハル＠コラボPC販売開始！
+
+@ShibuyaHAL
+
+昨日はまふまふさんとそらるさんとおじじと田角さん（とんでもない謎メンツ）とご飯に行ってました😺
+
+
+まふまふ＠空腹
+
+@uni_mafumafu  
+
+Replying to  @ShibuyaHAL
+
+集まってなおApexとポケカの話をする者ども
+
+
+渋谷ハル＠コラボPC販売開始！
+
+@ShibuyaHAL
+
+Replying to  @uni_mafumafu
+
+よくよく思い返すともっと話しておくべきことはあった気がしてきました🤔🤔🤔
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+

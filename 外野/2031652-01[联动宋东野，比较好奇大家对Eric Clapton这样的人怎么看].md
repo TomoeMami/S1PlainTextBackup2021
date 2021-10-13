@@ -871,3 +871,16 @@ Bob Marley；John Winston Lennon；Patti Smith；还有民谣的祖师爷Bob Dyl
 个人是个人 作品是作品
 
 
+
+
+*****
+
+####  Rapids  
+##### 71#       发表于 2021-10-13 16:31
+
+
+其他我不了解，我觉得速弹类的吉他手应该不会碰那种东西。
+
+因为Jason Richardson这种严格自律的乐手被其余瘾君子队友踢出队伍之后，BOO每次到了Jason写的速弹部分惨不忍睹。
+
+
