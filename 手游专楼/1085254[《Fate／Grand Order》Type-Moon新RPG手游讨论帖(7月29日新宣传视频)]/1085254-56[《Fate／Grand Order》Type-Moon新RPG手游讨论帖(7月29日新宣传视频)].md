@@ -17742,3 +17742,29 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到你的id出现 我以为你爱蕾也5宝了
 
 
+
+
+*****
+
+####  森兰丸  
+##### 83975#       发表于 2021-10-13 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103314&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-13 13:28</a>
+
+看到你的id出现 我以为你爱蕾也5宝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">无氪非洲人一向是2宝就满足了.....摩根那个是不可复制的意外
+
+
+*****
+
+####  alucardcz  
+##### 83976#       发表于 2021-10-13 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103670&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-13 13:57</a>
+
+无氪非洲人一向是2宝就满足了.....摩根那个是不可复制的意外</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你变了 非萌1宝就满足了 你居然要2宝
+
+
