@@ -17930,3 +17930,26 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 不过我谷歌被锁区了，真有灰姑娘也氪不成，萌新只能看各位海豹表演了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zore  
+##### 83989#       发表于 2021-10-13 20:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该奶职阶了
+
+
+*****
+
+####  LOLITA  
+##### 83990#       发表于 2021-10-13 21:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53109976&amp;ptid=1085254" target="_blank">zore 发表于 2021-10-13 20:55</a>
+
+该奶职阶了</blockquote>
+伪装者灰姑娘龙娘，龙娘拐，能给龙娘们100群充50三色魔放<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

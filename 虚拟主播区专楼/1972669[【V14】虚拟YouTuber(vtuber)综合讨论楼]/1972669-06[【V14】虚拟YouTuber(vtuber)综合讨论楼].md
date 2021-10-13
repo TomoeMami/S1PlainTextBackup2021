@@ -1494,3 +1494,61 @@ https://youtu.be/pcoX9gjdoNo
 <img src="https://p.sda1.dev/2/1b1c9e46e69b19f28fad8a9710e04c5d/IMG_CMP_174500201.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7608#       发表于 2021-10-13 20:47
+
+
+<blockquote>FCCHua 发表于 2021-10-13 20:26
+惊了x2
+
+https://youtu.be/pcoX9gjdoNo</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/13/204652sr868iks08pzp8fp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211013_204504.jpg</strong> (459.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-13 20:46 上传
+
+
+几个队伍分组还有点上届的影子在，这届还专门开了新推号
+
+
+*****
+
+####  格林卡罗尔  
+##### 7609#       发表于 2021-10-13 20:54
+
+
+不懂战地5，有没有观看指导
+
+
+*****
+
+####  天天座理世  
+##### 7610#       发表于 2021-10-13 20:54
+
+
+这otaku原来是油管上播影之诗同接最高的直播主之一了，然后马娘出来之后一直摆烂播马娘，很难不怀疑是cy的托。
+
+hnn这几天播影之诗应该是他原因。
+
+
+*****
+
+####  FCCHua  
+##### 7611#       发表于 2021-10-13 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53109970&amp;ptid=1972669" target="_blank">天天座理世 发表于 2021-10-13 20:54</a>
+这otaku原来是油管上播影之诗同接最高的直播主之一了，然后马娘出来之后一直摆烂播马娘，很难不怀疑是cy的 ...</blockquote>
+草，那有点麻<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
