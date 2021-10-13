@@ -5993,3 +5993,28 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1986#       发表于 2021-10-13 12:47
+
+
+可香何止算大热，顶着LL最王道的幼驯染组和冤家组打到现在还是P站最多投稿和浏览，虽然快撑不住了
+
+
+*****
+
+####  kbtit  
+##### 1987#       发表于 2021-10-13 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53102887&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-13 13:47</a>
+
+可香何止算大热，顶着LL最王道的幼驯染组和冤家组打到现在还是P站最多投稿和浏览，虽然快撑不住了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">可香基本上第三话之后就没花什么笔墨了吧，可警也是最近才发力，那只能怪花田这次青梅写的确实不行
+
+
