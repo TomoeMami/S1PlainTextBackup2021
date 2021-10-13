@@ -1416,3 +1416,58 @@ syl 这位不会真的想5万粉之后参加cr杯吧<img src="https://static.sar
 <img src="http://tva3.sinaimg.cn/large/002gThh1gy1gvdx7y2yn1j618i0p217n02.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7603#       发表于 2021-10-13 19:48
+
+
+ 本帖最后由 alcoholic1000 于 2021-10-13 20:05 编辑 
+
+这虹海賊王決定戦阵容太豪华了吧
+
+2JK+海子姐bora+EN+黑黑油剑持，话题度拉满
+
+（反倒是游戏本体有点烂）
+
+
+<img src="https://img.saraba1st.com/forum/202110/13/200513szmhm2pm2hmjzfcj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>@NemunokiVVV Blazing Sailsで #虹海賊王決定戦 !!-1.jpeg</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2021-10-13 20:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/13/200421xoecoyoohldsyoeo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>@NemunokiVVV Blazing Sailsで #虹海賊王決定戦 !!-2.jpeg</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2021-10-13 20:04 上传
+
+
+*****
+
+####  FCCHua  
+##### 7604#       发表于 2021-10-13 19:53
+
+
+这阵容惊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 7605#       发表于 2021-10-13 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别说，我喜欢的基本都在。
+
+
