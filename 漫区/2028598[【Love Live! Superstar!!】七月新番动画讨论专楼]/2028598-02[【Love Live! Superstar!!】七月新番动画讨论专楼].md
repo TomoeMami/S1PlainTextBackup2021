@@ -5877,3 +5877,48 @@ https://www.bilibili.com/video/BV1vv411g7en?spm_id_from=333.999.0.0
 完全提不起对12话的兴趣……谁来刺激一下我
 
 
+
+
+*****
+
+####  cat1230  
+##### 1976#       发表于 2021-10-13 10:48
+
+
+恋的戏份少，个人回剧情拉垮，但恋本人并没有像民警前期一样被大家迫害，自然同情票也少啊。等第二季戏份吧，还有个在外的爹可以搞点事情
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  lj205  
+##### 1977#       发表于 2021-10-13 10:52
+
+
+第二季明年能不能有？
+
+
+*****
+
+####  优妮可  
+##### 1978#       发表于 2021-10-13 10:54
+
+
+明年虹二，后年吧
+
+
+*****
+
+####  damian-wade  
+##### 1979#       发表于 2021-10-13 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53101110&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-13 10:52</a>
+第二季明年能不能有？</blockquote>
+虹二期明年4月，按这个频率最快也要23年1月吧……其实对三癞子来说已经非常快了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
