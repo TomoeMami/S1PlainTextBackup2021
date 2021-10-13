@@ -6555,3 +6555,40 @@ https://twitter.com/Deadnooodles/status/1448202031693324292</blockquote>
 https://b23.tv/72uCZf
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 2031#       发表于 2021-10-14 00:33
+
+
+ 本帖最后由 secretgarnet 于 2021-10-14 00:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53112484&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-13 23:54</a>
+
+购买部那个跳绳也太黑了吧，跟动画的款式不一样不说，就是把原价120円的小学生用品刷上个logo就敢卖5000円 ...</blockquote>
+我也想不明白，就算不考虑人气，只看发售的时节围巾也比跳绳受欢迎的多啊，谁在深秋都快入冬的时候还去跳绳啊
+
+只能说官方觉得围巾本身成本太高，暴利空间没有跳绳大；或者说想借动画推香千的同时多卖一点
+
+
+*****
+
+####  kata魂  
+##### 2032#       发表于 2021-10-14 00:35
+
+
+<img src="https://img.saraba1st.com/forum/202110/14/003248en7j6gq6avqzdkjn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-10-14-00-32-28-590_com.baidu.tieba.jpg</strong> (146.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-14 00:32 上传
+
+
+ 看个可香文没啥触动，作者这句话差点破防，同人真就比资本温柔啊，靠爱发电的是比领工资的暖心
+
+
