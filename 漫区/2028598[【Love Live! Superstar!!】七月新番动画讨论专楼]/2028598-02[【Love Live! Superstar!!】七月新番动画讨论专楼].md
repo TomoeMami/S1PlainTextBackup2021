@@ -6485,3 +6485,18 @@ https://twitter.com/Deadnooodles/status/1448202031693324292</blockquote>
 <img src="http://wx4.sinaimg.cn/mw1024/0089S4Hmly1gve0i90efaj30j80f0mzi.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 2026#       发表于 2021-10-13 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53108715&amp;ptid=2028598" target="_blank">Gooddays 发表于 2021-10-13 19:34</a>
+好像这楼连续两张五人时装图中香音也是穿裤子而另外四人穿裙子，真的是池面男主定位啊。 ...</blockquote>
+真按照女同视角看的话，前三集可可眼中的香音就是字面意思上的白马王子，长得帅唱歌好听，而且处处帮可可出头，跟学生会长和理事长对线的时候中气十足一点都看不出社恐。后来的可可对其他人都很强势，只有对香音的时候像个恋爱中的小姑娘一样
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
