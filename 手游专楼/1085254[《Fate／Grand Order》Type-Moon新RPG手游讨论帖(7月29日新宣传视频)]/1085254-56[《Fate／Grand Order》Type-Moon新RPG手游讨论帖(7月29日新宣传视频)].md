@@ -17690,3 +17690,38 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 嘉年华各种发病，官方这不是很懂自己的问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  森兰丸  
+##### 83971#       发表于 2021-10-13 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53100559&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-10-13 10:19</a>
+
+嘉年华各种发病，官方这不是很懂自己的问题吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">懂个妹啊....低难谁还慢慢听梅林讲呆毛的故事....都是直接砍爆
+
+
+村夫和丝黛拉都退环境多久了....你不上A狐也好歹用C呆或者CBA啊
+
+
+*****
+
+####  森兰丸  
+##### 83972#       发表于 2021-10-13 10:39
+
+
+翻页
+
+
+*****
+
+####  森兰丸  
+##### 83973#       发表于 2021-10-13 10:39
+
+
+再翻
+
+
