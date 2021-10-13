@@ -1276,3 +1276,29 @@ hnn晚上醒来，凌晨开始播好几个小时，然后大早上8点歌回，�
 火星了，MSM和ばぶ太郎互关了啊，快进到联动。
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7594#       发表于 2021-10-13 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53102582&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-13 12:23</a>
+这下真控制不住杞憂了</blockquote>
+昨晚的双人成行没有杞憂要素吧
+
+
+*****
+
+####  FCCHua  
+##### 7595#       发表于 2021-10-13 15:44
+
+
+ 本帖最后由 FCCHua 于 2021-10-13 15:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53105110&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-13 15:42</a>
+昨晚的双人成行没有杞憂要素吧</blockquote>
+https://youtu.be/pc4t3FXeY-4
+是指hnn跑到这位刚认识没几天的男主播频道连麦的事，虽然一天之前kmt也跑过去教学怎么打apex<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

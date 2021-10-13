@@ -6254,3 +6254,14 @@ ed不就是2+3吗？但哪有3，不是2+2+1吗
 该说的都说了，问题也说了，再汴京就是车轱辘话了，打住打住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kata魂  
+##### 2008#       发表于 2021-10-13 15:39
+
+
+也确实没必要车轱辘了，最后一集至少把主题拉回到lovelive，动画里谈一谈每一个人受到lovelive的影响，我就当花田完成任务了
+
+
