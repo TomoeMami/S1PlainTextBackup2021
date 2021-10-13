@@ -7654,3 +7654,17 @@ tc好
 拜拜拜拜拜拜拜拜
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 3686#       发表于 2021-10-13 23:54
+
+
+不行，感觉自己还是喜欢她.....醒醒啊不要再做管人痴了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+还是可爱(*´∀｀)
+
+
