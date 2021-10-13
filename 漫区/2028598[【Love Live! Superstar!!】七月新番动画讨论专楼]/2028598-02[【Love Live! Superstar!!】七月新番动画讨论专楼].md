@@ -6515,3 +6515,19 @@ https://twitter.com/Deadnooodles/status/1448202031693324292</blockquote>
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 2028#       发表于 2021-10-13 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103759&amp;ptid=2028598" target="_blank">蒹葭公子 发表于 2021-10-13 14:03</a>
+11话看完蚌埠住了，观感奇差，本来还想玩点迪迦最终话的哏，结果图找不到了（有好心人放一下吗？），只能说 ...</blockquote>
+我给花田圆一圆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其实理事长、小学老师同学都知道立德独唱后全员上台接着表演，只有香音一个人蒙在鼓里。后面的表演就直接用不特别加强排练也能凑合的老歌
+
+我尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
