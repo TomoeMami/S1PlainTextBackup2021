@@ -17953,3 +17953,17 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 伪装者灰姑娘龙娘，龙娘拐，能给龙娘们100群充50三色魔放<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zore  
+##### 83991#       发表于 2021-10-13 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53110038&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-10-13 21:00</a>
+
+伪装者灰姑娘龙娘，龙娘拐，能给龙娘们100群充50三色魔放</blockquote>
+奥伯龙:你是龙,也好<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
