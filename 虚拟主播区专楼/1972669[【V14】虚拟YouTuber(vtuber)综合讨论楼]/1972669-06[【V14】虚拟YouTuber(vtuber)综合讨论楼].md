@@ -1302,3 +1302,43 @@ https://youtu.be/pc4t3FXeY-4
 是指hnn跑到这位刚认识没几天的男主播频道连麦的事，虽然一天之前kmt也跑过去教学怎么打apex<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7596#       发表于 2021-10-13 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53105158&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-13 15:44</a>
+https://youtu.be/pc4t3FXeY-4
+是指hnn跑到这位刚认识没几天的男主播频道连麦的事，虽然一天之前kmt也跑 ...</blockquote>
+之前那个otaku咯
+毕竟大家都看得出他在cp厨之外对hnn的喜爱
+giru都是靠着厄介的牌子免遭毒手的
+
+cp厨的怒火
+
+
+*****
+
+####  FCCHua  
+##### 7597#       发表于 2021-10-13 15:56
+
+
+风怒
+
+
+*****
+
+####  FCCHua  
+##### 7598#       发表于 2021-10-13 15:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53105268&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-13 15:51</a>
+之前那个otaku咯
+毕竟大家都看得出他在cp厨之外对hnn的喜爱
+giru都是靠着厄介的牌子免遭毒手的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+

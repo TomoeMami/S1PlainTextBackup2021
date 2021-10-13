@@ -17814,3 +17814,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">萌新战王姐2宝翻车了！ 你楼上那可是无课直接5宝王姐的天选之人！
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 83980#       发表于 2021-10-13 15:54
+
+
+抽艾蕾又差点翻车了，抽了88连，五星是出的不少，上来就金色枪阶卡背，五星红宝具，长发乌鲁克美人，没错，我的小恩满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
