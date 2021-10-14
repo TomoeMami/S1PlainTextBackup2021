@@ -15955,3 +15955,45 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 另外提醒一句：vwp五个人从来不直播，人家就是歌手老实唱歌的，其实不算严格意义上的vtuber。
 
 
+
+
+*****
+
+####  blood_iron  
+##### 1093#       发表于 2021-10-14 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53116628&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-14 11:36</a>
+
+话说后面凉宫遥会是谁配音啊，某人前妻还会来吗</blockquote>
+高桥智秋声线倒是没变，刚刚在10月新番配了个很可爱的白毛人妻
+
+但估计资方要求都要全面换了吧
+
+
+*****
+
+####  SorroFrost  
+##### 1094#       发表于 2021-10-14 12:55
+
+
+还不如ate呢，问题实在是太多了
+
+歌曲就不谈了，被游戏完全碾压，声优彩峰还不错，武的声优真是被包子按在地上摩擦，制作各种问题，叙事上压缩，连纯夏都不提一句，纯夏作为中后期感情最大的爆发点之一，没了前期感情支持，你不在al早早布局，你中后期怎么处理那段戏啊，我已经看到接下来那几段重要戏码要成啥样了
+
+
+*****
+
+####  angela5d30  
+##### 1095#       发表于 2021-10-14 12:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53116992&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-14 12:03</a>
+
+层主玩过一遍游戏，你的理解基本准确。
+
+
+动画里的白银武时间线是第二次回到beta世界。第一次穿越是靠认出 ...</blockquote>
+谢谢。原来第二集这里男主才第二次回到有beta的世界啊，看他应对卫兵的态度参杂了不少对自己无能的怒意、后面说服副司令那段落感觉他对对方的底蕴摸了不少&amp;说着说着都能把自己搞哭的，我还以为起码在有beta的世界观轮回过5次以上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
