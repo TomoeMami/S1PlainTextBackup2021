@@ -16049,3 +16049,44 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 要是能多出来一集专门讲人物关系和背景能更好些，现在这个摆明就是强行硬上
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1100#       发表于 2021-10-14 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114969&amp;ptid=1860817" target="_blank">angela5d30 发表于 2021-10-14 09:44</a>
+
+纯动画党，第二话撇开OPED特不对味外感觉其他还行。男主去找基地副司令，以前的世界线曾作为自己学校的老师 ...</blockquote>
+大概记忆中是第二次轮回，实际上每个女主（除了纯夏）抱了一遍。
+
+
+*****
+
+####  hacisiki  
+##### 1101#       发表于 2021-10-14 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53117069&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-14 12:09</a>
+
+动画op可以看出12.5事件跑不掉了，那op从冥夜悠阳的构图之后，战术机战斗的画面对应哪一场？红白蓝武御雷直 ...</blockquote>
+出击的是欠雷，那么不是小麻死的那一次实战演习就是125了。
+
+
+*****
+
+####  hacisiki  
+##### 1102#       发表于 2021-10-14 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53117805&amp;ptid=1860817" target="_blank">raynor_1999 发表于 2021-10-14 13:07</a>
+
+人越打越少强制征召年龄可不就是越来越小嘛
+
+
+小麻记得是自愿参军吧？她这一批死得差不多了那下一批可不就 ...</blockquote>
+小麻参军时的政策等效于二战末期日本的学徒出阵。就是把非理工科和一些重要文科的大学生打包塞进军队了。
+
+

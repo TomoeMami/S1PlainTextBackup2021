@@ -6851,3 +6851,30 @@ FBoZBffVkAMU8cK.jpg
 搞不好到时候来个高三形态小千突然变成高个子巨r什么的
 
 
+
+
+*****
+
+####  player3960  
+##### 2049#       发表于 2021-10-14 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53118780&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-14 14:27:24</a>
+看5ch上的讨论
+
+有人说是因为NHK的压力 不能搞这种媚宅的东西
+
+有人说是因为这次要做完整个高中的剧情 剧中 ...</blockquote>那感情好啊，怕不是还有短发香音，长发可可<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  1096beam  
+##### 2050#       发表于 2021-10-14 14:37
+
+
+我都在YY星团TV走偶像活动那样的路线了
+
+

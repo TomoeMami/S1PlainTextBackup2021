@@ -884,3 +884,14 @@ Bob Marley；John Winston Lennon；Patti Smith；还有民谣的祖师爷Bob Dyl
 因为Jason Richardson这种严格自律的乐手被其余瘾君子队友踢出队伍之后，BOO每次到了Jason写的速弹部分惨不忍睹。
 
 
+
+
+*****
+
+####  Alcatrazer  
+##### 72#       发表于 2021-10-14 14:34
+
+
+有时代背景在里面，那个年代过来的没几个干净
+
+
