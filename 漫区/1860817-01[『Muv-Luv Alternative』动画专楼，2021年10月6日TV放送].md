@@ -16393,3 +16393,40 @@ ate动画也不知道为什么没做完 后面才是快乐源泉 虽然很烂</b
 那时候游戏还没出吧，后面出早了剧透游戏，出晚了没广告作用，自然就不做了，我在动画播到一半时候随口说了个男主怕不是私生子，没想到真猜对了
 
 
+
+
+*****
+
+####  Kuroe  
+##### 1125#       发表于 2021-10-14 22:55
+
+
+第一话没原作内容，而且出场的也都是路人。所以还不好说什么。
+
+第二话有主角团、也有原作参照，然而做成了什么水平也一目了然。现在是不是可以盖棺定论了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+意难平了一整天了
+
+
+*****
+
+####  凡人  
+##### 1126#       发表于 2021-10-14 22:58
+
+
+上一话看beta撕不开个铁皮箱子可以说需要留着人唱op，这话看来还不如撕了放纯音乐呢。
+
+
+*****
+
+####  alucardcz  
+##### 1127#       发表于 2021-10-14 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53125899&amp;ptid=1860817" target="_blank">Kuroe 发表于 2021-10-14 22:55</a>
+
+第一话没原作内容，而且出场的也都是路人。所以还不好说什么。
+
+第二话有主角团、也有原作参照，然而做成了 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然但是 我看到只有12话觉得已经可以盖棺了
+
+
