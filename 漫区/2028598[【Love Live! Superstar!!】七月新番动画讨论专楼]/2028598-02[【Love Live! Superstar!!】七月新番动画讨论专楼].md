@@ -7261,3 +7261,30 @@ BV1TL4y1B739
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，已经引起了
 
 
+
+
+*****
+
+####  cqc1021  
+##### 2082#       发表于 2021-10-15 00:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53126975&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-15 00:20</a>
+感觉有点〇情漫画风～
+
+
+不过也有点担心这样出圈就有点麻烦，怕引起莫名其妙的营销号关注 ...</blockquote>
+你要说营销号，哪用等到现在，从“太好听了吧”就已经盯上了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 2083#       发表于 2021-10-15 00:30
+
+
+现在这个还是有点不太一样的，大概是我有点职业病神经过敏
+
+
