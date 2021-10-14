@@ -15725,3 +15725,39 @@ TE的原画已经画过FAMAS
 其实本质是天不生夕呼万古如长夜，武爷只是伟大夕呼的搬运工而已。
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 1076#       发表于 2021-10-14 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这作画..这故事 钱都花在哪里了？
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  saevey  
+##### 1077#       发表于 2021-10-14 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115480&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2021-10-14 10:21</a>
+漫画是被要击锤死了吧
+
+
+不过上一个不一定是TDA，TDA他怎么死也不确定呢</blockquote>
+主要是一脸笑嘻嘻的主动贴上来说迷惑发言真是...和我脑补的形象不符<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最后的法芙娜  
+##### 1078#       发表于 2021-10-14 11:36
+
+
+话说后面凉宫遥会是谁配音啊，某人前妻还会来吗
+
+
