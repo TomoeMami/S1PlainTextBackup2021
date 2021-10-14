@@ -6021,3 +6021,26 @@ co宝多数时158衬衫酷盖，少数时超短裙软妹<img src="https://static
 文静烽火戏🐖🐒直接把静力惹都整疯了太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rgauss  
+##### 530#       发表于 2021-10-14 23:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">草 今晚看文静说不直播
+就开开心心玩偶像大师去了 结果咋还播了呢
+
+
+*****
+
+####  袜子  
+##### 531#       发表于 2021-10-14 23:34
+
+
+狗文静播出瘾了是吧！好耶！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

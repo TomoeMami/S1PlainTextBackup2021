@@ -16481,3 +16481,21 @@ TDA里武爷不是说变得非常冷酷了吗，还有这种展开<img src="http
 这版本的香月看着好像型月斯卡蒂
 
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 1132#       发表于 2021-10-14 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53125584&amp;ptid=1860817" target="_blank">Carta_Issue 发表于 2021-10-14 22:27</a>
+
+207b分队的人员身份背景太奢华了，
+
+陆军中将，首相，情报局头子，联合国事务官的女儿加当今二公主，
+
+按道理 ...</blockquote>
+放在狐狸手下最安全，Al5上太空的票本来应该人手一张的
+
+
