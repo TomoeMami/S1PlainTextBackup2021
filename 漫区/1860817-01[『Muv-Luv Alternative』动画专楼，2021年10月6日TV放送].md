@@ -16581,3 +16581,100 @@ un打炮还是狐狸算正宫吧。
 和朋友讨论了一下，在已经确定这季度12集的情况下，哪一集结束掉125挺关键的。目前估计应该是ep.7吧，6集的话前面来不及，8集后面就只能开火车创到甲21了……即使如此这个进度还是很难拍就是了
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1140#       发表于 2021-10-15 02:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53127807&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-10-15 01:29</a>
+
+和朋友讨论了一下，在已经确定这季度12集的情况下，哪一集结束掉125挺关键的。目前估计应该是ep.7吧，6集的 ...</blockquote>
+官方从未在明面上公布过集数，只是bd出到12集。
+
+
+目前剧情尚未暴走，按照这个剧情速度，12集最多把12.5事件做完，当然，白银武的爽文环节可以适当压缩
+
+
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1141#       发表于 2021-10-15 02:57
+
+
+ 本帖最后由 ReginaldMorgan 于 2021-10-15 02:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53128251&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-15 02:38</a>
+
+官方从未在明面上公布过集数，只是bd出到12集。
+
+
+目前剧情尚未暴走，按照这个剧情速度，12集最多把12.5事 ...</blockquote>
+
+我知道肯定是分割放送，但是我真不觉得能期待三季度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以我的讨论基本建立在<strong>两季度这个假设</strong>上的，那么停留在甲21开战前做个首尾呼应基本是最好的，比如12集Baprt讲战术布置，“人类反攻的号角”，然后ed画面放点不需要知道是啥的打戏，缺德点就Cpart接那谁停机。
+
+
+如果三季度那就自由多了没啥好说的，无论是慢悠悠拍完125也好，或者往后做点做到毕业，或者再缺德点名画结尾也行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sauron.j  
+##### 1142#       发表于 2021-10-15 03:09
+
+
+gal改改编成能动的样子后，画面演出竟然还不如原作，也就muv了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1143#       发表于 2021-10-15 03:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53128386&amp;ptid=1860817" target="_blank">sauron.j 发表于 2021-10-15 03:09</a>
+
+gal改改编成能动的样子后，画面演出竟然还不如原作，也就muv了吧</blockquote>
+机战画面动画做得挺好的，并不比原作差，我一直没整明白你们为啥这么喜欢吹纸片平移
+
+
+*****
+
+####  アルメリア  
+##### 1144#       发表于 2021-10-15 03:18
+
+
+我还以为是普通的昭和打怪兽，结果还有平行世界元素吗
+
+
+*****
+
+####  Toby_dak  
+##### 1145#       发表于 2021-10-15 03:32
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/043118jzz0sp0pp50ppk5u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Ohys-Raws] Muv-Luv Alternative - 02 (CX 1280x720 x264 AAC).mp4_snapshot_00.32.922.jpg</strong> (182.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 03:31 上传
+
+
+游戏CG给我印象是彩峰最大的啊……
+
+
+*****
+
+####  阿虚家的三味  
+##### 1146#       发表于 2021-10-15 04:30
+
+
+我还是觉得就应该一路加速做到武爷内心成长完毕再会那啥，特别是武爷装逼和基地训练啥的，早就过时不谈还真的很无聊，就看老右棍舍不舍得他那点东西
+
+

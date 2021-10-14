@@ -7288,3 +7288,15 @@ BV1TL4y1B739
 现在这个还是有点不太一样的，大概是我有点职业病神经过敏
 
 
+
+
+*****
+
+####  千千千千鸟  
+##### 2084#       发表于 2021-10-15 05:04
+
+
+B站上的ノンフィクション!!貌似已经被删了，油管的还存活
+[https://www.youtube.com/watch?v=kUN4rZdcSEc](https://www.youtube.com/watch?v=kUN4rZdcSEc)
+
+
