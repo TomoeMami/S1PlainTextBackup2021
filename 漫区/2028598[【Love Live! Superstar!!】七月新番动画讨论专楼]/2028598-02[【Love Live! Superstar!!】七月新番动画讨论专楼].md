@@ -6592,3 +6592,18 @@ https://b23.tv/72uCZf
  看个可香文没啥触动，作者这句话差点破防，同人真就比资本温柔啊，靠爱发电的是比领工资的暖心
 
 
+
+
+*****
+
+####  ads147147  
+##### 2033#       发表于 2021-10-14 08:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53112844&amp;ptid=2028598" target="_blank">secretgarnet 发表于 2021-10-14 00:33</a>
+我也想不明白，就算不考虑人气，只看发售的时节围巾也比跳绳受欢迎的多啊，谁在深秋都快入冬的时候还去跳 ...</blockquote>
+这些轻工业的玩意，大概率都得看国内某些县城的脸色，加上疫情全球运力不足，说不定是因为跳绳是国内生产不需要海运所以才卖这个呢。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
