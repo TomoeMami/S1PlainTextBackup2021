@@ -16559,3 +16559,25 @@ un打炮还是狐狸算正宫吧。
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1138#       发表于 2021-10-15 01:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53127583&amp;ptid=1860817" target="_blank">adslnet0519 发表于 2021-10-15 01:07</a>
+第二集果不其然在剧情上面一路狂奔，只有玩过原作的人才看得懂（话说发型和声优都改了因为要与时俱进也就算 ...</blockquote>
+然而也没狂奔，到现在也才第一章第二节刚开头，这可是最短的一章<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1139#       发表于 2021-10-15 01:29
+
+
+和朋友讨论了一下，在已经确定这季度12集的情况下，哪一集结束掉125挺关键的。目前估计应该是ep.7吧，6集的话前面来不及，8集后面就只能开火车创到甲21了……即使如此这个进度还是很难拍就是了
+
+
