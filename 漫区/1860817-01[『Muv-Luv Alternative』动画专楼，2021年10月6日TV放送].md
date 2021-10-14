@@ -16141,3 +16141,19 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 直接拍al 第一集还浪费了 纯夏的设定引不出来 结果变成不上不下了
 
 
+
+
+*****
+
+####  darkfatelight  
+##### 1107#       发表于 2021-10-14 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113738&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-14 04:13</a>
+
+不懂资方给吉总的范围是啥 但是神木孝一所属的事务所是I'm Enterprise
+
+如果是在I'm里选  我肯定选内田弟  ...</blockquote>
+这个男主水平赶上日本丁真了，看来IM把这两年有水平的新人都丢到松冈广播里吸粉了
+
+

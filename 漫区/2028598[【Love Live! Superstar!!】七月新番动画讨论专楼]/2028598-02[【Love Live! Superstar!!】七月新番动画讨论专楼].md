@@ -6961,3 +6961,14 @@ dmm认证界面（
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  kata魂  
+##### 2056#       发表于 2021-10-14 17:36
+
+
+抢椅子出了，pay啊～有你在鲤鱼安心多了，这也能先出局的啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
