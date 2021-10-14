@@ -1649,3 +1649,14 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  windaria  
+##### 6116#       发表于 2021-10-14 21:45
+
+
+歪了个文嘉出来，请问是用原版装备好还是an装备好
+
+
