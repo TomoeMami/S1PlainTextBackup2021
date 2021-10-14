@@ -16285,3 +16285,17 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 muv世界观男人和成人基本都打光了，没办法只能把小孩和女人都当士兵
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1116#       发表于 2021-10-14 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53123372&amp;ptid=1860817" target="_blank">培根芝士蛋堡XD 发表于 2021-10-14 20:06</a>
+
+muv世界观男人和成人基本都打光了，没办法只能把小孩和女人都当士兵</blockquote>
+准确说是有卫士适应性的优质男性死的更早更快。其他单位包括机动步兵里面男性比例挺高的。
+
+

@@ -1721,3 +1721,37 @@ syl 怎么感觉后续回复更yygq了，等一个评论删除
 好像最近不少人休息？ 千草 德比还有谁啊
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7624#       发表于 2021-10-14 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53122009&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-14 18:38</a>
+
+删了还不止一个录像，然而都是联动别人也没删，这是什么掩耳盗铃
+
+syl 纯良粉丝:
+
+すーちゃんおかえり ...</blockquote>
+万万没想到hnn没有因为搞cp被炎，反而因为出轨被炎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+kmt咱不受这气，换个女人吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 7625#       发表于 2021-10-14 20:38
+
+
+ 本帖最后由 FCCHua 于 2021-10-14 20:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53123786&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-14 20:30</a>
+万万没想到hnn没有因为搞cp被炎，反而因为出轨被炎
+
+kmt咱不受这气，换个女人吧 ...</blockquote>
+只能说希望等itt完结后<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
