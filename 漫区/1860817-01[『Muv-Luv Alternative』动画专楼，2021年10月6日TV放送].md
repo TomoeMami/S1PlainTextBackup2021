@@ -16119,3 +16119,14 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 一直忍着继续看，最后这个ED实在是忍不住了。什么东西啊！好听吗？不燃也不抒情，完全不觉得应景。相比之下OP都显得很优秀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  球獭  
+##### 1105#       发表于 2021-10-14 15:59
+
+
+机战能看就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

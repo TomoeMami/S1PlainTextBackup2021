@@ -19038,3 +19038,27 @@ BA BS想简化操作，那就做Qte呗。
 小剧场跟着其他成就做，钓鱼这些都有小剧场的，不用担心
 
 
+
+
+*****
+
+####  有点追求  
+##### 5904#       发表于 2021-10-14 15:56
+
+
+终于玩上了，第一个BOSS的霸体怎么破？
+
+
+*****
+
+####  makar0601  
+##### 5905#       发表于 2021-10-14 15:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53119957&amp;ptid=1860328" target="_blank">有点追求 发表于 2021-10-14 15:56</a>
+终于玩上了，第一个BOSS的霸体怎么破？</blockquote>
+所有boss都没法破霸体
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
