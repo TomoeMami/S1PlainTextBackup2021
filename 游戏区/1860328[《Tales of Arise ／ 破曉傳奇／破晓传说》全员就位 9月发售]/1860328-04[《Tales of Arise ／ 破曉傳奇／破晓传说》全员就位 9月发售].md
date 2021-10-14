@@ -19062,3 +19062,20 @@ BA BS想简化操作，那就做Qte呗。
 —— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  有点追求  
+##### 5906#       发表于 2021-10-14 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53120002&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-10-14 15:59</a>
+
+所有boss都没法破霸体
+
+
+—— 来自 motorola XT2153-1, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+

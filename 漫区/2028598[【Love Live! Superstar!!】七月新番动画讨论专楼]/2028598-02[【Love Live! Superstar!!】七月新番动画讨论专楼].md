@@ -6900,3 +6900,20 @@ FBoZBffVkAMU8cK.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">营业，都是营业。我不会上当的
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 2053#       发表于 2021-10-14 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53118780&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-14 14:27</a>
+看5ch上的讨论
+
+有人说是因为NHK的压力 不能搞这种媚宅的东西
+
+有人说是因为这次要做完整个高中的剧情 剧中 ...</blockquote>
+确定不是可可极巨化吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
