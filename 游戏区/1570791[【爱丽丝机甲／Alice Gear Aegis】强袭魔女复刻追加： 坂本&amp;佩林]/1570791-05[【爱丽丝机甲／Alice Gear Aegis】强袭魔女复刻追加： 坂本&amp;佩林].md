@@ -1572,3 +1572,17 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 2021-10-14 13:05 上传
 
 
+
+
+*****
+
+####  yygundam  
+##### 6111#       发表于 2021-10-14 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53104536&amp;ptid=1570791" target="_blank">心灵的乳头 发表于 2021-10-13 15:01</a>
+
+协力的普通难度还能掉落武器彩贝？国服开到现在第一次偶然打到</blockquote>
+所有协力图都掉彩，和难度没关系，只是概率极低
+
+
