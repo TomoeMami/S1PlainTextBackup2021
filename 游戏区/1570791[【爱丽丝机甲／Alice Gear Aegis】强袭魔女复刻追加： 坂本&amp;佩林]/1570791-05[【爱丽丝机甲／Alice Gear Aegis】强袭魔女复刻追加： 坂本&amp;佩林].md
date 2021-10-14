@@ -1632,3 +1632,20 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 人心不古啊
 
 
+
+
+*****
+
+####  杂灰  
+##### 6115#       发表于 2021-10-14 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53122338&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-10-14 19:05</a>
+明显不是啊
+那件裤腰都低到齐逼了
+这件仰视看了看裤腰连肚脐都不漏...和衣服紧紧连在一起...我甚 ...</blockquote>
+其实这套是白高叉+白丝，有很明显的层次分界线
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
