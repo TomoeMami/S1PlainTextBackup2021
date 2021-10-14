@@ -16251,3 +16251,37 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 甚至横滨基地的训练兵都是特别的存在，单人宿舍，合成食品还是连色香味都尽量还原的那种（一般民众和部队官兵的伙食，估计能保证营养、能下咽就不错了），何况207b分队的人员背景也十分奢华
 
 
+
+
+*****
+
+####  万年僵尸  
+##### 1113#       发表于 2021-10-14 19:51
+
+
+其实和某坨拉面的对话不是说过beta有规矩是在星球上发现硅基生命就绕道走人吗，只要用夕呼A梦集中力量开发出来哪怕一只，就可以“汝可识得此物”的举着在整个太阳系转悠一圈，世界和平了<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kamarus  
+##### 1114#       发表于 2021-10-14 20:06
+
+
+不是，不是说多季度吗，怎么就成12集了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这季拍的不是一般的一般，是非常一般的一般<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还是赶紧打beta吧，2d再怎么崩坏beta是不会崩坏的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1115#       发表于 2021-10-14 20:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53117244&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-14 12:23</a>
+
+话说muv里霓虹金人服役年龄有点迷啊，小麻是强制征召以前的人，大学中途参军去士官学校。但19岁就上了战场 ...</blockquote>
+muv世界观男人和成人基本都打光了，没办法只能把小孩和女人都当士兵
+
+
