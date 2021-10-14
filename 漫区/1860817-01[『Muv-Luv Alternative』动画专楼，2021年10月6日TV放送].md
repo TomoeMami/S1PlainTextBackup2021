@@ -16430,3 +16430,54 @@ ate动画也不知道为什么没做完 后面才是快乐源泉 虽然很烂</b
 第二话有主角团、也有原作参照，然而做成了 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然但是 我看到只有12话觉得已经可以盖棺了
 
 
+
+
+*****
+
+####  らくくん  
+##### 1128#       发表于 2021-10-14 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115480&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2021-10-14 10:21</a>
+漫画是被要击锤死了吧
+
+
+不过上一个不一定是TDA，TDA他怎么死也不确定呢</blockquote>
+TDA里武爷不是说变得非常冷酷了吗，还有这种展开<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">？
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  KOPKOM  
+##### 1129#         楼主| 发表于 2021-10-14 23:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉各位的期望值都好高啊，虽然四年多以前在鸡纵的见面会上亲口问过他关于本传动画化的事，但本人从来是对此不抱任何希望的。所以这次能出动画对我个人而言已经是奇迹了，只要不做成后街女孩那种ppt我就完全满意了。
+
+
+*****
+
+####  万年僵尸  
+##### 1130#       发表于 2021-10-14 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53125584&amp;ptid=1860817" target="_blank">Carta_Issue 发表于 2021-10-14 22:27</a>
+
+207b分队的人员身份背景太奢华了，</blockquote>
+一方面是A01需要的体质，另一方面是身份复杂，所以只能用各种手段延迟毕业，结果125之后这些背景都不算事了，西风压倒东风。
+
+
+真要是怕出事连佐渡岛都不应该让他们去的
+
+
+*****
+
+####  アーリィ  
+##### 1131#       发表于 2021-10-14 23:13
+
+
+这版本的香月看着好像型月斯卡蒂
+
+

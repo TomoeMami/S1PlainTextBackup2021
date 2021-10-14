@@ -1567,3 +1567,55 @@ nier主题的画面效果：
 <img src="https://img.imoutomoe.net/images/2021/10/14/038.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 121#         楼主| 发表于 2021-10-14 23:04
+
+
+／
+
+【#VoiceOfCards ドラゴンの島】
+
+🎊新キービジュアル公開🎊
+
+＼
+
+
+本作のキャラクターデザイナー藤坂公彦氏による新キービジュアルを公開!!
+<img src="https://p.sda1.dev/2/8574cfa93a7694607441ab73524ff42c/20211014_225318.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/a66a8eecb6d1e635b8af77ff45d021a0/20211014_225413.jpg" referrerpolicy="no-referrer">
+
+
+<img src="https://p.sda1.dev/2/e3f122e38a996ff318101590b6ff58cd/8f2611a49f2d9ae9cf9bd1649a754c4b4c37b7e2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/87488395010bcd8e44efc2670da9cfb8/cda70501a4d21935db036a06f4701f0629c84c09.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/b14ac45f469e1ea460e7c131a36d7284/1789dd16d2e8fca9495f13c3a51d31cac18f74c8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/6e49566b3655908777325f6e6c71f5aa/e51b4059526af8dc50c483397a053f801bc84d27.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/d3e574f24e3b2c70149e34e516de9d95/ca1cba774a2d39bce1e20dafe8f3067aea701b0a.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 122#         楼主| 发表于 2021-10-14 23:05
+
+
+[https://m.weibo.cn/1622008051/4692254025059266](https://m.weibo.cn/1622008051/4692254025059266)
+
+橫尾太郎TRPG题材新作《卡牌之声 龙之岛》新情报公布，包括由藤坂公彦绘制的新主视觉图、新角色与战斗画面
+
+
+踏上讨伐复活巨龙之旅的主角，会在旅途中遇到各式各样的伙伴，可以将伙伴组编成3人小队出战，战斗采用回合制，角色在升级后可以习得技能与特性。技能最多可以装备4种，战斗中消费宝石可发动技能，宝石每回合自然增加1个；特性可在战斗时永续发挥效果，无需装备，习得后可以自动生效。
+
+战斗中有时会出现“突发事件卡牌”，赋予增加属性伤害、回复量等效果，不过也有对敌人生效的卡片。
+
+本作中有着丰富的事件活动及卡牌剧情，卡牌剧情指的是角色或敌人的特别剧情，可随着故事进度与战斗次数解放。
+
+游戏中还存在“游乐场”模式，可体验本地多人联机对战的卡牌游戏（最多4人可玩，不支持联网对战）
+
+
+《卡牌之声 龙之岛》将在10月28日发售，平台PS4/Switch/PC（PC版10月29日），目前已推出试玩版，讲述了故事的前日谭
+
+
