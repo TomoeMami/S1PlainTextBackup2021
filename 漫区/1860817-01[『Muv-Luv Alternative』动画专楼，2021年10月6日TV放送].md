@@ -15484,3 +15484,89 @@ cv没什么好说的，反正除了武其它人就没几句话<img src="https://
 顺便借楼问一下，从无印推到al，现在推到佐渡岛回来，进度大概到哪了？感觉只推了一半，坑还有好多的样子。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  天剑流星  
+##### 1058#       发表于 2021-10-14 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114383&amp;ptid=1860817" target="_blank">saevey 发表于 2021-10-14 08:53</a>
+顺便借楼问一下，从无印推到al，现在推到佐渡岛回来，进度大概到哪了？感觉只推了一半，坑还有好多的样子。 ...</blockquote>
+那AL大概推完2/3了吧，有很多伏笔来着嘛，反正后续揭的都差不多了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Toby_dak  
+##### 1059#       发表于 2021-10-14 09:08
+
+
+<blockquote>引用第1056楼saevey于2021-10-14 09:53发表的  :
+
+本帖最后由 saevey 于 2021-10-14 08:54 编辑 顺便借楼问一下，从无印推到al......</blockquote>
+还有横滨保卫战和樱花作战。
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  豆芽123  
+##### 1060#       发表于 2021-10-14 09:08
+
+
+女cv声音感觉都还挺还原，op管人声音一出就绷不住了音乐这块确实是败笔<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  deathmask  
+##### 1061#       发表于 2021-10-14 09:09
+
+
+ 本帖最后由 deathmask 于 2021-10-14 09:13 编辑 
+
+第一集那个佐渡岛少女，嘴一开一合做高歌状，但发出的是嗯嗯嗯的哼唱。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 1062#       发表于 2021-10-14 09:09
+
+
+<blockquote>引用第1027楼passion_krsw于2021-10-14 03:25发表的  :
+
+这第一集和第二集怎么割裂感这么严重 根本不是同一批人 还以为我少看了一季</blockquote>
+muv-luv动画化传统。跟上次Total Eclipse一样，开头都是交代时代背景设定。
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1063#       发表于 2021-10-14 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114383&amp;ptid=1860817" target="_blank">saevey 发表于 2021-10-14 08:53</a>
+
+顺便借楼问一下，从无印推到al，现在推到佐渡岛回来，进度大概到哪了？感觉只推了一半，坑还有好多的样子。 ...</blockquote>
+那基本快结束了
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1064#       发表于 2021-10-14 09:25
+
+
+这片这么昭和的内容你给我整的什么OP,ED，男主真的全程念稿，查了一下还是I‘m的新人，真的实力不行，这怎么选的，第二集全程开火车就是玩过游戏的看也难受，这集的观感差演出是主要原因，这根本就没有演出，当然十二集这么赶也别指望有演出的空间了
+
+

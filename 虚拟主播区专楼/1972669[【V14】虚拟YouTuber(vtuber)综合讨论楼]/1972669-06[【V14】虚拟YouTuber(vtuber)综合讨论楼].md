@@ -1582,3 +1582,29 @@ https://youtu.be/fGyoGzegVUY
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7614#       发表于 2021-10-14 09:08
+
+
+ 本帖最后由 poipanchao 于 2021-10-14 09:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114332&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-14 08:47</a>
+
+https://youtu.be/fGyoGzegVUY
+
+6:00:54
+
+オ夕クさんの配信コラボ中に視聴中!</blockquote>瞄了一眼，这么yygq的评论还有11赞的…
+算是在隐晦地表达不满？
+完了，oreapo塌房了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+我记得曾几何时还有kmt和noah的怪味糖的
+
+要不？
+
+顺便reid没救了，上个赛季带着bora坐牢，这次hnn+qp也坐牢
+
+
