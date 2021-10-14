@@ -1550,3 +1550,20 @@ GM并不是完全照着字幕读，某些剧情还会加入自己的吐槽，记
 那王家秘宝就是胃药么？
 
 
+
+
+*****
+
+####  jacket  
+##### 120#       发表于 2021-10-14 19:13
+
+
+[https://www.4gamer.net/games/596/G059652/20211009006/](https://www.4gamer.net/games/596/G059652/20211009006/)
+
+
+nier主题的画面效果：
+<img src="https://img.imoutomoe.net/images/2021/10/14/036.jpg" referrerpolicy="no-referrer">
+<img src="https://img.imoutomoe.net/images/2021/10/14/037.jpg" referrerpolicy="no-referrer">
+<img src="https://img.imoutomoe.net/images/2021/10/14/038.jpg" referrerpolicy="no-referrer">
+
+
