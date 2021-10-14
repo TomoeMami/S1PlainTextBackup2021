@@ -15662,3 +15662,48 @@ TE的原画已经画过FAMAS
 另：TDA都跟香月老师生孩子了
 
 
+
+
+*****
+
+####  rick6  
+##### 1071#       发表于 2021-10-14 10:51
+
+
+谁知道beta这么强，人类是怎么把他们赶出太阳系的？
+
+
+*****
+
+####  blood_iron  
+##### 1072#       发表于 2021-10-14 10:53
+
+
+对了，BETA这群矿工能不能发信息通知它们的造物主的？
+
+它们的造物主知不知道一个矿区被掀翻的啊
+
+
+*****
+
+####  hlazd  
+##### 1073#       发表于 2021-10-14 10:54
+
+
+按道理来说，死了才有alt的武，没死是tda的武，虽然也不知道具体是哪条世界线上的
+
+
+*****
+
+####  yixiaqqq  
+##### 1074#       发表于 2021-10-14 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115935&amp;ptid=1860817" target="_blank">rick6 发表于 2021-10-14 10:51</a>
+
+谁知道beta这么强，人类是怎么把他们赶出太阳系的？</blockquote>
+天不生武爷，万古如长夜啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+人类被艹了30年，武爷一出3个月搞定胜负手，剩下的时间只是收菜而已
+
+

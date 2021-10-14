@@ -6718,3 +6718,23 @@ https://b23.tv/72uCZf
 感谢官方手下留情还给可可一个结婚适用型日本媳妇吧，离香千这种可怕的青梅竹马远点<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2042#       发表于 2021-10-14 10:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初代动画最让我印象深刻的部分就是在沙滩上妮姬互动的部分 一切是来的那么的突然
+
+
+*****
+
+####  优妮可  
+##### 2043#       发表于 2021-10-14 10:57
+
+
+上一集小鸟就给妮姬整了个情侣套餐了，就是那么突然。
+
+
