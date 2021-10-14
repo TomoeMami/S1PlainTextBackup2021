@@ -7300,3 +7300,23 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 [https://www.youtube.com/watch?v=kUN4rZdcSEc](https://www.youtube.com/watch?v=kUN4rZdcSEc)
 
 
+
+
+*****
+
+####  优妮可  
+##### 2085#       发表于 2021-10-15 07:37
+
+
+大使馆下面评论群魔乱舞
+
+
+*****
+
+####  soranoguiji  
+##### 2086#       发表于 2021-10-15 07:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 去看了下评论，怎么感觉日语英语都是那啥帆船的，语法都有点不通啊
+
+
