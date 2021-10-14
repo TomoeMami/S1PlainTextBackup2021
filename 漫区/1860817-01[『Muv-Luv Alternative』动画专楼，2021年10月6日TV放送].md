@@ -15859,3 +15859,43 @@ TE的原画已经画过FAMAS
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1086#       发表于 2021-10-14 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114969&amp;ptid=1860817" target="_blank">angela5d30 发表于 2021-10-14 09:44</a>
+
+纯动画党，第二话撇开OPED特不对味外感觉其他还行。男主去找基地副司令，以前的世界线曾作为自己学校的老师 ...</blockquote>
+层主玩过一遍游戏，你的理解基本准确。
+
+
+动画里的白银武时间线是第二次回到beta世界。第一次穿越是靠认出香月夕乎，没有被关禁闭一辈子，而是参加卫士训练，还没毕业前被告知alternative4失败了。两次的起始时间都是10月22日。
+
+
+*****
+
+####  再买自检星剁手  
+##### 1087#       发表于 2021-10-14 12:09
+
+
+动画op可以看出12.5事件跑不掉了，那op从冥夜悠阳的构图之后，战术机战斗的画面对应哪一场？红白蓝武御雷直接快进到甲21？
+
+
+*****
+
+####  saevey  
+##### 1088#       发表于 2021-10-14 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53116992&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-14 12:03</a>
+层主玩过一遍游戏，你的理解基本准确。
+
+
+动画里的白银武时间线是第二次回到beta世界。第一次穿越是靠认出 ...</blockquote>
+夕呼说过al武的loop次数是不确定的吧，也是武有各种剧情线的闪回和记忆缺失的原因之一，虽然不记得具体在哪段说过了。<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
