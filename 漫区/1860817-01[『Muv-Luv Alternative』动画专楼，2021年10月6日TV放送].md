@@ -15584,3 +15584,61 @@ muv-luv动画化传统。跟上次Total Eclipse一样，开头都是交代时代
 还有我看后面训练的时候男主发现这作品是每次轮回都能继承上次世界线的身体素质&amp;知识吗？我蛮好奇男主是跳世界线了多少遍，门口被卫兵截查的时候说这次也没身份证明什么的，可看动画里各种揣度目前状况的内心独白感觉也不像是轮回了很多遍（还是说单纯是设定成轮回的记忆缺失很大，所以只有印象深刻的断片会残留？）。后半那个女二（？）冥夜跟男主聊天的时候，那段回忆是火山爆发下群众不愿意撤离，然后军队就强制性以保护为由赶他们吗？所以她才说出''我想保护的是人的灵魂&amp;意志''，是出于觉得人真正的生命寄宿在意志里？而不是仅仅的存活就行？我完全没接触过原作，不知道理解上有多少偏差。有原著党能告诉我一下吗，谢谢了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  最后的法芙娜  
+##### 1066#       发表于 2021-10-14 10:04
+
+
+<blockquote>angela5d30 发表于 2021-10-14 09:44
+纯动画党，第二话撇开OPED特不对味外感觉其他还行。男主去找基地副司令，以前的世界线曾作为自己学校的老师 ...</blockquote>
+火山那段是主角之前轮回里的片段。女二我感觉就是所谓正面的贵族&amp;武士精神
+
+
+*****
+
+####  鱼雷鲨  
+##### 1067#       发表于 2021-10-14 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53113959&amp;ptid=1860817" target="_blank">smdzh2 发表于 2021-10-14 07:36</a>
+
+cv和配乐被ate和死亡黑标完爆
+
+两个门卫大叔好歹也是后面挺man的人物，能不能别画那么崩啊kora
+
+还有 ...</blockquote>
+原来那枪太简陋
+
+
+TE的原画已经画过FAMAS
+
+
+*****
+
+####  鱼雷鲨  
+##### 1068#       发表于 2021-10-14 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114367&amp;ptid=1860817" target="_blank">saevey 发表于 2021-10-14 08:50</a>
+
+这ed我TM...原作随便一首人唱的歌都秒了这玩意十条街啊op能被秒五条街。
+
+这改的真是笑死，武你就别 ...</blockquote>
+原版慧是个梗人吧，恶搞绫波的
+
+
+*****
+
+####  angela5d30  
+##### 1069#       发表于 2021-10-14 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115260&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-14 10:04</a>
+
+火山那段是主角之前轮回里的片段。女二我感觉就是所谓正面的贵族&amp;武士精神 ...</blockquote>
+好的，谢谢。我还以为那段回忆的意义撇开这点还暗示女二前面的轮回里不承认那批在beta战里放弃地球选择了五代计划撤离的那几十万人是''人''，对应这次轮回里她在男主说出想要保护地球&amp;''全人类''的说辞时的慨叹（虽然我按动画这集里给我的感觉来看，觉得男主想保护的事是拥有此般念绪的''他们''）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
