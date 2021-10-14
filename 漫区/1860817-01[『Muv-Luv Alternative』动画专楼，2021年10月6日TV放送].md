@@ -16090,3 +16090,32 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 小麻参军时的政策等效于二战末期日本的学徒出阵。就是把非理工科和一些重要文科的大学生打包塞进军队了。
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 1103#       发表于 2021-10-14 15:06
+
+
+ 本帖最后由 Toby_dak 于 2021-10-14 16:08 编辑 
+<blockquote>angela5d30 发表于 2021-10-14 13:56
+谢谢。原来第二集这里男主才第二次回到有beta的世界啊，看他应对卫兵的态度参杂了不少对自己无能的怒意、 ...</blockquote>
+不不不，回到有BETA的世界远不止2次。因为游戏ALT篇，是按照前篇EXT全员攻略的前提下进行的。上限次数甚至是无限大。只不过武只记得其中几次而已。
+
+
+*****
+
+####  Kuroe  
+##### 1104#       发表于 2021-10-14 15:12
+
+
+ 本帖最后由 Kuroe 于 2021-10-14 15:19 编辑 
+
+2D部分一如既往地安定呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是这两个情况都在意料之中了。
+没想到的是，12话的动画，两话过去了我还不知道主角有一个爱人呢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+鸡枞难道想让观众对一个突然出现的角色倾注感情吗？这也太扯淡了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不提前铺垫纯夏的部分，能不受影响做出来的就只有“超级兵王重生训练学校”和“一二五”两个部分了吧？说是毫无爽点的两个部分不过分吧。
+原本的世界、00单元调律、甲21、00单元解锁全部意识、横滨基地保卫战、樱花作战，哪一个不需要让观众先知道两个人的感情？不提前铺垫是认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+一直忍着继续看，最后这个ED实在是忍不住了。什么东西啊！好听吗？不燃也不抒情，完全不觉得应景。相比之下OP都显得很优秀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
