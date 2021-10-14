@@ -6829,3 +6829,25 @@ FBoZBffVkAMU8cK.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">话说官方三围是不准备公布了吗
 
 
+
+
+*****
+
+####  D麦林  
+##### 2048#       发表于 2021-10-14 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53117939&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-14 13:21</a>
+
+话说官方三围是不准备公布了吗</blockquote>
+看5ch上的讨论
+
+有人说是因为NHK的压力 不能搞这种媚宅的东西
+
+有人说是因为这次要做完整个高中的剧情 剧中角色可能还有高二形态和高三形态
+
+（也就是说我还你变身两次 你知道我的意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+搞不好到时候来个高三形态小千突然变成高个子巨r什么的
+
+

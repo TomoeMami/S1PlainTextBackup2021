@@ -16029,3 +16029,23 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 篁主任那批人算特殊情况，她家是军户，说白了就是武士世家，生下来就是兵
 
 
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 1098#       发表于 2021-10-14 14:04
+
+
+武的cv是出道第一次配音的新人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SorroFrost  
+##### 1099#       发表于 2021-10-14 14:18
+
+
+要是能多出来一集专门讲人物关系和背景能更好些，现在这个摆明就是强行硬上
+
+
