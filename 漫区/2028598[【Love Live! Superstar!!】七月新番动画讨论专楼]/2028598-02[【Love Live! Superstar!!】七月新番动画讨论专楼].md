@@ -6677,3 +6677,44 @@ https://b23.tv/72uCZf
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">也别车这个态度问题了，相比当初民警入团后对可可莫名其妙的好感度和3话后香音莫名其妙真不熟；只能说花某人这个想写一对cp就无视前因后果让人强行失忆按表走的老顽疾八成是治不好了，就像G胖不会数三一样
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 2040#       发表于 2021-10-14 10:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 无视前因后果最强的不是妮姬吗，我还记得一个尼轰人写了长篇论文论证妮姬能成为第一cp就是因为留白多，结果现在大家都喜欢追求一个过程，是不是时代变了啊
+
+
+
+
+*****
+
+####  saya1892  
+##### 2041#       发表于 2021-10-14 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115100&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-14 09:51</a>
+
+别扣了别扣了，在扣多可怜啊，堇多好啊啥都想着可可，第十集那句你的事情我都知道我愣是没明白前后怎么突然 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/14/103452huz9bty9mz9cs5gu.png" referrerpolicy="no-referrer">
+
+
+<strong>0.png</strong> (31.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 10:34 上传
+
+
+……开玩笑的
+
+
+拉板有个帖子问5人中想跟谁交往，答案各种各样，但说到结婚，却都清一色地选堇<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+感谢官方手下留情还给可可一个结婚适用型日本媳妇吧，离香千这种可怕的青梅竹马远点<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+

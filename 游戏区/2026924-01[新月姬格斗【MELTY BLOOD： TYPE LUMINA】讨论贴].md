@@ -4138,3 +4138,16 @@ steam版，用uu加速器进联网模式，显示已登出steam不让玩。怎�
 红魔和公主在近身状态下的常规霸体技感觉比起对策要考反应一点，毕竟不是一段霸体是长时间霸体，有时候抢招不小心按多了一下就被干了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Booorunestud  
+##### 336#       发表于 2021-10-14 10:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥steam版联机突然卡成一坨，前面十几天都没问题
+
+同网络下的ps版正常
+
+

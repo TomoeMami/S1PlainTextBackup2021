@@ -15642,3 +15642,23 @@ TE的原画已经画过FAMAS
 好的，谢谢。我还以为那段回忆的意义撇开这点还暗示女二前面的轮回里不承认那批在beta战里放弃地球选择了五代计划撤离的那几十万人是''人''，对应这次轮回里她在男主说出想要保护地球&amp;''全人类''的说辞时的慨叹（虽然我按动画这集里给我的感觉来看，觉得男主想保护的事是拥有此般念绪的''他们''）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 1070#       发表于 2021-10-14 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53112746&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-10-14 00:22</a>
+
+惊了，武爷UN线竟然是被突击级创死的，我还以为TDA里当上了黑衣以后会有华丽的演出和谢幕哪 ...</blockquote>
+漫画是被要击锤死了吧
+
+
+不过上一个不一定是TDA，TDA他怎么死也不确定呢
+
+
+另：TDA都跟香月老师生孩子了
+
+
