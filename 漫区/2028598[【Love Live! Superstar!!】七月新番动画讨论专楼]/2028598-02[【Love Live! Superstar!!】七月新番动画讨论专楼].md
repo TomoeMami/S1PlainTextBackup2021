@@ -7066,3 +7066,37 @@ dmm认证界面（
 前几天那张可香图竟然是3D做的  【Tiny stars 制作过程-哔哩哔哩】https://b23.tv/IGI9ZY
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2065#       发表于 2021-10-14 22:34
+
+
+BV1TL4y1B739
+第10话的歌有完整版了
+
+
+*****
+
+####  a92063256  
+##### 2066#       发表于 2021-10-14 22:39
+
+
+真不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  player3960  
+##### 2067#       发表于 2021-10-14 22:44
+
+
+好听，我TM听爆<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

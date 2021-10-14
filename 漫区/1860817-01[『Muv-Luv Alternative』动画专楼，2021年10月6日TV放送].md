@@ -16353,3 +16353,43 @@ muv世界观男人和成人基本都打光了，没办法只能把小孩和女�
 回1117楼，把OP里某个蓝色的东西看成紫色的了，我的错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Carta_Issue  
+##### 1122#       发表于 2021-10-14 22:27
+
+
+207b分队的人员身份背景太奢华了，
+陆军中将，首相，情报局头子，联合国事务官的女儿加当今二公主，
+
+按道理真不会让全部人最后全投入导在樱花作战里面突击送光的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+斯卫军上去送还说得过去
+
+
+*****
+
+####  alucardcz  
+##### 1123#       发表于 2021-10-14 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53124988&amp;ptid=1860817" target="_blank">アーリィ 发表于 2021-10-14 21:46</a>
+
+这第二话还真不如ate了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ate动画也不知道为什么没做完 后面才是快乐源泉 虽然很烂
+
+
+*****
+
+####  アーリィ  
+##### 1124#       发表于 2021-10-14 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53125611&amp;ptid=1860817" target="_blank">alucardcz 发表于 2021-10-14 22:30</a>
+
+ate动画也不知道为什么没做完 后面才是快乐源泉 虽然很烂</blockquote>
+那时候游戏还没出吧，后面出早了剧透游戏，出晚了没广告作用，自然就不做了，我在动画播到一半时候随口说了个男主怕不是私生子，没想到真猜对了
+
+
