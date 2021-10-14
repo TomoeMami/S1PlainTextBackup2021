@@ -16537,3 +16537,25 @@ un打炮还是狐狸算正宫吧。
 看你们说的那么差第二集都不想看了，怕破坏心目中对游戏的好印象
 
 
+
+
+*****
+
+####  bgmilk  
+##### 1136#       发表于 2021-10-15 01:04
+
+
+    这音乐把我整麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adslnet0519  
+##### 1137#       发表于 2021-10-15 01:07
+
+
+第二集果不其然在剧情上面一路狂奔，只有玩过原作的人才看得懂（话说发型和声优都改了因为要与时俱进也就算了，彩峰和小麻的胸也削了简直不能忍
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

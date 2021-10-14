@@ -1781,3 +1781,27 @@ kmt咱不受这气，换个女人吧 ...</blockquote>
 是熟悉的kmt.hnn.giru大半夜三排apex，虽然giru待会才来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7628#       发表于 2021-10-15 01:09
+
+
+ 本帖最后由 poipanchao 于 2021-10-15 01:12 编辑 
+
+这次露露没有差点说漏嘴了
+
+直接"おつるるでした"了
+
+属实工伤
+
+
+syl，hnn当然知道自己人气的最大依仗啊（不如说我一直觉得她是极高段位的宅圈公主）
+
+操作失误一波而已
+
+今天不就马上开始贴贴了嘛
+
+
