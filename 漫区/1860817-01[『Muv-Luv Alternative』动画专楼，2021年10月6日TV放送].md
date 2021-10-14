@@ -15456,3 +15456,31 @@ cv和配乐被ate和死亡黑标完爆<img src="https://static.saraba1st.com/ima
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  saevey  
+##### 1056#       发表于 2021-10-14 08:50
+
+
+ 本帖最后由 saevey 于 2021-10-14 08:55 编辑 
+
+这ed我TM...原作随便一首人唱的歌都秒了这玩意十条街啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">op能被秒五条街。
+这改的真是笑死，武你就别说你自来熟了，我看你们这队伍里全都蛮自来熟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+作画好崩，不过3d部分不错了。
+cv没什么好说的，反正除了武其它人就没几句话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过不说配的怎样，这些新cv声音确实像原作啊，听到时我都吓一跳，不知道纯夏和尊人cv怎样，这动画至少纯夏的声音不要变的太明显啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">，至于尊人，真的能配出原作那味吗？
+
+
+*****
+
+####  saevey  
+##### 1057#       发表于 2021-10-14 08:53
+
+
+ 本帖最后由 saevey 于 2021-10-14 08:54 编辑 
+
+顺便借楼问一下，从无印推到al，现在推到佐渡岛回来，进度大概到哪了？感觉只推了一半，坑还有好多的样子。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+

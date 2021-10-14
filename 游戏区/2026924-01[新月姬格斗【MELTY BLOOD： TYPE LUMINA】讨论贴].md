@@ -4121,3 +4121,20 @@ steam版，用uu加速器进联网模式，显示已登出steam不让玩。怎�
 我是啥b，我看xbox版便宜买的xbox版，一个人也匹不到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 335#       发表于 2021-10-14 09:01
+
+
+ 本帖最后由 红魔馆的糖 于 2021-10-14 09:05 编辑 
+
+读对面霸体心理的话，对面倒地起身月取消后用红月霸体月技/月升龙跳取消的几率特别高，可以直接D
+
+其实这样2A复合2BD的压制概率成功很高，就是我经常2A压不准反过来被抢2A
+
+红魔和公主在近身状态下的常规霸体技感觉比起对策要考反应一点，毕竟不是一段霸体是长时间霸体，有时候抢招不小心按多了一下就被干了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+

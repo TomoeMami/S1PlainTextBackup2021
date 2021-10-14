@@ -1567,3 +1567,18 @@ hnn这几天播影之诗应该是他原因。
 <img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7613#       发表于 2021-10-14 08:47
+
+
+https://youtu.be/fGyoGzegVUY
+6:00:54
+オ夕クさんの配信コラボ中に視聴中!
+オ夕あぽてえてえなあ!
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

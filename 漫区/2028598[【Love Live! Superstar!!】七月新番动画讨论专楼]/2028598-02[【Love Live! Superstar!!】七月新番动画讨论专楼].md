@@ -6618,3 +6618,14 @@ https://b23.tv/72uCZf
 围巾玩偶这类制作要打样费等一系列费用，跳绳可以直接印上去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 2035#       发表于 2021-10-14 09:01
+
+
+赚钱没问题，开个5000也是胆大
+
+
