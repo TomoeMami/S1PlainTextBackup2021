@@ -7188,3 +7188,76 @@ BV1TL4y1B739
 这排面，但是第一张图总感觉有点……明明微博上画的可爱的那么多……
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2076#       发表于 2021-10-15 00:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这拔刺game专业对口
+
+
+*****
+
+####  cybernetics31  
+##### 2077#       发表于 2021-10-15 00:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">大使馆排面啊
+
+
+*****
+
+####  cqc1021  
+##### 2078#       发表于 2021-10-15 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53126817&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-15 00:07</a>
+这排面，但是第一张图总感觉有点……明明微博上画的可爱的那么多……</blockquote>
+第一张貌似是领事馆自己画的，领事馆之前画的防疫漫画也是这本子画风，第二张是微博画师画的表情包
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  megapikachu  
+##### 2079#       发表于 2021-10-15 00:19
+
+
+这次真的是永载史册了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2080#       发表于 2021-10-15 00:20
+
+
+<blockquote>cqc1021 发表于 2021-10-15 00:16
+第一张貌似是领事馆自己画的，领事馆之前画的防疫漫画也是这本子画风，第二张是微博画师画的表情包
+
+
+—— ...</blockquote>
+感觉有点〇情漫画风～
+
+
+不过也有点担心这样出圈就有点麻烦，怕引起莫名其妙的营销号关注
+
+
+*****
+
+####  中野四葉  
+##### 2081#       发表于 2021-10-15 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53126975&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-15 00:20</a>
+感觉有点〇情漫画风～
+
+
+不过也有点担心这样出圈就有点麻烦，怕引起莫名其妙的营销号关注 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，已经引起了
+
+
