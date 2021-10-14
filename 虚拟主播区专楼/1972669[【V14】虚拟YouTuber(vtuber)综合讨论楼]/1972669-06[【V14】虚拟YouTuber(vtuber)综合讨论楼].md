@@ -1608,3 +1608,24 @@ https://youtu.be/fGyoGzegVUY
 顺便reid没救了，上个赛季带着bora坐牢，这次hnn+qp也坐牢
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7615#       发表于 2021-10-14 09:29
+
+
+ 本帖最后由 FCCHua 于 2021-10-14 09:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114515&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-14 09:08</a>
+瞄了一眼，这么yygq的评论还有11赞的…
+算是在隐晦地表达不满？
+完了，oreapo塌房了</blockquote>
+这几位的后续发展，按照hnn的性格...<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+不过这次直播还有她们三个和kmt的突击连麦来着，三排没kmt单排上分多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 怎么感觉后续回复更yygq了，等一个评论删除
+先日突発コラボする前欄に自分の名前出てきても特に何も気にしてない様子でその後自分でコメントしてましたけど???
+この人は自分に都合のいい鳩は許容する人ですよ~?
+
+
