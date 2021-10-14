@@ -16333,3 +16333,23 @@ muv世界观男人和成人基本都打光了，没办法只能把小孩和女�
 当初玩游戏时候女主群里面我最喜欢彩峰慧，因为长得像corrector yui里面的篠崎爱
 
 
+
+
+*****
+
+####  禦厨三九二  
+##### 1120#       发表于 2021-10-14 22:10
+
+
+完全无法接受武爷配音<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  万年僵尸  
+##### 1121#       发表于 2021-10-14 22:13
+
+
+回1117楼，把OP里某个蓝色的东西看成紫色的了，我的错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
