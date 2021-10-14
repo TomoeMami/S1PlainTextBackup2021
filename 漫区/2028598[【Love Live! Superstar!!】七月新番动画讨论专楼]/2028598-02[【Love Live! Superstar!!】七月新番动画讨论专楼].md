@@ -7151,3 +7151,40 @@ BV1TL4y1B739
 鬼才啊，铺垫了一集rap结果没把rap做进live里，方便卖吗）  不过这歌真好听
 
 
+
+
+*****
+
+####  蒹葭公子  
+##### 2073#       发表于 2021-10-14 23:59
+
+
+ 本帖最后由 蒹葭公子 于 2021-10-15 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53105498&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-13 16:10</a>
+
+你的所谓“所有逻辑”本来就是自己树靶子自己打，动画里已经写了小学这边点名说了就想听香音唱歌——从动 ...</blockquote>
+我笑了，我高中毕业有毕业学姐组了乐队，我们觉得挺骄傲请学姐乐队来演出本来答应的好好的但当天只有学姐一个人回来然后说乐队成员有事。学姐独唱完突然乐队其他成员又出现了。虽然我只是因为学姐是我们学校出去的所以单纯只想听她唱歌，但架不住我觉得学姐的队友都是xx吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦对了，千砂都大概跟香音是中学才认识的小学不是同学呢……
+
+
+*****
+
+####  cqc1021  
+##### 2074#       发表于 2021-10-15 00:00
+
+
+<img src="https://p.sda1.dev/2/b961277faf73ec5c71c8d532d3400b3e/IMG_CMP_190628326.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 2075#       发表于 2021-10-15 00:07
+
+
+这排面，但是第一张图总感觉有点……明明微博上画的可爱的那么多……
+
+

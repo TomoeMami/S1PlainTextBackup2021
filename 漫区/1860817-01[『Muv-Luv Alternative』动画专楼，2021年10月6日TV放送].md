@@ -16499,3 +16499,30 @@ TDA里武爷不是说变得非常冷酷了吗，还有这种展开<img src="http
 放在狐狸手下最安全，Al5上太空的票本来应该人手一张的
 
 
+
+
+*****
+
+####  hlazd  
+##### 1133#       发表于 2021-10-14 23:46
+
+
+别纠结12集了分割放送这年头再正常不过了，鸡总都那么肯定地说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便说一下引用回复时反白似乎会失效…
+
+
+*****
+
+####  kamarus  
+##### 1134#       发表于 2021-10-14 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53126017&amp;ptid=1860817" target="_blank">らくくん 发表于 2021-10-14 23:05</a>
+TDA里武爷不是说变得非常冷酷了吗，还有这种展开？
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android ...</blockquote>
+un打炮还是狐狸算正宫吧。
+不过武爷兴致也是嗨，貌似和冥夜也在tda里有娃<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
