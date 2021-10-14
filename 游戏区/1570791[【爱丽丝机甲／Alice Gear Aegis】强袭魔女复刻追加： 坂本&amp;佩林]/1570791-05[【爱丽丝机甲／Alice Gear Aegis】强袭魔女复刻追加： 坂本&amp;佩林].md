@@ -1527,3 +1527,48 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 协力的普通难度还能掉落武器彩贝？国服开到现在第一次偶然打到<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6110#       发表于 2021-10-14 13:05
+
+
+ 本帖最后由 江戸前ルナ 于 2021-10-14 13:19 编辑 
+
+隔壁魔女一周年更新了摄影模式，一切都在向阿金学习<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+然而有个地方阿金也学学啊，那边是背景纯黑屏可以方便把各种POSE的魔女P进去各种相片里，阿金也搞个去背景功能和微调表情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202110/14/130523qw8w0wbowpz5wjws.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211014130122.png</strong> (122.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 13:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/14/130534vzvxuijoggv00ago.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211014130128.png</strong> (257.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 13:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/14/130540tamxp7pp4mzsgggg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211014130134.png</strong> (180.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 13:05 上传
+
+

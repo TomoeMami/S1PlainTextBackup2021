@@ -15997,3 +15997,35 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 谢谢。原来第二集这里男主才第二次回到有beta的世界啊，看他应对卫兵的态度参杂了不少对自己无能的怒意、后面说服副司令那段落感觉他对对方的底蕴摸了不少&amp;说着说着都能把自己搞哭的，我还以为起码在有beta的世界观轮回过5次以上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  突发性哮喘病患  
+##### 1096#       发表于 2021-10-14 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53117678&amp;ptid=1860817" target="_blank">angela5d30 发表于 2021-10-14 12:56</a>
+
+谢谢。原来第二集这里男主才第二次回到有beta的世界啊，看他应对卫兵的态度参杂了不少对自己无能的怒意、 ...</blockquote>
+准确的说不是二周目，而是所有平行世界白银武的集合体
+
+
+*****
+
+####  raynor_1999  
+##### 1097#       发表于 2021-10-14 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53117244&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-14 12:23</a>
+
+话说muv里霓虹金人服役年龄有点迷啊，小麻是强制征召以前的人，大学中途参军去士官学校。但19岁就上了战场 ...</blockquote>
+人越打越少强制征召年龄可不就是越来越小嘛
+
+
+小麻记得是自愿参军吧？她这一批死得差不多了那下一批可不就更年轻了？
+
+
+篁主任那批人算特殊情况，她家是军户，说白了就是武士世家，生下来就是兵
+
+

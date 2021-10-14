@@ -6801,3 +6801,20 @@ FBoZBffVkAMU8cK.jpg
 <img src="https://img.saraba1st.com/forum/202110/14/121326myaoyh19ahr80h14.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 2046#       发表于 2021-10-14 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115728&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-14 10:38</a>
+
+……开玩笑的
+
+
+拉板有个帖子问5人中想跟谁交往，答案各种各样，但说到结婚，却都清一色地选堇</blockquote>
+可可跟香音结婚是嫁给香音，跟堇结婚就是堇嫁给可可……
+
+
