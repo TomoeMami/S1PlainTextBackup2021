@@ -15761,3 +15761,101 @@ TE的原画已经画过FAMAS
 话说后面凉宫遥会是谁配音啊，某人前妻还会来吗
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 1079#       发表于 2021-10-14 11:44
+
+
+ 本帖最后由 Toby_dak 于 2021-10-14 12:46 编辑 
+<blockquote>引用第1077楼最后的法芙娜于2021-10-14 12:36发表的  :
+
+话说后面凉宫遥会是谁配音啊，某人前妻还会来吗</blockquote>
+是不是忘记社霞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">换掉也不奇怪。
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  最后的法芙娜  
+##### 1080#       发表于 2021-10-14 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53116734&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-14 11:44</a>
+
+是不是忘记社霞了
+
+
+----发送自 Sony J9110,Android 11</blockquote>
+兔子已经确定不是了吧
+
+
+
+
+*****
+
+####  Toby_dak  
+##### 1081#       发表于 2021-10-14 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53116756&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2021-10-14 12:46</a>
+
+兔子已经确定不是了吧</blockquote>
+所以みん実应该也不会留用了。
+
+
+*****
+
+####  肥宅也是人  
+##### 1082#       发表于 2021-10-14 11:48
+
+
+原来栗林真是鸡宗的前妻？
+
+
+*****
+
+####  areklose  
+##### 1083#       发表于 2021-10-14 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115480&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2021-10-14 10:21</a>
+
+漫画是被要击锤死了吧
+
+
+不过上一个不一定是TDA，TDA他怎么死也不确定呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">TDA有说这个吗？我少玩一部了？
+
+
+*****
+
+####  再买自检星剁手  
+##### 1084#       发表于 2021-10-14 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53114383&amp;ptid=1860817" target="_blank">saevey 发表于 2021-10-14 08:53</a>
+
+顺便借楼问一下，从无印推到al，现在推到佐渡岛回来，进度大概到哪了？感觉只推了一半，坑还有好多的样子。 ...</blockquote>
+进度约为60%到70%，剩下的剧情不多，主要两场战役
+
+
+*****
+
+####  PPStream  
+##### 1085#       发表于 2021-10-14 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53115968&amp;ptid=1860817" target="_blank">blood_iron 发表于 2021-10-14 10:53:32</a>
+对了，BETA这群矿工能不能发信息通知它们的造物主的？
+
+它们的造物主知不知道一个矿区被掀翻的啊 ...</blockquote>不会，矿工眼里硅基才是生命的正统，地球这种只会被认为地质环境恶劣，不适合挖矿
+樱花作战里人类第一次和主脑对话，但是啥都没谈成回头就把主脑灭了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

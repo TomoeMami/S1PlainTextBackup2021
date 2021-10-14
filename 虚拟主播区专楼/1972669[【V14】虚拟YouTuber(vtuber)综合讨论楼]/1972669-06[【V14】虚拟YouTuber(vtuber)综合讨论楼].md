@@ -1652,3 +1652,16 @@ syl 怎么感觉后续回复更yygq了，等一个评论删除
 我的建议是让这些人多听听一般管人的歌<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  天天座理世  
+##### 7618#       发表于 2021-10-14 12:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">hnn这三排7200永远的家，noah昨天单排上过钻3，今天钻4开局，实属坐牢。
+
+而且这边kawase三排猎排，不会又被碰到吧
+
+
