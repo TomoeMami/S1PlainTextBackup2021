@@ -1597,3 +1597,17 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">锉刀这an衣服，也太健全了...
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6113#       发表于 2021-10-14 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53121782&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-10-14 18:16</a>
+
+锉刀这an衣服，也太健全了...</blockquote>
+只能说现在这件脱了就是“那件”了<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+

@@ -16188,3 +16188,66 @@ Total Eclipse和Schwarzes Marken节奏比这倒霉玩意舒服得多。
 那大概是游戏默认玩家都是走完前作所有路线的。当时的层主觉得回忆杀里冥夜的戏份最多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1110#       发表于 2021-10-14 18:48
+
+
+所以动画里冥夜的屁股难道不性感吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202110/14/184653gixlq49ii8d4bb4d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] MUV-LUV ALTERNATIVE - 02 [Baha][WEB-DL][1080p][AVC AAC][CHT][MP4].mp4_.jpg</strong> (79.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 18:46 上传
+
+
+第二集全场最佳画面：
+
+<img src="https://img.saraba1st.com/forum/202110/14/184843opav19talst2q1qt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] MUV-LUV ALTERNATIVE - 02 [Baha][WEB-DL][1080p][AVC AAC][CHT][MP4].mp4_.jpg</strong> (235.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-14 18:48 上传
+
+
+
+
+*****
+
+####  KOPKOM  
+##### 1111#         楼主| 发表于 2021-10-14 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53122116&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-14 18:48</a>
+所以动画里冥夜的屁股难道不性感吗</blockquote>
+人人都吃合成食品的世界里狐狸能喝上25年陈的威士忌，这得是什么级别的权贵啊
+
+
+*****
+
+####  再买自检星剁手  
+##### 1112#       发表于 2021-10-14 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53122140&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-10-14 18:50</a>
+
+人人都吃合成食品的世界里狐狸能喝上25年陈的威士忌，这得是什么级别的权贵啊 ...</blockquote>
+人类对抗外星人的alternative4计划总指挥（现在看总指挥这词有点ptsd，现实里是怎样的军衔或级别呢，大概仅次于军 委 主 席？）
+
+
+转换到现实世界里就是我国前三排也要敬三分的存在，那当然吃喝都是特供中的特供，喝名酒这点小嗜好都不算什么
+
+
+甚至横滨基地的训练兵都是特别的存在，单人宿舍，合成食品还是连色香味都尽量还原的那种（一般民众和部队官兵的伙食，估计能保证营养、能下咽就不错了），何况207b分队的人员背景也十分奢华
+
+
