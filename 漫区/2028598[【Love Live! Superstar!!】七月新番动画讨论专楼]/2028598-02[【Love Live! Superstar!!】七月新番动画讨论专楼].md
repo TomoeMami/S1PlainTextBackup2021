@@ -7847,3 +7847,73 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 2021-10-15 21:20 上传
 
 
+
+
+*****
+
+####  优妮可  
+##### 2124#       发表于 2021-10-15 23:15
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/231536no2tf88hogffhfhz.png" referrerpolicy="no-referrer">
+
+
+<strong>-6d3f6951c8e82541.png</strong> (206.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 23:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/231536hu3dzlvsei6vsi3y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211015_231355.jpg</strong> (188.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 23:15 上传
+
+
+*****
+
+####  Piano-Forest  
+##### 2125#       发表于 2021-10-15 23:17
+
+
+11/3(水)発売 カウントダウンライブテーマソングCD「LIVE with a smile!」☀🌈💫
+
+
+✨🎉ジャケット＆試聴動画を初公開🎉✨
+
+
+・CD情報💿
+[https://www.lovelive-anime.jp/lo ... e-theme.php#livetop](https://www.lovelive-anime.jp/lovelive-series2021/live-theme.php#livetop)
+
+
+・試聴動画🎧
+[https://youtu.be/lbrU2kk9toE](https://youtu.be/lbrU2kk9toE)
+
+
+発売までお楽しみに..🎶
+<img src="https://p.sda1.dev/2/ea328593f8c7f04ab5de8832e1be3228/20211015_231439.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/8e7e72f7f3ae36ba63596869f3a66da0/20211015_231441.jpg" referrerpolicy="no-referrer">
+
+
+11/24(水)発売 スプリットシングル「not ALONE not HITORI / ミラクル STAY TUNE！ / Shooting Voice!!」☀🌈💫
+
+
+✨🎉ジャケット初公開🎉✨
+
+
+各学校ごとの個性にあふれたジャケットイラストです🎶
+
+
+●CD情報💿
+[https://www.lovelive-anime.jp/lovelive-series2021/radio.php](https://www.lovelive-anime.jp/lovelive-series2021/radio.php)
+
+
+ぜひ、チェックしてください🎁
+<img src="https://p.sda1.dev/2/ef8276d48d42693c1b346a5227d13b34/20211015_231656.jpg" referrerpolicy="no-referrer">
+
+
