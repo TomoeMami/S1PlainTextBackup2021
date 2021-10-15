@@ -7982,3 +7982,19 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  supergilaboy  
+##### 646#       发表于 2021-10-15 19:49
+
+
+<blockquote>vacuumsword 发表于 2021-10-15 19:33
+求问放水淹死情侣后有办法捡他们的装备么？
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+应该和狗头人掉搅拌机一样没办法，反正玩到后期就可拿可不拿了
+
+
