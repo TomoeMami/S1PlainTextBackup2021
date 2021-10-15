@@ -3400,3 +3400,16 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 <img src="https://p.sda1.dev/2/791ae1b730a092476f79617e46dff15e/IMG_CMP_82668621.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  GarNoc  
+##### 264#       发表于 2021-10-15 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53128205&amp;ptid=2021175" target="_blank">sanxgh571 发表于 2021-10-15 02:30</a>
+呵呵，脆鲨滤镜太重了</blockquote>
+前面我忘了，麻木的像一具尸体！
+
+
