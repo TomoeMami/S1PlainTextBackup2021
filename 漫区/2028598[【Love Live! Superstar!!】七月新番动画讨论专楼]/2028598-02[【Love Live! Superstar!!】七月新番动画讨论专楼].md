@@ -7552,3 +7552,47 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 阪领你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2102#       发表于 2021-10-15 10:23
+
+
+ 本帖最后由 chenflyyy 于 2021-10-15 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53130160&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-15 10:18</a>
+没，我说的是上面那个nonfiction，太像了让人怀疑至少是不是借鉴了</blockquote>
+啊，那个确实
+好像香音家的店的原型就是因为这种情况改了？
+
+
+*****
+
+####  稀勢のささ  
+##### 2103#       发表于 2021-10-15 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53128756&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-15 07:40</a>
+去看了下评论，怎么感觉日语英语都是那啥帆船的，语法都有点不通啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外网对这个比较关注的大概只有弯弯 很合理
+
+
+*****
+
+####  D麦林  
+##### 2104#       发表于 2021-10-15 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53130160&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-15 10:18</a>
+
+没，我说的是上面那个nonfiction，太像了让人怀疑至少是不是借鉴了</blockquote>
+？不是
+
+这不是真正的店的牌子啊 是玩梗的同人作品
+
+你没看角色的标志都画上去了 是我说的太隐晦了吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+（同人里总会有的存在现役学园偶像的风俗店 以这种感觉做的图片而已
+
+
