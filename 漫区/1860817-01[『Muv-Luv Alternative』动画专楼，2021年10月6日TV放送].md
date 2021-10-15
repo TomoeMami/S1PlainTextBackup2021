@@ -16678,3 +16678,54 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 我还是觉得就应该一路加速做到武爷内心成长完毕再会那啥，特别是武爷装逼和基地训练啥的，早就过时不谈还真的很无聊，就看老右棍舍不舍得他那点东西
 
 
+
+
+*****
+
+####  areklose  
+##### 1147#       发表于 2021-10-15 09:46
+
+
+加速到转变了就没啥好做了。前期装逼是为了突出了名场面的残酷。另外一个世界的逃避到最后回来可是占了很多篇幅。全部加速相当于是砍了大半。。。讲真我一直觉得AL最燃那段还是回来那一段。。。。。
+
+
+*****
+
+####  nervpp  
+##### 1148#       发表于 2021-10-15 09:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53128345&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-10-15 02:57</a>
+
+我知道肯定是分割放送，但是我真不觉得能期待三季度所以我的讨论基本建立在两季度这个假设上的， ...</blockquote>
+你说12.5事件武爷和将军聊了三分钟然后打了三分钟把事件解决了……这……这观感……（十二话讲到甲二十一感觉应该要这个速度吧……）
+
+
+*****
+
+####  nervpp  
+##### 1149#       发表于 2021-10-15 09:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53129745&amp;ptid=1860817" target="_blank">areklose 发表于 2021-10-15 09:46</a>
+
+加速到转变了就没啥好做了。前期装逼是为了突出了名场面的残酷。另外一个世界的逃避到最后回来可是占了很多 ...</blockquote>
+是小麻出事后回来然后连锁反应那里吗……这段感觉最多最多用一话来说……
+
+
+*****
+
+####  nervpp  
+##### 1150#       发表于 2021-10-15 09:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53123369&amp;ptid=1860817" target="_blank">kamarus 发表于 2021-10-14 20:06</a>
+
+不是，不是说多季度吗，怎么就成12集了
+
+这季拍的不是一般的一般，是非常一般的一般
+
+还是赶紧 ...</blockquote>
+因为是手游素材吗（已经对大IP改手游PTSD了）还有机甲，这都是要抽卡卖钱的！
+
+

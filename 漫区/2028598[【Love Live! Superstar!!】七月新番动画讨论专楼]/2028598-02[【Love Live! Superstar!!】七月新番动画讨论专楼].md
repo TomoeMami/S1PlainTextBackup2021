@@ -7471,3 +7471,20 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">不会又是没征得同意直接抄了吧
 
 
+
+
+*****
+
+####  D麦林  
+##### 2096#       发表于 2021-10-15 09:55
+
+
+ 本帖最后由 D麦林 于 2021-10-15 09:57 编辑 
+
+不至于吧 你们说的好吓人<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+其实我之前也一度以为出圈了 其实再看看这热度 离真出圈还差得远呢 也就二刺猿内部玩得欢一些
+
+没有那么可怕吧而且就改生日这事 说明这次运营肯定要么有自己人要么有懂行的 我觉得相对安全吧
+
+
