@@ -8178,3 +8178,47 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 这次更新居然把TAA的锐化给消除了，希望狗屎EA学着点,2042的稀烂素材树配上锐化简直要瞎了
 
 
+
+
+*****
+
+####  矢量路比  
+##### 661#       发表于 2021-10-15 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53141101&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-15 22:25</a>
+
+可以拉远点截图吗？太近了摸不清是哪里</blockquote>
+是这个位置，虽然时间不一样
+
+<img src="https://img.saraba1st.com/forum/202110/15/235056b1tahi69b3021oz9.png" referrerpolicy="no-referrer">
+
+
+<strong>DEATHLOOP using VoidEngine v1.742.0.108 Content v492 - D3D12 2021_10_15 23_25_08.png</strong> (449.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 23:50 上传
+
+
+*****
+
+####  矢量路比  
+##### 662#       发表于 2021-10-15 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53141427&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-10-15 22:45</a>
+
+这个好像是烟花人那个存放烟花的地方吧，你去找线索，找到一个找他小弟的任务链就可以，然后把五个电箱全 ...</blockquote>
+是上城那个工坊会爆炸的烟花人吗？
+
+
+*****
+
+####  Niyah  
+##### 663#       发表于 2021-10-15 23:55
+
+
+情侣直接连接用狙爆头，还能解锁个成就
+
+
