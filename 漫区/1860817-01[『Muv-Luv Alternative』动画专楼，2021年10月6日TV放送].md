@@ -16790,3 +16790,16 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至还可能给抹布带来负面效应
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1155#       发表于 2021-10-15 15:29
+
+
+原作游戏的动画我记得吉成钢是出了大力的吧
+
+不知道tva能不能看到钢哥（做梦）
+
+

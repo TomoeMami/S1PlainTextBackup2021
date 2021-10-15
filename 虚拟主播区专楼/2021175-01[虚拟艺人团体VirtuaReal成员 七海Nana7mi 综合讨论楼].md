@@ -3413,3 +3413,25 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 前面我忘了，麻木的像一具尸体！
 
 
+
+
+*****
+
+####  喝水的  
+##### 265#       发表于 2021-10-15 15:23
+
+
+阿B加个手动关闭sc功能的页面用不了三天吧
+
+
+*****
+
+####  本间日阳  
+##### 266#       发表于 2021-10-15 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53134624&amp;ptid=2021175" target="_blank">喝水的 发表于 2021-10-15 15:23</a>
+阿B加个手动关闭sc功能的页面用不了三天吧</blockquote>
+陈睿不会傻到开一个可以减少自己收入的功能的
+
+
