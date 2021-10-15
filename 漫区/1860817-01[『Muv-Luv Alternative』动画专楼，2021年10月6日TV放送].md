@@ -16803,3 +16803,36 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 不知道tva能不能看到钢哥（做梦）
 
 
+
+
+*****
+
+####  亚尔古水手  
+##### 1156#       发表于 2021-10-15 15:45
+
+
+只想看打beta，其他无关心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然冥夜老婆的镜头还是很重要的
+好想看最终武云龙炮打秀琴的画面啊
+
+
+*****
+
+####  nervpp  
+##### 1157#       发表于 2021-10-15 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53134913&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2021-10-15 15:45</a>
+
+只想看打beta，其他无关心
+
+当然冥夜老婆的镜头还是很重要的
+
+好想看最终武云龙炮打秀琴的画面啊</blockquote>
+那段放原片就行了……现在这个制作水准，肯定要拉跨
+
+
+第二话模仿原作敬礼那段直接把我整笑了。
+
+

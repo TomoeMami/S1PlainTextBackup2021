@@ -4301,3 +4301,31 @@ cp0一直都在吧，估计是想渔翁得利？
 有大将战斗力也不奇怪，当初也是被称为CP的天才，他能够直接跟狗子正面说话就证明了身份和实力了。
 
 
+
+
+*****
+
+####  少年包工头  
+##### 55812#       发表于 2021-10-15 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53134337&amp;ptid=98922" target="_blank">武男 发表于 2021-10-15 15:03</a>
+
+有大将战斗力也不奇怪，当初也是被称为CP的天才，他能够直接跟狗子正面说话就证明了身份和实力了。 ...</blockquote>
+对啊 说不定萨波都被路奇干掉了，怎么就成了不自量力了呢
+
+
+*****
+
+####  武男  
+##### 55813#       发表于 2021-10-15 15:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53135055&amp;ptid=98922" target="_blank">少年包工头 发表于 2021-10-15 15:56</a>
+
+对啊 说不定萨波都被路奇干掉了，怎么就成了不自量力了呢</blockquote>
+萨波应该是被藤虎干的，不然他也太磨洋工了，不过CP作为提到的直属势力。里面的顶尖战斗力必定不会比海军差。
+
+而且如果不趁乱下手，以后就很难找机会了。
+
+
