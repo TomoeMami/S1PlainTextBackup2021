@@ -7663,3 +7663,17 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 以故事角度来说，赛事只要求有一点 RAP 元素，那既然 Live 的 RAP 被赛方接纳，基于星团只有堇一人能好好 RAP，那自然是把 RAP 的时间压至最少，否则便只能由堇一人 Solo，或冒险让其余人也 RAP 结果被其他队伍比下去的可能性。
 
 
+
+
+*****
+
+####  星降る森  
+##### 2108#       发表于 2021-10-15 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53130160&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-15 10:18</a>
+
+没，我说的是上面那个nonfiction，太像了让人怀疑至少是不是借鉴了</blockquote>
+明显是粉丝设计吧，现实里应该没这店，土/木星是平安名的标志，摩天轮是歌背景
+
+
