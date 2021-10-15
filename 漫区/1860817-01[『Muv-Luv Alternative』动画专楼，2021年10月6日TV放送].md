@@ -16743,3 +16743,20 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 这部第二集这画面质量，配音水平……真是不行啊，剧情方面原来男主设定是魂穿平行世界这种吗，以前真不知道。这部是能做结局吗
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1152#       发表于 2021-10-15 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53122140&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-10-14 18:50</a>
+人人都吃合成食品的世界里狐狸能喝上25年陈的威士忌，这得是什么级别的权贵啊 ...</blockquote>
+推特上有人问，击震，不知火，海神都有名酒了，那武御雷会有吗？
+
+吉宗钢纪还回了说我们打算出一款<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
