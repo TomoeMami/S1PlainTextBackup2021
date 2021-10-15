@@ -8063,3 +8063,81 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 2021-10-15 21:52 上传
 
 
+
+
+*****
+
+####  moimoi  
+##### 652#       发表于 2021-10-15 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53140732&amp;ptid=1972138" target="_blank">矢量路比 发表于 2021-10-15 21:52</a>
+
+想问一下这个卡尔湾的屋子可以通过某种方式进去吗？我今天在大概这个位置移动镜头的时候发现有一个「门 打 ...</blockquote>
+可以拉远点截图吗？太近了摸不清是哪里
+
+
+*****
+
+####  supergilaboy  
+##### 653#       发表于 2021-10-15 22:29
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/222833fpzkvf75urwoop5r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (106.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 22:28 上传
+
+
+纪念一下昨天达成的全成就吧，然后今天出补丁。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moimoi  
+##### 654#       发表于 2021-10-15 22:32
+
+
+<blockquote>alter_ego_ 发表于 2021-10-15 21:43
+我是用卡尔尼希斯石板，一个后拉两小情人直接掉进水里，没有触发灌水。 ...</blockquote>
+我想捡尸，看来是没法子了，只能打完赶紧走
+
+
+*****
+
+####  supergilaboy  
+##### 655#       发表于 2021-10-15 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53140297&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-15 21:24</a>
+
+菲娅你个臭屁娘！！！！怎么走哪都自毁啊！！！我9万的残量啊，初见杀了不起啊！ ...</blockquote>
+基地可以靠潜行直接去刺杀肥鸭的
+
+
+*****
+
+####  moimoi  
+##### 656#       发表于 2021-10-15 22:32
+
+
+<blockquote>supergilaboy 发表于 2021-10-15 22:32
+基地可以靠潜行直接去刺杀肥鸭的</blockquote>
+只要菲娅没反应过来就可以是吗？好，下次不和菲娅火拼了
+
+
+*****
+
+####  vacuumsword  
+##### 657#       发表于 2021-10-15 22:35
+
+
+基地有个方法是去车库里某辆车下面捡个阀门曲柄，然后传送去菲亚房间顶上打开天窗，潜行进去暗杀。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
