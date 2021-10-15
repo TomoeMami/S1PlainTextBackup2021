@@ -7388,3 +7388,86 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  saglork  
+##### 2092#       发表于 2021-10-15 09:33
+
+
+这种关注度不是啥好事，后边角色和声优本身都会被显微镜盯着看，现在关于乳化是满身g点，什么时候意外碰到想不到的方面那就是一波舆论带走了，从安全角度要么不带任何和中国沾边的要素，要么就尽量低调一点
+
+
+*****
+
+####  D麦林  
+##### 2093#       发表于 2021-10-15 09:36
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/093426yhleh6hhliferxfn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FBE2lzWVQAQvsgH.jpg</strong> (68.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 09:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/093426w68pp86oiuqnzwop.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FBE2lzIVgAIa5fd.jpg</strong> (64.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 09:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/093425qrzjjbuuqqt7dbb2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FBE2lzGUUAI47hW.jpg</strong> (70.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 09:34 上传
+
+
+“传闻店里有现役学园偶像的在表参道的店”
+
+（这标志和字体还真挺有内味的
+
+（本来想发隔壁专楼的 但是感觉有点不合适 还是发这里吧
+
+作者
+
+<img src="https://img.saraba1st.com/forum/202110/15/093451shz1c6ecscicyrrr.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20211015093415.png</strong> (15.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 09:34 上传
+
+
+*****
+
+####  kbtit  
+##### 2094#       发表于 2021-10-15 09:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">领事馆还好，要是大使馆就麻烦了
+
+
+*****
+
+####  中野四葉  
+##### 2095#       发表于 2021-10-15 09:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">不会又是没征得同意直接抄了吧
+
+
