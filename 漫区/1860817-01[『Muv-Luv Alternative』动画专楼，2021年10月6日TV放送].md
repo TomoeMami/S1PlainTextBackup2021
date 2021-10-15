@@ -16836,3 +16836,18 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 第二话模仿原作敬礼那段直接把我整笑了。
 
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 1158#       发表于 2021-10-15 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53128386&amp;ptid=1860817" target="_blank">sauron.j 发表于 2021-10-15 03:09</a>
+gal改改编成能动的样子后，画面演出竟然还不如原作，也就muv了吧</blockquote>
+了解一下 青空下的约定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
