@@ -284,7 +284,7 @@
     "title": "[20.04『数码宝贝：』专楼 数码兽大冒险20周年纪念重启作]",
     "lastedit": 1633039666,
     "category": "漫区专楼",
-    "active": true,
+    "active": false,
     "newtitle": "[20.04『数码宝贝：』专楼 数码兽大冒险20周年纪念重启作]"
   },
   "1922178": {
@@ -440,9 +440,9 @@
     "newtitle": "[机战30发布会讨论贴]"
   },
   "2014516": {
-    "totalreply": 27346,
+    "totalreply": 27347,
     "title": "[原神（多平台）攻略讨论专楼#3（禁止新开讨论）]",
-    "lastedit": 1634335631,
+    "lastedit": 1634336821,
     "category": "手游专楼",
     "active": true,
     "newtitle": "[原神（多平台）攻略讨论专楼#3（禁止新开讨论）]"
@@ -1103,14 +1103,6 @@
     "category": "外野",
     "active": true
   },
-  "2026160": {
-    "totalreply": 96,
-    "title": "[博士惨被绿，虽然很惨，但太搞笑了]",
-    "newtitle": "[博士惨被绿，虽然很惨，但太搞笑了]",
-    "lastedit": 1631743832,
-    "category": "外野",
-    "active": false
-  },
   "2026252": {
     "totalreply": 241,
     "title": "[英伟达NVIDIA GeForce Now泄露了将登陆PC的PS独占游戏]",
@@ -1181,14 +1173,6 @@
     "newtitle": "[突然想到以前关于律师的争论，律师该不该全力为罪犯辩护]",
     "lastedit": 1631842196,
     "category": "外野",
-    "active": false
-  },
-  "2026269": {
-    "totalreply": 71,
-    "title": "[文本比较搞笑的游戏]",
-    "newtitle": "[文本比较搞笑的游戏]",
-    "lastedit": 1631743514,
-    "category": "游戏区",
     "active": false
   },
   "2026400": {
@@ -1501,14 +1485,6 @@
     "newtitle": "[修正资本主义：日本如何面对社会停滞与不公]",
     "lastedit": 1631843446,
     "category": "外野",
-    "active": false
-  },
-  "2026462": {
-    "totalreply": 61,
-    "title": "[破晓传说——我服了，这尼玛还是真传统日式（剧透]",
-    "newtitle": "[破晓传说——我服了，这尼玛还是真传统日式（剧透]",
-    "lastedit": 1631743539,
-    "category": "游戏区",
     "active": false
   },
   "2023997": {
@@ -5989,7 +5965,7 @@
     "newtitle": "[喜 迎 国 庆 加 班]",
     "lastedit": 1633039509,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2029537": {
     "totalreply": 331,
@@ -8520,10 +8496,10 @@
     "active": true
   },
   "2031346": {
-    "totalreply": 352,
+    "totalreply": 353,
     "title": "[原来周星驰欠了这么多钱！？]",
     "newtitle": "[原来周星驰欠了这么多钱！？]",
-    "lastedit": 1634318844,
+    "lastedit": 1634336806,
     "category": "外野",
     "active": true
   },
@@ -9696,10 +9672,10 @@
     "active": true
   },
   "2032004": {
-    "totalreply": 225,
+    "totalreply": 226,
     "title": "[宁波老猎人要转型]",
     "newtitle": "[宁波老猎人要转型]",
-    "lastedit": 1634335439,
+    "lastedit": 1634336817,
     "category": "游戏区",
     "active": true
   },
@@ -9736,10 +9712,10 @@
     "active": true
   },
   "2032017": {
-    "totalreply": 146,
+    "totalreply": 148,
     "title": "[身边还是有不少人觉得国外的空气比国内好]",
     "newtitle": "[身边还是有不少人觉得国外的空气比国内好]",
-    "lastedit": 1634335441,
+    "lastedit": 1634336757,
     "category": "外野",
     "active": true
   },
@@ -10080,10 +10056,10 @@
     "active": true
   },
   "2032158": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[公务员不光扩招，还要涨工资]",
     "newtitle": "[公务员不光扩招，还要涨工资]",
-    "lastedit": 1634319854,
+    "lastedit": 1634336649,
     "category": "外野",
     "active": true
   },
