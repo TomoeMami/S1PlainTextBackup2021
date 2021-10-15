@@ -1841,3 +1841,27 @@ syl，hnn当然知道自己人气的最大依仗啊（不如说我一直觉得�
 王？<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7632#       发表于 2021-10-15 16:43
+
+
+郡郡居然转了nrk的3D推？
+省一楼，又有雀魂打麻大会了，人选几乎全是郡熟人，
+
+▼MC ※敬称略、順不同
+進行：#綱川隆晃
+解説：#多井隆晴
+
+▼出場者様一覧※敬称略、順不同
+#天開司 ＆ #伊東ライフ
+#郡道美玲 ＆ #因幡はねる
+#ルイス・キャミー ＆ #天宮こころ
+#舞元啓介 ＆ #北小路ヒスイ
+
+咋说呢，实力差过于明显，真的不知道怎么赢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，郡就以郡東つねる的快乐心态上吧
+
+
