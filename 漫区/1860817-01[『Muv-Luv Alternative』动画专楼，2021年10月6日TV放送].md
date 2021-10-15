@@ -16775,3 +16775,18 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  alucardcz  
+##### 1154#       发表于 2021-10-15 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53134301&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-15 14:59</a>
+
+吉宗钢纪透露原作游戏里的动画部分，当时花了两千万日元。（虽然时长全部加起来不到十分钟……）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在看来他这么做可能真的是。。无意义
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至还可能给抹布带来负面效应
+
+
