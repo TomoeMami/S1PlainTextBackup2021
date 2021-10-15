@@ -16760,3 +16760,18 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1153#       发表于 2021-10-15 14:59
+
+
+吉宗钢纪透露原作游戏里的动画部分，当时花了两千万日元。（虽然时长全部加起来不到十分钟……）
+
+<img src="https://p.sda1.dev/2/762d7c0c3988e6ddb966ec535c98f3aa/IMG_CMP_115422813.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
