@@ -7969,3 +7969,16 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 今天一上线11g更新吓到我了，堪比2077的更新体积，可恶，没一小时根本玩不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  vacuumsword  
+##### 645#       发表于 2021-10-15 19:33
+
+
+求问放水淹死情侣后有办法捡他们的装备么？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

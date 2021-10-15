@@ -7806,3 +7806,26 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 口水巾<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 2121#       发表于 2021-10-15 19:34
+
+
+……鲤鱼可以尝试一下其他穿衣风格……明明脸和身材都可以…………不过经常看到她都穿以前的衣服…………貌似还挺节俭的？
+
+
+*****
+
+####  cqc1021  
+##### 2122#       发表于 2021-10-15 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53137826&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-15 18:40</a></blockquote>
+本体归位
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
