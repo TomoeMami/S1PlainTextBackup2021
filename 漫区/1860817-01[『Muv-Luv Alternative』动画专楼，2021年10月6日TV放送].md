@@ -16878,3 +16878,20 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 原作游戏的bgm，能够明显感知到军旅和战场的紧迫感，或者浓浓的昭和气息
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1161#       发表于 2021-10-16 03:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53137939&amp;ptid=1860817" target="_blank">拍不到脑袋 发表于 2021-10-15 18:51</a>
+
+了解一下 青空下的约定
+
+
+—— 来自 S1Fun</blockquote>
+说起来，还有 夜明前的琉璃色
+
+
