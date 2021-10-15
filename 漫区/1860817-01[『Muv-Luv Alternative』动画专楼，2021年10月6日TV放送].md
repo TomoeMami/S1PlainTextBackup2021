@@ -16851,3 +16851,16 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  alucardcz  
+##### 1159#       发表于 2021-10-15 20:15
+
+
+ 本帖最后由 alucardcz 于 2021-10-15 20:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">哎　越看越气　本来我是觉得换ｃｖ那就换吧　毕竟几个老牌可能现在也请不动了　　可你好歹选个正常的啊
+
+
