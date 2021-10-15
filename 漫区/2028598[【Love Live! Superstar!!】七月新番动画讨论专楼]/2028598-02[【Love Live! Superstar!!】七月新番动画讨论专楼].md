@@ -7726,3 +7726,39 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 应该是eplus吧 水和虹都是这样 价格肯定便宜不了的 不知道鲤鱼生日那场live有没有 就打算买这场了
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2114#       发表于 2021-10-15 18:25
+
+
+问下水虹那些线上live大概多少钱，好有个底
+
+
+*****
+
+####  a92063256  
+##### 2115#       发表于 2021-10-15 18:31
+
+
+之前少歌#3在eplus上是一场330<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">还是有点小贵的
+
+
+*****
+
+####  优妮可  
+##### 2116#       发表于 2021-10-15 18:40
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/183955fjm72z7yawkok7uj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211015_181543.jpg</strong> (309.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 18:39 上传
+
+
