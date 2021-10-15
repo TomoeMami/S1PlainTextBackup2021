@@ -7648,3 +7648,18 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 日本动画中让一个中国人带动全队是真的很罕见，虽然表面上香音是队长，但谁也能看到她是被推着走。
 
 
+
+
+*****
+
+####  Gooddays  
+##### 2107#       发表于 2021-10-15 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53126367&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-14 23:33</a>
+鬼才啊，铺垫了一集rap结果没把rap做进live里，方便卖吗）  不过这歌真好听</blockquote>
+动画中的 Live 一般只有一分锺至两分锺，放太多 RAP 会影响整个 Live 吧。
+
+以故事角度来说，赛事只要求有一点 RAP 元素，那既然 Live 的 RAP 被赛方接纳，基于星团只有堇一人能好好 RAP，那自然是把 RAP 的时间压至最少，否则便只能由堇一人 Solo，或冒险让其余人也 RAP 结果被其他队伍比下去的可能性。
+
+
