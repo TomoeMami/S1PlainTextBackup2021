@@ -7488,3 +7488,67 @@ B站上的ノンフィクション!!貌似已经被删了，油管的还存活
 没有那么可怕吧而且就改生日这事 说明这次运营肯定要么有自己人要么有懂行的 我觉得相对安全吧
 
 
+
+
+*****
+
+####  优妮可  
+##### 2097#       发表于 2021-10-15 10:14
+
+
+追星团这一年多不少时间确实是担惊受怕度过的。
+
+
+*****
+
+####  chenflyyy  
+##### 2098#       发表于 2021-10-15 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53129701&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-15 09:43</a>
+不会又是没征得同意直接抄了吧</blockquote>
+这个倒是没有<img src="https://p.sda1.dev/2/f22fbeb1539675f2fc40d017c9eaedc5/IMG_CMP_261303081.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 2099#       发表于 2021-10-15 10:17
+
+
+<img src="https://img.saraba1st.com/forum/202110/15/101741xp1v66vm2qqniwbn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6utp44nh1cwbm7nbrlvvt1iyv.jpg</strong> (481.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-15 10:17 上传
+
+
+等一个千酱
+
+
+*****
+
+####  中野四葉  
+##### 2100#       发表于 2021-10-15 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53130126&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-15 10:15</a>
+
+这个倒是没有</blockquote>
+没，我说的是上面那个nonfiction，太像了让人怀疑至少是不是借鉴了
+
+
+
+
+*****
+
+####  钱君  
+##### 2101#       发表于 2021-10-15 10:19
+
+
+阪领你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
