@@ -8035,3 +8035,20 @@ Op Ed那场活动live切片没少删啊
 梗百科那个评论区还在吵狮子那破事
 
 
+
+
+*****
+
+####  反正我改名  
+##### 2137#       发表于 2021-10-16 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53105131&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-13 15:42</a>
+
+不愧是四大名著之星游记，虽然都是往西天去，但是队伍心不齐。
+
+
+所以说我们的缝合怪吴花田老师还要在这个企 ...</blockquote>
+讲道理，西游记里面对于F4内部矛盾线到最后团结拧成一股绳的描写，再看星团讲团体忘了个人，讲个人忘了团体，花田何德何能碰瓷啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
