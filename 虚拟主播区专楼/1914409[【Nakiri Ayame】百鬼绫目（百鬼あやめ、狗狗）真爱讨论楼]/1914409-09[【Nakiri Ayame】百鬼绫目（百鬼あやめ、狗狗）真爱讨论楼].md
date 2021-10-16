@@ -15458,3 +15458,14 @@ DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DFM要赢历史上第一把了好吧
 
 
+
+
+*****
+
+####  因为你不会  
+##### 13306#       发表于 2021-10-16 22:47
+
+
+你再说一遍？偷都不会偷，铸币dfm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

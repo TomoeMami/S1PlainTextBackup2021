@@ -9490,3 +9490,43 @@ emmmmmmm
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  2014720  
+##### 3855#       发表于 2021-10-16 22:49
+
+
+奶*子是真的就支持，无所谓男女<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 3856#       发表于 2021-10-16 22:50
+
+
+看到楼友现在言论，我决定翻回前一页欣赏各位的丑态<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔耳僵尸  
+##### 3857#       发表于 2021-10-16 22:52
+
+
+推特搜mea的时候似乎看到过这位犯病，终于滚了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十九号大侠  
+##### 3858#       发表于 2021-10-16 22:55
+
+
+为啥五元的没破防，跟兰熊玩就破防了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
