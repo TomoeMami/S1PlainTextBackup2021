@@ -9362,3 +9362,54 @@ syl 我的评价:<img src="https://static.saraba1st.com/image/smiley/face2017/06
 能不能tc哭一下啊，今晚还指望着呢<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  呓亘  
+##### 3844#       发表于 2021-10-16 22:12
+
+
+因为贴图太麻烦 我就直接复制了 以下复制自B站房导:
+
+【fafa睡觉了有吵架的也没法管、我整体说一下来龙去脉。这位粉丝算是老gachi+讨厌各种联动多次取关又回来、之前就在tc骂过很多次难听的都被mea假装生气笑笑过去了。今晚应该是累积破防了目前mea推特也锁了（刚解了）、这次录播就不传了、大家也别去找人开喷就是了。
+
+有关所谓事业民、摆烂云云我也不想指导别人怎么想、都第四个年头了、希望留下的别因为这种事再吵架或者像这样转anti跳脸就是了。】
+
+
+*****
+
+####  呓亘  
+##### 3845#       发表于 2021-10-16 22:12
+
+
+emmmmmmm
+
+
+*****
+
+####  2014720  
+##### 3846#       发表于 2021-10-16 22:14
+
+
+不爱看别看！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 3847#       发表于 2021-10-16 22:15
+
+
+天狗真是😩
+
+
+*****
+
+####  kerfars  
+##### 3848#       发表于 2021-10-16 22:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这边建议事业民多打sc多打sl呢
+
+
