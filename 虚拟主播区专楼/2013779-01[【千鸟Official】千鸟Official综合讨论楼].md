@@ -6225,3 +6225,54 @@ co宝多数时158衬衫酷盖，少数时超短裙软妹<img src="https://static
 海龟汤，400舰诈骗加钟，杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rgauss  
+##### 548#       发表于 2021-10-17 00:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156001&amp;ptid=2013779" target="_blank">袜子 发表于 2021-10-17 00:44</a>
+海龟汤，400舰诈骗加钟，杂谈文静咋repo啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是 海龟汤和加钟也能爆到400舰的么
+我记得上次跟400还是有点距离的
+
+
+*****
+
+####  lunaticfear  
+##### 549#       发表于 2021-10-17 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156059&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-10-17 00:49</a>
+
+不是 海龟汤和加钟也能爆到400舰的么
+
+我记得上次跟400还是有点距离的 ...</blockquote>
+海龟汤结束还只有370多吧，说要下了然后跟弹幕一通拉扯以后就上400了，然后再加钟
+
+
+*****
+
+####  rgauss  
+##### 550#       发表于 2021-10-17 00:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156108&amp;ptid=2013779" target="_blank">lunaticfear 发表于 2021-10-17 00:53</a>
+海龟汤结束还只有370多吧，说要下了然后跟弹幕一通拉扯以后就上400了，然后再加钟 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那拉扯过程一定很精彩 明天看下回放
+
+
+*****
+
+####  lunaticfear  
+##### 551#       发表于 2021-10-17 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156146&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-10-17 00:58</a>
+
+那拉扯过程一定很精彩 明天看下回放</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实还挺普通的，就说370差得挺多的，等390再耐久，结果就一路涨上去了
+
+
