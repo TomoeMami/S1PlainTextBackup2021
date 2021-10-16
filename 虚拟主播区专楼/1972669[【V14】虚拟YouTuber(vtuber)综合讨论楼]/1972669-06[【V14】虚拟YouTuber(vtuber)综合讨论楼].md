@@ -1985,3 +1985,42 @@ pakael rpr hnn，多少有点神奇的组合<img src="https://static.saraba1st.c
 [https://youtu.be/CrLF2srZHa8](https://youtu.be/CrLF2srZHa8)
 
 
+
+
+*****
+
+####  天天座理世  
+##### 7642#       发表于 2021-10-16 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53127602&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-15 01:09</a>
+
+这次露露没有差点说漏嘴了
+
+直接"おつるるでした"了
+
+属实工伤</blockquote>
+hnn这皮就是很典型的宅圈公主风
+
+
+*****
+
+####  rzrbtk  
+##### 7643#       发表于 2021-10-16 11:01
+
+
+一年前，
+王子：「募集想让我和成濑一起唱的歌」
+gbr：「ロメオ求求求我什么都会做的」
+王子：「什么都会做好好笑啊」
+gbr：「春崎エアル、俺は本気だぞ。」
+
+
+一年后，
+
+【HoneyWorks 】ロメオ/Re:iZ(春崎エアル×成瀬鳴)【歌ってみた】 
+youtu.be/h9HDqe2xyK0
+
+啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">！！！
+
+
