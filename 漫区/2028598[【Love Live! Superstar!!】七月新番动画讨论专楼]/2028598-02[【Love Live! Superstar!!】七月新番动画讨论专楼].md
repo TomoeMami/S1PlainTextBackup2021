@@ -8052,3 +8052,17 @@ Op Ed那场活动live切片没少删啊
 讲道理，西游记里面对于F4内部矛盾线到最后团结拧成一股绳的描写，再看星团讲团体忘了个人，讲个人忘了团体，花田何德何能碰瓷啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 2138#       发表于 2021-10-16 15:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53147837&amp;ptid=2028598" target="_blank">反正我改名 发表于 2021-10-16 15:03</a>
+
+讲道理，西游记里面对于F4内部矛盾线到最后团结拧成一股绳的描写，再看星团讲团体忘了个人，讲个人忘了团 ...</blockquote>
+花田：给我52集每集40分钟，我也能写。
+
+
