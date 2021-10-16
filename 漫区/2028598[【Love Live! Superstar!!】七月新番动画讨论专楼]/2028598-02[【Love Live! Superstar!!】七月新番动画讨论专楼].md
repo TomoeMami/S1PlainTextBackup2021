@@ -8591,3 +8591,37 @@ e+看live的时候需要挂代理吗？购票的时候发现有点卡
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 2185#       发表于 2021-10-17 02:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53154595&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-16 22:57</a>
+这次星团会不会有两个剧场版？ 第一季之后会有一个剧场版插在第二季之前 要不真后年才出TV两季那间隔时间太 ...</blockquote>
+不可能，做一部剧场版和做一季动画耗费的资源和时间是差不多的，如果硬在两年之间插一部剧场版，就意味着动画团队要为同个项目连续开工一年以上。这是以前50集年番的做法，现在的业界不可能这么做的
+
+
+*****
+
+####  secretgarnet  
+##### 2186#       发表于 2021-10-17 02:35
+
+
+nako，我的超人！这顿可香断头饭我能回味到星二期开播<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 2187#       发表于 2021-10-17 02:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53150761&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-16 18:56</a>
+跨年主题歌的三团试听版跟水版貌似没啥区别…………大概是我分辨不出前辈团的声音…… ...</blockquote>
+应该是独唱是分Part的 正好APart都分给水水了
+起码合唱版的齐唱部分明显比另外三版要热闹得多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

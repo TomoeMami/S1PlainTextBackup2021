@@ -17978,3 +17978,17 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 看到会动的C呆了，太好了，明年什么时候到啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  holyblood  
+##### 83993#       发表于 2021-10-17 04:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103670&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-13 13:57</a>
+
+无氪非洲人一向是2宝就满足了.....摩根那个是不可复制的意外</blockquote>
+假非洲人，真非洲都是能抽中一张就行了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
