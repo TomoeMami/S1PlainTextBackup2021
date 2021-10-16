@@ -6110,3 +6110,29 @@ co宝多数时158衬衫酷盖，少数时超短裙软妹<img src="https://static
 真的不适合打游戏，没人看+没人打钱。
 
 
+
+
+*****
+
+####  聪明墨菲特  
+##### 538#       发表于 2021-10-16 15:20
+
+
+那个404是文静真人吗，有没有懂哥说一下
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  GAKOTO  
+##### 539#         楼主| 发表于 2021-10-16 15:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53147986&amp;ptid=2013779" target="_blank">聪明墨菲特 发表于 2021-10-16 15:20</a>
+那个404是文静真人吗，有没有懂哥说一下
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+1.0的文静中之人，现在是2.0
+
+
