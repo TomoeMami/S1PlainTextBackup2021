@@ -8576,3 +8576,18 @@ e+看live的时候需要挂代理吗？购票的时候发现有点卡
 前面有人在楼里也问有没有群，我都推荐了NO.10字幕组的群，基本90%的时间都在聊LL，非常本质
 
 
+
+
+*****
+
+####  qratosone  
+##### 2184#       发表于 2021-10-17 01:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53154595&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-16 22:57</a>
+这次星团会不会有两个剧场版？ 第一季之后会有一个剧场版插在第二季之前 要不真后年才出TV两季那间隔时间太 ...</blockquote>
+疫情期间很难取景
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
