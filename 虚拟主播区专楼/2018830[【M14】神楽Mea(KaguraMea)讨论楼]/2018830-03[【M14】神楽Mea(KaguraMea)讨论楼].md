@@ -9212,3 +9212,153 @@ syl 我的评价:<img src="https://static.saraba1st.com/image/smiley/face2017/06
 只能说是过去撑场子的
 
 
+
+
+*****
+
+####  肥到终点  
+##### 3828#       发表于 2021-10-16 21:44
+
+
+说起FPS游戏，以前不是经常玩吗，还在活动里爆了（差点？）青猫的头吗？
+
+怎么看你们讲，好像水平不咋地啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3829#       发表于 2021-10-16 21:46
+
+
+看不到人的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 3830#       发表于 2021-10-16 21:46
+
+
+有瞄准，但没意识和走位 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 3831#       发表于 2021-10-16 21:47
+
+
+旅游模拟器
+
+
+*****
+
+####  时间在我手中  
+##### 3832#       发表于 2021-10-16 21:48
+
+
+这人打枪准度凑合，但是身法走位道具只能哈哈了
+
+
+*****
+
+####  2014720  
+##### 3833#       发表于 2021-10-16 21:48
+
+
+别说以前pubg了，你把她去年今年仅有的几次apex看看就懂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 3834#       发表于 2021-10-16 21:48
+
+
+爆aim君的头其实是神经刀，那么多绝地求生回以及apex回看过的也都基本知道她的fps水平了
+
+
+*****
+
+####  肥到终点  
+##### 3835#       发表于 2021-10-16 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这么一讲，自动炮塔是吧
+
+
+*****
+
+####  雪风utopia  
+##### 3836#       发表于 2021-10-16 21:48
+
+
+田忌水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3837#       发表于 2021-10-16 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她平时又不怎么玩FPS，就搁那脑死101
+
+
+*****
+
+####  Rem-清曲  
+##### 3838#       发表于 2021-10-16 21:50
+
+
+有没有参数借主播用一下啊    <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aisakahammer  
+##### 3839#       发表于 2021-10-16 21:51
+
+
+  又看到快乐的事 舒服
+
+
+*****
+
+####  yywzjsw  
+##### 3840#       发表于 2021-10-16 21:56
+
+
+不开台，那么多人，声音都可能听不到
+
+
+
+
+*****
+
+####  Rem-清曲  
+##### 3841#       发表于 2021-10-16 21:56
+
+
+不会凌晨开个播奖励粉丝8    <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3842#       发表于 2021-10-16 21:57
+
+
+当然是队友频道
+
+
+*****
+
+####  雪风utopia  
+##### 3843#       发表于 2021-10-16 21:57
+
+
+能不能tc哭一下啊，今晚还指望着呢<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
