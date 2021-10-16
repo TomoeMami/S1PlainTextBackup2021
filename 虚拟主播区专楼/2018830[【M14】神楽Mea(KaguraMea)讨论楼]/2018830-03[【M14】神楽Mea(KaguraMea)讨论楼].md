@@ -8844,3 +8844,211 @@ V8蛆滚出去，发你的V8玩去<img src="https://static.saraba1st.com/image/s
 哭个屁，打把游戏就能被野男人哄好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yywzjsw  
+##### 3791#       发表于 2021-10-16 21:02
+
+
+我也只看你麻直播，联动偶尔看(ಡωಡ) 
+
+
+*****
+
+####  雪风utopia  
+##### 3792#       发表于 2021-10-16 21:02
+
+
+想看打游戏，明明很期待明天的联动<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3793#       发表于 2021-10-16 21:02
+
+
+明天不就是郊游，能开台就是最棒的了
+
+
+*****
+
+####  古战场亡魂  
+##### 3794#       发表于 2021-10-16 21:02
+
+
+这就破防的话，只能说mea真的是在逆生长啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 3795#       发表于 2021-10-16 21:04
+
+
+老粉回踩你麻破防很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+等喽
+
+
+*****
+
+####  时间在我手中  
+##### 3796#       发表于 2021-10-16 21:05
+
+
+这人好几年老粉丝了
+
+吊人不破防反而奇怪
+
+等推特解锁估计心情会好不少
+
+
+*****
+
+####  路人庚  
+##### 3797#       发表于 2021-10-16 21:06
+
+
+其实还是老一套，被自以为还是粉的背刺了，跟之前催她搞b限的那些个老观众差不多水平
+
+
+*****
+
+####  专业划水人员  
+##### 3798#       发表于 2021-10-16 21:06
+
+
+ 本帖最后由 专业划水人员 于 2021-10-16 21:13 编辑 
+
+老粉越走越多，剩下的也疯了一半。。。。小麻命苦啊
+
+
+*****
+
+####  2014720  
+##### 3799#       发表于 2021-10-16 21:07
+
+
+怎么搞的你麻穷途末路了一样，最近数据还回暖了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 3800#       发表于 2021-10-16 21:09
+
+
+最近还回暖不少呢，谁知道怎么回事呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 3801#       发表于 2021-10-16 21:10
+
+
+联动多了呗
+
+
+*****
+
+####  Klience  
+##### 3802#       发表于 2021-10-16 21:10
+
+
+ 本帖最后由 Klience 于 2021-10-16 21:12 编辑 
+
+她搞B限不也是歌会 和平时都差不多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 3803#       发表于 2021-10-16 21:11
+
+
+我的评价是：<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 3804#       发表于 2021-10-16 21:13
+
+
+还真是什么V什么粉<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+粉丝发现主播不符合自己内心期望形象破防
+主播发现粉丝不是自己想象的看自己那种态度而破防
+
+
+*****
+
+####  Rem-清曲  
+##### 3805#       发表于 2021-10-16 21:15
+
+
+那人竟然是女粉吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3806#       发表于 2021-10-16 21:16
+
+
+老粉脱粉回踩还跳脸这估计大破防了，其实我还挺喜欢看她到处联动的..
+
+
+*****
+
+####  肥到终点  
+##### 3807#       发表于 2021-10-16 21:17
+
+
+JP女粉的话，倒是情有可原
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 3808#       发表于 2021-10-16 21:18
+
+
+jp女粉不会也讨厌五元吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 3809#       发表于 2021-10-16 21:18
+
+
+喜欢到处联动，但自己台就。。。
+
+syl 我的评价:<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 3810#       发表于 2021-10-16 21:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">高价回收心碎女粉
+
+
+
+
+*****
+
+####  路人庚  
+##### 3811#       发表于 2021-10-16 21:19
+
+
+其实是男的，去翻翻他前面几个月的推就知道了
+
+
