@@ -8625,3 +8625,222 @@ nia
 人的一生就处在对抗当中啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 3773#       发表于 2021-10-16 20:43
+
+
+<img src="https://img.saraba1st.com/forum/202110/16/204245ewx00t5mx767a5al.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (1.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-16 20:42 上传
+
+
+*****
+
+####  肥到终点  
+##### 3774#       发表于 2021-10-16 20:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">联动破防
+
+什么泥bro亚种啊
+
+
+*****
+
+####  雪风utopia  
+##### 3775#       发表于 2021-10-16 20:43
+
+
+主播破大防了，能不能来个《可爱小咩啊》呢，哭哭上播gkd<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3776#       发表于 2021-10-16 20:45
+
+
+V8蛆滚出去，发你的V8玩去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 3777#       发表于 2021-10-16 20:46
+
+
+谁没个破防的时候呢，算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+粉丝会破防，你麻也会破防啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 3778#       发表于 2021-10-16 20:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说新冠加速加了一帮贵物出来了
+
+
+*****
+
+####  肥到终点  
+##### 3779#       发表于 2021-10-16 20:49
+
+
+不是，和绿熊多玩了一会狼人杀怎么就能破防了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+难道还能因为和里面谁谁谁多说了几句话发疯的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3780#       发表于 2021-10-16 20:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找个借口罢了
+
+
+
+
+*****
+
+####  2014720  
+##### 3781#       发表于 2021-10-16 20:52
+
+
+感情需要人接班 接近换来期望，期望带来失望的恶性循环。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+短暂的总是浪漫 漫长总会不满，烧完美好青春换一个老伴。 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 3782#       发表于 2021-10-16 20:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">独角兽的小心心受不了主播跟男人说话，哭哭哦
+
+
+跟绿熊联动中的野男人说话
+
+↓
+
+自己的直播预定推迟再推迟
+
+↓
+
+喜欢跟野男人说话不喜欢自己播
+
+↓
+
+主播就是喜欢野男人啦不要我啦
+
+↓
+
+我要anti我要跳脸
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3783#       发表于 2021-10-16 20:52
+
+
+很简单
+
+
+因为这个人是不喜欢看联动，基本只看你麻单人的那种
+
+
+就这么简单而已
+
+
+*****
+
+####  雪风utopia  
+##### 3784#       发表于 2021-10-16 20:54
+
+
+主播破大防，happy<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 3785#       发表于 2021-10-16 20:54
+
+
+你楼某些贵物也差不多，看个直播能看出老伴，虚拟现实提前步入百姓家了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 3786#       发表于 2021-10-16 20:55
+
+
+不过说回来，你搞得我没直播看就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+给麻麻打个sl去<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3787#       发表于 2021-10-16 20:56
+
+
+看直播能套入伴侣的
+
+
+我建议先把自己remake
+
+
+还有，需要我找一下45送你们两个弱智V8群的脑瘫蛆滚出这里不？
+
+
+*****
+
+####  藤宮はすみ  
+##### 3788#       发表于 2021-10-16 20:57
+
+
+看到破防来你楼看一眼，原来是这个人啊
+
+
+我印象中怎么记得这个人早就疯了来着
+
+
+*****
+
+####  雪风utopia  
+##### 3789#       发表于 2021-10-16 20:59
+
+
+开tc哭哭，上播哭哭<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 3790#       发表于 2021-10-16 21:00
+
+
+哭个屁，打把游戏就能被野男人哄好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

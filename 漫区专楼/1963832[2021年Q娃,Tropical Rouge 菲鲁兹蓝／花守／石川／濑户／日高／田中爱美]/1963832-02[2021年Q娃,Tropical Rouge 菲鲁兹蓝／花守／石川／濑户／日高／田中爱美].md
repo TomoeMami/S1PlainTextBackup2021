@@ -10008,3 +10008,21 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 以上剧透
 
 
+
+
+*****
+
+####  Blackson  
+##### 2223#       发表于 2021-10-16 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53087874&amp;ptid=1963832" target="_blank">红焖菠菜 发表于 2021-10-12 13:24</a>
+
+惨 珊瑚 惨
+
+前期还能混个女二位置，萝拉变人后地位直接坠毁</blockquote>
+这片估计压根就没女二，主角一直都是萝拉
+
+珊瑚什么的，都是路人
+
+
