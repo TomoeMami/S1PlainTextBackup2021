@@ -9530,3 +9530,73 @@ emmmmmmm
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  呓亘  
+##### 3859#       发表于 2021-10-16 23:14
+
+
+都干点别的分散下注意力吧
+
+
+*****
+
+####  呓亘  
+##### 3860#       发表于 2021-10-16 23:14
+
+
+<blockquote>十九号大侠 发表于 2021-10-16 22:55
+为啥五元的没破防，跟兰熊玩就破防了
+
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+因为联动导致她歌回迟到了
+
+
+*****
+
+####  肥到终点  
+##### 3861#       发表于 2021-10-16 23:16
+
+
+破案了，果然是盗图狗
+
+<img src="https://img.saraba1st.com/forum/202110/16/231533srh03wwaqjz3mazj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20211016231449254.jpg</strong> (111.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-16 23:15 上传
+
+
+还有一个体检表，身长181，体重67
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 3862#       发表于 2021-10-16 23:18
+
+
+反转再反转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
