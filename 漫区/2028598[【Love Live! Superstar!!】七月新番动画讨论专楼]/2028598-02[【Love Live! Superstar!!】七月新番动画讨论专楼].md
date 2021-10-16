@@ -8148,3 +8148,78 @@ live购票详细出了，还是没有国内渠道<img src="https://static.saraba
 你们说的特典是数字的还是实体的啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2147#       发表于 2021-10-16 17:06
+
+
+ 本帖最后由 秋月艾莉 于 2021-10-16 17:08 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202110/16/170552jl3hqqvt0llczau5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FBzwWlTUUAQnvvQ.jpg</strong> (129.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-16 17:05 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">马的中之人可香糖拉得满中满，窝是不会再上当的！
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">反转了，我永远爱鲨鲤鱼
+
+
+*****
+
+####  优妮可  
+##### 2148#       发表于 2021-10-16 17:10
+
+
+这张照片还是nako拍的
+
+
+*****
+
+####  chenflyyy  
+##### 2149#       发表于 2021-10-16 17:13
+
+
+e+看live的时候需要挂代理吗？购票的时候发现有点卡
+
+
+*****
+
+####  iuhehc  
+##### 2150#       发表于 2021-10-16 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53149282&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-16 17:06</a>
+马的中之人可香糖拉得满中满，窝是不会再上当的！
+
+反转了，我永远爱鲨鲤鱼
+
+ ...</blockquote>
+哇塞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  chenflyyy  
+##### 2151#       发表于 2021-10-16 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53149282&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-16 17:06</a>
+马的中之人可香糖拉得满中满，窝是不会再上当的！
+
+反转了，我永远爱鲨鲤鱼
+
+ ...</blockquote>
+谢谢nako<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
