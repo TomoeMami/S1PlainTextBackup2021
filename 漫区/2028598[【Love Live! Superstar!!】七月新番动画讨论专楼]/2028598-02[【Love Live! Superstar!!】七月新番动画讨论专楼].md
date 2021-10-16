@@ -8362,3 +8362,57 @@ e+看live的时候需要挂代理吗？购票的时候发现有点卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天便是可香人的末日
 
 
+
+
+*****
+
+####  a92063256  
+##### 2165#       发表于 2021-10-16 18:42
+
+
+可香人，隐忍！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">等下一季到可可个人回我直接可香、熱く蘇れ
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 2166#       发表于 2021-10-16 18:43
+
+
+可香在哭泣
+
+千香在狂笑
+
+
+恋，请看我最后的变身吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 2167#       发表于 2021-10-16 18:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提前发糖稳住人心搞声优盾是吧（） 看来可香已经没救了
+
+
+*****
+
+####  kbtit  
+##### 2168#       发表于 2021-10-16 18:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">官方知道你们想要什么，但就是不给，三次元磕着玩去吧
+
+
+*****
+
+####  lj205  
+##### 2169#       发表于 2021-10-16 18:56
+
+
+跨年主题歌的三团试听版跟水版貌似没啥区别…………大概是我分辨不出前辈团的声音……
+
+
