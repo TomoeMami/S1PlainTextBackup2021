@@ -9052,3 +9052,163 @@ syl 我的评价:<img src="https://static.saraba1st.com/image/smiley/face2017/06
 其实是男的，去翻翻他前面几个月的推就知道了
 
 
+
+
+*****
+
+####  草牛  
+##### 3812#       发表于 2021-10-16 21:21
+
+
+妈的，谁说是女的来着，白高兴了
+
+
+*****
+
+####  T_Hb  
+##### 3813#       发表于 2021-10-16 21:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 3814#       发表于 2021-10-16 21:23
+
+
+正义辟谣 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 3815#       发表于 2021-10-16 21:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无情击碎坛友幻想，所以能击碎坦克民的幻想吗
+
+
+*****
+
+####  Mr.shelter  
+##### 3816#       发表于 2021-10-16 21:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时雨rain  
+##### 3817#       发表于 2021-10-16 21:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又是男友粉吗
+
+
+*****
+
+####  肥到终点  
+##### 3818#       发表于 2021-10-16 21:30
+
+
+战犯：
+
+
+<img src="https://img.saraba1st.com/forum/202110/16/213021ij9mfajauatgxjag.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20211016212957644.jpg</strong> (18.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-16 21:30 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 3819#       发表于 2021-10-16 21:32
+
+
+你麻活了
+
+
+*****
+
+####  T_Hb  
+##### 3820#       发表于 2021-10-16 21:33
+
+
+明天就比赛了，她到底有没有进过游戏
+
+
+*****
+
+####  专业划水人员  
+##### 3821#       发表于 2021-10-16 21:33
+
+
+那明天战地稳了。想看别咕！
+
+
+*****
+
+####  时间在我手中  
+##### 3822#       发表于 2021-10-16 21:33
+
+
+没区别，不开台基本一样
+
+
+*****
+
+####  T_Hb  
+##### 3823#       发表于 2021-10-16 21:34
+
+
+比赛怎么会鸽，明天也就好蓝的天好绿的水，然后混一下就完事儿了
+
+
+*****
+
+####  2014720  
+##### 3824#       发表于 2021-10-16 21:34
+
+
+以她的水平，战地她这几天进不进游戏有所谓吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 3825#       发表于 2021-10-16 21:35
+
+
+是男的吧，之前我还看过他的推，感觉这人挺巨魔的，本来去年年底左右可能脱坑了，结果你咩闹了场大事他又回坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在可能是那种逗主播玩的心情
+
+
+*****
+
+####  LIPP  
+##### 3826#       发表于 2021-10-16 21:39
+
+
+战地五开台我怕杯子保不住，有没有人知道这个战地大会是怎么打，还分四人队不会是玩那个吧
+
+
+*****
+
+####  2014720  
+##### 3827#       发表于 2021-10-16 21:41
+
+
+只能说是过去撑场子的
+
+

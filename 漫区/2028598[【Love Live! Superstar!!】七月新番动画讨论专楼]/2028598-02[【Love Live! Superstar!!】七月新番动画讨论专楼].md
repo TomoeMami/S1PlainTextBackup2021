@@ -8491,3 +8491,18 @@ e+看live的时候需要挂代理吗？购票的时候发现有点卡
 臣等正欲先降，陛下何故死战<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 2177#       发表于 2021-10-16 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53152336&amp;ptid=2028598" target="_blank">离心 发表于 2021-10-16 20:43</a>
+明年星二期几率太小了，企划内打架不是没事找事吗？最快也是23年1月了</blockquote>
+前两代正统作都是15个月之后出第二季，正好22年10月。虹团是4月的话也能空出一个季度
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
