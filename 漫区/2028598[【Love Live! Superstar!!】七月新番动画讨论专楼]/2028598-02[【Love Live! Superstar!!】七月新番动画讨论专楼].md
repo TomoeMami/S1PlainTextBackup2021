@@ -8562,3 +8562,17 @@ e+看live的时候需要挂代理吗？购票的时候发现有点卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  名津流  
+##### 2183#       发表于 2021-10-17 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53103937&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-13 14:18</a>
+
+虽然快结束了，但企划还是继续的，一直刷贴也不合适，求问有没星团qq 群和鲤鱼群叻？ ...</blockquote>
+前面有人在楼里也问有没有群，我都推荐了NO.10字幕组的群，基本90%的时间都在聊LL，非常本质
+
+
