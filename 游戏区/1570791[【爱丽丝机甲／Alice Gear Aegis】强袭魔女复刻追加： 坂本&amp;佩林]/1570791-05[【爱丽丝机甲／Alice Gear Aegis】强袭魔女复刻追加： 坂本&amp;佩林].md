@@ -1673,3 +1673,17 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  LEOKO~  
+##### 6118#       发表于 2021-10-16 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53082398&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-10-11 22:47</a>
+
+熏子是无赖角色，地位是唯二没有分支的角色（另一个是P的分身素组）。得承诺高难不首先使用无敌无赖海豚跳 ...</blockquote>
+没记错的话枫和怜也没有分支（买胶送的不算）
+
+

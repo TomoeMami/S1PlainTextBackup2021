@@ -9413,3 +9413,80 @@ emmmmmmm
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这边建议事业民多打sc多打sl呢
 
 
+
+
+*****
+
+####  雪风utopia  
+##### 3849#       发表于 2021-10-16 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53152869&amp;ptid=2018830" target="_blank">路人庚 发表于 2021-10-16 21:19</a>
+其实是男的，去翻翻他前面几个月的推就知道了</blockquote>
+现在才想起来找到图了，来点男粉<img src="https://p.sda1.dev/2/07f7105c1f3bb0e9a90dcb90dbc5bb52/-23d45433f754db5e.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 草牛| + 1|我决定支持大莱莱|
+
+
+查看全部评分
+
+
+*****
+
+####  十九号大侠  
+##### 3850#       发表于 2021-10-16 22:37
+
+
+哈哈，真是好笑
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  肥到终点  
+##### 3851#       发表于 2021-10-16 22:38
+
+
+我不信，这一定是盗图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 3852#       发表于 2021-10-16 22:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3853#       发表于 2021-10-16 22:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个大侦探
+
+
+*****
+
+####  十九号大侠  
+##### 3854#       发表于 2021-10-16 22:40
+
+
+这**像假的，反正我不信
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

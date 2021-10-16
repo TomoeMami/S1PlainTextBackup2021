@@ -2084,3 +2084,17 @@ BV1Hv411371Y
 2021-10-16 21:00 上传
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7648#       发表于 2021-10-16 22:33
+
+
+ 本帖最后由 FCCHua 于 2021-10-16 22:38 编辑 
+
+慢报，kmt直播睡着了，能清楚听到呼吸音，草
+啊，现在醒了，闭麦睡，怕不是能一觉睡到天亮，明天联动迟到预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
