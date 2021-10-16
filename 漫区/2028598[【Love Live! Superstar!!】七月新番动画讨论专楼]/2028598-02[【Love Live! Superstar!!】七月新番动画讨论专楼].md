@@ -8125,3 +8125,26 @@ live购票详细出了，还是没有国内渠道<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">一场3200日元？看到过一些线上直播卖4 5百rmb的感觉3200日元不算很贵？
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 2145#       发表于 2021-10-16 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53148944&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-16 16:40</a>
+
+一场3200日元？看到过一些线上直播卖4 5百rmb的感觉3200日元不算很贵？</blockquote>
+都是小场。。。。 当然要便宜点了 
+
+
+*****
+
+####  a92063256  
+##### 2146#       发表于 2021-10-16 16:48
+
+
+你们说的特典是数字的还是实体的啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
