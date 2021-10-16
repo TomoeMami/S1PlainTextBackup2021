@@ -1972,3 +1972,16 @@ darusaka果然来了<img src="https://static.saraba1st.com/image/smiley/face2017
 pakael rpr hnn，多少有点神奇的组合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  虹河ラキ  
+##### 7641#       发表于 2021-10-16 09:01
+
+
+おはぴょこ
+<img src="https://i.loli.net/2021/10/16/5dW96SIreQtzLvN.png" referrerpolicy="no-referrer">
+[https://youtu.be/CrLF2srZHa8](https://youtu.be/CrLF2srZHa8)
+
+
