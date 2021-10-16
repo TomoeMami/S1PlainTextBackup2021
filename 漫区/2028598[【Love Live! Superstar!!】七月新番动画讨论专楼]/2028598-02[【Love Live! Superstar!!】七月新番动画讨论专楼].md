@@ -8001,3 +8001,14 @@ Op Ed那场活动live切片没少删啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔明明怂的一逼 官方又不来 油管无料的都不知道删了多少了 更何况付费的线上live录屏了
 
 
+
+
+*****
+
+####  Blackson  
+##### 2134#       发表于 2021-10-16 09:36
+
+
+说个题外话，昨天B站的壁吧号和梗百科都不约而同地更新了唐可可的相关视频
+
+
