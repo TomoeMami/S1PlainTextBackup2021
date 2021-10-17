@@ -11656,3 +11656,100 @@ LL其实已经是个靠惯性就能走下去的东西了，大概花田他们已
 妈的，想想巡回最后一天宣布二期制作就有点郁闷，那天还是鲤鱼生日
 
 
+
+
+*****
+
+####  shine888kire  
+##### 2460#       发表于 2021-10-17 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166210&amp;ptid=2028598" target="_blank">寒风夜 发表于 2021-10-17 21:54</a>
+
+星是今年我补的 看的偶像类最不行的</blockquote>
+但大概会是你看的偶像类里卖的最好的之一，这就是人家花田的底气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  寒风夜  
+##### 2461#       发表于 2021-10-17 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166316&amp;ptid=2028598" target="_blank">shine888kire 发表于 2021-10-17 22:01</a>
+
+但大概会是你看的偶像类里卖的最好的之一，这就是人家花田的底气啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那确实
+
+
+*****
+
+####  宋西湖  
+##### 2462#       发表于 2021-10-17 22:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">完结撒花！！
+
+
+*****
+
+####  Dark_Zagi  
+##### 2463#       发表于 2021-10-17 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164664&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-17 20:23</a>
+
+唐可可，最贵的女人</blockquote>
+4-9这么招黑人气居然还这么高？
+
+
+*****
+
+####  优妮可  
+##### 2464#       发表于 2021-10-17 22:15
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/221518mvputuuvo8z33t7k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211017_221308.jpg</strong> (105.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 22:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/221518rznhzbm84shz9yy4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211017_221317.jpg</strong> (161.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 22:15 上传
+
+
+*****
+
+####  秋月艾莉  
+##### 2465#       发表于 2021-10-17 22:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又看了一遍，卡农老爹真的好生草，妈妈妹妹祝贺时还背过身，tm整得像傲娇一样
+
+这集还是基本满意的，香音吐槽阿堇和同学那里的やさぐれ感又回来了一些，中间还夹着可香可堇糖
+
+恋恋的事降神彻底收完了，就剩蘑菇头了，好好写花田带老师，第二季前三集复刻一遍小星星我可以当场表演一个失忆<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 2466#       发表于 2021-10-17 22:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼熟肉，有个很大的疑惑。恋爹是什么鬼，女儿一个人住大宅，女仆雇不起，结果学校有点起色，突然说要出资？
+
+

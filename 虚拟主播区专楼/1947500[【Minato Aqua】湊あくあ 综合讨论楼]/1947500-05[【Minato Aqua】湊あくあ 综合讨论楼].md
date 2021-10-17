@@ -12647,3 +12647,16 @@ syl,看到的前两期和船长广播的存档：[https://www.bilibili.com/video
 不知道为什么是四十分不是整点开台，也不像是急着下播的样子
 
 
+
+
+*****
+
+####  蓝白胖者  
+##### 7013#       发表于 2021-10-17 22:14
+
+
+点进去听了一下，正好秀了一段气泡音，这不做asmr有点可惜了
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
