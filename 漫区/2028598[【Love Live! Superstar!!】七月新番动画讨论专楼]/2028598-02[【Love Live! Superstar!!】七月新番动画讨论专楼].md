@@ -8625,3 +8625,25 @@ nako，我的超人！这顿可香断头饭我能回味到星二期开播<img sr
 起码合唱版的齐唱部分明显比另外三版要热闹得多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2188#       发表于 2021-10-17 10:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于到季后赛决赛了
+
+买定离手，今晚有大活/烂活还是平稳收尾，可以开奶了
+
+
+*****
+
+####  kata魂  
+##### 2189#       发表于 2021-10-17 10:59
+
+
+普通的，越普通越好，别整幺蛾子了，哥还能活几年啊～
+
+
