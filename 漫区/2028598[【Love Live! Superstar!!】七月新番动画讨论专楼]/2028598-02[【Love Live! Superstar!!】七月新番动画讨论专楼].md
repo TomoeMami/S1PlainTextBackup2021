@@ -10837,3 +10837,95 @@ live致敬要素多，连跑步那里都致敬ww，但是整体舞台效果和�
 2021-10-17 20:22 上传
 
 
+
+
+*****
+
+####  寒风夜  
+##### 2395#       发表于 2021-10-17 20:25
+
+
+ 本帖最后由 寒风夜 于 2021-10-17 20:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">给个bgm的 2星吧，就 可可塑造 好了
+
+
+*****
+
+####  a92063256  
+##### 2396#       发表于 2021-10-17 20:29
+
+
+就怕第二季开头直接来句亚军也算有成绩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就太恐怖了
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  cxj649  
+##### 2397#       发表于 2021-10-17 20:31
+
+
+なんか学校の運営問題あっさり解決するし
+
+サンバコンビの凄さわからないまま負けるし
+
+可可は帰らず普通に練習してるし
+
+スノハレオマージュのキャンドルロード寒すぎだし
+
+全体的に残念な話だったな
+
+
+*****
+
+####  damian-wade  
+##### 2398#       发表于 2021-10-17 20:31
+
+
+想象一下一期之后星的live的高潮部分就是这首SH2.0，顿时索然无味，还主题是星星，呸啊，这里面哪里有你们自己的要素，估计还要尬到不行地拉着观众一起变色玩复刻，这么多次致敬我最受不了这个
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kata魂  
+##### 2399#       发表于 2021-10-17 20:35
+
+
+现在几个live结合剧情再加上舞台让我来排序的话（不算11话单人）
+
+
+nonfiction≥tiny stars＞常夏＞starlight＞wishsong   反正恋是输麻了
+
+
+*****
+
+####  ads147147  
+##### 2400#       发表于 2021-10-17 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164513&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-17 20:15</a>
+
+献祭了可可回换来的就是个劣质sh，这一切值得吗？花田我要送nm上月球额
+
+
+  -- 来自 能手机投票的 St ...</blockquote>
+我更担心的是，花田这笔还要干到星团剧场版，想想我就脑壳痛。
+
+
+
+
+*****
+
+####  寒风夜  
+##### 2401#       发表于 2021-10-17 20:38
+
+
+ 本帖最后由 寒风夜 于 2021-10-17 20:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">系列作品还是换换阵 吧，
+
+
