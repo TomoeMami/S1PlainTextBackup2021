@@ -1687,3 +1687,46 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 没记错的话枫和怜也没有分支（买胶送的不算）
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6119#       发表于 2021-10-17 19:34
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/193328x91kmed66b2ss9vj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211017192716.jpg</strong> (222.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 19:33 上传
+
+
+今天看到直接觉得卧槽。所以阿金什么时候能给红花新发型和语音……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 6120#       发表于 2021-10-17 19:37
+
+
+这发型确实不错，不过爱花那个双小辫也没有实装脱帽款吧
+
+前两天抽an国庆没出，这两天抽an锉刀歪了个普通国庆.....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  江戸前ルナ  
+##### 6121#       发表于 2021-10-17 19:40
+
+
+主要是红花就没别的发型了，原来的发型也太……固定印象了（高情商发言
+
+

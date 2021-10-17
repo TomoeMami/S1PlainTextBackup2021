@@ -10154,3 +10154,25 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 这集剧场版宣传ed c位都给劳拉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  HGCG2  
+##### 2235#       发表于 2021-10-17 19:27
+
+
+我想看今天这集喊大招时现场配音的场景
+
+
+*****
+
+####  isa2456  
+##### 2236#       发表于 2021-10-17 19:36
+
+
+寿限无这个把我整得笑没气了，给くるるん变身画这么精细或许是真的追加吧（）
+
+下集看到梦想无限大突然梦回拥抱<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
