@@ -12636,3 +12636,14 @@ syl,看到的前两期和船长广播的存档：[https://www.bilibili.com/video
 为啥现在连歌回都是突击了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  梅斯之围  
+##### 7012#       发表于 2021-10-17 22:01
+
+
+不知道为什么是四十分不是整点开台，也不像是急着下播的样子
+
+
