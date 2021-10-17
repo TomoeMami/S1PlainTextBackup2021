@@ -8769,3 +8769,54 @@ nako，我的超人！这顿可香断头饭我能回味到星二期开播<img sr
 我就怕两个都翻车<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  梦诗歌雪  
+##### 2200#       发表于 2021-10-17 16:43
+
+
+今天最后一集了？哪里可以看直播吗
+
+
+*****
+
+####  lj205  
+##### 2201#       发表于 2021-10-17 16:48
+
+
+这腿不是挺好的吗
+
+
+*****
+
+####  JustW  
+##### 2202#       发表于 2021-10-17 16:58
+
+
+生放送直播间链接有人知道吗）
+
+
+*****
+
+####  普之舜舜  
+##### 2203#       发表于 2021-10-17 17:02
+
+
+【lovelive 花田卫星求平稳落地-哔哩哔哩直播】 https://b23.tv/XdwaCh
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 2204#       发表于 2021-10-17 17:02
+
+
+https://b23.tv/XdwaCh 
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
