@@ -2373,3 +2373,14 @@ inui唱这种歌还蛮少见的诶…
 bora的笑声已经被另外两个ドブボ带偏了
 
 
+
+
+*****
+
+####  winda  
+##### 7668#       发表于 2021-10-17 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论技术其实也轮不上asoul，上星瞳比较好
+
+
