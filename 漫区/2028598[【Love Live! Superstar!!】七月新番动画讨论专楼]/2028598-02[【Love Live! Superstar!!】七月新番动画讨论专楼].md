@@ -12070,3 +12070,109 @@ LL其实已经是个靠惯性就能走下去的东西了，大概花田他们已
 断资金断到让女儿独守空房，也是有点过于斯巴达了吧
 
 
+
+
+*****
+
+####  lanslort  
+##### 2491#       发表于 2021-10-17 23:26
+
+
+我来给花田大先生洗洗地，12话我觉得肯定是改过的，给人的感觉特别像本来大纲13话结果因为NHK还是什么特别的大人的原因给砍成了12话 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 2492#       发表于 2021-10-17 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167767&amp;ptid=2028598" target="_blank">lanslort 发表于 2021-10-17 23:20</a>
+我觉得这最终回比水水舞台剧尬演还难看，再也不黑酒井和男了（虽然人家也彻底不想跟你拉扯上关系了 ...</blockquote>
+珠光就是为了强行弄出橙色出来，这手真的是看得我尴尬的说不出话，然后live就真的变色变给你玩，我。。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  七七見奈波  
+##### 2493#       发表于 2021-10-17 23:31
+
+
+kanon被设置成主角问题太大了，而且塑造也不成功，能感觉到想让她成长，但每一次的“成长”都突如其来地完成，本来她就不是那种适合做主角的性格，还这么敷衍对待。kanon的性格更适合做王牌选手，队伍的精神支柱和推动、团结队伍这个角色还是得可可来，但如果真给了可可这个角色，那么可堇的欢喜冤家设置又出问题了，非要搞欢喜冤家，倒不如让恋维持第一话那个高冷形象，靠泼冷水和堇来搭这个欢喜冤家，不过这样的话又和堇看起来很夸张但其实很懂事靠谱也很有能力的一面有冲突，现在的团队和人物设置就是路子错了，怎么都会出问题
+
+
+*****
+
+####  秋月艾莉  
+##### 2494#       发表于 2021-10-17 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167854&amp;ptid=2028598" target="_blank">lanslort 发表于 2021-10-17 23:26</a>
+
+我来给花田大先生洗洗地，12话我觉得肯定是改过的，给人的感觉特别像本来大纲13话结果因为NHK还是什么特别 ...</blockquote>
+总共12话很早就说了吧
+
+要砍怎么不砍11话，三件套卡农还是C不了，独唱比赛也跳了，意义何在
+
+我看下一季还要来个神装卡农<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kxh007458  
+##### 2495#       发表于 2021-10-17 23:35
+
+
+其实他是想让女儿去跟理事长住(误）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2496#       发表于 2021-10-17 23:36
+
+
+ 本帖最后由 kata魂 于 2021-10-17 23:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167920&amp;ptid=2028598" target="_blank">七七見奈波 发表于 2021-10-17 23:31</a>
+
+kanon被设置成主角问题太大了，而且塑造也不成功，能感觉到想让她成长，但每一次的“成长”都突如其来地完 ...</blockquote>
+这种问题设置成两个负责人就行，也不一定都是leader
+
+举个例子就是第10集，实际上堇的问题就是香音可可两个人解决的，香音的热心负责点燃对方的希望，可可的热情负责冲破对方的心理阴
+
+剩下的人全是香音自己莽过去的，小千是青梅竹马还好说，恋的观感可太糟糕了除了剧情设置，在全校面前拉人也有点尴尬。
+
+影。可香两个人就是这么扶持的。一个热心的去帮忙学园偶像，一个热情的宽慰对方。堇可以说是这两个人建队后又一个被二人性格“病愈出院”的
+
+
+*****
+
+####  中野四葉  
+##### 2497#       发表于 2021-10-17 23:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是不分leader和center的坏处了
+
+
+*****
+
+####  ads147147  
+##### 2498#       发表于 2021-10-17 23:39
+
+
+都想开专楼去骂花田了，越想越感觉比当年我看希望之花还不爽。烂的不上不下也是恶心人的本事了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  中野四葉  
+##### 2499#       发表于 2021-10-17 23:40
+
+
+炮打花田十辉——我的一张大字报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
