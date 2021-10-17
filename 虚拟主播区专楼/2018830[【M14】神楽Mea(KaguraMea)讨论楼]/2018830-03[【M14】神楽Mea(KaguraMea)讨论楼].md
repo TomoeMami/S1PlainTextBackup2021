@@ -9836,3 +9836,29 @@ emmmmmmm 真就不动弹啊
 这个点了开台无望
 
 
+
+
+*****
+
+####  路人庚  
+##### 3883#       发表于 2021-10-17 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53160267&amp;ptid=2018830" target="_blank">呓亘 发表于 2021-10-17 14:50</a>
+
+谁？昨天破防你麻的翠姨吗</blockquote>
+往前翻翻
+
+
+syl，战地看来是只能从队友视角来看了（
+
+
+*****
+
+####  呓亘  
+##### 3884#       发表于 2021-10-17 16:34
+
+
+这傻女人 又不开台
+
+
