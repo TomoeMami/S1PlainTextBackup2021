@@ -10139,3 +10139,18 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 喂！你们不要这么认真画海豹的变身bank啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  粉儿alice  
+##### 2234#       发表于 2021-10-17 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53152498&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-10-16 20:54</a>
+这片估计压根就没女二，主角一直都是萝拉
+
+珊瑚什么的，都是路人</blockquote>
+这集剧场版宣传ed c位都给劳拉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

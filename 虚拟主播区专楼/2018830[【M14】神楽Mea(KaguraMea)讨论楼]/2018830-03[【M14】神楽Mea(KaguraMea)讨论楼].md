@@ -9987,3 +9987,79 @@ BF5是7点开始吗？看这**女人的调节能力了</blockquote>
 嗯，兰熊直播间在倒计时了
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3897#       发表于 2021-10-17 19:12
+
+
+怎么感觉都没玩过这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 3898#       发表于 2021-10-17 19:16
+
+
+你麻看到野男人都不兴奋了   <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 3899#       发表于 2021-10-17 19:18
+
+
+逛该模拟器
+
+
+*****
+
+####  T_Hb  
+##### 3900#       发表于 2021-10-17 19:18
+
+
+啥也看不到，听个响
+
+
+
+
+*****
+
+####  雪风utopia  
+##### 3901#       发表于 2021-10-17 19:20
+
+
+不开窗我看个几把，润了润了<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 3902#       发表于 2021-10-17 19:23
+
+
+这女人挺开心的
+
+
+*****
+
+####  T_Hb  
+##### 3903#       发表于 2021-10-17 19:24
+
+
+其实一般
+
+
+*****
+
+####  路人庚  
+##### 3904#       发表于 2021-10-17 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全就是友军之围啊，这是比赛还没开始吗
+
+
