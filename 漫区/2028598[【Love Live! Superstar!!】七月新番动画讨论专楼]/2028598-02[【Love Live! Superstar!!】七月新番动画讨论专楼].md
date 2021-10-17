@@ -11898,3 +11898,30 @@ LL其实已经是个靠惯性就能走下去的东西了，大概花田他们已
 下周开始就没有会动的5人看，突然很惆怅
 
 
+
+
+*****
+
+####  ads147147  
+##### 2479#       发表于 2021-10-17 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167125&amp;ptid=2028598" target="_blank">Pumpkin_ccc 发表于 2021-10-17 22:40</a>
+理事长跟恋妈认识，估计也是由理事长通知恋爹告知恋的近况吧</blockquote>
+恋爹看做学校赔钱就丢女儿在日本，让恋自生自灭认清现实，等看到有盈利期望马上来掺一脚入股，也不知道算是讽刺谁。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Aunn  
+##### 2480#       发表于 2021-10-17 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53160983&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-17 16:03</a>
+隔壁专楼有条很欢乐的回复
+我要在这也发一遍</blockquote>
+加油加油还有一把<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+

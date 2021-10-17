@@ -12660,3 +12660,23 @@ syl,看到的前两期和船长广播的存档：[https://www.bilibili.com/video
 —— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  nian1538  
+##### 7014#       发表于 2021-10-17 22:51
+
+
+ASMR?
+
+
+*****
+
+####  星の守  
+##### 7015#       发表于 2021-10-17 22:58
+
+
+我穿越了？<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+

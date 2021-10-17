@@ -22843,3 +22843,15 @@ Mumei用berry代替荧光棒xd
 EN服务器天生克鹦鹉么？没有一只鸟活下来了
 
 
+
+
+*****
+
+####  shimmy1996  
+##### 1435#       发表于 2021-10-17 23:00
+
+
+ame happy box<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+Mumei in Holotori when<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
