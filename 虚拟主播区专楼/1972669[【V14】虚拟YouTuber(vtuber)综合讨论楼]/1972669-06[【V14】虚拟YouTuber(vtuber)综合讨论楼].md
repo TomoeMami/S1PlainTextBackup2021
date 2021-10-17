@@ -2384,3 +2384,14 @@ bora的笑声已经被另外两个ドブボ带偏了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论技术其实也轮不上asoul，上星瞳比较好
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7669#       发表于 2021-10-18 00:35
+
+
+星瞳输在审美上了
+
+
