@@ -9777,3 +9777,35 @@ emmmmmmm 真就不动弹啊
 而且他hololive看的不少，最近还给kson点赞来着（
 
 
+
+
+*****
+
+####  Dualist彩  
+##### 3879#       发表于 2021-10-17 12:14
+
+
+你说这是官组壬说的话我都信呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+             
+
+一边被dm网暴，一边在身居高位被人舔，什么魔幻现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 3880#       发表于 2021-10-17 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53158860&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2021-10-17 12:14</a>
+你说这是官组壬说的话我都信呢
+
+             
+
+一边被dm网暴，一边在身居高位被人舔，什么魔幻现实[f ...</blockquote>
+被谁舔？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

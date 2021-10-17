@@ -6313,3 +6313,26 @@ co宝多数时158衬衫酷盖，少数时超短裙软妹<img src="https://static
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  tn_teana  
+##### 555#       发表于 2021-10-17 12:12
+
+
+已经是腾飞的巨龙了
+3.9万粉430舰的含金量
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  夜潇箫  
+##### 556#       发表于 2021-10-17 12:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
