@@ -8835,3 +8835,41 @@ v总那边吗清晰度应该更好些，不过他是在yy那边，我找找链�
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  kata魂  
+##### 2206#       发表于 2021-10-17 17:43
+
+
+马上就最后一集了，我也不要可可有什么表现了，正常点收尾就行<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 2207#       发表于 2021-10-17 17:55
+
+
+花田如果最后一话又发病做成水团那种结尾会被冲烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 2208#       发表于 2021-10-17 18:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要相信一切皆有可能
+
+
+*****
+
+####  Norkey1  
+##### 2209#       发表于 2021-10-17 18:00
+
+
+来个大的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

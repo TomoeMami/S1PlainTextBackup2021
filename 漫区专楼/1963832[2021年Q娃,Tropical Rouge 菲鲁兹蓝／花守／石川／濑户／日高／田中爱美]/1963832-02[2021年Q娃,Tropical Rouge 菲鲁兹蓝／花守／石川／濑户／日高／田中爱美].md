@@ -10126,3 +10126,16 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 感觉声优快念断气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  leleq  
+##### 2233#       发表于 2021-10-17 18:03
+
+
+神回！（某种意义上比29集跟神）
+
+喂！你们不要这么认真画海豹的变身bank啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

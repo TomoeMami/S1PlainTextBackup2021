@@ -2280,3 +2280,17 @@ https://www.freem.ne.jp/win/game/26861
 2021-10-17 16:34 上传
 
 
+
+
+*****
+
+####  ひびき  
+##### 7660#       发表于 2021-10-17 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53157216&amp;ptid=1972669" target="_blank"> 空集 发表于 2021-10-17 07:16</a> 我草 响！技术有用么 歌姬都死了一轮了   </blockquote>
+歌姬宣发不行，从原神和海鲜游戏我感觉只要有正常的质量 病毒式宣发足够打爆全世界
+
+as的后台有世界第一的宣发能力，要做的仅仅调个权重而已，不过他们可能更愿意把这种资源投在拿as练顺手了做的游戏上来自: iPhone客户端
+
+
