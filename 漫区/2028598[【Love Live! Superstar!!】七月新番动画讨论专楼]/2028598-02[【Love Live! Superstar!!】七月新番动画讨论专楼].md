@@ -10103,3 +10103,351 @@ neta2单我也喜欢大家都是纯白加少量本色点缀的设计，舞台设
 桑巴舞怎么可能让人判教
 
 
+
+
+*****
+
+####  卡罗斯  
+##### 2334#       发表于 2021-10-17 18:41
+
+
+相当白开水的一集
+
+
+*****
+
+####  JustW  
+##### 2335#       发表于 2021-10-17 18:41
+
+
+<blockquote>lj205 发表于 2021-10-17 18:37
+不是厨上脑，我就是觉得卡农那句不甘心应该对着可可说</blockquote>
+什么高黄复刻（）
+
+
+我看完第十一集完全没感觉到是在铺垫香音求胜心，但从第十二集来看，花田可能觉得自己铺垫了。就算如此和京吹没法比，星团这季真不能称之为香音和她的小伙伴的故事，立德这条线臃肿且粗糙。
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2336#       发表于 2021-10-17 18:41
+
+
+花田每次最后一集都不咋地吧，意料之中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  tiro_finale  
+##### 2337#       发表于 2021-10-17 18:42
+
+
+按人设可可不应该瞒自己回国的事情的，之前不提是不想影响大家，但这都比完了，以她的性格不会不辞而别
+
+但这事情从动画收尾的角度上又不适合提，所以直接搞得她忘了这事一样还跟大家一起练习...
+
+
+*****
+
+####  寒风夜  
+##### 2338#       发表于 2021-10-17 18:42
+
+
+找 个有热情的脚本 吧
+
+
+*****
+
+####  soranoguiji  
+##### 2339#       发表于 2021-10-17 18:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你们怎么只集火花田，作为监督的京极尚彦责任更大吧，还有负责音乐的藤泽庆昌感觉发挥也不大行，这staff都在摆烂啊
+
+
+*****
+
+####  ads147147  
+##### 2340#       发表于 2021-10-17 18:43
+
+
+开snow halation听平复下。
+
+
+建议觉得这次歌还好听的再去看一遍2单pv或者缪tv，体会下越写越烂的感觉。。
+
+
+
+
+*****
+
+####  Norkey1  
+##### 2341#       发表于 2021-10-17 18:43
+
+
+花田不是指一个人，它是一个象征<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水莲寺流歌  
+##### 2342#       发表于 2021-10-17 18:44
+
+
+这集其实就是知道有二期，所以在纯纯的摆烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田不想做可以滚
+
+
+*****
+
+####  笋狐  
+##### 2343#       发表于 2021-10-17 18:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这话这些学生咋就这么积极支持了，不要和我说那几次搞笑性质的班选举和恋恋体育馆eva复刻算是刷了羁绊啊，那两排人捧的蜡烛怕不是送给花某人的吧
+
+
+*****
+
+####  离心  
+##### 2344#       发表于 2021-10-17 18:46
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/184610twawpczw33tjni2e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>24DF3FAF853CE8B08C8930D0423CFB08.jpg</strong> (74.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 18:46 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/184615rnz3djz0h3ra56da.jpg" referrerpolicy="no-referrer">
+
+
+<strong>86B84E98EE3990091CBFDF12DABE7885.jpg</strong> (77.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 18:46 上传
+
+
+致敬都tm是致敬
+
+
+*****
+
+####  cybernetics31  
+##### 2345#       发表于 2021-10-17 18:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sh都上趋势了 笑了
+
+
+*****
+
+####  Piano-Forest  
+##### 2346#       发表于 2021-10-17 18:46
+
+
+TVアニメ『ラブライブ！スーパースター!!』
+
+第10話挿入歌/第12話挿入歌
+
+「ノンフィクション!!/ Starlight Prologue」
+
+【第10話盤】【第12話盤】
+
+10/20（Wed）On Sale🙌
+
+
+【第12話盤】のジャケット&amp;店舗特典デザイン公開👏
+
+要チェック👀
+[https://www.lovelive-anime.jp/yuigaoka/news/?id=8497](https://www.lovelive-anime.jp/yuigaoka/news/?id=8497)
+<img src="https://p.sda1.dev/2/02dc6e5e1082d19b1a1a54952b4c6cdd/20211017_184447.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/31acdc69eaca43910a0d98d6deb02c2f/20211017_184537.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2347#       发表于 2021-10-17 18:46
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/184629erriirgmm5olqrfq.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (16.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 18:46 上传
+
+
+星团动画完结的时候，sh也上了热搜
+
+
+*****
+
+####  黑雪姫  
+##### 2348#       发表于 2021-10-17 18:47
+
+
+这集过于无聊我甚至熟肉不想看了...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 2349#       发表于 2021-10-17 18:48
+
+
+感觉香音的性格和前三集差别越来越大了，可能是想表现成长，但是还是很生硬啊
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 2350#       发表于 2021-10-17 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163200&amp;ptid=2028598" target="_blank">离心 发表于 2021-10-17 18:46</a>
+
+致敬都tm是致敬</blockquote>
+缝合怪还差不多。要我说，你真要致敬，还不如把可可设定成缪厨，学水团从头念叨到尾巴，**方方致敬算了。
+
+
+*****
+
+####  lj205  
+##### 2351#       发表于 2021-10-17 18:50
+
+
+平复一下，明天鲤鱼生放后天星团生放，然后新单（买的我好纠结），然后就有心跳在悦动，然后就到live了
+
+
+*****
+
+####  ads147147  
+##### 2352#       发表于 2021-10-17 18:50
+
+
+<img src="https://tse1-mm.cn.bing.net/th/id/OIP-C.Y7ABwIBYkjENLJomCQYcvQHaHX?pid=ImgDet&amp;rs=1" id="aimg_yM0gw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+说起来，2单也是立德伸手。。
+
+
+*****
+
+####  寒风夜  
+##### 2353#       发表于 2021-10-17 18:51
+
+
+如意算盘打翻 了 其实我感觉星动画有点赶鸭子上架
+
+
+*****
+
+####  寒风夜  
+##### 2354#       发表于 2021-10-17 18:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">构成真的草
+
+
+*****
+
+####  中野四葉  
+##### 2355#       发表于 2021-10-17 18:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">总体+0，1-3话+6话+10话这几集是+1水平
+
+
+*****
+
+####  D麦林  
+##### 2356#       发表于 2021-10-17 18:54
+
+
+我好像极限降低期望值降低的太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+确实不太满意 但挺乐的
+
+
+*****
+
+####  优妮可  
+##### 2357#       发表于 2021-10-17 18:56
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/185612v2c5v2rnthahu6h7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211017_185502.jpg</strong> (458.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 18:56 上传
+
+
+*****
+
+####  AlfredXC  
+##### 2358#       发表于 2021-10-17 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163377&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-17 18:56</a></blockquote>
+立德这是垫了多少
+
+
+*****
+
+####  kata魂  
+##### 2359#       发表于 2021-10-17 18:57
+
+
+蛋疼的一点是
+
+结果公布的时候，堇先破防，可可低着头悲伤的表情，差点真以为要搞事，然后就接上表决心，
+
+你前后的剧情是中间是被绯红之王删了吗？这tm根本就不是12集能讲完的剧情
+
+
+*****
+
+####  AlfredXC  
+##### 2360#       发表于 2021-10-17 18:57
+
+
+[liella！ 0-2 烈日情热，赛后评分！其余打分贴删](https://tieba.baidu.com/p/7578714466)开始了，经典赛后打分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 2361#       发表于 2021-10-17 18:59
+
+
+还不如**方方的学revice直接把人设定成缪厨，该怎么致敬怎么致敬，水当初也不是因为致敬缪翻车，是强行和缪反着来。
+
+
+现在弄得和水一样致敬的不上不下的。。
+
+
+*****
+
+####  寒风夜  
+##### 2362#       发表于 2021-10-17 19:00
+
+
+交叉出画画打工人也挺累的
+
+
