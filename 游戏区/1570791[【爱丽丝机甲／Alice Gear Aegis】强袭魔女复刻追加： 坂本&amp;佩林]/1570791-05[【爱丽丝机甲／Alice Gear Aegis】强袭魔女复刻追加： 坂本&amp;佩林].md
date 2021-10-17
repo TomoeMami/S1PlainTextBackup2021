@@ -1730,3 +1730,29 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 主要是红花就没别的发型了，原来的发型也太……固定印象了（高情商发言
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6122#       发表于 2021-10-17 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53154360&amp;ptid=1570791" target="_blank">LEOKO~ 发表于 2021-10-16 22:43</a>
+
+没记错的话枫和怜也没有分支（买胶送的不算）</blockquote>
+这俩一个胶当分支，一个AN当分支了，不用太纠结（
+
+
+*****
+
+####  hypnossz86  
+##### 6123#       发表于 2021-10-17 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163990&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-10-17 19:40</a>
+
+主要是红花就没别的发型了，原来的发型也太……固定印象了（高情商发言</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国庆有一个别的发型吧，不过那个也是个团子头和默认的过于相似........
+
+

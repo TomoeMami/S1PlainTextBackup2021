@@ -10703,3 +10703,64 @@ live致敬要素多，连跑步那里都致敬ww，但是整体舞台效果和�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看贴吧和微博病人发病比动画有意思多了（
 
 
+
+
+*****
+
+####  寒风夜  
+##### 2383#       发表于 2021-10-17 19:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">该给整体评价了，随便评价下（没什么文笔）属于拉吧，矛盾啊 人物塑造啊，真是脚想的
+
+
+*****
+
+####  黑雪姫  
+##### 2384#       发表于 2021-10-17 19:54
+
+
+完全能感觉到STAFF就是敷衍完成工作了事的。完全没有爱在里面。
+
+
+*****
+
+####  kata魂  
+##### 2385#       发表于 2021-10-17 19:55
+
+
+第十集的爱还是很多的
+
+舞台设计到剧情到歌曲，全都是对（可）堇的爱啊~
+
+
+*****
+
+####  lj205  
+##### 2386#       发表于 2021-10-17 19:55
+
+
+心疼5个妹子，估计要创下平均最低记录了
+
+
+*****
+
+####  ads147147  
+##### 2387#       发表于 2021-10-17 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164185&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-17 19:55</a>
+
+心疼5个妹子，估计要创下平均最低记录了</blockquote>
+不至于，至少nico评分不会很难看
+
+
+*****
+
+####  中野四葉  
+##### 2388#       发表于 2021-10-17 20:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">均分应该能比水高，至少不垫底！
+
+
