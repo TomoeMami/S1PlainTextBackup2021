@@ -10112,3 +10112,17 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 最后是11个小故事吗！
 
 
+
+
+*****
+
+####  twit  
+##### 2232#       发表于 2021-10-17 14:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53157532&amp;ptid=1963832" target="_blank">lawsherman 发表于 2021-10-17 09:13</a>
+
+这寿限無大招都把我看懵了</blockquote>
+感觉声优快念断气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
