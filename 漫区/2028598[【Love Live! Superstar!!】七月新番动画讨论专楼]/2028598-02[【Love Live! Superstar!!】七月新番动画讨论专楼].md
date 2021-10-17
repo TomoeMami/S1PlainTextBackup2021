@@ -8820,3 +8820,18 @@ https://b23.tv/XdwaCh
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 2205#       发表于 2021-10-17 17:09
+
+
+ 本帖最后由 普之舜舜 于 2021-10-17 17:18 编辑 
+
+v总那边吗清晰度应该更好些，不过他是在yy那边，我找找链接
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
