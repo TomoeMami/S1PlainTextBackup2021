@@ -10764,3 +10764,76 @@ live致敬要素多，连跑步那里都致敬ww，但是整体舞台效果和�
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">均分应该能比水高，至少不垫底！
 
 
+
+
+*****
+
+####  player3960  
+##### 2389#       发表于 2021-10-17 20:15
+
+
+献祭了可可回换来的就是个劣质sh，这一切值得吗？花田我要送nm上月球额<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cxj649  
+##### 2390#       发表于 2021-10-17 20:16
+
+
+这集还行吧，当然水团那2最终回……敲打敲打主角团过头直接BE也蛮迷惑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 2391#       发表于 2021-10-17 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164513&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-17 20:15</a>
+
+献祭了可可回换来的就是个劣质sh，这一切值得吗？花田我要送nm上月球额
+
+
+  -- 来自 能手机投票的 St ...</blockquote>
+这个真当暗线放了 也是完全理解不了 
+
+
+*****
+
+####  soranoguiji  
+##### 2392#       发表于 2021-10-17 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然加农的塑造拉了，但是她帅我就是喜欢，感觉被pua了
+
+
+*****
+
+####  寒风夜  
+##### 2393#       发表于 2021-10-17 20:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果说偶像荣耀是为什么赢，这个就不知道怎么输了
+
+
+*****
+
+####  saya1892  
+##### 2394#       发表于 2021-10-17 20:23
+
+
+唐可可，最贵的女人
+
+<img src="https://img.saraba1st.com/forum/202110/17/202246tv9bbrq181z81vqs.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (626.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 20:22 上传
+
+
