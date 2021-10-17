@@ -17992,3 +17992,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 假非洲人，真非洲都是能抽中一张就行了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 83994#       发表于 2021-10-18 01:06
+
+
+术阶和剑阶，阿基米德的可能性微升？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

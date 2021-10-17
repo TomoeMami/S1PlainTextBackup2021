@@ -12284,3 +12284,26 @@ CW曲试听出来了，毫不犹豫选10话盘
 花田写到香音苦呀西的时候是不是串到其他片场了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sjbssd  
+##### 2510#       发表于 2021-10-18 01:02
+
+
+我来说花田怎么写LL剧本，花田肯定是先把12集剧情做成框框，每集开头写啥结尾写啥都安排好，然后把想到的点子写纸团上，之后纸团放碗里颠一颠然后往下到，然后就拼点子凑剧情。
+
+
+*****
+
+####  秋月艾莉  
+##### 2511#       发表于 2021-10-18 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53169291&amp;ptid=2028598" target="_blank">sjbssd 发表于 2021-10-18 01:02</a>
+
+我来说花田怎么写LL剧本，花田肯定是先把12集剧情做成框框，每集开头写啥结尾写啥都安排好，然后把想到的点 ...</blockquote>
+有带货任务的不都这样写么，整体架构肯定提前定死的，这倒跟他无关
+
+
