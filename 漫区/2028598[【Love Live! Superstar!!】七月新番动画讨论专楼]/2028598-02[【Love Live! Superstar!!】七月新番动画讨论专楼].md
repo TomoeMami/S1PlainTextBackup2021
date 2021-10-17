@@ -11753,3 +11753,148 @@ LL其实已经是个靠惯性就能走下去的东西了，大概花田他们已
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼熟肉，有个很大的疑惑。恋爹是什么鬼，女儿一个人住大宅，女仆雇不起，结果学校有点起色，突然说要出资？
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2467#       发表于 2021-10-17 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166506&amp;ptid=2028598" target="_blank">Dark_Zagi 发表于 2021-10-17 22:12</a>
+
+4-9这么招黑人气居然还这么高？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这扩大化也太离谱了，真做过头也就第7话
+
+
+*****
+
+####  寒风夜  
+##### 2468#       发表于 2021-10-17 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166635&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 22:19</a>
+
+看了眼熟肉，有个很大的疑惑。恋爹是什么鬼，女儿一个人住大宅，女仆雇不起，结果学校有点起色，突 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">机械降神
+
+
+*****
+
+####  Jobtownb  
+##### 2469#       发表于 2021-10-17 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165214&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 20:58</a>
+那其实是香音考音乐科失败后在小千面前的劣等感和愧疚感，详见《利兹与青鸟》 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田大师可以给山田尚子和吉田玲子几个磕头，求求她们教他怎么写这种感情
+
+
+*****
+
+####  Gooddays  
+##### 2470#       发表于 2021-10-17 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166506&amp;ptid=2028598" target="_blank">Dark_Zagi 发表于 2021-10-17 22:12</a>
+4-9这么招黑人气居然还这么高？</blockquote>
+可能因为其他人的描写也不好，再加上可可对堇的态度有其合理性，堇本身便不是无辜，第十话堇有足够表示时可可便完全接受了。前因后果清楚及事情已解决的情况下，如非深度堇推那大多数人也不会太计较，说到尾可可重视 LL 的行为不是罪。
+
+
+*****
+
+####  JustW  
+##### 2471#       发表于 2021-10-17 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162557&amp;ptid=2028598" target="_blank">V宇宙的守夜人Z 发表于 2021-10-17 18:16</a>
+
+我好像听到了富田美忧的声音</blockquote>
+确实有富田美忧
+
+
+*****
+
+####  JustW  
+##### 2472#       发表于 2021-10-17 22:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166726&amp;ptid=2028598" target="_blank">Jobtownb 发表于 2021-10-17 22:23</a>
+
+花田大师可以给山田尚子和吉田玲子几个磕头，求求她们教他怎么写这种感情 ...</blockquote>
+花田他写的京吹第二季我就没看懂伞宅那俩人思路，全靠青鸟抬一手
+
+
+*****
+
+####  ads147147  
+##### 2473#       发表于 2021-10-17 22:28
+
+
+其实感恩的人还不少，真就是年轻人第一次花田十辉。再想想星估计也是那一打偶像内卷里过的算很好的，突然就觉得这资本游戏真无聊。
+
+真就是平稳落地就是福了。
+
+哎，还得张嘴等明年虹2期，我也是被pua了。
+
+看来bd就买前两卷就好了，哦还有第五卷，其他的真的是当不存在比较好。循环一晚上sh。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kata魂  
+##### 2474#       发表于 2021-10-17 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53160983&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-17 16:03</a>
+
+隔壁专楼有条很欢乐的回复
+
+我要在这也发一遍</blockquote>
+双 喜 临 门
+
+
+*****
+
+####  TTAA  
+##### 2475#       发表于 2021-10-17 22:29
+
+
+隔壁LGD被干傻了卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 2476#       发表于 2021-10-17 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166903&amp;ptid=2028598" target="_blank">TTAA 发表于 2021-10-17 22:29</a>
+
+隔壁LGD被干傻了卧槽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还有机会，还有机会
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 2477#       发表于 2021-10-17 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166635&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 22:19</a>
+
+看了眼熟肉，有个很大的疑惑。恋爹是什么鬼，女儿一个人住大宅，女仆雇不起，结果学校有点起色，突 ...</blockquote>
+理事长跟恋妈认识，估计也是由理事长通知恋爹告知恋的近况吧
+
+
+*****
+
+####  lj205  
+##### 2478#       发表于 2021-10-17 22:40
+
+
+下周开始就没有会动的5人看，突然很惆怅
+
+
