@@ -2294,3 +2294,37 @@ https://www.freem.ne.jp/win/game/26861
 as的后台有世界第一的宣发能力，要做的仅仅调个权重而已，不过他们可能更愿意把这种资源投在拿as练顺手了做的游戏上来自: iPhone客户端
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7661#       发表于 2021-10-17 18:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 7662#       发表于 2021-10-17 18:11
+
+
+国v3d也不用都盯着asoul看，像雪风军团也挺好的，还有2楼更新了维阿的夏日promax，有兴趣的拖下来看看，应该算国v比较高水准的live了
+
+
+*****
+
+####  渡鸦骑士  
+##### 7663#       发表于 2021-10-17 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162139&amp;ptid=1972669" target="_blank">ひびき 发表于 2021-10-17 17:46</a>
+歌姬宣发不行，从原神和海鲜游戏我感觉只要有正常的质量 病毒式宣发足够打爆全世界
+
+as的后台有世界第一 ...</blockquote>
+我觉得偶像和游戏还是不同的。
+尤其是现在流量明星这块<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

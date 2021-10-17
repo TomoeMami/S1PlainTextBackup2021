@@ -8873,3 +8873,474 @@ v总那边吗清晰度应该更好些，不过他是在yy那边，我找找链�
 来个大的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kata魂  
+##### 2210#       发表于 2021-10-17 18:01
+
+
+是我看漏了？这次没有开头直接op？
+
+
+*****
+
+####  JustW  
+##### 2211#       发表于 2021-10-17 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162341&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-17 18:01</a>
+
+是我看漏了？这次没有开头直接op？</blockquote>
+应该没有
+
+
+*****
+
+####  球獭  
+##### 2212#       发表于 2021-10-17 18:01
+
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2213#       发表于 2021-10-17 18:02
+
+
+普通科现状.jpg
+
+
+*****
+
+####  JustW  
+##### 2214#       发表于 2021-10-17 18:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">疗效真的好
+
+
+*****
+
+####  优妮可  
+##### 2215#       发表于 2021-10-17 18:03
+
+
+真的假的
+
+
+*****
+
+####  Norkey1  
+##### 2216#       发表于 2021-10-17 18:04
+
+
+草啊，恋风评被害
+
+
+*****
+
+####  a92063256  
+##### 2217#       发表于 2021-10-17 18:04
+
+
+废校危机直接解除<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  离心  
+##### 2218#       发表于 2021-10-17 18:04
+
+
+你爸不屑了？
+
+
+*****
+
+####  Revival  
+##### 2219#       发表于 2021-10-17 18:06
+
+
+一句话就解决了草
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  depthlee  
+##### 2220#       发表于 2021-10-17 18:06
+
+
+老爹安定的既然没cv  ww
+
+
+
+
+*****
+
+####  kata魂  
+##### 2221#       发表于 2021-10-17 18:07
+
+
+草 拄拐
+
+
+*****
+
+####  球獭  
+##### 2222#       发表于 2021-10-17 18:08
+
+
+好贴
+
+
+*****
+
+####  普之舜舜  
+##### 2223#       发表于 2021-10-17 18:09
+
+
+<img src="https://p.sda1.dev/2/be2944bcec36899334c9f69aec14e96c/IMG_CMP_107216148.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 2224#       发表于 2021-10-17 18:09
+
+
+铁拐唐可可
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 2225#       发表于 2021-10-17 18:10
+
+
+和缪一样直接机械降神解决掉了。干嘛不干脆别提这茬，恋的角色成长真写的一坨
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 2226#       发表于 2021-10-17 18:10
+
+
+大的什么时候要来呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 2227#       发表于 2021-10-17 18:11
+
+
+冬天单独场景，估计是为了neta缪的2单。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  JustW  
+##### 2228#       发表于 2021-10-17 18:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海冷个屁
+
+
+*****
+
+####  depthlee  
+##### 2229#       发表于 2021-10-17 18:12
+
+
+过半了诶，居然如此平稳。。
+
+
+*****
+
+####  Revival  
+##### 2230#       发表于 2021-10-17 18:12
+
+
+是雪～
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ads147147  
+##### 2231#       发表于 2021-10-17 18:12
+
+
+下雪了到是配的很上海人（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  离心  
+##### 2232#       发表于 2021-10-17 18:14
+
+
+女仆你还在啊
+
+
+*****
+
+####  cybernetics31  
+##### 2233#       发表于 2021-10-17 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一半了 应该能普通完结了
+
+
+*****
+
+####  JustW  
+##### 2234#       发表于 2021-10-17 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么我嗅到了不祥的气息
+
+
+*****
+
+####  kata魂  
+##### 2235#       发表于 2021-10-17 18:15
+
+
+草 人工sh吗
+
+
+*****
+
+####  tiro_finale  
+##### 2236#       发表于 2021-10-17 18:15
+
+
+上海人这身真不怕冷吗
+
+
+*****
+
+####  ads147147  
+##### 2237#       发表于 2021-10-17 18:15
+
+
+果然是neta2单，花田就这点本事jpg。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  JustW  
+##### 2238#       发表于 2021-10-17 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过于经典
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 2239#       发表于 2021-10-17 18:16
+
+
+我好像听到了富田美忧的声音来自: iPhone客户端
+
+
+*****
+
+####  Revival  
+##### 2240#       发表于 2021-10-17 18:16
+
+
+全都是致敬.jpg
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  寒风夜  
+##### 2241#       发表于 2021-10-17 18:16
+
+
+经典
+
+
+*****
+
+####  稀勢のささ  
+##### 2242#       发表于 2021-10-17 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来晚了 什么舞台创造科
+
+
+*****
+
+####  普之舜舜  
+##### 2243#       发表于 2021-10-17 18:16
+
+
+感觉蜡烛那边有点邪，哈哈哈，蚌埠住了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kata魂  
+##### 2244#       发表于 2021-10-17 18:17
+
+
+我真的不是在看缪斯？
+
+
+*****
+
+####  ads147147  
+##### 2245#       发表于 2021-10-17 18:17
+
+
+不是，你不排练，大雪天露天跳舞，真就魔幻解决一切么。
+
+这衣服，还不如全部纯白。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  离心  
+##### 2246#       发表于 2021-10-17 18:17
+
+
+二单!是二单!
+
+
+*****
+
+####  Norkey1  
+##### 2247#       发表于 2021-10-17 18:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">典中典
+
+
+*****
+
+####  Arccueid  
+##### 2248#       发表于 2021-10-17 18:17
+
+
+也太几把典了
+
+
+*****
+
+####  depthlee  
+##### 2249#       发表于 2021-10-17 18:18
+
+
+liella是不是离不开冬装了……这个大棉被！
+
+
+*****
+
+####  ads147147  
+##### 2250#       发表于 2021-10-17 18:18
+
+
+我知道是致敬，但是我想看的不是这个啊。真一点意外没有了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 2251#       发表于 2021-10-17 18:19
+
+
+这演出服…说实话不太行来自: iPhone客户端
+
+
+*****
+
+####  JustW  
+##### 2252#       发表于 2021-10-17 18:20
+
+
+毫无意外的2nd
+
+
+*****
+
+####  kata魂  
+##### 2253#       发表于 2021-10-17 18:20
+
+
+躺赢的sanipa
+
+
+*****
+
+####  kata魂  
+##### 2254#       发表于 2021-10-17 18:20
+
+
+真搞大事了？
+
+
+*****
+
+####  JustW  
+##### 2255#       发表于 2021-10-17 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该追飞机了
+
+
+*****
+
+####  depthlee  
+##### 2256#       发表于 2021-10-17 18:21
+
+
+这公告也太粗糙了……
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 2257#       发表于 2021-10-17 18:21
+
+
+我们是亚军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大的真的要来了吗
+
+

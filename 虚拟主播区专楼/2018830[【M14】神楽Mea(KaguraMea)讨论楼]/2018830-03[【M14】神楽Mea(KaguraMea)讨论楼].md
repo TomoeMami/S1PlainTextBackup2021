@@ -9904,3 +9904,36 @@ syl，战地看来是只能从队友视角来看了（
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">发生了什么，有没有个总结
 
 
+
+
+*****
+
+####  呓亘  
+##### 3889#       发表于 2021-10-17 18:04
+
+
+简单来说，就是你麻发了个推“好冷”，然后关了评论区，现在删了
+
+
+*****
+
+####  2014720  
+##### 3890#       发表于 2021-10-17 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162330&amp;ptid=2018830" target="_blank">咸鱼渣 发表于 2021-10-17 18:00</a>
+发生了什么，有没有个总结</blockquote>
+【【熟】《因变成了不够有趣的普通人而被观众嫌弃到下播》【神楽めあ】-哔哩哔哩】https://b23.tv/yzzv3j
+
+<img src="https://p.sda1.dev/2/6f21bb04fae585e0fe6b8499e9f65d1a/IMG_CMP_159281895.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 3891#       发表于 2021-10-17 18:11
+
+
+这状态今晚可能要全程自闭了。这么好的联动被那不男不女毁了
+
+
