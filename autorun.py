@@ -8,7 +8,7 @@ import io
 import os
 import json
 
-old_number = 2029600
+old_number = 2030100+int((1634469075-int(time.time()))/86400)*175
 
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
