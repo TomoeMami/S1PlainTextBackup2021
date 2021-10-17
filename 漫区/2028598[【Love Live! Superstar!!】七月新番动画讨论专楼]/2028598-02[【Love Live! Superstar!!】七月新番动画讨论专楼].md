@@ -11179,3 +11179,275 @@ nonfiction≥tiny stars＞常夏＞starlight＞wishsong   反正恋是输麻�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实在香音闪现见小千那里是可以补上描写的，但“全世界都应该看的”第六集并没有支棱起来
 
 
+
+
+*****
+
+####  shine888kire  
+##### 2422#       发表于 2021-10-17 21:01
+
+
+说实话偶像企划是蛮吃厨力，无论是对粉丝还是STAFF都是这样的，星团问题是来的太快了还没展现出吸引的地方，粉丝还能靠企划推继承些，这批老班底的STAFF大概对这个企划已经没什么特别感受了，就是普通工作了，标准的做完拉倒了
+
+
+*****
+
+####  shqingda_  
+##### 2423#       发表于 2021-10-17 21:02
+
+
+熟肉出了
+
+
+*****
+
+####  player3960  
+##### 2424#       发表于 2021-10-17 21:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165201&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-17 20:57:53</a>
+信不信在花田那可可回国的事已经解决了</blockquote>解决了也无所谓，个人回不演追飞机还能看得别的不是吗？我只想要看可可回，演好演满一整集的可可回啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  寒风夜  
+##### 2425#       发表于 2021-10-17 21:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165257&amp;ptid=2028598" target="_blank">shine888kire 发表于 2021-10-17 21:01</a>
+
+说实话偶像企划是蛮吃厨力，无论是对粉丝还是STAFF都是这样的，星团问题是来的太快了还没展现出吸引的地方 ...</blockquote>
+真实，毕竟在初代都磨了好几年啊
+
+
+*****
+
+####  寒风夜  
+##### 2426#       发表于 2021-10-17 21:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165257&amp;ptid=2028598" target="_blank">shine888kire 发表于 2021-10-17 21:01</a>
+
+说实话偶像企划是蛮吃厨力，无论是对粉丝还是STAFF都是这样的，星团问题是来的太快了还没展现出吸引的地方 ...</blockquote>
+
+
+*****
+
+####  ads147147  
+##### 2427#       发表于 2021-10-17 21:05
+
+
+两个感觉，要么是这是工作在敷衍，要么就是还有什么上头的人要求必须按缪的来写，逼着staff来摆烂求救。
+
+
+请告诉我是后者，这样我就不黑花田了，现在我都有看到花田就反刍的ptsd了。
+
+
+*****
+
+####  lj205  
+##### 2428#       发表于 2021-10-17 21:06
+
+
+<blockquote>player3960 发表于 2021-10-17 21:02
+解决了也无所谓，个人回不演追飞机还能看得别的不是吗？我只想要看可可回，演好演满一整集的可可回啊[f:025 ...</blockquote>
+谁不想看啊……包括solo ed…………我刚还是边吃饭边看的……最后五人版响起来我都快吃不下东西了……
+
+
+*****
+
+####  JustW  
+##### 2429#       发表于 2021-10-17 21:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这季tv另一个值得欣慰点：没有踩政治红线。前期有人略不满的可可拜偶像，在成为了最后一集角色塑造的垫脚石。
+
+
+*****
+
+####  saya1892  
+##### 2430#       发表于 2021-10-17 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165040&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-17 20:49</a>
+
+我看了下图片后续名是推特的吧，有推特原地址吗？</blockquote>
+K-BOOKS 秋葉原ライブ部門
+
+@kb_akb_live
+[https://twitter.com/kb_akb_live/status/1449706787507113989](https://twitter.com/kb_akb_live/status/1449706787507113989)
+
+
+
+
+*****
+
+####  寒风夜  
+##### 2431#       发表于 2021-10-17 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165319&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 21:05</a>
+
+两个感觉，要么是这是工作在敷衍，要么就是还有什么上头的人要求必须按缪的来写，逼着staff来摆烂求救。
+
+
+ ...</blockquote>
+就没热情呗，挺难后者的
+
+
+*****
+
+####  寒风夜  
+##### 2432#       发表于 2021-10-17 21:08
+
+
+ 本帖最后由 寒风夜 于 2021-10-17 21:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165319&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 21:05</a>
+
+两个感觉，要么是这是工作在敷衍，要么就是还有什么上头的人要求必须按缪的来写，逼着staff来摆烂求救。
+
+
+ ...</blockquote>
+。。不发布意见了 疯狂风怒
+
+
+*****
+
+####  JustW  
+##### 2433#       发表于 2021-10-17 21:08
+
+
+ 本帖最后由 JustW 于 2021-10-17 21:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165319&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 21:05</a>
+
+两个感觉，要么是这是工作在敷衍，要么就是还有什么上头的人要求必须按缪的来写，逼着staff来摆烂求救。
+
+
+ ...</blockquote>
+花田应该决定不了大的走向以及哪集唱什么歌，他的问题还是具体细节太糙了，哪怕第八集大纲上写着让香音拉恋入队，把会场那段写得那么尬也绝对有他的锅。监督问题也不小，很多地方都是演出等方面太拉了兜不住底，否则观众睁一只眼闭一只眼就过去了。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">第十一集玩前人已经玩过的桥段，还能差那么大一截，水平就是不行。
+
+
+*****
+
+####  凡人  
+##### 2434#       发表于 2021-10-17 21:09
+
+
+星团第三话不是隔了一个月也做不成那样。不过真就没有可可solo的ed啊
+
+
+*****
+
+####  最强惠酱  
+##### 2435#       发表于 2021-10-17 21:09
+
+
+好普通，衣服一般，歌一般，展开复刻，还有怎么觉得live小千的手绘镜头特别多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+总的来说还不及奥尔加live带给我的触动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+本来宣传图带给我一种在群众中路边偶像的感觉，结果第二集之后第一集带给我的街边氛围全消失了
+
+
+*****
+
+####  saglork  
+##### 2436#       发表于 2021-10-17 21:09
+
+
+还行吧，就是过于snowhala有点想笑，捧蜡烛那一路实在邪教，比雪中行军诡异太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+一季看完，总体上我想看的lovelive的内容基本也都有了，毕竟各种经典复刻，算不上太好也算不上太烂，花田京极平均水平，可可的个人回丢到二期，恋处理的太微妙算是比较遗憾
+从厨角色角度，可可和堇基本好球带，香音和小千祖传幼驯染也算很不错，恋就只能看中之人整活了，哪怕最后一集感觉她都是最多余的一个人，没CP在主线团建外的日常剧情里存在感实在堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+live和歌的角度，总体感觉还不如水，lovelive的歌的质量个人感觉是一代不如一代的，从水剧场版开始就各种一言难尽，只能偶尔出精品，当然也可能是个人审美没跟上时代的进步<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+又是一轮等待了，期待二期的日常整活和新live了
+
+
+*****
+
+####  秋月艾莉  
+##### 2437#       发表于 2021-10-17 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165319&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 21:05</a>
+
+两个感觉，要么是这是工作在敷衍，要么就是还有什么上头的人要求必须按缪的来写，逼着staff来摆烂求救。
+
+
+ ...</blockquote>
+我确实感觉是有要求要按缪的来写，比起单纯致敬我更倾向是有意为之的复刻
+
+这次换在NHK教育台黄金档播，考虑到可能面向的新观众群，制作组目的大概想搞的不是LL第四作，而是新LL第一作，所以把历代经典要素包括搞笑段子都全部拉出来再搞一遍，一些节奏飞快和用力过猛的地方也是出于日本人搞子供向节目时最喜欢复读的わかりやすい
+
+好不好就另说
+
+
+*****
+
+####  saglork  
+##### 2438#       发表于 2021-10-17 21:17
+
+
+说起来萨尼啪这贯穿整季的存在感居然都换不来一场祖传的敌团2d手绘live吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这赢得一点说服力没有啊
+只能说这经费人手和工期都不比当年了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  welcom  
+##### 2439#       发表于 2021-10-17 21:18
+
+
+看完生肉，感觉像是半年番的第12集
+
+
+*****
+
+####  player3960  
+##### 2440#       发表于 2021-10-17 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165397&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-17 21:10:28</a>
+我确实感觉是有要求要按缪的来写，比起单纯致敬我更倾向是有意为之的复刻
+
+这次换在NHK教育台黄金档播，考 ...</blockquote>确实感觉这代各方面都有点偏低龄向，缪斯时期还能搞揉胸希魔玩玩擦边，这部完全没这种桥段，而且服装除了第10话外都是看着很健全的样子，这话的服装更是让我感觉简直子供番里出来的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  哀引起芬芳  
+##### 2441#       发表于 2021-10-17 21:22
+
+
+发的熟肉貌似下不动啊，有认识字幕组的可以让他们再传一下吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  qds  
+##### 2442#       发表于 2021-10-17 21:22
+
+
+看完生肉，还是觉得剧情怎么样其实不重要了，平稳落地致敬初代不也挺好
+有可香有live有美少女我就很满足了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qds  
+##### 2443#       发表于 2021-10-17 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165667&amp;ptid=2028598" target="_blank">哀引起芬芳 发表于 2021-10-17 21:22</a>
+发的熟肉貌似下不动啊，有认识字幕组的可以让他们再传一下吗
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+下的动啊，现在我下了六十多了
+
+

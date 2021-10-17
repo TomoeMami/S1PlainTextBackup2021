@@ -10198,3 +10198,26 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  红焖菠菜  
+##### 2239#       发表于 2021-10-17 21:06
+
+
+这集op换成了合唱版啊，不知道会不会收录进ost。
+
+
+*****
+
+####  最强惠酱  
+##### 2240#       发表于 2021-10-17 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165327&amp;ptid=1963832" target="_blank">红焖菠菜 发表于 2021-10-17 21:06</a>
+
+这集op换成了合唱版啊，不知道会不会收录进ost。</blockquote>
+一般角色歌专会收录合唱版
+
+
