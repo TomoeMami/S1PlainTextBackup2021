@@ -10026,3 +10026,23 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 珊瑚什么的，都是路人
 
 
+
+
+*****
+
+####  DARK_HGCG  
+##### 2224#       发表于 2021-10-17 08:04
+
+
+笑死，这不就是Q娃版的POP子和PIPI美吗
+
+
+*****
+
+####  kerfars  
+##### 2225#       发表于 2021-10-17 08:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，和肌肉杠上了是吧
+
+
