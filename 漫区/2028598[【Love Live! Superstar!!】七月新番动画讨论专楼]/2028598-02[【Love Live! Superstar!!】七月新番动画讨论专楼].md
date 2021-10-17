@@ -12196,3 +12196,52 @@ CW曲试听出来了，毫不犹豫选10话盘
 熟肉看完了，算不上满意但是因为三次元挺香的就不黑动画了，等第二季，还是期待的。
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 2502#       发表于 2021-10-18 00:09
+
+
+草，我还在看ts和干爹，都没注意熟肉已经出了
+
+
+*****
+
+####  player3960  
+##### 2503#       发表于 2021-10-18 00:15
+
+
+动画拉了没办法，这企划最后总归还是要回到三次元团，先预祝20场live都成功举办吧，姑娘们也够辛苦的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 2504#       发表于 2021-10-18 00:20
+
+
+话说现在live能发声吗
+
+
+*****
+
+####  绯想alter2nd  
+##### 2505#       发表于 2021-10-18 00:22
+
+
+最后一集作为最后一集太稳健了，但是可可你怎么还乐呵呵一起训练啊，你姐姐啥时候上门拎你回上海<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Skyline_R  
+##### 2506#       发表于 2021-10-18 00:22
+
+
+终于结束了，终于不用老是提心吊胆+日常性被花田折磨了，去看中之人贴贴罢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
