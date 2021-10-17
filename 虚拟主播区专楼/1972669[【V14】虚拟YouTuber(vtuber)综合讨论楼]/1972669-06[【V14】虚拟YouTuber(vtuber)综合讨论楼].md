@@ -2135,3 +2135,23 @@ https://www.freem.ne.jp/win/game/26861
 兔头自制游戏发布了
 
 
+
+
+*****
+
+####  TiHaru  
+##### 7652#       发表于 2021-10-17 13:55
+
+
+技术是指顶级ar渲染还是日常拉垮动捕啊🤔
+
+
+*****
+
+####  OldGlory  
+##### 7653#       发表于 2021-10-17 13:57
+
+
+其实没那么大技术差距<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无非渲染和材质上选择不同，硬件上都差不多
+
+
