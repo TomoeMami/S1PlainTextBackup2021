@@ -9763,3 +9763,17 @@ emmmmmmm 真就不动弹啊
 怎么回事呢？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路人庚  
+##### 3878#       发表于 2021-10-17 09:15
+
+
+虽然但是，那位也只是个随处可见的立本dd罢了
+
+
+而且他hololive看的不少，最近还给kson点赞来着（
+
+
