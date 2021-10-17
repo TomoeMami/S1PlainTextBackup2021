@@ -10221,3 +10221,16 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 一般角色歌专会收录合唱版
 
 
+
+
+*****
+
+####  李可  
+##### 2241#       发表于 2021-10-18 01:39
+
+
+笑疯了，真的好像在看pop子
+
+—— 来自 Xiaomi M2105K81AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
