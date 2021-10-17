@@ -10451,3 +10451,160 @@ TVアニメ『ラブライブ！スーパースター!!』
 交叉出画画打工人也挺累的
 
 
+
+
+*****
+
+####  寒风夜  
+##### 2363#       发表于 2021-10-17 19:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">5人拉了也挺费解的，钱这么多找不到个靠谱的，真浪费
+
+
+*****
+
+####  JustW  
+##### 2364#       发表于 2021-10-17 19:05
+
+
+ 本帖最后由 JustW 于 2021-10-17 19:08 编辑 
+
+我坚持认为香音是星团tv塑造最一言难尽的角色。恋可能问题也大，但她毕竟不是立德，无法左右整部作品的调子。香音看上去是最不像lovelive立德的立德，但却是缝合样板戏的一个缩影。  哪怕staff为她浓墨重彩写了一个成长故事，但她却为整出戏牺牲了太多。在个人回和取名回里，未成长完全的香音仍然承担着主动拖人入团的工作，在终于成长结束后，就需要让自己从只是想唱歌立马奔赴lovelive大主题（为了解释这些东西的合理性，小千这个角色也牺牲了很多）。最后的结果就是，无论香音自己的成长故事，还是星团迈向lovelive的故事，都算不得成功。
+
+
+  香音只是一个缩影，折射出了星团tv现状：staff虽然把表面的创新工作做得很足（五人团、被动立德、纯外国人……），但却没有一丝一毫向前突破的勇气。在商业上迫切想要吸引新观众，但不敢在配方上做任何实验。
+
+
+*****
+
+####  寒风夜  
+##### 2365#       发表于 2021-10-17 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163527&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 19:05</a>
+
+我坚持认为香音是星团tv塑造最一言难尽的角色。恋可能问题也大，但她毕竟不是立德，无法左右整部作品的调子 ...</blockquote>
+矛盾构成太不行了。
+
+
+*****
+
+####  寒风夜  
+##### 2366#       发表于 2021-10-17 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们粉丝看到又是3次元吊打2次元也挺难的
+
+
+*****
+
+####  JustW  
+##### 2367#       发表于 2021-10-17 19:12
+
+
+我开播前的预期是：样板戏，但会是角色塑造比较详细的样板戏。毕竟你目前只有五个角色。前三集又证明了，三集可以塑造好两个角色，剩下还有十集，躺着都赢了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果……
+
+
+*****
+
+####  寒风夜  
+##### 2368#       发表于 2021-10-17 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163527&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 19:05</a>
+
+我坚持认为香音是星团tv塑造最一言难尽的角色。恋可能问题也大，但她毕竟不是立德，无法左右整部作品的调子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">不彻底换新是变不了 
+
+
+*****
+
+####  寒风夜  
+##### 2369#       发表于 2021-10-17 19:15
+
+
+不如偶活星 完了
+
+
+*****
+
+####  黑雪姫  
+##### 2370#       发表于 2021-10-17 19:15
+
+
+气死了，只能说这片如果没有唐可可鬼都不看。
+
+
+
+
+*****
+
+####  ads147147  
+##### 2371#       发表于 2021-10-17 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163527&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 19:05</a>
+我坚持认为香音是星团tv塑造最一言难尽的角色。恋可能问题也大，但她毕竟不是立德，无法左右整部作品的调子 ...</blockquote>
+资本的软弱性。有一说一，求稳可以理解，毕竟上次不求稳去作死的，我想想就一堆。问题是这不是花田用样板戏还用烂了的理由，京极还给这种剧本拍板，他们真的不知道这样写很烂么，不。那他们就是在摆烂。
+
+空我只是昙花一现，后面就是时王。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  寒风夜  
+##### 2372#       发表于 2021-10-17 19:18
+
+
+嘛，完全的没热情阿 花大叔
+
+
+*****
+
+####  寒风夜  
+##### 2373#       发表于 2021-10-17 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163713&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 19:17</a>
+
+资本的软弱性。有一说一，求稳可以理解，毕竟上次不求稳去作死的，我想想就一堆。问题是这不是花田用样板 ...</blockquote>
+翻啦
+
+
+*****
+
+####  寒风夜  
+##### 2374#       发表于 2021-10-17 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163713&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 19:17</a>
+
+资本的软弱性。有一说一，求稳可以理解，毕竟上次不求稳去作死的，我想想就一堆。问题是这不是花田用样板 ...</blockquote>
+翻啦
+
+
+*****
+
+####  JustW  
+##### 2375#       发表于 2021-10-17 19:24
+
+
+ 本帖最后由 JustW 于 2021-10-17 19:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163713&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 19:17</a>
+
+资本的软弱性。有一说一，求稳可以理解，毕竟上次不求稳去作死的，我想想就一堆。问题是这不是花田用样板 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和霓虹其它的超级ip相比，星团tv倒也远不算最摆烂的，至少没有和系列精神对着干，也没有技术力开倒车，哈哈哈
+
+
+*****
+
+####  lj205  
+##### 2376#       发表于 2021-10-17 19:24
+
+
+鲤鱼这是蹲了多低？
+
+

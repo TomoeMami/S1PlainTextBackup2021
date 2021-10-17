@@ -2350,3 +2350,26 @@ as的后台有世界第一 ...</blockquote>
 inui唱这种歌还蛮少见的诶…
 
 
+
+
+*****
+
+####  Ketestrait  
+##### 7666#       发表于 2021-10-17 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53161301&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-10-17 16:34</a>
+
+所以黄兔子输在哪了？</blockquote>
+既不会打世界通用的大众游戏也不会奥数魔刃，输在地基上
+
+
+*****
+
+####  IDIDIDID  
+##### 7667#       发表于 2021-10-17 19:22
+
+
+bora的笑声已经被另外两个ドブボ带偏了
+
+
