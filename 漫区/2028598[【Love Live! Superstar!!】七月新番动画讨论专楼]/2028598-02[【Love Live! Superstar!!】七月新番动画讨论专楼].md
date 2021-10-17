@@ -11925,3 +11925,148 @@ LL其实已经是个靠惯性就能走下去的东西了，大概花田他们已
 加油加油还有一把<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  liu461  
+##### 2481#       发表于 2021-10-17 23:02
+
+
+下面八坚持放猛犸的头铁精神确实十分花田<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 2482#       发表于 2021-10-17 23:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167544&amp;ptid=2028598" target="_blank">liu461 发表于 2021-10-17 23:02</a>
+
+下面八坚持放猛犸的头铁精神确实十分花田</blockquote>
+あきらめない気持ち　あきらめない気持ち！
+
+
+*****
+
+####  L-JoeW  
+##### 2483#       发表于 2021-10-17 23:11
+
+
+补了一下，没太看懂拉学生会长入伙那段的剧情，按照最后结果来看学生会长的妈妈应该是很希望偶像活动能够延续的吧，但为什么要把自己参加偶像部的证据全都藏起来，还不给孩子明说一直当谜语人？如果没有可可转校拉参加大赛拉帮结伙跟踪会长等等这些机缘巧合之下最后发现了照片和活动记录（至少凭学生会长自己基本没法做到），她妈妈的那段青春说不定就被她亲手封存扼杀了，与其说是让学生会长自己选择，不如说这些举动都像是在故意引导她向负面理解。理事长也像个乐子人在这件事之后才改校服，如果没发生这些事可能就直接不给会长说了。
+
+
+*****
+
+####  kata魂  
+##### 2484#       发表于 2021-10-17 23:12
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/230945aimkubufbpummk1b.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (107.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 23:09 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/230950p8cca4vgciaccyyv.png" referrerpolicy="no-referrer">
+
+
+<strong>22.png</strong> (13.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 23:09 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/230955t9toiueitv9poabb.png" referrerpolicy="no-referrer">
+
+
+<strong>33.png</strong> (17.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 23:09 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">甭管你是谁，只要是对手就有你没我。喜欢可可这种公私分明的性格
+
+
+*****
+
+####  秋月艾莉  
+##### 2485#       发表于 2021-10-17 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老观众就不能感恩吗
+
+小夫：那可是花田啊！.jpg
+
+有几个绝活了还想如何，向花田带老师要求更多这种行为需要自省啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 2486#       发表于 2021-10-17 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167652&amp;ptid=2028598" target="_blank">L-JoeW 发表于 2021-10-17 23:11</a>
+
+补了一下，没太看懂拉学生会长入伙那段的剧情，按照最后结果来看学生会长的妈妈应该是很希望偶像活动能够延 ...</blockquote>
+跟女儿说了，女儿耳朵不太好使记性也不太好，忘了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 2487#       发表于 2021-10-17 23:19
+
+
+ 本帖最后由 JustW 于 2021-10-17 23:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理事长：马上废校了我也不急，等小孩自己开悟自己救学校，哎，就是玩
+
+
+恋爹：什么？老婆孩子想办的学校？能赚钱吗？
+
+
+*****
+
+####  lanslort  
+##### 2488#       发表于 2021-10-17 23:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我觉得这最终回比水水舞台剧尬演还难看，再也不黑酒井和男了（虽然人家也彻底不想跟你拉扯上关系了
+
+用老梗也算了，偏偏还要把缪缪两季里最生草的跑大街拉出来用，也不是停电用烛光铺路简直比铲雪还要生草
+
+
+*****
+
+####  kxh007458  
+##### 2489#       发表于 2021-10-17 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166635&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 22:19</a>
+
+看了眼熟肉，有个很大的疑惑。恋爹是什么鬼，女儿一个人住大宅，女仆雇不起，结果学校有点起色，突 ...</blockquote>
+就是寻常套路里的不支持另一半或者下一代去做某件事，断你资金逼你回头，最后做出成绩来了自己也醒悟感动转为支持嘛。
+
+
+*****
+
+####  JustW  
+##### 2490#       发表于 2021-10-17 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167779&amp;ptid=2028598" target="_blank">kxh007458 发表于 2021-10-17 23:21</a>
+
+就是寻常套路里的不支持另一半或者下一代去做某件事，断你资金逼你回头，最后做出成绩来了自己也醒悟感动 ...</blockquote>
+断资金断到让女儿独守空房，也是有点过于斯巴达了吧
+
+
