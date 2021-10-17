@@ -11451,3 +11451,162 @@ live和歌的角度，总体感觉还不如水，lovelive的歌的质量个人�
 下的动啊，现在我下了六十多了
 
 
+
+
+*****
+
+####  哀引起芬芳  
+##### 2444#       发表于 2021-10-17 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165690&amp;ptid=2028598" target="_blank">qds 发表于 2021-10-17 21:24:02</a>
+下的动啊，现在我下了六十多了</blockquote>是吗，群里问了一圈都没下动，那我再试试。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  shine888kire  
+##### 2445#       发表于 2021-10-17 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165319&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 21:05</a>
+
+两个感觉，要么是这是工作在敷衍，要么就是还有什么上头的人要求必须按缪的来写，逼着staff来摆烂求救。
+
+
+ ...</blockquote>
+LL其实已经是个靠惯性就能走下去的东西了，大概花田他们已经看明白了，只要给个标准流程混工资就好了，剩下的反正能靠基本盘和声优兜住的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 2446#       发表于 2021-10-17 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165667&amp;ptid=2028598" target="_blank">哀引起芬芳 发表于 2021-10-17 21:22</a>
+发的熟肉貌似下不动啊，有认识字幕组的可以让他们再传一下吗
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+年轻人吧，不知道BT做种逻辑吧。别着急等等就能下动了。
+
+
+*****
+
+####  kata魂  
+##### 2447#       发表于 2021-10-17 21:34
+
+
+是哪个字幕组的，我去看看，这集别的不说可堇那段还是很有爱的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 2448#       发表于 2021-10-17 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165606&amp;ptid=2028598" target="_blank">welcom 发表于 2021-10-17 21:18</a>
+
+看完生肉，感觉像是半年番的第12集</blockquote>
+真是分割放松，时间线上这么跳跃的快赶也是不合格的。其实第一季就没必要刻意去追lovelive，就连废校啥的也直接机械降神一分钟就解决了，等于设定了个空气。还不如第一季就好好参加sif，铺垫好人物，第二季再去挖深人物性格去追lovelive。
+
+
+哪怕是抄体育番，也没第一年就去全国大赛的啊，结果又死命往那个方向渲染，最后一转失败大家继续努力，拍的这叫啥啊。
+
+
+*****
+
+####  寒风夜  
+##### 2449#       发表于 2021-10-17 21:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">结束了，对只看动画的我来说，只能说不好看吧，莫的任何触动，
+
+
+*****
+
+####  Gooddays  
+##### 2450#       发表于 2021-10-17 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165152&amp;ptid=2028598" target="_blank">寒风夜 发表于 2021-10-17 20:54</a>
+第二集香音不邀请千入队 搞得以为有 什么隔阂一样 结果什么都没</blockquote>
+故事中参加学园偶像便回普通科，而香音本身音乐科选拔失败及第三话上台前还可能唱不出来，怎也说不出相等于要小千放弃音乐科的话。音乐科也可能有高强度训练，小千平常指导一下香音她们问题不大，但真的参与便要同时练歌发采排，可能还要帮忙製作衣服道具，时间未必足够。
+
+当 LL 是否成功也不知道时，香音更不可能要小千放弃所有去跳进坑中，入读音乐科原本便是香音梦想，说出要求好友放弃音乐科的话不是易事。
+
+要求小千加入 LL 辛苦训练，然后香音自己上台唱不出来后落选，这样坑青梅的事她应干不出来。
+
+如非香音进不了音乐科她便不会参与 LL，她自己也是不情不愿地参加 LL 时，自然不好意思拖他人下水了。
+
+
+*****
+
+####  ads147147  
+##### 2451#       发表于 2021-10-17 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165818&amp;ptid=2028598" target="_blank">shine888kire 发表于 2021-10-17 21:30</a>
+
+LL其实已经是个靠惯性就能走下去的东西了，大概花田他们已经看明白了，只要给个标准流程混工资就好了，剩 ...</blockquote>
+真当是新世纪的高达。。。说吧，星是不是爱生活的seed
+
+
+*****
+
+####  lj205  
+##### 2452#       发表于 2021-10-17 21:41
+
+
+<img src="https://img.saraba1st.com/forum/202110/17/214057ptecwci78z3u7c5m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4CB4035D-A746-4040-A8C9-1677D3B830D3.jpeg</strong> (566.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-17 21:40 上传
+
+
+草
+
+
+*****
+
+####  寒风夜  
+##### 2453#       发表于 2021-10-17 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166023&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 21:41</a>
+
+真当是新世纪的高达。。。说吧，星是不是爱生活的seed</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">辱种了
+
+
+*****
+
+####  iuhehc  
+##### 2454#       发表于 2021-10-17 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166025&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-17 21:41</a>
+
+草</blockquote>
+莫名笑喷
+
+
+*****
+
+####  shine888kire  
+##### 2455#       发表于 2021-10-17 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53166023&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 21:41</a>
+
+真当是新世纪的高达。。。说吧，星是不是爱生活的seed</blockquote>
+最多W吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
