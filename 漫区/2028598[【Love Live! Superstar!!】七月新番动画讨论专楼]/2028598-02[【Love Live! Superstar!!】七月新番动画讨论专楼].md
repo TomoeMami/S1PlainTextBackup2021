@@ -12320,3 +12320,243 @@ CW曲试听出来了，毫不犹豫选10话盘
 花田大老师一般水平，这集可堇那段不错+舞台最后可可画的很可爱我就不抱怨了
 
 
+
+
+*****
+
+####  Makinohara  
+##### 2513#       发表于 2021-10-18 01:49
+
+
+这……我还是再去看一遍SH吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+以及最后看到苦呀西实在太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 2514#       发表于 2021-10-18 01:54
+
+
+草 真的全寄了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2515#       发表于 2021-10-18 02:03
+
+
+熟肉看完了，最后的live挺不错。
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">观感不好的地方就是开头机械降神一般解决学校的问题，恋恋这条线塑造得不太行。
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2516#       发表于 2021-10-18 02:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外日本冷不不清楚，不过上海冷个锤子啊。
+
+
+*****
+
+####  TTAA  
+##### 2517#       发表于 2021-10-18 02:05
+
+
+已经想开了，花田还有下一部，一定会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2518#       发表于 2021-10-18 02:06
+
+
+还有就是一群人从点着蜡烛的人群里走过观感微妙，普普通通带过去不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非得玩儿尬的。
+
+
+*****
+
+####  中野四葉  
+##### 2519#       发表于 2021-10-18 02:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冬天还是上海更冷点（体感上）
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 2520#       发表于 2021-10-18 02:10
+
+
+其实你们说，如果跟缪斯那样，立德跟部长职能分开会不会比现在好，在一些问题处理上也能放开手脚去写，
+
+立德是香音，动画里部长我一直觉得让可可当更适当，毕竟组建团队最初的缘由也是她，这样在处理入团问题的时候能更好的处理一直被诟病的全推给香音去干的问题
+
+果然还是大人的问题吧，立德和部长必须全是香音来当
+
+
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2521#       发表于 2021-10-18 02:15
+
+
+不懂就问前面帖子里提到的sh是指什么？
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 2522#       发表于 2021-10-18 02:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53170277&amp;ptid=2028598" target="_blank">灼眼的夏娜酱 发表于 2021-10-18 02:15</a>
+
+不懂就问前面帖子里提到的sh是指什么？</blockquote>
+Snow halation 
+
+μ's 二单
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2523#       发表于 2021-10-18 02:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53170371&amp;ptid=2028598" target="_blank">Pumpkin_ccc 发表于 2021-10-18 02:21</a>
+
+Snow halation 
+
+μ's 二单</blockquote>
+多谢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FortuneAura  
+##### 2524#       发表于 2021-10-18 02:35
+
+
+节奏好快，拆成两集讲是合适的，为啥不做到13集
+
+来自: iPhone客户端
+
+
+*****
+
+####  plazum  
+##### 2525#       发表于 2021-10-18 02:58
+
+
+ 本帖最后由 plazum 于 2021-10-18 03:27 编辑 
+
+9494，之前的五部动画不都是13集吗
+
+以及sunny passion到最后都没有完整的曲子啊
+
+以及这一集的舞台充分证明了之前一个帖子里的一个说法，即LL世界观里的学园偶像从本质上来说就是不科学的，又要干出专业级别的事，又要把干事情的人设定为中学生，很多问题最终都可以归结到这个问题上，当然我这里并不是想说什么问题，只是想提及一下这个“不可能”的论断，因为这集的演出舞台就远远超出了普通中学生乃至普通市民的能力范围<blockquote>五更子穹
+
+因为sanipa不亮血条啊，你怎么试图干死一个不亮血条的对手？十二集了我连sanipa的歌都没听过，我怎么知道香音和她的差距在哪儿？
+
+2021-10-17 23:38</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">精辟
+
+
+*****
+
+####  Arccueid  
+##### 2526#       发表于 2021-10-18 03:00
+
+
+只能说动画烂了其实也没啥感觉，比如这集又强行卡农换别的动画我可能就要狂喷了，但是放星团想到小百合有感觉没所谓了，实际上10-12也还行吧，样板戏就样板戏了。能一直看中之人活跃感觉就很舒服，2.99次元企划果然还是来看中之人的。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Piano-Forest  
+##### 2527#       发表于 2021-10-18 03:17
+
+
+[https://twitter.com/kamatamanankotu/status/1449697178104963072](https://twitter.com/kamatamanankotu/status/1449697178104963072)
+<img src="https://p.sda1.dev/2/6fe0199fda33e939c339feabd906a9ba/20211018_031415.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kage_33/status/1449724216278851585](https://twitter.com/kage_33/status/1449724216278851585)
+
+ラブライブ！スーパースター‼︎アニメ最終話お疲れ様でした！
+
+素晴らしい作品にWEB連載という形で関わることができて本当によかったです。
+
+ちょこっとリエラも最後までよろしくお願いします🦉
+<img src="https://p.sda1.dev/2/50feb913d30a4fd1212deda2563713e0/20211018_031433.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/KISAYU_/status/1449729860276920329](https://twitter.com/KISAYU_/status/1449729860276920329)
+
+【お知らせ】
+
+「ラブライブ！スーパースター!!」12話に登場した「Starlight Prologue」の衣装デザインをさせて頂きました。メンバーカラーメインに冬の星空の妖精のようなイメージでデザインしました。
+<img src="https://p.sda1.dev/2/d8f37b4036117279f9657ff69c76ae8a/20211018_031437.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/Lyytoaoitori/status/1449707831805063172](https://twitter.com/Lyytoaoitori/status/1449707831805063172)
+<img src="https://p.sda1.dev/2/6992f9ef882156cf8d5895bedb9baf22/20211018_031631.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 2528#       发表于 2021-10-18 03:18
+
+
+被楼友说得我都有点不敢看，一看还好，花田正常发挥吧，和水13还是有点差距
+
+
+*****
+
+####  AKUSTON  
+##### 2529#       发表于 2021-10-18 03:52
+
+
+上海和东京都是亚热带季风气候，但上海偏大陆性，东京是海洋性
+
+
+*****
+
+####  山岚夜雨  
+##### 2530#       发表于 2021-10-18 04:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53170698&amp;ptid=2028598" target="_blank">plazum 发表于 2021-10-18 02:58</a>
+9494，之前的五部动画不都是13集吗
+
+以及sunny passion到最后都没有完整的曲子啊
+
+以及这一集的舞台充分证明 ...</blockquote>
+嘛，其实这个算是观感崩了各种槽点都来了的一个表现吧。非要解释的话其实从ll系列来看不是什么大问题，因为ll世界里不比体育竞技番，对手实力多强不重要，重要的是主角团内部的成长，只要成长有了氛围到了到了基本就是见神杀神吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lozs  
+##### 2531#       发表于 2021-10-18 04:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53076247&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-11 15:49</a>
+可可的大招肯定留第二季了。
+
+肉眼看得出星团对可可的上心，不可能重拿轻放的，十有八九个人回要和主线绑定 ...</blockquote>
+第二季直接闪之轨迹2得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+去上海找可可，去德国小小千，去某个深山老林找恋，卡农家里蹲
+平安民警才是黎恩<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+

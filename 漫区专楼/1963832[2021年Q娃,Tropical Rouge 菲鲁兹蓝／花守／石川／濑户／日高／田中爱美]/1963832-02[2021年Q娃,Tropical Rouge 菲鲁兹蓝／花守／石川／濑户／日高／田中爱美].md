@@ -10234,3 +10234,25 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 —— 来自 Xiaomi M2105K81AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  loli公园巡游者  
+##### 2242#       发表于 2021-10-18 01:50
+
+
+马琳太可爱了
+
+—— 来自 Xiaomi Redmi K30 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  渡边菌  
+##### 2243#       发表于 2021-10-18 04:54
+
+
+我也想和珊瑚老婆换身体<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">越看越羡慕这次的反派了
+
+
