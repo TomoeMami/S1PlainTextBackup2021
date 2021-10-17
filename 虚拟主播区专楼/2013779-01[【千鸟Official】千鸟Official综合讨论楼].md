@@ -6298,3 +6298,18 @@ co宝多数时158衬衫酷盖，少数时超短裙软妹<img src="https://static
 大滑特滑<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Finsty  
+##### 554#       发表于 2021-10-17 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156215&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-10-17 01:07</a>
+只能说这届观众不行</blockquote>
+小年轻哪经得起阿姨诱惑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
