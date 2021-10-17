@@ -12587,3 +12587,28 @@ UMISEA原来是春天就开始准备了啊，为了准备这个还学了一阵�
 你怎么穿着古拉的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 7009#       发表于 2021-10-17 18:36
+
+
+今天有和船长的电台，再加上发了早安推，感觉又是不播的一天。按照现在的频率以后每周末看看存档可能才是最优解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+顺便mc中去EN服参观因为没认出ID的Reine又被箱推冲了(这次应该有不少外国箱推），点踩数久违的来到了4位数，而下面也多了个追记。在外面看到英文anti拿在英文圈受欢迎的jpliver们来踩确实蛮新奇的，再加上与其汴京的粉丝可能大部分是后期入坑没见过旧皮只知道apex的“新人”，就更是奇妙。
+
+
+还蛮好奇未来会变成什么样子的。不过也更好奇如果在18.19年那个没有版权问题的时间点以当时“游戏主播”的形态出现在如今已经成为holo主要客群的英文观众的面前会是什么光景，现在也只能奢望以后偶像梦做完后能考虑下晚年播游戏养老吧。
+
+
+syl,看到的前两期和船长广播的存档：[https://www.bilibili.com/video/B ... id_from=333.337.0.0](https://www.bilibili.com/video/BV1Lb4y1Y7G6?from=search&amp;seid=2095027680378100418&amp;spm_id_from=333.337.0.0)  
+
+
+                                                     [https://www.bilibili.com/video/B ... id_from=333.999.0.0](https://www.bilibili.com/video/BV1Tq4y1N7e7?spm_id_from=333.999.0.0)
+
+                              
+
+

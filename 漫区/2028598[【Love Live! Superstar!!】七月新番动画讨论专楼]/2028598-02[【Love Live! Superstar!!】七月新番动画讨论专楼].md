@@ -9344,3 +9344,762 @@ liella是不是离不开冬装了……这个大棉被！
 我们是亚军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大的真的要来了吗
 
 
+
+
+*****
+
+####  永恒的王牌  
+##### 2258#       发表于 2021-10-17 18:21
+
+
+果然第二啊
+
+
+*****
+
+####  Norkey1  
+##### 2259#       发表于 2021-10-17 18:21
+
+
+该回国了唐小姐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 2260#       发表于 2021-10-17 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">该来的要来了
+
+
+*****
+
+####  中野四葉  
+##### 2261#       发表于 2021-10-17 18:21
+
+
+歌不太抓人啊，感觉没sh那样让人眼前一亮
+
+
+*****
+
+####  a92063256  
+##### 2262#       发表于 2021-10-17 18:21
+
+
+剩两分钟能讲完追✈️吗<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Arccueid  
+##### 2263#       发表于 2021-10-17 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说实话真没感觉卡农有这么想赢
+
+这段有点用力过猛了
+
+
+*****
+
+####  ads147147  
+##### 2264#       发表于 2021-10-17 18:21
+
+
+真要结尾可可消失然后大家第二季见？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  JustW  
+##### 2265#       发表于 2021-10-17 18:21
+
+
+库亚西，京吹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 2266#       发表于 2021-10-17 18:22
+
+
+第二名，完了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 2267#       发表于 2021-10-17 18:22
+
+
+苦呀西<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  离心  
+##### 2268#       发表于 2021-10-17 18:22
+
+
+真到星三年级再夺冠是吧
+
+
+*****
+
+####  ads147147  
+##### 2269#       发表于 2021-10-17 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162683&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-17 18:21</a>
+说实话真没感觉卡农有这么想赢
+
+这段有点用力过猛了</blockquote>
+其实一直在渲染香音想赢了，但是之前铺垫的真的不好。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  JustW  
+##### 2270#       发表于 2021-10-17 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162691&amp;ptid=2028598" target="_blank">离心 发表于 2021-10-17 18:22</a>
+
+真到星三年级再夺冠是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那第二季该滑铁卢了
+
+
+*****
+
+####  tiro_finale  
+##### 2271#       发表于 2021-10-17 18:23
+
+
+情绪处理有点一般，前面把气氛炒热后啥也不铺垫马上原地寄，蛮生硬的
+
+
+*****
+
+####  Arccueid  
+##### 2272#       发表于 2021-10-17 18:23
+
+
+好了完结撒花，估计可可回在第二季前段了
+
+
+*****
+
+####  kata魂  
+##### 2273#       发表于 2021-10-17 18:23
+
+
+前半段挺正常的，怎么收尾就有问题了啊·····
+
+
+*****
+
+####  稀勢のささ  
+##### 2274#       发表于 2021-10-17 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">并 没 有
+
+
+*****
+
+####  中野四葉  
+##### 2275#       发表于 2021-10-17 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没烂活 至少分应该是保住了
+
+
+*****
+
+####  永恒的王牌  
+##### 2276#       发表于 2021-10-17 18:23
+
+
+这次ED是全员欸
+
+
+*****
+
+####  Arccueid  
+##### 2277#       发表于 2021-10-17 18:24
+
+
+哦还有桑泥帕的live真就一场不放啊
+
+
+*****
+
+####  JustW  
+##### 2278#       发表于 2021-10-17 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的评价是：花田平均水平
+
+
+*****
+
+####  chenflyyy  
+##### 2279#       发表于 2021-10-17 18:24
+
+
+标准的样板戏，标准到我都不知道该说什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大哀之君  
+##### 2280#       发表于 2021-10-17 18:24
+
+
+没整明白为啥学校放寒假了也不给她们弄个练舞房什么的。大雪天光胳膊光腿在天台练习也太硬核了
+
+
+
+
+*****
+
+####  离心  
+##### 2281#       发表于 2021-10-17 18:24
+
+
+嘛，至少平稳落地了。至少算是为了二期留个悬念。还行吧
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 2282#       发表于 2021-10-17 18:24
+
+
+我觉得不太行，看完心情毫无波动，还没有第三集能打动我，另外不出意外的话应该会有第二季的吧？
+
+
+*****
+
+####  Norkey1  
+##### 2283#       发表于 2021-10-17 18:24
+
+
+这么多年过去没有一点进步啊
+
+
+*****
+
+####  ads147147  
+##### 2284#       发表于 2021-10-17 18:24
+
+
+香音传第一季结束了。
+
+以香音为第一目的来写的话，花田发挥的确实不好，反而是传统主役性格的可可和搞笑役的堇写的很好，恋和千都在崩溃边缘。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  寒风夜  
+##### 2285#       发表于 2021-10-17 18:25
+
+
+好快哦 。。
+
+
+*****
+
+####  tiro_finale  
+##### 2286#       发表于 2021-10-17 18:25
+
+
+不过这集可可相当的可爱，主线不出大事就随便了
+
+
+*****
+
+####  kata魂  
+##### 2287#       发表于 2021-10-17 18:25
+
+
+现在我都开始怀疑可可那个拿不到成绩就回国到底有没有用······
+
+
+*****
+
+####  a92063256  
+##### 2288#       发表于 2021-10-17 18:26
+
+
+恋家里的事雷声大雨点小，可可的事也是高高拿起留到第二季放下<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">不过反正最后一集没出大幺蛾子就算胜利
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  CharlieZ-  
+##### 2289#       发表于 2021-10-17 18:26
+
+
+那个。。。没赢就要回中国这个伏笔是不是忘了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 2290#       发表于 2021-10-17 18:26
+
+
+好平稳....可以说是无聊了，没有任何波澜的结束了...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 2291#       发表于 2021-10-17 18:26
+
+
+不像最后 
+
+
+*****
+
+####  a85982313  
+##### 2292#       发表于 2021-10-17 18:26
+
+
+太标准了，应该是最拉拉味+最花田味的一集了吧
+
+
+*****
+
+####  中野四葉  
+##### 2293#       发表于 2021-10-17 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这集最大的怨念是歌一般
+
+
+*****
+
+####  ads147147  
+##### 2294#       发表于 2021-10-17 18:27
+
+
+只能说，花田就这点本事，让他创新怕不是杀了他还更简单点。
+
+neta2单我也喜欢大家都是纯白加少量本色点缀的设计，舞台设计的也很刻意，只能说目标根本不是老粉丝而是那些啥也没看过的新人，不过这故事想要拉新人，在现在的战国时代，难。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  cybernetics31  
+##### 2295#       发表于 2021-10-17 18:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 普普通通够了啊 还想水团那样再来一次？
+
+
+*****
+
+####  depthlee  
+##### 2296#       发表于 2021-10-17 18:27
+
+
+总觉得这不算平稳落地吧，着不完全燃烧，或者说完全没烧起来的结尾真是……
+
+
+*****
+
+####  cao1rui2  
+##### 2297#       发表于 2021-10-17 18:27
+
+
+全在意料之中，这集不适合当最后一集
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 2298#       发表于 2021-10-17 18:28
+
+
+平稳落地吧，刚成团就都内第二名也算好成绩吧，这样就不用回国啦，可可事件完美解决（）
+
+
+*****
+
+####  寒风夜  
+##### 2299#       发表于 2021-10-17 18:28
+
+
+太平稳l
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 2300#       发表于 2021-10-17 18:28
+
+
+我现在就很心疼恋，自己的高光回基本没有，五个人还没处理好真是绝了
+
+
+*****
+
+####  永恒的王牌  
+##### 2301#       发表于 2021-10-17 18:28
+
+
+ 本帖最后由 永恒的王牌 于 2021-10-17 18:30 编辑 
+
+只能说这季LL全是可可在C，前三集第十集之外不是烂活就是样板戏（11话小百合solo还不错），绝啦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2302#       发表于 2021-10-17 18:28
+
+
+现在最奇怪的是 可可的家人真就一声不吭啊···恋好歹还有个女仆
+
+
+*****
+
+####  damian-wade  
+##### 2303#       发表于 2021-10-17 18:28
+
+
+最终话全盘照抄SH，很是无语，致敬不是这样致敬的，sp这么多戏份，居然一次都不能播她们的歌，算是几个意思
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  凡人  
+##### 2304#       发表于 2021-10-17 18:28
+
+
+香音：我要给结丘带来一座总冠军，我不想拖，就明年
+
+
+*****
+
+####  优妮可  
+##### 2305#       发表于 2021-10-17 18:29
+
+
+这集感觉像是十二十三集各剪一半拼成的，算了，平稳也好。
+
+
+*****
+
+####  寒风夜  
+##### 2306#       发表于 2021-10-17 18:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 2307#       发表于 2021-10-17 18:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一路高歌猛进到唱歌结束唐突一闷棍给你打回原形然后苦呀西不行我要开二周目，这tm是最终话啊，我知道你有二期但咱不要这么躺行不行
+
+
+*****
+
+####  寒风夜  
+##### 2308#       发表于 2021-10-17 18:30
+
+
+来首歌啊啊
+
+
+*****
+
+####  ads147147  
+##### 2309#       发表于 2021-10-17 18:31
+
+
+我来一句虹赢了应该不过分吧。
+
+花田十辉真该滚蛋了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  寒风夜  
+##### 2310#       发表于 2021-10-17 18:31
+
+
+躺平了属于是  
+
+
+
+
+*****
+
+####  AlfredXC  
+##### 2311#       发表于 2021-10-17 18:31
+
+
+说不定可可回上海过个年就回不来了
+
+
+*****
+
+####  待宵  
+##### 2312#       发表于 2021-10-17 18:32
+
+
+这live不如第十集
+
+
+*****
+
+####  player3960  
+##### 2313#       发表于 2021-10-17 18:32
+
+
+所以当初为啥只有12集，多一集会死哦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 2314#       发表于 2021-10-17 18:32
+
+
+嘛，没整烂活就是胜利，安心期待接下来的生放和live了
+
+
+*****
+
+####  寒风夜  
+##### 2315#       发表于 2021-10-17 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162918&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 18:31</a>
+
+我来一句虹赢了应该不过分吧。
+
+
+花田十辉真该滚蛋了</blockquote>
+同意了
+
+
+*****
+
+####  lj205  
+##### 2316#       发表于 2021-10-17 18:33
+
+
+<blockquote>kata魂 发表于 2021-10-17 18:28
+现在最奇怪的是 可可的家人真就一声不吭啊···恋好歹还有个女仆</blockquote>
+你看看千呢，连家都没
+
+
+*****
+
+####  寒风夜  
+##### 2317#       发表于 2021-10-17 18:33
+
+
+不如 留白诶
+
+
+*****
+
+####  AlfredXC  
+##### 2318#       发表于 2021-10-17 18:33
+
+
+还有你这么大一个东京赛区只有一个名额吗？不再搞个入围赛什么的？
+
+
+*****
+
+####  ads147147  
+##### 2319#       发表于 2021-10-17 18:34
+
+
+不过细想下虹能赢估计也是当初冲着这是最后一次的机会努力铺了一个大合唱，第二期那个地狱一样的问题。
+
+只能说加油吧。
+
+这次星完全就是冲着有第二季摆烂，有第二季所以有的角色可以瞎几把写，到时候打补丁就更显得制作组对企划和观众的不尊重。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  寒风夜  
+##### 2320#       发表于 2021-10-17 18:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一年也太快了
+
+
+*****
+
+####  kata魂  
+##### 2321#       发表于 2021-10-17 18:35
+
+
+我懂了一单剧情全复刻在动画里了
+
+官方预料到可可二单会有中华炮，就把剧情设计在那里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  永恒的王牌  
+##### 2322#       发表于 2021-10-17 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53162918&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 18:31</a>
+
+我来一句虹赢了应该不过分吧。
+
+
+花田十辉真该滚蛋了</blockquote>
+虹拿9集一人一个个人回解决立德心结最后大合唱都比这星团动画好，花田你丫还要搞多少次经典重现啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 2323#       发表于 2021-10-17 18:35
+
+
+第一次追LL的动画，感觉能这样平稳的结束就已经不错了，至少没做成七八集那种水平，但是歌确实一般般，没有民警c位那首好听，风格也没有那首亮眼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  綿Tower  
+##### 2324#       发表于 2021-10-17 18:36
+
+
+继续听小星星好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kbtit  
+##### 2325#       发表于 2021-10-17 18:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这星团目前动画出了有什么意义吗，还不如索性直接整3次元卖歌卖live，省一笔动制作费，而且这最后一话作画居然还崩
+
+
+*****
+
+####  player3960  
+##### 2326#       发表于 2021-10-17 18:37
+
+
+歌一般，所以输了，合理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  寒风夜  
+##### 2327#       发表于 2021-10-17 18:37
+
+
+也特快了
+
+
+*****
+
+####  lj205  
+##### 2328#       发表于 2021-10-17 18:37
+
+
+不是厨上脑，我就是觉得卡农那句不甘心应该对着可可说
+
+
+*****
+
+####  笋狐  
+##### 2329#       发表于 2021-10-17 18:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不知道对面唱的啥就第一是不是有种钦定的....要空降第一能不能至少整个二赖子那样的叛教曲啊，你都致敬成这样了咋就这方面拉胯了呢
+
+
+*****
+
+####  hc04  
+##### 2330#       发表于 2021-10-17 18:40
+
+
+看来还是前三集把它拉到不该有的高度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 2331#       发表于 2021-10-17 18:40
+
+
+节奏太快咯，，歌也不如 初代2单
+
+
+*****
+
+####  ads147147  
+##### 2332#       发表于 2021-10-17 18:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">插入曲也确实不如二单，输炸了，也就是跳舞的部分比当初摆pose的二单好，问题是当年跳舞本来就因为cv的问题做了简化，没弄得那么夸张，现在只见到跳舞内卷了，歌曲没跟上，只能说时运如此。
+
+
+我知道花田搞这个想让老观众来电致敬的情怀，可是我看到的只有tm的生气，有能耐你弄成当年缪动画复刻的2单一样好啊。
+
+
+毒唯了，气。花田在我心中离冈妈只差一个希望之花了。
+
+
+*****
+
+####  lj205  
+##### 2333#       发表于 2021-10-17 18:40
+
+
+桑巴舞怎么可能让人判教
+
+
