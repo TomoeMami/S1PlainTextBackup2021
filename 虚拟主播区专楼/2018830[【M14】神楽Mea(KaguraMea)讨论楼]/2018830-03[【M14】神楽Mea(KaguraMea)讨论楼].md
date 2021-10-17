@@ -9735,3 +9735,31 @@ emmmmmmm 真就不动弹啊
 明天还有联动赶紧睡，不会真有人不想看你麻打bfv吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 3876#       发表于 2021-10-17 08:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156067&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-10-17 00:50</a>
+不如搓🐹打游戏睡觉，哪一项都比直播有意思</blockquote>
+这样想养宠物还是不错的，以前自己一个人生闷气，现在不开心了可以逗逗涮锅
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Dualist彩  
+##### 3877#       发表于 2021-10-17 08:19
+
+
+只能说，天狗都是神经病捏
+
+           
+
+怎么回事呢？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
