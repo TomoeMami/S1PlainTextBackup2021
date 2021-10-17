@@ -10929,3 +10929,253 @@ nonfiction≥tiny stars＞常夏＞starlight＞wishsong   反正恋是输麻�
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">系列作品还是换换阵 吧，
 
 
+
+
+*****
+
+####  player3960  
+##### 2402#       发表于 2021-10-17 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164898&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 20:38:08</a>
+我更担心的是，花田这笔还要干到星团剧场版，想想我就脑壳痛。</blockquote>唯一的办法就是祝他身体健康了……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cat1230  
+##### 2403#       发表于 2021-10-17 20:46
+
+
+睡觉忘记直播了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">只能等熟肉了
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  ads147147  
+##### 2404#       发表于 2021-10-17 20:46
+
+
+明明可以走自己的路，结果还是前辈的影子，因为资本不喜欢意外。
+
+
+不知道小百合她们看到这样的剧本的真实想法是什么，换做我只能当前辈的影子，我是只有感恩能说出口了。
+
+
+*****
+
+####  秋月艾莉  
+##### 2405#       发表于 2021-10-17 20:47
+
+
+这两集其实还行
+
+但一想到这是某抛开闺女滤镜都写得最好的角色牺牲了个人回/个人ED/剧情C位曲/大热CP被挖根换来的我就觉血压上涨
+
+所以上集唐突搞那种剧情弄来个完全体香音是为了什么，还不是凉凉
+
+制作组你别告诉我下季还得再来个神香音，我真蚌埠住
+
+
+*****
+
+####  黑雪姫  
+##### 2406#       发表于 2021-10-17 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164664&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-17 20:23</a>
+
+唐可可，最贵的女人</blockquote>
+我看了下图片后续名是推特的吧，有推特原地址吗？
+
+
+*****
+
+####  kata魂  
+##### 2407#       发表于 2021-10-17 20:50
+
+
+知足吧，现在可可塑造的已经很讨喜了
+
+想想小千只有香音就不错了，舞蹈是个啥，不认得
+
+再想想恋，这集一出七八集完全成小丑路人了
+
+
+*****
+
+####  kbtit  
+##### 2408#       发表于 2021-10-17 20:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别急，下季就是superkanon-MKII
+
+
+*****
+
+####  JustW  
+##### 2409#       发表于 2021-10-17 20:52
+
+
+ 本帖最后由 JustW 于 2021-10-17 20:55 编辑 
+
+不谈国籍，唐可可塑造得也算很不错了，哪怕中后期有点游离。说不定正是因为游离所以没崩。
+
+
+敢爱敢恨，敢作敢当，不曾放弃任何队友，顶着重压追求理想，双商全程在线，从始至终死守lovelive核心精神。
+
+
+*****
+
+####  黑雪姫  
+##### 2410#       发表于 2021-10-17 20:53
+
+
+ 本帖最后由 黑雪姫 于 2021-10-17 20:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165006&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 20:46</a>
+
+明明可以走自己的路，结果还是前辈的影子，因为资本不喜欢意外。
+
+
+不知道小百合她们看到这样的剧本的真实想 ...</blockquote>
+资本不喜欢意外就不可能出现唐可可这个角色，不管是角色本身的国籍还是中之人的国籍都是不稳定因素，可贵的是结果是正向的。但是在剧本上却保守陈规真的令人失望...
+
+
+*****
+
+####  ads147147  
+##### 2411#       发表于 2021-10-17 20:53
+
+
+ 本帖最后由 ads147147 于 2021-10-17 20:55 编辑 
+
+你以为的9人减少成5人后的剧情：一人分的额外4/5将近两集的戏份
+
+事实上的星团：三集空我，九集香音传。
+
+
+*****
+
+####  寒风夜  
+##### 2412#       发表于 2021-10-17 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165046&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-17 20:50</a>
+
+知足吧，现在可可塑造的已经很讨喜了
+
+想想小千只有香音就不错了，舞蹈是个啥，不认得
+
+再想想恋，这集一出七 ...</blockquote>
+第二集香音不邀请千入队 搞得以为有 什么隔阂一样 结果什么都没
+
+
+*****
+
+####  K·os  
+##### 2413#       发表于 2021-10-17 20:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165006&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-17 20:46</a>
+
+明明可以走自己的路，结果还是前辈的影子，因为资本不喜欢意外。
+
+
+不知道小百合她们看到这样的剧本的真实想 ...</blockquote>
+只是份工作罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2414#       发表于 2021-10-17 20:55
+
+
+发现现在越来越喜欢可堇了
+
+两个人单独拿出来都有各自的闪光点，绑在一起又有传统互怼那种安定感，皇冠和御守这种信物也交换过了，还有着两个人之间的秘密
+
+这不是星团第一cp我是不认可的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2415#       发表于 2021-10-17 20:57
+
+
+信不信在花田那可可回国的事已经解决了
+
+
+*****
+
+####  寒风夜  
+##### 2416#       发表于 2021-10-17 20:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打工人们属实也够辛苦了，最后一集15个作监，，
+
+
+*****
+
+####  JustW  
+##### 2417#       发表于 2021-10-17 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165152&amp;ptid=2028598" target="_blank">寒风夜 发表于 2021-10-17 20:54</a>
+
+第二集香音不邀请千入队 搞得以为有 什么隔阂一样 结果什么都没</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那其实是香音考音乐科失败后在小千面前的劣等感和愧疚感，详见《利兹与青鸟》
+
+
+*****
+
+####  寒风夜  
+##### 2418#       发表于 2021-10-17 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165214&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 20:58</a>
+
+那其实是香音考音乐科失败后在小千面前的劣等感和愧疚感，详见《利兹与青鸟》 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全没表现出
+
+
+*****
+
+####  寒风夜  
+##### 2419#       发表于 2021-10-17 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165214&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 20:58</a>
+
+那其实是香音考音乐科失败后在小千面前的劣等感和愧疚感，详见《利兹与青鸟》 ...</blockquote>
+
+
+*****
+
+####  寒风夜  
+##### 2420#       发表于 2021-10-17 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165214&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 20:58</a>
+
+那其实是香音考音乐科失败后在小千面前的劣等感和愧疚感，详见《利兹与青鸟》 ...</blockquote>
+
+
+*****
+
+####  JustW  
+##### 2421#       发表于 2021-10-17 21:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53165230&amp;ptid=2028598" target="_blank">寒风夜 发表于 2021-10-17 20:59</a>
+
+完全没表现出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实在香音闪现见小千那里是可以补上描写的，但“全世界都应该看的”第六集并没有支棱起来
+
+
