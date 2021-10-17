@@ -8669,3 +8669,33 @@ nako，我的超人！这顿可香断头饭我能回味到星二期开播<img sr
 不要追飞机，怕啦，就正常赛前打气会就好
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2192#       发表于 2021-10-17 11:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这季平稳收尾 第二季开幕雷击 团队早已分崩离析
+
+
+*****
+
+####  chenflyyy  
+##### 2193#       发表于 2021-10-17 11:31
+
+
+平稳落地就行了，别想整什么大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+对这最后一集唯一的期望就是live部分了
+
+
+*****
+
+####  中野四葉  
+##### 2194#       发表于 2021-10-17 11:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">alp老师的新图太色了，民警这大腿太棒了，小朋友根本把持不住
+
+
