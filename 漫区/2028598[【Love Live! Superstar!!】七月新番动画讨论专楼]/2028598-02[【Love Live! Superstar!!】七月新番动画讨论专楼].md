@@ -13394,3 +13394,24 @@ SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  D麦林  
+##### 2594#       发表于 2021-10-18 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53178882&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-18 16:16</a>
+
+圣之雪和阿赖子live都不错，当初弹幕一堆叛变敌团的，登录手游貌似人气也不低。
+
+
+相比SP实惨，就尬 ...</blockquote>
+A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哎一提这个我又想起来了 SDS 我的SDS
+
+都不求35人版了 跨年能不能来个26人版的SDS啊（
+
+
