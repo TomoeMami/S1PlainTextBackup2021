@@ -13493,3 +13493,55 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼是有多喜欢那个领斤…………老是戴…………
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 2601#       发表于 2021-10-18 19:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">果然是音乐相关的，鲤鱼出一专了，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没贴不好卖啊
+
+
+*****
+
+####  Goisdust  
+##### 2602#       发表于 2021-10-18 19:20
+
+
+传说的名曲snow halation都复刻了只拿银牌，还弄得这么尬，这是在致敬还是在辱初代。对我来说还不如水二期，至少水2函馆那段还不错
+
+
+*****
+
+####  cat1230  
+##### 2603#       发表于 2021-10-18 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53181256&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-18 19:08</a>
+
+果然是音乐相关的，鲤鱼出一专了，没贴不好卖啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Goisdust  
+##### 2604#       发表于 2021-10-18 19:22
+
+
+叶月恋也是个彻头彻尾的小丑了，戏份全删掉也毫无影响，甚至更好
+
+
+*****
+
+####  cybernetics31  
+##### 2605#       发表于 2021-10-18 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53181402&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-18 19:21</a>
+感觉销量会暴死啊。之前单曲卖的好像也不大行啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还要开live，场次还很大
+
+
