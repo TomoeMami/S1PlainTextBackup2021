@@ -12876,3 +12876,114 @@ sp没完整歌是不是因为工期不够没法做一个2dlive？
 技术明显是服化道和设计舞台的可可抓吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 2556#       发表于 2021-10-18 10:45
+
+
+我在想这1112话是不是因为花田真的写不来新式的主人公角色
+
+这些转变都是为了第二季开始香音彻底变成花田式模板立德人设作铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 2557#       发表于 2021-10-18 10:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53173683&amp;ptid=2028598" target="_blank">梶原ひかり 发表于 2021-10-18 10:27</a>
+
+八组已经被撤并了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来4还在啊
+
+
+*****
+
+####  寒风夜  
+##### 2558#       发表于 2021-10-18 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53172596&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-18 09:25</a>
+
+话说日升八组还有别的活吗？为啥工期这么紧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在跟虹一样是2，你说累不
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2559#       发表于 2021-10-18 10:49
+
+
+SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，高不成低不就，不方便卖碟和真人，但至少放个成曲不成问题。
+
+既然有片段，肯定录了全曲，不放就是懒得做live，或者没工期做，或者是金主爸爸觉得没收益就不投入，如果是第三种，投资干预策划到这个份上ll还是亡了算了。
+
+希望只是第二种，因为疫情缩了工期。好歹还能桃个第二季<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 2560#       发表于 2021-10-18 10:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53174083&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-18 10:49</a>
+
+SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，高不成低不就，不方便卖碟和真人，但至少放个成 ...</blockquote>
+我觉得就没想做
+
+
+*****
+
+####  soranoguiji  
+##### 2561#       发表于 2021-10-18 10:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我以前听说过八组负责人因为水团剧场版的关系被降板，难道这是真的？
+
+
+*****
+
+####  蜜梨柑  
+##### 2562#       发表于 2021-10-18 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53174184&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-18 10:54</a>
+
+我以前听说过八组负责人因为水团剧场版的关系被降板，难道这是真的？ ...</blockquote>
+平山理志，拉拉之父<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 2563#       发表于 2021-10-18 10:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53173999&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-18 10:45</a>
+
+我在想这1112话是不是因为花田真的写不来新式的主人公角色
+
+这些转变都是为了第二季开始香音彻底变成花田式 ...</blockquote>
+这样都算好了，可能性更大的是第二季再来一季香音传
+
+
+*****
+
+####  cat1230  
+##### 2564#       发表于 2021-10-18 11:00
+
+
+突然想起来，之前鲤鱼发的两条微博，一个是可堇股市从此开始，一个是我真不知道可可最后咋样。当时大家说鲤鱼是业务关系不能说。现在大家看到了，坐实了鲤鱼憨憨人设<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+

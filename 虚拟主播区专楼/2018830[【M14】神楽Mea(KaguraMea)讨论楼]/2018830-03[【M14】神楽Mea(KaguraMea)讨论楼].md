@@ -10459,3 +10459,14 @@ ps：LGD这比赛成功的让我半夜黑屁了一波CN电竞，best搓玻璃
 所以不想解释了，还不如等他们自己懒得讨论算了。以前还会想去争论争论，现在就想着，最后没啥人来烦她最好。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3942#       发表于 2021-10-18 10:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
