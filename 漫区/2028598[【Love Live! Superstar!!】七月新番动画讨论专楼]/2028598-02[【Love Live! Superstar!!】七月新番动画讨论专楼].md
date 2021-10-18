@@ -13468,3 +13468,17 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 没完全的变革就是问题，中后期完全像没点子的拿回样板凑
 
 
+
+
+*****
+
+####  lyflyflxf  
+##### 2599#       发表于 2021-10-18 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53163631&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-17 19:12</a>
+
+我开播前的预期是：样板戏，但会是角色塑造比较详细的样板戏。毕竟你目前只有五个角色。前三集又证明了，三 ...</blockquote>
+飞龙骑脸怎么输<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
