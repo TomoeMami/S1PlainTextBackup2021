@@ -14033,3 +14033,47 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 明天就有生放看了
 
 
+
+
+*****
+
+####  saglork  
+##### 2650#       发表于 2021-10-18 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53184262&amp;ptid=2028598" target="_blank">没有爱就看不见 发表于 2021-10-18 22:48</a>
+所以卖身契这说法还是不靠谱？</blockquote>
+卖身契只是说强推的前几年lovelive这边有高密度活动，应该并没有完全排除个人活动，倒不如说liyuu自己和公司比较拼，趁热给自己上了高强度
+
+
+*****
+
+####  a92063256  
+##### 2651#       发表于 2021-10-18 23:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53184551&amp;ptid=2028598" target="_blank">捧读小见川 发表于 2021-10-18 23:08</a>
+没有恋这个搅屎棍整部剧会更好看吗</blockquote>
+你就算把恋删了，那中期可堇和千香一条线也还是写的不大行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  404489039  
+##### 2652#       发表于 2021-10-18 23:32
+
+
+恋你原来还有爸爸，之前说得这么惨我还以为你父母双亡呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2653#       发表于 2021-10-18 23:39
+
+
+https://b23.tv/s6HvwR  BLT访谈，那么说鲤鱼也是参加选拔的？
+
+
