@@ -13054,3 +13054,59 @@ BE没事，但是写的不够好才是问题<img src="https://static.saraba1st.c
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
 
+
+
+*****
+
+####  cat1230  
+##### 2570#       发表于 2021-10-18 11:25
+
+
+按篮球队员算鲤鱼就是标准的傻大个中锋<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  lj205  
+##### 2571#       发表于 2021-10-18 11:26
+
+
+最近的碟真是多，各种下单我都不知道有没有漏或者买错
+
+
+*****
+
+####  一个陆仁贾  
+##### 2572#       发表于 2021-10-18 11:40
+
+
+我劝各位不要期待什么可可回了，把bd2的可可solo当可可回比较不容易受伤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  cybernetics31  
+##### 2573#       发表于 2021-10-18 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53173683&amp;ptid=2028598" target="_blank">梶原ひかり 发表于 2021-10-18 10:27</a>
+八组已经被撤并了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊这……………………
+
+
+*****
+
+####  plazum  
+##### 2574#       发表于 2021-10-18 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53173863&amp;ptid=2028598" target="_blank">绯想alter2nd 发表于 2021-10-18 10:38</a>
+技术明显是服化道和设计舞台的可可抓吧</blockquote>
+完了，那这么说香音岂不是一无是处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
