@@ -12987,3 +12987,70 @@ SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  ads147147  
+##### 2565#       发表于 2021-10-18 11:06
+
+
+【【中字】鹫崎健的夜夜晚晚×夜夜晚晚 Liella!嘉宾回 2021-9-23-哔哩哔哩】https://b23.tv/4l1dha
+
+也不说别的了，吃香恋假药。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  player3960  
+##### 2566#       发表于 2021-10-18 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53174300&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-18 11:00</a>
+
+突然想起来，之前鲤鱼发的两条微博，一个是可堇股市从此开始，一个是我真不知道可可最后咋样。当时大家说鲤 ...</blockquote>
+昨天听那个的鹫崎健的广播里，小百合和青山也说鲤鱼呆呆的，全队最年长的人，却是个憨憨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 2567#       发表于 2021-10-18 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53174414&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-18 11:06</a>
+
+昨天听那个的鹫崎健的广播里，小百合和青山也说鲤鱼呆呆的，全队最年长的人，却是个憨憨 ...</blockquote>
+[https://www.bilibili.com/video/BV1KP4y1b7pG](https://www.bilibili.com/video/BV1KP4y1b7pG)
+
+全队最年长的人还当着前辈撒娇求nako保护自己
+
+nako：我就像妈妈一样
+
+三森：尊到我了
+
+
+*****
+
+####  lj205  
+##### 2568#       发表于 2021-10-18 11:23
+
+
+憨憨鲤鱼谁不爱呢？连打铁和外星人都说她的憨是真实的
+
+
+*****
+
+####  一个陆仁贾  
+##### 2569#       发表于 2021-10-18 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164535&amp;ptid=2028598" target="_blank">cxj649 发表于 2021-10-17 20:16</a>
+这集还行吧，当然水团那2最终回……敲打敲打主角团过头直接BE也蛮迷惑的 ...</blockquote>
+BE没事，但是写的不够好才是问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
