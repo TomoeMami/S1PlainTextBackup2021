@@ -12705,3 +12705,59 @@ sp没完整歌是不是因为工期不够没法做一个2dlive？
 11的存在意义到底是？ ​​​​
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 2544#       发表于 2021-10-18 09:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说日升八组还有别的活吗？为啥工期这么紧？
+
+
+*****
+
+####  凡人  
+##### 2545#       发表于 2021-10-18 09:27
+
+
+中间那段就是啊，你说就这么一小段就算香音身边50cm内没有人就唱不了歌那让其他人牵着她的手唱不行吗非要用脱敏疗法千你脑子是不是有问题啊，恭喜你，答对了。
+
+
+*****
+
+####  ads147147  
+##### 2546#       发表于 2021-10-18 09:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53172596&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-18 09:25</a>
+
+话说日升八组还有别的活吗？为啥工期这么紧？</blockquote>
+个人猜现在是打算一年一部爱生活。那么你搞完这一季，马上就要着手下一季，间隔的这一年是虹2期顶上。
+
+
+*****
+
+####  捧读小见川  
+##### 2547#       发表于 2021-10-18 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53172644&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-18 09:28</a>
+
+个人猜现在是打算一年一部爱生活。那么你搞完这一季，马上就要着手下一季，间隔的这一年是虹2期顶上。 ...</blockquote>
+那工期还是紧，质量又要拉跨
+
+
+*****
+
+####  plazum  
+##### 2548#       发表于 2021-10-18 09:44
+
+
+那其实可以这样，可可是正leader，管行政，香音是副leader，管技术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
