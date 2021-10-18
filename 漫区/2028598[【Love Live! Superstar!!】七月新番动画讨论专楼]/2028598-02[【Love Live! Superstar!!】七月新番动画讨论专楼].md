@@ -13545,3 +13545,32 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还要开live，场次还很大
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2606#       发表于 2021-10-18 19:30
+
+
+感觉太快了，很担心会暴死，这场百度查了下大概是4500人场，这可能比liella巡演的都大吧，有点难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2607#       发表于 2021-10-18 19:30
+
+
+这……能行吗卧槽，开始替她担心了
+
+
+*****
+
+####  cybernetics31  
+##### 2608#       发表于 2021-10-18 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前fc活动也就百人场次啊
+
+
