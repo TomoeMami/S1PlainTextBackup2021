@@ -13312,3 +13312,17 @@ BE没事，但是写的不够好才是问题<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不过失败了之后才变成功利厨确实多少有点那啥
 
 
+
+
+*****
+
+####  qratosone  
+##### 2589#       发表于 2021-10-18 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53174083&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-18 10:49</a>
+
+SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，高不成低不就，不方便卖碟和真人，但至少放个成 ...</blockquote>
+雪雪之前有Live吧
+
+
