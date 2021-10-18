@@ -13357,3 +13357,40 @@ SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，
 不小心点到降调版的歌……出不去了…………
 
 
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 2592#       发表于 2021-10-18 16:16
+
+
+推荐一下雪雪的降调<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2593#       发表于 2021-10-18 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53176750&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-18 13:42:17</a>
+雪雪之前有Live吧</blockquote>圣之雪和阿赖子live都不错，当初弹幕一堆叛变敌团的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，登录手游貌似人气也不低。
+
+相比SP实惨，就尬吹。
+
+现在企划还是想推敌团，甚至参与舞台live，从选人上，也是选唱功好的，阿赖子记忆不深，圣之雪一个Q娃一个少歌，今年sp又是q娃棚的歌手。
+
+问题是敌团定位就不上不下的，真人活动参与不了，曝光度上不去，还自带招黑体质，总体来说只能是友情客串担当。
+
+所以要砍戏份，第一个就砍你sp没商量。
+
+其实光给敌团侧面描写，还吊打主角团显得不违和的，也有办法，就是让大牌声优来客串，左香菜右早见，哪怕只唱一句你裂啦还不得乖乖认输？
+
+但这样敌团就纯背景化了，不可能。
+
+总之，二期和剧场版肯定会补live的，传统艺能的合团共演也会有的。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
