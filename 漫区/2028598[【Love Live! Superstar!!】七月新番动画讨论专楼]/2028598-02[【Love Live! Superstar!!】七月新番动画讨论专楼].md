@@ -13574,3 +13574,73 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前fc活动也就百人场次啊
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2609#       发表于 2021-10-18 19:44
+
+
+现在这情况，明年都不知道能不能去日本，哎，买专支持下吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rubinliu  
+##### 2610#       发表于 2021-10-18 19:48
+
+
+ 本帖最后由 rubinliu 于 2021-10-18 19:50 编辑 
+
+笔给我，我来写<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+首先把11和12集砍掉，为什么呢？
+
+11集剧情就是香音solo+香千糖，香音solo前3集就演过了就不要再来了，至于香千啥的消失了没所谓吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+12集这个剧情就是一味哇卡耐，明明前面应募名字没人理，突然就全校归心点蜡烛也太突然了吧？还有一集就强行把咸鱼香音**成“想赢人”也太急了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+我们先回到第10集，在唱完nonfiction之后就宣布输掉，然后11集在op前大家都很苦牙西，结果民警不小心说了可可要回国的消息，op后大家开始努力让可可不要走，什么收集签名啊全校拍VCR啊之类的样板戏，最后传统艺能来一发live成功洗/脑说服可可家人，反正偶像番世界观没有什么是一发live搞不定的，如果有那就再来一发
+
+结尾可可喊出明年要跟大家一起lovelive，可口可乐可可可乐
+
+堂々完结！
+
+
+...什么还有12集？反正工期不够+大家都在划水，干脆就让恋来一个圣诞节总集编回忆水过去就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+...为什么是恋？因为圣诞节里阿拉就你一个孤寡老人会有空跟观众唠嗑啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  lj205  
+##### 2611#       发表于 2021-10-18 19:48
+
+
+是我的幸运场地啊，想去，但是一下到这个场会不会太急了？总之先买支持
+
+
+*****
+
+####  kbtit  
+##### 2612#       发表于 2021-10-18 19:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开个几百人的粉丝见面会感觉已经很好了，这公司策划野心这么大？知不知道4000人的场是啥概念
+
+
+*****
+
+####  cybernetics31  
+##### 2613#       发表于 2021-10-18 19:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就算星团加成也不至于一下子这么大场次啊
+
+
