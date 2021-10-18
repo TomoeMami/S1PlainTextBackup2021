@@ -10534,3 +10534,74 @@ fnmdp
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  T_Hb  
+##### 3949#       发表于 2021-10-18 20:06
+
+
+BFV真好玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 3950#       发表于 2021-10-18 20:09
+
+
+那玩意儿竟然没被ban啊
+
+
+*****
+
+####  咸鱼渣  
+##### 3951#       发表于 2021-10-18 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53168531&amp;ptid=2018830" target="_blank">路人庚 发表于 2021-10-18 00:06</a>
+
+结尾吐槽不知不觉就便乘阿咩独场逆凸的企划
+
+
+以及本来不想约线下的时雨结果被苔苔劝住了说阿咩线下超级exci ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">涮锅的时候会有涮锅么（×
+
+
+*****
+
+####  时间在我手中  
+##### 3952#       发表于 2021-10-18 20:13
+
+
+虽然不懂为什么ace很牛逼（我也不懂）但是听到大家都觉得牛逼自己也不明觉厉了
+
+
+*****
+
+####  T_Hb  
+##### 3953#       发表于 2021-10-18 20:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">经典曲目
+
+
+*****
+
+####  yywzjsw  
+##### 3954#       发表于 2021-10-18 20:25
+
+
+今天的歌都是经典啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 3955#       发表于 2021-10-18 20:25
+
+
+今天有地狱先生吗
+
+

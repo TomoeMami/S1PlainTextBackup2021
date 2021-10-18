@@ -13644,3 +13644,47 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就算星团加成也不至于一下子这么大场次啊
 
 
+
+
+*****
+
+####  lj205  
+##### 2614#       发表于 2021-10-18 20:07
+
+
+如果只是开半场会不会还好？
+
+
+*****
+
+####  JustW  
+##### 2615#       发表于 2021-10-18 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">啊啊啊？你们在说什么，能搬一下信息吗
+
+
+*****
+
+####  cybernetics31  
+##### 2616#       发表于 2021-10-18 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53181923&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-18 20:07</a>
+
+如果只是开半场会不会还好？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 2617#       发表于 2021-10-18 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53181945&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-18 20:09</a>
+
+啊啊啊？你们在说什么，能搬一下信息吗</blockquote>
+鲤鱼一专 4个mv 10首歌 明年开个人1st live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">选的地方比星团的都大
+
+
