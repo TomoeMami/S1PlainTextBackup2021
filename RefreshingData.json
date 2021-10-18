@@ -479,14 +479,6 @@
     "active": true,
     "newtitle": "[虚拟次元计划／小希小桃专楼]"
   },
-  "2013091": {
-    "totalreply": 1698,
-    "title": "[『新·EVA剧场版：终』8月13日 亚马逊Prime Video配信]",
-    "lastedit": 1632002451,
-    "category": "漫区专楼",
-    "active": false,
-    "newtitle": "[『新·EVA剧场版：终』亚马逊Prime Video 线上观影交流讨论]"
-  },
   "1993874": {
     "totalreply": 101,
     "title": "[21.07『绯红结系 SCARLET NEXUS』专楼 07.01放送]",
@@ -696,9 +688,9 @@
     "newtitle": "[女神宿舍的管理员。TV动画化 2021年7月]"
   },
   "2022320": {
-    "totalreply": 23626,
+    "totalreply": 23630,
     "title": "[西恩刀塔节奏楼二号机 (TI10：10月7日开赛)]",
-    "lastedit": 1634594787,
+    "lastedit": 1634595870,
     "category": "游戏区",
     "active": true,
     "newtitle": "[恭喜TS夺冠！恭喜老干爹•喜欢放猛犸战队获得ti10亚军！]"
@@ -1383,14 +1375,6 @@
     "category": "外野",
     "active": false
   },
-  "2027111": {
-    "totalreply": 121,
-    "title": "[toar这代销量喜人我不知道是该高兴还是担忧]",
-    "newtitle": "[toar这代销量喜人我不知道是该高兴还是担忧]",
-    "lastedit": 1632002901,
-    "category": "游戏区",
-    "active": false
-  },
   "2027109": {
     "totalreply": 84,
     "title": "[深夜树洞：成年人该如何应对来自长辈的指导压力]",
@@ -1461,14 +1445,6 @@
     "newtitle": "[jrpg里，描写男女主爱情的剧情表现得最好的是哪些作？]",
     "lastedit": 1632499704,
     "category": "游戏区",
-    "active": false
-  },
-  "2027202": {
-    "totalreply": 94,
-    "title": "[没人敢问那我问吧]",
-    "newtitle": "[没人敢问那我问吧]",
-    "lastedit": 1632002735,
-    "category": "外野",
     "active": false
   },
   "2027085": {
@@ -1604,14 +1580,6 @@
     "title": "[有哪些专有名词和商标几乎没有人使用中文？]",
     "newtitle": "[有哪些专有名词和商标几乎没有人使用中文？]",
     "lastedit": 1632107400,
-    "category": "外野",
-    "active": false
-  },
-  "2027256": {
-    "totalreply": 73,
-    "title": "[3000000000000元RMB有人知道是什么概念吗]",
-    "newtitle": "[3000000000000元RMB有人知道是什么概念吗]",
-    "lastedit": 1632002743,
     "category": "外野",
     "active": false
   },
@@ -9120,10 +9088,10 @@
     "active": true
   },
   "2032218": {
-    "totalreply": 4152,
+    "totalreply": 4157,
     "title": "[【B35】VUP综合讨论楼]",
     "newtitle": "[【B35】VUP综合讨论楼]",
-    "lastedit": 1634594887,
+    "lastedit": 1634596030,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -9552,10 +9520,10 @@
     "active": true
   },
   "2032493": {
-    "totalreply": 103,
+    "totalreply": 104,
     "title": "[幼……幼儿媛？]",
     "newtitle": "[幼……幼儿媛？]",
-    "lastedit": 1634594652,
+    "lastedit": 1634595843,
     "category": "外野",
     "active": true
   },
@@ -9616,18 +9584,18 @@
     "active": true
   },
   "2032532": {
-    "totalreply": 87,
+    "totalreply": 88,
     "title": "[你们还在追新番吗？]",
     "newtitle": "[你们还在追新番吗？]",
-    "lastedit": 1634594655,
+    "lastedit": 1634595974,
     "category": "漫区",
     "active": true
   },
   "2032577": {
-    "totalreply": 137,
+    "totalreply": 138,
     "title": "[1978年连环画《计划生育好》]",
     "newtitle": "[1978年连环画《计划生育好》]",
-    "lastedit": 1634594654,
+    "lastedit": 1634595849,
     "category": "外野",
     "active": true
   },
@@ -9821,6 +9789,14 @@
     "newtitle": "[虽然CN DOTA亡了可生活还得继续，求推荐一些有治愈功效的y…]",
     "lastedit": 1634594870,
     "category": "游戏区",
+    "active": true
+  },
+  "2032621": {
+    "totalreply": 62,
+    "title": "[日本人爱生食是近代才养成的爱好嘛？]",
+    "newtitle": "[日本人爱生食是近代才养成的爱好嘛？]",
+    "lastedit": 1634595859,
+    "category": "外野",
     "active": true
   }
 }
