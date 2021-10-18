@@ -10346,3 +10346,14 @@ syl，今天步行了137步的阿咩（
 也许这联动比ti要好看，我有罪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Klience  
+##### 3932#       发表于 2021-10-18 08:11
+
+
+深夜看RNG打韩华 前面打的都想把电脑关了睡觉 后面还是继续看下去 还好赢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
