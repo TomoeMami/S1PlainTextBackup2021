@@ -13110,3 +13110,107 @@ BE没事，但是写的不够好才是问题<img src="https://static.saraba1st.c
 完了，那这么说香音岂不是一无是处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 2575#       发表于 2021-10-18 11:45
+
+
+操，打开b站就碰到恶俗的事，玛德这些人早点被泥头车创一下好不好。
+
+
+*****
+
+####  Gooddays  
+##### 2576#       发表于 2021-10-18 11:45
+
+
+刚刚才发现 live 的时候恋是唯一没戴帽子，虽然原因可能是马尾，但也可以找一个整体白色也比较宽厚的髮夹吧，至少让正面看时观感较统一，不会出现只有一人跟团队不同的违和感。
+
+另一选择是其他四人戴跟恋相同的髮夹。
+
+现在看 live 某些角度像 “四人团队 + 一个外人” 的感觉。
+
+
+*****
+
+####  Blackson  
+##### 2577#       发表于 2021-10-18 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175154&amp;ptid=2028598" target="_blank">Gooddays 发表于 2021-10-18 11:45</a>
+ 刚刚才发现 live 的时候恋是唯一没戴帽子，虽然原因可能是马尾，但也可以找一个整体白色也比较宽厚的髮夹吧 ...</blockquote>
+这说得很像战队的追加战士那样
+
+
+*****
+
+####  D麦林  
+##### 2578#       发表于 2021-10-18 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175142&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-18 11:45</a>
+
+操，打开b站就碰到恶俗的事，玛德这些人早点被泥头车创一下好不好。</blockquote>
+又怎么了
+
+（话不要说一半啊怪吓人的
+
+
+*****
+
+####  优妮可  
+##### 2579#       发表于 2021-10-18 11:55
+
+
+<blockquote>D麦林 发表于 2021-10-18 11:51
+又怎么了
+
+（话不要说一半啊怪吓人的</blockquote>
+在基地下面打call
+
+
+*****
+
+####  D麦林  
+##### 2580#       发表于 2021-10-18 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175313&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-18 11:55</a>
+
+在基地下面打call</blockquote>
+啥啊 啥基地啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 训练基地？
+
+（总不能是军事基地吧
+
+
+
+
+*****
+
+####  优妮可  
+##### 2581#       发表于 2021-10-18 11:57
+
+
+<blockquote>D麦林 发表于 2021-10-18 11:56
+啥啊 啥基地啊 训练基地？
+
+（总不能是军事基地吧</blockquote>
+住所
+
+
+*****
+
+####  D麦林  
+##### 2582#       发表于 2021-10-18 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175353&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-18 11:57</a>
+住所</blockquote>
+呜哇。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+大概明白了
+那确实有点恶心
+
+
