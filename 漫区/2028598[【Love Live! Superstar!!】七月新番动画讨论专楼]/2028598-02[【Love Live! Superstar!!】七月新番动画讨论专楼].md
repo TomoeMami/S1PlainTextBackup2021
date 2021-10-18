@@ -12614,3 +12614,67 @@ sp没完整歌是不是因为工期不够没法做一个2dlive？
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  Gooddays  
+##### 2537#       发表于 2021-10-18 08:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53168929&amp;ptid=2028598" target="_blank">七七見奈波 发表于 2021-10-18 00:40</a>
+是啊，其实leader和center分开两个人来担就能解决大部分问题，香音的性格更容易让人对她吐露心声，而扭转 ...</blockquote>
+第一季团队是靠可可撑起来，所以可可当 leader 没问题，现在香音只是名义上 leader，真 leader 是推动团队的可可。首三话是靠可可拉人及争取，第十话堇当 C 也是靠可可认同给堇信心。
+
+即使可可要回国那也只需要换 leader 吧了。
+
+
+*****
+
+####  Gooddays  
+##### 2538#       发表于 2021-10-18 08:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53171785&amp;ptid=2028598" target="_blank">TCone 发表于 2021-10-18 08:21</a>
+不是说好拿不到成绩就回去的吗？</blockquote>
+可能留待第二季家人来抓可可回去，然后主角们用各种方法感动可可父母给多一次机会。
+
+
+*****
+
+####  damian-wade  
+##### 2539#       发表于 2021-10-18 08:59
+
+
+SP没live为什么都能赢？虽说较真不大好吧，但三次元里是正经后辈致敬一下没什么，放到二次元世界观里，一群外人模仿前代冠军的名曲，演的再好那也是抄，能拿第二我都是算裁判眼瞎了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 2540#       发表于 2021-10-18 09:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53172210&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-10-18 08:59</a>
+
+SP没live为什么都能赢？虽说较真不大好吧，但三次元里是正经后辈致敬一下没什么，放到二次元世界观里，一群 ...</blockquote>
+曲子是没抄，动作也没抄。专辑封面也没抄。不过这事就和原神抄塞尔达一样，一眼看得出来你到底想干啥，但是去扣细节没一个对得上，诶，就是不算抄。
+
+
+*****
+
+####  ads147147  
+##### 2541#       发表于 2021-10-18 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53171789&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-18 08:21</a>
+
+sp没完整歌是不是因为工期不够没法做一个2dlive？
+
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+感觉应该是工期不够的原因，我还记得arise是两个原画爆肝画的上千页原画，想想就是地狱。
+
+
