@@ -12571,3 +12571,23 @@ Snow halation
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一下很多人是不满sp没唱歌就干败liella，由于我提前预料到了这种展开所以比较无所谓，还是整体不行导致怎么展开怎么不爽
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 2533#       发表于 2021-10-18 07:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 很早之前我就觉得你拉这种有偶像大赛的应该找隔壁偶活取取经，结果官方找了田中仁
+
+
+*****
+
+####  支仓爱理  
+##### 2534#       发表于 2021-10-18 07:52
+
+
+寄！
+
+
