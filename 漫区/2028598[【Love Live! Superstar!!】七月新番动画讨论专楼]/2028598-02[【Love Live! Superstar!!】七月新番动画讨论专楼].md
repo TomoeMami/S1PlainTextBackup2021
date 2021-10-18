@@ -12838,3 +12838,41 @@ sp没完整歌是不是因为工期不够没法做一个2dlive？
 这么一说岂不是更垃圾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 2554#       发表于 2021-10-18 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53172596&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-18 09:25</a>
+
+话说日升八组还有别的活吗？为啥工期这么紧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">八组已经被撤并了
+
+
+03.jpg
+(57.4 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-18 10:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/18/102755se54ta28e6t92992.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绯想alter2nd  
+##### 2555#       发表于 2021-10-18 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53172904&amp;ptid=2028598" target="_blank">plazum 发表于 2021-10-18 09:44</a>
+（看2537L有感）那其实可以这样，可可是正leader，主管行政，香音是副leader，主管技术或者可可是团 ...</blockquote>
+技术明显是服化道和设计舞台的可可抓吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
