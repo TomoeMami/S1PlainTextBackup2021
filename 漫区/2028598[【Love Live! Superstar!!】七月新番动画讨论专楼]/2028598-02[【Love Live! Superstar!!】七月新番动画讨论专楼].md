@@ -14077,3 +14077,23 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 https://b23.tv/s6HvwR  BLT访谈，那么说鲤鱼也是参加选拔的？
 
 
+
+
+*****
+
+####  凡人  
+##### 2654#       发表于 2021-10-18 23:52
+
+
+恋都删了那顺便把烈日情热也删了吧，把可可改成缪水双厨这样千香应该能好不少，可堇没了可对刚入团的恋的待遇反差也能强不少。
+
+
+*****
+
+####  JustW  
+##### 2655#       发表于 2021-10-18 23:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“虽然她平时呆呆的……”
+
+
