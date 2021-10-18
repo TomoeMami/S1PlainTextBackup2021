@@ -13805,3 +13805,45 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 2629#       发表于 2021-10-18 20:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53182341&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-18 20:38</a>
+如果开半场的话还是有希望的…………我在那里参加过好几次田村的活动，但级数可不一样啊……………… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么比啊，御三家级别
+
+
+*****
+
+####  kbtit  
+##### 2630#       发表于 2021-10-18 20:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先别急，售票的时候应该就会有数了
+
+
+*****
+
+####  cybernetics31  
+##### 2631#       发表于 2021-10-18 20:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">hori pro和烂铁真的蜜汁自信了
+
+
+*****
+
+####  a92063256  
+##### 2632#       发表于 2021-10-18 20:59
+
+
+现在这情况咱国内人想支持也有点费劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">最多也就是支持张网络配信票
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

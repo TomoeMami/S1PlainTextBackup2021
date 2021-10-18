@@ -1756,3 +1756,17 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国庆有一个别的发型吧，不过那个也是个团子头和默认的过于相似........
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6124#       发表于 2021-10-18 20:58
+
+
+出街摄影竟然明天就能实装<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">还以为要拖到年底
+
+
+明晚也有生放，阿金还能放啥新卫星啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
