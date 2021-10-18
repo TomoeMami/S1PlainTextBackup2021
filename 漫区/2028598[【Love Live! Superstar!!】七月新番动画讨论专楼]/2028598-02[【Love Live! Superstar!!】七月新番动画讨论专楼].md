@@ -13688,3 +13688,120 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 鲤鱼一专 4个mv 10首歌 明年开个人1st live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">选的地方比星团的都大
 
 
+
+
+*****
+
+####  JustW  
+##### 2618#       发表于 2021-10-18 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53182044&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-18 20:17</a>
+
+鲤鱼一专 4个mv 10首歌 明年开个人1st live选的地方比星团的都大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这步子迈的，是不是推特关注数给了公司错误的期待
+
+
+*****
+
+####  lj205  
+##### 2619#       发表于 2021-10-18 20:27
+
+
+是不是疫情所以小场反而不好抢
+
+
+*****
+
+####  D麦林  
+##### 2620#       发表于 2021-10-18 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53181200&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-18 19:03</a>
+
+鱼是有多喜欢那个领斤…………老是戴…………</blockquote>
+她都说过了那个不是独立的配件是上衣的一部分啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然她好像确实挺喜欢那件衣服的
+
+
+*****
+
+####  普之舜舜  
+##### 2621#       发表于 2021-10-18 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53181200&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-18 19:03</a>
+鱼是有多喜欢那个领斤…………老是戴…………</blockquote>
+什么呀？那叫口水巾
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  soranoguiji  
+##### 2622#       发表于 2021-10-18 20:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这个1st的场地也太勇了吧，来上海都不一定能凑到这么多观众
+
+
+*****
+
+####  JustW  
+##### 2623#       发表于 2021-10-18 20:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">佐贺第二季第一集不可避
+
+
+*****
+
+####  kata魂  
+##### 2624#       发表于 2021-10-18 20:31
+
+
+还是想不通怎么弄那么大，鲤鱼就算是日本本土选手也不能初次就来这么猛的啊，这疫情就算想借中华炮你也借不到啊，买张cd都九转十八弯费力气的。这公司真的靠谱吗
+
+
+*****
+
+####  普之舜舜  
+##### 2625#       发表于 2021-10-18 20:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">+1
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 2626#       发表于 2021-10-18 20:38
+
+
+如果开半场的话还是有希望的…………我在那里参加过好几次田村的活动，但级数可不一样啊………………
+
+
+*****
+
+####  稀勢のささ  
+##### 2627#       发表于 2021-10-18 20:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这拍板的人多少有点没谱
+
+
+*****
+
+####  cqc1021  
+##### 2628#       发表于 2021-10-18 20:44
+
+
+过于高估自己名气了吧，还是觉得到明年2月可以放开中国游客入境<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
