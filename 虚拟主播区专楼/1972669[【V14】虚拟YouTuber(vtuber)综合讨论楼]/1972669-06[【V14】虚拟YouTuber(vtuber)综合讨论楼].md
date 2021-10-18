@@ -2422,3 +2422,45 @@ as的后台有世界第一 ...</blockquote>
 虽然但是 王一博也只能在国内火的
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7672#       发表于 2021-10-18 15:14
+
+
+ 本帖最后由 SuntoryNomu 于 2021-10-18 15:16 编辑 
+<blockquote>価格：8,800円(税込)
+
+【仕様】
+
+・サイズ：男性用フリーサイズ(着丈71cm / 身幅58cm / 肩幅52cm / 袖丈61cm)
+
+・素材：ポリエステル100%</blockquote>
+500元，均码，纯化纤（笹木款含棉）。
+
+
+<img src="https://img.saraba1st.com/forum/202110/18/151323m4quuluwquzuztzm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FB9AkbwUcAg96fX.jpg</strong> (247.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-18 15:13 上传
+
+
+
+
+*****
+
+####  lb19931118  
+##### 7673#       发表于 2021-10-18 15:50
+
+
+<blockquote>SuntoryNomu 发表于 2021-10-18 15:14
+500元，均码，纯化纤（笹木款含棉）。</blockquote>
+妈的好贵 
+
+

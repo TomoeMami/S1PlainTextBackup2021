@@ -16947,3 +16947,30 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 话说bd国内有代购的吗，有没有店家啥的推荐
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1166#       发表于 2021-10-18 15:22
+
+
+从鸡枞直播来看，第一季铁定是12.5做结尾了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+
+*****
+
+####  Ton  
+##### 1167#       发表于 2021-10-18 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53128410&amp;ptid=1860817" target="_blank">アルメリア 发表于 2021-10-15 03:18</a>
+
+我还以为是普通的昭和打怪兽，结果还有平行世界元素吗</blockquote>
+平行世界还有命运石之门那种不断的时空轮回
+
+

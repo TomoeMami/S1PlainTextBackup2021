@@ -13110,3 +13110,287 @@ BE没事，但是写的不够好才是问题<img src="https://static.saraba1st.c
 完了，那这么说香音岂不是一无是处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 2575#       发表于 2021-10-18 11:45
+
+
+操，打开b站就碰到恶俗的事，玛德这些人早点被泥头车创一下好不好。
+
+
+*****
+
+####  Gooddays  
+##### 2576#       发表于 2021-10-18 11:45
+
+
+刚刚才发现 live 的时候恋是唯一没戴帽子，虽然原因可能是马尾，但也可以找一个整体白色也比较宽厚的髮夹吧，至少让正面看时观感较统一，不会出现只有一人跟团队不同的违和感。
+
+另一选择是其他四人戴跟恋相同的髮夹。
+
+现在看 live 某些角度像 “四人团队 + 一个外人” 的感觉。
+
+
+*****
+
+####  Blackson  
+##### 2577#       发表于 2021-10-18 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175154&amp;ptid=2028598" target="_blank">Gooddays 发表于 2021-10-18 11:45</a>
+ 刚刚才发现 live 的时候恋是唯一没戴帽子，虽然原因可能是马尾，但也可以找一个整体白色也比较宽厚的髮夹吧 ...</blockquote>
+这说得很像战队的追加战士那样
+
+
+*****
+
+####  D麦林  
+##### 2578#       发表于 2021-10-18 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175142&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-18 11:45</a>
+
+操，打开b站就碰到恶俗的事，玛德这些人早点被泥头车创一下好不好。</blockquote>
+又怎么了
+
+（话不要说一半啊怪吓人的
+
+
+*****
+
+####  优妮可  
+##### 2579#       发表于 2021-10-18 11:55
+
+
+<blockquote>D麦林 发表于 2021-10-18 11:51
+又怎么了
+
+（话不要说一半啊怪吓人的</blockquote>
+在基地下面打call
+
+
+*****
+
+####  D麦林  
+##### 2580#       发表于 2021-10-18 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175313&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-18 11:55</a>
+
+在基地下面打call</blockquote>
+啥啊 啥基地啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 训练基地？
+
+（总不能是军事基地吧
+
+
+
+
+*****
+
+####  优妮可  
+##### 2581#       发表于 2021-10-18 11:57
+
+
+<blockquote>D麦林 发表于 2021-10-18 11:56
+啥啊 啥基地啊 训练基地？
+
+（总不能是军事基地吧</blockquote>
+住所
+
+
+*****
+
+####  D麦林  
+##### 2582#       发表于 2021-10-18 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175353&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-18 11:57</a>
+住所</blockquote>
+呜哇。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+大概明白了
+那确实有点恶心
+
+
+
+
+*****
+
+####  Piano-Forest  
+##### 2583#       发表于 2021-10-18 12:33
+
+
+【💫#毎日Liella💫】
+
+【毎週月曜更新】ちょこっとリエラ～真夏の事件簿編～（最終回）
+
+第13話「みんなでアイスパーティ！」
+
+イラスト／moffmachi　構成／笹波ことみ
+
+
+毎週お楽しみいただきありがとうございました💓 
+<img src="https://p.sda1.dev/2/d050666f2c3093df7e4efe5b5d9cf43f/20211018_123229.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cat1230  
+##### 2584#       发表于 2021-10-18 12:37
+
+
+啥基地，在b站搜了下，最新的视频里没有类似的啊，只有一个老哥在自家楼下打call
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  D麦林  
+##### 2585#       发表于 2021-10-18 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175957&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-18 12:37</a>
+
+啥基地，在b站搜了下，最新的视频里没有类似的啊，只有一个老哥在自家楼下打call
+
+
+----发送自 Xiaomi Redmi ...</blockquote>
+你看那0级小号发视频和评论区画风就知道了 那哪可能是他自己家楼下
+
+
+*****
+
+####  秋月艾莉  
+##### 2586#       发表于 2021-10-18 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53173999&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-18 10:45</a>
+
+我在想这1112话是不是因为花田真的写不来新式的主人公角色
+
+这些转变都是为了第二季开始香音彻底变成花田式 ...</blockquote>
+11不是说了香音本来的人格就是模板立德，入学试翻了才变成第1话那臭鸡蛋的样
+
+11时似乎是取回本来自我了，但12吐阿堇和同学那里却又有1话的味道，看来是新旧人格还没完全融合
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那当人格完全融合后有差不多模板的蘑菇头会何去何从呢
+
+
+
+
+*****
+
+####  secretgarnet  
+##### 2587#       发表于 2021-10-18 12:58
+
+
+12话也太赶了，虽然高强度复刻snow halation，但重看了一遍感觉挺多地方打磨打磨还是可以很精彩的。就拿五人奔向会场那里为例，这段很适合插入各个角色入团或者高光的闪回，事实上也插入了可香的片段，但只是利用奔跑转场就显得很敷衍；然后是sunny passion的live，虽然明白liella肯定赢不了，但哪怕多给sunnypa一个镜头我都更能接受一些。live很不错，个人挺喜欢这种风格的打歌服，期待能看到真人的这一套。
+
+
+*****
+
+####  saya1892  
+##### 2588#       发表于 2021-10-18 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53176005&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-18 12:41</a>
+
+11不是说了香音本来的人格就是模板立德，入学试翻了才变成第1话那臭鸡蛋的样
+
+11时似乎是取回本来自我了， ...</blockquote>
+拉板昨晚就一直在开卡农了，从突然变成胜利主义者到她对堇说的那句阴阳怪气的话，哦对，还有2话试图寻找恋的弱点
+
+还有人表明想在2期看到突入黑暗路线的卡农支配下的结丘在下届LL上大杀四方的
+
+当然也有人想看同伴因为无法接受卡农理念分崩离析的
+
+以及「咦，我到底是为了什么才唱歌的」之类的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不过失败了之后才变成功利厨确实多少有点那啥
+
+
+
+
+*****
+
+####  qratosone  
+##### 2589#       发表于 2021-10-18 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53174083&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-18 10:49</a>
+
+SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，高不成低不就，不方便卖碟和真人，但至少放个成 ...</blockquote>
+雪雪之前有Live吧
+
+
+
+
+*****
+
+####  秋月艾莉  
+##### 2590#       发表于 2021-10-18 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53176263&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-18 13:03</a>
+
+拉板昨晚就一直在开卡农了，从突然变成胜利主义者到她对堇说的那句阴阳怪气的话，哦对，还有2话试图寻找 ...</blockquote>
+哪有，感想楼吗？外面那几个楼里面不是都在夸雌小鬼卡农好文明
+
+唯一一个有点火药味的楼堇厨似乎干不过香厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我自己比起传统立德卡农也是更喜欢看雌小鬼卡农
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那堆恶堕卡农的脑洞有笑到，私に逆らう奴は親でも○す，第二季真有恶堕卡农我不介意再看一小段香音传
+
+
+翻车后才真正燃起胜负欲和斗志是挺常见的展开了，各花入各眼吧，我个人不太满意的地方在于没有描写翻车后到再起前的那阵空虚。光速21就有类似的展开，当年把我看湿了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  lj205  
+##### 2591#       发表于 2021-10-18 16:05
+
+
+不小心点到降调版的歌……出不去了…………
+
+
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 2592#       发表于 2021-10-18 16:16
+
+
+推荐一下雪雪的降调<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2593#       发表于 2021-10-18 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53176750&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-18 13:42:17</a>
+雪雪之前有Live吧</blockquote>圣之雪和阿赖子live都不错，当初弹幕一堆叛变敌团的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，登录手游貌似人气也不低。
+
+相比SP实惨，就尬吹。
+
+现在企划还是想推敌团，甚至参与舞台live，从选人上，也是选唱功好的，阿赖子记忆不深，圣之雪一个Q娃一个少歌，今年sp又是q娃棚的歌手。
+
+问题是敌团定位就不上不下的，真人活动参与不了，曝光度上不去，还自带招黑体质，总体来说只能是友情客串担当。
+
+所以要砍戏份，第一个就砍你sp没商量。
+
+其实光给敌团侧面描写，还吊打主角团显得不违和的，也有办法，就是让大牌声优来客串，左香菜右早见，哪怕只唱一句你裂啦还不得乖乖认输？
+
+但这样敌团就纯背景化了，不可能。
+
+总之，二期和剧场版肯定会补live的，传统艺能的合团共演也会有的。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
