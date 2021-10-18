@@ -14134,3 +14134,16 @@ LLSP这一集完全就是Snow Hala回的拙劣复制品。
 感觉这么多致敬的片段就这个最破我防了…
 
 
+
+
+*****
+
+####  cqc1021  
+##### 2657#       发表于 2021-10-19 00:29
+
+
+LLSP看到最后，感觉这动画仿佛成了三次元女团的衍生品，就像AKB0048那样。反正现实中的组合还要继续卖歌，那二次元里的情节就随便写写完事了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
