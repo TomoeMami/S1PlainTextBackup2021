@@ -13326,3 +13326,23 @@ SP没live也侧面反映这次企划赶鸭子，你可以说作为ll的副团，
 雪雪之前有Live吧
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2590#       发表于 2021-10-18 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53176263&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-18 13:03</a>
+
+拉板昨晚就一直在开卡农了，从突然变成胜利主义者到她对堇说的那句阴阳怪气的话，哦对，还有2话试图寻找 ...</blockquote>
+哪有，感想楼吗？外面那几个楼里面不是都在夸雌小鬼卡农好文明
+
+唯一一个有点火药味的楼堇厨似乎干不过香厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我自己比起传统立德卡农也是更喜欢看雌小鬼卡农
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那堆恶堕卡农的脑洞有笑到，私に逆らう奴は親でも○す，第二季真有恶堕卡农我不介意再看一小段香音传
+
+
+翻车后才真正燃起胜负欲和斗志是挺常见的展开了，各花入各眼吧，我个人不太满意的地方在于没有描写翻车后到再起前的那阵空虚。光速21就有类似的展开，当年把我看湿了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
