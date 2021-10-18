@@ -10348,3 +10348,19 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 监督土田丰在东映内部就是公认的疯（褒义）
 
 
+
+
+*****
+
+####  風駿  
+##### 2251#       发表于 2021-10-19 07:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53184934&amp;ptid=1963832" target="_blank">199april 发表于 2021-10-18 23:39</a>
+
+看到抓心出来我整个喷出来，为啥传说的q娃是抓心啊？今年也不是抓心的周年
+
+今年的确比过去几年大胆 ...</blockquote>
+先有因后有果，因为剧场版和抓心联动所以这集出了抓心啊
+
+

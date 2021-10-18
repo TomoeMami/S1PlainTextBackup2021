@@ -14167,3 +14167,18 @@ LLSP看到最后，感觉这动画仿佛成了三次元女团的衍生品，就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">相信花田，他写不出这种复杂的人设的，还不如不写让观众自己来脑补
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 2660#       发表于 2021-10-19 07:33
+
+
+ 本帖最后由 secretgarnet 于 2021-10-19 07:34 编辑 
+
+鷲崎健这期广播是sayurin和青山姐嘉宾，非常有意思[https://www.bilibili.com/video/BV1s3411y7Rp](https://www.bilibili.com/video/BV1s3411y7Rp)
+
+听下来比较好玩的地方有 ① 31：40 增进友谊的方法（揩油惯犯小百合）； ② 67：00开始 各位成员令人意外的一面（有评价鲤鱼天然呆）
+
+
