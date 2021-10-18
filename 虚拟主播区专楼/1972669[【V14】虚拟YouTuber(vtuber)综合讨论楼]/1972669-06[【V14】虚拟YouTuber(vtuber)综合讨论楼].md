@@ -2586,3 +2586,16 @@ syl 小千原来现在才有恶灵的双锤吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">这次双锤不仅是她恶灵第一个锤，也是她apex 3000小时第一个锤
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7681#       发表于 2021-10-18 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53183204&amp;ptid=1972669" target="_blank">winda 发表于 2021-10-18 21:33</a>
+这次双锤不仅是她恶灵第一个锤，也是她apex 3000小时第一个锤</blockquote>
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
