@@ -12803,3 +12803,38 @@ sp没完整歌是不是因为工期不够没法做一个2dlive？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不用出12集就能猜出11没意义，现在更是坐实了。而且12集前面，香音说“我现在能这样表达自己，就已经很满足了”，仿佛前十集的香音一直都还不能表达自己，几场live真的是演了个寂寞。
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2552#       发表于 2021-10-18 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53170698&amp;ptid=2028598" target="_blank">plazum 发表于 2021-10-18 02:58</a>
+
+9494，之前的五部动画不都是13集吗
+
+以及sunny passion到最后都没有完整的曲子啊
+
+以及这一集的舞台充分证明 ...</blockquote>
+很多问题最终都不可以归结到这个问题上，你把她们去掉学生身份能减少什么问题
+
+什么她们是学生怎能XXOO之类的谁care啊
+
+那帖子后面的婆罗门人都明着来我开挂是好文明你开挂是坏文明了就别拿出来说了吧
+
+
+*****
+
+####  plazum  
+##### 2553#       发表于 2021-10-18 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53173404&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-18 10:13</a>
+很多问题最终都不可以归结到这个问题上，你把她们去掉学生身份能减少什么问题
+
+什么她们是学生怎能XXOO之 ...</blockquote>
+这么一说岂不是更垃圾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
