@@ -13847,3 +13847,47 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  寒风夜  
+##### 2633#       发表于 2021-10-18 21:12
+
+
+ 本帖最后由 寒风夜 于 2021-10-18 21:19 编辑 
+
+太勇了，推特关注给的信心么
+
+
+*****
+
+####  JustW  
+##### 2634#       发表于 2021-10-18 21:13
+
+
+啊这，二月啊，那先不提有多少人买票吧，我感觉八成要延期啊
+
+
+*****
+
+####  cybernetics31  
+##### 2635#       发表于 2021-10-18 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53182728&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-10-18 20:59</a>
+现在这情况咱国内人想支持也有点费劲啊最多也就是支持张网络配信票
+
+—— 来自 vivo V1981A, Androi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有网络配信都不确定………………
+
+
+*****
+
+####  cybernetics31  
+##### 2636#       发表于 2021-10-18 21:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不管咋样，专辑大家还是支持下吧，有钱就预定下，没钱油管多点点mv ，明年2月也不一定就这个地方
+
+
