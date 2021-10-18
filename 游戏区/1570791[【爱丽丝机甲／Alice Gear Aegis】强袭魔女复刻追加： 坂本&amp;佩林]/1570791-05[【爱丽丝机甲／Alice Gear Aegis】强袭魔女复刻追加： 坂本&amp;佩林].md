@@ -1770,3 +1770,14 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 明晚也有生放，阿金还能放啥新卫星啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alialex  
+##### 6125#         楼主| 发表于 2021-10-18 21:39
+
+
+今天在群里聊了下月人+地下层设定是游戏原始内容还是广江写嗨了的私货，多半活动结束就不会被提到了。
+
+
