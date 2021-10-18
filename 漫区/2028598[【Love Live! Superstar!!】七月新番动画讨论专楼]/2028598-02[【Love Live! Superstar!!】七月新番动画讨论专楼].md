@@ -13426,3 +13426,45 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我突然觉得非常有可能因为大人的原因被砍了一话
 
 
+
+
+*****
+
+####  寒风夜  
+##### 2596#       发表于 2021-10-18 17:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53180146&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-18 17:42</a>
+
+我突然觉得非常有可能因为大人的原因被砍了一话</blockquote>
+能有什么，多半人少了就少了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  仟音一心  
+##### 2597#       发表于 2021-10-18 17:54
+
+
+补完了，楼也爬完了，
+1-3 ＋2
+4 +1
+5-6 0
+7-8 -2
+9 0
+10 +2
+11 +1
+12 0
+平均0.5
+已经不知道花田是会不会写了。
+
+
+*****
+
+####  寒风夜  
+##### 2598#       发表于 2021-10-18 17:57
+
+
+没完全的变革就是问题，中后期完全像没点子的拿回样板凑
+
+
