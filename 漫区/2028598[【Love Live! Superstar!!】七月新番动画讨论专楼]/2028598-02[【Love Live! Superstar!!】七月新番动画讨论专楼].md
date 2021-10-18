@@ -13279,3 +13279,36 @@ BE没事，但是写的不够好才是问题<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那当人格完全融合后有差不多模板的蘑菇头会何去何从呢
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 2587#       发表于 2021-10-18 12:58
+
+
+12话也太赶了，虽然高强度复刻snow halation，但重看了一遍感觉挺多地方打磨打磨还是可以很精彩的。就拿五人奔向会场那里为例，这段很适合插入各个角色入团或者高光的闪回，事实上也插入了可香的片段，但只是利用奔跑转场就显得很敷衍；然后是sunny passion的live，虽然明白liella肯定赢不了，但哪怕多给sunnypa一个镜头我都更能接受一些。live很不错，个人挺喜欢这种风格的打歌服，期待能看到真人的这一套。
+
+
+*****
+
+####  saya1892  
+##### 2588#       发表于 2021-10-18 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53176005&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-18 12:41</a>
+
+11不是说了香音本来的人格就是模板立德，入学试翻了才变成第1话那臭鸡蛋的样
+
+11时似乎是取回本来自我了， ...</blockquote>
+拉板昨晚就一直在开卡农了，从突然变成胜利主义者到她对堇说的那句阴阳怪气的话，哦对，还有2话试图寻找恋的弱点
+
+还有人表明想在2期看到突入黑暗路线的卡农支配下的结丘在下届LL上大杀四方的
+
+当然也有人想看同伴因为无法接受卡农理念分崩离析的
+
+以及「咦，我到底是为了什么才唱歌的」之类的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不过失败了之后才变成功利厨确实多少有点那啥
+
+
