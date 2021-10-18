@@ -13960,3 +13960,47 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 这是一心要往歌手方面发展了吧…太勇了吧…
 
 
+
+
+*****
+
+####  ads147147  
+##### 2643#       发表于 2021-10-18 22:46
+
+
+上限肯定是歌手高，问题是鲤鱼。。。还是考虑下声优比较好吧，回国当中文cv也可以吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  没有爱就看不见  
+##### 2644#       发表于 2021-10-18 22:48
+
+
+所以卖身契这说法还是不靠谱？
+
+
+*****
+
+####  梶原ひかり  
+##### 2645#       发表于 2021-10-18 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53184262&amp;ptid=2028598" target="_blank">没有爱就看不见 发表于 2021-10-18 22:48</a>
+所以卖身契这说法还是不靠谱？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉拉也是烂铁在运营 鲤鱼个人活动也是烂铁..两不误吧..其他人如果签别的唱片公司 活动应该得让位于lovelive先吧..
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  lj205  
+##### 2646#       发表于 2021-10-18 23:03
+
+
+不管怎么说，支持总比泼冷水好吧
+
+

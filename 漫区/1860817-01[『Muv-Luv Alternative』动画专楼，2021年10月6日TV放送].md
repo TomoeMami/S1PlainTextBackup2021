@@ -16974,3 +16974,17 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 平行世界还有命运石之门那种不断的时空轮回
 
 
+
+
+*****
+
+####  hlazd  
+##### 1168#       发表于 2021-10-18 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156129&amp;ptid=1860817" target="_blank">SorroFrost 发表于 2021-10-17 00:56</a>
+
+话说bd国内有代购的吗，有没有店家啥的推荐</blockquote>
+哈撒韦楼里看到几个潭友在说买碟的事，你不如去私信问问？
+
+
