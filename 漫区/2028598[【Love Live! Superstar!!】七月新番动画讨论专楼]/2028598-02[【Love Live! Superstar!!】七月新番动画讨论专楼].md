@@ -13214,3 +13214,68 @@ BE没事，但是写的不够好才是问题<img src="https://static.saraba1st.c
 那确实有点恶心
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 2583#       发表于 2021-10-18 12:33
+
+
+【💫#毎日Liella💫】
+
+【毎週月曜更新】ちょこっとリエラ～真夏の事件簿編～（最終回）
+
+第13話「みんなでアイスパーティ！」
+
+イラスト／moffmachi　構成／笹波ことみ
+
+
+毎週お楽しみいただきありがとうございました💓 
+<img src="https://p.sda1.dev/2/d050666f2c3093df7e4efe5b5d9cf43f/20211018_123229.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cat1230  
+##### 2584#       发表于 2021-10-18 12:37
+
+
+啥基地，在b站搜了下，最新的视频里没有类似的啊，只有一个老哥在自家楼下打call
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  D麦林  
+##### 2585#       发表于 2021-10-18 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53175957&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-18 12:37</a>
+
+啥基地，在b站搜了下，最新的视频里没有类似的啊，只有一个老哥在自家楼下打call
+
+
+----发送自 Xiaomi Redmi ...</blockquote>
+你看那0级小号发视频和评论区画风就知道了 那哪可能是他自己家楼下
+
+
+*****
+
+####  秋月艾莉  
+##### 2586#       发表于 2021-10-18 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53173999&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-18 10:45</a>
+
+我在想这1112话是不是因为花田真的写不来新式的主人公角色
+
+这些转变都是为了第二季开始香音彻底变成花田式 ...</blockquote>
+11不是说了香音本来的人格就是模板立德，入学试翻了才变成第1话那臭鸡蛋的样
+
+11时似乎是取回本来自我了，但12吐阿堇和同学那里却又有1话的味道，看来是新旧人格还没完全融合
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那当人格完全融合后有差不多模板的蘑菇头会何去何从呢
+
+
