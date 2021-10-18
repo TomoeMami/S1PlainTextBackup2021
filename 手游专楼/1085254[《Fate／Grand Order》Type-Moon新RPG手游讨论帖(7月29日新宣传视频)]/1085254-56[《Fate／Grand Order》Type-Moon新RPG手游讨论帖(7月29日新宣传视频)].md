@@ -18003,3 +18003,20 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 术阶和剑阶，阿基米德的可能性微升？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83995#       发表于 2021-10-18 09:58
+
+
+<blockquote>引用第83993楼khxooo于2021-10-18 01:06发表的  :
+
+术阶和剑阶，阿基米德的可能性微升？</blockquote>
+术龙娘和剑龙娘，下一个
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+

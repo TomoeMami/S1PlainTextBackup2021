@@ -12761,3 +12761,45 @@ sp没完整歌是不是因为工期不够没法做一个2dlive？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  plazum  
+##### 2549#       发表于 2021-10-18 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53171075&amp;ptid=2028598" target="_blank">山岚夜雨 发表于 2021-10-18 04:16</a>
+嘛，其实这个算是观感崩了各种槽点都来了的一个表现吧。非要解释的话其实从ll系列来看不是什么大问题，因 ...</blockquote>
+那个帖子里反驳楼主的人就是这么说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plazum  
+##### 2550#       发表于 2021-10-18 09:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53167767&amp;ptid=2028598" target="_blank">lanslort 发表于 2021-10-17 23:20</a>
+我觉得这最终回比水水舞台剧尬演还难看，再也不黑酒井和男了（虽然人家也彻底不想跟你拉扯上关系了 ...</blockquote>
+我看的时候就想，她们这是牺牲了吗，还搁这夹道默哀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  JustW  
+##### 2551#       发表于 2021-10-18 10:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53172403&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-18 09:12</a>
+
+结果独唱到底哪去了？
+
+10话之后无缝接12，12前边堇还说都是她c的功劳，说明是顺接着的，rap完了就是圣诞。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不用出12集就能猜出11没意义，现在更是坐实了。而且12集前面，香音说“我现在能这样表达自己，就已经很满足了”，仿佛前十集的香音一直都还不能表达自己，几场live真的是演了个寂寞。
+
+
