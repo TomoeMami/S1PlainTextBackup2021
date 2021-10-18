@@ -13415,3 +13415,14 @@ A-RISE号称合团共演 其实半句没唱<img src="https://static.saraba1st.co
 都不求35人版了 跨年能不能来个26人版的SDS啊（
 
 
+
+
+*****
+
+####  kbtit  
+##### 2595#       发表于 2021-10-18 17:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我突然觉得非常有可能因为大人的原因被砍了一话
+
+
