@@ -1817,3 +1817,14 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 哎被阿金算计了刚冲了一单抽安里现在又要充钱买衣服…………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6129#       发表于 2021-10-19 15:09
+
+
+这摄影模式这画风最后还加个框就已经是某类游戏的画风了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

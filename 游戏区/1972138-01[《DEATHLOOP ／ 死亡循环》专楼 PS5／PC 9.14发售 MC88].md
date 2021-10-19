@@ -8350,3 +8350,17 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 不做支线那些boss能在一块出现吗
 
 
+
+
+*****
+
+####  moimoi  
+##### 673#       发表于 2021-10-19 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53187738&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-10-19 09:05</a>
+
+不做支线那些boss能在一块出现吗</blockquote>
+能，支线和主线没什么影响
+
+
