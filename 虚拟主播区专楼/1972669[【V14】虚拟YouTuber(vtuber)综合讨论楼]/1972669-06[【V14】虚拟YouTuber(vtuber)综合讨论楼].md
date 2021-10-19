@@ -2695,3 +2695,15 @@ anmr刮了这么多终于轮到hnst了
 anmr还有两名伤员没回来呢，这时候接着抽卡不就是把没用的人驱赶走
 
 
+
+
+*****
+
+####  smy20011  
+##### 7690#       发表于 2021-10-19 15:42
+
+
+Crunchyroll什么时候也整了个vtuber
+[https://www.youtube.com/c/CrunchyrollHime/videos](https://www.youtube.com/c/CrunchyrollHime/videos)
+
+

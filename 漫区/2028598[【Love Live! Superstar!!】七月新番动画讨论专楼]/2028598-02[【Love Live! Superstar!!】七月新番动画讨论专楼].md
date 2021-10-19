@@ -15910,3 +15910,109 @@ DCD时期管太多把原主 ...</blockquote>
 但是啊，人家让你写你就写，学痞子砸橱柜啊。
 
 
+
+
+*****
+
+####  世界的膀胱者  
+##### 2731#       发表于 2021-10-19 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193122&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 15:40</a>
+
+当年的分锅能分现在的锅吗，虽然应该是事情的真相，花田只是被退出来背锅的，真正恶心的是制作委员会里的 ...</blockquote>
+编剧而已，自己把饭碗给砸了找谁要工资？
+
+
+*****
+
+####  lj205  
+##### 2732#       发表于 2021-10-19 15:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193122&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 15:40</a>
+
+当年的分锅能分现在的锅吗，虽然应该是事情的真相，花田只是被退出来背锅的，真正恶心的是制作委员会里的 ...</blockquote>
+这话说的就太轻巧了
+
+
+*****
+
+####  一个陆仁贾  
+##### 2733#       发表于 2021-10-19 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193122&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 15:40</a>
+当年的分锅能分现在的锅吗，虽然应该是事情的真相，花田只是被退出来背锅的，真正恶心的是制作委员会里的 ...</blockquote>
+花田都说了委员会是看他听话才找他继续写的，怎么可能砸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 2734#       发表于 2021-10-19 15:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193298&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-19 15:55</a>
+
+花田都说了委员会是看他听话才找他继续写的，怎么可能砸
+
+
+—— 来自 HUAWEI SPN-AL00, Android 10 ...</blockquote>
+那么隔壁虹是田中仁不听话还是上头根本不在乎拍成啥样呢。突然想起上个月楼里还在争是不是亲女儿的问题，亲女儿，越管越死，干女儿散养反而行。这是哪门子狗血网文。
+
+
+*****
+
+####  saglork  
+##### 2735#       发表于 2021-10-19 15:59
+
+
+没人骂京极，除了花田名气大自带背锅体质，应该是京极至少live分镜水平和日常漫才高密度笑点处理的一直水平在线，对比酒井高下立判<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 2736#       发表于 2021-10-19 16:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓了，其实大部分人骂花田，其实也并不是针对花田这个人，就好像“wcnm”和任何人的母亲并没有关系
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2737#       发表于 2021-10-19 16:03
+
+
+这个帖子好，比战吧看的那个简易版多了不少信息量
+
+总体来说就是系构的创作不会受到干扰，但之前会被委员会给出命题和条条框框，之后还会被监督改动。
+
+花田想自证清白只能把脚本原稿公布了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倾向于五人的设定、身世、转变是开会定好的，花田得占一半锅，但剧情编排无论如何都是花田的全锅。
+
+SH复刻这种估计是京极的锅。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  ads147147  
+##### 2738#       发表于 2021-10-19 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193370&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-19 15:59</a>
+
+没人骂京极，除了花田名气大自带背锅体质，应该是京极至少live分镜水平和日常漫才高密度笑点处理的一直水平 ...</blockquote>
+导演要管的事太多了，说到底也是精力不足的问题。制作委员会如果能绕过导演拍板的话，导演其实也就是个空架子，说不定人家拍板的人连staff表都不会出现，完全的对空射击，更头疼了。
+
+
+花田只能说，你吃了这碗饭，挨骂也得受着，直到有人愿意给你分锅。
+
+

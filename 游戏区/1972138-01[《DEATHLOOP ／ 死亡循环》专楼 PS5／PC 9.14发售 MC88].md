@@ -8364,3 +8364,42 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 能，支线和主线没什么影响
 
 
+
+
+*****
+
+####  wyy123  
+##### 674#       发表于 2021-10-19 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53192750&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-19 15:15</a>
+
+能，支线和主线没什么影响</blockquote>
+任务中那些算主线？现在拿里几个石板，就没见过boss在一张图上的。
+
+
+*****
+
+####  火红之眼  
+##### 675#       发表于 2021-10-19 15:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193256&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-10-19 15:51</a>
+任务中那些算主线？现在拿里几个石板，就没见过boss在一张图上的。</blockquote>
+调查boss信息的就是主线，调查清楚就可以每天选择触发一些让boss移到别的地图的机制
+收集石板和武器那种算支线
+
+
+*****
+
+####  屑猫猫  
+##### 676#       发表于 2021-10-19 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53164355&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-17 20:06</a>
+40小时通关了，支线也做了不少，但是看视频，还有好多支线没做，结局我以为会和朱莉安娜大战一下，会有张新 ...</blockquote>
+竟然真的有老实人去把那个任务做完了，我是选择把紫色武器和金武器相关支线给做了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
