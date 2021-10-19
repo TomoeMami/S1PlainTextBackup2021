@@ -1815,3 +1815,31 @@ Q：非常期待本作的正式推出！预告视频中能看到斧子和盾牌�
   死了都能从地府爬回来，老三部曲每作都去一趟，就看看没有希腊地府之后奎爷死了是直接死透还是进北欧地府了
 
 
+
+
+*****
+
+####  DelayNoMore  
+##### 160#       发表于 2021-10-19 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53191769&amp;ptid=2025548" target="_blank">415452356 发表于 2021-10-19 14:03</a>
+死了都能从地府爬回来，老三部曲每作都去一趟，就看看没有希腊地府之后奎爷死了是直接死透还是进北欧地府 ...</blockquote>
+已经进去过了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  DelayNoMore  
+##### 161#       发表于 2021-10-19 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189966&amp;ptid=2025548" target="_blank">木架穷奇 发表于 2021-10-19 11:38</a>
+我好奇的是，如果这次光头真的领便当了，那战神这个IP还要做下去吗</blockquote>
+过个三十年，洛基变成奎爷的样子<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

@@ -15786,3 +15786,15 @@ DCD时期管太多把原主 ...</blockquote>
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  saglork  
+##### 2721#       发表于 2021-10-19 14:11
+
+
+我滴妈，怎么黑泥都吐到删角色的地步了，拉拉动画剧情不就看个乐子吗，水水第二季搞成那逼样也没这么大怨气啊，星不至于吧，撑死算个平庸，拉拉平均水平罢了，何况第二季没播，主线和个人故事都没讲完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+算了，溜了溜了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
