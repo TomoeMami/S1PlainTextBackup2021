@@ -17025,3 +17025,196 @@ pay：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" refe
 什么？连水一期都打不过，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Norkey1  
+##### 2827#       发表于 2021-10-19 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53197879&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-19 22:14</a>
+对于我来说最好的消息就是终于不用看尬吹了，md每次评分低的时候贴吧都能找到千百种吹法真是奇了怪 ...</blockquote>
+去错地方了，b站才是尬吹大本营<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2828#       发表于 2021-10-19 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53197954&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-19 22:21</a>
+
+去错地方了，b站才是尬吹大本营</blockquote>
+b站？第十集都没更新的地方狗都不看<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 2829#       发表于 2021-10-19 22:23
+
+
+水一期本来就不差，而且当时还是lovelive人气高峰期，差评多来自动画里和现实中水团对前辈态度的人格分裂，再就是破防缪斯林挑刺泼脏水，拉胯的也就是最后一集舞台剧实在诡异，动画评价崩塌的一直是水二和水剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 2830#       发表于 2021-10-19 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53197980&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-19 22:23</a>
+水一期本来就不差，而且当时还是lovelive人气高峰期，差评多来自动画里和现实中水团对前辈态度的人格分裂， ...</blockquote>
+其实我个人觉得水2除了最后一集之外剩下的也不错
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  player3960  
+##### 2831#       发表于 2021-10-19 22:29
+
+
+12话就算好评100，平均好评率也是倒数第二，注定的结果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 2832#       发表于 2021-10-19 22:32
+
+
+真就离开可可就不会写
+
+
+*****
+
+####  中野四葉  
+##### 2833#       发表于 2021-10-19 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">最后只有第三话好评上了90，幼驯染究极加成的第6话还低了0.6
+
+
+*****
+
+####  凡人  
+##### 2834#       发表于 2021-10-19 22:35
+
+
+星明面上是香音传实际上是可可传，我劝花田下一季多让加农和可可贴贴，这样才有评分胜过水一的希望
+
+
+*****
+
+####  player3960  
+##### 2835#       发表于 2021-10-19 22:37
+
+
+所以说财富密码已经很明显了，库卡永远的神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  saglork  
+##### 2836#       发表于 2021-10-19 22:38
+
+
+有些问题也是分角度看，你可以说是离开唐可可不会写，也可以说是意外的塑造了一个非常有特点的唐可可，lovelive在人物累积变多后，能塑造出一个不太模板化的唐可可，本身也是挺成功的一次尝试，就偶像动画最大的任务捏人造星来说，这次其实只有恋称得上比较失败，其他人最差也称得上是差强人意，还有第二季，也不用太急着盖棺
+
+
+*****
+
+####  kbtit  
+##### 2837#       发表于 2021-10-19 22:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">空我可是他们自己定的官方组合名，自己后期不推怪谁
+
+
+*****
+
+####  优妮可  
+##### 2838#       发表于 2021-10-19 22:42
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/224147r30332nnd6f06006.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211019_224048.jpg</strong> (804.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-19 22:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/224147dvnsy2fy2y5zyheu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211019_224042.jpg</strong> (200.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-19 22:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/224148c0j7beodwpngkkww.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211019_224054.jpg</strong> (304.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-19 22:41 上传
+
+
+感动，pay终于会怎么拍了
+
+
+*****
+
+####  cybernetics31  
+##### 2839#       发表于 2021-10-19 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然都还是可香
+
+
+*****
+
+####  lj205  
+##### 2840#       发表于 2021-10-19 22:44
+
+
+拜托第二季别为了救好评拿可可当工具人
+
+
+*****
+
+####  saglork  
+##### 2841#       发表于 2021-10-19 22:45
+
+
+果然lovelive不管争论什么最后都会变成CP人发病，十年前到现在没任何变化<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2842#       发表于 2021-10-19 22:48
+
+
+可香是唯一90的
+
+可堇是从低谷后稍微起飞的
+
+可可多好用的一个插件啊，还要啥个人回，继续当工具人给别人搭着用
+
+
