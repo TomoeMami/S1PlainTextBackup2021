@@ -17607,3 +17607,27 @@ Apple Music上新，但是依然把常夏给藏起来～
 就不能是一群蛇精病凑到了一起吗，只能说是优秀的匹配机制了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  a92063256  
+##### 2880#       发表于 2021-10-20 00:29
+
+
+ 本帖最后由 a92063256 于 2021-10-20 00:34 编辑 
+
+第一集结尾那虽然有问题，但是未来预报好听到足够在一定程度上掩盖掉，当时看着观感还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这花田就应该给小百合磕俩头
+
+
+
+
+*****
+
+####  secretgarnet  
+##### 2881#       发表于 2021-10-20 00:39
+
+
+好评率也不意外，最后一集这种全程加速东拼西凑的剧情发展我真是一边看一边笑，内心虽然有个声音提醒我“该感动了”但就是emo不起来。二期要是剧情还这样那还不如多让sayurin唱几首歌呢，11话虽然也有**小小的问题，可sayurin一开口我感觉一切都可以原谅了，她唱歌真的好好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
