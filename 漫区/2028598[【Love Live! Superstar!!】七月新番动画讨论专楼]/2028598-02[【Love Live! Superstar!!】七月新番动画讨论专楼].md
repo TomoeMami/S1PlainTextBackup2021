@@ -16327,3 +16327,16 @@ D657679C-E7FB-4EFF-BAD7-69386C4E1BA1.jpeg
 刚才看咸鱼上可可一套是五百多块，原来煤炉上只要5000日元吗？有点心动了
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2760#       发表于 2021-10-19 17:15
+
+
+速报，佩酱上台前偷偷紧张一直练习的样子只有鲤鱼目击到了
+
+小百合：さすが、我无话可说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

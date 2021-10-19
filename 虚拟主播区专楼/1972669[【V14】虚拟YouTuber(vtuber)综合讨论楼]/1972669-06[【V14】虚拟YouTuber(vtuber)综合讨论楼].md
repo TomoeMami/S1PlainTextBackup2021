@@ -2707,3 +2707,19 @@ Crunchyroll什么时候也整了个vtuber
 [https://www.youtube.com/c/CrunchyrollHime/videos](https://www.youtube.com/c/CrunchyrollHime/videos)
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7691#       发表于 2021-10-19 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193153&amp;ptid=1972669" target="_blank">smy20011 发表于 2021-10-19 15:42</a>
+
+Crunchyroll什么时候也整了个vtuber
+
+https://www.youtube.com/c/CrunchyrollHime/videos</blockquote>
+这货同接甚至和虹en差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
