@@ -17218,3 +17218,99 @@ b站？第十集都没更新的地方狗都不看<img src="https://static.saraba
 可可多好用的一个插件啊，还要啥个人回，继续当工具人给别人搭着用
 
 
+
+
+*****
+
+####  a92063256  
+##### 2843#       发表于 2021-10-19 22:49
+
+
+星的动画真是我近几年推的企划里动画做的最拉的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+先被前三集忽悠进了坑，推上了中之人，订了cdbd，然后就开始急转直下，真的是有点上大当的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 2844#       发表于 2021-10-19 22:57
+
+
+现在这种程度还好吧，不像绘希绘海那样就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 2845#       发表于 2021-10-19 23:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就一期这中后期几乎点谁谁拉跨的尿性....突然没那么想要囡囡个人回了怎么办，花大师咱谦虚点把代写前三话的无名英雄请回来好不好啊（
+
+
+*****
+
+####  ddy2811  
+##### 2846#       发表于 2021-10-19 23:00
+
+
+这最后一集能有70？
+
+
+*****
+
+####  ads147147  
+##### 2847#       发表于 2021-10-19 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53198382&amp;ptid=2028598" target="_blank">没有爱就看不见 发表于 2021-10-19 22:57</a>
+现在这种程度还好吧，不像绘希绘海那样就行</blockquote>
+绘海，哪来的绘海。
+
+想起自己因为绘海去看动画，结果被绘希党杀到缪fl，期间只有一个不咸不淡的风暴花园能听orz
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Acatv  
+##### 2848#       发表于 2021-10-19 23:04
+
+
+只要第二季发起可可回国的剧情，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 2849#       发表于 2021-10-19 23:06
+
+
+可香头子鲤鱼，赢麻了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 2850#       发表于 2021-10-19 23:07
+
+
+真的，花田别来回国追机场这种烂俗透的剧情了，很难写好，对可可不是什么好事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2851#       发表于 2021-10-19 23:08
+
+
+没想到缪二期是最高的
+
+虽然有几个质量高个人回，但后半一转解散，霓虹的ll人居然没暴动么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
