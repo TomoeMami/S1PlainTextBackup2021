@@ -15715,3 +15715,53 @@ DCD时期管太多把原主 ...</blockquote>
 太期待了，之前报纸上还吹花田是自由的~创作者。
 
 
+
+
+*****
+
+####  chen_null  
+##### 2716#       发表于 2021-10-19 12:46
+
+
+有人把缪的snow halation和星团12集拼在一起了，连灯变暖的时间都差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【花 田 样 板 戏-哔哩哔哩】https://b23.tv/n1Tidv
+
+—— 来自 LGE LM-G710N, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cat1230  
+##### 2717#       发表于 2021-10-19 12:53
+
+
+鲤鱼的杂志采访是这个月月底么
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2718#       发表于 2021-10-19 12:59
+
+
+讲道理，小南极传播最广的可能是第二话日剧跑，但公认的神回5、11、12（甚至搞民族主义的破冰回）都是文戏啊，虽说分镜（监督）的功劳也不比花田小就是了
+
+还有，说ll系构是自由创作的，打死十个我都不信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  JustW  
+##### 2719#       发表于 2021-10-19 13:04
+
+
+<blockquote>不能摸的屁屁 发表于 2021-10-19 12:59
+讲道理，小南极传播最广的可能是第二话日剧跑，但公认的神回5、11、12（甚至搞民族主义的破冰回）都是文戏 ...</blockquote>
+所以花田在小南极还是发挥了平均之上的水平的，和星团比那确实好太多了
+
+
