@@ -16351,3 +16351,28 @@ D657679C-E7FB-4EFF-BAD7-69386C4E1BA1.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个想法，不一定对，分锅的话NHK是不是也要负责一点，像恋的剧情明明可以写得黑暗一点，结果星动画全程被人吐槽子供剧情
 
 
+
+
+*****
+
+####  saglork  
+##### 2762#       发表于 2021-10-19 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53195276&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-19 18:21</a>
+一个想法，不一定对，分锅的话NHK是不是也要负责一点，像恋的剧情明明可以写得黑暗一点，结果星动画 ...</blockquote>
+这肯定分不到，lovelive总体就是童话世界，最后一定是爱和魔法解决所有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 2763#       发表于 2021-10-19 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53195276&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-19 18:21</a>
+
+一个想法，不一定对，分锅的话NHK是不是也要负责一点，像恋的剧情明明可以写得黑暗一点，结果星动画 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这片只是买了nhk档期，nhk又没投资负责什么，真子贡还写现在这剧情啊
+
+

@@ -6841,3 +6841,41 @@ syl不会真的是时日不多了把，看一场少一场，大家珍惜吧
 推荐北漂回<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Finsty  
+##### 597#       发表于 2021-10-19 18:54
+
+
+ 本帖最后由 Finsty 于 2021-10-19 18:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53195491&amp;ptid=2013779" target="_blank">一般通过广纤 发表于 2021-10-19 18:37</a>
+额，认真的么？行吧</blockquote>
+没有三剪一过滤能力的话就看zqsg入手呗，北漂8.8、10.18凌晨3点之类的，看纯切片找源头是比较好的方法（
+正常聊天魅力的话就电台回或者今天下午的也行，或者之前便宜爹或者拉跨运营回之类的
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  pipeline  
+##### 598#       发表于 2021-10-19 18:56
+
+
+艾瑞丝听起来好茶，绿茶坏女人suki<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一般通过广纤  
+##### 599#       发表于 2021-10-19 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53195710&amp;ptid=2013779" target="_blank">Finsty 发表于 2021-10-19 18:54</a>
+没有三剪一过滤能力的话就看zqsg入手呗，北漂8.8、10.18凌晨3点之类的，看纯切片找源头是比较好的方法（
+ ...</blockquote>
+好的谢谢
+
+
