@@ -1862,3 +1862,17 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 另外生放的投票结果展示把玩了和没玩做反了，太草台了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alialex  
+##### 6132#         楼主| 发表于 2021-10-20 01:17
+
+
+这次外传漫画汉化好快这都有熟肉了。
+现场刚增援了这么多人，最强组也在。最后这大狗比起boss登场更像来送肉的233
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+

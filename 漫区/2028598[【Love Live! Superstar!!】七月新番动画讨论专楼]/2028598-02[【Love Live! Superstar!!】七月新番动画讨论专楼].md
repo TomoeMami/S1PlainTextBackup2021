@@ -17642,3 +17642,17 @@ Apple Music上新，但是依然把常夏给藏起来～
 在N站原创新作第一集好评率高的不多吧
 
 
+
+
+*****
+
+####  K·os  
+##### 2883#       发表于 2021-10-20 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53199279&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-10-20 00:29</a>
+
+第一集结尾那虽然有问题，但是未来预报好听到足够在一定程度上掩盖掉，当时看着观感还行就这花田就 ...</blockquote>
+即便如此，第一话那个便宜3d还是太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
