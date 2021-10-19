@@ -14197,3 +14197,18 @@ LLSP看到最后，感觉这动画仿佛成了三次元女团的衍生品，就�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  子夜微雪  
+##### 2662#       发表于 2021-10-19 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53184551&amp;ptid=2028598" target="_blank">捧读小见川 发表于 2021-10-18 23:08</a>
+没有恋这个搅屎棍整部剧会更好看吗</blockquote>
+我觉得把千也删了，5-8+11都删光，前三回结束第四集召民警，直接连第十集修复关系后12集完结，就能算神作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
