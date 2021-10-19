@@ -8403,3 +8403,18 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  屑猫猫  
+##### 677#       发表于 2021-10-19 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53187591&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-19 08:51</a>
+卡尔湾要献祭的那个人怎么才能不死，我打死了先知他还是继续被放下去，我闹事引得全场追杀他也没上来追我， ...</blockquote>
+有个通道来着，直接上去把先知杀了然后把装置关闭就是，那个先知旁边就是装置
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

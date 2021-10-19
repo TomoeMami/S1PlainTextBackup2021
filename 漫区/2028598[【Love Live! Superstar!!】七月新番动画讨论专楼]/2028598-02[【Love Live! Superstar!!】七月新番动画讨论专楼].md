@@ -16016,3 +16016,164 @@ SH复刻这种估计是京极的锅。
 花田只能说，你吃了这碗饭，挨骂也得受着，直到有人愿意给你分锅。
 
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2739#       发表于 2021-10-19 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193366&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 15:59</a>
+那么隔壁虹是田中仁不听话还是上头根本不在乎拍成啥样呢。突然想起上个月楼里还在争是不是亲女儿的问题， ...</blockquote>
+我直觉上觉得，在日本，这种事不算少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2740#       发表于 2021-10-19 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193366&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 15:59:15</a>
+那么隔壁虹是田中仁不听话还是上头根本不在乎拍成啥样呢。突然想起上个月楼里还在争是不是亲女儿的问题， ...</blockquote>还是认为虹动画成功是雨野踩雷在前，田中仁看着躲就行了。
+
+换个角度，现在再让楼里大佬写个星一期的脚本，估计都比花田写得好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  lj205  
+##### 2741#       发表于 2021-10-19 16:08
+
+
+晚上就要看妹子们整活了，收拾一下心情吧，今天开始到年底前都是密集发碟，一堆新歌听，多好
+
+
+*****
+
+####  ads147147  
+##### 2742#       发表于 2021-10-19 16:13
+
+
+个人来说，当年缪2期刻的那次sh我是觉得很怪，虽然希个人回写的很好，但是这和情歌有什么关系，其实逻辑是对不上的，比当年1期刻的1单还怪。动画还砍掉了我特喜欢的sh收尾的亮相，sif手游都没砍掉的部分动画砍了，别让我知道是哪个混蛋拍板说要砍掉的。
+
+
+*****
+
+####  ads147147  
+##### 2743#       发表于 2021-10-19 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193492&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-19 16:08</a>
+
+晚上就要看妹子们整活了，收拾一下心情吧，今天开始到年底前都是密集发碟，一堆新歌听，多好 ...</blockquote>
+nako应该回归了吧，上次真像是没人管的熊孩子（褒义。
+
+
+说起来，这次还有那个什么女王称号的奖励。
+
+
+*****
+
+####  仟音一心  
+##### 2744#       发表于 2021-10-19 16:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188962&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-19 10:32</a>
+
+鱼上了这个节目，还cos了托尔，那前段时间确实挺忙的。</blockquote>
+还说了上海人基本上不吃麻婆豆腐，也不吃上海蟹（大闸蟹）。
+
+铃木爱理震惊
+
+
+473A497D-76DF-412C-BAC9-4DAF884104B0.jpeg
+(280.45 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-19 16:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/161631q0bbvnxyzy3khxu4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+D657679C-E7FB-4EFF-BAD7-69386C4E1BA1.jpeg
+(289.58 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-19 16:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/161638b5llzyokryrbstov.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+340811E7-6678-4E02-833E-038E82F1CB54.jpeg
+(295.73 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-19 16:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/161644f77cb19v7vvljlvb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+46FDE547-3FFC-4061-94EC-34109DCA4F64.jpeg
+(340.01 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-19 16:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/161650p94wg5xe0pq4gqcx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+7D1C84F2-81E5-45F7-A00C-7A244F0821B8.jpeg
+(362.6 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-19 16:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/161657h8btcym5o7vivnp5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2745#       发表于 2021-10-19 16:21
+
+
+越看越像小百合
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  绯想alter2nd  
+##### 2746#       发表于 2021-10-19 16:21
+
+
+上海蟹是什么鬼，估计是想说大闸蟹吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
