@@ -16853,3 +16853,23 @@ pay：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" refe
 还真是，希望鲤鱼能拿个C
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2811#       发表于 2021-10-19 21:56
+
+
+总选怕是要一阵腥风血雨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说之前不是有个什么投票吗，没出结果？
+
+
+*****
+
+####  kata魂  
+##### 2812#       发表于 2021-10-19 22:01
+
+
+五个人还搞总选，按入队顺序一人一次得了
+
+
