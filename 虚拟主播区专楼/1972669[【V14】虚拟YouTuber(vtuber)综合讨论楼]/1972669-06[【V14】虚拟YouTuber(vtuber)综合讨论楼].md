@@ -2723,3 +2723,18 @@ https://www.youtube.com/c/CrunchyrollHime/videos</blockquote>
 这货同接甚至和虹en差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 7692#       发表于 2021-10-19 18:01
+
+
+【MV】初恋／戌亥とこ
+[https://www.youtube.com/watch?v=G7aJCz6E_YY](https://www.youtube.com/watch?v=G7aJCz6E_YY)
+ <blockquote> 映像：ANYCOLOR株式会社</blockquote>
+
+彩虹现在内部可以做MV辣
+
+

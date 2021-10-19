@@ -10828,3 +10828,16 @@ syl 寄了，绷不住了<img src="https://static.saraba1st.com/image/smiley/fac
 是塔罗牌占卜？不知道是大阿还是小阿
 
 
+
+
+*****
+
+####  GRMeA104  
+##### 3976#       发表于 2021-10-19 17:58
+
+
+苔总懂个屁的塔罗牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+继续新老故事会罢了,地狱逆凸可不要贪杯哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

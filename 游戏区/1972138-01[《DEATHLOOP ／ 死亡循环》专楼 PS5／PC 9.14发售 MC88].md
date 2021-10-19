@@ -8418,3 +8418,60 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  moimoi  
+##### 678#       发表于 2021-10-19 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193256&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-10-19 15:51</a>
+
+任务中那些算主线？现在拿里几个石板，就没见过boss在一张图上的。</blockquote>
+你做完教学关，也就是第一次loop就会得到信息，让你知道boss在哪里，你在任务指引里能选带橘黄色的任务全是主线
+
+
+*****
+
+####  moimoi  
+##### 679#       发表于 2021-10-19 18:02
+
+
+ 本帖最后由 moimoi 于 2021-10-19 18:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193411&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-10-19 16:02</a>
+
+有个通道来着，直接上去把先知杀了然后把装置关闭就是，那个先知旁边就是装置
+
+
+—— 来自 HUAWEI TEL-AN0 ...</blockquote>
+我只注意到一个让毒气浓度提升的装置，让一层的人都死了，然后让献祭者死的更快了，是旁边还有一个我没注意到吗还是只要我够快让人没下去就可以？
+
+
+*****
+
+####  moimoi  
+##### 680#       发表于 2021-10-19 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193386&amp;ptid=1972138" target="_blank">屑猫猫 发表于 2021-10-19 16:00</a>
+
+竟然真的有老实人去把那个任务做完了，我是选择把紫色武器和金武器相关支线给做了
+
+
+—— 来自 HUAWEI TEL ...</blockquote>
+其实做那个任务的时候还是很刺激的，一路跑酷三秒钟都不能停，就是给的奖励，气死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moimoi  
+##### 681#       发表于 2021-10-19 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53187738&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-10-19 09:05</a>
+
+不做支线那些boss能在一块出现吗</blockquote>
+boss先全是分散的，只有主线让他们慢慢聚在一起
+
+
