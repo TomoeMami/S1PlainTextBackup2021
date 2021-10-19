@@ -15546,3 +15546,129 @@ liella是缺少一个核 ...</blockquote>
 甩锅也不能瞎甩。
 
 
+
+
+*****
+
+####  中野四葉  
+##### 2704#       发表于 2021-10-19 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188962&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-19 10:32</a>
+
+鱼上了这个节目，还cos了托尔，那前段时间确实挺忙的。</blockquote>
+这是什么时候的事
+
+
+*****
+
+####  JustW  
+##### 2705#       发表于 2021-10-19 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189948&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-19 11:37</a>
+
+我也不是洗花田带师，但也别太小看带货剧，没有那么好搞
+
+单完成卖歌任务都好说，若是碰上很有想法的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁邦邦我以前只看了后两季tv，因为听说第一季风评不好，结果补完了才发现，虽然有的地方尬，但比星团还是好不少的，同样也是五人团卖n首歌。更不提后面两季tv有六个团30个人了，有一集把二十多个人扔进一个温泉旅馆互动，毫不杂乱。
+
+
+*****
+
+####  JustW  
+##### 2706#       发表于 2021-10-19 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189951&amp;ptid=2028598" target="_blank">凡人 发表于 2021-10-19 11:37</a>
+
+花田你都把不甘心端出来了，下一季能向京吹取取经给可香来个久明级别的剥洋葱吗。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先让他把京吹第三季剧本写写好吧
+
+
+*****
+
+####  soranoguiji  
+##### 2707#       发表于 2021-10-19 12:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 花田有个小南极就能吹一辈子了，那么问题来了小南极好看是谁的功劳
+
+
+*****
+
+####  寒风夜  
+##### 2708#       发表于 2021-10-19 12:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53190335&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-19 12:08</a>
+
+隔壁邦邦我以前只看了后两季tv，因为听说第一季风评不好，结果补完了才发现，虽然有的地方尬，但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">邦邦第一季算被制作坑了吧，剧情构成我觉得也挺好，同样5人，8话集结，哎
+
+
+*****
+
+####  lj205  
+##### 2709#       发表于 2021-10-19 12:16
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/121532uhw7azy4zc7lzoyg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2090987E-A8BC-4628-A525-306B3EF11CA3.jpeg</strong> (309.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-19 12:15 上传
+
+
+看来鲤鱼对这个场也是心里没底，不管怎样先尽全力演出不要给自己留遗憾吧
+
+
+*****
+
+####  寒风夜  
+##### 2710#       发表于 2021-10-19 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53190374&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-19 12:12</a>
+
+花田有个小南极就能吹一辈子了，那么问题来了小南极好看是谁的功劳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">阿酱，话说石塚监督的新剧场版动画南极原班人马就是没花田。。。
+
+
+*****
+
+####  寒风夜  
+##### 2711#       发表于 2021-10-19 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53190374&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-19 12:12</a>
+
+花田有个小南极就能吹一辈子了，那么问题来了小南极好看是谁的功劳 ...</blockquote>
+
+
+*****
+
+####  JustW  
+##### 2712#       发表于 2021-10-19 12:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53190374&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-19 12:12</a>
+
+花田有个小南极就能吹一辈子了，那么问题来了小南极好看是谁的功劳 ...</blockquote>
+花田的小南极算是发挥了平均之上的水平吧，但要说多好也没有那么神。只说前两集，剧本的水平高低还不甚明显，但已经做出超一流的效果了。第二集结尾的追逐戏被传得到处都是，这和花田确实关系不大。
+
+
+*****
+
+####  优妮可  
+##### 2713#       发表于 2021-10-19 12:20
+
+
+<blockquote>中野四葉 发表于 2021-10-19 12:04
+这是什么时候的事</blockquote>
+节目过几天会播，具体啥时候录的不太清楚。
+
+
