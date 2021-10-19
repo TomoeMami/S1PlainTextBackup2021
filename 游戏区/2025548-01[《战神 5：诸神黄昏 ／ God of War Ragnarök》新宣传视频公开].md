@@ -1660,3 +1660,44 @@ Eric：我们当然设计了新武器。此外，本作中应该还会登场在�
 媒体独家的内容，转一句没关系吧
 
 
+
+
+*****
+
+####  adslnet0519  
+##### 147#       发表于 2021-10-19 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53034411&amp;ptid=2025548" target="_blank">躺平划水摸鱼 发表于 2021-10-8 11:57</a>
+芙蕾雅救了他儿子。奎爷一直是恩仇必报。</blockquote>
+巴德尔先把🐴打死，然后奎大爷再把巴德尔打死，没有人受伤的世界是不是就达成了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  popchong  
+##### 148#       发表于 2021-10-19 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53187080&amp;ptid=2025548" target="_blank">kuker53 发表于 2021-10-19 07:38</a>
+
+Q：非常期待本作的正式推出！预告视频中能看到斧子和盾牌等前作里有过登场的武器，请问本作还会有新的武器 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">反正斧子扔出去之后肉搏已经很带劲了，能不能来个大力神拳套
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 149#       发表于 2021-10-19 10:21
+
+
+ 本帖最后由 躺平划水摸鱼 于 2021-10-19 10:23 编辑 
+<blockquote>popchong 发表于 2021-10-19 10:13
+反正斧子扔出去之后肉搏已经很带劲了，能不能来个大力神拳套</blockquote>
+我猜游戏中盘干死索尔拿到喵喵锤以后可以斧锤双持——我捶！我捶！我捶散你们这帮死基佬呀！！！
+
+另外救出提尔后可以使用提尔的长枪(二代枪_模组)。
+
+
