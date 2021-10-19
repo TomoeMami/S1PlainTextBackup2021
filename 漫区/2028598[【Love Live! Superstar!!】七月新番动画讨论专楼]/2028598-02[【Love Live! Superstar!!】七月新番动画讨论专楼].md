@@ -15765,3 +15765,24 @@ DCD时期管太多把原主 ...</blockquote>
 所以花田在小南极还是发挥了平均之上的水平的，和星团比那确实好太多了
 
 
+
+
+*****
+
+####  ads147147  
+##### 2720#       发表于 2021-10-19 13:15
+
+
+ 本帖最后由 ads147147 于 2021-10-19 13:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53191038&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-19 13:04</a>
+所以花田在小南极还是发挥了平均之上的水平的，和星团比那确实好太多了 ...</blockquote>
+问题是小南极都几年前了，且不说星团，水团2期tv和剧场版都是什么玩意。
+
+这次本来说一单pv都有花田参与，再怎么也不会再砸锅了，怎么想的到花田想出来的是再播一遍sh。
+
+说起sh就让我想起这个。
+<img src="https://p.sda1.dev/2/54d67c6c4b6ae99a887c14243f9e6b10/5d2e07d1e480d91907.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
