@@ -17314,3 +17314,102 @@ b站？第十集都没更新的地方狗都不看<img src="https://static.saraba
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2852#       发表于 2021-10-19 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53198227&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-19 22:42</a>
+感动，pay终于会怎么拍了</blockquote>
+pay这张跟之前sayurin有张构图类似的，有去学了吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 2853#       发表于 2021-10-19 23:11
+
+
+鲤鱼在推上也发了库卡，这是可香头子的倔强吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Norkey1  
+##### 2854#       发表于 2021-10-19 23:13
+
+
+十二集都典中典复刻了，那你可可肯定是追飞机啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非换个人来写
+
+
+*****
+
+####  kata魂  
+##### 2855#       发表于 2021-10-19 23:14
+
+
+ 本帖最后由 kata魂 于 2021-10-19 23:16 编辑 
+
+可香（x）
+
+鲤鱼带你们回忆起第三集，顺便让人想念一下可可为数不多的高光（√）
+
+在没有可香推发话的话真的要变成幼驯染双向救赎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 2856#       发表于 2021-10-19 23:17
+
+
+可香党的倔强（X）
+
+股市操盘手（√）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这突然强推可香我怀疑是大人的任务
+
+
+*****
+
+####  笋狐  
+##### 2857#       发表于 2021-10-19 23:18
+
+
+这剧本演出可别搁这双向救赎了，一股子花田全肯定贴吧民写的自我感动小作文内味，尬的飞起（鸡皮疙瘩
+
+
+*****
+
+####  kbtit  
+##### 2858#       发表于 2021-10-19 23:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">如果第二季恋还是这么路人化的话，管你什么cp，我照样点差评
+
+
+*****
+
+####  lj205  
+##### 2859#       发表于 2021-10-19 23:25
+
+
+还有一年喘息，希望企划也能看看观众的反馈，别辜负妹子们的努力
+
+
+*****
+
+####  player3960  
+##### 2860#       发表于 2021-10-19 23:27
+
+
+追星团的这段时间，经常让我回忆起自己以前追的另一个团。同样是五个人，同样是歌超好听，同样中之人里有未成年jk，有素人但是第一次唱歌和配音的水平就惊为天人，但是同样动画高开低走，同样被系列前作的销量和评分吊打，这个系列最近出了剧场版。
+唉～只能说碰到这种情况只能是痛并快乐着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
