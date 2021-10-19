@@ -15672,3 +15672,46 @@ liella是缺少一个核 ...</blockquote>
 节目过几天会播，具体啥时候录的不太清楚。
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2714#       发表于 2021-10-19 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53190199&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 11:57</a>
+
+至少大家都知道，时王是因为白仓老爷子瞎几把指挥。但是白仓老爷子也没指示让崇皇登场第二集就被diver踹爆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这叫乱甩锅啊
+
+白仓不就正正是上头很有想法下面写的人只能吃SHI的典型例子之一
+
+DCD时期管太多把原主笔弄走，时王时期是大杂烩却很有想法地特意要找个完全不熟骑士的人来写
+
+下山固然有自己问题但像把历代角写OOC这种问题你能怪他吗，谁叫人本来就不熟，而白仓正是tm的喜欢人够不熟
+
+再说白仓是没指示让崇皇登场第二集就被踹爆，但那锅也不是下山的啊，而是演出大王的
+
+况且我也没说花田就没锅，只是说带货剧一团浆糊是常态罢了
+
+
+*****
+
+####  ads147147  
+##### 2715#       发表于 2021-10-19 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53190669&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-19 12:33</a>
+
+这叫乱甩锅啊
+
+白仓不就正正是上头很有想法下面写的人只能吃SHI的典型例子之一
+
+DCD时期管太多把原主 ...</blockquote>
+现在就等一个杂志访谈来分锅了。
+
+
+太期待了，之前报纸上还吹花田是自由的~创作者。
+
+
