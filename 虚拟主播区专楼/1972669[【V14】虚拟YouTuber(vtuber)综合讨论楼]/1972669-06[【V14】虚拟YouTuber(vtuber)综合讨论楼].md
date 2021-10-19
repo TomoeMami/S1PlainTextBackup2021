@@ -2680,3 +2680,18 @@ anmr刮了这么多终于轮到hnst了
 不知道郡郡的合同签到什么时候，感觉下次到期就会润了（也许是五年后）
 
 
+
+
+*****
+
+####  huanshen  
+##### 7689#       发表于 2021-10-19 11:39
+
+
+ 本帖最后由 huanshen 于 2021-10-19 11:40 编辑 
+
+774这是开新箱啊，hnst锁死在四人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+anmr还有两名伤员没回来呢，这时候接着抽卡不就是把没用的人驱赶走
+
+
