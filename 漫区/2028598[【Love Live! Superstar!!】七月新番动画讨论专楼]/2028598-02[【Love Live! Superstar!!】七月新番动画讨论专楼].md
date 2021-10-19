@@ -15858,3 +15858,55 @@ DCD时期管太多把原主 ...</blockquote>
 至于主线本来就是香音的独角戏，其他人不管之前表现得多么主力多么超级工具人现在一律溜边，就更跟恋没关系了
 
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2727#       发表于 2021-10-19 15:33
+
+
+贴2725楼链接里的其中几个回答
+<img src="https://p.sda1.dev/2/c5b2e036f7f756365e63c8a6e342fb6c/IMG_CMP_18896439.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/273e177a87ae7b40e159996b15a81004/IMG_CMP_223658532.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/a100d9519cdc875bbfba576ffe24b523/IMG_CMP_178753026.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 2728#       发表于 2021-10-19 15:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53191858&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-19 14:11</a>
+
+我滴妈，怎么黑泥都吐到删角色的地步了，拉拉动画剧情不就看个乐子吗，水水第二季搞成那逼样也没这么大怨气 ...</blockquote>
+这叫积怨已久。百姓苦资本家久已，奶头乐也要做得好人家才愿意吃啊。
+
+
+*****
+
+####  lj205  
+##### 2729#       发表于 2021-10-19 15:39
+
+
+所以京极才是罪魁祸首？
+
+
+*****
+
+####  ads147147  
+##### 2730#       发表于 2021-10-19 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193035&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-19 15:33</a>
+
+贴2725楼链接里的其中几个回答</blockquote>
+当年的分锅能分现在的锅吗，虽然应该是事情的真相，花田只是被退出来背锅的，真正恶心的是制作委员会里的巨物。
+
+
+但是啊，人家让你写你就写，学痞子砸橱柜啊。
+
+

@@ -1828,3 +1828,14 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 这摄影模式这画风最后还加个框就已经是某类游戏的画风了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  unsh  
+##### 6130#       发表于 2021-10-19 15:24
+
+
+还以为是可以自选姿势，等半天不做想要的姿势好难拍啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
