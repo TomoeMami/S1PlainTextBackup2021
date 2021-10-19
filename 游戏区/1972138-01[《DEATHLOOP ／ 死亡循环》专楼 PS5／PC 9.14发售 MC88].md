@@ -8475,3 +8475,49 @@ YouTube™ 视频：死亡之路-官方荣誉预告片
 boss先全是分散的，只有主线让他们慢慢聚在一起
 
 
+
+
+*****
+
+####  双刀少女  
+##### 682#       发表于 2021-10-19 19:27
+
+
+想问一下，这游戏之后有可能会上别的平台吗，我pc实在跑不起来..如果没可能的话我就找个视频通关了
+
+
+*****
+
+####  moimoi  
+##### 683#       发表于 2021-10-19 19:28
+
+
+<blockquote>双刀少女 发表于 2021-10-19 19:27
+想问一下，这游戏之后有说会上别的平台吗，我pc实在跑不起来..</blockquote>
+难道不是一年后进xgp吗，ps5限时独占
+
+
+*****
+
+####  矢量路比  
+##### 684#       发表于 2021-10-19 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53196142&amp;ptid=1972138" target="_blank">双刀少女 发表于 2021-10-19 19:27</a>
+
+想问一下，这游戏之后有可能会上别的平台吗，我pc实在跑不起来..如果没可能的话我就找个视频通关了 ...</blockquote>
+明年 9 月之后可以上「其他主机」，基本上就等于上 XSX/XSS 了
+
+
+*****
+
+####  supergilaboy  
+##### 685#       发表于 2021-10-19 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53195014&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-19 18:02</a>
+
+其实做那个任务的时候还是很刺激的，一路跑酷三秒钟都不能停，就是给的奖励，气死我了 ...</blockquote>
+没事，查理游戏有成就的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

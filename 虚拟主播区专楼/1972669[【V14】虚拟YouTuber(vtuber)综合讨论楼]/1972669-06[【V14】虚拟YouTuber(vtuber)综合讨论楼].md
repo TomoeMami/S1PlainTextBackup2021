@@ -2800,3 +2800,27 @@ Crunchyroll那个皮不是老早就有了吗，频道是最近才建的
 不准说爱豆路阿花的坏话<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7697#       发表于 2021-10-19 19:23
+
+
+nzn三周年做的这三个回顾动画，从2018年开始
+
+现在看来简直是恍如隔世啊……
+
+vspo也算是难得活下来的大逃杀胜者了
+
+
+*****
+
+####  FCCHua  
+##### 7698#       发表于 2021-10-19 19:31
+
+
+都是回忆<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
