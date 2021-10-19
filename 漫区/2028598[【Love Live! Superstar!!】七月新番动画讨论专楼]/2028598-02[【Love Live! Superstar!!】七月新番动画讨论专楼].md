@@ -16376,3 +16376,63 @@ D657679C-E7FB-4EFF-BAD7-69386C4E1BA1.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这片只是买了nhk档期，nhk又没投资负责什么，真子贡还写现在这剧情啊
 
 
+
+
+*****
+
+####  Norkey1  
+##### 2764#       发表于 2021-10-19 19:04
+
+
+今天的生放充满了欢快的气氛
+
+
+*****
+
+####  a92063256  
+##### 2765#       发表于 2021-10-19 19:05
+
+
+好！大家今天都很有精神<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  黑雪姫  
+##### 2766#       发表于 2021-10-19 19:10
+
+
+鲤鱼的英语震撼樱花妹
+
+https://video.weibo.com/show?fid=1034:4694074142425156
+
+
+*****
+
+####  後藤正文  
+##### 2767#       发表于 2021-10-19 19:16
+
+
+上尉家里是全日语交流的吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 2768#       发表于 2021-10-19 19:16
+
+
+连中之人都吐槽恋只有一个人，只能和狗在一起了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千千千千鸟  
+##### 2769#       发表于 2021-10-19 19:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
