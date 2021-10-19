@@ -17528,3 +17528,82 @@ pay这张跟之前sayurin有张构图类似的，有去学了吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这依葫芦画瓢交作业的摆烂态度，制作组在（请人代写）做的时候压根没想到过播出前几乎没人提的可香会被动画带这么火吧
 
 
+
+
+*****
+
+####  player3960  
+##### 2872#       发表于 2021-10-20 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53198866&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-19 23:45:37</a>
+恋不如像露比那样搞个迷之mv，或许人气还能救一救</blockquote>不如直接让青山姐本色出演算了，保证能火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 2873#       发表于 2021-10-20 00:13
+
+
+话说鲤鱼个人LIVE的那个场子，虽然是5000人场子，但是考虑到疫情需要隔开坐，那么可能官方实际打算是能过2000人到场就算赢？
+
+
+*****
+
+####  kata魂  
+##### 2874#       发表于 2021-10-20 00:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">2000那也不是小数目啊
+
+
+*****
+
+####  lj205  
+##### 2875#       发表于 2021-10-20 00:17
+
+
+不过这个好评率第一集我觉得不该有这么低，当然不妨碍最后一集还是差
+
+
+*****
+
+####  kata魂  
+##### 2876#       发表于 2021-10-20 00:19
+
+
+第一集还是挺乱的，尤其是最后的音乐突然出现，香音的转折铺垫的不够，再加上新团第一集有些debuff
+
+
+*****
+
+####  黑雪姫  
+##### 2877#       发表于 2021-10-20 00:20
+
+
+所以星团的问题到底是京极和花田的问题还是资本的问题？像第五六集她们去神津岛肯定是资本要求的，LL这个企划资本干预的情况很多。
+
+
+*****
+
+####  lj205  
+##### 2878#       发表于 2021-10-20 00:20
+
+
+Apple Music上新，但是依然把常夏给藏起来～
+
+
+*****
+
+####  kata魂  
+##### 2879#       发表于 2021-10-20 00:21
+
+
+ 本帖最后由 kata魂 于 2021-10-20 00:23 编辑 
+
+就不能是一群蛇精病凑到了一起吗，只能说是优秀的匹配机制了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
