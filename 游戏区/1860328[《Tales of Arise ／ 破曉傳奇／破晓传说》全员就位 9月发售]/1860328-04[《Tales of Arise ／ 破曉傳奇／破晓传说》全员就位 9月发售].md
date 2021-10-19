@@ -19188,3 +19188,17 @@ BA BS想简化操作，那就做Qte呗。
 打到出op2了，还有多长？另外这作小怪整个就换皮+换皮plus，一点新意没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zpower  
+##### 5916#       发表于 2021-10-19 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188892&amp;ptid=1860328" target="_blank">烛堡巡礼者 发表于 2021-10-19 10:27</a>
+
+打到出op2了，还有多长？另外这作小怪整个就换皮+换皮plus，一点新意没有 ...</blockquote>
+节奏变了，之前是主线boss强，支线Boss弱,OP2之后是主线boss弱，支线boss强。还有怪很多的大迷宫,传送点也少。(打支线boss玩次级难度，打不过，换成普通就一次过。难度差距巨大)，我用不同的角色并不觉得无聊。
+
+

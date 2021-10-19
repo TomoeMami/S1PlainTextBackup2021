@@ -15333,3 +15333,117 @@ not ALONE not HITORI / ミラクル STAY TUNE！ / Shooting Voice!!
 恋是跟学校捆绑在一起的，没有她，结丘就不存在，星团的基地就没了
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2689#       发表于 2021-10-19 11:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们编归编，别太过火了，连删人都出来了
+
+新伙伴玩到一半发现竟是童年好友这种假药看过一笑得了，真写就太都合主义了
+
+
+*****
+
+####  Gooddays  
+##### 2690#       发表于 2021-10-19 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189395&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-19 11:00</a>
+恋是跟学校捆绑在一起的，没有她，结丘就不存在，星团的基地就没了</blockquote>
+有她爸也可以，学校总不会是在她入学时才为她建立吧，假如她毕业后去追寻其他梦想不管理学校了，那便立刻废校吗？
+
+
+*****
+
+####  笔仁SaSaSa  
+##### 2691#       发表于 2021-10-19 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189345&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 10:57</a>
+
+就是单纯的没能力写出设定上的东西，叠buff过多也导致用力过猛。
+
+
+再来个时间飞逝中间细节全没看到。</blockquote>
+花田应该是有能力塑造好五个人的，至少有小南极朱玉在前；
+
+塞这么多可可香音的容量进去，我觉得是结合单曲的发售时间的和把香音那首个人曲塞进去的硬指标，就好比特摄为了卖玩具调整剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+真让花田放开手前三集不变，剩下每两集解决千堇恋的支线，最后三集解决可可外带lovelive收尾，这片不敢说多好，但至少是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2692#       发表于 2021-10-19 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189487&amp;ptid=2028598" target="_blank">Gooddays 发表于 2021-10-19 11:06</a>
+
+有她爸也可以，学校总不会是在她入学时才为她建立吧，假如她毕业后去追寻其他梦想不管理学校了，那便立刻 ...</blockquote>
+嘿呀，你就当她存在的意义是这个啊，本来就不能正常逻辑来解释，要不就把自己绕进去了
+
+
+*****
+
+####  笔仁SaSaSa  
+##### 2693#       发表于 2021-10-19 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189395&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-19 11:00</a>
+
+恋是跟学校捆绑在一起的，没有她，结丘就不存在，星团的基地就没了</blockquote>
+是捆在一起的没错，但是这次学校问题只局限在恋的个人支线，没有扩大到全团的危机。
+
+liella是缺少一个核心动力前进的，这就导致第一季过去五个人是事实上的各自心怀鬼胎。
+
+竞技动画的套路不就是主角觉醒自己对项目本身的热爱或是团队有了统一的团魂，第一季结尾的liella貌似哪个都不沾<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 2694#       发表于 2021-10-19 11:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">删人就过分了啊，动画拉了中之人青山还有有趣的啊
+
+
+*****
+
+####  JustW  
+##### 2695#       发表于 2021-10-19 11:18
+
+
+删人没必要，哪边是醋哪边是饺子得分清
+
+
+*****
+
+####  lj205  
+##### 2696#       发表于 2021-10-19 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189545&amp;ptid=2028598" target="_blank">笔仁SaSaSa 发表于 2021-10-19 11:10</a>
+
+是捆在一起的没错，但是这次学校问题只局限在恋的个人支线，没有扩大到全团的危机。
+
+liella是缺少一个核 ...</blockquote>
+卡农最后还是觉醒了，其实各种点都说到，就是后面剧情太松散，有些地方又安排很莫名其妙，所以整季看完后就是哪哪都没说完那种感觉，心里憋的慌
+
+
+*****
+
+####  Gooddays  
+##### 2697#       发表于 2021-10-19 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189529&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-19 11:09</a>
+嘿呀，你就当她存在的意义是这个啊，本来就不能正常逻辑来解释，要不就把自己绕进去了 ...</blockquote>
+我只是觉得不管以角色设定或推偶像企划来说，恋的情况太惨了，完全是一个没人要的孩子被强塞进团体中。
+
+
