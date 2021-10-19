@@ -1857,3 +1857,20 @@ Q：非常期待本作的正式推出！预告视频中能看到斧子和盾牌�
 ----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  415452356  
+##### 163#       发表于 2021-10-19 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53191811&amp;ptid=2025548" target="_blank">DelayNoMore 发表于 2021-10-19 14:08</a>
+
+已经进去过了
+
+
+—— 来自 S1Fun</blockquote>
+  是去过，但是不确定死了会不会进本地地府，毕竟从1的表现来看北欧神话的一些体系好像对奎爷没啥用
+
+

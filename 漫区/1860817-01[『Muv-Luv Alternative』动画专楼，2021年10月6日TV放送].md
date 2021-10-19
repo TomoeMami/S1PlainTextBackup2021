@@ -16988,3 +16988,16 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 哈撒韦楼里看到几个潭友在说买碟的事，你不如去私信问问？
 
 
+
+
+*****
+
+####  SorroFrost  
+##### 1169#       发表于 2021-10-19 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53184310&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-18 22:51</a>
+哈撒韦楼里看到几个潭友在说买碟的事，你不如去私信问问？</blockquote>
+不好意思刚刚看见，感谢
+
+
