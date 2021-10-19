@@ -14303,3 +14303,938 @@ LLSP看到最后，感觉这动画仿佛成了三次元女团的衍生品，就�
 脑洞大一点，把千恋堇合成一个角色，变成三人团，前三话剧情不变，香的幼驯染音乐科学生会长不赞成搞学园偶像（把那个破理由改改），但因为理事长给机会于是刀子嘴豆腐心跑来教跳舞理由是不能丢学校的脸，可香成功后揭露幼驯染当了好多年陪衬的过去，加上废校危机香说服幼驯染加入学园偶像，大获好评增加了招生，也因此得以说服幼驯染的海外老爸投资。皆大欢喜可喜可贺欧美得头。
 
 
+
+
+*****
+
+####  子夜微雪  
+##### 2670#       发表于 2021-10-19 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188564&amp;ptid=2028598" target="_blank">七七見奈波 发表于 2021-10-19 10:05</a>
+脑洞大一点，把千恋堇合成一个角色，变成三人团，前三话剧情不变，香的幼驯染音乐科学生会长不赞成搞学园偶 ...</blockquote>
+你这几乎没有民警的部分啊，若是再加上一直想却没被星探看中过的人设就成自打脸了
+千恋合为一人本质上就是删了恋这个角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  player3960  
+##### 2671#       发表于 2021-10-19 10:28
+
+
+不是我说，花田写的烂，但他也是在5个人的硬指标上在编啊，你们这动不动就删角色的，都给整成别的企划了，就没可比性了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 2672#       发表于 2021-10-19 10:32
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/103133ku7v2a0tz0zwgk4w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4dfff1d32a0fc54.jpg</strong> (224.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-19 10:31 上传
+
+
+鱼上了这个节目，还cos了托尔，那前段时间确实挺忙的。
+
+
+*****
+
+####  Piano-Forest  
+##### 2673#       发表于 2021-10-19 10:32
+
+
+大致整理一下CD公开的内容
+<strong>OP&amp;ED</strong>
+
+「START!! True dreams」/「未来は風のように」
+<img src="https://p.sda1.dev/2/8e7e9ad0606c04dc14b4ce7e260aef2a/341292_Gkg4S.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+01. START!! True dreams
+
+作詞：畑 亜貴
+
+作曲：小幡康裕
+
+編曲：山下洋介
+
+02. だから僕らは鳴らすんだ！
+
+作詞：宮嶋淳子
+
+作曲：藤井万利子
+
+編曲：久保田真悟（Jazzin’park）
+
+03. START!! True dreams (Off Vocal)
+
+04. だから僕らは鳴らすんだ！ (Off Vocal)</blockquote>
+<img src="https://p.sda1.dev/2/768899017a8391ec66cbb42766819831/341293_55W7O.jpg" referrerpolicy="no-referrer"> <blockquote>01. 未来は風のように
+
+作詞：畑 亜貴
+
+作曲：山田智和
+
+編曲：久保田真悟（Jazzin’park）
+
+弦編曲：兼松 衆
+
+02. この街でいまキミと
+
+作詞：宮嶋淳子
+
+作曲：めんま
+
+編曲：家原正樹
+
+03. 未来は風のように (Off Vocal)
+
+04. この街でいまキミと (Off Vocal)</blockquote>
+
+<strong>插入歌</strong>
+
+第1话&amp;第3话
+
+未来予報ハレルヤ！/Tiny Stars 
+<img src="https://p.sda1.dev/2/67f7180f093d49b0eb7d1e6e0a23c053/341495_E2meO.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+1. 未来予報ハレルヤ！
+
+作詞：宮嶋淳子
+
+作曲：EFFY
+
+編曲：山下洋介
+
+歌：Liella!
+
+2. Tiny Stars
+
+作詞：宮嶋淳子
+
+作曲・編曲：秋浦智裕
+
+弦編曲：兼松 衆
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）
+
+3．GOING UP
+
+作詞：宮嶋淳子
+
+作曲・編曲：秋浦智裕
+
+歌：Liella!
+
+4. 未来予報ハレルヤ！ (Off Vocal)
+
+5. Tiny Stars (Off Vocal)
+
+6. GOING UP (Off Vocal)</blockquote>
+<img src="https://p.sda1.dev/2/f41c2672b7c0682d7575827cea4f303a/61K0-fbrNSL._SL1500_.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+1. 未来予報ハレルヤ！
+
+作詞：宮嶋淳子
+
+作曲：EFFY
+
+編曲：山下洋介
+
+歌：Liella!
+
+2. Tiny Stars
+
+作詞：宮嶋淳子
+
+作曲・編曲：秋浦智裕
+
+弦編曲：兼松 衆
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）
+
+3．1.2.3！
+
+作詞：宮嶋淳子
+
+作曲：丸山真由子
+
+編曲：家原正樹
+
+歌：Liella!
+
+4. 未来予報ハレルヤ！ (Off Vocal)
+
+5. Tiny Stars (Off Vocal)
+
+6. 1.2.3！ (Off Vocal)</blockquote>
+第6话&amp;第8话
+
+常夏☆サンシャイン/Wish Song
+<img src="https://p.sda1.dev/2/22dfa22df82a73930df0ca8a66721598/348603_58Tsh.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+1. 常夏☆サンシャイン
+
+作詞：宮嶋淳子
+
+作曲・編曲：EFFY
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）、嵐 千砂都（CV.岬 なこ）、平安名すみれ（CV.ペイトン尚未）
+
+2. Wish Song
+
+作詞：宮嶋淳子
+
+作曲：フワリ
+
+編曲：兼松 衆
+
+歌：Liella!
+
+3．バイバイしちゃえば！？
+
+作詞：宮嶋淳子
+
+作曲：光増ハジメ
+
+編曲：EFFY
+
+歌：Liella!
+
+4. 常夏☆サンシャイン (Off Vocal)
+
+5. Wish Song (Off Vocal)
+
+6. バイバイしちゃえば！？ (Off Vocal)</blockquote>
+<img src="https://p.sda1.dev/2/b14bfb7f72efe84930c34aa0f88a1761/71b__HZHPTL._SL1500_.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+1. 常夏☆サンシャイン
+
+作詞：宮嶋淳子
+
+作曲・編曲：EFFY
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）、嵐 千砂都（CV.岬 なこ）、平安名すみれ（CV.ペイトン尚未）
+
+2. Wish Song
+
+作詞：宮嶋淳子
+
+作曲：フワリ
+
+編曲：兼松 衆
+
+歌：Liella!
+
+3．瞬きの先へ
+
+作詞：宮嶋淳子
+
+作曲・編曲：藤澤慶昌
+
+歌：Liella!
+
+4. 常夏☆サンシャイン (Off Vocal)
+
+5. Wish Song (Off Vocal)
+
+6. 瞬きの先へ (Off Vocal) (Off Vocal)</blockquote>
+第10话&amp;第12话
+<img src="https://p.sda1.dev/2/1dd897cf399d3fcdd551a70af9139759/71h7dGGYNwL._SL1500_.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+１．ノンフィクション!!
+
+作詞：宮嶋淳子
+
+ラップ詞：モン吉
+
+作曲：モン吉、田中隼人
+
+編曲：田中隼人
+
+歌：Liella!
+
+２．Starlight Prologue
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：山下洋介
+
+弦編曲：兼松 衆
+
+歌：Liella!
+
+3．Day1
+
+作詞：KEN THE 390
+
+作曲：めんま、KEN THE 390
+
+編曲：家原正樹
+
+歌：Liella!
+
+4. ノンフィクション!! (Off Vocal)
+
+5. Starlight Prologue (Off Vocal)
+
+6. Day1 (Off Vocal)</blockquote>
+<img src="https://p.sda1.dev/2/4d9cd0a6885bd1687ec62b71b4c2bce9/711NJ0eI_8L._SL1500_.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+１．ノンフィクション!!
+
+作詞：宮嶋淳子
+
+ラップ詞：モン吉
+
+作曲：モン吉、田中隼人
+
+編曲：田中隼人
+
+歌：Liella!
+
+２．Starlight Prologue
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：山下洋介
+
+弦編曲：兼松 衆
+
+歌：Liella!
+
+3．Dream Rainbow
+
+作詞：宮嶋淳子
+
+作曲：山口朗彦
+
+編曲：山下洋介
+
+歌：Liella!
+
+4. ノンフィクション!! (Off Vocal)
+
+5. Starlight Prologue (Off Vocal)
+
+6. Dream Rainbow (Off Vocal)</blockquote>
+「リエラのうた」
+<img src="https://p.sda1.dev/2/5ee9f878f01374c13ab4ee456cfb45c4/344685_YzgmO.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+1．Primary
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也　歌：Liella!
+
+2．Memories
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：澁谷かのん（CV.伊達さゆり）
+
+3．Memories
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：嵐 千砂都（CV.岬 なこ）
+
+4．Anniversary
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：唐 可可（CV.Liyuu）
+
+5．Anniversary
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：葉月 恋（CV.青山なぎさ）
+
+6．Message
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：平安名すみれ（CV.ペイトン尚未）
+
+7．Message
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：澁谷かのん（CV.伊達さゆり）
+
+8. Ringing!
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：嵐 千砂都（CV.岬 なこ）
+
+9. Ringing!
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：唐 可可（CV.Liyuu）
+
+10. Dears
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：葉月 恋（CV.青山なぎさ）
+
+11. Dears
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：平安名すみれ（CV.ペイトン尚未）
+
+12. Departure
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：森 悠也
+
+歌：Liella!</blockquote>
+
+<strong>OST（纯音乐版收录Disc1&amp;Disc1内容）</strong>
+<img src="https://p.sda1.dev/2/0520126fda6bb8cb12c07992415c9b1c/71nZ95HDqPL._SL1500_.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+[Disc1]
+
+01. Main Theme of LoveLive! Superstar!!
+
+02. 街が奏でる音楽
+
+03. ほんのちょっぴり〜Orchestra Ver.〜
+
+04. 気怠い朝
+
+05. ハイテンション！
+
+06. 新しい私
+
+07. パタリ、、
+
+08. 高飛車冷徹
+
+09. ？？？
+
+10. 力になりたい
+
+11. けんもほろろ
+
+12. 本当の気持ち
+
+13. 前回のラブライブ！スーパースター!!
+
+14. 輝く気持ち
+
+15. 許すまじ…！
+
+16. 熱い暑い
+
+17. 決戦！
+
+18. よそ行き笑顔
+
+19. 特訓スタート！
+
+20. 諦めない気持ち
+
+21. いつか
+
+22. 2人の気持ち
+
+23. やっぱりダメ
+
+24. やってみよう！
+
+25. 高まり
+
+26. それぞれの想い
+
+27. 新たな決心
+
+28. 想いをカタチに
+
+29. 寄り添う心
+
+30. グソクムシの少女
+
+31. 近づかない距離
+
+32. 忍び寄る影
+
+
+[Disc2]
+
+01. 追跡
+
+02. 助けてー！！
+
+03. 囚われの身
+
+04. 秘められた過去
+
+05. いざ、決闘
+
+06. センターの意味
+
+07. スカウト
+
+08. ゆったり〜まったり〜
+
+09. 始まりの瞬間
+
+10. 葛藤
+
+11. バカンスへ♪
+
+12. パッションアイランド
+
+13. 大はしゃぎ
+
+14. 想いをはせて
+
+15. 幼い日の思い出
+
+16. 誰かの為に
+
+17. 凸凹
+
+18. 好きだけじゃない
+
+19. 想いはひとつ
+
+20. 私の出番
+
+21. 閉ざされた心
+
+22. 対立
+
+23. 思い出の響き
+
+24. 結ばれた想い
+
+25. 星の連なり
+
+26. グループ名は？
+
+27. あなたのために
+
+28. 勝利の意味
+
+29. 冬の朝
+
+30.　夜空の煌めき
+
+
+[Disc3]
+
+01. ほんのちょっぴり
+
+歌：澁谷かのん（CV.伊達さゆり）
+
+02. 未来予報ハレルヤ！ 〜TV Size〜
+
+歌：Liella!
+
+03. START!! True dreams 〜TV Size〜
+
+歌：Liella!
+
+04. だいすきのうた
+
+歌：澁谷かのん（CV.伊達さゆり）
+
+05. Tiny Stars 〜Demo〜
+
+歌：澁谷かのん（CV.伊達さゆり）
+
+06. 未来は風のように 〜第2話Ver.〜
+
+歌：澁谷かのん（CV.伊達さゆり）
+
+07. Tiny Stars 〜TV Size〜
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）
+
+08. 未来は風のように 〜第3話Ver.〜
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）
+
+09. グソクムシのうた
+
+歌：平安名すみれ（CV.ペイトン尚未）
+
+10. グソクムシのうた 〜歌謡Ver.〜
+
+歌：平安名すみれ（CV.ペイトン尚未）
+
+11. 未来は風のように 〜第4話Ver.〜
+
+歌：平安名すみれ（CV.ペイトン尚未）
+
+12. 未来は風のように 〜第5話Ver.〜
+
+歌：嵐 千砂都（CV.岬 なこ）
+
+13. 常夏☆サンシャイン 〜TV Size〜
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）、嵐 千砂都（CV.岬 なこ）、平安名すみれ（CV.ペイトン尚未）
+
+14. 未来は風のように 〜第6話Ver.〜
+
+歌：澁谷かのん（CV.伊達さゆり）、唐 可可（CV.Liyuu）、嵐 千砂都（CV.岬 なこ）、平安名すみれ（CV.ペイトン尚未）
+
+15. 未来は風のように 〜第7話Ver.〜
+
+歌：葉月 恋（CV.青山なぎさ）
+
+16. Wish Song 〜TV Size〜
+
+歌：Liella!
+
+17. Dreaming Energy 〜TV Size〜
+
+歌：Liella!
+
+18. 未来は風のように 〜第9話Ver.〜
+
+歌：唐 可可（CV.Liyuu）、嵐 千砂都（CV.岬 なこ）、平安名すみれ（CV.ペイトン尚未）、葉月 恋（CV.青山なぎさ）
+
+19. ノンフィクション!! 〜TV Size〜
+
+歌：Liella!
+
+20. 未来は風のように 〜第10話Ver.〜
+
+歌：唐 可可（CV.Liyuu）、平安名すみれ（CV.ペイトン尚未）
+
+21. 私のSymphony 〜澁谷かのんVer.〜
+
+歌：澁谷かのん（CV.伊達さゆり）
+
+22. 未来は風のように 〜第11話Ver.〜
+
+歌：Liella!
+
+23. Starlight Prologue 〜TV Size〜
+
+歌：Liella!
+
+24. 未来は風のように 〜第12話Ver.〜
+
+歌：Liella!</blockquote>
+
+<strong>其他</strong>
+
+始まりは君の空
+<img src="https://p.sda1.dev/2/bf7155fd83ca166bf03c1a98cfa552ee/325549_LWD8E.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+■収録曲
+
+01.始まりは君の空
+
+作詞：畑 亜貴
+
+作曲・編曲：兼松 衆
+
+02.Dancing Heart La-Pa-Pa-Pa!
+
+作詞：畑 亜貴
+
+作曲・編曲：高木龍一
+
+弦編曲：椿山日南子
+
+03.Dreaming Energy
+
+作詞：畑 亜貴
+
+作曲：廣中トキワ
+
+編曲：Peach
+
+04.始まりは君の空 (Off Vocal)
+
+05.Dancing Heart La-Pa-Pa-Pa! (Off Vocal)
+
+06.Dreaming Energy (Off Vocal)
+
+■ドラマパート
+
+07.みんなでお出かけ！ ～計画編～
+
+08.みんなでお出かけ！ ～集合編～
+
+■同梱BD/DVD
+
+「始まりは君の空」アニメーションMV</blockquote>
+<img src="https://p.sda1.dev/2/6f82608c627c0573e15a4a85e0f0578f/71rCiD2auSL._SL1500_.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+■収録曲
+
+01.始まりは君の空
+
+作詞：畑 亜貴
+
+作曲・編曲：兼松 衆
+
+02.Dancing Heart La-Pa-Pa-Pa!
+
+作詞：畑 亜貴
+
+作曲・編曲：高木龍一
+
+弦編曲：椿山日南子
+
+03.私のSymphony
+
+作詞：宮嶋淳子
+
+作曲：高木誠司、高慶"CO-K"卓史
+
+編曲：高慶"CO-K"卓史
+
+弦管編曲：兼松 衆
+
+04.始まりは君の空 (Off Vocal)
+
+05.Dancing Heart La-Pa-Pa-Pa! (Off Vocal)
+
+06.私のSymphony (Off Vocal)
+
+■ドラマパート
+
+07. こんにちは！ ～澁谷かのん～
+
+08. どうも！ ～唐 可可～
+
+09. うぃーっす！ ～嵐 千砂都～
+
+10. お待たせしました！ ～平安名すみれ～
+
+11. はじめまして。 ～葉月 恋～
+
+■同梱BD/DVD
+
+「始まりは君の空」アニメーションMV</blockquote>
+「LIVE with a smile!」
+<img src="https://p.sda1.dev/2/3865b0bf8a70fc4e3db29c0ad3f93fec/20211015_231439.jpg" referrerpolicy="no-referrer"> <blockquote>【収録内容】
+
+01.LIVE with a smile!
+
+歌：Aqours・虹ヶ咲学園スクールアイドル同好会・Liella!
+
+作詞：畑 亜貴
+
+作曲：Ryota Saito、Diz
+
+編曲：EFFY(FirstCall)
+
+02.LIVE with a smile! (Aqours Ver.)
+
+歌：Aqours
+
+03.LIVE with a smile! (虹ヶ咲学園スクールアイドル同好会 Ver.)
+
+歌：虹ヶ咲学園スクールアイドル同好会
+
+04. LIVE with a smile! (Liella! Ver.)
+
+歌：Liella!
+
+05. LIVE with a smile! (Off Vocal)</blockquote>
+
+not ALONE not HITORI / ミラクル STAY TUNE！ / Shooting Voice!!
+<img src="https://p.sda1.dev/2/1daea513680f27874f0d2ceb159220ec/20211015_231656.jpg" referrerpolicy="no-referrer"> <blockquote>01.not ALONE not HITORI
+
+歌：Aqours
+
+作詞：畑 亜貴
+
+作曲：小高光太郎 、UiNA
+
+編曲：小高光太郎、谷 ナオキ(HANO)
+
+02.ミラクル STAY TUNE！歌：
+
+虹ヶ咲学園スクールアイドル同好会
+
+作詞：NOVECHIKA
+
+作曲：OVECHIKA、吉村隆行
+
+編曲：遠藤ナオキ
+
+03.Shooting Voice!!
+
+歌：Liella!
+
+作詞：宮嶋淳子
+
+作曲：小幡康裕
+
+編曲：出羽良彰
+
+04.not ALONE not HITORI (Off Vocal)
+
+05.ミラクル STAY TUNE！ (Off Vocal)
+
+06.Shooting Voice!! (Off Vocal)</blockquote>
+
+
+*****
+
+####  Gooddays  
+##### 2674#       发表于 2021-10-19 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188908&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-19 10:28</a>
+不是我说，花田写的烂，但他也是在5个人的硬指标上在编啊，你们这动不动就删角色的，都给整成别的企划了， ...</blockquote>
+恋的存在对团队没多大意义，除了有五人便能设 C 位。废校的问题跟 LL 便没关系，废校剧情以外恋也成半个路人了。
+
+
+*****
+
+####  JustW  
+##### 2675#       发表于 2021-10-19 10:34
+
+
+这写五个人也没比九个人好，删人肯定不能解决问题啊）
+
+
+*****
+
+####  chenflyyy  
+##### 2676#       发表于 2021-10-19 10:35
+
+
+你们在一个偶像企划里讨论要删角色。。。虽然我知道动画让你们伤得很深，但也不要太魔怔啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+算了还是来点中之人开心下吧，鲤鱼又上节目了，不过这次是以coser的身份<img src="https://p.sda1.dev/2/42dc4334b65e92c371e5a6b3fa6c3a2f/IMG_CMP_198261012.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gooddays  
+##### 2677#       发表于 2021-10-19 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188991&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-19 10:34</a>
+这写五个人也没比九个人好，删人肯定不能解决问题啊）</blockquote>
+至少不会出现表面五人团队，但剧情怎看也是 “四人团队+一外人”，导致整个团队看起来便怪怪的。
+
+
+*****
+
+####  七七見奈波  
+##### 2678#       发表于 2021-10-19 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188869&amp;ptid=2028598" target="_blank">子夜微雪 发表于 2021-10-19 10:25</a>
+
+你这几乎没有民警的部分啊，若是再加上一直想却没被星探看中过的人设就成自打脸了
+
+千恋合为一人本质上就 ...</blockquote>
+我本来还在编辑那楼呢没想到晚了一步
+
+
+*****
+
+####  七七見奈波  
+##### 2679#       发表于 2021-10-19 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53188564&amp;ptid=2028598" target="_blank">七七見奈波 发表于 2021-10-19 10:05</a>
+
+脑洞大一点，把千恋堇合成一个角色，变成三人团，前三话剧情不变，香的幼驯染音乐科学生会长不赞成搞学园偶 ...</blockquote>
+把编辑的内容放这里吧。
+
+
+再把假药加进去的话，6话缩编一下，虽然解决了废校危机，但幼驯染心里还是决定要先独立取得属于自己的成绩来彻底摆脱总是做陪衬的阴影，再正式入团。幼驯染加入团后团队实力大增（不仅跳舞好懂得制作训练计划而且还是六边形战士），可可认可她的才能但因幼驯染之前不屑学园偶像的态度而对她稍有不信任感，想要搞清楚这人的真心，然后展开10话情节（但是要改掉C位被同学否定、偷听得知可可不出成绩要回国的情节，团只有三人再搞二人小秘密就有点过火了），可可和幼驯染增加了彼此的信赖，在香的帮助下两人关系变好，三人拿卡游戏，赢得了一次比赛，然而下一次比赛中失利，可可不得不回家，表示和你们一起实现梦想的过程非常快乐，这时又意外发现幼驯染是可可幼年在魔都的玩伴，只在魔都停留了一两年就回到11区又因为家庭关系失去了联系，香也再度意识到可可作为鼓励自己再度唱出来的人对自己有多么重要的意义，一起追飞机把可可追回来，参加另一比赛，没有说结果，但是三人已经决定以love live优胜为目标一步一个脚印一起走下去，第一季完
+
+
+*****
+
+####  不能摸的屁屁  
+##### 2680#       发表于 2021-10-19 10:41
+
+
+这个cos真像小百合，姐妹实锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Gooddays  
+##### 2681#       发表于 2021-10-19 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189008&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-19 10:35</a>
+你们在一个偶像企划里讨论要删角色。。。虽然我知道动画让你们伤得很深，但也不要太魔怔啊
+算了还是 ...</blockquote>
+大家只是讨论剧情问题吧了，与其花田写不好恋剧情，那不如不写。何况所谓偶像企画便没硬性要求一定要五人，如果製作方一开始便想好故事，三人或七人也可以吧。
+
+既然说是偶像企画，那原本是准备如何推偶像？以恋的剧情来说这也不是合格的企画吧，怎看也像把一个外人硬塞进四人偶像团体中。
+
+

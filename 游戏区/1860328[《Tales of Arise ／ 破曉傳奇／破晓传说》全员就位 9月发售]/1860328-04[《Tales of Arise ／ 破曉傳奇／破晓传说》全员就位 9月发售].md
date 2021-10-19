@@ -19177,3 +19177,14 @@ BA BS想简化操作，那就做Qte呗。
 推荐点饰品呗？目前65级推异界刷满级中
 
 
+
+
+*****
+
+####  烛堡巡礼者  
+##### 5915#       发表于 2021-10-19 10:27
+
+
+打到出op2了，还有多长？另外这作小怪整个就换皮+换皮plus，一点新意没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
