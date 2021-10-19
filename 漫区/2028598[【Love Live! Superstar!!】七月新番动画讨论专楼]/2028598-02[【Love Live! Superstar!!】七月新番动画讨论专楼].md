@@ -16804,3 +16804,52 @@ pay：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" refe
 荧光棒拼命可香可香的那段笑死我了。整活可以的。
 
 
+
+
+*****
+
+####  ads147147  
+##### 2807#       发表于 2021-10-19 21:22
+
+
+可香头子鲤鱼
+可堇头子是谁
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  saglork  
+##### 2808#       发表于 2021-10-19 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53197326&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 21:22</a>
+可香头子鲤鱼
+可堇头子是谁</blockquote>
+京极花田<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 2809#       发表于 2021-10-19 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53196432&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-19 19:52</a>
+
+重要的发表就是第二季吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我猜是二单总选
+
+
+*****
+
+####  lj205  
+##### 2810#       发表于 2021-10-19 21:42
+
+
+<blockquote>中野四葉 发表于 2021-10-19 21:35
+我猜是二单总选</blockquote>
+还真是，希望鲤鱼能拿个C
+
+
