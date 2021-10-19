@@ -7134,3 +7134,17 @@ SC：能不能说点我这种女粉听得懂的 比如睡前剪指甲之类
 文静本来打算等瞳子生日吃一波尾流，没想到瞳子直接一整天从头封到尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  tankai  
+##### 605#       发表于 2021-10-19 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53197227&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-19 21:10</a>
+
+文静本来打算等瞳子生日吃一波尾流，没想到瞳子直接一整天从头封到尾 ...</blockquote>
+星瞳就知道文静等着锐评吃星落，可不能犯乃琳8.8的错误，那天文静收了波大的。
+
+
