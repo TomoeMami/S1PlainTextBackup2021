@@ -8521,3 +8521,28 @@ boss先全是分散的，只有主线让他们慢慢聚在一起
 没事，查理游戏有成就的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  wyy123  
+##### 686#       发表于 2021-10-19 19:44
+
+
+<blockquote>moimoi 发表于 2021-10-19 18:00
+你做完教学关，也就是第一次loop就会得到信息，让你知道boss在哪里，你在任务指引里能选带橘黄色的任务全 ...</blockquote>
+就是做实心的橘黄色的主线。空心的就是支线。谢谢。
+
+
+*****
+
+####  supergilaboy  
+##### 687#       发表于 2021-10-19 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53195005&amp;ptid=1972138" target="_blank">moimoi 发表于 2021-10-19 18:02</a>
+
+我只注意到一个让毒气浓度提升的装置，让一层的人都死了，然后让献祭者死的更快了，是旁边还有一个我没注 ...</blockquote>
+是旁边即左上角还有一个能升起那个人
+
+

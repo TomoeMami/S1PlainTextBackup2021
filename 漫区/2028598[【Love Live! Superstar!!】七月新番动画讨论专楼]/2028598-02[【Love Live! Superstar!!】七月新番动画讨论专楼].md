@@ -16474,3 +16474,137 @@ https://video.weibo.com/show?fid=1034:4694074142425156
 佩佩行不行哈哈哈哈
 
 
+
+
+*****
+
+####  lj205  
+##### 2774#       发表于 2021-10-19 19:50
+
+
+哈哈哈哈叫了几次都失败了
+
+
+*****
+
+####  优妮可  
+##### 2775#       发表于 2021-10-19 19:50
+
+
+草，三连事故
+
+
+*****
+
+####  中野四葉  
+##### 2776#       发表于 2021-10-19 19:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天怎么都听不到staff爽朗的笑声了
+
+
+*****
+
+####  cybernetics31  
+##### 2777#       发表于 2021-10-19 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来都累了 
+
+
+*****
+
+####  lj205  
+##### 2778#       发表于 2021-10-19 19:52
+
+
+重要的发表就是第二季吧
+
+
+*****
+
+####  saglork  
+##### 2779#       发表于 2021-10-19 19:53
+
+
+二期应该会惯例的留到live最后一场宣布
+
+
+*****
+
+####  Norkey1  
+##### 2780#       发表于 2021-10-19 19:53
+
+
+二次元跳绳还给了个特写，绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2781#       发表于 2021-10-19 19:53
+
+
+衣服跟跳绳放一起是为了突出衣服特别划算吗
+
+
+*****
+
+####  lj205  
+##### 2782#       发表于 2021-10-19 19:56
+
+
+<blockquote>saglork 发表于 2021-10-19 19:53
+二期应该会惯例的留到live最后一场宣布</blockquote>
+各种意义上并不希望鲤鱼生日宣布这个…………
+
+
+*****
+
+####  player3960  
+##### 2783#       发表于 2021-10-19 19:56
+
+
+艹，千酱的角色歌怎么一股80年代欧美流行乐的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cybernetics31  
+##### 2784#       发表于 2021-10-19 19:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BD3 开始就没抽选了 
+
+
+*****
+
+####  ads147147  
+##### 2785#       发表于 2021-10-19 19:59
+
+
+好歹过英语四级还是可以爆杀的。菜宝英语估计也没多好，鲤鱼或成真正的魔抓女孩（中日英）
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 2786#       发表于 2021-10-19 20:01
+
+
+复古disco？好像听a-ha的take on me……
+
+
+*****
+
+####  中野四葉  
+##### 2787#       发表于 2021-10-19 20:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又念了遍英语
+
+

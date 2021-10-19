@@ -2824,3 +2824,27 @@ vspo也算是难得活下来的大逃杀胜者了
 都是回忆<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 7699#       发表于 2021-10-19 19:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">同接1w4，这次是质的胜利
+
+
+*****
+
+####  FCCHua  
+##### 7700#       发表于 2021-10-19 19:58
+
+
+ 本帖最后由 FCCHua 于 2021-10-19 20:05 编辑 
+
+运营发声了？！草，声音听起来还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl kmt怎么又又又在和虫子战斗，该换地方住了吧
+zsyl 犬山那边和松本梨香的对谈开了
+
+
