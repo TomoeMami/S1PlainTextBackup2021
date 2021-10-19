@@ -16782,3 +16782,14 @@ pay：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" refe
 鲤鱼这波是复刻第三话可香荧光棒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 2805#       发表于 2021-10-19 20:48
+
+
+二次元CP不影响三次元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

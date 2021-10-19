@@ -8546,3 +8546,17 @@ boss先全是分散的，只有主线让他们慢慢聚在一起
 是旁边即左上角还有一个能升起那个人
 
 
+
+
+*****
+
+####  moimoi  
+##### 688#       发表于 2021-10-19 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53196346&amp;ptid=1972138" target="_blank">wyy123 发表于 2021-10-19 19:44</a>
+
+就是做实心的橘黄色的主线。空心的就是支线。谢谢。</blockquote>
+不知道你玩到哪了，总之在得到灌注系统前不用探索地图，直奔主线就好，不然会做很多没意义的事情
+
+
