@@ -16762,3 +16762,23 @@ pay：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" refe
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  反正我改名  
+##### 2803#       发表于 2021-10-19 20:25
+
+
+臣等正欲先降，陛下何故死战<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 2804#       发表于 2021-10-19 20:25
+
+
+鲤鱼这波是复刻第三话可香荧光棒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
