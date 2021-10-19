@@ -16873,3 +16873,155 @@ pay：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" refe
 五个人还搞总选，按入队顺序一人一次得了
 
 
+
+
+*****
+
+####  蜜梨柑  
+##### 2813#       发表于 2021-10-19 22:01
+
+
+反正拉拉选单曲C又不用花钱，随便投一下得了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 2814#       发表于 2021-10-19 22:01
+
+
+<img src="https://img.saraba1st.com/forum/202110/19/220140vhek5hqbnsexhre7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>63bf8e504fc2d562678bbcf8ba1190ef77c66ca8.jpg</strong> (95.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-19 22:01 上传
+
+
+*****
+
+####  kata魂  
+##### 2815#       发表于 2021-10-19 22:02
+
+
+ 本帖最后由 kata魂 于 2021-10-19 22:05 编辑 
+
+虽然已经过去两天了，但还是说句赶紧入土吧
+
+
+*****
+
+####  chenflyyy  
+##### 2816#       发表于 2021-10-19 22:02
+
+
+这好评率打破水的记录了吧，没想到拉成这样（图来自nga<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kbtit  
+##### 2817#       发表于 2021-10-19 22:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这也太差了，看来日本人也认为是sh劣质版
+
+
+*****
+
+####  凡人  
+##### 2818#       发表于 2021-10-19 22:04
+
+
+看了星之后，我感觉水2还挺不错的
+
+
+*****
+
+####  lj205  
+##### 2819#       发表于 2021-10-19 22:05
+
+
+是平均最低了不？
+
+
+*****
+
+####  中野四葉  
+##### 2820#       发表于 2021-10-19 22:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">埋了吧
+
+
+
+
+*****
+
+####  凡人  
+##### 2821#       发表于 2021-10-19 22:07
+
+
+ 本帖最后由 凡人 于 2021-10-19 22:13 编辑 
+
+考虑到水的好评率有放送事故的因素，星可以说是硬实力冠军了。
+
+
+*****
+
+####  梶原ひかり  
+##### 2822#       发表于 2021-10-19 22:10
+
+
+全話平均
+無印1期　86.81%
+無印2期　92.22%
+サン1期　84.08%
+サン2期　79.90%
+虹1期　　91.43%
+星1期　　81.03%
+
+サン2期に勝ちました
+
+
+*****
+
+####  lj205  
+##### 2823#       发表于 2021-10-19 22:14
+
+
+星2肯定能打破记录
+
+
+*****
+
+####  kata魂  
+##### 2824#       发表于 2021-10-19 22:14
+
+
+ 本帖最后由 kata魂 于 2021-10-19 22:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">对于我来说最好的消息就是终于不用看尬吹了，md每次评分低的时候贴吧都能找到千百种吹法真是奇了怪了
+
+
+*****
+
+####  优妮可  
+##### 2825#       发表于 2021-10-19 22:17
+
+
+二期不会比这更差吧
+
+
+*****
+
+####  Norkey1  
+##### 2826#       发表于 2021-10-19 22:18
+
+
+超过水就算成功.jpg
+什么？连水一期都打不过，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
