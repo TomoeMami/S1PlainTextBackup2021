@@ -16177,3 +16177,108 @@ D657679C-E7FB-4EFF-BAD7-69386C4E1BA1.jpeg
 上海蟹是什么鬼，估计是想说大闸蟹吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  寒风夜  
+##### 2747#       发表于 2021-10-19 16:25
+
+
+ 本帖最后由 寒风夜 于 2021-10-19 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193441&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 16:04</a>
+
+导演要管的事太多了，说到底也是精力不足的问题。制作委员会如果能绕过导演拍板的话，导演其实也就是个空 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 2748#       发表于 2021-10-19 16:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日本人就知道个麻婆豆腐
+
+
+*****
+
+####  仟音一心  
+##### 2749#       发表于 2021-10-19 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193661&amp;ptid=2028598" target="_blank">绯想alter2nd 发表于 2021-10-19 16:21</a>
+上海蟹是什么鬼，估计是想说大闸蟹吧</blockquote>
+大闸蟹日语里就叫上海蟹
+
+
+*****
+
+####  lj205  
+##### 2750#       发表于 2021-10-19 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193661&amp;ptid=2028598" target="_blank">绯想alter2nd 发表于 2021-10-19 16:21</a>
+
+上海蟹是什么鬼，估计是想说大闸蟹吧</blockquote>
+日本人管大闸蟹就叫上海蟹
+
+
+*****
+
+####  仟音一心  
+##### 2751#       发表于 2021-10-19 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193730&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-19 16:28</a>
+上海人大闸蟹还是吃的吧，日本人就知道个麻婆豆腐</blockquote>
+普段も上海蟹を食べへんや！
+是平时不吃上海蟹的意思
+
+
+*****
+
+####  绯想alter2nd  
+##### 2752#       发表于 2021-10-19 16:32
+
+
+暴露自己不懂日语了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 2753#       发表于 2021-10-19 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193366&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-19 15:59</a>
+
+那么隔壁虹是田中仁不听话还是上头根本不在乎拍成啥样呢。突然想起上个月楼里还在争是不是亲女儿的问题， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹团肯定是自由度高啊，第二季直接都说无视手游全部原创都可以了
+
+
+*****
+
+####  寒风夜  
+##### 2754#       发表于 2021-10-19 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53193802&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-19 16:32</a>
+
+虹团肯定是自由度高啊，第二季直接都说无视手游全部原创都可以了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">遵从as那太可怕
+
+
+*****
+
+####  秋月艾莉  
+##### 2755#       发表于 2021-10-19 16:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">田中仁固然是写得不错，但这不能和花田的情况相提并论啊
+
+有一说一有手游剧情在前面垫着踩雷，制作组只要不是完全傻子对粉丝雷点和基本诉求都有了解，跟真从零搭建是有本质区别的，还有一些可能的场外因素就不提了
+
+上面也有楼友说了，你找个同人大佬踩着花田过去搞补完也大几率可以爆花田
+
+
