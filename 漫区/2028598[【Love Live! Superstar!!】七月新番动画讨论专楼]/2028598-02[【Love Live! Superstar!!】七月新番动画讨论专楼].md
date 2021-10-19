@@ -16608,3 +16608,157 @@ https://video.weibo.com/show?fid=1034:4694074142425156
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又念了遍英语
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 2788#       发表于 2021-10-19 20:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又秀了遍标准英语 哈哈哈
+
+
+*****
+
+####  中野四葉  
+##### 2789#       发表于 2021-10-19 20:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">弹幕三文鱼笑死我了
+
+
+*****
+
+####  kbtit  
+##### 2790#       发表于 2021-10-19 20:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">义务教育的优势
+
+
+
+
+*****
+
+####  player3960  
+##### 2791#       发表于 2021-10-19 20:08
+
+
+鲤鱼的卡壳是不是已经成生放的定番了，每次读信都那么长，看着她念的真是辛苦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  中野四葉  
+##### 2792#       发表于 2021-10-19 20:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">想要场刊
+
+
+*****
+
+####  kata魂  
+##### 2793#       发表于 2021-10-19 20:13
+
+
+这场刊有点东西的啊~
+
+
+*****
+
+####  lj205  
+##### 2794#       发表于 2021-10-19 20:13
+
+
+官方真是暴力推可堇
+
+
+*****
+
+####  lj205  
+##### 2795#       发表于 2021-10-19 20:14
+
+
+佩佩…………
+
+
+*****
+
+####  名津流  
+##### 2796#       发表于 2021-10-19 20:16
+
+
+哈哈哈，可香光剑可还行，鲤鱼这整活满分
+
+
+*****
+
+####  中野四葉  
+##### 2797#       发表于 2021-10-19 20:16
+
+
+鲤鱼：可香可香<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+pay：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2798#       发表于 2021-10-19 20:16
+
+
+买了场刊海报灯还有套在灯上那个饰品，看来没选错
+
+
+*****
+
+####  Norkey1  
+##### 2799#       发表于 2021-10-19 20:17
+
+
+鲤鱼就硬可香啊，pay在旁边不会尴尬吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  名津流  
+##### 2800#       发表于 2021-10-19 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53196640&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-19 20:08</a>
+
+鲤鱼的卡壳是不是已经成生放的定番了，每次读信都那么长，看着她念的真是辛苦
+
+
+  -- 来自 能搜索的  ...</blockquote>
+会不会是故意为了突显她日语菜鸟的萌点才每次都给她安排长信的
+
+
+而且在观众吐槽之后再变本加厉给她安排更长的信
+
+
+*****
+
+####  lj205  
+##### 2801#       发表于 2021-10-19 20:22
+
+
+以后能投稿中文吗？让她念轻松点
+
+
+*****
+
+####  player3960  
+##### 2802#       发表于 2021-10-19 20:24
+
+
+可香可香，鲤鱼姐GJ！
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

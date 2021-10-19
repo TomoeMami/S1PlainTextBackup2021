@@ -1839,3 +1839,26 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 还以为是可以自选姿势，等半天不做想要的姿势好难拍啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6131#       发表于 2021-10-19 20:10
+
+
+ 本帖最后由 江戸前ルナ 于 2021-10-19 20:14 编辑 
+
+自己玩了下加看了推特上的介绍，大概是这个情况。
+[https://twitter.com/tdnossan/status/1450377922431184900](https://twitter.com/tdnossan/status/1450377922431184900)
+
+
+有几种类型的姿势的。开头女演员只会摆很少的姿势，拍摄的分数也不会高。通过前几次拍摄可以找“感觉”，拍出来的那个大字就是类型。根据选的拍摄任务确定右上角槽的种类。槽涨得越多，该类型解锁的姿势就越多，拍出来的分数就越高。然后就是抓拍的瞬间姿势继续判定分数。
+
+
+个人经验，不一定准确，初始姿势时正拍中距离多是UNIQUL，多尝试近镜啊侧镜啊多角度，避免UNIQUL陷阱（生放制作人疯狂出UNIQUL笑死）。只要章了多槽解锁新姿势就越容易把槽和分数涨上去，反过来女演员在你面前解锁的姿势就更多<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+另外生放的投票结果展示把玩了和没玩做反了，太草台了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
