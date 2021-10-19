@@ -16340,3 +16340,14 @@ D657679C-E7FB-4EFF-BAD7-69386C4E1BA1.jpeg
 小百合：さすが、我无话可说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 2761#       发表于 2021-10-19 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个想法，不一定对，分锅的话NHK是不是也要负责一点，像恋的剧情明明可以写得黑暗一点，结果星动画全程被人吐槽子供剧情
+
+
