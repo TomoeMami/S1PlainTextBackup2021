@@ -2880,3 +2880,36 @@ zsyl 犬山那边和松本梨香的对谈开了
 这怪玩意有点意思，V（ニコ生）版アイアム冒険少年 ...刀也挺有综艺才能<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 7703#       发表于 2021-10-19 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53181095&amp;ptid=1972669" target="_blank">free 发表于 2021-10-18 18:53</a>
+
+再次提示，初代可可亚频道将在明日关闭，要下载保存的赶快
+
+https://www.youtube.com/channel/UCCebk1_w5oiM ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/19/233423w2ckh8ci18vshhkk.png" referrerpolicy="no-referrer">
+
+
+<strong>没有了.png</strong> (5.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-19 23:34 上传
+
+
+*****
+
+####  rzrbtk  
+##### 7704#       发表于 2021-10-19 23:42
+
+
+b级下次的代理mc是鹰宫，嘉宾是星梦家，鹰宫虽然表面上老是那个样子但真的很器用啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">…
+
+
