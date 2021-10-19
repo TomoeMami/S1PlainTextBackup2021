@@ -17656,3 +17656,25 @@ Apple Music上新，但是依然把常夏给藏起来～
 即便如此，第一话那个便宜3d还是太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 2884#       发表于 2021-10-20 02:09
+
+
+u1s1，最后一集这个Live也实在是不行，被萨尼啪吊锤也是活该。另外我感觉花田先辈没准真的是靠厨力写作——第三话第十话两个神回对应的Live也是全剧最高水平的两个Live，然后第八话第十二话的Live基本上也是一言难尽，听完几乎记不住那种。显然Live应该是事先已经做好了，不归花田先辈管
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  猫睛石  
+##### 2885#       发表于 2021-10-20 03:51
+
+
+经过第六第十一集再推可香我反而觉得有点尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">可能因为我不是cp粉只是单纯的喜欢可可吧
+
+
