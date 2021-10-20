@@ -815,3 +815,47 @@ CAO.....点灵基卖却直接卡界面死机了....是只有我一个这样么</
 草啊，换衣服的时候才发现新魔术礼装咕哒子原来是闭着左眼<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看小图的时候我踏马还以为是左眼瞎了带的眼罩
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84078#       发表于 2021-10-20 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53211158&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-10-20 20:15</a>
+
+楼上说了我去看了一眼，NMD好像最强的真的是龙娘……
+
+
+5CD的30魔放+50猛兽特攻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能拿单体和全体比呢.jpg
+
+
+*****
+
+####  exiaexa  
+##### 84079#       发表于 2021-10-20 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53211379&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-20 20:29</a>
+
+你怎么能拿单体和全体比呢.jpg</blockquote>
+主要是雅克莫莱那个诅咒后置
+
+我怎么看她都是标准的未来战士
+
+
+有生之年开个宝具本把倍率拉上来+诅咒前置立刻实用性三级跳
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 84080#       发表于 2021-10-20 20:39
+
+
+绿卡还是老老实实等明年（可能）的绿拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
