@@ -18551,3 +18551,14 @@ B站也有人每周统计P站和推特，不过他只统计创作数不统计浏
 看了前几周，佩酱生日到10话开播的期间可堇增长数其实不是太明显
 
 
+
+
+*****
+
+####  kata魂  
+##### 2950#       发表于 2021-10-20 18:07
+
+
+这么一看可堇人确实是懒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
