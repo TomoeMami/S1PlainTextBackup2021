@@ -17052,3 +17052,23 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 第一季做到125的话 那大概三季？    如果做到重返战场 单看op歌词 我感觉做到这还蛮有可能的   这样两季差不多   不过看看明天有没有加速吧  坦白说我是希望能做到三季
 
 
+
+
+*****
+
+####  纯夏  
+##### 1174#       发表于 2021-10-20 08:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53199664&amp;ptid=1860817" target="_blank">advancedigger 发表于 2021-10-20 01:29</a>
+
+还行吧，动画制作品质也就那样了，但意思感受到了。
+
+看来这动画就是做来满足原作玩家怨念的，没怎么顾及新 ...</blockquote>
+别的不说 后面冥夜和武夜晚对话那段  明明是沉重的话题 结果TV版配的一点情绪起伏都没有
+
+对比游戏里冥夜的语气 差距有点大 
+
+新观众可能没感觉 老骨灰看这段明显觉得配的太水<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer"> 
+
+
