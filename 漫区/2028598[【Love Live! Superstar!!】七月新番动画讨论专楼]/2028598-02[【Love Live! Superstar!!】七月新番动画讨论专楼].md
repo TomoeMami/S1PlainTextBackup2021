@@ -17763,3 +17763,93 @@ kingblade棒子就是7号电池
 当这动画只有前三回加第十回不也挺好吗
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 2893#       发表于 2021-10-20 11:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么多场live tour 不就是用来热度套现的嘛。那边疫情控制住的话多走三次元倒也没啥，动画对大人来说可能真的无所谓
+
+
+*****
+
+####  寒风夜  
+##### 2894#       发表于 2021-10-20 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53201086&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-10-20 09:11</a>
+
+第一季赶着上马过去就过去了，第二季希望上点心吧，可能好多人包括上面那些大人物觉得有水水的例子，动画拉 ...</blockquote>
+固步自封
+
+
+*****
+
+####  寒风夜  
+##### 2895#       发表于 2021-10-20 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53201086&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-10-20 09:11</a>
+
+第一季赶着上马过去就过去了，第二季希望上点心吧，可能好多人包括上面那些大人物觉得有水水的例子，动画拉 ...</blockquote>
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 2896#       发表于 2021-10-20 11:07
+
+
+怎么到头来感觉一个角色都没刻画完整
+
+
+*****
+
+####  D麦林  
+##### 2897#       发表于 2021-10-20 11:12
+
+
+呜哇 上5ch拉拉版看了几个偏黑暗的楼
+
+深感S1的巨魔力和那边比简直就是小巫见大巫
+
+这就是真正的互联网巨魔的威力吗 我确实领教到了（
+
+草死 这一整串的发言无论哪条感觉如果是发在这的都会被扣鹅扣到爆 还有好多是写同人文的眼熟人物 真是不得了
+
+
+*****
+
+####  JustW  
+##### 2898#       发表于 2021-10-20 11:18
+
+
+泥潭混沌程度能和5厕比的或许只有v版了）
+
+
+*****
+
+####  D麦林  
+##### 2899#       发表于 2021-10-20 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53203194&amp;ptid=2028598" target="_blank">JustW 发表于 2021-10-20 11:18</a>
+
+泥潭混沌程度能和5厕比的或许只有v版了）</blockquote>
+顺便一提我好像发现了
+
+什么剧情讨论楼啊撕CP楼啊都不是真正的恶意
+
+真正的人类恶意完全表露的串全都是销量串<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有些恐怖光景你只有在销量串能看到
+
+
+不过我很好奇 有几个我看到写很有趣的同人文看起来应该人很好的作者也会有巨魔和发病言论
+
+这帮人是有什么模式切换吗
+
+
