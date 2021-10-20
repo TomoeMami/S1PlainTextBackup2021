@@ -17200,3 +17200,38 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 我以为做到重返战场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  freyja_wion  
+##### 1186#       发表于 2021-10-21 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214603&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2021-10-21 00:37</a>
+上尉和水月和其他中队的人设出来了  
+是不是准备赶到甲21
+我以为做到重返战场 ...</blockquote>
+如果按漫画进度的话前期也有她们几个
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  hlazd  
+##### 1187#       发表于 2021-10-21 00:55
+
+
+第一集都给驹木当主角了，很明显后面她和A01的那场戏是要做的
+
+
+*****
+
+####  OrianaThomson  
+##### 1188#       发表于 2021-10-21 01:01
+
+
+快进到125<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

@@ -2994,3 +2994,14 @@ pc永恒的遗珠
 血源真的连移植成本都收不回来吗 据我所知很多人都很期待啊
 
 
+
+
+*****
+
+####  赤魔法师  
+##### 261#       发表于 2021-10-21 00:57
+
+
+这表有FF9R，但是没有FF7R第二章<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
