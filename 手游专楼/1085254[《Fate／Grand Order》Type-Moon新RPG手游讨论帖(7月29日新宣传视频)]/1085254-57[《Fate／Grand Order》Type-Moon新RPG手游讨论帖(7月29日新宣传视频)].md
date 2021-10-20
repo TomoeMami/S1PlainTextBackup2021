@@ -964,3 +964,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 1个10连4星弓到手，最起码弓阶可以有个蓝卡光炮了。
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84090#       发表于 2021-10-20 22:41
+
+
+莫莱这个三破造型，越看越像罪恶装备斗争里的happy chaos<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

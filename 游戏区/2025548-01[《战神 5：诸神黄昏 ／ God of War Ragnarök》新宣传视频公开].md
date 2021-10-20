@@ -1874,3 +1874,56 @@ Q：非常期待本作的正式推出！预告视频中能看到斧子和盾牌�
   是去过，但是不确定死了会不会进本地地府，毕竟从1的表现来看北欧神话的一些体系好像对奎爷没啥用
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 164#         楼主| 发表于 2021-10-20 22:57
+
+
+ 本帖最后由 Piano-Forest 于 2021-10-20 23:05 编辑 
+
+战神 4上Steam了，2022年1月15日推出，国区售价¥ 279.00：
+[https://store.steampowered.com/app/1593500/](https://store.steampowered.com/app/1593500/)
+
+
+*****
+
+####  刘思慕  
+##### 165#       发表于 2021-10-20 23:02
+
+
+PS5,狗都不买
+
+
+*****
+
+####  azraelwang  
+##### 166#       发表于 2021-10-20 23:03
+
+
+索尼，真有你的啊<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Piano-Forest  
+##### 167#         楼主| 发表于 2021-10-20 23:04
+
+
+[https://youtu.be/HqQMh_tij0c](https://youtu.be/HqQMh_tij0c)
+<img src="https://p.sda1.dev/2/054f9ec4b9b489a1f4e87d2d96ec1ed9/20211020_230405.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BigLittle1999  
+##### 168#       发表于 2021-10-20 23:05
+
+
+索尼，该断气了
+
+

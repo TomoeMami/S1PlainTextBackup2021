@@ -3010,3 +3010,26 @@ C9什么时候也整了个vtuber，能不能快进LGD全员vt出道啊 ...</bloc
 感觉日本那边是渐渐好起来了？郡道也有胆子乱窜（虽然还不敢出国）还差点约到兔组
 
 
+
+
+*****
+
+####  free  
+##### 7711#       发表于 2021-10-20 23:02
+
+
+taya！
+
+hachi真是歌势之鉴，量大管饱，周周嗯唱
+
+
+<img src="https://img.saraba1st.com/forum/202110/20/230216x3exfihpwi3tewv3.png" referrerpolicy="no-referrer">
+
+
+<strong>taya.png</strong> (5.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-20 23:02 上传
+
+
