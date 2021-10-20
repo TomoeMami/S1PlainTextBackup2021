@@ -7178,3 +7178,16 @@ SC：能不能说点我这种女粉听得懂的 比如睡前剪指甲之类
 好起来了，快写快写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  莫洛骑士  
+##### 608#       发表于 2021-10-20 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53201769&amp;ptid=2013779" target="_blank">袜子 发表于 2021-10-20 09:52</a>
+好起来了，快写快写</blockquote>
+写出来就没内味了，留白才有想象空间，没准是小男友在桌子下面呢
+
+
