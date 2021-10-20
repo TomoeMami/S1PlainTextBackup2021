@@ -18599,3 +18599,58 @@ B站也有人每周统计P站和推特，不过他只统计创作数不统计浏
 B站依然姐发的Wish Song的剪辑到现在播放量才可怜的8.3W，小星星的剪辑被炮之前奔着200W去了，Nonfiction现在也80W+了，烂铁官方甚至连版权炮都懒得打，同期的常夏都没了Wish Song还在呢。12集更是烂，当时我看动画本身还没特别恶心，Live看完血压直往上涌，说好的SOLO呢？说好的香音展现唱功呢？全都没有，过完一遍没有印象深刻的旋律和镜头，也没有二刷的冲动。要我说这个Live就是被萨尼啪随便乱杀的水平，能拿第二都是主角光环了
 
 
+
+
+*****
+
+####  saglork  
+##### 2954#       发表于 2021-10-20 19:46
+
+
+live个人观感10＞3＞12＞6＞1＞8，最后这首抛开致敬，其实质量还是相当不错的，wishsong确实垫底，甚至不如11的香音solo印象分高，看完我就说同样的幼儿园文艺表演舞台布置风格，观感远不如水一单<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 2955#       发表于 2021-10-20 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210763&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-20 19:46</a>
+
+live个人观感10＞3＞12＞6＞1＞8，最后这首抛开致敬，其实质量还是相当不错的，wishsong确实垫底，甚至不如 ...</blockquote>
++1
+
+
+*****
+
+####  qratosone  
+##### 2956#       发表于 2021-10-20 19:51
+
+
+ 本帖最后由 qratosone 于 2021-10-20 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210763&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-20 19:46</a>
+
+live个人观感10＞3＞12＞6＞1＞8，最后这首抛开致敬，其实质量还是相当不错的，wishsong确实垫底，甚至不如 ...</blockquote>
+12确实没那么差，但是一个是质量配不上压轴LIVE的地位，另一个是歌曲本身也根本对不上11的铺垫。听完的感觉就是香音确实没追求胜负，随便整个了差不多的曲子参赛了，然后不出意料地被萨尼啪骑脸
+
+
+*****
+
+####  kata魂  
+##### 2957#       发表于 2021-10-20 20:01
+
+
+<img src="https://img.saraba1st.com/forum/202110/20/200014ofw33zwwpwfp9fww.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (11 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-20 20:00 上传
+
+
+我就没明白，宁愿塞两个五人的也不塞一个可可solo的
+
+

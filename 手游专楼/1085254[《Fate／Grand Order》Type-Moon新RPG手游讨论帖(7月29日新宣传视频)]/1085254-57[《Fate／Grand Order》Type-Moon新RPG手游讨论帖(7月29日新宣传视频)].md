@@ -434,3 +434,175 @@
 4星卡面是ccc活动漫画的人画的，说老实话这个人漫画有时候体格会比较夸张，插画应该还行
 
 
+
+
+*****
+
+####  白金口袋  
+##### 84044#       发表于 2021-10-20 19:43
+
+
+叶二你确定四五星这没标反吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 84045#       发表于 2021-10-20 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210655&amp;ptid=1085254" target="_blank">zore 发表于 2021-10-20 19:38</a>
+
+这4星卡面色疯了,bgo怎么过审</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新提问 bgo 水武藏和夹模之类的是什么样子的？ 和谐了？
+
+
+*****
+
+####  森兰丸  
+##### 84046#       发表于 2021-10-20 19:43
+
+
+CAO.....点灵基卖却直接卡界面死机了....是只有我一个这样么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 84047#       发表于 2021-10-20 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210729&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-20 19:43</a>
+
+CAO.....点灵基卖却直接卡界面死机了....是只有我一个这样么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 没有 该豹跳了亲
+
+
+*****
+
+####  cckuku  
+##### 84048#       发表于 2021-10-20 19:46
+
+
+总感觉龙娘这腿是不是太长了？
+
+
+*****
+
+####  angelooo  
+##### 84049#       发表于 2021-10-20 19:47
+
+
+<blockquote>alucardcz 发表于 2021-10-20 19:43
+萌新提问 bgo 水武藏和夹模之类的是什么样子的？ 和谐了？</blockquote>
+目前这俩什么都没有发生
+
+
+*****
+
+####  白夜羽  
+##### 84050#       发表于 2021-10-20 19:48
+
+
+诶，怎么突然开活动了…算了，兄弟让我先把新四星抽了再说，只有一个十连的石头，我劝你不要不知好歹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 84051#       发表于 2021-10-20 19:50
+
+
+ 本帖最后由 exiaexa 于 2021-10-20 19:51 编辑 
+
+跑路跑路，这五星怎么又是个绿的，极大打击了兴趣
+
+黑皮奶2宝，4星疯狂出奇怪的东西，还一闪而过歪了条印度龙
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 84052#       发表于 2021-10-20 19:51
+
+
+<blockquote>cckuku 发表于 2021-10-20 19:46
+总感觉龙娘这腿是不是太长了？</blockquote>
+有一部分可能是那个大裙子造成了视觉错觉，不过这次只有那个卡池四星的卡面水平超常，黑星的五星和wada的新龙娘都挺一般的
+
+
+*****
+
+####  alucardcz  
+##### 84053#       发表于 2021-10-20 19:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新衣服居然是红卡
+
+
+*****
+
+####  alucardcz  
+##### 84054#       发表于 2021-10-20 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210833&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-10-20 19:51</a>
+
+有一部分可能是那个大裙子造成了视觉错觉，不过这次只有那个卡池四星的卡面水平超常，黑星的五星和wada的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙娘一看就是给人一种骨瘦如柴的感觉 这手臂肩膀都啥样了（
+
+
+*****
+
+####  里村紅葉  
+##### 84055#       发表于 2021-10-20 19:55
+
+
+10张呼符两个新的全出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 84056#       发表于 2021-10-20 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210875&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-10-20 19:55</a>
+
+10张呼符两个新的全出了看来荚膜是真的届不到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟悉的豹跳 欧羡慕
+
+
+*****
+
+####  LOLITA  
+##### 84057#       发表于 2021-10-20 19:57
+
+
+啊。。。大杰克满破变那样了。。。不喜欢不抽了
+
+整了个二宝大辟谷，欢迎大家来瓢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 84058#       发表于 2021-10-20 19:59
+
+
+我想起来这次龙娘初始卡面给我什么感觉了，枪呆泳装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 84059#       发表于 2021-10-20 19:59
+
+
+这四星满破卡面
+
+我真的好了，我宣布这就是整个型月最好的黑皮
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
