@@ -18031,3 +18031,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 等一个五星龙娘
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83997#       发表于 2021-10-20 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个新红卡
+
+
