@@ -7161,3 +7161,20 @@ SC：能不能说点我这种女粉听得懂的 比如睡前剪指甲之类
 反转了，文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静你别不理我啊我再也不惹你生气了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  袜子  
+##### 607#       发表于 2021-10-20 09:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53199255&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-20 00:25</a>
+
+鉴于今天文静的黄色笑话和小男友经验，我深深地梁木了，我要狠狠地脱坑回踩，写一篇万字檄文讨伐文静！
+
+
+反 ...</blockquote>
+好起来了，快写快写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
