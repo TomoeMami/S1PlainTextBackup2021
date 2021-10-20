@@ -17072,3 +17072,16 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 新观众可能没感觉 老骨灰看这段明显觉得配的太水<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer"> 
 
 
+
+
+*****
+
+####  smdzh2  
+##### 1175#       发表于 2021-10-20 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53197017&amp;ptid=1860817" target="_blank">球獭 发表于 2021-10-19 21:46</a>
+勇爷和唯依也太甜了，但为什么他们是。。。。</blockquote>
+输给了白毛这个属性，虽败犹荣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
