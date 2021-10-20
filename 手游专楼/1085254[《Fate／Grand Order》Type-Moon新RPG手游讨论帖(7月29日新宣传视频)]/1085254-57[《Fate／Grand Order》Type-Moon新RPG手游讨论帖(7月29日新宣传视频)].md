@@ -975,3 +975,34 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 莫莱这个三破造型，越看越像罪恶装备斗争里的happy chaos<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 84091#       发表于 2021-10-21 00:14
+
+
+可惜抽不到大王那张礼装，只能希望这个月之后的呼符能不能抽出来了。
+
+
+*****
+
+####  J-002  
+##### 84092#       发表于 2021-10-21 00:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">出了两张新弓，但被我手滑买了一张……
+
+
+*****
+
+####  任天索尼子  
+##### 84093#       发表于 2021-10-21 07:04
+
+
+两发十连团长出了 没有四星大柰子
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
