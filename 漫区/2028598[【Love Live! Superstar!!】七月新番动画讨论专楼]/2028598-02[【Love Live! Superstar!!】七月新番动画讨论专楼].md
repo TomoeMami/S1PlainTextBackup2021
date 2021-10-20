@@ -18896,3 +18896,15 @@ op服装没有那些花花绿绿的衣服三次元化以后常见的廉价和山
 闪耀色彩的人设是真的很会，少有的看着人设图就会对这个角色感兴趣那种<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Norkey1  
+##### 2975#       发表于 2021-10-20 23:53
+
+
+忽悠子看到卡面第一眼就爱上了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+闪耀色彩的卡面绝对是顶级水准啊，只可惜游戏不合胃口
+
+

@@ -2908,3 +2908,25 @@ VGC：MGS 3 重制版由维塔士操刀，寂静岭、恶魔城将复活
 说明血缘确实没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  2082082012  
+##### 253#       发表于 2021-10-20 23:48
+
+
+中了不少啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  supergilaboy  
+##### 254#       发表于 2021-10-20 23:55
+
+
+真正的独占血源<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

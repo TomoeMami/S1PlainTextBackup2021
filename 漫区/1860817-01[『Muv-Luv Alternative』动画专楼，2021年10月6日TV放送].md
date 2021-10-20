@@ -17114,3 +17114,14 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 大白毛不照样翘辫子了，最后赢家还得看我小姨子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  KOPKOM  
+##### 1178#         楼主| 发表于 2021-10-20 23:57
+
+
+开头美军那段竟然放到这一集了
+
+
