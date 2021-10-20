@@ -18785,3 +18785,42 @@ wish song服装太朴素，但是歌确实好听，至于什么伴奏太吵，�
 星团的巨乳担当 岬
 
 
+
+
+*****
+
+####  megapikachu  
+##### 2966#       发表于 2021-10-20 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53211576&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-20 20:41</a>
+
+要我排个人心中的星团live排名那就是:
+
+1. START!! True dreams
+
+2.tiny stars</blockquote>
+op服装没有那些花花绿绿的衣服三次元化以后常见的廉价和山寨感，她们五个人穿上以后观感非常好。
+
+
+*****
+
+####  player3960  
+##### 2967#       发表于 2021-10-20 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212243&amp;ptid=2028598" target="_blank">megapikachu 发表于 2021-10-20 21:22:48</a>
+op服装没有那些花花绿绿的衣服三次元化以后常见的廉价和山寨感，她们五个人穿上以后观感非常好。 ...</blockquote>对，就是这种感觉！越说越想要昨天那个场刊了，里面全是这套衣服的写真<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 2968#       发表于 2021-10-20 21:37
+
+
+鲤鱼今天没发CD发售视频
+
+

@@ -893,3 +893,38 @@ CAO.....点灵基卖却直接卡界面死机了....是只有我一个这样么</
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新也没有 连3性礼装都没
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84084#       发表于 2021-10-20 21:21
+
+
+四星弓的画师我一开始还以为是鬼月之类的海中人，结果是个正经漫画家，我之前还看过他画的《梅原大吾fightknggamers》...真就，跨度挺大的...
+
+
+*****
+
+####  zakki  
+##### 84085#       发表于 2021-10-20 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212203&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-20 21:19</a>
+萌新也没有 连3性礼装都没</blockquote>
+3星礼装左转友情池<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84086#       发表于 2021-10-20 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212225&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-10-20 21:21</a>
+四星弓的画师我一开始还以为是鬼月之类的海中人，结果是个正经漫画家，我之前还看过他画的《梅原大吾fightk ...</blockquote>
+FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
