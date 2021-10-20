@@ -942,3 +942,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">比你强点 有一张三星礼装俩四星俩五星 就NM离谱
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 84088#       发表于 2021-10-20 22:15
+
+
+突然意识到，启示录1的三艘船是不是到了两艘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
