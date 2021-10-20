@@ -19247,3 +19247,40 @@ BA BS想简化操作，那就做Qte呗。
 op2后面的很赶
 
 
+
+
+*****
+
+####  faithlifer  
+##### 5921#       发表于 2021-10-20 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53206980&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-10-20 15:20</a>
+
+没记错的话2/3了吧
+
+op2后面的很赶</blockquote>
+好的，有点点烦躁了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  放大镜  
+##### 5922#       发表于 2021-10-20 15:37
+
+
+ 本帖最后由 放大镜 于 2021-10-20 15:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53156988&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-10-17 03:29</a>
+
+推荐点饰品呗？目前65级推异界刷满级中</blockquote>
+不嫌麻烦的话，小怪命中戒指，BOSS攻击/属攻，反之就用双攻
+
+法师多垫两下低级法术咏唱速度就上去了，不一定要咏唱加速
+
+
+插槽全用反击30%
+
+
+“反击”的定义不是闪避回击，而是怪物攻击动作中的状态，被打断后也算
+
+
