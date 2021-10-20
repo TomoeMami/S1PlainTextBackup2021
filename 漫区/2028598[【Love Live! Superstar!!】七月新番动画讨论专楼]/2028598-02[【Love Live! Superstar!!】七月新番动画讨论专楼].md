@@ -18654,3 +18654,35 @@ live个人观感10＞3＞12＞6＞1＞8，最后这首抛开致敬，其实质�
 我就没明白，宁愿塞两个五人的也不塞一个可可solo的
 
 
+
+
+*****
+
+####  kbtit  
+##### 2958#       发表于 2021-10-20 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210944&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-20 21:01</a>
+
+我就没明白，宁愿塞两个五人的也不塞一个可可solo的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">那肯定是大人的原因了
+
+
+*****
+
+####  lj205  
+##### 2959#       发表于 2021-10-20 20:17
+
+
+鲤鱼连着3天直播，周末还有放映会，下周开始巡回，应该是星团第一次合宿吧？
+
+
+*****
+
+####  寒风夜  
+##### 2960#       发表于 2021-10-20 20:19
+
+
+太忙了
+
+

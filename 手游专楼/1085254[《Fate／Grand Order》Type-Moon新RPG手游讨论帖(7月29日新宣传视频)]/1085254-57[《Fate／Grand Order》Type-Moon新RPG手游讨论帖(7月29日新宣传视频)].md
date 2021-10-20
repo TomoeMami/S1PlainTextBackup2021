@@ -606,3 +606,212 @@ CAO.....点灵基卖却直接卡界面死机了....是只有我一个这样么</
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  白金口袋  
+##### 84060#       发表于 2021-10-20 20:01
+
+
+6个十连+10护符，没新5星，新4星4宝+1喀耳刻，也行吧，反正新4星够涩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  rooarr  
+##### 84061#       发表于 2021-10-20 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210835&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-20 19:51</a>
+
+新衣服居然是红卡</blockquote>
+看，说是红卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 84062#       发表于 2021-10-20 20:03
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 84063#       发表于 2021-10-20 20:03
+
+
+再翻
+
+
+*****
+
+####  exiaexa  
+##### 84064#       发表于 2021-10-20 20:04
+
+
+然后我震惊的发现，ゼノビア居然是常驻
+
+抽个3宝等歪算了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 84065#       发表于 2021-10-20 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210744&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-20 19:44</a>
+
+你好 没有 该豹跳了亲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对我没有任何厨力放出.....其中一个还是切了JJ的....目前没有一点抽的欲望
+
+
+去贴吧逛了一圈只看到有几个零零散散的玩家也碰到和我一样的问题了....看来又是个别机型出问题了
+
+
+*****
+
+####  白金口袋  
+##### 84066#       发表于 2021-10-20 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53211015&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-20 06:05</a>
+
+对我没有任何厨力放出.....其中一个还是切了JJ的....目前没有一点抽的欲望
+
+
+去贴吧逛了一圈只看到 ...</blockquote>
+没，我遇到跟你一样的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 84067#       发表于 2021-10-20 20:08
+
+
+我怎么觉着三张卡里最强的是龙娘
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  zakki  
+##### 84068#       发表于 2021-10-20 20:09
+
+
+一发十连两个四星，还行
+
+
+*****
+
+####  angelooo  
+##### 84069#       发表于 2021-10-20 20:09
+
+
+<blockquote>exiaexa 发表于 2021-10-20 20:04
+然后我震惊的发现，ゼノビア居然是常驻
+
+抽个3宝等歪算了</blockquote>
+常驻好事啊，虽然常驻等歪是个骗局
+
+这次yls也太好心了，真是可疑
+
+
+*****
+
+####  霧谷藤乃  
+##### 84070#       发表于 2021-10-20 20:10
+
+
+5个11连才届到新四星…没剩几个石头只能溜了
+
+
+*****
+
+####  sosgame67  
+##### 84071#       发表于 2021-10-20 20:11
+
+
+四个十连二宝四星弓，跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yzj134100  
+##### 84072#       发表于 2021-10-20 20:14
+
+
+出了一大堆4星，想卖卡还有bug
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  exiaexa  
+##### 84073#       发表于 2021-10-20 20:15
+
+
+楼上说了我去看了一眼，NMD好像最强的真的是龙娘……
+
+
+5CD的30魔放+50猛兽特攻
+
+4CD的30NP+30星
+
+宝具还有个20攻击力
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+ゼノビア赢在剑阶王多，雅克莫莱整一个未来（可期）战士
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eden_hazard  
+##### 84074#       发表于 2021-10-20 20:15
+
+
+第一个11连就出团长了，想着省石头了结果一直到第十二个11连才连出两个黑皮弓……
+不过黑皮太色了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zore  
+##### 84075#       发表于 2021-10-20 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这礼装里还藏东西呢,有个小奥伯龙还有俩泳装
+
+
+*****
+
+####  v22325  
+##### 84076#       发表于 2021-10-20 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">一发五星 但是双子 
+
+
+*****
+
+####  白夜羽  
+##### 84077#       发表于 2021-10-20 20:17
+
+
+草啊，换衣服的时候才发现新魔术礼装咕哒子原来是闭着左眼<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看小图的时候我踏马还以为是左眼瞎了带的眼罩
+
+
