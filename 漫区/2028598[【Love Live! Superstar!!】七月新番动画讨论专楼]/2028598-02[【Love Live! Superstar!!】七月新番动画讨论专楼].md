@@ -18824,3 +18824,40 @@ op服装没有那些花花绿绿的衣服三次元化以后常见的廉价和山
 鲤鱼今天没发CD发售视频
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 2969#       发表于 2021-10-20 21:41
+
+
+不知道有没有人统计p站色图数量的，我还挺想看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">前些日子我就是因为色图喜欢上了黛冬优子这个角色，虽然到现在都不知道她是哪个企划的
+
+
+*****
+
+####  中野四葉  
+##### 2970#       发表于 2021-10-20 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212509&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-20 21:41</a>
+
+不知道有没有人统计p站色图数量的，我还挺想看前些日子我就是因为色图喜欢上了黛冬优子这个角色，虽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁偶像大师闪耀色彩
+
+
+
+
+*****
+
+####  ads147147  
+##### 2971#       发表于 2021-10-20 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212509&amp;ptid=2028598" target="_blank">CharlieZ- 发表于 2021-10-20 21:41</a>
+
+不知道有没有人统计p站色图数量的，我还挺想看前些日子我就是因为色图喜欢上了黛冬优子这个角色，虽 ...</blockquote>
+群友有句话叫说，如果你看一个偶像角色像是galgame里的，基本就是偶像大师shinningcolor里的（
+
+

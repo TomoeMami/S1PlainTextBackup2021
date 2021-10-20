@@ -928,3 +928,17 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  qixinno2  
+##### 84087#       发表于 2021-10-20 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212203&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-20 21:19</a>
+
+萌新也没有 连3性礼装都没</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">比你强点 有一张三星礼装俩四星俩五星 就NM离谱
+
+
