@@ -2947,3 +2947,16 @@ b级下次的代理mc是鹰宫，嘉宾是星梦家，鹰宫虽然表面上老�
 C9什么时候也整了个vtuber，能不能快进LGD全员vt出道啊
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 7707#       发表于 2021-10-20 15:43
+
+
+<img src="https://p.sda1.dev/2/a769e63684ec9b6d14d40233bce9f372/-6879ab9bd3880b7a.jpg" referrerpolicy="no-referrer">有点意思
+没有有马纪念，看来木口是飞机云粉丝
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
