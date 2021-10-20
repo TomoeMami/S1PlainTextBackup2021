@@ -7227,3 +7227,40 @@ SC：能不能说点我这种女粉听得懂的 比如睡前剪指甲之类
 syl 琳是模特 白白不清楚 我记得文静之前在直播时提了一嘴
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 612#       发表于 2021-10-20 12:27
+
+
+这个像我这样的人词写的真好，就是调音稀烂，属于是粉随主播又好又烂了。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  莫洛骑士  
+##### 613#       发表于 2021-10-20 12:33
+
+
+ 本帖最后由 莫洛骑士 于 2021-10-20 12:40 编辑 
+
+好久没笑这么开心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一大半功劳得归功于二创都太逆天
+
+syl 今天的节奏从“文静超市文具”开始就奠定下来了
+
+
+*****
+
+####  魔法少女大头  
+##### 614#       发表于 2021-10-20 12:35
+
+
+不能转的二创看起来还是有意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
