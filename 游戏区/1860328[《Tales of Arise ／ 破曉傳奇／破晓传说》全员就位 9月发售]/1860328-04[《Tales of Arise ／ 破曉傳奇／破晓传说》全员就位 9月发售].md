@@ -19299,3 +19299,17 @@ op2后面的很赶</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  zpower  
+##### 5924#       发表于 2021-10-20 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53207028&amp;ptid=1860328" target="_blank">faithlifer 发表于 2021-10-20 15:22</a>
+
+好的，有点点烦躁了</blockquote>
+这系列的通病，明雷进战斗，几十个小时后，只用一个角色打杂兵战时间长就会比较无聊(用其他角色又觉得手感不好)。还是尝试多用其他角色,设置其他技能。
+
+

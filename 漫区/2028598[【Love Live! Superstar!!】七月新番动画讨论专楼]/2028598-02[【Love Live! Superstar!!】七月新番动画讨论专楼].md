@@ -18430,3 +18430,54 @@ P站截止今天中午的数据 <blockquote>閲覧数10/20時点
 关键字谢谢~~~~~
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2942#       发表于 2021-10-20 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53208233&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-20 16:33</a>
+
+P站截止今天中午的数据
+
+
+说明可堇人都是懒鬼，香千人喜欢创作长篇故事，可香人喜欢画图</blockquote>
+可香和可堇都有一部分写成且只打空我/堇可tag的，尤其是空我，所以实际上应该还要再多一点
+
+可堇关注度真是来势汹汹，11集我看的时候才第三，香千第二，想不到一举冲上第一<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kbtit  
+##### 2943#       发表于 2021-10-20 16:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香千怎么那么多人写小说啊
+
+
+*****
+
+####  lj205  
+##### 2944#       发表于 2021-10-20 16:48
+
+
+可可有中文圈加持，相关的肯定比其他的多，貌似韩国圈那边也不少她的受众
+
+
+*****
+
+####  秋月艾莉  
+##### 2945#       发表于 2021-10-20 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53208470&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-20 16:48</a>
+
+可可有中文圈加持，相关的肯定比其他的多，貌似韩国圈那边也不少她的受众 ...</blockquote>
+有啊，爱屋及乌地也很喜欢机器人鲤鱼
+
+有个经常画萌漫的的韩国画师看了11话还破防了，sad<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
