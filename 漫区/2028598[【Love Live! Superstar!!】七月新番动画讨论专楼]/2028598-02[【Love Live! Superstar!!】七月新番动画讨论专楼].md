@@ -19049,3 +19049,29 @@ as卡面其实也很好看啊，但是那个3d真的是一言难尽，实际上�
 不是，这个只有71人投票的野鸡榜有什么分析的必要吗？
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 2985#       发表于 2021-10-21 01:46
+
+
+ 本帖最后由 secretgarnet 于 2021-10-21 01:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214997&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-21 01:12</a>
+
+5CH这个投票只有71人参与完全没有参考价值。从推特来看人气最高的还是香音和可可，从资本来看可可的周边依 ...</blockquote>
+恋的人气低这点推特和5ch还算一致（大致感觉，我没仔细统计过）
+
+投票人数少这点确实，而且5ch拉版本身也有很重的倾向性，有时候人数多了也不一定说明问题。
+
+
+*****
+
+####  chenflyyy  
+##### 2986#       发表于 2021-10-21 01:53
+
+
+之前都推测nako是99年的，但这篇访谈里nako说到她和nagi同龄，那应该是98年吧<img src="https://p.sda1.dev/2/cdd63c512c791fe00f4bae826f16bd17/IMG_CMP_157128072.jpeg" referrerpolicy="no-referrer">
+
+

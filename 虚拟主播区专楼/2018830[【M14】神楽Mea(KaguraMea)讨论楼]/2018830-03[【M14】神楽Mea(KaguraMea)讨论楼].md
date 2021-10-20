@@ -11666,3 +11666,39 @@ syl 魔禁OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 这小小恋歌是练过了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 4024#       发表于 2021-10-21 02:02
+
+
+明天有播
+
+
+*****
+
+####  呓亘  
+##### 4025#       发表于 2021-10-21 02:04
+
+
+ 本帖最后由 呓亘 于 2021-10-21 02:05 编辑 
+<blockquote>内斯托尔 发表于 2021-10-21 01:08
+菜鸡塔罗师表示这苔用的什么阵，没见过啊
+
+
+障碍/课题：逆位高塔
+</blockquote>
+本塔罗业余爱好者测塔罗牌的时候往往都是最关注最后结果的那张牌....当然我都是自己给自己测....大学的时候算算考试成绩什么的.....测得还挺准的...不过苔苔这牌阵确实没见过
+
+
+*****
+
+####  雪风utopia  
+##### 4026#       发表于 2021-10-21 02:50
+
+
+有种虚无的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+

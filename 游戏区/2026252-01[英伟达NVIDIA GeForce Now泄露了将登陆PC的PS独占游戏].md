@@ -3066,3 +3066,51 @@ FF7R说好独占一年怎么还不上</blockquote>
 大法又塞钱续了一年ps5呗
 
 
+
+
+*****
+
+####  flagwind33  
+##### 268#       发表于 2021-10-21 01:47
+
+
+p5还没上呢说屁的smt5……
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  战狼PTSD  
+##### 269#       发表于 2021-10-21 01:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215196&amp;ptid=2026252" target="_blank">JudgmentEye 发表于 2021-10-21 01:40</a>
+
+大法又塞钱续了一年ps5呗</blockquote>
+CTMD显卡都换好了还不来，续几把啊，碟子都卖了就等PC了
+
+
+*****
+
+####  whzfjd  
+##### 270#       发表于 2021-10-21 01:55
+
+
+换个思路，没上这个名单的跨平台厂商=没用老黄技术？
+
+
+
+
+*****
+
+####  riin  
+##### 271#       发表于 2021-10-21 02:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52967616&amp;ptid=2026252" target="_blank">宛若青空 发表于 2021-10-2 01:02</a>
+
+看到前面的名单突然想起来前两周《Chrono Cross Remaster》是不是泄露了</blockquote>
+光田康典最近的录音就是这个
+
+

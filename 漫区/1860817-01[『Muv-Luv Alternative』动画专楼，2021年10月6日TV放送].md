@@ -17257,3 +17257,78 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 等等，这集我只看到了伊隅队长，其他几个出来了吗？
 
 
+
+
+*****
+
+####  纯夏  
+##### 1191#       发表于 2021-10-21 02:02
+
+
+剧本这火车跑的 开头两场戏撕裂感严重  
+
+后面餐厅 武劈头就说 “想赢BETA 必须聚集拥有强大意志以及崇高志向的同伴才行，这是你们教会我的” <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+连贯性都没了 看来官方是直接放弃新观众了 
+
+末尾评价演习直接跳 这动画的制作质量 有什么意义？
+
+
+顺便 远藤叔在给隔壁唱OP 相当好听<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202110/21/015857ltgyzgygc5cqvgcv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>123.jpg</strong> (138.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 01:58 上传
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1192#       发表于 2021-10-21 02:14
+
+
+基本和预料的差不多吧，除了南岛之行比我预料得时间短好多<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+虽然群友们一顿瞎骂，我倒是觉得在意想不到的地方有点展现原作气质，虽然我最喜欢原作的地方是文本写得好，这一点在动画倒是几乎没法被展现出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+顺带贴一个上周的时候在群里写的进度估计，目前第三集蒙中了，看看后面能中多少：
+
+ep.3 兵王+美琴回归+兔子+大预言术，下半集上岛
+
+ep.4 开萝卜+新OS+三笨蛋
+
+ep.5 兔子+纯夏+把我没想起来的的支线全收掉
+
+ep.6 129，以煌武院悠阳登场结尾
+
+ep.7 结束129
+
+ep.8 名画接逃跑作为结尾
+
+ep.9 日记收尾
+
+ep.10 重返战场+00单元
+
+ep.11 跟纯夏腻歪
+
+ep.12 甲21作战法令+部署，人类反攻的号角
+
+
+*****
+
+####  菱0零  
+##### 1193#       发表于 2021-10-21 03:21
+
+
+cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也还是这么可爱……编不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
