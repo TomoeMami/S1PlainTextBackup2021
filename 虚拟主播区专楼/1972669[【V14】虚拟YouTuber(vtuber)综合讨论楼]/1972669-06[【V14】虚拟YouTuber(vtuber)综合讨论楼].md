@@ -2998,3 +2998,15 @@ C9什么时候也整了个vtuber，能不能快进LGD全员vt出道啊 ...</bloc
 还真是cloud9，中之人不是女装大佬sneaky我不是很认可<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7710#       发表于 2021-10-20 19:15
+
+
+郡道in 北海道完全就是ミナレ真人版，两个我爱的性格差声音很大女的身影无限重叠我湿了眼眶，可惜郡郡是底边接不到电台活<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">…
+感觉日本那边是渐渐好起来了？郡道也有胆子乱窜（虽然还不敢出国）还差点约到兔组
+
+

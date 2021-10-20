@@ -18066,3 +18066,14 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84000#       发表于 2021-10-20 19:03
+
+
+居然是活动从者..那前面那个女仆立绘只是立绘?
+
+

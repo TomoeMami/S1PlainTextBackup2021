@@ -18573,3 +18573,14 @@ B站也有人每周统计P站和推特，不过他只统计创作数不统计浏
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">鲤鱼fc 猫耳真不错
 
 
+
+
+*****
+
+####  反正我改名  
+##### 2952#       发表于 2021-10-20 19:27
+
+
+这么前后一看，11话Solo解决“对于唱歌的恐惧并未彻底解决”坐实是无本之木，为了醋包饺子，还是个调料比例不对的露馅饺子。对比堇，虽然各种迫害伤口撒盐到让人觉得staff是不是有点恶趣味兼脑子有洞，好歹让人有理有据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

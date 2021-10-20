@@ -1890,3 +1890,19 @@ VICE吃人应该假的，模仿制造的杀人机器（有提过警报只响了�
 然而居然和an枫同时开池子。。。
 
 
+
+
+*****
+
+####  windaria  
+##### 6134#       发表于 2021-10-20 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53196662&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-10-19 20:10</a>
+
+自己玩了下加看了推特上的介绍，大概是这个情况。
+
+https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
+姿势会不会和衣服有关？不知道是不是我的错觉
+
+
