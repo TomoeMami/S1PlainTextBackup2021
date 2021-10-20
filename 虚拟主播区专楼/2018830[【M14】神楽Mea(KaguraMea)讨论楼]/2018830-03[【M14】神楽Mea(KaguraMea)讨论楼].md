@@ -11321,3 +11321,75 @@ QQ图片20211019233455.png
 韩语哥，今天喉咙咋回事
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 4015#       发表于 2021-10-21 00:23
+
+
+ 本帖最后由 时间在我手中 于 2021-10-21 00:29 编辑 
+
+点了首三原色，中了
+
+syl  
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/002858dlc8pzxlc2g5g3zw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (13.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/002912nbqmfp5sysxqm4rq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (7.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:29 上传
+
+
+*****
+
+####  T_Hb  
+##### 4016#       发表于 2021-10-21 00:31
+
+
+这歌有感觉了
+
+
+*****
+
+####  时间在我手中  
+##### 4017#       发表于 2021-10-21 00:35
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/003452jk5k5r83fp44trk3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (34.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:34 上传
+
+
+看歌词，38岁老女人要老牛吃嫩草了（x）
+
+
+*****
+
+####  T_Hb  
+##### 4018#       发表于 2021-10-21 00:42
+
+
+还以为能唱上去，直接拉了
+
+

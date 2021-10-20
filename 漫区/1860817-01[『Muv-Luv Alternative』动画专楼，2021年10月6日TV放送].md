@@ -17146,3 +17146,57 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 野外演习竟然就三分钟搞定了
 
 
+
+
+*****
+
+####  hashire.owl  
+##### 1181#       发表于 2021-10-21 00:26
+
+
+动画的意义在何处？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉总借钱当冤大头吗？
+
+
+*****
+
+####  噗呸破屁诚  
+##### 1182#       发表于 2021-10-21 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213198&amp;ptid=1860817" target="_blank">kamarus 发表于 2021-10-20 22:41</a>
+
+大白毛不照样翘辫子了，最后赢家还得看我小姨子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 1183#       发表于 2021-10-21 00:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这种地方快进没什么的吧，不然这一季度拍成个奇怪风味的校园剧不是更无聊
+
+
+*****
+
+####  KOPKOM  
+##### 1184#         楼主| 发表于 2021-10-21 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214479&amp;ptid=1860817" target="_blank">噗呸破屁诚 发表于 2021-10-21 00:26</a>
+小姨子快活了半年后最后到了樱花作战也翘辫子了，其实是没有赢家 ...</blockquote>
+没有吧，游戏pv里小姨子都和兔子一起看海了，续作肯定戏份不会少的，加上逃到横滨的勇爷，后面两个人也不是没有发展的可能
+
+
+*****
+
+####  jerryoq1  
+##### 1185#       发表于 2021-10-21 00:37
+
+
+上尉和水月和其他中队的人设出来了  
+是不是准备赶到甲21<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+我以为做到重返战场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
