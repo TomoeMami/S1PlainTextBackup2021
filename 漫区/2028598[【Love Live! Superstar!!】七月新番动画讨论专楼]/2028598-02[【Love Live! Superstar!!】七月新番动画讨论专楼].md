@@ -18496,3 +18496,33 @@ P站截止今天中午的数据
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  永恒的王牌  
+##### 2947#       发表于 2021-10-20 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53208839&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-20 17:14</a>
+
+我观察到的有趣的事实
+
+普通百合文里面堇攻的有不少
+
+但是futa文里面带把的基本是可可那边</blockquote>
+可可感觉就是那种平时攻击性十足但关键时刻就会被反杀的个性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 2948#       发表于 2021-10-20 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53209038&amp;ptid=2028598" target="_blank">永恒的王牌 发表于 2021-10-20 17:27:48</a>
+可可感觉就是那种平时攻击性十足但关键时刻就会被反杀的个性</blockquote>毕竟体力差，在同人创造里很容易变成被动的一方啊<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
