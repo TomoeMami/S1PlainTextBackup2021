@@ -870,3 +870,26 @@ CAO.....点灵基卖却直接卡界面死机了....是只有我一个这样么</
 单体骑好啊，qp本三面终于不用再用牛若丸应付了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qixinno2  
+##### 84082#       发表于 2021-10-20 21:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">三发十连 毛都没抽到
+
+
+*****
+
+####  alucardcz  
+##### 84083#       发表于 2021-10-20 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212046&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-10-20 21:08</a>
+
+三发十连 毛都没抽到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新也没有 连3性礼装都没
+
+
