@@ -2930,3 +2930,36 @@ VGC：MGS 3 重制版由维塔士操刀，寂静岭、恶魔城将复活
 真正的独占血源<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  你好s1  
+##### 255#       发表于 2021-10-21 00:12
+
+
+这帖子要收藏起来  感觉时不时就可以来顶一顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  尘落樱飞  
+##### 256#       发表于 2021-10-21 00:17
+
+
+血缘
+
+pc永恒的遗珠
+
+
+*****
+
+####  琳翠  
+##### 257#       发表于 2021-10-21 00:19
+
+
+现在中了的有GTA三部曲重制，神海4合集，战神，蕾莎出击，尤其是最后这个，一般人编不出来～
+
+

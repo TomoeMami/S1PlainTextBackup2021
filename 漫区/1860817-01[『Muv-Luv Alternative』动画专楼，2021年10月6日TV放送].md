@@ -17125,3 +17125,24 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 开头美军那段竟然放到这一集了
 
 
+
+
+*****
+
+####  kamarus  
+##### 1179#       发表于 2021-10-21 00:12
+
+
+进度飞快啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+虽然前半部分确实。。。有点无聊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOPKOM  
+##### 1180#         楼主| 发表于 2021-10-21 00:21
+
+
+野外演习竟然就三分钟搞定了
+
+
