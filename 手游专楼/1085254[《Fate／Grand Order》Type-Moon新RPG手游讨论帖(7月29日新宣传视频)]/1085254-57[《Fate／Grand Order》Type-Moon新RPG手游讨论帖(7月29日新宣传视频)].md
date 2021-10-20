@@ -859,3 +859,14 @@ CAO.....点灵基卖却直接卡界面死机了....是只有我一个这样么</
 绿卡还是老老实实等明年（可能）的绿拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 84081#       发表于 2021-10-20 20:53
+
+
+单体骑好啊，qp本三面终于不用再用牛若丸应付了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
