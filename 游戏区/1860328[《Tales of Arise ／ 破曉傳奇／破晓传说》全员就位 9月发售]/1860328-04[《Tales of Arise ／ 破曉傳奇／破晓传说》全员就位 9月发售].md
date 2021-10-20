@@ -19224,3 +19224,26 @@ BA BS想简化操作，那就做Qte呗。
 确实，连异界都是换皮怪，要不就是一路大怪，就算是normal难度血也多的要死，补给点传送点也少，打起来很烦躁
 
 
+
+
+*****
+
+####  faithlifer  
+##### 5919#       发表于 2021-10-20 15:14
+
+
+打到OP2看了下存档大概40h游戏时间，求问下大概还有多久流程<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 5920#       发表于 2021-10-20 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53206895&amp;ptid=1860328" target="_blank">faithlifer 发表于 2021-10-20 15:14</a>
+打到OP2看了下存档大概40h游戏时间，求问下大概还有多久流程</blockquote>
+没记错的话2/3了吧
+op2后面的很赶
+
+

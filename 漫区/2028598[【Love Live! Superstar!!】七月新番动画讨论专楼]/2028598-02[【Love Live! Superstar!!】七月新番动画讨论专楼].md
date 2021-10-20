@@ -18143,3 +18143,32 @@ md 整个一任天堂大乱斗
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">斗虫只会带来不幸
 
 
+
+
+*****
+
+####  优妮可  
+##### 2925#       发表于 2021-10-20 15:05
+
+
+怎么说呢，像小孩吵架那样，你说了我动画，那我就要说回你销量。如此反复，刚好这段时间碟卖的又多，就这么持续吵，明年虹二不敢想了。
+
+
+*****
+
+####  离心  
+##### 2926#       发表于 2021-10-20 15:08
+
+
+ttk，yzmttk
+
+
+*****
+
+####  秋月艾莉  
+##### 2927#       发表于 2021-10-20 15:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">几千销量差也要互殴个头破血流，胡萝卜何苦难为胡萝卜
+
+
