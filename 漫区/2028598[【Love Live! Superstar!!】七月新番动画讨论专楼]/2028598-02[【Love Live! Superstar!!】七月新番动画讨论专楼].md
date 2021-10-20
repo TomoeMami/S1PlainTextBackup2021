@@ -17992,3 +17992,25 @@ kingblade棒子就是7号电池
 战吧又不分专楼  新仇旧恨一起算了
 
 
+
+
+*****
+
+####  saglork  
+##### 2912#       发表于 2021-10-20 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53205042&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-20 13:01</a>
+战吧有点意思，星评分的贴能吵起来，虹销量贴也能吵起来。l</blockquote>
+战销量可是拉拉人传统艺能之一，从缪二期就开始外战，有了水之后又有了内战，从BD到CD到O榜年销售额，反正只要有数字的都能打起来，这才到哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 2913#       发表于 2021-10-20 13:43
+
+
+系列作品不得不品尝的一环
+
+
