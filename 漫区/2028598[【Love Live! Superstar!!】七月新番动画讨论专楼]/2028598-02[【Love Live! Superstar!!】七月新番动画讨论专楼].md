@@ -18481,3 +18481,18 @@ P站截止今天中午的数据
 有个经常画萌漫的的韩国画师看了11话还破防了，sad<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 2946#       发表于 2021-10-20 17:14
+
+
+我观察到的有趣的事实
+普通百合文里面堇攻的有不少
+但是futa文里面带把的基本是可可那边
+虽然在x的时候也是堇主导
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
