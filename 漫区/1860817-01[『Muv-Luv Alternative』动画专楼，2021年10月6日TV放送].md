@@ -17235,3 +17235,14 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 快进到125<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  KOPKOM  
+##### 1189#         楼主| 发表于 2021-10-21 01:08
+
+
+官网上人设只出了水月没出遥，女武神出场应该还是在政变那一段
+
+

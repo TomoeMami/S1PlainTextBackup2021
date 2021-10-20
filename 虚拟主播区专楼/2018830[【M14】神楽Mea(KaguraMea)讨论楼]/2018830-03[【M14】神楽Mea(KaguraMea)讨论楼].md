@@ -11408,3 +11408,250 @@ syl  
 syl 魔禁OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半拉
 
 
+
+
+*****
+
+####  内斯托尔  
+##### 4020#       发表于 2021-10-21 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213125&amp;ptid=2018830" target="_blank">2014720 发表于 2021-10-20 22:34</a>
+
+来点大手子</blockquote>
+菜鸡塔罗师表示这苔用的什么阵，没见过啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+障碍/课题：逆位高塔
+
+<img src="https://img.saraba1st.com/forum/202110/21/004457bhpn636rd36pzdzg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_003904.jpg</strong> (321.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:44 上传
+
+
+---------需要习得的课题：魔鬼
+
+<img src="https://img.saraba1st.com/forum/202110/21/004540dd2rrznx36tbd42l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_004217.jpg</strong> (443.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/004554mppk9srmz6g9pr9f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_004238.jpg</strong> (423.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/004607o4iu8hhh5v18u4hg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_004403.jpg</strong> (464.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:46 上传
+
+
+建议：正位力量
+
+<img src="https://img.saraba1st.com/forum/202110/21/004926n4rsxp618rthjtht.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_004834.jpg</strong> (295.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/004942sm0wb6e3elmw3py9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_004856.jpg</strong> (308.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:49 上传
+
+
+人气运：逆位教皇
+
+<img src="https://img.saraba1st.com/forum/202110/21/005206utzacllu7cwat7ag.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_005124.jpg</strong> (420.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:52 上传
+
+
+教皇牌的基本牌意是“援助”（获得援助的代价融入传统体系），逆位教皇一般都是“单打独斗”
+
+<img src="https://img.saraba1st.com/forum/202110/21/005254a0o0clyzlecmx4nv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_005236.jpg</strong> (318.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:52 上传
+
+
+工作运：正位愚人
+
+<img src="https://img.saraba1st.com/forum/202110/21/005548x333yyeh25ai5zh5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_005419.jpg</strong> (365.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/005600a4yh4pfzy9zn9d1f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_005447.jpg</strong> (477.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/005610n7rqar000lr7r7qq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_005519.jpg</strong> (348.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/005624getdorprbyeoies9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_005536.jpg</strong> (437.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 00:56 上传
+
+
+金钱运：逆位皇后
+
+<img src="https://img.saraba1st.com/forum/202110/21/010246pjzllxladxe6llee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_010123.jpg</strong> (259.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 01:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/010300g2jppkp3zynb2jus.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_010155.jpg</strong> (306.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 01:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/010310ybzcc8kqc6ng5qvm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_010221.jpg</strong> (263.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 01:03 上传
+
+
+最终结果：逆位恶魔
+
+<img src="https://img.saraba1st.com/forum/202110/21/010619wlqqznyiuqag0nzr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_010550.jpg</strong> (173.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 01:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/010631ovsv704vp054odux.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20211021_010608.jpg</strong> (378.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 01:06 上传
+
+
+恶魔牌的基本牌意是“锁链”，逆位恶魔我这边一般统一解为“break the chains”
+
+
+<img src="https://static.saraba1st.com/image/hrline/5.gif" referrerpolicy="no-referrer">
+
+
+怎么说呢……
+
+
+牌挺准的，就是阿苔这解了个什么玩意儿出来，纯节目效果导向了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雪风utopia| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 4021#       发表于 2021-10-21 01:14
+
+
+深夜文乃幸福理论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 4022#       发表于 2021-10-21 01:16
+
+
+唱的怎么这么平稳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

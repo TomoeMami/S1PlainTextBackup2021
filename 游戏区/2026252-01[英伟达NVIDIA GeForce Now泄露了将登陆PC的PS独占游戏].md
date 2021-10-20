@@ -3005,3 +3005,41 @@ pc永恒的遗珠
 这表有FF9R，但是没有FF7R第二章<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  minamichisei  
+##### 262#       发表于 2021-10-21 01:16
+
+
+期待全部成真<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  省心  
+##### 263#       发表于 2021-10-21 01:19
+
+
+结果真·ps4独占，就是p5和血源了啊
+
+
+*****
+
+####  BigLittle1999  
+##### 264#       发表于 2021-10-21 01:20
+
+
+唯独希望cc re是真的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dreki  
+##### 265#       发表于 2021-10-21 01:26
+
+
+FF7R gkd
+
+

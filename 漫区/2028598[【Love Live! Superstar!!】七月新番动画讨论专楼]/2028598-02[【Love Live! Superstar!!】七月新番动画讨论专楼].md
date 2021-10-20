@@ -18919,3 +18919,54 @@ op服装没有那些花花绿绿的衣服三次元化以后常见的廉价和山
 as卡面其实也很好看啊，但是那个3d真的是一言难尽，实际上动画的3转2也经常出现奇怪的感觉，不如手绘灵动。
 
 
+
+
+*****
+
+####  二月十日  
+##### 2977#       发表于 2021-10-21 01:02
+
+
+<blockquote>【投票スレ】好きなスパスタキャラTOP3は？【ﾜｯﾁｮｲ付】
+[https://fate.5ch.net/test/read.cgi/lovelive/1634635977/](https://fate.5ch.net/test/read.cgi/lovelive/1634635977/)</blockquote>
+5ch lovelive板的星团之我最喜爱的角色TOP3投票
+
+一人投三个，第一=3pt ，第二=2pt ，第三=1pt ，开了ﾜｯﾁｮｲ（强制固定马甲），很大程度上抑制了刷票，当然如果有心想多投的话还是能做到的。反正样本量很小（71），看个热闹吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/4ef9b2bd687e53035d667588e097410f/imgur.com_8uDqcGy.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/d46127ab5553db4f0f7f7171ab1100ff/imgur.com_d4CDOGv.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/f1b7f251aff8761d5487a8b290a141f6/IMG_CMP_22635350.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/de93de03ef95995d8044bbca90ec5771/IMG_CMP_41330340.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  secretgarnet  
+##### 2978#       发表于 2021-10-21 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214882&amp;ptid=2028598" target="_blank">二月十日 发表于 2021-10-21 01:02</a>
+
+5ch lovelive板的星团之我最喜爱的角色TOP3投票
+
+一人投三个，第一=3pt ，第二=2pt ，第三=1pt ，开了ﾜｯ ...</blockquote>
+都是两集个人回，堇和恋的pt数简直是云泥之别<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+以及可可没有个人回的缺点也是一览无遗，1位比2位低了好多
+
+
+*****
+
+####  黑雪姫  
+##### 2979#       发表于 2021-10-21 01:12
+
+
+ 本帖最后由 黑雪姫 于 2021-10-21 01:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214944&amp;ptid=2028598" target="_blank">secretgarnet 发表于 2021-10-21 01:08</a>
+
+都是两集个人回，堇和恋的pt数简直是云泥之别
+
+以及可可没有个人回的缺点也是一览无遗，1位比2位低 ...</blockquote>
+5CH这个投票只有71人参与完全没有参考价值。从推特来看人气最高的还是香音和可可，从资本来看可可的周边依然是卖的最快和最贵的。
+
+
