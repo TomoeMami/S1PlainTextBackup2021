@@ -784,3 +784,27 @@ B站随机删回复……（完全随机，写的越多删的可能越大……�
 b站本来就是资本啊，不然哪来的叔叔梗
 
 
+
+
+*****
+
+####  ice菓  
+##### 68#       发表于 2021-10-20 11:48
+
+
+这是不想干了呀<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  沈淮  
+##### 69#       发表于 2021-10-20 11:50
+
+
+你所热爱的就是你的生活
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

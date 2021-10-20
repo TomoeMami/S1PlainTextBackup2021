@@ -17873,3 +17873,71 @@ kingblade棒子就是7号电池
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要学会发散 楼友也能很快成为巨魔的
 
 
+
+
+*****
+
+####  NODY  
+##### 2902#       发表于 2021-10-20 11:48
+
+
+看上面讨论删人的，我觉得正好相反，应该加个人才对，加个恋恋的好友兼副会长役，负责在恋恋和另外几个关系僵硬的时候从中调节顺便提供一下线索，这样可以看起来不那么像香音无双，顺便解决一下恋恋这个2+2+1的尴尬，我觉得直接把妹抖改成恋恋同龄的童养贴身妹抖然后负责这个职位就不错<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+恋恋现在没个cp带着是真的尴尬，官方还故意搞出恋觉醒同人女属性的展开，看起来是不打算推cp了，无cp这种模式你给雪菜这种人气本来就顶流的角色也就算了，给人气垫底的恋只能稳定她垫底的地位啊
+
+
+*****
+
+####  ads147147  
+##### 2903#       发表于 2021-10-20 11:49
+
+
+如果想啥就写啥的话，人人都可以是巨魔。
+
+能够考虑到别人不想看啥就不写啥，才是人间之鉴。
+
+但是花田京极做不到jpg
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kata魂  
+##### 2904#       发表于 2021-10-20 11:51
+
+
+难道没人觉得动画实际上就挺巨魔的吗
+
+
+*****
+
+####  soranoguiji  
+##### 2905#       发表于 2021-10-20 11:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 星那点负面能量尚不如虹AS的十分之一，形式还卜严峻
+
+
+*****
+
+####  lj205  
+##### 2906#       发表于 2021-10-20 11:58
+
+
+微博的讨论也是各种长篇大论<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">，太能说了，资本不要脸的事还见的少吗？但是没办法啊，动画看得心绞疼，唯一抗议的就是捂住钱包，但人家就是拿妹子们当人质，你掏不掏钱吧？好在5个人也有自己的业务，那大家不如直接支持她们好了，都是要变现，不如直接塞给她。当然，单纯厨角色的那就没办法了，只能庆幸自己厨了个吃香的角色，工具人就工具人吧，总比当透明人好。
+
+
+*****
+
+####  saglork  
+##### 2907#       发表于 2021-10-20 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53203712&amp;ptid=2028598" target="_blank">NODY 发表于 2021-10-20 11:48</a>
+看上面讨论删人的，我觉得正好相反，应该加个人才对，加个恋恋的好友兼副会长役，负责在恋恋和另外几个关系 ...</blockquote>
+绘里和希嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+早就说了，主线尴尬入队尴尬这些都是小事，lovelive本身剧情就是尬中加尬和童话式硬感动，但其他人都是团建+个人CP小团体两层社会关系，而你只有一层团建，恰好lovelive最大篇幅的日常整活基本全都是靠小团体内部关系发酵来推进的，这才是恋的硬伤<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
