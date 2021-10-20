@@ -18183,3 +18183,102 @@ ttk，yzmttk
 不要吵了，大家一样烂<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 2929#       发表于 2021-10-20 15:43
+
+
+本来就经济条件不好，还在这吵销量问题，缪水时期有新冠吗jpg
+
+
+不过不吵架不日升，日升的东西，没吵架就没意思了。
+
+
+*****
+
+####  secretgarnet  
+##### 2930#       发表于 2021-10-20 15:44
+
+
+<img src="https://img.saraba1st.com/forum/202110/20/153956blkzi00kvmzklm58.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (70.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-20 15:39 上传
+
+
+不要吵了不要吵了，我来散布点正能量庆祝星一期完结<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">仿op站位折了一款星形花球
+
+我还挺喜欢这次liella的五位的，祝愿她们的路永远星光璀璨
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lj205| + 1||
+| player3960| + 1||
+| ads147147| + 1||
+| 笋狐| + 1||
+| JustW| + 1||
+
+
+查看全部评分
+
+
+*****
+
+####  笋狐  
+##### 2931#       发表于 2021-10-20 15:51
+
+
+ 本帖最后由 笋狐 于 2021-10-20 15:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">销量是一门玄学，奈何总有人连吵个架都要整的师出有名一般
+
+
+*****
+
+####  qratosone  
+##### 2932#       发表于 2021-10-20 15:52
+
+
+ 本帖最后由 qratosone 于 2021-10-20 16:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53201086&amp;ptid=2028598" target="_blank">damian-wade 发表于 2021-10-20 09:11</a>
+
+第一季赶着上马过去就过去了，第二季希望上点心吧，可能好多人包括上面那些大人物觉得有水水的例子，动画拉 ...</blockquote>
+比动画拉了更要命的是Live拉了，如果真是动画本身拉胯但是Live水平特别惊艳也就罢了，结果现在8和12两个灾难回还都是动画和Live一起拉胯……
+
+我都开始理解花田先辈了——你一个多媒体偶像企划，Live都能做成这么个勾八样子，我动画再上心又有个卵用，瞎JB写一顿拉倒吧。
+
+
+*****
+
+####  边境的  
+##### 2933#       发表于 2021-10-20 15:58
+
+
+突然刷出来新歌完整版了
+
+
+<img src="https://img.saraba1st.com/forum/202110/20/155819p31sqm331ewdbpwc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>21C1B0D8-2893-4999-ABDE-F8F3B37107C5.jpeg</strong> (176.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-20 15:58 上传
+
+
