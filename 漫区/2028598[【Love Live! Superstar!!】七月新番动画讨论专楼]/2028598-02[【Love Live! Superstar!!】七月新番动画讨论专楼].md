@@ -18584,3 +18584,18 @@ B站也有人每周统计P站和推特，不过他只统计创作数不统计浏
 这么前后一看，11话Solo解决“对于唱歌的恐惧并未彻底解决”坐实是无本之木，为了醋包饺子，还是个调料比例不对的露馅饺子。对比堇，虽然各种迫害伤口撒盐到让人觉得staff是不是有点恶趣味兼脑子有洞，好歹让人有理有据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 2953#       发表于 2021-10-20 19:37
+
+
+ 本帖最后由 qratosone 于 2021-10-20 19:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53208147&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-20 16:27</a>
+
+你要是会选择性失忆的话第八话live其实也不错啊，而且wish song是我听liella曲子里的第三多的（不过估计插3 ...</blockquote>
+B站依然姐发的Wish Song的剪辑到现在播放量才可怜的8.3W，小星星的剪辑被炮之前奔着200W去了，Nonfiction现在也80W+了，烂铁官方甚至连版权炮都懒得打，同期的常夏都没了Wish Song还在呢。12集更是烂，当时我看动画本身还没特别恶心，Live看完血压直往上涌，说好的SOLO呢？说好的香音展现唱功呢？全都没有，过完一遍没有印象深刻的旋律和镜头，也没有二刷的冲动。要我说这个Live就是被萨尼啪随便乱杀的水平，能拿第二都是主角光环了
+
+

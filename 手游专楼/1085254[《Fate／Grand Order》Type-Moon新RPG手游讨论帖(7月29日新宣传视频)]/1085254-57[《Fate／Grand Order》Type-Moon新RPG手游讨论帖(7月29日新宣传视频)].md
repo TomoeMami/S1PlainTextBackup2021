@@ -231,3 +231,206 @@
 雅克德莫莱不会又是个套皮怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 84024#       发表于 2021-10-20 19:20
+
+
+靠，还带cm的
+
+
+*****
+
+####  rooarr  
+##### 84025#       发表于 2021-10-20 19:21
+
+
+外星人，说起来都是套皮吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 84026#       发表于 2021-10-20 19:21
+
+
+新五星看宝具动画，估计和杨贵妃一样，都是三套模组用一个动画了，直接变身可还行...
+
+
+*****
+
+####  シャル  
+##### 84027#       发表于 2021-10-20 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53210406&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-10-20 19:21</a>
+
+外星人，说起来都是套皮吧</blockquote>
+ジャックドモレー这家伙应该不是真的
+
+
+街机那个才是正版
+
+
+*****
+
+####  zakki  
+##### 84028#       发表于 2021-10-20 19:23
+
+
+龙娘灰姑娘那套挺好看的不实装可惜了
+
+
+*****
+
+####  exiaexa  
+##### 84029#       发表于 2021-10-20 19:23
+
+
+看新四星五星的性能了，如果性能可以的话这个活动完全能解国服过来的新人燃眉之急了
+
+四只龙娘+历代礼装+新衣服
+
+
+这泳装对比起来也太寒碜了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cwlo  
+##### 84030#       发表于 2021-10-20 19:24
+
+
+这四星好色啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  angelooo  
+##### 84031#       发表于 2021-10-20 19:24
+
+
+利好难民，补完历代活动礼装大好评，换三掉二去死吧耶，卡我就不抽了23333
+
+
+*****
+
+####  LOLITA  
+##### 84032#       发表于 2021-10-20 19:25
+
+
+大杰克不错啊，恶堕系？
+
+
+*****
+
+####  yangun22  
+##### 84033#       发表于 2021-10-20 19:26
+
+
+这基本就是街机限定的短期内不会出的意思了吧
+
+
+*****
+
+####  rooarr  
+##### 84034#       发表于 2021-10-20 19:28
+
+
+12月是2.6.5要来了？
+
+
+*****
+
+####  exiaexa  
+##### 84035#       发表于 2021-10-20 19:28
+
+
+连来两个大活动可还行，那新特异点就是12月了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 84036#       发表于 2021-10-20 19:29
+
+
+6.5剧情，但是作为活动放出来，和大奥深海这类的差不多吧
+
+
+*****
+
+####  黑上シグマ  
+##### 84037#       发表于 2021-10-20 19:30
+
+
+<blockquote>引用第84032楼yangun22于2021-10-20 19:26发表的  :
+
+这基本就是街机限定的短期内不会出的意思了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自信点，到关服都不会出
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  zore  
+##### 84038#       发表于 2021-10-20 19:33
+
+
+这追加怪应该是不算回收的吧
+
+
+*****
+
+####  rooarr  
+##### 84039#       发表于 2021-10-20 19:37
+
+
+绿卡外星人，没救了，下一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 84040#       发表于 2021-10-20 19:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新光速凉凉 连个礼装都没
+
+
+*****
+
+####  zore  
+##### 84041#       发表于 2021-10-20 19:38
+
+
+这4星卡面色疯了,bgo怎么过审<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 84042#       发表于 2021-10-20 19:38
+
+
+四星这卡面太强了艹，黑星红白这次感觉倒挺一般的
+
+
+*****
+
+####  yangun22  
+##### 84043#       发表于 2021-10-20 19:40
+
+
+4星卡面是ccc活动漫画的人画的，说老实话这个人漫画有时候体格会比较夸张，插画应该还行
+
+
