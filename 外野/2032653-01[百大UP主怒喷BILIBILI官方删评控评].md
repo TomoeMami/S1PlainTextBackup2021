@@ -770,3 +770,17 @@ B站随机删回复……（完全随机，写的越多删的可能越大……�
 综艺节目都是按台本演的这难道不是常识吗？也就UP主这种圈外人会一惊一乍的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  annoth  
+##### 67#       发表于 2021-10-20 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53202997&amp;ptid=2032653" target="_blank">ztkong 发表于 2021-10-20 11:07</a>
+
+一语惊醒梦中人。。。所以b站在这个态度上也和资本没两样。。。 ...</blockquote>
+b站本来就是资本啊，不然哪来的叔叔梗
+
+
