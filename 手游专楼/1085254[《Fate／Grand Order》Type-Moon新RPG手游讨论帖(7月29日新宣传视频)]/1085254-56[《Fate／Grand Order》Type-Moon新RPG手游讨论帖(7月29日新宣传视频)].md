@@ -18042,3 +18042,27 @@ fgo的卡还是满保值的，我都快3年没有抽过新英灵了打手拐都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个新红卡
 
 
+
+
+*****
+
+####  rooarr  
+##### 83998#       发表于 2021-10-20 18:52
+
+
+来了来了
+
+
+*****
+
+####  exiaexa  
+##### 83999#       发表于 2021-10-20 19:00
+
+
+太小了，下一个
+
+
+希望这次活动能整一个妖催混入龙娘的彩蛋
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
