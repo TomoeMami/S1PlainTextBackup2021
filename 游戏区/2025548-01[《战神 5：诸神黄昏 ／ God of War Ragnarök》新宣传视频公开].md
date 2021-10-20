@@ -1962,3 +1962,16 @@ https://store.steampowered.com/app/1593500/
 As of August 2021, 19.5MM copies for God of War on PlayStation 4 have been sold through and we can’t wait to share that experience with a whole new group of players on PC. 
 
 
+
+
+*****
+
+####  a2042312  
+##### 171#       发表于 2021-10-21 07:27
+
+
+ 本帖最后由 a2042312 于 2021-10-21 07:31 编辑 
+
+虽说也骨折好长时间了，不过居然也快2000W了，难怪还要出PS4版，只要质量不翻车销量应该也能挺好。
+
+

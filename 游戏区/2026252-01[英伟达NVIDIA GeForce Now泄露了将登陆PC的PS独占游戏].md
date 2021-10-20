@@ -3114,3 +3114,17 @@ CTMD显卡都换好了还不来，续几把啊，碟子都卖了就等PC了
 光田康典最近的录音就是这个
 
 
+
+
+*****
+
+####  有口皆悲  
+##### 272#       发表于 2021-10-21 07:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737706&amp;ptid=2026252" target="_blank">量子大蛇 发表于 2021-9-13 22:14</a>
+
+Oh shit,战神4都要上PC，如果是真的那么索尼一定是疯了</blockquote>
+真疯了
+
+

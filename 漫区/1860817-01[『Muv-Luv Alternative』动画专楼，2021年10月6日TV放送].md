@@ -17332,3 +17332,16 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  kamarus  
+##### 1194#       发表于 2021-10-21 07:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214479&amp;ptid=1860817" target="_blank">噗呸破屁诚 发表于 2021-10-21 00:26</a>
+小姨子快活了半年后最后到了樱花作战也翘辫子了，其实是没有赢家 ...</blockquote>
+小姨子啊，那是活到了社霞当议长年代的萝莉bba啊，你记错了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
