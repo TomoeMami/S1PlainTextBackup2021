@@ -953,3 +953,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 突然意识到，启示录1的三艘船是不是到了两艘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 84089#       发表于 2021-10-20 22:22
+
+
+1个10连4星弓到手，最起码弓阶可以有个蓝卡光炮了。
+
+

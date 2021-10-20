@@ -17085,3 +17085,32 @@ gal改改编成能动的样子后，画面演出竟然还不如原作，也就mu
 输给了白毛这个属性，虽败犹荣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  advancedigger  
+##### 1176#       发表于 2021-10-20 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53200812&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-20 08:49</a>
+
+别的不说 后面冥夜和武夜晚对话那段  明明是沉重的话题 结果TV版配的一点情绪起伏都没有
+
+对比游戏里冥夜 ...</blockquote>
+我比较关注各角色的声线与原作的相似度，这一幕的气氛倒是没注意，不过这里不是在谈人生谈理想吗
+
+不过冥夜的相似度在众人中属于比较低那档就是了
+
+
+*****
+
+####  kamarus  
+##### 1177#       发表于 2021-10-20 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53197017&amp;ptid=1860817" target="_blank">球獭 发表于 2021-10-19 20:46</a>
+勇爷和唯依也太甜了，但为什么他们是。。。。</blockquote>
+大白毛不照样翘辫子了，最后赢家还得看我小姨子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
