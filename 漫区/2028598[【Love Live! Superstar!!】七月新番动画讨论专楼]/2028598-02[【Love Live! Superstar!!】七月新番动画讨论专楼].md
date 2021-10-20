@@ -18861,3 +18861,38 @@ op服装没有那些花花绿绿的衣服三次元化以后常见的廉价和山
 群友有句话叫说，如果你看一个偶像角色像是galgame里的，基本就是偶像大师shinningcolor里的（
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 2972#       发表于 2021-10-20 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212514&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-20 21:41</a>
+
+隔壁偶像大师闪耀色彩</blockquote>
+草，原来不是一个公司的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 2973#       发表于 2021-10-20 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53212672&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-20 21:54</a>
+
+群友有句话叫说，如果你看一个偶像角色像是galgame里的，基本就是偶像大师shinningcolor里的（ ...</blockquote>
+确实，感觉黛冬优子和她的那个白发死党还是冤家人设都挺色的
+
+
+*****
+
+####  永恒的王牌  
+##### 2974#       发表于 2021-10-20 23:17
+
+
+闪耀色彩的人设是真的很会，少有的看着人设图就会对这个角色感兴趣那种<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
