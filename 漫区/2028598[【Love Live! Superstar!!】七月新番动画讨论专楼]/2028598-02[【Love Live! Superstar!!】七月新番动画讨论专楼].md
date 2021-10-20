@@ -18282,3 +18282,54 @@ ttk，yzmttk
 2021-10-20 15:58 上传
 
 
+
+
+*****
+
+####  lj205  
+##### 2934#       发表于 2021-10-20 16:07
+
+
+这OST啥歌都有，就是没可可SOLO的ED，好想爆粗口
+
+
+*****
+
+####  cybernetics31  
+##### 2935#       发表于 2021-10-20 16:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">咱还是看三次元吧
+
+
+*****
+
+####  damian-wade  
+##### 2936#       发表于 2021-10-20 16:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53207523&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-20 15:52</a>
+比动画拉了更要命的是Live拉了，如果真是动画本身拉胯但是Live水平特别惊艳也就罢了，结果现在8和12两个灾 ...</blockquote>
+live本来就是偶像动画的一部分了，我也不专指花田先生不上心，是整个制作组，或者说企划本身的问题了
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Karin11974  
+##### 2937#       发表于 2021-10-20 16:14
+
+
+12的live也还好吧，我最喜欢的未来预报，虽然第一话就给了个5人版有点突兀，期待三次元版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 2938#       发表于 2021-10-20 16:27
+
+
+你要是会选择性失忆的话第八话live其实也不错啊，而且wish song是我听liella曲子里的第三多的（不过估计插3出来就排在后面了），第一多是op（我超喜欢），然后是小星星<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+

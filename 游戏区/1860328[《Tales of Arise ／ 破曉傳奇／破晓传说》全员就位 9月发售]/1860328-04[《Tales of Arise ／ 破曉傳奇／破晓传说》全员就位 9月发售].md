@@ -19284,3 +19284,18 @@ op2后面的很赶</blockquote>
 “反击”的定义不是闪避回击，而是怪物攻击动作中的状态，被打断后也算
 
 
+
+
+*****
+
+####  BigLittle1999  
+##### 5923#       发表于 2021-10-20 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53206895&amp;ptid=1860328" target="_blank">faithlifer 发表于 2021-10-20 15:14</a>
+打到OP2看了下存档大概40h游戏时间，求问下大概还有多久流程</blockquote>
+18-20h的样子，我正好40h到op2，59h通关
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
