@@ -18064,3 +18064,82 @@ md 整个一任天堂大乱斗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这销量吵架也很巨魔啊
 
 
+
+
+*****
+
+####  蜜梨柑  
+##### 2918#       发表于 2021-10-20 14:46
+
+
+可惜ANNG广播联动碟看不了各版本销量，不然还能再吵一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2919#       发表于 2021-10-20 14:47
+
+
+太好笑了，企划内全都糊成什么鸟样还互相喷<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+比看动画整活还欢乐
+
+
+*****
+
+####  saglork  
+##### 2920#       发表于 2021-10-20 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53206048&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-20 14:15</a>
+销量内战才是最乐的 看得我一愣一愣的
+
+“四专连2w都没卖到 虹已经过气了”
+
+“说星不行的站出来 接下来的碟 ...</blockquote>
+水团从一单销量开始就是“给前辈丢脸”“给企划抹黑”了，不一样媳妇熬成婆了，拉拉人斗虫武德最充沛的时代已经过去了，后边俩妹妹的压力根本不够看好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 2921#       发表于 2021-10-20 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53204570&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-10-20 12:34</a>
+
+你们都说鲤鱼是可香头子，实际上是股市操纵大师。在生放开始前1小时的广播里可是10话回顾，鲤鱼小百合佩酱3 ...</blockquote>
+鲤鱼：老娘全都要
+
+
+*****
+
+####  ads147147  
+##### 2922#       发表于 2021-10-20 14:51
+
+
+下一步是不是要相互开除爱生活籍，重现高达互喷荣光啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不愧是日升高达精神继承者，连粉丝群体都可以一并继承。
+
+
+*****
+
+####  soranoguiji  
+##### 2923#       发表于 2021-10-20 14:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那是因为对外拿不出手了啊，缪最鼎盛的时候甚至敢出征AKB，现在嘛反正销量串的大佬看到水的联动碟销量伤心隐退了
+
+
+*****
+
+####  kbtit  
+##### 2924#       发表于 2021-10-20 15:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">斗虫只会带来不幸
+
+
