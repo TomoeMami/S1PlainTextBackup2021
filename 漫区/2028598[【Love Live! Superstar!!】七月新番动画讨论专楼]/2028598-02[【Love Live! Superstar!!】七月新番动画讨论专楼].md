@@ -18970,3 +18970,82 @@ as卡面其实也很好看啊，但是那个3d真的是一言难尽，实际上�
 5CH这个投票只有71人参与完全没有参考价值。从推特来看人气最高的还是香音和可可，从资本来看可可的周边依然是卖的最快和最贵的。
 
 
+
+
+*****
+
+####  中野四葉  
+##### 2980#       发表于 2021-10-21 01:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我到现在都不明白可可周边比别人贵一些的原因里，倒爷囤货占了多少比重。一开始我也相信是买的人真的多所以贵，直到我看到岚珠的周边也比别人贵。很难不怀疑是国内倒爷出动
+
+
+*****
+
+####  黑雪姫  
+##### 2981#       发表于 2021-10-21 01:30
+
+
+ 本帖最后由 黑雪姫 于 2021-10-21 01:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215101&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-21 01:24</a>
+
+我到现在都不明白可可周边比别人贵一些的原因里，倒爷囤货占了多少比重。一开始我也相信是买的人真 ...</blockquote>
+想多了。
+
+现在疫情哪来的国内倒爷，要倒也是日本人自己倒自己。
+
+岚珠的周边贵是有价无市。你不信等几个月再看看掉不掉价。
+
+可可的周边价格都坚挺几个月了，现在都不掉价就很说明问题。
+
+
+*****
+
+####  型月重工  
+##### 2982#       发表于 2021-10-21 01:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215101&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-21 01:24</a>
+
+我到现在都不明白可可周边比别人贵一些的原因里，倒爷囤货占了多少比重。一开始我也相信是买的人真 ...</blockquote>
+这是日本倒爷收星团趴趴的价格。 可见可可的谷物哪国倒爷收都是贵。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/013440sitpvuliiidetvat.jpg" referrerpolicy="no-referrer">
+
+
+<strong>68968613b07eca808bac22f2cc2397dda0448386.jpg</strong> (69.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 01:34 上传
+
+
+*****
+
+####  二月十日  
+##### 2983#       发表于 2021-10-21 01:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214944&amp;ptid=2028598" target="_blank">secretgarnet 发表于 2021-10-21 01:08</a>
+
+都是两集个人回，堇和恋的pt数简直是云泥之别
+
+以及可可没有个人回的缺点也是一览无遗，1位比2位低 ...</blockquote>
+我觉得主要也不是没有个人回的影响，第三话为止可可的人气无论在哪都是可以把剩下四个捆在一起殴的，但5-9的塑造嘛……我只能说有人转黑我也能够理解就是了……
+
+
+防杠，那串我也是投可可的
+<img src="https://p.sda1.dev/2/03f4c31846c2e3eab7ee99c9481249d8/IMG_CMP_68919486.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  型月重工  
+##### 2984#       发表于 2021-10-21 01:41
+
+
+不是，这个只有71人投票的野鸡榜有什么分析的必要吗？
+
+

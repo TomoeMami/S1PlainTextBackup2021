@@ -3043,3 +3043,26 @@ pc永恒的遗珠
 FF7R gkd
 
 
+
+
+*****
+
+####  战狼PTSD  
+##### 266#       发表于 2021-10-21 01:27
+
+
+FF7R说好独占一年怎么还不上
+
+
+*****
+
+####  JudgmentEye  
+##### 267#       发表于 2021-10-21 01:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215122&amp;ptid=2026252" target="_blank">战狼PTSD 发表于 2021-10-21 01:27</a>
+
+FF7R说好独占一年怎么还不上</blockquote>
+大法又塞钱续了一年ps5呗
+
+
