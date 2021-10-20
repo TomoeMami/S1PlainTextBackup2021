@@ -2960,3 +2960,41 @@ C9什么时候也整了个vtuber，能不能快进LGD全员vt出道啊
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  sgssk  
+##### 7708#       发表于 2021-10-20 17:50
+
+
+屑社啊屑社，你让我说啥好呢
+
+<img src="https://img.saraba1st.com/forum/202110/20/174941axmepxlp3u3nnllf.png" referrerpolicy="no-referrer">
+
+
+<strong>IMN48AG2S6IV55D]4PF[@_B.png</strong> (43.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-20 17:49 上传
+
+
+白音小姐进来又跑了，现在赶紧回去和私小姐贴贴还来得及吗
+
+
+*****
+
+####  Map-2  
+##### 7709#       发表于 2021-10-20 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53205436&amp;ptid=1972669" target="_blank">smy20011 发表于 2021-10-20 13:30</a>
+
+https://www.youtube.com/c/C9Vienna/videos
+
+
+C9什么时候也整了个vtuber，能不能快进LGD全员vt出道啊 ...</blockquote>
+还真是cloud9，中之人不是女装大佬sneaky我不是很认可<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

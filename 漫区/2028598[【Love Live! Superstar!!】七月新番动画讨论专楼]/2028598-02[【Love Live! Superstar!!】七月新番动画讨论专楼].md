@@ -18526,3 +18526,28 @@ P站截止今天中午的数据
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  saya1892  
+##### 2949#       发表于 2021-10-20 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53208366&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-20 16:42</a>
+
+可香和可堇都有一部分写成且只打空我/堇可tag的，尤其是空我，所以实际上应该还要再多一点
+
+可堇关注度真 ...</blockquote>
+推特有个可香人每天都统计，估计就是整理发布这个数据的人，一直到12话开播前夜第一名仍然是可香，但数日来的走势可堇浏览数确实冲得非常猛，不过创作还有滞后性
+
+
+B站也有人每周统计P站和推特，不过他只统计创作数不统计浏览数
+
+这是10/09至10/15的数据
+[https://www.bilibili.com/read/cv13604557](https://www.bilibili.com/read/cv13604557)
+
+
+看了前几周，佩酱生日到10话开播的期间可堇增长数其实不是太明显
+
+
