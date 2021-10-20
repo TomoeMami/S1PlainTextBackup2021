@@ -3033,3 +3033,23 @@ hachi真是歌势之鉴，量大管饱，周周嗯唱
 2021-10-20 23:02 上传
 
 
+
+
+*****
+
+####  ヒトニナル  
+##### 7712#       发表于 2021-10-20 23:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这北大路怎么还跟RoughSketch搭上关系了啊，好怪
+
+
+*****
+
+####  FCCHua  
+##### 7713#       发表于 2021-10-20 23:38
+
+
+和hnn的tc帮大忙了，谢谢你，nazuna<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+

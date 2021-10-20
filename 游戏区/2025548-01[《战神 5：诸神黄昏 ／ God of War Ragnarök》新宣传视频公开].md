@@ -1940,3 +1940,25 @@ PS5,狗都不买
 hhhhhhhh
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 170#         楼主| 发表于 2021-10-20 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213369&amp;ptid=2025548" target="_blank">Piano-Forest 发表于 2021-10-20 22:57</a>
+
+战神 4上Steam了，2022年1月15日推出，国区售价¥ 279.00：
+
+https://store.steampowered.com/app/1593500/
+
+ ...</blockquote>
+截止2021年8月，战神 4已在PS4平台上卖出1950万套
+
+[https://blog.playstation.com/202 ... 18-is-coming-to-pc/](https://blog.playstation.com/2021/10/20/god-of-war-2018-is-coming-to-pc/)
+
+As of August 2021, 19.5MM copies for God of War on PlayStation 4 have been sold through and we can’t wait to share that experience with a whole new group of players on PC. 
+
+

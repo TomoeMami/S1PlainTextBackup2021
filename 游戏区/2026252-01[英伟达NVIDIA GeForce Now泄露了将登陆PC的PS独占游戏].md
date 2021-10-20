@@ -2883,3 +2883,28 @@ VGC：MGS 3 重制版由维塔士操刀，寂静岭、恶魔城将复活
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  萱时令  
+##### 251#       发表于 2021-10-20 23:25
+
+
+战神来了 不过这表东西太多了 中几个不算事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  tamatama  
+##### 252#       发表于 2021-10-20 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213651&amp;ptid=2026252" target="_blank">泉美 发表于 2021-10-20 23:21</a>
+
+所以那血源...</blockquote>
+说明血缘确实没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
