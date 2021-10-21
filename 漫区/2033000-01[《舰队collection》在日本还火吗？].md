@@ -1018,3 +1018,17 @@ B没撞上这么一群有全年龄热情的同人作者也不能怪官方不努�
 这人大概是B的巴尔的摩推，看见他画过好多B的巴尔的摩图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kyonkoism  
+##### 89#       发表于 2021-10-21 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53225384&amp;ptid=2033000" target="_blank">永恒的王牌 发表于 2021-10-21 20:01</a>
+
+这人大概是B的巴尔的摩推，看见他画过好多B的巴尔的摩图了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是啊，巴尔的摩厨，画的巴尔的摩是真的好看，还出抱枕
+
+

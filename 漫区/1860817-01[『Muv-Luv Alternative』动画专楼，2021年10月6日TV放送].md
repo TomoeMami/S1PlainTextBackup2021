@@ -17640,3 +17640,17 @@ cc动画单独做了第0集交代前作ch还有世界观，虽然也没指望观
 我就看过设定，我觉得现在快进很好，希望下一集就开打
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1217#       发表于 2021-10-21 20:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53224977&amp;ptid=1860817" target="_blank">Kuroe 发表于 2021-10-21 19:30</a>
+
+不看一周难受，看了难受一周感觉这一周自己已经可以接受这个OP了，但是ED还是不行。剧情方面倒是让 ...</blockquote>
+ED你静音就好啦，图还是挺好看的
+
+
