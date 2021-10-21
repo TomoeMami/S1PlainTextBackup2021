@@ -741,3 +741,40 @@ R都没死呢我看C还早着呢，想当年注册dmm就是为了这个，但现
 能做到出圈的出彩人设，例子来说想想爱马仕就可以想到几个，舰B真的有这样的人设吗
 
 
+
+
+*****
+
+####  evanchen  
+##### 71#       发表于 2021-10-21 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220974&amp;ptid=2033000" target="_blank">朔方原的星MK.2 发表于 2021-10-21 14:50</a>
+
+火是不可能的了，八年了还大火简直不遵守物理定律
+
+死也死不了，游戏方面虽然C2机关稳定不做人但再续几年还 ...</blockquote>
+高雄爱宕还不算出圈吗？我觉得当时算是挺火的了。
+
+
+*****
+
+####  nodkane  
+##### 72#       发表于 2021-10-21 15:34
+
+
+如果火的话 那就秋叶原贴满舰c广告了 舰B前段时间周年庆还是有广告的 当然现在打广告打得最狠就是原神
+
+
+*****
+
+####  zxc4563982  
+##### 73#       发表于 2021-10-21 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53219947&amp;ptid=2033000" target="_blank">Yinacona 发表于 2021-10-21 13:18</a>
+
+这是既不玩舰C又不看柯南吗。这2年73基本一案件结束就休刊很久才开始下一个案件，然后下一个案件 ...</blockquote>
+我sunday每期都在看啊，有朋友还在舰C坐牢，活动的时期基本都知道
+
+

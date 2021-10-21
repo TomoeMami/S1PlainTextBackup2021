@@ -17552,3 +17552,14 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 我还以为是落选一定次数就不能开战术机的设定。谢谢。
 
 
+
+
+*****
+
+####  yone0000  
+##### 1209#       发表于 2021-10-21 15:22
+
+
+AL篇的训练兵阶段是没什么好拍的，快进掉也好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
