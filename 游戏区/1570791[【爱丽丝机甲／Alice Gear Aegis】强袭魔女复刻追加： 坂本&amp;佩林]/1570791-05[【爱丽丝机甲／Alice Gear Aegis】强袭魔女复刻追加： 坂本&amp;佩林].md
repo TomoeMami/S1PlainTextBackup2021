@@ -1928,3 +1928,19 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 “由于出现了未知错误将会返回标题画面”xN，这是啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6137#       发表于 2021-10-21 20:31
+
+
+ 本帖最后由 江戸前ルナ 于 2021-10-21 20:33 编辑 
+
+服务器电线被四谷剪了拿去卖了
+
+
+官群公告说出BUG了，维护延长（
+
+
