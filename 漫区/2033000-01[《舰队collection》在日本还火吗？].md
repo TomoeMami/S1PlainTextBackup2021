@@ -1032,3 +1032,16 @@ B没撞上这么一群有全年龄热情的同人作者也不能怪官方不努�
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是啊，巴尔的摩厨，画的巴尔的摩是真的好看，还出抱枕
 
 
+
+
+*****
+
+####  黑猫桑  
+##### 90#       发表于 2021-10-21 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53225007&amp;ptid=2033000" target="_blank">εRemastered 发表于 2021-10-21 19:33</a>
+但是说实话，B在官方渠道塑造角色的分量是不是比就c少呢，我觉得好像也不是……c有绿树常青的全年龄主要 ...</blockquote>
+舰b吸引不到那群有热情的同人创作者这不是运气问题。
+
+
