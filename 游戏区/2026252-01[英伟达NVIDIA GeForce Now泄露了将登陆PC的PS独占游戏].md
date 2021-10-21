@@ -3370,3 +3370,16 @@ GT7要是真上PC，那我就真不用买PS5了
 疯兔是任天堂授权，育碧自家开发的，就是宣发的时候宫本茂去站了个台，我记着当时公布的时候都是在育碧展会。版权这块应该是共有
 
 
+
+
+*****
+
+####  车欠  
+##### 293#       发表于 2021-10-21 18:57
+
+
+索尼的ps123独占都已经上了pc（模拟器）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

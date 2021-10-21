@@ -936,3 +936,26 @@ R都没死呢我看C还早着呢，想当年注册dmm就是为了这个，但现
 肯定得上战雷联动，只要DMM不像新干线一样解约
 
 
+
+
+*****
+
+####  yellow0507  
+##### 83#       发表于 2021-10-21 18:45
+
+
+看易恒泰   只有偶然几个4v在汉化舰C本
+
+
+*****
+
+####  YFIIII  
+##### 84#       发表于 2021-10-21 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53222502&amp;ptid=2033000" target="_blank">kyonkoism 发表于 2021-10-21 16:32</a>
+
+碧蓝档案确实是个例，就跟之前罪恶装备大劈叉热潮一样，区别在于前者画的都是同个角色，后者则是固定姿势的 ...</blockquote>
+上推特看了下，这位画师在发完大和没几天就发了舰b的大凤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

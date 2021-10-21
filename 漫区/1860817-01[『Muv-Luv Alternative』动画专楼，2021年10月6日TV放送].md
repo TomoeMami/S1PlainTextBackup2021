@@ -17587,3 +17587,34 @@ AL篇的训练兵阶段是没什么好拍的，快进掉也好<img src="https://
 剧情飞速得离谱，漫画的剧情也够快啊，但也没动画剧情这样狂删细节靠观众自己脑补的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Dag8  
+##### 1212#       发表于 2021-10-21 18:49
+
+
+第二集慢慢悠悠进基地日常活动给人一种制作组时间很充裕的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dag8  
+##### 1213#       发表于 2021-10-21 18:54
+
+
+cc动画单独做了第0集交代前作ch还有世界观，虽然也没指望观众能看懂压缩到只有一集时间的剧情就是了。抹布拿一集出来做下ul的故事，然后结尾放白银武最后那段独白再进al就蛮好。
+
+
+*****
+
+####  再买自检星剁手  
+##### 1214#       发表于 2021-10-21 18:58
+
+
+等一个抹布进机战，原作厨战力厨都开心，光明正大轮beta<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
