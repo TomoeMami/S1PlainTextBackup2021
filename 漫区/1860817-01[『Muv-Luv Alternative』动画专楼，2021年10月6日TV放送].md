@@ -17345,3 +17345,22 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 小姨子啊，那是活到了社霞当议长年代的萝莉bba啊，你记错了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1195#       发表于 2021-10-21 08:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215308&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-21 02:02</a>
+剧本这火车跑的 开头两场戏撕裂感严重  
+
+后面餐厅 武劈头就说 “想赢BETA 必须聚集拥有强大意志以及崇高志 ...</blockquote>
+武那段话是对上个世界的同伴说的吗？不记得游戏细节了
+
+演习那段我以为会在半集到一集讲完，不过直接跳了也没什么，萝卜片谁要看人类训练<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

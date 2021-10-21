@@ -1006,3 +1006,16 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  天天那个啥  
+##### 84094#       发表于 2021-10-21 08:16
+
+
+新四星也太涩了，明年bgo能上吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
