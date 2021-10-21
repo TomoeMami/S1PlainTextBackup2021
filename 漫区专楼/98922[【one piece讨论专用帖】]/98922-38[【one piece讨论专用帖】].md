@@ -4458,3 +4458,17 @@ cp0一直都在吧，估计是想渔翁得利？
 [f:001山治从司法岛智将之后一直吃瘪 说实话 现在给他什么buff我都不惊讶 233
 
 
+
+
+*****
+
+####  zxc4563982  
+##### 55825#       发表于 2021-10-21 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53218549&amp;ptid=98922" target="_blank">klzxs 发表于 2021-10-21 11:33</a>
+左手或霸气这就是解释给读者听 蠢是蠢一点但比较直接</blockquote>
+直接切一格基德没事或者半仙想起来基德左手是假手的画面体验更好吧
+文字要描写一堆的场景，可能两三个画面就能搞定，为何要放弃优势呢
+
+
