@@ -1154,3 +1154,28 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 涩图那就是大家一起死光光了
 
 
+
+
+*****
+
+####  angelooo  
+##### 84104#       发表于 2021-10-21 14:58
+
+
+<blockquote>yzj134100 发表于 2021-10-21 11:05
+卖不了卡逼得只能把多余的英灵当狗粮喂了，yls你真是不干人事</blockquote>
+这个bug是真的叼，而且到现在都还没修复
+
+
+*****
+
+####  yzj134100  
+##### 84105#       发表于 2021-10-21 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53221071&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-10-21 14:58</a>
+
+这个bug是真的叼，而且到现在都还没修复</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说清数据可以，但我他妈不想再下10个G的东西，万一还没用就傻逼了
+
+

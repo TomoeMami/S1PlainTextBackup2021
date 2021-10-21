@@ -19221,3 +19221,29 @@ op衣服主要是素了点，而且宣传画上的花纹贴图画的真垃圾。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2999#       发表于 2021-10-21 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220717&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-21 14:31</a>
+看了点去年鲤鱼的视频，对比下来感觉颜值有点下降，果然是万恶的资本主义 ...</blockquote>
+我觉得很可能是美颜的原因，现在她在B站自己开播的时候也要好看多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 3000#       发表于 2021-10-21 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220899&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-21 14:45</a>
+我觉得很可能是美颜的原因，现在她在B站自己开播的时候也要好看多</blockquote>
+b站直播真的好久没见到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
