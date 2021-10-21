@@ -17421,3 +17421,55 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高情商鸡枞：动画做成这样反而是给观众留下玩游戏的乐趣
 
 
+
+
+*****
+
+####  Yeaha123  
+##### 1199#       发表于 2021-10-21 10:46
+
+
+问题是看了这动画就会去买游戏玩吗？
+
+
+*****
+
+####  saevey  
+##### 1200#       发表于 2021-10-21 10:56
+
+
+ 本帖最后由 saevey 于 2021-10-21 11:05 编辑 
+
+我就是看了第一集然后一星期把三部都通完了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且那时候开播时steam还打折呢。
+
+
+
+
+*****
+
+####  亚尔古水手  
+##### 1201#       发表于 2021-10-21 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215360&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-10-21 02:14</a>
+
+基本和预料的差不多吧，除了南岛之行比我预料得时间短好多
+
+
+虽然群友们一顿瞎骂，我倒是觉得在意想 ...</blockquote>
+太快了太快了，有种催人跑的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  禦厨三九二  
+##### 1202#       发表于 2021-10-21 10:58
+
+
+老实说什么森林演习还是战术机练习也确实没啥意思，跳就跳吧
+
+
+动画这样子还是赶紧快进到几场战役吧，看看萝卜打戏完事
+
+

@@ -3244,3 +3244,47 @@ GBO2最好也上，GBO如果拿键鼠玩就好多了。
 很多东西是大概率事件<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">和这个表重不是很正常
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 283#       发表于 2021-10-21 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217816&amp;ptid=2026252" target="_blank">lubo 发表于 2021-10-21 10:39</a>
+
+贝姐3、smt5、马力欧疯兔都是17年公布的游戏，采用旧开发套件的可能性更高吧 ...</blockquote>
+贝姐3是白金自己那套引擎、smt5是unity
+
+
+*****
+
+####  JudgmentEye  
+##### 284#       发表于 2021-10-21 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215275&amp;ptid=2026252" target="_blank">whzfjd 发表于 2021-10-21 01:55</a>
+
+换个思路，没上这个名单的跨平台厂商=没用老黄技术？</blockquote>
+我想知道哪个ns游戏没用老黄技术
+
+
+*****
+
+####  oniwarud  
+##### 285#       发表于 2021-10-21 11:04
+
+
+血源我估计真的是底层代码之类的问题吧，按开发时间线来说的话老贼是做完魂1就开始做血源，魂1受死版pc的优化屎到什么程度都是有目共睹的，不打dsfix根本没法玩，血源估计也是因为这个原因所以就不上pc了
+
+
+*****
+
+####  ccow  
+##### 286#       发表于 2021-10-21 11:04
+
+
+希望全部游戏出在PC上，主机可以进坟墓了。
+
+
