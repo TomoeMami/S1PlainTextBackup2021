@@ -3141,3 +3141,25 @@ Oh shit,战神4都要上PC，如果是真的那么索尼一定是疯了</blockqu
 对我来说还有一个香草社的十三机兵防卫圈<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  医生狼多  
+##### 274#       发表于 2021-10-21 08:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215275&amp;ptid=2026252" target="_blank">whzfjd 发表于 2021-10-21 01:55</a>
+换个思路，没上这个名单的跨平台厂商=没用老黄技术？</blockquote>
+不能这么推，这名单又不是含了所有未来游戏
+
+
+*****
+
+####  rak1  
+##### 275#       发表于 2021-10-21 08:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+

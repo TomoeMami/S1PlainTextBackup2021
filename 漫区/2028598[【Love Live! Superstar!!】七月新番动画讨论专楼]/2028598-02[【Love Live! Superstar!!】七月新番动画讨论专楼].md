@@ -19075,3 +19075,14 @@ as卡面其实也很好看啊，但是那个3d真的是一言难尽，实际上�
 之前都推测nako是99年的，但这篇访谈里nako说到她和nagi同龄，那应该是98年吧<img src="https://p.sda1.dev/2/cdd63c512c791fe00f4bae826f16bd17/IMG_CMP_157128072.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kbtit  
+##### 2987#       发表于 2021-10-21 08:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在5ch警推这么多？
+
+
