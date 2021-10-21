@@ -17364,3 +17364,39 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  异界送  
+##### 1196#       发表于 2021-10-21 09:13
+
+
+第三话甚至出现了一瞬间<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+3.1.png
+(20.93 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-21 09:13 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/091330a1mhobyedomxbyda.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angela5d30  
+##### 1197#       发表于 2021-10-21 09:17
+
+
+动画党，这集男主跟其他女角相处的内容给我的感觉就是快速略过游戏里非主轴部分的场景，像赶场那样说完几句就走了，然后就碰上别的女配接续赶。这集最喜欢的段落依然是老师跟男主对持的段落，那个副司令从上集始总感觉藏着什么，所谓的第四代计划大抵不是男主想象中那种美好的东西（？）。
+
+
+后半就更搞笑了，说去演习我还以为起码得演个2-3分钟吧，没想到这边一说，直接就几秒画面+旁白略过，然后配个班长开心得哭的画面就完事了，到现在我就知道班长这人大概之前是落选了几次（？）还摸不准为啥她那么执着必须在这次通过试验<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
