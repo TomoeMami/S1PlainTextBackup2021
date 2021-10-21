@@ -3552,3 +3552,29 @@ btw，很久之前就 ...</blockquote>
 看起来像是，申䒕雅那种
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 7749#       发表于 2021-10-21 23:06
+
+
+<blockquote>OUT OF FRAME
+
+星街すいせい&amp;戌亥とこ
+<strong>レーベル cover corp.</strong>
+
+配信開始日 2021.10.22</blockquote>
+真当叛忍了啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 7750#       发表于 2021-10-21 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹男组合出道泥楼讨论的比七姨太复归时还热闹，南通浓度有点高啊
+
+

@@ -235,3 +235,18 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>�
 感谢，看下来是买全了，接下来安心等发货
 
 
+
+
+*****
+
+####  Skyline_R  
+##### 3022#       发表于 2021-10-21 23:06
+
+
+硬着头皮把前面几集没看的熟肉片段给看掉了，虽然之前就差不多理解得了剧情，但具体翻译过来、细化之后观感又继续下降了；之后第二季可以考虑一下不看熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在差不多除了第十二话的熟肉都看完了，感觉星这次好像各方面来看都挺不走心、挺敷衍了事的。几个主创里面感觉就斋藤敦史没有什么可以指责的；藤泽这次的音乐似乎也没有缪那时那么地有“煽动性”，藤泽的音乐也算是给缪动画的煽情戏码中重要的一部分，星动画这次感觉没什么存在感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+（剩下花田他们就更别说了，啥时候看完第十二集的熟肉搞不好我的观感会更差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+

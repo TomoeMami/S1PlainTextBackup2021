@@ -1255,3 +1255,17 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">傻屌和噪音污染完全是2回事.....之前也没见她在战斗时的语音有唱鮮血魔嬢和恋はドラクル啊
 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84112#       发表于 2021-10-21 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227177&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-21 22:19:31</a>
+傻屌和噪音污染完全是2回事.....之前也没见她在战斗时的语音有唱鮮血魔嬢和恋はドラクル啊 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是枪阶还有所收敛，憋了这么久没出来终于放开了，不过变成狂阶感觉更好，只是不知道现在这个骑阶是不是在剧情里有特别的含义
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
