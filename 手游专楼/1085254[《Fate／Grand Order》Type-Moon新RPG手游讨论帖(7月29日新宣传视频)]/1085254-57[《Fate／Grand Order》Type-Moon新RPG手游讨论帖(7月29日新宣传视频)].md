@@ -1056,3 +1056,20 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 属性：混沌・歌，奇怪的属性又增加了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 84098#       发表于 2021-10-21 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53218554&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-10-21 11:34</a>
+
+你还不如先问问明年BGO还在吗
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+在还是能在的，只要不是上面逼着B站停服，B站肯定会一直运营上去。毕竟B站现在的手游收益BGO还是在前列。
+
+

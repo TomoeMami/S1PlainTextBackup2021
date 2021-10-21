@@ -3288,3 +3288,14 @@ GBO2最好也上，GBO如果拿键鼠玩就好多了。
 希望全部游戏出在PC上，主机可以进坟墓了。
 
 
+
+
+*****
+
+####  mp5  
+##### 287#       发表于 2021-10-21 12:42
+
+
+ 这些算什么，泥潭真爱2也上PC才叫大新闻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
