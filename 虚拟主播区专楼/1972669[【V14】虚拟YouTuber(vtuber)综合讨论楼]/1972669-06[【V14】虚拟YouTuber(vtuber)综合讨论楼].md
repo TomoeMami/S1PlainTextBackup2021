@@ -3578,3 +3578,14 @@ btw，很久之前就 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹男组合出道泥楼讨论的比七姨太复归时还热闹，南通浓度有点高啊
 
 
+
+
+*****
+
+####  fastary  
+##### 7751#       发表于 2021-10-22 00:16
+
+
+草我以为虹楼都是高兴庆祝新组合展望新综艺呢，做半天心理准备点开一看怎么在车不够v和折腾艺人……
+
+
