@@ -2106,3 +2106,14 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 这充满迫力的大砍刀，一手提弩一手提刀，武德充沛的TAMA酱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6150#       发表于 2021-10-21 23:47
+
+
+战斗背景似乎比以前精细了，ai的攻击欲望好像也提高了一点点。
+
+
