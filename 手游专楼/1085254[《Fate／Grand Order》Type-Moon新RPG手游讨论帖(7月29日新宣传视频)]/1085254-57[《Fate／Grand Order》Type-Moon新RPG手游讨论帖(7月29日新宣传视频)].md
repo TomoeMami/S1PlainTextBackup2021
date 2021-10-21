@@ -1179,3 +1179,17 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说清数据可以，但我他妈不想再下10个G的东西，万一还没用就傻逼了
 
 
+
+
+*****
+
+####  シャル  
+##### 84106#       发表于 2021-10-21 15:10
+
+
+450石头
+
+
+6个女王一个团长
+
+
