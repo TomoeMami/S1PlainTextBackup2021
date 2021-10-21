@@ -1,0 +1,622 @@
+
+
+*****
+
+####  4600  
+##### 1#       楼主       发表于 2021-10-20 20:58
+
+
+没玩过游戏，动画出了一季好像就没下文了？
+
+
+*****
+
+####  199april  
+##### 2#       发表于 2021-10-20 21:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论同人热度早被舰b打趴了，虽然舰b现在也衰退得厉害
+
+田中那b现在一门心思做线下游戏都摆烂了，这几次活动都什么jb玩意
+
+
+*****
+
+####  Ironman_mk5  
+##### 3#       发表于 2021-10-20 21:11
+
+
+几年前宣布有第二季的计划，但看到舰B动画这么烂就没那么急着出了
+
+
+*****
+
+####  whzfjd  
+##### 4#       发表于 2021-10-20 21:16
+
+
+说来滑稽，当年是菌锅主义黄赌毒，结果现在来看既不黄也不赌
+
+
+*****
+
+####  信仰之山  
+##### 5#       发表于 2021-10-20 21:27
+
+
+不够色，怎么卖出钱嘛
+
+
+*****
+
+####  蛇头  
+##### 6#       发表于 2021-10-20 21:34
+
+
+不温不火吧，每年夏天好像固定和罗森搞活动，前几年好像还在和なか卯搞线下联动。街机厅机器摆的也多，但玩的人好像真没多少了。
+
+但你说死了吧，人也还活着，可能已经到了国民ip的阶段了吧（x<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月涼  
+##### 7#       发表于 2021-10-20 21:38
+
+
+偶尔罗森会卖点谷子，其他的时候感觉没什么存在感了……
+
+
+*****
+
+####  黑猫桑  
+##### 8#       发表于 2021-10-20 21:42
+
+
+舰c的人设我挺喜欢的，很色气
+
+
+*****
+
+####  Lozs  
+##### 9#       发表于 2021-10-20 21:54
+
+
+A屎画的什么玩意
+
+
+*****
+
+####  令和忍者  
+##### 10#       发表于 2021-10-20 21:56
+
+
+还活着哪？挺能苟的啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Ironman_mk5  
+##### 11#       发表于 2021-10-20 22:02
+
+
+<blockquote>令和忍者 发表于 2021-10-20 21:56
+还活着哪？挺能苟的啊
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+街机过气了都能苟20年，只要熬过舰b就是胜利
+
+
+*****
+
+####  poor  
+##### 12#       发表于 2021-10-20 22:09
+
+
+A屎还没画关底船，还不算完蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  anehon  
+##### 13#       发表于 2021-10-20 22:15
+
+
+田中pua水平很高的，当然很能苟辣<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lurenasa  
+##### 14#       发表于 2021-10-20 22:17
+
+
+本来之前就重视线下了吧，疫情一来就变难了，现在推也能刷到舰c图，点赞数高的也就1w多和热门的比不了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  永恒的王牌  
+##### 15#       发表于 2021-10-20 22:21
+
+
+人气高的还是那几艘老船，最近都没见过关注的画师画新船同人了
+
+
+*****
+
+####  zxc4563982  
+##### 16#       发表于 2021-10-20 22:23
+
+
+别的不说，青山还在为了打砍口垒活动休刊
+
+
+*****
+
+####  payboy  
+##### 17#       发表于 2021-10-20 22:27
+
+
+过气页游
+
+
+*****
+
+####  oznark  
+##### 18#       发表于 2021-10-20 22:28
+
+
+我在推特关注了5001个黄图画师，舰C能出神舟丸这么色的船，但是却几乎没有人画色图，其实已经完了
+
+
+*****
+
+####  ads147147  
+##### 19#       发表于 2021-10-20 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舰c可能在色图上还不如这段时间风靡起来的碧蓝档案，人家一个打枪的兔女郎扫的我主页全是那个女人。也就几个舰c死忠还画着舰c。
+
+
+*****
+
+####  新吾  
+##### 20#       发表于 2021-10-20 22:39
+
+
+你说他死了吧，明年田中跪着求出来的第二季也要播了
+
+你说他活着吧，基本不见有人给这游戏产粮了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就很尴尬，全球最火的时候非要搞霓虹only的线下，船的立绘8成是乐色被全力搞涩琴的blhx吊着锤，搞硬核游戏搞过头完全劝退最会花钱的厨力玩家，可能若干年后有人会怀念它带出了一个舰like手游的时代吧，起码不是现在
+
+
+*****
+
+####  anehon  
+##### 21#       发表于 2021-10-20 22:47
+
+
+搞线下也不是问题，关键在于游戏本体实在太烂，丝毫不知进取
+
+自从出了wiki造船事件后，硬核游戏这块遮羞布也撕了个粉碎
+
+
+*****
+
+####  ❃✽✾✶✻✼  
+##### 22#       发表于 2021-10-20 22:48
+
+
+什么？明年关服是谣言？
+
+
+*****
+
+####  yone0000  
+##### 23#       发表于 2021-10-20 22:48
+
+
+以前关注的舰C画师现在都去画马娘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  katern  
+##### 24#       发表于 2021-10-20 23:20
+
+
+都8年了，差不多到头了
+
+
+*****
+
+####  whzfjd  
+##### 25#       发表于 2021-10-20 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213074&amp;ptid=2033000" target="_blank">oznark 发表于 2021-10-20 22:28</a>
+
+我在推特关注了5001个黄图画师，舰C能出神舟丸这么色的船，但是却几乎没有人画色图，其实已经完了 ...</blockquote>
+神州丸色图和本子量在没火的这一档里还可以了
+
+
+*****
+
+####  坏未来  
+##### 26#       发表于 2021-10-20 23:47
+
+
+和爱马仕sg的热度差不多，没什么新人，但死忠粉稳定且愿意花钱
+
+顺便吹blhx的该更新大脑os了，c起码有死忠粉，b除了柰子屁股空无一物的人设想养死忠粉都难，二创极度悬殊的r18比一般向比例，当年粥粥人说的卖X论还真有几分道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说到底，柰子屁股在二次元里不是什么稀罕东西，反正大浪淘沙，总有更色的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  沙包王  
+##### 27#       发表于 2021-10-20 23:54
+
+
+没熬过东方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯夏  
+##### 28#       发表于 2021-10-20 23:55
+
+
+都8年的老游戏了 热度会慢慢降低不是常事吗 
+
+明年TV版第2季
+
+
+*****
+
+####  飛鳥了  
+##### 29#       发表于 2021-10-21 00:22
+
+
+一年只有四次活动，搁别的游戏早死了。。。
+
+找个靠谱点的游戏公司出个续作应该还能续一波
+
+
+*****
+
+####  战狼PTSD  
+##### 30#       发表于 2021-10-21 00:25
+
+
+C的包子脸还挺合我胃口
+
+
+
+
+*****
+
+####  蕾咪莉亚  
+##### 31#       发表于 2021-10-21 00:43
+
+
+R都没死还苟着，C离死还远着，至于舰B，最近同人产出也不太行了，新出的皮肤也就恶毒和大凤有点同人图，别的都拉了，应该也有碧蓝档案的缘故<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eden_hazard  
+##### 32#       发表于 2021-10-21 01:20
+
+
+早该死了，一年就四次活动（有时还没有）还有捞鱼捞饼一次比一次恶心，奖励比每月排名都抠门。不过每年田中给游戏的投入估计还没他开咖喱店花的多，反复提纯之后剩下的死忠都是连Z蝗臭脚都能舔得津津有味的超级孝子，再撑个三五年问题不大，估计到时候它们连A蝗都能放开舔了
+
+
+*****
+
+####  woaitianjue  
+##### 33#       发表于 2021-10-21 01:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">寨r都没死 c还暂且活着 不过画同人的是越来越少 都分流去那几个热门手游了
+
+反正现在受众早就被sb田中反复提纯过 主要企划都在线下 就是这两年疫情 不知道田中还能撑多久
+
+
+*****
+
+####  千本blur  
+##### 34#       发表于 2021-10-21 01:24
+
+
+别的不知道，DMM一般向游戏里日常流水还是能排前三。
+
+
+*****
+
+####  minamichisei  
+##### 35#       发表于 2021-10-21 01:39
+
+
+个人感觉日本人真的很喜欢自家的船，碧蓝航线日服人气投票前排一水的日船，基于此点主打日船的舰C保有大量死忠粉不难理解。不过田中喂屎提纯下居然还能保有这么多玩家不难感慨舰C玩家忍性之高<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千本blur  
+##### 36#       发表于 2021-10-21 01:49
+
+
+ 本帖最后由 千本blur 于 2021-10-21 01:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213987&amp;ptid=2033000" target="_blank">坏未来 发表于 2021-10-20 23:47</a>
+和爱马仕sg的热度差不多，没什么新人，但死忠粉稳定且愿意花钱
+
+顺便吹blhx的该更新大脑os了，c起码有死忠粉 ...</blockquote>
+大浪淘沙，窑子大家都会开了。可你必须承认，碧蓝航线在你觉得我超已经色到离谱了的时候总能整出新花样。
+
+
+*****
+
+####  工口兔  
+##### 37#       发表于 2021-10-21 01:50
+
+
+热度下去了，主要吃死忠的钱，这游戏因为版权和分成的关系，负责开发的C2在游戏上再用心也赚不到钱，于是直接一个烂的摆，然后专心发展线下捞钱，结果被一个疫情锤烂，大快人心<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烽火  
+##### 38#       发表于 2021-10-21 02:00
+
+
+出海防舰退坑玩的舰R 多出点海外名舰不好么<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qinsiwei54745  
+##### 39#       发表于 2021-10-21 09:47
+
+
+之前不算火也不算凉，近一年开始田中各种骚操作让这游戏开始真正走下坡路了
+
+
+*****
+
+####  Ironman_mk5  
+##### 40#       发表于 2021-10-21 09:54
+
+
+<blockquote>烽火 发表于 2021-10-21 02:00
+出海防舰退坑玩的舰R 多出点海外名舰不好么</blockquote>
+不是盟军船刚出时被右翼炎上过说是背叛皇军么
+
+
+*****
+
+####  古战场亡魂  
+##### 41#       发表于 2021-10-21 09:56
+
+
+反正本子和图可见的少多了。
+
+
+*****
+
+####  遍体精淋af  
+##### 42#       发表于 2021-10-21 09:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在还吹舰b的同人热度的是多久没更新版本了，舰b多久没出一个能引起潮流的人设了？全是要素复制粘贴没辨识度的奈子大腿还真不如大饼脸，好歹人家还有死忠画短漫
+
+
+*****
+
+####  冰寒之月  
+##### 43#       发表于 2021-10-21 10:02
+
+
+看动画第二季表现如何吧
+
+
+*****
+
+####  布布2号  
+##### 44#       发表于 2021-10-21 10:12
+
+
+<blockquote>坏未来 发表于 2021-10-20 23:47
+和爱马仕sg的热度差不多，没什么新人，但死忠粉稳定且愿意花钱
+
+顺便吹blhx的该更新大脑os了，c起码有死忠粉 ...</blockquote>
+不是，二刺猿手游不讲涩勤，难道要讲**内核吗
+
+
+*****
+
+####  Erikas  
+##### 45#       发表于 2021-10-21 10:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不提都忘了还有这东西的程度
+
+
+*****
+
+####  某站名媛百合兽  
+##### 46#       发表于 2021-10-21 10:15
+
+
+当年为了玩舰C注册的DMM帐号现在每天都开的游戏是千年……
+
+
+*****
+
+####  fzlong  
+##### 47#       发表于 2021-10-21 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217187&amp;ptid=2033000" target="_blank">遍体精淋af 发表于 2021-10-21 09:59</a>
+
+现在还吹舰b的同人热度的是多久没更新版本了，舰b多久没出一个能引起潮流的人设了？全是要素复制粘 ...</blockquote>
+婚纱大凤和兔女郎恶毒<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+还是看的太少
+
+
+*****
+
+####  遍体精淋af  
+##### 48#       发表于 2021-10-21 10:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217591&amp;ptid=2033000" target="_blank">fzlong 发表于 2021-10-21 10:25</a>
+
+婚纱大凤和兔女郎恶毒
+
+还是看的太少</blockquote>
+标准太低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">婚纱大凤出来后到现在p站多了263，兔女郎恶毒是577，同期相比碧蓝档案的蓝兔子是增加了1500
+
+
+*****
+
+####  fzlong  
+##### 49#       发表于 2021-10-21 10:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">和蓝兔子那是没法比
+
+
+*****
+
+####  MayTROLL  
+##### 50#       发表于 2021-10-21 10:50
+
+
+但是这游戏有一批会画画的忠诚玩家倒是让人挺羡慕的
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 51#       发表于 2021-10-21 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217830&amp;ptid=2033000" target="_blank">遍体精淋af 发表于 2021-10-21 10:41</a>
+
+标准太低了婚纱大凤出来后到现在p站多了263，兔女郎恶毒是577，同期相比碧蓝档案的蓝兔子是增加了 ...</blockquote>
+碧蓝档案那个独一档啊，太叼了，碧蓝最近出的几个都是皮肤，能拉点人气不错了
+
+
+*****
+
+####  古明地雷  
+##### 52#       发表于 2021-10-21 11:10
+
+
+我目前每天都玩🤡全员改二的目标2014年至今未实现的咸鱼
+
+
+*****
+
+####  枫紫  
+##### 53#       发表于 2021-10-21 11:13
+
+
+问一下，雷电高爱改二了么
+
+
+*****
+
+####  仙岳病患  
+##### 54#       发表于 2021-10-21 11:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬是喜欢搞线下，结果被疫情一波干碎
+
+
+*****
+
+####  cauchua2  
+##### 55#       发表于 2021-10-21 11:20
+
+
+你们说的碧蓝档案是不是那个黑皮女仆，最近还出了兔女郎的那个？推上全是她的色图，在日本最近特别火？
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+*****
+
+####  hsyg  
+##### 56#       发表于 2021-10-21 11:23
+
+
+金发大奶美少女这种黄道正攻系的，出来小半年才第一次爆发已经很不科学了。前面还要被黑皮压着。但是也就这样了，这游戏衣服太普通，基础分高后续也没啥发展空间吧
+
+
+*****
+
+####  woaitianjue  
+##### 57#       发表于 2021-10-21 11:26
+
+
+碧蓝档案那几个女仆出了兔女郎皮肤是够色天天推特看新图 不过好像这手游卖点是铜？来自: iPhone客户端
+
+
+*****
+
+####  PokerFaceSmile  
+##### 58#       发表于 2021-10-21 11:34
+
+
+一个观点不一定对：盛产全龄短漫的圈子都比较长寿。
+
+
+*****
+
+####  大肥鸽子  
+##### 59#       发表于 2021-10-21 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213987&amp;ptid=2033000" target="_blank">坏未来 发表于 2021-10-20 23:47</a>
+和爱马仕sg的热度差不多，没什么新人，但死忠粉稳定且愿意花钱
+
+顺便吹blhx的该更新大脑os了，c起码有死忠粉 ...</blockquote>
+但粥粥后来不还是柰子屁股玩的不亦乐乎，r18同人数量也没少到哪去，国内热门gacha手游现在都在软色情这个赛道上狂奔<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+再说了，有死忠粉又不代表人设有优势，还不如比游戏性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  隰有苌楚  
+##### 60#       发表于 2021-10-21 11:52
+
+
+它要不整远征系统的话也是能玩到关服的
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+
+*****
+
+####  权志龙  
+##### 61#       发表于 2021-10-21 11:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么档案推广期过了就没了
+
+
