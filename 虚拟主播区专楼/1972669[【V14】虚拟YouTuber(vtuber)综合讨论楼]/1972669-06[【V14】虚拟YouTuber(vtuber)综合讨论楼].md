@@ -3432,3 +3432,84 @@ Syl，什么麻将爱抖露
 省一楼，guigui这张图的郡郡真是好看到爆啊！
 
 
+
+
+*****
+
+####  Paisley  
+##### 7741#       发表于 2021-10-21 22:28
+
+
+咎人的话大概是gaku那边拉不太起来吧，不过话说回来免费能进这个四人组我是没想到……<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fastary  
+##### 7742#       发表于 2021-10-21 22:33
+
+
+其实按势头和风声(？)来说我以为挑四人组合会是石油王，啊不过他好像也是不太愿意唱歌组来着，考虑到三枝有rd的话甲斐田补位上的也不是没可能
+
+
+*****
+
+####  dybang  
+##### 7743#       发表于 2021-10-21 22:34
+
+
+这种事得提前几个月开始策划吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要搞起来估计得等gaku3d了再说，现在开始营业也不晚，虽然上周已经加速了
+
+
+*****
+
+####  alcoholic1000  
+##### 7744#       发表于 2021-10-21 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227182&amp;ptid=1972669" target="_blank">fastary 发表于 2021-10-21 22:19</a>
+
+就是理智上知道关系稳固我才只酸得打滚没真破防
+
+或许也只能跟自己说比玩具组好起码挑染感情一直都 ...</blockquote>
+咎人和飯屋关系好线下多、有数字有人望（看4ch虹男串人气也还不错），想要的将来总会有
+
+btw，很久之前就听说VΔLZ复刻ルジュエ/帝華2.0了，没认真求证但看上次组合活动也是纯工商...
+
+不仲是虹味儿的一环，不可不尝<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fastary  
+##### 7745#       发表于 2021-10-21 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227335&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-10-21 22:35</a>
+
+咎人和飯屋关系好线下多、有数字有人望（看4ch虹男串人气也还不错），想要的将来总会有
+
+btw，很久之前就 ...</blockquote>
+4ch都有虹男串啊，可以的啊<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+那就承您吉言了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 7746#       发表于 2021-10-21 22:44
+
+
+插播一则既视感很强的新衣服：
+
+<img src="https://img.saraba1st.com/forum/202110/21/224354ja4jio193i9hrho1.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20211021224301.png</strong> (55.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 22:43 上传
+
+
