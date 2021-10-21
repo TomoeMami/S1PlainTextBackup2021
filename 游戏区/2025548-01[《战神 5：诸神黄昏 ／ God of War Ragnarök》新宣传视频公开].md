@@ -2001,3 +2001,39 @@ As of August 2021, 19.5MM copies for God of War on PlayStation 4 have been sold 
 莫非以后索尼的独占都是限时独占了？？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 174#       发表于 2021-10-21 10:09
+
+
+<blockquote>DelayNoMore 发表于 2021-10-19 14:09
+过个三十年，洛基变成奎爷的样子
+
+
+—— 来自 S1Fun</blockquote>
+遗传性脱发
+
+
+*****
+
+####  天妇罗  
+##### 175#       发表于 2021-10-21 10:11
+
+
+50刀搞笑呢？
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 176#       发表于 2021-10-21 10:13
+
+
+<blockquote>tengshuo980 发表于 2021-10-19 13:10
+反正我觉得肯定要去地府一趟</blockquote>
+已经去过赫尔海姆两趟了，一次是去找救熊孩子的药，一次是熊孩子不听话乱搞事结果把父子俩和巴德尔(还有一个死人头)都弄到赫尔海姆去了。
+
+

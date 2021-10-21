@@ -19097,3 +19097,21 @@ as卡面其实也很好看啊，但是那个3d真的是一言难尽，实际上�
 这证明虐角色拉分有效，还得看似搞笑观众感觉钝刀杀人那种，反观恋那样的正儿八经想写虐结果写成闹剧的...
 
 
+
+
+*****
+
+####  土豆不土  
+##### 2989#       发表于 2021-10-21 10:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53211576&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-20 20:41</a>
+
+要我排个人心中的星团live排名那就是:
+
+1. START!! True dreams
+
+2.tiny stars</blockquote>
+op不管是服装还是舞蹈都很接近三次元偶像，没那么二了，suki<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 小星星编舞也不错，没有那种很二次元很尬的感觉。月底巡演应该会唱吧？期待三次元服装表现效果了。
+
+
