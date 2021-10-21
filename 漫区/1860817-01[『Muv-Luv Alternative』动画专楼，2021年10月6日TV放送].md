@@ -17563,3 +17563,14 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 AL篇的训练兵阶段是没什么好拍的，快进掉也好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1210#       发表于 2021-10-21 15:59
+
+
+不知不觉，我对帝国军上层的战斗组织能力拉胯都快习惯了。
+
+
