@@ -17574,3 +17574,16 @@ AL篇的训练兵阶段是没什么好拍的，快进掉也好<img src="https://
 不知不觉，我对帝国军上层的战斗组织能力拉胯都快习惯了。
 
 
+
+
+*****
+
+####  Carta_Issue  
+##### 1211#       发表于 2021-10-21 18:24
+
+
+第三话感观真滴差，开头一帮人棒读E文就算了
+
+剧情飞速得离谱，漫画的剧情也够快啊，但也没动画剧情这样狂删细节靠观众自己脑补的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+

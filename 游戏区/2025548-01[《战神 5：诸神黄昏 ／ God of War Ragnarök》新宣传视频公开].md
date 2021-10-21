@@ -2037,3 +2037,17 @@ As of August 2021, 19.5MM copies for God of War on PlayStation 4 have been sold 
 已经去过赫尔海姆两趟了，一次是去找救熊孩子的药，一次是熊孩子不听话乱搞事结果把父子俩和巴德尔(还有一个死人头)都弄到赫尔海姆去了。
 
 
+
+
+*****
+
+####  DelayNoMore  
+##### 177#       发表于 2021-10-21 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217348&amp;ptid=2025548" target="_blank">躺平划水摸鱼 发表于 2021-10-21 10:09</a>
+
+遗传性脱发</blockquote>
+毛囊转移综合征，临场表现为头部毛囊集体转移至脸颊和下颚
+
+
