@@ -19192,3 +19192,32 @@ op衣服主要是素了点，而且宣传画上的花纹贴图画的真垃圾。
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好耶
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 2996#       发表于 2021-10-21 14:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看了点去年鲤鱼的视频，对比下来感觉颜值有点下降，果然是万恶的资本主义
+
+
+*****
+
+####  lj205  
+##### 2997#       发表于 2021-10-21 14:36
+
+
+鲤鱼和佩佩这相处模式就很微妙，都让佩佩喊姐姐了，佩佩也是跟个妹妹一样使劲蹭，结果现在转头就是使劲跟打铁和岬贴贴
+
+
+*****
+
+####  cybernetics31  
+##### 2998#       发表于 2021-10-21 14:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -1137,3 +1137,20 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 —— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  真红眼教授  
+##### 84103#       发表于 2021-10-21 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220454&amp;ptid=1085254" target="_blank">天天那个啥 发表于 2021-10-21 14:06</a>
+
+你想低调，友商让不让你低调还两说。像之前的风波，不就是bgo吃着火锅唱着歌，突然被友商拖出来当栗子， ...</blockquote>
+历史人物的挡箭牌并不多，汉奸图还找了王者挡枪，只是王者背景更硬嘛
+
+
+涩图那就是大家一起死光光了
+
+
