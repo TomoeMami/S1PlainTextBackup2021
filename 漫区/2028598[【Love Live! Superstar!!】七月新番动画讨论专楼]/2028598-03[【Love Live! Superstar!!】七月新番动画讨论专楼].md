@@ -96,3 +96,36 @@ https://b23.tv/FaqcZ4
 这叫富有趣味与幽默感
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3009#       发表于 2021-10-21 17:08
+
+
+liella这五个人或多或少都有被角色发型束缚了颜值
+
+
+*****
+
+####  中野四葉  
+##### 3010#       发表于 2021-10-21 17:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少比虹团那里好点
+
+
+*****
+
+####  一个陆仁贾  
+##### 3011#       发表于 2021-10-21 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53223064&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-21 17:08</a>
+liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>
+发型同化也算是LL的传统了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
