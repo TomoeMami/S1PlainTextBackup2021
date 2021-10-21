@@ -2016,3 +2016,57 @@ TAMA这新AN步枪性能挺不错的，PC版也可以玩类似芹菜的绕前射
 不过TAMA酱这分支后看上去太武德充沛了吧，常时举着把西瓜刀追人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  regular  
+##### 6144#       发表于 2021-10-21 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227029&amp;ptid=1570791" target="_blank">黑炎凤凰 发表于 2021-10-21 22:05</a>
+
+为什么游戏在读取的时候不停的跳出啊</blockquote>
+我也没事就跳出，不知道是不是内存占的多了我的破手机顶不住了...
+
+
+*****
+
+####  黑炎凤凰  
+##### 6145#       发表于 2021-10-21 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227410&amp;ptid=1570791" target="_blank">regular 发表于 2021-10-21 22:41</a>
+
+我也没事就跳出，不知道是不是内存占的多了我的破手机顶不住了...</blockquote>
+我手机是新买的啊<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  regular  
+##### 6146#       发表于 2021-10-21 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227524&amp;ptid=1570791" target="_blank">黑炎凤凰 发表于 2021-10-21 22:50</a>
+
+我手机是新买的啊</blockquote>
+刚发现资源下载还有1.8G，我看看下完还跳不跳...在设置里。
+
+
+*****
+
+####  madcow  
+##### 6147#       发表于 2021-10-21 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53196662&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-10-19 20:10</a>
+
+自己玩了下加看了推特上的介绍，大概是这个情况。
+
+https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
+我试了下，实际上应该是根据任务（会随角色摄影等级升高解锁不同任务，LV5会解锁不带封面的任务）有不同风格要求，目前看了下就UNIQUE,ELEGANT.CASUAL和FORMAL这四种？然后右上角评价槽满了角色会更大几率做要求的动作
+
+具体是有什么动作对应什么风格评价的，只要等随机出就行，但是一般角色一开始会多做不是任务要求的动作，比如评价要求ELEGANT她会做FORMAL的动作。
+
+
