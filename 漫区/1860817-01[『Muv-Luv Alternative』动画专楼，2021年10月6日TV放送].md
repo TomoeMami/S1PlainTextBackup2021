@@ -17536,3 +17536,19 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 其实OPED里也都有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  angela5d30  
+##### 1208#       发表于 2021-10-21 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53219652&amp;ptid=1860817" target="_blank">saevey 发表于 2021-10-21 12:52</a>
+
+主角这帮人之前落选过一次，不过是有原因的，后面应该会说。
+
+至于为什么执着于此，只能说队里基本都是自 ...</blockquote>
+我还以为是落选一定次数就不能开战术机的设定。谢谢。
+
+

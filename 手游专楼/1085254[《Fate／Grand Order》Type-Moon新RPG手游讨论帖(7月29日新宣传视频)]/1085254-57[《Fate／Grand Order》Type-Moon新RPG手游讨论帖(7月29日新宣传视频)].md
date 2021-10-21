@@ -1122,3 +1122,18 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 低调做事，也不是没有其他涩的卡面还在
 
 
+
+
+*****
+
+####  天天那个啥  
+##### 84102#       发表于 2021-10-21 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220307&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-10-21 13:53</a>
+低调做事，也不是没有其他涩的卡面还在</blockquote>
+你想低调，友商让不让你低调还两说。像之前的风波，不就是bgo吃着火锅唱着歌，突然被友商拖出来当栗子，最后被橄榄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
