@@ -1980,3 +1980,14 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 我正在更新1.2g......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 6141#       发表于 2021-10-21 22:05
+
+
+为什么游戏在读取的时候不停的跳出啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+

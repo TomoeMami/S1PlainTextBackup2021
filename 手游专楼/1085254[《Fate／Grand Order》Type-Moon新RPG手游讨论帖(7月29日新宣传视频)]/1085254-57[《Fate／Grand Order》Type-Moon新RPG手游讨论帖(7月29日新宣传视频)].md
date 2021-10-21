@@ -1229,3 +1229,29 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84110#       发表于 2021-10-21 22:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">废狗里大久保瑠美配的俩角色我都觉得很烦
+
+
+*****
+
+####  森兰丸  
+##### 84111#       发表于 2021-10-21 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53226893&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-10-21 21:53</a>
+
+龙娘设定就是这样的啊，不如说，看到她还是这么傻屌，就安心了
+
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">傻屌和噪音污染完全是2回事.....之前也没见她在战斗时的语音有唱鮮血魔嬢和恋はドラクル啊
+
+

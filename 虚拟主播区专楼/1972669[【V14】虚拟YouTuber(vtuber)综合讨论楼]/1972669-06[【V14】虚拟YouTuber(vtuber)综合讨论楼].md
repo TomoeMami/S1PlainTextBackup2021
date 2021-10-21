@@ -3299,3 +3299,136 @@ sakuyui有3d live开道，rof-mao也有公式节目造势
 下位男应该只有王子成濑神田+半个哈哥
 
 
+
+
+*****
+
+####  winda  
+##### 7731#       发表于 2021-10-21 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53226931&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-10-21 21:57</a>
+不是，这免费能算上位男？还是我太久不看虹已经跟不上版本了？</blockquote>
+免费mc造公寓同接也是能破5000的
+
+
+*****
+
+####  fastary  
+##### 7732#       发表于 2021-10-21 22:06
+
+
+三周挑染王和连续挑染周边时候的我：挑染组说不定有成为继黑黑和咎人之后第三个还算有人气的男子组合？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+现在的我：输麻了，像个小丑.jpg
+
+我知道三个人关系确实很好，黑客也难得在说起关系好的人会毫不犹豫说挑染，但是怎么说呢，作为观众还是想看到明面上的东西……(远目)
+
+
+*****
+
+####  OldGlory  
+##### 7733#       发表于 2021-10-21 22:06
+
+
+一般的虹女还在求彩虹给点资源，聪明的虹女已经跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 7734#       发表于 2021-10-21 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227032&amp;ptid=1972669" target="_blank">fastary 发表于 2021-10-21 22:06</a>
+
+三周挑染王和连续挑染周边时候的我：挑染组说不定有成为继黑黑和咎人之后第三个还算有人气的男子组合？[f:0 ...</blockquote>
+不要怕，说不定blue双人组合就要出道了
+
+
+*****
+
+####  alcoholic1000  
+##### 7735#       发表于 2021-10-21 22:12
+
+
+ 本帖最后由 alcoholic1000 于 2021-10-21 22:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227032&amp;ptid=1972669" target="_blank">fastary 发表于 2021-10-21 22:06</a>
+
+三周挑染王和连续挑染周边时候的我：挑染组说不定有成为继黑黑和咎人之后第三个还算有人气的男子组合？[f:0 ...</blockquote>
+你们飯屋都要在黑客工作室并排放牙刷了，关系好比什么都稳固
+
+这里有一个ルジュエ观众，一年靠一首没头没尾的曲子吊着、同台0互动提及NG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+Syl，什么麻将爱抖露
+
+<img src="https://img.saraba1st.com/forum/202110/21/221712hwrf7291dt2v2aup.png" referrerpolicy="no-referrer">
+
+
+<strong>10月23日(土)19時～グウェル・オスガール伊東ライフ郡道美玲歌衣メイカ.png.png</strong> (62.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 22:17 上传
+
+
+*****
+
+####  ヒトニナル  
+##### 7736#       发表于 2021-10-21 22:12
+
+
+这描述让我对虹男的印象在武德充沛和费拉不堪之间反复横跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fastary  
+##### 7737#       发表于 2021-10-21 22:14
+
+
+<blockquote>poipanchao 发表于 2021-10-21 22:06
+不要怕，说不定blue双人组合就要出道了</blockquote>
+不可能，黛灰跟小偶像出歌都硬要用人力，挑染上happy hour都愿意念两句rap，不出挑染更不可能跟小偶像出道，虹也没有官方搞男女组合出道的，话说他们要出我才是真的怕了……
+
+至于ars，我没记错的话90%的时候bls约等于没有这人吧(虽然我还惦记着什么时候再有三人互动)。
+
+说实话挑染以外我怎么客观思考都不觉得他会有其他组合出道的可能了…
+
+
+*****
+
+####  fastary  
+##### 7738#       发表于 2021-10-21 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227102&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-10-21 22:12</a>
+
+你们飯屋都要在黑客工作室并排放牙刷了，关系好比什么都稳固
+
+这里有一个ルジュエ观众，一年靠一首没头没 ...</blockquote>
+就是理智上知道关系稳固我才只酸得打滚没真破防<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+或许也只能跟自己说比玩具组好起码挑染感情一直都能知道挺好的(虽然渐渐忙得没机会一起玩了
+
+
+*****
+
+####  lays  
+##### 7739#       发表于 2021-10-21 22:23
+
+
+刀也也组合的话，ankr是不打算给咎人组官方组合了吗？
+
+
+*****
+
+####  rzrbtk  
+##### 7740#       发表于 2021-10-21 22:23
+
+
+虹男不是火了就是在要火的路上，郡道最近跟教授和豆猫还聊上了，分别是对抽卡运爆炸的教授进行极道威胁和盛赞即将来麻将番组的豆猫媲美本乡奏多是虹的ladygaga<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">…
+省一楼，guigui这张图的郡郡真是好看到爆啊！
+
+
