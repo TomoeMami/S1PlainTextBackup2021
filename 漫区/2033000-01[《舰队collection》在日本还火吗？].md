@@ -631,3 +631,40 @@ R都没死还苟着，C离死还远着，至于舰B，最近同人产出也不�
 档案国际服一开国内玩家也会增加的吧
 
 
+
+
+*****
+
+####  jajajzz  
+##### 63#       发表于 2021-10-21 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53211978&amp;ptid=2033000" target="_blank">199april 发表于 2021-10-20 21:04</a>
+
+论同人热度早被舰b打趴了，虽然舰b现在也衰退得厉害
+
+田中那b现在一门心思做线下游戏都摆烂了，这几 ...</blockquote>
+在梦里打趴下的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yinacona  
+##### 64#       发表于 2021-10-21 13:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213006&amp;ptid=2033000" target="_blank">zxc4563982 发表于 2021-10-20 22:23</a>
+
+别的不说，青山还在为了打砍口垒活动休刊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这是既不玩舰C又不看柯南吗。这2年73基本一案件结束就休刊很久才开始下一个案件，然后下一个案件结束了再休很久。不是身体原因就是没东西写才休的吧
+
+
+*****
+
+####  青之镇魂  
+##### 65#       发表于 2021-10-21 13:27
+
+
+以前看舰c的本子觉得人设挺色的,后来舰b的**出来后对比一下觉得舰c的角色挺清纯
+
+

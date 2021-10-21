@@ -3299,3 +3299,18 @@ GBO2最好也上，GBO如果拿键鼠玩就好多了。
  这些算什么，泥潭真爱2也上PC才叫大新闻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  pf67  
+##### 288#       发表于 2021-10-21 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53219519&amp;ptid=2026252" target="_blank">mp5 发表于 2021-10-21 12:42</a>
+这些算什么，泥潭真爱2也上PC才叫大新闻</blockquote>
+按谭友的说法，ns所有游戏早就上pc了（模拟器）
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

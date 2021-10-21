@@ -17522,3 +17522,17 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  hlazd  
+##### 1207#       发表于 2021-10-21 13:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53216523&amp;ptid=1860817" target="_blank">异界送 发表于 2021-10-21 09:13</a>
+
+第三话甚至出现了一瞬间</blockquote>
+其实OPED里也都有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
