@@ -3224,3 +3224,23 @@ GBO2最好也上，GBO如果拿键鼠玩就好多了。
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  lubo  
+##### 281#       发表于 2021-10-21 10:39
+
+
+贝姐3、smt5、马力欧疯兔都是17年公布的游戏，采用旧开发套件的可能性更高吧
+
+
+*****
+
+####  zikimi  
+##### 282#       发表于 2021-10-21 10:43
+
+
+很多东西是大概率事件<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">和这个表重不是很正常
+
+

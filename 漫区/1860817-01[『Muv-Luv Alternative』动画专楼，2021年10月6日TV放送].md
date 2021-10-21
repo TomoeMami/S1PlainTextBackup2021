@@ -17400,3 +17400,24 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 后半就更搞笑了，说去演习我还以为起码得演个2-3分钟吧，没想到这边一说，直接就几秒画面+旁白略过，然后配个班长开心得哭的画面就完事了，到现在我就知道班长这人大概之前是落选了几次（？）还摸不准为啥她那么执着必须在这次通过试验<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  肛之练筋士  
+##### 1198#       发表于 2021-10-21 10:36
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/103548pg2ng332ff3f6fjg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021-10-21 10-30-2.jpg</strong> (28.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 10:35 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高情商鸡枞：动画做成这样反而是给观众留下玩游戏的乐趣
+
+
