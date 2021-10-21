@@ -842,3 +842,57 @@ R都没死呢我看C还早着呢，想当年注册dmm就是为了这个，但现
 看12月C99摊位数量分布就行了。在日本舰C大概还是比舰B火的，舰B全是云一云色图就完事了
 
 
+
+
+*****
+
+####  kyonkoism  
+##### 79#       发表于 2021-10-21 16:32
+
+
+碧蓝档案确实是个例，就跟之前罪恶装备大劈叉热潮一样，区别在于前者画的都是同个角色，后者则是固定姿势的自由发挥
+
+
+画师玩过档案而且画了蓝兔子的图的占比大概是1/10吧，大劈叉估计1/100往后走了，顺带其实我觉得蓝兔子九成往上的图一点也不色，兔女郎和赌博永远不能绕开的就是暴力和性，只有可爱是绝对不行的
+
+在这推荐个蓝兔子时期如流星般出现然后狂更一波存图后就消失了的画师：[https://twitter.com/ocalwhatthehell/media](https://twitter.com/ocalwhatthehell/media)       @ocalwhatthehell （其实看画风就知道是水熊小号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+回到正题，一个作品的热度就跟楼上所说的一样，是得看非R18同人作品的，砍口垒最火的时期诞生了一大堆同人作品提督，什么抖M提督、狗牌提督、丛云提督、虐霞提督、深海提督、老爷子提督、经验眼镜提督等等等等提督
+
+还有类似吃巧克力会死、你不是赤城然后下一话直到现在都看不到的数不清的全年龄名作（对不起我真记不得作品名了），现在持续在画的除了汉化组翻老货更新的是真的没见到几个还在更得，基本都转作品了，凉是真的凉
+
+顺带街机起码按照我前年日本疫情还没爆发sega场馆都还活着的时候来看，也没啥人玩了，FGO街机5台可能会有一台在玩，砍口垒街机我甚至看到有直接拿塑料袋包起来防尘得了
+
+
+青山确实还在打，他上次活动结束后也在报战绩，依旧是甲鱼，另外一个我从以前关注到现在还在玩的画师叫水无月十三，也是开生放不画画得内玩砍口垒的主，除此之外就真没看到其他推主分享打砍口垒的推文，撑死也就是skeb招魂发下色图
+
+最后发两张我前段时间看到的砍口垒色图缅怀下逝去的青春，希望这游戏真死了的时候能死的体面点（PS.这图的画师是巴尔的摩厨）
+[https://twitter.com/ore_halcon/status/1447025194556481536](https://twitter.com/ore_halcon/status/1447025194556481536)
+
+浏览
+
+<img src="https://img.saraba1st.com/forum/202110/21/162949j5wvg1pgw89apgwn.png" referrerpolicy="no-referrer">
+
+
+<strong>ZMM61YD__$)M)ZRT4I1{XJE.png</strong> (104.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 16:29 上传
+
+
+[https://twitter.com/ore_halcon/status/1439949882031165444](https://twitter.com/ore_halcon/status/1439949882031165444)
+
+浏览
+
+<img src="https://img.saraba1st.com/forum/202110/21/162942qdzdcdjdsgzm6tnd.png" referrerpolicy="no-referrer">
+
+
+<strong>[C136WSA6F7{@8A7P@X.png</strong> (52.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 16:29 上传
+
+
