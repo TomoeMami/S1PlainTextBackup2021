@@ -3600,3 +3600,14 @@ btw，很久之前就 ...</blockquote>
 看了一下杞忧的最没边的是个社长粉，怎么说呢完全不惊讶诶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  purdre  
+##### 7753#       发表于 2021-10-22 02:41
+
+
+juvvel我也觉得挺可惜的，可是定位偶像虹人吃这一套的确实太少，连我推特上fo的全肯定民对这组合都一言不发，第一次直播也没啥亮眼的化学反应，只能祝未来可期了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

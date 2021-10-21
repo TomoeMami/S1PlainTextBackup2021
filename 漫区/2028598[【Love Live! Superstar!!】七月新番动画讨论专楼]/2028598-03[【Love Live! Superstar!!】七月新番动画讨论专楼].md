@@ -299,3 +299,17 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>�
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  cat1230  
+##### 3027#       发表于 2021-10-22 05:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227699&amp;ptid=2028598" target="_blank">Skyline_R 发表于 2021-10-21 23:06</a>
+
+硬着头皮把前面几集没看的熟肉片段给看掉了，虽然之前就差不多理解得了剧情，但具体翻译过来、细化之后观感 ...</blockquote>
+但这次中之人起点挺高的，或者说底子好，动画部门可能觉得敷衍一下靠声优盾也能活络起来。
+
+
