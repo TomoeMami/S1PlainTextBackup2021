@@ -1030,3 +1030,29 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卖不了卡逼得只能把多余的英灵当狗粮喂了，yls你真是不干人事
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84096#       发表于 2021-10-21 11:34
+
+
+<blockquote>引用第84093楼天天那个啥于2021-10-21 08:16发表的  :
+
+新四星也太涩了，明年bgo能上吗—— 来自 realme RMX2071, Android 11上的......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还不如先问问明年BGO还在吗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  khxooo  
+##### 84097#       发表于 2021-10-21 11:34
+
+
+属性：混沌・歌，奇怪的属性又增加了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
