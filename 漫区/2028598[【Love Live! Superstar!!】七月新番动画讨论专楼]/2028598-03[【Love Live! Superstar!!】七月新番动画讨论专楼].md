@@ -161,3 +161,32 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>�
 只能说庆幸这代没有双马尾吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  TTAA  
+##### 3015#       发表于 2021-10-21 17:47
+
+
+隔壁菜宝也被双马尾限制了颜值
+
+
+*****
+
+####  emmerMK2  
+##### 3016#       发表于 2021-10-21 17:56
+
+
+看鲤鱼录播，一聊到喜茶整个人跟超频了一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3017#       发表于 2021-10-21 17:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
