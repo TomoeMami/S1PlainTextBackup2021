@@ -129,3 +129,35 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  player3960  
+##### 3012#       发表于 2021-10-21 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53223064&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-21 17:08:12</a>
+liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>那就不得不说nako了，那两门把手真的很要命<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  优妮可  
+##### 3013#       发表于 2021-10-21 17:34
+
+
+草，门把手回不去了
+
+
+*****
+
+####  蜜梨柑  
+##### 3014#       发表于 2021-10-21 17:38
+
+
+只能说庆幸这代没有双马尾吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
