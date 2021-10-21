@@ -3335,3 +3335,38 @@ GBO2最好也上，GBO如果拿键鼠玩就好多了。
 ubi官网……
 
 
+
+
+*****
+
+####  HazukiShion  
+##### 290#       发表于 2021-10-21 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217096&amp;ptid=2026252" target="_blank">rak1 发表于 2021-10-21 09:54</a>
+
+不只是马银啊，还有马里奥疯兔</blockquote>
+疯兔还不如马银吧，开发完全是育碧自己干的，而且好像日版以外的发行都不是任天堂负责？
+
+
+*****
+
+####  TTAA  
+##### 291#       发表于 2021-10-21 13:59
+
+
+GT7要是真上PC，那我就真不用买PS5了
+
+
+*****
+
+####  SorroFrost  
+##### 292#       发表于 2021-10-21 14:00
+
+
+ 本帖最后由 SorroFrost 于 2021-10-21 14:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217096&amp;ptid=2026252" target="_blank">rak1 发表于 2021-10-21 09:54</a>
+不只是马银啊，还有马里奥疯兔</blockquote>
+疯兔是任天堂授权，育碧自家开发的，就是宣发的时候宫本茂去站了个台，我记着当时公布的时候都是在育碧展会。版权这块应该是共有
+
+

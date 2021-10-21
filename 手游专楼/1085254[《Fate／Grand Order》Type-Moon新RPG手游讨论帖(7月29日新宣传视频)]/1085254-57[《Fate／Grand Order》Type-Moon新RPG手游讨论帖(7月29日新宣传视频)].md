@@ -1090,3 +1090,35 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  khxooo  
+##### 84100#       发表于 2021-10-21 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53219635&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-10-21 12:51</a>
+
+我说的就是上面逼的啊
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+除非FGO犯了不可逾越的红线，上次百景图那么大的事件都没有关服。除了大规模玩家弃坑，BGO关服的几率很低就是了。
+
+
+*****
+
+####  真红眼教授  
+##### 84101#       发表于 2021-10-21 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53216053&amp;ptid=1085254" target="_blank">天天那个啥 发表于 2021-10-21 08:16</a>
+
+新四星也太涩了，明年bgo能上吗
+
+
+—— 来自 realme RMX2071, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+低调做事，也不是没有其他涩的卡面还在
+
+
