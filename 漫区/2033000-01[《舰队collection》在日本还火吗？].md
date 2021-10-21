@@ -1004,3 +1004,17 @@ R都没死呢我看C还早着呢，想当年注册dmm就是为了这个，但现
 B没撞上这么一群有全年龄热情的同人作者也不能怪官方不努力，对吧。非要怪可能是怪做的太涩了让涩图同人作者挤占了位置
 
 
+
+
+*****
+
+####  永恒的王牌  
+##### 88#       发表于 2021-10-21 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53222502&amp;ptid=2033000" target="_blank">kyonkoism 发表于 2021-10-21 16:32</a>
+
+碧蓝档案确实是个例，就跟之前罪恶装备大劈叉热潮一样，区别在于前者画的都是同个角色，后者则是固定姿势的 ...</blockquote>
+这人大概是B的巴尔的摩推，看见他画过好多B的巴尔的摩图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

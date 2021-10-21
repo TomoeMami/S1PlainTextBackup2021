@@ -3053,3 +3053,14 @@ hachi真是歌势之鉴，量大管饱，周周嗯唱
 和hnn的tc帮大忙了，谢谢你，nazuna<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7714#       发表于 2021-10-21 19:50
+
+
+今天是「あと、郡道さんのフォロー外したのは自分ではないです」一周年纪念日，红色有角小女孩也该回了吧
+
+
