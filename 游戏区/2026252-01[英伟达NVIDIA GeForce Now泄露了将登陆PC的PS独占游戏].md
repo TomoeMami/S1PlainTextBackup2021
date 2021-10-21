@@ -3128,3 +3128,16 @@ Oh shit,战神4都要上PC，如果是真的那么索尼一定是疯了</blockqu
 真疯了
 
 
+
+
+*****
+
+####  Buke  
+##### 273#       发表于 2021-10-21 07:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53215057&amp;ptid=2026252" target="_blank">省心 发表于 2021-10-21 01:19</a>
+结果真·ps4独占，就是p5和血源了啊</blockquote>
+对我来说还有一个香草社的十三机兵防卫圈<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
