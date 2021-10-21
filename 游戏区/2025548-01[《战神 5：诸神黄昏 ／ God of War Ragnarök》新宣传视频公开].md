@@ -1988,3 +1988,16 @@ As of August 2021, 19.5MM copies for God of War on PlayStation 4 have been sold 
 不好说，毕竟按北欧神话的设定，巴德尔的不死身是因为他妈求万物卖个面子所以只有槲寄生这唯一一个不给面子的可破，然后老秃子同样破不了他的防，大概到了北欧就得入乡随俗。
 
 
+
+
+*****
+
+####  1981112  
+##### 173#       发表于 2021-10-21 10:03
+
+
+上了PC，效果更好了。
+
+莫非以后索尼的独占都是限时独占了？？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
