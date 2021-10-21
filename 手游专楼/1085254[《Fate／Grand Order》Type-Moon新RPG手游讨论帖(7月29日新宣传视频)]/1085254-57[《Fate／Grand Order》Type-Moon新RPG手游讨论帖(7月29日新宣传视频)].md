@@ -1269,3 +1269,17 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  DARKGRAY  
+##### 84113#       发表于 2021-10-22 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227149&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-10-21 22:16</a>
+
+废狗里大久保瑠美配的俩角色我都觉得很烦</blockquote>
+她配的这两个都是一旦在主线有正经戏份就容易讨人厌的主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

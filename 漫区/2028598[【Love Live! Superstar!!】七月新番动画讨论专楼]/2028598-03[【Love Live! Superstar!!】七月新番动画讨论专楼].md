@@ -284,3 +284,18 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>�
 结尾已经到第二年春了，樱花都开了
 
 
+
+
+*****
+
+####  qratosone  
+##### 3026#       发表于 2021-10-22 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53228205&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-22 00:04</a>
+结尾已经到第二年春了，樱花都开了</blockquote>
+怎么感觉最后那个樱花开的镜头是随便找了个兼用卡…
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
