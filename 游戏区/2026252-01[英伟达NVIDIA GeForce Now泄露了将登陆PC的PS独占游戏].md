@@ -3163,3 +3163,17 @@ Oh shit,战神4都要上PC，如果是真的那么索尼一定是疯了</blockqu
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  bypass  
+##### 276#       发表于 2021-10-21 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53216156&amp;ptid=2026252" target="_blank">rak1 发表于 2021-10-21 08:34</a>
+
+名单里还有马里奥，如果被证实，那乐子可就大了</blockquote>
+马银有 Nvidia Shield 版，Nvidia 如果拿来测试云服务我觉得也不奇怪。
+
+
