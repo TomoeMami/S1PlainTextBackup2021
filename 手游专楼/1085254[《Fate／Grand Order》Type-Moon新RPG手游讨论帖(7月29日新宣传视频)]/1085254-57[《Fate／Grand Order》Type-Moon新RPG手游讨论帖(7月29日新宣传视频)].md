@@ -1073,3 +1073,20 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 在还是能在的，只要不是上面逼着B站停服，B站肯定会一直运营上去。毕竟B站现在的手游收益BGO还是在前列。
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84099#       发表于 2021-10-21 12:51
+
+
+<blockquote>引用第84097楼khxooo于2021-10-21 12:38发表的  :
+
+引用:黑上シグマ 发表于 2021-10-21 11:34你还不如先问问明年BGO还在吗----发送......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的就是上面逼的啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+

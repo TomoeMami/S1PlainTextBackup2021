@@ -620,3 +620,14 @@ R都没死还苟着，C离死还远着，至于舰B，最近同人产出也不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么档案推广期过了就没了
 
 
+
+
+*****
+
+####  yongze  
+##### 62#       发表于 2021-10-21 12:49
+
+
+档案国际服一开国内玩家也会增加的吧
+
+

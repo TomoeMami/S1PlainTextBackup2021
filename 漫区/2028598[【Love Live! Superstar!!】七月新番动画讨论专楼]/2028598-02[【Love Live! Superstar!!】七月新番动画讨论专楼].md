@@ -19148,3 +19148,17 @@ op衣服主要是素了点，而且宣传画上的花纹贴图画的真垃圾。
 说到服装，未来预报在第一话时因为liella还没有结成所以是穿结丘的普通科/音乐科校服，正式live的时候会有专门的打歌服吗还是继续沿用校服？
 
 
+
+
+*****
+
+####  megapikachu  
+##### 2993#       发表于 2021-10-21 12:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53218240&amp;ptid=2028598" target="_blank">secretgarnet 发表于 2021-10-21 11:12</a>
+
+说到服装，未来预报在第一话时因为liella还没有结成所以是穿结丘的普通科/音乐科校服，正式live的时候会有 ...</blockquote>
+继续校服，或者其他歌的打歌服都有可能，那些没有专门打歌服（或者不方便还原的）到底穿啥还是要考虑live的流程安排。
+
+

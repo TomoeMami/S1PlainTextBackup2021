@@ -17484,3 +17484,41 @@ cv真就全换啊，大尉还挺像的，不过即使是这个画风的水月也
 我感觉就是文戏完全摆烂，做好3d，每集保证让萝卜登场，卖好胶就行
 
 
+
+
+*****
+
+####  saevey  
+##### 1204#       发表于 2021-10-21 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53216560&amp;ptid=1860817" target="_blank">angela5d30 发表于 2021-10-21 09:17</a>
+动画党，这集男主跟其他女角相处的内容给我的感觉就是快速略过游戏里非主轴部分的场景，像赶场那样说完几句 ...</blockquote>
+主角这帮人之前落选过一次，不过是有原因的，后面应该会说。
+至于为什么执着于此，只能说队里基本都是自愿当兵的肯定不想一直当学员。
+
+
+*****
+
+####  saevey  
+##### 1205#       发表于 2021-10-21 12:52
+
+
+是刚通关的滤镜吗？看的蛮乐的，快进到打架吧。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 1206#       发表于 2021-10-21 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53214476&amp;ptid=1860817" target="_blank">hashire.owl 发表于 2021-10-21 00:26</a>
+动画的意义在何处？吉总借钱当冤大头吗？</blockquote>
+对于一个IP来说，动画的宣传价值最大啊
+
+鸡枞这次没出钱，当然版权也卖了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
