@@ -959,3 +959,31 @@ R都没死呢我看C还早着呢，想当年注册dmm就是为了这个，但现
 上推特看了下，这位画师在发完大和没几天就发了舰b的大凤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  εRemastered  
+##### 85#       发表于 2021-10-21 19:25
+
+
+<blockquote>kyonkoism 发表于 2021-10-21 16:32
+碧蓝档案确实是个例，就跟之前罪恶装备大劈叉热潮一样，区别在于前者画的都是同个角色，后者则是固定姿势的 ...</blockquote>
+虽然同意舰c在往下，但是y1s1，同人作者做得好的转业界主轨道是一种正常现象，跟原作是不是人气下坡并没什么关系。比如东方那边冰川翔 flipflop等一堆早早就转主轨道的
+
+
+更爆论一点，反而是近年社媒和手游大发达才造就了很多一直留在“同人作者”轨道上还能持续创作的人。以前能长期做同人的壁组才多少
+
+
+*****
+
+####  kyonkoism  
+##### 86#       发表于 2021-10-21 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53224369&amp;ptid=2033000" target="_blank">YFIIII 发表于 2021-10-21 18:46</a>
+
+上推特看了下，这位画师在发完大和没几天就发了舰b的大凤</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟我发的俩全是skeb，画B是兴趣，画C是生活
+
+
