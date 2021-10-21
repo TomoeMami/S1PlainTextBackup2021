@@ -920,3 +920,19 @@ R都没死呢我看C还早着呢，想当年注册dmm就是为了这个，但现
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 82#       发表于 2021-10-21 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213170&amp;ptid=2033000" target="_blank">新吾 发表于 2021-10-20 22:39</a>
+
+你说他死了吧，明年田中跪着求出来的第二季也要播了
+
+你说他活着吧，基本不见有人给这游戏产粮了</blockquote>
+肯定得上战雷联动，只要DMM不像新干线一样解约
+
+

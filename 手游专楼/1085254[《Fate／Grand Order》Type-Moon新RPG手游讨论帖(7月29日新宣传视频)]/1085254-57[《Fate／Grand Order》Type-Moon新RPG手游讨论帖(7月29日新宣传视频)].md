@@ -1193,3 +1193,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 6个女王一个团长
 
 
+
+
+*****
+
+####  森兰丸  
+##### 84107#       发表于 2021-10-21 18:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">龙娘这高唱的好难听.....设计角色的不会真以为玩家会喜欢这种声音吧
+
+
