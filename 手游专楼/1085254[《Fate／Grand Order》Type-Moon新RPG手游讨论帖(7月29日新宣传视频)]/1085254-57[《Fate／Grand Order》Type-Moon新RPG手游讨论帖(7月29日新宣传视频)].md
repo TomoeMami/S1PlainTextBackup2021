@@ -1215,3 +1215,17 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 剧情关强制上场的龙娘语音把我听麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">骑龙娘正式成为盾娘之后第二个一登场我就要静音的角色
 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84109#       发表于 2021-10-21 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53224286&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-21 18:39:15</a>
+龙娘这高唱的好难听.....设计角色的不会真以为玩家会喜欢这种声音吧</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙娘设定就是这样的啊，不如说，看到她还是这么傻屌，就安心了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

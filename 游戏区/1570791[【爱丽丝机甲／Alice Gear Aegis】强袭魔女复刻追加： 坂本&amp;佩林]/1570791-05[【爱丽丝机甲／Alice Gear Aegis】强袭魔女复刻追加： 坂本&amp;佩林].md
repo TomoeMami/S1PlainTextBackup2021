@@ -1966,3 +1966,17 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 哈哈，一发十连轰雷就出了。<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6140#       发表于 2021-10-21 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53226045&amp;ptid=1570791" target="_blank">regular 发表于 2021-10-21 20:54</a>
+
+我还折腾给客服录屏，结果现在更新了个100M补丁，大概好了吧，</blockquote>
+我正在更新1.2g......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

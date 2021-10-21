@@ -3237,3 +3237,65 @@ Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" refe
 ……确实没啥偶像派了
 
 
+
+
+*****
+
+####  dybang  
+##### 7725#       发表于 2021-10-21 21:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多个打钱途径罢了，能搞得起来就继续搞呗
+
+
+*****
+
+####  fastary  
+##### 7726#       发表于 2021-10-21 21:44
+
+
+理智上知道黑客估计自己都没兴趣出道，但感情上就是……酸麻了，呜呜呜QAQ饭屋我的饭屋，一边主流出道一边组合频道，也不知道还有没有未来……
+
+
+*****
+
+####  rzrbtk  
+##### 7727#       发表于 2021-10-21 21:52
+
+
+玩具组和挑染组推对这个组合的想法应该挺那个的吧，刚好都是三人组只剩下一个（另一个都在rd）…
+
+
+*****
+
+####  winda  
+##### 7728#       发表于 2021-10-21 21:56
+
+
+sakuyui有3d live开道，rof-mao也有公式节目造势
+相对虹女自发组的juvvel开台宣传就靠一首曲子，3d还得慢慢排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是格差社会
+
+
+*****
+
+####  ヒトニナル  
+##### 7729#       发表于 2021-10-21 21:57
+
+
+不是，这免费能算上位男？还是我太久不看虹已经跟不上版本了？
+
+
+*****
+
+####  poipanchao  
+##### 7730#       发表于 2021-10-21 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53226931&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-10-21 21:57</a>
+
+不是，这免费能算上位男？还是我太久不看虹已经跟不上版本了？</blockquote>
+理论上来说
+
+下位男应该只有王子成濑神田+半个哈哥
+
+

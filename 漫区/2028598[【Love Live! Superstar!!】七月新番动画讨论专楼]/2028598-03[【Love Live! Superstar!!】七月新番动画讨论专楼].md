@@ -201,3 +201,37 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>�
 草，国服sif这个纪实文学<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">绷不住了
 
 
+
+
+*****
+
+####  lj205  
+##### 3019#       发表于 2021-10-21 21:42
+
+
+求问接下来还要出哪些CD？出太多了不知道有没有漏的……
+
+
+*****
+
+####  蜜梨柑  
+##### 3020#       发表于 2021-10-21 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53226739&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-21 21:42</a>
+
+求问接下来还要出哪些CD？出太多了不知道有没有漏的……</blockquote>
+可以去官网看→[https://www.lovelive-anime.jp/yuigaoka/music/](https://www.lovelive-anime.jp/yuigaoka/music/)
+
+
+*****
+
+####  lj205  
+##### 3021#       发表于 2021-10-21 22:00
+
+
+<blockquote>蜜梨柑 发表于 2021-10-21 21:44
+可以去官网看→https://www.lovelive-anime.jp/yuigaoka/music/</blockquote>
+感谢，看下来是买全了，接下来安心等发货
+
+
