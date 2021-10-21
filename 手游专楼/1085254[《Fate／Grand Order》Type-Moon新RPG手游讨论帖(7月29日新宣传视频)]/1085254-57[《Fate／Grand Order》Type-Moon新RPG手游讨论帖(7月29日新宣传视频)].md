@@ -1122,3 +1122,74 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 低调做事，也不是没有其他涩的卡面还在
 
 
+
+
+*****
+
+####  天天那个啥  
+##### 84102#       发表于 2021-10-21 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220307&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-10-21 13:53</a>
+低调做事，也不是没有其他涩的卡面还在</blockquote>
+你想低调，友商让不让你低调还两说。像之前的风波，不就是bgo吃着火锅唱着歌，突然被友商拖出来当栗子，最后被橄榄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+
+*****
+
+####  真红眼教授  
+##### 84103#       发表于 2021-10-21 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220454&amp;ptid=1085254" target="_blank">天天那个啥 发表于 2021-10-21 14:06</a>
+
+你想低调，友商让不让你低调还两说。像之前的风波，不就是bgo吃着火锅唱着歌，突然被友商拖出来当栗子， ...</blockquote>
+历史人物的挡箭牌并不多，汉奸图还找了王者挡枪，只是王者背景更硬嘛
+
+
+涩图那就是大家一起死光光了
+
+
+
+
+*****
+
+####  angelooo  
+##### 84104#       发表于 2021-10-21 14:58
+
+
+<blockquote>yzj134100 发表于 2021-10-21 11:05
+卖不了卡逼得只能把多余的英灵当狗粮喂了，yls你真是不干人事</blockquote>
+这个bug是真的叼，而且到现在都还没修复
+
+
+*****
+
+####  yzj134100  
+##### 84105#       发表于 2021-10-21 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53221071&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-10-21 14:58</a>
+
+这个bug是真的叼，而且到现在都还没修复</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说清数据可以，但我他妈不想再下10个G的东西，万一还没用就傻逼了
+
+
+
+
+*****
+
+####  シャル  
+##### 84106#       发表于 2021-10-21 15:10
+
+
+450石头
+
+
+6个女王一个团长
+
+

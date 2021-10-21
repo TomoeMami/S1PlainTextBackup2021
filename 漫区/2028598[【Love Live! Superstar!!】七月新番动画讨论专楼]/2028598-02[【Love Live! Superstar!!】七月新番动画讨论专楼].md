@@ -19162,3 +19162,88 @@ op衣服主要是素了点，而且宣传画上的花纹贴图画的真垃圾。
 继续校服，或者其他歌的打歌服都有可能，那些没有专门打歌服（或者不方便还原的）到底穿啥还是要考虑live的流程安排。
 
 
+
+
+*****
+
+####  index  
+##### 2994#       发表于 2021-10-21 14:14
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/141401grmlrr2m1zrnnd5w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>52BX3XNHRYX93E7`@%SNMM8.jpg</strong> (89.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 14:14 上传
+
+
+可以看到青山的泳装了吗
+
+
+*****
+
+####  中野四葉  
+##### 2995#       发表于 2021-10-21 14:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好耶
+
+
+
+
+*****
+
+####  soranoguiji  
+##### 2996#       发表于 2021-10-21 14:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看了点去年鲤鱼的视频，对比下来感觉颜值有点下降，果然是万恶的资本主义
+
+
+*****
+
+####  lj205  
+##### 2997#       发表于 2021-10-21 14:36
+
+
+鲤鱼和佩佩这相处模式就很微妙，都让佩佩喊姐姐了，佩佩也是跟个妹妹一样使劲蹭，结果现在转头就是使劲跟打铁和岬贴贴
+
+
+*****
+
+####  cybernetics31  
+##### 2998#       发表于 2021-10-21 14:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 2999#       发表于 2021-10-21 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220717&amp;ptid=2028598" target="_blank">soranoguiji 发表于 2021-10-21 14:31</a>
+看了点去年鲤鱼的视频，对比下来感觉颜值有点下降，果然是万恶的资本主义 ...</blockquote>
+我觉得很可能是美颜的原因，现在她在B站自己开播的时候也要好看多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 3000#       发表于 2021-10-21 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220899&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-21 14:45</a>
+我觉得很可能是美颜的原因，现在她在B站自己开播的时候也要好看多</blockquote>
+b站直播真的好久没见到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
