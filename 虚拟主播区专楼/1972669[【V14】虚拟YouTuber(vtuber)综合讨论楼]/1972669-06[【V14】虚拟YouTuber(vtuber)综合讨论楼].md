@@ -3219,3 +3219,21 @@ Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" refe
 黑客有啥好⸮的，没有综艺的反应才能，也不肯唱歌，又不会讨好观众卖饭撒，给一个niji quiz说实话都是瞧得起他了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7724#       发表于 2021-10-21 21:39
+
+
+黑客不唱歌没法带他出道的，三枝有组合了
+
+
+我看了下剩下的上位男
+
+社，舞元，石油，贝叔，舞元，柴卡，力一
+
+……确实没啥偶像派了
+
+

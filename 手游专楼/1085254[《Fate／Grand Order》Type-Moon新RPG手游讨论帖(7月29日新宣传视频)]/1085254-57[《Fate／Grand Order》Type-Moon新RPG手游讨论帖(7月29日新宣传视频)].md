@@ -1204,3 +1204,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">龙娘这高唱的好难听.....设计角色的不会真以为玩家会喜欢这种声音吧
 
 
+
+
+*****
+
+####  白夜羽  
+##### 84108#       发表于 2021-10-21 21:36
+
+
+剧情关强制上场的龙娘语音把我听麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">骑龙娘正式成为盾娘之后第二个一登场我就要静音的角色
+
+

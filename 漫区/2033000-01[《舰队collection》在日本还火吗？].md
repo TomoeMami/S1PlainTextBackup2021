@@ -1045,3 +1045,36 @@ B没撞上这么一群有全年龄热情的同人作者也不能怪官方不努�
 舰b吸引不到那群有热情的同人创作者这不是运气问题。
 
 
+
+
+*****
+
+####  不应  
+##### 91#       发表于 2021-10-21 21:28
+
+
+いと都去画赛马娘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  川_大可  
+##### 92#       发表于 2021-10-21 21:36
+
+
+爽哥都不玩了
+
+—— 来自 vivo V1901A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  团结的腹肌  
+##### 93#       发表于 2021-10-21 21:43
+
+
+不好好搞游戏偏要搞什么线下，想钱想疯了属于是。
+
+现在线上凉了，线下也搞不了，活该。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
