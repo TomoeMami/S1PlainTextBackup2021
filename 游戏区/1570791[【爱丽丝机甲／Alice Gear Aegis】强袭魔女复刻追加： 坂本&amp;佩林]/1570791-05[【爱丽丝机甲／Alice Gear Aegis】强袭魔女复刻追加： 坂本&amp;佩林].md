@@ -2070,3 +2070,39 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 具体是有什么动作对应什么风格评价的，只要等随机出就行，但是一般角色一开始会多做不是任务要求的动作，比如评价要求ELEGANT她会做FORMAL的动作。
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6148#       发表于 2021-10-21 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227704&amp;ptid=1570791" target="_blank">madcow 发表于 2021-10-21 23:07</a>
+
+我试了下，实际上应该是根据任务（会随角色摄影等级升高解锁不同任务，LV5会解锁不带封面的任务）有不同 ...</blockquote>
+是的，要对应任务要求的风格。只能说体感某种风格动作的分数越高，接下来随机出动作时该风格出的概率就越高，但肯定会出其他风格的。
+
+
+风格是根据动作类型定了的，有心的整理记一下或者等WIKI也行。
+
+
+*****
+
+####  江戸前ルナ  
+##### 6149#       发表于 2021-10-21 23:28
+
+
+<img src="https://img.saraba1st.com/forum/202110/21/232725kt53kfxpp95vfjva.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211021232343.png</strong> (227.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-21 23:27 上传
+
+
+这充满迫力的大砍刀，一手提弩一手提刀，武德充沛的TAMA酱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
