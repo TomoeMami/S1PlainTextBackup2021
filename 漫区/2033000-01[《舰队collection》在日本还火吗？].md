@@ -1098,3 +1098,42 @@ B没撞上这么一群有全年龄热情的同人作者也不能怪官方不努�
 挺喜欢里面外国舰娘的 比如皇家方舟
 
 
+
+
+*****
+
+####  defer  
+##### 96#       发表于 2021-10-22 16:30
+
+
+ 本帖最后由 defer 于 2021-10-22 16:38 编辑 
+
+看了四页回复，感觉和你们没有生活在一个地球上。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+c97还能压着东方呢
+
+<img src="https://img.saraba1st.com/forum/202110/22/162943phpc1n8g3ha0ndg4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>c97.jpg</strong> (106.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-22 16:29 上传
+
+
+今年我猜能落到第五？
+
+
+*****
+
+####  狐狸在火上  
+##### 97#       发表于 2021-10-22 16:34
+
+
+c97都啥时候的事了，现在的问题是舰c不行了，其他能顶替的同人ip还没出现
+
+—— 来自 vivo NEX A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

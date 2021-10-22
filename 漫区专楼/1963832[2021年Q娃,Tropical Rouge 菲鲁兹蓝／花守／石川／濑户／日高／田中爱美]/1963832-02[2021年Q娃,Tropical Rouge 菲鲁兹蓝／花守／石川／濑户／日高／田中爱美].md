@@ -10375,3 +10375,16 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 这集整活也太绝了，听她们念那么长的大招时我也憋着气，差点儿没缓过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  最低人间肥宅  
+##### 2253#       发表于 2021-10-22 16:32
+
+
+这集整得活这是绝绝子，我笑到剁jiojio，抓心真是yyds！
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

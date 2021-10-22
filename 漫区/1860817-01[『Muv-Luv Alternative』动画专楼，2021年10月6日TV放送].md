@@ -17682,3 +17682,28 @@ g弹也有卢瑟福力场吗？
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  KOPKOM  
+##### 1220#         楼主| 发表于 2021-10-22 16:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53235992&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-22 16:19</a>
+g弹也有卢瑟福力场吗？</blockquote>
+有啊，否则早就被光线级拦截了
+
+
+*****
+
+####  liwangli1983  
+##### 1221#       发表于 2021-10-22 16:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53235992&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-22 16:19</a>
+
+g弹也有卢瑟福力场吗？</blockquote>
+啊？有能对付光线级的东西吗？
+
+
