@@ -4594,3 +4594,17 @@ cp0一直都在吧，估计是想渔翁得利？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">砍左手这个真的是贴吧领先了
 
 
+
+
+*****
+
+####  穆  
+##### 55834#       发表于 2021-10-22 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53230930&amp;ptid=98922" target="_blank">游蜓 发表于 2021-10-22 10:06</a>
+
+砍左手这个真的是贴吧领先了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">实锤尾田逛贴吧
+
+
