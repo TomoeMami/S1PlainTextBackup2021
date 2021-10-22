@@ -1176,3 +1176,29 @@ C97都什么时候了
 而且东方主力都在例大祭吧？
 
 
+
+
+*****
+
+####  asdhai  
+##### 101#       发表于 2021-10-22 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53236112&amp;ptid=2033000" target="_blank">defer 发表于 2021-10-22 16:30</a>
+
+看了四页回复，感觉和你们没有生活在一个地球上。
+
+
+c97还能压着东方呢</blockquote>
+你看一下最下面的参考是啥作品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 102#       发表于 2021-10-22 17:15
+
+
+当年喵屋的号，只能说学历史看资料好了，搞黄色看本子就好了，游戏本体远远没有那么重要，远征系统刷闪系统疲劳系统真是太费时间了，也就大学生比较有那个时间吧。
+
+
