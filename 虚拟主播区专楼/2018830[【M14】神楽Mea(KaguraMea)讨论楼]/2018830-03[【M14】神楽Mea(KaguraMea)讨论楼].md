@@ -11907,3 +11907,34 @@ syl 魔禁OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 欠了不知道多少饭盒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Joffre✔  
+##### 4046#       发表于 2021-10-22 20:26
+
+
+盒限游戏欠了好多，以前的1000档还有音声呢，越来越摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 4047#       发表于 2021-10-22 20:38
+
+
+饭盒发了仓鼠照片，比直播那两张看得清）
+
+
+*****
+
+####  T_Hb  
+##### 4048#       发表于 2021-10-22 20:44
+
+
+ 本帖最后由 T_Hb 于 2021-10-22 20:48 编辑 
+
+打了码还要乱涂，姨化程度严重不足
+
+
