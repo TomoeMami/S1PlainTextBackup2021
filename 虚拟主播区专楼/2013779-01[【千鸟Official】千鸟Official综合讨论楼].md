@@ -8008,3 +8008,68 @@ syl 不测心率，梁木取关了
 syl 我感觉评委也麻了
 
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 681#       发表于 2021-10-23 02:41
+
+
+ 本帖最后由 T型钉宫病毒 于 2021-10-23 02:48 编辑 
+
+2021年10月23日 02:16:10
+弹幕：今日的寸止挑战呢
+文静：不要，你们真的郭楠，给你们录100秒就扎不多得了
+
+（声音逐渐变软）
+
+文静：你们还想怎么样，不要得寸进尺，听到没有不要得寸进尺啊，再得寸进尺把你们piupiupiupiu pon~
+弹幕：100秒不够
+文静：跟我搁这吹牛是吧，你可真行啊，吹牛的精华都让你学会了，嗯？
+
+
+*****
+
+####  莫洛骑士  
+##### 682#       发表于 2021-10-23 03:06
+
+
+ 本帖最后由 莫洛骑士 于 2021-10-23 03:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53242344&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-10-23 02:41</a>
+2021年10月23日 02:16:10
+
+弹幕：今日的寸止挑战呢
+
+文静：不要，你们真的郭楠，给你们录100秒就扎不多得了</blockquote>
+文静🤤🤤🤤文静🤤🤤🤤文静🤤🤤🤤文静🤤🤤🤤
+
+syl 这下千鸟时代，沸腾期待了，什么时候把歌姬的slogan偷来，整个钟宝一样的好活？
+
+
+*****
+
+####  袜子  
+##### 683#       发表于 2021-10-23 03:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53242408&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-23 03:06</a>
+
+文静🤤🤤🤤文静🤤🤤🤤文静🤤🤤🤤文静🤤🤤🤤
+
+
+syl 这下千鸟时代，沸腾期待了，什么时候把歌姬的slogan偷来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫洛彻底被老阿姨圈上了是吧
+
+
+*****
+
+####  莫洛骑士  
+##### 684#       发表于 2021-10-23 04:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53242469&amp;ptid=2013779" target="_blank">袜子 发表于 2021-10-23 03:50</a>
+莫洛彻底被老阿姨圈上了是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">此时此刻，恰如彼时彼刻
+
+

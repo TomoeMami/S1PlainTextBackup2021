@@ -818,3 +818,14 @@ b站的赶着去玩梗呢
 啊，原来是发在烂铁号上的，那确实有点惨淡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 3068#       发表于 2021-10-23 03:08
+
+
+总感觉穿运动衫时和穿打歌服时的舞蹈动作力度感会很不一样，实际live的时候那么大一个裙撑多少还是会有点影响，好想看正式版啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+

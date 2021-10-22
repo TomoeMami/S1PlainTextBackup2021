@@ -1273,3 +1273,37 @@ C97的时候如果我告诉你地平线零之曙光和新战神会移植PC，微
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  舞以  
+##### 108#       发表于 2021-10-23 04:28
+
+
+今年春活夏活两个活动，一次是驱逐舰新系统，一次是高速+逃课，鬼畜道中逼你带女神，都是强推打孔。
+
+估计是这两年线下亏死 还得线上混点流水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+只是ido不画了确实可惜，我基本都拿他的长篇当主线了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  jy1986  
+##### 109#       发表于 2021-10-23 04:48
+
+
+我觉得与其说是游戏火，不如说是有些里的某个角色对大多数人的G点，需而拉动游戏的关注度
+
+
+*****
+
+####  6x6z6w  
+##### 110#       发表于 2021-10-23 05:21
+
+
+你C在漫区还有整4页的讨论热度，可不火着呢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
