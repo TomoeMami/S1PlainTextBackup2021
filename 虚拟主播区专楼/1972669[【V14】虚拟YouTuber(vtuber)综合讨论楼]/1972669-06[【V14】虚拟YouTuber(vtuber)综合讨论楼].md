@@ -3772,3 +3772,14 @@ ROF-MAO / ろふまおチャンネル【にじさんじ】
 hnn掉大分，今天一天钻二门口属实看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lays  
+##### 7761#       发表于 2021-10-22 23:32
+
+
+虹男那个组合宣布前不能跟同事说这件事是真的还是假的，听说是甲斐田直播说的，如果是真的话，怪不得前几天都跟同期联动了
+
+

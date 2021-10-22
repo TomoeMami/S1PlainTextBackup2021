@@ -7850,3 +7850,53 @@ syl 不测心率，梁木取关了
 文静的一切都很假<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  tankai  
+##### 667#       发表于 2021-10-22 23:25
+
+
+两眼一黑.
+
+
+*****
+
+####  雨井绫  
+##### 668#       发表于 2021-10-22 23:25
+
+
+按摩老师说文静身上不是肥肉就是骨头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T型钉宫病毒  
+##### 669#       发表于 2021-10-22 23:25
+
+
+配音回，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 670#       发表于 2021-10-22 23:30
+
+
+文静一直是一切都很假的主播啊，这看不出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莫洛骑士  
+##### 671#       发表于 2021-10-22 23:35
+
+
+“健身环绑腿拉到最紧才能挂住”
+“直播换衣服<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">”
+
+啊啊啊啊啊啊啊啊啊啊我好喜欢文静骂我“臭男人”<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
