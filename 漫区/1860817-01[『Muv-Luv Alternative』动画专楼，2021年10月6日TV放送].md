@@ -17790,3 +17790,38 @@ g弹也有卢瑟福力场吗？</blockquote>
 ALT世界线2001年还有巨硬XP吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 1227#       发表于 2021-10-22 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53224083&amp;ptid=1860817" target="_blank">Carta_Issue 发表于 2021-10-21 19:24</a>
+
+第三话感观真滴差，开头一帮人棒读E文就算了
+
+剧情飞速得离谱，漫画的剧情也够快啊，但也没动画剧情这样狂删 ...</blockquote>
+开头那段我觉得挺好啊。特别最后泡在泛着G元素磷光试管里的大脑脊椎，和OP开头第一镜头阳光里的最强呆毛，能让动画党联想出之间的关系。
+
+
+*****
+
+####  再买自检星剁手  
+##### 1228#       发表于 2021-10-22 22:00
+
+
+ 本帖最后由 再买自检星剁手 于 2021-10-22 22:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53239647&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-10-22 21:33</a>
+ALT世界线2001年还有巨硬XP吗</blockquote>
+这一点也算动画组上了心（还有几个分镜能看出仿的挺到位），不过要是能抄个Ubuntu桌面就更好。
+
+不过即使有了xp，大屏幕上的动态界面也是那时候能有的吗？
+
+想起之前好像是ate专楼有人提，ate动画里动画组想给jk配智能手机，吉宗钢纪坚持要求配按键机，闹到制作委员会，最后动画组还是妥协了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

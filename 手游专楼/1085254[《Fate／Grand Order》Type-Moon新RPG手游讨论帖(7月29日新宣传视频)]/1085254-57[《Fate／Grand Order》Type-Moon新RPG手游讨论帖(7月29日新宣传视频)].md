@@ -1305,3 +1305,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这活动让我第一次认识到龙娘唱歌是真难听
 
 
+
+
+*****
+
+####  v22325  
+##### 84116#       发表于 2021-10-22 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唱歌难听偶尔玩玩梗就算了 真唱个不停就受不了了 
+
+
