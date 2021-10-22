@@ -7452,3 +7452,29 @@ co宝身材sm女王，怎么可能是底边
 没事，念了更多的是锦上添花的事情<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">今天念了五个多小时我看是要噶了，文静是大V了nia
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 631#       发表于 2021-10-22 08:30
+
+
+主要是各种结尾一转其他人的，确实有点伤人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+虽然以阿姨的余裕，大概也就是叹个气的程度吧
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  莫洛骑士  
+##### 632#       发表于 2021-10-22 08:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53229779&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-10-22 08:30</a>
+主要是各种结尾一转其他人的，确实有点伤人了
+虽然以阿姨的余裕，大概也就是叹个气的程度吧</blockquote>
+我要创造一个文静是主角的世界<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
