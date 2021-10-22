@@ -17728,3 +17728,16 @@ g弹也有卢瑟福力场吗？</blockquote>
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  Kuroe  
+##### 1223#       发表于 2021-10-22 20:12
+
+
+看了翻译的ATE篇的京都之战部分，然后重看了ATE动画的前两话。相比之下，虽然ATE的人物看起来一股里番味儿，但是比Alternative的人物细致多了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+算了，反正文戏部分也都知道，烂也无所谓。现在只想看看会动的纯夏和奶黄包了
+
+
