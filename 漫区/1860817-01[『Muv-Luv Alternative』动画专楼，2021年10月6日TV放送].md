@@ -17836,3 +17836,14 @@ ALT世界线2001年还有巨硬XP吗</blockquote>
 三集了其实也能看出特点了。3DCG是精华和重中之重（片尾职员表也能看出动用的人力物力），作画是保障重点场景关键卡大特写之类的，其他就尽力而为。不过问题在于除了原创的第一集，现在没多少3D内容，再就得等到对抗演戏那里了（PV2）<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  jerryoq1  
+##### 1230#       发表于 2021-10-22 22:43
+
+
+那边的芯片带的动xp吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
