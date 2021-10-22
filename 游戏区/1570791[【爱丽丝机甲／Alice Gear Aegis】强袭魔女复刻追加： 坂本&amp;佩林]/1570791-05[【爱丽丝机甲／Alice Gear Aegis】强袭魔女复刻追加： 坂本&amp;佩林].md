@@ -2223,3 +2223,17 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 依城理惠的眼镜怎么又回来了，我记得不是有个活动饰品可以去掉眼镜么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6159#       发表于 2021-10-22 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53239450&amp;ptid=1570791" target="_blank">心灵的乳头 发表于 2021-10-22 21:19</a>
+
+依城理惠的眼镜怎么又回来了，我记得不是有个活动饰品可以去掉眼镜么 ...</blockquote>
+饰品改成COST制后只要不同部位就可以戴，没了以前的冲突效果。夜店活动那个只是变发型，去眼镜饰品要去羁绊个人故事那边看完拿专属饰品戴上才行。
+
+

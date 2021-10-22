@@ -1294,3 +1294,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 万圣后活动要求通2.6了…
 
 
+
+
+*****
+
+####  yukinouta  
+##### 84115#       发表于 2021-10-22 21:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这活动让我第一次认识到龙娘唱歌是真难听
+
+
