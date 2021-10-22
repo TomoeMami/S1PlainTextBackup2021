@@ -330,3 +330,31 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>�
 按季节也确实该到春天了，大赛在冬天，输了也没啥好讲的，直接就跳到春天了。本来这部时间跳跃的特迷惑，一下子就跳到下一个季节了
 
 
+
+
+*****
+
+####  skumi  
+##### 3029#       发表于 2021-10-22 08:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53169095&amp;ptid=2028598" target="_blank">yone0000 发表于 2021-10-18 00:48</a>
+
+花田写到香音苦呀西的时候是不是串到其他片场了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/117.png" referrerpolicy="no-referrer"> 香音（Kurosawa Tomoyo Ver.）
+
+
+*****
+
+####  skumi  
+##### 3030#       发表于 2021-10-22 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53223711&amp;ptid=2028598" target="_blank">emmerMK2 发表于 2021-10-21 17:56</a>
+
+看鲤鱼录播，一聊到喜茶整个人跟超频了一样</blockquote>
+可惜喜茶在你日没上陆
+
+老对手奈雪开在心斋桥也倒闭了
+
+
