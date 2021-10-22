@@ -7540,3 +7540,27 @@ co宝身材sm女王，怎么可能是底边
 文在赢  静正嗯。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  GAKOTO  
+##### 638#         楼主| 发表于 2021-10-22 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53231694&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-22 10:58</a>
+鸟吧传的删动态是啥内容？</blockquote>
+无中生有，虚空索敌罢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜之中道崩殂  
+##### 639#       发表于 2021-10-22 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53231694&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-22 10:58</a>
+鸟吧传的删动态是啥内容？</blockquote>
+无中生有，蹭a的，偷a的节奏
+
+
