@@ -7931,3 +7931,27 @@ syl 不测心率，梁木取关了
 不是这寄吧节目到底做给哪个TA看的，我一次连十秒都撑不过去。
 
 
+
+
+*****
+
+####  rgauss  
+##### 675#       发表于 2021-10-23 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53240378&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-22 22:17</a>
+“给我死！”
+“快死吧！”
+“爆金币！”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有群 但一般不会宣传
+
+
+*****
+
+####  rgauss  
+##### 676#       发表于 2021-10-23 00:29
+
+
+太尬了 这2060
+
+
