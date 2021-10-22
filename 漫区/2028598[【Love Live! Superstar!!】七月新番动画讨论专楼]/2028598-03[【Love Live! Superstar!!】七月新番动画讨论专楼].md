@@ -313,3 +313,20 @@ liella这五个人或多或少都有被角色发型束缚了颜值</blockquote>�
 但这次中之人起点挺高的，或者说底子好，动画部门可能觉得敷衍一下靠声优盾也能活络起来。
 
 
+
+
+*****
+
+####  kata魂  
+##### 3028#       发表于 2021-10-22 07:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53228602&amp;ptid=2028598" target="_blank">qratosone 发表于 2021-10-22 00:55</a>
+
+怎么感觉最后那个樱花开的镜头是随便找了个兼用卡…
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next ...</blockquote>
+按季节也确实该到春天了，大赛在冬天，输了也没啥好讲的，直接就跳到春天了。本来这部时间跳跃的特迷惑，一下子就跳到下一个季节了
+
+
