@@ -17741,3 +17741,31 @@ g弹也有卢瑟福力场吗？</blockquote>
 算了，反正文戏部分也都知道，烂也无所谓。现在只想看看会动的纯夏和奶黄包了
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 1224#       发表于 2021-10-22 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53236056&amp;ptid=1860817" target="_blank">liwangli1983 发表于 2021-10-22 17:24</a>
+
+啊？有能对付光线级的东西吗？</blockquote>
+俗话说，要用魔法对付魔法。
+
+利用G元素去对付烧G元素的光线级，不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 1225#       发表于 2021-10-22 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53216560&amp;ptid=1860817" target="_blank">angela5d30 发表于 2021-10-21 10:17</a>
+
+动画党，这集男主跟其他女角相处的内容给我的感觉就是快速略过游戏里非主轴部分的场景，像赶场那样说完几句 ...</blockquote>
+因为那个演**于毕业考试，不及格就不能算训练结束。而只有正式军人才有机会参加战术机培训。
+
+

@@ -711,3 +711,45 @@ https://share.api.weibo.cn/share/257374856.html?weibo_id=4695168798163086
 鲤鱼大爷公园遛弯笑死我了      https://b23.tv/rKAAjg
 
 
+
+
+*****
+
+####  kata魂  
+##### 3059#       发表于 2021-10-22 21:02
+
+
+nako跳舞的时候确实很平常不一样，眼神那股认真劲有点凶。鲤鱼也是台后省电台前卖力（可能是因为不用思考谈话所以放的开）
+
+
+*****
+
+####  仟音一心  
+##### 3060#       发表于 2021-10-22 21:13
+
+
+【【无字幕】「ノンフィクション!!」舞蹈  练舞&amp;动画对比  -Liella-哔哩哔哩】[https://b23.tv/BApwj4](https://b23.tv/BApwj4)
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+*****
+
+####  名津流  
+##### 3061#       发表于 2021-10-22 21:16
+
+
+ 本帖最后由 名津流 于 2021-10-22 21:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53239370&amp;ptid=2028598" target="_blank">仟音一心 发表于 2021-10-22 21:13</a>
+
+【【无字幕】「ノンフィクション!!」舞蹈  练舞&amp;动画对比  -Liella-哔哩哔哩】[https://b23.tv/BApwj4](https://b23.tv/BApwj4)
+
+
+  -- ...</blockquote>
+原来小千做到“poke face”那段动作的时候居然是蹲下的
+
+这里不像动画那样给特写镜头，诱惑版的千酱就少了展示机会
+
+
