@@ -17707,3 +17707,24 @@ g弹也有卢瑟福力场吗？</blockquote>
 啊？有能对付光线级的东西吗？
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1222#       发表于 2021-10-22 16:52
+
+
+ 本帖最后由 再买自检星剁手 于 2021-10-22 16:53 编辑 
+
+动画组这么不喜欢冥夜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/594ca6084f2325e2720341531946f3bb/IMG_CMP_123849621.png" referrerpolicy="no-referrer">
+
+相比之下前辈好很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/00986da14531586fcae9665712898671/IMG_CMP_73832612.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

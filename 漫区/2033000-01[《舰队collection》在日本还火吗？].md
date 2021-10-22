@@ -1137,3 +1137,42 @@ c97都啥时候的事了，现在的问题是舰c不行了，其他能顶替的�
 —— 来自 vivo NEX A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  c029384756  
+##### 98#       发表于 2021-10-22 16:49
+
+
+c97都两年前了，好多手游寿命都没两年呢……
+
+
+*****
+
+####  我被骗了五块钱  
+##### 99#       发表于 2021-10-22 16:52
+
+
+最火的时候光光武藏俾斯麦的平民号都卖了我1200，笑死我当年，唯一卖号还赚了的宅游
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+*****
+
+####  evanchen  
+##### 100#       发表于 2021-10-22 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53236112&amp;ptid=2033000" target="_blank">defer 发表于 2021-10-22 16:30</a>
+
+看了四页回复，感觉和你们没有生活在一个地球上。
+
+
+c97还能压着东方呢</blockquote>
+C97都什么时候了
+
+而且东方主力都在例大祭吧？
+
+
