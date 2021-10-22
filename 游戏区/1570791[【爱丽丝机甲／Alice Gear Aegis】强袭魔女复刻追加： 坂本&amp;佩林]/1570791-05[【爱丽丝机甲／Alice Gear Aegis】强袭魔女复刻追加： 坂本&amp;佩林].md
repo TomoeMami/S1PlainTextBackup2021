@@ -2139,3 +2139,17 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 国服也开摄影模式了，真开心，完全不想刷图只想拍照（）
 
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6153#       发表于 2021-10-22 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53228703&amp;ptid=1570791" target="_blank">regular 发表于 2021-10-22 01:09</a>
+
+不知道是不是饰品更新的问题，有些好友助战带了就闪退进不去关卡。</blockquote>
+怪不得，进游戏一看，系统已经强行把所有角色已装备的头饰都撸掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
