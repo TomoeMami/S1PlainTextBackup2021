@@ -568,3 +568,14 @@ NAGI真好啊，真好~赶紧带带鲤鱼好好打扮穿搭一下
 还不是特别好，但超级棒，没有LIVE看我要死了
 
 
+
+
+*****
+
+####  千千千千鸟  
+##### 3048#       发表于 2021-10-22 15:31
+
+
+真是相当好，这不切镜头的全正面甚至觉得比动画里切来切去的观感还好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+

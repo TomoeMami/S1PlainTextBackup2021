@@ -2153,3 +2153,14 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 怪不得，进游戏一看，系统已经强行把所有角色已装备的头饰都撸掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  掉线之手  
+##### 6154#       发表于 2021-10-22 15:44
+
+
+国服这波更新真爽啊，游戏性飙增
+
+
