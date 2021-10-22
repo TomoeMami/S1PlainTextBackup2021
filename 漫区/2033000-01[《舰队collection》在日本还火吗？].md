@@ -1307,3 +1307,14 @@ C97的时候如果我告诉你地平线零之曙光和新战神会移植PC，微
 你C在漫区还有整4页的讨论热度，可不火着呢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  酷乐  
+##### 111#       发表于 2021-10-23 07:35
+
+
+C97正好是疫情开始的时候啊，现在一看恍若隔世，之后再没办起线下Comiket了。
+
+

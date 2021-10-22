@@ -4674,3 +4674,19 @@ cp0一直都在吧，估计是想渔翁得利？
 贴吧想到了基德的左手，但没想到霍金斯会直接自爆没招了，所以还是尾田棋高一着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  gasijier  
+##### 55840#       发表于 2021-10-23 07:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53220773&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-10-21 14:35</a>
+
+可以在基拉问“如果我给你的造成的伤害没有地方给你转移怎么办”
+
+霍金斯回答到一半察觉到基德没有左手跟基 ...</blockquote>
+遇见黄猿时还是中二少年，还未知世界的险恶，进入新世界以后已是成熟社会男，心态应该有了很大的变化。
+
+
