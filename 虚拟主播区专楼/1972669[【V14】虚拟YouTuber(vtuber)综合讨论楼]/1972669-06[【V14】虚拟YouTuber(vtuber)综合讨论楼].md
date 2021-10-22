@@ -3783,3 +3783,38 @@ hnn掉大分，今天一天钻二门口属实看麻了<img src="https://static.s
 虹男那个组合宣布前不能跟同事说这件事是真的还是假的，听说是甲斐田直播说的，如果是真的话，怪不得前几天都跟同期联动了
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7762#       发表于 2021-10-23 01:19
+
+
+gbr会员应该在搞了，没意外的话年限图标是这个↓
+
+<img src="https://img.saraba1st.com/forum/202110/23/011742nwbkjpkdbz3yubzj.png" referrerpolicy="no-referrer">
+
+
+<strong>FCThC4FVcAASdNB.png</strong> (4.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-23 01:17 上传
+
+
+露露什么时候搞呢，不会就没考虑吧。
+
+
+另附毛绒拖鞋：
+
+<img src="https://img.saraba1st.com/forum/202110/23/011742nyitnzaxubn9bbq4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FCS5ZLqVcAQ0mhs.jpg</strong> (400.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-23 01:17 上传
+
+
