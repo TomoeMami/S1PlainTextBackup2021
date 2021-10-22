@@ -4608,3 +4608,17 @@ cp0一直都在吧，估计是想渔翁得利？
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">实锤尾田逛贴吧
 
 
+
+
+*****
+
+####  武男  
+##### 55835#       发表于 2021-10-22 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53233867&amp;ptid=98922" target="_blank">穆 发表于 2021-10-22 13:36</a>
+
+实锤尾田逛贴吧</blockquote>
+这条路我们早就走过了,jpg
+
+
