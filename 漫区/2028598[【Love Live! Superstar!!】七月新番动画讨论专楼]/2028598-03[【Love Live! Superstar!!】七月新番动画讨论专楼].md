@@ -662,3 +662,20 @@ https://share.api.weibo.cn/share/257374856.html?weibo_id=4695168798163086
 青山姐的部分写真图，好像有点料
 
 
+
+
+*****
+
+####  ads147147  
+##### 3056#       发表于 2021-10-22 19:24
+
+
+因为不是花田钦定的cp于是被逐出了候机室，从而过上了悠闲的日子。
+
+<img src="https://p.sda1.dev/2/e2659c4f17e5f39a9975284d011dfb8b/IMG_CMP_92898390.jpeg" referrerpolicy="no-referrer">
+
+好气啊被花田气还要被台长调侃，官方操纵cp罪大恶极。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

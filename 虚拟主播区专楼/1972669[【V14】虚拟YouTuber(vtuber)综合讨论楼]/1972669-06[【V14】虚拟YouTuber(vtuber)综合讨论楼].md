@@ -3642,3 +3642,32 @@ juvvel我也觉得挺可惜的，可是定位偶像虹人吃这一套的确实�
 只能说这种Gachi Role Play势都是自成一派的了
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7756#       发表于 2021-10-22 19:32
+
+
+ 本帖最后由 FCCHua 于 2021-10-22 19:35 编辑 
+
+虹两场live价格比想象的便宜啊，ng只有一首？
+
+
+*****
+
+####  IDIDIDID  
+##### 7757#       发表于 2021-10-22 19:37
+
+
+<blockquote>JuvveL
+
+20.8K subscribers
+
+
+ROF-MAO / ろふまおチャンネル【にじさんじ】
+
+141K subscribers</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+

@@ -1243,3 +1243,20 @@ c97还能压着东方呢</blockquote>
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  oznark  
+##### 106#       发表于 2021-10-22 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53236112&amp;ptid=2033000" target="_blank">defer 发表于 2021-10-22 16:30</a>
+
+看了四页回复，感觉和你们没有生活在一个地球上。
+
+
+c97还能压着东方呢</blockquote>
+C97的时候如果我告诉你地平线零之曙光和新战神会移植PC，微软能够收购贝塞斯达，世嘉游戏会加入任天堂会员订阅服务，你会怎么想。
+
+
