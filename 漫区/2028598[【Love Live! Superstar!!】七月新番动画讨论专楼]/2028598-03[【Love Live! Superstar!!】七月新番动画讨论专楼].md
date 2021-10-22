@@ -470,3 +470,23 @@ NAGI真好啊，真好~赶紧带带鲤鱼好好打扮穿搭一下
 <img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3039#       发表于 2021-10-22 14:22
+
+
+这舞跳起来真棒啊，期待到时live上穿live服跳，还有一个星期，好急<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  emmerMK2  
+##### 3040#       发表于 2021-10-22 14:37
+
+
+这舞真好啊，有模有样
+
+
