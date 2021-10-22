@@ -17654,3 +17654,31 @@ cc动画单独做了第0集交代前作ch还有世界观，虽然也没指望观
 ED你静音就好啦，图还是挺好看的
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1218#       发表于 2021-10-22 16:18
+
+
+Steam上的抹布全系列又打折了，这次是五折，29号截止
+
+你说动画staff会不会让每集都出现战术机？
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  再买自检星剁手  
+##### 1219#       发表于 2021-10-22 16:19
+
+
+g弹也有卢瑟福力场吗？
+
+<img src="https://p.sda1.dev/2/91f867fdf349d22516bcff668d9975fe/20211022_160601.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

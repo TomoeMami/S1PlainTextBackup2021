@@ -10364,3 +10364,14 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 先有因后有果，因为剧场版和抓心联动所以这集出了抓心啊
 
 
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2252#       发表于 2021-10-22 15:54
+
+
+这集整活也太绝了，听她们念那么长的大招时我也憋着气，差点儿没缓过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
