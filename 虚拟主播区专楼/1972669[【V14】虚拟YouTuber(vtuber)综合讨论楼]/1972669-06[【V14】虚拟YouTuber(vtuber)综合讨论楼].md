@@ -3611,3 +3611,16 @@ btw，很久之前就 ...</blockquote>
 juvvel我也觉得挺可惜的，可是定位偶像虹人吃这一套的确实太少，连我推特上fo的全肯定民对这组合都一言不发，第一次直播也没啥亮眼的化学反应，只能祝未来可期了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  越动天下  
+##### 7754#       发表于 2021-10-22 14:20
+
+
+ 本帖最后由 越动天下 于 2021-10-22 14:21 编辑 
+
+。
+
+
