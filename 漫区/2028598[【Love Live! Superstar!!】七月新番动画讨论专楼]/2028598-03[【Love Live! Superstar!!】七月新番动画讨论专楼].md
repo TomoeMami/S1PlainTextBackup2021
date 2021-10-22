@@ -410,3 +410,22 @@ NAGI真好啊，真好~赶紧带带鲤鱼好好打扮穿搭一下
 <img src="https://p.sda1.dev/2/324ee014ee80177bcc5b7c170e809aa1/20211022_110649.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 3035#       发表于 2021-10-22 11:30
+
+
+ 本帖最后由 ads147147 于 2021-10-22 11:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53231093&amp;ptid=2028598" target="_blank">仟音一心 发表于 2021-10-22 10:18</a>
+
+这个是新出的？
+
+【【中字】Pay酱的超绝Rap直接震惊Liyuu-哔哩哔哩】[https://b23.tv/4AoWBe](https://b23.tv/4AoWBe)</blockquote>
+推特官号发的。感觉鲤鱼明显是先被吓到了。然后小声的说两句卧槽再捂住嘴演。
+
+话说鲤鱼呆呆的和可可那种行动力爆表的反差萌还挺有趣的
+
+
