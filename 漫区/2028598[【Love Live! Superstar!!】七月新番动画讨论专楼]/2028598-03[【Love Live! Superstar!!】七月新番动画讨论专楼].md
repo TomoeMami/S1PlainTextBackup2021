@@ -490,3 +490,61 @@ NAGI真好啊，真好~赶紧带带鲤鱼好好打扮穿搭一下
 这舞真好啊，有模有样
 
 
+
+
+*****
+
+####  仟音一心  
+##### 3041#       发表于 2021-10-22 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53232174&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-22 11:30</a>
+推特官号发的。感觉鲤鱼明显是先被吓到了。然后小声的说两句卧槽再捂住嘴演。
+
+话说鲤鱼呆呆的和可可那种行 ...</blockquote>
+鲤鱼不是一直这么憨吗？<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3042#       发表于 2021-10-22 14:50
+
+
+舞好棒
+
+
+*****
+
+####  kata魂  
+##### 3043#       发表于 2021-10-22 14:50
+
+
+怪不得不重视动画 有这个还要动画
+
+
+*****
+
+####  ads147147  
+##### 3044#       发表于 2021-10-22 14:57
+
+
+鲤鱼和小百合有个下蹲拉s线的部分没下下去（笑。可能还得再练会了，鲤鱼太高啦233
+
+到时候肯定是台阶上让pay酱站高点，不然真看不到人。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 3045#       发表于 2021-10-22 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53234398&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-22 14:18</a>
+
+一想到5个人穿着吊带白丝跳</blockquote>
+白丝吊袜，好文明，好文明啊
+
+
