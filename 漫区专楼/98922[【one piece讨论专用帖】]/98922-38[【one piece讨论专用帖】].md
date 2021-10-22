@@ -4649,3 +4649,28 @@ cp0一直都在吧，估计是想渔翁得利？
 返场BOSS大多逼格暴涨，莫里亚独闯蜂巢岛比在恐怖三桅杆帅多了，路奇在世界政府的CP0当长官，终章世界政府肯定是重要反派，路奇怎么可能弱？
 
 
+
+
+*****
+
+####  Freemasons  
+##### 55838#       发表于 2021-10-22 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53229253&amp;ptid=98922" target="_blank">灰狼 发表于 2021-10-22 03:39</a>
+回过头来看脑残粉还是挺强的
+
+
+霍金斯这种完全靠能力防御的，能力被破瞬间就垮了</blockquote>
+按照一般套路，屏障能力应该是自吹无敌结果被各种打爆（例如圣斗士里的紫龙的盾和海将军），脑残粉恰好是反过来，各种说自己马上扛不住了结果从没被正面破过防，逼格一下就起来了
+
+
+*****
+
+####  gg326  
+##### 55839#       发表于 2021-10-22 18:55
+
+
+贴吧想到了基德的左手，但没想到霍金斯会直接自爆没招了，所以还是尾田棋高一着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
