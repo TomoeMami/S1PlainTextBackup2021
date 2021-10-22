@@ -579,3 +579,44 @@ NAGI真好啊，真好~赶紧带带鲤鱼好好打扮穿搭一下
 真是相当好，这不切镜头的全正面甚至觉得比动画里切来切去的观感还好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kata魂  
+##### 3049#       发表于 2021-10-22 17:28
+
+
+<img src="https://img.saraba1st.com/forum/202110/22/172810khhot636r0zoo29x.gif" referrerpolicy="no-referrer">
+
+
+<strong>img-1634888029055006KdXT8gy1gvo3ucsc80g60dc07i7s702.gif</strong> (871.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-22 17:28 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 3050#       发表于 2021-10-22 17:31
+
+
+淦！要是多来点这种风格的曲子就好了！<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 3051#       发表于 2021-10-22 17:36
+
+
+但是想想穿着那种裙子这样扭跨就很～
+
+
