@@ -4718,3 +4718,32 @@ cp0一直都在吧，估计是想渔翁得利？
 世界会议白星被抓那段吧
 
 
+
+
+*****
+
+####  C男人  
+##### 55843#       发表于 2021-10-23 20:48
+
+
+跑去看了一个老蔡的对战记录，简直惊人，
+
+
+打遍所有大佬，还没死，
+
+
+结果被路奇秒杀。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+<img src="https://img.saraba1st.com/forum/202110/23/204838ywhh5h33eihpbi24.jpg" referrerpolicy="no-referrer">
+
+
+<strong>175757g90wmkn0h9rqnpnr.jpg</strong> (82.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-23 20:48 上传
+
+
