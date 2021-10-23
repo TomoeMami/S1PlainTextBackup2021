@@ -8073,3 +8073,36 @@ syl 这下千鸟时代，沸腾期待了，什么时候把歌姬的slogan偷来 
 <img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">此时此刻，恰如彼时彼刻
 
 
+
+
+*****
+
+####  莫洛骑士  
+##### 685#       发表于 2021-10-23 11:23
+
+
+文静青春期就当着亲爹面说要紫砂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 686#       发表于 2021-10-23 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53242481&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-23 04:02</a>
+此时此刻，恰如彼时彼刻
+
+syl 说实话，我感觉千鸟这个作息怕不是真的要噶了，三四点四五点还在BB ...</blockquote>
+千鸟唯一指定正常作息人-艾瑞思
+
+
+*****
+
+####  rgauss  
+##### 687#       发表于 2021-10-23 11:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">昨晚一开艾瑞思直播间，艾瑞思跟电视鸡连线 梁木了
+
+
