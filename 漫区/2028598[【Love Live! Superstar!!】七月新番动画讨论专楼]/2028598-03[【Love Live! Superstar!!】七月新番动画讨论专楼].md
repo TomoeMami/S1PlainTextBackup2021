@@ -902,3 +902,23 @@ D
 还有是否用角色声线唱歌评价应该分开
 
 
+
+
+*****
+
+####  中野四葉  
+##### 3072#       发表于 2021-10-23 12:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">大西亚玖璃歌力评价这么低吗，跟sww一档了
+
+
+*****
+
+####  cybernetics31  
+##### 3073#       发表于 2021-10-23 12:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这排名…………带角色音唱也能排吗…………
+
+
