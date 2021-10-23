@@ -1281,3 +1281,38 @@ v4字幕组刚烤了1-3集上映会的视频，不过我还没看
 趴趴预定推荐塑唐，备选叔叔家或者猫受屋，Hpoi老是加价不太行
 
 
+
+
+*****
+
+####  D麦林  
+##### 3101#       发表于 2021-10-23 23:48
+
+
+[https://www.bilibili.com/read/cv13703362](https://www.bilibili.com/read/cv13703362)
+
+翻了篇日站上的SS
+
+挺好笑的一篇 主要是千砂都的圆圆笑话
+
+之前曾有人说过千砂都最喜欢的游戏应该是星之卡比
+
+但是这些人忽略了一点 那就是任天堂的游戏机大部分是方的……
+
+
+*****
+
+####  plazum  
+##### 3102#       发表于 2021-10-24 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53252456&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-23 23:48</a>
+
+https://www.bilibili.com/read/cv13703362
+
+翻了篇日站上的SS
+
+挺好笑的一篇 主要是千砂都的圆圆笑话</blockquote>
+什么反向狼人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -11995,3 +11995,14 @@ syl 魔禁OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 10月新人天狗是吧，一眼V老嗨转生<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  呓亘  
+##### 4054#       发表于 2021-10-23 23:50
+
+
+新人你好，这里是11月新人天狗
+
+
