@@ -4760,3 +4760,20 @@ cp0一直都在吧，估计是想渔翁得利？
 路奇可以碾压至少也是上位实力者了
 
 
+
+
+*****
+
+####  GreenBird  
+##### 55845#       发表于 2021-10-23 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53249923&amp;ptid=98922" target="_blank">C男人 发表于 2021-10-23 20:48</a>
+
+跑去看了一个老蔡的对战记录，简直惊人，
+
+
+打遍所有大佬，还没死，</blockquote>
+有种看《风云》的感觉。
+
+

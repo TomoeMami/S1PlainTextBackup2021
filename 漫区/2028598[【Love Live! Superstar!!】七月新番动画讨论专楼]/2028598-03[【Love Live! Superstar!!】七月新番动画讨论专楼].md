@@ -1239,3 +1239,19 @@ FCT2PvAVIAk7B2I.jpg
 最好的还是找人肉带回，可惜现在不行了，疫情想买点东西太难了…<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3098#       发表于 2021-10-23 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53250386&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-23 21:19</a>
+有成员谈第三话感想的广播/生放送熟肉片段么，想补补
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next- ...</blockquote>
+BV1kP4y1L7uq
+v4字幕组刚烤了1-3集上映会的视频，不过我还没看
+
+
