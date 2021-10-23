@@ -1400,3 +1400,17 @@ C过去最拿得出手的是立绘，其次是声优。玩法突出一个过度�
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  hlazd  
+##### 117#       发表于 2021-10-23 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53248042&amp;ptid=2033000" target="_blank">a479281660 发表于 2021-10-23 18:28</a>
+之后的就是屁股奈子腿背个铁架子，
+但blhx现在连铁架子都省了</blockquote>
+b现在这舰装的夸张度那确实也不是铁架子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
