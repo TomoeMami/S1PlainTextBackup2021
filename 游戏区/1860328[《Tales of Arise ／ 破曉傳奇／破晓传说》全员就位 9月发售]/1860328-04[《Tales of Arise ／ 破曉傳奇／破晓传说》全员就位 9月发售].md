@@ -19337,3 +19337,18 @@ op2后面的很赶</blockquote>
 另外过场的导演是谁，出来谢罪吧，明明打斗的动作都不错，也符合逻辑，但是各种切镜头，看的恶心的要死。
 
 
+
+
+*****
+
+####  紫水晶  
+##### 5927#       发表于 2021-10-24 01:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213421&amp;ptid=1860328" target="_blank">哆哆鸡 发表于 2021-10-20 23:03</a>
+不知道楼里有没有人问过，法师的隐藏组合法术都有哪些，网上看的一些都不全 ...</blockquote>
+法术说明都有的，基本都是低级蓄力变高一级法术
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
