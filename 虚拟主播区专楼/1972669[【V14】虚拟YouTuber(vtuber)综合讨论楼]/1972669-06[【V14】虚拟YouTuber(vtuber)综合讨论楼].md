@@ -3885,3 +3885,16 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7768#       发表于 2021-10-23 14:12
+
+
+[https://www.youtube.com/watch?v=jAqAZVR0FrY&amp;ab_channel=cunny](https://www.youtube.com/watch?v=jAqAZVR0FrY&amp;ab_channel=cunny)
+
+4ch也要学白左玩cancel这套了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

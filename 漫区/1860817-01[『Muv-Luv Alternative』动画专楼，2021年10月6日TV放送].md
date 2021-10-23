@@ -17860,3 +17860,14 @@ ALT世界线2001年还有巨硬XP吗</blockquote>
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  smdzh2  
+##### 1232#       发表于 2021-10-23 14:16
+
+
+开头这段除了一听就知道是日本人配的英文外还不错啊，果然名场面要做成动画才带感
+
+
