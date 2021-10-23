@@ -1336,3 +1336,18 @@ https://www.bilibili.com/read/cv13703362
 分小队好啊，鉴于以前分小队都不按常理出牌，期待已久的可恋搞不好能走一波<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 3105#       发表于 2021-10-24 01:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53253138&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-24 00:50</a>
+分小队好啊，鉴于以前分小队都不按常理出牌，期待已久的可恋搞不好能走一波 ...</blockquote>
+恋恋是孤家寡人，一手小🐸孤寡孤寡送给她
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

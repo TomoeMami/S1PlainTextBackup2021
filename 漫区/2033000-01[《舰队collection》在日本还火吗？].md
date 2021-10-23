@@ -1510,3 +1510,20 @@ MD，怎么专楼外这么多包子脸粉我在楼里的时候都找不到几个
 问题席八福除了脸以外的部分画的挺好的啊
 
 
+
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 125#       发表于 2021-10-24 01:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53252773&amp;ptid=2033000" target="_blank">nightmare902015 发表于 2021-10-24 00:14</a>
+很多历史名舰确实还是舰c画的好些。虽然也有差的很离谱的
+
+批评一下，我不知道哪个游戏开的头，把战 ...</blockquote>
+什么，萝莉bba不是经典属性吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+要这么说那画成熟女也不合理啊，不会真想在贰刺猿手游里看老奶奶立绘吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
