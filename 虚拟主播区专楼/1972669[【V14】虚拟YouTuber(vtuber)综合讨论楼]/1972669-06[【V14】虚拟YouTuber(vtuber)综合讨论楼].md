@@ -4159,3 +4159,35 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 音楽業界へ進出を実現します。</blockquote>
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7784#       发表于 2021-10-23 21:17
+
+
+这算马夫正式进入v圈吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 7785#       发表于 2021-10-23 21:22
+
+
+哈弟真是管人圈有史以来的蹭王之王。
+
+
+*****
+
+####  FCCHua  
+##### 7786#       发表于 2021-10-23 21:22
+
+
+ 本帖最后由 FCCHua 于 2021-10-23 21:24 编辑 
+
+怎么哪里都有哈弟，cr还是加入进来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+reid你也变企业势了吗！
+
+
