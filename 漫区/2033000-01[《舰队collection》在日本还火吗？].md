@@ -1318,3 +1318,15 @@ C97的时候如果我告诉你地平线零之曙光和新战神会移植PC，微
 C97正好是疫情开始的时候啊，现在一看恍若隔世，之后再没办起线下Comiket了。
 
 
+
+
+*****
+
+####  hulaoda007  
+##### 112#       发表于 2021-10-23 09:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是觉得c的设计比b有特点就是了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">土豆脸好。
+
+
