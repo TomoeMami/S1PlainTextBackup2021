@@ -1268,3 +1268,16 @@ v4字幕组刚烤了1-3集上映会的视频，不过我还没看
 想买个趴趴，已经在朋友那寄放一堆碟，不好意思再买个占地方的
 
 
+
+
+*****
+
+####  Norkey1  
+##### 3100#       发表于 2021-10-23 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53252061&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-23 23:16</a>
+想买个趴趴，已经在朋友那寄放一堆碟，不好意思再买个占地方的</blockquote>
+趴趴预定推荐塑唐，备选叔叔家或者猫受屋，Hpoi老是加价不太行
+
+

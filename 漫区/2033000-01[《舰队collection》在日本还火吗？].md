@@ -1468,3 +1468,16 @@ b现在这舰装的夸张度那确实也不是铁架子了<img src="https://stat
 能不能让仲谷老师把坑填了
 
 
+
+
+*****
+
+####  poor  
+##### 122#       发表于 2021-10-23 23:28
+
+
+MD，怎么专楼外这么多包子脸粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在楼里的时候都找不到几个同好
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

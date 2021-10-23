@@ -8186,3 +8186,14 @@ syl 说实话，我感觉千鸟这个作息怕不是真的要噶了，三四点�
 连着两天没有文静，紫砂了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  袜子  
+##### 695#       发表于 2021-10-23 23:25
+
+
+说起来之前文静说想一起看月耀的，不过海子姐在搞她不敢，怕节奏起飞之类的···我还蛮喜欢这个想法的，特别是这次一起看2060就知道应该节目效果好的批爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
