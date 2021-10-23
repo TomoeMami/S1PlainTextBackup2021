@@ -1355,3 +1355,29 @@ C这昭和老害游戏还没倒闭，在座的各位都有责任<img src="https:
 — from Xiaomi Redmi K30 Pro, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
 
+
+
+*****
+
+####  飞霞精灵  
+##### 115#       发表于 2021-10-23 15:44
+
+
+C过去最拿得出手的是立绘，其次是声优。玩法突出一个过度硬核搞死玩家。
+
+现在新船能火出圈的立绘都少见了。
+
+最可乐的是明明当年打着软瑟琴出道，却在后来者发力之后自己保守了，好像非要突出硬核海战一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结果看似硬核本质也不过是操作更加繁琐累死核心老玩家而已。
+
+诸如沉船机制和砍练级和收远征麻烦这些方面到现在都没解决过，像是沉船这种重度惩罚机制在201x的游戏里根本就不可想象。尤其这还是个搜集向的游戏。
+
+
+另外吹人设最好停手，吹几个经典立绘就完事了。
+
+这破游戏人设突出一个田鸽鸽江郎才尽，光是一个姐控别摸我的段子能重复个十次八次。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剩下大量人设反而是靠吸收民间创作的二设补完的。个别二设还是bug出来的梗。
+
+
