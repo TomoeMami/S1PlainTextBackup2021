@@ -2275,3 +2275,17 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 写了个专栏。关于分支的，一些取舍和注意事项，国服队长可以看下，希望能有所参考。
 
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6163#       发表于 2021-10-23 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53239589&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-10-22 21:30</a>
+
+饰品改成COST制后只要不同部位就可以戴，没了以前的冲突效果。夜店活动那个只是变发型，拆成两个饰品了， ...</blockquote>
+啊再请教一下，新版本以后联机打完都会有个初次见面奖励选拔点，是联动的附带还是以后一直就这样了，鼓励多联机？
+
+

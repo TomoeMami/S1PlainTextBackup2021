@@ -1363,3 +1363,62 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该死的欧洲人 萌新只能羡慕
 
 
+
+
+*****
+
+####  シャル  
+##### 84121#       发表于 2021-10-23 19:43
+
+
+原来巴风特竟然就是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+FCYYVWvVgAg8yNT.jpg
+(195.02 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-23 19:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/23/194256k8dy8y5wsfufwdd5.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 84122#       发表于 2021-10-23 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53247765&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-23 18:05</a>
+
+草，今天剧情给的石头凑了一抽金圈竟然出了莫莱</blockquote>
+该死的，我都2万才抽到一个<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 84123#       发表于 2021-10-23 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53247970&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-23 18:23</a>
+该死的欧洲人 萌新只能羡慕</blockquote>
+我其实更羡慕你的梵高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前两周抽梵高把全部库存都上了
+
+
+*****
+
+####  黑上シグマ  
+##### 84124#       发表于 2021-10-23 19:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53249015&amp;ptid=1085254" target="_blank">シャル 发表于 2021-10-23 19:46</a>
+
+该死的，我都2万才抽到一个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">2W算个屁，坐下
+
+

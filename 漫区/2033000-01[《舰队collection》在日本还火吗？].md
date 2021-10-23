@@ -1425,3 +1425,14 @@ b现在这舰装的夸张度那确实也不是铁架子了<img src="https://stat
 最火那会儿和海自各种联动，挂军舰内部展出，还有传闻说要出海自船，结果几年下来还是在扣二战边角料，本来还想看导弹驱逐舰该怎么画呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  uponutopia  
+##### 119#       发表于 2021-10-23 19:53
+
+
+纯路人，以前很喜欢轴C的立绘，后来才发现我喜欢的立绘都是同一个人画的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，原来我喜欢的只是这个画师的绘柄而不是轴C的，不过俾斯麦齐柏林衣阿华也不错，比碧蓝同名的耐看
+
+
