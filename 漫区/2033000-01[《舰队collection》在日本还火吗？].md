@@ -1341,3 +1341,17 @@ C97正好是疫情开始的时候啊，现在一看恍若隔世，之后再没�
 C这昭和老害游戏还没倒闭，在座的各位都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  零下五度猫  
+##### 114#       发表于 2021-10-23 10:54
+
+
+玩着玩着突然有一天觉得没意思，就不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+最近出的少前云图也是，这两天开活动了，突然就觉得没意思了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K30 Pro, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+
