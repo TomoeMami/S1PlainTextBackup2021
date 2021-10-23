@@ -2363,3 +2363,23 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 王红花的双枪分支也变成蓄力不会自动射了，再按一下会自动移动到距离连射。
 
 
+
+
+*****
+
+####  梅普基  
+##### 6170#       发表于 2021-10-24 00:55
+
+
+文鸟原版腿虽然弹速像实弹但真不是实弹啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 6171#       发表于 2021-10-24 00:58
+
+
+什么那玩意竟然不是实弹？感谢指正，又要改了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

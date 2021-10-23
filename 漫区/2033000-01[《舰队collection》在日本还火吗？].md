@@ -1495,3 +1495,18 @@ MD，怎么专楼外这么多包子脸粉<img src="https://static.saraba1st.com/
 画个厌战，那脸那身材和个小学毕业女生似的。人家一战就下水的老战列舰，RN水兵和海军上将都亲切称呼的“老女士”，搞得那么小学生样，不觉得违和吗，是讨好萝莉控？
 
 
+
+
+*****
+
+####  Sakaiyuki  
+##### 124#       发表于 2021-10-24 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53252203&amp;ptid=2033000" target="_blank">poor 发表于 2021-10-23 23:28</a>
+MD，怎么专楼外这么多包子脸粉我在楼里的时候都找不到几个同好
+
+—— 来自 vivo V1981A, Android 11 ...</blockquote>
+问题席八福除了脸以外的部分画的挺好的啊
+
+

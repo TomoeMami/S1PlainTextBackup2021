@@ -1316,3 +1316,23 @@ https://www.bilibili.com/read/cv13703362
 什么反向狼人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3103#       发表于 2021-10-24 00:43
+
+
+都第一季完结了 星团还不打算分小队吗？还是因为人少准备搞虹团那样的个人SOLO？
+
+
+*****
+
+####  saglork  
+##### 3104#       发表于 2021-10-24 00:50
+
+
+分小队好啊，鉴于以前分小队都不按常理出牌，期待已久的可恋搞不好能走一波<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
