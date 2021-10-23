@@ -965,3 +965,32 @@ liyuu和这几个在一档，怎么想都不对劲罢<img src="https://static.sa
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  中野四葉  
+##### 3078#       发表于 2021-10-23 13:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽说鲤鱼唱歌在裂团不算垫底，但比另外俩高一阶还是没到这水平，这3人排在一个rank里差不多
+
+
+*****
+
+####  kbtit  
+##### 3079#       发表于 2021-10-23 14:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去掉粉丝滤镜，青山我感觉还能再上一级
+
+
+*****
+
+####  kbtit  
+##### 3080#       发表于 2021-10-23 14:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去掉粉丝滤镜，青山我感觉还能再上一级
+
+
