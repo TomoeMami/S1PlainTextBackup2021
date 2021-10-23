@@ -2315,3 +2315,40 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 分支需要的两星Gv贝该怎么刷才好？
 
 
+
+
+*****
+
+####  洁西卡  
+##### 6166#       发表于 2021-10-23 23:12
+
+
+文鸟的武器咋没分支？不是70升级75的时候吗？
+
+—— 来自 vivo V1955A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  hypnossz86  
+##### 6167#       发表于 2021-10-23 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53252014&amp;ptid=1570791" target="_blank">洁西卡 发表于 2021-10-23 23:12</a>
+
+文鸟的武器咋没分支？不是70升级75的时候吗？
+
+
+—— 来自 vivo V1955A, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+国服还没上吧，日服是上an文鸟的时候开的长枪和腿的分支
+
+
+*****
+
+####  江戸前ルナ  
+##### 6168#       发表于 2021-10-23 23:21
+
+
+啊，除了漏了个妮娜腿还有个文鸟腿emmm
+
+
