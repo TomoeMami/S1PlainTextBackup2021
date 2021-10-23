@@ -3871,3 +3871,17 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 有一说一这封面画风让我感觉是在模仿es的画风
 
 
+
+
+*****
+
+####  stmule  
+##### 7767#       发表于 2021-10-23 13:18
+
+
+<img src="https://p.sda1.dev/2/86a87c238ffd62aaeea384faacef19f4/IMG_CMP_144937086.jpeg" referrerpolicy="no-referrer">
+这歌词和inui有关系么
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
