@@ -1196,3 +1196,32 @@ FCT2PvAVIAk7B2I.jpg
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  kata魂  
+##### 3095#       发表于 2021-10-23 22:00
+
+
+微博上那个一般通过中号的画师，画了一个丧尸可可，好带感啊~
+
+
+*****
+
+####  名津流  
+##### 3096#       发表于 2021-10-23 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53250386&amp;ptid=2028598" target="_blank">一个陆仁贾 发表于 2021-10-23 21:19</a>
+
+有成员谈第三话感想的广播/生放送熟肉片段么，想补补
+
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next- ...</blockquote>
+生放送谈第三话感想应该是这期，[https://www.bilibili.com/video/BV1cg411L7aP](https://www.bilibili.com/video/BV1cg411L7aP)
+
+
+广播的话时间上是24、25期，但基本没有谈第三话的感想，只有“这样的第三话不要啊”的互动环节
+
+
