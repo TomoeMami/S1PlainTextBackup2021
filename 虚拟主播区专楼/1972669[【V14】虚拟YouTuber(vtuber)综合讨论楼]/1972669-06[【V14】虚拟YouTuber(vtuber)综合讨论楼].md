@@ -3925,3 +3925,27 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 故意的，封面和以前的es翻唱的曲绘一样，一直是一个人。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Suzutsuki  
+##### 7771#       发表于 2021-10-23 17:19
+
+
+ 本帖最后由 Suzutsuki 于 2021-10-23 17:20 编辑 
+
+看了小红的新衣服，我恋爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 7772#       发表于 2021-10-23 17:22
+
+
+[https://live.bilibili.com/blackboard/activity-ecFNG1Vidd.html](https://live.bilibili.com/blackboard/activity-ecFNG1Vidd.html)
+
+异世界情绪 1st ONE-MAN LIVE「Anima」
+
+

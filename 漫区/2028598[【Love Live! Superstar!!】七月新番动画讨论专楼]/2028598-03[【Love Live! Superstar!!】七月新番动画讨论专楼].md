@@ -1156,3 +1156,19 @@ FCT2PvAVIAk7B2I.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看之前的cos照 挤挤还是有的
 
 
+
+
+*****
+
+####  lj205  
+##### 3092#       发表于 2021-10-23 17:11
+
+
+<blockquote>cat1230 发表于 2021-10-23 15:00
+鲤鱼唱功不上去的话她今后的歌手之路很难走啊。不过我觉得她配音很有天赋啊。
+
+
+----发送自 Xiaomi Redmi K2 ...</blockquote>
+新歌听着还是比以前进步不少的，就是还有很大的提升空间～
+
+
