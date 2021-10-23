@@ -1433,3 +1433,31 @@ FCYYVWvVgAg8yNT.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">连四星都没出的我
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84126#       发表于 2021-10-23 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53249544&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-10-23 20:23</a>
+
+连四星都没出的我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新也没有啊 不要慌
+
+
+*****
+
+####  白金口袋  
+##### 84127#       发表于 2021-10-23 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53248967&amp;ptid=1085254" target="_blank">シャル 发表于 2021-10-23 05:43</a>
+
+原来巴风特竟然就是我自己</blockquote>
+明明是轻松的节日活动却意外是咕哒遭遇最惨的一次
+
+之前也各种肉身挨打或者精神遭折磨，但直接变怪还是第一次出现的操作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
