@@ -1349,3 +1349,17 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 草，今天剧情给的石头凑了一抽金圈竟然出了莫莱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84120#       发表于 2021-10-23 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53247765&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-23 18:05</a>
+
+草，今天剧情给的石头凑了一抽金圈竟然出了莫莱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该死的欧洲人 萌新只能羡慕
+
+

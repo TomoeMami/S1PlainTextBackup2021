@@ -1381,3 +1381,22 @@ C过去最拿得出手的是立绘，其次是声优。玩法突出一个过度�
 剩下大量人设反而是靠吸收民间创作的二设补完的。个别二设还是bug出来的梗。
 
 
+
+
+*****
+
+####  a479281660  
+##### 116#       发表于 2021-10-23 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53221964&amp;ptid=2033000" target="_blank">Sacross 发表于 2021-10-21 16:01</a>
+说来也奇怪，之前和朋友聊天的时候也在说，起手玩的砍口垒，很多人设的基础概念就直接根深蒂固了
+
+
+不谈立绘 ...</blockquote>
+之后的就是屁股奈子腿背个铁架子，
+但blhx现在连铁架子都省了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
