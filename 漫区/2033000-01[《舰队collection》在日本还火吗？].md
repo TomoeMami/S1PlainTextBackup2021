@@ -1330,3 +1330,14 @@ C97正好是疫情开始的时候啊，现在一看恍若隔世，之后再没�
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">土豆脸好。
 
 
+
+
+*****
+
+####  武蔵  
+##### 113#       发表于 2021-10-23 10:22
+
+
+C这昭和老害游戏还没倒闭，在座的各位都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

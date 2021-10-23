@@ -3846,3 +3846,28 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 至于るじゅえ，除了你楼的粉有反应，都没人记得还存在这玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">挑染和valz粉想扩大战场扯的例子都是SMC
 
 
+
+
+*****
+
+####  stmule  
+##### 7765#       发表于 2021-10-23 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53227698&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-10-21 23:06</a>
+真当叛忍了啊</blockquote>
+<img src="https://p.sda1.dev/2/826c1d8a3da4606e80c5dc087b808e69/IMG_CMP_56726778.jpeg" referrerpolicy="no-referrer">
+这封面不太行啊
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ヒトニナル  
+##### 7766#       发表于 2021-10-23 10:13
+
+
+有一说一这封面画风让我感觉是在模仿es的画风
+
+

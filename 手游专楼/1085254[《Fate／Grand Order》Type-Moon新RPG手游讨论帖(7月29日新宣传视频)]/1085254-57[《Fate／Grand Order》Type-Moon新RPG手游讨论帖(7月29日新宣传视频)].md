@@ -1327,3 +1327,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 这龙娘挺可爱的，就是看起来太瘦
 
 
+
+
+*****
+
+####  藤田有静  
+##### 84118#       发表于 2021-10-23 10:10
+
+
+ゼノビア被画进来就变成电子技女，真有你的的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
