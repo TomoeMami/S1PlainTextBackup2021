@@ -1481,3 +1481,17 @@ MD，怎么专楼外这么多包子脸粉<img src="https://static.saraba1st.com/
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  nightmare902015  
+##### 123#       发表于 2021-10-24 00:14
+
+
+很多历史名舰确实还是舰c画的好些。虽然也有差的很离谱的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+批评一下，我不知道哪个游戏开的头，把战舰正航各个画的，幼的一比。
+画个厌战，那脸那身材和个小学毕业女生似的。人家一战就下水的老战列舰，RN水兵和海军上将都亲切称呼的“老女士”，搞得那么小学生样，不觉得违和吗，是讨好萝莉控？
+
+
