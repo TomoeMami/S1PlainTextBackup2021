@@ -3898,3 +3898,30 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 4ch也要学白左玩cancel这套了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 7769#       发表于 2021-10-23 16:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53245058&amp;ptid=1972669" target="_blank">stmule 发表于 2021-10-23 13:18</a>
+这歌词和inui有关系么
+
+—— 来自 samsung SM-G9730, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+那个片假名的トコ阿，词作者是这么说的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+主题倒是和歌名一样就是超越框架就是了
+
+
+*****
+
+####  渡鸦骑士  
+##### 7770#       发表于 2021-10-23 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53243484&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-10-23 10:13</a>
+有一说一这封面画风让我感觉是在模仿es的画风</blockquote>
+故意的，封面和以前的es翻唱的曲绘一样，一直是一个人。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
