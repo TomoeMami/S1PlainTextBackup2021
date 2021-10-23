@@ -10422,3 +10422,17 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 爱奇艺还行不行啊，治愈剧场版到现在不上，热带又要等bd了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  necoconeco  
+##### 2256#       发表于 2021-10-23 22:16
+
+
+今年剧场版看完第2遍回来了。
+
+
+明年只有秋季剧场版，春季没有了……
+
+

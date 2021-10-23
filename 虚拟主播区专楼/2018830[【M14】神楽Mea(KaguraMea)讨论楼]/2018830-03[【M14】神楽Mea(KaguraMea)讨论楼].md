@@ -11938,3 +11938,29 @@ syl 魔禁OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 打了码还要乱涂，姨化程度严重不足
 
 
+
+
+*****
+
+####  朝颜  
+##### 4049#       发表于 2021-10-23 22:07
+
+
+注册期到了可以说话了
+
+10月新人天狗desu 咩咩可爱咩咩喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 4050#       发表于 2021-10-23 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53251138&amp;ptid=2018830" target="_blank">朝颜 发表于 2021-10-23 22:07</a>
+注册期到了可以说话了
+
+10月新人天狗desu 咩咩可爱咩咩喜欢</blockquote>
+快，快跑<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
