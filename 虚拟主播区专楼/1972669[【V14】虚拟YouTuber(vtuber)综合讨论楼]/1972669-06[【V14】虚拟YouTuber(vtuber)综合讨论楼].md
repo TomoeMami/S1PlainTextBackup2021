@@ -4074,3 +4074,23 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 精神ed了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  noHentai  
+##### 7778#       发表于 2021-10-23 19:40
+
+
+在线求一个情绪Live B站源弹幕，不知道有没有人录（）
+
+
+*****
+
+####  rzrbtk  
+##### 7779#       发表于 2021-10-23 19:42
+
+
+哭了，大家都是神椿人，怎么dustcell出二专根本无人在意，虽然确实曲子重复度确实有点高啦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

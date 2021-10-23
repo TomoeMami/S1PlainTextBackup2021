@@ -1414,3 +1414,14 @@ C过去最拿得出手的是立绘，其次是声优。玩法突出一个过度�
 b现在这舰装的夸张度那确实也不是铁架子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Harlaus  
+##### 118#       发表于 2021-10-23 19:27
+
+
+最火那会儿和海自各种联动，挂军舰内部展出，还有传闻说要出海自船，结果几年下来还是在扣二战边角料，本来还想看导弹驱逐舰该怎么画呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
