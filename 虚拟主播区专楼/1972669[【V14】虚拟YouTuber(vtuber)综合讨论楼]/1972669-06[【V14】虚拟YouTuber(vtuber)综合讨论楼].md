@@ -4094,3 +4094,27 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 哭了，大家都是神椿人，怎么dustcell出二专根本无人在意，虽然确实曲子重复度确实有点高啦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  moerisa  
+##### 7780#       发表于 2021-10-23 20:05
+
+
+链接：[https://pan.baidu.com/s/1Q-fnMv_Ac23zY8dwoBOfOw](https://pan.baidu.com/s/1Q-fnMv_Ac23zY8dwoBOfOw) 
+
+提取码：isei
+
+情绪live弹幕源文件
+
+
+*****
+
+####  喜闻乐见  
+##### 7781#       发表于 2021-10-23 20:22
+
+
+老爱vr live回放 这场景烟花云雾渲染绝了
+
+
