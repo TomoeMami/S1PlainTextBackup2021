@@ -1338,3 +1338,14 @@ FGOCCC的漫画就是他画的啊<img src="https://static.saraba1st.com/image/sm
 ゼノビア被画进来就变成电子技女，真有你的的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 84119#       发表于 2021-10-23 18:05
+
+
+草，今天剧情给的石头凑了一抽金圈竟然出了莫莱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -3949,3 +3949,14 @@ gbr会员应该在搞了，没意外的话年限图标是这个↓
 异世界情绪 1st ONE-MAN LIVE「Anima」
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 7773#       发表于 2021-10-23 18:25
+
+
+不行，笑死我了，神椿这是因为钱变成了bilibili的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
