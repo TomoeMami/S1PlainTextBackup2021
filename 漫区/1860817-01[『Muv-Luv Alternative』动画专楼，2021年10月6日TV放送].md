@@ -17847,3 +17847,16 @@ ALT世界线2001年还有巨硬XP吗</blockquote>
 那边的芯片带的动xp吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1231#       发表于 2021-10-23 09:32
+
+
+又更新声优了，沙雾尚哉不知是忘了还是故意的，没配图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
