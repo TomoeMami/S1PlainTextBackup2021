@@ -2248,3 +2248,16 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 看了下维基舞的蓄力横派生可以追加滑行箭形剑气最大可以七发，满配9000多一发距离合适全中的话伤害非常变态。
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6161#       发表于 2021-10-23 09:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然但是
+这angear的获得方式是不是该改改了...
+人越来越多，非专属贝几乎没什么用了...
+
+
