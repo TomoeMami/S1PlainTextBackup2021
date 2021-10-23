@@ -2261,3 +2261,17 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 人越来越多，非专属贝几乎没什么用了...
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6162#       发表于 2021-10-23 14:39
+
+
+[https://www.bilibili.com/read/cv13696751](https://www.bilibili.com/read/cv13696751)
+
+
+写了个专栏。关于分支的，一些取舍和注意事项，国服队长可以看下，希望能有所参考。
+
+
