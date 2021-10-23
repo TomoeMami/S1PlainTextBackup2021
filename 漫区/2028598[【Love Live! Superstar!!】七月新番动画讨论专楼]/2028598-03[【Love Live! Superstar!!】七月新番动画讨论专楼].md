@@ -1417,3 +1417,16 @@ https://www.bilibili.com/read/cv13703362
 <img src="https://img.saraba1st.com/forum/202110/24/064056lrtws8akd3hqklsz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 3110#       发表于 2021-10-24 06:47
+
+
+<blockquote>Norkey1 发表于 2021-10-23 23:29
+趴趴预定推荐塑唐，备选叔叔家或者猫受屋，Hpoi老是加价不太行</blockquote>
+感谢，看了一圈全部缺货，连煤炉都没，直接放弃应该是最好的选择
+
+
