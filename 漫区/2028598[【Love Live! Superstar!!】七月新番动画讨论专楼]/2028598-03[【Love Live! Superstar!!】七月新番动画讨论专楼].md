@@ -942,3 +942,26 @@ D
 个人排的就图一乐嘛，你们也可以做一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saglork  
+##### 3076#       发表于 2021-10-23 13:24
+
+
+裂啦都还没在有人的场子里唱过，排个毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+别的不说，这s档的水平波动的跟心电图一样，是怎么归到一个档的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  K·os  
+##### 3077#       发表于 2021-10-23 13:46
+
+
+liyuu和这几个在一档，怎么想都不对劲罢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
