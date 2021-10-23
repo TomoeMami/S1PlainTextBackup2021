@@ -1099,3 +1099,38 @@ liyuu和这几个在一档，怎么想都不对劲罢<img src="https://static.sa
 最近才发现nako挺有料的，怕不是liella的最高峰<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  NODY  
+##### 3088#       发表于 2021-10-23 16:08
+
+
+这个排行估计是本音角色音综合评价吧，不然纯角色音排行我觉得田中能有sss
+
+指出和铃木倒是无论角色音还是本音都sss没问题
+
+
+*****
+
+####  megapikachu  
+##### 3089#       发表于 2021-10-23 16:17
+
+
+恭喜圆滚滚荣登星团第二贵
+
+
+FCT2PvAVIAk7B2I.jpg
+(396.77 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-23 16:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/23/161652hkyew8kk8ryzvwlg.jpg" referrerpolicy="no-referrer">
+
+
