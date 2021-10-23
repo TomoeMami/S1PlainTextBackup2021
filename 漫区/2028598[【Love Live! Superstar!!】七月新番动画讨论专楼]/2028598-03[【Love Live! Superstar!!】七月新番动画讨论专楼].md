@@ -1351,3 +1351,38 @@ https://www.bilibili.com/read/cv13703362
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  永恒的王牌  
+##### 3106#       发表于 2021-10-24 02:21
+
+
+偶像企划加人我不熟但看这情况也没有要加人的意思啊，这才5个人只能分2+3吧，要不然2+2+1落单那个也太可怜了（
+
+
+*****
+
+####  黑雪姫  
+##### 3107#       发表于 2021-10-24 02:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53253740&amp;ptid=2028598" target="_blank">永恒的王牌 发表于 2021-10-24 02:21</a>
+
+偶像企划加人我不熟但看这情况也没有要加人的意思啊，这才5个人只能分2+3吧，要不然2+2+1落单那个也太可怜 ...</blockquote>
+可以试试动态分组啊，就是一个人不止一个小队
+
+
+*****
+
+####  名津流  
+##### 3108#       发表于 2021-10-24 05:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53253771&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-24 02:29</a>
+
+可以试试动态分组啊，就是一个人不止一个小队</blockquote>
+那么是要C52还是C53呢？
+
+
