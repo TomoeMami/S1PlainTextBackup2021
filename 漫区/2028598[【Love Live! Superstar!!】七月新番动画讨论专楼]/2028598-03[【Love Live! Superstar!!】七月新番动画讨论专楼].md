@@ -1225,3 +1225,17 @@ FCT2PvAVIAk7B2I.jpg
 广播的话时间上是24、25期，但基本没有谈第三话的感想，只有“这样的第三话不要啊”的互动环节
 
 
+
+
+*****
+
+####  Norkey1  
+##### 3097#       发表于 2021-10-23 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53250083&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-23 20:59</a>
+求问各位大佬，话说淘宝预定goods哪家店比较靠谱？</blockquote>
+有名的几家基本上都买过，其实除了速度其他都差不多的，该轮到你被砍单了买哪一家都会被砍，挑便宜的买就是了。
+最好的还是找人肉带回，可惜现在不行了，疫情想买点东西太难了…<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+

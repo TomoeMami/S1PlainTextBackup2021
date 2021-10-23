@@ -1461,3 +1461,22 @@ FCYYVWvVgAg8yNT.jpg
 之前也各种肉身挨打或者精神遭折磨，但直接变怪还是第一次出现的操作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  シャル  
+##### 84128#       发表于 2021-10-23 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53250644&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-10-23 21:36</a>
+
+明明是轻松的节日活动却意外是咕哒遭遇最惨的一次
+
+之前也各种肉身挨打或者精神遭折磨，但直接变怪还是第 ...</blockquote>
+战斗力大涨<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+看着个状态完全能吊打从者<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
