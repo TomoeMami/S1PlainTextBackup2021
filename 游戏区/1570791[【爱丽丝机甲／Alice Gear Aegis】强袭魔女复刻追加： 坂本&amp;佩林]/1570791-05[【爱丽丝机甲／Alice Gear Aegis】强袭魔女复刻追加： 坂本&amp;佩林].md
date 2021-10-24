@@ -2427,3 +2427,17 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 协力改版前周一还是周二的低级皮皮蛇，有文嘉最好。开场按手直接过关。只开材料贝其他直接一车卖走。
 
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 6175#       发表于 2021-10-24 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257660&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-10-24 14:53</a>
+
+协力改版前周一还是周二的低级皮皮蛇，有文嘉最好。开场按手直接过关。只开材料贝其他直接一车卖走。 ...</blockquote>
+谢谢。<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+

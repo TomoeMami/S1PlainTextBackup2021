@@ -1800,3 +1800,54 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 大家一起去新的星空？新学校还是新舞台？</blockquote>
 
 
+
+
+*****
+
+####  iuhehc  
+##### 3142#       发表于 2021-10-24 15:09
+
+
+我就预感是明年10月
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  lj205  
+##### 3143#       发表于 2021-10-24 15:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257552&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-24 14:45</a>
+大家一起去新的星空？新学校还是新舞台？</blockquote>
+みんな(かのん)
+
+
+*****
+
+####  ads147147  
+##### 3144#       发表于 2021-10-24 15:10
+
+
+两年一次动画，拍三个季度，差不多6年也快到企划开始收尾了。再来部final的剧场版。
+
+
+反正花田十辉，京极，都是战犯。
+
+
+*****
+
+####  ads147147  
+##### 3145#       发表于 2021-10-24 15:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257835&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-24 15:10</a>
+
+みんな(かのん)</blockquote>
+香音传第二期，太期待了呢（
+
+
+下一季说不定sp都毕业了，然后再找个敌团来，输在决赛后库亚西，第三年再来。
+
+
