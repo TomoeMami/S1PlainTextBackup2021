@@ -4808,3 +4808,20 @@ cp0一直都在吧，估计是想渔翁得利？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  神隐の馒头  
+##### 55848#       发表于 2021-10-24 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255812&amp;ptid=98922" target="_blank">C男人 发表于 2021-10-24 11:58</a>
+
+青椒自己巅峰期的悬赏金也才5亿，
+
+
+能和50+亿的罗杰等人交战多次也是赚足了面子。</blockquote>
+青椒自己的战力也很迷，打过那么多大佬不分胜负，后被卡仙一拳打爆头，多年后再次败给草帽，甚至拉奥g都打不过，该说是老了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

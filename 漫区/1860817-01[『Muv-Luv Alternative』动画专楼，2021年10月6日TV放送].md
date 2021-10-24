@@ -17942,3 +17942,17 @@ ALT世界线2001年还有巨硬XP吗</blockquote>
 这个筑地多惠是哪个外传里的人物，还是近期新加的？
 
 
+
+
+*****
+
+####  hacisiki  
+##### 1237#       发表于 2021-10-24 12:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255521&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-24 11:33</a>
+
+想不到两位兢兢业业搞muv-luv（系列游戏）直播的声优真的混到了饭票</blockquote>
+小茜的闺蜜，本篇里面我记得有名字出场，在ALTER FABLE里面有登场。
+
+
