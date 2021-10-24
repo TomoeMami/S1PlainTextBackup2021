@@ -2008,3 +2008,41 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 练舞戴那个白手套我以为防疫要求呢，都忘记wish song有戴了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3161#       发表于 2021-10-24 16:42
+
+
+大家都知道会有第二季，早早公布就公布吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 3162#       发表于 2021-10-24 16:50
+
+
+第一季中后期剧情写那么烂，第二季没那么期待了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 3163#       发表于 2021-10-24 16:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烂归烂还是希望有的  主要想看生放
+
+
+*****
+
+####  soranoguiji  
+##### 3164#       发表于 2021-10-24 16:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 烂归烂，但你定位就是2.5次元企划，我可以不看你二次元，但你不能没有，日升现在是不是就是这个想法所以在摆烂
+
+
