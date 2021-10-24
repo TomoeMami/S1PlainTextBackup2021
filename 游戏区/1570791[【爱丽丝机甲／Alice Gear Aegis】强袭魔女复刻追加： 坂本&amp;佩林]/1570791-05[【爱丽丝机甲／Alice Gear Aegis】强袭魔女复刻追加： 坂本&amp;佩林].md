@@ -2400,3 +2400,30 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 神仙打架.MP4<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 6173#       发表于 2021-10-24 14:51
+
+
+分支需要的两星Gv贝该怎么刷才好？
+
+大更新分支开太多，材料眨眼间就耗光了。<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 6174#       发表于 2021-10-24 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257630&amp;ptid=1570791" target="_blank">黑炎凤凰 发表于 2021-10-24 14:51</a>
+
+分支需要的两星Gv贝该怎么刷才好？
+
+大更新分支开太多，材料眨眼间就耗光了。 ...</blockquote>
+协力改版前周一还是周二的低级皮皮蛇，有文嘉最好。开场按手直接过关。只开材料贝其他直接一车卖走。
+
+

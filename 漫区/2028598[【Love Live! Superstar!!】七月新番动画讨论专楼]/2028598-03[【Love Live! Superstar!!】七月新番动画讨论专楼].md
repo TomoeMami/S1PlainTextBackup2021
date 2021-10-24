@@ -1680,3 +1680,123 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 那这么说明年就有的看了？
 
 
+
+
+*****
+
+####  寒风夜  
+##### 3132#       发表于 2021-10-24 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257474&amp;ptid=2028598" target="_blank">Totokei 发表于 2021-10-24 14:39</a>
+
+所以这么快公布图啥，大家都知道亲女儿了也没必要这么光速吧</blockquote>
+都摆明了有2了，live上公布或 现在公布也没什么
+
+
+*****
+
+####  寒风夜  
+##### 3133#       发表于 2021-10-24 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257474&amp;ptid=2028598" target="_blank">Totokei 发表于 2021-10-24 14:39</a>
+
+所以这么快公布图啥，大家都知道亲女儿了也没必要这么光速吧</blockquote>
+
+
+*****
+
+####  wsdbyh  
+##### 3134#       发表于 2021-10-24 14:42
+
+
+ 本帖最后由 wsdbyh 于 2021-10-24 14:45 编辑 
+
+有二期这完全不意外，只是不知道是会学缪水那样两季加剧场版么
+
+
+*****
+
+####  中野四葉  
+##### 3135#       发表于 2021-10-24 14:42
+
+
+那就是live上公布二单？
+
+
+*****
+
+####  寒风夜  
+##### 3136#       发表于 2021-10-24 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257492&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-24 14:41</a>
+
+那这么说明年就有的看了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不意外就是23年 1月
+
+
+*****
+
+####  优妮可  
+##### 3137#       发表于 2021-10-24 14:45
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/144500npttl3h3nymtly9c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211024_144338.jpg</strong> (106.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 14:45 上传
+
+
+大家一起去新的星空？新学校还是新舞台？
+
+
+*****
+
+####  秋月艾莉  
+##### 3138#       发表于 2021-10-24 14:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257552&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-24 14:45</a>
+
+大家一起去新的星空？新学校还是新舞台？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是新致敬
+
+
+*****
+
+####  wsdbyh  
+##### 3139#       发表于 2021-10-24 14:49
+
+
+不过这么快公布二期，到时LIVE除了公布新单曲还有些啥？新游戏么，毕竟AS这游戏已经是等死阶段了
+
+
+*****
+
+####  寒风夜  
+##### 3140#       发表于 2021-10-24 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257552&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-24 14:45</a>
+
+大家一起去新的星空？新学校还是新舞台？</blockquote>
+新烂活 
+
+
+*****
+
+####  寒风夜  
+##### 3141#       发表于 2021-10-24 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257552&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-24 14:45</a>
+
+大家一起去新的星空？新学校还是新舞台？</blockquote>
+
+

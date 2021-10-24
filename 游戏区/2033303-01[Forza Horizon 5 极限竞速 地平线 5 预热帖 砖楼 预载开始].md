@@ -1080,3 +1080,21 @@ xbox版 新西兰区  4号19点
 其次认准四驱车
 
 
+
+
+*****
+
+####  andychen  
+##### 75#       发表于 2021-10-24 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257303&amp;ptid=2033303" target="_blank">何然 发表于 2021-10-24 14:20</a>
+
+原来是车的问题
+
+我一直以为是跑车速度太快操纵性差，就没往下试了..</blockquote>
+兄弟，野马肌肉车，操控差得一逼……
+
+另外买了新车记得去弄个调教，推荐里五星的一般都不错
+
+
