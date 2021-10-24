@@ -956,3 +956,53 @@ xbox版 新西兰区  4号19点
 跑了几圈觉得根本控制不了就放弃了...
 
 
+
+
+*****
+
+####  qzy741147  
+##### 67#       发表于 2021-10-24 12:34
+
+
+ 本帖最后由 qzy741147 于 2021-10-24 12:40 编辑 
+
+所以gamepass的那个dlc要怎么买，商店里dlc列表里就没有那个
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/123430py9ylpxb9p09efbl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211024123405.png</strong> (136.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 12:34 上传
+
+
+解决了，直接商店搜索forza，前几个就有。这个捆绑包和游戏本体不关联，也不在dlc列表里。只能通过搜素进入，这商店的思路真是绝了
+
+
+*****
+
+####  h20020901  
+##### 68#       发表于 2021-10-24 12:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53256205&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-10-24 12:34</a>
+
+所以gamepass的那个dlc要怎么买，商店里dlc列表里就没有那个</blockquote>
+搜索 极限竞速：地平线 5 顶级加载捆绑包 
+
+
+*****
+
+####  qzy741147  
+##### 69#       发表于 2021-10-24 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53256260&amp;ptid=2033303" target="_blank">h20020901 发表于 2021-10-24 12:39</a>
+
+搜索 极限竞速：地平线 5 顶级加载捆绑包</blockquote>
+感谢，我发现只能通过搜索进入
+
+
