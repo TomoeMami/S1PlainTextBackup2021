@@ -4363,3 +4363,29 @@ Syl，
 不会真的有人觉得在没有cp营业的情况下单方面杀同期异性的gachi是什么除了cp党和乐子人之外喜闻乐见的好性格吧<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 7800#       发表于 2021-10-25 00:18
+
+
+不懂就问，为啥s1没有彩虹社专楼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+是有啥不知道的管人粉战史吗？如果是的话就不用详细科普了…
+
+
+
+
+*****
+
+####  noHentai  
+##### 7801#       发表于 2021-10-25 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264652&amp;ptid=1972669" target="_blank">Eric_方歌阙 发表于 2021-10-25 00:18</a>
+不懂就问，为啥s1没有彩虹社专楼。
+是有啥不知道的管人粉战史吗？如果是的话就不用详细科普了… ...</blockquote>
+有，但没人看你虹，有看的都在这栋楼这么点人了，就这么简单。
+
+
