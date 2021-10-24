@@ -4350,3 +4350,16 @@ Syl，
 爆炸头不是最终版啦，这人三天两头跟staff搞事，被整一下（或者说整活）而已，实质亲儿子
 
 
+
+
+*****
+
+####  fastary  
+##### 7799#       发表于 2021-10-25 00:01
+
+
+一边是几乎从来没有主动找人联动过还一直疯狂避火一边是几乎不放过任何营业机会就连跟其他男人出翻唱都要cue一下，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+不会真的有人觉得在没有cp营业的情况下单方面杀同期异性的gachi是什么除了cp党和乐子人之外喜闻乐见的好性格吧<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+

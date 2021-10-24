@@ -18060,3 +18060,15 @@ BETA新潟上陸時のBETA捕獲作戦
 2021-10-24 22:17 上传
 
 
+
+
+*****
+
+####  球獭  
+##### 1245#       发表于 2021-10-24 23:51
+
+
+虽然ate前期折磨，但黎明作战还是催泪啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+相比之下黑色宣告就紧凑很多，刚开头就闻到刀子的味道<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
