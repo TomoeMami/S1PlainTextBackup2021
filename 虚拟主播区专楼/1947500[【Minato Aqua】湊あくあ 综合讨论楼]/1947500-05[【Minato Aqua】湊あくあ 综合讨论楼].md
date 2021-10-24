@@ -12859,3 +12859,19 @@ Apex马车之类的游戏现在没时间练，比以前菜不愿意播
 粉丝内卷化是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 7029#       发表于 2021-10-24 17:48
+
+
+...咋个说呢
+
+起码发了推特？
+
+
+推特上经常看到的那帮crew全肯定度也太高了，自叹不如
+
+

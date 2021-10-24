@@ -2176,3 +2176,29 @@ All in 可千！ ...</blockquote>
 岳父们又激动了，本岳父直接下注可恋！
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3177#       发表于 2021-10-24 17:48
+
+
+醒醒，三次元现在是合鲤当道了，懂不懂得膝枕的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cat1230  
+##### 3178#       发表于 2021-10-24 17:50
+
+
+要不第二季冲出地球，唱响宇宙吧，正好导出恋的真实身份是天顶星人。
+
+LOVELIVEマクロス！！
+
+然后接一部剧场版再接第三季。
+
+最后来一部特别剧场版定档2025年《LOVELIVE Flash Back 2025》完美谢幕。
+
+

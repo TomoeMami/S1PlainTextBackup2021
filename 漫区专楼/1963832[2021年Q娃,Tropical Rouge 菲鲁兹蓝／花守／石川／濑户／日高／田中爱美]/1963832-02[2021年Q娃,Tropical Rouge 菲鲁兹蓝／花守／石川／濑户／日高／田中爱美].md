@@ -10474,3 +10474,20 @@ B站东映动画那条动态下面好多Q娃的热评</blockquote>
 ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2260#       发表于 2021-10-24 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53251256&amp;ptid=1963832" target="_blank">necoconeco 发表于 2021-10-23 22:16</a>
+
+今年剧场版看完第2遍回来了。
+
+
+明年只有秋季剧场版，春季没有了……</blockquote>
+说说感受？
+
+

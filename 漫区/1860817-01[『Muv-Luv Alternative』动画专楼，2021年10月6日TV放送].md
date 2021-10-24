@@ -17981,3 +17981,32 @@ ALT世界线2001年还有巨硬XP吗</blockquote>
 筑地多惠是不是125里被驹木干掉的那位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  アーリィ  
+##### 1240#       发表于 2021-10-24 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257891&amp;ptid=1860817" target="_blank">yone0000 发表于 2021-10-24 15:19</a>
+
+筑地多惠是不是125里被驹木干掉的那位</blockquote>
+不是
+
+
+*****
+
+####  Toby_dak  
+##### 1241#       发表于 2021-10-24 17:58
+
+
+<blockquote>引用第1238楼yone0000于2021-10-24 16:19发表的  :
+
+筑地多惠是不是125里被驹木干掉的那位</blockquote>
+XM3试验时候掩护凉宫茜被BETA干掉的，游戏里面有语音没露脸。
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
