@@ -2244,3 +2244,18 @@ sanipa一场live没有就在那装懂哥
 其余说疫情影响，不如说为了CD能如期发售反过来限制剧情，不过二期能宣布还是蛮开心的，等看了
 
 
+
+
+*****
+
+####  qratosone  
+##### 3182#       发表于 2021-10-24 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53259752&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-24 18:23</a>
+恋第一季根本没钢琴位的相关剧情就很奇怪，难道是之前那些设定作废了？ ...</blockquote>
+第二集小千介绍的时候提过，然后第九集安排恋作曲，勉强也算
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
