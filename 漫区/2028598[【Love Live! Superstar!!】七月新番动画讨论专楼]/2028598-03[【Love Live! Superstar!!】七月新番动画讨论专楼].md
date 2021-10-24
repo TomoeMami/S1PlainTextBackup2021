@@ -1563,3 +1563,120 @@ https://www.bilibili.com/read/cv13703362
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  寒风夜  
+##### 3122#       发表于 2021-10-24 14:26
+
+
+好意外哦
+
+
+*****
+
+####  Piano-Forest  
+##### 3123#       发表于 2021-10-24 14:28
+
+
+ 本帖最后由 Piano-Forest 于 2021-10-24 14:39 编辑 
+
+💫新情報💫
+
+ラブライブ！スーパースター!!
+
+TVアニメ振り返り上映会にご参加いただいた皆様ありがとうございました🙌
+
+
+イベント内で
+
+🎊TVアニメ2期 制作決定🎊
+
+を大発表🎉
+[https://youtu.be/LkarvxGRn8U](https://youtu.be/LkarvxGRn8U)
+
+
+新たな物語をお楽しみに🌟
+
+
+🎥上映会アーカイブは11/2迄
+<img src="https://p.sda1.dev/2/675bbc0e029496149f0b0ffcdb762ce9/20211024_143756.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3124#       发表于 2021-10-24 14:29
+
+
+上映会宣布还行
+
+
+*****
+
+####  emmerMK2  
+##### 3125#       发表于 2021-10-24 14:30
+
+
+2期妙欸（虽然我不看动画）
+
+
+*****
+
+####  寒风夜  
+##### 3126#       发表于 2021-10-24 14:33
+
+
+ 本帖最后由 寒风夜 于 2021-10-24 14:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没啥说的，反正刚出企划就宣布动画了
+
+
+*****
+
+####  lj205  
+##### 3127#       发表于 2021-10-24 14:34
+
+
+哇（无表情）
+
+
+*****
+
+####  player3960  
+##### 3128#       发表于 2021-10-24 14:35
+
+
+还好没藏着掖着，现在给公布了，live上可以公布点别的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  离心  
+##### 3129#       发表于 2021-10-24 14:36
+
+
+哇，好意外哦
+
+
+*****
+
+####  Totokei  
+##### 3130#       发表于 2021-10-24 14:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以这么快公布图啥，大家都知道亲女儿了也没必要这么光速吧
+
+
+*****
+
+####  lj205  
+##### 3131#       发表于 2021-10-24 14:41
+
+
+那这么说明年就有的看了？
+
+
