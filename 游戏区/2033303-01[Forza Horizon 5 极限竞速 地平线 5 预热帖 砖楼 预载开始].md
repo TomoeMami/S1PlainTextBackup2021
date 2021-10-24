@@ -1036,3 +1036,47 @@ xbox版 新西兰区  4号19点
 这游戏玩大马力后驱要么是大佬跑长直线要么就是萌新自虐
 
 
+
+
+*****
+
+####  andychen  
+##### 72#       发表于 2021-10-24 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255456&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-10-24 11:27</a>
+
+你一定没有试过狗哥的Viper SRT10 ACR
+
+900级别调教四个十分上天入地无所不能手感好到你泪流满面 ...</blockquote>
+能分享下嘛，游戏里只搜到三个10分一个9.5的调教
+
+
+*****
+
+####  何然  
+##### 73#       发表于 2021-10-24 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53256625&amp;ptid=2033303" target="_blank">Xerxes_2 发表于 2021-10-24 13:16</a>
+
+这游戏玩大马力后驱要么是大佬跑长直线要么就是萌新自虐</blockquote>
+原来是车的问题
+
+我一直以为是跑车速度太快操纵性差，就没往下试了..
+
+
+*****
+
+####  Hanzong  
+##### 74#       发表于 2021-10-24 14:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257303&amp;ptid=2033303" target="_blank">何然 发表于 2021-10-24 14:20</a>
+原来是车的问题
+
+我一直以为是跑车速度太快操纵性差，就没往下试了..</blockquote>
+首先野马也不是超跑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+其次认准四驱车
+
+
