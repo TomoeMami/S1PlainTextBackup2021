@@ -1527,3 +1527,23 @@ https://www.bilibili.com/read/cv13703362
 鲤鱼还是有点点起伏的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3119#       发表于 2021-10-24 12:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这就是国内妹子平均水平啊
+
+
+*****
+
+####  kbtit  
+##### 3120#       发表于 2021-10-24 12:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">挺好的，又不是那种福利姬coser
+
+

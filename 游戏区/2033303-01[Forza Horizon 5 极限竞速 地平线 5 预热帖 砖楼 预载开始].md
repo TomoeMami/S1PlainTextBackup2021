@@ -1006,3 +1006,19 @@ xbox版 新西兰区  4号19点
 感谢，我发现只能通过搜索进入
 
 
+
+
+*****
+
+####  天神十三煞  
+##### 70#         楼主| 发表于 2021-10-24 12:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53256205&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-10-23 20:34</a>
+
+所以gamepass的那个dlc要怎么买，商店里dlc列表里就没有那个</blockquote>
+我顶楼放了连接
+
+直接进去就买了
+
+
