@@ -2114,3 +2114,65 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 他花田先辈能做个香哥哥的上海小娇妻就烧了高香了
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 3172#       发表于 2021-10-24 17:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香党做梦还是做得谨慎点
+
+可香发糖得与幼驯染组和冤家组两大党同时为敌
+
+
+*****
+
+####  saglork  
+##### 3173#       发表于 2021-10-24 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53259224&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-24 17:27</a>
+可香党做梦还是做得谨慎点
+
+可香发糖得与幼驯染组和冤家组两大党同时为敌 ...</blockquote>
+可堇千香，那就单着一个恋恋，可香意味着剩下三个都不知道怎么凑，所以选择一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 3174#       发表于 2021-10-24 17:39
+
+
+我觉得按花田的尿性 搞不好第二季会突然搞一点从三次元逆输入的CP
+那么情况已经很明显了
+All in 可千！
+
+
+*****
+
+####  秋月艾莉  
+##### 3175#       发表于 2021-10-24 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53259349&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-24 17:39</a>
+
+我觉得按花田的尿性 搞不好第二季会突然搞一点从三次元逆输入的CP
+
+那么情况已经很明显了
+
+All in 可千！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">千砂都、悪い人千砂都（火焰火焰火焰
+
+
+*****
+
+####  lj205  
+##### 3176#       发表于 2021-10-24 17:46
+
+
+岳父们又激动了，本岳父直接下注可恋！
+
+

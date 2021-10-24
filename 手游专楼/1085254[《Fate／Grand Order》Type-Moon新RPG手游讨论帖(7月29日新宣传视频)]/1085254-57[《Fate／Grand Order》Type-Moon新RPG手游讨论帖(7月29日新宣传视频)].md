@@ -1509,3 +1509,57 @@ FCYYVWvVgAg8yNT.jpg
 而且最后的剧情，怕不是本子剧情，如果真的发生怕不是切合语音那里”第一次是给谁了？“<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  シャル  
+##### 84131#       发表于 2021-10-24 17:32
+
+
+ 本帖最后由 シャル 于 2021-10-24 17:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53252502&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-10-23 23:53</a>
+
+反正最后既不会死也不会黑化，一点也慌不起来</blockquote>
+诶，变成南瓜头了.....<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+FCdARW8VIAYcTOB.png
+(75.29 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-24 17:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/173523lybsfbg4wkq4aqwb.png" referrerpolicy="no-referrer">
+
+
+FCdBI-vVQAEqnSI.jpg
+(198.27 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-24 17:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/173526ogn1mejgxy6qp9gv.jpg" referrerpolicy="no-referrer">
+
+
+FCdBKKWVEAA_7Wt.jpg
+(249.39 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-24 17:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/173527tsyb9x9pdbxn83il.jpg" referrerpolicy="no-referrer">
+
+
