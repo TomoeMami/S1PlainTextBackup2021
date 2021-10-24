@@ -8442,3 +8442,126 @@ syl 说实话，我感觉千鸟这个作息怕不是真的要噶了，三四点�
 文静：溜了溜了，煽情话说不出来了，说到底了
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 714#       发表于 2021-10-24 23:21
+
+
+嗯要脑补的话是白色打底+一件两个袖子颜色不一样的blazer？
+
+
+*****
+
+####  tn_teana  
+##### 715#       发表于 2021-10-24 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53256505&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-24 13:02</a>
+
+黑色裙子露腿那张是本人么？</blockquote>
+那是艾瑞思
+
+
+*****
+
+####  莫洛骑士  
+##### 716#       发表于 2021-10-24 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264017&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-24 23:21</a>
+嗯要脑补的话是白色打底+一件两个袖子颜色不一样的blazer？</blockquote>
+其实我是想的那种紧身的低胸毛衣，这样显出细胳膊和细腰，这样拄在桌子上向前探身可以露出更多的北半球🤤，也可能除了浅色的毛衣以外身上还多搭一个粉红色的小披肩
+
+
+*****
+
+####  tn_teana  
+##### 717#       发表于 2021-10-24 23:27
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/232656w4d21o42m45k4oo7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (8.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 23:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/232700ayd1yeeb4a1f1tae.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (209.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 23:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/232704m7xpsspa4goyygpy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (35.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 23:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/232704z0dl0de80eblz8mc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (12.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 23:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/232704tpittny9y30regdt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (15.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 23:27 上传
+
+
+我就想知道这从技术上可行吗？？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tn_teana  
+##### 718#       发表于 2021-10-24 23:30
+
+
+艹，原来是海子姐
+
+
+*****
+
+####  莫洛骑士  
+##### 719#       发表于 2021-10-24 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264089&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-10-24 23:27</a>
+我就想知道这从技术上可行吗？？？？？</blockquote>
+当然不可行，都糊成一团了还想还原人像和自己画没任何区别，你想画什么就能画什么，除非你给我几百张文静的自拍我给你训练个文静专用的GAN用来给文静自拍降噪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 720#       发表于 2021-10-24 23:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我真怀疑你们闲的程度
+那个贴我看了两楼 都猜到最后铁定给弄成010
+
+
