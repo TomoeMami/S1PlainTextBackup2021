@@ -4268,3 +4268,50 @@ reid你也变企业势了吗！
 油男居然是内拉祖里，取关了
 
 
+
+
+*****
+
+####  死体残留  
+##### 7794#       发表于 2021-10-24 20:12
+
+
+ 本帖最后由 死体残留 于 2021-10-24 20:14 编辑 
+
+【🎉クイズ大会開催！】
+リゼ・ヘルエスタ👑(
+@Lize_Helesta
+)と名取さな🍆(
+@sana_natori
+)による「名取&amp;リゼのたのしいたのしいクイズ大会」を開催！
+
+≪ 11/7(日) 20:00 ≫ 配信開始！！
+
+誘拐されるゲストは順次主催の2人から発表予定！
+お見逃しなく！
+
+ハッシュタグはこちら▼
+#なとリゼクイズ大会
+
+？田角属实大善人了，人家理都不理你的network一眼
+
+
+*****
+
+####  FCCHua  
+##### 7795#       发表于 2021-10-24 20:14
+
+
+茄子果然是虹编外成员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 7796#       发表于 2021-10-24 20:26
+
+
+海带头变爆炸头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/4877b547eab0fdcd3fb7c7d5153788d6/IMG_CMP_33287763.jpeg" referrerpolicy="no-referrer">
+
+

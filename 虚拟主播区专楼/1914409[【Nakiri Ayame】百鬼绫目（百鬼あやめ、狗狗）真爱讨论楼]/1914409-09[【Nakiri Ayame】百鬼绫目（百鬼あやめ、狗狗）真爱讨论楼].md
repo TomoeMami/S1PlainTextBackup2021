@@ -15625,3 +15625,32 @@ DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image
 2021-10-24 19:44 上传
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13319#       发表于 2021-10-24 20:02
+
+
+一年开一次MC的绫总
+
+<img src="https://img.saraba1st.com/forum/202110/24/200222rw2knwn7fznkf422.png" referrerpolicy="no-referrer">
+
+
+<strong>1635076853361.png</strong> (12.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 20:02 上传
+
+
+*****
+
+####  Fami水  
+##### 13320#       发表于 2021-10-24 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mc模型都不用换，还能继续上次那个体操服
+
+
