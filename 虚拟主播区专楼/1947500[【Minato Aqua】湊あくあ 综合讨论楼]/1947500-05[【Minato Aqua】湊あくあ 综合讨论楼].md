@@ -12911,3 +12911,14 @@ syl：Korosan播的勤（虽说也没去年勤），基本都是长时间游戏�
 只能说世界真奇妙
 
 
+
+
+*****
+
+####  星の守  
+##### 7033#       发表于 2021-10-24 19:41
+
+
+都是命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
