@@ -1172,3 +1172,23 @@ xbox版 新西兰区  4号19点
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">调校得好话其实开起来很舒服啊，比如前作的CCGT 魔法抓地力
 
 
+
+
+*****
+
+####  天神十三煞  
+##### 81#         楼主| 发表于 2021-10-25 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257287&amp;ptid=2033303" target="_blank">andychen 发表于 2021-10-23 22:18</a>
+
+能分享下嘛，游戏里只搜到三个10分一个9.5的调教</blockquote>
+啊 记错了
+
+四个10是995
+
+总之这车很好开
+
+应该是赛道玩具里最好用的
+
+
