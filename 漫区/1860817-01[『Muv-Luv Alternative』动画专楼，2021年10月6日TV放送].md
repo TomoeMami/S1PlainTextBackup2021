@@ -18035,3 +18035,28 @@ mla动画的角色数量，在动画里算多吗？目前官网公布的一部�
 按佐渡岛为止算，目前在包括外传动画中出场过的话，其他新面孔没几个了。纯新人应该只有百合组的另外一个还有大尉的姐妹们没在AGE的动画里面登场过了。
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 1244#       发表于 2021-10-24 22:17
+
+
+BETA新潟上陸時のBETA捕獲作戦
+
+2名、戦死。
+
+
+这两个女武神中队KIA的，连名字都没有。
+
+<img src="https://img.saraba1st.com/forum/202110/24/231718vfzc088lla7m87vt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Ohys-Raws] Muv-Luv Alternative - 03 (CX 1280x720 x264 AAC).mp4_snapshot_19.16.679.jpg</strong> (60.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 22:17 上传
+
+
