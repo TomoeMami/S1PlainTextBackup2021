@@ -12081,3 +12081,23 @@ syl 魔禁OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9021年了怎么还能有新人
 
 
+
+
+*****
+
+####  azccc52  
+##### 4061#       发表于 2021-10-24 13:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">新人是rp吧，一定是吧
+
+
+*****
+
+####  十九号大侠  
+##### 4062#       发表于 2021-10-24 13:26
+
+
+你麻麻的，b站天天掉关注，怎么可能有新人
+
+

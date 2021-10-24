@@ -17956,3 +17956,17 @@ ALT世界线2001年还有巨硬XP吗</blockquote>
 小茜的闺蜜，本篇里面我记得有名字出场，在ALTER FABLE里面有登场。
 
 
+
+
+*****
+
+####  jerryoq1  
+##### 1238#       发表于 2021-10-24 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255521&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-24 11:33</a>
+
+想不到两位兢兢业业搞muv-luv（系列游戏）直播的声优真的混到了饭票</blockquote>
+本篇里被变成猫的那个？
+
+
