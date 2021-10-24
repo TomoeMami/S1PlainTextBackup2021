@@ -1192,3 +1192,38 @@ xbox版 新西兰区  4号19点
 应该是赛道玩具里最好用的
 
 
+
+
+*****
+
+####  天神十三煞  
+##### 82#         楼主| 发表于 2021-10-25 01:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264276&amp;ptid=2033303" target="_blank">samta 发表于 2021-10-24 07:43</a>
+
+新手首选998不是CCGT么，没手都能开。</blockquote>
+CCGT不能直接买
+
+所以918才是新手首选啊
+
+
+*****
+
+####  天神十三煞  
+##### 83#         楼主| 发表于 2021-10-25 01:48
+
+
+ 本帖最后由 天神十三煞 于 2021-10-24 12:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264887&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-10-24 08:47</a>
+
+调校得好话其实开起来很舒服啊，比如前作的CCGT 魔法抓地力</blockquote>
+CCGT的分类是赛道玩具，998的话，顶速和加速都不太理想，
+
+这个分类的话本作MC12 FE才是魔法抓地力
+
+当然不能忘了你游神车
+
+599xx evo的998调教也很好开
+
+
