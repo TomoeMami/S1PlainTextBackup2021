@@ -938,3 +938,21 @@ xbox版 新西兰区  4号19点
 900级别调教四个十分上天入地无所不能手感好到你泪流满面
 
 
+
+
+*****
+
+####  何然  
+##### 66#       发表于 2021-10-24 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255340&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-10-24 11:15</a>
+
+这游戏没有改四驱解决不了的事
+
+如果有那就点剎</blockquote>
+我就整了个野马（应该是野马吧）
+
+跑了几圈觉得根本控制不了就放弃了...
+
+

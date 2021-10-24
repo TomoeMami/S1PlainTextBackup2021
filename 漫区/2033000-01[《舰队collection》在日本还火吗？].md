@@ -1586,3 +1586,40 @@ MD，怎么专楼外这么多包子脸粉我在楼里的时候都找不到几个
 火出圈的角色基本没包子脸，主人公吹雪多年人气惨得一比，一期结束时候的无畏愣是把欧美玩家干出土豆ptsd。。。。人气高一些的赤城加贺应该也是西八福上限了，就这样也就撑死和五航战姐妹俩五五开，口尼喜手里还握着一套傻级。。。。
 
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 130#       发表于 2021-10-24 11:46
+
+
+我也喜欢包子脸 温温柔柔的
+
+
+*****
+
+####  nightmare902015  
+##### 131#       发表于 2021-10-24 11:48
+
+
+ 本帖最后由 nightmare902015 于 2021-10-24 11:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53254307&amp;ptid=2033000" target="_blank">飞霞精灵 发表于 2021-10-24 08:04</a>
+倒不如说厌战这莫名其妙cos伊丽莎白女王造型就很离谱，到时候一号舰更难出了。。。航母萝莉化到真是c开的 ...</blockquote>
+龙骧确实幼，好歹是轻航，也不是不能理解。我关注点也是重点放在正航和战列上。
+厌战在c里面摆个女王造型确实怪，我个人想要的是那种奔三英伦轻熟女的感觉。。。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nightmare902015  
+##### 132#       发表于 2021-10-24 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53253422&amp;ptid=2033000" target="_blank">蓝色有脚⑨倍速 发表于 2021-10-24 01:25</a>
+什么，萝莉bba不是经典属性吗
+
+要这么说那画成熟女也不合理啊，不会真想在贰刺猿手游里看老奶奶立 ...</blockquote>
+什么鬼我又不是夕阳控<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，最理想的是设计一个紫妈那种，看上去就奔三熟女的，感觉吧。
+
+

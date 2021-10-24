@@ -4777,3 +4777,34 @@ cp0一直都在吧，估计是想渔翁得利？
 有种看《风云》的感觉。
 
 
+
+
+*****
+
+####  神隐の馒头  
+##### 55846#       发表于 2021-10-24 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53249923&amp;ptid=98922" target="_blank">C男人 发表于 2021-10-23 20:48</a>
+
+跑去看了一个老蔡的对战记录，简直惊人，
+
+
+打遍所有大佬，还没死，</blockquote>
+其中前半段都是因为跟着青椒啊<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  C男人  
+##### 55847#       发表于 2021-10-24 11:58
+
+
+青椒自己巅峰期的悬赏金也才5亿，
+
+
+能和50+亿的罗杰等人交战多次也是赚足了面子。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

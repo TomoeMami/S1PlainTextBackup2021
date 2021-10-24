@@ -1505,3 +1505,25 @@ https://www.bilibili.com/read/cv13703362
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">啊，周日了，今天不能批判花田好空虚
 
 
+
+
+*****
+
+####  lj205  
+##### 3117#       发表于 2021-10-24 11:41
+
+
+搬家把棒子都收起来了……临时买了根…………希望下周直连网络不要太差…………
+
+说起来，最近各种万圣节主题，不知道星团到时会不会也有万圣节内容
+
+
+*****
+
+####  chenflyyy  
+##### 3118#       发表于 2021-10-24 11:43
+
+
+鲤鱼还是有点点起伏的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
