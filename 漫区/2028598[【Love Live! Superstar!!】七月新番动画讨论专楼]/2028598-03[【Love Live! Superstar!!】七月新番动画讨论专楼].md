@@ -1988,3 +1988,23 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3159#       发表于 2021-10-24 16:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日升啊换个人写剧本吧
+
+
+*****
+
+####  lj205  
+##### 3160#       发表于 2021-10-24 16:35
+
+
+练舞戴那个白手套我以为防疫要求呢，都忘记wish song有戴了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
