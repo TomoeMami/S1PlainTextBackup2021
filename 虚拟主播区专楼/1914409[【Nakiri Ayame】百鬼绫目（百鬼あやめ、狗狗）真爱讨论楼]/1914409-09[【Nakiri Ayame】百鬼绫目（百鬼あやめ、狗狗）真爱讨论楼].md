@@ -15729,3 +15729,32 @@ DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image
 还能打lol？那没事了
 
 
+
+
+*****
+
+####  天悬星河  
+##### 13328#       发表于 2021-10-24 21:48
+
+
+10月与鬼相性不合<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 13329#       发表于 2021-10-24 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你妈嗨绫总每次套路都一样的，边打游戏边说自己病了
+
+
+*****
+
+####  Fami水  
+##### 13330#       发表于 2021-10-24 21:56
+
+
+原来还能打lol啊 那应该没什么大病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
