@@ -1468,3 +1468,29 @@ https://www.bilibili.com/read/cv13703362
 记得鲤鱼蕾姆的那个cos，衣服前面那块撑不起来w，虽然是还原设定就是了ww。
 
 
+
+
+*****
+
+####  cqc1021  
+##### 3114#       发表于 2021-10-24 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53246746&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-23 16:29</a>
+
+我才发现liyuu好平，</blockquote>
+那是真的平平无奇<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/b02f6544gy1ghbj4thyimj222o3401kz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3115#       发表于 2021-10-24 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53254707&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-24 09:42</a>
+记得鲤鱼蕾姆的那个cos，衣服前面那块撑不起来w，虽然是还原设定就是了ww。 ...</blockquote>
+她也不算没料，大概就是比较像小千那种，不是很大，但是肯定有B杯吧，有张坐楼梯那拍的照片就挺显的
+
+
