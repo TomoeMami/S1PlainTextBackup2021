@@ -2202,3 +2202,20 @@ LOVELIVEマクロス！！
 最后来一部特别剧场版定档2025年《LOVELIVE Flash Back 2025》完美谢幕。
 
 
+
+
+*****
+
+####  kata魂  
+##### 3179#       发表于 2021-10-24 18:16
+
+
+现在要完善的太多了
+
+sanipa一场live没有就在那装懂哥
+
+给恋一点表现的剧情吧，会舞蹈懂音乐这种重要的属性愣是在那划水，要是真缺cp塑造，可厨或者堇厨肯定想看，单推人谁不希望多一个cp呢，但还是离幼驯染那俩人远点最好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可可我只能求花田下手轻点，md第一季没有个人回没有solo就算了，第二季再毁了玩毛线。
+
+

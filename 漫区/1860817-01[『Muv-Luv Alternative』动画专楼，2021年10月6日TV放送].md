@@ -18010,3 +18010,17 @@ XM3试验时候掩护凉宫茜被BETA干掉的，游戏里面有语音没露脸�
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1242#       发表于 2021-10-24 18:14
+
+
+mla动画的角色数量，在动画里算多吗？目前官网公布的一部分就18人了，怎么感觉角色好多，声优也好多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+跟着剧情从头到尾的起码有十几二十个角色吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
