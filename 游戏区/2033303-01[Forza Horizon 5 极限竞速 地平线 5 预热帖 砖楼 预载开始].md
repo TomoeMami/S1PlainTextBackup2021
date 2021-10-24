@@ -919,3 +919,22 @@ xbox版 新西兰区  4号19点
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  天神十三煞  
+##### 65#         楼主| 发表于 2021-10-24 11:27
+
+
+ 本帖最后由 天神十三煞 于 2021-10-23 19:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255359&amp;ptid=2033303" target="_blank">andychen 发表于 2021-10-23 19:17</a>
+
+比起超跑，一些赛道跑车才是真的难开
+
+刹车和动力的性能都太好了，老年人反应不过来</blockquote>
+你一定没有试过狗哥的Viper SRT10 ACR
+
+900级别调教四个十分上天入地无所不能手感好到你泪流满面
+
+

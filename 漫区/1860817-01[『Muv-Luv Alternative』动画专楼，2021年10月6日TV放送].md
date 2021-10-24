@@ -17908,3 +17908,37 @@ ALT世界线2001年还有巨硬XP吗</blockquote>
 平行世界和轮回
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1236#       发表于 2021-10-24 11:33
+
+
+想不到两位兢兢业业搞muv-luv（系列游戏）直播的声优真的混到了饭票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/113149hsrk37lsq67llzyx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FCYoa3iVEAgz-p_.jpg</strong> (86.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 11:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/113156eqcmtn4onbu3km4r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FCYobHiVEAEV5E8.jpg</strong> (97.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 11:31 上传
+
+
+这个筑地多惠是哪个外传里的人物，还是近期新加的？
+
+

@@ -23028,3 +23028,35 @@ Ina三把狼什么鬼
 这游戏同个房间很容易这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  smy20011  
+##### 1442#         楼主| 发表于 2021-10-24 11:28
+
+
+<img src="https://img.saraba1st.com/forum/202110/24/112730f4xqden3ttea9q24.png" referrerpolicy="no-referrer">
+
+
+<strong>kwqlr7ywgbv71.png</strong> (112.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-24 11:27 上传
+
+
+Irys: 我就是议会
+
+
+*****
+
+####  smy20011  
+##### 1443#         楼主| 发表于 2021-10-24 11:29
+
+
+“Thank you Ina"
+
+论如何一句话暴露两个狼
+
+
