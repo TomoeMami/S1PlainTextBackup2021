@@ -1851,3 +1851,107 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 下一季说不定sp都毕业了，然后再找个敌团来，输在决赛后库亚西，第三年再来。
 
 
+
+
+*****
+
+####  saglork  
+##### 3146#       发表于 2021-10-24 15:24
+
+
+整挺好，真要明年，这次还真可能弄出三季动画来，第二季夺江山，第三季守擂+集体毕业，样板戏也好，香音传也好，轻音3也好，多整点，不挑食，最好每年来一部<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 3147#       发表于 2021-10-24 15:27
+
+
+这也太快了，前辈都没有这么快就公布第二季吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kbtit  
+##### 3148#       发表于 2021-10-24 15:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定本来就预定2季呢
+
+
+*****
+
+####  蜜梨柑  
+##### 3149#       发表于 2021-10-24 15:29
+
+
+公布就公布了，反正大家都知道肯定有的
+
+
+*****
+
+####  ads147147  
+##### 3150#       发表于 2021-10-24 15:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明爱生活真的接替了日升的高达的地位，专心做偶像番又有钱赚又不会出事，有什么不好。
+
+
+
+
+*****
+
+####  player3960  
+##### 3151#       发表于 2021-10-24 15:30
+
+
+管TM的，有我就看，可可回赶紧安排一个！早点播完了宣布第三季最好。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  qratosone  
+##### 3152#       发表于 2021-10-24 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53257970&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-24 15:28</a>
+说不定本来就预定2季呢</blockquote>
+肯定是必然要有二期的，但是这个速度已经快赶上分割放送了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  qratosone  
+##### 3153#       发表于 2021-10-24 15:33
+
+
+查了一下，水水一期也是7月放送的，然后到第二年（2017年）2月宣布二期，10月播。现在星团这么快就宣布二期，难不成真要弄成分割放送？
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 3154#       发表于 2021-10-24 15:36
+
+
+如果本质上这次就是分割放送，那么搞毛呢一期这个剧情写的，也写的完全不合规。这次的商业逻辑我真搞不懂，难道是疫情影响？
+
+
+*****
+
+####  死宅真恶心  
+##### 3155#       发表于 2021-10-24 15:38
+
+
+第二季可香反杀
+
+
