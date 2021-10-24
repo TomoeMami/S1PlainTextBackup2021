@@ -2046,3 +2046,71 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 烂归烂，但你定位就是2.5次元企划，我可以不看你二次元，但你不能没有，日升现在是不是就是这个想法所以在摆烂
 
 
+
+
+*****
+
+####  寒风夜  
+##### 3165#       发表于 2021-10-24 17:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">能不能下课
+
+
+*****
+
+####  chenflyyy  
+##### 3166#       发表于 2021-10-24 17:08
+
+
+现在公布二期到时live公布二单就挺好了，不会被糟心的动画毁掉看live的好心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 3167#       发表于 2021-10-24 17:08
+
+
+我就一点，别再让我看人见人爱的香音传了
+
+
+*****
+
+####  lj205  
+##### 3168#       发表于 2021-10-24 17:11
+
+
+赶紧走出自己的路吧，别再致敬无印了，5个那么优质的女孩不值得拥有完全属于她们自己的故事吗？
+
+
+*****
+
+####  稀勢のささ  
+##### 3169#       发表于 2021-10-24 17:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可这个第二季预告开头就是个私をかなえる物語　指不定就香音传第二季呢
+
+
+*****
+
+####  Norkey1  
+##### 3170#       发表于 2021-10-24 17:21
+
+
+追飞机，必须追飞机<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 3171#       发表于 2021-10-24 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53259137&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-24 17:18</a>
+
+可这个第二季预告开头就是个私をかなえる物語　指不定就香音传第二季呢 ...</blockquote>
+他花田先辈能做个香哥哥的上海小娇妻就烧了高香了
+
+
