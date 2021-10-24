@@ -1966,3 +1966,25 @@ TVアニメ振り返り上映会にご参加いただいた皆様ありがとう
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也别整可香啥的了，老老实实把唐可可回搞好，再把恋恋整活过来我就谢谢花田了
 
 
+
+
+*****
+
+####  lanslort  
+##### 3157#       发表于 2021-10-24 16:07
+
+
+只能说动画早就不是企划重心了，缪水虹星的每一位肉体厨都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  damian-wade  
+##### 3158#       发表于 2021-10-24 16:15
+
+
+这架势，三癞子巴不得早日交功课的感觉，看来也不用指望二期有太多改善了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
