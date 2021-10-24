@@ -2219,3 +2219,28 @@ sanipa一场live没有就在那装懂哥
 可可我只能求花田下手轻点，md第一季没有个人回没有solo就算了，第二季再毁了玩毛线。
 
 
+
+
+*****
+
+####  中野四葉  
+##### 3180#       发表于 2021-10-24 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">恋第一季根本没钢琴位的相关剧情就很奇怪，难道是之前那些设定作废了？
+
+
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3181#       发表于 2021-10-24 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53258052&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-24 15:36</a>
+
+如果本质上这次就是分割放送，那么搞毛呢一期这个剧情写的，也写的完全不合规。这次的商业逻辑我真搞不懂， ...</blockquote>
+其余说疫情影响，不如说为了CD能如期发售反过来限制剧情，不过二期能宣布还是蛮开心的，等看了
+
+
