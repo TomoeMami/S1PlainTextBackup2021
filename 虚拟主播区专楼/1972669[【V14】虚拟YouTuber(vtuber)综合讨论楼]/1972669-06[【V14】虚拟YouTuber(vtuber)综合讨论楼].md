@@ -4213,3 +4213,14 @@ reid你也变企业势了吗！
 很好奇油管炮是什么机制了
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7789#       发表于 2021-10-24 13:17
+
+
+郡東つねる（X）雀魂组合比赛（O）要开了，事到如今已经对郡道大赛运没有任何期望，跟熟人打输了也少丢点脸，我可不想看郡郡在决赛被614打哭<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+

@@ -1022,3 +1022,17 @@ xbox版 新西兰区  4号19点
 直接进去就买了
 
 
+
+
+*****
+
+####  Xerxes_2  
+##### 71#       发表于 2021-10-24 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255846&amp;ptid=2033303" target="_blank">何然 发表于 2021-10-24 12:01</a>
+我就整了个野马（应该是野马吧）
+跑了几圈觉得根本控制不了就放弃了...</blockquote>
+这游戏玩大马力后驱要么是大佬跑长直线要么就是萌新自虐
+
+
