@@ -15674,3 +15674,47 @@ DFM晋级了绫总会跟谁庆祝呢<img src="https://static.saraba1st.com/image
 啥情况啊 怎么突然就大病了
 
 
+
+
+*****
+
+####  夏小筱ss  
+##### 13323#       发表于 2021-10-24 21:09
+
+
+不是刚刚才打了lol吗？
+
+
+*****
+
+####  一仙  
+##### 13324#       发表于 2021-10-24 21:14
+
+
+有进步，以前消失那么久直接当无事发生的。
+
+这次好好解释了好几条推。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cctvyt1  
+##### 13325#       发表于 2021-10-24 21:16
+
+
+草 还真的打了一下午的排位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还能打游戏就不算大病<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 13326#       发表于 2021-10-24 21:18
+
+
+啊这
+
+这赛季没几天了，真的能上白金吗
+
+

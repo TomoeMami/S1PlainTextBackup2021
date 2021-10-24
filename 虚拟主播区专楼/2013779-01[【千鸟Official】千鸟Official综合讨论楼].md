@@ -8329,3 +8329,26 @@ syl 说实话，我感觉千鸟这个作息怕不是真的要噶了，三四点�
 琳唱歌实在是惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  丢了五块钱  
+##### 708#       发表于 2021-10-24 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53261012&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-10-24 20:16</a>
+琳这个生日有点寒酸，抽大会员，腾讯老东西怎么不爆点金币
+琳唱歌实在是惨不忍睹 ...</blockquote>
+琳姐唱歌还是从儿歌开始练吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 709#       发表于 2021-10-24 21:17
+
+
+琳唱歌很拉的  只能确定不是录音
+
+
