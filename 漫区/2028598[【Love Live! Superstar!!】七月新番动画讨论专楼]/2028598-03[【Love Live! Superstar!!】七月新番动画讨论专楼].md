@@ -1454,3 +1454,17 @@ https://www.bilibili.com/read/cv13703362
 长发大乃nako我好爱<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 3113#       发表于 2021-10-24 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53246829&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-23 16:39</a>
+
+看之前的cos照 挤挤还是有的</blockquote>
+记得鲤鱼蕾姆的那个cos，衣服前面那块撑不起来w，虽然是还原设定就是了ww。
+
+
