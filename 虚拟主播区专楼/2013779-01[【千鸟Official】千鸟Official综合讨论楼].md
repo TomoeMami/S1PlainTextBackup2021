@@ -8579,3 +8579,16 @@ syl 说实话，我感觉千鸟这个作息怕不是真的要噶了，三四点�
 已知文静是麻杆儿，麻杆儿就算有大凶也只是相对麻杆儿的大小而已。
 
 
+
+
+*****
+
+####  莫洛骑士  
+##### 722#       发表于 2021-10-25 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264666&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-25 00:19</a>
+已知文静是麻杆儿，麻杆儿就算有大凶也只是相对麻杆儿的大小而已。</blockquote>
+BW那张自拍也被删了，我也没有什么印象，但好像确实是个麻杆，三次元，你毁了多少人的梦！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+

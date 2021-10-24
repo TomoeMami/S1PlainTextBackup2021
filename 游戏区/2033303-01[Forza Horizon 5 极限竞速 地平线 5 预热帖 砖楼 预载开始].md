@@ -1155,3 +1155,20 @@ xbox版 新西兰区  4号19点
 野马也不算跑车…反正就是新手就搞个正常点的车魔改四驱，操控性就一般就没问题了，后驱和前驱操控性上都有其特点，并不是所有场合都适用
 
 
+
+
+*****
+
+####  Vladimeow  
+##### 80#       发表于 2021-10-25 00:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255198&amp;ptid=2033303" target="_blank">何然 发表于 2021-10-24 10:59</a>
+说来这游戏真的有人开超跑么
+
+我试了几次跑车感觉就驾驶难度也太高了
+
+长期就开个什么福克斯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">调校得好话其实开起来很舒服啊，比如前作的CCGT 魔法抓地力
+
+
