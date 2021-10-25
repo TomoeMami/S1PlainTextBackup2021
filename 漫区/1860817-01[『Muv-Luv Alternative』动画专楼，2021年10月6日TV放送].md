@@ -18085,3 +18085,33 @@ BETA新潟上陸時のBETA捕獲作戦
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1247#       发表于 2021-10-25 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53276412&amp;ptid=1860817" target="_blank">freyja_wion 发表于 2021-10-25 20:42</a>
+第四集先行图
+
+—— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+果然每集都有战术机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  hlazd  
+##### 1248#       发表于 2021-10-25 22:20
+
+
+04 仲間
+2001年11月24日。総合戦闘技術評価演習を優秀な成績でクリアした白銀武たちは、いよいよ戦術機操縦訓練へと移った。初めてのシミュレータで前人未到のスコアを叩き出す武。高く評価された武たちには訓練用の戦術機が充てがわれることとなった。そして訪れた格納庫で武は、この国で唯ひとつ―将軍専用の戦術機を目撃するのだった。
+
+
+该开始装逼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

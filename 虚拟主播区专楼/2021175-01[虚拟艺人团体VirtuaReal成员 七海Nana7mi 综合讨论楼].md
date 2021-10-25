@@ -3571,3 +3571,16 @@ akb tsh某预备生跑路，然后团里发了个通告叫她限期归队，她�
 你们海子姐的梗早就在河圈满地都是了呀……我也偶尔看看她打apex，因为时间上和我比较匹配。
 
 
+
+
+*****
+
+####  逸yi  
+##### 277#       发表于 2021-10-25 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277225&amp;ptid=2021175" target="_blank">AraTurambar 发表于 2021-10-25 21:52</a>
+你们海子姐的梗早就在河圈满地都是了呀……我也偶尔看看她打apex，因为时间上和我比较匹配。 ...</blockquote>
+其实她在河里的时候有元气活力的更多，现在基本属于抑郁半残没啥心理寄托了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+

@@ -2954,3 +2954,43 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 鲤鱼这时间表太恐怖了，9号在宫城开最后一场live，第二天东京办台历特典手递会
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3233#       发表于 2021-10-25 22:02
+
+
+………………无力吐槽事务所安排了…………个人活动稍微后面点不行吗…………
+
+
+*****
+
+####  黑雪姫  
+##### 3234#       发表于 2021-10-25 22:08
+
+
+星团动画第一季效应总结
+
+[https://tieba.baidu.com/p/7588498522](https://tieba.baidu.com/p/7588498522)
+
+
+*****
+
+####  cybernetics31  
+##### 3235#       发表于 2021-10-25 22:17
+
+
+恋惨………………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3236#       发表于 2021-10-25 22:21
+
+
+倒数第二段才是这人的心声吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
