@@ -4653,3 +4653,38 @@ ykmsm
 本人双手双脚赞成乐元素封杀反华直播工会女主播星街彗星，封号删数据终身不许玩es搞快点
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7824#       发表于 2021-10-25 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53272051&amp;ptid=1972669" target="_blank">缘一 发表于 2021-10-25 15:29</a>
+
+在推特首页刷到了es炎上holo的两位vtb，来专楼问下有没有老哥能大概给我科普下事情经过对着日语翻了 ...</blockquote>
+你不都说完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就es粉觉得封面和歌词碰瓷
+
+
+*****
+
+####  渡鸦骑士  
+##### 7825#       发表于 2021-10-25 16:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53272051&amp;ptid=1972669" target="_blank">缘一 发表于 2021-10-25 15:29</a>
+在推特首页刷到了es炎上holo的两位vtb，来专楼问下有没有老哥能大概给我科普下事情经过对着日语翻了 ...</blockquote>
+准确的说是es的二创条例里面有一条是不允许制作过于相似的东西自用。（对面举证的论据）
+但我寻思这首歌面对的对象和es的用户重叠不高，也不是二创。es不会管的。
+
+
+*****
+
+####  我不是很好  
+##### 7826#       发表于 2021-10-25 16:19
+
+
+虹人比杏人多的论坛好像只剩nga了吧
+
+

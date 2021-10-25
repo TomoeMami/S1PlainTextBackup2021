@@ -2724,3 +2724,26 @@ CD最务实，周边一定要掂量，买起来真的是没完，特别是整理
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  kimibsb  
+##### 3215#       发表于 2021-10-25 16:02
+
+
+我看着箱子里吃灰的好几十个邦邦吧唧
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 3216#       发表于 2021-10-25 16:10
+
+
+我用的最多的周边还是钥匙圈（
+
+趴趴在宿舍里放床上陪睡了一段时间后来用腻了就一直放柜子里了
+
+
