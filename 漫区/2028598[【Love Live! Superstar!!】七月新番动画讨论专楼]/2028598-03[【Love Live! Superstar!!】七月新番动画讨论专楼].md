@@ -2593,3 +2593,35 @@ op的趴趴要有了。感觉可以整个可可的
 不知道为什么鲤鱼的脸总让我想起某个stars的**…
 
 
+
+
+*****
+
+####  Norkey1  
+##### 3203#       发表于 2021-10-25 12:18
+
+
+看样子又是240的趴，从粘土人到第三版趴趴，各种意义上这个团进度都很快啊，钱包要被抽空力<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 3204#       发表于 2021-10-25 12:22
+
+
+这两个月对于dd来说过于难顶了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">要买的碟和周边好多
+
+
+*****
+
+####  player3960  
+##### 3205#       发表于 2021-10-25 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53269148&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-25 11:51</a>
+
+油管nonfiction的播放量涨势维持在一个不错的势头，110w播放了，B站的版本也99w了 ...</blockquote>
+小星星的123万感觉不久就要被超过了，另外nonfiction真人也快20w了
+
+
