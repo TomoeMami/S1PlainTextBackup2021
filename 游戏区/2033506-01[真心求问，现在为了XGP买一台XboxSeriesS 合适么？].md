@@ -729,3 +729,17 @@ xsx上架秒没，xss随时有货，已经很说明问题了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对画质要求不高,只想转PS5之前过渡的就买吧,反正我对战争机器4,5这个级别的画面很满意了
 
 
+
+
+*****
+
+####  qratosone  
+##### 65#       发表于 2021-10-25 15:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53271425&amp;ptid=2033506" target="_blank">overmindoyj 发表于 2021-10-25 14:41</a>
+
+现在买是买国行吗，切外服上xgp无障碍吧</blockquote>
+能买到啥就买啥，国行现在又可以换区了
+
+

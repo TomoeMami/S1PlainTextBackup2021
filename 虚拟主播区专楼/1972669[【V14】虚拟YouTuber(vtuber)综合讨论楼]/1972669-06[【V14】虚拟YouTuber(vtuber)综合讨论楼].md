@@ -4613,3 +4613,32 @@ ykmsm
 本土虹早就完了，反而现在en和kr玩在一起有点以前的味道
 
 
+
+
+*****
+
+####  缘一  
+##### 7820#       发表于 2021-10-25 15:29
+
+
+在推特首页刷到了es炎上holo的两位vtb，来专楼问下有没有老哥能大概给我科普下事情经过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对着日语翻了了半天没看懂，我也从来没看过v，只知道那张曲子新图封面有碰瓷嫌疑
+
+
+*****
+
+####  FCCHua  
+##### 7821#       发表于 2021-10-25 15:36
+
+
+草，阿床已经是木口的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 7822#       发表于 2021-10-25 15:39
+
+
+叛忍！叛忍！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
