@@ -979,3 +979,25 @@ tmd现在的crpg一眼就能看出是基佬的角色没完多久就会对玩家�
 还好我进第二章还没多远。要么读档重打把旗子拔了算了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  harmonytree  
+##### 66#       发表于 2021-10-25 11:06
+
+
+我的女指挥官戴着岱兰的定情信物和兰恩激情打拳，和艾露梦中牵手
+
+你说你是魅魔？我觉得我才是
+
+
+*****
+
+####  Elevation  
+##### 67#       发表于 2021-10-25 11:10
+
+
+所以这就凸显了不能恋爱的角色人气有多可贵了嘛，你看雷吉尔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

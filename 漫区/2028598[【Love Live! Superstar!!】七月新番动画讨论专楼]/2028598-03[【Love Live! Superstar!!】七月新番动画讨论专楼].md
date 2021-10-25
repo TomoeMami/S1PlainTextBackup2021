@@ -2485,3 +2485,68 @@ ID:ChLZyOF5(5/44)
 整张CD不是都已经能听了吗？……………………这周要发行的就是BD2的可可角色歌和动画结束后的Liella!之歌
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 3197#       发表于 2021-10-25 11:05
+
+
+【「ちょこっとリエラ」続編制作決定！】
+
+「ラブライブ！スーパースター!!」、「ちょこっとリエラ」の続編の制作が決定しました💫
+
+続編でもLiella!の日常エピソードをやわらかなタッチでお届けします！続報をお楽しみに💞
+<img src="https://p.sda1.dev/2/929452f10d900dad5bc19231ed8705a8/20211025_110408.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3198#       发表于 2021-10-25 11:26
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/112557u72cwp2bmrgogrbc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211025_112445.jpg</strong> (102.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 11:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/112557b9sm0m60w3szsq4g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211025_112449.jpg</strong> (109.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 11:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/112557oz8rrczcwwyww7z3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211025_112451.jpg</strong> (105.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 11:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/112557ydjkamzqjbse43qk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>202110250243117237.jpg</strong> (77.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 11:25 上传
+
+
+op的趴趴要有了。感觉可以整个可可的
+
+
