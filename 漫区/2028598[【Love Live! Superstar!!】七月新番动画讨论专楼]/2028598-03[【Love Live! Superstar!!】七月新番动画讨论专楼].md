@@ -3301,3 +3301,40 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 <img src="http://wx3.sinaimg.cn/mw690/001m6R4Ely1gvripszvc5j60wg1ocna602.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saglork  
+##### 3262#       发表于 2021-10-26 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53278938&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-26 00:24</a>
+唐可可就是鲤鱼本人没任何问题吧.</blockquote>
+不知道有没有人反向烤肉发推上帮liyuu炒一波人设，应该挺有话题度<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 3263#       发表于 2021-10-26 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53279034&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-26 00:38:18</a>
+不知道有没有人反向烤肉发推上帮liyuu炒一波人设，应该挺有话题度</blockquote>这么励志的故事，确实应该宣传宣传<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 3264#       发表于 2021-10-26 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53279034&amp;ptid=2028598" target="_blank">saglork 发表于 2021-10-26 00:38</a>
+
+不知道有没有人反向烤肉发推上帮liyuu炒一波人设，应该挺有话题度</blockquote>
+我正在翻译发推上，不过我的号没人关注就是了，估计不会散播很广
+
+
