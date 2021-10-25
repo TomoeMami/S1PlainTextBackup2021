@@ -846,3 +846,27 @@ XSS专门 玩XGP的老游戏，PS5专门玩新游戏出2手，看你需要哪个
 说到这想起来个问题，国内还有人做XBOX光碟二手回收生意吗
 
 
+
+
+*****
+
+####  Moritaka  
+##### 75#       发表于 2021-10-26 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53274755&amp;ptid=2033506" target="_blank">hotsmile 发表于 2021-10-25 18:40</a>
+2手比跨服买游戏省钱吧？例如近期我玩了审判之逝，远哭6，破晓传说，这些回血赚了100多，你XBOX跨服买游 ...</blockquote>
+我说xgp，你跟我说跨服买游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Moritaka  
+##### 76#       发表于 2021-10-26 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53278234&amp;ptid=2033506" target="_blank">战狼PTSD 发表于 2021-10-25 23:18</a>
+说到这想起来个问题，国内还有人做XBOX光碟二手回收生意吗</blockquote>
+一手几乎都没得买，二手更没有了，除了忍龙的盘
+
+
