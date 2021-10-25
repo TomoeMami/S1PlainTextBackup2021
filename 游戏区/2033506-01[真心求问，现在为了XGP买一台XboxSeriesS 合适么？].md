@@ -779,3 +779,16 @@ xsx上架秒没，xss随时有货，已经很说明问题了
 XSS专门 玩XGP的老游戏，PS5专门玩新游戏出2手，看你需要哪个
 
 
+
+
+*****
+
+####  Moritaka  
+##### 69#       发表于 2021-10-25 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53274229&amp;ptid=2033506" target="_blank">hotsmile 发表于 2021-10-25 17:53</a>
+XSS专门 玩XGP的老游戏，PS5专门玩新游戏出2手，看你需要哪个</blockquote>
+这话说的就像xgp只有老游戏一样，xgp新游戏一样立马玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
