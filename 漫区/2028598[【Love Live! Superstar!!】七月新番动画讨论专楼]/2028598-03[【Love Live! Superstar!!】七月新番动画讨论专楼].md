@@ -2994,3 +2994,41 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 倒数第二段才是这人的心声吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 3237#       发表于 2021-10-25 22:28
+
+
+严格说单独两话给恋还写成这个样子，动画给的是负面效果吧，我个人还是很不喜欢把抚子角色往奇怪的方向带的塑造方式，第一是写烂了，第二是花田也没写好过。
+
+说起来，现在是不是恋和可可都没有开场问候互动，小百合和pay到是很早就定下来了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  黑雪姫  
+##### 3238#       发表于 2021-10-25 22:33
+
+
+ 本帖最后由 黑雪姫 于 2021-10-25 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277547&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-25 22:21</a>
+倒数第二段才是这人的心声吧</blockquote>
+原作者买星团CD和BD都是成捆买的。
+你可以去壁吧专楼看下图片。
+应该没有啥私心。
+
+
+*****
+
+####  megapikachu  
+##### 3239#       发表于 2021-10-25 22:42
+
+
+很合理啊，现在的虹和星，上蛋基本算是强上，红白绝对是走后门才有可能，还以为是缪水那个时候呢。
+
+
