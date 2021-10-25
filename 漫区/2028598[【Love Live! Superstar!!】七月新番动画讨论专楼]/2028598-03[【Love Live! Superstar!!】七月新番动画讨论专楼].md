@@ -2432,3 +2432,18 @@ ID:ChLZyOF5(5/44)
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  ads147147  
+##### 3193#       发表于 2021-10-25 08:35
+
+
+一开始还以为是鲤鱼因为国籍语言的原因会很难融入，不过现在看怎么是青山独美了，好像之前采访的时候，小百合对青山第一印象是很cool的人，结果没想到是活宝。
+
+嗯，我看不懂sp动画果然是因为这动画其实是纪录片，现实世界不需要逻辑。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
