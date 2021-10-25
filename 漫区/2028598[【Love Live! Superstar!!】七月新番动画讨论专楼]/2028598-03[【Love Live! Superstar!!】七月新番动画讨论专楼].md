@@ -2805,3 +2805,14 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 我买cd和bd是为了收藏。基本到我手都没拆过…
 
 
+
+
+*****
+
+####  Norkey1  
+##### 3223#       发表于 2021-10-25 17:24
+
+
+自从疫情卡了一批徽章在日本，见证它价格狂跌三倍之后再也不买了换集式的了。对比来说果然还是手办玩偶衣服这些性价比比较高<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
