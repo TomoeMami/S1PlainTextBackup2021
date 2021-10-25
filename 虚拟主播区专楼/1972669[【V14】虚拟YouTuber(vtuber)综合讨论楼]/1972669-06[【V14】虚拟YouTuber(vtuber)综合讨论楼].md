@@ -4573,3 +4573,32 @@ ykmsm
 虹现在怎么这么蹭了，这个无人岛企划不就是抄油管那些户外管主的活吗？任色再评价<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  purdre  
+##### 7816#       发表于 2021-10-25 14:29
+
+
+要黑黑到位好吗😅什么抄户外管主，哪个户外管主视频编辑这么吵的，抄的是十年前的日本综艺好吧
+
+
+*****
+
+####  マドマコ  
+##### 7817#       发表于 2021-10-25 14:42
+
+
+很明显抄了黄金传说 无人岛生活啊，而且抄得不怎么样（）
+
+
+*****
+
+####  托帕帕  
+##### 7818#       发表于 2021-10-25 14:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你虹能抄出什么期待 播的时候就满屏评论黄金⚪说
+
+

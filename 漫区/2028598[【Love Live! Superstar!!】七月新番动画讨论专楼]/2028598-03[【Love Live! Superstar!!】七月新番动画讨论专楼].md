@@ -2647,3 +2647,46 @@ op的趴趴要有了。感觉可以整个可可的
 nonfiction阿b百万了。
 
 
+
+
+*****
+
+####  qratosone  
+##### 3208#       发表于 2021-10-25 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53269148&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-25 11:51</a>
+
+油管nonfiction的播放量涨势维持在一个不错的势头，110w播放了，B站的版本也99w了 ...</blockquote>
+依然姐那边已经百万了
+
+
+*****
+
+####  lj205  
+##### 3209#       发表于 2021-10-25 14:27
+
+
+本来想说单推没压力，然后就想起早上那两张CD扣款，都是钱钱钱，有种温水煮青蛙的感觉………………
+
+
+*****
+
+####  cybernetics31  
+##### 3210#       发表于 2021-10-25 14:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">追这企划真费钱。
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 3211#       发表于 2021-10-25 14:39
+
+
+星是我目前花钱最多的二次元企划了，偶像真能骗钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

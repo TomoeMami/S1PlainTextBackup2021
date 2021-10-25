@@ -1665,3 +1665,17 @@ FCdBKKWVEAA_7Wt.jpg
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  zakki  
+##### 84139#       发表于 2021-10-25 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53270905&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-25 14:03</a>
+
+萌新其实一直用的c狗 这次要练衣服所以用了蓝卡 我去试试一个c呆换奥某人 能行的话就不用选好友了 ...</blockquote>
+肯定可以，我用绿卡的团长单CBA都行。这么用主要就是助战懒得找对应礼装的C呆和CBA，开筛选MIX里随便挑一个就行
+
+
