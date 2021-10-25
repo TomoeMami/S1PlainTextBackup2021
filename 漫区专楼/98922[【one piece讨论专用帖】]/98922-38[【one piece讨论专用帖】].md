@@ -4871,3 +4871,20 @@ cp0一直都在吧，估计是想渔翁得利？
 op里卧薪尝胆的角色不缺，半仙这种看几率做选择结果还是一败涂地的反而很少见，关键是输得太蠢了，居然不知道基德没左手还拿他威胁基拉，实锤WT看贴吧233
 
 
+
+
+*****
+
+####  zxzx7753  
+##### 55853#       发表于 2021-10-25 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53258563&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-10-24 16:28</a>
+霍金斯完全看命做事，黄猿那次是他算命自己肯定不会有事，才这么刁，凯多他好像算胜算很少，才投了，本来这 ...</blockquote>
+wt就是要表现出那种不信命的气势
+就像路飞打人又不看身份  “坏东西惹到我朋友我就揍你”
+信命的和不信命的放一起就落了下层
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
