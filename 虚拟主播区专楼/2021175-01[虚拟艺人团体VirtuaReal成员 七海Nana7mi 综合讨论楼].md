@@ -3522,3 +3522,23 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  AraTurambar  
+##### 274#       发表于 2021-10-25 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53275342&amp;ptid=2021175" target="_blank">Litccc 发表于 2021-10-25 19:27</a>
+
+海子姐微博的评论里经常出现的背书包黄豆是啥意思</blockquote>
+akb tsh某预备生跑路，然后团里发了个通告叫她限期归队，她就发了几个这表情以示已经跑了。
+
+
+然后就哄地一声变成梗了，到处都在用。
+
+
+大概也没有什么实际意思吧，就是感觉很有趣。
+
+

@@ -15992,3 +15992,16 @@ lol都是绫总不懂事，打着玩的
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这直播次数，真有你的
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13350#       发表于 2021-10-25 21:24
+
+
+ 本帖最后由 cctvyt1 于 2021-10-25 21:27 编辑 
+
+4小时前开始排位 边看比赛边爬分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
