@@ -922,3 +922,60 @@ tmd现在的crpg一眼就能看出是基佬的角色没完多久就会对玩家�
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  最终兵器狂战  
+##### 62#       发表于 2021-10-25 10:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53248114&amp;ptid=2032462" target="_blank">upisud18 发表于 2021-10-23 18:34</a>
+
+不瞒你说，我第一个爱情火花奖杯就是莫名其妙和索锡尔解的，突出一个猝不及防
+
+
+ ...</blockquote>
+卧槽。。那个奖杯是。。、？？？
+
+
+我就刚到第二章，在营地逛街的时候岱兰突然触发了个对话说自己要退队啥的。我寻思这傻逼也没啥用，滚就滚吧。就随手选了一个同意他走的选项。结果给了我这么个奖杯。我就：“？？？？？？？？？”
+
+
+*****
+
+####  古代人皮克  
+##### 63#       发表于 2021-10-25 10:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">索哥直球告白的时候还请了乐队 实在有点不好意思拒绝了
+
+代兰倒是可以“我对你没那种意思”早点不进线
+
+
+*****
+
+####  neverlands  
+##### 64#       发表于 2021-10-25 11:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53268045&amp;ptid=2032462" target="_blank">最终兵器狂战 发表于 2021-10-25 10:50</a>
+卧槽。。那个奖杯是。。、？？？
+
+
+我就刚到第二章，在营地逛街的时候岱兰突然触发了个对话说自己要退队啥 ...</blockquote>
+正常情况下第二章就只能和这俩男的谈恋爱，女性角色的恋爱剧情都在第三章。毛子一定是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最终兵器狂战  
+##### 65#       发表于 2021-10-25 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53268273&amp;ptid=2032462" target="_blank">neverlands 发表于 2021-10-25 11:01</a>
+
+正常情况下第二章就只能和这俩男的谈恋爱，女性角色的恋爱剧情都在第三章。毛子一定是故意的 ...</blockquote>
+还好我进第二章还没多远。要么读档重打把旗子拔了算了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+

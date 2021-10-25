@@ -2471,3 +2471,17 @@ ID:ChLZyOF5(5/44)
 说起来Nonfiction完整版偷跑我记得出了。
 
 
+
+
+*****
+
+####  lj205  
+##### 3196#       发表于 2021-10-25 10:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53267723&amp;ptid=2028598" target="_blank">仟音一心 发表于 2021-10-25 10:32</a>
+
+说起来Nonfiction完整版偷跑我记得出了。</blockquote>
+整张CD不是都已经能听了吗？……………………这周要发行的就是BD2的可可角色歌和动画结束后的Liella!之歌
+
+
