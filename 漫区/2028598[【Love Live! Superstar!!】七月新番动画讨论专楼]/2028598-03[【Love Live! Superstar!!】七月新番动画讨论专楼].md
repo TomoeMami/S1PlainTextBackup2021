@@ -2918,3 +2918,17 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 <img src="https://img.saraba1st.com/forum/202110/25/200420tubs411zgxx1mz31.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cat1230  
+##### 3230#       发表于 2021-10-25 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53275242&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-10-25 19:18</a>
+
+还真有人买跳绳呀？跳绳随便一个不就好了吗？倒是想要唐可可同款🐼围巾，正好到冬 ...</blockquote>
+坛友ID是啥，我去关注等抽奖<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
