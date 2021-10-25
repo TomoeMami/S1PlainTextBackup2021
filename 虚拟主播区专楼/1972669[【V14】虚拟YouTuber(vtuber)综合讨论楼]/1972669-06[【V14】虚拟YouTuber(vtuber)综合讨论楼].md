@@ -4984,3 +4984,27 @@ bls作为大概是最冷淡的三人同期，我是完全get不到[ ...</blockqu
 当然还有很多如营业程度、联动次数等等前情，没有正常社交和人际交往的小心眼阿宅当然会对自己推的周边环境变化无谓地在意得不得了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sgssk  
+##### 7846#       发表于 2021-10-25 22:56
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/225057gzfcafnvbcydsa2n.png" referrerpolicy="no-referrer">
+
+
+<strong>RIT_3]3$WPAW~[](VB1}CPU.png</strong> (32.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 22:50 上传
+
+
+东雪莲这个跟日v朋友双双转世了也要贴贴的情景真是很奇妙，令人想起三年前据说和别的v只要线下见过就都会成为朋友的神乐女士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+朋友说是因为日v大多自闭阴角，被阳角交际花冲国人降维打击<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+

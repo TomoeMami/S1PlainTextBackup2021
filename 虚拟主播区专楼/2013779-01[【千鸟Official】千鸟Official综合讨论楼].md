@@ -8901,3 +8901,33 @@ syl拉权限干嘛……全是弱智发散和发情，照片糊的跟屎一样<i
 快进到直播吃辣条
 
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 749#       发表于 2021-10-25 22:42
+
+
+<blockquote>聊到之后的联动对象
+
+文静：以后联动的对象吓死你们，是个男v
+
+...
+
+弹幕：等别人的女粉把我拿下
+
+文静：没用，我要把别人的女粉揽到我自己的怀里挨个亲过去，女粉必被我俘获好吧
+
+文静：我女人缘可好了，大家都喜欢我，男人缘这种东西爱有不爱有吧，扎不多得了</blockquote>如果只是京华哥哥的话也好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这就戴上DD骑士化身京华女粉然后被静静搂入怀中
+
+
+*****
+
+####  T型钉宫病毒  
+##### 750#       发表于 2021-10-25 23:00
+
+
+鸟吧偷的，般配<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+

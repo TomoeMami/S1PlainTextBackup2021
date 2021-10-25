@@ -3032,3 +3032,113 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 很合理啊，现在的虹和星，上蛋基本算是强上，红白绝对是走后门才有可能，还以为是缪水那个时候呢。
 
 
+
+
+*****
+
+####  kbtit  
+##### 3240#       发表于 2021-10-25 22:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">其实看了下还挺有道理的，目前这ll企划就给我一种很急的感觉，只能说时代变了
+
+
+
+
+*****
+
+####  lj205  
+##### 3241#       发表于 2021-10-25 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277664&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-25 22:33</a>
+原作者买星团CD和BD都是成捆买的。
+你可以去壁吧专楼看下图片。
+应该没有啥私心。 ...</blockquote>
+那我觉得他这对比考虑的太少，特别是还拿水时期的数字来说事。星现在什么环境？疫情期间出道加三团并行，偶像企划百花齐放，游戏等于没有，动画做的啥样更不用说了。说资源给的多，我反而只看到上面想快点变现流量，把企划热度维持住，星开无观客live的时候，其他团还不是照样开正常live？唯一好点的就是安排前辈带了几次，得亏5个妹子争气，动画做成这样硬靠三次元救。星放在黄金时段也是企划唯一考虑突破的地方，宅群也就这么大范围了，该说也饱和了，再不想办法扩大客群以后也就这样吧，算是企划赌一把，而且也能维持跟nhk 的关系。
+
+
+*****
+
+####  cybernetics31  
+##### 3242#       发表于 2021-10-25 22:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上红白大概只在梦里……………………企划真的…………鲤鱼个人solo活动也是…………急的不行，那个场子开live铁定亏…………
+
+
+*****
+
+####  优妮可  
+##### 3243#       发表于 2021-10-25 22:55
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/225515cd0v8adctdwwis0n.png" referrerpolicy="no-referrer">
+
+
+<strong>6f533375fd3630a.png</strong> (44.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 22:55 上传
+
+
+官延区变鲤鱼liella区了。
+
+
+*****
+
+####  型月重工  
+##### 3244#       发表于 2021-10-25 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277547&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-25 22:21</a>
+
+倒数第二段才是这人的心声吧</blockquote>
+班大说这话还是有资格的.
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/225619sk818m9w9d4dw9a4.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211025225338.png</strong> (168.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 22:56 上传
+
+
+*****
+
+####  lj205  
+##### 3245#       发表于 2021-10-25 22:57
+
+
+星团最让人诟病的销量，插3又多卖了一些这不是好兆头吗？不管多少，但是还是有慢慢增长。
+
+说回鲤鱼，我就不知道他哪看的5张销量。虽然我也挺担心在P HALL这个场开演唱会，但说她销量没变化不太可能吧？我做为只有10年目的王国民，都观察到有好几个同为王国民的也关注了她甚至也入了fc的，说明她开始吸收同类型偶像的粉过来。当然后续怎样还得继续看，但肯定不会像上一单那样。
+
+
+*****
+
+####  cqc1021  
+##### 3246#       发表于 2021-10-25 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277964&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-25 22:55</a>
+
+官延区变鲤鱼liella区了。</blockquote>
+话说鲤鱼跟叔叔的合约到底还在不在了，感觉全靠粉丝用爱发电，叔叔并没怎么下大力气推
+
+
+*****
+
+####  lj205  
+##### 3247#       发表于 2021-10-25 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277978&amp;ptid=2028598" target="_blank">型月重工 发表于 2021-10-25 22:56</a>
+班大说这话还是有资格的.</blockquote>
+我从来没有谁有没有资格说话的想法，都是讨论，我也是就我的感受来说。
+
+
