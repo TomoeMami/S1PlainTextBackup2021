@@ -8791,3 +8791,25 @@ syl拉权限干嘛……全是弱智发散和发情，照片糊的跟屎一样<i
 1.0文静长的还行
 
 
+
+
+*****
+
+####  Finsty  
+##### 740#       发表于 2021-10-25 14:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我越发的相信二姨被招过去首先是团队运营，其次才是文静这个皮套工作
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  憧憬鲨  
+##### 741#       发表于 2021-10-25 14:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">文静真厉害啊，脑控妖女
+
+

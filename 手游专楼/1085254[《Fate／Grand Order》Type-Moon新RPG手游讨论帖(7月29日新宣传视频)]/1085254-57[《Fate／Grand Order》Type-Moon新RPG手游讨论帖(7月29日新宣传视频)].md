@@ -1636,3 +1636,32 @@ FCdBKKWVEAA_7Wt.jpg
 现在的普通本堆满追加小兵，脸好能有将近100组掉落，这90+估计能到150组？
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84137#       发表于 2021-10-25 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53269998&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-25 12:53</a>
+
+这种本都不用上双C呆，双cba，单cba，c呆配奥伯龙就够了。话说奥伯龙出来后我都没怎么用过双c呆了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新其实一直用的c狗 这次要练衣服所以用了蓝卡 我去试试一个c呆换奥某人 能行的话就不用选好友了
+
+
+*****
+
+####  黑上シグマ  
+##### 84138#       发表于 2021-10-25 14:12
+
+
+<blockquote>引用第84134楼zakki于2021-10-25 12:53发表的  :
+
+引用:alucardcz 发表于 2021-10-24 18:58希望以后所有活动都这样 再也不需要......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CBA早就15绊了，谁用啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
