@@ -1598,3 +1598,16 @@ FCdBKKWVEAA_7Wt.jpg
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  angelooo  
+##### 84134#       发表于 2021-10-25 11:37
+
+
+<blockquote>シャル 发表于 2021-10-24 17:32
+诶，变成南瓜头了.....</blockquote>
+感觉会出周边233
+
+
