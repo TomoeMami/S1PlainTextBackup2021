@@ -16005,3 +16005,16 @@ lol都是绫总不懂事，打着玩的
 4小时前开始排位 边看比赛边爬分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  stmule  
+##### 13351#       发表于 2021-10-26 05:24
+
+
+这播的次数，万组太真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
