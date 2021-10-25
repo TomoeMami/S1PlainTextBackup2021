@@ -4839,3 +4839,42 @@ k岛其实我也感觉变化挺大的，指和当年定型文能产出很多的�
 不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 7839#       发表于 2021-10-25 19:12
+
+
+ 本帖最后由 IDIDIDID 于 2021-10-25 19:16 编辑 
+
+正在直播的叛忍把点赞踩数字显示关掉了（虽然好像是工商）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+SYL：
+
+ES梦女战斗力就这啊
+
+<img src="https://img.saraba1st.com/forum/202110/25/191611lldgzvpcvclledyy.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (3.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 19:16 上传
+
+
+*****
+
+####  fastary  
+##### 7840#       发表于 2021-10-25 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53274109&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-10-25 17:45</a>
+
+没被valz组合粉痛喷过的是不是只剩下弦月了</blockquote>
+长尾是啥，求个细说？
+
+

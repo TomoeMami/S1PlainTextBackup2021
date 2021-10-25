@@ -2816,3 +2816,32 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 自从疫情卡了一批徽章在日本，见证它价格狂跌三倍之后再也不买了换集式的了。对比来说果然还是手办玩偶衣服这些性价比比较高<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 3224#       发表于 2021-10-25 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53272393&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-25 15:51</a>
+2月还有liyuu的一专，好在价钱比一根跳绳还便宜一丢丢
+
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+还真有人买跳绳呀？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳绳随便一个不就好了吗？倒是想要唐可可同款🐼围巾，正好到冬天了。买几个星团cd，等我3千粉丝了抽奖给粉丝哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 3225#       发表于 2021-10-25 19:20
+
+
+支持自己推的团有很多方式，比如我就是开始做拉拉二创哈，到时候来楼里推销一波，楼里大火们别嫌弃我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
