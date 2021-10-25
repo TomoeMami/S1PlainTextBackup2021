@@ -9017,3 +9017,63 @@ syl困了，一会敢突击电台就紫砂
 明天要被训了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 759#       发表于 2021-10-26 01:26
+
+
+虽然鸟批真的是，但是文静还没到可以切割独角兽的时候，我相信他也知道。
+
+
+*****
+
+####  莫洛骑士  
+##### 760#       发表于 2021-10-26 01:28
+
+
+ 本帖最后由 莫洛骑士 于 2021-10-26 01:37 编辑 
+
+我超，文静说这个月没直播了，我宣布停止呼吸直到下一次文静直播
+
+syl 她又说可以播了，文静又在pua静栗惹，文静我恨死你了😭😭😭
+
+
+*****
+
+####  tankai  
+##### 761#       发表于 2021-10-26 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53279295&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-26 01:14</a>
+
+🐤p裹挟主播真的是人家这么大物搞得跟蹭文静一样，这不是好事？还是au成分太高 ...</blockquote>
+应该没有1VS1里强逼羊驼就范的那些人在吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tankai  
+##### 762#       发表于 2021-10-26 01:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53279372&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-26 01:28</a>
+
+我超，文静说这个月没直播了，我宣布停止呼吸直到下一次文静直播</blockquote>
+啊!这不是两眼一黑.这是人整个晕过去了.不要哇~~~~~~~~~~~~~~~~~~~~磕头认错还不行吗?
+
+
+*****
+
+####  小憨1  
+##### 763#       发表于 2021-10-26 01:37
+
+
+ 本帖最后由 小憨1 于 2021-10-26 01:38 编辑 
+
+反转了，纯情静栗惹又被坏女人玩弄了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/020b2aaf395d1080ac47eb9191006812/46f458de3c45f43.jpg" referrerpolicy="no-referrer">
+
+
