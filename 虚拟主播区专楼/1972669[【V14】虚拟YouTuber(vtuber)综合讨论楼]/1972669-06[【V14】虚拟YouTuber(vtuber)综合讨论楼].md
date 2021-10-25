@@ -4451,3 +4451,26 @@ Syl，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及以前还有很多日V车轱辘环节，但是日V业界实在是平稳到没啥说的了，这一年内最重要的爆点还是打枪相关（vspo和cr），这一点也是主要在V综有小规模讨论吧，国内V圈关注这些的太少了，归根到底现在404V圈在国内V圈讨论里已经很边缘了，S1能剩几栋楼不错了。
 
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 7807#       发表于 2021-10-25 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53265819&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-10-25 07:46</a>
+
+我有段时间没看管了也不知道怎么演变的，总之现在想聊虹的基本去了隔壁nga，那边虹楼盖楼的速度还是很猛 ...</blockquote>
+大概是<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202110/25/091042kf731075knm4mn3n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>image.jpg</strong> (16.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 09:10 上传
+
+

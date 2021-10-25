@@ -1227,3 +1227,30 @@ CCGT的分类是赛道玩具，998的话，顶速和加速都不太理想，
 599xx evo的998调教也很好开
 
 
+
+
+*****
+
+####  有钱多买小人  
+##### 84#       发表于 2021-10-25 09:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264637&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-10-25 00:16</a>
+说起来风传本作有国产车来着…看来又扯淡了？
+
+—— 来自 S1Fun</blockquote>
+首发没有，据说日后更新。
+
+
+*****
+
+####  何然  
+##### 85#       发表于 2021-10-25 09:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264815&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-10-25 00:38</a>
+
+野马也不算跑车…反正就是新手就搞个正常点的车魔改四驱，操控性就一般就没问题了，后驱和前驱操控性上都 ...</blockquote>
+啊不算吗？我一直以为这玩意儿至少算个轿跑...
+
+
