@@ -1585,3 +1585,16 @@ FCdBKKWVEAA_7Wt.jpg
 正好要练新衣服不能用c狗 该回归蓝卡队了
 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84133#       发表于 2021-10-25 10:35
+
+
+三张出现率礼装终于都满破了，可以随便带礼装了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
