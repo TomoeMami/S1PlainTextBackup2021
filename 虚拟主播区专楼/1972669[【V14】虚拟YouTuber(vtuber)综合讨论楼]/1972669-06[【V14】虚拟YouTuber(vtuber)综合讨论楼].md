@@ -4953,3 +4953,19 @@ ES梦女战斗力就这啊
 很久之前搞不景罪然后mc整活，在valz都还是底边男的情况下小小的起飞，就被…了
 
 
+
+
+*****
+
+####  fastary  
+##### 7844#       发表于 2021-10-25 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53276075&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-10-25 20:18</a>
+
+很久之前搞不景罪然后mc整活，在valz都还是底边男的情况下小小的起飞，就被…了 ...</blockquote>
+草……运营喂饭是一回事，自己起来了还要带上同期的吗
+
+bls作为大概是最冷淡的三人同期，我是完全get不到<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+

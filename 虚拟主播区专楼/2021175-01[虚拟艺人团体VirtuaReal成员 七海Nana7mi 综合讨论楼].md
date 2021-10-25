@@ -3507,3 +3507,18 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 海子姐微博的评论里经常出现的背书包黄豆是啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  电磁炮233  
+##### 273#       发表于 2021-10-25 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53275342&amp;ptid=2021175" target="_blank">Litccc 发表于 2021-10-25 19:27</a>
+海子姐微博的评论里经常出现的背书包黄豆是啥意思</blockquote>
+她之前提了一嘴这个表情很可爱吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
