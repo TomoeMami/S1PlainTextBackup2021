@@ -1017,3 +1017,49 @@ tmd现在的crpg一眼就能看出是基佬的角色没完多久就会对玩家�
 雷吉尔应该是男性队友里面玩家平均好感度最高的了，心如钢铁，意志坚定，却又充满了灵活的守序底线一点也不死板，调戏起来也很有趣（队友剧情里选恶搞他的选项而又不选错重要选项最后他就会又佩服你的心智坚定又苦笑于你的幽默感），而且为指挥官和自己的意志宁愿牺牲自己这种桥段太经典加分了。
 
 
+
+
+*****
+
+####  dumplingpro  
+##### 69#         楼主| 发表于 2021-10-25 16:26
+
+
+ 本帖最后由 dumplingpro 于 2021-10-25 16:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53272145&amp;ptid=2032462" target="_blank">青天孤月 发表于 2021-10-25 15:35</a>
+
+可是不能攻略的小贼和雷吉尔反倒是最适合草皮炎的。
+
+小贼就不说了，标准弟系，队友剧情做完那段如果 ...</blockquote>
+可惜是个侏儒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+明明正义之怒，2个奥术人（狐狸和圣人烬）、 3个神术人（黑哥、爵爷、山茶）、2-3个弓箭（蓝恩、猫猫虫、爱酱），2个贼（小贼、加钱哥），后排/输出一点不缺。
+
+
+但前排很缺，只有希拉和雷哥，雷哥还是个敏捷型双持的，只有希拉是那种传统的前排。
+
+
+要是雷哥是个标准守邪重甲力量型战士多好。<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤井稻妻  
+##### 70#       发表于 2021-10-25 16:32
+
+
+贼和狐狸不能攻略真的太可惜了，女角色本来就没啥可选的空间，莱恩实在太无趣了
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 71#       发表于 2021-10-25 16:39
+
+
+我感觉我毛的感情线都没进，一心匡扶正义。
+
+结果休息的时候蓝恩对爱酱说“没想到我的对手是个女人”，真让人摸不着头脑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+

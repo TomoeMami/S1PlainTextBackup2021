@@ -4688,3 +4688,32 @@ ykmsm
 虹人比杏人多的论坛好像只剩nga了吧
 
 
+
+
+*****
+
+####  黑暗剑  
+##### 7827#       发表于 2021-10-25 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53272925&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-10-25 16:19</a>
+
+虹人比杏人多的论坛好像只剩nga了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">想多了，手游瓜版提木口的不要太多
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我不是很好| + 1|好的|
+
+
+查看全部评分
+
+
