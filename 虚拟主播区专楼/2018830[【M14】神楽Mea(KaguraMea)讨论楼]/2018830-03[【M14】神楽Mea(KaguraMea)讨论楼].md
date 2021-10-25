@@ -13599,3 +13599,84 @@ kinako和hinako还是有点区别的
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  JY要塞  
+##### 4192#       发表于 2021-10-25 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天坦克民也是大赢特赢
+
+
+*****
+
+####  ashero  
+##### 4193#       发表于 2021-10-25 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">兔妈妈 永远滴神 
+
+
+*****
+
+####  路人庚  
+##### 4194#       发表于 2021-10-25 21:10
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/211000c11gbdbtit1kffoo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7FC79F80-84FA-4584-AFC8-B73F928F31FC.jpeg</strong> (365.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 21:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/211002wpfdfxdt0buupugq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4E6078B6-E6DC-494B-8222-4793B6CD41A7.jpeg</strong> (352.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 21:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/211003oolmmm97yyv3zlns.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3E21B4A9-8FF5-422D-9D1C-64570EDE1B6C.jpeg</strong> (358.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 21:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/211006ep0nmpppjjyt222t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4534B76B-7812-44F5-85BC-A0BE7E3D8F53.jpeg</strong> (386.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 21:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/211012bl1bf1lvbqz8lfq1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>827BC282-E88D-4FC7-BE6C-CF0212619D8B.jpeg</strong> (158.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-25 21:10 上传
+
+
+来自：
+[https://mobile.twitter.com/G3_Gulden_Draak/status/1452622351250587653](https://mobile.twitter.com/G3_Gulden_Draak/status/1452622351250587653)
+[https://mobile.twitter.com/G3_Gulden_Draak/status/1452622316567810053](https://mobile.twitter.com/G3_Gulden_Draak/status/1452622316567810053)
+
+
