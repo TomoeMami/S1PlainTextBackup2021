@@ -3338,3 +3338,33 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 我正在翻译发推上，不过我的号没人关注就是了，估计不会散播很广
 
 
+
+
+*****
+
+####  iuhehc  
+##### 3265#       发表于 2021-10-26 01:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53278004&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-10-25 22:58</a>
+
+话说鲤鱼跟叔叔的合约到底还在不在了，感觉全靠粉丝用爱发电，叔叔并没怎么下大力气推 ...</blockquote>
+好像超电是管鲤鱼国内的活动而已
+
+
+*****
+
+####  黑雪姫  
+##### 3266#       发表于 2021-10-26 01:20
+
+
+ 本帖最后由 黑雪姫 于 2021-10-26 01:22 编辑 
+
+发推上了，中翻日就这水平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，能帮扩散帮扩散吧
+
+[https://twitter.com/we89623/status/1452685387449569282](https://twitter.com/we89623/status/1452685387449569282)
+
+
+谁能发到5CH拉板上也帮发一份
+
+

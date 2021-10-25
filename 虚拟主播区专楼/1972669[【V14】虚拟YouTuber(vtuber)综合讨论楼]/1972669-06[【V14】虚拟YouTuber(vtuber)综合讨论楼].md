@@ -5155,3 +5155,19 @@ bls作为大概是最冷淡的三人同期，我是完全get不到[ ...</blockqu
 喜欢贴中之人能不能去外面开新帖开啊<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7858#       发表于 2021-10-26 01:19
+
+
+由直播最后神秘怪文书棉花糖引发的...
+
+視聴者が増えることによって色んなコメントもあって難しい気持ちだ 全部が全部統率とるのはもちろん無理だけど私がネタで面白おかしくしてるのをマジに捉えて味方批判するのだけはまじでやめて欲しいなあ🥲
+私が煽ったのも悪かったなって配信でも言ったのそれは勿論そうなんだけどそれ以前に味方を批判したりリスナー同士でコメントで喧嘩すんのマジでやめて欲しい🥲喧嘩するのはいいけどTwitterとかdiscordとかでやって🥺🥺🥺
+
+这也太似曾相识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
