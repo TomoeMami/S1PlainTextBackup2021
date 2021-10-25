@@ -3142,3 +3142,94 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 我从来没有谁有没有资格说话的想法，都是讨论，我也是就我的感受来说。
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3248#       发表于 2021-10-25 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277994&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-25 22:57</a>
+
+星团最让人诟病的销量，插3又多卖了一些这不是好兆头吗？不管多少，但是还是有慢慢增长。
+
+
+说回鲤鱼，我就 ...</blockquote>
+我是不懂销量，我也不知道在哪查。
+
+但壁吧15级号在销量准确性方面的发言应该不会有错..
+
+
+*****
+
+####  lj205  
+##### 3249#       发表于 2021-10-25 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53278034&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-25 23:01</a>
+我是不懂销量，我也不知道在哪查。
+
+但壁吧15级号在销量准确性方面的发言应该不会有错..
+
+ ...</blockquote>
+销量超过一单就是胜利，虽然是专辑，我反正是这么想的。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3250#       发表于 2021-10-25 23:06
+
+
+这企划给人很急的感觉是真的，大概是因为疫情打乱了原来的计划
+
+
+*****
+
+####  优妮可  
+##### 3251#       发表于 2021-10-25 23:12
+
+
+官方只会急嘛，好歹动画手游用点心吧，总不能对新入坑的人都说去看三次元吧。其它方面给力点啊啊啊
+
+
+*****
+
+####  kbtit  
+##### 3252#       发表于 2021-10-25 23:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外面早就是手游和vtuber的天下了，更何况你拉手游这么拉胯，
+
+
+*****
+
+####  chenflyyy  
+##### 3253#       发表于 2021-10-25 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53278004&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-10-25 22:58</a>
+话说鲤鱼跟叔叔的合约到底还在不在了，感觉全靠粉丝用爱发电，叔叔并没怎么下大力气推 ...</blockquote>
+鲤鱼加入星团后在国内有被推的痕迹我就只记得当时刚宣布声优时买的微博热搜了，带来了一阵恶评，所以我觉得还是别强推好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过现在人气上来了叔叔却还是没任何推的迹象，好歹也是自家超电的艺人，很迷
+
+
+*****
+
+####  Blackson  
+##### 3254#       发表于 2021-10-25 23:19
+
+
+急不急，看星团接下来的巡演就知道了。让人感觉确实挺急的
+
+
+*****
+
+####  蜜梨柑  
+##### 3255#       发表于 2021-10-25 23:23
+
+
+鲤鱼还有和叔叔签约吗，我记得以前微博简介是有写超电文化签约的，现在已经没有了
+
+
