@@ -4888,3 +4888,18 @@ wt就是要表现出那种不信命的气势
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  klzxs  
+##### 55854#       发表于 2021-10-25 23:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">半仙这就是真的入伙了啊 屈服于四皇的恐怖了
+
+为凯多而战没什么问题 有问题的是他打输了（主要是还很难看） 以及百兽团注定也要失败
+
+在百兽团他还是比较有贡献的了 活捉过罗 妨碍过基德 都是差一点能影响战局的
+
+
