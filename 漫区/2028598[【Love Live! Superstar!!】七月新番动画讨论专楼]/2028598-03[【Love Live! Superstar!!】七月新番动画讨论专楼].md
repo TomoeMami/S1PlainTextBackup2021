@@ -3264,3 +3264,40 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 这么快，蹲一个资源
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3259#       发表于 2021-10-26 00:08
+
+
+我看了一个统计星团的40代，50代，60代受众要比之前三团的占比高好多，是因为拉拉人老了还是因为NHK播放的原因？？
+
+
+*****
+
+####  cat1230  
+##### 3260#       发表于 2021-10-26 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53278232&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-25 23:18</a>
+
+鲤鱼加入星团后在国内有被推的痕迹我就只记得当时刚宣布声优时买的微博热搜了，带来了一阵恶评，所以我觉 ...</blockquote>
+叔叔家这个点推鲤鱼也很怪啊。首先是连动画都不能好好播完，然后裂啦在日本活动鲤鱼又不能回国，加上疫情影响可能很长时间都只能日本限定，接着是CD&amp;BD国内也没正式引进，只有苹果的数字版，但这东西版权不在叔叔家他也不可能推这个。
+
+
+*****
+
+####  黑雪姫  
+##### 3261#       发表于 2021-10-26 00:24
+
+
+唐可可就是鲤鱼本人没任何问题吧.
+
+<img src="http://wx1.sinaimg.cn/mw690/001m6R4Ely1gvripsej8qj60wg1nrqiv02.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/001m6R4Ely1gvriprynlzj60wi1l4dsh02.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/001m6R4Ely1gvripspp3zj60wg1nr19z02.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/001m6R4Ely1gvripszvc5j60wg1ocna602.jpg" referrerpolicy="no-referrer">
+
+
