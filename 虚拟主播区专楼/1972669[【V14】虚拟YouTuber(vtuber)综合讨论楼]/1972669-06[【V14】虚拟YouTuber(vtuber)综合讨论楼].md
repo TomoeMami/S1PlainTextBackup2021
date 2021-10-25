@@ -4969,3 +4969,18 @@ ES梦女战斗力就这啊
 bls作为大概是最冷淡的三人同期，我是完全get不到<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7845#       发表于 2021-10-25 21:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53276425&amp;ptid=1972669" target="_blank">fastary 发表于 2021-10-25 20:43</a>
+草……运营喂饭是一回事，自己起来了还要带上同期的吗
+
+bls作为大概是最冷淡的三人同期，我是完全get不到[ ...</blockquote>
+当然还有很多如营业程度、联动次数等等前情，没有正常社交和人际交往的小心眼阿宅当然会对自己推的周边环境变化无谓地在意得不得了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+

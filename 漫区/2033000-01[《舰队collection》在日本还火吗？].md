@@ -1643,3 +1643,18 @@ MD，怎么专楼外这么多包子脸粉我在楼里的时候都找不到几个
 2021-10-24 21:53 上传
 
 
+
+
+*****
+
+####  smdzh2  
+##### 134#       发表于 2021-10-25 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53252203&amp;ptid=2033000" target="_blank">poor 发表于 2021-10-24 00:28</a>
+MD，怎么专楼外这么多包子脸粉我在楼里的时候都找不到几个同好
+
+—— 来自 vivo V1981A, Android 11 ...</blockquote>
+众所周知真爱早早就退坑了，自然不会去爬砖楼<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+

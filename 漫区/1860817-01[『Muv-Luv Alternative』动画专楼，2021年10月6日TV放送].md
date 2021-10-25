@@ -18072,3 +18072,16 @@ BETA新潟上陸時のBETA捕獲作戦
 相比之下黑色宣告就紧凑很多，刚开头就闻到刀子的味道<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  freyja_wion  
+##### 1246#       发表于 2021-10-25 20:42
+
+
+<img src="https://p.sda1.dev/2/8866ec2d145f7bafdf5768cf4843e0cd/IMG_CMP_213358699.jpeg" referrerpolicy="no-referrer">第四集先行图
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
