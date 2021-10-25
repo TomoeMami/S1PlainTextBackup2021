@@ -1079,3 +1079,19 @@ tmd现在的crpg一眼就能看出是基佬的角色没完多久就会对玩家�
 ppt里面因为指挥官没命令所以不会死的桥段太经典了
 
 
+
+
+*****
+
+####  cccjjjhhh  
+##### 73#       发表于 2021-10-25 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53263248&amp;ptid=2032462" target="_blank">The_Fool_ 发表于 2021-10-24 22:27</a>
+至高天领主，或者说乌鸦婆婆应该只是个半神吧，德丝娜这个管的特别多的真神都允许自己关注的爱露纱蕾自由恋 ...</blockquote>
+乌鸦奶奶就是罩她一下
+
+
+小烬直接引导了一个真神上位，背景挺深的
+
+

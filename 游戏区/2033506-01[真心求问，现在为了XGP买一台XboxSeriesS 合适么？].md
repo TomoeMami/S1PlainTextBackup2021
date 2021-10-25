@@ -743,3 +743,17 @@ xsx上架秒没，xss随时有货，已经很说明问题了
 能买到啥就买啥，国行现在又可以换区了
 
 
+
+
+*****
+
+####  DraQin  
+##### 66#       发表于 2021-10-25 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53254032&amp;ptid=2033506" target="_blank">920619lqy 发表于 2021-10-24 04:11</a>
+
+美帝这边也是XSS原价现货到处都是，XSX放货秒没，现在就只有微软自家会无规律的几天放个几次，每次不超过 ...</blockquote>
+1000刀的话和英国这边ebay行情也差不多，这边的行情基本上是600磅左右，最高可上到700磅
+
+
