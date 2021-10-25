@@ -2452,3 +2452,18 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 丽塔的步枪算特供么，一下打五六发射程却比喷子远<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6177#       发表于 2021-10-25 20:00
+
+
+ 本帖最后由 hypnossz86 于 2021-10-25 20:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">这最终boss后半用孤影无脑转圈被制裁了...
+
+这转圈散弹和留尾巴的冲刺挺容易就撞上了...有点被针对<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+

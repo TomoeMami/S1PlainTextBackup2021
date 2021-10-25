@@ -2879,3 +2879,42 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 国区LL除了一些歌会上的慢一点外没别的缺点 acg相关肯定是不如日区全的 国区主要就是便宜
 
 
+
+
+*****
+
+####  D麦林  
+##### 3228#       发表于 2021-10-25 19:46
+
+
+在SS里面看到一句
+
+不知道为什么觉得对原作精神理解极其到位的台词
+
+可可「自从在大赛输掉以后就没法对Sunny Passion冲了」
+
+
+*****
+
+####  稀勢のささ  
+##### 3229#       发表于 2021-10-25 20:04
+
+
+ 本帖最后由 稀勢のささ 于 2021-10-25 20:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 缺德打码
+
+
+58a1dafc1e178a82ac30e8b5ab03738da977e81b.jpg
+(130.4 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-25 20:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/25/200420tubs411zgxx1mz31.jpg" referrerpolicy="no-referrer">
+
+
