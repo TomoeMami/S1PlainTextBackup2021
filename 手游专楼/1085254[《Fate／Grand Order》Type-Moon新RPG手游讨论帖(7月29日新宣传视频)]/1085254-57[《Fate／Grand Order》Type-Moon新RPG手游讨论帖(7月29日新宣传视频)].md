@@ -1611,3 +1611,17 @@ FCdBKKWVEAA_7Wt.jpg
 感觉会出周边233
 
 
+
+
+*****
+
+####  zakki  
+##### 84135#       发表于 2021-10-25 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53260089&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-24 18:58</a>
+希望以后所有活动都这样 再也不需要考虑什么回收了
+正好要练新衣服不能用c狗 该回归蓝卡队了[/s ...</blockquote>
+这种本都不用上双C呆，双cba，单cba，c呆配奥伯龙就够了。话说奥伯龙出来后我都没怎么用过双c呆了
+
+

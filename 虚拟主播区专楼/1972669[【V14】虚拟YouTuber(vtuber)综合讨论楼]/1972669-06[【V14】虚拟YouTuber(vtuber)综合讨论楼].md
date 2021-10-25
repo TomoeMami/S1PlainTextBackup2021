@@ -4528,3 +4528,15 @@ Syl，
 踩来看mansan这波无理取闹还没多大 
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 7813#       发表于 2021-10-25 12:57
+
+
+而且说实话炎上点也不好理解，就连es粉内部都没多少赞同意见。
+有朋友问圈内的，似乎也不是那么在意的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
