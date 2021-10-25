@@ -2747,3 +2747,61 @@ CD最务实，周边一定要掂量，买起来真的是没完，特别是整理
 趴趴在宿舍里放床上陪睡了一段时间后来用腻了就一直放柜子里了
 
 
+
+
+*****
+
+####  kata魂  
+##### 3217#       发表于 2021-10-25 16:42
+
+
+拉拉系列的我除了cd和livebd外好像没买过别的，手办都没买过…
+
+
+*****
+
+####  lanslort  
+##### 3218#       发表于 2021-10-25 16:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我用的最多的周边是各种T恤，每天轮着穿。缪缪时代的那几件live场T够大穿着特别舒服，到了水之后严重缩水肥宅就穿不太下了，其实也还是溢价严重不过穿了几年也还好。现在一次live不同场能出不同的T也就懒得买了
+
+
+*****
+
+####  lanslort  
+##### 3219#       发表于 2021-10-25 16:46
+
+
+CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple music国区一个月10刀学生还能半价不香么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Totokei  
+##### 3220#       发表于 2021-10-25 16:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">基本上只买有用的（王之力抽选也算）或者真心想要的，其他钱就用来看live了
+
+甚至看live的棒子一直用通用的kb没有买官棒
+
+
+*****
+
+####  lj205  
+##### 3221#       发表于 2021-10-25 16:55
+
+
+买CD主要就是为了支持排行榜，然后就是LIVE门票，剩下的就是看周边，每段时期买几个差不多了，但是讲真钥匙圈和徽章真的买了好多<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 3222#       发表于 2021-10-25 16:57
+
+
+我买cd和bd是为了收藏。基本到我手都没拆过…
+
+

@@ -1063,3 +1063,19 @@ tmd现在的crpg一眼就能看出是基佬的角色没完多久就会对玩家�
 结果休息的时候蓝恩对爱酱说“没想到我的对手是个女人”，真让人摸不着头脑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  古代人皮克  
+##### 72#       发表于 2021-10-25 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53272145&amp;ptid=2032462" target="_blank">青天孤月 发表于 2021-10-25 15:35</a>
+
+可是不能攻略的小贼和雷吉尔反倒是最适合草皮炎的。
+
+小贼就不说了，标准弟系，队友剧情做完那段如果 ...</blockquote>
+ppt里面因为指挥官没命令所以不会死的桥段太经典了
+
+
