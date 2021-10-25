@@ -2943,3 +2943,14 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 各位大佬，要是哪有开新趴趴的预购求告知，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 3232#       发表于 2021-10-25 21:51
+
+
+鲤鱼这时间表太恐怖了，9号在宫城开最后一场live，第二天东京办台历特典手递会
+
+

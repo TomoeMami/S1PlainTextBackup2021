@@ -3542,3 +3542,32 @@ akb tsh某预备生跑路，然后团里发了个通告叫她限期归队，她�
 大概也没有什么实际意思吧，就是感觉很有趣。
 
 
+
+
+*****
+
+####  逸yi  
+##### 275#       发表于 2021-10-25 21:49
+
+
+ 本帖最后由 逸yi 于 2021-10-25 21:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277053&amp;ptid=2021175" target="_blank">AraTurambar 发表于 2021-10-25 21:34</a>
+akb tsh某预备生跑路，然后团里发了个通告叫她限期归队，她就发了几个这表情以示已经跑了。
+
+
+然后就哄地 ...</blockquote>
+你都来v版了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 刚好b综楼有了速成教程XD.
+
+
+*****
+
+####  AraTurambar  
+##### 276#       发表于 2021-10-25 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277200&amp;ptid=2021175" target="_blank">逸yi 发表于 2021-10-25 21:49</a>
+
+你都来v版了吗 刚好b综楼有了速成教程XD.</blockquote>
+你们海子姐的梗早就在河圈满地都是了呀……我也偶尔看看她打apex，因为时间上和我比较匹配。
+
+
