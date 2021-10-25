@@ -2845,3 +2845,37 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  D麦林  
+##### 3226#       发表于 2021-10-25 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53273344&amp;ptid=2028598" target="_blank">lanslort 发表于 2021-10-25 16:46</a>
+
+CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple music国区一个月10刀学生还能半价不香么[f:06 ...</blockquote>
+国区拉拉歌全吗 更新及时吗我得问下……
+
+我只有一个日区的账号 试用期三个月快到了 日区有点贵说实在（
+
+顺便问下其他ACG方面的歌全不全
+
+
+*****
+
+####  cybernetics31  
+##### 3227#       发表于 2021-10-25 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53275474&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-25 19:40</a>
+
+国区拉拉歌全吗 更新及时吗我得问下……
+
+我只有一个日区的账号 试用期三个月快到了 日区有点贵说实在（
+
+ ...</blockquote>
+国区LL除了一些歌会上的慢一点外没别的缺点 acg相关肯定是不如日区全的 国区主要就是便宜
+
+

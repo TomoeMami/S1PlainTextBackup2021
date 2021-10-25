@@ -3496,3 +3496,14 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 还好吧，也就圆脸修细了点，眼睛修大了点，鼻子修小了点
 
 
+
+
+*****
+
+####  Litccc  
+##### 272#       发表于 2021-10-25 19:27
+
+
+海子姐微博的评论里经常出现的背书包黄豆是啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
