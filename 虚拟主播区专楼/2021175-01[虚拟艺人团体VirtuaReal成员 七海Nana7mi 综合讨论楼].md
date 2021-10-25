@@ -3470,3 +3470,18 @@ BLB那图我懂，师徒又是啥梗</blockquote>
 另有其人每次这高P图都能让人赞叹，完全看不出是本人，强强
 
 
+
+
+*****
+
+####  GeraltzRivii  
+##### 270#       发表于 2021-10-25 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53273451&amp;ptid=2021175" target="_blank">zaz5554 发表于 2021-10-25 16:53</a>
+另有其人每次这高P图都能让人赞叹，完全看不出是本人，强强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差别确实有点儿大，相比公演时期来说。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+

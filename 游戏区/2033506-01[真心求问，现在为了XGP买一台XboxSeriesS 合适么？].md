@@ -792,3 +792,35 @@ XSS专门 玩XGP的老游戏，PS5专门玩新游戏出2手，看你需要哪个
 这话说的就像xgp只有老游戏一样，xgp新游戏一样立马玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nozomitech  
+##### 70#       发表于 2021-10-25 18:32
+
+
+你最近不高兴换电视的话完全可以啊。
+
+
+*****
+
+####  nozomitech  
+##### 71#       发表于 2021-10-25 18:32
+
+
+你最近不高兴换电视的话完全可以啊。
+
+
+*****
+
+####  hotsmile  
+##### 72#       发表于 2021-10-25 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53274388&amp;ptid=2033506" target="_blank">Moritaka 发表于 2021-10-25 18:06</a>
+
+这话说的就像xgp只有老游戏一样，xgp新游戏一样立马玩啊</blockquote>
+2手比跨服买游戏省钱吧？例如近期我玩了审判之逝，远哭6，破晓传说，这些回血赚了100多，你XBOX跨服买游戏再便宜也要600多吧？
+
+
