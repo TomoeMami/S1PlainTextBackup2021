@@ -3,7 +3,7 @@ import re
 import json
 from pathlib import Path
 import os
-import time 
+import time
 
 def mkdir(path):
     # 去除首位空格
@@ -28,14 +28,15 @@ def mkdir(path):
 rawpathdict = {
     'a' :  {
         '1' : './虚拟主播区专楼/2030967[【A22】A-SOUL讨论楼(10月8日-10月11日肯德基联动！）]/',
-        '3' : './虚拟主播区专楼/2028372[【A21】A-SOUL讨论楼(微信嘉然系列表情包发布！）]/',
         '2' : './虚拟主播区专楼/2031744[【A23】A-SOUL讨论楼(第三期舰长福利发放地址已经开始收集！)]/',
         '3' : './虚拟主播区专楼/2032163[【A24】A-SOUL讨论楼(10.16,11：30,抖音美好奇妙日）]/'
         },
     'b' : { '1' : './虚拟主播区专楼/2017705[【B32】VUP综合讨论楼]/',
-        '2' :'./虚拟主播区专楼/2023276[【B33】VUP综合讨论楼]/',
-        '3' :'./虚拟主播区专楼/2031332[【B34】VUP综合讨论楼]/',
-        '4' :'./虚拟主播区专楼/2032218[【B35】VUP综合讨论楼]/'
+            '2' :'./虚拟主播区专楼/2023276[【B33】VUP综合讨论楼]/',
+            '3' :'./虚拟主播区专楼/2031332[【B34】VUP综合讨论楼]/',
+            '4' :'./虚拟主播区专楼/2032218[【B35】VUP综合讨论楼]/',
+            '5' : './虚拟主播区专楼/2032707[【B36】VUP综合讨论楼]/',
+            '6' : './虚拟主播区专楼/2033508[【B37】VUP综合讨论楼]/'
      },
     'c' : { '1' : './虚拟主播区专楼/1966145[【C1】巧克拉拉／哔哩哔哩vup综合讨论楼]/',
     },
@@ -64,7 +65,7 @@ def get2levelfile(dirpath,allpath):
             for p in Path(pa).iterdir():
                 allpath.append(p)
         else:
-            allpath.append(pa) 
+            allpath.append(pa)
 # def getkwfile(flist, keyword):
 #     res = []
 #     for ff in flist:
@@ -91,7 +92,7 @@ if __name__ == "__main__":
         rawdata = []
         for filepath in pathdict[key].values():
             with open (filepath, 'r',encoding='UTF-8') as f:
-                lines = f.readlines() 
+                lines = f.readlines()
                 a = ''
                 for line in lines:
                     a += line.strip()
