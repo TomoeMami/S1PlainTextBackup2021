@@ -1095,3 +1095,18 @@ ppt里面因为指挥官没命令所以不会死的桥段太经典了
 小烬直接引导了一个真神上位，背景挺深的
 
 
+
+
+*****
+
+####  屑猫猫  
+##### 74#       发表于 2021-10-26 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53258285&amp;ptid=2032462" target="_blank">今晚吃啥 发表于 2021-10-24 15:59</a>
+全身像是这样式的</blockquote>
+我只记得猫猫虫是个小boss来着，没想到她原画这么吓人。谢谢你，毛子。
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

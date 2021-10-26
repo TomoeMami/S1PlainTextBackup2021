@@ -1784,3 +1784,48 @@ FCdBKKWVEAA_7Wt.jpg
 应该之后会有剧情补完吧....不会就这么挖坑不填吧
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84147#       发表于 2021-10-26 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53289620&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-10-26 19:42</a>
+
+选KISS最后出现的到底是啥.......莫雷最后那段剧情又是啥意思
+
+
+应该之后会有剧情补完吧....不会就这么挖坑 ...</blockquote>
+看立绘像是被雾气笼罩的三头龙，可能就是莎布尼古拉斯本尊吧
+
+“其形象为黑云般的巨大肉块，有着许多触手，以及滴着黏液的大嘴。”
+
+
+童话世界估计是莫雷用的障眼法（沙耶之歌并感），公主亲吻王子的实质是眷属回应邪神，只有做出“童话世界里不存在的行为”（大力出奇迹）才能破坏童话，中断仪式...大概。
+
+
+凶兆里那段话我怀疑是存在别的世界线（选kiss）但被事象剪定了？所以莫莱为了苟命来日方长才在主线里帮着打黑山羊（瞎猜的）
+
+
+高难本还没出呢，明天可能就有补充说明了...
+
+
+*****
+
+####  森兰丸  
+##### 84148#       发表于 2021-10-26 20:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53289844&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-10-26 20:03</a>
+
+看立绘像是被雾气笼罩的三头龙，可能就是莎布尼古拉斯本尊吧
+
+“其形象为黑云般的巨大肉块，有着许多触手 ...</blockquote>
+莫雷不是在凶兆里说了虽然她利用了这次特异点召唤邪神但特异点本身不是她搞出来的么....这个要说明吧
+
+
+不过也说了是类似于别宇宙的意志这种虚无缥缈的东西....真鸽了的话也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

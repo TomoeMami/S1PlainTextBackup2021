@@ -5448,3 +5448,44 @@ hnn的反应有趣捏<img src="https://static.saraba1st.com/image/smiley/face201
 露娜太好玩了，前面带oreapo结婚节奏，被hnn说了，又画了个自己趴着对着oreapo哭的，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7879#       发表于 2021-10-26 20:09
+
+
+ 本帖最后由 FCCHua 于 2021-10-26 20:19 编辑 
+
+大家都很懂，露娜逐渐消失，就剩oreapo，什么神回
+kmt存在感真高，三回啊三回
+
+
+*****
+
+####  Porsche  
+##### 7880#       发表于 2021-10-26 20:18
+
+
+三得利<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 7881#       发表于 2021-10-26 20:23
+
+
+ 本帖最后由 free 于 2021-10-26 20:26 编辑 
+
+[https://twitter.com/suntory_nomu/status/1452974774284554243](https://twitter.com/suntory_nomu/status/1452974774284554243)
+
+
+三得利今年之内活动暂时休止，还会投稿几首歌
+
+第四首原创曲制作决定
+
+明年活动再开，不是毕业
+
+
