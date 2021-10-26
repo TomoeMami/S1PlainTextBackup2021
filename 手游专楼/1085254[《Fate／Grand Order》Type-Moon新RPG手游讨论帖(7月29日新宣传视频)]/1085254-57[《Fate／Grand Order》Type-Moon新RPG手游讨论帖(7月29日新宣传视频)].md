@@ -1987,3 +1987,49 @@ FCdBKKWVEAA_7Wt.jpg
 无关碎碎念：现在异星神和beast的剧情有些纠缠在一起了，异星神凭依体自称BeastVII，打工仔杀狐是第四兽的替补，不过兽应该是伴随人类文明而生的，异星神作为外来者竟然能插手到变成终局兽，感觉人类的起源可能也有伏笔
 
 
+
+
+*****
+
+####  zakki  
+##### 84159#       发表于 2021-10-26 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290830&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-10-26 21:34</a>
+不一定是6.5，首先街机那边7章名字叫临界繁荣都市巴比伦，加上之前街机6章剧情中来推街机7章的兽和大YF应该 ...</blockquote>
+其实说白了这段看起来就是预告街机的剧情吧，感觉和手游没啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿提拉  
+##### 84160#       发表于 2021-10-26 23:07
+
+
+艹，刚剩一把的体力结果维护了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  zakki  
+##### 84161#       发表于 2021-10-26 23:14
+
+
+ 本帖最后由 zakki 于 2021-10-26 23:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53291344&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-10-26 22:16</a>
+杀狐如果放2.6.5就和道满差不多了，主线打异闻带王，支线打异星使徒。
+
+不过这样的话还差个正体不明的麻婆 ...</blockquote>
+杀狐又不是异星神使徒，2.65基本确定是杀狐的主场了，那个什么大社。至于麻婆，估计和村正一个待遇，在2.7异闻带里被解决。异星神是迦勒底亚斯基本石锤了吧，迦勒底亚斯的UO，U-奥尔加玛丽简写就是UO
+
+你后面说的那个，不就是兽的连锁显现吗。beast1显现时，终局之兽也同时显现。
+beast1盖提亚显现，雷夫把奥尔加玛丽塞进迦勒底亚斯，迦勒底亚斯产生意识，作为异星神beast7显现。
+盖提亚制造特异点，使得封印中的beast2提妈显现。
+盖提亚的魔神柱栞派搞事拉来杀生院被吞，杀生院作为beast3R显现。
+异星神制造印度异闻带，使得迦摩逃脱限制，作为beast3L显现。
+芙芙在终局特异点牺牲救马修，beast4位空缺，同一时刻使得专门为成为兽的beast4柯杨斯卡娅诞生。
+至于beast5和beast6基本也是这套逻辑，所以只有在fgo出现人理烧却的世界线才会连锁显现七个人类恶
+
+
