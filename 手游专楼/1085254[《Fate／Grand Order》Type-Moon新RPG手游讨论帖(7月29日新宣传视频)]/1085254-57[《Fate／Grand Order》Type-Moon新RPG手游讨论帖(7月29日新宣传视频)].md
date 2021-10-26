@@ -1846,3 +1846,26 @@ FCdBKKWVEAA_7Wt.jpg
 剩下的估计这次活动也不会说清楚了，应该是作为以后的活动的伏笔，另外莫雷的档案6活动通了也没有开，估计要留到那时候了。
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84150#       发表于 2021-10-26 21:11
+
+
+ 本帖最后由 Jamaisvu 于 2021-10-26 21:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290115&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-10-26 20:27</a>
+
+招出来的那个不是外神，轮廓看上去是三个头的龙之类的玩意，莫雷她自己也说了这个不是她想召唤的神
+
+最后还 ...</blockquote>
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是用塞式翻译法看的剧情，没搞清楚啥意思，以为是这个特异点不能召唤...其实之前黑山羊失控就能看出来仪式出错了。
+
+
+（对着咕哒用仪式，结果分裂成人畜无害南瓜头和邪神眷属黑山羊...怎么有种鬼泣5V和Urizen的既视感？.）
+
+
+启示录之兽这个推理太赞了，还真能对上，猜测2.6.5可能就是她当BOSS。2.5.5是想成为兽的道满守关底，下次也该轮到真的兽了。（所谓凶兆可能就是下个活动的预告吧）
+
+

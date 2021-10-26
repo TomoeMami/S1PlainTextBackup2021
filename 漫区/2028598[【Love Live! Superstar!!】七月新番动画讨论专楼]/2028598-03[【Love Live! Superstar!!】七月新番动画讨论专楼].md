@@ -3674,3 +3674,17 @@ https://share.api.weibo.cn/share/258199144.html?weibo_id=4696564100762518
 liyuu阿b29.9碗粉了不出意外的话明天就可以30碗粉了
 
 
+
+
+*****
+
+####  a92063256  
+##### 3290#       发表于 2021-10-26 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290355&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-26 20:49</a>
+
+大哥有推荐的店吗？求个介绍</blockquote>
+我平时也就是hpoi、塑唐、甘乐屋和叔叔家看哪家便宜就上哪买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也说不太上来哪家好坏
+
+
