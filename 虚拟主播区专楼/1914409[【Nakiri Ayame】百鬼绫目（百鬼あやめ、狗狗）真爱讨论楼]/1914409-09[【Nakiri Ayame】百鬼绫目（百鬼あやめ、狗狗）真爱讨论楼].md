@@ -16099,3 +16099,16 @@ lol都是绫总不懂事，打着玩的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 阿狼的面子你绫总还是要给的，毕竟做啥都给你一手包办了
 
 
+
+
+*****
+
+####  nian1538  
+##### 13359#       发表于 2021-10-26 22:34
+
+
+今天的lol也开始了啊
+
+明天早上看看战绩
+
+
