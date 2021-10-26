@@ -5425,3 +5425,26 @@ syl，bo这队看着豪华，全是cr冠军，结果一水的pubg初心者
 hnn的反应有趣捏<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7877#       发表于 2021-10-26 19:51
+
+
+雀魂跟斗牌联动的新机制还蛮有趣的，如果会读牌河的话就超好防，不知道郡东她们会不会一起玩一次，虽然本月已经联过太多次<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">…
+这回嘉宾请的豆猫我就去看了一下，感受到了一些才能性，好好干明年说不定能成一军男<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，羡慕啊
+
+
+*****
+
+####  Suzutsuki  
+##### 7878#       发表于 2021-10-26 19:56
+
+
+ 本帖最后由 Suzutsuki 于 2021-10-26 20:03 编辑 
+
+露娜太好玩了，前面带oreapo结婚节奏，被hnn说了，又画了个自己趴着对着oreapo哭的，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
