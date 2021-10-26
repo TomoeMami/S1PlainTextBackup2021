@@ -5231,3 +5231,24 @@ oreapo几页前还看到有人repo天天黏在一起打游戏怕不是真成了�
 评论都看不下去了第一次免费往后1000一次请改一下
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7863#       发表于 2021-10-26 09:51
+
+
+ 本帖最后由 poipanchao 于 2021-10-26 09:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53280196&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-10-26 08:15</a>
+她一直都是坏女人，从后半赛季排位就看出来不想仅限于和kmt，然而目前上分的程度
+还能不能播完itt了 ...</blockquote>
+hnn其实有点负反应连锁
+比赛常年坐牢，短时间内多次气持，上大师“被猎杀带躺”，之前因为kmt特殊地位影响不大，这个赛季kmt没了真是苦不堪言
+像reid几个就聪明一些，最多到公认最水猎杀猩猩
+
+昨晚跟giru的互动真实暴击cp厨，感觉是我一直怀疑的宅圈公主本性没藏好（）
+hnn啊…现在是你对oreapo的依赖度比kmt高的多，或者干脆快进到cp的结末环节吧
+（这里我推荐mihiru式结局，又真又刀，时人久久不能忘怀）
+
+

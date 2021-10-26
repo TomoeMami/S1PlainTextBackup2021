@@ -1254,3 +1254,17 @@ CCGT的分类是赛道玩具，998的话，顶速和加速都不太理想，
 啊不算吗？我一直以为这玩意儿至少算个轿跑...
 
 
+
+
+*****
+
+####  OneMice  
+##### 86#       发表于 2021-10-26 10:00
+
+
+https://www.microsoftstore.com.cn/xbox/xbox-wireless-controller-forza-horizon-5-limited-edition
+限定手柄开始预订
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
