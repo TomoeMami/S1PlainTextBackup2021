@@ -10590,3 +10590,14 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 然后第二年追加真的是海豹（<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  雷之  
+##### 2269#       发表于 2021-10-27 07:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">第二季可能？
+
+
