@@ -1694,3 +1694,20 @@ FCdBKKWVEAA_7Wt.jpg
 白送（？）16个金方块，YLS也是难得做一次好事了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84141#       发表于 2021-10-26 12:52
+
+
+<blockquote>引用第84139楼Jamaisvu于2021-10-26 12:45发表的  :
+
+可能火星，因为这次活动专门出了宝具强化用从者这个设定，我还和朋友吐槽，说YLS就是想克扣金方块。结果......</blockquote>
+不火星，大概冥王星吧
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
