@@ -5268,3 +5268,19 @@ hnn其实有点负反应连锁
 前几天直播里hnn提到和kmt有吵架，也不知道沟通成啥样，能不能赶紧来个痛快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 7865#       发表于 2021-10-26 14:49
+
+
+[https://youtu.be/lBi9qVBio4g](https://youtu.be/lBi9qVBio4g) <blockquote>@阿妹茉里_撒油:
+
+真的等了很久了，今天25:00（27号凌晨1点）送上来，说说不太好玩的暑假（未定）我留个存档！
+
+
+ 越狱直播 非常感谢&amp;说说这个不太好玩的暑假 [https://youtu.be/lBi9qVBio4g](https://youtu.be/lBi9qVBio4g) </blockquote>
+
+
