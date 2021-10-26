@@ -16088,3 +16088,14 @@ lol都是绫总不懂事，打着玩的
 狼媽媽親自點的名，綾總不上線的劇本只有一個，jill爆破了電腦，綾總揮淚砍jill
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 13358#       发表于 2021-10-26 15:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 阿狼的面子你绫总还是要给的，毕竟做啥都给你一手包办了
+
+
