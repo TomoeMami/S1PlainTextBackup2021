@@ -3688,3 +3688,47 @@ liyuu阿b29.9碗粉了不出意外的话明天就可以30碗粉了
 我平时也就是hpoi、塑唐、甘乐屋和叔叔家看哪家便宜就上哪买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也说不太上来哪家好坏
 
 
+
+
+*****
+
+####  Norkey1  
+##### 3291#       发表于 2021-10-26 21:21
+
+
+怎么一直在广播调戏纯情少女，鲤鱼你坏事做尽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  lj205  
+##### 3292#       发表于 2021-10-26 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290543&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-10-26 21:08</a>
+
+我平时也就是hpoi、塑唐、甘乐屋和叔叔家看哪家便宜就上哪买也说不太上来哪家好坏 ...</blockquote>
+谢谢。那我再留意一下这几家
+
+
+*****
+
+####  lj205  
+##### 3293#       发表于 2021-10-26 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290675&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-26 21:21</a>
+
+怎么一直在广播调戏纯情少女，鲤鱼你坏事做尽</blockquote>
+说不好鲤鱼真的会把佩佩带弯，我看这孩子对其他3人都不像对鲤鱼那样那么黏乎乎的
+
+
+*****
+
+####  中野四葉  
+##### 3294#       发表于 2021-10-26 21:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">几首liella之歌听下来最好听的还是pay版的message，pay清澈透亮的声线听起来真舒服
+
+
