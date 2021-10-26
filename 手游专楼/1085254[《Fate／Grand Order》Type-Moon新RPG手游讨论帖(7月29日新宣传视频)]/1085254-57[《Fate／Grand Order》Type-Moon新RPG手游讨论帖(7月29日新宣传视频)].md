@@ -2033,3 +2033,14 @@ beast1盖提亚显现，雷夫把奥尔加玛丽塞进迦勒底亚斯，迦勒�
 至于beast5和beast6基本也是这套逻辑，所以只有在fgo出现人理烧却的世界线才会连锁显现七个人类恶
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84162#       发表于 2021-10-26 23:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么维护了
+
+
