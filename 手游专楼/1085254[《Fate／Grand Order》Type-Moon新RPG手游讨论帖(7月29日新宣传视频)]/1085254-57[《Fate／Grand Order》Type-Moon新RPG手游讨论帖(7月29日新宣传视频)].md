@@ -1737,3 +1737,36 @@ FCdBKKWVEAA_7Wt.jpg
 怎么觉着这90+还不如之前的90本，三色混合掉落，敌人数量够多冲浪也痛快
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84144#       发表于 2021-10-26 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53286800&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-10-26 16:08</a>
+
+这件事隔壁撕过一轮了，还好你只是和朋友吐槽没去隔壁发帖，不然可能会被喷成狗...... ...</blockquote>
+这还能撕起来...难道是新人抱怨福利没有老玩家好？
+
+
+*****
+
+####  Jamaisvu  
+##### 84145#       发表于 2021-10-26 19:19
+
+
+第七节第三部分的选项，有一个头锤一个kiss，我一时恶趣味选了第二个，结果成功召唤了邪神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202110/26/191925svor4z6r1q1g6oqg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20211026_190802_com.excean.gspace.jpg</strong> (274.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-26 19:19 上传
+
+
