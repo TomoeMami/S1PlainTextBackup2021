@@ -3448,3 +3448,22 @@ https://twitter.com/we89623/status/14526853874495 ...</blockquote>
 可能是鲤鱼的微博把半年可见的设置取消了，所以有人又去考古了一波
 
 
+
+
+*****
+
+####  名津流  
+##### 3273#       发表于 2021-10-26 09:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53279334&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-26 01:20</a>
+
+发推上了，中翻日就这水平，能帮扩散帮扩散吧
+
+
+https://twitter.com/we89623/status/14526853874495 ...</blockquote>
+可以找推特上的粉头帮忙宣传
+
+比如 松霧寧祈 @NeikiNya
+
+
