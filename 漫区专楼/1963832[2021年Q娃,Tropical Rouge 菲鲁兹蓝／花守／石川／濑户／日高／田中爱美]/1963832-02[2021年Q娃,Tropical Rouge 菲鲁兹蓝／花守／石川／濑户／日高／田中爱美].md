@@ -10575,3 +10575,18 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 隔壁全开者好像已经决定让主角五人组的两人继续出演，不知道你Q会不会也如法炮制
 
 
+
+
+*****
+
+####  isa2456  
+##### 2268#       发表于 2021-10-27 04:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53292022&amp;ptid=1963832" target="_blank">京都不是城 发表于 2021-10-26 23:21</a>
+新宿的剧场版见面会归来，个人体感这次的质量可以说是十年来最佳了
+
+一改之前几部前辈回归基本只是来打架凑 ...</blockquote>
+然后第二年追加真的是海豹（<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
