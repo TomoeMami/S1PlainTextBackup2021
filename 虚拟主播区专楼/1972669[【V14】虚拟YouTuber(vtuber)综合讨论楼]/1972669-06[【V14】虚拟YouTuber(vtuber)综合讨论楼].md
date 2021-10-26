@@ -5402,3 +5402,26 @@ syl，bo这队看着豪华，全是cr冠军，结果一水的pubg初心者
 看了一下午我怎么觉得是三人互相带，全员钻三，如果是单纯她俩带hnn就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7875#       发表于 2021-10-26 19:25
+
+
+おばくん...都不演吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 7876#       发表于 2021-10-26 19:37
+
+
+ 本帖最后由 FCCHua 于 2021-10-26 19:41 编辑 
+
+谢谢你，露娜，成功带偏成oreapo结婚，还以为vspo大联动里不会出现
+hnn的反应有趣捏<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
