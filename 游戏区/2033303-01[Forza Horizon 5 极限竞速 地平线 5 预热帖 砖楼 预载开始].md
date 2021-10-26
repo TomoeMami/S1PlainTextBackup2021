@@ -1293,3 +1293,29 @@ https://b23.tv/fJL8GJ
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  phonixcry  
+##### 88#       发表于 2021-10-26 10:33
+
+
+开始扣预付款了，期待11月5日上车w （一开始打错日期了，编辑下
+
+
+*****
+
+####  qianoooo  
+##### 89#       发表于 2021-10-26 10:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264637&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-10-25 00:16</a>
+
+说起来风传本作有国产车来着…看来又扯淡了？
+
+
+—— 来自 S1Fun</blockquote>
+首发没有 后续可以慢慢加嘛
+
+

@@ -9131,3 +9131,16 @@ syl 她又说可以播了，文静又在pua静栗惹，文静我恨死你了😭
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我直接两眼一黑，两腿一蹬
 
 
+
+
+*****
+
+####  丢了五块钱  
+##### 769#       发表于 2021-10-26 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53279967&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-26 07:29</a>
+到处都是文静到处都是妈妈，这个团的未来已经很明显了</blockquote>
+这数据肯定有问题，白白弹幕里4.0都没有
+
+
