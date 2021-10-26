@@ -12934,3 +12934,16 @@ syl：Korosan播的勤（虽说也没去年勤），基本都是长时间游戏�
 crew屁用都没<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  星の守  
+##### 7035#       发表于 2021-10-26 22:09
+
+
+ 本帖最后由 星の守 于 2021-10-26 22:10 编辑 
+
+就卖了个萌，所以直播呢<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+

@@ -1934,3 +1934,56 @@ FCdBKKWVEAA_7Wt.jpg
 话说我有个朋友曾经这么吐槽：街机和手游就好像两个并列的异闻带，最后看流水决定谁被剪定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84156#       发表于 2021-10-26 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53291003&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-10-26 21:48</a>
+
+和街机有关系这个也很有可能，毕竟有两个不同的莫莱，男的剧情接续另一个巴比伦，女的就是凶兆了（好像读 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游把街机裁定，街机把手游裁定
+
+
+*****
+
+####  khxooo  
+##### 84157#       发表于 2021-10-26 22:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53291003&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-10-26 21:48</a>
+和街机有关系这个也很有可能，毕竟有两个不同的莫莱，男的剧情接续另一个巴比伦，女的就是凶兆了（好像读 ...</blockquote>
+那街机死定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 84158#       发表于 2021-10-26 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290686&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-26 21:22</a>
+
+2.65不是杀狐么，紫苑说杀狐会引发史上最大规模特异点，一次出来两只兽么？ ...</blockquote>
+杀狐如果放2.6.5就和道满差不多了，主线打异闻带王，支线打异星使徒。
+
+不过这样的话还差个正体不明的麻婆，不知道轮到啥时候。（2.7.1.5？）
+
+
+特异点是上个版本的事了，比较大的特异点都是和兽相关，杀狐如果想整个最大特异点的话，她一个四号替补还不够看，多拉几个出来捧场可能性挺大的...
+
+
+街机线既然有女梅林，那就是旧剑的世界了，那个世界是666兽的起源，其是否会在街机首秀也犹未可知。
+
+
+搞不好街机打6兽，手游打5兽，同步进行，再开个联动卡池啥的...
+
+
+这么看来莫莱的逼格在外星人里还算是个高的，灾难的引子，其他都是些小孩心智和恋爱脑...
+
+无关碎碎念：现在异星神和beast的剧情有些纠缠在一起了，异星神凭依体自称BeastVII，打工仔杀狐是第四兽的替补，不过兽应该是伴随人类文明而生的，异星神作为外来者竟然能插手到变成终局兽，感觉人类的起源可能也有伏笔
+
+
