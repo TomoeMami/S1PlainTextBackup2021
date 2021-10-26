@@ -9439,3 +9439,16 @@ A：“有取消的，也有本来这段时间就比较忙安排不上的，不�
 静肯
 
 
+
+
+*****
+
+####  憧憬鲨  
+##### 793#       发表于 2021-10-27 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53292088&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-26 23:27</a>
+文静对自己的期待特别大，但是静栗惹反而都是gachi粉居多，和别的主播完全是倒过来的，太有意思了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两者之间不冲突吧
+
+

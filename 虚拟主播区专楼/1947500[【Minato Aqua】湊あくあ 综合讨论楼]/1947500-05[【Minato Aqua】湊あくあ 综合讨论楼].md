@@ -12959,3 +12959,23 @@ crew屁用都没<img src="https://static.saraba1st.com/image/smiley/face2017/048
 没有心灵感应懒得猜到底谜语什么意思，爱咋样咋样吧
 
 
+
+
+*****
+
+####  越动天下  
+##### 7037#       发表于 2021-10-27 00:20
+
+
+あくたん今日唸る以外なんかあった？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 7038#       发表于 2021-10-27 00:22
+
+
+海想列车还没百万，确实是拉的不行，看看傻紫同时间段发的歌早过百万了
+
+
