@@ -1679,3 +1679,18 @@ FCdBKKWVEAA_7Wt.jpg
 肯定可以，我用绿卡的团长单CBA都行。这么用主要就是助战懒得找对应礼装的C呆和CBA，开筛选MIX里随便挑一个就行
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84140#       发表于 2021-10-26 12:45
+
+
+可能火星，因为这次活动专门出了宝具强化用从者这个设定，我还和朋友吐槽，说YLS就是想克扣金方块。
+
+结果今天突发奇想换了个C龙娘试试，竟然真的给金方块啊...<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+白送（？）16个金方块，YLS也是难得做一次好事了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+

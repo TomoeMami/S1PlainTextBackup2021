@@ -9175,3 +9175,41 @@ syl 她又说可以播了，文静又在pua静栗惹，文静我恨死你了😭
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这也是姨属性的威力啊
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 773#       发表于 2021-10-26 12:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">京华哥哥。
+syl:一想到原本没有交集的两人因为鸟p的臊皮开始暗生情愫……
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  袜子  
+##### 774#       发表于 2021-10-26 12:31
+
+
+绷不住了，看见楼友和我同一时间发问号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  huyuanhao120  
+##### 775#       发表于 2021-10-26 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53284005&amp;ptid=2013779" target="_blank">袜子 发表于 2021-10-26 12:31</a>
+绷不住了，看见楼友和我同一时间发问号
+
+—— 来自 S1Fun</blockquote>
+我刚关，又整啥了
+
+
