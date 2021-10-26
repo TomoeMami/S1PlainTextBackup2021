@@ -3539,3 +3539,20 @@ https://twitter.com/we89623/status/14526853874495 ...</blockquote>
 开始发裂啦歌了，赶在起飞前，现在开始滑行了，下完可可卡农的就关机～<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 3279#       发表于 2021-10-26 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277405&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-25 22:08</a>
+
+星团动画第一季效应总结
+
+
+https://tieba.baidu.com/p/7588498522</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，星星这粉丝年龄分布也太均匀了，怎么还有60代粉丝，黄金档合家欢一起边吃饭边看顺便入坑了吗
+
+
