@@ -5527,3 +5527,26 @@ OW这几年我都没看过<img src="https://static.saraba1st.com/image/smiley/fa
 三得利这个意思是从明年起转向直播势吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 7885#       发表于 2021-10-26 21:57
+
+
+[https://twitter.com/VILLS0321/status/1452953153742114819](https://twitter.com/VILLS0321/status/1452953153742114819)
+
+好像和前两届的人也差不多
+
+
+<img src="https://img.saraba1st.com/forum/202110/26/215730fvqovp0mdcplivkc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>vills3.jpg</strong> (207.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-26 21:57 上传
+
+

@@ -1914,3 +1914,23 @@ FCdBKKWVEAA_7Wt.jpg
 至于什么时候出真说不准，别太相信TM的伏笔会马上给你揭开，弄不好后面两个活动完全没关系拖到明年都是可能的
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84155#       发表于 2021-10-26 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290830&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-10-26 21:34</a>
+
+不一定是6.5，首先街机那边7章名字叫临界繁荣都市巴比伦，加上之前街机6章剧情中来推街机7章的兽和大YF应该 ...</blockquote>
+和街机有关系这个也很有可能，毕竟有两个不同的莫莱，男的剧情接续另一个巴比伦，女的就是凶兆了（好像读起来不对劲）
+
+
+希望手游能尽可能体验到所有的剧情吧...真和街机联动我就歇菜了...
+
+
+话说我有个朋友曾经这么吐槽：街机和手游就好像两个并列的异闻带，最后看流水决定谁被剪定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
