@@ -13733,3 +13733,26 @@ kinako和hinako还是有点区别的
 吃烤肉吃到凌晨了吗
 
 
+
+
+*****
+
+####  dsylolicon  
+##### 4200#       发表于 2021-10-26 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53277012&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-10-25 21:29</a>
+
+苔总和兔妈妈什么时候给你咩洗个脑，让她整点新衣服啊</blockquote>
+MEA的衣服:军服+重置、草莓、极光、MEU、泳装MEU(5)
+
+因幡的衣服:招待、女仆、幼儿园校服、文学少女(4)
+
+犬山的衣服:制服、夏季制服、女仆、旗袍、睡衣(5)
+
+以上不分2D3D
+
+
+其实两人的新衣服不比MEA多多少，只是由于用的多，所以存在感比较高
+
+
