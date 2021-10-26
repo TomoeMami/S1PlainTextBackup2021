@@ -3368,3 +3368,32 @@ CD不图抽选或者冲销量（现在也没人care了）也没必要买，apple
 谁能发到5CH拉板上也帮发一份
 
 
+
+
+*****
+
+####  ads147147  
+##### 3267#       发表于 2021-10-26 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53279334&amp;ptid=2028598" target="_blank">黑雪姫 发表于 2021-10-26 01:20</a>
+发推上了，中翻日就这水平，能帮扩散帮扩散吧
+
+
+https://twitter.com/we89623/status/14526853874495 ...</blockquote>
+帮扩了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  一个陆仁贾  
+##### 3268#       发表于 2021-10-26 08:17
+
+
+当年缪斯的FL上有水团和粉丝鲤鱼，颇有种麻中蓬告白的夜晚，草丛里蹲着沉和安奇的幽默感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
