@@ -3619,3 +3619,58 @@ https://tieba.baidu.com/p/7588498522</blockquote>
 话说那^_^淘宝那家 lovelive主题动漫周边店 靠谱吗？看着也是皇冠卖家，就他先开op趴趴的单
 
 
+
+
+*****
+
+####  a92063256  
+##### 3285#       发表于 2021-10-26 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53289648&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-26 19:44</a>
+
+话说那^_^淘宝那家 lovelive主题动漫周边店 靠谱吗？看着也是皇冠卖家，就他先开op趴趴的单 ...</blockquote>
+那家店平时看起来同一样东西总要比其他代购贵上那么一些，所以我从来没在那买过
+
+
+*****
+
+####  Karin11974  
+##### 3286#       发表于 2021-10-26 20:45
+
+
+心跳在跃动哪里能听吗
+
+
+*****
+
+####  lj205  
+##### 3287#       发表于 2021-10-26 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290270&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-10-26 20:41</a>
+
+那家店平时看起来同一样东西总要比其他代购贵上那么一些，所以我从来没在那买过 ...</blockquote>
+大哥有推荐的店吗？求个介绍
+
+
+*****
+
+####  chenflyyy  
+##### 3288#       发表于 2021-10-26 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290312&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-10-26 20:45</a>
+心跳在跃动哪里能听吗</blockquote>
+https://share.api.weibo.cn/share/258199144.html?weibo_id=4696564100762518
+
+
+*****
+
+####  离心  
+##### 3289#       发表于 2021-10-26 21:04
+
+
+liyuu阿b29.9碗粉了不出意外的话明天就可以30碗粉了
+
+
