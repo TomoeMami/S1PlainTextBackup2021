@@ -5200,3 +5200,19 @@ bls作为大概是最冷淡的三人同期，我是完全get不到[ ...</blockqu
 syl 见证了推特上一位oreapo cp粉的破防全过程<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fastary  
+##### 7861#       发表于 2021-10-26 09:01
+
+
+oreapo几页前还看到有人repo天天黏在一起打游戏怕不是真成了，现在这一转快掰了的感觉莫名生草<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说起来最初听说的时候看人设我还以为是官设情侣出道，绑定成这样说换人营业就能换，这就是业界吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+虽然对我来说一切bgcp营业看起来都更假了是好事(小声)
+
+
