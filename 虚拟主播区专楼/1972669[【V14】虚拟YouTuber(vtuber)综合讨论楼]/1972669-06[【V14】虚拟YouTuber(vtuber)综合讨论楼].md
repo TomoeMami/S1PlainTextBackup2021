@@ -5252,3 +5252,19 @@ hnn啊…现在是你对oreapo的依赖度比kmt高的多，或者干脆快进�
 （这里我推荐mihiru式结局，又真又刀，时人久久不能忘怀）
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7864#       发表于 2021-10-26 10:21
+
+
+ 本帖最后由 FCCHua 于 2021-10-26 10:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53281218&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-10-26 09:51</a>
+hnn其实有点负反应连锁
+比赛常年坐牢，短时间内多次气持，上大师“被猎杀带躺”，之前因为kmt特殊地位影 ...</blockquote>
+其实前半赛季一切正常甚至个人感觉这两位的腻歪程度到达顶峰，可能这就是物极必反，一切的转折都是从后半赛季开始，什么唐突联动otaku，排位也不和之前一样经常在一起
+前几天直播里hnn提到和kmt有吵架，也不知道沟通成啥样，能不能赶紧来个痛快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

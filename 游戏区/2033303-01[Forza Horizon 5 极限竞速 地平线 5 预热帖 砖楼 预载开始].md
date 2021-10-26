@@ -1268,3 +1268,28 @@ https://www.microsoftstore.com.cn/xbox/xbox-wireless-controller-forza-horizon-5-
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
+
+
+*****
+
+####  4ckc  
+##### 87#       发表于 2021-10-26 10:21
+
+
+搬一个数毛社的分析，文本摘要是贴吧来的
+https://b23.tv/fJL8GJ
+
+
+<img src="https://img.saraba1st.com/forum/202110/26/102215qmvxbthbzzpev6cy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_1846.JPG</strong> (454.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-26 10:22 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
