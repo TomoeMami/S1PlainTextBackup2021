@@ -2044,3 +2044,47 @@ beast1盖提亚显现，雷夫把奥尔加玛丽塞进迦勒底亚斯，迦勒�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么维护了
 
 
+
+
+*****
+
+####  khxooo  
+##### 84163#       发表于 2021-10-26 23:43
+
+
+忘记清体力了。
+
+
+*****
+
+####  森兰丸  
+##### 84164#       发表于 2021-10-26 23:46
+
+
+油管官方号放出了龙娘唱的这次活动主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 84165#       发表于 2021-10-26 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53291943&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-26 23:14</a>
+
+杀狐又不是异星神使徒，2.65基本确定是杀狐的主场了，那个什么大社。至于麻婆，估计和村正一个待遇，在2. ...</blockquote>
+啊对，记错了，三使徒是村正道满麻婆三个AE，狐狸是合作关系。
+
+
+UO应该指的是每个星球的最强个体吧，朱红之月、天之残骸、黑色十字啥的，迦勒底亚斯何德何能变成星球规模了...不过FE世界的月之圣杯就是超级计算机，迦勒底经历了这么多自己成精也说不定...
+
+
+但异星这个概念还是指外星人吧，二部序章美军基地里那种...会不会那个外星人就是奥尔加玛丽（或有关系）？比如第一部前几章经常闪回一个人在实验室里的记忆，后面告诉说是马修...外星人说不定也是伏笔...
+
+
+O=奥尔加感觉有点牵强，虽然自称地球元首就挺不正经的，玩玩谐音梗也情有可原吧...
+
+
+其实我平时不怎么关注讨论，很多想法和推理都头回听说，抱歉<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过你列的连锁显现真的挺有道理的，闪闪在第一部说兽是连续出现的，我还以为是1234567这样依次登场，但如果1能直接招致7的诞生，伏笔就很厉害了。
+
+

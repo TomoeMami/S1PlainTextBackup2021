@@ -9425,3 +9425,17 @@ A：“有取消的，也有本来这段时间就比较忙安排不上的，不�
 文静对自己的期待特别大，但是静栗惹反而都是gachi粉居多，和别的主播完全是倒过来的，太有意思了。
 
 
+
+
+*****
+
+####  lunaticfear  
+##### 792#       发表于 2021-10-26 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53291932&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-26 23:13</a>
+
+说文静是吸血鬼，压力怪从来都不是黑屁。作为自愿绿叶的静栗惹可能早已习惯了，但是作为理智的旁观者，我只 ...</blockquote>
+静肯
+
+

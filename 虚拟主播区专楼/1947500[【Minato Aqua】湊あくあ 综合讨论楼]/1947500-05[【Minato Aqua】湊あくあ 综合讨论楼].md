@@ -12947,3 +12947,15 @@ crew屁用都没<img src="https://static.saraba1st.com/image/smiley/face2017/048
 就卖了个萌，所以直播呢<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 7036#       发表于 2021-10-27 00:03
+
+
+一般都是挨了打的角色会发出这种声音的样子
+没有心灵感应懒得猜到底谜语什么意思，爱咋样咋样吧
+
+
