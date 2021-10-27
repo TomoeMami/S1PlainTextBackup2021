@@ -5637,3 +5637,18 @@ OW这几年我都没看过<img src="https://static.saraba1st.com/image/smiley/fa
 也就是业务收缩走向低频率了……啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7891#       发表于 2021-10-27 13:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真谢罪了
+【昨日放送の #にじバラ仮 第20回に関して】
+「にじさんじのB級バラエティ(仮)」第20回において一部不適切な内容をお届けした件に関して謝罪いたします。
+この度は大変申し訳ございませんでした。
+https://twitter.com/nijisanji_app/status/1453225075289776132
+
+

@@ -5079,3 +5079,14 @@ wt就是要表现出那种不信命的气势
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">罗和基德的觉醒完全比不上勘十郎又又又复活了引人注目
 
 
+
+
+*****
+
+####  hagane  
+##### 55870#       发表于 2021-10-27 13:10
+
+
+基德的觉醒直接让人体都受影响了，当年火鸡怎么没让五皇变成线
+
+

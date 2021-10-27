@@ -3961,3 +3961,62 @@ https://weibo.com/1725185332/KEE8Czn4V
 snow halation受到了机动警察剧场版2的影响，搞了个下雪的mv
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 3313#       发表于 2021-10-27 13:14
+
+
+ 本帖最后由 秋月艾莉 于 2021-10-27 13:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又一张1w转6w赞tkk，不过这次不涩
+
+
+<img src="https://img.saraba1st.com/forum/202110/27/131248sgzyknmn9gwtgtgh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FCiUxxHVcAk40Qn.jpg</strong> (539.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-27 13:12 上传
+
+
+://twitter.com/hiyashi_yaki/status/1452574468388241409?s=20
+
+
+另外2期制作确定的推两天就有快2w转3w赞，出乎意料
+
+油管那个信息量为0的预告播放比初期动画PV播放还要高点
+
+看来要么是动画普遍反响其实不错，要么就是真的吸了一批新粉提升了关注度
+
+
+*****
+
+####  plazum  
+##### 3314#       发表于 2021-10-27 13:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53298009&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-10-27 13:14</a>
+
+又一张1w转6w赞tkk，不过这次不涩</blockquote>
+这个胯部是典型的冰菓那种被人分析过的画法吧，这还不色？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plazum  
+##### 3315#       发表于 2021-10-27 13:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53297835&amp;ptid=2028598" target="_blank">AlfredXC 发表于 2021-10-27 12:56</a>
+
+https://b23.tv/jwBPIs
+
+不得不说京极尚彦这个采访真的太好玩了，他的影像启蒙竟然是岩井俊二、行定勋、庵野 ...</blockquote>
+原来LL不是特摄啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
