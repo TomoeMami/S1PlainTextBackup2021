@@ -5620,3 +5620,20 @@ OW这几年我都没看过<img src="https://static.saraba1st.com/image/smiley/fa
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 7890#       发表于 2021-10-27 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53296022&amp;ptid=1972669" target="_blank">リスカ 发表于 2021-10-27 11:02</a>
+
+根本没有这么乐观 今年投几个稿（包括原创）以后等于是不会运作了 只在三得利官方活动的时候露个面
+
+
+—— ...</blockquote>
+也就是业务收缩走向低频率了……啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

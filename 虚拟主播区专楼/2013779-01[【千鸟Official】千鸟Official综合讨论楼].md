@@ -9489,3 +9489,36 @@ A：“有取消的，也有本来这段时间就比较忙安排不上的，不�
 有人掉下了400舰，上了观测日报八强，早起转了一堆动态然后掉了10个粉，怎么会是呢？
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 797#       发表于 2021-10-27 11:47
+
+
+这种强度转发fanart，不取关的多少沾点gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  T型钉宫病毒  
+##### 798#       发表于 2021-10-27 11:50
+
+
+真的发疯，一下刷到这么多动态人都麻了
+摆烂到月底再加上新衣回满月应该能掉下300舰吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 799#       发表于 2021-10-27 12:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">卧槽 今天动态怎么那么多 
+我心想我才关注不到10个人 一看全是阿姨转的二创 她转二创别集中在一点发啊
+
+
