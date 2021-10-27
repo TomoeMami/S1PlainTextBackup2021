@@ -5663,3 +5663,23 @@ https://twitter.com/nijisanji_app/status/1453225075289776132
 起码是3000个踩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7893#       发表于 2021-10-27 14:51
+
+
+屁大点事就谢罪，太怂卵了
+
+
+*****
+
+####  白金口袋  
+##### 7894#       发表于 2021-10-27 14:59
+
+
+我没看明白，又不是啥大老板大厂子，那种小作坊给你机会让你上节目宣传你那P大点的地方，对方都得感恩戴德的了，咋还整得像B综是奴才对面是大爷似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
