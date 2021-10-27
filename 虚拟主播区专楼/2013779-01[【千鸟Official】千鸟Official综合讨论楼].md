@@ -9892,3 +9892,27 @@ syl 千鸟时代，沸腾期待！
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 831#       发表于 2021-10-28 01:15
+
+
+思思最近好多电台，静静的呢<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜潇箫  
+##### 832#       发表于 2021-10-28 01:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53306802&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-10-28 00:55</a>
+听了奥霍罗，这唱腔唱法真的不是满汉退役选手么
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 S1Nex ...</blockquote>
+什么是满汉退役选手
+
+

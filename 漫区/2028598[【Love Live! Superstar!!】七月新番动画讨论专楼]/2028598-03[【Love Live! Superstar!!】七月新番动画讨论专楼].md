@@ -4429,3 +4429,17 @@ LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">穿裙子有几张拍的不行，都幻视成新垣结衣了
 
 
+
+
+*****
+
+####  qratosone  
+##### 3346#       发表于 2021-10-28 01:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53303244&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-27 19:35</a>
+
+7-9集B站10月30号上，停在这最烂的一段B站评分怕不是得降不少吧不过热度基本都快没了，估计看的人不 ...</blockquote>
+我还以为叔叔是打算直接一口气放到完结呢
+
+
