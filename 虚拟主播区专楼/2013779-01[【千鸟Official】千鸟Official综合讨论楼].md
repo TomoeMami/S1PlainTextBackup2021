@@ -9789,3 +9789,39 @@ syl 千鸟时代，沸腾期待！
 [让立刻白立刻滑的艾白4.0](https://b23.tv/cANYHb)
 
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 822#       发表于 2021-10-27 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305734&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-10-27 22:58</a>
+
+一看就不看白白直播，白白直播时有时候会切声线。4.0贼帅</blockquote>
+平时那个铸币声线有点听不下去，放ED后的那个我还蛮喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但怎么根据4.0来做3D啊
+
+
+*****
+
+####  莫洛骑士  
+##### 823#       发表于 2021-10-27 23:09
+
+
+白白平时太夹了给我听麻了，这个下雨天的本音更自然点<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜潇箫  
+##### 824#       发表于 2021-10-27 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305661&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-10-27 22:51</a>
+那一年的决赛是文静对兰音，最终比分1-0。当时我看见窝瓜坐在椅子上泣不成声，那一刻我就在想如果我能成为 ...</blockquote>
+都值得看，尤其是奥霍罗，塔克，葡冷蛾子
+
+

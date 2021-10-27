@@ -5433,3 +5433,18 @@ wt就是要表现出那种不信命的气势
 尾田荣一郎是脑子让人被门夹了吧？别他妈画傻逼武士了。
 
 
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 55902#       发表于 2021-10-27 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53302716&amp;ptid=98922" target="_blank">神隐の馒头 发表于 2021-10-27 18:53</a>
+再大胆点，凯多这个人物本身就是堪十郎的画，堪十郎才是op战力天花板</blockquote>
+快进到尾田就是堪十郎，打破第四面墙
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
