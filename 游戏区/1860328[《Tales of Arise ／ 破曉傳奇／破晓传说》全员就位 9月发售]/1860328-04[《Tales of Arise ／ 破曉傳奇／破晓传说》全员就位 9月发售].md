@@ -19352,3 +19352,14 @@ op2后面的很赶</blockquote>
 —— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  yingu377  
+##### 5928#       发表于 2021-10-27 16:35
+
+
+破晓突然更新了1G什么东西？有没有好心人知道
+
+
