@@ -5605,3 +5605,18 @@ OW这几年我都没看过<img src="https://static.saraba1st.com/image/smiley/fa
 昨天的画画这两个人新人也太喜欢hnn了吧，一个过激oreapo厨，一个见缝插针画hnn
 
 
+
+
+*****
+
+####  リスカ  
+##### 7889#       发表于 2021-10-27 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53290713&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-10-26 21:24</a>
+三得利这个意思是从明年起转向直播势吧</blockquote>
+根本没有这么乐观 今年投几个稿（包括原创）以后等于是不会运作了 只在三得利官方活动的时候露个面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
