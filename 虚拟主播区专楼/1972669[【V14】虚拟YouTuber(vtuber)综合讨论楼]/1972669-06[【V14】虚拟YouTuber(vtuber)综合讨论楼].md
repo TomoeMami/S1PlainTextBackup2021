@@ -5852,3 +5852,28 @@ SYL：
 「ゲーム配信が面白いから（男性／31歳）」</blockquote>
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7906#       发表于 2021-10-27 22:41
+
+
+ 本帖最后由 FCCHua 于 2021-10-27 22:43 编辑 
+
+火星，crossick时隔几个月因为虹官方周边终于明面上推特互动，好生草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 果然会有人截图发推<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+https://twitter.com/Ichig0miIk/status/1453363723628732427
+橘ひなの、さぽてん、しんたろさんとマッチしてた
+
+
+*****
+
+####  winda  
+##### 7907#       发表于 2021-10-27 22:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">B级综艺这次可是从liver到stf的集体二货行为，就这么剪出来还怕别人没注意到不炎上么
+
+
