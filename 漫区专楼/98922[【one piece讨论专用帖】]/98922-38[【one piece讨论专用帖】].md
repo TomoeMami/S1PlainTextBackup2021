@@ -5332,3 +5332,17 @@ wt就是要表现出那种不信命的气势
 这是伏笔，埋了十年的伏笔（手动斜眼
 
 
+
+
+*****
+
+####  武男  
+##### 55893#       发表于 2021-10-27 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53302949&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2021-10-27 19:13</a>
+
+凯多表示我那一刀都捅了什么？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">凯多这样下去，我是真怀念红狗了，打半天对面连个残疾的都没有。
+
+
