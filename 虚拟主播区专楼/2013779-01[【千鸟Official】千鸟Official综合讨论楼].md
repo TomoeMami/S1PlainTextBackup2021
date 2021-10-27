@@ -9676,3 +9676,116 @@ syl 千鸟时代，沸腾期待！
 就是说这是2.0第二位3D喽?
 
 
+
+
+*****
+
+####  丢了五块钱  
+##### 812#       发表于 2021-10-27 22:49
+
+
+白白暗示冰火也许有4.0<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+到时候刷爆老公
+
+
+*****
+
+####  rgauss  
+##### 813#       发表于 2021-10-27 22:51
+
+
+ 本帖最后由 rgauss 于 2021-10-27 22:53 编辑 
+
+那一年的决赛是文静对兰音，最终比分1-0。当时我看见窝瓜坐在椅子上泣不成声，那一刻我就在想如果我能成为爱抖露，我一定要赢下所有。 如今奖杯就在眼前，我必须考虑这会不会是我此生仅有的机会。我相信千鸟能有过去的霸主地位，窝瓜功不可没。重铸千鸟的荣光，大蒜义不容辞！
+
+ syl 有没有人介绍一下这些人歌力，我看v只看过千鸟 
+
+
+*****
+
+####  莫洛骑士  
+##### 814#       发表于 2021-10-27 22:52
+
+
+什么千鸟菜市场
+
+
+*****
+
+####  夜之中道崩殂  
+##### 815#       发表于 2021-10-27 22:53
+
+
+鸟批真是像电子病毒一样，我宣布与鸟批切割
+
+
+*****
+
+####  rgauss  
+##### 816#       发表于 2021-10-27 22:55
+
+
+不对，我觉得大蒜不合适白白，思思新衣服更适合大蒜。
+
+
+*****
+
+####  T型钉宫病毒  
+##### 817#       发表于 2021-10-27 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305646&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-10-27 22:49</a>
+
+白白暗示冰火也许有4.0
+
+
+到时候刷爆老公</blockquote>
+4.0是什么，3D不是只做打歌服嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莫洛骑士  
+##### 818#       发表于 2021-10-27 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305716&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-10-27 22:56</a>
+4.0是什么，3D不是只做打歌服嘛</blockquote>
+1.0懂得都懂，换人之后2.0，最近这套新的是3.0，大概白白暗示3D不是2.0打歌服的3D而是更新的一套，那文静输麻了，就她一个倭瓜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 819#       发表于 2021-10-27 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305716&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-10-27 22:56</a>
+
+4.0是什么，3D不是只做打歌服嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">一看就不看白白直播，白白直播时有时候会切声线。4.0贼帅
+
+
+*****
+
+####  夜之中道崩殂  
+##### 820#       发表于 2021-10-27 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305716&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-10-27 22:56</a>
+4.0是什么，3D不是只做打歌服嘛</blockquote>
+4.0是御姐音，接近本音
+
+
+*****
+
+####  丢了五块钱  
+##### 821#       发表于 2021-10-27 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305716&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-10-27 22:56</a>
+4.0是什么，3D不是只做打歌服嘛</blockquote>
+[让立刻白立刻滑的艾白4.0](https://b23.tv/cANYHb)
+
+
