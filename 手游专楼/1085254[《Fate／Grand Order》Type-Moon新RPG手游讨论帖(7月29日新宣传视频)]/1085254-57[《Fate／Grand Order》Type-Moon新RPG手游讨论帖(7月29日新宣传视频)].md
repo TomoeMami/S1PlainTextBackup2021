@@ -2142,3 +2142,55 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 UP完低配弓贞后直接给你UP本体，还有泳莫复刻，YLS可以的啊，玩得越来越明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 84170#       发表于 2021-10-27 18:03
+
+
+这高难妖兰脚打，一开始还用上杉谦信翻车了，换妖兰暴打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 84171#       发表于 2021-10-27 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">啊这 用大公不也脚打
+
+
+*****
+
+####  zakki  
+##### 84172#       发表于 2021-10-27 18:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53302074&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-27 18:08</a>
+啊这 用大公不也脚打</blockquote>
+没大公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 84173#       发表于 2021-10-27 18:13
+
+
+话说泳装小莫复刻才发现，冲莫这技能是不是被哈贝喵完爆了，还输一手100自冲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真红眼教授  
+##### 84174#       发表于 2021-10-27 18:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53295442&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-27 10:26</a>
+
+U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬加一个U上去，总不能真是蘑菇说的那样U指的是Ultra ...</blockquote>
+迦勒底基地的造型也是一个U
+
+

@@ -9536,3 +9536,28 @@ A：“有取消的，也有本来这段时间就比较忙安排不上的，不�
 更新，被举办了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  tankai  
+##### 801#       发表于 2021-10-27 18:13
+
+
+好好好.不续了,节目效果来了.看静将军怎么出牌.
+
+
+*****
+
+####  tankai  
+##### 802#       发表于 2021-10-27 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53301986&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-10-27 18:01</a>
+
+2021年10月27日17：57，艾队学会了骂人，望周知
+
+更新，被举办了</blockquote>
+跟风举报了,乐死了.
+
+
