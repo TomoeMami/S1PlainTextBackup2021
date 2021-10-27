@@ -4083,3 +4083,44 @@ TMD，所以说恋那个鼓掌真的是致敬庵野秀明？？？​
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 3321#       发表于 2021-10-27 14:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53275985&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-25 20:13</a>
+坛友ID是啥，我去关注等抽奖</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 3322#       发表于 2021-10-27 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53298725&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-27 14:15</a>
+TMD，所以说恋那个鼓掌真的是致敬庵野秀明？？？​
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next ...</blockquote>
+哈哈哈哈，笑死我了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 3323#       发表于 2021-10-27 14:32
+
+
+且不说无印那事表现的还算好，星这个出演大部分时间肯定没问题，但是恋那段到底谁的锅，脚本傻逼出演跟着一起犯傻？？
+还有最后12话的劣质sh➕哭呀洗，我是不认可的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

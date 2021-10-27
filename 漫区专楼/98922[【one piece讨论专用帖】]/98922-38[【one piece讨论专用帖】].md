@@ -5110,3 +5110,16 @@ wt就是要表现出那种不信命的气势
 我现在好期待勘十郎觉醒哦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saturnus  
+##### 55873#       发表于 2021-10-27 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53298423&amp;ptid=98922" target="_blank">穆 发表于 2021-10-27 13:49</a>
+这觉醒的算是个什么能力啊？</blockquote>
+大妈体内铁元素含量超标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
