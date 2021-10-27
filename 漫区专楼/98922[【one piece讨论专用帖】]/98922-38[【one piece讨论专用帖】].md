@@ -5470,3 +5470,31 @@ wt就是要表现出那种不信命的气势
 御田真是武士之耻，那么容易就死了
 
 
+
+
+*****
+
+####  Algie  
+##### 55905#       发表于 2021-10-28 00:21
+
+
+话说海贼的情报分析热度应该是远不如巅峰期了吧，大概是什么时候跌落的呢
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  游蜓  
+##### 55906#       发表于 2021-10-28 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53306553&amp;ptid=98922" target="_blank">Algie 发表于 2021-10-28 00:21</a>
+话说海贼的情报分析热度应该是远不如巅峰期了吧，大概是什么时候跌落的呢
+
+  -- 来自 能看大图的 Stage1官 ...</blockquote>
+和之国篇，更准确的是御田结束之后
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

@@ -18126,3 +18126,25 @@ BETA新潟上陸時のBETA捕獲作戦
 3八嘎快出场了
 
 
+
+
+*****
+
+####  freyja_wion  
+##### 1250#       发表于 2021-10-28 00:36
+
+
+这集居然没怎么赶进度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  hlazd  
+##### 1251#       发表于 2021-10-28 00:42
+
+
+这集小麻的几个特写应该是开播以来的颜值巅峰了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+

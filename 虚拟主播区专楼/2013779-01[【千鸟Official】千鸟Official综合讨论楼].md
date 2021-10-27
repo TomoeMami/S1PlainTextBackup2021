@@ -9847,3 +9847,26 @@ syl 千鸟时代，沸腾期待！
 此时此刻，恰如彼时彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静四万粉四百舰互动率94%说实话浓度更哈人
 
 
+
+
+*****
+
+####  rgauss  
+##### 827#       发表于 2021-10-28 00:26
+
+
+文静的作息疑似寄了 笑嘻了
+
+
+*****
+
+####  tankai  
+##### 828#       发表于 2021-10-28 00:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53306600&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-10-28 00:26</a>
+
+文静的作息疑似寄了 笑嘻了</blockquote>
+好4，以前喜欢乱突击。苍天绕过谁~<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
