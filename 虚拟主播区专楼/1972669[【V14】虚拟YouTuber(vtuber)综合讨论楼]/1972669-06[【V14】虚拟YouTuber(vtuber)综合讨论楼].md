@@ -5888,3 +5888,17 @@ https://twitter.com/Ichig0miIk/status/1453363723628732427
 隔壁虹楼原来有这么多人站es梦女的吗……我个人很难理解啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 7909#       发表于 2021-10-28 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53306031&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-10-27 23:25</a>
+
+隔壁虹楼原来有这么多人站es梦女的吗……我个人很难理解啊</blockquote>
+有没有可能他们自己就是呢，一个小主播的同人作品会影响企划原设定吗，哪来这么大能量啊 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
