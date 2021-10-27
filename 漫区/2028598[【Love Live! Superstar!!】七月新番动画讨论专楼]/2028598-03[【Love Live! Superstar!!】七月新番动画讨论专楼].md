@@ -4124,3 +4124,18 @@ TMD，所以说恋那个鼓掌真的是致敬庵野秀明？？？​
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  lj205  
+##### 3324#       发表于 2021-10-27 15:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53298725&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-27 14:15</a>
+TMD，所以说恋那个鼓掌真的是致敬庵野秀明？？？​
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next ...</blockquote>
+你看的时候没有似曾相识的感觉呢？<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+

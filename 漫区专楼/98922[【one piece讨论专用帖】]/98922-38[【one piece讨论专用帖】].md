@@ -5136,3 +5136,35 @@ wt就是要表现出那种不信命的气势
 是不是还可以让大妈缺铁性贫血<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  天使的日曜日  
+##### 55875#       发表于 2021-10-27 15:01
+
+
+阿普又要跳反了，当初好好整超新星群殴四皇不比现在这场闹剧要好几百倍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  白金口袋  
+##### 55876#       发表于 2021-10-27 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53299235&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-10-27 00:53</a>
+
+是不是还可以让大妈缺铁性贫血</blockquote>
+那不是万磁王和魔形女的组合技吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南条一间  
+##### 55877#       发表于 2021-10-27 15:17
+
+
+啊？
+
+

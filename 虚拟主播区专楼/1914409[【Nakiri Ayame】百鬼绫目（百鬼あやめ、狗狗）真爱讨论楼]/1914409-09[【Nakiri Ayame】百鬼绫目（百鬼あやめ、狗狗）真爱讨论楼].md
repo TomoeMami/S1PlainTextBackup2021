@@ -16112,3 +16112,14 @@ lol都是绫总不懂事，打着玩的
 明天早上看看战绩
 
 
+
+
+*****
+
+####  越动天下  
+##### 13360#       发表于 2021-10-27 15:08
+
+
+打了四场输了三场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
