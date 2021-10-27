@@ -9452,3 +9452,16 @@ A：“有取消的，也有本来这段时间就比较忙安排不上的，不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两者之间不冲突吧
 
 
+
+
+*****
+
+####  tankai  
+##### 794#       发表于 2021-10-27 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53291932&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-26 23:13</a>
+说文静是吸血鬼，压力怪从来都不是黑屁。作为自愿绿叶的静栗惹可能早已习惯了，但是作为理智的旁观者，我只 ...</blockquote>
+哪儿抄的？
+
+
