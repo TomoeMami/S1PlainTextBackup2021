@@ -4516,3 +4516,25 @@ liella新专辑，收录了全12话第二首ed的专辑已经上架流媒体
 这是不是可以算那个杀童贞毛衣<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  蔵女  
+##### 3350#       发表于 2021-10-28 07:21
+
+
+这剧情还能排第六真是全靠角色加成了
+
+
+*****
+
+####  仟音一心  
+##### 3351#       发表于 2021-10-28 07:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53307692&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-28 07:18</a>
+这是不是可以算那个杀童贞毛衣</blockquote>
+不算，没露背
+
+

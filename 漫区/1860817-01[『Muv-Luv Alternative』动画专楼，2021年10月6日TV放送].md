@@ -18327,3 +18327,17 @@ BETA新潟上陸時のBETA捕獲作戦
 — from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1267#       发表于 2021-10-28 07:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53307139&amp;ptid=1860817" target="_blank">纯夏 发表于 2021-10-28 02:10</a>
+
+不是吧 你没看过逆袭的夏亚吗？</blockquote>
+高达只看了seed和oo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
