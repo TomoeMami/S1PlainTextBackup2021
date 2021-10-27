@@ -5267,3 +5267,35 @@ wt就是要表现出那种不信命的气势
 我想搞只火鬼出来就是怕大家忘了武士锦卫门，让他仰卧起坐又斩一次火再爬<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  csd  
+##### 55887#       发表于 2021-10-27 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53302787&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-10-27 18:59</a>
+
+看最新情报没，锦卫门已经仰卧起坐起来了</blockquote>
+看到了，只能说尾田这尿性早就被读者猜透了。
+
+
+*****
+
+####  巴尔干炮  
+##### 55888#       发表于 2021-10-27 19:13
+
+
+凯多表示我那一刀都捅了什么？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yeluffy  
+##### 55889#       发表于 2021-10-27 19:13
+
+
+这觉醒没铺垫呀，怎么楼顶打双皇的时候不觉醒？
+
+
