@@ -4969,3 +4969,20 @@ wt就是要表现出那种不信命的气势
 尾田是破罐破摔了。
 
 
+
+
+*****
+
+####  武男  
+##### 55860#       发表于 2021-10-27 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53249923&amp;ptid=98922" target="_blank">C男人 发表于 2021-10-23 20:48</a>
+
+跑去看了一个老蔡的对战记录，简直惊人，
+
+
+打遍所有大佬，还没死，</blockquote>
+海贼角都吧
+
+
