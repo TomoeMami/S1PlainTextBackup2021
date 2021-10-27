@@ -5793,3 +5793,27 @@ SYL：
 和原版比属于是东施效颦了。
 
 
+
+
+*****
+
+####  虹河ラキ  
+##### 7903#       发表于 2021-10-27 21:35
+
+
+<img src="https://i.loli.net/2021/10/27/LytOkfCU3b6eFjg.jpg" referrerpolicy="no-referrer">
+
+こころがぴょこぴょこするぴょこ
+
+
+*****
+
+####  虹河ラキ  
+##### 7904#       发表于 2021-10-27 21:43
+
+
+<img src="https://i.loli.net/2021/10/27/4gjTofOLGsd3pun.png" referrerpolicy="no-referrer">
+
+なんかカクカクするぴょこ
+
+

@@ -5384,3 +5384,17 @@ wt就是要表现出那种不信命的气势
 这漫画水平能下降成这样真的叹为观止
 
 
+
+
+*****
+
+####  武男  
+##### 55898#       发表于 2021-10-27 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53304282&amp;ptid=98922" target="_blank">灼眼的夏娜酱 发表于 2021-10-27 21:05</a>
+
+和之国篇是要把两个四皇都收拾了吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不是说海军在路上嘛，估计是来补刀了
+
+
