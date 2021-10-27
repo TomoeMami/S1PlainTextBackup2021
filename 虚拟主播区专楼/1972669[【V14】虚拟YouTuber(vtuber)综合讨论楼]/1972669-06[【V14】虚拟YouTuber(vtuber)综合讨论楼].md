@@ -5571,3 +5571,22 @@ OW这几年我都没看过<img src="https://static.saraba1st.com/image/smiley/fa
 [https://twitter.com/l_mjry/status/1453047059787894791](https://twitter.com/l_mjry/status/1453047059787894791)
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7887#       发表于 2021-10-27 08:26
+
+
+ 本帖最后由 FCCHua 于 2021-10-27 08:34 编辑 
+
+这个切片终于有了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+<strong>厄介·指示·杞憂の全てが詰まったお手本のようなクソマ口を送られる橘ひなの[おれあぽ/ぶいすぽっ!]</strong>
+<strong>https://youtu.be/afVfN5pQJbk</strong>
+<strong>切片man置顶:</strong>
+ちなみにこの前Twitterでkamitoさんの彼女を名乗る方からDMが来て「彼は本当はおれあぽをやめたいと思っているので切り抜きを作って拡散するのをやめてください」ってきたことあります
+<strong>kmt本人回复:</strong>
+やめたいとか思ってないし、彼女もいないし、泣きそうになった
+
+
