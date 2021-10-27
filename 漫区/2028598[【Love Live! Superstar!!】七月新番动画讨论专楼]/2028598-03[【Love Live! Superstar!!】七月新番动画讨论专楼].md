@@ -4168,3 +4168,37 @@ LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  ads147147  
+##### 3327#       发表于 2021-10-27 15:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53299810&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-27 15:39</a>
+不是给几个练习镜头就能世界观自洽的啊
+
+LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星 ...</blockquote>
+这玩意就和人形机器人一样，没啥好说的，最多是填的多和填的少的问题。后勤骂娘这事现在的高达也不怎么描写了，所以爱生活不考虑幕后后勤问题很合理。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  D麦林  
+##### 3328#       发表于 2021-10-27 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53299810&amp;ptid=2028598" target="_blank">不能摸的屁屁 发表于 2021-10-27 15:39</a>
+
+不是给几个练习镜头就能世界观自洽的啊
+
+
+LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星 ...</blockquote>
+缪四单的飞机表示这才哪到哪呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说回来虹这方面的设定倒是很方便 反正基本上主角团需要什么就能找出一个什么同好会来帮忙
+
+
