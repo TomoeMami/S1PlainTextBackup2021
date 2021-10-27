@@ -5776,3 +5776,20 @@ rje残党偷偷宣泄不满是吧<img src="https://static.saraba1st.com/image/sm
 省一楼，郡郡最近好像正常人，好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 7902#       发表于 2021-10-27 20:28
+
+
+Re:103号室「ダンス・ダンス・ダダ(Misumi Remix) feat. EMA, たなか」
+
+👆这算啥？ema和别的作曲者激情创作，msm在一边撸断___？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+SYL：
+
+和原版比属于是东施效颦了。
+
+

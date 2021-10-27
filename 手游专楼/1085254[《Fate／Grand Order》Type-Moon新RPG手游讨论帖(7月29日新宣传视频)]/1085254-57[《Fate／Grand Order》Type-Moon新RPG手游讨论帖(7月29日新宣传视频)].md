@@ -2205,3 +2205,17 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 弓贞原地背刺可太刺激了笑死
 
 
+
+
+*****
+
+####  zore  
+##### 84176#       发表于 2021-10-27 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53302159&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-27 18:13</a>
+
+话说泳装小莫复刻才发现，冲莫这技能是不是被哈贝喵完爆了，还输一手100自冲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还赢一手白给
+
+
