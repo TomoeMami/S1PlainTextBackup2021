@@ -4139,3 +4139,32 @@ TMD，所以说恋那个鼓掌真的是致敬庵野秀明？？？​
 你看的时候没有似曾相识的感觉呢？<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cat1230  
+##### 3325#       发表于 2021-10-27 15:38
+
+
+艹，真的妇科EVA啊。哭了
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  不能摸的屁屁  
+##### 3326#       发表于 2021-10-27 15:39
+
+
+不是给几个练习镜头就能世界观自洽的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星团直还来个唐二小姐徒手搭舞台），尤其是服装，我觉得真要自己手工做，就没时间练习唱歌跳舞了。
+
+你不拉赞助，学轻音整个老师负责服装也行啊，神奇的是ll世界观下仿佛每个团都有这种能力。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+

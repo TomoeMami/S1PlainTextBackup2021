@@ -5683,3 +5683,14 @@ https://twitter.com/nijisanji_app/status/1453225075289776132
 我没看明白，又不是啥大老板大厂子，那种小作坊给你机会让你上节目宣传你那P大点的地方，对方都得感恩戴德的了，咋还整得像B综是奴才对面是大爷似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ヒトニナル  
+##### 7895#       发表于 2021-10-27 15:38
+
+
+这店家好像没跳出来点草，跳出来点草的是网民同志们啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
