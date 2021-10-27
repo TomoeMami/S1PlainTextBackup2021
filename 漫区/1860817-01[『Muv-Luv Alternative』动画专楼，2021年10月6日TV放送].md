@@ -18148,3 +18148,63 @@ BETA新潟上陸時のBETA捕獲作戦
 这集小麻的几个特写应该是开播以来的颜值巅峰了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1252#       发表于 2021-10-28 01:29
+
+
+下集应该就是小珠爸爸和美琴爸爸登场了，12.5前白银武还得回去一次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  菱0零  
+##### 1253#       发表于 2021-10-28 01:33
+
+
+这集没这么赶了怎么觉得反而变水了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有战术机模拟仓改的好土
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  再买自检星剁手  
+##### 1254#       发表于 2021-10-28 01:34
+
+
+战术机出厂还有自带保护膜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+蛮新鲜的
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  hlazd  
+##### 1255#       发表于 2021-10-28 01:36
+
+
+模仿一下
+<img src="https://p.sda1.dev/2/a15eaaa6224dd5d8dc231e5c7e6f9ea0/IMG_20211028_021513.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/bca59530b26b74cb2fae2e88f83d945d/IMG_20211028_021515.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 1256#       发表于 2021-10-28 01:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53307025&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-10-28 01:36</a>
+模仿一下</blockquote>
+第二张图是主角机吗？感觉保护膜靠胶布固定还是有点不讲究<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
