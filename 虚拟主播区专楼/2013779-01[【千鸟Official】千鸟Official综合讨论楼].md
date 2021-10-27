@@ -9636,3 +9636,43 @@ syl 千鸟时代，沸腾期待！
 <img src="https://p.sda1.dev/2/a0796afd0e9f78b47dbf87d9431c0740/574AAAFA13BA28697ED03588B37BC8EF.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  tankai  
+##### 808#       发表于 2021-10-27 22:14
+
+
+好唉好唉,白白加油啊.
+
+
+*****
+
+####  IDIDIDID  
+##### 809#       发表于 2021-10-27 22:14
+
+
+鸟箱弹幕量仅次于国V两大箱，其中文静的弹幕又占了超过50%，静栗惹魔怔程度只能说，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  H2Ofrozen  
+##### 810#       发表于 2021-10-27 22:17
+
+
+静利班不灭！！🖖
+
+
+
+
+*****
+
+####  tankai  
+##### 811#       发表于 2021-10-27 22:21
+
+
+就是说这是2.0第二位3D喽?
+
+
