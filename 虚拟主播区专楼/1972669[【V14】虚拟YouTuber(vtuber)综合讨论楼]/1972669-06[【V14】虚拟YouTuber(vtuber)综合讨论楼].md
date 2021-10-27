@@ -5714,3 +5714,14 @@ https://twitter.com/nijisanji_app/status/1453225075289776132
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">得罪店家你还想下回去哪里取材，这种把制作工艺后台给你取材的店家是很少的
 
 
+
+
+*****
+
+####  空集  
+##### 7898#       发表于 2021-10-27 17:37
+
+
+虽然日本很多炎上事多，但是看了下介绍这次确实完全过线了啊
+
+

@@ -5179,3 +5179,18 @@ wt就是要表现出那种不信命的气势
 大妈岛就塞了一个匪帮，这次一下塞进去这么多超新星，本身三灾加超新星量已经很大了，非要又塞进去六方名角，尾田是在做自己能力以外的事情，其结果是每一个都没刻画好，六方名角就不说了，莫名其妙的耍酷，莫名其妙的草草退场，霍金斯直接降级了。。。还不如不出场。。。。
 
 
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 55879#       发表于 2021-10-27 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53298423&amp;ptid=98922" target="_blank">穆 发表于 2021-10-27 13:49</a>
+这觉醒的算是个什么能力啊？</blockquote>
+是金属制品！坐等大妈脸上冒剪刀
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
