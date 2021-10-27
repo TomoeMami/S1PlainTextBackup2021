@@ -4020,3 +4020,21 @@ https://b23.tv/jwBPIs
 原来LL不是特摄啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 3316#       发表于 2021-10-27 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53298141&amp;ptid=2028598" target="_blank">plazum 发表于 2021-10-27 13:25</a>
+
+原来LL不是特摄啊</blockquote>
+你在说什么 LL系列显然是机战番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[del]机战30参展作怎么没有LL[/del]
+
+不过其实也可以是特摄
+
+
