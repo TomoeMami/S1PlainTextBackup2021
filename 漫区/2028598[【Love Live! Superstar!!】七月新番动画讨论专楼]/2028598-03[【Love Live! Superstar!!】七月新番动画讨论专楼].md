@@ -4235,3 +4235,78 @@ LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星 
 好奇是啥？希望安排星团上岛，公费旅游也不错，虽然还是要工作。
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3331#       发表于 2021-10-27 19:35
+
+
+7-9集B站10月30号上，停在这最烂的一段B站评分怕不是得降不少吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3332#       发表于 2021-10-27 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是叔叔的温柔吗
+
+
+*****
+
+####  welcom  
+##### 3333#       发表于 2021-10-27 19:39
+
+
+ 本帖最后由 welcom 于 2021-10-27 19:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53303244&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-27 19:35</a>
+
+7-9集B站10月30号上，停在这最烂的一段B站评分怕不是得降不少吧不过热度基本都快没了，估计看的人不 ...</blockquote>
+也就是看看9的整活了，说不定7，8里哪些地方删减一下效果还更好呢.......
+
+说起来既然十月能更新两次，之前456搞毛隔了一个多月
+
+
+*****
+
+####  优妮可  
+##### 3334#       发表于 2021-10-27 19:41
+
+
+789要删什么地方啊
+
+
+*****
+
+####  D麦林  
+##### 3335#       发表于 2021-10-27 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53303284&amp;ptid=2028598" target="_blank">welcom 发表于 2021-10-27 19:39</a>
+
+也就是看看9的整活了。话说既然十月能更新两次，之前456搞毛隔了一个多月 ...</blockquote>
+绑架那段大段删除 明显是被打回来了一次。
+
+别的地方有人透露过 审核是每个月月底集中送审的
+
+我猜那次应该是8月末送审的 然后被打回来等了一个月 10月才放出来
+
+
+*****
+
+####  D麦林  
+##### 3336#       发表于 2021-10-27 19:44
+
+
+我还不敢提前说
+
+得看看代理方木棉花之类的有没有发预告 有明确说了才能算是靠谱吧
+
+上次就默默上去默默又没了 我猜想是B站把材料送出去以后就按时间排日程了 结果没想到被打回来了
+
+话说那其他10月番是不是也该开始上了 下午外面那帖说的不会是真的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

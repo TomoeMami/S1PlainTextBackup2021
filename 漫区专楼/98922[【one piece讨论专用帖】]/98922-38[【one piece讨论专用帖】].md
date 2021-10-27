@@ -5299,3 +5299,14 @@ wt就是要表现出那种不信命的气势
 这觉醒没铺垫呀，怎么楼顶打双皇的时候不觉醒？
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 55890#       发表于 2021-10-27 19:23
+
+
+接下来王路飞打着打着掏出个觉醒我也不觉得奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
