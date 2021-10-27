@@ -9522,3 +9522,17 @@ A：“有取消的，也有本来这段时间就比较忙安排不上的，不�
 我心想我才关注不到10个人 一看全是阿姨转的二创 她转二创别集中在一点发啊
 
 
+
+
+*****
+
+####  小憨1  
+##### 800#       发表于 2021-10-27 18:01
+
+
+ 本帖最后由 小憨1 于 2021-10-27 18:04 编辑 
+
+2021年10月27日17：57，艾队学会了骂人，望周知<img src="https://p.sda1.dev/2/7554ffc6b1f75fe34b48635a78abafcc/17d8d3f3a9259c59.png" referrerpolicy="no-referrer">
+更新，被举办了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

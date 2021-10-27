@@ -5725,3 +5725,19 @@ https://twitter.com/nijisanji_app/status/1453225075289776132
 虽然日本很多炎上事多，但是看了下介绍这次确实完全过线了啊
 
 
+
+
+*****
+
+####  free  
+##### 7899#       发表于 2021-10-27 18:01
+
+
+[https://www.youtube.com/watch?v=CrLF2srZHa8](https://www.youtube.com/watch?v=CrLF2srZHa8)
+
+【復帰配信】復活と再会のレインボーロード
+
+
+虹河laki复活
+
+

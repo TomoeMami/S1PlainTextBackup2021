@@ -2126,3 +2126,19 @@ UO应该指的是每个星球的最强个体吧，朱红 ...</blockquote>
 U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬加一个U上去，总不能真是蘑菇说的那样U指的是Ultraman吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 84169#       发表于 2021-10-27 17:41
+
+
+ 本帖最后由 khxooo 于 2021-10-27 17:55 编辑 
+
+妖兰快乐本，就是YLS强行加抗性，不让竞速们3T，不过刷一下发牌应该可以一次将抗性消掉。
+
+
+UP完低配弓贞后直接给你UP本体，还有泳莫复刻，YLS可以的啊，玩得越来越明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
