@@ -2115,3 +2115,14 @@ UO应该指的是每个星球的最强个体吧，朱红 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你版居然会正经讨论剧情的
 
 
+
+
+*****
+
+####  zakki  
+##### 84168#       发表于 2021-10-27 10:26
+
+
+U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬加一个U上去，总不能真是蘑菇说的那样U指的是Ultraman吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
