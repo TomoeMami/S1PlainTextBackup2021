@@ -14058,3 +14058,14 @@ X@@10]333QH}UF%I_TILO[M.jpg
 错拿组长好像是抽奖用的T恤擦手汗，组长说到时候如果谁拿到的T恤有点臭，那就是那个。
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 4220#       发表于 2021-10-27 14:06
+
+
+真的是小屁孩<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+

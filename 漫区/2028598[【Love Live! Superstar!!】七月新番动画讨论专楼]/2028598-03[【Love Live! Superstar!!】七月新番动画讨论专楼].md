@@ -4058,3 +4058,28 @@ https://b23.tv/jwBPIs
 LL部分灵感居然是来源于和平保卫战草
 
 
+
+
+*****
+
+####  ads147147  
+##### 3319#       发表于 2021-10-27 14:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53297835&amp;ptid=2028598" target="_blank">AlfredXC 发表于 2021-10-27 12:56</a>
+https://b23.tv/jwBPIs
+不得不说京极尚彦这个采访真的太好玩了，他的影像启蒙竟然是岩井俊二、行定勋、庵野 ...</blockquote>
+TMD，所以说恋那个鼓掌真的是致敬庵野秀明？？？​
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  寒风夜  
+##### 3320#       发表于 2021-10-27 14:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
