@@ -5694,3 +5694,23 @@ https://twitter.com/nijisanji_app/status/1453225075289776132
 这店家好像没跳出来点草，跳出来点草的是网民同志们啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7896#       发表于 2021-10-27 16:11
+
+
+店家表示不背锅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死体残留  
+##### 7897#       发表于 2021-10-27 16:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">得罪店家你还想下回去哪里取材，这种把制作工艺后台给你取材的店家是很少的
+
+
