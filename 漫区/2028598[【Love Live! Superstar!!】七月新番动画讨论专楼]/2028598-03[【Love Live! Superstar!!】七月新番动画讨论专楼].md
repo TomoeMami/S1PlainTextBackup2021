@@ -4310,3 +4310,30 @@ LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星 
 话说那其他10月番是不是也该开始上了 下午外面那帖说的不会是真的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3337#       发表于 2021-10-27 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53303284&amp;ptid=2028598" target="_blank">welcom 发表于 2021-10-27 19:39</a>
+也就是看看9的整活了，说不定7，8里哪些地方删减一下效果还更好呢.......
+
+说起来既然十月能更新两次，之前 ...</blockquote>
+1-3集8.28上，4-6集10.2上，隔了35天，到7-9隔了28天，差不多都是一个月这样，而且4-6集一开始有出现在9月末的时间表上，只是后来被撤下，大概是因为要进行删减吧
+
+
+*****
+
+####  welcom  
+##### 3338#       发表于 2021-10-27 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53303366&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-27 19:46</a>
+
+1-3集8.28上，4-6集10.2上，隔了35天，到7-9隔了28天，差不多都是一个月这样，而且4-6集一开始有出现在9 ...</blockquote>
+那倒是说得通了
+
+
