@@ -4038,3 +4038,23 @@ https://b23.tv/jwBPIs
 不过其实也可以是特摄
 
 
+
+
+*****
+
+####  tiro_finale  
+##### 3317#       发表于 2021-10-27 13:53
+
+
+话说这楼标题好容易看歪啊，有时候划下来看到“巡演中]企划”，会看成“巡演中止”然后一惊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TTAA  
+##### 3318#       发表于 2021-10-27 13:55
+
+
+LL部分灵感居然是来源于和平保卫战草
+
+

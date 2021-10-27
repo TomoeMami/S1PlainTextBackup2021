@@ -5090,3 +5090,23 @@ wt就是要表现出那种不信命的气势
 基德的觉醒直接让人体都受影响了，当年火鸡怎么没让五皇变成线
 
 
+
+
+*****
+
+####  穆  
+##### 55871#       发表于 2021-10-27 13:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">这觉醒的算是个什么能力啊？
+
+
+*****
+
+####  gg326  
+##### 55872#       发表于 2021-10-27 13:53
+
+
+我现在好期待勘十郎觉醒哦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
