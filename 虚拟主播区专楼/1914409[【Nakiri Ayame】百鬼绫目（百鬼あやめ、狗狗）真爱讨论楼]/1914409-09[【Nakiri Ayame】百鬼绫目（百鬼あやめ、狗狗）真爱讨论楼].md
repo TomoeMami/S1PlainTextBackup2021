@@ -16123,3 +16123,14 @@ lol都是绫总不懂事，打着玩的
 打了四场输了三场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Baroq  
+##### 13361#       发表于 2021-10-27 16:57
+
+
+排位到睡 起床继续 “天道酬勤”
+
+
