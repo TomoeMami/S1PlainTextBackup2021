@@ -3884,3 +3884,35 @@ BV1MT4y1d7rZ bd2的特典
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔是没寄10万牌子吗
 
 
+
+
+*****
+
+####  emmerMK2  
+##### 3308#       发表于 2021-10-27 11:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202110/27/111031ro4fbetqcacmudtb.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-10-27 11-10-17.png</strong> (114.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-27 11:10 上传
+
+
+*****
+
+####  安瓦尔阿明  
+##### 3309#       发表于 2021-10-27 11:16
+
+
+BV1Aq4y1R7Pk
+
+迫真原道广告，耳机发烧友小香、老唐，属实给我整笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
