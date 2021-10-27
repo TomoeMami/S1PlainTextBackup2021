@@ -5398,3 +5398,16 @@ wt就是要表现出那种不信命的气势
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不是说海军在路上嘛，估计是来补刀了
 
 
+
+
+*****
+
+####  Algie  
+##### 55899#       发表于 2021-10-27 21:53
+
+
+有没有可能，就是以后来个人把海贼重写一边<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
