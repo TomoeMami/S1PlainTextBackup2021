@@ -5741,3 +5741,21 @@ https://twitter.com/nijisanji_app/status/1453225075289776132
 虹河laki复活
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7900#       发表于 2021-10-27 18:44
+
+
+[@虹河ラキ](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=516694) 恭喜复活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+恭喜绿仙50w！
+
+
+Syl，看B综生放送时确实有种「连VTR都不看了吗」的感叹，但B综从第一话就是这种不着调、棒读和稳定拉垮的氛围所以也没太在意（或者说是卖点）...
+
+不过一来最近油男鹰宫最近数据还行，各种活动反馈也还不错导致都挺飘，欠敲打；二来近期虹观众各种不满消化不掉（商業臭がキツ過ぎて<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
