@@ -10614,3 +10614,41 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2271#       发表于 2021-10-27 08:48
+
+
+飞鸟这都快毕业了，真有第二季是不是要换人（
+
+
+*****
+
+####  傲娇的章鱼  
+##### 2272#       发表于 2021-10-27 08:50
+
+
+这十年q娃剧场版很强啊，妈q时间循环剧场版，星q唱歌剧场版，抱q全明星。比这些还强吗？
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  过气页游  
+##### 2273#       发表于 2021-10-27 09:06
+
+
+ 本帖最后由 过气页游 于 2021-10-27 10:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53294159&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2021-10-27 09:50</a>
+
+这十年q娃剧场版很强啊，妈q时间循环剧场版，星q唱歌剧场版，抱q全明星。比这些还强吗？
+
+
+—— 来自 OnePlu ...</blockquote>
+个人觉得不至于，和年初的剧场版相比，与前辈的互动做的更好，打起来了就感觉不如治愈组抢眼了，不过这一部的新衣服和新必杀都是致敬抓心，情怀分是拉满的
+
+
