@@ -5759,3 +5759,20 @@ Syl，看B综生放送时确实有种「连VTR都不看了吗」的感叹，但B
 不过一来最近油男鹰宫最近数据还行，各种活动反馈也还不错导致都挺飘，欠敲打；二来近期虹观众各种不满消化不掉（商業臭がキツ過ぎて<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 7901#       发表于 2021-10-27 20:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53302602&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-10-27 18:44</a>
+@虹河ラキ 恭喜复活
+
+恭喜绿仙50w！</blockquote>
+rje残党偷偷宣泄不满是吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">，说起来最近rje不是擦边复活好多次了，之后nijirock也…
+
+省一楼，郡郡最近好像正常人，好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
