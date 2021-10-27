@@ -9825,3 +9825,25 @@ syl 千鸟时代，沸腾期待！
 都值得看，尤其是奥霍罗，塔克，葡冷蛾子
 
 
+
+
+*****
+
+####  tankai  
+##### 825#       发表于 2021-10-27 23:35
+
+
+我去，B站动态像是被“占领”了，败路人缘呐。以前AS有这样么？
+
+
+*****
+
+####  莫洛骑士  
+##### 826#       发表于 2021-10-27 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53306127&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-27 23:35</a>
+我去，B站动态像是被“占领”了，败路人缘呐。以前AS有这样么？</blockquote>
+此时此刻，恰如彼时彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静四万粉四百舰互动率94%说实话浓度更哈人
+
+

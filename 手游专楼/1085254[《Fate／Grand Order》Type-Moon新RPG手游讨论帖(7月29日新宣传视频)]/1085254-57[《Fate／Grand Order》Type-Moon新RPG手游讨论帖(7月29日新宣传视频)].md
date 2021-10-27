@@ -2232,3 +2232,17 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 还赢一手免费，保送5宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84178#       发表于 2021-10-27 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53302159&amp;ptid=1085254" target="_blank">zakki 发表于 2021-10-27 18:13:43</a>
+话说泳装小莫复刻才发现，冲莫这技能是不是被哈贝喵完爆了，还输一手100自冲 ...</blockquote>一个回收强，一个自充强，不过也确实没必要去补，毕竟连个强化都不舍得给
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
