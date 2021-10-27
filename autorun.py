@@ -74,11 +74,11 @@ if __name__ == '__main__':
             parse_html(data,threadict)
         with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
-        flag = 1
         ids = thdata.keys()
         for l in threadict.keys():
             if l in ids:
-                thdata[l]['active'] = True
+                if(int(l) > old_number):
+                    thdata[l]['active'] = True
             else:
                 thdata[l] = {}
                 thdata[l]['totalreply'] =0
@@ -94,7 +94,7 @@ if __name__ == '__main__':
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
     for i in thdata.keys():
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 2419200) or (int(threadid) > old_number):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 2419200) or (int(i) > old_number):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
