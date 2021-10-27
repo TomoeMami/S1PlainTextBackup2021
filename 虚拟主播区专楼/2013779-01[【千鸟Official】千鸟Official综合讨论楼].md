@@ -9870,3 +9870,25 @@ syl 千鸟时代，沸腾期待！
 好4，以前喜欢乱突击。苍天绕过谁~<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  莫洛骑士  
+##### 829#       发表于 2021-10-28 00:50
+
+
+文静登神长阶，就此停歇，让我们祝福千鸟剩下四位成员，人生有梦，各自精彩，散会！
+
+
+*****
+
+####  魔法少女大头  
+##### 830#       发表于 2021-10-28 00:55
+
+
+听了奥霍罗，这唱腔唱法真的不是满汉退役选手么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
