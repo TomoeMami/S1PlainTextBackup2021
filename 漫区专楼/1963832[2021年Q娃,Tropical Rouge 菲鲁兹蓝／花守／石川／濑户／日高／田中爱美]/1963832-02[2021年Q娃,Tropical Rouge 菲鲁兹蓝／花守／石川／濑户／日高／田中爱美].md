@@ -10601,3 +10601,16 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">第二季可能？
 
 
+
+
+*****
+
+####  最强惠酱  
+##### 2270#       发表于 2021-10-27 08:21
+
+
+第二季集结历代最强原画来q娃大乱斗好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
