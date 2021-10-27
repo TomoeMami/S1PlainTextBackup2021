@@ -18208,3 +18208,122 @@ BETA新潟上陸時のBETA捕獲作戦
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  天剑流星  
+##### 1257#       发表于 2021-10-28 01:57
+
+
+这集怎么不赶了，急着看名场景呢
+三八嘎改成这样一点味都没有了，没记错的话应该一句台词都没有吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1258#       发表于 2021-10-28 02:00
+
+
+原文有说动画没提到的几个点：
+
+
+1、香月夕呼帮白银武更多是想干点别的散散心，她自己手头的事情卡壳了
+
+2、香月夕呼喜欢撕新战术机座位上的保护膜wwwww
+
+3、白银武关于自己在这个世界已经死了这件事去找香月夕呼确认了，并且香月夕呼在白银武来了之后为了掩盖这一点还去修改了户口记录，只不过月咏真那那边的数据库权限太高她改不了
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1259#       发表于 2021-10-28 02:05
+
+
+以及这集目前只进展到第四章中间，还以为这集能结束第四章呢。如果说HSST坠落是跟后面有关联的话，新OS这个我真觉得没必要那么详细……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那时间真不多了，这季度到底停在哪啊
+
+
+*****
+
+####  hlazd  
+##### 1260#       发表于 2021-10-28 02:09
+
+
+这次动画恨不得见缝插针式的塞战术机内容，XM3的事肯定要好好讲清楚
+
+
+
+
+*****
+
+####  纯夏  
+##### 1261#       发表于 2021-10-28 02:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53307044&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-28 01:42</a>
+
+第二张图是主角机吗？感觉保护膜靠胶布固定还是有点不讲究
+
+
+—— 来自 OnePlus HD1905, Android 1 ...</blockquote>
+不是吧 你没看过逆袭的夏亚吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 1262#       发表于 2021-10-28 02:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53307044&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-10-28 01:42</a>
+第二张图是主角机吗？感觉保护膜靠胶布固定还是有点不讲究
+
+—— 来自 OnePlus HD1905, Android 1 ...</blockquote>
+下面是逆袭的夏亚里牛高出来的场景，动作也很类似
+
+
+*****
+
+####  jerryoq1  
+##### 1263#       发表于 2021-10-28 02:57
+
+
+这集可以，纯夏动了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+至于其他的重要吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOPKOM  
+##### 1264#         楼主| 发表于 2021-10-28 03:56
+
+
+不知道下集会不会有某红发黑幕的剪影
+
+
+*****
+
+####  angela5d30  
+##### 1265#       发表于 2021-10-28 05:12
+
+
+动画党，觉得这集最好看的段落是中间男主队友们去堵教官门那儿，特别搞笑。其次是男主在食堂动怒那部分。明明前面能明确知道制作组在赶进度，这集我咋感觉好慢啊（特指后半）<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ipcjs  
+##### 1266#       发表于 2021-10-28 05:58
+
+
+质量最高的居然是机战部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+

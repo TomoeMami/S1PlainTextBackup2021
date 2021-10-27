@@ -4457,3 +4457,49 @@ LL最魔幻的是jk逆天的作曲、填词、编舞和服装设计能力（星 
 多好个姑娘啊……可惜会动
 
 
+
+
+*****
+
+####  边境的  
+##### 3348#       发表于 2021-10-28 02:38
+
+
+ 本帖最后由 边境的 于 2021-10-28 03:20 编辑 
+
+liella新专辑，收录了全12话第二首ed的专辑已经上架流媒体
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/023833sngqysjqgub2ns42.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>59A3673A-02D1-4E29-B420-8353DC2183C7.jpeg</strong> (160.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 02:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/023833st4pltmzm22dvj2p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>30891A53-65AC-4F46-8EB3-AC1F81FBCF19.jpeg</strong> (158.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 02:38 上传
+
+
+同时还上架了原声，观众们可以回忆动画中的经典片段
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/031952l1tewoz9t6t1ewho.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>42D7C266-C035-4938-8DD4-2B98BF0946C3.jpeg</strong> (143.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 03:19 上传
+
+
