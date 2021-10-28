@@ -2510,3 +2510,36 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">个人剧情最后还有独眼（？）奏的头像
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6182#       发表于 2021-10-28 19:41
+
+
+阿迪的一星剧情又狂吹了一波小鸟游，怜在不知情的情况下被推上新高度了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+阿迪点名了杏奈、枫、怜、西塔拉、夜露，算是官方背书了吧。
+
+阿迪绊剧情中奏的部分是椎奈剧情的延续，没看建议去补。
+
+阿迪是真姬佬一上来就和椎奈玩修罗场<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+外传提到会长有王的资质那么阿迪和奏对会长的感情应该接近骑士对王的感情（忠诚优先于个人爱慕之情）
+
+
+以下剧透
+
+会长有和鸽子共享视觉的远望能力，甚至能和人分享视觉。这是继深紗希之后第二个确认的拥有特殊能力的女演员。特殊能力大概和冬马说的进化有关。
+
+会长和阿迪一样在中东面对过少年兵，会长那道疤痕就是少年兵打的。（援护的狙击手可能是吉尼）
+
+会长打算毕业后回瑞士开始自己的计划，并且向奏和椎奈明牌带她们一起走。
+
+ep5最后有大概是未来的独眼马尾奏。
+
+
+然后四星剧情好像有桑提的新装备，比原来那个帅多了。但我什么都没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
