@@ -14168,3 +14168,25 @@ X@@10]333QH}UF%I_TILO[M.jpg
 这关东煮下面的互动有点情景剧的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  GRMeA104  
+##### 4230#       发表于 2021-10-28 12:44
+
+
+苔总月底疑是要把份额补回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  T_Hb  
+##### 4231#       发表于 2021-10-28 12:45
+
+
+上次塔罗说的话要成真了吗
+
+
