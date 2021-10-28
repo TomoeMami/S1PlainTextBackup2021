@@ -4575,3 +4575,27 @@ liella新专辑，收录了全12话第二首ed的专辑已经上架流媒体
 oversize露肩好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 3355#       发表于 2021-10-28 08:48
+
+
+不愧是静态美人，其实那些整活多少有些jumpstartled，不算多吓人。
+
+结果动画刻画恋，美人的地方没刻画，才能的地方刻画的稀巴烂，反倒是整蛊的地方下了很多功夫，或许这就是2.5吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 3356#       发表于 2021-10-28 08:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">是健康的肉体
+
+
