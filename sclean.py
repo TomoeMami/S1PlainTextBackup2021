@@ -1,4 +1,4 @@
-
+# -*- coding: UTF-8 -*-
 import codecs
 import sys
 sys.stdout = codecs.getwriter("utf-8")(sys.stdout.detach())
