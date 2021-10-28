@@ -2466,3 +2466,62 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 不知道dw是不是拉到连这都做不到<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zore  
+##### 84199#       发表于 2021-10-28 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53317185&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-28 19:00</a>
+
+几百年前的乖离 开始也是公用仓库 后来都有素材独立仓库了
+
+不知道dw是不是拉到连这都做不到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么拉不拉的,就是不想做罢了
+
+啥都有仓库那它这绿方块换的就没多大意义了
+
+
+*****
+
+####  alucardcz  
+##### 84200#       发表于 2021-10-28 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53317240&amp;ptid=1085254" target="_blank">zore 发表于 2021-10-28 19:04</a>
+
+有什么拉不拉的,就是不想做罢了
+
+啥都有仓库那它这绿方块换的就没多大意义了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">难道现在就有意义吗  有上限的啊
+
+
+*****
+
+####  zore  
+##### 84201#       发表于 2021-10-28 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53317250&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-28 19:05</a>
+
+难道现在就有意义吗  有上限的啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可能对于"仓鼠"这件事,dw拥有自己独特的想法(可以做,但没必要
+
+
+*****
+
+####  quanlix  
+##### 84202#       发表于 2021-10-28 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53315447&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-10-28 17:14</a>
+
+送了一千多个业火，够喂到120吗？
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+100到120，职业有加成要4000多个5星狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
