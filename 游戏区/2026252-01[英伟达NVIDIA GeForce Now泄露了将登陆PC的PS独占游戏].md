@@ -3530,3 +3530,18 @@ zest宁愿瞎说，也不愿承认ns支持ue4<img src="https://static.saraba1st.
 ps4上的漫威蜘蛛侠的漫威是假的吗？而且我记得索尼只有蜘蛛侠的影视拍摄权，周边版权完全不在索尼手上。
 
 
+
+
+*****
+
+####  diketuiduoLI  
+##### 306#       发表于 2021-10-28 12:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53311182&amp;ptid=2026252" target="_blank">tlozfan 发表于 2021-10-28 12:11</a>
+ps4上的漫威蜘蛛侠的漫威是假的吗？而且我记得索尼只有蜘蛛侠的影视拍摄权，周边版权完全不在索尼手上。 ...</blockquote>
+是的
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
