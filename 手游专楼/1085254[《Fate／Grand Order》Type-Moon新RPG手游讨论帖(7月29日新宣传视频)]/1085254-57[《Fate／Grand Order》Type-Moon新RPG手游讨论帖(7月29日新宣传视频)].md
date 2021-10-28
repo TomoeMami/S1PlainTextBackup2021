@@ -2525,3 +2525,18 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 100到120，职业有加成要4000多个5星狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84203#       发表于 2021-10-28 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53317436&amp;ptid=1085254" target="_blank">quanlix 发表于 2021-10-28 19:19</a>
+100到120，职业有加成要4000多个5星狗粮</blockquote>
+100级以后的世界对我来说完全遥不可及啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
