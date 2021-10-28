@@ -4612,3 +4612,24 @@ oversize露肩好<img src="https://static.saraba1st.com/image/smiley/face2017/06
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  D麦林  
+##### 3358#       发表于 2021-10-28 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53308243&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-28 08:48</a>
+
+不愧是静态美人，其实那些整活多少有些jumpstartled，不算多吓人。
+
+
+结果动画刻画恋，美人的地方没刻画，才 ...</blockquote>
+我以前以为类似学生会长ポンコツ化啊大和抚子谐星化之类的是某种传承的梗
+
+现在看搞不好花田只会这么写……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+结果近来的两代学生会长和大和抚子位又是重叠的 结果都成了花田受害者协会要员
+
+
