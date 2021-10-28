@@ -2314,3 +2314,38 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 全卖了，一辈子都用不到的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84185#       发表于 2021-10-28 17:27
+
+
+大的活动要来了，估计要出CCC和大奥那种体量的支线，BOSS是Beast没跑了。
+
+
+*****
+
+####  zakki  
+##### 84186#       发表于 2021-10-28 17:33
+
+
+11月活动打beast6,12月打beast4柯扬斯卡娅有没有可能，这样你游明年完结锤死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 84187#       发表于 2021-10-28 17:34
+
+
+<blockquote>引用第84182楼不垃圾屌丝于2021-10-28 17:14发表的  :
+
+送了一千多个业火，够喂到120吗？—— 来自 Sony XQ-AT72, Android 11上的 ......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概刚够105
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+

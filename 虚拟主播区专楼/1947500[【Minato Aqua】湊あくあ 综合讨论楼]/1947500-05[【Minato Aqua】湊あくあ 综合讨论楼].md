@@ -13043,3 +13043,34 @@ crew屁用都没<img src="https://static.saraba1st.com/image/smiley/face2017/048
 重视每一个粉丝的意思是游戏民不算粉丝？
 
 
+
+
+*****
+
+####  Maonpuyo  
+##### 7045#       发表于 2021-10-28 17:25
+
+
+樱花妹病犯了，虽然我没忙到播不了的程度，但是播的少你也不能催哦，催了我精神就会不好，精神不好就不播哦
+
+
+*****
+
+####  越动天下  
+##### 7046#       发表于 2021-10-28 17:27
+
+
+精神不好还会游戏力变差哟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 7047#       发表于 2021-10-28 17:32
+
+
+简简单单摆个烂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
