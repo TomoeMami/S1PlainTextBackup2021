@@ -12990,3 +12990,14 @@ crew屁用都没<img src="https://static.saraba1st.com/image/smiley/face2017/048
 下午五点播，近况报告，不知道想说啥<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 7040#       发表于 2021-10-28 15:48
+
+
+别的不说肯定有鸽了周日的直播的原因吧
+
+

@@ -6247,3 +6247,35 @@ vの概念壊れるぅぅぅぅぅ（定期）
 没啥必然直接影响 单纯斗着玩...很多游戏发布会踩比管人这点高多了
 
 
+
+
+*****
+
+####  free  
+##### 7939#       发表于 2021-10-28 15:53
+
+
+这只是虹的点踩榜吧，给你们看看当初游戏部那会有多少踩
+
+至于有什么影响，回去翻翻二代游戏部“哭诉”点踩太多被油管警告的那期看看就知道了
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/155343r130c44nnxjh3pxp.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (18.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 15:53 上传
+
+
+*****
+
+####  OldGlory  
+##### 7940#       发表于 2021-10-28 16:00
+
+
+实际上就是没什么影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
