@@ -6279,3 +6279,37 @@ vの概念壊れるぅぅぅぅぅ（定期）
 实际上就是没什么影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qq845629713  
+##### 7941#       发表于 2021-10-28 16:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 后知后觉，原来口了的那次1w3踩居然被千皇超越了，
+
+
+*****
+
+####  asdhai  
+##### 7942#       发表于 2021-10-28 16:12
+
+
+要多到一定程度才会吃警告吧，几百几千踩的cylx就不要碰瓷了，油管才没功夫搭理。
+
+
+*****
+
+####  free  
+##### 7943#       发表于 2021-10-28 16:13
+
+
+[https://www.youtube.com/watch?v=UPnDSi1opC0](https://www.youtube.com/watch?v=UPnDSi1opC0)
+
+低評価が多すぎてYouTubeに嫌われました
+
+
+当然游戏部二代这种常年几万踩的，V圈大概也找不到第二个了，日常几百踩那大概确实没啥大影响
+
+
