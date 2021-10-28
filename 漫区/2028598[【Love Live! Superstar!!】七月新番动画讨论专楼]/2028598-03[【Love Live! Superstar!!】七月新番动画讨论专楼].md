@@ -4875,3 +4875,64 @@ oversize露肩好<img src="https://static.saraba1st.com/image/smiley/face2017/06
 https://share.api.weibo.cn/share/258658719.html?weibo_id=4697413081629759
 
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 3377#       发表于 2021-10-28 23:24
+
+
+终于有时间看完了最后三集，
+<img src="https://p.sda1.dev/2/59001e4fd3599344dfd3078a7cf6d791/IMG_CMP_174802603.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/29aeb13dcfb1ef3b7327294eecfa5136/IMG_CMP_194112292.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/12a7effaf55ee185460abaf92f1f7700/IMG_CMP_259327331.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/49d7fd1f599ea534bbcffbb9451a0356/IMG_CMP_20590345.png" referrerpolicy="no-referrer">
+
+“不可能输”、“就差一口气了”、“全村的希望”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+太经典了，然后果然经典亚军。
+最后典中典原班人马再战一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看得我ptsd又犯了
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  优妮可  
+##### 3378#       发表于 2021-10-28 23:24
+
+
+看个大概，大多是在聊经历和感想？
+
+
+*****
+
+####  player3960  
+##### 3379#       发表于 2021-10-28 23:28
+
+
+鲤鱼也是第一眼把千酱认成是可可了吗？我当初也觉得经典丸子头加白发红瞳的冲国人XP，没跑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 3380#       发表于 2021-10-28 23:29
+
+
+有说她把之前的作品都寄给企划，所以应该还是有内部对比的，毕竟说要找能同时说两国语言的人的话我觉得也不少。但是可能因为签烂铁加上她本人对企划一直的支持，所以算是比较大的加分项，好在她最终交了高分答卷。说起来，而且貌似也确定了是先做了角色设计，再挑的声优
+
+
+*****
+
+####  lj205  
+##### 3381#       发表于 2021-10-28 23:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53320365&amp;ptid=2028598" target="_blank">夏溪澪mio 发表于 2021-10-28 23:24</a>
+终于有时间看完了最后三集，</blockquote>
+看第十集就好了嘛，接下来跟大家开开心心迎接第一场live吧
+
+

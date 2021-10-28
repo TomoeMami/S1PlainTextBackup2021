@@ -14865,3 +14865,97 @@ apex主播这么多，非要看一个只会站桩射击的？
 感觉这个问题里换成moba类游戏答案还是差不多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 喜欢看她玩游戏或者看她玩自己喜欢的游戏这种？
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 4294#       发表于 2021-10-28 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53320309&amp;ptid=2018830" target="_blank">Klience 发表于 2021-10-28 23:18</a>
+
+感觉这个问题里换成moba类游戏答案还是差不多 喜欢看她玩游戏或者看她玩自己喜欢的游戏这种？ ...</blockquote>
+如果让我很直接的说一句的话
+
+
+主播常年且持续地打游戏这件事本身就没有任何特别值得我去看的价值，或者说看不长久
+
+
+除非你是首发亦或者比赛，但是这一般跟人没啥关系，你要我直接点，我黎轨甚至看的在日国人无声直播
+
+换个例子，几年前我看过狗头人的P5录播，我嫌拖，看到一半就没看了，有时候真不如自己找个无声流程云
+
+
+这就是我最直接的感受
+
+
+*****
+
+####  Klience  
+##### 4295#       发表于 2021-10-28 23:34
+
+
+对嘛 所以还是得看个人嘛 有人看腻了 有人看别人玩游戏打发时间 也有人看着喜欢的主播玩喜欢的游戏 各有所需嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 4296#       发表于 2021-10-28 23:34
+
+
+你这一句话还挺长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  时间在我手中  
+##### 4297#       发表于 2021-10-28 23:40
+
+
+第二行那句就完事了，其他算是做注释
+
+
+*****
+
+####  雪风utopia  
+##### 4298#       发表于 2021-10-28 23:42
+
+
+这一句话我一次都看不完，要是说估计得断气<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 4299#       发表于 2021-10-28 23:43
+
+
+所以到头来还是那句话 AKBKBKG 适用于所有主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 4300#       发表于 2021-10-28 23:43
+
+
+各人有各人爱看的，谁还能理解谁呢
+
+
