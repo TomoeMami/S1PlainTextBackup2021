@@ -6161,3 +6161,28 @@ syl，楼友别尬黑，手游魔怔人才是人多的那边
 vの概念壊れるぅぅぅぅぅ（定期）
 
 
+
+
+*****
+
+####  獅白ぼたん  
+##### 7931#       发表于 2021-10-28 13:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53311721&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-10-28 12:53</a>
+
+什么时候开小差也算违反社会公德了</blockquote>
+对职人不尊重在日本算公德吧，不如职种歧视帽子大
+
+管人有什么职业操守可言
+
+
+*****
+
+####  渡鸦骑士  
+##### 7932#       发表于 2021-10-28 13:23
+
+
+<[img src="https://i.loli.net/2021/10/28/A4FeCsortWJ7Ox3.png" referrerpolicy="no-referrer">2000在吗（
+
+

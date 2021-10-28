@@ -10100,3 +10100,16 @@ coco一般是看电影混时长
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">发现点个关注也会被谢，那取关再关注不就能被谢两次
 
 
+
+
+*****
+
+####  tankai  
+##### 848#       发表于 2021-10-28 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53311809&amp;ptid=2013779" target="_blank">憧憬鲨 发表于 2021-10-28 13:02</a>
+发现点个关注也会被谢，那取关再关注不就能被谢两次</blockquote>
+K48，认知厨。
+
+
