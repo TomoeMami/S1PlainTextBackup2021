@@ -5113,3 +5113,30 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  Karin11974  
+##### 3397#       发表于 2021-10-29 07:06
+
+
+比较想知道鲤鱼一开始的歌手出道跟企划有没关系，比如已经确定选上了，然后先那边个人出道试试水，时间上刚好不久后就疫情爆发，看她这个视频里说
+
+
+<img src="https://img.saraba1st.com/forum/202110/29/065846xgduwcwd4vvvkhjz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_4008.JPG</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2021-10-29 06:58 上传
+
+
+不过访谈里也没谈到企划外的东西
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
