@@ -14993,3 +14993,16 @@ apex主播这么多，非要看一个只会站桩射击的？
 117一周年纪念直播是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ylssb10438  
+##### 4304#       发表于 2021-10-29 00:42
+
+
+最近买了3ds，内存卡和烧录卡全装满了，什么fc sfc gb gbc gba nds 3ds
+
+md ps 街机全装进去了， 感叹老游戏机的好游戏真是多的玩不完，为啥管人那么喜欢抓着apex lol mc 薅羊毛，c酱老e他们没新游戏玩了就找老游戏播，寅子模拟经营 策略类 体育类游戏啥都尝试研究，没游戏了还能播播橙光那些文字冒险讲讲相声<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">像泛式播人狼村散人播弹丸论破秦川播大逆转，这些文字解密游戏真就和同步试听一样样的
+
+

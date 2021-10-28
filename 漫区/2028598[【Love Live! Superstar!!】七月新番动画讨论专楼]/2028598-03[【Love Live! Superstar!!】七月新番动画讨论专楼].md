@@ -5007,3 +5007,27 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以还真不是钦定
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3388#       发表于 2021-10-29 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321076&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-29 00:17</a>
+同时说两种语言的声优和cos国内也不少吧？</blockquote>
+要年轻点的，所以岩井映美里为代表的就排除了，剩下可选的其实真不多。国内这边签了日本事务所的怕不是就鲤鱼一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3389#       发表于 2021-10-29 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321215&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-29 00:33</a>
+要年轻点的，所以岩井映美里为代表的就排除了，剩下可选的其实真不多。国内这边签了日本事务所的怕不是就 ...</blockquote>
+事务所这种好说，而且大概也跟国内业界联系让推荐然后比选，要不然不行的话可是砸自己招牌。倒是也侧面印证，可可这个角色还真是一开始就瞄准内地市场。
+
+
