@@ -1,5 +1,5 @@
 #! /usr/bin/env python
-# -*- coding: utf-8 -*-
+
 
 import re
 from pathlib import Path
@@ -10,7 +10,7 @@ def getallfile(dirpath,allpath=[]):
             print(pa)
             getallfile(pa)
         else:
-            allpath.append(pa) 
+            allpath.append(pa)
     return allpath
 
 if __name__ == "__main__":

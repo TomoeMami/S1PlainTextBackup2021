@@ -50,7 +50,9 @@ def parse_html(html,threadict):
 if __name__ == '__main__':
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
-    cookie_str1 = os.getenv('S1_COOKIE')
+    with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
+        cookie_str1 = f.read()
+    #cookie_str1 = os.getenv('S1_COOKIE')
     cookie_str = repr(cookie_str1)[1:-1]
     # #把cookie字符串处理成字典，以便接下来使用
     cookies = {}
@@ -61,7 +63,7 @@ if __name__ == '__main__':
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
     forumdict = {'外野': '75','虚拟主播区专楼':'151','游戏区':'4','漫区':'6',}
     # forumdict = {'外野': '75','游戏区':'4','漫区':'6'}
-    rootdir="./"
+    rootdir = "./"
     session = requests.session()
     for k in forumdict.keys():
         threadict = {}
@@ -73,7 +75,7 @@ if __name__ == '__main__':
             data = s1.content
             parse_html(data,threadict)
         with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
-            thdata=json.load(f)
+            thdata = json.load(f)
         ids = thdata.keys()
         for l in threadict.keys():
             if l in ids:

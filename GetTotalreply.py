@@ -1,4 +1,4 @@
-# -*- coding: UTF-8 -*-
+
 #!/usr/bin/env/ python3
 import re
 import sys
@@ -38,14 +38,13 @@ if __name__ == '__main__':
             pages = '%02d' %math.ceil(lastpage/50)
             filename = str(ThreadID)+'-'+str(pages)+titles+'.md'
             with open((filedir+filename).encode('utf-8'),'r',encoding='utf-8') as f:
-                findword = r'\d+#' 
-                pattern = re.compile(findword)  
-                results = re.findall(pattern,f.read())  
-                for result in results:  
+                findword = r'\d+#'
+                pattern = re.compile(findword)
+                results = re.findall(pattern,f.read())
+                for result in results:
                 #print result
                     replys.append(result)
                 k = re.search(r'\d+',str(replys[-1]))
             thdata[i]['totalreply'] = int(k.group(0))
             with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
-

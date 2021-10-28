@@ -8,4 +8,3 @@ echo "git commit: 上传于 $datime"
 git push origin master
 echo "finished..."
 
-

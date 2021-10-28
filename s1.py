@@ -1,4 +1,3 @@
-# -*- coding: UTF-8 -*-
 #!/usr/bin/env/ python3
 import requests
 from bs4 import BeautifulSoup
@@ -12,8 +11,6 @@ import math
 import asyncio,aiohttp
 
 # sys.excepthook = lambda *args: exit(1) #只有在出现exit(1)的情况时才终止，debug时不要用
-
-
 def mkdir(path):
     # 去除首位空格
     path=path.strip()
@@ -133,8 +130,8 @@ def FormatStr(namelist, replylist,totalreply):
     output = re.sub(r'\n{4,}','\n\n\n', output)
     lastreply = replynumber[-1]
     return output,lastreply
-
-cookie_str1 = os.getenv('S1_COOKIE')
+with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
+    cookie_str1 = f.read()
 cookie_str = repr(cookie_str1)[1:-1]
 # #把cookie字符串处理成字典，以便接下来使用
 cookies = {}
@@ -143,10 +140,9 @@ for line in cookie_str.split(';'):
     cookies[key] = value
     # 设置请求头
 headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
-rootdir="./"           
+rootdir="./"
 with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
     thdata=json.load(f)
-
 
 async def UpdateThread(threaddict,semaphore):
 # async def UpdateThread(threaddict):
@@ -196,7 +192,7 @@ async def UpdateThread(threaddict,semaphore):
                         ThreadContent,lastreply= FormatStr(rnamelist, rreplylist,threaddict['totalreply'])
                         contentdict[str(lastreply)] = {}
                         contentdict[str(lastreply)]['content'] = ThreadContent
-                        contentdict[str(lastreply)]['page'] = thread  
+                        contentdict[str(lastreply)]['page'] = thread
             if (contentdict.keys()):
                 if(min(list(map(int,contentdict.keys()))) > threaddict['totalreply']):
                     print(threaddict['id']+'-'+str(contentdict.keys()))
@@ -215,11 +211,11 @@ async def UpdateThread(threaddict,semaphore):
         except Exception as e:
             print(e)
             print('error:id='+threaddict['id'])
-            
+
             pass
 
 
-        
+
 async def main():
 
     tasks = []
@@ -238,5 +234,5 @@ async def main():
 
 if __name__ == '__main__':
 
-    
+
     asyncio.run(main())

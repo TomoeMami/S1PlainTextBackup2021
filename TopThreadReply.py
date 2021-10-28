@@ -1,4 +1,4 @@
-# -*- coding: UTF-8 -*-
+
 
 rootdir="./"
 
@@ -8,7 +8,7 @@ from pathlib import Path
 import datetime
 import requests,os,time
 
-rootpath = './'
+
 
 
 def getdate(beforeOfDay):
@@ -20,7 +20,7 @@ def getdate(beforeOfDay):
         return re_date
 
 if __name__ == '__main__':
-    p = Path(rootpath)
+    p = Path(rootdir)
     # replydict = {
     #     '外野':{},
     #     '漫区':{},
@@ -37,7 +37,7 @@ if __name__ == '__main__':
         if(('虚拟主播区专楼' not in str(file) ) and ('手游专楼' not in str(file))):
             print(str(file))
             with open (file, 'r',encoding='UTF-8') as f:
-                lines = f.readlines() 
+                lines = f.readlines()
                 a = ''
                 for line in lines:
                     a += line.strip()
@@ -117,7 +117,8 @@ if __name__ == '__main__':
             rstr = rstr +str(i+1)+'. '+str(nameorder[i][0][0])+'****'+str(nameorder[i][0][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
         rstr = rstr + '===========\n\n'
     # print(rstr)
-    cookie_str1 = os.getenv('S1_COOKIE')
+    with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
+        cookie_str1 = f.read()
     cookie_str = repr(cookie_str1)[1:-1]
     cookies = {}
     for line in cookie_str.split(';'):
