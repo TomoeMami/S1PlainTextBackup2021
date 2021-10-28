@@ -14236,3 +14236,16 @@ X@@10]333QH}UF%I_TILO[M.jpg
 这阵容说白了就是以前黄兔子那个相亲的翻版，或者说新年分再版，我对犬山仅这次联动能安排出什么有意思的活不抱任何希望反正。
 
 
+
+
+*****
+
+####  GRMeA104  
+##### 4236#       发表于 2021-10-28 15:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53313047&amp;ptid=2018830" target="_blank">往世雷书 发表于 2021-10-28 14:49</a>
+别阴阳怪气，主播联动原因无非是利益和兴趣两种，狗蛋粉丝比组长庄司加起来都多三个人还天天混在一起，是真 ...</blockquote>
+苔总除了这两位还有啥拿得出手的组合呢 一个猜想，不一定对<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
