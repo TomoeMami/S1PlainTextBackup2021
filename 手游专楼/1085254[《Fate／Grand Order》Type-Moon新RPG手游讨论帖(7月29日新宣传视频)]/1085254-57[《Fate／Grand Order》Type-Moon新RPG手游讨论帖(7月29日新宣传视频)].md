@@ -2412,3 +2412,23 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 硬...硬币又不够了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zore  
+##### 84194#       发表于 2021-10-28 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能还有些什么芙芙之类的吧,感觉不如石头或者灵脉石
+
+
+*****
+
+####  都谷捻柏  
+##### 84195#       发表于 2021-10-28 18:37
+
+
+硬币根本不够，要么再送100个圣杯让我把狗粮用出去，或者送100个结晶让我被动敞开了升也行
+
+
