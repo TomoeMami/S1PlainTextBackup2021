@@ -6339,3 +6339,32 @@ vの概念壊れるぅぅぅぅぅ（定期）
 Ark也是虹男普遍抱团的开始吧，感觉不是游戏的原因，还是频繁抱团互相引流的效果，点名一个油，感觉是他带来的版本答案
 
 
+
+
+*****
+
+####  Paisley  
+##### 7946#       发表于 2021-10-28 18:03
+
+
+地底王拉的那个万年不动的四人小组又联动了，很难不怀疑是为了给油灭火<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 7947#       发表于 2021-10-28 18:04
+
+
+油管自己发布的视频都快2000w踩了，v圈这点小打小闹洒洒水啦
+
+
+*****
+
+####  死体残留  
+##### 7948#       发表于 2021-10-28 18:16
+
+
+凛前辈的niji诊断开在b限了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

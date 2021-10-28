@@ -5581,3 +5581,18 @@ wt就是要表现出那种不信命的气势
 你怎么确定堪十郎不是吃过动物系恶魔果实·人人果实·武士形态的画笔呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  inconolast  
+##### 55914#       发表于 2021-10-28 18:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我突然理解了，武士反复仰卧起坐，是尾田给他爹御田堂堂复活做的铺垫
+
+等大家都能接受武士起码要死够9次才会死的时候
+
+尾田他爹再冒出来就没有任何违和感了
+
+
