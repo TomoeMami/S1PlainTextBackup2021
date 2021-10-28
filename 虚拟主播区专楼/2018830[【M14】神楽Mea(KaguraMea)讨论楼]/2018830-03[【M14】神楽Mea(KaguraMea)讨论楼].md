@@ -15044,3 +15044,16 @@ md ps 街机全装进去了， 感叹老游戏机的好游戏真是多的玩不�
 我怎么不信死人会能原地复活<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 4309#       发表于 2021-10-29 07:12
+
+
+事业民可能有诈尸的一天，但是独角兽就别想了，有的事不是你忘了就不存在的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
