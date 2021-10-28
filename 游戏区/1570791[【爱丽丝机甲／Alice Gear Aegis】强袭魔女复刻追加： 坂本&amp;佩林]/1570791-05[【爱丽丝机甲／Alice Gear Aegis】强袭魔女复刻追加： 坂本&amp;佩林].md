@@ -2543,3 +2543,14 @@ ep5最后有大概是未来的独眼马尾奏。
 然后四星剧情好像有桑提的新装备，比原来那个帅多了。但我什么都没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  LEOKO~  
+##### 6183#       发表于 2021-10-28 22:29
+
+
+全灭...
+
+

@@ -16178,3 +16178,23 @@ lol都是绫总不懂事，打着玩的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有收录还是个问题呢
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13366#       发表于 2021-10-28 22:30
+
+
+这就是绫总提过没到标准的收录吧
+
+<img src="https://img.saraba1st.com/forum/202110/28/222955gjw6sl6w3nw5t6nr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>monster.JPG</strong> (193.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 22:29 上传
+
+

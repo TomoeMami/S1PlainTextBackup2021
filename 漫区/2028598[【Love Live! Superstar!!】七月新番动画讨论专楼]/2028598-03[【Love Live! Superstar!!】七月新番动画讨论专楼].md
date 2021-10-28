@@ -4823,3 +4823,23 @@ oversize露肩好<img src="https://static.saraba1st.com/image/smiley/face2017/06
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下周三生放……………………
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3372#       发表于 2021-10-28 22:36
+
+
+虽然有生放是好事，但我觉得还是让她们多休息下吧，一周两场live不是什么轻松事，还有广播这些，sayurin的个人广播也要开始了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3373#       发表于 2021-10-28 22:41
+
+
+打基础的时候只能拼了，说让她们休息反而不现实，希望她们能有所回报
+
+

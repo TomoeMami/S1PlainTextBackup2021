@@ -18382,3 +18382,43 @@ F0A550B4-2932-4BEA-8FE5-9BDFC7205BF3.jpeg
 <img src="https://img.saraba1st.com/forum/202110/28/144019wly5etq9s5c8lixl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Carta_Issue  
+##### 1270#       发表于 2021-10-28 22:42
+
+
+ 本帖最后由 Carta_Issue 于 2021-10-28 22:43 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/224157v7kyxxjycxzg5fxe.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (147.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 22:41 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+            武御雷可不只是好看而已啊！
+
+
+*****
+
+####  KOPKOM  
+##### 1271#         楼主| 发表于 2021-10-28 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53319826&amp;ptid=1860817" target="_blank">Carta_Issue 发表于 2021-10-28 22:42</a>
+
+武御雷可不只是好看而已啊！</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 那也应该是逆袭的提奥多尔吧，毕竟同是往地球砸过垃圾的人
+
+

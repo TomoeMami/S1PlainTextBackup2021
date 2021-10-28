@@ -2620,3 +2620,17 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">礼装都有不用换，剩下的东西都换完了点数都还没打够
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 84210#       发表于 2021-10-28 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53318666&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-28 21:06</a>
+
+乖离就这样的  其实废狗不是已经有这苗头了吗  强化界面有个显示几个金狗粮几个银狗粮的界面  这就 ...</blockquote>
+保不齐是因为屎山代码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
