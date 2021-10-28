@@ -6053,3 +6053,21 @@ RoughSketch feat. 北小路ヒスイ - Halloween Is Chaos (Official Videoclip) [
 反正这事我的感想还是日本粉丝真是麻烦，什么事都能炎，只是没想到国内也有这种类型的观众，看V和玩游戏入脑的果然都不是一般人了。要是我碰到自己玩的游戏有人搞这种同人企划我顶多心里骂一句“傻X钱多没地方花”吧。 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 7922#       发表于 2021-10-28 10:50
+
+
+ 本帖最后由 poipanchao 于 2021-10-28 10:51 编辑 
+
+imas当年木星出的时候那个炎的…
+后来随着时代变迁，真的出男团了，还是跟其他几个企划隔开的
+不过我觉得是因为imas本身开了好几个团，粉丝已经习惯各玩各的了
+
+syl，楼友别尬黑，手游魔怔人才是人多的那边
+楼友不能理解请在自己身上找问题
+
+

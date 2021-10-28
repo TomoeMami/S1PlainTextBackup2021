@@ -10011,3 +10011,50 @@ coco定位是rap，也是没正经学过唱歌，艾瑞思还连线教过她唱�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">皮挺好看的，她平时干嘛啊
 
 
+
+
+*****
+
+####  莫洛骑士  
+##### 840#       发表于 2021-10-28 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309540&amp;ptid=2013779" target="_blank">憧憬鲨 发表于 2021-10-28 10:30</a>
+顺着推荐点到那个黑皮成员直播间看了一下
+皮挺好看的，她平时干嘛啊 ...</blockquote>
+千鸟被企鹅剥削，人均每个月要播80h，所以什么都播，杂谈，看二创，棉花糖，观影，打游戏，反正轮椅人能玩的都玩
+
+
+
+
+*****
+
+####  逸yi  
+##### 841#       发表于 2021-10-28 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309907&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-28 10:54</a>
+千鸟被企鹅剥削，人均每个月要播80h，所以什么都播，杂谈，看二创，棉花糖，观影，打游戏，反正轮椅人能 ...</blockquote>
+是虚拟区运营签约的要求吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 842#       发表于 2021-10-28 10:59
+
+
+coco一般是看电影混时长
+
+
+*****
+
+####  憧憬鲨  
+##### 843#       发表于 2021-10-28 11:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309907&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-28 10:54</a>
+千鸟被企鹅剥削，人均每个月要播80h，所以什么都播，杂谈，看二创，棉花糖，观影，打游戏，反正轮椅人能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那就是每天两三个小时的kpi？
+
+
