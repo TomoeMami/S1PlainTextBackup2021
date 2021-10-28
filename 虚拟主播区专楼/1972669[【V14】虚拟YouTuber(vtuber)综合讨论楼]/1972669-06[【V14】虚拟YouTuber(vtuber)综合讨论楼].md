@@ -6012,3 +6012,44 @@ RoughSketch feat. 北小路ヒスイ - Halloween Is Chaos (Official Videoclip) [
 闪耀色彩自己还得叫男团一声前辈，还得去给765打工，自己的游戏没live看害得去765那看live演出呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yearmon  
+##### 7919#       发表于 2021-10-28 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309173&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-10-28 10:02</a>
+
+我倒是觉得那边提供的思路挺好理解的
+
+假设你玩一个全是女偶像的游戏比如闪耀色彩那种，结果跑来两个男V同人 ...</blockquote>
+就这个“让音乐人号称”吧，屁股在哪的人就会从哪边角度看问题，我的建议是想让人觉得你的评价中肯就不要带这种主观的东西比较好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  毛头小希  
+##### 7920#       发表于 2021-10-28 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309383&amp;ptid=1972669" target="_blank">bluebaby 发表于 2021-10-28 10:18</a>
+
+闪耀色彩自己还得叫男团一声前辈，还得去给765打工，自己的游戏没live看害得去765那看live演出呢 ...</blockquote>
+爱马仕男团早几年也是很艰难的……至于是运营垃圾还是粉丝不能接受男团的问题，年代太久远我已经记不清了，不过那跟本楼就更无关了
+
+木口星的话……算了那个我更不熟
+
+
+
+
+*****
+
+####  _Ra1nMaker  
+##### 7921#       发表于 2021-10-28 10:45
+
+
+反正这事我的感想还是日本粉丝真是麻烦，什么事都能炎，只是没想到国内也有这种类型的观众，看V和玩游戏入脑的果然都不是一般人了。要是我碰到自己玩的游戏有人搞这种同人企划我顶多心里骂一句“傻X钱多没地方花”吧。 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
