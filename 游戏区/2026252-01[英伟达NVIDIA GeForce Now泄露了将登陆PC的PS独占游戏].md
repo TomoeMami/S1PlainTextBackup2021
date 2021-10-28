@@ -3394,3 +3394,63 @@ GT7要是真上PC，那我就真不用买PS5了
 麻布仔也上了，名单可靠性更高了，不过mgs2 3那写着hd，结果不是重制，而是hd？
 
 
+
+
+*****
+
+####  hkguty  
+##### 295#       发表于 2021-10-28 09:24
+
+
+哪儿提到贝姐3了
+
+
+*****
+
+####  GuardHei  
+##### 296#       发表于 2021-10-28 09:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53218012&amp;ptid=2026252" target="_blank">JudgmentEye 发表于 2021-10-21 10:55</a>
+贝姐3是白金自己那套引擎、smt5是unity</blockquote>
+神tm smtv是unity<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">zest是哪里看的二手假消息
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  fffsuper  
+##### 297#       发表于 2021-10-28 09:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53308674&amp;ptid=2026252" target="_blank">GuardHei 发表于 2021-10-28 09:26</a>
+神tm smtv是unityzest是哪里看的二手假消息
+
+—— 来自 S1Fun</blockquote>
+zest宁愿瞎说，也不愿承认ns支持ue4<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Chia  
+##### 298#       发表于 2021-10-28 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53308651&amp;ptid=2026252" target="_blank">hkguty 发表于 2021-10-28 09:24</a>
+
+哪儿提到贝姐3了</blockquote>
+泄了很多，可以看5楼的整理
+
+
+*****
+
+####  caine1992  
+##### 299#       发表于 2021-10-28 09:43
+
+
+不慌，我们还有无敌的血源诅咒
+
+
