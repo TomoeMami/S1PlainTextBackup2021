@@ -5066,3 +5066,18 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 参考菜宝和秀18年定下来，企划想吃国际饭呗，无非as和疫情，这饭吃得有点晚
 
 
+
+
+*****
+
+####  qratosone  
+##### 3393#       发表于 2021-10-29 01:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321215&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-29 00:33</a>
+要年轻点的，所以岩井映美里为代表的就排除了，剩下可选的其实真不多。国内这边签了日本事务所的怕不是就 ...</blockquote>
+估计应该是先定下来要塑造真外国人，然后看看有哪些演员可以选，最后再设计角色。毕竟塑造真外国人的话演员就只能是在日本的外国人或者有海外生活背景的日本人，一共就那么几个
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
