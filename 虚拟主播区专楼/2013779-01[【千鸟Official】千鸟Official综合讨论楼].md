@@ -10113,3 +10113,21 @@ coco一般是看电影混时长
 K48，认知厨。
 
 
+
+
+*****
+
+####  tn_teana  
+##### 849#       发表于 2021-10-28 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309540&amp;ptid=2013779" target="_blank">憧憬鲨 发表于 2021-10-28 10:30</a>
+
+顺着推荐点到那个黑皮成员直播间看了一下
+
+皮挺好看的，她平时干嘛啊 ...</blockquote>
+她的特色业务是早安回和睡前小故事
+
+白天播就突出一个嗯混，比如看片，打游戏，练乐器，画画之类的
+
+
