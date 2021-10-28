@@ -4936,3 +4936,45 @@ https://share.api.weibo.cn/share/258658719.html?weibo_id=4697413081629759
 看第十集就好了嘛，接下来跟大家开开心心迎接第一场live吧
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3382#       发表于 2021-10-28 23:55
+
+
+访谈可可官方的要求就是要会说中文和日文…………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山岚夜雨  
+##### 3383#       发表于 2021-10-29 00:00
+
+
+ 本帖最后由 山岚夜雨 于 2021-10-29 00:02 编辑 
+
+liella各人谈入坑love live的契机，虽然好像有过访谈，但是以聊天的方式来说好像是第一次，b站熟肉【【中字】Liella!邂逅 LoveLive！的契机-哔哩哔哩】https://b23.tv/kqdNoU<img src="https://p.sda1.dev/2/f41210f9c88f52533f4ade3cf63ade59/IMG_CMP_264336334.png" referrerpolicy="no-referrer">
+鲤鱼是听了缪的4单入坑的，真的是老拉拉人了
+
+
+*****
+
+####  蜜梨柑  
+##### 3384#       发表于 2021-10-29 00:03
+
+
+自己买了放一个清晰一点的版本
+
+
+<img src="https://img.saraba1st.com/forum/202110/29/000313ogstyocyt6rfczgs.png" referrerpolicy="no-referrer">
+
+
+<strong>liyuu访谈.png</strong> (497.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-29 00:03 上传
+
+

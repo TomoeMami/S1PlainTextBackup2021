@@ -2588,3 +2588,19 @@ ep5最后有大概是未来的独眼马尾奏。
 另外会长三星剧情一开始的那个女仆居然就是阿迪的姐姐，会长家战斗力也太爆表了
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6186#       发表于 2021-10-28 23:45
+
+
+ 本帖最后由 江戸前ルナ 于 2021-10-28 23:47 编辑 
+
+只能说为了把场景写得有逼格但感觉很不严谨，也没想好好交待的感觉。前后像有冲突所以我就对整个场景脑内立不起来<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+前面还说会长用了鸽子打完，描述那群少年少女时也是说连下身装备都没穿应该只穿了上身，应该对她们没威胁，所以会长她们应该是带了GEAR的。然后后面会长就因为仁慈被暗算，直接被破防擦弹了。满装备GEAR的佣兵被只穿上身GEAR一发破防？？？什么破盾的描写啥都没<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">少女“蒸发”后也没写这是谁打的。有迷之攻击，那帮孩子看着自己的同伴被杀了也没啥反应她们两人还去哄孩子们去睡觉，这什么跟什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
