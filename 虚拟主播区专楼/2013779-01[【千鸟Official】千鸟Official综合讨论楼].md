@@ -9945,3 +9945,37 @@ syl 千鸟时代，沸腾期待！
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  tn_teana  
+##### 835#       发表于 2021-10-28 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305350&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-27 22:21</a>
+
+就是说这是2.0第二位3D喽?</blockquote>
+艾瑞思有2060啊
+
+
+*****
+
+####  tn_teana  
+##### 836#       发表于 2021-10-28 08:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53305661&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-10-27 22:51</a>
+
+那一年的决赛是文静对兰音，最终比分1-0。当时我看见窝瓜坐在椅子上泣不成声，那一刻我就在想如果我能成为 ...</blockquote>
+歌力方面，基本功最扎实唱的也最多的是艾瑞思
+
+其次是文静
+
+然后是艾白，艾白属于天赋高但是没学过唱歌
+
+coco定位是rap，也是没正经学过唱歌，艾瑞思还连线教过她唱歌
+
+琳就甭提了，可预见的未来都请带着滤镜听她唱歌
+
+
