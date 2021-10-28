@@ -5955,3 +5955,60 @@ https://twitter.com/Ichig0miIk/status/1453363723628732427
 或是es粉战斗力太强<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">，拳打虹楼咣咣作响可以说
 
 
+
+
+*****
+
+####  毛头小希  
+##### 7915#       发表于 2021-10-28 10:02
+
+
+我倒是觉得那边提供的思路挺好理解的
+
+假设你玩一个全是女偶像的游戏比如闪耀色彩那种，结果跑来两个男V同人曲各种擦边，曲绘各种擦边
+
+甚至要出商业曲了叫来官方音乐人创作甚至让音乐人号称世界观有联系
+
+那不来烧烧更健康？
+
+至于猴楼反华这个问题，es在国内女粉群内早就被打上了cxfhes的标签
+
+还粉下去的我觉得已经不太在乎这个问题了，顶多就是本来就想骂猴楼或者本来就想骂es的现在又多一把刀罢了
+
+
+*****
+
+####  渡鸦骑士  
+##### 7916#       发表于 2021-10-28 10:06
+
+
+烧烧确实更健康啦，我也觉得她俩这次是做过了。
+
+但是怎么讲呢……关粉丝什么事儿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+es粉丝的好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 7917#       发表于 2021-10-28 10:15
+
+
+那不如来听听正统管人同人曲<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+RoughSketch feat. 北小路ヒスイ - Halloween Is Chaos (Official Videoclip) [https://youtu.be/u91-Yfu7bok](https://youtu.be/u91-Yfu7bok) 
+
+
+*****
+
+####  bluebaby  
+##### 7918#       发表于 2021-10-28 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309173&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-10-28 10:02</a>
+我倒是觉得那边提供的思路挺好理解的
+
+假设你玩一个全是女偶像的游戏比如闪耀色彩那种，结果跑来两个男V同人 ...</blockquote>
+闪耀色彩自己还得叫男团一声前辈，还得去给765打工，自己的游戏没live看害得去765那看live演出呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

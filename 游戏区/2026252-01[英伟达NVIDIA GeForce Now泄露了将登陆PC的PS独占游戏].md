@@ -3467,3 +3467,20 @@ zest宁愿瞎说，也不愿承认ns支持ue4<img src="https://static.saraba1st.
 山际做的那个vr小游戏都要登pc反而血缘没有，看来血缘真的是有移植瓶颈
 
 
+
+
+*****
+
+####  Chia  
+##### 301#       发表于 2021-10-28 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309024&amp;ptid=2026252" target="_blank">hkguty 发表于 2021-10-28 09:52</a>
+
+山际做的那个vr小游戏都要登pc反而血缘没有，看来血缘真的是有移植瓶颈</blockquote>
+一般都是协议问题。
+
+
+比如独占期过长或当时未考虑PC。再或者留了一手，使索尼未获得在其他平台发行的权力。
+
+

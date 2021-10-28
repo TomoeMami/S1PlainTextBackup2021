@@ -5524,3 +5524,14 @@ wt就是要表现出那种不信命的气势
 <img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">直接快进到尾田就是勘十郎
 
 
+
+
+*****
+
+####  blueflames001  
+##### 55909#       发表于 2021-10-28 10:04
+
+
+“忍者实际强大”“力士令人敬畏”“武士从不倒下（某人除外）”“我们霓虹真是太厉害了”
+
+
