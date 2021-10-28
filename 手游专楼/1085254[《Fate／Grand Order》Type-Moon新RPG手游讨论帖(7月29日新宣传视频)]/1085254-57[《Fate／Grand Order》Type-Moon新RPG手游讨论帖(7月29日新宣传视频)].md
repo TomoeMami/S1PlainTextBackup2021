@@ -2349,3 +2349,55 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 84188#       发表于 2021-10-28 17:49
+
+
+可以把能升级的都给升下了，点技能啥的继续慢慢来……
+
+
+*****
+
+####  黑上シグマ  
+##### 84189#       发表于 2021-10-28 17:51
+
+
+瞄了眼推，大多数人都是1047个，但有一部分人拿到1050个，不知道哪儿来的差
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  空气蛹  
+##### 84190#       发表于 2021-10-28 17:55
+
+
+这送的业火救大命了，好多可以升满级了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  zakki  
+##### 84191#       发表于 2021-10-28 17:55
+
+
+不过最近疯狂给萌新补进度追齐主线，有种一起迎来主线终章的感觉，明年完结可能性再+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 84192#       发表于 2021-10-28 18:03
+
+
+巴比伦的大**要来了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
