@@ -5081,3 +5081,35 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3394#       发表于 2021-10-29 01:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">访谈翻译有了，就是日方要会中日的，鲤鱼把『Snow halation』的翻唱、舞蹈视频、读台词的音源发了过去，详情看松雾大佬的翻译
+
+
+*****
+
+####  中野四葉  
+##### 3395#       发表于 2021-10-29 02:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来鲤鱼是学画画的，怪不得拉花都这么强
+
+
+*****
+
+####  cat1230  
+##### 3396#       发表于 2021-10-29 04:49
+
+
+关于如何选上的料不是很多，可能liyuu自己也不大清楚到底是怎么脱颖而出的吧。
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+

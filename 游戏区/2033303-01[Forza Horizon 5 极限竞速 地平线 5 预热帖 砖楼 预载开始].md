@@ -1319,3 +1319,29 @@ https://b23.tv/fJL8GJ
 首发没有 后续可以慢慢加嘛
 
 
+
+
+*****
+
+####  天神十三煞  
+##### 90#         楼主| 发表于 2021-10-29 05:17
+
+
+@[kissingrose](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=31264)
+
+
+账号玩过旧作会送一些以前的封面车
+<img src="https://www.z4a.net/images/2021/10/29/FCz272JWYAIXBla.jpg" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  kissingrose  
+##### 91#       发表于 2021-10-29 05:20
+
+
+然鹅我到现在还没买游戏~~~
+
+

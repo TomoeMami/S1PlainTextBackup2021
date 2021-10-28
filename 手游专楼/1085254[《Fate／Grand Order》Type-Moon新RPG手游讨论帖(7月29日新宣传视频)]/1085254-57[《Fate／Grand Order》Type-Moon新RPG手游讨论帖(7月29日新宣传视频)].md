@@ -2688,3 +2688,14 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能补偿圣晶石啊
 
 
+
+
+*****
+
+####  森兰丸  
+##### 84216#       发表于 2021-10-29 05:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这1000多狗粮加上仓库里的爆仓狗粮只够让我把摩根拉到112级.....也是非常蚌埠主了
+
+
