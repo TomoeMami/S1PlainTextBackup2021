@@ -18443,3 +18443,18 @@ F0A550B4-2932-4BEA-8FE5-9BDFC7205BF3.jpeg
 这张老师能算挺好颜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 1273#       发表于 2021-10-29 06:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321490&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2021-10-29 01:05</a>
+这张老师能算挺好颜吗</blockquote>
+眉毛不标准<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
