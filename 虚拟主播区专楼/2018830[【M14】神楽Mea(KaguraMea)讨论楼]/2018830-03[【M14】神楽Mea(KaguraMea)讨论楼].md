@@ -14847,3 +14847,21 @@ et桑你这是aoe，这是偏见，我要你道歉<img src="https://static.sarab
 回来吗
 
 
+
+
+*****
+
+####  Klience  
+##### 4293#       发表于 2021-10-28 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53319832&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-10-28 22:42</a>
+
+apex主播这么多，非要看一个只会站桩射击的？
+
+换个说法，apex这种吃鸡类游戏都几年了，还没看腻吗
+
+ ...</blockquote>
+感觉这个问题里换成moba类游戏答案还是差不多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 喜欢看她玩游戏或者看她玩自己喜欢的游戏这种？
+
+

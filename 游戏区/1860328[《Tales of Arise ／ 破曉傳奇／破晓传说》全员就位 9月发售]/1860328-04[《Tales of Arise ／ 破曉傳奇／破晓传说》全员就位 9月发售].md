@@ -19418,3 +19418,14 @@ op2后面的很赶</blockquote>
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  LMBS  
+##### 5933#       发表于 2021-10-28 23:09
+
+
+看来打折前是到不了200万
+
+
