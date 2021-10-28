@@ -3504,3 +3504,29 @@ zest宁愿瞎说，也不愿承认ns支持ue4<img src="https://static.saraba1st.
 蜘蛛侠的版权问题还有漫威。自己能做主的可以随意处置。多方版权牵扯本身就麻烦。老任的任斗就是最好的例子。
 
 
+
+
+*****
+
+####  C.W.Nimitz  
+##### 304#       发表于 2021-10-28 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53310897&amp;ptid=2026252" target="_blank">tlozfan 发表于 2021-10-27 19:52</a>
+
+蜘蛛侠的版权问题还有漫威。自己能做主的可以随意处置。多方版权牵扯本身就麻烦。老任的任斗就是最好的例子 ...</blockquote>
+蜘蛛侠相关版权全在索尼哥伦比亚手里，这个反而和漫威没关系
+
+
+*****
+
+####  tlozfan  
+##### 305#       发表于 2021-10-28 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53311122&amp;ptid=2026252" target="_blank">C.W.Nimitz 发表于 2021-10-28 12:07</a>
+
+蜘蛛侠相关版权全在索尼哥伦比亚手里，这个反而和漫威没关系</blockquote>
+ps4上的漫威蜘蛛侠的漫威是假的吗？而且我记得索尼只有蜘蛛侠的影视拍摄权，周边版权完全不在索尼手上。
+
+
