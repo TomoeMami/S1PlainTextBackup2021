@@ -3383,3 +3383,14 @@ GT7要是真上PC，那我就真不用买PS5了
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  nage560  
+##### 294#       发表于 2021-10-28 09:21
+
+
+麻布仔也上了，名单可靠性更高了，不过mgs2 3那写着hd，结果不是重制，而是hd？
+
+
