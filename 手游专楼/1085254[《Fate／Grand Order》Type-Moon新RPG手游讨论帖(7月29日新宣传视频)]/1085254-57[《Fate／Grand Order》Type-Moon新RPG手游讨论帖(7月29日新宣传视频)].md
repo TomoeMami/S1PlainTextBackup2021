@@ -2563,3 +2563,35 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  zore  
+##### 84206#       发表于 2021-10-28 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53318423&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-10-28 20:45</a>
+
+只占用一个格子，然后就是数字不也挺好吗
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">叶良树:不行.jpg
+
+
+*****
+
+####  alucardcz  
+##### 84207#       发表于 2021-10-28 21:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53318423&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-10-28 20:45</a>
+
+只占用一个格子，然后就是数字不也挺好吗
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">乖离就这样的  其实废狗不是已经有这苗头了吗  强化界面有个显示几个金狗粮几个银狗粮的界面  这就应该直接做进去。。。不然意义何在
+
+
