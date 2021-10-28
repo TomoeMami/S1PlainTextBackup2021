@@ -4799,3 +4799,16 @@ oversize露肩好<img src="https://static.saraba1st.com/image/smiley/face2017/06
 看起来像有jj<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  任天索尼子  
+##### 3370#       发表于 2021-10-28 16:55
+
+
+鲤鱼rap过百万播放了
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
