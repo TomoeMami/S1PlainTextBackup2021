@@ -14598,3 +14598,42 @@ syl，下个月可能会在老鼠台播游戏（valo或lol，噗
  今天这唱的感觉超好
 
 
+
+
+*****
+
+####  makourisu-2  
+##### 4268#       发表于 2021-10-28 21:45
+
+
+打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那只狼到底还要不要填坑了
+另外，这女人打LOL太折磨了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">能不能播点胜负欲没那么强的欢乐小游戏啊
+
+
+*****
+
+####  Klience  
+##### 4269#       发表于 2021-10-28 21:46
+
+
+直播LOL看来看去也只会选那几个英雄 还是看小麻私下打好玩 其他能看到别的英雄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 4270#       发表于 2021-10-28 21:49
+
+
+今晚感觉超棒的，可惜要结束了
+
+
+*****
+
+####  路人庚  
+##### 4271#       发表于 2021-10-28 21:49
+
+
+看来明天打疫苗的时间挺早的
+
+
