@@ -6392,3 +6392,21 @@ Ark也是虹男普遍抱团的开始吧，感觉不是游戏的原因，还是�
 利香又一次痛改前非不搞色色asmr了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  uiuc  
+##### 7951#       发表于 2021-10-29 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53309173&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-10-28 10:02</a>
+
+我倒是觉得那边提供的思路挺好理解的
+
+假设你玩一个全是女偶像的游戏比如闪耀色彩那种，结果跑来两个男V同人 ...</blockquote>
+哪来的同人曲，要说同人性质的只有这次涉及到世界观的商业曲。之前那些都是纯纯的翻唱，“适度”套用也算不成文的约定了，staff也有重合，不然以pv和曲绘的相似度早被烧了
+
+这次炎上起点的擦边球商用还挺正当，但接着扒出来的那些所谓黑历史多少都有点牵强了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+

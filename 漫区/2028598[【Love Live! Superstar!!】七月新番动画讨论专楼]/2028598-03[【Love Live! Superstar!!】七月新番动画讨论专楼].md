@@ -4978,3 +4978,32 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 2021-10-29 00:03 上传
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3385#       发表于 2021-10-29 00:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">各种现场都在，直接资历拉满
+
+
+*****
+
+####  lj205  
+##### 3386#       发表于 2021-10-29 00:17
+
+
+同时说两种语言的声优和cos国内也不少吧？
+
+
+*****
+
+####  中野四葉  
+##### 3387#       发表于 2021-10-29 00:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以还真不是钦定
+
+
