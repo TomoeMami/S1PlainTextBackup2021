@@ -2554,3 +2554,20 @@ ep5最后有大概是未来的独眼马尾奏。
 全灭...
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6184#       发表于 2021-10-28 23:03
+
+
+这次这个阿蒂的剧情对女同已经毫不掩饰了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+阿蒂回忆那段情景描写有点抽象。那个时候会长她们究竟有没穿GEAR啊，阴会长的被“蒸发”了是个什么打法，我还是脑补顺不过来<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+
+最后会长明确的要回瑞士。感觉最近的剧情时间发生不少标志性的流动了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

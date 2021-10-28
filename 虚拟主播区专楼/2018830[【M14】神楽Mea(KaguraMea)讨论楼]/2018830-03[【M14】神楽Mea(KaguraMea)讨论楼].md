@@ -14758,3 +14758,92 @@ apex主播这么多，非要看一个只会站桩射击的？
 明天病弱，联动会不会很发疯。
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 4284#       发表于 2021-10-28 22:47
+
+
+第二针劲头比上次第一针还大反正
+
+
+*****
+
+####  路人庚  
+##### 4285#       发表于 2021-10-28 22:47
+
+
+明天真病弱了联动说不定直接推了
+
+虽然阿咩计划是如果精神够好的话31号还再播的来着
+
+
+*****
+
+####  肥到终点  
+##### 4286#       发表于 2021-10-28 22:50
+
+
+病弱歌回期待<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 4287#       发表于 2021-10-28 22:51
+
+
+想多了，病弱相亲
+
+
+*****
+
+####  雪风utopia  
+##### 4288#       发表于 2021-10-28 22:52
+
+
+病弱五元<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GRMeA104  
+##### 4289#       发表于 2021-10-28 22:55
+
+
+海苔男永不病弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 4290#       发表于 2021-10-28 23:00
+
+
+有五元不看就不看废话你**妈呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">是不是混V8群混到脑瘫病发作了
+
+
+
+
+*****
+
+####  雪风utopia  
+##### 4291#       发表于 2021-10-28 23:03
+
+
+et桑你这是aoe，这是偏见，我要你道歉<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ayarinn  
+##### 4292#       发表于 2021-10-28 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53320067&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-10-28 23:00</a>
+有五元不看就不看废话你**妈呢是不是混V8群混到脑瘫病发作了</blockquote>
+回来吗
+
+
