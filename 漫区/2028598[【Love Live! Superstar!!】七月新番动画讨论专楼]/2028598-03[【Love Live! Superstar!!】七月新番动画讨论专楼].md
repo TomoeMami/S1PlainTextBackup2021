@@ -4644,3 +4644,39 @@ oversize露肩好<img src="https://static.saraba1st.com/image/smiley/face2017/06
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  宁次子  
+##### 3360#       发表于 2021-10-28 11:23
+
+
+坦克和家里说好的刷下来就回国，又找什么理由吃书呢？
+
+
+
+
+*****
+
+####  player3960  
+##### 3361#       发表于 2021-10-28 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53310414&amp;ptid=2028598" target="_blank">宁次子 发表于 2021-10-28 11:23:51</a>
+坦克和家里说好的刷下来就回国，又找什么理由吃书呢？</blockquote>少玩点zz梗行不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  优妮可  
+##### 3362#       发表于 2021-10-28 11:40
+
+
+<blockquote>宁次子 发表于 2021-10-28 11:23
+坦克和家里说好的刷下来就回国，又找什么理由吃书呢？</blockquote>
+4v是吧，不会说话可以闭嘴
+
+
