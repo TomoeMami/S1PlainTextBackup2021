@@ -2677,3 +2677,14 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84215#       发表于 2021-10-29 00:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能补偿圣晶石啊
+
+
