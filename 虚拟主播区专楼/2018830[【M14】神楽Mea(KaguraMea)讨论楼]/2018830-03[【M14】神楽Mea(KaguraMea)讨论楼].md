@@ -14249,3 +14249,51 @@ X@@10]333QH}UF%I_TILO[M.jpg
 苔总除了这两位还有啥拿得出手的组合呢 一个猜想，不一定对<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 4237#       发表于 2021-10-28 15:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53313360&amp;ptid=2018830" target="_blank">GRMeA104 发表于 2021-10-28 15:10</a>
+苔总除了这两位还有啥拿得出手的组合呢 一个猜想，不一定对</blockquote>
+你认真的？同样是黑屁，说离了这俩就没活不如说她维持人设有说服力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  GRMeA104  
+##### 4238#       发表于 2021-10-28 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53313617&amp;ptid=2018830" target="_blank">往世雷书 发表于 2021-10-28 15:24</a>
+你认真的？同样是黑屁，说离了这俩就没活不如说她维持人设有说服力
+
+—— 来自 S1Fun ...</blockquote>
+拿明天这个来说吧，除开你麻谁敢接这相亲活？黄兔子还是露西亚？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大伙各取所需罢了，别真的催眠自己纯纯的v圈扶贫<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 4239#       发表于 2021-10-28 15:36
+
+
+你麻这种属于没有未来，你真让她离了这种联动也整不出东西，随便玩几年引退就结了，没什么弯弯绕绕的
+
+
+*****
+
+####  2014720  
+##### 4240#       发表于 2021-10-28 15:38
+
+
+关于楼上为什么气氛不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/55951ce5feb244e6d14e376fef89b18a/IMG_CMP_157974653.jpeg" referrerpolicy="no-referrer">
+
+

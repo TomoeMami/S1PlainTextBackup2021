@@ -1684,3 +1684,57 @@ demo最后唱起来太横尾了
 这么快通了么？问问大概多少小时
 
 
+
+
+*****
+
+####  johanliebert  
+##### 129#       发表于 2021-10-28 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53313448&amp;ptid=2025458" target="_blank">cowgp01 发表于 2021-10-28 15:16</a>
+
+这么快通了么？问问大概多少小时</blockquote>
+我看的时候直播总时长11多小时，在SL刷各种ED
+
+
+*****
+
+####  屌丶哲  
+##### 130#       发表于 2021-10-28 15:35
+
+
+ 本帖最后由 屌丶哲 于 2021-10-28 15:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏可太喜感了，仅仅只是披着卡牌游戏的皮而已。只是把画面，敌人，人物，装备道具，UI选项给做成了卡片而已，就是传统的回合制JRPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">简直鬼才，游戏玩法跟卡牌游戏一毛钱关系都没有，想玩JRPG的入吧。。。
+
+<img src="https://img.saraba1st.com/forum/202110/28/153323a5ls77o6ao66l4of.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20211028153259.png</strong> (193.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 15:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/153813pb890lyfu7rff80r.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211028153803.png</strong> (207.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 15:38 上传
+
+
+*****
+
+####  allenz3  
+##### 131#       发表于 2021-10-28 15:44
+
+
+这不是试玩版就知道了嘛，改成卡牌的样子开发成本低了去了nm特效还不如那些独立卡牌游戏，敢卖200<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

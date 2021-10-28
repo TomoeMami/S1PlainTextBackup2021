@@ -857,3 +857,25 @@ A综的冲淋风格总结起来其实就是两点：
 乃宝可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sanlow666  
+##### 68#         楼主| 发表于 2021-10-28 15:32
+
+
+乃琳Queen:[声线模仿大赛！猜猜我是谁？【直播剪辑】](https://t.bilibili.com/586554286235915457)<blockquote>（运营代发）节选  10.13乃琳单人直播
+
+————————————————
+
+出镜：乃琳
+
+场景：自制
+
+软件：基于Unity自研
+
+动作：动作捕捉
+<img src="https://p.sda1.dev/2/d4db8560308e38e8d55fd4caf20ac2f8/1635406231.jpg" referrerpolicy="no-referrer"></blockquote>
+
+

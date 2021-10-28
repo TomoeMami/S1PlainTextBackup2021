@@ -12979,3 +12979,14 @@ crew屁用都没<img src="https://static.saraba1st.com/image/smiley/face2017/048
 海想列车还没百万，确实是拉的不行，看看傻紫同时间段发的歌早过百万了
 
 
+
+
+*****
+
+####  星の守  
+##### 7039#       发表于 2021-10-28 15:25
+
+
+下午五点播，近况报告，不知道想说啥<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
