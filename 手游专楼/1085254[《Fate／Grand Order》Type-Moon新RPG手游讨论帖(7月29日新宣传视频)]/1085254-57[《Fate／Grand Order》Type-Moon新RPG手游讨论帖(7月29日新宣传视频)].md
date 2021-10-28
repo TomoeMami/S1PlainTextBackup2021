@@ -2540,3 +2540,26 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84204#       发表于 2021-10-28 20:45
+
+
+这次是不是要换的东西有点多。。感觉不吃苹果来不及了。。
+
+
+*****
+
+####  都谷捻柏  
+##### 84205#       发表于 2021-10-28 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53317029&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-28 18:47:28</a>
+什么时候能出个狗粮专用仓库? 这真的很难做到吗</blockquote>只占用一个格子，然后就是数字不也挺好吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
