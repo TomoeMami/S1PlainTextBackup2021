@@ -6186,3 +6186,23 @@ vの概念壊れるぅぅぅぅぅ（定期）
 <[img src="https://i.loli.net/2021/10/28/A4FeCsortWJ7Ox3.png" referrerpolicy="no-referrer">2000在吗（
 
 
+
+
+*****
+
+####  OldGlory  
+##### 7933#       发表于 2021-10-28 14:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">体感上彩虹从女转男从ark开始，到apex变成国民游戏那会就是男人变主角了，这期间虹女反而没有什么炎上（千皇除外）
+
+
+*****
+
+####  qq845629713  
+##### 7934#       发表于 2021-10-28 14:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 谁来简单科普下B级片这次的节奏？
+
+

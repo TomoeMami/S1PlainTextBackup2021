@@ -2467,3 +2467,35 @@ https://twitter.com/tdnossan/status/14503779224311849 ...</blockquote>
 这转圈散弹和留尾巴的冲刺挺容易就撞上了...有点被针对<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6178#       发表于 2021-10-28 14:26
+
+
+好，好大……
+
+
+但是是3UP，连10票礼节试水都不大想砸了……
+
+
+*****
+
+####  alialex  
+##### 6179#         楼主| 发表于 2021-10-28 14:38
+
+
+这什么新欢旧爱修罗场，会长渣女人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 6180#       发表于 2021-10-28 14:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">带小结的3up毒池，我可谢谢您嘞
+
+

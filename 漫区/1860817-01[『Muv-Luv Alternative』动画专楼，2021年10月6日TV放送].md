@@ -18341,3 +18341,44 @@ BETA新潟上陸時のBETA捕獲作戦
 高达只看了seed和oo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  adslnet0519  
+##### 1268#       发表于 2021-10-28 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53307265&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2021-10-28 02:57</a>
+这集可以，纯夏动了
+至于其他的重要吗</blockquote>
+会动的纯夏在好多年前的 愿此刻永恒 的小茜ova里就已经出现过了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  KOPKOM  
+##### 1269#         楼主| 发表于 2021-10-28 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53312724&amp;ptid=1860817" target="_blank">adslnet0519 发表于 2021-10-28 14:27</a>
+
+会动的纯夏在好多年前的 愿此刻永恒 的小茜ova里就已经出现过了，在最后还有一段两作的交接会，里 ...</blockquote>
+对的，当时完全想象不到本传能动画化，我还专门收了一套DVD
+
+
+F0A550B4-2932-4BEA-8FE5-9BDFC7205BF3.jpeg
+(373.44 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-28 14:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/144019wly5etq9s5c8lixl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+

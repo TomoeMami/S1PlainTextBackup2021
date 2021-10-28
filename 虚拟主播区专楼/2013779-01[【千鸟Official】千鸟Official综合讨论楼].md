@@ -10131,3 +10131,16 @@ K48，认知厨。
 白天播就突出一个嗯混，比如看片，打游戏，练乐器，画画之类的
 
 
+
+
+*****
+
+####  憧憬鲨  
+##### 850#       发表于 2021-10-28 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53311902&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-28 13:09</a>
+K48，认知厨。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这是节目效果的伏笔啊
+
+

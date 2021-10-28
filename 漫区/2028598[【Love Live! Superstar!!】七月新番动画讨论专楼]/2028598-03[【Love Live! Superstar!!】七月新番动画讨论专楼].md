@@ -4729,3 +4729,59 @@ oversize露肩好<img src="https://static.saraba1st.com/image/smiley/face2017/06
 查看全部评分
 
 
+
+
+*****
+
+####  svmkty  
+##### 3365#       发表于 2021-10-28 14:06
+
+
+问下底下的表情包是不是这部动画里的？网上看到好多次了
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/140623b31s8uugupxs1gwp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>123e12d121r12r12r12r12.jpg</strong> (158.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 14:06 上传
+
+
+*****
+
+####  优妮可  
+##### 3366#       发表于 2021-10-28 14:10
+
+
+<blockquote>svmkty 发表于 2021-10-28 14:06
+问下底下的表情包是不是这部动画里的？网上看到好多次了</blockquote>
+人物是。但这图p过了
+
+
+*****
+
+####  svmkty  
+##### 3367#       发表于 2021-10-28 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53312499&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-28 14:10</a>
+
+人物是。但这图p过了</blockquote>
+谢了、那原图是什么样的？
+
+
+*****
+
+####  qratosone  
+##### 3368#       发表于 2021-10-28 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53312549&amp;ptid=2028598" target="_blank">svmkty 发表于 2021-10-28 14:14</a>
+
+谢了、那原图是什么样的？</blockquote>
+原图是第十集里的，可可给民警做的皇冠被风吹走了，然后民警抓住了
+
+
