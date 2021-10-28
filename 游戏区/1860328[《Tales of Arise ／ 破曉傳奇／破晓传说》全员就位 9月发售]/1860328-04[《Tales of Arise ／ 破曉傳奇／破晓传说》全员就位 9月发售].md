@@ -19377,3 +19377,44 @@ op2后面的很赶</blockquote>
 好像是芙露露配件包
 
 
+
+
+*****
+
+####  zero12  
+##### 5930#       发表于 2021-10-28 22:11
+
+
+<img src="https://img.saraba1st.com/forum/202110/28/221121stxmfj6mfkf7bf6o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>60ade0f3ly1gvvdmvn110j20ud0u0afe.jpg</strong> (204.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-28 22:11 上传
+
+
+看来年底才能磨过200w了。
+
+
+*****
+
+####  忧郁  
+##### 5931#       发表于 2021-10-28 22:15
+
+
+150w了，感觉原价200w到头，后面要看打折磨多少了
+
+
+*****
+
+####  ranapocket  
+##### 5932#       发表于 2021-10-28 22:21
+
+
+才2个月不到150万了，恭喜
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

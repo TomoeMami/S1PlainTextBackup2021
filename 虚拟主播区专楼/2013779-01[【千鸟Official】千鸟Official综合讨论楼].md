@@ -10180,3 +10180,18 @@ K48，认知厨。</blockquote>
 前几天一天十几条动态把直播日历那条挤到很下面了，懒狗什么时候学会做图<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  丢了五块钱  
+##### 854#       发表于 2021-10-28 22:09
+
+
+ 本帖最后由 丢了五块钱 于 2021-10-28 22:13 编辑 
+
+[静姨入选四大高素质国v](https://b23.tv/LvA1wk)
+
+静姨在素质方面大领先
+
+

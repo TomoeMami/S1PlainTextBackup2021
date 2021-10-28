@@ -2606,3 +2606,17 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 啥时候更新个强化的时候能直接从保管室消耗狗粮我都谢谢叶狗了
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84209#       发表于 2021-10-28 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53318413&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-28 20:45</a>
+
+这次是不是要换的东西有点多。。感觉不吃苹果来不及了。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">礼装都有不用换，剩下的东西都换完了点数都还没打够
+
+

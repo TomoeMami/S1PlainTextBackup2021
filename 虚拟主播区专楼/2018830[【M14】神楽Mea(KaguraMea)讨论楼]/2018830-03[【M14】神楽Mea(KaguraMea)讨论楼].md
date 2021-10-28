@@ -14637,3 +14637,32 @@ syl，下个月可能会在老鼠台播游戏（valo或lol，噗
 看来明天打疫苗的时间挺早的
 
 
+
+
+*****
+
+####  2014720  
+##### 4272#       发表于 2021-10-28 22:15
+
+
+小游戏就是无敌这女人为什么不懂呢
+
+
+*****
+
+####  GRMeA104  
+##### 4273#       发表于 2021-10-28 22:21
+
+
+主播怎么会觉得到另外一个八百年没用的平台的游戏粉就会比在油管多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 4274#       发表于 2021-10-28 22:24
+
+
+不排除主播是个哈卵的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
