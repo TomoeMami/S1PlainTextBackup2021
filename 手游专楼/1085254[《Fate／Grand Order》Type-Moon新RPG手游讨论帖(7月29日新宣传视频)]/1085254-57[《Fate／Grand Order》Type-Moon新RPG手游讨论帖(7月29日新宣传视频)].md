@@ -2432,3 +2432,37 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 硬币根本不够，要么再送100个圣杯让我把狗粮用出去，或者送100个结晶让我被动敞开了升也行
 
 
+
+
+*****
+
+####  alucardcz  
+##### 84196#       发表于 2021-10-28 18:47
+
+
+什么时候能出个狗粮专用仓库? 这真的很难做到吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 84197#       发表于 2021-10-28 18:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他能让我50个堆叠一次我都谢天谢地
+
+
+*****
+
+####  alucardcz  
+##### 84198#       发表于 2021-10-28 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53317046&amp;ptid=1085254" target="_blank">zore 发表于 2021-10-28 18:48</a>
+
+他能让我50个堆叠一次我都谢天谢地</blockquote>
+几百年前的乖离 开始也是公用仓库 后来都有素材独立仓库了
+
+不知道dw是不是拉到连这都做不到<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
