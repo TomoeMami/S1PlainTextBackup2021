@@ -9929,3 +9929,19 @@ syl 千鸟时代，沸腾期待！
 文静一月一次电台
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 834#       发表于 2021-10-28 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53306945&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-10-28 01:18</a>
+什么是满汉退役选手</blockquote>
+满汉全席音乐团队，以盛产各种烟嗓，酒吧驻唱风格歌手（以及男桐）著称的音乐团队，曾经非常火过。
+塔克原来也在里面待过
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
