@@ -1738,3 +1738,17 @@ demo最后唱起来太横尾了
 这不是试玩版就知道了嘛，改成卡牌的样子开发成本低了去了nm特效还不如那些独立卡牌游戏，敢卖200<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  v3r0n1CA  
+##### 132#       发表于 2021-10-29 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53313804&amp;ptid=2025458" target="_blank">屌丶哲 发表于 2021-10-28 15:35</a>
+
+这游戏可太喜感了，仅仅只是披着卡牌游戏的皮而已。只是把画面，敌人，人物，装备道具，UI选项给做 ...</blockquote>
+emmm有中文的吗？
+
+
