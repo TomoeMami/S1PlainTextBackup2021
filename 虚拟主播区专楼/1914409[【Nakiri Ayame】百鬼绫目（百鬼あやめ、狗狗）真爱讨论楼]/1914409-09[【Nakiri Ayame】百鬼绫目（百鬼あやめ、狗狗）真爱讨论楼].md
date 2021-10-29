@@ -16277,3 +16277,14 @@ lol都是绫总不懂事，打着玩的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是上分比较重要
 
 
+
+
+*****
+
+####  nian1538  
+##### 13374#       发表于 2021-10-29 22:20
+
+
+10月Live的评论区怎么被4chan占领了，咋回事啊
+
+

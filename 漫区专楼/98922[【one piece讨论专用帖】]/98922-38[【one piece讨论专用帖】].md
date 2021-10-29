@@ -5902,3 +5902,26 @@ tianlangistl
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">然后中boss的六子那些收的又感觉太快了
 
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 55939#       发表于 2021-10-29 22:31
+
+
+ 本帖最后由 8aa8aa8aa 于 2021-10-29 22:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53332402&amp;ptid=98922" target="_blank">klzxs 发表于 2021-10-29 21:13</a>
+御田就不谈了 
+
+和之国我最不满的大概是决战一直打不出伤害吧
+
+到中途都还是一两招秒所有人的四皇到决 ...</blockquote>
+正常来说，飞六胞对标白胡子的各番队队长应该没问题才对。
+而白胡子二队长艾斯和甚平打了几天没分出胜负，没明白为啥剑齿虎的表现会比小年轻艾斯还差。
+蜘蛛女也是莫名其妙就躺了，没体现出动物系的耐力
+三角龙对着弗兰奇将军不太好说，感觉弗兰奇将军有一半是搞笑元素组成，搞笑人物是无敌的
+
+反而表现最好是那两姐弟，好歹吃了内战大神大妈的好几下重击
+
+
