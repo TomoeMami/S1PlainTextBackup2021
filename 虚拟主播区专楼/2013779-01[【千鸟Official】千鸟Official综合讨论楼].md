@@ -10391,3 +10391,16 @@ QA的人气在整个as和au的规模爆破式发展之后，回复量没有跟�
 没有爆地址吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  tankai  
+##### 870#       发表于 2021-10-29 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53324642&amp;ptid=2013779" target="_blank">雨井绫 发表于 2021-10-29 11:19</a>
+文静发动态的风格像一个微博小仙女</blockquote>
+坏了，小仙女不能处。
+
+
