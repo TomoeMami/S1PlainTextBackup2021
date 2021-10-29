@@ -752,3 +752,38 @@ ps上大多数人确实是买来玩第三方游戏的，但是第三方这么多
 —— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  路西恩  
+##### 69#       发表于 2021-10-29 15:45
+
+
+血源上PC，是不是就等于上了掌机？
+
+
+这样一想是不是就特别爽了？
+
+
+*****
+
+####  tangboyun  
+##### 70#       发表于 2021-10-29 15:58
+
+
+索尼电视vrr更新也是差评如潮
+
+
+是不是准备以后不搞硬件了，转型做软件和娱乐内容提供了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sopp  
+##### 71#       发表于 2021-10-29 16:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对马岛搞快点吧，想要角色替换mod
+
+
