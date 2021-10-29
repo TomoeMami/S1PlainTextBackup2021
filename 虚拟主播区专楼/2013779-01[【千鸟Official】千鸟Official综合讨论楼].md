@@ -10571,3 +10571,205 @@ QA的人气在整个as和au的规模爆破式发展之后，回复量没有跟�
 文静锐评2060并表示下期没思思就去爆破2060<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 885#       发表于 2021-10-30 01:06
+
+
+果然IEG抢了PCG的盘子
+
+
+*****
+
+####  莫洛骑士  
+##### 886#       发表于 2021-10-30 01:07
+
+
+游戏部不让其他部门搞虚拟偶像，但是千鸟是视频部的，已经被放养了
+
+“我会尽力让千鸟活下来的”
+
+我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 887#       发表于 2021-10-30 01:08
+
+
+我怎么一点进去又是散伙饭，每次点进去都是散伙饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  H2Ofrozen  
+##### 888#       发表于 2021-10-30 01:09
+
+
+从今天开始要走下坡路了中略，看来这次真的要散了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blaze626  
+##### 889#       发表于 2021-10-30 01:10
+
+
+所以以后静姨真要毕业了转生，会有Bsoul接盘吗，不过看小罗那半死不活的样子，肯定有Bsoul也和他没关系就是了
+
+
+*****
+
+####  灰色的狐狸  
+##### 890#       发表于 2021-10-30 01:11
+
+
+又要寄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+*****
+
+####  魔法少女大头  
+##### 891#       发表于 2021-10-30 01:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">静，假如不干了也不要真人出镜好么，我心理上确实接受不了40岁妇女偶像。
+就用鸭肠作为我们的连接信号，重新当一次皮套人吧
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  夜潇箫  
+##### 892#       发表于 2021-10-30 01:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有竞业协议，估计很难再出镜
+
+
+*****
+
+####  OldGlory  
+##### 893#       发表于 2021-10-30 01:13
+
+
+PCG狗都不呆好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袜子  
+##### 894#       发表于 2021-10-30 01:14
+
+
+这就是现实，只能这么说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千鸟玩的就是真实
+
+
+*****
+
+####  小憨1  
+##### 895#       发表于 2021-10-30 01:14
+
+
+我她妈好想哭啊，这次是真入脑了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T型钉宫病毒  
+##### 896#       发表于 2021-10-30 01:17
+
+
+不会散但有大变动，不会又要换人吧
+
+
+*****
+
+####  魔法少女大头  
+##### 897#       发表于 2021-10-30 01:17
+
+
+千鸟说整活，我就想起重启之前那个re do<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+来点正常人能理解的吧
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Papercup  
+##### 898#       发表于 2021-10-30 01:18
+
+
+要寄了吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 899#       发表于 2021-10-30 01:22
+
+
+有竞业那不是反向海子姐，能开摄像头不能套皮，好耶！
+
+
+*****
+
+####  魔法少女大头  
+##### 900#       发表于 2021-10-30 01:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这种不想死但是可能不得不死的话题不能听了，看热闹都要看emo了。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+
+*****
+
+####  IDIDIDID  
+##### 901#       发表于 2021-10-30 01:24
+
+
+我不能去VR，我希望能把千鸟整个带走。
+
+👆这句话阅读理解了一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小憨1  
+##### 902#       发表于 2021-10-30 01:24
+
+
+ 本帖最后由 小憨1 于 2021-10-30 01:25 编辑 
+
+就剩28天能活了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+“这个已经是既定事实了”
+这真的要死了
+
+
+*****
+
+####  KarlsenIn1877  
+##### 903#       发表于 2021-10-30 01:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335245&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-30 01:24</a>
+我不能去VR，我希望能把千鸟整个带走。
+
+👆这句话阅读理解了一下</blockquote>
+这可太真实了，VR开的条件怕是只要文静是吧
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
