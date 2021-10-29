@@ -5865,3 +5865,18 @@ tianlangistl
 我到底觉得鸟笼还好。虽然鸟笼好像强的过分
 
 
+
+
+*****
+
+####  绝赞販売中  
+##### 55937#       发表于 2021-10-29 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53327669&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-10-29 15:08</a>
+转自hupu：
+
+海贼王几个地方这么改会不会更合理？</blockquote>
+马尔科打小兵不突兀，queen搞了个冰鬼，他一边拦kq一边奶几千人，延缓毒发，这输出不算玉皇已经是凯多之下第一人了.
+
+
