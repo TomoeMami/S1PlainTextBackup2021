@@ -5851,3 +5851,17 @@ tianlangistl
 3、山治的觉醒应该是在打pg1那里有所体现，这也是原因造成被pg1逃跑。
 
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 55936#       发表于 2021-10-29 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53325764&amp;ptid=98922" target="_blank">saturnus 发表于 2021-10-29 12:32</a>
+徳岛篇除了集体推鸟笼太伞比以外，各方面的剧情推进类似于砂之国 所以不算太拉垮，但是也能看出WT除了自 ...</blockquote>
+不，老国王把国家拱手让人，很拉跨。
+我到底觉得鸟笼还好。虽然鸟笼好像强的过分
+
+
