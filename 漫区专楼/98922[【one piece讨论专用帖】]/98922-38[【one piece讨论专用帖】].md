@@ -5880,3 +5880,25 @@ tianlangistl
 马尔科打小兵不突兀，queen搞了个冰鬼，他一边拦kq一边奶几千人，延缓毒发，这输出不算玉皇已经是凯多之下第一人了.
 
 
+
+
+*****
+
+####  klzxs  
+##### 55938#       发表于 2021-10-29 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">御田就不谈了 
+
+和之国我最不满的大概是决战一直打不出伤害吧
+
+到中途都还是一两招秒所有人的四皇到决战突然就谁都打不动了 
+
+路飞索隆虽然仰卧起坐也很难看 但至少还是会倒
+
+上一回大妈一个技能砸到基德身上影响甚至还不如半仙在那里撞墙
+
+不说四皇战 不太重要的人也一直不退场 这回阿普大蛇又活蹦乱跳了 
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">然后中boss的六子那些收的又感觉太快了
+
+

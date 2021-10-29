@@ -6598,3 +6598,43 @@ syl 原来旅团大联动是这么个形式<img src="https://static.saraba1st.co
 去年引退的某贝露今天魂号发推说生孩子了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  死体残留  
+##### 7964#       发表于 2021-10-29 21:03
+
+
+b站的彩虹live转播无ng 支楞起来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 7965#       发表于 2021-10-29 21:13
+
+
+居然有vshojo参加，还是挺意外的
+[https://twitter.com/VILLS0321](https://twitter.com/VILLS0321)
+
+
+<img src="https://img.saraba1st.com/forum/202110/29/211331xr9c5n49shr4noo4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>vills.jpg</strong> (280.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-29 21:13 上传
+
+
+*****
+
+####  rzrbtk  
+##### 7966#       发表于 2021-10-29 21:19
+
+
+难怪郡郡说去东京见了很爱的人，原来之前又跟田中姐姐吃烤肉了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
