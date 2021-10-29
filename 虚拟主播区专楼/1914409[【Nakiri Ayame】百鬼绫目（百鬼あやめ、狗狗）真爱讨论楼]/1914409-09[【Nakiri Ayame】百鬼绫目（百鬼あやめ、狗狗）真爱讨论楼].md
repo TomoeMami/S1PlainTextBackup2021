@@ -16288,3 +16288,16 @@ lol都是绫总不懂事，打着玩的
 10月Live的评论区怎么被4chan占领了，咋回事啊
 
 
+
+
+*****
+
+####  一仙  
+##### 13375#       发表于 2021-10-29 22:55
+
+
+此时此刻恰如彼时彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是还没习惯绫总作风的新百鬼众太久没药吃发病了，今年的火由en民发起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
