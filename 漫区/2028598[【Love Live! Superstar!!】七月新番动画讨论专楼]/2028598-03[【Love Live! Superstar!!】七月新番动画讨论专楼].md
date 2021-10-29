@@ -5831,3 +5831,41 @@ e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
 好吧，真不用，那是我弄错了
 
 
+
+
+*****
+
+####  仟音一心  
+##### 3457#       发表于 2021-10-29 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53328980&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-29 17:04</a>
+之前的访谈也看完了。这次的动画京极花田估计也是为难，基本上把4个人自己的个人经历强行塞到15岁的4个娃身 ...</blockquote>
+访谈在哪？为什么是4个人，不是5个吗？
+
+
+*****
+
+####  cxj649  
+##### 3458#       发表于 2021-10-29 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53330206&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-29 18:45</a>
+
+最后估计还是笨蛋奇卡
+
+首先考虑四个团的粉丝都会参与
+
+然后对自己不怎么熟的企划投1号位的概率就高的 ...</blockquote>
+前回
+
+<img src="https://img.saraba1st.com/forum/202110/29/194649xyewiyuwfqfofeye.png" referrerpolicy="no-referrer">
+
+
+<strong>BAsNAuK.png</strong> (114 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-29 19:46 上传
+
+

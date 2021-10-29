@@ -16242,3 +16242,27 @@ lol都是绫总不懂事，打着玩的
 忙里偷闲发条推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 13371#       发表于 2021-10-29 19:35
+
+
+ 本帖最后由 nian1538 于 2021-10-29 19:38 编辑 
+
+原来我看的是vtuber啊，还以为是vtweeter呢
+
+首映之前那条推还以为今晚要播，吓了一跳
+
+
+*****
+
+####  Fami水  
+##### 13372#       发表于 2021-10-29 19:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看的是旅行青蛙发过来的留言
+
+
