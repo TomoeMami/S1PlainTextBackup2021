@@ -5734,3 +5734,16 @@ wt就是要表现出那种不信命的气势
 很多海迷不是孩子了，但尾田也不是那个20岁出头的年轻人了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不确定他现在画的这些东西是孩子爱看的？那为什么海贼王会被鬼灭超越？
 
 
+
+
+*****
+
+####  天使的日曜日  
+##### 55927#       发表于 2021-10-29 08:58
+
+
+我回去看两年前的故事还是看的津津有味感动的一塌糊涂啊
+再说现在的小孩子喜欢的不是鬼灭吗，也没多少人看海贼啊，在看的大多不还是当年那批小屁孩从小追到大的
+故事越来越烂，人物越来越脑残，要不是为了情怀谁看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
