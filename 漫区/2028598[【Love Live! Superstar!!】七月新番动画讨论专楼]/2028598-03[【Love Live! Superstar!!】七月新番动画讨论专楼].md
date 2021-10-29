@@ -5589,3 +5589,48 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 在微博和b站都是有官号的，4月as公测的时候微博官号还宣传了一下，至于b站官号自从水剧场版之后就没有动静了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">也不知道到底皮下运营是谁
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3436#       发表于 2021-10-29 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53328891&amp;ptid=2028598" target="_blank">蜜梨柑 发表于 2021-10-29 16:56</a>
+在微博和b站都是有官号的，4月as公测的时候微博官号还宣传了一下，至于b站官号自从水剧场版之后就没有动静 ...</blockquote>
+竟然有官号吗，一点声响都没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 3437#       发表于 2021-10-29 17:04
+
+
+之前的访谈也看完了。这次的动画京极花田估计也是为难，基本上把4个人自己的个人经历强行塞到15岁的4个娃身上，关键台词还要有，也难怪动画那个莫名其妙的逻辑，青山反而根本没法塞进去，难怪故事崩成那个样子，青山和恋有什么实质交集，和团队的羁绊几乎为零，喜欢校园偶像的共同点直接被丢给她老妈去了，这都叫啥事啊。
+
+建议啊，把7，8，12话删了，当成纯粹的纪录片来看星团动画，反而观感更好。
+
+把sp的戏份删掉，把缪水的部分插入当做励志回闪反而更好。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  D麦林  
+##### 3438#       发表于 2021-10-29 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53328891&amp;ptid=2028598" target="_blank">蜜梨柑 发表于 2021-10-29 16:56</a>
+在微博和b站都是有官号的，4月as公测的时候微博官号还宣传了一下，至于b站官号自从水剧场版之后就没有动静 ...</blockquote>
+那几个官号也很奇怪
+转发资讯的时候经常有些奇怪的地方 好几次都有人怀疑到底是真的官号还是有人假装官号
+然后你这么说的话我分析一下
+B站的官号活动到水水剧场版为止 搞不好是水水代理方新创华开的？（也能解释为啥发的资讯会出错了 毕竟新创华）
+然后秋叶原2 和木棉花互动多 而且木棉花还代发过那边的生放信息 搞不好和木棉花有关系
+然后微博上那个 既然说给AS宣传过 那也许其实是盛趣的号？
+woc好乱啊
+
+

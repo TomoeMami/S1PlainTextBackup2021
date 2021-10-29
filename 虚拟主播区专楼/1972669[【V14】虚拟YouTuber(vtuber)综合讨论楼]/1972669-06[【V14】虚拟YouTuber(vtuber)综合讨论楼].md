@@ -6437,3 +6437,27 @@ Ark也是虹男普遍抱团的开始吧，感觉不是游戏的原因，还是�
 这同接，hnn1700，隔壁kmt5000，艾玛2400<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7954#       发表于 2021-10-29 17:14
+
+
+ 本帖最后由 FCCHua 于 2021-10-29 17:18 编辑 
+
+hnn今天同接好迷...她自己solo比这同接高，前几天和giru也比这数高不少，很难不怀疑是因为前世老熟人LEIA来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 7955#       发表于 2021-10-29 17:18
+
+
+那毕竟正牌男友的含金量还是比营业男友kmt和绯闻男友giru高多了
+等oreapo掰了，旅团赛也组织不起来了
+我bo错过这次就没机会了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
