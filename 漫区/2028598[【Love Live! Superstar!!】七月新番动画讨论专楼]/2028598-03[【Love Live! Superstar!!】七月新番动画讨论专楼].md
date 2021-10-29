@@ -5168,3 +5168,41 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  lj205  
+##### 3400#       发表于 2021-10-29 08:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53322082&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-10-29 07:06</a>
+比较想知道鲤鱼一开始的歌手出道跟企划有没关系，比如已经确定选上了，然后先那边个人出道试试水，时间上 ...</blockquote>
+出道跟企划肯定没关系，而且她发这个视频的时候日本那边应该也是海选完
+
+
+*****
+
+####  D麦林  
+##### 3401#       发表于 2021-10-29 08:40
+
+
+怎么都是<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+隔壁菜宝是在中国这边接触的LL 杂志上看到一单的消息入坑
+话说当年那会感觉二次元圈的整体风气也不怎么待见偶像作品 我也是因为这一直不怎么愿意去看偶像番
+倒也亏得这些人能在国内这么早入坑…
+
+
+*****
+
+####  cqc1021  
+##### 3402#       发表于 2021-10-29 08:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321412&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-29 00:55</a>
+所以在这之前是企划想要这边市场，还是企划里早混入了几个有财力权力的国人大佬了？ ...</blockquote>
+想恰中国的饭罢了。18、19年那阵子中日关系正热，各路日本艺人纷纷来华捞金，K社甚至在梅奔开了KSL。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
