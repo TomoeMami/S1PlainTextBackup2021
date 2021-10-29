@@ -2740,3 +2740,20 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后还是得回去坐牢
 
 
+
+
+*****
+
+####  الطائر  
+##### 84221#       发表于 2021-10-29 15:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53320863&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-10-28 23:58</a>
+
+喷了，发了个公告，今天发的五星狗粮比1047多的是bug
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+五星狗粮😭，我的 1050 - 1047 = 3 个五星狗粮😭
+
+
