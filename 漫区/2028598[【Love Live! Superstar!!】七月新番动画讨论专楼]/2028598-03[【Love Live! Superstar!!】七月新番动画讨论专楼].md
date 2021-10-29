@@ -5892,3 +5892,16 @@ e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
 秋叶原那个好久没播过其它内容了
 
 
+
+
+*****
+
+####  a92063256  
+##### 3461#       发表于 2021-10-29 21:40
+
+
+友情提醒一下明天要看Live的朋友们<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">开始时间是日本时间的五点半，也就是北京时间的下午四点半
+
+上回在eplus买了票没注意时间，开场了半个小时才点进去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
