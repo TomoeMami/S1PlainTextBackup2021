@@ -5355,3 +5355,48 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 应该可以吧，昨天才踢了一个内鬼
 
 
+
+
+*****
+
+####  cat1230  
+##### 3416#       发表于 2021-10-29 11:13
+
+
+啥粉丝群内鬼是啥玩意儿，liyuu现在名气也不大啊。就国内来讲还比不上b站百大up的影响力吧，内鬼是想搞啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  a92063256  
+##### 3417#       发表于 2021-10-29 11:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53324200&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-29 10:50</a>
+
+提醒我加群了…………提交试试……不过应该通不过</blockquote>
+要满足什么条件才能加群啊
+
+
+*****
+
+####  稀勢のささ  
+##### 3418#       发表于 2021-10-29 11:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">插个眼罢了 又没成本
+
+
+*****
+
+####  D麦林  
+##### 3419#       发表于 2021-10-29 11:23
+
+
+不是说鲤鱼本人在的那个群很久之前就已经满人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+所以才有人说“狗的位置已经满了”
+
+
