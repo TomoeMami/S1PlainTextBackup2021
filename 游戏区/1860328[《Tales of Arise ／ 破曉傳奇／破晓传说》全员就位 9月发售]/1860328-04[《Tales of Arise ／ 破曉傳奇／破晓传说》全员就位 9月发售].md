@@ -19490,3 +19490,14 @@ op2后面的很赶</blockquote>
 这么看是有点污，儿童色情警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  后入芙蓉王  
+##### 5938#       发表于 2021-10-29 13:17
+
+
+今天才发现紫电灭天翔被翻译成紫雷灭天翔，翻译是不懂繁体字吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
