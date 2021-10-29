@@ -4218,3 +4218,27 @@ ps端感觉还是能匹配到挺多人的，果然纯自闭玩家只能买ps
 四个新dlc角色
 
 
+
+
+*****
+
+####  zakki  
+##### 341#       发表于 2021-10-29 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53330182&amp;ptid=2026924" target="_blank">RiesbyfeAtlasia 发表于 2021-10-29 18:44</a>
+四个新dlc角色</blockquote>
+还真有dlc，盲猜一个式姐吧
+
+
+*****
+
+####  红魔馆的糖  
+##### 342#       发表于 2021-10-29 19:59
+
+
+上DL看了下各个角色的判定框
+
+某人的JC是真滴牛皮
+
+
