@@ -5688,3 +5688,34 @@ e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
 用国际链接，从官推今天发那个英文链接进去，别用日本人那边的通道
 
 
+
+
+*****
+
+####  中野四葉  
+##### 3444#       发表于 2021-10-29 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3445#       发表于 2021-10-29 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53329632&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-29 17:57</a>
+e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
+别用日区e➕啊，海外版e➕不用注册，地区填香港就行，教程：[https://b23.tv/UKouRl](https://b23.tv/UKouRl)
+
+
+*****
+
+####  lj205  
+##### 3446#       发表于 2021-10-29 18:19
+
+
+有人两天都买了吗？
+
+
