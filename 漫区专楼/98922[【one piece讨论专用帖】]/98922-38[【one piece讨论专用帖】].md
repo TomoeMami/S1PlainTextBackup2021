@@ -5782,3 +5782,16 @@ wt就是要表现出那种不信命的气势
 本火狗要来清算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saturnus  
+##### 55931#       发表于 2021-10-29 12:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321597&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-10-29 01:27</a>
+以前以为德岛是低谷，现在回过头来太tm好看了</blockquote>
+徳岛篇除了集体推鸟笼太伞比以外，各方面的剧情推进类似于砂之国 所以不算太拉垮，但是也能看出WT除了自我感动外，已经基本没啥招了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

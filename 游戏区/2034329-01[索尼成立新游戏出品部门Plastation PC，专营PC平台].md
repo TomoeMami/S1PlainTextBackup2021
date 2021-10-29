@@ -707,3 +707,48 @@ ps上大多数人确实是买来玩第三方游戏的，但是第三方这么多
 臣等正欲死战，陛下何故先反
 
 
+
+
+*****
+
+####  Ironman_mk5  
+##### 65#       发表于 2021-10-29 12:29
+
+
+<blockquote>r_ex 发表于 2021-10-29 09:57
+学习Sega好榜样
+
+
+—— 来自 BlackBerry BBF100-4, Android 8.1.0上的 S1Next-鹅版 v2.1.2</blockquote>
+学习dc失败后退出主机业务么
+
+
+*****
+
+####  BonesDlc  
+##### 66#       发表于 2021-10-29 12:41
+
+
+有没有可能如果没有战神4移植占用的开发资源战神5已经发售了，对玩家真的是好事吗
+
+
+*****
+
+####  BonesDlc  
+##### 67#       发表于 2021-10-29 12:41
+
+
+世嘉领先业界二十年
+
+
+*****
+
+####  沈淮  
+##### 68#       发表于 2021-10-29 12:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">索尼？小世嘉罢了！
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
