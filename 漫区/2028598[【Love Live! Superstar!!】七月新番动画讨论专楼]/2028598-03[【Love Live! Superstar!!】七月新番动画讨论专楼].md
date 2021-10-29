@@ -5719,3 +5719,46 @@ e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
 有人两天都买了吗？
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3447#       发表于 2021-10-29 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53329718&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-29 18:04</a>
+
+用国际链接，从官推今天发那个英文链接进去，别用日本人那边的通道</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">官网翻的购票渠道 没想到这一茬
+
+
+*****
+
+####  soranoguiji  
+##### 3448#       发表于 2021-10-29 18:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 你们不要小瞧加农啊，我看日推上她人气蛮高的，和可可差不多
+
+
+*****
+
+####  中野四葉  
+##### 3449#       发表于 2021-10-29 18:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼里也没人说可可稳了啊
+
+
+*****
+
+####  秋月艾莉  
+##### 3450#       发表于 2021-10-29 18:43
+
+
+看完第一天曲单再看第二天要不要看
+
+暂时来说没有什么特殊花活的话我是打算初日东京场和最终日（如果后两场到时也有得卖的话）三场就算
+
+
