@@ -2719,3 +2719,24 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 什么时候出材料更换，看到上面的我想用狗粮换材料了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  exiaexa  
+##### 84219#       发表于 2021-10-29 15:14
+
+
+并没有qp能开转临，1000多个狗粮用不出去
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 84220#       发表于 2021-10-29 15:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后还是得回去坐牢
+
+

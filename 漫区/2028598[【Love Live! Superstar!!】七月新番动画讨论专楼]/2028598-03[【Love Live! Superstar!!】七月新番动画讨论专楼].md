@@ -5457,3 +5457,38 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 草，一开始鲤鱼也以为千妈是中国人
 
 
+
+
+*****
+
+####  lj205  
+##### 3425#       发表于 2021-10-29 15:05
+
+
+鲤鱼明晚还有广播，给你表演一个真影分身
+
+
+*****
+
+####  cybernetics31  
+##### 3426#       发表于 2021-10-29 15:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53327638&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-29 15:05</a>
+鲤鱼明晚还有广播，给你表演一个真影分身</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人广播不是今天嘛，再说都是录好的
+
+
+*****
+
+####  lj205  
+##### 3427#       发表于 2021-10-29 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53327694&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-29 15:10</a>
+个人广播不是今天嘛，再说都是录好的</blockquote>
+啊对记成明天了，还想三平台同开，可好玩了，
+
+说起来lga 怎么还有傻货觉得鲤鱼是内定的，忍无可忍把老号找回来开喷
+
+
