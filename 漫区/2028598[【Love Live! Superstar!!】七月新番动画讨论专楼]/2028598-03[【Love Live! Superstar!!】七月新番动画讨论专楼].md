@@ -5217,3 +5217,29 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 这样啊，那结合鲤鱼那个视频，如果因为疫情去不了被取消。那之前什么的内定，量身打造的说法可以放下了吧。
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3404#       发表于 2021-10-29 09:18
+
+
+原来鲤鱼也一样把千酱当中国角色了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 3405#       发表于 2021-10-29 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53322556&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-29 08:40</a>
+怎么都是
+隔壁菜宝是在中国这边接触的LL 杂志上看到一单的消息入坑
+话说当年那会感觉二次元圈的整体 ...</blockquote>
+怕不是看的是动新，当年动新有特别留出板面讲这个新起之秀。当年我是看动新送的光碟里的2单就入坑了，sh真的非常的抓耳，mv也很有感觉。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
