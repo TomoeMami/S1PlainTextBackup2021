@@ -5311,3 +5311,16 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 不待见和现象级是同一时期圈子的两个侧面罢了
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3412#       发表于 2021-10-29 10:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53323781&amp;ptid=2028598" target="_blank">index 发表于 2021-10-29 10:24</a>
+不知道鲤鱼现在还有没有在用qq 还有没有在某些LL的qq群里潜伏着</blockquote>
+有，粉丝群3月发一次言，有一次是说喜茶一个饮料难喝………………
+
+

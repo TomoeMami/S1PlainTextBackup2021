@@ -1390,3 +1390,17 @@ https://b23.tv/fJL8GJ
 我夏季赛才开始打，进度才打了19%，昨天刚开始秋季赛，不知道能不能刷够进度
 
 
+
+
+*****
+
+####  夜魅之影  
+##### 96#       发表于 2021-10-29 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53323685&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-10-29 10:16</a>
+
+我夏季赛才开始打，进度才打了19%，昨天刚开始秋季赛，不知道能不能刷够进度 ...</blockquote>
+秋季50%就给一张，把狮子头、马拉松、季节比赛搞一遍差不多就50%了
+
+
