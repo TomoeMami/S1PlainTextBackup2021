@@ -4197,3 +4197,24 @@ ps端感觉还是能匹配到挺多人的，果然纯自闭玩家只能买ps
 你直接D和2A复合D是两个不同的行为啊，想完全对应还是得练GP之后的迅速输入
 
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 340#       发表于 2021-10-29 18:44
+
+
+<img src="https://img.saraba1st.com/forum/202110/29/184358o3zs8d1m7s61fy0d.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20211029184341.png</strong> (119.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-29 18:43 上传
+
+
+四个新dlc角色
+
+
