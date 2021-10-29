@@ -5400,3 +5400,49 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 所以才有人说“狗的位置已经满了”
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3420#       发表于 2021-10-29 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53324596&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-10-29 11:16</a>
+要满足什么条件才能加群啊</blockquote>
+满人不再接受入群了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Karin11974  
+##### 3421#       发表于 2021-10-29 11:29
+
+
+有群号吗，只想观察一下生态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3422#       发表于 2021-10-29 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53324596&amp;ptid=2028598" target="_blank">a92063256 发表于 2021-10-29 11:16</a>
+要满足什么条件才能加群啊</blockquote>
+加不了了，我搜都搜不出来了～
+
+
+*****
+
+####  优妮可  
+##### 3423#       发表于 2021-10-29 11:40
+
+
+<blockquote>cat1230 发表于 2021-10-29 11:13
+啥粉丝群内鬼是啥玩意儿，liyuu现在名气也不大啊。就国内来讲还比不上b站百大up的影响力吧，内鬼是想搞啥[f ...</blockquote>
+被揪出和之前泄露信息那群人有关
+
+
