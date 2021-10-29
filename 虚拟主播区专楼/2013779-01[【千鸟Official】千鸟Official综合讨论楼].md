@@ -10773,3 +10773,215 @@ PCG狗都不呆好吧<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  夜潇箫  
+##### 904#       发表于 2021-10-30 01:28
+
+
+艾瑞思和白白也不差，就是琳和coco有点麻烦
+
+
+*****
+
+####  袜子  
+##### 905#       发表于 2021-10-30 01:29
+
+
+这次是真要散了···
+
+
+*****
+
+####  小憨1  
+##### 906#       发表于 2021-10-30 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335263&amp;ptid=2013779" target="_blank">KarlsenIn1877 发表于 2021-10-30 01:26</a>
+这可太真实了，VR开的条件怕是只要文静是吧
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+VR真的能收了文静，我就去给光驱舔
+
+
+*****
+
+####  莫洛骑士  
+##### 907#       发表于 2021-10-30 01:29
+
+
+ 本帖最后由 莫洛骑士 于 2021-10-30 01:32 编辑 
+
+我不怕腾讯，我不怕运营，万一有爸爸真的能看到，那我这个机会也一定要争取下
+
+千鸟命由我不由天！
+
+syl 这个好心酸啊，明明自己只来了三个多月，却这么上心，到底是谁最入脑啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+zsyl 这是最难的奇迹之夜了，个人势可以靠打钱，企业势是不可能被个体拯救的
+
+
+*****
+
+####  雨井绫  
+##### 908#       发表于 2021-10-30 01:30
+
+
+忍不住上了个舰。静静如果能靠这场直播逆天改命，绝对能成为贵圈的一个新奇迹。
+
+
+*****
+
+####  魔法少女大头  
+##### 909#       发表于 2021-10-30 01:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">一天到晚喷vr，结果发现到最后有能力，有可能有意向接盘的只有vr。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  IDIDIDID  
+##### 910#       发表于 2021-10-30 01:32
+
+
+ban两年，要露脸喽！
+
+
+*****
+
+####  袜子  
+##### 911#       发表于 2021-10-30 01:32
+
+
+写个鲸落文发NGA？？来不及了吧···两年的合同啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哎
+
+
+*****
+
+####  灰色的狐狸  
+##### 912#       发表于 2021-10-30 01:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">难受
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+*****
+
+####  莫洛骑士  
+##### 913#       发表于 2021-10-30 01:33
+
+
+我觉得可以从北京地下室吸尾气开始写起，再结合从小和哥哥的温（ai）馨（da）日常
+
+
+*****
+
+####  夜潇箫  
+##### 914#       发表于 2021-10-30 01:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能接盘的也只有大企业势，维阿是最合适的
+
+
+*****
+
+####  小憨1  
+##### 915#       发表于 2021-10-30 01:35
+
+
+cnm，两年的竞业协议，千鸟你是人啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 916#       发表于 2021-10-30 01:36
+
+
+文静把运营B站号开了？
+
+
+*****
+
+####  莫洛骑士  
+##### 917#       发表于 2021-10-30 01:37
+
+
+有房管的，不用特意开吧
+
+
+*****
+
+####  Blaze626  
+##### 918#       发表于 2021-10-30 01:37
+
+
+两年...那旧粉丝多半带不走。
+
+不过她的能力，如果两年后还愿意做这行，应该还是有机会的吧，不过V圈环境日新月异的，也难说。
+
+
+*****
+
+####  莫洛骑士  
+##### 919#       发表于 2021-10-30 01:38
+
+
+现在申请纪念账号还来得及吧
+
+
+*****
+
+####  魔法少女大头  
+##### 920#       发表于 2021-10-30 01:38
+
+
+听静姨这说法，现在鲸落也没用，那是企划底子问题。
+指望另外一家接盘才是。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  夜潇箫  
+##### 921#       发表于 2021-10-30 01:38
+
+
+两年v圈还在不在都难说
+
+
+*****
+
+####  小憨1  
+##### 922#       发表于 2021-10-30 01:39
+
+
+穿新衣！给静姨准备一场风光大葬！
+
+
+*****
+
+####  莫洛骑士  
+##### 923#       发表于 2021-10-30 01:41
+
+
+请允许我们在此献上最后的告别，以此纪念其在哔哩哔哩留下的回忆与足迹。
+
+
+*****
+
+####  希克苏鲁伯  
+##### 924#       发表于 2021-10-30 01:42
+
+
+又不是辞职，被开也算竞业？
+
+
