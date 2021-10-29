@@ -2637,3 +2637,21 @@ ep5最后有大概是未来的独眼马尾奏。
 寝かす是打晕我是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6189#       发表于 2021-10-29 14:32
+
+
+ 本帖最后由 江戸前ルナ 于 2021-10-29 14:35 编辑 
+
+根据群友指正，ドレス是指上下身装备而不是单纯指下身。
+
+
+所以我就更迷糊了，利佳穿着88式都能扛机枪扛一轮，会长这里无缘无故被一枪破防擦胸。看上去不但脱去了GEAR还把战斗服换了……只能想象是会长把自己gear解除了对面还是裸装拿武器gear<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+或者阿金写的时候就没想那么多就是想写个胸葩的原因是会长仁慈造成的认真就输了
+
+
