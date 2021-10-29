@@ -5803,3 +5803,31 @@ e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
 投票是买杂志送的码才能投，星团大概率是香音了
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3455#       发表于 2021-10-29 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53330413&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-29 19:02</a>
+投票是买杂志送的码才能投，星团大概率是香音了</blockquote>
+我看微博好多人都填了，应该不用吧
+
+
+*****
+
+####  kata魂  
+##### 3456#       发表于 2021-10-29 19:11
+
+
+ 本帖最后由 kata魂 于 2021-10-29 19:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53330485&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-29 19:08</a>
+
+我看微博好多人都填了，应该不用吧</blockquote>
+是吗 我还以为有限制  等会去看看
+
+好吧，真不用，那是我弄错了
+
+
