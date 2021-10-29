@@ -10529,3 +10529,25 @@ QA的人气在整个as和au的规模爆破式发展之后，回复量没有跟�
 这SC也是勾子吧.
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 881#       发表于 2021-10-30 00:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">怎么还在2060
+
+
+*****
+
+####  莫洛骑士  
+##### 882#       发表于 2021-10-30 00:21
+
+
+文静：倭瓜那个是沟通问题……
+
+我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
