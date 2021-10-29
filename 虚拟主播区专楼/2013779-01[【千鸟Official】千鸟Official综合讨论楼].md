@@ -10426,3 +10426,16 @@ QA的人气在整个as和au的规模爆破式发展之后，回复量没有跟�
 文静私底下会打👊🐴
 
 
+
+
+*****
+
+####  GAKOTO  
+##### 873#         楼主| 发表于 2021-10-29 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53328128&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-29 15:47</a>
+文静私底下会打👊🐴</blockquote>
+私下是会磕博君一肖的mtjj<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
