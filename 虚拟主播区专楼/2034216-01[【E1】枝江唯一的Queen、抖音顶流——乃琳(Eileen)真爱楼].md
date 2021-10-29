@@ -1157,3 +1157,18 @@ Oh 我们 别再去 注定的结局
 是谁又快乐的去rua狗头了？嗯，还是我~
 
 
+
+
+*****
+
+####  拖S1后腿  
+##### 79#       发表于 2021-10-29 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53322686&amp;ptid=2034216" target="_blank">EnbuRiAs 发表于 2021-10-29 08:53</a>
+
+死羊驼，我乃宝单曲呢</blockquote>
+
+大概要先完成乐乐生日会再安排单曲发出？
+
+
