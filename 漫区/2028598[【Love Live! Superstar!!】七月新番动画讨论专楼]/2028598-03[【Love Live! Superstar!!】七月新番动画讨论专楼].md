@@ -5537,3 +5537,55 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 永远处在一个说上心好像没那么上心说不上心好像又有点上心的状态
 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3431#       发表于 2021-10-29 16:49
+
+
+这两年管人们的那种全是翻唱都需要搞版权的LIVE都能在叔叔那开搞 还能说啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3432#       发表于 2021-10-29 16:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就更别提正版碟和线上卖live了
+
+
+*****
+
+####  D麦林  
+##### 3433#       发表于 2021-10-29 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53328801&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-29 16:49</a>
+
+这两年管人们的那种全是翻唱都需要搞版权的LIVE都能在叔叔那开搞 还能说啥 ...</blockquote>
+我怀疑是价格没谈拢 叔叔是不是想把这里搞成低价区 但是企划方不愿意<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3434#       发表于 2021-10-29 16:52
+
+
+ 本帖最后由 chenflyyy 于 2021-10-29 16:53 编辑 
+
+甚至连个官号都没在这边开，却还要下架各种视频，真的很迷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对，秋叶原生放送这个号也很怪，正常人谁知道你是官方转播号啊
+
+
+*****
+
+####  蜜梨柑  
+##### 3435#       发表于 2021-10-29 16:56
+
+
+在微博和b站都是有官号的，4月as公测的时候微博官号还宣传了一下，至于b站官号自从水剧场版之后就没有动静了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">也不知道到底皮下运营是谁
+
+

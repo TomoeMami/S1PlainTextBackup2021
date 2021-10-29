@@ -827,3 +827,19 @@ ps上大多数人确实是买来玩第三方游戏的，但是第三方这么多
 希望新怪猎同步pc
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 76#       发表于 2021-10-29 16:47
+
+
+ 本帖最后由 JudgmentEye 于 2021-10-29 16:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53325874&amp;ptid=2034329" target="_blank">BonesDlc 发表于 2021-10-29 12:41</a>
+
+有没有可能如果没有战神4移植占用的开发资源战神5已经发售了，对玩家真的是好事吗 ...</blockquote>
+
+x86另存为能占用多少开发资源？你没看连繁中转换一下简中这种10分钟搞定的活都懒的做？
+
+

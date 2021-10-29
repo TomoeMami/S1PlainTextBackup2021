@@ -2682,3 +2682,30 @@ ep5最后有大概是未来的独眼马尾奏。
 还有我查了一下设定鸽子本来就能女演员共享感觉，是我孤陋寡闻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 6192#       发表于 2021-10-29 16:43
+
+
+ 本帖最后由 黑炎凤凰 于 2021-10-29 16:45 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202110/29/164107kmpf7qbq0z4dzwhc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_1029_162104.jpg</strong> (408.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-29 16:41 上传
+
+
+这次是两个十连呢。<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+短剑倒是花了四个十连。<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+
