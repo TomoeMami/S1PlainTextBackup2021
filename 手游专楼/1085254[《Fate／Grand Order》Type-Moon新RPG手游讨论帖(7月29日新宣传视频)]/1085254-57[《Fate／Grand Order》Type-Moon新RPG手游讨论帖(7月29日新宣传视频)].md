@@ -2699,3 +2699,23 @@ U奥尔加玛丽必定是凑UO这个简写，要不然无法解释为啥要硬�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这1000多狗粮加上仓库里的爆仓狗粮只够让我把摩根拉到112级.....也是非常蚌埠主了
 
 
+
+
+*****
+
+####  白夜羽  
+##### 84217#       发表于 2021-10-29 09:42
+
+
+wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 84218#       发表于 2021-10-29 09:43
+
+
+什么时候出材料更换，看到上面的我想用狗粮换材料了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
