@@ -5140,3 +5140,31 @@ liella各人谈入坑love live的契机，虽然好像有过访谈，但是以�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  ads147147  
+##### 3398#       发表于 2021-10-29 08:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321664&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-29 01:43</a>
+访谈翻译有了，就是日方要会中日的，鲤鱼把『Snow halation』的翻唱、舞蹈视频、读台词的音源发了过 ...</blockquote>
+有准备还是不太一样的，其他人不一定有鲤鱼那么早接触爱生活。不过这个会中日，好像要求也没那么严格，塑料日语反而成了卖点。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 3399#       发表于 2021-10-29 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321354&amp;ptid=2028598" target="_blank">山岚夜雨 发表于 2021-10-29 00:48</a>
+很正常，可可这个角色就不是一拍脑门的中国角色，用了心那肯定有其用意，18年花田在质问箱回答问题时有说 ...</blockquote>
+这个说好听叫大家商讨，说难听点就叫权利斗争了。毕竟委员会是为了赚钱不是做慈善，动画必须为live和歌曲让步也是这样的体现。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
