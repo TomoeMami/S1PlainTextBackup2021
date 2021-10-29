@@ -5634,3 +5634,57 @@ B站的官号活动到水水剧场版为止 搞不好是水水代理方新创华
 woc好乱啊
 
 
+
+
+*****
+
+####  lj205  
+##### 3439#       发表于 2021-10-29 17:48
+
+
+ 本帖最后由 lj205 于 2021-10-29 17:50 编辑 
+
+伪投票来了，不知道能不能把可可送上去
+
+
+那个PN 是个什么东西
+
+
+*****
+
+####  chenflyyy  
+##### 3440#       发表于 2021-10-29 17:52
+
+
+投票选举是不会带来欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 3441#       发表于 2021-10-29 17:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">e+那个注册的电话号码咋搞啊 摇人吗
+
+
+*****
+
+####  kata魂  
+##### 3442#       发表于 2021-10-29 18:02
+
+
+只要把四个灰毛送上去，大家就会欢乐的
+
+
+*****
+
+####  lj205  
+##### 3443#       发表于 2021-10-29 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53329632&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-29 17:57</a>
+e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
+用国际链接，从官推今天发那个英文链接进去，别用日本人那边的通道
+
+
