@@ -2655,3 +2655,15 @@ ep5最后有大概是未来的独眼马尾奏。
 或者阿金写的时候就没想那么多就是想写个胸葩的原因是会长仁慈造成的认真就输了
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 6190#       发表于 2021-10-29 15:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明对方在枪上也灌输了gear的高次元之力
+直接破了这边gear的防
+
+
