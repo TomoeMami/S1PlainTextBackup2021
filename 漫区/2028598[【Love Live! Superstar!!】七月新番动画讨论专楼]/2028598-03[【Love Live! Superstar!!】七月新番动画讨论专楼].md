@@ -5905,3 +5905,56 @@ e+那个注册的电话号码咋搞啊 摇人吗</blockquote>
 上回在eplus买了票没注意时间，开场了半个小时才点进去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cat1230  
+##### 3462#       发表于 2021-10-29 22:04
+
+
+[https://www.bilibili.com/video/BV1Qu411d7RJ](https://www.bilibili.com/video/BV1Qu411d7RJ)
+
+P唱具足虫很欢乐，但后面4个人的表情也太逗了，4人4表情，尤其是青山的表情仿佛是被绑票过来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 3463#       发表于 2021-10-29 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53331009&amp;ptid=2028598" target="_blank">名津流 发表于 2021-10-29 19:53</a>
+秋叶原那个官号应该只是阿B拿来放各种日本那边的线下活动直播专用的号，除了星团以外的也会放
+
+
+也许还有一 ...</blockquote>
+没有啊 星团一单生放开始就在这号播了吧
+我记得就最最最早期有播过几次其他的内容 后来就全是LL了
+
+
+*****
+
+####  a92063256  
+##### 3464#       发表于 2021-10-29 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53333081&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-29 22:04</a>
+https://www.bilibili.com/video/BV1Qu411d7RJ
+
+P唱具足虫很欢乐，但后面4个人的表情也太逗了，4人4表情，尤 ...</blockquote>
+可以看出鲤鱼在很努力的憋笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山岚夜雨  
+##### 3465#       发表于 2021-10-29 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53329053&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-10-29 17:10</a>
+那几个官号也很奇怪
+转发资讯的时候经常有些奇怪的地方 好几次都有人怀疑到底是真的官号还是有人假装官号 ...</blockquote>
+我记得官推好像宣传生放链接的时候还放过秋叶原这个链接，写明bilibili
+
+
