@@ -19501,3 +19501,21 @@ op2后面的很赶</blockquote>
 今天才发现紫电灭天翔被翻译成紫雷灭天翔，翻译是不懂繁体字吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zero12  
+##### 5939#       发表于 2021-10-29 21:52
+
+
+<img src="https://img.saraba1st.com/forum/202110/29/215233we9ebbubd8o6yupi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>60ade0f3ly1gvwiecptocj218l0u0wpy[0].jpg</strong> (372.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-29 21:52 上传
+
+
