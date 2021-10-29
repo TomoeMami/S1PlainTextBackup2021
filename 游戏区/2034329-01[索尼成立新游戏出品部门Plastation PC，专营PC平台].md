@@ -689,3 +689,21 @@ ps上大多数人确实是买来玩第三方游戏的，但是第三方这么多
 是的，已经迫不及待要通过MOD实现血源卡丁车的夙愿了。
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 64#       发表于 2021-10-29 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53324133&amp;ptid=2034329" target="_blank">粪坑战士 发表于 2021-10-29 10:47</a>
+
+让我来安慰一下索狗们：
+
+索尼大爷天可怜见 亏本开发游戏机卖与玩家 仅靠授权费以苟活 
+
+现索尼pc部门 ...</blockquote>
+臣等正欲死战，陛下何故先反
+
+
