@@ -10484,3 +10484,34 @@ QA的人气在整个as和au的规模爆破式发展之后，回复量没有跟�
 [播了](https://live.bilibili.com/22622535)
 
 
+
+
+*****
+
+####  莫洛骑士  
+##### 877#       发表于 2021-10-29 23:09
+
+
+复活！
+
+
+*****
+
+####  小憨1  
+##### 878#       发表于 2021-10-29 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53332287&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-10-29 21:05</a>
+能掏个零头给鸟么</blockquote>
+这代表要和千鸟切割了，明年就是原力千鸟了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莫洛骑士  
+##### 879#       发表于 2021-10-29 23:23
+
+
+文静在直播间传授吃了大蒜怎么处理口气便于接吻的经验，我直接两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
