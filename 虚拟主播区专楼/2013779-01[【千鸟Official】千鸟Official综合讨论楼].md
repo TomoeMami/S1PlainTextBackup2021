@@ -10985,3 +10985,304 @@ cnm，两年的竞业协议，千鸟你是人啊<img src="https://static.saraba1
 又不是辞职，被开也算竞业？
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 925#       发表于 2021-10-30 01:44
+
+
+“我以为我是皮卡丘，总能在关键时刻逆转战局，但没想到我是鲤鱼王，使用了水溅跃好像并没有什么效果。”——文静
+
+
+*****
+
+####  小憨1  
+##### 926#       发表于 2021-10-30 01:46
+
+
+<img src="https://p.sda1.dev/3/45e8ce98324b9b09846749ea78233378/-1cdfe5ba63c5ca8f.png" referrerpolicy="no-referrer">
+运营说还有牌
+
+
+*****
+
+####  袜子  
+##### 927#       发表于 2021-10-30 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335390&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-10-30 01:42</a>
+
+又不是辞职，被开也算竞业？</blockquote>
+算的，多数竞业合同都有这种，算是正常操作，没啥用
+
+
+*****
+
+####  希克苏鲁伯  
+##### 928#       发表于 2021-10-30 01:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335412&amp;ptid=2013779" target="_blank">袜子 发表于 2021-10-30 01:46</a>
+
+算的，多数竞业合同都有这种，算是正常操作，没啥用</blockquote>
+那只能希望腾子坐不起公交不给竞业费了
+
+
+*****
+
+####  IDIDIDID  
+##### 929#       发表于 2021-10-30 01:48
+
+
+ 本帖最后由 IDIDIDID 于 2021-10-30 01:50 编辑 
+
+确认住的别墅或者跃层
+
+想EMO一下结果因为没有会员音乐戛然而止实在是太有节目效果了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袜子  
+##### 930#       发表于 2021-10-30 01:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335419&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-30 01:48</a>
+
+确认住的别墅或者跃层</blockquote>
+这事早就确定了···<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这天赐的节目效果真是···绷不住了
+
+
+
+
+*****
+
+####  雨井绫  
+##### 931#       发表于 2021-10-30 01:51
+
+
+我还以为今晚这是孤注一掷的最后一张牌，没想到牌还没出完，文静无愧于卡牌大师之名
+
+
+*****
+
+####  H2Ofrozen  
+##### 932#       发表于 2021-10-30 01:53
+
+
+文艾不灭！😭
+
+
+*****
+
+####  IDIDIDID  
+##### 933#       发表于 2021-10-30 01:53
+
+
+靠哭丧回400舰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希克苏鲁伯  
+##### 934#       发表于 2021-10-30 01:54
+
+
+草，什么毕业歌回
+
+
+*****
+
+####  憧憬鲨  
+##### 935#       发表于 2021-10-30 01:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">接下来会发生什么呢
+
+
+*****
+
+####  雨井绫  
+##### 936#       发表于 2021-10-30 01:55
+
+
+ 本帖最后由 雨井绫 于 2021-10-30 01:57 编辑 
+
+静！这一切都在你的算计之中吗！这首歌也是吗！
+
+
+*****
+
+####  T型钉宫病毒  
+##### 937#       发表于 2021-10-30 01:55
+
+
+这下毕业回了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袜子  
+##### 938#       发表于 2021-10-30 01:57
+
+
+这下毕业回了，又给她炒到400舰了啧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早点睡觉别emo了，这种事情不要太多，今后会习惯的
+
+
+*****
+
+####  H2Ofrozen  
+##### 939#       发表于 2021-10-30 01:58
+
+
+简单来说就是炒了波小的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1025  
+##### 940#       发表于 2021-10-30 01:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">多少有点难受
+
+
+*****
+
+####  夜潇箫  
+##### 941#       发表于 2021-10-30 01:58
+
+
+还是会有点感慨，比如艾瑞思这个默默打拼好几年的人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T型钉宫病毒  
+##### 942#       发表于 2021-10-30 02:12
+
+
+真要是毕业了希望能整个罗爷那样的毕业回，开开心心的走
+
+不要emo的文静，球球了
+
+
+*****
+
+####  tn_teana  
+##### 943#       发表于 2021-10-30 02:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335419&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-10-30 01:48</a>
+确认住的别墅或者跃层
+
+想EMO一下结果因为没有会员音乐戛然而止实在是太有节目效果了
+
+ ...</blockquote>
+住的跃层顶楼，还可以用天台种菜
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  haruhiismer  
+##### 944#       发表于 2021-10-30 02:14
+
+
+不可能没的，千鸟又亏不了几个钱腾讯微视啥的巨亏都能坚持挺久的，况且营收和用户还在增长，
+
+
+*****
+
+####  tn_teana  
+##### 945#       发表于 2021-10-30 02:15
+
+
+千鸟是三家合作的企划，腾讯撤了还真可能没了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  白瀬玲  
+##### 946#       发表于 2021-10-30 02:17
+
+
+ 本帖最后由 白瀬玲 于 2021-10-30 02:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335141&amp;ptid=2013779" target="_blank">Blaze626 发表于 2021-10-30 01:10</a>
+所以以后静姨真要毕业了转生，会有Bsoul接盘吗，不过看小罗那半死不活的样子，肯定有Bsoul也和他没关系就是 ...</blockquote>
+消
+
+
+*****
+
+####  袜子  
+##### 947#       发表于 2021-10-30 02:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335549&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-10-30 02:14</a>
+
+不可能没的，千鸟又亏不了几个钱腾讯微视啥的巨亏都能坚持挺久的，况且营收和用户还在增长， ...</blockquote>
+是主体变更了，腾讯视频不能搞，换去互娱人家不要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  憧憬鲨  
+##### 948#       发表于 2021-10-30 02:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">coco这是准备考教资跑路了？
+
+
+*****
+
+####  faithlifer  
+##### 949#       发表于 2021-10-30 02:24
+
+
+唉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  憧憬鲨  
+##### 950#       发表于 2021-10-30 02:26
+
+
+想了一下，是不是文静天天吸星瞳的血导致那边的项目组看见她们就烦
+
+
+*****
+
+####  tankai  
+##### 951#       发表于 2021-10-30 02:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335549&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-10-30 02:14</a>
+
+不可能没的，千鸟又亏不了几个钱腾讯微视啥的巨亏都能坚持挺久的，况且营收和用户还在增长， ...</blockquote>
+V圈观众是定量的。V越多分的羹就越多。千鸟死了，这批观众就空出来了。
+
+
+所以ASOUL破圈引流新观众真的和年NB，命运自己掌握，时长不吊叔叔。最多卖个B限角色。
+
+
+*****
+
+####  tankai  
+##### 952#       发表于 2021-10-30 02:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53335609&amp;ptid=2013779" target="_blank">憧憬鲨 发表于 2021-10-30 02:26</a>
+
+想了一下，是不是文静天天吸星瞳的血导致那边的项目组看见她们就烦</blockquote>
+都是臊皮，血是一点没吸上。羊驼都不理千鸟，嫡系理过？
+
+
