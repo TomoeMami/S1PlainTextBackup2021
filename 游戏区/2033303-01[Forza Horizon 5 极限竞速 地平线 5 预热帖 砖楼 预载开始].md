@@ -1356,3 +1356,37 @@ https://b23.tv/fJL8GJ
 已经在xss预载完成，等待解锁
 
 
+
+
+*****
+
+####  老黑305  
+##### 93#       发表于 2021-10-29 10:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在我就只能在4里刷钱买599xxe了，希望能在5解锁前刷出来
+
+
+*****
+
+####  夜魅之影  
+##### 94#       发表于 2021-10-29 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53323644&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-10-29 10:13</a>
+
+现在我就只能在4里刷钱买599xxe了，希望能在5解锁前刷出来</blockquote>
+599XXE 不是可以用后台通行证换的么……
+
+
+*****
+
+####  老黑305  
+##### 95#       发表于 2021-10-29 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53323660&amp;ptid=2033303" target="_blank">夜魅之影 发表于 2021-10-29 10:14</a>
+599XXE 不是可以用后台通行证换的么……</blockquote>
+我夏季赛才开始打，进度才打了19%，昨天刚开始秋季赛，不知道能不能刷够进度
+
+
