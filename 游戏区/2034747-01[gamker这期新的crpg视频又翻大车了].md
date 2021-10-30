@@ -1659,3 +1659,42 @@ lunamos也不是测评/杂谈类型的吧，至于有水平的测评我更倾向
 完全客观准确的不可能存在，换个思路，就找完全主观的，比如游戏驴子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Tring  
+##### 145#       发表于 2021-10-31 00:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346644&amp;ptid=2034747" target="_blank">Quelaan 发表于 2021-10-31 00:32</a>
+
+排这么多雷，那么有没有真有水平的游戏测评/杂谈类up推荐啊
+
+能有S1指定lunamos老师一半水平就行 ...</blockquote>
+狗乔伊谈军火能擦个游戏杂谈的边么？不过他正经谈游戏的我倒是不怎么看。
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 146#       发表于 2021-10-31 00:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346644&amp;ptid=2034747" target="_blank">Quelaan 发表于 2021-10-31 00:32</a>
+
+排这么多雷，那么有没有真有水平的游戏测评/杂谈类up推荐啊
+
+能有S1指定lunamos老师一半水平就行 ...</blockquote>
+就我上边提到的狗蛋Tdogegg，其实就正义之怒那期视频来说人家也有错漏，但至少能看出来是通关过一次的
+
+
+*****
+
+####  subject07  
+##### 147#       发表于 2021-10-31 00:57
+
+
+狗蛋的评测十分钟就能说个七七八八，gamker的视频水个三十分钟都扯不明白
+
+
