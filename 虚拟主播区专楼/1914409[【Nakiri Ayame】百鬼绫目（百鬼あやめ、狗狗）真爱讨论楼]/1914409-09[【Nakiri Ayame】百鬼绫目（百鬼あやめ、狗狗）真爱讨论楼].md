@@ -16322,3 +16322,16 @@ lol都是绫总不懂事，打着玩的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  allenz3  
+##### 13377#       发表于 2021-10-30 13:07
+
+
+ 本帖最后由 allenz3 于 2021-10-30 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53337217&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-10-30 10:41</a></blockquote>
+是该冲冲了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，绫总既然都单排了不如直接开播LOL不好吗，想上分像马自立和towa那样去抱个大腿啊
+
+
