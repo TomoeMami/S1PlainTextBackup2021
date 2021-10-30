@@ -1578,3 +1578,23 @@ solasta，dnd5e的走格子
 已经下架道歉了
 
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 138#       发表于 2021-10-31 00:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连续两个动态都请了公关搅浑水，小号各种经典的模板式回复
+
+
+*****
+
+####  lushark  
+##### 139#       发表于 2021-10-31 00:23
+
+
+去看了眼他家《deathloop》的视频，真就20分钟废话，唯一有效信息就是他们没玩过prey，露怯到几乎连提都不敢提。
+
+
