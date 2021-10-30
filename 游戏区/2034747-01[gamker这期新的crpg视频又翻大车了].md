@@ -1251,3 +1251,289 @@ madcatclan？是ntrpg那个吗？那真是老crpg玩家了</blockquote>
 这人博得3不仅立老cprg玩家人设，在这之前还多吹一个自己是老跑团玩家<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">结果闹了半天连3r和5e都没什么概念
 
 
+
+
+*****
+
+####  真实之影  
+##### 112#       发表于 2021-10-30 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343405&amp;ptid=2034747" target="_blank">升职加薪 发表于 2021-10-30 20:15</a>
+
+这个id很早在bg2的社区见过，所以问问是不是同一个人</blockquote>
+@MadcatClan
+
+来来来，群众要公审你了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  365702240  
+##### 113#       发表于 2021-10-30 20:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我都是去gamker那看聂胖吹我喜欢的游戏，其他游戏都不看
+
+
+*****
+
+####  马僧虔  
+##### 114#       发表于 2021-10-30 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343678&amp;ptid=2034747" target="_blank">真实之影 发表于 2021-10-30 20:35</a>
+@MadcatClan
+
+来来来，群众要公审你了</blockquote>
+记得这位好像只上tgfc
+
+
+*****
+
+####  升职加薪  
+##### 115#       发表于 2021-10-30 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343738&amp;ptid=2034747" target="_blank">马僧虔 发表于 2021-10-30 20:39</a>
+
+记得这位好像只上tgfc</blockquote>
+应该就是NT那位了
+
+当年以嘴臭知名的
+
+后来玩游戏的新人全去bfclan了，NT也糊了
+
+
+*****
+
+####  敬明挑梅西  
+##### 116#       发表于 2021-10-30 20:46
+
+
+“顶着侵权的风险享受DND的乐趣” “索拉斯塔花了大价钱拿到了DND授权”
+
+看了五分钟真想吐了 这人念稿子的时候不会脸红的吗<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滋啦球  
+##### 117#       发表于 2021-10-30 20:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近看这个人还是因为他做了一期into the breach, 吹得方向相当奇怪是说能从8*8的格子里玩出巨型机器人对战怪兽感觉的游戏,而且还是他觉得最有巨型机器人感觉的游戏, 至于游戏的核心意图系统和解残局的乐趣反而是一句话带过了, 也没有几个例子去说服观众, 如果我没玩过这游戏听了他的评测去买就会发现完全和他吹得没半点关系
+
+
+*****
+
+####  aruruu  
+##### 118#       发表于 2021-10-30 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343118&amp;ptid=2034747" target="_blank">偶像程序员POI 发表于 2021-10-30 19:55</a>
+疯猫MadcatClan     
+
+
+我看他那个罪恶帝国的恰饭视频，如果不是后来有良心UP避雷就差点买了的。</blockquote>
+这位印象最深的是因为76狂喷b社，没多久就恰了辐射手游的饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  LeViandier  
+##### 119#       发表于 2021-10-30 21:04
+
+
+风怒编辑
+
+
+*****
+
+####  LeViandier  
+##### 120#       发表于 2021-10-30 21:04
+
+
+ 本帖最后由 LeViandier 于 2021-10-30 21:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343880&amp;ptid=2034747" target="_blank">滋啦球 发表于 2021-10-30 20:47</a>
+
+最近看这个人还是因为他做了一期into the breach, 吹得方向相当奇怪是说能从8*8的格子里玩出巨型机 ...</blockquote>
+然后这人还用这个莫名其妙的角度去踩了一脚其他萝卜游戏，评论区很多萝卜厨直接被这人带一波情绪。安利游戏说得好听，看下来觉得像反串黑。
+
+
+
+
+*****
+
+####  Lunamos  
+##### 121#       发表于 2021-10-30 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53338930&amp;ptid=2034747" target="_blank">爱护动物抓根宝 发表于 2021-10-30 14:47</a>
+
+说起来我更好奇另一个up主狗蛋是怎么做到玩这么多游戏的，看他QA回还说自己只有一个人 ...</blockquote>
+狗蛋是全职专心高强度玩+评，一周通关2个左右的游戏再写总计8K字左右的测评并做视频。游戏毕竟有长有短，估算一下大概还是做得到的。工作强度是很高，但把游戏和工作时间合并了，感觉还是开心的。
+
+
+正义之怒有提前评测环节，所以能做到当天就发视频，我也收到了杉果的邮件，不过我不评新游戏就推了。Gamker似乎是对提前测评有些意见，一般都会滞后一些。
+
+
+*****
+
+####  Guildenstern  
+##### 122#       发表于 2021-10-30 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342810&amp;ptid=2034747" target="_blank">厨具战士 发表于 2021-10-30 19:28</a>
+
+何出此言啊？平心而论，国内CRPG婆罗门的出现率要远大于JRPG的几率。当年相比JRPG，CRPG的资源简直要丰富 ...</blockquote>
+博德之门初代98年发售，那时候FF7都发售一年了，99年eyes on me已经传唱大江南北了。JRPG婆罗门至少得玩过SFC上的名作吧？相对应的，CRPG敢称婆罗门是不是要玩过同时代的创世纪和魔法门？
+
+
+*****
+
+####  秋月孝三  
+##### 123#       发表于 2021-10-30 22:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341955&amp;ptid=2034747" target="_blank">阿尔及利亚 发表于 2021-10-30 18:19</a>
+
+问一下这类游戏都是神界原罪那种半回合制自由行动的吗，不知道有没有xcom那种走格子的我玩起来感觉好一点 ...</blockquote>
+solasta，dnd5e的走格子
+
+
+*****
+
+####  Tring  
+##### 124#       发表于 2021-10-30 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342810&amp;ptid=2034747" target="_blank">厨具战士 发表于 2021-10-30 19:28</a>
+
+何出此言啊？平心而论，国内CRPG婆罗门的出现率要远大于JRPG的几率。当年相比JRPG，CRPG的资源简直要丰富 ...</blockquote>
+其实国内早期网文主要受大菠萝影响甚大。
+
+至于大菠萝算不算CRPG，这又是另一个议题了。
+
+
+*****
+
+####  shlovekd  
+##### 125#       发表于 2021-10-30 22:45
+
+
+奇迹2那时候为了吊这个丈育故意在泥潭评论说他没这个能力，"分析明白这个游戏真得找个编剧来说"，结果这人的文案里真说自己找了个编剧…我的编剧基友直接笑尿，当时就感觉不妙………
+
+
+*****
+
+####  ゆい  
+##### 126#       发表于 2021-10-30 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345007&amp;ptid=2034747" target="_blank">Tring 发表于 2021-10-30 22:20</a>
+
+其实国内早期网文主要受大菠萝影响甚大。
+
+至于大菠萝算不算CRPG，这又是另一个议题了。 ...</blockquote>
+说起来暗黑是arpg始祖是怎么传出来的？暗黑在a的部分算不上很好吧
+
+
+*****
+
+####  毛利提督  
+##### 127#       发表于 2021-10-30 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345383&amp;ptid=2034747" target="_blank">ゆい 发表于 2021-10-30 22:52</a>
+
+说起来暗黑是arpg始祖是怎么传出来的？暗黑在a的部分算不上很好吧</blockquote>
+暗黑1和2可以说奠定了未来20年一大批arpg和mmo的基本设定
+
+
+*****
+
+####  Tring  
+##### 128#       发表于 2021-10-30 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345383&amp;ptid=2034747" target="_blank">ゆい 发表于 2021-10-30 22:52</a>
+
+说起来暗黑是arpg始祖是怎么传出来的？暗黑在a的部分算不上很好吧</blockquote>
+仿作多了，我觉得从结果论上来说算个鼻祖也没啥毛病。
+
+至于要追根溯源，那又是另一回事了。
+
+
+*****
+
+####  wzh5555  
+##### 129#       发表于 2021-10-30 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345383&amp;ptid=2034747" target="_blank">ゆい 发表于 2021-10-30 22:52</a>
+
+说起来暗黑是arpg始祖是怎么传出来的？暗黑在a的部分算不上很好吧</blockquote>
+不是绝对意义的始祖，而是之后主流模式的始祖
+
+
+*****
+
+####  makar0601  
+##### 130#       发表于 2021-10-30 23:10
+
+
+笑嘻了，删了装死
+
+
+*****
+
+####  Pingbeici  
+##### 131#       发表于 2021-10-30 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53344591&amp;ptid=2034747" target="_blank">Guildenstern 发表于 2021-10-30 21:46</a>
+博德之门初代98年发售，那时候FF7都发售一年了，99年eyes on me已经传唱大江南北了。JRPG婆罗门至少得玩 ...</blockquote>
+精讯电脑的创刊号上就是各种有关创世纪的版面，可见确实是CRPG婆罗门比较早出现在中文社区里的。不过到了互联网时代，基本看不到老CRPG的讨论了。
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 132#       发表于 2021-10-30 23:22
+
+
+ 本帖最后由 龘䶛䨻䎱㸞蚮䡶 于 2021-10-30 23:23 编辑 
+
+笑了，之前还在庆祝搬家，结果下个视频就被喷到道歉，这也太乐了
+
+
+*****
+
+####  jack52518  
+##### 133#       发表于 2021-10-30 23:28
+
+
+发道歉声明了
+
+
+*****
+
+####  中泽君  
+##### 134#       发表于 2021-10-30 23:31
+
+
+就算稿子不是自己写的，读稿时不觉得有问题吗
+
+
+*****
+
+####  isa2456  
+##### 135#       发表于 2021-10-30 23:37
+
+
+把我笑到了，之前柱2和极乐迪斯科的时候就看透了，只会说些浅层的东西或者是死往一个方向拐
+
+

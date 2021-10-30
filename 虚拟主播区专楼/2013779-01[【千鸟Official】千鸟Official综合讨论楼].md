@@ -12039,3 +12039,96 @@ NGA说琳姐昨晚哭到今早上七点才睡。
 co宝心情还好
 
 
+
+
+*****
+
+####  小憨1  
+##### 1014#       发表于 2021-10-30 21:04
+
+
+BV1xr4y1C7Ln
+冰火切片出了，速溜
+
+
+*****
+
+####  丢了五块钱  
+##### 1015#       发表于 2021-10-30 21:44
+
+
+白白也还是挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  丢了五块钱  
+##### 1016#       发表于 2021-10-30 22:12
+
+
+白白:我已经紧张的夹到批爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1017#       发表于 2021-10-30 22:22
+
+
+虚拟区运营也是鸟批是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小憨1  
+##### 1018#       发表于 2021-10-30 22:22
+
+
+虚拟区高级运营：草，我换个号再来<img src="https://p.sda1.dev/3/b3d8f1bf8295a54a14fc154b73bc52fe/IMG_CMP_5516097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  H2Ofrozen  
+##### 1019#       发表于 2021-10-30 22:27
+
+
+鸟p最后的波纹！<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魔法少女大头  
+##### 1020#       发表于 2021-10-30 22:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">5424开始讨论集资买千鸟了。
+
+
+
+
+*****
+
+####  夜潇箫  
+##### 1021#       发表于 2021-10-30 22:53
+
+
+买下千鸟，能让文静侍寝吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莫洛骑士  
+##### 1022#       发表于 2021-10-30 23:07
+
+
+千鸟马上就要散了，贺子命令一位触角鸟p创作一幅名为《静栗惹在鸟吧哭丧》的同人画作为纪念。
+很不情愿的鸟p在威逼下接受了工作。画完成后，鸟吧一吧务前来验收，结果让他大吃一惊：画面上是一个麻花辫吕人和两个老头在沙发上亲热，电视上放着《赌博默示录3》。
+“这是什么？这女的是谁？！”吧务愤怒的问。
+“文静。”鸟p答道。
+“两个男的呢？！”
+“视频部和游戏部的高管。”
+“可静栗惹在哪里？”
+“静栗惹在鸟吧哭丧。”鸟p答道。
+
+

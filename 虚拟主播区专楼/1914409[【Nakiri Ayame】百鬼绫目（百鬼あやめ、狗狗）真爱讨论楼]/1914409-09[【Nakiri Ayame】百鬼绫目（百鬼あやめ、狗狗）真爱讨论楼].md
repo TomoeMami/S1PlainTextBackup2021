@@ -16387,3 +16387,54 @@ EN二期的黑肉不过17天没开就被4chan说是EN绫总了<img src="https://
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那en二期岂不是抽了一个行为绫总，一个声音绫总
 
 
+
+
+*****
+
+####  nian1538  
+##### 13383#       发表于 2021-10-30 21:12
+
+
+Sana这次是家里有事猫死了，虽然是休的有点久但还是没法和绫总的摸余精神比的
+
+感觉皮套和出道休止双debuff更像Aki
+
+
+*****
+
+####  yuandi0120  
+##### 13384#       发表于 2021-10-30 21:54
+
+
+[https://live.bilibili.com/326309](https://live.bilibili.com/326309)
+
+这不比s11好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cctvyt1  
+##### 13385#       发表于 2021-10-30 22:24
+
+
+上白金后就会开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 13386#       发表于 2021-10-30 22:35
+
+
+嗓子需要时间恢复，百鬼组请回吧
+
+
+*****
+
+####  FCCHua  
+##### 13387#       发表于 2021-10-30 22:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

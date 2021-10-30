@@ -10538,3 +10538,465 @@ ll系列的切片录播在微博一直是有的，而且还是唱完一首就放
 竟然没有，不过本来就不该删就是
 
 
+
+
+*****
+
+####  优妮可  
+##### 3922#       发表于 2021-10-30 20:28
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/202851js6xrk6hzfzaky3h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211030_202011.jpg</strong> (211.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-30 20:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/202851dw877jl3n2wwn636.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211030_202009.jpg</strong> (649.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-10-30 20:28 上传
+
+
+*****
+
+####  player3960  
+##### 3923#       发表于 2021-10-30 20:31
+
+
+[https://www.youtube.com/watch?v=z2zhZ9YEmSY](https://www.youtube.com/watch?v=z2zhZ9YEmSY)
+快来听你鲤鱼姐唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  努斯万克  
+##### 3924#       发表于 2021-10-30 20:33
+
+
+那么，在哪里能看到演唱会直播呢，在哪里能看nhk直播呢
+
+
+*****
+
+####  lj205  
+##### 3925#       发表于 2021-10-30 20:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343651&amp;ptid=2028598" target="_blank">努斯万克 发表于 2021-10-30 20:33</a>
+
+那么，在哪里能看到演唱会直播呢，在哪里能看nhk直播呢</blockquote>
+
+直播这里买 [https://ib.eplus.jp/](https://ib.eplus.jp/)   ，一场200血赚。
+
+
+Nhk直播是啥
+
+
+*****
+
+####  努斯万克  
+##### 3926#       发表于 2021-10-30 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343696&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-30 20:37</a>
+
+直播这里买 https://ib.eplus.jp/   ，一场200血赚。
+
+
+Nhk直播是啥</blockquote>
+鲤鱼不是要参加nhk的一个节目嘛，所以我就想会不会有直播
+
+
+*****
+
+####  chenflyyy  
+##### 3927#       发表于 2021-10-30 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343823&amp;ptid=2028598" target="_blank">努斯万克 发表于 2021-10-30 20:43</a>
+鲤鱼不是要参加nhk的一个节目嘛，所以我就想会不会有直播</blockquote>
+BV1sF411a74x
+B站有人传了
+
+
+*****
+
+####  lj205  
+##### 3928#       发表于 2021-10-30 20:55
+
+
+气死我了，刚才LIVE本来打算录屏的，刚刚才发现没点开始录制<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 3929#       发表于 2021-10-30 21:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你鲤鱼姐是真的喜欢复读
+
+
+*****
+
+####  Arccueid  
+##### 3930#       发表于 2021-10-30 21:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53344113&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-30 21:04:41</a>
+你鲤鱼姐是真的喜欢复读</blockquote>可以理解..
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 3931#       发表于 2021-10-30 21:10
+
+
+草，sayurin这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梶原ひかり  
+##### 3932#       发表于 2021-10-30 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343986&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-30 20:55</a>
+气死我了，刚才LIVE本来打算录屏的，刚刚才发现没点开始录制 ...</blockquote>
+没必要...9点以后B站上就到处都是了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  chenflyyy  
+##### 3933#       发表于 2021-10-30 21:22
+
+
+翻页bug真的有了，楼主还在吗？要不要换个新楼了[@平安名すみれ](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=547059)
+
+
+*****
+
+####  中野四葉  
+##### 3934#       发表于 2021-10-30 21:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼也太短命了，要不等二期再重新开楼吧。之后应该也就live的时候会活跃了
+
+
+*****
+
+####  Norkey1  
+##### 3935#       发表于 2021-10-30 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343555&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-30 20:26</a>
+ll系列的切片录播在微博一直是有的，而且还是唱完一首就放一首的，速度很快
+国内的环境就是这样，而且官 ...</blockquote>
+我以为这个团有个国人不会放出来太快来着<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3936#       发表于 2021-10-30 21:31
+
+
+liella翻译成莉耶拉太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 3937#       发表于 2021-10-30 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53344390&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-30 21:31</a>
+liella翻译成莉耶拉太搞了</blockquote>
+反正读起来还是裂啦
+
+
+*****
+
+####  大哀之君  
+##### 3938#       发表于 2021-10-30 21:43
+
+
+莉耶拉必秒爱克娅
+
+
+*****
+
+####  cat1230  
+##### 3939#       发表于 2021-10-30 21:48
+
+
+切片汉化都有了，速度真快啊
+
+
+*****
+
+####  cat1230  
+##### 3940#       发表于 2021-10-30 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53344324&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-30 21:25</a>
+
+我以为这个团有个国人不会放出来太快来着</blockquote>
+就当给周边打广告吧。演唱会这种本来也没走流程引进国内，看了切片可能会在CD玩偶之类的东西增加点销量
+
+
+*****
+
+####  cat1230  
+##### 3941#       发表于 2021-10-30 21:51
+
+
+ 本帖最后由 cat1230 于 2021-10-30 22:17 编辑 
+
+这也能风怒……刚看下B上已经有完整版了。看看能活多久
+
+
+*****
+
+####  ads147147  
+##### 3942#       发表于 2021-10-30 21:56
+
+
+突然想想除了缪斯，也就是虹咲学院偶像同好会最好翻译了，日本人真喜欢这些奇奇怪怪的单词组合。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  cqc1021  
+##### 3943#       发表于 2021-10-30 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341165&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-30 17:19</a></blockquote>
+／└ 
+感觉要加入名场面了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  仟音一心  
+##### 3944#       发表于 2021-10-30 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53344661&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-10-30 21:51</a>
+这也能风怒……刚看下B上已经有完整版了。看看能活多久</blockquote>
+我缓存了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 3945#       发表于 2021-10-30 22:35
+
+
+我下载到了网盘里面，求楼友加点鹅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过分吧
+
+我用阿里云盘分享了「ラブライブ!スーパースター!!Liella! 1...s~ 群馬公演 DAY1.mp4」，你可以不限速下载🚀
+复制这段内容打开「阿里云盘」App 即可获取
+链接：https://www.aliyundrive.com/s/9myZfGXsPbD
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stygian| + 2|好评加鹅|
+| D麦林| + 1||
+| -Vanitas-| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  优妮可  
+##### 3946#       发表于 2021-10-30 22:52
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/225226nczc77ff70efh1qm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211030_223135.jpg</strong> (235.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 22:52 上传
+
+
+*****
+
+####  saglork  
+##### 3947#       发表于 2021-10-30 22:52
+
+
+liyuu这音准气流稳到不科学，就是不是特质音，不如小百合好听，所以说之前那个唱功排行完全不靠谱，一次现场就能全推翻
+
+
+*****
+
+####  中野四葉  
+##### 3948#       发表于 2021-10-30 23:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小百合这次连续唱了几首之后就明显感觉蚌埠住了，还是要改变下唱法
+
+
+*****
+
+####  稀勢のささ  
+##### 3949#       发表于 2021-10-30 23:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">唱歌多愿意下功夫肯定能进步  TYMM都能
+
+
+*****
+
+####  稀勢のささ  
+##### 3950#       发表于 2021-10-30 23:04
+
+
+今天还发现你鲤鱼姐的舞 怎么说呢 不够软 特别是跟鲨鱼林动作一样的时候比较明显 这就是年龄的优势吗（）
+
+
+*****
+
+####  lj205  
+##### 3951#       发表于 2021-10-30 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345165&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-10-30 22:35</a>
+我下载到了网盘里面，求楼友加点鹅不过分吧
+
+我用阿里云盘分享了「ラブライブ!スーパ ...</blockquote>
+谷歌盘有没<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 3952#       发表于 2021-10-30 23:10
+
+
+pay好厉害…
+
+
+*****
+
+####  中野四葉  
+##### 3953#       发表于 2021-10-30 23:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">毕竟是水灵灵的jk
+
+
+*****
+
+####  Norkey1  
+##### 3954#       发表于 2021-10-30 23:21
+
+
+tymm唱歌基本都是站桩还能跑，她那种进步就算了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">每日车音（1/1）
+又跳又唱正常人连唱几首难顶，隔壁座长连续唱跳都压不住了，她一个新人更不用说了。只要你星多出点歌，一切都会好起来的（前提是熬过这20场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 3955#       发表于 2021-10-30 23:23
+
+
+<blockquote>chenflyyy 发表于 2021-10-30 21:22
+翻页bug真的有了，楼主还在吗？要不要换个新楼了@平安名すみれ</blockquote>
+来了，新楼看你们意见。是等二期播出再开。还是现在就开。
+
+
+*****
+
+####  JustW  
+##### 3956#       发表于 2021-10-30 23:26
+
+
+mmy在2nd那会儿就又跳又打又唱，连着好几首revue曲，那确实是累疯了
+
+
+*****
+
+####  优妮可  
+##### 3957#       发表于 2021-10-30 23:29
+
+
+等二期吧，也就前几场和最后一场聊的多，之后应该没啥事了
+
+
+*****
+
+####  chenflyyy  
+##### 3958#       发表于 2021-10-30 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345776&amp;ptid=2028598" target="_blank">离心 发表于 2021-10-30 23:23</a>
+来了，新楼看你们意见。是等二期播出再开。还是现在就开。</blockquote>
+我觉得还是开新楼比较好，毕竟动画二季最快也得明年10月吧，期间还是有不少生放和live可以水水的，遇上换页bug确实有点难受
+不过不换也问题不大，再看看其他人怎么说吧
+
+
+*****
+
+####  中野四葉  
+##### 3959#       发表于 2021-10-30 23:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">三九吕老师又出新图了，真好啊
+
+
+*****
+
+####  普之舜舜  
+##### 3960#       发表于 2021-10-30 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345954&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-30 23:39</a>
+三九吕老师又出新图了，真好啊</blockquote>
+我的图图呢？图图在哪里
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

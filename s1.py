@@ -133,7 +133,7 @@ def FormatStr(namelist, replylist,totalreply):
     return output,lastreply
 
 
-with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
+with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
     cookie_str1 = f.read()
 cookie_str = repr(cookie_str1)[1:-1]
 # #把cookie字符串处理成字典，以便接下来使用

@@ -6784,3 +6784,109 @@ syl 直播间捕捉到千春<img src="https://static.saraba1st.com/image/smiley/
 走音也是社长的一种防伪标识…
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 7977#       发表于 2021-10-30 21:06
+
+
+ 本帖最后由 alcoholic1000 于 2021-10-30 22:08 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/210511fgw39vhzwpgezg0k.png" referrerpolicy="no-referrer">
+
+
+<strong>「#にじスプラ大会」.png</strong> (86.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 21:05 上传
+
+
+52名主播参与，也许会有EN,KR和ID？
+
+<img src="https://img.saraba1st.com/forum/202110/30/220803gccsmitixcwzawjm.png" referrerpolicy="no-referrer">
+
+
+<strong>【】 ヴァンパイア／葛葉 歌ってみた 【】.png</strong> (155.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 22:08 上传
+
+
+乐
+
+
+*****
+
+####  IDIDIDID  
+##### 7978#       发表于 2021-10-30 21:48
+
+
+ 本帖最后由 IDIDIDID 于 2021-10-30 21:49 编辑 
+
+七姨太这妆双下巴都出来了，而且重点突出苹果肌之后就很显老。
+
+
+*****
+
+####  rzrbtk  
+##### 7979#       发表于 2021-10-30 22:08
+
+
+只有虹一姐（男）才能配得上rurudo啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 7980#       发表于 2021-10-30 22:19
+
+
+[https://www.youtube.com/watch?v=niJn_TS0U18](https://www.youtube.com/watch?v=niJn_TS0U18)
+
+小鞠加入re:act，新做了一个2d皮
+
+re:act目前的14人将划分为四个组合进行活动
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/221851y6djrl7afrz7by3s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2d.jpg</strong> (237.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 22:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/221857c1t9tt2f9449t49t.png" referrerpolicy="no-referrer">
+
+
+<strong>4.png</strong> (108.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 22:18 上传
+
+
+
+
+*****
+
+####  fastary  
+##### 7981#       发表于 2021-10-30 22:27
+
+
+想起上次也是那边热热闹闹喷喷大会这边黑客一个人喷喷打工大会，总觉得这次也不会参加，但是v最协的例子在前又好像不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+传说队算是彻底治好了我的黑客大会无队练一轮游心理阴影，又想看他参加大会了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+syl
+
+昨天黑客那个仿综艺企划不仅还原了日综配置甚至还原了参观嘉宾(偶像组合艺人)不主动插话就没什么戏份纯刷脸的效果，莫名生草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（还好表面上没人黑屁他这个
+
+
