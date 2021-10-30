@@ -13165,3 +13165,41 @@ crew屁用都没<img src="https://static.saraba1st.com/image/smiley/face2017/048
 然后从周日自闭到周三，中间除了不得不转的推之外就发个Vu让crew猜谜去吧
 
 
+
+
+*****
+
+####  Scardy  
+##### 7053#       发表于 2021-10-31 02:23
+
+
+如果是你脑补的这种心态，那不如毕业吧，不用折磨自己，不用折磨crew
+
+
+*****
+
+####  holoan  
+##### 7054#       发表于 2021-10-31 02:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346399&amp;ptid=1947500" target="_blank">nian1538 发表于 2021-10-31 00:11</a>
+
+仔细想想周四的时候还是没说到底是什么原因导致的上周日不播
+
+综合一下重点加脑补的话大概是这种感觉：
+
+一周 ...</blockquote>
+你大概不是真crew
+
+
+*****
+
+####  过来玩玩  
+##### 7055#       发表于 2021-10-31 03:01
+
+
+ 本帖最后由 过来玩玩 于 2021-10-31 03:03 编辑 
+
+111
+
+

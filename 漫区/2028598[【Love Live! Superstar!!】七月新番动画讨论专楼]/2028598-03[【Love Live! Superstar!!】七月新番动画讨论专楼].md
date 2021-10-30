@@ -11231,3 +11231,25 @@ mmy在2nd那会儿就又跳又打又唱，连着好几首revue曲，那确实是
 啊鲤鱼读Catch you catch me的是catch（英文）不是キャッチ，笑死了
 
 
+
+
+*****
+
+####  中野四葉  
+##### 3978#       发表于 2021-10-31 01:49
+
+
+看录像感觉五人曲的时候，观众席里可可的灯相当少？很多蓝的其实看起来像是恋的灯<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">香音的灯压倒性的多倒是不奇怪
+
+
+*****
+
+####  lj205  
+##### 3979#       发表于 2021-10-31 02:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53347401&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-31 01:49</a>
+看录像感觉五人曲的时候，观众席里可可的灯相当少？很多蓝的其实看起来像是恋的灯香音的灯压倒性的 ...</blockquote>
+这场多少好点，没个人回老当陪衬还是吃亏的
+
+
