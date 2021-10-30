@@ -11713,3 +11713,23 @@ syl 别哭了，当我rp吧<img src="https://static.saraba1st.com/image/smiley/f
 昨天文静转的 那个手书二创 [https://www.bilibili.com/video/BV19b4y1h75B](https://www.bilibili.com/video/BV19b4y1h75B) 底下，有tx**官号今天上午发的回复：“好好好，绷不住了”
 
 
+
+
+*****
+
+####  憧憬鲨  
+##### 985#       发表于 2021-10-30 14:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">一想今天五个人被抓起来开了一上午会，又有点可怜又有点想笑
+
+
+*****
+
+####  小憨1  
+##### 986#       发表于 2021-10-30 14:24
+
+
+艾队今天电台解放天性了，看来千鸟真的💊了
+
+
