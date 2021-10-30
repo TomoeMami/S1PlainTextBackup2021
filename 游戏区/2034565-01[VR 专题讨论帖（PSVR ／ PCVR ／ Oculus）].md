@@ -1120,3 +1120,69 @@ Rift S 有些老而且官方基本都不管了，如果只考虑 PCVR，还是�
 再买一个quest2，因为现在quest2和pc vr等于ns和次世代主机一样的关系，两者走的不同路线，以后oculus的独占会越来越多
 
 
+
+
+*****
+
+####  bypass  
+##### 63#         楼主| 发表于 2021-10-30 15:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53339303&amp;ptid=2034565" target="_blank">frankCC 发表于 2021-10-30 14:33</a>
+
+希望oc官方的人和我理解的3A是一个东西，多的不要求，至少得是原生pcvr游戏吧，一体机那移动处理器都能跑 ...</blockquote>
+Lone Echo II 应该是 Oculus 家最后的 PCVR 原生游戏了，热度和官方宣传力度完全不及几乎同期的生化 4 VR。
+
+
+Ready at Dawn 最后连多语言支持都做不出来，发的推文让我有种<strong>游戏能发售都算是尽力了</strong>的感觉。原本是画面标杆的一个组，不知道以后去向如何了…
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/154959na4wfa7zmybmkmrc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (103.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 15:49 上传
+
+
+我觉得 Oculus 眼中的 3A 大概是生化 4 这种吧，老 3A 勉强也算 3A 吧。
+
+
+*****
+
+####  bypass  
+##### 64#         楼主| 发表于 2021-10-30 15:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53339303&amp;ptid=2034565" target="_blank">frankCC 发表于 2021-10-30 14:33</a>
+
+希望oc官方的人和我理解的3A是一个东西，多的不要求，至少得是原生pcvr游戏吧，一体机那移动处理器都能跑 ...</blockquote>
+--- 重复发帖了，编辑掉。
+
+
+*****
+
+####  魔法酪饼  
+##### 65#       发表于 2021-10-30 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53324959&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-10-29 11:37</a>
+
+总结一下10月份这一大批拉胯的发布会新品</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">索尼那个手机盒子又不带集成电路，直接叫塑料垃圾不好吗
+
+
+*****
+
+####  魔法酪饼  
+##### 66#       发表于 2021-10-30 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53327557&amp;ptid=2034565" target="_blank">Karin11974 发表于 2021-10-29 15:00</a>
+
+现在用index，需要升级吗？哪个能一步到位？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">完全不需要，但小扎的一体机独占建议还是玩一玩，生化4VR强无敌
+
+
