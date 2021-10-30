@@ -6080,3 +6080,92 @@ P唱具足虫很欢乐，但后面4个人的表情也太逗了，4人4表情，�
 快来了，dokidoki<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 3475#       发表于 2021-10-30 16:05
+
+
+好紧张啊
+
+
+*****
+
+####  cybernetics31  
+##### 3476#       发表于 2021-10-30 16:07
+
+
+顺利，顺利<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3477#       发表于 2021-10-30 16:10
+
+
+待机了，是说这1080p感觉有点糊啊，都是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3478#       发表于 2021-10-30 16:17
+
+
+一直在画面撕裂啊怎么
+
+
+*****
+
+####  中野四葉  
+##### 3479#       发表于 2021-10-30 16:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">梯子快没流量了，直连1080p卡爆，只能看别人转播了
+
+
+*****
+
+####  chenflyyy  
+##### 3480#       发表于 2021-10-30 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340333&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-10-30 16:17</a>
+一直在画面撕裂啊怎么</blockquote>
+我也是有这个问题，在nga看到说好像只有广告会这样
+
+
+
+
+*****
+
+####  离心  
+##### 3481#       发表于 2021-10-30 16:22
+
+
+星团加油啊!
+
+
+*****
+
+####  cybernetics31  
+##### 3482#       发表于 2021-10-30 16:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340333&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-10-30 16:17</a>
+一直在画面撕裂啊怎么</blockquote>
+一直都这样…………广告日常…………
+
+
+*****
+
+####  稀勢のささ  
+##### 3483#       发表于 2021-10-30 16:25
+
+
+1080都有点糊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是码率开的低吗
+
+

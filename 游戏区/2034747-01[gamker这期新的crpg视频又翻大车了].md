@@ -671,3 +671,31 @@ CRPG以前在中国都有正版卖吧，我记得书店里看到过无冬和冰�
 「仁王2系统拥肿，建议做减法」这句话现在还有人同意吗？
 
 
+
+
+*****
+
+####  wzh5555  
+##### 65#       发表于 2021-10-30 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340210&amp;ptid=2034747" target="_blank">s1mic 发表于 2021-10-30 16:04</a>
+
+「仁王2系统拥肿，建议做减法」这句话现在还有人同意吗？</blockquote>
+要看系统指的什么，如果说刷刷刷、垃圾词条这种单纯拉长游戏时间的部分，确实应该做减法。
+
+而战斗系统，没什么要做减的，尤其是武技应该做加法或者创新。
+
+
+*****
+
+####  电风扇  
+##### 66#       发表于 2021-10-30 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340110&amp;ptid=2034747" target="_blank">酷乐 发表于 2021-10-30 15:54</a>
+
+一直都有啊，这些就是我在书店或软件店买的：</blockquote>
+这个无冬之夜这么贵的吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">？我记得当时这种包装都是在30~60这个价位的
+
+
