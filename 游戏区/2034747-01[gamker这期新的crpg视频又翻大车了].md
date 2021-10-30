@@ -1698,3 +1698,18 @@ lunamos也不是测评/杂谈类型的吧，至于有水平的测评我更倾向
 狗蛋的评测十分钟就能说个七七八八，gamker的视频水个三十分钟都扯不明白
 
 
+
+
+*****
+
+####  满满一大杯  
+##### 148#       发表于 2021-10-31 01:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346644&amp;ptid=2034747" target="_blank">Quelaan 发表于 2021-10-31 00:32</a>
+排这么多雷，那么有没有真有水平的游戏测评/杂谈类up推荐啊
+
+能有S1指定lunamos老师一半水平就行 ...</blockquote>
+我觉得可以看看“卡姐Cara”的翻译视频，虽然不能算杂谈，但有些内容也会被杂谈视频引用……然后挑感兴趣的追去油管看作者的其他视频。
+
+
