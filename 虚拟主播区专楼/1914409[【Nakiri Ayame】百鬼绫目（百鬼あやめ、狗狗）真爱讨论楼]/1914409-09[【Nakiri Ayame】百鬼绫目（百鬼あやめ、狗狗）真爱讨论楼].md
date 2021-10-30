@@ -16355,3 +16355,15 @@ lol都是绫总不懂事，打着玩的
 懂不懂4ch最讨厌的日v的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13380#       发表于 2021-10-30 16:36
+
+
+EN二期的黑肉不过17天没开就被4chan说是EN绫总了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://boards.4channel.org/vt/thread/12188643#p12193760](https://boards.4channel.org/vt/thread/12188643#p12193760)
+
+

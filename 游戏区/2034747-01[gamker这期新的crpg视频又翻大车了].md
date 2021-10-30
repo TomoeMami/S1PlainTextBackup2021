@@ -699,3 +699,87 @@ CRPG以前在中国都有正版卖吧，我记得书店里看到过无冬和冰�
 这个无冬之夜这么贵的吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">？我记得当时这种包装都是在30~60这个价位的
 
 
+
+
+*****
+
+####  精钢魔像  
+##### 67#       发表于 2021-10-30 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340416&amp;ptid=2034747" target="_blank">电风扇 发表于 2021-10-30 16:22</a>
+
+这个无冬之夜这么贵的吗？我记得当时这种包装都是在30~60这个价位的
+
+ ...</blockquote>
+无冬是贵一点
+
+星空时的铁盒版我记得也是100出头
+
+
+*****
+
+####  酷乐  
+##### 68#       发表于 2021-10-30 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340416&amp;ptid=2034747" target="_blank">电风扇 发表于 2021-10-30 16:22</a>
+
+这个无冬之夜这么贵的吗？我记得当时这种包装都是在30~60这个价位的
+
+ ...</blockquote>
+这是三合一的豪华版，里面有3个CDKEY，有了它我才能联机玩。
+
+
+*****
+
+####  真实之影  
+##### 69#       发表于 2021-10-30 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340416&amp;ptid=2034747" target="_blank">电风扇 发表于 2021-10-30 16:22</a>
+
+这个无冬之夜这么贵的吗？我记得当时这种包装都是在30~60这个价位的
+
+ ...</blockquote>
+无冬国内的初版就不便宜，盒子也不太一样
+
+星空时期主要是出了好几种不同版本，后面加个也有下来的
+
+
+*****
+
+####  FLighT  
+##### 70#       发表于 2021-10-30 17:01
+
+
+竟然没有真爱楼 看来还是不咋火
+
+
+*****
+
+####  back57992  
+##### 71#       发表于 2021-10-30 17:04
+
+
+又做视频 又做游戏  哪里有那么多头发的呢。
+
+
+*****
+
+####  ff2077  
+##### 72#       发表于 2021-10-30 17:06
+
+
+建议开个真爱楼批判批判
+
+
+*****
+
+####  iamsolowingpixy  
+##### 73#       发表于 2021-10-30 17:07
+
+
+之前这节目评价仁王2那期我就不敢苟同 一看就是没掌握系统精髓 玩了几章随意胡诌出来的结论
+
+

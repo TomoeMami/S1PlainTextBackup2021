@@ -6169,3 +6169,503 @@ P唱具足虫很欢乐，但后面4个人的表情也太逗了，4人4表情，�
 1080都有点糊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是码率开的低吗
 
 
+
+
+*****
+
+####  lj205  
+##### 3484#       发表于 2021-10-30 16:28
+
+
+开始了吗开始了吗
+
+
+*****
+
+####  chenflyyy  
+##### 3485#       发表于 2021-10-30 16:30
+
+
+你们开始了吗，我这边怎么还没开始？
+
+
+*****
+
+####  cybernetics31  
+##### 3486#       发表于 2021-10-30 16:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">e➕算码率高的了
+
+
+*****
+
+####  chenflyyy  
+##### 3487#       发表于 2021-10-30 16:31
+
+
+开始了，这场馆舞台感觉好小啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3488#       发表于 2021-10-30 16:31
+
+
+要来了
+
+
+*****
+
+####  Arccueid  
+##### 3489#       发表于 2021-10-30 16:31
+
+
+开了开了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  中野四葉  
+##### 3490#       发表于 2021-10-30 16:33
+
+
+这场子原来这么小吗
+
+
+*****
+
+####  iuhehc  
+##### 3491#       发表于 2021-10-30 16:33
+
+
+场子看起来好小
+
+
+*****
+
+####  Arccueid  
+##### 3492#       发表于 2021-10-30 16:34
+
+
+舞台确实很小
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 3493#       发表于 2021-10-30 16:36
+
+
+开始后好像就没那么糊了，比广告时好不少
+
+
+*****
+
+####  iuhehc  
+##### 3494#       发表于 2021-10-30 16:36
+
+
+开始了
+
+
+*****
+
+####  Arccueid  
+##### 3495#       发表于 2021-10-30 16:38
+
+
+今天大家的妆容都好好看..
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  iuhehc  
+##### 3496#       发表于 2021-10-30 16:38
+
+
+没想到1080p都这么糊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  AlfredXC  
+##### 3497#       发表于 2021-10-30 16:40
+
+
+鲤鱼声音好小
+
+
+
+
+*****
+
+####  cybernetics31  
+##### 3498#       发表于 2021-10-30 16:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这裙子转起来就是好看
+
+
+*****
+
+####  秋月艾莉  
+##### 3499#       发表于 2021-10-30 16:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">大家都美得呕吐
+
+
+*****
+
+####  Arccueid  
+##### 3500#       发表于 2021-10-30 16:44
+
+
+payton好稳的mc
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Norkey1  
+##### 3501#       发表于 2021-10-30 16:44
+
+
+肉眼可见紧张
+
+
+*****
+
+####  优妮可  
+##### 3502#       发表于 2021-10-30 16:44
+
+
+太棒了
+
+
+*****
+
+####  稀勢のささ  
+##### 3503#       发表于 2021-10-30 16:46
+
+
+完了 鲨鱼林笑起来鲨我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3504#       发表于 2021-10-30 16:46
+
+
+第一次有观众live紧张也正常
+
+
+*****
+
+####  cybernetics31  
+##### 3505#       发表于 2021-10-30 16:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">鲤鱼吐槽
+
+
+*****
+
+####  Arccueid  
+##### 3506#       发表于 2021-10-30 16:48
+
+
+紧张很正常，第一场能撑住后面就好了。不过那么多场真的有点过分了..
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  lj205  
+##### 3507#       发表于 2021-10-30 16:48
+
+
+鲤鱼今天好漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 3508#       发表于 2021-10-30 16:48
+
+
+ねこじゃん 指狮子
+
+
+*****
+
+####  後藤正文  
+##### 3509#       发表于 2021-10-30 16:50
+
+
+鲤宝今天好美<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  megapikachu  
+##### 3510#       发表于 2021-10-30 16:50
+
+
+前两首歌都没翻车
+
+
+
+
+*****
+
+####  秋月艾莉  
+##### 3511#       发表于 2021-10-30 16:50
+
+
+pay酱声音有点抖，用情绪高涨掩盖紧张wwwwww
+
+
+*****
+
+####  lj205  
+##### 3512#       发表于 2021-10-30 16:50
+
+
+相声
+
+
+*****
+
+####  chenflyyy  
+##### 3513#       发表于 2021-10-30 16:51
+
+
+草，太好听了吧
+
+
+*****
+
+####  iuhehc  
+##### 3514#       发表于 2021-10-30 16:51
+
+
+太好听了吧！
+
+
+*****
+
+####  lj205  
+##### 3515#       发表于 2021-10-30 16:52
+
+
+有人戴那个手套吗好奇
+
+
+*****
+
+####  cybernetics31  
+##### 3516#       发表于 2021-10-30 16:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鲤鱼这自我介绍……………………
+
+
+*****
+
+####  a92063256  
+##### 3517#       发表于 2021-10-30 16:52
+
+
+小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3518#       发表于 2021-10-30 16:52
+
+
+吓了我一跳
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  秋月艾莉  
+##### 3519#       发表于 2021-10-30 16:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这短剧，我当可香糖恰了
+
+md下一个是汉堡肉hhhhhhhh
+
+
+*****
+
+####  ads147147  
+##### 3520#       发表于 2021-10-30 16:52
+
+
+还在加班的头疼😩
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  绯想alter2nd  
+##### 3521#       发表于 2021-10-30 16:52
+
+
+什么名场面复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3522#       发表于 2021-10-30 16:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">汉堡过不去了
+
+
+*****
+
+####  蜜梨柑  
+##### 3523#       发表于 2021-10-30 16:53
+
+
+鲤鱼这MC挺好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3524#       发表于 2021-10-30 16:54
+
+
+被指了！
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 3525#       发表于 2021-10-30 16:54
+
+
+草，nagi又整活
+
+
+*****
+
+####  cybernetics31  
+##### 3526#       发表于 2021-10-30 16:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青山笑死
+
+
+*****
+
+####  iuhehc  
+##### 3527#       发表于 2021-10-30 16:55
+
+
+哈哈哈哈哈哈哈
+
+
+*****
+
+####  Arccueid  
+##### 3528#       发表于 2021-10-30 16:56
+
+
+第三首果然是这个
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  megapikachu  
+##### 3529#       发表于 2021-10-30 16:56
+
+
+这肯定是外星人自己想的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3530#       发表于 2021-10-30 16:56
+
+
+鲤鱼刚刚是不是坐下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3531#       发表于 2021-10-30 16:59
+
+
+鲨鱼林后半跟开头比支棱起来了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  megapikachu  
+##### 3532#       发表于 2021-10-30 17:00
+
+
+小百合顶住了
+
+
+*****
+
+####  Arccueid  
+##### 3533#       发表于 2021-10-30 17:00
+
+
+开头就清唱考验是吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  lj205  
+##### 3534#       发表于 2021-10-30 17:00
+
+
+鲤鱼还能坐着歇会～
+
+
+*****
+
+####  稀勢のささ  
+##### 3535#       发表于 2021-10-30 17:00
+
+
+草 真有个椅子
+
+

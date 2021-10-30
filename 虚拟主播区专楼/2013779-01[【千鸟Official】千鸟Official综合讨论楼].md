@@ -11824,3 +11824,33 @@ syl 别哭了，当我rp吧<img src="https://static.saraba1st.com/image/smiley/f
 因为马文静的“过错”，让你们一起受罚！以后好好看住这个小婊砸！<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">自尊心那么强的二姨从此被孤立、被切割、被yygq、被不喂白米饭吃……
 
 
+
+
+*****
+
+####  憧憬鲨  
+##### 994#       发表于 2021-10-30 16:56
+
+
+ 本帖最后由 憧憬鲨 于 2021-10-30 17:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">coco：我从一开始就不怎么积极
+
+昨天几个人聊了一整夜
+
+没人见到文静？是呀
+
+ 见一面少一面了？不是一开始开播的时候就见一面少一面吗，像我这种悲观的人
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">静姨也被绑上电椅了
+
+
+*****
+
+####  IDIDIDID  
+##### 995#       发表于 2021-10-30 17:01
+
+
+我已经在想象文静被NCRA ban两年不许套皮又拉不下脸开摄像头只好转职做皮套人幕后运营天天按着手底下小姑娘的头去这里吸血去那里锐评然后还很奇怪怎么现在的小姑娘被弹幕冲几次就受不了了的世界线了。
+
+
