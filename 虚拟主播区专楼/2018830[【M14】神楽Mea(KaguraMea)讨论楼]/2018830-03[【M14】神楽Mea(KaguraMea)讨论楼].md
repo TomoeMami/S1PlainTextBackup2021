@@ -15906,3 +15906,38 @@ tc播了
 明天怎么过哦
 
 
+
+
+*****
+
+####  依旧ing  
+##### 4377#       发表于 2021-10-30 23:55
+
+
+ 本帖最后由 依旧ing 于 2021-10-31 00:02 编辑 
+
+koyori好像要去追梦当cv去了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+大概再播两个月
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  2014720  
+##### 4378#       发表于 2021-10-30 23:56
+
+
+如月我的如月
+
+
+*****
+
+####  雪风utopia  
+##### 4379#       发表于 2021-10-30 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+

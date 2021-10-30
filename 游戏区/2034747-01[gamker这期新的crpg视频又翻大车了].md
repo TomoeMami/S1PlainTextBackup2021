@@ -1537,3 +1537,44 @@ solasta，dnd5e的走格子
 把我笑到了，之前柱2和极乐迪斯科的时候就看透了，只会说些浅层的东西或者是死往一个方向拐
 
 
+
+
+*****
+
+####  Dgnic_  
+##### 136#       发表于 2021-10-30 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343678&amp;ptid=2034747" target="_blank">真实之影 发表于 2021-10-30 20:35</a>
+@MadcatClan
+
+来来来，群众要公审你了</blockquote>
+点开一看，这是真笑喷了：
+
+<img src="https://p.sda1.dev/3/85de29462f6ec8e47fef18ab34cdbae7/IMG_CMP_139267980.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 电磁炮233| + 1|蚌埠住了|
+
+
+查看全部评分
+
+
+*****
+
+####  asergh0630rx  
+##### 137#       发表于 2021-10-31 00:02
+
+
+已经下架道歉了
+
+

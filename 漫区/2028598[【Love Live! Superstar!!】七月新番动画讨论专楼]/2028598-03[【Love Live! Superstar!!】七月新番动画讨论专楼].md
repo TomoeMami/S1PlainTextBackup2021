@@ -11000,3 +11000,149 @@ mmy在2nd那会儿就又跳又打又唱，连着好几首revue曲，那确实是
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  lj205  
+##### 3961#       发表于 2021-10-30 23:41
+
+
+先别开新楼吧？跟狗叔反应一下翻页问题
+
+
+*****
+
+####  中野四葉  
+##### 3962#       发表于 2021-10-30 23:47
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/234637rlx0zuhlooq0u9q6.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (219.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 23:46 上传
+
+
+あs老师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 3963#       发表于 2021-10-30 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345987&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-10-30 23:41</a>
+
+我的图图呢？图图在哪里
+
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202110/30/234833i9kdxzdnn9eeneqa.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (113.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 23:48 上传
+
+
+*****
+
+####  中野四葉  
+##### 3964#       发表于 2021-10-30 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53345991&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-30 23:41</a>
+
+先别开新楼吧？跟狗叔反应一下翻页问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页bug你找管理员也没用
+
+
+*****
+
+####  stygian  
+##### 3965#       发表于 2021-10-30 23:51
+
+
+鲤鱼毕竟年纪大了。。跳舞动作赶拍很明显，硬邦邦的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3966#       发表于 2021-10-30 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346110&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-30 23:48</a></blockquote>
+好腋<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 3967#       发表于 2021-10-30 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346087&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-10-30 23:47</a>
+
+あs老师</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">あs老师好损哦
+
+
+*****
+
+####  优妮可  
+##### 3968#       发表于 2021-10-30 23:56
+
+
+以前没练过跳舞的话，身体硬正常
+
+
+*****
+
+####  中野四葉  
+##### 3969#       发表于 2021-10-31 00:03
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/000329lywxwww9fnynwcxn.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (15.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 00:03 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 3970#       发表于 2021-10-31 00:12
+
+
+反正楼高挺好的，看起来有气势
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 3971#       发表于 2021-10-31 00:13
+
+
+话说拉拉楼怎么老出问题呀？隔壁寒蝉楼都那么高都没什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
