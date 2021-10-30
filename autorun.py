@@ -20,11 +20,13 @@ def parse_html(html,threadict):
             levels = re.search(r'\d{1,5}</a></span>',str(i))
             threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
             if levels:
-                level = re.sub(r'</a></span>','',str(levels.group(0)))
-                lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
-                replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
-                if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
-                    threadict[threadid] = replytime
+                #在这里进行是否添加的检查
+                if(int(threadid) > old_number):
+                    level = re.sub(r'</a></span>','',str(levels.group(0)))
+                    lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
+                    replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
+                    if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
+                        threadict[threadid] = replytime
     # replylist = soup.find_all(name="td", attrs={"class":"t_f"})
     # replylist = soup.find_all(name='div', attrs={"class":"pcb"})
     # # next_page = soup.find('a', attrs={'class': 'nxt'})
