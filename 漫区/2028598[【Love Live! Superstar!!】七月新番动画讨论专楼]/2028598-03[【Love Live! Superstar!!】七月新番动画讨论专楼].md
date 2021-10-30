@@ -6051,3 +6051,21 @@ P唱具足虫很欢乐，但后面4个人的表情也太逗了，4人4表情，�
 嗯？一早起来有种年三十的兴奋感是怎么回事？
 
 
+
+
+*****
+
+####  qratosone  
+##### 3473#       发表于 2021-10-30 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53336305&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-10-30 08:32</a>
+访谈几个字幕组都有发，贴吧也有。
+
+
+说四个人是因为青山真的和恋搭不怎么上关系，青山学古典芭蕾，恋是花 ...</blockquote>
+弹钢琴的设定在动画里保留了，第九集提过，不过确实不突出
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

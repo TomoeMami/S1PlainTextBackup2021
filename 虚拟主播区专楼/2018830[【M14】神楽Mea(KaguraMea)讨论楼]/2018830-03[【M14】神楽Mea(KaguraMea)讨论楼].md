@@ -15670,3 +15670,16 @@ et看完了可以repo一下嘛，我点了第十八个踩就去睡觉了
 <img src="https://img.saraba1st.com/forum/202110/30/140421upxo7pxffr9xnqx9.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 4366#       发表于 2021-10-30 14:48
+
+
+我欲斩尽世间偶像，天下再无正统
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

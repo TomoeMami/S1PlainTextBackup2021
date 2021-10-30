@@ -11807,3 +11807,20 @@ syl 别哭了，当我rp吧<img src="https://static.saraba1st.com/image/smiley/f
 给发工资就存在，TX不缺这点钱，缺观众流量。
 
 
+
+
+*****
+
+####  伞沢直美  
+##### 993#       发表于 2021-10-30 14:49
+
+
+ 本帖最后由 伞沢直美 于 2021-10-30 14:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53339368&amp;ptid=2013779" target="_blank">tankai 发表于 2021-10-30 14:39</a>
+
+为什么要打五个？不是就文静一个嘴巴大么？</blockquote>
+连坐，分化<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+因为马文静的“过错”，让你们一起受罚！以后好好看住这个小婊砸！<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">自尊心那么强的二姨从此被孤立、被切割、被yygq、被不喂白米饭吃……
+
+
