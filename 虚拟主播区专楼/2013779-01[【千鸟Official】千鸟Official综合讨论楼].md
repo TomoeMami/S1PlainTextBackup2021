@@ -11613,3 +11613,25 @@ syl 别哭了，当我rp吧<img src="https://static.saraba1st.com/image/smiley/f
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  憧憬鲨  
+##### 977#       发表于 2021-10-30 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53337325&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-10-30 10:51</a>
+如果文静是大学刚毕业，那到底是什么时候在地下室当北京漂的呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕业一两年吧，也有可能两三年，漂了两三年呗
+
+
+*****
+
+####  逸yi  
+##### 978#       发表于 2021-10-30 11:14
+
+
+她不是还在外面碰壁回老家上了一段时间班吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
