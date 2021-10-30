@@ -1598,3 +1598,64 @@ solasta，dnd5e的走格子
 去看了眼他家《deathloop》的视频，真就20分钟废话，唯一有效信息就是他们没玩过prey，露怯到几乎连提都不敢提。
 
 
+
+
+*****
+
+####  makar0601  
+##### 140#       发表于 2021-10-31 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346048&amp;ptid=2034747" target="_blank">Dgnic_ 发表于 2021-10-30 23:44</a>
+点开一看，这是真笑喷了：</blockquote>
+不会是本人吧
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Quelaan  
+##### 141#       发表于 2021-10-31 00:32
+
+
+排这么多雷，那么有没有真有水平的游戏测评/杂谈类up推荐啊
+
+能有S1指定lunamos老师一半水平就行<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电磁炮233  
+##### 142#       发表于 2021-10-31 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53346644&amp;ptid=2034747" target="_blank">Quelaan 发表于 2021-10-31 00:32</a>
+排这么多雷，那么有没有真有水平的游戏测评/杂谈类up推荐啊
+
+能有S1指定lunamos老师一半水平就行 ...</blockquote>
+lunamos也不是测评/杂谈类型的吧，至于有水平的测评我更倾向于看某个类型或者系列专精的up，如果是为了蹭热度什么游戏都评的那种基本没有质量
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  嘉术2015  
+##### 143#       发表于 2021-10-31 00:39
+
+
+ 本帖最后由 嘉术2015 于 2021-10-31 00:41 编辑 
+
+答案是…没有，专业性，覆盖面，个性就是三选二的过程
+
+
+*****
+
+####  Eric_方歌阙  
+##### 144#       发表于 2021-10-31 00:41
+
+
+完全客观准确的不可能存在，换个思路，就找完全主观的，比如游戏驴子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
