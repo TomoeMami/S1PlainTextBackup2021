@@ -11733,3 +11733,77 @@ syl 别哭了，当我rp吧<img src="https://static.saraba1st.com/image/smiley/f
 艾队今天电台解放天性了，看来千鸟真的💊了
 
 
+
+
+*****
+
+####  tankai  
+##### 987#       发表于 2021-10-30 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53337693&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-30 11:32</a>
+
+文静本科毕业之后逐梦演艺圈，期间在北京地下室度过了几个月难忘的吸尾气生活，期间也去赶场参加各种选拔和 ...</blockquote>
+还是原创？
+
+
+*****
+
+####  tankai  
+##### 988#       发表于 2021-10-30 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53338064&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-10-30 12:06</a>
+
+一上午五个人一个动态都没有，运营哥哥轻点打</blockquote>
+为什么要打五个？不是就文静一个嘴巴大么？
+
+
+*****
+
+####  魔法少女大头  
+##### 989#       发表于 2021-10-30 14:41
+
+
+说不定文静挨大嘴巴子时候，几个妹妹进来哭唧唧“别打姐姐了，姐姐都是为了我们好”，然后就一起挨大嘴巴子。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  丢了五块钱  
+##### 990#       发表于 2021-10-30 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53339226&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-10-30 14:24</a>
+艾队今天电台解放天性了，看来千鸟真的💊了</blockquote>
+那天卧槽之后就这样了吧，人设蚌埠住了
+
+
+
+
+*****
+
+####  tankai  
+##### 991#       发表于 2021-10-30 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53339226&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-10-30 14:24</a>
+
+艾队今天电台解放天性了，看来千鸟真的💊了</blockquote>
+这是她本音吧，感觉比白白要轻一点
+
+
+*****
+
+####  tankai  
+##### 992#       发表于 2021-10-30 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53337299&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-10-30 10:49</a>
+
+企划都寄了竞业协议还继续生效吗?</blockquote>
+给发工资就存在，TX不缺这点钱，缺观众流量。
+
+
