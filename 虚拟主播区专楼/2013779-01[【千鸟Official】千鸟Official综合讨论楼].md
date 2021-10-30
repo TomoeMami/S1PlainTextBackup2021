@@ -11425,3 +11425,20 @@ V圈观众是定量的。V越多分的羹就越多。千鸟死了，这批观众
 腾讯的变动感觉跟美股爆炒元宇宙有关吧
 
 
+
+
+*****
+
+####  袜子  
+##### 960#       发表于 2021-10-30 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53336189&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-30 08:10</a>
+“那我们今天的直播就到这里了，文静在这里祝大家早安、午安、晚安，那我们就之后再见啦，拜拜”
+
+看着屏幕 ...</blockquote>
+莫子真是😭我哭死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
