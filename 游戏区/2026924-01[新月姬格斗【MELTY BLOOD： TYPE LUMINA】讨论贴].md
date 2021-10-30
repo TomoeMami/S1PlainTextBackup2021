@@ -4253,3 +4253,17 @@ ps端感觉还是能匹配到挺多人的，果然纯自闭玩家只能买ps
 这作用什么招磨血可以把人磨死呀
 
 
+
+
+*****
+
+####  猫坤  
+##### 344#         楼主| 发表于 2021-10-30 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53338786&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2021-10-30 13:27</a>
+
+这作用什么招磨血可以把人磨死呀</blockquote>
+他们家的游戏从旧MB开始就没有磨血磨死人的设计
+
+

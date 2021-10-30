@@ -6669,3 +6669,513 @@ md下一个是汉堡肉hhhhhhhh
 草 真有个椅子
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3536#       发表于 2021-10-30 17:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">惊了，solo？
+
+
+*****
+
+####  Arccueid  
+##### 3537#       发表于 2021-10-30 17:02
+
+
+一个人顶住了让队友休息，这就是立德吧
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 3538#       发表于 2021-10-30 17:02
+
+
+sayurin真棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3539#       发表于 2021-10-30 17:02
+
+
+我靠自己唱完
+
+
+*****
+
+####  a92063256  
+##### 3540#       发表于 2021-10-30 17:04
+
+
+还以为她们换衣服去了
+
+
+
+
+*****
+
+####  lj205  
+##### 3541#       发表于 2021-10-30 17:04
+
+
+靠这下楼梯
+
+
+*****
+
+####  蜜梨柑  
+##### 3542#       发表于 2021-10-30 17:04
+
+
+3人版123还行
+
+
+*****
+
+####  lj205  
+##### 3543#       发表于 2021-10-30 17:05
+
+
+鲤鱼挺稳的，坚持住
+
+
+*****
+
+####  a92063256  
+##### 3544#       发表于 2021-10-30 17:07
+
+
+nako回眸<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3545#       发表于 2021-10-30 17:08
+
+
+来了吗！小星星！？
+
+
+*****
+
+####  lj205  
+##### 3546#       发表于 2021-10-30 17:08
+
+
+鲤鱼和打铁刚才的对视<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3547#       发表于 2021-10-30 17:08
+
+
+幕间就放动画片段吗，还以为会有新的动画什么的，话说这是小星星要来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3548#       发表于 2021-10-30 17:08
+
+
+要唱小星星吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Norkey1  
+##### 3549#       发表于 2021-10-30 17:09
+
+
+草啊
+
+
+*****
+
+####  cybernetics31  
+##### 3550#       发表于 2021-10-30 17:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要来了要来了
+
+
+*****
+
+####  lucksolo  
+##### 3551#       发表于 2021-10-30 17:10
+
+
+会换打歌服吗
+
+
+*****
+
+####  lj205  
+##### 3552#       发表于 2021-10-30 17:10
+
+
+换衣服去了估计这么久
+
+
+*****
+
+####  chenflyyy  
+##### 3553#       发表于 2021-10-30 17:10
+
+
+应该会吧，这时间就是给去换衣服的
+
+
+*****
+
+####  稀勢のささ  
+##### 3554#       发表于 2021-10-30 17:10
+
+
+导 演 剪 辑 版
+
+
+*****
+
+####  a92063256  
+##### 3555#       发表于 2021-10-30 17:10
+
+
+鲤鱼和小百合现在应该正在像赛车换轮胎一样换衣服
+
+
+*****
+
+####  Arccueid  
+##### 3556#       发表于 2021-10-30 17:10
+
+
+幕间就放动画还行，该小星星了吧！
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  优妮可  
+##### 3557#       发表于 2021-10-30 17:11
+
+
+久一点让小百合休息一下，连唱太可怕了
+
+
+*****
+
+####  cybernetics31  
+##### 3558#       发表于 2021-10-30 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer"> kuuuuuukaaaaaa
+
+
+*****
+
+####  中野四葉  
+##### 3559#       发表于 2021-10-30 17:12
+
+
+好长の播片
+
+
+*****
+
+####  AlfredXC  
+##### 3560#       发表于 2021-10-30 17:12
+
+
+要来了
+
+
+*****
+
+####  iuhehc  
+##### 3561#       发表于 2021-10-30 17:13
+
+
+要来了
+
+
+*****
+
+####  lj205  
+##### 3562#       发表于 2021-10-30 17:13
+
+
+来了来了！！！！
+
+
+*****
+
+####  千千千千鸟  
+##### 3563#       发表于 2021-10-30 17:13
+
+
+要来了要来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3564#       发表于 2021-10-30 17:13
+
+
+可香可香可香<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">是说这段真人来更好吧
+
+
+*****
+
+####  秋月艾莉  
+##### 3565#       发表于 2021-10-30 17:13
+
+
+小星星！小星星！
+
+高低差！高低差！
+
+
+*****
+
+####  Arccueid  
+##### 3566#       发表于 2021-10-30 17:14
+
+
+哈哈这个身高差
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  AlfredXC  
+##### 3567#       发表于 2021-10-30 17:14
+
+
+这身高差，也太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3568#       发表于 2021-10-30 17:14
+
+
+这身高差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3569#       发表于 2021-10-30 17:14
+
+
+OHHHHHHHHHH
+
+
+*****
+
+####  优妮可  
+##### 3570#       发表于 2021-10-30 17:15
+
+
+没蚌住
+
+
+
+
+*****
+
+####  千千千千鸟  
+##### 3571#       发表于 2021-10-30 17:15
+
+
+这超低角度仰拍把俩人身高拍一样了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3572#       发表于 2021-10-30 17:15
+
+
+完整版！完整版！
+
+
+*****
+
+####  cybernetics31  
+##### 3573#       发表于 2021-10-30 17:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼好大
+
+
+*****
+
+####  Norkey1  
+##### 3574#       发表于 2021-10-30 17:15
+
+
+好好好好好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 3575#       发表于 2021-10-30 17:15
+
+
+草这个合手真没蚌住<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3576#       发表于 2021-10-30 17:16
+
+
+草小百合得把手伸直了才能和鲤鱼击掌
+
+
+*****
+
+####  chenflyyy  
+##### 3577#       发表于 2021-10-30 17:18
+
+
+nako好可爱啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 3578#       发表于 2021-10-30 17:18
+
+
+第六集的衣服做出来还挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3579#       发表于 2021-10-30 17:18
+
+
+手臂比星星的时候还是绷不住了
+
+
+*****
+
+####  chenflyyy  
+##### 3580#       发表于 2021-10-30 17:18
+
+
+nako好可爱啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3581#       发表于 2021-10-30 17:18
+
+
+两人好涩气
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 3582#       发表于 2021-10-30 17:18
+
+
+nako好可爱啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3583#       发表于 2021-10-30 17:19
+
+
+鲤鱼太紧张了感觉她都要紧张到飞起来
+
+
+*****
+
+####  稀勢のささ  
+##### 3584#       发表于 2021-10-30 17:19
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/171906fhyntrzqwgnptttq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211030171547.png</strong> (29.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 17:19 上传
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3585#       发表于 2021-10-30 17:20
+
+
+佩佩好稳！
+
+
+*****
+
+####  player3960  
+##### 3586#       发表于 2021-10-30 17:20
+
+
+这小星星的服装不对版啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有这身高差，太艹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 3587#       发表于 2021-10-30 17:20
+
+
+意外的身高差萌，梗又要起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是中间小星星对上太好了
+
+
+*****
+
+####  chenflyyy  
+##### 3588#       发表于 2021-10-30 17:20
+
+
+nako和pay这组合还是第一次见 sayurin终于可以歇一首歌了
+
+
