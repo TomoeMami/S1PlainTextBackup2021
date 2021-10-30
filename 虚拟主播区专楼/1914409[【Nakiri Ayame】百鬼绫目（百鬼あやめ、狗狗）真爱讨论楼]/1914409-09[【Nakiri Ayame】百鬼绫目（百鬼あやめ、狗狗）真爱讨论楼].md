@@ -16335,3 +16335,23 @@ lol都是绫总不懂事，打着玩的
 是该冲冲了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，绫总既然都单排了不如直接开播LOL不好吗，想上分像马自立和towa那样去抱个大腿啊
 
 
+
+
+*****
+
+####  夏小筱ss  
+##### 13378#       发表于 2021-10-30 15:36
+
+
+早该冲冲了
+
+
+*****
+
+####  OldGlory  
+##### 13379#       发表于 2021-10-30 15:39
+
+
+懂不懂4ch最讨厌的日v的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
