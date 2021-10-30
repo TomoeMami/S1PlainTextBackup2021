@@ -20,12 +20,11 @@ def parse_html(html,threadict):
             levels = re.search(r'\d{1,5}</a></span>',str(i))
             threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
             if levels:
-                if(int(threadid) > old_number):
-                    level = re.sub(r'</a></span>','',str(levels.group(0)))
-                    lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
-                    replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
-                    if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
-                        threadict[threadid] = replytime
+                level = re.sub(r'</a></span>','',str(levels.group(0)))
+                lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
+                replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
+                if(int(level) > 2) and ((int(time.time()) - replytime )< 1209600):
+                    threadict[threadid] = replytime
     # replylist = soup.find_all(name="td", attrs={"class":"t_f"})
     # replylist = soup.find_all(name='div', attrs={"class":"pcb"})
     # # next_page = soup.find('a', attrs={'class': 'nxt'})
@@ -48,6 +47,7 @@ def parse_html(html,threadict):
     # titles = '['+titles+']'
     # return namelist,replylist,total_page,titles
 if __name__ == '__main__':
+    blacklist = [2034763]
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
     with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
@@ -79,7 +79,7 @@ if __name__ == '__main__':
         ids = thdata.keys()
         for l in threadict.keys():
             if l in ids:
-                if(int(l) > old_number):
+                if(int(l) > old_number) and (int(l) not in blacklist):
                     thdata[l]['active'] = True
             else:
                 thdata[l] = {}

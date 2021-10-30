@@ -131,7 +131,9 @@ def FormatStr(namelist, replylist,totalreply):
     output = re.sub(r'\n{4,}','\n\n\n', output)
     lastreply = replynumber[-1]
     return output,lastreply
-with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
+
+
+with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
     cookie_str1 = f.read()
 cookie_str = repr(cookie_str1)[1:-1]
 # #把cookie字符串处理成字典，以便接下来使用
@@ -147,38 +149,34 @@ with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
 
 async def UpdateThread(threaddict,semaphore):
 # async def UpdateThread(threaddict):
-    async with semaphore:
-        try:
+    try:
+        async with semaphore:
             lastpage = threaddict['totalreply']//30
             async with aiohttp.ClientSession(headers=headers,cookies=cookies) as session:
                 url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
                 async with session.get(url,headers=headers) as response:
                     result = await response.content.read()
-        except Exception as e:
-            print(e)
-            print('error:id='+threaddict['id'])
-            pass
-    namelist, replylist,totalpage,newtitles= parse_html(result)
-    titles = threaddict['title']
-    thdata[threaddict['id']]['newtitle'] = newtitles
-    if(thdata[threaddict['id']]['title'] =='待更新'):
-        titles = newtitles
-    #采取增量更新后仅第一次更新标题
-    if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000 or totalpage == 1):
-        thdata[threaddict['id']]['active'] = False
-        filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
-        mkdir(filedir)
-        with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
-            f.write('1')
-    elif(totalpage >= lastpage):
-    # else:
-        if(totalpage > 50):
-            filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
+
+        namelist, replylist,totalpage,newtitles= parse_html(result)
+        titles = threaddict['title']
+        thdata[threaddict['id']]['newtitle'] = newtitles
+        if(thdata[threaddict['id']]['title'] =='待更新'):
+            titles = newtitles
+        #采取增量更新后仅第一次更新标题
+        if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000 or totalpage == 1):
+            thdata[threaddict['id']]['active'] = False
+            filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
             mkdir(filedir)
-        else:
-            filedir = rootdir+thdata[threaddict['id']]['category']+'/'
-        #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
-        try:
+            with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
+                f.write('1')
+        elif(totalpage >= lastpage):
+        # else:
+            if(totalpage > 50):
+                filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
+                mkdir(filedir)
+            else:
+                filedir = rootdir+thdata[threaddict['id']]['category']+'/'
+            #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
             conn =aiohttp.TCPConnector(limit=3)
             contentdict = {}
             async with semaphore:
@@ -209,11 +207,11 @@ async def UpdateThread(threaddict,semaphore):
                     thdata[threaddict['id']]['title'] = titles
                     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
-        except Exception as e:
-            print(e)
-            print('error:id='+threaddict['id'])
-
-            pass
+    except Exception as e:
+        with open(rootdir+'ErrorLog.txt','a',encoding='utf-8') as f:
+            f.write(str(e)+'\n')
+            f.write('!!error:id='+threaddict['id'])
+        pass
 
 
 
@@ -235,5 +233,6 @@ async def main():
 
 if __name__ == '__main__':
 
-
+    with open(rootdir+'ErrorLog.txt','w',encoding='utf-8') as f:
+        f.write(' ')
     asyncio.run(main())

@@ -8360,3 +8360,2181 @@ nagi这舞！
 那套不太健全被砍了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  寒风夜  
+##### 3713#       发表于 2021-10-30 18:06
+
+
+不方便是吧
+
+
+*****
+
+####  chenflyyy  
+##### 3714#       发表于 2021-10-30 18:07
+
+
+转起来才发现这袜不是连裤袜（
+
+
+*****
+
+####  千千千千鸟  
+##### 3715#       发表于 2021-10-30 18:08
+
+
+之前练习室开场4个人把pay都挡住了，现场完全没这问题了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜜梨柑  
+##### 3716#       发表于 2021-10-30 18:08
+
+
+运营：不好意思，我们放在别的场次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3717#       发表于 2021-10-30 18:08
+
+
+这个开口很棒
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Norkey1  
+##### 3718#       发表于 2021-10-30 18:09
+
+
+一点都不涩<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3719#       发表于 2021-10-30 18:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3720#       发表于 2021-10-30 18:10
+
+
+万恶的nhk，什么健全子贡偶像<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Arccueid  
+##### 3721#       发表于 2021-10-30 18:10
+
+
+这首现场感觉也太棒了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  player3960  
+##### 3722#       发表于 2021-10-30 18:10
+
+
+最期待的两首歌都和预期不太符合啊，可惜<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  秋月艾莉  
+##### 3723#       发表于 2021-10-30 18:10
+
+
+pay酱摇得像个DJwwwww
+
+
+*****
+
+####  寒风夜  
+##### 3724#       发表于 2021-10-30 18:10
+
+
+可怕
+
+
+*****
+
+####  chenflyyy  
+##### 3725#       发表于 2021-10-30 18:12
+
+
+ 本帖最后由 chenflyyy 于 2021-10-30 18:15 编辑 
+
+虽然但是，还是好帅<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">少了瑟多了帅
+
+
+*****
+
+####  iuhehc  
+##### 3726#       发表于 2021-10-30 18:12
+
+
+可以啊
+
+
+*****
+
+####  千千千千鸟  
+##### 3727#       发表于 2021-10-30 18:12
+
+
+这首真好听啊，也是pay站C，而且rap环节占比更多，怀疑第十话本来是用这首的？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 3728#       发表于 2021-10-30 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341838&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-30 18:09</a>
+一点都不涩</blockquote>
+<img src="https://p.sda1.dev/3/6c1e5f79a4ac123062e2b3aa6ee79b36/-140728c2e77ba6d7.jpg" referrerpolicy="no-referrer">千妈妈投来了疑惑表情
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  chenflyyy  
+##### 3729#       发表于 2021-10-30 18:14
+
+
+这身衣服5首歌了
+
+
+*****
+
+####  Norkey1  
+##### 3730#       发表于 2021-10-30 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341890&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-10-30 18:13</a>
+千妈妈投来了疑惑表情
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+没有吊带达咩<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 3731#       发表于 2021-10-30 18:16
+
+
+星光序曲不会没衣服吧<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">我还挺喜欢动画里那一套的
+
+
+*****
+
+####  优妮可  
+##### 3732#       发表于 2021-10-30 18:18
+
+
+，
+
+
+*****
+
+####  优妮可  
+##### 3733#       发表于 2021-10-30 18:18
+
+
+ 本帖最后由 优妮可 于 2021-10-30 18:19 编辑 
+
+ 。
+
+
+*****
+
+####  优妮可  
+##### 3734#       发表于 2021-10-30 18:18
+
+
+小百合汗水都粘头发了
+
+
+*****
+
+####  chenflyyy  
+##### 3735#       发表于 2021-10-30 18:18
+
+
+要独唱了？
+
+
+*****
+
+####  Arccueid  
+##### 3736#       发表于 2021-10-30 18:18
+
+
+又让小百合solo？不当人啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 3737#       发表于 2021-10-30 18:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">有可能，怕是要之后
+
+
+*****
+
+####  lj205  
+##### 3738#       发表于 2021-10-30 18:18
+
+
+我想杀了摄影，好多舞台表演都没拍出来
+
+
+*****
+
+####  寒风夜  
+##### 3739#       发表于 2021-10-30 18:19
+
+
+铁人。立德真难
+
+
+*****
+
+####  chenflyyy  
+##### 3740#       发表于 2021-10-30 18:19
+
+
+sayurin真的辛苦了，看着都累<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3741#       发表于 2021-10-30 18:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">打铁牛逼
+
+
+*****
+
+####  稀勢のささ  
+##### 3742#       发表于 2021-10-30 18:19
+
+
+香音传的重量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3743#       发表于 2021-10-30 18:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要特地拍小百合的短腿wwwwwwwww
+
+
+*****
+
+####  chenflyyy  
+##### 3744#       发表于 2021-10-30 18:21
+
+
+要是动画11集像这样唱完半首后其他人上来一起唱完观感应该会好许多
+
+
+*****
+
+####  Arccueid  
+##### 3745#       发表于 2021-10-30 18:21
+
+
+不过这套衣服真要唱到结束啊..
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  lucksolo  
+##### 3746#       发表于 2021-10-30 18:21
+
+
+动画就该这样！独唱完变全队版本顺便上各种特效
+
+
+*****
+
+####  Karin11974  
+##### 3747#       发表于 2021-10-30 18:21
+
+
+打铁有点蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3748#       发表于 2021-10-30 18:22
+
+
+这首唱完估计就下去放vtr换衣服吧？果然
+
+
+*****
+
+####  Arccueid  
+##### 3749#       发表于 2021-10-30 18:22
+
+
+就差鱼没solo了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  中野四葉  
+##### 3750#       发表于 2021-10-30 18:22
+
+
+小百合太累了
+
+
+
+
+*****
+
+####  AlfredXC  
+##### 3751#       发表于 2021-10-30 18:22
+
+
+这是最后一首了吗
+
+
+*****
+
+####  soranoguiji  
+##### 3752#       发表于 2021-10-30 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer"> 资本压榨小百合，赶紧加钱啊！！！
+
+
+*****
+
+####  iuhehc  
+##### 3753#       发表于 2021-10-30 18:23
+
+
+要接starlight prologue了吗
+
+
+*****
+
+####  寒风夜  
+##### 3754#       发表于 2021-10-30 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">星这是真猛
+
+
+*****
+
+####  Norkey1  
+##### 3755#       发表于 2021-10-30 18:24
+
+
+虽然连唱不奇怪，但让一个新人这样唱确实有点…担心这么多场嗓子能不能撑得住…
+
+
+*****
+
+####  lj205  
+##### 3756#       发表于 2021-10-30 18:25
+
+
+伪版sh（我忘记叫啥了）
+
+
+鲤鱼什么时候ringring啊？
+
+
+*****
+
+####  Arccueid  
+##### 3757#       发表于 2021-10-30 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342034&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-30 18:25:05</a>
+伪版sh（我忘记叫啥了）
+
+
+鲤鱼什么时候ringring啊？</blockquote>名字倒是挺好记的 星光序曲
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 3758#       发表于 2021-10-30 18:27
+
+
+就记住starlight了（
+不知道会不会拍下观众席，看看能不能做出光路
+
+
+*****
+
+####  lj205  
+##### 3759#       发表于 2021-10-30 18:27
+
+
+靠真尬
+
+
+*****
+
+####  cybernetics31  
+##### 3760#       发表于 2021-10-30 18:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是很尴尬这段
+
+
+*****
+
+####  寒风夜  
+##### 3761#       发表于 2021-10-30 18:29
+
+
+难怪放长
+
+
+*****
+
+####  Arccueid  
+##### 3762#       发表于 2021-10-30 18:29
+
+
+草 这个衣服披风幻视到少歌了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 3763#       发表于 2021-10-30 18:30
+
+
+ 本帖最后由 寒风夜 于 2021-10-30 18:31 编辑 
+
+太多了哥，
+
+
+*****
+
+####  chenflyyy  
+##### 3764#       发表于 2021-10-30 18:31
+
+
+这套打歌服就比较一般了
+
+
+*****
+
+####  Arccueid  
+##### 3765#       发表于 2021-10-30 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342095&amp;ptid=2028598" target="_blank">寒风夜 发表于 2021-10-30 18:30:09</a>
+太多了哥，</blockquote>真的夸张 唱了至少80%目前发售的歌吧
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  绯想alter2nd  
+##### 3766#       发表于 2021-10-30 18:32
+
+
+披风渐变还原得蛮好看的
+
+
+*****
+
+####  chenflyyy  
+##### 3767#       发表于 2021-10-30 18:33
+
+
+差不多要结束了吧？另外两首liella之歌估计要放day2这样
+
+
+*****
+
+####  iuhehc  
+##### 3768#       发表于 2021-10-30 18:34
+
+
+这衣服好看，穿起来跳得热死吧
+
+
+*****
+
+####  lj205  
+##### 3769#       发表于 2021-10-30 18:34
+
+
+光路
+
+
+*****
+
+####  寒风夜  
+##### 3770#       发表于 2021-10-30 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342116&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-30 18:31</a>
+
+真的夸张 唱了至少80%目前发售的歌吧
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">堪比3次元
+
+
+*****
+
+####  cybernetics31  
+##### 3771#       发表于 2021-10-30 18:34
+
+
+还是三次元香啊
+
+
+*****
+
+####  player3960  
+##### 3772#       发表于 2021-10-30 18:35
+
+
+好还原啊，真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 3773#       发表于 2021-10-30 18:36
+
+
+想起鲤鱼说自己也是光路一员，现在也有属于自己的光路了
+
+
+*****
+
+####  cybernetics31  
+##### 3774#       发表于 2021-10-30 18:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼：控股
+
+
+*****
+
+####  Norkey1  
+##### 3775#       发表于 2021-10-30 18:37
+
+
+可惜场子太小了，大点更震撼
+
+
+*****
+
+####  chenflyyy  
+##### 3776#       发表于 2021-10-30 18:37
+
+
+我还是很难喜欢这渐变色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3777#       发表于 2021-10-30 18:38
+
+
+要最后了吗，好快<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">会有安可吗
+
+
+*****
+
+####  稀勢のささ  
+##### 3778#       发表于 2021-10-30 18:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种环节的青山姐就显得有点尴尬了 甚至都没啥能互动的点
+
+
+*****
+
+####  lj205  
+##### 3779#       发表于 2021-10-30 18:38
+
+
+鲤鱼没有solo？
+
+
+*****
+
+####  iuhehc  
+##### 3780#       发表于 2021-10-30 18:39
+
+
+ED了
+
+
+
+
+*****
+
+####  寒风夜  
+##### 3781#       发表于 2021-10-30 18:39
+
+
+还有，，想起来ed确实没放
+
+
+*****
+
+####  秋月艾莉  
+##### 3782#       发表于 2021-10-30 18:39
+
+
+未来如风收尾，哭了
+
+
+*****
+
+####  cao1rui2  
+##### 3783#       发表于 2021-10-30 18:40
+
+
+未来如风好听
+
+
+*****
+
+####  chenflyyy  
+##### 3784#       发表于 2021-10-30 18:40
+
+
+这一次ed就没上一次那么还原了，可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 3785#       发表于 2021-10-30 18:40
+
+
+这摄像机切的是个锤子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3786#       发表于 2021-10-30 18:41
+
+
+尾巴！
+
+
+*****
+
+####  优妮可  
+##### 3787#       发表于 2021-10-30 18:42
+
+
+上次那个摄影师呢
+
+
+*****
+
+####  chenflyyy  
+##### 3788#       发表于 2021-10-30 18:43
+
+
+安可安可安可安可！
+还有吗，没法喊只能鼓掌少了点味儿
+
+
+*****
+
+####  Arccueid  
+##### 3789#       发表于 2021-10-30 18:43
+
+
+啊最后退场好好看
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  iuhehc  
+##### 3790#       发表于 2021-10-30 18:43
+
+
+有没有安可
+
+
+*****
+
+####  a92063256  
+##### 3791#       发表于 2021-10-30 18:43
+
+
+有安可吗
+
+
+*****
+
+####  lj205  
+##### 3792#       发表于 2021-10-30 18:44
+
+
+？！可可solo？
+
+
+*****
+
+####  秋月艾莉  
+##### 3793#       发表于 2021-10-30 18:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定有啊，我还没见过没有安可的日偶演唱会
+
+
+*****
+
+####  player3960  
+##### 3794#       发表于 2021-10-30 18:44
+
+
+安可！安可！前面没看，一单唱了吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Karin11974  
+##### 3795#       发表于 2021-10-30 18:44
+
+
+观众不能出声看着都觉得难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3796#       发表于 2021-10-30 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342275&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-10-30 18:44</a>
+
+观众不能出声看着都觉得难受</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3797#       发表于 2021-10-30 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342275&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-10-30 18:44</a>
+
+观众不能出声看着都觉得难受</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3798#       发表于 2021-10-30 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342275&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-10-30 18:44</a>
+
+观众不能出声看着都觉得难受</blockquote>
+
+
+*****
+
+####  chenflyyy  
+##### 3799#       发表于 2021-10-30 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342265&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-30 18:44</a>
+？！可可solo？</blockquote>
+我猜应该是把另外两个liella之歌放day2这样吧，除了liella之歌和sayurin外其他人也没solo了
+
+
+*****
+
+####  chenflyyy  
+##### 3800#       发表于 2021-10-30 18:46
+
+
+安可应该是一单吧
+
+
+*****
+
+####  优妮可  
+##### 3801#       发表于 2021-10-30 18:46
+
+
+前情回顾
+
+
+*****
+
+####  Arccueid  
+##### 3802#       发表于 2021-10-30 18:46
+
+
+好耶，这个环节是粉丝喜欢的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 3803#       发表于 2021-10-30 18:46
+
+
+应该放明天嗯
+
+
+*****
+
+####  lj205  
+##### 3804#       发表于 2021-10-30 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342292&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-30 18:45</a>
+我猜应该是把另外两个liella之歌放day2这样吧，除了liella之歌和sayurin外其他人也没solo了 ...</blockquote>
+你？其他三人都分别solo过了啊
+
+
+*****
+
+####  寒风夜  
+##### 3805#       发表于 2021-10-30 18:47
+
+
+是不是看过
+
+
+*****
+
+####  lj205  
+##### 3806#       发表于 2021-10-30 18:47
+
+
+这片段为啥没新的，放她们彩排的片段啊
+
+
+*****
+
+####  cybernetics31  
+##### 3807#       发表于 2021-10-30 18:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">亏观众能憋住不喊
+
+
+*****
+
+####  chenflyyy  
+##### 3808#       发表于 2021-10-30 18:48
+
+
+ 本帖最后由 chenflyyy 于 2021-10-30 18:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342309&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-30 18:46</a>
+你？其他三人都分别solo过了啊</blockquote>
+另外三个人solo的是liella之歌呀，5首没放完所以我猜估计其他应该是放day2这样啦，明天看看有没有吧，没有我也想骂人了
+
+
+*****
+
+####  iuhehc  
+##### 3809#       发表于 2021-10-30 18:48
+
+
+果然
+
+
+*****
+
+####  Arccueid  
+##### 3810#       发表于 2021-10-30 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342323&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-30 18:48:02</a>
+亏观众能憋住不喊</blockquote>确实 没人喊的日式live真的不习惯..
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+*****
+
+####  lj205  
+##### 3811#       发表于 2021-10-30 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342325&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-30 18:48</a>
+另外三个人solo的是liella之歌呀，5首没放完所以我猜估计其他应该是放day2这样啦 ...</blockquote>
+希望吧，稍微有点不爽
+
+
+*****
+
+####  chenflyyy  
+##### 3812#       发表于 2021-10-30 18:51
+
+
+美少女穿痛衫都好看
+
+
+*****
+
+####  chenflyyy  
+##### 3813#       发表于 2021-10-30 18:52
+
+
+好像又出跨页bug了？
+
+
+*****
+
+####  Arccueid  
+##### 3814#       发表于 2021-10-30 18:53
+
+
+安可来了，不过我想day2没剩几首歌了吧..
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 3815#       发表于 2021-10-30 18:53
+
+
+果然一单曲加一单服，好耶
+
+
+*****
+
+####  中野四葉  
+##### 3816#       发表于 2021-10-30 18:53
+
+
+安科来了 果然是始空
+
+
+*****
+
+####  player3960  
+##### 3817#       发表于 2021-10-30 18:53
+
+
+果然是一单吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lucksolo  
+##### 3818#       发表于 2021-10-30 18:53
+
+
+会有幸运阿宅接到扔太远的衣服吗
+
+
+*****
+
+####  千千千千鸟  
+##### 3819#       发表于 2021-10-30 18:54
+
+
+这套打歌服还是好看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3820#       发表于 2021-10-30 18:54
+
+
+感觉今天的摄影师老是莫名其妙地拍腿，lsp了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3821#       发表于 2021-10-30 18:55
+
+
+liella之歌除了恋那首肯定是轮换的，明天估计就是小百合和鲤鱼了
+
+
+*****
+
+####  chenflyyy  
+##### 3822#       发表于 2021-10-30 18:55
+
+
+真丢下去啊，羡慕了
+
+
+*****
+
+####  稀勢のささ  
+##### 3823#       发表于 2021-10-30 18:56
+
+
+还有这种好事
+
+
+*****
+
+####  秋月艾莉  
+##### 3824#       发表于 2021-10-30 18:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们在想什么，后面staff肯定会回收的啊
+
+
+*****
+
+####  Norkey1  
+##### 3825#       发表于 2021-10-30 18:58
+
+
+要回收的，顶多闻闻体香<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3826#       发表于 2021-10-30 18:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3827#       发表于 2021-10-30 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342421&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-30 18:58</a>
+要回收的，顶多闻闻体香</blockquote>
+那也赚了，妈的好羡慕
+
+
+*****
+
+####  Karin11974  
+##### 3828#       发表于 2021-10-30 19:02
+
+
+想多了，马上就看到STAFF在前面走过回收<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3829#       发表于 2021-10-30 19:02
+
+
+第一场就这么棒..真的想去现场啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  cybernetics31  
+##### 3830#       发表于 2021-10-30 19:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">太棒了
+
+
+*****
+
+####  lj205  
+##### 3831#       发表于 2021-10-30 19:04
+
+
+明天的票没买，这是不得不买吗
+
+
+*****
+
+####  寒风夜  
+##### 3832#       发表于 2021-10-30 19:04
+
+
+扔20场是吧
+
+
+*****
+
+####  千千千千鸟  
+##### 3833#       发表于 2021-10-30 19:05
+
+
+2个半小时了吧，好高强度的live，sayuri体力真的猛。接下来还有好多场，之前的lovelive也是这么高强度的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3834#       发表于 2021-10-30 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342485&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-30 19:04</a>
+
+明天的票没买，这是不得不买吗</blockquote>
+刚买233至少DAY1DAY2得看完一场
+
+
+*****
+
+####  优妮可  
+##### 3835#       发表于 2021-10-30 19:06
+
+
+先不说到现场的，感觉线上这两百块看那么多也是血赚啊
+
+
+*****
+
+####  lj205  
+##### 3836#       发表于 2021-10-30 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342504&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-30 19:05</a>
+刚买233至少DAY1DAY2得看完一场</blockquote>
+跟妹子都说好了，我买第一天，她买第二天。但是鲤鱼这solo放第二天，我就犹豫了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3837#       发表于 2021-10-30 19:07
+
+
+20场要4000块钱了还是难顶，中间还有跨年live呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">1st巡演结束还有鲤鱼的个人live
+
+
+*****
+
+####  Arccueid  
+##### 3838#       发表于 2021-10-30 19:07
+
+
+大家好温柔啊草
+
+
+*****
+
+####  Arccueid  
+##### 3839#       发表于 2021-10-30 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342520&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-30 19:07</a>
+
+20场要4000块钱了还是难顶，中间还有跨年live呢</blockquote>
+看头尾其实就够了
+
+
+*****
+
+####  cybernetics31  
+##### 3840#       发表于 2021-10-30 19:08
+
+
+鱼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  秋月艾莉  
+##### 3841#       发表于 2021-10-30 19:08
+
+
+鲤鱼哭了我靠
+
+
+*****
+
+####  chenflyyy  
+##### 3842#       发表于 2021-10-30 19:08
+
+
+鲤鱼都哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3843#       发表于 2021-10-30 19:08
+
+
+蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3844#       发表于 2021-10-30 19:08
+
+
+队友和观众太温柔了，鲤鱼泪奔了
+
+
+*****
+
+####  iuhehc  
+##### 3845#       发表于 2021-10-30 19:09
+
+
+鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 3846#       发表于 2021-10-30 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3847#       发表于 2021-10-30 19:09
+
+
+真好啊..
+
+
+*****
+
+####  中野四葉  
+##### 3848#       发表于 2021-10-30 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">没蚌住
+
+
+*****
+
+####  优妮可  
+##### 3849#       发表于 2021-10-30 19:09
+
+
+看到鱼哭了，我也想哭了😭
+
+
+*****
+
+####  秋月艾莉  
+##### 3850#       发表于 2021-10-30 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">鲤鱼没绷住搞得鲨鱼也蚌埠住了
+
+
+*****
+
+####  稀勢のささ  
+##### 3851#       发表于 2021-10-30 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3852#       发表于 2021-10-30 19:10
+
+
+妈的我也流泪了
+
+
+*****
+
+####  chenflyyy  
+##### 3853#       发表于 2021-10-30 19:10
+
+
+sayurin小哭包哭了算比较正常，没想到是鲤鱼先绷不住
+
+
+*****
+
+####  普之舜舜  
+##### 3854#       发表于 2021-10-30 19:13
+
+
+我感动的不行了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 3855#       发表于 2021-10-30 19:14
+
+
+太不容易了，毕竟刚开始受到多少质疑自己一个人在外也因为国籍被畜生网暴
+
+
+*****
+
+####  player3960  
+##### 3856#       发表于 2021-10-30 19:14
+
+
+鲤鱼真是不容易啊，想想她压力就很大，1st表现这么稳，终于也是松了一口气
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cybernetics31  
+##### 3857#       发表于 2021-10-30 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">梦想成真了啊
+
+
+*****
+
+####  kbtit  
+##### 3858#       发表于 2021-10-30 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这才第一场，加油
+
+
+*****
+
+####  chenflyyy  
+##### 3859#       发表于 2021-10-30 19:14
+
+
+nako妈妈还是稳重啊，不过听得出有点哭腔了，nagi整个活让大家乐一乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3860#       发表于 2021-10-30 19:15
+
+
+古参老宅一路粉到本家舞台上
+
+换我起码天天飙泪飙一个月
+
+
+*****
+
+####  稀勢のささ  
+##### 3861#       发表于 2021-10-30 19:15
+
+
+你鲤鱼姐又爱自搜 没绷住才正常
+
+
+*****
+
+####  寒风夜  
+##### 3862#       发表于 2021-10-30 19:15
+
+
+哎，，第一次有观众
+
+
+*****
+
+####  lj205  
+##### 3863#       发表于 2021-10-30 19:16
+
+
+谢谢你外星人
+
+
+*****
+
+####  cao1rui2  
+##### 3864#       发表于 2021-10-30 19:16
+
+
+观众不能发声真的太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  chenflyyy  
+##### 3865#       发表于 2021-10-30 19:18
+
+
+刚刚sayurin是耳返掉了吧，nako妈真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 3866#       发表于 2021-10-30 19:19
+
+
+居然还有我惊了
+
+
+*****
+
+####  千千千千鸟  
+##### 3867#       发表于 2021-10-30 19:19
+
+
+最后一曲了
+
+
+*****
+
+####  Norkey1  
+##### 3868#       发表于 2021-10-30 19:19
+
+
+泪目了，真好啊
+
+
+*****
+
+####  chenflyyy  
+##### 3869#       发表于 2021-10-30 19:19
+
+
+竟然还有，这是要凑满3小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">20场3小时也太累了吧。。。。
+
+
+*****
+
+####  寒风夜  
+##### 3870#       发表于 2021-10-30 19:20
+
+
+ 本帖最后由 寒风夜 于 2021-10-30 19:22 编辑 
+
+忒猛
+
+
+
+
+*****
+
+####  秋月艾莉  
+##### 3871#       发表于 2021-10-30 19:21
+
+
+都唱光了，下一首应该跳舞拉啪啪结束
+
+
+*****
+
+####  chenflyyy  
+##### 3872#       发表于 2021-10-30 19:22
+
+
+这镜头emo啊
+
+
+*****
+
+####  chenflyyy  
+##### 3873#       发表于 2021-10-30 19:23
+
+
+果然又有跨页bug了，要再考虑换楼吗？
+
+
+*****
+
+####  匕力ル  
+##### 3874#       发表于 2021-10-30 19:23
+
+
+星团这3小时LIVE要开20场，体力跟得上吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千千千千鸟  
+##### 3875#       发表于 2021-10-30 19:23
+
+
+这合照慕了慕了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3876#       发表于 2021-10-30 19:24
+
+
+OH没了，拉啪啪不唱了
+
+
+*****
+
+####  寒风夜  
+##### 3877#       发表于 2021-10-30 19:24
+
+
+一眼看去差不多都爷们啊
+
+
+*****
+
+####  优妮可  
+##### 3878#       发表于 2021-10-30 19:24
+
+
+现场血赚
+
+
+*****
+
+####  秋月艾莉  
+##### 3879#       发表于 2021-10-30 19:25
+
+
+群马Day1曲单
+
+后面应该除了liella的歌不会有什么变化了
+
+
+01. START!! True dreams
+
+02. だから僕らは鳴らすんだ
+
+
+MC 自我介绍
+
+
+03. 未来予報ハレルヤ
+
+04. GOING UP  香solo
+
+05. 1 2 3!  可香千
+
+
+动画回顾 1-3集
+
+
+06. Tiny Stars  可香
+
+07. バイバイしちゃえば  千堇
+
+08. 常夏サンシャイン 可香千堇 nako独舞
+
+09. Primary  恋solo
+
+10. Memories  千solo
+
+11. Message 堇solo
+
+
+动画回顾 7-8集
+
+
+12. 瞬きの先へ 外星人跳芭蕾
+
+13. Wish Song
+
+
+MC 各曲感想 后半战突入
+
+
+14. Nonfiction
+
+15. Day 1
+
+16. Dream Rainbow
+
+17. 私のSymphony
+
+
+动画回顾 11-12集
+
+
+18. Starlight Prologue
+
+
+MC 衣装感想etc
+
+
+19. 未来は風のように
+
+
+Encore 
+
+
+播片 回顾企划历史
+
+
+EN1. 始まりは君の空
+
+EN2. Dreaming Energy
+
+
+MC 演唱会感想 可香飙泪 泪水不是泪水是心の汁
+
+
+EN3. この街でいまキミと
+
+
+*****
+
+####  寒风夜  
+##### 3880#       发表于 2021-10-30 19:26
+
+
+22首歌
+
+
+*****
+
+####  chenflyyy  
+##### 3881#       发表于 2021-10-30 19:27
+
+
+结束了，充实的三个小时，真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 3882#       发表于 2021-10-30 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">太爽了，还有19场太刺激了
+
+
+*****
+
+####  iuhehc  
+##### 3883#       发表于 2021-10-30 19:28
+
+
+挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3884#       发表于 2021-10-30 19:28
+
+
+休息吧
+
+
+*****
+
+####  蔵女  
+##### 3885#       发表于 2021-10-30 19:28
+
+
+喷了，刚看了《可可的诱惑》，药劲怎么这么大~
+
+
+*****
+
+####  稀勢のささ  
+##### 3886#       发表于 2021-10-30 19:28
+
+
+还有19场 真就压榨年轻人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3887#       发表于 2021-10-30 19:29
+
+
+中间还有三团跨年live，结束还有鲤鱼个人live，万恶的资本家<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蔵女  
+##### 3888#       发表于 2021-10-30 19:29
+
+
+话说这次现场真的有很多中老年么
+
+
+*****
+
+####  chenflyyy  
+##### 3889#       发表于 2021-10-30 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342818&amp;ptid=2028598" target="_blank">蔵女 发表于 2021-10-30 19:29</a>
+话说这次现场真的有很多中老年么</blockquote>
+看合照感觉还是年轻男性比较多，不过这是前排的情况
+
+
+*****
+
+####  player3960  
+##### 3890#       发表于 2021-10-30 19:31
+
+
+对了，今天晚上是不是还有鲤鱼cos托尔上的那个综艺啊，今天可以看个饱<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 3891#       发表于 2021-10-30 19:32
+
+
+冷静下来我现在十分担心她们的嗓子特别是打铁……………………<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 3892#       发表于 2021-10-30 19:32
+
+
+这是我今天第三次说歌单塞太满了，你新人立德年龄小还没有长时间训练，又不是两场，这是巡演20场啊，这么搞真容易跨<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">说难听点你立德不行了这个团就废了，宁愿出个外景播点片…
+
+
+*****
+
+####  kbtit  
+##### 3893#       发表于 2021-10-30 19:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">20场都是这个量的确实恐怖
+
+
+*****
+
+####  player3960  
+##### 3894#       发表于 2021-10-30 19:36
+
+
+主要是人少，分组曲和solo曲也少，以后歌多起来了合理安排一下转场就好了，但是小百合还是强度太大了，这就是立德宿命吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  後藤正文  
+##### 3895#       发表于 2021-10-30 19:36
+
+
+鲤宝生日场什么时候开售票通道啊
+
+
+*****
+
+####  寒风夜  
+##### 3896#       发表于 2021-10-30 19:37
+
+
+有点哈人 
+
+
+*****
+
+####  优妮可  
+##### 3897#       发表于 2021-10-30 19:39
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/193933lfhhax8487su44th.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211030_193700.jpg</strong> (275.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 19:39 上传
+
+
+*****
+
+####  蔵女  
+##### 3898#       发表于 2021-10-30 19:42
+
+
+难道以后的19场也是这个强度么？
+
+
+*****
+
+####  Arccueid  
+##### 3899#       发表于 2021-10-30 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看完明天就知道什么强度了，反正今天这个太夸张了
+
+
+*****
+
+####  ads147147  
+##### 3900#       发表于 2021-10-30 19:42
+
+
+我怎么觉得是换人solo扛把子。。看看明天什么情况吧
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+
+*****
+
+####  Karin11974  
+##### 3901#       发表于 2021-10-30 19:44
+
+
+结束后那个二维码投票不满意的点写了部分服装还原不够，还有某首歌完全没服装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 3902#       发表于 2021-10-30 19:46
+
+
+除了小星星服装穿着像睡衣，然后ノンフィクション直接没换装外，其他都是超棒的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  D麦林  
+##### 3903#       发表于 2021-10-30 19:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53333262&amp;ptid=2028598" target="_blank">山岚夜雨 发表于 2021-10-29 22:18</a>
+
+我记得官推好像宣传生放链接的时候还放过秋叶原这个链接，写明bilibili，还有一个不知道能不能算，鲤鱼在 ...</blockquote>
+虽然晚了一天但我回一下
+
+每次官方生放的官网页面上的播出平台都有写bilibili的
+
+每次生放在讲播出平台的时候也会提一句bilibili动画的
+
+从n年前这号开始转播水水生放开始就是了 所以不需要什么佐证（
+
+
+*****
+
+####  cybernetics31  
+##### 3904#       发表于 2021-10-30 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">二维码调查问卷问了个一年看几次live。。。。绷不住了。。。好想看现场啊
+
+
+*****
+
+####  player3960  
+##### 3905#       发表于 2021-10-30 19:54
+
+
+只能说太牛了，集结才一年多，1st live几乎把出道以来所有歌都唱了，有芭蕾，有街舞，有rap，而且全员稳的不行，夫复何求<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  iuhehc  
+##### 3906#       发表于 2021-10-30 19:55
+
+
+ 本帖最后由 iuhehc 于 2021-10-30 19:57 编辑 
+
+不满意写了部分舞台的照明打光..
+
+还没买明天那场，现在搞得就很想买，这样子
+
+什么时候才能等到国内现场..
+
+
+*****
+
+####  lj205  
+##### 3907#       发表于 2021-10-30 19:58
+
+
+下楼吃饭才想起今天万圣节，没整点主题有点可惜
+
+
+*****
+
+####  chenflyyy  
+##### 3908#       发表于 2021-10-30 19:58
+
+
+我觉得最大的问题还是导播乱切机位，还总莫名其妙地拍腿（虽然也不是不可以啦。。。
+
+
+*****
+
+####  csolfans  
+##### 3909#       发表于 2021-10-30 19:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">阿鱼，为您感到骄傲
+
+
+QQ图片20211030195753.jpg
+(157.61 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-30 19:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/195819kimtfn99snmqfffq.jpg" referrerpolicy="no-referrer">
+
+
+QQ图片20211030195802.jpg
+(112.5 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-30 19:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/195822b3k8vqr8m4lnmlpq.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 3910#       发表于 2021-10-30 20:04
+
+
+牛逼!
+
+
+*****
+
+####  秋月艾莉  
+##### 3911#       发表于 2021-10-30 20:09
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/200734xcyx28fzc770sf9o.png" referrerpolicy="no-referrer">
+
+
+<strong>866A503B-0ADB-4F60-85AA-6D3FCE154757.png</strong> (280.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 20:07 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">我不允许有人没有欣赏过我佩的盛世美颜！
+
+
+*****
+
+####  chenflyyy  
+##### 3912#       发表于 2021-10-30 20:09
+
+
+说起来动画第7-9集B站上了，我就不去看那个糟心了（live上已经品鉴过一次了）等别人看完说说删减哪里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 3913#       发表于 2021-10-30 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343314&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-10-30 20:09</a>
+
+说起来动画第7-9集B站上了，我就不去看那个糟心了（live上已经品鉴过一次了）等别人看完说说删减哪里了[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">贴吧说是一点没少
+
+
+*****
+
+####  -Vanitas-  
+##### 3914#       发表于 2021-10-30 20:14
+
+
+求一个录播
+
+
+*****
+
+####  iuhehc  
+##### 3915#       发表于 2021-10-30 20:18
+
+
+ 本帖最后由 iuhehc 于 2021-10-30 20:27 编辑 
+
+截到个眼神
+
+
+l.png
+(100.94 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-30 20:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/202655djlqnqfqj4flze46.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3916#       发表于 2021-10-30 20:22
+
+
+就这强度是要多吃点，我之前不该说鲤鱼胖的，她明显增肌了
+
+
+*****
+
+####  Norkey1  
+##### 3917#       发表于 2021-10-30 20:23
+
+
+草，切片录播居然有了，好歹过几天再发啊…小偶像睡大桥.jpg
+
+
+*****
+
+####  Arccueid  
+##### 3918#       发表于 2021-10-30 20:24
+
+
+又翻页bug了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  a92063256  
+##### 3919#       发表于 2021-10-30 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343459&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-10-30 20:18</a>
+
+编辑</blockquote>
+乍一看还以为是爱美<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3920#       发表于 2021-10-30 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343524&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-10-30 20:23</a>
+草，切片录播居然有了，好歹过几天再发啊…小偶像睡大桥.jpg</blockquote>
+ll系列的切片录播在微博一直是有的，而且还是唱完一首就放一首的，速度很快
+
+
+*****
+
+####  chenflyyy  
+##### 3921#       发表于 2021-10-30 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343364&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-10-30 20:12</a>
+贴吧说是一点没少</blockquote>
+竟然没有，不过本来就不该删就是
+
+

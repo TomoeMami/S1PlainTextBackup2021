@@ -2768,3 +2768,14 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无限期又没硬币,放着不管了
 
 
+
+
+*****
+
+####  rooarr  
+##### 84223#       发表于 2021-10-30 20:19
+
+
+奇怪，这次活动我怎么差这么多点数，商店除了硬币都差不多换完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

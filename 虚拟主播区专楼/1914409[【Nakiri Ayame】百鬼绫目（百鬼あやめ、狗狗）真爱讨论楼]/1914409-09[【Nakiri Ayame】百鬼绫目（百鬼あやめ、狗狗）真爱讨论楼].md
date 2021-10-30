@@ -16367,3 +16367,23 @@ EN二期的黑肉不过17天没开就被4chan说是EN绫总了<img src="https://
 [https://boards.4channel.org/vt/thread/12188643#p12193760](https://boards.4channel.org/vt/thread/12188643#p12193760)
 
 
+
+
+*****
+
+####  一仙  
+##### 13381#       发表于 2021-10-30 18:52
+
+
+什么 好久没逛4ch 绫已经是4ch最讨厌日V了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 13382#       发表于 2021-10-30 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那en二期岂不是抽了一个行为绫总，一个声音绫总
+
+

@@ -11878,3 +11878,164 @@ syl 别哭了，当我rp吧<img src="https://static.saraba1st.com/image/smiley/f
 本以为5人同进退，结果早已有异心
 
 
+
+
+*****
+
+####  夜潇箫  
+##### 998#       发表于 2021-10-30 18:05
+
+
+你是在劈coco吗，贴吧以前倒是劈过她纹身<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  憧憬鲨  
+##### 999#       发表于 2021-10-30 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">跑路了也挺好的
+
+
+*****
+
+####  Quark  
+##### 1000#       发表于 2021-10-30 18:27
+
+
+静你怎么一天都没有出现<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魔法少女大头  
+##### 1001#       发表于 2021-10-30 18:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">为什么感觉自己被pua了。
+
+明明只是16个小时没发B博而已。
+
+
+*****
+
+####  tankai  
+##### 1002#       发表于 2021-10-30 18:41
+
+
+NGA说琳姐昨晚哭到今早上七点才睡。
+
+
+*****
+
+####  雨井绫  
+##### 1003#       发表于 2021-10-30 19:02
+
+
+可能是千鸟最后一次冰火了，且看且珍惜
+
+
+*****
+
+####  H2Ofrozen  
+##### 1004#       发表于 2021-10-30 19:03
+
+
+[鸟p收收味！](https://live.bilibili.com/1)<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+白白最强！白白最强！白白最强！
+
+
+*****
+
+####  小憨1  
+##### 1005#       发表于 2021-10-30 19:04
+
+
+白白绝唱
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1006#       发表于 2021-10-30 19:06
+
+
+该把独轮车拉出来了
+
+
+*****
+
+####  夜潇箫  
+##### 1007#       发表于 2021-10-30 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">千鸟真的要在11月28散了吗
+看二台去了
+
+
+*****
+
+####  hanshanwulu  
+##### 1008#       发表于 2021-10-30 19:26
+
+
+哎，这下真是鸟要散了。。。
+
+
+千鸟创业未半，而中道崩猝。此诚危急存亡之秋也。可悲可叹，反A大业尚未成功。愿日月幽而复明。
+
+凛凛人尚在，谁云鸟已亡！
+
+
+*****
+
+####  雨井绫  
+##### 1009#       发表于 2021-10-30 19:51
+
+
+白白最强！白白最强！
+
+
+*****
+
+####  rgauss  
+##### 1010#       发表于 2021-10-30 19:55
+
+
+白白最强 白白最强
+
+
+*****
+
+####  丢了五块钱  
+##### 1011#       发表于 2021-10-30 19:55
+
+
+4.0最强
+
+
+*****
+
+####  魔法少女大头  
+##### 1012#       发表于 2021-10-30 19:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">总算不捏了，泪目
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+
+*****
+
+####  丢了五块钱  
+##### 1013#       发表于 2021-10-30 20:23
+
+
+co宝心情还好
+
+
