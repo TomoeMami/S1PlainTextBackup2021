@@ -7179,3 +7179,1184 @@ nako好可爱啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/fac
 nako和pay这组合还是第一次见 sayurin终于可以歇一首歌了
 
 
+
+
+*****
+
+####  优妮可  
+##### 3589#       发表于 2021-10-30 17:22
+
+
+这常夏衣服加了不少料啊
+
+
+*****
+
+####  秋月艾莉  
+##### 3590#       发表于 2021-10-30 17:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外星人休息好久了，给首solo吧
+
+就等其他四个唱完常夏换衣服的时点正好
+
+
+*****
+
+####  中野四葉  
+##### 3591#       发表于 2021-10-30 17:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青山疯狂摸鱼
+
+
+*****
+
+####  cybernetics31  
+##### 3592#       发表于 2021-10-30 17:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小百合又上了
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 3593#       发表于 2021-10-30 17:23
+
+
+青山姐继续摸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3594#       发表于 2021-10-30 17:23
+
+
+外星人好悠闲哦
+
+
+*****
+
+####  Arccueid  
+##### 3595#       发表于 2021-10-30 17:23
+
+
+恋恋不见了好久
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  iuhehc  
+##### 3596#       发表于 2021-10-30 17:23
+
+
+外星人爆休息
+
+
+*****
+
+####  chenflyyy  
+##### 3597#       发表于 2021-10-30 17:23
+
+
+星的真人打歌服比动画好看多了，就是布料加得有点多，可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千千千千鸟  
+##### 3598#       发表于 2021-10-30 17:23
+
+
+最喜欢的这首来了，真好看这衣服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 3599#       发表于 2021-10-30 17:24
+
+
+可堇遮眼这段，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  megapikachu  
+##### 3600#       发表于 2021-10-30 17:25
+
+
+服装非常健全<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  player3960  
+##### 3601#       发表于 2021-10-30 17:25
+
+
+nako独舞NB！
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 3602#       发表于 2021-10-30 17:26
+
+
+有点担心会不会删掉吊带袜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3603#       发表于 2021-10-30 17:26
+
+
+铁人了 
+
+
+*****
+
+####  a92063256  
+##### 3604#       发表于 2021-10-30 17:26
+
+
+nako<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3605#       发表于 2021-10-30 17:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这期可是儿童偶像，禁止露腋
+
+NAKO高音杀我！
+
+
+*****
+
+####  chenflyyy  
+##### 3606#       发表于 2021-10-30 17:26
+
+
+nako这高音<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 3607#       发表于 2021-10-30 17:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">nako最后这声
+
+
+*****
+
+####  cybernetics31  
+##### 3608#       发表于 2021-10-30 17:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用想吊带袜肯定没啊
+
+
+*****
+
+####  Arccueid  
+##### 3609#       发表于 2021-10-30 17:27
+
+
+好，高音支棱住了
+
+恋恋solo大概
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  稀勢のささ  
+##### 3610#       发表于 2021-10-30 17:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟已经在向小学生贩卖梦想了 理解理解
+
+
+*****
+
+####  优妮可  
+##### 3611#       发表于 2021-10-30 17:27
+
+
+nako我超
+
+
+*****
+
+####  蜜梨柑  
+##### 3612#       发表于 2021-10-30 17:28
+
+
+青山姐该出来了吧，摸了好几首了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucksolo  
+##### 3613#       发表于 2021-10-30 17:28
+
+
+能唱能跳tql
+
+
+*****
+
+####  Norkey1  
+##### 3614#       发表于 2021-10-30 17:28
+
+
+歌单塞满<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3615#       发表于 2021-10-30 17:29
+
+
+青山姐solo呀
+
+
+*****
+
+####  秋月艾莉  
+##### 3616#       发表于 2021-10-30 17:30
+
+
+果然是接solo让其他四个换衣服wwwww
+
+外星人美cry
+
+
+*****
+
+####  chenflyyy  
+##### 3617#       发表于 2021-10-30 17:30
+
+
+nagi独唱？！真美啊，老婆老婆<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3618#       发表于 2021-10-30 17:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">美美美
+
+
+*****
+
+####  iuhehc  
+##### 3619#       发表于 2021-10-30 17:30
+
+
+不愧是唱过音乐剧的
+
+
+*****
+
+####  蜜梨柑  
+##### 3620#       发表于 2021-10-30 17:30
+
+
+青山这solo<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 3621#       发表于 2021-10-30 17:30
+
+
+青山…美人<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3622#       发表于 2021-10-30 17:31
+
+
+我猜唱完再播片然后wish song
+
+
+*****
+
+####  chenflyyy  
+##### 3623#       发表于 2021-10-30 17:31
+
+
+这一刻nagi就是真正的大和抚子！
+
+
+*****
+
+####  lj205  
+##### 3624#       发表于 2021-10-30 17:31
+
+
+不愧是学过美声
+
+
+*****
+
+####  稀勢のささ  
+##### 3625#       发表于 2021-10-30 17:33
+
+
+草 那个表情还以为要开始搞了
+
+
+*****
+
+####  chenflyyy  
+##### 3626#       发表于 2021-10-30 17:33
+
+
+这是要一人一首特供ed啊
+
+
+*****
+
+####  iuhehc  
+##### 3627#       发表于 2021-10-30 17:34
+
+
+？轮流liellaのうた吗
+
+
+*****
+
+####  Karin11974  
+##### 3628#       发表于 2021-10-30 17:34
+
+
+常夏最后这高音竟然是nako的，一直以为是打铁<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋月艾莉  
+##### 3629#       发表于 2021-10-30 17:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">猜错了，居然又一首liella之歌
+
+
+*****
+
+####  a92063256  
+##### 3630#       发表于 2021-10-30 17:34
+
+
+这小白裙子真好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我刚才还以为这就是wish song的衣服呢，还在想为什么和动画里差别这么大
+
+
+
+
+*****
+
+####  lj205  
+##### 3631#       发表于 2021-10-30 17:35
+
+
+岬可以哦😯
+
+
+*****
+
+####  player3960  
+##### 3632#       发表于 2021-10-30 17:35
+
+
+没办法，bd个人曲还没出完，只有先拿liella之歌顶一下了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  iuhehc  
+##### 3633#       发表于 2021-10-30 17:38
+
+
+夸夸佩佩，气息用的好（科学用嗓
+
+
+*****
+
+####  千千千千鸟  
+##### 3634#       发表于 2021-10-30 17:38
+
+
+还以为独唱是穿插出现的，看这架势，是要5连独唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3635#       发表于 2021-10-30 17:38
+
+
+鲤鱼大概会唱ringring 
+
+
+*****
+
+####  Karin11974  
+##### 3636#       发表于 2021-10-30 17:39
+
+
+这不用蹦来蹦去的感觉稳多了
+
+
+*****
+
+####  中野四葉  
+##### 3637#       发表于 2021-10-30 17:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">pay这首是我liella之歌里最喜欢的一首
+
+
+*****
+
+####  Norkey1  
+##### 3638#       发表于 2021-10-30 17:40
+
+
+歌单不用塞这么多吧，播点片也不是不能接受啊…像飞我去星那样一人唱几句多好…<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3639#       发表于 2021-10-30 17:41
+
+
+佩佩赞
+
+
+*****
+
+####  iuhehc  
+##### 3640#       发表于 2021-10-30 17:41
+
+
+诶，要接wishsong了，
+
+
+*****
+
+####  chenflyyy  
+##### 3641#       发表于 2021-10-30 17:41
+
+
+pay最后一幕真好看<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3642#       发表于 2021-10-30 17:42
+
+
+Wish song 咯？千万别播拍手片段
+
+
+*****
+
+####  秋月艾莉  
+##### 3643#       发表于 2021-10-30 17:42
+
+
+应该是垫中间然后按场次个人轮换？
+
+liella之歌太儿歌了五连发我有点顶不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3644#       发表于 2021-10-30 17:43
+
+
+卧槽，别
+
+
+*****
+
+####  中野四葉  
+##### 3645#       发表于 2021-10-30 17:43
+
+
+别放这让人绝望的影像了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 3646#       发表于 2021-10-30 17:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  优妮可  
+##### 3647#       发表于 2021-10-30 17:44
+
+
+这种事不要啊
+
+
+*****
+
+####  chenflyyy  
+##### 3648#       发表于 2021-10-30 17:45
+
+
+刚好可以趁这个时间去厕所，挺好挺好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3649#       发表于 2021-10-30 17:45
+
+
+大家，厕所时间啊
+
+
+*****
+
+####  iuhehc  
+##### 3650#       发表于 2021-10-30 17:45
+
+
+把鼓掌剪掉吧球球了
+
+
+*****
+
+####  cybernetics31  
+##### 3651#       发表于 2021-10-30 17:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">…………啊这放的
+
+
+*****
+
+####  Arccueid  
+##### 3652#       发表于 2021-10-30 17:45
+
+
+不要啊这种事情不要啊
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  寒风夜  
+##### 3653#       发表于 2021-10-30 17:45
+
+
+休息下
+
+
+*****
+
+####  Norkey1  
+##### 3654#       发表于 2021-10-30 17:46
+
+
+没准人家还觉得这段挺好的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 3655#       发表于 2021-10-30 17:46
+
+
+<img src="https://img.saraba1st.com/forum/202110/30/174628eciwduulpplwnulp.png" referrerpolicy="no-referrer">
+
+
+<strong>FC8BTk6aIAAKUdn-orig.png</strong> (74.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-30 17:46 上传
+
+
+[https://twitter.com/KitaharaTomoe/status/1454382932798304256](https://twitter.com/KitaharaTomoe/status/1454382932798304256)
+
+
+*****
+
+####  lanslort  
+##### 3656#       发表于 2021-10-30 17:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再看一遍这剧情还是觉得好弱智啊
+
+
+*****
+
+####  稀勢のささ  
+##### 3657#       发表于 2021-10-30 17:47
+
+
+这绝望的影像
+
+
+*****
+
+####  iuhehc  
+##### 3658#       发表于 2021-10-30 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341526&amp;ptid=2028598" target="_blank">AlfredXC 发表于 2021-10-30 17:46</a>
+
+https://twitter.com/KitaharaTomoe/status/1454382932798304256</blockquote>
+太草
+
+
+*****
+
+####  千千千千鸟  
+##### 3659#       发表于 2021-10-30 17:47
+
+
+这播片真是久<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 3660#       发表于 2021-10-30 17:47
+
+
+要鼓掌了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">要鼓掌了！
+
+
+
+
+*****
+
+####  cybernetics31  
+##### 3661#       发表于 2021-10-30 17:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">换衣服，凑活看了
+
+
+*****
+
+####  kata魂  
+##### 3662#       发表于 2021-10-30 17:48
+
+
+嗨呀  看到别人发的常夏了，这首果然没让我失望，真的要看现场的，喜欢常夏那种活力感
+
+
+*****
+
+####  iuhehc  
+##### 3663#       发表于 2021-10-30 17:48
+
+
+令人绝望的鼓掌影像
+
+
+*****
+
+####  秋月艾莉  
+##### 3664#       发表于 2021-10-30 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得导演剪辑版好很多
+
+本来恋回的问题就是细节抽走太多，再多抽几发只留下关键镜头其他都脑补反而变好了
+
+
+*****
+
+####  chenflyyy  
+##### 3665#       发表于 2021-10-30 17:48
+
+
+终于结束了，还是三次元温暖人心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 3666#       发表于 2021-10-30 17:48
+
+
+👏👏👏👏
+
+
+*****
+
+####  iuhehc  
+##### 3667#       发表于 2021-10-30 17:49
+
+
+wishsong来了吧
+
+
+*****
+
+####  AlfredXC  
+##### 3668#       发表于 2021-10-30 17:49
+
+
+所以到底为什么要鼓掌啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 3669#       发表于 2021-10-30 17:49
+
+
+虚晃一枪，居然不是wish<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 3670#       发表于 2021-10-30 17:49
+
+
+瞬きの先へ
+
+
+*****
+
+####  中野四葉  
+##### 3671#       发表于 2021-10-30 17:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">再看一遍还是没想通恋怎么能连她妈说啥都忘了
+
+
+*****
+
+####  chenflyyy  
+##### 3672#       发表于 2021-10-30 17:50
+
+
+这首我觉得比wish song更合适（
+
+
+*****
+
+####  lj205  
+##### 3673#       发表于 2021-10-30 17:50
+
+
+这衣服可以
+
+
+*****
+
+####  千千千千鸟  
+##### 3674#       发表于 2021-10-30 17:51
+
+
+站上面的2个打光好差，脸都绿了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3675#       发表于 2021-10-30 17:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又有可香又有可堇对视，我死了
+
+
+*****
+
+####  cybernetics31  
+##### 3676#       发表于 2021-10-30 17:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">穿的白丝
+
+
+*****
+
+####  player3960  
+##### 3677#       发表于 2021-10-30 17:52
+
+
+青山姐的芭蕾<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chenflyyy  
+##### 3678#       发表于 2021-10-30 17:52
+
+
+不愧是练过芭蕾的
+
+
+*****
+
+####  iuhehc  
+##### 3679#       发表于 2021-10-30 17:52
+
+
+nagi这舞！
+
+
+*****
+
+####  Karin11974  
+##### 3680#       发表于 2021-10-30 17:52
+
+
+牛逼，还要什么二次元啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3681#       发表于 2021-10-30 17:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3682#       发表于 2021-10-30 17:52
+
+
+这首确实比wish song好很多
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  x分裂者  
+##### 3683#       发表于 2021-10-30 17:53
+
+
+<img src="https://p.sda1.dev/3/5828dd5e21f2629d6e46d39a7283c1a3/-337c23271dc63e17.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 3684#       发表于 2021-10-30 17:53
+
+
+跳起来真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3685#       发表于 2021-10-30 17:53
+
+
+来了
+
+
+*****
+
+####  千千千千鸟  
+##### 3686#       发表于 2021-10-30 17:53
+
+
+这服装，实际穿出来观感比动画好啊。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3687#       发表于 2021-10-30 17:53
+
+
+原来是瞬きの先へ接wishsong啊
+
+
+*****
+
+####  chenflyyy  
+##### 3688#       发表于 2021-10-30 17:55
+
+
+扇脸了（x
+
+
+*****
+
+####  chenflyyy  
+##### 3689#       发表于 2021-10-30 17:55
+
+
+扇脸了（x
+
+
+*****
+
+####  Arccueid  
+##### 3690#       发表于 2021-10-30 17:57
+
+
+感觉跟鲤鱼c一样
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+*****
+
+####  优妮可  
+##### 3691#       发表于 2021-10-30 17:58
+
+
+中间略突出
+
+
+*****
+
+####  cybernetics31  
+##### 3692#       发表于 2021-10-30 17:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼这白丝穿得更显得腿粗了
+
+
+*****
+
+####  Arccueid  
+##### 3693#       发表于 2021-10-30 18:00
+
+
+好耶！
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  lj205  
+##### 3694#       发表于 2021-10-30 18:00
+
+
+这wish Song我老觉得鲤鱼也是c
+
+
+*****
+
+####  秋月艾莉  
+##### 3695#       发表于 2021-10-30 18:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">又来了，可香操盘手
+
+
+*****
+
+####  cybernetics31  
+##### 3696#       发表于 2021-10-30 18:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香头子了
+
+
+*****
+
+####  中野四葉  
+##### 3697#       发表于 2021-10-30 18:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">pay这白丝就很好，我可以
+
+
+*****
+
+####  lj205  
+##### 3698#       发表于 2021-10-30 18:02
+
+
+我真是太佩服鲤鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">休息还抓紧刷微博
+
+
+*****
+
+####  chenflyyy  
+##### 3699#       发表于 2021-10-30 18:02
+
+
+白丝真棒啊，这套也是比动画好看许多
+
+
+*****
+
+####  chenflyyy  
+##### 3700#       发表于 2021-10-30 18:04
+
+
+才刚开始后半程？一个半小时了，那得快3小时吗
+
+
+*****
+
+####  寒风夜  
+##### 3701#       发表于 2021-10-30 18:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">方便真人了
+
+
+*****
+
+####  lj205  
+##### 3702#       发表于 2021-10-30 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341709&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-30 17:59</a>
+鲤鱼这白丝穿得更显得腿粗了</blockquote>
+我觉得挺好的啊
+
+
+*****
+
+####  Arccueid  
+##### 3703#       发表于 2021-10-30 18:04
+
+
+来了，non fiction
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  iuhehc  
+##### 3704#       发表于 2021-10-30 18:04
+
+
+这身衣服？
+
+
+*****
+
+####  稀勢のささ  
+##### 3705#       发表于 2021-10-30 18:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">那这个强度也太离谱了
+
+
+*****
+
+####  chenflyyy  
+##### 3706#       发表于 2021-10-30 18:05
+
+
+没有吊带袜了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 3707#       发表于 2021-10-30 18:05
+
+
+怎么是这身衣服唱啊！我的吊带呢！！
+
+
+*****
+
+####  秋月艾莉  
+##### 3708#       发表于 2021-10-30 18:05
+
+
+你马的，nofiction的衣服直接没了
+
+
+*****
+
+####  AlfredXC  
+##### 3709#       发表于 2021-10-30 18:05
+
+
+没有吊带袜了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3710#       发表于 2021-10-30 18:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3711#       发表于 2021-10-30 18:06
+
+
+是没做吗？还是没时间换？
+
+
+*****
+
+####  chenflyyy  
+##### 3712#       发表于 2021-10-30 18:06
+
+
+那套不太健全被砍了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

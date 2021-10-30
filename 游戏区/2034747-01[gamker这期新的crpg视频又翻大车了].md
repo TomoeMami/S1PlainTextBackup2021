@@ -850,3 +850,78 @@ pathfinder的规则书好像正赶上国内桌游圈众筹起步。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  Algie  
+##### 79#       发表于 2021-10-30 17:27
+
+
+其实之前讲博德的时候就很可疑了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 80#       发表于 2021-10-30 17:31
+
+
+我也不懂crpg，我只想知道为啥他明明游戏都没拿出手却出了好几个教人做游戏的视频，像这种除了评测还有一堆其他业务的自媒体我是不信会有时间玩游戏的
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  773na7  
+##### 81#       发表于 2021-10-30 17:32
+
+
+但凡他有个dnd群都能看到有人玩pf
+云跑团都不算了，云云跑团
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  千千千千鸟  
+##### 82#       发表于 2021-10-30 17:35
+
+
+实在太烂，这期看完我直接取关了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  移除参数  
+##### 83#       发表于 2021-10-30 17:55
+
+
+印象最深的是他说ff7是ps2游戏
+
+
+*****
+
+####  seedees3  
+##### 84#       发表于 2021-10-30 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341672&amp;ptid=2034747" target="_blank">移除参数 发表于 2021-10-30 17:55</a>
+
+印象最深的是他说ff7是ps2游戏</blockquote>
+因为他错过了整个PS、PS2时代，光论这点就该被开除出婆罗门籍
+
+
+*****
+
+####  bad_alloc  
+##### 85#       发表于 2021-10-30 18:03
+
+
+草, 原话如此? 那岂不是连游戏标题都没看就做视频了
+
+
