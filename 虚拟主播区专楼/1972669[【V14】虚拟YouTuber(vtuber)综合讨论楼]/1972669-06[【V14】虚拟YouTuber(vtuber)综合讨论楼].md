@@ -7535,3 +7535,19 @@ Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情
 自从他憋半年搞了个大的出来，现在我就算有时也会想抱怨他不参加大会不上live不多播一点etc，最后都一转“他还在当v就不错了还想怎么样呢”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fastary  
+##### 8024#       发表于 2021-10-31 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356833&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-10-31 22:56</a>
+
+其实今年也有一些试图发掘新方向的线下活动，比如シェリン＆三枝 最初の事件，3Dイベント『NIJISANJI SHO ...</blockquote>
+那倒也是，3devent当时虹楼repo也根本不如live热度……可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+说实话就日本疫情发展很可能就live吧……我个人是想多看看3rd免费直播的那些企划类联动的，也不知道今年怎么样
+
+
