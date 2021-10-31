@@ -11419,3 +11419,108 @@ mmy在2nd那会儿就又跳又打又唱，连着好几首revue曲，那确实是
 第二天有鲤鱼solo不亏
 
 
+
+
+*****
+
+####  kata魂  
+##### 3995#       发表于 2021-10-31 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351194&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-31 14:12</a>
+
+第二天有鲤鱼solo不亏</blockquote>
+要是有那就是我赚了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3996#       发表于 2021-10-31 14:25
+
+
+下午有事啊，看不了，只能抽空看看大伙的文字直播
+
+
+*****
+
+####  lj205  
+##### 3997#       发表于 2021-10-31 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351275&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-31 14:21</a>
+要是有那就是我赚了</blockquote>
+昨天没有今天还没有就过份了
+
+
+*****
+
+####  AlfredXC  
+##### 3998#       发表于 2021-10-31 14:33
+
+
+还在路上，到家估计得3点了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 3999#       发表于 2021-10-31 14:33
+
+
+来了来了
+
+
+*****
+
+####  chenflyyy  
+##### 4000#       发表于 2021-10-31 14:36
+
+
+下午有事看不了，等大家文字repo看看有什么不同了，现在开始了吧？
+
+
+*****
+
+####  普之舜舜  
+##### 4001#       发表于 2021-10-31 14:38
+
+
+开始了，现在是op那个衣服
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4002#       发表于 2021-10-31 14:38
+
+
+我网页卡死我了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Arccueid  
+##### 4003#       发表于 2021-10-31 14:39
+
+
+青山姐好高扬
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  普之舜舜  
+##### 4004#       发表于 2021-10-31 14:39
+
+
+pay酱嗓子哑了吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
