@@ -7049,3 +7049,95 @@ react还没放弃折腾啊<img src="https://static.saraba1st.com/image/smiley/fa
 我KING呢？
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7988#       发表于 2021-10-31 18:23
+
+
+ 本帖最后由 FCCHua 于 2021-10-31 18:35 编辑 
+
+小偶像终于又要大放异彩了吗<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+有夜见和阿巴是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+谢林的3d至今没正式披露，但是已经有两套了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fastary  
+##### 7989#       发表于 2021-10-31 18:24
+
+
+为什么我明明是入的主播圈却总会由衷感叹“会唱歌真好啊”呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|思路广|
+
+
+查看全部评分
+
+
+*****
+
+####  ヒトニナル  
+##### 7990#       发表于 2021-10-31 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种cgss周年每人发一套新衣服的感觉
+
+
+*****
+
+####  渡鸦骑士  
+##### 7991#       发表于 2021-10-31 18:29
+
+
+彩虹每次都是立绘让人馋的很啊。
+这次可以PK一下制服了.png
+
+
+*****
+
+####  winda  
+##### 7992#       发表于 2021-10-31 18:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">阿葵在polka联动回里说过想要统一偶像服，终于实现了啊
+虽然自己没份
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|...T.T|
+
+
+查看全部评分
+
+
+*****
+
+####  OldGlory  
+##### 7993#       发表于 2021-10-31 18:38
+
+
+男女一分开立马偶像服安排上了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太懂了
+
+

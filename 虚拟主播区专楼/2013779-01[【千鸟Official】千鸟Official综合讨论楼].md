@@ -12657,3 +12657,23 @@ hoya是吧
 唉，真的好羡慕，隔壁繁花似锦烈火烹油的盛世，只要千鸟能不散，我愿化身饭圈
 
 
+
+
+*****
+
+####  丢了五块钱  
+##### 1068#       发表于 2021-10-31 18:40
+
+
+白白房间开始四人大乱斗了，艾瑞思放飞自我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  H2Ofrozen  
+##### 1069#       发表于 2021-10-31 18:41
+
+
+这直播间好抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
