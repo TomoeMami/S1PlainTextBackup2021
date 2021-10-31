@@ -12384,3 +12384,240 @@ pay怎么样了，撑的住吗？
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  player3960  
+##### 4087#       发表于 2021-10-31 16:44
+
+
+鲤鱼真是深藏不露啊，平时省电，外景迟钝都是表象吗，真的好稳啊！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  soranoguiji  
+##### 4088#       发表于 2021-10-31 16:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上尉这战损有点严重啊，应该学学怎么省电了
+
+
+*****
+
+####  寒风夜  
+##### 4089#       发表于 2021-10-31 16:46
+
+
+ 本帖最后由 寒风夜 于 2021-10-31 16:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">因为疫情取消了水不少演唱会 这么ptsd么，一开始就巡演这么多地避险。运营还是想想后面咋搞吧
+
+
+*****
+
+####  稀勢のささ  
+##### 4090#       发表于 2021-10-31 16:47
+
+
+昨天那第一次可以理解  休息几天可以自己总结下经验   倒不用那么担心  
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是我想知道运营真就没法来点作用吗 还是说这本身也是计划的一环
+
+
+*****
+
+####  kata魂  
+##### 4091#       发表于 2021-10-31 16:47
+
+
+ 本帖最后由 kata魂 于 2021-10-31 16:48 编辑 
+
+现在看纪录片还是觉得这五个人好强····正确的五个人啊，啥时候带领我们冲击s12冠军啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4092#       发表于 2021-10-31 16:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">这场完了后面得想想力度了 
+
+
+*****
+
+####  ads147147  
+##### 4093#       发表于 2021-10-31 16:53
+
+
+感觉鲤鱼在live上把自己生放送省下的笑容都放出来了。。
+
+
+*****
+
+####  Arccueid  
+##### 4094#       发表于 2021-10-31 16:55
+
+
+拉啪啪
+
+
+*****
+
+####  iuhehc  
+##### 4095#       发表于 2021-10-31 16:55
+
+
+曲子换了
+
+
+*****
+
+####  player3960  
+##### 4096#       发表于 2021-10-31 16:55
+
+
+lababa来咯
+
+
+*****
+
+####  player3960  
+##### 4097#       发表于 2021-10-31 16:56
+
+
+ 本帖最后由 player3960 于 2021-10-31 16:57 编辑 
+
+立德你啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绯想alter2nd  
+##### 4098#       发表于 2021-10-31 16:57
+
+
+刚刚小百合是不是搞了(⊙8⊙)
+
+
+*****
+
+####  cybernetics31  
+##### 4099#       发表于 2021-10-31 16:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼近半年增肌的好处不就体现出来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按这趋势立德后面怕不是也得吃圆一圈
+
+
+*****
+
+####  cxj649  
+##### 4100#       发表于 2021-10-31 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53352823&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-31 16:58</a>
+
+鲤鱼近半年增肌的好处不就体现出来了
+
+按这趋势立德后面怕不是也得吃圆一圈 ...</blockquote>
+复刻新田吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 4101#       发表于 2021-10-31 17:01
+
+
+心疼pay宝
+
+
+*****
+
+####  寒风夜  
+##### 4102#       发表于 2021-10-31 17:01
+
+
+铁人啊真
+
+
+*****
+
+####  AlfredXC  
+##### 4103#       发表于 2021-10-31 17:02
+
+
+额头全是汗，真是累了
+
+
+*****
+
+####  lj205  
+##### 4104#       发表于 2021-10-31 17:02
+
+
+佩佩辛苦了，太拼了
+
+
+*****
+
+####  iuhehc  
+##### 4105#       发表于 2021-10-31 17:02
+
+
+佩佩...
+
+
+*****
+
+####  普之舜舜  
+##### 4106#       发表于 2021-10-31 17:02
+
+
+pay酱哭了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4107#       发表于 2021-10-31 17:03
+
+
+真的不容易，心疼这个小姑娘，感觉星团三次元真的捡到宝了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  chenflyyy  
+##### 4108#       发表于 2021-10-31 17:03
+
+
+轮到pay酱哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 4109#       发表于 2021-10-31 17:04
+
+
+pay酱挺自责自己的嗓子哑了导致唱不好。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  player3960  
+##### 4110#       发表于 2021-10-31 17:05
+
+
+果然偶像...在舞台上燃烧自己的身姿才是最美的啊！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+

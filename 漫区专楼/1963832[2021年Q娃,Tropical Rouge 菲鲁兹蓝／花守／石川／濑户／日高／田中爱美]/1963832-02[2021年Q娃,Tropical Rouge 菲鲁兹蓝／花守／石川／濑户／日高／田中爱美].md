@@ -10666,3 +10666,25 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  leleq  
+##### 2275#       发表于 2021-10-31 17:03
+
+
+罗拉换装可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+演到一半 艹前面整活回都有的变身跳过了？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+从这集和前面的灵魂互换回来看这个“吸干劲”是骗人的真实是吸灵魂
+
+夏夏被破防自己具像化 “我中箭了”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+最后罗拉不是装成“机械”人鱼了么 怎么飞鸟还说“没意义”？
+
+
+一方面第二季好啊我想再看一年屑人鱼和夏夏 一方面又担心热Q这种靠整活保证的片第二年会质量下降<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

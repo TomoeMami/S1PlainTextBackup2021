@@ -2368,3 +2368,16 @@ emmi是坂本对银河战士的一个突破没啥问题，我看羽毛之类的�
 甲方捡到宝了
 
 
+
+
+*****
+
+####  九味小吃  
+##### 196#       发表于 2021-10-31 17:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这下洗粉了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
