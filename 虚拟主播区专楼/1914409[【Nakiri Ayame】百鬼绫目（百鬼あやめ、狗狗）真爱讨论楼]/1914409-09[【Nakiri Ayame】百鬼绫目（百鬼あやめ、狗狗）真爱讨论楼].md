@@ -16482,3 +16482,25 @@ Sana这次是家里有事猫死了，虽然是休的有点久但还是没法和�
 軟輔，永遠的神
 
 
+
+
+*****
+
+####  秋月孝三  
+##### 13392#       发表于 2021-10-31 11:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">声音绫总是谁？每说三句话就要扑哧一笑的绿lamy吗？
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Fami水  
+##### 13393#       发表于 2021-10-31 11:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">猫头鹰吧，刚出来不是楼友说可以当代餐
+
+

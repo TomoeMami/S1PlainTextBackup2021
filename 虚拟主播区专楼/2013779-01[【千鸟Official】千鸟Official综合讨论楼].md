@@ -12311,3 +12311,29 @@ BV1xr4y1C7Ln
 就喜欢看懒狗被逼着不情愿的坐在电脑前开播的狼狈模样👿
 
 
+
+
+*****
+
+####  tankai  
+##### 1038#       发表于 2021-10-31 11:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53349511&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-10-31 11:16</a>
+说话声音那么轻，是因为太累了么。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 S1Next-鹅版 v2.5. ...</blockquote>
+昨天。。。。。养养身子
+
+
+*****
+
+####  tn_teana  
+##### 1039#       发表于 2021-10-31 11:37
+
+
+看一回少一回，狠狠的对坏女人入脑了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

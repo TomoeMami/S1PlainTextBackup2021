@@ -16050,3 +16050,76 @@ tc
 吃啥了这是<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">点进去就听着喊辣辣辣
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 4390#       发表于 2021-10-31 11:31
+
+
+ 本帖最后由 时间在我手中 于 2021-10-31 11:32 编辑 
+
+草，起床晒衣服刷牙怎么就播了20分钟了
+
+syl  这人昨天播了啥玩意儿都不记得了，支离破碎的身体死撑着开播是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 4391#       发表于 2021-10-31 11:33
+
+
+好
+
+
+*****
+
+####  时间在我手中  
+##### 4392#       发表于 2021-10-31 11:34
+
+
+下次图奇打游戏是一个人的样子
+
+
+*****
+
+####  T_Hb  
+##### 4393#       发表于 2021-10-31 11:34
+
+
+单排坑路人是吧
+
+
+*****
+
+####  时间在我手中  
+##### 4394#       发表于 2021-10-31 11:35
+
+
+ 本帖最后由 时间在我手中 于 2021-10-31 11:41 编辑 
+
+不肯打游戏开播的原因找到了）和宅宅一起玩感觉都要变成零距离了，整的肥婆都要神经衰弱（Neurose）了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好像是选票权啥的没拿，便乘犯罪者（自称）了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原因大概是因为收件箱那块总是堆着一堆玩意儿这货可能直接丢了
+
+
+*****
+
+####  T_Hb  
+##### 4395#       发表于 2021-10-31 11:41
+
+
+NHK又来了
+
+
+*****
+
+####  时间在我手中  
+##### 4396#       发表于 2021-10-31 11:43
+
+
+NHK这么哈人的吗，进来就让你签点啥的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
