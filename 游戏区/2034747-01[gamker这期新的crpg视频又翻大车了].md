@@ -1900,3 +1900,30 @@ gamker之前长期停更+视频质量下滑，看到密特罗德那期之后取�
 他出的视频，我是属于偶尔有时间就看看只看关心的游戏，因为从最早优酷时期就关注了，所以在b站也跟着关注了。我最不能忍的是强行给博得3改战斗系统洗地
 
 
+
+
+*****
+
+####  lhh_ah  
+##### 163#       发表于 2021-10-31 08:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343880&amp;ptid=2034747" target="_blank">滋啦球 发表于 2021-10-30 20:47</a>
+最近看这个人还是因为他做了一期into the breach, 吹得方向相当奇怪是说能从8*8的格子里玩出巨型机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你不说我都忘了这回事了，那一期我还准备看看怎么吹结果看下来尴尬的一塌糊涂，根本没讲到点上……
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  第四人称  
+##### 164#       发表于 2021-10-31 08:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53347589&amp;ptid=2034747" target="_blank">konata422 发表于 2021-10-31 02:18</a>
+
+狗蛋恰饭时候都会给面子，而且我没找到比较明显的恰饭标志。现在就当看看有什么新游戏了。他的关注面比我自 ...</blockquote>
+emmi确实是坂本贺勇对密特罗德的新尝试，之前dread两次开发终止沉寂19年有部分原因就是机能不足做不了emmi
+
+
