@@ -16603,3 +16603,14 @@ syl  差点一打二，但是谁给你的自信能4发子弹一个的，丢了
 syl，你咩姐跟朋友一起打过valo之前应该也是说过的，稍微懂点这游戏也正常罢
 
 
+
+
+*****
+
+####  Klience  
+##### 4440#       发表于 2021-11-1 07:42
+
+
+一场排位一场匹配还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
