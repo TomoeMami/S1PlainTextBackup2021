@@ -12049,3 +12049,139 @@ liella之歌三首都不变的话，剩下的应该就和昨天一样了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  kata魂  
+##### 4055#       发表于 2021-10-31 15:41
+
+
+阿西吧，我已经不看画面了为什么还能想起第八集
+
+
+*****
+
+####  iuhehc  
+##### 4056#       发表于 2021-10-31 15:44
+
+
+不要谜之鼓掌不要谜之鼓掌<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 4057#       发表于 2021-10-31 15:44
+
+
+加了很多详细的剧情，哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过让他们多休息好就行
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4058#       发表于 2021-10-31 15:45
+
+
+但是这播的是写的不好的恋恋回，花田你出来挨打
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 4059#       发表于 2021-10-31 15:46
+
+
+如果还这样安排，说不定鲤鱼都不会有solo，我话放这，欢迎官方光速打我脸
+
+
+*****
+
+####  iuhehc  
+##### 4060#       发表于 2021-10-31 15:46
+
+
+pay酱的嗓子啊.......
+
+
+*****
+
+####  kata魂  
+##### 4061#       发表于 2021-10-31 15:47
+
+
+额滴paypay啊
+
+
+*****
+
+####  player3960  
+##### 4062#       发表于 2021-10-31 15:54
+
+
+鲤鱼和青山还是那么稳，可惜爱莫能助啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Arccueid  
+##### 4063#       发表于 2021-10-31 15:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">什么和谐三人行
+
+
+*****
+
+####  Karin11974  
+##### 4064#       发表于 2021-10-31 15:58
+
+
+之前生放还是哪里看到鲤鱼也是叫打铁这个姓的，然后打铁个人广播里也说自己比起sayurin对打铁酱这个昵称更有亲近感
+
+
+*****
+
+####  kata魂  
+##### 4065#       发表于 2021-10-31 15:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是再演什么修罗场小剧场吗
+
+
+*****
+
+####  秋月艾莉  
+##### 4066#       发表于 2021-10-31 16:02
+
+
+叫过好多次打铁了，怎么现在才编排不仲（不是
+
+当没有其他人叫打铁的时候，鲤鱼叫打铁就是可香糖！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 4067#       发表于 2021-10-31 16:02
+
+
+pay开头好吃力……
+
+
+*****
+
+####  中野四葉  
+##### 4068#       发表于 2021-10-31 16:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">哎，这后面几场咋办啊
+
+

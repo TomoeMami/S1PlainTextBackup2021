@@ -6119,3 +6119,46 @@ tianlangistl
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头飙车警告
 
 
+
+
+*****
+
+####  武男  
+##### 55955#       发表于 2021-10-31 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53327669&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-10-29 15:08</a>
+
+转自hupu：
+
+
+海贼王几个地方这么改会不会更合理？</blockquote>
+小马哥的表现够了啊，他能缠住大妈，又用力量给几千人奶，还要对上KQ。KQ不要面子的嘛，好歹也是凯多手下悬赏破十亿的家伙。
+
+
+*****
+
+####  zxzx7753  
+##### 55956#       发表于 2021-10-31 15:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53350835&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2021-10-31 13:31</a>
+
+公认归公认，但尾田说和船队队长地位是一致的，不存在谁地位更高或者更低
+
+ ...</blockquote>
+就一个老爹顶前面   大家都是儿子   整体气氛自然就没啥高低了
+
+
+*****
+
+####  C男人  
+##### 55957#       发表于 2021-10-31 15:58
+
+
+马尔高一脚踹翻大妈全团，
+
+
+已经抢足面子了。
+
+
