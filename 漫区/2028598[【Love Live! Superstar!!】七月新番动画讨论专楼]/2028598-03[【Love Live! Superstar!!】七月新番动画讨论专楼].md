@@ -12749,3 +12749,130 @@ pay酱真的可爱
 安可第二首换成lapapa了，总量应该是一样的，前面顺序有点不同
 
 
+
+
+*****
+
+####  lj205  
+##### 4124#       发表于 2021-10-31 17:25
+
+
+辛苦了，这两天开心的像跟过年一样。
+
+
+但是接下来18场还这么安排，我只能同情佩佩和岬了，鲤鱼就存体力全力应对自己的演唱会吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4125#       发表于 2021-10-31 17:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">想想办法吧
+
+
+*****
+
+####  优妮可  
+##### 4126#       发表于 2021-10-31 17:31
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173140uxoe9khvp28583vh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_164519.jpg</strong> (346.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173140h7sh37p55q5nuq7j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_164521.jpg</strong> (335.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173141bf573d30lk5fmmbi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_164532.jpg</strong> (296.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173141aor7a6q6ixia7tt2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_164548.jpg</strong> (320.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173141v5ttewwv60vewt50.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_164550.jpg</strong> (406 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173142dehq8519858zgrng.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_164537.jpg</strong> (381.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:31 上传
+
+
+*****
+
+####  优妮可  
+##### 4127#       发表于 2021-10-31 17:34
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173453ycjjj3lzjlgs8egs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_173257.jpg</strong> (493 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/173454o3mffo5wg5j6oz16.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_173305.jpg</strong> (496.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 17:34 上传
+
+
+*****
+
+####  秋月艾莉  
+##### 4128#       发表于 2021-10-31 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53352526&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-10-31 16:31</a>
+
+今天居然连推特趋势都没上，果然昨天都燃尽了吗，有点怀疑之后场次能不能撑住，一刷倒是隔壁管人场 ...</blockquote>
+上了啊，现在在第五
+
+
