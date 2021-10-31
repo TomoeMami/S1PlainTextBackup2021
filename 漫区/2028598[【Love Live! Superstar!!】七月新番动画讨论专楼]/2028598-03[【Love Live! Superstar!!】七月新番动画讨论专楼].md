@@ -11661,3 +11661,216 @@ v4v4v4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  kata魂  
+##### 4018#       发表于 2021-10-31 15:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">就算小百合是铁打的也不能这么糟蹋啊，20场啊卧槽
+
+
+*****
+
+####  iuhehc  
+##### 4019#       发表于 2021-10-31 15:05
+
+
+小星星又要来了
+
+/L
+
+
+*****
+
+####  lj205  
+##### 4020#       发表于 2021-10-31 15:05
+
+
+鲤鱼稳啊好稳
+
+
+
+
+*****
+
+####  lj205  
+##### 4021#       发表于 2021-10-31 15:05
+
+
+打铁赶紧提升一下唱歌技巧，再这样下去嗓子会坏掉的
+
+
+*****
+
+####  普之舜舜  
+##### 4022#       发表于 2021-10-31 15:05
+
+
+小⭐⭐又来了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Arccueid  
+##### 4023#       发表于 2021-10-31 15:06
+
+
+小星星来了
+
+
+*****
+
+####  普之舜舜  
+##### 4024#       发表于 2021-10-31 15:11
+
+
+昨天也是站在那么高的台吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  caicaistar  
+##### 4025#       发表于 2021-10-31 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351457&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-10-31 14:46</a>
+
+叫姓不叫名 不仲了！
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">看不了直播，细说
+
+
+*****
+
+####  Arccueid  
+##### 4026#       发表于 2021-10-31 15:12
+
+
+今天手不用伸直了
+
+
+*****
+
+####  iuhehc  
+##### 4027#       发表于 2021-10-31 15:12
+
+
+ 本帖最后由 iuhehc 于 2021-10-31 15:13 编辑 
+
+虽然昨天看过了但还是绷不住了/L
+
+
+今天好很多了，好像是站近了一点
+
+
+*****
+
+####  Arccueid  
+##### 4028#       发表于 2021-10-31 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351724&amp;ptid=2028598" target="_blank">caicaistar 发表于 2021-10-31 15:12</a>
+
+看不了直播，细说</blockquote>
+没什么，就MC环节聊早上吃啥鲤鱼说的是打铁不是鲨鱼林
+
+
+*****
+
+####  普之舜舜  
+##### 4029#       发表于 2021-10-31 15:14
+
+
+鲤鱼合唱有适当提高自己声音，互相帮助，多好呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Arccueid  
+##### 4030#       发表于 2021-10-31 15:15
+
+
+顺序跟昨天不太一样了
+
+
+*****
+
+####  kata魂  
+##### 4031#       发表于 2021-10-31 15:15
+
+
+可能昨天看截图看多了，今天看起来没那么草
+
+
+顺便，我终于体会到小千在台下的心情了，这担心起来台下都紧张的要死
+
+
+*****
+
+####  普之舜舜  
+##### 4032#       发表于 2021-10-31 15:16
+
+
+她们嗓子都有点哑了，这什么企划，心疼呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 4033#       发表于 2021-10-31 15:17
+
+
+大家开始习惯这身高差了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 4034#       发表于 2021-10-31 15:17
+
+
+感觉小星星的舞蹈最好也只能这样了，这身高差是真没办法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kata魂  
+##### 4035#       发表于 2021-10-31 15:18
+
+
+动画动画做不好，安排曲次消耗人，这啥运营啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4036#       发表于 2021-10-31 15:19
+
+
+小星星的舞我觉得主要是衣服拉分太多
+
+
+*****
+
+####  Arccueid  
+##### 4037#       发表于 2021-10-31 15:19
+
+
+常夏还是直接唱
+
+

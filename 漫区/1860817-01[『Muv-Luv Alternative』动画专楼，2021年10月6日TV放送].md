@@ -18497,3 +18497,24 @@ tv（深夜）动画的尺度，真的能做出名场面和beta世界纯夏的�
 —— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 1277#       发表于 2021-10-31 15:21
+
+
+<blockquote>引用第1274楼心灵的乳头于2021-10-30 16:02发表的  :
+
+副司令的电脑操作系统看界面是win98?</blockquote>
+？？？
+98默认工具栏是灰色。
+XP工具栏是蓝色，开始按钮是绿色。
+
+这不是一眼就能看出来的吗？
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
