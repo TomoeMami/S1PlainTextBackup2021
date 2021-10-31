@@ -1927,3 +1927,56 @@ gamker之前长期停更+视频质量下滑，看到密特罗德那期之后取�
 emmi确实是坂本贺勇对密特罗德的新尝试，之前dread两次开发终止沉寂19年有部分原因就是机能不足做不了emmi
 
 
+
+
+*****
+
+####  jf8350143  
+##### 165#       发表于 2021-10-31 08:46
+
+
+ 本帖最后由 jf8350143 于 2021-10-31 08:51 编辑 
+
+crpg他完全不懂这点，之前的柱子2和神界原罪2测评就已经很明显了，不知道为啥那会没人觉得翻车……大概这次直接“版权问题”糊脸太过直球了？
+
+
+另外都2021年底了，哪怕是从柱子1开始入坑玩crpg都已经七年了，无冬什么的更是十年往上了。
+
+我觉得crpg老害没必要定的那么高标准要在当初玩精通过博得12了……那批人都四十多了你让他们来搞自媒体吗……
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 166#       发表于 2021-10-31 08:59
+
+
+昨天开始打M5 空下来看了他的视频，讲的都是什么玩意儿？
+
+
+*****
+
+####  毒菇  
+##### 167#       发表于 2021-10-31 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341761&amp;ptid=2034747" target="_blank">bad_alloc 发表于 2021-10-30 18:03</a>
+
+草, 原话如此? 那岂不是连游戏标题都没看就做视频了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏标题看了，但是这位“CRPG老玩家”看来是压根不知道有Pathfinder这个规则，看他的意思，以为Pathfinder是毛子做游戏的自有IP呢，还有一句“祝开拓者这个系列越做越好”
+
+
+*****
+
+####  瓜苗乐章  
+##### 168#       发表于 2021-10-31 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343880&amp;ptid=2034747" target="_blank">滋啦球 发表于 2021-10-30 20:47</a>
+最近看这个人还是因为他做了一期into the breach, 吹得方向相当奇怪是说能从8*8的格子里玩出巨型机 ...</blockquote>
+说明他的粉丝也是云的
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
