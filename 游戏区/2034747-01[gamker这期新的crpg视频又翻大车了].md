@@ -2396,3 +2396,17 @@ emmi是坂本对银河战士的一个突破没啥问题，我看羽毛之类的�
 疯猫的最大优势就是不谈自己不了解的东西，比如他作为一个PC master race，就从来不谈任天堂，而且游戏杂谈类节目天然争议就会更少一点
 
 
+
+
+*****
+
+####  尤伽  
+##### 198#       发表于 2021-10-31 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53350886&amp;ptid=2034747" target="_blank">茛菪 发表于 2021-10-31 13:36</a>
+
+其实这期被锤本质就是因为没有狠吹吧，什么“侵权”“剧情没自由度”骂的有够难听了，这才让玩家跳脚了。之 ...</blockquote>
+事实上尬吹也是会犯错的，参考宝可梦去皮去伊那期<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
