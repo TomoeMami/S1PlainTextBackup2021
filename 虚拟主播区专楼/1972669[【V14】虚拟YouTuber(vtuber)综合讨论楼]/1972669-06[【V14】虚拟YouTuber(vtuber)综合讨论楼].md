@@ -7551,3 +7551,23 @@ Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情
 说实话就日本疫情发展很可能就live吧……我个人是想多看看3rd免费直播的那些企划类联动的，也不知道今年怎么样
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 8025#       发表于 2021-11-1 00:37
+
+
+郡郡喷喷大会跟之前定的旅游计划撞上了还行，我是没什么所谓了反正冠过了，祈祷不要被队友粉丝骂惹<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">（不过这队是运营组的要骂还是骂运营罢！）
+
+
+*****
+
+####  hulaoda007  
+##### 8026#       发表于 2021-11-1 00:39
+
+
+社那组好像不错。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

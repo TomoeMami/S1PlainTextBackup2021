@@ -2800,3 +2800,16 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">没人跳? 萌新先豹为敬
 
 
+
+
+*****
+
+####  rooarr  
+##### 84225#       发表于 2021-11-1 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356963&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-31 23:07</a>
+没人跳? 萌新先豹为敬</blockquote>
+太豹了太豹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以杀掉了
+
+

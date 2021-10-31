@@ -16541,3 +16541,112 @@ Sana这次是家里有事猫死了，虽然是休的有点久但还是没法和�
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  nian1538  
+##### 13397#       发表于 2021-11-1 00:20
+
+
+ 本帖最后由 nian1538 于 2021-11-1 00:23 编辑 
+
+4chan绫总金句选集：
+
+It's been 20 hours since Ayame last played "LoL" 
+
+I'm glad that she's alive but she's definitely not doing ok. I hope she streams soon. 
+
+
+I'll marry Mio and become Ayame's dad so I can finally beat some sense into her.
+
+
+BS aside, did Ayame give a more recent reason why she doesn't stream like at all anymore? 
+
+She previously said it was because of moving and internet reasons, but it has been months. 
+
+Marine is literally coming back from a 1 month break tomorrow and she might have more streams this month than Ayame.
+
+
+&gt;Disappear for 3 months
+
+&gt;Show up to celebrate 1 million subscribers
+
+&gt;Disappear again
+
+&gt;Show up to celebrate 3 year anniversary
+
+I don't think there's a single hololive member who will ever take hololive less seriously than Ayame, she literally doesn't give a single fuck.
+
+How shameless can one possibly be? the best part is that Ayame doesn't even try to hide it.
+
+
+She's aware of how op she is, that's why she doesn't stream as much, she loves her coworkers and so she gives them a chance to earn a living.
+
+Ayame is a good girl.
+
+
+&gt;Get into hololive when it was still a relatively small indie company
+
+&gt;Put no effort at all
+
+&gt;Meanwhile your senpais and kouhais sweat blood and tears to put hololive into the position it's in now.
+
+&gt;Still make no effort and just show up every couple of months to collect a paycheck from the most retarded fanbase in all of hololive.
+
+
+&gt;Ayame's audible effort to not use keigo with Botan since she could be her mother but she's her kouhai in the company
+
+
+&gt;ghosts her coworkers
+
+&gt;ghosts her fanbase
+
+&gt;ghosts her manager
+
+&gt;ghosts yagoo
+
+&gt;pureiing riiggu ando sakking cokku, puriizu andasutando
+
+I hate to admit it, but this is what peak performance looks like.
+
+
+&gt;has a boyfriend 
+
+&gt;doesn't stream 
+
+&gt;but she isn't cute like Ayame 
+
+Mumei is trash
+
+
+&gt;shion, ayame, aqua 
+
+&gt;same gen 
+
+&gt;does the same game, sing, talk streams 
+
+&gt;sings the same songs 
+
+&gt;cover a lot of similar songs 
+
+&gt;all lazy 
+
+&gt;all don't stream 
+
+What happened during this time that yagoo managed to find 3 of the exact same people at the exact same time?
+
+
+&gt;doesn’t care about quota
+
+&gt;doesn’t care about superchats
+
+&gt;doesn’t care about 1M subs
+
+&gt;doesn’t care about Coco graduation buff
+
+&gt;doesn’t care about shillshit
+
+Ayame is based. 
+
+
