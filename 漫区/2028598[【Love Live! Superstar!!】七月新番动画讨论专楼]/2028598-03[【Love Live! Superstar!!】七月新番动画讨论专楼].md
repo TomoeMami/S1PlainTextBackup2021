@@ -13102,3 +13102,53 @@ sb运营这场次安排的我cnm
 还有一点就是live上太消耗人了，一场22首，这长期下去嗓子能坚持住吗
 
 
+
+
+*****
+
+####  优妮可  
+##### 4145#       发表于 2021-10-31 21:27
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/212725jtbdhub3siftp8du.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_212125.jpg</strong> (90.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 21:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/212726sex56rya1oxkazea.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_212127.jpg</strong> (87.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 21:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/212726jn0csid34z6znz3e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_212129.jpg</strong> (88.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 21:27 上传
+
+
+*****
+
+####  chenflyyy  
+##### 4146#       发表于 2021-10-31 21:30
+
+
+ 本帖最后由 chenflyyy 于 2021-10-31 21:32 编辑 
+
+B站跟微博发的与sayurin的合照还不一样
+还有久违地发与nagi的合照了
+
+
