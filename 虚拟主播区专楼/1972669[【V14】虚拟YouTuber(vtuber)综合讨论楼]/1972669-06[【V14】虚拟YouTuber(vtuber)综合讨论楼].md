@@ -7374,3 +7374,44 @@ abo把king分给自己，把油男分给全萝莉队，把郡郡神田哈哥司�
 2021-10-31 21:30 上传
 
 
+
+
+*****
+
+####  fastary  
+##### 8012#       发表于 2021-10-31 22:01
+
+
+三不五时看到有人在微博说被大数据冲塔了就去搜了下，ymen沉寂好久之后第一次开摄像头露脸那期的搬运已经2w+播放了，快300评论全是冲塔的<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+相关推荐几个男v也在，都有差不多2w多播放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然大家嘴上说不要挖掘机身体还是很诚实的
+
+syl
+
+喷喷果然没他，也不知道他是不是看不上社内liver主催大会的专业度……(对外反正是说想学**催经验才会主动参加大会)<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+zsyl
+
+彩虹（对待上位）最近颇给我种不能上live(进行偶像活动)就没价值了的感觉，不知道是不是因为live连发
+
+一个主播公会起家的企业搞fes搞活动基本全是live这合理吗（大概商业上很合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 8013#       发表于 2021-10-31 22:16
+
+
+king这个皮……
+
+
+*****
+
+####  dybang  
+##### 8014#       发表于 2021-10-31 22:19
+
+
+偶像营业倒也不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计和场地器材费用比3d反倒没那么贵了，搞活动不唱歌还想干什么嘛，真能指望一堆废材主播整活
+
+

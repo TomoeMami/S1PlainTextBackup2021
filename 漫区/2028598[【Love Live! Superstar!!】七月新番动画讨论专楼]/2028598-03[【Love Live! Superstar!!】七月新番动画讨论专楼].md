@@ -13178,3 +13178,104 @@ D01EAAEC-5543-4CD6-8FE5-74AF1D7679ED.jpeg
 <img src="https://img.saraba1st.com/forum/202110/31/214530l7uu91q5s9v08u7z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kata魂  
+##### 4148#       发表于 2021-10-31 22:08
+
+
+live服也好看啊~动画里不显眼的wishsong真人都辣么好看~怎么越来越觉得动画在拖后腿
+
+
+*****
+
+####  普之舜舜  
+##### 4149#       发表于 2021-10-31 22:10
+
+
+有点晚了，发一下
+day2群马的生放送
+我用阿里云盘分享了「ラブライブ!スーパースター!!Liella! 1...s~ 群馬公演 DAY2.mp4」，你可以不限速下载🚀
+复制这段内容打开「阿里云盘」App 即可获取
+提取码: v144
+链接：https://www.aliyundrive.com/s/9dWjLrmN8pu
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| chenflyyy| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  ads147147  
+##### 4150#       发表于 2021-10-31 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356200&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-31 22:08</a>
+
+live服也好看啊~动画里不显眼的wishsong真人都辣么好看~怎么越来越觉得动画在拖后腿 ...</blockquote>
+动画里某些人是拖后腿的不应该是公认的么，现在大家只是无法确认是谁要背锅而已。
+
+
+*****
+
+####  仟音一心  
+##### 4151#       发表于 2021-10-31 22:20
+
+
+可香logo
+
+
+4E08FF3B-C702-4FC4-900C-E46FB72FC19A.jpeg
+(20.43 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-31 22:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/222009ft1dsc741scqqr1h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4152#       发表于 2021-10-31 22:20
+
+
+鲤鱼的感言就是等好开心然后等夸吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+可恶啊，这个女人
+
+
+*****
+
+####  player3960  
+##### 4153#       发表于 2021-10-31 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356354&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-31 22:20:53</a>
+鲤鱼的感言就是等好开心然后等夸吗
+
+可恶啊，这个女人</blockquote>节能模式开启，两天才发一次感谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
