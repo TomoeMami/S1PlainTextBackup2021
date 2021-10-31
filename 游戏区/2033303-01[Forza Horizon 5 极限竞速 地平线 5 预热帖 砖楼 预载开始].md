@@ -1423,3 +1423,17 @@ https://b23.tv/fJL8GJ
 希望fh5能开到sf90跟f8吧，现在车单上还没有，不知道是不是做成活动车了
 
 
+
+
+*****
+
+####  feve9999  
+##### 98#       发表于 2021-11-1 00:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321993&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-10-29 05:17</a>
+
+账号玩过旧作会送一些以前的封面车</blockquote>
+前作在微软商店买的，这作在steam买会送封面车吗
+
+
