@@ -16589,3 +16589,17 @@ syl  差点一打二，但是谁给你的自信能4发子弹一个的，丢了
 赢了，跑！
 
 
+
+
+*****
+
+####  路人庚  
+##### 4439#       发表于 2021-11-1 06:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就到11月了就播老鼠台还行
+
+
+syl，你咩姐跟朋友一起打过valo之前应该也是说过的，稍微懂点这游戏也正常罢
+
+
