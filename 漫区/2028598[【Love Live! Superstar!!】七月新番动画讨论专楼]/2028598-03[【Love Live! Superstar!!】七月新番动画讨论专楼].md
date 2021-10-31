@@ -12930,3 +12930,41 @@ pay酱真的可爱
 liella都贴成一锅粥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 4134#       发表于 2021-10-31 19:05
+
+
+贴，都可以贴
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  优妮可  
+##### 4135#       发表于 2021-10-31 19:11
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/191152uul5eb8ouhv8h4vo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211031_190440.jpg</strong> (74.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 19:11 上传
+
+
+*****
+
+####  D麦林  
+##### 4136#       发表于 2021-10-31 19:15
+
+
+突然想起来x翼大天使这个外号已经很久没叫过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

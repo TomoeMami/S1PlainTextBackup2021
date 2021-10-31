@@ -7152,3 +7152,23 @@ react还没放弃折腾啊<img src="https://static.saraba1st.com/image/smiley/fa
 不带king，没有逼数啊
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7995#       发表于 2021-10-31 19:04
+
+
+rurudo画的真好
+
+
+*****
+
+####  OldGlory  
+##### 7996#       发表于 2021-10-31 19:16
+
+
+king这个歌下面一水的英文评论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和木口人一样
+
+
