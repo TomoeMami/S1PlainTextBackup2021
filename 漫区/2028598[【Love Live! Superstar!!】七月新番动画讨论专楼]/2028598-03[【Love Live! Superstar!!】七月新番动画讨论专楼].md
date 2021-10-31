@@ -11264,3 +11264,16 @@ mmy在2nd那会儿就又跳又打又唱，连着好几首revue曲，那确实是
 小星星实录：(^∇^)╯L(^∇^)̣
 
 
+
+
+*****
+
+####  secretgarnet  
+##### 3981#       发表于 2021-10-31 08:16
+
+
+补了录播，心心念念的nonfiction打歌服没实装有点可惜，live鱼可爱
+
+以及sayurin之后每场都是这个负荷的话一巡结束之后感觉要累死，虽然某种程度上也算是锻炼但还是好心疼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
