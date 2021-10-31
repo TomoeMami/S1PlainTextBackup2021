@@ -6936,3 +6936,14 @@ react还没放弃折腾啊<img src="https://static.saraba1st.com/image/smiley/fa
 虾勇还在，口了换了社长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 7985#       发表于 2021-10-31 16:04
+
+
+一期生开幕Mr.Music<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
