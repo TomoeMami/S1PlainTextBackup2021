@@ -12254,3 +12254,60 @@ BV1xr4y1C7Ln
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  小憨1  
+##### 1033#       发表于 2021-10-31 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53349377&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-10-31 11:02</a>
+弥都开了，文静还是没看
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+投票刚结束，十分钟后开
+
+
+*****
+
+####  莫洛骑士  
+##### 1034#       发表于 2021-10-31 11:10
+
+
+白p差不多得了，看了四个月茶水间还没看腻是吧，下次投票时间长点我一定把白日茶水间这条给举办了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袜子  
+##### 1035#       发表于 2021-10-31 11:14
+
+
+白批赢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒狗明显是故意拖时间的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  魔法少女大头  
+##### 1036#       发表于 2021-10-31 11:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">说话声音那么轻，是因为太累了么。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  小憨1  
+##### 1037#       发表于 2021-10-31 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53349459&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-31 11:10</a>
+白p差不多得了，看了四个月茶水间还没看腻是吧，下次投票时间长点我一定把白日茶水间这条给举办了 ...</blockquote>
+就喜欢看懒狗被逼着不情愿的坐在电脑前开播的狼狈模样👿
+
+
