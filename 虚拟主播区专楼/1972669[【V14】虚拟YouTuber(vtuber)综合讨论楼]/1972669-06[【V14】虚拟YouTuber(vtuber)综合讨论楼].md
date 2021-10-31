@@ -6901,3 +6901,38 @@ syl
 react还没放弃折腾啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sgssk  
+##### 7983#       发表于 2021-10-31 10:03
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/095903xxgg7zclhnhqnjn6.png" referrerpolicy="no-referrer">
+
+
+<strong>4CYHE(])~5VL~)]JMVHHLR4.png</strong> (83.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 09:59 上传
+
+
+有点火星地发现这四个现在居然在同一家了……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也是满神奇的
+
+
+*****
+
+####  winda  
+##### 7984#       发表于 2021-10-31 10:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53344132&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-10-30 21:06</a>
+52名主播参与，也许会有EN,KR和ID？
+
+
+乐</blockquote>
+虾勇还在，口了换了社长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
