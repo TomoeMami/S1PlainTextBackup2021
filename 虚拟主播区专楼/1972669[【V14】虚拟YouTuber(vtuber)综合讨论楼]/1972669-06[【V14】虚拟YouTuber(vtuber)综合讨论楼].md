@@ -7246,3 +7246,44 @@ king这个歌下面一水的英文评论<img src="https://static.saraba1st.com/i
 syl，king都直接solo专场了，看样子顺带会公布新3d，周年庆算啥，后面靠他吸金的场合多着呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 8004#       发表于 2021-10-31 20:21
+
+
+虹喷喷大会的分组有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lays  
+##### 8005#       发表于 2021-10-31 20:28
+
+
+给自己分king，司马昭之心了
+
+
+*****
+
+####  rzrbtk  
+##### 8006#       发表于 2021-10-31 20:38
+
+
+woc郡神哈圭利，感觉，很难不，熊熊燃烧啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 8007#       发表于 2021-10-31 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53355059&amp;ptid=1972669" target="_blank">lays 发表于 2021-10-31 20:28</a>
+
+给自己分king，司马昭之心了</blockquote>
+abo把king分给自己，把油男分给全萝莉队，把郡郡神田哈哥司会分在一队<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
