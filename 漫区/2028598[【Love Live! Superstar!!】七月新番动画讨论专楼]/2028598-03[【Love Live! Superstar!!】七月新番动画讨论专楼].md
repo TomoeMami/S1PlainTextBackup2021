@@ -12998,3 +12998,42 @@ nagi的气质和整活，尤其是那段芭蕾，天啊，叶月恋能有nagi这
 sb运营这场次安排的我cnm
 
 
+
+
+*****
+
+####  lj205  
+##### 4138#       发表于 2021-10-31 20:15
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/201408vtgw9kpa9taoa0e0.png" referrerpolicy="no-referrer">
+
+
+<strong>302CF7B9-2FC6-467D-B60B-3157DEA31F13.png</strong> (469.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 20:14 上传
+
+
+地狱时间表
+
+鲤鱼中间还有个人广播一专录制和拍摄，最后一场结束第二天马上回东京办手渡会，然后一个月内个人一专宣传接演唱会
+
+突然觉得没solo也没啥了
+
+
+*****
+
+####  chenflyyy  
+##### 4139#       发表于 2021-10-31 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53354947&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-31 20:15</a>
+地狱时间表
+
+鲤鱼中间还有个人广播一专录制和拍摄，最后一场结束第二天马上回东京办手渡会，然后一个月内 ...</blockquote>
+看到这个表才发现怎么还有live撞车的。。
+而且东京场为什么要安排平日，跟大阪场连起来是要7天开4场live啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

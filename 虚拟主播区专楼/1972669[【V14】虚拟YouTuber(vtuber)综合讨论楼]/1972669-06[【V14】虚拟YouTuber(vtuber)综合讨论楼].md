@@ -7221,3 +7221,28 @@ king这个歌下面一水的英文评论<img src="https://static.saraba1st.com/i
 那我chima是不会唱是吧
 
 
+
+
+*****
+
+####  shpdw  
+##### 8002#       发表于 2021-10-31 20:01
+
+
+全盘偶像化只能祝你虹早点死了，uzkku和846这种男性向的人搞偶像有够恶心的。
+
+以后要不要干脆搞个男女单独来一次总选前8上fes啊。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  freakystar  
+##### 8003#       发表于 2021-10-31 20:09
+
+
+果然走上了偶像化的路线吗，男团女团起飞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，king都直接solo专场了，看样子顺带会公布新3d，周年庆算啥，后面靠他吸金的场合多着呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
