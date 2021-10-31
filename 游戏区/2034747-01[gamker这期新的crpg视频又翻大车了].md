@@ -1980,3 +1980,87 @@ crpg他完全不懂这点，之前的柱子2和神界原罪2测评就已经很�
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  之世郎  
+##### 169#       发表于 2021-10-31 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53339248&amp;ptid=2034747" target="_blank">粪坑战士 发表于 2021-10-30 14:27:52</a>
+b站主机游戏自媒体我只看疯猫一个人 其他人水平真的差</blockquote>“牛逼疯了，怎么看都很稳”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+他也是你b著名毒奶了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ybfelix  
+##### 170#       发表于 2021-10-31 09:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53348421&amp;ptid=2034747" target="_blank">jf8350143 发表于 2021-10-31 08:46</a>
+
+crpg他完全不懂这点，之前的柱子2和神界原罪2测评就已经很明显了，不知道为啥那会没人觉得翻车……大概这次 ...</blockquote>
+
+其实也不是不可以，感觉youtube上好些老害型kol是这个年纪。流量没有年轻人大，但你都选择老害这个赛道了本来也就图一乐。
+
+
+话说如今中国传媒界为啥感觉特别少年英雄，连演员往往稍微大一点儿（好莱坞大片当打年的35-50）就要转老戏骨，浪姐之类“第二春”路线
+
+
+*****
+
+####  konata422  
+##### 171#       发表于 2021-10-31 09:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53348413&amp;ptid=2034747" target="_blank">第四人称 发表于 2021-10-31 08:44</a>
+
+emmi确实是坂本贺勇对密特罗德的新尝试，不过是个二十年前的“思考与突破”，之前dread两次开发终止沉寂19 ...</blockquote>
+感觉就我个人体验来说，emmi部分对银河城地图探索-能力获取的核心没什么大的影响，玩起来也没有带来很大的乐趣或新鲜感，完全称不上“坂本贺勇对密特罗德框架的思考和突破，对这个系列乃至整个银河城都极具价值”。如果其他银河城游戏加入这一设计并不能吸引我。
+
+
+其实一直想看看对地图设计的分析，目前比较解答困惑的只有GMTK做的“为什么生存恐惧很难迷路”。
+
+
+*****
+
+####  sde3hht65  
+##### 172#       发表于 2021-10-31 09:16
+
+
+还不是因为正义生气全流程得要100H，UP没时间玩完啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  旧梦囚心  
+##### 173#       发表于 2021-10-31 09:25
+
+
+之前还看一下，甚至觉得讲银河恶魔城那期还非常不错，直到讲了博德之门3，在那之后一期都没看过了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G9700, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+
+*****
+
+####  LichEnd  
+##### 174#       发表于 2021-10-31 09:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53348567&amp;ptid=2034747" target="_blank">sde3hht65 发表于 2021-10-31 09:16</a>
+
+还不是因为正义生气全流程得要100H，UP没时间玩完啊</blockquote>
+故事难度囫囵个玩大概四五十小时就能通。
+
+
+正经玩，研究build的时间都100小时往上了。
+
+
+所以很容易就想的到，这类学习曲线长的小众游戏除了专门做相关的up，其他人多半就是云。
+
+
