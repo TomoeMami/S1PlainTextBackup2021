@@ -2085,3 +2085,18 @@ emmi确实是坂本贺勇对密特罗德的新尝试，不过是个二十年前�
 我觉得能分析Dread地图设计的人大部分都还在玩速通，不能分析的也不敢班门弄斧，毕竟这作开发了五年，牛逼的分析估计得等速通尘埃落定之后才能出来
 
 
+
+
+*****
+
+####  Coloris  
+##### 176#       发表于 2021-10-31 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53343880&amp;ptid=2034747" target="_blank">滋啦球 发表于 2021-10-30 20:47</a>
+最近看这个人还是因为他做了一期into the breach, 吹得方向相当奇怪是说能从8*8的格子里玩出巨型机 ...</blockquote>
+我也没玩过这游戏 也感觉不出他说的最有巨型机器人对战怪兽感觉是啥<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
