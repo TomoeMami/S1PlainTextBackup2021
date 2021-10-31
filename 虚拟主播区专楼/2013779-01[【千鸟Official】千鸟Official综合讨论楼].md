@@ -12241,3 +12241,16 @@ BV1xr4y1C7Ln
 只能说和vlog里判若两人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 1032#       发表于 2021-10-31 11:02
+
+
+弥都开了，文静还是没看<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
