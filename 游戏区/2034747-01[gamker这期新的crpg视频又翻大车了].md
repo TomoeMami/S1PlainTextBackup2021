@@ -2483,3 +2483,14 @@ gamker聊P5那期把舞见妙读成舞见纱我都惊了，疑惑他们团队都
 不过这种大火游戏的大火角色都能读错实在是过于低级了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  逸一死吾亦死  
+##### 204#       发表于 2021-11-1 04:23
+
+
+博德1哪有那么好玩，2倒是不错的，很紧凑。
+
+

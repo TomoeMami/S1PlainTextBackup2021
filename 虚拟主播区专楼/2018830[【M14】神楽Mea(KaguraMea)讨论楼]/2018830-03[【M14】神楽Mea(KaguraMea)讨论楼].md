@@ -16328,3 +16328,264 @@ syl  被人说会有装作配送的强盗，觉得可怕然后说到真遇上�
 没人陪折磨fan是吧
 
 
+
+
+*****
+
+####  雪风utopia  
+##### 4415#       发表于 2021-11-1 02:11
+
+
+小麻晚安<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 4416#       发表于 2021-11-1 02:25
+
+
+什么几把，又播<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 4417#       发表于 2021-11-1 02:28
+
+
+深夜老鼠台，真梦回青春了
+
+
+*****
+
+####  2014720  
+##### 4418#       发表于 2021-11-1 02:59
+
+
+啊啊熟悉的脑溢血味道<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 4419#       发表于 2021-11-1 03:07
+
+
+看不懂LOL....
+
+
+*****
+
+####  2014720  
+##### 4420#       发表于 2021-11-1 03:30
+
+
+我超瓦罗兰特，赚了
+
+
+*****
+
+####  2014720  
+##### 4421#       发表于 2021-11-1 03:39
+
+
+你麻这瓦罗兰特意外的能看，推荐楼友补一补了
+
+
+*****
+
+####  雪风utopia  
+##### 4422#       发表于 2021-11-1 03:40
+
+
+打的竟然还不错<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 4423#       发表于 2021-11-1 03:43
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 03:45 编辑 
+
+你妈。这枪架谁呢
+
+准头倒是还行，不清楚是不是游戏后坐力不高的原因
+
+别犯匕瘾了臭女人
+
+
+*****
+
+####  2014720  
+##### 4424#       发表于 2021-11-1 03:48
+
+
+不会有人看见你麻打瓦罗兰特就爬起来看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 4425#       发表于 2021-11-1 03:51
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 03:52 编辑 
+
+我没睡而已，看到有人叫我想着睡不着就干脆起床看了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 4426#       发表于 2021-11-1 03:56
+
+
+意外怎么感觉你麻有练过，搁这装素人呢
+
+
+*****
+
+####  时间在我手中  
+##### 4427#       发表于 2021-11-1 03:56
+
+
+你确定这叫练过吗，丢个道具都能搞自己的
+
+wdnmd这都能爆头，真就菜鸡互啄
+
+
+*****
+
+####  2014720  
+##### 4428#       发表于 2021-11-1 04:01
+
+
+这真的还能看啊，至少比lol强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果她来老鼠台是播这个我觉得还挺顶的
+
+
+*****
+
+####  时间在我手中  
+##### 4429#       发表于 2021-11-1 04:02
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 04:04 编辑 
+
+这人先把技能和道具搞清楚再说吧
+
+预瞄意识啥的一看就不行，建议学习我simple大爹的power，准心同款有毛用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl  差点一打二，但是谁给你的自信能4发子弹一个的，丢了这个类似烟雾的技能混烟换弹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 4430#       发表于 2021-11-1 04:09
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 04:14 编辑 
+
+还懂点eco哦，一换一凑合
+
+这要被对面逆了啊，有人在混，不说是谁嗷
+
+
+对面这本质也是菜鸡，开局狙一个还以为很牛逼结果这都被肥婆点死，太新手站位了
+
+残局队友也是逆天，大马路上拿着狙击移动架人是吧？
+
+虽然时间也的确没了就是了
+
+
+*****
+
+####  时间在我手中  
+##### 4431#       发表于 2021-11-1 04:16
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 04:19 编辑 
+
+别丢了，安包都不会你这肥婆真就不想打残局了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LIPP  
+##### 4432#       发表于 2021-11-1 04:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看来我还没醒
+
+
+*****
+
+####  2014720  
+##### 4433#       发表于 2021-11-1 04:20
+
+
+寄，越来越混了
+
+
+*****
+
+####  时间在我手中  
+##### 4434#       发表于 2021-11-1 04:21
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 04:22 编辑 
+
+姐姐，能不能把新手教程重新打一次啊，我极度怀疑兰熊是直接带您开打的
+
+
+这打的连基本规则都没搞懂的鬼样真打竞技搁CN这块就直接无视性别被问候全家了
+
+要是尼哥这几头玩意儿敢这么坑我我绝对往死里开喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 4435#       发表于 2021-11-1 04:26
+
+
+坐等队友开麦喷你麻好吧
+
+
+*****
+
+####  时间在我手中  
+##### 4436#       发表于 2021-11-1 04:29
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 04:32 编辑 
+
+开LOL啊，来来来，老子今天陪你熬，死肥婆<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">反正白天我睡了一天
+
+赢了就睡是吧，输了想什么，干脆点，24小时耐久首胜直播嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 4437#       发表于 2021-11-1 04:46
+
+
+以后这个点我再看我就是傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 4438#       发表于 2021-11-1 04:57
+
+
+赢了，跑！
+
+

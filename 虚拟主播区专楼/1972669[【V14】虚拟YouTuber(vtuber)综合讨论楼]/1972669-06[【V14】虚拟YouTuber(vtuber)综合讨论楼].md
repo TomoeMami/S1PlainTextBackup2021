@@ -7571,3 +7571,37 @@ Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情
 社那组好像不错。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  freakystar  
+##### 8027#       发表于 2021-11-1 01:49
+
+
+话说king直球让人画自己的女体r18作品，算不算对女性身体的消费？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">走女V的路，让女V无路可走<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 8028#       发表于 2021-11-1 01:57
+
+
+别闹，搞得好像他不说女粉就不会把他画成母的一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  freakystar  
+##### 8029#       发表于 2021-11-1 02:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53358411&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-11-1 01:57</a>
+
+别闹，搞得好像他不说女粉就不会把他画成母的一样</blockquote>
+你这就大意了吧，主动和被动能一个样？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过就yhm那所处环境，估计也考虑不到这个了
+
+

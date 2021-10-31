@@ -1437,3 +1437,19 @@ https://b23.tv/fJL8GJ
 前作在微软商店买的，这作在steam买会送封面车吗
 
 
+
+
+*****
+
+####  lancasterliang  
+##### 99#       发表于 2021-11-1 02:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341456&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-10-30 17:41</a>
+
+进地平线4看了一下，原来自己上次玩还是19年1月
+
+做了一下秋季赛拿了599xxe，调时间回去拿了ae86，可惜lfa要 ...</blockquote>
+我也希望能开SF90，不过是另一辆（
+
+

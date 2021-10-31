@@ -2813,3 +2813,29 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 太豹了太豹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以杀掉了
 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84226#       发表于 2021-11-1 02:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356963&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-31 23:07:32</a>
+没人跳? 萌新先豹为敬</blockquote>我有机会使用你的特供客户端吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  森兰丸  
+##### 84227#       发表于 2021-11-1 04:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356963&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-31 23:07</a>
+
+没人跳? 萌新先豹为敬</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">只能说毫不意外.....萌新还是我熟悉的那个萌新
+
+

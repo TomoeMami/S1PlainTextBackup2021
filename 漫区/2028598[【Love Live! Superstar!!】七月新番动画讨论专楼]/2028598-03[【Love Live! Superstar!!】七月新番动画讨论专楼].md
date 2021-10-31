@@ -13371,3 +13371,16 @@ Wish song那个手套怎么不定制，或者采购的时候按不同尺寸来�
 看回上一个专楼里企划刚开始的讨论，前20页的某些个人的发言嘿
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 4161#       发表于 2021-11-1 02:47
+
+
+只降了0.1分，是b站观众变宽容了还是已经没什么人看了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+另外感觉pay酱的自拍技术好差啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
