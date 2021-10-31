@@ -6162,3 +6162,17 @@ tianlangistl
 已经抢足面子了。
 
 
+
+
+*****
+
+####  saturnus  
+##### 55958#       发表于 2021-10-31 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53350835&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2021-10-31 13:31</a>
+公认归公认，但尾田说和船队队长地位是一致的，不存在谁地位更高或者更低
+ ...</blockquote>
+只是证明队长排名和实力没有关系，但赏金上的区别可以认为不同队长实力还是有差异，比如以藏虽然排名末尾，但是赏金和排第二的艾斯基本相当，4队萨奇单论战斗力不如5队花剑（艾斯官方小说设定）
+
+

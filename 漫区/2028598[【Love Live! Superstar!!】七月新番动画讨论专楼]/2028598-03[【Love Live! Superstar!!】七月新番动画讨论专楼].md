@@ -12214,3 +12214,173 @@ pay怎么样了，撑的住吗？
 这首感觉pay恢复了一些，但小百合solo的时候有点难··
 
 
+
+
+*****
+
+####  iuhehc  
+##### 4072#       发表于 2021-10-31 16:22
+
+
+两年纪小的喉咙状况都很紧张啊
+
+
+*****
+
+####  chenflyyy  
+##### 4073#       发表于 2021-10-31 16:23
+
+
+这才1st的第二场，怎么看你们repo搞得要跟fl一样燃尽了，资本家真不做人啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 4074#       发表于 2021-10-31 16:23
+
+
+最后有一句有人失误没唱出来…不知道是谁 有人说是nako有人说是pay
+
+
+*****
+
+####  lj205  
+##### 4075#       发表于 2021-10-31 16:30
+
+
+真要换场地变solo，下周安排应该是打铁鲤鱼和外星人 ​​​
+
+
+*****
+
+####  kbtit  
+##### 4076#       发表于 2021-10-31 16:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 4077#       发表于 2021-10-31 16:31
+
+
+光路呢？应该发光路的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  寒风夜  
+##### 4078#       发表于 2021-10-31 16:32
+
+
+难啊 唱太嗨了吗
+
+
+*****
+
+####  JustW  
+##### 4079#       发表于 2021-10-31 16:33
+
+
+看你们文字直播都感觉略惨
+
+
+*****
+
+####  chenflyyy  
+##### 4080#       发表于 2021-10-31 16:34
+
+
+应该一周一场这样的
+
+
+
+
+*****
+
+####  寒风夜  
+##### 4081#       发表于 2021-10-31 16:34
+
+
+还有18场咋办啊
+
+
+*****
+
+####  kata魂  
+##### 4082#       发表于 2021-10-31 16:35
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/163538t0m16d8mclfzhicq.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (12.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 16:35 上传
+
+
+ 在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 4083#       发表于 2021-10-31 16:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+图片.png
+(81.92 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-10-31 16:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/163610sreng0tnzn55unhr.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 4084#       发表于 2021-10-31 16:38
+
+
+ 本帖最后由 Arccueid 于 2021-10-31 16:40 编辑 
+
+今天真的看的真是心疼，除了鲤鱼其他人都是战损状态..
+
+噢还有青山姐，青山姐宛如透明人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4085#       发表于 2021-10-31 16:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游刃有余的鲤鱼
+
+
+*****
+
+####  普之舜舜  
+##### 4086#       发表于 2021-10-31 16:41
+
+
+希望众人可以休息好，真的粉了一群努力的人
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
