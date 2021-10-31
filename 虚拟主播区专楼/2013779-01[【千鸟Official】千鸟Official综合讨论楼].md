@@ -12348,3 +12348,63 @@ BV1xr4y1C7Ln
 两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  袜子  
+##### 1041#       发表于 2021-10-31 12:06
+
+hai
+
+
+ 本帖最后由 袜子 于 2021-10-31 12:15 编辑 
+
+假二次元太多了呵呵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做字幕还挺正常的，简单入门可以去修图和嵌字，别的部分其实也还好
+
+
+*****
+
+####  夜潇箫  
+##### 1042#       发表于 2021-10-31 12:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没听错吧，文静居然还翻过本子
+
+
+*****
+
+####  憧憬鲨  
+##### 1043#       发表于 2021-10-31 12:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻过本子这个节目效果太好了
+
+
+*****
+
+####  小憨1  
+##### 1044#       发表于 2021-10-31 12:17
+
+
+好人一生平安
+
+
+*****
+
+####  rgauss  
+##### 1045#       发表于 2021-10-31 12:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">呜呜呜 思思今天好早就起来做广播体操
+
+
+*****
+
+####  小憨1  
+##### 1046#       发表于 2021-10-31 12:22
+
+
+文静随便播播都900同接，鸟不灭！
+
+
