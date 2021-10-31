@@ -12621,3 +12621,131 @@ pay酱挺自责自己的嗓子哑了导致唱不好。
 果然偶像...在舞台上燃烧自己的身姿才是最美的啊！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 4111#       发表于 2021-10-31 17:07
+
+
+青山姐真的很乐观哈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">整活安慰大家
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4112#       发表于 2021-10-31 17:09
+
+
+粉了粉了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  寒风夜  
+##### 4113#       发表于 2021-10-31 17:10
+
+
+昨天唱高了 
+
+
+*****
+
+####  lj205  
+##### 4114#       发表于 2021-10-31 17:11
+
+
+鲤鱼这一年真了不起啊
+
+
+*****
+
+####  Arccueid  
+##### 4115#       发表于 2021-10-31 17:14
+
+
+妈的音游人基因动了
+
+
+*****
+
+####  iuhehc  
+##### 4116#       发表于 2021-10-31 17:18
+
+
+每次最后都是この街でいまキミと了吧
+
+莫名有种浪漫的感觉..
+
+
+*****
+
+####  player3960  
+##### 4117#       发表于 2021-10-31 17:19
+
+
+今天合影小百合睁开眼睛了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4118#       发表于 2021-10-31 17:19
+
+
+今天的票总算没感觉白买<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我磕到了
+
+
+*****
+
+####  player3960  
+##### 4119#       发表于 2021-10-31 17:20
+
+
+小百合靠下鲤鱼的肩膀，我也磕到了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 4120#       发表于 2021-10-31 17:21
+
+
+pay酱真的可爱
+
+
+*****
+
+####  寒风夜  
+##### 4121#       发表于 2021-10-31 17:22
+
+
+88，，忒辛苦了 
+
+
+*****
+
+####  player3960  
+##### 4122#       发表于 2021-10-31 17:23
+
+
+话说是不是比昨天多了一首lapapapa
+
+
+*****
+
+####  Arccueid  
+##### 4123#       发表于 2021-10-31 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53353102&amp;ptid=2028598" target="_blank">player3960 发表于 2021-10-31 17:23</a>
+
+话说是不是比昨天多了一首lapapapa</blockquote>
+安可第二首换成lapapa了，总量应该是一样的，前面顺序有点不同
+
+
