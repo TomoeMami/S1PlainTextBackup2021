@@ -6089,3 +6089,18 @@ tianlangistl
 中高端实力者只有船长一个是能力者
 
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 55953#       发表于 2021-10-31 13:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53349891&amp;ptid=98922" target="_blank">zxzx7753 发表于 2021-10-31 11:53</a>
+不是公认白胡子只有前面4个队长能打  后面就弱很多么
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next- ...</blockquote>
+公认归公认，但尾田说和船队队长地位是一致的，不存在谁地位更高或者更低
+
+
