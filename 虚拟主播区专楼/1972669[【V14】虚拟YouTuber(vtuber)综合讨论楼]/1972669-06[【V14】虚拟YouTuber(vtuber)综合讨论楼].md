@@ -7519,3 +7519,19 @@ Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情
 <img src="https://p.sda1.dev/3/4ff360f8b5ffdae44f0d5e4427769d0b/IMG_CMP_20136844.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fastary  
+##### 8023#       发表于 2021-10-31 23:15
+
+
+说起来，都宣布4thfes消息了，也意味着我因为黑客不上fes破防也快一年了……今年多半也与他无关吧。
+
+一年前我还被人指责是事业粉型毒唯，如今已经自认是独角兽型毒唯了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+自从他憋半年搞了个大的出来，现在我就算有时也会想抱怨他不参加大会不上live不多播一点etc，最后都一转“他还在当v就不错了还想怎么样呢”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

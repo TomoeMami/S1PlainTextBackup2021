@@ -12877,3 +12877,46 @@ hoya是吧
 队长的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  袜子  
+##### 1079#       发表于 2021-10-31 23:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五万了，要寄了好耶
+
+
+*****
+
+####  HSNYKE/EKPL  
+##### 1080#       发表于 2021-10-31 23:17
+
+
+文静阿B原来的签名是现在这个吗 是不是改了啊
+
+
+
+
+*****
+
+####  莫洛骑士  
+##### 1081#       发表于 2021-10-31 23:18
+
+
+速报，拜年祭导演关注文静了，鸟又聚！
+
+
+*****
+
+####  袜子  
+##### 1082#       发表于 2021-10-31 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53357089&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-10-31 23:18</a>
+
+速报，拜年祭导演关注文静了，鸟又聚！</blockquote>
+反转了，是千鸟3.0，整个IP打包给叔叔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
