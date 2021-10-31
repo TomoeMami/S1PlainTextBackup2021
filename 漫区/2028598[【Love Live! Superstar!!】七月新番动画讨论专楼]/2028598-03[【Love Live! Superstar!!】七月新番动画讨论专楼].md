@@ -11524,3 +11524,140 @@ pay酱嗓子哑了吗？
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  Arccueid  
+##### 4005#       发表于 2021-10-31 14:41
+
+
+心疼啊 感觉发不出声音了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  kata魂  
+##### 4006#       发表于 2021-10-31 14:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">第一天消耗太大了吧  这个场次不做人的
+
+
+*****
+
+####  Arccueid  
+##### 4007#       发表于 2021-10-31 14:46
+
+
+叫姓不叫名 不仲了！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  普之舜舜  
+##### 4008#       发表于 2021-10-31 14:50
+
+
+汉堡🍔宝之歌清唱真好听
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 4009#       发表于 2021-10-31 14:50
+
+
+可堇嗑到了
+
+
+*****
+
+####  普之舜舜  
+##### 4010#       发表于 2021-10-31 14:51
+
+
+v4v4v4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  中野四葉  
+##### 4011#       发表于 2021-10-31 14:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就pay这个性格，最后怕不是要谢罪了
+
+
+*****
+
+####  普之舜舜  
+##### 4012#       发表于 2021-10-31 14:51
+
+
+青山姐要不要表演👽呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4013#       发表于 2021-10-31 14:53
+
+
+到了第一话结尾的未来预报了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lucksolo  
+##### 4014#       发表于 2021-10-31 14:54
+
+
+有没有好心人给个直播间指路0 0
+
+
+*****
+
+####  kata魂  
+##### 4015#       发表于 2021-10-31 14:55
+
+
+今天的小百合依旧是超人
+
+
+*****
+
+####  普之舜舜  
+##### 4016#       发表于 2021-10-31 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351536&amp;ptid=2028598" target="_blank">lucksolo 发表于 2021-10-31 14:54</a>
+有没有好心人给个直播间指路0 0</blockquote>
+这个是付费的，需要买票的哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4017#       发表于 2021-10-31 14:58
+
+
+希望GALAXY那首可以还原歌曲
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

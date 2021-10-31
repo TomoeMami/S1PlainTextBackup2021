@@ -16528,3 +16528,16 @@ Sana这次是家里有事猫死了，虽然是休的有点久但还是没法和�
 而且EN2期现在全员沉迷MC，实在不想看
 
 
+
+
+*****
+
+####  stmule  
+##### 13396#       发表于 2021-10-31 15:01
+
+
+猫头鹰完全没那味啊
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
