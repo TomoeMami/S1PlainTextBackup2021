@@ -2299,3 +2299,31 @@ emmi是坂本对银河战士的一个突破没啥问题，我看羽毛之类的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去参观了一下 翻车不翻车也算了 怎么还有死忠粉洗地啊，什么“你们骂的这么狠你们买了正版吗”尬的我抠出三室一厅了
 
 
+
+
+*****
+
+####  OldGlory  
+##### 191#       发表于 2021-10-31 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53350762&amp;ptid=2034747" target="_blank">refiver 发表于 2021-10-31 13:20</a>
+
+最近几年CRPG国内的舆论真是越来越像一个镀金手法，反正只要玩过了，吹好玩，那你就是硬核玩家
+
+在这种舆论 ...</blockquote>
+这倒不算悖论，当年的大人气作品放到现在算硬核很正常
+
+
+*****
+
+####  Chia  
+##### 192#       发表于 2021-10-31 14:11
+
+
+其实我觉得兜售观点不能怕犯错和被喷，事后藏着掖着才难看。
+
+
+然后gamker还是擅长当情绪贩子，世界主宰，动作天尊，再来点第九艺术，最为得心应手。
+
+

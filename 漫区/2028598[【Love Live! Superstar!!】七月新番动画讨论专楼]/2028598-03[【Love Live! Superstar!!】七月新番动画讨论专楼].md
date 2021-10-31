@@ -11379,3 +11379,43 @@ mmy在2nd那会儿就又跳又打又唱，连着好几首revue曲，那确实是
 这鲤鱼居然没见过粒粒分明的炒饭，明明上海离扬州那么近<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 3991#       发表于 2021-10-31 13:55
+
+
+有人一起看第二天的咩
+
+
+*****
+
+####  kata魂  
+##### 3992#       发表于 2021-10-31 13:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">感觉今天不会有昨天那么热闹，也看不到哭哭了，买第二天买赔了
+
+
+*****
+
+####  Eric_方歌阙  
+##### 3993#       发表于 2021-10-31 14:11
+
+
+每次看都要感叹下，伊达小百合也太猛了，甚至耐力都点满，莫非真是家学渊源<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。年纪最小，但公司给的压力估计也是最大的
+
+
+*****
+
+####  lj205  
+##### 3994#       发表于 2021-10-31 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351081&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-10-31 13:57</a>
+感觉今天不会有昨天那么热闹，也看不到哭哭了，买第二天买赔了</blockquote>
+第二天有鲤鱼solo不亏
+
+
