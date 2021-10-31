@@ -7287,3 +7287,32 @@ woc郡神哈圭利，感觉，很难不，熊熊燃烧啊<img src="https://stati
 abo把king分给自己，把油男分给全萝莉队，把郡郡神田哈哥司会分在一队<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 8008#       发表于 2021-10-31 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53355162&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-10-31 20:38</a>
+abo把king分给自己，把油男分给全萝莉队，把郡郡神田哈哥司会分在一队 ...</blockquote>
+社长和ebio是不是嫌弃郡郡神田哈哥是丑角臭底边，凑一块一轮游死了算了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">…
+要是对上代表正义之师的king军会不会未战就死啊
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|虾勇分的组，太明显了|
+
+
+查看全部评分
+
+
