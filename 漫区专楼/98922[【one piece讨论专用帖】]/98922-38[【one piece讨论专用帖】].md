@@ -6001,3 +6001,44 @@ tianlangistl
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一想的话，罗的果实岂不是巴基的上位？（重点错
 
 
+
+
+*****
+
+####  zxzx7753  
+##### 55946#       发表于 2021-10-31 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53333402&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2021-10-29 22:31</a>
+正常来说，飞六胞对标白胡子的各番队队长应该没问题才对。
+而白胡子二队长艾斯和甚平打了几天没分出胜负 ...</blockquote>
+不是公认白胡子只有前面4个队长能打  后面就弱很多么
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  zxzx7753  
+##### 55947#       发表于 2021-10-31 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53325764&amp;ptid=98922" target="_blank">saturnus 发表于 2021-10-29 12:32</a>
+徳岛篇除了集体推鸟笼太伞比以外，各方面的剧情推进类似于砂之国 所以不算太拉垮，但是也能看出WT除了自 ...</blockquote>
+不少老外很喜欢德岛  因为觉得BOSS明哥很重视“家人”<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Algie  
+##### 55948#       发表于 2021-10-31 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53349905&amp;ptid=98922" target="_blank">zxzx7753 发表于 2021-10-31 11:54:30</a>
+不少老外很喜欢德岛  因为觉得BOSS明哥很重视“家人” v2.5.2</blockquote>可是明哥前期很酷炫的能力到了德岛就土味起来了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
