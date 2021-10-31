@@ -7415,3 +7415,33 @@ king这个皮……
 偶像营业倒也不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计和场地器材费用比3d反倒没那么贵了，搞活动不唱歌还想干什么嘛，真能指望一堆废材主播整活
 
 
+
+
+*****
+
+####  白金口袋  
+##### 8015#       发表于 2021-10-31 22:23
+
+
+ 本帖最后由 白金口袋 于 2021-10-31 08:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53354794&amp;ptid=1972669" target="_blank">shpdw 发表于 2021-10-31 06:01</a>
+
+全盘偶像化只能祝你虹早点死了，uzkku和846这种男性向的人搞偶像有够恶心的。
+
+以后要不要干脆搞个男女单独 ...</blockquote>
+阿社穿偶像服上live简直震惊我一整天
+
+而且这货和社长同一天怕是又开始疯狂唱老萝卜或特摄歌，虽然我个人挺开心的，但是我又想起了多葛本社live他一曲响鬼少年唱掉5千同接的事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  freakystar  
+##### 8016#       发表于 2021-10-31 22:23
+
+
+这么多人，最该担心的难道不是新3d赶工会很丑嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，葵最近的身体状况可能还不适合参加live活动吧，最近的新3d基本都跟live绑定的样子
+
+

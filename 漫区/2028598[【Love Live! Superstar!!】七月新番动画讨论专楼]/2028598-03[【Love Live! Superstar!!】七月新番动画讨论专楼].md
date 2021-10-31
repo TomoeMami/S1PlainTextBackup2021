@@ -13279,3 +13279,25 @@ live服也好看啊~动画里不显眼的wishsong真人都辣么好看~怎么越
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  kata魂  
+##### 4154#       发表于 2021-10-31 22:34
+
+
+推特上小百合和鲤鱼的排版…
+
+到底谁是学人精<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4155#       发表于 2021-10-31 22:36
+
+
+Wish song那个手套怎么不定制，或者采购的时候按不同尺寸来？打铁这小手一戴，真就是电工手套
+
+
