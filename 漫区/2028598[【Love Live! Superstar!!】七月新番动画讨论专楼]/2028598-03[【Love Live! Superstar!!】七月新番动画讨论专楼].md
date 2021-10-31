@@ -11874,3 +11874,178 @@ v4v4v4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 常夏还是直接唱
 
 
+
+
+*****
+
+####  优妮可  
+##### 4038#       发表于 2021-10-31 15:21
+
+
+导播怎么了
+
+
+*****
+
+####  iuhehc  
+##### 4039#       发表于 2021-10-31 15:22
+
+
+pay酱今天嗓子是真的哑不少发声都和昨天不一样了
+
+
+*****
+
+####  lj205  
+##### 4040#       发表于 2021-10-31 15:24
+
+
+佩佩……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 4041#       发表于 2021-10-31 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351824&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-10-31 15:21</a>
+导播怎么了</blockquote>
+今天导播的技术力比昨天好多了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Arccueid  
+##### 4042#       发表于 2021-10-31 15:26
+
+
+草 可香→可堇→香千，只有恋恋是一个人
+
+
+*****
+
+####  lj205  
+##### 4043#       发表于 2021-10-31 15:26
+
+
+………………我觉得歌单可能和昨天一样………
+
+
+*****
+
+####  iuhehc  
+##### 4044#       发表于 2021-10-31 15:28
+
+
+觉得nagi唱liella之歌好好听好优美
+
+
+*****
+
+####  player3960  
+##### 4045#       发表于 2021-10-31 15:28
+
+
+liella之歌三首都不变的话，剩下的应该就和昨天一样了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Arccueid  
+##### 4046#       发表于 2021-10-31 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351875&amp;ptid=2028598" target="_blank">lj205 发表于 2021-10-31 15:26</a>
+
+………………我觉得歌单可能和昨天一样………</blockquote>
+应该是一样了，不意外就是..
+
+
+*****
+
+####  kata魂  
+##### 4047#       发表于 2021-10-31 15:30
+
+
+没有变，第二个是pay
+
+
+*****
+
+####  lj205  
+##### 4048#       发表于 2021-10-31 15:32
+
+
+这是为什么啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到底官方把可可当啥了………………
+
+
+*****
+
+####  player3960  
+##### 4049#       发表于 2021-10-31 15:35
+
+
+换了耶
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cybernetics31  
+##### 4050#       发表于 2021-10-31 15:35
+
+
+不意外啊，不同地方不同solo呗
+
+
+
+
+*****
+
+####  lj205  
+##### 4051#       发表于 2021-10-31 15:35
+
+
+？？？？？？？？？？？？？？？？
+
+
+*****
+
+####  Arccueid  
+##### 4052#       发表于 2021-10-31 15:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53351957&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-10-31 15:35</a>
+
+不意外啊，不同地方不同solo呗</blockquote>
+估计是了，md
+
+如果下周的day1变了我就买day2的票
+
+
+*****
+
+####  Arccueid  
+##### 4053#       发表于 2021-10-31 15:39
+
+
+梅 开 二 度
+
+
+*****
+
+####  player3960  
+##### 4054#       发表于 2021-10-31 15:40
+
+
+感觉在多看几次就要对第八集免疫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
