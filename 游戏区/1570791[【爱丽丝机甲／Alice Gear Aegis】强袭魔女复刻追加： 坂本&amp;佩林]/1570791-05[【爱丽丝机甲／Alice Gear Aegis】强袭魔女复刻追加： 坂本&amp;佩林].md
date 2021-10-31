@@ -2720,3 +2720,54 @@ ep5最后有大概是未来的独眼马尾奏。
 因为联机活动图是弱电，就把爱花步枪升了分支拿出来用，意外的发现，输出很暴力啊，除了肩部导弹发射时不能做别的动作，简直完美。
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6194#       发表于 2021-10-31 22:56
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/225500wuohxuwnuwunhwvz.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211031224418.png</strong> (397.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 22:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/225500t22rv9mizh900v7i.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211031224428.png</strong> (190.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 22:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/225501bsjfqjbs67fa2aea.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211031224437.png</strong> (206.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 22:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202110/31/225501u9a6x5ixe0acen61.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211031224434.png</strong> (288.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-10-31 22:55 上传
+
+
+这次活动有几个关卡背景看得又近又清晰，船团大概就是这样子抱团的吧。就是那个放着绿色光圈的玩意不知道是啥有什么用，船团范围里有好几个。防止VICE直接跳跃转移的装置？？等下次P做问答箱活动的时候问下。
+
+

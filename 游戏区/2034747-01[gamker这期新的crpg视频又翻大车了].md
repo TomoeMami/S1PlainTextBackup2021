@@ -2456,3 +2456,17 @@ gamker的文案经常会出现煽情过度的情况，有时候在想他读文�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  Skyaaqq  
+##### 202#       发表于 2021-10-31 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53350886&amp;ptid=2034747" target="_blank">茛菪 发表于 2021-10-31 13:36</a>
+
+其实这期被锤本质就是因为没有狠吹吧，什么“侵权”“剧情没自由度”骂的有够难听了，这才让玩家跳脚了。之 ...</blockquote>
+这不是不狠吹的问题，这是连基本事实都搞错的指鹿为马，还是开幕雷击……连视频和游戏标题里的Pathfinder都没搞清楚是什么就说毛子用了DND的规则是侵权，毛子要是知道这事都可以起诉他诽谤了（开拓者规则本身是基于DND的开放授权规则部分演变而来，根本不是侵权，要不然威世智早在09年就把Paizo告到倒闭了）
+
+

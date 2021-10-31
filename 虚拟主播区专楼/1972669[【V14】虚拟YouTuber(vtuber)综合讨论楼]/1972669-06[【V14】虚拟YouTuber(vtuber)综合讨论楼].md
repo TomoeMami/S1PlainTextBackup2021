@@ -7445,3 +7445,77 @@ king这个皮……
 syl，葵最近的身体状况可能还不适合参加live活动吧，最近的新3d基本都跟live绑定的样子
 
 
+
+
+*****
+
+####  黑之和  
+##### 8017#       发表于 2021-10-31 22:40
+
+
+ 本帖最后由 黑之和 于 2021-10-31 22:45 编辑 
+
+分组...
+<img src="https://p.sda1.dev/3/952f4cf3db5e3dbbda66b33a9445e1d9/IMG_CMP_220006138.jpeg" referrerpolicy="no-referrer">
+syl
+この世に救済を
+
+《ウルフィズム》
+ギルザレンⅢ世×剣持刀也×カザキ様cover
+[ウルフィズム](https://youtu.be/PSVbvYsn4OA)
+
+
+*****
+
+####  カカオ  
+##### 8018#       发表于 2021-10-31 22:42
+
+
+会每人做一套？我以为是换头…
+
+
+*****
+
+####  ヒトニナル  
+##### 8019#       发表于 2021-10-31 22:44
+
+
+但是阿B从来没给我推过えぬじん的视频，大数据需要再接再厉啊🤔
+
+
+*****
+
+####  渡鸦骑士  
+##### 8020#       发表于 2021-10-31 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356615&amp;ptid=1972669" target="_blank">カカオ 发表于 2021-10-31 22:42</a>
+会每人做一套？我以为是换头…</blockquote>
+这种按三种基础分别调整身高体型比单独做快很多的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 8021#       发表于 2021-10-31 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356127&amp;ptid=1972669" target="_blank">fastary 发表于 2021-10-31 22:01</a>
+
+三不五时看到有人在微博说被大数据冲塔了就去搜了下，ymen沉寂好久之后第一次开摄像头露脸那期的搬运已经2w ...</blockquote>
+其实今年也有一些试图发掘新方向的线下活动，比如シェリン＆三枝 最初の事件，3Dイベント『NIJISANJI SHOW DOWN』（机台+quiz组），B級バラ後悔収録，反响大概都没有live高吧...
+
+
+Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情发展？
+
+
+*****
+
+####  黑之和  
+##### 8022#       发表于 2021-10-31 22:58
+
+
+红拖鞋我是真蚌埠助了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/4ff360f8b5ffdae44f0d5e4427769d0b/IMG_CMP_20136844.jpeg" referrerpolicy="no-referrer">
+
+
