@@ -6384,3 +6384,29 @@ tianlangistl
 讲道理，甚平要是真潜水，鸡哥一个冷冻把他冻住了，他不就白给了嘛。海对于鸡哥来说也算主场啊。
 
 
+
+
+*****
+
+####  暗影翔  
+##### 55974#       发表于 2021-11-1 19:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53366466&amp;ptid=98922" target="_blank">武男 发表于 2021-11-1 16:43</a>
+
+讲道理，甚平要是真潜水，鸡哥一个冷冻把他冻住了，他不就白给了嘛。海对于鸡哥来说也算主场啊。 ...</blockquote>
+那么大的海，我觉得鸡哥真冻不住，水从表面开始冷冻，甚平直接用水打烂冰，最后就是一片片浮冰。
+
+
+*****
+
+####  武男  
+##### 55975#       发表于 2021-11-1 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369081&amp;ptid=98922" target="_blank">暗影翔 发表于 2021-11-1 19:49</a>
+
+那么大的海，我觉得鸡哥真冻不住，水从表面开始冷冻，甚平直接用水打烂冰，最后就是一片片浮冰。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">还是挺难的，钻石被控住了一次就彻底退出战场了，鸡哥能力虽然没有狗子这么暴力，但是真的被控住也是非死既残。
+
+

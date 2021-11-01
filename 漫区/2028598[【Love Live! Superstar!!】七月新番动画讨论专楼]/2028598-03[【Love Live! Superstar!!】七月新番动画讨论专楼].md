@@ -14661,3 +14661,111 @@ X三代不服了
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 4260#       发表于 2021-11-1 19:50
+
+
+就算算上前面的黑皮，你楼依然算是纯良<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只能说“真爱啊这是真爱啊”，至于口水巾这种，烂梗和烂梗警察是没办法的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  普之舜舜  
+##### 4261#       发表于 2021-11-1 19:54
+
+
+吓得我把前面给编辑下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实有些梗在相关内容说我觉得没啥问题，到处提那么就很烂了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4262#       发表于 2021-11-1 19:54
+
+
+舜舜估计又要翻页了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4263#       发表于 2021-11-1 19:55
+
+
+ 本帖最后由 普之舜舜 于 2021-11-1 19:56 编辑 
+
+翻跟头，翻跟头
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  cat1230  
+##### 4264#       发表于 2021-11-1 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369090&amp;ptid=2028598" target="_blank">绯想alter2nd 发表于 2021-11-1 19:50</a>
+
+就算算上前面的黑皮，你楼依然算是纯良
+
+只能说“真爱啊这是真爱啊”，至于口水巾这种，烂梗和烂梗警 ...</blockquote>
+b站的口水巾梗因为B楼是可以折叠而且基本集中在1楼内折叠，观感上海凑活不算凸恶。我看下来感觉还是liyuu微博下面比较和谐，可能因为我自己不玩微博，是星团动画确定后才偶尔去微博逛一下看看鲤鱼发了啥，评论都挺和谐。
+
+
+*****
+
+####  普之舜舜  
+##### 4265#       发表于 2021-11-1 19:55
+
+
+我总结出来了，新开页面必须3条回复才可以显示
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4266#       发表于 2021-11-1 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369135&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-11-1 19:55</a>
+b站的口水巾梗因为B楼是可以折叠而且基本集中在1楼内折叠，观感上海凑活不算凸恶。我看下来感觉还是liyuu ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">翻新页到底要不要其他人回复才显示呀？我乱了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  秋月艾莉  
+##### 4267#       发表于 2021-11-1 19:58
+
+
+鲤鱼新推直接さゆ
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不仲人出来挨揍（
+
+
+*****
+
+####  普之舜舜  
+##### 4268#       发表于 2021-11-1 20:01
+
+
+生草的谷歌翻译<img src="https://p.sda1.dev/3/59503d3a5b321ed254e4b6730d28a286/IMG_CMP_200267341.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

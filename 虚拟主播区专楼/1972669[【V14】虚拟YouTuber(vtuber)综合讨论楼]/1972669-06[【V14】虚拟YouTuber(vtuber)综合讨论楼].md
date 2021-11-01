@@ -8182,3 +8182,54 @@ SYL，巴布太郎去迪士尼感觉还不错。
 你虹刚开始搞的那些半截子综艺和线下会不也是这些东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实一直都挺贴近日本市场的，只不过当初没钱没技术而已
 
 
+
+
+*****
+
+####  IDIDIDID  
+##### 8079#       发表于 2021-11-1 19:48
+
+
+你虹10月SC第一的女V是yqqx？！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 8080#       发表于 2021-11-1 19:54
+
+
+这种娱乐公司还是赶紧去死吧
+
+
+*****
+
+####  poipanchao  
+##### 8081#       发表于 2021-11-1 19:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369064&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-11-1 19:48</a>
+
+你虹10月SC第一的女V是yqqx？！</blockquote>
+虽然我没看，难道不是010？
+
+
+*****
+
+####  alcoholic1000  
+##### 8082#       发表于 2021-11-1 19:59
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/195906vy03y2y8ffm8zdgl.png" referrerpolicy="no-referrer">
+
+
+<strong>눈보라 : Bora Nun 【NIJISANJI KR】.png</strong> (50.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 19:59 上传
+
+
+千寻今天应该有新衣装，油男明天
+
+
