@@ -3334,3 +3334,77 @@ gamker除了国游勉强能看，别的着实看不下去，又浅又尬，而�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  Richardsw  
+##### 261#       发表于 2021-11-1 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369242&amp;ptid=2034747" target="_blank">dumplingpro 发表于 2021-11-1 20:03</a>
+其实更严重，用是游戏自己简介就说了，第一段说他是奇幻背景，第二段就说是开拓者规则，等于简介都没看… ...</blockquote>
+这Gamker也太草台了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  bad_alloc  
+##### 262#       发表于 2021-11-1 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370598&amp;ptid=2034747" target="_blank">含恨未了切莫死 发表于 2021-11-1 22:15</a>
+
+内裤门为啥泥潭声望极低？我注册时间短...</blockquote>
+最近几年写了些瞎几把吹的文章，被泥潭批判了呗，直接坛内搜索内裤门爬一下楼看看原文就知道大概了
+
+我个人对他是没什么意见的，因为也有很长一段时间不关注他了
+
+
+*****
+
+####  Eric_方歌阙  
+##### 263#       发表于 2021-11-1 23:17
+
+
+ 本帖最后由 Eric_方歌阙 于 2021-11-1 23:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370834&amp;ptid=2034747" target="_blank">电磁炮233 发表于 2021-11-1 22:39</a>
+
+这道歉动态是不是控评了，一眼望去清一色洗地
+
+
+—— 来自 S1Fun</blockquote>
+
+就是控评，而且是花钱控评，从上一条试探性的B站动态就开始了，意识到这一点的瞬间马上拉黑这晦气吊人、多看一眼都是亏。
+
+
+各种模板式的公关回复，印象比较深的有虚空打靶“虽然up有不对的地方，人身攻击的人更恶心”，有纯路人“评论区好可怕”，还有抱团婊crpg玩家的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，很难绷得住。
+
+
+*****
+
+####  含恨未了切莫死  
+##### 264#       发表于 2021-11-1 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371150&amp;ptid=2034747" target="_blank">bad_alloc 发表于 2021-11-1 23:06</a>
+
+最近几年写了些瞎几把吹的文章，被泥潭批判了呗，直接坛内搜索内裤门爬一下楼看看原文就知道大概了
+
+我个 ...</blockquote>
+谢谢回复，我去爬楼了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅林的三角裤  
+##### 265#       发表于 2021-11-1 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369306&amp;ptid=2034747" target="_blank">bad_alloc 发表于 2021-11-1 20:09</a>
+笑什么笑，谁家的T都得兼巫师拿冻皮蜥蜴冰戒指</blockquote>
+那也可以是和尚之怒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
