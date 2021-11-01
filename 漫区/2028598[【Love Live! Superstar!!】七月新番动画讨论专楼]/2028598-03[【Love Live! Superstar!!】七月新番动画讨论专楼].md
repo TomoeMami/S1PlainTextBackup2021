@@ -13574,3 +13574,67 @@ b站评分也就图一乐，好像b站评分8分就算烂番了
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  优妮可  
+##### 4178#       发表于 2021-11-1 09:47
+
+
+也有可能是第一场，之前排练的时间运动量比较多，之后的场有经验应该就会少点了，我是觉得那个生放没啥必要，而且不少人还有自己的工作呢
+
+
+*****
+
+####  darkendless  
+##### 4179#       发表于 2021-11-1 09:50
+
+
+虽然高强度的演出有利于积累经验，但五个姑娘特别是小百合和pay宝经不起这么耗的。希望接下来的演出安排科学一点，多放点映像整点互动都挺好的，一直唱跳太累了。
+
+
+*****
+
+####  仟音一心  
+##### 4180#       发表于 2021-11-1 09:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359194&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-1 08:36</a>
+
+怎么没看到我回复呀？尴尬呀遇到bug了反映给🐶叔，让他修复下呀
+
+
+—— 来自 OPPO PDKM00, An ...</blockquote>
+100页以上的楼必有翻页bug
+
+
+*****
+
+####  土豆不土  
+##### 4181#       发表于 2021-11-1 09:59
+
+
+小百合和呸宝发声方式不科学很伤嗓子的…希望她们这么棒的声音能多唱几年
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 4182#       发表于 2021-11-1 09:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鲤鱼还有个人活动
+
+
+*****
+
+####  lj205  
+##### 4183#       发表于 2021-11-1 10:04
+
+
+阿玛扣了一笔款，不知道是啥钱，东西多的我都不知道自己到底买了啥<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
