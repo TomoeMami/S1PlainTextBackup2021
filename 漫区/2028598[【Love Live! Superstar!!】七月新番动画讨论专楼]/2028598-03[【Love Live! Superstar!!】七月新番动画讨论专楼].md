@@ -14021,3 +14021,45 @@ B6046C49-E555-43AB-9315-8D047C0A6251.jpeg
 小年轻还缺乏过度用完嗓子当天睡前要好好保养的经验啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  iuhehc  
+##### 4208#       发表于 2021-11-1 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365289&amp;ptid=2028598" target="_blank">zylwz 发表于 2021-11-1 15:24</a>
+
+看昨天上午的推
+
+第一天唱完太累倒头就睡
+
+第二天早上起来估计是发现嗓子状况不对狂喝水</blockquote>
+是这样的，应该没啥经验，之后就知道对待长期巡演得怎么保护嗓子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 4209#       发表于 2021-11-1 15:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364607&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-1 14:32</a>
+又卡了</blockquote>
+遇到换楼的多回复几楼应该就行了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4210#       发表于 2021-11-1 15:35
+
+
+估计隔壁换楼的时候继续接着，所以没看出什么bug
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

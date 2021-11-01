@@ -6295,3 +6295,28 @@ tianlangistl
 尾田前期负责的老编辑早就退了吧？本子排资论辈那么严重，年轻编辑哪敢管这位大佬
 
 
+
+
+*****
+
+####  qwxbtgb  
+##### 55968#       发表于 2021-11-1 15:24
+
+
+<blockquote>武男 发表于 2021-11-1 11:05
+皇副肯定是马尔科了，白胡子海贼团里面能够干涉顶上战争局势的，就是花剑，钻石和马尔科。钻石按战绩来说 ...</blockquote>
+艾斯打平手的是陆上的甚平，甚平还没全力
+
+
+*****
+
+####  斯卡哈  
+##### 55969#       发表于 2021-11-1 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365296&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-11-1 15:24</a>
+
+艾斯打平手的是陆上的甚平，甚平还没全力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一，我觉着在水里的甚平除了鸡和狗这种直接对水动手的，其他将皇还真不一定打得过...
+
+
