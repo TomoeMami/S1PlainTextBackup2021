@@ -3298,3 +3298,26 @@ gamker除了国游勉强能看，别的着实看不下去，又浅又尬，而�
 所以这么看破晓的8.5分和仙剑的7.6分是不是就很合理了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  含恨未了切莫死  
+##### 258#       发表于 2021-11-1 22:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368907&amp;ptid=2034747" target="_blank">bad_alloc 发表于 2021-11-1 19:36</a>
+
+说起来我一个从没跑过团，老炮crpg只玩过bg1而且连博德之门都没去到的叶公好龙玩家在差不多10年前都听说过p ...</blockquote>
+内裤门为啥泥潭声望极低？我注册时间短...
+
+
+*****
+
+####  ff2077  
+##### 259#       发表于 2021-11-1 22:17
+
+
+这不是很正常？steam评价里面不经常出现喷一大票最后还是给了好评吗，虽然这些是拉跨的地方，但人家不认为值得扣分或者扣很多分。
+
+

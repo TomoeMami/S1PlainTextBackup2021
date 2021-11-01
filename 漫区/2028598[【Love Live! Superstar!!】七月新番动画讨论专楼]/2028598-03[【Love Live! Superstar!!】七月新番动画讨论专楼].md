@@ -14880,3 +14880,27 @@ b站的口水巾梗因为B楼是可以折叠而且基本集中在1楼内折叠�
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 4278#       发表于 2021-11-1 22:05
+
+
+ 本帖最后由 普之舜舜 于 2021-11-1 22:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  darkendless  
+##### 4279#       发表于 2021-11-1 22:12
+
+
+おそっろち警察草，鲨鱼林也太宠了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+

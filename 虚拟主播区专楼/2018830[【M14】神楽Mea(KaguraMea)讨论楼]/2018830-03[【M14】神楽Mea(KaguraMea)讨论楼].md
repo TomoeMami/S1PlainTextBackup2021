@@ -17168,3 +17168,23 @@ wa，这最后读sc有些se
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  2014720  
+##### 4490#       发表于 2021-11-1 22:14
+
+
+怎么才月初就没钱了
+
+
+*****
+
+####  T_Hb  
+##### 4491#       发表于 2021-11-1 22:16
+
+
+当然是礼品卡不能用了
+
+

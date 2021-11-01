@@ -965,3 +965,46 @@ s1的醍醐味
 謝太太推薦，改天到上下九請你陶陶居<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  酱油康  
+##### 81#       发表于 2021-11-1 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370316&amp;ptid=2035152" target="_blank">圆面包 发表于 2021-11-1 21:50</a>
+
+我 还认真推荐了好几家餐厅</blockquote>
+哈哈哈他回你了
+
+
+*****
+
+####  圆面包  
+##### 82#       发表于 2021-11-1 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370439&amp;ptid=2035152" target="_blank">naruto3432 发表于 2021-11-1 22:02</a>
+
+謝太太推薦，改天到上下九請你吃陶陶居</blockquote>
+谢谢还是不用了……陶陶居还不值得我出门跑一趟<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+有去这些餐厅吃一顿就不算浪费我翻点评回忆可以推荐的餐厅了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| naruto3432| + 2|好评加鹅|
+
+
+查看全部评分
+
+
