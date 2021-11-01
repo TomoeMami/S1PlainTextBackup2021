@@ -2686,3 +2686,34 @@ B站上这种游戏UP都是团队合作，出镜或者发声的人大概率只�
 「《雅典娜》里的雅典娜化名为麻宫雅典娜参战」，「《怒》里的哈迪兰......也都高调出场」，「因此《拳皇98》成了首个入围大型格斗比赛的一作」，「哦对了他们好像还拥有同一个女朋友——小雪」，「（八神庵）负责贝斯和吉他，看不出来吧」，「而旗下的作品从《拳皇2000》到XIII质量也的确一般」，2018年拳皇那期节目随处可见的“黑历史”文案，森气楼负责人设什么的复读机论就别提了
 
 
+
+
+*****
+
+####  粪坑战士  
+##### 221#       发表于 2021-11-1 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53342971&amp;ptid=2034747" target="_blank">偶像程序员POI 发表于 2021-10-30 19:43</a>
+
+疯猫就是那个昧着良心给罪恶帝国恰饭的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">合着都得是冰清玉洁的圣人才有资格给你做视频 你谁啊？
+
+
+*****
+
+####  偶像程序员POI  
+##### 222#       发表于 2021-11-1 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53362256&amp;ptid=2034747" target="_blank">粪坑战士 发表于 2021-11-1 11:58</a>
+
+合着都得是冰清玉洁的圣人才有资格给你做视频 你谁啊？</blockquote>
+不恰饭的说错了你要喷
+
+恰饭的故意说错你不喷
+
+
+够双标的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+

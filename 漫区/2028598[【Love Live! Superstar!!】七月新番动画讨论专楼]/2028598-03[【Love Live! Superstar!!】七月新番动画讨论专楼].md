@@ -13674,3 +13674,14 @@ b站评分也就图一乐，好像b站评分8分就算烂番了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议删了，去下个streamlink（FFmpeg）抓，再剪掉开头的1小时广告的话，6G左右，TS格式会再大一点
 
 
+
+
+*****
+
+####  lj205  
+##### 4186#       发表于 2021-11-1 12:04
+
+
+求问B站现在有哪些好用的缓存（下载）视频的插件？
+
+
