@@ -7605,3 +7605,17 @@ Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情
 不过就yhm那所处环境，估计也考虑不到这个了
 
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 8030#       发表于 2021-11-1 09:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356646&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-10-31 22:44</a>
+
+但是阿B从来没给我推过えぬじん的视频，大数据需要再接再厉啊🤔</blockquote>
+好久没看你虹了，えぬじん是不是糊到没边了？
+
+
