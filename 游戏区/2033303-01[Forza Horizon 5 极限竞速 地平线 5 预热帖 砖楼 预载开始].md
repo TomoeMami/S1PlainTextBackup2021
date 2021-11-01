@@ -1557,3 +1557,18 @@ s2级车养老真舒服
 steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D-JoeII  
+##### 109#       发表于 2021-11-2 00:43
+
+
+<blockquote>爱护动物抓根宝 发表于 2021-11-1 15:57
+话说这一代评分出来的有点晚啊，4我记得差不多一周前就出了。
+
+主要是想看看能不能上个90，今年上90的新游太 ...</blockquote>
+4號出評分9號正式發售，也差不多一週了，除非你把終極版提早進遊戲的時間也算上
+
+
