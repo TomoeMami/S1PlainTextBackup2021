@@ -1054,3 +1054,28 @@ s1的醍醐味
 乐
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 87#       发表于 2021-11-2 02:04
+
+
+老巨魔看着真可怜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  若槻镜  
+##### 88#       发表于 2021-11-2 02:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370825&amp;ptid=2035152" target="_blank">limboc 发表于 2021-11-1 22:38</a>
+
+绝了，我貌似还认真给这位仁兄提了建议
+
+所以这种自我表演意义何在？让潭友因为“有人居然有湾湾女朋 ...</blockquote>
+大概7年前还发帖说自己草了黑人妖来着，就是图个爽。大概靠这些谈资私底下私信泥潭妹子吧。
+
+

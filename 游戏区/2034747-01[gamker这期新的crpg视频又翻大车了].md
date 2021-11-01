@@ -3489,3 +3489,19 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 —— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  翼宿一  
+##### 272#       发表于 2021-11-2 02:01
+
+
+ 本帖最后由 翼宿一 于 2021-11-2 02:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371456&amp;ptid=2034747" target="_blank">stair楼梯 发表于 2021-11-1 23:36</a>
+鬼泣那期怎么翻车的，因为他这边评论也基本上清一色帮他说话的就不想去看原视频了 ...</blockquote>
+原视频底下高赞评论就有玩鬼泣的大佛指出错误，那会应该也没啥控评所以前排能看到几个指出错误的评论，都看一遍也知道为啥了。
+简而言之就是瞎升华，拿新战神和鬼泣 5 作比较，命题是变革与不变革，全然没认识到 ACT 和 ARPG 类型的不同，虚空打靶写小作文。和现在的问题也一样，到了外行领域又不愿做功课还要做长视频的必然结果，只是那会翻得没现在厉害，道歉了也就完了。
+虽然很业余但那会我还没取关，到尬吹只狼那期我才取关，小作文环节为了升华一个宫崎老贼把 FS 以前的作品都踩了实在是难看。<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
