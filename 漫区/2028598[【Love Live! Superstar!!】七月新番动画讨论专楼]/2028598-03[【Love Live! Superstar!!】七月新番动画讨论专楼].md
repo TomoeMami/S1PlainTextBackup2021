@@ -14262,3 +14262,30 @@ syl，小星星当中有段拍肩转身我觉得特别可爱，没想到有人�
 草，那个dream rainbow那首就听得很明显
 
 
+
+
+*****
+
+####  土豆不土  
+##### 4224#       发表于 2021-11-1 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367355&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-1 17:43</a>
+
+草，那个dream rainbow那首就听得很明显</blockquote>
+像鲤鱼全混就会轻松很多，pay宝哪天能转换自如就无敌辣<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 不知道她们有没有声乐指导？
+
+
+*****
+
+####  iuhehc  
+##### 4225#       发表于 2021-11-1 17:58
+
+
+ 本帖最后由 iuhehc 于 2021-11-1 18:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367427&amp;ptid=2028598" target="_blank">土豆不土 发表于 2021-11-1 17:47</a>
+
+像鲤鱼全混就会轻松很多，pay宝哪天能转换自如就无敌辣 不知道她们有没有声乐指导？ ...</blockquote>
+说到混声 nagi的liella之歌就唱的很舒服 强混弱混头声都用的不错的感觉
+
+
