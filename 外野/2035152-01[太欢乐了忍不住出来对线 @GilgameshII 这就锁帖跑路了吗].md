@@ -834,3 +834,65 @@ s1的醍醐味
 这种东西谁知道呢，就算被认出来死不承认，也没辙吧。
 
 
+
+
+*****
+
+####  欧金金  
+##### 69#       发表于 2021-11-1 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367826&amp;ptid=2035152" target="_blank">iriyano 发表于 2021-11-1 18:13</a>
+
+绷不住了，印象里泥潭出来发帖挂人的就没几个善终的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我上次也被挂了
+
+
+*****
+
+####  路西恩  
+##### 70#       发表于 2021-11-1 20:27
+
+
+发生了什么事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  CloneCommando  
+##### 71#       发表于 2021-11-1 20:27
+
+
+爆笑如雷了家人们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YJSNPI  
+##### 72#       发表于 2021-11-1 20:28
+
+
+你敢扣我激骚？我和你拼了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  京騒戯画  
+##### 73#       发表于 2021-11-1 20:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浪费我感情还认真的给他回帖，太恶心了，堪比上半年的张姐
+
+
+*****
+
+####  shhekun  
+##### 74#       发表于 2021-11-1 20:35
+
+
+那个小号的回帖好恶臭啊...如果不是rpg的话,真接受不了
+
+

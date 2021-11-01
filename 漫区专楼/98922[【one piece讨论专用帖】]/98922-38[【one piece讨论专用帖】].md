@@ -6410,3 +6410,16 @@ tianlangistl
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">还是挺难的，钻石被控住了一次就彻底退出战场了，鸡哥能力虽然没有狗子这么暴力，但是真的被控住也是非死既残。
 
 
+
+
+*****
+
+####  南条一间  
+##### 55976#       发表于 2021-11-1 20:33
+
+
+现在的五皇能摸到存活角色前十守门员那个位置吗
+
+感觉快了啊，打完凯多就妥妥的第一梯队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

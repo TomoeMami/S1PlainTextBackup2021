@@ -8319,3 +8319,66 @@ SYL，巴布太郎去迪士尼感觉还不错。
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 只要JP疫苗推广的好，线下演唱会就会一直办起来的，一切都会好起来的
 
 
+
+
+*****
+
+####  OldGlory  
+##### 8087#       发表于 2021-11-1 20:20
+
+
+油管差一手会员数量 不方便和维阿比流水
+
+
+*****
+
+####  free  
+##### 8088#       发表于 2021-11-1 20:31
+
+
+这个烂货圆脸唱的这么难听，还有脸开live，发表live消息1分钟，带货半小时。真的是不比唱的好，就比粉丝忠诚度，看这个烂货还有多少忠实韭菜可以割。
+
+
+人家都在livehouse开，这个烂货只能在电影院开，重大发表才来了4000人，都不知道到时候俩电影院坐不坐得满，还要特意在卖票网站写上“予約締め切り直前は両サイト込み合う可能性がありますのでお時間に余裕を持ってお申し込みください。”真的是自我感觉良好到了一定境界，笑嘻了。
+
+[https://virtual.spwn.jp/events/22012201-rlroleplay](https://virtual.spwn.jp/events/22012201-rlroleplay)
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/203107cb9m9zj9ujsm9jp9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>烂货圆脸.jpg</strong> (295.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 20:31 上传
+
+
+*****
+
+####  winda  
+##### 8089#       发表于 2021-11-1 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368374&amp;ptid=1972669" target="_blank">本间日阳 发表于 2021-11-1 18:52</a>
+
+什么寄吧，练习生吗？
+
+话说我记得以前ichikara搞过一个被嘲讽为虚拟陪酒女的企划，还活着吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不仅还活着，还要出虚拟牛郎了
+
+就是太草台体验会没了
+
+
+*****
+
+####  winda  
+##### 8090#       发表于 2021-11-1 20:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367633&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-11-1 18:02</a>
+
+培训估计水的一逼，也就是为了防止金鱼这种人出现，感觉以后绝大部分人应该是会直接本社出道的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金鱼好歹出道时可是打破最速银盾记录的超级新人，虹现在也没几个实力有她强的
+
+
