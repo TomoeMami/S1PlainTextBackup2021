@@ -18546,3 +18546,35 @@ XP工具栏是蓝色，开始按钮是绿色。
 —— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1280#       发表于 2021-11-1 18:30
+
+
+ 本帖最后由 V宇宙的守夜人Z 于 2021-11-1 18:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367891&amp;ptid=1860817" target="_blank"> 梶原ひかり 发表于 2021-11-1 18:18</a> 纯夏....真的是女主么？动画党表示 这是虚假女主吧 目前只出现在回忆中...  —— 来自 HUAWEI LLD-AL00, Android 9上的 S1Next-鹅版 v2.2.2 </blockquote>
+第一部extra 里是戏份很多，正常体验的流程应该是推完无聊的extra日常，发现第二部老婆没了，打完Unlimited也没出现，直到动画做的Al 大后期怒涛展开，前面extra与女主的无聊日常就会化为尖刀刺穿玩家的内心，纯动画党自然是很难有这种体验了，我个人认为Muv正传三部曲，一个表女主是纯夏，一个里女主是夕呼来自: iPhone客户端
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1281#       发表于 2021-11-1 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367891&amp;ptid=1860817" target="_blank">梶原ひかり 发表于 2021-11-1 18:18</a>
+纯夏....真的是女主么？动画党表示 这是虚假女主吧 目前只出现在回忆中...
+
+—— 来自 HUAWEI LLD-A ...</blockquote>
+因为动画毕竟是三部曲的第三部分，拯救世界是明线，纯夏是暗线。即使介绍了前文，观众也很难有实感。
+
+第一部分extra，明线是“回不去的校园日常”暗线是“纯夏是唯一正宫，不选纯夏我有负罪感”
+第二部分unlimited，明线是“什么都没拯救糊里糊涂alt5发动人类被抛弃在地球上的挫败感”，暗线是“为什么这个世界没有纯夏，我的纯夏呢？”
+
+以上内容在动画是作为背景给出的，观众没有实感也正常。
+然后才是第三部分alternative的明线“我在这一次一定要拯救世界”和【剧透禁止】
+
+

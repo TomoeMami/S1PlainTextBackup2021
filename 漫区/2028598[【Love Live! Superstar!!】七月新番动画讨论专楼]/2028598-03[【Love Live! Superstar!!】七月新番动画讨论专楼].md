@@ -14414,3 +14414,54 @@ BV1fL4y1i78T
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为就这么几个人，小团体了属于是。黑屁进来都自讨没趣的
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4239#       发表于 2021-11-1 18:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 4240#       发表于 2021-11-1 18:34
+
+
+这确实，楼里活跃的就差不多10个人，头像id我都差不多能记住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+所以之前有人提议开群我觉得没必要，因为这里就跟小群氛围差不多
+
+
+*****
+
+####  megapikachu  
+##### 4241#       发表于 2021-11-1 18:37
+
+
+笑死了，还纯良呢，某些人得感谢开了个新楼，新来的看不到你们刚公布声优时的丑态。
+
+
+*****
+
+####  中野四葉  
+##### 4242#       发表于 2021-11-1 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368176&amp;ptid=2028598" target="_blank">megapikachu 发表于 2021-11-1 18:37</a>
+
+笑死了，还纯良呢，某些人得感谢开了个新楼，新来的看不到你们刚公布声优时的丑态。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是说这楼现在发言的人都是一号楼前面黑屁的人？
+
+
+*****
+
+####  cybernetics31  
+##### 4243#       发表于 2021-11-1 18:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哈哈哈哈
+
+

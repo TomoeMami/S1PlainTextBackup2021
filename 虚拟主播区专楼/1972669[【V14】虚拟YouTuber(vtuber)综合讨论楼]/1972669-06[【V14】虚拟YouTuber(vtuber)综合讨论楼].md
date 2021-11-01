@@ -8022,3 +8022,29 @@ VRjp只要稳定的发挥主播自己的特色就完事了<img src="https://stat
 反正虹观众群很大，也不用担心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  死体残留  
+##### 8065#       发表于 2021-11-1 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367748&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-11-1 18:08</a>
+我说的就是VRjp减少奇幻要素啊。
+就差写在脑门子上：只有弱小的组织才会为了刷眼球选择难rp的人设。
+VRjp ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第一次挺说有人吹虹是用皮的奇幻设定来吹的，虹最开始原罪就是产废路人脸live2d量产军团，最开始龙头都是靠兔头撕皮闯出来的，皮奇幻很重要么，一期生不是人设定就只有女神和艾露，虹一开始就不是走奇幻风
+
+
+*****
+
+####  free  
+##### 8066#       发表于 2021-11-1 18:26
+
+
+[https://www.youtube.com/watch?v=uAROgbQBxes](https://www.youtube.com/watch?v=uAROgbQBxes)
+
+VERSEⁿ - Episodeⁿ | 2021.11.12
+
+
