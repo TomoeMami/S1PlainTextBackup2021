@@ -2976,3 +2976,73 @@ B站上这种游戏UP都是团队合作，出镜或者发声的人大概率只�
 那期视频把堀读成掘这一点就让我难受住了
 
 
+
+
+*****
+
+####  齐柏林轰炸机  
+##### 238#       发表于 2021-11-1 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365959&amp;ptid=2034747" target="_blank">harmonytree 发表于 2021-11-1 16:10</a>
+
+那期视频把堀读成掘这一点就让我难受住了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要玩过都知道他很多都在瞎扯，更别说其实天空三部曲国内玩过的人还挺多的
+
+
+*****
+
+####  GuardHei  
+##### 239#       发表于 2021-11-1 16:33
+
+
+虽然但是
+剧情评分有啥好辩的，评分这东西没有参照就没有意义，打个又75不一定是恰饭，这年头分数通货膨胀不很正常…
+评分和你心里对不少不挺正常的，重点不是看具体评价的内容吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  GuardHei  
+##### 240#       发表于 2021-11-1 16:35
+
+
+gamker除了国游勉强能看，别的着实看不下去，又浅又尬，而且聂俊这嗓音我也觉得适合当up，听起来特别累
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  偶像程序员POI  
+##### 241#       发表于 2021-11-1 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365351&amp;ptid=2034747" target="_blank">舌怪 发表于 2021-11-1 15:27</a>
+
+那游戏真这么烂吗？我也是还没玩过，只看过他那期视频，心理预期是70分左右 ...</blockquote>
+是真的烂   
+
+平衡性不行导致内容看起来不少但是你能用的就那么多
+
+他视频里演示的几乎就是这个游戏的全部内容
+
+
+*****
+
+####  偶像程序员POI  
+##### 242#       发表于 2021-11-1 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364717&amp;ptid=2034747" target="_blank">lushark 发表于 2021-11-1 14:41</a>
+
+连看他三条发言记录就知道为什么“毒唯”是连饭圈内部都嫌弃的群体了。 ...</blockquote>
+老双标了
+
+别人说错了就是水平不行，自家割割为了恰饭胡说八道就可以
+
+

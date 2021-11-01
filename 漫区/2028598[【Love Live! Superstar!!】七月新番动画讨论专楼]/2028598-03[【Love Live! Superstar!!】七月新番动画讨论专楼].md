@@ -14130,3 +14130,20 @@ syl，小星星当中有段拍肩转身我觉得特别可爱，没想到有人�
 我这奈雪茶多一点，喜茶喝过一次感觉不如奈雪，不论是茶还是点心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 4216#       发表于 2021-11-1 16:39
+
+
+我还没喝过喜茶因为觉得贵……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+感觉有时不能理解珍珠奶茶价格为啥从我小时候的10块不到一杯到现在快冲着30去了
+
+虽然用料感觉上确实是进化了不少
+
+也许今天下班该去搞一杯了……
+
+

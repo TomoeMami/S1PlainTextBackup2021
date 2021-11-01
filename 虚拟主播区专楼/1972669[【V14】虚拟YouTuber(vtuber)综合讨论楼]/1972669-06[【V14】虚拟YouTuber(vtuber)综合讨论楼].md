@@ -7705,3 +7705,33 @@ woc郡神哈圭利，感觉，很难不，熊熊燃烧啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qq845629713  
+##### 8038#       发表于 2021-11-1 16:31
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/163124spmw43bwdmzkpdb9.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20211101162953.png</strong> (72.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 16:31 上传
+
+
+anycolor的未来
+
+
+*****
+
+####  fastary  
+##### 8039#       发表于 2021-11-1 16:37
+
+
+我超，咋一看以为是什么底边一般向养成手游公测……
+
+
