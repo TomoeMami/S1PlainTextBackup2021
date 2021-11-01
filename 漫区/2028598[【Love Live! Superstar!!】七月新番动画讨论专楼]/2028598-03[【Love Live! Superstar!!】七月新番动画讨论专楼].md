@@ -13935,3 +13935,41 @@ B6046C49-E555-43AB-9315-8D047C0A6251.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真没必要那么担心  运营再没用这几天没live也够总结经验了 头一天运营没B数小年轻用力过猛也算正常 
 
 
+
+
+*****
+
+####  iuhehc  
+##### 4204#       发表于 2021-11-1 14:45
+
+
+ 本帖最后由 iuhehc 于 2021-11-1 14:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53360154&amp;ptid=2028598" target="_blank">土豆不土 发表于 2021-11-1 09:59</a>
+小百合和呸宝发声方式不科学很伤嗓子的…希望她们这么棒的声音能多唱几年
+
+
+不过听星光序言结尾的高 ...</blockquote>
+佩那个发声共鸣已经是标准
+她那个是最不伤嗓子的方式了
+可能是day1她mc和喊的太卖力导致声音沙哑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  saya1892  
+##### 4205#       发表于 2021-11-1 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364000&amp;ptid=2028598" target="_blank">名津流 发表于 2021-11-1 13:49</a>
+
+几乎每个中文相关社区都在说过劳的问题，特别是B站的小百合强撑着唱歌还有pay酱对自己第二天的表现做说明的 ...</blockquote>
+拉板也有一帖DAY2佩酱的讨论，200多楼吧
+
+不过拉了一下直播感想帖，也有很多人说后半恢复了些，或者说改了唱法
+
+
+巡演前确实也有人表示过担心，但也有人表示她们年轻，更需要的是机会
+
+
