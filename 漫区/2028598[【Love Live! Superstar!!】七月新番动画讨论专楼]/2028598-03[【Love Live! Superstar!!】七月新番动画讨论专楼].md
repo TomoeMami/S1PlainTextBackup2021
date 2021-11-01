@@ -13561,3 +13561,16 @@ b站评分也就图一乐，好像b站评分8分就算烂番了
 看到了，感谢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  damian-wade  
+##### 4177#       发表于 2021-11-1 09:38
+
+
+其实场次多还好，问题是没必要每场都一股脑唱那么多吧，工作量大，观众多看几场也腻，每个场的曲目错开唱少点，然后塞点talkshow玩玩游戏拖时间不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
