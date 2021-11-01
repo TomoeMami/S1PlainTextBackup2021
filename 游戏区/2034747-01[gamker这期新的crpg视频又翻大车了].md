@@ -2617,3 +2617,50 @@ gamker就是擅长假装玩游戏，结果视频就是网上二手梗合集，�
 这人的评测一看就是玩的不深入，各种蹭热度，居然有那么多人看也是服气。
 
 
+
+
+*****
+
+####  WarChief  
+##### 215#       发表于 2021-11-1 10:06
+
+
+gamker是聂胖子那个么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我记得之前云过太多游戏被喷的了
+
+
+*****
+
+####  GMJ  
+##### 216#       发表于 2021-11-1 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53338742&amp;ptid=2034747" target="_blank">翼宿一 发表于 2021-10-30 13:23</a>
+
+超出业务能力范围了还要蹭热点是该骂，虽然这时段游戏是不多，但既然要做好歹先做足功课 ...</blockquote>
+游戏不多难道不是更应该有充足的时间好好玩深入再做视频么？
+
+
+反正他的视频又不用太赶时效早一周，晚两周差别又不大，正义之怒是9月初的游戏，到现在都延后2个月了，也不在乎再多延后2周保证质量啊
+
+
+*****
+
+####  GMJ  
+##### 217#       发表于 2021-11-1 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53339930&amp;ptid=2034747" target="_blank">愿闻其翔 发表于 2021-10-30 15:38</a>
+
+B站上这种游戏UP都是团队合作，出镜或者发声的人大概率只是个念稿的，文案都是另有其人，我觉得这应该算常 ...</blockquote>
+我也觉得是常识，我自己小时候就是杂糅玩家什么都玩，基本有点名气的游戏都沾过，但就是因为这样，我才知道这么多游戏都深入精通是不可能的事情，每个游戏能坚持到通关就已经是效率算高了，就这个还得是捧着攻略开金手指buff的情况下。
+
+
+*****
+
+####  Marsoy  
+##### 218#       发表于 2021-11-1 10:19
+
+
+这个贴转成gamker黑楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+

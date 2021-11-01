@@ -7632,3 +7632,16 @@ Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情
 真实小圈子
 
 
+
+
+*****
+
+####  ヒトニナル  
+##### 8032#       发表于 2021-11-1 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359538&amp;ptid=1972669" target="_blank">2L模仿47哥 发表于 2021-11-1 09:13</a>
+好久没看你虹了，えぬじん是不是糊到没边了？</blockquote>
+往上拉拉，上了四周年live呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这说糊到没边不太合适吧
+
+
