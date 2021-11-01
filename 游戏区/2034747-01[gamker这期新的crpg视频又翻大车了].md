@@ -2664,3 +2664,14 @@ B站上这种游戏UP都是团队合作，出镜或者发声的人大概率只�
 这个贴转成gamker黑楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  司马千晶  
+##### 219#       发表于 2021-11-1 10:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真想做有干货的杂谈得精通多种游戏，谁有那么多精力。b站游戏介绍相关都是报菜名一样复读发售时间和制作人吧。。
+
+

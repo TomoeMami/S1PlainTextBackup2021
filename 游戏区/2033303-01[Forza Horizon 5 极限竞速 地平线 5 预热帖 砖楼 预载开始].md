@@ -1486,3 +1486,50 @@ https://b23.tv/fJL8GJ
 s2级车养老真舒服
 
 
+
+
+*****
+
+####  feve9999  
+##### 103#       发表于 2021-11-1 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53360419&amp;ptid=2033303" target="_blank">chan 发表于 2021-11-1 10:16</a>
+
+我的3和4都是微软商店买的，这次我看价格都一样，还是继续在微软商店买保险一点 ...</blockquote>
+微软商店和steam好友联机有点不稳的
+
+
+*****
+
+####  feve9999  
+##### 104#       发表于 2021-11-1 10:36
+
+
+泥潭有没地平线的群
+
+
+*****
+
+####  feve9999  
+##### 105#       发表于 2021-11-1 10:36
+
+
+ 本帖最后由 feve9999 于 2021-11-1 10:39 编辑 
+
+风怒编辑
+
+
+*****
+
+####  你好s1  
+##### 106#       发表于 2021-11-1 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53360613&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-1 10:28</a>
+
+微软商店和steam好友联机有点不稳的</blockquote>
+
+   不不不，这游戏单纯就是服务器奇葩，也不是大陆问题，国外也不行
+
+

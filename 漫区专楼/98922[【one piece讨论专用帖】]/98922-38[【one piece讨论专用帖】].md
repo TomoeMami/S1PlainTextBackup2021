@@ -6198,3 +6198,17 @@ tianlangistl
 看了最新话，这堪十郎也不是仰卧起坐那么离谱，只是使出最后的波纹
 
 
+
+
+*****
+
+####  先手必胜  
+##### 55961#       发表于 2021-11-1 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359241&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-11-1 08:41</a>
+
+看了最新话，这堪十郎也不是仰卧起坐那么离谱，只是使出最后的波纹</blockquote>
+这就是尾田现在频繁切镜头带来的恶劣观感，这一段要是就跟在锦卫门斩堪十郎之后，而不是把镜头切来切去，可能还不会那么难看
+
+
