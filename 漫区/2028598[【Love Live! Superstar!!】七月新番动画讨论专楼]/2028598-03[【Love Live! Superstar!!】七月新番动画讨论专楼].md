@@ -14801,3 +14801,56 @@ b站的口水巾梗因为B楼是可以折叠而且基本集中在1楼内折叠�
 上一页你们讨论了半天在老楼里放黑屁的黑历史，我还特意回去翻了翻记录，果然我从一开始就没黑过人家，看来我是LL专楼里最后的良心了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  player3960  
+##### 4272#       发表于 2021-11-1 21:27
+
+
+艹，就是因为那些黑屁搞的我Emi事件ptsd犯了，星团初期都不愿意过分关注三次元，结果动画中途拉了胯，又转投了三次元，现在只能说真香<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+话说虽然是因为星团才认识的鲤鱼，但看到她cos蕾姆那张图的时候瞬间就想起来了，这张图我早就看过，居然是她，只能说缘妙不可言！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  lj205  
+##### 4273#       发表于 2021-11-1 21:33
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/213301oa3axob8vicz8uvk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8AA856E8-B50D-4362-8995-AC12FE02E73F.jpeg</strong> (256.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 21:33 上传
+
+
+打铁…………真的是太宠鲤鱼了……
+
+
+*****
+
+####  iuhehc  
+##### 4274#       发表于 2021-11-1 21:42
+
+
+突然觉得鲤鱼是不是单纯喜欢说两个音节的昵称w date sayu nako nagi pay酱
+
+ 连她个人广播的导演和作家都喊成 yama 和tsuji 
+
+
+*****
+
+####  lj205  
+##### 4275#       发表于 2021-11-1 21:44
+
+
+节能是这样的
+
+
