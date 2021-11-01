@@ -981,3 +981,31 @@ Treasure of Nadia更新稳定、顶级3d黄油画面,妹子量多管饱；
 顺便这游戏本体就是个播片播放器，我是不知道在制作组有动捕工作室的情况下得到的动作数据是为什么不能直接导入，反而要成为所谓的“逆移植”，就隔壁某PH和CM3d2系列都可以直接导入数据呢，你用个虚幻这种目前通用性最强的引擎还能导入不了？
 
 
+
+
+*****
+
+####  首领  
+##### 70#       发表于 2021-11-2 00:09
+
+
+抖内害人
+
+
+*****
+
+####  a317216007  
+##### 71#       发表于 2021-11-2 00:10
+
+
+ 本帖最后由 a317216007 于 2021-11-2 00:20 编辑 
+
+说实话，从Patreon的鬼佬众筹里找游戏，不应该叫排雷，应该叫粪里淘金<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+透过F95开始跟一些更新那么几年，光Renpy和RM的便宜游戏，靠着去订做几张好看CG骗一波订阅支付就光速abandoned的比比皆是；长更5年6年更新周期越来越长，内容越来越差的就更多了；截图I社游戏MOD或者けいおん！着せ替え２来做游戏打擦边球也就算了，甚至还有出现直接盗用11区商业CG或者商业素材来做电子小说的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+能3年内做到FINAL一作非CTRL类电子小说的少之又少，反过来说能期待一作更新完的，就只有那么几个有更新完过作品实绩的社团，这个关系就很鸡生蛋<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">，在这个数量下想要求善始善终的佳作就是少的可怜
+
+说到底Patreon游戏也就图一乐，指望出一款神作黄油根本不现实，宣传上量的了建议统一当作骗鬼呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
