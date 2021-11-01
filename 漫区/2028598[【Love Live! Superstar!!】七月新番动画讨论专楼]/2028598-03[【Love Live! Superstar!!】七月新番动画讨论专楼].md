@@ -14147,3 +14147,73 @@ syl，小星星当中有段拍肩转身我觉得特别可爱，没想到有人�
 也许今天下班该去搞一杯了……
 
 
+
+
+*****
+
+####  优妮可  
+##### 4217#       发表于 2021-11-1 16:48
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/164806p2fvb2fe8nb9jzh0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211101_163331.jpg</strong> (270.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 16:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/164806uttxpphkhzrllttm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211101_163333.jpg</strong> (293.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 16:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/164807uoxcob7abfuoc0uc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20211101_163335.jpg</strong> (311.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 16:48 上传
+
+
+*****
+
+####  ads147147  
+##### 4218#       发表于 2021-11-1 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53366420&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-1 16:39</a>
+
+我还没喝过喜茶因为觉得贵……
+
+感觉有时不能理解珍珠奶茶价格为啥从我小时候的10块不到一杯到现在快 ...</blockquote>
+因为奶茶这种快消品属于完全竞争市场（比方说可乐），毛利率被压倒极致的那种。
+
+为了获得单品更多的利率就要打造品牌，给产品上各种奇奇怪怪的用料（比如用更好的珍珠，鲜奶，可可粉啥的）打差异化竞争，脱离完全竞争市场，因为物料涨了，单价随即增加。蜜雪冰城就是反过来走可乐那种彻底压低毛利率的做法，个人来说是尝不出什么喜茶和蜜雪冰城的区别的，所以只买便宜货。
+
+
+*****
+
+####  土豆不土  
+##### 4219#       发表于 2021-11-1 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364779&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-1 14:45</a>
+
+佩那个发声共鸣已经是标准
+
+她那个是最不伤嗓子的方式了
+
+可能是day1她mc和喊的太卖力导致声音沙哑</blockquote>
+她唱高音还是胸声占比太多了...虽然胸腔共鸣很好但是- - 胸声一直这样唱高音还是很伤，不然也不会一天就哑掉。心疼死了
+
+

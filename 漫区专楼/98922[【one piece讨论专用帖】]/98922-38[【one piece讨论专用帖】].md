@@ -6341,3 +6341,46 @@ tianlangistl
 除非以后有强大的鱼人间的对决 否则也没什么机会水战
 
 
+
+
+*****
+
+####  武男  
+##### 55971#       发表于 2021-11-1 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365481&amp;ptid=98922" target="_blank">斯卡哈 发表于 2021-11-1 15:36</a>
+
+有一说一，我觉着在水里的甚平除了鸡和狗这种直接对水动手的，其他将皇还真不一定打得过... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡普游泳下去找他麻烦，甚平不得扑街啊
+
+
+*****
+
+####  武男  
+##### 55972#       发表于 2021-11-1 16:41
+
+
+ 本帖最后由 武男 于 2021-11-1 16:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365296&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-11-1 15:24</a>
+
+艾斯打平手的是陆上的甚平，甚平还没全力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿，这个，讲道理艾斯也不会脑子瓦特了，跳海让他赢啊。陆地上，甚平确实是尽力了。
+
+
+*****
+
+####  武男  
+##### 55973#       发表于 2021-11-1 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365961&amp;ptid=98922" target="_blank">klzxs 发表于 2021-11-1 16:10</a>
+
+两人打了三天三夜还不全力啊
+
+然后甚平出场这么久了
+
+他是什么水准有目共睹 他在陆地上当然也是最高端 ...</blockquote>
+讲道理，甚平要是真潜水，鸡哥一个冷冻把他冻住了，他不就白给了嘛。海对于鸡哥来说也算主场啊。
+
+
