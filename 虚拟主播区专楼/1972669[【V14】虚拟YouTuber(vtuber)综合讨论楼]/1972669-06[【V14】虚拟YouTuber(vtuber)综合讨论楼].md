@@ -8423,3 +8423,14 @@ SYL，巴布太郎去迪士尼感觉还不错。
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">唯一个男的昨天都毕业了 还能出虚拟牛郎么
 
 
+
+
+*****
+
+####  ヒトニナル  
+##### 8093#       发表于 2021-11-1 21:06
+
+
+ノベルゲーム就是电子小说啦，另外这个TRPG我猜应该是エモクロア
+
+
