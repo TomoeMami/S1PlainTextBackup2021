@@ -7667,3 +7667,16 @@ Fes只有live我个人觉得不太可能，只披露了live应该是在等疫情
 反正我是一直觉得夜见和谢林是在交往的，这两人绑定的频率真的太高了，fes的时候，谢林参加的机台和夜见的event在同一天，夜见早上还去了机台节目的后台，三周年曲虹色，她和谢林和芙莲一组唱的，四周年live，又有她们俩，然后今年大便教的联动频率显著提高，德比晒的大便教的群聊记录里面也能看到她俩经常在聊，然后nijinoon也是谢林mc加上夜见噗的常驻嘉宾，绑定这么狠很难不是官宣
 
 
+
+
+*****
+
+####  winda  
+##### 8035#       发表于 2021-11-1 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53355160&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-10-31 20:38</a>
+woc郡神哈圭利，感觉，很难不，熊熊燃烧啊</blockquote>
+第一届吃了神田名额的遗毒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
