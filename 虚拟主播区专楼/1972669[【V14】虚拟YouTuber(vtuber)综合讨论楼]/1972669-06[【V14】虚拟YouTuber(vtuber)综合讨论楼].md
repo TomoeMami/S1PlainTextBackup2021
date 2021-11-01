@@ -8141,3 +8141,44 @@ VERSEⁿ - Episodeⁿ | 2021.11.12
 大搞男子组合、男女团体、顶流top solo加女体饭撒，现在再来个练习生选拔，以后是不是还要搞打投出道？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 8075#       发表于 2021-11-1 19:26
+
+
+裸春一家子的人设就够不符合主流审美了
+
+
+*****
+
+####  我不是很好  
+##### 8076#       发表于 2021-11-1 19:31
+
+
+这皮套不太行啊
+
+
+*****
+
+####  hulaoda007  
+##### 8077#       发表于 2021-11-1 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">再怎么说有些艺人可是很努力锻炼技巧的，虹也只敢“B级”一下。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但虹偶像练习生到底是啥。会打篮球吗？
+
+SYL，巴布太郎去迪士尼感觉还不错。
+
+
+*****
+
+####  dybang  
+##### 8078#       发表于 2021-11-1 19:38
+
+
+你虹刚开始搞的那些半截子综艺和线下会不也是这些东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实一直都挺贴近日本市场的，只不过当初没钱没技术而已
+
+

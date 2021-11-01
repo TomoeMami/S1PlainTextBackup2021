@@ -14636,3 +14636,28 @@ X三代不服了
 [https://sokkuri.net/alike/Liyuu/ ... 3%82%BF%E3%83%BC%29](https://sokkuri.net/alike/Liyuu/%E8%AA%A0%E5%AD%90%28%E5%B0%BC%E7%A5%9E%E3%82%A4%E3%83%B3%E3%82%BF%E3%83%BC%29)
 
 
+
+
+*****
+
+####  darkendless  
+##### 4258#       发表于 2021-11-1 19:31
+
+
+最开始被鲤鱼姐圈粉还是她的阿宅属性，感觉和自己很像，从小到大都喜欢看动画片，自然而然就入宅了，然后看了很多很多美少女动漫，初中的时候入坑拉拉。可是鲤鱼姐算是能cos能翻唱的大佬了，我这种就是百分百什么都不会的死宅<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普之舜舜  
+##### 4259#       发表于 2021-11-1 19:46
+
+
+看到楼上的我也想起我自己，我自己也算的是在校“宅男”吧，后面因为星团的tiny stars入坑拉拉。之后在B站进行转播星团生放送。因为星团，我后面喜欢上拉拉的。上周在网络上看live彻底变成拉拉粉丝。
+也因为星团转播粉丝数第一次达到1千，成为一个小小的up主。
+支持她们有很多方式呀，我认为保持热爱就好了。
+
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
