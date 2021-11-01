@@ -14465,3 +14465,80 @@ BV1fL4y1i78T
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哈哈哈哈
 
 
+
+
+*****
+
+####  lj205  
+##### 4244#       发表于 2021-11-1 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368176&amp;ptid=2028598" target="_blank">megapikachu 发表于 2021-11-1 18:37</a>
+笑死了，还纯良呢，某些人得感谢开了个新楼，新来的看不到你们刚公布声优时的丑态。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">您再把Id看看？
+
+
+*****
+
+####  Norkey1  
+##### 4245#       发表于 2021-11-1 18:49
+
+
+这楼刚开的时候我还说要不要先多来点黑屁的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 4246#       发表于 2021-11-1 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53366815&amp;ptid=2028598" target="_blank">Arccueid 发表于 2021-11-1 17:10</a>
+
+https://weibo.com/tv/show/1034:4698762661265486?from=old_pc_videoshow 1分开始就是昨天说的直接 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小百合真被吓到了吗，伊达喊过好多次了都
+
+几个人玩配合技而已吧
+
+
+*****
+
+####  cat1230  
+##### 4247#       发表于 2021-11-1 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367995&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-1 18:25</a>
+
+你楼确实在满是巨魔的s1里纯良得不可思议，算是我见过讨论ll星的社区中氛围最好的一个 ...</blockquote>
+因为S1的黑屁在旧楼的前20页，随着动画播出，巨魔消失了。
+
+
+*****
+
+####  秋月艾莉  
+##### 4248#       发表于 2021-11-1 18:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还不是因为是国人，大家都很自来熟喜欢踊跃发表意见
+
+换个日本人屁事不会有
+
+
+*****
+
+####  kbtit  
+##### 4249#       发表于 2021-11-1 18:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国人黑国人那可太正常了
+
+
+*****
+
+####  kata魂  
+##### 4250#       发表于 2021-11-1 19:06
+
+
+所以当其他人觉得承受不住黑屁的时候，想想鲤鱼，这边承受两国黑屁 是不是轻松很多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

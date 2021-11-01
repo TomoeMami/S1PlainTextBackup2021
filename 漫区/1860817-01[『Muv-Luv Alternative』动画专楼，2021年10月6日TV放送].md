@@ -18578,3 +18578,16 @@ XP工具栏是蓝色，开始按钮是绿色。
 然后才是第三部分alternative的明线“我在这一次一定要拯救世界”和【剧透禁止】
 
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1282#       发表于 2021-11-1 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368074&amp;ptid=1860817" target="_blank">V宇宙的守夜人Z 发表于 2021-11-1 18:30</a>
+第一部extra 里是戏份很多，正常体验的流程应该是推完无聊的extra日常，发现第二部老婆没了，打完Unlimite ...</blockquote>
+嘛，应该说，extra女主是纯夏，un女主是社霞，alt女主是夕呼吧<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+

@@ -8048,3 +8048,65 @@ VRjp ...</blockquote>
 VERSEⁿ - Episodeⁿ | 2021.11.12
 
 
+
+
+*****
+
+####  poipanchao  
+##### 8067#       发表于 2021-11-1 18:40
+
+
+天皇是jk，天下的gamers上位也就king是非人
+至于种和19组那是后来的事了
+至少起飞前的虹是没种啥事的
+
+
+*****
+
+####  IDIDIDID  
+##### 8068#       发表于 2021-11-1 18:46
+
+
+ 本帖最后由 IDIDIDID 于 2021-11-1 18:49 编辑 
+
+19组上位lizan露露阿江原设也是人，最多带点奇幻背景，后面起来的牛郎枝枝枝阿巴小护士免费也是人，高人气也就阿床设定不是人而已，大头龟是不是人忘记了。
+
+
+说实话真要3D上台像小蜜蜂这种一定花里胡哨穿模的和chima这种不符合主流审美的确实影响很大。
+
+
+*****
+
+####  本间日阳  
+##### 8069#       发表于 2021-11-1 18:52
+
+
+什么寄吧，练习生吗？
+话说我记得以前ichikara搞过一个被嘲讽为虚拟陪酒女的企划，还活着吗
+
+
+*****
+
+####  OldGlory  
+##### 8070#       发表于 2021-11-1 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368374&amp;ptid=1972669" target="_blank">本间日阳 发表于 2021-11-1 18:52</a>
+
+什么寄吧，练习生吗？
+
+话说我记得以前ichikara搞过一个被嘲讽为虚拟陪酒女的企划，还活着吗 ...</blockquote>
+还活着
+
+
+
+
+*****
+
+####  OldGlory  
+##### 8071#       发表于 2021-11-1 19:00
+
+
+高人气非人角色怎么能不提阿0呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
