@@ -14542,3 +14542,97 @@ https://weibo.com/tv/show/1034:4698762661265486?from=old_pc_videoshow 1分开始
 所以当其他人觉得承受不住黑屁的时候，想想鲤鱼，这边承受两国黑屁 是不是轻松很多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 4251#       发表于 2021-11-1 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367995&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-1 18:25</a>
+你楼确实在满是巨魔的s1里纯良得不可思议，算是我见过讨论ll星的社区中氛围最好的一个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专楼气氛的确比外面氛围好很多呢。真爱，这是真爱呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4252#       发表于 2021-11-1 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368391&amp;ptid=2028598" target="_blank">cat1230 发表于 2021-11-1 18:54</a>
+因为S1的黑屁在旧楼的前20页，随着动画播出，巨魔消失了。</blockquote>
+还得开新楼的功能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4253#       发表于 2021-11-1 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368447&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-11-1 18:58</a>
+国人黑国人那可太正常了</blockquote>
+你这样让我想起一个知乎的傻宝，他说“唐可可没有中国范，”，连abb式命名都开始批判
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4254#       发表于 2021-11-1 19:13
+
+
+NGA在我看来，的感觉认真讨论动漫的不多，不过讨论拓展的挺多的。拿寒蝉来说，我之前宣传寒蝉棉流祭，nga都没一个人过来，在s1倒是不少人过来更贴呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Troy_VoV  
+##### 4255#       发表于 2021-11-1 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368618&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-1 19:10</a>
+
+你这样让我想起一个知乎的傻宝，他说“唐可可没有中国范，”，连abb式命名都开始批判
+
+
+—— 来自 OPPO PD ...</blockquote>
+X三代不服了
+
+
+*****
+
+####  lj205  
+##### 4256#       发表于 2021-11-1 19:22
+
+
+为纪念ラブライブ！スーパースター!!Liella!First LoveLive!Tour～Starlines～举办，大阪通天阁举行亮灯应援，以及应援旗展示和卡片派送活动 
+应援旗将挂在通天阁避雷针上飘扬（图3为设计图样） 
+
+亮灯应援时间：11月1日~11月30日 日落~22：00（北京时间）
+应援旗展示时间：11月19日~11月28日 ​​​
+
+
+面子
+
+
+*****
+
+####  stygian  
+##### 4257#       发表于 2021-11-1 19:25
+
+
+404有个视频底下说鲤鱼像尼神インター的诚子，当时我就喷了， 的确挺像的
+
+[https://sokkuri.net/alike/Liyuu/ ... 3%82%BF%E3%83%BC%29](https://sokkuri.net/alike/Liyuu/%E8%AA%A0%E5%AD%90%28%E5%B0%BC%E7%A5%9E%E3%82%A4%E3%83%B3%E3%82%BF%E3%83%BC%29)
+
+

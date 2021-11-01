@@ -18591,3 +18591,17 @@ XP工具栏是蓝色，开始按钮是绿色。
 嘛，应该说，extra女主是纯夏，un女主是社霞，alt女主是夕呼吧<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1283#       发表于 2021-11-1 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368281&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-1 18:45</a>
+
+嘛，应该说，extra女主是纯夏，un女主是社霞，alt女主是夕呼吧</blockquote>
+也有道理，我主要是觉得男主的成长更多的是由她们俩促成的，纯夏象征着最初的理想，是绝对不能遗忘与放弃的绝对要守护的日常，夕呼则是教会他为此所必须的力量和执念
+
+
