@@ -8,7 +8,7 @@ import io
 import os
 import json
 
-old_number = 2032000+int((int(time.time())-1635429296)/86400)*175
+old_number = 2032700+int((int(time.time())-1635730719)/86400)*175
 
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
@@ -80,18 +80,19 @@ if __name__ == '__main__':
             thdata = json.load(f)
         ids = thdata.keys()
         for l in threadict.keys():
-            if l in ids:
-                if(int(l) > old_number) and (int(l) not in blacklist):
+            if (int(l) not in blacklist):
+                if l in ids:
                     thdata[l]['active'] = True
-            else:
-                thdata[l] = {}
-                thdata[l]['totalreply'] =0
-                thdata[l]['title'] = "待更新"
-                thdata[l]['newtitle'] = "待更新"
-                thdata[l]['lastedit'] = int(threadict[l])
-                thdata[l]['category']= k
-                thdata[l]["active"] =  True
-                print('add:'+l)
+                else:
+                    if(int(l) > old_number):
+                        thdata[l] = {}
+                        thdata[l]['totalreply'] =0
+                        thdata[l]['title'] = "待更新"
+                        thdata[l]['newtitle'] = "待更新"
+                        thdata[l]['lastedit'] = int(threadict[l])
+                        thdata[l]['category']= k
+                        thdata[l]["active"] =  True
+                        print('add:'+l)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
     activethdata={}

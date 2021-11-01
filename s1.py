@@ -234,5 +234,5 @@ async def main():
 if __name__ == '__main__':
 
     with open(rootdir+'ErrorLog.txt','w',encoding='utf-8') as f:
-        f.write(' ')
+        f.write('\n')
     asyncio.run(main())
