@@ -888,3 +888,52 @@ CBT的key，符合条件的，这个月16号就能去抽。（具体数量看ste
 — from samsung SM-G996U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
 
+
+
+*****
+
+####  Jooohnny  
+##### 65#         楼主| 发表于 2021-11-1 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371114&amp;ptid=2034788" target="_blank">flvv 发表于 2021-11-1 23:03</a>
+
+啥叫就加了个联网验证。系统是重做的。更新的内容必须要CBT之后才能给出来不就是这样？
+
+
+这阵子延期至少有 ...</blockquote>
+说帖子里胡说八道的都来了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+我说的三点，停止订阅客户端和公告都看不了，摆烂停止更新和steam key欺诈哪个是胡说？你倒是来讲讲清楚<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+你上面的那个回复，一边说cbt没有key怪steam，一边又说要去看作者本人的评论，那你有没有看到作者在patreon最新的顶置文章里打太极不说明key的发放情况呢？
+
+
+*****
+
+####  不灭钻石  
+##### 66#       发表于 2021-11-1 23:31
+
+
+这家原来是国人的？
+
+
+*****
+
+####  Jooohnny  
+##### 67#         楼主| 发表于 2021-11-1 23:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上这个进来洗地的是真的惊到我了
+
+作为付费订阅用户，大家的需求很简单，就是你的内容要<strong>持续更新</strong>，要能看到项目做起来
+
+
+现在你一而再，再而三的牺牲付费订阅用户，把目标放到反盗版和steam上割一波韭菜，还要订阅用户跟你共情<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+你屁股在哪我很难说好吧，当然你要是能把我超出36刀的几十刀都退给我那就什么都好说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

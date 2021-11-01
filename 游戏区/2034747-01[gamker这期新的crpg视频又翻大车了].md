@@ -3408,3 +3408,33 @@ gamker除了国游勉强能看，别的着实看不下去，又浅又尬，而�
 那也可以是和尚之怒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Lynn冰翎  
+##### 266#       发表于 2021-11-1 23:34
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/233359qev9ie9898fy2fvz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20211101-233320.jpg</strong> (36.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 23:33 上传
+
+
+“哔站六级大佬点草泥潭游戏区”
+
+
+*****
+
+####  stair楼梯  
+##### 267#       发表于 2021-11-1 23:36
+
+
+鬼泣那期怎么翻车的，因为他这边评论也基本上清一色帮他说话的就不想去看原视频了
+
+
