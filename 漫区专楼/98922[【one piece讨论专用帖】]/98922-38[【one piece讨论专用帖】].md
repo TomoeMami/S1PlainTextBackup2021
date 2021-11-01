@@ -6473,3 +6473,28 @@ tianlangistl
 唉，我最喜欢的漫画怎么就变成了这个样子呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  klzxs  
+##### 55981#       发表于 2021-11-1 22:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369081&amp;ptid=98922" target="_blank">暗影翔 发表于 2021-11-1 19:49</a>
+
+那么大的海，我觉得鸡哥真冻不住，水从表面开始冷冻，甚平直接用水打烂冰，最后就是一片片浮冰。 ...</blockquote>
+青雉还是挺恐怖的 第一次出场的冰河时代就瞬间冻了百里的海域 
+
+水里面可能真躲不掉 
+
+
+*****
+
+####  JC_AR  
+##### 55982#       发表于 2021-11-1 22:37
+
+
+加霸气设定就是最大的败笔
+
+
