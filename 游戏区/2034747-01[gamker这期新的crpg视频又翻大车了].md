@@ -2505,3 +2505,17 @@ gamker聊P5那期把舞见妙读成舞见纱我都惊了，疑惑他们团队都
 这么多时间不打游戏听人放屁，这类杂谈的受众也是有问题
 
 
+
+
+*****
+
+####  NameLess2501  
+##### 206#       发表于 2021-11-1 08:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53358794&amp;ptid=2034747" target="_blank">Bojenkins 发表于 2021-11-1 06:43</a>
+
+这么多时间不打游戏听人放屁，这类杂谈的受众也是有问题</blockquote>
+云玩家太多了，越是玩过什么游戏越是不会看什么游戏的测评。
+
+

@@ -23194,3 +23194,42 @@ Ame tells YOU to push the payload<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">期待一下万圣节special有smol council
 
 
+
+
+*****
+
+####  M1NG  
+##### 1449#       发表于 2021-11-1 08:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53358633&amp;ptid=1989758" target="_blank">shimmy1996 发表于 2021-11-1 03:27</a>
+
+期待一下万圣节special有smol council</blockquote>
+很难想象smol council真的是按照ame画的这个来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+隔壁smol myth甚至还有新衣装
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/080106yjdi9v2mmj9km2kj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (105.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 08:01 上传
+
+
+*****
+
+####  shimmy1996  
+##### 1450#       发表于 2021-11-1 08:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53358971&amp;ptid=1989758" target="_blank">M1NG 发表于 2021-11-1 08:01</a>
+很难想象smol council真的是按照ame画的这个来的
+
+隔壁smol myth甚至还有新衣装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">3d还原度太高了笑到肚子疼hhhhhhhh
+
+
