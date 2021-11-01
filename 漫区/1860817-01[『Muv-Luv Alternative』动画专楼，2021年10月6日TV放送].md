@@ -18518,3 +18518,18 @@ XP工具栏是蓝色，开始按钮是绿色。
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  freyja_wion  
+##### 1278#       发表于 2021-11-1 17:41
+
+
+<img src="https://p.sda1.dev/3/d4658f76158091acf16606d2aa9a67d7/IMG_CMP_50679863.jpeg" referrerpolicy="no-referrer">TVアニメ『マブラヴ オルタネイティヴ』第5話の先行カットを公開！珠瀬壬姫の父親・珠瀬国連事務次官が横浜基地を訪れるにあたり、白銀武が発動した極秘計画とは――
+
+估计对应的是漫画11-13话<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

@@ -14248,3 +14248,17 @@ syl，小星星当中有段拍肩转身我觉得特别可爱，没想到有人�
 她喊人真是随心所欲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打铁和外星人的称呼都好几种
 
 
+
+
+*****
+
+####  iuhehc  
+##### 4223#       发表于 2021-11-1 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53366740&amp;ptid=2028598" target="_blank">土豆不土 发表于 2021-11-1 17:04</a>
+
+她唱高音还是胸声占比太多了...虽然胸腔共鸣很好但是- - 胸声一直这样唱高音还是很伤，不然也不会一天就 ...</blockquote>
+草，那个dream rainbow那首就听得很明显
+
+

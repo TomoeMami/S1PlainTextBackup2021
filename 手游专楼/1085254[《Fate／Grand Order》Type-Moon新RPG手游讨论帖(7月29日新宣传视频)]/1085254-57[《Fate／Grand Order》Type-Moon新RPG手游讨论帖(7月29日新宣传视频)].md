@@ -2880,3 +2880,14 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  khxooo  
+##### 84231#       发表于 2021-11-1 17:41
+
+
+又要顶着逆克制打本了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
