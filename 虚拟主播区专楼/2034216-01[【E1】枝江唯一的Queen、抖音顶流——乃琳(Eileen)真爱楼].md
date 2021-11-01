@@ -1300,3 +1300,63 @@ https://t.bilibili.com/587990703687205300
 <img src="https://p.sda1.dev/3/2b2904859a296d5dfad89dc2c9f93096/-272c053fb04bf80.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sanlow666  
+##### 91#         楼主| 发表于 2021-11-1 13:07
+
+
+乃琳Queen:[转发动态](https://t.bilibili.com/587991128888973046)
+分享视频 <blockquote>@核舟子: [@乃琳Queen](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=544996) 乃老师，你要的全麻评论复刻二创
+
+----
+
+【发病/能转】乃琳《啊诺内》KFC实战应用
+
+年轻人的第一次发病，感谢@乃琳Queen 乃老师的模范带头作用，让我在想要退缩的时候最终坚持了下来。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/01/130649vthrkts0zfcvhrv1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (130.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 13:06 上传
+
+
+乃琳Queen:[转发动态](https://t.bilibili.com/587991176130468130)
+分享视频 <blockquote>@悠游不见森:
+
+----
+
+【A-SOUL二创/乃琳】乃琳让我这样念！（女粉整活）
+
+乃老师麻不麻我不知道
+
+总之是我录完我自己麻了一天，拖到今天看完直播才做完后期
+
+掐嗓子好累，做自己真好QWQ
+
+@乃琳Queen 交作业了
+
+----------------------------------------
+[@向晚大魔王](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=543167)  
+[@贝拉kira](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=544290)  
+[@珈乐Carol](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=545301)  
+[@嘉然今天吃什么](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=539623)  
+
+@乃琳Queen</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/01/130717zcllucmcmh4ntten.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (221.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 13:07 上传
+
+
