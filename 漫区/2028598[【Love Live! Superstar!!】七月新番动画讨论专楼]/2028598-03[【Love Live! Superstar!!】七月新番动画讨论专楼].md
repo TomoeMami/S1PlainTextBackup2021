@@ -14063,3 +14063,70 @@ B6046C49-E555-43AB-9315-8D047C0A6251.jpeg
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  lj205  
+##### 4211#       发表于 2021-11-1 15:54
+
+
+托鲤鱼的福，我的喜茶会员等级蹭蹭往上涨
+
+
+*****
+
+####  中野四葉  
+##### 4212#       发表于 2021-11-1 15:58
+
+
+ 本帖最后由 中野四葉 于 2021-11-1 16:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜茶太贵了喝不起
+
+syl，小星星当中有段拍肩转身我觉得特别可爱，没想到有人还画出来了，谢谢茄子
+
+<img src="https://img.saraba1st.com/forum/202111/01/160802b41clumof5jsx2f8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (128.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 16:08 上传
+
+
+*****
+
+####  chenflyyy  
+##### 4213#       发表于 2021-11-1 16:05
+
+
+ 本帖最后由 chenflyyy 于 2021-11-1 16:07 编辑 
+
+第一次喝喜茶就是在鲤鱼推荐后去喝的，喝的是当时鲤鱼说喝不到的新品，感觉又贵又一般，不太行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4214#       发表于 2021-11-1 16:08
+
+
+ 本帖最后由 lj205 于 2021-11-1 16:11 编辑 
+
+我在我们领导那的形象已经是个爱喝喜茶的货了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+其实我更喜欢和一点点，便宜也够味，但不知道为啥每次去的地方周边都只有喜茶没有一点点
+
+
+*****
+
+####  Karin11974  
+##### 4215#       发表于 2021-11-1 16:22
+
+
+我这奈雪茶多一点，喜茶喝过一次感觉不如奈雪，不论是茶还是点心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

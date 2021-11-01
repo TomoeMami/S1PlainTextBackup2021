@@ -16895,3 +16895,40 @@ syl 猪来了，鼻塞了就困了是吧，什么猪
 好耶，相对性理论
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 4465#       发表于 2021-11-1 15:59
+
+
+妄想特快这肥婆唱的全部全部全部这段我越听越像debudebudebu
+
+
+*****
+
+####  T_Hb  
+##### 4466#       发表于 2021-11-1 16:03
+
+
+ 本帖最后由 T_Hb 于 2021-11-1 16:10 编辑 
+
+图灵爱竟然没拉，唱的意外的可以
+
+深夜のネトゲがやめられない  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很合适
+
+
+*****
+
+####  时间在我手中  
+##### 4467#       发表于 2021-11-1 16:09
+
+
+ 本帖最后由 时间在我手中 于 2021-11-1 16:12 编辑 
+
+不能天使<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+怎么忽然书记舞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -6320,3 +6320,24 @@ tianlangistl
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一，我觉着在水里的甚平除了鸡和狗这种直接对水动手的，其他将皇还真不一定打得过...
 
 
+
+
+*****
+
+####  klzxs  
+##### 55970#       发表于 2021-11-1 16:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两人打了三天三夜还不全力啊
+
+然后甚平出场这么久了
+
+他是什么水准有目共睹 他在陆地上当然也是最高端战力
+
+水中甚平才是基本不会去讨论
+
+在世界观下差不多是碾压水平的论外了
+
+除非以后有强大的鱼人间的对决 否则也没什么机会水战
+
+

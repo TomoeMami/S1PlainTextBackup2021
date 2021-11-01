@@ -2953,3 +2953,26 @@ B站上这种游戏UP都是团队合作，出镜或者发声的人大概率只�
 鉴于这两种可能都太离谱，我更愿意相信有其他原因。
 
 
+
+
+*****
+
+####  齐柏林轰炸机  
+##### 236#       发表于 2021-11-1 15:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次听他说勇者斗恶龙就很有乐子，说DQ11一改以前DQ的繁琐操作，我笑了，DQ从4开始有繁琐过？
+
+
+*****
+
+####  harmonytree  
+##### 237#       发表于 2021-11-1 16:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53365803&amp;ptid=2034747" target="_blank">齐柏林轰炸机 发表于 2021-11-1 15:57</a>
+
+上次听他说勇者斗恶龙就很有乐子，说DQ11一改以前DQ的繁琐操作，我笑了，DQ从4开始有繁琐过？ ...</blockquote>
+那期视频把堀读成掘这一点就让我难受住了
+
+
