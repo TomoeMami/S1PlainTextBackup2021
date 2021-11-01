@@ -3285,3 +3285,16 @@ gamker除了国游勉强能看，别的着实看不下去，又浅又尬，而�
 道歉声明也有低级错别字，笑cry
 
 
+
+
+*****
+
+####  hentianwuya  
+##### 257#       发表于 2021-11-1 21:58
+
+
+狗蛋打分不是号称8分以下全部不值得玩吗？就跟BILIBILI动画评分9分以下全部不及格不值得看一样。
+
+所以这么看破晓的8.5分和仙剑的7.6分是不是就很合理了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

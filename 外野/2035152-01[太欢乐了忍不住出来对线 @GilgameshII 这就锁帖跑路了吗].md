@@ -930,3 +930,38 @@ s1的醍醐味
 坛友的雷达真是不灵敏呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
+
+
+*****
+
+####  圆面包  
+##### 78#       发表于 2021-11-1 21:50
+
+
+我 还认真推荐了好几家餐厅<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宅你妹  
+##### 79#       发表于 2021-11-1 21:54
+
+
+[https://bbs.saraba1st.com/2b/for ... ;page=3#pid53319630](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2034434&amp;page=3#pid53319630)
+
+
+我在他那个男性加分帖子里就说过，看过往发言ID里几个人格搁那儿演舞台剧呢，没理我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  naruto3432  
+##### 80#       发表于 2021-11-1 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370316&amp;ptid=2035152" target="_blank">圆面包 发表于 2021-11-1 21:50</a>
+
+我 还认真推荐了好几家餐厅</blockquote>
+謝太太推薦，改天到上下九請你陶陶居<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

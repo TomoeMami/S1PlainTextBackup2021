@@ -14854,3 +14854,29 @@ b站的口水巾梗因为B楼是可以折叠而且基本集中在1楼内折叠�
 节能是这样的
 
 
+
+
+*****
+
+####  Norkey1  
+##### 4276#       发表于 2021-11-1 21:50
+
+
+应该是，国内名字一般叫后两个字比较亲密
+
+
+*****
+
+####  cqc1021  
+##### 4277#       发表于 2021-11-1 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370236&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-1 21:42</a>
+突然觉得鲤鱼是不是单纯喜欢说两个音节的昵称w date sayu nako nagi pay酱
+
+ 连她个人广播的导演和作家都喊 ...</blockquote>
+中国人称呼别人不就是喜欢用两个字嘛，姓前面加个小或者老，三个字的名字就只叫名不带姓，两个字的名字就叫全名。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
