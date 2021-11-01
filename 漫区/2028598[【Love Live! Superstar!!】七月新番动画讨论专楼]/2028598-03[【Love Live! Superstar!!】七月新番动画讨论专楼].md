@@ -13544,3 +13544,20 @@ b站评分也就图一乐，好像b站评分8分就算烂番了
 这bug能修复早修复了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Karin11974  
+##### 4176#       发表于 2021-11-1 08:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359194&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-1 08:36</a>
+
+怎么没看到我回复呀？尴尬呀遇到bug了反映给🐶叔，让他修复下呀
+
+
+—— 来自 OPPO PDKM00, An ...</blockquote>
+看到了，感谢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

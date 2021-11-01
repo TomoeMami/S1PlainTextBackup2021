@@ -6187,3 +6187,14 @@ tianlangistl
 说到 “艾斯排第二” 这事儿，可真不觉得他有皇副实力。 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Yeaha123  
+##### 55960#       发表于 2021-11-1 08:41
+
+
+看了最新话，这堪十郎也不是仰卧起坐那么离谱，只是使出最后的波纹
+
+

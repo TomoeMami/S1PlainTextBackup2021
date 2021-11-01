@@ -2571,3 +2571,24 @@ gamker聊P5那期把舞见妙读成舞见纱我都惊了，疑惑他们团队都
 想起来从蜘蛛侠那期之后就没看了,喷蜘蛛侠被索狗教育一番之后,"评测"改为"鉴赏"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  mjzs07  
+##### 211#       发表于 2021-11-1 08:50
+
+
+他说奇迹不专业 不能把不专业的东西拿出来卖 这次自己也不专业了？
+
+
+*****
+
+####  PrincessBanana  
+##### 212#       发表于 2021-11-1 09:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53338930&amp;ptid=2034747" target="_blank"> 爱护动物抓根宝 发表于 2021-10-30 13:47</a> 说起来我更好奇另一个up主狗蛋是怎么做到玩这么多游戏的，看他QA回还说自己只有一个人 </blockquote>
+确实，如果真是一个人玩的话，感觉这位浑身都是肝来自: iPhone客户端
+
+
