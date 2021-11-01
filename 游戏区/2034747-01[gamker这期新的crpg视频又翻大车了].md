@@ -2519,3 +2519,55 @@ gamker聊P5那期把舞见妙读成舞见纱我都惊了，疑惑他们团队都
 云玩家太多了，越是玩过什么游戏越是不会看什么游戏的测评。
 
 
+
+
+*****
+
+####  leitingkai  
+##### 207#       发表于 2021-11-1 08:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53357092&amp;ptid=2034747" target="_blank">bighand3714 发表于 2021-10-31 23:18</a>
+
+gamker聊P5那期把舞见妙读成舞见纱我都惊了，疑惑他们团队都没个审核吗。不过当时觉得应该是他们团队的月岛 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">名字弄错不过小事，这期可是把《正义之怒》念成《巫师之怒》，字幕也是《巫师之怒》
+
+最好巫师真能强到顶掉游戏名字救救小烬法表<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  C.W.Nimitz  
+##### 208#       发表于 2021-11-1 08:30
+
+
+的确没有dnd授权，他们没喷错呀
+
+
+*****
+
+####  dumplingpro  
+##### 209#       发表于 2021-11-1 08:34
+
+
+ 本帖最后由 dumplingpro 于 2021-11-1 08:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359133&amp;ptid=2034747" target="_blank">C.W.Nimitz 发表于 2021-11-1 08:30</a>
+的确没有dnd授权，他们没喷错呀</blockquote>
+游戏用的不是dnd，说没有授权。
+
+真正用的pf规则，都写在标题上了倒是完全没提……
+
+真就游戏简介都不看，过于草台了。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Senni  
+##### 210#       发表于 2021-11-1 08:45
+
+
+想起来从蜘蛛侠那期之后就没看了,喷蜘蛛侠被索狗教育一番之后,"评测"改为"鉴赏"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

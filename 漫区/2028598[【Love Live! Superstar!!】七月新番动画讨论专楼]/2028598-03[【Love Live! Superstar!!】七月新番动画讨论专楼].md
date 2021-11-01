@@ -13470,3 +13470,77 @@ b站评分也就图一乐，好像b站评分8分就算烂番了
 标准社畜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Karin11974  
+##### 4170#       发表于 2021-11-1 08:25
+
+
+自己用OBS录屏12000码率录下来快20g，问一下一般用什么压缩体积？
+
+
+
+
+*****
+
+####  普之舜舜  
+##### 4171#       发表于 2021-11-1 08:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359098&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-11-1 08:25</a>
+自己用OBS录屏12000码率录下来快20g，问一下一般用什么压缩体积？</blockquote>
+小丸工具箱
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4172#       发表于 2021-11-1 08:35
+
+
+我翻页
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4173#       发表于 2021-11-1 08:36
+
+
+怎么没看到我回复呀？尴尬呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">遇到bug了反映给🐶叔，让他修复下呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  普之舜舜  
+##### 4174#       发表于 2021-11-1 08:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53358978&amp;ptid=2028598" target="_blank">JustW 发表于 2021-11-1 08:03</a>
+看了liyuu专访，这人生又真实又传奇啊……唐可可这个角色仿佛就是为她而生的 ...</blockquote>
+传奇人生
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  chenflyyy  
+##### 4175#       发表于 2021-11-1 08:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359194&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-1 08:36</a>
+怎么没看到我回复呀？尴尬呀遇到bug了反映给🐶叔，让他修复下呀
+
+—— 来自 OPPO PDKM00, An ...</blockquote>
+这bug能修复早修复了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
