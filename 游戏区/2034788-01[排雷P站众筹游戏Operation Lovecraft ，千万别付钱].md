@@ -937,3 +937,47 @@ CBT的key，符合条件的，这个月16号就能去抽。（具体数量看ste
 你屁股在哪我很难说好吧，当然你要是能把我超出36刀的几十刀都退给我那就什么都好说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  clstc  
+##### 68#       发表于 2021-11-1 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371114&amp;ptid=2034788" target="_blank">flvv 发表于 2021-11-1 23:03</a>
+
+啥叫就加了个联网验证。系统是重做的。更新的内容必须要CBT之后才能给出来不就是这样？
+
+
+这阵子延期至少有 ...</blockquote>
+being a dik和Treasure of Nadia，一个叙事流佼佼者、一个射爆流佼佼者，那个不比这游戏强？
+
+being a dik剧本、音乐、叙事分镜都十分精良，画面在ren'py里算是顶尖；
+
+Treasure of Nadia更新稳定、顶级3d黄油画面,妹子量多管饱；
+
+并且他们的作者都有完结的能证明自己能力的优秀作品，人家订阅也就每月1.5w左右，Project Helius这种做了那么久妹子屈指可数、作品没有一个完整、即摸鱼又吃香难看（估计只有Milfy City能比了），能2w+，真的只能说p站吹好牛就能骗到钱
+
+
+*****
+
+####  fangJmin  
+##### 69#       发表于 2021-11-1 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371114&amp;ptid=2034788" target="_blank">flvv 发表于 2021-11-1 23:03</a>
+
+啥叫就加了个联网验证。系统是重做的。更新的内容必须要CBT之后才能给出来不就是这样？
+
+
+这阵子延期至少有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他就是虚幻系列3d黄油正常水平啊，吹水一方面是最早拿虚幻试水的人，一方面是国产制作组。早期版本还是和众多虚幻游戏一样瞎几把拉特效导致优化可以称为一坨不可燃排泄物，到后期0.8x版本才稳定。
+
+而且他就是加个联网验证啊，很多patreon开发者因为社群分享白嫖的问题都试过加，但像这种制作组给你整全程联网的就属实是独一份的弱智了，在这个基础上还不给你稳定更新画饼，就国内ea的一锤子买卖半年不更新也会跳官方脸呢，这边就说所谓系统迁移可以理解？
+
+制作组patreon订阅有20000多人，按人均每个人八刀算都是16万一个月的开发预算，我觉得大可不必给这种制作组当个善人。
+
+顺便这游戏本体就是个播片播放器，我是不知道在制作组有动捕工作室的情况下得到的动作数据是为什么不能直接导入，反而要成为所谓的“逆移植”，就隔壁某PH和CM3d2系列都可以直接导入数据呢，你用个虚幻这种目前通用性最强的引擎还能导入不了？
+
+

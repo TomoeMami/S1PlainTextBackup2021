@@ -6509,3 +6509,17 @@ tianlangistl
 听不到声音的半身锦卫门是怎么说话的，放屁？
 
 
+
+
+*****
+
+####  klzxs  
+##### 55984#       发表于 2021-11-1 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371444&amp;ptid=98922" target="_blank">团结奋进碇真嗣 发表于 2021-11-1 23:35</a>
+
+听不到声音的半身锦卫门是怎么说话的，放屁？</blockquote>
+第一次出场就是下半身说话 这就不能太深究了
+
+
