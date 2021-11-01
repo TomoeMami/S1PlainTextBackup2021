@@ -12999,3 +12999,43 @@ hoya是吧
 倒计时：28天
 
 
+
+
+*****
+
+####  小憨1  
+##### 1090#       发表于 2021-11-1 11:05
+
+
+速报，文静播了
+
+
+*****
+
+####  伞沢直美  
+##### 1091#       发表于 2021-11-1 11:15
+
+
+我超，竖屏静姨<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灰色的狐狸  
+##### 1092#       发表于 2021-11-1 11:24
+
+
+卧槽，上班没法看，亏惨了
+
+
+*****
+
+####  魔法少女大头  
+##### 1093#       发表于 2021-11-1 11:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">配饰有没有口球啊
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
