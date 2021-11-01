@@ -2792,3 +2792,19 @@ B站上这种游戏UP都是团队合作，出镜或者发声的人大概率只�
 你对具体观点怎么看无所谓，“恰饭”、“给面子”这种对创作者最大的侮辱至少需要证据
 
 
+
+
+*****
+
+####  粪坑战士  
+##### 228#       发表于 2021-11-1 14:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53362311&amp;ptid=2034747" target="_blank">偶像程序员POI 发表于 2021-11-1 12:01</a>
+
+不恰饭的说错了你要喷
+
+恰饭的故意说错你不喷</blockquote>
+对对对 你说的太对了 只要恰饭的都该死 饿死这帮自媒体就好了 饿死这帮自媒体重铸s1婆罗门荣光<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
