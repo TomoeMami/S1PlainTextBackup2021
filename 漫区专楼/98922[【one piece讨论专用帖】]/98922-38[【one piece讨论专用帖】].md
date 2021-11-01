@@ -6281,3 +6281,17 @@ tianlangistl
 真开团应该是能和青雉打一打
 
 
+
+
+*****
+
+####  tyauto  
+##### 55967#       发表于 2021-11-1 13:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53363270&amp;ptid=98922" target="_blank">灰狼 发表于 2021-11-1 13:02</a>
+
+想起个事情，过去看永恒之柱的纪录片里，有一个人说他是专门负责扮坏人的，就是负责“你的想法很好，但是出 ...</blockquote>
+尾田前期负责的老编辑早就退了吧？本子排资论辈那么严重，年轻编辑哪敢管这位大佬
+
+
