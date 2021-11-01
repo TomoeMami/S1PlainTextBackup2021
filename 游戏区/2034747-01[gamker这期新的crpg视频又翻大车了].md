@@ -3505,3 +3505,16 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 虽然很业余但那会我还没取关，到尬吹只狼那期我才取关，小作文环节为了升华一个宫崎老贼把 FS 以前的作品都踩了实在是难看。<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  白行简5566  
+##### 273#       发表于 2021-11-2 07:43
+
+
+按说不应该啊，聂俊不是老跑团人吗？经常组织线上线下团的那种，怎么连开拓者都不知道……
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
