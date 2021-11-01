@@ -13660,3 +13660,17 @@ b站评分也就图一乐，好像b站评分8分就算烂番了
 我好喜欢这张的鱼，摄影师拍的好啊
 
 
+
+
+*****
+
+####  星降る森  
+##### 4185#       发表于 2021-11-1 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359098&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-11-1 08:25</a>
+
+自己用OBS录屏12000码率录下来快20g，问一下一般用什么压缩体积？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议删了，去下个streamlink（FFmpeg）抓，再剪掉开头的1小时广告的话，6G左右，TS格式会再大一点
+
+
