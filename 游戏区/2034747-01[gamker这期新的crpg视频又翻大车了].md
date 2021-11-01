@@ -2808,3 +2808,36 @@ B站上这种游戏UP都是团队合作，出镜或者发声的人大概率只�
 对对对 你说的太对了 只要恰饭的都该死 饿死这帮自媒体就好了 饿死这帮自媒体重铸s1婆罗门荣光<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  偶像程序员POI  
+##### 229#       发表于 2021-11-1 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364430&amp;ptid=2034747" target="_blank">粪坑战士 发表于 2021-11-1 14:19</a>
+
+对对对 你说的太对了 只要恰饭的都该死 饿死这帮自媒体就好了 饿死这帮自媒体重铸s1婆罗门荣光 ...</blockquote>
+你恰饭可以恰。 自媒体和观众保持一种微妙的平衡大家心知肚明的恰
+
+结果他那期视频把罪恶帝国这种粪作恰成80分佳作。那时候这游戏还没发售，好坏全靠他展示给观众的
+
+
+自媒体恰最后生还者2，可没被少骂
+
+
+*****
+
+####  lushark  
+##### 230#       发表于 2021-11-1 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364564&amp;ptid=2034747" target="_blank">偶像程序员POI 发表于 2021-11-1 14:29</a>
+
+你恰饭可以恰。 自媒体和观众保持一种微妙的平衡大家心知肚明的恰
+
+结果他那期视频把罪恶帝国这种粪作恰成 ...</blockquote>
+你连看他三条发言记录就知道为什么“毒唯”是连饭圈内部都嫌弃的群体了。
+
+

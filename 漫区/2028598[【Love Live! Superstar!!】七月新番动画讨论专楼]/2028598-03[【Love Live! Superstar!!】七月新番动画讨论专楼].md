@@ -13883,3 +13883,55 @@ B6046C49-E555-43AB-9315-8D047C0A6251.jpeg
 票都售出了当然不可能改公演内容啊，只能希望妹子们科学保养喉咙了。
 
 
+
+
+*****
+
+####  Norkey1  
+##### 4199#       发表于 2021-11-1 14:25
+
+
+日本人传统读空气吧，更何况还是推特，基本上只夸夸不喜欢指导。
+就算现在卷起来了，我也没见过让新人一上来就这么唱的…
+
+
+*****
+
+####  lj205  
+##### 4200#       发表于 2021-11-1 14:28
+
+
+烂铁我记得请过发音老师的啊，集结视频里就有她们练发声的片段。可能还是第一场正式演出太激动导致燃尽，后面慢慢调整吧
+
+
+
+
+*****
+
+####  lj205  
+##### 4201#       发表于 2021-11-1 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53362696&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-11-1 12:27</a>
+在线看不到「动画里小千取出棒子的时候大家也开始点亮圣剑」和「12话的灯路场景大家也都拿出那个灯点亮」 ...</blockquote>
+导播真的是非常欠刀子………………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4202#       发表于 2021-11-1 14:32
+
+
+又卡了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  稀勢のささ  
+##### 4203#       发表于 2021-11-1 14:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真没必要那么担心  运营再没用这几天没live也够总结经验了 头一天运营没B数小年轻用力过猛也算正常 
+
+
