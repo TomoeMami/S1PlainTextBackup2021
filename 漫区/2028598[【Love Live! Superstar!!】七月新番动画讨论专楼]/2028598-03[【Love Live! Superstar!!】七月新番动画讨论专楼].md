@@ -13973,3 +13973,51 @@ B6046C49-E555-43AB-9315-8D047C0A6251.jpeg
 巡演前确实也有人表示过担心，但也有人表示她们年轻，更需要的是机会
 
 
+
+
+*****
+
+####  JustW  
+##### 4206#       发表于 2021-11-1 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364000&amp;ptid=2028598" target="_blank">名津流 发表于 2021-11-1 13:49</a>
+
+几乎每个中文相关社区都在说过劳的问题，特别是B站的小百合强撑着唱歌还有pay酱对自己第二天的表现做说明的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看霓虹态度可不能光看推特
+
+
+*****
+
+####  zylwz  
+##### 4207#       发表于 2021-11-1 15:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53364779&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-1 14:45</a>
+
+佩那个发声共鸣已经是标准
+
+她那个是最不伤嗓子的方式了
+
+可能是day1她mc和喊的太卖力导致声音沙哑</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/01/152039gxkjj0k34fkkz110.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20211101151956.png</strong> (27.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-1 15:20 上传
+
+
+看昨天上午的推
+
+第一天唱完太累倒头就睡
+
+第二天早上起来估计是发现嗓子状况不对狂喝水
+
+
+小年轻还缺乏过度用完嗓子当天睡前要好好保养的经验啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
