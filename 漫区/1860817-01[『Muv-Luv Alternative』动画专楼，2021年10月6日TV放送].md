@@ -18533,3 +18533,16 @@ XP工具栏是蓝色，开始按钮是绿色。
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 1279#       发表于 2021-11-1 18:18
+
+
+纯夏....真的是女主么？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">动画党表示 这是虚假女主吧 目前只出现在回忆中...
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+

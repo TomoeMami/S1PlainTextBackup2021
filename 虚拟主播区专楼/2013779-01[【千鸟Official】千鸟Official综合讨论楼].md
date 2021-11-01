@@ -13232,3 +13232,62 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 👆这句是文静原话，至于是炒作还是真联系过就不知道了。
 
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1109#       发表于 2021-11-1 18:10
+
+
+宁愿她被勒夫挖走，维阿什么cjb
+
+
+*****
+
+####  夜之中道崩殂  
+##### 1110#       发表于 2021-11-1 18:10
+
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-1 18:11 编辑 
+
+不知道vr到底联没联系过，但是鸟吧的多米尼克说的一套一套的，要不是我看过维阿我就信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+他要真是运营，那就当我是个啥b
+
+
+
+
+*****
+
+####  小憨1  
+##### 1111#       发表于 2021-11-1 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367785&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-1 18:10</a>
+不知道vr到底联没联系过，但是鸟吧的多米尼克说的一套一套的，要不是我看过维阿我就信了
+他要真是运 ...</blockquote>
+查下他以前的发言就知道了，一眼编<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tankai  
+##### 1112#       发表于 2021-11-1 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367775&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-1 18:10</a>
+宁愿她被勒夫挖走，维阿什么cjb</blockquote>
+让她速速k4是吧？给你一拳。
+
+
+*****
+
+####  夜之中道崩殂  
+##### 1113#       发表于 2021-11-1 18:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367937&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-1 18:21</a>
+查下他以前的发言就知道了，一眼编</blockquote>
+千鸟粉丝新入v圈的太多，七成以上都是看as入圈的。被他唬住了
+
+

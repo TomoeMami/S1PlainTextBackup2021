@@ -7972,3 +7972,53 @@ SYL：
 虹EN那边倒是不缺奇幻要素不过感觉那边的奇幻要素就是为了方便写歌……
 
 
+
+
+*****
+
+####  Suny08  
+##### 8061#       发表于 2021-11-1 18:02
+
+
+培训估计水的一逼，也就是为了防止金鱼这种人出现，感觉以后绝大部分人应该是会直接本社出道的
+
+
+*****
+
+####  fastary  
+##### 8062#       发表于 2021-11-1 18:03
+
+
+就运营这个架势，突然感觉黑客大概会因为被判断为没有商业价值几乎不出谷了，我不仅省live门票钱更能省买谷钱，追管人真是太便宜啦(错乱)
+
+
+*****
+
+####  死体残留  
+##### 8063#       发表于 2021-11-1 18:05
+
+
+ 本帖最后由 死体残留 于 2021-11-1 18:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367257&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-11-1 17:37</a>
+总结：现在应该没人觉得虹好进了
+联想到虹本部新人乱七八糟的设定好像也变少了（指新一期唯一的奇幻要素在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">想看奇幻风可以看vr本社啊 本社不是一直走奇幻风，还附带一次性即弃的中二长文设定
+还有虹好进是什么幻觉，没点小圈子熟人都进不了现在主流v事务所
+
+
+*****
+
+####  渡鸦骑士  
+##### 8064#       发表于 2021-11-1 18:08
+
+
+ 本帖最后由 渡鸦骑士 于 2021-11-1 18:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367678&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-1 18:05</a>
+想看奇幻风可以看vr本社啊 本社不是一直走奇幻风，还附带一次性即弃的中二长文设定 ...</blockquote>
+我说的就是VRjp减少奇幻要素啊。
+就差写在脑门子上：只有弱小的组织才会为了刷眼球选择难rp的人设。
+VRjp只要稳定的发挥主播自己的特色就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+说到底，我想表达的就是彩虹正在一点点主动丢掉以前我看到的那些人吹嘘的东西。
+反正虹观众群很大，也不用担心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

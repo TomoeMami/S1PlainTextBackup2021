@@ -14289,3 +14289,128 @@ syl，小星星当中有段拍肩转身我觉得特别可爱，没想到有人�
 说到混声 nagi的liella之歌就唱的很舒服 强混弱混头声都用的不错的感觉
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4226#       发表于 2021-11-1 18:07
+
+
+风怒
+
+
+*****
+
+####  chenflyyy  
+##### 4227#       发表于 2021-11-1 18:07
+
+
+BV1fL4y1i78T
+惊了，第一天的live全熟这么快就有了，太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">有字幕需求的尽快缓存
+
+
+*****
+
+####  baoer  
+##### 4228#       发表于 2021-11-1 18:10
+
+
+据说到明年一月有20场live   说资本家疯狂压榨 你们怎么说啊
+
+
+*****
+
+####  kata魂  
+##### 4229#       发表于 2021-11-1 18:11
+
+
+怎么s1讨论正常了，nga又冒出来sb？这两天1st就算鲤鱼没那么显眼 但还能有人说是靠枕营业上去的我是佩服的
+
+
+*****
+
+####  cxj649  
+##### 4230#       发表于 2021-11-1 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367803&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-11-1 18:11</a>
+
+怎么s1讨论正常了，nga又冒出来sb？这两天1st就算鲤鱼没那么显眼 但还能有人说是靠枕营业上去的我是佩服的 ...</blockquote>
+枕营业说连5CH都没<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  优妮可  
+##### 4231#       发表于 2021-11-1 18:17
+
+
+有个装懂哥的傻宝开帖说资源好有大佬捧，然后就有个nt跟着来黑了
+
+
+*****
+
+####  chenflyyy  
+##### 4232#       发表于 2021-11-1 18:19
+
+
+吃个饭的功夫就看了好几场撕逼了，B站评论区在吵口水巾梗的是否滥用，nga在撕对压榨偶像的看法和偶像对粉丝的态度，还有人发帖说鲤鱼靠大佬枕营业上位的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野四葉  
+##### 4233#       发表于 2021-11-1 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是s1纯良的不科学，你们是没看过非ll相关二次元群里的恶意。
+
+
+*****
+
+####  中野四葉  
+##### 4234#       发表于 2021-11-1 18:20
+
+
+翻页bug
+
+
+*****
+
+####  lj205  
+##### 4235#       发表于 2021-11-1 18:20
+
+
+傻逼，开号喷回去。
+
+
+*****
+
+####  lj205  
+##### 4236#       发表于 2021-11-1 18:23
+
+
+压榨偶像这个我是觉得担心太多，现在不拼点怎么行？活多代表收入有保障。就是得引导好妹子们保护自己，特别是事务所和经纪人要注意这个
+
+
+*****
+
+####  chenflyyy  
+##### 4237#       发表于 2021-11-1 18:25
+
+
+你楼确实在满是巨魔的s1里纯良得不可思议，算是我见过讨论ll星的社区中氛围最好的一个
+
+
+*****
+
+####  中野四葉  
+##### 4238#       发表于 2021-11-1 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为就这么几个人，小团体了属于是。黑屁进来都自讨没趣的
+
+
