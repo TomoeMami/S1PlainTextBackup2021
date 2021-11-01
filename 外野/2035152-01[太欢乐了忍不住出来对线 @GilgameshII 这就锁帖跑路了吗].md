@@ -896,3 +896,17 @@ s1的醍醐味
 那个小号的回帖好恶臭啊...如果不是rpg的话,真接受不了
 
 
+
+
+*****
+
+####  韩子  
+##### 75#       发表于 2021-11-1 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368957&amp;ptid=2035152" target="_blank">默读者 发表于 2021-11-1 19:40</a>
+
+你说的魔兽世界智商可没那么高，虽然人是edfc那边的老巨魔和恨国党，泥潭还封他一个黄皮尼哥，但智商的确 ...</blockquote>
+所以我倾向不是一个人啦
+
+

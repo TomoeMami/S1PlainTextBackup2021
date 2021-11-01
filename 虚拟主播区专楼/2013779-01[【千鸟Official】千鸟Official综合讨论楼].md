@@ -13385,3 +13385,29 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 绝大多数不接受斧。而且他们根本不了解维阿有多烂
 
 
+
+
+*****
+
+####  小憨1  
+##### 1122#       发表于 2021-11-1 21:05
+
+
+说实话我觉得斧那边挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  迷失的右眼  
+##### 1123#       发表于 2021-11-1 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368421&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-1 18:56</a>
+小话痨不也挂靠在勒夫那边嘛
+
+去哪不比去维阿强</blockquote>
+小话唠没有那谁护着早在泥潭被车了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BTV-W09, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

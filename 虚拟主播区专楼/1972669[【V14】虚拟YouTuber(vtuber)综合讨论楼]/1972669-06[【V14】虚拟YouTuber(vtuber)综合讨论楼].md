@@ -8382,3 +8382,44 @@ SYL，巴布太郎去迪士尼感觉还不错。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金鱼好歹出道时可是打破最速银盾记录的超级新人，虹现在也没几个实力有她强的
 
 
+
+
+*****
+
+####  free  
+##### 8091#       发表于 2021-11-1 20:43
+
+
+[https://twitter.com/uc_kamitsubaki/status/1455007076397158403](https://twitter.com/uc_kamitsubaki/status/1455007076397158403)
+
+“裸春市建设中”将推出小说、TRPG、ノベルゲーム（这是啥？）
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 越动天下| + 1|不就是gal吗|
+
+
+查看全部评分
+
+
+*****
+
+####  死体残留  
+##### 8092#       发表于 2021-11-1 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369583&amp;ptid=1972669" target="_blank">winda 发表于 2021-11-1 20:33</a>
+不仅还活着，还要出虚拟牛郎了
+
+就是太草台体验会没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">唯一个男的昨天都毕业了 还能出虚拟牛郎么
+
+

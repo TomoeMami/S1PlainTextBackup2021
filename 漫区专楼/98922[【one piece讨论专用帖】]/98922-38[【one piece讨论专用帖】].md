@@ -6423,3 +6423,17 @@ tianlangistl
 感觉快了啊，打完凯多就妥妥的第一梯队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ⊙天上天下  
+##### 55977#       发表于 2021-11-1 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53319589&amp;ptid=98922" target="_blank">angelooo 发表于 2021-10-28 22:23</a>
+
+这不叫烂尾，叫烂腰，对读者来说是温水煮青蛙，太特么痛苦了</blockquote>
+烂腰不至于，毕竟现在剧情进度基本上百分之九十了，如果拦腰应该算从鱼人岛开始烂了，感觉最后和火影差不多吧，火影也差不多忍界大战开始就质量下滑的比较严重。
+
+
