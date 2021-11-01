@@ -3209,3 +3209,68 @@ gamker除了国游勉强能看，别的着实看不下去，又浅又尬，而�
 你的决定比以往任何时候都更加重要。你的目标已经明了，但通往目标的道路只能由你自行开辟。成王败寇，谁主沉浮？做出你的选择，看看世界会因此发生何等变化。
 
 
+
+
+*****
+
+####  曼陀罗肥  
+##### 252#       发表于 2021-11-1 20:07
+
+
+ 本帖最后由 曼陀罗肥 于 2021-11-1 20:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367600&amp;ptid=2034747" target="_blank">伊斯坎达尔王 发表于 2021-11-1 18:00</a>
+
+我现在明白了，真正“维护”他的人不是我，而是你
+
+你不接受自己对游戏的批判过于严苛的可能，也不接受up主 ...</blockquote>
+问题是，我看过他的视频后去玩游戏，会发现他所罗列的缺点，皆能言中痛点。
+
+一般人踩了雷后，也许会觉得“剧情拉垮”，他的总结却仅是“剧情平庸”。可他确实也踩过这些雷，知道这里有缺点，甚至都把它们付诸笔下了啊。这个论述与结论的割裂我始终不能明白。
+
+思来想去，或许真像你说的，是我过于苛责，他过于宽容罢。
+
+
+*****
+
+####  bad_alloc  
+##### 253#       发表于 2021-11-1 20:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359118&amp;ptid=2034747" target="_blank">leitingkai 发表于 2021-11-1 08:27</a>
+名字弄错不过小事，这期可是把《正义之怒》念成《巫师之怒》，字幕也是《巫师之怒》
+
+最好巫师真能 ...</blockquote>
+笑什么笑，谁家的T都得兼巫师拿冻皮蜥蜴冰戒指<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ゆい  
+##### 254#       发表于 2021-11-1 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53359118&amp;ptid=2034747" target="_blank">leitingkai 发表于 2021-11-1 08:27</a>
+
+名字弄错不过小事，这期可是把《正义之怒》念成《巫师之怒》，字幕也是《巫师之怒》
+
+最好巫师真能 ...</blockquote>
+确实有个翻译成巫师之怒的游戏，是山口山杀手之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dgnic_  
+##### 255#       发表于 2021-11-1 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369284&amp;ptid=2034747" target="_blank">曼陀罗肥 发表于 2021-11-1 20:07</a>
+问题是，我看过他的视频后去玩游戏，会发现他所罗列的缺点，皆能言中痛点。
+
+一般人踩了雷后，也许会觉得“ ...</blockquote>
+其实论述和总结有不同是非常正常的。
+细讲剧情的时候，会把情节里的各种缺点拿出来细数，而往往不会专心挑好的地方来讲。
+而总结是整体来看，就不会切割开优缺点，最后给一个“平庸”也是非常正常的。
+
+我觉得游戏评测每个人有自己的标准和看法都非常正常，像你显然就比较严格，狗蛋打分一向高可能就比较宽容，可实在没必要用“恰饭”这样的预设来堵塞了讨论的空间。
+
+

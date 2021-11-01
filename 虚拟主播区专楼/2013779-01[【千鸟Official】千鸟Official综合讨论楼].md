@@ -13360,3 +13360,17 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 什么时候能在隔壁退役驾驶员楼里看到静静，急
 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 1120#       发表于 2021-11-1 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">鸟u贴吧和au血统那么高，比起vr，怕是斧系更不能接受吧。
+
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

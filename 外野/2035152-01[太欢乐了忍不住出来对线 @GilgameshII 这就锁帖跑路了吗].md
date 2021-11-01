@@ -1,0 +1,836 @@
+
+
+*****
+
+####  勇者アルバ  
+##### 1#       楼主       发表于 2021-11-1 17:55
+
+
+ 本帖最后由 勇者アルバ 于 2021-11-1 18:06 编辑 
+
+<img src="https://i.bmp.ovh/imgs/2021/11/9e27e7d8d9d1733c.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">另外附一个楼主原帖截图
+
+<img src="https://i.bmp.ovh/imgs/2021/11/bcc0d2ec5a86fa18.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 9战斗力 +10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 东英零| + 1|典|
+| terrtray| + 2||
+| dyhalt| + 2|欢乐多|
+| 天使日又日| + 1|欢乐多|
+| zhangzhi2ma|-1|欢乐多|
+| mintslime| + 1|你太坏了，我本来想着他认怂就不继续说的XD.|
+| 仓鼠吃火锅| + 1|欢乐多|
+| 璃絵和花瑠| + 1|欢乐多|
+| aisakahammer| + 2|我说怎么又编辑了|
+
+
+查看全部评分
+
+
+*****
+
+####  Lisylfn  
+##### 2#       发表于 2021-11-1 17:56
+
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纹水  
+##### 3#       发表于 2021-11-1 17:58
+
+
+他那帖子我也看了，实在是看不懂前因后果，有没有人细说一下<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巨灵巴谛魔  
+##### 4#       发表于 2021-11-1 17:59
+
+
+给老坛友留点面子吧（多来点
+
+
+*****
+
+####  璃絵和花瑠  
+##### 5#       发表于 2021-11-1 18:00
+
+
+ 本帖最后由 璃絵和花瑠 于 2021-11-1 18:16 编辑 
+
+汴不过直接255跑路确实挺<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+所以是哪位重量级老潭友，这对易拉罐很重要<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  沈淮  
+##### 6#       发表于 2021-11-1 18:02
+
+
+欢乐多
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  巨灵巴谛魔  
+##### 7#       发表于 2021-11-1 18:02
+
+
+[@naruto3432](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=103769) 
+
+
+*****
+
+####  勇者アルバ  
+##### 8#         楼主| 发表于 2021-11-1 18:04
+
+
+<img src="https://i.bmp.ovh/imgs/2021/11/5892e3954e976bb3.png" referrerpolicy="no-referrer">
+
+更新一下，好家伙大规模跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+丢人不丢人啊[@GilgameshII](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=543982)  
+[@naruto3432](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=103769)
+
+
+*****
+
+####  植田佳奈  
+##### 9#       发表于 2021-11-1 18:05
+
+
+所以发生什么事了？
+
+
+*****
+
+####  植田佳奈  
+##### 10#       发表于 2021-11-1 18:05
+
+
+所以发生什么事了？
+
+
+*****
+
+####  植田佳奈  
+##### 11#       发表于 2021-11-1 18:06
+
+
+所以发生什么事了？
+
+
+*****
+
+####  璃絵和花瑠  
+##### 12#       发表于 2021-11-1 18:06
+
+
+ 本帖最后由 璃絵和花瑠 于 2021-11-1 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367627&amp;ptid=2035152" target="_blank">巨灵巴谛魔 发表于 2021-11-1 18:02</a>
+@naruto3432</blockquote>
+看了下全是编辑过的255权限帖，过于难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+回复实在过于精彩，不知道说什么好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  默读者  
+##### 13#       发表于 2021-11-1 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367627&amp;ptid=2035152" target="_blank">巨灵巴谛魔 发表于 2021-11-1 18:02</a>
+
+@naruto3432</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这人好蠢，编辑了主题居然没编辑发言，然后觉得还是发言更有趣。
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 14#       发表于 2021-11-1 18:06
+
+
+为什么都编辑了却还把嫖娼帖留着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅德韦杰夫  
+##### 15#       发表于 2021-11-1 18:07
+
+
+真是low
+
+最烦这种锁帖的，看到一次扣一次
+
+
+*****
+
+####  五块太贵不买了  
+##### 16#       发表于 2021-11-1 18:08
+
+
+敢演就不要怕扣，你演的好我还要加鹅呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iriyano  
+##### 17#       发表于 2021-11-1 18:13
+
+
+绷不住了，印象里泥潭出来发帖挂人的就没几个善终的
+
+
+*****
+
+####  SKYYDS  
+##### 18#       发表于 2021-11-1 18:15
+
+
+ 本帖最后由 SKYYDS 于 2021-11-1 18:25 编辑 
+
+我比较惨，被挂，还被莫名其妙扣了几个鹅
+
+不小心给大家带来了欢乐，不好意思。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| omoito| + 1|没扣你的但还是给你加一个吧|
+| 黄桜銀一| + 1|欢乐多|
+| terrtray| + 2||
+| aisakahammer| + 2|当时以为你是在瞎闹，结果|
+
+
+查看全部评分
+
+
+*****
+
+####  勇者アルバ  
+##### 19#         楼主| 发表于 2021-11-1 18:17
+
+
+<img src="https://s3.bmp.ovh/imgs/2021/11/f67211ec1ae31d31.png" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/imgs/2021/11/5d6df90a9ee0cb44.png" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/imgs/2021/11/db4850d7f4116b74.png" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/imgs/2021/11/d0c9cb9c30eb49e9.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">随便翻了点回帖，约不约至少占了30%
+
+到底有多饥渴啊 @GilgameshII @naruto3432 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 仓鼠吃火锅| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  天使日又日  
+##### 20#       发表于 2021-11-1 18:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我爱S1就是爱这种帖子
+
+
+*****
+
+####  战狼PTSD  
+##### 21#       发表于 2021-11-1 18:19
+
+
+这么狠，支持正义扒皮
+
+
+*****
+
+####  晴岚  
+##### 22#       发表于 2021-11-1 18:22
+
+
+笑死,刚那贴看了点觉得神经病就没看了。没想到这么精彩。来自: iPhone客户端
+
+
+*****
+
+####  梅德韦杰夫  
+##### 23#       发表于 2021-11-1 18:22
+
+
+10年以上的论坛撩骚+约炮史
+
+广州人
+
+注重隐私ptsd
+
+我倒是想起一个人
+
+
+*****
+
+####  巨灵巴谛魔  
+##### 24#       发表于 2021-11-1 18:22
+
+
+别扒了别扒了，难道你就没有大号吗？
+难道你大号当年没嘴嗨过、没玩过女装的烂梗吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  义亦死吾亦死  
+##### 25#       发表于 2021-11-1 18:23
+
+
+<blockquote>梅德韦杰夫 发表于 2021-11-1 18:22
+10年以上的论坛撩骚+约炮史
+
+广州人
+
+注重隐私ptsd
+</blockquote>
+魔兽世界？
+
+
+*****
+
+####  梅德韦杰夫  
+##### 26#       发表于 2021-11-1 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367963&amp;ptid=2035152" target="_blank">义亦死吾亦死 发表于 2021-11-1 18:23</a>
+
+魔兽世界？</blockquote><blockquote>你们不得好死！！！</blockquote>
+有没有想起谁
+
+
+*****
+
+####  勇者アルバ  
+##### 27#         楼主| 发表于 2021-11-1 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367944&amp;ptid=2035152" target="_blank">梅德韦杰夫 发表于 2021-11-1 18:22</a>
+
+10年以上的论坛撩骚+约炮史
+
+广州人
+
+注重隐私ptsd</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">愿闻其详
+
+
+*****
+
+####  勇者アルバ  
+##### 28#         楼主| 发表于 2021-11-1 18:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了我记得这家伙的女朋友也会用这个号回复诶
+
+不知道女朋友能接受长达10年的约炮史吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+@GilgameshII 
+
+
+*****
+
+####  Coronavirus  
+##### 29#       发表于 2021-11-1 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368050&amp;ptid=2035152" target="_blank">勇者アルバ 发表于 2021-11-1 18:27</a>
+对了我记得这家伙的女朋友也会用这个号回复诶
+
+不知道女朋友能接受长达10年的约炮史吗
+
+@Gilga ...</blockquote>
+现在看来有点像男装女自演
+
+
+*****
+
+####  璃絵和花瑠  
+##### 30#       发表于 2021-11-1 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368050&amp;ptid=2035152" target="_blank">勇者アルバ 发表于 2021-11-1 18:27</a>
+对了我记得这家伙的女朋友也会用这个号回复诶
+
+不知道女朋友能接受长达10年的约炮史吗
+
+@Gilga ...</blockquote>
+看回复可能是精神分裂自导自演<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+这家伙说的话都属实那他应该在精神病院而不该上泥潭高强度发帖机<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 31#       发表于 2021-11-1 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368050&amp;ptid=2035152" target="_blank">勇者アルバ 发表于 2021-11-1 18:27</a>
+
+对了我记得这家伙的女朋友也会用这个号回复诶
+
+不知道女朋友能接受长达10年的约炮史吗
+
+@Gilga ...</blockquote>
+看起来挺像自演，对质疑都选择性回复
+
+
+*****
+
+####  Porsche  
+##### 32#       发表于 2021-11-1 18:33
+
+
+看到里面还at过拖延症
+不知道她现在还看不看泥潭
+
+
+*****
+
+####  霜刀  
+##### 33#       发表于 2021-11-1 18:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么刺激的吗
+
+
+*****
+
+####  SKYYDS  
+##### 34#       发表于 2021-11-1 18:35
+
+
+所以他这个要结婚是真的，还是幻想的？
+
+如果是真的话，真替这个台湾女同胞感到惋惜...
+
+如果是真的话，希望你能改过自新，或者放过别人 [@GilgameshII](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=543982) 
+
+如果是假的话，希望你有病看病，刷论坛治不了病...
+
+
+屏幕截图 2021-11-01 183148.JPG
+(221.11 KB, 下载次数: 1)
+
+
+下载附件
+
+
+2021-11-1 18:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202111/01/183234dasx919rxm0b010q.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小李子大脸猫  
+##### 35#       发表于 2021-11-1 18:39
+
+
+才看清楚他的ID是吉尔伽美什
+
+
+*****
+
+####  Лилия  
+##### 36#       发表于 2021-11-1 18:54
+
+
+有没有前情提要
+
+
+*****
+
+####  Jiron.Amos  
+##### 37#       发表于 2021-11-1 18:54
+
+
+记得这位和泥潭最近很活跃的名媛互动积极，叫捆捆什么的
+
+
+*****
+
+####  沈淮  
+##### 38#       发表于 2021-11-1 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367881&amp;ptid=2035152" target="_blank">勇者アルバ 发表于 2021-11-1 18:17</a>
+随便翻了点回帖，约不约至少占了30%
+
+到底有多饥渴啊 @GilgameshII @naruto3432  ...</blockquote>
+乐...
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  RJG丶one  
+##### 39#       发表于 2021-11-1 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368389&amp;ptid=2035152" target="_blank">Лилия 发表于 2021-11-1 18:54</a>
+有没有前情提要</blockquote>
+挂人无端扣鹅被反挂扒皮，直接编辑255权限跑路
+
+
+*****
+
+####  ロス  
+##### 40#       发表于 2021-11-1 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368389&amp;ptid=2035152" target="_blank">Лилия 发表于 2021-11-1 18:54</a>
+有没有前情提要</blockquote>
+更前情的提要是那个女同事送礼物的绿茶贴
+
+
+*****
+
+####  网恋教父孙笑川  
+##### 41#       发表于 2021-11-1 19:24
+
+
+逮鹰不成反被啄了眼，太拉了吧
+
+
+*****
+
+####  伊森温特斯  
+##### 42#       发表于 2021-11-1 19:25
+
+
+又到了我第十喜欢的扒皮环节，不过这个也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  齐雨绮语  
+##### 43#       发表于 2021-11-1 19:28
+
+
+什么这个居然是那个送妹子礼物的绿茶楼主？
+
+
+*****
+
+####  仟音一心  
+##### 44#       发表于 2021-11-1 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368801&amp;ptid=2035152" target="_blank">齐雨绮语 发表于 2021-11-1 19:28</a>
+
+什么这个居然是那个送妹子礼物的绿茶楼主？</blockquote>
+对，就是，发贴频率巨高，简繁体混用，质疑的从来不回应
+
+
+*****
+
+####  1a不解释  
+##### 45#       发表于 2021-11-1 19:31
+
+
+这个人的帖子一看就有种生理性不适
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  韩子  
+##### 46#       发表于 2021-11-1 19:33
+
+
+<blockquote>义亦死吾亦死 发表于 2021-11-1 18:23
+魔兽世界？</blockquote>
+要真是他的话那可太恶心了，虽然目前看的话，只有嫖娼暴露以后火速编辑过往帖子这点比较像
+
+
+*****
+
+####  睏睏  
+##### 47#       发表于 2021-11-1 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368396&amp;ptid=2035152" target="_blank">Jiron.Amos 发表于 2021-11-1 18:54</a>
+
+记得这位和泥潭最近很活跃的名媛互动积极，叫捆捆什么的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dgnic_  
+##### 48#       发表于 2021-11-1 19:36
+
+
+什么鱼龙混杂论坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  griffonz  
+##### 49#       发表于 2021-11-1 19:40
+
+
+woc没料到这个展开啊，那个帖子看了一页，感觉挺正常啊，有理有据的样子，后面怎么会变成扒皮贴
+
+
+*****
+
+####  默读者  
+##### 50#       发表于 2021-11-1 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368882&amp;ptid=2035152" target="_blank">韩子 发表于 2021-11-1 19:33</a>
+要真是他的话那可太恶心了，虽然目前看的话，只有嫖娼暴露以后火速编辑过往帖子这点比较像 ...</blockquote>
+你说的魔兽世界智商可没那么高，虽然人是edfc那边的老巨魔和恨国党，泥潭还封他一个黄皮尼哥，但智商的确堪忧。
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+
+*****
+
+####  spiece  
+##### 51#       发表于 2021-11-1 19:41
+
+
+有趣。
+
+
+*****
+
+####  伊芙琳  
+##### 52#       发表于 2021-11-1 19:42
+
+
+s1的醍醐味
+
+
+*****
+
+####  爱尔米娜  
+##### 53#       发表于 2021-11-1 19:44
+
+
+这种自称男女共用一个新号的，我感觉就怪怪的。
+
+果然是自演乙么。
+
+长风难度都应该扒出来打倒并踏上 一万只脚
+
+
+*****
+
+####  alvus  
+##### 54#       发表于 2021-11-1 19:44
+
+
+这个id不是黑妖侠么
+
+
+*****
+
+####  Joshua64  
+##### 55#       发表于 2021-11-1 19:57
+
+
+问个小问题，你们都是怎么发现大小号关系的？刻意伪装的话很难看出来的吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  fatimagg01  
+##### 56#       发表于 2021-11-1 19:58
+
+
+外面有个老婆妹妹头像云云的楼主，能扒一下不？看上去也是表演性人格。
+
+
+*****
+
+####  西伯利亚冷空气  
+##### 57#       发表于 2021-11-1 20:00
+
+
+前几天挑着存了几楼
+狗叔能解下权限吗想看下坛友推荐的杯子[@活久见](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=464256) 
+<img src="https://p.sda1.dev/3/af6a722cc291e4916153f75484d71931/IMG_CMP_201735849.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  璃絵和花瑠  
+##### 58#       发表于 2021-11-1 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369164&amp;ptid=2035152" target="_blank">Joshua64 发表于 2021-11-1 19:57</a>
+
+问个小问题，你们都是怎么发现大小号关系的？刻意伪装的话很难看出来的吧？
+
+
+—— 来自 S1Fun ...</blockquote>
+说出暴言然后权限拉满锁帖跑路，当然可以给人留下深刻印象了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">互联网又不是真的没有记忆
+
+
+*****
+
+####  睏睏  
+##### 59#       发表于 2021-11-1 20:04
+
+
+ 本帖最后由 睏睏 于 2021-11-1 20:12 编辑 
+
+我现在只想知道台湾女朋友到底存不存在……？之前还跟我说话来着……“你好我是号主女友”这样的……
+
+
+*****
+
+####  KENN  
+##### 60#       发表于 2021-11-1 20:05
+
+
+他发的名媛贴挺乐，回帖凑上去的坛友也挺乐
+
+
+
+
+*****
+
+####  东英零  
+##### 61#       发表于 2021-11-1 20:08
+
+
+呜呜，赶紧换新号吧，这下脸都被人打肿了
+
+
+*****
+
+####  pgain2004  
+##### 62#       发表于 2021-11-1 20:09
+
+
+我本来还以为是元古论坛的一个同名老人
+
+
+*****
+
+####  榕郁  
+##### 63#       发表于 2021-11-1 20:10
+
+
+太low了，确实让我想起魔兽世界<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  璃絵和花瑠  
+##### 64#       发表于 2021-11-1 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369254&amp;ptid=2035152" target="_blank">睏睏 发表于 2021-11-1 20:04</a>
+我现在只想知道台湾女朋友到底存不存在……？之前还跟我说话来着……“你好我是号主那个朋友”这样的…… ...</blockquote>
+那当然是“拜托了，另一个我”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天使的赤瞳  
+##### 65#       发表于 2021-11-1 20:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">S1的醍醐味，希望下次看到这ID是女方出来说谢谢大家，婚不结了
+
+
+*****
+
+####  Youszsh  
+##### 66#       发表于 2021-11-1 20:13
+
+
+魔兽世界是喜欢炫耀他约炮小女孩的那个？现在还有他pc的版本了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kknt  
+##### 67#       发表于 2021-11-1 20:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369164&amp;ptid=2035152" target="_blank">Joshua64 发表于 2021-11-1 19:57</a>
+
+问个小问题，你们都是怎么发现大小号关系的？刻意伪装的话很难看出来的吧？
+
+
+—— 来自 S1Fun ...</blockquote>
+在S1玩装雷达是基本操作
+
+
+你猜这个帖子里又有几个分裂的小号呢？
+
+
+*****
+
+####  碧池团团子  
+##### 68#       发表于 2021-11-1 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369388&amp;ptid=2035152" target="_blank">kknt 发表于 2021-11-1 20:15</a>
+在S1玩装雷达是基本操作
+
+
+你猜这个帖子里又有几个分裂的小号呢？</blockquote>
+这种东西谁知道呢，就算被认出来死不承认，也没辙吧。
+
+
