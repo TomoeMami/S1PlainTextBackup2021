@@ -6523,3 +6523,50 @@ tianlangistl
 第一次出场就是下半身说话 这就不能太深究了
 
 
+
+
+*****
+
+####  晴岚  
+##### 55985#       发表于 2021-11-2 01:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370809&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-11-1 22:37</a>
+
+加霸气设定就是最大的败笔</blockquote>
+不加霸气自然系就太bug了。全世界只有路飞一个人能过艾尼路？
+
+
+*****
+
+####  晴岚  
+##### 55986#       发表于 2021-11-2 01:22
+
+
+这么看白胡子这顶上被爆了半边头就没掉真是四皇之耻...你看看和之国这边的武士...
+
+
+*****
+
+####  JC_AR  
+##### 55987#       发表于 2021-11-2 01:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372267&amp;ptid=98922" target="_blank">晴岚 发表于 2021-11-2 01:22</a>
+不加霸气自然系就太bug了。全世界只有路飞一个人能过艾尼路？</blockquote>
+本来没引出霸气的时候果实克制果实，能力五花八门百花齐放很好看，出了个霸气啥都往上面靠一力降十会，你再牛逼的能力霸气一拳干爆。
+不是不可以有霸气，是不应该有现在这样的霸气
+
+
+*****
+
+####  晴岚  
+##### 55988#       发表于 2021-11-2 01:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372322&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-11-2 01:33</a>
+
+本来没引出霸气的时候果实克制果实，能力五花八门百花齐放很好看，出了个霸气啥都往上面靠一力降十会，你 ...</blockquote>
+果实克制果实的问题就是全世界能克制这个果实最多就只有两个。那其他人怎么办呢？碰到就直接等死还是简单粗暴的上海楼石子弹把对面biu死？
+
+
