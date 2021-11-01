@@ -1030,3 +1030,16 @@ s1的醍醐味
 所以这种自我表演意义何在？让潭友因为“有人居然有湾湾女朋友”羡慕嫉妒恨一下？
 
 
+
+
+*****
+
+####  ada_ovo  
+##### 85#       发表于 2021-11-1 22:49
+
+
+草，魔兽世界真是不愿想起来的东西
+
+不过那个风格好像不太一样，而且长的还算池面<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
