@@ -14217,3 +14217,34 @@ syl，小星星当中有段拍肩转身我觉得特别可爱，没想到有人�
 她唱高音还是胸声占比太多了...虽然胸腔共鸣很好但是- - 胸声一直这样唱高音还是很伤，不然也不会一天就哑掉。心疼死了
 
 
+
+
+*****
+
+####  Arccueid  
+##### 4220#       发表于 2021-11-1 17:10
+
+
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4698762661265486?from=old_pc_videoshow) 1分开始<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是昨天说的直接喊姓不仲那段，确实吓到小百合了
+
+
+*****
+
+####  任天索尼子  
+##### 4221#       发表于 2021-11-1 17:21
+
+
+鲤鱼确实算不上多好看 不过颜值还在普通线以上一些 耐看倒是没什么问题。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 4222#       发表于 2021-11-1 17:23
+
+
+她喊人真是随心所欲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打铁和外星人的称呼都好几种
+
+

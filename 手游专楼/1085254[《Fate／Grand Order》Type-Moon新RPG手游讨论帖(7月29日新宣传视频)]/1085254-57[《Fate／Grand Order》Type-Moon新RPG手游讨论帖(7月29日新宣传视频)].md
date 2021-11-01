@@ -2864,3 +2864,19 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗啊 摩根之后我一个五星没抽到 果然是欧气全用光了么
 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84230#       发表于 2021-11-1 17:15
+
+
+ 本帖最后由 不垃圾屌丝 于 2021-11-1 17:17 编辑 
+
+咕哒咕哒复刻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+对于信胜硬币的解决方案是每天免费友情十连变成两次<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+再往下看发现兑换里也有，那还差不多
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
