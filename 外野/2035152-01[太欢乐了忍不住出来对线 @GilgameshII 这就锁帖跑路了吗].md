@@ -1330,3 +1330,69 @@ s1的醍醐味
 
 下个号的人设已经想好了，用活着的wiki为蓝本。
 
+
+
+*****
+
+####  SKYYDS  
+##### 109#       发表于 2021-11-2 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378271&amp;ptid=2035152" target="_blank">naruto3432 发表于 2021-11-2 13:43</a>
+
+可以，来广州我请你吃饭顺便逛女仆店。
+
+下个号的人设已经想好了，用@活着的wiki为蓝本。 ...</blockquote>
+有病治病
+
+*****
+
+####  睏睏  
+##### 110#       发表于 2021-11-2 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378271&amp;ptid=2035152" target="_blank">naruto3432 发表于 2021-11-2 13:43</a>
+
+可以，来广州我请你吃饭顺便逛女仆店。
+
+下个号的人设已经想好了，用 @活着的wiki 为蓝本。 ...</blockquote>
+谢谢你给我很多养猫的建议和资料。
+
+祝你生活愉快…
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| naruto3432| + 2||
+
+查看全部评分
+
+*****
+
+####  naruto3432  
+##### 111#       发表于 2021-11-2 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378390&amp;ptid=2035152" target="_blank">睏睏 发表于 2021-11-2 13:51</a>
+
+谢谢你给我很多养猫的建议和资料。
+
+祝你生活愉快…</blockquote>
+不用谢，wiki她不养猫，也许下个号会给你很多珠宝首饰，宗教用品的建议及北美生活的分享，祝你生活愉快，下次我们就是同性了。<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有妹  
+##### 112#       发表于 2021-11-2 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+*****
+
+####  韩子  
+##### 113#       发表于 2021-11-2 14:03
+
+………（大开眼界，还是你们年轻人会玩
+

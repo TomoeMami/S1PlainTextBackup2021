@@ -1353,3 +1353,27 @@ GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA
 
 理论上注册成功的情况下fb账号被封，还能救吗
 
+
+
+*****
+
+####  bypass  
+##### 80#         楼主| 发表于 2021-11-2 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377038&amp;ptid=2034565" target="_blank">hikari0805 发表于 2021-11-2 12:23</a>
+
+理论上注册成功的情况下fb账号被封，还能救吗</blockquote>
+直接找 Oculus 中文客服问问？
+
+[https://tickets.oculusvr.com/hc/zh-cn/requests/new](https://tickets.oculusvr.com/hc/zh-cn/requests/new)
+
+*****
+
+####  bypass  
+##### 81#         楼主| 发表于 2021-11-2 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53376925&amp;ptid=2034565" target="_blank">sloorz 发表于 2021-11-2 12:15</a>
+
+看了一下，摇摆双臂进行体感移动还挺有趣的。这种移动方式可能比定点移动和摇杆移动带来的感觉更好。腿部 ...</blockquote>
+我记得 Steam 有软件可以用摇摆双臂来实现 VR 游戏的摇杆移动，不过这两天玩生化 4 VR 给我感觉就是…好累人啊晃手，我还是摇杆吧。
+

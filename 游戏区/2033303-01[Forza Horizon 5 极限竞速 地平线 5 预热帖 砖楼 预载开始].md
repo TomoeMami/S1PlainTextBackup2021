@@ -1807,3 +1807,17 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 等出来评测再看
 
+
+
+*****
+
+####  Hanzong  
+##### 131#       发表于 2021-11-2 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377870&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 13:16</a>
+
+别买方向盘还是别买法拉利</blockquote>
+别买方向盘，如果你只玩FH5
+
+建议你先找个体验店试试手感
+

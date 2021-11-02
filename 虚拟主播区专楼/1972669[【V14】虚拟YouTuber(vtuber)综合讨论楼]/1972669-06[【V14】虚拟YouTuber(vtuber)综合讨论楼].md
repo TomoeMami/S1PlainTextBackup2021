@@ -8557,3 +8557,12 @@ ui
 那个谁寄了之后木口SC也拉了吗，最近还正好有在看一点阿梓，还真不知道国V头部已经可以和日V头部互砍了[f:1 ...</blockquote>
 去年这时候b站头部的sc不就能超油管了吗，只是现在b站头部从日v变成国v了而已，但是油管大箱现在的业务又不仅仅是直播
 
+
+
+*****
+
+####  真飞鸟i  
+##### 8102#       发表于 2021-11-2 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么问题来了，tskk寄了木口sc暴跌的逻辑是什么呢。
+
