@@ -15529,3 +15529,19 @@ Disc 2
 
 三团歌就是难忘今宵吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 4333#       发表于 2021-11-2 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">明天有新情报
+
+*****
+
+####  chenflyyy  
+##### 4334#       发表于 2021-11-2 21:48
+
+这个时间点会是什么新情报，新歌？
+
