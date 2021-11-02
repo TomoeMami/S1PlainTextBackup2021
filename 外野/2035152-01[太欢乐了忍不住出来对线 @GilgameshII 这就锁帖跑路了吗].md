@@ -1502,3 +1502,17 @@ s1的醍醐味
 
 不过你要真的这样，还不如复活中将，好久没见到中酱的标题了。
 
+
+
+*****
+
+####  naruto3432  
+##### 126#       发表于 2021-11-2 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53379988&amp;ptid=2035152" target="_blank">默读者 发表于 2021-11-2 15:43</a>
+
+有机会吧，总会遇见，最近在宁波忙活~
+
+不过你要真的这样，还不如复活中将，好久没见到中酱的标题了。 ...</blockquote>
+个人认为wiki当年比蓝骑士团团长要更加神經一些。
+

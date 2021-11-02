@@ -3782,3 +3782,23 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 
 至于这些自媒体说的是COD是恋爱养成游戏，还是黄油是硬核赛车游戏，这都是最不重要的一点。
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 294#       发表于 2021-11-2 15:55
+
+另外，聂俊本人20号当天会在场馆闲逛。对他不满的，特别最近生气的，可以现场揍他。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/02/155449uwhnjmjtjmh86vnm.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1492.PNG</strong> (337.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 15:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
