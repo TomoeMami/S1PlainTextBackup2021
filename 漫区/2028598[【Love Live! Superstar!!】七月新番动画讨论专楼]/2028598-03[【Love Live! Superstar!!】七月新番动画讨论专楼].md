@@ -15120,3 +15120,23 @@ liyuu声音没啥特质，不会很突出的给人留下深刻印象，不是小
 
 星团的跨年歌听下来就是正当年的女生唱歌
 
+
+
+*****
+
+####  player3960  
+##### 4295#       发表于 2021-11-2 12:49
+
+BV133411k7yQ
+这个太艹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  D麦林  
+##### 4296#       发表于 2021-11-2 12:58
+
+呜哇 想着本来也不太可能去现场我跨年主题曲和ANNGTie单都直接买的无特版<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+我是不是亏了
+

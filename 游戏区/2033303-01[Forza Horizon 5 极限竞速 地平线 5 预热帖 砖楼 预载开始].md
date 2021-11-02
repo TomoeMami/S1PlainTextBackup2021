@@ -1707,3 +1707,31 @@ t300法拉利版提升大吗</blockquote>
 会根据节庆活动改场内布置</blockquote>
 在fh5里玩rocket league吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  agion117  
+##### 122#       发表于 2021-11-2 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372807&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-2 07:17</a>
+
+终极版4号解锁，具体是几点解锁？</blockquote>
+xbox商店显示港区是中午十二点解锁
+
+*****
+
+####  老黑305  
+##### 123#       发表于 2021-11-2 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377366&amp;ptid=2033303" target="_blank">agion117 发表于 2021-11-2 12:42</a>
+xbox商店显示港区是中午十二点解锁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">噢噢，谢谢，steam版应该也一样？
+
+*****
+
+####  lxx4869  
+##### 124#       发表于 2021-11-2 13:01
+
+方向盘没必要吧，前两作方向盘开一会我就换手柄了
+

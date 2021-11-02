@@ -1216,3 +1216,33 @@ s1的醍醐味
 这就是你越来越扭曲的原因吗</blockquote>
 甘之如饴<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SKYYDS  
+##### 100#       发表于 2021-11-2 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369254&amp;ptid=2035152" target="_blank">睏睏 发表于 2021-11-1 20:04</a>
+
+我现在只想知道台湾女朋友到底存不存在……？之前还跟我说话来着……“你好我是号主女友”这样的…… ...</blockquote>
+目前推测是没有。立那样的人设只是为了方便他更轻易地接近你。
+
+*****
+
+####  小煤  
+##### 101#       发表于 2021-11-2 13:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">原来这就是男绿茶，看了原贴几眼只觉得哪里怪怪的完全没往这边想。
+
+*****
+
+####  真红之闪电  
+##### 102#       发表于 2021-11-2 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369254&amp;ptid=2035152" target="_blank">睏睏 发表于 2021-11-1 20:04</a>
+我现在只想知道台湾女朋友到底存不存在……？之前还跟我说话来着……“你好我是号主女友”这样的…… ...</blockquote>
+你看你和不就是上钩了。
+我现在倒是希望你也是个自演，看他啥反应。
+顺便张姐是啥事呀？
+
