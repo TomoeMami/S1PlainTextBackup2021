@@ -3518,3 +3518,32 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  harmonytree  
+##### 274#       发表于 2021-11-2 07:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372890&amp;ptid=2034747" target="_blank">白行简5566 发表于 2021-11-02 07:43:45</a>
+按说不应该啊，聂俊不是老跑团人吗？经常组织线上线下团的那种，怎么连开拓者都不知道……
+
+—— 来自 HUAW ...</blockquote>最合理的解释是整个视频除了中间升华的部分，其它都是团队写手创作，包括游戏应该也没亲自游玩
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  第四人称  
+##### 275#       发表于 2021-11-2 08:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372950&amp;ptid=2034747" target="_blank">harmonytree 发表于 2021-11-2 07:58</a>
+最合理的解释是整个视频除了中间升华的部分，其它都是团队写手创作，包括游戏应该也没亲自游玩
+
+  -- 来自  ...</blockquote>
+去掉除了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
