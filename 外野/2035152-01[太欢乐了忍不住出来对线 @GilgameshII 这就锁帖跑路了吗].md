@@ -1246,3 +1246,54 @@ s1的醍醐味
 我现在倒是希望你也是个自演，看他啥反应。
 顺便张姐是啥事呀？
 
+
+
+*****
+
+####  睏睏  
+##### 103#       发表于 2021-11-2 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377645&amp;ptid=2035152" target="_blank">真红之闪电 发表于 2021-11-2 13:02</a>
+
+你看你和不就是上钩了。
+
+我现在倒是希望你也是个自演，看他啥反应。
+
+顺便张姐是啥事呀？ ...</blockquote>
+什么张姐？
+
+*****
+
+####  天使日又日  
+##### 104#       发表于 2021-11-2 13:17
+
+原来就是那孙子真带劲那个吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  naruto3432  
+##### 105#       发表于 2021-11-2 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377888&amp;ptid=2035152" target="_blank">天使日又日 发表于 2021-11-2 13:17</a>
+
+原来就是那孙子真带劲那个吗
+
+—— 来自 Sony J9210, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+那孙子真带劲是tgfc的贴，他在欧洲上了一个白妖。
+
+我上的是广州正佳广场楼下的星巴克里约到的黑妖。别把tgfc和S1相提并论。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RE_INORI|-1||
+
+查看全部评分
+

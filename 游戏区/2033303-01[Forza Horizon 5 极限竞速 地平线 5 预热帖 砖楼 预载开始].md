@@ -1735,3 +1735,53 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 方向盘没必要吧，前两作方向盘开一会我就换手柄了
 
+
+
+*****
+
+####  agion117  
+##### 125#       发表于 2021-11-2 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377408&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-2 12:45</a>
+
+噢噢，谢谢，steam版应该也一样？</blockquote>
+steam就不知道了……也许是一样的吧
+
+*****
+
+####  Hanzong  
+##### 126#       发表于 2021-11-2 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
+t300法拉利版提升大吗</blockquote>
+再劝一次别买...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haru橙子  
+##### 127#       发表于 2021-11-2 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377366&amp;ptid=2033303" target="_blank">agion117 发表于 2021-11-2 12:42</a>
+
+xbox商店显示港区是中午十二点解锁</blockquote>
+晚上12点吧，12am是凌晨，他那个系统中文直接机翻的
+
+*****
+
+####  agion117  
+##### 128#       发表于 2021-11-2 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377738&amp;ptid=2033303" target="_blank">haru橙子 发表于 2021-11-2 13:09</a>
+
+晚上12点吧，12am是凌晨，他那个系统中文直接机翻的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">原来是这样
+
+*****
+
+####  feve9999  
+##### 129#       发表于 2021-11-2 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377733&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-2 13:09</a>
+再劝一次别买...</blockquote>
+别买方向盘还是别买法拉利
+

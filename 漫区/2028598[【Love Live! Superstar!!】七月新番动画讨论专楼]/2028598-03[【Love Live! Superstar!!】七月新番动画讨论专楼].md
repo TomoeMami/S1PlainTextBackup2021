@@ -15140,3 +15140,42 @@ BV133411k7yQ
 呜哇 想着本来也不太可能去现场我跨年主题曲和ANNGTie单都直接买的无特版<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 我是不是亏了
 
+
+
+*****
+
+####  cqc1021  
+##### 4297#       发表于 2021-11-2 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53368755&amp;ptid=2028598" target="_blank">stygian 发表于 2021-11-1 19:25</a>
+404有个视频底下说鲤鱼像尼神インター的诚子，当时我就喷了， 的确挺有那味道的
+
+https://sokkuri.net/alik ...</blockquote>
+下面其它投票里还有鲤鱼跟enako，82%的人认为两个人长得像<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 4298#       发表于 2021-11-2 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377611&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-2 12:58</a>
+
+呜哇 想着本来也不太可能去现场我跨年主题曲和ANNGTie单都直接买的无特版
+
+我是不是亏了 ...</blockquote>
+把码卖了就不亏
+
+*****
+
+####  D麦林  
+##### 4299#       发表于 2021-11-2 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377832&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-2 13:14</a>
+
+把码卖了就不亏</blockquote>
+不是 我买的是无抽选版
+
+脑子一抽说错了 不是无特
+
