@@ -1849,3 +1849,25 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 可以两人合购然后不同存档但是能同时在线吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">xgp10港币活动又来了
 
+
+
+*****
+
+####  Yalbsd  
+##### 135#       发表于 2021-11-2 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381029&amp;ptid=2033303" target="_blank">masterzx 发表于 2021-11-2 17:00</a>
+
+有点离谱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我已经看到很多人这么说了
+
+*****
+
+####  Hanice  
+##### 136#       发表于 2021-11-2 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321993&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-10-29 05:17</a>
+
+账号玩过旧作会送一些以前的封面车</blockquote>
+FH3\4在win10商店买的，FH5在steam买还能送车吗？
+

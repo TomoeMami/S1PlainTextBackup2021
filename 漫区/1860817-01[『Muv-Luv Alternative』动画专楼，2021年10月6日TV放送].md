@@ -18632,3 +18632,12 @@ ate游戏里模拟仓就变成这样了。一段桥，两边是一个个黄色�
 
 也算合理，模拟在只有一小块儿地方的驾驶舱中的感受，用那个大的机械也太浪费了
 
+
+
+*****
+
+####  镜hinata  
+##### 1286#       发表于 2021-11-2 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">steam上的有和谐内容么
+
