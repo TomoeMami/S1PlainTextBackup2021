@@ -8694,3 +8694,14 @@ le jouet，堂堂复活！
 
 vspo这两新人挂着听还挺治愈的
 
+
+
+*****
+
+####  fastary  
+##### 8117#       发表于 2021-11-2 19:29
+
+会唱歌真好啊这句话我都说腻了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+就是说只要大家都是歌势总能等到都，真好啊真好啊……
+

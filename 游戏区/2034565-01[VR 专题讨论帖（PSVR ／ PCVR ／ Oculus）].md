@@ -1405,3 +1405,19 @@ GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA
 我现在在想到底是在我的vive基础上升级index还是去买个quset2，听说quest2对国内的玩家非常不友好，也是拿 ...</blockquote>
 先试试 Quest 2，不行再卖掉？<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dumplingpro  
+##### 85#       发表于 2021-11-2 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53380544&amp;ptid=2034565" target="_blank">rgm2000 发表于 2021-11-2 16:25</a>
+
+我现在在想到底是在我的vive基础上升级index还是去买个quset2，听说quest2对国内的玩家非常不友好，也是拿 ...</blockquote>
+重度INDEX，轻度Quest2，
+
+INDEX为重度游戏优化比较多，定位精准，前方有直通透气孔，可以装风扇抽风，不怕汗多。
+
+Quest2有无线。
+

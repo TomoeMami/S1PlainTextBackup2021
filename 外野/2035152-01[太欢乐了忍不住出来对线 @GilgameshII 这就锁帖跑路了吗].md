@@ -1557,3 +1557,25 @@ s1的醍醐味
 
 这种猴戏到底是为了什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅德韦杰夫  
+##### 131#       发表于 2021-11-2 19:35
+
+这位以前还众筹塞过柱头三呢
+
+坂田铜时死不瞑目<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stmule  
+##### 132#       发表于 2021-11-2 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369435&amp;ptid=2035152" target="_blank">碧池团团子 发表于 2021-11-1 20:19</a>
+这种东西谁知道呢，就算被认出来死不承认，也没辙吧。</blockquote>
+s1坛友无限可分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

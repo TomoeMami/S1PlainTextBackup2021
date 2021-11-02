@@ -6616,3 +6616,18 @@ tianlangistl
 你这不是抬杠么，就按照你之前说的艾尼路，绝缘体只有橡胶啊？真要满足剧情再设计个别的不行么？ ...</blockquote>
 行叭,那熔岩打算怎么克制呢？闪闪打算怎么克制呢？普通人面对这些要怎么办呢？站着等死？
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 55993#       发表于 2021-11-2 19:39
+
+既然提到火影，那就来数字论证一下。
+
+1.已知火影共700话，忍界大战篇差不多500话开始。
+2.OP现在1030话，哪怕尾田次回完结，按火影的烂尾比例算，差不多750话，德岛篇刚好过半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+3.假设OP最后两个大章（拉夫德鲁、玛丽乔亚）尾田超速完结，1300话，按比例算是930话，和之国篇引子已经结束，进入惠比寿镇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+聪明的坛友们请告诉我，OP会比火影烂得多吗
+
