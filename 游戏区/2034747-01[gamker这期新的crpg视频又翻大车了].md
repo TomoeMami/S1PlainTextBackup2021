@@ -3642,3 +3642,17 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  harmonytree  
+##### 283#       发表于 2021-11-2 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373972&amp;ptid=2034747" target="_blank">ybfelix 发表于 2021-11-2 09:37</a>
+
+念着念着自己不会觉得不对劲吗，总不能真是无情的念稿机器。应该是自己也确实不懂还有pathfinder这东西吧 ...</blockquote>
+我感觉这事只能用gamker对TLOU2的评语“业余和傲慢”来评价。如果不业余，就不会写出这么离谱的稿件；但比业余更让观众难以接受的则是傲慢。
+
+他们刻意立婆罗门人设这件事先不多说，就之前那几期有关CRPG的视频不说漏洞百出，那也是小错不断。然而“满分作文”侥幸得到的包容，让他们误以为真的可以不必对支持者负责：到了更新时间随便弄一个视频出来，以自己KOL的号召力，自然点赞投币**的有——毕竟以前也没出什么问题嘛！但他们没想到的是正义之怒这回真火了，热度可不是拥王者哪个他“玩过EA阶段就忘了”的游戏能比的。业余和傲慢都给占了，只能说这次炎上我真的毫不意外。
+

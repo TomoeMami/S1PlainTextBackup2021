@@ -10819,3 +10819,17 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 直播日本人最喜欢的长跑接力比赛
 
 
+
+
+*****
+
+####  PrincessBanana  
+##### 2287#       发表于 2021-11-2 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370234&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-11-1 21:41</a>
+
+直播日本人最喜欢的长跑接力比赛
+
+比起这个，11月预告来了</blockquote>
+好耶！
+

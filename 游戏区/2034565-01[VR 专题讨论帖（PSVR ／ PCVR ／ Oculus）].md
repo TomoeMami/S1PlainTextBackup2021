@@ -1236,3 +1236,29 @@ Quest 2 的 Passthrough API 能做到这个效果老实说我有点意外，实�
 
 2021-11-2 09:00 上传
 
+
+
+*****
+
+####  肛之练筋士  
+##### 70#       发表于 2021-11-2 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">说起来最近pc好像没啥vr游戏信息了，还在纠结要不要去搞个30系显卡
+
+*****
+
+####  bypass  
+##### 71#         楼主| 发表于 2021-11-2 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53374395&amp;ptid=2034565" target="_blank">肛之练筋士 发表于 2021-11-2 10:05</a>
+
+说起来最近pc好像没啥vr游戏信息了，还在纠结要不要去搞个30系显卡</blockquote>
+有啊，Lone Echo II 也算 VR 里面的大作了，只是…Oculus 重心不在这了，也没啥太大的宣传。
+
+*****
+
+####  sloorz  
+##### 72#       发表于 2021-11-2 10:18
+
+GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA一定很傻吧。
+
