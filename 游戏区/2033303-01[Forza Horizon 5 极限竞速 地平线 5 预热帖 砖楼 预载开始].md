@@ -1670,3 +1670,25 @@ t300法拉利版提升大吗</blockquote>
 
 所以steam版和微软商店版应该选哪个？4代玩steam版然后方向盘有bug…
 
+
+
+*****
+
+####  天神十三煞  
+##### 120#         楼主| 发表于 2021-11-2 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+球场原来可以进去
+
+比例好像比实际的大不少
+
+会根据节庆活动改场内布置
+
+比如圣诞就是圣诞主题
+
+世界杯就是世界杯主题
+
+可以搞什么汽车足球比赛了
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

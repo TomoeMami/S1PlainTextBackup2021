@@ -15069,3 +15069,45 @@ BV1hQ4y1S716 <img src="https://static.saraba1st.com/image/smiley/face2017/067.pn
 
 刚开始补，为什么弹幕里全是五学家？十分不解……
 
+
+
+*****
+
+####  saglork  
+##### 4290#       发表于 2021-11-2 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53375768&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-11-2 11:15</a>
+拉板有个新帖子，看了公演之后有什么曲目在你心目中地位上升了
+
+比如常夏这种MV看起来很土的，看现场nako跳 ...</blockquote>
+liyuu声音没啥特质，不会很突出的给人留下深刻印象，不是小百合和南条那种老天赏饭的音色，但在音准和气流的安定性上都保持的很好，考虑到liyuu在舞蹈和运动能力上都比较苦手，确实非常意外
+
+
+
+*****
+
+####  ads147147  
+##### 4291#       发表于 2021-11-2 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53376658&amp;ptid=2028598" target="_blank">武蔵 发表于 2021-11-2 11:59</a>
+刚开始补，为什么弹幕里全是五学家？十分不解……</blockquote>
+不要试图理解网络meme的传播。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  绯想alter2nd  
+##### 4292#       发表于 2021-11-2 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53376658&amp;ptid=2028598" target="_blank">武蔵 发表于 2021-11-2 11:59</a>
+刚开始补，为什么弹幕里全是五学家？十分不解……</blockquote>
+弹幕玩zz特摄等梗是常态啊
+
+*****
+
+####  chenflyyy  
+##### 4293#       发表于 2021-11-2 12:14
+
+青山文明<img src="https://p.sda1.dev/3/ce731949a5d460af28f34ef3a51fb51f/FDKFKZgaIAAIZKM.jpeg" referrerpolicy="no-referrer">
+
