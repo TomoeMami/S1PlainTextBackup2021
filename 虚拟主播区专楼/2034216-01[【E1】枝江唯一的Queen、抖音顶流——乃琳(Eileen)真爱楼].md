@@ -1455,3 +1455,42 @@ A综同接低下，每一个A圈环A圈楼的楼主都有责任
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  滴滴答咚  
+##### 100#       发表于 2021-11-3 00:17
+
+明年8.8给乃琳整点好台本吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 101#       发表于 2021-11-3 00:19
+
+表面是真爱楼，但本质是奥斯维辛是吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  sanlow666  
+##### 102#         楼主| 发表于 2021-11-3 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53388851&amp;ptid=2034216" target="_blank">单脚着地 发表于 2021-11-3 00:19</a>
+
+表面是真爱楼，但本质是奥斯维辛是吧
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+“言语不起作用，要看到具体行动”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+起码楼主本人是在坚持人肉搬运乃琳的一切官方内容的
+
+*****
+
+####  杜知新  
+##### 103#       发表于 2021-11-3 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

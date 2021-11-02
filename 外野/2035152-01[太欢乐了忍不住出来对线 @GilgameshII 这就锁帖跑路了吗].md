@@ -1590,3 +1590,18 @@ s1坛友无限可分<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  默读者  
+##### 134#       发表于 2021-11-3 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382088&amp;ptid=2035152" target="_blank">京騒戯画 发表于 2021-11-2 18:25</a>
+https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1916064&amp;page=2#pid49719209
+
+这帖，也是个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
