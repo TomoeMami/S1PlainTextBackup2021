@@ -8546,3 +8546,14 @@ ui
 
 那个谁寄了之后木口SC也拉了吗，最近还正好有在看一点阿梓，还真不知道国V头部已经可以和日V头部互砍了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 8101#       发表于 2021-11-2 13:40
+
+<blockquote>tiro_finale 发表于 2021-11-2 12:28
+那个谁寄了之后木口SC也拉了吗，最近还正好有在看一点阿梓，还真不知道国V头部已经可以和日V头部互砍了[f:1 ...</blockquote>
+去年这时候b站头部的sc不就能超油管了吗，只是现在b站头部从日v变成国v了而已，但是油管大箱现在的业务又不仅仅是直播
+

@@ -15179,3 +15179,37 @@ https://sokkuri.net/alik ...</blockquote>
 
 脑子一抽说错了 不是无特
 
+
+
+*****
+
+####  lj205  
+##### 4300#       发表于 2021-11-2 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377915&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-2 13:18</a>
+
+不是 我买的是无抽选版
+
+脑子一抽说错了 不是无特</blockquote>
+………………啥？还有无抽版吗？………………初回不是都有抽选券吗？
+
+*****
+
+####  D麦林  
+##### 4301#       发表于 2021-11-2 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378074&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-2 13:30</a>
+
+………………啥？还有无抽版吗？………………初回不是都有抽选券吗？</blockquote>
+代购的店家拿走抽选券然后特价卖的版本啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4302#       发表于 2021-11-2 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378146&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-2 13:35</a>
+
+代购的店家拿走抽选券然后特价卖的版本啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这…………
+

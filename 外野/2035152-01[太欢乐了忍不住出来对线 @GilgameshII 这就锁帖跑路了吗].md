@@ -1297,3 +1297,36 @@ s1的醍醐味
 
 查看全部评分
 
+
+
+*****
+
+####  默读者  
+##### 106#       发表于 2021-11-2 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377934&amp;ptid=2035152" target="_blank">naruto3432 发表于 2021-11-2 13:20</a>
+
+那孙子真带劲是tgfc的贴，他在欧洲上了一个白妖。
+
+我上的是广州正佳广场楼下的星巴克里约到的黑妖。别把t ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">我说呢，下回来广东带带我（bushi
+
+*****
+
+####  trb315  
+##### 107#       发表于 2021-11-2 13:33
+
+有没有人总结一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naruto3432  
+##### 108#       发表于 2021-11-2 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378032&amp;ptid=2035152" target="_blank">默读者 发表于 2021-11-2 13:27</a>
+
+我说呢，下回来广东带带我（bushi</blockquote>
+可以，来广州我请你吃饭顺便逛女仆店。
+
+下个号的人设已经想好了，用活着的wiki为蓝本。
+

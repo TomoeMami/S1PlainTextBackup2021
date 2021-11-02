@@ -1785,3 +1785,25 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 再劝一次别买...</blockquote>
 别买方向盘还是别买法拉利
 
+
+
+*****
+
+####  天神十三煞  
+##### 130#         楼主| 发表于 2021-11-2 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377870&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-1 21:16</a>
+
+别买方向盘还是别买法拉利</blockquote>
+如果你不玩其他赛车游戏，下单要谨慎
+
+如果要玩其他赛车游戏，买一个倒是可以
+
+具体来说看我前面回帖
+
+主要这游戏并不全在赛道上
+
+其实可以不急
+
+等出来评测再看
+
