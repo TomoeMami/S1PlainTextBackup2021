@@ -3573,3 +3573,29 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 立人设的诸君，不是不报，时候未到啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  wlhlz  
+##### 278#       发表于 2021-11-2 08:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53344591&amp;ptid=2034747" target="_blank">Guildenstern 发表于 2021-10-30 21:46</a>
+
+博德之门初代98年发售，那时候FF7都发售一年了，99年eyes on me已经传唱大江南北了。JRPG婆罗门至少得玩 ...</blockquote>
+然而我就是当年就玩过创世纪魔法门却没有玩过FF7的，不要用身边统计学随便脑补
+
+
+*****
+
+####  wlhlz  
+##### 279#       发表于 2021-11-2 08:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53350886&amp;ptid=2034747" target="_blank">茛菪 发表于 2021-10-31 13:36</a>
+
+其实这期被锤本质就是因为没有狠吹吧，什么“侵权”“剧情没自由度”骂的有够难听了，这才让玩家跳脚了。之 ...</blockquote>
+毛子这游戏虽然缺点一大堆，但是侵权跟剧情没有自由度纯属胡扯，甚至把一个开场5分钟就加入的队友职业都说错了，都不谈玩过游戏了，去贴吧之类的云个十几分钟都不至于这样胡说八道，这么傻逼的视频还怪玩家身上了你是在搞笑吗
+
+

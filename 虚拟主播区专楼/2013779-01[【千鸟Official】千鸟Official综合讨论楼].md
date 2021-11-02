@@ -13436,3 +13436,16 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一天多了平时三天的回复，以为你们有什么大活，结果是vr勒夫大讨论，国v箱的代表是这俩我觉得国v还是寄了算了
 
 
+
+
+*****
+
+####  GAKOTO  
+##### 1126#         楼主| 发表于 2021-11-2 08:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369235&amp;ptid=2013779" target="_blank">huyuanhao120 发表于 2021-11-1 20:03</a>
+什么时候能在隔壁退役驾驶员楼里看到静静，急</blockquote>
+那边还真有文静的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
