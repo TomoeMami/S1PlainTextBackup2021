@@ -8617,3 +8617,20 @@ vspo粉本质不是管人粉丝<img src="https://static.saraba1st.com/image/smil
 
 纯良不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8109#       发表于 2021-11-2 15:09
+
+纯良很好，就是发现自己已经很阴湿的时候不得不感叹时间是把杀猪刀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 8110#       发表于 2021-11-2 15:11
+
+对着nzn追求“质”，对着露娜发情的样子跟其他管人粉丝没啥区别
+最近看他们劈的最多的也就堇，看着更像新老粉丝的分歧，不像虹串，恨不得对面死
+
