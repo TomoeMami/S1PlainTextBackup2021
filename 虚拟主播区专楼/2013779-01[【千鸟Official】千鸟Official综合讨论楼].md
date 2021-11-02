@@ -13746,3 +13746,52 @@ image.png
 
 刚好一直有弹幕说和隔壁碰一碰，就有人打了第一个红sc，然后地毯就铺起来了
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 1160#       发表于 2021-11-2 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382497&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-2 19:04</a>
+
+攒了一周的礼物没谢，好不容易谢到最后快结束了，又被一毛钱礼物80了
+
+刚好一直有弹幕说和隔壁碰一碰，就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">碰起来啊！
+
+该死的艾白，rnm，tq！
+
+*****
+
+####  小憨1  
+##### 1161#       发表于 2021-11-2 19:07
+
+如果8点前下了，那不是文静碰输了，是文静不想玩了，望周知<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1162#       发表于 2021-11-2 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382540&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-2 19:07</a>
+
+如果8点前下了，那不是文静碰输了，是文静不想玩了，望周知</blockquote>
+等会欧莱雅过来一个总督就给干沉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自己玩玩而已，大可不必
+
+*****
+
+####  小憨1  
+##### 1163#       发表于 2021-11-2 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382628&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-2 19:14</a>
+等会欧莱雅过来一个总督就给干沉了自己玩玩而已，大可不必</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">精神胜利也是赢
+
+*****
+
+####  T型钉宫病毒  
+##### 1164#       发表于 2021-11-2 19:16
+
+今晚突击电台必将绝杀！
+

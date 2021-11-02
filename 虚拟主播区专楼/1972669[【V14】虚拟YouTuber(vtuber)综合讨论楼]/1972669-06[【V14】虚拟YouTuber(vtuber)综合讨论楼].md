@@ -8670,3 +8670,27 @@ vspo粉本质不是管人粉丝<img src="https://static.saraba1st.com/image/smil
 
 beni出事的时候可是一股原始点串味<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8115#       发表于 2021-11-2 19:09
+
+[https://www.youtube.com/watch?v=BF_FmInMcgU](https://www.youtube.com/watch?v=BF_FmInMcgU)
+
+全动画打戏...
+
+le jouet，堂堂复活！
+
+（意思是好牛快来看都来看<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer"> ）
+
+*****
+
+####  poipanchao  
+##### 8116#       发表于 2021-11-2 19:12
+
+点人见点
+
+vspo这两新人挂着听还挺治愈的
+
