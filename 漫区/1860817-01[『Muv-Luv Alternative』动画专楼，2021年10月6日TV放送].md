@@ -18776,3 +18776,15 @@ steam上的有和谐内容么</blockquote>
 
 除了回忆以外其实也出现过好几次了。
 
+
+
+*****
+
+####  hpk0421  
+##### 1299#       发表于 2021-11-3 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381901&amp;ptid=1860817" target="_blank">V宇宙的守夜人Z 发表于 2021-11-02 18:11:23</a>
+我觉得和谐真的不影响，毕竟这游戏重点不在这里，据说无和谐有非常精神污染的CG，反正我没补丁打完也没觉 ...</blockquote>实际上，steam和谐版那张cg也还在
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
