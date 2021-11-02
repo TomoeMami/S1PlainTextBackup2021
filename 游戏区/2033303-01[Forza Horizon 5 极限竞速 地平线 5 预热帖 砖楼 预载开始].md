@@ -1916,3 +1916,12 @@ t300法拉利版提升大吗</blockquote>
 
 —— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  冀人燕南天  
+##### 141#       发表于 2021-11-2 21:35
+
+XGP+顶级捆绑包=终极版，可以这么理解吗？
+
