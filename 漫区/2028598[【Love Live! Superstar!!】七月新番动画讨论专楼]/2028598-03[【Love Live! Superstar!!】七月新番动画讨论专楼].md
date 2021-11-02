@@ -15047,3 +15047,16 @@ BV1hQ4y1S716 <img src="https://static.saraba1st.com/image/smiley/face2017/067.pn
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  saya1892  
+##### 4288#       发表于 2021-11-2 11:15
+
+拉板有个新帖子，看了公演之后有什么曲目在你心目中地位上升了
+
+比如常夏这种MV看起来很土的，看现场nako跳舞就很好
+
+小星星的话有人说因为身高差太夸张看起来像搞笑就比较遗憾
+

@@ -3692,3 +3692,49 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 
 去年就取关了 之前还说过鬼泣是回合制游戏呢 
 
+
+
+*****
+
+####  pygrads  
+##### 287#       发表于 2021-11-2 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53340110&amp;ptid=2034747" target="_blank">酷乐 发表于 2021-10-30 15:54</a>
+
+一直都有啊，这些就是我在书店或软件店买的：</blockquote>
+出我
+
+*****
+
+####  酷乐  
+##### 288#       发表于 2021-11-2 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53375571&amp;ptid=2034747" target="_blank">pygrads 发表于 2021-11-2 11:05</a>
+出我</blockquote>
+又不是没地方放，为啥要出……
+
+*****
+
+####  电磁炮233  
+##### 289#       发表于 2021-11-2 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53375571&amp;ptid=2034747" target="_blank">pygrads 发表于 2021-11-2 11:05</a>
+出我</blockquote>
+淘宝闲鱼又不是买不到。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  茛菪  
+##### 290#       发表于 2021-11-2 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53374839&amp;ptid=2034747" target="_blank">wlhlz 发表于 2021-11-2 10:30</a>
+
+难道不是因为他说的过于离谱，甚至明显是连云都懒得去云一下就整了这么个视频出来？ ...</blockquote>
+自媒体“过于离谱”的东西还少么，不如说能不日常秀下限的都是独角兽，能红红火火过得下去无非就是粉丝不在乎、不知道，而知道它离谱的人没被冒犯到懒得去搞它，大家都很忙的，没工夫给网络粪坑义务掏粪。
+
+就说这视频，把“侵权”去了，山茶德鲁伊啥的错误全部保留，最后吹一把“巫师之怒是pst+博得+ToEE+英雄无敌集大成之千古神作”，够离谱不？但我觉得不会被喷到删视频。
+
+所以我好奇的是，自媒体按说都是擅长见风使舵的，怎么这次云都不云就能自信满满的逆风输出
+
