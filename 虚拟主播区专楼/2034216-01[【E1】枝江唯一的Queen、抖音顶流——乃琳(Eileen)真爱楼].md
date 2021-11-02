@@ -1524,3 +1524,24 @@ A综同接低下，每一个A圈环A圈楼的楼主都有责任
 
 冲琳老哥你越觉得他恶心他越开心，颠来倒去就那些没活的车轱辘黑屁话还自以为很潮，几个月了还跟狗一样闻着味道就追着咬 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 自己开开心心看A-SOUL得了，有些东西眼不见为净
 
+
+
+*****
+
+####  好爽  
+##### 108#       发表于 2021-11-3 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389136&amp;ptid=2034216" target="_blank">别叫我宅男 发表于 2021-11-3 00:39</a>
+永远都要强调的是，乃宝生日会要搭配之后的单播，不完美小孩和marry you来完整看待，顶级效果，全是zqsg。 ...</blockquote>
+乃琳不管是整节目效果还是真情实感其实都很强的
+可惜冲琳老哥自己没活儿 眼中看别人就没活儿，自己活得虚伪就认为别人很假
+
+*****
+
+####  勾陈一  
+##### 109#       发表于 2021-11-3 00:54
+
+《不完美小孩》就是我心目中乃宝翻唱第一<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+“我给你的爱也许不完美，你却说最美”
+
