@@ -1943,3 +1943,14 @@ XGP+顶级捆绑包=终极版，可以这么理解吗？
 
 买了steam版，感觉应该可以拿到WIN商店版前作奖励吧？毕竟都要登录xbox live
 
+
+
+*****
+
+####  有钱多买小人  
+##### 144#       发表于 2021-11-2 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53387164&amp;ptid=2033303" target="_blank">iop000iop 发表于 2021-11-2 22:51</a>
+想问一下，我有xgpu，买了推荐的国区顶级加载捆绑包，现在在预载了，怎么才能知道我正在预载的是顶级版？或 ...</blockquote>
+pc去商店看已安装，xbox看附加内容。不行等能进游戏了再去捆绑包的商店页面下载也行。
+
