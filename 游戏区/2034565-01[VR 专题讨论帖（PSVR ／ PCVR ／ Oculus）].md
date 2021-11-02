@@ -1292,3 +1292,32 @@ GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA
 
 好期待啊，想知道能交出什么样答卷的GTA VR。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dumplingpro  
+##### 75#       发表于 2021-11-2 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53374395&amp;ptid=2034565" target="_blank">肛之练筋士 发表于 2021-11-2 10:05</a>
+
+说起来最近pc好像没啥vr游戏信息了，还在纠结要不要去搞个30系显卡</blockquote>
+疫情一波全延期了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+众筹几个全挂了，比如LOW-FI和Zenith。
+
+本来low-fi应该跟2077同台竞技的，结果2077延期之后硬着头皮发售，low-fi还在硬撑着估计要到明年，现在试玩版看完成度已经很高了。
+[https://www.bilibili.com/video/BV1xq4y1Z7AS/](https://www.bilibili.com/video/BV1xq4y1Z7AS/)
+
+*****
+
+####  dumplingpro  
+##### 76#       发表于 2021-11-2 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53375271&amp;ptid=2034565" target="_blank">sloorz 发表于 2021-11-2 10:50</a>
+
+使用遥感的FPS视角移动或者第三视角的移动，其实有点考验O2的性能是不是能够保证帧数的稳定。
+
+一款帧数不 ...</blockquote>
+可以玩一下黑色洛城VR，那个就是R星自己搞的
+

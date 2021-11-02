@@ -1204,3 +1204,15 @@ key还在申请，具体数量虽然有很大把握，但是还要等steam确认
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你真的是重新定义了写的清清楚楚
 
+
+
+*****
+
+####  kjcm150  
+##### 79#       发表于 2021-11-2 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371406&amp;ptid=2034788" target="_blank">不灭钻石 发表于 2021-11-1 23:31</a>
+
+这家原来是国人的？</blockquote>
+zod啊
+
