@@ -6631,3 +6631,15 @@ tianlangistl
 
 聪明的坛友们请告诉我，OP会比火影烂得多吗
 
+
+
+*****
+
+####  风疯峰  
+##### 55994#       发表于 2021-11-2 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371444&amp;ptid=98922" target="_blank">团结奋进碇真嗣 发表于 2021-11-1 23:35</a>
+
+听不到声音的半身锦卫门是怎么说话的，放屁？</blockquote>
+就是放屁<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

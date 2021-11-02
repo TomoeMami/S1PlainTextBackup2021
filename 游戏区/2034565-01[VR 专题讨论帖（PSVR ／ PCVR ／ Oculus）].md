@@ -1421,3 +1421,17 @@ INDEX为重度游戏优化比较多，定位精准，前方有直通透气孔，
 
 Quest2有无线。
 
+
+
+*****
+
+####  dumplingpro  
+##### 86#       发表于 2021-11-2 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53376925&amp;ptid=2034565" target="_blank">sloorz 发表于 2021-11-2 12:15</a>
+
+看了一下，摇摆双臂进行体感移动还挺有趣的。这种移动方式可能比定点移动和摇杆移动带来的感觉更好。腿部 ...</blockquote>
+Natural Locomotion（软件版）不知道有没有Quest2版，KAT Loco（硬件版）也不知道。
+
+Cybershoes（VR鞋）倒是有Quest2支持。
+

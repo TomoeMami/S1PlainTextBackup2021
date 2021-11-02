@@ -1579,3 +1579,14 @@ s1坛友无限可分<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+
+*****
+
+####  ashzolo  
+##### 133#       发表于 2021-11-2 19:57
+
+惊了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -15409,3 +15409,17 @@ Disc 2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这听完OST更让我感觉这次在有意地搞低龄了，拿着几段关键旋律不断玩各种变奏真的好特摄，突出一个简单易懂好记
 
+
+
+*****
+
+####  qratosone  
+##### 4320#       发表于 2021-11-2 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53376658&amp;ptid=2028598" target="_blank">武蔵 发表于 2021-11-2 11:59</a>
+
+刚开始补，为什么弹幕里全是五学家？十分不解……</blockquote>
+[https://www.bilibili.com/video/B ... id_from=333.337.0.0](https://www.bilibili.com/video/BV11b4y167JQ?from=search&amp;seid=10200398485919294639&amp;spm_id_from=333.337.0.0)
+
+比较早期是这个视频开始的（女人唱歌咔咔死），后来又有其他的一些名场面（比如第四集西冰库，第七集一空输）推波助澜
+

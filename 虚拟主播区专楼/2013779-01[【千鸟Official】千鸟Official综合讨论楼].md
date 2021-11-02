@@ -13795,3 +13795,29 @@ image.png
 
 今晚突击电台必将绝杀！
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 1165#       发表于 2021-11-2 19:51
+
+天降祥瑞，坛友《麻雀翻身》发错区，暗示鸟不灭！
+
+*****
+
+####  T型钉宫病毒  
+##### 1166#       发表于 2021-11-2 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53383106&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-2 19:51</a>
+
+天降祥瑞，坛友《麻雀翻身》发错区，暗示鸟不灭！</blockquote>
+帖子刚出来我就顺手举办发错版块，现在回头再看我不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 1167#       发表于 2021-11-2 19:57
+
+鸟友在哪里都是节目效果
+
