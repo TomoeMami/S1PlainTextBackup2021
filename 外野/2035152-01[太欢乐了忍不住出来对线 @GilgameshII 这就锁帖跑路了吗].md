@@ -1605,3 +1605,12 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1916064&amp;page=2
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+
+*****
+
+####  GASEOUSSNAKE  
+##### 135#       发表于 2021-11-3 01:07
+
+社交能力是有多差才在S1撩骚啊
+
