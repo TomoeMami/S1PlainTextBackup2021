@@ -3656,3 +3656,30 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 
 他们刻意立婆罗门人设这件事先不多说，就之前那几期有关CRPG的视频不说漏洞百出，那也是小错不断。然而“满分作文”侥幸得到的包容，让他们误以为真的可以不必对支持者负责：到了更新时间随便弄一个视频出来，以自己KOL的号召力，自然点赞投币**的有——毕竟以前也没出什么问题嘛！但他们没想到的是正义之怒这回真火了，热度可不是拥王者哪个他“玩过EA阶段就忘了”的游戏能比的。业余和傲慢都给占了，只能说这次炎上我真的毫不意外。
 
+
+
+*****
+
+####  wlhlz  
+##### 284#       发表于 2021-11-2 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373974&amp;ptid=2034747" target="_blank">茛菪 发表于 2021-11-2 09:37</a>
+
+你在说啥？
+
+我的意思是他胡扯的又不只这一个视频，光看这帖子里举例也知道他之前离谱的东西多了去了，然 ...</blockquote>
+难道不是因为他说的过于离谱，甚至明显是连云都懒得去云一下就整了这么个视频出来？
+
+*****
+
+####  wizder  
+##### 285#       发表于 2021-11-2 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53370834&amp;ptid=2034747" target="_blank">电磁炮233 发表于 2021-11-1 22:39</a>
+
+这道歉动态是不是控评了，一眼望去清一色洗地
+
+—— 来自 S1Fun</blockquote>
+没事 大家都在这个视频下面喷他 
+[https://www.bilibili.com/video/BV1qh41187LD/](https://www.bilibili.com/video/BV1qh41187LD/)
+

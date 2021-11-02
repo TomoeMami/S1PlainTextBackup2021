@@ -8490,3 +8490,14 @@ ui
 
 你虹现在根本没几个能现场唱的，搞那么一堆live去听车祸现场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  永恒时间  
+##### 8097#       发表于 2021-11-2 10:31
+
+挺好，翻翻看看，感觉虹马上就要玩完了，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

@@ -1262,3 +1262,15 @@ Quest 2 的 Passthrough API 能做到这个效果老实说我有点意外，实�
 
 GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA一定很傻吧。
 
+
+
+*****
+
+####  bypass  
+##### 73#         楼主| 发表于 2021-11-2 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53374615&amp;ptid=2034565" target="_blank">sloorz 发表于 2021-11-2 10:18</a>
+
+GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA一定很傻吧。</blockquote>
+不至于，应该跟生化 4 一样可以选择，现在很少有游戏是纯定点移动的了。
+
