@@ -15513,3 +15513,19 @@ Disc 2
 
 跨年肯定要倒数的啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 4331#       发表于 2021-11-2 21:05
+
+比如合唱好运来？
+
+*****
+
+####  chenflyyy  
+##### 4332#       发表于 2021-11-2 21:06
+
+三团歌就是难忘今宵吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
