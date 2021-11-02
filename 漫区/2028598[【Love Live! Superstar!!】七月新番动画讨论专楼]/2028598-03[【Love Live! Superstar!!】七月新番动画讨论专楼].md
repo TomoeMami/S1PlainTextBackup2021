@@ -15475,3 +15475,41 @@ Disc 2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">哎 没雪团还是有点可惜 算是菜宝和秀第一次上live吧
 
+
+
+*****
+
+####  D麦林  
+##### 4327#       发表于 2021-11-2 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53383972&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-2 20:34</a>
+9点开始也太晚了，真就跨年啊</blockquote>
+按经验一般是跨年倒计时以后再来1-2首就散了
+
+*****
+
+####  普之舜舜  
+##### 4328#       发表于 2021-11-2 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53383801&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-11-2 20:25</a>
+卡了两楼还行</blockquote>
+看来是对的，新页面3个回复才可以显示
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  player3960  
+##### 4329#       发表于 2021-11-2 20:54
+
+我能期待一波鲤鱼和菜宝的互动吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 4330#       发表于 2021-11-2 21:00
+
+跨年肯定要倒数的啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

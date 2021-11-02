@@ -13821,3 +13821,49 @@ image.png
 
 鸟友在哪里都是节目效果
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 1168#       发表于 2021-11-2 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53383106&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-2 19:51</a>
+天降祥瑞，坛友《麻雀翻身》发错区，暗示鸟不灭！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就扫了一眼标题还以为在整什么活
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  莫洛骑士  
+##### 1169#       发表于 2021-11-2 20:53
+
+完了，我错过了太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1170#       发表于 2021-11-2 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53384444&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-2 20:53</a>
+
+完了，我错过了太多</blockquote>
+？你为什么不看直播？
+
+
+
+*****
+
+####  IDIDIDID  
+##### 1171#       发表于 2021-11-2 20:54
+
+看了眼动态评论乐了，以前AU里喜欢写文案的是不是都跑去当鸟批了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huyuanhao120  
+##### 1172#       发表于 2021-11-2 20:55
+
+气啊，又没看到。
+
