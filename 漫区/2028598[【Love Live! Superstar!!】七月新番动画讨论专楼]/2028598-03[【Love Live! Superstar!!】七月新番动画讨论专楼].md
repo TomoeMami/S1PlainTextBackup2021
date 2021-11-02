@@ -15027,3 +15027,23 @@ BV1hQ4y1S716 <img src="https://static.saraba1st.com/image/smiley/face2017/067.pn
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 4286#       发表于 2021-11-2 10:55
+
+梗改一改，所以说坛友很无趣<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4287#       发表于 2021-11-2 10:57
+
+在想着自己什么时候可以成为一个大up主呀？哎，还是多做视频去
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

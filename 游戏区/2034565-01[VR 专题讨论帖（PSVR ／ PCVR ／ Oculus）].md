@@ -1274,3 +1274,21 @@ GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA
 GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA一定很傻吧。</blockquote>
 不至于，应该跟生化 4 一样可以选择，现在很少有游戏是纯定点移动的了。
 
+
+
+*****
+
+####  sloorz  
+##### 74#       发表于 2021-11-2 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53374854&amp;ptid=2034565" target="_blank">bypass 发表于 2021-11-2 10:30</a>
+
+不至于，应该跟生化 4 一样可以选择，现在很少有游戏是纯定点移动的了。 ...</blockquote>
+使用遥感的FPS视角移动或者第三视角的移动，其实有点考验O2的性能是不是能够保证帧数的稳定。
+
+一款帧数不稳定加手柄自由移动的游戏简直就是晕动催吐剂。
+
+抑或者视角固定在角色后方某位置，当镜头与角色一定产生距离后进行跟随，就很不GTA了。跟适合**的设定路径游戏。
+
+好期待啊，想知道能交出什么样答卷的GTA VR。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
