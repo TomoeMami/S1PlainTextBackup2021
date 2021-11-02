@@ -1396,3 +1396,47 @@ s1的醍醐味
 
 ………（大开眼界，还是你们年轻人会玩
 
+
+
+*****
+
+####  天使日又日  
+##### 114#       发表于 2021-11-2 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">再一次看清S1生物多样性
+
+*****
+
+####  eulereld  
+##### 115#       发表于 2021-11-2 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">惺惺作態
+
+*****
+
+####  勇者アルバ  
+##### 116#         楼主| 发表于 2021-11-2 14:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在拿大号开始跳了？@naruto3432
+
+问心无愧的话昨天连夜编辑主贴加权限干什么？太好笑了，已经想象出一个中年女装悲惨肥肥只能靠RPG获取大家的注意，被拆穿后一边满头大汗一边连夜编辑旧贴的可怜样了
+
+*****
+
+####  zeropieceb  
+##### 117#       发表于 2021-11-2 14:13
+
+下次就是同性了还行。。。
+
+*****
+
+####  真红之闪电  
+##### 118#       发表于 2021-11-2 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377681&amp;ptid=2035152" target="_blank">睏睏 发表于 2021-11-2 13:05</a>
+
+什么张姐？</blockquote>
+那句不是回复你的……
+
+前面还是后面某楼提到的上半年的张姐，以为有啥我没看到的事件
+

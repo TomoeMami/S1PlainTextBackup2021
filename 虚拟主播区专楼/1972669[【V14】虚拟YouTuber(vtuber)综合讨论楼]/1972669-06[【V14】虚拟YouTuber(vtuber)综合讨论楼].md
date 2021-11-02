@@ -8566,3 +8566,19 @@ ui
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么问题来了，tskk寄了木口sc暴跌的逻辑是什么呢。
 
+
+
+*****
+
+####  我不是很好  
+##### 8103#       发表于 2021-11-2 14:04
+
+国V sc，是指算上舰长之后的总营收吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 8104#       发表于 2021-11-2 14:15
+
+很多老算法问题比如国V算舰长日V不算会员 本质在数据抓取上完全不同方式的情况下任何形式的比较一向都是没太大意义，就像没正常人会去比较国V日V同接一样因为你数据都搞不出来
+
