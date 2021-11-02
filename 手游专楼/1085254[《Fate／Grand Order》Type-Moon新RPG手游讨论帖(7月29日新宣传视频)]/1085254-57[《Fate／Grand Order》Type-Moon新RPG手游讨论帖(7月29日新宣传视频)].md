@@ -2891,3 +2891,14 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 又要顶着逆克制打本了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 84232#       发表于 2021-11-2 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367319&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-11-1 17:41</a>
+又要顶着逆克制打本了</blockquote>
+加成优化过了吧
+
