@@ -13458,3 +13458,14 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 
 等一手贝拉八点半直播间登场同步发动态。
 
+
+
+*****
+
+####  huyuanhao120  
+##### 1128#       发表于 2021-11-2 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373118&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-2 08:25</a>
+那边还真有文静的</blockquote>
+被这么一说，确实有。
+

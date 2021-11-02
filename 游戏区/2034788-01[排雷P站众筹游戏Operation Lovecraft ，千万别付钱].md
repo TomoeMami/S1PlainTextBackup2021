@@ -1157,3 +1157,50 @@ key还在申请，具体数量虽然有很大把握，但是还要等steam确认
 
 真的贱，躺着赚钱都不想做
 
+
+
+*****
+
+####  Jooohnny  
+##### 78#         楼主| 发表于 2021-11-2 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372421&amp;ptid=2034788" target="_blank">flvv 发表于 2021-11-2 02:07</a>
+
+公告停了订阅是能看的，我都停了几百年了。patreon跟ADB的问题。
+
+你非要进去回帖，那是没法回。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/02/095403zcg1elr4r3uf61cu.png" referrerpolicy="no-referrer">
+
+<strong>2$~_E7TE(0]((8`WE9N}NL7.png</strong> (40.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 09:54 上传
+
+首先，哪怕到现在，这个作者也依然设了一大堆带锁的文章。其次你也没有回复，最早三个月就支持了24刀的人，是不是停止订阅后就得不到新的客户端了？那时候才0.2几啊。
+
+<img src="https://img.saraba1st.com/forum/202111/02/095632aw87otolst693nmo.png" referrerpolicy="no-referrer">
+
+<strong>63A5HJKO)R@~VU5KAN0224A.png</strong> (115.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 09:56 上传
+
+关于开放世界，我查了一下确实没说，这个是我的问题。
+
+但是他画的这个饼和开放世界一样恶劣，根本不是他能做出来的。这已经是15个月前的公告了，后续哪怕是有一丁点场景和gif放出吗？这个作者可是最爱发gif的。
+
+至于你说的作者说的清清楚楚，我这个帖子发出来之后作者是这么回复的
+
+<img src="https://img.saraba1st.com/forum/202111/02/100021fxbb53z95kte999o.png" referrerpolicy="no-referrer">
+
+<strong>J5ZFJ6_~E_S$P$W}OW$GBYN.png</strong> (52.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 10:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你真的是重新定义了写的清清楚楚
+

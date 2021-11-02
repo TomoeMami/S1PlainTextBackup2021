@@ -1651,3 +1651,22 @@ steam可以预载了
 
 我看说首发的时候XSS的质量模式会变成1440P 30FPS
 
+
+
+*****
+
+####  秋雨灰灰  
+##### 118#       发表于 2021-11-2 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
+
+t300法拉利版提升大吗</blockquote>
+不大
+
+*****
+
+####  chenyuhao467  
+##### 119#       发表于 2021-11-2 10:04
+
+所以steam版和微软商店版应该选哪个？4代玩steam版然后方向盘有bug…
+
