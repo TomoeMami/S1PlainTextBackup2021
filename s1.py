@@ -58,11 +58,11 @@ def parse_html(html):
     return namelist,replylist,total_page,titles
 # \d{4}-\d{1}-\d{1}\s\d{2}\:\d{2}
 
-def addtimestamp(filedir,lasttimestamp):
-    with open(filedir, 'r+',encoding='UTF-8') as f:
-        content = f.read()
-        f.seek(0, 0)
-        f.write('> ## **本文件最后更新于'+lasttimestamp+'** \n\n'+content)
+# def addtimestamp(filedir,lasttimestamp):
+#     with open(filedir, 'r+',encoding='UTF-8') as f:
+#         content = f.read()
+#         f.seek(0, 0)
+#         f.write('> ## **本文件最后更新于'+lasttimestamp+'** \n\n'+content)
 
 def get_FileSize(filePath):
 
@@ -128,7 +128,7 @@ def FormatStr(namelist, replylist,totalreply):
         if(lastreply < replynumber[i]):
             output = output + '\n\n*****\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
     output = re.sub(r'\r','\n',output)
-    output = re.sub(r'\n{4,}','\n\n\n', output)
+    output = re.sub(r'\n{3,}','\n\n', output)
     lastreply = replynumber[-1]
     return output,lastreply
 
