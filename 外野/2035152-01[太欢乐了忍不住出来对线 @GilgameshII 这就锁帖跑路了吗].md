@@ -1486,3 +1486,19 @@ s1的醍醐味
 
 啊这....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  默读者  
+##### 125#       发表于 2021-11-2 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378271&amp;ptid=2035152" target="_blank">naruto3432 发表于 2021-11-2 13:43</a>
+
+可以，来广州我请你吃饭顺便逛女仆店。
+
+下个号的人设已经想好了，用 @活着的wiki 为蓝本。 ...</blockquote>
+有机会吧，总会遇见，最近在宁波忙活~
+
+不过你要真的这样，还不如复活中将，好久没见到中酱的标题了。
+
