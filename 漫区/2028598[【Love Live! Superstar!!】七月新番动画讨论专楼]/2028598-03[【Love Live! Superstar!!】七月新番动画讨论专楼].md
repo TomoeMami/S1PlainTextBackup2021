@@ -15423,3 +15423,55 @@ Disc 2
 
 比较早期是这个视频开始的（女人唱歌咔咔死），后来又有其他的一些名场面（比如第四集西冰库，第七集一空输）推波助澜
 
+
+
+*****
+
+####  优妮可  
+##### 4321#       发表于 2021-11-2 20:17
+
+<img src="https://img.saraba1st.com/forum/202111/02/201706u6hg4g8ypv5tktuh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211102_195926_com.huawei.browser_edit_38857725590945.jpg</strong> (112.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 20:17 上传
+
+*****
+
+####  中野四葉  
+##### 4322#       发表于 2021-11-2 20:25
+
+ 本帖最后由 中野四葉 于 2021-11-2 20:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">老王回来了啊
+
+*****
+
+####  中野四葉  
+##### 4323#       发表于 2021-11-2 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">卡了两楼还行
+
+*****
+
+####  lj205  
+##### 4324#       发表于 2021-11-2 20:33
+
+请问各位大佬有第二天录播的下载吗？可否好心私我？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4325#       发表于 2021-11-2 20:34
+
+9点开始也太晚了，真就跨年啊
+
+*****
+
+####  cybernetics31  
+##### 4326#       发表于 2021-11-2 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">哎 没雪团还是有点可惜 算是菜宝和秀第一次上live吧
+
