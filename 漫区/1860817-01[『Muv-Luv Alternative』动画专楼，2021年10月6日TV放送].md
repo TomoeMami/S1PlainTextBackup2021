@@ -18760,3 +18760,19 @@ steam上的有和谐内容么</blockquote>
 
 等等，18X版不是没有樱花作战轨道空降那段么？砍了就砍了呗。那几段不就是给人跳过用的么。
 
+
+
+*****
+
+####  蓝泽玲  
+##### 1298#       发表于 2021-11-3 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367891&amp;ptid=1860817" target="_blank">梶原ひかり 发表于 2021-11-1 18:18</a>
+
+纯夏....真的是女主么？动画党表示 这是虚假女主吧 目前只出现在回忆中...
+
+—— 来自 HUAWEI LLD-A ...</blockquote>
+不想被剧透就不要返白<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+除了回忆以外其实也出现过好几次了。
+
