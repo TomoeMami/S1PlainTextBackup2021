@@ -15383,3 +15383,15 @@ Disc 2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经有小星星身高差翻跳了
 
+
+
+*****
+
+####  lj205  
+##### 4318#       发表于 2021-11-2 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53380440&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-2 16:16</a>
+
+转壁吧，上周liella相关碟的销量</blockquote>
+大量发碟的情况下，这数字我觉得不错
+

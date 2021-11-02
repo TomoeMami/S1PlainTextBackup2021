@@ -1821,3 +1821,31 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 建议你先找个体验店试试手感
 
+
+
+*****
+
+####  Yalbsd  
+##### 132#       发表于 2021-11-2 16:59
+
+可以两人合购然后不同存档但是能同时在线吗
+
+*****
+
+####  masterzx  
+##### 133#       发表于 2021-11-2 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381007&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-2 16:59</a>
+
+可以两人合购然后不同存档但是能同时在线吗</blockquote>
+有点离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qianoooo  
+##### 134#       发表于 2021-11-2 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381007&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-2 16:59</a>
+可以两人合购然后不同存档但是能同时在线吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">xgp10港币活动又来了
+

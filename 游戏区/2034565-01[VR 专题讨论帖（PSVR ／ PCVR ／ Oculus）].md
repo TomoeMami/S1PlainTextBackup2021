@@ -1393,3 +1393,15 @@ GTA:SA的移动操作是哪种定点移动还是自由移动？定点移动的SA
 
 风怒
 
+
+
+*****
+
+####  bypass  
+##### 84#         楼主| 发表于 2021-11-2 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53380544&amp;ptid=2034565" target="_blank">rgm2000 发表于 2021-11-2 16:25</a>
+
+我现在在想到底是在我的vive基础上升级index还是去买个quset2，听说quest2对国内的玩家非常不友好，也是拿 ...</blockquote>
+先试试 Quest 2，不行再卖掉？<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
