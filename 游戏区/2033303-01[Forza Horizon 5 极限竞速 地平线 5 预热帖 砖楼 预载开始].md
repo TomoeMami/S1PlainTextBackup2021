@@ -1583,3 +1583,25 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 终极版4号解锁，具体是几点解锁？
 
 
+
+
+*****
+
+####  feve9999  
+##### 111#       发表于 2021-11-2 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53234586&amp;ptid=2033303" target="_blank">秋雨灰灰 发表于 2021-10-22 14:32</a>
+
+图马斯特T300，用xbox的话就是TX</blockquote>
+大佬，买方向盘需要买手排挡吗，平时只开自动挡。
+
+*****
+
+####  chan  
+##### 112#       发表于 2021-11-2 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373443&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 08:59</a>
+
+大佬，买方向盘需要买手排挡吗，平时只开自动挡。</blockquote>
+没有无所谓，有拨片换档。但是建议配一个开MT，还是很有乐趣的。
+

@@ -1212,3 +1212,27 @@ Ready at Dawn 最后连多语言支持都做不出来，发的推文让我有种
 查看全部评分
 
 
+
+
+*****
+
+####  bypass  
+##### 68#         楼主| 发表于 2021-11-2 08:58
+
+Quest 2 的 Passthrough API 能做到这个效果老实说我有点意外，实际人物和虚拟人物的重叠把我惊到了，以后面对面打 赌博 打游戏王或许也不是遥不可及的事情了。
+
+*****
+
+####  bypass  
+##### 69#         楼主| 发表于 2021-11-2 09:01
+
+另一个花边小新闻，GTA:SA 的确是 LA Noire VR 的那个工作室做的，去年传出在给 R* 开发 3A VR 游戏的正是这个工作室（<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 老 3A 也是 3A 嘛）。
+
+<img src="https://img.saraba1st.com/forum/202111/02/090035tayy8mfnl1avb8v8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 09:00 上传
+
