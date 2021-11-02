@@ -1532,3 +1532,19 @@ s1的醍醐味
 
 喷了
 
+
+
+*****
+
+####  京騒戯画  
+##### 129#       发表于 2021-11-2 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373568&amp;ptid=2035152" target="_blank">默读者 发表于 2021-11-2 09:09</a>
+
+上半年太过现充都不知是什么梗了，能不能讲解一下~</blockquote>
+[https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1916064&amp;page=2#pid49719209](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1916064&amp;page=2#pid49719209)
+
+这帖，也是个乐子人
+
+发帖招人反被挂，还去让狗叔删帖，结果狗叔一看乐了，把她之前的帖子放出来给谭友找乐子
+

@@ -13572,3 +13572,69 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 
 成功骗大米咯happy
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1141#       发表于 2021-11-2 18:21
+
+这下真要碰一碰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Finsty  
+##### 1142#       发表于 2021-11-2 18:21
+
+怎么就红地毯了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  本间日阳  
+##### 1143#       发表于 2021-11-2 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">想不起来她第一次红地毯是什么情况了，我当时在现场，也是非常突发的情况
+
+*****
+
+####  小憨1  
+##### 1144#       发表于 2021-11-2 18:31
+
+上次是大老师吧
+
+*****
+
+####  tankai  
+##### 1145#       发表于 2021-11-2 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382047&amp;ptid=2013779" target="_blank">本间日阳 发表于 2021-11-2 18:22</a>
+
+想不起来她第一次红地毯是什么情况了，我当时在现场，也是非常突发的情况 ...</blockquote>
+没记错的话。7.18过生日吧，第二次是8.1。 第三次是8.8。
+
+*****
+
+####  袜子  
+##### 1146#       发表于 2021-11-2 18:32
+
+上次也是莫名其妙的红地毯就来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原因真记不住了，大概这就是节目效果吧
+
+*****
+
+####  tankai  
+##### 1147#       发表于 2021-11-2 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53380919&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-2 16:52</a>
+
+23号的礼物攒到现在，笑死syl叔叔80个钟的直播时间本身就挺离谱的···能混就混一下吧 ...</blockquote>
+尚未谢玩，5个号一毛一次还没轮到我。
+
+*****
+
+####  Quark  
+##### 1148#       发表于 2021-11-2 18:40
+
+忙了一下午 怎么还在播 还铺红地毯了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
