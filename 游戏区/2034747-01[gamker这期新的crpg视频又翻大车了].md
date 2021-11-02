@@ -3850,3 +3850,15 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 </blockquote>
 但是记得他多次声明过自己自幼习武，尤其擅长剑道，膂力惊人，玩CRPG的肥宅和nerd扑将上去岂不是羊入虎口？
 
+
+
+*****
+
+####  雪菜碧池  
+##### 300#       发表于 2021-11-2 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381637&amp;ptid=2034747" target="_blank">厨具战士 发表于 2021-11-2 17:46</a>
+
+但是记得他多次声明过自己自幼习武，尤其擅长剑道，膂力惊人，玩CRPG的肥宅和nerd扑将上去岂不是羊入虎口 ...</blockquote>
+习武也是云的
+

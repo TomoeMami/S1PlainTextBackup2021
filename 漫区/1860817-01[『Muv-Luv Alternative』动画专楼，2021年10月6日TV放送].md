@@ -18641,3 +18641,37 @@ ate游戏里模拟仓就变成这样了。一段桥，两边是一个个黄色�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">steam上的有和谐内容么
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1287#       发表于 2021-11-2 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381056&amp;ptid=1860817" target="_blank">镜hinata 发表于 2021-11-2 17:02</a>
+
+steam上的有和谐内容么</blockquote>
+有，基本上都是把h scene砍了，打补丁可以恢复。
+
+muv-luv有两个版本，日英版和中文版，补丁只对日英版生效
+
+mla的名场面没有改动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  若菜  
+##### 1288#       发表于 2021-11-2 17:59
+
+那个act游戏开steam了，手感烂的一笔
+
+*****
+
+####  镜hinata  
+##### 1289#       发表于 2021-11-2 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381616&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-2 17:45</a>
+有，基本上都是把h scene砍了，打补丁可以恢复。
+
+muv-luv有两个版本，日英版和中文版，补丁只对日英版生 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那有没有钻空子可以打补丁中文不走steam的
+
