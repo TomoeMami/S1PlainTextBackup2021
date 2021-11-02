@@ -1235,3 +1235,12 @@ zod啊
 
 不过目前消息是key的数量很可能还是比较多的，大概率大部分人都能拿到CBT
 
+
+
+*****
+
+####  madcow  
+##### 81#       发表于 2021-11-2 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">搭车问下之前那个21年小黄油专楼怎么找不到了，是被炸了？
+

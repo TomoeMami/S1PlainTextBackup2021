@@ -15513,3 +15513,96 @@ Disc 2
 
 跨年肯定要倒数的啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 4331#       发表于 2021-11-2 21:05
+
+比如合唱好运来？
+
+*****
+
+####  chenflyyy  
+##### 4332#       发表于 2021-11-2 21:06
+
+三团歌就是难忘今宵吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cybernetics31  
+##### 4333#       发表于 2021-11-2 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">明天有新情报
+
+*****
+
+####  chenflyyy  
+##### 4334#       发表于 2021-11-2 21:48
+
+这个时间点会是什么新情报，新歌？
+
+
+
+*****
+
+####  lj205  
+##### 4335#       发表于 2021-11-2 22:11
+
+ 本帖最后由 lj205 于 2021-11-2 22:13 编辑 
+
+千万别追加live场次
+
+应该就是Ann的歌吧
+
+*****
+
+####  a92063256  
+##### 4336#       发表于 2021-11-2 22:17
+
+可能是公布一下bd4的信息什么的吧
+
+
+
+*****
+
+####  yevvet  
+##### 4337#       发表于 2021-11-2 23:03
+
+我怎么觉得青山姐是唱歌最好的
+
+*****
+
+####  优妮可  
+##### 4338#       发表于 2021-11-2 23:14
+
+最好倒不至于，我觉得是很有特点，一下子就记住她的声音
+
+*****
+
+####  player3960  
+##### 4339#       发表于 2021-11-2 23:22
+
+明天生放可以稍微确认一下大家的状态也不错啊，希望都好好的，特别是pay和小百合<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  secretgarnet  
+##### 4340#       发表于 2021-11-2 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381296&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-11-2 17:21</a>
+
+#18这名字一看就知是民警钓鱼执法ww
+
+这听完OST更让我感觉这次在有意地搞低龄了，拿着几段关键旋 ...</blockquote>
+是的，我又回去看了一遍钓鱼执法，真就只用了tr#18的头尾一小段（堇制伏香音那首也是这样），感觉有点浪费
+
+ost有明确的主题的话也方便音监使用。这次main theme 青春激昂，liella成员入队那段旋律舒缓抒情，一听就能让人联想到对应场景挺好的。缺点就是其他非主题的曲目经常会被碎片式用在各处，很容易被遗忘
+
