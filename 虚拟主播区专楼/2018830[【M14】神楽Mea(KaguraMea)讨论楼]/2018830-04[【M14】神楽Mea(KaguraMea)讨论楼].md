@@ -390,3 +390,70 @@
 
 不在万圣节唱，不过这首状态真好
 
+
+
+*****
+
+####  时间在我手中  
+##### 4543#       发表于 2021-11-2 17:25
+
+万圣节那天熬夜了，结果睡醒就发现预定九点的直播直接没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 4544#       发表于 2021-11-2 17:26
+
+原来是睡过了，真是附和你麻的理由。想着今天是圣诞节晚上要播，9点还是几点这样子，结果起来后，啊、算了~
+
+*****
+
+####  往世雷书  
+##### 4545#       发表于 2021-11-2 17:27
+
+久违点开直播间，她不喜欢用双马尾造型吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  T_Hb  
+##### 4546#       发表于 2021-11-2 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉拉拉
+
+*****
+
+####  时间在我手中  
+##### 4547#       发表于 2021-11-2 17:29
+
+今天怕不是全程拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  肥到终点  
+##### 4548#       发表于 2021-11-2 17:30
+
+果然还是困了发疯和心情低落时唱得好<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4549#       发表于 2021-11-2 17:32
+
+看到个小指大的虫子直接上对小强宝具overkill了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4550#       发表于 2021-11-2 17:33
+
+别尬黑，上次整体之后的歌回无敌
+
+*****
+
+####  时间在我手中  
+##### 4551#       发表于 2021-11-2 17:37
+
+拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

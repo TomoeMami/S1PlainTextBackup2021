@@ -15395,3 +15395,17 @@ Disc 2
 转壁吧，上周liella相关碟的销量</blockquote>
 大量发碟的情况下，这数字我觉得不错
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4319#       发表于 2021-11-2 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53379437&amp;ptid=2028598" target="_blank">secretgarnet 发表于 2021-11-2 15:01</a>
+
+群马live之后这几天一直在听ost，断断续续地总算把这次的ost听完了。个人觉得质量挺不错，main theme和成员 ...</blockquote>
+#18这名字一看就知是民警钓鱼执法ww
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这听完OST更让我感觉这次在有意地搞低龄了，拿着几段关键旋律不断玩各种变奏真的好特摄，突出一个简单易懂好记
+
