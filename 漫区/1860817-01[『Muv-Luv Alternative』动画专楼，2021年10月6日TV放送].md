@@ -18739,3 +18739,15 @@ steam上的有和谐内容么</blockquote>
 我觉得和谐真的不影响，毕竟这游戏重点不在这里，据说无和谐有非常精神污染的CG，反正我没补丁打完也没觉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">主要很不喜欢砍掉东西，因为不想看可以skip嘛
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1296#       发表于 2021-11-2 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381869&amp;ptid=1860817" target="_blank">镜hinata 发表于 2021-11-2 18:08</a>
+
+你不是说中文不能打补丁吗</blockquote>
+目前还没人做这个事情
+

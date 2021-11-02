@@ -13638,3 +13638,111 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 
 忙了一下午 怎么还在播 还铺红地毯了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 1149#       发表于 2021-11-2 18:41
+
+5.1W了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 1150#       发表于 2021-11-2 18:45
+
+同接怎么样？
+
+*****
+
+####  希克苏鲁伯  
+##### 1151#       发表于 2021-11-2 18:46
+
+这下又是毕业回了
+
+*****
+
+####  tankai  
+##### 1152#       发表于 2021-11-2 18:48
+
+<img src="https://img.saraba1st.com/forum/202111/02/184811epo33u8v1ekck1p2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 18:48 上传
+
+image.png
+(2.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-2 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202111/02/184807rnlu43i4p3db3kqi.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 1153#       发表于 2021-11-2 18:51
+
+ 本帖最后由 本间日阳 于 2021-11-2 18:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">如果现在不是六点五十而是七点五十说不定真能炒波大的，不过感觉光靠观众不可能狂欢一个多小时，估计等会儿大家就腻了
+
+*****
+
+####  tankai  
+##### 1154#       发表于 2021-11-2 18:53
+
+除非羊驼提前闪击，不然文静贼到7点半左右就退了。
+
+*****
+
+####  求解过程  
+##### 1155#       发表于 2021-11-2 18:54
+
+满屏的生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 來自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灰色的狐狸  
+##### 1156#       发表于 2021-11-2 18:59
+
+气晕了，还在公司，没法看
+
+*****
+
+####  灰色的狐狸  
+##### 1157#       发表于 2021-11-2 19:00
+
+ 本帖最后由 灰色的狐狸 于 2021-11-2 19:02 编辑 
+
+什么情况，怎么这么多红sc<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1158#       发表于 2021-11-2 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382451&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-2 19:00</a>
+
+什么情况，怎么这么多红sc</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1159#       发表于 2021-11-2 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382451&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-2 19:00</a>
+
+什么情况，怎么这么红sc</blockquote>
+攒了一周的礼物没谢，好不容易谢到最后快结束了，又被一毛钱礼物80了
+
+刚好一直有弹幕说和隔壁碰一碰，就有人打了第一个红sc，然后地毯就铺起来了
+
