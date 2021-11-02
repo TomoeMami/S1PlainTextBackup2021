@@ -1545,3 +1545,102 @@ A综同接低下，每一个A圈环A圈楼的楼主都有责任
 
 “我给你的爱也许不完美，你却说最美”
 
+
+
+*****
+
+####  蛋都碎了  
+##### 110#       发表于 2021-11-3 02:57
+
+刚看到有人发A-SOUL乃琳的这些话，有些许触动，甚至有点治愈，不是营养鸡汤而是能抚平伤口的温柔<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">）
+
+<img src="https://img.saraba1st.com/forum/202111/03/023543s3847rr0t2rkv471.jpg" referrerpolicy="no-referrer">
+
+<strong>p260179906.jpg</strong> (127.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 02:35 上传
+
+*****
+
+####  OldGlory  
+##### 111#       发表于 2021-11-3 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389938&amp;ptid=2034216" target="_blank">蛋都碎了 发表于 2021-11-3 02:57</a>
+刚看到有人发A-SOUL乃琳的这些话，有些许触动，甚至有点治愈，不是营养鸡汤而是能抚平伤口的温柔， ...</blockquote>
+没做错什么，就是太菜了被黑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sanlow666|-1|烂|
+
+查看全部评分
+
+*****
+
+####  羽炎赋  
+##### 112#       发表于 2021-11-3 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389938&amp;ptid=2034216" target="_blank">蛋都碎了 发表于 2021-11-03 02:57:14</a>
+刚看到有人发A-SOUL乃琳的这些话，有些许触动，甚至有点治愈，不是营养鸡汤而是能抚平伤口的温柔
+
+ ...</blockquote>她什么都没做错
+以我的比方来说，总有一群幼儿园男生喜欢用向幼师砸雪球的方式来获取幼师的关注，如果说嘉然的应对方式是无论被怎么砸都微笑看着他们一切如常，而乃琳会用敲脑门刮鼻子的方式小小“惩罚”一下他们。幼儿园男生对前者的反应索然无味，对后者却会激起更多恶作剧欲望，慢慢地，砸的雪球也就浇上了水，包上了石块。
+实力什么都是借口，不过是那些人抹黑时打的旗号罢了。嘉然歌力团内底边但一直在进步也没人天天黑啊
+另外团内唯毒（只讨厌某个人的粉丝）最多的也不是她，乃琳粉丝数常规舰长数全团第二，仅次于嘉然。只不过在s1冲琳的比较多，你换到其他论坛可能观感就不一样了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蛋都碎了  
+##### 113#       发表于 2021-11-3 03:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389948&amp;ptid=2034216" target="_blank">OldGlory 发表于 2021-11-3 03:06</a>
+
+没做错什么，就是太菜了被黑的</blockquote>
+嗯嗯，菜那还好，团里总得有一个人比较菜的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋都碎了  
+##### 114#       发表于 2021-11-3 03:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389972&amp;ptid=2034216" target="_blank">羽炎赋 发表于 2021-11-3 03:24</a>
+
+她什么都没做错
+
+以我的比方来说，总有一群幼儿园男生喜欢用向幼师砸雪球的方式来获取幼师的关注，如果说嘉 ...</blockquote>
+谢谢！懂了！原来是恶作剧，相当于是一种扭曲的喜欢 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（主要没有其他论坛的号，只有S1和NGA有号，NGA好久没去了）
+
+*****
+
+####  sanlow666  
+##### 115#         楼主| 发表于 2021-11-3 04:59
+
+ 本帖最后由 sanlow666 于 2021-11-3 05:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389938&amp;ptid=2034216" target="_blank">蛋都碎了 发表于 2021-11-3 02:57</a>
+
+刚看到有人发A-SOUL乃琳的这些话，有些许触动，甚至有点治愈，不是营养鸡汤而是能抚平伤口的温柔， ...</blockquote>
+<strong>乃琳其实没多少“真·黑粉”，也没干过啥错事，相反，她实际上是团内B站粉丝第二、抖音粉丝第一、外号“女粉收割机”的情商担当、MC担当（也是万能CP合成材料）。唱歌方面是“音色流氓”，游戏力同样是团里最高的（临近下播且不整蛊状态下）。唯一和笨手笨脚沾点关系的大概是她的厨艺和舞蹈功力吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为是素人出身，所以相比起其他队友在舞蹈方面差距较大（人送外号“枝江钢铁侠、铁板腰”，因害怕跳错所以团舞时容易“贼眉鼠眼”看别人动作）早期走知性油腻大姐姐风格，现在解放天性很小女生很可爱。</strong>
+
+至于为什么许多“粉丝”喜欢冲她，贴吧的理由和羽炎赋楼友的说法差不多，乃琳作为冲浪达人和MC担当往往需要正面回应节奏和恶意（也与她本身比较要强的性格有关）所以一来一回就形成了某种扭曲的关系......
+
+A综（现乃琳真爱楼分楼）的问题就要复杂一点，首先因为这里是S1V版，是“弱智”套皮人粉丝聚集的巨魔巢穴，所以秉持着反串黑屁钓鱼的“光荣”传统，A综里基本谁都会被恶搞两下。没有具体理由也没有什么严肃认真的好恶分析，可能只是臊皮、是灵光一现、是无厘头或者什么花边新闻激发起的“好”点子，总之就是想冲就冲了。其次呢，是因为冲着安全，大伙作为粉丝都知道乃琳不是底边情况很安稳，冲着没心理负担，还不会被狂扣鹅啥的（唐突冲嘉然就很可能被疯狂扣鹅，理由比较复杂一两句话解释不清楚）然后就和乃琳生日会有关系，因为各种各样我们这些粉丝实际上也弄不清真相的内部原因，乃琳生日会相较于两个练习生出身的队友是办拉了的（但乃老师的个人实力是很有含金量的，结合之后一场单播一起看还算很完满）于是乎这一点就被经常拿出来“冲”，特别是昨晚珈乐刚过完生日会。
+
+但这种冲琳行为久而久之成了一种不怎么好的风气和“习惯”，怎么说呢，就是拿乃老师没活开涮，可本质却是冲琳老哥没活了。冲的没有激情，冲的没有美感，一点也不好笑不有趣，只是机械重复的车轱辘话；<strong>好的冲琳，哪怕你是乃琳的真爱粉，只要不是死脑筋看着也会忍俊不禁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。拉跨的冲琳，只剩下无聊和让人厌烦</strong>，可能那些一直冲琳的人RP久了自己也被影响到，反正挺让人无语的。
+
+当然，这里不排除有真心讨厌乃琳，就是巴不得她赶紧滚出团里的人存在。
+再补充个比较弱智的个人猜测，豆瓣魂组是乃琳铁粉大本营，而因为各种各样的原因A综对豆瓣态度很微妙，所以或许冲琳的活也与此有关。草
+
+<strong>以上内容全部是本人在起夜途中半梦半醒状态下码的，不保证任何的严谨性和客观性，仅代表个人此时此刻意见。如有缺漏欢迎补充，如有冒犯欢迎扣鹅，就这样吧</strong>
+

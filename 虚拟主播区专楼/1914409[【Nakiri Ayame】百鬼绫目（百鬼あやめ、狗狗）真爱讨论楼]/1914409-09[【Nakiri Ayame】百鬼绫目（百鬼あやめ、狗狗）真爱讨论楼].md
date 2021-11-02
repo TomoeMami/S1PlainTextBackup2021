@@ -16814,3 +16814,37 @@ Ayame is based.
 
 赢麻了😈
 
+
+
+*****
+
+####  stedckk  
+##### 13412#       发表于 2021-11-3 01:45
+
+This comment section is pure gold, anyway for both sides let's put facts into the table:
+
+1st of all, we don't know if she really has a bf, there's no way to prove she DOES have one or she DOESN'T have one, just leave it as 50/50
+
+Taken from another comment: 
+
+She pointedly ignored several other member's birthdays and comments, streamed over at least 3 different costume reveals this year, ghosted Coco for an entire year and put in less hours streaming than A-chan this month. Oh and told people to report negative comments, which is always a good sign.
+
+How much slack does she need? Marine and Miko were able to make some videos when they had severe medical troubles, why can't she? This video and the collab with Mio and the others are literally all she's done for Hololive this month, apart from maybe a few "cute noises" for a Hologra.
+
+Besides it's always another excuse. The last one I remember was "no internet". You mean she couldn't go to the office, or any internet cafe or friend's house for an entire month? Sure. :x  Meanwhile you got Moona streaming from a literal car.
+
+And as much as I don't want to bring up Vshojo, Ironmouse is well known to be really sick but she puts in the hours and then some. I don't want to be an ayame anti, but how much longer is this going to go on for?
+
+So the problem is not that she's getting slapped by her bf, playing lol or she's just sick, she's been totally irresponsible like if she didn't give a fuck about the fans that support her and even give their money at her, think about other members like holoid, or another not so popular JP members like Mel, Choco and Roboco, how do you think they feel when they put effort into streaming and try to give something in return for their fans just to see someone else getting more views and superchats by doing literally nothing? that can't be good for their mental health
+
+So before you whiteknight and defend her try to see what has she done to prove she cares about her fans, because so far all she's done is to prove that she doesn't give a fuck about her fans nor hololive
+
+*****
+
+####  一仙  
+##### 13413#       发表于 2021-11-3 03:06
+
+很久之前就是这样子了吧，这种东西从jp到cn都品鉴过好几回了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+v自己都摆烂了，粉丝早点看清接受不了换推接收得了就一起摆烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

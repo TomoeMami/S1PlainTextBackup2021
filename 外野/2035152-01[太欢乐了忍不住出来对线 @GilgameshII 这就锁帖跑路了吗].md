@@ -1614,3 +1614,50 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1916064&amp;page=2
 
 社交能力是有多差才在S1撩骚啊
 
+
+
+*****
+
+####  c20070613  
+##### 136#       发表于 2021-11-3 02:15
+
+那个五年没发帖的后半夜仗义出手的正义路人他粗线啦！
+
+<img src="https://img.saraba1st.com/forum/202111/03/021459ctesyramv7zqvyob.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211103_021235.png</strong> (58.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 02:14 上传
+
+<img src="https://img.saraba1st.com/forum/202111/03/021459aqfq1jqmq0isiit9.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211103_021310.png</strong> (46.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 02:14 上传
+
+<img src="https://img.saraba1st.com/forum/202111/03/021459xy8j3tfpf8oj1t8p.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211103_021418.png</strong> (53.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 02:14 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|他急了|
+| ロラン・ローラ| + 2|欢乐多|
+| naruto3432|-2||
+
+查看全部评分
+
