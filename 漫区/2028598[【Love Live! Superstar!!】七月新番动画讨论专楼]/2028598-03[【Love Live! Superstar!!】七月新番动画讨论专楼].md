@@ -14990,3 +14990,40 @@ b站的口水巾梗因为B楼是可以折叠而且基本集中在1楼内折叠�
 BV1hQ4y1S716 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 4283#       发表于 2021-11-2 08:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367902&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-1 18:19</a>
+吃个饭的功夫就看了好几场撕逼了，B站评论区在吵口水巾梗的是否滥用，nga在撕对压榨偶像的看法和偶像对粉丝 ...</blockquote>
+别的且不说，怎么还有鲤鱼黑屁。真要我说花田和京极才是卖屁股的那个。。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lj205  
+##### 4284#       发表于 2021-11-2 08:28
+
+
+三团歌偷跑咯
+
+
+*****
+
+####  cqc1021  
+##### 4285#       发表于 2021-11-2 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53367902&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-1 18:19</a>
+吃个饭的功夫就看了好几场撕逼了，B站评论区在吵口水巾梗的是否滥用，nga在撕对压榨偶像的看法和偶像对粉丝 ...</blockquote>
+口水巾梗确实看腻了。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+

@@ -1116,3 +1116,44 @@ s1的醍醐味
 笑死，年纪一把心态倒挺年轻，跟我初中生表妹差不多
 
 
+
+
+*****
+
+####  东英零  
+##### 92#       发表于 2021-11-2 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373079&amp;ptid=2035152" target="_blank">默逍 发表于 2021-11-2 08:20</a>
+
+这就是我离不开s1的原因了啊</blockquote>
+这就是你越来越扭曲的原因吗
+
+
+*****
+
+####  neucom  
+##### 93#       发表于 2021-11-2 08:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372710&amp;ptid=2035152" target="_blank">yayoi801 发表于 2021-11-2 06:13</a>
+
+- 使用“發文”这样的蛙岛用语
+
+- 发的截图平板上打开的标签页里有“CNN International”
+
+- 专门发帖声称自 ...</blockquote>
+原来如此，这位老兄确实符合对塑化剂雄性蛙的刻板印象：自恋、玻璃心、小头比大头发达、不说人话、又坏又怂
+
+
+*****
+
+####  沈淮  
+##### 94#       发表于 2021-11-2 08:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有吗
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
