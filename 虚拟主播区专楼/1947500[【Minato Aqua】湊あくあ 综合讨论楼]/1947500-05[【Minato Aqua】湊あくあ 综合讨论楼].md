@@ -13391,3 +13391,17 @@ syl：晚上Among Us的人还都挺熟的，可以看一看
 呃呃，明天不是2号吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">意思是先摸个两天
 
 
+
+
+*****
+
+####  nian1538  
+##### 7068#       发表于 2021-11-2 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371074&amp;ptid=1947500" target="_blank">Scardy 发表于 2021-11-1 23:00</a>
+
+呃呃，明天不是2号吗意思是先摸个两天</blockquote>
+3号：[https://youtu.be/rF-P8nj1oCU?t=2640](https://youtu.be/rF-P8nj1oCU?t=2640)
+
+懂得抖动
+
