@@ -1185,3 +1185,34 @@ s1的醍醐味
 所以我倾向不是一个人啦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这边这位应该是黑妖侠。
 
+
+
+*****
+
+####  默读者  
+##### 97#       发表于 2021-11-2 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369560&amp;ptid=2035152" target="_blank">京騒戯画 发表于 2021-11-1 20:31</a>
+
+浪费我感情还认真的给他回帖，太恶心了，堪比上半年的张姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">上半年太过现充都不知是什么梗了，能不能讲解一下~
+
+*****
+
+####  勇者アルバ  
+##### 98#         楼主| 发表于 2021-11-2 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373304&amp;ptid=2035152" target="_blank">六道仙鱼 发表于 2021-11-2 08:47</a>
+
+给人家整的凌晨五点还在编辑，坏事做绝了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">怪不得昨天bcr抽露娜井了，我可坏了
+
+*****
+
+####  默逍  
+##### 99#       发表于 2021-11-2 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373114&amp;ptid=2035152" target="_blank">东英零 发表于 2021-11-2 08:24</a>
+这就是你越来越扭曲的原因吗</blockquote>
+甘之如饴<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

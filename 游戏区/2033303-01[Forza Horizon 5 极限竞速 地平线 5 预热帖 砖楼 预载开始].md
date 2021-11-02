@@ -1605,3 +1605,40 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 大佬，买方向盘需要买手排挡吗，平时只开自动挡。</blockquote>
 没有无所谓，有拨片换档。但是建议配一个开MT，还是很有乐趣的。
 
+
+
+*****
+
+####  秋雨灰灰  
+##### 113#       发表于 2021-11-2 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373443&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 08:59</a>
+大佬，买方向盘需要买手排挡吗，平时只开自动挡。</blockquote>
+图马斯特手排很贵，等玩了上百小时确定很想再说，罗技倒是标配，就是手感不太好
+
+*****
+
+####  feve9999  
+##### 114#       发表于 2021-11-2 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373582&amp;ptid=2033303" target="_blank">秋雨灰灰 发表于 2021-11-2 09:09</a>
+图马斯特手排很贵，等玩了上百小时确定很想再说，罗技倒是标配，就是手感不太好 ...</blockquote>
+t300法拉利版提升大吗
+
+*****
+
+####  samta  
+##### 115#       发表于 2021-11-2 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
+
+t300法拉利版提升大吗</blockquote>
+你要是铁佛寺就提升巨大，不是的话就是白花钱。
+
+*****
+
+####  bad_alloc  
+##### 116#       发表于 2021-11-2 09:26
+
+steam可以预载了
+
