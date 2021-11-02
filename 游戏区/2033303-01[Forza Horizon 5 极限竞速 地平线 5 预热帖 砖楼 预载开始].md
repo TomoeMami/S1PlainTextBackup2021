@@ -1903,3 +1903,16 @@ xbox的话就直接hmoe，pc的话就商店登购买人账号，xbox登游玩的
 
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+
+*****
+
+####  faithlifer  
+##### 140#       发表于 2021-11-2 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
+t300法拉利版提升大吗</blockquote>
+我劝你别买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

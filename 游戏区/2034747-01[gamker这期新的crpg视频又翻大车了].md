@@ -3862,3 +3862,44 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 但是记得他多次声明过自己自幼习武，尤其擅长剑道，膂力惊人，玩CRPG的肥宅和nerd扑将上去岂不是羊入虎口 ...</blockquote>
 习武也是云的
 
+
+
+*****
+
+####  电磁炮233  
+##### 301#       发表于 2021-11-2 18:05
+
+人设还挺丰满<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  konata422  
+##### 302#       发表于 2021-11-2 18:06
+
+ 本帖最后由 konata422 于 2021-11-2 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372950&amp;ptid=2034747" target="_blank">harmonytree 发表于 2021-11-2 07:58</a>
+
+最合理的解释是整个视频除了中间升华的部分，其它都是团队写手创作，包括游戏应该也没亲自游玩
+
+  -- 来自  ...</blockquote>
+我这种只听过DND的CRPG纯路人听到那段都觉得不对劲，要我念我都不敢念，肯定先查一下
+
+*****
+
+####  瓜苗乐章  
+##### 303#       发表于 2021-11-2 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381637&amp;ptid=2034747" target="_blank">厨具战士 发表于 2021-11-2 17:46</a>
+
+但是记得他多次声明过自己自幼习武，尤其擅长剑道，膂力惊人，玩CRPG的肥宅和nerd扑将上去岂不是羊入虎口 ...</blockquote>
+说不定也是云的呢<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  节艾司  
+##### 304#       发表于 2021-11-2 18:24
+
+他要是全程和老白站一起岂不成s1生死择
+

@@ -13549,3 +13549,26 @@ syl 我搁那嗯编小作文没看开头，一点进去播了快一个小时了�
 
 主播怎么谢个礼物还咬牙切齿咒人k48呢，疑似攻击性有点强了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 1138#       发表于 2021-11-2 18:17
+
+又被她骗到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1139#       发表于 2021-11-2 18:19
+
+今天给对面碰碎了，是不是能活了
+
+*****
+
+####  lunaticfear  
+##### 1140#       发表于 2021-11-2 18:20
+
+成功骗大米咯happy
+

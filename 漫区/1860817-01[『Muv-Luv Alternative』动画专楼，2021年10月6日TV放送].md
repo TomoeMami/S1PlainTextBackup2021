@@ -18675,3 +18675,67 @@ mla的名场面没有改动<img src="https://static.saraba1st.com/image/smiley/f
 muv-luv有两个版本，日英版和中文版，补丁只对日英版生 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那有没有钻空子可以打补丁中文不走steam的
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1290#       发表于 2021-11-2 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381778&amp;ptid=1860817" target="_blank">镜hinata 发表于 2021-11-2 17:59</a>
+
+那有没有钻空子可以打补丁中文不走steam的</blockquote>
+没看懂这句话的意思
+
+
+
+*****
+
+####  镜hinata  
+##### 1291#       发表于 2021-11-2 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381816&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-2 18:03</a>
+没看懂这句话的意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你不是说中文不能打补丁吗
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1292#       发表于 2021-11-2 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381869&amp;ptid=1860817" target="_blank"> 镜hinata 发表于 2021-11-2 18:08</a> 引用:再买自检星剁手 发表于 2021-11-2 18:03 没看懂这句话的意思 你不是说中文不能打补丁吗 </blockquote>
+我觉得和谐真的不影响，毕竟这游戏重点不在这里，据说无和谐有非常精神污染的CG，反正我没补丁打完也没觉得哪有问题来自: iPhone客户端
+
+*****
+
+####  Kuroe  
+##### 1293#       发表于 2021-11-2 18:11
+
+ 本帖最后由 Kuroe 于 2021-11-2 18:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381056&amp;ptid=1860817" target="_blank">镜hinata 发表于 2021-11-2 17:02</a>
+
+steam上的有和谐内容么</blockquote>
+是这样的。本篇一共分了三部，在两个游戏中。校园日常的第一部和穿越到有BETA的世界中然后无能为力地看着alternative5发动的第二部，合在一起是无印篇。这一部分为日英版和中文版。中文版打补丁无效，英文版补丁有效。
+
+这次动画化的alternative篇（第三部）是单独卖的，可以打补丁。但是游戏并没有太多色情内容，大概就是前两部中，每个女角色有一段色情内容。第三部中，只有纯夏有一段色情内容（三部中，也只有这一段和剧情有关）
+
+*****
+
+####  Toby_dak  
+##### 1294#       发表于 2021-11-2 18:16
+
+<blockquote>V宇宙的守夜人Z 发表于 2021-11-2 19:11
+我觉得和谐真的不影响，毕竟这游戏重点不在这里，据说无和谐有非常精神污染的CG，反正我没补丁打完也没觉 ...</blockquote>
+某场面可是ALT留名历史的精髓之一，不可不尝。
+
+我又PTSD了……
+
+*****
+
+####  镜hinata  
+##### 1295#       发表于 2021-11-2 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381901&amp;ptid=1860817" target="_blank">V宇宙的守夜人Z 发表于 2021-11-2 18:11</a>
+我觉得和谐真的不影响，毕竟这游戏重点不在这里，据说无和谐有非常精神污染的CG，反正我没补丁打完也没觉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">主要很不喜欢砍掉东西，因为不想看可以skip嘛
+
