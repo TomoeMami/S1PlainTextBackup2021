@@ -855,3 +855,12 @@ P.S. 我刷这个论坛的初衷只是来获取新闻信息的，后来发现这
 
 搞快点，搞快点<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  captainC  
+##### 67#       发表于 2021-11-2 16:12
+
+多来点，上班就爱看故事会<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

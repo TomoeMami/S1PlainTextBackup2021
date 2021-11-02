@@ -3802,3 +3802,15 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zzy516232108  
+##### 295#       发表于 2021-11-2 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53380145&amp;ptid=2034747" target="_blank">蚊仔蚊仔蚊仔 发表于 2021-11-2 15:55</a>
+
+另外，聂俊本人20号当天会在场馆闲逛。对他不满的，特别最近生气的，可以现场揍他。</blockquote>
+为了揍他还要送钱给机核买核聚变的票是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

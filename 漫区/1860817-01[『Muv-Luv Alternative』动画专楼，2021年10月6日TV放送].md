@@ -18616,3 +18616,19 @@ XP工具栏是蓝色，开始按钮是绿色。
 玩游戏时只看文字描述根本没搞清楚XM3是什么原理，这集终于给我整明白了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Kuroe  
+##### 1285#       发表于 2021-11-2 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53307015&amp;ptid=1860817" target="_blank">菱0零 发表于 2021-10-28 01:33</a>
+
+这集没这么赶了怎么觉得反而变水了
+
+还有战术机模拟仓改的好土</blockquote>
+ate游戏里模拟仓就变成这样了。一段桥，两边是一个个黄色的小盒子。
+
+也算合理，模拟在只有一小块儿地方的驾驶舱中的感受，用那个大的机械也太浪费了
+
