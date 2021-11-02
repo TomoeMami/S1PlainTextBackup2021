@@ -18788,3 +18788,20 @@ steam上的有和谐内容么</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1300#       发表于 2021-11-3 06:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389708&amp;ptid=1860817" target="_blank"> hpk0421 发表于 2021-11-3 01:40</a> 引用:V宇宙的守夜人Z 发表于 2021-11-02 18:11:23 我觉得和谐真的不影响，毕竟这游戏重点不在这里，据说无和谐有非常精神污染的CG，反正我没补丁打完也没觉 ...实际上，steam和谐版那张cg也还在    -- 来自 能搜索的 Stage1官方 Android客户端 </blockquote>
+我们说的可能不是同一个事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1301#       发表于 2021-11-3 06:56
+
+总之我只能说steam版还是保留了那张非常有名的让人PTSD 的CG来自: iPhone客户端
+
