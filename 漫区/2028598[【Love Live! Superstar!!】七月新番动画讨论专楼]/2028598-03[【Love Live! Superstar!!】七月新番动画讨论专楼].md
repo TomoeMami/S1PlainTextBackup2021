@@ -15590,3 +15590,19 @@ Disc 2
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  secretgarnet  
+##### 4340#       发表于 2021-11-2 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381296&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-11-2 17:21</a>
+
+#18这名字一看就知是民警钓鱼执法ww
+
+这听完OST更让我感觉这次在有意地搞低龄了，拿着几段关键旋 ...</blockquote>
+是的，我又回去看了一遍钓鱼执法，真就只用了tr#18的头尾一小段（堇制伏香音那首也是这样），感觉有点浪费
+
+ost有明确的主题的话也方便音监使用。这次main theme 青春激昂，liella成员入队那段旋律舒缓抒情，一听就能让人联想到对应场景挺好的。缺点就是其他非主题的曲目经常会被碎片式用在各处，很容易被遗忘
+
