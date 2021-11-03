@@ -14262,3 +14262,24 @@ co宝大半夜变成算卦直播间
 
 只是删了歌回录播，重新开播后的那个没删
 
+
+
+*****
+
+####  tn_teana  
+##### 1220#       发表于 2021-11-3 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397087&amp;ptid=2013779" target="_blank">逸yi 发表于 2021-11-3 15:51</a>
+
+千鸟录播不知道录了吗</blockquote>
+千鸟录播是专门开了台电脑24小时自动录的，现在录播man在考虑要不要传上去
+
+*****
+
+####  袜子  
+##### 1221#       发表于 2021-11-3 16:20
+
+反正没念没反应……大不了关闭评论区呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

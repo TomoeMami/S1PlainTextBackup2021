@@ -15869,3 +15869,17 @@ day2群马的生放送
 有谁录下来了啊啊啊 ...</blockquote>
 E+这种HLS流直播用streamlink可以直接抓源的，到开发者工具里搜一下M3U8，点开TS文档找到cookie填到指令里就可以，不过话说回来E+海外连墙都没也不检测IP，怎么还能卡的.....
 
+
+
+*****
+
+####  lj205  
+##### 4366#       发表于 2021-11-3 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53396879&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-3 15:39</a>
+
+E+这种HLS流直播用streamlink可以直接抓源的，到开发者工具里搜一下M3U8，点开TS文档找到cookie填到指令 ...</blockquote>
+谢谢。下次试试
+
+为啥卡我也不清楚，明明直播的时候稳的不行。估计跟我用手机网络有关系，不稳定<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
