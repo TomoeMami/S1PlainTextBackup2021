@@ -16438,3 +16438,34 @@ pay酱那个其实也不算质量问题吧？买过这种二次元挂画的都�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只在很多年前买过一次挂画 还以为便宜货才那样
 
+
+
+*****
+
+####  Piano-Forest  
+##### 4435#       发表于 2021-11-3 21:05
+
+【💫Blu-ray💫】
+
+12/24発売のTVアニメ『ラブライブ！スーパースター!!』Blu-ray第4巻のジャケットイラストを初公開🎊
+
+第7～8話の他、「Liella!のドコいく？」など豪華特典盛り沢山✨
+
+店頭予約締切は11/17！確実に入手したい方はご予約お忘れなく！
+<img src="https://p.sda1.dev/3/6d1449354dde7f0892b7e7744513b2b1/20211103_210459.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/ce80f11f1279f8f4e4797308ba3d2d82/bd04.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4436#       发表于 2021-11-3 21:08
+
+<img src="https://img.saraba1st.com/forum/202111/03/210840bxtj1x857or4zrdt.jpg" referrerpolicy="no-referrer">
+
+<strong>20211103_210755.jpg</strong> (430.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-3 21:08 上传
+
