@@ -8875,3 +8875,25 @@ hnn这是吸取教训，赛季初就把kmt抓在手里了吗
 
 坏女人前几天杂谈有说新赛季会三排，但是giru今晚还没来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 8131#       发表于 2021-11-3 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402471&amp;ptid=1972669" target="_blank">AraTurambar 发表于 2021-11-3 21:56</a>
+哦哦哦哦哦谢谢，是我看走眼了没注意到。
+
+谢谢谢谢，原来也是彩虹社的男人。</blockquote>
+【【全熟/伊卜拉新】新衣装披露  实况play2-哔哩哔哩】https://b23.tv/ISFg4h
+
+全熟都有了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 8132#       发表于 2021-11-3 23:59
+
+久违看了郡郡的原神抽卡，悲惨过头有点看难受了，想起我因为沉船a掉的那些个手游。不过还是有点好事的，郡去和圭利组队打喷喷了，虽说这个组合人选我是有点觉得是对liver的调笑，但是联动还是好的…
+

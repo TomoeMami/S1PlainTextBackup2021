@@ -16699,3 +16699,19 @@ pay不是在访谈中说过和鲤鱼搭同一班电车吗，鲤鱼还让人家�
 之前还在ラ板看到青山伊达不仲说还几百条讨论呢</blockquote>
 这两人不仲说好早就开始了，毕竟青山选拔冲着立德位去的，而且她性格也算是比较要强，没被选上一定很不甘心吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中野四葉  
+##### 4463#       发表于 2021-11-3 23:58
+
+这种不仲说没啥意思，nagi线下看起来就一幅独狼的样子，假设完俩人不仲之后，好像也没啥变化<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kbtit  
+##### 4464#       发表于 2021-11-3 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要想太多，你能看见的都是想让你看见的，独狼说不定也是一种营业
+

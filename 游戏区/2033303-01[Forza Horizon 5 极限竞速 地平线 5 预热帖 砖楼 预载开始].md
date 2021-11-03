@@ -2080,3 +2080,15 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 今天预载游戏又被MSStore坑了第一次点下载，下载了两分钟就出错，继续也不行，取消也不行。重启系统 ...</blockquote>
 最好在xbox应用里下
 
+
+
+*****
+
+####  君往何处  
+##### 155#       发表于 2021-11-3 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403484&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-3 23:22</a>
+
+最好在xbox应用里下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
