@@ -1435,3 +1435,52 @@ Natural Locomotion（软件版）不知道有没有Quest2版，KAT Loco（硬件
 
 Cybershoes（VR鞋）倒是有Quest2支持。
 
+
+
+*****
+
+####  bypass  
+##### 87#         楼主| 发表于 2021-11-3 12:38
+
+ 本帖最后由 bypass 于 2021-11-3 12:40 编辑 
+
+消息源：[https://www.oculus.com/blog/a-sm ... lus-software-update](https://www.oculus.com/blog/a-smarter-guardian-android-phone-notifications-and-improved-voice-commands-in-latest-oculus-software-update)
+
+<strong>Android 手机通知</strong>
+
+之前的 v29 更新能够让 iPhone 用户直接在头显里面收到手机的消息通知，现在这个功能终于也来到 Android 端了。
+
+<img src="https://img.saraba1st.com/forum/202111/03/123920tcu2eb0hvun62ti7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 12:39 上传
+
+Android 用户只需要在手机 App 中或者头显中打开对应的开关即可。此外如果头显中有多用户，消息不会弹给次要用户。
+
+<strong>空间感知</strong>
+
+空间感知（Space Sense）功能能够<strong>让戴着头显的玩家感应到突然闯入安全区域的人或者物体</strong>。包括跑进来的小孩、你的宠物、椅子等等。这个闯入物会被以浅粉色光芒给高亮出来。
+
+<strong>新的语音命令</strong>
+
+v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculus TV 的视频，或者隐藏 Oculus Move 的状态栏（楼主：应该是头顶上的 Oculus Move 进度状态栏），打开设置菜单甚至能回答一些简单的小问题。
+
+<img src="https://img.saraba1st.com/forum/202111/03/123938h1yqs9weuywqxpan.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 12:39 上传
+
+<strong>Passthrough API 正式上线</strong>
+
+之前 Oculus 为开发者开放了测试版的 Passthrough API（使用头显的摄像头来显示和感知外部环境），而到了 v34 普通用户也能体验到开发者们创造的应用了。
+
+用户可以从 Oculus Store 或者 App Lab 上下载包括 YouTube VR、Spatial 和 Unity Labs 的开发者们开发的 MR 应用。
+
+有兴趣的同学可以看看我之前发的一个 Unity Lab 开发的 MR 应用的介绍贴：[https://keylol.com/t761052-1-1](https://keylol.com/t761052-1-1)
+

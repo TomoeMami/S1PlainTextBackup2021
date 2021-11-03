@@ -6729,3 +6729,24 @@ sanji真是太温柔了。。。。杰马尔的最高杰作
 
 罗宾被抓也没啥，反正打完凯多之后，迟早也要拆掉海军本部报艾斯的仇
 
+
+
+*****
+
+####  论讨爱  
+##### 56003#       发表于 2021-11-3 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53383469&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-11-2 20:09</a>
+有一说一，火影虽然忍界大战篇质量显著下滑，但至少在作品的卖点以及长处，也就是打斗这方面还是保持在一个 ...</blockquote>
+火影烂掉不是从疾风传就开始了吗？
+
+*****
+
+####  先手必胜  
+##### 56004#       发表于 2021-11-3 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53394132&amp;ptid=98922" target="_blank">论讨爱 发表于 2021-11-3 12:31</a>
+
+火影烂掉不是从疾风传就开始了吗？</blockquote>
+你要这么觉得，那我只能说你对<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

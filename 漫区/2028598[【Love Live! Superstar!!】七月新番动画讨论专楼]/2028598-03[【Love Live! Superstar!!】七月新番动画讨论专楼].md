@@ -15750,3 +15750,25 @@ day2群马的生放送
 希望能多来点观众发这种“纪录片”：
 [https://www.bilibili.com/video/BV1tT4y1d7yd](https://www.bilibili.com/video/BV1tT4y1d7yd)
 
+
+
+*****
+
+####  cat1230  
+##### 4355#       发表于 2021-11-3 12:24
+
+这个老哥拍的真不错，画面清晰稳定，收音也OK。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 4356#       发表于 2021-11-3 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53393750&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-3 12:06</a>
+记得前面有人发了
+#4149
+有点晚了，发一下</blockquote>
+非常感谢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大概手机刷漏了
+
