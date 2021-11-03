@@ -14228,3 +14228,12 @@ co宝大半夜变成算卦直播间
 哈哈，吉格斯一个r爆破了炒作狗，好帅的鬼皇啊</blockquote>
 来这不是纯纯的找骂，回去看看咖喱人
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1216#       发表于 2021-11-3 15:44
+
+破防了，歌回录播放出来还以为不删，结果做好歌曲路灯准备发出来才发现没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

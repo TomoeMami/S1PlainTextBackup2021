@@ -6800,3 +6800,37 @@ sanji真是太温柔了。。。。杰马尔的最高杰作
 
 即使创作自然系角色，也可以描写他们会受一般打击伤害，世上 ACGN 作品中能放火放雷电的角色非常多，而他们的对手不需要霸气也能获胜啊。
 
+
+
+*****
+
+####  Gooddays  
+##### 56010#       发表于 2021-11-3 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372322&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-11-2 01:33</a>
+本来没引出霸气的时候果实克制果实，能力五花八门百花齐放很好看，出了个霸气啥都往上面靠一力降十会，你 ...</blockquote>
+不，是不应画出一个一般打击无效的自然系，原本自然系重点在于 “击中对手”，只要自然系能力者也能受到一般物理攻击便不需要霸气系统。例如达尔之大冒险的冰炎魔人。
+
+
+
+*****
+
+####  论讨爱  
+##### 56011#       发表于 2021-11-3 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53394796&amp;ptid=98922" target="_blank">⊙天上天下 发表于 2021-11-3 13:17</a>
+如果说两年后刚开始的海贼王还是比忍界大战的火影强一点的话，那么和之国的海贼王还不如忍界大战的火影，起 ...</blockquote>
+没仰卧起坐但是有带土最帅了，宁次你死得好惨啊，纲手大人，我终于赶上他们俩了。
+
+*****
+
+####  JC_AR  
+##### 56012#       发表于 2021-11-3 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53396600&amp;ptid=98922" target="_blank">Gooddays 发表于 2021-11-3 15:23</a>
+
+不，是不应画出一个一般打击无效的自然系，原本自然系重点在于 “击中对手”，只要自然系能力者也能受到 ...</blockquote>
+其实都无所谓，不是说霸气这个概念不好，只是现在的霸气系统像个笑话
+
+只要画的合乎逻辑尾田说开发出了海楼石加特林，海楼石毒气也不是不可以
+

@@ -15855,3 +15855,17 @@ day2群马的生放送
 
 不过出国信用卡倒是随身携带的，毕竟境外刷卡消费活动多而且还能薅积分换机票，这点倒是移动支付没有的
 
+
+
+*****
+
+####  星降る森  
+##### 4365#       发表于 2021-11-3 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53393689&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-3 12:02</a>
+
+还打算边回放边把第二天的演出录下来，结果比直播的时候还卡
+
+有谁录下来了啊啊啊 ...</blockquote>
+E+这种HLS流直播用streamlink可以直接抓源的，到开发者工具里搜一下M3U8，点开TS文档找到cookie填到指令里就可以，不过话说回来E+海外连墙都没也不检测IP，怎么还能卡的.....
+
