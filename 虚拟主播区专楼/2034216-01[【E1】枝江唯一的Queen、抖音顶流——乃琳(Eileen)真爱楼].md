@@ -1673,3 +1673,15 @@ A综（现乃琳真爱楼分楼）的问题就要复杂一点，首先因为这�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">乃宝可爱，乃宝suki，乃宝你在看吗给你一个mua
 
+
+
+*****
+
+####  蛋都碎了  
+##### 119#       发表于 2021-11-3 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53390086&amp;ptid=2034216" target="_blank">sanlow666 发表于 2021-11-3 04:59</a>
+
+乃琳其实没多少“真·黑粉”，也没干过啥错事，相反，她实际上是团内B站粉丝第二、抖音粉丝第一、外号“女 ...</blockquote>
+原来如此！谢谢楼主！
+

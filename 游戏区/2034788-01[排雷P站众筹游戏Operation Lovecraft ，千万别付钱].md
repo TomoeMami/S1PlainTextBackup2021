@@ -1327,3 +1327,27 @@ fallen doll差不多是极限了，其他开放世界黄油要么没啥内容，
 
 玩过VR版的fallen doll和operation lovecraft看看建模和动作还是蛮不错的啦，我没掏钱只是在P上关注了一下也不好说啥，版本确实好久没更新了，最近画的饼又太大，不知道想干嘛，可能是想多拐点人尽量订阅？
 
+
+
+*****
+
+####  nooooooo  
+##### 90#       发表于 2021-11-3 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53392034&amp;ptid=2034788" target="_blank">cnwind042 发表于 2021-11-3 10:26</a>
+
+玩过VR版的fallen doll和operation lovecraft看看建模和动作还是蛮不错的啦，我没掏钱只是在P上关注了一下 ...</blockquote>
+fallen doll最新是哪个版本?
+
+
+
+*****
+
+####  cnwind042  
+##### 91#       发表于 2021-11-3 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53392143&amp;ptid=2034788" target="_blank">nooooooo 发表于 2021-11-3 10:34</a>
+
+fallen doll最新是哪个版本?</blockquote>
+FD是1.31，OL是0.34吧
+
