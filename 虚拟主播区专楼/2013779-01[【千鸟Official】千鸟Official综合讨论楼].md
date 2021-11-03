@@ -14435,3 +14435,14 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 这下被反噬了
 
+
+
+*****
+
+####  Finsty  
+##### 1236#       发表于 2021-11-3 19:16
+
+这女人说自己十月战绩的时候兴奋得像个孩子还打响指，可爱捏
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

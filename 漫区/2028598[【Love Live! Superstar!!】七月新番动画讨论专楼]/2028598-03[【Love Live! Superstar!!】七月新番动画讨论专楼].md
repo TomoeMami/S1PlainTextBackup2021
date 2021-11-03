@@ -15936,3 +15936,176 @@ E+这种HLS流直播用streamlink可以直接抓源的，到开发者工具里�
 
 那年十八，BML上，站着如喽啰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 4373#       发表于 2021-11-3 19:02
+
+今天怎么迟到了？
+
+*****
+
+####  lj205  
+##### 4374#       发表于 2021-11-3 19:03
+
+咋回事？还没开始
+
+*****
+
+####  chenflyyy  
+##### 4375#       发表于 2021-11-3 19:04
+
+怎么播片起来了
+
+*****
+
+####  chenflyyy  
+##### 4376#       发表于 2021-11-3 19:05
+
+穿着场贩服诶
+
+*****
+
+####  lj205  
+##### 4377#       发表于 2021-11-3 19:06
+
+鲤鱼这是黑眼圈吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4378#       发表于 2021-11-3 19:07
+
+太好听了8
+蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4379#       发表于 2021-11-3 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4380#       发表于 2021-11-3 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">晚上5个人眼妆都好像黑眼圈啊
+
+
+
+*****
+
+####  普之舜舜  
+##### 4381#       发表于 2021-11-3 19:08
+
+开始了开始了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4382#       发表于 2021-11-3 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53399932&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-11-3 19:08</a>
+晚上5个人眼妆都好像黑眼圈啊</blockquote>
+估计刚从表演中下去呢
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 4383#       发表于 2021-11-3 19:09
+
+今天是都画了比较浓的妆吧
+
+*****
+
+####  普之舜舜  
+##### 4384#       发表于 2021-11-3 19:09
+
+翻页
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4385#       发表于 2021-11-3 19:12
+
+怎么黑眼圈那么严重呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 4386#       发表于 2021-11-3 19:12
+
+说不定刚排练完就在现场直接开始了
+
+*****
+
+####  zylwz  
+##### 4387#       发表于 2021-11-3 19:14
+
+排练不会带妆吧
+
+我怀疑是拍了什么外景 没准今天要公布的就是新的外景企划
+
+*****
+
+####  稀勢のささ  
+##### 4388#       发表于 2021-11-3 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">定好了立马拍然后马上宣吗
+
+*****
+
+####  lj205  
+##### 4389#       发表于 2021-11-3 19:16
+
+看起来恢复的差不多了
+
+*****
+
+####  优妮可  
+##### 4390#       发表于 2021-11-3 19:16
+
+化妆的吧，
+
+*****
+
+####  普之舜舜  
+##### 4391#       发表于 2021-11-3 19:19
+
+<img src="https://p.sda1.dev/3/6830ca00f3af6a348bedaa1c7ef58845/IMG_CMP_140738398.png" referrerpolicy="no-referrer">笑死我了，光速整活
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 4392#       发表于 2021-11-3 19:20
+
+鲤鱼今天莫名地嗨，不像之前那样的断电状态，挺好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4393#       发表于 2021-11-3 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来语言模块还没回来
+
+*****
+
+####  iuhehc  
+##### 4394#       发表于 2021-11-3 19:20
+
+官方还挂这个画上去我是真的爆笑
+
