@@ -16848,3 +16848,20 @@ So before you whiteknight and defend her try to see what has she done to prove s
 
 v自己都摆烂了，粉丝早点看清接受不了换推接收得了就一起摆烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夏小筱ss  
+##### 13414#       发表于 2021-11-3 08:57
+
+早该提提纯了
+
+*****
+
+####  nian1538  
+##### 13415#       发表于 2021-11-3 08:59
+
+4chan只是随时随地都要找个人来黑而已，比如Kiara出道开始被黑了一年（现在对Kiara也不怎么黑，不知道转火谁去了）
+那个最讨厌投票如果是今年6月之前做的估计JP第一名夸夸第二名tskk，绫总排不上号
+

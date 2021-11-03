@@ -1661,3 +1661,16 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1916064&amp;page=2
 
 查看全部评分
 
+
+
+*****
+
+####  碧池团团子  
+##### 137#       发表于 2021-11-3 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53383030&amp;ptid=2035152" target="_blank">stmule 发表于 2021-11-2 19:46</a>
+s1坛友无限可分
+
+—— 来自 samsung SM-G9730, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我也是影分身之一了
+
