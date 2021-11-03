@@ -2135,3 +2135,21 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 评分几点出 上90了吗
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 160#       发表于 2021-11-4 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405738&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-4 07:04</a>
+评分几点出 上90了吗</blockquote>
+昨晚小秦直播时拿到评测码好像提了一嘴解禁时间是15点，不知道是不是所有评测都是这个时间解禁。
+
+*****
+
+####  rak1  
+##### 161#       发表于 2021-11-4 07:40
+
+今晚7点就能玩到了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
