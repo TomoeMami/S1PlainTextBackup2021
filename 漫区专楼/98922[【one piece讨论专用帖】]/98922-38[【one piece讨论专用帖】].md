@@ -6843,3 +6843,19 @@ sanji真是太温柔了。。。。杰马尔的最高杰作
 
 大妈篇后期还是成功塑造了卡二这个角色，最终战也算经典。
 
+
+
+*****
+
+####  晴岚  
+##### 56014#       发表于 2021-11-3 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53396470&amp;ptid=98922" target="_blank">Gooddays 发表于 2021-11-3 15:16</a>
+
+不创作艾尼路或自然系角色便成了，现在是有人强逼尾田创作自然系吗？作者想不到如何应付这种角色那可以选 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那烧烧跟闪闪这些呢？霸气唯一的问题是设定得太强了。什么都可以靠霸气破,一力降十会。如果只是一开始设定的能抓住自然系的实体那还好,结果现在出什么事都可以靠霸气来解释。罗的room作用不了四皇是因为霸气太强了等等...
+
+其他ACGN的作品放火的角色是调度元素来放火放雷而不是自己变成雷本身...这有本质区别...
+
+你也可以说尾田是一个庸才根本驾驭不了自然系这种角色。而你也说得对了,所以你看二年后有几个自然系角色。
+

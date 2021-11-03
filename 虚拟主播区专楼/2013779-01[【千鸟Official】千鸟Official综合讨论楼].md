@@ -14324,3 +14324,37 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 录播man要切掉炸弹才能传，但是他想摆烂
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1225#       发表于 2021-11-3 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397839&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-3 16:38</a>
+
+录播man  16:27:11
+
+想摆烂，不想不想传了</blockquote>
+不许摆烂不许摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1226#       发表于 2021-11-3 16:52
+
+不许摆烂不许摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  丢了五块钱  
+##### 1227#       发表于 2021-11-3 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397618&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-3 16:23</a>
+昨晚的一个瓜
+
+可以去外网翻翻。。</blockquote>
+关键字私一个谢谢，推上就有吧？
+
