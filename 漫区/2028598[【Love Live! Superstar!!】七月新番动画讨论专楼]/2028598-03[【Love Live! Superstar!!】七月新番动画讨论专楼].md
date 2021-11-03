@@ -15797,3 +15797,12 @@ day2群马的生放送
 
 日本抓紧普及移动支付吧，每次去那一堆硬币头疼死了，又重又占地方，不是大城市好多地方还刷不了信用卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中野四葉  
+##### 4360#       发表于 2021-11-3 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">没想到群马这种地方也能用支付宝，以前在银座都有地方用不了
+
