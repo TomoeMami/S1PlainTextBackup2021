@@ -2937,3 +2937,17 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 84236#       发表于 2021-11-4 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404595&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-11-4 01:17</a>
+
+银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗</blockquote>
+你怎么做到所有人都喂满的  我都缺一堆
+
+不过这东西基本都可以存在邮件里问题不大吧
+

@@ -18861,3 +18861,29 @@ pm这个游戏，也有小麻的剧情，但是没给cg。游戏换到1.5世代�
 
 这集3v3演习真挺眼花缭乱的<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">充分体现了新OS的牛逼
 
+
+
+*****
+
+####  hacisiki  
+##### 1307#       发表于 2021-11-4 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404613&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-11-4 01:19</a>
+
+这集3v3演习真挺眼花缭乱的充分体现了新OS的牛逼</blockquote>
+2D作画一如既往的崩坏，我都习惯了。现在突然开始期待12.5的66战术机大队登场了。
+
+*****
+
+####  半分宅  
+##### 1308#       发表于 2021-11-4 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404218&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-3 12:33</a>
+
+其实游戏玩过了，出的几部动画也看了，不客气地说，战术机这个表现，和移动棺材差得不多……
+
+被beta（例如 ...</blockquote>
+标准处理方法就是用小刀贴着装甲往下刮（黑宣和战棋游戏都有相关描述），A-10和部分三代机在重点部位贴了阔剑地雷可以把扒上来的战车级直接炸飞。战棋游戏中等级足够高的中队可以用36mm点射处理，或者让坦克用12.7mm帮忙抓痒，但其他作品没有这类情节。
+
+驾驶舱弹射设计是有的，整个驾驶舱弹射出去后展开成一副机动外骨骼。对人战还算有用，但对BETA战时要是不能保证落在己方常规部队附近，那还是掏出手枪给自己来个痛快比较好。
+
