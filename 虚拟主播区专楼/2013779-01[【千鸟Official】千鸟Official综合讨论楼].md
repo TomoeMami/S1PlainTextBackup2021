@@ -14401,3 +14401,19 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 就喜欢文静谜语人。特别是每当弹幕直球问小男友时文静从不正面作答把男友粉急的抓耳挠腮的时候。🥰
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 1232#       发表于 2021-11-3 18:03
+
+之前说炸弹文化其实都是些不痛不痒的，经此一役直播间是否要发生道路变化了呢<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 1233#       发表于 2021-11-3 18:11
+
+文静估计会有心理阴影<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
