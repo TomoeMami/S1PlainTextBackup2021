@@ -15883,3 +15883,19 @@ E+这种HLS流直播用streamlink可以直接抓源的，到开发者工具里�
 
 为啥卡我也不清楚，明明直播的时候稳的不行。估计跟我用手机网络有关系，不稳定<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 4367#       发表于 2021-11-3 16:27
+
+鲤鱼，一个促进日本移动支付进步的罪孽深重的女人<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 4368#       发表于 2021-11-3 16:29
+
+好奇今天生放送会搞点啥，卖货？不至于吧，我是无法理解过两天又是live还搞这个做啥。
+

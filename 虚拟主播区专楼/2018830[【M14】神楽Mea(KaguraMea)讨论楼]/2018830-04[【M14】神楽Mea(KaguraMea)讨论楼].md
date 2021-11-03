@@ -1058,3 +1058,56 @@ tft？（云顶之弈）虽然玩过 但是update的好快 搞不懂了
 
 答案是野男人！
 
+
+
+*****
+
+####  时间在我手中  
+##### 4618#       发表于 2021-11-3 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397296&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2021-11-3 16:04</a>
+
+补了一下，这怎么一股被谁甩了的感觉。不对，这个剧情好眼熟，是不是去年还是前年的时候也说过一次。那次是 ...</blockquote>
+其实是一起打游戏的，小屁孩就这样的
+
+*****
+
+####  yywzjsw  
+##### 4619#       发表于 2021-11-3 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397717&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-11-3 16:29</a>
+
+其实是一起打游戏的，小屁孩就这样的</blockquote>
+多愁善感的yhm，啥时候能长大呢？是该按组长的话，去交点其他的正常的朋友了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 4620#       发表于 2021-11-3 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397753&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2021-11-3 16:32</a>
+多愁善感的yhm，啥时候能长大呢？是该按组长的话，去交点其他的正常的朋友了 ...</blockquote>
+fafa的repo很清楚了
+
+正常发病罢了，也就你麻有人哄，换别人都是打一顿完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yywzjsw  
+##### 4621#       发表于 2021-11-3 16:39
+
+<blockquote>2014720 发表于 2021-11-3 16:38
+fafa的repo很清楚了
+
+正常发病罢了，也就你麻有人哄，换别人都是打一顿完事 ...</blockquote>
+每个月都有几天发病的，怪不得这几天那么勤快，看上去是用工作来麻痹自己。接下来好了后，是不是又要摸鱼了
+
+*****
+
+####  T_Hb  
+##### 4622#       发表于 2021-11-3 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天说了喜欢工作的
+
