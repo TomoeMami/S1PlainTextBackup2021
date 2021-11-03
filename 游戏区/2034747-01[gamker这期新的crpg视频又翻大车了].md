@@ -3936,3 +3936,26 @@ crpg老粉（自称）不知道pf，还不如我才玩十多小时的能说，�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  satan023  
+##### 307#       发表于 2021-11-3 11:15
+
+<blockquote>Waldeinsamkeit 发表于 2021-11-2 18:29
+我之前其实特别喜欢他的，从他12年《网络化游戏的代价：D3》开始追他的博客一直追到19年的时候，17年野炊 ...</blockquote>
+原来他又回腾讯了？？
+
+*****
+
+####  升职加薪  
+##### 308#       发表于 2021-11-3 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382135&amp;ptid=2034747" target="_blank">Waldeinsamkeit 发表于 2021-11-2 18:29</a>
+
+我之前其实特别喜欢他的，从他12年《网络化游戏的代价：D3》开始追他的博客一直追到19年的时候，17年野炊 ...</blockquote>
+内裤门有啥号追捧的
+
+20年前在NTRPG就挺傻逼的
+

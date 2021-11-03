@@ -1995,3 +1995,24 @@ XSS我是港服
 XSS我是港 ...</blockquote>
 感谢。那太棒了，这样算下来才一百多就能玩到终级版, 之前3和4都是全价买的终级版，根本不知道还有这个方法。
 
+
+
+*****
+
+####  pl0okm  
+##### 148#       发表于 2021-11-3 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391062&amp;ptid=2033303" target="_blank">chan 发表于 2021-11-3 09:16</a>
+pc的xgp大陆不能用，我一直买的港服。但是港服的顶级加截捆绑包是258， 大陆是176。那我买了大陆的顶级加截 ...</blockquote>
+pc切回国买完再切回香港/新加坡就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pl0okm  
+##### 149#       发表于 2021-11-3 11:22
+
+<strong>关于送前作车</strong>
+阿b官博：各位车友可以通过Microsoft Store里的Forza Hub App查询是否有之前系列游戏的游玩记录 ​
+
+地平线4在xgp里 新入坑的记得嫖辆车<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
