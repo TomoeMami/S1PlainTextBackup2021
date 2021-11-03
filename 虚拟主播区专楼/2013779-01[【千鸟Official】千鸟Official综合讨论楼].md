@@ -13989,3 +13989,61 @@ co宝大半夜变成算卦直播间
 
 文静我错了，我们复婚吧
 
+
+
+*****
+
+####  莫洛骑士  
+##### 1187#       发表于 2021-11-3 12:41
+
+文静<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">回来吧，虽然孩子不是我的，但是我可以给你养
+
+*****
+
+####  小憨1  
+##### 1188#       发表于 2021-11-3 12:49
+
+炸弹人我要了你的命！
+
+*****
+
+####  rgauss  
+##### 1189#       发表于 2021-11-3 12:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这超管什么意思
+
+*****
+
+####  T型钉宫病毒  
+##### 1190#       发表于 2021-11-3 12:51
+
+什么情况，没看到有炸弹啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 1191#       发表于 2021-11-3 12:56
+
+炸弹人我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 1192#       发表于 2021-11-3 12:56
+
+真寄了？🍾🍾🍾🍾
+
+*****
+
+####  小憨1  
+##### 1193#       发表于 2021-11-3 12:59
+
+@嘉然文静合砍八碗饭 给我说话
+
+*****
+
+####  tankai  
+##### 1194#       发表于 2021-11-3 12:59
+
+发生了什么.我黑听着歌,一会儿没声了,打开一看G寄了.
+

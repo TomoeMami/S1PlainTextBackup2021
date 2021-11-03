@@ -15772,3 +15772,12 @@ day2群马的生放送
 有点晚了，发一下</blockquote>
 非常感谢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大概手机刷漏了
 
+
+
+*****
+
+####  Karin11974  
+##### 4357#       发表于 2021-11-3 12:46
+
+看他还能用支付宝，希望以后疫情解封了live也接待旅游的外国人吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
