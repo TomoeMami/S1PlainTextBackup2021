@@ -14237,3 +14237,28 @@ co宝大半夜变成算卦直播间
 
 破防了，歌回录播放出来还以为不删，结果做好歌曲路灯准备发出来才发现没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜潇箫  
+##### 1217#       发表于 2021-11-3 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">录播没了?我还想听文静骂人的
+
+*****
+
+####  逸yi  
+##### 1218#       发表于 2021-11-3 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397059&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-3 15:50</a>
+录播没了?我还想听文静骂人的</blockquote>
+千鸟录播不知道录了吗
+
+*****
+
+####  T型钉宫病毒  
+##### 1219#       发表于 2021-11-3 15:53
+
+只是删了歌回录播，重新开播后的那个没删
+

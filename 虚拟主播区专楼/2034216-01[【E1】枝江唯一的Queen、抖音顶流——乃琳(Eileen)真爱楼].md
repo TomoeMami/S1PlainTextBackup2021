@@ -1730,3 +1730,43 @@ S1的问题就是又想燥皮，有想安全不扣鹅，触摸几个比较下来
 
 这么说来我还是太温和了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 124#         楼主| 发表于 2021-11-3 15:49
+
+乃琳Queen:[直播中背着人讲粉丝坏话的话......【直播剪辑】](https://t.bilibili.com/588783924017428137)
+
+（运营代发）节选   10月13日 乃琳单播
+————————————————
+出镜：乃琳
+场景：自制
+软件：基于Unity自研
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202111/03/154939y81dl8p8smzmdl1p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 15:49 上传
+
+*****
+
+####  sanlow666  
+##### 125#         楼主| 发表于 2021-11-3 16:03
+
+乃琳Queen:[发布抖音](https://www.douyin.com/video/7026239839204871454)
+【运动番】：回忆完我就无敌了！！  【现实中】：？
+
+<img src="https://img.saraba1st.com/forum/202111/03/160352j48zq87ps954l68o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 16:03 上传
+
