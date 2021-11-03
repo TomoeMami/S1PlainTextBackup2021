@@ -16469,3 +16469,17 @@ pay酱那个其实也不算质量问题吧？买过这种二次元挂画的都�
 由手机上传
 2021-11-3 21:08 上传
 
+
+
+*****
+
+####  lj205  
+##### 4437#       发表于 2021-11-3 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53401714&amp;ptid=2028598" target="_blank">Piano-Forest 发表于 2021-11-3 21:05</a>
+
+【💫Blu-ray💫】
+
+12/24発売のTVアニメ『ラブライブ！スーパースター!!』Blu-ray第4巻のジャケットイラスト ...</blockquote>
+嘿呀，大家伙看看这耳环啥颜色的？嗯嗯嗯？
+

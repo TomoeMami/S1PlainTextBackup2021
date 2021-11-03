@@ -3608,3 +3608,28 @@ akb tsh某预备生跑路，然后团里发了个通告叫她限期归队，她�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  地球往事  
+##### 280#       发表于 2021-11-3 21:22
+
+b综怎么忽然升权限了
+
+*****
+
+####  H2Ofrozen  
+##### 281#       发表于 2021-11-3 21:23
+
+tsir, this wa
+
+*****
+
+####  773na7  
+##### 282#       发表于 2021-11-3 21:35
+
+图没看够是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2004J19C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
