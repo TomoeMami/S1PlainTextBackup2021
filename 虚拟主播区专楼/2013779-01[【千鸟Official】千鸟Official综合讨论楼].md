@@ -14490,3 +14490,16 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 今天中午还是什么时候</blockquote>
 复活的时候公布活跃率的时候
 
+
+
+*****
+
+####  tn_teana  
+##### 1241#       发表于 2021-11-3 23:28
+
+【只属于鸟批的小秘密是？查询鸟批浓度！-哔哩哔哩】https://b23.tv/fTJL7Q
+
+只能说鸟P的粘度太高了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

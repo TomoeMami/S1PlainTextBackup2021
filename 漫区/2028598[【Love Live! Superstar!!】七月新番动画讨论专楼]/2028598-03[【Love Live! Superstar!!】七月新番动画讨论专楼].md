@@ -16652,3 +16652,50 @@ pay是不是生放结束有父母来接的，所以都没什么合照。倒是�
 
 鲤鱼快把佩佩拉过来合照<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Arccueid  
+##### 4458#       发表于 2021-11-3 23:22
+
+贴麻了
+
+*****
+
+####  iuhehc  
+##### 4459#       发表于 2021-11-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403427&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-3 23:17</a>
+
+pay是不是生放结束有父母来接的，所以都没什么合照。倒是青山，独狼感太强了，不仲说多来点 ...</blockquote>
+之前还在ラ板看到青山伊达不仲说还几百条讨论呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4460#       发表于 2021-11-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403427&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-3 23:17</a>
+pay是不是生放结束有父母来接的，所以都没什么合照。倒是青山，独狼感太强了，不仲说多来点 ...</blockquote>
+pay不是在访谈中说过和鲤鱼搭同一班电车吗，鲤鱼还让人家叫她姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+青山在前几天广播说过自己的性格像一匹狼，很多事情经常一个人这样
+
+*****
+
+####  player3960  
+##### 4461#       发表于 2021-11-3 23:31
+
+话说这种活动外私人合照发表需要经过事务所同意吗？这几个人只有小百合和青山是同一个事务所吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Norkey1  
+##### 4462#       发表于 2021-11-3 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403520&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-3 23:25</a>
+之前还在ラ板看到青山伊达不仲说还几百条讨论呢</blockquote>
+这两人不仲说好早就开始了，毕竟青山选拔冲着立德位去的，而且她性格也算是比较要强，没被选上一定很不甘心吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
