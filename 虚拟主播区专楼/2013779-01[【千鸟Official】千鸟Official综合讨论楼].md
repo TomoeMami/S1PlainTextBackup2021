@@ -14172,3 +14172,38 @@ co宝大半夜变成算卦直播间
 
 直播间被扔了什么炸弹啊，有没有人讲一哈
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1210#       发表于 2021-11-3 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53395691&amp;ptid=2013779" target="_blank">aikkkkk 发表于 2021-11-3 14:20</a>
+
+直播间被扔了什么炸弹啊，有没有人讲一哈</blockquote>
+[https://matsuri.icu/detail/p8g87P3uxxDgL5BZ](https://matsuri.icu/detail/p8g87P3uxxDgL5BZ)
+
+最后一条sc
+
+*****
+
+####  灰色的狐狸  
+##### 1211#       发表于 2021-11-3 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">94.6互动率我的天
+
+*****
+
+####  T型钉宫病毒  
+##### 1212#       发表于 2021-11-3 14:26
+
+10月份互动率94.4%，消费占比81.9%，赢！
+
+*****
+
+####  希克苏鲁伯  
+##### 1213#       发表于 2021-11-3 14:30
+
+我将停止呼吸直到……哦活了啊那没事了
+

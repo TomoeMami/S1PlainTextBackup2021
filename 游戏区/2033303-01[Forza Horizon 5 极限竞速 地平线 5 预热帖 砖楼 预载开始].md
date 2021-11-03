@@ -2016,3 +2016,22 @@ pc切回国买完再切回香港/新加坡就行<img src="https://static.saraba1
 
 地平线4在xgp里 新入坑的记得嫖辆车<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  风流庵TypeC  
+##### 150#       发表于 2021-11-3 14:34
+
+ 本帖最后由 风流庵TypeC 于 2021-11-3 14:35 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/03/143312x49rteb9og3etgii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 14:33 上传
+
+xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个藏宝图不包括，迷惑
+

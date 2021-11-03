@@ -15838,3 +15838,20 @@ day2群马的生放送
 
 基本上全程装的鼓鼓的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4364#       发表于 2021-11-3 14:25
+
+ 本帖最后由 lj205 于 2021-11-3 14:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53395670&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-3 14:19</a>
+
+当年去欧洲旅游的时候买了挺高级的零钱包 结果回来以后就撞上了移动支付急速发展的时期
+
+结果最后那个零钱 ...</blockquote>
+正常，我还一次买了钱包和卡包，还好平时有带点现金压身和随身身份证医保卡的习惯，不然真的成票据包了
+
+不过出国信用卡倒是随身携带的，毕竟境外刷卡消费活动多而且还能薅积分换机票，这点倒是移动支付没有的
+
