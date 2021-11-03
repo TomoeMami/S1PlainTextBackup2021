@@ -15696,3 +15696,57 @@ ost有明确的主题的话也方便音监使用。这次main theme 青春激昂
 
 这两年因为疫情日本那边live都转电子票和刷脸了，杂七杂八渠道基本行不通
 
+
+
+*****
+
+####  lj205  
+##### 4350#       发表于 2021-11-3 12:02
+
+还打算边回放边把第二天的演出录下来，结果比直播的时候还卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+有谁录下来了啊啊啊
+
+
+
+*****
+
+####  chenflyyy  
+##### 4351#       发表于 2021-11-3 12:06
+
+ 本帖最后由 chenflyyy 于 2021-11-3 12:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53393689&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-3 12:02</a>
+还打算边回放边把第二天的演出录下来，结果比直播的时候还卡
+
+有谁录下来了啊啊啊 ...</blockquote>
+记得前面有人发了
+#4149
+有点晚了，发一下
+day2群马的生放送
+我用阿里云盘分享了「ラブライブ!スーパースター!!Liella! 1...s~ 群馬公演 DAY2.mp4」，你可以不限速下载🚀
+复制这段内容打开「阿里云盘」App 即可获取
+提取码: v144
+链接：https://www.aliyundrive.com/s/9dWjLrmN8pu
+
+*****
+
+####  chenflyyy  
+##### 4352#       发表于 2021-11-3 12:07
+
+翻页
+
+*****
+
+####  chenflyyy  
+##### 4353#       发表于 2021-11-3 12:08
+
+再翻
+
+*****
+
+####  名津流  
+##### 4354#       发表于 2021-11-3 12:09
+
+希望能多来点观众发这种“纪录片”：
+[https://www.bilibili.com/video/BV1tT4y1d7yd](https://www.bilibili.com/video/BV1tT4y1d7yd)
+
