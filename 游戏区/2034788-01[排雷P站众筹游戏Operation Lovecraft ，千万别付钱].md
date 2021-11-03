@@ -1381,3 +1381,26 @@ FD是1.31，OL是0.34吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">原来一本dao还是屏蔽词，第一次知道
 
+
+
+*****
+
+####  妄想中毒  
+##### 94#       发表于 2021-11-3 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53392031&amp;ptid=2034788" target="_blank">nooooooo 发表于 2021-11-3 10:26</a>
+
+3d真的干得过I社?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">画面确实比一撸神强，玩法反正大家现在都是播片，一撸神也就赢一手捏人
+
+*****
+
+####  镀金的钻石  
+##### 95#       发表于 2021-11-3 19:00
+
+ 本帖最后由 镀金的钻石 于 2021-11-3 19:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53341202&amp;ptid=2034788" target="_blank">东英零 发表于 2021-10-30 17:22</a>
+
+P站众筹的黄油感觉都是做了十分之一就拿出来卖，画饼骗钱</blockquote>
+good girl gone bad 那个制作组良心，不但第一部作品那么大的体量都能好好做完，现在第二作也做到0.9了。
+

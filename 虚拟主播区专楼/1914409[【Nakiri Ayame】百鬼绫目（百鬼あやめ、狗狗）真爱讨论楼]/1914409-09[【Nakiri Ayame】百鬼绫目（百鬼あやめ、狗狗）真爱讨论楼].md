@@ -16865,3 +16865,120 @@ v自己都摆烂了，粉丝早点看清接受不了换推接收得了就一起�
 4chan只是随时随地都要找个人来黑而已，比如Kiara出道开始被黑了一年（现在对Kiara也不怎么黑，不知道转火谁去了）
 那个最讨厌投票如果是今年6月之前做的估计JP第一名夸夸第二名tskk，绫总排不上号
 
+
+
+*****
+
+####  nian1538  
+##### 13416#       发表于 2021-11-3 18:49
+
+ 本帖最后由 nian1538 于 2021-11-3 18:55 编辑 
+
+Money earned per hour streamed in october
+
+Nakiri Ayame - $13279.09/h
+
+Houshou Marine - 3166.23/h
+
+Uruha Rushia - $1917.16/h
+
+Amane Kanata - $1261.52/h
+
+Akai Haato - $1093.69/h
+
+Minato Aqua - $1091.61/h
+
+Oozora Subaru - $953.32/h
+
+Inugami Korone - $885.26/h
+
+Hoshimachi Suisei - $868.20/h
+
+Natsuiro Matsuri - $843.57/h
+
+Shishiro Botan - $703.06/h
+
+Murasaki Shion - $680.60/h
+
+Aki Rosenthal - $625.25/h
+
+Momosuzu Nene - $623.51/h
+
+Mori Calliope - $554.53/h
+
+Shirogane Noel - $532.80/h
+
+Shirakami Fubuki - $505.54/h
+
+Yukihana Lamy - $499.30/h
+
+Ouro Kronii - $497.79/h
+
+Gawr Gura - $487.40/h
+
+Usada Pekora - $458.91/h
+
+Tsunomaki Watame - $451.87/h
+
+Yozora Mel - $440.62/h
+
+Tsukumo Sana - $412.87/h
+
+IRyS - $382.33/h
+
+Himemori Luna - $359.19/h
+
+Nekomata Okayu - $338.11/h
+
+Takanashi Kiara - $337.21/h
+
+Ceres Fauna - $329.70/h
+
+Ookami Mio - $318.17/h
+
+Shiranui Flare - $305.35/h
+
+Sakura Miko - $281.28/h
+
+Tokoyami Towa - $268.91/h
+
+Hakos Baelz - $267.94/h
+
+Nanashi Mumei - $247.65/h
+
+Kureiji Ollie - $218.05/h
+
+Watson Amelia - $201.34/h
+
+Omaru Polka - $173.25/h
+
+Ninomae Ina'nis - $167.90/h
+
+AZKi - $152.00/h
+
+Tokino Sora - $123.80/h
+
+Moona Hoshinova - $108.64/h
+
+Airani Iofifteen - $101.88/h
+
+Roboco - $95.24/h
+
+Ayunda Risu - $91.44/h
+
+Yuzuki Choco - $55.19/h
+
+Pavolia Reine - $46.77/h
+
+Anya Melfissa- $40.10/h
+
+syl: 
+
+<img src="https://img.saraba1st.com/forum/202111/03/185434akaw6wkqw6fokudq.png" referrerpolicy="no-referrer">
+
+<strong>Screen_Shot_2021-11-03_at_6.32.15_PM.png</strong> (124.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 18:54 上传
+
