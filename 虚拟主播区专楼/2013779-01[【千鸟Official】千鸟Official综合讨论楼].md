@@ -14455,3 +14455,26 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也叫炸弹？炸弹只是隐喻，这是原子弹吧
 
+
+
+*****
+
+####  tankai  
+##### 1238#       发表于 2021-11-3 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53400078&amp;ptid=2013779" target="_blank">Finsty 发表于 2021-11-3 19:16</a>
+
+这女人说自己十月战绩的时候兴奋得像个孩子还打响指，可爱捏
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的  ...</blockquote>
+嫌不够响,打了好几次.
+
+*****
+
+####  夜潇箫  
+##### 1239#       发表于 2021-11-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402919&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-3 22:30</a>
+嫌不够响,打了好几次.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今天中午还是什么时候
+

@@ -16511,3 +16511,35 @@ pay宝这次拍照有所进步了，可爱<img src="https://static.saraba1st.com
 3卷新加入的那个活动抽选又是个什么玩意？</blockquote>
 还有这玩意？不会真要搞加场吧。。。
 
+
+
+*****
+
+####  cybernetics31  
+##### 4441#       发表于 2021-11-3 22:17
+
+怕不是fan meeting 
+
+*****
+
+####  优妮可  
+##### 4442#       发表于 2021-11-3 22:27
+
+还加啊？鲤鱼之后还有活动啊
+
+*****
+
+####  chenflyyy  
+##### 4443#       发表于 2021-11-3 22:35
+
+翻页
+
+*****
+
+####  lj205  
+##### 4444#       发表于 2021-11-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402735&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-3 22:17</a>
+还有这玩意？不会真要搞加场吧。。。</blockquote>
+应该不是，写着是イベント
+
