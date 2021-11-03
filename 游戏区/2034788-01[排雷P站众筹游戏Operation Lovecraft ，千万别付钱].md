@@ -1311,3 +1311,19 @@ zod啊
 100%烂尾。
 fallen doll差不多是极限了，其他开放世界黄油要么没啥内容，要么只有地图开放。
 
+
+
+*****
+
+####  nooooooo  
+##### 88#       发表于 2021-11-3 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">3d真的干得过I社?
+
+*****
+
+####  cnwind042  
+##### 89#       发表于 2021-11-3 10:26
+
+玩过VR版的fallen doll和operation lovecraft看看建模和动作还是蛮不错的啦，我没掏钱只是在P上关注了一下也不好说啥，版本确实好久没更新了，最近画的饼又太大，不知道想干嘛，可能是想多拐点人尽量订阅？
+
