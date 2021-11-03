@@ -16429,3 +16429,12 @@ pay酱那个其实也不算质量问题吧？买过这种二次元挂画的都�
 
 当然在直播中搞到让棍子掉出来确实有点小尴尬
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4434#       发表于 2021-11-3 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只在很多年前买过一次挂画 还以为便宜货才那样
+
