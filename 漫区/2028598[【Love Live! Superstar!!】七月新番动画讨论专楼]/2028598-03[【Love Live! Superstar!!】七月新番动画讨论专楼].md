@@ -15781,3 +15781,19 @@ day2群马的生放送
 
 看他还能用支付宝，希望以后疫情解封了live也接待旅游的外国人吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 4358#       发表于 2021-11-3 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">支付宝能用太草了，女粉还不少啊
+
+*****
+
+####  lj205  
+##### 4359#       发表于 2021-11-3 13:18
+
+日本抓紧普及移动支付吧，每次去那一堆硬币头疼死了，又重又占地方，不是大城市好多地方还刷不了信用卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

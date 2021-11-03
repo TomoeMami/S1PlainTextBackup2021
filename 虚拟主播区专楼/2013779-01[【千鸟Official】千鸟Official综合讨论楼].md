@@ -14047,3 +14047,28 @@ co宝大半夜变成算卦直播间
 
 发生了什么.我黑听着歌,一会儿没声了,打开一看G寄了.
 
+
+
+*****
+
+####  袜子  
+##### 1195#       发表于 2021-11-3 13:14
+
+麻中麻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伞沢直美  
+##### 1196#       发表于 2021-11-3 13:15
+
+故事一般都是从拆弹专家被炸到开始说起的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 1197#       发表于 2021-11-3 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个傻逼不怕被开盒吗
+
