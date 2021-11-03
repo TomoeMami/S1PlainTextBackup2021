@@ -6870,3 +6870,25 @@ sanji真是太温柔了。。。。杰马尔的最高杰作
 
 当然海贼现在也没有像样的战斗了，都是摆个POSS过程省略全靠脑补。我现在对什么大秘宝伊姆历史JOYBOY之类的狗屁毫无兴趣，去他妈的大乱斗我只想看鸡狗猴虎卡普面子人黑胡子排队出场正儿八经的打一场
 
+
+
+*****
+
+####  论讨爱  
+##### 56016#       发表于 2021-11-3 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397611&amp;ptid=98922" target="_blank">rt7539515 发表于 2021-11-3 16:23</a>
+大妈篇后期还是成功塑造了卡二这个角色，最终战也算经典。</blockquote>
+卡彭也不错啊
+
+*****
+
+####  论讨爱  
+##### 56017#       发表于 2021-11-3 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53398207&amp;ptid=98922" target="_blank">uponutopia 发表于 2021-11-3 17:03</a>
+还有人吹火影打斗？火影从疾风传中期开始就跟忍者没什么关系了，自己把前面鼓捣的战斗系统放弃了，到了后面 ...</blockquote>
+你居然不是因为奈子？
+
+尾田画奈子真是一绝
+

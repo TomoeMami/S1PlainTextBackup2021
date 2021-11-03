@@ -15908,3 +15908,22 @@ E+这种HLS流直播用streamlink可以直接抓源的，到开发者工具里�
 
 基本就是读信，然后说一点幕后的东西，然后放新情报（大概是ANNG联动试听
 
+
+
+*****
+
+####  中野四葉  
+##### 4370#       发表于 2021-11-3 17:25
+
+ 本帖最后由 中野四葉 于 2021-11-3 17:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">镜头更多的打给了当时更有名的up，谁能想到一个没给多少特写镜头的人最后成了ll新团的成员
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会杂志里提到的sh舞蹈视频就是这个吧
+
+*****
+
+####  cybernetics31  
+##### 4371#       发表于 2021-11-3 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说时间太有趣了
+
