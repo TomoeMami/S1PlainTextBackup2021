@@ -2060,3 +2060,12 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 天天刷微博也没见几个人通知官网能订，麻了
 
+
+
+*****
+
+####  君往何处  
+##### 153#       发表于 2021-11-3 22:25
+
+今天预载游戏又被MSStore坑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

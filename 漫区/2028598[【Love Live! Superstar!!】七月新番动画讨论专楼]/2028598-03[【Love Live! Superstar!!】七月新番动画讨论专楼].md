@@ -16493,3 +16493,21 @@ pay酱那个其实也不算质量问题吧？买过这种二次元挂画的都�
 pay宝这次拍照有所进步了，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/bcaa082a6f70516f26af029b9994ca8b/IMG_CMP_127373390.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4439#       发表于 2021-11-3 22:14
+
+3卷新加入的那个活动抽选又是个什么玩意？
+
+*****
+
+####  chenflyyy  
+##### 4440#       发表于 2021-11-3 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402690&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-3 22:14</a>
+3卷新加入的那个活动抽选又是个什么玩意？</blockquote>
+还有这玩意？不会真要搞加场吧。。。
+
