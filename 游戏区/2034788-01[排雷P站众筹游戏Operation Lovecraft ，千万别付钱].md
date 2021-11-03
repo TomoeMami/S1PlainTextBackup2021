@@ -1351,3 +1351,16 @@ fallen doll最新是哪个版本?
 fallen doll最新是哪个版本?</blockquote>
 FD是1.31，OL是0.34吧
 
+
+
+*****
+
+####  liekong  
+##### 92#       发表于 2021-11-3 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53387475&amp;ptid=2034788" target="_blank">madcow 发表于 2021-11-2 23:09</a>
+搭车问下之前那个21年小黄油专楼怎么找不到了，是被炸了？</blockquote>
+看来是炸了，我从2020的帖子点楼主去找，能找到，但进不去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
