@@ -1706,3 +1706,21 @@ s1坛友无限可分
 
 每过一段时间总有这种乐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  欧金金  
+##### 141#       发表于 2021-11-3 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">喷了
+
+*****
+
+####  仟音一心  
+##### 142#       发表于 2021-11-3 09:53
+
+叹为观止的戏精，虽然我早就怀疑有问题了但远没想到这层。
+
+全塞小黑屋永封吧，长风难度都没这么恶劣。
+

@@ -1294,3 +1294,20 @@ zod啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以F95和4chan鬼佬一致的意见就是必须得整成自渲染模型出的CG，哪怕是再丑再哥布林原创模型就有加分（甚至有人专门做日哥布林的游戏）
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过2D西屎泥潭几个楼里讨论的倒是不多，虽然吧我觉得有几个知名女作者的游戏相当雷就是了。。。
 
+
+
+*****
+
+####  超级柯南迷  
+##### 86#       发表于 2021-11-3 09:54
+
+极大概率烂尾
+
+*****
+
+####  acejoe  
+##### 87#       发表于 2021-11-3 10:02
+
+100%烂尾。
+fallen doll差不多是极限了，其他开放世界黄油要么没啥内容，要么只有地图开放。
+

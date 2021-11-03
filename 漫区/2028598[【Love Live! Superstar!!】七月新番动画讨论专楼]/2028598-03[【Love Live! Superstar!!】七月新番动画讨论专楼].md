@@ -15636,3 +15636,19 @@ ost有明确的主题的话也方便音监使用。这次main theme 青春激昂
 代购的店家拿走抽选券然后特价卖的版本啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有带抽选的碟，碟都是不可燃垃圾，且不说轻松能把券卖的比碟还贵，哪怕是什么都不知道，事后去垃圾屋买二手（仅拆取券），也能轻松用超白菜价收到的，完全没必要给TBJS宰一把
 
+
+
+*****
+
+####  D麦林  
+##### 4344#       发表于 2021-11-3 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391058&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-3 09:16</a>
+
+所有带抽选的碟，对抽选党来说碟都是不可燃垃圾，100日元扔骏河屋的那种，券能轻松地卖得比碟还贵 ...</blockquote>
+别骂了别骂了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+下次不买这种了
+
+不过还有一点 考虑快递速度的问题这两张碟搞不好会送到国内的时候抽选券已经过期了（
+
