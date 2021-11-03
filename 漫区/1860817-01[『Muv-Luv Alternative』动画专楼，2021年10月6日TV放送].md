@@ -18887,3 +18887,80 @@ pm这个游戏，也有小麻的剧情，但是没给cg。游戏换到1.5世代�
 
 驾驶舱弹射设计是有的，整个驾驶舱弹射出去后展开成一副机动外骨骼。对人战还算有用，但对BETA战时要是不能保证落在己方常规部队附近，那还是掏出手枪给自己来个痛快比较好。
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1309#       发表于 2021-11-4 01:56
+
+ 本帖最后由 再买自检星剁手 于 2021-11-4 01:59 编辑 
+
+小珠爸爸这段还原度蛮高的
+
+纯夏回忆杀这段，白银的声音不太对，像是初高中的武和幼年纯夏在对话。游戏里是更正太的声音（没钱另请声优么），不过圣诞礼物和兔子对上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+原来pv2就是第五集抽出来的，会动的战术机总比原作靠纸片移动好很多
+
+女武神队提前出场也是预料不到
+
+冥夜党可以瞑目了，练刀画面没崩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+没记错的话穿越回去一趟，回来就开始12.5事件了，现在第五集，穿越快的话一集内可以完成，把原作冗长的对话压缩压缩，搞不好第十集就小队毕业，第一季在新os展示遭遇beta或者名场面结束，让观众意识到抹布拉布不是个爽文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ReginaldMorgan  
+##### 1310#       发表于 2021-11-4 02:10
+
+ 本帖最后由 ReginaldMorgan 于 2021-11-4 02:12 编辑 
+
+战术机打个四分钟，只能说确实也是大人的原因了
+
+这集没提到/额外注意到的几个点，供动画党参考：
+
+1、HSST坠落的解决本身是alt5推动者、alt4推动者、希望尽快攻打喀什的人多方角力的一个结果
+
+2、月咏真那那段确实删了应该是，“请千万不要……背叛冥夜小姐的心意”
+
+3、“出现个知道未来的人，也太出人意料了吧！只会让人焦急，却什么忙都帮不上！” 这大概是香月夕呼失态的根本原因
+
+4、原来世界老师的点子是打游戏得到的，这个世界没有游戏，所以没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+5、原来这集还没结束第四章……不会真的是三个季度的动画吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+btw，女武神我数了半天是不是少了凉宫遥，然后想起来凉宫遥是中央指挥的不上机
+
+*****
+
+####  hlazd  
+##### 1311#       发表于 2021-11-4 02:21
+
+数数125的内容，66大队登场救人那一场，PV1里的月詠对沙霧不可少的一场，然后动画扶正了駒木那么她对伊隅的那场也得有……这有得打了
+
+*****
+
+####  再买自检星剁手  
+##### 1312#       发表于 2021-11-4 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405051&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-4 02:10</a>
+战术机打个四分钟，只能说确实也是大人的原因了
+
+这集没提到/额外注意到的几个点，供动画党参考：</blockquote>
+原作吐槽是ps2上的超垃圾rpg，这方面应该体现了吉宗钢纪不喜欢ps2，但后来还是为了游戏销量给ps做了移植<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+207b小队阵容豪华变成了从夕乎口里说出来，hsst事件后面应该会解释。
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  再买自检星剁手  
+##### 1313#       发表于 2021-11-4 02:32
+
+12.5还有一个重要内容，和美军战术机通信，英语吃屎环节，再提一次漂亮国抛弃小弟的行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

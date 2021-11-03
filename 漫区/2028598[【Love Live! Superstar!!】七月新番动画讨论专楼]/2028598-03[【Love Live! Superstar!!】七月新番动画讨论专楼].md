@@ -16823,3 +16823,23 @@ CP营业的内娱偶像不仲，好像可以猜到是谁
 —— 来自 samsung SM-N9860, Android 11上的 S1Next- ...</blockquote>
 好几年前的事了  本来就不认识早不记得叫啥了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yweili  
+##### 4476#       发表于 2021-11-4 02:48
+
+[https://www.bilibili.com/video/BV1g44y1i7zs](https://www.bilibili.com/video/BV1g44y1i7zs)
+
+身高差也还原了...
+
+*****
+
+####  cat1230  
+##### 4477#       发表于 2021-11-4 03:58
+
+说到底偶像团队之间也就同事关系，上台线下都是工作，关系好自然好，关系一般只要能顺利完成工作就OK。想想自己工作和周围同事也就上班会聊几句，下班成朋友的一个没有。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

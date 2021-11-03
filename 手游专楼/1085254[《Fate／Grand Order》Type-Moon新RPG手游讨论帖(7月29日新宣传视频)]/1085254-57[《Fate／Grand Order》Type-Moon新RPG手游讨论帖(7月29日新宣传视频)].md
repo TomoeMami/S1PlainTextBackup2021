@@ -2951,3 +2951,19 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 不过这东西基本都可以存在邮件里问题不大吧
 
+
+
+*****
+
+####  森兰丸  
+##### 84237#       发表于 2021-11-4 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404817&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-4 01:41</a>
+
+你怎么做到所有人都喂满的  我都缺一堆
+
+不过这东西基本都可以存在邮件里问题不大吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">萌新缺一堆难道不是证明了萌新是真欧洲人手上角色要比非洲人多出一堆么
+
+这都5年了啊.....每个月绿方块换满和每期活动换的加上各种送的.....我现在是已经完全溢出了
+
