@@ -2902,3 +2902,20 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 又要顶着逆克制打本了</blockquote>
 加成优化过了吧
 
+
+
+*****
+
+####  J-002  
+##### 84233#       发表于 2021-11-3 20:09
+
+<img src="https://img.saraba1st.com/forum/202111/03/200908a57s4lxqztbs1l47.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211103200845.jpg</strong> (491.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 20:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">来日服后抽到的第四个5星
+

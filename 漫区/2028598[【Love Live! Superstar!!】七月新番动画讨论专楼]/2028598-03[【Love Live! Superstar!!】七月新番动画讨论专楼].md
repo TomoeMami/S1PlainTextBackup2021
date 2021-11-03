@@ -16286,3 +16286,135 @@ bd封面这几张图都真不错啊<img src="https://static.saraba1st.com/image/
 
 跨年拜托穿这身！！！！！！！！！！！！！！！！！！！！！！！
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4418#       发表于 2021-11-3 20:01
+
+怎么就快结束了
+
+*****
+
+####  chenflyyy  
+##### 4419#       发表于 2021-11-3 20:01
+
+所以大的就bd4封面和新歌试听
+
+*****
+
+####  寒风夜  
+##### 4420#       发表于 2021-11-3 20:05
+
+写错了还行
+
+*****
+
+####  chenflyyy  
+##### 4421#       发表于 2021-11-3 20:05
+
+今天这么快的
+
+*****
+
+####  中野四葉  
+##### 4422#       发表于 2021-11-3 20:06
+
+没大的了，我还以为会宣布新的外景啥的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4423#       发表于 2021-11-3 20:06
+
+ 本帖最后由 lj205 于 2021-11-3 20:08 编辑 
+
+好快好快
+
+*****
+
+####  稀勢のささ  
+##### 4424#       发表于 2021-11-3 20:07
+
+网络炸了 前面就有点卡卡的
+
+*****
+
+####  chenflyyy  
+##### 4425#       发表于 2021-11-3 20:07
+
+在B站看的没断啊，今天的staff这么草台的？！
+
+*****
+
+####  稀勢のささ  
+##### 4426#       发表于 2021-11-3 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 叔叔这还是专门的流？
+
+*****
+
+####  中野四葉  
+##### 4427#       发表于 2021-11-3 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我还以为叔叔这边是直接转油管的，妹想到是专门的
+
+*****
+
+####  lj205  
+##### 4428#       发表于 2021-11-3 20:14
+
+鲤鱼最后说了啥，信号刚好断了，切到叔叔那刚好讲完<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  世界的膀胱者  
+##### 4429#       发表于 2021-11-3 20:15
+
+草，这就结束了
+阿b和YouTube应该是分别推流的吧，不太可能阿b转播YouTube的源（毕竟都是官方）
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  名津流  
+##### 4430#       发表于 2021-11-3 20:15
+
+这期比上期还没什么整活和梗，感觉更像是很多公司那种特意在大家都以为不会有更新的时间点非要搞一期出来，只是为了测试这个时间点的播出效果似的
+
+*****
+
+####  lj205  
+##### 4431#       发表于 2021-11-3 20:20
+
+到不是吧，巡演开始后跟观众的一个互动，还有接下来场次和其它活动的宣传，都是必须的啊
+
+不能说有个巡演别的都停了吧？不保持曝光怎么行？
+
+*****
+
+####  稀勢のささ  
+##### 4432#       发表于 2021-11-3 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+VO59Q5Z1~72I})8)FB$A7Q5.jpg
+(53.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/03/201947jwr7mqdmpbszkqsl.jpg" referrerpolicy="no-referrer">
+
+{DMQ7X%RZ7D1IZ]$(1`2_PW.jpg
+(21.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/03/201952s2xdjfbbb2jj7p88.jpg" referrerpolicy="no-referrer">
+
