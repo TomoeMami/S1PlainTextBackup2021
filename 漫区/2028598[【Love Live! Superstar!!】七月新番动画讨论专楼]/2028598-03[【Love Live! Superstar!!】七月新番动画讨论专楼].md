@@ -15822,3 +15822,19 @@ day2群马的生放送
 
 想了想企划里有个唐可可，既然设计了这个角色那肯定有考虑到中国消费者，那么也不奇怪有支付宝
 
+
+
+*****
+
+####  D麦林  
+##### 4363#       发表于 2021-11-3 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53394808&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-3 13:18</a>
+
+日本抓紧普及移动支付吧，每次去那一堆硬币头疼死了，又重又占地方，不是大城市好多地方还刷不了信用卡[f:0 ...</blockquote>
+当年去欧洲旅游的时候买了挺高级的零钱包 结果回来以后就撞上了移动支付急速发展的时期
+
+结果最后那个零钱包派上最多用场的时候反而是我去日本旅游那一个星期……
+
+基本上全程装的鼓鼓的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
