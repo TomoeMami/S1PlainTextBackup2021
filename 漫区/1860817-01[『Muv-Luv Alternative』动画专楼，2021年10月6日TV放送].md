@@ -18814,3 +18814,32 @@ steam上的有和谐内容么</blockquote>
 
 pm这个游戏，也有小麻的剧情，但是没给cg。游戏换到1.5世代的零件移动操作就能好很多了，第一世代的那机动性太烂了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1303#       发表于 2021-11-4 00:33
+
+其实游戏玩过了，出的几部动画也看了，不客气地说，战术机这个表现，和移动棺材差得不多……
+
+被beta（例如光线级）或者其他战术机直接击毁（例如沙雾尚哉）就不说了，算是萝卜片正常演出。但还有一种是驾驶舱受了一点伤害，导致无法开门离开驾驶舱的，只能被beta活活屈死。mla游戏有描述甲21的hive先遣部队遭到beta伏击，战术机上爬了几只战车级，就连队友都没办法了，记得队友一开始的方案是用小刀把战车级一点一点刮掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+战术机的结构也从来没有驾驶舱弹射设计，理论上卫士的性命比战术机重要得多（培养成本高），却从来不完善安全措施……看来是默认卫士都是不成功便成仁了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这方面可能作者是想表现beta的强大，但另一方面却显得战术机很弱<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hacisiki  
+##### 1304#       发表于 2021-11-4 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404218&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-4 00:33</a>
+
+其实游戏玩过了，出的几部动画也看了，不客气地说，战术机这个表现，和移动棺材差得不多……
+
+被beta（例如 ...</blockquote>
+弹射是可以弹射，里面还有一套作战用的动力外骨骼。只能说人类的材料学强度是有极限的。
+
+因为GEN1战术机的教训里面很重要的一件事就是装甲无用，机动才是王道。于是不停的削弱装甲增加机动性，代价之一就是骨架和蒙皮都变弱了。
+

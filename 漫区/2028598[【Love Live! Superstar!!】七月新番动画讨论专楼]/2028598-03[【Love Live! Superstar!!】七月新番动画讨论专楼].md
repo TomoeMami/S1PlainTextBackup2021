@@ -16724,3 +16724,24 @@ pay不是在访谈中说过和鲤鱼搭同一班电车吗，鲤鱼还让人家�
 
 又不是肥秋系那种团内要抢资源，没什么不仲的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 4466#       发表于 2021-11-4 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才到哪儿啊就开始往不仲发散了
+
+*****
+
+####  darkendless  
+##### 4467#       发表于 2021-11-4 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403187&amp;ptid=2028598" target="_blank">player3960 发表于 2021-11-3 22:55</a>
+
+还是你鲤鱼姐会营业（褒义），不愧是老ll人和战吧吧友，各种互动返图都能戳中粉丝的点
+
+  -- 来自  ...</blockquote>
+什么，还是战吧吧友吗。团内有一个鲤鱼姐这样的老拉拉人+宅+经常网上冲浪营业效果肯定拉满，企划也算捡到宝了，樱花妹营业还是差点效果。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
