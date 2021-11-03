@@ -1854,3 +1854,26 @@ syl发张直播间封面
 
 乃琳Queen:[发布动态](https://t.bilibili.com/588888772756638889) <blockquote>晚安奶淇琳宝们～❤️</blockquote>
 
+
+
+*****
+
+####  杜知新  
+##### 133#       发表于 2021-11-3 23:09
+
+<img src="https://p.sda1.dev/3/2ae1555f7817a191d9115bc4414a854e/IMG_CMP_101548983.jpeg" referrerpolicy="no-referrer">
+简简单单加个滤镜的老公就很好看了，有空拼点长条图。
+记录老公今天唱的歌：《花海》《冰淇淋》《猪猪侠》《狐狸》《热恋冰淇淋》，表达了对乃70浓浓的爱意，并欠下头像以及果丹皮《珊瑚海》，特此记录。
+
+*****
+
+####  primavera  
+##### 134#       发表于 2021-11-3 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403341&amp;ptid=2034216" target="_blank">杜知新 发表于 2021-11-3 23:09</a>
+
+简简单单加个滤镜的老公就很好看了，有空拼点长条图。
+
+记录老公今天唱的歌：《花海》《冰淇淋》《猪猪侠》 ...</blockquote>
+真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

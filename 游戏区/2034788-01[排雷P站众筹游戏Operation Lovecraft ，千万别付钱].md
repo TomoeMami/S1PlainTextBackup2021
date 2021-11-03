@@ -1404,3 +1404,16 @@ FD是1.31，OL是0.34吧
 P站众筹的黄油感觉都是做了十分之一就拿出来卖，画饼骗钱</blockquote>
 good girl gone bad 那个制作组良心，不但第一部作品那么大的体量都能好好做完，现在第二作也做到0.9了。
 
+
+
+*****
+
+####  古代人皮克  
+##### 96#       发表于 2021-11-3 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53399410&amp;ptid=2034788" target="_blank">a317216007 发表于 2021-11-3 18:35</a>
+这个确实，做3D的，比如Mike Velesk，虽然模型糙得像15年前的多面体，用C#自开发的主程序也有非常不稳定的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是找便宜画家特别是cis地区做几张特别好看的图就能去要饭网开账户骗钱了 患得患失吧
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+

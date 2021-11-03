@@ -16606,3 +16606,49 @@ pay宝这次拍照有所进步了，可爱<img src="https://static.saraba1st.com
 这合照放到二次元里就是绘海希，千曜梨，步侑雪了吧。</blockquote>
 不愧是老拉拉人
 
+
+
+*****
+
+####  cybernetics31  
+##### 4452#       发表于 2021-11-3 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没记错的话上次鱼和pay合影是好几个月前了
+
+*****
+
+####  kata魂  
+##### 4453#       发表于 2021-11-3 23:13
+
+不如说pay跟别人的二人合照挺少的吧…pay不算二人一起上的节目的话
+
+上次合照是跟谁来着
+
+*****
+
+####  lj205  
+##### 4454#       发表于 2021-11-3 23:15
+
+本来就是个害羞的妹妹，哪像某个中国直女，想贴就贴，贴完还满世界发
+
+*****
+
+####  chenflyyy  
+##### 4455#       发表于 2021-11-3 23:16
+
+翻了下，上次与pay的合照是8月29号了<img src="https://p.sda1.dev/3/049b970db9fdabcb6fec0c8904b37883/IMG_CMP_165099951.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 4456#       发表于 2021-11-3 23:17
+
+pay是不是生放结束有父母来接的，所以都没什么合照。倒是青山，独狼感太强了，不仲说多来点<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4457#       发表于 2021-11-3 23:18
+
+鲤鱼快把佩佩拉过来合照<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
