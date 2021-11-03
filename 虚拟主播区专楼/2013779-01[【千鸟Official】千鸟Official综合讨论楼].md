@@ -14417,3 +14417,12 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 文静估计会有心理阴影<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  丢了五块钱  
+##### 1234#       发表于 2021-11-3 18:21
+
+按照抽象理论，直播的终极形式就是弹幕互相输出内容，也就是最大程度的自由。文静觉得车是自己开起来的，一开始控制的还不错，只不过随着加速越来越快最后出事也是必然的，之后就只能切割洗粉。
+

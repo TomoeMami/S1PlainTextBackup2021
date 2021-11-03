@@ -1364,3 +1364,20 @@ FD是1.31，OL是0.34吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  a317216007  
+##### 93#       发表于 2021-11-3 18:35
+
+ 本帖最后由 a317216007 于 2021-11-3 18:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391380&amp;ptid=2034788" target="_blank">古代人皮克 发表于 2021-11-3 09:41</a>
+
+所以F95和4chan鬼佬一致的意见就是必须得整成自渲染模型出的CG，哪怕是再丑再哥布林原创模型就有 ...</blockquote>
+这个确实，做3D的，比如Mike Velesk，虽然模型糙得像15年前的多面体，用C#自开发的主程序也有非常不稳定的BUG，但是做出来的成品确实有意思，完整FINAL成品履历也好。只能说纯手工出品，至少制作者的态度会比那些“借用”公开免费模型的要靠谱得多
+
+2D方面怎么说呢，就算除去盗图改图截图的，不管是Renpy RM甚至Unity魔改成2D游戏，绝大部分的依然突出一个毫无可玩性的一木道或者CTRL游戏，想找些能玩的就得不停踩雷
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">原来一本dao还是屏蔽词，第一次知道
+
