@@ -2919,3 +2919,12 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">来日服后抽到的第四个5星
 
+
+
+*****
+
+####  北方暴雪  
+##### 84234#       发表于 2021-11-4 00:14
+
+显示错误
+

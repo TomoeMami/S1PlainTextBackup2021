@@ -2092,3 +2092,37 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 最好在xbox应用里下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 156#       发表于 2021-11-4 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402846&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-3 22:25</a>
+
+今天预载游戏又被MSStore坑了第一次点下载，下载了两分钟就出错，继续也不行，取消也不行。重启系统 ...</blockquote>
+有挂梯子吗？其实微软的服务也不稳定，挂上就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  君往何处  
+##### 157#       发表于 2021-11-4 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404022&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-4 00:13</a>
+
+有挂梯子吗？其实微软的服务也不稳定，挂上就好了</blockquote>
+没挂，下载本身也有10+M的速度，就是这次不知道怎么抽风了，没法开始又停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  再买自检星剁手  
+##### 158#       发表于 2021-11-4 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404060&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-4 00:16</a>
+
+没挂，下载本身也有10+M的速度，就是这次不知道怎么抽风了，没法开始又停不下来不知道是不是暗示 ...</blockquote>
+微软服务抽风的概率不低的，其中较高的是onedrive
+
+某乎上m$员工的解释是为了给全球提供统一服务，有时会被***阻挠，不是我们的问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
