@@ -6906,3 +6906,14 @@ sanji真是太温柔了。。。。杰马尔的最高杰作
 尾田画奈子真是一绝</blockquote>
 WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完爆
 
+
+
+*****
+
+####  acejoe  
+##### 56019#       发表于 2021-11-3 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372267&amp;ptid=98922" target="_blank">晴岚 发表于 2021-11-2 01:22</a>
+不加霸气自然系就太bug了。全世界只有路飞一个人能过艾尼路？</blockquote>
+其他自然系，动物系幻兽，都能过啊。
+

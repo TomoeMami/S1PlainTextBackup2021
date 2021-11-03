@@ -8783,3 +8783,19 @@ enkr终于领会贵精不贵多的道理了吗
 
 <img src="https://img.saraba1st.com/forum/202111/03/183207haya8z4ykwsn2y28.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 8123#       发表于 2021-11-3 19:57
+
+其实去年五色战队三个月那会也有工商接的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 8124#       发表于 2021-11-3 19:58
+
+鲨鱼头（JP）别又要被烧就行。
+
