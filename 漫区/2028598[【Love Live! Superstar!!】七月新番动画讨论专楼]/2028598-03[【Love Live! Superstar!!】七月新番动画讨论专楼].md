@@ -16483,3 +16483,13 @@ pay酱那个其实也不算质量问题吧？买过这种二次元挂画的都�
 12/24発売のTVアニメ『ラブライブ！スーパースター!!』Blu-ray第4巻のジャケットイラスト ...</blockquote>
 嘿呀，大家伙看看这耳环啥颜色的？嗯嗯嗯？
 
+
+
+*****
+
+####  chenflyyy  
+##### 4438#       发表于 2021-11-3 21:56
+
+pay宝这次拍照有所进步了，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/bcaa082a6f70516f26af029b9994ca8b/IMG_CMP_127373390.jpeg" referrerpolicy="no-referrer">
+
