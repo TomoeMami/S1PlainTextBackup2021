@@ -8864,3 +8864,14 @@ hnn这是吸取教训，赛季初就把kmt抓在手里了吗
 
 真是坏女人
 
+
+
+*****
+
+####  FCCHua  
+##### 8130#       发表于 2021-11-3 22:53
+
+ 本帖最后由 FCCHua 于 2021-11-3 22:58 编辑 
+
+坏女人前几天杂谈有说新赛季会三排，但是giru今晚还没来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -16543,3 +16543,66 @@ pay宝这次拍照有所进步了，可爱<img src="https://static.saraba1st.com
 还有这玩意？不会真要搞加场吧。。。</blockquote>
 应该不是，写着是イベント
 
+
+
+*****
+
+####  cybernetics31  
+##### 4445#       发表于 2021-11-3 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">鲤鱼返图三人好耶
+
+*****
+
+####  lj205  
+##### 4446#       发表于 2021-11-3 22:46
+
+这个女人真的要d全团…………还好外星人只喜欢看你们表演……
+
+*****
+
+####  优妮可  
+##### 4447#       发表于 2021-11-3 22:47
+
+<img src="https://img.saraba1st.com/forum/202111/03/224641ceebez0xnjnf4bj8.jpg" referrerpolicy="no-referrer">
+
+<strong>5r77yxdgunzb1e74vm8wr53pm.jpg</strong> (128.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 22:46 上传
+
+这合照放到二次元里就是绘海希，千曜梨，步侑雪了吧。
+
+*****
+
+####  chenflyyy  
+##### 4448#       发表于 2021-11-3 22:53
+
+差点把鲤鱼和sayu看反了，太像了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4449#       发表于 2021-11-3 22:55
+
+还是你鲤鱼姐会营业（褒义），不愧是老ll人和战吧吧友，各种互动返图都能戳中粉丝的点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 4450#       发表于 2021-11-3 22:59
+
+这两张nako好戳我，又可爱又帅<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4451#       发表于 2021-11-3 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403111&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-3 22:47</a>
+这合照放到二次元里就是绘海希，千曜梨，步侑雪了吧。</blockquote>
+不愧是老拉拉人
+
