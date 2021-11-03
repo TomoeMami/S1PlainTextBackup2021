@@ -14446,3 +14446,12 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  莫洛骑士  
+##### 1237#       发表于 2021-11-3 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也叫炸弹？炸弹只是隐喻，这是原子弹吧
+

@@ -6930,3 +6930,17 @@ WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完
 现在武装色霸气从buff变成了主动释放技能，以前就破个被动，现在上天入地都靠霸气。
 从普通变成了imba，打架都选霸气，imba对轰就完了，其他能力变下水道了，战斗自然没了以前那样有趣了。
 
+
+
+*****
+
+####  先手必胜  
+##### 56021#       发表于 2021-11-3 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53398207&amp;ptid=98922" target="_blank">uponutopia 发表于 2021-11-3 17:03</a>
+
+还有人吹火影打斗？火影从疾风传中期开始就跟忍者没什么关系了，自己把前面鼓捣的战斗系统放弃了，到了后面 ...</blockquote>
+光炮坦克大战虽然比起原先挺无聊的，至少量大管饱
+
+海贼现在连个稍微连贯一点的打斗都没有，就别拿出来同台竞技了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
