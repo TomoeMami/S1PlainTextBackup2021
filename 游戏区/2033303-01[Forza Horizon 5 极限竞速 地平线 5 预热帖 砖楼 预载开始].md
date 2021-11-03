@@ -2035,3 +2035,17 @@ pc切回国买完再切回香港/新加坡就行<img src="https://static.saraba1
 
 xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个藏宝图不包括，迷惑
 
+
+
+*****
+
+####  ricarto  
+##### 151#       发表于 2021-11-3 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53395891&amp;ptid=2033303" target="_blank">风流庵TypeC 发表于 2021-11-3 14:34</a>
+
+xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个藏宝图不包括，迷惑
+
+ ...</blockquote>
+藏宝图一直需要单买的，不过这种东西看视频嫖就行了
+

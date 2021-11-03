@@ -14207,3 +14207,24 @@ co宝大半夜变成算卦直播间
 
 我将停止呼吸直到……哦活了啊那没事了
 
+
+
+*****
+
+####  tankai  
+##### 1214#       发表于 2021-11-3 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53395570&amp;ptid=2013779" target="_blank">dora盐包蛋 发表于 2021-11-3 14:13</a>
+
+哈哈，吉格斯一个r爆破了炒作狗，好帅的鬼皇啊</blockquote>
+你在A楼骂炒作狗就算了,跑千鸟楼拉屎做啥?
+
+*****
+
+####  小憨1  
+##### 1215#       发表于 2021-11-3 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53395570&amp;ptid=2013779" target="_blank">dora盐包蛋 发表于 2021-11-3 14:13</a>
+哈哈，吉格斯一个r爆破了炒作狗，好帅的鬼皇啊</blockquote>
+来这不是纯纯的找骂，回去看看咖喱人
+
