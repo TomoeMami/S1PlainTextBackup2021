@@ -15652,3 +15652,21 @@ ost有明确的主题的话也方便音监使用。这次main theme 青春激昂
 
 不过还有一点 考虑快递速度的问题这两张碟搞不好会送到国内的时候抽选券已经过期了（
 
+
+
+*****
+
+####  Karin11974  
+##### 4345#       发表于 2021-11-3 11:30
+
+好奇，那么如果在日本想去现场能直接高价买抽中的券吗，还是真靠自己买碟抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Totokei  
+##### 4346#       发表于 2021-11-3 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53393095&amp;ptid=2028598" target="_blank">Karin11974 发表于 2021-11-3 11:30</a>
+好奇，那么如果在日本想去现场能直接高价买抽中的券吗，还是真靠自己买碟抽 ...</blockquote>
+抽选券在抽的时候已经跟你的账号绑定了，抽中的话出来的门票上印着你的名字。所以在黄牛平台买的票也是印着别人名字，万一运气不好现场被运营查票就把你赶出去了
+
