@@ -16843,3 +16843,12 @@ CP营业的内娱偶像不仲，好像可以猜到是谁
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 4478#       发表于 2021-11-4 07:07
+
+好不好的，反正有看大家就乐呵呵的捧场，没有就开开玩笑算了，不妨碍打工就行，除非是投票这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来之前那个封面投票不知道怎样了
+
