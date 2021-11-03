@@ -1697,3 +1697,12 @@ s1坛友无限可分
 那个五年没发帖的后半夜仗义出手的正义路人他粗线啦！</blockquote>
 哎呀呀，兄弟，不好意思，加鹅不当心点成扣鹅了
 
+
+
+*****
+
+####  竹刀飞鱼  
+##### 140#       发表于 2021-11-3 09:45
+
+每过一段时间总有这种乐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

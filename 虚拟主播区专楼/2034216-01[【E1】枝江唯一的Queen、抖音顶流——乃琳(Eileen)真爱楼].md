@@ -1664,3 +1664,12 @@ A综（现乃琳真爱楼分楼）的问题就要复杂一点，首先因为这�
 乃老师就是太爱给节奏党画面了，应该是你团唯一一个会正面对线的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">虽然爆杀炒作狗的时候很帅，但还是担心或多或少对她有影响。乃宝像是那种有事儿会自己扛的人，所以我听到她晚上睡不着找小然学抗压的时候我反而是安心的。
 还有一点就是钢琴这件事儿，各种处理是真的臭，留了炒作狗口实。
 
+
+
+*****
+
+####  勾陈一  
+##### 118#       发表于 2021-11-3 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">乃宝可爱，乃宝suki，乃宝你在看吗给你一个mua
+

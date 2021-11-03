@@ -1257,3 +1257,40 @@ zod啊
 说实话很不看好，好好做个黄油加点剧情调剂一下就行了，搞这么大个饼做的完么。
 最后再提一句，p站上资助各种项目真就是屎里淘金，肉包子打狗的。最后能出成品的少之又少，出了成品的，能达到承诺目标的更是少之又少。
 
+
+
+*****
+
+####  bypass  
+##### 83#       发表于 2021-11-3 09:29
+
+昨天的 Discord 消息。不过这是 CBK 吗？
+
+<img src="https://img.saraba1st.com/forum/202111/03/092842e30og3tccgt0knwz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 09:28 上传
+
+*****
+
+####  兰开夏  
+##### 84#       发表于 2021-11-3 09:30
+
+溜狗？
+
+*****
+
+####  古代人皮克  
+##### 85#       发表于 2021-11-3 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53371782&amp;ptid=2034788" target="_blank">a317216007 发表于 2021-11-2 00:10</a>
+
+说实话，从Patreon的鬼佬众筹里找游戏，不应该叫排雷，应该叫粪里淘金
+
+透过F95开始跟一些更新那么几 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以F95和4chan鬼佬一致的意见就是必须得整成自渲染模型出的CG，哪怕是再丑再哥布林原创模型就有加分（甚至有人专门做日哥布林的游戏）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过2D西屎泥潭几个楼里讨论的倒是不多，虽然吧我觉得有几个知名女作者的游戏相当雷就是了。。。
+

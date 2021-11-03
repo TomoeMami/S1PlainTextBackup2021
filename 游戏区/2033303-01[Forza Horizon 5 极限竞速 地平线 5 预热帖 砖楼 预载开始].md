@@ -1963,3 +1963,35 @@ pc去商店看已安装，xbox看附加内容。不行等能进游戏了再去�
 
 pc的xgp大陆不能用，我一直买的港服。但是港服的顶级加截捆绑包是258， 大陆是176。那我买了大陆的顶级加截捆绑包还能适用到我的港服xpg吗？
 
+
+
+*****
+
+####  Miwiki  
+##### 146#       发表于 2021-11-3 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391062&amp;ptid=2033303" target="_blank">chan 发表于 2021-11-3 09:16</a>
+
+pc的xgp大陆不能用，我一直买的港服。但是港服的顶级加截捆绑包是258， 大陆是176。那我买了大陆的顶级加截 ...</blockquote>
+能，我地平线4的DLC，当时大陆打骨折，我在PC的商店买了DLC
+
+然后在XSS上面下载DLC，正常游戏。
+
+XSS我是港服
+
+只要同一个账号就可以
+
+*****
+
+####  chan  
+##### 147#       发表于 2021-11-3 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391185&amp;ptid=2033303" target="_blank">Miwiki 发表于 2021-11-3 09:26</a>
+
+能，我地平线4的DLC，当时大陆打骨折，我在PC的商店买了DLC
+
+然后在XSS上面下载DLC，正常游戏。
+
+XSS我是港 ...</blockquote>
+感谢。那太棒了，这样算下来才一百多就能玩到终级版, 之前3和4都是全价买的终级版，根本不知道还有这个方法。
+
