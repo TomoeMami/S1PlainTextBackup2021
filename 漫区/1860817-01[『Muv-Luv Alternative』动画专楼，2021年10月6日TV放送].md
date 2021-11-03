@@ -18852,3 +18852,12 @@ pm这个游戏，也有小麻的剧情，但是没给cg。游戏换到1.5世代�
 
 为了提高瞬间机动性在减重的同时还要抬高中心。大部分gen2和所有gen3能站稳全靠电脑不停的调整站立情况下的重心。
 
+
+
+*****
+
+####  hlazd  
+##### 1306#       发表于 2021-11-4 01:19
+
+这集3v3演习真挺眼花缭乱的<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">充分体现了新OS的牛逼
+

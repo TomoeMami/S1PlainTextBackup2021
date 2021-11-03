@@ -16770,3 +16770,56 @@ pay不是在访谈中说过和鲤鱼搭同一班电车吗，鲤鱼还让人家�
 
 说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手必胜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cqc1021  
+##### 4471#       发表于 2021-11-4 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404358&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-11-4 00:50</a>
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手 ...</blockquote>
+CP营业的内娱偶像不仲，好像可以猜到是谁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cqc1021  
+##### 4472#       发表于 2021-11-4 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404358&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-11-4 00:50</a>
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手 ...</blockquote>
+CP营业的内娱偶像不仲，好像可以猜到是谁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 4473#       发表于 2021-11-4 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404358&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-11-4 00:50</a>
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手 ...</blockquote>
+叫你朋友别来看星，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4474#       发表于 2021-11-4 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404508&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-4 01:08</a>
+叫你朋友别来看星，谢谢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">水虹都没看 现在沉迷国内套皮主播
+
+*****
+
+####  稀勢のささ  
+##### 4475#       发表于 2021-11-4 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404437&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-11-4 00:59</a>
+CP营业的内娱偶像不仲，好像可以猜到是谁
+
+—— 来自 samsung SM-N9860, Android 11上的 S1Next- ...</blockquote>
+好几年前的事了  本来就不认识早不记得叫啥了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

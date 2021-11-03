@@ -2928,3 +2928,12 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 显示错误
 
+
+
+*****
+
+####  森兰丸  
+##### 84235#       发表于 2021-11-4 01:17
+
+银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
