@@ -1674,3 +1674,26 @@ s1坛友无限可分
 —— 来自 samsung SM-G9730, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我也是影分身之一了
 
+
+
+*****
+
+####  勇者アルバ  
+##### 138#         楼主| 发表于 2021-11-3 09:12
+
+@naruto3432 @GilgameshII  别人扣我四个马，我扣别人笑哈哈是吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+当时在贴里有多装无辜，现在就有多可笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还小心眼跑到内野去告状，你就是一个没人爱只会靠RPG博注意的可悲小丑而已，不会因为大家都骂你兴奋到高c了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  flyzzhj  
+##### 139#       发表于 2021-11-3 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53389858&amp;ptid=2035152" target="_blank">c20070613 发表于 2021-11-3 02:15</a>
+
+那个五年没发帖的后半夜仗义出手的正义路人他粗线啦！</blockquote>
+哎呀呀，兄弟，不好意思，加鹅不当心点成扣鹅了
+

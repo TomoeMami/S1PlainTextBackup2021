@@ -15624,3 +15624,15 @@ ost有明确的主题的话也方便音监使用。这次main theme 青春激昂
 
 难得，这次伴奏也上流媒体了
 
+
+
+*****
+
+####  星降る森  
+##### 4343#       发表于 2021-11-3 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53378146&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-2 13:35</a>
+
+代购的店家拿走抽选券然后特价卖的版本啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有带抽选的碟，碟都是不可燃垃圾，且不说轻松能把券卖的比碟还贵，哪怕是什么都不知道，事后去垃圾屋买二手（仅拆取券），也能轻松用超白菜价收到的，完全没必要给TBJS宰一把
+
