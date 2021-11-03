@@ -16745,3 +16745,28 @@ pay不是在访谈中说过和鲤鱼搭同一班电车吗，鲤鱼还让人家�
   -- 来自  ...</blockquote>
 什么，还是战吧吧友吗。团内有一个鲤鱼姐这样的老拉拉人+宅+经常网上冲浪营业效果肯定拉满，企划也算捡到宝了，樱花妹营业还是差点效果。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 4468#       发表于 2021-11-4 00:42
+
+ 本帖最后由 iuhehc 于 2021-11-4 00:44 编辑 
+
+所以就很佩服能脑补不仲大戏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还是前几天的拉板看到的
+
+*****
+
+####  darkendless  
+##### 4469#       发表于 2021-11-4 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了一下讨论内容还算正常范畴内吧，也有提到前代团的不仲说，反正没证据的话都是图一乐
+
+*****
+
+####  稀勢のささ  
+##### 4470#       发表于 2021-11-4 00:50
+
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手必胜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

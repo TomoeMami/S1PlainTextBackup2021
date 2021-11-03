@@ -8897,3 +8897,19 @@ hnn这是吸取教训，赛季初就把kmt抓在手里了吗
 
 久违看了郡郡的原神抽卡，悲惨过头有点看难受了，想起我因为沉船a掉的那些个手游。不过还是有点好事的，郡去和圭利组队打喷喷了，虽说这个组合人选我是有点觉得是对liver的调笑，但是联动还是好的…
 
+
+
+*****
+
+####  AraTurambar  
+##### 8133#       发表于 2021-11-4 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403853&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-3 23:55</a>
+
+【【全熟/伊卜拉新】新衣装披露  实况play2-哔哩哔哩】[https://b23.tv/ISFg4h](https://b23.tv/ISFg4h)
+
+全熟都有了 ...</blockquote>
+感谢！美味的男人hhhhh
+
+黑皮还是比冷白皮美味。虽然兰陵王既视感，尤其在面具那里www
+
