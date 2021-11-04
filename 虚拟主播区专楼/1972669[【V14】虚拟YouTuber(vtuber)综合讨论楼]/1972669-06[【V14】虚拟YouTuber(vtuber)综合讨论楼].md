@@ -9081,3 +9081,24 @@ https://twitter.com/Arte_Refact/status/1456109197116936196
 <img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">还有这种事啊，松井洋平给我喜欢的动画写了很多词，我还蛮喜欢他的。
 顺带一提他给KING OF PRISM也写了不少歌，而KOP最近和HoloStars联动卖谷了。
 
+
+
+*****
+
+####  fastary  
+##### 8151#       发表于 2021-11-4 20:43
+
+都是练习生怎么会舍得给l2d，又不是已经出道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+听了三个男人的初配信，杂谈内容素人感很强却都不紧张啊，大概是都学过了（而且同接压力也没本社那么大
+
+黑发：还算贴脸，整个就是很普通，拉小提琴和喜欢学习好评
+
+褐发：叔系声音配帅哥皮好不贴啊，感觉性格是oliver差不多的类型，喜欢bl高评价
+
+白毛：差点以为是女孩子反串，温温柔柔系……至少不是我的菜，虽然反而相对算是游戏势，不过搞asmr我可能会听
+
+syl
+
+说起来404订阅的两个asmr频道主都宣布要套皮了，感觉给自己定过纸片形象的频道主都会倾向与套皮玩玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+

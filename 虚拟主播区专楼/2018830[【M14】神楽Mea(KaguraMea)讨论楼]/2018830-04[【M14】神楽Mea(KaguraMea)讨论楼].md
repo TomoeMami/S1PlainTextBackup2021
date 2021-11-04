@@ -1472,3 +1472,42 @@ K.G.R=M.A，你最大的问题是不认识你自己
 
 哦对，批站有人传了昨晚录播【20211104 MEA LOL-哔哩哔哩】https://b23.tv/7vVvUF
 
+
+
+*****
+
+####  T_Hb  
+##### 4667#       发表于 2021-11-4 20:54
+
+ 本帖最后由 T_Hb 于 2021-11-4 20:56 编辑 
+
+油管好像又不太行
+
+<img src="https://img.saraba1st.com/forum/202111/04/205620r0mb6buv79ruuq9s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 20:56 上传
+
+*****
+
+####  路人庚  
+##### 4668#       发表于 2021-11-4 20:57
+
+<img src="https://img.saraba1st.com/forum/202111/04/205730fnfqwwqflc5ww5ij.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>232AB797-9F93-4396-BAE7-D42BA31B5687.jpeg</strong> (38.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 20:57 上传
+
+*****
+
+####  时间在我手中  
+##### 4669#       发表于 2021-11-4 20:59
+
+该死的油管，不要啊这种事
+
