@@ -3079,3 +3079,12 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 5星纯new10个 算宝具就不知道了</blockquote>
 太欧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 84249#       发表于 2021-11-4 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上又有30石了  能抽到田村大魔王吗
+

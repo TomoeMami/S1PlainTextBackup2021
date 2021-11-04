@@ -2514,3 +2514,118 @@ pc一直闪退怎么办
 不过现在xgppc 3个月只要10块，用不着借啊</blockquote>
 这游戏XGP是怎么算版本的？终极版？
 
+
+
+*****
+
+####  Existinghomes  
+##### 202#       发表于 2021-11-4 19:23
+
+闪退的断网再进试试
+
+*****
+
+####  岁在大吉山  
+##### 203#       发表于 2021-11-4 19:23
+
+闪退了10次，最后一次已经到达主舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hanzong  
+##### 204#       发表于 2021-11-4 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415593&amp;ptid=2033303" target="_blank">机动小蜜蜂 发表于 2021-11-4 19:19</a>
+这游戏XGP是怎么算版本的？终极版？</blockquote>
+基础版
+
+*****
+
+####  Hanzong  
+##### 205#       发表于 2021-11-4 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415542&amp;ptid=2033303" target="_blank">hokagokenjatime 发表于 2021-11-4 19:15</a>
+改区到新西兰发现还是不行说我来的太早了，是不是商店也得登有xgp的账户 ...</blockquote>
+你是不是没买升终极版的包，现在只有终极版能玩
+
+*****
+
+####  Totokei  
+##### 206#       发表于 2021-11-4 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以是偷渡的锅还是
+
+想起当年MSFS也是偷渡的一直出错进不去，到了本地区解锁时间之后就好了
+
+*****
+
+####  lxx4869  
+##### 207#       发表于 2021-11-4 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥我要明天12点才能玩
+
+*****
+
+####  pppp7049  
+##### 208#       发表于 2021-11-4 19:29
+
+<blockquote>lxx4869 发表于 2021-11-4 19:27
+为啥我要明天12点才能玩</blockquote>
+现在玩的都是PC改地区的人
+
+*****
+
+####  pppp7049  
+##### 209#       发表于 2021-11-4 19:29
+
+<blockquote>Existinghomes 发表于 2021-11-4 19:23
+闪退的断网再进试试</blockquote>
+断网有用，感谢
+
+*****
+
+####  arctichan  
+##### 210#       发表于 2021-11-4 19:31
+
+没法用PS4手柄控制吗……？
+
+
+
+*****
+
+####  nemunoki  
+##### 211#       发表于 2021-11-4 19:32
+
+不知道是不是硬盘速度不够，时不时跑在路上提示 串流带宽不足，然后就会有一整块路面没加载出来
+
+如果非要放SSD的话还挺糟心
+
+*****
+
+####  诶哟卧草  
+##### 212#       发表于 2021-11-4 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415799&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-4 19:32</a>
+
+不知道是不是硬盘速度不够，时不时跑在路上提示 串流带宽不足，然后就会有一整块路面没加载出来
+
+如果非要放 ...</blockquote>
+你现在用的是HDD？
+
+*****
+
+####  nemunoki  
+##### 213#       发表于 2021-11-4 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415841&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-4 19:35</a>
+
+你现在用的是HDD？</blockquote>
+是
+
+*****
+
+####  nemunoki  
+##### 214#       发表于 2021-11-4 19:39
+
+查了一下好像是爆显存 只能降质了
+
