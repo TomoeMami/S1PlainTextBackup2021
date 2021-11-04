@@ -1511,3 +1511,91 @@ K.G.R=M.A，你最大的问题是不认识你自己
 
 该死的油管，不要啊这种事
 
+
+
+*****
+
+####  T_Hb  
+##### 4670#       发表于 2021-11-4 21:01
+
+太卡就直接跳到图奇快乐起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 4671#       发表于 2021-11-4 21:04
+
+(눈_눈)想听歌
+
+*****
+
+####  T_Hb  
+##### 4672#       发表于 2021-11-4 21:05
+
+点，都可以点
+
+*****
+
+####  路人庚  
+##### 4673#       发表于 2021-11-4 21:08
+
+在油管咕噜咕噜前赶紧唱起来
+
+*****
+
+####  T_Hb  
+##### 4674#       发表于 2021-11-4 21:11
+
+好的开始是成功的一半
+
+*****
+
+####  时间在我手中  
+##### 4675#       发表于 2021-11-4 21:13
+
+ 本帖最后由 时间在我手中 于 2021-11-4 21:19 编辑 
+
+怎么back number连发了 三连了
+
+*****
+
+####  T_Hb  
+##### 4676#       发表于 2021-11-4 21:19
+
+ 本帖最后由 T_Hb 于 2021-11-4 21:21 编辑 
+
+么了，他转起来了
+
+*****
+
+####  thisisaspider  
+##### 4677#       发表于 2021-11-4 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417082&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-11-4 21:13</a>
+
+怎么back number连发了 三连了</blockquote>
+你注册个图奇账号 之后开开直播帮我测试一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4678#       发表于 2021-11-4 21:22
+
+油管**妈
+
+*****
+
+####  T_Hb  
+##### 4679#       发表于 2021-11-4 21:23
+
+TC了
+
+*****
+
+####  时间在我手中  
+##### 4680#       发表于 2021-11-4 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417183&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2021-11-4 21:22</a>
+你注册个图奇账号 之后开开直播帮我测试一下吧</blockquote>
+已经注册好了，要测试就和我说，虽然我觉得你去抓一下xqc啥的也行
+

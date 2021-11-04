@@ -2853,3 +2853,26 @@ Stage1st
 
 我这也是vip和车包都没解锁，明天来看吧
 
+
+
+*****
+
+####  minysun  
+##### 238#       发表于 2021-11-4 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416225&amp;ptid=2033303" target="_blank">mwj 发表于 2021-11-4 20:01</a>
+
+怎么修改安装位置啊，c盘实在空不出100g啊</blockquote>
+XBOX应用-右上角你的账户头像-设置-常规-游戏安装选项-每次安装时询问我安装选项-√
+
+*****
+
+####  tuiskusuomaa  
+##### 239#       发表于 2021-11-4 21:13
+
+ 本帖最后由 tuiskusuomaa 于 2021-11-4 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416915&amp;ptid=2033303" target="_blank">历史厨 发表于 2021-11-4 21:00</a>
+
+有哪个来总结一下笑啥笑的performance mode和quality mode玩下来的感受优劣不？ 看过ERA的鬼佬眼意见了，看 ...</blockquote>
+画质模式是无缝加载的，性能模式的加载距离比较短，远景这块比较吃亏，远处和近处是两套建模，另外植被密度不如画质（但是还算很不错了）
+
