@@ -17054,3 +17054,29 @@ https://www.bilibili.com/video/BV1g44y1i7zs
 
 17.9浪漫女郎是什么天才段子啊哈哈哈哈哈哈
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4496#       发表于 2021-11-4 11:43
+
+ 本帖最后由 秋月艾莉 于 2021-11-4 11:44 编辑 
+
+“鲤鱼的时代已经到来”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 4497#       发表于 2021-11-4 11:51
+
+懂了，鲤鱼是在韩国cos的玛奇玛
+
+*****
+
+####  lj205  
+##### 4498#       发表于 2021-11-4 11:54
+
+都说鲤鱼就是习惯看左边是吧？看看之前安排外星人坐她左边那期生放，她可没少往右边看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
