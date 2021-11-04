@@ -15283,3 +15283,80 @@ syl:莫子啥时候写下一篇啊
 
 不要散啊，现在开始搞万象天引来得及吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tn_teana  
+##### 1327#       发表于 2021-11-4 23:26
+
+琳是回家养病，她嗓子的事儿说了两个月要回家静养了。
+文静很久没回家了，八号请假回家看看。
+COCO我咋感觉每个月都要请假？
+
+*****
+
+####  tankai  
+##### 1328#       发表于 2021-11-4 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418177&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-4 22:34</a>
+
+文静8-21号请假，紫砂了！
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+这么长,有猫腻.
+
+*****
+
+####  rgauss  
+##### 1329#       发表于 2021-11-4 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418793&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-4 23:26</a>
+
+琳是回家养病，她嗓子的事儿说了两个月要回家静养了。
+
+文静很久没回家了，八号请假回家看看。
+
+COCO我咋感觉 ...</blockquote>
+co就是9月开始每月都请假
+
+*****
+
+####  蓝白胖者  
+##### 1330#       发表于 2021-11-4 23:31
+
+请假两周这就是你的牌吗?真有你的呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 1331#       发表于 2021-11-4 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">今晚开始直播的时候，白白是不是说了一句，鸡公煲再也没有机会吃了
+
+*****
+
+####  莫洛骑士  
+##### 1332#       发表于 2021-11-4 23:38
+
+一切的一切，都始于那天夜里的文静低气压，文静你个报丧女妖
+
+*****
+
+####  IDIDIDID  
+##### 1333#       发表于 2021-11-4 23:39
+
+所以文静大致祖国哪里人有说法了吗？
+
+*****
+
+####  T型钉宫病毒  
+##### 1334#       发表于 2021-11-4 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418886&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-4 23:34</a>
+
+今晚开始直播的时候，白白是不是说了一句，鸡公煲再也没有机会吃了</blockquote>
+白白：我们鸡公煲还没吃呢
+
+文静：可能就没有吃的那一天了(笑)
+

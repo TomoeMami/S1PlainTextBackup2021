@@ -3114,3 +3114,79 @@ win商店现在重启不会进度条直接没了吗</blockquote>
 明明是 KANSEI DORIFUTO 惯性漂移的经典梗 ...</blockquote>
 播放列表这个翻译已经传承了不知道多少代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Totokei  
+##### 262#       发表于 2021-11-4 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418473&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-4 22:58</a>
+麻了，下载出错，求救，我看贴吧也有人出类似问题
+
+剩余空间200g，安装路径I盘，应该是购用的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今晚折腾已经心态崩了，按这个错误码能搜到的解决方案全都做了，还是进不去游戏现在还下载不了
+
+*****
+
+####  天神十三煞  
+##### 263#         楼主| 发表于 2021-11-4 23:32
+
+ 本帖最后由 天神十三煞 于 2021-11-4 07:43 编辑 
+
+其实没有什么重装解决不了的问题，商店对网络和防火墙网关之类的设置很脆皮敏感，不知道国产流氓会动什么，然后就报错。
+
+windows用户必备acronis，两分钟来回
+
+干净系统，加上常规软件不含流氓软件，在测试中小型商店游戏游戏数据游玩正常后，全卸载数据清理，
+
+再备份一个，以后就大系统更新或大型软件安装前增量备份一次，以后遇事不决就还原，保证不会出问题，
+
+*****
+
+####  Totokei  
+##### 264#       发表于 2021-11-4 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418861&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-4 23:32</a>
+没有什么还原镜像解决不了的问题，如果有那就重装。
+
+windows用户必备acronis，两分钟来回
+
+干净系统，加上常 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重装系统之后能读取出硬盘里原来已经安装的win10商店游戏吗，还是只能重新下载
+
+*****
+
+####  风流庵TypeC  
+##### 265#       发表于 2021-11-4 23:39
+
+艹，新手关最后一段跑一半闪退，只能断网试一下了
+
+*****
+
+####  风流庵TypeC  
+##### 266#       发表于 2021-11-4 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418953&amp;ptid=2033303" target="_blank">风流庵TypeC 发表于 2021-11-4 23:39</a>
+艹，新手关最后一段跑一半闪退，只能断网试一下了</blockquote>
+断网试一下更牛了，第一段就闪退
+
+*****
+
+####  天神十三煞  
+##### 267#         楼主| 发表于 2021-11-4 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418885&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-4 07:34</a>
+
+重装系统之后能读取出硬盘里原来已经安装的win10商店游戏吗，还是只能重新下载 ...</blockquote>
+加密的原因，全新重装不能用，但是你安装到其他盘以后，
+
+备份这个状态下的系统以后还原就不需要重下。
+
+*****
+
+####  misaki_d  
+##### 268#       发表于 2021-11-4 23:44
+
+steam 下载体验完爆微软商城，G 胖这钱是得让他赚
+
