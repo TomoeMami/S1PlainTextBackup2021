@@ -1599,3 +1599,66 @@ TC了
 你注册个图奇账号 之后开开直播帮我测试一下吧</blockquote>
 已经注册好了，要测试就和我说，虽然我觉得你去抓一下xqc啥的也行
 
+
+
+*****
+
+####  yywzjsw  
+##### 4681#       发表于 2021-11-4 21:25
+
+我感觉tc也卡
+
+*****
+
+####  thisisaspider  
+##### 4682#       发表于 2021-11-4 21:29
+
+tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 4683#       发表于 2021-11-4 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417191&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-11-4 21:23</a>
+
+已经注册好了，要测试就和我说，虽然我觉得你去抓一下xqc啥的也行</blockquote>
+私我链接就行 你这两天随便开播个 1-3次 每次5-60分钟吧
+
+*****
+
+####  时间在我手中  
+##### 4684#       发表于 2021-11-4 21:31
+
+合理怀疑换台后状态下降<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4685#       发表于 2021-11-4 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417291&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2021-11-4 21:31</a>
+私我链接就行 你这两天随便开播个 1-3次 每次5-60分钟吧</blockquote>
+那你上扣扣吧，我周末播生化奇兵无限试试。
+
+*****
+
+####  T_Hb  
+##### 4686#       发表于 2021-11-4 21:38
+
+挺好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4687#       发表于 2021-11-4 21:39
+
+新歌不错
+
+*****
+
+####  yywzjsw  
+##### 4688#       发表于 2021-11-4 21:40
+
+不妙，听的有些困了
+

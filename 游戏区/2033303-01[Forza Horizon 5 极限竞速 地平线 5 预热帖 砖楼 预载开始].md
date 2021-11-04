@@ -2876,3 +2876,33 @@ XBOX应用-右上角你的账户头像-设置-常规-游戏安装选项-每次�
 有哪个来总结一下笑啥笑的performance mode和quality mode玩下来的感受优劣不？ 看过ERA的鬼佬眼意见了，看 ...</blockquote>
 画质模式是无缝加载的，性能模式的加载距离比较短，远景这块比较吃亏，远处和近处是两套建模，另外植被密度不如画质（但是还算很不错了）
 
+
+
+*****
+
+####  何尚生  
+##### 240#       发表于 2021-11-4 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415730&amp;ptid=2033303" target="_blank">pppp7049 发表于 2021-11-4 19:29</a>
+
+现在玩的都是PC改地区的人</blockquote>
+改新西兰是在改微软账号的地区还是PC的区域设置？
+
+
+
+*****
+
+####  katern  
+##### 241#       发表于 2021-11-4 21:31
+
+100g，固态被塞满勒<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Existinghomes  
+##### 242#       发表于 2021-11-4 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417283&amp;ptid=2033303" target="_blank">何尚生 发表于 2021-11-4 21:30</a>
+改新西兰是在改微软账号的地区还是PC的区域设置？</blockquote>
+win10系统设置里改区域就行
+
