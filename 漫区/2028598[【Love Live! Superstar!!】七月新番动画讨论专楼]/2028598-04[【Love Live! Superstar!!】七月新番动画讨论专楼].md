@@ -394,3 +394,37 @@ BV1ML4y1q7oX
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">女同梗传过去，怕不是更多女粉
 
+
+
+*****
+
+####  cqc1021  
+##### 4531#       发表于 2021-11-4 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412171&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-11-4 15:01</a>
+想了半天中国吃什么焼き饅頭,还是群友提醒说是不是生煎</blockquote>
+生煎好像是翻译成焼き小籠包吧
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 4532#       发表于 2021-11-4 16:45
+
+官方认证   唐哥
+
+*****
+
+####  绯想alter2nd  
+##### 4533#       发表于 2021-11-4 16:53
+
+可可的雅座从黄浦江到东京湾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 4534#       发表于 2021-11-4 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼这身高对比小百合不就是宝冢男役嘛
+
