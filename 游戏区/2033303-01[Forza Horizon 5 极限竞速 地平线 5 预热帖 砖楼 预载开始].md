@@ -2917,3 +2917,42 @@ win10系统设置里改区域就行
 
 然后点了FH5修复之后现在商店下不回来了一直弹错
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 244#       发表于 2021-11-4 22:11
+
+101g，微软这速度最高还只有3.3mb/s，下到明天去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冀人燕南天  
+##### 245#       发表于 2021-11-4 22:11
+
+这才解锁第一天怎么就已经一个已完结的季节和马上就要完结的季节……
+
+*****
+
+####  Sakaiyuki  
+##### 246#       发表于 2021-11-4 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417832&amp;ptid=2033303" target="_blank">冀人燕南天 发表于 2021-11-4 22:11</a>
+这才解锁第一天怎么就已经一个已完结的季节和马上就要完结的季节……</blockquote>
+估计是内测版的季节
+
+*****
+
+####  riin1  
+##### 247#       发表于 2021-11-4 22:22
+
+萌新第一次玩Forza，刚下单了一个G29
+
+*****
+
+####  hzh3355  
+##### 248#       发表于 2021-11-4 22:23
+
+目前不能用方向盘吗，我接上去以后游戏内不识别<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
