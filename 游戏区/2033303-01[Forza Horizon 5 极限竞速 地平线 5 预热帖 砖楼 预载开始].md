@@ -3273,3 +3273,23 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 这代ui突然又往方块改＋大字体有点蚌埠住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Vladimeow  
+##### 278#       发表于 2021-11-5 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415799&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-4 19:32</a>
+不知道是不是硬盘速度不够，时不时跑在路上提示 串流带宽不足，然后就会有一整块路面没加载出来
+
+如果非要放 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个是显存不够了，我用笔记本玩四代就出现过这问题，还会突然把车给你刹停 比较草
+
+*****
+
+####  gzGaryC  
+##### 279#       发表于 2021-11-5 01:18
+
+现在这个时间点的服务器质量也太糟糕了，疯狂掉线
+
