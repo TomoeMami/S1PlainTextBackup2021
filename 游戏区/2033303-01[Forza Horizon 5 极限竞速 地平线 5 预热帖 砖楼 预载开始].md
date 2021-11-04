@@ -3445,3 +3445,22 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 一上头购车券买了AMG ONE<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lxx4869  
+##### 295#       发表于 2021-11-5 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420043&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 02:58</a>
+
+这代设置拉到最高连3090也稳不住4K60啊</blockquote>
+不应该啊，我2080s，3840×1600，反射阴影开超高，抗锯齿4x，其他都手动拉满，有个好像是dlss的开超高质量，也有70多帧
+
+*****
+
+####  Tjodrek  
+##### 296#       发表于 2021-11-5 07:46
+
+哪里有dlss啊，眼瞎没看见呢
+
