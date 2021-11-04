@@ -2211,3 +2211,30 @@ pdd上麦克赛尔，京东的京造都还行
 
 6G显存的1070还能玩吗
 
+
+
+*****
+
+####  meltykiss  
+##### 168#       发表于 2021-11-4 14:49
+
+微软商店莫名其妙下载没速度好久了,预购点了安装完全没反应,退款买steam版去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 169#       发表于 2021-11-4 15:03
+
+IGN 10
+[https://www.ign.com/articles/forza-horizon-5-review](https://www.ign.com/articles/forza-horizon-5-review)
+
+GS 9
+[https://www.gamespot.com/reviews ... amily/1900-6417778/](https://www.gamespot.com/reviews/forza-horizon-5-review-its-about-four-wheeled-family/1900-6417778/)
+
+*****
+
+####  mashav  
+##### 170#       发表于 2021-11-4 15:04
+
+a9和鸡盒评测出了
+
