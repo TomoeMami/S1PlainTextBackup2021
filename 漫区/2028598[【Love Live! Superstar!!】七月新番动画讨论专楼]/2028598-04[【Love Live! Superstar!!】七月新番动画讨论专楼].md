@@ -27,3 +27,26 @@
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  darkendless  
+##### 4504#       发表于 2021-11-4 13:30
+
+什么是真正的文化输出啊，韩国人的机翻中文太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4505#       发表于 2021-11-4 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">越来越怪了，什么欧洲有EU，我们有Liyuu的怪话都出来了
+
+*****
+
+####  chenflyyy  
+##### 4506#       发表于 2021-11-4 13:37
+
+现在推上几个国人和几个韩国人在用着翻译机交流各自文化圈里的不同用语，这种文化交流真的很有趣
+
