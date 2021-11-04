@@ -14611,3 +14611,14 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 不懂就问，为什么静姨被叫做404了呢？</blockquote>
 这是1.0
 
+
+
+*****
+
+####  有效击穿  
+##### 1254#       发表于 2021-11-4 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53407482&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-4 09:59</a>
+这是1.0</blockquote>
+1.0没签竞议吗？这么快就能继续vup了？
+

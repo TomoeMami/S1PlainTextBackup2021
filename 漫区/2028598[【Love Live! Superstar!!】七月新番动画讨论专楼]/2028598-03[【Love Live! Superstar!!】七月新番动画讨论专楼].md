@@ -16971,3 +16971,50 @@ https://www.bilibili.com/video/BV1g44y1i7zs
 她爱她 她却爱着她</blockquote>
 这种水是每瓶上就一个人吗？
 
+
+
+*****
+
+####  土豆不土  
+##### 4488#       发表于 2021-11-4 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53407451&amp;ptid=2028598" target="_blank">仟音一心 发表于 2021-11-4 09:57</a>
+
+这种水是每瓶上就一个人吗？</blockquote>
+不是啦，仔细看呸宝的水瓶子上是可堇两个人
+
+*****
+
+####  darkendless  
+##### 4489#       发表于 2021-11-4 10:04
+
+不是，每个方向都不同。鲤鱼姐的水瓶最开始是可堇面向镜头的，中途拿起来喝水放下就变成香音了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4490#       发表于 2021-11-4 10:05
+
+ 本帖最后由 lj205 于 2021-11-4 10:07 编辑 
+
+那瓶子其实就是5个人都在上面，每一面不同角色，那样放都是故意的。
+
+但是我觉得鲤鱼根本没在意到这个细节，拿起来喝，喝完就放下，反正她就一直是这样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  土豆不土  
+##### 4491#       发表于 2021-11-4 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">甚至跟衣物摩擦都没有。
+
+怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/04/100732by602lfjabll1hly.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211104100713.png</strong> (127.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 10:07 上传
+
