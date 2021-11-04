@@ -50,3 +50,84 @@
 
 现在推上几个国人和几个韩国人在用着翻译机交流各自文化圈里的不同用语，这种文化交流真的很有趣
 
+
+
+*****
+
+####  土豆不土  
+##### 4507#       发表于 2021-11-4 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410085&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-11-4 12:31</a>
+
+金版xm4没遇到这种情况，要不问下卖家。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+我觉得大概是白色的问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  土豆不土  
+##### 4508#       发表于 2021-11-4 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410085&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-11-4 12:31</a>
+
+金版xm4没遇到这种情况，要不问下卖家。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 4509#       发表于 2021-11-4 14:00
+
+<img src="https://img.saraba1st.com/forum/202111/04/135855yylozwuuqqk5kl50.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (46.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135855ybiij66t89fnt9hj.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (53.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856ntbd26vi8qbduc6h.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (38.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856e1s53nsk2kvevv42.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (255.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856x5nwcdz5wchuffmw.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (66.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856ah32hd2pd8t261jx.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (60.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">着实有点难绷
+

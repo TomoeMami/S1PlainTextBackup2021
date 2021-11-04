@@ -14732,3 +14732,25 @@ syl <img src="https://p.sda1.dev/3/3d8c5e1325489f7e0ee5577d2e4af571/IMG_CMP_1013
 
 说好的回私信呢？
 
+
+
+*****
+
+####  袜子  
+##### 1266#       发表于 2021-11-4 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410243&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-4 12:42</a>
+捏麻麻的资本家都没你黑心
+
+syl</blockquote>
+难崩，鸟吧真是……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  andeloz  
+##### 1267#       发表于 2021-11-4 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">有人被回私信了嘛
+

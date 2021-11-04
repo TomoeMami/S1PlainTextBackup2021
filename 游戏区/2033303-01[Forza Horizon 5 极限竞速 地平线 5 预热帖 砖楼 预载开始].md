@@ -2178,3 +2178,15 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 话说有啥便宜的充电电池，非常轻度玩了20多小时地平线4，买了10只南孚只有2个了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andychen  
+##### 165#       发表于 2021-11-4 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410743&amp;ptid=2033303" target="_blank">q781061296 发表于 2021-11-4 13:17</a>
+
+话说买了XGP。还需要买什么包才能在今天提前玩啊</blockquote>
+顶楼的顶级版升级包，176大洋
+
