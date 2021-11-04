@@ -428,3 +428,12 @@ BV1ML4y1q7oX
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼这身高对比小百合不就是宝冢男役嘛
 
+
+
+*****
+
+####  lj205  
+##### 4535#       发表于 2021-11-4 17:16
+
+Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是搭着可可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
