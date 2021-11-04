@@ -14358,3 +14358,209 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 可以去外网翻翻。。</blockquote>
 关键字私一个谢谢，推上就有吧？
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 1228#       发表于 2021-11-3 17:01
+
+文静每次都不把话说透的话术真恶心，说不让粉丝网暴，就不能在提一句人家可能也是没把握好分寸？知道她是怕耽误收米，但是还是恶心。
+
+
+
+*****
+
+####  袜子  
+##### 1229#       发表于 2021-11-3 17:21
+
+钓鱼去贴吧，这水平钓巨魔……烂……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  丢了五块钱  
+##### 1230#       发表于 2021-11-3 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53397618&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-3 16:23</a>
+
+昨晚的一个瓜
+
+可以去外网翻翻。。</blockquote>
+谢谢 看到了，真是出乎意料
+
+
+
+*****
+
+####  IDIDIDID  
+##### 1231#       发表于 2021-11-3 17:49
+
+就喜欢文静谜语人。特别是每当弹幕直球问小男友时文静从不正面作答把男友粉急的抓耳挠腮的时候。🥰
+
+
+
+*****
+
+####  H2Ofrozen  
+##### 1232#       发表于 2021-11-3 18:03
+
+之前说炸弹文化其实都是些不痛不痒的，经此一役直播间是否要发生道路变化了呢<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 1233#       发表于 2021-11-3 18:11
+
+文静估计会有心理阴影<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  丢了五块钱  
+##### 1234#       发表于 2021-11-3 18:21
+
+按照抽象理论，直播的终极形式就是弹幕互相输出内容，也就是最大程度的自由。文静觉得车是自己开起来的，一开始控制的还不错，只不过随着加速越来越快最后出事也是必然的，之后就只能切割洗粉。
+
+
+
+*****
+
+####  碧波青云  
+##### 1235#       发表于 2021-11-3 18:44
+
+这下被反噬了
+
+
+
+*****
+
+####  Finsty  
+##### 1236#       发表于 2021-11-3 19:16
+
+这女人说自己十月战绩的时候兴奋得像个孩子还打响指，可爱捏
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  莫洛骑士  
+##### 1237#       发表于 2021-11-3 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也叫炸弹？炸弹只是隐喻，这是原子弹吧
+
+
+
+*****
+
+####  tankai  
+##### 1238#       发表于 2021-11-3 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53400078&amp;ptid=2013779" target="_blank">Finsty 发表于 2021-11-3 19:16</a>
+
+这女人说自己十月战绩的时候兴奋得像个孩子还打响指，可爱捏
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的  ...</blockquote>
+嫌不够响,打了好几次.
+
+*****
+
+####  夜潇箫  
+##### 1239#       发表于 2021-11-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402919&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-3 22:30</a>
+嫌不够响,打了好几次.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今天中午还是什么时候
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 1240#       发表于 2021-11-3 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403007&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-3 22:37</a>
+
+今天中午还是什么时候</blockquote>
+复活的时候公布活跃率的时候
+
+
+
+*****
+
+####  tn_teana  
+##### 1241#       发表于 2021-11-3 23:28
+
+【只属于鸟批的小秘密是？查询鸟批浓度！-哔哩哔哩】https://b23.tv/fTJL7Q
+
+只能说鸟P的粘度太高了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  莫洛骑士  
+##### 1242#       发表于 2021-11-4 00:03
+
+【【文静】牧马城市-哔哩哔哩】https://b23.tv/H0KIF9
+女粉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  逸yi  
+##### 1243#       发表于 2021-11-4 07:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  莫洛骑士  
+##### 1244#       发表于 2021-11-4 07:51
+
+错误的，2.0去a手了捏
+<img src="https://p.sda1.dev/3/d8810270a79e0fb819292608d5697112/IMG_CMP_134658862.jpeg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  伞沢直美  
+##### 1245#       发表于 2021-11-4 08:35
+
+我超，别
+
+
+
+*****
+
+####  莫洛骑士  
+##### 1246#       发表于 2021-11-4 08:45
+
+绝望了，作为认知厨我输的什么都不是，文静回了一万个人也不回我<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我要脱坑回踩了
+
+*****
+
+####  tn_teana  
+##### 1247#       发表于 2021-11-4 08:47
+
+404半年就准备继续套皮了，是不是说明竞业协议根本没给钱啊
+
+*****
+
+####  T型钉宫病毒  
+##### 1248#       发表于 2021-11-4 08:58
+
+为什么被举办的没有我，我也想找个理由发私信啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

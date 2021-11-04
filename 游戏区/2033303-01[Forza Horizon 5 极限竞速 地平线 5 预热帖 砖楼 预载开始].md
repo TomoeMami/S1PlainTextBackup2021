@@ -2060,3 +2060,96 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 天天刷微博也没见几个人通知官网能订，麻了
 
+
+
+*****
+
+####  君往何处  
+##### 153#       发表于 2021-11-3 22:25
+
+今天预载游戏又被MSStore坑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  马僧虔  
+##### 154#       发表于 2021-11-3 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402846&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-3 22:25</a>
+今天预载游戏又被MSStore坑了第一次点下载，下载了两分钟就出错，继续也不行，取消也不行。重启系统 ...</blockquote>
+最好在xbox应用里下
+
+
+
+*****
+
+####  君往何处  
+##### 155#       发表于 2021-11-3 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403484&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-3 23:22</a>
+
+最好在xbox应用里下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 156#       发表于 2021-11-4 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402846&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-3 22:25</a>
+
+今天预载游戏又被MSStore坑了第一次点下载，下载了两分钟就出错，继续也不行，取消也不行。重启系统 ...</blockquote>
+有挂梯子吗？其实微软的服务也不稳定，挂上就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  君往何处  
+##### 157#       发表于 2021-11-4 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404022&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-4 00:13</a>
+
+有挂梯子吗？其实微软的服务也不稳定，挂上就好了</blockquote>
+没挂，下载本身也有10+M的速度，就是这次不知道怎么抽风了，没法开始又停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  再买自检星剁手  
+##### 158#       发表于 2021-11-4 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404060&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-4 00:16</a>
+
+没挂，下载本身也有10+M的速度，就是这次不知道怎么抽风了，没法开始又停不下来不知道是不是暗示 ...</blockquote>
+微软服务抽风的概率不低的，其中较高的是onedrive
+
+某乎上m$员工的解释是为了给全球提供统一服务，有时会被***阻挠，不是我们的问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qianoooo  
+##### 159#       发表于 2021-11-4 07:04
+
+评分几点出 上90了吗
+
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 160#       发表于 2021-11-4 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405738&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-4 07:04</a>
+评分几点出 上90了吗</blockquote>
+昨晚小秦直播时拿到评测码好像提了一嘴解禁时间是15点，不知道是不是所有评测都是这个时间解禁。
+
+*****
+
+####  rak1  
+##### 161#       发表于 2021-11-4 07:40
+
+今晚7点就能玩到了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

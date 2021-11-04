@@ -15899,3 +15899,1042 @@ E+这种HLS流直播用streamlink可以直接抓源的，到开发者工具里�
 
 好奇今天生放送会搞点啥，卖货？不至于吧，我是无法理解过两天又是live还搞这个做啥。
 
+
+
+*****
+
+####  蜜梨柑  
+##### 4369#       发表于 2021-11-3 17:07
+
+基本就是读信，然后说一点幕后的东西，然后放新情报（大概是ANNG联动试听
+
+
+
+*****
+
+####  中野四葉  
+##### 4370#       发表于 2021-11-3 17:25
+
+ 本帖最后由 中野四葉 于 2021-11-3 17:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">镜头更多的打给了当时更有名的up，谁能想到一个没给多少特写镜头的人最后成了ll新团的成员
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会杂志里提到的sh舞蹈视频就是这个吧
+
+*****
+
+####  cybernetics31  
+##### 4371#       发表于 2021-11-3 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说时间太有趣了
+
+
+
+*****
+
+####  绯想alter2nd  
+##### 4372#       发表于 2021-11-3 18:13
+
+那年十八，BML上，站着如喽啰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  chenflyyy  
+##### 4373#       发表于 2021-11-3 19:02
+
+今天怎么迟到了？
+
+*****
+
+####  lj205  
+##### 4374#       发表于 2021-11-3 19:03
+
+咋回事？还没开始
+
+*****
+
+####  chenflyyy  
+##### 4375#       发表于 2021-11-3 19:04
+
+怎么播片起来了
+
+*****
+
+####  chenflyyy  
+##### 4376#       发表于 2021-11-3 19:05
+
+穿着场贩服诶
+
+*****
+
+####  lj205  
+##### 4377#       发表于 2021-11-3 19:06
+
+鲤鱼这是黑眼圈吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4378#       发表于 2021-11-3 19:07
+
+太好听了8
+蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4379#       发表于 2021-11-3 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4380#       发表于 2021-11-3 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">晚上5个人眼妆都好像黑眼圈啊
+
+
+
+*****
+
+####  普之舜舜  
+##### 4381#       发表于 2021-11-3 19:08
+
+开始了开始了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4382#       发表于 2021-11-3 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53399932&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-11-3 19:08</a>
+晚上5个人眼妆都好像黑眼圈啊</blockquote>
+估计刚从表演中下去呢
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 4383#       发表于 2021-11-3 19:09
+
+今天是都画了比较浓的妆吧
+
+*****
+
+####  普之舜舜  
+##### 4384#       发表于 2021-11-3 19:09
+
+翻页
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4385#       发表于 2021-11-3 19:12
+
+怎么黑眼圈那么严重呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 4386#       发表于 2021-11-3 19:12
+
+说不定刚排练完就在现场直接开始了
+
+*****
+
+####  zylwz  
+##### 4387#       发表于 2021-11-3 19:14
+
+排练不会带妆吧
+
+我怀疑是拍了什么外景 没准今天要公布的就是新的外景企划
+
+*****
+
+####  稀勢のささ  
+##### 4388#       发表于 2021-11-3 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">定好了立马拍然后马上宣吗
+
+*****
+
+####  lj205  
+##### 4389#       发表于 2021-11-3 19:16
+
+看起来恢复的差不多了
+
+*****
+
+####  优妮可  
+##### 4390#       发表于 2021-11-3 19:16
+
+化妆的吧，
+
+*****
+
+####  普之舜舜  
+##### 4391#       发表于 2021-11-3 19:19
+
+<img src="https://p.sda1.dev/3/6830ca00f3af6a348bedaa1c7ef58845/IMG_CMP_140738398.png" referrerpolicy="no-referrer">笑死我了，光速整活
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 4392#       发表于 2021-11-3 19:20
+
+鲤鱼今天莫名地嗨，不像之前那样的断电状态，挺好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4393#       发表于 2021-11-3 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来语言模块还没回来
+
+*****
+
+####  iuhehc  
+##### 4394#       发表于 2021-11-3 19:20
+
+官方还挂这个画上去我是真的爆笑
+
+
+
+*****
+
+####  稀勢のささ  
+##### 4395#       发表于 2021-11-3 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也是反馈的一环 当然挂
+
+*****
+
+####  lj205  
+##### 4396#       发表于 2021-11-3 19:23
+
+哈哈哈后面还有一副也画了身高梗
+
+*****
+
+####  稀勢のささ  
+##### 4397#       发表于 2021-11-3 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">nako可爱
+
+*****
+
+####  lj205  
+##### 4398#       发表于 2021-11-3 19:35
+
+你们发现没？鲤鱼今晚开始转头看佩佩了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4399#       发表于 2021-11-3 19:38
+
+草啊 身高差笑死
+
+*****
+
+####  cybernetics31  
+##### 4400#       发表于 2021-11-3 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 4401#       发表于 2021-11-3 19:44
+
+又事故~
+
+*****
+
+####  稀勢のささ  
+##### 4402#       发表于 2021-11-3 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">え？
+
+*****
+
+####  chenflyyy  
+##### 4403#       发表于 2021-11-3 19:46
+
+又是这绳子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4404#       发表于 2021-11-3 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是卖不出去又拿出来了吧
+
+*****
+
+####  lj205  
+##### 4405#       发表于 2021-11-3 19:47
+
+真的有人买吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4406#       发表于 2021-11-3 19:48
+
+笑了，这质量，真会坑钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4407#       发表于 2021-11-3 19:49
+
+笑死，反向带货
+
+*****
+
+####  稀勢のささ  
+##### 4408#       发表于 2021-11-3 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最担心的事情终究还是发生了 质量引发的事故
+
+*****
+
+####  lj205  
+##### 4409#       发表于 2021-11-3 19:49
+
+所以这个就是重大消息？
+
+*****
+
+####  中野四葉  
+##### 4410#       发表于 2021-11-3 19:50
+
+<img src="https://img.saraba1st.com/forum/202111/03/195003vk9zxq5ijbjsq6s6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 19:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  chenflyyy  
+##### 4411#       发表于 2021-11-3 19:51
+
+这收录内容8写成6了吧，staff干嘛吃的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 4412#       发表于 2021-11-3 19:51
+
+bd封面这几张图都真不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4413#       发表于 2021-11-3 19:51
+
+今天真是下力哄佩佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是不是微博上看到大家的呼声了？
+
+*****
+
+####  zylwz  
+##### 4414#       发表于 2021-11-3 19:53
+
+老操盘手了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 4415#       发表于 2021-11-3 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">感觉好像不是很抓耳，等之后再听几遍
+
+*****
+
+####  lj205  
+##### 4416#       发表于 2021-11-3 19:56
+
+这首歌好绕…………………………
+
+*****
+
+####  lj205  
+##### 4417#       发表于 2021-11-3 19:58
+
+跨年拜托穿这身！！！！！！！！！！！！！！！！！！！！！！！
+
+
+
+*****
+
+####  稀勢のささ  
+##### 4418#       发表于 2021-11-3 20:01
+
+怎么就快结束了
+
+*****
+
+####  chenflyyy  
+##### 4419#       发表于 2021-11-3 20:01
+
+所以大的就bd4封面和新歌试听
+
+*****
+
+####  寒风夜  
+##### 4420#       发表于 2021-11-3 20:05
+
+写错了还行
+
+*****
+
+####  chenflyyy  
+##### 4421#       发表于 2021-11-3 20:05
+
+今天这么快的
+
+*****
+
+####  中野四葉  
+##### 4422#       发表于 2021-11-3 20:06
+
+没大的了，我还以为会宣布新的外景啥的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4423#       发表于 2021-11-3 20:06
+
+ 本帖最后由 lj205 于 2021-11-3 20:08 编辑 
+
+好快好快
+
+*****
+
+####  稀勢のささ  
+##### 4424#       发表于 2021-11-3 20:07
+
+网络炸了 前面就有点卡卡的
+
+*****
+
+####  chenflyyy  
+##### 4425#       发表于 2021-11-3 20:07
+
+在B站看的没断啊，今天的staff这么草台的？！
+
+*****
+
+####  稀勢のささ  
+##### 4426#       发表于 2021-11-3 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 叔叔这还是专门的流？
+
+*****
+
+####  中野四葉  
+##### 4427#       发表于 2021-11-3 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我还以为叔叔这边是直接转油管的，妹想到是专门的
+
+*****
+
+####  lj205  
+##### 4428#       发表于 2021-11-3 20:14
+
+鲤鱼最后说了啥，信号刚好断了，切到叔叔那刚好讲完<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  世界的膀胱者  
+##### 4429#       发表于 2021-11-3 20:15
+
+草，这就结束了
+阿b和YouTube应该是分别推流的吧，不太可能阿b转播YouTube的源（毕竟都是官方）
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  名津流  
+##### 4430#       发表于 2021-11-3 20:15
+
+这期比上期还没什么整活和梗，感觉更像是很多公司那种特意在大家都以为不会有更新的时间点非要搞一期出来，只是为了测试这个时间点的播出效果似的
+
+*****
+
+####  lj205  
+##### 4431#       发表于 2021-11-3 20:20
+
+到不是吧，巡演开始后跟观众的一个互动，还有接下来场次和其它活动的宣传，都是必须的啊
+
+不能说有个巡演别的都停了吧？不保持曝光怎么行？
+
+*****
+
+####  稀勢のささ  
+##### 4432#       发表于 2021-11-3 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+VO59Q5Z1~72I})8)FB$A7Q5.jpg
+(53.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/03/201947jwr7mqdmpbszkqsl.jpg" referrerpolicy="no-referrer">
+
+{DMQ7X%RZ7D1IZ]$(1`2_PW.jpg
+(21.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/03/201952s2xdjfbbb2jj7p88.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  名津流  
+##### 4433#       发表于 2021-11-3 20:21
+
+pay酱那个其实也不算质量问题吧？买过这种二次元挂画的都知道，其实底部就是这样一根可以轻易抽出来的塑料棍子，这么多年来都是这样的设计组装
+
+当然在直播中搞到让棍子掉出来确实有点小尴尬
+
+
+
+*****
+
+####  稀勢のささ  
+##### 4434#       发表于 2021-11-3 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只在很多年前买过一次挂画 还以为便宜货才那样
+
+
+
+*****
+
+####  Piano-Forest  
+##### 4435#       发表于 2021-11-3 21:05
+
+【💫Blu-ray💫】
+
+12/24発売のTVアニメ『ラブライブ！スーパースター!!』Blu-ray第4巻のジャケットイラストを初公開🎊
+
+第7～8話の他、「Liella!のドコいく？」など豪華特典盛り沢山✨
+
+店頭予約締切は11/17！確実に入手したい方はご予約お忘れなく！
+<img src="https://p.sda1.dev/3/6d1449354dde7f0892b7e7744513b2b1/20211103_210459.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/ce80f11f1279f8f4e4797308ba3d2d82/bd04.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4436#       发表于 2021-11-3 21:08
+
+<img src="https://img.saraba1st.com/forum/202111/03/210840bxtj1x857or4zrdt.jpg" referrerpolicy="no-referrer">
+
+<strong>20211103_210755.jpg</strong> (430.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-3 21:08 上传
+
+
+
+*****
+
+####  lj205  
+##### 4437#       发表于 2021-11-3 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53401714&amp;ptid=2028598" target="_blank">Piano-Forest 发表于 2021-11-3 21:05</a>
+
+【💫Blu-ray💫】
+
+12/24発売のTVアニメ『ラブライブ！スーパースター!!』Blu-ray第4巻のジャケットイラスト ...</blockquote>
+嘿呀，大家伙看看这耳环啥颜色的？嗯嗯嗯？
+
+
+
+*****
+
+####  chenflyyy  
+##### 4438#       发表于 2021-11-3 21:56
+
+pay宝这次拍照有所进步了，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/bcaa082a6f70516f26af029b9994ca8b/IMG_CMP_127373390.jpeg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 4439#       发表于 2021-11-3 22:14
+
+3卷新加入的那个活动抽选又是个什么玩意？
+
+*****
+
+####  chenflyyy  
+##### 4440#       发表于 2021-11-3 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402690&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-3 22:14</a>
+3卷新加入的那个活动抽选又是个什么玩意？</blockquote>
+还有这玩意？不会真要搞加场吧。。。
+
+
+
+*****
+
+####  cybernetics31  
+##### 4441#       发表于 2021-11-3 22:17
+
+怕不是fan meeting 
+
+*****
+
+####  优妮可  
+##### 4442#       发表于 2021-11-3 22:27
+
+还加啊？鲤鱼之后还有活动啊
+
+*****
+
+####  chenflyyy  
+##### 4443#       发表于 2021-11-3 22:35
+
+翻页
+
+*****
+
+####  lj205  
+##### 4444#       发表于 2021-11-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402735&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-3 22:17</a>
+还有这玩意？不会真要搞加场吧。。。</blockquote>
+应该不是，写着是イベント
+
+
+
+*****
+
+####  cybernetics31  
+##### 4445#       发表于 2021-11-3 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">鲤鱼返图三人好耶
+
+*****
+
+####  lj205  
+##### 4446#       发表于 2021-11-3 22:46
+
+这个女人真的要d全团…………还好外星人只喜欢看你们表演……
+
+*****
+
+####  优妮可  
+##### 4447#       发表于 2021-11-3 22:47
+
+<img src="https://img.saraba1st.com/forum/202111/03/224641ceebez0xnjnf4bj8.jpg" referrerpolicy="no-referrer">
+
+<strong>5r77yxdgunzb1e74vm8wr53pm.jpg</strong> (128.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 22:46 上传
+
+这合照放到二次元里就是绘海希，千曜梨，步侑雪了吧。
+
+*****
+
+####  chenflyyy  
+##### 4448#       发表于 2021-11-3 22:53
+
+差点把鲤鱼和sayu看反了，太像了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4449#       发表于 2021-11-3 22:55
+
+还是你鲤鱼姐会营业（褒义），不愧是老ll人和战吧吧友，各种互动返图都能戳中粉丝的点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 4450#       发表于 2021-11-3 22:59
+
+这两张nako好戳我，又可爱又帅<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4451#       发表于 2021-11-3 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403111&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-3 22:47</a>
+这合照放到二次元里就是绘海希，千曜梨，步侑雪了吧。</blockquote>
+不愧是老拉拉人
+
+
+
+*****
+
+####  cybernetics31  
+##### 4452#       发表于 2021-11-3 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没记错的话上次鱼和pay合影是好几个月前了
+
+*****
+
+####  kata魂  
+##### 4453#       发表于 2021-11-3 23:13
+
+不如说pay跟别人的二人合照挺少的吧…pay不算二人一起上的节目的话
+
+上次合照是跟谁来着
+
+*****
+
+####  lj205  
+##### 4454#       发表于 2021-11-3 23:15
+
+本来就是个害羞的妹妹，哪像某个中国直女，想贴就贴，贴完还满世界发
+
+*****
+
+####  chenflyyy  
+##### 4455#       发表于 2021-11-3 23:16
+
+翻了下，上次与pay的合照是8月29号了<img src="https://p.sda1.dev/3/049b970db9fdabcb6fec0c8904b37883/IMG_CMP_165099951.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 4456#       发表于 2021-11-3 23:17
+
+pay是不是生放结束有父母来接的，所以都没什么合照。倒是青山，独狼感太强了，不仲说多来点<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4457#       发表于 2021-11-3 23:18
+
+鲤鱼快把佩佩拉过来合照<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Arccueid  
+##### 4458#       发表于 2021-11-3 23:22
+
+贴麻了
+
+*****
+
+####  iuhehc  
+##### 4459#       发表于 2021-11-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403427&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-3 23:17</a>
+
+pay是不是生放结束有父母来接的，所以都没什么合照。倒是青山，独狼感太强了，不仲说多来点 ...</blockquote>
+之前还在ラ板看到青山伊达不仲说还几百条讨论呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4460#       发表于 2021-11-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403427&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-3 23:17</a>
+pay是不是生放结束有父母来接的，所以都没什么合照。倒是青山，独狼感太强了，不仲说多来点 ...</blockquote>
+pay不是在访谈中说过和鲤鱼搭同一班电车吗，鲤鱼还让人家叫她姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+青山在前几天广播说过自己的性格像一匹狼，很多事情经常一个人这样
+
+*****
+
+####  player3960  
+##### 4461#       发表于 2021-11-3 23:31
+
+话说这种活动外私人合照发表需要经过事务所同意吗？这几个人只有小百合和青山是同一个事务所吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Norkey1  
+##### 4462#       发表于 2021-11-3 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403520&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-3 23:25</a>
+之前还在ラ板看到青山伊达不仲说还几百条讨论呢</blockquote>
+这两人不仲说好早就开始了，毕竟青山选拔冲着立德位去的，而且她性格也算是比较要强，没被选上一定很不甘心吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  中野四葉  
+##### 4463#       发表于 2021-11-3 23:58
+
+这种不仲说没啥意思，nagi线下看起来就一幅独狼的样子，假设完俩人不仲之后，好像也没啥变化<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kbtit  
+##### 4464#       发表于 2021-11-3 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要想太多，你能看见的都是想让你看见的，独狼说不定也是一种营业
+
+
+
+*****
+
+####  蜜梨柑  
+##### 4465#       发表于 2021-11-4 00:15
+
+又不是肥秋系那种团内要抢资源，没什么不仲的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  稀勢のささ  
+##### 4466#       发表于 2021-11-4 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才到哪儿啊就开始往不仲发散了
+
+*****
+
+####  darkendless  
+##### 4467#       发表于 2021-11-4 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403187&amp;ptid=2028598" target="_blank">player3960 发表于 2021-11-3 22:55</a>
+
+还是你鲤鱼姐会营业（褒义），不愧是老ll人和战吧吧友，各种互动返图都能戳中粉丝的点
+
+  -- 来自  ...</blockquote>
+什么，还是战吧吧友吗。团内有一个鲤鱼姐这样的老拉拉人+宅+经常网上冲浪营业效果肯定拉满，企划也算捡到宝了，樱花妹营业还是差点效果。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  iuhehc  
+##### 4468#       发表于 2021-11-4 00:42
+
+ 本帖最后由 iuhehc 于 2021-11-4 00:44 编辑 
+
+所以就很佩服能脑补不仲大戏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还是前几天的拉板看到的
+
+*****
+
+####  darkendless  
+##### 4469#       发表于 2021-11-4 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了一下讨论内容还算正常范畴内吧，也有提到前代团的不仲说，反正没证据的话都是图一乐
+
+*****
+
+####  稀勢のささ  
+##### 4470#       发表于 2021-11-4 00:50
+
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手必胜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cqc1021  
+##### 4471#       发表于 2021-11-4 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404358&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-11-4 00:50</a>
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手 ...</blockquote>
+CP营业的内娱偶像不仲，好像可以猜到是谁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cqc1021  
+##### 4472#       发表于 2021-11-4 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404358&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-11-4 00:50</a>
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手 ...</blockquote>
+CP营业的内娱偶像不仲，好像可以猜到是谁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 4473#       发表于 2021-11-4 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404358&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-11-4 00:50</a>
+说起来我有一网友早年看缪然后没了   跑去追国内偶像 吃的CP真不仲了 最后跑去看管人还遇上一对A⚪**VS先手 ...</blockquote>
+叫你朋友别来看星，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4474#       发表于 2021-11-4 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404508&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-4 01:08</a>
+叫你朋友别来看星，谢谢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">水虹都没看 现在沉迷国内套皮主播
+
+*****
+
+####  稀勢のささ  
+##### 4475#       发表于 2021-11-4 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404437&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-11-4 00:59</a>
+CP营业的内娱偶像不仲，好像可以猜到是谁
+
+—— 来自 samsung SM-N9860, Android 11上的 S1Next- ...</blockquote>
+好几年前的事了  本来就不认识早不记得叫啥了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yweili  
+##### 4476#       发表于 2021-11-4 02:48
+
+[https://www.bilibili.com/video/BV1g44y1i7zs](https://www.bilibili.com/video/BV1g44y1i7zs)
+
+身高差也还原了...
+
+*****
+
+####  cat1230  
+##### 4477#       发表于 2021-11-4 03:58
+
+说到底偶像团队之间也就同事关系，上台线下都是工作，关系好自然好，关系一般只要能顺利完成工作就OK。想想自己工作和周围同事也就上班会聊几句，下班成朋友的一个没有。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  lj205  
+##### 4478#       发表于 2021-11-4 07:07
+
+好不好的，反正有看大家就乐呵呵的捧场，没有就开开玩笑算了，不妨碍打工就行，除非是投票这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来之前那个封面投票不知道怎样了
+
+
+
+*****
+
+####  ads147147  
+##### 4479#       发表于 2021-11-4 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405276&amp;ptid=2028598" target="_blank">yweili 发表于 2021-11-4 02:48</a>
+https://www.bilibili.com/video/BV1g44y1i7zs
+
+身高差也还原了...</blockquote>
+看评论是找了个180的妹子来还原，大中华区找不到一个150妹子吗jpg。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  ads147147  
+##### 4480#       发表于 2021-11-4 08:03
+
+<img src="https://p.sda1.dev/3/95310334581ba65be0bacade0e178a65/IMG_CMP_145681263.jpeg" referrerpolicy="no-referrer">
+
+因为不是真的仲间所以不会有机场戏对吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kata魂  
+##### 4481#       发表于 2021-11-4 08:17
+
+<img src="https://img.saraba1st.com/forum/202111/04/081640cvz7l887o87vh2lo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-11-04-08-15-56-063_com.sina.weibo.jpg</strong> (196.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-4 08:16 上传
+
+昨晚韩国合鲤人这么high的吗
+
+
+
+*****
+
+####  player3960  
+##### 4482#       发表于 2021-11-4 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406067&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-11-04 08:17:14</a>
+昨晚韩国合鲤人这么high的吗</blockquote>看到韩国太太从live里抠出了可堇的舞蹈互动细节我都惊了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+屑导播乱切画面<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  D麦林  
+##### 4483#       发表于 2021-11-4 09:04
+
+ 本帖最后由 D麦林 于 2021-11-4 09:11 编辑 
+
+感觉我一直受到了拉拉的咒缚
+
+可能会对这边的热情冷却然后跑去推别的各种内容
+
+但是过一段时间以后不管绕多大的圈子最后还会绕回拉拉这里
+
+顺便感谢拉拉救我脱离管人苦海
+
+要不是去年虹咲动画在恰到好处的时机开播 现在我搞不好也在跟风看国内套皮人
+
+呜哇 这是什么噩梦一样的世界线
+
+*****
+
+####  cybernetics31  
+##### 4484#       发表于 2021-11-4 09:12
+
+韩国好多画师画鲤鱼的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大家都好合鲤这一口
+

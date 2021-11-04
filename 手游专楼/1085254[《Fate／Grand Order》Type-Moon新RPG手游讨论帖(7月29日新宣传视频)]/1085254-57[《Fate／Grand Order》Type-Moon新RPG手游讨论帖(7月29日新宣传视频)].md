@@ -2902,3 +2902,103 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 又要顶着逆克制打本了</blockquote>
 加成优化过了吧
 
+
+
+*****
+
+####  J-002  
+##### 84233#       发表于 2021-11-3 20:09
+
+<img src="https://img.saraba1st.com/forum/202111/03/200908a57s4lxqztbs1l47.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211103200845.jpg</strong> (491.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 20:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">来日服后抽到的第四个5星
+
+
+
+*****
+
+####  北方暴雪  
+##### 84234#       发表于 2021-11-4 00:14
+
+显示错误
+
+
+
+*****
+
+####  森兰丸  
+##### 84235#       发表于 2021-11-4 01:17
+
+银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 84236#       发表于 2021-11-4 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404595&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-11-4 01:17</a>
+
+银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗</blockquote>
+你怎么做到所有人都喂满的  我都缺一堆
+
+不过这东西基本都可以存在邮件里问题不大吧
+
+
+
+*****
+
+####  森兰丸  
+##### 84237#       发表于 2021-11-4 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404817&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-4 01:41</a>
+
+你怎么做到所有人都喂满的  我都缺一堆
+
+不过这东西基本都可以存在邮件里问题不大吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">萌新缺一堆难道不是证明了萌新是真欧洲人手上角色要比非洲人多出一堆么
+
+这都5年了啊.....每个月绿方块换满和每期活动换的加上各种送的.....我现在是已经完全溢出了
+
+
+
+*****
+
+####  khxooo  
+##### 84238#       发表于 2021-11-4 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404817&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-4 01:41</a>
+你怎么做到所有人都喂满的  我都缺一堆
+
+不过这东西基本都可以存在邮件里问题不大吧 ...</blockquote>
+不要以你欧洲萌新来想我们非洲咸鱼，我们一个月能有一只新的已经算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  黑上シグマ  
+##### 84239#       发表于 2021-11-4 08:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就五星是全满的，四星以下就没几个喂了狗的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  johnkamsar  
+##### 84240#       发表于 2021-11-4 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404595&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-11-4 01:17</a>
+银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">国服已经长期处于fufu都没人吃状态....都过期了好几批了....
+

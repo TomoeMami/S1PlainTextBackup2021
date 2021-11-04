@@ -16865,3 +16865,183 @@ v自己都摆烂了，粉丝早点看清接受不了换推接收得了就一起�
 4chan只是随时随地都要找个人来黑而已，比如Kiara出道开始被黑了一年（现在对Kiara也不怎么黑，不知道转火谁去了）
 那个最讨厌投票如果是今年6月之前做的估计JP第一名夸夸第二名tskk，绫总排不上号
 
+
+
+*****
+
+####  nian1538  
+##### 13416#       发表于 2021-11-3 18:49
+
+ 本帖最后由 nian1538 于 2021-11-3 18:55 编辑 
+
+Money earned per hour streamed in october
+
+Nakiri Ayame - $13279.09/h
+
+Houshou Marine - 3166.23/h
+
+Uruha Rushia - $1917.16/h
+
+Amane Kanata - $1261.52/h
+
+Akai Haato - $1093.69/h
+
+Minato Aqua - $1091.61/h
+
+Oozora Subaru - $953.32/h
+
+Inugami Korone - $885.26/h
+
+Hoshimachi Suisei - $868.20/h
+
+Natsuiro Matsuri - $843.57/h
+
+Shishiro Botan - $703.06/h
+
+Murasaki Shion - $680.60/h
+
+Aki Rosenthal - $625.25/h
+
+Momosuzu Nene - $623.51/h
+
+Mori Calliope - $554.53/h
+
+Shirogane Noel - $532.80/h
+
+Shirakami Fubuki - $505.54/h
+
+Yukihana Lamy - $499.30/h
+
+Ouro Kronii - $497.79/h
+
+Gawr Gura - $487.40/h
+
+Usada Pekora - $458.91/h
+
+Tsunomaki Watame - $451.87/h
+
+Yozora Mel - $440.62/h
+
+Tsukumo Sana - $412.87/h
+
+IRyS - $382.33/h
+
+Himemori Luna - $359.19/h
+
+Nekomata Okayu - $338.11/h
+
+Takanashi Kiara - $337.21/h
+
+Ceres Fauna - $329.70/h
+
+Ookami Mio - $318.17/h
+
+Shiranui Flare - $305.35/h
+
+Sakura Miko - $281.28/h
+
+Tokoyami Towa - $268.91/h
+
+Hakos Baelz - $267.94/h
+
+Nanashi Mumei - $247.65/h
+
+Kureiji Ollie - $218.05/h
+
+Watson Amelia - $201.34/h
+
+Omaru Polka - $173.25/h
+
+Ninomae Ina'nis - $167.90/h
+
+AZKi - $152.00/h
+
+Tokino Sora - $123.80/h
+
+Moona Hoshinova - $108.64/h
+
+Airani Iofifteen - $101.88/h
+
+Roboco - $95.24/h
+
+Ayunda Risu - $91.44/h
+
+Yuzuki Choco - $55.19/h
+
+Pavolia Reine - $46.77/h
+
+Anya Melfissa- $40.10/h
+
+syl: 
+
+<img src="https://img.saraba1st.com/forum/202111/03/185434akaw6wkqw6fokudq.png" referrerpolicy="no-referrer">
+
+<strong>Screen_Shot_2021-11-03_at_6.32.15_PM.png</strong> (124.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 18:54 上传
+
+
+
+*****
+
+####  nian1538  
+##### 13417#       发表于 2021-11-3 19:29
+
+这MV咋个说呢，看起来也花了点钱的，但就是感觉很cheap
+
+尤其是纸片人跳动那段
+
+和声还是那些人，OKFAMS团长船长，比Live多个Subaru
+
+但就算这样我还是觉得用不了几天就要百万了
+
+
+
+*****
+
+####  Fami水  
+##### 13418#       发表于 2021-11-3 19:41
+
+饥饿营销
+
+
+
+*****
+
+####  Fami水  
+##### 13419#       发表于 2021-11-3 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 白A就少了个绫总
+
+
+
+*****
+
+####  cctvyt1  
+##### 13420#       发表于 2021-11-3 23:06
+
+放首歌收了19万日圆 赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/03/230620ckl1pwzmqalu1z1f.jpg" referrerpolicy="no-referrer">
+
+<strong>翻唱.JPG</strong> (109.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 23:06 上传
+
+
+
+*****
+
+####  昆西昆希昆  
+##### 13421#       发表于 2021-11-3 23:42
+
+ 本帖最后由 昆西昆希昆 于 2021-11-3 23:55 编辑 
+
+getting slapped by her bf是从哪来的消息，百鬼组这不得把妹夫堵在家门口？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+传言的起因难道是绫总最近一直在单排？
+

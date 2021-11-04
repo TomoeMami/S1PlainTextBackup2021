@@ -8727,3 +8727,189 @@ vspo这两新人挂着听还挺治愈的
 
 到时候我也说点自己的心得好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 8120#       发表于 2021-11-3 17:20
+
+<img src="https://img.saraba1st.com/forum/202111/03/172022i80at6z8zihyqq0z.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (9.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 17:20 上传
+
+
+
+*****
+
+####  free  
+##### 8121#       发表于 2021-11-3 17:40
+
+烂货圆脸的猫，看起来很凶，希望它把圆脸的脸给挠破<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/03/174017zgdqud782z231oy2.png" referrerpolicy="no-referrer">
+
+<strong>烂货圆脸的猫.png</strong> (43.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 17:40 上传
+
+
+
+*****
+
+####  毛头小希  
+##### 8122#       发表于 2021-11-3 18:35
+
+EDEN组NIJISANJI Cafe联动纪念甜食脑洞大会火热进行中
+
+虽然这是豆猫哥发起的企划而不是工商
+
+不过这组新人出道三个月多点都上了几次公式番组接了几个工商了
+
+enkr终于领会贵精不贵多的道理了吗
+
+1635933862021.jpg
+(264.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-3 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202111/03/183207haya8z4ykwsn2y28.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  OldGlory  
+##### 8123#       发表于 2021-11-3 19:57
+
+其实去年五色战队三个月那会也有工商接的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 8124#       发表于 2021-11-3 19:58
+
+鲨鱼头（JP）别又要被烧就行。
+
+
+
+*****
+
+####  黑之和  
+##### 8125#       发表于 2021-11-3 21:09
+
+彩虹的男主播们是大主播了，开始学会放观众鸽子了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  AraTurambar  
+##### 8126#       发表于 2021-11-3 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53382563&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-11-2 19:09</a>
+
+https://www.youtube.com/watch?v=BF_FmInMcgU
+
+全动画打戏...
+
+le jouet，堂堂复活！</blockquote>
+这两身皮套也太好看了吧！我爱了TvT求指路是哪个V呀？
+
+
+
+*****
+
+####  ヒトニナル  
+##### 8127#       发表于 2021-11-3 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402190&amp;ptid=1972669" target="_blank">AraTurambar 发表于 2021-11-3 21:37</a>
+这两身皮套也太好看了吧！我爱了TvT求指路是哪个V呀？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右上角不是写着イブラヒム吗
+
+泥楼怎么突然来了纯良新人
+
+*****
+
+####  AraTurambar  
+##### 8128#       发表于 2021-11-3 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402424&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-11-3 21:53</a>
+
+右上角不是写着イブラヒム吗
+
+泥楼怎么突然来了纯良新人</blockquote>
+哦哦哦哦哦谢谢，是我看走眼了没注意到。
+
+谢谢谢谢，原来也是彩虹社的男人。
+
+黑皮舔舔舔舔。
+
+
+
+*****
+
+####  poipanchao  
+##### 8129#       发表于 2021-11-3 22:35
+
+hnn这是吸取教训，赛季初就把kmt抓在手里了吗
+
+真是坏女人
+
+
+
+*****
+
+####  FCCHua  
+##### 8130#       发表于 2021-11-3 22:53
+
+ 本帖最后由 FCCHua 于 2021-11-3 22:58 编辑 
+
+坏女人前几天杂谈有说新赛季会三排，但是giru今晚还没来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  死体残留  
+##### 8131#       发表于 2021-11-3 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402471&amp;ptid=1972669" target="_blank">AraTurambar 发表于 2021-11-3 21:56</a>
+哦哦哦哦哦谢谢，是我看走眼了没注意到。
+
+谢谢谢谢，原来也是彩虹社的男人。</blockquote>
+【【全熟/伊卜拉新】新衣装披露  实况play2-哔哩哔哩】https://b23.tv/ISFg4h
+
+全熟都有了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 8132#       发表于 2021-11-3 23:59
+
+久违看了郡郡的原神抽卡，悲惨过头有点看难受了，想起我因为沉船a掉的那些个手游。不过还是有点好事的，郡去和圭利组队打喷喷了，虽说这个组合人选我是有点觉得是对liver的调笑，但是联动还是好的…
+
+
+
+*****
+
+####  AraTurambar  
+##### 8133#       发表于 2021-11-4 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403853&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-3 23:55</a>
+
+【【全熟/伊卜拉新】新衣装披露  实况play2-哔哩哔哩】[https://b23.tv/ISFg4h](https://b23.tv/ISFg4h)
+
+全熟都有了 ...</blockquote>
+感谢！美味的男人hhhhh
+
+黑皮还是比冷白皮美味。虽然兰陵王既视感，尤其在面具那里www
+

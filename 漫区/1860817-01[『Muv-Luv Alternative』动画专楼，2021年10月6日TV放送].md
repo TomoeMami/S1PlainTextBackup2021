@@ -18814,3 +18814,204 @@ steam上的有和谐内容么</blockquote>
 
 pm这个游戏，也有小麻的剧情，但是没给cg。游戏换到1.5世代的零件移动操作就能好很多了，第一世代的那机动性太烂了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1303#       发表于 2021-11-4 00:33
+
+其实游戏玩过了，出的几部动画也看了，不客气地说，战术机这个表现，和移动棺材差得不多……
+
+被beta（例如光线级）或者其他战术机直接击毁（例如沙雾尚哉）就不说了，算是萝卜片正常演出。但还有一种是驾驶舱受了一点伤害，导致无法开门离开驾驶舱的，只能被beta活活屈死。mla游戏有描述甲21的hive先遣部队遭到beta伏击，战术机上爬了几只战车级，就连队友都没办法了，记得队友一开始的方案是用小刀把战车级一点一点刮掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+战术机的结构也从来没有驾驶舱弹射设计，理论上卫士的性命比战术机重要得多（培养成本高），却从来不完善安全措施……看来是默认卫士都是不成功便成仁了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这方面可能作者是想表现beta的强大，但另一方面却显得战术机很弱<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hacisiki  
+##### 1304#       发表于 2021-11-4 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404218&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-4 00:33</a>
+
+其实游戏玩过了，出的几部动画也看了，不客气地说，战术机这个表现，和移动棺材差得不多……
+
+被beta（例如 ...</blockquote>
+弹射是可以弹射，里面还有一套作战用的动力外骨骼。只能说人类的材料学强度是有极限的。
+
+因为GEN1战术机的教训里面很重要的一件事就是装甲无用，机动才是王道。于是不停的削弱装甲增加机动性，代价之一就是骨架和蒙皮都变弱了。
+
+
+
+*****
+
+####  hacisiki  
+##### 1305#       发表于 2021-11-4 00:41
+
+为了提高瞬间机动性在减重的同时还要抬高中心。大部分gen2和所有gen3能站稳全靠电脑不停的调整站立情况下的重心。
+
+
+
+*****
+
+####  hlazd  
+##### 1306#       发表于 2021-11-4 01:19
+
+这集3v3演习真挺眼花缭乱的<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">充分体现了新OS的牛逼
+
+
+
+*****
+
+####  hacisiki  
+##### 1307#       发表于 2021-11-4 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404613&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-11-4 01:19</a>
+
+这集3v3演习真挺眼花缭乱的充分体现了新OS的牛逼</blockquote>
+2D作画一如既往的崩坏，我都习惯了。现在突然开始期待12.5的66战术机大队登场了。
+
+*****
+
+####  半分宅  
+##### 1308#       发表于 2021-11-4 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404218&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-3 12:33</a>
+
+其实游戏玩过了，出的几部动画也看了，不客气地说，战术机这个表现，和移动棺材差得不多……
+
+被beta（例如 ...</blockquote>
+标准处理方法就是用小刀贴着装甲往下刮（黑宣和战棋游戏都有相关描述），A-10和部分三代机在重点部位贴了阔剑地雷可以把扒上来的战车级直接炸飞。战棋游戏中等级足够高的中队可以用36mm点射处理，或者让坦克用12.7mm帮忙抓痒，但其他作品没有这类情节。
+
+驾驶舱弹射设计是有的，整个驾驶舱弹射出去后展开成一副机动外骨骼。对人战还算有用，但对BETA战时要是不能保证落在己方常规部队附近，那还是掏出手枪给自己来个痛快比较好。
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 1309#       发表于 2021-11-4 01:56
+
+ 本帖最后由 再买自检星剁手 于 2021-11-4 01:59 编辑 
+
+小珠爸爸这段还原度蛮高的
+
+纯夏回忆杀这段，白银的声音不太对，像是初高中的武和幼年纯夏在对话。游戏里是更正太的声音（没钱另请声优么），不过圣诞礼物和兔子对上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+原来pv2就是第五集抽出来的，会动的战术机总比原作靠纸片移动好很多
+
+女武神队提前出场也是预料不到
+
+冥夜党可以瞑目了，练刀画面没崩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+没记错的话穿越回去一趟，回来就开始12.5事件了，现在第五集，穿越快的话一集内可以完成，把原作冗长的对话压缩压缩，搞不好第十集就小队毕业，第一季在新os展示遭遇beta或者名场面结束，让观众意识到抹布拉布不是个爽文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ReginaldMorgan  
+##### 1310#       发表于 2021-11-4 02:10
+
+ 本帖最后由 ReginaldMorgan 于 2021-11-4 02:12 编辑 
+
+战术机打个四分钟，只能说确实也是大人的原因了
+
+这集没提到/额外注意到的几个点，供动画党参考：
+
+1、HSST坠落的解决本身是alt5推动者、alt4推动者、希望尽快攻打喀什的人多方角力的一个结果
+
+2、月咏真那那段确实删了应该是，“请千万不要……背叛冥夜小姐的心意”
+
+3、“出现个知道未来的人，也太出人意料了吧！只会让人焦急，却什么忙都帮不上！” 这大概是香月夕呼失态的根本原因
+
+4、原来世界老师的点子是打游戏得到的，这个世界没有游戏，所以没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+5、原来这集还没结束第四章……不会真的是三个季度的动画吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+btw，女武神我数了半天是不是少了凉宫遥，然后想起来凉宫遥是中央指挥的不上机
+
+*****
+
+####  hlazd  
+##### 1311#       发表于 2021-11-4 02:21
+
+数数125的内容，66大队登场救人那一场，PV1里的月詠对沙霧不可少的一场，然后动画扶正了駒木那么她对伊隅的那场也得有……这有得打了
+
+*****
+
+####  再买自检星剁手  
+##### 1312#       发表于 2021-11-4 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405051&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-4 02:10</a>
+战术机打个四分钟，只能说确实也是大人的原因了
+
+这集没提到/额外注意到的几个点，供动画党参考：</blockquote>
+原作吐槽是ps2上的超垃圾rpg，这方面应该体现了吉宗钢纪不喜欢ps2，但后来还是为了游戏销量给ps做了移植<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+207b小队阵容豪华变成了从夕乎口里说出来，hsst事件后面应该会解释。
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  再买自检星剁手  
+##### 1313#       发表于 2021-11-4 02:32
+
+12.5还有一个重要内容，和美军战术机通信，英语吃屎环节，再提一次漂亮国抛弃小弟的行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  最后的法芙娜  
+##### 1314#       发表于 2021-11-4 07:38
+
+有人尝鲜去玩那新的游戏吗，看画面这不是手游上pc？
+
+
+
+*****
+
+####  球獭  
+##### 1315#       发表于 2021-11-4 07:52
+
+云了下新游，挺辣鸡的
+
+*****
+
+####  angela5d30  
+##### 1316#       发表于 2021-11-4 07:58
+
+非原著党，萝卜戏有好几分钟，值了。蛮好奇老师是不是连这次的世界线也会迎来失败的结局，我总感觉这作品是那个走向在旁枝末节上会因为男主的作为有些许分歧，可撇开小队成员的最终结局，其他事大体上不会有差异？这样的话有点意思。前半那类后宫向搞笑展开我都不知道多少年没看过有类似情节的动画片了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  球獭  
+##### 1317#       发表于 2021-11-4 08:56
+
+这么强力的os，感觉ate那边战术机开发了个寂寞，不过夕呼和白银武是天选之子没有办法<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，这样看来黑宣里拿着破烂机体进行光线呐喊，后面还顶着个辣鸡国家是真的惨
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 1318#       发表于 2021-11-4 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406444&amp;ptid=1860817" target="_blank">球獭 发表于 2021-11-4 08:56</a>
+这么强力的os，感觉ate那边战术机开发了个寂寞，不过夕呼和白银武是天选之子没有办法，这样看来黑宣 ...</blockquote>
+beta世界一开始就是为白银定制的，他不是天选谁是
+
+beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军工
+
+白银的灵感来自电脑战机，beta世界没有电子游戏，自然没人想到这个思路。虽然层主第一次看到画面的时候以为是高达exvs动物园<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
