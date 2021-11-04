@@ -309,3 +309,23 @@
 人可爱，天然呆，身高差，宅力高，会营业会整活x</blockquote>
 宅力高为什么也能成为吸引女孩子的要素
 
+
+
+*****
+
+####  darkendless  
+##### 4524#       发表于 2021-11-4 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412763&amp;ptid=2028598" target="_blank">名津流 发表于 2021-11-4 15:40</a>
+
+宅力高为什么也能成为吸引女孩子的要素</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">是我喜欢鲤鱼姐的要素之一，虽然我不是女孩子。但是鲤鱼姐知道大家想看什么和宅力高肯定有关系的。
+
+*****
+
+####  chenflyyy  
+##### 4525#       发表于 2021-11-4 15:51
+
+BV1ML4y1q7oX
+昨天的生放不到半天就出熟肉了，也太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

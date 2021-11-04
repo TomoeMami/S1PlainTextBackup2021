@@ -727,3 +727,17 @@ FB是想借机搞自己的虚拟货币，其它的也是很多 ...</blockquote>
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  sjtdd  
+##### 68#       发表于 2021-11-4 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53408309&amp;ptid=2035657" target="_blank">eulereld 发表于 2021-11-4 10:40</a>
+
+不明白元宇宙有什麼特別出眾、非發展不可的地方
+
+我在現實世界已經活得夠辛苦了，還要跳到另一個世界過沒啥 ...</blockquote>
+小扎一边收集个人信息，一边发天秤币，一边搞元宇宙把人圈起来，可惜公司没改名叫cyberzuck<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
