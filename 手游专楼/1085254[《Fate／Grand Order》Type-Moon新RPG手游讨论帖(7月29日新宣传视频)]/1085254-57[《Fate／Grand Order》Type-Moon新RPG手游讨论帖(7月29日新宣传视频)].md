@@ -3109,3 +3109,12 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 本来不打算抽的，不过助战试用了下意外的觉得有意思，丢了3发11连啥也没有，正在考虑要不要把手头剩下的一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说谁 卑弥呼?  1年估计也用不了1次 厨力外真不建议抽
 
+
+
+*****
+
+####  zore  
+##### 84252#       发表于 2021-11-4 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种卡不都是box越深越不用抽的
+

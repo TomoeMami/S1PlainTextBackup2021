@@ -593,3 +593,12 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跳绳当然是为了衬托出其他商品的性价比
 
+
+
+*****
+
+####  Norkey1  
+##### 4547#       发表于 2021-11-4 21:56
+
+跳绳不是送了个袋子吗，看成买收纳袋送跳绳就感觉不那么亏了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
