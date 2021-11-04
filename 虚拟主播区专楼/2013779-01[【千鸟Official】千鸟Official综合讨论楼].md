@@ -14681,3 +14681,21 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 没关系，你至少还有我们。我就很喜欢你的小作文，多写点，我一转给静姨静姨就回我小学男生又来赖皮了[f:0 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也有过相同想法不过没想到你先实施了
 
+
+
+*****
+
+####  憧憬鲨  
+##### 1261#       发表于 2021-11-4 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53407297&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-4 09:48</a>
+没关系，你至少还有我们。我就很喜欢你的小作文，多写点，我一转给静姨静姨就回我小学男生又来赖皮了[f:0 ...</blockquote>
+邪恶！
+
+*****
+
+####  莫洛骑士  
+##### 1262#       发表于 2021-11-4 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">那你能把截图发给我也让我有点参与感吗
+
