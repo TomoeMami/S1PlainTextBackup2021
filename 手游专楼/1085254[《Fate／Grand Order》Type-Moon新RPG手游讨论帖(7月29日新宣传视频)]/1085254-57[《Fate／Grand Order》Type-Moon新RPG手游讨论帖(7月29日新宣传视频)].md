@@ -2967,3 +2967,16 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 这都5年了啊.....每个月绿方块换满和每期活动换的加上各种送的.....我现在是已经完全溢出了
 
+
+
+*****
+
+####  khxooo  
+##### 84238#       发表于 2021-11-4 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404817&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-4 01:41</a>
+你怎么做到所有人都喂满的  我都缺一堆
+
+不过这东西基本都可以存在邮件里问题不大吧 ...</blockquote>
+不要以你欧洲萌新来想我们非洲咸鱼，我们一个月能有一只新的已经算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

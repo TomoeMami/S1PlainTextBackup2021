@@ -16852,3 +16852,18 @@ CP营业的内娱偶像不仲，好像可以猜到是谁
 
 好不好的，反正有看大家就乐呵呵的捧场，没有就开开玩笑算了，不妨碍打工就行，除非是投票这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来之前那个封面投票不知道怎样了
 
+
+
+*****
+
+####  ads147147  
+##### 4479#       发表于 2021-11-4 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405276&amp;ptid=2028598" target="_blank">yweili 发表于 2021-11-4 02:48</a>
+https://www.bilibili.com/video/BV1g44y1i7zs
+
+身高差也还原了...</blockquote>
+看评论是找了个180的妹子来还原，大中华区找不到一个150妹子吗jpg。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
