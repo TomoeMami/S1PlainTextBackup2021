@@ -3084,3 +3084,33 @@ win商店现在重启不会进度条直接没了吗
 win商店现在重启不会进度条直接没了吗</blockquote>
 我前几天重开两三次没问题 但楼上好像有人遇到了
 
+
+
+*****
+
+####  lxx4869  
+##### 259#       发表于 2021-11-4 23:10
+
+没碰到过闪退，不过win商店有时候报错，重启系统能解决或者从xbox进
+
+*****
+
+####  nemunoki  
+##### 260#       发表于 2021-11-4 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么关西漂移这个傻逼翻译从4代照搬过来还没修正
+
+明明是 KANSEI DORIFUTO 惯性漂移的经典梗
+
+*****
+
+####  爱护动物抓根宝  
+##### 261#       发表于 2021-11-4 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418645&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-4 23:13</a>
+
+为什么关西漂移这个傻逼翻译从4代照搬过来还没修正
+
+明明是 KANSEI DORIFUTO 惯性漂移的经典梗 ...</blockquote>
+播放列表这个翻译已经传承了不知道多少代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

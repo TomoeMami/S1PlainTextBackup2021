@@ -15264,3 +15264,22 @@ syl:莫子啥时候写下一篇啊
 我刚回家就真寄了
 <img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">为什么会这样
 
+
+
+*****
+
+####  rgauss  
+##### 1325#       发表于 2021-11-4 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418480&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-4 22:59</a>
+
+手机直播好啊，黑屏养gachi，到时候静妈再来句“XX你外卖来了”</blockquote>
+010是吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  德里达幽灵  
+##### 1326#       发表于 2021-11-4 23:14
+
+不要散啊，现在开始搞万象天引来得及吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
