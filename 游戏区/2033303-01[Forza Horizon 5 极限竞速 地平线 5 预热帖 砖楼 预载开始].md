@@ -2318,3 +2318,14 @@ mc涨到91了，这也忒稳了<img src="https://static.saraba1st.com/image/smil
 稳如死狗 tga能不能给个goty的候选名额啊 给playground点鼓励</blockquote>
 今年竞争那么弱，疫情影响最大年，提名应该是没问题了。问题是赢下来而已（不无可能）。
 
+
+
+*****
+
+####  iou90  
+##### 180#       发表于 2021-11-4 16:33
+
+[https://ftw.usatoday.com/2021/11/forza-horizon-5-review](https://ftw.usatoday.com/2021/11/forza-horizon-5-review)
+
+mckkrik港说感觉95%时间是在白天 夜晚时间过短？
+

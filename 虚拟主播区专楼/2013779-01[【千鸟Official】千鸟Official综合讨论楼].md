@@ -14848,3 +14848,30 @@ syl:莫子啥时候写下一篇啊
 我现在把这个私信当成千鸟完蛋末日钟了，可别告诉我月底 ...</blockquote>
 很喜欢阿姨的一句话:“千鸟不炸好像对不起你们”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tn_teana  
+##### 1277#       发表于 2021-11-4 16:35
+
+妖女把炸弹人**成mmr
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 1278#       发表于 2021-11-4 16:37
+
+我一直是mmr啊，鸟不灭！🖖
+
+*****
+
+####  T型钉宫病毒  
+##### 1279#       发表于 2021-11-4 16:44
+
+“先走的一定是你们”
+
+懂不懂这句话的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
