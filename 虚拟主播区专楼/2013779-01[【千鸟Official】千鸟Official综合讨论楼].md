@@ -14564,3 +14564,21 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 为什么被举办的没有我，我也想找个理由发私信啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 1249#       发表于 2021-11-4 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406485&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-4 08:58</a>
+为什么被举办的没有我，我也想找个理由发私信啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">你发过超市就极容易被举报 我上个号就是这么进去的
+
+*****
+
+####  丢了五块钱  
+##### 1250#       发表于 2021-11-4 09:39
+
+我被举办了给静姨发，根本不理我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

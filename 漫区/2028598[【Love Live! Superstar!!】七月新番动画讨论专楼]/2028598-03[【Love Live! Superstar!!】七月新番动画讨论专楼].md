@@ -16938,3 +16938,17 @@ https://www.bilibili.com/video/BV1g44y1i7zs
 
 韩国好多画师画鲤鱼的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大家都好合鲤这一口
 
+
+
+*****
+
+####  kata魂  
+##### 4485#       发表于 2021-11-4 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406313&amp;ptid=2028598" target="_blank">player3960 发表于 2021-11-4 08:45</a>
+
+看到韩国太太从live里抠出了可堇的舞蹈互动细节我都惊了
+
+屑导播乱切画面</blockquote>
+那个我倒是看到了，不过不太确定，鲤鱼转身做个动作正好屏幕切到pay的耸肩，感觉就是有点什么。导播跟个动画组似的，总是切不到全员
+
