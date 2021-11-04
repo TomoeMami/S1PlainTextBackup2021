@@ -2991,3 +2991,14 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  johnkamsar  
+##### 84240#       发表于 2021-11-4 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404595&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-11-4 01:17</a>
+银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">国服已经长期处于fufu都没人吃状态....都过期了好几批了....
+
