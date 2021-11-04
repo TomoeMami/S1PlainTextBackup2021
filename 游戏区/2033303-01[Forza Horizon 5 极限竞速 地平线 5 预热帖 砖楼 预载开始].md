@@ -2238,3 +2238,39 @@ GS 9
 
 a9和鸡盒评测出了
 
+
+
+*****
+
+####  pl0okm  
+##### 171#       发表于 2021-11-4 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412046&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-4 14:49</a>
+微软商店莫名其妙下载没速度好久了,预购点了安装完全没反应,退款买steam版去了 ...</blockquote>
+usbeam有win10商店下载加速规则和使用方法 微软在内地有节点 换ip要重启传递内容服务 不换ip只重启有时候也能解决
+
+*****
+
+####  qianoooo  
+##### 172#       发表于 2021-11-4 15:19
+
+稳如死狗 tga能不能给个goty的候选名额啊 给playground点鼓励
+
+*****
+
+####  吃鸡南小鸟  
+##### 173#       发表于 2021-11-4 15:20
+
+MC 28个媒体90分，还是这么稳定，没有任何意外
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  saberserker  
+##### 174#       发表于 2021-11-4 15:25
+
+4代全靠刚开始的vip房bug起家，能不能把以前抽奖双倍钱改回来啊
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

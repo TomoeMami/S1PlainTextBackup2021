@@ -8956,3 +8956,42 @@ https://youtu.be/WN-eMf-H0as
 
 二番手篮球 阳角 会小提琴 喜欢音游 喜欢nba 处不了
 
+
+
+*****
+
+####  硫黄  
+##### 8139#       发表于 2021-11-4 15:09
+
+像路边随便抓了两个素人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 8140#       发表于 2021-11-4 15:10
+
+ 本帖最后由 死体残留 于 2021-11-4 15:18 编辑 
+
+https://youtu.be/dxmBBvlHCYA
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">喜欢bl饮酒赌马甜食 伏见的同位体么 观感比前两个好
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">男校 正太控 bl 这野心好大 什么要素都叠上去啊
+
+*****
+
+####  空集  
+##### 8141#       发表于 2021-11-4 15:15
+
+第三个点进去听了一下就不是那么素了 虽然还是明显在找话
+
+*****
+
+####  空集  
+##### 8142#       发表于 2021-11-4 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411446&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-4 14:05</a>
+[https://youtu.be/tdXwHsTeOVA](https://youtu.be/tdXwHsTeOVA)
+
+一番手 声音好素人的样子 没辨识性</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 听了一下 T台随便播的感觉都要更恰一点  这个真的太素了，配合这皮太违和了。
+

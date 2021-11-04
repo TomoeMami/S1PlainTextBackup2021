@@ -684,3 +684,35 @@ metagame不是20年前黄油里就有了吗，怎么又拿出来说事？
 
 这年头皇帝的新衣是一门正经生意
 
+
+
+*****
+
+####  dumplingpro  
+##### 65#       发表于 2021-11-4 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53408529&amp;ptid=2035657" target="_blank">高龙 发表于 2021-11-4 10:52</a>
+
+PSHOME已经证明了纯社交3D虚拟社区根本没人乐于耗时在里面。
+
+FB是想借机搞自己的虚拟货币，其它的也是很多 ...</blockquote>
+虽然确实是炒币，
+
+但干巴巴的社交不行，有玩家自己创造的内容的话，虚拟社区是没问题的，VRchat确实有不少人长期沉迷，而且忠诚度高舍得花钱（全身动捕设备普及率很高）。
+
+*****
+
+####  dumplingpro  
+##### 66#       发表于 2021-11-4 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53408791&amp;ptid=2035657" target="_blank">C.W.Nimitz 发表于 2021-11-4 11:08</a>
+
+微软自己不可能不知道这玩意不过是空中楼阁脱裤子放屁。
+
+所谓元宇宙只能具体到某个产品实现“更高层级” ...</blockquote>
+但确实也有人喜欢手舞足蹈玩健身环，抬着手BIUBIUBIU玩乌贼娘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也有人明明躺着打个电话就行的事情，非要开摄像头视频通话。
+
+这个算是个人爱好问题。
+
