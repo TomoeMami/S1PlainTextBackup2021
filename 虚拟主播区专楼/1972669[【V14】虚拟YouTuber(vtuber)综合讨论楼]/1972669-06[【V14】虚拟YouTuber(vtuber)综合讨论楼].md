@@ -9069,3 +9069,15 @@ https://twitter.com/Arte_Refact/status/1456109197116936196
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">原来等到今天才发道歉
 
+
+
+*****
+
+####  本间日阳  
+##### 8150#       发表于 2021-11-4 20:05
+
+ 本帖最后由 本间日阳 于 2021-11-4 20:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">还有这种事啊，松井洋平给我喜欢的动画写了很多词，我还蛮喜欢他的。
+顺带一提他给KING OF PRISM也写了不少歌，而KOP最近和HoloStars联动卖谷了。
+

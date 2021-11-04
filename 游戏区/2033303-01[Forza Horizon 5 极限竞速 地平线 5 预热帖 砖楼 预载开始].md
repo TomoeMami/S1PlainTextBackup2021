@@ -2729,3 +2729,56 @@ pc一直闪退怎么办
 
 怎么修改安装位置啊，c盘实在空不出100g啊
 
+
+
+*****
+
+####  Tjodrek  
+##### 226#       发表于 2021-11-4 20:02
+
+那几个车为什么领不了，4代也是这样吗
+
+*****
+
+####  Totokei  
+##### 227#       发表于 2021-11-4 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416216&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-4 20:01</a>
+只能全程断网？
+
+—— 来自 samsung SM-G9860, Android 11上的 S1Next-鹅版 v2.4.3</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只希望是未到发行时间偷渡的原因了，断网的时候还没闪退过
+
+*****
+
+####  arctichan  
+##### 228#       发表于 2021-11-4 20:05
+
+相比4，没体会到画面上太大的进步。
+不过养老圣地的风景比英国壮观太多了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aaronluray  
+##### 229#       发表于 2021-11-4 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416192&amp;ptid=2033303" target="_blank">D-JoeII 发表于 2021-11-4 19:58</a>
+
+我是大部份都沒看</blockquote>
+哈哈哈看到介绍玩家自定义那段我有100个槽想吐，最后忍住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pl0okm  
+##### 230#       发表于 2021-11-4 20:10
+
+ 本帖最后由 pl0okm 于 2021-11-4 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416116&amp;ptid=2033303" target="_blank">rak1 发表于 2021-11-4 19:53</a>
+
+升级包里面的车和VIP还不能领？</blockquote>
+我xgp+捆绑包也不能领 能提前玩但不能领
+
+车包里点购买跳到win10还提示已拥有 绝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -565,3 +565,22 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 4544#       发表于 2021-11-4 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412222&amp;ptid=2028598" target="_blank">土豆不土 发表于 2021-11-4 15:07</a>
+我身边还真都是女孩子更喜欢鲤鱼，男性更喜欢小百合的</blockquote>
+没看熟的时候觉得小百合和鲤鱼甚至有点撞脸。
+
+*****
+
+####  仟音一心  
+##### 4545#       发表于 2021-11-4 20:13
+
+看了群马Day1和Day2对比觉得Day2的导播会多了，简直是养成系导播。
+但是Day2的小百合和Pay酱明显累多了。
+
