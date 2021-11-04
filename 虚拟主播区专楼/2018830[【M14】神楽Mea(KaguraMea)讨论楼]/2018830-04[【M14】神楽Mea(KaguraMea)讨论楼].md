@@ -1769,3 +1769,12 @@ tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 不会，明天要出门
 
+
+
+*****
+
+####  时间在我手中  
+##### 4702#       发表于 2021-11-5 01:20
+
+明晚再熬吧肥婆，navi比赛要明天。今天就X队和G2的比赛懒得看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
