@@ -14642,3 +14642,42 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 谢谢 看到了，真是出乎意料</blockquote>
 求给个提示<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  赤星ビスコ  
+##### 1257#       发表于 2021-11-4 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53408296&amp;ptid=2013779" target="_blank">可符香教主 发表于 2021-11-4 10:38</a>
+求给个提示</blockquote>
+去国外新闻网站看大陆相关的昨天或者前天的新闻，都报道了
+
+*****
+
+####  tankai  
+##### 1258#       发表于 2021-11-4 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406328&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-4 08:47</a>
+404半年就准备继续套皮了，是不是说明竞业协议根本没给钱啊</blockquote>
+合同解除就可以。
+
+*****
+
+####  tankai  
+##### 1259#       发表于 2021-11-4 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53407297&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-4 09:48</a>
+没关系，你至少还有我们。我就很喜欢你的小作文，多写点，我一转给静姨静姨就回我小学男生又来赖皮了[f:0 ...</blockquote>
+笑死我了，他输麻了。
+
+*****
+
+####  灰色的狐狸  
+##### 1260#       发表于 2021-11-4 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53407297&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-4 09:48</a>
+
+没关系，你至少还有我们。我就很喜欢你的小作文，多写点，我一转给静姨静姨就回我小学男生又来赖皮了[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也有过相同想法不过没想到你先实施了
+
