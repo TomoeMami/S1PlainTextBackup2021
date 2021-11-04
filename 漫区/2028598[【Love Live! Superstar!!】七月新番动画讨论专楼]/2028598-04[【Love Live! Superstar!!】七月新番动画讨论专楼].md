@@ -532,3 +532,25 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 「只有买了这个的人才能对官方扔石头」</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个标题过于直球，太草了
 
+
+
+*****
+
+####  普之舜舜  
+##### 4541#       发表于 2021-11-4 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415028&amp;ptid=2028598" target="_blank">kbtit 发表于 2021-11-4 18:30</a>
+这个标题过于直球，太草了</blockquote>
+一个跳绳280人民币，只有足够喜欢的才买呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Karin11974  
+##### 4542#       发表于 2021-11-4 18:45
+
+讲道理，买这些周边的不都是信仰充值的，没多少真拿来用的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

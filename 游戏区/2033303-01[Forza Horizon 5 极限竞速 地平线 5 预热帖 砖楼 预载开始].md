@@ -2410,3 +2410,76 @@ pc一直闪退怎么办
 没有 改装还是那样 像样套件都没多少 地平线现在就是走车多路线 不精
 发售前实机很多啊 媒体版都半个多月了吧
 
+
+
+*****
+
+####  萱时令  
+##### 190#       发表于 2021-11-4 18:49
+
+这作提升主要就地图和引擎声实录吧
+其他都还3 4那样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  peshing  
+##### 191#       发表于 2021-11-4 18:57
+
+**的连续闪退，就这还最佳赛车游戏？
+
+*****
+
+####  天神十三煞  
+##### 192#         楼主| 发表于 2021-11-4 18:59
+
+商店版 基里巴斯 联网 没问题
+
+这作物理引擎也少许变化了，画面细节提升还是很多的，比如开片泥地，抛出来的是泥浆了
+
+*****
+
+####  onezer0618  
+##### 193#       发表于 2021-11-4 19:00
+
+好急，在加班，明天才能玩，另外这次有国产车吗
+
+*****
+
+####  chan  
+##### 194#       发表于 2021-11-4 19:02
+
+新西兰人开始了！
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hokagokenjatime  
+##### 195#       发表于 2021-11-4 19:04
+
+请问一下，我是pc，借的朋友的xgpu，改区能玩吗
+
+*****
+
+####  Hanzong  
+##### 196#       发表于 2021-11-4 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415380&amp;ptid=2033303" target="_blank">hokagokenjatime 发表于 2021-11-4 19:04</a>
+请问一下，我是pc，借的朋友的xgpu，改区能玩吗</blockquote>
+能啊
+不过现在xgppc 3个月只要10块，用不着借啊
+
+*****
+
+####  爱护动物抓根宝  
+##### 197#       发表于 2021-11-4 19:04
+
+我win11 beta反而啥问题都没遇到，就是第一次做沙尘暴任务时地面有闪烁，后面有没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无连斩  
+##### 198#       发表于 2021-11-4 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">一开机要更新20G
+

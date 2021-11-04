@@ -15023,3 +15023,21 @@ syl:莫子啥时候写下一篇啊
 
 文静 你把乐子人变成mmr
 
+
+
+*****
+
+####  小憨1  
+##### 1295#       发表于 2021-11-4 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415039&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-4 18:31</a>
+1327有点东西哈哈.晚上打SC看看她如何...不对不是不看单幕了么?</blockquote>
+不开弹幕姬了，她那边能看弹幕，只是不放到obs给观众看了
+
+*****
+
+####  T型钉宫病毒  
+##### 1296#       发表于 2021-11-4 18:59
+
+文静大主播了，现在热车都要热快十分钟<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
