@@ -14710,3 +14710,16 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 那你能把截图发给我也让我有点参与感吗</blockquote>
 写一篇换一张，加油吧，莫洛骑士<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 1264#       发表于 2021-11-4 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410149&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-4 00:37</a>
+写一篇换一张，加油吧，莫洛骑士</blockquote>
+捏麻麻的资本家都没你黑心<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+syl <img src="https://p.sda1.dev/3/3d8c5e1325489f7e0ee5577d2e4af571/IMG_CMP_101338744.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/6e9a148cc66c5a4f7b9519342bcd2a19/971182255153217CE25CE320C9615F00.jpg" referrerpolicy="no-referrer">
+
