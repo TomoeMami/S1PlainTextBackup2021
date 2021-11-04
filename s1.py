@@ -6,7 +6,7 @@ import re
 import time
 import sys
 import io
-import os
+import os,shutil
 import json
 import math
 import asyncio,aiohttp
@@ -156,19 +156,28 @@ async def UpdateThread(threaddict,semaphore):
                 url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
                 async with session.get(url,headers=headers) as response:
                     result = await response.content.read()
-
         namelist, replylist,totalpage,newtitles= parse_html(result)
         titles = threaddict['title']
         thdata[threaddict['id']]['newtitle'] = newtitles
         if(thdata[threaddict['id']]['title'] =='待更新'):
             titles = newtitles
         #采取增量更新后仅第一次更新标题
-        if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000 or totalpage == 1):
+        if (totalpage == 1):
             thdata[threaddict['id']]['active'] = False
             filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
             mkdir(filedir)
             with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
                 f.write('1')
+        elif((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000):
+            thdata[threaddict['id']]['active'] = False
+            if(totalpage > 50):
+                filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
+            else:
+                filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
+            mkdir(rootdir+'已归档/')
+            filedir_des =rootdir+'已归档/'+thdata[threaddict['id']]['category']+'/'
+            mkdir(filedir_des)
+            shutile.move(filedir_src,filedir_des)
         elif(totalpage >= lastpage):
         # else:
             if(totalpage > 50):
