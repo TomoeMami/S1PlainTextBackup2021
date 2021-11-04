@@ -2980,3 +2980,14 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 不过这东西基本都可以存在邮件里问题不大吧 ...</blockquote>
 不要以你欧洲萌新来想我们非洲咸鱼，我们一个月能有一只新的已经算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84239#       发表于 2021-11-4 08:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就五星是全满的，四星以下就没几个喂了狗的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
