@@ -478,3 +478,43 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 通常版是单人，然后闪卡4个版本，每个人的混搭都有
 
+
+
+*****
+
+####  saya1892  
+##### 4538#       发表于 2021-11-4 18:14
+
+ 本帖最后由 saya1892 于 2021-11-4 18:15 编辑 
+
+拉板有个阴阳怪气跳绳的帖子 <blockquote>ラブライブスーパースターの超神回11話のメモリアルアイテムの予約締切迫る！
+
+0001 名無しで叶える物語(もんじゃ) 2021/11/03 20:58:35
+
+受注生産限定なのでぜひお見逃しなく
+[https://lovelive-yui...oka-store.bnarts.jp/](https://lovelive-yui...oka-store.bnarts.jp/)</blockquote>
+「只有买了这个的人才能对官方扔石头」
+
+「香千人必买」
+
+「我很好奇这个卖得出去2期会卖什么」
+
+「按订单限量生产，怀疑没订单甚至都不会开模」
+
+「谁买了可以发开箱帖炫耀」
+
+「运营『怎么真的有人下单啊，赶紧去旁边的DAISO买条来』」
+
+*****
+
+####  cqc1021  
+##### 4539#       发表于 2021-11-4 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414908&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-11-4 18:14</a>
+拉板有个阴阳怪气跳绳的帖子
+
+「只有买了这个的人才能对官方扔石头」</blockquote>
+这跳绳跟苹果的擦镜布一样，是信仰的象征，信仰是无价的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

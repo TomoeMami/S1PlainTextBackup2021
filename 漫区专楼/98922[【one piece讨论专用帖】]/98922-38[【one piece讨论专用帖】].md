@@ -7226,3 +7226,26 @@ WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完
 
 虽说都在婊尾田，但是感觉尾田还是在按照自己的意思有条不紊的画，山治眉毛这事感觉还是以前的味道<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JC_AR  
+##### 56046#       发表于 2021-11-4 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53413981&amp;ptid=98922" target="_blank">原来如此君 发表于 2021-11-4 16:57</a>
+虽说都在婊尾田，但是感觉尾田还是在按照自己的意思有条不紊的画，山治眉毛这事感觉还是以前的味道 ...</blockquote>
+前面有人说了，编辑管不了他，确实是随自己的心意在画，但是不好看
+
+*****
+
+####  uponutopia  
+##### 56047#       发表于 2021-11-4 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53409642&amp;ptid=98922" target="_blank">zodiac137 发表于 2021-11-4 12:02</a>
+
+你自己说的原话，“这个世界上有第二个和他一样的画法吗？”
+
+我只是告诉你，有的，就这么简单，而且这个 ...</blockquote>
+你不是在搞笑吧，你用别人的画法不就是“真岛浩的画法”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">？你模仿的和本人一模一样别人看了也只会识别为真岛浩不会是别的谁    所有的小作坊师徒形式都是这么回事，署名罗丹的雕塑很多都是学徒的作品，署名鲁本斯的画也是一样，你画出自己的东西了才叫出师，越是模仿别人的作品越没有独特性和作者性，你举的例子和你觉得真岛浩不是自成一派的论点本来就自相矛盾
+
