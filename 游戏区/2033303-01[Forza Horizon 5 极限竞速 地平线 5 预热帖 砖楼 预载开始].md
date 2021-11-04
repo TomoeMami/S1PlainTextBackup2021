@@ -3309,3 +3309,128 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发现有一张买车的票，那张票拿来买最贵的Cobra Daytona？
 
+
+
+*****
+
+####  dragrass  
+##### 282#       发表于 2021-11-5 02:02
+
+不是说这一代有国产车吗<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  itsmyrailgun  
+##### 283#       发表于 2021-11-5 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53419837&amp;ptid=2033303" target="_blank">虚无连斩 发表于 2021-11-5 01:45</a>
+
+发现有一张买车的票，那张票拿来买最贵的Cobra Daytona？</blockquote>
+我一般先买599xxe来耍测速？
+
+但是不知道这一代谁是测速神车了
+
+*****
+
+####  虚无连斩  
+##### 284#       发表于 2021-11-5 02:11
+
+还有件事，我用天蝎玩，发现刹车时候刹车盘不变红了...
+不知道是天蝎配置不够阉割了特效还是单纯的bug...
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天神十三煞  
+##### 285#         楼主| 发表于 2021-11-5 02:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+成天伐木累
+
+出戏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 286#         楼主| 发表于 2021-11-5 02:44
+
+你们能加俱乐部吗
+
+怎么我创的群自己看不到前缀
+
+*****
+
+####  ギナ  
+##### 287#       发表于 2021-11-5 02:58
+
+这代设置拉到最高连3090也稳不住4K60啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 288#         楼主| 发表于 2021-11-5 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420043&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-4 10:58</a>
+
+这代设置拉到最高连3090也稳不住4K60啊</blockquote>
+全开最高
+
+我垂直同步一直稳60
+
+*****
+
+####  meltykiss  
+##### 289#       发表于 2021-11-5 04:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420043&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 02:58</a>
+这代设置拉到最高连3090也稳不住4K60啊</blockquote>
+显卡设置有问题吧，光游戏里的选项，4k60很稳啊
+
+*****
+
+####  ギナ  
+##### 290#       发表于 2021-11-5 04:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420138&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-5 04:07</a>
+
+显卡设置有问题吧，光游戏里的选项，4k60很稳啊</blockquote>
+你是选那个默认的最高还是自定义把所有选项拉到满？
+
+*****
+
+####  ギナ  
+##### 291#       发表于 2021-11-5 04:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420087&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 03:24</a>
+
+全开最高
+
+我垂直同步一直稳60</blockquote>
+你去森林逛街的时候也能满4K60？
+
+*****
+
+####  920619lqy  
+##### 292#       发表于 2021-11-5 05:13
+
+<blockquote>itsmyrailgun 发表于 2021-11-4 12:03
+我一般先买599xxe来耍测速？
+
+但是不知道这一代谁是测速神车了</blockquote>
+这车FH4的时候搞了一个找了个油管推荐优质调校，速度是快但是极速真的会飞出去…最后感觉还是MT900S用着比较均衡一点
+
+*****
+
+####  天神十三煞  
+##### 293#         楼主| 发表于 2021-11-5 05:20
+
+好像有个免费购车劵
+
+前期没钱千万不要买错了
+
+要么最贵的
+
+要么莲花电爹evija或光头强的jesko拿来刷挑战榜
+

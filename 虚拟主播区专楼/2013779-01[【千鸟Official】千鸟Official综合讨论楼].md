@@ -15476,3 +15476,37 @@ co就是9月开始每月都请假
 
 我会永远记得那天野性解放的白白，她开心得就像回光返照一样<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 1348#       发表于 2021-11-5 01:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">我受不了了我受不了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  GAKOTO  
+##### 1349#         楼主| 发表于 2021-11-5 01:52
+
+也许是晚上太敏感了，大伙早点睡吧
+
+*****
+
+####  莫洛骑士  
+##### 1350#       发表于 2021-11-5 03:36
+
+其实我是相信真的会散的，不然何必用这招拉扯粉丝经历，这已经不是虐粉的程度了，我恨不得带着💣去腾子家门口
+
+
+
+*****
+
+####  lunaticfear  
+##### 1351#       发表于 2021-11-5 05:13
+
+好家伙，3个请假，趁解散之前赶紧把年假用掉是吧
+
