@@ -2338,3 +2338,24 @@ mckkrik港说感觉95%时间是在白天 夜晚时间过短？
 
 感觉发售前的实机视频有点少，问下这次有没有详细的内饰改装改色，地平线4基本没有什么内饰更改的选项，连法拉利网页的2D配置器都不如
 
+
+
+*****
+
+####  janet_ddr  
+##### 182#       发表于 2021-11-4 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411641&amp;ptid=2033303" target="_blank">DD-963 发表于 2021-11-4 14:20</a>
+
+6G显存的1070还能玩吗</blockquote>
+可以吧，推荐配置也就8G的1080吧，到时关点特效试试。
+
+我的8G的580，但推荐配置则是590，也准备到时先调教一下再玩了。
+
+*****
+
+####  nemunoki  
+##### 183#       发表于 2021-11-4 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基里巴斯已发车
+

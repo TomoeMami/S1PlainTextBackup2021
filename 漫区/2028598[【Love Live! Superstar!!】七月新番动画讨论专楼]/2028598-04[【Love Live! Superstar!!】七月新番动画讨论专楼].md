@@ -437,3 +437,44 @@ BV1ML4y1q7oX
 
 Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是搭着可可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 4536#       发表于 2021-11-4 17:45
+
+<img src="https://img.saraba1st.com/forum/202111/04/174419b9mstsp2r22zmv08.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211104174407.jpg</strong> (208.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 17:44 上传
+
+Liyuu, 2017
+
+VS
+
+<img src="https://img.saraba1st.com/forum/202111/04/174420ri8ht8qt3zl8hx7q.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211104174411.jpg</strong> (288.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 17:44 上传
+
+Liyuu, 2021
+
+*****
+
+####  ealchemist  
+##### 4537#       发表于 2021-11-4 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414287&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-4 17:16</a>
+
+Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是搭着可可</blockquote>
+那个llr是5*4混搭
+
+通常版是单人，然后闪卡4个版本，每个人的混搭都有
+
