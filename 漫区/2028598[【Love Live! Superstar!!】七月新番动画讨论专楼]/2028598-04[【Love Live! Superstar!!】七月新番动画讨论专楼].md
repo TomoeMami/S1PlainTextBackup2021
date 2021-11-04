@@ -156,3 +156,75 @@
 
 韩国人，我的快乐源泉
 
+
+
+*****
+
+####  iuhehc  
+##### 4513#       发表于 2021-11-4 14:21
+
+笑死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  普之舜舜  
+##### 4514#       发表于 2021-11-4 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磕死我了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4515#       发表于 2021-11-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411380&amp;ptid=2028598" target="_blank">笋狐 发表于 2021-11-4 14:00</a>
+着实有点难绷，东亚大团结迈出了合鲤的一步（</blockquote>
+第四张图漏魔法了，编辑裁剪下。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  秋月艾莉  
+##### 4516#       发表于 2021-11-4 14:27
+
+再来点韩国人的图
+
+我看不懂韩文，但我看懂了这是可千邪<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">教
+
+<img src="https://img.saraba1st.com/forum/202111/04/141813qdezhafuox07hdhu.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (232.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:18 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/142621rrqg43up4ellfuu4.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (173.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/141936ne2xe2b2kwlv7ke6.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (165.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/141943iu4cbbaaabia4cul.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (50.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:19 上传
+
