@@ -7012,3 +7012,59 @@ WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完
 每次 ...</blockquote>
 王路飞在兔碗打铁半天学的流樱，竟不如梦里学会的霸王色缠绕好使
 
+
+
+*****
+
+####  神隐の馒头  
+##### 56026#       发表于 2021-11-4 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403497&amp;ptid=98922" target="_blank">团结奋进碇真嗣 发表于 2021-11-3 23:23</a>
+
+王路飞在兔碗打铁半天学的流樱，竟不如梦里学会的霸王色缠绕好使</blockquote>
+确实，两年后王路飞脑中自带精神时光屋就离谱。不过拍脑门觉醒技能也算这漫画传统了，比如山治的恶魔风脚，最近还被奎因吐槽普通人类怎么能发出火来山治回答因为我的热情比火焰更高<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 56027#       发表于 2021-11-4 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53401342&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-11-3 20:39</a>
+
+光炮坦克大战虽然比起原先挺无聊的，至少量大管饱
+
+海贼现在连个稍微连贯一点的打斗都没有，就别拿出来同台 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">攻防一体还有精神免疫，要赢除非组队围殴或者纯数据碾压
+
+*****
+
+####  ornoway  
+##### 56028#       发表于 2021-11-4 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403364&amp;ptid=98922" target="_blank">zodiac137 发表于 2021-11-3 23:11</a>
+
+其实大家还是对海贼的战斗太认真了，霸气强就能破万物，这个不就是和死神的灵压理论是一样的嘛，灵压高就是 ...</blockquote>
+可是海贼不时髦啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 56029#       发表于 2021-11-4 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53398754&amp;ptid=98922" target="_blank">uponutopia 发表于 2021-11-3 17:43</a>
+WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完爆</blockquote>
+真岛浩的也是模板身材，谁都别笑谁
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Renes  
+##### 56030#       发表于 2021-11-4 10:58
+
+<blockquote>团结奋进碇真嗣 发表于 2021-11-3 23:23
+王路飞在兔碗打铁半天学的流樱，竟不如梦里学会的霸王色缠绕好使</blockquote>
+虽然但是 流樱应该是霸王色外放的前置技能，因为流樱本质是武装色外放 可以隔空打人或者注入内部 不学会外放 就算想到能否释放霸王色 也用不出来。
+
+主要还是这部分处理的很烂 一个是流樱学了就是个笑话 屁体现没有 下一秒改玩霸王色了 你要是流樱破防 但是伤害不够 所以换霸王色 起码还有逻辑 一个是霸王色铺垫太少，霸王色这种高级霸气除了吓人外什么体现都没有 然后画几道黑雷隔空对刀 就告诉你这是霸王色了 很强行
+

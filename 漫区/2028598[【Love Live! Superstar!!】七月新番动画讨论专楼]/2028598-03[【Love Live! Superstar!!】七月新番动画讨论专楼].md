@@ -17027,3 +17027,21 @@ https://www.bilibili.com/video/BV1g44y1i7zs
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 4493#       发表于 2021-11-4 10:42
+
+看笑了，韩国人怪话是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4494#       发表于 2021-11-4 10:50
+
+国际妇联主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">席笑疯了
+
+不过这几个韩国太太还真是爱鲤鱼，之前也是把鲤鱼夸成仙一样
+
