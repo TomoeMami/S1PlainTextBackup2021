@@ -1405,3 +1405,27 @@ K.G.R=M.A，你最大的问题是不认识你自己
 
 好哎，今晚争取1点结束
 
+
+
+*****
+
+####  T_Hb  
+##### 4659#       发表于 2021-11-4 12:16
+
+怎么开了台没发推，忘了吗
+
+*****
+
+####  makourisu-2  
+##### 4660#       发表于 2021-11-4 12:18
+
+怕不是定了直播间之后就去睡觉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+然后播到十二点，一点再开tc吃吃吃，吃完再播LOL，播到半夜三点多<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4661#       发表于 2021-11-4 12:19
+
+肥婆开直播间并不都是立刻发推的。
+

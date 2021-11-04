@@ -17080,3 +17080,19 @@ https://www.bilibili.com/video/BV1g44y1i7zs
 
 都说鲤鱼就是习惯看左边是吧？看看之前安排外星人坐她左边那期生放，她可没少往右边看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 4499#       发表于 2021-11-4 12:07
+
+开始是人的本性往左看，之后就是人的习惯往右看（就算是nako那87次她也没少往小百合那拧）
+
+*****
+
+####  soranoguiji  
+##### 4500#       发表于 2021-11-4 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 头一次觉得推上的韩国人可爱，这就是韩式伪中国语吗
+

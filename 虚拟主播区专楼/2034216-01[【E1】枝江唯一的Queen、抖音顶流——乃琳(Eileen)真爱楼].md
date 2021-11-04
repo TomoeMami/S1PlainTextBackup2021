@@ -1925,3 +1925,50 @@ syl发张直播间封面
 
 橙黑那一套真的很绝，全员坏女人化🥵🥵🥵🥵A-SOUL(已黑化）
 
+
+
+*****
+
+####  sanlow666  
+##### 140#         楼主| 发表于 2021-11-4 12:15
+
+A-SOUL_Official:[发布动态](https://t.bilibili.com/589097744386941981)小伙伴们~乃琳的🖖🏻🤞🏻表情包已经上架啦~快去下载使用吧~~~
+在🖖🏻🤞🏻表情商城搜索【可爱小乃琳】/【老酸乃】就可以找到哦~
+
+<img src="https://img.saraba1st.com/forum/202111/04/121522cce1o99ezemwa43k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/121529xkhfffw7l22zff9w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 12:15 上传
+
+*****
+
+####  sanlow666  
+##### 141#         楼主| 发表于 2021-11-4 12:16
+
+乃琳Queen:[我学日语就是为了今天！【直播剪辑】](https://t.bilibili.com/589097817401386947)
+（运营代发）节选   10月13日 乃琳单播
+————————————————
+出镜：乃琳
+场景：自制
+软件：基于Unity自研
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202111/04/121603j7s733f9su5ituj9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (180.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 12:16 上传
+
