@@ -14901,3 +14901,76 @@ syl:莫子啥时候写下一篇啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个计算真的有问题吗?前段时间流传的文静的数据不是和这个数据差不多吗?
 
+
+
+*****
+
+####  小憨1  
+##### 1283#       发表于 2021-11-4 17:27
+
+付费率没问题就行，81%还是很高的
+
+*****
+
+####  灰色的狐狸  
+##### 1284#       发表于 2021-11-4 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414422&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-4 17:27</a>
+
+付费率没问题就行，81%还是很高的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">会不会有很多1块的冲上去了。。
+
+*****
+
+####  小憨1  
+##### 1285#       发表于 2021-11-4 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414444&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-4 17:29</a>
+会不会有很多1块的冲上去了。。</blockquote>
+1人给我1块钱我也赚麻了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1286#       发表于 2021-11-4 17:31
+
+ 本帖最后由 T型钉宫病毒 于 2021-11-4 17:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414345&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-4 17:21</a>
+
+这个计算真的有问题吗?前段时间流传的文静的数据不是和这个数据差不多吗? ...</blockquote>
+上次的互动率92 93来着。
+
+连内桑的付费用户率都有48.9%，可能和主播关系真不大
+
+<img src="https://img.saraba1st.com/forum/202111/04/173258cfx2x6xxmms6ff59.jpg" referrerpolicy="no-referrer">
+
+<strong>-zue37Qj9e-14q7K18T3cSu0-k5.jpg.medium.jpg</strong> (22.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 17:32 上传
+
+*****
+
+####  灰色的狐狸  
+##### 1287#       发表于 2021-11-4 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414461&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-4 17:30</a>
+
+1人给我1块钱我也赚麻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">只希望阿姨不要破防了
+
+*****
+
+####  IDIDIDID  
+##### 1288#       发表于 2021-11-4 17:34
+
+404套皮之后能不能和文静联动啊（
+
+*****
+
+####  小憨1  
+##### 1289#       发表于 2021-11-4 17:36
+
+这有啥破防的，每场直播的弹幕量也不是不能查，互动绝对是高的，只是没有具体量化数值了而已
+

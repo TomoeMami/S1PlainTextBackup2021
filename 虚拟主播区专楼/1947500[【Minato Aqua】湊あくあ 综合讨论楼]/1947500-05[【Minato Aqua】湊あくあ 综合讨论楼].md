@@ -13445,3 +13445,12 @@ syl：晚上Among Us的人还都挺熟的，可以看一看
 中午看4chan说以前英语圈和lyger齐名的crew头子（ID就不发了）把自己的管人切片全隐藏了或者删了，一看还真 ...</blockquote>
 大抵是管人痴的必然下场 无论哪个主播都会有这样的粉吧 隔壁b综就时不时有人进来发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 7072#       发表于 2021-11-4 17:38
+
+刚说完就摆了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
