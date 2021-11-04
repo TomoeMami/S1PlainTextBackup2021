@@ -13433,3 +13433,15 @@ syl：晚上Among Us的人还都挺熟的，可以看一看
 
 看的有点毛骨悚然了，不知道是最后总以精神崩溃退坑告终的crew比较可怕还是把crew变成这样的夸夸比较可怕
 
+
+
+*****
+
+####  越动天下  
+##### 7071#       发表于 2021-11-4 16:14
+
+ 本帖最后由 越动天下 于 2021-11-4 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412408&amp;ptid=1947500" target="_blank">nian1538 发表于 2021-11-4 15:20</a>
+中午看4chan说以前英语圈和lyger齐名的crew头子（ID就不发了）把自己的管人切片全隐藏了或者删了，一看还真 ...</blockquote>
+大抵是管人痴的必然下场 无论哪个主播都会有这样的粉吧 隔壁b综就时不时有人进来发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

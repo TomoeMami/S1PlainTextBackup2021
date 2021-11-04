@@ -9015,3 +9015,21 @@ https://youtu.be/CmZ0zuQ_Mt0
 
 线充味儿太浓了，感觉可能就这个老ass可能想真出道当管人
 
+
+
+*****
+
+####  硫黄  
+##### 8145#       发表于 2021-11-4 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说声音和JK立绘不太搭
+
+*****
+
+####  死体残留  
+##### 8146#       发表于 2021-11-4 16:16
+
+https://youtu.be/z2n6wE8Vloc
+
+最后一个 声音还是很出戏 
+

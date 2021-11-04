@@ -2299,3 +2299,22 @@ MC 28个媒体90分，还是这么稳定，没有任何意外
 
 mc涨到91了，这也忒稳了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  老黑305  
+##### 178#       发表于 2021-11-4 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经请好假明天开冲了
+
+*****
+
+####  历史厨  
+##### 179#       发表于 2021-11-4 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412384&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-4 15:19</a>
+
+稳如死狗 tga能不能给个goty的候选名额啊 给playground点鼓励</blockquote>
+今年竞争那么弱，疫情影响最大年，提名应该是没问题了。问题是赢下来而已（不无可能）。
+

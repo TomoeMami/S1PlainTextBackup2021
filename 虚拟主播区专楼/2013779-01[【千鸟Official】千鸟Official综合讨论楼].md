@@ -14811,3 +14811,40 @@ syl:莫子啥时候写下一篇啊
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 1273#       发表于 2021-11-4 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412781&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-4 15:42</a>
+
+鸟u好狠的心，晚上老阿姨不会破防了吧，毕竟吹了两次</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">老阿姨能顶住的吧
+
+*****
+
+####  雨井绫  
+##### 1274#       发表于 2021-11-4 16:11
+
+我每天给她发一条私信，坚持十几天了，只回了一次
+我现在把这个私信当成千鸟完蛋末日钟了，可别告诉我月底不炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 1275#         楼主| 发表于 2021-11-4 16:14
+
+？楼里为什么会有mmr？我要杜绝这种倾向<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 1276#         楼主| 发表于 2021-11-4 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53413254&amp;ptid=2013779" target="_blank">雨井绫 发表于 2021-11-4 16:11</a>
+我每天给她发一条私信，坚持十几天了，只回了一次
+我现在把这个私信当成千鸟完蛋末日钟了，可别告诉我月底 ...</blockquote>
+很喜欢阿姨的一句话:“千鸟不炸好像对不起你们”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
