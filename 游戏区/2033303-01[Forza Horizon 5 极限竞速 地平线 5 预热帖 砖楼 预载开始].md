@@ -2974,3 +2974,113 @@ win10系统设置里改区域就行
 
 xss完成第一个表演赛，睡觉。
 
+
+
+*****
+
+####  pl0okm  
+##### 251#       发表于 2021-11-4 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417820&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-4 22:11</a>
+101g，微软这速度最高还只有3.3mb/s，下到明天去了</blockquote>
+usbeam 
+不换ip也行 重启下传递优化服务也可能下载回满速 微软在大陆有节点
+
+*****
+
+####  riin1  
+##### 252#       发表于 2021-11-4 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418114&amp;ptid=2033303" target="_blank">Sakaiyuki 发表于 2021-11-4 06:30</a>
+
+别，forza祖传克方向盘，先看看情况，另外g29（不含手排档）超过淘宝1200京东1300就买贵了，可以看看 ...</blockquote>
+克方向盘是什么意思，是手感不好么？不过我也趁打折入了steam的欧卡和美卡，感觉也能用上吧。或者再试试gt赛车
+
+*****
+
+####  peshing  
+##### 253#       发表于 2021-11-4 22:53
+
+发现地面的不远处有明显的材质质量分界线，我明明效果都开到最高了啊
+
+*****
+
+####  itsmyrailgun  
+##### 254#       发表于 2021-11-4 22:58
+
+麻了，下载出错，求救，我看贴吧也有人出类似问题
+
+剩余空间200g，安装路径I盘，应该是购用的
+
+<img src="https://img.saraba1st.com/forum/202111/04/225732hpspxxamdcjsdadj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211104225426.png</strong> (32.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 22:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/225732wvg1ihwlinwv1kwp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211104225507.png</strong> (19.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 22:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/225732cce8mblye8ey8ebx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211104225546.png</strong> (34.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 22:57 上传
+
+非常蛋疼，也无法成功取消安装，重启了也是这个页面
+
+*****
+
+####  君往何处  
+##### 255#       发表于 2021-11-4 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418473&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-4 22:58</a>
+
+麻了，下载出错，求救，我看贴吧也有人出类似问题
+
+剩余空间200g，安装路径I盘，应该是购用的</blockquote>
+昨天也经历了一轮（不过不是0x00的错误），最后靠着重装那个“游戏服务”解决的
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 256#       发表于 2021-11-4 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418314&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-4 22:45</a>
+
+usbeam 
+
+不换ip也行 重启下传递优化服务也可能下载回满速 微软在大陆有节点 ...</blockquote>
+win商店现在重启不会进度条直接没了吗
+
+*****
+
+####  wujae  
+##### 257#       发表于 2021-11-4 23:04
+
+ 本帖最后由 wujae 于 2021-11-4 23:06 编辑 
+
+果然PC商城版还是各种祖传问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+地平线3进游戏能运行3分钟就不错了，必然闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+地平线4是开局性能测试完，改画质选项重启直接整个游戏当掉重新下载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这次就乖乖等XGP标准版解锁吧<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  pl0okm  
+##### 258#       发表于 2021-11-4 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418490&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-4 22:59</a>
+win商店现在重启不会进度条直接没了吗</blockquote>
+我前几天重开两三次没问题 但楼上好像有人遇到了
+
