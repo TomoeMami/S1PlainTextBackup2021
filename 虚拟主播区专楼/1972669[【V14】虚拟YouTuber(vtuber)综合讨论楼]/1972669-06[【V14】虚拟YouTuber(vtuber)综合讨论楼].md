@@ -8995,3 +8995,14 @@ https://youtu.be/dxmBBvlHCYA
 一番手 声音好素人的样子 没辨识性</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 听了一下 T台随便播的感觉都要更恰一点  这个真的太素了，配合这皮太违和了。
 
+
+
+*****
+
+####  死体残留  
+##### 8143#       发表于 2021-11-4 15:34
+
+https://youtu.be/CmZ0zuQ_Mt0
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">第四个 伪音dalao 受不了 润了
+

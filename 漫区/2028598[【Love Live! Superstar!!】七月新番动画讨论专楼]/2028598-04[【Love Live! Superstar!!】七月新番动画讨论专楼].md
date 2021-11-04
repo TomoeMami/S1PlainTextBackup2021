@@ -281,3 +281,31 @@
 
 那张截图我也一瞬间幻视成渡边理佐来着
 
+
+
+*****
+
+####  TTAA  
+##### 4521#       发表于 2021-11-4 15:25
+
+难道鲤鱼有什么特别吸引女孩的特质吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 4522#       发表于 2021-11-4 15:29
+
+<blockquote>TTAA 发表于 2021-11-4 15:25
+难道鲤鱼有什么特别吸引女孩的特质吗</blockquote>
+人可爱，天然呆，身高差，宅力高，会营业会整活x
+
+*****
+
+####  名津流  
+##### 4523#       发表于 2021-11-4 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412573&amp;ptid=2028598" target="_blank">darkendless 发表于 2021-11-4 15:29</a>
+
+人可爱，天然呆，身高差，宅力高，会营业会整活x</blockquote>
+宅力高为什么也能成为吸引女孩子的要素
+

@@ -2274,3 +2274,12 @@ MC 28个媒体90分，还是这么稳定，没有任何意外
 
 —— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  tuiskusuomaa  
+##### 175#       发表于 2021-11-4 15:25
+
+《极限竞速：地平线5》IGN10分：开放世界赛车游戏的巅峰之作
+
