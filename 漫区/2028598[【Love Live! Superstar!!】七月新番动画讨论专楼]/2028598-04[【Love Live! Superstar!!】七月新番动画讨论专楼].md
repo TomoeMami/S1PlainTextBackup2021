@@ -584,3 +584,12 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 看了群马Day1和Day2对比觉得Day2的导播会多了，简直是养成系导播。
 但是Day2的小百合和Pay酱明显累多了。
 
+
+
+*****
+
+####  darkendless  
+##### 4546#       发表于 2021-11-4 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跳绳当然是为了衬托出其他商品的性价比
+

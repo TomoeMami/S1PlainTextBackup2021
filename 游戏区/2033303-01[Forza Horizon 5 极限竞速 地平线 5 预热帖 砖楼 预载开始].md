@@ -2782,3 +2782,21 @@ pc一直闪退怎么办
 
 车包里点购买跳到win10还提示已拥有 绝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  arctichan  
+##### 231#       发表于 2021-11-4 20:28
+
+断网也闪退……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  虚无连斩  
+##### 232#       发表于 2021-11-4 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">卧槽捏人这里也太政治正确了
+
