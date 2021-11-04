@@ -518,3 +518,17 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  kbtit  
+##### 4540#       发表于 2021-11-4 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414908&amp;ptid=2028598" target="_blank">saya1892 发表于 2021-11-4 19:14</a>
+
+拉板有个阴阳怪气跳绳的帖子
+
+「只有买了这个的人才能对官方扔石头」</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个标题过于直球，太草了
+
