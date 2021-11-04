@@ -16896,3 +16896,17 @@ https://www.bilibili.com/video/BV1g44y1i7zs
 
 昨晚韩国合鲤人这么high的吗
 
+
+
+*****
+
+####  player3960  
+##### 4482#       发表于 2021-11-4 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406067&amp;ptid=2028598" target="_blank">kata魂 发表于 2021-11-04 08:17:14</a>
+昨晚韩国合鲤人这么high的吗</blockquote>看到韩国太太从live里抠出了可堇的舞蹈互动细节我都惊了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+屑导播乱切画面<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
