@@ -18998,3 +18998,20 @@ btw，女武神我数了半天是不是少了凉宫遥，然后想起来凉宫�
 
 这么强力的os，感觉ate那边战术机开发了个寂寞，不过夕呼和白银武是天选之子没有办法<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，这样看来黑宣里拿着破烂机体进行光线呐喊，后面还顶着个辣鸡国家是真的惨
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1318#       发表于 2021-11-4 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406444&amp;ptid=1860817" target="_blank">球獭 发表于 2021-11-4 08:56</a>
+这么强力的os，感觉ate那边战术机开发了个寂寞，不过夕呼和白银武是天选之子没有办法，这样看来黑宣 ...</blockquote>
+beta世界一开始就是为白银定制的，他不是天选谁是
+
+beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军工
+
+白银的灵感来自电脑战机，beta世界没有电子游戏，自然没人想到这个思路。虽然层主第一次看到画面的时候以为是高达exvs动物园<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
