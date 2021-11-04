@@ -15360,3 +15360,56 @@ co就是9月开始每月都请假
 
 文静：可能就没有吃的那一天了(笑)
 
+
+
+*****
+
+####  莫洛骑士  
+##### 1335#       发表于 2021-11-4 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418942&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-4 11:39</a>
+所以文静大致祖国哪里人有说法了吗？</blockquote>
+福建<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1336#       发表于 2021-11-4 23:43
+
+用请假来给鸟批们出脑的时间，文静，你好温柔
+
+*****
+
+####  丢了五块钱  
+##### 1337#       发表于 2021-11-4 23:47
+
+经理惹早该出出脑了
+
+*****
+
+####  灰色的狐狸  
+##### 1338#       发表于 2021-11-4 23:52
+
+难受了
+
+不要我每次看v不到一两个月人就没了
+
+*****
+
+####  tankai  
+##### 1339#       发表于 2021-11-4 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418942&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-4 23:39</a>
+
+所以文静大致祖国哪里人有说法了吗？</blockquote>
+看星月衣,我有段时间怀疑是宁夏的回回.<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  complion  
+##### 1340#       发表于 2021-11-4 23:59
+
+<blockquote>tankai 发表于 2021-11-4 23:54
+看星月衣,我有段时间怀疑是宁夏的回回.</blockquote>
+文静说过自己不是少数民族。
+

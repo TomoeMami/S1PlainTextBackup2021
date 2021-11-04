@@ -3190,3 +3190,36 @@ windows用户必备acronis，两分钟来回
 
 steam 下载体验完爆微软商城，G 胖这钱是得让他赚
 
+
+
+*****
+
+####  itsmyrailgun  
+##### 269#       发表于 2021-11-4 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53419002&amp;ptid=2033303" target="_blank">misaki_d 发表于 2021-11-4 23:44</a>
+steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
+你说得对，没必要我继续耗死在Windows商店上，不就是前几作的封面车吗，没了就没了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Totokei  
+##### 270#       发表于 2021-11-4 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418995&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-4 23:43</a>
+加密的原因，全新重装不能用，但是你安装到其他盘以后，
+
+备份这个状态下的系统以后还原就不需要重下。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">看见楼下的回帖我在想不如润去蒸汽算了，蒸汽版的文件结构是和别的普通游戏一样的没有经win10加密的吗？
+
+
+
+*****
+
+####  SpaceCowboy  
+##### 271#       发表于 2021-11-5 00:00
+
+请问steam的豪华版是几点开early access？
+
