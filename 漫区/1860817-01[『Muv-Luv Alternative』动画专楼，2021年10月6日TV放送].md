@@ -19015,3 +19015,17 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  纯夏  
+##### 1319#       发表于 2021-11-4 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405051&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-4 02:10</a>
+
+战术机打个四分钟，只能说确实也是大人的原因了
+
+这集没提到/额外注意到的几个点，供动画党参考：</blockquote>
+别说第3季了 上次直播マブ統括P的tororo说有没有第2季全看观众的钞能力 当然 作为原作方他们是想做到最后的<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">
+
