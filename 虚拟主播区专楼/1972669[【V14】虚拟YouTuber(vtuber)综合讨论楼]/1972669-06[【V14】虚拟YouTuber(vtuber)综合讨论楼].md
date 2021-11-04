@@ -8913,3 +8913,28 @@ hnn这是吸取教训，赛季初就把kmt抓在手里了吗
 
 黑皮还是比冷白皮美味。虽然兰陵王既视感，尤其在面具那里www
 
+
+
+*****
+
+####  死体残留  
+##### 8134#       发表于 2021-11-4 14:05
+
+https://youtu.be/tdXwHsTeOVA
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">一番手 声音好素人的样子 没辨识性
+
+*****
+
+####  托帕帕  
+##### 8135#       发表于 2021-11-4 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可以说是完全不太行
+
+*****
+
+####  asdhai  
+##### 8136#       发表于 2021-11-4 14:19
+
+甚至没有L2D？
+

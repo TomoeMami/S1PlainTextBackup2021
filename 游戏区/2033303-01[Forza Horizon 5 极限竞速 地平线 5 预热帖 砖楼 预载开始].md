@@ -2190,3 +2190,24 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 话说买了XGP。还需要买什么包才能在今天提前玩啊</blockquote>
 顶楼的顶级版升级包，176大洋
 
+
+
+*****
+
+####  虚无连斩  
+##### 166#       发表于 2021-11-4 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410818&amp;ptid=2033303" target="_blank">lolozp 发表于 2021-11-4 13:22</a>
+话说有啥便宜的充电电池，非常轻度玩了20多小时地平线4，买了10只南孚只有2个了， ...</blockquote>
+pdd上麦克赛尔，京东的京造都还行
+平时囤一点就够了
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  DD-963  
+##### 167#       发表于 2021-11-4 14:20
+
+6G显存的1070还能玩吗
+

@@ -131,3 +131,28 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">着实有点难绷
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 4510#       发表于 2021-11-4 14:04
+
+净教些奇奇怪怪的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Norkey1  
+##### 4511#       发表于 2021-11-4 14:05
+
+“韩国人，完蛋了”
+
+*****
+
+####  lj205  
+##### 4512#       发表于 2021-11-4 14:08
+
+韩国人，我的快乐源泉
+
