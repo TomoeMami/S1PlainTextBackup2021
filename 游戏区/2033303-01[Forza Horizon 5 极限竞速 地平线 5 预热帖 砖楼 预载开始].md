@@ -2153,3 +2153,12 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 今晚7点就能玩到了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andychen  
+##### 162#       发表于 2021-11-4 12:44
+
+基里巴斯人已经准备好了，坐等6点解锁
+

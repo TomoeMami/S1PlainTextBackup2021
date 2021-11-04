@@ -14699,3 +14699,14 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">那你能把截图发给我也让我有点参与感吗
 
+
+
+*****
+
+####  有效击穿  
+##### 1263#       发表于 2021-11-4 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53409305&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-4 11:40</a>
+那你能把截图发给我也让我有点参与感吗</blockquote>
+写一篇换一张，加油吧，莫洛骑士<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
