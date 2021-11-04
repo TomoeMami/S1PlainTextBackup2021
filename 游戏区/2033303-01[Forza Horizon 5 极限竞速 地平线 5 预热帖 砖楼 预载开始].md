@@ -2483,3 +2483,34 @@ pc一直闪退怎么办
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">一开机要更新20G
 
+
+
+*****
+
+####  hokagokenjatime  
+##### 199#       发表于 2021-11-4 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415390&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-4 19:04</a>
+能啊
+不过现在xgppc 3个月只要10块，用不着借啊</blockquote>
+改区到新西兰发现还是不行说我来的太早了，是不是商店也得登有xgp的账户<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pppp7049  
+##### 200#       发表于 2021-11-4 19:17
+
+吐了，性能测试也好，直接开游戏也好，都闪退
+
+*****
+
+####  机动小蜜蜂  
+##### 201#       发表于 2021-11-4 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415390&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-4 19:04</a>
+
+能啊
+
+不过现在xgppc 3个月只要10块，用不着借啊</blockquote>
+这游戏XGP是怎么算版本的？终极版？
+

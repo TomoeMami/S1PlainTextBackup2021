@@ -554,3 +554,14 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  普之舜舜  
+##### 4543#       发表于 2021-11-4 19:13
+
+这个s1的麻将脸我好像就经常用一个？我看看有没有别的好用的表情，怎么这么多阴阳怪气的麻将呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
