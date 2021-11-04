@@ -50,3 +50,282 @@
 
 现在推上几个国人和几个韩国人在用着翻译机交流各自文化圈里的不同用语，这种文化交流真的很有趣
 
+
+
+*****
+
+####  土豆不土  
+##### 4507#       发表于 2021-11-4 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410085&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-11-4 12:31</a>
+
+金版xm4没遇到这种情况，要不问下卖家。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+我觉得大概是白色的问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  土豆不土  
+##### 4508#       发表于 2021-11-4 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410085&amp;ptid=2028598" target="_blank">ads147147 发表于 2021-11-4 12:31</a>
+
+金版xm4没遇到这种情况，要不问下卖家。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 4509#       发表于 2021-11-4 14:00
+
+<img src="https://img.saraba1st.com/forum/202111/04/135855yylozwuuqqk5kl50.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (46.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135855ybiij66t89fnt9hj.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (53.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856ntbd26vi8qbduc6h.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (38.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856e1s53nsk2kvevv42.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (255.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856x5nwcdz5wchuffmw.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (66.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/135856ah32hd2pd8t261jx.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (60.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 13:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">着实有点难绷
+
+
+
+*****
+
+####  一个陆仁贾  
+##### 4510#       发表于 2021-11-4 14:04
+
+净教些奇奇怪怪的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Norkey1  
+##### 4511#       发表于 2021-11-4 14:05
+
+“韩国人，完蛋了”
+
+*****
+
+####  lj205  
+##### 4512#       发表于 2021-11-4 14:08
+
+韩国人，我的快乐源泉
+
+
+
+*****
+
+####  iuhehc  
+##### 4513#       发表于 2021-11-4 14:21
+
+笑死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  普之舜舜  
+##### 4514#       发表于 2021-11-4 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磕死我了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4515#       发表于 2021-11-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411380&amp;ptid=2028598" target="_blank">笋狐 发表于 2021-11-4 14:00</a>
+着实有点难绷，东亚大团结迈出了合鲤的一步（</blockquote>
+第四张图漏魔法了，编辑裁剪下。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  秋月艾莉  
+##### 4516#       发表于 2021-11-4 14:27
+
+再来点韩国人的图
+
+我看不懂韩文，但我看懂了这是可千邪<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">教
+
+<img src="https://img.saraba1st.com/forum/202111/04/141813qdezhafuox07hdhu.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (232.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:18 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/142621rrqg43up4ellfuu4.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (173.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/141936ne2xe2b2kwlv7ke6.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (165.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/04/141943iu4cbbaaabia4cul.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (50.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 14:19 上传
+
+
+
+*****
+
+####  cqc1021  
+##### 4517#       发表于 2021-11-4 14:51
+
+鲤鱼这张图好像还是从这楼里拿的
+这么说的话，鲤鱼应该挺吸女粉的吧，搞不好有真姬佬女粉
+<img src="https://p.sda1.dev/3/0ff7dc9c42b0cdf30742594d5dac5723/IMG_CMP_221162352.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/807d4ff723cfa4be26a4fd1f0e3de99f/c715e16bf309a89a9c31ff336d490c49.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/93551f38eed61bf3813999d455bff10f/IMG_CMP_70461189.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  绯想alter2nd  
+##### 4518#       发表于 2021-11-4 14:58
+
+刷微博的时候看到几个女粉
+
+
+
+*****
+
+####  saya1892  
+##### 4519#       发表于 2021-11-4 15:01
+
+<img src="https://img.saraba1st.com/forum/202111/04/150138rx99jzxw94t8394x.jpg" referrerpolicy="no-referrer">
+
+<strong>1(1).jpg</strong> (44.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 15:01 上传
+
+想了半天中国吃什么焼き饅頭,还是群友提醒说是不是生煎
+
+*****
+
+####  土豆不土  
+##### 4520#       发表于 2021-11-4 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412064&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-11-4 14:51</a>
+
+鲤鱼这张图好像还是从这楼里拿的
+
+这么说的话，鲤鱼应该挺吸女粉的吧，搞不好有真姬佬女粉</blockquote>
+我身边还真都是女孩子更喜欢鲤鱼，男性更喜欢小百合的
+
+那张截图我也一瞬间幻视成渡边理佐来着
+
+
+
+*****
+
+####  TTAA  
+##### 4521#       发表于 2021-11-4 15:25
+
+难道鲤鱼有什么特别吸引女孩的特质吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 4522#       发表于 2021-11-4 15:29
+
+<blockquote>TTAA 发表于 2021-11-4 15:25
+难道鲤鱼有什么特别吸引女孩的特质吗</blockquote>
+人可爱，天然呆，身高差，宅力高，会营业会整活x
+
+*****
+
+####  名津流  
+##### 4523#       发表于 2021-11-4 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412573&amp;ptid=2028598" target="_blank">darkendless 发表于 2021-11-4 15:29</a>
+
+人可爱，天然呆，身高差，宅力高，会营业会整活x</blockquote>
+宅力高为什么也能成为吸引女孩子的要素
+
+
+
+*****
+
+####  darkendless  
+##### 4524#       发表于 2021-11-4 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412763&amp;ptid=2028598" target="_blank">名津流 发表于 2021-11-4 15:40</a>
+
+宅力高为什么也能成为吸引女孩子的要素</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">是我喜欢鲤鱼姐的要素之一，虽然我不是女孩子。但是鲤鱼姐知道大家想看什么和宅力高肯定有关系的。
+
+*****
+
+####  chenflyyy  
+##### 4525#       发表于 2021-11-4 15:51
+
+BV1ML4y1q7oX
+昨天的生放不到半天就出熟肉了，也太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

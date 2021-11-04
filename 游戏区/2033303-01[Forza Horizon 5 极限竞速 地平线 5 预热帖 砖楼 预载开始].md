@@ -2178,3 +2178,124 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 话说有啥便宜的充电电池，非常轻度玩了20多小时地平线4，买了10只南孚只有2个了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andychen  
+##### 165#       发表于 2021-11-4 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410743&amp;ptid=2033303" target="_blank">q781061296 发表于 2021-11-4 13:17</a>
+
+话说买了XGP。还需要买什么包才能在今天提前玩啊</blockquote>
+顶楼的顶级版升级包，176大洋
+
+
+
+*****
+
+####  虚无连斩  
+##### 166#       发表于 2021-11-4 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410818&amp;ptid=2033303" target="_blank">lolozp 发表于 2021-11-4 13:22</a>
+话说有啥便宜的充电电池，非常轻度玩了20多小时地平线4，买了10只南孚只有2个了， ...</blockquote>
+pdd上麦克赛尔，京东的京造都还行
+平时囤一点就够了
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  DD-963  
+##### 167#       发表于 2021-11-4 14:20
+
+6G显存的1070还能玩吗
+
+
+
+*****
+
+####  meltykiss  
+##### 168#       发表于 2021-11-4 14:49
+
+微软商店莫名其妙下载没速度好久了,预购点了安装完全没反应,退款买steam版去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 169#       发表于 2021-11-4 15:03
+
+IGN 10
+[https://www.ign.com/articles/forza-horizon-5-review](https://www.ign.com/articles/forza-horizon-5-review)
+
+GS 9
+[https://www.gamespot.com/reviews ... amily/1900-6417778/](https://www.gamespot.com/reviews/forza-horizon-5-review-its-about-four-wheeled-family/1900-6417778/)
+
+*****
+
+####  mashav  
+##### 170#       发表于 2021-11-4 15:04
+
+a9和鸡盒评测出了
+
+
+
+*****
+
+####  pl0okm  
+##### 171#       发表于 2021-11-4 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412046&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-4 14:49</a>
+微软商店莫名其妙下载没速度好久了,预购点了安装完全没反应,退款买steam版去了 ...</blockquote>
+usbeam有win10商店下载加速规则和使用方法 微软在内地有节点 换ip要重启传递内容服务 不换ip只重启有时候也能解决
+
+*****
+
+####  qianoooo  
+##### 172#       发表于 2021-11-4 15:19
+
+稳如死狗 tga能不能给个goty的候选名额啊 给playground点鼓励
+
+*****
+
+####  吃鸡南小鸟  
+##### 173#       发表于 2021-11-4 15:20
+
+MC 28个媒体90分，还是这么稳定，没有任何意外
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  saberserker  
+##### 174#       发表于 2021-11-4 15:25
+
+4代全靠刚开始的vip房bug起家，能不能把以前抽奖双倍钱改回来啊
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  tuiskusuomaa  
+##### 175#       发表于 2021-11-4 15:25
+
+《极限竞速：地平线5》IGN10分：开放世界赛车游戏的巅峰之作
+
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 176#       发表于 2021-11-4 15:45
+
+丢，要憋不住了，得找个理由翘工
+
+*****
+
+####  萱时令  
+##### 177#       发表于 2021-11-4 15:47
+
+mc涨到91了，这也忒稳了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

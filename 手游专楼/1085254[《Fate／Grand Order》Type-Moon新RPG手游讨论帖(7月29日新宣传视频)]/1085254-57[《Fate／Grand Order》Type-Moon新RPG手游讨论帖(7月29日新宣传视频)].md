@@ -3002,3 +3002,80 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 银狗要爆仓了这要怎么处理.....仓库里所有角色都已经喂满了银狗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">国服已经长期处于fufu都没人吃状态....都过期了好几批了....
 
+
+
+*****
+
+####  zakki  
+##### 84241#       发表于 2021-11-4 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53356963&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-10-31 23:07</a>
+
+没人跳? 萌新先豹为敬</blockquote>
+又豹了还行，羡慕，今年是不是至少10个new了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84242#       发表于 2021-11-4 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页
+
+*****
+
+####  alucardcz  
+##### 84243#       发表于 2021-11-4 12:25
+
+再翻
+
+*****
+
+####  alucardcz  
+##### 84244#       发表于 2021-11-4 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53409493&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-4 11:52</a>
+
+又豹了还行，羡慕，今年是不是至少10个new了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了看 今年19个new 算上活动从者
+
+*****
+
+####  alucardcz  
+##### 84245#       发表于 2021-11-4 12:59
+
+ 本帖最后由 alucardcz 于 2021-11-4 13:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么鬼  1宝水夹摩带着200%的倍卡 打弓本第1面3个2-3万血的怪 np居然回不满。。。。。。。。这么菜的吗
+
+*****
+
+####  zakki  
+##### 84246#       发表于 2021-11-4 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410073&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-4 12:31</a>
+看了看 今年19个new 算上活动从者</blockquote>
+我说的new指的是5星啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84247#       发表于 2021-11-4 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411142&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-4 13:42</a>
+
+我说的new指的是5星啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星也要喂银狗啊  怎么能只算5星呢
+
+5星纯new10个 算宝具就不知道了
+
+*****
+
+####  zakki  
+##### 84248#       发表于 2021-11-4 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411250&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-4 13:51</a>
+4星也要喂银狗啊  怎么能只算5星呢
+
+5星纯new10个 算宝具就不知道了</blockquote>
+太欧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

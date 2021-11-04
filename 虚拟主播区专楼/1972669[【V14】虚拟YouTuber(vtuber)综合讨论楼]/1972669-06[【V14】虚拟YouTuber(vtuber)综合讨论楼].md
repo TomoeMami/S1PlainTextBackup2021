@@ -8913,3 +8913,105 @@ hnn这是吸取教训，赛季初就把kmt抓在手里了吗
 
 黑皮还是比冷白皮美味。虽然兰陵王既视感，尤其在面具那里www
 
+
+
+*****
+
+####  死体残留  
+##### 8134#       发表于 2021-11-4 14:05
+
+https://youtu.be/tdXwHsTeOVA
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">一番手 声音好素人的样子 没辨识性
+
+*****
+
+####  托帕帕  
+##### 8135#       发表于 2021-11-4 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可以说是完全不太行
+
+*****
+
+####  asdhai  
+##### 8136#       发表于 2021-11-4 14:19
+
+甚至没有L2D？
+
+
+
+*****
+
+####  阿尔达希尔  
+##### 8137#       发表于 2021-11-4 14:50
+
+我被关了一个月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 8138#       发表于 2021-11-4 14:52
+
+https://youtu.be/WN-eMf-H0as
+
+二番手篮球 阳角 会小提琴 喜欢音游 喜欢nba 处不了
+
+
+
+*****
+
+####  硫黄  
+##### 8139#       发表于 2021-11-4 15:09
+
+像路边随便抓了两个素人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 8140#       发表于 2021-11-4 15:10
+
+ 本帖最后由 死体残留 于 2021-11-4 15:18 编辑 
+
+https://youtu.be/dxmBBvlHCYA
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">喜欢bl饮酒赌马甜食 伏见的同位体么 观感比前两个好
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">男校 正太控 bl 这野心好大 什么要素都叠上去啊
+
+*****
+
+####  空集  
+##### 8141#       发表于 2021-11-4 15:15
+
+第三个点进去听了一下就不是那么素了 虽然还是明显在找话
+
+*****
+
+####  空集  
+##### 8142#       发表于 2021-11-4 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411446&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-4 14:05</a>
+[https://youtu.be/tdXwHsTeOVA](https://youtu.be/tdXwHsTeOVA)
+
+一番手 声音好素人的样子 没辨识性</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 听了一下 T台随便播的感觉都要更恰一点  这个真的太素了，配合这皮太违和了。
+
+
+
+*****
+
+####  死体残留  
+##### 8143#       发表于 2021-11-4 15:34
+
+https://youtu.be/CmZ0zuQ_Mt0
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">第四个 伪音dalao 受不了 润了
+
+
+
+*****
+
+####  Suny08  
+##### 8144#       发表于 2021-11-4 15:54
+
+线充味儿太浓了，感觉可能就这个老ass可能想真出道当管人
+
