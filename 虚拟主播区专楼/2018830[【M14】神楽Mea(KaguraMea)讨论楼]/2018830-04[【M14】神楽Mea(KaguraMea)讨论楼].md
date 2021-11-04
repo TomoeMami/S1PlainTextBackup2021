@@ -1673,3 +1673,35 @@ tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 示弱这歌是有点洗/脑
 
+
+
+*****
+
+####  时间在我手中  
+##### 4690#       发表于 2021-11-4 22:22
+
+今天状态还不错，虽然我导出视频卡了半小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+刚刚捣鼓图奇推流还卡了一小会儿
+
+*****
+
+####  yywzjsw  
+##### 4691#       发表于 2021-11-4 22:33
+
+这首，有些微妙
+
+*****
+
+####  时间在我手中  
+##### 4692#       发表于 2021-11-4 22:36
+
+个人感觉某种程度上比原曲好听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4693#       发表于 2021-11-4 22:40
+
+挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

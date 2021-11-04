@@ -2956,3 +2956,21 @@ win10系统设置里改区域就行
 
 目前不能用方向盘吗，我接上去以后游戏内不识别<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sakaiyuki  
+##### 249#       发表于 2021-11-4 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417995&amp;ptid=2033303" target="_blank">riin1 发表于 2021-11-4 22:22</a>
+萌新第一次玩Forza，刚下单了一个G29</blockquote>
+别，forza祖传克方向盘，先看看情况，另外g29（不含手排档）超过淘宝1200京东1300就买贵了，可以看看
+
+*****
+
+####  qool999  
+##### 250#       发表于 2021-11-4 22:37
+
+xss完成第一个表演赛，睡觉。
+

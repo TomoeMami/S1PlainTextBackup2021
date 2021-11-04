@@ -15066,3 +15066,80 @@ syl:莫子啥时候写下一篇啊
 
 艾白感觉块睡着了
 
+
+
+*****
+
+####  tn_teana  
+##### 1300#       发表于 2021-11-4 22:23
+
+卧槽 艾瑞思昨晚被通宵骂破防，今天还突击直播公开处刑
+
+*****
+
+####  夜潇箫  
+##### 1301#       发表于 2021-11-4 22:29
+
+谁骂她了?看了一眼，她都要哭背气了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 1302#       发表于 2021-11-4 22:34
+
+文静8-21号请假，紫砂了！
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lunaticfear  
+##### 1303#       发表于 2021-11-4 22:35
+
+8号到21号请假回家，没法用电脑播，会用手机播
+
+*****
+
+####  T型钉宫病毒  
+##### 1304#       发表于 2021-11-4 22:35
+
+文静8号回家请假到21号，不能用电脑直播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 1305#       发表于 2021-11-4 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418099&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-4 22:29</a>
+谁骂她了?看了一眼，她都要哭背气了</blockquote>
+其实算是几个死忠粉，给她做切片的，1.0就开始看她的，所以她才出来回应
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  魔法少女大头  
+##### 1306#       发表于 2021-11-4 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2周
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  莫洛骑士  
+##### 1307#       发表于 2021-11-4 22:37
+
+三个人请假，思思还被淘汰了，鸟又散
+
+*****
+
+####  rgauss  
+##### 1308#       发表于 2021-11-4 22:39
+
+🐦又散，🐦又散
+
+人生有梦，各自精彩。
+
+感谢千🐦带给我的快乐和感动
+
