@@ -19076,3 +19076,25 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">挺好的萝卜打戏质量在线 卖胶广告
 
+
+
+*****
+
+####  Toby_dak  
+##### 1324#       发表于 2021-11-4 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404218&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-4 01:33</a>
+
+其实游戏玩过了，出的几部动画也看了，不客气地说，战术机这个表现，和移动棺材差得不多……
+
+被beta（例如 ...</blockquote>
+只能说没看完设定。战术机座舱可以弹射出来，里面还有个单兵外骨骼。
+
+<img src="https://img.saraba1st.com/forum/202111/04/210025m162vrgph24d4vpq.gif" referrerpolicy="no-referrer">
+
+<strong>89式機械化歩兵装甲 2.gif</strong> (100.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-4 20:00 上传
+

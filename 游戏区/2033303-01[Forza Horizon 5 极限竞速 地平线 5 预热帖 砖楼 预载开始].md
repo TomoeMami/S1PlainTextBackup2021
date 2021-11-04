@@ -2629,3 +2629,103 @@ pc一直闪退怎么办
 
 查了一下好像是爆显存 只能降质了
 
+
+
+*****
+
+####  D-JoeII  
+##### 215#       发表于 2021-11-4 19:44
+
+這次玩家的角色有對白了啊
+
+*****
+
+####  chan  
+##### 216#       发表于 2021-11-4 19:47
+
+跑了几个赛事就通知拿到前作封面车了
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  禽兽公爵  
+##### 217#       发表于 2021-11-4 19:48
+
+买了终极版，却还要加班，明天也要加班，希望礼拜日不用加班
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Yalbsd  
+##### 218#       发表于 2021-11-4 19:51
+
+有没有进游戏就闪退的兄弟，咋办
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  rak1  
+##### 219#       发表于 2021-11-4 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">升级包里面的车和VIP还不能领？
+
+*****
+
+####  aaronluray  
+##### 220#       发表于 2021-11-4 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些人根本没看过之前那堆地平线5的官方直播啊，不仅介绍了玩家有对白，还有玩家的第三个性别，they/them
+
+*****
+
+####  Totokei  
+##### 221#       发表于 2021-11-4 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416102&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-4 19:51</a>
+有没有进游戏就闪退的兄弟，咋办
+
+—— 来自 samsung SM-G9860, Android 11上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">断网就行
+
+跑完了片头把网络重新连上了然后立即闪退
+
+*****
+
+####  rak1  
+##### 222#       发表于 2021-11-4 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">xsx的画质模式画面真的绝了，可惜切换要重启
+
+*****
+
+####  D-JoeII  
+##### 223#       发表于 2021-11-4 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416169&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-4 19:57</a>
+
+有些人根本没看过之前那堆地平线5的官方直播啊，不仅介绍了玩家有对白，还有玩家的第三个性别，they ...</blockquote>
+我是大部份都沒看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yalbsd  
+##### 224#       发表于 2021-11-4 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416170&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-4 19:57</a>
+断网就行
+
+跑完了片头把网络重新连上了然后立即闪退</blockquote>
+只能全程断网？
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  mwj  
+##### 225#       发表于 2021-11-4 20:01
+
+怎么修改安装位置啊，c盘实在空不出100g啊
+

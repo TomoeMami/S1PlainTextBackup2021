@@ -9056,3 +9056,16 @@ https://youtu.be/z2n6wE8Vloc
 
 这怎么连个l2d都不给人家弄，就放张立绘播，学内德维德弄个火柴人皮播都比这样强吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 8149#       发表于 2021-11-4 19:46
+
+https://twitter.com/y_matwee/status/1456108962810458115
+
+https://twitter.com/Arte_Refact/status/1456109197116936196
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">原来等到今天才发道歉
+
