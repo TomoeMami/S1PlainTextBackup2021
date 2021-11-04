@@ -14582,3 +14582,32 @@ https://matsuri.icu/detail/p8g87P3uxxDgL5BZ
 
 我被举办了给静姨发，根本不理我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有效击穿  
+##### 1251#       发表于 2021-11-4 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53406317&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-4 08:45</a>
+绝望了，作为认知厨我输的什么都不是，文静回了一万个人也不回我我要脱坑回踩了 ...</blockquote>
+没关系，你至少还有我们。我就很喜欢你的小作文，多写点，我一转给静姨静姨就回我小学男生又来赖皮了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有效击穿  
+##### 1252#       发表于 2021-11-4 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405764&amp;ptid=2013779" target="_blank">逸yi 发表于 2021-11-4 07:14</a>
+1.02.0梦幻共演</blockquote>
+不懂就问，为什么静姨被叫做404了呢？
+
+*****
+
+####  rgauss  
+##### 1253#       发表于 2021-11-4 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53407421&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-4 09:56</a>
+不懂就问，为什么静姨被叫做404了呢？</blockquote>
+这是1.0
+

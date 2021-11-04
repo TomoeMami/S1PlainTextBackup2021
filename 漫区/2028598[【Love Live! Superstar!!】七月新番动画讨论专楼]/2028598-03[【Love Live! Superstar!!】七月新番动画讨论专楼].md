@@ -16952,3 +16952,22 @@ https://www.bilibili.com/video/BV1g44y1i7zs
 屑导播乱切画面</blockquote>
 那个我倒是看到了，不过不太确定，鲤鱼转身做个动作正好屏幕切到pay的耸肩，感觉就是有点什么。导播跟个动画组似的，总是切不到全员
 
+
+
+*****
+
+####  土豆不土  
+##### 4486#       发表于 2021-11-4 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53401081&amp;ptid=2028598" target="_blank">稀勢のささ 发表于 2021-11-3 20:20</a></blockquote>
+她爱她 她却爱着她<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4487#       发表于 2021-11-4 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53407419&amp;ptid=2028598" target="_blank">土豆不土 发表于 2021-11-4 09:55</a>
+她爱她 她却爱着她</blockquote>
+这种水是每瓶上就一个人吗？
+
