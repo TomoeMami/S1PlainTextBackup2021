@@ -15556,3 +15556,32 @@ co就是9月开始每月都请假
 啧啧啧，人之初收收味。当初AS要开放这个，你现在大概吊路灯上了呢。</blockquote>
 我去了as立刻就变成了善良中立，打击一切认知厨和小团体<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 1357#       发表于 2021-11-5 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗莫洛，我这就把你挂去语录楼！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  魔法少女大头  
+##### 1358#       发表于 2021-11-5 11:12
+
+＃静批魅力时刻
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  tankai  
+##### 1359#       发表于 2021-11-5 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422141&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-5 10:30</a>
+我去了as立刻就变成了善良中立，打击一切认知厨和小团体</blockquote>
+😅，666。
+

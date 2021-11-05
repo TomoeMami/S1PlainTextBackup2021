@@ -1833,3 +1833,12 @@ tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 啥时候变成麻奇麻<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mr.shelter  
+##### 4709#       发表于 2021-11-5 11:07
+
+愚蠢宅宅被麻麻玩弄在掌心之中是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
