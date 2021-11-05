@@ -753,3 +753,38 @@ gamker是装懂哥，这人是直接明牌没玩过其他smt，面向正常玩�
 
 至于混在一块 troll这种行为流量当然哗哗的啦 大家都爱
 
+
+
+*****
+
+####  wszweill  
+##### 82#       发表于 2021-11-5 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423071&amp;ptid=2035844" target="_blank">davidycf 发表于 2021-11-4 22:22</a>
+
+本来想来泥潭看看有没有聊这个事儿的，结果这不是我的微博嘛！
+
+我这个不是逐字翻译，当时读完文章以为自己 ...</blockquote>
+但是JRPG里面，世界都快毁灭了，别说谈朋友，帮老奶奶跑腿做支线任务都很正常吧，特别是以前有限时任务的时候（
+
+*****
+
+####  hsyg  
+##### 83#       发表于 2021-11-5 11:57
+
+<blockquote>wszweill 发表于 2021-11-5 11:52
+但是JRPG里面，世界都快毁灭了，别说谈朋友，帮老奶奶跑腿做支线任务都很正常吧，特别是以前有限时任务的 ...</blockquote>
+别说普通人，最终boss下一秒就要毁灭世界了还不是一样和主角大谈人生理想。现实里书本上都有刑场上的婚礼，救国图存要亡了就不许谈恋爱了？
+
+*****
+
+####  维忧用老  
+##### 84#       发表于 2021-11-5 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421850&amp;ptid=2035844" target="_blank">zayrq 发表于 2021-11-5 10:08</a>
+
+这人的推也是一股怪味：
+
+I did gain a huge spike of new followers, who will probably be mostly gone in ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

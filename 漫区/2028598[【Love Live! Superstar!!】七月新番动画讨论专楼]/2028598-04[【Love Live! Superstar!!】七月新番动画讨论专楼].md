@@ -620,3 +620,17 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 <img src="https://img.saraba1st.com/forum/202111/05/092037ksvs4cwgczzzg4ss.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 4549#       发表于 2021-11-5 11:49
+
+趁着时间没事干，我来把liella！公演的文件夹分享下，以后所有的live会传在这个网盘里面，转存这个文件夹就可以收到我的同步更新哈。
+我用阿里云盘分享了「liella!在巡演」，你可以不限速下载🚀
+复制这段内容打开「阿里云盘」App 即可获取
+链接：https://www.aliyundrive.com/s/DxhoF1byeeF
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

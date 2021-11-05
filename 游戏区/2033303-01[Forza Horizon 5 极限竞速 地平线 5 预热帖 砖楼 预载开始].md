@@ -3797,3 +3797,28 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 方向盘支持好，心痒了，可惜更喜欢4代的风景
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 330#       发表于 2021-11-5 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422622&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-5 10:58</a>
+
+4代偶尔也碰见过，重启游戏就好了</blockquote>
+破案了，手柄没电了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  弱逼  
+##### 331#       发表于 2021-11-5 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421297&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-5 09:27</a>
+还没出 大概率第一辆领克</blockquote>
+领克车主脸上有光<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
