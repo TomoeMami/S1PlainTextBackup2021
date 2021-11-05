@@ -1430,3 +1430,18 @@ IGN自从死亡搁浅那次以后我就认定是zz媒体了，之后也没让我
 <blockquote>[ 茛菪 replied on 2021-11-6 04:26](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433828&amp;ptid=2035844) 嘿，说不定真的是烂作呢，现在的atlus做不出老smt味那可太正常了，做出来才是奇迹，如果再做不出p味的话，可不就是啥都不是了吗 </blockquote>
 烂作的话那就喷烂的点好了，“不像P5”这算哪门子的评测……来自: iPhone客户端
 
+
+
+*****
+
+####  茛菪  
+##### 140#       发表于 2021-11-6 07:01
+
+ 本帖最后由 茛菪 于 2021-11-6 07:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433902&amp;ptid=2035844" target="_blank">soul_hacker 发表于 2021-11-6 05:46</a>
+
+烂作的话那就喷烂的点好了，“不像P5”这算哪门子的评测……</blockquote>
+ign编辑水平拉稀这个毫无疑问，但其实大家心里也都明白SMT5现在出来肯定首先就是要拿来跟P5比的吧，对很多新玩家来说大概率“像不像P5”就是他们最关心的内容，也没必要回避。
+
+高水平的评测应该是先跟新玩家说说“这作和P5比有什么异同”，再跟老玩家谈“这作在整个SMT系列里大概处在什么个位置”。只不过ign水平做不到后半句，只能耍巨魔搞噱头。
+
