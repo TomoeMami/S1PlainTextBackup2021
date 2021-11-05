@@ -3822,3 +3822,35 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 —— 来自 Xiaomi M2102K1AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Milarvoz  
+##### 332#       发表于 2021-11-5 12:26
+
+芜湖，steam安装完了，起飞！
+这主题曲真好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ギナ  
+##### 333#       发表于 2021-11-5 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421927&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 10:15</a>
+我又到处跑了一圈雨林都是60
+
+包括剧情里的暴风玛雅遗迹</blockquote>
+你怎么设置的？默认拉最高还是自定义全部拉满？
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nagitoY  
+##### 334#       发表于 2021-11-5 12:46
+
+为什么我的steam显示11.9才能解锁<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

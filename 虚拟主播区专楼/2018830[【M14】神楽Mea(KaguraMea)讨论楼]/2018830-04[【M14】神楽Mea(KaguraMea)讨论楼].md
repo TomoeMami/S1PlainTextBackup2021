@@ -1991,3 +1991,185 @@ tc现在又不能转了？？
 
 tc现在又不能转了？？
 
+
+
+*****
+
+####  时间在我手中  
+##### 4726#       发表于 2021-11-5 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423960&amp;ptid=2018830" target="_blank">我单推副会长 发表于 2021-11-5 12:20</a>
+tc现在又不能转了？？</blockquote>
+手机一直不能
+
+*****
+
+####  ashero  
+##### 4727#       发表于 2021-11-5 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423960&amp;ptid=2018830" target="_blank">我单推副会长 发表于 2021-11-5 12:20</a>
+tc现在又不能转了？？</blockquote>
+手机tc 珍藏级 无转无档 自己想办法
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 4728#       发表于 2021-11-5 12:21
+
+只有油管爆炸才能转
+
+*****
+
+####  yywzjsw  
+##### 4729#       发表于 2021-11-5 12:22
+
+这歌好耳熟，油咖喱哪部动漫来着的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 4730#       发表于 2021-11-5 12:22
+
+ 本帖最后由 专业划水人员 于 2021-11-5 12:26 编辑 
+
+这人声音好瘦我tc好卡！！！！！求楼友结束后给个录播
+
+*****
+
+####  yywzjsw  
+##### 4731#       发表于 2021-11-5 12:25
+
+去医院了？
+
+*****
+
+####  pei23333  
+##### 4732#       发表于 2021-11-5 12:27
+
+会有好哥哥留录播吗，这个不存着亏炸了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  时间在我手中  
+##### 4733#       发表于 2021-11-5 12:28
+
+ 本帖最后由 时间在我手中 于 2021-11-5 12:39 编辑 
+
+扒这个人的评论找到了歌单
+
+<img src="https://img.saraba1st.com/forum/202111/05/122730h5hzpxyw1y7y51bv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 12:27 上传
+
+4分  Link / 愛美
+
+10分 ナルシス カマってちゃん協奏曲第5番 / モーニング娘。'17
+
+15分 Be My Friend / Rinjinbu
+
+18分アンドロメダまで1hour
+
+24分You &amp; Me / 田村ゆかり feat. motsu from move
+
+30分 断捨離彼氏 / ZOC　
+
+34分  LiBiDo FUSION / ZOC40分 鼓動 / Femme fatale
+
+*****
+
+####  专业划水人员  
+##### 4734#       发表于 2021-11-5 12:30
+
+我猜这人应该是站着唱
+
+*****
+
+####  yywzjsw  
+##### 4735#       发表于 2021-11-5 12:32
+
+我猜一边抖腿一边唱
+
+*****
+
+####  时间在我手中  
+##### 4736#       发表于 2021-11-5 12:35
+
+最近为什么这么利好宅宅，肥婆吃错药了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4737#       发表于 2021-11-5 12:36
+
+好念
+
+*****
+
+####  pei23333  
+##### 4738#       发表于 2021-11-5 12:36
+
+这声音杀伤力太大了，顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  时间在我手中  
+##### 4739#       发表于 2021-11-5 12:37
+
+这就最后了，难顶
+
+美好的时光总是稍纵即逝<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 4740#       发表于 2021-11-5 12:37
+
+这人现在不是咩啊！是小麻！
+
+
+
+*****
+
+####  yywzjsw  
+##### 4741#       发表于 2021-11-5 12:37
+
+要跑了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天真可爱
+
+*****
+
+####  T_Hb  
+##### 4742#       发表于 2021-11-5 12:38
+
+播了就是赚了
+
+*****
+
+####  雪风utopia  
+##### 4743#       发表于 2021-11-5 12:39
+
+是小麻，就是小麻<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 4744#       发表于 2021-11-5 12:40
+
+我的评价是：平时直播用的麦不如ktv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 4745#       发表于 2021-11-5 12:40
+
+风怒
+
