@@ -3854,3 +3854,49 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 为什么我的steam显示11.9才能解锁<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nagitoY  
+##### 335#       发表于 2021-11-5 12:47
+
+好像是微软商店早4天
+
+*****
+
+####  Totokei  
+##### 336#       发表于 2021-11-5 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424080&amp;ptid=2033303" target="_blank">Milarvoz 发表于 2021-11-5 12:26</a>
+芜湖，steam安装完了，起飞！
+这主题曲真好听啊</blockquote>
+想问下steam版的文件结构是跟普通游戏一样是公开的文件夹还是win10商店一样是加密的？
+
+我在想要不要退款了，不想再吃win10商店的屎了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 337#         楼主| 发表于 2021-11-5 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424503&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-4 20:52</a>
+
+想问下steam版的文件结构是跟普通游戏一样是公开的文件夹还是win10商店一样是加密的？
+
+我在想要不要退款 ...</blockquote>
+主程序部分文件加密，
+
+没有微软的严格
+
+*****
+
+####  Totokei  
+##### 338#       发表于 2021-11-5 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424659&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 13:02</a>
+主程序部分文件加密，
+
+没有微软的严格</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">主要是重装系统之后能通过steam恢复文件就行了，盘算了下电脑里三百G的游戏一重装就变成死文件就崩了
+

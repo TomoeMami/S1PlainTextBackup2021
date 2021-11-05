@@ -2173,3 +2173,77 @@ tc现在又不能转了？？</blockquote>
 
 风怒
 
+
+
+*****
+
+####  makourisu-2  
+##### 4746#       发表于 2021-11-5 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4747#       发表于 2021-11-5 12:41
+
+没开辅助轮吗，ktv也能拉
+
+*****
+
+####  JY要塞  
+##### 4748#       发表于 2021-11-5 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要被迷惑了，这是坦克的烟雾弹
+
+*****
+
+####  兔耳僵尸  
+##### 4749#       发表于 2021-11-5 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4750#       发表于 2021-11-5 12:46
+
+愛されたい！
+
+*****
+
+####  T_Hb  
+##### 4751#       发表于 2021-11-5 12:47
+
+好叫
+
+*****
+
+####  时间在我手中  
+##### 4752#       发表于 2021-11-5 12:47
+
+麻酱确实可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4753#       发表于 2021-11-5 12:48
+
+ 本帖最后由 T_Hb 于 2021-11-5 12:54 编辑 
+
+到时候毕业又要发病，放开了唱也太开心了，哼歌也很好
+
+*****
+
+####  yywzjsw  
+##### 4754#       发表于 2021-11-5 12:49
+
+哪天没有发病<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4755#       发表于 2021-11-5 12:57
+
+这歌还挺欢脱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
