@@ -3473,3 +3473,21 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 奇怪，我地平线4的塞纳收到了，3的封面车怎么没有？
 
+
+
+*****
+
+####  虚无连斩  
+##### 298#       发表于 2021-11-5 08:18
+
+研究了一个早上....这代刹车盘变红效果改的太不显眼了...好几辆车烧胎好久才看出红了，简直是玩找茬
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  铅笔  
+##### 299#       发表于 2021-11-5 08:20
+
+xbox还没解锁，究竟啥时候能玩<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
