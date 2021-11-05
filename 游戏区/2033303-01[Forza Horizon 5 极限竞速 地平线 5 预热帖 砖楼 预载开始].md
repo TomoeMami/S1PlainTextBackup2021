@@ -4929,3 +4929,41 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">这就是顶级显卡的代价么...
 
+
+
+*****
+
+####  Totokei  
+##### 438#       发表于 2021-11-5 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432202&amp;ptid=2033303" target="_blank">风流庵TypeC 发表于 2021-11-5 23:35</a>
+技术点拿来买supra新车的超级摇摇乐
+买了就扔，车记得换颜色，轮着上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">虽然我还进不去但游戏但大概明白了
+
+Supra这车的技术点界面有个技能是解锁一次超级抽奖，所以就可以不断买supra然后用技能点解锁这一次抽奖赚钱，然后因为车库空间有限抽奖完就可以直接把车给移除不占空间，颜色就…让自己记住哪台车已经抽奖了？
+
+*****
+
+####  meltykiss  
+##### 439#       发表于 2021-11-5 23:52
+
+3090最新驱动游戏倒是没出过问题,但是玩的steam版游戏内的联网一直在断线
+
+*****
+
+####  Tjodrek  
+##### 440#       发表于 2021-11-5 23:55
+
+欢迎包那8辆车怎么添加到车库里啊草，什么破游戏
+
+*****
+
+####  pl0okm  
+##### 441#       发表于 2021-11-5 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431939&amp;ptid=2033303" target="_blank">Existinghomes 发表于 2021-11-5 23:01</a>
+
+https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19按评论区说的附近有个危险标志，速度控 ...</blockquote>
+又加点速靠路对面的小坡用保险杠蹭到了，最后车也没能上房。看视频才发现原来屋后还有个小土堆 之前注意力全在最高点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

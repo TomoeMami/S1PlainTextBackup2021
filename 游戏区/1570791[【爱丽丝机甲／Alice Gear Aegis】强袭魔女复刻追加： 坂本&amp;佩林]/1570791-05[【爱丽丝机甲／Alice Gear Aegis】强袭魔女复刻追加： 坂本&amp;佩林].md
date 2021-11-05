@@ -2853,3 +2853,26 @@ ep5最后有大概是未来的独眼马尾奏。
 活动第三阶段兑换道具的活动箱在哪张图里，我怎么没找到</blockquote>
 还没看单人，但共斗那里开了新图。
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6201#       发表于 2021-11-5 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432251&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-5 23:41</a>
+
+还没看单人，但共斗那里开了新图。</blockquote>
+共斗，指协力么？我这里开机进去看看只有刷fg002勋章的图。
+
+*****
+
+####  江戸前ルナ  
+##### 6202#       发表于 2021-11-5 23:47
+
+ 本帖最后由 江戸前ルナ 于 2021-11-5 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432294&amp;ptid=1570791" target="_blank">心灵的乳头 发表于 2021-11-5 23:46</a>
+
+共斗，指协力么？我这里开机进去看看只有刷fg002勋章的图。</blockquote>
+啊应该是看错。把单机活动的看错了，我也不见。
+

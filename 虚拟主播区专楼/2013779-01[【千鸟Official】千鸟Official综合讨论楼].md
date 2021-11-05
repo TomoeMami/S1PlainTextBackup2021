@@ -16091,3 +16091,92 @@ coco有没有无能狂怒</blockquote>
 
 这阿准有点棒读
 
+
+
+*****
+
+####  小憨1  
+##### 1419#       发表于 2021-11-5 23:44
+
+哦牛批还有这种电话的
+
+*****
+
+####  rgauss  
+##### 1420#       发表于 2021-11-5 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432274&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-5 23:44</a>
+
+哦牛批还有这种电话的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">思思上次就跟好几个选手连线了 包括电视鸡
+
+*****
+
+####  H2Ofrozen  
+##### 1421#       发表于 2021-11-5 23:49
+
+这会文静直播间十分钟互动都快上千了，可怜我白子还搁那嗯唱<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1422#       发表于 2021-11-5 23:55
+
+ 本帖最后由 rgauss 于 2021-11-5 23:57 编辑 
+
+md看见这傻逼都是气 听白白唱会歌
+
+纯贵物 傻逼 狗鸟奸 
+
+*****
+
+####  小憨1  
+##### 1423#       发表于 2021-11-5 23:56
+
+cj，密麻麻石蜡<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 1424#       发表于 2021-11-5 23:57
+
+特么的，软饭男<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 1425#       发表于 2021-11-5 23:59
+
+我怀疑会有真魔针鸟批去搞这个普信男
+
+*****
+
+####  莫洛骑士  
+##### 1426#       发表于 2021-11-5 23:59
+
+陈珺我燃烧你的梦，你是艾瑞思的制作人还是初音未来的制作人？
+
+*****
+
+####  小憨1  
+##### 1427#       发表于 2021-11-6 00:00
+
+呃呃，看完还是得说，陈珺密麻麻石蜡
+
+*****
+
+####  IDIDIDID  
+##### 1428#       发表于 2021-11-6 00:01
+
+有没有人去外面开个贴：陈珺vs杨沐vs光驱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 1429#       发表于 2021-11-6 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432421&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-6 00:01</a>
+
+有没有人去外面开个贴：陈珺vs杨沐vs光驱</blockquote>
+什么抵御绘景
+

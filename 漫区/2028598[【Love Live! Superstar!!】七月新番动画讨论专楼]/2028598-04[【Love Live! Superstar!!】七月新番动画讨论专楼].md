@@ -811,3 +811,12 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得鲤鱼应该就是没事转出来听听彩虹屁的，还点赞了
 
+
+
+*****
+
+####  lj205  
+##### 4564#       发表于 2021-11-5 23:42
+
+原来是广播嘉宾点的图，算是有心了
+
