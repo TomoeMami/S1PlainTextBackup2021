@@ -4610,3 +4610,17 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我进去丛林路段闪退解决的方法是alt+回车窗口，过了之后再全屏就再也没闪退过了，希望能帮上同样闪退的人。
 
+
+
+*****
+
+####  nemunoki  
+##### 406#       发表于 2021-11-5 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53429294&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-5 19:10</a>
+
+这游戏地图/任务线上排名第一有奖励/成就吗？
+
+孤儿院gta就有个第一的奖章 最后靠bug图拿的 ...</blockquote>
+淘汰之王这个吃鸡模式有1个成就（赢1次）和一整页的奖章奖励
+
