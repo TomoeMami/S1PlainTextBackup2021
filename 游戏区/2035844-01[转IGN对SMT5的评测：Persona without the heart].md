@@ -932,3 +932,48 @@ I did gain a huge spike of new followers, who will probably be mostly gone in ..
 
 —— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  walfeds  
+##### 98#       发表于 2021-11-5 14:11
+
+<img src="https://img.saraba1st.com/forum/202111/05/140932rb4bczmtbglmg9cc.png" referrerpolicy="no-referrer">
+
+<strong>c60ehj4t8nx71.png</strong> (181.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 14:09 上传
+
+<img src="https://img.saraba1st.com/forum/202111/05/140932c6uyy8spp2cfk1xp.jpg" referrerpolicy="no-referrer">
+
+<strong>nhe819lepmx71.jpg</strong> (92.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 14:09 上传
+
+分别来自r/persona和r/megaten的自嘲梗图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 99#       发表于 2021-11-5 14:12
+
+  P这个图的老日呆了，玛娜传奇都出来了还行
+
+*****
+
+####  hallowilliam  
+##### 100#       发表于 2021-11-5 14:24
+
+问题确实是很大的。
+
+我觉得评测吗，要么你作为一个系列老粉来评测，要么干脆以新玩家视角评测。
+
+但是都不做，而是把和p5的区别都当成缺点说。。。。反正肯定是不专业的。
+
+当然了，他IGN才不管专业，所以认真你们就输了。现在可以说ign赢麻了。
+

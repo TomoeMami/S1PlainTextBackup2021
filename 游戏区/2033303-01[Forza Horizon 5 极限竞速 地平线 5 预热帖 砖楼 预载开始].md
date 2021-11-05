@@ -4034,3 +4034,74 @@ steam版的也要另外装映射软件吗<img src="https://static.saraba1st.com/
 
 墨西哥的风景特别多样啊，逛了一圈出乎意料地赏心悦目
 
+
+
+*****
+
+####  天神十三煞  
+##### 353#         楼主| 发表于 2021-11-5 14:07
+
+那个花车什么鬼
+
+太邪神了
+
+*****
+
+####  Lisylfn  
+##### 354#       发表于 2021-11-5 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425178&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-5 13:41</a>
+
+微软商店版本完全不识别手柄是怎么回事
+
+用UWPhook挂到steam上想用任天堂pro不成功也就算了（显示con ...</blockquote>
+什么手柄？
+
+UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄功能的
+
+有非xbox手柄需求的可以试一试ds4windows，如果是xbox手柄，建议升级一下固件，其他也没办法了
+
+steam版随便用手柄，图标现实xbox的罢了
+
+*****
+
+####  爱护动物抓根宝  
+##### 355#       发表于 2021-11-5 14:09
+
+突然发现xsx手柄的分享键居然生效了，什么时候更新的
+
+*****
+
+####  DD-963  
+##### 356#       发表于 2021-11-5 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415780&amp;ptid=2033303" target="_blank">arctichan 发表于 2021-11-4 19:31</a>
+
+没法用PS4手柄控制吗……？</blockquote>
+4代就是这样的，买个X1手柄吧
+
+*****
+
+####  lancasterliang  
+##### 357#       发表于 2021-11-5 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425538&amp;ptid=2033303" target="_blank">Lisylfn 发表于 2021-11-5 14:08</a>
+
+什么手柄？
+
+UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄功能的
+
+有非xbox手柄需求的可以 ...</blockquote>
+任天堂pro和DS4
+
+之前PC上的FORZA都是用DS4玩的，但是正好前几天DS4坏了就想试试能不能添加到steam里用pro，虽说也没抱什么指望但是没想到这次DS4也不能直接用……
+
+我试试ds4win去，谢谢啦
+
+*****
+
+####  没钱买手办  
+##### 358#       发表于 2021-11-5 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用图马斯特方向盘玩了半天，感觉还是手柄开起来舒服
+
