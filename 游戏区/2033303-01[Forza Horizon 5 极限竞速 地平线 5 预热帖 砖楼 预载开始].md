@@ -4793,3 +4793,57 @@ DLSS不太行，开超高质量锯齿也非常多，可能这个选项不算DLSS
 
 第一个嘉年华西南近海路边房顶的快速旅行广告牌是不是刷了危险标志才能拿？ 路对面小斜坡和房后山坡都不太行的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mwj  
+##### 423#       发表于 2021-11-5 22:53
+
+pc版帧数怎么设置来着？视频选项里只有30帧。
+
+*****
+
+####  luster  
+##### 424#       发表于 2021-11-5 22:54
+
+我服了 装完了居然说显卡驱动要9613版本才能运行，在网上查了好久都没看到同样的问题
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  wzy200912345  
+##### 425#       发表于 2021-11-5 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">过关赛一点必跳出，难受<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  meltykiss  
+##### 426#       发表于 2021-11-5 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431465&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 22:08</a>
+
+这玩意居然有影响
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.5.2</blockquote>
+你试过有改善么
+
+*****
+
+####  Existinghomes  
+##### 427#       发表于 2021-11-5 23:01
+
+ 本帖最后由 Existinghomes 于 2021-11-5 23:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431798&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-5 22:42</a>
+第一个嘉年华西南近海路边房顶的快速旅行广告牌是不是刷了危险标志才能拿？ 路对面小斜坡和房后山坡都不太 ...</blockquote>
+https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19按评论区说的附近有个危险标志，速度控到160kph左右亲测可行，剩下我记得没有要飞的牌子了（就算有也不难）
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 428#       发表于 2021-11-5 23:02
+
+玩下来pc版的体验感觉真配不上这个分数<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，希望赶紧把问题修一下
+

@@ -788,3 +788,26 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">boy版的香音还有点好看是怎么回事
 
+
+
+*****
+
+####  cybernetics31  
+##### 4561#       发表于 2021-11-5 22:43
+
+明日香生日不是今天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过鱼挤挤还是有的
+
+*****
+
+####  a92063256  
+##### 4562#       发表于 2021-11-5 22:48
+
+又卡翻页了
+
+*****
+
+####  中野四葉  
+##### 4563#       发表于 2021-11-5 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得鲤鱼应该就是没事转出来听听彩虹屁的，还点赞了
+
