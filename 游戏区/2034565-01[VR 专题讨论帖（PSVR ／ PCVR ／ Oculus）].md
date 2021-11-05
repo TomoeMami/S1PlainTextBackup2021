@@ -1619,3 +1619,15 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  dumplingpro  
+##### 96#       发表于 2021-11-5 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426889&amp;ptid=2034565" target="_blank">sakuranosibe 发表于 2021-11-5 16:04</a>
+
+弱弱的问一下 quest2能玩alyx么？</blockquote>
+串流模式就是把一体机当成一台PCVR用。
+

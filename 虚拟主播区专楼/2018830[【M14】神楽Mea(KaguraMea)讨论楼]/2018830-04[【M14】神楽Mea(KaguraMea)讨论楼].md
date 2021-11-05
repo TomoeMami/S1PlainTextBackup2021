@@ -2426,3 +2426,24 @@ https://www.bilibili.com/video/BV1HF411a75D?share_source=copy_web
 好牛，这也能录完整 ...</blockquote>
 这个少了15分钟，不过想补也可以先用着就是了
 
+
+
+*****
+
+####  肚子疼了  
+##### 4778#       发表于 2021-11-5 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426737&amp;ptid=2018830" target="_blank">Rem-清曲 发表于 2021-11-5 15:53</a>
+
+https://www.bilibili.com/video/BV1HF411a75D?share_source=copy_web
+
+好牛，这也能录完整 ...</blockquote>
+听了之后，坦克民岂不是要大面积破防了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4779#       发表于 2021-11-5 17:13
+
+要录播文件的可以私我）
+

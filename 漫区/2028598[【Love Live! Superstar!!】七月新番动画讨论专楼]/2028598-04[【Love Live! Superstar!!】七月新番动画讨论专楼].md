@@ -657,3 +657,14 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  普之舜舜  
+##### 4552#       发表于 2021-11-5 17:18
+
+人呢，人呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都在等明天呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

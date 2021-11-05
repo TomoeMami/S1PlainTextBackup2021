@@ -1289,3 +1289,17 @@ mhy都没这么拉跨<img src="https://static.saraba1st.com/image/smiley/face201
 
 不过ign嘛。。。现在早就化身流量小丑了
 
+
+
+*****
+
+####  北欧王座  
+##### 129#       发表于 2021-11-5 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427574&amp;ptid=2035844" target="_blank">毛头小希 发表于 2021-11-5 16:53</a>
+
+最简单最直观最常见的
+
+“你SMT这个xxx要素是抄P系列的”</blockquote>
+就是因为我看全了也没有找到类似的表述所以才好奇的。
+
