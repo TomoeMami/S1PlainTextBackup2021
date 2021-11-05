@@ -3639,3 +3639,23 @@ Steam顶级版什么时候可以玩
 
 win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升级到最新<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天神十三煞  
+##### 314#         楼主| 发表于 2021-11-5 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">早玩就是好啊，各种霸榜
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷了好几个前几名，其中还有个世界第一
+
+*****
+
+####  Finsty  
+##### 315#       发表于 2021-11-5 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421373&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-5 09:34</a>
+
+跑完性能测试给我设了个超高，结果一到控制器介绍那个加载界面就跳出，手动选择质量，能进游戏了，但是跑到 ...</blockquote>
+一个提示，使用管理员权限开启游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
