@@ -1814,3 +1814,22 @@ tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 那货在昨天的歌回中还给mea打了5万日元的sc（当时油管还没炸），看来是又真香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 4707#       发表于 2021-11-5 10:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前有两次也是5w拉满的，就是阿咩除了最后念名单的时候基本对他的评论没什么反应，都不知道到底原谅没
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过阿咩跟钱没仇，怕不是感觉就这么吊着这人可以多点收入还蛮爽的
+
+*****
+
+####  时间在我手中  
+##### 4708#       发表于 2021-11-5 11:01
+
+小麻学坏了呜呜呜
+
+啥时候变成麻奇麻<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

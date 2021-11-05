@@ -3718,3 +3718,35 @@ steam买了顶级版是不是过2个小时就能玩了。
 为啥win商店版用xbox手柄没有震动</blockquote>
 有震动啊，扳机都会震
 
+
+
+*****
+
+####  冰箱研会长  
+##### 322#       发表于 2021-11-5 10:46
+
+来人！ 给一句好不好玩！ 好玩我周一就买一份
+
+*****
+
+####  舌怪  
+##### 323#       发表于 2021-11-5 10:57
+
+ 本帖最后由 舌怪 于 2021-11-5 11:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421927&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 10:15</a>
+
+我又到处跑了一圈雨林都是60
+
+包括剧情里的暴风玛雅遗迹</blockquote>
+@天神十三煞   问下楼主，俱乐部怎么加啊？我点了那个“请求邀请”怎么一直没反应？看到28个人已经加入了
+
+*****
+
+####  舌怪  
+##### 324#       发表于 2021-11-5 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422183&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-5 10:32</a>
+
+为啥win商店版用xbox手柄没有震动</blockquote>
+4代偶尔也碰见过，重启游戏就好了
+
