@@ -3950,3 +3950,87 @@ steam版刚打完第一场表演赛，倒是没有遇到什么问题
 
 感觉画面优化有点屎啊，拉到超高，有时候远景贴图都没加载完<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zzydust  
+##### 345#       发表于 2021-11-5 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425072&amp;ptid=2033303" target="_blank">nomhrpls 发表于 2021-11-5 13:30</a>
+
+steam版开场玩到丛林那就闪退，3次了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">跟你一样，不知道是哪里不对
+
+*****
+
+####  lxx4869  
+##### 346#       发表于 2021-11-5 13:48
+
+方向盘默认设置玩了下，铺装路手感还可以，非铺装路震得手疼，默认方向盘角度太小不知道能不能调，虽然手感确实觉着还可以但因为车内视角，第一次开的赛道不熟悉的话圈速不如手柄开。
+
+*****
+
+####  nemunoki  
+##### 347#       发表于 2021-11-5 13:49
+
+这代就是不支持微软自家以外的手柄，要开DS4Windows之类的辅助才能用
+
+然后我也遇到了游戏启动弹出商店里游戏服务页面的问题，把游戏服务卸载重装也没用，最后在系统里把FH5重置又用XBOX应用重新验证一遍数据才算是救了回来
+
+*****
+
+####  920619lqy  
+##### 348#       发表于 2021-11-5 13:50
+
+<blockquote>天神十三煞 发表于 2021-11-4 23:02
+主程序部分文件加密，
+
+没有微软的严格</blockquote>
+还没下班，求个steam版的文件目录截图康康？
+
+*****
+
+####  天神十三煞  
+##### 349#         楼主| 发表于 2021-11-5 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424095&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-4 20:28</a>
+
+你怎么设置的？默认拉最高还是自定义全部拉满？
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v ...</blockquote>
+关闭动态模糊，
+
+然后其他大项最高不设置进阶个别选项
+
+*****
+
+####  虚无连斩  
+##### 350#       发表于 2021-11-5 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425142&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-5 13:38</a>
+
+这作的AI好像真的比4要强啊，老手跑起来感觉比4的专业还厉害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老手AI直线很不讲道理，没改过的车直线根本追不上……全靠弯道延迟刹车+撞来超车
+
+*****
+
+####  lancasterliang  
+##### 351#       发表于 2021-11-5 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425266&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-5 13:49</a>
+
+这代就是不支持微软自家以外的手柄，要开DS4Windows之类的辅助才能用
+
+然后我也遇到了游戏启动弹出商店里游 ...</blockquote>
+steam版的也要另外装映射软件吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我刚把微软商店的退款了
+
+*****
+
+####  老黑305  
+##### 352#       发表于 2021-11-5 14:06
+
+墨西哥的风景特别多样啊，逛了一圈出乎意料地赏心悦目
+

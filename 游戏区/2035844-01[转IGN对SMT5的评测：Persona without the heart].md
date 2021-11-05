@@ -890,3 +890,45 @@ I did gain a huge spike of new followers, who will probably be mostly gone in ..
 
 还是挪威人，阴阳怪气不奇怪
 
+
+
+*****
+
+####  jockeyjoestar  
+##### 94#       发表于 2021-11-5 13:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer"> 加入了P5社交要素的P4F剧情就是一滩烂泥   末世题材人类活的挣扎你还到处旅行招募同伴这本身就不搭
+
+*****
+
+####  bletilla  
+##### 95#       发表于 2021-11-5 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421863&amp;ptid=2035844" target="_blank">fantasya 发表于 2021-11-5 10:09</a>
+
+女神转生正传本身根据场景对于仲魔搭配，装备穿搭都有一定的要求。
+
+现在的玩家不是所有人都愿意去研究的。
+
+ ...</blockquote>
+4F之后咒杀和破魔都改普通伤害了，在窃喜状态下附加概率即死效果。这一代没有窃喜状态了可能是通过祸津灵技加，但肯定比3代那种加运纯粹为了躲即死的设定亲切多了。
+
+*****
+
+####  ranapocket  
+##### 96#       发表于 2021-11-5 13:55
+
+只要不提p5，他这个评语本身是没啥问题的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kimmmmmm  
+##### 97#       发表于 2021-11-5 13:57
+
+什么垃圾人…都能评测啊
+这都是正作的第五作了，又不是新ip,评测者根本没做前几作的功课，还腆着脸说不如p5……
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

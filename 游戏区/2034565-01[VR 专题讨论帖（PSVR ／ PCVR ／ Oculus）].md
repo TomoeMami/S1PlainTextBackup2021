@@ -1484,3 +1484,32 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 
 有兴趣的同学可以看看我之前发的一个 Unity Lab 开发的 MR 应用的介绍贴：[https://keylol.com/t761052-1-1](https://keylol.com/t761052-1-1)
 
+
+
+*****
+
+####  bypass  
+##### 88#         楼主| 发表于 2021-11-5 14:00
+
+ 本帖最后由 bypass 于 2021-11-5 14:02 编辑 
+
+给 Oculus Quest 用的的插帧技术下周上线，自动生成另外的 36 帧。
+
+<img src="https://img.saraba1st.com/forum/202111/05/135948rkxeddgl8o9kevgo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 13:59 上传
+
+需要开发者手动适配：
+
+<img src="https://img.saraba1st.com/forum/202111/05/140233xwlwbmmexv90e0w6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 14:02 上传
+

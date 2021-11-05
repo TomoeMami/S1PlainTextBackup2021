@@ -2270,3 +2270,68 @@ KTV真好<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" r
 
 好rap
 
+
+
+*****
+
+####  时间在我手中  
+##### 4759#       发表于 2021-11-5 13:41
+
+后面的歌找不到了，也没人发，寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能回头慢慢听了
+
+*****
+
+####  yywzjsw  
+##### 4760#       发表于 2021-11-5 13:43
+
+真好，正好在手机要没电之前最后一首<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘栗No.007  
+##### 4761#       发表于 2021-11-5 13:46
+
+来个录播救救午休人<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 4762#       发表于 2021-11-5 13:47
+
+就听了半小时不到....回头找录播了
+
+*****
+
+####  时间在我手中  
+##### 4763#       发表于 2021-11-5 13:48
+
+要迟到了，那么就再来一首吧
+
+*****
+
+####  clvan_  
+##### 4764#       发表于 2021-11-5 13:49
+
+最后亿首
+
+*****
+
+####  专业划水人员  
+##### 4765#       发表于 2021-11-5 13:55
+
+好哥哥！！来个录播吧
+
+*****
+
+####  yywzjsw  
+##### 4766#       发表于 2021-11-5 13:56
+
+结束，不知道今晚还播不播<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4767#       发表于 2021-11-5 14:00
+
+好，有人发了完整的，摸了
+
