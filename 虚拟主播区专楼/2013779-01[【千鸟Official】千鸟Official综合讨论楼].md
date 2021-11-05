@@ -16380,3 +16380,102 @@ image.png
 
 他微博语录更弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 1452#       发表于 2021-11-6 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433135&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-6 01:19</a>
+
+他微博语录更弱智</blockquote>
+台湾，国军那些？
+
+*****
+
+####  tankai  
+##### 1453#       发表于 2021-11-6 01:23
+
+思思不碰电视鸡和星瞳还是有点机会的。主动权在陈SIR，他不知道怎么想的，工作忙不想再投入精力了？
+
+*****
+
+####  莫洛骑士  
+##### 1454#       发表于 2021-11-6 01:26
+
+我看全程没人说别的v不好啊，不都是在骂cj？
+
+*****
+
+####  夜潇箫  
+##### 1455#       发表于 2021-11-6 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433150&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-6 01:21</a>
+台湾，国军那些？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">差不多，还有什么高晓松，土匪。
+
+*****
+
+####  tankai  
+##### 1456#       发表于 2021-11-6 01:29
+
+对了这个陈穿着鲨鱼卫衣握过海子姐手，而自己B站号一颗米都没打。什么精明商人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1457#       发表于 2021-11-6 01:32
+
+行吧，至少还给2.0的上了几个舰长
+
+但捏麻的不给艾瑞思上舰说的过去吗<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 1458#       发表于 2021-11-6 01:35
+
+ttk！ttk！今晚是鸟批战个痛快！
+
+*****
+
+####  小憨1  
+##### 1459#       发表于 2021-11-6 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433239&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 01:32</a>
+行吧，至少还给2.0的上了几个舰长
+
+但捏麻的不给艾瑞思上舰说的过去吗 ...</blockquote>
+难道不是1.0时候上的舰吗，千鸟团24级<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 1460#       发表于 2021-11-6 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433239&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 01:32</a>
+
+行吧，至少还给2.0的上了几个舰长
+
+但捏麻的不给艾瑞思上舰说的过去吗 ...</blockquote>
+前朝属于一踢四了，以为把艾瑞思当宝。
+
+*****
+
+####  T型钉宫病毒  
+##### 1461#       发表于 2021-11-6 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433255&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 01:35</a>
+
+难道不是1.0时候上的舰吗，千鸟团24级</blockquote>
+没找到给团号打钱的记录，不知道是什么时候的
+
+<img src="https://img.saraba1st.com/forum/202111/06/013824e101ss11mq5ejvtm.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211106013801.png</strong> (344.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 01:38 上传
+

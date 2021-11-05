@@ -5069,3 +5069,17 @@ Betterjoy用Switch Pro的话有选项可以直接禁用真实手柄只保留虚�
 
 其他刷在你最常用的车上
 
+
+
+*****
+
+####  ayaseyue  
+##### 451#       发表于 2021-11-6 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431782&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-5 22:40</a>
+
+DLSS不太行，开超高质量锯齿也非常多，可能这个选项不算DLSS？关掉帧率也没低多少 ...</blockquote>
+那个是常见的内部渲染分辨率
+
+不是大力水手
+
