@@ -1185,3 +1185,62 @@ p5销量，从乐观角度看也才500w出头吧(官宣全系列销量1500w)，�
 您要不猜猜看smt全系列销量是多少</blockquote>
 根据世嘉财报，smt全系列销量1770万(含手游)，同一个财报说的p系列1500万。。
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 119#       发表于 2021-11-5 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426906&amp;ptid=2035844" target="_blank">Inominatam 发表于 2021-11-5 16:05</a>
+
+只是野鸡评测的话，就权当茶余饭后的笑料了。问题是真女玩家在自己屋子里吃着火锅唱着歌，突然就被屋子外野 ...</blockquote>
+年一游，年一游
+
+*****
+
+####  redsouris  
+##### 120#       发表于 2021-11-5 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426036&amp;ptid=2035844" target="_blank">hersi 发表于 2021-11-5 14:57</a>
+其实评论说的没啥毛病啊，90年代的时候真女还被拿来跟宝可梦比呢，结果A社还真搞出来一个不伦不类的KID系列 ...</blockquote>
+问题这评论内容就不是谈共性谈差异的对比，仅仅是P5有你没有的都是缺点，也就是说完全是把真5误认为是P5续作来抱怨，如果是一般玩家也就算了，作为有一定权威性的IGN发这种连常识都不查一下假装专业的外行评测那不是让人笑掉大牙吗？
+真没有编辑玩过，就以新玩家入坑角度去评测也比现在这样好。
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  walfeds  
+##### 121#       发表于 2021-11-5 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426918&amp;ptid=2035844" target="_blank">ppa11 发表于 2021-11-5 16:06</a>
+
+根据世嘉财报，smt全系列销量1770万(含手游)，同一个财报说的p系列1500万。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">往前翻翻171819三年财报一起看就能看出来dx2给注了差不多一千万下载量的水，再往前这个数基本就是700-720万
+
+其他增加的部分dsj20万真3hd30万差不多是相对合理的估值
+
+*****
+
+####  杉田悠一  
+##### 122#       发表于 2021-11-5 16:14
+
+IGN现在主要流量就是靠整活了吧， 挺成功的， 其他媒体哪有这么多巨魔流量，IGN半年就来一次大的，
+
+*****
+
+####  Porsche  
+##### 123#       发表于 2021-11-5 16:18
+
+那么能封ign是评测界的mhy了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  节艾司  
+##### 124#       发表于 2021-11-5 16:23
+
+提前玩提前喷还有工资拿，马的这帮行业寄生虫
+

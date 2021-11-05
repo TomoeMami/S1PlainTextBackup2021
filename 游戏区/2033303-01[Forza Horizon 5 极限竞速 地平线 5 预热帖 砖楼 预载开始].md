@@ -4335,3 +4335,33 @@ supra最大的特色还是满屏幕的痛车涂装.......
 
 不能用豪车虐菜车吗
 
+
+
+*****
+
+####  萱时令  
+##### 380#       发表于 2021-11-5 16:19
+
+三点提前跑回家了 steam版从安装到打开到跑完几个比赛一点问题都没出 等半天还是值得的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这作震动克制了一些啊 3 4跑非铺装路震的手麻
+
+*****
+
+####  没钱买手办  
+##### 381#       发表于 2021-11-5 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么加俱乐部
+
+*****
+
+####  ギナ  
+##### 382#       发表于 2021-11-5 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425316&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 13:52</a>
+关闭动态模糊，
+
+然后其他大项最高不设置进阶个别选项</blockquote>
+我是包括msaa在内全部都开到极端的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

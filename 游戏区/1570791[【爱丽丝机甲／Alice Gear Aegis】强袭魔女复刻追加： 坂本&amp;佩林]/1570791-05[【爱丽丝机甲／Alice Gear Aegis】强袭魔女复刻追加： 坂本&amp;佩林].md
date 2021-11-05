@@ -2814,3 +2814,21 @@ ep5最后有大概是未来的独眼马尾奏。
 另外以后某种特异柱子的冲击波中了还会带冰结的DEBUFF。一跑就没气。
 
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 6198#       发表于 2021-11-5 16:08
+
+<img src="https://img.saraba1st.com/forum/202111/05/160822o49r000mh2non025.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021_1105_160633.jpg</strong> (370.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-5 16:08 上传
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
