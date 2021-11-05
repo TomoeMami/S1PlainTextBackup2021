@@ -668,3 +668,15 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 4553#       发表于 2021-11-5 18:58
+
+【Payton尚未推特上的日常短片集（含猫猫与麻花辫Pay子）-哔哩哔哩】https://b23.tv/VV3q5b
+这个pay酱比节目和live上的还要好看！心动了要<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
