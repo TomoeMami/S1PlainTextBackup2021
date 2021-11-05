@@ -1445,3 +1445,36 @@ ign编辑水平拉稀这个毫无疑问，但其实大家心里也都明白SMT5�
 
 高水平的评测应该是先跟新玩家说说“这作和P5比有什么异同”，再跟老玩家谈“这作在整个SMT系列里大概处在什么个位置”。只不过ign水平做不到后半句，只能耍巨魔搞噱头。
 
+
+
+*****
+
+####  setsuko  
+##### 141#       发表于 2021-11-6 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425078&amp;ptid=2035844" target="_blank">arx-7 发表于 2021-11-5 13:31</a>
+正常玩家（比如我同事）在我这说这话我也会直接开怼的 当然是关系还行的
+
+在论坛怼网友甚至都不用在 ...</blockquote>
+媒体评测本来就是一种玩家选购游戏的风向标，没有一点门槛哪能行，何况这言论放一普通玩家嘴里都能被笑掉大牙，结果还是出现在一权重那么大的媒体编辑身上
+
+*****
+
+####  setsuko  
+##### 142#       发表于 2021-11-6 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425078&amp;ptid=2035844" target="_blank">arx-7 发表于 2021-11-5 13:31</a>
+正常玩家（比如我同事）在我这说这话我也会直接开怼的 当然是关系还行的
+
+在论坛怼网友甚至都不用在 ...</blockquote>
+早上起床看懵了..略过
+
+*****
+
+####  setsuko  
+##### 143#       发表于 2021-11-6 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426906&amp;ptid=2035844" target="_blank">Inominatam 发表于 2021-11-5 16:05</a>
+只是野鸡评测的话，就权当茶余饭后的笑料了。问题是真女玩家在自己屋子里吃着火锅唱着歌，突然就被屋子外野 ...</blockquote>
+这种人这贴里也有，你看108楼就知道了
+

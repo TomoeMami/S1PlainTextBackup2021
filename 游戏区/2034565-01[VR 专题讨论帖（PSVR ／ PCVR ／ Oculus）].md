@@ -1695,3 +1695,36 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 
 你可以先从免费的无线方案 Air Link 体验起，不满意的话再考虑其他方案，VD 两周两个小时内不喜欢也可以退款（只能退一次）。
 
+
+
+*****
+
+####  bypass  
+##### 102#         楼主| 发表于 2021-11-6 07:26
+
+<img src="https://img.saraba1st.com/forum/202111/06/072400vhpdjwjgp0ztwdjw.png" referrerpolicy="no-referrer">
+
+<strong>664B5D10-F066-454F-B548-569C1A9999D8.png</strong> (413.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 07:24 上传
+
+官方博文已经开始使用 Meta Quest 代替 Oculus Quest 了，差不多快要与 Oculus 品牌道别了。
+
+*****
+
+####  彩虹肥宅  
+##### 103#       发表于 2021-11-6 07:28
+
+为什么airlink无线串流v社的vr房间非常流畅，但是玩projectwingman，就开始疯狂卡顿。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  有口皆悲  
+##### 104#       发表于 2021-11-6 07:29
+
+改国号“阿Q乐死”为“元”
+
