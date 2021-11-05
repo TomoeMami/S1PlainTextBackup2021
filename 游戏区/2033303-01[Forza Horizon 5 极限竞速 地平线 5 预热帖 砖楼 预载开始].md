@@ -4967,3 +4967,19 @@ Supra这车的技术点界面有个技能是解锁一次超级抽奖，所以就
 https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19按评论区说的附近有个危险标志，速度控 ...</blockquote>
 又加点速靠路对面的小坡用保险杠蹭到了，最后车也没能上房。看视频才发现原来屋后还有个小土堆 之前注意力全在最高点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江宁老实人  
+##### 442#       发表于 2021-11-6 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">疯狂掉线啊，你们什么加速器
+
+*****
+
+####  AliceMilky  
+##### 443#       发表于 2021-11-6 00:24
+
+有啥能够比较稳定的联机方法，微软版xbox网络开放
+
