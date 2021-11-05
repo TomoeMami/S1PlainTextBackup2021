@@ -634,3 +634,26 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 4550#       发表于 2021-11-5 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423479&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-5 11:49</a>
+趁着时间没事干，我来把liella！公演的文件夹分享下，以后所有的live会传在这个网盘里面，转存这个文件夹就 ...</blockquote>
+目前除了两天的群马live有新内容吗？
+
+*****
+
+####  普之舜舜  
+##### 4551#       发表于 2021-11-5 12:13
+
+ 本帖最后由 普之舜舜 于 2021-11-5 12:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423839&amp;ptid=2028598" target="_blank">仟音一心 发表于 2021-11-5 12:11</a>
+目前除了两天的群马live有新内容吗？</blockquote>
+增加了我在互联网搜集到的熟肉，周末才有34场呢
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

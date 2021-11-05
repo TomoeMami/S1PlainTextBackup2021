@@ -1876,3 +1876,118 @@ tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 超，是在卡拉ok？
 
+
+
+*****
+
+####  缺陷电气杨永信  
+##### 4714#       发表于 2021-11-5 12:03
+
+微相关
+世萌投票分布
+
+<img src="https://img.saraba1st.com/forum/202111/05/120319lbbb93b42z239blp.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1346.JPG</strong> (61.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 12:03 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rem-清曲| + 1|什么欧洲vtuber|
+
+查看全部评分
+
+*****
+
+####  时间在我手中  
+##### 4715#       发表于 2021-11-5 12:04
+
+肥婆唱k的时候最后会把伴奏切掉，而且一般都去唱早安少女的
+
+最近的早安少女的歌好难，肥婆不会唱了
+
+*****
+
+####  Klience  
+##### 4716#       发表于 2021-11-5 12:06
+
+问题来了 这行为能在孤独排行榜能排第几名<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4717#       发表于 2021-11-5 12:06
+
+好大的播瘾，好孤单的人
+
+*****
+
+####  yywzjsw  
+##### 4718#       发表于 2021-11-5 12:10
+
+ 本帖最后由 yywzjsw 于 2021-11-5 12:12 编辑 
+
+我咋记得你麻说去ktv都是一个人心情不好的时候，去发泄的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一唱就掐萌音，明明说话不掐
+
+*****
+
+####  时间在我手中  
+##### 4719#       发表于 2021-11-5 12:11
+
+我超，be my friend
+
+*****
+
+####  T_Hb  
+##### 4720#       发表于 2021-11-5 12:11
+
+不过ktv歌回能听到很多平时听不到的歌
+
+*****
+
+####  yywzjsw  
+##### 4721#       发表于 2021-11-5 12:13
+
+ 本帖最后由 yywzjsw 于 2021-11-5 12:15 编辑 
+
+这个就是现充吧，不在外面唱死宅会喜欢的歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分数还蛮高
+
+*****
+
+####  时间在我手中  
+##### 4722#       发表于 2021-11-5 12:18
+
+anisong这不是宅宅歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4723#       发表于 2021-11-5 12:20
+
+好像出来比较远的地方了，待会儿还有预定
+
+*****
+
+####  我单推副会长  
+##### 4724#       发表于 2021-11-5 12:20
+
+tc现在又不能转了？？
+
+*****
+
+####  我单推副会长  
+##### 4725#       发表于 2021-11-5 12:20
+
+tc现在又不能转了？？
+
