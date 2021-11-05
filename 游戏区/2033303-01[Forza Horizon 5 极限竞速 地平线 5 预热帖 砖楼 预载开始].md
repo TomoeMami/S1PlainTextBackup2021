@@ -4162,3 +4162,104 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 不小心接受邀请按成忽略了，重发一下通过，记得重开刷新才看得到
 
+
+
+*****
+
+####  天神十三煞  
+##### 364#         楼主| 发表于 2021-11-5 15:28
+
+中间有个仙人掌地带没啥障碍物
+
+用首发送的道奇的FE可以在那里轻松刷技术点
+
+技术点拿来买supra新车的摇摇乐
+
+买了就扔，车记得换颜色，轮着上
+
+*****
+
+####  haru橙子  
+##### 365#       发表于 2021-11-5 15:29
+
+目前来开最速应该是koenigsegg jesko 机场的危险标志能飞1000m+。
+
+这辆车可以白嫖，地平线冒险里绿色票解锁V10，跑完前十一个三星，大概半个多小时不到一个小时就能搞定，最后去赞赏里领奖励就行了
+
+*****
+
+####  夜_乌鸦  
+##### 366#       发表于 2021-11-5 15:31
+
+完全不会玩竞速游戏<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">拐弯就撞墙，有啥提高自己的办法吗
+
+*****
+
+####  yangfanel  
+##### 367#       发表于 2021-11-5 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424414&amp;ptid=2033303" target="_blank">nagitoY 发表于 2021-11-5 12:47</a>
+
+好像是微软商店早4天</blockquote>
+终极版早4天  普通版9号
+
+*****
+
+####  Hanzong  
+##### 368#       发表于 2021-11-5 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
+完全不会玩竞速游戏拐弯就撞墙，有啥提高自己的办法吗</blockquote>
+拐弯前减速
+
+*****
+
+####  4ckc  
+##### 369#       发表于 2021-11-5 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
+完全不会玩竞速游戏拐弯就撞墙，有啥提高自己的办法吗</blockquote>
+开辅助线，该踩刹车踩刹车，不要全速过弯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  415452356  
+##### 370#       发表于 2021-11-5 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
+
+完全不会玩竞速游戏拐弯就撞墙，有啥提高自己的办法吗</blockquote>
+  就和现实中考驾照一样，你要想好自己的下一步该做什么，提前反应，例如过弯就提前减速啥的，你要是没考驾照就当我没说，用游戏的辅助线慢慢摸感觉，等你熟练了就不需要这个了。
+
+*****
+
+####  Totokei  
+##### 371#       发表于 2021-11-5 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425266&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-5 13:49</a>
+这代就是不支持微软自家以外的手柄，要开DS4Windows之类的辅助才能用
+
+然后我也遇到了游戏启动弹出商店里游 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也是出现这个问题之后点了FH5的重置，商店和xbox应用点下载再也下不回来了一直弹错误
+
+也不知道是商店问题还是什么，尝试下载别的app也下不了
+
+*****
+
+####  有钱多买小人  
+##### 372#       发表于 2021-11-5 15:35
+
+xsx始终连不上线上模式，难道是服务器还没开？
+
+*****
+
+####  mcq_2  
+##### 373#       发表于 2021-11-5 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426516&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-5 15:35</a>
+
+xsx始终连不上线上模式，难道是服务器还没开？</blockquote>
+xsx能玩了？我刚才1点钟还进不去
+
