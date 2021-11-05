@@ -4693,3 +4693,65 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 你们用什么加速器吗，我一直不停弹出掉线通知
 
+
+
+*****
+
+####  中泽君  
+##### 414#       发表于 2021-11-5 21:23
+
+ 本帖最后由 中泽君 于 2021-11-5 21:27 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/05/212714dutrafwhtat3zunu.jpg" referrerpolicy="no-referrer">
+
+<strong>2021-11-05.jpg</strong> (801.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 21:27 上传
+
+默认超高画质，这草简直梦回PS3，请问这是游戏问题还是设置配置问题？
+
+2021-11-05.jpg
+(801.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202111/05/212050par5ka5nwawszgay.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wolfwood  
+##### 415#       发表于 2021-11-5 21:24
+
+怪了，为什么开游戏叫我更新驱动，我已经是最新的N卡驱动了啊
+
+*****
+
+####  萧闻蒲  
+##### 416#       发表于 2021-11-5 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53430953&amp;ptid=2033303" target="_blank">中泽君 发表于 2021-11-05 21:23:25</a>
+默认超高画质，这草简直梦回PS3，请问这是游戏问题还是设置配置问题？</blockquote>应该是bug，好多人都遇到了，我也这样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  katern  
+##### 417#       发表于 2021-11-5 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53429748&amp;ptid=2033303" target="_blank">nomhrpls 发表于 2021-11-5 20:02</a>
+
+我进去丛林路段闪退解决的方法是alt+回车窗口，过了之后再全屏就再也没闪退过了，希望能帮上同样闪 ...</blockquote>
+我丛林没闪退，就是每过一段时间就退一次，真的怪<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leystage  
+##### 418#       发表于 2021-11-5 21:41
+
+玩了几个任务，画面粗看反正还不错，但不对比也没觉得有进化。过场有些贴图错误无伤大雅但感觉打折扣。音乐很有墨西哥风情。总体还是那个味道。
+

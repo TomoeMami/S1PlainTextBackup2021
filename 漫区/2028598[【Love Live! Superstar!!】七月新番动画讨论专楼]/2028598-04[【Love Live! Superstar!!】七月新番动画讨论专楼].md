@@ -714,3 +714,12 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 ラブライブ！スーパースター!! Comic Book 2人の時間! ～Special times～（２）封面，2021年11月19日发售
 <img src="https://p.sda1.dev/3/92b5ce63ea437b9bcd55e04c46294ef5/71Scx6sRSOL._AC_SL1500_.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4557#       发表于 2021-11-5 21:31
+
+明天要是有鲤鱼solo我就马上买票<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
