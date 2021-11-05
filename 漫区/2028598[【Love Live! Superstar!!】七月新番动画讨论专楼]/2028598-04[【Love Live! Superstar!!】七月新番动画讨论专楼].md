@@ -694,3 +694,23 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 但是生煎用来煎的那个包子比小笼包差远了吧…
 根本不是一个东西…
 
+
+
+*****
+
+####  darkendless  
+##### 4555#       发表于 2021-11-5 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53429160&amp;ptid=2028598" target="_blank">仟音一心 发表于 2021-11-5 18:58</a>
+【Payton尚未推特上的日常短片集（含猫猫与麻花辫Pay子）-哔哩哔哩】https://b23.tv/VV3q5b
+这个pay酱比节 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">pay宝太可爱了吧，猫猫也很可爱
+
+*****
+
+####  Piano-Forest  
+##### 4556#       发表于 2021-11-5 20:53
+
+ラブライブ！スーパースター!! Comic Book 2人の時間! ～Special times～（２）封面，2021年11月19日发售
+<img src="https://p.sda1.dev/3/92b5ce63ea437b9bcd55e04c46294ef5/71Scx6sRSOL._AC_SL1500_.jpg" referrerpolicy="no-referrer">
+

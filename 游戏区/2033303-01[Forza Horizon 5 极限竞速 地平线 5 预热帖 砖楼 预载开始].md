@@ -4651,3 +4651,36 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 这代电脑的低俗弯也太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">铁1档弯能300+的冲过去 
 
+
+
+*****
+
+####  meltykiss  
+##### 410#       发表于 2021-11-5 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53428360&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 17:44</a>
+
+更新过了
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.5.2</blockquote>
+显卡设置里的透明度你开了吗,只要开了这玩意我在游戏里全拉最高就肯定满不了0
+
+*****
+
+####  萱时令  
+##### 411#       发表于 2021-11-5 20:54
+
+艹 现在找宝物那都是人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 根本不用找 去圈里人最多的地方就行
+
+*****
+
+####  D-JoeII  
+##### 412#       发表于 2021-11-5 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53429294&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-5 19:10</a>
+
+这游戏地图/任务线上排名第一有奖励/成就吗？
+
+孤儿院gta就有个第一的奖章 最后靠bug图拿的 ...</blockquote>
+玩大逃殺就算倒數第一都有一次抽獎
+
