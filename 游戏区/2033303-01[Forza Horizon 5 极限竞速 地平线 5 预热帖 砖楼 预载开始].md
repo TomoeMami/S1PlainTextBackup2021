@@ -3536,3 +3536,32 @@ xbox还没解锁，究竟啥时候能玩</blockquote>
 发现地面的不远处有明显的材质质量分界线，我明明效果都开到最高了啊</blockquote>
 同样问题，我开的是极致画质，路面前面很明显能看到高清贴图的分隔线，还有树木也是突然出现突然消失
 
+
+
+*****
+
+####  leonlink  
+##### 304#       发表于 2021-11-5 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420737&amp;ptid=2033303" target="_blank">何然 发表于 2021-11-5 08:34</a>
+我用的入门垃圾G920
+
+感觉比4代舒服
+
+找乐子还是得方向盘啊</blockquote>
+那就好，4代搜了一下方向盘教程看着让人劝退<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江宁老实人  
+##### 305#       发表于 2021-11-5 08:53
+
+车券在哪领<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  q781061296  
+##### 306#       发表于 2021-11-5 09:04
+
+Steam顶级版什么时候可以玩
+
