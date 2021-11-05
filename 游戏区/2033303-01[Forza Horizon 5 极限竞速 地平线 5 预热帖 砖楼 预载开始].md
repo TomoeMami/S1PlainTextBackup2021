@@ -4764,3 +4764,16 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">先等几个补丁，3090 2K拉满画质开到后面街道赛城市爆降帧数直接开始部分花屏了....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ギナ  
+##### 420#       发表于 2021-11-5 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53430469&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-5 20:53</a>
+显卡设置里的透明度你开了吗,只要开了这玩意我在游戏里全拉最高就肯定满不了0 ...</blockquote>
+这玩意居然有影响<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

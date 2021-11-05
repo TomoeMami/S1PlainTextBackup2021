@@ -723,3 +723,68 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 明天要是有鲤鱼solo我就马上买票<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AlfredXC  
+##### 4558#       发表于 2021-11-5 22:01
+
+鲤鱼转了自己的明日香
+
+<img src="https://img.saraba1st.com/forum/202111/05/220116buuza8bzmcb13uam.jpg" referrerpolicy="no-referrer">
+
+<strong>EiHdxdQXYAAjDe9-orig.jpg</strong> (615.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202111/05/220116f7cnscs4qc1cp174.jpg" referrerpolicy="no-referrer">
+
+<strong>EiHdxdXXsAAtAXE-orig.jpg</strong> (627.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202111/05/220107zh9aauu9iidza6jk.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211105220034.png</strong> (72.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 22:01 上传
+
+*****
+
+####  lj205  
+##### 4559#       发表于 2021-11-5 22:03
+
+啊，这突然转发自己一年前的明日香cos是怎么回事
+
+为了证明自己有胸？
+
+*****
+
+####  中野四葉  
+##### 4560#       发表于 2021-11-5 22:10
+
+<img src="https://img.saraba1st.com/forum/202111/05/220847o6a4gz6h55j6805o.jpg" referrerpolicy="no-referrer">
+
+<strong>755V)8WL8S}[7FX@`J0F6OF.jpg</strong> (103.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 22:08 上传
+
+<img src="https://img.saraba1st.com/forum/202111/05/220919mgxybo3ikmtazobx.jpg" referrerpolicy="no-referrer">
+
+<strong>]P~2U(LI@CG{BCNY$S`9N.jpg</strong> (89.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 22:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">boy版的香音还有点好看是怎么回事
+
