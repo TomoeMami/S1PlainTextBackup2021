@@ -3659,3 +3659,36 @@ win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升�
 跑完性能测试给我设了个超高，结果一到控制器介绍那个加载界面就跳出，手动选择质量，能进游戏了，但是跑到 ...</blockquote>
 一个提示，使用管理员权限开启游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  君往何处  
+##### 316#       发表于 2021-11-5 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421553&amp;ptid=2033303" target="_blank">Finsty 发表于 2021-11-5 09:47</a>
+
+一个提示，使用管理员权限开启游戏</blockquote>
+好的，等下班回去试试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 317#         楼主| 发表于 2021-11-5 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420144&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-4 12:12</a>
+
+你去森林逛街的时候也能满4K60？</blockquote>
+我又到处跑了一圈雨林都是60
+
+包括剧情里的暴风玛雅遗迹
+
+*****
+
+####  nomhrpls  
+##### 318#       发表于 2021-11-5 10:17
+
+steam买了顶级版是不是过2个小时就能玩了。
+
+还有9900K+2080TI可以4K60帧么
+

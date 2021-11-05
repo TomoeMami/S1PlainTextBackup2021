@@ -1787,3 +1787,21 @@ tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 评论回复时间.....
 
+
+
+*****
+
+####  路人庚  
+##### 4704#       发表于 2021-11-5 10:06
+
+上次评论区搞事的那货阿咩这次还回复了还行
+
+直播时候倒是无视的蛮彻底的，这推特回复怕不是没看id（或者说难道是马内甲在回复吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4705#       发表于 2021-11-5 10:21
+
+说不定是肥婆看到这几天红SC给的多就【当然是选择原谅他了.jpg】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
