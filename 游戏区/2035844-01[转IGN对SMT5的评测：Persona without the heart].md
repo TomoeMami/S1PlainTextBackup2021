@@ -1303,3 +1303,35 @@ mhy都没这么拉跨<img src="https://static.saraba1st.com/image/smiley/face201
 “你SMT这个xxx要素是抄P系列的”</blockquote>
 就是因为我看全了也没有找到类似的表述所以才好奇的。
 
+
+
+*****
+
+####  毛头小希  
+##### 130#       发表于 2021-11-5 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427970&amp;ptid=2035844" target="_blank">北欧王座 发表于 2021-11-5 17:16</a>
+
+就是因为我看全了也没有找到类似的表述所以才好奇的。</blockquote>
+就是被喷得最多的这两句吧
+
+“即便P系列是SMT系列的外传，SMT5感觉也只是P5的中二小弟弟”“像是一个被偷了心的P5”
+
+感觉就想说爸爸像是个年老色衰失去生活希望的儿子一样
+
+至于我说的那句是真的常见
+
+点击评论多一些的真女5或者是去年的真女3HD宣传视频底下都会有人问这些怪怎么这么眼熟是不是抄P5的？
+
+*****
+
+####  北欧王座  
+##### 131#       发表于 2021-11-5 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53428236&amp;ptid=2035844" target="_blank">毛头小希 发表于 2021-11-5 17:33</a>
+
+就是被喷得最多的这两句吧
+
+“即便P系列是SMT系列的外传，SMT5感觉也只是P5的中二小弟弟”“像是一个被偷 ...</blockquote>
+。。。
+
