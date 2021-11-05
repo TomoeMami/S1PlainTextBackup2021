@@ -4558,3 +4558,27 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 开始自选形象了，这次怎么比FH4还要歪瓜裂枣？
 
+
+
+*****
+
+####  铅笔  
+##### 401#       发表于 2021-11-5 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420729&amp;ptid=2033303" target="_blank">何然 发表于 2021-11-5 08:33</a>
+
+你是不是精神美国人了？</blockquote>
+到现在还玩不成，
+
+*****
+
+####  pl0okm  
+##### 402#       发表于 2021-11-5 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53428314&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-5 17:40</a>
+
+运行了一下，这游戏和之前FH4一样，载入界面1080P30，进游戏后又不能正确识别我这个显示器的144刷新率给我 ...</blockquote>
+n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不用游戏自带锁帧
+
+感觉是开游戏时切别的窗口容易出现刷新率识别问题，即使以前在游戏里设置过，重开后设置好的刷新率也自动降
+
