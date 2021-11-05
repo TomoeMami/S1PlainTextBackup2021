@@ -3766,3 +3766,34 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 说起来看狗头人直播，进入游戏之前就先选名字，为啥我一直等到搬进第一栋房子时才能改名……
 
+
+
+*****
+
+####  天神十三煞  
+##### 327#         楼主| 发表于 2021-11-5 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422602&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-4 18:57</a>
+
+@天神十三煞   问下楼主，俱乐部怎么加啊？我点了那个“请求邀请”怎么一直没反应？看到28个人已经加入了 ...</blockquote>
+有时候有延迟
+
+重新打开看看
+
+*****
+
+####  罗科  
+##### 328#       发表于 2021-11-5 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423012&amp;ptid=2033303" target="_blank">何尚生 发表于 2021-11-5 11:18</a>
+
+玩上的大佬们说说这代方向盘支持做得怎么样吧。在考虑要不要买个盘子</blockquote>
+图马斯特T300法拉利+8档H排完美支持，默认设置手感就不错，比上代强了不是一星半点
+
+*****
+
+####  leonlink  
+##### 329#       发表于 2021-11-5 11:46
+
+方向盘支持好，心痒了，可惜更喜欢4代的风景
+

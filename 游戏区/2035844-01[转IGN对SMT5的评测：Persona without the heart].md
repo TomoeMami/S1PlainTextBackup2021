@@ -660,3 +660,96 @@ gamker是装懂哥，这人是直接明牌没玩过其他smt，面向正常玩�
 
 没毛病，确实不适合向所有玩家推荐的游戏凭啥拿高分
 
+
+
+*****
+
+####  zayrq  
+##### 72#       发表于 2021-11-5 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422808&amp;ptid=2035844" target="_blank">四级过了 发表于 2021-11-5 11:08</a>
+
+确实，老美还是都比较自信的，没玩过也不觉得有什么，只有部分中国自媒体，天天给自己立个老玩家人设 ...</blockquote>
+这个编辑给人的感觉是对工作丝毫不上心，甚至没看到他对这个系列做的功课，我怀疑标题不加个V他可能会把这当作是一个新IP。这可不是自信不自信的问题，真要说，我只能说是傲慢。
+
+普通玩家当然可以说这是年轻人的第一款XXX，然而他是IGN的编辑，能写出这样的评测，可以说很德不配位了。
+
+*****
+
+####  fender0402  
+##### 73#       发表于 2021-11-5 11:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没事，7.1分的act游戏评测犹在眼前
+
+*****
+
+####  赤井稻妻  
+##### 74#       发表于 2021-11-5 11:31
+
+路人视角看smt系列就是这个样子，只是这个路人正巧玩过p5，又正巧了解之间的关系
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 75#       发表于 2021-11-5 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422808&amp;ptid=2035844" target="_blank">四级过了 发表于 2021-11-5 11:08</a>
+确实，老美还是都比较自信的，没玩过也不觉得有什么，只有部分中国自媒体，天天给自己立个老玩家人设 ...</blockquote>
+自卑是这样的，就像那些云玩家那些米卫兵，一开口先来个报菜名，xxx多少多少小时xxx价值多少多少钱，先立个人设表示自己有话语权
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zzy516232108  
+##### 76#       发表于 2021-11-5 11:38
+
+概括的挺准确，但看着就是难受
+
+*****
+
+####  setsuko  
+##### 77#       发表于 2021-11-5 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422305&amp;ptid=2035844" target="_blank">Bani82 发表于 2021-11-5 10:38</a>
+除了第一条，其他都是大实话啊
+
+但是！本来就是面向不同受众的吧
+
+当然，反过来说，如果是针对广大非特定用户 ...</blockquote>
+如果游戏受众能评价标准，那建议高销量合家欢乐类直接给满分
+
+*****
+
+####  setsuko  
+##### 78#       发表于 2021-11-5 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422756&amp;ptid=2035844" target="_blank">johnwick 发表于 2021-11-5 11:05</a>
+gamker是装懂哥，这人是直接明牌没玩过其他smt，面向正常玩家，没毛病。</blockquote>
+没玩过有个毛线资格评啊..
+
+*****
+
+####  wtyrambo  
+##### 79#       发表于 2021-11-5 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没玩过A社游戏我有资格评测P5吗
+
+*****
+
+####  setsuko  
+##### 80#       发表于 2021-11-5 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422808&amp;ptid=2035844" target="_blank">四级过了 发表于 2021-11-5 11:08</a>
+确实，老美还是都比较自信的，没玩过也不觉得有什么，只有部分中国自媒体，天天给自己立个老玩家人设 ...</blockquote>
+控制了话语权能不自信吗，评测媒体和发奖的基本都是他们的人，去年那么受争议的游戏都能硬吹
+
+*****
+
+####  iou90  
+##### 81#       发表于 2021-11-5 11:44
+
+两种东西 猴王说的准确 羊头狗肉
+
+至于混在一块 troll这种行为流量当然哗哗的啦 大家都爱
+

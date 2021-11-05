@@ -19107,3 +19107,17 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 但是现在只有寿屋拼装，麻烦成品继续啊
 
+
+
+*****
+
+####  Kuroe  
+##### 1326#       发表于 2021-11-5 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404929&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-4 01:56</a>
+
+小珠爸爸这段还原度蛮高的
+
+纯夏回忆杀这段，白银的声音不太对，像是初高中的武和幼年纯夏在对话。游戏里是 ...</blockquote>
+名场面结束，又没钱做第二季就有意思了
+
