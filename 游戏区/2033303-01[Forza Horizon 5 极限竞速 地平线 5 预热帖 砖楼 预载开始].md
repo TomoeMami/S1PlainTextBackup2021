@@ -4755,3 +4755,12 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 玩了几个任务，画面粗看反正还不错，但不对比也没觉得有进化。过场有些贴图错误无伤大雅但感觉打折扣。音乐很有墨西哥风情。总体还是那个味道。
 
+
+
+*****
+
+####  wzy200912345  
+##### 419#       发表于 2021-11-5 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">先等几个补丁，3090 2K拉满画质开到后面街道赛城市爆降帧数直接开始部分花屏了....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
