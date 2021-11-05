@@ -1264,3 +1264,28 @@ mhy都没这么拉跨<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  毛头小希  
+##### 127#       发表于 2021-11-5 16:53
+
+<blockquote>北欧王座 发表于 2021-11-5 13:35
+不懂真女神转生，有什么因为不了解前作而出现的直接性错误么。</blockquote>
+最简单最直观最常见的
+
+“你SMT这个xxx要素是抄P系列的”
+
+*****
+
+####  hallowilliam  
+##### 128#       发表于 2021-11-5 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425930&amp;ptid=2035844" target="_blank">ybfelix 发表于 2021-11-5 14:46</a>
+
+不过“只玩过P5”恐怕还真是一个相当普遍的视角</blockquote>
+道理是这个道理，专业媒体不应该这么做。
+
+不过ign嘛。。。现在早就化身流量小丑了
+

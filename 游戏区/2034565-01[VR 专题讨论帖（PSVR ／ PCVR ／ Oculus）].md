@@ -1604,3 +1604,18 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 弱弱的问一下 quest2能玩alyx么？</blockquote>
 可以的，Quest 可以有线或者无线串流的方式当一部 PCVR 来用，体验还不错。当然一体机本身肯定是跑不了的，你还需要一台 PC 来运行游戏。
 
+
+
+*****
+
+####  1a不解释  
+##### 95#       发表于 2021-11-5 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425825&amp;ptid=2034565" target="_blank">余情自取 发表于 2021-11-5 14:36</a>
+我的oc2今天到了，已经激活成功，但有几个问题想问：
+1）下游戏好像要梯子，能在机子里直接下梯吗
+2）怎么 ...</blockquote>
+可以装tz
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
