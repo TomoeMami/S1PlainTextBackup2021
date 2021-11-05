@@ -16253,3 +16253,56 @@ sc发啥了？</blockquote>
 
 是因为节目里没提到千鸟吧
 
+
+
+*****
+
+####  rgauss  
+##### 1439#       发表于 2021-11-6 00:45
+
+两眼一黑
+
+*****
+
+####  小憨1  
+##### 1440#       发表于 2021-11-6 00:47
+
+这下得罪个遍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 1441#       发表于 2021-11-6 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432868&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 00:47</a>
+
+这下得罪个遍了</blockquote>
+？？说了啥
+
+*****
+
+####  gawain039  
+##### 1442#       发表于 2021-11-6 00:49
+
+陈珺，你为什么不敢选星瞳？为什么不敢选星瞳？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 1443#       发表于 2021-11-6 00:55
+
+亚达呦 和思思聊完天立马变脸了
+
+*****
+
+####  小憨1  
+##### 1444#       发表于 2021-11-6 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432879&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-6 00:48</a>
+？？说了啥</blockquote>
+节目里的很多选手都在看思思直播，然后思思和文静连麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
