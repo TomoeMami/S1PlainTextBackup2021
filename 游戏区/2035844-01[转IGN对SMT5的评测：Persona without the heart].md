@@ -1244,3 +1244,23 @@ IGN现在主要流量就是靠整活了吧， 挺成功的， 其他媒体哪有
 
 提前玩提前喷还有工资拿，马的这帮行业寄生虫
 
+
+
+*****
+
+####  赤井稻妻  
+##### 125#       发表于 2021-11-5 16:38
+
+一个想法，如果被键刃刺中会失去心变成heartless，那么用键刃刺p5会变成smt5么
+
+*****
+
+####  redsouris  
+##### 126#       发表于 2021-11-5 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427074&amp;ptid=2035844" target="_blank">Porsche 发表于 2021-11-5 16:18</a>
+那么能封ign是评测界的mhy了吗</blockquote>
+mhy都没这么拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

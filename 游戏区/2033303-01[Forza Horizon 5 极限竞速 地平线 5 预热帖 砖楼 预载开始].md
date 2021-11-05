@@ -4365,3 +4365,63 @@ supra最大的特色还是满屏幕的痛车涂装.......
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  有钱多买小人  
+##### 383#       发表于 2021-11-5 16:28
+
+团队游戏只要完赛就能拿奖励了。好起来了。
+
+*****
+
+####  swordofsoul1  
+##### 384#       发表于 2021-11-5 16:36
+
+临时找到的ps4/5手柄玩地平线5的方法
+原理：
+
+地平线5优先识别排在第一个位置的手柄且游戏内不能切换
+
+ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手柄位置
+解决方案：
+1、连接ps4/5手柄手柄
+2、在系统固件禁用该手柄，位置：我的电脑右键管理-设备管理器-人体学输入设备下的HID-compliant game controller
+3、开启虚拟手柄软件，比如XOutput.exe或BetterJoyForCemuv6等，此时固件会显示两个HID-compliant game controller，其一被刚刚禁用
+4、打开地平线5，此时游戏内手柄识别到了虚拟的xbox手柄但无响应，因为虚拟手柄基于真实的手柄而真实手柄被刚禁用
+5、开启刚禁用的真实手柄即可。
+
+*****
+
+####  Jumbohard  
+##### 385#       发表于 2021-11-5 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427347&amp;ptid=2033303" target="_blank">swordofsoul1 发表于 2021-11-5 16:36</a>
+
+临时找到的ps4/5手柄玩地平线5的方法
+
+原理：
+
+地平线5优先识别排在第一个位置的手柄且游戏内不能切换</blockquote>
+如果用的是DS4Windows的话直接在选项里面勾选“隐藏DS4手柄”就行
+
+*****
+
+####  bad_alloc  
+##### 386#       发表于 2021-11-5 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
+
+完全不会玩竞速游戏拐弯就撞墙，有啥提高自己的办法吗</blockquote>
+[https://www.youtube.com/watch?v=LLd5fOzFE64](https://www.youtube.com/watch?v=LLd5fOzFE64)
+
+这个up做的内容挺好的，关于开车、调校都可以看看
+
+*****
+
+####  hzh3355  
+##### 387#       发表于 2021-11-5 16:46
+
+你的车啥水平，AI就啥水平的车，挺好的，可以随意开自己喜欢的车去比赛了
+
