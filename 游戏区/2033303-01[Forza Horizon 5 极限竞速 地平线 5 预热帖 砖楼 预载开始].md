@@ -4591,3 +4591,13 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 疯狂闪退，我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pl0okm  
+##### 404#       发表于 2021-11-5 19:10
+
+这游戏地图/任务线上排名第一有奖励/成就吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孤儿院gta就有个第一的奖章 最后靠bug图拿的
+

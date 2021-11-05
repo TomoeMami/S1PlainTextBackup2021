@@ -680,3 +680,17 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 —— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  D麦林  
+##### 4554#       发表于 2021-11-5 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53413759&amp;ptid=2028598" target="_blank">cqc1021 发表于 2021-11-4 16:43</a>
+生煎好像是翻译成焼き小籠包吧
+
+—— 来自 samsung SM-N9860, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+但是生煎用来煎的那个包子比小笼包差远了吧…
+根本不是一个东西…
+
