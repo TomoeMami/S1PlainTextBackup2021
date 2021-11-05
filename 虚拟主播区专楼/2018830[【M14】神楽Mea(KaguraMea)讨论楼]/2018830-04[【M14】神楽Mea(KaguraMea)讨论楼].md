@@ -2376,3 +2376,19 @@ KTV真好<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" r
 
 刚刚听到今天说去医院了，毕竟不是日本人，对于他们的歌不熟悉
 
+
+
+*****
+
+####  T_Hb  
+##### 4773#       发表于 2021-11-5 14:56
+
+感觉今天应该不会播了，使用强度有点太高了
+
+*****
+
+####  yywzjsw  
+##### 4774#       发表于 2021-11-5 15:00
+
+猜个半夜tc<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

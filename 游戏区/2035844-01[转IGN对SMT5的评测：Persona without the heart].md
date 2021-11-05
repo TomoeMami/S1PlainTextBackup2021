@@ -994,3 +994,109 @@ I did gain a huge spike of new followers, who will probably be mostly gone in ..
 
 咱不能忽视掉大前提而不去尊重IP多样性吧
 
+
+
+*****
+
+####  嘉术2015  
+##### 102#       发表于 2021-11-5 14:45
+
+<blockquote>walfeds 发表于 2021-11-5 14:11
+分别来自r/persona和r/megaten的自嘲梗图</blockquote>
+右上角那个是为你而生吗艹
+
+*****
+
+####  ybfelix  
+##### 103#       发表于 2021-11-5 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425714&amp;ptid=2035844" target="_blank">hallowilliam 发表于 2021-11-5 14:24</a>
+
+问题确实是很大的。
+
+我觉得评测吗，要么你作为一个系列老粉来评测，要么干脆以新玩家视角评测。</blockquote>
+不过“只玩过P5”恐怕还真是一个相当普遍的视角
+
+*****
+
+####  轨迹老实人  
+##### 104#       发表于 2021-11-5 14:46
+
+这就破防啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  alter_ego_  
+##### 105#       发表于 2021-11-5 14:51
+
+笑飞
+
+<img src="https://img.saraba1st.com/forum/202111/05/144948z6wdmw77ne5f8nee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 14:49 上传
+
+*****
+
+####  小李子大脸猫  
+##### 106#       发表于 2021-11-5 14:56
+
+<img src="http://wx3.sinaimg.cn/large/0060CiMkly8gw4a18d5s9j30u01hcjxp.jpg" referrerpolicy="no-referrer">
+
+不同评测人的喜好打分情况一直都存在
+
+*****
+
+####  飞雨啸寒  
+##### 107#       发表于 2021-11-5 14:57
+
+朗报，ign评测视频已有万人点踩
+
+*****
+
+####  hersi  
+##### 108#       发表于 2021-11-5 14:57
+
+其实评论说的没啥毛病啊，90年代的时候真女还被拿来跟宝可梦比呢，结果A社还真搞出来一个不伦不类的KID系列。
+
+说句老粉不爱听的，SMT系列现在就是很尴尬，属于嫡出不如庶出的典型
+
+*****
+
+####  2014720  
+##### 109#       发表于 2021-11-5 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421850&amp;ptid=2035844" target="_blank">zayrq 发表于 2021-11-5 10:08</a>
+这人的推也是一股怪味：
+
+I did gain a huge spike of new followers, who will probably be mostly gone in ...</blockquote>
+笑抽了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 110#       发表于 2021-11-5 14:59
+
+说实话路人讲这种话就哈哈笑过去了，你一个专业的评测媒体就和P5对比也太搞笑了吧
+
+*****
+
+####  ppa11  
+##### 111#       发表于 2021-11-5 15:01
+
+<blockquote>ybfelix 发表于 2021-11-5 14:46
+不过“只玩过P5”恐怕还真是一个相当普遍的视角</blockquote>
+p5销量，从乐观角度看也才500w出头吧(官宣全系列销量1500w)，怎么看都看不出是普遍视角，还要限定只玩过p5，怕是很少。。
+
+*****
+
+####  lbzlxx  
+##### 112#       发表于 2021-11-5 15:02
+
+怕是个新人吧，游戏没玩过多少，甚至没接触过真女系列<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然p系列更加亲民，但是硬核的女神转生才是你祖宗啊
+

@@ -4129,3 +4129,12 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 然后买了那个房子才可以使用传送，移动广告牌撞完不要钱， ...</blockquote>
 又回到撞广告牌的痛苦时光了……
 
+
+
+*****
+
+####  老黑305  
+##### 361#       发表于 2021-11-5 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，现在才发现，之前开998的车参赛，AI的车也大多是没怎么改造的，这次AI也不装了，你开998，AI也通通998
+
