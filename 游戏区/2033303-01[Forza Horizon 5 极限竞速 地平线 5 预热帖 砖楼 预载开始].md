@@ -4777,3 +4777,19 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lxx4869  
+##### 421#       发表于 2021-11-5 22:40
+
+DLSS不太行，开超高质量锯齿也非常多，可能这个选项不算DLSS？关掉帧率也没低多少
+
+*****
+
+####  pl0okm  
+##### 422#       发表于 2021-11-5 22:42
+
+第一个嘉年华西南近海路边房顶的快速旅行广告牌是不是刷了危险标志才能拿？ 路对面小斜坡和房后山坡都不太行的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
