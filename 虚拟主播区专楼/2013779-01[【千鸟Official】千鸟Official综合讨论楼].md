@@ -16001,3 +16001,44 @@ syl 思思在看这微博直播啊..那就不骂了
 
 今天被念到好几次弹幕，这就是认知所带来的快感吗<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 1409#       发表于 2021-11-5 23:09
+
+技巧是吧
+
+奇技淫巧是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 1410#       发表于 2021-11-5 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431546&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-5 22:14</a>
+
+笑死 coco因为疫情原因请假失败了</blockquote>
+运营:CO宝NICE不NICE?
+
+
+
+*****
+
+####  tankai  
+##### 1411#       发表于 2021-11-5 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431946&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-5 23:02</a>
+
+今天被念到好几次弹幕，这就是认知所带来的快感吗</blockquote>
+白字期我天天被认知,上舰后很少认知我.我觉得上当了.需要私信骂骂了.
+
+*****
+
+####  莫洛骑士  
+##### 1412#       发表于 2021-11-5 23:15
+
+囡囡念成团团是吧，什么文化程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
