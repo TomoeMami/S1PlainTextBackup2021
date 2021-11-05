@@ -16479,3 +16479,231 @@ ttk！ttk！今晚是鸟批战个痛快！
 
 2021-11-6 01:38 上传
 
+
+
+*****
+
+####  小憨1  
+##### 1462#       发表于 2021-11-6 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433283&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 01:40</a>
+没找到给团号打钱的记录，不知道是什么时候的</blockquote>
+呃呃，我不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 1463#       发表于 2021-11-6 01:54
+
+ 本帖最后由 莫洛骑士 于 2021-11-5 13:56 编辑 
+
+还是鸟吧好玩，又可以科技独轮车冲原力新v让新人脱离弱智cj苦海，又可以翻他的果粉暴论举办到原力，作为公司代表还上了综艺，作为公众人物不监督下怎么可以呢？
+
+请不要叫我鸟p，请叫我鸟哥
+
+syl 陈珺的老婆孩子疑似都是自己脑补出来的，不然怎么全家福就一个人？
+<img src="https://p.sda1.dev/3/127d2004991f8d7d74bd01da5865c222/34398C13536339CCF4931F36B3E38E9D.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 1464#       发表于 2021-11-6 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433283&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 01:40</a>
+
+没找到给团号打钱的记录，不知道是什么时候的</blockquote>
+算了，不对。
+
+*****
+
+####  tankai  
+##### 1465#       发表于 2021-11-6 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433374&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-6 01:54</a>
+
+还是鸟吧好玩，又可以科技独轮车冲原力新v让新人脱离弱智cj苦海，又可以翻他的果粉暴论举办到原力，作为公 ...</blockquote>
+老婆是初音不行？一屋子手办都是亲儿女。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1466#       发表于 2021-11-6 02:07
+
+<img src="https://p.sda1.dev/3/71c1b3bab968f95201d97083ca74e34e/IMG_CMP_37595519.jpeg" referrerpolicy="no-referrer">
+我超，别😨
+
+*****
+
+####  tankai  
+##### 1467#       发表于 2021-11-6 02:09
+
+WOC 静 
+
+*****
+
+####  灰色的狐狸  
+##### 1468#       发表于 2021-11-6 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433472&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 02:07</a>
+
+我超，别😨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">我超，不至于吧
+
+*****
+
+####  小憨1  
+##### 1469#       发表于 2021-11-6 02:18
+
+<img src="https://p.sda1.dev/3/d028be5369ff1cbb141c067877f62fda/IMG_CMP_168803441.jpeg" referrerpolicy="no-referrer">
+#查询CJ抗压能力#
+
+*****
+
+####  tn_teana  
+##### 1470#       发表于 2021-11-6 02:19
+
+卧槽逆大天是吧<img src="https://p.sda1.dev/3/23c7d5f856cba5f421eaabd8fc3f1aef/IMG_CMP_36168335.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  tankai  
+##### 1471#       发表于 2021-11-6 02:20
+
+这货关注没关，里面有不少眼熟的。
+
+*****
+
+####  求解过程  
+##### 1472#       发表于 2021-11-6 02:22
+
+期待文静的应对<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 1473#       发表于 2021-11-6 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433534&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-6 02:19</a>
+卧槽逆大天是吧
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我开始希望鸟快散了，姐妹几个各谋生路比较好
+
+*****
+
+####  小憨1  
+##### 1474#       发表于 2021-11-6 02:25
+
+疑似破防了<img src="https://p.sda1.dev/3/317ea1c8e34f965462430aeee1ca7d43/IMG_CMP_128852452.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1475#       发表于 2021-11-6 02:27
+
+这byd不会是个假的吧<img src="https://p.sda1.dev/3/9e981770c4b2d6365e7ca861ab613da7/F664078978CC309417AA7BF1B386BD62.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1476#       发表于 2021-11-6 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433581&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 02:27</a>
+
+这byd不会是个假的吧</blockquote>
+应该是本人
+
+翻翻看[历史发言](https://pic4.58cdn.com.cn/nowater/webim/big/n_v2741e9913951c4edab7ea090c5f465d0c.png)
+
+*****
+
+####  莫洛骑士  
+##### 1477#       发表于 2021-11-6 02:31
+
+幼儿园里举办《我的爸爸》主题演讲大赛，陈珺的儿子走上台，对着全校的小朋友说：“我的爸爸，是个脆鲨！”全场掌声雷动，小朋友们都留下了激动的泪水，幼儿园又一天平凡的日子结束了。
+
+syl v老嗨不会给团号上舰的
+
+*****
+
+####  灰色的狐狸  
+##### 1478#       发表于 2021-11-6 02:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">散了算了
+
+看着都蛋疼
+
+*****
+
+####  小憨1  
+##### 1479#       发表于 2021-11-6 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433590&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 02:30</a>
+应该是本人
+
+翻翻看历史发言</blockquote>
+我意思是盗号之类的，这发言不太像一个大型公司中层领导能说出来的话，太逆天了
+
+*****
+
+####  小憨1  
+##### 1480#       发表于 2021-11-6 02:33
+
+ 本帖最后由 小憨1 于 2021-11-6 02:39 编辑 
+
+风怒
+syl，应该是给自己立了个盗号盾
+<img src="https://p.sda1.dev/3/c97e61f72e1a7fc38d3137a7d0d2f99f/23C178ACECCCB783C7B0D403A0BB2AC7.jpg" referrerpolicy="no-referrer">
+
+看了看最新的动态，我看不懂了，睡觉睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 1481#       发表于 2021-11-6 03:26
+
+如果还是一条会炒作的好√那欢乐时光是不是又要超级加倍了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1482#       发表于 2021-11-6 03:29
+
+<img src="https://img.saraba1st.com/forum/202111/06/032856l3x963llusgtxg46.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211106032814.png</strong> (143.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 03:28 上传
+
+*****
+
+####  lunaticfear  
+##### 1483#       发表于 2021-11-6 03:56
+
+好好好
+
+*****
+
+####  tankai  
+##### 1484#       发表于 2021-11-6 04:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433747&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 03:29</a></blockquote>
+这才哪到i哪儿呀，就受不了了？羊驼抗压甩他65535条街，他也不想想前段日子冰火那刷的应援弹幕数量，他要真把文静搞了，网络上一定联系能联系到的A...鸟批和他过过招。
+
+*****
+
+####  莫洛骑士  
+##### 1485#       发表于 2021-11-6 04:25
+
+陈珺为什么是神？在谈论这个问题之前，我想先说说其他运营相较于陈珺究竟差在了哪里
+
+首先是翻下蝈蝻之罪的杨沐……
+

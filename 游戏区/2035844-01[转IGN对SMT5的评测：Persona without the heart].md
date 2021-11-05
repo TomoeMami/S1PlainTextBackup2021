@@ -1335,3 +1335,98 @@ mhy都没这么拉跨<img src="https://static.saraba1st.com/image/smiley/face201
 “即便P系列是SMT系列的外传，SMT5感觉也只是P5的中二小弟弟”“像是一个被偷 ...</blockquote>
 。。。
 
+
+
+*****
+
+####  skdom  
+##### 132#       发表于 2021-11-6 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422590&amp;ptid=2035844" target="_blank">ゆい 发表于 2021-11-5 10:56</a>
+
+魂血狼这种“硬核”的游戏能流行起来不就是因为娘炮多吗？</blockquote>
+魂血狼能流行起来是因为他们控制住了硬核的程度啊
+
+硬核，但又不完全硬核，尤其黑魂血缘，难度控制得相当优秀
+
+让玩家感觉到困难，但又不是完全没有希望，最后打过去后的爽快感也是加倍的
+
+但这完全得益于其优秀的难度控制
+
+别的不说，假如黑魂死了不止掉魂，还会有概率掉道具甚至掉武器装备（早年网游很多都是这样），捡不回来就没了，你看还有多少人撑得下去？
+
+与之相反，恶魂在这个方面就做的不是很好，很多魂系列老玩家都觉得不适应
+
+*****
+
+####  LamdaHT  
+##### 133#       发表于 2021-11-6 04:04
+
+怎么说呢，这么精确的踩雷反而让我感觉他们是为了流量故意这么搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  默逍  
+##### 134#       发表于 2021-11-6 04:14
+
+ 本帖最后由 默逍 于 2021-11-6 04:17 编辑 
+
+感觉不如P5。。。剧情
+
+最好笑的不是所谓主流媒体就是被这种臭鱼烂虾把持着，而是已经这么弱智了还有人要称赞臭鱼烂虾两句，是不是异食癖啊。屁股决定脑袋是吧，这就是你们要的只有屁股没有脑袋的世界吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sssacpgdr  
+##### 135#       发表于 2021-11-6 04:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423197&amp;ptid=2035844" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2021-11-5 11:32</a>
+
+自卑是这样的，就像那些云玩家那些米卫兵，一开口先来个报菜名，xxx多少多少小时xxx价值多少多少钱，先立 ...</blockquote>
+这还不是环境铸就的，没有那些开口就嘲讽别人游戏阅历浅的游戏婆罗门，哪会有人上来先给自己立一个游戏阅历丰富的人设来增加自己说的话的说服力呢
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wh960916|-1|什么jb|
+
+查看全部评分
+
+*****
+
+####  茛菪  
+##### 136#       发表于 2021-11-6 04:26
+
+嘿，说不定真的是烂作呢，现在的atlus做不出老smt味那可太正常了，做出来才是奇迹，如果再做不出p味的话，可不就是啥都不是了吗
+
+*****
+
+####  king520kyo  
+##### 137#       发表于 2021-11-6 05:09
+
+ 本帖最后由 king520kyo 于 2021-11-6 05:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421359&amp;ptid=2035844" target="_blank">ATRO 发表于 2021-11-5 09:33</a>
+
+说明新生代娘炮越来越多了呗，真5末世背景神魔大战好中二，不如P5送礼逛该搞对象。老头环？阴睾的游戏不是 ...</blockquote>
+这次做评测的是个女人  出评测视频当天开始被喷就一直在推特和网友对线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  765PRO  
+##### 138#       发表于 2021-11-6 05:18
+
+IGN自从死亡搁浅那次以后我就认定是zz媒体了，之后也没让我失望，一次次证明自己无评分能力
+
+*****
+
+####  soul_hacker  
+##### 139#       发表于 2021-11-6 05:46
+
+<blockquote>[ 茛菪 replied on 2021-11-6 04:26](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433828&amp;ptid=2035844) 嘿，说不定真的是烂作呢，现在的atlus做不出老smt味那可太正常了，做出来才是奇迹，如果再做不出p味的话，可不就是啥都不是了吗 </blockquote>
+烂作的话那就喷烂的点好了，“不像P5”这算哪门子的评测……来自: iPhone客户端
+

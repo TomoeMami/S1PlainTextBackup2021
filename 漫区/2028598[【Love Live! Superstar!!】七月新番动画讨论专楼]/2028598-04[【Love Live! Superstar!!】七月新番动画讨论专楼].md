@@ -845,3 +845,16 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">暴露没听鲤鱼这期广播了，这就去听
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">以前一直是看熟肉的，上了audee看了才发现原来鲤鱼姐广播关注这么少，这种广播是纯砸钱吧，能有收益吗
 
+
+
+*****
+
+####  lj205  
+##### 4567#       发表于 2021-11-6 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432693&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-11-6 00:26</a>
+暴露没听鲤鱼这期广播了，这就去听
+
+以前一直是看熟肉的，上了audee看了才发现原来鲤鱼姐广播 ...</blockquote>
+能关注多关注一下，好像也是看反馈率决定要不要继续保留的。
+

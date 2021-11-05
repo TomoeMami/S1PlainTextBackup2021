@@ -5083,3 +5083,52 @@ DLSS不太行，开超高质量锯齿也非常多，可能这个选项不算DLSS
 
 不是大力水手
 
+
+
+*****
+
+####  ギナ  
+##### 452#       发表于 2021-11-6 02:47
+
+XSX版这性能模式比画质模式舒服多了，画质模损失这么多帧数换来的画面也不咋的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逆袭的黑月  
+##### 453#       发表于 2021-11-6 03:18
+
+被steam版折腾够了,开场闪退来来回回折腾了8次开场比赛.人都吐了
+
+结果就是搜狗输入法的问题，有输入法时候全屏必定丛林落地闪退、窗口必定沙暴里闪退
+
+*****
+
+####  猫溺泉君  
+##### 454#       发表于 2021-11-6 04:59
+
+这次看官方支持有图马斯特了，jd下单了个t300法拉利，希望不要翻车
+fh4时代就买过了，支持一坨屎，到手俩小时退货
+
+另外现在能刷钱了吗?等一个fh4一样的bug刷抽奖
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  猫溺泉君  
+##### 455#       发表于 2021-11-6 05:00
+
+btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪退最后发现得给管理员权限启动，4k拉满3090大概80帧，就这样吧
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  诶哟卧草  
+##### 456#       发表于 2021-11-6 05:29
+
+玩了一天了，除了频繁掉线以外没有遇到任何问题
+你们的win10一定是咖喱版的吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

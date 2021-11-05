@@ -2905,3 +2905,16 @@ ep5最后有大概是未来的独眼马尾奏。
 
 谢谢大佬
 
+
+
+*****
+
+####  acalephs  
+##### 6206#       发表于 2021-11-6 02:00
+
+懒得折腾日服了，AN夜露的码直接送了吧
+
+<img src="https://p.sda1.dev/3/f338835d214ad2e099db08cd2abbb834/IMG_CMP_190552605.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
