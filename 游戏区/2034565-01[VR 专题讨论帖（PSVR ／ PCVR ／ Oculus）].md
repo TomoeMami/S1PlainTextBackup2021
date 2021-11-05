@@ -1566,3 +1566,22 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 
 3.我觉得还是有，通过sidequest可以获得一些免费的小制作VR游戏和demo，一定程度上扩展了游戏阵容。以及你要实现目标1，就必须先实现目标3
 
+
+
+*****
+
+####  ryans233  
+##### 92#       发表于 2021-11-5 15:24
+
+ 本帖最后由 ryans233 于 2021-11-5 15:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425825&amp;ptid=2034565" target="_blank">余情自取 发表于 2021-11-5 14:36</a>
+
+我的oc2今天到了，已经激活成功，但有几个问题想问：
+
+1）下游戏好像要梯子，能在机子里直接下梯吗
+
+2）怎么 ...</blockquote>
+1. 可以旁加载apk进去，至于该装什么懂的都懂。
+
+2. 憋着。憋到 Oculus 受不了给你七折码或者直接发10刀的时候最便宜<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

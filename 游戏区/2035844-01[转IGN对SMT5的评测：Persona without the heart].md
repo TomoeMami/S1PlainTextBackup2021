@@ -1100,3 +1100,44 @@ p5销量，从乐观角度看也才500w出头吧(官宣全系列销量1500w)，�
 
 虽然p系列更加亲民，但是硬核的女神转生才是你祖宗啊
 
+
+
+*****
+
+####  hersi  
+##### 113#       发表于 2021-11-5 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426085&amp;ptid=2035844" target="_blank">ppa11 发表于 2021-11-5 15:01</a>
+
+p5销量，从乐观角度看也才500w出头吧(官宣全系列销量1500w)，怎么看都看不出是普遍视角，还要限定只玩过p ...</blockquote>
+SMT12344f加起来怕是也没5百万<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wgoenitz  
+##### 114#       发表于 2021-11-5 15:20
+
+你们还别笑IGN，这盆冷水对于大部分p5入坑，准备买真5的玩家来说，是可以让他们不在事后失望破口大骂的警示。
+
+*****
+
+####  walfeds  
+##### 115#       发表于 2021-11-5 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426085&amp;ptid=2035844" target="_blank">ppa11 发表于 2021-11-5 15:01</a>
+
+p5销量，从乐观角度看也才500w出头吧(官宣全系列销量1500w)，怎么看都看不出是普遍视角，还要限定只玩过p ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">您要不猜猜看smt全系列销量是多少
+
+*****
+
+####  riin1  
+##### 116#       发表于 2021-11-5 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422783&amp;ptid=2035844" target="_blank">redsouris 发表于 2021-11-4 19:06</a>
+
+其实和P5比没啥，光是没玩过真女还好说，问题在于全篇除了P5就没有别的游戏例子能举出来
+
+令人觉得这 ...</blockquote>
+人家表示自己能聊gczy，估计是刚玩了极乐迪斯科吧
+

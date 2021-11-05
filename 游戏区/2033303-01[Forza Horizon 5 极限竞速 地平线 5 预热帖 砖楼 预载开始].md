@@ -4138,3 +4138,27 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，现在才发现，之前开998的车参赛，AI的车也大多是没怎么改造的，这次AI也不装了，你开998，AI也通通998
 
+
+
+*****
+
+####  bad_alloc  
+##### 362#       发表于 2021-11-5 15:12
+
+ 本帖最后由 bad_alloc 于 2021-11-5 15:15 编辑 
+
+送的那辆supra都改装的什么勾八，自己重新改一遍终于舒服了
+
+vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，第六元素挂拍卖行了，能卖掉就拿钱换pista，卖不掉就留着自己开吧
+
+458sp不能直接买，没劲
+
+*****
+
+####  天神十三煞  
+##### 363#         楼主| 发表于 2021-11-5 15:14
+
+可能有个别坛友没有成功加俱乐部
+
+不小心接受邀请按成忽略了，重发一下通过，记得重开刷新才看得到
+
