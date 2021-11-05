@@ -4263,3 +4263,75 @@ xsx始终连不上线上模式，难道是服务器还没开？
 xsx始终连不上线上模式，难道是服务器还没开？</blockquote>
 xsx能玩了？我刚才1点钟还进不去
 
+
+
+*****
+
+####  夜_乌鸦  
+##### 374#       发表于 2021-11-5 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426509&amp;ptid=2033303" target="_blank">415452356 发表于 2021-11-5 15:35</a>
+就和现实中考驾照一样，你要想好自己的下一步该做什么，提前反应，例如过弯就提前减速啥的，你要是没考 ...</blockquote>
+驾龄好多年了，不过日常开车也不用比名次过弯也都是慢慢开的，不知道怎么套到竞速游戏里…
+我知道应该提前刹车，不过啥时候算提前，刹车以后怎么加速都没概念，经常拐了以后一按油门车就滑了
+
+*****
+
+####  天神十三煞  
+##### 375#         楼主| 发表于 2021-11-5 15:51
+
+ 本帖最后由 天神十三煞 于 2021-11-5 00:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-4 23:31</a>
+
+完全不会玩竞速游戏拐弯就撞墙，有啥提高自己的办法吗</blockquote>
+搜索“外内外”入门，所有赛车游戏通用
+
+切线弧顶，为了最大速度出弯而努力，
+
+当然你也可以依赖辅助，要提升难度就要学会基本的先刹而后转，不要同时操作，就是入弯前就要把速度先降得差不多，方向不要提前打，实在不行就提前连续点剎，
+
+尤其是高速的车，不然容易抱死打滑，侧移或漂移过弯实际速度是比不上正常降速转向的，用物理常识去想力的方向就明白为什么，不要用平时开普通车的习惯去套。
+
+很简单的说就是你转弯的时候弧度越平坦，以弧顶做的曲线运动速度就可以更高，
+
+所以外内外就是主动把弧顶曲线拉平坦一点，你在赛道上提前靠向转向的相对逆侧增大转弯半径，在接近弧顶前提前降速，再最小幅度的打转向获取提前量增大出弯速度。
+
+*****
+
+####  qianoooo  
+##### 376#       发表于 2021-11-5 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426516&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-5 15:35</a>
+
+xsx始终连不上线上模式，难道是服务器还没开？</blockquote>
+开加速器
+
+*****
+
+####  Hanzong  
+##### 377#       发表于 2021-11-5 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426705&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:51</a>
+驾龄好多年了，不过日常开车也不用比名次过弯也都是慢慢开的，不知道怎么套到竞速游戏里…
+我知道应该提 ...</blockquote>
+开辅助线啊，告诉你啥时候刹车的
+
+*****
+
+####  navarra  
+##### 378#       发表于 2021-11-5 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426208&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-5 15:12</a>
+
+送的那辆supra都改装的什么勾八，自己重新改一遍终于舒服了
+
+vip送的两个超级抽奖出了huyra fe跟第六元素fe ...</blockquote>
+supra最大的特色还是满屏幕的痛车涂装.......
+
+*****
+
+####  升职加薪  
+##### 379#       发表于 2021-11-5 15:59
+
+不能用豪车虐菜车吗
+

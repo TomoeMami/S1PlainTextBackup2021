@@ -1585,3 +1585,22 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 
 2. 憋着。憋到 Oculus 受不了给你七折码或者直接发10刀的时候最便宜<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sakuranosibe  
+##### 93#       发表于 2021-11-5 16:04
+
+弱弱的问一下 quest2能玩alyx么？
+
+*****
+
+####  bypass  
+##### 94#         楼主| 发表于 2021-11-5 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426889&amp;ptid=2034565" target="_blank">sakuranosibe 发表于 2021-11-5 16:04</a>
+
+弱弱的问一下 quest2能玩alyx么？</blockquote>
+可以的，Quest 可以有线或者无线串流的方式当一部 PCVR 来用，体验还不错。当然一体机本身肯定是跑不了的，你还需要一台 PC 来运行游戏。
+

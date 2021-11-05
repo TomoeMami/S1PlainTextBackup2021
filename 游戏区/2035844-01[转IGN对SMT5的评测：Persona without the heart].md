@@ -1141,3 +1141,47 @@ p5销量，从乐观角度看也才500w出头吧(官宣全系列销量1500w)，�
 令人觉得这 ...</blockquote>
 人家表示自己能聊gczy，估计是刚玩了极乐迪斯科吧
 
+
+
+*****
+
+####  Inominatam  
+##### 117#       发表于 2021-11-5 16:05
+
+只是野鸡评测的话，就权当茶余饭后的笑料了。问题是真女玩家在自己屋子里吃着火锅唱着歌，突然就被屋子外野鸡评测臭味引来的魑魅魍魉冲进来踩上几脚。鉴不鉴呐，太鉴了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/05/165758b14z4xw28722rr11.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211105-150759_ Lite.jpg</strong> (206.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 15:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/05/165758frlhe4zbt6o16ce9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211105-150844_ Lite.jpg</strong> (110.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 15:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/05/165800cjus4pkptvpc80u9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211105-155706_ Lite.jpg</strong> (174.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-5 15:58 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ppa11  
+##### 118#       发表于 2021-11-5 16:06
+
+<blockquote>walfeds 发表于 2021-11-5 15:25
+您要不猜猜看smt全系列销量是多少</blockquote>
+根据世嘉财报，smt全系列销量1770万(含手游)，同一个财报说的p系列1500万。。
+
