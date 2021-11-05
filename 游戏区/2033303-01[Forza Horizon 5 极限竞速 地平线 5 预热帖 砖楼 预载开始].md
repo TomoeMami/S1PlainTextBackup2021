@@ -3614,3 +3614,28 @@ Steam顶级版什么时候可以玩
 
 看看你在的时区
 
+
+
+*****
+
+####  qianoooo  
+##### 311#       发表于 2021-11-5 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421225&amp;ptid=2033303" target="_blank">fange 发表于 2021-11-5 09:21</a>
+传闻的国产车是那部，咋没看到</blockquote>
+还没出 大概率第一辆领克
+
+*****
+
+####  君往何处  
+##### 312#       发表于 2021-11-5 09:34
+
+跑完性能测试给我设了个超高，结果一到控制器介绍那个加载界面就跳出，手动选择质量，能进游戏了，但是跑到开头最后一辆车就又跳出了，看了看日志是0xc0000005，感觉只能等更新了，真折腾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 313#       发表于 2021-11-5 09:41
+
+win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升级到最新<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
