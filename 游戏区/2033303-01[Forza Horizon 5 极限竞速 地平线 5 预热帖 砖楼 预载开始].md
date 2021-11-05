@@ -4105,3 +4105,27 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用图马斯特方向盘玩了半天，感觉还是手柄开起来舒服
 
+
+
+*****
+
+####  天神十三煞  
+##### 359#         楼主| 发表于 2021-11-5 14:31
+
+ 本帖最后由 天神十三煞 于 2021-11-4 22:33 编辑 
+
+剧情里冒险尽量先解锁下面紫色的第一个街头冒险
+
+然后买了那个房子才可以使用传送，移动广告牌撞完不要钱，没撞完要钱
+
+*****
+
+####  马僧虔  
+##### 360#       发表于 2021-11-5 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425781&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 14:31</a>
+剧情里冒险尽量先解锁下面紫色的第一个街头冒险
+
+然后买了那个房子才可以使用传送，移动广告牌撞完不要钱， ...</blockquote>
+又回到撞广告牌的痛苦时光了……
+
