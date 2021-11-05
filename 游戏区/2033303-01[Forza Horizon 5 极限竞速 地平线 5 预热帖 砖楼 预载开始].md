@@ -4510,3 +4510,51 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 运行了一下，这游戏和之前FH4一样，载入界面1080P30，进游戏后又不能正确识别我这个显示器的144刷新率给我锁了个72，还只能减不能加，改成36以后就改不回来了。
 
+
+
+*****
+
+####  ギナ  
+##### 396#       发表于 2021-11-5 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427857&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 17:08</a>
+我开到极致了，
+
+我刚才又跑金字塔转了一圈，
+
+还是稳定60。</blockquote>
+更新过了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  misaki_d  
+##### 397#       发表于 2021-11-5 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427567&amp;ptid=2033303" target="_blank">恋妖壶 发表于 2021-11-5 16:52</a>
+
+我也发现了，这不是不能手残拿好车去虐菜车了吗，拿尽力去拿好车是不是就没有强度上的价值了 ...</blockquote>
+4 代有碾压 ai 的 d100 p50 调教，不知道这代还有没有
+
+*****
+
+####  爱护动物抓根宝  
+##### 398#       发表于 2021-11-5 17:49
+
+这代墨西哥amigo跟集体磕了药似的，前驱后驱四驱起步我就没赢过，直线加速赛换越野车才拿到第一名。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 399#       发表于 2021-11-5 17:56
+
+感觉古典电台好敷衍啊，没跑多久就循环了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 400#       发表于 2021-11-5 17:59
+
+开始自选形象了，这次怎么比FH4还要歪瓜裂枣？
+
