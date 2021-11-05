@@ -823,3 +823,70 @@ I did gain a huge spike of new followers, who will probably be mostly gone in ..
 
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  C.W.Nimitz  
+##### 88#       发表于 2021-11-5 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424972&amp;ptid=2035844" target="_blank">秋月孝三 发表于 2021-11-4 21:23</a>
+
+话说最近“面向一般/普通/正常/轻度玩家”这套话术又抬头了。我寻思我认识的一般/普通/正常/轻度玩家也没有 ...</blockquote>
+前面已经有人说了。
+
+作为新玩家对真女这种高概念的玩意不感兴趣，觉得没劲是可以写的。
+
+问题是这作者写这玩意的时候似乎根本不知道真女系列究竟是啥。老外不是没有不知道这个系列的，稍微查查都不会写成这个鸟样。
+
+*****
+
+####  arx-7  
+##### 89#       发表于 2021-11-5 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常玩家（比如我同事）在我这说这话我也会直接开怼的 当然是关系还行的
+
+在论坛怼网友甚至都不用在意关系
+
+怎么就你媒体怼不得啊
+
+*****
+
+####  北欧王座  
+##### 90#       发表于 2021-11-5 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425060&amp;ptid=2035844" target="_blank">C.W.Nimitz 发表于 2021-11-5 13:29</a>
+
+前面已经有人说了。
+
+作为新玩家对真女这种高概念的玩意不感兴趣，觉得没劲是可以写的。</blockquote>
+不懂真女神转生，有什么因为不了解前作而出现的直接性错误么。
+
+
+
+*****
+
+####  GALLADE  
+##### 91#       发表于 2021-11-5 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">腾子哥现在拿血狮出来卖，每个购买玩家凭序列号领取十万Q币，人类历史上最好的游戏诞生了
+
+*****
+
+####  想啊，很想啊  
+##### 92#       发表于 2021-11-5 13:39
+
+你说这游戏难，剧情不行，玩法过时不适合新玩家都行，扯什么人文不符合p5，简直可笑至极
+
+*****
+
+####  C.W.Nimitz  
+##### 93#       发表于 2021-11-5 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422718&amp;ptid=2035844" target="_blank">IcarusInFire 发表于 2021-11-4 19:03</a>
+
+什么梦魇缝合</blockquote>
+其实没啥，就是典型P社/策略游戏玩家
+
+还是挪威人，阴阳怪气不奇怪
+

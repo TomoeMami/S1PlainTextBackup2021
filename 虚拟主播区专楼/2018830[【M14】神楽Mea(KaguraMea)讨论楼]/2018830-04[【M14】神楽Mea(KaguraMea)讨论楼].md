@@ -2247,3 +2247,26 @@ tc现在又不能转了？？</blockquote>
 
 这歌还挺欢脱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 4756#       发表于 2021-11-5 13:32
+
+卧槽，我今天为什么要午睡…
+
+*****
+
+####  TomDu  
+##### 4757#       发表于 2021-11-5 13:36
+
+KTV真好<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4758#       发表于 2021-11-5 13:38
+
+好rap
+

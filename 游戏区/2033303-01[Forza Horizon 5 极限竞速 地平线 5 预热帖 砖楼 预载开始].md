@@ -3916,3 +3916,37 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 steam版刚打完第一场表演赛，倒是没有遇到什么问题
 
+
+
+*****
+
+####  nomhrpls  
+##### 341#       发表于 2021-11-5 13:30
+
+ 本帖最后由 nomhrpls 于 2021-11-5 13:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">steam版开场玩到丛林那就闪退，3次了
+
+*****
+
+####  老黑305  
+##### 342#       发表于 2021-11-5 13:38
+
+这作的AI好像真的比4要强啊，老手跑起来感觉比4的专业还厉害<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lancasterliang  
+##### 343#       发表于 2021-11-5 13:41
+
+微软商店版本完全不识别手柄是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+用UWPhook挂到steam上想用任天堂pro不成功也就算了（显示controller disconnected），我直接用DS4也完全不行，而且是毫无反应毫无提示就太怪了吧？
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 344#       发表于 2021-11-5 13:45
+
+感觉画面优化有点屎啊，拉到超高，有时候远景贴图都没加载完<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
