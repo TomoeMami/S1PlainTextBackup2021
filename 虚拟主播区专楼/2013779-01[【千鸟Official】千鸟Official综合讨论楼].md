@@ -15536,3 +15536,23 @@ co就是9月开始每月都请假
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">为什么不回我，我急死了
 
+
+
+*****
+
+####  tankai  
+##### 1355#       发表于 2021-11-5 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420418&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-5 07:41</a>
+赢！</blockquote>
+啧啧啧，人之初收收味。当初AS要开放这个，你现在大概吊路灯上了呢。
+
+*****
+
+####  莫洛骑士  
+##### 1356#       发表于 2021-11-5 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422085&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-4 22:27</a>
+啧啧啧，人之初收收味。当初AS要开放这个，你现在大概吊路灯上了呢。</blockquote>
+我去了as立刻就变成了善良中立，打击一切认知厨和小团体<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

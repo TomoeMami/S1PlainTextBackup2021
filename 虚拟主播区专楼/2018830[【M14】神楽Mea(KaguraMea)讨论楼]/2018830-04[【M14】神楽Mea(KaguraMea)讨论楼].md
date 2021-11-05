@@ -1805,3 +1805,12 @@ tc才是永远的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 说不定是肥婆看到这几天红SC给的多就【当然是选择原谅他了.jpg】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  汇聚群光  
+##### 4706#       发表于 2021-11-5 10:32
+
+那货在昨天的歌回中还给mea打了5万日元的sc（当时油管还没炸），看来是又真香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

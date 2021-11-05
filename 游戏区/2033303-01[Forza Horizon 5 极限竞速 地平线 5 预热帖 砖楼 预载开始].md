@@ -3692,3 +3692,29 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 还有9900K+2080TI可以4K60帧么
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 319#       发表于 2021-11-5 10:32
+
+为啥win商店版用xbox手柄没有震动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  monono  
+##### 320#       发表于 2021-11-5 10:36
+
+保时捷的那个电动车为啥开起来没有声音？我看实车视频里都有模拟声浪音啊。而且后备箱也打不开？
+
+*****
+
+####  lxx4869  
+##### 321#       发表于 2021-11-5 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422183&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-5 10:32</a>
+
+为啥win商店版用xbox手柄没有震动</blockquote>
+有震动啊，扳机都会震
+

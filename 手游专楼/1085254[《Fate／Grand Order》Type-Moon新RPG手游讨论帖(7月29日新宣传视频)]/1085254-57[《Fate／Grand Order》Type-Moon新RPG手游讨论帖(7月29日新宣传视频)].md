@@ -3118,3 +3118,17 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种卡不都是box越深越不用抽的
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 84253#       发表于 2021-11-5 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417360&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-4 21:37</a>
+
+你说谁 卑弥呼?  1年估计也用不了1次 厨力外真不建议抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">一大早发现300石头没了——昨晚被窝里一口气全抽了，当然是标准结局沉船
+
+算是有点厨力因素在，而且宝具笑得也很开心啊
+
