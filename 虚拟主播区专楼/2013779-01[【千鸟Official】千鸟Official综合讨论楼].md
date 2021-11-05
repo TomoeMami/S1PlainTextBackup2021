@@ -16306,3 +16306,77 @@ sc发啥了？</blockquote>
 ？？说了啥</blockquote>
 节目里的很多选手都在看思思直播，然后思思和文静连麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 1445#       发表于 2021-11-6 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432990&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 01:00</a>
+
+节目里的很多选手都在看思思直播，然后思思和文静连麦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">操操操
+
+*****
+
+####  H2Ofrozen  
+##### 1446#       发表于 2021-11-6 01:05
+
+绷
+
+*****
+
+####  tankai  
+##### 1447#       发表于 2021-11-6 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432890&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-6 00:49</a>
+
+陈珺，你为什么不敢选星瞳？为什么不敢选星瞳？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版  ...</blockquote>
+吃人枫:我怎么会输给一只鸡。
+
+下面八;我觉得我们能处理电视机这个点。
+
+他还恋恋不忘他那虚拟电竞战队，下午有人开盒他。 
+
+*****
+
+####  gawain039  
+##### 1448#       发表于 2021-11-6 01:10
+
+我看到开盒了，只能说陈珺蜜麻麻死掉了
+
+*****
+
+####  tankai  
+##### 1449#       发表于 2021-11-6 01:14
+
+看看千鸟三巨头之一，思思5555。
+
+image.png
+(48.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 01:14 上传
+
+<img src="https://img.saraba1st.com/forum/202111/06/011413higi31rqgigffdog.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄金鸡屁屁  
+##### 1450#       发表于 2021-11-6 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">cj你码码石蜡
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  夜潇箫  
+##### 1451#       发表于 2021-11-6 01:19
+
+他微博语录更弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
