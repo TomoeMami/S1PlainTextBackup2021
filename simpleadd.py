@@ -32,3 +32,4 @@ while 1:
         thdata[threadid]["active"]= True
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
+            
