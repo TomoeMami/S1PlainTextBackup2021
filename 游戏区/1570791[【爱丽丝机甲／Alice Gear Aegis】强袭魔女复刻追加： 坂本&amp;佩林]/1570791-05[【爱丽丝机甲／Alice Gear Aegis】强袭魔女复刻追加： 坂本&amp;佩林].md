@@ -2841,3 +2841,15 @@ ep5最后有大概是未来的独眼马尾奏。
 
 活动第三阶段兑换道具的活动箱在哪张图里，我怎么没找到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6200#       发表于 2021-11-5 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432032&amp;ptid=1570791" target="_blank">心灵的乳头 发表于 2021-11-5 23:12</a>
+
+活动第三阶段兑换道具的活动箱在哪张图里，我怎么没找到</blockquote>
+还没看单人，但共斗那里开了新图。
+

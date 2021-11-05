@@ -4847,3 +4847,85 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 玩下来pc版的体验感觉真配不上这个分数<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，希望赶紧把问题修一下
 
+
+
+*****
+
+####  lxx4869  
+##### 429#       发表于 2021-11-5 23:27
+
+496.49驱动一次跳出都没碰到...
+
+*****
+
+####  janet_ddr  
+##### 430#       发表于 2021-11-5 23:27
+
+下班回来就在玩了，一晚上下来没碰到什么影响游玩的大问题，我是XGP升终极版的。
+
+几个小时下来觉得画面真的是没啥大的进步，不过也有可能只是我的588在性能测试后推荐的是中等画质的原因。
+
+分辨率一开始推荐的是2K，分辨率比例是超高质量，几个小时下来能稳60帧。不过因为画质为中，所以还是能发现有些地方的特效非常差劲。
+
+刚才临退出时试了一下把分辨率设成4K的，居然也能在50多帧徘徊，不得不说优化的很棒了。
+
+一晚上就碰到过一个穿模的小BUG（穿过了公路上的车），不过只过了一会就恢复正常了。
+
+对了，想问问技术点是先集中升级一辆汽车吗？还是说先留着等后面有推荐的好车时再升？
+
+*****
+
+####  我很费纸  
+##### 431#       发表于 2021-11-5 23:31
+
+放弃了，一晚上下来连游戏都没进去，就看见几秒启动界面就没了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+到底是6600XT不行还是地平线不行还是steam不行，心累了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  爱护动物抓根宝  
+##### 432#       发表于 2021-11-5 23:32
+
+苦行跑完了，这作环岛还好，苦行和巨汉长度简直是超级加倍，尤其是苦行，这一作的火山设计太棒了，全程顶着红线攻山爽的一匹，感觉在玩尘埃。
+
+*****
+
+####  风流庵TypeC  
+##### 433#       发表于 2021-11-5 23:35
+
+技术点拿来买supra新车的超级摇摇乐
+买了就扔，车记得换颜色，轮着上
+
+萌新表示这两句没看懂
+
+*****
+
+####  monono  
+##### 434#       发表于 2021-11-5 23:42
+
+还是会闪退啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aria社长  
+##### 435#       发表于 2021-11-5 23:44
+
+3090最新驱动一直闪退，难受<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lotusaelise  
+##### 436#       发表于 2021-11-5 23:44
+
+刚开始玩到能加俱乐部了 q群是哪个？泥潭xbox群么
+
+*****
+
+####  wzy200912345  
+##### 437#       发表于 2021-11-5 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">这就是顶级显卡的代价么...
+

@@ -16042,3 +16042,52 @@ syl 思思在看这微博直播啊..那就不骂了
 
 囡囡念成团团是吧，什么文化程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜潇箫  
+##### 1413#       发表于 2021-11-5 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431546&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-5 22:14</a>
+笑死 coco因为疫情原因请假失败了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">coco有没有无能狂怒
+
+*****
+
+####  rgauss  
+##### 1414#       发表于 2021-11-5 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432109&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-5 23:22</a>
+
+coco有没有无能狂怒</blockquote>
+当然啊 然后一会去点烧烤了，还问白白吃啥
+
+*****
+
+####  莫洛骑士  
+##### 1415#       发表于 2021-11-5 23:25
+
+文静同学姓名爆出，盒来！
+
+*****
+
+####  rgauss  
+##### 1416#       发表于 2021-11-5 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">这中之人是男的？
+
+*****
+
+####  H2Ofrozen  
+##### 1417#       发表于 2021-11-5 23:36
+
+这制作人的名字疑似有点触摸了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zuperer  
+##### 1418#       发表于 2021-11-5 23:39
+
+这阿准有点棒读
+
