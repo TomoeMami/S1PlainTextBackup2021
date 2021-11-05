@@ -9120,3 +9120,12 @@ syl
 
 看了郡圭利抱怨运营联动回才知道之前圭利葵搞的宝可梦大会因为跟live冲突的关系可以用上的staff只有两个连导演都无，在搞什么啦enkr…
 
+
+
+*****
+
+####  hulaoda007  
+##### 8154#       发表于 2021-11-5 08:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

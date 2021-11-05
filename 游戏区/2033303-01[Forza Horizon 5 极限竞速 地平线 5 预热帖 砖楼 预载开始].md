@@ -3491,3 +3491,48 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 xbox还没解锁，究竟啥时候能玩<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不会武术  
+##### 300#       发表于 2021-11-5 08:22
+
+反正xgp白嫖就是9号咯？
+
+
+
+*****
+
+####  何然  
+##### 301#       发表于 2021-11-5 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420622&amp;ptid=2033303" target="_blank">铅笔 发表于 2021-11-5 08:20</a>
+
+xbox还没解锁，究竟啥时候能玩</blockquote>
+你是不是精神美国人了？
+
+*****
+
+####  何然  
+##### 302#       发表于 2021-11-5 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53419423&amp;ptid=2033303" target="_blank">leonlink 发表于 2021-11-5 00:33</a>
+
+这次方向盘支持咋样？刚看一主播是用方向盘玩的，感觉还行</blockquote>
+我用的入门垃圾G920
+
+感觉比4代舒服
+
+找乐子还是得方向盘啊
+
+*****
+
+####  chan  
+##### 303#       发表于 2021-11-5 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418427&amp;ptid=2033303" target="_blank">peshing 发表于 2021-11-4 22:53</a>
+
+发现地面的不远处有明显的材质质量分界线，我明明效果都开到最高了啊</blockquote>
+同样问题，我开的是极致画质，路面前面很明显能看到高清贴图的分隔线，还有树木也是突然出现突然消失
+
