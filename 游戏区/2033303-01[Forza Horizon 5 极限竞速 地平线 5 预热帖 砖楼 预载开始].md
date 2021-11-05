@@ -4624,3 +4624,30 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 孤儿院gta就有个第一的奖章 最后靠bug图拿的 ...</blockquote>
 淘汰之王这个吃鸡模式有1个成就（赢1次）和一整页的奖章奖励
 
+
+
+*****
+
+####  我很费纸  
+##### 407#       发表于 2021-11-5 20:27
+
+steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+社畜下班兴冲冲回家，折腾一小时都没玩成，显卡驱动也升级到最新了啊
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  马僧虔  
+##### 408#       发表于 2021-11-5 20:29
+
+我这边windows版一直提示服务器暂时无法使用……
+
+*****
+
+####  京吹病人  
+##### 409#       发表于 2021-11-5 20:30
+
+这代电脑的低俗弯也太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">铁1档弯能300+的冲过去 
+
