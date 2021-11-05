@@ -4983,3 +4983,15 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 有啥能够比较稳定的联机方法，微软版xbox网络开放
 
+
+
+*****
+
+####  ギナ  
+##### 444#       发表于 2021-11-6 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431926&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-5 23:01</a>
+
+你试过有改善么</blockquote>
+还没试呢，不知道啥回事昨天没装地平线之前还好好的今天就各种变着代码蓝屏，现在才刚还原系统正在重装各种软件中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

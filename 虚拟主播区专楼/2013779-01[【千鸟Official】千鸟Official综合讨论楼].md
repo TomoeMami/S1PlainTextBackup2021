@@ -16237,3 +16237,19 @@ sc发啥了？</blockquote>
 艾瑞思微博把千鸟前缀删了不安</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">散了，散了
 
+
+
+*****
+
+####  rgauss  
+##### 1437#       发表于 2021-11-6 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">说起来 国内综艺现在剧本这么烂了吗..好几年前看还没这么逆天啊
+
+*****
+
+####  小憨1  
+##### 1438#       发表于 2021-11-6 00:31
+
+是因为节目里没提到千鸟吧
+

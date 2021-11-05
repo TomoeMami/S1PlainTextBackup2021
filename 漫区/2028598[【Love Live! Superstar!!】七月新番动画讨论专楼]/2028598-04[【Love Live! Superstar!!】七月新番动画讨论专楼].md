@@ -820,3 +820,28 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 原来是广播嘉宾点的图，算是有心了
 
+
+
+*****
+
+####  cqc1021  
+##### 4565#       发表于 2021-11-6 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431404&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-5 22:03</a>
+啊，这突然转发自己一年前的明日香cos是怎么回事
+
+为了证明自己有胸？</blockquote>
+空杯⚠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  中野四葉  
+##### 4566#       发表于 2021-11-6 00:26
+
+ 本帖最后由 中野四葉 于 2021-11-6 00:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">暴露没听鲤鱼这期广播了，这就去听
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">以前一直是看熟肉的，上了audee看了才发现原来鲤鱼姐广播关注这么少，这种广播是纯砸钱吧，能有收益吗
+
