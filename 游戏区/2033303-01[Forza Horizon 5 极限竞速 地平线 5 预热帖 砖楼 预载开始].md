@@ -4582,3 +4582,12 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 感觉是开游戏时切别的窗口容易出现刷新率识别问题，即使以前在游戏里设置过，重开后设置好的刷新率也自动降
 
+
+
+*****
+
+####  katern  
+##### 403#       发表于 2021-11-5 18:41
+
+疯狂闪退，我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

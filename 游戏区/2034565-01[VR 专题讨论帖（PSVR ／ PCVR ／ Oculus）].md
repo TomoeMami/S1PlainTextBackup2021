@@ -1642,3 +1642,34 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 可以的，Quest 可以有线或者无线串流的方式当一部 PCVR 来用，体验还不错。当然一体机本身肯定是跑不了的 ...</blockquote>
 了解了 谢谢解答 越来越心动了
 
+
+
+*****
+
+####  余情自取  
+##### 98#       发表于 2021-11-5 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我又有问题了，买了正版节奏光剑怎么导入新歌啊
+
+*****
+
+####  拱猪  
+##### 99#       发表于 2021-11-5 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53428868&amp;ptid=2034565" target="_blank">余情自取 发表于 2021-11-5 18:25</a>
+
+我又有问题了，买了正版节奏光剑怎么导入新歌啊</blockquote>
+[https://bs-wgzeyu.gtxcn.com/oq-guide/](https://bs-wgzeyu.gtxcn.com/oq-guide/)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 余情自取| + 1|我超，太感谢了|
+
+查看全部评分
+
