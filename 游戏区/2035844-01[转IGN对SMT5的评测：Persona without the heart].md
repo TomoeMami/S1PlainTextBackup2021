@@ -805,3 +805,21 @@ I did gain a huge spike of new followers, who will probably be mostly gone in ..
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ppa11  
+##### 86#       发表于 2021-11-5 13:07
+
+实时播报，目前ign这个视频900赞9700踩
+
+*****
+
+####  秋月孝三  
+##### 87#       发表于 2021-11-5 13:23
+
+话说最近“面向一般/普通/正常/轻度玩家”这套话术又抬头了。我寻思我认识的一般/普通/正常/轻度玩家也没有这么贱诶<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
