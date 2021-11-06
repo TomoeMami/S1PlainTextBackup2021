@@ -1805,3 +1805,16 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 
 求推荐个quest2的保护包+头戴。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mintslime  
+##### 112#       发表于 2021-11-6 13:32
+
+几个都用过的人觉得其实最好用的是index，头戴舒服，重量可以接受，画面好，不过我的use case比较奇怪
+
+最近成天用virtual desktop连着头显一边划船机一边看比赛，quest2刚好没电所以换了index，当场大惊：原来画质有好这么多吗？！而且我两只眼睛度数不一样，quest2一只眼睛是糊的，index就两眼都可以看到清晰画面
+
+而且如果是想在床上睡前看大屏的话，quest关灯就会弹警告漂，画安全区域也很困难，index对我来说友善多了，最多再买个基站
+

@@ -5301,3 +5301,29 @@ https://support.forzamotorsport.net/hc/en-us/articles/360007593074?input_string=
 
 上榜的可能冲突的软件不少。nahimic这个在我这个电脑上因为集成声卡的缘故会被微软自动安装，我还得上小工具直接禁用更新。
 
+
+
+*****
+
+####  tasuku  
+##### 471#       发表于 2021-11-6 13:25
+
+快速恢复应该是有bug
+我用快速恢复进去方向盘力反馈失效，得重开游戏
+
+*****
+
+####  Vladimeow  
+##### 472#       发表于 2021-11-6 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">我的一个朋友一直是游戏全下完然后提示错误，有什么头绪吗
+
+*****
+
+####  arctichan  
+##### 473#       发表于 2021-11-6 13:39
+
+拍照模式有毒吧？对焦永远对不上。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
