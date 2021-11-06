@@ -1671,3 +1671,39 @@ ok，fine，他画饼我就吃，继续看呗，总不能离了</blockquote>
 
 我超，太哈人了···
 
+
+
+*****
+
+####  IDIDIDID  
+##### 1682#       发表于 2021-11-6 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53439160&amp;ptid=2013779" target="_blank">UnhappyTails 发表于 2021-11-6 16:30</a>
+
+不是一路啊
+
+还是开设文静on air更合理</blockquote>
+露**cosplay是吧还有这种好事？
+
+*****
+
+####  莫洛骑士  
+##### 1683#       发表于 2021-11-6 20:46
+
+【陈太太的道歉-哔哩哔哩】https://b23.tv/Tahi8F
+郑雪娟你有病吧
+
+*****
+
+####  IDIDIDID  
+##### 1684#       发表于 2021-11-6 20:55
+
+文静开了
+
+*****
+
+####  IDIDIDID  
+##### 1685#       发表于 2021-11-6 21:03
+
+可能是我最后一次看二创的感觉
+

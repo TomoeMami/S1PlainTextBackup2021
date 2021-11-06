@@ -9475,3 +9475,35 @@ https://www.youtube.com/watch?v=Rp-U8G_ZrdE
 还有20分钟开</blockquote>
 熟悉的声音 真好
 
+
+
+*****
+
+####  hulaoda007  
+##### 8187#       发表于 2021-11-6 20:51
+
+哎呀呀...
+
+*****
+
+####  渡鸦骑士  
+##### 8188#       发表于 2021-11-6 20:52
+
+youtube，这算回来吗？
+
+*****
+
+####  poipanchao  
+##### 8189#       发表于 2021-11-6 20:55
+
+bora的衣服不错
+
+有没有十年老粉说下eli这声线有变吗？
+
+*****
+
+####  zore  
+##### 8190#       发表于 2021-11-6 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不是把以前唱过的又唱一次了,再去听一遍就知道了
+

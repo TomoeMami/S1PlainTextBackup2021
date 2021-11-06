@@ -13542,3 +13542,19 @@ syl：晚上Among Us的人还都挺熟的，可以看一看
 
 关了也好，既然她不能完全无视这些评论不如关了一了百了，清净，省得心烦吧
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 7082#       发表于 2021-11-6 20:47
+
+不过就我来说补直播时没有评论指路体验还是蛮差的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 7083#       发表于 2021-11-6 20:58
+
+crew和阿夸迟早要疯一个<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
