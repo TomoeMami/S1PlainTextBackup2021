@@ -1422,3 +1422,39 @@ liella之歌还是有可能换的，nonfiction的衣服就别想了，定好的�
 
 这个ED戏好多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4634#       发表于 2021-11-6 18:43
+
+ 本帖最后由 lj205 于 2021-11-6 18:55 编辑 
+
+删掉吧
+
+*****
+
+####  秋月艾莉  
+##### 4635#       发表于 2021-11-6 18:57
+
+你都知你上脑了那还是冷静一下吧
+
+等全演完你再呕黑泥也不迟
+
+*****
+
+####  player3960  
+##### 4636#       发表于 2021-11-6 18:59
+
+听说今天导播很给力，好的舞蹈细节都能看到了，等录播再看看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Arccueid  
+##### 4637#       发表于 2021-11-6 19:00
+
+今天感觉挺稳的
+
