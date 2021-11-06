@@ -1728,3 +1728,43 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 
 改国号“阿Q乐死”为“元”
 
+
+
+*****
+
+####  bypass  
+##### 105#         楼主| 发表于 2021-11-6 07:51
+
+ 本帖最后由 bypass 于 2021-11-6 07:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434012&amp;ptid=2034565" target="_blank">彩虹肥宅 发表于 2021-11-6 07:28</a>
+
+为什么airlink无线串流v社的vr房间非常流畅，但是玩projectwingman，就开始疯狂卡顿。
+
+—— 来自 X ...</blockquote>
+显卡扛不住了？SteamVR Home 肯定没游戏耗资源，有线会出现类似的问题吗，看看 CPU/GPU 占用呢。
+
+还有就是 SteamVR 可能会把超采样开得很高，注意一下。个人比较建议入个 fpsVR 随时看帧数和调节设置。
+
+*****
+
+####  bypass  
+##### 106#         楼主| 发表于 2021-11-6 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434016&amp;ptid=2034565" target="_blank">有口皆悲 发表于 2021-11-6 07:29</a>
+
+改国号“阿Q乐死”为“元”</blockquote>
+我比较好奇以后手机端的 Oculus App 会改名叫啥，Meta VR？
+
+*****
+
+####  彩虹肥宅  
+##### 107#       发表于 2021-11-6 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434073&amp;ptid=2034565" target="_blank">bypass 发表于 2021-11-6 07:51</a>
+显卡扛不住了？SteamVR Home 肯定没游戏耗资源，有线会出现类似的问题吗，看看 CPU/GPU 占用呢。
+
+还有就 ...</blockquote>
+2070s应该不会撑不住吧<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">，我试试有线
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
