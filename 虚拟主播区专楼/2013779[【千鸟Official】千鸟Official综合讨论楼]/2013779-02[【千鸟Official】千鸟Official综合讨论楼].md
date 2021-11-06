@@ -866,3 +866,77 @@ BV1Dr4y1C72w
 
 我和我最后的倔强<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UnhappyTails  
+##### 1593#       发表于 2021-11-6 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438695&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-6 15:46</a>
+毕业了之后要是开办文静小学校就搞笑了</blockquote>
+不是一路啊
+
+还是开设文静on air更合理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1594#       发表于 2021-11-6 16:31
+
+呜呜呜！！！这都是些啥啊！
+
+*****
+
+####  灰色的狐狸  
+##### 1595#       发表于 2021-11-6 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 我看不到明天
+
+*****
+
+####  rgauss  
+##### 1596#       发表于 2021-11-6 16:32
+
+“喜欢从来不是单向的，我们是双向奔赴的，我们的明天是温柔的”呜呜呜！这都是些啥啊
+
+*****
+
+####  夜之中道崩殂  
+##### 1597#       发表于 2021-11-6 16:34
+
+等琳请完病假回来，单位没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1598#       发表于 2021-11-6 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53439205&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-6 16:34</a>
+
+等琳请完病假回来，单位没了</blockquote>
+如果请假是去找工作呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hanshanwulu  
+##### 1599#       发表于 2021-11-6 16:38
+
+要v圈给文静陪葬！<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聪明墨菲特  
+##### 1600#       发表于 2021-11-6 16:40
+
+文静=高配新月岚，所以文静转生=高配眠眠<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  tankai  
+##### 1601#       发表于 2021-11-6 16:43
+
+某贤妻三十级脆鲨牌?顶真?
+
