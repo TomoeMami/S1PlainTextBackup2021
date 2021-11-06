@@ -5664,3 +5664,51 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 1，默认应该是超高但是贴图的质量很差，拍照模式里甚 ...</blockquote>
 把所有超高的調低一格
 
+
+
+*****
+
+####  andychen  
+##### 506#       发表于 2021-11-6 20:33
+
+V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面还有水
+
+开了牵引力控制和ABS还是追不上，吐了
+
+*****
+
+####  铅笔  
+##### 507#       发表于 2021-11-6 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441166&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-6 19:24</a>
+
+果然只要来的够早我也能蹭名人堂，昨晚冲了个700名截图睡觉，今天回来一看已经2000开外了 ...</blockquote>
+我看我是进不了名人堂了，任务应该是没法解锁了。
+
+*****
+
+####  lxx4869  
+##### 508#       发表于 2021-11-6 20:37
+
+ 本帖最后由 lxx4869 于 2021-11-6 20:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441872&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-6 20:15</a>
+
+这代漂移简单多了
+
+全部漂完了
+
+我自己买了个漂移方程式狗哥#43</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么觉着这作漂移变难了，那个35A 35B死活只有2星...4代我好像努力下漂移区间就能3星了，还是说因为我太久没玩FH了最近都在玩ac和acc没手感了...
+
+*****
+
+####  lxx4869  
+##### 509#       发表于 2021-11-6 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
+
+V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面还有水
+
+开了牵引力控制和ABS还是追不上，吐了 ...</blockquote>
+有一关是难一些，记不清是不是第九关了，是不是前面铺装路后面泥地的那关？我是前半段利用铺装路抓地力好的优势努力超到ai前面，然后就可以慢悠悠走防守线一直到终点了。
+

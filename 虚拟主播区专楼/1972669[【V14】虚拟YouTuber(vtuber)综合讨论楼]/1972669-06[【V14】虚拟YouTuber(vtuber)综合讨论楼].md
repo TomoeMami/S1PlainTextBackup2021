@@ -9452,3 +9452,26 @@ Syl，黑黑新原创曲歌平庸，唱得一般，MIX还拉了<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不找前同事救一下
 
+
+
+*****
+
+####  FCCHua  
+##### 8185#       发表于 2021-11-6 20:22
+
+bora新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhawp  
+##### 8186#       发表于 2021-11-6 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441376&amp;ptid=1972669" target="_blank">free 发表于 2021-11-6 19:39</a>
+
+https://www.youtube.com/watch?v=Rp-U8G_ZrdE
+
+初配信です
+
+还有20分钟开</blockquote>
+熟悉的声音 真好
+

@@ -1627,3 +1627,47 @@ ok，fine，他画饼我就吃，继续看呗，总不能离了</blockquote>
 
 将军，何不黄袍加身
 
+
+
+*****
+
+####  tn_teana  
+##### 1677#       发表于 2021-11-6 20:28
+
+文静算是管人圈四千年一出的奇才了，支持正义单飞
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  希克苏鲁伯  
+##### 1678#       发表于 2021-11-6 20:28
+
+钱最多的文静算提成才破万，基本工资估计没多少，下家不至于出不起。但如果cj个沙软真地启用竞业，那原力下个v也别想有指望了
+
+*****
+
+####  袜子  
+##### 1679#       发表于 2021-11-6 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442066&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-11-6 20:28</a>
+
+钱最多的文静算提成才破万，基本工资估计没多少，下家不至于出不起。但如果cj个沙软真地启用竞业，那原力下 ...</blockquote>
+高看了，想想四字母<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸟P有那个冲锋能力？
+
+*****
+
+####  rgauss  
+##### 1680#       发表于 2021-11-6 20:35
+
+哈人 tm被发了cj他老婆道歉视频，开放的时候我差点把手机吓掉了，现在合成音这么像真人了吗？
+
+
+
+*****
+
+####  袜子  
+##### 1681#       发表于 2021-11-6 20:38
+
+我超，太哈人了···
+
