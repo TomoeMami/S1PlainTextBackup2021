@@ -878,3 +878,20 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  darkendless  
+##### 4570#       发表于 2021-11-6 16:02
+
+可恋二创好少，可以期待可all人产粮
+顺便花田第二季能不能发功救一下，让青山姐也能聊聊自己角色的cp啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 4571#       发表于 2021-11-6 16:04
+
+恋恋先不说，青山姐真的会愿意搞cp营业吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

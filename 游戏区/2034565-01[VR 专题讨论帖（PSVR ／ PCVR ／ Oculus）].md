@@ -1886,3 +1886,14 @@ INDEX主要是可以装散热模块，直接从头盔内部抽风爽爆、
 现在界面有所改变但大致效果是一样的。 ...</blockquote>
 画质调低后就能玩了，顺带问一下分辨率调多少比较好
 
+
+
+*****
+
+####  JAROD009  
+##### 118#       发表于 2021-11-6 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434687&amp;ptid=2034565" target="_blank">Ichihatsu 发表于 2021-11-6 09:50</a>
+Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖的要吐了</blockquote>
+怕光线，环境光越亮定位越不准，因为是靠头盔上的IR摄像头来定位的，所以户外完全不能用
+
