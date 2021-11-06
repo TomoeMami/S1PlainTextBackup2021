@@ -5573,3 +5573,28 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 这代速度感比上一代好很多感觉，而且不小心跑到草丛也不会马上打滑，开起来更爽了。
 
+
+
+*****
+
+####  铅笔  
+##### 498#       发表于 2021-11-6 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440651&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-6 18:44</a>
+
+嘉年华旁边几十米有个口</blockquote>
+位置找到了
+
+是不是要排名上升之后才能进名人堂？要排多少名啊
+
+*****
+
+####  Totokei  
+##### 499#       发表于 2021-11-6 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重装游戏之后可以进去了，然后现在两个问题：
+
+1，默认应该是超高但是贴图的质量很差，拍照模式里甚至有fh1的味道了
+
+2，拍照模式对不了焦，要找无数个点狂按对焦才有几率显示对焦点在车上的
+

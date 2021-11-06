@@ -1029,3 +1029,88 @@ v吧烂炒
 
 syl 很喜欢艾白1.0的话“千鸟 狗都不看”
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1612#       发表于 2021-11-6 19:01
+
+陈珺QA回
+[https://live.bilibili.com/22622904](https://live.bilibili.com/22622904)
+
+*****
+
+####  rgauss  
+##### 1613#       发表于 2021-11-6 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440851&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 19:01</a>
+
+陈珺QA回
+
+https://live.bilibili.com/22622904</blockquote>
+真没人给他画面 
+
+*****
+
+####  伞沢直美  
+##### 1614#       发表于 2021-11-6 19:07
+
+甩锅回是吧
+
+*****
+
+####  rgauss  
+##### 1615#       发表于 2021-11-6 19:09
+
+ 本帖最后由 rgauss 于 2021-11-6 19:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">不小心点了进去 这声音恶心到我了
+
+syl 这不是经典画大饼环节 正常人都快听吐了 真有人信？
+
+*****
+
+####  聪明墨菲特  
+##### 1616#       发表于 2021-11-6 19:14
+
+叔叔是不是压人气了，1.6w人气和十几万人气的弹幕一样<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  rgauss  
+##### 1617#       发表于 2021-11-6 19:15
+
+关于二创：不是没在做，很多被成员自己看了不满意打回去了，其他是运营打回去了
+
+你们信吗？
+
+*****
+
+####  袜子  
+##### 1618#       发表于 2021-11-6 19:16
+
+ 本帖最后由 袜子 于 2021-11-6 19:19 编辑 
+
+哈哈哈哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">救命我要笑死了，我可以信，好吧，就是我可以信，至于二创，隔壁可以很明显的看出招安（省略内部消息）
+
+*****
+
+####  聪明墨菲特  
+##### 1619#       发表于 2021-11-6 19:19
+
+这个stf小哥哥感觉画起饼还挺正经的，怎么私号就像个乐子人一样，不会是双面人吧
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  rgauss  
+##### 1620#       发表于 2021-11-6 19:19
+
+三年？三天
+
+经典盗号是吧，盗号盾一次好用，第二次可不好用
+

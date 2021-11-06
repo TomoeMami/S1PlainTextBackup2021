@@ -17162,3 +17162,16 @@ MC没兴趣  看讨论说绫总昨天有机会就发呆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看，有没有人数过余一共说过几句话。
 
+
+
+*****
+
+####  nian1538  
+##### 13434#       发表于 2021-11-6 19:08
+
+ 本帖最后由 nian1538 于 2021-11-6 19:19 编辑 
+
+https://twitter.com/NT4218/status/1456923719524241413
+皆切人在2021
+太可悲了，感觉就像小丑一样，然后保存转发了
+

@@ -1458,3 +1458,60 @@ liella之歌还是有可能换的，nonfiction的衣服就别想了，定好的�
 
 今天感觉挺稳的
 
+
+
+*****
+
+####  中野四葉  
+##### 4638#       发表于 2021-11-6 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光头大哥太抢眼了
+
+*****
+
+####  iuhehc  
+##### 4639#       发表于 2021-11-6 19:08
+
+还是在中间最前面那一排<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4640#       发表于 2021-11-6 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼的mc还是得多练练
+
+*****
+
+####  Arccueid  
+##### 4641#       发表于 2021-11-6 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440973&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-11-6 19:09</a>
+
+鱼的mc还是得多练练</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说不定太君就好这口呢，挺萌的
+
+*****
+
+####  cybernetics31  
+##### 4642#       发表于 2021-11-6 19:15
+
+ 本帖最后由 cybernetics31 于 2021-11-6 19:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 4643#       发表于 2021-11-6 19:16
+
+<blockquote>引用第4639楼cybernetics31于2021-11-06 19:09发表的  :
+
+鱼的mc还是得多练练</blockquote>
+@cybernetics31
+
+我听到这里也尬住了，萌确实萌，这叫尬萌吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+但我还是想听鲤鱼姐正常流畅的日语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
