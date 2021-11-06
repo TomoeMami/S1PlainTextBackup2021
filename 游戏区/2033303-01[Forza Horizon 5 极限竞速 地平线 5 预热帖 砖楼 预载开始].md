@@ -6038,3 +6038,56 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 然后游戏里双击西瓜和win+G都没反应？
 
+
+
+*****
+
+####  nemunoki  
+##### 542#       发表于 2021-11-7 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444104&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-6 23:13</a>
+
+才发现劲敌前5％送车 现在已经卷起来了</blockquote>
+全是车行里直接能买的车也不值几个钱
+
+这也要卷那只能是追求全奖章的勇士了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱护动物抓根宝  
+##### 543#       发表于 2021-11-7 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53445153&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-7 00:50</a>
+
+说起来现在有什么截图的办法，老黄驱动的alt f1在游戏里没反应，把焦点放在桌面但前端显示的是游戏 ...</blockquote>
+xsx手柄的截图键可以用了，我也不知道是啥时候更新的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鹿斗典善  
+##### 544#       发表于 2021-11-7 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53443646&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-6 22:39</a>
+
+这部越野赛好难啊……</blockquote>
+A:
+
+bronco@slowbakedpanda
+
+X-class@rocklxd
+
+S1:
+
+trailcat@rocklxd
+
+前面车型，后面调教作者
+
+*****
+
+####  AEmpire  
+##### 545#       发表于 2021-11-7 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53445153&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-7 00:50</a>
+说起来现在有什么截图的办法，老黄驱动的alt f1在游戏里没反应，把焦点放在桌面但前端显示的是游戏 ...</blockquote>
+试试win+alt+prtscr，Xbox自己的截图快捷键
+
