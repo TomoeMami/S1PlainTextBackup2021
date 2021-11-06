@@ -6018,3 +6018,23 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 这次是不是没有4代那种会改变场景的四季 ...</blockquote>
 一般进图再点开嘉年华分数就回来了 靠这个说不定能无限领分数的车
 
+
+
+*****
+
+####  马僧虔  
+##### 540#       发表于 2021-11-7 00:45
+
+话说特技车手任务第12个提示要进入名人堂才解锁，这该不会真的要你打到世界前列吧？<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Totokei  
+##### 541#       发表于 2021-11-7 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说起来现在有什么截图的办法，老黄驱动的alt f1在游戏里没反应，把焦点放在桌面但前端显示的是游戏画面倒是可以截图但是进了桌面截图的文件夹里。
+
+然后游戏里双击西瓜和win+G都没反应？
+
