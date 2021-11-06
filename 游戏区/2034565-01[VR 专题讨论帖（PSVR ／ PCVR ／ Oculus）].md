@@ -1897,3 +1897,37 @@ INDEX主要是可以装散热模块，直接从头盔内部抽风爽爆、
 Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖的要吐了</blockquote>
 怕光线，环境光越亮定位越不准，因为是靠头盔上的IR摄像头来定位的，所以户外完全不能用
 
+
+
+*****
+
+####  Ichihatsu  
+##### 119#       发表于 2021-11-7 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437797&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-6 14:29</a>
+
+图像识别定位，理论上不容易受到影响，你拿手机摄像头一下看看有没有奇怪的光？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">每个屋试了一圈只有客厅这样，大概不是硬件坏。屋里东西挺多的，客厅唯一区别也就是定位区画的比其他屋大了（不然就这一个大屋，倒是发现这么重划几次定位后稳了不少，难道每次白天划完晚上开灯还要重划吗
+
+*****
+
+####  Ichihatsu  
+##### 120#       发表于 2021-11-7 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438722&amp;ptid=2034565" target="_blank">JAROD009 发表于 2021-11-6 15:48</a>
+
+怕光线，环境光越亮定位越不准，因为是靠头盔上的IR摄像头来定位的，所以户外完全不能用 ...</blockquote>
+户外是指阳光吗，说明书只说透镜怕晒，几个定位摄像头是不是也怕的
+
+
+
+*****
+
+####  Ichihatsu  
+##### 121#       发表于 2021-11-7 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438722&amp;ptid=2034565" target="_blank">JAROD009 发表于 2021-11-6 15:48</a>
+
+怕光线，环境光越亮定位越不准，因为是靠头盔上的IR摄像头来定位的，所以户外完全不能用 ...</blockquote>
+户外是指阳光吗，说明书只说透镜怕晒，几个定位摄像头是不是也怕的
+

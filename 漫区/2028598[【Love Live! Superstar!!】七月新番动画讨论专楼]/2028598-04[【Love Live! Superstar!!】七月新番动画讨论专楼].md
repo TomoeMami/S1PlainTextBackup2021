@@ -1820,3 +1820,30 @@ paypal你在干嘛
 不知道鲤鱼会和哪位前辈互动最多</blockquote>
 当然是跟菜宝加密通话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 4670#       发表于 2021-11-6 23:48
+
+估计鲤鱼又是等day2结束再发返图了，不过现在pay酱也没发推额
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 4671#       发表于 2021-11-6 23:50
+
+跨年…………菜宝r3顶多一首魔爪女孩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">互动要最后mc环节了如果有的话
+
+*****
+
+####  lj205  
+##### 4672#       发表于 2021-11-7 00:02
+
+ 本帖最后由 lj205 于 2021-11-7 00:05 编辑 
+
+台上就别希望有互动了，唯一希望就是唱难忘今宵的时候三团不是站桩
+

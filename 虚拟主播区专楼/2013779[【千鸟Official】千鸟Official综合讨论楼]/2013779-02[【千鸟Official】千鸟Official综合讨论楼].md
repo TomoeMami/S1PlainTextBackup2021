@@ -1967,3 +1967,21 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  newperson  
+##### 1719#       发表于 2021-11-6 23:52
+
+[4：55 我没哭我没哭，我不可能因为这种事情哭的，文静从来不会因为自己没有做错的事情哭，文静只会为自己买单不会为别人买单](https://b23.tv/LqGyIt)
+
+*****
+
+####  小憨1  
+##### 1720#       发表于 2021-11-6 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444475&amp;ptid=2013779" target="_blank">newperson 发表于 2021-11-6 23:52</a>
+4：55 我没哭我没哭，我不可能因为这种事情哭的，文静从来不会因为自己没有做错的事情哭，文静只会为自己买 ...</blockquote>
+她是为了粉丝和自己的无力哭的啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
