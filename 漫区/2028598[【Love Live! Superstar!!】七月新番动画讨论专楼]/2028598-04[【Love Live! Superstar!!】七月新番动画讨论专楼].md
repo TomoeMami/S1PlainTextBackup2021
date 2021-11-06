@@ -895,3 +895,27 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 恋恋先不说，青山姐真的会愿意搞cp营业吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 4572#       发表于 2021-11-6 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438862&amp;ptid=2028598" target="_blank">zylwz 发表于 2021-11-6 16:04</a>
+恋恋先不说，青山姐真的会愿意搞cp营业吗</blockquote>
+青山是👽，感觉不会搞cp，顶多看他们扭曲而已
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  darkendless  
+##### 4573#       发表于 2021-11-6 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438862&amp;ptid=2028598" target="_blank">zylwz 发表于 2021-11-6 16:04</a>
+恋恋先不说，青山姐真的会愿意搞cp营业吗</blockquote>
+青山姐很想让恋恋搞cp<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+【没有cp而羡慕可堇的学生会长惨遭具足虫背刺「渣翻切片中字」-哔哩哔哩】https://b23.tv/8bERHN
+
