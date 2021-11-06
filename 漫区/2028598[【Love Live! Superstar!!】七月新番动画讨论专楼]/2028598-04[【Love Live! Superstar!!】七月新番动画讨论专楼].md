@@ -1029,3 +1029,76 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 今天这导播又是各种切切切…………
 
+
+
+*****
+
+####  lj205  
+##### 4588#       发表于 2021-11-6 17:00
+
+打铁今天唱法有点改变
+
+*****
+
+####  寒风夜  
+##### 4589#       发表于 2021-11-6 17:01
+
+ 本帖最后由 寒风夜 于 2021-11-6 17:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">感觉好多必唱，立德的经历...歌单这么满，估计也没大变
+
+*****
+
+####  中野四葉  
+##### 4590#       发表于 2021-11-6 17:03
+
+今天是不是没有全开麦？<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">减轻强度也好
+
+
+
+*****
+
+####  iuhehc  
+##### 4591#       发表于 2021-11-6 17:06
+
+和前两场一样，那应该是垫音，前两场也有垫
+
+*****
+
+####  lj205  
+##### 4592#       发表于 2021-11-6 17:07
+
+靠，原来还有对视然后走几步这样的安排吗？我真是太好了
+
+*****
+
+####  cat1230  
+##### 4593#       发表于 2021-11-6 17:09
+
+<blockquote>引用第4589楼中野四葉于2021-11-06 17:03发表的  :
+
+今天是不是没有全开麦？减轻强度也好</blockquote>
+@中野四葉
+
+怎么能听出是不是全开还是半开啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完全听不出分别，。
+顺便，小百合今天也火力全开<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 4594#       发表于 2021-11-6 17:14
+
+今天声音比音乐大
+
+*****
+
+####  中野四葉  
+##### 4595#       发表于 2021-11-6 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53439491&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-6 17:06</a>
+
+和前两场一样，那应该是垫音，前两场也有垫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回去听了下之前真垫了，之前没认真听
+
