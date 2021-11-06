@@ -1545,3 +1545,85 @@ ok，fine，他画饼我就吃，继续看呗，总不能离了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">身体力行告诉我，二刺猿鲨卵不适合当领导。
 不过这么看陈睿是个例外
 
+
+
+*****
+
+####  袜子  
+##### 1669#       发表于 2021-11-6 20:11
+
+别的不说，工厂停电或者说排期这事我认的。
+
+中之人如果想跑路肯定还是会启动竞业协议，而且协议本身是在原力手里。这话没直说但是意思很明显了。
+
+直播流水到手里是25%，延期60个工作日以上应该是。
+
+至于他自己的屁事我真是懒得管···陈睿不是二次元傻卵，傻卵是另一位（已经是空气了
+
+*****
+
+####  袜子  
+##### 1670#       发表于 2021-11-6 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441723&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 20:04</a>
+
+ok，fine，他画饼我就吃，继续看呗，总不能离了</blockquote>
+哎···累了
+
+*****
+
+####  gawain039  
+##### 1671#       发表于 2021-11-6 20:13
+
+白白锐评s赛：德国队打韩国队？
+
+*****
+
+####  小憨1  
+##### 1672#       发表于 2021-11-6 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441824&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-6 20:12</a>
+哎···累了</blockquote>
+我是觉得把企划目前会不会死，我们打的钱到底都去哪了，这两点说明白了就行，他个人的事和我没关系
+
+*****
+
+####  莫洛骑士  
+##### 1673#       发表于 2021-11-6 20:15
+
+ 本帖最后由 莫洛骑士 于 2021-11-6 08:18 编辑 
+
+竞业协议每个月要给钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么感觉千鸟这个资金状态他们给不出竞业的钱呢？
+
+竞业违约赔一年工资，文静算上提成才过万，这一年也没多少钱啊
+
+*****
+
+####  rgauss  
+##### 1674#       发表于 2021-11-6 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼知道钱流向哪里了，他那盗号盾后我就对他失去信任了，只不过打哈哈的能力确实厉害。
+
+艾瑞思的麦是自己拿钱修的来着。他这麦是怎么这么快坏的，还说专门找了两个老师。
+
+他说自己只拿原力那边的钱，这跟领导说自己工资没啥区别，狗都不信。
+
+*****
+
+####  袜子  
+##### 1675#       发表于 2021-11-6 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441873&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-6 20:15</a>
+
+竞业协议每个月要给钱的我怎么感觉千鸟这个资金状态他们给不出竞业的钱呢？ ...</blockquote>
+给得出吧，你看他这二次元傻卵的样子，**小的要死，syl企划的钱说过了，结论翻我前面发的，不算精确但是是正常的商业情况，至于其中的问题我也说了，但是你还是要理解所有认都是草台这事
+
+*****
+
+####  魔法少女大头  
+##### 1676#       发表于 2021-11-6 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">别的不说，同时兼职运营，心理辅导，和头牌，到最后到手1/10不到。
+
+将军，何不黄袍加身
+

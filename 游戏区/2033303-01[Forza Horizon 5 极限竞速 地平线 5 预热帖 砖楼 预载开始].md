@@ -5623,3 +5623,44 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9号解锁，这几天看社区反馈有人说比4代滑有人说5代超级抓地力，有人说过弯操作更精细有人说过弯操作更简化，已懵
 
+
+
+*****
+
+####  Porsche  
+##### 503#       发表于 2021-11-6 20:12
+
+用ds4玩的 推荐用input mapper
+
+*****
+
+####  天神十三煞  
+##### 504#         楼主| 发表于 2021-11-6 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这代漂移简单多了
+
+全部漂完了
+
+我自己买了个漂移方程式狗哥#43
+
+然后漂完送了一部
+
+要想轻松三星就要用狗哥#43
+
+等于是悖论了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 505#       发表于 2021-11-6 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441128&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-6 19:21</a>
+
+重装游戏之后可以进去了，然后现在两个问题：
+
+1，默认应该是超高但是贴图的质量很差，拍照模式里甚 ...</blockquote>
+把所有超高的調低一格
+

@@ -1625,3 +1625,33 @@ liella之歌还是有可能换的，nonfiction的衣服就别想了，定好的�
 
 “这些女人知道怎么从我这里收钱”
 
+
+
+*****
+
+####  qratosone  
+##### 4655#       发表于 2021-11-6 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441600&amp;ptid=2028598" target="_blank">秋月艾莉 发表于 2021-11-6 19:55</a>
+
+韩国人的怪味中文发骚有说法的
+
+“li似乎知道每天攻击女性心脏的方法 今天尤其强大”
+
+“li是世界维和 ...</blockquote>
+韩国人现在都知道啥叫中国女同了
+
+*****
+
+####  lj205  
+##### 4656#       发表于 2021-11-6 20:18
+
+鲤鱼真是能把两个小的吃得死死的
+
+*****
+
+####  cybernetics31  
+##### 4657#       发表于 2021-11-6 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以想象亚巡的时候韩国场次会是啥样了
+

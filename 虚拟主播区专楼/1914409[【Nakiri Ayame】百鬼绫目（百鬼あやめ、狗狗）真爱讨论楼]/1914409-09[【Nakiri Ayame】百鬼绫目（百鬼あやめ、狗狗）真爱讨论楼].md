@@ -17175,3 +17175,12 @@ https://twitter.com/NT4218/status/1456923719524241413
 皆切人在2021
 太可悲了，感觉就像小丑一样，然后保存转发了
 
+
+
+*****
+
+####  Fami水  
+##### 13435#       发表于 2021-11-6 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又抠出点糖？
+
