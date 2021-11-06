@@ -2625,3 +2625,12 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  呓亘  
+##### 4800#       发表于 2021-11-6 23:44
+
+阿咩明天该播了吧
+

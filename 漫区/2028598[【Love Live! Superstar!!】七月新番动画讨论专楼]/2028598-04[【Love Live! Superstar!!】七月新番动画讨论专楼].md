@@ -1776,3 +1776,47 @@ paypal你在干嘛
 
 查看全部评分
 
+
+
+*****
+
+####  chenflyyy  
+##### 4666#       发表于 2021-11-6 23:34
+
+ニードロ老师，合鲤的神，每天稳定产图，又快又好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 4667#       发表于 2021-11-6 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441925&amp;ptid=2028598" target="_blank">cybernetics31 发表于 2021-11-6 20:19</a>
+
+可以想象亚巡的时候韩国场次会是啥样了</blockquote>
+你想的好远<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+2024年都不知道能不能恢复到能开亚巡的程度
+
+*****
+
+####  D麦林  
+##### 4668#       发表于 2021-11-6 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441138&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-6 19:22</a>
+
+还有17场口语试，最后一场毕业考</blockquote>
+然后中间还夹了一次跨年……
+
+不知道鲤鱼会和哪位前辈互动最多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4669#       发表于 2021-11-6 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444351&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-6 23:38</a>
+然后中间还夹了一次跨年……
+
+不知道鲤鱼会和哪位前辈互动最多</blockquote>
+当然是跟菜宝加密通话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

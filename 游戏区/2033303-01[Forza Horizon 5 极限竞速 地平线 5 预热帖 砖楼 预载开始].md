@@ -5920,3 +5920,24 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  诶哟卧草  
+##### 530#       发表于 2021-11-6 23:39
+
+刷抽奖的supra是55000的那辆么
+
+*****
+
+####  虚无连斩  
+##### 531#       发表于 2021-11-6 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444111&amp;ptid=2033303" target="_blank">土卫六的秋天 发表于 2021-11-6 23:14</a>
+
+今天上线一看PG把昨天刷的用在supra的技能点还给我了，但是fairlady的周常进度也清零了
+
+—— 来自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后又领了一辆a110
+

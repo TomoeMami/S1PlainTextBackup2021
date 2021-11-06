@@ -1939,3 +1939,31 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 
 九月底刚看静子的时候她说哭哭是最后一张牌<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 1716#       发表于 2021-11-6 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">有点玉玉了
+
+希望她们五人能更好，能走上自己想要的路吧，直不直播无所谓了
+
+*****
+
+####  T型钉宫病毒  
+##### 1717#       发表于 2021-11-6 23:39
+
+做了一半的陈珺完整版repo，现在看来又捏麻的全是饼，也没做的必要了
+
+*****
+
+####  tn_teana  
+##### 1718#       发表于 2021-11-6 23:41
+
+从画饼，到没有饼…
+没有未来的未来不是直播员要的未来
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
