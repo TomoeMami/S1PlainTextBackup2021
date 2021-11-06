@@ -1221,3 +1221,62 @@ pay这首是不是换了
 
 没变吗？难道是前十场后十场不同？
 
+
+
+*****
+
+####  iuhehc  
+##### 4611#       发表于 2021-11-6 17:41
+
+定番迷之鼓掌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zylwz  
+##### 4612#       发表于 2021-11-6 17:42
+
+pay群马第一天唱的是Message 今天唱的是Dears
+
+估计轮到鲤鱼solo应该也是Anniversary和Ringing!两首换着多唱几场
+
+*****
+
+####  lj205  
+##### 4613#       发表于 2021-11-6 17:42
+
+关了，等东京场再说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 4614#       发表于 2021-11-6 17:44
+
+还是太多辣
+
+*****
+
+####  cybernetics31  
+##### 4615#       发表于 2021-11-6 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">毕竟安排了20场次 前面一批没solo也不奇怪就是了。。。。。
+
+*****
+
+####  lj205  
+##### 4616#       发表于 2021-11-6 17:48
+
+校园偶像是……
+
+汪！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4617#       发表于 2021-11-6 17:51
+
+总算不是阴间打光，看完鱼就去蒸鱼
+
