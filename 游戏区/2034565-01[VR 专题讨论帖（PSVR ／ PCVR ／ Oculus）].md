@@ -1796,3 +1796,12 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖的要吐了</blockquote>
 我之前用 Valve Index 发现这玩意巨怕我卧室里面的全身镜，手柄分分钟给我飘到十万八千里，但是换到 Quest 2 倒是很少遇到类似的情况 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 111#       发表于 2021-11-6 13:18
+
+求推荐个quest2的保护包+头戴。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
