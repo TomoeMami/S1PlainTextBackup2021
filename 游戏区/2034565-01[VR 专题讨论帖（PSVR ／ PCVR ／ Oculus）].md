@@ -1818,3 +1818,57 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 
 而且如果是想在床上睡前看大屏的话，quest关灯就会弹警告漂，画安全区域也很困难，index对我来说友善多了，最多再买个基站
 
+
+
+*****
+
+####  dumplingpro  
+##### 113#       发表于 2021-11-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434687&amp;ptid=2034565" target="_blank">Ichihatsu 发表于 2021-11-6 09:50</a>
+
+Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖的要吐了</blockquote>
+图像识别定位，理论上不容易受到影响，你拿手机摄像头一下看看有没有奇怪的光？
+
+还是你整个客厅都一个色调，或者没墙角线？导致图像识别特征不明显，试试放几个不同颜色的东西，在墙角、沙发和电视柜上？
+
+还有你试试放在地上不动，看有没有抖动，有的话就是内部陀螺仪加速计出问题了。
+
+*****
+
+####  dumplingpro  
+##### 114#       发表于 2021-11-6 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53436977&amp;ptid=2034565" target="_blank">彩虹肥宅 发表于 2021-11-6 13:18</a>
+
+求推荐个quest2的保护包+头戴。</blockquote>
+小宅的那个可以兼容Quest2的版本，泥潭群论证比较好。
+
+*****
+
+####  dumplingpro  
+##### 115#       发表于 2021-11-6 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434012&amp;ptid=2034565" target="_blank">彩虹肥宅 发表于 2021-11-6 07:28</a>
+
+为什么airlink无线串流v社的vr房间非常流畅，但是玩projectwingman，就开始疯狂卡顿。
+
+—— 来自 X ...</blockquote>
+看看是不是性能有问题，僚机计划因为是个人开发者，优化毛病不少。
+
+现在界面有所改变但大致效果是一样的。
+
+<strong>高级帧定时（VR性能监控）</strong>用来监控CPU和GPU性能的工具，VR非常卡的时候，可以在这里看到底是CPU还是GPU的锅，也可以用来测显卡。上面CPU，下面GPU，紫蓝色是游戏渲染一帧所需要的时间，如果超过黄色范围（VR两帧之间的间隔）就是掉帧了。<img src="https://pic1.zhimg.com/80/v2-9d7e9b91e5d2ee3dbf1ac0173aab6c54_1440w.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  dumplingpro  
+##### 116#       发表于 2021-11-6 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437129&amp;ptid=2034565" target="_blank">mintslime 发表于 2021-11-6 13:32</a>
+
+几个都用过的人觉得其实最好用的是index，头戴舒服，重量可以接受，画面好，不过我的use case比较奇怪
+
+最近 ...</blockquote>
+INDEX主要是可以装散热模块，直接从头盔内部抽风爽爆、
+

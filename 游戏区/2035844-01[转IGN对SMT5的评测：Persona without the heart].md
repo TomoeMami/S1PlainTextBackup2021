@@ -1574,3 +1574,12 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202111/06/140447s3vk8wk62tzutc2k.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lmclmc2  
+##### 151#       发表于 2021-11-6 14:38
+
+最近我看IGN给几个JRPG的评价都很有类似的风格，精准把握了当代玩家群可能给出的反馈。
+

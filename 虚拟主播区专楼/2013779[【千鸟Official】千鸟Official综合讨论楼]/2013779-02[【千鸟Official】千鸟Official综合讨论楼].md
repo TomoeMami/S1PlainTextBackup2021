@@ -313,3 +313,125 @@ syl开播了，速来
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hanshanwulu  
+##### 1536#       发表于 2021-11-6 14:23
+
+【紧急集合】开团了！开团了！
+
+*****
+
+####  tankai  
+##### 1537#       发表于 2021-11-6 14:23
+
+开播喽  开播喽
+
+*****
+
+####  tankai  
+##### 1538#       发表于 2021-11-6 14:24
+
+老子SC被吞了,可以的.
+
+*****
+
+####  pipeline  
+##### 1539#       发表于 2021-11-6 14:24
+
+“运营毁了我们辛辛苦苦做出来的一切，我不会为他们道歉”
+
+*****
+
+####  希克苏鲁伯  
+##### 1540#       发表于 2021-11-6 14:26
+
+2021年11月6日，文静在直播中与我官宣，望周知
+
+*****
+
+####  DKD  
+##### 1541#       发表于 2021-11-6 14:26
+
+所以鸟亡了之后她们会去那儿<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 1542#       发表于 2021-11-6 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">妈的难受
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  四叶的花  
+##### 1543#       发表于 2021-11-6 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pipeline  
+##### 1544#       发表于 2021-11-6 14:33
+
+静栗惹原来是这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 1545#       发表于 2021-11-6 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437834&amp;ptid=2013779" target="_blank">pipeline 发表于 2021-11-6 14:33</a>
+
+静栗惹原来是这个意思</blockquote>
+1.0时期就设定好的.
+
+*****
+
+####  rgauss  
+##### 1546#       发表于 2021-11-6 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437042&amp;ptid=2013779" target="_blank">Finsty 发表于 2021-11-6 13:24</a>
+
+有没有贵物cj妻的一点料
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+cj好像上过某wiki
+
+*****
+
+####  tankai  
+##### 1547#       发表于 2021-11-6 14:36
+
+关注杨泪腺算不算料.
+
+*****
+
+####  tankai  
+##### 1548#       发表于 2021-11-6 14:39
+
+CJ资历还是OK的.就是性情甩的一B.(南京话) 吊杆子缺点毒打.
+
+*****
+
+####  rgauss  
+##### 1549#       发表于 2021-11-6 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437919&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-6 14:39</a>
+
+CJ资历还是OK的.就是性情甩的一B.(南京话) 吊杆子缺点毒打.</blockquote>
+还天依制作人😅，蚌埠住了，他在禾念任职期间,洛天依企划迟迟不见起色,花钱如流水,社区关系极差,
+
+*****
+
+####  cheatdeath3  
+##### 1550#       发表于 2021-11-6 14:44
+
+有点懵逼，有没有懒人包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我只有2鹅，奖励给最快答案<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
