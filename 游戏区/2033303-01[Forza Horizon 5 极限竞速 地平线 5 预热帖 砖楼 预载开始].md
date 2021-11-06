@@ -5473,3 +5473,24 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 季节赛给的Alpine A110原厂调校好开到令人流泪，雷诺你干得好呀，干得好呀
 
+
+
+*****
+
+####  马僧虔  
+##### 487#       发表于 2021-11-6 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53439518&amp;ptid=2033303" target="_blank">monono 发表于 2021-11-6 17:08</a>
+不停断线怎么回事，挂了代理也没用。。。。</blockquote>
+看nga说是全球性问题
+
+*****
+
+####  meltykiss  
+##### 488#       发表于 2021-11-6 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438710&amp;ptid=2033303" target="_blank">Papercup 发表于 2021-11-6 15:47</a>
+
+为什么车辆包里显示我已购买，但是我的车库里没有这些车啊</blockquote>
+看提示下载取得到车库
+

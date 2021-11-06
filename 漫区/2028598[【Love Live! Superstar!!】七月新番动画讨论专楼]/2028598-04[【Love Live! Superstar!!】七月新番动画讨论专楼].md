@@ -1280,3 +1280,89 @@ pay群马第一天唱的是Message 今天唱的是Dears
 
 总算不是阴间打光，看完鱼就去蒸鱼
 
+
+
+*****
+
+####  普之舜舜  
+##### 4618#       发表于 2021-11-6 18:08
+
+好帅呀，刚刚民警向我飞吻
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 4619#       发表于 2021-11-6 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">还能见到no fiction的打歌服吗
+
+*****
+
+####  iuhehc  
+##### 4620#       发表于 2021-11-6 18:09
+
+day1这首歌真的喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好嗨
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  D麦林  
+##### 4621#       发表于 2021-11-6 18:12
+
+什么 nonfiction的打歌服还没出来
+不会真没做吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+55 pay宝 我的pay宝<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 4622#       发表于 2021-11-6 18:12
+
+翻页
+
+*****
+
+####  D麦林  
+##### 4623#       发表于 2021-11-6 18:13
+
+再来 翻页
+
+*****
+
+####  iuhehc  
+##### 4624#       发表于 2021-11-6 18:14
+
+感觉这打光比群马好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a.r.m  
+##### 4625#       发表于 2021-11-6 18:16
+
+翻页
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4626#       发表于 2021-11-6 18:16
+
+相信我，接下来到最后一场都不会有啥变化的了，SOLO也是，衣服也是，什么上半程下半程的，都是自欺欺人，我话就放这
+
+*****
+
+####  寒风夜  
+##### 4627#       发表于 2021-11-6 18:18
+
+ 本帖最后由 寒风夜 于 2021-11-6 18:20 编辑 
+
+难顶了
+
