@@ -5387,3 +5387,19 @@ PG的游戏第一版是这样的
 
 等9号全上了应该能好一点
 
+
+
+*****
+
+####  天神十三煞  
+##### 479#         楼主| 发表于 2021-11-6 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437423&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-5 21:59</a>
+
+才发现PC端XB应用小帮手连分享截图的功能都被砍了
+
+那这俱乐部还有啥用 线上玩到现在没匹配到过一起的 ...</blockquote>
+现在截图是dx的组件一部分
+
+在xbox game bar里面，截图后live里面有，hub也会显示
+

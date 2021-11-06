@@ -435,3 +435,256 @@ CJ资历还是OK的.就是性情甩的一B.(南京话) 吊杆子缺点毒打.</b
 
 我只有2鹅，奖励给最快答案<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tn_teana  
+##### 1551#       发表于 2021-11-6 14:47
+
+1.0文静准备套皮复出，2.0说不定要毕业转生
+是不是有一天可以看到梦幻联动？
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cheatdeath3| + 2||
+
+查看全部评分
+
+*****
+
+####  小憨1  
+##### 1552#       发表于 2021-11-6 14:48
+
+请假之后别回来了，阴间再见
+
+*****
+
+####  cheatdeath3  
+##### 1553#       发表于 2021-11-6 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438008&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-6 14:47</a>
+
+1.0文静准备套皮复出，2.0说不定要毕业转生
+
+是不是有一天可以看到梦幻联动？</blockquote>
+为啥，2.0不是比1.0会炒吗？
+
+*****
+
+####  四叶的花  
+##### 1554#       发表于 2021-11-6 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">静，咱不跟这运营了，快润吧
+
+*****
+
+####  伞沢直美  
+##### 1555#       发表于 2021-11-6 14:49
+
+静栗惹屁用没有
+
+*****
+
+####  tankai  
+##### 1556#       发表于 2021-11-6 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437972&amp;ptid=2013779" target="_blank">cheatdeath3 发表于 2021-11-6 14:44</a>
+
+有点懵逼，有没有懒人包
+
+我只有2鹅，奖励给最快答案</blockquote>
+简单说一点:背后高层逆天,你可以想象成HOLO粉丝推上问牙垢我D的V什么时候有新衣.牙垢回:还不是你们不打钱.快打钱啊.
+
+说的不好不用鹅了.
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cheatdeath3| + 1||
+
+查看全部评分
+
+*****
+
+####  袜子  
+##### 1557#       发表于 2021-11-6 14:50
+
+思思微博多少？？？？救命我怎么不知道！！！syl哦那个啊···
+
+*****
+
+####  rgauss  
+##### 1558#       发表于 2021-11-6 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437972&amp;ptid=2013779" target="_blank">cheatdeath3 发表于 2021-11-6 14:44</a>
+
+有点懵逼，有没有懒人包
+
+我只有2鹅，奖励给最快答案</blockquote>
+昨晚2060有个制作人连线，然后cj连线，扯了两句艾瑞思就扯他之前洛天依，这个连线艾瑞思也在看。
+
+主持人后面扯了半天话题，把话题扯回了艾瑞思。然后在节目中也逆天，上台的时候，自己介绍全是介绍自家初音手办。引发了很多人不满。
+
+然后昨晚转发文静b博，说要开除，然后扯清说自己被盗号了。回答问题全是避重就轻。
+
+**午节奏差不多平息下来了，然后他老婆来了今年金句“快来打钱”然后就全炸了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cheatdeath3| + 1||
+
+查看全部评分
+
+*****
+
+####  小憨1  
+##### 1559#       发表于 2021-11-6 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438062&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-6 14:50</a>
+
+思思微博多少？？？？救命我怎么不知道！！！syl哦那个啊···</blockquote>
+微博直接搜，艾瑞思_Official
+
+*****
+
+####  H2Ofrozen  
+##### 1560#       发表于 2021-11-6 14:52
+
+今天的静静...晒得发大水了🥵🥵🥵
+
+
+
+*****
+
+####  rgauss  
+##### 1561#       发表于 2021-11-6 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438062&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-6 14:50</a>
+
+思思微博多少？？？？救命我怎么不知道！！！syl哦那个啊···</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">就艾瑞思-Official
+
+ 啊
+
+*****
+
+####  我有一个朋友  
+##### 1562#       发表于 2021-11-6 14:54
+
+她们微博号所有权在自己手上吗？
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 1563#       发表于 2021-11-6 14:54
+
+古户是哪个？微博这个早关注了···<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔都百合子  
+##### 1564#       发表于 2021-11-6 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438111&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-6 14:54</a>
+
+古户是哪个？微博这个早关注了···</blockquote>
+古户是另有其人（某前偶像
+
+*****
+
+####  rgauss  
+##### 1565#       发表于 2021-11-6 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438111&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-6 14:54</a>
+
+古户是哪个？微博这个早关注了···</blockquote>
+010（
+
+*****
+
+####  tn_teana  
+##### 1566#       发表于 2021-11-6 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438023&amp;ptid=2013779" target="_blank">cheatdeath3 发表于 2021-11-6 14:48</a>
+为啥，2.0不是比1.0会炒吗？</blockquote>
+1.0文静也很强的，那时候的格局也是一个文静carry
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 1567#       发表于 2021-11-6 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438120&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-6 14:55</a>
+
+010（</blockquote>
+草，完全没想起来这个···脑子瓦特了一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 1568#       发表于 2021-11-6 14:58
+
+撕破脸皮连夜跑路，这下真的最后一张牌了。
+
+*****
+
+####  huyuanhao120  
+##### 1569#       发表于 2021-11-6 14:59
+
+2.0也该去隔壁毕业驾驶员帖子见了
+
+*****
+
+####  tankai  
+##### 1570#       发表于 2021-11-6 14:59
+
+这业务能力真没话说,国V圈可有几人能比.
+
+*****
+
+####  HSJ1992  
+##### 1571#       发表于 2021-11-6 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438008&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-6 14:47</a>
+
+1.0文静准备套皮复出，2.0说不定要毕业转生
+
+是不是有一天可以看到梦幻联动？</blockquote>
+到时合唱一首《世界上的另一个我》好吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 1572#         楼主| 发表于 2021-11-6 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438129&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-6 14:56</a>
+
+1.0文静也很强的，那时候的格局也是一个文静carry
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅 ...</blockquote>
+1.0的文静是西瓜；2.0的文静是倭瓜
+
