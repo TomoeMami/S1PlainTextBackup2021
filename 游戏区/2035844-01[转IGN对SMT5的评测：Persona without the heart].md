@@ -1532,3 +1532,18 @@ ign编辑水平拉稀这个毫无疑问，但其实大家心里也都明白SMT5�
 
 没这句还能说是蠢，有了这句就是又蠢又坏
 
+
+
+*****
+
+####  redsouris  
+##### 148#       发表于 2021-11-6 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434173&amp;ptid=2035844" target="_blank">FanKiE 发表于 2021-11-6 08:24</a>
+事实上这位编辑开头就说了P是衍生作品
+然而without heart实在让人蚌埠住，把火力全引走了</blockquote>
+所以我的观点是这人只玩过P5，就算知道不一样她也拿不出别的参照物，只能言必提P5，就像那张12宫图一样
+再举个例子就像小学生写作文，写不出词，不管什么题目都得抄两句凑字数<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

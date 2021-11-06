@@ -5258,3 +5258,12 @@ Shelby Daytona，得调校一下，上四驱拉力胎最大马力那个引擎，
 
 这服务器也太扯了，我到现在没完成过一次公开活动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  老黑305  
+##### 468#       发表于 2021-11-6 12:03
+
+这么夸张的吗...我玩了十几个小时，除了有一次进游戏崩溃之外就没闪退过...
+
