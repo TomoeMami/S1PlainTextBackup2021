@@ -13519,3 +13519,17 @@ syl：晚上Among Us的人还都挺熟的，可以看一看
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">评论都关了，咋回事呀
 
+
+
+*****
+
+####  nian1538  
+##### 7080#       发表于 2021-11-6 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441272&amp;ptid=1947500" target="_blank">stedckk 发表于 2021-11-6 19:33</a>
+
+评论都关了，咋回事呀</blockquote>
+28号那次就关了，之后全关了，赞踩也关了，没关说明忘了
+
+最搞笑的是会限评论都关了
+

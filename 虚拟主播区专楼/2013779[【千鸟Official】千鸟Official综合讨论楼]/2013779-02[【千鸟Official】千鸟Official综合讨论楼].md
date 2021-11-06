@@ -1351,3 +1351,197 @@ b站号被盗，报警警察能管这事吗
 文静“谈了半年”对应的是陈珺哪句，刚才没听到</blockquote>
 是麦克风吗？
 
+
+
+*****
+
+####  袜子  
+##### 1650#       发表于 2021-11-6 19:44
+
+直播的收益的25%到原力，或者说整个千鸟项目<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大家自己算吧
+
+
+
+*****
+
+####  德里达幽灵  
+##### 1651#       发表于 2021-11-6 19:45
+
+co宝穿二三十块的拼多多衣服，什么好女人<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1652#       发表于 2021-11-6 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441453&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-6 19:44</a>
+直播的收益的25%到原力，或者说整个千鸟项目大家自己算吧</blockquote>
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1653#       发表于 2021-11-6 19:47
+
+经典冰清玉洁3d都做好了是吧，你那倭瓜建模算建了模？
+
+*****
+
+####  T型钉宫病毒  
+##### 1654#       发表于 2021-11-6 19:48
+
+平台抽一半，版权方抽一半
+
+腾讯啥也没干
+
+角川只是说明年会有千鸟的出版物（漫画）
+
+*****
+
+####  rgauss  
+##### 1655#       发表于 2021-11-6 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441504&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 19:48</a>
+
+平台抽一半，版权方抽一半
+
+腾讯啥也没干
+
+角川只是说明年会有千鸟的出版物（漫画） ...</blockquote>
+他说的是可能有漫画哦 可能
+
+*****
+
+####  Finsty  
+##### 1656#       发表于 2021-11-6 19:51
+
+<img src="https://p.sda1.dev/3/6fbd71dee672e272cf5bba161d6a0093/IMG_CMP_189861909.jpeg" referrerpolicy="no-referrer">
+文静：？
+（提到3D做完了，来了办公室有得试试）
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 1657#       发表于 2021-11-6 19:51
+
+文静：？
+
+*****
+
+####  莫洛骑士  
+##### 1658#       发表于 2021-11-6 19:51
+
+cj这个人真的是各种极品，我真没想到能遇到这样活着的二次元杀软
+
+*****
+
+####  rgauss  
+##### 1659#       发表于 2021-11-6 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441546&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-6 19:51</a>
+
+cj这个人真的是各种极品，我真没想到能遇到这样活着的二次元杀软</blockquote>
+纯纯的二次元杀软 真难以想象30多了，有了老婆孩子还这么魔怔。
+
+*****
+
+####  袜子  
+##### 1660#       发表于 2021-11-6 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441516&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-6 19:49</a>
+
+他说的是可能有漫画哦 可能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真这个抽成很正确，叔叔50%是直播圈惯例（但是平台方B站和斗鱼活动比就是弟弟）版权方25%应该是腾讯和角川，两边没动静不意外，但是这种长期没动静是应该提出质疑和要求的，不知道他的合同怎么签的，企划25%···现在看五个直播员和4个？还是五个幕后来着忘了，还有物料和运营成本都是这么点钱，赶紧炸了个人势50%算了，找管人痴都比现在这种吸血好，起码灵活性上爆杀
+
+*****
+
+####  灰色的狐狸  
+##### 1661#       发表于 2021-11-6 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">文静一人要播要运营还要心理辅导？？？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  ATM3001  
+##### 1662#       发表于 2021-11-6 19:55
+
+<img src="https://img.saraba1st.com/forum/202111/06/195557dl0l1djmpdllupyj.png" referrerpolicy="no-referrer">
+
+<strong>_HE6U`GF(60L25V3VL7%(7Y.png</strong> (30.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 19:55 上传
+
+*****
+
+####  rgauss  
+##### 1663#       发表于 2021-11-6 19:58
+
+我总明白思思为啥经常低气压了，在这二次元杀软下工作，不玉玉才怪
+
+*****
+
+####  IDIDIDID  
+##### 1664#       发表于 2021-11-6 19:59
+
+最大赢家杨沐，不用垫底了
+
+*****
+
+####  tn_teana  
+##### 1665#       发表于 2021-11-6 20:02
+
+1直播项目由原力负责
+2画明年的饼
+3启动资金给1.0亏完了
+4设备方面打太极
+5文静确实还兼职运营策划
+6竞业协议只限定虚拟行业
+7二创切片方面互相推责
+8运营装死是策略
+9千鸟是原力原创，但是没什么钱
+10千鸟打算做完三年，不知道是不是画饼
+11老婆微博言论盗号盾
+12挺身给1.0背锅升华自己形象
+13舰长礼物的工厂停电了
+14吹自己洛天依运营资历
+15千鸟基本由cj负责
+16甩锅中之人
+17最心痛的是换了两张显卡
+18运营组一个制片，一个杂活，一个l2d，一个平面美术，一个助理，cj不干事
+19cj希望能谈资金合作
+20cj想留住中之人
+21流水分配打马虎
+22宣发摆烂约等于0
+23团队心理辅导全靠领队静姐
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 1666#       发表于 2021-11-6 20:03
+
+cj身体力行的告诉我不要接触二次元
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1667#       发表于 2021-11-6 20:04
+
+ok，fine，他画饼我就吃，继续看呗，总不能离了
+
+*****
+
+####  夜潇箫  
+##### 1668#       发表于 2021-11-6 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">身体力行告诉我，二刺猿鲨卵不适合当领导。
+不过这么看陈睿是个例外
+

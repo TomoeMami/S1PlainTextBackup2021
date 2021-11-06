@@ -1586,3 +1586,42 @@ liella之歌还是有可能换的，nonfiction的衣服就别想了，定好的�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441398&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-6 19:40</a></blockquote>
 打铁<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4651#       发表于 2021-11-6 19:44
+
+还是现在这样卡卡的带点蜜汁用词sense效果比较好
+
+现在拉版nako粉发情必带那三团火，很难绷得住ww
+
+*****
+
+####  chenflyyy  
+##### 4652#       发表于 2021-11-6 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441398&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-6 19:40</a></blockquote>
+打铁酱这样显得更矮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 4653#       发表于 2021-11-6 19:55
+
+戏台上小花脸扮武大郎就这样
+
+*****
+
+####  秋月艾莉  
+##### 4654#       发表于 2021-11-6 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">韩国人的怪味中文发骚有说法的
+
+“li似乎知道每天攻击女性心脏的方法 今天尤其强大”
+
+“li是世界维和装置”
+
+“这些女人知道怎么从我这里收钱”
+

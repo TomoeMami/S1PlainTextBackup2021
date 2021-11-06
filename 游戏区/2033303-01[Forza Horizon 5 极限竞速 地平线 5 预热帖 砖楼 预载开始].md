@@ -5614,3 +5614,12 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这代感觉制作组还是好偷懒啊，为啥买了房子还就一辆车能摆出来，学TDU系列买了房子有车库摆七八辆车出来多好……
 
+
+
+*****
+
+####  makece  
+##### 502#       发表于 2021-11-6 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9号解锁，这几天看社区反馈有人说比4代滑有人说5代超级抓地力，有人说过弯操作更精细有人说过弯操作更简化，已懵
+
