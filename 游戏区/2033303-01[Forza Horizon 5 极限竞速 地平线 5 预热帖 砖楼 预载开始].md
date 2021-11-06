@@ -5819,3 +5819,26 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 要解锁冒险吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">好吧，也没有什么引导
 
+
+
+*****
+
+####  qzy741147  
+##### 520#       发表于 2021-11-6 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440726&amp;ptid=2033303" target="_blank">nomhrpls 发表于 2021-11-6 18:51</a>
+有要求车辆和分数，好像那个海边的测速平时三星只要270速度够了，但是赛季奖励要求的是300多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为了完成挑战买+改装车又花了不少钱
+
+*****
+
+####  gzGaryC  
+##### 521#       发表于 2021-11-6 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
+
+V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面还有水
+
+开了牵引力控制和ABS还是追不上，吐了 ...</blockquote>
+正常跑肯定追不上，鱼雷就完事了
+

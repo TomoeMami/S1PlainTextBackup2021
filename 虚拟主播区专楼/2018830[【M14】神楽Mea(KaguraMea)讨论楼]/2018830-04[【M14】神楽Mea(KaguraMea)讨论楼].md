@@ -2594,3 +2594,12 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 她不看比赛的
 
+
+
+*****
+
+####  Klience  
+##### 4797#       发表于 2021-11-6 21:50
+
+比赛她有看过 但是有没有看完整就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
