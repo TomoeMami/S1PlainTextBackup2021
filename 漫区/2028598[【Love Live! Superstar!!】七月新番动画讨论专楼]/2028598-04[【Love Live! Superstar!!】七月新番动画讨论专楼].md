@@ -1366,3 +1366,59 @@ day1这首歌真的喜欢<img src="https://static.saraba1st.com/image/smiley/fac
 
 难顶了
 
+
+
+*****
+
+####  普之舜舜  
+##### 4628#       发表于 2021-11-6 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440312&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-6 18:16</a>
+相信我，接下来到最后一场都不会有啥变化的了，SOLO也是，衣服也是，什么上半程下半程的，都是自欺欺人，我 ...</blockquote>
+呜呜呜呜😂😂😂那线上观看的我们那不是很愁吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  soranoguiji  
+##### 4629#       发表于 2021-11-6 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">真就没可可的solo啊
+
+*****
+
+####  秋月艾莉  
+##### 4630#       发表于 2021-11-6 18:30
+
+liella之歌还是有可能换的，nonfiction的衣服就别想了，定好的流程不大可能改
+
+除非再在Wish song的MC后面加插一个10集回顾换衣服，但这么一来除了小千剧情都有回顾又不平衡了，我看可能性低
+
+*****
+
+####  cybernetics31  
+##### 4631#       发表于 2021-11-6 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4632#       发表于 2021-11-6 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440449&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-6 18:27</a>
+呜呜呜呜😂😂😂那线上观看的我们那不是很愁吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+倒也不用……大家的演出都是很棒的，抛开这些难道看得不是很享受吗？
+
+除非像我这种上脑的，需要自我调节一下
+
+*****
+
+####  iuhehc  
+##### 4633#       发表于 2021-11-6 18:40
+
+这个ED戏好多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5494,3 +5494,48 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 为什么车辆包里显示我已购买，但是我的车库里没有这些车啊</blockquote>
 看提示下载取得到车库
 
+
+
+*****
+
+####  monono  
+##### 489#       发表于 2021-11-6 18:40
+
+<blockquote>马僧虔 发表于 2021-11-6 18:01
+看nga说是全球性问题</blockquote>
+擦，还以为代理问题，又花钱买了一个结果也不行。。。。
+
+*****
+
+####  AEmpire  
+##### 490#       发表于 2021-11-6 18:42
+
+蓝色的公路竞速赛有啥好用的车推荐吗？被墨西哥amigo干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铅笔  
+##### 491#       发表于 2021-11-6 18:42
+
+任务提示进入名人堂以解除锁定，怎么进入名人堂，有人知道么
+
+*****
+
+####  qzy741147  
+##### 492#       发表于 2021-11-6 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437726&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-6 14:24</a>
+我是春季低保26分已经拿完，之前跑巡回赛除了队友闪现以外没什么问题，游乐场太生草就算输了也能拿车
+
+现在 ...</blockquote>
+有个问题，那个摄像头超速和空中飞行距离之类的任务，是必须用他指定的车型吗，还是只要车辆分数低于要求就可以？我达到了目标也拿到了抽奖但是没有拿到分数
+
+*****
+
+####  萱时令  
+##### 493#       发表于 2021-11-6 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440621&amp;ptid=2033303" target="_blank">铅笔 发表于 2021-11-6 18:42</a>
+任务提示进入名人堂以解除锁定，怎么进入名人堂，有人知道么</blockquote>
+嘉年华旁边几十米有个口
+
