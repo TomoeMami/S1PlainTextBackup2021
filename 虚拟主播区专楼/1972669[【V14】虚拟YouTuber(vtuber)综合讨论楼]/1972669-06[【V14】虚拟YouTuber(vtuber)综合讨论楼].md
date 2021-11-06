@@ -9525,3 +9525,28 @@ bora的衣服不错
 
 用たばご收尾，真好啊
 
+
+
+*****
+
+####  flyskywalker92  
+##### 8193#       发表于 2021-11-6 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">还是内个味
+
+*****
+
+####  reiuy  
+##### 8194#       发表于 2021-11-6 22:07
+
+真好啊
+
+*****
+
+####  克罗夏  
+##### 8195#       发表于 2021-11-6 22:09
+
+来晚了只来得及听最后几首，还好赶上了たばこ<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+还在可惜没多唱几首，朋友说以后机会还多的是呢，真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

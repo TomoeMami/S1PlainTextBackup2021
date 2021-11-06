@@ -17184,3 +17184,18 @@ https://twitter.com/NT4218/status/1456923719524241413
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又抠出点糖？
 
+
+
+*****
+
+####  因为你不会  
+##### 13436#       发表于 2021-11-6 22:03
+
+我好不容易心动一次
+
+你却让我输得这么彻底
+
+呵呵呵呵
+
+焯！
+
