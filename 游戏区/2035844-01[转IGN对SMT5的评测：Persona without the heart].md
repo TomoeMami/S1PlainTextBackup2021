@@ -1492,3 +1492,25 @@ ign编辑水平拉稀这个毫无疑问，但其实大家心里也都明白SMT5�
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  FanKiE  
+##### 145#       发表于 2021-11-6 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434117&amp;ptid=2035844" target="_blank">redsouris 发表于 2021-11-6 08:07</a>
+高水平的难道不应该一开始就声明真女和P系列不是一回事
+你要评论一匹马总不能拿骡子来比，哪怕他 ...</blockquote>
+事实上这位编辑开头就说了P是衍生作品
+然而without heart实在让人蚌埠住，把火力全引走了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  空气先生  
+##### 146#       发表于 2021-11-6 08:41
+
+不过有些人顺着杆子攀上去就开始黑整个真女的能力还是叹为观止的
+
