@@ -2603,3 +2603,14 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 比赛她有看过 但是有没有看完整就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2014720  
+##### 4798#       发表于 2021-11-6 22:36
+
+她的脑瓜壳看了也看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后面几天到12号都没转播了
+
