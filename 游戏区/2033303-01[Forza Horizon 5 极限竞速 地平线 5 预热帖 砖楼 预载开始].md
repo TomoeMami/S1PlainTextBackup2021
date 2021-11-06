@@ -5979,3 +5979,42 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 妈了个巴子的，退出了一次游戏，回来时居然回档了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">几个小时的进度没了
 
+
+
+*****
+
+####  Anarkia  
+##### 536#       发表于 2021-11-7 00:25
+
+开了十几个小时只会开自动档，有大佬介绍下练手动档的收益怎么样吗
+
+*****
+
+####  Totokei  
+##### 537#       发表于 2021-11-7 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444951&amp;ptid=2033303" target="_blank">Anarkia 发表于 2021-11-7 00:25</a>
+开了十几个小时只会开自动档，有大佬介绍下练手动档的收益怎么样吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得娱乐游戏就随意了，反正现在钱不难挣实在不行就supra大法搞钱很快的
+
+*****
+
+####  LMBS  
+##### 538#       发表于 2021-11-7 00:30
+
+季节的奖励错过了还能怎么获得？之前明明还有几点，上线变回1点。
+这次是不是没有4代那种会改变场景的四季。
+自闭单机会错过什么吗？
+
+*****
+
+####  pl0okm  
+##### 539#       发表于 2021-11-7 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444994&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-7 00:30</a>
+
+季节的奖励错过了还能怎么获得？之前明明还有几点，上线变回1点。
+
+这次是不是没有4代那种会改变场景的四季 ...</blockquote>
+一般进图再点开嘉年华分数就回来了 靠这个说不定能无限领分数的车
+
