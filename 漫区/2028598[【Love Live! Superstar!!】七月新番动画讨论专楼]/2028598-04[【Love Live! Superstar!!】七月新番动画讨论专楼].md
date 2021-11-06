@@ -1102,3 +1102,122 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 和前两场一样，那应该是垫音，前两场也有垫</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回去听了下之前真垫了，之前没认真听
 
+
+
+*****
+
+####  优妮可  
+##### 4596#       发表于 2021-11-6 17:21
+
+今天也没空看，大家状态怎么样
+
+*****
+
+####  x分裂者  
+##### 4597#       发表于 2021-11-6 17:23
+
+上次的导播应该被优化了，这次完全不拍腿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4598#       发表于 2021-11-6 17:23
+
+艹，下班通勤回来，听说今天的小星星各方面都很好，感觉亏了一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 4599#       发表于 2021-11-6 17:26
+
+ 本帖最后由 iuhehc 于 2021-11-6 17:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53439634&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-11-6 17:18</a>
+
+回去听了下之前真垫了，之前没认真听</blockquote>
+现在日韩唱跳正常都垫的，看垫多还是垫少这样
+
+*****
+
+####  寒风夜  
+##### 4600#       发表于 2021-11-6 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">啊
+
+*****
+
+####  lj205  
+##### 4601#       发表于 2021-11-6 17:32
+
+我莫名有种预感这次巡演根本没安排鱼SOLO……………………
+
+*****
+
+####  cat1230  
+##### 4602#       发表于 2021-11-6 17:35
+
+歌单还真的完全没变？估计最后一场变一下？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  寒风夜  
+##### 4603#       发表于 2021-11-6 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有17，等吧
+
+*****
+
+####  a92063256  
+##### 4604#       发表于 2021-11-6 17:37
+
+编排曲目的真是个鬼才
+
+*****
+
+####  chenflyyy  
+##### 4605#       发表于 2021-11-6 17:38
+
+放弃幻想，大概是不会变了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 4606#       发表于 2021-11-6 17:38
+
+pay这首是不是换了
+
+*****
+
+####  iuhehc  
+##### 4607#       发表于 2021-11-6 17:39
+
+佩宝这首liella之歌变了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4608#       发表于 2021-11-6 17:39
+
+我就搞不明白了？可可没单人回没ED SOLO，连LIVE也不给安排一首？他妈的，当这个角色是什么？
+
+*****
+
+####  player3960  
+##### 4609#       发表于 2021-11-6 17:39
+
+干嘛不换一下呢，这样搞对线上看的人都没什么新鲜感啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 4610#       发表于 2021-11-6 17:40
+
+没变吗？难道是前十场后十场不同？
+
