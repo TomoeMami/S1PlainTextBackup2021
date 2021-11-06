@@ -1990,3 +1990,39 @@ A-SOUL_Official:[发布动态](https://t.bilibili.com/589097744386941981)小伙�
 
 2021-11-6 15:22 上传
 
+
+
+*****
+
+####  别叫我宅男  
+##### 143#       发表于 2021-11-7 02:05
+
+乃宝如果深夜为edg欢呼，是否会在那个夜晚，为lgd落泪呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  primavera  
+##### 144#       发表于 2021-11-7 02:15
+
+[https://www.bilibili.com/video/BV1sU4y1g7eW](https://www.bilibili.com/video/BV1sU4y1g7eW)
+
+已经下意识说成了 “你们为什么突然之间开我……” 
+
+乃宝一定经常看到某些论坛开她吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 145#       发表于 2021-11-7 02:20
+
+冲琳人真的是
+
+*****
+
+####  别叫我宅男  
+##### 146#       发表于 2021-11-7 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446512&amp;ptid=2034216" target="_blank">primavera 发表于 2021-11-7 02:15</a>
+ https://www.bilibili.com/video/BV1sU4y1g7eW  已经下意识说成了 “你们为什么突然之间开我……”  </blockquote>
+贴吧老哥全责<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你坛疑似届到过的，只有工具人，当然也都是那种ditf是对eva的一封情书级别的
+

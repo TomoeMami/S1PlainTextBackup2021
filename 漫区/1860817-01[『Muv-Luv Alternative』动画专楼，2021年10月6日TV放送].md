@@ -19132,3 +19132,22 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 这次动画是不是提前用了很多分镜啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kts1mg  
+##### 1328#       发表于 2021-11-7 02:48
+
+主角用的枪好像95
+
+*****
+
+####  hlazd  
+##### 1329#       发表于 2021-11-7 03:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446774&amp;ptid=1860817" target="_blank">kts1mg 发表于 2021-11-7 02:48</a>
+
+主角用的枪好像95</blockquote>
+是FAMAS啦
+

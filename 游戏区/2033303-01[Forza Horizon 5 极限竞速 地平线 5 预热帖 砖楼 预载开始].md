@@ -6110,3 +6110,117 @@ trailcat@rocklxd
 
 游乐场每次第二局国王游戏就掉线，直接去拍卖行买车了
 
+
+
+*****
+
+####  andychen  
+##### 548#       发表于 2021-11-7 01:49
+
+感谢楼上几位兄弟的建议，终于把V10打完了
+
+*****
+
+####  冀人燕南天  
+##### 549#       发表于 2021-11-7 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446206&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 01:49</a>
+
+感谢楼上几位兄弟的建议，终于把V10打完了</blockquote>
+请问第12个要求进入名人堂才解锁的任务你是怎么解锁的？
+
+*****
+
+####  andychen  
+##### 550#       发表于 2021-11-7 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446588&amp;ptid=2033303" target="_blank">冀人燕南天 发表于 2021-11-7 02:21</a>
+
+请问第12个要求进入名人堂才解锁的任务你是怎么解锁的？</blockquote>
+没解锁，后面看情况吧
+
+现在各种BUG的，另外一个剧情还出现了语音配错的情况。服务器也一直有问题，我感觉微软后续会做一些优化调整
+
+*****
+
+####  冀人燕南天  
+##### 551#       发表于 2021-11-7 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446601&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 02:23</a>
+
+没解锁，后面看情况吧
+
+现在各种BUG的，另外一个剧情还出现了语音配错的情况。服务器也一直有问题，我感觉 ...</blockquote>
+好烦啊，这游戏全是小毛病<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋雨灰灰  
+##### 552#       发表于 2021-11-7 02:38
+
+名人堂不是要求全球前百分之多少，而是快打完主线的时候必进的，不要着急。进名人堂任务的触发方式是，解锁所有主线故事卡片（不需要打）
+
+*****
+
+####  hallowilliam  
+##### 553#       发表于 2021-11-7 03:14
+
+想问一下，有XGP但是想买终极版的话，是不是也没有任何优惠啊。
+
+*****
+
+####  andychen  
+##### 554#       发表于 2021-11-7 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446920&amp;ptid=2033303" target="_blank">hallowilliam 发表于 2021-11-7 03:14</a>
+
+想问一下，有XGP但是想买终极版的话，是不是也没有任何优惠啊。</blockquote>
+买176的终极版扩展包，顶楼有链接
+
+*****
+
+####  hallowilliam  
+##### 555#       发表于 2021-11-7 03:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446930&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 03:15</a>
+
+买176的终极版扩展包，顶楼有链接</blockquote>
+看到了，问一下这个价格怎么和我xsx看到的差好多，如果我pc端买，xsx上也可以玩吗。
+
+*****
+
+####  andychen  
+##### 556#       发表于 2021-11-7 04:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447063&amp;ptid=2033303" target="_blank">hallowilliam 发表于 2021-11-7 03:45</a>
+
+看到了，问一下这个价格怎么和我xsx看到的差好多，如果我pc端买，xsx上也可以玩吗。 ...</blockquote>
+你XSX不是国区吧
+
+PC上买就可以了，通用的
+
+*****
+
+####  pl0okm  
+##### 557#       发表于 2021-11-7 04:45
+
+玩家开麦能越过win10的静音¿¿¿¿¿¿¿¿¿??????
+
+草了公开赛5张图有个傻卵从开始叫结束三秒一叫唤 静音后别的声音没了 还能听见他三秒一嚎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+怎么静音所有玩家？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">设置里只看见静音自己的麦
+
+*****
+
+####  920619lqy  
+##### 558#       发表于 2021-11-7 04:57
+
+<blockquote>天神十三煞 发表于 2021-11-6 07:28
+顶楼不是写了吗，jesko，
+
+你去看排行，测速照相和跳台一票都是这车
+
+泥地找不到窍门的用霍妮干rs200
+</blockquote>
+这个车记得FH4的时候用着不太顺手，所以这系列是每次新作都要改前作同车型的性能吗
+
