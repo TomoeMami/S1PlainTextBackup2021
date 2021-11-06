@@ -17199,3 +17199,12 @@ https://twitter.com/NT4218/status/1456923719524241413
 
 焯！
 
+
+
+*****
+
+####  stedckk  
+##### 13437#       发表于 2021-11-7 01:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lpl夺冠了，绫总有看吗？
+

@@ -6091,3 +6091,22 @@ trailcat@rocklxd
 说起来现在有什么截图的办法，老黄驱动的alt f1在游戏里没反应，把焦点放在桌面但前端显示的是游戏 ...</blockquote>
 试试win+alt+prtscr，Xbox自己的截图快捷键
 
+
+
+*****
+
+####  秋雨灰灰  
+##### 546#       发表于 2021-11-7 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444951&amp;ptid=2033303" target="_blank">Anarkia 发表于 2021-11-7 00:25</a>
+
+开了十几个小时只会开自动档，有大佬介绍下练手动档的收益怎么样吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">娱乐游戏的手动挡其实不是为了速度，是为了给自己找点事干找点乐子，要说效果的话主要是能卡速度，降档降速度，漂移卡速度
+
+*****
+
+####  saberserker  
+##### 547#       发表于 2021-11-7 01:31
+
+游乐场每次第二局国王游戏就掉线，直接去拍卖行买车了
+
