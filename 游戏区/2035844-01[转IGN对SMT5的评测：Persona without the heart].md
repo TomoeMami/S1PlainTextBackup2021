@@ -1478,3 +1478,17 @@ ign编辑水平拉稀这个毫无疑问，但其实大家心里也都明白SMT5�
 只是野鸡评测的话，就权当茶余饭后的笑料了。问题是真女玩家在自己屋子里吃着火锅唱着歌，突然就被屋子外野 ...</blockquote>
 这种人这贴里也有，你看108楼就知道了
 
+
+
+*****
+
+####  redsouris  
+##### 144#       发表于 2021-11-6 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53433966&amp;ptid=2035844" target="_blank">茛菪 发表于 2021-11-6 07:01</a>
+ign编辑水平拉稀这个毫无疑问，但其实大家心里也都明白SMT5现在出来肯定首先就是要拿来跟P5比的吧，对很多 ...</blockquote>
+高水平的难道不应该一开始就声明真女和P系列不是一回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你要评论一匹马总不能拿骡子来比，哪怕他们是一个妈生的
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
