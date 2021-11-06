@@ -1547,3 +1547,12 @@ ign编辑水平拉稀这个毫无疑问，但其实大家心里也都明白SMT5�
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  DKD  
+##### 149#       发表于 2021-11-6 12:27
+
+魔法门不像英雄无敌，所以魔法门不行<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
