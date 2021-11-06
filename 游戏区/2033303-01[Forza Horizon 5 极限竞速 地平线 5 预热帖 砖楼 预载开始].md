@@ -5902,3 +5902,21 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 这部越野赛好难啊……</blockquote>
 用烂车跑，车越好越难
 
+
+
+*****
+
+####  pl0okm  
+##### 528#       发表于 2021-11-6 23:13
+
+才发现劲敌前5％送车 现在已经卷起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  土卫六的秋天  
+##### 529#       发表于 2021-11-6 23:14
+
+今天上线一看PG把昨天刷的用在supra的技能点还给我了，但是fairlady的周常进度也清零了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

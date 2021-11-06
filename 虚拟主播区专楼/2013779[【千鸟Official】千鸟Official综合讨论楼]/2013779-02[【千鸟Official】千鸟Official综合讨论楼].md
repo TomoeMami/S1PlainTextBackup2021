@@ -1863,3 +1863,79 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  夜潇箫  
+##### 1707#       发表于 2021-11-6 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">为什么v圈找不到几个正常的运营。
+二刺猿鲨卵怎么这么多<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凭依华  
+##### 1708#       发表于 2021-11-6 23:07
+
+看玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 1709#       发表于 2021-11-6 23:08
+
+头秃···钓鱼模拟器去了，难顶<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 1710#       发表于 2021-11-6 23:09
+
+我倒是因为开着白子直播间完全没能被带进情绪
+
+白子你罪大恶极！<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cyanwow  
+##### 1711#       发表于 2021-11-6 23:09
+
+这tm都是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 1712#       发表于 2021-11-6 23:11
+
+ 本帖最后由 莫洛骑士 于 2021-11-6 11:17 编辑 
+
+陈珺祝你早日开着你的AMG被泥头车创然后卡在驾驶室里出不来被你最爱的98号汽油烧烤到起皮外焦里嫩被路过的野狗吃的大快朵颐然后灵魂徘徊在荒郊野岭不得转世你的孤魂野鬼生涯就像你稀巴烂的运营水平一样连个替死鬼都找不到只能在黄泉路奈何桥上度过相对失败的余生
+
+陈珺我燃烧你的梦，踏马什么都不会个臭沙币，屁事成不了只会稀烂的操作，赶紧带着你的二次元傻卵一家人滚去二次元得了，你狗屁运营，你寄吧不是！
+
+*****
+
+####  huyuanhao120  
+##### 1713#       发表于 2021-11-6 23:13
+
+洗个澡，正好没玉玉
+
+*****
+
+####  T型钉宫病毒  
+##### 1714#       发表于 2021-11-6 23:14
+
+因为狗运营哭，我捏麻真的艹了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Quark  
+##### 1715#       发表于 2021-11-6 23:23
+
+九月底刚看静子的时候她说哭哭是最后一张牌<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
