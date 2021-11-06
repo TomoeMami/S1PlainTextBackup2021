@@ -5755,3 +5755,67 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 所以这一代的测速玩具有定论了吗…
 
+
+
+*****
+
+####  天神十三煞  
+##### 514#         楼主| 发表于 2021-11-6 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442150&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-6 04:37</a>
+
+我怎么觉着这作漂移变难了，那个35A 35B死活只有2星...4代我好像努力下漂移区间就能3星了，还是说 ...</blockquote>
+这代判定没有上代难
+
+有些地方稍微碾边不会中断分数
+
+*****
+
+####  天神十三煞  
+##### 515#         楼主| 发表于 2021-11-6 21:28
+
+ 本帖最后由 天神十三煞 于 2021-11-6 05:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442772&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-6 05:23</a>
+
+所以这一代的测速玩具有定论了吗…</blockquote>
+顶楼不是写了吗，jesko，
+
+你去看排行，测速照相和跳台一票都是这车
+
+泥地找不到窍门的用霍妮干rs200
+
+部分区间用sesto fe，漂移当然是漂移方程式dodge的#43 viper
+
+*****
+
+####  有钱多买小人  
+##### 516#       发表于 2021-11-6 21:40
+
+贴一个传送广告牌的大图<img src="https://p.sda1.dev/3/750fb89b784974e040a4fa35c3a50efe/IMG_CMP_137138611.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  qzy741147  
+##### 517#       发表于 2021-11-6 21:41
+
+漂移区间要怎么解锁呢，我现在地图上一个漂移区间都没有
+
+*****
+
+####  lxx4869  
+##### 518#       发表于 2021-11-6 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442997&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-6 21:41</a>
+
+漂移区间要怎么解锁呢，我现在地图上一个漂移区间都没有</blockquote>
+要解锁冒险吧
+
+*****
+
+####  qzy741147  
+##### 519#       发表于 2021-11-6 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53443010&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-6 21:42</a>
+要解锁冒险吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">好吧，也没有什么引导
+
