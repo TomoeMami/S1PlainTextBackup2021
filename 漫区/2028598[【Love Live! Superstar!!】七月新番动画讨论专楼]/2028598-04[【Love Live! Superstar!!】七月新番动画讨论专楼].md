@@ -956,3 +956,76 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 
 不知有什么改没
 
+
+
+*****
+
+####  lj205  
+##### 4579#       发表于 2021-11-6 16:47
+
+冈山偏啊，开场前也坐差不多了，加上现在也能网上看，也行吧。
+
+两首歌听下来看来都恢复的差不多了
+
+今天就看看有没有安排鱼的SOLO………………
+
+*****
+
+####  player3960  
+##### 4580#       发表于 2021-11-6 16:49
+
+今天的天籁之音指的谁啊？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4581#       发表于 2021-11-6 16:50
+
+还以为会指双N那边呢
+
+*****
+
+####  zylwz  
+##### 4582#       发表于 2021-11-6 16:50
+
+还是合鲤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 4583#       发表于 2021-11-6 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">又是小百合又是小百合，什么时候能指下nako和nagi
+
+*****
+
+####  player3960  
+##### 4584#       发表于 2021-11-6 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53439366&amp;ptid=2028598" target="_blank">zylwz 发表于 2021-11-6 16:50</a>
+
+还是合鲤</blockquote>
+难道是照顾第一次这个mc看的人，day1还是照例，day2再换人
+
+*****
+
+####  lj205  
+##### 4585#       发表于 2021-11-6 16:53
+
+吃货团这是，MC就是吃
+
+*****
+
+####  player3960  
+##### 4586#       发表于 2021-11-6 16:56
+
+也好，每个地方特色食物都不一样，不缺话题<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4587#       发表于 2021-11-6 16:58
+
+今天这导播又是各种切切切…………
+

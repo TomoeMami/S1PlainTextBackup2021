@@ -940,3 +940,33 @@ BV1Dr4y1C72w
 
 某贤妻三十级脆鲨牌?顶真?
 
+
+
+*****
+
+####  rgauss  
+##### 1602#       发表于 2021-11-6 16:48
+
+笑死 这对夫妻口供貌似没通好
+
+*****
+
+####  有效击穿  
+##### 1603#       发表于 2021-11-6 16:49
+
+这对夫妻以后还能在泛ACG圈子混口饭吃吗？
+
+*****
+
+####  dora盐包蛋  
+##### 1604#       发表于 2021-11-6 16:49
+
+老炒作狗拉着小炒作狗一起溺死了?好事啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 1605#       发表于 2021-11-6 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静至少没有和白白或者琳说过逼对逼这话
+
