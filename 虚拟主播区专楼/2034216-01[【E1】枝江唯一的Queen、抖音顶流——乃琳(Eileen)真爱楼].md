@@ -1972,3 +1972,21 @@ A-SOUL_Official:[发布动态](https://t.bilibili.com/589097744386941981)小伙�
 
 2021-11-4 12:16 上传
 
+
+
+*****
+
+####  sanlow666  
+##### 142#         楼主| 发表于 2021-11-6 15:22
+
+乃琳Queen:[发布抖音](https://www.douyin.com/video/7027050840703634725)
+简单点，说话的方式简单点#说话技巧
+
+<img src="https://img.saraba1st.com/forum/202111/06/152229v2lyiefd7xmlgib0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 15:22 上传
+

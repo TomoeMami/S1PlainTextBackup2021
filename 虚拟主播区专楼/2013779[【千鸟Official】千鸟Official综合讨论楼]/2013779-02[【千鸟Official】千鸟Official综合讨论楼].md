@@ -688,3 +688,81 @@ CJ资历还是OK的.就是性情甩的一B.(南京话) 吊杆子缺点毒打.</b
 —— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅 ...</blockquote>
 1.0的文静是西瓜；2.0的文静是倭瓜
 
+
+
+*****
+
+####  憧憬鲨  
+##### 1573#       发表于 2021-11-6 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">万万没想到会是这么个结局，倒也确实挺灿烂的
+
+*****
+
+####  灰色的狐狸  
+##### 1574#       发表于 2021-11-6 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">确实最后是整了个波大的，很符合2.0文静的感觉
+
+只是真的有被运营恶心到
+
+*****
+
+####  T型钉宫病毒  
+##### 1575#       发表于 2021-11-6 15:05
+
+本想上舰拿个礼盒留作纪念来着<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+有没有文静二期礼盒多的出我一个
+
+*****
+
+####  袜子  
+##### 1576#       发表于 2021-11-6 15:07
+
+二期没礼盒，我一期的压哨盒还没发呢（官号的
+
+*****
+
+####  cheatdeath3  
+##### 1577#       发表于 2021-11-6 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438129&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-6 14:56</a>
+
+1.0文静也很强的，那时候的格局也是一个文静carry
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅 ...</blockquote>
+那无非就是换一批鸟批继续打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不会真有人对劳动资料发情吧，又没说2.0不能直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1578#       发表于 2021-11-6 15:08
+
+二期应该是立牌吧
+
+*****
+
+####  憧憬鲨  
+##### 1579#       发表于 2021-11-6 15:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">接下来会发生什么呢
+
+*****
+
+####  Y_Curiosity  
+##### 1580#       发表于 2021-11-6 15:14
+
+竞业协议要给钱的，不给钱就可以不遵守，两年每个月至少给工资的30%，我不觉得stf能给到文静每月3w多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1581#       发表于 2021-11-6 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438356&amp;ptid=2013779" target="_blank">Y_Curiosity 发表于 2021-11-6 15:14</a>
+竞业协议要给钱的，不给钱就可以不遵守，两年每个月至少给工资的30%，我不觉得stf能给到文静每月3w多[f:009 ...</blockquote>
+营收很高，但文静工资就一万多
+
