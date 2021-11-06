@@ -1872,3 +1872,17 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 最近 ...</blockquote>
 INDEX主要是可以装散热模块，直接从头盔内部抽风爽爆、
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 117#       发表于 2021-11-6 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437854&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-6 14:34</a>
+
+看看是不是性能有问题，僚机计划因为是个人开发者，优化毛病不少。
+
+现在界面有所改变但大致效果是一样的。 ...</blockquote>
+画质调低后就能玩了，顺带问一下分辨率调多少比较好
+

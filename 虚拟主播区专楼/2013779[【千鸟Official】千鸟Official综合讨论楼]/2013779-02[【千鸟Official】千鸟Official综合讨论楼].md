@@ -766,3 +766,30 @@ CJ资历还是OK的.就是性情甩的一B.(南京话) 吊杆子缺点毒打.</b
 竞业协议要给钱的，不给钱就可以不遵守，两年每个月至少给工资的30%，我不觉得stf能给到文静每月3w多[f:009 ...</blockquote>
 营收很高，但文静工资就一万多
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 1582#       发表于 2021-11-6 15:22
+
+文静微博私号什么时候能挖出来，我按耐不住了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 1583#       发表于 2021-11-6 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438285&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 15:08</a>
+二期应该是立牌吧</blockquote>
+有，就是比AS礼盒要寒酸许多。
+
+*****
+
+####  tankai  
+##### 1584#       发表于 2021-11-6 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438379&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-6 15:16</a>
+营收很高，但文静工资就一万多</blockquote>
+不是猜7000多么？
+

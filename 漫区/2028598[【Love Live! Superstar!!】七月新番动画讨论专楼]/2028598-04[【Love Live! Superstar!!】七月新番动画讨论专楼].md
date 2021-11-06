@@ -858,3 +858,23 @@ Weiß Schwarz补充包卡太草了，每张都有加农，然后加农那张是�
 以前一直是看熟肉的，上了audee看了才发现原来鲤鱼姐广播 ...</blockquote>
 能关注多关注一下，好像也是看反馈率决定要不要继续保留的。
 
+
+
+*****
+
+####  lucksolo  
+##### 4568#       发表于 2021-11-6 15:34
+
+有没有可恋的药<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 4569#       发表于 2021-11-6 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438549&amp;ptid=2028598" target="_blank">lucksolo 发表于 2021-11-6 15:34</a>
+有没有可恋的药</blockquote>
+恋恋局外人，磕cp的，哪来的假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

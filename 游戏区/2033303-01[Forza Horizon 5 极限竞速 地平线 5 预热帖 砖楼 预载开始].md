@@ -5412,3 +5412,30 @@ PG的游戏第一版是这样的
 
 又有个小bug：不管我开的是啥车，每次打开游戏都必定在家里换回一开始选的那辆车
 
+
+
+*****
+
+####  nemunoki  
+##### 481#       发表于 2021-11-6 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438126&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-6 14:55</a>
+
+现在截图是dx的组件一部分
+
+在xbox game bar里面，截图后live里面有，hub也会显示 ...</blockquote>
+就是用win+alt+printscreen截的，截完按win+g只能看到本地的图库只能分享到蓝鸟
+
+live只能看到2年前的图，forza hub里我甚至看不到有FH5
+
+*****
+
+####  诶哟卧草  
+##### 482#       发表于 2021-11-6 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438260&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-6 15:06</a>
+又有个小bug：不管我开的是啥车，每次打开游戏都必定在家里换回一开始选的那辆车 ...</blockquote>
+我还以为是feature
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
