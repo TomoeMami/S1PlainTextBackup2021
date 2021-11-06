@@ -5327,3 +5327,41 @@ https://support.forzamotorsport.net/hc/en-us/articles/360007593074?input_string=
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  罗科  
+##### 474#       发表于 2021-11-6 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53436997&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-6 13:19</a>
+
+https://support.forzamotorsport.net/hc/en-us/articles/360007593074?input_string=i+crashed+while+pl ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+我一个个试的，g-hub，msi小飞机，壁纸引擎在我这没事
+
+这真的很迷
+
+*****
+
+####  天神十三煞  
+##### 475#         楼主| 发表于 2021-11-6 13:51
+
+PG的游戏第一版是这样的
+
+3和4都整了好几个更新优化才好
+
+5代初始已经比3和4强多了
+
+3刚出的时候有些人各种掉帧跳出报错
+
+*****
+
+####  nemunoki  
+##### 476#       发表于 2021-11-6 13:59
+
+才发现PC端XB应用小帮手连分享截图的功能都被砍了
+
+那这俱乐部还有啥用 线上玩到现在没匹配到过一起的
+

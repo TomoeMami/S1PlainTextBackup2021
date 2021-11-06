@@ -112,3 +112,123 @@ V圈真的没一个正常脑子的运营吗···
 
 哈哈😄大家聊了这么多啊，我们夫妻数米晕过去了，现在才醒
 
+
+
+*****
+
+####  小憨1  
+##### 1514#       发表于 2021-11-6 13:43
+
+那表字的微博注销了，怎么萎了呢？
+
+*****
+
+####  tankai  
+##### 1515#       发表于 2021-11-6 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437203&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-11-6 13:39</a>
+
+哈哈😄大家聊了这么多啊，我们夫妻数米晕过去了，现在才醒</blockquote>
+十月文静一个人收了20W.千鸟整体已经比虚研社要高了,弹幕总量在国内仅次于AS和VR.这极品夫妻还看不上呢.
+
+*****
+
+####  pipeline  
+##### 1516#       发表于 2021-11-6 13:47
+
+鸟快散吧，现在唯一的问题就是竞业那个事情要怎么解决了，风光大葬之后静将军自己来运营吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hanshanwulu  
+##### 1517#       发表于 2021-11-6 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437270&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-6 13:45</a>
+
+十月文静一个人收了20W.千鸟整体已经比虚研社要高了,弹幕总量在国内仅次于AS和VR.这极品夫妻还看不上呢. ...</blockquote>
+有一说一，如果文静一开始能在维阿或者虚研社，现在应该能有10万粉了。而且静姨属于那种粉丝黏度很高，就算搞个人势，也比较滋润。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 1518#       发表于 2021-11-6 13:51
+
+竞业协议真不好弄吧，搞了这茬之后鬼才相信那对夫妻能给几个中之人好脸色看……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  haruhiismer  
+##### 1519#       发表于 2021-11-6 13:53
+
+最坚固的堡垒是内部崩溃的属于是
+
+*****
+
+####  希克苏鲁伯  
+##### 1520#       发表于 2021-11-6 13:54
+
+速报，被大手摁住了
+
+*****
+
+####  一般通过广纤  
+##### 1521#       发表于 2021-11-6 13:54
+
+文静可以当不露脸的主播么？我觉得那样应该挺有搞头的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  袜子  
+##### 1522#       发表于 2021-11-6 13:54
+
+被摁住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">失败，大家直接吹唢呐！！！！！！！！
+
+*****
+
+####  德里达幽灵  
+##### 1523#       发表于 2021-11-6 13:56
+
+鸟快散吧，现在这个情况，令人惋惜……
+
+*****
+
+####  huyuanhao120  
+##### 1524#       发表于 2021-11-6 13:58
+
+真是只要在风口上，母猪都能上树。
+
+*****
+
+####  IDIDIDID  
+##### 1525#       发表于 2021-11-6 14:01
+
+文静润了以后要不学薯皇和水姐挂个立绘直播算了
+
+*****
+
+####  tankai  
+##### 1526#       发表于 2021-11-6 14:01
+
+还能说话吗?怎么没人开播呢.<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+image.png
+(9.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 14:00 上传
+
+<img src="https://img.saraba1st.com/forum/202111/06/140055hbkubbb6ddv6ijdd.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1527#       发表于 2021-11-6 14:02
+
+<img src="https://p.sda1.dev/3/f5abfc4d11e9e0e189be4e0af20ea59b/IMG_CMP_149976427.jpeg" referrerpolicy="no-referrer">
+跑应该是真跑了
+
