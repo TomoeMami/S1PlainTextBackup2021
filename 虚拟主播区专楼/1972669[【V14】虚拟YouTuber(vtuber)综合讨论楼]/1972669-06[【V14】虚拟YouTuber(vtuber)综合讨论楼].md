@@ -9507,3 +9507,12 @@ bora的衣服不错
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不是把以前唱过的又唱一次了,再去听一遍就知道了
 
+
+
+*****
+
+####  ヒトニナル  
+##### 8191#       发表于 2021-11-6 21:05
+
+みきとP一直都是这样的，只是这两个人唱的拉而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

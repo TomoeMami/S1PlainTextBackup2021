@@ -1707,3 +1707,27 @@ ok，fine，他画饼我就吃，继续看呗，总不能离了</blockquote>
 
 可能是我最后一次看二创的感觉
 
+
+
+*****
+
+####  GAKOTO  
+##### 1686#         楼主| 发表于 2021-11-6 21:18
+
+心态变了，看不进去了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+这下我心之壁了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1687#       发表于 2021-11-6 21:18
+
+cj这东西真是膈应人 今天有点看不下去直播了 先休息一段时间了
+
+*****
+
+####  袜子  
+##### 1688#       发表于 2021-11-6 21:21
+
+今天唯一好消息，文静电台要算直播时间，回家期间不能游戏和播片了，大谈特谈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">至于别的···
+

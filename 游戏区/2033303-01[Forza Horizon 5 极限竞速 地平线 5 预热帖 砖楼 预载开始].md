@@ -5726,3 +5726,32 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 开了牵引力控制和ABS还是追不上，吐了 ...</blockquote>
 这关AI强度跟难度设定走的，直接调成游客难度 起步就超车随便开了
 
+
+
+*****
+
+####  风流庵TypeC  
+##### 511#       发表于 2021-11-6 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
+V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面还有水
+
+开了牵引力控制和ABS还是追不上，吐了 ...</blockquote>
+这关只能脏一点靠撞飞布加迪了，以及有两处围栏不能撞破的，靠马力不刹车磨着过弯比较快
+
+*****
+
+####  AEmpire  
+##### 512#       发表于 2021-11-6 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441617&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-6 19:57</a>
+9号解锁，这几天看社区反馈有人说比4代滑有人说5代超级抓地力，有人说过弯操作更精细有人说过弯操作 ...</blockquote>
+都不算错，湿地确实比前作滑，干地确实是超级抓地力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 513#       发表于 2021-11-6 21:23
+
+所以这一代的测速玩具有定论了吗…
+
