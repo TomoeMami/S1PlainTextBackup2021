@@ -16797,3 +16797,60 @@ syl 昨晚梦见文静了
 在被狂轰滥炸了一个晚上之后，陈珺终于直面了一些疑问，给出了一些他自己的回答，但是这些“苦情牌”却充斥 ...</blockquote>
 真要散了？亚达呦。。。
 
+
+
+*****
+
+####  小憨1  
+##### 1494#       发表于 2021-11-6 09:42
+
+ 本帖最后由 小憨1 于 2021-11-6 09:46 编辑 
+
+偷得图，或许可以等一个QA？
+原链接[帖子](http://tieba.baidu.com/p/7602134018?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.13.1.0&amp;st=1636163041&amp;unique=BC47A784E73824F766BA79FDEF6A95F3)
+
+1.jpg
+(103.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 09:42 上传
+
+<img src="https://img.saraba1st.com/forum/202111/06/094213edddq31t8ur3ztud.jpg" referrerpolicy="no-referrer">
+
+2.jpg
+(116.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 09:42 上传
+
+<img src="https://img.saraba1st.com/forum/202111/06/094213th552y26k3wyp6yj.jpg" referrerpolicy="no-referrer">
+
+3.jpg
+(120.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 09:42 上传
+
+<img src="https://img.saraba1st.com/forum/202111/06/094213q8tkq800mdx0lmq9.jpg" referrerpolicy="no-referrer">
+
+4.jpg
+(75.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 09:42 上传
+
+<img src="https://img.saraba1st.com/forum/202111/06/094213em3c7zrrx9z3w5cb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 1495#       发表于 2021-11-6 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就中层才容易出逆天？
+
+往上够不着门槛，往下放不下身段，属于是卡在那里了
+

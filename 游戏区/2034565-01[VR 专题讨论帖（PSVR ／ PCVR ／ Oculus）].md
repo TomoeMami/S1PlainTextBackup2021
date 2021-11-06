@@ -1777,3 +1777,22 @@ v34 增加了新的语音命令，你可以通过语音来暂停和播放  Oculu
 
 我也是蓝**咪，有没有什么免费节点或者按时间计费的点可以推荐一下，我自己的是按流量计费，拿来下载游戏有点心疼。。
 
+
+
+*****
+
+####  Ichihatsu  
+##### 109#       发表于 2021-11-6 09:50
+
+Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖的要吐了
+
+*****
+
+####  bypass  
+##### 110#         楼主| 发表于 2021-11-6 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53434687&amp;ptid=2034565" target="_blank">Ichihatsu 发表于 2021-11-6 09:50</a>
+
+Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖的要吐了</blockquote>
+我之前用 Valve Index 发现这玩意巨怕我卧室里面的全身镜，手柄分分钟给我飘到十万八千里，但是换到 Quest 2 倒是很少遇到类似的情况 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
