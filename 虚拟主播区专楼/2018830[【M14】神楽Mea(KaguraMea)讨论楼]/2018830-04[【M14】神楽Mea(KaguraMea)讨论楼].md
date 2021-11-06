@@ -2524,3 +2524,12 @@ https://www.bilibili.com/video/BV1HF411a75D?share_source=copy_web
 
 昨天唱ktv的时候到底怎么个嗨法，手都酸了。2小时一直握住<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">有些色
 
+
+
+*****
+
+####  路人庚  
+##### 4789#       发表于 2021-11-6 11:41
+
+ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然举着两小时确实会酸
+
