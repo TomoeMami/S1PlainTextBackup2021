@@ -5598,3 +5598,19 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 2，拍照模式对不了焦，要找无数个点狂按对焦才有几率显示对焦点在车上的
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 500#       发表于 2021-11-6 19:24
+
+果然只要来的够早我也能蹭名人堂，昨晚冲了个700名截图睡觉，今天回来一看已经2000开外了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无连斩  
+##### 501#       发表于 2021-11-6 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这代感觉制作组还是好偷懒啊，为啥买了房子还就一辆车能摆出来，学TDU系列买了房子有车库摆七八辆车出来多好……
+

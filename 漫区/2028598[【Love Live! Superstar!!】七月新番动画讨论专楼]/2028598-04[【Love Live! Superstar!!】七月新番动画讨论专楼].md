@@ -1515,3 +1515,74 @@ liella之歌还是有可能换的，nonfiction的衣服就别想了，定好的�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 4644#       发表于 2021-11-6 19:22
+
+还有17场口语试，最后一场毕业考
+
+*****
+
+####  darkendless  
+##### 4645#       发表于 2021-11-6 19:33
+
+毕业考意义重大，可得精彩小作文了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 4646#       发表于 2021-11-6 19:34
+
+线上就挑最后一场看差不多了，中间应该没啥变化，意思不大。
+
+*****
+
+####  chenflyyy  
+##### 4647#       发表于 2021-11-6 19:38
+
+毕业考估计得再哭一次吧，那天还是她生日<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+我是打算只看了第一场和最后一场的，其他都是看别人repo和一些切片
+
+*****
+
+####  优妮可  
+##### 4648#       发表于 2021-11-6 19:40
+
+<img src="https://img.saraba1st.com/forum/202111/06/194048q9i5e0ce9mxi0905.jpg" referrerpolicy="no-referrer">
+
+<strong>20211106_193947.jpg</strong> (426.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 19:40 上传
+
+<img src="https://img.saraba1st.com/forum/202111/06/194049gzw6cmcnn1ncm22m.jpg" referrerpolicy="no-referrer">
+
+<strong>20211106_193955.jpg</strong> (374.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-6 19:40 上传
+
+*****
+
+####  lj205  
+##### 4649#       发表于 2021-11-6 19:41
+
+ 本帖最后由 lj205 于 2021-11-6 19:43 编辑 
+
+希望最后一场配信特典票面是可可，这样就全齐了，中间就看缘分吧
+
+微博全是理性人，就不花精力跟他们辩了
+
+*****
+
+####  lj205  
+##### 4650#       发表于 2021-11-6 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441398&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-6 19:40</a></blockquote>
+打铁<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

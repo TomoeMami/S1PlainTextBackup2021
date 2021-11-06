@@ -1114,3 +1114,240 @@ syl 这不是经典画大饼环节 正常人都快听吐了 真有人信？
 
 经典盗号是吧，盗号盾一次好用，第二次可不好用
 
+
+
+*****
+
+####  袜子  
+##### 1621#       发表于 2021-11-6 19:20
+
+ 本帖最后由 袜子 于 2021-11-6 19:23 编辑 
+
+又盗号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl他画饼有一套的，不然也不会骗到现在
+
+*****
+
+####  聪明墨菲特  
+##### 1622#       发表于 2021-11-6 19:21
+
+b站号被盗，报警警察能管这事吗
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  rgauss  
+##### 1623#       发表于 2021-11-6 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441101&amp;ptid=2013779" target="_blank">聪明墨菲特 发表于 2021-11-6 19:19</a>
+
+这个stf小哥哥感觉画起饼还挺正经的，怎么私号就像个乐子人一样，不会是双面人吧
+
+—— 来自 HUAWEI PCT-AL ...</blockquote>
+那画饼是挺正经的啊，你看他履历啊，初代洛天依总监，被粉丝骂成那样，现在还有这么多资源
+
+*****
+
+####  gawain039  
+##### 1624#       发表于 2021-11-6 19:23
+
+陈来允许，陈来承担，陈来背负这个千鸟！
+
+*****
+
+####  憧憬鲨  
+##### 1625#       发表于 2021-11-6 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这点脸皮都没有搞什么互联网
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这么一条条回应没得搞的，连麦对线大概才能冲出效果
+
+*****
+
+####  rgauss  
+##### 1626#       发表于 2021-11-6 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">典 这理由真是典
+
+*****
+
+####  袜子  
+##### 1627#       发表于 2021-11-6 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441161&amp;ptid=2013779" target="_blank">憧憬鲨 发表于 2021-11-6 19:23</a>
+
+这点脸皮都没有搞什么互联网
+
+这么一条条回应没得搞的，连麦对线大概才能冲出效果 ...</blockquote>
+和隔壁QA一样，都是太极拳罢了···选择之后的QA我只能说真的太极
+
+*****
+
+####  hanshanwulu  
+##### 1628#       发表于 2021-11-6 19:25
+
+乖乖，陈哥这是要承担v圈此世之恶啊。他真的，哭死。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1629#       发表于 2021-11-6 19:27
+
+救命啊我顶不住了，太好笑了哥
+
+*****
+
+####  聪明墨菲特  
+##### 1630#       发表于 2021-11-6 19:27
+
+什么牛马，说了半天等于什么也没说，信息含量甚至不如b综
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  rgauss  
+##### 1631#       发表于 2021-11-6 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441212&amp;ptid=2013779" target="_blank">聪明墨菲特 发表于 2021-11-6 19:27</a>
+
+什么牛马，说了半天等于什么也没说，信息含量甚至不如b综
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 S1N ...</blockquote>
+这就是太极拳和画大饼的力量
+
+*****
+
+####  Quark  
+##### 1632#       发表于 2021-11-6 19:29
+
+他谈起洛天依的样子就像选购谈他的s6一样
+
+*****
+
+####  袜子  
+##### 1633#       发表于 2021-11-6 19:30
+
+信息浓度稀烂，平台B掉50%然后是版权方买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 1634#         楼主| 发表于 2021-11-6 19:31
+
+还真是草台班子
+
+*****
+
+####  rgauss  
+##### 1635#       发表于 2021-11-6 19:31
+
+没提过amg是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聪明墨菲特  
+##### 1636#       发表于 2021-11-6 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441234&amp;ptid=2013779" target="_blank">Quark 发表于 2021-11-6 19:29</a>
+他谈起洛天依的样子就像选购谈他的s6一样</blockquote>
+到有点像许秀谈重铸lck荣光，不过许秀是硬实力冠军，他是个一事无成的贵物
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  小憨1  
+##### 1637#       发表于 2021-11-6 19:32
+
+麻了麻了麻了，他这意思是能继续？
+
+*****
+
+####  rgauss  
+##### 1638#       发表于 2021-11-6 19:33
+
+我宣布 盗号盾以后成为第一盾 其他盾在盗号盾面前都不行
+
+*****
+
+####  T型钉宫病毒  
+##### 1639#       发表于 2021-11-6 19:35
+
+“心痛的是一年换掉两张显卡”
+
+你那破2060能干啥？
+
+*****
+
+####  gawain039  
+##### 1640#       发表于 2021-11-6 19:36
+
+哪里收的两张矿卡？
+
+*****
+
+####  袜子  
+##### 1641#       发表于 2021-11-6 19:36
+
+太乐了，我逐渐了解一切，太好笑了···
+
+*****
+
+####  小憨1  
+##### 1642#       发表于 2021-11-6 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">领队静姐
+
+*****
+
+####  huyuanhao120  
+##### 1643#       发表于 2021-11-6 19:38
+
+那我在AMG车友会里能找到CJ吗
+
+*****
+
+####  袜子  
+##### 1644#       发表于 2021-11-6 19:38
+
+定期打太极是吧hhhhhhh**，抄个痛快
+
+*****
+
+####  rgauss  
+##### 1645#       发表于 2021-11-6 19:39
+
+《她们的静姐》
+
+*****
+
+####  tn_teana  
+##### 1646#       发表于 2021-11-6 19:41
+
+首播电台六百多同接，小陈套皮出道算了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 1647#       发表于 2021-11-6 19:43
+
+别别 我求你放人
+
+*****
+
+####  T型钉宫病毒  
+##### 1648#       发表于 2021-11-6 19:43
+
+文静“谈了半年”对应的是陈珺哪句，刚才没听到
+
+*****
+
+####  gawain039  
+##### 1649#       发表于 2021-11-6 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441435&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-6 19:43</a>
+文静“谈了半年”对应的是陈珺哪句，刚才没听到</blockquote>
+是麦克风吗？
+
