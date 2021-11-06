@@ -2677,3 +2677,12 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 上次ktv tc太棒了，回味无穷啊，麻麻能再来一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 4805#       发表于 2021-11-7 07:39
+
+那你头像是不是该换了 该把猛犸换成别的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
