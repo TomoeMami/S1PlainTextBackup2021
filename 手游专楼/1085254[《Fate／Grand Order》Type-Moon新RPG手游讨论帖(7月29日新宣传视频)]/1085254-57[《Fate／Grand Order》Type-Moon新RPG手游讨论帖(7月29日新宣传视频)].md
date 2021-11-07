@@ -3141,3 +3141,21 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 击退战又来了，不过感觉这次大家比上次兴致还低，毕竟材料都是旧的QP也没人缺，不知道最后会不会又失败然后运营调整杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 84255#       发表于 2021-11-7 17:32
+
+草....一管体力连续掉了2彩....RP又用在了奇怪的地方
+
+*****
+
+####  khxooo  
+##### 84256#       发表于 2021-11-7 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451887&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-11-7 17:16</a>
+击退战又来了，不过感觉这次大家比上次兴致还低，毕竟材料都是旧的QP也没人缺，不知道最后会不会又失败然后 ...</blockquote>
+骑柱子已经差不多没了一半血了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
