@@ -1965,3 +1965,16 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  dumplingpro  
+##### 124#       发表于 2021-11-7 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53450719&amp;ptid=2034565" target="_blank">伊莉伊莉雅 发表于 2021-11-7 14:44</a>
+最好不要让阳光直晒吧。定位的话大中午那种肯定不行，不过一般情况或者阴天之类的应该都没问题。油管上也 ...</blockquote>
+主要是一来只能拍摄到白茫茫一片，二来摄像头里面也有镜片，烈日下强光聚焦会损坏里面光学组件。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
