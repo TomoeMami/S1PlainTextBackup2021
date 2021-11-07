@@ -3819,3 +3819,17 @@ rog官号日常放屁吧，估计实际就只有天选联动
 
 还不发直播通知，我晚饭还没吃，决定绝食直到娜娜米开播
 
+
+
+*****
+
+####  两听可乐  
+##### 302#       发表于 2021-11-7 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452942&amp;ptid=2021175" target="_blank">sanxgh571 发表于 2021-11-7 19:02</a>
+
+还没发直播通知，但应该在转移到市区酒店的途中
+
+盲猜9点开播</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">9点吃外卖，10点来
+
