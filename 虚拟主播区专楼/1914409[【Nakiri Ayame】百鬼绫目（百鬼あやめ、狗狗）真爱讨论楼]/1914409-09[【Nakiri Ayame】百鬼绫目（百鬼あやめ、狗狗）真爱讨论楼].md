@@ -17208,3 +17208,12 @@ https://twitter.com/NT4218/status/1456923719524241413
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lpl夺冠了，绫总有看吗？
 
+
+
+*****
+
+####  因为你不会  
+##### 13438#       发表于 2021-11-7 15:09
+
+白金都上了，edg是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

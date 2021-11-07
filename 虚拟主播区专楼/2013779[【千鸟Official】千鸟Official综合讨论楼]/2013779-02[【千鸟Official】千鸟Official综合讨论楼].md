@@ -2164,3 +2164,19 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 
 老阿姨太会拿捏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜潇箫  
+##### 1742#       发表于 2021-11-7 15:11
+
+亏大了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">昨天停电，手机没电了，没有留言
+
+*****
+
+####  夜潇箫  
+##### 1743#       发表于 2021-11-7 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">文静
+
