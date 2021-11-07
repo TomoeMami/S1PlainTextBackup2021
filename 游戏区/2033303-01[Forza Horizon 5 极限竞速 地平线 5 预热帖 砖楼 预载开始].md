@@ -6294,3 +6294,16 @@ a级拉力最佳操控，jeep更快。
 
 这个活动点数瓒多了有啥好处吗，还是领完两辆车就可以不管了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ozymandias  
+##### 563#       发表于 2021-11-7 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
+V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面还有水
+
+开了牵引力控制和ABS还是追不上，吐了 ...</blockquote>
+前几个弯的栏杆是无敌的，我是靠撞墙过弯大法前期超车然后一路防守到终点过的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
