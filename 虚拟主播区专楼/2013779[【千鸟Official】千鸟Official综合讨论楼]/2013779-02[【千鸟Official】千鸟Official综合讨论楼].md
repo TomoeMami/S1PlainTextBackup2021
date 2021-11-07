@@ -2603,3 +2603,72 @@ V圈妖女真是名副其实，就是不知道文静有没有长着一根匹敌j
 
 呵呵还是暴露了你是个√运营花式骗粉骗米
 
+
+
+*****
+
+####  伞沢直美  
+##### 1796#       发表于 2021-11-7 21:28
+
+我超，0** ***，人身攻击是吧
+
+*****
+
+####  IDIDIDID  
+##### 1797#       发表于 2021-11-7 21:28
+
+触摸国V顶流了，文静给爷死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 1798#       发表于 2021-11-7 21:31
+
+我不好说
+
+*****
+
+####  rgauss  
+##### 1799#       发表于 2021-11-7 21:33
+
+？举办狗发举办截图是吧 已标记
+
+*****
+
+####  灰色的狐狸  
+##### 1800#       发表于 2021-11-7 21:33
+
+怎么还有举办🐕自爆了
+
+
+
+*****
+
+####  魔法少女大头  
+##### 1801#       发表于 2021-11-7 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大逃杀人越逃越多了。咋回事啊。
+
+*****
+
+####  维斯瓦军团  
+##### 1802#       发表于 2021-11-7 21:34
+
+笑麻了，室友看我跟看傻子一样
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T型钉宫病毒  
+##### 1803#       发表于 2021-11-7 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秋后算账！秋后算账！
+
+*****
+
+####  伞沢直美  
+##### 1804#       发表于 2021-11-7 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马文静，你个小婊砸！
+
