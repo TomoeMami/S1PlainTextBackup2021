@@ -2339,3 +2339,21 @@ cj昨天也明确了不放人，真被竞业卡脖子换个分区真的一定会
 
 你们搁这捣乱是吧，耽误静静收集素材<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Finsty  
+##### 1762#       发表于 2021-11-7 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等晚上看观众乐子了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 1763#       发表于 2021-11-7 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
