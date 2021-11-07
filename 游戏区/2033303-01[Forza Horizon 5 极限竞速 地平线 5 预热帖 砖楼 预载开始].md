@@ -6589,3 +6589,15 @@ https://b23.tv/1h4GoI
 +1，基本都最后一名，刚跑了把D级虽然不是最后一名也是倒数...铺装路的赛道每次都是没悬念第一甩出第二名 ...</blockquote>
 连开了四把苦行赛道才拿到第一，货真价实的苦行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ai在非铺装赛道上真就跟吃了伟哥一样，有一把在96%的时候被反超了，简直想死
 
+
+
+*****
+
+####  andychen  
+##### 586#       发表于 2021-11-7 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448877&amp;ptid=2033303" target="_blank">hallowilliam 发表于 2021-11-7 11:48</a>
+
+xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买没问题的吗</blockquote>
+没什么问题，微软账号随便跨区的
+

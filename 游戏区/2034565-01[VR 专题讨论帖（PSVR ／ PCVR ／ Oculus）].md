@@ -1978,3 +1978,39 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  云映天河  
+##### 125#       发表于 2021-11-7 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53450700&amp;ptid=2034565" target="_blank">伊莉伊莉雅 发表于 2021-11-7 14:41</a>
+
+贴一下小宅的三件配件:头戴，带风扇的面罩，包。
+
+头戴虽然也比不上pico，但是我觉得做工和舒适度在这个价 ...</blockquote>
+风扇面罩的效果具体怎么用？很凉快？
+
+*****
+
+####  伊莉伊莉雅  
+##### 126#       发表于 2021-11-7 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451626&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-7 16:47</a>
+
+主要是一来只能拍摄到白茫茫一片，二来摄像头里面也有镜片，烈日下强光聚焦会损坏里面光学组件。
+
+——  ...</blockquote>
+嗯，所以背光和阴天这种都还好
+
+*****
+
+####  伊莉伊莉雅  
+##### 127#       发表于 2021-11-7 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451803&amp;ptid=2034565" target="_blank">云映天河 发表于 2021-11-7 17:07</a>
+
+风扇面罩的效果具体怎么用？很凉快？</blockquote>
+通风散热，玩久了容易出汗，出汗会起雾，这个就是缓解一下
+
