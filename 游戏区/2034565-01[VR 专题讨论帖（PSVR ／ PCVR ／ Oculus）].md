@@ -1931,3 +1931,24 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 怕光线，环境光越亮定位越不准，因为是靠头盔上的IR摄像头来定位的，所以户外完全不能用 ...</blockquote>
 户外是指阳光吗，说明书只说透镜怕晒，几个定位摄像头是不是也怕的
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 122#       发表于 2021-11-7 14:41
+
+贴一下小宅的三件配件:头戴，带风扇的面罩，包。
+
+头戴虽然也比不上pico，但是我觉得做工和舒适度在这个价位里算是不错的选择，之前买过另一款国产头戴，只能说相比布带有很大改善，但是戴着也是不太舒服，然后做工和用料也不如小宅，当然最好的头戴还是畅听。
+然后小宅这个包官方宣传是支持大部分类型的头戴（畅听除外），目前还没拿出去用过，具体宣传参加商品详情页。
+<img src="https://p.sda1.dev/3/bf67a80c40dab153cbc76d011ba9edf3/IMG_CMP_178380361.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/d11dcc6acb1fdf2ceadb5fadd48bbcac/IMG_CMP_134453822.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/8572f1024cfcc700d27f32356933bbd6/IMG_CMP_251828348.jpeg" referrerpolicy="no-referrer">
+
+然后是风扇面罩，面罩刚拿出来有点味，放一放就好了。用料应该和头戴后面那里是一样的，和vrcover对比来看就是不如vrcover的软。小风扇有两档调速，一档在静置状态下能稍微听到一点点风声，二档声音比较大。不过在玩游戏的时候，二档声音不仔细听的话也不太能注意到（也可能是我游戏音量开太大了?
+<img src="https://p.sda1.dev/3/52f47b2ff6554996874f3d353ba1eb59/IMG_CMP_95254831.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/5aa885fc841fc0204629343bf706325a/IMG_CMP_113760040.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
