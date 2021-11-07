@@ -6349,3 +6349,14 @@ xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买
 这个活动点数瓒多了有啥好处吗，还是领完两辆车就可以不管了</blockquote>
 FH点数等商店开了要大量消费 所以简单的日常还是要顺手清掉
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 568#       发表于 2021-11-7 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448706&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-7 11:37</a>
+啊，这supra点了抽奖移除还会返还点数的？那不是永动了？</blockquote>
+应该是只有第一次会，后面我再移除就没有了
+
