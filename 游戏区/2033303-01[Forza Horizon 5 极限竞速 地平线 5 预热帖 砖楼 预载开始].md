@@ -6993,3 +6993,44 @@ fe版和原厂车性能有区别吗？
 我没看到那段路是土路，买了辆r8去跑，到了地方人麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 不过后面抄了个调校用r8也跑过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bad_alloc  
+##### 623#       发表于 2021-11-8 00:45
+
+这代pi代表的性能又提高了，上一代主要开S1跟A，现在A都感觉快，天天开着个B级A110到处逛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LMBS  
+##### 624#       发表于 2021-11-8 00:51
+
+难受，差两条路才找全
+
+*****
+
+####  Vladimeow  
+##### 625#       发表于 2021-11-8 00:53
+
+我和我朋友联机，我老是跑一半掉线掉出去我朋友没断过，都是UU加速器<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我都怀疑是自己网有问题了。
+
+*****
+
+####  Vladimeow  
+##### 626#       发表于 2021-11-8 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451081&amp;ptid=2033303" target="_blank">BonesDlc 发表于 2021-11-7 15:37</a>
+遇到俱乐部无法创建的错误，是我的问题还是微软的问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四代我创建俱乐部也这样，怀疑要梯子？
+
+*****
+
+####  Vladimeow  
+##### 627#       发表于 2021-11-8 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451505&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-7 16:33</a>
++1，基本都最后一名，刚跑了把D级虽然不是最后一名也是倒数...铺装路的赛道每次都是没悬念第一甩出第二名 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是的越野赛电脑车速快的离谱，飞得也远搞不懂，公路赛和拉力都是吊打
+

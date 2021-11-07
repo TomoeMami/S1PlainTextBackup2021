@@ -3479,3 +3479,14 @@ C：我就是文静
 
 什么嗯活
 
+
+
+*****
+
+####  莫洛骑士  
+##### 1903#       发表于 2021-11-8 00:53
+
+世界上只有一种真正的英雄主义，就是认清了生活的真相后还依然热爱它
+
+文静，我的英雄<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
