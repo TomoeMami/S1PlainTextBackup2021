@@ -1952,3 +1952,16 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 123#       发表于 2021-11-7 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444637&amp;ptid=2034565" target="_blank">Ichihatsu 发表于 2021-11-7 00:04</a>
+户外是指阳光吗，说明书只说透镜怕晒，几个定位摄像头是不是也怕的</blockquote>
+最好不要让阳光直晒吧。定位的话大中午那种肯定不行，不过一般情况或者阴天之类的应该都没问题。油管上也有不少在户外玩的视频。
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

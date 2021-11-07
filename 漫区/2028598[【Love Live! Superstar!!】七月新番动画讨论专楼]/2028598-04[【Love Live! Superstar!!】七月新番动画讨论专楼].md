@@ -2003,3 +2003,21 @@ QQ图片20211107135100.jpg
 
 今天等录播了
 
+
+
+*****
+
+####  普之舜舜  
+##### 4686#       发表于 2021-11-7 14:47
+
+今天坛友好少呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iuhehc  
+##### 4687#       发表于 2021-11-7 14:48
+
+今天的选妃是nako<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

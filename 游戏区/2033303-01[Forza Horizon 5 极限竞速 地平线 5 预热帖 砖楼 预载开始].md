@@ -6434,3 +6434,15 @@ pg会怎么处理就不知道了<img src="https://static.saraba1st.com/image/smi
 越野的那辆bronco他视频里是21款的，而且101871706这个代码我搜出来的是第六元素的调教后面第六元 ...</blockquote>
 是，我通过代码找到作者，然后作者所有作品里找到了调教，确实牛逼好开很多
 
+
+
+*****
+
+####  lxx4869  
+##### 575#       发表于 2021-11-7 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53449866&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-7 13:14</a>
+
+有点麻了，一直在掉线，结果搞得跑的活动的测速和跳台都没算，这垃圾服务器玩个屁 ...</blockquote>
+我昨天没算，达标了还老提示差1km，今天就没问题了
+
