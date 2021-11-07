@@ -3234,3 +3234,15 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 因为跳过有BUG，所以将跳过给禁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白金口袋  
+##### 84266#       发表于 2021-11-7 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53453838&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-7 06:46</a>
+
+马丹，说好了都没啥兴致呢，明明打的比去年还泽劲</blockquote>
+兴致不高是我瞎说的，一开始10分钟看下的不咋快，结果10分钟之后突飞猛进<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

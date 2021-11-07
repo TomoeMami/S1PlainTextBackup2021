@@ -3142,3 +3142,311 @@ Cherry直接寄了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 直播间封禁七天沃日
 
+
+
+*****
+
+####  小憨1  
+##### 1865#       发表于 2021-11-7 22:06
+
+我电台咋办啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1866#       发表于 2021-11-7 22:06
+
+这也在你的计划之中吗，静
+
+*****
+
+####  伞沢直美  
+##### 1867#       发表于 2021-11-7 22:06
+
+玉玉了
+
+*****
+
+####  rgauss  
+##### 1868#       发表于 2021-11-7 22:07
+
+cherry 封一下示意，说超管暗恋 封七天
+
+这是怎么回事呢
+
+*****
+
+####  璃絵和花瑠  
+##### 1869#       发表于 2021-11-7 22:07
+
+<img src="https://img.saraba1st.com/forum/202111/07/220614fajyjgrz8vyv6ty8.png" referrerpolicy="no-referrer">
+
+<strong>53EL]1%9%G0EYQ(}WZBI[57.png</strong> (41.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 22:06 上传
+
+开香槟咯🍾🍾🍾
+
+*****
+
+####  袜子  
+##### 1870#       发表于 2021-11-7 22:07
+
+直播间七天，毕业喽！！！！
+
+*****
+
+####  Quark  
+##### 1871#       发表于 2021-11-7 22:07
+
+这下电台也不用播了 放大假了happy
+
+*****
+
+####  灰色的狐狸  
+##### 1872#       发表于 2021-11-7 22:07
+
+毕业咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  IDIDIDID  
+##### 1873#       发表于 2021-11-7 22:07
+
+静栗惹在小黑屋里互相讨论为什么进来
+
+A：我骂了文静
+
+B：我夸了文静
+
+C：我就是文静
+
+*****
+
+####  Papercup  
+##### 1874#       发表于 2021-11-7 22:07
+
+这下真的要毕业了
+
+*****
+
+####  夜潇箫  
+##### 1875#       发表于 2021-11-7 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就因为一句超管暗恋被封七天?不愧是陈睿的人，小心眼一脉相承
+
+*****
+
+####  囧Smith  
+##### 1876#       发表于 2021-11-7 22:08
+
+七天后千鸟还在吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 1877#       发表于 2021-11-7 22:08
+
+叔叔**小，超管的更小，太有效果了
+
+*****
+
+####  莫洛骑士  
+##### 1878#       发表于 2021-11-7 22:09
+
+主播的一生都是节目效果
+
+*****
+
+####  rgauss  
+##### 1879#       发表于 2021-11-7 22:09
+
+艾白笑嘻了
+
+*****
+
+####  FCCHua  
+##### 1880#       发表于 2021-11-7 22:09
+
+麻了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1881#       发表于 2021-11-7 22:09
+
+节目效果好的批爆，比首播光速QA还好笑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 1882#       发表于 2021-11-7 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+一生都是节目效果
+太敬业了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  rgauss  
+##### 1883#       发表于 2021-11-7 22:12
+
+我昨天刚好在白白直播间臊皮，进去七天。
+
+这下跟文静双向奔赴了 
+
+*****
+
+####  莫洛骑士  
+##### 1884#       发表于 2021-11-7 22:14
+
+<blockquote>[置顶]从八号开始到二十一号都应该播不了啦！！跟大家请个假，常回家看看[tv_目瞪口呆]超管哥哥也消消气，一会会有动态更新请假条，文静爱你们呦，祝大家早安午安晚安！</blockquote>
+ ​
+
+我升天了
+
+*****
+
+####  囧Smith  
+##### 1885#       发表于 2021-11-7 22:14
+
+要放假到21号<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1886#       发表于 2021-11-7 22:14
+
+我玉玉了
+
+*****
+
+####  小憨1  
+##### 1887#       发表于 2021-11-7 22:15
+
+我缺的电台谁给我补啊😭
+
+*****
+
+####  灰色的狐狸  
+##### 1888#       发表于 2021-11-7 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454885&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-7 22:14</a>
+​
+
+我升天了</blockquote>
+怎么变成到21号了
+我寄了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  Quark  
+##### 1889#       发表于 2021-11-7 22:15
+
+我将停止呼吸直到二十二号<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璃絵和花瑠  
+##### 1890#       发表于 2021-11-7 22:15
+
+玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1891#       发表于 2021-11-7 22:16
+
+我缺的静能量去哪补啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1892#       发表于 2021-11-7 22:16
+
+我将停止呼吸直到二十二号
+
+*****
+
+####  小憨1  
+##### 1893#       发表于 2021-11-7 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454900&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-7 22:15</a>
+怎么变成到21号了
+我寄了</blockquote>
+疑案追声的时候说了好久没回家了，要请假到21号
+
+*****
+
+####  灰色的狐狸  
+##### 1894#       发表于 2021-11-7 22:20
+
+白白再狂点又要进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  灰色的狐狸  
+##### 1895#       发表于 2021-11-7 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454949&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-7 22:19</a>
+疑案追声的时候说了好久没回家了，要请假到21号</blockquote>
+我意思是她说之间不是会有电台么
+现在不知道还播不播了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  T型钉宫病毒  
+##### 1896#       发表于 2021-11-7 22:21
+
+<img src="https://img.saraba1st.com/forum/202111/07/222108mru2v1idf2d0dr4g.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211107222050.png</strong> (55.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 22:21 上传
+
+*****
+
+####  伞沢直美  
+##### 1897#       发表于 2021-11-7 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">玉玉了
+
+*****
+
+####  小憨1  
+##### 1898#       发表于 2021-11-7 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454962&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-7 22:20</a>
+我意思是她说之间不是会有电台么
+现在不知道还播不播了</blockquote>
+评论说解封了之后播，爱静信静等静<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有效击穿  
+##### 1899#       发表于 2021-11-7 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454728&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-11-7 22:03</a>
+这下三起三落了</blockquote>
+炸弹人是吧
+
