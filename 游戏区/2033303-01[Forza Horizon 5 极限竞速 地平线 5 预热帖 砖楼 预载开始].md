@@ -6724,3 +6724,21 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">想问一下PC的痛车代码能在Xbox用吗
 
+
+
+*****
+
+####  huruii7  
+##### 598#       发表于 2021-11-7 20:58
+
+快速移动的房子居然要两百万才能买orz…我是不是错过了什么，还是说必须刷到怎么多钱才行
+
+*****
+
+####  nemunoki  
+##### 599#       发表于 2021-11-7 21:03
+
+游戏玩久了会随机触发声音消失的BUG
+
+神奇的是播放技术歌曲的时候如果触发了这个BUG，那么连技术歌曲的倒计时也会停止<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">变成无限双倍刷个痛
+

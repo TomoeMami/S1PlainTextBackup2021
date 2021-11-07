@@ -2854,3 +2854,63 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 直接摆烂口胡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 4826#       发表于 2021-11-7 20:49
+
+最喜欢你麻唱的歌，真好
+
+*****
+
+####  时间在我手中  
+##### 4827#       发表于 2021-11-7 20:51
+
+今晚感觉肥婆绷不太住啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 4828#       发表于 2021-11-7 20:53
+
+拉胯了(ಡωಡ) 
+
+*****
+
+####  T_Hb  
+##### 4829#       发表于 2021-11-7 20:59
+
+首首都拉，有点蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 4830#       发表于 2021-11-7 21:00
+
+今晚为什么恋爱味那么重
+
+
+
+*****
+
+####  T_Hb  
+##### 4831#       发表于 2021-11-7 21:02
+
+因为今天是いい女
+
+*****
+
+####  2014720  
+##### 4832#       发表于 2021-11-7 21:02
+
+这首就故意不拉了是吧
+
+*****
+
+####  时间在我手中  
+##### 4833#       发表于 2021-11-7 21:05
+
+别尬黑，以前小小恋歌拉闸多少次了，今晚这是重大突破啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

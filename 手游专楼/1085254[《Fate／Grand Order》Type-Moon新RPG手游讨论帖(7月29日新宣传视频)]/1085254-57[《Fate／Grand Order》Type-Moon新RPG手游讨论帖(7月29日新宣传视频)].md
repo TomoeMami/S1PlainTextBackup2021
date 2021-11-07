@@ -3216,3 +3216,12 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 笑了，在嵐ノブ结算画面卡了差不多半小时了
 
+
+
+*****
+
+####  里村紅葉  
+##### 84264#       发表于 2021-11-7 20:46
+
+马丹，说好了都没啥兴致呢，明明打的比去年还泽劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
