@@ -6224,3 +6224,43 @@ PC上买就可以了，通用的
 </blockquote>
 这个车记得FH4的时候用着不太顺手，所以这系列是每次新作都要改前作同车型的性能吗
 
+
+
+*****
+
+####  有钱多买小人  
+##### 559#       发表于 2021-11-7 08:47
+
+djs大佬的十佳推荐出来了。有兴趣的可以去视频，有大佬的调校码
+https://youtu.be/f0cH95YIRRo
+
+1 Aston Martin Vulcan AMR PRO或者Alternative - Bugatti Divo
+s2公路最佳操控，无论干湿。肥龙更快但操控差一点。
+
+2 Hoonigan RS200
+系列传统全能车
+
+3 Ford Super Duty F-450 DRW Platinum
+d级最速。a级拉力
+
+4 Koenigsegg Jesko
+全游最速497km/h
+
+5 Ford Supervan 3
+s1级公路最佳操控
+
+6 Exomotive Exocet Offroad或者Alternative Jeep Willys
+a级拉力最佳操控，jeep更快。
+
+7 Hoonigan Ford 'Hoonicorn' Mustang
+漂移车
+
+8 Ford Bronco 2020
+最佳a级越野
+
+9 BMW Isetta
+ 传统乐子车
+
+10 Lamborghini Sesto Elemento Forza Edition
+系列最强x级
+
