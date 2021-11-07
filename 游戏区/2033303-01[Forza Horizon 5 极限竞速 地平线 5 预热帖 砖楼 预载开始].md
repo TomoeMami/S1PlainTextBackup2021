@@ -6446,3 +6446,43 @@ pg会怎么处理就不知道了<img src="https://static.saraba1st.com/image/smi
 有点麻了，一直在掉线，结果搞得跑的活动的测速和跳台都没算，这垃圾服务器玩个屁 ...</blockquote>
 我昨天没算，达标了还老提示差1km，今天就没问题了
 
+
+
+*****
+
+####  lxx4869  
+##### 576#       发表于 2021-11-7 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53450294&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-7 13:54</a>
+
+B站上找到一个bug挂机刷点数的视频
+
+https://b23.tv/1h4GoI
+
+基本就是在super7里创建一个可以桶滚的跳台，在 ...</blockquote>
+有上限吗？还是说每次挂100多w就要结算一次
+
+*****
+
+####  BonesDlc  
+##### 577#       发表于 2021-11-7 15:37
+
+遇到俱乐部无法创建的错误，是我的问题还是微软的问题
+
+<img src="https://img.saraba1st.com/forum/202111/07/153624d4u5m9iauaa969af.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211107153547.jpg</strong> (800.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 15:36 上传
+
+*****
+
+####  爱护动物抓根宝  
+##### 578#       发表于 2021-11-7 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451044&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-7 15:32</a>
+有上限吗？还是说每次挂100多w就要结算一次</blockquote>
+这次好像每次结算最多只能拿10点，多的就只是分数了
+
