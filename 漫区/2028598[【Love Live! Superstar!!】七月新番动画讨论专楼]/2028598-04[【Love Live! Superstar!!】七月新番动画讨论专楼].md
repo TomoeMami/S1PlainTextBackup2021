@@ -2030,3 +2030,26 @@ QQ图片20211107135100.jpg
 
 毕竟没啥惊喜…………就剩MC整活………………那等个录播就行……………………
 
+
+
+*****
+
+####  普之舜舜  
+##### 4689#       发表于 2021-11-7 16:09
+
+ 本帖最后由 普之舜舜 于 2021-11-7 16:10 编辑 
+
+发现四场下来，导播的水平在不断提升，稍微剪辑下进行对比，你们可以看看哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每场都在进步，真不错
+【【lovelive】养成系导播成长计划 四场tiny stars对比-哔哩哔哩】https://b23.tv/HpZ8Hr
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4690#       发表于 2021-11-7 16:15
+
+不变的依旧是/L符号，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
