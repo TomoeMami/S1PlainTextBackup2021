@@ -6818,3 +6818,78 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 反正也不喜欢开s2，就这样吧
 
+
+
+*****
+
+####  gzGaryC  
+##### 608#       发表于 2021-11-7 23:28
+
+这作的漂移真的简单很多啊，只要有轮子还在路上就算分
+
+*****
+
+####  虚无连斩  
+##### 609#       发表于 2021-11-7 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手残万年玩不来漂移，折腾一个晚上大部分点都是靠无限闪回试错过的……太累了
+
+*****
+
+####  猫溺泉君  
+##### 610#       发表于 2021-11-7 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455433&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-7 23:12</a>
+看你们都在讨论第六元素fe，我第一次超级抽奖就出了，然后被我卖了
+
+反正也不喜欢开s2，就这样吧 ...</blockquote>
+这辆车离谱，吸在地上
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天神十三煞  
+##### 611#         楼主| 发表于 2021-11-7 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+故事模式跑完
+
+各种全球前排
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫溺泉君  
+##### 612#       发表于 2021-11-7 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455392&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-7 23:06</a>
+嘉年华游乐场吧？雨林冒险送的越野车可以压到700 而且输赢都给奖励 现阶段不掉线就是胜利 ...</blockquote>
+主要是进去之前也不告诉你要什么级别的车，自己不能准备，只能用给的f150，体验非常不好
+到后面已经全队原地拉烟消极比赛了
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天神十三煞  
+##### 613#         楼主| 发表于 2021-11-7 23:40
+
+原来第六元素这么离谱
+
+我就在故事模式天生神速章节里开了下就拿了个全球排名360
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+玄幻魔法抓地力
+
+感觉黏在地上的
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LMBS  
+##### 614#       发表于 2021-11-7 23:44
+
+刚主线通关，一共一百万玩家
+

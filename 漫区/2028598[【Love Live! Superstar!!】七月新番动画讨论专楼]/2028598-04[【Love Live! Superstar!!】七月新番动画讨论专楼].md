@@ -2494,3 +2494,43 @@ pay终于又有合照了
 顺便B那边10-12上时间表了 下周六
 过审比想的要快啊 本来还以为要等下个月了
 
+
+
+*****
+
+####  player3960  
+##### 4724#       发表于 2021-11-7 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455478&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-07 23:16:47</a>
+顺便B那边10-12上时间表了 下周六
+过审比想的要快啊 本来还以为要等下个月了 ...</blockquote>可以去回顾下第10话了，其实我看了遍7-9的弹幕，观感比想象中的好一点，基本全是五学家的弹幕刷疯了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 4725#       发表于 2021-11-7 23:28
+
+<blockquote>D麦林 发表于 2021-11-7 23:15
+主要是这帮人反向玩梗 没口水巾也硬要虚空刷一波怎么没有口水巾 就很难看
+
+你看像提到汉堡肉必有人@逢田姐  ...</blockquote>
+不太一样的，逢田姐的汉堡肉是在其它视频里刷，逢田姐看不到的，也没有人会次次到逢田姐的推特下刷，鲤鱼这个除了九月那个日子没人敢刷，其它的是能刷就刷。
+
+*****
+
+####  Norkey1  
+##### 4726#       发表于 2021-11-7 23:31
+
+没办法，国内粉丝量摆在那里，而且很多年轻人人第一次追小偶像，肯定逮着个梗刷，适当温和的打击还是有必要的
+
+*****
+
+####  player3960  
+##### 4727#       发表于 2021-11-7 23:33
+
+一个上海偶像，一个口水巾，唉～不刷几年他们不会腻的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
