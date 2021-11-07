@@ -6393,3 +6393,44 @@ FH点数等商店开了要大量消费 所以简单的日常还是要顺手清�
 现在其实大可不必着急，掉线是全 ...</blockquote>
 大概我是摆烂受益者，两台活动车都给我结算了两辆。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nemunoki  
+##### 572#       发表于 2021-11-7 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447533&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-7 08:47</a>
+
+djs大佬的十佳推荐出来了。有兴趣的可以去视频，有大佬的调校码
+
+https://youtu.be/f0cH95YIRRo</blockquote>
+越野的那辆bronco他视频里是21款的，而且101871706这个代码我搜出来的是第六元素的调教<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面第六元素那段他又没给代码
+
+感觉这视频挺仓促的
+
+*****
+
+####  爱护动物抓根宝  
+##### 573#       发表于 2021-11-7 13:54
+
+ 本帖最后由 爱护动物抓根宝 于 2021-11-7 13:57 编辑 
+
+B站上找到一个bug挂机刷点数的视频
+[https://b23.tv/1h4GoI](https://b23.tv/1h4GoI)
+
+基本就是在super7里创建一个可以桶滚的跳台，在空中180°的时候进入蓝图编辑模式再退出，车辆落地后倒转回空中180°的时间点，再继续游戏车就会卡在空中无限刷桶滚技术了，想停下来就进入编辑模式再退出。
+
+试了下大概三分钟就能拿10点，有x7车还能更快
+
+pg会怎么处理就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  redsibyl  
+##### 574#       发表于 2021-11-7 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53450266&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-7 13:52</a>
+越野的那辆bronco他视频里是21款的，而且101871706这个代码我搜出来的是第六元素的调教后面第六元 ...</blockquote>
+是，我通过代码找到作者，然后作者所有作品里找到了调教，确实牛逼好开很多
+

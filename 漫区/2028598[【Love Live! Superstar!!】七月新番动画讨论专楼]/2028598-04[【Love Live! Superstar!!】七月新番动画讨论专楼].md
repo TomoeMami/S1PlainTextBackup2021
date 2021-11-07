@@ -1941,3 +1941,47 @@ edg都夺冠了，什么奇迹都会有的，三团互动也会来的</blockquot
 
 2021-11-7 12:52 上传
 
+
+
+*****
+
+####  player3960  
+##### 4681#       发表于 2021-11-7 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53449624&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-07 12:52:25</a></blockquote>哇，这不会是昨天live中途在换衣间拍的吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名津流  
+##### 4682#       发表于 2021-11-7 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53449624&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-7 12:52</a></blockquote>
+最该弯腿的那个基本没弯腿
+
+*****
+
+####  稀勢のささ  
+##### 4683#       发表于 2021-11-7 13:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QQ图片20211107135045.jpg
+(120 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 13:51 上传
+
+<img src="https://img.saraba1st.com/forum/202111/07/135121d9xxrtrtf87xo79r.jpg" referrerpolicy="no-referrer">
+
+QQ图片20211107135100.jpg
+(203.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 13:51 上传
+
+<img src="https://img.saraba1st.com/forum/202111/07/135126lbsn0fz5ufssfz0u.jpg" referrerpolicy="no-referrer">
+
