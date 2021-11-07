@@ -6625,3 +6625,36 @@ xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买
 
 喷了，网络居然抽疯发重了。编辑
 
+
+
+*****
+
+####  猫溺泉君  
+##### 589#       发表于 2021-11-7 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
+V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面还有水
+
+开了牵引力控制和ABS还是追不上，吐了 ...</blockquote>
+我反复过不去所向睥睨，然后就愤怒地的把ai调成门外汉了
+布加迪立马像加了90号酒精汽油一样
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  mwj  
+##### 590#       发表于 2021-11-7 18:49
+
+在线活动开加速器都狂掉线啊，是我的问题还是游戏的问题？
+
+*****
+
+####  nemunoki  
+##### 591#       发表于 2021-11-7 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452825&amp;ptid=2033303" target="_blank">mwj 发表于 2021-11-7 18:49</a>
+
+在线活动开加速器都狂掉线啊，是我的问题还是游戏的问题？</blockquote>
+<[img src="https://z3.ax1x.com/2021/11/07/I1Hnk6.png" referrerpolicy="no-referrer">
+
