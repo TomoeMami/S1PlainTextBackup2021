@@ -17217,3 +17217,12 @@ https://twitter.com/NT4218/status/1456923719524241413
 
 白金都上了，edg是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fami水  
+##### 13439#       发表于 2021-11-7 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">重拾LJL荣光，绫总义不容辞
+

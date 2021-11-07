@@ -2053,3 +2053,39 @@ QQ图片20211107135100.jpg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 4691#       发表于 2021-11-7 16:25
+
+鲤鱼现在手臂都有稍微放下点的
+
+*****
+
+####  iuhehc  
+##### 4692#       发表于 2021-11-7 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451061&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-7 15:34</a>
+毕竟没啥惊喜…………就剩MC整活………………那等个录播就行……………………
+
+看的第一个星团本居然是可堇 ...</blockquote>
+那个真的有趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  普之舜舜  
+##### 4693#       发表于 2021-11-7 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451480&amp;ptid=2028598" target="_blank">iuhehc 发表于 2021-11-7 16:29</a>
+
+那个真的有趣
+
+—— 来自 S1Fun</blockquote>
+哪有本子呀？
+
+给我看看
+
