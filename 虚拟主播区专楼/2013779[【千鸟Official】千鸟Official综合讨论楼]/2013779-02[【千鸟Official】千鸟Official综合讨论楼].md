@@ -3501,3 +3501,64 @@ C：我就是文静
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 1905#       发表于 2021-11-8 02:30
+
+这个月才播了23个小时，22号前还不一定能播游戏
+
+月底回来了给我狠狠的加班<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 1906#       发表于 2021-11-8 02:37
+
+【我为什么不能姓艾【艾白】-哔哩哔哩】https://b23.tv/del8V5
+
+她越来越逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  H2Ofrozen  
+##### 1907#       发表于 2021-11-8 03:04
+
+ 本帖最后由 H2Ofrozen 于 2021-11-8 03:21 编辑 
+
+看着白子一点点从之前那个萌萌纯真rp变得越来越缝得批爆真的有种丰收的喜悦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+可惜现在出了鸟估计也没几个人认得，以后可能也很难有起飞的机会了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+虽然散都快散了还说这话多少有点那啥 算了吧
+
+*****
+
+####  莫洛骑士  
+##### 1908#       发表于 2021-11-8 03:35
+
+看到文静动态下面的评论，我只能说还是他们的恋爱脑更入戏，希望大家快乐的日子还能久一点吧
+
+鸟吧一个帖子我觉得说的挺好的，文静这么被阴差阳错的拐进了千鸟真的是静栗惹的幸运，她自己说早知道要杂谈就不回来了，因为“觉得自己声音不够甜”，但她又像个直播天才，一周80h都能玩出新花样，坐着轮椅、歌从来只唱半首也能有今天的热度，如果毕业了也不转生就此别过真的是永远的遗憾了
+
+世界上只有一个文静，就像世界上只有一头山泥若，当失去了才会发现连个代餐都找不到，2021真的是不平凡的一年
+
+我现在只希望她老家那个学医内向的暖男小男友可以在这个雨天用坚实的胸膛好好安慰这个小姑娘，顺便记得敦促她不要不吃饭，趁着遛狗多陪她散散心，每天关在直播间里不玉玉也得玉玉
+<img src="https://p.sda1.dev/3/fac51028061c6abd7dfa3709fa1c25f5/IMG_CMP_135803546.jpeg" referrerpolicy="no-referrer">
+
+是时候送文静个泥潭邀请码了，把人变成巨魔，吾辈义不容辞
+
+*****
+
+####  tankai  
+##### 1909#       发表于 2021-11-8 04:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53457254&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-8 02:37</a>
+
+【我为什么不能姓艾【艾白】-哔哩哔哩】https://b23.tv/del8V5</blockquote>
+合理姓艾，利国利民。
+

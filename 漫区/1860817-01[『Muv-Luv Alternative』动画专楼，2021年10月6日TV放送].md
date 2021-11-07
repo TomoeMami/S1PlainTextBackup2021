@@ -19151,3 +19151,16 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 主角用的枪好像95</blockquote>
 是FAMAS啦
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1330#       发表于 2021-11-8 05:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53390205&amp;ptid=1860817" target="_blank">V宇宙的守夜人Z 发表于 2021-11-3 06:56</a>
+总之我只能说steam版还是保留了那张非常有名的让人PTSD 的CG</blockquote>
+只有游戏机版阉割了这个，手法是用白银武的双手挡住
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

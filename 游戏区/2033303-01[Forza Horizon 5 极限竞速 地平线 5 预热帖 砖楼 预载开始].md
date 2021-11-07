@@ -7034,3 +7034,52 @@ fe版和原厂车性能有区别吗？
 +1，基本都最后一名，刚跑了把D级虽然不是最后一名也是倒数...铺装路的赛道每次都是没悬念第一甩出第二名 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是的越野赛电脑车速快的离谱，飞得也远搞不懂，公路赛和拉力都是吊打
 
+
+
+*****
+
+####  pl0okm  
+##### 628#       发表于 2021-11-8 01:55
+
+受不了顶级ai可以先收藏个高等级调校然后用自己改的低等级进图，开始前最后的设置界面进调校按空格加载收藏，ai还是低级的不会变。比如车调成b级进图换a级配置，ai还是b级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永远喜欢刘人语  
+##### 629#       发表于 2021-11-8 03:48
+
+新手关丛林保时捷结束进动画稳定跳出，已经玩了五遍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  itsmyrailgun  
+##### 630#       发表于 2021-11-8 04:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">试了一下辅助全开
+靠，这代辅助全开太猛了，你只需要用橡皮筋绑住扳机键就能全自动驾驶严格贴走线 。。。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+*****
+
+####  天神十三煞  
+##### 631#         楼主| 发表于 2021-11-8 06:03
+
+我怀疑是端口占用
+
+比如啥橘子或旺旺的后台
+
+我把所有嫌疑的后台进程都给结束任务
+
+现在进去居然不掉线了
+
+搞完了巡回赛和游乐场，
+
+目前没有任何问题
+
+当然也有可能是服务器已经修复
+
+具体看消息通知
+
