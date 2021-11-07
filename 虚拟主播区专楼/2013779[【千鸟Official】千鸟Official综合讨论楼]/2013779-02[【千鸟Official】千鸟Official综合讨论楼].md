@@ -2098,3 +2098,26 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  haruhiismer  
+##### 1734#       发表于 2021-11-7 12:26
+
+这下管人认知痴了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 1735#       发表于 2021-11-7 12:32
+
+回了一上午了……这人是不是真的坏掉了啊……我好担心<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 1736#       发表于 2021-11-7 12:36
+
+她回我了，她心里有我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
