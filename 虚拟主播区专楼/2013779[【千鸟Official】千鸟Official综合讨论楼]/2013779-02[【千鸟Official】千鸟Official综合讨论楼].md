@@ -3490,3 +3490,14 @@ C：我就是文静
 
 文静，我的英雄<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tn_teana  
+##### 1904#       发表于 2021-11-8 01:41
+
+七天纯纯的假期，直播间封了电台都不用播了，这也是你的算计吗妖女！
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
