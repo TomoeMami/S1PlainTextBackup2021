@@ -1994,3 +1994,13 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 
 她又笑了<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">又是美好的一天
 
+
+
+*****
+
+####  rgauss  
+##### 1722#       发表于 2021-11-7 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">昨晚黑听思思的电台睡着了 
+梦见我跟思思表白了
+

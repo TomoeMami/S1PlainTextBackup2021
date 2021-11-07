@@ -1884,3 +1884,14 @@ edg都夺冠了，什么奇迹都会有的，三团互动也会来的
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 4676#       发表于 2021-11-7 08:27
+
+<blockquote>kata魂 发表于 2021-11-7 01:11
+edg都夺冠了，什么奇迹都会有的，三团互动也会来的</blockquote>
+已经有人在鲤鱼动态那刷edg牛逼了，
+
