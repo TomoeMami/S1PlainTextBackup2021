@@ -6893,3 +6893,33 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 刚主线通关，一共一百万玩家
 
+
+
+*****
+
+####  君往何处  
+##### 615#       发表于 2021-11-7 23:47
+
+ 本帖最后由 君往何处 于 2021-11-7 23:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455670&amp;ptid=2033303" target="_blank">猫溺泉君 发表于 2021-11-7 23:36</a>
+
+主要是进去之前也不告诉你要什么级别的车，自己不能准备，只能用给的f150，体验非常不好
+
+到后面已经全队 ...</blockquote>
+记得4代可以在嘉年华列表里选比赛的时候按选单键查看允许的车型的（左下角有提示），刚看了一下还是有的
+
+<img src="https://img.saraba1st.com/forum/202111/07/235318zh0cao8ohob5kv1o.jpg" referrerpolicy="no-referrer">
+
+<strong>fh5.jpg</strong> (139.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 23:53 上传
+
+*****
+
+####  lxx4869  
+##### 616#       发表于 2021-11-7 23:49
+
+fe版和原厂车性能有区别吗？
+
