@@ -3842,3 +3842,14 @@ rog官号日常放屁吧，估计实际就只有天选联动
 
 没有主楼内容好尴尬，要不要建个新楼啊
 
+
+
+*****
+
+####  两听可乐  
+##### 304#       发表于 2021-11-7 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53453657&amp;ptid=2021175" target="_blank">sanxgh571 发表于 2021-11-7 20:25</a>
+没有主楼内容好尴尬，有人想建个新楼吗，或者还是固守B综？</blockquote>
+我觉得可以，偷一下nga的主楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -6715,3 +6715,12 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 进游戏后有时候菜单强制弹出来，啥都干不了，关也关不掉，是网络连接的原因吗 ...</blockquote>
 是不是鼠标点了副屏之后没有在游戏屏幕里点回来？
 
+
+
+*****
+
+####  csolfans  
+##### 597#       发表于 2021-11-7 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">想问一下PC的痛车代码能在Xbox用吗
+
