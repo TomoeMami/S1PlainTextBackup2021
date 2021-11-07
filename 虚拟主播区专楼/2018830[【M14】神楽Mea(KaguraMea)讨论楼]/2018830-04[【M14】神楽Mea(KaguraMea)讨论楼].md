@@ -2758,3 +2758,69 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 syl  今天还是好女人之日是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这11月我要看看还能有多少好XX之日
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 4814#       发表于 2021-11-7 20:05
+
+麻麻好久不见<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4815#       发表于 2021-11-7 20:05
+
+又神作了
+
+*****
+
+####  时间在我手中  
+##### 4816#       发表于 2021-11-7 20:05
+
+ 本帖最后由 时间在我手中 于 2021-11-7 20:11 编辑 
+
+开头就说LOL这和网飞新出的动画是神作，快看.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一转吹京紫，不哭不是JP人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+来丶可爱的，粉丝的大家都是男朋友，什么N黑一白
+
+*****
+
+####  T_Hb  
+##### 4817#       发表于 2021-11-7 20:14
+
+好的开始是成功的一半，感觉稳了，说完就拉了，这也能拉
+
+*****
+
+####  时间在我手中  
+##### 4818#       发表于 2021-11-7 20:16
+
+二进宫大翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 4819#       发表于 2021-11-7 20:21
+
+翻中翻之翻了又翻
+
+*****
+
+####  T_Hb  
+##### 4820#       发表于 2021-11-7 20:22
+
+唱着唱着就失去了语言功能，这么快就进去连唱状态了吗
+
+*****
+
+####  yywzjsw  
+##### 4821#       发表于 2021-11-7 20:23
+
+今天的歌恋爱味这么浓
+
