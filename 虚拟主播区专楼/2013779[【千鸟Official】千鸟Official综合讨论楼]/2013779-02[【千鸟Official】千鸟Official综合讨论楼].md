@@ -2396,3 +2396,210 @@ V圈妖女真是名副其实，就是不知道文静有没有长着一根匹敌j
 
 永失我静
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 1769#       发表于 2021-11-7 21:10
+
+老阿姨用心邪恶，自己放假半个月让我们也进去7天不能d别的女人
+
+她心里有我
+
+*****
+
+####  伞沢直美  
+##### 1770#       发表于 2021-11-7 21:11
+
+什么入狱完形填空
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 1771#       发表于 2021-11-7 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">操，这全星星的怎么猜啊
+
+*****
+
+####  伞沢直美  
+##### 1772#       发表于 2021-11-7 21:12
+
+太对了太对了，超市我超市我
+
+*****
+
+####  IDIDIDID  
+##### 1773#       发表于 2021-11-7 21:13
+
+文静就是想骂人又不想被炎上是吧，她太懂直播了。
+
+*****
+
+####  小憨1  
+##### 1774#       发表于 2021-11-7 21:13
+
+今天是三剪一素材提供回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 1775#       发表于 2021-11-7 21:13
+
+七进七出是吧，静格瓦拉是吧
+
+*****
+
+####  T型钉宫病毒  
+##### 1776#       发表于 2021-11-7 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那“超市我”怎么说，我不敢想了
+
+*****
+
+####  维斯瓦军团  
+##### 1777#       发表于 2021-11-7 21:14
+
+小黑屋的各位过于逆天，等一波炸弹
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  IDIDIDID  
+##### 1778#       发表于 2021-11-7 21:14
+
+好开
+
+*****
+
+####  夜之中道崩殂  
+##### 1779#       发表于 2021-11-7 21:15
+
+“电视鸡不能处”也引战？电视鸡k48
+
+*****
+
+####  rgauss  
+##### 1780#       发表于 2021-11-7 21:15
+
+白白老公超市我
+
+我因为这个进去好几回了 换成发supermarket也进了
+
+*****
+
+####  伞沢直美  
+##### 1781#       发表于 2021-11-7 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她太懂直播了
+
+*****
+
+####  小憨1  
+##### 1782#       发表于 2021-11-7 21:16
+
+今天是放飞自我回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就算直播间被封7天也没事，明天就请假了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 1783#       发表于 2021-11-7 21:16
+
+这太懂直播了
+
+效果拉满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 1784#       发表于 2021-11-7 21:16
+
+笑嘻了
+
+*****
+
+####  袜子  
+##### 1785#       发表于 2021-11-7 21:18
+
+今天这节目效果好的批爆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法少女大头  
+##### 1786#       发表于 2021-11-7 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在文静直播间猜灯谜环节举报了20条弹幕，快点击加入吧
+
+*****
+
+####  伞沢直美  
+##### 1787#       发表于 2021-11-7 21:20
+
+捏麻麻的今天又要进去一批
+
+*****
+
+####  Quark  
+##### 1788#       发表于 2021-11-7 21:20
+
+等到下播前一个弹幕都没有了就神咯<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 1789#       发表于 2021-11-7 21:20
+
+你再这么玩下去直播间都要没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 1790#       发表于 2021-11-7 21:21
+
+大型钓鱼直播
+
+*****
+
+####  rgauss  
+##### 1791#       发表于 2021-11-7 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454167&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-11-7 21:19</a>
+
+我在文静直播间猜灯谜环节举报了20条弹幕，快点击加入吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">举办狗不能处
+
+*****
+
+####  T型钉宫病毒  
+##### 1792#       发表于 2021-11-7 21:21
+
+今晚把大伙都送进去以后用SC互动是吧
+
+*****
+
+####  灰色的狐狸  
+##### 1793#       发表于 2021-11-7 21:22
+
+弹幕逐渐减少<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1794#       发表于 2021-11-7 21:23
+
+直播间炸了正好放假，放假回来解封<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 1795#       发表于 2021-11-7 21:24
+
+拿捏小男生进去了开小号关注是吧，进去了只能SC说话打米是吧
+
+呵呵还是暴露了你是个√运营花式骗粉骗米
+
