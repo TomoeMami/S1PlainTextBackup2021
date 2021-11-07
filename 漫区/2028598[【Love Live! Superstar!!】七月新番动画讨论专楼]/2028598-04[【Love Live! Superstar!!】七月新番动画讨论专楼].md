@@ -2438,3 +2438,40 @@ pay终于又有合照了
 
 鲤鱼今天主持有点料啊，各种意义上
 
+
+
+*****
+
+####  cat1230  
+##### 4719#       发表于 2021-11-7 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454099&amp;ptid=2028598" target="_blank">优妮可 发表于 2021-11-7 21:13</a>
+
+鲤鱼现在b站每发一个动态，评论就得吵起来。要愈演愈烈了</blockquote>
+看到坛友的帖子就去刷了下B站动态，没看到下面吵起来啊？被刷下去了么
+
+*****
+
+####  优妮可  
+##### 4720#       发表于 2021-11-7 22:54
+
+<blockquote>cat1230 发表于 2021-11-7 22:46
+看到坛友的帖子就去刷了下B站动态，没看到下面吵起来啊？被刷下去了么</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/07/225339vz5embnzzhhmebbq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211107_225302_tv.danmaku.bili_edit_50433918678241.jpg</strong> (100.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 22:53 上传
+
+有吧，在下面
+
+*****
+
+####  Norkey1  
+##### 4721#       发表于 2021-11-7 22:57
+
+其实你鲤鱼姐能搞个像汉堡肉洗iPhone那样的也挺好的，但口水巾梗度确实不太行。之前有个太好听了吧后略的定型文不知道为啥不流行了
+
