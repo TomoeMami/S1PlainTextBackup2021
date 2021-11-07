@@ -6923,3 +6923,48 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 fe版和原厂车性能有区别吗？
 
+
+
+*****
+
+####  pl0okm  
+##### 617#       发表于 2021-11-8 00:08
+
+ 本帖最后由 pl0okm 于 2021-11-8 00:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455670&amp;ptid=2033303" target="_blank">猫溺泉君 发表于 2021-11-7 23:36</a>
+
+主要是进去之前也不告诉你要什么级别的车，自己不能准备，只能用给的f150，体验非常不好
+
+到后面已经全队 ...</blockquote>
+确实要求放的不明不白 嘉年华里按p才显示限制类型 地图里看图标才显示限制等级
+
+@lxx4869  性能没区别
+
+*****
+
+####  4ckc  
+##### 618#       发表于 2021-11-8 00:13
+
+奥迪测速那个随便搞了台RS6改到S2，结果最多能开到130+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我知道手残无药医，但还是想求问怎么过
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冀人燕南天  
+##### 619#       发表于 2021-11-8 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455584&amp;ptid=2033303" target="_blank">gzGaryC 发表于 2021-11-7 23:28</a>
+
+这作的漂移真的简单很多啊，只要有轮子还在路上就算分</blockquote>
+我也感觉到了，很多挑战好像宽松了点，离开道路也不会马上失败
+
+*****
+
+####  冀人燕南天  
+##### 620#       发表于 2021-11-8 00:15
+
+话说俱乐部有啥用啊，感觉除了名字多个前缀之外完全没有存在感
+
