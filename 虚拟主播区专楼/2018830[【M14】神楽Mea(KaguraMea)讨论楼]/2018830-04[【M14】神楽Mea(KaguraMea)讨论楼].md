@@ -2686,3 +2686,12 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 那你头像是不是该换了 该把猛犸换成别的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  makourisu-2  
+##### 4806#       发表于 2021-11-7 09:49
+
+发推了，今天有直播预定。盲猜一个晚八点歌回<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

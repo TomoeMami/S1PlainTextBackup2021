@@ -6264,3 +6264,17 @@ a级拉力最佳操控，jeep更快。
 10 Lamborghini Sesto Elemento Forza Edition
 系列最强x级
 
+
+
+*****
+
+####  天神十三煞  
+##### 560#         楼主| 发表于 2021-11-7 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447160&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-6 12:57</a>
+
+这个车记得FH4的时候用着不太顺手，所以这系列是每次新作都要改前作同车型的性能吗 ...</blockquote>
+赛道玩具还是测速玩具？
+
+这两回事
+

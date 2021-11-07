@@ -2004,3 +2004,19 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">昨晚黑听思思的电台睡着了 
 梦见我跟思思表白了
 
+
+
+*****
+
+####  小憨1  
+##### 1723#       发表于 2021-11-7 09:49
+
+回我评论了，静能量补充完毕<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 1724#       发表于 2021-11-7 09:52
+
+<img src="https://p.sda1.dev/3/0f804ba52f02aa3de44926397d5286cf/IMG_CMP_190985886.jpeg" referrerpolicy="no-referrer">
+
