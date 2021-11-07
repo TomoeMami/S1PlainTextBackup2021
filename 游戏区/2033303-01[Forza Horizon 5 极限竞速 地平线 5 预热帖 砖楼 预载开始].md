@@ -6278,3 +6278,19 @@ a级拉力最佳操控，jeep更快。
 
 这两回事
 
+
+
+*****
+
+####  马僧虔  
+##### 561#       发表于 2021-11-7 10:27
+
+不知道为啥，真的就只有越野赛莫名的难……同样的难度，其他赛事都是随意拿捏的，就越野赛死活跑不过，ai一个比一个猛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 562#       发表于 2021-11-7 10:34
+
+这个活动点数瓒多了有啥好处吗，还是领完两辆车就可以不管了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

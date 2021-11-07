@@ -9550,3 +9550,35 @@ bora的衣服不错
 
 还在可惜没多唱几首，朋友说以后机会还多的是呢，真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 8196#       发表于 2021-11-7 10:26
+
+ 本帖最后由 free 于 2021-11-7 10:30 编辑 
+
+最近研究了一下这个推特上热火朝天的VtuberFesJapan（就是原来的nico超会议）海选赛规则
+[https://vtuberfesjapan.jp/audition/](https://vtuberfesjapan.jp/audition/)
+ <blockquote>ニコニコ生放送（ライブ配信）でのギフト(※1)ポイント数に、指定ハッシュダグ(※2)付きのTwitter投稿(※3)に対する「いいね数とリツイート数」の合計値×10をボーナスポイントを後日加算し、その【合算ポイント数】の各部門ランキング上位10組が二次審査に進出します！</blockquote>
+根据竞选者在11.5-11.14期间内的nico直播礼物积分，加上带指定tag发推的点赞转发数*10，最后每个组的前10进入第二轮选拔
+
+分为粉丝数少于1万的rookie组，多于1万的challenger组，多人组合的unit组，这里看排名
+
+[https://vtuberfesjapan.jp/audition/rookie/](https://vtuberfesjapan.jp/audition/rookie/)
+
+rookie里不少熟悉的实力底边选手，漪月灵现在正好排第10位，有兴趣可以看看这里有没有你喜欢的底边去投票
+
+[https://vtuberfesjapan.jp/audition/challenger/](https://vtuberfesjapan.jp/audition/challenger/)
+
+challenger里一共就11个人，大概是非底边都看不上，划重点，我们家mimi目前排第一
+
+[https://vtuberfesjapan.jp/audition/unit/](https://vtuberfesjapan.jp/audition/unit/)
+
+unit组第一是原来entum的御来屋久远姐俩，第二居然是麟犀，你们还有兴致去超会议吗......
+
+总之支持的方法就是给带“#出ようぜVTuberFes”的推点赞转发，并且给这期间的nico直播猛刷礼物就行了，对一些小V来说能上个超会议刷刷脸还是挺好的
+
+看了这种活动规则，感觉nico到现在还没有倒闭，真是每一个日本人都有责任
+

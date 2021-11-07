@@ -2695,3 +2695,12 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 发推了，今天有直播预定。盲猜一个晚八点歌回<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 4807#       发表于 2021-11-7 10:36
+
+出门了感觉跟世界末日一样，麻麻你快回来<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
