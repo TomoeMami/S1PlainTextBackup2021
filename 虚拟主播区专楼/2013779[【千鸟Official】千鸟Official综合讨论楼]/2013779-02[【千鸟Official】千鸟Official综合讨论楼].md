@@ -2193,3 +2193,52 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 还说为了五个人的前途，让千鸟企划寄了。千鸟没了，她们还直不直播都不知道。她们是主播的时候，我是粉丝，我替她们想前途。她们不是主播，那就和我有p关系，我管她们前不前途。
 还总想让人来维阿，他们可能除了as和千鸟也就知道个维阿。
 
+
+
+*****
+
+####  faithlifer  
+##### 1745#       发表于 2021-11-7 17:47
+
+文静回我了，心里有我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 1746#       发表于 2021-11-7 17:58
+
+b综也想让她去vr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 1747#       发表于 2021-11-7 18:00
+
+b综是看乐子吧，贴吧真想干，还想替主播联系<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 1748#       发表于 2021-11-7 18:03
+
+ 本帖最后由 四叶的花 于 2021-11-7 18:05 编辑 
+
+这就有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 1749#       发表于 2021-11-7 18:03
+
+服了，贴吧帮她联系了VR，PSP和虚研社<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+终于知道啥叫皇帝不急太监急了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  伞沢直美  
+##### 1750#       发表于 2021-11-7 18:05
+
+又开始回私信了，小号也被回复了，她心里有两个我<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

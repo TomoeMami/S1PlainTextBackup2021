@@ -2014,3 +2014,19 @@ Q2是怕镜子还是怕玻璃，现在客厅瓷砖+电视+水晶吊灯定位抖�
 风扇面罩的效果具体怎么用？很凉快？</blockquote>
 通风散热，玩久了容易出汗，出汗会起雾，这个就是缓解一下
 
+
+
+*****
+
+####  dumplingpro  
+##### 128#       发表于 2021-11-7 17:58
+
+ 本帖最后由 dumplingpro 于 2021-11-7 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451803&amp;ptid=2034565" target="_blank">云映天河 发表于 2021-11-7 17:07</a>
+风扇面罩的效果具体怎么用？很凉快？</blockquote>
+vr有不少运动量大的游戏，部分游戏甚至以健身为目的能到撸铁水平，难免大量出汗，被捂着难受。风扇可以一定程度缓解。
+
+之前index第三方风扇效果很好，所以有人做了q2版，虽然没有index直通风道那么好，但也能缓解不少。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

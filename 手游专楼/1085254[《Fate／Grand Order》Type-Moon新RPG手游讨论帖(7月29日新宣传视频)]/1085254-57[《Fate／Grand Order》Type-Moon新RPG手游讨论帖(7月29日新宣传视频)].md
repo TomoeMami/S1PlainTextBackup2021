@@ -3159,3 +3159,19 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 击退战又来了，不过感觉这次大家比上次兴致还低，毕竟材料都是旧的QP也没人缺，不知道最后会不会又失败然后 ...</blockquote>
 骑柱子已经差不多没了一半血了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 84257#       发表于 2021-11-7 17:57
+
+尼禄祭妇科的时候刷满的qp都用光了，最近结晶给的多qp一下子都消失了
+
+*****
+
+####  alucardcz  
+##### 84258#       发表于 2021-11-7 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我混杂了  溜了溜了
+
