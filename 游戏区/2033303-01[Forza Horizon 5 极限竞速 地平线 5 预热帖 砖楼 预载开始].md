@@ -6742,3 +6742,13 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 神奇的是播放技术歌曲的时候如果触发了这个BUG，那么连技术歌曲的倒计时也会停止<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">变成无限双倍刷个痛
 
+
+
+*****
+
+####  LMBS  
+##### 600#       发表于 2021-11-7 22:03
+
+这苦行赛道能把玩家玩睡
+三次
+

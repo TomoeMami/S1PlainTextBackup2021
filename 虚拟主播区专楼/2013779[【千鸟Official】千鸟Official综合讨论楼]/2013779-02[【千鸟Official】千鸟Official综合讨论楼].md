@@ -2672,3 +2672,473 @@ V圈妖女真是名副其实，就是不知道文静有没有长着一根匹敌j
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马文静，你个小婊砸！
 
+
+
+*****
+
+####  rgauss  
+##### 1805#       发表于 2021-11-7 21:42
+
+好4
+
+*****
+
+####  T型钉宫病毒  
+##### 1806#       发表于 2021-11-7 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">寄
+
+*****
+
+####  灰色的狐狸  
+##### 1807#       发表于 2021-11-7 21:42
+
+哈哈哈哈哈哈哈哈哈被超管制裁了
+
+*****
+
+####  莫洛骑士  
+##### 1808#       发表于 2021-11-7 21:42
+
+拿下！
+
+*****
+
+####  伞沢直美  
+##### 1809#       发表于 2021-11-7 21:42
+
+拿下！
+
+*****
+
+####  lunaticfear  
+##### 1810#       发表于 2021-11-7 21:42
+
+拿下！
+
+*****
+
+####  狗命啊  
+##### 1811#       发表于 2021-11-7 21:43
+
+完了，被切了，善恶到头终有报了属于是
+
+*****
+
+####  维斯瓦军团  
+##### 1812#       发表于 2021-11-7 21:43
+
+寄！
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Quark  
+##### 1813#       发表于 2021-11-7 21:43
+
+“cherry”
+拿下！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 1814#       发表于 2021-11-7 21:43
+
+真拿下了
+
+*****
+
+####  IDIDIDID  
+##### 1815#       发表于 2021-11-7 21:43
+
+好4！
+
+*****
+
+####  希克苏鲁伯  
+##### 1816#       发表于 2021-11-7 21:43
+
+进去吧倒霉蛋们！
+
+*****
+
+####  小憨1  
+##### 1817#       发表于 2021-11-7 21:43
+
+Cherry直接寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 1818#       发表于 2021-11-7 21:43
+
+好似！！
+
+*****
+
+####  小憨1  
+##### 1819#       发表于 2021-11-7 21:43
+
+叔叔马眼小啊
+
+*****
+
+####  璃絵和花瑠  
+##### 1820#       发表于 2021-11-7 21:44
+
+<img src="https://img.saraba1st.com/forum/202111/07/214351bzkm3rtob6j4fh0b.png" referrerpolicy="no-referrer">
+
+<strong>MLV4K79S4QH_4TK%U$[Q3~4.png</strong> (72.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 21:43 上传
+
+寄！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1821#       发表于 2021-11-7 21:44
+
+为什么一提到cherry就寄了呢 超管老师疑似心眼小呢
+
+*****
+
+####  袜子  
+##### 1822#       发表于 2021-11-7 21:44
+
+拿下！终极节目效果！
+
+*****
+
+####  整活骑士  
+##### 1823#       发表于 2021-11-7 21:44
+
+超管怎么这么懂啊 
+
+*****
+
+####  伞沢直美  
+##### 1824#       发表于 2021-11-7 21:45
+
+等鸟批全部进去太晚，为了节目效果只有自己进去了
+
+*****
+
+####  求解过程  
+##### 1825#       发表于 2021-11-7 21:45
+
+复活了
+
+—— 來自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灰色的狐狸  
+##### 1826#       发表于 2021-11-7 21:45
+
+所以cherry是什么梗啊
+
+*****
+
+####  rgauss  
+##### 1827#       发表于 2021-11-7 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454474&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-7 21:45</a>
+
+所以cherry是什么梗啊</blockquote>
+陈睿谐音
+
+*****
+
+####  伞沢直美  
+##### 1828#       发表于 2021-11-7 21:45
+
+活咧
+
+*****
+
+####  维斯瓦军团  
+##### 1829#       发表于 2021-11-7 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454474&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-7 21:45</a>
+所以cherry是什么梗啊</blockquote>
+陈睿
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 1830#       发表于 2021-11-7 21:45
+
+难崩，太搞笑了
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 1831#       发表于 2021-11-7 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454477&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-7 21:45</a>
+
+陈睿谐音</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔马眼小啊
+
+*****
+
+####  璃絵和花瑠  
+##### 1832#       发表于 2021-11-7 21:46
+
+静不灭！静不灭！静不灭！✌️
+
+*****
+
+####  T型钉宫病毒  
+##### 1833#       发表于 2021-11-7 21:46
+
+看到b站消息提醒吓死，还以为被送进去了
+
+出来一看是别人被送进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 1834#       发表于 2021-11-7 21:46
+
+复！活！
+
+*****
+
+####  袜子  
+##### 1835#       发表于 2021-11-7 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53454489&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-7 21:46</a>
+
+看到b站消息提醒吓死，还以为被送进去了
+
+出来一看是别人被送进去了</blockquote>
+举办🐕！我杀了你！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 1836#       发表于 2021-11-7 21:49
+
+笑嘻了，城下之盟是吧
+
+*****
+
+####  夜潇箫  
+##### 1837#       发表于 2021-11-7 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心眼好小，难怪b站的活动总是扣扣搜搜的。有什么领导人就有什么企业风格
+
+*****
+
+####  rgauss  
+##### 1838#       发表于 2021-11-7 21:56
+
+确实 有些7天莫名奇妙 有些又只有一天
+
+说起来那个西班牙独轮车我一直没给举办走
+
+*****
+
+####  T型钉宫病毒  
+##### 1839#       发表于 2021-11-7 22:00
+
+“滑了”是安全词嘛，这么久没看到
+
+那我以后也放心刷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 1840#       发表于 2021-11-7 22:03
+
+文又4！
+
+*****
+
+####  T型钉宫病毒  
+##### 1841#       发表于 2021-11-7 22:03
+
+又寄！
+
+今天的kpi无了，我好爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 1842#       发表于 2021-11-7 22:03
+
+又拿下了！
+
+*****
+
+####  狗命啊  
+##### 1843#       发表于 2021-11-7 22:03
+
+二进宫了
+
+*****
+
+####  维斯瓦军团  
+##### 1844#       发表于 2021-11-7 22:03
+
+梅开二度！
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灰色的狐狸  
+##### 1845#       发表于 2021-11-7 22:03
+
+又进去了哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  维斯瓦军团  
+##### 1846#       发表于 2021-11-7 22:03
+
+梅开二度！
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 1847#       发表于 2021-11-7 22:03
+
+又4了哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  璃絵和花瑠  
+##### 1848#       发表于 2021-11-7 22:03
+
+影逝二度<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Quark  
+##### 1849#       发表于 2021-11-7 22:03
+
+这下静逝二度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 1850#       发表于 2021-11-7 22:03
+
+这下三起三落了
+
+*****
+
+####  伞沢直美  
+##### 1851#       发表于 2021-11-7 22:03
+
+超管：暗恋是吧，进去吧你
+
+*****
+
+####  小憨1  
+##### 1852#       发表于 2021-11-7 22:04
+
+这次是为啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 1853#       发表于 2021-11-7 22:04
+
+文静怎么又进去了
+
+*****
+
+####  憧憬鲨  
+##### 1854#       发表于 2021-11-7 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗恋是吧？爆炒是吧？
+
+*****
+
+####  伞沢直美  
+##### 1855#       发表于 2021-11-7 22:04
+
+只栗，静逝二度
+
+*****
+
+####  灰色的狐狸  
+##### 1856#       发表于 2021-11-7 22:04
+
+超管急了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  囧Smith  
+##### 1857#       发表于 2021-11-7 22:04
+
+超管急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1858#       发表于 2021-11-7 22:04
+
+超管铁暗恋好吧
+
+*****
+
+####  nishazhiyang  
+##### 1859#       发表于 2021-11-7 22:05
+
+又寄了
+
+*****
+
+####  夜之中道崩殂  
+##### 1860#       发表于 2021-11-7 22:05
+
+完了，一周放大假了
+
+
+
+*****
+
+####  Papercup  
+##### 1861#       发表于 2021-11-7 22:05
+
+超管铁暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1862#       发表于 2021-11-7 22:05
+
+7天，放大假了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfear  
+##### 1863#       发表于 2021-11-7 22:05
+
+草 封了7天还行
+
+*****
+
+####  莫洛骑士  
+##### 1864#       发表于 2021-11-7 22:05
+
+直播间封禁七天沃日
+
