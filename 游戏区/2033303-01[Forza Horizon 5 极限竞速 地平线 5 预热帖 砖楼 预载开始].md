@@ -6795,3 +6795,26 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  pl0okm  
+##### 606#       发表于 2021-11-7 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455296&amp;ptid=2033303" target="_blank">猫溺泉君 发表于 2021-11-7 22:55</a>
+
+这开车吃鸡哪个脑瘫想出来的，我方一水的500F150，对面都是800的车，那jb赢
+
+—— 来自 HUAWEI LIO-AN00, A ...</blockquote>
+嘉年华游乐场吧？雨林冒险送的越野车可以压到700 而且输赢都给奖励 现阶段不掉线就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bad_alloc  
+##### 607#       发表于 2021-11-7 23:12
+
+看你们都在讨论第六元素fe，我第一次超级抽奖就出了，然后被我卖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+反正也不喜欢开s2，就这样吧
+
