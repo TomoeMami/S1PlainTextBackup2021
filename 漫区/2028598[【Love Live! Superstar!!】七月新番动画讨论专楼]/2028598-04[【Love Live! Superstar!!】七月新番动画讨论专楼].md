@@ -1895,3 +1895,13 @@ edg都夺冠了，什么奇迹都会有的，三团互动也会来的
 edg都夺冠了，什么奇迹都会有的，三团互动也会来的</blockquote>
 已经有人在鲤鱼动态那刷edg牛逼了，
 
+
+
+*****
+
+####  Piano-Forest  
+##### 4677#       发表于 2021-11-7 09:23
+
+[https://m.weibo.cn/status/4700711247939303](https://m.weibo.cn/status/4700711247939303)
+<img src="https://p.sda1.dev/3/efa7ef7eacc3bfb219f1ef2e39482037/77a2d531ly1gw5y9wymu1j20wo12ctm1.jpg" referrerpolicy="no-referrer">
+
