@@ -6968,3 +6968,28 @@ fe版和原厂车性能有区别吗？
 
 话说俱乐部有啥用啊，感觉除了名字多个前缀之外完全没有存在感
 
+
+
+*****
+
+####  虚无连斩  
+##### 621#       发表于 2021-11-8 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53456036&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-8 00:13</a>
+奥迪测速那个随便搞了台RS6改到S2，结果最多能开到130+
+
+我知道手残无药医，但还是想求问怎么过</blockquote>
+我用奥迪s1，换引擎，数据拉满，轮胎和悬挂都是拉力...感觉跑起来挺简单的。主要是车轴距短，好控制。
+
+*****
+
+####  bad_alloc  
+##### 622#       发表于 2021-11-8 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53456036&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-8 00:13</a>
+奥迪测速那个随便搞了台RS6改到S2，结果最多能开到130+
+
+我知道手残无药医，但还是想求问怎么过</blockquote>
+我没看到那段路是土路，买了辆r8去跑，到了地方人麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过后面抄了个调校用r8也跑过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
