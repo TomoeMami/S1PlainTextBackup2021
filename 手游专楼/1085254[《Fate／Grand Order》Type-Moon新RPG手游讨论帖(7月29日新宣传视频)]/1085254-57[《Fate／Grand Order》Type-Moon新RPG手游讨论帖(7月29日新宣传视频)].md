@@ -3175,3 +3175,35 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我混杂了  溜了溜了
 
+
+
+*****
+
+####  khxooo  
+##### 84259#       发表于 2021-11-7 18:11
+
+骑柱子差不多没了草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 84260#       发表于 2021-11-7 18:14
+
+服务器卡得要死不说，你开头点快了还容易出现画面卡死的bug只能重开，一如既往的技术力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84261#       发表于 2021-11-7 18:18
+
+岚nobu亡了
+
+*****
+
+####  不垃圾屌丝  
+##### 84262#       发表于 2021-11-7 18:19
+
+居然混杂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

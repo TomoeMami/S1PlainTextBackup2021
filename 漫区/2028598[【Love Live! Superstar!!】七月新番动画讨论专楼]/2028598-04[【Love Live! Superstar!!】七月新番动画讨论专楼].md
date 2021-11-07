@@ -2141,3 +2141,21 @@ QQ图片20211107135100.jpg
 
 线上看多可能会腻吧，要是歌单流程不改的话
 
+
+
+*****
+
+####  lj205  
+##### 4698#       发表于 2021-11-7 18:17
+
+已经看到有人写鲤P文了，不知道某自搜狂魔看到会什么表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 4699#       发表于 2021-11-7 18:23
+
+<img src="https://p.sda1.dev/3/23eaea2a058fed0588d85809063bbc54/IMG_CMP_151390735.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

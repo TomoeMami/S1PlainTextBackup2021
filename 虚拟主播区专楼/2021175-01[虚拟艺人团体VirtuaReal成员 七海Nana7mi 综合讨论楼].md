@@ -3768,3 +3768,18 @@ tsir, this wa
 
 好大<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  两听可乐  
+##### 298#       发表于 2021-11-7 18:17
+
+ 本帖最后由 两听可乐 于 2021-11-7 18:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451366&amp;ptid=2021175" target="_blank">sanxgh571 发表于 2021-11-7 16:14</a>
+
+之前海子姐是不是说过如果新皮不再需要返工的话，会在11月28号开新衣回？</blockquote>
+应该是，没别的问题话就是11月28
+
+直播员这个电脑是怎么搞得，是别人借给她的来着？华硕当时给她配的是台式机么
+
