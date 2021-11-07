@@ -6325,3 +6325,27 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 啊，这supra点了抽奖移除还会返还点数的？那不是永动了？
 
+
+
+*****
+
+####  hallowilliam  
+##### 566#       发表于 2021-11-7 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447115&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 04:10</a>
+
+你XSX不是国区吧
+
+PC上买就可以了，通用的</blockquote>
+xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买没问题的吗
+
+*****
+
+####  nemunoki  
+##### 567#       发表于 2021-11-7 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448113&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-7 10:34</a>
+
+这个活动点数瓒多了有啥好处吗，还是领完两辆车就可以不管了</blockquote>
+FH点数等商店开了要大量消费 所以简单的日常还是要顺手清掉
+

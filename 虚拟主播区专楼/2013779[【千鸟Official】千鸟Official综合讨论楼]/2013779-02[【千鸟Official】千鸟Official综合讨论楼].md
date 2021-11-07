@@ -2078,3 +2078,12 @@ zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" ref
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">一大早就见到人之初的丑态，文静为什么不回我，梁木了😭
 
+
+
+*****
+
+####  小憨1  
+##### 1732#       发表于 2021-11-7 11:49
+
+最近文静都是早起发动态，为了能届到静静，我也要早起<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -1914,3 +1914,15 @@ edg都夺冠了，什么奇迹都会有的，三团互动也会来的</blockquot
 
 可堇好耶，这两套衣服真的很配（同样都是格子？）<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4679#       发表于 2021-11-7 11:58
+
+【【岬合鲤】裂啦live小剧场）鲤鱼：sayu你这个花心的女人!（）-哔哩哔哩】https://b23.tv/myqxep
+之前的合鲤抱导播没拍进去。
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
