@@ -1905,3 +1905,12 @@ edg都夺冠了，什么奇迹都会有的，三团互动也会来的</blockquot
 [https://m.weibo.cn/status/4700711247939303](https://m.weibo.cn/status/4700711247939303)
 <img src="https://p.sda1.dev/3/efa7ef7eacc3bfb219f1ef2e39482037/77a2d531ly1gw5y9wymu1j20wo12ctm1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  darkendless  
+##### 4678#       发表于 2021-11-7 09:36
+
+可堇好耶，这两套衣服真的很配（同样都是格子？）<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
