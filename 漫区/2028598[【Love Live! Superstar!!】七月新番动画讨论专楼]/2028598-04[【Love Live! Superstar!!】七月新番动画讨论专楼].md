@@ -2159,3 +2159,96 @@ QQ图片20211107135100.jpg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  saya1892  
+##### 4700#       发表于 2021-11-7 18:33
+
+0238 名無しで叶える物語(茸) 2021/11/07 16:26:49
+クゥクゥ推しさぁ・・
+0242 名無しで叶える物語(もんじゃ) 2021/11/07 16:26:53
+群馬の時の方が揃ってたな
+0243 名無しで叶える物語(しまむら) 2021/11/07 16:26:55
+真ん中の列でお構いなしで水色振ってるやつ多くて草
+
+唱Starlight Prologue的时候正中的观众好像乱挥水色棒子，总之就是不够群马整齐
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iuhehc  
+##### 4701#       发表于 2021-11-7 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451551&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-7 16:38</a>
+
+哪有本子呀？
+
+给我看看</blockquote>
+就贴吧那个啊 还加精了
+
+*****
+
+####  优妮可  
+##### 4702#       发表于 2021-11-7 18:38
+
+<img src="https://img.saraba1st.com/forum/202111/07/183814f0k9igvtf4udywvy.jpg" referrerpolicy="no-referrer">
+
+<strong>20211107_182606.jpg</strong> (765 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202111/07/183814j0uz44s3lp95lvlm.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1636280850467.jpg</strong> (271.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202111/07/183815tizj764k1c400zjv.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1636280851904.jpg</strong> (272.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202111/07/183815t1zmffa62bazb1zb.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1636280854363.jpg</strong> (270.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-7 18:38 上传
+
+*****
+
+####  中野四葉  
+##### 4703#       发表于 2021-11-7 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452515&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-7 18:17</a>
+
+已经看到有人写鲤P文了，不知道某自搜狂魔看到会什么表情</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没超话没有liyuu关键词怎么可能搜的到，不过这文里为啥要写在埼玉？pay是埼玉人？
+
+*****
+
+####  lj205  
+##### 4704#       发表于 2021-11-7 18:41
+
+打铁啊打铁……
+
+*****
+
+####  lj205  
+##### 4705#       发表于 2021-11-7 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452755&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-11-7 18:41</a>
+没超话没有liyuu关键词怎么可能搜的到，不过这文里为啥要写在埼玉？pay是埼玉人？ ...</blockquote>
+我也搞不懂，我记得她两住的方向是往横滨那边啊。
+

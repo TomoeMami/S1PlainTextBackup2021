@@ -2265,3 +2265,45 @@ b综是看乐子吧，贴吧真想干，还想替主播联系<img src="https://s
 
 要不来A-SOUL当守夜嗨奴吧 我看挺合适的
 
+
+
+*****
+
+####  四叶的花  
+##### 1754#       发表于 2021-11-7 18:29
+
+怎么跑别人专楼恶心人来了，收收味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 1755#       发表于 2021-11-7 18:38
+
+又不是臭底边，粉丝老惦记着转生你那b维阿干啥
+
+文静直播喊话nt运营这么多次，看得出她是真不想走，是想整个企划变好的
+
+cj昨天也明确了不放人，真被竞业卡脖子换个分区真的一定会比现在好吗
+
+做决定是她，不管怎么选我都支持就是了
+
+*****
+
+####  tankai  
+##### 1756#       发表于 2021-11-7 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452415&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-7 18:05</a>
+
+又开始回私信了，小号也被回复了，她心里有两个我</blockquote>
+过分了，还刷两遍。
+
+*****
+
+####  rgauss  
+##### 1757#       发表于 2021-11-7 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452415&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-7 18:05</a>
+
+又开始回私信了，小号也被回复了，她心里有两个我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">过分了
+

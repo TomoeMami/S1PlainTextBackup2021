@@ -3783,3 +3783,17 @@ tsir, this wa
 
 直播员这个电脑是怎么搞得，是别人借给她的来着？华硕当时给她配的是台式机么
 
+
+
+*****
+
+####  sanxgh571  
+##### 299#       发表于 2021-11-7 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452516&amp;ptid=2021175" target="_blank">两听可乐 发表于 2021-11-7 18:17</a>
+
+应该是，没别的问题话就是11月28
+
+直播员这个电脑是怎么搞得，是别人借给她的来着？华硕当时给她配的是台 ...</blockquote>
+不知是谁借她了一个联想R9000x的工程机
+

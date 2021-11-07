@@ -2745,3 +2745,16 @@ ktv的话筒还是有点重量的其实，对于不常锻炼的人来说突然�
 
 哦，看错了，前面那句话真的很像台词
 
+
+
+*****
+
+####  时间在我手中  
+##### 4813#       发表于 2021-11-7 18:28
+
+ 本帖最后由 时间在我手中 于 2021-11-7 18:29 编辑 
+
+哦，你说推特啊，看到复仇自然就能想到这个了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然干嘛叫东京复仇者
+
+syl  今天还是好女人之日是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这11月我要看看还能有多少好XX之日
+
