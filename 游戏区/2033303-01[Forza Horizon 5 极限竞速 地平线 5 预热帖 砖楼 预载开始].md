@@ -7196,3 +7196,19 @@ fe版和原厂车性能有区别吗？
 有人用1070玩的吗？1080p下各个级别的画质大概能跑多少帧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也是1070 超高59帧左右
 
+
+
+*****
+
+####  wzy200912345  
+##### 642#       发表于 2021-11-8 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ricarto  
+##### 643#       发表于 2021-11-8 13:26
+
+这游戏现在已经全自动化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

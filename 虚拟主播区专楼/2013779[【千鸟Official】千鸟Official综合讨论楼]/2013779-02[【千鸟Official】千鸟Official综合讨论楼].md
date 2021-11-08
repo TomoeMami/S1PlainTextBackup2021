@@ -3866,3 +3866,14 @@ BV1y44y1e7My
 
 沃日，这怎么都安排上自动回复了啊，人之初麻了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 1941#       发表于 2021-11-8 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53461840&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-8 13:03</a>
+沃日，这怎么都安排上自动回复了啊，人之初麻了啊</blockquote>
+一直有特定关键词自动回复
+
