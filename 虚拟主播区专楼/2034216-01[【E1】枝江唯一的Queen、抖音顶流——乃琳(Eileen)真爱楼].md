@@ -2117,3 +2117,16 @@ abcde的顺序吧
 —— 来自 S1Fun</blockquote>
 咋了？
 
+
+
+*****
+
+####  フミさん  
+##### 155#       发表于 2021-11-8 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53467249&amp;ptid=2034216" target="_blank">sanlow666 发表于 2021-11-8 19:15</a>
+咋了？</blockquote>
+144楼<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">“你们为什么突然之间开我…开始夸我啊”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

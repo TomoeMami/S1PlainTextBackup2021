@@ -7817,3 +7817,19 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 车房宝库送
 
+
+
+*****
+
+####  虚无连斩  
+##### 702#       发表于 2021-11-8 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">橡皮筋绑住手柄，跑大概4圈左右就断开连接……
+
+*****
+
+####  马僧虔  
+##### 703#       发表于 2021-11-8 22:23
+
+悲剧了，手一滑用白嫖券买了辆supra<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

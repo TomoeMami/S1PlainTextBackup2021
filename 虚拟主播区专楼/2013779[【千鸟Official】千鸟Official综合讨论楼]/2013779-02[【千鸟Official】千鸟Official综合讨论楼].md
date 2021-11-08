@@ -4655,3 +4655,34 @@ WOC,原~!这不给她引波大的.........炸弹.<img src="https://static.saraba
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我才发现我的弹幕发不出去了，也没收到封禁通知，这是从啥时候开始的啊，我是不是当了好久的🤡了
 
+
+
+*****
+
+####  rgauss  
+##### 2016#       发表于 2021-11-8 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469210&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-8 22:02</a>
+
+我才发现我的弹幕发不出去了，也没收到封禁通知，这是从啥时候开始的啊，我是不是当 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你境外ip?
+
+*****
+
+####  夜潇箫  
+##### 2017#       发表于 2021-11-8 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469210&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-8 22:02</a>
+我才发现我的弹幕发不出去了，也没收到封禁通知，这是从啥时候开始的啊，我是不是当 ...</blockquote>
+在开大会，境外不能播也发不了弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 2018#       发表于 2021-11-8 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469210&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-8 22:02</a>
+
+我才发现我的弹幕发不出去了，也没收到封禁通知，这是从啥时候开始的啊，我是不是当 ...</blockquote>
+昨天没test嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
