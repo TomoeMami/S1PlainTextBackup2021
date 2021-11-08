@@ -2755,3 +2755,88 @@ iphone shower萌p自己上节目提出来这种还好，汉堡肉这个真的烂
 本人能看到的平 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老哥你还被微博挂了
 
+
+
+*****
+
+####  player3960  
+##### 4747#       发表于 2021-11-8 10:29
+
+观点不同直接楼里对线嘛，挂微博算个啥事，泥潭这楼本来还算和谐，别搞得风评被害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 4748#       发表于 2021-11-8 10:30
+
+好好讨论，有啥楼里说就是
+
+*****
+
+####  zylwz  
+##### 4749#       发表于 2021-11-8 10:37
+
+怎么还有看这楼还去挂微博的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+味也太重了
+
+*****
+
+####  chenflyyy  
+##### 4750#       发表于 2021-11-8 10:37
+
+最近刷口水巾的已经少好多了吧，大概是玩腻了
+
+*****
+
+####  zylwz  
+##### 4751#       发表于 2021-11-8 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459534&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-8 10:37</a>
+
+最近刷口水巾的已经少好多了吧，大概是玩腻了</blockquote>
+一点没少
+
+基本都是被踩下去和出警删除的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 4752#       发表于 2021-11-8 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459524&amp;ptid=2028598" target="_blank">zylwz 发表于 2021-11-8 10:37</a>
+怎么还有看这楼还去挂微博的
+
+味也太重了</blockquote>
+老哥怎么发现的呀？图看看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说我还以为s1老哥不逛微博呢
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  中野四葉  
+##### 4753#       发表于 2021-11-8 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459586&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-8 10:40</a>
+
+老哥怎么发现的呀？图看看话说我还以为s1老哥不逛微博呢
+
+—— 来自 OPPO PDKM00, Android ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你直接搜对线的那位的昵称，微博大概能直接搜到吧，不过我是关注了其他人看到转发里熟悉的s1背景，点开一看喷了怎么是刚刚对线的内容，再一看id才发现
+
+*****
+
+####  zylwz  
+##### 4754#       发表于 2021-11-8 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459586&amp;ptid=2028598" target="_blank">普之舜舜 发表于 2021-11-8 10:40</a>
+
+老哥怎么发现的呀？图看看话说我还以为s1老哥不逛微博呢
+
+—— 来自 OPPO PDKM00, Android ...</blockquote>
+楼上不是有个老哥说了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我微博首页倒是还没刷到<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

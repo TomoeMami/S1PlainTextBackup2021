@@ -13638,3 +13638,21 @@ crew和阿夸迟早要疯一个<img src="https://static.saraba1st.com/image/smil
 
 生日3dlive+原创曲应该没跑，就算不是原创曲那应该也有翻唱，感觉可以奶一口原创专<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Scardy  
+##### 7092#       发表于 2021-11-8 10:39
+
+真是3DLIVE<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星の守  
+##### 7093#       发表于 2021-11-8 10:39
+
+结果是live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
