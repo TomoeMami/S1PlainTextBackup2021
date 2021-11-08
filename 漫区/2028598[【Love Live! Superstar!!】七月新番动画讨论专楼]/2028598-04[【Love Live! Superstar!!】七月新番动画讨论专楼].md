@@ -3035,3 +3035,25 @@ mzs老师的可堇本已经有人翻译了，堇表现得像个撩完就跑的�
 https://share.api.weibo.cn/shar ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被拿捏的毫无还手之力
 
+
+
+*****
+
+####  JustW  
+##### 4775#       发表于 2021-11-8 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460280&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-8 11:16</a>
+
+mzs老师的可堇本已经有人翻译了，堇表现得像个撩完就跑的中国直女
+
+https://share.api.weibo.cn/shar ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然甜，但作者是不是对中国人有什么误解
+
+*****
+
+####  chenflyyy  
+##### 4776#       发表于 2021-11-8 11:52
+
+才发现鲤鱼1月9号在宫城结束1st的最后一场隔天还要赶回东京开台历的发售纪念会，也太忙了吧，9号还是人家生日<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/633a3d038183f93bc19f4123926d36d5/IMG_CMP_242752051.jpeg" referrerpolicy="no-referrer">
+
