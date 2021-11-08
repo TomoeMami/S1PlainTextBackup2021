@@ -9702,3 +9702,13 @@ syl
 
 所以他到底为什么这么忙，又没有live又没有大会也没有组合……不会真的是兼职运营stf去了吧(错乱)
 
+
+
+*****
+
+####  ヒトニナル  
+##### 8207#       发表于 2021-11-8 20:47
+
+Q 黛灰在干什么？
+A 黛灰在跑团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7744,3 +7744,46 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 695#       发表于 2021-11-8 20:43
+
+ 本帖最后由 爱护动物抓根宝 于 2021-11-8 20:45 编辑 
+
+草，刚遇到个傻卵老外就因为我跳台多了60米追着我要录像，我问他我前面还有30多人呢你怎么不去问他们，他说前边的都是作弊不算的，我就说你就当我也是作弊把我划掉吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 696#         楼主| 发表于 2021-11-8 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53468341&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-8 04:43</a>
+
+草，刚遇到个傻卵老外就因为我跳台多了60米追着我要录像，我问他我前面还有30多人呢你怎么不去问他们，他说 ...</blockquote>
+啥跳台
+
+山上往城里你跳980那个？
+
+*****
+
+####  redsibyl  
+##### 697#       发表于 2021-11-8 20:49
+
+说起来，上代出的时候不是刚好联动了007，这代不刚好也档期碰一起咋就不联动，上代那车挺帅的
+
+*****
+
+####  爱护动物抓根宝  
+##### 698#       发表于 2021-11-8 20:49
+
+ 本帖最后由 爱护动物抓根宝 于 2021-11-8 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53468406&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 20:47</a>
+
+啥跳台
+
+山上往城里你跳980那个？</blockquote>
+就那个，傻逼玩意老叫我再录一个不然就怀疑我是作弊，我跟他说你几把谁啊让我自证，不应该你来证明我作弊吗
+
