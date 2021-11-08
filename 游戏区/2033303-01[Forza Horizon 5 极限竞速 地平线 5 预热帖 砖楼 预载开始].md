@@ -7184,3 +7184,15 @@ fe版和原厂车性能有区别吗？
 
 不知道显存是具体栽在哪项上
 
+
+
+*****
+
+####  没钱买手办  
+##### 641#       发表于 2021-11-8 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460059&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-8 11:06</a>
+
+有人用1070玩的吗？1080p下各个级别的画质大概能跑多少帧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也是1070 超高59帧左右
+

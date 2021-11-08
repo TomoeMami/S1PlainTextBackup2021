@@ -3834,3 +3834,35 @@ BV1y44y1e7My
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  莫洛骑士  
+##### 1938#       发表于 2021-11-8 12:53
+
+ 本帖最后由 莫洛骑士 于 2021-11-8 00:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460735&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-7 23:47</a>
+BV1y44y1e7My
+1：59：30开始，静的告别</blockquote>
+这么听文静是真的好成熟<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静文静
+
+*****
+
+####  rgauss  
+##### 1939#       发表于 2021-11-8 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53461519&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-8 12:34</a>
+？不是？为什么没人看思思？就因为思思不够抽象嘛？
+
+—— 来自 S1Fun</blockquote>
+思思直播效果不行 
+尽管近几期电台我都听了 还挺喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 1940#       发表于 2021-11-8 13:03
+
+沃日，这怎么都安排上自动回复了啊，人之初麻了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
