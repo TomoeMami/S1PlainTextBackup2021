@@ -3483,3 +3483,27 @@ https://share.api.weibo.cn/shar ...</blockquote>
 有梗才能火的久，吸引路人啊，你猜猜为什么萌p要反复强调iphone。梗度不行=你鲤鱼姐接不下来达不到节目效 ...</blockquote>
 今天看下来就你在破大防，真是笑死我，另一位立场也是不刷任何梗，只是表达有问题，你呢，越回越魔怔，还自我感觉良好<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，不要把人家拉出来，你还没资格和他比呢
 
+
+
+*****
+
+####  Norkey1  
+##### 4810#       发表于 2021-11-8 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464923&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 16:42</a>
+笑死，那你不如去告我一下咯，挂我一下也成，我怕你吗？
+
+当然，你这种话说的越多越体现出傻逼本质的人倒 ...</blockquote>
+还有一件事，即便你一直在骂我扣我帽子，我也在和你讲道理。我上面给你提的问题你始终没有回复，一直在转移话题，如果给人扣帽子就能让你觉得赢了，那你确实赢了。
+我不玩微博那一套，太下作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 4811#       发表于 2021-11-8 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465206&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 16:59</a>
+今天看下来就你在破大防，真是笑死我，另一位立场也是不刷任何梗，只是表达有问题，你呢，越回越魔怔，还 ...</blockquote>
+不，反而我觉得你的语言越来越激进了。我原话的意思我已经解释过了，我就不说了。
+顺带一提，我对梗的观点就是不刷任何梗在现在的环境下可以做到吗？如果可以，那我的立场也是不刷任何梗。那如果不行那当然是让现在的变得好点啊
+

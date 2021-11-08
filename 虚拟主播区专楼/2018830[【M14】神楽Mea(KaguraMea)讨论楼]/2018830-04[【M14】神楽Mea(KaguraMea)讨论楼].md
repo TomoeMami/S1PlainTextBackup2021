@@ -3060,3 +3060,26 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 今天怎么推特KPI都不做
 
+
+
+*****
+
+####  Klience  
+##### 4852#       发表于 2021-11-8 17:12
+
+现在才看到 咩号下午偷偷打了三把排位 又不开播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4853#       发表于 2021-11-8 17:14
+
+啊？庄司号上了可还行，不会要来批限打撸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4854#       发表于 2021-11-8 17:19
+
+打撸也是在深夜图奇打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
