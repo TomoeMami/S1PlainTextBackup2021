@@ -731,3 +731,16 @@ CD和黑胶半斤八两，取向不同。但是，DSD的确细节秒一切，就
 我自己听起来，算是全面黑胶包圆cd了。dsd就不谈了，sony精选的dsd256 维尔瓦第四季，听起来还不如sony自 ...</blockquote>
 那就是你设备有问题
 
+
+
+*****
+
+####  zris  
+##### 68#         楼主| 发表于 2021-11-8 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53467037&amp;ptid=2036345" target="_blank">费老师 发表于 2021-11-8 18:58</a>
+那就是你设备有问题</blockquote>
+个人听感而已，反正论坛各抒己见，你说服不了我，我也说服不了你，就这样吧。至于设备方面，我还是玩了不少，我还是信自己的听音取向。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

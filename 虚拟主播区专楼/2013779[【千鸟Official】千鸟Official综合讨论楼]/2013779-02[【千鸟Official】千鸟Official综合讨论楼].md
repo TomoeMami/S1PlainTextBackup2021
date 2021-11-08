@@ -4569,3 +4569,35 @@ WOC,原~!这不给她引波大的.........炸弹.<img src="https://static.saraba
 
 草 这雷切企划什么鬼 我头要笑掉了
 
+
+
+*****
+
+####  IDIDIDID  
+##### 2007#       发表于 2021-11-8 19:08
+
+<blockquote>我还跟文静承诺了，我明年会给她配一个策划包括其他团员我也会配。</blockquote>八块腹肌八头身白天温柔晚上勇猛是吧，至于策划能力什么的不需要的文静自己有。
+
+*****
+
+####  tn_teana  
+##### 2008#       发表于 2021-11-8 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53466254&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-8 18:03</a>
+草 这雷切企划什么鬼 我头要笑掉了</blockquote>
+几个粉丝（做切片的为主）注册了一堆小号带的节奏
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 2009#       发表于 2021-11-8 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53467200&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-8 19:11</a>
+
+几个粉丝（做切片的为主）注册了一堆小号带的节奏
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅 ...</blockquote>
+我知道啊 这也太搞了 头要笑掉了
+

@@ -7679,3 +7679,30 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 问一下我分辨率只是1080p，为什么显存占用那么高啊，不过特效是全部调满，显卡是3070。
 
+
+
+*****
+
+####  HJJSM  
+##### 689#       发表于 2021-11-8 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 我也是显存不足，这是逼着我换显卡啊。这玩意现在降价了没
+
+*****
+
+####  redsibyl  
+##### 690#       发表于 2021-11-8 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464862&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 16:37</a>
+用键鼠 宏</blockquote>
+懂了插着线就行了
+
+
+
+*****
+
+####  920619lqy  
+##### 691#       发表于 2021-11-8 19:22
+
+周末把地图全走了一遍，这次没有前作那种小角落里差一点点亮的土路了（玩家移动时开图范围很大，地图也画得比较简略，很多土路干脆不画地图了），传送牌子也清了，经验牌子差8个5000的，全都要飞车，过几天慢慢想。
+
