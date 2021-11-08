@@ -7409,3 +7409,57 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 我早上已经跑过一次50圈了，就用的雪弗兰7倍车，跑到40圈左右经常出现串流带宽不足<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 然后结算大概是升了60多级，点数是780点左右
 
+
+
+*****
+
+####  普通的石头门厨  
+##### 664#       发表于 2021-11-8 15:53
+
+新人问下通行证是啥。。顶级版应该自带通行证吧？点进去也没看到有任务之类的东西呀（我理解通行证是那种每周做任务解锁车辆的？）
+
+*****
+
+####  monono  
+##### 665#       发表于 2021-11-8 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">准备搞一个50圈纯享版挂机
+
+*****
+
+####  -SLSL-  
+##### 666#       发表于 2021-11-8 16:02
+
+刚好抽到辆1953，这就拿去开挂机<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haru橙子  
+##### 667#       发表于 2021-11-8 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464152&amp;ptid=2033303" target="_blank">普通的石头门厨 发表于 2021-11-8 15:53</a>
+
+新人问下通行证是啥。。顶级版应该自带通行证吧？点进去也没看到有任务之类的东西呀（我理解通行证是那种每 ...</blockquote>
+游戏里叫嘉年华播放列表，全版本都带的
+
+*****
+
+####  -SLSL-  
+##### 668#       发表于 2021-11-8 16:05
+
+艹，点进去蓝图一看今日热门清一色的挂机图
+
+*****
+
+####  天神十三煞  
+##### 669#         楼主| 发表于 2021-11-8 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463392&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-7 23:04</a>
+
+裸连线上直接匹配不到，又不太想搞加速器
+
+看来这周就只能赚一辆车了</blockquote>
+你看下我前面几十楼某层回复，
+
+把那些疑似会进行网络通信或占用端口的非系统后台进程都给停了再试试
+

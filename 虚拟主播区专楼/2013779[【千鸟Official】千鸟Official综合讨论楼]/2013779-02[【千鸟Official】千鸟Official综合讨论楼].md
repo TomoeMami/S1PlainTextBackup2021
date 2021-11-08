@@ -4235,3 +4235,73 @@ SYL
 
 果然，贴吧真做不了粉丝论坛的中心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，最后都会变成**。支持鸟批全部买票来s1接受洗礼。
 
+
+
+*****
+
+####  rgauss  
+##### 1974#       发表于 2021-11-8 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我觉得大家都该来看思思今天这场直播。
+
+*****
+
+####  GAKOTO  
+##### 1975#         楼主| 发表于 2021-11-8 15:49
+
+普通入脑人罢了<img src="https://p.sda1.dev/3/732bb575878dde2ff660b887161dffe1/IMG_20211108_154759.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 1976#       发表于 2021-11-8 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464095&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-8 15:49</a>
+普通入脑人罢了</blockquote>
+他还能说出这话<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">很难不是被盗号了
+
+*****
+
+####  灰色的狐狸  
+##### 1977#       发表于 2021-11-8 15:51
+
+队长觉悟还是高啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 1978#       发表于 2021-11-8 15:54
+
+ 本帖最后由 袜子 于 2021-11-8 15:59 编辑 
+
+又开始养噶吃了呵呵我不信嘿嘿嘿思思我爱你<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+cj发言完毕肯定是需要中之人拆台啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 1979#       发表于 2021-11-8 15:57
+
+这三个看家的怎么一口气全上了
+
+凑热闹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1980#       发表于 2021-11-8 15:58
+
+要集体开播了，今天就是反攻之日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 1981#       发表于 2021-11-8 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">思思可爱思思可爱
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
