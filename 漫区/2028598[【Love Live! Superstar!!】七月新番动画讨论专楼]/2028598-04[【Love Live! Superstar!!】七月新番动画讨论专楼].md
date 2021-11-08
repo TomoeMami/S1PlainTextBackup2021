@@ -3293,3 +3293,49 @@ https://share.api.weibo.cn/shar ...</blockquote>
 直接上来扣帽子拒绝沟通跨平台挂人，再搞的一副“我为了圈子好”的架子，这才是典中典啊
 我也只能笑笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 4796#       发表于 2021-11-8 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462856&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 14:25</a>
+我上午正好没空看，先帮你删了。
+
+不管你是不是无心提的，但你所谓“节目效果”以及“有梗才能火”的思维 ...</blockquote>
+我说了啊 节目效果是指的很久以前 这个梗诞生最早期的时候曾经的一些好活 二创之类的 不是现在这种毫无创造力 不分场合的乱刷
+我提这个单纯就是接一下上面的人的话茬
+至于有梗才能火我可半个字都没提过 你去和说这话的人说去
+我觉得你完全把我的话理解成了完全相反的意思
+说得好像我不反对梗小鬼一样
+
+*****
+
+####  Norkey1  
+##### 4797#       发表于 2021-11-8 14:56
+
+顺便一提，我也没说过有梗 才能 火哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 4798#       发表于 2021-11-8 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462942&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-8 14:32</a>
+
+你觉得不需要中国市场不想在中国火，为什么还要特地搞一个中国人上来，你就替企划“不需要”了是吧。
+
+真 ...</blockquote>
+笑了，还在那拒绝沟通呢？就那位的发言，代表相当一部分人的想法，当个典型罢了。
+
+删了是当事人觉得自己被挂了丢人，给他个面子。
+
+企划希望有中国市场，那很正常，你偏要觉得因此要走一条中国特色傻逼厨力路线是你的事，我还真没见过哪个傻逼梗小鬼成长了。另外，逢田可从来没说过工作OK。
+
+为了圈子好是真的，但请你不要误会在摆架子，我可没有想靠挂你们傻逼出名。
+
+再说一遍，我贴出去是因为觉得你们典中典的发言真的够傻逼，对事不对人。
+
+不反思一下自己发言有多傻逼先怨被挂，这就是S1吗?
+

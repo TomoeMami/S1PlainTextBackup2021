@@ -4004,3 +4004,100 @@ cj又在播？进去听了一耳朵……文静！你把炸弹人变成mmr！罪
 聊啥都不聊竞业合同，就知道太极，真没意思……
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 1955#       发表于 2021-11-8 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462953&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-8 14:33</a>
+这个确实，贴吧整体的氛围已经有点癫狂了</blockquote>
+贴吧里那个ozless最nt，我很怀疑他屁股有问题，就没人扒他。
+
+*****
+
+####  rgauss  
+##### 1956#       发表于 2021-11-8 14:45
+
+她们要留我也支持啊 但cj太烂了啊
+
+画饼画饼除了画饼还是画饼。我只看得到落到实处的东西，未来的东西虚无缥缈。
+
+而且上来就和塞纳河比，随便请假怎么可能，一个月80个小时，不够的你来补吧，团号一个月也有80h.
+
+*****
+
+####  四叶的花  
+##### 1957#       发表于 2021-11-8 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">千鸟有cj这个b在我就不想打钱
+
+*****
+
+####  tankai  
+##### 1958#       发表于 2021-11-8 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53461519&amp;ptid=2013779" target="_blank">袜子 发表于 2021-11-8 12:34</a>
+
+？不是？为什么没人看思思？就因为思思不够抽象嘛？
+
+—— 来自 S1Fun</blockquote>
+氛围太萌萌人了,尬的我都不好意思臊皮 ,现在顶流多少沾点接地气(市俗),
+
+*****
+
+####  tn_teana  
+##### 1959#       发表于 2021-11-8 14:59
+
+艾瑞思最近也开始抽象了，是好事
+但是都是她自己主动抽象，这次是观众放不开了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  tankai  
+##### 1960#       发表于 2021-11-8 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463089&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-8 14:45</a>
+
+贴吧里那个ozless最nt，我很怀疑他屁股有问题，就没人扒他。</blockquote>
+哪个?这只?
+
+阿里旺旺图片20211108150053.jpg
+(104.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 15:01 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/150141lmtxajbwrapddwzw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  有效击穿  
+##### 1961#       发表于 2021-11-8 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462130&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-8 13:27</a>
+原来是因为这个，虽然我说的是我吃</blockquote>
+小作文发出来啊，秋梨膏
+
+*****
+
+####  袜子  
+##### 1962#       发表于 2021-11-8 15:07
+
+太逆天了……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夜之中道崩殂  
+##### 1963#       发表于 2021-11-8 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463353&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-8 15:02</a>
+哪个?这只?</blockquote>
+就他，天天有点事就出来催千鸟散
+
