@@ -2649,3 +2649,43 @@ ll弹幕五学家也太多了，二创视频也是和五共联动的也不少
 
 <img src="https://img.saraba1st.com/forum/202111/08/092429voigxvgnz9ugrx4u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 4738#       发表于 2021-11-8 09:32
+
+ 本帖最后由 星降る森 于 2021-11-8 09:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455462&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-7 23:15</a>
+
+主要是这帮人反向玩梗 没口水巾也硬要虚空刷一波怎么没有口水巾 就很难看
+
+你看像提到汉堡肉必有人@逢田姐  ...</blockquote>
+有个屁节目效果，我有个香港朋友本来在b站坚持更逢田广播字幕，后来被劝退了，理由就是B站环境太差，什么地方都是刷逢田那几个烂梗。而且逢田在节目上是明确说过不喜欢汉堡肉这个梗希望别提的
+
+鲤鱼这个同理，不是说有节制刷烂梗就OK是节目效果，没节制才难看。
+
+也就是鲤鱼现在热度高有警察，以后热度下去了还愿意继续推鲤鱼的话，观感是极差的。
+
+当然这事在论坛说也白搭，反正梗小鬼是永远乐此不疲的，可能也是国内饭圈常态了。
+
+如果到最后只是因为鲤鱼能看到逢田看不到才让某些人有点收敛，那还真是有点讽刺
+
+*****
+
+####  cybernetics31  
+##### 4739#       发表于 2021-11-8 09:39
+
+iphone shower萌p自己上节目提出来这种还好，汉堡肉这个真的烂到家了，ksj 这个主要就国内小鬼在那硬玩…………
+
+*****
+
+####  星降る森  
+##### 4740#       发表于 2021-11-8 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455318&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-7 22:57</a>
+
+其实你鲤鱼姐能搞个像汉堡肉洗iPhone那样的也挺好的，但口水巾梗度确实不太行。之前有个太好听了吧后略的定 ...</blockquote>
+如果你觉得只是梗度不行，那我只能说你还是梗小鬼那套思维，和刷梗的人没有任何区别
+
