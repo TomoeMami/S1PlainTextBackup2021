@@ -4885,3 +4885,58 @@ syl 呜呜呜 最近去了趟医院，这个月没有多余的米打钱了 我�
 艾白：我不想和她们分开
 弹幕：哪有不散的宴席
 
+
+
+*****
+
+####  rgauss  
+##### 2042#       发表于 2021-11-9 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我也玉玉了 我号全进去了 新小号还没弄好
+
+*****
+
+####  H2Ofrozen  
+##### 2043#       发表于 2021-11-9 00:11
+
+真的白子怎么冷不丁就蹦出两句让人非常难绷的话，我想玉玉一下都不行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2044#       发表于 2021-11-9 00:14
+
+好好了紫色和黄色可以去底边呆着了,白色这娃不简单,除了文静估计没人制得住她了.文静你当初淘汰了几百个白白,找了个啥进来啊?
+
+*****
+
+####  T型钉宫病毒  
+##### 2045#       发表于 2021-11-9 00:17
+
+可算忍住了，千鸟的第一个舰长我一定要给静静<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黄金鸡屁屁  
+##### 2046#       发表于 2021-11-9 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">白白生日冲刺千舰
+
+*****
+
+####  rgauss  
+##### 2047#       发表于 2021-11-9 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470494&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-9 00:14</a>
+好好了紫色和黄色可以去底边呆着了,白色这娃不简单,除了文静估计没人制得住她了.文静你当初淘汰了几百个白 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">正好两人同床共枕
+
+*****
+
+####  H2Ofrozen  
+##### 2048#       发表于 2021-11-9 00:24
+
+白不灭！🖖白不灭！🖖白不灭！🖖白不灭！🖖白不灭！🖖白不灭！🖖白不灭！🖖白不灭！🖖白不灭！🖖
+
+syl我擦，千鸟不会真有女同吧😨
+

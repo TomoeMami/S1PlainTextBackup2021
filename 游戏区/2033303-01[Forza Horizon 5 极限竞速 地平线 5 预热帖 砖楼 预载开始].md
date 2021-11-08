@@ -7963,3 +7963,31 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 橡皮筋绑住手柄，跑大概4圈左右就断开连接……</blockquote>
 有线连接好像就不会断
 
+
+
+*****
+
+####  树洞专用  
+##### 715#       发表于 2021-11-9 00:08
+
+跑了几小时现在能跟专业难度玩一玩了，这代回放零惩罚额，容易依赖吧。然后我问下是不是过弯高速过撞墙是最佳策略啊，这撞墙减速也太少了，随便超车，车子抓地力也挺离谱的吸住了，fh玩的不多问下是传统吗
+
+*****
+
+####  Vladimeow  
+##### 716#       发表于 2021-11-9 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470439&amp;ptid=2033303" target="_blank">树洞专用 发表于 2021-11-9 00:08</a>
+跑了几小时现在能跟专业难度玩一玩了，这代回放零惩罚额，容易依赖吧。然后我问下是不是过弯高速过撞墙是最 ...</blockquote>
+多人竞赛模式撞墙直接大减速，打打电脑可以碰碰车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nemunoki  
+##### 717#       发表于 2021-11-9 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470439&amp;ptid=2033303" target="_blank">树洞专用 发表于 2021-11-9 00:08</a>
+
+跑了几小时现在能跟专业难度玩一玩了，这代回放零惩罚额，容易依赖吧。然后我问下是不是过弯高速过撞墙是最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">街头赛能往哪里撞？直接给你飞沟里
+

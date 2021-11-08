@@ -19213,3 +19213,14 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 就是敌人数量做得太少，血做的太厚了，应该学学EDF啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hlazd  
+##### 1335#       发表于 2021-11-9 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53467978&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-8 20:18</a>
+木棉花怎么把mla动画直接丢油管上了？让付费看片的日本观众情何以堪……</blockquote>
+我记得木棉花也都是锁IP的？日本人肯定是看不了
+
