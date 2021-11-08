@@ -7603,3 +7603,24 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 有人知道到底怎么建俱乐部吗，无限报错，PC端。
 
+
+
+*****
+
+####  天神十三煞  
+##### 683#         楼主| 发表于 2021-11-8 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465592&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-8 01:24</a>
+
+有人知道到底怎么建俱乐部吗，无限报错，PC端。</blockquote>
+你游戏里流程解锁了吗
+
+建立还是加入，报错的话，在游戏里搞
+
+*****
+
+####  hokagokenjatime  
+##### 684#       发表于 2021-11-8 17:57
+
+今晚是不是7点就能玩新西兰的普通版了。。。
+
