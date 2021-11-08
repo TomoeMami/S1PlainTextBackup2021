@@ -7345,3 +7345,12 @@ WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完
 
 所以那个女孩真是山治打伤的么<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  少年包工头  
+##### 56058#       发表于 2021-11-8 13:21
+
+一个细节看出战力没崩：德雷克被大和一锤打飞<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+

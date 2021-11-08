@@ -7212,3 +7212,46 @@ fe版和原厂车性能有区别吗？
 
 这游戏现在已经全自动化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  田黄石  
+##### 644#       发表于 2021-11-8 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460059&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-8 11:06</a>
+有人用1070玩的吗？1080p下各个级别的画质大概能跑多少帧？</blockquote>
+不知道什么画质级别，但是能差不多全60
+
+*****
+
+####  bad_alloc  
+##### 645#       发表于 2021-11-8 13:33
+
+这ai跑泥地太猛了，苦行全靠铺装路面才跑到第一，一进泥地听到后车逐渐接近的引擎声感觉堪比恐怖片
+
+*****
+
+####  qzy741147  
+##### 646#       发表于 2021-11-8 13:37
+
+试驾开柯尼塞格让我8次险象环生，尼玛我从头跑到尾两次，一辆npc都没有？
+
+*****
+
+####  田黄石  
+##### 647#       发表于 2021-11-8 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459607&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-8 10:41</a>
+https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74.4
+
+你的橡皮筋大法， ...</blockquote>
+我必须说这简直太赞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一种有人替我玩游戏的感觉油然而生，真希望所有游戏都这样
+
+*****
+
+####  镜像导航图  
+##### 648#       发表于 2021-11-8 13:40
+
+掉线真的修，了嘛，还是老样子啊这吃鸡我就没打完过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

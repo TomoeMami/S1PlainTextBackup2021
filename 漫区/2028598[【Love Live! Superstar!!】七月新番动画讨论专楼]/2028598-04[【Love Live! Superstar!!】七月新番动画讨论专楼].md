@@ -3108,3 +3108,66 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 新楼开了
 
+
+
+*****
+
+####  星降る森  
+##### 4782#       发表于 2021-11-8 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459937&amp;ptid=2028598" target="_blank">player3960 发表于 2021-11-8 10:59</a>
+
+小百合还天天汉堡肉呢，逢田厨怎么想呢？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+汉堡肉本身不是梗，也不是问题，设定上曜也喜欢汉堡肉，但是在咻生放或小百合C&amp;R的时候刷逢田，就是纯纯傻逼行为，你不会连这个都理解不了吧？
+
+*****
+
+####  Norkey1  
+##### 4783#       发表于 2021-11-8 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53458695&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 09:40</a>
+如果你觉得只是梗度不行，那我只能说你还是梗小鬼那套思维，和刷梗的人没有任何区别 ...</blockquote>
+有梗才能火的久，吸引路人啊，你猜猜为什么萌p要反复强调iphone。梗度不行=你鲤鱼姐接不下来达不到节目效果，一上来给人扣帽子差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 4784#       发表于 2021-11-8 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460621&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-8 11:40</a>
+
+我再来解释一下 我觉得真的是误会
+
+我的这个比较确实不恰当
+
+要是被你误解成我反对刷ksj不反对刷汉堡肉那我 ...</blockquote>
+也不是针对你，我只想说刷口水巾和汉堡肉下刷逢田的的本质是一批人，当然，逢田那边是没救了，没有那么多警察看着，但我也不希望因此被人觉得那种行为叫节目性，说真的，一点都不好笑
+
+*****
+
+####  ads147147  
+##### 4785#       发表于 2021-11-8 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460280&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-8 11:16</a>
+mzs老师的可堇本已经有人翻译了，堇表现得像个撩完就跑的中国直女
+https://share.api.weibo.cn/shar ...</blockquote>
+可香党心有不甘。希望赶紧看到老师的五人乱炖。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  星降る森  
+##### 4786#       发表于 2021-11-8 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462227&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-8 13:36</a>
+
+有梗才能火的久，吸引路人啊，你猜猜为什么萌p要反复强调iphone。梗度不行=你鲤鱼姐接不下来达不到节目效 ...</blockquote>
+我没记错的话鲤鱼也是很反感说口水巾的，你偏要觉得没有节目效果所以无妨，那你继续当你的梗小鬼去吧，只不过多一个坛友觉得你是傻逼，就这么简单。
+
+还火的持久，什么进屎的脑子，日本那边几年前就很少还有刷汉堡梗的逢田厨了，逢田是因此凉了吗？国内傻逼梗小鬼除了到处KY刷烂梗外买过几张碟，跑过几次活动啊？
+
+要点脸
+

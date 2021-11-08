@@ -3877,3 +3877,45 @@ BV1y44y1e7My
 沃日，这怎么都安排上自动回复了啊，人之初麻了啊</blockquote>
 一直有特定关键词自动回复
 
+
+
+*****
+
+####  四叶的花  
+##### 1942#       发表于 2021-11-8 13:21
+
+一直都有自动回复的，你发个文静今天吃什么试试
+
+*****
+
+####  莫洛骑士  
+##### 1943#       发表于 2021-11-8 13:27
+
+原来是因为这个，虽然我说的是我吃
+<img src="https://p.sda1.dev/3/a8a60d8f6179e3402a796bb8403f6eb1/IMG_CMP_113262837.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1944#       发表于 2021-11-8 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">文静之前就说过自动回复的事情吧
+
+*****
+
+####  袜子  
+##### 1945#       发表于 2021-11-8 13:39
+
+ 本帖最后由 袜子 于 2021-11-8 13:41 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/08/134043j32o2i1uo9s1ioo4.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211108_134031.jpg</strong> (174.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 13:40 上传
+
+一个女粉试的五人自动回复（已经脱坑了）
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
