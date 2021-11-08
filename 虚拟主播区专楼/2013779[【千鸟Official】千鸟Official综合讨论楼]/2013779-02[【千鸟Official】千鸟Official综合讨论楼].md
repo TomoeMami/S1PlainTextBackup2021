@@ -3928,3 +3928,79 @@ BV1y44y1e7My
 
 倭瓜优先级最高喷了
 
+
+
+*****
+
+####  小憨1  
+##### 1947#       发表于 2021-11-8 14:29
+
+这cj别一会要哭了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+没活了就开摄像头咬个打火机吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1948#       发表于 2021-11-8 14:30
+
+ 本帖最后由 rgauss 于 2021-11-8 14:32 编辑 
+
+呃呃 cj在说jb. 
+
+听不下去了，这人真让我认识到了，千万不能成为二次元杀软，之后看总结了。
+
+nm立本人好歹知道鞠躬道歉，ntm连立本人都不如
+
+等下写篇小作文回复下心情。
+
+*****
+
+####  夜之中道崩殂  
+##### 1949#       发表于 2021-11-8 14:31
+
+鸟批已经疯了，说什么都没用。陈珺说中之人不想走，他们也不会信，他们只为了自己心里认为的正义。
+
+*****
+
+####  T型钉宫病毒  
+##### 1950#       发表于 2021-11-8 14:32
+
+除了甩锅和车轱辘上次的内容还有什么新的吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  憧憬鲨  
+##### 1951#       发表于 2021-11-8 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">说不想走我是信的，但是跟他有什么关系呢
+
+*****
+
+####  小憨1  
+##### 1952#       发表于 2021-11-8 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462935&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-8 14:31</a>
+鸟批已经疯了，说什么都没用。陈珺说中之人不想走，他们也不会信，他们只为了自己心里认为的正义。 ...</blockquote>
+这个确实，贴吧整体的氛围已经有点癫狂了
+
+*****
+
+####  夜之中道崩殂  
+##### 1953#       发表于 2021-11-8 14:36
+
+她们不想走，鸟批还想把千鸟反黄了。千鸟黄了她们还能不走？还美其名曰决定权在她们手中，不裹挟主播。都是放屁。
+
+*****
+
+####  袜子  
+##### 1954#       发表于 2021-11-8 14:38
+
+ 本帖最后由 袜子 于 2021-11-8 14:43 编辑 
+
+cj又在播？进去听了一耳朵……文静！你把炸弹人变成mmr！罪大恶极！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+聊啥都不聊竞业合同，就知道太极，真没意思……
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7329,3 +7329,22 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 苦行下坡漂移那段是最爽的，最后冲刺才是恐怖游戏，明明泥地甩开了一大截然后就听着后车的声音越来越近。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 4代我记得没这么变态的辅助吧，没想到这一代这么强，回家试试。
 
+
+
+*****
+
+####  -SLSL-  
+##### 657#       发表于 2021-11-8 14:33
+
+苦行本来我拿呢辆送的三菱被ai乱干，换了辆500多的路虎以后就乱别ai了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风流庵TypeC  
+##### 658#       发表于 2021-11-8 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462650&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 14:09</a>
+贴吧有人做的自动图更好一点 各种时间的版本都有 起步就自动 楼里视频那个起步还要手动
+等明天说不定有更好 ...</blockquote>
+有代码吗
+

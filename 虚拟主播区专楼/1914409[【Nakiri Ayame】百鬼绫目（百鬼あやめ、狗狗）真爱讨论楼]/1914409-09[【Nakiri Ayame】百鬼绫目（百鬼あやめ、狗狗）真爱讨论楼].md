@@ -17251,3 +17251,15 @@ https://twitter.com/NT4218/status/1456923719524241413
 可怜的皆切人（叹气）
 [https://www.bilibili.com/video/B ... _id_from=444.41.0.0](https://www.bilibili.com/video/BV1Fh411b7JC?spm_id_from=444.41.0.0)
 
+
+
+*****
+
+####  nian1538  
+##### 13442#       发表于 2021-11-8 14:39
+
+I'm buying Ayame's membership just to know why she doesn't stream
+https://boards.4channel.org/vt/thread/12680502/
+
+乐了，好像百鬼组知道一样
+
