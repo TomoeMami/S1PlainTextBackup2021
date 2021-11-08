@@ -7255,3 +7255,30 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 掉线真的修，了嘛，还是老样子啊这吃鸡我就没打完过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有钱多买小人  
+##### 649#       发表于 2021-11-8 13:50
+
+服了，xsx上也闪退好几回了。
+
+*****
+
+####  有钱多买小人  
+##### 650#       发表于 2021-11-8 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462241&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-8 13:37</a>
+试驾开柯尼塞格让我8次险象环生，尼玛我从头跑到尾两次，一辆npc都没有？</blockquote>
+切单人模式。在线模式npc少得多。
+
+*****
+
+####  风流庵TypeC  
+##### 651#       发表于 2021-11-8 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462241&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-8 13:37</a>
+试驾开柯尼塞格让我8次险象环生，尼玛我从头跑到尾两次，一辆npc都没有？</blockquote>
+应该是bug，我前天玩也是一个npc没有，昨天再跑就正常了
+

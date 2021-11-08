@@ -3171,3 +3171,60 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 要点脸
 
+
+
+*****
+
+####  Norkey1  
+##### 4787#       发表于 2021-11-8 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462294&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 13:42</a>
+我没记错的话鲤鱼也是很反感说口水巾的，你偏要觉得没有节目效果所以无妨，那你继续当你的梗小鬼去吧，只 ...</blockquote>
+你从哪里看出来我刷了这个的，总之无论如何先给帽子是吧。还饭圈梗小鬼，我一看到微博挂人就会死，国内饭圈人就是这个味<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">看上面谭友对挂人有说辞你也明白谭友觉得谁更傻逼吧
+鲤鱼确实不喜欢口水巾，所以才说口水巾不行要搞一些让人印象深刻的东西啊，你搁这曲解搞的我支持一样。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本是日本国内是国内，国内这个环境2.5次元小偶像想火的长久要干什么你不清楚吗，装什么外宾呢。
+你可真别瞧不起这些新人，有些人看星团买的东西比我还多，本身就是第一次追当然需要引导的，你堵了不让他们刷根本做不到，不如换个顺眼点的
+
+*****
+
+####  D麦林  
+##### 4788#       发表于 2021-11-8 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462229&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 13:36</a>
+
+也不是针对你，我只想说刷口水巾和汉堡肉下刷逢田的的本质是一批人，当然，逢田那边是没救了，没有那么多 ...</blockquote>
+那能请您把挂出去的截图删了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+你要怼梗小鬼就去怼那些在刷梗的梗小鬼啊 我又没有一丝一毫支持梗小鬼的意思
+
+我说节目效果是说早期确实有一些好活 又不是说现在那种不分场合的乱刷是节目效果
+
+*****
+
+####  D麦林  
+##### 4789#       发表于 2021-11-8 13:55
+
+麻了 跨平台挂人那么勤快 过这么久倒是又跑回来对线了
+
+我真有点火气了
+
+*****
+
+####  chenflyyy  
+##### 4790#       发表于 2021-11-8 13:57
+
+刚好换楼了，这个话题你们就在留在这里吵吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 4791#       发表于 2021-11-8 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462448&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-8 13:54</a>
+
+那能请您把挂出去的截图删了吗
+
+你要怼梗小鬼就去怼那些在刷梗的梗小鬼啊 我又没有一丝一毫支持梗 ...</blockquote>
+你要理解为挂你也没辙，只不过你的发言非常典而已。
+
+我上班又不可能时时刻刻盯着S1
+
