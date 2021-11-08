@@ -7720,3 +7720,27 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 我现在都刷经验翻倍FE搞钱和等级摇奖，升级只有单摇 ...</blockquote>
 赛事经验加倍吗？
 
+
+
+*****
+
+####  冀人燕南天  
+##### 693#       发表于 2021-11-8 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463658&amp;ptid=2033303" target="_blank">chenyuhao467 发表于 2021-11-8 15:22</a>
+
+我早上已经跑过一次50圈了，就用的雪弗兰7倍车，跑到40圈左右经常出现串流带宽不足
+
+然后结算大概 ...</blockquote>
+为啥我刷点没这么快？3倍速和最高7倍都点了，但感觉这个跑路的方式根本用不到7倍啊，每次最多跑到x2左右就积累不到了
+
+*****
+
+####  4ckc  
+##### 694#       发表于 2021-11-8 20:34
+
+这一次中文版机翻错误好多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不知是赶工来不及还是巨硬对自家机翻过于自信
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
