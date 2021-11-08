@@ -8002,3 +8002,14 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
    但是不得不说墨西哥是真的比英国好一万倍，有3代澳大利亚的感觉了。
 
+
+
+*****
+
+####  AEmpire  
+##### 719#       发表于 2021-11-9 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469787&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-8 23:03</a>
+想知道是我的设定出了什么问题还是这一作就是这样的，这个光影给我一种FH1乃至NFS9那种年代的灰蒙蒙的感 ...</blockquote>
+同感，一开始还以为是hdr的问题，结果把hdr关掉感觉更灰了。。。
+

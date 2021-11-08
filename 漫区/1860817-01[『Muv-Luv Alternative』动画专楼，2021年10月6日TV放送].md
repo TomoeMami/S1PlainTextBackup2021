@@ -19224,3 +19224,16 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 木棉花怎么把mla动画直接丢油管上了？让付费看片的日本观众情何以堪……</blockquote>
 我记得木棉花也都是锁IP的？日本人肯定是看不了
 
+
+
+*****
+
+####  oskneo  
+##### 1336#       发表于 2021-11-9 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53467978&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-8 20:18</a>
+木棉花怎么把mla动画直接丢油管上了？让付费看片的日本观众情何以堪……</blockquote>
+港澳台有希望上吗
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
