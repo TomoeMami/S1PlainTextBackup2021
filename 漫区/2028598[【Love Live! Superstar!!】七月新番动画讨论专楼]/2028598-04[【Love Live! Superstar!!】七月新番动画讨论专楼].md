@@ -2921,3 +2921,69 @@ iphone shower萌p自己上节目提出来这种还好，汉堡肉这个真的烂
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cybernetics31  
+##### 4764#       发表于 2021-11-8 11:01
+
+看到了，有啥直接说嘛…………
+
+*****
+
+####  lj205  
+##### 4765#       发表于 2021-11-8 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459937&amp;ptid=2028598" target="_blank">player3960 发表于 2021-11-8 10:59</a>
+
+小百合还天天汉堡肉呢，逢田厨怎么想呢？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+打铁汉堡肉是因为她喜欢
+
+你这样类比，人家肯定炸毛啊
+
+*****
+
+####  绯想alter2nd  
+##### 4766#       发表于 2021-11-8 11:05
+
+ 本帖最后由 绯想alter2nd 于 2021-11-8 11:09 编辑 
+
+算了，贴吧那个翻译好了吗，可以看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4767#       发表于 2021-11-8 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">as老师可香图越画越瑟了
+
+*****
+
+####  绯想alter2nd  
+##### 4768#       发表于 2021-11-8 11:12
+
+哦，加了番外，太怪了，再看一眼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4769#       发表于 2021-11-8 11:16
+
+mzs老师的可堇本已经有人翻译了，堇表现得像个撩完就跑的中国直女<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+https://share.api.weibo.cn/share/260814832.html?weibo_id=4701070489552257
+
+*****
+
+####  D麦林  
+##### 4770#       发表于 2021-11-8 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459937&amp;ptid=2028598" target="_blank">player3960 发表于 2021-11-8 10:59</a>
+小百合还天天汉堡肉呢，逢田厨怎么想呢？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+这汉堡肉和那汉堡肉又不是同一个路线
+yysy这才叫标准烂玩梗呢…
+

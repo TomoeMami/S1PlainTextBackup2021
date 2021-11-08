@@ -3722,3 +3722,44 @@ syl 那种大面积的花海是真的好看，很容易让人沉迷其中，可�
 合理怀疑这是为了给其它团员引流，错过昨晚co宝直播的我已经在补录播了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co的直播大多都是混时长的
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 1926#       发表于 2021-11-8 11:04
+
+比如昨晚错过艾白的姓艾感觉就很亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 1927#       发表于 2021-11-8 11:06
+
+卧槽，运营还要上来直播
+
+*****
+
+####  夜潇箫  
+##### 1928#       发表于 2021-11-8 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459639&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-8 10:43</a>
+合理怀疑这是为了给其它团员引流，错过昨晚co宝直播的我已经在补录播了</blockquote>
+Coco是最混的一个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1929#       发表于 2021-11-8 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460061&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-8 11:06</a>
+卧槽，运营还要上来直播</blockquote>
+cj死了就是最好的qa<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 1930#       发表于 2021-11-8 11:14
+
+别尬黑，今天是陈珺讣告
+
