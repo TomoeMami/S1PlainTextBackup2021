@@ -7166,3 +7166,21 @@ fe版和原厂车性能有区别吗？
 
 有人用1070玩的吗？1080p下各个级别的画质大概能跑多少帧？
 
+
+
+*****
+
+####  nemunoki  
+##### 640#       发表于 2021-11-8 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460059&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-8 11:06</a>
+
+有人用1070玩的吗？1080p下各个级别的画质大概能跑多少帧？</blockquote>
+1070 8G，
+
+超高直接爆显存 串流带宽不足
+
+降到高基本全程60
+
+不知道显存是具体栽在哪项上
+

@@ -13691,3 +13691,38 @@ Live也能突击的吗，服了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  stedckk  
+##### 7098#       发表于 2021-11-8 11:22
+
+不是告知么，直接上live？
+
+*****
+
+####  nian1538  
+##### 7099#       发表于 2021-11-8 11:27
+
+我的理解是带重大发表的3D live，但是这么突然搞个live还是让人有点感觉莫名奇妙和难以相信
+Guest不知道什么时候从标题里消失了
+
+*****
+
+####  Scardy  
+##### 7100#       发表于 2021-11-8 11:32
+
+3Dlive的重大发表不会是简简单单卖个谷子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  越动天下  
+##### 7101#       发表于 2021-11-8 11:33
+
+ 本帖最后由 越动天下 于 2021-11-8 11:34 编辑 
+
+上完课一看 就发现了这个情理之中却又不想看到的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 别人一看就不想点进来了
+

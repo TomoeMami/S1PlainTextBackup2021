@@ -2987,3 +2987,51 @@ https://share.api.weibo.cn/share/260814832.html?weibo_id=4701070489552257
 这汉堡肉和那汉堡肉又不是同一个路线
 yysy这才叫标准烂玩梗呢…
 
+
+
+*****
+
+####  D麦林  
+##### 4771#       发表于 2021-11-8 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53458577&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 09:32</a>
+
+有个屁节目效果，我有个香港朋友本来在b站坚持更逢田广播字幕，后来被劝退了，理由就是B站环境太差，什么 ...</blockquote>
+我再来解释一下 我觉得真的是误会
+
+我的这个比较确实不恰当
+
+要是被你误解成我反对刷ksj不反对刷汉堡肉那我道歉 但我真的没有这个意思
+
+主要我确实并不知道汉堡肉梗的泛滥程度已经造成了很多人的困扰
+
+我要说明一下不管是什么梗我都是反对乱刷的
+
+*****
+
+####  D麦林  
+##### 4772#       发表于 2021-11-8 11:45
+
+翻页
+
+*****
+
+####  D麦林  
+##### 4773#       发表于 2021-11-8 11:45
+
+麻了 已经稳定翻页bug了
+
+要不再换个新的楼？
+
+*****
+
+####  稀勢のささ  
+##### 4774#       发表于 2021-11-8 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460280&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-8 11:16</a>
+
+mzs老师的可堇本已经有人翻译了，堇表现得像个撩完就跑的中国直女
+
+https://share.api.weibo.cn/shar ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被拿捏的毫无还手之力
+

@@ -3763,3 +3763,53 @@ cj死了就是最好的qa<img src="https://static.saraba1st.com/image/smiley/fac
 
 别尬黑，今天是陈珺讣告
 
+
+
+*****
+
+####  丢了五块钱  
+##### 1931#       发表于 2021-11-8 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460182&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-8 11:12</a>
+Coco是最混的一个</blockquote>
+co宝是混，但睡前听很安心，弹幕也都回
+
+*****
+
+####  丢了五块钱  
+##### 1932#       发表于 2021-11-8 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459638&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-8 10:43</a>
+今天是艾白生日，原本打算在今日约她出来，好为她庆生，但由于她早早就把日程安排地满满当当，只好作罢。
+ ...</blockquote>
+写点有超市环节的好不？
+
+*****
+
+####  灰色的狐狸  
+##### 1933#       发表于 2021-11-8 11:34
+
+我都看过一些
+
+co宝虽然经常摁混，但因为人少反而和弹幕互动更多
+
+队长倒是有点太正经了不是很习惯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 1934#       发表于 2021-11-8 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459820&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-8 10:52</a>
+co的直播大多都是混时长的</blockquote>
+我意思是昨天文静被封了以后在co宝直播间露面了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1935#       发表于 2021-11-8 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460532&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-11-8 11:33</a>
+写点有超市环节的好不？</blockquote>
+写超市挑选鸭肠和腰子么..<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有点想不到咋写
+
