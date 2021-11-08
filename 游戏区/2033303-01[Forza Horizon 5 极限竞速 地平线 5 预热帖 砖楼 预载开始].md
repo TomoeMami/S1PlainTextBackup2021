@@ -7898,3 +7898,18 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 橡皮筋绑住手柄，跑大概4圈左右就断开连接……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">xbox手柄的话可以用硬币卡住rt扳机
 
+
+
+*****
+
+####  itsmyrailgun  
+##### 709#       发表于 2021-11-8 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469690&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 22:52</a>
+200级应该是第一转，加1星，然后显示不出来，一夜回到解放前，看起来就是30级，麻了
+
+话说感觉贴吧的不太适 ...</blockquote>
+哈哈哈哈哈哈哈哈哈，我记得会有星啊这代没有吗
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

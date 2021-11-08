@@ -9831,3 +9831,54 @@ KING和不破湊很忙，黑客很忙，翔哥最近也忙
 
 天皇之间的心灵感应了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8216#       发表于 2021-11-8 23:09
+
+新瓜简报，11.6琥珀ねね、花守へるし、ゆるりめぐ、鳳玲天々四位管人站出来指控一位3d模型师[@icemega5](https://twitter.com/icemega5)性骚扰，以制作免费3D模型为手段来接近vtuber，用模型制作的色图发给对方，并且多有性骚扰发言。此后阿裁跟进时间并在今天发了[锤](https://twitter.com/narukami_sabaki/status/1457694049175891969)，模型师也发了[大变申](https://twitter.com/icemega5/status/1457680997630291977)。
+
+<img src="https://img.saraba1st.com/forum/202111/08/225939sa57c04z59wowwq5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211108225928.png</strong> (76.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 22:59 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/225939ovzimzjpjhml1uzh.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211108224754.png</strong> (64.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 22:59 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/225938blncgqncs2p8qqpz.jpg" referrerpolicy="no-referrer">
+
+<strong>FDfMLKbaAAAi6KC.jpg</strong> (214.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 22:59 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/225939xchkh2xh7hhtthhh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211108225931.png</strong> (107.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 22:59 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/225939ogn9gzzfn1fk13qk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211108225920.png</strong> (46.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 22:59 上传
+
+该模型师还负责过猫雷にゃる，桃兎るの，火ノ乃たま，ヒヅキミウ，Norah，rucaco，ホシナスズ等vtuber的模型。说起来我记得nga有人发过相关，怎么找不到了
+
