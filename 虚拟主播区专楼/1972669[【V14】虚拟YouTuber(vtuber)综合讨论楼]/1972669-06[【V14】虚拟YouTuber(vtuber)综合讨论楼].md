@@ -9744,3 +9744,33 @@ A 黛灰在跑团</blockquote>
 
 黛灰跑团是15.16号，ymen搜了一圈最近也没有跑团相关的录播和推文…
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8210#       发表于 2021-11-8 21:42
+
+ 本帖最后由 alcoholic1000 于 2021-11-8 21:44 编辑 
+
+西语马来语都有V的市场，国内没什么讨论度...
+
+之前听MAHA5一哥唱歌还挺好的
+
+Syl，虹最近抓人高强度工作，也不知道在干什么
+
+KING和不破湊很忙，黑客很忙，翔哥最近也忙
+
+叶忙到半夜回家一边播一边流鼻血，还得去做眼睛手术<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 8211#       发表于 2021-11-8 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53468908&amp;ptid=1972669" target="_blank">fastary 发表于 2021-11-8 21:32</a>
+这是梗还是什么吗()
+
+黛灰跑团是15.16号，ymen搜了一圈最近也没有跑团相关的录播和推文… ...</blockquote>
+就是说命盟05啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他皮号和魂号加起来跑团频率已经算很高的了
+

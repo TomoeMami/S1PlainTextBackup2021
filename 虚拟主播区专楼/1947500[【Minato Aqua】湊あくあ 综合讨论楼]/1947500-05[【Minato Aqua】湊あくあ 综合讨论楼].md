@@ -13879,3 +13879,12 @@ bilibili复活
 
 きらきら<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅斯之围  
+##### 7119#       发表于 2021-11-8 21:43
+
+后面两个月当然是为了准备live努力练习了。什么，直播？哪有当偶像重要<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

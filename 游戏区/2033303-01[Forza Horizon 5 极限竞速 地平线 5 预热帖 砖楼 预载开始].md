@@ -7796,3 +7796,24 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 试了下苦行赛道，还可以啊，平均难度，bronco 2021 A级，领先第二7秒，全程没压力，都要睡着了，不过风景还不错
 
+
+
+*****
+
+####  gzGaryC  
+##### 700#       发表于 2021-11-8 21:52
+
+现阶段有什么推荐的S1 900评级的街车吗？
+
+*****
+
+####  天神十三煞  
+##### 701#         楼主| 发表于 2021-11-8 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469109&amp;ptid=2033303" target="_blank">gzGaryC 发表于 2021-11-8 05:52</a>
+
+现阶段有什么推荐的S1 900评级的街车吗？</blockquote>
+狗哥viper acr 2006
+
+车房宝库送
+
