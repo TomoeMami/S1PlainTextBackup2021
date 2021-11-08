@@ -2947,3 +2947,23 @@ an小鸟游和普通小鸟游有啥差别
 
 SP从怪鸟乱舞变成单发高伤镭射+浮游炮
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6210#       发表于 2021-11-8 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460406&amp;ptid=1570791" target="_blank">zhwpjy 发表于 2021-11-8 11:24</a>
+
+an小鸟游和普通小鸟游有啥差别</blockquote>
+自充换成了满SP回血。
+
+SP变化。
+
+从放出特化变成出力特性。
+
+总而言之就是用部分输出换成了生存。
+
+还有不得不说的是配极致白值强化的AN装的话AN怜可以逆属性执法。
+
