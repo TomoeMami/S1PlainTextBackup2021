@@ -4843,3 +4843,45 @@ syl 呜呜呜 最近去了趟医院，这个月没有多余的米打钱了 我�
 
 嗯养gachi
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2038#       发表于 2021-11-8 23:51
+
+<blockquote>因为哭的很假，所以我认为是真的哭了。
+因为我认为白白是真的哭了，所以作为乐子人的我想笑。
+因为我想笑，所以我笑着笑着想起千鸟现状后哭了。
+因为我哭了，我想发弹幕鼓励白白。
+因为我要发弹幕，所以我想起来我三个号全进去了。
+所以最后我急了，自己给自己气笑了🤣🤣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 2039#       发表于 2021-11-8 23:56
+
+白子我的白子...<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+但是这人为什么还能一边哭一边笑嘻的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  德里达幽灵  
+##### 2040#       发表于 2021-11-8 23:58
+
+这是平凡的小人物之间交换真心的故事啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2041#       发表于 2021-11-8 23:59
+
+鸟批可太会安慰人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+艾白：我不想和她们分开
+弹幕：哪有不散的宴席
+
