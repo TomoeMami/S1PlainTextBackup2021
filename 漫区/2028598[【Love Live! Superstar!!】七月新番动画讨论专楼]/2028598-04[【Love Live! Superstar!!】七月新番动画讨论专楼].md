@@ -3570,3 +3570,12 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  猫睛石  
+##### 4816#       发表于 2021-11-8 21:42
+
+反对不彻底就是彻底不反对吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
