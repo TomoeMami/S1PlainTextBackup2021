@@ -9798,3 +9798,36 @@ KING和不破湊很忙，黑客很忙，翔哥最近也忙
 
 2021-11-8 22:16 上传
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 8214#       发表于 2021-11-8 22:33
+
+特么绷不住了。
+[https://youtu.be/UhJ0i7uWWz8?t=3630](https://youtu.be/UhJ0i7uWWz8?t=3630)
+
+<img src="https://img.saraba1st.com/forum/202111/08/222954rs3ogq377n7g4gz3.png" referrerpolicy="no-referrer">
+
+<strong>211108222922.png</strong> (99.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 22:29 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/223301dfteoqtq5dddd2fi.png" referrerpolicy="no-referrer">
+
+<strong>211108223216.png</strong> (233.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 22:33 上传
+
+*****
+
+####  OldGlory  
+##### 8215#       发表于 2021-11-8 22:34
+
+天皇之间的心灵感应了
+

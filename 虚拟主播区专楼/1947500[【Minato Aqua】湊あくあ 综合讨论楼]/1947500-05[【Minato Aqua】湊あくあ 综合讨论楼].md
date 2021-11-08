@@ -13888,3 +13888,13 @@ bilibili复活
 
 后面两个月当然是为了准备live努力练习了。什么，直播？哪有当偶像重要<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7120#       发表于 2021-11-8 22:39
+
+简直就像是夸父追日一样了
+这种状态还能以这种强度干多久呢...
+

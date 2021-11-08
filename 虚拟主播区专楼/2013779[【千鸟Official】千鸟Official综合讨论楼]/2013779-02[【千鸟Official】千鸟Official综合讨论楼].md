@@ -4686,3 +4686,48 @@ WOC,原~!这不给她引波大的.........炸弹.<img src="https://static.saraba
 我才发现我的弹幕发不出去了，也没收到封禁通知，这是从啥时候开始的啊，我是不是当 ...</blockquote>
 昨天没test嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 2019#       发表于 2021-11-8 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">nm 大小号都寄了 得再开个小号去臊皮了
+
+*****
+
+####  丢了五块钱  
+##### 2020#       发表于 2021-11-8 22:32
+
+今天白白下班开始100%真实了
+
+*****
+
+####  rgauss  
+##### 2021#       发表于 2021-11-8 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469474&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-11-8 22:32</a>
+
+今天白白下班开始100%真实了</blockquote>
+嗓子寄了,夹着不舒服吧
+
+*****
+
+####  GAKOTO  
+##### 2022#         楼主| 发表于 2021-11-8 22:40
+
+ 本帖最后由 GAKOTO 于 2021-11-8 22:43 编辑 
+
+记录一下:
+【🐦又散】自千鸟2.0重启以来，知名精神分裂患者，优秀的绘画和手书二创作者，我不污，宣布引退。天下没有不散的宴席，有缘再见！<img src="https://p.sda1.dev/3/c2fc05c392121ea837eba6dbb9e30354/IMG_CMP_178906268.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/1ae1d43830d416cc902a35b524d36113/86E3C2F7914AB521894F084C145EF20A.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2023#       发表于 2021-11-8 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469313&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-8 10:12</a>
+昨天没test嘛</blockquote>
+文静直播间刷太快了，co宝没开弹幕姬，我以为我还活着
+
