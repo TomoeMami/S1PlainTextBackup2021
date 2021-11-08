@@ -7913,3 +7913,21 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  LMBS  
+##### 710#       发表于 2021-11-8 23:37
+
+嘉年华里面那个每周挑战容易完成吗？根本不知哪里开任务
+
+*****
+
+####  Totokei  
+##### 711#       发表于 2021-11-8 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470151&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-8 23:37</a>
+嘉年华里面那个每周挑战容易完成吗？根本不知哪里开任务</blockquote>
+每天解锁的那种？有的是要求你跑指定类型的比赛，在地图里筛选一下就行。有的是在漫游模式里的任务，例如今天的任务是撞五个电话亭你去城里找下路边
+

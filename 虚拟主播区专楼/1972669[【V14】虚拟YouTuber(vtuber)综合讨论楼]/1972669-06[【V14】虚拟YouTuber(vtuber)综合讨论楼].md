@@ -9882,3 +9882,21 @@ KING和不破湊很忙，黑客很忙，翔哥最近也忙
 
 该模型师还负责过猫雷にゃる，桃兎るの，火ノ乃たま，ヒヅキミウ，Norah，rucaco，ホシナスズ等vtuber的模型。说起来我记得nga有人发过相关，怎么找不到了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8217#       发表于 2021-11-8 23:30
+
+ 本帖最后由 格林卡罗尔 于 2021-11-8 23:36 编辑 
+
+以及对れいきら也骚扰过，不过没有负责模型，好像是修改MMD模型做的图，看起来也做了很多年模型履历wiki:[https://mikumikudance.fandom.com/wiki/Icemega5](https://mikumikudance.fandom.com/wiki/Icemega5)
+
+*****
+
+####  OldGlory  
+##### 8218#       发表于 2021-11-8 23:33
+
+icemega5也是18年就开始做3d的了，怎么还会闹出这种事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
