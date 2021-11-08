@@ -8049,3 +8049,72 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 玩了一下墨西哥和澳大利亚好像啊，也没什么系统上的改进，又是跑飞机跑摩托车有点腻了。
 
+
+
+*****
+
+####  宅男的爱  
+##### 724#       发表于 2021-11-9 02:43
+
+Steam版和Windows Store版可以联机吗？
+
+现在Steam版和Windows Store版哪个版本好一点？
+
+之前几座都是买的Windows Store，值得换成Steam版吗？
+
+感谢
+
+*****
+
+####  -SLSL-  
+##### 725#       发表于 2021-11-9 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53471111&amp;ptid=2033303" target="_blank">宅男的爱 发表于 2021-11-9 02:43</a>
+Steam版和Windows Store版可以联机吗？
+
+现在Steam版和Windows Store版哪个版本好一点？</blockquote>
+应该可以联机
+开头会要你绑定下xbox和steam账号，然后我fz7和fh4都在xbox上，奖励车也送到了，感觉数据应该是互通的，直接选方便的平台就行了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 宅男的爱| + 1|THX|
+
+查看全部评分
+
+*****
+
+####  天神十三煞  
+##### 726#         楼主| 发表于 2021-11-9 03:25
+
+ 本帖最后由 天神十三煞 于 2021-11-8 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469109&amp;ptid=2033303" target="_blank">gzGaryC 发表于 2021-11-8 05:52</a>
+
+现阶段有什么推荐的S1 900评级的街车吗？</blockquote>
+好吧，弄错了，不是宝库那辆，年代不对，我可能没摇出来。
+
+几个VIPER ACR都试试，三个10，一个9.x就是了。
+
+*****
+
+####  ayaseyue  
+##### 727#       发表于 2021-11-9 04:05
+
+ 本帖最后由 ayaseyue 于 2021-11-9 04:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470916&amp;ptid=2033303" target="_blank">asergh0630rx 发表于 2021-11-9 01:34</a>
+
+玩了一下墨西哥和澳大利亚好像啊，也没什么系统上的改进，又是跑飞机跑摩托车有点腻了。 ...</blockquote>
+坛友怎说些怪话，系统上改进学极品飞车吗，又不是动作或战争策略类，还有个喜欢来回变的公司叫暗荣。
+
+GT1到现在的7，职业生涯考证买车改车收集系统本质上也没什么改变，project car出了3代也那样，至于拉力，方程式就不再细说，废渣地平线只能算平稳。
+
+赛车游戏玩法无非跑圈碰碰车，这游戏搞出了游乐场[国王、僵尸、夺旗]，赛车吃鸡，漫游捷径，路遇劲敌，在线漂移群比，大地图上的随机过关塞，赛车足球等等。
+
+还有传统的四类挑战，故事模式那些，要说系统玩法这系列能想出这么多幺蛾子组合跑法已经尽力了，奇奇怪怪的小游戏改的不好反而会引发抱怨。
+
