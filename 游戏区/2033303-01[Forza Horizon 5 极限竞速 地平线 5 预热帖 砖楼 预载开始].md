@@ -8033,3 +8033,19 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  如月尤菲  
+##### 722#       发表于 2021-11-9 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">话说xsx版的画质和性能模式感觉看不出来啥区别
+
+*****
+
+####  asergh0630rx  
+##### 723#       发表于 2021-11-9 01:34
+
+玩了一下墨西哥和澳大利亚好像啊，也没什么系统上的改进，又是跑飞机跑摩托车有点腻了。
+
