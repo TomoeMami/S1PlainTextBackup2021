@@ -7637,3 +7637,28 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 然后出了个sesto，还有一部法拉利加尼福利亚250 1957，就是车展里第三 ...</blockquote>
 刷这个是反复买同一辆车刷点数然后解那个抽奖吗？那得买一堆车？
 
+
+
+*****
+
+####  Vladimeow  
+##### 686#       发表于 2021-11-8 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53466161&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 17:57</a>
+你游戏里流程解锁了吗
+
+建立还是加入，报错的话，在游戏里搞</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">魔能了
+
+*****
+
+####  天神十三煞  
+##### 687#         楼主| 发表于 2021-11-8 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53466250&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-8 02:02</a>
+
+刷这个是反复买同一辆车刷点数然后解那个抽奖吗？那得买一堆车？</blockquote>
+其实买一堆点着很累，技术类FE车跑圈刷的差不多就得了
+
+我现在都刷经验和钱，自带升级只有单摇但不用来回点车升级
+
