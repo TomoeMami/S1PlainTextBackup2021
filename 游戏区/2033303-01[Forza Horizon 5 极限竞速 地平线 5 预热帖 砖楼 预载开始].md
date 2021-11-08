@@ -7624,3 +7624,16 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 今晚是不是7点就能玩新西兰的普通版了。。。
 
+
+
+*****
+
+####  qzy741147  
+##### 685#       发表于 2021-11-8 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465023&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 16:48</a>
+刚才刷了十把jeep willy的超级摇摇乐
+
+然后出了个sesto，还有一部法拉利加尼福利亚250 1957，就是车展里第三 ...</blockquote>
+刷这个是反复买同一辆车刷点数然后解那个抽奖吗？那得买一堆车？
+
