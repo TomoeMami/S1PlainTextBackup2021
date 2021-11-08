@@ -3339,3 +3339,35 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 不反思一下自己发言有多傻逼先怨被挂，这就是S1吗?
 
+
+
+*****
+
+####  星降る森  
+##### 4799#       发表于 2021-11-8 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463165&amp;ptid=2028598" target="_blank">D麦林 发表于 2021-11-8 14:50</a>
+
+我说了啊 节目效果是指的很久以前 这个梗诞生最早期的时候曾经的一些好活 二创之类的 不是现在这种毫无创 ...</blockquote>
+不好意思，那些二创活在我眼里也是烂。
+你可能不了解逢田汉堡梗在我眼里的烦人厌恶程度，结实踩雷，截图出去只是一早刷S1就看到有人踩雷还觉得有节目效果。至少就截出去那段发言，你不解释我是完全看不出任何曲解或断章取义的误会的。
+
+删了也是因为你解释了。
+
+但和泥潭交流完，反而让我觉得所谓“和谐讨论楼”里也是不乏烂人，还比较失望。
+
+你我都是自认倒霉吧
+
+*****
+
+####  D麦林  
+##### 4800#       发表于 2021-11-8 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463290&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 14:58</a>
+笑了，还在那拒绝沟通呢？就那位的发言，代表相当一部分人的想法，当个典型罢了。
+
+删了是当事人觉得自己 ...</blockquote>
+笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+算了你一定要说你没挂人那我只能顺从你了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我只能说我从来没有任何支持他们刷梗的意思 你要怎么理解是你的事 换新楼了不对线了
+

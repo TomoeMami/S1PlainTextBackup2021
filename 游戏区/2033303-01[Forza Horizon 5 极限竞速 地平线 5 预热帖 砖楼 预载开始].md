@@ -7369,3 +7369,31 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 <img src="https://p.sda1.dev/3/31b3b6fc25c9b76375336c54e52a4341/s1goose.jpg" referrerpolicy="no-referrer"> 
 都在这 车选其他的也行 都自动了我已经不在意效率了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  4ckc  
+##### 661#       发表于 2021-11-8 15:04
+
+裸连线上直接匹配不到，又不太想搞加速器
+看来这周就只能赚一辆车了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天神十三煞  
+##### 662#         楼主| 发表于 2021-11-8 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+放置游戏
+
+电脑负责玩游戏
+
+人类负责抽卡
+
+赛博朋克早期形态
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
