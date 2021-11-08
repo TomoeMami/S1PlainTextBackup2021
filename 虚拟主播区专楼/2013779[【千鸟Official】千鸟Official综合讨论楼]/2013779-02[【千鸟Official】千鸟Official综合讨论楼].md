@@ -4731,3 +4731,56 @@ WOC,原~!这不给她引波大的.........炸弹.<img src="https://static.saraba
 昨天没test嘛</blockquote>
 文静直播间刷太快了，co宝没开弹幕姬，我以为我还活着
 
+
+
+*****
+
+####  lunaticfear  
+##### 2024#       发表于 2021-11-8 22:47
+
+草，虽然之前听过白白4.0唱歌但是今天这个也太反差了
+
+*****
+
+####  夜潇箫  
+##### 2025#       发表于 2021-11-8 22:52
+
+不会4.0才是本音吧?
+
+*****
+
+####  complion  
+##### 2026#       发表于 2021-11-8 22:57
+
+<blockquote>夜潇箫 发表于 2021-11-8 22:52
+不会4.0才是本音吧?</blockquote>
+这个就是本音啊，傻子声线是夹出来的。
+
+*****
+
+####  rgauss  
+##### 2027#       发表于 2021-11-8 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">莫洛骑士原来是立刻白
+
+*****
+
+####  莫洛骑士  
+##### 2028#       发表于 2021-11-8 23:01
+
+发不了弹幕我好急啊啊啊啊啊
+
+*****
+
+####  夜潇箫  
+##### 2029#       发表于 2021-11-8 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我怎么感觉白白才是她们五个人里面最成熟的那个
+
+*****
+
+####  灰色的狐狸  
+##### 2030#       发表于 2021-11-8 23:05
+
+莫洛骑士暴露<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

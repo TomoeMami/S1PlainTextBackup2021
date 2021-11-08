@@ -7855,3 +7855,46 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 查看全部评分
 
+
+
+*****
+
+####  天神十三煞  
+##### 705#         楼主| 发表于 2021-11-8 22:52
+
+200级应该是第一转，加1星
+
+话说感觉贴吧的不太适合挂机，或者说只适合雪佛兰挂技能点
+
+但是吉普我已经点累了，感觉单抽也够了，多刷点经验也行，sesto辅助全开都经常滑出去
+
+主要末端弯太急，而且还有泥土地，批站版有无AI的50圈图了吗，等一个挂机
+
+*****
+
+####  4ckc  
+##### 706#       发表于 2021-11-8 22:54
+
+草，新解锁的每日任务似乎有bug完成不了，要撞5个电话亭我撞了20个都没完成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Totokei  
+##### 707#       发表于 2021-11-8 23:03
+
+<img src="https://p.sda1.dev/3/9d884969daab7dc5a5f283c491c7ee33/Desktop Screenshot 2021.11.08 - 22.43.18.11 - 副本.png" referrerpolicy="no-referrer">
+
+想知道是我的设定出了什么问题还是这一作就是这样的，这个光影给我一种FH1乃至NFS9那种年代的灰蒙蒙的感觉...
+
+*****
+
+####  Totokei  
+##### 708#       发表于 2021-11-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469261&amp;ptid=2033303" target="_blank">虚无连斩 发表于 2021-11-8 22:07</a>
+
+橡皮筋绑住手柄，跑大概4圈左右就断开连接……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">xbox手柄的话可以用硬币卡住rt扳机
+
