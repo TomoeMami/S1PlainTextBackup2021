@@ -17275,3 +17275,38 @@ So this anon in the other thread said she has a perfect valid secret reason her 
 Of course, neither the fans nor herself can't be bothered to tell somehow.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是上当被骗了，可恶的百鬼组。
 
+
+
+*****
+
+####  cctvyt1  
+##### 13444#       发表于 2021-11-8 19:41
+
+Here are some FACTS about Ayame
+
+- She might not care about streaming, this is true
+
+- She cares a lotabout the idol side of hololive
+
+- She doesn't like a majority of the fans, this is also true. She only likes her sycophants
+
+- She does not have a boyfriend (currently. if she did they broke up sometime last year)
+
+- She doesn't like collabing
+
+- She is a perfectionist, which might coincide with her lack of streams
+
+- She doesn't care about some of the other girls in hololive
+
+- She's not a racist, she likes foreign things too
+
+- She's a narcissist
+
+- She's a numberfag
+
+- She wants to beat (You) up
+
+绫总数字厨的名号也传到海外了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 4ch也太情弱 21年了还在紫宝大学生
+
