@@ -7095,3 +7095,19 @@ fe版和原厂车性能有区别吗？
 受不了顶级ai可以先收藏个高等级调校然后用自己改的低等级进图，开始前最后的设置界面进调校按空格加载收藏 ...</blockquote>
 试了试还真行，老爷车狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  janet_ddr  
+##### 633#       发表于 2021-11-8 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53457559&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 06:03</a>
+
+我怀疑是端口占用
+
+比如啥橘子或旺旺的后台
+
+我把所有嫌疑的后台进程都给结束任务</blockquote>
+应该是bug被修复了，PG有在游戏内发邮件说明。
+

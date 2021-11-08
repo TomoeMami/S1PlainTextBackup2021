@@ -3623,3 +3623,24 @@ BV1Sh411t7aD
 
 没有静静的第一天 想她
 
+
+
+*****
+
+####  魔法少女大头  
+##### 1917#       发表于 2021-11-8 09:02
+
+奠。
+文静离我而去的第一天
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  莫洛骑士  
+##### 1918#       发表于 2021-11-8 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53457969&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-7 20:33</a>
+怎么文静多出来个学医的小男友，她不是说喜欢学医的而已吗</blockquote>
+因为喜欢就会有
+
