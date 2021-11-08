@@ -3438,3 +3438,48 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 当然，你这种话说的越多越体现出傻逼本质的人倒是不多见，可能之前像你这么贱的已经被打死了
 
+
+
+*****
+
+####  星降る森  
+##### 4806#       发表于 2021-11-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464318&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-8 16:01</a>
+
+我再给你解释一下，我从来没说过梗才是唯一能火火的长久的方法，但是国内环境就是有梗比没梗火的容易，你 ...</blockquote>
+有梗的容易又如何呢？一阵狂欢，什么都没留下，流行词换了几茬了，真的因为网络热词收益到现在的有几个？鲤鱼作为一个热门企划的中国人声优，本身还是知名COSER，早就已经不需要靠梗来刷存在感了，就你觉得需要。
+
+梗小鬼帽子你倒是甩的快，可惜你越说离傻逼梗小鬼的形象越近，你要加个与众不同的定语，那大概是会上S1的巨魔梗小鬼，就这样。
+
+*****
+
+####  Norkey1  
+##### 4807#       发表于 2021-11-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464923&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 16:42</a>
+笑死，那你不如去告我一下咯，挂我一下也成，我怕你吗？
+
+当然，你这种话说的越多越体现出傻逼本质的人倒 ...</blockquote>
+我只是复读了一下你说的话…你也知道这句话傻逼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 4808#       发表于 2021-11-8 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465036&amp;ptid=2028598" target="_blank">星降る森 发表于 2021-11-8 16:49</a>
+有梗的容易又如何呢？一阵狂欢，什么都没留下，流行词换了几茬了，真的因为网络热词收益到现在的有几个？ ...</blockquote>
+网络热词带来的网红效应效果很好，被吸引的路人会有一部分人转为核心粉丝，你一个偶像企划搞动画也是为了吸引路人对吧。你为什么一定要代表鲤鱼发言呢？她真不需要曝光度存在感她也不会去上日本综艺了好吗，我看就你觉得不需要吧。
+你微博我看了下，明明没有人说过梗是唯一火的办法，你非得那么说虚空打靶，然后一堆人转发，典中典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让想起了我想起了我不看微博的初心
+
+*****
+
+####  星降る森  
+##### 4809#       发表于 2021-11-8 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462227&amp;ptid=2028598" target="_blank">Norkey1 发表于 2021-11-8 13:36</a>
+
+有梗才能火的久，吸引路人啊，你猜猜为什么萌p要反复强调iphone。梗度不行=你鲤鱼姐接不下来达不到节目效 ...</blockquote>
+今天看下来就你在破大防，真是笑死我，另一位立场也是不刷任何梗，只是表达有问题，你呢，越回越魔怔，还自我感觉良好<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，不要把人家拉出来，你还没资格和他比呢
+

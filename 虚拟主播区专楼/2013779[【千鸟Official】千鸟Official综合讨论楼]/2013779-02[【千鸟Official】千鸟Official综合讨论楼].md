@@ -4376,3 +4376,85 @@ nmmd 为什么今下午我有课 看不了直播我玉玉了
 co直播哭丧：“都怪你们给我打钱，我压力太大了呜呜呜呜呜呜呜”“怎么样这个演技，比……算了不说了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 感觉co宝看相声是有效果的
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 1990#       发表于 2021-11-8 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464807&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-8 16:32</a>
+
+今天直播节目效果太乐了
+
+co直播哭丧：“都怪你们给我打钱，我压力太大了呜呜呜呜呜呜呜”“怎么样这 ...</blockquote>
+co宝其实讲相声还是可以的
+
+就是大部分时候太混了。。
+
+*****
+
+####  tankai  
+##### 1991#       发表于 2021-11-8 16:47
+
+弹幕鸡有延迟吗?弹幕飘过去一会儿,才在弹幕鸡上看见.
+
+*****
+
+####  小憨1  
+##### 1992#       发表于 2021-11-8 16:48
+
+弹幕姬延迟取决于直播间开的延迟
+
+*****
+
+####  tankai  
+##### 1993#       发表于 2021-11-8 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464490&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-8 16:12</a>
+
+千鸟巨炮在co宝直播间爆金币了
+
+250个牛蛙</blockquote>
+这妖批,封了也能说话啊?
+
+*****
+
+####  rgauss  
+##### 1994#       发表于 2021-11-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465027&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-8 16:48</a>
+这妖批,封了也能说话啊?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家只是封了直播间
+
+*****
+
+####  tankai  
+##### 1995#       发表于 2021-11-8 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465037&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-8 16:49</a>
+
+人家只是封了直播间</blockquote>
+我以为B站封就是全封几天呢.
+
+*****
+
+####  夜之中道崩殂  
+##### 1996#       发表于 2021-11-8 16:51
+
+受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，之前贴吧想替主播联系别的箱，现在nga静楼更狠，帮主播想好转生怎么联系做新皮了，笑死我了
+
+*****
+
+####  gawain039  
+##### 1997#       发表于 2021-11-8 16:56
+
+白白开始逗狗了
+
+*****
+
+####  rgauss  
+##### 1998#       发表于 2021-11-8 17:03
+
+两眼一黑 我玉玉了
+

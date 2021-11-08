@@ -7556,3 +7556,41 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下
 这挂一活，手柄自己休眠了咋办</blockquote>
 压住摇杆 就和原来孵蛋一样
 
+
+
+*****
+
+####  redsibyl  
+##### 679#       发表于 2021-11-8 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464884&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-8 16:38</a>
+压住摇杆 就和原来孵蛋一样</blockquote>
+。。。。騜md，老子已经压了？不然挂jb呢
+
+*****
+
+####  天神十三煞  
+##### 680#         楼主| 发表于 2021-11-8 16:48
+
+刚才刷了十把jeep willy的超级摇摇乐
+
+然后出了个sesto，还有一部法拉利加尼福利亚250 1957，就是车展里第三贵那个
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+太离谱了
+
+挂一个晚上感觉啥都有了
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  4ckc  
+##### 681#       发表于 2021-11-8 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464820&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-8 16:33</a>
+xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算了，其实我知道是我网络比较奇葩的锅
+先刷单机吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
