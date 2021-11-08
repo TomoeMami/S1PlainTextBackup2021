@@ -2608,3 +2608,12 @@ ll弹幕五学家也太多了，二创视频也是和五共联动的也不少
 实质就是小〇合和〇鱼吧
 牙白哟牙白哟
 
+
+
+*****
+
+####  soranoguiji  
+##### 4734#       发表于 2021-11-8 07:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 到最后鲤鱼的压力还是要来自国内受众，不管好的还是坏的
+
