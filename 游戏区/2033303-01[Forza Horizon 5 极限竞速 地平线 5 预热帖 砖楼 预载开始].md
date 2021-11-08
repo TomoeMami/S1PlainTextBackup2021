@@ -7662,3 +7662,20 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 我现在都刷经验和钱，自带升级只有单摇但不用来回点车升级
 
+
+
+*****
+
+####  danduyao  
+##### 688#       发表于 2021-11-8 18:43
+
+<img src="https://img.saraba1st.com/forum/202111/08/184131u2yyplp2azzpamxa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4C833BC1-7F32-442C-8FAA-92F73936B6DB.jpeg</strong> (730.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 18:41 上传
+
+问一下我分辨率只是1080p，为什么显存占用那么高啊，不过特效是全部调满，显卡是3070。
+

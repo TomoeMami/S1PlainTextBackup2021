@@ -9674,3 +9674,14 @@ unit组第一是原来entum的御来屋久远姐俩，第二居然是麟犀，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西语大开发除了wactor，四小姐和诗子姐都搞过，就结果来说对点击确实有用
 
+
+
+*****
+
+####  rzrbtk  
+##### 8205#       发表于 2021-11-8 18:56
+
+<blockquote>fastary 发表于 2021-11-8 09:25
+虚空喊话郡推，老师说今天有月樱是真的吗？我看推上好多人在说，不过六个人推特都没提…… ...</blockquote>
+郡今天提了一嘴，好像因为日程问题无了？不过游戏都商量好了哪天有空再开就行了吧，这几天大会呢
+

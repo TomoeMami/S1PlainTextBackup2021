@@ -719,3 +719,15 @@ CD和黑胶半斤八两，取向不同。但是，DSD的确细节秒一切，就
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  费老师  
+##### 67#       发表于 2021-11-8 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53466777&amp;ptid=2036345" target="_blank">zris 发表于 2021-11-8 18:37</a>
+
+我自己听起来，算是全面黑胶包圆cd了。dsd就不谈了，sony精选的dsd256 维尔瓦第四季，听起来还不如sony自 ...</blockquote>
+那就是你设备有问题
+

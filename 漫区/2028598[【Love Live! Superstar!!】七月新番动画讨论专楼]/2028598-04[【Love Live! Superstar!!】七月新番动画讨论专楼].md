@@ -3525,3 +3525,24 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 相比之下我觉得ksj还稍微好一点了（可能我不太看评论，还没怎么看烦）
 
+
+
+*****
+
+####  中野四葉  
+##### 4813#       发表于 2021-11-8 19:02
+
+ 本帖最后由 中野四葉 于 2021-11-8 19:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">本来只是围观的，微博首页又转发了新高论实在蚌埠住了。
+
+首先老哥你之前把讨论楼里本身的内容截了不够还特地把id也截全了，你说不是挂人那就不是吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+删了之后还特地提一嘴生怕别人不知道你在对楼友网开一面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骂骂咧咧地然后开始写自己的观点。跨平台对线最要命的就是信息不给全，让旁观者看着你打完枪之后画的靶子评头论足，属实是拿捏到意见领袖输出观点的精髓了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回到楼里争论的内容，看得出老哥之前被梗小鬼烦的快ptsd了，看见楼里对梗本身进行评论就产生了“弱智梗该死→你居然只是说这梗有点蠢→说明你对玩（烂）梗本身没意见→你和梗小鬼是同路人”的滑破，然后就喷起来了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

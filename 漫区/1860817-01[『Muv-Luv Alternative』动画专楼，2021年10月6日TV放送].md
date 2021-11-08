@@ -19164,3 +19164,18 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  freyja_wion  
+##### 1331#       发表于 2021-11-8 18:56
+
+2001年12月1日。白銀武の「元の世界の自分に聞け」との言葉から着想を得た香月夕呼は、オルタネイティヴIVの鍵を握る数式を回収するために武を元の世界に戻す実験を行う。
+
+　実験には武が社霞と同じ部屋で暮らすことも含まれていて――
+
+<img src="https://p.sda1.dev/3/c9edee0d446d6e2710a7c53d2d5c1ee8/IMG_CMP_33688693.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/84e839dbd743bbbf75f1587e52157702/02_CYq0O2iOyj7hBS-AbEASXFGIXL40cgTB.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
