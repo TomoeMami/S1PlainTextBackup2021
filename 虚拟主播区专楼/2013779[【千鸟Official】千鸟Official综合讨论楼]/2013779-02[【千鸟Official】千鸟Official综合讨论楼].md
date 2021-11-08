@@ -3701,3 +3701,24 @@ syl停尸间里不会有人在意这些的
 
 合理怀疑这是为了给其它团员引流，错过昨晚co宝直播的我已经在补录播了
 
+
+
+*****
+
+####  rgauss  
+##### 1924#       发表于 2021-11-8 10:45
+
+ 本帖最后由 rgauss 于 2021-11-8 10:50 编辑 
+
+本来想写文静的鸭肠的，但想了半天，不知道结尾咋加。也不知道咋写自己的称谓，我是个废物。
+syl 那种大面积的花海是真的好看，很容易让人沉迷其中，可惜我只看过一次花海，也没那么大。
+
+*****
+
+####  rgauss  
+##### 1925#       发表于 2021-11-8 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459639&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-8 10:43</a>
+合理怀疑这是为了给其它团员引流，错过昨晚co宝直播的我已经在补录播了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co的直播大多都是混时长的
+

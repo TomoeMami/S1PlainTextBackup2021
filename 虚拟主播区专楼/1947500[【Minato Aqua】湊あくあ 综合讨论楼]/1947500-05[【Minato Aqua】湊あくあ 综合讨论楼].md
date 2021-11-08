@@ -13656,3 +13656,38 @@ crew和阿夸迟早要疯一个<img src="https://static.saraba1st.com/image/smil
 
 结果是live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  17119854  
+##### 7094#       发表于 2021-11-8 10:44
+
+写在标题可还行，那直播内容是什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fangjun96  
+##### 7095#       发表于 2021-11-8 10:52
+
+ 本帖最后由 fangjun96 于 2021-11-8 10:54 编辑 
+
+评论区确实关了，这下真menhera了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来确实得疯一个
+
+*****
+
+####  nian1538  
+##### 7096#       发表于 2021-11-8 10:54
+
+Live也能突击的吗，服了
+能不能好好学学社里其他人是怎么做前期宣传的啊
+
+*****
+
+####  Scardy  
+##### 7097#       发表于 2021-11-8 11:00
+
+晚上看看播什么能让人鸽了歌回去准备的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

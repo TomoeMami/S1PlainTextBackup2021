@@ -2840,3 +2840,84 @@ iphone shower萌p自己上节目提出来这种还好，汉堡肉这个真的烂
 
 我微博首页倒是还没刷到<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 4755#       发表于 2021-11-8 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459547&amp;ptid=2028598" target="_blank">zylwz 发表于 2021-11-8 10:38</a>
+一点没少
+
+基本都是被踩下去和出警删除的</blockquote>
+这样，我一般只看前面几条热评的，不会往下刷，那情况也算有所好转，抢不到热评后梗小鬼可能不久就会腻了，之前只要发口水巾搞个接龙就能上热评才是真的烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 4756#       发表于 2021-11-8 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459667&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-8 10:44</a>
+
+这样，我一般只看前面几条热评的，不会往下刷，那情况也算有所好转，抢不到热评后梗小鬼可能不久就会腻了 ...</blockquote>
+看些其他up的切片还是会有人刷ksj的 那种地方一半就管的少一点
+
+*****
+
+####  lj205  
+##### 4757#       发表于 2021-11-8 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难得找到个能愉快讨论星团和鲤鱼的小地方，要吵要喷都楼里说就是，没必要搞成这样
+
+*****
+
+####  D麦林  
+##### 4758#       发表于 2021-11-8 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459636&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-11-8 10:43</a>
+你直接搜对线的那位的昵称，微博大概能直接搜到吧，不过我是关注了其他人看到转发里熟悉的s1背景 ...</blockquote>
+草还真是 麻了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+算了 反正苍天为鉴我从来没在不相关的地方刷过这两个梗 ksj更是只在qq群玩过一次
+挂就挂吧我也不跨坛对线了
+
+*****
+
+####  cybernetics31  
+##### 4759#       发表于 2021-11-8 10:53
+
+没找到…………但没必要挂微博吧………………
+
+*****
+
+####  chenflyyy  
+##### 4760#       发表于 2021-11-8 10:53
+
+微博那位看id楼里有出现，就在上一页末，有什么意见好好讨论就行了，没必要到微博挂人吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 4761#       发表于 2021-11-8 10:54
+
+互联网冲浪十几年没想到第一次被挂是这种原因
+
+老天有眼我可是两个月前就开始帮忙把无脑复读ksj的往下踩了 怎么还会因为争论这个被挂的
+
+*****
+
+####  lj205  
+##### 4762#       发表于 2021-11-8 10:56
+
+大概是因为拿了逢田的汉堡梗做对比
+
+*****
+
+####  player3960  
+##### 4763#       发表于 2021-11-8 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459895&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-08 10:56:32</a>
+大概是因为拿了逢田的汉堡梗做对比</blockquote>小百合还天天汉堡肉呢，逢田厨怎么想呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
