@@ -7463,3 +7463,21 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 把那些疑似会进行网络通信或占用端口的非系统后台进程都给停了再试试
 
+
+
+*****
+
+####  萱时令  
+##### 670#       发表于 2021-11-8 16:07
+
+隔壁看到说买车直接在图鉴买
+试了下确实可以连着买不用切来切去 车库里还有新车标识不会乱
+刷抽奖越来越好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jpiajwopdm  
+##### 671#       发表于 2021-11-8 16:11
+
+这代还会有阿尔法罗密欧么，上代的giulia好开到离谱，怀念
+

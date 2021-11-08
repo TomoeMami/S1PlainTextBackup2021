@@ -4305,3 +4305,63 @@ cj发言完毕肯定是需要中之人拆台啊<img src="https://static.saraba1s
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  小憨1  
+##### 1982#       发表于 2021-11-8 16:12
+
+千鸟巨炮在co宝直播间爆金币了
+250个牛蛙
+<img src="https://p.sda1.dev/3/2c9ccd6d91c80b225e0dd9a9672cb1dc/5f4415d2a46da81b.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 1983#       发表于 2021-11-8 16:15
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-8 16:17 编辑 
+
+巨炮狂暴鸿儒25块钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl原来今天周一啊，画师不来我都忘了她们今天休息
+
+*****
+
+####  rgauss  
+##### 1984#       发表于 2021-11-8 16:18
+
+nmmd 为什么今下午我有课 看不了直播我玉玉了
+
+*****
+
+####  小憨1  
+##### 1985#       发表于 2021-11-8 16:20
+
+我超，OP！<img src="https://p.sda1.dev/3/41eb9e5771ba57e19c0994fd3c6c2f12/10d8239f5721ce2f.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 1986#       发表于 2021-11-8 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464618&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-8 16:20</a>
+我超，OP！</blockquote>
+别噶黑 早锐评了
+
+*****
+
+####  灰色的狐狸  
+##### 1987#       发表于 2021-11-8 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艾白已经不敢姓艾了
+
+*****
+
+####  tankai  
+##### 1988#       发表于 2021-11-8 16:27
+
+毕竟当了三年V,什么风浪没见过?
+
+文静错位到7.1唱歌后遇到将离红SC后不知道会怎么处理.
+
