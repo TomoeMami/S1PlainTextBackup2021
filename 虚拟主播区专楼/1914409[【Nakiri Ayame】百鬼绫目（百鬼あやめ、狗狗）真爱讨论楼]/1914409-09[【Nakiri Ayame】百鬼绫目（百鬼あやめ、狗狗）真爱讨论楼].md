@@ -17263,3 +17263,15 @@ https://boards.4channel.org/vt/thread/12680502/
 
 乐了，好像百鬼组知道一样
 
+
+
+*****
+
+####  stedckk  
+##### 13443#       发表于 2021-11-8 19:39
+
+So this anon in the other thread said she has a perfect valid secret reason her fans has been told and accept but you have to watch a paywalled member stream to know.
+
+Of course, neither the fans nor herself can't be bothered to tell somehow.
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是上当被骗了，可恶的百鬼组。
+
