@@ -7282,3 +7282,50 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 试驾开柯尼塞格让我8次险象环生，尼玛我从头跑到尾两次，一辆npc都没有？</blockquote>
 应该是bug，我前天玩也是一个npc没有，昨天再跑就正常了
 
+
+
+*****
+
+####  舌怪  
+##### 652#       发表于 2021-11-8 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462203&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-8 13:33</a>
+
+这ai跑泥地太猛了，苦行全靠铺装路面才跑到第一，一进泥地听到后车逐渐接近的引擎声感觉堪比恐怖片 ...</blockquote>
++10086
+
+其实铺装路面上ai只是过弯没那么过分，直线上也是随时鬼畜加速……
+
+*****
+
+####  萱时令  
+##### 653#       发表于 2021-11-8 14:06
+
+自动挂机真是太舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+昨天刷漂移的我像个<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萱时令  
+##### 654#       发表于 2021-11-8 14:09
+
+贴吧有人做的自动图更好一点 各种时间的版本都有 起步就自动 楼里视频那个起步还要手动
+等明天说不定有更好的<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 655#         楼主| 发表于 2021-11-8 14:10
+
+放置游戏
+
+迫真
+
+*****
+
+####  爱护动物抓根宝  
+##### 656#       发表于 2021-11-8 14:16
+
+苦行下坡漂移那段是最爽的，最后冲刺才是恐怖游戏，明明泥地甩开了一大截然后就听着后车的声音越来越近。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+4代我记得没这么变态的辅助吧，没想到这一代这么强，回家试试。
+
