@@ -7397,3 +7397,15 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 赛博朋克早期形态
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenyuhao467  
+##### 663#       发表于 2021-11-8 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463226&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 14:53</a>
+都在这 车选其他的也行 都自动了我已经不在意效率了</blockquote>
+我早上已经跑过一次50圈了，就用的雪弗兰7倍车，跑到40圈左右经常出现串流带宽不足<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+然后结算大概是升了60多级，点数是780点左右
+
