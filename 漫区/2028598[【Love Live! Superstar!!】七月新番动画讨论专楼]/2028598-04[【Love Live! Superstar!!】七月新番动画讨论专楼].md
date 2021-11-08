@@ -3546,3 +3546,27 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 4814#       发表于 2021-11-8 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53467086&amp;ptid=2028598" target="_blank">中野四葉 发表于 2021-11-8 19:02</a>
+本来只是围观的，微博首页又转发了新高论实在蚌埠住了。
+
+首先老哥你之前把讨论楼里本身的内容截了不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是老哥看的清
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4815#       发表于 2021-11-8 21:08
+
+话说有问题楼里解决不好吗？跨平台我觉得这样不好，都说清楚不好吗？都是共同喜欢同一部作品，理性讨论，这不也挺好吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
