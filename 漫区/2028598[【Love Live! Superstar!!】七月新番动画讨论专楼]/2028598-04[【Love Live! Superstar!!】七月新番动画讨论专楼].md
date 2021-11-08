@@ -3057,3 +3057,36 @@ https://share.api.weibo.cn/shar ...</blockquote>
 才发现鲤鱼1月9号在宫城结束1st的最后一场隔天还要赶回东京开台历的发售纪念会，也太忙了吧，9号还是人家生日<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/633a3d038183f93bc19f4123926d36d5/IMG_CMP_242752051.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4777#       发表于 2021-11-8 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460846&amp;ptid=2028598" target="_blank">chenflyyy 发表于 2021-11-8 11:52</a>
+
+才发现鲤鱼1月9号在宫城结束1st的最后一场隔天还要赶回东京开台历的发售纪念会，也太忙了吧，9号还是人家生 ...</blockquote>
+你这LAG多久了？早吐槽过了，不过看时间安排是下午，应该一早新干线回东京然后直奔秋叶原
+
+话说23号鲤鱼自己的生放募集职场烦恼，我是打算投稿了，但还在烦恼说个啥。公司职场她没呆过，也不能深入说，也不能说的复杂
+
+*****
+
+####  chenflyyy  
+##### 4778#       发表于 2021-11-8 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53461130&amp;ptid=2028598" target="_blank">lj205 发表于 2021-11-8 12:09</a>
+你这LAG多久了？早吐槽过了，不过看时间安排是下午，应该一早新干线回东京然后直奔秋叶原
+
+话说23号鲤鱼 ...</blockquote>
+没注意到有人发过，刚闲着翻liyuu_staff的推才看到的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+投稿应该可以投中文吧，我也试着去投一个
+
+*****
+
+####  离心  
+##### 4779#       发表于 2021-11-8 12:17
+
+麻了，我去准备开新楼了。
+
