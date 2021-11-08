@@ -4365,3 +4365,14 @@ nmmd 为什么今下午我有课 看不了直播我玉玉了
 
 文静错位到7.1唱歌后遇到将离红SC后不知道会怎么处理.
 
+
+
+*****
+
+####  小憨1  
+##### 1989#       发表于 2021-11-8 16:32
+
+今天直播节目效果太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+co直播哭丧：“都怪你们给我打钱，我压力太大了呜呜呜呜呜呜呜”“怎么样这个演技，比……算了不说了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉co宝看相声是有效果的
+

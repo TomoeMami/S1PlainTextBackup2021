@@ -7481,3 +7481,78 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 这代还会有阿尔法罗密欧么，上代的giulia好开到离谱，怀念
 
+
+
+*****
+
+####  mwj  
+##### 672#       发表于 2021-11-8 16:27
+
+<blockquote>haru橙子 发表于 2021-11-8 16:03
+游戏里叫嘉年华播放列表，全版本都带的</blockquote>
+感觉这里是不是翻译错了，应该是游玩列表吧......
+
+*****
+
+####  4ckc  
+##### 673#       发表于 2021-11-8 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464726&amp;ptid=2033303" target="_blank">mwj 发表于 2021-11-8 16:27</a>
+感觉这里是不是翻译错了，应该是游玩列表吧......</blockquote>
+都是机翻不要在意细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  redsibyl  
+##### 674#       发表于 2021-11-8 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463226&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 14:53</a>
+都在这 车选其他的也行 都自动了我已经不在意效率了</blockquote>
+这挂一活，手柄自己休眠了咋办
+
+*****
+
+####  4ckc  
+##### 675#       发表于 2021-11-8 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464377&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 16:05</a>
+你看下我前面几十楼某层回复，
+
+把那些疑似会进行网络通信或占用端口的非系统后台进程都给停了再试试</blockquote>
+xsx主机怎么操作这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qianoooo  
+##### 676#       发表于 2021-11-8 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464792&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-8 16:31</a>
+
+xsx主机怎么操作这个
+
+—— 来自 S1Fun</blockquote>
+xsx先看网络类型是不是开放吧 实在不行dmz映射一下
+
+*****
+
+####  萱时令  
+##### 677#       发表于 2021-11-8 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464781&amp;ptid=2033303" target="_blank">redsibyl 发表于 2021-11-8 16:31</a>
+这挂一活，手柄自己休眠了咋办</blockquote>
+用键鼠 宏
+
+*****
+
+####  qianoooo  
+##### 678#       发表于 2021-11-8 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464781&amp;ptid=2033303" target="_blank">redsibyl 发表于 2021-11-8 16:31</a>
+
+这挂一活，手柄自己休眠了咋办</blockquote>
+压住摇杆 就和原来孵蛋一样
+
