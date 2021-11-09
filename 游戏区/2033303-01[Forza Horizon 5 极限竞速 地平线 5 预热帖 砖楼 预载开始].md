@@ -8694,3 +8694,54 @@ xbox群
 
 人均二战老兵了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  动力装甲  
+##### 784#       发表于 2021-11-9 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475515&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-9 13:48</a>
+话说forza hub里怎么还是没有fh5的影子</blockquote>
+这个软件已经废止了，以后和新作不发生关联
+
+*****
+
+####  舌怪  
+##### 785#       发表于 2021-11-9 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476804&amp;ptid=2033303" target="_blank">动力装甲 发表于 2021-11-9 15:29</a>
+
+这个软件已经废止了，以后和新作不发生关联</blockquote>
+我草
+
+*****
+
+####  onlv星骸  
+##### 786#       发表于 2021-11-9 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">有没有用nspro玩xgpc版成功了的。。 试了n种办法，用映射软件就显示未连接控制器太蠢了。。
+
+*****
+
+####  lotusaelise  
+##### 787#       发表于 2021-11-9 15:41
+
+行吧 也就每周15万的羊毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qianoooo  
+##### 788#       发表于 2021-11-9 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476968&amp;ptid=2033303" target="_blank">onlv星骸 发表于 2021-11-9 15:39</a>
+有没有用nspro玩xgpc版成功了的。。 试了n种办法，用映射软件就显示未连接控制器太蠢了。。 ...</blockquote>
+从steam进游戏
+
+*****
+
+####  漫漫来  
+##### 789#       发表于 2021-11-9 15:44
+
+这游戏自由视角一定要右摇杆前推才行吗？漫游模式看风景太难受了
+

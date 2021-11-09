@@ -768,3 +768,41 @@ c1 b站看小包评测的游戏主机设置，目前感觉良好。</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 71#         楼主| 发表于 2021-11-9 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474879&amp;ptid=2036345" target="_blank">Mchaos 发表于 2021-11-9 12:51</a>
+
+5200入的x90j现在看来就该咬咬牙加2500入c1
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">说真的，确实应该上oled
+
+除非是真的是LCD神教，不然玩OLED没毛病
+
+*****
+
+####  拉沃契金  
+##### 72#       发表于 2021-11-9 15:41
+
+55寸的太小了对我来说，但大的又太贵
+归根结底还是我穷<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zris  
+##### 73#         楼主| 发表于 2021-11-9 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476992&amp;ptid=2036345" target="_blank">拉沃契金 发表于 2021-11-9 15:41</a>
+
+55寸的太小了对我来说，但大的又太贵
+
+归根结底还是我穷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我主要放卧室，就在床边，在我床中央盘腿，看着屏幕距离刚刚好
+
+我还嫌大了，想买48呢
+
