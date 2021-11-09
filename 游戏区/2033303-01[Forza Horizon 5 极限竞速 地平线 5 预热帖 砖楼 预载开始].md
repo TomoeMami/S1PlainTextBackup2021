@@ -8588,3 +8588,48 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 帮朋友问一下，XGP pc版本，XBOX XBOX主机小帮手两个都登录了，但是打开游戏显示无法登录地平线档案
 
+
+
+*****
+
+####  makece  
+##### 775#       发表于 2021-11-9 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474282&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-9 12:08</a>
+
+墨西哥有冬天么</blockquote>
+墨西哥的气候有垂直差异
+
+*****
+
+####  mcq_2  
+##### 776#       发表于 2021-11-9 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475114&amp;ptid=2033303" target="_blank">ETdiablo 发表于 2021-11-9 13:11</a>
+
+不行，早上想试着自动化出门上班。没开几圈手柄就断了。想着是不是在PC上也装一下.1060把画质开最 ...</blockquote>
+手柄插上线变成有线模式就不会断了
+
+*****
+
+####  齿轮轴君  
+##### 777#       发表于 2021-11-9 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475114&amp;ptid=2033303" target="_blank">ETdiablo 发表于 2021-11-9 13:11</a>
+不行，早上想试着自动化出门上班。没开几圈手柄就断了。想着是不是在PC上也装一下.1060把画质开最 ...</blockquote>
+是不是手柄接口接触不良？我昨晚挂了个50圈一觉起来收菜成功。
+
+*****
+
+####  mcq_2  
+##### 778#       发表于 2021-11-9 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473436&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 11:07</a>
+
+白嫖券根本不需要用
+
+最多自己花钱买个漂移方程式道奇viper 43#
+
+就这车也是送的，最后还要卖，你有自信拿其 ...</blockquote>
+上午刷了50圈送了50多次抽奖，以后打算每天刷150圈，然后看看抽奖情况在考虑买什么车。
+

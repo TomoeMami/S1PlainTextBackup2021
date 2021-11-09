@@ -9937,3 +9937,14 @@ icemega5也是18年就开始做3d的了，怎么还会闹出这种事<img src="h
 
 想起来是谁了 大姐粉丝 从给大姐做粉丝模型开始的 处女作元谋人大姐
 
+
+
+*****
+
+####  影山银  
+##### 8223#       发表于 2021-11-9 13:35
+
+<img src="https://p.sda1.dev/3/6a49bff7844dc97f9c275199fd25216b/IMG_CMP_180412257.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
