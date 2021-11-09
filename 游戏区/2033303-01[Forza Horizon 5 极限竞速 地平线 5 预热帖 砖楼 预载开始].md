@@ -8198,3 +8198,41 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 纠结免费券换什么车，你们呢？
 
+
+
+*****
+
+####  -SLSL-  
+##### 737#       发表于 2021-11-9 09:28
+
+我换了amg one，感觉不太行啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lisylfn  
+##### 738#       发表于 2021-11-9 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472125&amp;ptid=2033303" target="_blank">Paradox7 发表于 2021-11-9 09:12</a>
+
+新手有个问题，我ds4手柄接上电脑后 怎么才能选择用手柄玩啊，没有自动换过来 ...</blockquote>
+什么版本? win10还是steam, win10下ds4windows, steam打开steam ds4支持
+
+*****
+
+####  920619lqy  
+##### 739#       发表于 2021-11-9 09:33
+
+<blockquote>wzy200912345 发表于 2021-11-8 18:57
+不知道正式上线后新玩家看着满礼物箱的威利斯吉普和supra什么感受</blockquote>
+礼物x 丢垃圾o
+
+*****
+
+####  mcq_2  
+##### 740#       发表于 2021-11-9 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470913&amp;ptid=2033303" target="_blank">如月尤菲 发表于 2021-11-9 01:33</a>
+
+话说xsx版的画质和性能模式感觉看不出来啥区别</blockquote>
+你车子速度不够快而已
+
