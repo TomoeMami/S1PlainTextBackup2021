@@ -13934,3 +13934,14 @@ bilibili复活
 
 有既视感，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 7125#       发表于 2021-11-9 18:14
+
+先小摸半个月<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+之后的剧本：出来播一次歌回和一次mc，然后生日直播卖音声，再维持一周一到两播，live，小摸半个月，一次歌回一次mc，live，之后大摸小摸不确定。
+
