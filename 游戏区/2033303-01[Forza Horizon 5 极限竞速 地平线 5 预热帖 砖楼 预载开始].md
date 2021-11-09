@@ -8745,3 +8745,22 @@ xbox群
 
 这游戏自由视角一定要右摇杆前推才行吗？漫游模式看风景太难受了
 
+
+
+*****
+
+####  onlv星骸  
+##### 790#       发表于 2021-11-9 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53477007&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-9 15:42</a>
+
+从steam进游戏</blockquote>
+就是从steam进啊，费了半天劲用UMPHook把fh5添加到steam里了，然后进游戏一直提示控制器未连接，不让操作
+
+*****
+
+####  lilod  
+##### 791#       发表于 2021-11-9 15:54
+
+XGP for pc 到底怎么样才可以使用手柄啊。。其他游戏好好的，进地平线5手柄就是连接不上
+
