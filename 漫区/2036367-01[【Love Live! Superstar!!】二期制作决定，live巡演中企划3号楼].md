@@ -755,3 +755,16 @@ QQ图片20211109191246.jpg
 
 <img src="https://img.saraba1st.com/forum/202111/09/191308xgga2nytn4t2pb7g.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 64#       发表于 2021-11-9 20:58
+
+ 本帖最后由 chenflyyy 于 2021-11-9 21:02 编辑 
+
+这是飞去北海道了吗？live在周日还早吧
+看着像是海边，应该不是，可能是拍mv之类吧
+<img src="https://p.sda1.dev/3/7c34a0b7efa1b99e3d8e223d8545c6f8/IMG_CMP_61963295.jpeg" referrerpolicy="no-referrer">
+
