@@ -744,3 +744,14 @@ CD和黑胶半斤八两，取向不同。但是，DSD的确细节秒一切，就
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Mchaos  
+##### 69#       发表于 2021-11-9 12:51
+
+5200入的x90j现在看来就该咬咬牙加2500入c1<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

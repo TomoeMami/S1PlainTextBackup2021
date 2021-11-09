@@ -8531,3 +8531,41 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 讲道理，感觉这作的天气和地理环境之繁多是目前开放世界之最了
 
+
+
+*****
+
+####  mcq_2  
+##### 770#       发表于 2021-11-9 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474327&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 12:11</a>
+
+有的，只是可能没那么多雪
+
+讲道理，感觉这作的天气和地理环境之繁多是目前开放世界之最了</blockquote>
+气象条件对开车影响感觉还不够明显。比如地面打滑，风阻
+
+*****
+
+####  天神十三煞  
+##### 771#         楼主| 发表于 2021-11-9 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474881&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-8 20:51</a>
+
+气象条件对开车影响感觉还不够明显。比如地面打滑，风阻</blockquote>
+地面打滑比前几代明显多了，非四驱水渍直接灵车飘移
+
+至于风阻，建议去山顶跳几个台就感受得到了
+
+*****
+
+####  4ckc  
+##### 772#       发表于 2021-11-9 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474881&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-9 12:51</a>
+气象条件对开车影响感觉还不够明显。比如地面打滑，风阻</blockquote>
+打滑是真有的，不拿四驱跑立刻就很明显有感觉
+倒是各种恶劣天气的效果可能是为了游戏体验没有做得特别真实，比如沙暴正经应该是伸手不见五指的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
