@@ -937,3 +937,81 @@ B站号怎么也封了啊？当初罪大恶极的TSKK都没被封呢<img src="ht
 
 月翼佬又不关联其他账号，想挖不容易<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 73#       发表于 2021-11-10 00:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Zhudhh  
+##### 74#       发表于 2021-11-10 00:28
+
+<img src="https://img.saraba1st.com/forum/202111/10/002816vq8nyz6h8qtiikwq.jpg" referrerpolicy="no-referrer">
+
+<strong>287D19A8F97118F9C6522B1C5608320A.jpg</strong> (28.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 00:28 上传
+
+这条值得单列。乐不可支了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 狐言乱语| + 1|什么虚拟租界|
+
+查看全部评分
+
+*****
+
+####  屑屑代沟尼亚  
+##### 75#       发表于 2021-11-10 00:29
+
+ 本帖最后由 屑屑代沟尼亚 于 2021-11-10 00:30 编辑 
+
+都是万恶的美国公司逼的 他也不想的 入乡随俗懂不懂
+
+哦 我说的是tskk<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠吃火锅  
+##### 76#       发表于 2021-11-10 00:35
+
+这个月翼不会也是他马甲吧，重合点不少
+
+*****
+
+####  仙岳病患  
+##### 77#       发表于 2021-11-10 00:38
+
+不像，这个月翼幽龙看上去是连推都不会上的，消息全是三手
+除非是资深RP选手
+
+*****
+
+####  Dokiec  
+##### 78#       发表于 2021-11-10 00:39
+
+绷不住了 月翼大佐有猜想 那我也有一个猜想
+
+是不是他其实也是50w？
+
+*****
+
+####  wbzdwsmnmsl  
+##### 79#       发表于 2021-11-10 00:44
+
+乐，什么矛盾结合体
+

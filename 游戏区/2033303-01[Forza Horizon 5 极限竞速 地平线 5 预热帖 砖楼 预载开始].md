@@ -9098,3 +9098,14 @@ ds5手柄识别不了，吐了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经38分了，然而这仍然不包括过关挑战那3分，可见是刻意的冗余设计
 
+
+
+*****
+
+####  Vladimeow  
+##### 820#       发表于 2021-11-10 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482660&amp;ptid=2033303" target="_blank">团结奋进碇真嗣 发表于 2021-11-9 22:16</a>
+开了一个小时，这里边的车怎么都轻飘飘的。感觉不如极品14</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">极品14真就算了，地平线主要优点在于车多玩法多量大管饱，赛道当面手感那是没法和几个真实赛车比 不过街机赛车就属它了。
+

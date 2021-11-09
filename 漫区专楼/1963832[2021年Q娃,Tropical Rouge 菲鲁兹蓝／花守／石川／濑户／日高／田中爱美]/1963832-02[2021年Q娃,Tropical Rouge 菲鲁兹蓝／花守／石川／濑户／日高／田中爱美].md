@@ -10878,3 +10878,12 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 
 到头来人物塑造过于不平衡这点根本没改啊，尤其珊瑚估计得路人到底了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2293#       发表于 2021-11-10 00:40
+
+最期待的主线要来啦，不知道会有什么展开呢
+
