@@ -8118,3 +8118,30 @@ GT1到现在的7，职业生涯考证买车改车收集系统本质上也没什�
 
 还有传统的四类挑战，故事模式那些，要说系统玩法这系列能想出这么多幺蛾子组合跑法已经尽力了，奇奇怪怪的小游戏改的不好反而会引发抱怨。
 
+
+
+*****
+
+####  Existinghomes  
+##### 728#       发表于 2021-11-9 08:51
+
+ 本帖最后由 Existinghomes 于 2021-11-9 08:57 编辑 
+
+win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">查了下好像是微软商店的老_毛病了
+
+*****
+
+####  wzy200912345  
+##### 729#       发表于 2021-11-9 08:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道正式上线后新玩家看着满礼物箱的威利斯吉普和supra什么感受
+
+*****
+
+####  小张翔  
+##### 730#       发表于 2021-11-9 08:59
+
+用xsx刷图 手柄会断开连接咋办<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
