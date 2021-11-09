@@ -8795,3 +8795,31 @@ betterjoy
 不行，早上想试着自动化出门上班。没开几圈手柄就断了。想着是不是在PC上也装一下.1060把画质开最 ...</blockquote>
 我xsx插线就不断啊，至少跑50圈跑完
 
+
+
+*****
+
+####  lxx4869  
+##### 795#       发表于 2021-11-9 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473451&amp;ptid=2033303" target="_blank">没钱买手办 发表于 2021-11-9 11:08</a>
+
+你们掉线的问题都解决了吗，五分钟掉一下根本没法玩线上模式啊</blockquote>
+我重启系统啥都不开，直接运行游戏，成功完成了一场线上模式
+
+*****
+
+####  Luc  
+##### 796#       发表于 2021-11-9 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53477593&amp;ptid=2033303" target="_blank">紫水晶 发表于 2021-11-9 16:19</a>
+
+有没有xgp用ps4手柄的攻略
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+说说我自己的经验
+
+装个ds4windows，装好驱动之后在设置里打开hide ds4
+
+进游戏前点软件右下角stop停止手柄连接，进游戏之后再启用
+
