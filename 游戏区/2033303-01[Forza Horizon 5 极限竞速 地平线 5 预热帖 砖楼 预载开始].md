@@ -8145,3 +8145,56 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  有钱多买小人  
+##### 731#       发表于 2021-11-9 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470913&amp;ptid=2033303" target="_blank">如月尤菲 发表于 2021-11-9 01:33</a>
+话说xsx版的画质和性能模式感觉看不出来啥区别</blockquote>
+感觉性能模式尾翼锯齿更明显，炫光也比画质少得多。
+
+*****
+
+####  Totokei  
+##### 732#       发表于 2021-11-9 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一说怎么收礼物，看信息箱里也没有啊
+
+*****
+
+####  有钱多买小人  
+##### 733#       发表于 2021-11-9 09:11
+
+ 本帖最后由 有钱多买小人 于 2021-11-9 09:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472003&amp;ptid=2033303" target="_blank">小张翔 发表于 2021-11-9 08:59</a>
+用xsx刷图 手柄会断开连接咋办
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+插线不行？
+
+*****
+
+####  Paradox7  
+##### 734#       发表于 2021-11-9 09:12
+
+新手有个问题，我ds4手柄接上电脑后 怎么才能选择用手柄玩啊，没有自动换过来
+
+*****
+
+####  有钱多买小人  
+##### 735#       发表于 2021-11-9 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472107&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-9 09:10</a>
+这么一说怎么收礼物，看信息箱里也没有啊</blockquote>
+有两种礼物。一种是官方送的，从信息的礼物页面直接领。另一种是玩家送的，会有信息提示。有提示后去对应的车库宝物领。
+
+*****
+
+####  chan  
+##### 736#       发表于 2021-11-9 09:18
+
+纠结免费券换什么车，你们呢？
+
