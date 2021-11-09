@@ -8784,3 +8784,14 @@ betterjoy
 
 —— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  redsibyl  
+##### 794#       发表于 2021-11-9 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475114&amp;ptid=2033303" target="_blank">ETdiablo 发表于 2021-11-9 13:11</a>
+不行，早上想试着自动化出门上班。没开几圈手柄就断了。想着是不是在PC上也装一下.1060把画质开最 ...</blockquote>
+我xsx插线就不断啊，至少跑50圈跑完
+
