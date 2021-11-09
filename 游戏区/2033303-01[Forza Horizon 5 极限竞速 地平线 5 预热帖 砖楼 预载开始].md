@@ -8488,3 +8488,46 @@ v10的柯尼塞格简直是一块肥皂
 
 怀念三代的电台，打完游戏歌单多了快十首歌
 
+
+
+*****
+
+####  makece  
+##### 766#       发表于 2021-11-9 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470916&amp;ptid=2033303" target="_blank">asergh0630rx 发表于 2021-11-9 01:34</a>
+
+玩了一下墨西哥和澳大利亚好像啊，也没什么系统上的改进，又是跑飞机跑摩托车有点腻了。 ...</blockquote>
+澳大利亚那会没有四季
+
+*****
+
+####  紫水晶  
+##### 767#       发表于 2021-11-9 12:08
+
+sx微软，装了运行不了文件系统错误，重装又来个001错误
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  mcq_2  
+##### 768#       发表于 2021-11-9 12:08
+
+<blockquote>makece 发表于 2021-11-9 12:02
+澳大利亚那会没有四季</blockquote>
+墨西哥有冬天么
+
+*****
+
+####  天神十三煞  
+##### 769#         楼主| 发表于 2021-11-9 12:11
+
+ 本帖最后由 天神十三煞 于 2021-11-8 20:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474282&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-8 20:08</a>
+
+墨西哥有冬天么</blockquote>
+有的，只是可能没那么多雪
+
+讲道理，感觉这作的天气和地理环境之繁多是目前开放世界之最了
+
