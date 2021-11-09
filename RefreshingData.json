@@ -148,7 +148,7 @@
     "title": "[千年戦争アイギス 4.0（？）]",
     "lastedit": 1636283063,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1904462": {
@@ -156,7 +156,7 @@
     "title": "[专楼游戏王SEVENS]",
     "lastedit": 1636384065,
     "category": "漫区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1985030": {
@@ -172,7 +172,7 @@
     "title": "[Hololive English讨论楼]",
     "lastedit": 1636260031,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1989968": {
@@ -244,7 +244,7 @@
     "title": "[戰慄の解答編『寒蝉鸣泣之时 卒』专楼，7.1两集连播]",
     "lastedit": 1636389975,
     "category": "漫区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2006688": {
@@ -372,7 +372,7 @@
     "title": "[望月淳×骨头社 瓦尼塔斯的手记 2021.07.02放送  分割2期]",
     "lastedit": 1635865245,
     "category": "漫区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2014846": {
@@ -380,7 +380,7 @@
     "title": "[机战30发布会讨论贴，更新B站直播地址]",
     "lastedit": 1636389865,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2014516": {
@@ -388,7 +388,7 @@
     "title": "[原神（多平台）攻略讨论专楼#3（禁止新开讨论）]",
     "lastedit": 1636390835,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "1471785": {
@@ -420,7 +420,7 @@
     "title": "[虚拟次元计划／小希小桃专楼]",
     "lastedit": 1636025273,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2000603": {
@@ -452,7 +452,7 @@
     "title": "[再放送スレ]",
     "lastedit": 1636388829,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2013779": {
@@ -460,7 +460,7 @@
     "title": "[【千鸟Official】千鸟Official综合讨论楼]",
     "lastedit": 1636391063,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2009193": {
@@ -685,7 +685,7 @@
     "newtitle": "[]",
     "lastedit": 1636387585,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "1985955": {
     "totalreply": 991,
@@ -2365,7 +2365,7 @@
     "newtitle": "[]",
     "lastedit": 1635545285,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2031920": {
     "totalreply": 68,
@@ -6301,7 +6301,7 @@
     "newtitle": "[]",
     "lastedit": 1636381337,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2034321": {
     "totalreply": 216,
@@ -8493,7 +8493,7 @@
     "newtitle": "[]",
     "lastedit": 1636247019,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2035723": {
     "totalreply": 120,
@@ -8549,7 +8549,7 @@
     "newtitle": "[]",
     "lastedit": 1636081645,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035764": {
     "totalreply": 176,
@@ -8565,7 +8565,7 @@
     "newtitle": "[]",
     "lastedit": 1636100903,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035569": {
     "totalreply": 76,
@@ -8573,7 +8573,7 @@
     "newtitle": "[]",
     "lastedit": 1636260525,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035587": {
     "totalreply": 102,
@@ -8661,7 +8661,7 @@
     "newtitle": "[]",
     "lastedit": 1636121183,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035851": {
     "totalreply": 86,
@@ -8669,7 +8669,7 @@
     "newtitle": "[]",
     "lastedit": 1636333568,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035799": {
     "totalreply": 76,
@@ -8741,7 +8741,7 @@
     "newtitle": "[]",
     "lastedit": 1636103075,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035905": {
     "totalreply": 94,
@@ -8749,7 +8749,7 @@
     "newtitle": "[]",
     "lastedit": 1636123957,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035917": {
     "totalreply": 137,
@@ -8757,7 +8757,7 @@
     "newtitle": "[]",
     "lastedit": 1636337037,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035889": {
     "totalreply": 63,
@@ -8797,7 +8797,7 @@
     "newtitle": "[]",
     "lastedit": 1636333443,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035955": {
     "totalreply": 79,
@@ -8805,7 +8805,7 @@
     "newtitle": "[]",
     "lastedit": 1636164392,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2035936": {
     "totalreply": 70,
@@ -8813,7 +8813,7 @@
     "newtitle": "[]",
     "lastedit": 1636165605,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2035946": {
     "totalreply": 161,
@@ -8837,7 +8837,7 @@
     "newtitle": "[]",
     "lastedit": 1636202649,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036005": {
     "totalreply": 148,
@@ -8885,7 +8885,7 @@
     "newtitle": "[]",
     "lastedit": 1636298640,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036015": {
     "totalreply": 91,
@@ -8893,7 +8893,7 @@
     "newtitle": "[]",
     "lastedit": 1636256752,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035756": {
     "totalreply": 87,
@@ -8909,7 +8909,7 @@
     "newtitle": "[]",
     "lastedit": 1636184847,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036006": {
     "totalreply": 125,
@@ -8917,7 +8917,7 @@
     "newtitle": "[]",
     "lastedit": 1636357666,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2034822": {
     "totalreply": 69,
@@ -8973,7 +8973,7 @@
     "newtitle": "[]",
     "lastedit": 1636338368,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035991": {
     "totalreply": 68,
@@ -8989,7 +8989,7 @@
     "newtitle": "[]",
     "lastedit": 1636203984,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036098": {
     "totalreply": 117,
@@ -9005,7 +9005,7 @@
     "newtitle": "[]",
     "lastedit": 1636296415,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035931": {
     "totalreply": 76,
@@ -9013,7 +9013,7 @@
     "newtitle": "[]",
     "lastedit": 1636253206,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036111": {
     "totalreply": 100,
@@ -9077,7 +9077,7 @@
     "newtitle": "[]",
     "lastedit": 1636286770,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2035969": {
     "totalreply": 61,
@@ -9085,7 +9085,7 @@
     "newtitle": "[]",
     "lastedit": 1636256650,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036147": {
     "totalreply": 95,
@@ -9093,7 +9093,7 @@
     "newtitle": "[]",
     "lastedit": 1636336029,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036194": {
     "totalreply": 222,
@@ -9317,7 +9317,7 @@
     "newtitle": "[]",
     "lastedit": 1636352659,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2036337": {
     "totalreply": 90,
