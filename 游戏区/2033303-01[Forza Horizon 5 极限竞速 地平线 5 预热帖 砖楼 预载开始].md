@@ -9087,3 +9087,14 @@ ds5手柄识别不了，吐了
 
 折腾了好久总算把第二台车领了......
 
+
+
+*****
+
+####  nemunoki  
+##### 819#       发表于 2021-11-9 23:15
+
+，
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经38分了，然而这仍然不包括过关挑战那3分，可见是刻意的冗余设计
+

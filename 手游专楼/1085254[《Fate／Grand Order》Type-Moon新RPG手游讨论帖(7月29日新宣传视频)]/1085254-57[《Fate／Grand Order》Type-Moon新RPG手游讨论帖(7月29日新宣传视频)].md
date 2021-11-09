@@ -3266,3 +3266,13 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好急 等着11点最后一战大魔王
 
+
+
+*****
+
+####  alucardcz  
+##### 84269#       发表于 2021-11-9 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光妈最后的30石无事发生  
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">为什么届不到呢！
+

@@ -863,3 +863,21 @@ FDwV1GzakAEYMy_.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一半哪只有10粒啊
 
+
+
+*****
+
+####  lj205  
+##### 73#       发表于 2021-11-9 23:08
+
+毕竟贵价水果啊，念念不忘。
+
+明天我也去买一串吃，不过这葡萄今年国内出品都一般，我之前买了3斤吃下去感觉没去年的好，虽然价钱下来了
+
+*****
+
+####  lj205  
+##### 74#       发表于 2021-11-9 23:21
+
+查了一下时刻表，应该是飞冲绳了，看来事务所和烂铁挺愿意花钱的啊。飞那么频繁，可以考虑开张航司会员卡存航段升级，说不定后面回国内还给升个舱啥的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
