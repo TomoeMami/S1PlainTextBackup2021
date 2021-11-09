@@ -17396,3 +17396,12 @@ syl 4ch也太情弱 21年了还在紫宝大学生
 
 大家都有一样的未来<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  因为你不会  
+##### 13453#       发表于 2021-11-9 19:54
+
+绫总：别卍了，真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
