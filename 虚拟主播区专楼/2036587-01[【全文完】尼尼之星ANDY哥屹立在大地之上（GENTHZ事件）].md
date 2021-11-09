@@ -1258,3 +1258,16 @@ nga从有super权限的到普通warden隔一个杀一个怕是还有漏的
 
 管人把鬼变成人，原神把人变成鬼
 
+
+
+*****
+
+####  黑之和  
+##### 100#       发表于 2021-11-10 07:04
+
+你们说的这个王维还真是那个盗笔圈的王维啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+前几年开播去长白山堵三叔还历历在目，
+是管人！管人让你变成鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
