@@ -1128,3 +1128,45 @@ B站号怎么也封了啊？当初罪大恶极的TSKK都没被封呢<img src="ht
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 87#       发表于 2021-11-10 01:40
+
+<img src="https://img.saraba1st.com/forum/202111/10/013934px0xxfbxbpizpl0k.png" referrerpolicy="no-referrer">
+
+<strong>WZQX(3H08SJ6LG`4%V(39(T.png</strong> (10.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 01:39 上传
+
+是不是太监地太离谱了点<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yearmon  
+##### 88#       发表于 2021-11-10 01:42
+
+ 本帖最后由 yearmon 于 2021-11-10 01:44 编辑 
+
+说实话，有点感动了，月翼大佐哪怕和世界为敌也要和andy哥站在一起，这人行，能处。再反观山田大佐，一天下来了三棒子打不出个响屁，这人不太能处
+
+*****
+
+####  yearmon  
+##### 89#       发表于 2021-11-10 01:42
+
+ 本帖最后由 yearmon 于 2021-11-10 01:43 编辑 
+
+风怒
+
+*****
+
+####  yearmon  
+##### 90#       发表于 2021-11-10 01:42
+
+风怒
+
