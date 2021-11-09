@@ -8936,3 +8936,28 @@ ds5手柄识别不了，吐了
 
 开局第三辆车丛林空降就跳出，怎么还不出补丁修复
 
+
+
+*****
+
+####  lxx4869  
+##### 806#       发表于 2021-11-9 20:06
+
+ 本帖最后由 lxx4869 于 2021-11-9 20:21 编辑 
+
+为啥有的涂装只能下载不能应用，右下角没有方向盘的图标？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像是因为不是同款车型
+
+*****
+
+####  janet_ddr  
+##### 807#       发表于 2021-11-9 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53478297&amp;ptid=2033303" target="_blank">保科智子 发表于 2021-11-9 17:05</a>
+
+有个G27想废物利旧，但是只能接PC，e3v2+1070配4k屏幕能接受吗？</blockquote>
+可以的，我的588进游戏开4K，分辨率比例和特效都开成高有50多帧呢
+
+特效开成中则可以稳60，开成超高则是40帧。
+
