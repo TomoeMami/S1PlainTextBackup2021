@@ -892,3 +892,30 @@ FDwV1GzakAEYMy_.jpg
 葡萄的后续·····怨念，狡辩，拱火，三个女人一台戏.jpg</blockquote>
 万恶的葡萄<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 76#       发表于 2021-11-10 00:10
+
+打铁之前还点赞了鲤鱼经纪人两条推，睡前糖<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 77#       发表于 2021-11-10 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482132&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-9 21:28</a>
+fc动态也发了，不一样的图，看评论应该是北海道了</blockquote>
+感觉是冲绳<img src="https://p.sda1.dev/3/b803a40e8ba3a1ac8f51b9d6ca42fb57/IMG_CMP_7286873.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 78#       发表于 2021-11-10 00:22
+
+哪用感觉啊，冈山日本国内只飞三个地方，羽田新千岁那霸，新千岁是停飞期，那只能是冲绳吧？飞东京没必要特意发出来啊
+

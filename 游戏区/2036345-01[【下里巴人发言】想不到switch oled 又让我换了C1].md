@@ -872,3 +872,12 @@ c1 b站看小包评测的游戏主机设置，目前感觉良好。</blockquote>
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  nozomitech  
+##### 80#       发表于 2021-11-10 00:15
+
+真好，不过下一台电视本来就打算买lg c系列了，国内55寸居然只要7600<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，我太tm酸了
+

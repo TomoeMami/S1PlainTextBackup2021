@@ -866,3 +866,74 @@
 
 B站号怎么也封了啊？当初罪大恶极的TSKK都没被封呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仙岳病患  
+##### 65#       发表于 2021-11-10 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一群🤡被一个米线跳舞的认知厨带着冲锋，这份爱过于扭曲
+管人害人
+
+*****
+
+####  四叶的花  
+##### 66#       发表于 2021-11-10 00:12
+
+对管人群体的魔怔程度有了新的认识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 67#       发表于 2021-11-10 00:12
+
+管人痴 不行
+
+原批    行！
+
+*****
+
+####  IDIDIDID  
+##### 68#       发表于 2021-11-10 00:13
+
+虽然杏人玩不了原神，但是最终是原批守护了杏人，我哭了。
+
+*****
+
+####  生麦之发杀  
+##### 69#       发表于 2021-11-10 00:13
+
+我发了句“呃，你是想把蝗比作妓院，把冲蝗比作教堂的祈祷，而且还要为自己的网暴开脱？”之后就被拉黑了，怎么回事
+
+<img src="https://img.saraba1st.com/forum/202111/10/001342xb2xnahgbcppq9ca.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211110001017.jpg</strong> (118.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 00:13 上传
+
+*****
+
+####  Cortana  
+##### 70#       发表于 2021-11-10 00:16
+
+玩网几十年，买地哥是我见过最强的巨魔……仅次于4ch那位反绿魔怔枪杀人。
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  x1034  
+##### 71#       发表于 2021-11-10 00:18
+
+年度大戏，真是精彩
+
+*****
+
+####  白瀬玲  
+##### 72#       发表于 2021-11-10 00:19
+
+月翼佬又不关联其他账号，想挖不容易<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
