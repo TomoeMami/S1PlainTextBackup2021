@@ -819,3 +819,15 @@ c1 b站看小包评测的游戏主机设置，目前感觉良好。</blockquote>
 我还嫌大了，想买48呢 ...</blockquote>
 我不喜欢放侧面然后在床上盘腿坐，如果放正面视距至少3.5，按照客厅电视的尺寸65都嫌小了，实在承受不起<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zris  
+##### 75#         楼主| 发表于 2021-11-9 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53477212&amp;ptid=2036345" target="_blank">拉沃契金 发表于 2021-11-9 15:55</a>
+
+我不喜欢放侧面然后在床上盘腿坐，如果放正面视距至少3.5，按照客厅电视的尺寸65都嫌小了，实在承受不起[ ...</blockquote>
+那看个人使用习惯了，如果客厅够大，预算够多83寸c1
+

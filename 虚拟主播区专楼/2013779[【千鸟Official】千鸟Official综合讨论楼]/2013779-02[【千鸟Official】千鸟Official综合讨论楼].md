@@ -5081,3 +5081,36 @@ BV1mU4y1g7Vh
 
 两眼一黑.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 2063#       发表于 2021-11-9 16:13
+
+因为文静一般唱了半首就开摆啊
+ syl 文静为啥切游戏回啊 文静游戏回 真没人爱看
+
+*****
+
+####  四叶的花  
+##### 2064#       发表于 2021-11-9 16:16
+
+文静为啥不咋唱歌啊，我觉得她唱歌还行啊
+
+*****
+
+####  rgauss  
+##### 2065#       发表于 2021-11-9 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53477557&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-11-9 16:16</a>
+文静为啥不咋唱歌啊，我觉得她唱歌还行啊</blockquote>
+玻璃大炮
+
+*****
+
+####  四叶的花  
+##### 2066#       发表于 2021-11-9 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
