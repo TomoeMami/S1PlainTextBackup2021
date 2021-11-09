@@ -1,0 +1,739 @@
+
+
+*****
+
+####  平安名すみれ  
+##### 1#       楼主       发表于 2021-11-8 12:31
+
+ 本帖最后由 平安名すみれ 于 2021-11-8 17:49 编辑 
+
+换楼原因：出现换页bug无法正常阅读
+
+一号楼：[https://bbs.saraba1st.com/2b/thread-1909972-1-1.html](https://bbs.saraba1st.com/2b/thread-1909972-1-1.html)
+
+二号楼：[https://bbs.saraba1st.com/2b/thread-2028598-1-1.html](https://bbs.saraba1st.com/2b/thread-2028598-1-1.html)
+
+公式官网；[http://lovelive-anime.jp/yuigaoka/](http://lovelive-anime.jp/yuigaoka/)
+
+私立结丘女子高中，
+
+这所位于表参道，原宿与青山的交界线上的新学校，迎来了第一名入学的学生。
+
+没有历史，没有前辈，无人知晓姓名，在这所尽是“无”的学校里，
+
+以涩谷香音为中心的5名少女与“学园偶像”相遇了。
+
+我，还是喜欢唱歌！想要用歌唱来实现些什么！！
+
+现仍渺小的明星们的，宏大的想法逐渐重合——。
+
+从一张白纸开始，与拥有无限可能性的她们的
+
+School Idol Project
+
+“大家一起实现的故事”
+
+飞翔吧！我们的LoveLive!
+
+原作        矢立 肇
+
+原案        公野櫻子
+
+監督        京極尚彦
+
+シリーズ構成        花田十輝
+
+キャラクターデザイン原案        室田雄平
+
+キャラクターデザイン        斎藤敦史
+
+音楽        藤澤慶昌
+
+＜キャスト＞
+
+澁谷かのん(cv.伊達さゆり)
+
+唐可可（cv.liyuu）
+
+平安名すみれ（cv.ペイトン 尚未）
+
+嵐千砂都（cv.岬なこ）
+
+葉月恋（cv.青山なぎさ）
+
+*****
+
+####  JustW  
+##### 2#       发表于 2021-11-8 12:34
+
+换页bug出现好快
+
+*****
+
+####  中野四葉  
+##### 3#       发表于 2021-11-8 12:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就当是第二季的楼了
+
+*****
+
+####  chenflyyy  
+##### 4#       发表于 2021-11-8 12:38
+
+前两栋楼的换页bug出现得太快了，希望这次能持久点
+
+*****
+
+####  离心  
+##### 5#       发表于 2021-11-8 12:38
+
+就希望新楼能不出bug了
+
+*****
+
+####  cat1230  
+##### 6#       发表于 2021-11-8 12:40
+
+居然开到第三号楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 7#       发表于 2021-11-8 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">三栋楼了…………………
+
+*****
+
+####  优妮可  
+##### 8#       发表于 2021-11-8 12:49
+
+干脆建到五栋楼吧，一人一栋
+
+*****
+
+####  稀勢のささ  
+##### 9#       发表于 2021-11-8 13:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 10#       发表于 2021-11-8 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就当第二季了，隔壁寒蝉那么多楼还在坚挺中，星团换了3次不容易呀。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 11#       发表于 2021-11-8 13:59
+
+<img src="https://img.saraba1st.com/forum/202111/08/135942hyjqj4ejh7iqecqe.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1636351095516.jpg</strong> (183.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 13:59 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/135942lt6llbsbzjtvbbzp.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1636351093835.jpg</strong> (183.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 13:59 上传
+
+*****
+
+####  JustW  
+##### 12#       发表于 2021-11-8 14:05
+
+三号楼要不要在标题标一下，现在两栋楼除了回复数看上去一模一样啊，容易弄混
+
+*****
+
+####  ads147147  
+##### 13#       发表于 2021-11-8 14:08
+
+前排空我~
+
+*****
+
+####  Norkey1  
+##### 14#       发表于 2021-11-8 14:09
+
+我觉得我在这里的发言已经很温和了吧，好不容易能在论坛好好聊，没想到自己又被扯到隔壁超级大粪坑里，开什么玩笑要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+这里不是微博，看偶像别太入脑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望各位在看到不同意见的时候能先多交流几句
+
+*****
+
+####  兰开夏  
+##### 15#       发表于 2021-11-8 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新楼万岁~
+
+*****
+
+####  kimibsb  
+##### 16#       发表于 2021-11-8 14:29
+
+有点想搞个小千的痛车 计划是在游戏卡面里找素材
+但是星团卡现在好少……
+
+*****
+
+####  cat1230  
+##### 17#       发表于 2021-11-8 14:31
+
+星团会不会出个自己的手游？还是并到缪水里？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  优妮可  
+##### 18#       发表于 2021-11-8 14:33
+
+手游没点技术和新意的话建议别出，拖后腿的。
+
+*****
+
+####  稀勢のささ  
+##### 19#       发表于 2021-11-8 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是已经塞进去了吗
+
+*****
+
+####  D麦林  
+##### 20#       发表于 2021-11-8 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462958&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2021-11-8 14:33</a>
+不是已经塞进去了吗</blockquote>
+只进了SIF 而且没有新规的卡面全都是用老图做的卡（不过有支线剧情用的新立绘）
+AS那边则是还没有参战 只有限时加入几首动画歌曲 没卡也没3DMV
+要是有参战AS的话去换换歌应该也能产生出不少好活的我觉得<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 21#       发表于 2021-11-8 14:48
+
+太难了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是没bug都一万多楼了
+
+*****
+
+####  player3960  
+##### 22#       发表于 2021-11-8 14:52
+
+要是lovelive能在ns上出个像just dance那样的游戏就好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 23#       发表于 2021-11-8 14:59
+
+唉 LL怎么就摊上了KLab这么一个辣鸡公司呢
+我觉得KLab简直低配版游戏富力克 都是傍上大IP起家 然后不思进取还特别自信 自己开发的IP出一款暴死一款
+唯一区别区别可能是游戏富力克依然能躺着数钱而LL的游戏已经糊得不成样子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 24#       发表于 2021-11-8 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">韩国人貌似知道了唐可可的诱惑………………
+
+*****
+
+####  仟音一心  
+##### 25#       发表于 2021-11-8 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463373&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-8 15:03</a>
+韩国人貌似知道了唐可可的诱惑………………</blockquote>
+加把劲，来个日语版<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 26#       发表于 2021-11-8 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463373&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-8 15:03</a>
+
+韩国人貌似知道了唐可可的诱惑………………</blockquote>
+星无佬坏事做尽<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 27#       发表于 2021-11-8 15:16
+
+ 本帖最后由 秋月艾莉 于 2021-11-8 15:19 编辑 
+
+新楼新气象，发点最近的可香图作法
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次发可堇作法完马上有第10话，这次继续作法S2来个大星星！
+
+<img src="https://img.saraba1st.com/forum/202111/08/144426tz3iqxzxddpd85z5.jpg" referrerpolicy="no-referrer">
+
+<strong>FDWB8LnagAAmruY.jpg</strong> (648.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:44 上传
+
+推：canvas2929(邦邦人设
+
+<img src="https://img.saraba1st.com/forum/202111/08/144134nsui3i76ugjpudz6.jpg" referrerpolicy="no-referrer">
+
+<strong>FC8dFH7acAEoEAf.jpg</strong> (93.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:41 上传
+
+推：kitatyoco
+
+<img src="https://img.saraba1st.com/forum/202111/08/144030ex8xkiil1llell88.jpg" referrerpolicy="no-referrer">
+
+<strong>1633761724328.jpg</strong> (208.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:40 上传
+
+推：忘了是谁(((((
+
+<img src="https://img.saraba1st.com/forum/202111/08/144123gm9wlwsnzm5loll9.jpg" referrerpolicy="no-referrer">
+
+<strong>FC2iNEvaAAAg3_D.jpg</strong> (148.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:41 上传
+
+推：Deadnooodles
+
+<img src="https://img.saraba1st.com/forum/202111/08/144144f9y6378i66ird66n.jpg" referrerpolicy="no-referrer">
+
+<strong>FC8Jh8zagAA1uv0.jpg</strong> (78.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:41 上传
+
+推：t_sspd
+
+<img src="https://img.saraba1st.com/forum/202111/08/144216rxqviht283ta4ash.jpg" referrerpolicy="no-referrer">
+
+<strong>FCtSLKuUcAAdglp.jpg</strong> (220.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:42 上传
+
+推：Fujimiz_115
+
+<img src="https://img.saraba1st.com/forum/202111/08/150506zbioobnbttjx4tcn.jpg" referrerpolicy="no-referrer">
+
+<strong>FDbs3puacAAyxMd.jpg</strong> (386.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 15:05 上传
+
+推：NYAMKAN
+
+<img src="https://img.saraba1st.com/forum/202111/08/145409gcwvc54fj54j74mf.jpg" referrerpolicy="no-referrer">
+
+<strong>FDhFaMDaUAAj58x.jpg</strong> (378.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/145442hgszmlooeezloktg.jpg" referrerpolicy="no-referrer">
+
+<strong>FDhFaMGacAAKt5o.jpg</strong> (353.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:54 上传
+
+推：etetacunk
+
+<img src="https://img.saraba1st.com/forum/202111/08/144156mxnyrrcwz0bydynr.jpg" referrerpolicy="no-referrer">
+
+<strong>FCd7asqVgAsgICd.jpg</strong> (163.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:41 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/144329woaomm12rw9thogn.jpg" referrerpolicy="no-referrer">
+
+<strong>FDLcrm_aUAAa1nO.jpg</strong> (218.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 14:43 上传
+
+推：egakineco
+
+*****
+
+####  darkendless  
+##### 28#       发表于 2021-11-8 15:40
+
+可香摸多摸多<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 29#       发表于 2021-11-8 15:41
+
+我是可all党
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  三尖酸努努  
+##### 30#       发表于 2021-11-8 15:46
+
+感觉泥潭的卡页bug越来越严重了，现在5000楼不到就支撑不了了
+
+
+
+*****
+
+####  D麦林  
+##### 31#       发表于 2021-11-8 15:54
+
+那我来整点可堇好了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+作者：くまのり
+<img src="https://p.sda1.dev/3/3d5a0c9068a920f33fa9cd19ce4f417d/IMG_CMP_183551070.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/5badd58aa7bf758eeeadd223cf336bd9/IMG_CMP_144363249.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/2a5b7a2d5ca6d302730eb2bb676f2ce3/IMG_CMP_77918928.jpeg" referrerpolicy="no-referrer">
+原梗是《ファンサ》的歌词
+
+*****
+
+####  二月十日  
+##### 32#       发表于 2021-11-8 16:10
+
+看完上面的可香合辑第一时间是赶去给egakineco老师点赞
+
+感觉现在比起可香更喜欢看合鲤图了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 33#       发表于 2021-11-8 16:11
+
+MZ老师是不是对我们中国妹子有啥误会？玩亲亲互摸这不都是中国直女玩得溜的吗？我们囡囡玩这些还不信手拈来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 34#       发表于 2021-11-8 16:16
+
+来点可堇
+
+twi@garubegaru.jpg
+(236.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/161530m73dabhxzafa78x4.jpg" referrerpolicy="no-referrer">
+
+-.jpg
+(225.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202111/08/161533d8yb9355dfaktk86.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 35#       发表于 2021-11-8 16:23
+
+话说回来看外国人二创的时候一些奇怪的误解和信息差有时也挺有意思的
+
+像我上次翻的那篇SS里面 作者让可可玩了德国boy的梗和寒蝉的雏见泽综合征梗 接着堇去吐槽她对日本的梗怎么这么熟悉
+
+然后我一想这些当年在这边宅圈也是大火过的梗……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 36#       发表于 2021-11-8 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464541&amp;ptid=2036367" target="_blank">iuhehc 发表于 2021-11-8 16:16</a>
+来点可堇</blockquote>
+草，这作者谁啊？这是头交啊。
+
+*****
+
+####  player3960  
+##### 37#       发表于 2021-11-8 17:07
+
+几场live下来，现在的合鲤在同人画师眼里，鲤鱼就是大个子高冷嫉妒型，打铁就是小个子元气整活型，放百合里确实是又经典又好磕的CP人设呢，只能说太会了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  TTAA  
+##### 38#       发表于 2021-11-8 17:09
+
+合鲤好磕
+
+*****
+
+####  iuhehc  
+##### 39#       发表于 2021-11-8 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465290&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-8 17:06</a>
+
+草，这作者谁啊？这是头交啊。</blockquote>
+twi@garubegaru 这位的画都挺可爱的
+
+*****
+
+####  kata魂  
+##### 40#       发表于 2021-11-8 17:20
+
+又出bug了啊~~真够难的
+
+*****
+
+####  中野四葉  
+##### 41#       发表于 2021-11-8 19:16
+
+ 本帖最后由 中野四葉 于 2021-11-8 19:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望生日场多整点活，我必卖票支持
+
+*****
+
+####  cybernetics31  
+##### 42#       发表于 2021-11-8 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼mc那段日本人还挺喜欢的 推上一直有人提
+
+*****
+
+####  kata魂  
+##### 43#       发表于 2021-11-8 20:25
+
+你们这一提生日场我就想起来了，不会鲤鱼的solo要留在生日场吧
+
+*****
+
+####  lj205  
+##### 44#       发表于 2021-11-8 20:55
+
+把第一期生放拿出来看，成长了不少啊
+
+*****
+
+####  welcom  
+##### 45#       发表于 2021-11-8 22:27
+
+ 本帖最后由 welcom 于 2021-11-8 22:29 编辑 
+
+评论区提醒我才发现这周六B站就出10-12了.....
+
+*****
+
+####  cat1230  
+##### 46#       发表于 2021-11-8 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53468017&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-8 20:21</a>
+
+鲤鱼mc那段日本人还挺喜欢的 推上一直有人提</blockquote>
+哪段？闭嘴听我把话说完那段吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 47#       发表于 2021-11-8 23:02
+
+<img src="https://img.saraba1st.com/forum/202111/08/230100ukaj30fyj0y0acz3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (329.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-8 23:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">能让pay坐在鲤鱼身上让我们看看吗
+
+*****
+
+####  cybernetics31  
+##### 48#       发表于 2021-11-8 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469694&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-11-8 22:52</a>
+哪段？闭嘴听我把话说完那段吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">对，直接了当加其他几人反应，效果拔群
+
+*****
+
+####  player3960  
+##### 49#       发表于 2021-11-8 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469813&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-08 23:06:38</a>
+对，直接了当加其他几人反应，效果拔群</blockquote>说了狠话然后扭扭捏捏的样子太艹了，Liella的大姐头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 50#       发表于 2021-11-8 23:57
+
+怎么还有韩文版的上海话教学的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近每天都会看一遍推上的中韩文化交流，总能找到新乐子（和同人图
+<img src="https://p.sda1.dev/3/1c5fff9fd24d7ebb360f626660988be2/IMG_CMP_90974590.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 51#       发表于 2021-11-9 01:29
+
+<img src="https://img.saraba1st.com/forum/202111/09/012933ad7lhgdbwml8mjl6.jpg" referrerpolicy="no-referrer">
+
+<strong>img-163639246070828d874651a8b1d83f76a1344ef6bb94a.jpg</strong> (128.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-9 01:29 上传
+
+可爱
+
+*****
+
+####  cqc1021  
+##### 52#       发表于 2021-11-9 02:00
+
+ 本帖最后由 cqc1021 于 2021-11-9 02:02 编辑 
+
+话说鲤鱼的FC更新频率怎么样，看了下一个月才550日元，注册个FC会员可比在叔叔那儿上舰可便宜太多了。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 53#       发表于 2021-11-9 04:29
+
+补了下day4，鲤鱼日语水准肉眼可见的进步，环境真的养人阿
+
+*****
+
+####  secretgarnet  
+##### 54#       发表于 2021-11-9 04:39
+
+我觉得等鲤鱼日语越来越熟练，生放和live上就不会显得那么“呆”了（虽然有一部分憨憨是与生俱来的，但更多的还是处理大量非母语信息而应付不过来）
+
+*****
+
+####  cybernetics31  
+##### 55#       发表于 2021-11-9 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53471016&amp;ptid=2036367" target="_blank">cqc1021 发表于 2021-11-9 02:00</a>
+话说鲤鱼的FC更新频率怎么样，看了下一个月才550日元，注册个FC会员可比在叔叔那儿上舰可便宜太多了。
+
+— ...</blockquote>
+还可以，每周都有广播时候的小视频，每月都有生放，虽然就半小时…………鲤鱼动态也经常发，偶尔会有拍照的花絮，就是最近live 更的不多
+
+*****
+
+####  chenflyyy  
+##### 56#       发表于 2021-11-9 11:34
+
+最新liyuustaff发的这视频的🐟也太怪了，不知道是妆的问题还是摄影滤镜的问题，反正我刷到的时候完全认不出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 57#       发表于 2021-11-9 11:42
+
+这个打光有问题吧，还是说之前美颜滤镜看的太习惯了。
+
+*****
+
+####  cybernetics31  
+##### 58#       发表于 2021-11-9 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是很想吐槽滤镜，明明不加也好看的
+
+*****
+
+####  普之舜舜  
+##### 59#       发表于 2021-11-9 11:57
+
+青山姐的视频每次都有第九区，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 60#       发表于 2021-11-9 11:59
+
+这衣服就是新MV的衣服吗？………………咱换一套行不行？
+
+
+
+*****
+
+####  lucksolo  
+##### 61#       发表于 2021-11-9 18:50
+
+@kanduki_lily
+
+可恋药
+
+FDrWhclaQAMQN1q.jpg
+(387.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-9 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202111/09/185031dfhov4o3fcp33eg3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 62#       发表于 2021-11-9 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53479884&amp;ptid=2036367" target="_blank">lucksolo 发表于 2021-11-9 18:50</a>
+
+@kanduki_lily
+
+可恋药</blockquote>
+翻译
+
+BAEEE5FF-7ED8-44C9-A3BB-25EC7A8C8B18.jpeg
+(617.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-9 18:56 上传
+
+<img src="https://img.saraba1st.com/forum/202111/09/185644ja0ato56o6aajpto.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
