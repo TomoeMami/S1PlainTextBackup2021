@@ -8823,3 +8823,12 @@ betterjoy
 
 进游戏前点软件右下角stop停止手柄连接，进游戏之后再启用
 
+
+
+*****
+
+####  保科智子  
+##### 797#       发表于 2021-11-9 17:05
+
+有个G27想废物利旧，但是只能接PC，e3v2+1070配4k屏幕能接受吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
