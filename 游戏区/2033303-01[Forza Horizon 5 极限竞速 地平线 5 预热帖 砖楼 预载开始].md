@@ -9109,3 +9109,12 @@ ds5手柄识别不了，吐了
 开了一个小时，这里边的车怎么都轻飘飘的。感觉不如极品14</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">极品14真就算了，地平线主要优点在于车多玩法多量大管饱，赛道当面手感那是没法和几个真实赛车比 不过街机赛车就属它了。
 
+
+
+*****
+
+####  DancingAndy  
+##### 821#       发表于 2021-11-10 01:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我今天新人上线箱子里怎么没礼物啊
+

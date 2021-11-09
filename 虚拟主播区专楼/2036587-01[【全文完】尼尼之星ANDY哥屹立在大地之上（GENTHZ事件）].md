@@ -1046,3 +1046,85 @@ B站号怎么也封了啊？当初罪大恶极的TSKK都没被封呢<img src="ht
 
 —— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  狐言乱语  
+##### 83#       发表于 2021-11-10 01:07
+
+月翼的嘴硬程度可以参考这个，一个妥妥的翻译错误能滚这么久
+
+<img src="https://img.saraba1st.com/forum/202111/10/010757o4ft7z3sn8sg8cms.jpg" referrerpolicy="no-referrer">
+
+<strong>qxlarge-dsc-96C8F26C5C9E9B57F428158D81BBCE8B.jpg</strong> (103.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 01:07 上传
+
+<img src="https://img.saraba1st.com/forum/202111/10/010757ovwvzbslg0x25xwl.jpg" referrerpolicy="no-referrer">
+
+<strong>qxlarge-dsc-12607BCCD78C2BB7CD40A9E2668F2B37.jpg</strong> (638.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 01:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gogomw  
+##### 84#       发表于 2021-11-10 01:08
+
+桐生会に栄光あれ、桐生会は不滅なり！
+
+*****
+
+####  akys  
+##### 85#       发表于 2021-11-10 01:16
+
+传奇人物
+
+*****
+
+####  狐言乱语  
+##### 86#       发表于 2021-11-10 01:20
+
+似乎有人不太熟悉月翼大佐，那可以从他的部分言论快速了解一下他
+
+<img src="https://img.saraba1st.com/forum/202111/10/011932rl1hgws5nvzdxlxk.jpg" referrerpolicy="no-referrer">
+
+<strong>-6f514ee36631aaaf.jpg</strong> (119.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 01:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/10/011932r2l2vfiv3qqng1vz.jpg" referrerpolicy="no-referrer">
+
+<strong>-2cc930fa1218e9d2.jpg</strong> (128.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 01:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/10/011932m7wo3aarw7e7jrej.jpg" referrerpolicy="no-referrer">
+
+<strong>-44eee6f32bfa055d.jpg</strong> (60.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 01:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/10/011932kk6z6sz6j7x14mpt.jpg" referrerpolicy="no-referrer">
+
+<strong>-decb41214dd858b.jpg</strong> (89.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 01:19 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
