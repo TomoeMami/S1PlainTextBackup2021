@@ -8236,3 +8236,52 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 话说xsx版的画质和性能模式感觉看不出来啥区别</blockquote>
 你车子速度不够快而已
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 741#       发表于 2021-11-9 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472196&amp;ptid=2033303" target="_blank">chan 发表于 2021-11-9 09:18</a>
+纠结免费券换什么车，你们呢？</blockquote>
+太纠结的话，最贵的总归没问题就是了。
+
+*****
+
+####  Paradox7  
+##### 742#       发表于 2021-11-9 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472283&amp;ptid=2033303" target="_blank">Lisylfn 发表于 2021-11-9 09:29</a>
+
+什么版本? win10还是steam, win10下ds4windows, steam打开steam ds4支持</blockquote>
+谢谢，我是win10在那个Xbox里用xgp会员玩的，等回家试试
+
+*****
+
+####  920619lqy  
+##### 743#       发表于 2021-11-9 09:53
+
+<blockquote>chan 发表于 2021-11-8 19:18
+纠结免费券换什么车，你们呢？</blockquote>
+既然jesko被钦定为目前最快的车，而BAJA那个V10要全3星才送（我手残玩不来其中那些个刷分数的关卡），个人打算换这个了，2800000呢。
+
+*****
+
+####  misaki_d  
+##### 744#       发表于 2021-11-9 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472564&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-9 09:53</a>
+
+既然jesko被钦定为目前最快的车，而BAJA那个V10要全3星才送（我手残玩不来其中那些个刷分数的关卡），个 ...</blockquote>
+v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
+
+*****
+
+####  crosz  
+##### 745#       发表于 2021-11-9 09:59
+
+画质模式和帧数模式感觉差别很大啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
