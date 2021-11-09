@@ -1015,3 +1015,34 @@ B站号怎么也封了啊？当初罪大恶极的TSKK都没被封呢<img src="ht
 
 乐，什么矛盾结合体
 
+
+
+*****
+
+####  damage1  
+##### 80#       发表于 2021-11-10 00:49
+
+理性讨论：发出不当言论的桐生可可是否跟冲蝗人是站一边的，kson通过恰fh饭大吸特吸白皮金，再通过秘密渠道反哺给cn，忍辱负重！
+
+很难绷得住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璃絵和花瑠  
+##### 81#       发表于 2021-11-10 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53483926&amp;ptid=2036587" target="_blank">Zhudhh 发表于 2021-11-10 00:28</a>
+这条值得单列。乐不可支了</blockquote>
+那只能
+桐生会は不滅なり！ ✌️
+了
+
+*****
+
+####  柳删繁  
+##### 82#       发表于 2021-11-10 01:06
+
+如果不是因为这次瓶子的导火索，那这个灯下黑会什么时候发现呢
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
