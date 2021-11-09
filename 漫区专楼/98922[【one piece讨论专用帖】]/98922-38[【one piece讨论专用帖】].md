@@ -7471,3 +7471,15 @@ WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完
 
 PS.女澡堂和海贼王你竟然选择了海贼王（划掉）
 
+
+
+*****
+
+####  真红眼教授  
+##### 56070#       发表于 2021-11-9 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473547&amp;ptid=98922" target="_blank">gutzz 发表于 2021-11-9 11:15</a>
+
+这话水准回来了，可惜和之国的剧情没救了</blockquote>
+和之国把武士系列都删了剧情就上去了，可不是乱说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

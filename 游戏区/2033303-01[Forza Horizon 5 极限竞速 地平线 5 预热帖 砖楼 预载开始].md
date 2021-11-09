@@ -8642,3 +8642,26 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 话说forza hub里怎么还是没有fh5的影子
 
+
+
+*****
+
+####  我又忘了用户名  
+##### 780#       发表于 2021-11-9 14:11
+
+泥潭有木有qq群讨论的, 想加
+
+
+
+*****
+
+####  天神十三煞  
+##### 781#         楼主| 发表于 2021-11-9 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475732&amp;ptid=2033303" target="_blank">我又忘了用户名 发表于 2021-11-8 22:11</a>
+
+泥潭有木有qq群讨论的, 想加</blockquote>
+430270609
+
+xbox群
+
