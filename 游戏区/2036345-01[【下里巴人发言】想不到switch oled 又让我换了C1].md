@@ -755,3 +755,16 @@ CD和黑胶半斤八两，取向不同。但是，DSD的确细节秒一切，就
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Magician_G  
+##### 70#       发表于 2021-11-9 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460524&amp;ptid=2036345" target="_blank">黄字 发表于 2021-11-8 11:32</a>
+c1 b站看小包评测的游戏主机设置，目前感觉良好。</blockquote>
+13小将不是在声讨nso屏闪顺便把oled黑个底朝天吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
