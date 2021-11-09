@@ -7429,3 +7429,12 @@ WT那猎奇身材木瓜球真有人能冲？画奈子不被他小弟真岛浩完
 都在关注山治，没人在意索隆那边吗？烬的攻击方式很奇特啊，怎么变战斗机模式了？还能远程开枪的？ ...</blockquote>
 打马尔科的时候就用了
 
+
+
+*****
+
+####  gutzz  
+##### 56066#       发表于 2021-11-9 11:15
+
+这话水准回来了，可惜和之国的剧情没救了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

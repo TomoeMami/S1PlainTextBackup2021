@@ -8366,3 +8366,98 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 几个VIPER ACR都试试，三个10，一个9.x就是了。 ...</blockquote>
 这车只能抽奖获得吗？
 
+
+
+*****
+
+####  天神十三煞  
+##### 754#         楼主| 发表于 2021-11-9 11:07
+
+白嫖券根本不需要用
+
+最多自己花钱买个漂移方程式道奇viper 43#
+
+就这车也是送的，最后还要卖，你有自信拿其他车飘完三星这个也不用买
+
+因为按现在的情况根本不需要买车
+
+先玩几个星期看车送的差不多了
+
+再进去看啥车没奖励没转盘没送又贵的就可以买了
+
+*****
+
+####  没钱买手办  
+##### 755#       发表于 2021-11-9 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们掉线的问题都解决了吗，五分钟掉一下根本没法玩线上模式啊
+
+*****
+
+####  qzy741147  
+##### 756#       发表于 2021-11-9 11:12
+
+v10的柯尼塞格简直是一块肥皂
+
+*****
+
+####  onezer0618  
+##### 757#       发表于 2021-11-9 11:12
+
+<img src="https://img.saraba1st.com/forum/202111/09/111116no0ct8gd89uccapt.jpg" referrerpolicy="no-referrer">
+
+<strong>OE2@NC[GWCC91~4KZ2%SO.jpg</strong> (174.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-9 11:11 上传
+
+手柄到了，好烧好烧，就是握把是橡胶材质的，担心老化<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nemunoki  
+##### 758#       发表于 2021-11-9 11:12
+
+昨天晚上几乎不掉了
+
+就是这地平线生活还是没几个人，而且呆在初始嘉年华场地里明明能看到好些人，一传送出去就全没了
+
+*****
+
+####  lxx4869  
+##### 759#       发表于 2021-11-9 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473213&amp;ptid=2033303" target="_blank">jpiajwopdm 发表于 2021-11-9 10:51</a>
+
+这几天玩下来一个感觉，就是真你妈高清
+
+我4代也在电视上4k60玩，画面也觉得不错但是材质分辨率总差点意思， ...</blockquote>
+光影确实很好，锯齿是个问题，但是有些纹理其实还是不够细致，涂装和赛车细节总感觉还是不如2014游戏的mod强，但是光影确实太好了。
+
+*****
+
+####  天神十三煞  
+##### 760#         楼主| 发表于 2021-11-9 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473304&amp;ptid=2033303" target="_blank">永远喜欢刘人语 发表于 2021-11-8 18:56</a>
+
+这车只能抽奖获得吗？</blockquote>
+2008和2016款ACR在车展都有卖也能摇出来，标签分类都是赛道玩具，
+
+我记得后者有SRT的应该更好开，反正去下载调教对比就知道了
+
+*****
+
+####  mcq_2  
+##### 761#       发表于 2021-11-9 11:16
+
+飞车撞牌子大家善用Y，可以节省大量时间
+
+*****
+
+####  Vladimeow  
+##### 762#       发表于 2021-11-9 11:16
+
+如果这代daytona还好用的话白嫖券可以拿来买那个，三千万<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
