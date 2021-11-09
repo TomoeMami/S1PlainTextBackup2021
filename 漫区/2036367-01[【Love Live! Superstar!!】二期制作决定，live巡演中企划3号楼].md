@@ -881,3 +881,14 @@ FDwV1GzakAEYMy_.jpg
 
 查了一下时刻表，应该是飞冲绳了，看来事务所和烂铁挺愿意花钱的啊。飞那么频繁，可以考虑开张航司会员卡存航段升级，说不定后面回国内还给升个舱啥的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 75#       发表于 2021-11-10 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482970&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-9 22:47</a>
+葡萄的后续·····怨念，狡辩，拱火，三个女人一台戏.jpg</blockquote>
+万恶的葡萄<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
