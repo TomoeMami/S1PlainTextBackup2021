@@ -8665,3 +8665,32 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 xbox群
 
+
+
+*****
+
+####  haru橙子  
+##### 782#       发表于 2021-11-9 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472564&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-9 09:53</a>
+
+既然jesko被钦定为目前最快的车，而BAJA那个V10要全3星才送（我手残玩不来其中那些个刷分数的关卡），个 ...</blockquote>
+刷分数直接开出场地，到个没有石头没有大树的地方，瞎开就完事了
+
+*****
+
+####  爱护动物抓根宝  
+##### 783#       发表于 2021-11-9 15:21
+
+今天终于抽出克尔维特55打算体验一下，一进改装给我整笑了
+
+<img src="https://img.saraba1st.com/forum/202111/09/152018wl4mkobk4kbhbmr1.png" referrerpolicy="no-referrer">
+
+<strong>Forza Horizon 5 2021_11_9 15_18_55.png</strong> (332.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-9 15:20 上传
+
+人均二战老兵了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
