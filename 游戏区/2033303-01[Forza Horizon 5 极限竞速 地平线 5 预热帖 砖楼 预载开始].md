@@ -9038,3 +9038,43 @@ ds5手柄识别不了，吐了
 
 真正的封面车
 
+
+
+*****
+
+####  萱时令  
+##### 815#       发表于 2021-11-9 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482355&amp;ptid=2033303" target="_blank">鹿斗典善 发表于 2021-11-9 21:47</a>
+真正的封面车</blockquote>
+艹这图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 我这个送出各几十辆今天上线也收到了 还有7个赞
+虚假的封面车：无法简单获取 售价昂贵
+真正的封面车：上线即得 且伴随一句美好祝福
+
+*****
+
+####  团结奋进碇真嗣  
+##### 816#       发表于 2021-11-9 22:16
+
+开了一个小时，这里边的车怎么都轻飘飘的。感觉不如极品14
+
+*****
+
+####  lxx4869  
+##### 817#       发表于 2021-11-9 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482113&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 21:27</a>
+
+从上面公路120度角出发，
+
+第一个水潭降速是没办法
+
+第二个从右侧水面宽度较短的地方滑过去</blockquote>
+我就是从上面出发的，120度角应该咋理解？
+
+第一个水潭还好吧，从上面充分助跑车速够快可以越过水潭几乎不降速，过了第一个水潭均速还有310+km/h。
+
+第二个水潭右侧不会降速我也发现了。
+
+我应该是第一弯和最后一弯2个急弯降速太多了，明显感觉抓不住地，弯心速度估计也就100左右或者出头...滑过去感觉更慢...rs200明显这2个急弯能抓住地。
+

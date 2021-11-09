@@ -5180,3 +5180,50 @@ syl 今天偶像大师主机生放也延期了
 
 就凭cj和他老婆的这点破事这人就该滚
 
+
+
+*****
+
+####  夜潇箫  
+##### 2074#       发表于 2021-11-9 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">二刺猿鲨卵就不应该做项目主管。
+
+*****
+
+####  莫洛骑士  
+##### 2075#       发表于 2021-11-9 22:07
+
+该走粉头路线就得走粉头路线！
+<img src="https://p.sda1.dev/3/204238931098cdfb5bea6b0263f23f21/D88C4CBC44B09E73192065EB269800DB.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2076#       发表于 2021-11-9 22:08
+
+二刺螈杀软和自我意识过剩粉丝哪个更可怕我不好说
+
+*****
+
+####  灰色的狐狸  
+##### 2077#       发表于 2021-11-9 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">上了一天班回来发生了啥
+
+*****
+
+####  袜子  
+##### 2078#       发表于 2021-11-9 22:10
+
+收不到钱急了，没啥别的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2079#       发表于 2021-11-9 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482585&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-9 22:08</a>
+二刺螈杀软和自我意识过剩粉丝哪个更可怕我不好说</blockquote>
+自我意识过剩的粉丝更可怕，但是这不是一般的二刺螈沙卵是二刺螈沙卵制作人<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
