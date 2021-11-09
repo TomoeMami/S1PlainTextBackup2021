@@ -9136,3 +9136,15 @@ ds5手柄识别不了，吐了
 
 牌子撞完了，这游戏对于我已经结束了，之后就随便开开
 
+
+
+*****
+
+####  lxx4869  
+##### 824#       发表于 2021-11-10 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484639&amp;ptid=2033303" target="_blank">nailuo1993 发表于 2021-11-10 04:40</a>
+
+这代ai作弊太明显了 ai车物理法则仿佛和玩家的不一样</blockquote>
++1，大直道被AI以不合理的速度不断超过去，然后几个高速弯AI又慢得离谱直接第二了...太假了
+

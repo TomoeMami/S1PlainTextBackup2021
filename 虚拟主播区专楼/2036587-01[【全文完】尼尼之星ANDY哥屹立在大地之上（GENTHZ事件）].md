@@ -1271,3 +1271,25 @@ nga从有super权限的到普通warden隔一个杀一个怕是还有漏的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シナモンロール  
+##### 101#         楼主| 发表于 2021-11-10 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484773&amp;ptid=2036587" target="_blank">黑之和 发表于 2021-11-10 07:04</a>
+你们说的这个王维还真是那个盗笔圈的王维啊
+前几年开播去长白山堵三叔还历历在目，
+是管人！管人让 ...</blockquote>
+这个人前几年和管人没啥关系…这个人的推特从很早开始就是那个画风了，倒不如说还是去年冲蝗的这几个月他推特没法新帖了，之前可是不断地在生产各式各样的政治相关啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑之和  
+##### 102#       发表于 2021-11-10 07:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484852&amp;ptid=2036587" target="_blank">シナモンロール 发表于 2021-11-10 07:34</a>
+这个人前几年和管人没啥关系…这个人的推特从很早开始就是那个画风了，倒不如说还是去年冲蝗的这几个月他 ...</blockquote>
+我记得王维一几年的长白山直播那次直播不小心暴露自己的手机号，一堆人还在那自肃开话题不让传播他的个人信息，那时候倒是没想到他屁股是歪的，怎么就没人扒出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
