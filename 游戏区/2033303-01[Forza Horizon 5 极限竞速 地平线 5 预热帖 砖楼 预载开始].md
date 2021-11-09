@@ -8832,3 +8832,34 @@ betterjoy
 
 有个G27想废物利旧，但是只能接PC，e3v2+1070配4k屏幕能接受吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天神十三煞  
+##### 798#         楼主| 发表于 2021-11-9 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+第六元素的抓地力简直不讲武德
+
+什么泥地测速区间还有水滩的统统给鲨了，什么越野车，霍妮干RS200根本不需要
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  amuro_h  
+##### 799#       发表于 2021-11-9 17:39
+
+ 本帖最后由 amuro_h 于 2021-11-9 17:42 编辑 
+
+求助 进游戏没事开始第一场的表演赛就报错。。有人知道怎么搞吗。。。
+
+<img src="https://img.saraba1st.com/forum/202111/09/173930ru3aull0vwovwvmv.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211109_172648.jpg</strong> (602.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-9 17:39 上传
+

@@ -840,3 +840,22 @@ c1 b站看小包评测的游戏主机设置，目前感觉良好。</blockquote>
 
 看着看着看到了从CD换成了黑胶.
 
+
+
+*****
+
+####  GMJ  
+##### 77#       发表于 2021-11-9 17:38
+
+杜比更好
+
+*****
+
+####  zris  
+##### 78#         楼主| 发表于 2021-11-9 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53478831&amp;ptid=2036345" target="_blank">GMJ 发表于 2021-11-9 17:38</a>
+
+杜比更好</blockquote>
+好，谢谢我已经在XSX设置，强制开杜比了
+
