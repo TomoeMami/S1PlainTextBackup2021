@@ -5338,3 +5338,19 @@ xdm，登子的米到了！
 静，咱家有钱了！
 <img src="https://p.sda1.dev/3/610ba398efaa0f4e9454e1f62d71e176/Screenshot_20211109_173706_com.tencent.androidqqmail_edit_78693864908304.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lunaticfear  
+##### 2084#       发表于 2021-11-10 06:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484728&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-10 06:39</a>
+
+xdm，登子的米到了！
+
+静，咱家有钱了！</blockquote>
+你有钱了可是静已经无了
+
+这波叫子欲孝而亲不待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
