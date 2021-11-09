@@ -9027,3 +9027,14 @@ ds5手柄识别不了，吐了
 
 按X可以看下排行，我的ID是Gilleco，平均时速164
 
+
+
+*****
+
+####  鹿斗典善  
+##### 814#       发表于 2021-11-9 21:47
+
+<img src="https://z3.ax1x.com/2021/11/09/IN9g2D.md.jpg" referrerpolicy="no-referrer">
+
+真正的封面车
+
