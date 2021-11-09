@@ -10860,3 +10860,21 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 
 要等一个星期
 
+
+
+*****
+
+####  千恋万花  
+##### 2291#       发表于 2021-11-9 23:31
+
+<img src="https://p.sda1.dev/3/531a6ab27dfa9aee018f2f0156cad99f/IMG_0478.PNG" id="aimg_GoQRQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  ddy2811  
+##### 2292#       发表于 2021-11-9 23:38
+
+过完主线两回，再过每人一个个人回，就可以进最终阶段了
+
+到头来人物塑造过于不平衡这点根本没改啊，尤其珊瑚估计得路人到底了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
