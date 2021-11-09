@@ -5017,3 +5017,28 @@ syl我擦，千鸟不会真有女同吧😨
 
 我好想把我冰冷的手脚一股脑的怼进文静温暖的被窝把她冰的怪叫起来<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2058#       发表于 2021-11-9 12:31
+
+陈珺说中之人不想走是不放人
+主播说自己不想走是被职场pua
+我们不裹挟主播，决定权在她们手里
+
+我不会打钱了，但是不攻击打钱的粉丝
+你打的每一笔钱都在帮陈珺买amg
+
+文静放大假了好好休息，别想工作
+文巨炮，你给我出来
+
+爱静信静等静
+抓紧散了得了，赶紧找个工作，也比在陈珺手下浪费青春强
+
+不要打内战
+陈珺直言看贴吧，说不定哪个是他在发贴洗自己
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
