@@ -777,3 +777,21 @@ QQ图片20211109191246.jpg
 
 为啥那么多人说北海道？就不能是九州那边吗？我猜个长崎或者鹿儿岛
 
+
+
+*****
+
+####  cybernetics31  
+##### 66#       发表于 2021-11-9 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">fc动态也发了，不一样的图，看评论应该是北海道了
+
+*****
+
+####  D麦林  
+##### 67#       发表于 2021-11-9 21:31
+
+难道说是调整了一下把个人工作和企划工作连续排在同一个地方了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+开live顺便拍个外景什么的？
+

@@ -5137,3 +5137,24 @@ BV1mU4y1g7Vh
 
 文静不在的第二天，私信也不回，已经出脑文静，打算回踩了
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2070#       发表于 2021-11-9 21:41
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-9 21:44 编辑 
+
+鸟吧找上原力官方了，真能把陈珺ktv吗？
+别到时候真换负责人了，陈珺画的饼作废，重新画饼，那就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  袜子  
+##### 2071#       发表于 2021-11-9 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果是cj的锅一切他背的计划一环呢？CJ吃锅装死，告诉你们换人，千鸟稳中向好，还有21天打钱的时间
+

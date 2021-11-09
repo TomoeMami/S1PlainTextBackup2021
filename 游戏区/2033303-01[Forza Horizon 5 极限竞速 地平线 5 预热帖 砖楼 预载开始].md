@@ -9011,3 +9011,19 @@ ds5手柄识别不了，吐了
 什么越野车，霍妮干RS200 ...</blockquote>
 还是需要的吧，那个水花测速区间，sesto fe跑了好几把，300+km/h的助跑都没三星，换了rs200随便跑了一把都没助跑就3星了...
 
+
+
+*****
+
+####  天神十三煞  
+##### 813#         楼主| 发表于 2021-11-9 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53481750&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-9 05:00</a>
+
+还是需要的吧，那个水花测速区间，sesto fe跑了好几把，300+km/h的助跑都没三星，换了rs200随便跑了一把 ...</blockquote>
+从上面公路120度角出发第一个水潭降速是没办法
+
+第二个从右侧水宽较短的地方滑过去
+
+按X可以看下排行，我的ID是Gilleco，平均时速164
+
