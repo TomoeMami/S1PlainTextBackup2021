@@ -3579,3 +3579,25 @@ https://share.api.weibo.cn/shar ...</blockquote>
 
 反对不彻底就是彻底不反对吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Norkey1  
+##### 4817#       发表于 2021-11-9 11:21
+
+标签化是商业化的一环，不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+明明没有一个人支持不分场合的刷梗，非得立这个靶子。明明有梗相比没梗会带来更多的效益和话题度（有洗手机这个最大的证明），而且刷梗在世界范围内都不可避免，你非得二极管只选最不现实的一个。没有烂梗只有烂人和错误的场合，因为其他的更好，就非要全盘否定这个吗？
+认识本来就是从浅薄到深入的，你一上来就让一个路人认可你定义的“真正的标志”，可行性有多少？完全没有从刷汉堡肉入坑喜欢上的人吗？这些人是不是要开除粉籍了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+我也算是见过东方一路衰退的过程，新人太少老人优越感强是一个很大的问题。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">企划想要做强新人作用很大，他们潜力也很大，我列表刚入坑两位都买了live票买了碟，有一位甚至周边买的比我还多。
+新人本来就有很多不懂的地方没必要恶意太大，你一上来就劈头盖脸骂，人家新人知道自己错了也不知道怎么改。我从一开始就说敲打敲打完事了，老人要做的是引导，既然梗无法避免，就让它变得更好更少；既然人多小鬼多，那就提高小鬼到核心粉丝的转化率。而不是粗暴的说你就不能怎么样怎么样
+刚入坑犯蠢太正常不过了，喜欢给那些新人扣上小鬼或者萌二的帽子的，说不定在更老的人看来也是从这个阶段过来的，没必要太苛刻。不然很容易给一般通过留下“规矩多警察多难融入”的印象。
+本来看在同好分上多和她辩了两句，但这人连挂人都死鸭子嘴硬，还不停给你扣帽子，傲慢至极。这下立个靶子，直接微博精神胜利了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 4818#       发表于 2021-11-9 11:27
+
+玩微博不是最懂饭圈“话题→流量→提纯→收益”那套的吗，现在怎么就想不明白了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
