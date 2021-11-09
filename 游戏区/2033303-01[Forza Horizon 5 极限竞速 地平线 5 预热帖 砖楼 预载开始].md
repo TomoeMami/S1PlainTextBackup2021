@@ -9118,3 +9118,12 @@ ds5手柄识别不了，吐了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我今天新人上线箱子里怎么没礼物啊
 
+
+
+*****
+
+####  nailuo1993  
+##### 822#       发表于 2021-11-10 04:40
+
+这代ai作弊太明显了 ai车物理法则仿佛和玩家的不一样
+

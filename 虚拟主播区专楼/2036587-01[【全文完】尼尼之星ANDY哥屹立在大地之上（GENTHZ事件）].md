@@ -1170,3 +1170,82 @@ B站号怎么也封了啊？当初罪大恶极的TSKK都没被封呢<img src="ht
 
 风怒
 
+
+
+*****
+
+####  Fakerの幻影  
+##### 91#       发表于 2021-11-10 01:47
+
+原批太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 92#       发表于 2021-11-10 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53480446&amp;ptid=2036587" target="_blank">yuandi0120 发表于 2021-11-9 19:32</a>
+顺带舰c区出来的黄尸这都不是第一个，去年已经飞掉一个了233</blockquote>
+这人干嘛了?我以前还看过他的活动攻略<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gogomw  
+##### 93#       发表于 2021-11-10 01:51
+
+ 本帖最后由 gogomw 于 2021-11-10 01:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484381&amp;ptid=2036587" target="_blank">夜潇箫 发表于 2021-11-10 01:48</a>
+
+这人干嘛了?我以前还看过他的活动攻略</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">记得是个屁股不正的香港人,不过这人发的东西和买坟哥比段位还是太低了
+
+*****
+
+####  Abyssmarionette  
+##### 94#       发表于 2021-11-10 02:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可乐疯了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能，我们伟光正的andy哥其实会说自己润出去后经过新冠的打击幡然悔悟从典中典恨国党摇身一变呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快继续接下来的表演吧
+
+*****
+
+####  璃絵和花瑠  
+##### 95#       发表于 2021-11-10 02:24
+
+月翼佬佬佬怎么怂啦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+复读了下他删了的动态就被拒之洞外了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/f01eae5000fd3457bdc2cbbf310d7af8/IMG_CMP_104107438.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  Khvarenah  
+##### 96#       发表于 2021-11-10 02:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说罕见程度
+nga从有super权限的到普通warden隔一个杀一个怕是还有漏的
+
+*****
+
+####  狐言乱语  
+##### 97#       发表于 2021-11-10 02:35
+
+大抵又是一个什么都不了解就来发表高论的同学
+
+<img src="https://img.saraba1st.com/forum/202111/10/023459i9e8w495117eysr5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211110_023217.jpg</strong> (147.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 02:34 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  斯大林的拖拉机  
+##### 98#       发表于 2021-11-10 02:38
+
+原神最强！原神最强！原神最强！
+
