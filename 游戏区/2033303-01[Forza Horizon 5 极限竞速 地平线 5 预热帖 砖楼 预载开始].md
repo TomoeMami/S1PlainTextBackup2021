@@ -8569,3 +8569,22 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ETdiablo  
+##### 773#       发表于 2021-11-9 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472115&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-9 09:11</a>
+
+插线不行？</blockquote>
+不行，早上想试着自动化出门上班。没开几圈手柄就断了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">。想着是不是在PC上也装一下.1060把画质开最低应该是能打开
+
+*****
+
+####  ricarto  
+##### 774#       发表于 2021-11-9 13:19
+
+帮朋友问一下，XGP pc版本，XBOX XBOX主机小帮手两个都登录了，但是打开游戏显示无法登录地平线档案
+
