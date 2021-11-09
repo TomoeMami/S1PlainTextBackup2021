@@ -23476,3 +23476,13 @@ gris 还行 很适合云的游戏
 
 HIRySk, High Reward<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimmy1996  
+##### 1462#       发表于 2021-11-9 19:24
+
+Do you like your nuts crushed or not?<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+ID原来这么放飞自我的吗？EN比起来seiso 得像一张白纸啊wwwww<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
