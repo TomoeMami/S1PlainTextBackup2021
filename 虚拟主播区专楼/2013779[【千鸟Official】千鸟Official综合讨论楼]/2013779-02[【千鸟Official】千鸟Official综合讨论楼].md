@@ -6262,3 +6262,14 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  小憨1  
+##### 2184#       发表于 2021-11-11 01:34
+
+感觉还是文静认为能拿到的和运营能给的存在差距
+文静想要的是腾讯的支持，如果陈珺说的是真的的话，腾讯根本没有入场，所以文静那天晚上炸了
+现在运营和直播员有信息差，观众和直播员有信息差，彼此相互折磨<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

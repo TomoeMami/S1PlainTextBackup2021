@@ -10317,3 +10317,25 @@ syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧ki
 
 索尼有给anycolor派顾问的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  freakystar  
+##### 8261#       发表于 2021-11-11 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497896&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-11 00:57</a>
+
+女体化衣服是今年4月就有剪影了 拖到万圣才出的而已，虹这边有衣服没披露很多的因为要想段子 ...</blockquote>
+4月就开始布局女体化了吗？可能因为king之前给我的印象和口碑一直是不会刻意营业那型吧，大意了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freakystar  
+##### 8262#       发表于 2021-11-11 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497986&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-11-11 01:12</a>
+
+索尼有给anycolor派顾问的</blockquote>
+从结果来看，这个顾问的影响力也忒大了<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
+
