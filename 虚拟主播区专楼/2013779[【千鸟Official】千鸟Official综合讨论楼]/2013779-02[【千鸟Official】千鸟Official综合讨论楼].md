@@ -5460,3 +5460,13 @@ xdm，登子的米到了！
 
 静！<img src="https://p.sda1.dev/3/9c8630defd985bb306bdeaa0671d5d4f/IMG_CMP_226838339.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有效击穿  
+##### 2096#       发表于 2021-11-10 15:07
+
+想到一句歇后语，不知道通顺不通顺
+静栗惹找妈妈——gn真下头
+
