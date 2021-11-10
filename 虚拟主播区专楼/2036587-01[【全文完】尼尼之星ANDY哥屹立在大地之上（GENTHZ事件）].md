@@ -1543,3 +1543,22 @@ genthz的发言被锁了但帖子点进去还是能看的，特别喜欢‘文�
 是不是太监地太离谱了点</blockquote>
 咦，这位好像有印象啊，谁来着
 
+
+
+*****
+
+####  凛子也想要五个  
+##### 120#       发表于 2021-11-10 13:48
+
+呃呃《一曲忠诚的赞歌》
+
+<img src="https://img.saraba1st.com/forum/202111/10/134821rt6q87lb666lqplz.png" referrerpolicy="no-referrer">
+
+<strong>46176cf5a7177d81.png</strong> (58.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 13:48 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9363,3 +9363,31 @@ win版有检查完整性吗，没有的话我还是直接重下算了<img src="h
 智能车手的实力一定程度反映了对应名字真人玩家的实力，所以如果看到某个领头羊的名字经常出现可以通过来回 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我游戏里的AI是根本不玩这游戏的STEAM好友……
 
+
+
+*****
+
+####  没钱买手办  
+##### 846#       发表于 2021-11-10 13:48
+
+开局表演赛闪退的试试断网玩，基本都能解决
+
+*****
+
+####  nemunoki  
+##### 847#       发表于 2021-11-10 13:56
+
+<blockquote>makece 发表于 2021-11-10 13:25
+我游戏里的AI是根本不玩这游戏的STEAM好友……</blockquote>
+这种纯挂名的我就单人模式大地图见过，跑比赛不会出现
+
+*****
+
+####  弱逼  
+##### 848#       发表于 2021-11-10 13:57
+
+ai很离谱
+基本上就是靠大弯的时候 美式拦截超过去<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
