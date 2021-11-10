@@ -9269,3 +9269,19 @@ ds5手柄识别不了，吐了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看视频评论，ai用599xe跑环岛9分06秒，而这作的599xe性能一般般
 
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 837#       发表于 2021-11-10 12:02
+
+forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还来吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  升职加薪  
+##### 838#       发表于 2021-11-10 12:22
+
+赛车有希望tga goty吗
+

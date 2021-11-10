@@ -1522,3 +1522,12 @@ genthz的发言被锁了但帖子点进去还是能看的，特别喜欢‘文�
 
 难绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Abyssmarionette  
+##### 118#       发表于 2021-11-10 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">andy哥一被挖，泥潭v版蝗楼给直接炸了也太乐了，4v论坛不愧是4v论坛
+
