@@ -866,3 +866,32 @@ VRchat正好证明玩家实际想玩的东西和吹的元宇宙概念毫无关�
 
 giant Ivan Ooze大草原
 
+
+
+*****
+
+####  982950844  
+##### 81#       发表于 2021-11-10 20:26
+
+不消灭资本主义生产关系什么狗屁元宇宙都是监狱
+
+*****
+
+####  飞姆托  
+##### 82#       发表于 2021-11-10 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412329&amp;ptid=2035657" target="_blank">dumplingpro 发表于 2021-11-4 15:15</a>
+虽然确实是炒币，
+
+但干巴巴的社交不行，有玩家自己创造的内容的话，虚拟社区是没问题的，VRchat确实有不 ...</blockquote>
+左转管人区<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  halflifes  
+##### 83#       发表于 2021-11-10 20:44
+
+元宇宙不是元气宇宙的缩写吗？我一直以为是元气森林的新款饮料，宇宙味的
+

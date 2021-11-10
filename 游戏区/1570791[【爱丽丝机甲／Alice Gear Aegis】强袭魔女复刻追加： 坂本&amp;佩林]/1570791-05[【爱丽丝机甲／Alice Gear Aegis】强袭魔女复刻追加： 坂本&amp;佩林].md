@@ -2984,3 +2984,20 @@ SP变化。
 
 这两个都是变态的小玉使。那种手速把舞按出类似绫香的舞步效果（指的是第二个视频顶着VW对砍和最后部分以及第三个视频打狗1阶段某部分），这个舞的举盾连段用起来简直不是人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 6212#       发表于 2021-11-10 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482069&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-9 21:25</a>
+
+https://www.bilibili.com/video/BV1Yb4y187nn
+
+https://www.bilibili.com/video/BV1nv411M7G6/
+
+https://www ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这老哥频道里有好多王红花
+[https://www.youtube.com/channel/UCwzef64SJq_eeLjlPqynQgA/videos](https://www.youtube.com/channel/UCwzef64SJq_eeLjlPqynQgA/videos)
+
