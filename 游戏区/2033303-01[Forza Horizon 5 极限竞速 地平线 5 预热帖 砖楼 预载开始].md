@@ -9285,3 +9285,23 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 
 赛车有希望tga goty吗
 
+
+
+*****
+
+####  4ckc  
+##### 839#       发表于 2021-11-10 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53488242&amp;ptid=2033303" target="_blank">升职加薪 发表于 2021-11-10 12:22</a>
+赛车有希望tga goty吗</blockquote>
+从lga有几个傻逼天天带优化闪退节奏看，我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Existinghomes  
+##### 840#       发表于 2021-11-10 12:38
+
+玩家数量超450万了，不知道车展supra和美军吉普销量加起来能不能过亿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

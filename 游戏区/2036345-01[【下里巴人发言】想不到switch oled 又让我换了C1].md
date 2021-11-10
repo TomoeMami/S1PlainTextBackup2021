@@ -941,3 +941,12 @@ c1偏色啊 人脸惨白，亮处还过曝
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">设置可以参考油管hdtvtest，vincent老哥对主机和电视怎么设置都有详细内容讲解，甚至有对特定固件的分析
 
+
+
+*****
+
+####  jack52518  
+##### 87#       发表于 2021-11-10 12:35
+
+C1从9700跌到9500的时候我还怕他再涨价赶紧买了。。后悔啊现在这么便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
