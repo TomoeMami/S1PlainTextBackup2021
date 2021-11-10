@@ -6219,3 +6219,19 @@ cj出来吸引视线也是游戏计划的一部分，这样大家的注意力就
 没看,细说.</blockquote>
 我记性不好不会repo，等录播吧，简单说就是有人发散，被她骂了
 
+
+
+*****
+
+####  小憨1  
+##### 2180#       发表于 2021-11-11 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497486&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-11 00:07</a>
+没看,细说.</blockquote>
+弹幕：是不是不能说文静俩字了
+co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
+然后反应过来用沾狗屎形容不太合适，就说“我什么都没说”
+之后弹幕开始发散文静被切割了，开始狂刷，给co宝吓到了，以为自己说错了什么话，反应过来之后生气了，但场面已经收不住了，只能中断直播<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+虽然指导观众不好，但我还是觉得大伙在其他人直播间还是得收收味，观众难受直播员也难受，这下真给压力了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

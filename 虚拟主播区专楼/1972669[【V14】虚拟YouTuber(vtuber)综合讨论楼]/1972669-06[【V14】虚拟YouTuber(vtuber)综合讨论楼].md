@@ -10281,3 +10281,14 @@ king这张版本多啊，再加上店特之类的，火畜一口气买好几个�
 
 虹kr，好温暖啊（
 
+
+
+*****
+
+####  freakystar  
+##### 8257#       发表于 2021-11-11 00:34
+
+不晓得虹接下来还会整啥回归主流的花样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧king的运营还挺厉害，看同接上去后隔段时间就安排跟油管大物、三次元偶像联动，紧接着就是女体化和solo live，外加明年迷你专，全程加速保持热度和曝光率。目前来看资源拉满没有一个环节拉跨，这还是虹吗<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
