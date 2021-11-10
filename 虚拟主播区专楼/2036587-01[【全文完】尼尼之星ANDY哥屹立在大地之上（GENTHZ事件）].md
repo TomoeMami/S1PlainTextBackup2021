@@ -1649,3 +1649,29 @@ QQ截图20211110143134.png
 
 还剩谁？
 
+
+
+*****
+
+####  空集  
+##### 129#       发表于 2021-11-10 15:15
+
+看了下月翼还发了个什么狗屁比喻谜语....只能继续 加典
+
+*****
+
+####  gogomw  
+##### 130#       发表于 2021-11-10 15:21
+
+ 本帖最后由 gogomw 于 2021-11-10 15:24 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/10/152001msf6s86t3636zfri.png" referrerpolicy="no-referrer">
+
+<strong>A10151924.png</strong> (23.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 15:20 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">如果要连最后名为爱国主义的遮羞布都要扯下,那冲蝗人和其认同者们不就单纯只是一群对着无辜女性Vtuber施暴的死妈跨国网暴狗了吗
+
