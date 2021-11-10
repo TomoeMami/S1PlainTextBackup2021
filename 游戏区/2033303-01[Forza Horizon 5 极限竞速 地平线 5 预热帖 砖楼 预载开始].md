@@ -9537,3 +9537,28 @@ ai很离谱
 
 问一下5带拍照照片存在哪了？不在hub？
 
+
+
+*****
+
+####  4ckc  
+##### 863#       发表于 2021-11-10 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495496&amp;ptid=2033303" target="_blank">D-JoeII 发表于 2021-11-10 21:10</a>
+微軟其實是不是以為FH5因為撞了COD覺得會走細水長流賣法,所以當初沒準備多點服務器 ...</blockquote>
+大概没想到这么火爆吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过现在明显好多了，我这种奇葩网络都不掉线了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Totokei  
+##### 864#       发表于 2021-11-10 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495835&amp;ptid=2033303" target="_blank">殿珣 发表于 2021-11-10 21:34</a>
+问一下5带拍照照片存在哪了？不在hub？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FH4年代我一般用老黄驱动在预览模式把ui隐藏了截图，无水印画质也没区别
+
+fh5感觉有点问题，gamebar和老黄都有点难截图
+

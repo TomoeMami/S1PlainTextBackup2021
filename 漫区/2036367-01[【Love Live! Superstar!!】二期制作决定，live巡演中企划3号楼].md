@@ -1144,3 +1144,19 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 和经纪人也可以磕吗？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 98#       发表于 2021-11-10 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">正在学中文的欧马内甲，磕，都可以磕
+
+*****
+
+####  soranoguiji  
+##### 99#       发表于 2021-11-10 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 鲤鱼这个马内甲的确可以，好像是个专属的吧，其他人都没有
+

@@ -3039,3 +3039,41 @@ https://www ...</blockquote>
 看了，红花真是惨，近战太刮痧了最后逆属的狮鹫得上轰雷活动手减甲才能 ...</blockquote>
 PC的宽屏+输入十分有利于开发角色上限，国服只能羡慕了。
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6215#       发表于 2021-11-10 22:00
+
+ 本帖最后由 江戸前ルナ 于 2021-11-10 22:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495987&amp;ptid=1570791" target="_blank">拍不到脑袋 发表于 2021-11-10 21:44</a>
+
+PC的宽屏+输入十分有利于开发角色上限，国服只能羡慕了。</blockquote>
+也不一定的，事实证明触手拿什么都是触手<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+比如这位
+[https://www.youtube.com/channel/UCgX7Qts2sKUCKL_cXUKpVVQ](https://www.youtube.com/channel/UCgX7Qts2sKUCKL_cXUKpVVQ)
+
+以前就玩过1星打高难
+[https://www.bilibili.com/video/BV1jf4y1U7Z3](https://www.bilibili.com/video/BV1jf4y1U7Z3)
+
+近来高难越来越多花样大概1星打不过或者不想花太多精力去打就没怎么见了。但拿1星去虐虐活动图200级boss依然是传统艺能<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+又比如这位天朝的土妹大触
+[https://space.bilibili.com/1797/dynamic](https://space.bilibili.com/1797/dynamic)
+
+还有上面发的小玉视频前两个的那个UP,也是用手机打出变态的手速的。事实上有些操作手机搓玻璃比手柄简单很多，比如鬼畜斩、涉及下A横A的高速LOOP类（熏子的海豚跳）。PC的最大优势是视野（特别是手机版为了看PP而调成近视角不肯让步的比如我）、慢移动射击、绕前推射这三个，其他的差距并不是想象中那么大。
+
+*****
+
+####  拍不到脑袋  
+##### 6216#       发表于 2021-11-10 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496162&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-10 22:00</a>
+
+也不一定的，事实证明触手拿什么都是触手
+
+比如这位</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">确实，我PC目前鬼畜滑刀节奏很差，手机上还不错。
+
