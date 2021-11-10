@@ -1322,3 +1322,14 @@ andy哥对外宣称这是为了让“还有幻想的人”不买票，以此达�
 我记得王维一几年的长白山直播那次直播不小心暴露自己的手机号，一堆人还在那自肃开话题不让传播他的个人 ...</blockquote>
 可能他在盗圈的名声？也说不好盗圈头面里也有人在回护他呗，毕竟他推特上不少很夸张的图都是用来嘲讽夹总封他号的，其中他自我署名是你说的他在盗圈的id“王维二叔”，搞不好盗圈是他所有混的圈子里牵扯最深和他扯上关系被他带偏的人最多的圈子呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Nanachi  
+##### 106#       发表于 2021-11-10 08:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">4v论坛nga，吸引一下恨国人士很正常吧
+
+—— 来自 HUAWEI JAD-AL50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
