@@ -9351,3 +9351,15 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 检查游戏完整性和降画质试试？</blockquote>
 win版有检查完整性吗，没有的话我还是直接重下算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  makece  
+##### 845#       发表于 2021-11-10 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486673&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-10 10:39</a>
+
+智能车手的实力一定程度反映了对应名字真人玩家的实力，所以如果看到某个领头羊的名字经常出现可以通过来回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我游戏里的AI是根本不玩这游戏的STEAM好友……
+

@@ -1531,3 +1531,15 @@ genthz的发言被锁了但帖子点进去还是能看的，特别喜欢‘文�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">andy哥一被挖，泥潭v版蝗楼给直接炸了也太乐了，4v论坛不愧是4v论坛
 
+
+
+*****
+
+####  MrHPQ  
+##### 119#       发表于 2021-11-10 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484342&amp;ptid=2036587" target="_blank">璃絵和花瑠 发表于 2021-11-10 01:40</a>
+
+是不是太监地太离谱了点</blockquote>
+咦，这位好像有印象啊，谁来着
+
