@@ -14092,3 +14092,14 @@ bilibili复活
 她现在这偶像路线人设立不起来，粉丝做不到脑补和自我感动，怎么看都是死路一条。 ...</blockquote>
 就是因为别人走通了，她才走的吧，还是你想说别家粉丝都是脑补兼自我感动？差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7137#       发表于 2021-11-10 18:49
+
+偶像路线走通的不就一个星街彗星，你要算SorAZ也行，还有谁啊
+
+夸夸这个唱的水平还是建议crew不要自取其辱了吧
+

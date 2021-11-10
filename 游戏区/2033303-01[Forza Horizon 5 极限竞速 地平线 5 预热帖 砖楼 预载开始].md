@@ -9457,3 +9457,35 @@ ai很离谱
 
 因为我的常用账号上个月买了那个十港币的 xgp for pc，所以我自己没办法验证这个办法是否可行
 
+
+
+*****
+
+####  诶哟卧草  
+##### 855#       发表于 2021-11-10 18:52
+
+有没有可以切到后台的自动跑圈大法，现在电脑什么都干不了和坐牢一样
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  zgh406624  
+##### 856#       发表于 2021-11-10 18:56
+
+为什么我没有收到吉普啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我也想要祝福
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qianoooo  
+##### 857#       发表于 2021-11-10 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53493689&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-10 18:52</a>
+
+有没有可以切到后台的自动跑圈大法，现在电脑什么都干不了和坐牢一样
+
+—— 来自 OnePlus KB2000, Android  ...</blockquote>
+用xcloud挂机
+
