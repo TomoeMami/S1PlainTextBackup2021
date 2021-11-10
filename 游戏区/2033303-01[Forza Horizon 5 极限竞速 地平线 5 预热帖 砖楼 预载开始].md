@@ -9652,3 +9652,23 @@ xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com
 醉了，卡在v10第8关。倒不是难，而是快结尾几个检查点强制失败。。。也没有错过检查点的提示，就直接失败了 ...</blockquote>
 必须比npc快不然就直接失败
 
+
+
+*****
+
+####  Totokei  
+##### 874#       发表于 2021-11-11 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496676&amp;ptid=2033303" target="_blank">tasuku 发表于 2021-11-10 22:46</a>
+fh4的痛车能搞到5来么...</blockquote>
+自己做的涂装可以同步，别人的不行
+
+*****
+
+####  Totokei  
+##### 875#       发表于 2021-11-11 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚搞上了按键精灵实现全自动点技能点删车，真的放置抽卡游戏了
+
+超级抽奖的奖池里看见了daytona可惜没抽中不然直接再次财务自由了
+

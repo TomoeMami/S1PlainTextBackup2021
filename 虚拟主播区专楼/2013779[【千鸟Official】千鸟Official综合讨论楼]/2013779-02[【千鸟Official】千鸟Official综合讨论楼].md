@@ -6198,3 +6198,24 @@ cj出来吸引视线也是游戏计划的一部分，这样大家的注意力就
 
 还得是coco，好骂
 
+
+
+*****
+
+####  tankai  
+##### 2178#       发表于 2021-11-11 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497396&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-10 23:59</a>
+
+还得是coco，好骂</blockquote>
+没看,细说.
+
+*****
+
+####  夜之中道崩殂  
+##### 2179#       发表于 2021-11-11 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497486&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-11 00:07</a>
+没看,细说.</blockquote>
+我记性不好不会repo，等录播吧，简单说就是有人发散，被她骂了
+
