@@ -921,3 +921,14 @@ c1 b站看小包评测的游戏主机设置，目前感觉良好。</blockquote>
 
 数字换cd音频饱满<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BensonDarr  
+##### 85#       发表于 2021-11-10 10:02
+
+c1偏色啊 人脸惨白，亮处还过曝
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

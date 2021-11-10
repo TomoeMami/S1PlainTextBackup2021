@@ -781,3 +781,12 @@ FB是想借机搞自己的虚拟货币，其它的也是很多 ...</blockquote>
 
 区块链我还得百度一下，小扎炒这个大家都能看懂，能噶到韭菜吗
 
+
+
+*****
+
+####  woodey  
+##### 73#       发表于 2021-11-10 09:49
+
+再怎么样能发展技术就好，总比在2d屏幕里看世界要好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
