@@ -3088,3 +3088,43 @@ PC的宽屏+输入十分有利于开发角色上限，国服只能羡慕了。</
 
 看了看都有两件
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6218#       发表于 2021-11-10 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496809&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-11-10 22:59</a>
+
+问下小枫的an腿和an枪分别用哪个好的？
+
+看了看都有两件</blockquote>
+枫的AN步枪没kiss的啊。AN腿的kiss就是多一发和减CD。但是另外一个吉野山没KISS就很不错的，类似于那个活动拔刀腿，攻击更高速度更快，复数次命中还有减防。
+
+*****
+
+####  hypnossz86  
+##### 6219#       发表于 2021-11-10 23:27
+
+ 本帖最后由 hypnossz86 于 2021-11-10 23:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497025&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-10 23:23</a>
+枫的AN步枪没kiss的啊。AN腿的kiss就是多一发和减CD。但是另外一个吉野山没KISS就很不错的，类似于那个活 ...</blockquote>
+an枪是没kiss
+但是确实有两把，也不知道啥区别，一把叫试做初音A，一把叫试做初音A甲
+难道一把是胶枪的an？
+
+*****
+
+####  江戸前ルナ  
+##### 6220#       发表于 2021-11-10 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497079&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-11-10 23:27</a>
+
+an枪是没kiss
+
+但是确实有两把，也不知道啥区别，一把叫试做初音A，一把叫试做初音A甲
+
+难道一把是胶枪的an ...</blockquote>
+纳尼？我翻了下才发现还没开出枫的an枪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">万年不上枫见没KISS就根本没注意了
+
