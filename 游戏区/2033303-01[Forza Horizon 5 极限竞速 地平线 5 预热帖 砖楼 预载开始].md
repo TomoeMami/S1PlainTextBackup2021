@@ -9735,3 +9735,16 @@ fh4的痛车能搞到5来么...</blockquote>
 
 A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者雪佛兰zr2，拉力用hoonigan rs200 evo
 
+
+
+*****
+
+####  Krizzy  
+##### 881#       发表于 2021-11-11 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498391&amp;ptid=2033303" target="_blank">Senbascira 发表于 2021-11-11 02:38</a>
+第一次玩fh，沉迷了两天后发现老手难度的ai都很难打过，直道难以拉近，起步比ai慢，过弯我觉得自己做得蛮好 ...</blockquote>
+把车恢复原厂试试，可能是这个调教不行，我感觉送的这车直接去老手比赛还是能用的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
