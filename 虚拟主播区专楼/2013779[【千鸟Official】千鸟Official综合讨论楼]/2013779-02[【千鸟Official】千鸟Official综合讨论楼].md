@@ -5957,3 +5957,59 @@ xdm，登子的米到了！
 
 白白今天是摸了嘛
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2155#       发表于 2021-11-10 21:28
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-10 21:33 编辑 
+
+又说不要发散，又说明天后天会发生什么谁都不知道。
+千鸟直播员的话术怎么都这么。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+别说贴吧的鸟批疯了，我感觉我也要疯了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 2156#       发表于 2021-11-10 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495754&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-10 21:28</a>
+
+又说不要发散，又说明天后天会发生什么谁都不知道。
+
+千鸟直播员的话术怎么都这么。。。
+
+别说贴吧的 ...</blockquote>
+不知道该怎么说话就是这样了
+
+听君一席话.jpg
+
+*****
+
+####  夜之中道崩殂  
+##### 2157#       发表于 2021-11-10 21:37
+
+越说越像文静2.0要被切割，如果不是的话，那艾瑞思的话术真该重新学学了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2158#       发表于 2021-11-10 21:40
+
+ 本帖最后由 rgauss 于 2021-11-10 21:43 编辑 
+
+本人已4  有事烧纸  这氛围我真受不了了
+
+开心也是一天，不开心也是一天，所以，笑一个吧！
+
+syl 艾瑞思真的不会激励人
+
+*****
+
+####  莫洛骑士  
+##### 2159#       发表于 2021-11-10 21:43
+
+听君一席话，胜似一席话<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
