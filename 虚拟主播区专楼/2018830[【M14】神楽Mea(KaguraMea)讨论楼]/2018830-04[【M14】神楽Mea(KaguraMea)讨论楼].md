@@ -3292,3 +3292,21 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 昨天梦到咩咩开侧面的半身摄像头直播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不是坦，手臂很瘦，然后就醒了.....
 
+
+
+*****
+
+####  雪风utopia  
+##### 4880#       发表于 2021-11-10 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486995&amp;ptid=2018830" target="_blank">Mr.shelter 发表于 2021-11-10 10:59</a>
+昨天梦到咩咩开侧面的半身摄像头直播了，不是坦，手臂很瘦，然后就醒了..... ...</blockquote>
+坦克民破防了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4881#       发表于 2021-11-10 11:13
+
+梦里的一般和现实是相反的
+

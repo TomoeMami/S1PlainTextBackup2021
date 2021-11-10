@@ -9212,3 +9212,51 @@ ds5手柄识别不了，吐了
 
 有没有办法两台电脑一个账号玩一个存档啊，在别的电脑下了个直接给开了新存档。
 
+
+
+*****
+
+####  lotusaelise  
+##### 831#       发表于 2021-11-10 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486673&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-10 10:39</a>
+智能车手的实力一定程度反映了对应名字真人玩家的实力，所以如果看到某个领头羊的名字经常出现可以通过来回 ...</blockquote>
+5还没开始玩所向披靡，但感觉4里djs的ai也没多强？
+
+*****
+
+####  lotusaelise  
+##### 832#       发表于 2021-11-10 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486536&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-10 10:30</a>
+总感觉AI为了玩家体验，一开始特别快，后段又变慢让玩家超过去...</blockquote>
+发现了 经典先惊后丢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 833#       发表于 2021-11-10 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53487140&amp;ptid=2033303" target="_blank">lotusaelise 发表于 2021-11-10 11:07</a>
+
+5还没开始玩所向披靡，但感觉4里djs的ai也没多强？</blockquote>
+官方已知错误列表里直接明说AI太快打不过了，等修正
+
+*****
+
+####  nemunoki  
+##### 834#       发表于 2021-11-10 11:18
+
+<blockquote>lotusaelise 发表于 2021-11-10 11:07
+5还没开始玩所向披靡，但感觉4里djs的ai也没多强？</blockquote>
+4的所向披靡整体都很菜只要不是那种单圈特别短的都可以吊锤而且ai倾向于抱团排成一字长蛇
+
+这代经常看见有一两个脱团领跑的特别离谱
+
+*****
+
+####  老黑305  
+##### 835#       发表于 2021-11-10 11:24
+
+你以为第六元素的魔法抓地力很离谱，但ai的抓地力就是开挂，经常看到用超级离谱的速度过弯
+
