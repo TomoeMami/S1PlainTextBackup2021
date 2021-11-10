@@ -928,3 +928,30 @@ fc动态也发了，不一样的图，看评论应该是北海道了</blockquote
 
 冈山飞冲绳再飞东京然后飞北海道？好忙..
 
+
+
+*****
+
+####  saya1892  
+##### 80#       发表于 2021-11-10 09:19
+
+[https://fate.5ch.net/test/read.cgi/lovelive/1636450909](https://fate.5ch.net/test/read.cgi/lovelive/1636450909)
+
+这帖有人把fanclub里经纪人写的东西贴出来了，转一下
+
+<img src="https://img.saraba1st.com/forum/202111/10/091916zp646mmgm36zh88n.jpg" referrerpolicy="no-referrer">
+
+<strong>1(1).jpg</strong> (103.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 09:19 上传
+
+<img src="https://img.saraba1st.com/forum/202111/10/091922t8216b326thywkt8.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (96.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 09:19 上传
+

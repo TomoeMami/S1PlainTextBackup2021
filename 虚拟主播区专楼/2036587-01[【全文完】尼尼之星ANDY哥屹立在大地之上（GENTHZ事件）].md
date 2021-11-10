@@ -1434,3 +1434,51 @@ andy哥对外宣称 ...</blockquote>
 
 再加两张
 
+
+
+*****
+
+####  harry3  
+##### 111#       发表于 2021-11-10 09:07
+
+<img src="https://img.saraba1st.com/forum/202111/10/090703kpi42hs4sfda47s2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 09:07 上传
+
+andy哥早就不玩方舟了，纯纯的原友<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シナモンロール  
+##### 112#         楼主| 发表于 2021-11-10 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53485478&amp;ptid=2036587" target="_blank">harry3 发表于 2021-11-10 09:07</a>
+andy哥早就不玩方舟了，纯纯的原友</blockquote>
+可惜原友没有听他解释，原友只当它是内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 113#       发表于 2021-11-10 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53485227&amp;ptid=2036587" target="_blank">midearth 发表于 2021-11-10 08:40</a>
+这个说起来就搞笑，造势那么久，结果真播起来一会就被掐了。疑似真粉的海外盗播哥可是换了N个号播完的 ...</blockquote>
+那个是crew<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+给夸夸打call的.png
+
+*****
+
+####  midearth  
+##### 114#       发表于 2021-11-10 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53485593&amp;ptid=2036587" target="_blank">渡鸦骑士 发表于 2021-11-10 09:16</a>
+
+那个是crew
+
+给夸夸打call的.png</blockquote>
+对想起来了
+

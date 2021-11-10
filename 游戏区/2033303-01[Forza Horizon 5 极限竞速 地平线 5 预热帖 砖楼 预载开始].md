@@ -9157,3 +9157,19 @@ ds5手柄识别不了，吐了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">全版本首发日快过去了你软的补丁还没憋出来
 
+
+
+*****
+
+####  mcq_2  
+##### 826#       发表于 2021-11-10 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476666&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-9 15:21</a>
+
+今天终于抽出克尔维特55打算体验一下，一进改装给我整笑了
+
+人均二战老兵了属于是
+
+ ...</blockquote>
+改太快了反倒不好
+
