@@ -10301,3 +10301,19 @@ syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧ki
 
 女体化衣服是今年4月就有剪影了 拖到万圣才出的而已，虹这边有衣服没披露很多的因为要想段子
 
+
+
+*****
+
+####  dybang  
+##### 8259#       发表于 2021-11-11 01:06
+
+不止是运营，联动也得效果好才行啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">目前King也没翻车过
+
+*****
+
+####  OldGlory  
+##### 8260#       发表于 2021-11-11 01:12
+
+索尼有给anycolor派顾问的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

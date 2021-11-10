@@ -6251,3 +6251,14 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 我第一次仔细看了艾瑞思的op<blockquote>艾瑞思正在花园的树洞里捕捉偷吃了糖罐里的艾妃糖的小兔崽子ING</blockquote>
 
+
+
+*****
+
+####  tn_teana  
+##### 2183#       发表于 2021-11-11 01:17
+
+确实，静姨满嘴跑火车，说腾讯视频死了，互娱不玩管人了之类的
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
