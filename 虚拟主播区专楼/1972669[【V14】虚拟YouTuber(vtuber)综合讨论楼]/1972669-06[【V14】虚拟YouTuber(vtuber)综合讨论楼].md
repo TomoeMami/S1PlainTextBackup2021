@@ -10226,3 +10226,24 @@ king这张版本多啊，再加上店特之类的，火畜一口气买好几个�
 彩虹的拼盘卖了38494张，难道葛叶还能卖过这个？我不信</blockquote>
 怎么会卖不过拼盘，首先拼盘不是人人都买账的，再说king主流出道首专附带抽选，粉丝不下血本刷销量才怪了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雨井绫  
+##### 8251#       发表于 2021-11-10 22:20
+
+ 本帖最后由 雨井绫 于 2021-11-10 22:25 编辑 
+
+在听国v电台的时候突然想起我第一次听这种只有声音的直播是当年听郡道美玲的Twitch，好像是在家里收拾东西吧，最后还整理出了一堆垃圾袋？想起这事莫名有些心态爆炸。不知道我是不是产生错误记忆了，有这场直播吗？
+
+*****
+
+####  硫黄  
+##### 8252#       发表于 2021-11-10 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">本来不懂一张券30秒有啥好抽的
+
+问了问懂行的，原来都是多抽几张券叠时长玩的
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">学习了
+
