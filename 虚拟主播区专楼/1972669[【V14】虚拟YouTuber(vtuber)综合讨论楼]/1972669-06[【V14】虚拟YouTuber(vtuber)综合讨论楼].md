@@ -10214,3 +10214,15 @@ king这张版本多啊，再加上店特之类的，火畜一口气买好几个�
 
 有随专附赠的応募抽选券（30s谈话合影/规定禁止转卖），每人的申请数量没有限制，一看就是铁了心要冲销量的
 
+
+
+*****
+
+####  freakystar  
+##### 8250#       发表于 2021-11-10 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495128&amp;ptid=1972669" target="_blank">free 发表于 2021-11-10 20:43</a>
+
+彩虹的拼盘卖了38494张，难道葛叶还能卖过这个？我不信</blockquote>
+怎么会卖不过拼盘，首先拼盘不是人人都买账的，再说king主流出道首专附带抽选，粉丝不下血本刷销量才怪了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

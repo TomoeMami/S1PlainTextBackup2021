@@ -3025,3 +3025,17 @@ https://www ...</blockquote>
 
 还有唯厨枫厨等等就不一一举例了。天朝也有个非常变态不比上面差的土妹厨大触手<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 6214#       发表于 2021-11-10 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495570&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-10 21:16</a>
+
+感谢啊。而且竟然还有妹控
+
+看了，红花真是惨，近战太刮痧了最后逆属的狮鹫得上轰雷活动手减甲才能 ...</blockquote>
+PC的宽屏+输入十分有利于开发角色上限，国服只能羡慕了。
+

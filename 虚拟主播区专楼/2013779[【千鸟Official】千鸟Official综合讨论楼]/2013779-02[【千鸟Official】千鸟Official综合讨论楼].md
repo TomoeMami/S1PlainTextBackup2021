@@ -6013,3 +6013,32 @@ syl 艾瑞思真的不会激励人
 
 听君一席话，胜似一席话<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  四叶的花  
+##### 2160#       发表于 2021-11-10 21:50
+
+ 本帖最后由 四叶的花 于 2021-11-10 22:00 编辑 
+
+都当谜语人吧，哈哈哈哈哈
+开心也是一天，不开心也是一天，所以，笑一个吧！
+哈哈哈哈哈哈哈哈哈哈哈哈哈哈😃😃😃😁😂😊☺️😉😏😂😆😀😆😀😆😀哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+
+
+*****
+
+####  伞沢直美  
+##### 2161#       发表于 2021-11-10 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就没有定数呗，破草台班子还不是领导一拍脑袋的事
+
+*****
+
+####  夜之中道崩殂  
+##### 2162#       发表于 2021-11-10 22:02
+
+我球球艾瑞思别说了，我怕今晚就有鸟批上天台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
