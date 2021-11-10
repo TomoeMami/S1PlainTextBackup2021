@@ -741,3 +741,34 @@ FB是想借机搞自己的虚拟货币，其它的也是很多 ...</blockquote>
 我在現實世界已經活得夠辛苦了，還要跳到另一個世界過沒啥 ...</blockquote>
 小扎一边收集个人信息，一边发天秤币，一边搞元宇宙把人圈起来，可惜公司没改名叫cyberzuck<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Chia  
+##### 69#       发表于 2021-11-10 08:44
+
+<img src="https://img.saraba1st.com/forum/202111/10/084306fwezgww5wzcw8azw.jpg" referrerpolicy="no-referrer">
+
+<strong>捕获.JPG</strong> (31.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 08:43 上传
+
+白轰了，我元宇宙第一股要教你独角兽怎么写……
+
+*****
+
+####  何然  
+##### 70#       发表于 2021-11-10 08:46
+
+元宇宙这傻屌概念还不如猿辅导呢
+
+*****
+
+####  Sissii  
+##### 71#       发表于 2021-11-10 09:02
+
+好喷，元宇宙跟区块链一样离谱的概念，纯粹拿来割韭菜的
+

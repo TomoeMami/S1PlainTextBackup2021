@@ -13996,3 +13996,14 @@ bilibili复活
 一个专门负责跑前跑后的，其他几个专人专事，联络作曲或者3D。
 要我说夸夸这个转型最大的问题难道不是忽略了粉丝在其中的参与程度嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Scardy  
+##### 7129#       发表于 2021-11-10 08:42
+
+看看丰州live的票卖的好不好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

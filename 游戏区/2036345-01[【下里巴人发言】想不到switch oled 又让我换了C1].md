@@ -881,3 +881,18 @@ c1 b站看小包评测的游戏主机设置，目前感觉良好。</blockquote>
 
 真好，不过下一台电视本来就打算买lg c系列了，国内55寸居然只要7600<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，我太tm酸了
 
+
+
+*****
+
+####  beatmania  
+##### 81#       发表于 2021-11-10 08:58
+
+今年买c1的价格已经非常实惠了
+
+我去年买的cx 9800
+
+用一年 看片打游戏 非常好 
+
+明年48 43的应该价格不会太贵了 我感觉对有条件的各位都可以那它当显示器用
+
