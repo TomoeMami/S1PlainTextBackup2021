@@ -9498,3 +9498,15 @@ ai很离谱
 
 醉了，卡在v10第8关。倒不是难，而是快结尾几个检查点强制失败。。。也没有错过检查点的提示，就直接失败了。。。
 
+
+
+*****
+
+####  920619lqy  
+##### 859#       发表于 2021-11-10 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476648&amp;ptid=2033303" target="_blank">haru橙子 发表于 2021-11-9 01:19</a>
+
+刷分数直接开出场地，到个没有石头没有大树的地方，瞎开就完事了</blockquote>
+我刚意识到这个图没有锁任务区域..<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

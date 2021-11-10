@@ -10145,3 +10145,26 @@ Syl，虹给King发的这第二套3D还是有点粗糙的，主流出道给外�
 
 话又说回来仔细想想其实我也没那么非要看到挑染联动，酸劲过去之后感觉三个人各自积极活动不就挺好的吗本来也聚得不多()
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8241#       发表于 2021-11-10 20:04
+
+迷你专啊……希望king能手下留情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 8242#       发表于 2021-11-10 20:06
+
+king这张到时候把你虹两张创了管人CD记录的团砖干碎（基本是一定的），就算是彻底登基了吧？
+
+*****
+
+####  OldGlory  
+##### 8243#       发表于 2021-11-10 20:14
+
+喊了两年的主流出道终于走到这一步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一连king都不行了那要怎么办
+

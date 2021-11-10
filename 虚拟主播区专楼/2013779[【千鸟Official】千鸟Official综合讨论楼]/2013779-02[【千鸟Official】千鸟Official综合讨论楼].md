@@ -5876,3 +5876,59 @@ xdm，登子的米到了！
 
 同时劈vr和cj太累了，合并了可以省点事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 2145#       发表于 2021-11-10 20:10
+
+光驱这意思脑补一下就是我只要倭瓜但是对面要求全打包带走然后谈不拢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 2146#       发表于 2021-11-10 20:11
+
+真散的话也懒得回去劈维阿了，当正常人去了
+
+*****
+
+####  夜潇箫  
+##### 2147#       发表于 2021-11-10 20:13
+
+文静真去维阿，就可以知道文静长什么样子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2148#       发表于 2021-11-10 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53494707&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-10 20:10</a>
+
+光驱这意思脑补一下就是我只要倭瓜但是对面要求全打包带走然后谈不拢了 ...</blockquote>
+不对,我感觉是ACE在封杀WINGS
+
+*****
+
+####  夜之中道崩殂  
+##### 2149#       发表于 2021-11-10 20:18
+
+只有我觉得，散了之后除了艾瑞思可能都不当v了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2150#       发表于 2021-11-10 20:21
+
+不当v好啊 那我回去当正常人去了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2151#       发表于 2021-11-10 20:21
+
+文静她还能去干啥啊，说是说静栗惹被她手拿把攥，她就受得了从一个享受几万舔狗众星捧月的行业离开去当白领天天被老板踩头？
+
+真要执行竞业协议了等一个倭瓜小学校/文静 on air好吧。
+
