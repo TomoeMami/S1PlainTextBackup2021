@@ -3283,3 +3283,12 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 猜个杀人预告
 
+
+
+*****
+
+####  Mr.shelter  
+##### 4879#       发表于 2021-11-10 10:59
+
+昨天梦到咩咩开侧面的半身摄像头直播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不是坦，手臂很瘦，然后就醒了.....
+

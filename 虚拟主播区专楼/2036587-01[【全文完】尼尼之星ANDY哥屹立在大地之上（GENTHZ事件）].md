@@ -1493,3 +1493,23 @@ andy哥早就不玩方舟了，纯纯的原友</blockquote>
 andy哥早就不玩方舟了，纯纯的原友</blockquote>
 这个瓶孝子是个锤子原友，b站视频40几个方舟的，只有俩原神视频还是去年三测的，加上瓶粉身份，玩原应该是脏了他的手的
 
+
+
+*****
+
+####  harry3  
+##### 116#       发表于 2021-11-10 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486267&amp;ptid=2036587" target="_blank">屠夫 发表于 2021-11-10 10:12</a>
+
+这个瓶孝子是个锤子原友，b站视频40几个方舟的，只有俩原神视频还是去年三测的，加上瓶粉身份，玩原应该 ...</blockquote>
+对andy哥这样的多面手一个帽子是没什么意义的，
+
+毕竟既是冲蝗大手子又是疑似桐生会，
+
+不提他的正常版务工作和正常发言，
+
+就算被原友挂的几个发言比如插电...也是在舰c楼算正常尺度的，也就现在手游饭圈大战才算anti，
+
+genthz的发言被锁了但帖子点进去还是能看的，特别喜欢‘文化输出’好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
