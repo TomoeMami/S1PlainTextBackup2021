@@ -10050,3 +10050,32 @@ B站版本，中间断流了很多次。等重播再录一遍。
 
 2021-11-10 17:55 上传
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8231#       发表于 2021-11-10 18:27
+
+ 本帖最后由 alcoholic1000 于 2021-11-10 18:35 编辑 
+
+KING，主流出道 <blockquote>葛葉 
+
+ユニバーサルミュージック 
+
+Virgin Musicよリ 
+
+メジャーデビュー決定！</blockquote>
+3月9日 一专 <blockquote>2022.03.09  1st MINI ALBUM
+
+「Sweet Bite」
+
+発壳決定！</blockquote>可算能借主流出道再毛一个3D了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 8232#       发表于 2021-11-10 18:39
+
+为什么不组合出道为什么不组合出道
+

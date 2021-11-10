@@ -14053,3 +14053,42 @@ bilibili复活
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Kanchiki  
+##### 7134#       发表于 2021-11-10 18:21
+
+她不过是一直逃避下去罢了
+
+就像逃离ark逃离大乱斗逃离马车逃离APEX逃离MC一样，讨厌的东西伤害过自己的东西就不碰就离得远远的
+
+不播游戏就唱唱歌，搞搞live多好，也不会有指示厨烦她也不用给自己定什么目标结果达不成身心俱疲还要被黑屁
+
+然后歌回播着播着都是正反馈就路径依赖了，更觉得啊偶像路才是正道，游戏主播什么的谁爱当谁当去，不爱看就滚
+
+现在摆烂成这样，可能不过是要逃离的东西已经从某个游戏变成了“要面对anti各种诽谤中伤的主播生涯”本身了
+
+所以干脆就偶像路线一条道走到死 一周播个1-2次就当生存报告了
+
+问题是只要你还想当公众人物势必要承受众人的非议 最后又能逃到哪里去呢 什么FPX.TIAN
+
+要是真的撑不住了不如别活动了 去看下心理医生好好养病去
+
+*****
+
+####  星の守  
+##### 7135#       发表于 2021-11-10 18:34
+
+呜呜呜，都是crew没用<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星の守  
+##### 7136#       发表于 2021-11-10 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53493016&amp;ptid=1947500" target="_blank">面具13 发表于 2021-11-10 17:54</a>
+她现在这偶像路线人设立不起来，粉丝做不到脑补和自我感动，怎么看都是死路一条。 ...</blockquote>
+就是因为别人走通了，她才走的吧，还是你想说别家粉丝都是脑补兼自我感动？差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
