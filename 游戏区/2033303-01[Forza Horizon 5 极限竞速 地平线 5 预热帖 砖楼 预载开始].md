@@ -9622,3 +9622,33 @@ xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com
 
 迫真放置抽卡手游
 
+
+
+*****
+
+####  御风沐雪  
+##### 871#       发表于 2021-11-10 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496895&amp;ptid=2033303" target="_blank"> tianruilee 发表于 2021-11-10 23:08</a> xcloud挂机刷，解放电脑和游戏机  附件： </blockquote>
+还是要卡硬币吧
+来自: iPhone客户端
+
+*****
+
+####  nemunoki  
+##### 872#       发表于 2021-11-10 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496709&amp;ptid=2033303" target="_blank">串行总线 发表于 2021-11-10 22:49</a>
+
+麻了，今天试了试公开赛，结果分了个拉力苦行赛道。跑到后期疯狂提示内存不足，卡顿越来越明显，退 ...</blockquote>
+这代进公开赛可以先看赛道名称长度再确认进入的，哪怕到了选车界面都可以退出来再重进，然后就会给出不一样的赛道
+
+*****
+
+####  qzy741147  
+##### 873#       发表于 2021-11-11 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53494532&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-10 19:55</a>
+醉了，卡在v10第8关。倒不是难，而是快结尾几个检查点强制失败。。。也没有错过检查点的提示，就直接失败了 ...</blockquote>
+必须比npc快不然就直接失败
+
