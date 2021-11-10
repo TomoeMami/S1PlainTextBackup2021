@@ -1767,3 +1767,27 @@ QQ截图20211110143134.png
 
 对木口西恩：“前公司对我们真的挺好的，给了很高的自由度（指自己上宗师摁打ow？），而且你（指观众）不是当事人很难评价这些事背后的选择（顶级盼杏归）
 
+
+
+*****
+
+####  凛子也想要五个  
+##### 140#       发表于 2021-11-10 19:17
+
+ 本帖最后由 凛子也想要五个 于 2021-11-10 19:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53493514&amp;ptid=2036587" target="_blank">seki_m 发表于 2021-11-10 18:37</a>
+泥门🙏
+再来点隔壁版主兼b综下水道楼友火吸卡则佬佬佬微博正义发言共同品鉴 ...</blockquote>
+我记得hoshikaze佬不是被宝物哥在a版水楼暴出ed来，结果前者一气之下直接动用权限把后者无理由叉出v版么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+对于这件事，本人的看法是——
+
+<img src="https://img.saraba1st.com/forum/202111/10/192215knrxrxz1p7f8ghh7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211110_192249.jpg</strong> (64.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 19:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

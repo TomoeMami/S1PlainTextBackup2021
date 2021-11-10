@@ -5761,3 +5761,65 @@ xdm，登子的米到了！
 
 思思直言这几天不让发动态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2131#       发表于 2021-11-10 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">全体禁言还行
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  夜之中道崩殂  
+##### 2132#       发表于 2021-11-10 19:11
+
+千鸟的节奏真是一天都断不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2133#       发表于 2021-11-10 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huyuanhao120  
+##### 2134#       发表于 2021-11-10 19:19
+
+气死了，白白私信都不回了
+
+*****
+
+####  小憨1  
+##### 2135#       发表于 2021-11-10 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53493998&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-10 19:18</a>
+草，笑死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死
+
+*****
+
+####  T型钉宫病毒  
+##### 2136#       发表于 2021-11-10 19:20
+
+这也要辟谣，维阿有没有钱大家还不清楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 2137#       发表于 2021-11-10 19:21
+
+思思这选歌怕不是毕业歌回了
+
+*****
+
+####  夜之中道崩殂  
+##### 2138#       发表于 2021-11-10 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
