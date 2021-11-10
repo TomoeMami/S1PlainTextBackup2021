@@ -5671,3 +5671,35 @@ xdm，登子的米到了！
 所以，文静是江苏人？</blockquote>
 文静应该是深圳的。
 
+
+
+*****
+
+####  rgauss  
+##### 2121#       发表于 2021-11-10 18:03
+
+她太会炒作了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2122#       发表于 2021-11-10 18:06
+
+我倒觉得可能性最大的是去辞职。
+
+*****
+
+####  有效击穿  
+##### 2123#       发表于 2021-11-10 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53492680&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-10 17:31</a>
+文静你要以身饲虎了吗</blockquote>
+《主播妈妈的应酬》<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2124#       发表于 2021-11-10 18:20
+
+辞职那这号肯定被收回去了，多半还是烽火戏🐖🐒
+
