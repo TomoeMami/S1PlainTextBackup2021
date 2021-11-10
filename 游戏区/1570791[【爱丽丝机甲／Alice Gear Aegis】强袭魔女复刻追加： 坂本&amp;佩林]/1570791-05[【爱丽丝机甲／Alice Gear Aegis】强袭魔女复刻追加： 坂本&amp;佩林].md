@@ -3001,3 +3001,27 @@ https://www ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这老哥频道里有好多王红花
 [https://www.youtube.com/channel/UCwzef64SJq_eeLjlPqynQgA/videos](https://www.youtube.com/channel/UCwzef64SJq_eeLjlPqynQgA/videos)
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6213#       发表于 2021-11-10 21:16
+
+ 本帖最后由 江戸前ルナ 于 2021-11-10 21:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495045&amp;ptid=1570791" target="_blank">拍不到脑袋 发表于 2021-11-10 20:37</a>
+
+这老哥频道里有好多王红花
+[https://www.youtube.com/channel/UCwzef64SJq_eeLjlPqynQgA/videos](https://www.youtube.com/channel/UCwzef64SJq_eeLjlPqynQgA/videos) ...</blockquote>
+感谢啊。而且竟然还有妹控<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+看了，红花真是惨，近战太刮痧了最后逆属的狮鹫得上轰雷活动手减甲才能打得动。隔壁妹控是拿枪托硬日的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+日服真是有很多触手+角色厨。其实B站一直有人搬一个九哥触手的，看着也非常暴力。
+
+[https://www.youtube.com/channel/UCavAxLBknAD49ZJHPCjegCA](https://www.youtube.com/channel/UCavAxLBknAD49ZJHPCjegCA)
+
+（预判要求太高了就根本就没学的打算<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有唯厨枫厨等等就不一一举例了。天朝也有个非常变态不比上面差的土妹厨大触手<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

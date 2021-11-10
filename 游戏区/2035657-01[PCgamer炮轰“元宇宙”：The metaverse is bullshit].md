@@ -920,3 +920,12 @@ VRchat里认识一个人，厂畜
 
 被剥削到一无所有，对现实绝望的人，只能栖身虚拟世界，高科技低生活，非常赛博朋克。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Keynes  
+##### 85#       发表于 2021-11-10 21:07
+
+互联网圈地运动<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
