@@ -9315,3 +9315,39 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 几天玩下来遇到的最大的bug就是地面贴图有时候会爆炸，变成一条一条积水状的bug图形，不知道到底是游戏的问题还是显卡要坏了
 另外不是说今天有补丁吗
 
+
+
+*****
+
+####  Shigure酱  
+##### 842#       发表于 2021-11-10 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53479247&amp;ptid=2033303" target="_blank">jpiajwopdm 发表于 2021-11-9 18:05</a>
+
+我为了这游戏专门买了个xbox手柄，结果发现有点问题？
+
+第一是连接稳定度感人，我还专门买了官方的adepter， ...</blockquote>
+官方的无线适配器品控质量极差,在京东入手的,第一个一个星期之后玩一个小时就断联,换货,第二个耗电巨快,换货,第三个正常了,每天三小时,周末八小时,两周换一对彩虹电池
+
+*****
+
+####  pl0okm  
+##### 843#       发表于 2021-11-10 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53488689&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-10 12:55</a>
+几天玩下来遇到的最大的bug就是地面贴图有时候会爆炸，变成一条一条积水状的bug图形，不知道到底是游戏的问 ...</blockquote>
+检查游戏完整性和降画质试试？
+
+刚看了个阿b老哥说游戏缓存方面有问题，高速跑11分钟硬盘读取50g
+
+另外测速点是不是561左右之内才能进榜单 电车bug跑了近600只算在个人里
+
+*****
+
+####  爱护动物抓根宝  
+##### 844#       发表于 2021-11-10 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53488881&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-10 13:12</a>
+检查游戏完整性和降画质试试？</blockquote>
+win版有检查完整性吗，没有的话我还是直接重下算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

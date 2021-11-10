@@ -964,3 +964,26 @@ fc动态也发了，不一样的图，看评论应该是北海道了</blockquote
 
 这篇松雾微博有翻译，马内甲fc经常发长文就是了
 
+
+
+*****
+
+####  cqc1021  
+##### 82#       发表于 2021-11-10 13:13
+
+ 本帖最后由 cqc1021 于 2021-11-10 13:22 编辑 
+
+找到了松雾之前的翻译：[https://weibo.com/2601123601/KelSJwoh2](https://weibo.com/2601123601/KelSJwoh2)
+鲤鱼还是命好的，经纪人看上去挺靠谱，又遇到了唐可可这大热的角色。相比之下同样是中国人去日本做二刺螈歌手的晓月凛就没这么幸运了。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cat1230  
+##### 83#       发表于 2021-11-10 13:24
+
+鲤鱼跟经纪人的cp<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
