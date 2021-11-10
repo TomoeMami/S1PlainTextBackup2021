@@ -1293,3 +1293,32 @@ nga从有super权限的到普通warden隔一个杀一个怕是还有漏的
 这个人前几年和管人没啥关系…这个人的推特从很早开始就是那个画风了，倒不如说还是去年冲蝗的这几个月他 ...</blockquote>
 我记得王维一几年的长白山直播那次直播不小心暴露自己的手机号，一堆人还在那自肃开话题不让传播他的个人信息，那时候倒是没想到他屁股是歪的，怎么就没人扒出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 103#       发表于 2021-11-10 07:44
+
+NGA的蝗楼是被炸了吗，一会没看就不见了，顺便月翼大佐都说了人家还搞了andytv呢，一个50w运营的号是用来干啥的我有点不敢想
+
+*****
+
+####  シナモンロール  
+##### 104#         楼主| 发表于 2021-11-10 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484887&amp;ptid=2036587" target="_blank">_Ra1nMaker 发表于 2021-11-10 07:44</a>
+NGA的蝗楼是被炸了吗，一会没看就不见了，顺便月翼大佐都说了人家还搞了andytv呢，一个50w运营的号是用来干 ...</blockquote>
+我在上面说了啊，andytv除了在阿批搞那个弱智冲蝗日报外，就是免费转播hololive付费直播
+
+andy哥对外宣称这是为了让“还有幻想的人”不买票，以此达到用盗版耗死正版，让hololive亏损到死的目的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シナモンロール  
+##### 105#         楼主| 发表于 2021-11-10 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484880&amp;ptid=2036587" target="_blank">黑之和 发表于 2021-11-10 07:41</a>
+我记得王维一几年的长白山直播那次直播不小心暴露自己的手机号，一堆人还在那自肃开话题不让传播他的个人 ...</blockquote>
+可能他在盗圈的名声？也说不好盗圈头面里也有人在回护他呗，毕竟他推特上不少很夸张的图都是用来嘲讽夹总封他号的，其中他自我署名是你说的他在盗圈的id“王维二叔”，搞不好盗圈是他所有混的圈子里牵扯最深和他扯上关系被他带偏的人最多的圈子呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
