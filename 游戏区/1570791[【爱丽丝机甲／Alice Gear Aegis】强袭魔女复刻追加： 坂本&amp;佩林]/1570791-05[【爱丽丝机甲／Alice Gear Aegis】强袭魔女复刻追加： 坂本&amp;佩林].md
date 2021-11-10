@@ -3077,3 +3077,14 @@ PC的宽屏+输入十分有利于开发角色上限，国服只能羡慕了。</
 比如这位</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">确实，我PC目前鬼畜滑刀节奏很差，手机上还不错。
 
+
+
+*****
+
+####  hypnossz86  
+##### 6217#       发表于 2021-11-10 22:59
+
+问下小枫的an腿和an枪分别用哪个好的？
+
+看了看都有两件
+

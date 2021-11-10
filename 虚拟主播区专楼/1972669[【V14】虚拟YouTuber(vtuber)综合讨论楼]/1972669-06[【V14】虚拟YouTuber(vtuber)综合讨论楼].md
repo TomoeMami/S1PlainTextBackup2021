@@ -10247,3 +10247,19 @@ king这张版本多啊，再加上店特之类的，火畜一口气买好几个�
 问了问懂行的，原来都是多抽几张券叠时长玩的
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">学习了
 
+
+
+*****
+
+####  poipanchao  
+##### 8253#       发表于 2021-11-10 22:55
+
+握手男 奴（）
+
+*****
+
+####  FCCHua  
+##### 8254#       发表于 2021-11-10 22:55
+
+握手可真是一种轮回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

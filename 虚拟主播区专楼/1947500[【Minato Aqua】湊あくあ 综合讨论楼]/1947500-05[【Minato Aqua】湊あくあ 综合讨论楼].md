@@ -14226,3 +14226,44 @@ syl再说了 ...</blockquote>
 
 不回到以前的状态，老头环就别想了
 
+
+
+*****
+
+####  ylssb10438  
+##### 7150#       发表于 2021-11-10 22:43
+
+虚拟握手是什么寄吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  colodes  
+##### 7151#       发表于 2021-11-10 22:46
+
+ 本帖最后由 colodes 于 2021-11-10 22:48 编辑 
+
+没见过吗
+
+<img src="https://img.saraba1st.com/forum/202111/10/224622xhyvpyjuunpphp60.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (25.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 22:46 上传
+
+<img src="https://img.saraba1st.com/forum/202111/10/224807i6m5qkcra6glzsag.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (224.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 22:48 上传
+
+*****
+
+####  IDIDIDID  
+##### 7152#       发表于 2021-11-10 22:48
+
+说实话夸夸就算各种不播实际工商和大场合还是一姐级别的待遇，每次复活yagoo亲自转推，老板没意见员工自然更肆无忌惮了。
+

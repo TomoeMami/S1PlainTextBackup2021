@@ -1160,3 +1160,35 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 鲤鱼这个马内甲的确可以，好像是个专属的吧，其他人都没有
 
+
+
+*****
+
+####  chenflyyy  
+##### 100#       发表于 2021-11-10 22:52
+
+鲤鱼这是什么万雌王吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 101#       发表于 2021-11-10 22:57
+
+这是什么偶像大师Plove桥段，不过很有趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Norkey1  
+##### 102#       发表于 2021-11-10 23:05
+
+经纪人好像都没露脸吧，这也能磕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 103#       发表于 2021-11-10 23:05
+
+美国老哥把鲤鱼以前的画翻出来还被鲤鱼赞了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
