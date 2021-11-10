@@ -1333,3 +1333,24 @@ andy哥对外宣称这是为了让“还有幻想的人”不买票，以此达�
 
 —— 来自 HUAWEI JAD-AL50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  midearth  
+##### 107#       发表于 2021-11-10 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484931&amp;ptid=2036587" target="_blank">シナモンロール 发表于 2021-11-10 07:54</a>
+
+我在上面说了啊，andytv除了在阿批搞那个弱智冲蝗日报外，就是免费转播hololive付费直播
+
+andy哥对外宣称 ...</blockquote>
+这个说起来就搞笑，造势那么久，结果真播起来一会就被掐了。疑似真粉的海外盗播哥可是换了N个号播完的
+
+*****
+
+####  魔法使い2019  
+##### 108#       发表于 2021-11-10 08:40
+
+什么行为艺术
+

@@ -9148,3 +9148,12 @@ ds5手柄识别不了，吐了
 这代ai作弊太明显了 ai车物理法则仿佛和玩家的不一样</blockquote>
 +1，大直道被AI以不合理的速度不断超过去，然后几个高速弯AI又慢得离谱直接第二了...太假了
 
+
+
+*****
+
+####  wzy200912345  
+##### 825#       发表于 2021-11-10 08:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">全版本首发日快过去了你软的补丁还没憋出来
+
