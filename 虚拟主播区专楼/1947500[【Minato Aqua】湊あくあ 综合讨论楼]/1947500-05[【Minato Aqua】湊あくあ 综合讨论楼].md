@@ -14020,3 +14020,16 @@ bilibili复活
 —— 来自 S1Fun</blockquote>
 等一个100%因器材事故而取消。
 
+
+
+*****
+
+####  Scardy  
+##### 7131#       发表于 2021-11-10 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53492053&amp;ptid=1947500" target="_blank">大厨麦当牛 发表于 2021-11-10 16:52</a>
+等一个100%因器材事故而取消。</blockquote>
+什么咩夸贴贴
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

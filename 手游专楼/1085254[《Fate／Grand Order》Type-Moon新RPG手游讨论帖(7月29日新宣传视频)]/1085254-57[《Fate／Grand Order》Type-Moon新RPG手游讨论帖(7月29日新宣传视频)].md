@@ -3326,3 +3326,22 @@ wtf..发生了什么？为什么我一上线突然塞给我1047个五星狗粮<i
 萌新想要在豹一个大魔王啊！ 然而届不到！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">豹言
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84275#       发表于 2021-11-10 17:04
+
+DL纪念，阿金和伊吹，不用抽就很愉悦
+banana继续绝版中
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 84276#       发表于 2021-11-10 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这超高速放技能笑死了
+
