@@ -14114,3 +14114,12 @@ bilibili复活
 
 我今天正好在看一个回放 完美解释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星の守  
+##### 7139#       发表于 2021-11-10 19:20
+
+夸认真唱歌的话无论音准还是节奏都还是过的去的，不想和别人比，但各有各的特色，就不允许喜欢夸声线风格的人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
