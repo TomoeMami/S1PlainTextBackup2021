@@ -830,3 +830,21 @@ meta是很古老的词了，亚里士多德的《形而上学》就叫meta physi
 
 其实就是个垄断宣言
 
+
+
+*****
+
+####  iou90  
+##### 78#       发表于 2021-11-10 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53408791&amp;ptid=2035657" target="_blank">C.W.Nimitz 发表于 2021-11-4 11:08</a>
+
+微软自己不可能不知道这玩意不过是空中楼阁脱裤子放屁。
+
+所谓元宇宙只能具体到某个产品实现“更高层级” ...</blockquote>
+身边又有一些朋友因为 2.0 的体操回来玩了
+
+人的需求是多样性的
+
+至于巨硬 那肯定是骗
+

@@ -1586,3 +1586,46 @@ genthz的发言被锁了但帖子点进去还是能看的，特别喜欢‘文�
 
 我超 andy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yearmon  
+##### 123#       发表于 2021-11-10 14:32
+
+警惕冲蝗人打陈一发牌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+QQ截图20211110143134.png
+(11.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-10 14:32 上传
+
+<img src="https://img.saraba1st.com/forum/202111/10/143227rl4vzs2l7dp277ax.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先生空气  
+##### 124#       发表于 2021-11-10 14:34
+
+所以说谁当初告诉原友蓝鸟存在的，andy这种随时随地都能炒作的自卑性格，炒作被发现了不就只有虚拟紫砂了吗 。
+
+*****
+
+####  Scardy  
+##### 125#       发表于 2021-11-10 14:43
+
+哈人<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">v版提一嘴andy楼就没了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  勾陈一  
+##### 126#       发表于 2021-11-10 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">虽然以前也品鉴过很多冲蝗老哥的魔怔，但是昨天这么大个事情摆在面前还能这么骗自己的……
+
+我开始思考如果他们干的不是冲蝗而是别的什么比如那种什么什么教的话……好像有点理解了
+

@@ -1006,3 +1006,12 @@ fc动态也发了，不一样的图，看评论应该是北海道了</blockquote
 
 这条看了真喷了，仔细一想好像鲤鱼还真是我推特里关注的唯一不ghs的coser
 
+
+
+*****
+
+####  lj205  
+##### 85#       发表于 2021-11-10 14:34
+
+sif卡面的衣服好棒，能不能还原出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
