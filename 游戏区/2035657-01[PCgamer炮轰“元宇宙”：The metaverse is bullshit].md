@@ -799,3 +799,25 @@ FB是想借机搞自己的虚拟货币，其它的也是很多 ...</blockquote>
 
 好骂
 
+
+
+*****
+
+####  厨具战士  
+##### 75#       发表于 2021-11-10 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53409296&amp;ptid=2035657" target="_blank">节艾司 发表于 2021-11-4 11:39</a>
+
+我们现在用的meta这个词是从雪崩来的吗</blockquote>
+最早来自于文学界后现代主义吧，元小说。
+
+*****
+
+####  Rary  
+##### 76#       发表于 2021-11-10 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53409296&amp;ptid=2035657" target="_blank">节艾司 发表于 2021-11-4 11:39</a>
+
+我们现在用的meta这个词是从雪崩来的吗</blockquote>
+meta是很古老的词了，亚里士多德的《形而上学》就叫meta physics
+
