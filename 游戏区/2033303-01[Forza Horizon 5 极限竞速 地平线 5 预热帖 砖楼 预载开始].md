@@ -9260,3 +9260,12 @@ ds5手柄识别不了，吐了
 
 你以为第六元素的魔法抓地力很离谱，但ai的抓地力就是开挂，经常看到用超级离谱的速度过弯
 
+
+
+*****
+
+####  老黑305  
+##### 836#       发表于 2021-11-10 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看视频评论，ai用599xe跑环岛9分06秒，而这作的599xe性能一般般
+
