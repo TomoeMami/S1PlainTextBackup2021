@@ -9391,3 +9391,14 @@ ai很离谱
 
 —— 来自 Xiaomi M2102K1AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  aaronluray  
+##### 849#       发表于 2021-11-10 14:16
+
+今天打了几把线上都没有中途被断网踢出，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是游戏本身问题还是好多，骷髅头我在转场的时候卡住了不得不强制退出重开。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">我那打到一半掉了两的队员估计也是这样
+
