@@ -1513,3 +1513,12 @@ andy哥早就不玩方舟了，纯纯的原友</blockquote>
 
 genthz的发言被锁了但帖子点进去还是能看的，特别喜欢‘文化输出’好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Y_Curiosity  
+##### 117#       发表于 2021-11-10 11:52
+
+难绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

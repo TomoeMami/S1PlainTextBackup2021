@@ -5451,3 +5451,12 @@ xdm，登子的米到了！
 
 小文静真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有效击穿  
+##### 2095#       发表于 2021-11-10 11:50
+
+静！<img src="https://p.sda1.dev/3/9c8630defd985bb306bdeaa0671d5d4f/IMG_CMP_226838339.jpeg" referrerpolicy="no-referrer">
+
