@@ -10263,3 +10263,21 @@ king这张版本多啊，再加上店特之类的，火畜一口气买好几个�
 
 握手可真是一种轮回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 8255#       发表于 2021-11-10 23:00
+
+臭羊驼的力反馈手套能不能卖给彩虹啊，出掉闲置资产还能赚点外汇，简直赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  生麦之发杀  
+##### 8256#       发表于 2021-11-10 23:04
+
+才发现yuya转生后玩的好的其中一位是虹kr一期引退的wiffy，另外的是不是还有前同事听得少分不出
+
+虹kr，好温暖啊（
+

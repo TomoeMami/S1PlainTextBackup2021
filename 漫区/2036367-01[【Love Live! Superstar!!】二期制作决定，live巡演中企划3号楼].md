@@ -1192,3 +1192,35 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 美国老哥把鲤鱼以前的画翻出来还被鲤鱼赞了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 104#       发表于 2021-11-10 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496876&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-10 23:05:47</a>
+美国老哥把鲤鱼以前的画翻出来还被鲤鱼赞了</blockquote>这老哥太热情，每次发推都冲前面，NB
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  普之舜舜  
+##### 105#       发表于 2021-11-10 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496903&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-10 23:09</a>
+这老哥太热情，每次发推都冲前面，NB
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+小心私生饭
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 106#       发表于 2021-11-10 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国老哥老dd了，dd了一堆coser 
+
