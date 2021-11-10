@@ -5522,3 +5522,105 @@ xdm，登子的米到了！
 
 所以，文静是江苏人？
 
+
+
+*****
+
+####  rgauss  
+##### 2103#       发表于 2021-11-10 17:28
+
+静静，没有你我怎么活啊😭😭😭😭
+静静，没有你我怎么活啊😭😭😭😭
+静静，没有你我怎么活啊😭😭😭😭
+
+*****
+
+####  灰色的狐狸  
+##### 2104#       发表于 2021-11-10 17:29
+
+结合一大早那个推文
+
+有点意思哈
+
+*****
+
+####  IDIDIDID  
+##### 2105#       发表于 2021-11-10 17:30
+
+我超这下强尼静手了
+
+*****
+
+####  有效击穿  
+##### 2106#       发表于 2021-11-10 17:31
+
+"买杯热咖啡走了"好希望我是那杯咖啡，暖一暖静的手
+
+*****
+
+####  夜潇箫  
+##### 2107#       发表于 2021-11-10 17:31
+
+文静你要以身饲虎了吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有效击穿  
+##### 2108#       发表于 2021-11-10 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53492669&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-10 17:30</a>
+我超这下强尼静手了</blockquote>
+把生物芯片入我脑子里吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 2109#       发表于 2021-11-10 17:32
+
+就喜欢徽京这一口<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 2110#       发表于 2021-11-10 17:36
+
+文静跳过CJ直接去找公司高管了？
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 2111#       发表于 2021-11-10 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53492763&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-10 17:36</a>
+文静跳过CJ直接去找公司高管了？
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+应该是原力官方知道千鸟的情况，把文静召过去问情况了吧<img src="https://p.sda1.dev/3/baa0910ffc94f4710520c337d2f8cdea/F610B77773DFF5E62BF7B871C1C9DA97.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 2112#       发表于 2021-11-10 17:41
+
+你就是大名鼎鼎的V吧
+
+文静，为了你我要🥜强尼银手
+
+*****
+
+####  袜子  
+##### 2113#       发表于 2021-11-10 17:44
+
+啊这！直接去荒坂塔了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  huyuanhao120  
+##### 2114#       发表于 2021-11-10 17:44
+
+解读解读
+

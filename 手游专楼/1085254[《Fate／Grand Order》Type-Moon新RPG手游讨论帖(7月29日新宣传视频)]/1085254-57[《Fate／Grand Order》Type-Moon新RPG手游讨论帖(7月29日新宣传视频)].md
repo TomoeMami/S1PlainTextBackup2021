@@ -3345,3 +3345,19 @@ banana继续绝版中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这超高速放技能笑死了
 
+
+
+*****
+
+####  qixinno2  
+##### 84277#       发表于 2021-11-10 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以芭娜娜才是真正的人权绝版卡么 只UP过一次至今没复刻过可还行
+
+*****
+
+####  khxooo  
+##### 84278#       发表于 2021-11-10 17:36
+
+快进太鬼畜了，我还是慢慢等吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
