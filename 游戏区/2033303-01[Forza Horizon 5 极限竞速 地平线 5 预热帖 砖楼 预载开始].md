@@ -9173,3 +9173,14 @@ ds5手柄识别不了，吐了
  ...</blockquote>
 改太快了反倒不好
 
+
+
+*****
+
+####  bad_alloc  
+##### 827#       发表于 2021-11-10 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484847&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-10 07:32</a>
++1，大直道被AI以不合理的速度不断超过去，然后几个高速弯AI又慢得离谱直接第二了...太假了 ...</blockquote>
+有些跑道领头的ai快得离谱，有些跑道又比较正常
+

@@ -932,3 +932,12 @@ c1偏色啊 人脸惨白，亮处还过曝
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cybernetics31  
+##### 86#       发表于 2021-11-10 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">设置可以参考油管hdtvtest，vincent老哥对主机和电视怎么设置都有详细内容讲解，甚至有对特定固件的分析
+

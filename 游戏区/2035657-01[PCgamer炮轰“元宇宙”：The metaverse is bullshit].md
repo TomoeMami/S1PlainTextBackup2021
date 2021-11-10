@@ -790,3 +790,12 @@ FB是想借机搞自己的虚拟货币，其它的也是很多 ...</blockquote>
 
 再怎么样能发展技术就好，总比在2d屏幕里看世界要好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 74#       发表于 2021-11-10 10:04
+
+好骂
+
