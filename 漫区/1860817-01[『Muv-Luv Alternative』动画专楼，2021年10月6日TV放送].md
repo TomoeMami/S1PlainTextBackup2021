@@ -19246,3 +19246,38 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 照这进度应该这季做到回来？  甲21来不及吧 
 
+
+
+*****
+
+####  镜hinata  
+##### 1338#       发表于 2021-11-11 01:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">别告诉我kasumi和sumika
+
+*****
+
+####  hacisiki  
+##### 1339#       发表于 2021-11-11 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498236&amp;ptid=1860817" target="_blank">镜hinata 发表于 2021-11-11 01:50</a>
+
+别告诉我kasumi和sumika</blockquote>
+没那么夸张，霞就是和ATE里大小白毛一个系列的产品。
+
+*****
+
+####  hacisiki  
+##### 1340#       发表于 2021-11-11 01:58
+
+霞是第五世代的最终产物，小白毛也是第五世代，大白毛是第四世代的末期正好错过了AL3的实战。
+
+*****
+
+####  菱0零  
+##### 1341#       发表于 2021-11-11 02:07
+
+虽然平时的节奏已经很快了，但是只要扯到无印仍然给人一种加倍快进的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">唉，文戏就这样吧，希望125集数多一点，多看看萝卜戏也就知足了
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

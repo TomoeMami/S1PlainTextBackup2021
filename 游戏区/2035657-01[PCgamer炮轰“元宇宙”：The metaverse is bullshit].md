@@ -929,3 +929,17 @@ VRchat里认识一个人，厂畜
 
 互联网圈地运动<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  laputahao  
+##### 86#       发表于 2021-11-11 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495296&amp;ptid=2035657" target="_blank">dumplingpro 发表于 2021-11-10 20:55</a>
+
+昨天VR群，才有群友说，
+
+VRchat里认识一个人，厂畜</blockquote>
+根本还是技术问题 现在就是连攻壳里“贵腐老人”这种肉身脱离不了但可以一直像做梦一样不醒的程度都完全碰瓷不了 更别提BLAME里的网络球或者还是攻壳里久世英雄的意识上传革命了 小扎相当于在1900年开吹互联网 那他实际吹的肯定不是互联网而是别的什么东西
+

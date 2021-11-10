@@ -9710,3 +9710,28 @@ fh4的痛车能搞到5来么...</blockquote>
 
 便宜点的还有unimog
 
+
+
+*****
+
+####  Senbascira  
+##### 879#       发表于 2021-11-11 02:38
+
+第一次玩fh，沉迷了两天后发现老手难度的ai都很难打过，直道难以拉近，起步比ai慢，过弯我觉得自己做得蛮好了但是还是比ai差。
+
+我用的开头送的丰田，调校是抄得一个a车800的作业。
+
+有没有系列玩家指点一下问题在哪，再这样要弃游了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haru橙子  
+##### 880#       发表于 2021-11-11 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498391&amp;ptid=2033303" target="_blank">Senbascira 发表于 2021-11-11 02:38</a>
+
+第一次玩fh，沉迷了两天后发现老手难度的ai都很难打过，直道难以拉近，起步比ai慢，过弯我觉得自己做得蛮好 ...</blockquote>
+如果是4代，打不过老手是人的问题。5代的话人的问题可能只占20%，车的问题占80%。
+
+A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者雪佛兰zr2，拉力用hoonigan rs200 evo
+

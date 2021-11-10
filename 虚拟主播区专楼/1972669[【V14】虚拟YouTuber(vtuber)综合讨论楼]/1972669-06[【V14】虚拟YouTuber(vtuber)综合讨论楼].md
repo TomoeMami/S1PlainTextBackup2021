@@ -10339,3 +10339,15 @@ syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧ki
 索尼有给anycolor派顾问的</blockquote>
 从结果来看，这个顾问的影响力也忒大了<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 8263#       发表于 2021-11-11 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498089&amp;ptid=1972669" target="_blank">freakystar 发表于 2021-11-11 01:26</a>
+4月就开始布局女体化了吗？可能因为king之前给我的印象和口碑一直是不会刻意营业那型吧，大意了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">4月女体化剪影除了葛叶之外是是不直播的三世，当时以为是约画没想到是皮。再说葛叶一直都很营业的，爱钱要石油王保养吸血鬼设定贯彻很久了，女体化是吸血鬼设定的补充
+【【葛叶】10分钟了解葛叶的女体化「Sanya」-哔哩哔哩】https://b23.tv/0WAvbI
+
