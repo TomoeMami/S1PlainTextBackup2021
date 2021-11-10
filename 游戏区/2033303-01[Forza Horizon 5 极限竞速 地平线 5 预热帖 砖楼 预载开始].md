@@ -9672,3 +9672,41 @@ fh4的痛车能搞到5来么...</blockquote>
 
 超级抽奖的奖池里看见了daytona可惜没抽中不然直接再次财务自由了
 
+
+
+*****
+
+####  Vladimeow  
+##### 876#       发表于 2021-11-11 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么都开始挂图了，我还是慢慢解锁，感觉这和CE差不多有点毁坏游戏体验（对我来说
+
+*****
+
+####  天神十三煞  
+##### 877#         楼主| 发表于 2021-11-11 00:53
+
+这货卡是什么瘠薄
+
+这代明明没有货卡分类
+
+奔驰那个半挂尼玛的是无限制越野车
+
+皮卡和越野厢车四驱分一起也是醉了
+
+*****
+
+####  nemunoki  
+##### 878#       发表于 2021-11-11 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497859&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-11 00:53</a>
+
+这货卡是什么瘠薄
+
+这代明明没有货卡分类
+
+奔驰那个半挂尼玛的是无限制越野车</blockquote>
+那个#24普通版才算货卡，FE不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迷惑设定
+
+便宜点的还有unimog
+
