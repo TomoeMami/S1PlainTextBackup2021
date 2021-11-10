@@ -14007,3 +14007,16 @@ bilibili复活
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 7130#       发表于 2021-11-10 16:52
+
+<blockquote>Scardy 发表于 2021-11-10 08:42
+看看丰州live的票卖的好不好了
+
+—— 来自 S1Fun</blockquote>
+等一个100%因器材事故而取消。
+

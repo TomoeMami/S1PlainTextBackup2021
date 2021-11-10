@@ -1733,3 +1733,14 @@ QQ截图20211110143134.png
 
 我草我不行了，这也太有乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zaku007  
+##### 137#       发表于 2021-11-10 17:04
+
+被拉黑了，没意思。又不敢当面对线<img src="https://p.sda1.dev/3/28829e09cec051abfa3efe7207a70d72/IMG_CMP_240623724.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

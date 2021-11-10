@@ -2208,3 +2208,14 @@ syl补下昨天乃宝的抖音推送，这两天疯狂沉迷地平线5，Asoul�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">中午吃饭迟了忘记了互动回复
 
+
+
+*****
+
+####  龙爪  
+##### 165#       发表于 2021-11-10 17:06
+
+留言了但没给回复<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

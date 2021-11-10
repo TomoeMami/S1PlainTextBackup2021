@@ -1065,3 +1065,17 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 那要是冲绳的话鲤鱼姐岂不是要一星期内从日本最南边飞到最北边
 
+
+
+*****
+
+####  秋月艾莉  
+##### 90#       发表于 2021-11-10 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53491633&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-11-10 16:23</a>
+
+你拉的1st比较
+
+μ's 全18首歌共180分钟每人平均唱11首歌</blockquote>
+380分钟什么玩意，搞什么东西能搞6小时
+
