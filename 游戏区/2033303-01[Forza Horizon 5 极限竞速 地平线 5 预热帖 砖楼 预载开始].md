@@ -9402,3 +9402,16 @@ ai很离谱
 
 但是游戏本身问题还是好多，骷髅头我在转场的时候卡住了不得不强制退出重开。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">我那打到一半掉了两的队员估计也是这样
 
+
+
+*****
+
+####  hhgjf  
+##### 850#       发表于 2021-11-10 16:12
+
+ 本帖最后由 hhgjf 于 2021-11-10 16:16 编辑 
+
+不知不觉MC逆势上扬到92了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">）的95
+
+窝艹啊， “花生炖油爆”五个字居然是敏感词，泥潭这也太厉害了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

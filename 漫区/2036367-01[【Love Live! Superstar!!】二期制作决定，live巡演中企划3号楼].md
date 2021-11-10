@@ -1039,3 +1039,20 @@ sif卡面的衣服好棒，能不能还原出来啊<img src="https://static.sara
 
 justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 88#       发表于 2021-11-10 16:23
+
+你拉的1st比较
+
+μ's 全18首歌共180分钟每人平均唱11首歌
+
+水团全20首歌共210分钟每人平均唱14首歌
+
+虹团全22首歌共380分钟每人平均唱5首歌
+
+星团全22首歌共210分钟每人平均唱17首歌
+
