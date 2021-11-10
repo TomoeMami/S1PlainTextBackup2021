@@ -9415,3 +9415,32 @@ ai很离谱
 
 窝艹啊， “花生炖油爆”五个字居然是敏感词，泥潭这也太厉害了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chan  
+##### 851#       发表于 2021-11-10 16:33
+
+突然想起个问题，前两代都送的车模这次不送了？虽说4代的很拉跨就是了...
+
+*****
+
+####  姬轩辕  
+##### 852#       发表于 2021-11-10 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53480863&amp;ptid=2033303" target="_blank">wolfwood 发表于 2021-11-9 19:55</a>
+开局第三辆车丛林空降就跳出，怎么还不出补丁修复</blockquote>
+序幕丛林输入法切换美式键盘英文，换车内视角就能过去了
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  电磁炮233  
+##### 853#       发表于 2021-11-10 16:39
+
+社区里的玩家自制涂装加载不出来，挂了加速器都没用。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
