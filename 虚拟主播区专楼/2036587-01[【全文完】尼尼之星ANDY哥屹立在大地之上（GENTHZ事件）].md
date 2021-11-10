@@ -1791,3 +1791,28 @@ QQ截图20211110143134.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  往世雷书  
+##### 141#       发表于 2021-11-10 20:47
+
+他挺身而出的理由居然是“敌坛”，那我这种两边跑的算奸细吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  winda  
+##### 142#       发表于 2021-11-10 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53487105&amp;ptid=2036587" target="_blank">harry3 发表于 2021-11-10 11:05</a>
+
+对andy哥这样的多面手一个帽子是没什么意义的，
+
+毕竟既是冲蝗大手子又是疑似桐生会，
+
+不提他的正常版务工 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在发现了月翼佬还有120#楼的粥浓度后我觉得他们情报组是在粥游手游群拉人的吧
+

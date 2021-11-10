@@ -895,3 +895,28 @@ giant Ivan Ooze大草原
 
 元宇宙不是元气宇宙的缩写吗？我一直以为是元气森林的新款饮料，宇宙味的
 
+
+
+*****
+
+####  dumplingpro  
+##### 84#       发表于 2021-11-10 20:55
+
+ 本帖最后由 dumplingpro 于 2021-11-10 20:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495098&amp;ptid=2035657" target="_blank">飞姆托 发表于 2021-11-10 20:41</a>
+
+左转管人区
+
+—— 来自 S1Fun</blockquote>
+昨天VR群，才有群友说，
+
+VRchat里认识一个人，厂畜
+
+白天流水线
+
+晚上VRC
+
+除了吃饭睡觉，基本上全住在VRchat里了。
+
+被剥削到一无所有，对现实绝望的人，只能栖身虚拟世界，高科技低生活，非常赛博朋克。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

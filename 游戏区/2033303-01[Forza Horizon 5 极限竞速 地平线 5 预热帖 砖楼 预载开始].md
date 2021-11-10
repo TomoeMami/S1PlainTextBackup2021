@@ -9510,3 +9510,12 @@ ai很离谱
 刷分数直接开出场地，到个没有石头没有大树的地方，瞎开就完事了</blockquote>
 我刚意识到这个图没有锁任务区域..<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  henryhe  
+##### 860#       发表于 2021-11-10 21:03
+
+4玩了大半年一次都没有闪退过，5打算用xgp试玩一下再考虑是否入手，但两天了还是一过健康游戏忠告后就闪退，我还是继续玩4吧
+

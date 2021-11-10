@@ -14156,3 +14156,12 @@ bilibili复活
 
 看看上个原创曲的播放量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星の守  
+##### 7143#       发表于 2021-11-10 20:47
+
+所以还是得直播，那样才有人气，才可以带动pv和周边，把直播扔一边肯定不行，直播和偶像是相辅相成的
+

@@ -10168,3 +10168,49 @@ king这张到时候把你虹两张创了管人CD记录的团砖干碎（基本�
 
 喊了两年的主流出道终于走到这一步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一连king都不行了那要怎么办
 
+
+
+*****
+
+####  rzrbtk  
+##### 8244#       发表于 2021-11-10 20:43
+
+valz都复活了我惊，感觉真是私下各种操作…于此同时底边郡郡在和幼驯染fate圣地巡礼，不会被炒吧（笑
+
+*****
+
+####  free  
+##### 8245#       发表于 2021-11-10 20:43
+
+彩虹的拼盘卖了38494张，难道葛叶还能卖过这个？我不信<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 8246#       发表于 2021-11-10 20:44
+
+<[img src="https://i.loli.net/2021/11/10/e4l6UQ2YdowENVx.png" referrerpolicy="no-referrer">
+
+呜呜……星街的单人第一的纪录就只能保持三个多月了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 8247#       发表于 2021-11-10 20:49
+
+king这张版本多啊，再加上店特之类的，火畜一口气买好几个版本，到时候合算四万不难的。
+
+*****
+
+####  IDIDIDID  
+##### 8248#       发表于 2021-11-10 20:51
+
+不过要是运营力推虹店圈榜统计不到也可能圈榜表面上数字很糊就是了。
+
+*****
+
+####  alcoholic1000  
+##### 8249#       发表于 2021-11-10 20:51
+
+有随专附赠的応募抽选券（30s谈话合影/规定禁止转卖），每人的申请数量没有限制，一看就是铁了心要冲销量的
+
