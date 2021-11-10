@@ -3361,3 +3361,12 @@ banana继续绝版中
 
 快进太鬼畜了，我还是慢慢等吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 84279#       发表于 2021-11-10 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这技能快进就不能整个开关么
+

@@ -5624,3 +5624,50 @@ xdm，登子的米到了！
 
 解读解读
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2115#       发表于 2021-11-10 17:47
+
+看来今天去公司也是不开心的一天<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2116#       发表于 2021-11-10 17:47
+
+明天也是好天气，说明今天是好天气，暗示事情有了个好结果
+信静爱静等静<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2117#       发表于 2021-11-10 17:47
+
+我怀疑，她真的是去买咖啡，定个位玩粉丝一波，因为我也能干出这种事<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2118#       发表于 2021-11-10 17:50
+
+错误的，明天也是好天气neta 今日もいい天気，暗示文静要去拍例のアレ了。
+
+*****
+
+####  小憨1  
+##### 2119#       发表于 2021-11-10 17:51
+
+呃呃，我怀疑是老阿姨逗我玩了，这玩意B站自己就能改<img src="https://p.sda1.dev/3/f5040507f53b1b43c57415f46ec9b1c7/IMG_CMP_86405702.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  complion  
+##### 2120#       发表于 2021-11-10 17:56
+
+<blockquote>夜之中道崩殂 发表于 2021-11-10 17:27
+所以，文静是江苏人？</blockquote>
+文静应该是深圳的。
+

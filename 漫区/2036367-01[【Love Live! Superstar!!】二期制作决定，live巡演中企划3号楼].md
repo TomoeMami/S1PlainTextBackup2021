@@ -1088,3 +1088,12 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹1st有两天的，一天的哪有6小时那么长啊
 
+
+
+*****
+
+####  lucksolo  
+##### 92#       发表于 2021-11-10 17:45
+
+平均唱得多就算了 场数和间隔才是最夸张的
+
