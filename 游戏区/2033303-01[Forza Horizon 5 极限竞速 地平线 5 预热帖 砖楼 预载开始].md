@@ -10109,3 +10109,12 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 跑大脚那场闪回时ai能往前瞬移简直了。
 
+
+
+*****
+
+####  nemunoki  
+##### 916#       发表于 2021-11-11 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">系列赛1都开始了然而还是没见着补丁，只能先单机自闭保平安
+

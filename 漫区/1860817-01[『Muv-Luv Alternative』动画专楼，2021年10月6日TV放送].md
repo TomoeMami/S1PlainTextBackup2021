@@ -19520,3 +19520,26 @@ TDA里面上天生孩子的就是狐狸吧
 hsst那个是被安排击坠了吗？</blockquote>
 HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
+
+
+*****
+
+####  Toby_dak  
+##### 1360#       发表于 2021-11-11 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498236&amp;ptid=1860817" target="_blank">镜hinata 发表于 2021-11-11 02:50</a>
+
+别告诉我kasumi和sumika</blockquote>
+建议把第3集开头和OP连起来多看几次。
+
+*****
+
+####  ReginaldMorgan  
+##### 1361#       发表于 2021-11-11 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53507349&amp;ptid=1860817" target="_blank">Kuroe 发表于 2021-11-11 18:47</a>
+游戏的第三节整个砍掉的情况下，四话（第一话不算）做到了第五节中“霞的真实身份”这个部分。
+
+感觉这速度 ...</blockquote>
+如果125分配四集的篇幅的话，那甚至可以停在第七章开头冥画，这可一点都不无聊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -3932,3 +3932,19 @@ connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 绝了，老鼠台lol一姐回归了她忠实的图奇
 
+
+
+*****
+
+####  Klience  
+##### 4957#       发表于 2021-11-11 22:42
+
+对面小炮估计是新人 打完十几局人机就马上排位 拿小炮就没赢过 就看这边EZ打得怎么样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4958#       发表于 2021-11-11 22:53
+
+阿卡丽 剑圣起飞 狗头和平发育中期也是个爸爸 一斧头一个小朋友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
