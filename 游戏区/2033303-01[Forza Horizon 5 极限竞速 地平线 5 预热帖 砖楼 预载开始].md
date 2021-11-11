@@ -10118,3 +10118,22 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">系列赛1都开始了然而还是没见着补丁，只能先单机自闭保平安
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 917#       发表于 2021-11-11 23:08
+
+马拉松商店还是打不开啊
+
+*****
+
+####  4ckc  
+##### 918#       发表于 2021-11-11 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">尼玛，对于本手残后备赛季已经挺难了，正式赛季更难还都是线上任务
+躺平了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
