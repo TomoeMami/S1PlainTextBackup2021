@@ -6440,3 +6440,24 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 怎么没人说话呢
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2199#       发表于 2021-11-11 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53501794&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-11-11 11:40</a>
+怎么没人说话呢</blockquote>
+有什么能说的呢。。。
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  小憨1  
+##### 2200#       发表于 2021-11-11 12:06
+
+我想明白了，我就是文静毒唯，偶尔出轨白白
+我将停止呼吸只到她们两个有一个人动<img src="https://p.sda1.dev/3/47b010781956cbf7a002da1518f7f208/0CB37C2EAA83364392B45BC01F033DA9.jpg" referrerpolicy="no-referrer">
+
