@@ -9793,3 +9793,14 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 改为用A卡自带的视频录制就没问题了。
 
+
+
+*****
+
+####  老黑305  
+##### 885#       发表于 2021-11-11 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498391&amp;ptid=2033303" target="_blank">Senbascira 发表于 2021-11-11 02:38</a>
+第一次玩fh，沉迷了两天后发现老手难度的ai都很难打过，直道难以拉近，起步比ai慢，过弯我觉得自己做得蛮好 ...</blockquote>
+还是要一两好点的车，可以试试兰博基尼的murcielago，s1 900的调教，现在我觉得用这辆车打公路赛的老手ai还算轻松
+

@@ -3144,3 +3144,15 @@ an枪是没kiss
 难道一把是胶枪的an ...</blockquote>
 一把枪，试作初音A是40级的名字，进化到50级就叫试作初音A甲了。
 
+
+
+*****
+
+####  hypnossz86  
+##### 6222#       发表于 2021-11-11 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53500458&amp;ptid=1570791" target="_blank">lxh00770077 发表于 2021-11-11 10:15</a>
+一把枪，试作初音A是40级的名字，进化到50级就叫试作初音A甲了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">啥？原来是这样么，以前进化了一把忘记了又把另一把喂到40了
+好吧233
+
