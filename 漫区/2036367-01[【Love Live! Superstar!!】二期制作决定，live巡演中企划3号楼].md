@@ -1750,3 +1750,37 @@ https://mikanani.me/?ivk_sa=1024320u
 只是你最喜爱的动画镜头/话数评选投稿
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">写个可香去
 
+
+
+*****
+
+####  冰冻火柴  
+##### 158#       发表于 2021-11-11 19:31
+
+这5位中之人总给我一种草莓棉花糖的幻视<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+Liyuu→伊藤伸惠（大姐）
+伊达小百合→伊藤千佳（主角，亲妹妹）
+Payton尚未→安娜（吃瘪，假西洋人）
+青山渚→松冈美羽（搞怪，普通人无法理解的行为逻辑）
+岬奈子→樱木茉莉（吉祥物）
+
+*****
+
+####  saglork  
+##### 159#       发表于 2021-11-11 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53506521&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-11-11 17:40</a>
+你们够了，不是个个观众都是动漫高手的，然后还要看看厨的是哪个CP
+
+我身边有好几个新入坑/再回坑一 ...</blockquote>
+这个倒是真的，我认识的两个回坑的还挺吃香千的，可堇也还行，估计是祖传幼驯染滤镜和妮姬既视感<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 160#       发表于 2021-11-11 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53506241&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-11 17:19</a>
+让读者来编故事吗？这不得让各位发糖的太太上啊！</blockquote>
+@星无 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
