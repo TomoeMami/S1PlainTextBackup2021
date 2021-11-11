@@ -10545,3 +10545,28 @@ nagi吧？nagi的龙叫bora
 syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧ki ...</blockquote>
 什么时候来点枕营业，主流这块拼图就完美了
 
+
+
+*****
+
+####  winda  
+##### 8280#       发表于 2021-11-11 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503862&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-11-11 14:21</a>
+
+nagi吧？nagi的龙叫bora
+
+我猜是寻龙启事？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">啊，我说的是mc服里的的
+
+
+
+*****
+
+####  poipanchao  
+##### 8281#       发表于 2021-11-11 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505206&amp;ptid=1972669" target="_blank">winda 发表于 2021-11-11 16:02</a>
+啊，我说的是mc服里的的</blockquote>
+那就更加可能是nagi了…bo拢共上过2，3次mc吧，基本都是跟nagi玩
+

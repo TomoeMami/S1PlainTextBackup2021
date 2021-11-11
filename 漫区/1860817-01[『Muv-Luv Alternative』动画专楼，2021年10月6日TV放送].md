@@ -19418,3 +19418,40 @@ hsst那个是被安排击坠了吗？
 
 的确感觉香月才是女主
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1352#       发表于 2021-11-11 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504364&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-11-11 14:59</a>
+
+？第2个不是提了一嘴吗</blockquote>
+我反应过来了，是我打错字了，把露打成了漏
+
+我的问题，改正了
+
+*****
+
+####  hlazd  
+##### 1353#       发表于 2021-11-11 16:09
+
+ 本帖最后由 hlazd 于 2021-11-11 16:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505252&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-11 16:05</a>
+我反应过来了，是我打错字了，把露打成了漏
+
+我的问题，改正了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抱歉……刚发现是我打错了，我想说第1个那个
+应该是动画里第一次提到那个东西吧
+
+*****
+
+####  ReginaldMorgan  
+##### 1354#       发表于 2021-11-11 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505298&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-11-11 16:09</a>
+抱歉……刚发现是我打错了，我想说第1个那个
+应该是动画里第一次提到那个东西吧 ...</blockquote>
+重新看了一遍发现一闪而过以至于我漏了那句话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

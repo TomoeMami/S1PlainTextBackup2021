@@ -6623,3 +6623,32 @@ syl 原来进去可以看汤底
 
 鸟P们好像在匿名箱提问。点子是多。
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2219#       发表于 2021-11-11 16:27
+
+为什么文静可以发动态<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2220#       发表于 2021-11-11 16:27
+
+卜是说卜能发动态么？🖐️
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2221#       发表于 2021-11-11 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505550&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-11 16:27</a>
+为什么文静可以发动态</blockquote>
+[置顶]现在队员的动态已经不是绝对禁言状态啦，大家不要紧张[给心心] ​
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
