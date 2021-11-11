@@ -10087,3 +10087,25 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 感觉这一作的剧情模式和表演赛都比前作简单，不知道是不是错觉
 
+
+
+*****
+
+####  有钱多买小人  
+##### 914#       发表于 2021-11-11 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53508115&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-11 19:35</a>
+手动和手动离合器有区别吗？手动离合器不加难度收益</blockquote>
+跑拉力玩漂移离合有点用。不过基本看个人习惯。
+
+*****
+
+####  有钱多买小人  
+##### 915#       发表于 2021-11-11 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53509251&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-11 21:00</a>
+感觉这一作的剧情模式和表演赛都比前作简单，不知道是不是错觉</blockquote>
+让的比前作明显。虽然前作也让，但这作ai正常跑的太强，显得冲线前让的就很明显。
+
+跑大脚那场闪回时ai能往前瞬移简直了。
+
