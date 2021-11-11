@@ -19281,3 +19281,20 @@ beta世界由于外星人入侵，人类没有选择发展电子娱乐而是军�
 
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1342#       发表于 2021-11-11 08:32
+
+这集还行啊，主要是白银刚回去的时候那个草地树叶是认真的吗
+
+牛奶钻钻拳好评，还原了游戏场景
+
+还好白银的敬礼没拉跨
+
+动画特地表现了装置运行时电量的消耗（明明是硬要战术机出场）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -9764,3 +9764,14 @@ A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者�
 
 有好几个喜欢的涂装在fh4上，作者半天也没动静要搬云过来..
 
+
+
+*****
+
+####  Lisylfn  
+##### 883#       发表于 2021-11-11 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497328&amp;ptid=2033303" target="_blank">御风沐雪 发表于 2021-11-10 23:53</a>
+还是要卡硬币吧</blockquote>
+你看看752楼的操作行不行
+

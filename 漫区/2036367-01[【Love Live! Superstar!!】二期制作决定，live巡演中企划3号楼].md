@@ -1256,3 +1256,12 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 上推看了一下鲤鱼姐也有给之前cos龙女仆节目的推的不少评论点赞，个人活动相关推文和回复的点赞应该没太多限制。但是这也太好了吧，我也想被点赞啊x<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 111#       发表于 2021-11-11 08:43
+
+嗯？？你们在说谁抽卡工资回收，我推特扫了一圈没看到有人发啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
