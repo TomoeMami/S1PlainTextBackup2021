@@ -726,3 +726,17 @@ PC还有一个叫模拟器的大杀器呀<img src="https://static.saraba1st.com/
 
 —— 来自 OnePlus ONEPLUS A6010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  BRRM  
+##### 78#       发表于 2021-11-12 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512105&amp;ptid=2037022" target="_blank">oskneo 发表于 2021-11-12 02:38</a>
+
+买个二手游戏然后卖掉要多少钱
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+那pc的盗版或者淘宝的共享账号不更省事？连快递都免了，而且风险=0，绝不会遇到二手价格波动的情况。
+
