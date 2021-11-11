@@ -10570,3 +10570,13 @@ nagi吧？nagi的龙叫bora
 啊，我说的是mc服里的的</blockquote>
 那就更加可能是nagi了…bo拢共上过2，3次mc吧，基本都是跟nagi玩
 
+
+
+*****
+
+####  FCCHua  
+##### 8282#       发表于 2021-11-11 17:08
+
+hnn的生日选曲好真实，世界第一公主殿下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://youtu.be/yTv14R0kCl4](https://youtu.be/yTv14R0kCl4)
+

@@ -3635,3 +3635,29 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 又赢了一把，不对劲
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 4921#       发表于 2021-11-11 17:23
+
+你们又窥屏了？
+
+*****
+
+####  时间在我手中  
+##### 4922#       发表于 2021-11-11 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53506290&amp;ptid=2018830" target="_blank">Ky·Kiske 发表于 2021-11-11 17:23</a>
+
+你们又窥屏了？</blockquote>
+图奇在播啊，要下了都
+
+*****
+
+####  T_Hb  
+##### 4923#       发表于 2021-11-11 17:25
+
+溜了，4胜1败
+
