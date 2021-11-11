@@ -3720,3 +3720,19 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 4931#       发表于 2021-11-11 20:44
+
+吉他版黎明与萤火还行
+
+*****
+
+####  呓亘  
+##### 4932#       发表于 2021-11-11 20:53
+
+咩咩，我的好咩咩
+

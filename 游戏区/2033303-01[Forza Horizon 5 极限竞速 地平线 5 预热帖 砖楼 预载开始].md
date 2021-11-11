@@ -10068,3 +10068,22 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 今天是直接全没了
 
+
+
+*****
+
+####  gzGaryC  
+##### 912#       发表于 2021-11-11 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53508784&amp;ptid=2033303" target="_blank">nailuo1993 发表于 2021-11-11 20:13</a>
+
+后驱的车是不是没法开自动挡？ 低挡位直接打滑</blockquote>
+开TCS+二档起步能解决绝大多数的起步打滑
+
+*****
+
+####  920619lqy  
+##### 913#       发表于 2021-11-11 21:00
+
+感觉这一作的剧情模式和表演赛都比前作简单，不知道是不是错觉
+
