@@ -9748,3 +9748,19 @@ A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tasuku  
+##### 882#       发表于 2021-11-11 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497500&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-11 00:10</a>
+
+自己做的涂装可以同步，别人的不行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">话又说回来，这涂装没区分pc和主机吧
+
+所以只能想办法自己去pc上搞一套了么...
+
+有好几个喜欢的涂装在fh4上，作者半天也没动静要搬云过来..
+
