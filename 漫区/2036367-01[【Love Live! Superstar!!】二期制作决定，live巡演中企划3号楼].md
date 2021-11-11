@@ -1265,3 +1265,14 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 嗯？？你们在说谁抽卡工资回收，我推特扫了一圈没看到有人发啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 112#       发表于 2021-11-11 08:47
+
+鲤鱼啊，昨晚睡前在INS上发了抽出可可UR的图，居然没在微博炫耀
+
+说她推上点赞好像得第一时间回复，而且也挺随机的，我还没被赞过<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

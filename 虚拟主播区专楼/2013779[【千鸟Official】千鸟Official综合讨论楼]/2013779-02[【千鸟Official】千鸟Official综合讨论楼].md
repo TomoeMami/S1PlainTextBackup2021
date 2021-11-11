@@ -6350,3 +6350,12 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 马文静，你罪大恶极！
 
+
+
+*****
+
+####  小憨1  
+##### 2189#       发表于 2021-11-11 08:47
+
+静将军，不如看开一点，解甲归田和我结婚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
