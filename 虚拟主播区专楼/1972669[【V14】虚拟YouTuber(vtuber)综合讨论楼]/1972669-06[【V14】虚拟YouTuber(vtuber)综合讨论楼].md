@@ -10508,3 +10508,16 @@ kr同事老问题了，你要说不仲嘛，在杂谈里推特里评论区也是
 
 大师哥就是真不熟了，休止回来以后，跟本社来往肉眼可见的消失殆尽
 
+
+
+*****
+
+####  winda  
+##### 8277#       发表于 2021-11-11 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503056&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-11-11 13:10</a>
+我不信她会想玩ark，至少我没看到
+kr同事老问题了，你要说不仲嘛，在杂谈里推特里评论区也是很热乎的
+我 ...</blockquote>
+说起来kr服那个bora寻人启示告示牌是谁做的来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

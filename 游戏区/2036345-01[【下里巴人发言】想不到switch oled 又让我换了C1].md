@@ -988,3 +988,34 @@ MD，搞得我想出了oled switch了
 
 「如果你追求的是最极致的画面表现，那么最好的选择应该是购入一台 Oled 屏幕的电脑显示器或电视，然后以 TV 模式来体验 NS 游戏」 -《法米通》
 
+
+
+*****
+
+####  zris  
+##### 92#         楼主| 发表于 2021-11-11 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503618&amp;ptid=2036345" target="_blank">ybfelix 发表于 2021-11-11 14:02</a>
+
+「如果你追求的是最极致的画面表现，那么最好的选择应该是购入一台 Oled 屏幕的电脑显示器或电视，然后以 T ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哎，冲动消费了，防不胜防
+
+*****
+
+####  鸳鸳相抱  
+##### 93#       发表于 2021-11-11 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503701&amp;ptid=2036345" target="_blank">zris 发表于 2021-11-11 14:08</a>
+哎，冲动消费了，防不胜防</blockquote>
+不要怕，明年就有switch lite oled了
+
+*****
+
+####  zris  
+##### 94#         楼主| 发表于 2021-11-11 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503731&amp;ptid=2036345" target="_blank">鸳鸳相抱 发表于 2021-11-11 14:11</a>
+
+不要怕，明年就有switch lite oled了</blockquote>
+如果不搞加強版，我就先不買了把，體驗幾乎沒差，除了初版續航有點尿崩外
+
