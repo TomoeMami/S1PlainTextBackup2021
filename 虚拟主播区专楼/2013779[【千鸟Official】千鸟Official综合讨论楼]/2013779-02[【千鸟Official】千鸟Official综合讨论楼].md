@@ -6884,3 +6884,12 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 
 唱得棒棒哒~<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2249#       发表于 2021-11-11 18:38
+
+千鸟越来越魔幻了，我在贴吧也看出点东西，但是我和熟人社会不熟，不确定不好说，所以我也决定做一个谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
