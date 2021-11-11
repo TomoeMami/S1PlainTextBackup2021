@@ -1627,3 +1627,24 @@ B站追番刷某红书
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧看第三话来说说感想啊
 
+
+
+*****
+
+####  cybernetics31  
+##### 149#       发表于 2021-11-11 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了些鲤鱼以前的长发图，果然还是更喜欢长发鲤鱼，星团这几位颜值多少都被发型限制住了
+
+*****
+
+####  仟音一心  
+##### 150#       发表于 2021-11-11 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504642&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 15:20</a>
+
+我很久没追番了，等于说现在阿B还有删减的
+
+行，我下载下来有空就看一话，实时来发感想 ...</blockquote>
+真有还没看动画的啊？这么说吧，前三话把本作抬到了不属于它的高度，看完你就懂了。
+

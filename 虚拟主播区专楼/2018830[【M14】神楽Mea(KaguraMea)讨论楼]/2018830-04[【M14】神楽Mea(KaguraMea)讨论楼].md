@@ -3578,3 +3578,26 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 看了一下排位 目前七场四胜三负<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 4914#       发表于 2021-11-11 15:43
+
+才单杀一次就那么嘚瑟 等对面打野来有你好果子吃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 4915#       发表于 2021-11-11 15:58
+
+伦理观还行
+
+*****
+
+####  时间在我手中  
+##### 4916#       发表于 2021-11-11 15:59
+
+说了啥,工作没认真听
+
