@@ -19498,3 +19498,25 @@ hsst那个是被安排击坠了吗？
 如果不强求女主必须是男主CP的话，香月算女主没啥问题</blockquote>
 TDA里面上天生孩子的就是狐狸吧
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 1358#       发表于 2021-11-11 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498236&amp;ptid=1860817" target="_blank">镜hinata 发表于 2021-11-11 01:50</a>
+
+别告诉我kasumi和sumika</blockquote>
+这是恶意误导
+
+*****
+
+####  鱼雷鲨  
+##### 1359#       发表于 2021-11-11 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502878&amp;ptid=1860817" target="_blank">liwangli1983 发表于 2021-11-11 12:55</a>
+
+hsst那个是被安排击坠了吗？</blockquote>
+HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
+
