@@ -3688,3 +3688,12 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 摸鱼逛了一下午外野，怎么播图奇了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rem-清曲  
+##### 4927#       发表于 2021-11-11 20:04
+
+今天状态有点好 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

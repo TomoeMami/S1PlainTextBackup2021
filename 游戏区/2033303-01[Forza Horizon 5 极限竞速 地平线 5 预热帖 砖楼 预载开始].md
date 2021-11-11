@@ -10036,3 +10036,22 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 记得极限竞速地平线5贴吧有个劲敌用车简易指南</blockquote>
 我换成跑越野和拉力的图，结果全都是轻轻松松就过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，看来是我选错比赛项目
 
+
+
+*****
+
+####  nailuo1993  
+##### 909#       发表于 2021-11-11 20:13
+
+后驱的车是不是没法开自动挡？ 低挡位直接打滑
+
+*****
+
+####  lxx4869  
+##### 910#       发表于 2021-11-11 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53508784&amp;ptid=2033303" target="_blank">nailuo1993 发表于 2021-11-11 20:13</a>
+
+后驱的车是不是没法开自动挡？ 低挡位直接打滑</blockquote>
+不是自动挡的问题，是油门控制的问题，一开始打滑的时候不要全油门
+
