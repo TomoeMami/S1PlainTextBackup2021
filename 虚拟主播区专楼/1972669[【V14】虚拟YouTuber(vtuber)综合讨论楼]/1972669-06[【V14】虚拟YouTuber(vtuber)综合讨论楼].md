@@ -10482,3 +10482,29 @@ youtube隐藏了👎的显示，已于今日更新
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  死体残留  
+##### 8275#       发表于 2021-11-11 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502538&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-11-11 12:29</a>
+bora有事没事就diss一下虹，现在也是成天跟holo和vspo混在一起
+彩虹不行.JPG</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">说起bora是不是有点奇怪，之前好像看过剪辑说想进虹ark玩，结果水晶岛开放给kr和en也没见进过，apex交友圈和kr同事完全玩不来，大师哥进来也是没一起玩过，有了解是什么情况么
+
+*****
+
+####  poipanchao  
+##### 8276#       发表于 2021-11-11 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502945&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-11 13:01</a>
+说起bora是不是有点奇怪，之前好像看过剪辑说想进虹ark玩，结果水晶岛开放给kr和en也没见进过，ap ...</blockquote>
+我不信她会想玩ark，至少我没看到
+kr同事老问题了，你要说不仲嘛，在杂谈里推特里评论区也是很热乎的
+我估摸着两个原因，一是同事都是首尔人（只有她一个釜山乡下妹，没见过同事真人）不好打交道
+二是日语不行，可以感觉的出来，bo明显在极力减少韩语浓度
+
+大师哥就是真不熟了，休止回来以后，跟本社来往肉眼可见的消失殆尽
+

@@ -1398,3 +1398,17 @@ B站追番刷某红书
 
 怎么感觉被鲤鱼自己拍的图爆了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cqc1021  
+##### 126#       发表于 2021-11-11 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502961&amp;ptid=2036367" target="_blank">千千千千鸟 发表于 2021-11-11 13:02</a>
+怎么感觉被鲤鱼自己拍的图爆了</blockquote>
+两张特写拍的不错：[https://weibo.com/7477801975/L0Y9TaFhz](https://weibo.com/7477801975/L0Y9TaFhz)
+就全身这张太过奇葩，估计摄影师没啥拍高个子女生的经验
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
