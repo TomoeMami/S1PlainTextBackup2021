@@ -10471,3 +10471,14 @@ YouTube の低評価数に関する変更
 
 youtube隐藏了👎的显示，已于今日更新
 
+
+
+*****
+
+####  真飞鸟i  
+##### 8274#       发表于 2021-11-11 12:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">游戏部唯一的vtb记录要消失了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

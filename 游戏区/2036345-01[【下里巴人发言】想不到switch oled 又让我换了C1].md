@@ -950,3 +950,16 @@ c1偏色啊 人脸惨白，亮处还过曝
 
 C1从9700跌到9500的时候我还怕他再涨价赶紧买了。。后悔啊现在这么便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zris  
+##### 88#         楼主| 发表于 2021-11-11 13:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我有點犯賤了
+
+感覺switch oled現在境遇實在尷尬，買了電視基本不玩switch oled，如果都是圖大屏幕，普通switch 和oled switch 沒差，也就續航這兩差一點。
+
+MD，搞得我想出了oled switch了
+

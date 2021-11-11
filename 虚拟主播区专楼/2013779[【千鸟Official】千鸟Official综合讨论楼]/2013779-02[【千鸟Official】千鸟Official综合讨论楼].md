@@ -6548,3 +6548,19 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 鸟综看热闹的这群人，是千鸟观众最后的一群正常人了，坚持住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 2211#       发表于 2021-11-11 12:50
+
+引退<img src="https://p.sda1.dev/3/5c8a7738aa02c87fc356501cd8b4b26e/0CB37C2EAA83364392B45BC01F033DA9.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2212#       发表于 2021-11-11 12:59
+
+完了，熟人社会还没建立起来就散了，但我相信我们还有再见的一天😿
+

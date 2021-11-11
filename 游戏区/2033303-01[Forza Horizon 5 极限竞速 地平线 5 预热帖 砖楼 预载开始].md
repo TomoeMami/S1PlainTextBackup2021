@@ -9872,3 +9872,37 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  asergh0630rx  
+##### 893#       发表于 2021-11-11 12:53
+
+<blockquote>Krizzy 发表于 2021-11-11 10:49
+这代后驱好开了不少，4代个个魔改4驱实在心里接受不了，到后驱又太难开。。
+
+—— 来自 S1Fun ...</blockquote>
+那你是没玩过三代，那后驱完全不能开。
+
+*****
+
+####  Totokei  
+##### 894#       发表于 2021-11-11 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502609&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-11 12:34</a>
+那个车拍卖场也就几百万，刷到钱直接去买得了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经用免费券买了，就等抽奖抽中1500w到手了
+
+*****
+
+####  舌怪  
+##### 895#       发表于 2021-11-11 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502698&amp;ptid=2033303" target="_blank">intruderz 发表于 2021-11-11 12:40</a>
+
+苦行赛道是哪个抽了风的想出来的……越开越煎熬
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+这代ai跑泥地没那么赖皮的话，这赛道还是挺有意思的
+
