@@ -3998,3 +3998,12 @@ connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 波比挡前面 视野做好 螳螂和剑姬对波比没办法的 这局波比还打了最高伤害 现在白银4了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 4965#       发表于 2021-11-12 00:36
+
+这吊人终于疯了 叫你玩狐狸 好好玩波比当个工具人不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

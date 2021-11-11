@@ -7067,3 +7067,54 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 
 很怀疑千鸟团粉的数量，本来体量就小还是一超两强两鸡，撞车无所谓的。
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2270#       发表于 2021-11-12 00:33
+
+坏起来了鸟p们，坏起来惹！！！
+
+*****
+
+####  tn_teana  
+##### 2271#       发表于 2021-11-12 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511466&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-12 00:33</a>
+坏起来了鸟p们，坏起来惹！！！</blockquote>
+？？？
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灰色的狐狸  
+##### 2272#       发表于 2021-11-12 00:38
+
+【文静，我的文静！-哔哩哔哩】https://b23.tv/xzTUhm
+
+还有女粉
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  灰色的狐狸  
+##### 2273#       发表于 2021-11-12 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511466&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-12 00:33</a>
+坏起来了鸟p们，坏起来惹！！！</blockquote>
+？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  T型钉宫病毒  
+##### 2274#       发表于 2021-11-12 00:40
+
+？？？
+
+楼友不会是真疯了吧
+
