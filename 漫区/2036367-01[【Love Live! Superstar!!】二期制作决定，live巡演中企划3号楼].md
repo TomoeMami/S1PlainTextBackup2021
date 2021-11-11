@@ -1412,3 +1412,26 @@ B站追番刷某红书
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  saya1892  
+##### 127#       发表于 2021-11-11 13:27
+
+从鲤鱼和经纪人的对话来看，鲤鱼平时也是说敬语的，果然除了身高就是本人
+
+*****
+
+####  呆毛王嫁给我  
+##### 128#       发表于 2021-11-11 13:40
+
+昨天看了第一话，太好看啦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 129#       发表于 2021-11-11 13:43
+
+鲤鱼姐有一直看大家的评论诶，一想到自己的评论有被看到，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -9906,3 +9906,12 @@ fh5感觉有点问题，gameb ...</blockquote>
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 这代ai跑泥地没那么赖皮的话，这赛道还是挺有意思的
 
+
+
+*****
+
+####  我又忘了用户名  
+##### 896#       发表于 2021-11-11 13:36
+
+环岛赛刷了几次跑到10：53了 不知道为啥每次别人起步都比我快. 鬼影车也是. 起步的时候难道不能一直按着油门吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
