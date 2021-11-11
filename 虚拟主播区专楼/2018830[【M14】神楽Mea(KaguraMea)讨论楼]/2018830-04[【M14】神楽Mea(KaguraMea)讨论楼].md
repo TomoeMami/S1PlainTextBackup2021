@@ -4032,3 +4032,30 @@ connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 困死了还玩
 
+
+
+*****
+
+####  时间在我手中  
+##### 4969#       发表于 2021-11-12 01:05
+
+ 本帖最后由 时间在我手中 于 2021-11-12 01:11 编辑 
+
+这把赢了该下了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么浪翻盘
+
+*****
+
+####  T_Hb  
+##### 4970#       发表于 2021-11-12 01:14
+
+T进人堆里竟然溜了
+
+*****
+
+####  时间在我手中  
+##### 4971#       发表于 2021-11-12 01:17
+
+手都没力气了还玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完赶紧睡吧你肥婆
+

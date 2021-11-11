@@ -10180,3 +10180,22 @@ Quinn
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ae86现在值钱吗？能卖多少？
 
+
+
+*****
+
+####  amuro_h  
+##### 924#       发表于 2021-11-12 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53478852&amp;ptid=2033303" target="_blank">amuro_h 发表于 2021-11-9 17:39</a>
+
+求助 进游戏没事开始第一场的表演赛就报错。。有人知道怎么搞吗。。。</blockquote>
+解决了，因为我用户名是中文，用管理员账户登录把中文名的用户文件夹改成英文，然后注册表的用户路径也修改成一样的英文名字就可以了
+
+*****
+
+####  Vladimeow  
+##### 925#       发表于 2021-11-12 01:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这代狮子头怎么要名人堂资格啊，有人告知名人堂怎么进嘛。。。求救
+

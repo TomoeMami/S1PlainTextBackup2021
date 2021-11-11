@@ -7132,3 +7132,29 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 楼友不会是真疯了吧</blockquote>
 看贴吧好像有些立刻白破防了
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2276#       发表于 2021-11-12 01:08
+
+ 本帖最后由 莫洛骑士 于 2021-11-11 13:12 编辑 
+
+啊？不是那个，要是说挑着回私信我不在乎，我又不是人之初
+
+好像那个动态还真不是本人发的<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">又坏起来了
+
+*****
+
+####  灰色的狐狸  
+##### 2277#       发表于 2021-11-12 01:11
+
+ 本帖最后由 灰色的狐狸 于 2021-11-12 01:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">那莫洛骑士还不快细说
+
+如果单纯是那个动态的话，其实我基本默认是运营代发了
+
+也没啥，放假么，随便了，要是文静2.0被开了，也都是好事儿
+
