@@ -1294,3 +1294,39 @@ justin barber草，鲤鱼姐吸女粉的能力在团里数一数二吧<img src="
 
 话说熊田也是新人吗？有啥作品吗？看她跟外星人合作的广播，居然意外跟得上电波，上鲤鱼广播的时候都没发现她这么能玩。
 
+
+
+*****
+
+####  梶原ひかり  
+##### 115#       发表于 2021-11-11 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53500813&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-11 10:38</a>
+
+话说熊田也是新人吗？有啥作品吗？看她跟外星人合作的广播，居然意外跟得上电波，上鲤鱼广播的时候都没发现 ...</blockquote>
+熊田茜音是00后..17年获得声优歌手甄选的特等奖..18年声优出道 算是还在新人期 比较有名的配音大概就 美妙射击社 和 织田肉桂信长了..20年时候在烂铁出道 不过人气目前很一般 CD销量也算是低的
+
+*****
+
+####  cqc1021  
+##### 116#       发表于 2021-11-11 12:19
+
+这什么鬼才摄影师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/b32479438a04828444a6ad2b7737fccf/IMG_CMP_251403966.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 117#       发表于 2021-11-11 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过鱼腿本身就挺粗的
+
+*****
+
+####  中野四葉  
+##### 118#       发表于 2021-11-11 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了这拍的什么鬼
+

@@ -10427,3 +10427,25 @@ syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧ki
 
 <img src="https://img.saraba1st.com/forum/202111/11/114232o4w4lz7sna0z44v3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 8271#       发表于 2021-11-11 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496857&amp;ptid=1972669" target="_blank">生麦之发杀 发表于 2021-11-10 23:04</a>
+
+才发现yuya转生后玩的好的其中一位是虹kr一期引退的wiffy，另外的是不是还有前同事听得少分不出
+
+虹kr，好温 ...</blockquote>
+wiify这个金鱼妹同款油管头像<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">kr一期和541组估计对虹有不少可抱怨的共同语言
+
+<img src="https://img.saraba1st.com/forum/202111/11/120753rhfl9hchf066m16c.png" referrerpolicy="no-referrer">
+
+<strong>wiffy.png</strong> (7.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-11 12:07 上传
+
