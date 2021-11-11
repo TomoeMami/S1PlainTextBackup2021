@@ -3798,3 +3798,80 @@ connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 好！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 4941#       发表于 2021-11-11 22:02
+
+ 本帖最后由 时间在我手中 于 2021-11-11 22:05 编辑 
+
+打亿把就下是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4942#       发表于 2021-11-11 22:06
+
+2级抓上 劲夫拿buff 这把寄了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4943#       发表于 2021-11-11 22:08
+
+惊了 这都能盘活的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4944#       发表于 2021-11-11 22:08
+
+对面这是在干什么
+
+*****
+
+####  Klience  
+##### 4945#       发表于 2021-11-11 22:09
+
+ 本帖最后由 Klience 于 2021-11-11 22:11 编辑 
+
+在犯病 不如说不愧是这个分段的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4946#       发表于 2021-11-11 22:10
+
+ 本帖最后由 时间在我手中 于 2021-11-11 22:13 编辑 
+
+咩导发力了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+开团团灭是吧，嘻嘻
+
+对面这什么JB，能被吊人乱杀，ICU大乱斗是吧
+
+*****
+
+####  Klience  
+##### 4947#       发表于 2021-11-11 22:16
+
+可以啊 这都没死 所以我就挺喜欢这人玩波比的原因 总能给我一些惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4948#       发表于 2021-11-11 22:17
+
+这分段都是病友局 还好对面不是菜刀队 要是菜刀队 你咩全杀完 现在这装备就离谱 波比出个神分 剩下出板甲 反甲 有回复有伤害 有移速 就很过分
+
+*****
+
+####  时间在我手中  
+##### 4949#       发表于 2021-11-11 22:18
+
+只能说不愧是青铜段位
+
+融 入 分 段
+
