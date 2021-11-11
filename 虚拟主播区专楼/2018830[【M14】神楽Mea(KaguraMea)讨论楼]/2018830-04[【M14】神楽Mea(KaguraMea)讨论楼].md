@@ -3964,3 +3964,19 @@ connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 开始了，又饿了，吃吃吃
 
+
+
+*****
+
+####  Klience  
+##### 4961#       发表于 2021-11-11 23:29
+
+对面这剑姬也是新手 对面中单卡牌对波比没有任何作用 这局稳了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4962#       发表于 2021-11-11 23:34
+
+哦 草 这把剑姬是上一局咩这边的塞拉斯啊 排到了咩对面去了 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

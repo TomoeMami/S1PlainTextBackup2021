@@ -3397,3 +3397,15 @@ banana继续绝版中
 
 啊，呼符抽了个伊吹<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 84283#       发表于 2021-11-11 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53510721&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-11 23:19</a>
+
+啊，呼符抽了个伊吹UMB战队好像齐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">太豹了！
+

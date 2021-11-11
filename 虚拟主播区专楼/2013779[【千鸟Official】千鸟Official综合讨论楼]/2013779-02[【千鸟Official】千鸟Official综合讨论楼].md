@@ -7042,3 +7042,28 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 
 傻丫头还是好
 
+
+
+*****
+
+####  小憨1  
+##### 2267#       发表于 2021-11-11 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53510658&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-11 23:12</a>
+千鸟之后还是会几个同时开播吗？我觉得比较火的可以叉开点。</blockquote>
+一个月80小时，想完全叉开是不可能的
+
+*****
+
+####  伞沢直美  
+##### 2268#       发表于 2021-11-11 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">别的都看不进，我玉玉了
+
+*****
+
+####  IDIDIDID  
+##### 2269#       发表于 2021-11-11 23:36
+
+很怀疑千鸟团粉的数量，本来体量就小还是一超两强两鸡，撞车无所谓的。
+
