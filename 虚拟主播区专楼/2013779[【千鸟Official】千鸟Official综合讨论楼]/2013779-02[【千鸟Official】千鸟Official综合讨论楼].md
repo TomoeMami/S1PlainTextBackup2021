@@ -7158,3 +7158,27 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 
 也没啥，放假么，随便了，要是文静2.0被开了，也都是好事儿
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2278#       发表于 2021-11-12 01:25
+
+下周不就又见面了，盼点好的吧，还有一周年要办呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2279#       发表于 2021-11-12 01:31
+
+贴吧那群傻卵真的没话说，艾白说想往上爬，不看影响自己心情的私信了，然后一帮老粉跳出来说又要摆了不想接受正面反馈了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+希望白白早日摆脱傻卵<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2280#       发表于 2021-11-12 01:35
+
+我摆立场了，我千鸟五人全肯定，虽然我不喜欢陈珺，但是如果冲陈珺就意味着要给五个人压力，那我选择不冲，如果千鸟还是要没了，那我选择珍惜每一天，仅此而已
+

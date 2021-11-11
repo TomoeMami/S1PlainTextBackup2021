@@ -10199,3 +10199,69 @@ Quinn
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这代狮子头怎么要名人堂资格啊，有人告知名人堂怎么进嘛。。。求救
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 926#       发表于 2021-11-12 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511843&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-12 01:20</a>
+
+这代狮子头怎么要名人堂资格啊，有人告知名人堂怎么进嘛。。。求救</blockquote>
+打完五个嘉年华的表演赛就行了
+
+*****
+
+####  天神十三煞  
+##### 927#         楼主| 发表于 2021-11-12 01:25
+
+已经不是狮子头了
+
+应该叫眼镜蛇头
+
+*****
+
+####  Vladimeow  
+##### 928#       发表于 2021-11-12 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511865&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-12 01:24</a>
+打完五个嘉年华的表演赛就行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感谢！明天就肝起来！
+
+*****
+
+####  Vladimeow  
+##### 929#       发表于 2021-11-12 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511871&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-12 01:25</a>
+已经不是狮子头了
+
+应该叫眼镜蛇头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这代所向披靡就是赖中赖了吧
+
+*****
+
+####  makece  
+##### 930#       发表于 2021-11-12 01:34
+
+跟平均AI打都不一定能稳第一的到了线上公开赛居然还能一直前排<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这游戏大多数玩家都是游客水平啊
+
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 931#       发表于 2021-11-12 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511925&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-12 01:34</a>
+
+跟平均AI打都不一定能稳第一的到了线上公开赛居然还能一直前排
+
+这游戏大多数玩家都是游客水平啊 ...</blockquote>
+前两天排了十多把就发现了，只要会直角弯刹车和外内外走线就能稳赢90％的玩家。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+每次玩街头赛直角弯都能飞出去三四个。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

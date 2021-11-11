@@ -19543,3 +19543,12 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 感觉这速度 ...</blockquote>
 如果125分配四集的篇幅的话，那甚至可以停在第七章开头冥画，这可一点都不无聊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOPKOM  
+##### 1362#         楼主| 发表于 2021-11-12 01:20
+
+突然觉得沙雾和全小将还挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
