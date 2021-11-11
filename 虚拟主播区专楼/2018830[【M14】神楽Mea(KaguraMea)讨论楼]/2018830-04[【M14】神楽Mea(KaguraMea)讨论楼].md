@@ -3520,3 +3520,61 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 嘻嘻，希望肥婆这下午都是灰屏，这样今晚一定能很伤心吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 4906#       发表于 2021-11-11 15:24
+
+玩101是真的开心
+
+*****
+
+####  时间在我手中  
+##### 4907#       发表于 2021-11-11 15:25
+
+好，继续死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就好这口猪叫
+
+*****
+
+####  Klience  
+##### 4908#       发表于 2021-11-11 15:25
+
+上 当 了 被厄加特E闪接R接W斩杀了 这人在急什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4909#       发表于 2021-11-11 15:27
+
+出个反甲 守望者 铁板鞋 这厄加特就根本打不动
+
+*****
+
+####  Klience  
+##### 4910#       发表于 2021-11-11 15:30
+
+对面三个ad 也就卡牌一个ap 波比全肉对面拿波比没办法的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4911#       发表于 2021-11-11 15:33
+
+队友给力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再来一把
+
+*****
+
+####  Klience  
+##### 4912#       发表于 2021-11-11 15:34
+
+这滑板鞋宝石可以的啊 直接把下路打穿了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4913#       发表于 2021-11-11 15:37
+
+看了一下排位 目前七场四胜三负<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

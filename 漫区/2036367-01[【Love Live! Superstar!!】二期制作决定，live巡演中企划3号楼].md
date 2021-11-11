@@ -1586,3 +1586,44 @@ B站追番刷某红书
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少年，当你知道kuuka~意味着什么的时候，你就会和我们一起发病。
 
+
+
+*****
+
+####  plazum  
+##### 145#       发表于 2021-11-11 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503426&amp;ptid=2036367" target="_blank">darkendless 发表于 2021-11-11 13:43</a>
+
+鲤鱼姐有一直看大家的评论诶，一想到自己的评论有被看到，真好啊</blockquote>
+认知厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 146#       发表于 2021-11-11 15:39
+
+ 本帖最后由 绯想alter2nd 于 2021-11-11 15:40 编辑 
+
+第二话吗，快了快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺便一提每集ed未来如风唱人都不太一样
+
+*****
+
+####  D麦林  
+##### 147#       发表于 2021-11-11 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504642&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 15:20</a>
+
+我很久没追番了，等于说现在阿B还有删减的
+
+行，我下载下来有空就看一话，实时来发感想 ...</blockquote>
+说大量也没大量 目前剪的多的也就某一话 虽然一个名场景被剪掉了
+
+*****
+
+####  cybernetics31  
+##### 148#       发表于 2021-11-11 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧看第三话来说说感想啊
+

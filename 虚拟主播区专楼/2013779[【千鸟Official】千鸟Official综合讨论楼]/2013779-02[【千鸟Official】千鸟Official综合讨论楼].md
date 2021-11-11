@@ -6582,3 +6582,35 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 安心点，<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Finsty  
+##### 2215#       发表于 2021-11-11 15:26
+
+ 本帖最后由 Finsty 于 2021-11-11 15:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504452&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-11 15:07</a>
+安心点，人还活着</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没有汤底，梁木了
+
+syl 原来进去可以看汤底
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 2216#       发表于 2021-11-11 15:27
+
+很喜欢文文静静的回复：嘘
+
+*****
+
+####  tankai  
+##### 2217#       发表于 2021-11-11 15:27
+
+她这肯定不是一般的回家探亲请假,作为团里的红人,她走之前发散,走之后谜语,直到昨天被运营强行全团禁止动态.粉丝影响其他人直播,都是负面东西.就算回来也得好好道歉.
+
+回到原力这边,以后也别整虚拟直播了,有能力的不会来你这个一点指望不上的勾批玩意儿,骗完2.0合同期散就行了.CJ以后有机会在台前曝光继续吹你的洛天依粘带,不过正主方肯定不会理睬.
+
