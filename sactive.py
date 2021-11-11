@@ -16,6 +16,6 @@ for i in thdata.keys():
     # thdata[i]['newtitle'] = thdata[i]['title']
     if(int(time.time()) -thdata[i]['lastedit']) < 1209600 and thdata[i]['newtitle'] == '[]':
         thdata[i]['active'] = True
-
+print("finish")
 with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
