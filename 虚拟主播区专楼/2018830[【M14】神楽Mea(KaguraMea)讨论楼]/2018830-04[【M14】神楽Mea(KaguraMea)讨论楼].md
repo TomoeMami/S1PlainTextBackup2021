@@ -3980,3 +3980,21 @@ connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 哦 草 这把剑姬是上一局咩这边的塞拉斯啊 排到了咩对面去了 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 4963#       发表于 2021-11-11 23:47
+
+ 本帖最后由 时间在我手中 于 2021-11-11 23:49 编辑 
+
+可算赢了，甚至升白银了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又想去整体了
+
+*****
+
+####  Klience  
+##### 4964#       发表于 2021-11-11 23:49
+
+波比挡前面 视野做好 螳螂和剑姬对波比没办法的 这局波比还打了最高伤害 现在白银4了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
