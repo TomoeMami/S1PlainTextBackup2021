@@ -6573,3 +6573,12 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 鸟不灭🤘🏻
 
+
+
+*****
+
+####  GAKOTO  
+##### 2214#         楼主| 发表于 2021-11-11 15:07
+
+安心点，<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

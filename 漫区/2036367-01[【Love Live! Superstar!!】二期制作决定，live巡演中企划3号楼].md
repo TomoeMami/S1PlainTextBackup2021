@@ -1537,3 +1537,52 @@ B站追番刷某红书
 
 我刚才午休看了第二话，也挺好看的呀
 
+
+
+*****
+
+####  cybernetics31  
+##### 140#       发表于 2021-11-11 15:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然还有没看完的，请务必下载看，不要去叔叔家
+
+*****
+
+####  chenflyyy  
+##### 141#       发表于 2021-11-11 15:16
+
+ 本帖最后由 chenflyyy 于 2021-11-11 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504437&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 15:06</a>
+我以前也看过最初那个版本的LL，真姬控。这种学园偶像最多也就拍的温吞水吧，又不会有什么党争发病突然死人 ...</blockquote>
+你说的这些还真有一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不多做剧透了，放低期待看下去吧，看完有兴趣可以了解下声优们，不会太亏，还有不要在B站看，有大量删减
+然后可以的话请在这楼聊聊每话的感受，让我们回顾下当初追番的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 142#       发表于 2021-11-11 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503651&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 14:05</a>
+
+不是呀，正经第一话啊</blockquote>
+答应我，看完动画后请一定要把生放、表演补完，她们真的很棒，不要因为动画错过她们
+
+*****
+
+####  呆毛王嫁给我  
+##### 143#       发表于 2021-11-11 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504587&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-11 15:16</a>
+
+你说的这些还真有一个就不多做剧透了，放低期待看下去吧，看完有兴趣可以了解下声优们，不会太亏 ...</blockquote>
+我很久没追番了，等于说现在阿B还有删减的
+
+行，我下载下来有空就看一话，实时来发感想
+
+*****
+
+####  ads147147  
+##### 144#       发表于 2021-11-11 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少年，当你知道kuuka~意味着什么的时候，你就会和我们一起发病。
+
