@@ -3472,3 +3472,12 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 这人看样子真就最近忙起来了加必须早起，让你这肥婆也体验体验社畜的痛苦吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 4900#       发表于 2021-11-11 14:34
+
+昨晚输了一个晚上 今天要复仇了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

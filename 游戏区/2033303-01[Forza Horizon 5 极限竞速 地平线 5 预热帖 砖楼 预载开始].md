@@ -9937,3 +9937,13 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 刷了一下技能点又搞到一辆第六元素fe，龟龟这真是魔法车，抓地力比jesko强太多了，直接摧毁公路测速区间
 
+
+
+*****
+
+####  Rebirth_DAN  
+##### 899#       发表于 2021-11-11 14:33
+
+分享个群的共享文件 可以作为选择调教的参考
+https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
+

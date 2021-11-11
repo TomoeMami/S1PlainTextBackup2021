@@ -10521,3 +10521,27 @@ kr同事老问题了，你要说不仲嘛，在杂谈里推特里评论区也是
 我 ...</blockquote>
 说起来kr服那个bora寻人启示告示牌是谁做的来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 8278#       发表于 2021-11-11 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503791&amp;ptid=1972669" target="_blank">winda 发表于 2021-11-11 14:16</a>
+说起来kr服那个bora寻人启示告示牌是谁做的来着</blockquote>
+nagi吧？nagi的龙叫bora
+我猜是寻龙启事？
+
+*****
+
+####  cheatdeath3  
+##### 8279#       发表于 2021-11-11 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497709&amp;ptid=1972669" target="_blank">freakystar 发表于 2021-11-11 00:34</a>
+
+不晓得虹接下来还会整啥回归主流的花样
+
+syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧ki ...</blockquote>
+什么时候来点枕营业，主流这块拼图就完美了
+
