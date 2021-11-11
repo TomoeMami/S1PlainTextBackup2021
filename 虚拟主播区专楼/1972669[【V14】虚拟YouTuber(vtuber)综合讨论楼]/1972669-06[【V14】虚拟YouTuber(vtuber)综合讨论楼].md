@@ -10449,3 +10449,25 @@ wiify这个金鱼妹同款油管头像<img src="https://static.saraba1st.com/ima
 
 2021-11-11 12:07 上传
 
+
+
+*****
+
+####  poipanchao  
+##### 8272#       发表于 2021-11-11 12:29
+
+bora有事没事就diss一下虹，现在也是成天跟holo和vspo混在一起
+彩虹不行.JPG
+
+*****
+
+####  NBXX  
+##### 8273#       发表于 2021-11-11 12:39
+
+[https://www.youtube.com/watch?v=kxOuG8jMIgI](https://www.youtube.com/watch?v=kxOuG8jMIgI)
+
+YouTube の低評価数に関する変更
+<img src="https://p.sda1.dev/3/50f6976ec39d40e0b8de48fbccf513d5/E6AO10G~_N_EA8__1_LOW_W.png" referrerpolicy="no-referrer">
+
+youtube隐藏了👎的显示，已于今日更新
+

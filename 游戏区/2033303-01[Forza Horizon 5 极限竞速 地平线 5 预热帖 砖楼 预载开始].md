@@ -9849,3 +9849,26 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 反正这周的是售前赛季，以后会重复轮发这两车的
 
+
+
+*****
+
+####  舌怪  
+##### 891#       发表于 2021-11-11 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497583&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-11 00:18</a>
+
+今晚搞上了按键精灵实现全自动点技能点删车，真的放置抽卡游戏了
+
+超级抽奖的奖池里看见了daytona可 ...</blockquote>
+那个车拍卖场也就几百万，刷到钱直接去买得了
+
+*****
+
+####  intruderz  
+##### 892#       发表于 2021-11-11 12:40
+
+苦行赛道是哪个抽了风的想出来的……越开越煎熬
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
