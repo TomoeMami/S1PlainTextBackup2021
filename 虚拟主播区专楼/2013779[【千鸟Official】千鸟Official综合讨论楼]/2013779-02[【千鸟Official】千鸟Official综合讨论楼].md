@@ -6875,3 +6875,12 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 
 才发现文静请假这才第四天，真.度日如年了
 
+
+
+*****
+
+####  tankai  
+##### 2248#       发表于 2021-11-11 18:18
+
+唱得棒棒哒~<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
