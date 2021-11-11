@@ -954,3 +954,42 @@ VRchat里认识一个人，厂畜</blockquote>
 
 现在玩的更繁复，玩到第五层了
 
+
+
+*****
+
+####  ceruleancard  
+##### 88#       发表于 2021-11-11 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495296&amp;ptid=2035657" target="_blank">dumplingpro 发表于 2021-11-10 20:55</a>
+
+昨天VR群，才有群友说，
+
+VRchat里认识一个人，厂畜</blockquote>
+我觉得恰恰相反，虚拟世界里面你看到的听到的全由算法控制，一丁点自由都没有，这是资本家追求的、脱离政府甚至市场约束的终极独菜世界
+
+我以前觉得现实世界的消费太高，臭打游戏便宜，但是后来发现，几千块钱、很多人一个月的工资就为一张jpg，多么疯狂的剥削……
+
+*****
+
+####  yangyus1  
+##### 89#       发表于 2021-11-11 09:13
+
+我一直有一个爆论，互联网生态是不断在演化的。从最早的田园时代，再慢慢聚集形成部落，现在大环境处于部落联盟的状态，元宇宙明显是朝着封建王朝加速了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+这哪是元宇宙，这是要称帝啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dumplingpro  
+##### 90#       发表于 2021-11-11 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53499581&amp;ptid=2035657" target="_blank">ceruleancard 发表于 2021-11-11 09:12</a>
+
+我觉得恰恰相反，虚拟世界里面你看到的听到的全由算法控制，一丁点自由都没有，这是资本家追求的、脱离政 ...</blockquote>
+所以不就是说赛博朋克么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+高科技、低生活，在资本压榨下对现实绝望的人，躲到虚拟世界，实际上却没法逃脱资本的触手。
+
+妥妥的赛博朋克反乌托邦。
+

@@ -6359,3 +6359,23 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 静将军，不如看开一点，解甲归田和我结婚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 2190#       发表于 2021-11-11 09:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫薯卸甲归田后都被人天生万物了，窝瓜会怎么样我都不敢想了
+
+
+
+*****
+
+####  有效击穿  
+##### 2191#       发表于 2021-11-11 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53499501&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-11 09:05</a>
+紫薯卸甲归田后都被人天生万物了，窝瓜会怎么样我都不敢想了</blockquote>
+紫薯是谁啊，巨巨指个路，谢谢
+
