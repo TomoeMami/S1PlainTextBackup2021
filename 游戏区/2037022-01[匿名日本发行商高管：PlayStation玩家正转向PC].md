@@ -740,3 +740,28 @@ PC还有一个叫模拟器的大杀器呀<img src="https://static.saraba1st.com/
 —— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 那pc的盗版或者淘宝的共享账号不更省事？连快递都免了，而且风险=0，绝不会遇到二手价格波动的情况。
 
+
+
+*****
+
+####  信长的呕吐  
+##### 79#       发表于 2021-11-12 07:14
+
+这两个月油管广告有日本电脑厂在告诉玩家PC用鼠标玩fps比主机用手柄好多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  satan023  
+##### 80#       发表于 2021-11-12 07:16
+
+我pc接a91j 4k 120hz 开steam大屏模式不比你主机香？？
+
+*****
+
+####  FanKiE  
+##### 81#       发表于 2021-11-12 07:25
+
+只能说人生有梦，各自精彩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
