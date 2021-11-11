@@ -19357,3 +19357,44 @@ hsst那个是被安排击坠了吗？
 
 10、敬礼还是像点样子的嘛
 
+
+
+*****
+
+####  Toby_dak  
+##### 1347#       发表于 2021-11-11 14:50
+
+<blockquote>引用第1345楼ReginaldMorgan于2021-11-11 14:57发表的  :
+
+这集还行吧，后半段的气质还可以，以及香月真的alt女主本周份供（不知道存不存在的）动画党的查缺补漏：......</blockquote>
+時間は人にとって最もやさしくて残酷なもの
+
+准确地说这句话出处是君望，夕呼的老姐香月モトコ说的名台词。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ReginaldMorgan  
+##### 1348#       发表于 2021-11-11 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504247&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2021-11-11 14:50</a>
+時間は人にとって最もやさしくて残酷なもの
+
+准确地说这句话出处是君望，夕呼的老姐香月モトコ说的名台词 ...</blockquote>
+该补君望了
+
+手头欠下的gal有点小多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hlazd  
+##### 1349#       发表于 2021-11-11 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503553&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-11 13:57</a>
+
+这集还行吧，后半段的气质还可以，以及香月真的alt女主
+
+本周份供（不知道存不存在的）动画党的查缺 ...</blockquote>
+？第2个不是提了一嘴吗
+

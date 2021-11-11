@@ -3481,3 +3481,33 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 昨晚输了一个晚上 今天要复仇了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 4901#       发表于 2021-11-11 14:55
+
+不是很懂这波为什么要E上去 打野又不在 你波比又没有能把塔姆收掉的手段
+
+*****
+
+####  Klience  
+##### 4902#       发表于 2021-11-11 14:58
+
+0/3 15点了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 4903#       发表于 2021-11-11 14:58
+
+看不了了，托人中途开始录了
+
+*****
+
+####  Klience  
+##### 4904#       发表于 2021-11-11 15:04
+
+点了 要是不点 队友继续受苦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

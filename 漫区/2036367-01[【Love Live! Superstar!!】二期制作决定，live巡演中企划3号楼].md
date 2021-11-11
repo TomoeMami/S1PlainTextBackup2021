@@ -1475,3 +1475,65 @@ B站追番刷某红书
 
 拍出150的感觉…
 
+
+
+*****
+
+####  Karin11974  
+##### 134#       发表于 2021-11-11 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503651&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 14:05</a>
+不是呀，正经第一话啊</blockquote>
+珍惜前3话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  player3960  
+##### 135#       发表于 2021-11-11 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503651&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 14:05</a>
+
+不是呀，正经第一话啊</blockquote>
+难得这楼里还有人没看过动画，对此我只想说“就算讨厌星团的动画，也请不要讨厌liella！”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 136#       发表于 2021-11-11 14:54
+
+ 本帖最后由 chenflyyy 于 2021-11-11 14:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503651&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 14:05</a>
+不是呀，正经第一话啊</blockquote>
+看完动画后请不要因而讨厌liella，可以再看看真人物料和live<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+其实也没糟糕到这种地步吧，对于第一次看ll的人来说应该还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 137#       发表于 2021-11-11 14:56
+
+现在鲤鱼还在b站看特供吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说排骨萝卜玉米汤我也挺喜欢煮的，主要是好吃方便，基本不需要会做菜。
+
+*****
+
+####  ads147147  
+##### 138#       发表于 2021-11-11 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503380&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-11 13:40</a>
+
+昨天看了第一话，太好看啦</blockquote>
+看之前扫一眼老楼有个心理建设。顺便设立个花田你该死的预期，就不会被伤害到jpg
+
+*****
+
+####  呆毛王嫁给我  
+##### 139#       发表于 2021-11-11 15:06
+
+我以前也看过最初那个版本的LL，真姬控。这种学园偶像最多也就拍的温吞水吧，又不会有什么党争发病突然死人，还能拉跨到哪里去。。。
+
+我刚才午休看了第二话，也挺好看的呀
+
