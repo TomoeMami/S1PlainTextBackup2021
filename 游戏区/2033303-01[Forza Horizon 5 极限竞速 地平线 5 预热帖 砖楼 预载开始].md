@@ -9974,3 +9974,14 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 是我用错车了吗，到现在劲敌没有一个打到前5%的。翻排行榜还看到一个一秒完成的作弊玩家，醉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 903#       发表于 2021-11-11 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476804&amp;ptid=2033303" target="_blank">动力装甲 发表于 2021-11-9 15:29</a>
+这个软件已经废止了，以后和新作不发生关联</blockquote>
+死得好
+

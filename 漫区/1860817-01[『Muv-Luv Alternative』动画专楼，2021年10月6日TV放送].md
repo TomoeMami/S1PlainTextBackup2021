@@ -19467,3 +19467,34 @@ hsst那个是被安排击坠了吗？
 的确感觉香月才是女主</blockquote>
 如果不强求女主必须是男主CP的话，香月算女主没啥问题
 
+
+
+*****
+
+####  Kuroe  
+##### 1356#       发表于 2021-11-11 18:47
+
+ 本帖最后由 Kuroe 于 2021-11-11 18:52 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/11/182916nhf1kku9hbb7w5b9.jpg" referrerpolicy="no-referrer">
+
+<strong>muvluval01.jpg</strong> (225.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-11 18:29 上传
+
+游戏的第三节整个砍掉的情况下，四话（第一话不算）做到了第五节中“霞的真实身份”这个部分。
+
+感觉这速度很尴尬啊，现在还没有结束原本世界的部分，回来了还有Alternative计划的内容。如果一二五被分到4话的篇幅，后面回收公式、转正、模拟战和遭遇BETA，然后逃跑与一系列事件、回归……两话够用？要是按游戏的内容顺着下来，怎么看都是要么第一季结束在无聊的部分，要么第二季开始在无聊的部分<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼雷鲨  
+##### 1357#       发表于 2021-11-11 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505648&amp;ptid=1860817" target="_blank">HEERO.W 发表于 2021-11-11 16:35</a>
+
+如果不强求女主必须是男主CP的话，香月算女主没啥问题</blockquote>
+TDA里面上天生孩子的就是狐狸吧
+
