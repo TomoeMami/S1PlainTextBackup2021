@@ -3875,3 +3875,60 @@ connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 融 入 分 段
 
+
+
+*****
+
+####  Klience  
+##### 4950#       发表于 2021-11-11 22:21
+
+这局除了你咩是青铜 其他都是白银好吗 扎克连定级赛都没有打完 只能说有些人活该在这分段<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  时间在我手中  
+##### 4951#       发表于 2021-11-11 22:22
+
+不懂你们LOL
+
+反正吊人我记得是黄金来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这把是不是寄了
+
+*****
+
+####  Klience  
+##### 4952#       发表于 2021-11-11 22:26
+
+下一件出个自然之力好一点 对面炸弹人poke太恶心了 还有巨魔的柱子减速 
+
+*****
+
+####  Klience  
+##### 4953#       发表于 2021-11-11 22:30
+
+对面腕豪 巨魔前排 莫甘娜抽奖Q Q中巨魔给个柱子减速 炸弹人安妮输出 谁想进场输出基本都是死
+
+*****
+
+####  时间在我手中  
+##### 4954#       发表于 2021-11-11 22:30
+
+寄，继续打
+
+嘻嘻，打到东京时间两点都算是健康的咧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 4955#       发表于 2021-11-11 22:33
+
+只能说这把阵容选的不行 巨魔大招给波比直接废了 霞 婕拉 卡特根本都没有作用 也就波比和扎克能看点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ky·Kiske  
+##### 4956#       发表于 2021-11-11 22:36
+
+绝了，老鼠台lol一姐回归了她忠实的图奇
+
