@@ -10380,3 +10380,12 @@ syl，有没有懂哥讲讲田角这是招了哪路大神进麾下，感觉捧ki
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我现在唯一好奇的问题就是你虹是什么时候认识到KING的价值的
 
+
+
+*****
+
+####  hulaoda007  
+##### 8267#       发表于 2021-11-11 10:48
+
+嘿…<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
