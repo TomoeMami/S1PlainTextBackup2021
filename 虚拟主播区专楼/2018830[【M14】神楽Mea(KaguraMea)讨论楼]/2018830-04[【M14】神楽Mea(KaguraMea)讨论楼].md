@@ -3427,3 +3427,14 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 3天了，肥婆再不播工资发了我只能送梵高了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 4895#       发表于 2021-11-11 11:10
+
+她这些天不知道是很快乐还是很难受<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
