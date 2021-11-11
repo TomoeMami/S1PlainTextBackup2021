@@ -6388,3 +6388,21 @@ co宝：咋了？文静这俩字是沾臭狗屎还是咋地？
 
 窒息了，白白已经失踪2天了
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2193#       发表于 2021-11-11 09:48
+
+我猜今天没人直播
+
+*****
+
+####  zuperer  
+##### 2194#       发表于 2021-11-11 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53499771&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-11 09:26</a>
+紫薯是谁啊，巨巨指个路，谢谢</blockquote>
+灭霸吧。
+
