@@ -7118,3 +7118,17 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 
 楼友不会是真疯了吧
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2275#       发表于 2021-11-12 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511560&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-12 00:40</a>
+
+？？？
+
+楼友不会是真疯了吧</blockquote>
+看贴吧好像有些立刻白破防了
+
