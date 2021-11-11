@@ -9775,3 +9775,21 @@ A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者�
 还是要卡硬币吧</blockquote>
 你看看752楼的操作行不行
 
+
+
+*****
+
+####  janet_ddr  
+##### 884#       发表于 2021-11-11 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496398&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-10 22:18</a>
+
+FH4年代我一般用老黄驱动在预览模式把ui隐藏了截图，无水印画质也没区别
+
+fh5感觉有点问题，gameb ...</blockquote>
+我用XBOX BAR可以截图啊，甚至是开了HDR模式后截图还会有两张。一张正常截图，一张是带了HDR信息的，贼大。
+
+倒是视频录制有问题，用播放器看时发现只占了左上角的一块地方，其他部分是全黑的。
+
+改为用A卡自带的视频录制就没问题了。
+

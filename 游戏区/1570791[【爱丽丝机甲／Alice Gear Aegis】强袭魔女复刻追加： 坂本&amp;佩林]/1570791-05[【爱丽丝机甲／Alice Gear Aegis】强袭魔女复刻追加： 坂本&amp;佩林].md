@@ -3128,3 +3128,19 @@ an枪是没kiss
 难道一把是胶枪的an ...</blockquote>
 纳尼？我翻了下才发现还没开出枫的an枪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">万年不上枫见没KISS就根本没注意了
 
+
+
+*****
+
+####  lxh00770077  
+##### 6221#       发表于 2021-11-11 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497079&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-11-10 23:27</a>
+
+an枪是没kiss
+
+但是确实有两把，也不知道啥区别，一把叫试做初音A，一把叫试做初音A甲
+
+难道一把是胶枪的an ...</blockquote>
+一把枪，试作初音A是40级的名字，进化到50级就叫试作初音A甲了。
+
