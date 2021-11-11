@@ -19455,3 +19455,15 @@ hsst那个是被安排击坠了吗？
 应该是动画里第一次提到那个东西吧 ...</blockquote>
 重新看了一遍发现一闪而过以至于我漏了那句话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HEERO.W  
+##### 1355#       发表于 2021-11-11 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504788&amp;ptid=1860817" target="_blank">若菜 发表于 2021-11-11 15:32</a>
+
+的确感觉香月才是女主</blockquote>
+如果不强求女主必须是男主CP的话，香月算女主没啥问题
+

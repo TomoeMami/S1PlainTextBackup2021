@@ -9956,3 +9956,12 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 问一个设置问题，我是双显示器，想让游戏运行在第二个4k显示器上，但是设置里面没有找到选项，虽然可以在开游戏时候眼明手快把窗口拖到第二个显示器上全屏，但是这样一来设置里面无法识别第二个显示器的hdr，应该如何操作呢
 
+
+
+*****
+
+####  Realplayer  
+##### 901#       发表于 2021-11-11 16:27
+
+快告诉我怎么简单点刷钱，我要买疣猪<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

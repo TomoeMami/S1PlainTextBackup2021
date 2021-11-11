@@ -6652,3 +6652,97 @@ syl 原来进去可以看汤底
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2222#       发表于 2021-11-11 16:28
+
+反转了，动态禁言解除了
+
+*****
+
+####  T型钉宫病毒  
+##### 2223#       发表于 2021-11-11 16:30
+
+合着就禁言不到一天，图什么呢
+
+*****
+
+####  夜之中道崩殂  
+##### 2224#       发表于 2021-11-11 16:32
+
+估计是那边知道禁言后，鸟批发散的太哈人了吧
+
+*****
+
+####  灰色的狐狸  
+##### 2225#       发表于 2021-11-11 16:34
+
+开始猜是不是3.0了还行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  夜之中道崩殂  
+##### 2226#       发表于 2021-11-11 16:36
+
+明明上午就在回提问箱，却在b站说现在才醒，她，真的是文静吗？👀
+
+*****
+
+####  袜子  
+##### 2227#       发表于 2021-11-11 16:38
+
+提问箱里有直球回复嘛？有就说明故意的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小憨1  
+##### 2228#       发表于 2021-11-11 16:40
+
+ 本帖最后由 小憨1 于 2021-11-11 16:42 编辑 
+
+好好好好好<img src="https://p.sda1.dev/3/e4e337e89beaef8b92e10e5ce90207b7/1(2).jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2229#       发表于 2021-11-11 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505662&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-11 16:36</a>
+明明上午就在回提问箱，却在b站说现在才醒，她，真的是文静吗？👀</blockquote>
+有没有可能是午睡呢
+
+*****
+
+####  夜之中道崩殂  
+##### 2230#       发表于 2021-11-11 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505723&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-11 16:41</a>
+有没有可能是午睡呢</blockquote>
+一个猜想，维阿并没有从千鸟买过来文静，相反的，千鸟把金staff买过来了
+
+*****
+
+####  灰色的狐狸  
+##### 2231#       发表于 2021-11-11 16:44
+
+这不越来越发散了
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  小憨1  
+##### 2232#       发表于 2021-11-11 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53505744&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-11 16:42</a>
+一个猜想，维阿并没有从千鸟买过来文静，相反的，千鸟把金staff买过来了</blockquote>
+RP发动态是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

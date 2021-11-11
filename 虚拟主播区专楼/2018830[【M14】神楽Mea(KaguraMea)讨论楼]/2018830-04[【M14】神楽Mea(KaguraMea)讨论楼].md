@@ -3619,3 +3619,19 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 继 续 打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 4919#       发表于 2021-11-11 16:41
+
+参加edg的冠军之夜吧
+
+*****
+
+####  时间在我手中  
+##### 4920#       发表于 2021-11-11 16:44
+
+又赢了一把，不对劲
+
