@@ -3409,3 +3409,12 @@ banana继续绝版中
 啊，呼符抽了个伊吹UMB战队好像齐了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">太豹了！
 
+
+
+*****
+
+####  森兰丸  
+##### 84284#       发表于 2021-11-12 02:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">求求你加个技能3倍速开关吧.....真的改不掉手指会多点几下屏幕的习惯啊
+

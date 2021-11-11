@@ -10265,3 +10265,60 @@ Quinn
 
 每次玩街头赛直角弯都能飞出去三四个。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  未散琴香  
+##### 932#       发表于 2021-11-12 02:00
+
+老手难度A级拉力赛的ai也太厉害了吧，速度这么夸张。。有什么a800的能用吗？
+
+*****
+
+####  天神十三煞  
+##### 933#         楼主| 发表于 2021-11-12 02:43
+
+在线巡回赛赢了
+
+在线眼镜蛇赢了
+
+在线游乐场赢了
+
+然鹅街机依然连不上别人
+
+麻了
+
+等更新吧
+
+*****
+
+####  pl0okm  
+##### 934#       发表于 2021-11-12 04:23
+
+ 本帖最后由 pl0okm 于 2021-11-12 04:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512019&amp;ptid=2033303" target="_blank">未散琴香 发表于 2021-11-12 02:00</a>
+老手难度A级拉力赛的ai也太厉害了吧，速度这么夸张。。有什么a800的能用吗？ ...</blockquote>
+奖励喇叭那个？调校不好用就换一个拉力调校。那任务好像限制类型外还指定车辆，我整了辆800马自达不让用 用另一辆进就能选马自达了 要不就是多人合作限制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 935#       发表于 2021-11-12 04:46
+
+<blockquote>爱护动物抓根宝 发表于 2021-11-11 11:39
+前两天排了十多把就发现了，只要会直角弯刹车和外内外走线就能稳赢90％的玩家。
+
+每次玩街头赛直角 ...</blockquote>
+说明大家都是票友水平，挺好的，好过连大佬的尾气都闻不到
+
+*****
+
+####  920619lqy  
+##### 936#       发表于 2021-11-12 05:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53445492&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-6 11:07</a>
+
+xsx手柄的截图键可以用了，我也不知道是啥时候更新的。</blockquote>
+是WIN11现在这个预览版本提供了手柄驱动
+
