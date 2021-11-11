@@ -3697,3 +3697,26 @@ LOL有故事吗，有啊<img src="https://static.saraba1st.com/image/smiley/face
 
 今天状态有点好 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 4928#       发表于 2021-11-11 20:29
+
+前面有点小翻车，后面不错
+
+*****
+
+####  我单推副会长  
+##### 4929#       发表于 2021-11-11 20:34
+
+经典曲目连发
+
+*****
+
+####  时间在我手中  
+##### 4930#       发表于 2021-11-11 20:40
+
+connect疯狂拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
