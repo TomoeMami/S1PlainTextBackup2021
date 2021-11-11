@@ -9915,3 +9915,16 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 环岛赛刷了几次跑到10：53了 不知道为啥每次别人起步都比我快. 鬼影车也是. 起步的时候难道不能一直按着油门吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有钱多买小人  
+##### 897#       发表于 2021-11-11 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503340&amp;ptid=2033303" target="_blank">我又忘了用户名 发表于 2021-11-11 13:36</a>
+环岛赛刷了几次跑到10：53了 不知道为啥每次别人起步都比我快. 鬼影车也是. 起步的时候难道不能一直按着油 ...</blockquote>
+看车，按死有的容易打滑。转速拉高但不要红线。
+
+其实地平线是有launch control的。静止情况手排切倒档或2档再切回1档，拉手刹踩油门转速不会直接红线而是一点点升。然而比赛用不了。比赛开局就只能凭经验手感了。
+
