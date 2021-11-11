@@ -765,3 +765,55 @@ PC还有一个叫模拟器的大杀器呀<img src="https://static.saraba1st.com/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  hisousihou  
+##### 82#       发表于 2021-11-12 07:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">索尼主动削弱日本市场占比罢了。首发机器数量就只有上一代的三分之一。
+
+意料之中
+
+*****
+
+####  泥鳅化石  
+##### 83#       发表于 2021-11-12 07:30
+
+风水轮流转嘛，下一步是不是市场扩大黄油又可以逐渐兴起了？
+
+*****
+
+####  Hidewhite  
+##### 84#       发表于 2021-11-12 07:37
+
+看这楼PC形势大好，魔幻的让人觉得显卡现在不在溢价。
+
+*****
+
+####  qianoooo  
+##### 85#       发表于 2021-11-12 07:40
+
+pc有一个明显优势是没联机会员
+不过这个优势在本世代对ns和xbox没啥体现 会员便宜或者xgp
+真正受伤的只有ps
+
+*****
+
+####  黄字  
+##### 86#       发表于 2021-11-12 07:40
+
+<blockquote>gutzz 发表于 2021-11-12 02:59
+但是现在加钱找黄牛买的ps5和pc一个价啊</blockquote>
+ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5，以前是ps5两倍价格现在都要三倍四倍了。
+
+*****
+
+####  强尼高达  
+##### 87#       发表于 2021-11-12 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512527&amp;ptid=2037022" target="_blank">黄字 发表于 2021-11-12 07:40</a>
+ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5，以前是ps5两倍价格现在都要三倍四倍了。 ...</blockquote>
+你玩什么高级游戏啊最低配置ADL+DDR5？
+
