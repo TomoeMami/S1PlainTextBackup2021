@@ -817,3 +817,12 @@ ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5�
 ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5，以前是ps5两倍价格现在都要三倍四倍了。 ...</blockquote>
 你玩什么高级游戏啊最低配置ADL+DDR5？
 
+
+
+*****
+
+####  気の优昙华  
+##### 88#       发表于 2021-11-12 07:48
+
+PS5游戏还更贵<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
