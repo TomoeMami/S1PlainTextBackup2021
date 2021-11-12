@@ -10610,3 +10610,14 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 快十天了PC版还是糊的一笔，胜者为王没一次能打完
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 965#       发表于 2021-11-12 18:15
+
+这狮子头属实难顶，各种意外情况都有，排了五把才赢
+
+理论上还是双人组合最容易赢，野队太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3104,3 +3104,40 @@ PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高
 
 我就好奇ps5主机激活数量是多少，独占游戏销量如何<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bazingar  
+##### 286#       发表于 2021-11-12 18:10
+
+<blockquote>fukc 发表于 2021-11-12 18:00
+我就好奇ps5主机激活数量是多少，独占游戏销量如何</blockquote>
+激活量不知道，q2游戏销量，7640万份PS5、PS4平台游戏，其中第一方游戏售出760万份。
+
+去年同期8180万份PS5、PS4平台游戏，其中第一方游戏更是售出了1280。主要还是有TLOU2和对马岛等大作
+
+*****
+
+####  我不是很好  
+##### 287#       发表于 2021-11-12 18:11
+
+索尼独占都上pc了，我买ps的意义是？
+
+*****
+
+####  JudgmentEye  
+##### 288#       发表于 2021-11-12 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520692&amp;ptid=2037022" target="_blank">bazingar 发表于 2021-11-12 17:59</a>
+
+不能自己闷头瞎猜啊，有数据么？最近育碧q2财报，ps平台是第三方游戏销量的主力平台，ps&gt;pc&gt;xbox&gt;ns，PS4 ...</blockquote>
+所有买ps5的都玩育碧罐头？我身边就有对恶魂瑞奇不感冒，买来只玩ps4免费升级和ps collection的，好吧他花钱升级了抗蒙奇侠完全版，我认识的有ps5的不超过3台，开玩笑的说按比例这都30%了
+
+*****
+
+####  Aeroblast  
+##### 289#       发表于 2021-11-12 18:17
+
+不管其他人如何，我只希望PC对O确定支持好一些
+

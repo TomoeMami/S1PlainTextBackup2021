@@ -3457,3 +3457,15 @@ banana继续绝版中
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  exiaexa  
+##### 84289#       发表于 2021-11-12 18:18
+
+这次主题歌感觉又要整啥名字了
+
+希望BGM的配合度能比邪马台更上一步
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
