@@ -2802,3 +2802,26 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 刷油管看到这封面 这俩人也太像了</blockquote>
 发型和发色就让人很难分了
 
+
+
+*****
+
+####  普之舜舜  
+##### 252#       发表于 2021-11-13 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524050&amp;ptid=2036367" target="_blank">lucksolo 发表于 2021-11-12 22:37</a>
+刷油管看到这封面 这俩人也太像了</blockquote>
+真的好像呀<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 253#       发表于 2021-11-13 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">星无也是剪辑出来的，之前也是受到很多的训练才有这样的成就。
+要加把劲，最讨厌的是自己什么作品都没摸出来，还是得逼自己一把
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

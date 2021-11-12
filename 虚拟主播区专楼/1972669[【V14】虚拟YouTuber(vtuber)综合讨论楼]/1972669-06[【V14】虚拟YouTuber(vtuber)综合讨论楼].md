@@ -11176,3 +11176,41 @@ fumi的ddd果然穿模严重<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">fumi居然投了卡缪cv版旁白
 
+
+
+*****
+
+####  OldGlory  
+##### 8314#       发表于 2021-11-13 00:06
+
+今回
+
+ホロ41%：にじ29%：個人他20%：774 6%：元ドル部 4%
+
+<img src="https://img.saraba1st.com/forum/202111/13/000635jle8dixufhgdugrg.jpg" referrerpolicy="no-referrer">
+
+<strong>6Chxhbv.jpg</strong> (183.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 00:06 上传
+
+前回
+
+にじ39%：ホロ22%：ドル部15%：774 12%：名取12%
+
+<img src="https://img.saraba1st.com/forum/202111/13/000654jbyifix1f9x4lm1l.jpg" referrerpolicy="no-referrer">
+
+<strong>VIoSCYd.jpg</strong> (84.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 00:06 上传
+
+*****
+
+####  IDIDIDID  
+##### 8315#       发表于 2021-11-13 00:09
+
+不知道这些吃杏饭的画师有多少最后变成水龙敬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -10734,3 +10734,32 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">表演赛的ai也太快了吧，几乎要尽全力而且不出错才能在终点前ai防水超过去
 
+
+
+*****
+
+####  风流庵TypeC  
+##### 977#       发表于 2021-11-13 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524879&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-13 00:00</a>
+表演赛的ai也太快了吧，几乎要尽全力而且不出错才能在终点前ai防水超过去
+ ...</blockquote>
+感觉前面无论如何ai也会放水让你跟着
+
+*****
+
+####  makece  
+##### 978#       发表于 2021-11-13 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521030&amp;ptid=2033303" target="_blank">wuzhengkai 发表于 2021-11-12 18:27</a>
+
+但游乐场拿奖励不需要赢啊</blockquote>
+排进下一场领先的话对面秒退 比在同一场打完还快
+
+*****
+
+####  makece  
+##### 979#       发表于 2021-11-13 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">老手三连战我是真的跑不过，摆烂了
+

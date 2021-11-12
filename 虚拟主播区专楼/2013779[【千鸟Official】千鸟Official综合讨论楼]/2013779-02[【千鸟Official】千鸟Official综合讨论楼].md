@@ -7671,3 +7671,35 @@ syl这时候还在夹，艾白还是很敬业的啊<img src="https://static.sara
 
 看2060人气越看越少。。。小妹要不要向文静取经啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 2332#       发表于 2021-11-13 00:09
+
+ 本帖最后由 rgauss 于 2021-11-13 00:12 编辑 
+
+阿准制作人在直播吗？有人给我提了一嘴后又开始骂cj了
+
+syl 白白又说啥了，贴吧咋又在ttk
+
+*****
+
+####  rgauss  
+##### 2333#       发表于 2021-11-13 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524626&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-12 23:34</a>
+
+看2060人气越看越少。。。小妹要不要向文静取经啊？</blockquote>
+这综艺节目本来就不好看，今晚是艾瑞思和白白连线?
+
+我直说了，这俩人放不开，没节目效果没人看。
+
+*****
+
+####  gawain039  
+##### 2334#       发表于 2021-11-13 00:23
+
+盼静归<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
