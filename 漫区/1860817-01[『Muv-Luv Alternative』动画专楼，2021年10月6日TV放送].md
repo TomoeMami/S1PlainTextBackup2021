@@ -19600,3 +19600,14 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 这次的侧重点就是战术机，所以有战术机的#1和#5下半就比较好看，#2#3#4没有战术机又在赶剧情所以看着不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。想要看精华得看即将到来的政变篇。
 顺便#6虽然没有战术机但是进度放缓了观感也可以。还有#4下半对新OS的讲解部分观感也不错。
 
+
+
+*****
+
+####  freyja_wion  
+##### 1367#       发表于 2021-11-12 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

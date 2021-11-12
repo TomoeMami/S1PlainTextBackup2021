@@ -11069,3 +11069,36 @@ fumi的ddd果然穿模严重<img src="https://static.saraba1st.com/image/smiley/
 
 看郡道原神fumi一起舔还蛮少见的，郡郡对fumi的感情真的...有点痛也有点好笑
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 8309#       发表于 2021-11-12 21:39
+
+<blockquote>NIJISANJI KR   @NIJISANJI_KR
+
+🎶NIJISANJI KR 1주년 기념곡🎶
+
+오래 기다리게 해드려 정말 죄송합니다🙇‍♂️
+
+드디어 NIJISANJI KR 1주년 기념곡 'All For Now!!'가 11/18에 공개됩니다✨
+
+ ⌚프리미어 공개 일정⌚
+
+韩国旗帜: 11/18 (목) 20:00
+
+🇯🇵: 11/18 (목) 20:30</blockquote>▽링크▽
+
+韩国旗帜：[https://youtu.be/ftBTSbcoLwE](https://youtu.be/ftBTSbcoLwE)
+
+日本旗帜：[https://youtu.be/Fj-vv7Lez9A](https://youtu.be/Fj-vv7Lez9A)
+
+<img src="https://img.saraba1st.com/forum/202111/12/213810faxx9d9pabg9aanf.jpg" referrerpolicy="no-referrer">
+
+<strong>FD_P7gKagAIkBIp.jpg</strong> (238.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 21:38 上传
+
