@@ -2985,3 +2985,34 @@ PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  qratosone  
+##### 275#       发表于 2021-11-12 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511886&amp;ptid=2037022" target="_blank">DelayNoMore 发表于 2021-11-12 01:26</a>
+
+配台能玩3A的台式不比ps5贵多了？我干嘛要玩pc？？</blockquote>
+其实看一下现在的行情，淘宝日版PS5光驱版现货一般要5500元左右，然后京东可以直接买到的神船11代i5（六核）+3060的游戏本价格6899，倒也没贵太多
+
+*****
+
+####  LMBS  
+##### 276#       发表于 2021-11-12 16:49
+
+这次imas sbgi宁愿给pc版出光追也不出个PS5版
+
+*****
+
+####  火箭助推电锯  
+##### 277#       发表于 2021-11-12 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512994&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 08:51</a>
+
+当然可以，但是我用pc大部分时候要用键鼠床上就很难操作了
+
+—— 来自 realme RMX3350, Android 1 ...</blockquote>
+买个手柄就行了。主机用手柄，玩PC时也用手柄不是一样的么<img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">
+

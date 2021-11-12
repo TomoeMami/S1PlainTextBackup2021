@@ -10497,3 +10497,59 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 这代怎么周常测速摄像头这种也要限定车型</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代开始要求的，离谱。我现在做个周常直接把自己钱快花光了，又不想去挂机刷钱。
 
+
+
+*****
+
+####  Karin11974  
+##### 955#       发表于 2021-11-12 16:50
+
+找车房宝物有什么好方法，以前能无人机随便飞，这代好像就一个照片模式还飞不了太远
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  永远喜欢刘人语  
+##### 956#       发表于 2021-11-12 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511945&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-12 01:39</a>
+
+前两天排了十多把就发现了，只要会直角弯刹车和外内外走线就能稳赢90％的玩家。
+
+每次玩街头赛直角 ...</blockquote>
+什么叫外内外走线？
+
+*****
+
+####  4ckc  
+##### 957#       发表于 2021-11-12 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519722&amp;ptid=2033303" target="_blank">Karin11974 发表于 2021-11-12 16:50</a>
+找车房宝物有什么好方法，以前能无人机随便飞，这代好像就一个照片模式还飞不了太远
+
+—— 来自 S1Fun ...</blockquote>
+有无人机模式的啊，菜单的创意那里
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aaronluray  
+##### 958#       发表于 2021-11-12 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519120&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-12 16:07</a>
+
+你是不是车选错了，要A级超高性能掀背车反正就是车型要对</blockquote>
+用的贴吧的推荐车型和调教，重开游戏又换了另一个推荐的车，这轮就认了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aaronluray  
+##### 959#       发表于 2021-11-12 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519134&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-12 16:08</a>
+
+看看车型和性能等级对了没</blockquote>
+用的贴吧的推荐车型和调教，一看回复好几个都是说跑完没认的。赶快换了个推荐车，结果这次过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
