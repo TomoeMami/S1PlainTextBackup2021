@@ -10725,3 +10725,12 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 这代这傻逼AI别是playground直接照搬FM7的吧，开S2直接被生吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Totokei  
+##### 976#       发表于 2021-11-13 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">表演赛的ai也太快了吧，几乎要尽全力而且不出错才能在终点前ai防水超过去
+
