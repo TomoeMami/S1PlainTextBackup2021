@@ -10333,3 +10333,15 @@ xsx手柄的截图键可以用了，我也不知道是啥时候更新的。</blo
 问一个设置问题，我是双显示器，想让游戏运行在第二个4k显示器上，但是设置里面没有找到选项，虽然可以在开 ...</blockquote>
 win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
+
+
+*****
+
+####  lxx4869  
+##### 938#       发表于 2021-11-12 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512019&amp;ptid=2033303" target="_blank">未散琴香 发表于 2021-11-12 02:00</a>
+
+老手难度A级拉力赛的ai也太厉害了吧，速度这么夸张。。有什么a800的能用吗？ ...</blockquote>
+起跑前调车，直接碾压
+

@@ -10702,3 +10702,16 @@ roa...我的roa...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">这次哈弟自定义是bora最后一次参加了?为什么啊
 
+
+
+*****
+
+####  poipanchao  
+##### 8297#       发表于 2021-11-12 08:51
+
+bo没说理由
+乐观推测就是每周叫人太麻烦了，noah也是有一阵子不参加了
+悲观思路的话，正好也出了新衣服，联动了vspo剩下的丽和hnn，补上了梦紫等等，也就是说…
+
+vspo收个海外成员吧！
+

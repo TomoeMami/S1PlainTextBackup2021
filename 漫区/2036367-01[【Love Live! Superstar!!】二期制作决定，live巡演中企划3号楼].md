@@ -1833,3 +1833,15 @@ Payton尚未→安娜（吃瘪，假西洋人）
  9周年FES有2个版本  ...</blockquote>
 虹组有做虹团的部分，其他就不知了
 
+
+
+*****
+
+####  无聊的我  
+##### 166#       发表于 2021-11-12 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512873&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-12 08:37</a>
+
+虹组有做虹团的部分，其他就不知了</blockquote>
+这样啊  看来是各组分开做的了。  我只找到了忘年会字幕组做的缪斯部分、
+

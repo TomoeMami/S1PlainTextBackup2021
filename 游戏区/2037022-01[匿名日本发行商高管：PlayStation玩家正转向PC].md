@@ -965,3 +965,84 @@ ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5�
 我平时玩ps和ns版版纯粹是因为能在床上玩，pc我上班时候都坐8小时，回家了不想在那么坐在桌子前面了 ...</blockquote>
 pc不能躺床上玩？
 
+
+
+*****
+
+####  神道设教  
+##### 104#       发表于 2021-11-12 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511051&amp;ptid=2037022" target="_blank">JudgmentEye 发表于 2021-11-11 23:49</a>
+
+pc改按键映射或者直接互换ox对应的图标还叫事？</blockquote>
+你说你的这种方案游戏内的ui和qte能改过来吗？
+
+*****
+
+####  椎名mahuyo  
+##### 105#       发表于 2021-11-12 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512950&amp;ptid=2037022" target="_blank">404489039 发表于 2021-11-12 08:46</a>
+pc不能躺床上玩？</blockquote>
+当然可以，但是我用pc大部分时候要用键鼠床上就很难操作了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  强尼高达  
+##### 106#       发表于 2021-11-12 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512842&amp;ptid=2037022" target="_blank">黄字 发表于 2021-11-12 08:33</a>
+我就是非要对着ps5xsx配置配一台电脑现在也溢价厉害。另外我是5800x＋3080ti。但你pc接到电视机那跟三米 ...</blockquote>
+PC接到电视为什么要3米的线？你PS5需要3米线吗？
+PS5能摆在电视面前接电视，电脑为什么不行呢
+
+*****
+
+####  woshenc  
+##### 107#       发表于 2021-11-12 08:53
+
+这个倒是真的，我今年几乎没开过ps4，ps5作品太少没有想玩的
+
+未来发售的作品里大概也只有战神能够吸引我，或者出血源2
+
+*****
+
+####  升职加薪  
+##### 108#       发表于 2021-11-12 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512994&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 08:51</a>
+
+当然可以，但是我用pc大部分时候要用键鼠床上就很难操作了
+
+—— 来自 realme RMX3350, Android 1 ...</blockquote>
+那你主机可以躺着玩的PC也可以躺着玩
+
+只是PC选择更多
+
+*****
+
+####  hypnossz86  
+##### 109#       发表于 2021-11-12 08:58
+
+2022了，还沙发红酒呢
+
+*****
+
+####  空气先生  
+##### 110#       发表于 2021-11-12 09:00
+
+ 本帖最后由 空气先生 于 2021-11-12 09:02 编辑 
+
+我1050TI笔记本都用了四年了。今年照样可以玩低画质的破晓传说和仁王2（60帧）。又不是所有电脑都是显卡溢价后才买的...
+
+一年一换是给极致享受的人准备的，我就是基本不影响操作就可以继续玩下去
+
+*****
+
+####  Lisylfn  
+##### 111#       发表于 2021-11-12 09:01
+
+steam beta可以ds4玩我就开始用了, 大多数pc游戏都是固定abxy一套的且下方确定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
