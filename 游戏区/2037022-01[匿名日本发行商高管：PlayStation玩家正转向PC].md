@@ -2583,3 +2583,133 @@ Origin打到最后一关拿铁片子挡音波那块有BUG，怎么举都挡不�
 
 2021-11-12 13:05 上传
 
+
+
+*****
+
+####  ffmzsj  
+##### 244#       发表于 2021-11-12 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516769&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-12 13:05</a>
+
+这贴不是谈的日本市场吗？日本又没有主机比pc游戏贵这种问题</blockquote>
+左边的这个是实体版 你看定价是贵的
+
+*****
+
+####  saderious  
+##### 245#       发表于 2021-11-12 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516769&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-12 13:05</a>
+
+这贴不是谈的日本市场吗？日本又没有主机比pc游戏贵这种问题</blockquote>
+主要看他一堆人现身说法我以为只有主贴谈日本呢
+
+*****
+
+####  pencilnoo  
+##### 246#       发表于 2021-11-12 13:09
+
+pc是小众游戏的聚集地，但并不意味着pc是小众平台，至少在国内不是。有多少人从小就是玩pc长大的，天生就对主机有仇视。现在长大了有钱了买回来一玩什么嘛不过如此，反而加大了阵营的对立程度。日本的情况其实是传统游戏市场整体萎缩被移动游戏侵蚀，pc和ps只不过是拴在一根绳子上的蚂蚱。
+
+*****
+
+####  ffmzsj  
+##### 247#       发表于 2021-11-12 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516484&amp;ptid=2037022" target="_blank">haruhiismer 发表于 2021-11-12 12:42</a>
+
+ns和psxbox真不算一个塞到，Xbox用xpg打通pc也算半个不通，只有索是特别传统的主机 ...</blockquote>
+索尼怎么可能是特别传统的主机 你看看现在内购和买断收入比例吧 要说传统还就是ns
+
+*****
+
+####  FUZE  
+##### 248#       发表于 2021-11-12 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516769&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-12 13:05</a>
+
+这贴不是谈的日本市场吗？日本又没有主机比pc游戏贵这种问题</blockquote>
+这不是贵了1000日元么
+
+*****
+
+####  ゆい  
+##### 249#       发表于 2021-11-12 13:14
+
+ 本帖最后由 ゆい 于 2021-11-12 13:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516835&amp;ptid=2037022" target="_blank">FUZE 发表于 2021-11-12 13:11</a>
+
+这不是贵了1000日元么</blockquote>
+日亚到geo这些零售店的折扣基本上是永久的，含税7980怎么也比8700日元便宜吧？ 
+
+<img src="https://img.saraba1st.com/forum/202111/12/132214by4yuwtu1xyu6bby.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2021-11-12 142052.png</strong> (118.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/12/132216h7pkg2v79pdp3cj7.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2021-11-12 142125.png</strong> (64.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/12/132220mrgvobhvbjjiievm.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2021-11-12 142142.png</strong> (77.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 13:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/12/132220mezclzzcflygff2c.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2021-11-12 142200.png</strong> (131.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 13:22 上传
+
+*****
+
+####  魔铁潜水艇  
+##### 250#       发表于 2021-11-12 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513705&amp;ptid=2037022" target="_blank">xiang2323 发表于 2021-11-12 09:49</a>
+
+怀疑你在隐射ns</blockquote>
+NS再怎么样，任天堂自家的独占是全球独一档的水平……索尼什么臭鱼烂虾别来碰瓷……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 251#       发表于 2021-11-12 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511299&amp;ptid=2037022" target="_blank">培根芝士蛋堡XD 发表于 2021-11-12 00:12</a>
+
+pc很多日本厂商出场就自带切换确认键的，不需要用强制交换，最近的破晓传说、机战30、仁王2、mhr全部可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最近的几个日厂移上pc的，
+
+破晓传说进游戏立刻退出来倒腾手柄OX，在steam手柄配置里看到个排最上面的配置，只确认了OX兑换没仔细看就加载，进游戏了。
+
+我以为这个是玩家配置上传，工坊那类的，原来是官方的嘛 ...
+
+机战30和蓝反射倒是游戏选项里单独一条按哪个钮确认 
+
+*****
+
+####  ffmzsj  
+##### 252#       发表于 2021-11-12 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516855&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-12 13:14</a>
+
+日亚到geo这些零售店的折扣基本上是永久的，含税7980怎么也比8700日元便宜吧？ 
+
+ ...</blockquote>
+ps5数字版没这折扣的
+
