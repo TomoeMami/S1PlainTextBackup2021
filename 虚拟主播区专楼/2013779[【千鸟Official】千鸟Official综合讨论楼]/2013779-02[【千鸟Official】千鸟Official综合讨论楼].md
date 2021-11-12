@@ -7751,3 +7751,20 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 32小时不发动态，我出脑了!🤗🤗
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2341#       发表于 2021-11-13 01:33
+
+颜色透出来了🥵🥵🥵
+<img src="https://p.sda1.dev/3/3f38ec5d6f20b71c89499f8a38ddede8/-439e4f10a464a686.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 2342#       发表于 2021-11-13 01:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

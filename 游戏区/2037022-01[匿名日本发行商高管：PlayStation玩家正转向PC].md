@@ -3447,3 +3447,16 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 论坛大家总觉得“ ...</blockquote>
 STEAM DECK<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rebirth_DAN  
+##### 317#       发表于 2021-11-13 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524628&amp;ptid=2037022" target="_blank">满满一大杯 发表于 2021-11-12 23:34</a>
+本来就是PC更核心，讲得极端点，再核心点的玩家能用PC自己做MOD甚至自己编游戏自己玩。
+
+论坛大家总觉得“ ...</blockquote>
+对，论折腾和成本的话游戏用pc是远高于主机的，所以我才会认为主机更加适合相对轻度不折腾的玩家，而现在的环境给我的感觉反倒反过来了。
+
