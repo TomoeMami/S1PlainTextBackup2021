@@ -2740,3 +2740,27 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 
 妈的啊<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 247#       发表于 2021-11-12 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53522409&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-12 20:32</a>
+
+虽然之前楼里说过，不过没人接茬，但我还是想玩一次，就图一乐哈
+
+星团=马三角说</blockquote>
+星还好吧，水动画还暂时前无古人后无来者呢，事实上星12集一部分差评也算是水动画的PTSD造成的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 248#       发表于 2021-11-12 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53523708&amp;ptid=2036367" target="_blank">cxj649 发表于 2021-11-12 22:10:27</a>
+星还好吧，水动画还暂时前无古人后无来者呢，事实上星12集一部分差评也算是水动画的PTSD造成的 ...</blockquote>我也就图一乐，反正水团的成绩星怕是达不到了，水团CD总销量现在都已经超过缪斯了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

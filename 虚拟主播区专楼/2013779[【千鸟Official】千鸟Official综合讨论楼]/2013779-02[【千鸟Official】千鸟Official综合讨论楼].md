@@ -7602,3 +7602,28 @@ syl这时候还在夹，艾白还是很敬业的啊<img src="https://static.sara
 看了一晚上团播，你们又整了啥活？</blockquote>
 团播是吧，🐶🐦🗡
 
+
+
+*****
+
+####  gawain039  
+##### 2324#       发表于 2021-11-12 22:17
+
+今晚也有白白锐评2060
+
+*****
+
+####  H2Ofrozen  
+##### 2325#       发表于 2021-11-12 22:18
+
+呃呃随便看了下 又是人之初经典战役？也太无聊了点 已经鉴赏到审美疲劳了
+
+不过毕竟养认知就是会这样，没办法 人之初那么多总得有一两个魔怔，要不就你魔怔吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2326#       发表于 2021-11-12 22:20
+
+历史是个圈，我看贴吧魔怔立刻白有种当年看B综魔怔脆鲨的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -2389,3 +2389,23 @@ syl补下昨天乃宝的抖音推送，这两天疯狂沉迷地平线5，Asoul�
 
 招财卫衣<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">有人有眉目吗
 
+
+
+*****
+
+####  sanlow666  
+##### 185#         楼主| 发表于 2021-11-12 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53522185&amp;ptid=2034216" target="_blank">别叫我宅男 发表于 2021-11-12 20:18</a>
+
+招财卫衣有人有眉目吗</blockquote>
+zsbd
+
+<img src="https://img.saraba1st.com/forum/202111/12/221454gyjssggcpjgp9jsp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 22:14 上传
+
