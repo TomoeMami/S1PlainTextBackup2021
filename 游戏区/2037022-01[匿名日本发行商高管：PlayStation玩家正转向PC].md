@@ -3016,3 +3016,28 @@ PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高
 —— 来自 realme RMX3350, Android 1 ...</blockquote>
 买个手柄就行了。主机用手柄，玩PC时也用手柄不是一样的么<img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 278#       发表于 2021-11-12 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519047&amp;ptid=2037022" target="_blank">xiang2323 发表于 2021-11-12 16:01</a>
+ 以前我也觉得独居不需要大电视,后来买了台65寸电视打游戏,比显示器爽多了 ...</blockquote>
+日本人的独居面积很小的……
+
+*****
+
+####  fantuanxiaoyi  
+##### 279#       发表于 2021-11-12 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518832&amp;ptid=2037022" target="_blank">Sissii 发表于 2021-11-12 15:46</a>
+
+降价的曙光啊，国家文件也出了，ETH也宣布了年底结束显卡挖矿，为什么你觉得显卡会不降价呢？
+
+3070从8000 ...</blockquote>
+您哪来的PS5一年价格就没下来多少？年初日版6000多，上个月我4000出头就买到了。淘宝3899+200随便买。
+
+降价的3070你敢买？京东还不是十万人抢ti？
+

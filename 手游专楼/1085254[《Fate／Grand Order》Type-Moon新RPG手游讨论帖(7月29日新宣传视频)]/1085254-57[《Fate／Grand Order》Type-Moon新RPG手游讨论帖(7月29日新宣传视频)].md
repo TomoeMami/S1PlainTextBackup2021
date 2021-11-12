@@ -3418,3 +3418,28 @@ banana继续绝版中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">求求你加个技能3倍速开关吧.....真的改不掉手指会多点几下屏幕的习惯啊
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84285#       发表于 2021-11-12 17:18
+
+新咕嗒咕哒活动，时代前进到了昭和
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  yangun22  
+##### 84286#       发表于 2021-11-12 17:23
+
+昭和时间跨度太长了，其实帝都那段时间也是昭和啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84287#       发表于 2021-11-12 17:23
+
+又是咕哒咕哒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">希望十二月能来个大的
+

@@ -7454,3 +7454,19 @@ syl 我也不会，今天刚学的，我其实觉得这首歌不咋好听，但�
 
 录了半天发出来结果只有我自己的声音，问了客服是阿b的问题，wcnm<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2308#       发表于 2021-11-12 17:10
+
+就算是运营顶号RP也好，文静发个动态吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2309#       发表于 2021-11-12 17:24
+
+不发就哭丧，发了还不信，不删评就是默认，删评就是控评，真难伺候<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -10553,3 +10553,26 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 看看车型和性能等级对了没</blockquote>
 用的贴吧的推荐车型和调教，一看回复好几个都是说跑完没认的。赶快换了个推荐车，结果这次过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  没钱买手办  
+##### 960#       发表于 2021-11-12 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519730&amp;ptid=2033303" target="_blank">永远喜欢刘人语 发表于 2021-11-12 16:51</a>
+
+什么叫外内外走线？</blockquote>
+入弯时候外线进到内线，出弯时候内线走到外线，以达到最快过弯速度
+
+
+
+*****
+
+####  Vladimeow  
+##### 961#       发表于 2021-11-12 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519915&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 17:02</a>
+用的贴吧的推荐车型和调教，一看回复好几个都是说跑完没认的。赶快换了个推荐车，结果这次过了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看楼上这是每次开启游戏都会给你要求不同的车？神秘
+
