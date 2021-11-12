@@ -3156,3 +3156,12 @@ an枪是没kiss
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">啥？原来是这样么，以前进化了一把忘记了又把另一把喂到40了
 好吧233
 
+
+
+*****
+
+####  unsh  
+##### 6223#       发表于 2021-11-12 11:12
+
+阿蒂4星剧情最后对G姐说的那句谢谢，是不是包含了对以前那一枪的感谢啊
+

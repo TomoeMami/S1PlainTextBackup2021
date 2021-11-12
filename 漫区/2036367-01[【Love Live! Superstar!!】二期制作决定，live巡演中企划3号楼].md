@@ -1876,3 +1876,26 @@ Payton尚未→安娜（吃瘪，假西洋人）
 不知为何最近拉板一天一个鲤鱼帖，都是在陈述她的古参身份啊，异国打拼的艰辛啊，虽然也有杂志访谈、经纪人 ...</blockquote>
 还好吧……内容又不是假的，因疫情失业也有视频。
 
+
+
+*****
+
+####  lj205  
+##### 170#       发表于 2021-11-12 11:11
+
+LIVE才刚开始，加上她个人访谈也是刚放出来，现在刚好是热度期，自来水多点正常
+
+*****
+
+####  中野四葉  
+##### 171#       发表于 2021-11-12 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">喷了，这有什么放水军的必要吗。
+
+*****
+
+####  chenflyyy  
+##### 172#       发表于 2021-11-12 11:22
+
+虽然但是，放水军应该也不会去5ch吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

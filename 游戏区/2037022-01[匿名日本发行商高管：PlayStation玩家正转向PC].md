@@ -1837,3 +1837,141 @@ ps5玩游戏成本也就几十块，还是最新的游戏，实体盘买回来�
 
 现在智能电视/机顶盒流行，下个APP就行了，还能顺便串手机，实现显示器电视手机三屏统一（你买了Quest2 VR一体机还能4屏一统，直接躺沙发），从沙发到厕所再到床上无缝切换游戏都不用关。
 
+
+
+*****
+
+####  老黑305  
+##### 182#       发表于 2021-11-12 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53510752&amp;ptid=2037022" target="_blank">大fish小fish 发表于 2021-11-11 23:22</a>
+我就是，宁可玩键鼠也不用X确认的主机</blockquote>
+pc手柄也是x键位置确认
+
+*****
+
+####  refiver  
+##### 183#       发表于 2021-11-12 11:10
+
+你们为啥一直要炮轰PS5……
+
+我觉得不想配高配电脑的PS5也绝对够用了，不至于有厂商非要跨时代开发PS5都带不动的游戏
+
+那这两边不是各玩各的互不干扰吗
+
+我倒是建议你们继续炮轰任天堂，听说SMT5**病又犯了，读取慢掉帧什么之类的，又卖那么贵，是真的有一种被欺骗感
+
+*****
+
+####  気の优昙华  
+##### 184#       发表于 2021-11-12 11:12
+
+买PS5就是为了等FF
+
+而且老PS4也不行了 读盘太久了
+
+我现在PS5一直都在玩PS4的游戏。。
+
+新的游戏没什么想玩的还贵不少
+
+老头环直接预购PC的了
+
+*****
+
+####  冬马总冠军  
+##### 185#       发表于 2021-11-12 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514924&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-12 11:03</a>
+其实个人更喜欢串流方案。以前还买过steam那个串流盒。
+
+现在智能电视/机顶盒流行，下个APP就行了，还能顺 ...</blockquote>
+可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家里网弄好了研究一下串流
+
+*****
+
+####  大fish小fish  
+##### 186#       发表于 2021-11-12 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514999&amp;ptid=2037022" target="_blank">老黑305 发表于 2021-11-12 11:08</a>
+pc手柄也是x键位置确认</blockquote>
+你在仔细看看我发的吧，没看懂你想说什么
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 187#       发表于 2021-11-12 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514681&amp;ptid=2037022" target="_blank">DelayNoMore 发表于 2021-11-12 10:48</a>
+所谓联机付费就是psn+？那咋不说每月都送游戏呢，也不缺大作，而且主机的联机环境是外挂遍地走的pc能比的 ...</blockquote>
+epic也免费送啊，说的好像只有索尼送游戏一样，而且最近索尼送的都是些啥<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老黑305  
+##### 188#       发表于 2021-11-12 11:14
+
+如今显卡价格依然很高的状况下，pc居然还有上涨势头，外国的ps5是不是也依然很贵？
+
+*****
+
+####  萱时令  
+##### 189#       发表于 2021-11-12 11:16
+
+锁算力的卡在降 弄台3060ti的整机也就比ps5贵出一台ns啊
+
+*****
+
+####  满满一大杯  
+##### 190#       发表于 2021-11-12 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515093&amp;ptid=2037022" target="_blank">冬马总冠军 发表于 2021-11-12 11:14</a>
+可以家里网弄好了研究一下串流</blockquote>
+说到串流，不知道“毫米波投屏”的效果怎么样。
+
+*****
+
+####  EigenVesper  
+##### 191#       发表于 2021-11-12 11:22
+
+还是主机的软件阵容越来越没优势了，要还跟ps3及之前那样哪还有这么多讨论
+
+*****
+
+####  ushercat  
+##### 192#       发表于 2021-11-12 11:24
+
+啊这。。。凭良心说。。。同性能下。。。ps5什么价格。。。pc什么价格。。。高管也是张口就来吧~~还是现在大家都不差钱了？
+
+*****
+
+####  ffmzsj  
+##### 193#       发表于 2021-11-12 11:26
+
+<blockquote>老黑305 发表于 2021-11-12 11:08
+pc手柄也是x键位置确认</blockquote>
+那是微软的a键确认 微软也没半中间改啊
+
+*****
+
+####  浅色轮回  
+##### 194#       发表于 2021-11-12 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514681&amp;ptid=2037022" target="_blank">DelayNoMore 发表于 2021-11-12 10:48</a>
+
+所谓联机付费就是psn+？那咋不说每月都送游戏呢，也不缺大作，而且主机的联机环境是外挂遍地走的pc能比的 ...</blockquote>
+不止epic送，某宝每月2元亚马逊送的3a大作，steam有时候也送，gog也送，第三方的steamkey那就更多了，这些上面只要你在我平台买游戏，送就完事了，psn都还要钱，送的有pc多吗？
+
+*****
+
+####  Chia  
+##### 195#       发表于 2021-11-12 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515249&amp;ptid=2037022" target="_blank">EigenVesper 发表于 2021-11-12 11:22</a>
+
+还是主机的软件阵容越来越没优势了，要还跟ps3及之前那样哪还有这么多讨论 ...</blockquote>
+“越来越没优势”已经是结果了，经济基础决定上层建筑
+
+主机没有在10~15年造血出一批独立作者和文化，也没有在15~20年挡住服务化大潮。
+
+后面只能抱着价格优势随波逐流了。
+

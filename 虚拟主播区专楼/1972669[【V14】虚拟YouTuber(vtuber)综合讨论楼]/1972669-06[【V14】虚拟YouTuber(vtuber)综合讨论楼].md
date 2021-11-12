@@ -10715,3 +10715,223 @@ bo没说理由
 
 vspo收个海外成员吧！
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 8298#       发表于 2021-11-12 11:18
+
+<blockquote>VERSEⁿ | 初配信11月19日19:00 JST
+
+@verse_n_project
+
+様々な物語を巡るVTuberプロジェクト「VERSEⁿ」
+
+その最初のコンテンツとなるPV「Episodeⁿ | 空想」が公開
+
+ - - 
+
+我々の世界で蘇る5人の少女たちの記憶。
+
+リンへと続く、欠けた記憶の先に待つ真実。
+
+そこへ辿り着くために、
+
+彼女たちは誰かになにかを伝え始める。
+
+#VERSE_n</blockquote>
+<strong>公式WEBサイト：[https://verse-n.com](https://verse-n.com)
+
+公式Twitterアカウント：[https://twitter.com/verse_n_project](https://twitter.com/verse_n_project)</strong>
+
+（作中登場順）
+
+<img src="https://img.saraba1st.com/forum/202111/12/111554ukn5lkuig7nf77ud.png" referrerpolicy="no-referrer">
+
+<strong>character_img_nanamona01.png</strong> (136.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 11:15 上传
+
+<strong>マル・ナナモナ</strong>
+
+YouTubeチャンネル：[https://www.youtube.com/channel/UCOg0...](https://www.youtube.com/channel/UCOg0...)
+
+Twitterアカウント：[https://twitter.com/nanamona_mr](https://twitter.com/nanamona_mr)
+
+初配信予定日：2021年11月19日(金) 21:00～
+
+<img src="https://img.saraba1st.com/forum/202111/12/111610iqoxnh05vee5rpce.png" referrerpolicy="no-referrer">
+
+<strong>character6_img.png</strong> (147.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 11:16 上传
+
+<strong>ヒトシロ・イツキ</strong>
+
+YouTubeチャンネル：[https://www.youtube.com/channel/UCi3a...](https://www.youtube.com/channel/UCi3a...)
+
+Twitterアカウント：[https://twitter.com/itsuki_htsr](https://twitter.com/itsuki_htsr)
+
+初配信予定日：2021年11月19日(金) 22:00～
+
+<img src="https://img.saraba1st.com/forum/202111/12/111616xyygn2d3x28dasgx.png" referrerpolicy="no-referrer">
+
+<strong>character_img_uno01.png</strong> (219.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 11:16 上传
+
+<strong>カガセ・ウノ</strong>
+
+YouTubeチャンネル：[https://www.youtube.com/channel/UCLfA...](https://www.youtube.com/channel/UCLfA...)
+
+Twitterアカウント：[https://twitter.com/uno_kgs](https://twitter.com/uno_kgs)
+
+初配信予定日：2021年11月19日(金) 19:30～
+
+<img src="https://img.saraba1st.com/forum/202111/12/111629ws854bjypi6jsai3.png" referrerpolicy="no-referrer">
+
+<strong>character_img_sera01.png</strong> (152.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 11:16 上传
+
+<strong>アルバ・セラ</strong>
+
+YouTubeチャンネル：[https://www.youtube.com/channel/UCvXs...](https://www.youtube.com/channel/UCvXs...)
+
+Twitterアカウント：[https://twitter.com/sera_alb](https://twitter.com/sera_alb)
+
+初配信予定日：2021年11月19日(金) 20:30～
+
+<img src="https://img.saraba1st.com/forum/202111/12/111639tszuuhexs0f18tfz.png" referrerpolicy="no-referrer">
+
+<strong>character3_img.png</strong> (155.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 11:16 上传
+
+<strong>カシ・オトハ</strong>
+
+YouTubeチャンネル：[https://www.youtube.com/channel/UCYcn...](https://www.youtube.com/channel/UCYcn...)
+
+Twitterアカウント：[https://twitter.com/otoha_ks](https://twitter.com/otoha_ks)
+
+初配信予定日：2021年11月19日(金) 19:00～
+
+ーーー
+
+“世界をつなぐ少女たちの物語。”
+
+リンは、いつものように空想に耽っていた。
+
+白昼夢としてまぶたに浮かぶ千態万状な世界の中には、私たちが住むこの現実世界に近いものもあれば、 常識を逸した超自然的世界もあった。リンはそのすべての世界で生きていて、 それぞれの世界には親友と呼べる5人の少女が存在した。
+
+ある日、なにかに引きずられるようにゆるやかに崩壊していくそれぞれの世界は、お互いに影響を与え、
+
+─── やがて1つの世界が崩壊した。
+
+そして、我々の世界で蘇る5人の少女たちの記憶。
+
+リンへと続く、欠けた記憶の先に待つ真実。
+
+そこへ辿り着くために、
+
+少女たちは誰かになにかを伝え始める。
+
+ーーー
+
+監督：神谷雄貴（maxilla）
+
+キャラクターデザイン監修・作画監督：堀口悠紀子
+
+キャラクターデザイン・絵コンテ・演出：神谷雄貴（maxilla）
+
+原画：小島崇史 / 新井博慧 / 榎戸駿 　　　
+
+　　　齊田博之 / みやち / 諸冨 直也
+
+　　　大久保俊介 / シュウ浩嵩 / 吉邉 尚希 
+
+　　　田中宏紀 / 堀口悠紀子
+
+動画検査：川本由記子
+
+動画：石山大 / 川本由記子 / 橋本里美 
+
+　　　森岡庸 / 永田明日香 / 木舩萌々子
+
+　　　川西佳菜美 / 伊藤里穂 / 菊池遼馬
+
+　　　OLM / スタジオりぶら / R.I.C
+
+　　　OLM Asia / スタジオエル / 神龍
+
+　　　暁・火鳥動画
+
+色彩設計・色指定・検査：吉田小百合
+
+仕上：森脇弘史 / 木下美佳 / 沼田千晶 
+
+　　　杉田紋伽 / 千葉涼香 / 砂川渚 
+
+　　　藤澤亮子
+
+ 　　　スタジオエル / 神龍 / R.I.C
+
+ 　　　暁・火鳥動画
+
+美術監督：板倉佐賀子
+
+美術：アニメ工房 婆娑羅
+
+　　　板倉佐賀子 / 尾崎濯 / 佐藤真琴
+
+撮影監督：神谷雄貴（maxilla）
+
+撮影・モーショングラフィックス：花坂大気（SIGNIF） / 山口駿
+
+撮影協力：T2studio
+
+　　　　　原田敦司 / 三田貴之 / 高橋秀地
+
+3Dアニメーション：花坂大気（SIGNIF）
+
+音楽プロデューサー：鈴木聖也（maxilla）
+
+作編曲：長尾洋輔
+
+ギター：髙橋良和（RENA）
+
+ドラム：津田耕治（theorem）
+
+レコーディングエンジニア：後藤俊
+
+ミックスエンジニア：熊手徹（BEAR HAND SOUND Inc.）
+
+音響効果 サウンドデザイン：恵比須弘和（エヌ・クリエイション）
+
+音響効果 エンジニア：藤田昌宏（エヌ・クリエイション）
+
+音響制作協力：あさのかつひこ（Drive inc.） / 徳嵩由恵（Drive inc.）
+
+プロデューサー：細井駿介（ENISHIYA） / 田中大地（maxilla）
+
+アニメーションプロデューサー：五十嵐慶（ENISHIYA）
+
+担当制作：小林正幸（ENISHIYA）
+
+企画・プロデュース：平嶋慎太郎（maxilla）
+
+アニメーション制作：ENISHIYA
+
+制作：maxilla
+
