@@ -3606,3 +3606,39 @@ valve也不可能强制要求用这个api，但另一方面，steam这好歹还�
 STEAM DECK</blockquote>
 还是那句话，等销量过千万再说。以及以我多年使用Linux桌面端发行版的经验，我对SteamOS3.0谨慎悲观。
 
+
+
+*****
+
+####  920619lqy  
+##### 330#       发表于 2021-11-13 06:50
+
+<blockquote>满满一大杯 发表于 2021-11-12 16:39
+还是那句话，等销量过千万再说。以及以我多年使用Linux桌面端发行版的经验，我对SteamOS3.0谨慎悲观。 ...</blockquote>
+只要用户老实一点只用steam暴露给用户的GUI那我觉得没什么问题。索任的OS应该都是freebsd魔改的，他们也不希望用户有能力去触碰命令行。不过现在多的是没有使用能力但又特别喜欢按照不知道转了多少手的过期教程搞翻车的初级用户。
+
+
+
+*****
+
+####  传说中的天才  
+##### 331#       发表于 2021-11-13 06:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526192&amp;ptid=2037022" target="_blank">4869Bi 发表于 2021-11-13 06:38</a>
+先证明一下“Linux不折腾”吧</blockquote>
+就和用LAMP搭建个网站一样，有人把东西都整合好了用户就可以一键使用，Steam在Windows已经解决了一键玩游戏的问题，现在在推进Linux罢了，你要说现在还不够方便我可以理解，但是相比5年之前可行和不可行已经有了突飞猛进的发展。
+
+说白了包括Steam Deck，Valve都明说了是Future Proof的工作，我也觉得对未来意见不同的人没啥可互相说服的，时间会给出答案。
+
+现在反正Sony游戏上PC了我就很满意了，至于未来会怎么样，只能说拭目以待。
+
+*****
+
+####  满满一大杯  
+##### 332#       发表于 2021-11-13 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526208&amp;ptid=2037022" target="_blank">920619lqy 发表于 2021-11-13 06:50</a>
+
+只要用户老实一点只用steam暴露给用户的GUI那我觉得没什么问题。索任的OS应该都是freebsd魔改的，他们也 ...</blockquote>
+我觉得问题在你说的这个之前，A/N两家的驱动、X window都是目前使用上的大扣分项。不过有问题不是做不好是没市场所以没人做，希望SteamOS3.0能带来点惊喜吧。
+

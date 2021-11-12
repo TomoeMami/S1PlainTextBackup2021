@@ -23608,3 +23608,14 @@ mumei在哪个时区啊。。</blockquote>
 
 推测应该是美南，德州或者加州这类西班牙语盛行的地方（西七区、西八区）
 
+
+
+*****
+
+####  smy20011  
+##### 1468#         楼主| 发表于 2021-11-13 06:42
+
+[https://www.youtube.com/watch?v=h5QspNrKphM](https://www.youtube.com/watch?v=h5QspNrKphM)
+
+死神又上trash taste了！
+
