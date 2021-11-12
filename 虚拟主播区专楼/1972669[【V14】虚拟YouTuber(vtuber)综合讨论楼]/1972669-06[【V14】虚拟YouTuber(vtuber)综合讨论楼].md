@@ -10975,3 +10975,33 @@ https://www.internationalsaimoe.com/voting
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么觉得这五个人都有一股粥味儿
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8303#       发表于 2021-11-12 15:11
+
+ 本帖最后由 alcoholic1000 于 2021-11-12 15:17 编辑 
+
+渋谷ハジメ応援スレ
+
+<img src="https://img.saraba1st.com/forum/202111/12/151104kdyybmwdhbp9ayby.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>渋谷ハジメ 3Dお披露目配信決定！！.jpeg</strong> (354.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 15:11 上传
+
+【渋谷ハジメ 3Dお披露目配信決定！！】
+
+渋谷ハジメ(@sibuya_hajime)の、3Dお披露目配信日が決定いたしました！
+
+≪ 11/19(金) 21:00 ≫ 配信開始！！
+
+待機場所はこちら▽
+[https://youtu.be/jGb6iAEA914](https://youtu.be/jGb6iAEA914)
+
+お見逃しなく！
+

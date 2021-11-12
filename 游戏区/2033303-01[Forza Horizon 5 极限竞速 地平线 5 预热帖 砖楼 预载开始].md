@@ -10438,3 +10438,12 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 我倒是打线上没啥问题了，但是看别人还是有疯狂掉的。刚刚打的游乐场才打到第二轮对方就掉了两个，最后干脆变成了对方一个对我们四个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，于是大家集体划起了水
 
+
+
+*****
+
+####  aaronluray  
+##### 949#       发表于 2021-11-12 15:04
+
+季节锦标赛，我很确定我跑的三场是对的，也有最后60第一的排名，结果直接判定没做，啥都没了，太离谱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
