@@ -10621,3 +10621,15 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 理论上还是双人组合最容易赢，野队太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 966#       发表于 2021-11-12 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519425&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-12 16:29</a>
+
+游乐场不一定是掉的可能是主动退的，4代那会落后队伍高速退完就很频繁了，大家都省事 ...</blockquote>
+但游乐场拿奖励不需要赢啊
+

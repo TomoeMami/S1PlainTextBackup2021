@@ -3141,3 +3141,95 @@ PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高
 
 不管其他人如何，我只希望PC对O确定支持好一些
 
+
+
+*****
+
+####  Sissii  
+##### 290#       发表于 2021-11-12 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520249&amp;ptid=2037022" target="_blank">fantuanxiaoyi 发表于 2021-11-12 17:26</a>
+
+您哪来的PS5一年价格就没下来多少？年初日版6000多，上个月我4000出头就买到了。淘宝3899+200随便买。
+
+降 ...</blockquote>
+淘宝3899+200随便买？数字版？那我佩服你
+
+*****
+
+####  pencilnoo  
+##### 291#       发表于 2021-11-12 18:31
+
+子非鱼，安知鱼之乐？三巨头有谁真把大陆当成重要市场的？你销量占全球几成啊就在这儿指点江山。还你身边的人。为什么你们总觉得世界都是中国这样的？中国的特殊国情还没想明白吗？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 夏延|-1|三回啊三回|
+
+查看全部评分
+
+*****
+
+####  JudgmentEye  
+##### 292#       发表于 2021-11-12 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520249&amp;ptid=2037022" target="_blank">fantuanxiaoyi 发表于 2021-11-12 17:26</a>
+
+您哪来的PS5一年价格就没下来多少？年初日版6000多，上个月我4000出头就买到了。淘宝3899+200随便买。
+
+降 ...</blockquote>
+光驱版+200？我+500给我来1000台
+
+*****
+
+####  s1娘铁粉  
+##### 293#       发表于 2021-11-12 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511575&amp;ptid=2037022" target="_blank">不见不散 发表于 2021-11-12 00:42</a>
+忠实的索尼玩家真的要投奔pc阵营吗？
+    X           O</blockquote>
+这是否有点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fantuanxiaoyi  
+##### 294#       发表于 2021-11-12 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521110&amp;ptid=2037022" target="_blank">JudgmentEye 发表于 2021-11-12 18:34</a>
+
+光驱版+200？我+500给我来1000台</blockquote>
+打开咸鱼自己搜
+
+*****
+
+####  s1娘铁粉  
+##### 295#       发表于 2021-11-12 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514924&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-12 11:03</a>
+其实个人更喜欢串流方案。
+
+以前还买过steam那个串流盒，现在智能电视/机顶盒流行，且往往跟电脑都在同一个 ...</blockquote>
+这个带鱼屏我怕掉下来...
+
+*****
+
+####  hentianwuya  
+##### 296#       发表于 2021-11-12 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520692&amp;ptid=2037022" target="_blank">bazingar 发表于 2021-11-12 17:59</a>
+ 不能自己闷头瞎猜啊，有数据么？最近育碧q2财报，ps平台是第三方游戏销量的主力平台，ps&gt;pc&gt;xbox&gt;ns，PS4/ ...</blockquote>
+WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  s1娘铁粉  
+##### 297#       发表于 2021-11-12 18:46
+
+有索索不高兴了
+

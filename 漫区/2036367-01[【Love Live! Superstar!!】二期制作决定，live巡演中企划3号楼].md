@@ -2428,3 +2428,78 @@ u1s1，不先看完原作也没法完全get到星无佬的设计到底精妙在�
 
 你们说的也太夸张了，等下新人都要被你们吓跑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  离心  
+##### 221#       发表于 2021-11-12 18:29
+
+星团动画是新人没接触过缪水直接看星没什么大问题只有恋回和最终话有点瑕疵。但看了缪水观感就不是差了一星半点了
+
+*****
+
+####  kata魂  
+##### 222#       发表于 2021-11-12 18:38
+
+硬要看过话7、8和12以后，剩下的问题都不是问题
+
+星团立意还挺新颖的
+
+一个漂洋过海追求偶像的
+
+一个有着心里阴影在朋友们帮助下克服的
+
+一个从小被人忽视没有主角命的
+
+一个小时候被欺凌的
+
+一个为了守护母亲留下学校的
+
+敌团是师友设定，学生是全校支持，看着多好啊
+
+但tm评分就是历代最低
+
+*****
+
+####  player3960  
+##### 223#       发表于 2021-11-12 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521148&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-12 18:38:20</a>
+硬要看过话7、8和12以后，剩下的问题都不是问题
+
+星团立意还挺新颖的
+
+一个漂洋过海追求偶像的
+
+一个有着心里 ...</blockquote>比水二期高啦
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 224#       发表于 2021-11-12 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521148&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-12 18:38</a>
+硬要看过话7、8和12以后，剩下的问题都不是问题
+
+星团立意还挺新颖的
+
+一个漂洋过海追求偶像的</blockquote>
+历代最低不至于，大部分地方的评分都比水高的，水我是没能看完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 225#       发表于 2021-11-12 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521160&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-12 18:39</a>
+
+比水二期高啦
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+水二期最主要的是那事故，鹿死谁手还真不一定
+
+迷惑归迷惑，难道星团不迷惑吗
+
