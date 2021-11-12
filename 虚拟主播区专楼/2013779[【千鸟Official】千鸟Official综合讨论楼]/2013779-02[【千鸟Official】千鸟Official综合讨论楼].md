@@ -7636,3 +7636,29 @@ syl这时候还在夹，艾白还是很敬业的啊<img src="https://static.sara
 
 魔男主动找画面笑嘻了，不懂做事留一线，给自己一个台阶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gawain039  
+##### 2328#       发表于 2021-11-12 22:44
+
+楼友未卜先知？
+
+*****
+
+####  tankai  
+##### 2329#       发表于 2021-11-12 22:59
+
+贴吧委婉劝过看管人莫入脑，没人鸟啊，那就没办法了。
+
+*****
+
+####  伞沢直美  
+##### 2330#       发表于 2021-11-12 23:04
+
+不戴3d眼镜怎么看imax？
+
+不入脑怎么看管人？
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+

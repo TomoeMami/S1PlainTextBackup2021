@@ -11158,3 +11158,21 @@ fumi的ddd果然穿模严重<img src="https://static.saraba1st.com/image/smiley/
 
 真红火啊，2434。
 
+
+
+*****
+
+####  死体残留  
+##### 8312#       发表于 2021-11-12 22:41
+
+ 本帖最后由 死体残留 于 2021-11-12 22:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了下之前和葛叶联动个人势驱魔师居然上RIG杯打比赛了，看了下已经银盾而且还上过好多熟人的自定义杯了 这新人有点厉害啊，有人看过么
+
+*****
+
+####  winda  
+##### 8313#       发表于 2021-11-12 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">fumi居然投了卡缪cv版旁白
+
