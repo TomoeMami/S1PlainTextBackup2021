@@ -10476,3 +10476,24 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 这代怎么周常测速摄像头这种也要限定车型<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  makece  
+##### 953#       发表于 2021-11-12 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517767&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 14:29</a>
+
+我倒是打线上没啥问题了，但是看别人还是有疯狂掉的。刚刚打的游乐场才打到第二轮对方就掉了两个，最后干脆 ...</blockquote>
+游乐场不一定是掉的可能是主动退的，4代那会落后队伍高速退完就很频繁了，大家都省事
+
+*****
+
+####  Vladimeow  
+##### 954#       发表于 2021-11-12 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519358&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-12 16:25</a>
+这代怎么周常测速摄像头这种也要限定车型</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代开始要求的，离谱。我现在做个周常直接把自己钱快花光了，又不想去挂机刷钱。
+

@@ -2380,3 +2380,33 @@ u1s1，你们不用那么大反应吧，星团动画真正称得上拉胯的也�
 
 再喜欢这二创也不能睁眼说瞎话吧
 
+
+
+*****
+
+####  cybernetics31  
+##### 216#       发表于 2021-11-12 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cos基本都是高p，不奇怪了
+
+*****
+
+####  qratosone  
+##### 217#       发表于 2021-11-12 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519301&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-11-12 16:21</a>
+
+不是，唐可可的诱惑讨论度远高于本家动画都来了
+
+再喜欢这二创也不能睁眼说瞎话吧 ...</blockquote>
+u1s1，不先看完原作也没法完全get到星无佬的设计到底精妙在何处
+
+*****
+
+####  lj205  
+##### 218#       发表于 2021-11-12 16:43
+
+还是建议看完了，这种一次性看完跟我们那时候一周等一集观感肯定不一样
+
+可以参考一下
+

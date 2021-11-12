@@ -4115,3 +4115,41 @@ T进人堆里竟然溜了
 
 晚睡+早起=摸
 
+
+
+*****
+
+####  aisakahammer  
+##### 4978#       发表于 2021-11-12 16:32
+
+ 她老鼠就打LOL和瓦罗兰么
+
+*****
+
+####  时间在我手中  
+##### 4979#       发表于 2021-11-12 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519470&amp;ptid=2018830" target="_blank">aisakahammer 发表于 2021-11-12 16:32</a>
+
+她老鼠就打LOL和瓦罗兰么</blockquote>
+目前只打过这两个，舒适区多半是出不来的
+
+*****
+
+####  2014720  
+##### 4980#       发表于 2021-11-12 16:37
+
+昨天打那么多人都抽过去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  aisakahammer  
+##### 4981#       发表于 2021-11-12 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519479&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-11-12 16:33</a>
+
+目前只打过这两个，舒适区多半是出不来的</blockquote>
+= =这2个不太想看 感觉没错过自己想看 谢谢回答。
+
