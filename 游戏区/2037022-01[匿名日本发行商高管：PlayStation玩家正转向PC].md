@@ -1360,3 +1360,114 @@ PC接到电视为什么要3米的线？你PS5需要3米线吗？
 PS5能摆在电视面前接电视，电脑为什么不行呢 ...</blockquote>
 你有多大的房间在电脑桌放c1这样尺寸的显示器？当然你要和我一样电视机下面一台电脑专门玩游戏办公家用电脑再放电脑桌也无所谓。抬杠谁不会呢？
 
+
+
+*****
+
+####  xiang2323  
+##### 142#       发表于 2021-11-12 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512456&amp;ptid=2037022" target="_blank">satan023 发表于 2021-11-12 07:16</a>
+我pc接a91j 4k 120hz 开steam大屏模式不比你主机香？？</blockquote>
+pc现在hdr效果好吗
+
+*****
+
+####  masterzx  
+##### 143#       发表于 2021-11-12 09:48
+
+泥潭不管是支持还是反对pc的，似乎都持有一种pcmr思想，觉得臭打游戏整天琢磨着怎么把游戏运行得好运行得爽
+
+开玩笑，臭打游戏的是窝在10平米蜗居里拿着个三四千块破笔记本顶着个480p20fps都不到帧数凑合着玩各种0元版“3A大作”，还配台式呢，显卡型号都说不出来几个；还家用机呢，白送都买不起游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 别问我为什么知道
+
+任天堂？那是发达国家的高贵玩家吃腻了大鱼大肉之后才玩的东西（
+
+从指点业界江山的角度，那么这群盗版玩家恐怕也不会受厂商待见。但支持pc的论点本来就是基于所谓的省钱，站厂商角度反驳的话就是鸡同鸭讲了。这叫是现在手机普及率远远超过pc甚至还挤占了pc的使用时间，pc党实打实地高贵了起来，所以这样的人群相对以前少很多了——其实也没少，只是变成了“这是什么游戏”“哪里下载”“手机能玩吗”
+
+960m玩地平线5
+[https://www.youtube.com/watch?v=SccPklsu0p8](https://www.youtube.com/watch?v=SccPklsu0p8)
+
+*****
+
+####  404489039  
+##### 144#       发表于 2021-11-12 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513570&amp;ptid=2037022" target="_blank">暴走机关车 发表于 2021-11-12 09:42</a>
+为什么谈到主机就是客厅沙发？你们房间都没有电视的吗？</blockquote>
+他们都是一个人住大house的人上人，玩游戏都是躺客厅沙发配红酒
+正常玩游戏在客厅的才是少数吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiang2323  
+##### 145#       发表于 2021-11-12 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511669&amp;ptid=2037022" target="_blank">魔铁潜水艇 发表于 2021-11-12 00:54</a>
+只要有人买过MHW的PC和PS版本，体验一下两者的联机体验区别，就会知道PS简直就是一坨屎………………
+
+什么年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">怀疑你在隐射ns
+
+*****
+
+####  黄字  
+##### 146#       发表于 2021-11-12 09:50
+
+现在坐在电脑桌前玩或者躺床沙发玩，跟用电脑还是主机根本是两码事，事实上你不管怎么搞，至少国内现在差不多效果就是主机/电脑连电视机更便宜点。非要说1066588也能用，还1070m，您这笔记本或者电脑装机价格当年也是三倍以上ps4x1啊？
+
+*****
+
+####  janet_ddr  
+##### 147#       发表于 2021-11-12 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513250&amp;ptid=2037022" target="_blank">mirrorside 发表于 2021-11-12 09:17</a>
+
+现在pc真就只剩下外挂这一影响体验的因素了，话说反外挂真就一点办法都没嘛
+
+我还记得以前win10 uwp刚出时 ...</blockquote>
+命运2看来真是个dead game，我自从转到PC上也玩了几百小时PVP了，碰到挂的次数还真是屈指可数。
+
+不过厂商至少会处理，单单新闻就看到两三次棒鸡起诉外挂网站或新上线反作弊系统了。
+
+反而是主机上的体验很屎，从当年命运1时就有在主机上碰到过外挂，用lag switch的一个惯犯（我有碰到过几次）。我朋友甚至都录了视频去官方论坛上举报，反而被删贴的。（老外举报同样是被删了）
+
+当然主机这边的lag switch是需要硬件的，不像PC上只要个软件就行，所以碰到挂的数量依然还是PC上多。但至少不会影响到我的游玩体验，PC这边感觉就是一两个月会碰到几个的程度吧。
+
+*****
+
+####  tlozfan  
+##### 148#       发表于 2021-11-12 10:00
+
+日本这个pc荒漠也该被开拓成新的绿洲了，越来越多的日厂第三方pc同步首发就是好事。
+
+*****
+
+####  丹德里恩  
+##### 149#       发表于 2021-11-12 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">steam主流依旧是1060，谁搁这一年换一个台式啊
+
+*****
+
+####  ajunsama  
+##### 150#       发表于 2021-11-12 10:02
+
+主要应该还是机器买不到+没什么独占
+
+买不到的那群阿宅再被管人蚀脑跟风搞了pc玩apex、valorant，后来发现可以不用买ps5了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  强尼高达  
+##### 151#       发表于 2021-11-12 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513613&amp;ptid=2037022" target="_blank">黄字 发表于 2021-11-12 09:44</a>
+
+你有多大的房间在电脑桌放c1这样尺寸的显示器？当然你要和我一样电视机下面一台电脑专门玩游戏办公家用电 ...</blockquote>
+
+真奇怪，电视面前既然能摆PS5，为什么不能摆电脑呢
+
+你自己有高配游戏电脑也有不止一台电脑，反而不能接受别人在电视面前专门摆一台用来玩游戏的电脑，说了就是抬杠？
+

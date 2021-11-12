@@ -7301,3 +7301,26 @@ gn真下头.jpg
 —— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.0.4-play</blockquote>
 [贴吧](http://tieba.baidu.com/p/7609324724?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.13.2.0&amp;st=1636679504&amp;unique=ECDE813D4A06601DDF10F74D2C179AF5)
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2293#       发表于 2021-11-12 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513194&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-12 09:12</a>
+贴吧</blockquote>
+真实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  灰色的狐狸  
+##### 2294#       发表于 2021-11-12 09:57
+
+白白那个鼠标垫昨晚看到了
+只能说gn收收味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
