@@ -10957,3 +10957,12 @@ https://www.internationalsaimoe.com/voting
 我草，世萌还有VTB是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 隔壁这个都要隐藏啊。<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 8301#       发表于 2021-11-12 12:42
+
+这白毛有股粥味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

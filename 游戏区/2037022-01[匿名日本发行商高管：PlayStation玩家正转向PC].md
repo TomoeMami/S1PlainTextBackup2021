@@ -2434,3 +2434,152 @@ pc和主机之间的大战，和pc性能比主机强，价格优势之类的，�
 那就看排不排除ns了，我觉得这个话题下应该排除</blockquote>
 ns和psxbox真不算一个塞到，Xbox用xpg打通pc也算半个不通，只有索是特别传统的主机
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 234#       发表于 2021-11-12 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516311&amp;ptid=2037022" target="_blank">Renkonsai 发表于 2021-11-12 12:31</a>
+用游戏机就是为了不用学你们吵这么多楼研究电脑方案的君臣佐使阴阳五行知识啊…
+
+我们是打游戏的， ...</blockquote>
+这也算刻板印象了，有steam之后现在pc早就不需要整配置了，最近地平线5那个渣优化也是win store整出来的烂活
+
+*****
+
+####  Renkonsai  
+##### 235#       发表于 2021-11-12 12:51
+
+ 本帖最后由 Renkonsai 于 2021-11-12 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516543&amp;ptid=2037022" target="_blank">培根芝士蛋堡XD 发表于 2021-11-12 12:46</a>
+
+这也算刻板印象了，有steam之后现在pc早就不需要整配置了，最近地平线5那个渣优化也是win store整出来的 ...</blockquote>
+需要多了解一个Winstore整烂活已经是额外成本了…
+
+比如SMT5掉帧，就俩选项，人体堂SB，或者ATLUSSB…
+
+我们主机农民连AMD和NV的差别都不想知道，就问插电能动不能动，不能动是坏的…
+
+跟留学生朋友之前联它拿了二
+
+一开始用Steam同步投屏，凑合投的GBA画质+严重延迟玩的，后来受不了换的Origin
+
+Origin打到最后一关拿铁片子挡音波那块有BUG，怎么举都挡不住，试了一晚上费劲巴拉换回Steam投屏把那块过了，接着换回Origin…
+
+这个就算是非常多余的成本…
+
+*****
+
+####  dumplingpro  
+##### 236#       发表于 2021-11-12 12:52
+
+ 本帖最后由 dumplingpro 于 2021-11-12 13:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516598&amp;ptid=2037022" target="_blank">Renkonsai 发表于 2021-11-12 12:51</a>
+需要多了解一个Winstore整烂活已经是额外成本了…
+
+比如SMT5掉帧，就俩选项，人体堂SB，或者ATLUSSB…</blockquote>
+这种玩家现在有手机了，付款都不用学。
+
+日本这个主机的故乡，不是才被手机血洗，活生生的例子。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  NTR狂魔武田一本  
+##### 237#       发表于 2021-11-12 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516332&amp;ptid=2037022" target="_blank">ppa11 发表于 2021-11-12 12:33</a>
+
+。。你回忆一下20年前、10年前和现在的pc市场和主机占比对比和游戏发售对比。。pc明显的大获全胜啊。。 ...</blockquote>
+我不知道你指的是什么对比或者是哪个报告，但pc在全球范围大获全胜这个结论我是得不出来得，在部分地区的确是大获全胜，比如国内，国内的历史原因和社会因素导致pc玩家远超主机
+
+这几年的报告基本上一直是pc和主机（微软+索尼+ns）五五开，加起来打不过手游。 pc上有暴雪，lol，堡垒之夜，csgo开箱这类拉销售额，考虑这点，说明在传统游戏上pc对主机明显是劣势的
+
+以及这几年也有报告在说越来越多的玩家从pc转向主机。身边统计学，我认识的玩pcmr的美国人基本上也都是全机种制霸。。只玩球（nba，nfl等等）的人基本上也只买台xbox，xbox xgp的存在甚至导致美国出现xbox游戏机房....我都没在美国看到国有提供能打游戏的电脑机房。
+
+说到日本，日本这几年的确有很多玩家转向pc，这很大程度上归功于vtber和吃鸡类游戏的火爆，日本本身这块市场太空，不看好会是持续性的行为
+
+*****
+
+####  infinite  
+##### 238#       发表于 2021-11-12 12:52
+
+在可以预见的未来，主机会变得越来越不重要
+
+*****
+
+####  dumplingpro  
+##### 239#       发表于 2021-11-12 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516628&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 12:52</a>
+我不知道你指的是什么对比或者是哪个报告，但pc在全球范围大获全胜这个结论我是得不出来得，在部分地区的 ...</blockquote>
+主机卖皮肤通行证游戏也不少，还有fifa nba一堆吃相极为难看的抽卡游戏销售额常年前五呢，谁也别笑谁
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Renkonsai  
+##### 240#       发表于 2021-11-12 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516626&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-12 12:52</a>
+
+这种玩家现在有手机了，付款都不用学。
+
+—— 来自 MANN 8S, Android 7.1.2上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">别这样，手机可是有饺子哥你最爱的电子肖战
+
+
+
+*****
+
+####  saderious  
+##### 241#       发表于 2021-11-12 12:59
+
+别老把卖二手的收益算到游戏成本里面啊，这么算我跟风挖了几个月矿岂不是相当于我游戏没花过钱？
+
+还有至少在国内前些年steam的竞争对手是盗版啊，真要天天考虑啥“君臣佐使阴阳五行”怎么可能让人愿意掏钱，不要老是想当然啊。
+
+顺便要不是显卡涨价，往常5000级别的电脑足够中等特效玩5年了，升级也是显卡和板u分开的
+
+*****
+
+####  ゆい  
+##### 242#       发表于 2021-11-12 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516628&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 12:52</a>
+
+我不知道你指的是什么对比或者是哪个报告，但pc在全球范围大获全胜这个结论我是得不出来得，在部分地区的 ...</blockquote>
+日本我倾向于是空白缺口被填补了，毕竟几年前连能正经跑游戏的网吧都没有
+
+*****
+
+####  ゆい  
+##### 243#       发表于 2021-11-12 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516695&amp;ptid=2037022" target="_blank">saderious 发表于 2021-11-12 12:59</a>
+
+别老把卖二手的收益算到游戏成本里面啊，这么算我跟风挖了几个月矿岂不是相当于我游戏没花过钱？
+
+还有至少 ...</blockquote>
+这贴不是谈的日本市场吗？日本又没有主机比pc游戏贵这种问题 
+
+<img src="https://img.saraba1st.com/forum/202111/12/130529p87zh5h8t2522iaa.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2021-11-12 140457.png</strong> (67.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 13:05 上传
+
+<img src="https://img.saraba1st.com/forum/202111/12/130531emrgglqpilq3pqa8.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2021-11-12 140159.png</strong> (85.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 13:05 上传
+
