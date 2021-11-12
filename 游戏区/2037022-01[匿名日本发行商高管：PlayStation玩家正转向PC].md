@@ -3233,3 +3233,39 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 
 有索索不高兴了
 
+
+
+*****
+
+####  dumplingpro  
+##### 298#       发表于 2021-11-12 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521069&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 18:31</a>
+子非鱼，安知鱼之乐？三巨头有谁真把大陆当成重要市场的？你销量占全球几成啊就在这儿指点江山。还你身边的 ...</blockquote>
+实际全世界只有几亿人，被三巨头认为是人，甚至曾经高贵的日本人都逐渐沦为下等人。
+
+剩下几十亿都不是人，不配玩游戏，这些非人里面，有追求的，中国，前苏联地区，中东等等，则选择了自己站起来当人。
+
+虽然各个国家有不同的国情，有前苏联陷入彻底混乱的国家，也有像伊朗这样被全世界封锁的国家，不过最终都走上了同样的道路。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tlozfan| + 1||
+
+查看全部评分
+
+*****
+
+####  Eric_方歌阙  
+##### 299#       发表于 2021-11-12 19:03
+
+这贴战起来不奇怪，奇怪的是居然是混战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2503,3 +2503,27 @@ u1s1，不先看完原作也没法完全get到星无佬的设计到底精妙在�
 
 迷惑归迷惑，难道星团不迷惑吗
 
+
+
+*****
+
+####  kata魂  
+##### 226#       发表于 2021-11-12 18:44
+
+ 本帖最后由 kata魂 于 2021-11-12 18:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521179&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-12 18:40</a>
+
+历代最低不至于，大部分地方的评分都比水高的，水我是没能看完</blockquote>
+水一我觉得除了友情yosoro和最后一集小剧场，其余没什么大问题
+
+关键是吧，人家友情yosoro闹心归闹心，好歹算是挑明了，星团倒是不挑明，直接三集用完就丢了。最后一集小剧场尬归尬，那星团最后一集香音的心里路程我愣是没转过来
+
+水二不评价，因为说不定星二更奇葩
+
+*****
+
+####  笋狐  
+##### 227#       发表于 2021-11-12 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">追和补，以及有没有看过系列之前的作品所带来的观感差异天差地别，还是让人家自顾自看完再发表感想吧，不然说着说着又要开批斗大会了
+

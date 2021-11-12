@@ -10633,3 +10633,14 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 游乐场不一定是掉的可能是主动退的，4代那会落后队伍高速退完就很频繁了，大家都省事 ...</blockquote>
 但游乐场拿奖励不需要赢啊
 
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 967#       发表于 2021-11-12 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519607&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-12 16:42</a>
+这代开始要求的，离谱。我现在做个周常直接把自己钱快花光了，又不想去挂机刷钱。 ...</blockquote>
+…难受
+
