@@ -2368,3 +2368,15 @@ syl补下昨天乃宝的抖音推送，这两天疯狂沉迷地平线5，Asoul�
 
 [https://www.bilibili.com/video/BV11f4y1u7dn](https://www.bilibili.com/video/BV11f4y1u7dn)
 
+
+
+*****
+
+####  sanlow666  
+##### 183#         楼主| 发表于 2021-11-12 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520119&amp;ptid=2034216" target="_blank">空气先生 发表于 2021-11-12 17:17</a>
+
+你要守护的是乃琳！而不是010！</blockquote>
+010是啥，你们脆鲨没有自己的专楼么<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+

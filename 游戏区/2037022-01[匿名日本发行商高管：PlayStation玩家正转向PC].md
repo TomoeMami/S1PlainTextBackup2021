@@ -3041,3 +3041,25 @@ PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高
 
 降价的3070你敢买？京东还不是十万人抢ti？
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 280#       发表于 2021-11-12 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519794&amp;ptid=2037022" target="_blank">火箭助推电锯 发表于 2021-11-12 16:55</a>
+
+买个手柄就行了。主机用手柄，玩PC时也用手柄不是一样的么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">早就有了，我PC，PS5，NS都有的...PC是因为放左边电脑桌上我做床上玩得抬头，主机直接躺着看正面显示器就行（
+
+*****
+
+####  dumplingpro  
+##### 281#       发表于 2021-11-12 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520336&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 17:30</a>
+
+早就有了，我PC，PS5，NS都有的...PC是因为放左边电脑桌上我做床上玩得抬头，主机直接躺着看正面 ...</blockquote>
+纯粹是你显示器放置位置问题把，直接插正面显示器不行么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
