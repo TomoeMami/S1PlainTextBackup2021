@@ -7263,3 +7263,41 @@ gn真的是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 
 gn真下头.jpg
 
+
+
+*****
+
+####  小憨1  
+##### 2289#       发表于 2021-11-12 09:09
+
+乐了<img src="https://p.sda1.dev/3/4f85d306353b7fb483bac7182a8c7604/IMG_CMP_17304316.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2290#       发表于 2021-11-12 09:10
+
+【【文静合拍】《她说》- 这下听懂了！-哔哩哔哩】https://b23.tv/3CtlsC
+
+投了，静瘾犯了
+
+*****
+
+####  灰色的狐狸  
+##### 2291#       发表于 2021-11-12 09:11
+
+这个投票哪来的
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  小憨1  
+##### 2292#       发表于 2021-11-12 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513170&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-12 09:11</a>
+这个投票哪来的
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.0.4-play</blockquote>
+[贴吧](http://tieba.baidu.com/p/7609324724?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.13.2.0&amp;st=1636679504&amp;unique=ECDE813D4A06601DDF10F74D2C179AF5)
+

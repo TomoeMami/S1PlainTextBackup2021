@@ -19552,3 +19552,16 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 突然觉得沙雾和全小将还挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kuroe  
+##### 1363#       发表于 2021-11-12 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53510541&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-11 23:00</a>
+
+如果125分配四集的篇幅的话，那甚至可以停在第七章开头冥画，这可一点都不无聊就看胆子大不大了[f ...</blockquote>
+那样的话，第一季尾声就开始吃瘪，第一季结局更是直接崩溃了。第二季开头是逃走和连续吃瘪……停在这里也太噩梦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+除非第二季的叙事做调整，不然这男主几乎就只有拉垮的印象能留下了。虽然确实一到大事儿就拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

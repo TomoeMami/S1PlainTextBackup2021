@@ -1046,3 +1046,127 @@ PS5能摆在电视面前接电视，电脑为什么不行呢
 
 steam beta可以ds4玩我就开始用了, 大多数pc游戏都是固定abxy一套的且下方确定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不应  
+##### 112#       发表于 2021-11-12 09:06
+
+以后日本市场只有任天堂一家公司了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨托斯  
+##### 113#       发表于 2021-11-12 09:08
+
+ 本帖最后由 阿萨托斯 于 2021-11-12 09:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512994&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 08:51</a>
+
+当然可以，但是我用pc大部分时候要用键鼠床上就很难操作了
+
+—— 来自 realme RMX3350, Android 1 ...</blockquote>
+买个懒人桌就解决的事儿
+
+PC离得近，字看不清拿近点就好，PS调整起来太麻烦
+
+但是PC最大的毛病就是手柄默认X确定，完全不理解zz欧美人的习惯，难不成他们Windows的退出图标不是大叉是圈吗
+
+*****
+
+####  njjwl2005  
+##### 114#       发表于 2021-11-12 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513144&amp;ptid=2037022" target="_blank">阿萨托斯 发表于 2021-11-12 09:08</a>
+买个懒人桌就解决的事儿
+
+PC离得近，字看不清拿近点就好，PS调整起来太麻烦
+
+但是PC最大的毛病就是手柄默认X ...</blockquote>
+pc手柄默认是a确认啊，目前xbox手柄方案还是pc唯一指定标准
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  solarcool  
+##### 115#       发表于 2021-11-12 09:14
+
+泥潭绝大多数主机玩家不都和pc共用一个显示器哪有什么沙发红酒，泥潭pc玩家笔记本工作游戏两用游戏体验凑合的也不知道多少→_→互害的时候怎么就个个沙发红酒，高配台式了？
+
+*****
+
+####  松霖  
+##### 116#       发表于 2021-11-12 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512842&amp;ptid=2037022" target="_blank">黄字 发表于 2021-11-12 08:33</a>
+ 我就是非要对着ps5xsx配置配一台电脑现在也溢价厉害。另外我是5800x＋3080ti。但你pc接到电视机那跟三米 ...</blockquote>
+为什么pc要放到三米外，为什么pc不能用c1，为了游戏机性价比也不选ps5啊，xsx性能更加强，游戏还便宜多了，未来转pc基本还没代价<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  拱猪  
+##### 117#       发表于 2021-11-12 09:16
+
+16年的1070m显卡仍然服役良好，接的还是2K显示器，没啥不能玩的游戏
+
+PS5机器是买的到，最多加价，你有游戏么
+
+*****
+
+####  椎名mahuyo  
+##### 118#       发表于 2021-11-12 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513144&amp;ptid=2037022" target="_blank">阿萨托斯 发表于 2021-11-12 09:08</a>
+
+买个懒人桌就解决的事儿
+
+PC离得近，字看不清拿近点就好，PS调整起来太麻烦
+
+但是PC最大的毛病就是手柄默认X ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然很多人一直吐槽PS键位手柄问题，但是摸过几天PS5手柄以后还是习惯了X确定了，PS5手柄稍微改了下键位位置按X比PS4那手柄顺手点...某些PS4弱智键位设定游戏除外
+
+我家那PC在我床右边，那电脑桌还有点高，在床上玩抬着头还累点，要玩PC还是坐在PC前面玩，就是冬天了冷，老机器噪声还不小（
+
+*****
+
+####  mirrorside  
+##### 119#       发表于 2021-11-12 09:17
+
+现在pc真就只剩下外挂这一影响体验的因素了，话说反外挂真就一点办法都没嘛
+
+我还记得以前win10 uwp刚出时我还指望这东西反外挂和反盗版呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉色猛男  
+##### 120#       发表于 2021-11-12 09:19
+
+主要是PS5没啥独占独占大作吧，买了也是吃灰
+
+
+
+*****
+
+####  mirrorside  
+##### 121#       发表于 2021-11-12 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512105&amp;ptid=2037022" target="_blank">oskneo 发表于 2021-11-12 02:38</a>
+
+买个二手游戏然后卖掉要多少钱
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+2021了还搞买实体再出二手这一二十年前的游玩方式啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">现在数字版比例上升也是趋势吧
+
+*****
+
+####  1096beam  
+##### 122#       发表于 2021-11-12 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513250&amp;ptid=2037022" target="_blank">mirrorside 发表于 2021-11-12 09:17</a>
+
+现在pc真就只剩下外挂这一影响体验的因素了，话说反外挂真就一点办法都没嘛
+
+我还记得以前win10 uwp刚出时 ...</blockquote>
+等PC禁止编程就有希望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

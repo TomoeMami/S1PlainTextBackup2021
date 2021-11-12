@@ -10345,3 +10345,24 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 老手难度A级拉力赛的ai也太厉害了吧，速度这么夸张。。有什么a800的能用吗？ ...</blockquote>
 起跑前调车，直接碾压
 
+
+
+*****
+
+####  lxx4869  
+##### 939#       发表于 2021-11-12 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511522&amp;ptid=2033303" target="_blank">紫水晶 发表于 2021-11-12 00:37</a>
+
+自动化刷子游戏了，明天出门前再跑一趟50圈就不刷了....太浪费游戏了</blockquote>
+3,4代一开始也有刷子bug，然后车全了就不想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lostz1991  
+##### 940#       发表于 2021-11-12 09:17
+
+地平线系列还是能循迹刹车的吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+----发送自 [samsung SM-G9860,Android 11](http://stage1.5j4m.com/?1.37)
+
