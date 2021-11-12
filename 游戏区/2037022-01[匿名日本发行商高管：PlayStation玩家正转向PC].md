@@ -910,3 +910,58 @@ ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5�
 
 之前不是有人比较过，日本PS5首年的曲线比PS4还好吗？达到100W的时间比PS4短
 
+
+
+*****
+
+####  ゆい  
+##### 98#       发表于 2021-11-12 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512737&amp;ptid=2037022" target="_blank">gutzz 发表于 2021-11-12 08:19</a>
+
+1楼不是在讨论国外的情况嘛日本我不知道，反正美国这我蹲了三个月都没能蹲到正常价格的ps5，ebay ...</blockquote>
+日本的话索尼自家的nuro光+ps5出租，2Gbps的千兆网一个月980日元，三年到期之后可以一万五买下ps5，就是对区域和户型有限制
+
+*****
+
+####  黄字  
+##### 99#       发表于 2021-11-12 08:33
+
+<blockquote>强尼高达 发表于 2021-11-12 07:43
+你玩什么高级游戏啊最低配置ADL+DDR5？</blockquote>
+我就是非要对着ps5xsx配置配一台电脑现在也溢价厉害。另外我是5800x＋3080ti。但你pc接到电视机那跟三米以上的hdmi2.1光纤线就够买小半台ps5了。要是买规格和c1差不多的显示器又能买十台数字版ps5。
+
+*****
+
+####  欠雷  
+##### 100#       发表于 2021-11-12 08:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ps4吃灰两年了，ps5溢价这么严重还没啥好独占，趁早断气吧
+
+断气了香草社说不定就能把游戏都搬pc上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 101#       发表于 2021-11-12 08:43
+
+要说产量短缺，显卡不比PS5严重？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 102#       发表于 2021-11-12 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512916&amp;ptid=2037022" target="_blank">naclken. 发表于 2021-11-12 08:43</a>
+要说产量短缺，显卡不比PS5严重？</blockquote>
+短不短缺主要看供需关旭
+
+*****
+
+####  404489039  
+##### 103#       发表于 2021-11-12 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512674&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 08:10</a>
+我平时玩ps和ns版版纯粹是因为能在床上玩，pc我上班时候都坐8小时，回家了不想在那么坐在桌子前面了 ...</blockquote>
+pc不能躺床上玩？
+

@@ -1820,3 +1820,16 @@ Payton尚未→安娜（吃瘪，假西洋人）
 
  9周年FES有2个版本  每天3小时 共计有2天的完整版  已经出BD了。  还有电视台剪辑的1小时多的版本。  好像都没字幕组接啊。
 
+
+
+*****
+
+####  cybernetics31  
+##### 165#       发表于 2021-11-12 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512760&amp;ptid=2036367" target="_blank">无聊的我 发表于 2021-11-12 08:22</a>
+借楼问一下 9周年FES的4团联合LIVE 有字幕组做了吗？  网上一直找不到字幕版啊。    
+
+ 9周年FES有2个版本  ...</blockquote>
+虹组有做虹团的部分，其他就不知了
+
