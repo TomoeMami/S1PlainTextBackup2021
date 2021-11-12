@@ -3572,3 +3572,37 @@ valve也不可能强制要求用这个api，但另一方面，steam这好歹还�
 其实我觉得类似的理由如果直接说是懒还是可以理解的，说是难那就是在说自己放弃思考了 ...</blockquote>
 人类生意的绝大多数都是建立在“懒”上的。我的意思就是当今游戏机还有市场，主要原因就是还有懒人。你觉得游戏机到PC是1+1到2+3，毫无压力，对懒人来说是初等数学到高等数学。当然高等数学也很简单，但懒人不会觉得简单，特别是初等数学已经够用的情况下，哪怕是勉强。
 
+
+
+*****
+
+####  传说中的天才  
+##### 327#       发表于 2021-11-13 06:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526164&amp;ptid=2037022" target="_blank">4869Bi 发表于 2021-11-13 06:13</a>
+有人指望Linux比Windows“不折腾”23333
+
+当然g胖可以抛弃上百万种硬件组合，拿兼容性换稳定性，那 ...</blockquote>
+核心是Valve想通过Proton使Linux兼容Windows游戏，苹果现在不说兼容Windows了，直接换上ARM一路狂奔，请问游戏玩家在苹果眼中算老几，可能去iOS上买个Apple Arcade才算苹果眼中的游戏玩家吧。
+
+顺带刚看到了这个文章，写的比我随写的一点要详细很多 [https://boilingsteam.com/steam-d ... od-bad-times-ahead/](https://boilingsteam.com/steam-deck-and-proton-good-bad-times-ahead/)
+
+*****
+
+####  4869Bi  
+##### 328#       发表于 2021-11-13 06:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526189&amp;ptid=2037022" target="_blank">传说中的天才 发表于 2021-11-13 06:31</a>
+
+核心是Valve想通过Proton使Linux兼容Windows游戏，苹果现在不说兼容Windows了，直接换上ARM一路狂奔，请 ...</blockquote>
+先证明一下“Linux不折腾”吧
+
+*****
+
+####  满满一大杯  
+##### 329#       发表于 2021-11-13 06:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53525511&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-13 01:09</a>
+STEAM DECK</blockquote>
+还是那句话，等销量过千万再说。以及以我多年使用Linux桌面端发行版的经验，我对SteamOS3.0谨慎悲观。
+
