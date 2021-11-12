@@ -1471,3 +1471,147 @@ pc现在hdr效果好吗
 
 你自己有高配游戏电脑也有不止一台电脑，反而不能接受别人在电视面前专门摆一台用来玩游戏的电脑，说了就是抬杠？
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 152#       发表于 2021-11-12 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电视配合电脑最大问题机箱大小和机箱声音，都解决了成本并不低
+
+另外WINDOWS对HDR的支持...懂得都懂
+
+*****
+
+####  hypnossz86  
+##### 153#       发表于 2021-11-12 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513942&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 10:06</a>
+电视配合电脑最大问题机箱大小和机箱声音，都解决了成本并不低
+
+另外WINDOWS对HDR的支持...懂得都懂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">？
+ps4起飞就没声音？
+同一个游戏就比如嗜血代码
+跑起来ps4声音比pc大多了...
+
+*****
+
+####  flyzzhj  
+##### 154#       发表于 2021-11-12 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS5溢价，但是显卡溢价更过分啊
+
+*****
+
+####  Kojimaru  
+##### 155#       发表于 2021-11-12 10:09
+
+ 本帖最后由 Kojimaru 于 2021-11-12 10:15 编辑 
+
+虽说日厂向pc迁移，但好歹在优化上下点功夫
+就拿最近出的零濡鸦，机战来说pc都差点意思<img src="https://static.saraba1st.com/image/smiley/device2017/033.png" referrerpolicy="no-referrer">如果不想折腾，现阶段ps5还是玩日厂游戏最好的平台
+
+*****
+
+####  920619lqy  
+##### 156#       发表于 2021-11-12 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513942&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-11 20:06</a>
+
+电视配合电脑最大问题机箱大小和机箱声音，都解决了成本并不低
+
+另外WINDOWS对HDR的支持...懂得都懂 ...</blockquote>
+解决PC风扇噪音只要换点猫头鹰，解决PS4噪音呢？
+
+*****
+
+####  塔奇克马  
+##### 157#       发表于 2021-11-12 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513942&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 10:06</a>
+
+电视配合电脑最大问题机箱大小和机箱声音，都解决了成本并不低
+
+另外WINDOWS对HDR的支持...懂得都懂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">HDR不谈,
+
+PC难道就不能用延长线吗?PC机箱可以放外面或者隔壁呀.要求不高的话,成本大概不到100吧.
+
+观念是死的,人是活的.
+
+*****
+
+####  如果有一天TT  
+##### 158#       发表于 2021-11-12 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513880&amp;ptid=2037022" target="_blank">丹德里恩 发表于 2021-11-12 10:02</a>
+
+steam主流依旧是1060，谁搁这一年换一个台式啊</blockquote>
+虽然但是，所谓的1060主流已经只占不到10%了，1060及以下大概25%，2060及以上大概20%的样子
+
+*****
+
+####  强尼高达  
+##### 159#       发表于 2021-11-12 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513942&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 10:06</a>
+电视配合电脑最大问题机箱大小和机箱声音，都解决了成本并不低
+
+另外WINDOWS对HDR的支持...懂得都懂 ...</blockquote>
+PS5，10.5L
+机械大师C24，9.9L
+乔思伯T8，8.4L
+机械大师MC18，6.33L
+
+这些机箱都是500上下的，没有很贵
+以PS5的性能为目标配SFX电源和短显卡，额外支出也不会很高
+
+*****
+
+####  liva  
+##### 160#       发表于 2021-11-12 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513743&amp;ptid=2037022" target="_blank">janet_ddr 发表于 2021-11-12 09:52</a>
+
+命运2看来真是个dead game，我自从转到PC上也玩了几百小时PVP了，碰到挂的次数还真是屈指可数。
+
+不过厂商 ...</blockquote>
+屈指可数还行。。我上千小时了天天打PVP，遇到无数次挂，还有经典外挂互相炸我们平民都成炮灰的
+
+经典的oh my fucking god bro又不是只有一场
+
+*****
+
+####  TheOccuria  
+##### 161#       发表于 2021-11-12 10:17
+
+主要还是现在都是黄牛，原价3800的东西给你卖5k
+
+虽然这今年我基本都是再pc上玩游戏...其实很多游戏我还是想在主机上玩的，待机启动直接恢复功能其实挺好的
+
+*****
+
+####  诶哟卧草  
+##### 162#       发表于 2021-11-12 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513997&amp;ptid=2037022" target="_blank">Kojimaru 发表于 2021-11-12 10:09</a>
+
+虽说日厂向pc迁移，但好歹在优化上下点功夫
+
+就拿最近出的零濡鸦，机战来说pc都差点意思如果不想折腾 ...</blockquote>
+pc的机战有啥问题？我都快通了还没遇到
+
+*****
+
+####  JudgmentEye  
+##### 163#       发表于 2021-11-12 10:22
+
+<blockquote>引用第161楼诶哟卧草于2021-11-12 10:20发表的  :
+
+引用:Kojimaru 发表于 2021-11-12 10:09虽说日厂向pc迁移，但好歹在优化上下......</blockquote>
+一切换成非巨硬自带的输入法就跳出
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
