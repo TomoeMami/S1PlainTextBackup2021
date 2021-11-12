@@ -3289,3 +3289,16 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 
 又来了，不是说好谈游戏销量吗？自己把自己不当人可还行
 
+
+
+*****
+
+####  qratosone  
+##### 302#       发表于 2021-11-12 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520568&amp;ptid=2037022" target="_blank">bazingar 发表于 2021-11-12 17:48</a>
+所以不懂，为何美日欧销量比ps4同时代还要高的ps5，怎么会尽显颓势的</blockquote>
+因为这个销量数字本来就是强行献祭上一代主机的结果。正常情况下PS4这样成功的机器，在下一代上市之后还会有好多年的生命周期，结果现在索尼把PS4 pro直接砍掉了，slim虽然没停但总产能也砍了不少。所以真正应该对比的是同期PS4+PS3的销量
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

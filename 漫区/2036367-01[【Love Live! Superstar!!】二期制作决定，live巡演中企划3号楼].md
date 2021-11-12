@@ -2601,3 +2601,37 @@ u1s1，不先看完原作也没法完全get到星无佬的设计到底精妙在�
 
 另外是评分总人数还不如油管那边一天的播放量，在推特热度和商业成绩都不错的情况下，大人的想法大几率是睬你都傻
 
+
+
+*****
+
+####  kata魂  
+##### 235#       发表于 2021-11-12 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">评分要是有用，水2之后还能干出星1的事？
+
+*****
+
+####  darkendless  
+##### 236#       发表于 2021-11-12 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519301&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-11-12 16:21</a>
+不是，唐可可的诱惑讨论度远高于本家动画都来了
+
+再喜欢这二创也不能睁眼说瞎话吧 ...</blockquote>
+我承认所言夸张以至于过分了，如有冒犯请谅解。主要是对于动画后面的一些处理实在不满，也不指望第二季能做出太大改变，能多点对恋的塑造和做好可可回就行<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 237#       发表于 2021-11-12 20:15
+
+打铁瘦了鱼胖了
+
+*****
+
+####  kata魂  
+##### 238#       发表于 2021-11-12 20:26
+
+草，小百合那个寒字我还真就第一眼没看出哪错了
+
