@@ -3460,3 +3460,80 @@ STEAM DECK<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" 
 论坛大家总觉得“ ...</blockquote>
 对，论折腾和成本的话游戏用pc是远高于主机的，所以我才会认为主机更加适合相对轻度不折腾的玩家，而现在的环境给我的感觉反倒反过来了。
 
+
+
+*****
+
+####  indtability  
+##### 318#       发表于 2021-11-13 02:15
+
+歪个楼，对于pc上的控制器支持有点期待的人，可以了解下steam input api，它能完美解决大家说的那些问题——只要游戏支持了这个api。
+简单来说，如果游戏用了这个api，就相当于把控制器相关的工作交给了steam，只要steam更新了对某个控制器的支持，游戏就能立刻支持这个控制器，这里的支持包括键位设置以及图标，直白说就是老游戏不用更新也能显示新手柄的图标。类似地，如果改了键位，游戏内也会直接显示修改后的键位。几乎可以说是完美符合大家需求——除了没几个游戏支持以外。
+用了这个api的游戏太少了，我猜可能很多玩家都不知道自己眼皮底下就有这么一个符合需求的东西，但大部分游戏都不用它…
+valve也不可能强制要求用这个api，但另一方面，steam这好歹还有这么个api，反观那几家主机厂商，虽然不了解相关开发，不过我估计是没有，这些所谓做平台的，平台的功能跟steam一比全都是弟弟。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  l⑨th_Knight  
+##### 319#       发表于 2021-11-13 02:37
+
+我寻思主楼讨论的日本pc市场，日本不懂硬件的是多不过电脑商很火啊，什么樱花妹根本不用看硬件直接点开视频广告里的电脑厂商地址，一键整机到家<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dumplingpro  
+##### 320#       发表于 2021-11-13 03:30
+
+ 本帖最后由 dumplingpro 于 2021-11-13 03:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53525936&amp;ptid=2037022" target="_blank">l⑨th_Knight 发表于 2021-11-13 02:37</a>
+我寻思主楼讨论的日本pc市场，日本不懂硬件的是多不过电脑商很火啊，什么樱花妹根本不用看硬件直接点开视频 ...</blockquote>
+就像手机行业日本本土厂商各种折腾，最后被苹果入了关。
+
+以前纯日本本土pc厂商，配机奇葩还贵，甚至还有ask税这种封建制的玩意，记得3080首发699刀日本要109800日元，溢价快50%……等于天天矿潮你感受下。
+
+现在被外国企业和电商入了关，大不了直接亚马逊海外版完事，就好起来了。
+
+其实日本好歹发达国家，有没美帝人民超前消费的毛病，直接一键整机/笔记本没国内那么大负担
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  BRRM  
+##### 321#       发表于 2021-11-13 04:46
+
+ 本帖最后由 BRRM 于 2021-11-13 04:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524628&amp;ptid=2037022" target="_blank">满满一大杯 发表于 2021-11-12 23:34</a>
+
+本来就是PC更核心，讲得极端点，再核心点的玩家能用PC自己做MOD甚至自己编游戏自己玩。
+
+论坛大家总觉得“ ...</blockquote>
+费劲在哪，我觉得这个所谓的“费劲”其实是一个习惯性的借口，经不起推敲，更可能是长期以来（防和谐）的习惯，以及独占游戏。
+
+*****
+
+####  920619lqy  
+##### 322#       发表于 2021-11-13 05:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526098&amp;ptid=2037022" target="_blank">BRRM 发表于 2021-11-12 14:46</a>
+
+费劲在哪，我觉得这个所谓的“费劲”其实是一个习惯性的借口，经不起推敲，更可能是长期以来（防和谐）的 ...</blockquote>
+其实我觉得类似的理由如果直接说是懒还是可以理解的，说是难那就是在说自己放弃思考了
+
+*****
+
+####  传说中的天才  
+##### 323#       发表于 2021-11-13 05:39
+
+游戏PC相对主机最大的矛盾在于性价比和不折腾之间有着无法逾越的鸿沟，也就是Windows。
+
+以前Valve也做过SteamMachine，失败了，从2015到2018，原因在我看来可以说是非常简单，就是Linux上可玩游戏太少了，和Windows比毫无竞争力。在2018年Valve发布了第一个版本的Proton，开始着手解决这个问题，如今Linux游戏兼容性已经得到了很大的改善。现在Valve借着SteamDeck之手推进解决几个反作弊软件在Linux下的运行问题，往后不能在Linux运行的程序将会是小众。
+
+当Windows彻底能从游戏PC中移除之后，PC对主机来说才能正式的同台竞技性价比和不折腾，现在要么就是机器1/4到1/3左右价格的操作系统毫无性价比，要么就是让人去折腾盗版，正规厂商不好整合。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然V社做坑了不少玩意，但是个人觉得发展的大方向还是没啥问题，说不定未来SteamMachine还会重回战场。
+

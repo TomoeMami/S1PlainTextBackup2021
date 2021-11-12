@@ -10792,3 +10792,59 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 目前跑S1 900的公路赛劲敌感觉Jag的XJR-15跟福特06年的GT都不错，前者极速拉满但是对走线的选择比较严格，后者更好操控但是极速没这么高
 
+
+
+*****
+
+####  pl0okm  
+##### 983#       发表于 2021-11-13 01:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下周再更 乐
+
+*****
+
+####  爱护动物抓根宝  
+##### 984#       发表于 2021-11-13 01:54
+
+吊，pg真就全员开香槟放假去了？
+
+*****
+
+####  Vladimeow  
+##### 985#       发表于 2021-11-13 02:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的这地平线闯关活动每次就三四个人，根本过不去三关啊，有毒吧 四代人都没那么少啊
+
+*****
+
+####  liyropen  
+##### 986#       发表于 2021-11-13 02:18
+
+今晚试着做过关任务的时候，人倒是够了，不过西海岸的飞跃环心任务，看不见环心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。一群人干飞了十分钟啥都没
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  冀人燕南天  
+##### 987#       发表于 2021-11-13 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524696&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-12 23:41</a>
+
+这代这傻逼AI别是playground直接照搬FM7的吧，开S2直接被生吃</blockquote>
+草，我之前玩fm7就觉得ai很恶心了，原来不是错觉
+
+*****
+
+####  伊斯坎达尔王  
+##### 988#       发表于 2021-11-13 02:53
+
+最大问题是不会开普通车，所以完全不懂什么转弯倒车的操作逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我又忘了用户名  
+##### 989#       发表于 2021-11-13 03:45
+
+在线模式好便秘啊， 开比赛就那么短时间，等比赛和过场动画占了那么长的时间
+
