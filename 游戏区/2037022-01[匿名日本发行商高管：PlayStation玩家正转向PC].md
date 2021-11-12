@@ -2078,3 +2078,168 @@ xbox有近乎白送的xgp，如果纠结于租非得想买断甚至比steam还�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Vladimeow  
+##### 205#       发表于 2021-11-12 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512101&amp;ptid=2037022" target="_blank">oskneo 发表于 2021-11-12 02:37</a>
+你的体验还要自己慢慢拼硬件的。
+然后又一年换一次，一年刷一次猴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一年换一次？PS6能比3080ti强吗 还是比5950x跑得快？
+
+*****
+
+####  ppa11  
+##### 206#       发表于 2021-11-12 12:10
+
+<blockquote>FanKiE 发表于 2021-11-12 12:03
+爬了一下楼，感觉车来车去还是以往那套说辞，这边联机收费那边没有外挂，这边客厅沙发那边电脑接电视，还有 ...</blockquote>
+主要问题还是软索两家主机与pc的差异性越来越小了吧。。挑不同能找到的点也不多。
+
+*****
+
+####  GALLADE  
+##### 207#       发表于 2021-11-12 12:10
+
+ 本帖最后由 GALLADE 于 2021-11-12 12:13 编辑 
+
+PC不仅不要算整机的钱，连显卡钱都不要算
+
+只要你不是几套房撕葱同款拆墙电视一个房间放蓝光原盘用户，客厅红酒是吧，不用pc怎么高码4k？往上还要插帧
+
+更别说pc的高效率生产工具
+
+也就是承载游戏功能的那点溢价几乎ps4都不到，拉根HDMI线更是毛毛雨 说得你不玩游戏就不拉一样，还有投屏机顶盒什么的看1080p这么丐的客厅红酒吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ゆい  
+##### 208#       发表于 2021-11-12 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515869&amp;ptid=2037022" target="_blank">FanKiE 发表于 2021-11-12 12:03</a>
+
+爬了一下楼，感觉车来车去还是以往那套说辞，这边联机收费那边没有外挂，这边客厅沙发那边电脑接电视，还有 ...</blockquote>
+主机买游戏方便但pc不玩联机fps的的话舒服不少 
+
+我个人是希望两边都别完蛋，准确来说是不想任何一方一家独大
+
+*****
+
+####  五元请收好  
+##### 209#       发表于 2021-11-12 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511521&amp;ptid=2037022" target="_blank">若菜 发表于 2021-11-12 00:37</a>
+
+我认识几个鬼子基本电脑性能都不错，3090 顶配的大有人在，不过大概为是FPS圈子和搞3D多吧。装甲核心玩家现 ...</blockquote>
+求问装甲核心玩家去玩什么FPS？泰坦吗？
+
+*****
+
+####  ゆい  
+##### 210#       发表于 2021-11-12 12:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要说目前ps对我个人来说最大的吸引力还真就是cod 
+
+codg之前都是360和pc版买双份，codg开始就是ps4和pc版买双份，bo4开始pc版战网独占之后就只买ps4版了，傻逼战网有多远滚多远
+
+
+
+*****
+
+####  谢三哥  
+##### 211#       发表于 2021-11-12 12:19
+
+<blockquote>GALLADE 发表于 2021-11-12 12:10
+PC不仅不要算整机的钱，连显卡钱都不要算
+
+只要你不是几套房撕葱同款拆墙电视一个房间放蓝光原盘用户，客厅 ...</blockquote>
+蓝光、流媒体不都是在主机功能范畴里的么
+
+*****
+
+####  満月－夜  
+##### 212#       发表于 2021-11-12 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512136&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 02:52</a>
+
+ps5这代主机产能不足全球买不到这点没法洗。当然原因也是多方面的。
+
+日本市场只是终于在走向正常化的道路上 ...</blockquote>
+你说这个谁懂啊.JPG
+
+国内玩主机就是等于玩独占游戏的。像我这种只是把主机看成是玩游戏的一种解决方案的只能算异端<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 213#       发表于 2021-11-12 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515031&amp;ptid=2037022" target="_blank">refiver 发表于 2021-11-12 11:10</a>
+
+你们为啥一直要炮轰PS5……
+
+我觉得不想配高配电脑的PS5也绝对够用了，不至于有厂商非要跨时代开发PS5都带不 ...</blockquote>
+有些人嫌同样一个游戏PS5比steam卖的贵
+
+*****
+
+####  ybfelix  
+##### 214#       发表于 2021-11-12 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515704&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-12 11:53</a>
+
+反过来，PC才是小众游戏的大本营吧。
+
+就这两个月，自由设计坦克的Sprocket，钢铁咆哮精神续作Wave ...</blockquote>
+说是这么说，但十几二十年前我也没见过如此之多奇奇怪怪的小众独立PC游戏同步上或者移植上主机的（以往主机有自己另一套奇奇怪怪游戏）。应该是不管哪个平台，玩家口味总体就是更多样了，再加移植变便宜，多上一个是一个…
+
+*****
+
+####  NTR狂魔武田一本  
+##### 215#       发表于 2021-11-12 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 高配pc有，ps5和ns也有
+
+pc和主机之间的大战，和pc性能比主机强，价格优势之类的，基本上关系不大。说到底这是两条不同的赛道，主机主要对手还是主机内部。
+
+也就是索尼和微软的大战才是真正重要的。
+
+索尼游戏上pc，在我的观点里，更主要的是拉拢有pc的玩家买游戏时更倾向于索尼主机而不是微软主机。。。
+
+然后是主机和pc之间的竞争，这个笑到最后的大概率会是主机。。。讲到底这是一个游戏终端的选择，哪个对普通对象来说更亲近，那么他就会占据更大的市场。当圣诞节这种节日，家长不会去买台xbox,ns,ps5而是pcmr给小孩的时候，这才说明了pc才真正意义上和主机站在同一条赛道上。。。。
+
+pc的缺点在于现在pc或者说laptop里面拆分化也明显，游戏本和轻薄本，办公/学习之类的还要被手机和平板侵蚀。举例来说国外大学清一色苹果笔记本，那m1笔记本怎么玩3a大作，要玩游戏还是要去配台台式或者选择笨重的游戏本。pc的优势在于电竞社交类以及更好的游戏体验，这方面玩家的忠诚度是非常高的，导致有足够的基本盘
+
+xgp是完全打到索尼系得痛点了，将来全部转向服务提供商（上云）得时候，哪边得积累就显得非常重要了，目前看来索尼是里面最吃亏得了
+
+*****
+
+####  johnwick  
+##### 216#       发表于 2021-11-12 12:26
+
+上主机的基本都不会太小众，当然也有一些shovelware为博眼球会上主机。
+
+*****
+
+####  绿冰  
+##### 217#       发表于 2021-11-12 12:26
+
+<blockquote>otaku21126 发表于 2021-11-12 10:45
+其实日本玩家“转向”真正的原因和PS策略关系不大
+
+PS上的日本游戏，销量也没有断崖式下跌
+
+所谓的“转向”， ...</blockquote>
+但是真的发生了断崖式下跌了啊
+
+比起PS5卖得快慢，现在日本市场更可怕的是PS5游戏几乎卖不出去
+
+虽然和下兼容有点关系，但销量低到大多数厂商不敢出PS5实体版已经是极其危险的信号了
+
+要不是PS5用户大多不买实体游戏了，要不是PS5实际大多都在黄牛手上
+
+而PS4游戏销量明显被Switch抢占得很厉害
+

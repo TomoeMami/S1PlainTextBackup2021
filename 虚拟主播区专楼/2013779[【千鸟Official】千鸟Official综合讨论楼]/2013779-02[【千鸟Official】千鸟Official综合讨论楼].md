@@ -7358,3 +7358,37 @@ gn真下头.jpg
 
 除了白白还有谁明牌看贴吧的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2299#       发表于 2021-11-12 12:08
+
+ 本帖最后由 莫洛骑士 于 2021-11-12 00:13 编辑 
+
+大伙去合拍吧，我替文静给你们磕一个🙇
+
+syl 我也不会，今天刚学的，我其实觉得这首歌不咋好听，但是为了巨炮还是听了十几遍<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+就像上次为了乃琳搁那唱了一下午给我一个吻，把家里人都整无语了
+
+*****
+
+####  夜之中道崩殂  
+##### 2300#       发表于 2021-11-12 12:11
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-12 12:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515961&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-12 12:08</a>
+大伙去合拍吧，我替文静给你们磕一个🙇</blockquote>
+林俊杰，真不会<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+她要是把电台那次唱的芊芊放出来，说不定我会去合，小学初中的时候经常唱
+
+*****
+
+####  huyuanhao120  
+##### 2301#       发表于 2021-11-12 12:24
+
+起那么高，我看就是想让静栗惹出丑
+

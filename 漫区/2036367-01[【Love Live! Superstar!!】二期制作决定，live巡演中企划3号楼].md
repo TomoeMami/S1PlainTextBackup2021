@@ -1955,3 +1955,23 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 
 之前就觉得ins一直用起来怪怪的，小百合那边也是要在个人主页点头像能看到她看到她最近发的短视频，而下方的帖子列表里却没有，也没有过往视频列表
 
+
+
+*****
+
+####  仟音一心  
+##### 178#       发表于 2021-11-12 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515497&amp;ptid=2036367" target="_blank">saya1892 发表于 2021-11-12 11:39</a>
+观感还是会很差吧，他们不开一个鲤鱼专楼集中在里面讨论，而是这样一天一个帖，点进去还总是些一样的话术 ...</blockquote>
+感觉并非职业水军，是自来水。
+
+*****
+
+####  黑雪姫  
+##### 179#       发表于 2021-11-12 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514258&amp;ptid=2036367" target="_blank">saya1892 发表于 2021-11-12 10:24</a>
+不知为何最近拉板一天一个鲤鱼帖，都是在陈述她的古参身份啊，异国打拼的艰辛啊，虽然也有杂志访谈、经纪人 ...</blockquote>
+能贴个最多讨论串的地址吗
+

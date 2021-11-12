@@ -10946,3 +10946,14 @@ Twitterアカウント：[https://twitter.com/otoha_ks](https://twitter.com/otoh
 
 话说角色原案怎么没搬过来？
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8300#       发表于 2021-11-12 12:08
+
+https://www.internationalsaimoe.com/voting
+我草，世萌还有VTB是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+隔壁这个都要隐藏啊。<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
