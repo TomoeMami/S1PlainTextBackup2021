@@ -3443,3 +3443,17 @@ banana继续绝版中
 
 又是咕哒咕哒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">希望十二月能来个大的
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84288#       发表于 2021-11-12 17:45
+
+<blockquote>引用第84286楼zakki于2021-11-12 17:23发表的  :
+
+又是咕哒咕哒希望十二月能来个大的</blockquote>
+12月那个已经说了是主线活动了啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

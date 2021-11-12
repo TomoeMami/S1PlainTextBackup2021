@@ -3063,3 +3063,44 @@ PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高
 早就有了，我PC，PS5，NS都有的...PC是因为放左边电脑桌上我做床上玩得抬头，主机直接躺着看正面 ...</blockquote>
 纯粹是你显示器放置位置问题把，直接插正面显示器不行么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bazingar  
+##### 282#       发表于 2021-11-12 17:48
+
+<blockquote>hotsmile 发表于 2021-11-12 08:25
+之前不是有人比较过，日本PS5首年的曲线比PS4还好吗？达到100W的时间比PS4短
+
+找到了
+
+</blockquote>
+所以不懂，为何美日欧销量比ps4同时代还要高的ps5，怎么会尽显颓势的
+
+*****
+
+####  JudgmentEye  
+##### 283#       发表于 2021-11-12 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520568&amp;ptid=2037022" target="_blank">bazingar 发表于 2021-11-12 17:48</a>
+
+所以不懂，为何美日欧销量比ps4同时代还要高的ps5，怎么会尽显颓势的</blockquote>
+因为大法作死啊
+
+*****
+
+####  bazingar  
+##### 284#       发表于 2021-11-12 17:59
+
+<blockquote>JudgmentEye 发表于 2021-11-12 15:43
+全球一千多万买ps5的里面至少得有100万只玩ps4免费升级游戏和大法白送的那20个游戏，还有100万每年只买一 ...</blockquote>
+不能自己闷头瞎猜啊，有数据么？最近育碧q2财报，ps平台是第三方游戏销量的主力平台，ps&gt;pc&gt;xbox&gt;ns，PS4/PS5：37%， PC：20%， X1 / XS： 19%， NS： 7%
+
+*****
+
+####  fukc  
+##### 285#       发表于 2021-11-12 18:00
+
+我就好奇ps5主机激活数量是多少，独占游戏销量如何<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
