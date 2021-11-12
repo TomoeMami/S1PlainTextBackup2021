@@ -2020,3 +2020,61 @@ ps5的强制统一x键确认大概也是目前索尼投入pc市场的早期准�
 大家都玩pc，你非要玩游戏机，你就是装逼。
 大家都在国内好好呆着，你非要出国看看外面是啥样，你就是崇洋媚外。
 
+
+
+*****
+
+####  dumplingpro  
+##### 200#       发表于 2021-11-12 11:53
+
+ 本帖最后由 dumplingpro 于 2021-11-12 12:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515548&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 11:42</a>
+
+在中国，小众就是原罪。你跟大家不一样，错的一定就是你。
+
+大家都玩盗版，你非要买正版，你就是有病。
+
+大家 ...</blockquote>
+反过来，PC才是小众游戏的大本营吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就这两个月，自由设计坦克的Sprocket，钢铁咆哮精神续作Waves of Steel，毛子版聊斋斯拉夫民俗文化的黑书，放逐之城LIKE的河狸，毛版辐射的ATOM RPG特鲁多格勒，极乐迪斯科LIKE的骇客神探，画面20年前但高魔奇幻的极乐世界征服者，都是小众爱好的类型。
+
+去年的半条命ALYX、微软飞行2020，博德之门3，今年的正义之怒，明年的维多利亚3，都是典型小众领域配顶尖作品吧，还有什么纪元1800、骑砍2、全战战锤3这种可以用自己游戏名字当游戏类型名字的。
+
+反而还因为小众游戏太多，而老被说没有大众化口味的独占大作。
+
+何况这说的日本……
+
+*****
+
+####  MANU终身为红  
+##### 201#       发表于 2021-11-12 11:59
+
+xbox有近乎白送的xgp，如果纠结于租非得想买断甚至比steam还便宜。ns则有多场景应用，强大第一方，最佳独立游戏平台，独一份的游戏体验。pc优点上面大家都说完了。目前ps是最难找到共情优点的，第一反应就是70刀限时独占，就是又贵又有可替代竞品，不走出真正的特色不知道索粉还能坚持多久了
+
+*****
+
+####  蓮華  
+##### 202#       发表于 2021-11-12 12:02
+
+沙发红酒跑车牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanKiE  
+##### 203#       发表于 2021-11-12 12:03
+
+爬了一下楼，感觉车来车去还是以往那套说辞，这边联机收费那边没有外挂，这边客厅沙发那边电脑接电视，还有什么X确定装mod的，能不能整点新花样？看得乏了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+每个人具体情况都不一样，何况PC配置还五花八门，大而化之地扯，最后的结果只能是鸡同鸭讲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  超赛锡纸烫  
+##### 204#       发表于 2021-11-12 12:05
+
+主文说是因为产能导致供不应求，看这下面的讨论发挥，不知道的还以为次时代ps5卖的一塌糊涂根本没人要买，卖的垫底呢。知道你们对ps很有意见，也不要国粉行为吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
