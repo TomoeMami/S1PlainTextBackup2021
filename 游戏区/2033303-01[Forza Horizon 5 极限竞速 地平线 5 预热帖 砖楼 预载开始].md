@@ -10716,3 +10716,12 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam上玩能不能拿到我的老玩家奖励？ ...</blockquote>
 可以
 
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 975#       发表于 2021-11-12 23:41
+
+这代这傻逼AI别是playground直接照搬FM7的吧，开S2直接被生吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
