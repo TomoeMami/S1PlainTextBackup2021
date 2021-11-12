@@ -2817,3 +2817,84 @@ PC只是因为欧美游戏大量传入，开始正常发展了，之前看日语
 
 自从为了生产力把PC换了之后就对PS5没想法了，反正日厂也不怎么抛弃PS4，P6出来了我估计也有4版
 
+
+
+*****
+
+####  ppa11  
+##### 262#       发表于 2021-11-12 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516628&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 12:52</a>
+
+我不知道你指的是什么对比或者是哪个报告，但pc在全球范围大获全胜这个结论我是得不出来得，在部分地区的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">“这几年的报告基本上一直是pc和主机（微软+索尼+ns）五五开”。。你还没意识到吗，五五开已经是PC崛起后的结果了。。在当年PC可是除了屈指可数的几款游戏，其余全球销量过了10W可称大卖，开发商们生存困难一个个削尖了脑袋往主机业界挤的，日本这边典型的就是光荣和falcom。
+
+“pc上有暴雪，lol，堡垒之夜，csgo开箱这类拉销售额，考虑这点，说明在传统游戏上pc对主机明显是劣势的”
+
+关于这点，根据索尼官方财报，内购收入早就超过实体+下载收入了。。
+
+20财年全年：223.1亿美元（100%）
+
+硬件收入：44.8亿（19.4%）
+
+实体版：12.2亿（5.2%）
+
+数字版：47.2亿（20.4%）
+
+内购（包括内容DLC和游戏内支付）：79.2亿（34.3%）
+
+软件整体：138.7亿（60.0%）
+
+网络服务(应该是PSN会费)：33.2亿（14.4%）
+
+其它：14.1亿（6.1%）
+
+*****
+
+####  ppa11  
+##### 263#       发表于 2021-11-12 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516372&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-12 12:35</a>
+
+单讲游戏画面的话我觉得缩小了，10年前主机一堆540p的，pc已经1080p了，20年前主机一堆480i的 现在虽然主 ...</blockquote>
+关于这点，应该是游戏规模上不去了吧
+
+*****
+
+####  Sissii  
+##### 264#       发表于 2021-11-12 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53510809&amp;ptid=2037022" target="_blank">绿冰 发表于 2021-11-11 23:28</a>
+
+算是日厂逐渐不歧视PC的结果？</blockquote>
+APEX不是在日本都快杀疯了吗，谁还敢歧视PC啊
+
+*****
+
+####  Sissii  
+##### 265#       发表于 2021-11-12 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512520&amp;ptid=2037022" target="_blank">Hidewhite 发表于 2021-11-12 07:37</a>
+
+看这楼PC形势大好，魔幻的让人觉得显卡现在不在溢价。</blockquote>
+现在显卡已经呈现降价趋势了啊，而且今年年底ETH彻底关掉显卡挖矿后，你再看看，PS5还在为产能苦苦挣扎，显卡这边已经初见曙光了
+
+*****
+
+####  黄字  
+##### 266#       发表于 2021-11-12 15:42
+
+<blockquote>Sissii 发表于 2021-11-12 15:40
+现在显卡已经呈现降价趋势了啊，而且今年年底ETH彻底关掉显卡挖矿后，你再看看，PS5还在为产能苦苦挣扎， ...</blockquote>
+什么曙光？前天黄老板宣讲全是ai运算元自动驾驶宇宙的曙光？
+
+*****
+
+####  JudgmentEye  
+##### 267#       发表于 2021-11-12 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518322&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 15:10</a>
+
+林则徐死了快两百年了，有些人还是没能学会睁眼看世界。我即正义，我即权威。合着全球一千多万买ps5的都是 ...</blockquote>
+全球一千多万买ps5的里面至少得有100万只玩ps4免费升级游戏和大法白送的那20个游戏，还有100万每年只买一个cod或一个fifa，别的什么都不买
+

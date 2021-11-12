@@ -2250,3 +2250,70 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知纯情JK pay酱何时能届到
 
+
+
+*****
+
+####  TCone  
+##### 203#       发表于 2021-11-12 15:24
+
+只有可可的幼年体没出现了吧，理论上其他人的孩子都能剪出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 204#       发表于 2021-11-12 15:25
+
+<blockquote>呆毛王嫁给我 发表于 2021-11-12 14:31
+刚才把第三话看完了，很好看啊。
+
+有一种就算在这里完结，也是很不错的短篇作品了的感觉。
+
+这前三话绝对堪称 ...</blockquote>
+看完了的我也是一样的想法（）
+
+*****
+
+####  仟音一心  
+##### 205#       发表于 2021-11-12 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518058&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-12 14:48</a>
+
+昨晚B站给我推了很多鲤鱼的cut，看了一些，挺可爱的，尤其是解释rap那一段很欢乐
+
+我还是觉得吧，这种校园偶 ...</blockquote>
+
+勇士，那就请看下去吧，印象中后面除了第4话删了点后面阿B版应该是没有删减了。
+
+*****
+
+####  仟音一心  
+##### 206#       发表于 2021-11-12 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518509&amp;ptid=2036367" target="_blank">TCone 发表于 2021-11-12 15:24</a>
+只有可可的幼年体没出现了吧，理论上其他人的孩子都能剪出来的</blockquote>
+这母亲一方的基因太强了，不对，两个都是母亲？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 207#       发表于 2021-11-12 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517813&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-12 14:31</a>
+
+刚才把第三话看完了，很好看啊。
+
+有一种就算在这里完结，也是很不错的短篇作品了的感觉。
+
+这前三话绝对堪称 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面不用看了
+
+哦可以看真正的星团之唐可可的诱惑
+
+*****
+
+####  绯想alter2nd  
+##### 208#       发表于 2021-11-12 15:37
+
+可可有JD形态，算……成长期？
+

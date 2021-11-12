@@ -2341,3 +2341,12 @@ syl补下昨天乃宝的抖音推送，这两天疯狂沉迷地平线5，Asoul�
 
 现在一打开B站主页总有合唱的舒伯特玫瑰 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 180#         楼主| 发表于 2021-11-12 15:25
+
+乃琳Queen:[发布动态](https://t.bilibili.com/592058699139952032) <blockquote>好像配音回呼声很高诶~你们想听我念什么台词/句子/文本呀 [tv_点赞][tv_点赞][tv_点赞]</blockquote>
+
