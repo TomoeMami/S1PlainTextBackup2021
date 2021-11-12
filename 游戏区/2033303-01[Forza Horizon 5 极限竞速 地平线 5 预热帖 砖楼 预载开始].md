@@ -10366,3 +10366,19 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 ----发送自 [samsung SM-G9860,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  bad_alloc  
+##### 941#       发表于 2021-11-12 10:29
+
+眼镜蛇头原来ai难度是所向披靡，怪不得ai这么快，开了三把才赢
+
+*****
+
+####  老黑305  
+##### 942#       发表于 2021-11-12 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">今天更新补丁了吗，从5号开始我就没连上线上游戏过
+

@@ -1615,3 +1615,125 @@ pc的机战有啥问题？我都快通了还没遇到
 
 ----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
 
+
+
+*****
+
+####  强尼高达  
+##### 164#       发表于 2021-11-12 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514128&amp;ptid=2037022" target="_blank">TheOccuria 发表于 2021-11-12 10:17</a>
+主要还是现在都是黄牛，原价3800的东西给你卖5k
+
+虽然这今年我基本都是再pc上玩游戏...其实很多游戏我还是 ...</blockquote>
+不应该算冷的知识，电脑有个电源管理模式S3，Windows里叫睡眠，就是你要的东西
+
+电脑实现了20年了，PS出到PSP和PS4才有
+
+*****
+
+####  椎名mahuyo  
+##### 165#       发表于 2021-11-12 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不要说个身边实例？我身边就有那种专门配ITX为了放客厅电视的，那时候电脑显卡价格没涨，花了1W差不多配的机箱，风扇还真换的猫扇
+
+放了几天以后就放回去接显示器了，问他为啥，他说他要还要玩台服冒险岛，还是要个摆在桌子上的
+
+对了，这几天他那ITX主板还坏了，现在正在蛋疼呢
+
+反正我觉得PC机箱接电视这块，你自己研究折腾整个舒服的还可以，但是目前大部分人还是懒的折腾的
+
+*****
+
+####  天悬星河  
+##### 166#       发表于 2021-11-12 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513942&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 10:06</a>
+电视配合电脑最大问题机箱大小和机箱声音，都解决了成本并不低
+
+另外WINDOWS对HDR的支持...懂得都懂 ...</blockquote>
+windows的hdr到底有什么问题你们能不能具体指出来
+我感觉大部分其实是指显示器的问题
+
+*****
+
+####  冬马总冠军  
+##### 167#       发表于 2021-11-12 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514290&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 10:26</a>
+要不要说个身边实例？我身边就有那种专门配ITX为了放客厅电视的，那时候电脑显卡价格没涨，花了1W差 ...</blockquote>
+游戏本接电视倒是方便，就是噪音绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再多配一副蓝牙鼠标键盘更佳
+
+*****
+
+####  银翼的维罗西  
+##### 168#       发表于 2021-11-12 10:32
+
+真的有游戏PC和游戏机的人应该不会有这么多疑惑，游戏机只是独占实在没办法的补充
+
+*****
+
+####  janet_ddr  
+##### 169#       发表于 2021-11-12 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514104&amp;ptid=2037022" target="_blank">liva 发表于 2021-11-12 10:15</a>
+
+屈指可数还行。。我上千小时了天天打PVP，遇到无数次挂，还有经典外挂互相炸我们平民都成炮灰的
+
+经典的oh ...</blockquote>
+我只说我自己的情况，而且我到了PC上也依然在用手柄，KD数还比主机更高了。
+
+除了日常人少外（昨晚上线只有3万多在线），我是觉得比主机舒服，后续能买到XSX也会继续在PC上玩。
+
+*****
+
+####  ffmzsj  
+##### 170#       发表于 2021-11-12 10:40
+
+<blockquote>Kojimaru 发表于 2021-11-12 10:09
+虽说日厂向pc迁移，但好歹在优化上下点功夫
+
+就拿最近出的零濡鸦，机战来说pc都差点意思如果不想折腾 ...</blockquote>
+日厂游戏不上pc的 多半ps5和ps4体验区别不大吧
+
+而且往后越来越偏ns咯
+
+*****
+
+####  强尼高达  
+##### 171#       发表于 2021-11-12 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514290&amp;ptid=2037022" target="_blank">椎名mahuyo 发表于 2021-11-12 10:26</a>
+
+要不要说个身边实例？我身边就有那种专门配ITX为了放客厅电视的，那时候电脑显卡价格没涨，花了1W差 ...</blockquote>
+
+为什么要用一个PS5上玩不到的游戏来说明游戏电脑需要电视书桌两头搬，长了JJ徒生烦恼不如没有对吧
+
+对了，ITX主板坏了保修三年，真过保了还能捡垃圾单独更换，PS5你换换看
+
+*****
+
+####  otaku21126  
+##### 172#       发表于 2021-11-12 10:45
+
+其实日本玩家“转向”真正的原因和PS策略关系不大
+
+PS上的日本游戏，销量也没有断崖式下跌
+
+所谓的“转向”，是PC上突然出现了许多日本玩家，于是索尼困惑于为什么这些玩家没有成为PS的增量
+
+只能说，日本作为原本FPS受大众冷落的市场，在后PUBG时代被网络播客带着终于接受了枪这个全球第一大游戏类型，这是大势所趋
+
+江户幕府可以引进兰学，也可以同时保持大体上的闭关锁国，但都挡不住黑船事件
+
+*****
+
+####  DelayNoMore  
+##### 173#       发表于 2021-11-12 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512020&amp;ptid=2037022" target="_blank">ffmzsj 发表于 2021-11-12 02:01</a>
+大概是因为我真的有一台台式</blockquote>
+配一台有ps5游戏性能的台式跟直接买一台ps5哪个便宜？更不用说ps5不用折腾
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
