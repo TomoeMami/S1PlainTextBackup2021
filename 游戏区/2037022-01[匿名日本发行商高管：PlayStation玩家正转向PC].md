@@ -2779,3 +2779,25 @@ PC只是因为欧美游戏大量传入，开始正常发展了，之前看日语
 
 主机没有独占对很多人来说是完全没有入手的价值的。
 
+
+
+*****
+
+####  牙狼GARO  
+##### 258#       发表于 2021-11-12 14:59
+
+我今年在p5上花的钱，只有死亡搁浅岛演版升级，还有一个双人同行
+其中双人同行我一开始买的steam版，但非要我下一个ea的sb平台，还半天下不下来，问了半天必须要搭梯子，看了下ps5版也就贵个几十，果断退款ps5了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iamsolowingpixy  
+##### 259#       发表于 2021-11-12 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512015&amp;ptid=2037022" target="_blank">培根芝士蛋堡XD 发表于 2021-11-12 01:59</a>
+
+这代pc优势太大了，配完pc之后完全不用买ps5和xbox，然后游戏永远比ps便宜，xgp羊毛也可以直接薅，mod和 ...</blockquote>
+还能用模拟器白嫖NS
+
