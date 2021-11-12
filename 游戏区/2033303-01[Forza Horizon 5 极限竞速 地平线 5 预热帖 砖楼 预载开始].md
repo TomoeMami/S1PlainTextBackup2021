@@ -10783,3 +10783,12 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">除了过关挑战都清了
 <[img src="https://z3.ax1x.com/2021/11/13/Irgv60.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gzGaryC  
+##### 982#       发表于 2021-11-13 01:10
+
+目前跑S1 900的公路赛劲敌感觉Jag的XJR-15跟福特06年的GT都不错，前者极速拉满但是对走线的选择比较严格，后者更好操控但是极速没这么高
+

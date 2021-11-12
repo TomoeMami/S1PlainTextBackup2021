@@ -3424,3 +3424,26 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 
 那你们怎么就不能游戏pc和主机都上让各个玩家自己选择呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">？这样pc玩家和主机玩家都照顾到了赚两家的钱不好吗？不最后还是各种搞主机独占逼人买主机呗，那还说个锤子呢
 
+
+
+*****
+
+####  gutzz  
+##### 315#       发表于 2021-11-13 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53525088&amp;ptid=2037022" target="_blank">雪霜 发表于 2021-11-13 00:22</a>
+那你们怎么就不能游戏pc和主机都上让各个玩家自己选择呢？这样pc玩家和主机玩家都照顾到了赚两家的 ...</blockquote>
+现在ps/xb系还有几个独占啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pc独占的不比这两家主机独占的多一万倍
+
+*****
+
+####  dumplingpro  
+##### 316#       发表于 2021-11-13 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524628&amp;ptid=2037022" target="_blank">满满一大杯 发表于 2021-11-12 23:34</a>
+
+本来就是PC更核心，讲得极端点，再核心点的玩家能用PC自己做MOD甚至自己编游戏自己玩。
+
+论坛大家总觉得“ ...</blockquote>
+STEAM DECK<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

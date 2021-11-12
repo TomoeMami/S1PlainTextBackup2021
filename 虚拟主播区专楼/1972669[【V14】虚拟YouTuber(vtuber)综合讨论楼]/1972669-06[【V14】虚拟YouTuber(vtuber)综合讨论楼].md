@@ -11214,3 +11214,12 @@ fumi的ddd果然穿模严重<img src="https://static.saraba1st.com/image/smiley/
 
 不知道这些吃杏饭的画师有多少最后变成水龙敬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 8316#       发表于 2021-11-13 01:12
+
+彩虹和机动战姬联动了啊，之前黑潮之上还过去不久呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">什么时候到大IP联动呢
+
