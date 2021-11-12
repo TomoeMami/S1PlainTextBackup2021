@@ -2332,3 +2332,12 @@ syl补下昨天乃宝的抖音推送，这两天疯狂沉迷地平线5，Asoul�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  primavera  
+##### 179#       发表于 2021-11-12 10:59
+
+现在一打开B站主页总有合唱的舒伯特玫瑰 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

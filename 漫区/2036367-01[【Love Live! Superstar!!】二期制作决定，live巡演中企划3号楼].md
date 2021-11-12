@@ -1865,3 +1865,14 @@ Payton尚未→安娜（吃瘪，假西洋人）
 
 这水军的活儿做得糙了点，暴露的话风评应该会下跌得很厉害<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 169#       发表于 2021-11-12 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514258&amp;ptid=2036367" target="_blank">saya1892 发表于 2021-11-12 10:24</a>
+不知为何最近拉板一天一个鲤鱼帖，都是在陈述她的古参身份啊，异国打拼的艰辛啊，虽然也有杂志访谈、经纪人 ...</blockquote>
+还好吧……内容又不是假的，因疫情失业也有视频。
+

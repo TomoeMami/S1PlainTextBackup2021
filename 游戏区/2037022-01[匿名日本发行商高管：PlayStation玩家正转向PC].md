@@ -1737,3 +1737,103 @@ PS上的日本游戏，销量也没有断崖式下跌
 
 —— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  DelayNoMore  
+##### 174#       发表于 2021-11-12 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512015&amp;ptid=2037022" target="_blank">培根芝士蛋堡XD 发表于 2021-11-12 01:59</a>
+这代pc优势太大了，配完pc之后完全不用买ps5和xbox，然后游戏永远比ps便宜，xgp羊毛也可以直接薅，mod和 ...</blockquote>
+ps5玩游戏成本也就几十块，还是最新的游戏，实体盘买回来通关或者白金后卖掉就是了
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  DelayNoMore  
+##### 175#       发表于 2021-11-12 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512026&amp;ptid=2037022" target="_blank">升职加薪 发表于 2021-11-12 02:02</a>
+多花点钱买体验</blockquote>
+这个多是个无底洞
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  DelayNoMore  
+##### 176#       发表于 2021-11-12 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512044&amp;ptid=2037022" target="_blank">培根芝士蛋堡XD 发表于 2021-11-12 02:09</a>
+即使看外区，pc依然是最便宜的平台，平台多，steam，epic，烂橘子等等等折扣多种多样，最关键还不用为联 ...</blockquote>
+所谓联机付费就是psn+？那咋不说每月都送游戏呢，也不缺大作，而且主机的联机环境是外挂遍地走的pc能比的？
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ffmzsj  
+##### 177#       发表于 2021-11-12 10:50
+
+<blockquote>DelayNoMore 发表于 2021-11-12 10:48
+所谓联机付费就是psn+？那咋不说每月都送游戏呢，也不缺大作，而且主机的联机环境是外挂遍地走的pc能比的 ...</blockquote>
+我ps4到家当天晚上硬是连wifi都连不上 第二天奇迹般好了
+
+然后联机先掉线一堆人
+
+*****
+
+####  ffmzsj  
+##### 178#       发表于 2021-11-12 10:51
+
+<blockquote>DelayNoMore 发表于 2021-11-12 10:45
+配一台有ps5游戏性能的台式跟直接买一台ps5哪个便宜？更不用说ps5不用折腾
+
+—— 来自 Xiaomi M2102K1C,  ...</blockquote>
+但是我这台配的时候ps5还没出啊 而且就算出了我还要打dota 不可能一台游戏pc都没有啊
+
+*****
+
+####  LrGsite  
+##### 179#       发表于 2021-11-12 10:54
+
+没有独占游戏是这样的啦，ps5我到现在都没有买，出个血源2可以入手
+
+*****
+
+####  升职加薪  
+##### 180#       发表于 2021-11-12 10:59
+
+ 本帖最后由 升职加薪 于 2021-11-12 11:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514648&amp;ptid=2037022" target="_blank">DelayNoMore 发表于 2021-11-12 10:47</a>
+
+这个多是个无底洞
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+怎么是无底洞了，我98年第一台电脑5-6年换一次电脑
+
+同期三家主机加起来一点不便宜好吧
+
+总是拿一台主机和PC比
+
+比市场比销量就是主机算一起
+
+买机器算成本就各算各的
+
+
+
+*****
+
+####  dumplingpro  
+##### 181#       发表于 2021-11-12 11:03
+
+ 本帖最后由 dumplingpro 于 2021-11-12 11:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514346&amp;ptid=2037022" target="_blank">冬马总冠军 发表于 2021-11-12 10:30</a>
+
+游戏本接电视倒是方便，就是噪音绷不住再多配一副蓝牙鼠标键盘更佳 ...</blockquote>
+其实个人更喜欢串流方案。以前还买过steam那个串流盒。
+
+现在智能电视/机顶盒流行，下个APP就行了，还能顺便串手机，实现显示器电视手机三屏统一（你买了Quest2 VR一体机还能4屏一统，直接躺沙发），从沙发到厕所再到床上无缝切换游戏都不用关。
+
