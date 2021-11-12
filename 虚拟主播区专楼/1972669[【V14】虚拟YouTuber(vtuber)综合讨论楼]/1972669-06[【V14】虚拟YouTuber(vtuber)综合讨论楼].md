@@ -10935,3 +10935,14 @@ Twitterアカウント：[https://twitter.com/otoha_ks](https://twitter.com/otoh
 
 制作：maxilla
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8299#       发表于 2021-11-12 11:38
+
+是……是索尼大法，这动画开头一股啊库耐兹的味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说角色原案怎么没搬过来？
+

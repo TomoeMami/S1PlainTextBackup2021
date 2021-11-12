@@ -1975,3 +1975,48 @@ pc手柄也是x键位置确认</blockquote>
 
 后面只能抱着价格优势随波逐流了。
 
+
+
+*****
+
+####  老黑305  
+##### 196#       发表于 2021-11-12 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515315&amp;ptid=2037022" target="_blank">ffmzsj 发表于 2021-11-12 11:26</a>
+那是微软的a键确认 微软也没半中间改啊</blockquote>
+原本x键确认就是迎合欧美市场a键确认的习惯嘛，ps5之前的欧美版游戏很多就这样了
+ps5的强制统一x键确认大概也是目前索尼投入pc市场的早期准备
+
+*****
+
+####  强尼高达  
+##### 197#       发表于 2021-11-12 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515031&amp;ptid=2037022" target="_blank">refiver 发表于 2021-11-12 11:10</a>
+你们为啥一直要炮轰PS5……
+
+我觉得不想配高配电脑的PS5也绝对够用了，不至于有厂商非要跨时代开发PS5都带不 ...</blockquote>
+为什么要炮轰任天堂，本世代仅存的掌机和仅存的右确定主机
+我最多黑黑傻逼任天堂机器上出个机器人大战都要阉割而已
+
+*****
+
+####  猫不萌  
+##### 198#       发表于 2021-11-12 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513350&amp;ptid=2037022" target="_blank">wujae 发表于 2021-11-12 09:25</a>
+都是臭打游戏的，你们怎么咋这么多时间和精力折腾电脑
+
+7千多买的DELL G15，玩个地平线5，一开始折腾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">你用xbox玩一样闪退
+
+*****
+
+####  pencilnoo  
+##### 199#       发表于 2021-11-12 11:42
+
+在中国，小众就是原罪。你跟大家不一样，错的一定就是你。
+大家都玩盗版，你非要买正版，你就是有病。
+大家都玩pc，你非要玩游戏机，你就是装逼。
+大家都在国内好好呆着，你非要出国看看外面是啥样，你就是崇洋媚外。
+

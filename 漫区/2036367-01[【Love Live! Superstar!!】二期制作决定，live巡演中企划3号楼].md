@@ -1899,3 +1899,59 @@ LIVE才刚开始，加上她个人访谈也是刚放出来，现在刚好是热�
 
 虽然但是，放水军应该也不会去5ch吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  megapikachu  
+##### 173#       发表于 2021-11-12 11:38
+
+真要放水军，也是去推特啊，去5ch，够干啥呢。
+
+*****
+
+####  saya1892  
+##### 174#       发表于 2021-11-12 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514626&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-12 10:45</a>
+
+还好吧……内容又不是假的，因疫情失业也有视频。</blockquote>
+观感还是会很差吧，他们不开一个鲤鱼专楼集中在里面讨论，而是这样一天一个帖，点进去还总是些一样的话术，给人的感觉就是病人出来乱跑了
+
+我也喜欢看别人吹鲤鱼，但不能因为这样就复制粘贴啊
+
+*****
+
+####  秋月艾莉  
+##### 175#       发表于 2021-11-12 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514258&amp;ptid=2036367" target="_blank">saya1892 发表于 2021-11-12 10:24</a>
+
+不知为何最近拉板一天一个鲤鱼帖，都是在陈述她的古参身份啊，异国打拼的艰辛啊，虽然也有杂志访谈、经纪人 ...</blockquote>
+韩国人都能扒到鲤鱼的早期微博照，你是不是对日产挖掘机的能力有什么误解hhh
+
+另外都这么关注拉板了还不知道we must protect xx跟🔥🔥🔥一样是固定句式的化用吗
+
+原句是we must protect payton啊
+
+*****
+
+####  cybernetics31  
+##### 176#       发表于 2021-11-12 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱不也是日常夸她嘛
+
+*****
+
+####  名津流  
+##### 177#       发表于 2021-11-12 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53499305&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-11 08:47</a>
+
+鲤鱼啊，昨晚睡前在INS上发了抽出可可UR的图，居然没在微博炫耀
+
+说她推上点赞好像得第一时间回复，而且也 ...</blockquote>
+INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么我去liyuu的ins主页看不到这个，从她发在推特的链接点进去也直接跳到个人主页
+
+之前就觉得ins一直用起来怪怪的，小百合那边也是要在个人主页点头像能看到她看到她最近发的短视频，而下方的帖子列表里却没有，也没有过往视频列表
+

@@ -19565,3 +19565,17 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 那样的话，第一季尾声就开始吃瘪，第一季结局更是直接崩溃了。第二季开头是逃走和连续吃瘪……停在这里也太噩梦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 除非第二季的叙事做调整，不然这男主几乎就只有拉垮的印象能留下了。虽然确实一到大事儿就拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  piofg  
+##### 1364#       发表于 2021-11-12 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53507349&amp;ptid=1860817" target="_blank">Kuroe 发表于 2021-11-11 18:47</a>
+
+游戏的第三节整个砍掉的情况下，四话（第一话不算）做到了第五节中“霞的真实身份”这个部分。
+
+感觉这速度 ...</blockquote>
+章节的分配其实是基于蒔島梓的漫画版，可以看看漫画
+

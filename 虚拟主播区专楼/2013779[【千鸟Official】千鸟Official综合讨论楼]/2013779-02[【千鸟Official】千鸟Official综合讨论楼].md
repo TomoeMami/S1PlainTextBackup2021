@@ -7333,3 +7333,19 @@ gn真下头.jpg
 
 贴吧已经到了“放过自己”版本，不得不说，立刻白破防的理由比静栗惹还怪<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2296#       发表于 2021-11-12 11:31
+
+有当年脆鲨嗷一下就疯了的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2297#       发表于 2021-11-12 11:34
+
+现在除了琳一直没直播以外，剩下的人，包括直播员、运营、官方、粉丝，已经是全员恶人、全员梁木的状态了。等一个琳电台直播，把最后一块补齐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
