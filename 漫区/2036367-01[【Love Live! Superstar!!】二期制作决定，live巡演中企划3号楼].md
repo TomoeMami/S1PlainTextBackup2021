@@ -2084,3 +2084,32 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了半天就记得几个说你鲤鱼姐平板的
 
+
+
+*****
+
+####  仟音一心  
+##### 187#       发表于 2021-11-12 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516817&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2021-11-12 13:10</a>
+看了半天就记得几个说你鲤鱼姐平板的</blockquote>
+记得早年e站上一堆怀疑是伪娘的
+
+*****
+
+####  lj205  
+##### 188#       发表于 2021-11-12 13:31
+
+我没觉得有那么不堪啊~<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 189#       发表于 2021-11-12 13:35
+
+ 本帖最后由 chenflyyy 于 2021-11-12 13:37 编辑 
+
+你鲤鱼姐的平板在一众知名coser中属于一股清流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其实还好，就是东亚平均水平吧，几张泳装照还是可以看得出来还是有点料
+这话题在你楼也是日常提起了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
