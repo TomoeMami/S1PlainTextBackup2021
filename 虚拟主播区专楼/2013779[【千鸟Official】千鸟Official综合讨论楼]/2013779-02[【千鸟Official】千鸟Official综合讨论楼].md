@@ -7550,3 +7550,55 @@ SYL，要滚的话最近就在预备毕业文了。反正一天天逼近终局�
 
 白白今日动态，本周直播计划：2060游戏配音回<img src="https://p.sda1.dev/3/bb9c0e3df31c09edc522bba7553e0fff/IMG_CMP_103570757.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2318#       发表于 2021-11-12 21:55
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-12 21:57 编辑 
+
+艾白咋了，我在看2060，突然听说开炮了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl这时候还在夹，艾白还是很敬业的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 2319#       发表于 2021-11-12 21:56
+
+好像白白在讲私信问题
+
+*****
+
+####  希克苏鲁伯  
+##### 2320#       发表于 2021-11-12 21:58
+
+点名批评人之初
+
+*****
+
+####  夜之中道崩殂  
+##### 2321#       发表于 2021-11-12 21:59
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-12 22:01 编辑 
+
+指名道姓说的应该是魔男和悠木吧<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+魔男确实，上次开琦玉也被艾白训了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 2322#       发表于 2021-11-12 22:02
+
+看了一晚上团播，你们又整了啥活？
+
+*****
+
+####  夜之中道崩殂  
+##### 2323#       发表于 2021-11-12 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53523544&amp;ptid=2013779" target="_blank">H2Ofrozen 发表于 2021-11-12 22:02</a>
+看了一晚上团播，你们又整了啥活？</blockquote>
+团播是吧，🐶🐦🗡
+

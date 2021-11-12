@@ -2729,3 +2729,14 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人体普遍是18岁左右骨骺线开始闭合到20出头停止生长，但这玩意儿存在个体差异，受基因影响大，另外和生活习惯也有一点关系...不过19岁这个身高哪怕再长应该也不会高到哪儿去了（悲）
 
+
+
+*****
+
+####  lj205  
+##### 246#       发表于 2021-11-12 21:59
+
+[https://m.weibo.cn/2093694492/4702816226251165](https://m.weibo.cn/2093694492/4702816226251165)
+
+妈的啊<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
