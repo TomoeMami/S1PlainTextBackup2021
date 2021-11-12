@@ -10763,3 +10763,23 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">老手三连战我是真的跑不过，摆烂了
 
+
+
+*****
+
+####  fanisy  
+##### 980#       发表于 2021-11-13 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524390&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-12 23:08</a>
+
+可以</blockquote>
+好的感谢，微软商店抽风我怕了
+
+*****
+
+####  nemunoki  
+##### 981#       发表于 2021-11-13 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">除了过关挑战都清了
+<[img src="https://z3.ax1x.com/2021/11/13/Irgv60.png" referrerpolicy="no-referrer">
+
