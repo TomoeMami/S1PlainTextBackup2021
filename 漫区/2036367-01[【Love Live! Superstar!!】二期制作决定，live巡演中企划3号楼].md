@@ -2133,3 +2133,69 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 
 好奇其他4人看鲤鱼以前的COS会是什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 192#       发表于 2021-11-12 14:31
+
+刚才把第三话看完了，很好看啊。
+
+有一种就算在这里完结，也是很不错的短篇作品了的感觉。
+
+这前三话绝对堪称优秀了。
+
+*****
+
+####  仟音一心  
+##### 193#       发表于 2021-11-12 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517813&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-12 14:31</a>
+刚才把第三话看完了，很好看啊。
+
+有一种就算在这里完结，也是很不错的短篇作品了的感觉。
+
+这前三话绝对堪称 ...</blockquote>
+现在可以考虑要不要补了，一定会失望的。
+
+*****
+
+####  cybernetics31  
+##### 194#       发表于 2021-11-12 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517813&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-12 14:31</a>
+刚才把第三话看完了，很好看啊。
+
+有一种就算在这里完结，也是很不错的短篇作品了的感觉。
+
+这前三话绝对堪称 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">珍惜现在的美好感受
+
+*****
+
+####  lj205  
+##### 195#       发表于 2021-11-12 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517813&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-12 14:31</a>
+
+刚才把第三话看完了，很好看啊。
+
+有一种就算在这里完结，也是很不错的短篇作品了的感觉。
+
+这前三话绝对堪称 ...</blockquote>
+那你不如就直接在这里完结吧~
+
+*****
+
+####  cybernetics31  
+##### 196#       发表于 2021-11-12 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517813&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-12 14:31</a>
+刚才把第三话看完了，很好看啊。
+
+有一种就算在这里完结，也是很不错的短篇作品了的感觉。
+
+这前三话绝对堪称 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以直接转官延区看中之人生放了
+

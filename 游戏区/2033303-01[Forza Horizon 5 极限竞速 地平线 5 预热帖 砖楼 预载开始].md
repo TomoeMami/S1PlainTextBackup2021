@@ -10429,3 +10429,12 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 另外怎么感觉这网完全没修好
 
+
+
+*****
+
+####  aaronluray  
+##### 948#       发表于 2021-11-12 14:29
+
+我倒是打线上没啥问题了，但是看别人还是有疯狂掉的。刚刚打的游乐场才打到第二轮对方就掉了两个，最后干脆变成了对方一个对我们四个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，于是大家集体划起了水
+
