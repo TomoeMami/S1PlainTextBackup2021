@@ -7245,3 +7245,21 @@ nmd为什么我不会唱歌，我也好想投稿啊<img src="https://static.sara
 
 gn真的是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  长谷川红叶  
+##### 2287#       发表于 2021-11-12 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53509479&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-11 21:23</a>
+文静如果回唱内桑的那首回去，我必🥜👿</blockquote>
+想开点，，万一下一步就是stf代唱给3.0预热呢？
+
+*****
+
+####  伞沢直美  
+##### 2288#       发表于 2021-11-12 08:20
+
+gn真下头.jpg
+

@@ -826,3 +826,87 @@ ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5�
 
 PS5游戏还更贵<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Bruce33  
+##### 89#       发表于 2021-11-12 08:04
+
+经典红酒沙发和盗版论都来了，典中典
+
+*****
+
+####  塔奇克马  
+##### 90#       发表于 2021-11-12 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512539&amp;ptid=2037022" target="_blank">强尼高达 发表于 2021-11-12 07:43</a>
+你玩什么高级游戏啊最低配置ADL+DDR5？</blockquote>
+确实，而且ddr5在adl并不比ddr4玩游戏有优势更重要的是pc如果只是玩3a，10代或者3600这代也能对付几年，穷b还可以去当辣鸡佬6c12t超一超大概cpu+板 700左右。
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  zonker  
+##### 91#       发表于 2021-11-12 08:07
+
+如果战神2出的时候这黄牛价能跌回正常区间，也不是不可以买啦
+
+*****
+
+####  椎名mahuyo  
+##### 92#       发表于 2021-11-12 08:10
+
+我平时玩ps和ns版版纯粹是因为能在床上玩，pc我上班时候都坐8小时，回家了不想在那么坐在桌子前面了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  haruhiismer  
+##### 93#       发表于 2021-11-12 08:18
+
+而且pc还是生产力工具啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gutzz  
+##### 94#       发表于 2021-11-12 08:19
+
+ 本帖最后由 gutzz 于 2021-11-12 08:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512527&amp;ptid=2037022" target="_blank">黄字 发表于 2021-11-12 07:40</a>
+ps5国行都快没什么加价了。倒是显卡加价加上12代酷睿和ddr5，以前是ps5两倍价格现在都要三倍四倍了。 ...</blockquote>
+1楼不是在讨论国外的情况嘛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">日本我不知道，反正美国这我蹲了三个月都没能蹲到正常价格的ps5，ebay动不动炒上700刀还有成交记录
+
+*****
+
+####  九十九忍  
+##### 95#       发表于 2021-11-12 08:19
+
+光看这贴我还以为现在显卡原价随便买了
+
+*****
+
+####  路西恩  
+##### 96#       发表于 2021-11-12 08:20
+
+近两年颓势尽显的两家游戏公司
+一个暴雪
+一个索尼
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hotsmile  
+##### 97#       发表于 2021-11-12 08:25
+
+ 本帖最后由 hotsmile 于 2021-11-12 08:26 编辑 
+
+之前不是有人比较过，日本PS5首年的曲线比PS4还好吗？达到100W的时间比PS4短
+

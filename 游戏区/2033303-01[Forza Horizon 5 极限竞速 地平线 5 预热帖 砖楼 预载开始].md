@@ -10322,3 +10322,14 @@ Quinn
 xsx手柄的截图键可以用了，我也不知道是啥时候更新的。</blockquote>
 是WIN11现在这个预览版本提供了手柄驱动
 
+
+
+*****
+
+####  Lisylfn  
+##### 937#       发表于 2021-11-12 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504922&amp;ptid=2033303" target="_blank">坂上斗真 发表于 2021-11-11 15:42</a>
+问一个设置问题，我是双显示器，想让游戏运行在第二个4k显示器上，但是设置里面没有找到选项，虽然可以在开 ...</blockquote>
+win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
+
