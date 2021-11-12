@@ -7528,3 +7528,25 @@ SYL，要滚的话最近就在预备毕业文了。反正一天天逼近终局�
 
 白白也动了，今天就文静没动<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Finsty  
+##### 2316#       发表于 2021-11-12 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53522115&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-12 20:12</a>
+一想到文静本来踌躇满志地走进原力，满心期盼着可以凭借成绩和努力打动公司。
+
+她想着家中嗷嗷待哺的静栗惹 ...</blockquote>
+再写个5元的，就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gawain039  
+##### 2317#       发表于 2021-11-12 21:06
+
+白白今日动态，本周直播计划：2060游戏配音回<img src="https://p.sda1.dev/3/bb9c0e3df31c09edc522bba7553e0fff/IMG_CMP_103570757.png" referrerpolicy="no-referrer">
+

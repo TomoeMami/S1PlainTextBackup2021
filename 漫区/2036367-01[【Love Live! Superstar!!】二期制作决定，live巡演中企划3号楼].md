@@ -2711,3 +2711,12 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子才19岁，应该还有丢丢希望能长高吧 ...</blockquote>
 现在多吃点好好锻炼说不定还能长一厘米多，不过一般高中之后几乎都定型了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TTAA  
+##### 244#       发表于 2021-11-12 21:14
+
+大姑娘都是15、6岁就停止发育了，sayu这……
+

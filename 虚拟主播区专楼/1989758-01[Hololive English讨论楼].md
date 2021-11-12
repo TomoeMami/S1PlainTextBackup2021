@@ -23590,3 +23590,21 @@ Grand Theft Ame is back <img src="https://static.saraba1st.com/image/smiley/face
 
 mumei在哪个时区啊。。
 
+
+
+*****
+
+####  M1NG  
+##### 1467#       发表于 2021-11-12 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520383&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-11-12 17:34</a>
+
+mumei在哪个时区啊。。</blockquote>
+根据：（1）浓烈的西班牙口音（油管的自动翻译经常识别成西语..）和熟练西班牙语知识
+
+（2）开播时间一般在早上10点，推特开始活动时间一般在早上3点
+
+（3）所在地实行夏令时
+
+推测应该是美南，德州或者加州这类西班牙语盛行的地方（西七区、西八区）
+

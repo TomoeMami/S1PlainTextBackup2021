@@ -3341,3 +3341,22 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 这贴战起来不奇怪，奇怪的是居然是混战</blockquote>
 本来和谐讨论的结果跑进来个宛平南路600号
 
+
+
+*****
+
+####  夏延  
+##### 307#       发表于 2021-11-12 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53522741&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 20:56</a>
+
+因为你身边的例子跟全球销量没关系啊！全中国都喜欢玩pc也跟全球游戏机市场没关系啊！叫你睁眼看世界你却又 ...</blockquote>
+所以让你看一眼本贴标题，真的鸡同鸭讲我不浪费时间了
+
+*****
+
+####  Kabine  
+##### 308#       发表于 2021-11-12 21:19
+
+高FPS高刷新，主机还在抠抠索索全程60FPS
+
