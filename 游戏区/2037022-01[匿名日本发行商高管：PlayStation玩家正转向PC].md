@@ -3280,3 +3280,12 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 子非鱼，安知鱼之乐？三巨头有谁真把大陆当成重要市场的？你销量占全球几成啊就在这儿指点江山。还你身边的 ...</blockquote>
 御三家总计三亿台，其他七十亿不算人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pencilnoo  
+##### 301#       发表于 2021-11-12 20:02
+
+又来了，不是说好谈游戏销量吗？自己把自己不当人可还行
+
