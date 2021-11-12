@@ -3537,3 +3537,38 @@ valve也不可能强制要求用这个api，但另一方面，steam这好歹还�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然V社做坑了不少玩意，但是个人觉得发展的大方向还是没啥问题，说不定未来SteamMachine还会重回战场。
 
+
+
+*****
+
+####  4869Bi  
+##### 324#       发表于 2021-11-13 06:13
+
+ 本帖最后由 4869Bi 于 2021-11-13 06:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526144&amp;ptid=2037022" target="_blank">传说中的天才 发表于 2021-11-13 05:39</a>
+
+游戏PC相对主机最大的矛盾在于性价比和不折腾之间有着无法逾越的鸿沟，也就是Windows。
+
+以前Valve也做过St ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人指望Linux比Windows“不折腾”23333
+
+当然g胖可以抛弃上百万种硬件组合，拿兼容性换稳定性，那么问题来了：为什么早就这么干的MacOS没能在游戏生态干翻Windows？
+
+*****
+
+####  满满一大杯  
+##### 325#       发表于 2021-11-13 06:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526098&amp;ptid=2037022" target="_blank">BRRM 发表于 2021-11-13 04:46</a>
+费劲在哪，我觉得这个所谓的“费劲”其实是一个习惯性的借口，经不起推敲，更可能是长期以来（防和谐）的 ...</blockquote>
+不要对我说，对（日本）市场说。如果你觉得一个产品哪怕需要消费者花一丁点成本“学习”，那也一定会被更加“不用学习”的产品抢掉一大片生意。
+
+*****
+
+####  满满一大杯  
+##### 326#       发表于 2021-11-13 06:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526124&amp;ptid=2037022" target="_blank">920619lqy 发表于 2021-11-13 05:15</a>
+其实我觉得类似的理由如果直接说是懒还是可以理解的，说是难那就是在说自己放弃思考了 ...</blockquote>
+人类生意的绝大多数都是建立在“懒”上的。我的意思就是当今游戏机还有市场，主要原因就是还有懒人。你觉得游戏机到PC是1+1到2+3，毫无压力，对懒人来说是初等数学到高等数学。当然高等数学也很简单，但懒人不会觉得简单，特别是初等数学已经够用的情况下，哪怕是勉强。
+
