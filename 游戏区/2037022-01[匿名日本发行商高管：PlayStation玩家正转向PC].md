@@ -1170,3 +1170,193 @@ PC离得近，字看不清拿近点就好，PS调整起来太麻烦
 我还记得以前win10 uwp刚出时 ...</blockquote>
 等PC禁止编程就有希望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wujae  
+##### 123#       发表于 2021-11-12 09:25
+
+都是臭打游戏的，你们怎么咋这么多时间和精力折腾电脑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+7千多买的DELL G15，玩个地平线5，一开始折腾闪退问题不说，画面也完全打不过XSX，想达到差不多估计的RTX3070以上吧。现在的显卡溢价……你游戏版是真的有钱<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+我这种懒人不喜欢折腾画质选项，对MOD也没什么追求，以后大概还是玩游戏主机为主吧。PC玩玩模拟器，老游戏算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新八  
+##### 124#       发表于 2021-11-12 09:25
+
+今早PS5亚马逊放货是真的一秒没，这情况PS5能有影响才是怪事
+
+*****
+
+####  仰天犹恨雨无锋  
+##### 125#       发表于 2021-11-12 09:26
+
+一个不被别人打扰的客厅属于是顶级奢侈品，比买台pc贵多了
+
+*****
+
+####  嘉术2015  
+##### 126#       发表于 2021-11-12 09:27
+
+游戏界的黑船事件了属于是
+
+*****
+
+####  冬马总冠军  
+##### 127#       发表于 2021-11-12 09:28
+
+pc外挂是真的烦，又解决不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除此之外pc优势真的太多了。
+
+*****
+
+####  JudgmentEye  
+##### 128#       发表于 2021-11-12 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512993&amp;ptid=2037022" target="_blank">神道设教 发表于 2021-11-12 08:51</a>
+
+你说你的这种方案游戏内的ui和qte能改过来吗？</blockquote>
+改按键映射的绝大部分游戏都ok，互换图标的看游戏设计，有的游戏ui和qte用的两套图标，这种需要单独改
+
+*****
+
+####  janet_ddr  
+##### 129#       发表于 2021-11-12 09:29
+
+这贴有些人对PC的认知真是狭隘的可笑，现在steam上大量的玩家依然停留在N家10系的显卡上，20和30系的玩家是少数。
+
+真没必要提到PC就非要顶配，大部分人买PC在现在这个环境下都是为了多方面兼顾的，视频、上网和游戏。买块主流卡就行，就算是溢价也在可接受范围（比起价格还不如担心咸鱼上可能买到矿卡呢）
+
+所以游戏厂商自然也是这样考虑的，他们想要让销量最大化也自然要把推荐配置落在主流玩家的范围内，除非自己跟销量过不去。
+
+就算是3A游戏在主流卡范围内也是可以将效果开到中或高，分辨率从1080-4K都有。
+
+我自己用的就是A卡RX580，在显卡天梯上就比1060高一点点。去年的2077在后来DF的优化指导下能在4K中特效稳30帧；刚发售的地平线5也能在4K中特效下稳60帧，高特效下稳50帧。
+
+*****
+
+####  JudgmentEye  
+##### 130#       发表于 2021-11-12 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513144&amp;ptid=2037022" target="_blank">阿萨托斯 发表于 2021-11-12 09:08</a>
+
+买个懒人桌就解决的事儿
+
+PC离得近，字看不清拿近点就好，PS调整起来太麻烦
+
+但是PC最大的毛病就是手柄默认X ...</blockquote>
+傻逼大法的历史问题，毕竟94年还没win95
+
+*****
+
+####  冬马总冠军  
+##### 131#       发表于 2021-11-12 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513411&amp;ptid=2037022" target="_blank">janet_ddr 发表于 2021-11-12 09:29</a>
+这贴有些人对PC的认知真是狭隘的可笑，现在steam上大量的玩家依然停留在N家10系的显卡上，20和30系的玩家是 ...</blockquote>
+中高画质1080p 60帧玩起来蛮舒服的，大多数游戏都能到这个区间，配合ssd读盘玩起来也不错，比ps4x1好多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  404489039  
+##### 132#       发表于 2021-11-12 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513350&amp;ptid=2037022" target="_blank">wujae 发表于 2021-11-12 09:25</a>
+都是臭打游戏的，你们怎么咋这么多时间和精力折腾电脑
+
+7千多买的DELL G15，玩个地平线5，一开始折腾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">5k买个显卡可以玩3d mark 甜甜圈
+5k买个PS5吃灰
+
+*****
+
+####  black  
+##### 133#       发表于 2021-11-12 09:34
+
+念叨沙发红酒前先去三甲做个核磁吧，呵呵厚
+
+*****
+
+####  trentswd  
+##### 134#       发表于 2021-11-12 09:34
+
+ 本帖最后由 trentswd 于 2021-11-12 09:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512101&amp;ptid=2037022" target="_blank">oskneo 发表于 2021-11-12 02:37</a>
+
+你的体验还要自己慢慢拼硬件的。
+
+然后又一年换一次，一年刷一次猴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">停一下 哪里需要一年换一次
+
+我显卡五年多没换了，目前游戏都能2k30帧以上，不少还能稳定60帧
+
+其实现在游戏都是跟着主机走的，跟着主机换就行了
+
+*****
+
+####  KR19  
+##### 135#       发表于 2021-11-12 09:37
+
+PS 出到现在 我就完了破晓传说，还是玩的PS4版，因为可以用save wizard
+
+*****
+
+####  Bojenkins  
+##### 136#       发表于 2021-11-12 09:39
+
+红酒沙发，客厅文化，物美价廉，pc休矣
+
+*****
+
+####  强尼高达  
+##### 137#       发表于 2021-11-12 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513144&amp;ptid=2037022" target="_blank">阿萨托斯 发表于 2021-11-12 09:08</a>
+买个懒人桌就解决的事儿
+
+PC离得近，字看不清拿近点就好，PS调整起来太麻烦
+
+但是PC最大的毛病就是手柄默认X ...</blockquote>
+你说的这个毛病根本不是毛病，PC还有希望改，PS5看不到希望
+
+*****
+
+####  椎名mahuyo  
+##### 138#       发表于 2021-11-12 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5K买个PS5玩游戏效果比你现在5000买个PC机箱效果还是好点吧
+
+当然你说你要玩PC上面的独占游戏那没法子了
+
+不过有一说一现在就算是STEAM国区的价格也确实比索尼港服那些主机游戏价格便宜，还能用风大师，这个算PC大优势了
+
+*****
+
+####  暴走机关车  
+##### 139#       发表于 2021-11-12 09:42
+
+为什么谈到主机就是客厅沙发？你们房间都没有电视的吗？
+
+*****
+
+####  光宗薫  
+##### 140#       发表于 2021-11-12 09:43
+
+上半年买的ps5一个游戏都没打通，天天就在NS上打splatoon和在pc上玩xgp<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+ps5游戏倒是买了个审判之逝，但是开个头就不想打了
+
+*****
+
+####  黄字  
+##### 141#       发表于 2021-11-12 09:44
+
+<blockquote>强尼高达 发表于 2021-11-12 08:52
+PC接到电视为什么要3米的线？你PS5需要3米线吗？
+
+PS5能摆在电视面前接电视，电脑为什么不行呢 ...</blockquote>
+你有多大的房间在电脑桌放c1这样尺寸的显示器？当然你要和我一样电视机下面一台电脑专门玩游戏办公家用电脑再放电脑桌也无所谓。抬杠谁不会呢？
+
