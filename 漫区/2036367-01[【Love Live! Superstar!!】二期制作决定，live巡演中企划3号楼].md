@@ -2113,3 +2113,14 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 其实还好，就是东亚平均水平吧，几张泳装照还是可以看得出来还是有点料
 这话题在你楼也是日常提起了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 190#       发表于 2021-11-12 14:01
+
+说起来，企划里真的有大的么，记得公认几个身材好的也只是匀称，胸大是没有。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

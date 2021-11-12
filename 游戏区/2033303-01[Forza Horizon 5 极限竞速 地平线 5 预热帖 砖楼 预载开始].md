@@ -10409,3 +10409,23 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  makece  
+##### 946#       发表于 2021-11-12 13:50
+
+从四玩到五还是不会漂移赛，用一样的调教看视频别人全程扭来扭曲拿分我只有弯道能拿点分。
+
+有什么从0到1式的技巧吗？我手柄手动档除ABS无辅助
+
+*****
+
+####  -SLSL-  
+##### 947#       发表于 2021-11-12 13:59
+
+我也不会玩漂移，挣扎了好久终于过了9w分了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+另外怎么感觉这网完全没修好
+

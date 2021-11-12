@@ -7413,3 +7413,33 @@ syl 我也不会，今天刚学的，我其实觉得这首歌不咋好听，但�
 
 陈珺是对的，粉丝给直播员压力，直播员只能自己找法子减压，co宝选择了盘核桃
 
+
+
+*****
+
+####  小憨1  
+##### 2304#       发表于 2021-11-12 13:51
+
+我声线太低，这歌唱是能唱，但唱上去之后会显得气虚，想了想还是不投稿了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 2305#       发表于 2021-11-12 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515748&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-12 11:56</a>
+
+除了白白还有谁明牌看贴吧的吗</blockquote>
+为什么总是在乎直播员看不看论坛看哪个论坛呢
+
+又想起昨天单播弹幕问平时在哪冲浪小然的回应，只能说然来背负真是当之无愧
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝白胖者  
+##### 2306#       发表于 2021-11-12 14:03
+
+周杰伦或者许嵩还行，林俊杰姬吧谁啊，真不熟
+
