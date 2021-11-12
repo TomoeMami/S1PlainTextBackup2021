@@ -2317,3 +2317,32 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 
 可可有JD形态，算……成长期？
 
+
+
+*****
+
+####  qratosone  
+##### 209#       发表于 2021-11-12 15:44
+
+u1s1，你们不用那么大反应吧，星团动画真正称得上拉胯的也就恋恋回和结局吧
+
+*****
+
+####  仟音一心  
+##### 210#       发表于 2021-11-12 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518639&amp;ptid=2036367" target="_blank">saverok 发表于 2021-11-12 15:33</a>
+后面不用看了
+
+哦可以看真正的星团之唐可可的诱惑</blockquote>
+不，后面都看全了才能知道星无佬选材再创造能力有多恐怖。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  darkendless  
+##### 211#       发表于 2021-11-12 16:05
+
+唐可可的诱惑讨论度远高于本家动画就说明问题了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2898,3 +2898,66 @@ APEX不是在日本都快杀疯了吗，谁还敢歧视PC啊
 林则徐死了快两百年了，有些人还是没能学会睁眼看世界。我即正义，我即权威。合着全球一千多万买ps5的都是 ...</blockquote>
 全球一千多万买ps5的里面至少得有100万只玩ps4免费升级游戏和大法白送的那20个游戏，还有100万每年只买一个cod或一个fifa，别的什么都不买
 
+
+
+*****
+
+####  Sissii  
+##### 268#       发表于 2021-11-12 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518770&amp;ptid=2037022" target="_blank">黄字 发表于 2021-11-12 15:42</a>
+
+什么曙光？前天黄老板宣讲全是ai运算元自动驾驶宇宙的曙光？</blockquote>
+降价的曙光啊，国家文件也出了，ETH也宣布了年底结束显卡挖矿，为什么你觉得显卡会不降价呢？
+
+3070从8000三个月降到了5000左右，这不比一年价格就没下来过的PS5有盼头多了？
+
+*****
+
+####  NTR狂魔武田一本  
+##### 269#       发表于 2021-11-12 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518605&amp;ptid=2037022" target="_blank">ppa11 发表于 2021-11-12 15:31</a>
+
+“这几年的报告基本上一直是pc和主机（微软+索尼+ns）五五开”。。你还没意识到吗，五五开已经是P ...</blockquote>
+第一个点，我没意识到你的意思的 大获全胜 指的是 pc从后赶上，以为你指的是 pc一直处于大获全胜的状态碾压主机
+
+第二个点，我查了下几个主流的竞技类游戏收入
+
+英雄联盟去年全年大概在25亿美元的营收（中间包含赛制运营周边等
+
+PUBG 18年 大概 不到10 亿美元的营收
+
+PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高的 Xbox 占比为 27.5%。iOS 排行第五，仅占总收入的 7%。剩下的 18.7％ 分配给 Android，Nintendo Switch 和 PC。
+
+查了下这个的确不对，主机的内购 对比起来 收入一点也不比PC低。。。
+
+*****
+
+####  gofbayrf  
+##### 270#       发表于 2021-11-12 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518733&amp;ptid=2037022" target="_blank">Sissii 发表于 2021-11-12 15:40</a>
+
+现在显卡已经呈现降价趋势了啊，而且今年年底ETH彻底关掉显卡挖矿后，你再看看，PS5还在为产能苦苦挣扎， ...</blockquote>
+曙光指黃老闆降產能托市 EVA卡車失踪
+
+
+
+*****
+
+####  dumplingpro  
+##### 271#       发表于 2021-11-12 16:01
+
+等一个明年RDNA2核显<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiang2323  
+##### 272#       发表于 2021-11-12 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517111&amp;ptid=2037022" target="_blank">盐盐盐盐盐 发表于 2021-11-12 13:37</a>
+
+所谓的转向一方面是ps5产能太低下想买也买不到，那些ps5跨pc的游戏说不定半年一年的独占期过去了还买不到ps ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">以前我也觉得独居不需要大电视,后来买了台65寸电视打游戏,比显示器爽多了
+
