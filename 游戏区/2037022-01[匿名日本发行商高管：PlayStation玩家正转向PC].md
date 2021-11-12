@@ -3269,3 +3269,14 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 
 这贴战起来不奇怪，奇怪的是居然是混战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  frankCC  
+##### 300#       发表于 2021-11-12 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521069&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 18:31</a>
+子非鱼，安知鱼之乐？三巨头有谁真把大陆当成重要市场的？你销量占全球几成啊就在这儿指点江山。还你身边的 ...</blockquote>
+御三家总计三亿台，其他七十亿不算人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -2527,3 +2527,29 @@ u1s1，不先看完原作也没法完全get到星无佬的设计到底精妙在�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">追和补，以及有没有看过系列之前的作品所带来的观感差异天差地别，还是让人家自顾自看完再发表感想吧，不然说着说着又要开批斗大会了
 
+
+
+*****
+
+####  player3960  
+##### 228#       发表于 2021-11-12 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521181&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-12 18:41:27</a>
+水二期最主要的是那事故，鹿死谁手还真不一定
+
+迷惑归迷惑，难道星团不迷惑吗 ...</blockquote>水团我没看完，我就说一嘴Nico评分的结果而已，你说星团最垃圾我也没意见，反正星团在我看的缪虹星里也是系列垫底的存在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  秋月艾莉  
+##### 229#       发表于 2021-11-12 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521217&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-12 18:44</a>
+
+水一我觉得除了友情yosoro和最后一集小剧场，其余没什么大问题
+
+关键是吧，人家友情yosoro闹心归闹心，好歹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢了最多是不继续写，可香也给你来个yosoro社区直接爆炸你信不信
+
