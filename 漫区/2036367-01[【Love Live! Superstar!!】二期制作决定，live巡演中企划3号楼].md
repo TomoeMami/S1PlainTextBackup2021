@@ -1975,3 +1975,72 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 不知为何最近拉板一天一个鲤鱼帖，都是在陈述她的古参身份啊，异国打拼的艰辛啊，虽然也有杂志访谈、经纪人 ...</blockquote>
 能贴个最多讨论串的地址吗
 
+
+
+*****
+
+####  秋月艾莉  
+##### 180#       发表于 2021-11-12 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516122&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-11-12 12:19</a>
+
+能贴个最多讨论串的地址吗</blockquote>
+[http://fate.5ch.net/test/read.cgi/lovelive/1636450909/l50](http://fate.5ch.net/test/read.cgi/lovelive/1636450909/l50)
+[http://fate.5ch.net/test/read.cgi/lovelive/1636599412/l50](http://fate.5ch.net/test/read.cgi/lovelive/1636599412/l50)
+[http://fate.5ch.net/test/read.cgi/lovelive/1636639462/l50](http://fate.5ch.net/test/read.cgi/lovelive/1636639462/l50)
+
+就这三个
+
+淦都说出水军了我还以为刷屏了，点进去一看，全串页面第一页306个串才tmd3个串
+
+算上我爱奈子和带鲤鱼名字的串也才5个楼，你管这叫水军<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  优妮可  
+##### 181#       发表于 2021-11-12 12:36
+
+<img src="https://img.saraba1st.com/forum/202111/12/123611sjsie5vsx35h9c95.jpg" referrerpolicy="no-referrer">
+
+<strong>20211112_120433.jpg</strong> (290.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 12:36 上传
+
+<img src="https://img.saraba1st.com/forum/202111/12/123612jk9790vsl0rtszl0.jpg" referrerpolicy="no-referrer">
+
+<strong>20211112_120440.jpg</strong> (599.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-12 12:36 上传
+
+自拍越来越像鱼
+
+*****
+
+####  lj205  
+##### 182#       发表于 2021-11-12 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515619&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-12 11:47</a>
+INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么我去liyuu的ins主页看不到这个，从她发在推特 ...</blockquote>
+不知道，我也是那晚看到松雾发了知道的
+
+我基本不用犹太佬的产品，极其难用
+
+你要不是非要做到最快知道的话，微博等松雾转就好，他其实已经很快的了。
+
+*****
+
+####  lj205  
+##### 183#       发表于 2021-11-12 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515497&amp;ptid=2036367" target="_blank">saya1892 发表于 2021-11-12 11:39</a>
+观感还是会很差吧，他们不开一个鲤鱼专楼集中在里面讨论，而是这样一天一个帖，点进去还总是些一样的话术 ...</blockquote>
+我觉得你太敏感了，再说也不是人人逛5ch……
+而且要是楼上老哥说的那样就更没必要，看看贴吧都有霸屏的趋势，不也没啥？
+理解你担心捧杀，但现在刚好碰到话题期，很正常，要黑她怎样都会黑的，不用太敏感
+

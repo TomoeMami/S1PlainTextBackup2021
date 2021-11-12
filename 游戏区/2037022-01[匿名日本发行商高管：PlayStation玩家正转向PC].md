@@ -2243,3 +2243,194 @@ PS上的日本游戏，销量也没有断崖式下跌
 
 而PS4游戏销量明显被Switch抢占得很厉害
 
+
+
+*****
+
+####  gutzz  
+##### 218#       发表于 2021-11-12 12:27
+
+ 本帖最后由 gutzz 于 2021-11-12 12:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515102&amp;ptid=2037022" target="_blank">老黑305 发表于 2021-11-12 11:14</a>
+如今显卡价格依然很高的状况下，pc居然还有上涨势头，外国的ps5是不是也依然很贵？ ...</blockquote>
+确实买不到…我官网翻车退货之后蹲了三个月了都没蹲到一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黄牛均价要翻倍谁买谁傻逼
+这个价格还是不包税不包邮的，结算的时候大概要多加8%
+<img src="https://p.sda1.dev/3/edd2aa01501a0163c94e97716cfec21c/IMG_CMP_141567692.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  dumplingpro  
+##### 219#       发表于 2021-11-12 12:31
+
+ 本帖最后由 dumplingpro 于 2021-11-12 12:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53515869&amp;ptid=2037022" target="_blank">FanKiE 发表于 2021-11-12 12:03</a>
+爬了一下楼，感觉车来车去还是以往那套说辞，这边联机收费那边没有外挂，这边客厅沙发那边电脑接电视，还有 ...</blockquote>
+主要话术来来去去就几个，自然就围绕这些话术来了。
+
+整点新活，可能回都没人回。
+
+比如我现在做个实验。
+
+pc有大量小众游戏类型，可以接触到各种各样口味的游戏，发掘出自己真正的口味，最多只能得来一句没人玩。
+
+pc可以提早许多年体验前沿科技。
+
+比如vr，传统游戏费心费力也很难做到的沉浸感，在vr先天就很容易做到。还有动作捕捉为主的操作方式等于体感的进阶形态，体感射击在vr-fps基本标配。
+
+也更适合分享给别人，比如带着老爹，开微软飞行vr模式，驾驶螺旋桨小飞机照着地图上的古道飞，俯视古三国的战场和名城，看黄石公园，撒哈拉之眼和大堡礁。比如亲戚小孩，给他开个打枪游戏，半小时就打得溜溜溜了。
+
+你可以看看，下面会有什么回帖。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ayarinwen  
+##### 220#       发表于 2021-11-12 12:31
+
+pc游戏有风灵月影
+
+这是最大的优点
+
+*****
+
+####  Renkonsai  
+##### 221#       发表于 2021-11-12 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">用游戏机就是为了不用学你们吵这么多楼研究电脑方案的君臣佐使阴阳五行知识啊…
+
+我们是打游戏的，你骂谁数码圈的呢…
+
+*****
+
+####  chivalry  
+##### 222#       发表于 2021-11-12 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全平台玩家就喜欢看你们这样咬，太有乐子
+
+*****
+
+####  ppa11  
+##### 223#       发表于 2021-11-12 12:33
+
+<blockquote>NTR狂魔武田一本 发表于 2021-11-12 12:25
+高配pc有，ps5和ns也有
+
+pc和主机之间的大战，和pc性能比主机强，价格优势之类的，基本上关系不大 ...</blockquote>
+。。你回忆一下20年前、10年前和现在的pc市场和主机占比对比和游戏发售对比。。pc明显的大获全胜啊。。
+
+*****
+
+####  ゆい  
+##### 224#       发表于 2021-11-12 12:35
+
+ 本帖最后由 ゆい 于 2021-11-12 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516332&amp;ptid=2037022" target="_blank">ppa11 发表于 2021-11-12 12:33</a>
+
+。。你回忆一下20年前、10年前和现在的pc市场和主机占比对比和游戏发售对比。。pc明显的大获全胜啊。。 ...</blockquote>
+单讲游戏画面的话我觉得缩小了，10年前主机一堆540p的，pc已经1080p了，20年前主机一堆480i的 现在虽然主机和高配pc跑出来的画面仍然有差距，但起码一眼看上去没那么明显<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅色轮回  
+##### 225#       发表于 2021-11-12 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516231&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 12:25</a>
+
+高配pc有，ps5和ns也有
+
+pc和主机之间的大战，和pc性能比主机强，价格优势之类的，基本上关系不大 ...</blockquote>
+上pc只会让pc用户坚定等等党的决心，你都上一作都上pc了，下一作不也是要上pc，况且国内把游戏主机让给客厅的真不多，有历史原因也有环境因素，决定了在国内游戏主机要和pc争夺显示器，我都有pc了还要游戏机这是绝大多数pc用户的想法；索尼跨pc更多的是赚钱而已，没别的想法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，至于最后的赢家我倒觉得是pc，xgp向pc多平台靠拢，pc平台自身都是血海一片，也有很多大资本往pc上靠，亚马逊ea tx 蒸汽 gog外加新玩家xbox这些都是实打实的在砸钱，索尼越往后也会考虑在pc上建立自己的生态的
+
+*****
+
+####  Chia  
+##### 226#       发表于 2021-11-12 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516231&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 12:25</a>
+
+高配pc有，ps5和ns也有
+
+pc和主机之间的大战，和pc性能比主机强，价格优势之类的，基本上关系不大 ...</blockquote>
+清一色mac的是北美，圣诞送主机的也是北美。
+
+北美是主机的主阵地，离松动还久。这楼主要是二号阵地，渐渐有松动迹象。
+
+*****
+
+####  haruhiismer  
+##### 227#       发表于 2021-11-12 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516231&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 12:25</a>
+高配pc有，ps5和ns也有
+
+pc和主机之间的大战，和pc性能比主机强，价格优势之类的，基本上关系不大 ...</blockquote>
+小孩上大学的笔记本大概率才是年轻人的第一台游戏机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ゆい  
+##### 228#       发表于 2021-11-12 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516410&amp;ptid=2037022" target="_blank">Chia 发表于 2021-11-12 12:37</a>
+
+清一色mac的是北美，圣诞送主机的也是北美。
+
+北美是主机的主阵地，离松动还久。这楼主要是二号阵地，渐 ...</blockquote>
+日本这种就算松动的话，北美早就是了
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 229#       发表于 2021-11-12 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511371&amp;ptid=2037022" target="_blank">ky怪 发表于 2021-11-12 00:22</a>
+
+那不错，以前我记得只有dq11s有这个选项，希望以后也能普及一下ps版几何图标  ...</blockquote>
+日厂有一部分也有，然后是法老控游戏的欧美发行们找的移植公司如果靠谱也会放，比如伊苏轨迹全家桶的ph3，他们甚至老手柄纯数字键按钮、PS、XBOX、Switch都给做进去了，要用啥想用啥都可以，而且什么键位都能换
+
+之前伊苏9本来确定键跟语言环境锁死了，后来玩家反馈了后也改回了伊苏8那样可以切换右边还是下面
+
+总体来说如果有意识，或者丢给靠谱的欧美公司移植，一般都会做的很细致的
+
+*****
+
+####  Chia  
+##### 230#       发表于 2021-11-12 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516435&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-12 12:38</a>
+
+日本这种就算松动的话，北美早就是了</blockquote>
+那就看排不排除ns了，我觉得这个话题下应该排除
+
+*****
+
+####  Youszsh  
+##### 231#       发表于 2021-11-12 12:41
+
+哪有这么容易转，全球芯片短缺影响的可不只有游戏机，而且还要面对矿潮的影响。国内因为接受不了显卡溢价从pc转ps5的情况也不少，矿工抢卡在国外只会更甚。有钱转pcmr的本来就是少数，而且大多也早全平台制霸了。未来大众廉价游戏的主力仍然会是游戏机。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  若菜  
+##### 232#       发表于 2021-11-12 12:41
+
+ 本帖最后由 若菜 于 2021-11-12 12:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516083&amp;ptid=2037022" target="_blank">五元请收好 发表于 2021-11-12 12:17</a>
+
+求问装甲核心玩家去玩什么FPS？泰坦吗？</blockquote>
+有泰坦陨落的，然后又继续玩apex，记得有一阵还是日服前几。还有玩halo的。
+
+然后不少玩gbo2的
+
+*****
+
+####  haruhiismer  
+##### 233#       发表于 2021-11-12 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516458&amp;ptid=2037022" target="_blank">Chia 发表于 2021-11-12 12:40</a>
+那就看排不排除ns了，我觉得这个话题下应该排除</blockquote>
+ns和psxbox真不算一个塞到，Xbox用xpg打通pc也算半个不通，只有索是特别传统的主机
+
