@@ -2124,3 +2124,12 @@ INS是移动端和PC端能看到的内容不一样吗，还是有时限？怎么
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 191#       发表于 2021-11-12 14:14
+
+好奇其他4人看鲤鱼以前的COS会是什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
