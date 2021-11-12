@@ -2961,3 +2961,27 @@ PlayStation 4 平台占《堡垒之夜》游戏总营收的 46.8%，而第二高
 所谓的转向一方面是ps5产能太低下想买也买不到，那些ps5跨pc的游戏说不定半年一年的独占期过去了还买不到ps ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">以前我也觉得独居不需要大电视,后来买了台65寸电视打游戏,比显示器爽多了
 
+
+
+*****
+
+####  JudgmentEye  
+##### 273#       发表于 2021-11-12 16:09
+
+ 本帖最后由 JudgmentEye 于 2021-11-12 16:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518921&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 15:51</a>
+
+第一个点，我没意识到你的意思的 大获全胜 指的是 pc从后赶上，以为你指的是 pc一直处于大获全胜的状态碾 ...</blockquote>
+如果ea只发售pc版，可能就没多少人骂ea内购dlc地狱了，现在ea和dlc已经彻底变梗了
+<img src="https://i1.fun48.com/data/attachment/portal/201810/10/150230o3y3olhzhzuiir94.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Sissii  
+##### 274#       发表于 2021-11-12 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519006&amp;ptid=2037022" target="_blank">gofbayrf 发表于 2021-11-12 15:58:03</a>
+曙光指黃老闆降產能托市 EVA卡車失踪</blockquote>三个月后再看嘛，有些人在装睁眼瞎，是谁我不说。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

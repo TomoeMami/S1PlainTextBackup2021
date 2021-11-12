@@ -10447,3 +10447,32 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 季节锦标赛，我很确定我跑的三场是对的，也有最后60第一的排名，结果直接判定没做，啥都没了，太离谱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  -SLSL-  
+##### 950#       发表于 2021-11-12 16:07
+
+ 本帖最后由 -SLSL- 于 2021-11-12 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518256&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 15:04</a>
+
+季节锦标赛，我很确定我跑的三场是对的，也有最后60第一的排名，结果直接判定没做，啥都没了，太离谱了吧[f ...</blockquote>
+你是不是车选错了，要A级超高性能掀背车反正就是车型要对
+
+*****
+
+####  Vladimeow  
+##### 951#       发表于 2021-11-12 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518256&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 15:04</a>
+季节锦标赛，我很确定我跑的三场是对的，也有最后60第一的排名，结果直接判定没做，啥都没了，太离谱了吧[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看看车型和性能等级对了没
+
+*****
+
+####  阿卵真是牛逼  
+##### 952#       发表于 2021-11-12 16:25
+
+这代怎么周常测速摄像头这种也要限定车型<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

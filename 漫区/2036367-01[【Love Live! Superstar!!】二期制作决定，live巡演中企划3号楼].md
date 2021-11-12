@@ -2346,3 +2346,37 @@ u1s1，你们不用那么大反应吧，星团动画真正称得上拉胯的也�
 
 唐可可的诱惑讨论度远高于本家动画就说明问题了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 212#       发表于 2021-11-12 16:14
+
+太草了，合鲤同人文都出来了，鲤鱼这看到啥表情？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 213#       发表于 2021-11-12 16:17
+
+微博有人翻出来鲤鱼cos李小狼的照片，难怪有人说看着是伪娘，第一眼看都没认出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 214#       发表于 2021-11-12 16:18
+
+合鲤文之前就有了吧  看着还蛮带劲的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 215#       发表于 2021-11-12 16:21
+
+不是，唐可可的诱惑讨论度远高于本家动画都来了
+
+再喜欢这二创也不能睁眼说瞎话吧
+
