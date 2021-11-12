@@ -3302,3 +3302,24 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ppa11  
+##### 303#       发表于 2021-11-12 20:27
+
+<blockquote>bazingar 发表于 2021-11-12 17:48
+所以不懂，为何美日欧销量比ps4同时代还要高的ps5，怎么会尽显颓势的</blockquote>
+根据泥潭整理的数据，ps5销售数据略低于ps4同期很久了
+
+*****
+
+####  夏延  
+##### 304#       发表于 2021-11-12 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521932&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 20:02</a>
+
+又来了，不是说好谈游戏销量吗？自己把自己不当人可还行</blockquote>
+是啊，不是在谈游戏销量吗，您在谈什么？标题里匿名高管总不会是潭友吧，拿一些身边例子讨论一下怎么就值得您把林则徐都搬出来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -2635,3 +2635,53 @@ u1s1，不先看完原作也没法完全get到星无佬的设计到底精妙在�
 
 草，小百合那个寒字我还真就第一眼没看出哪错了
 
+
+
+*****
+
+####  chenflyyy  
+##### 239#       发表于 2021-11-12 20:28
+
+星现在的烤肉速度是真的快，sayu的广播早上播现在就有熟肉了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 240#       发表于 2021-11-12 20:32
+
+虽然之前楼里说过，不过没人接茬，但我还是想玩一次，就图一乐哈<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+星团=马三角说
+
+Liella有5个人
+walkure也有5个人
+
+打铁是素人，唱功惊艳全场，运营捡到宝。
+铃果是素人，唱功惊艳全场，河森捡到宝。
+
+pay是未成年，唱功NB。
+junna当时也是未成年，唱功很NB。
+
+星团第一话唐可可中文出圈
+马三角第一话giligili爱也出圈
+
+星团第三话有小星星
+马三角第三话有我们的战场
+
+星团动画高开低走
+马三角动画也高开低走
+
+星团有“全世界都要看”的一话，然后就这？
+马三角有“怒涛般展开”的一话，然后就这？
+
+星团动画口碑差，被系列粉批斗。
+马三角动画口碑差，被系列粉批斗。
+
+星团商业成绩被前辈吊打。
+马三角商业成绩也被前辈吊打。
+
+强行论证成功
+
+这两个团我都很喜欢的，可惜都是系列口碑最差的作品，所以这种痛并快乐着的既视感还蛮强的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
