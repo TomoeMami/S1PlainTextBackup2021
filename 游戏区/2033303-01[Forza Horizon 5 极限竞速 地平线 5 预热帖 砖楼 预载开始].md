@@ -10704,3 +10704,15 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam上玩能不能拿到我的老玩家奖励？
 
+
+
+*****
+
+####  lancasterliang  
+##### 974#       发表于 2021-11-12 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524269&amp;ptid=2033303" target="_blank">fanisy 发表于 2021-11-12 22:57</a>
+
+FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam上玩能不能拿到我的老玩家奖励？ ...</blockquote>
+可以
+

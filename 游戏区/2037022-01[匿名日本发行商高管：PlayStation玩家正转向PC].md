@@ -3390,3 +3390,12 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 
 古川还等啥呢，提性能抢对应的市场啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  whzfjk  
+##### 312#       发表于 2021-11-12 23:08
+
+严格来说，PC是工具，有社群没市场，我们会比较亚洲和非洲，但没人会想着换个地球
+
