@@ -17535,3 +17535,21 @@ syl 4ch也太情弱 21年了还在紫宝大学生
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  cctvyt1  
+##### 13465#       发表于 2021-11-12 20:47
+
+[https://twitter.com/WMfzjzroQkD0svu/status/1454647316720148484](https://twitter.com/WMfzjzroQkD0svu/status/1454647316720148484)
+
+据说是绫总 楼友们怎么看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stedckk  
+##### 13466#       发表于 2021-11-12 20:51
+
+几天前听过了，第一句有点像，后面不太像，不好说
+

@@ -3323,3 +3323,21 @@ WHAT，育碧这种自绝于STEAM的**厂商你拿来当PC平台的代表？<img
 又来了，不是说好谈游戏销量吗？自己把自己不当人可还行</blockquote>
 是啊，不是在谈游戏销量吗，您在谈什么？标题里匿名高管总不会是潭友吧，拿一些身边例子讨论一下怎么就值得您把林则徐都搬出来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pencilnoo  
+##### 305#       发表于 2021-11-12 20:56
+
+因为你身边的例子跟全球销量没关系啊！全中国都喜欢玩pc也跟全球游戏机市场没关系啊！叫你睁眼看世界你却又感到受到了伤害，那我也无能为力了。
+
+*****
+
+####  haruhiismer  
+##### 306#       发表于 2021-11-12 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521401&amp;ptid=2037022" target="_blank">Eric_方歌阙 发表于 2021-11-12 19:03</a>
+这贴战起来不奇怪，奇怪的是居然是混战</blockquote>
+本来和谐讨论的结果跑进来个宛平南路600号
+

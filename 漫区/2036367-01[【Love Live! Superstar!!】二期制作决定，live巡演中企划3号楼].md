@@ -2685,3 +2685,29 @@ junna当时也是未成年，唱功很NB。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  chenflyyy  
+##### 241#       发表于 2021-11-12 20:44
+
+sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子才19岁，应该还有丢丢希望能长高吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 242#       发表于 2021-11-12 20:50
+
+想看nonfiction现场版可香扭胯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 243#       发表于 2021-11-12 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53522584&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-12 20:44</a>
+
+sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子才19岁，应该还有丢丢希望能长高吧 ...</blockquote>
+现在多吃点好好锻炼说不定还能长一厘米多，不过一般高中之后几乎都定型了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

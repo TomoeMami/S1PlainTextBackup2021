@@ -10668,3 +10668,14 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 只要性能改得够好就算便宜的车一样能过
 
+
+
+*****
+
+####  nemunoki  
+##### 970#       发表于 2021-11-12 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">我基本从不出现服务器不能用，但是还是过不了，
+
+最多漂移能进到第3回合因为跑路距离短，路上也能算分，其他小游戏中间隔一大段路还没人愿意传送，划水的也多
+
