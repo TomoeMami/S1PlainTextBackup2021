@@ -2553,3 +2553,38 @@ u1s1，不先看完原作也没法完全get到星无佬的设计到底精妙在�
 关键是吧，人家友情yosoro闹心归闹心，好歹 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢了最多是不继续写，可香也给你来个yosoro社区直接爆炸你信不信
 
+
+
+*****
+
+####  kata魂  
+##### 230#       发表于 2021-11-12 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521541&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-11-12 19:19</a>
+
+丢了最多是不继续写，可香也给你来个yosoro社区直接爆炸你信不信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">那样最好，提前告诉一下准备摆烂，而不是12集才告诉已经摆烂
+
+*****
+
+####  JustW  
+##### 231#       发表于 2021-11-12 19:33
+
+我都有点想去补补水团了（）
+
+*****
+
+####  lj205  
+##### 232#       发表于 2021-11-12 19:41
+
+星团再不堪也不能否定前三集写的好啊
+
+*****
+
+####  Karin11974  
+##### 233#       发表于 2021-11-12 19:44
+
+听了打铁的广播，推特上说的小目标达成原来说的是减肥成功，半年减了4kg，这就是资本主义偶像吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有扮演少年音感觉真不错，不愧是香哥哥，看看以后团外能不能接到少年角色
+

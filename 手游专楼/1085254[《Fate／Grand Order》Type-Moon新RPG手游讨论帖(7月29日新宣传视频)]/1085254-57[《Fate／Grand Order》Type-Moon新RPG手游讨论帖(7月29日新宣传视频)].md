@@ -3469,3 +3469,18 @@ banana继续绝版中
 希望BGM的配合度能比邪马台更上一步
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 84290#       发表于 2021-11-12 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520947&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-12 18:18</a>
+这次主题歌感觉又要整啥名字了
+
+希望BGM的配合度能比邪马台更上一步
+
+ ...</blockquote>
+天下布五<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
