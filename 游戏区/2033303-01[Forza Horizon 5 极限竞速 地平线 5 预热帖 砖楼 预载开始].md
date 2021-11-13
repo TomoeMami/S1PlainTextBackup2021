@@ -10992,3 +10992,31 @@ resetera讨论贴（里面有下载地址）
 这游戏机翻挺下头的，就不能好好搞个汉化😓</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">因为车厂正确排序我一直用繁中感觉还行
 
+
+
+*****
+
+####  difa  
+##### 1003#       发表于 2021-11-13 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53525242&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-13 00:40</a>
+
+除了过关挑战都清了</blockquote>
+一样，已经放弃街机了。要不就是只有我一个人，要不就是很多人然后跑半天只能完成任务1.
+
+*****
+
+####  Vladimeow  
+##### 1004#       发表于 2021-11-13 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥我玩了几个小时游戏会给我锁成83帧，前面还是110左右的 怪了 看温度也正常
+
+*****
+
+####  Vladimeow  
+##### 1005#       发表于 2021-11-13 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53530398&amp;ptid=2033303" target="_blank">difa 发表于 2021-11-13 15:51</a>
+一样，已经放弃街机了。要不就是只有我一个人，要不就是很多人然后跑半天只能完成任务1. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次就几个人，要求还特别离谱 什么破坏120次，真就抠脚想的数值吧
+
