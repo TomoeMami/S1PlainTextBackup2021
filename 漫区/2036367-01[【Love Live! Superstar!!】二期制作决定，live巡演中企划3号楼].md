@@ -3272,3 +3272,39 @@ llsp终于在B站上完结了
 
 之前有人说可可的热情是鸡肋，第1集没锻炼过追人追了八百条街，锻炼过第10集一下子甩掉了一个音乐科王牌和一个舞蹈冠军，谁还敢瞧不起热情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 293#       发表于 2021-11-13 23:10
+
+可可的配信纸质票面图出来了
+
+<img src="https://img.saraba1st.com/forum/202111/13/231004qbyys8mn6nqc846m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8ADD1BB7-49FE-4BCF-9AB7-086376130939.jpeg</strong> (388.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 23:10 上传
+
+*****
+
+####  iuhehc  
+##### 294#       发表于 2021-11-13 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535348&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-13 23:10</a>
+
+可可的配信纸质票面图出来了</blockquote>
+这个纸票是不是只寄日本国内的
+
+*****
+
+####  lj205  
+##### 295#       发表于 2021-11-13 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535433&amp;ptid=2036367" target="_blank">iuhehc 发表于 2021-11-13 23:20</a>
+这个纸票是不是只寄日本国内的</blockquote>
+是的
+

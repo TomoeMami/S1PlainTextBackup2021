@@ -4274,3 +4274,26 @@ pc上也有不少可以分屏的游戏，这个没什么影响，但pc毕竟比�
 
 联网的游戏如果是跨平台的只要能BAN主机玩家我是第一时间BAN的，BAN不了就只能捏着鼻子玩了，SFV、Fallout Guys、BF系列都是外挂PC玩家在搅屎
 
+
+
+*****
+
+####  l⑨th_Knight  
+##### 387#       发表于 2021-11-13 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534674&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-13 22:13</a>
+pc上也有不少可以分屏的游戏，这个没什么影响，但pc毕竟比单纯打游戏的家用机有更多私人的东西，相对来说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ps和xb也基本变成一个人玩的主机了吧，11区只要听到和朋友同屏游戏不是马车就是大乱斗，毫无索软痕迹，连pc都有两人握同一个鼠标男女调情的，PS5真惨
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ゆい  
+##### 388#       发表于 2021-11-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535378&amp;ptid=2037022" target="_blank">l⑨th_Knight 发表于 2021-11-13 23:13</a>
+
+ps和xb也基本变成一个人玩的主机了吧，11区只要听到和朋友同屏游戏不是马车就是大乱斗，毫无索软 ...</blockquote>
+xbox和ps可以分屏的确实少了，连黑楼都不能分屏了，cod从最大4人分屏砍到只剩两个人
+
