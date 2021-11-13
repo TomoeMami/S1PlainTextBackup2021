@@ -19704,3 +19704,19 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 不过你要不反白一下<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1375#       发表于 2021-11-14 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53520050&amp;ptid=1860817" target="_blank">黑雪姫 发表于 2021-11-12 17:12</a>
+
+只看了第一集 后面还没补 现在四话能盖棺定论了吗？ 这次本篇改编如何？ ATE还是改系列改编动画的巅峰吗？ ...</blockquote>
+在动画作品里算中规中矩，个人看了ATE和柴犬，实际上MLA动画比前两作是有提升的。（这两部层主看的是BD版，可能和TV版观感有差别）
+
+只不过作为排行前几的黄油，粉丝对改动画的预期也会很高。但毕竟âge不是type-moon，抱不上大腿（当年有机会吉宗钢纪自己放弃了），卖了作品版权接受了一系列影响动画质量的条件，才在十几年后磕磕绊绊动画化。
+
+还能有这个质量已经是喜出望外了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
