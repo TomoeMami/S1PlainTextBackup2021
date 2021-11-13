@@ -11324,3 +11324,17 @@ P丸12.11的两国live，B站票199，zaiko5000日元
 
 v豚大战荒野民大战apex民了
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 8326#       发表于 2021-11-13 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531102&amp;ptid=1972669" target="_blank">free 发表于 2021-11-13 17:16</a>
+
+P丸12.11的两国live，B站票199，zaiko5000日元
+
+她在B站有字幕组吗，B站的买票说明看着怎么像机翻的</blockquote>
+她自己的号应该是自己找的人帮忙，和PMR字幕组是两套班子。
+

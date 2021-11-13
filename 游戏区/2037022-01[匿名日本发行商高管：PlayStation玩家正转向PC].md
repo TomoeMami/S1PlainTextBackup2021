@@ -3942,3 +3942,41 @@ steam主流依旧是1060，谁搁这一年换一个台式啊</blockquote>
 因为这个销量数字本来就是强行献祭上一代主机的结果。正常情况下PS4这样成功的机器，在下一代上市之后还 ...</blockquote>
 献祭本是芯片缺货和产能不足，核心问题是PS5需要过于旺盛，这才是根本，没有需求，ps4不用停产，没有需求，黄牛也不会热炒，所以一个需求如此巨大的主机是怎么得出来前景不看好，挺迷的。
 
+
+
+*****
+
+####  DelayNoMore  
+##### 361#       发表于 2021-11-13 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519687&amp;ptid=2037022" target="_blank">qratosone 发表于 2021-11-12 16:48</a>
+其实看一下现在的行情，淘宝日版PS5光驱版现货一般要5500元左右，然后京东可以直接买到的神船11代i5（六 ...</blockquote>
+贵了1400了，对绝大部分人来说贵100也是贵，就表说1000多了
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  DelayNoMore  
+##### 362#       发表于 2021-11-13 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516695&amp;ptid=2037022" target="_blank">saderious 发表于 2021-11-12 12:59</a>
+别老把卖二手的收益算到游戏成本里面啊，这么算我跟风挖了几个月矿岂不是相当于我游戏没花过钱？
+
+还有至少 ...</blockquote>
+这是实打实的游戏成本，你说的不过是数字游戏
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  saderious  
+##### 363#       发表于 2021-11-13 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532254&amp;ptid=2037022" target="_blank">DelayNoMore 发表于 2021-11-13 18:50</a>
+
+这是实打实的游戏成本，你说的不过是数字游戏
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 S1Next-鹅版  ...</blockquote>
+为什么这么说呢，你游戏回血了，我硬件也回血了啊，因为游戏出二手更稳定吗
+

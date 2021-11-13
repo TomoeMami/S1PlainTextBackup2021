@@ -8286,3 +8286,22 @@ SYL整个处理速度和方案都属于糊弄人的正常水平<img src="https:/
 
 🐦p的愿望很简单，只要能看到他们五个开开心心的直播就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2402#       发表于 2021-11-13 18:55
+
+CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+我静呢？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  rgauss  
+##### 2403#       发表于 2021-11-13 18:58
+
+我静姨呢
+
