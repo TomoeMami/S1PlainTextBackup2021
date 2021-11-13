@@ -7947,3 +7947,15 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 我开始理解当时的小地暖们了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 2362#       发表于 2021-11-13 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53528886&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-11-13 13:06</a>
+
+文静带资进组的，肯定有背景，首播陈睿上过总督的</blockquote>
+你这一提,我又想看下那个视频.
+
