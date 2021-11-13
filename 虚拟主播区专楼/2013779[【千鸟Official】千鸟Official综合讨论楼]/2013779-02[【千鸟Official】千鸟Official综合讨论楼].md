@@ -7788,3 +7788,14 @@ syl 白白又说啥了，贴吧咋又在ttk
 颜色透出来了🥵🥵🥵</blockquote>
 这个是8bit或者6bit颜色断层
 
+
+
+*****
+
+####  伞沢直美  
+##### 2345#       发表于 2021-11-13 09:28
+
+窝瓜，呜呜呜，窝瓜，没有窝瓜看玉玉了
+
+反转了，窝瓜🐶都不看<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+

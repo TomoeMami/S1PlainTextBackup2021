@@ -3721,3 +3721,35 @@ PC游戏也有几乎没挂的，mhw层主玩了500小时一次都没碰到
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  z.s  
+##### 340#       发表于 2021-11-13 09:35
+
+现在一台pc就基本上等于买了索尼和微软两家游戏机，从当下看买pc还是不错的
+
+*****
+
+####  hotsmile  
+##### 341#       发表于 2021-11-13 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526735&amp;ptid=2037022" target="_blank">再买自检星剁手 发表于 2021-11-13 09:19</a>
+
+只要有利可图就是道高一尺魔高一丈的问题。
+
+国内有淘宝产业链加持，大幅度降低了使用门槛，还有一群玩家 ...</blockquote>
+所以这次PS5没开放手柄接口授权，连转接器都用不了，PS5版的2042真就全体手柄玩家了
+
+*****
+
+####  裤袜大落  
+##### 342#       发表于 2021-11-13 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514214&amp;ptid=2037022" target="_blank">JudgmentEye 发表于 2021-11-12 10:22</a>
+一切换成非巨硬自带的输入法就跳出
+
+----STAGE1 Mobile</blockquote>
+这是W7专属bug吗 我w10用qq输入法起名玩了快60个小时没见过跳出啊
+
