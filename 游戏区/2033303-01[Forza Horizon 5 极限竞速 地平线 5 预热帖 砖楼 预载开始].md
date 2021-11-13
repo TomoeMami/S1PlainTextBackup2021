@@ -11307,3 +11307,15 @@ resetera讨论贴（里面有下载地址）
 
 另外我跑的时候是低画质加关垂直同步，挂一次的话大概拿6 7百吧。我感觉关垂直同步有加成，但也可能是我错觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pl0okm  
+##### 1030#       发表于 2021-11-14 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534760&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-13 22:20</a>
+
+那个无聊的感染王冠夺旗要打完5场才给点数吗？</blockquote>
+bo5 输赢都算完成
+
