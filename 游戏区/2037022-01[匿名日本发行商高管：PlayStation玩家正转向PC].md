@@ -4079,3 +4079,54 @@ pc再怎么样就是比主机要麻烦啊，我玩ps2 ngc这些模拟器已经�
 
 你玩有pc版的游戏又不需要折腾
 
+
+
+*****
+
+####  SICP  
+##### 371#       发表于 2021-11-13 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532929&amp;ptid=2037022" target="_blank">你好s1 发表于 2021-11-13 20:04</a>
+但是你有没有想过一个问题。。。
+
+   PC能退款，主机能吗。。。。。 ...</blockquote>
+NS PS都退过，而且NS我是买了一周之后发现买错版本退的，你想说明什么？
+
+*****
+
+####  Gooddays  
+##### 372#       发表于 2021-11-13 20:25
+
+ 本帖最后由 Gooddays 于 2021-11-13 20:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513709&amp;ptid=2037022" target="_blank">黄字 发表于 2021-11-12 09:50</a>
+现在坐在电脑桌前玩或者躺床沙发玩，跟用电脑还是主机根本是两码事，事实上你不管怎么搞，至少国内现在差不 ...</blockquote>
+1066刚发售时很多人买的便不是1066，可能是750ti那级别。
+
+*****
+
+####  yayoi801  
+##### 373#       发表于 2021-11-13 20:28
+
+本来我PS4还能玩玩多人游戏，自从索尼一声不响把“社区”功能改掉，把语音派对可见性改残以后我几百个PSN好友等于废了，根本无法找人开黑只能找野人
+
+这样的话还不如转用PC呢至少还能用用discord之类的
+
+*****
+
+####  dumplingpro  
+##### 374#       发表于 2021-11-13 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527272&amp;ptid=2037022" target="_blank">clmd 发表于 2021-11-13 10:28</a>
+生化危机8销量，pc占比25%
+
+生化危机7销量。pc占比10%，你要知道，ps3年代，只要是全平台游戏，pc游戏占比 ...</blockquote>
+而且pc一直以来存在一个问题，游戏比主机多了一个数量级，也存在大量独有的游戏类型。
+
+玩家被大量pc独有游戏类型，小众游戏，独立游戏分散，头部游戏集中度不高，并不那么适应3a模式。
+
+百万级的二线（比如正义之怒、帝国时代4、全战战锤3、维多利亚3，属于某个细分领域的头部游戏），几十万级的三线。
+
+玩家的时间和资金是有限的，玩了这些游戏，玩头部游戏的就少了。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
