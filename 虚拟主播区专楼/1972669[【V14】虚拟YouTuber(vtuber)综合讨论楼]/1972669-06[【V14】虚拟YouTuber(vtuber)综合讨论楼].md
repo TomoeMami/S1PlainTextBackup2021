@@ -11390,3 +11390,86 @@ solo战的时候我推被你黛击杀了，我要化身anti了</blockquote>
 
 感到黛灰当初整的活是不是挺有lain那味的。
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 8332#       发表于 2021-11-14 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">  <blockquote>神城くれあ👑3周年感謝枠21:30～ゲスト名もなき占い師さん
+
+@kamishiro_kurea
+
+皇冠3周年記念感謝枠終了！！！
+
+占いしてもらったり
+
+一緒にお話いっぱいできて本当に
+
+凄く楽しい時間だった🥰
+
+長時間だったけどあっという間だった
+
+皆も本当にたくさん来てくれてありがとう‼
+
+これからも宜しくの✨
+
+明日はたみーさんの枠に皆集合じゃ‼
+
+#神城くれあ3周年</blockquote>
+➡[https://youtu.be/FUEXm54JAAM](https://youtu.be/FUEXm54JAAM)
+
+<img src="https://img.saraba1st.com/forum/202111/14/001324xs3es8hsq9y1f3sh.jpg" referrerpolicy="no-referrer">
+
+<strong>FEFXvuTaUAUZM9H.jpg</strong> (194.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-14 00:13 上传
+
+*****
+
+####  SuntoryNomu  
+##### 8333#       发表于 2021-11-14 00:19
+
+<img src="https://img.saraba1st.com/forum/202111/14/001827baeozsscqsvd7nyv.jpg" referrerpolicy="no-referrer">
+
+<strong>FD_AZdFacAEgamu.jpg</strong> (83.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-14 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202111/14/001832yzhb9h9d8mrzhccb.jpg" referrerpolicy="no-referrer">
+
+<strong>FD_Ab9BaQAIXwDR.jpg</strong> (80.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-14 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202111/14/001836mhrramzxcxba8rss.jpg" referrerpolicy="no-referrer">
+
+<strong>FD_AebBagAAZ860.jpg</strong> (101.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-14 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202111/14/001840ynoiwtfmwivz4t4t.jpg" referrerpolicy="no-referrer">
+
+<strong>FD_AgicaAAAkr4z.jpg</strong> (85.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-14 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202111/14/001843jnpb8wt88pvnwhnq.jpg" referrerpolicy="no-referrer">
+
+<strong>FD_AiuEaQAARpQf.jpg</strong> (88.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-14 00:18 上传
+

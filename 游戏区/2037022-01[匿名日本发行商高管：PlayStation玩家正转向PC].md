@@ -4297,3 +4297,15 @@ pc上也有不少可以分屏的游戏，这个没什么影响，但pc毕竟比�
 ps和xb也基本变成一个人玩的主机了吧，11区只要听到和朋友同屏游戏不是马车就是大乱斗，毫无索软 ...</blockquote>
 xbox和ps可以分屏的确实少了，连黑楼都不能分屏了，cod从最大4人分屏砍到只剩两个人
 
+
+
+*****
+
+####  king520kyo  
+##### 389#       发表于 2021-11-14 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511886&amp;ptid=2037022" target="_blank">DelayNoMore 发表于 2021-11-12 01:26</a>
+
+配台能玩3A的台式不比ps5贵多了？我干嘛要玩pc？？</blockquote>
+还要买大电视大客厅啊 还是买台PC省钱<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
