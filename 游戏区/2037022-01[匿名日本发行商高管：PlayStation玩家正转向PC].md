@@ -3653,3 +3653,22 @@ STEAM DECK</blockquote>
 我觉得问题在你说的这个之前，A/N两家的驱动、X window都是目前使用上的大扣分项。不过有问题不是做不好 ...</blockquote>
 用v社的steamdeck玩游戏和自己在任意机器上安装任意linux发行版并自行配置环境是两个问题，v社可以试图通过开放工具链的形式去推动后者的傻瓜化但是没有义务去实现它，同理也没有必要，用户自然也不该期待这个。
 
+
+
+*****
+
+####  满满一大杯  
+##### 334#       发表于 2021-11-13 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526238&amp;ptid=2037022" target="_blank">920619lqy 发表于 2021-11-13 07:12</a>
+
+用v社的steamdeck玩游戏和自己在任意机器上安装任意linux发行版并自行配置环境是两个问题，v社可以试图通 ...</blockquote>
+我意思是：如果V社是<strong>借助</strong>了Linux现有的图形相关的种种而不是改善甚至重构，那么根据那些东西目前的表现，SteamOS3.0的最终成效可能并不如想象中的乐观。
+
+*****
+
+####  ゆい  
+##### 335#       发表于 2021-11-13 08:25
+
+pc再怎么样就是比主机要麻烦啊，我玩ps2 ngc这些模拟器已经非常成熟的机种都照样实机（除非碟太贵或者买不到）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
