@@ -10907,3 +10907,12 @@ resetera讨论贴（里面有下载地址）
 
 <img src="https://z3.ax1x.com/2021/11/13/Is9ah4.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Existinghomes  
+##### 994#       发表于 2021-11-13 12:30
+
+对比隔壁2042突然感觉pg也算够意思了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">起码没连夜宣布社区自制赛事不获得技能点&amp;XP
+
