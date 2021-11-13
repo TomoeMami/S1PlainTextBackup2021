@@ -4178,3 +4178,16 @@ NS PS都退过，而且NS我是买了一周之后发现买错版本退的，你�
 主机平台的退款比STEAM麻烦多了，PS4买错语言我记得还得是没启动才能退，给售后写小作文还要等售后上班，这 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">是麻烦但是不是不行，我PS4平台买的TLOU2白金了写个信都能退
 
+
+
+*****
+
+####  叉子  
+##### 379#       发表于 2021-11-13 21:59
+
+想和家人一起玩游戏。如果玩pc的话，就要买两台电脑两份游戏。而主机只要买两个手柄就行。
+
+我理解的对不对
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
