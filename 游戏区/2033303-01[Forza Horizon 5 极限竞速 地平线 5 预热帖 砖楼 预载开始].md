@@ -11162,3 +11162,17 @@ resetera讨论贴（里面有下载地址）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">纯萌新 这漂移区间13w咋飘出来的 撑死八万多了
 
+
+
+*****
+
+####  天神十三煞  
+##### 1017#         楼主| 发表于 2021-11-13 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532562&amp;ptid=2033303" target="_blank">DancingAndy 发表于 2021-11-13 03:18</a>
+
+纯萌新 这漂移区间13w咋飘出来的 撑死八万多了</blockquote>
+刷新下看看
+
+我把前面回复的总结帖到顶楼了
+

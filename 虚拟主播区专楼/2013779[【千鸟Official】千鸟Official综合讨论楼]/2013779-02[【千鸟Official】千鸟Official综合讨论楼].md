@@ -8384,3 +8384,60 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">文静不会真的上位夺权了吧
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2413#       发表于 2021-11-13 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">文静也上位当STF了，阿版也上位了，可以两人联动交流运营经验么。
+
+*****
+
+####  IDIDIDID  
+##### 2414#       发表于 2021-11-13 19:49
+
+别配种了，文静打不过🍓姐贵的。
+
+*****
+
+####  小憨1  
+##### 2415#       发表于 2021-11-13 19:50
+
+感觉静姨要是和姐贵当面对骂的话，姐贵毫无还手之力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 2416#       发表于 2021-11-13 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532816&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-13 19:50</a>
+感觉静姨要是和姐贵当面对骂的话，姐贵毫无还手之力</blockquote>
+姐贵精神不稳定而且身体不好要是掐起来的话自己倒了文静就背上了一个年轻的生命<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 2417#       发表于 2021-11-13 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532816&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-13 19:50</a>
+感觉静姨要是和姐贵当面对骂的话，姐贵毫无还手之力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">myy往地上一躺，文静就得赔钱
+
+*****
+
+####  tankai  
+##### 2418#       发表于 2021-11-13 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531826&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-13 18:17</a>
+别尬黑了，文静约陈珺钓鱼去了，现在在找大石头，没空打字。</blockquote>
+哪有不戴。。。
+
+*****
+
+####  雨井绫  
+##### 2419#       发表于 2021-11-13 20:01
+
+让我们期待文静的下一张牌<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+

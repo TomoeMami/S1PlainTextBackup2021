@@ -4016,3 +4016,39 @@ PS5不好买就算了，游戏越来越贵，会员送的游戏越来越辣鸡�
 
 在日本开始玩家流失是在PS3开始的吧，日本人专门用PC玩游戏应该不多，更倾向于都是出坑不玩了，大法的奖杯套牢法是没用的垃圾玩意
 
+
+
+*****
+
+####  你好s1  
+##### 367#       发表于 2021-11-13 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516025&amp;ptid=2037022" target="_blank">ゆい 发表于 2021-11-12 12:13</a>
+
+主机买游戏方便但pc不玩联机fps的的话舒服不少 
+
+我个人是希望两边都别完蛋，准确来说是不想任何一方一家 ...</blockquote>
+
+  你要说买游戏方便，主机靠边站吧还是
+
+ 特别点名辣鸡PS的商城，之前没有愿望单不说
+
+  到现在都不知道怎么搜索游戏，搜中文和英文名都不好搜
+
+  还经常给你搜出一堆DLC恶心你
+
+*****
+
+####  你好s1  
+##### 368#       发表于 2021-11-13 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518192&amp;ptid=2037022" target="_blank">牙狼GARO 发表于 2021-11-12 14:59</a>
+
+我今年在p5上花的钱，只有死亡搁浅岛演版升级，还有一个双人同行
+
+其中双人同行我一开始买的steam版，但非要 ...</blockquote>
+
+    但是你有没有想过一个问题。。。
+
+   PC能退款，主机能吗。。。。。
+
