@@ -4052,3 +4052,30 @@ PS5不好买就算了，游戏越来越贵，会员送的游戏越来越辣鸡�
 
    PC能退款，主机能吗。。。。。
 
+
+
+*****
+
+####  牙狼GARO  
+##### 369#       发表于 2021-11-13 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532929&amp;ptid=2037022" target="_blank">你好s1 发表于 2021-11-13 20:04</a>
+但是你有没有想过一个问题。。。
+
+   PC能退款，主机能吗。。。。。 ...</blockquote>
+理论上也能啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+抱歉，不明白你什么意思
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  阿萨托斯  
+##### 370#       发表于 2021-11-13 20:23
+
+<blockquote>ゆい 发表于 2021-11-13 08:25
+pc再怎么样就是比主机要麻烦啊，我玩ps2 ngc这些模拟器已经非常成熟的机种都照样实机（除非碟太贵或者买不 ...</blockquote>
+你那是玩版本不匹配的游戏啊
+
+你玩有pc版的游戏又不需要折腾
+

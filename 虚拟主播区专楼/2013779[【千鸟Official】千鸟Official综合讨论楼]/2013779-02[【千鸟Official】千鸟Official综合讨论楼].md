@@ -8441,3 +8441,28 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 
 让我们期待文静的下一张牌<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2420#       发表于 2021-11-13 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">静子现在的牌库全是key牌，随便抽几张都可以otk了。
+
+就等我雷洛turn了。
+
+*****
+
+####  夜之中道崩殂  
+##### 2421#       发表于 2021-11-13 20:09
+
+文静热咖啡事件刀战，成功当上负责人。这封通知开掉的负责人是文静<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  碧波青云  
+##### 2422#       发表于 2021-11-13 20:11
+
+静子千里走单骑成功了？
+
