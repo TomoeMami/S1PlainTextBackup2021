@@ -1058,3 +1058,28 @@ c1偏色啊 你们买显示器都不看色准的吗
 如果我不买C1的话，我估计还好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我买了ns oled也想买lg c1了，就出门玩oled还是不错的
 
+
+
+*****
+
+####  zris  
+##### 98#         楼主| 发表于 2021-11-13 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527300&amp;ptid=2036345" target="_blank">猫不萌 发表于 2021-11-13 10:29</a>
+
+我买了ns oled也想买lg c1了，就出门玩oled还是不错的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要我出門不咋喜歡玩遊戲機
+
+除非是出差
+
+所以，哎，繃不住了
+
+C1買，不會後悔的
+
+*****
+
+####  xiang2323  
+##### 99#       发表于 2021-11-13 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">消费升级，挺好的。打游戏就是要大电视，显示器都算是异端，移动设备屏幕更别说了
+
