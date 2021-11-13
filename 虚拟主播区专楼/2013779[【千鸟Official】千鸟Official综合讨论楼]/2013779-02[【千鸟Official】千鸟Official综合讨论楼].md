@@ -7988,3 +7988,26 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 在渡劫吧，爱信等
 
+
+
+*****
+
+####  丢了五块钱  
+##### 2366#       发表于 2021-11-13 15:14
+
+你们给我打钱，我托关系让文静开播，不灵包退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 2367#       发表于 2021-11-13 15:22
+
+昨天艾白说啥了，咋贴吧开她训粉了？
+
+*****
+
+####  T型钉宫病毒  
+##### 2368#       发表于 2021-11-13 15:23
+
+你去里面捞人是吧，什么p2p骗局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
