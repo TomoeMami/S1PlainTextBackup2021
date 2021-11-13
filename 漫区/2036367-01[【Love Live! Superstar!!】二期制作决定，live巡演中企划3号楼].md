@@ -2908,3 +2908,15 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 
 说起来广播里小百合说自己在家穿10cm底厚的鞋子来体会高个子www
 
+
+
+*****
+
+####  cqc1021  
+##### 260#       发表于 2021-11-13 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527349&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-13 10:36</a>
+
+应该是商务飞机，反正公司掏钱。</blockquote>
+如果鲤鱼确实是去了北海道的话，应该是北海道当地近距离飞行的小型飞机，类似于国内军民合用机场的小飞机（只不过国内的没有那么小）。
+

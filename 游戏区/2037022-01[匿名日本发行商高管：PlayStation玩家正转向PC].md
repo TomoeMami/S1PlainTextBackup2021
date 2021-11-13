@@ -3863,3 +3863,16 @@ steam主流依旧是1060，谁搁这一年换一个台式啊</blockquote>
 看地区罢了。MHWI开黑龙的开荒期要是挂哥真那么多我也不至于在野队猫到怀疑人生 ...</blockquote>
 挂哥锁自己的血，当然不影响你猫车了。再说你说地区，那确实国人多的地区挂会多，欧美那里会少，不过我不觉得要为了这个换地区是什么好的体验。
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 354#       发表于 2021-11-13 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511669&amp;ptid=2037022" target="_blank">魔铁潜水艇 发表于 2021-11-12 00:54</a>
+只要有人买过MHW的PC和PS版本，体验一下两者的联机体验区别，就会知道PS简直就是一坨屎………………
+
+什么年 ...</blockquote>
+任地狱：...
+

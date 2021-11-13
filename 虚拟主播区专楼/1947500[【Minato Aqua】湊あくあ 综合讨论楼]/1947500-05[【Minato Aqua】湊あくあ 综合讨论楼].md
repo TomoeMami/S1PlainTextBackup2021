@@ -14417,3 +14417,27 @@ syl：6点有个官方节目
 
 今天差不多就是转个官方推结束
 
+
+
+*****
+
+####  nian1538  
+##### 7167#       发表于 2021-11-13 11:41
+
+ 本帖最后由 nian1538 于 2021-11-13 11:44 编辑 
+
+该偷点现场图了
+[https://twitter.com/toarumikoto/status/1459314138321014786](https://twitter.com/toarumikoto/status/1459314138321014786)
+[https://twitter.com/toarumikoto/status/1459318871396020229](https://twitter.com/toarumikoto/status/1459318871396020229)
+[https://twitter.com/toarumikoto/status/1459302611555807232](https://twitter.com/toarumikoto/status/1459302611555807232)
+[https://twitter.com/HIRO_nanika/status/1459315119913984001](https://twitter.com/HIRO_nanika/status/1459315119913984001)
+
+汉堡（之一）
+[https://twitter.com/bonta_ring/status/1459350651650338816](https://twitter.com/bonta_ring/status/1459350651650338816)
+
+洋葱也太少了，毫无本人要素
+
+总的来说蛮土的
+
+syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー的下载链接的样子
+
