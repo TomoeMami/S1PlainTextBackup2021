@@ -1028,3 +1028,20 @@ MD，搞得我想出了oled switch了
 
 c1偏色啊 你们买显示器都不看色准的吗
 
+
+
+*****
+
+####  zris  
+##### 96#         楼主| 发表于 2021-11-13 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今早把switch oled卖了
+
+如果我不买C1的话，我估计还好
+
+但是买了C1，oled留着用处属实不大了
+
+就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">谢谢你switch oled
+

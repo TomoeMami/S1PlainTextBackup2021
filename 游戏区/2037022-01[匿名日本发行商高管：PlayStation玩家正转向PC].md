@@ -3771,3 +3771,53 @@ ps5第一年的销量比ps4第一年还高，怎么楼里一个个说的跟ps5�
 ps5第一年的销量比ps4第一年还高，怎么楼里一个个说的跟ps5要死了似的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">ps4第一年如果战神就上了pc  那也得怀疑一下还能活多久
 
+
+
+*****
+
+####  solarcool  
+##### 345#       发表于 2021-11-13 10:05
+
+<blockquote>再买自检星剁手 发表于 2021-11-13 09:19
+只要有利可图就是道高一尺魔高一丈的问题。
+
+国内有淘宝产业链加持，大幅度降低了使用门槛，还有一群玩家 ...</blockquote>
+mhw也能叫几乎没挂？微改哥演技哥不要太多，到了黑龙那里不要脸开出锁血的都多得是。只不过这个游戏不是暴力挂不太影响别人体验而已。
+
+*****
+
+####  ゆい  
+##### 346#       发表于 2021-11-13 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527011&amp;ptid=2037022" target="_blank">裤袜大落 发表于 2021-11-13 09:53</a>
+
+ps4第一年如果战神就上了pc  那也得怀疑一下还能活多久</blockquote>
+ps4第一年不都是屎吗？甚至整个ps4时代第一方也可以说都是屎
+
+*****
+
+####  clmd  
+##### 347#       发表于 2021-11-13 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53522114&amp;ptid=2037022" target="_blank">qratosone 发表于 2021-11-12 20:12</a>
+
+因为这个销量数字本来就是强行献祭上一代主机的结果。正常情况下PS4这样成功的机器，在下一代上市之后还 ...</blockquote>
+ps3和ps4架构完全不同，买ps4版需要重新买一份新游戏，同一个人就会贡献两个销量，ps5和ps4都是x86，ps4游戏碟也可以直插ps5里面玩，所以，就算这次就算没有献祭ps4，也不会像上代那样，利用换代刷销量
+
+*****
+
+####  solarcool  
+##### 348#       发表于 2021-11-13 10:17
+
+泥潭可能真不知道人类有多懒，你买台洗碗机用一段时间可能都会快进到懒到不想把锅碗放进去，更别说学那一堆东西就为了玩个游戏的。就说上真互联网加速这种刚需得多的，我是不信泥潭都是自己搭的而不是去买那些超卖严重的现成加速器。
+
+*****
+
+####  clmd  
+##### 349#       发表于 2021-11-13 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521069&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 18:31</a>
+
+子非鱼，安知鱼之乐？三巨头有谁真把大陆当成重要市场的？你销量占全球几成啊就在这儿指点江山。还你身边的 ...</blockquote>
+既然按照欧美国家惯列的话，欧美占少数的比列的pc玩家才是婆罗门，玩主机的都是小白，大部分买个主机只会玩cod,fifa，问题是我国主机玩家既希望国内游戏平台大趋势是对准欧美，但是玩家阶级划分是要对准发展中国家的，这种自我分裂，我想是很难做到的
+
