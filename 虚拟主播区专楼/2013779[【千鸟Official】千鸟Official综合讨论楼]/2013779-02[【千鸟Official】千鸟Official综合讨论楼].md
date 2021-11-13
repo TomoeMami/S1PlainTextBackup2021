@@ -8063,3 +8063,83 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 文静不播就可以多黑屁两句了，这女人说是说要带千鸟这个偶像企划飞自己也要逐梦不想摆烂当轮椅人，然而她自己的技能点可是全点在女主播这个职业上了，甚至可以说很不（日式）偶像。
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2375#       发表于 2021-11-13 18:01
+
+<img src="https://p.sda1.dev/3/82c1e5ba2575329bc6d222f91d3c6863/IMG_CMP_20342723.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法少女大头  
+##### 2376#       发表于 2021-11-13 18:02
+
+除了cj（宣称）被飞了，感觉完全就是画了个新饼。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  IDIDIDID  
+##### 2377#       发表于 2021-11-13 18:04
+
+佛了，道歉也要蹭一下隔壁是吧，这道歉莫不是文静写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有效击穿  
+##### 2378#       发表于 2021-11-13 18:04
+
+淘宝为什么要给我推这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 2379#       发表于 2021-11-13 18:05
+
+cj飞了，所以这是谁发的？🤔
+
+*****
+
+####  小憨1  
+##### 2380#       发表于 2021-11-13 18:05
+
+所有的人都带文字转发了，文静这边是“转发动态”
+
+*****
+
+####  tankai  
+##### 2381#       发表于 2021-11-13 18:05
+
+静快.回.来，我的138饥渴难耐了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  丢了五块钱  
+##### 2382#       发表于 2021-11-13 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531677&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-13 18:04</a>
+淘宝为什么要给我推这种东西，我妈妈文静这几天到底干什么去了啊[f:14 ...</blockquote>
+哈人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2383#       发表于 2021-11-13 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531677&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-13 18:04</a>
+淘宝为什么要给我推这种东西，我妈妈文静这几天到底干什么去了啊[f:14 ...</blockquote>
+你这个，好几个版本前贴吧就水过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有效击穿  
+##### 2384#       发表于 2021-11-13 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531700&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-13 18:06</a>
+你这个，好几个版本前贴吧就水过了</blockquote>
+对不起，不刷贴吧，实在不知道自己火星了
+

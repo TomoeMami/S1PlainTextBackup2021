@@ -3132,3 +3132,17 @@ nako的丸子头已经够难顶了，再染白色还得了pay堇这混血脸倒�
 
 万一鲤鱼翻过来一看写着made in china<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 280#       发表于 2021-11-13 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53529238&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-13 13:38</a>
+
+这么说的话搞不好之后会染诶 到时候就容易分清了
+
+我记得缪水都有一段时期声优染上接近角色的发色 ...</blockquote>
+看live的时候那个打光就让我觉得鲤鱼会挺适合灰色的，深灰或者亚麻灰，不知道她以前有没有染过
+
