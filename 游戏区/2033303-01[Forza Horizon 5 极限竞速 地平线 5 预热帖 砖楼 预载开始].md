@@ -11368,3 +11368,12 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  920619lqy  
+##### 1036#       发表于 2021-11-14 07:28
+
+这arcade真是死了妈了，每次都是一个人在那刷然后这数值用屁股想的吧
+
