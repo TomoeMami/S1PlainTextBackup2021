@@ -3876,3 +3876,17 @@ steam主流依旧是1060，谁搁这一年换一个台式啊</blockquote>
 什么年 ...</blockquote>
 任地狱：...
 
+
+
+*****
+
+####  魔铁潜水艇  
+##### 355#       发表于 2021-11-13 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53528232&amp;ptid=2037022" target="_blank">Stellar_Frost 发表于 2021-11-13 12:02</a>
+
+任地狱：...</blockquote>
+任地狱自研能力强啊，如果mhw能铁了心不上pc那自然就没得比，但索尼给不起这个钱啊。
+
+塞尔达你不买ns就玩不了。
+

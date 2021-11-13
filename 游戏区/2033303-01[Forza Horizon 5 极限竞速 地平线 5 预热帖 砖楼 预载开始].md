@@ -10925,3 +10925,12 @@ resetera讨论贴（里面有下载地址）
 
 这86太便宜了, 拍卖行出一辆就被秒买断, 根本抢不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  agion117  
+##### 996#       发表于 2021-11-13 13:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么你们能玩，不是Xbox服务器炸了吗
+

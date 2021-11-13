@@ -2969,3 +2969,25 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 
 这路小飞机少坐吧……真飞机没的歌手都快赶嗨飞机没的了
 
+
+
+*****
+
+####  D麦林  
+##### 266#       发表于 2021-11-13 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524553&amp;ptid=2036367" target="_blank">iuhehc 发表于 2021-11-12 23:26</a>
+
+发型和发色就让人很难分了</blockquote>
+这么说的话搞不好之后会染诶 到时候就容易分清了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我记得缪水都有一段时期声优染上接近角色的发色的 不知道星会不会有这个机会
+
+*****
+
+####  chenflyyy  
+##### 267#       发表于 2021-11-13 13:46
+
+nako的丸子头已经够难顶了，再染白色还得了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">pay堇这混血脸倒是挺适合染金发的
+顺便发下今日快乐源泉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
