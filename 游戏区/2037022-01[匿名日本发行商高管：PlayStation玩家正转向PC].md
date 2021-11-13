@@ -4144,3 +4144,37 @@ NS PS都退过，而且NS我是买了一周之后发现买错版本退的，你�
  特别点名辣鸡PS的商城，之前没有愿望单不说</blockquote>
 这贴不是说的日本？日服搜索我没觉得有什么问题，实体店买游戏也比买数字版方便
 
+
+
+*****
+
+####  你好s1  
+##### 376#       发表于 2021-11-13 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53533071&amp;ptid=2037022" target="_blank">牙狼GARO 发表于 2021-11-13 20:17</a>
+
+理论上也能啊
+
+抱歉，不明白你什么意思</blockquote>
+
+   你在主机退过款吗？  以PS为例，下载了就不能退款，只有预购的可以
+
+  而且只退到钱包（不知道现在是不是，反正我退了两次都是钱包）
+
+*****
+
+####  战狼PTSD  
+##### 377#       发表于 2021-11-13 21:12
+
+主机平台的退款比STEAM麻烦多了，PS4买错语言我记得还得是没启动才能退，给售后写小作文还要等售后上班，这也能嘴硬说没问题的吗
+
+*****
+
+####  SICP  
+##### 378#       发表于 2021-11-13 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53533824&amp;ptid=2037022" target="_blank">战狼PTSD 发表于 2021-11-13 21:12</a>
+
+主机平台的退款比STEAM麻烦多了，PS4买错语言我记得还得是没启动才能退，给售后写小作文还要等售后上班，这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">是麻烦但是不是不行，我PS4平台买的TLOU2白金了写个信都能退
+
