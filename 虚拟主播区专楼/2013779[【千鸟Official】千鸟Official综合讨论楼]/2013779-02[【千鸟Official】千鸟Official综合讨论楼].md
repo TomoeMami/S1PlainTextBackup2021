@@ -8518,3 +8518,29 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 开局经典bgm，弹幕疯狂刷着妈妈妈和文静yyds，然后在直播打开的一瞬间，红地毯和黄地毯铺满。文静依旧是那 ...</blockquote>
 你把台本发出来我还怎么打钱<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2428#       发表于 2021-11-13 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535535&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-13 23:31</a>
+开局经典bgm，弹幕疯狂刷着妈妈妈和文静yyds，然后在直播打开的一瞬间，红地毯和黄地毯铺满。文静依旧是那 ...</blockquote>
+为什么你能发音频<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">，顺带一提拳头硬了
+
+*****
+
+####  tankai  
+##### 2429#       发表于 2021-11-14 00:04
+
+鸟！
+
+批 !
+
+不！
+
+灭！
+
+🖖！
+

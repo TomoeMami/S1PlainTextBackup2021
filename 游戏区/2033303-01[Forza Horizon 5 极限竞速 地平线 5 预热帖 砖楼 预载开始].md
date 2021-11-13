@@ -11280,3 +11280,30 @@ resetera讨论贴（里面有下载地址）
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">终于搞定，运气好第三场技术分只要总计100W就算过，最后数了一下圈里一共8个人，虽然跑的时候明显没那么多但只是隐形了而已，实际都是在算分的
 <[img src="https://z3.ax1x.com/2021/11/13/IybyKU.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1028#       发表于 2021-11-13 23:49
+
+我用雪佛兰1953挂50圈好不稳啊，经常卡树，求你们的调教代码
+
+用宝马挂虽然稳，但是少一个7倍特积分，刷的效率没有雪佛兰高
+
+*****
+
+####  aaronluray  
+##### 1029#       发表于 2021-11-14 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535682&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-13 23:49</a>
+
+我用雪佛兰1953挂50圈好不稳啊，经常卡树，求你们的调教代码
+
+用宝马挂虽然稳，但是少一个7倍特积分，刷的效 ...</blockquote>
+我试过的图里有一个也是这样，所以我后面就直接跑确定没问题的图了。
+
+50圈的代码： 532351089   车的调校：301943246
+
+另外我跑的时候是低画质加关垂直同步，挂一次的话大概拿6 7百吧。我感觉关垂直同步有加成，但也可能是我错觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

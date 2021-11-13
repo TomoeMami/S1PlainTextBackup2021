@@ -19673,3 +19673,19 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 这几次的区别有什么吗？隔得太久忘记了
 
+
+
+*****
+
+####  hacisiki  
+##### 1373#       发表于 2021-11-13 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534164&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-13 21:40</a>
+
+防回复剧透
+
+防回复剧透
+
+防回复剧透</blockquote>
+理论上哈，根据因果导体的理论最后一次还有一种可能：“原来世界的白银武死在了某个无人知晓的角落”
+
