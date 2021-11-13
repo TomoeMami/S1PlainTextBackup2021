@@ -3753,3 +3753,21 @@ PC游戏也有几乎没挂的，mhw层主玩了500小时一次都没碰到
 ----STAGE1 Mobile</blockquote>
 这是W7专属bug吗 我w10用qq输入法起名玩了快60个小时没见过跳出啊
 
+
+
+*****
+
+####  鸟耶稣  
+##### 343#       发表于 2021-11-13 09:51
+
+ps5第一年的销量比ps4第一年还高，怎么楼里一个个说的跟ps5要死了似的
+
+*****
+
+####  裤袜大落  
+##### 344#       发表于 2021-11-13 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526991&amp;ptid=2037022" target="_blank">鸟耶稣 发表于 2021-11-13 09:51</a>
+ps5第一年的销量比ps4第一年还高，怎么楼里一个个说的跟ps5要死了似的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">ps4第一年如果战神就上了pc  那也得怀疑一下还能活多久
+
