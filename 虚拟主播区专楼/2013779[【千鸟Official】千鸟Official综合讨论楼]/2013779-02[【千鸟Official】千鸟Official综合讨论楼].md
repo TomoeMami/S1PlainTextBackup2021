@@ -7898,3 +7898,26 @@ syl 白白又说啥了，贴吧咋又在ttk
 ..我最近..就一直这样过不去 ..(大哭)
 每次都是,每次都是这样子.大家都是一样的一样的很努力做这件事情
 
+
+
+*****
+
+####  cherrydove  
+##### 2356#       发表于 2021-11-13 13:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">可爱小文静
+
+*****
+
+####  T型钉宫病毒  
+##### 2357#       发表于 2021-11-13 13:01
+
+可爱小文静是吧，给我狠狠的哭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 2358#       发表于 2021-11-13 13:06
+
+文静带资进组的，肯定有背景，首播陈睿上过总督的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

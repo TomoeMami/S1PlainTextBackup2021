@@ -19611,3 +19611,12 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  FanFun  
+##### 1368#       发表于 2021-11-13 13:04
+
+动画党表示这集有点神棍，怎么突然就可以随意穿越了
+

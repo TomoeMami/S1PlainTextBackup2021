@@ -2929,3 +2929,14 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这样砸钱捧我都有点心慌了……毕竟在飞客混那么久都没见过4座的通勤飞机啊……
 
+
+
+*****
+
+####  cybernetics31  
+##### 262#       发表于 2021-11-13 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53528448&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-13 12:26</a>
+这样砸钱捧我都有点心慌了……毕竟在飞客混那么久都没见过4座的通勤飞机啊…… ...</blockquote>
+不见得有多贵，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">螺旋桨式的，不是那种喷气式私人飞机
+
