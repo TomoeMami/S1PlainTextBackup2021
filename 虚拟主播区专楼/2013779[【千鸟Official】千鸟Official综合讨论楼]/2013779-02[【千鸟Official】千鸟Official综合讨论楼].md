@@ -8561,3 +8561,22 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 
 2021-11-14 00:17 上传
 
+
+
+*****
+
+####  lunaticfear  
+##### 2431#       发表于 2021-11-14 03:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535908&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-14 00:19</a>
+
+才发现,隔这儿诈病赚曹爽呢?</blockquote>
+木木这波赚麻了，节奏半点没沾上，好处半点没落下，很难不怀疑是不是什么幕后大boss
+
+*****
+
+####  莫洛骑士  
+##### 2432#       发表于 2021-11-14 05:59
+
+懒狗罢了
+

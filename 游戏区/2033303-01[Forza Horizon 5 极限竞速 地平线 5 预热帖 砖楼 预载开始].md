@@ -11357,3 +11357,14 @@ bo5 输赢都算完成
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狮子头坐牢了四轮总算过了，太惨了。
 
+
+
+*****
+
+####  liyropen  
+##### 1035#       发表于 2021-11-14 01:44
+
+bug好多，今天的表演赛事任务有正常完成的吗
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

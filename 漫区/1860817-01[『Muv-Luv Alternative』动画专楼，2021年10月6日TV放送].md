@@ -19720,3 +19720,19 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 还能有这个质量已经是喜出望外了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oskneo  
+##### 1376#       发表于 2021-11-14 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503553&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-11 13:57</a>
+这集还行吧，后半段的气质还可以，以及香月真的alt女主
+
+本周份供（不知道存不存在的）动画党的查缺 ...</blockquote>
+不过火山避难本体不重要，但影响挺重要的，
+这直接导致了政变，白银武第一次因为自己的行动改变历史导致大规模死人
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
