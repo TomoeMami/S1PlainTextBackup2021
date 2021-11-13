@@ -8305,3 +8305,82 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 
 我静姨呢
 
+
+
+*****
+
+####  伞沢直美  
+##### 2404#       发表于 2021-11-13 19:02
+
+《刺客列传：马文静》风萧萧兮易水寒，文静一去兮老头乐
+
+*****
+
+####  魔法少女大头  
+##### 2405#       发表于 2021-11-13 19:05
+
+我只想看老阿姨和别的老男人联动<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+别惦记你那逼偶像了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灰色的狐狸  
+##### 2406#       发表于 2021-11-13 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532403&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-11-13 19:05</a>
+
+我只想看老阿姨和别的老男人联动
+
+别惦记你那逼偶像了</blockquote>
+文克GKD<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2407#       发表于 2021-11-13 19:07
+
+本次大事件，唯一没有收到任何影响的就是琳，又是第一时间转发道歉的，会不会她才是幕后黑手<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 2408#       发表于 2021-11-13 19:10
+
+文克打咩<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2409#       发表于 2021-11-13 19:15
+
+艾瑞思表面队长其实不过是曹髦而已，文静战功卓著却也免不了一个邓艾的下场，反而是不怎么显山露水的王木木是司马懿是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2410#       发表于 2021-11-13 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532439&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-13 19:07</a>
+
+本次大事件，唯一没有收到任何影响的就是琳，又是第一时间转发道歉的，会不会她才是幕后黑手 ...</blockquote>
+这女人也是藏的很深的.比前几天吧里开玩笑恰静落的傻子粉强不知到哪里去了.
+
+*****
+
+####  tankai  
+##### 2411#       发表于 2021-11-13 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532534&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-13 19:15</a>
+
+艾瑞思表面队长其实不过是曹髦而已，文静战功卓著却也免不了一个邓艾的下场，反而是不怎么显山露水的王木木 ...</blockquote>
+不好说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 2412#       发表于 2021-11-13 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">文静不会真的上位夺权了吧
+
