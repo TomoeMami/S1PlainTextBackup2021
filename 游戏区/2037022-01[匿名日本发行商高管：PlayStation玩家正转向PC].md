@@ -3672,3 +3672,194 @@ STEAM DECK</blockquote>
 
 pc再怎么样就是比主机要麻烦啊，我玩ps2 ngc这些模拟器已经非常成熟的机种都照样实机（除非碟太贵或者买不到）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  简巴•江斯特  
+##### 336#       发表于 2021-11-13 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511723&amp;ptid=2037022" target="_blank">JudgmentEye 发表于 2021-11-12 01:01</a>
+这代除了g胖谁也没赢，ns算上代</blockquote>
+维尔福那个主机还没有出来吧
+
+*****
+
+####  mrlunzer  
+##### 337#       发表于 2021-11-13 08:53
+
+等一下，不如先讨论一下是索尼先把游戏往pc上搬还是玩家先往pc上跑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  ゆい  
+##### 338#       发表于 2021-11-13 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526583&amp;ptid=2037022" target="_blank">mrlunzer 发表于 2021-11-13 08:53</a>
+
+等一下，不如先讨论一下是索尼先把游戏往pc上搬还是玩家先往pc上跑吧 ...</blockquote>
+当然是玩家往pc上跑，不会真觉得ps4是靠索尼第一方那些东西卖到一亿的吧？
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 339#       发表于 2021-11-13 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513250&amp;ptid=2037022" target="_blank">mirrorside 发表于 2021-11-12 09:17</a>
+现在pc真就只剩下外挂这一影响体验的因素了，话说反外挂真就一点办法都没嘛
+
+我还记得以前win10 uwp刚出时 ...</blockquote>
+只要有利可图就是道高一尺魔高一丈的问题。
+
+国内有淘宝产业链加持，大幅度降低了使用门槛，还有一群玩家觉得“凭本事开的挂又有什么问题”
+
+主机不是没挂而是使用门槛高，键鼠转接器不是外挂也是门槛最低的获取不正当优势的产品了。
+
+PC游戏也有几乎没挂的，mhw层主玩了500小时一次都没碰到
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  z.s  
+##### 340#       发表于 2021-11-13 09:35
+
+现在一台pc就基本上等于买了索尼和微软两家游戏机，从当下看买pc还是不错的
+
+*****
+
+####  hotsmile  
+##### 341#       发表于 2021-11-13 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526735&amp;ptid=2037022" target="_blank">再买自检星剁手 发表于 2021-11-13 09:19</a>
+
+只要有利可图就是道高一尺魔高一丈的问题。
+
+国内有淘宝产业链加持，大幅度降低了使用门槛，还有一群玩家 ...</blockquote>
+所以这次PS5没开放手柄接口授权，连转接器都用不了，PS5版的2042真就全体手柄玩家了
+
+*****
+
+####  裤袜大落  
+##### 342#       发表于 2021-11-13 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53514214&amp;ptid=2037022" target="_blank">JudgmentEye 发表于 2021-11-12 10:22</a>
+一切换成非巨硬自带的输入法就跳出
+
+----STAGE1 Mobile</blockquote>
+这是W7专属bug吗 我w10用qq输入法起名玩了快60个小时没见过跳出啊
+
+
+
+*****
+
+####  鸟耶稣  
+##### 343#       发表于 2021-11-13 09:51
+
+ps5第一年的销量比ps4第一年还高，怎么楼里一个个说的跟ps5要死了似的
+
+*****
+
+####  裤袜大落  
+##### 344#       发表于 2021-11-13 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526991&amp;ptid=2037022" target="_blank">鸟耶稣 发表于 2021-11-13 09:51</a>
+ps5第一年的销量比ps4第一年还高，怎么楼里一个个说的跟ps5要死了似的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">ps4第一年如果战神就上了pc  那也得怀疑一下还能活多久
+
+
+
+*****
+
+####  solarcool  
+##### 345#       发表于 2021-11-13 10:05
+
+<blockquote>再买自检星剁手 发表于 2021-11-13 09:19
+只要有利可图就是道高一尺魔高一丈的问题。
+
+国内有淘宝产业链加持，大幅度降低了使用门槛，还有一群玩家 ...</blockquote>
+mhw也能叫几乎没挂？微改哥演技哥不要太多，到了黑龙那里不要脸开出锁血的都多得是。只不过这个游戏不是暴力挂不太影响别人体验而已。
+
+*****
+
+####  ゆい  
+##### 346#       发表于 2021-11-13 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527011&amp;ptid=2037022" target="_blank">裤袜大落 发表于 2021-11-13 09:53</a>
+
+ps4第一年如果战神就上了pc  那也得怀疑一下还能活多久</blockquote>
+ps4第一年不都是屎吗？甚至整个ps4时代第一方也可以说都是屎
+
+*****
+
+####  clmd  
+##### 347#       发表于 2021-11-13 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53522114&amp;ptid=2037022" target="_blank">qratosone 发表于 2021-11-12 20:12</a>
+
+因为这个销量数字本来就是强行献祭上一代主机的结果。正常情况下PS4这样成功的机器，在下一代上市之后还 ...</blockquote>
+ps3和ps4架构完全不同，买ps4版需要重新买一份新游戏，同一个人就会贡献两个销量，ps5和ps4都是x86，ps4游戏碟也可以直插ps5里面玩，所以，就算这次就算没有献祭ps4，也不会像上代那样，利用换代刷销量
+
+*****
+
+####  solarcool  
+##### 348#       发表于 2021-11-13 10:17
+
+泥潭可能真不知道人类有多懒，你买台洗碗机用一段时间可能都会快进到懒到不想把锅碗放进去，更别说学那一堆东西就为了玩个游戏的。就说上真互联网加速这种刚需得多的，我是不信泥潭都是自己搭的而不是去买那些超卖严重的现成加速器。
+
+*****
+
+####  clmd  
+##### 349#       发表于 2021-11-13 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521069&amp;ptid=2037022" target="_blank">pencilnoo 发表于 2021-11-12 18:31</a>
+
+子非鱼，安知鱼之乐？三巨头有谁真把大陆当成重要市场的？你销量占全球几成啊就在这儿指点江山。还你身边的 ...</blockquote>
+既然按照欧美国家惯列的话，欧美占少数的比列的pc玩家才是婆罗门，玩主机的都是小白，大部分买个主机只会玩cod,fifa，问题是我国主机玩家既希望国内游戏平台大趋势是对准欧美，但是玩家阶级划分是要对准发展中国家的，这种自我分裂，我想是很难做到的
+
+
+
+*****
+
+####  clmd  
+##### 350#       发表于 2021-11-13 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53516628&amp;ptid=2037022" target="_blank">NTR狂魔武田一本 发表于 2021-11-12 12:52</a>
+
+我不知道你指的是什么对比或者是哪个报告，但pc在全球范围大获全胜这个结论我是得不出来得，在部分地区的 ...</blockquote>
+生化危机8销量，pc占比25%
+
+生化危机7销量。pc占比10%，你要知道，ps3年代，只要是全平台游戏，pc游戏占比基本就是主机零头，现在呢，却是可以达到总销量的两位数，这不能说明Pc占比在买断单机中是上升的吗
+
+*****
+
+####  920619lqy  
+##### 351#       发表于 2021-11-13 10:32
+
+<blockquote>solarcool 发表于 2021-11-12 20:05
+mhw也能叫几乎没挂？微改哥演技哥不要太多，到了黑龙那里不要脸开出锁血的都多得是。只不过这个游戏不是 ...</blockquote>
+看地区罢了。MHWI开黑龙的开荒期要是挂哥真那么多我也不至于在野队猫到怀疑人生
+
+*****
+
+####  clmd  
+##### 352#       发表于 2021-11-13 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513880&amp;ptid=2037022" target="_blank">丹德里恩 发表于 2021-11-12 10:02</a>
+
+steam主流依旧是1060，谁搁这一年换一个台式啊</blockquote>
+1060只是单卡占比最高而已，性能超过1060的卡，在steam占比已经超过26%了，而且1060占比也从当初的接近20%变成8%了，估计过年底明年年初就要跌出第一宝座了
+
+*****
+
+####  solarcool  
+##### 353#       发表于 2021-11-13 10:36
+
+<blockquote>920619lqy 发表于 2021-11-13 10:32
+看地区罢了。MHWI开黑龙的开荒期要是挂哥真那么多我也不至于在野队猫到怀疑人生 ...</blockquote>
+挂哥锁自己的血，当然不影响你猫车了。再说你说地区，那确实国人多的地区挂会多，欧美那里会少，不过我不觉得要为了这个换地区是什么好的体验。
+
