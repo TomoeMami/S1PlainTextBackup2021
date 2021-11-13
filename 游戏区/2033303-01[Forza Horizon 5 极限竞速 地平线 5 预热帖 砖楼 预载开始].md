@@ -11099,3 +11099,44 @@ resetera讨论贴（里面有下载地址）
 现在嘉年华商店是就是进不去，还是我网有问题？ 每次都提示错误。</blockquote>
 都进不去 感觉是还没开
 
+
+
+*****
+
+####  天神十三煞  
+##### 1013#         楼主| 发表于 2021-11-13 18:16
+
+ 本帖最后由 天神十三煞 于 2021-11-13 02:20 编辑 
+
+[https://github.com/taojy123/KeymouseGo](https://github.com/taojy123/KeymouseGo)
+
+吉普摇摇乐买一部扔一部脚本。
+
+初始状态为有且一部吉普为当前驾驶车辆，
+
+菜单初始状态为房子内车库“我的车辆”，
+
+开启程序后设置次数2先实验下循环有没有问题，
+
+最小化红框光标停在“我的车辆”，
+
+然后再按F6开始循环。
+
+存txt放同级scripts目录下。
+  [  [1200,"EK","key down",[39,"Right",1]],  [100,"EK","key up",[39,"Right",1]],  [600,"EK","key down",[13,"Return",0]],  [100,"EK","key up",[13,"Return",0]],  [1778,"EK","key down",[89,"Y",0]],  [60,"EK","key up",[89,"Y",0]],  [633,"EK","key down",[13,"Return",0]],  [79,"EK","key up",[13,"Return",0]],  [885,"EK","key down",[27,"Escape",0]],  [58,"EK","key up",[27,"Escape",0]],  [1310,"EK","key down",[37,"Left",1]],  [119,"EK","key up",[37,"Left",1]],  [504,"EK","key down",[13,"Return",0]],  [91,"EK","key up",[13,"Return",0]],  [871,"EK","key down",[88,"X",0]],  [64,"EK","key up",[88,"X",0]],  [890,"EK","key down",[13,"Return",0]],  [83,"EK","key up",[13,"Return",0]],  [726,"EK","key down",[38,"Up",1]],  [87,"EK","key up",[38,"Up",1]],  [402,"EK","key down",[13,"Return",0]],  [100,"EK","key up",[13,"Return",0]],  [819,"EK","key down",[13,"Return",0]],  [82,"EK","key up",[13,"Return",0]],  [7630,"EK","key down",[27,"Escape",0]],  [85,"EK","key up",[27,"Escape",0]],  [1895,"EK","key down",[37,"Left",1]],  [143,"EK","key up",[37,"Left",1]],  [432,"EK","key down",[13,"Return",0]],  [85,"EK","key up",[13,"Return",0]],  [922,"EK","key down",[39,"Right",1]],  [119,"EK","key up",[39,"Right",1]],  [267,"EK","key down",[39,"Right",1]],  [110,"EK","key up",[39,"Right",1]],  [321,"EK","key down",[40,"Down",1]],  [140,"EK","key up",[40,"Down",1]],  [291,"EK","key down",[13,"Return",0]],  [112,"EK","key up",[13,"Return",0]],  [992,"EK","key down",[13,"Return",0]],  [72,"EK","key up",[13,"Return",0]],  [800,"EK","key down",[39,"Right",1]],  [131,"EK","key up",[39,"Right",1]],  [684,"EK","key down",[39,"Right",1]],  [161,"EK","key up",[39,"Right",1]],  [446,"EK","key down",[13,"Return",0]],  [102,"EK","key up",[13,"Return",0]],  [703,"EK","key down",[38,"Up",1]],  [113,"EK","key up",[38,"Up",1]],  [380,"EK","key down",[13,"Return",0]],  [97,"EK","key up",[13,"Return",0]],  [1000,"EK","key down",[27,"Escape",0]],  [100,"EK","key up",[27,"Escape",0]],  [1226,"EK","key down",[27,"Escape",0]],  [69,"EK","key up",[27,"Escape",0]],  [1431,"EK","key down",[39,"Right",1]],  [93,"EK","key up",[39,"Right",1]],  [215,"EK","key down",[13,"Return",0]],  [86,"EK","key up",[13,"Return",0]],  [778,"EK","key down",[88,"X",0]],  [75,"EK","key up",[88,"X",0]],  [670,"EK","key down",[13,"Return",0]],  [87,"EK","key up",[13,"Return",0]],  [951,"EK","key down",[38,"Up",1]],  [108,"EK","key up",[38,"Up",1]],  [357,"EK","key down",[13,"Return",0]],  [93,"EK","key up",[13,"Return",0]],  [640,"EK","key down",[40,"Down",1]],  [100,"EK","key up",[40,"Down",1]],  [100,"EK","key down",[40,"Down",1]],  [93,"EK","key up",[40,"Down",1]],  [100,"EK","key down",[40,"Down",1]],  [102,"EK","key up",[40,"Down",1]],  [200,"EK","key down",[40,"Down",1]],  [66,"EK","key up",[40,"Down",1]],  [200,"EK","key down",[13,"Return",0]],  [80,"EK","key up",[13,"Return",0]],  [600,"EK","key down",[13,"Return",0]],  [60,"EK","key up",[13,"Return",0]],  [800,"EK","key down",[27,"Escape",0]],  [60,"EK","key up",[27,"Escape",0]] ] 复制代码
+
+*****
+
+####  sanlow666  
+##### 1014#       发表于 2021-11-13 18:17
+
+自己跑加挂机都升到一转37级了，期间不知道抽了多少次超级抽奖终于把这辆豆腐神车搞到手
+
+<img src="https://img.saraba1st.com/forum/202111/13/181726a4z8iai5eazwwym1.png" referrerpolicy="no-referrer">
+
+<strong>Forza Horizon 5 2021_11_13 18_13_41.png</strong> (271.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 18:17 上传
+

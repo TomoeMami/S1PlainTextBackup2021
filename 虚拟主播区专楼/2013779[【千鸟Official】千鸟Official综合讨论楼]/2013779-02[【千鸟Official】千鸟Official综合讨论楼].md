@@ -8143,3 +8143,74 @@ cj飞了，所以这是谁发的？🤔
 你这个，好几个版本前贴吧就水过了</blockquote>
 对不起，不刷贴吧，实在不知道自己火星了
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2385#       发表于 2021-11-13 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531691&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-13 18:05</a>
+所有的人都带文字转发了，文静这边是“转发动态”</blockquote>
+运营代转
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T型钉宫病毒  
+##### 2386#       发表于 2021-11-13 18:09
+
+看到单单转发个公告快被吓死<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2387#       发表于 2021-11-13 18:11
+
+所以文静呢，不会包含在人员调动里吧<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cherrydove  
+##### 2388#       发表于 2021-11-13 18:13
+
+文静和cj一换一是吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 2389#       发表于 2021-11-13 18:13
+
+文静不想搭理你们罢了，再多说两句，超级侦探又该认真办案了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2390#       发表于 2021-11-13 18:17
+
+别尬黑了，文静约陈珺钓鱼去了，现在在找大石头，没空打字。
+
+*****
+
+####  GAKOTO  
+##### 2391#         楼主| 发表于 2021-11-13 18:18
+
+我等不知是狂是愚
+
+*****
+
+####  伞沢直美  
+##### 2392#       发表于 2021-11-13 18:18
+
+静静，你说句话啊，你是不是被优化了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 2393#       发表于 2021-11-13 18:22
+
+蛮画饼的,感觉还是看不到什么未来
+
+一个月嗯播80小时还有官号80小时, 不解决未来很难有效产出内容
+
