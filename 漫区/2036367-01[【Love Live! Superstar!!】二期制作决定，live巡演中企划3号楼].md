@@ -3085,3 +3085,32 @@ nako的丸子头已经够难顶了，再染白色还得了pay堇这混血脸倒�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  player3960  
+##### 277#       发表于 2021-11-13 16:22
+
+看到个贴子说油土官方切片小星星被纪实文学超过啦！恭喜堇c<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便自己动手更新了一下星团切片播放量统计数据，把一单也加进去了排名
+
+1.ノンフィクション            136.9万
+
+2.tiny stars                        134.2万
+
+3.始まりは君の空MV           132.4万
+
+4.START!! True dreams       98万
+
+5.常夏☆サンシャイン          97.3万
+
+6.未来予報ハレルヤ！         84.7万
+
+7.未来は風のように            71.4万
+
+8.Wish Song                     46.8万
+
+9.Starlight Prologue           36.1万
+
