@@ -10878,3 +10878,41 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 这个蛇头比赛还要看运气，排到新手进去扭来扭去和排到dalao直接吊打AI体验完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  littlezoo  
+##### 993#       发表于 2021-11-13 11:51
+
+5光追MOD有了，正常比赛的时候也可以开光追了！
+
+DF为这个MOD专门又做了一期地平线5的视频。。。。23333
+[https://www.youtube.com/watch?v=VtHCpO88l_w&amp;t=325s](https://www.youtube.com/watch?v=VtHCpO88l_w&amp;t=325s)
+
+B站地址：[https://www.bilibili.com/video/BV13Q4y1U7WA?from=search&amp;seid=14745108795873035391&amp;spm_id_from=333.337.0.0](https://www.bilibili.com/video/BV13Q4y1U7WA?from=search&amp;seid=14745108795873035391&amp;spm_id_from=333.337.0.0)
+
+resetera讨论贴（里面有下载地址）
+[https://www.resetera.com/threads/forza-horizon-5-pc-in-game-ray-tracing-mod-rt-on-off-comparisons-performance-tests.513534/](https://www.resetera.com/threads/forza-horizon-5-pc-in-game-ray-tracing-mod-rt-on-off-comparisons-performance-tests.513534/)
+
+开启之后效果是这样的~~~:h18 
+
+包括轮胎尾翼反光镜之类的所有车身部件都可以正确反射了，甚至牌照灯，格栅网都可以反射出来，真实度进一步提高，值得一试。
+
+<img src="https://z3.ax1x.com/2021/11/13/Is9KhQ.jpg" referrerpolicy="no-referrer">
+
+<img src="https://z3.ax1x.com/2021/11/13/IsCV29.jpg" referrerpolicy="no-referrer">
+
+<img src="https://z3.ax1x.com/2021/11/13/Is9j3j.jpg" referrerpolicy="no-referrer">
+
+<img src="https://z3.ax1x.com/2021/11/13/Is9ah4.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Existinghomes  
+##### 994#       发表于 2021-11-13 12:30
+
+对比隔壁2042突然感觉pg也算够意思了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">起码没连夜宣布社区自制赛事不获得技能点&amp;XP
+
