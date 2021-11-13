@@ -11379,3 +11379,14 @@ msm的银盾到了
 solo战的时候我推被你黛击杀了，我要化身anti了</blockquote>
 毕竟是干掉了那个hikakin取得冠军的人嘛，这也是没办法的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AraTurambar  
+##### 8331#       发表于 2021-11-13 23:34
+
+正好看到外野因为某大二征婚的事情聊起了lain……
+
+感到黛灰当初整的活是不是挺有lain那味的。
+

@@ -11244,3 +11244,39 @@ resetera讨论贴（里面有下载地址）
 
 这劲敌赞赏给的车还挺好拿的, 感觉只要开出干净圈就能进5%
 
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 1024#       发表于 2021-11-13 23:21
+
+这赞赏系统什么傻逼判定，我七座房子全买了愣是只算买了六座<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">那个大亨奖赏可是给唯一一辆车的
+
+*****
+
+####  4ckc  
+##### 1025#       发表于 2021-11-13 23:24
+
+发泄压力那个锦标赛第一场强烈怀疑有bug，ai的车速极不科学各种裸超，重试了N次换了个调教拿supra勉强第二，然后后面两场都轻松第一<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aaronluray  
+##### 1026#       发表于 2021-11-13 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535464&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-13 23:24</a>
+
+发泄压力那个锦标赛第一场强烈怀疑有bug，ai的车速极不科学各种裸超，重试了N次换了个调教拿supra勉强第二 ...</blockquote>
+那场我都是直接当鱼雷了，一开始ai跑得贼快，我只有弯道不减速直接往上撞，大概撞个三个弯就到第一了。这代ai最狗的是永远在你屁股后面跟着，你一不小心他biu～就跑你前面了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nemunoki  
+##### 1027#       发表于 2021-11-13 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">终于搞定，运气好第三场技术分只要总计100W就算过，最后数了一下圈里一共8个人，虽然跑的时候明显没那么多但只是隐形了而已，实际都是在算分的
+<[img src="https://z3.ax1x.com/2021/11/13/IybyKU.png" referrerpolicy="no-referrer">
+
