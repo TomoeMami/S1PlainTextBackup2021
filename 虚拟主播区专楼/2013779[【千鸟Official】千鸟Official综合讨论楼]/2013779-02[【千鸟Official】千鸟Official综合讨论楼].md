@@ -8011,3 +8011,21 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 你去里面捞人是吧，什么p2p骗局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  丢了五块钱  
+##### 2369#       发表于 2021-11-13 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53530185&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-13 15:23</a>
+你去里面捞人是吧，什么p2p骗局</blockquote>
+这是更弱智的包生男孩骗局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2370#       发表于 2021-11-13 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">昨天白白训粉呗 还能有啥 没处理好
+
