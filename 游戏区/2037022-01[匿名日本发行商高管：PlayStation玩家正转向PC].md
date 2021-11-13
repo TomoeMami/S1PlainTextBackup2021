@@ -3890,3 +3890,32 @@ steam主流依旧是1060，谁搁这一年换一个台式啊</blockquote>
 
 塞尔达你不买ns就玩不了。
 
+
+
+*****
+
+####  JudgmentEye  
+##### 356#       发表于 2021-11-13 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526871&amp;ptid=2037022" target="_blank">裤袜大落 发表于 2021-11-13 09:38</a>
+
+这是W7专属bug吗 我w10用qq输入法起名玩了快60个小时没见过跳出啊</blockquote>
+我是win11输入名字时用巨硬自带的输入法也跳出，平时不跳，win7不管什么输入法，任何时候只要一切就跳出
+
+*****
+
+####  双刀少女  
+##### 357#       发表于 2021-11-13 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">linux还折腾啊？什么时代了，windows现在折腾多了好吧
+
+*****
+
+####  JudgmentEye  
+##### 358#       发表于 2021-11-13 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526583&amp;ptid=2037022" target="_blank">mrlunzer 发表于 2021-11-13 08:53</a>
+
+等一下，不如先讨论一下是索尼先把游戏往pc上搬还是玩家先往pc上跑吧 ...</blockquote>
+奎爷5上pc我还买x确定没mod没修改器的ps5干嘛
+

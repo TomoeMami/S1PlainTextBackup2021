@@ -11271,3 +11271,32 @@ fumi的ddd果然穿模严重<img src="https://static.saraba1st.com/image/smiley/
 
 10位的声优出演过什么知名角色吗怎么没印象但是又有那么多订阅
 
+
+
+*****
+
+####  poipanchao  
+##### 8322#       发表于 2021-11-13 17:09
+
+《含金量》
+
+*****
+
+####  free  
+##### 8323#       发表于 2021-11-13 17:16
+
+P丸12.11的两国live，B站票199，zaiko5000日元
+
+她在B站有字幕组吗，B站的买票说明看着怎么像机翻的
+
+[https://live.bilibili.com/blackboard/activity-NQImHSKTZf.html](https://live.bilibili.com/blackboard/activity-NQImHSKTZf.html)
+[https://pmarusama.zaiko.io/buy/1rxm:izs:628fd](https://pmarusama.zaiko.io/buy/1rxm:izs:628fd)
+
+<img src="https://img.saraba1st.com/forum/202111/13/171633isus9uisse2ou4lw.jpg" referrerpolicy="no-referrer">
+
+<strong>p.jpg</strong> (263.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 17:16 上传
+

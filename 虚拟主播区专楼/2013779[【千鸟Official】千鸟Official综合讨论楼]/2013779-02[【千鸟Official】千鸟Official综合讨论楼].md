@@ -8038,3 +8038,12 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 管人总有这一天，但为时过早，目前企划处于风口浪尖上，可以不理的。
 
+
+
+*****
+
+####  小憨1  
+##### 2372#       发表于 2021-11-13 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">两天整了
+
