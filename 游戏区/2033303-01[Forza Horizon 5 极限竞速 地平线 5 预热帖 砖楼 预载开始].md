@@ -10916,3 +10916,12 @@ resetera讨论贴（里面有下载地址）
 
 对比隔壁2042突然感觉pg也算够意思了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">起码没连夜宣布社区自制赛事不获得技能点&amp;XP
 
+
+
+*****
+
+####  bad_alloc  
+##### 995#       发表于 2021-11-13 13:01
+
+这86太便宜了, 拍卖行出一辆就被秒买断, 根本抢不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -7921,3 +7921,29 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 文静带资进组的，肯定有背景，首播陈睿上过总督的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 2359#       发表于 2021-11-13 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527183&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-13 10:16</a>
+
+40小时没动静了🤗</blockquote>
+六耳被质疑后,装死等大圣归来了,也不能说错.
+
+*****
+
+####  haruhiismer  
+##### 2360#       发表于 2021-11-13 13:17
+
+都怪打假人这下连rp都没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2361#       发表于 2021-11-13 13:20
+
+我开始理解当时的小地暖们了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

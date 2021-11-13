@@ -19620,3 +19620,22 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 动画党表示这集有点神棍，怎么突然就可以随意穿越了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1369#       发表于 2021-11-13 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53528875&amp;ptid=1860817" target="_blank">FanFun 发表于 2021-11-13 13:04</a>
+
+动画党表示这集有点神棍，怎么突然就可以随意穿越了</blockquote>
+原作里尝试了几次，动画省略了
+
+*****
+
+####  Yeaha123  
+##### 1370#       发表于 2021-11-13 13:24
+
+读心也挺神棍的
+
