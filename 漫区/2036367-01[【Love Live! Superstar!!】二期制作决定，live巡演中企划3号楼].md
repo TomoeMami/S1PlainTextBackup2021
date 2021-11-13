@@ -3016,3 +3016,30 @@ nako的丸子头已经够难顶了，再染白色还得了<img src="https://stat
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">便利店看到也太惨了
 
+
+
+*****
+
+####  lj205  
+##### 271#       发表于 2021-11-13 14:33
+
+我在意大利花10欧买的饰品国内看到一摸一样的，标价20<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+这也是旅行乐趣之一，不得不品尝
+
+*****
+
+####  绯想alter2nd  
+##### 272#       发表于 2021-11-13 14:35
+
+便利店看到，不基德的笑出了声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 273#       发表于 2021-11-13 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么叫特产，这才是真正的特产
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
