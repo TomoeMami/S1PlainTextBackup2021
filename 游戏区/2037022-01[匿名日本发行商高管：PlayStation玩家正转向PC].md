@@ -3672,3 +3672,31 @@ STEAM DECK</blockquote>
 
 pc再怎么样就是比主机要麻烦啊，我玩ps2 ngc这些模拟器已经非常成熟的机种都照样实机（除非碟太贵或者买不到）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  简巴•江斯特  
+##### 336#       发表于 2021-11-13 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511723&amp;ptid=2037022" target="_blank">JudgmentEye 发表于 2021-11-12 01:01</a>
+这代除了g胖谁也没赢，ns算上代</blockquote>
+维尔福那个主机还没有出来吧
+
+*****
+
+####  mrlunzer  
+##### 337#       发表于 2021-11-13 08:53
+
+等一下，不如先讨论一下是索尼先把游戏往pc上搬还是玩家先往pc上跑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  ゆい  
+##### 338#       发表于 2021-11-13 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526583&amp;ptid=2037022" target="_blank">mrlunzer 发表于 2021-11-13 08:53</a>
+
+等一下，不如先讨论一下是索尼先把游戏往pc上搬还是玩家先往pc上跑吧 ...</blockquote>
+当然是玩家往pc上跑，不会真觉得ps4是靠索尼第一方那些东西卖到一亿的吧？
+
