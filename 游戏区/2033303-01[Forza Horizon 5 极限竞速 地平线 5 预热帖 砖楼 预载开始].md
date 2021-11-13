@@ -10869,3 +10869,12 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 一早报错进不去</blockquote>
 同，一个神秘的报错无法执行EXE，昨晚睡前还好好的
 
+
+
+*****
+
+####  -SLSL-  
+##### 992#       发表于 2021-11-13 10:29
+
+这个蛇头比赛还要看运气，排到新手进去扭来扭去和排到dalao直接吊打AI体验完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

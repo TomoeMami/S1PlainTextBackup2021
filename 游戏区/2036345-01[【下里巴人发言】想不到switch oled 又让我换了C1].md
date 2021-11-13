@@ -1045,3 +1045,16 @@ c1偏色啊 你们买显示器都不看色准的吗
 
 就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">谢谢你switch oled
 
+
+
+*****
+
+####  猫不萌  
+##### 97#       发表于 2021-11-13 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527179&amp;ptid=2036345" target="_blank">zris 发表于 2021-11-13 10:15</a>
+今早把switch oled卖了
+
+如果我不买C1的话，我估计还好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我买了ns oled也想买lg c1了，就出门玩oled还是不错的
+

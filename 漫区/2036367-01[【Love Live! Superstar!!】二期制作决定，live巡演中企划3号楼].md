@@ -2866,3 +2866,45 @@ sayu对自己的身高还是挺在意的，最近提了好多次了。这孩子�
 
 经纪人fc又更新文章了，鲤鱼坐的飞机是4座小飞机<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看起来很高端的样子
 
+
+
+*****
+
+####  仟音一心  
+##### 258#       发表于 2021-11-13 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526861&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-13 09:37</a>
+
+经纪人fc又更新文章了，鲤鱼坐的飞机是4座小飞机看起来很高端的样子</blockquote>
+应该是商务飞机，反正公司掏钱。
+
+81AD900F-104B-4AB2-B8D5-615C67264845.jpeg
+(319.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/13/103547z1yezrhyylxrhl1z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5510F51D-664F-4C30-A82D-F29E3DF59018.jpeg
+(329.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/13/103554x8s2e22ds8uqg2dv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 259#       发表于 2021-11-13 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524050&amp;ptid=2036367" target="_blank">lucksolo 发表于 2021-11-12 22:37</a>
+
+刷油管看到这封面 这俩人也太像了</blockquote>
+一时间我没分出来到底是谁举着谁的牌子。。
+
+说起来广播里小百合说自己在家穿10cm底厚的鞋子来体会高个子www
+
