@@ -4130,3 +4130,17 @@ NS PS都退过，而且NS我是买了一周之后发现买错版本退的，你�
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ゆい  
+##### 375#       发表于 2021-11-13 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532810&amp;ptid=2037022" target="_blank">你好s1 发表于 2021-11-13 19:49</a>
+
+你要说买游戏方便，主机靠边站吧还是
+
+ 特别点名辣鸡PS的商城，之前没有愿望单不说</blockquote>
+这贴不是说的日本？日服搜索我没觉得有什么问题，实体店买游戏也比买数字版方便
+

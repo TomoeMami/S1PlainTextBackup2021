@@ -11176,3 +11176,15 @@ resetera讨论贴（里面有下载地址）
 
 我把前面回复的总结帖到顶楼了
 
+
+
+*****
+
+####  gzGaryC  
+##### 1018#       发表于 2021-11-13 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532562&amp;ptid=2033303" target="_blank">DancingAndy 发表于 2021-11-13 19:18</a>
+
+纯萌新 这漂移区间13w咋飘出来的 撑死八万多了</blockquote>
+找一辆适合漂移的车（调教），关掉电子辅助，用手动挡。关键是飘的时候油门别踩死，直路左右摆车头也能拿分
+
