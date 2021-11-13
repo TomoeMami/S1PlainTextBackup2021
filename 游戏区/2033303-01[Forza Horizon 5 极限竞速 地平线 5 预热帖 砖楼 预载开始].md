@@ -11035,3 +11035,22 @@ resetera讨论贴（里面有下载地址）
 
 一但开始就只有你一个了
 
+
+
+*****
+
+####  冀人燕南天  
+##### 1007#       发表于 2021-11-13 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53530582&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-13 16:14</a>
+
+过关主要看人数
+
+但现在这个狗屁服务器根本连不上人
+
+最搞笑的是等待的时候红圈还有几个人</blockquote>
+刚好NGA看到个帖子：[https://bbs.nga.cn/read.php?tid=29423255&amp;_ff=830](https://bbs.nga.cn/read.php?tid=29423255&amp;_ff=830)
+ <blockquote>4代里红圈活动每小时一次，而且每次只有一个红圈，所以能有足够的玩家集结，完成任务也简单。
+
+而5代里每15分钟地图上就会出现3个红圈，于是本来就不多的在线玩家就在时间和空间的层面上又各被分散了一次，让完成任务变成了痴心妄想。</blockquote>
+

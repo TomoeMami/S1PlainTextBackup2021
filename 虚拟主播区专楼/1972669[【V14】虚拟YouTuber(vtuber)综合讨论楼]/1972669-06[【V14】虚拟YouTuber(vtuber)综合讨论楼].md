@@ -11239,3 +11239,35 @@ fumi的ddd果然穿模严重<img src="https://static.saraba1st.com/image/smiley/
 
 想看看哪些插画多哪些漫画多。
 
+
+
+*****
+
+####  free  
+##### 8319#       发表于 2021-11-13 16:42
+
+圆脸大人气声优佐藤希真是太厉害了
+[https://twitter.com/VoiceUtopia/status/1459401758766108675](https://twitter.com/VoiceUtopia/status/1459401758766108675)
+
+<img src="https://img.saraba1st.com/forum/202111/13/164239yqm522rsxlzeexvs.jpg" referrerpolicy="no-referrer">
+
+<strong>圆脸人气.jpg</strong> (430.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 16:42 上传
+
+*****
+
+####  -rm7-  
+##### 8320#       发表于 2021-11-13 16:47
+
+含金量杀手罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 8321#       发表于 2021-11-13 16:57
+
+10位的声优出演过什么知名角色吗怎么没印象但是又有那么多订阅
+
