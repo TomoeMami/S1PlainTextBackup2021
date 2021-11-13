@@ -3700,3 +3700,24 @@ pc再怎么样就是比主机要麻烦啊，我玩ps2 ngc这些模拟器已经�
 等一下，不如先讨论一下是索尼先把游戏往pc上搬还是玩家先往pc上跑吧 ...</blockquote>
 当然是玩家往pc上跑，不会真觉得ps4是靠索尼第一方那些东西卖到一亿的吧？
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 339#       发表于 2021-11-13 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53513250&amp;ptid=2037022" target="_blank">mirrorside 发表于 2021-11-12 09:17</a>
+现在pc真就只剩下外挂这一影响体验的因素了，话说反外挂真就一点办法都没嘛
+
+我还记得以前win10 uwp刚出时 ...</blockquote>
+只要有利可图就是道高一尺魔高一丈的问题。
+
+国内有淘宝产业链加持，大幅度降低了使用门槛，还有一群玩家觉得“凭本事开的挂又有什么问题”
+
+主机不是没挂而是使用门槛高，键鼠转接器不是外挂也是门槛最低的获取不正当优势的产品了。
+
+PC游戏也有几乎没挂的，mhw层主玩了500小时一次都没碰到
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

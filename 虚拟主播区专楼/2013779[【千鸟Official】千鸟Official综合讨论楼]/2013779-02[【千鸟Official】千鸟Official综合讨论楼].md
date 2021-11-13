@@ -7777,3 +7777,14 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 莫洛收收味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  haruhiismer  
+##### 2344#       发表于 2021-11-13 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53525689&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-13 01:33</a>
+颜色透出来了🥵🥵🥵</blockquote>
+这个是8bit或者6bit颜色断层
+
