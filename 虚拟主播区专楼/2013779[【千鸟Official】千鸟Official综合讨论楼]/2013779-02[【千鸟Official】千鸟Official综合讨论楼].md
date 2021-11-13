@@ -7826,3 +7826,21 @@ syl 白白又说啥了，贴吧咋又在ttk
 
 出牌吧！文静！出牌吧！文静！出牌吧！文静！出牌吧！文静！出牌吧！文静！出牌吧！文静！出牌吧！文静！
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2349#       发表于 2021-11-13 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53526762&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-12 21:23</a>
+这个是8bit或者6bit颜色断层</blockquote>
+错误的，就是bra
+
+*****
+
+####  夜潇箫  
+##### 2350#       发表于 2021-11-13 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">文静被关在地下室，已经是老头的形状了
+
