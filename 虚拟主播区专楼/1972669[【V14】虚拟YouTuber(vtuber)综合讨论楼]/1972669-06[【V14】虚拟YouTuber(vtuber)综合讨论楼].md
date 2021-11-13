@@ -11367,3 +11367,15 @@ msm的银盾到了
 
 不是吧，多井pro带着郡郡舞元被路易斯天开打烂了，说实话现在已经到了一个我看不懂也无法评价的程度了，614现在这么猛了嘛（虽然一直很猛
 
+
+
+*****
+
+####  fastary  
+##### 8330#       发表于 2021-11-13 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534631&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-11-13 22:11</a>
+
+solo战的时候我推被你黛击杀了，我要化身anti了</blockquote>
+毕竟是干掉了那个hikakin取得冠军的人嘛，这也是没办法的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

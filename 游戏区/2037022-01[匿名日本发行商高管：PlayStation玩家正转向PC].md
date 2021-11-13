@@ -4224,3 +4224,53 @@ NS PS都退过，而且NS我是买了一周之后发现买错版本退的，你�
 我理解的对不对 ...</blockquote>
 pc上也有不少可以分屏的游戏，这个没什么影响，但pc毕竟比单纯打游戏的家用机有更多私人的东西，相对来说确实不是很方便
 
+
+
+*****
+
+####  dumplingpro  
+##### 383#       发表于 2021-11-13 22:31
+
+ 本帖最后由 dumplingpro 于 2021-11-13 22:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534588&amp;ptid=2037022" target="_blank">绿冰 发表于 2021-11-13 22:08</a>
+
+现在反过来了吧，顶级3A依靠骨折近乎倾销，二线游戏被严重挤压</blockquote>
+对，大趋势是一直在两极分化，PC靠着玩家分散的特性勉强减缓了被侵蚀的速度，主机就是一路快进了，3A销量节节攀升，代价就是中等游戏迅速灭绝，比如当年日本那些几十万级别的游戏近乎全灭。
+
+*****
+
+####  qwased  
+##### 384#       发表于 2021-11-13 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532654&amp;ptid=2037022" target="_blank">SICP 发表于 2021-11-13 19:33</a>
+
+别担心，PS5的Root密钥已经被完整提取了，很快就有破解了，对你来说是个重大利好消息 ...</blockquote>
+现在的游戏起码有超过一半是没了网战就损失大半乐趣的类型了，盗版也没啥好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dumplingpro  
+##### 385#       发表于 2021-11-13 22:40
+
+ 本帖最后由 dumplingpro 于 2021-11-13 22:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534461&amp;ptid=2037022" target="_blank">叉子 发表于 2021-11-13 21:59</a>
+
+想和家人一起玩游戏。如果玩pc的话，就要买两台电脑两份游戏。而主机只要买两个手柄就行。
+
+我理解的对不对 ...</blockquote>
+这个纯粹看游戏类型，游戏支持就行。
+
+倒是蒸汽考虑到PC社恐死宅多，还在串流功能上，专门加了个远程同乐功能，支持一个游戏两个手柄的游戏，也能远程这么干。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://store.steampowered.com/together](https://store.steampowered.com/together)
+
+*****
+
+####  SICP  
+##### 386#       发表于 2021-11-13 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534940&amp;ptid=2037022" target="_blank">qwased 发表于 2021-11-13 22:34</a>
+现在的游戏起码有超过一半是没了网战就损失大半乐趣的类型了，盗版也没啥好玩的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好S1是玩破解的，和泥潭另一位**一样
+
+联网的游戏如果是跨平台的只要能BAN主机玩家我是第一时间BAN的，BAN不了就只能捏着鼻子玩了，SFV、Fallout Guys、BF系列都是外挂PC玩家在搅屎
+
