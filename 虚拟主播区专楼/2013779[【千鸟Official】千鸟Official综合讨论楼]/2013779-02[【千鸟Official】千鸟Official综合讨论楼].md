@@ -8214,3 +8214,75 @@ cj飞了，所以这是谁发的？🤔
 
 一个月嗯播80小时还有官号80小时, 不解决未来很难有效产出内容
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2394#       发表于 2021-11-13 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">买个菜回来发觉cj人没了（宣传上）
+
+这事儿发展得算快还是正常？
+
+*****
+
+####  袜子  
+##### 2395#       发表于 2021-11-13 18:27
+
+处理情况跟整个事情比起来过于平平无奇了，虎头蛇尾的乐子水平，看文静这回是否回锅肉来造节目效果了，至于这些饼，只能说狗都不信，现在这个直播时长想空出空间来增加直播员能力和节目效果都是做梦
+
+SYL整个处理速度和方案都属于糊弄人的正常水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 2396#         楼主| 发表于 2021-11-13 18:29
+
+说实话，我不想要什么内容，我就想要文静像直播员一样天天嗯播
+
+*****
+
+####  IDIDIDID  
+##### 2397#       发表于 2021-11-13 18:31
+
+高情商：偶像已经品鉴得够多了
+
+低情商：比文静更强的虚拟偶像和比千鸟更强的企划有的是，我想看偶像可以换台
+
+我需要的是阿姨直播员，别nm偶像梦了。
+
+*****
+
+####  四叶的花  
+##### 2398#       发表于 2021-11-13 18:36
+
+这是文静和🐦p的胜利，那么，代价是什么呢？我静呢？
+
+*****
+
+####  haruhiismer  
+##### 2399#       发表于 2021-11-13 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531890&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-11-13 18:22</a>
+蛮画饼的,感觉还是看不到什么未来
+
+一个月嗯播80小时还有官号80小时, 不解决未来很难有效产出内容 ...</blockquote>
+反正先把雷拆了又能开文静<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 2400#       发表于 2021-11-13 18:40
+
+看不到未来老阿姨绝对第一个跑路，姑且再信一次<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  四叶的花  
+##### 2401#       发表于 2021-11-13 18:42
+
+🐦p的愿望很简单，只要能看到他们五个开开心心的直播就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

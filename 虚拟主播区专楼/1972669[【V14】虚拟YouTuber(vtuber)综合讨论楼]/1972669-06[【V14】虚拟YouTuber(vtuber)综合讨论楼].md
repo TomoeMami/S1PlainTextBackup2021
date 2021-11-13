@@ -11300,3 +11300,27 @@ P丸12.11的两国live，B站票199，zaiko5000日元
 
 2021-11-13 17:16 上传
 
+
+
+*****
+
+####  fastary  
+##### 8324#       发表于 2021-11-13 18:34
+
+因为在えぺまつり上指名大物实况者然后初对面タメ口被对方的观众各种指责的黑客
+
+简直已经变成令人怀念的景象了
+
+两年前还是刚出道难讲会不会严重受挫的时候，现在已经不需要在意这种小事了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+话说回来404关闭具体踩数真是好时机啊
+
+*****
+
+####  winda  
+##### 8325#       发表于 2021-11-13 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">荒野行动工商评论栏好地狱啊
+
+v豚大战荒野民大战apex民了
+

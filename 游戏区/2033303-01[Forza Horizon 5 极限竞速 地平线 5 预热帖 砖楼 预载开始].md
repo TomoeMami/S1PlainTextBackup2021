@@ -11140,3 +11140,16 @@ resetera讨论贴（里面有下载地址）
 
 2021-11-13 18:17 上传
 
+
+
+*****
+
+####  bad_alloc  
+##### 1015#       发表于 2021-11-13 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531827&amp;ptid=2033303" target="_blank">sanlow666 发表于 2021-11-13 18:17</a>
+自己跑加挂机都升到一转37级了，期间不知道抽了多少次超级抽奖终于把这辆豆腐神车搞到手
+
+ ...</blockquote>
+下午蹲了一小时拍卖行根本抢不到，挂机搞了100个超级抽奖拿到了，这pg从4代开始老把这些情怀车锁起来真没意思
+
