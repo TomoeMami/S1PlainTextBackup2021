@@ -11081,3 +11081,21 @@ resetera讨论贴（里面有下载地址）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">找不到在iOS上用xcloud的教程 很无助
 
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 1011#       发表于 2021-11-13 17:24
+
+现在嘉年华商店是就是进不去，还是我网有问题？ 每次都提示错误。
+
+*****
+
+####  萱时令  
+##### 1012#       发表于 2021-11-13 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531185&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-13 17:24</a>
+现在嘉年华商店是就是进不去，还是我网有问题？ 每次都提示错误。</blockquote>
+都进不去 感觉是还没开
+
