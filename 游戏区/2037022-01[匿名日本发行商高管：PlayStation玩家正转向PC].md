@@ -4191,3 +4191,36 @@ NS PS都退过，而且NS我是买了一周之后发现买错版本退的，你�
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  绿冰  
+##### 380#       发表于 2021-11-13 22:08
+
+<blockquote>dumplingpro 发表于 2021-11-13 20:42
+而且pc一直以来存在一个问题，游戏比主机多了一个数量级，也存在大量独有的游戏类型。玩家口味多元化，被 ...</blockquote>
+现在反过来了吧，顶级3A依靠骨折近乎倾销，二线游戏被严重挤压
+
+*****
+
+####  浅色轮回  
+##### 381#       发表于 2021-11-13 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53533418&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-13 20:42</a>
+
+而且pc一直以来存在一个问题，游戏比主机多了一个数量级，也存在大量独有的游戏类型。玩家口味多元化，被 ...</blockquote>
+说了这么多主机还是在存量玩家里转悠但玩家的增量被pc吃掉了，psn会员数一直都没怎么涨但pc销量数据涨了就很有意思了，微软跳出主机硬件存量战争直接目标软件平台，xgp海量的游戏阵容在国内起码是站稳了脚跟（我r6群人手一份），现阶段手机掌机（switch）对主机抢玩家增量太猛，核显性能大跃进，各家掌机出来也只是时间问题，epic xgp steam都有意往软件平台化发展，索尼这么搞下去在pc上建立平台也是时间问题，psn软件平台化也是时间问题
+
+*****
+
+####  ゆい  
+##### 382#       发表于 2021-11-13 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534461&amp;ptid=2037022" target="_blank">叉子 发表于 2021-11-13 21:59</a>
+
+想和家人一起玩游戏。如果玩pc的话，就要买两台电脑两份游戏。而主机只要买两个手柄就行。
+
+我理解的对不对 ...</blockquote>
+pc上也有不少可以分屏的游戏，这个没什么影响，但pc毕竟比单纯打游戏的家用机有更多私人的东西，相对来说确实不是很方便
+

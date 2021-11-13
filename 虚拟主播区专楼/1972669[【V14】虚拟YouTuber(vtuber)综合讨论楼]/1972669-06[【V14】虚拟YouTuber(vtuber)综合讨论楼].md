@@ -11347,3 +11347,23 @@ P丸12.11的两国live，B站票199，zaiko5000日元
 
 msm的银盾到了
 
+
+
+*****
+
+####  ヒトニナル  
+##### 8328#       发表于 2021-11-13 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532041&amp;ptid=1972669" target="_blank">fastary 发表于 2021-11-13 18:34</a>
+因为在えぺまつり上指名大物实况者然后初对面タメ口被对方的观众各种指责的黑客
+
+简直已经变成令人怀念的景 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">solo战的时候我推被你黛击杀了，我要化身anti了
+
+*****
+
+####  rzrbtk  
+##### 8329#       发表于 2021-11-13 22:13
+
+不是吧，多井pro带着郡郡舞元被路易斯天开打烂了，说实话现在已经到了一个我看不懂也无法评价的程度了，614现在这么猛了嘛（虽然一直很猛
+

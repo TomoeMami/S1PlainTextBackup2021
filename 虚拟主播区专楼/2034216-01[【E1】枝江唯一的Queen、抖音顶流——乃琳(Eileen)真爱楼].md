@@ -2476,3 +2476,76 @@ dou<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referre
 
 2021-11-13 19:46 上传
 
+
+
+*****
+
+####  sanlow666  
+##### 190#         楼主| 发表于 2021-11-13 22:22
+
+乃琳Queen:[发布动态](https://t.bilibili.com/592595428319357117) <blockquote>一个魂是～我们最大的宝藏❤️</blockquote>
+
+*****
+
+####  sanlow666  
+##### 191#         楼主| 发表于 2021-11-13 22:23
+
+乃琳Queen:[转发动态](https://t.bilibili.com/592595879283586665)<blockquote>@是一只青菜:
+
+----
+
+【A-SOUL/乃琳】原创曲《乃琳晚安啦》
+
+作词：青菜
+
+作曲/编曲：薄荷少女の苏打水
+
+演唱：叁羊洋
+
+混音：忆唏
+
+手书：消化扳手
+
+希望我们乃琳小朋友能天天开心，夜夜好眠~
+
+@A-SOUL_Official  @乃琳Queen  
+
+乃琳：[https://b23.tv/mzj93y](https://b23.tv/mzj93y)
+
+向晚：[https://b23.tv/6NYHZ9](https://b23.tv/6NYHZ9)
+
+贝拉：[https://b23.tv/utEv4j](https://b23.tv/utEv4j)
+
+珈乐：[https://b23.tv/JbgRBU](https://b23.tv/JbgRBU)
+
+嘉然：[https://b23.tv/0n9owZ](https://b23.tv/0n9owZ)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/13/222337n1y481uxjjamr8u4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 22:23 上传
+
+*****
+
+####  sanlow666  
+##### 192#         楼主| 发表于 2021-11-13 22:24
+
+乃琳Queen:[转发动态](https://t.bilibili.com/592595917946681213) <blockquote>@彩芽Ayame: “未来的我会是什么样的呢。”
+
+“唉？！偶像？？！”
+
+“唔...我真的能做好吗，真期待呢...”
+
+“宝儿，我做到了...”</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/13/222421mx56gbn2pxneqxx5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-13 22:24 上传
+

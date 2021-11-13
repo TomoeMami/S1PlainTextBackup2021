@@ -11197,3 +11197,41 @@ resetera讨论贴（里面有下载地址）
 
 这个危险标志限制复古跑车s1 900，我用A725的本田nsx-r飞了告诉我车辆错误？是必须s1 900吗，还是在这之下都可以阿
 
+
+
+*****
+
+####  pl0okm  
+##### 1020#       发表于 2021-11-13 22:04
+
+ 本帖最后由 pl0okm 于 2021-11-13 22:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534263&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-13 21:46</a>
+
+这个危险标志限制复古跑车s1 900，我用A725的本田nsx-r飞了告诉我车辆错误？是必须s1 900吗，还是在这之下 ...</blockquote>
+好像是，上周宝马我第一次没改车直接跑完了也不算
+
+另外qq关了掉线少了 靠这个打完了公开赛 蛇头和巡回 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玄学 我用的还是没q盾的修改版
+
+对了危险标志奖章是不是有几个完不成？比如“稀有经典赛车”3星，斯巴鲁&amp;丰田飞50m
+
+
+
+*****
+
+####  qzy741147  
+##### 1021#       发表于 2021-11-13 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534541&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-13 22:04</a>
+
+好像是，上周宝马我第一次没改车直接跑完了也不算
+
+另外qq关了掉线少了 靠这个打完了公开赛 蛇头和巡回 [f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">我关掉qq一次都没掉线了，牛逼炸了。然后打开qq，第一个人给我发消息就瞬间掉线
+
+*****
+
+####  LMBS  
+##### 1022#       发表于 2021-11-13 22:20
+
+那个无聊的感染王冠夺旗要打完5场才给点数吗？
+
