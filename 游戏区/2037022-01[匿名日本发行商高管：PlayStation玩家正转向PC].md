@@ -4320,3 +4320,24 @@ PC不是养不出3A，是养出的3A都往主机发展了。龙腾世纪、巫�
 
 不要倒果为因啊，二线是二线就是因为它们上不去。说玩家精力分散了所以不买大作这种说法太奇怪了，大作只所以叫大作，就是量级大，PC端这方面也没什么特别的。另外PC高销量类型一直有的啊，找暴雪家的就是。在该项类型和规格下，暴雪家的完全算3A了。总不可能要求RTS的小兵建模要和单人主角的游戏看齐。
 
+
+
+*****
+
+####  dumplingpro  
+##### 391#       发表于 2021-11-14 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53536059&amp;ptid=2037022" target="_blank">Hidewhite 发表于 2021-11-14 00:41</a>
+
+PC不是养不出3A，是养出的3A都往主机发展了。龙腾世纪、巫师这类不就是，手柄和键盘鼠标折衷，最后取约数， ...</blockquote>
+是的，主旨就是PC两极分化没那么严重，用头部3A的销量，是没法准确衡量PC市场规模的。
+
+*****
+
+####  冬马总冠军  
+##### 392#       发表于 2021-11-14 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53536059&amp;ptid=2037022" target="_blank">Hidewhite 发表于 2021-11-14 00:41</a>
+PC不是养不出3A，是养出的3A都往主机发展了。龙腾世纪、巫师这类不就是，手柄和键盘鼠标折衷，最后取约数， ...</blockquote>
+与其说养出的3a往主机跑，不如说3a这种头部作品能卖的平台越多越好，单一平台甚至回不了本<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主机很多玩意也往steam跑。还有强行往ns跑的。高开发成本必然的结果
+

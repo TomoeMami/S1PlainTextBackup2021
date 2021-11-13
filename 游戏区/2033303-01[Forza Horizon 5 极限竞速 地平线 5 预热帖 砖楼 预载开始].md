@@ -11348,3 +11348,12 @@ bo5 输赢都算完成
 同样，XGP在PC上的“优异表现”也是给我奇观感最强的
 什么样的猪脑子才能想出这么一套狗屁不通的文件管理机制，真就我买的游戏不是我自己的
 
+
+
+*****
+
+####  Vladimeow  
+##### 1034#       发表于 2021-11-14 01:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狮子头坐牢了四轮总算过了，太惨了。
+
