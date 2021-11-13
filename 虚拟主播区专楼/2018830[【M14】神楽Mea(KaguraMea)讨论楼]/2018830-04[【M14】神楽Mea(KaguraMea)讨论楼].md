@@ -4268,3 +4268,14 @@ T进人堆里竟然溜了
 
 出门推
 
+
+
+*****
+
+####  十九号大侠  
+##### 4995#       发表于 2021-11-13 14:04
+
+小麻保佑我考试顺利，我也出门了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

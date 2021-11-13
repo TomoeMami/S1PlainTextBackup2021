@@ -10934,3 +10934,12 @@ resetera讨论贴（里面有下载地址）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么你们能玩，不是Xbox服务器炸了吗
 
+
+
+*****
+
+####  马僧虔  
+##### 997#       发表于 2021-11-13 14:09
+
+这游戏真牛逼，我正常玩了一周现在开始闪退了……
+
