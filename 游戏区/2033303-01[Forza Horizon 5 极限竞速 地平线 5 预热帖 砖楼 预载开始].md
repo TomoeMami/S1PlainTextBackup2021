@@ -10972,3 +10972,23 @@ resetera讨论贴（里面有下载地址）
 这游戏真牛逼，我正常玩了一周现在开始闪退了……</blockquote>
 +1，莫名其妙闪退
 
+
+
+*****
+
+####  920619lqy  
+##### 1001#       发表于 2021-11-13 14:54
+
+<blockquote>永远喜欢刘人语 发表于 2021-11-13 00:30
+这游戏机翻挺下头的，就不能好好搞个汉化😓</blockquote>
+本来说想选简中，第一次进游戏那个选择语言的列表里面简体中文的简字直接比后面三个字大了一圈，吓得我还是选了英语
+
+*****
+
+####  Totokei  
+##### 1002#       发表于 2021-11-13 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53529721&amp;ptid=2033303" target="_blank">永远喜欢刘人语 发表于 2021-11-13 14:30</a>
+这游戏机翻挺下头的，就不能好好搞个汉化😓</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">因为车厂正确排序我一直用繁中感觉还行
+
