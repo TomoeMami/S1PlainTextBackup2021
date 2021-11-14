@@ -4476,3 +4476,22 @@ cod还不如splatoon影响大，那批小孩出来真的开始打枪了而且够
 这里的问题是索和几位友商传统来讲是不给退款渠道的，只有某个作品出了规模比较大的有点出圈的口碑问题， ...</blockquote>
 目前我就知道Steam是购买不超过14天且开玩不超过2小时内可直接退款，除此之外的主机、手机平台都是需要写小作文的，且不限定特定时间，因为我都退过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">举TLOU2是因为我都白金了两周之后写信仍然给我退了，这点算是我薅到索尼了（如果不算精神损失费的话）
 
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 404#       发表于 2021-11-14 15:33
+
+PC版有和谐补丁，买不到PS5当然买PC了。
+
+*****
+
+####  dumplingpro  
+##### 405#       发表于 2021-11-14 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539979&amp;ptid=2037022" target="_blank">SICP 发表于 2021-11-14 14:45</a>
+
+目前我就知道Steam是购买不超过14天且开玩不超过2小时内可直接退款，除此之外的主机、手机平台都是需要写 ...</blockquote>
+EPIC、GOG都可以基本标配了，GOG还延长到30天，开始卷起来了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
