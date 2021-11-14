@@ -11552,3 +11552,23 @@ sb巨硬，强制退坑
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手动找车房宝物简直是噩梦
 看攻略去了
 
+
+
+*****
+
+####  Totokei  
+##### 1052#       发表于 2021-11-14 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539057&amp;ptid=2033303" target="_blank">DancingAndy 发表于 2021-11-14 12:53</a>
+手动找车房宝物简直是噩梦
+看攻略去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">其实开无人机模式按住rb加速一直不断在游荡就是了，车房的样子都一样的，无人机开过去标记好就车子过去收割
+
+*****
+
+####  nemunoki  
+##### 1053#       发表于 2021-11-14 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">薛定谔的3000经验牌，成就都跳了，NPC马屁也拍了，然而两个赞赏只解了一个，不管了随它去吧
+<[img src="https://z3.ax1x.com/2021/11/14/I6se6P.png" referrerpolicy="no-referrer">
+

@@ -8850,3 +8850,29 @@ gn骑士快收收味吧！<img src="https://static.saraba1st.com/image/smiley/fa
 这五个人里就艾瑞思勉强算得 ...</blockquote>
 锻炼才健康轮椅做一天哪里健康了
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2464#       发表于 2021-11-14 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538924&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-14 12:39</a>
+
+还是适度反抗，然后男女气力有別比较适合。</blockquote>
+想必文静就是小龙女吧，当然龙骑士也一定是我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+文静麻软在床，过了良久，眼上微觉有物触碰，她黑夜视物如同白昼，此时竟然不见一物，原来双眼被人用布蒙住了，随觉有一张臂抱住了自己。
+这人相抱之时，初时极为胆怯，后来渐渐放肆，渐渐大胆。
+文静惊骇无已，欲待张口而呼，苦于口舌难动，但觉那人以口相就，亲吻自己脸颊。
+她初时只道是内德维德忽施强暴，但与那人面庞相触之际，却觉他脸上光滑，决非内德维德的满脸虬髯。
+她心中一荡，惊惧渐去，情欲暗生，心想原来静栗惹这孩子却来戏我。
+只觉他双手越来越不规矩，缓缓替自己宽衣解带，文静无法动弹，只得任其所为，不由得又是惊喜，又是害羞。
+
+*****
+
+####  cherrydove  
+##### 2465#       发表于 2021-11-14 13:16
+
+没想到有朝一日能有机会牛ndwd<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
