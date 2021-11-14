@@ -4043,3 +4043,17 @@ C8391E5A-DB4F-41E7-855D-39E6E31FC1B0.jpeg
 
 <img src="https://img.saraba1st.com/forum/202111/14/214537ewjfgjc8wghgo8fy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 371#       发表于 2021-11-14 22:21
+
+舜舜来了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+我用阿里云盘分享了「[MP4]ラブライブ!スーパースター!! Lie... 北海道公演 DAY1.mp4」，你可以不限速下载🚀
+复制这段内容打开「阿里云盘」App 即可获取
+链接：https://www.aliyundrive.com/s/U7MyZZJhAE5
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
