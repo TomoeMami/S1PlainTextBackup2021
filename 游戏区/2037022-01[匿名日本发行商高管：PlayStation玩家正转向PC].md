@@ -4531,3 +4531,23 @@ PS5至今没有什么拿得出手的独占，还有黄牛溢价，作为PC玩家
 EPIC、GOG都可以基本标配了，GOG还延长到30天，开始卷起来了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dumplingpro  
+##### 409#       发表于 2021-11-14 16:26
+
+ 本帖最后由 dumplingpro 于 2021-11-14 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53540833&amp;ptid=2037022" target="_blank">满满一大杯 发表于 2021-11-14 16:12</a>
+盲买笔记本/整机上墙的概率越高于主机，这个不提了。主要是我真见过有人买笔记本打MMO到本子快退役了都不 ...</blockquote>
+正常京东/亚马逊一键下单的大牌子哪来这么多上墙的，反而是自己懂一些，要省钱才容易翻车。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且linux desktop是正常人用的么……或者说那是技术有自信想要折腾的人才玩的。
+
+不懂的人win系统没这毛病，steam deck那种定制系统则是直接装好就隐藏在底层了，要把桌面干掉没点技术都找不到地方。
+
+cpu性能的话，臭打游戏的要那么强cpu干嘛，游戏大多不吃u，一般人凑合着能用就得了，也就懂一些的人才会去追求cpu极致性能和性价比。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
