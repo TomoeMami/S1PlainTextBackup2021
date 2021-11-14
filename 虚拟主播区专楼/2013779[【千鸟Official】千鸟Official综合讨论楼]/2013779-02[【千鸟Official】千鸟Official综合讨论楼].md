@@ -8620,3 +8620,41 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 
 静姨做手术去了，究竟是声带手术还是整容手术呢。
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 2438#       发表于 2021-11-14 09:28
+
+该投奔b综加入药娘宇宙了
+
+*****
+
+####  伞沢直美  
+##### 2439#       发表于 2021-11-14 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">什么手术你给我说清楚
+
+*****
+
+####  小憨1  
+##### 2440#       发表于 2021-11-14 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">希望妈早日康复
+
+*****
+
+####  小憨1  
+##### 2441#       发表于 2021-11-14 09:34
+
+<img src="https://p.sda1.dev/3/c75e8036e359c22fbde7b08801285c5b/IMG_CMP_98009586.jpeg" referrerpolicy="no-referrer">
+妈妈妈妈妈妈妈妈妈你要早日康复啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aikkkkk  
+##### 2442#       发表于 2021-11-14 09:46
+
+居然是滞留针吗，看起来是需要住院持续输液的病了
+

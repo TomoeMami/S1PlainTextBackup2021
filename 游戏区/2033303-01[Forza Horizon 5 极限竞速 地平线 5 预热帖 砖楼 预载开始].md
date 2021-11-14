@@ -11377,3 +11377,14 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 这arcade真是死了妈了，每次都是一个人在那刷然后这数值用屁股想的吧
 
+
+
+*****
+
+####  有钱多买小人  
+##### 1037#       发表于 2021-11-14 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534760&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-13 22:20</a>
+那个无聊的感染王冠夺旗要打完5场才给点数吗？</blockquote>
+摸鱼就行了。4可是要赢才行，太折磨了。
+
