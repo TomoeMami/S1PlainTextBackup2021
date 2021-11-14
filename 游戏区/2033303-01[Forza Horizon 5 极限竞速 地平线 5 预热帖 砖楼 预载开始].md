@@ -11710,3 +11710,29 @@ sb巨硬，强制退坑
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  Totokei  
+##### 1067#       发表于 2021-11-14 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53544094&amp;ptid=2033303" target="_blank">AEmpire 发表于 2021-11-14 21:03</a>
+
+有点纳闷，前作社区图里有那么多毒图吗，还是说这作出圈吸了GTA玩家？</blockquote>
+FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和玩家<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Totokei  
+##### 1068#       发表于 2021-11-14 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">联网赛事断了几次之后不想再被傻逼操场PUA了，领不了奖励车就领不了吧，这傻逼网络是怎么有脸要玩家完成联网赛事才能领到奖励的
+
+*****
+
+####  miyamotoruri  
+##### 1069#       发表于 2021-11-14 22:53
+
+你们都刷到几百级了，这代升级好快啊
+
