@@ -11649,3 +11649,16 @@ sb巨硬，强制退坑
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  马僧虔  
+##### 1061#       发表于 2021-11-14 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53542102&amp;ptid=2033303" target="_blank">真实之影 发表于 2021-11-14 18:32</a>
+我怎么加不进俱乐部？我4就已经进了s1俱乐部，现在得退了重进？
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+4和5的俱乐部是分开的
+
