@@ -11468,3 +11468,63 @@ bug好多，今天的表演赛事任务有正常完成的吗
 在地图下方偏左一点的机场旁边有一个，JAGUAR SPORT XJR-15，应该要先解锁APEX的第一个剧情，TULUM EXPED ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 1045#       发表于 2021-11-14 12:22
+
+<blockquote>Vladimeow 发表于 2021-11-13 22:15
+那个我有了（好像是做个主线时候顺便触发的），我现在地图最左上角那个没有，就很奇怪，明明BAJA ...</blockquote>
+那就不知道是什么神奇的bug了…
+
+*****
+
+####  hzh3355  
+##### 1046#       发表于 2021-11-14 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53536404&amp;ptid=2033303" target="_blank">liyropen 发表于 2021-11-14 01:44</a>
+
+bug好多，今天的表演赛事任务有正常完成的吗
+
+— from Xiaomi Redmi K20 Pro, Android 12 of S1 Next Goose ...</blockquote>
+同问，我开了两场都没完成
+
+*****
+
+####  920619lqy  
+##### 1047#       发表于 2021-11-14 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538779&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-13 22:24</a>
+
+同问，我开了两场都没完成</blockquote>
+我也开了一次火车那个，没有完成
+
+*****
+
+####  诶哟卧草  
+##### 1048#       发表于 2021-11-14 12:32
+
+ 本帖最后由 诶哟卧草 于 2021-11-14 12:38 编辑 
+
+<[img src="https://i.loli.net/2021/11/14/vafVO3kdXWZRBys.png" referrerpolicy="no-referrer">
+
+sb巨硬，强制退坑
+
+尝试重置了，进去后依然存档损毁，彻底没法玩了
+
+*****
+
+####  monono  
+##### 1049#       发表于 2021-11-14 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531821&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-13 18:16</a>
+
+https://github.com/taojy123/KeymouseGo
+
+吉普摇摇乐买一部扔一部脚本。
+
+初始状态为有且一部吉普为当前驾驶 ...</blockquote>
+感谢，太好用了。这下完全全自动挂机了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

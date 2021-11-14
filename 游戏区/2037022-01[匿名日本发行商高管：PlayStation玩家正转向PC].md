@@ -4356,3 +4356,34 @@ PC不是养不出3A，是养出的3A都往主机发展了。龙腾世纪、巫�
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  dumplingpro  
+##### 394#       发表于 2021-11-14 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53537079&amp;ptid=2037022" target="_blank">叉子 发表于 2021-11-14 07:56</a>
+
+这也要需要两个人都有电脑吧。
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+可以用手机……
+
+就是说，侧面说明还是有不少支持1台机2个手柄的游戏/有这个需求的人，以至于可以专门开发了一个功能，让没有社交的死宅也能做到。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Smile_D_up  
+##### 395#       发表于 2021-11-14 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511205&amp;ptid=2037022" target="_blank">Chia 发表于 2021-11-12 00:02</a>
+量到质
+
+cod还不如splatoon影响大，那批小孩出来真的开始打枪了而且够多。</blockquote>
+冷知识：cod电竞cwl时期日本是亚洲唯一一支能打进世界赛的队伍
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

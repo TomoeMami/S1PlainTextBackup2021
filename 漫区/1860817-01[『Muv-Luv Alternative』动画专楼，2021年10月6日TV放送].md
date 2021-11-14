@@ -19757,3 +19757,23 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 所以抹布游戏还会有新作吗
 
+
+
+*****
+
+####  KOPKOM  
+##### 1379#         楼主| 发表于 2021-11-14 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538111&amp;ptid=1860817" target="_blank">球獭 发表于 2021-11-14 10:58</a>
+所以抹布游戏还会有新作吗</blockquote>
+有啊，预告CG都出了，这楼第一层就看得到
+
+*****
+
+####  球獭  
+##### 1380#       发表于 2021-11-14 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538850&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-11-14 12:30</a>
+有啊，预告CG都出了，这楼第一层就看得到</blockquote>
+瞎了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

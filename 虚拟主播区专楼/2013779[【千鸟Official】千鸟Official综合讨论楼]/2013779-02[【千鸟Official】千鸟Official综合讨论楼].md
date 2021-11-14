@@ -8817,3 +8817,14 @@ gn骑士快收收味吧！<img src="https://static.saraba1st.com/image/smiley/fa
 
 就这身体素质文静还说自己想当偶像，早知道是轮椅就不来了，她都不是第一次进医院了，感冒跟打卡一样三天两头就犯一次，也就是轮椅救了她，要真是去偶像团体，真去了as第二天就得被贝拉练死。
 
+
+
+*****
+
+####  tankai  
+##### 2461#       发表于 2021-11-14 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53537645&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-14 09:57</a>
+一想到刚从全麻中回复意识若有若离的文静，我就直接🥵🥵🥵</blockquote>
+还是适度反抗，然后男女气力有別比较适合。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
