@@ -11691,3 +11691,22 @@ sb巨硬，强制退坑
 
 以前还黑gt的ai是轨道车，然后吹废渣的ai优秀，从这作ai越野的表现来看，这也跟轨道车没什么区别，跑越野都黏在行车线上跑grip，这就离谱
 
+
+
+*****
+
+####  AEmpire  
+##### 1065#       发表于 2021-11-14 21:03
+
+有点纳闷，前作社区图里有那么多毒图吗，还是说这作出圈吸了GTA玩家？
+
+*****
+
+####  真实之影  
+##### 1066#       发表于 2021-11-14 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53542284&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-14 18:55:44</a>
+4和5的俱乐部是分开的</blockquote>我怎么搜到的s1fz还不能加……
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
