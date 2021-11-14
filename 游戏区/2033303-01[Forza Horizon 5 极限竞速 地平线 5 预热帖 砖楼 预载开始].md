@@ -11447,3 +11447,24 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我好像车房宝库被吞了一个，地图上就只有十三个，我佛 
 
+
+
+*****
+
+####  920619lqy  
+##### 1043#       发表于 2021-11-14 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538351&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-13 21:33</a>
+
+我好像车房宝库被吞了一个，地图上就只有十三个，我佛</blockquote>
+在地图下方偏左一点的机场旁边有一个，JAGUAR SPORT XJR-15，应该要先解锁APEX的第一个剧情，TULUM EXPEDITION，在流程中会经过这个机场，这个时候就能去开门了
+
+*****
+
+####  Vladimeow  
+##### 1044#       发表于 2021-11-14 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538601&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-14 12:05</a>
+在地图下方偏左一点的机场旁边有一个，JAGUAR SPORT XJR-15，应该要先解锁APEX的第一个剧情，TULUM EXPED ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

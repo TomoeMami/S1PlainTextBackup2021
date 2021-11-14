@@ -2040,3 +2040,20 @@ vr有不少运动量大的游戏，部分游戏甚至以健身为目的能到撸
 求助index的近视镜片该怎么挑，有没有推荐的店铺<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 现在用的是19年咸鱼个人定制的那种，镜片感觉就是把眼镜镜片直接拆开用的。只有平视正前方是清晰的，边缘位置模糊得很严重，不知道换个镜片能不能解决
 
+
+
+*****
+
+####  dumplingpro  
+##### 130#       发表于 2021-11-14 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538349&amp;ptid=2034565" target="_blank">zyqwert2 发表于 2021-11-14 11:33</a>
+求助index的近视镜片该怎么挑，有没有推荐的店铺
+现在用的是19年咸鱼个人定制的那种，镜片感觉就是 ...</blockquote>
+虚幻之门和绝一门，不过怎么感觉
+瞳距不对。
+
+多少度近视？一般卡口式尽量靠近镜头对光学和fov少。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
