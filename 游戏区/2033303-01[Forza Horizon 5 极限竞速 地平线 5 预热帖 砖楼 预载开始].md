@@ -11806,3 +11806,24 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Existinghomes  
+##### 1077#       发表于 2021-11-15 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546153&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-15 00:18</a>
+奖励的车是抽奖抽不出来的吗，不想做任务。
+都说第六元素厉害，搜出来看了下长什么样子，才发现已经有了， ...</blockquote>
+播放列表里标独家的都是，本赛季一共四辆，都是拿到二十多分就可以提车
+
+*****
+
+####  Vladimeow  
+##### 1078#       发表于 2021-11-15 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545990&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-14 23:56</a>
+有时候打不过ai换了辆车用了泥地调教突然就碾压ai了，没注意圈速，不知道是调教问题还是ai bug了... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代AI每次都会有一个第一名特别离谱，远远快过其他几个AI和玩家，记得上一代也没这样
+
