@@ -3465,3 +3465,142 @@ llsp终于在B站上完结了
 
 嗯  碎了
 
+
+
+*****
+
+####  ddy2811  
+##### 312#       发表于 2021-11-14 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535180&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-13 22:54</a>
+
+把这几集看完了，你要说剧情粗糙的话，某些细节还蛮戳我的
+
+比如可可对堇说不希望大家因为她的事而努力，这 ...</blockquote>
+工匠精神很多时候就是死磕细节忽视整体，瞄准细分丢掉全局，哪怕拿出一流的执行力来，因为缺乏战略眼光而拿出一个三流的战略还不知变通自然往错误方向一路狂飙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 313#       发表于 2021-11-14 17:04
+
+唱的人不会换的了，我说过，要换第二场就换了
+
+*****
+
+####  普之舜舜  
+##### 314#       发表于 2021-11-14 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541217&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-11-14 17:00</a>
+我挂了这么快呀
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我试试只播声音 不播画面试试
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cxj649  
+##### 315#       发表于 2021-11-14 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541275&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-11-14 17:07</a>
+
+我试试只播声音 不播画面试试
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+V总就是只播声音就没事
+
+*****
+
+####  寒风夜  
+##### 316#       发表于 2021-11-14 17:10
+
+嗓子，危
+
+*****
+
+####  iuhehc  
+##### 317#       发表于 2021-11-14 17:10
+
+鲤鱼把手放低了好多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 318#       发表于 2021-11-14 17:11
+
+鲤鱼好稳啊好稳
+
+*****
+
+####  lj205  
+##### 319#       发表于 2021-11-14 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541318&amp;ptid=2036367" target="_blank">iuhehc 发表于 2021-11-14 17:10</a>
+
+鲤鱼把手放低了好多</blockquote>
+一场比一场低<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 320#       发表于 2021-11-14 17:14
+
+这个声音有点奇怪
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 321#       发表于 2021-11-14 17:16
+
+小百合声音现在真的奇怪
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  寒风夜  
+##### 322#       发表于 2021-11-14 17:16
+
+难。。。
+
+*****
+
+####  lj205  
+##### 323#       发表于 2021-11-14 17:17
+
+佩佩也很稳，岬就…………………………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lithiumflower  
+##### 324#       发表于 2021-11-14 17:20
+
+感觉Nako的本音是5个人里最低的，要用角色音唱歌是真的费劲
+
+*****
+
+####  仟音一心  
+##### 325#       发表于 2021-11-14 17:21
+
+贴吧有人发了腾讯会议房间号254789233，没有密码。
+
+*****
+
+####  lj205  
+##### 326#       发表于 2021-11-14 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……………………………………NAKO这是硬扯嗓子唱上去的吗……………………
+
+*****
+
+####  player3960  
+##### 327#       发表于 2021-11-14 17:22
+
+啥情况，这次间隔有一周觉得应该没问题啊，怎么听你们描述还是有点状态欠佳啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
