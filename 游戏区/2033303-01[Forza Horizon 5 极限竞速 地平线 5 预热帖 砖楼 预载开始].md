@@ -11788,3 +11788,21 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 这游戏AI感觉确实有点离谱，我现在普通公路赛基本吊打专家AI，但有个盘山公路无限连环弯的比赛要追上熟练AI都很不容易
 
+
+
+*****
+
+####  yahanintnedo  
+##### 1075#       发表于 2021-11-15 00:22
+
+这破游戏打开界面摁a无效这bug真是服了，特么每次都得重启
+
+*****
+
+####  拉鲁拉丝  
+##### 1076#       发表于 2021-11-15 00:33
+
+开自动驾驶跑了个什么巨物，我发现这ai过弯都不减速的，刷刷的就过去了，还不会被甩出去，轮胎上像长了胶一样。我自动驾驶还得减速<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一减速就被撞。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
