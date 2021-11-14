@@ -11388,3 +11388,25 @@ bug好多，今天的表演赛事任务有正常完成的吗
 那个无聊的感染王冠夺旗要打完5场才给点数吗？</blockquote>
 摸鱼就行了。4可是要赢才行，太折磨了。
 
+
+
+*****
+
+####  有钱多买小人  
+##### 1038#       发表于 2021-11-14 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535438&amp;ptid=2033303" target="_blank">UmarIbnLaAhad 发表于 2021-11-13 23:21</a>
+这赞赏系统什么傻逼判定，我七座房子全买了愣是只算买了六座那个大亨奖赏可是给唯一一辆车的 ...</blockquote>
+高级版？建议看看第一座房子是不是被吞了。
+
+我昨天做这个赞赏剩最后一个房子时才发现买的第一个房子不是我的了。重买后解锁赞赏。然而当时剩的那个新房子我没买<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有钱多买小人  
+##### 1039#       发表于 2021-11-14 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535464&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-13 23:24</a>
+发泄压力那个锦标赛第一场强烈怀疑有bug，ai的车速极不科学各种裸超，重试了N次换了个调教拿supra勉强第二 ...</blockquote>
+用a800brz毫无压力。
+
