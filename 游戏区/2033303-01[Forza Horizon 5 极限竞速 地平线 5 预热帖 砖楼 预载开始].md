@@ -11572,3 +11572,12 @@ sb巨硬，强制退坑
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">薛定谔的3000经验牌，成就都跳了，NPC马屁也拍了，然而两个赞赏只解了一个，不管了随它去吧
 <[img src="https://z3.ax1x.com/2021/11/14/I6se6P.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  monono  
+##### 1054#       发表于 2021-11-14 15:53
+
+这代找宝物比4代容易多了，除了右下雨林那里有个比较难找，其他都是开阔地，找个山顶高坡一看就能看见。不像英国那里全是树找的累死。
+
