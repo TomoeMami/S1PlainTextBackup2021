@@ -9078,3 +9078,26 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 王木木说文静在喝孟婆汤了 还不要芝士和香菜，孟婆嫌麻烦，再给她重新熬 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">什么顶级谜语人
 
+
+
+*****
+
+####  rgauss  
+##### 2488#       发表于 2021-11-14 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">呵呵 前夫太多了
+
+*****
+
+####  IDIDIDID  
+##### 2489#       发表于 2021-11-14 20:35
+
+好养啊，这女人比文静还坏
+
+*****
+
+####  灰色的狐狸  
+##### 2490#       发表于 2021-11-14 20:36
+
+王木木这话术无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

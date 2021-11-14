@@ -3922,3 +3922,23 @@ liella之歌的衣服肯定是5个人都要做的
 
 2021-11-14 20:05 上传
 
+
+
+*****
+
+####  player3960  
+##### 360#       发表于 2021-11-14 20:34
+
+明天的day2和水团azalea的live是同一天啊，估计到场人会比今天还少吧，三团并行各种撞车，佛了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  中野四葉  
+##### 361#       发表于 2021-11-14 20:35
+
+正好可以测试下星团的死忠粉（？）
+
