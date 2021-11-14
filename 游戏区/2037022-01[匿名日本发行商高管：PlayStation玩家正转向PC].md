@@ -4439,3 +4439,29 @@ cod还不如splatoon影响大，那批小孩出来真的开始打枪了而且够
 
 本来计划ps5是最后一代买的索尼主机，现在提前到ps4。G胖能不能出台定制pc，主机党不想折腾
 
+
+
+*****
+
+####  传说中的天才  
+##### 401#       发表于 2021-11-14 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539462&amp;ptid=2037022" target="_blank">白香宁 发表于 2021-11-14 13:41</a>
+
+本来计划ps5是最后一代买的索尼主机，现在提前到ps4。G胖能不能出台定制pc，主机党不想折腾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">就渡假社的工作效率，PS5的生命周期里怕是见不到下一波SteamMachine。
+
+*****
+
+####  dumplingpro  
+##### 402#       发表于 2021-11-14 14:21
+
+ 本帖最后由 dumplingpro 于 2021-11-14 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539462&amp;ptid=2037022" target="_blank">白香宁 发表于 2021-11-14 13:41</a>
+本来计划ps5是最后一代买的索尼主机，现在提前到ps4。G胖能不能出台定制pc，主机党不想折腾 ...</blockquote>
+整机或者游戏本那么多，不都是标准定制的么，要steam自家就deck咯。
+
+倒不如说amd明年核显从过时的vega8升级rdna2了，能不能开窍一点搞个高显版的（明年传闻是最高12cu rdna2核显，三分之一个ps5）
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
