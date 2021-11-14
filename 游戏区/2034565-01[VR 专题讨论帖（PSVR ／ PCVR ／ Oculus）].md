@@ -2030,3 +2030,13 @@ vr有不少运动量大的游戏，部分游戏甚至以健身为目的能到撸
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  zyqwert2  
+##### 129#       发表于 2021-11-14 11:33
+
+求助index的近视镜片该怎么挑，有没有推荐的店铺<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+现在用的是19年咸鱼个人定制的那种，镜片感觉就是把眼镜镜片直接拆开用的。只有平视正前方是清晰的，边缘位置模糊得很严重，不知道换个镜片能不能解决
+
