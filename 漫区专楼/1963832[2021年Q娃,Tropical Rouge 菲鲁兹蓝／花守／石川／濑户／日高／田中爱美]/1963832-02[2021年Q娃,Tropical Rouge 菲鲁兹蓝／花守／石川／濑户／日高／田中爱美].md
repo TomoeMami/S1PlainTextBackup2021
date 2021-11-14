@@ -10914,3 +10914,26 @@ ps：这集开大招脑内立即想起超长绕口令版 哈哈<img src="https:/
 
 是进主线了吧
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2297#       发表于 2021-11-14 13:24
+
+突然来了一手计划通有点反应不过来，话说格兰海洋为什么会有抽取记忆的装置
+
+*****
+
+####  暗黑能乐  
+##### 2298#       发表于 2021-11-14 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">不会怠惰魔女曾经是女王吧，然后回到海里的她靠从记忆里提取出的幻想度日，最终走火入魔。。
+
+*****
+
+####  水莲寺流歌  
+##### 2299#       发表于 2021-11-14 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">怎么突然就黑幕了
+

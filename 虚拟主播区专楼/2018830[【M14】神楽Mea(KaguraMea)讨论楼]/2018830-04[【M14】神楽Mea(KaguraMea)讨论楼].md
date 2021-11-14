@@ -4360,3 +4360,44 @@ T进人堆里竟然溜了
 
 原来还是跟兔苔出去玩了
 
+
+
+*****
+
+####  makourisu-2  
+##### 5005#       发表于 2021-11-14 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53537561&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-11-14 09:45</a>
+12号和苔总兔妈妈出去吃饭了，吃的寿司和三丽鸥cafe；
+
+你咩迟到了20分钟，跟店家道歉的时候连读​[/backcol ...</blockquote>
+“大将”是谁？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5006#       发表于 2021-11-14 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539379&amp;ptid=2018830" target="_blank">makourisu-2 发表于 2021-11-14 13:30</a>
+“大将”是谁？</blockquote>
+寿司店主厨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| makourisu-2| + 1|原来如此|
+
+查看全部评分
+
+*****
+
+####  时间在我手中  
+##### 5007#       发表于 2021-11-14 13:45
+
+肥婆今天看完live就播，坐等一个对fuji君发情连发歌回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
