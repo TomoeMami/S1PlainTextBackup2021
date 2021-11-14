@@ -11491,3 +11491,20 @@ solo战的时候我推被你黛击杀了，我要化身anti了</blockquote>
 
 名もなき美大生如果去就好了
 
+
+
+*****
+
+####  winda  
+##### 8336#       发表于 2021-11-14 11:09
+
+<img src="https://img.saraba1st.com/forum/202111/14/110921e44t6nmss6fdfkgf.jpg" referrerpolicy="no-referrer">
+
+<strong>FEE0rpUaMAAYPU8.jpg</strong> (32.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-14 11:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BORA队apex周年大会拿了第二，masanori桑太bug了，16杀
+
