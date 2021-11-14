@@ -4341,3 +4341,18 @@ PC不是养不出3A，是养出的3A都往主机发展了。龙腾世纪、巫�
 PC不是养不出3A，是养出的3A都往主机发展了。龙腾世纪、巫师这类不就是，手柄和键盘鼠标折衷，最后取约数， ...</blockquote>
 与其说养出的3a往主机跑，不如说3a这种头部作品能卖的平台越多越好，单一平台甚至回不了本<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主机很多玩意也往steam跑。还有强行往ns跑的。高开发成本必然的结果
 
+
+
+*****
+
+####  叉子  
+##### 393#       发表于 2021-11-14 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535009&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-13 22:40</a>
+这个纯粹看游戏类型，游戏支持就行。
+
+蒸汽考虑到PC社恐死宅多，还在串流功能的基础上，专门加了个远程同 ...</blockquote>
+这也要需要两个人都有电脑吧。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
