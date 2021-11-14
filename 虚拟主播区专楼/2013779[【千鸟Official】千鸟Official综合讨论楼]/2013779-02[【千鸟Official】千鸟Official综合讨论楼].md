@@ -9016,3 +9016,65 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 王林诈病赚cj
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2482#       发表于 2021-11-14 20:02
+
+王木木说啥了
+
+怎么就暗示3.0了
+
+*****
+
+####  rgauss  
+##### 2483#       发表于 2021-11-14 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53543143&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-14 20:02</a>
+
+王木木说啥了
+
+怎么就暗示3.0了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹幕问文静身体咋样 
+
+王木木说文静在喝孟婆汤了 还不要芝士和香菜，孟婆嫌麻烦，再给她重新熬
+
+*****
+
+####  rgauss  
+##### 2484#       发表于 2021-11-14 20:16
+
+核中核，文静是富婆 
+
+*****
+
+####  灰色的狐狸  
+##### 2485#       发表于 2021-11-14 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53543291&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-14 20:11</a>
+
+弹幕问文静身体咋样 
+
+王木木说文静在喝孟婆汤了 还不要芝士和香菜，孟婆嫌麻烦，再给她重新熬 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 2486#       发表于 2021-11-14 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，文静把原力买下来了
+
+*****
+
+####  雨井绫  
+##### 2487#       发表于 2021-11-14 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53543291&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-14 20:11</a>
+弹幕问文静身体咋样 
+
+王木木说文静在喝孟婆汤了 还不要芝士和香菜，孟婆嫌麻烦，再给她重新熬 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">什么顶级谜语人
+
