@@ -9218,3 +9218,14 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 千鸟固定麦，播健身环需要弯腰探身才能收音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怪不得播得像生孩子，不仅累还费腰
 
+
+
+*****
+
+####  tn_teana  
+##### 2503#       发表于 2021-11-15 01:07
+
+所以为什么不用蓝牙耳机
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
