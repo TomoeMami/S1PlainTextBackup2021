@@ -19796,3 +19796,23 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 故事情节为人物服务，但是这片子最吸引人的本来就是后面的大战役下人类的光辉，前期的加快进度无可厚非。
 
+
+
+*****
+
+####  oskneo  
+##### 1382#       发表于 2021-11-14 15:04
+
+ 本帖最后由 oskneo 于 2021-11-14 15:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538960&amp;ptid=1860817" target="_blank">musicat 发表于 2021-11-14 12:44</a>
+纯动画党，之前看过外传动画，完全忘光没印象的哪种。
+
+昨晚补完了1到4级，爬了一下楼。</blockquote>
+原作中这段的亮度是突然从轻松学园风到灭世军旅风的转变，整个世界观的大变化，
+但这在动画中是没了。
+这一部分加上之后的讨回原世界那段，
+可说跟现在的穿越爽文形成了鲜明的对比，
+现在这对比可能很难表现出来
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
