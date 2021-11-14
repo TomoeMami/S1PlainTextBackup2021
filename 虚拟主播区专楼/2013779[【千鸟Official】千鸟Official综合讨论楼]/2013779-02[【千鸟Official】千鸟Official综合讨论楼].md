@@ -9133,3 +9133,14 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 ✋很抱歉打断你们的浏览，我是来提醒你文静直播间将于11月14日晚10点8分解封，确保你能够准时跟鸟批们版聊
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2495#       发表于 2021-11-14 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">迟来的2060发觉策划已经换了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

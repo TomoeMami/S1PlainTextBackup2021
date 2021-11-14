@@ -3996,3 +3996,23 @@ liella之歌的衣服肯定是5个人都要做的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  普之舜舜  
+##### 368#       发表于 2021-11-14 21:35
+
+明天还是周一，工作日
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 369#       发表于 2021-11-14 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53544256&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-14 21:15</a>
+今天pay算届到了吧</blockquote>
+前面几场其实也有，但是没人抠啊
+
