@@ -3308,3 +3308,18 @@ llsp终于在B站上完结了
 这个纸票是不是只寄日本国内的</blockquote>
 是的
 
+
+
+*****
+
+####  ads147147  
+##### 296#       发表于 2021-11-14 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535180&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-13 22:54</a>
+把这几集看完了，你要说剧情粗糙的话，某些细节还蛮戳我的
+
+比如可可对堇说不希望大家因为她的事而努力，这 ...</blockquote>
+这就是霓虹工匠精神的醍醐味阿，细节拉满，整体就是草台。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
