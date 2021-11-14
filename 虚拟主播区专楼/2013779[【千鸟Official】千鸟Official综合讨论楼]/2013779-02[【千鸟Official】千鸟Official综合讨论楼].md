@@ -8580,3 +8580,43 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 
 懒狗罢了
 
+
+
+*****
+
+####  雨井绫  
+##### 2433#       发表于 2021-11-14 09:13
+
+<img src="https://p.sda1.dev/3/a27091fc88efdfd5e9e353e8b40c8dca/IMG_CMP_171327090.jpeg" referrerpolicy="no-referrer">
+我不敢想了
+
+*****
+
+####  莫洛骑士  
+##### 2434#       发表于 2021-11-14 09:19
+
+我宣布停止呼吸直到文静康复
+
+*****
+
+####  夜潇箫  
+##### 2435#       发表于 2021-11-14 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">流产手术?
+
+*****
+
+####  我有一个朋友  
+##### 2436#       发表于 2021-11-14 09:20
+
+哈哈，文静2.0去做负责人了，现在是3.0时代……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aikkkkk  
+##### 2437#       发表于 2021-11-14 09:26
+
+静姨做手术去了，究竟是声带手术还是整容手术呢。
+
