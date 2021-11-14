@@ -4387,3 +4387,28 @@ cod还不如splatoon影响大，那批小孩出来真的开始打枪了而且够
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Chia  
+##### 396#       发表于 2021-11-14 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538934&amp;ptid=2037022" target="_blank">Smile_D_up 发表于 2021-11-14 12:41</a>
+
+冷知识：cod电竞cwl时期日本是亚洲唯一一支能打进世界赛的队伍
+
+—— 来自 S1Fun ...</blockquote>
+这能说明多少呢……
+
+可能在直播、电竞文化加持下，原先的“重度玩家”的影响力也获得了权重加持吧
+
+*****
+
+####  Mchaos  
+##### 397#       发表于 2021-11-14 12:58
+
+支持橄榄傻逼白皮的乖儿子，而且显然sie的白皮亲爹并不买儿子的账。只能说好死，一个要做6、7的平台和随时更新的平台比硬件内卷画面内卷就活几把该你死，不死不快。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-T860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

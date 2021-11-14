@@ -11528,3 +11528,27 @@ https://github.com/taojy123/KeymouseGo
 初始状态为有且一部吉普为当前驾驶 ...</blockquote>
 感谢，太好用了。这下完全全自动挂机了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mcq_2  
+##### 1050#       发表于 2021-11-14 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538865&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-14 12:32</a>
+
+sb巨硬，强制退坑
+
+尝试重置了，进去后依然存档损毁，彻底没法玩了</blockquote>
+你干什么了
+
+
+
+*****
+
+####  DancingAndy  
+##### 1051#       发表于 2021-11-14 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手动找车房宝物简直是噩梦
+看攻略去了
+

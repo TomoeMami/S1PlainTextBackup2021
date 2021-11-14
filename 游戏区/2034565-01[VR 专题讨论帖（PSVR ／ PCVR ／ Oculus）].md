@@ -2057,3 +2057,20 @@ vr有不少运动量大的游戏，部分游戏甚至以健身为目的能到撸
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  zyqwert2  
+##### 131#       发表于 2021-11-14 12:52
+
+ 本帖最后由 zyqwert2 于 2021-11-14 13:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538680&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-14 12:15</a>
+
+虚幻之门和绝一门，不过怎么感觉
+
+瞳距不对。</blockquote>
+瞳距再调大调小的话中心都变模糊了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">400来度不过有散光
+
+刚才戴眼镜试了一下也是这样，镜片摘下来看东西也是清楚的，莫非跟镜片形状有关系？
+
