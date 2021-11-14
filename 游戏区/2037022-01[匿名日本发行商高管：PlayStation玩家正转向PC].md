@@ -4551,3 +4551,19 @@ cpu性能的话，臭打游戏的要那么强cpu干嘛，游戏大多不吃u，�
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  满满一大杯  
+##### 410#       发表于 2021-11-14 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53540950&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-14 16:26</a>
+
+正常京东/亚马逊一键下单的大牌子哪来这么多上墙的，反而是自己懂一些，要省钱才容易翻车。</blockquote>
+那只能说可能我和你所处的世界线不同吧，或者您接触的人都太高端了。每年都会有人来问上大学了买什么笔记本玩游戏的事情是不存在的。
+
+举LinuxDesktop的例子只想说明大众“抗拒折腾”的程度。目前开箱即用的LinuxBox只要不配独显，那可比win10/11好用多了，但很多人绝对不会用，理由就是“不愿折腾”（虽然我想不明白诸如LinuxMint/Manjaro这类的发行版有什么好折腾的）。但他们转头就会嘲笑主机人怕折腾。正如嘲笑国行勇士的人用的居然是云上贵州。
+
+5600G/5700G难道不是显卡性能不行吗？然后明明是APU还砍缓存……而且APU毕竟也占中央处理器的坑，别的ARM/x86CPU都在发力，你真想靠vega7抢市场吗……
+

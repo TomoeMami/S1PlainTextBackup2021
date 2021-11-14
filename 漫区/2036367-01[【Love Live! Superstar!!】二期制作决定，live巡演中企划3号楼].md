@@ -3371,3 +3371,97 @@ llsp终于在B站上完结了
 
 北海道还是太偏了，而且这个场也很小，才1000人差不多
 
+
+
+*****
+
+####  lj205  
+##### 303#       发表于 2021-11-14 16:46
+
+看了一下场馆，原来是岩见泽，这地方比冈山还偏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 304#       发表于 2021-11-14 16:46
+
+ 本帖最后由 普之舜舜 于 2021-11-14 17:00 编辑 
+
+试试下直播间，等下删掉
+果真挂了
+兄弟们，真的太担心超管了。担心会被警告⚠，我小心点
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lj205| + 1||
+
+查看全部评分
+
+*****
+
+####  普之舜舜  
+##### 305#       发表于 2021-11-14 16:46
+
+直播间都没人发言，寂寞呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 306#       发表于 2021-11-14 16:50
+
+ 本帖最后由 lj205 于 2021-11-14 16:57 编辑 
+
+兄弟以后开腾讯会议吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+导播又进步了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+打铁感觉这场状态没起来的样子
+
+*****
+
+####  优妮可  
+##### 307#       发表于 2021-11-14 16:58
+
+不是说直播间有弹幕涨热度容易被切
+
+*****
+
+####  蜜梨柑  
+##### 308#       发表于 2021-11-14 16:59
+
+怎么GOING UP还是小百合solo，我还以为过了五分之一会换一个人上的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 309#       发表于 2021-11-14 16:59
+
+拍到了台下的观众的画面了，台下观众好热心肠呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 310#       发表于 2021-11-14 17:00
+
+我挂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么快呀
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  寒风夜  
+##### 311#       发表于 2021-11-14 17:01
+
+嗯  碎了
+
