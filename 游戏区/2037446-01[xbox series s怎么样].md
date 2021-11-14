@@ -680,3 +680,12 @@ xgp 有啥游戏
 
 5月份德亚买的xss，要不是地平线5出来一直在吃灰。
 
+
+
+*****
+
+####  Redis  
+##### 70#         楼主| 发表于 2021-11-15 07:41
+
+得，库存已经没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
