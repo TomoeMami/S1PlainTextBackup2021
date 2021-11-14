@@ -4057,3 +4057,35 @@ C8391E5A-DB4F-41E7-855D-39E6E31FC1B0.jpeg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  cat1230  
+##### 372#       发表于 2021-11-14 22:27
+
+后续看看有啥花活的切片我就满足了，等个b站各路大佬们的总结切片。
+
+*****
+
+####  player3960  
+##### 373#       发表于 2021-11-14 22:29
+
+难得鲤鱼day1就发返图额，还是我最爱的op打歌服，心满意足了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 374#       发表于 2021-11-14 22:34
+
+鲤鱼今天就发微博了啊
+
+*****
+
+####  kata魂  
+##### 375#       发表于 2021-11-14 22:39
+
+每次未来如风nakopay场合的时候小百合跟鲤鱼到底在玩什么·····从招呼到拥抱，今晚又是碰肩…
+
