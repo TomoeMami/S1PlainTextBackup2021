@@ -11508,3 +11508,16 @@ solo战的时候我推被你黛击杀了，我要化身anti了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BORA队apex周年大会拿了第二，masanori桑太bug了，16杀
 
+
+
+*****
+
+####  poipanchao  
+##### 8337#       发表于 2021-11-14 14:44
+
+永远无法正常比赛的肉大好最后一句终于赢了
+
+syl，hnn还做过キャバ嬢的，难怪坏女人等级这么高……
+
+kmt你醒醒吧
+

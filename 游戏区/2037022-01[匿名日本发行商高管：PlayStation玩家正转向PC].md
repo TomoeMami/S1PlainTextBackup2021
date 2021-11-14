@@ -4465,3 +4465,14 @@ cod还不如splatoon影响大，那批小孩出来真的开始打枪了而且够
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  SICP  
+##### 403#       发表于 2021-11-14 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539335&amp;ptid=2037022" target="_blank">920619lqy 发表于 2021-11-14 13:25</a>
+这里的问题是索和几位友商传统来讲是不给退款渠道的，只有某个作品出了规模比较大的有点出圈的口碑问题， ...</blockquote>
+目前我就知道Steam是购买不超过14天且开玩不超过2小时内可直接退款，除此之外的主机、手机平台都是需要写小作文的，且不限定特定时间，因为我都退过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">举TLOU2是因为我都白金了两周之后写信仍然给我退了，这点算是我薅到索尼了（如果不算精神损失费的话）
+
