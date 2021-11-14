@@ -8984,3 +8984,19 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 王木木开了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 2478#       发表于 2021-11-14 19:07
+
+爆金币咯
+
+*****
+
+####  tankai  
+##### 2479#       发表于 2021-11-14 19:21
+
+某白你太嫩了，学学这位。
+

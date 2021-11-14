@@ -11662,3 +11662,14 @@ sb巨硬，强制退坑
   -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
 4和5的俱乐部是分开的
 
+
+
+*****
+
+####  pl0okm  
+##### 1062#       发表于 2021-11-14 19:06
+
+这翻译绝了 拓荒者门北极星奖章页面写的是在山涧门，标记上切回游戏变成巨兽之战门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 跑了两遍巨兽之战才发现
+
+分枯水涨水 上周吃鸡还开着甲壳虫在湖里撒欢来着
+
