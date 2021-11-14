@@ -4495,3 +4495,39 @@ PC版有和谐补丁，买不到PS5当然买PC了。
 目前我就知道Steam是购买不超过14天且开玩不超过2小时内可直接退款，除此之外的主机、手机平台都是需要写 ...</blockquote>
 EPIC、GOG都可以基本标配了，GOG还延长到30天，开始卷起来了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Shaw  
+##### 406#       发表于 2021-11-14 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53510943&amp;ptid=2037022" target="_blank">Guildenstern 发表于 2021-11-11 23:39</a>
+
+PS5至今没有什么拿得出手的独占，还有黄牛溢价，作为PC玩家反正我是看不出有什么买的价值。 ...</blockquote>
+还是有的，我3000块买的PS5，比起显卡还是便宜不少
+
+*****
+
+####  满满一大杯  
+##### 407#       发表于 2021-11-14 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539796&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-14 14:21</a>
+
+整机或者游戏本那么多，不都是标准定制的么，要steam自家就deck咯。
+
+倒不如说amd明年核显从过时的vega8 ...</blockquote>
+盲买笔记本/整机上墙的概率越高于主机，这个不提了。主要是我真见过有人买笔记本打MMO到本子快退役了都不知道切独显，加上常用LinuxDesktop对大家抗拒折腾的程度比较有体会……你让这帮加速器都要买成品的主机党在这代大部转PC几乎是不现实的，日本/国外的游戏“玩”家（非爱好者）并不会比国内愿意折腾到哪里去，这个时代有些人被智能机侵蚀到连“文档”的概念都不具备了，但主机和智能机逻辑上几乎是一致的。
+
+话说这代5600G/5700G真下不去手，友商都在（M1的压力下？）在12代挤爆牙膏了，AMD明年到底能不能出个靠谱点的零售APU啊……
+
+*****
+
+####  SICP  
+##### 408#       发表于 2021-11-14 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53540555&amp;ptid=2037022" target="_blank">dumplingpro 发表于 2021-11-14 15:42</a>
+
+EPIC、GOG都可以基本标配了，GOG还延长到30天，开始卷起来了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

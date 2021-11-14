@@ -8959,3 +8959,19 @@ gn骑士快收收味吧！<img src="https://static.saraba1st.com/image/smiley/fa
 
 真司马懿是吧，无内鬼，谁是成济
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2475#       发表于 2021-11-14 16:16
+
+bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间，令人感叹。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2476#       发表于 2021-11-14 16:22
+
+傻卵发散发到评论里就很让人烦<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
