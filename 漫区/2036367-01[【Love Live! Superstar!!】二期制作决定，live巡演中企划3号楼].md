@@ -3856,3 +3856,30 @@ liella之歌的衣服肯定是5个人都要做的
 
 这场真的挺空的
 
+
+
+*****
+
+####  lj205  
+##### 356#       发表于 2021-11-14 19:24
+
+虽然我早就放弃了，但是我还是想听鲤鱼SOLO啊，可恶<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 357#       发表于 2021-11-14 19:31
+
+今天的结束了吗？
+
+*****
+
+####  梶原ひかり  
+##### 358#       发表于 2021-11-14 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53542738&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-14 19:31</a>
+今天的结束了吗？</blockquote>
+结束了
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
