@@ -3748,3 +3748,54 @@ nagi的liella之歌换了耶
   -- 来自 有消息提醒的 Stage1官 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那咱们拭目以待吧
 
+
+
+*****
+
+####  tagerto  
+##### 343#       发表于 2021-11-14 17:49
+
+我觉得应该没有了，从服装来看，liella之歌有新服装，而鲤鱼小百合本来就多了一套小星星，所以干脆就不做她们两个的服装，这样大家的服装套数基本相同，而鲤鱼小百合因为没有服装估计也没有solo了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 344#       发表于 2021-11-14 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">就这也太憨
+
+*****
+
+####  lj205  
+##### 345#       发表于 2021-11-14 17:54
+
+跟服装上扯什么关系，说白了就是贴着动画安排的，没有可可的ED，也就没有鲤鱼的SOLO
+
+你也在腾讯那个房间里吧？里面那些人还说鲤鱼唱的白开水，试问给她表现的机会了吗？合唱没她，怎么托着别人？看过鲤鱼早期表演和现在对比，进步不是一星半点，可不只是稳而已。
+
+*****
+
+####  zylwz  
+##### 346#       发表于 2021-11-14 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541716&amp;ptid=2036367" target="_blank">tagerto 发表于 2021-11-14 17:49</a>
+
+我觉得应该没有了，从服装来看，liella之歌有新服装，而鲤鱼小百合本来就多了一套小星星，所以干脆就不做她 ...</blockquote>
+liella之歌的衣服肯定是5个人都要做的
+
+早晚的事
+
+*****
+
+####  lj205  
+##### 347#       发表于 2021-11-14 17:59
+
+终于看到鲤鱼扭胯了，虽然只有上半身 
+
+*****
+
+####  蜜梨柑  
+##### 348#       发表于 2021-11-14 18:00
+
+算北海道、大阪两地只是将和群马、冈山歌单里的primary换成anniversary，后面6个地方的歌单要怎么办？不换可可和香音的话，liella之歌的排列组合已经用完了。运营有脸100%复演一遍相同歌单的话当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
