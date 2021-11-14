@@ -8688,3 +8688,21 @@ CJ好4<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" refe
 
 就是一换一
 
+
+
+*****
+
+####  有效击穿  
+##### 2447#       发表于 2021-11-14 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53537645&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-14 09:57</a>
+一想到刚从全麻中回复意识若有若离的文静，我就直接🥵🥵🥵</blockquote>
+gn骑士快收收味吧！<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 2448#       发表于 2021-11-14 10:16
+
+莫洛下次在鸟楼发完，能再在鸟p楼也发一遍吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
