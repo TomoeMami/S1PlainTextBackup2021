@@ -9197,3 +9197,15 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 高端外围，全国空降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过琳姐说的是空降原力总部
 
+
+
+*****
+
+####  GAKOTO  
+##### 2501#         楼主| 发表于 2021-11-14 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545094&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-14 22:28</a>
+高端外围，全国空降
+不过琳姐说的是空降原力总部</blockquote>
+这下枕営业了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

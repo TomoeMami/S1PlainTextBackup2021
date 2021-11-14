@@ -4178,3 +4178,40 @@ C8391E5A-DB4F-41E7-855D-39E6E31FC1B0.jpeg
 
 看鲤鱼B站反图评论区有人说东京要开第一家喜茶了，这不得乐晕过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 380#       发表于 2021-11-14 23:25
+
+微博有鲤鱼上次杂志访谈的翻译了，鲤鱼说最近喜欢看pop子和pipi美<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，那cos是不是可以安排一下，带上小百合什么的（
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 381#       发表于 2021-11-14 23:31
+
+【【Liella/描改手书】那什么星团（中之人）-哔哩哔哩】[https://b23.tv/m648Cu](https://b23.tv/m648Cu)
+
+这个手书好多梗<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 382#       发表于 2021-11-14 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545783&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-14 23:31:43</a>
+【【Liella/描改手书】那什么星团（中之人）-哔哩哔哩】</blockquote>艹，梗都好新啊，一路追过来梗都看懂的感觉真好<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 383#       发表于 2021-11-14 23:41
+
+上海原来是5年小学4年初中的吗？还以为全国都是统一6年小学三年初中的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
