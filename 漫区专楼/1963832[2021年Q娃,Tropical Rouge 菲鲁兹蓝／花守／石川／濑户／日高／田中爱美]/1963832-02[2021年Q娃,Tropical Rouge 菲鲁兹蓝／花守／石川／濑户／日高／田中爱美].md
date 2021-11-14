@@ -10989,3 +10989,23 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">？？？？？？？？？？我没看几集，发生啥事了，怎么讨论这么诡异的。
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2304#       发表于 2021-11-14 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53542496&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-11-14 19:12</a>
+？？？？？？？？？？我没看几集，发生啥事了，怎么讨论这么诡异的。 ...</blockquote>
+主线回信息量有点爆炸
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  isa2456  
+##### 2305#       发表于 2021-11-14 19:57
+
+制药师赶紧做药啊<img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">感觉装置是用来抽出最美好的回忆然后转成干劲能量供给整个四大洋的
+
