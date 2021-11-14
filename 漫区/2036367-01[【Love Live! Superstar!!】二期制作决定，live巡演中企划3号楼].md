@@ -3604,3 +3604,147 @@ V总就是只播声音就没事
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  chenflyyy  
+##### 328#       发表于 2021-11-14 17:25
+
+不会是北海道太冷冻着了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 329#       发表于 2021-11-14 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541311&amp;ptid=2036367" target="_blank">cxj649 发表于 2021-11-14 17:10</a>
+V总就是只播声音就没事</blockquote>
+我又被封了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iuhehc  
+##### 330#       发表于 2021-11-14 17:25
+
+nagi的liella之歌换了耶
+
+
+
+*****
+
+####  lj205  
+##### 331#       发表于 2021-11-14 17:26
+
+居然换歌了
+
+*****
+
+####  iuhehc  
+##### 332#       发表于 2021-11-14 17:28
+
+顺序也换了？
+
+*****
+
+####  megapikachu  
+##### 333#       发表于 2021-11-14 17:29
+
+因为实力还没强到那么稳的程度啊，不完全是体力的问题，不可能一点浮动都没有。更何况现在新鲜感过去了，自然更多关注她们的唱功了，她们之前的表现也算可圈可点，也可以提更高的要求了。大家扪心自问，现在你们对星团水准的要求，跟一开始一样吗？
+
+*****
+
+####  lj205  
+##### 334#       发表于 2021-11-14 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541464&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-11-14 17:25</a>
+
+我又被封了
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+还是腾讯会议吧……还能自由聊天
+
+*****
+
+####  普之舜舜  
+##### 335#       发表于 2021-11-14 17:34
+
+ 本帖最后由 普之舜舜 于 2021-11-14 17:36 编辑 
+
+我自己试试
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  player3960  
+##### 336#       发表于 2021-11-14 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541498&amp;ptid=2036367" target="_blank">megapikachu 发表于 2021-11-14 17:29:12</a>
+因为实力还没强到那么稳的程度啊，不完全是体力的问题，不可能一点浮动都没有。更何况现在新鲜感过去了，自 ...</blockquote>一点小事故我倒是无所谓，毕竟巡演，天王巨星也不能保证场场不出岔子，还是希望她们不要过劳留下伤病，那样就不可挽回了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 337#       发表于 2021-11-14 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541498&amp;ptid=2036367" target="_blank">megapikachu 发表于 2021-11-14 17:29</a>
+
+因为实力还没强到那么稳的程度啊，不完全是体力的问题，不可能一点浮动都没有。更何况现在新鲜感过去了，自 ...</blockquote>
+这种事上礼拜就讨论过了，排歌本来就有问题，特别是鲤鱼还没SOLO，我上礼拜还激动了一把
+
+不过就现在这情况看，不SOLO也行，看她现在稳的可以，还能托着别人
+
+*****
+
+####  普之舜舜  
+##### 338#       发表于 2021-11-14 17:35
+
+不过其他拉拉转播都是用腾讯会议 这个的确很安全<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  寒风夜  
+##### 339#       发表于 2021-11-14 17:36
+
+鲤鱼是真不简单
+
+*****
+
+####  lj205  
+##### 340#       发表于 2021-11-14 17:38
+
+我上礼拜因为鲤鱼抓狂的时候，微博各种人说我，现在这些人也在各种问了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我话早放那了，居然还抱希望，还什么上半程下半程
+
+*****
+
+####  player3960  
+##### 341#       发表于 2021-11-14 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541562&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-14 17:35:26</a>
+这种事上礼拜就讨论过了，排歌本来就有问题，特别是鲤鱼还没SOLO，我上礼拜还激动了一把
+
+不过就现在这情 ...</blockquote>鲤鱼solo还是有希望的，毕竟Liella之歌这段在变，估计在后面几场<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 342#       发表于 2021-11-14 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541606&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-14 17:38</a>
+
+鲤鱼solo还是有希望的，毕竟Liella之歌这段在变，估计在后面几场
+
+  -- 来自 有消息提醒的 Stage1官 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那咱们拭目以待吧
+
