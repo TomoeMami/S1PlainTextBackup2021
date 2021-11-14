@@ -9229,3 +9229,12 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2504#       发表于 2021-11-15 02:16
+
+蓝牙耳机的麦就像打电话一样，伴随着老阿姨的喘息声<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

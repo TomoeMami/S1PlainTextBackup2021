@@ -624,3 +624,59 @@ xbox series x不是s
 
 到时候我少点儿钱出出去，再去弄个xgpu<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  精钢魔像  
+##### 65#       发表于 2021-11-15 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546562&amp;ptid=2037446" target="_blank">江南映月 发表于 2021-11-15 01:34</a>
+
+怎么看现在xgp有啥游戏？？？</blockquote>
+xgp 有啥游戏
+
+有没汉化
+
+打折、临时工
+
+游戏好不好玩
+
+统一用微信小程序：xbox比价助手
+
+*****
+
+####  nozomitech  
+##### 66#       发表于 2021-11-15 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546615&amp;ptid=2037446" target="_blank">Redis 发表于 2021-11-14 18:44</a>
+
+那我还是现留着吧，感觉应该是码
+
+只是付款是分期的而已</blockquote>
+嗯，能出掉确实还行，但出不掉这价格在美国绝对血亏，你要考虑清楚。
+
+*****
+
+####  920619lqy  
+##### 67#       发表于 2021-11-15 05:32
+
+<blockquote>nozomitech 发表于 2021-11-14 12:02
+嗯，能出掉确实还行，但出不掉这价格在美国绝对血亏，你要考虑清楚。</blockquote>
+亏200刀吧，就当多吃了十天外卖。不依赖毛子或者淘宝或者巴西的话北美能搞到的最便宜的XLG也要50刀一年，三年+1刀升级XGPU+原价XSX=650+税。95刀两年XLG的码现在应该不卖了。
+
+*****
+
+####  masterzx  
+##### 68#       发表于 2021-11-15 05:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">才发现pc上的xbox游戏也可以像xbox实机上那样共享游玩的，比如主号1美刀试用过期了，开个新的副号继续1美刀试用，下下来的游戏可以仍旧用主号游玩、联机、拿成就
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那岂不是可以快速无限白嫖了
+
+*****
+
+####  wyy123  
+##### 69#       发表于 2021-11-15 05:55
+
+5月份德亚买的xss，要不是地平线5出来一直在吃灰。
+
