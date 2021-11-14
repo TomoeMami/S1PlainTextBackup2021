@@ -11747,3 +11747,25 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 以前还黑gt的ai是轨道车，然后吹废渣的ai优秀，从这作ai越野的表现来看，这也跟轨道车没什么区别，跑越野都 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代越野AI实在恐怖 狮子头直接让你坐牢
 
+
+
+*****
+
+####  AEmpire  
+##### 1071#       发表于 2021-11-14 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545373&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-14 22:53</a>
+
+联网赛事断了几次之后不想再被傻逼操场PUA了，领不了奖励车就领不了吧，这傻逼网络是怎么有脸要玩家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我学着B站上的视频把QQ和QQ云盾的进程关了之后，刚把几个线上挑战全刷了，全程没掉过线，你可以试试
+
+*****
+
+####  lxx4869  
+##### 1072#       发表于 2021-11-14 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545496&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-14 23:04</a>
+
+这代越野AI实在恐怖 狮子头直接让你坐牢</blockquote>
+有时候打不过ai换了辆车用了泥地调教突然就碾压ai了，没注意圈速，不知道是调教问题还是ai bug了...
+
