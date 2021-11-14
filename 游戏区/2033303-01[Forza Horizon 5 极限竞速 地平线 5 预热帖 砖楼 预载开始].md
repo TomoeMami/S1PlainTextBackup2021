@@ -11736,3 +11736,14 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 你们都刷到几百级了，这代升级好快啊
 
+
+
+*****
+
+####  Vladimeow  
+##### 1070#       发表于 2021-11-14 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53543846&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-14 20:45</a>
+以前还黑gt的ai是轨道车，然后吹废渣的ai优秀，从这作ai越野的表现来看，这也跟轨道车没什么区别，跑越野都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代越野AI实在恐怖 狮子头直接让你坐牢
+
