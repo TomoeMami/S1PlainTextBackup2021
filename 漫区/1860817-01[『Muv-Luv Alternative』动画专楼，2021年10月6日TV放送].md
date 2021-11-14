@@ -19736,3 +19736,24 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+
+*****
+
+####  hacisiki  
+##### 1377#       发表于 2021-11-14 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53536173&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-14 00:58</a>
+
+嗯……这么说也不是没道理，我回头再去翻翻游戏
+
+不过你要不反白一下 ...</blockquote>
+你看，我也没剧透，就是猜测，猜测。游戏文本里面一个字都不会有
+
+*****
+
+####  球獭  
+##### 1378#       发表于 2021-11-14 10:58
+
+所以抹布游戏还会有新作吗
+
