@@ -12229,3 +12229,20 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 我学着B站上的视频把QQ和QQ云盾的进程关了之后，刚把几个线上挑战全刷了，全程没掉过线，你可以试 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我的情况应该不是这种，FH4乃至更早的作品都是这样，但是以前都是单机可以搞定除了联机赛事之外的其他奖品，FH5改成要拿第二档进度奖品就必须线上就心情复杂了
 
+
+
+*****
+
+####  ギナ  
+##### 1112#       发表于 2021-11-15 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427857&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 17:08</a>
+我开到极致了，
+
+我刚才又跑金字塔转了一圈，
+
+还是稳定60。</blockquote>
+我又测试过几遍了，msaa拉到8X就算3090也肯定稳不住全程4K60帧的，你确定你是开着8X而不是4X吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -11909,3 +11909,100 @@ vspo就不用唱歌跳舞了么<img src="https://static.saraba1st.com/image/smil
 
 哈弟那边还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 8382#       发表于 2021-11-15 16:03
+
+如果真去日本的话感觉转v可能性挺大的
+
+*****
+
+####  poipanchao  
+##### 8383#       发表于 2021-11-15 16:15
+
+哪来的消息要去日本发展
+我只看到2000在说
+
+
+
+*****
+
+####  rzrbtk  
+##### 8384#       发表于 2021-11-15 16:25
+
+郡「リスナーの言う「ちょっとお休みが続いた後に新衣装発表されると怖い」という気持ち心底分かるようになってしまった  つらいわね」，历战liver郡郡…
+
+
+
+*****
+
+####  fastary  
+##### 8385#       发表于 2021-11-15 16:40
+
+ 本帖最后由 fastary 于 2021-11-15 16:46 编辑 
+
+说起来黑客也是5.20剧情回以后休止一个月6.19披露新衣装（指涩谷街头那个视频）……虽说事到如今观众这边是无从知晓根据投票结果他是否真会毕业了，现在想来真是越发后怕<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+而且男v毕业再转v就是杏星恐怕也没虹好，以后他哪天毕业估计就从此远离v圈当他的小实况主去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望这天晚点到来吧
+
+*****
+
+####  十四洲  
+##### 8386#       发表于 2021-11-15 16:51
+
+休止回来之后只要继续播下去总有发新衣服的一天，虹最近除了roa还有休止的吗…
+
+*****
+
+####  生麦之发杀  
+##### 8387#       发表于 2021-11-15 16:53
+
+ 本帖最后由 生麦之发杀 于 2021-11-15 16:55 编辑 
+
+bora隐退后加入yuya小团体可能性微存
+
+什么虹kr反抗军(
+
+*****
+
+####  poipanchao  
+##### 8388#       发表于 2021-11-15 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554287&amp;ptid=1972669" target="_blank">十四洲 发表于 2021-11-15 16:51</a>
+休止回来之后只要继续播下去总有发新衣服的一天，虹最近除了roa还有休止的吗… ...</blockquote>
+那多了去了
+釜山，sky，走等等
+
+*****
+
+####  FCCHua  
+##### 8389#       发表于 2021-11-15 16:58
+
+嘛，虽然小熊猫和走姐都是健康原因，sky是学业原因
+
+
+
+*****
+
+####  Suzutsuki  
+##### 8390#       发表于 2021-11-15 17:01
+
+bora走了，就等roha也走，然后kr爆炸。过不了多久en也爆炸，然后是不是就该轮到本社了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 8391#       发表于 2021-11-15 17:17
+
+釜山感觉人是快没了，不知道葵皇最近有提到过没有，另外几个休止问题都不是很大，至少推还在正常动的，釜山好像就404突然诈尸了一下又没消息了，应该有一个月了，感觉虹女大逃杀缩毒的速度还是比较慢，不知道bora毕业后是不是就会加快了
+
+*****
+
+####  zerouuz  
+##### 8392#       发表于 2021-11-15 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是说要治疗抑郁症？让她好好休息吧
+
