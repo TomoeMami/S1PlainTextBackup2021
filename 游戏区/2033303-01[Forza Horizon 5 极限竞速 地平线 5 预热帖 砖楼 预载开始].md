@@ -12281,3 +12281,17 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hzh3355  
+##### 1116#       发表于 2021-11-15 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554878&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 17:36</a>
+
+3090不会爆显存，但是GPU占用率经常跳到百分百，关键是8X你不开写轮眼也对比不出跟4X的差异
+
+—— ...</blockquote>
+我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问题，内存32G不太可能是内存吧，导致我我每玩2小时左右就得重开一次游戏<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
