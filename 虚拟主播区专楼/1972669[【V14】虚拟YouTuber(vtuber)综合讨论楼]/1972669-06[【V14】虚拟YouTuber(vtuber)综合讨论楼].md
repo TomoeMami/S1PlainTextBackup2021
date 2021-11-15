@@ -11854,3 +11854,20 @@ iwaiwa也是起家的亲兄弟啊😭
 
 vspo，cr甚至holo都可以，救一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 8375#       发表于 2021-11-15 15:26
+
+holo就别了吧，打枪女孩被逼着唱歌跳舞已经品鉴得够多了👋，还是vspo最适合。
+
+*****
+
+####  死体残留  
+##### 8376#       发表于 2021-11-15 15:40
+
+vspo就不用唱歌跳舞了么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+都全3d了，不唱歌跳舞去玩vrchat么
+

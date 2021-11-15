@@ -14652,3 +14652,14 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 只能说都是观众的错了，你为什么不去变成那30%的人去哄夸宝开心呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Scardy  
+##### 7183#       发表于 2021-11-15 15:36
+
+夸夸太脆弱了，crew一定要供着，好生伺候着，有没有下次直播就看crew的表现了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
