@@ -12353,3 +12353,12 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 —— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  nemunoki  
+##### 1122#       发表于 2021-11-15 20:09
+
+现在一个战局最多就12人，看不到人的时候原地换个车出来容易刷出人，能不能过街机纯看脸
+
