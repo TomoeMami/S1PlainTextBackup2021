@@ -11059,3 +11059,14 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 —— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  kerfars  
+##### 2311#       发表于 2021-11-15 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">魔女也没有名字啊，而且女王后面也被抓住了，是实际存在的
+
+倒是魔女可能是女王妈妈辈，萝拉奶奶辈的，是前代女王的可能性也不是没有
+
