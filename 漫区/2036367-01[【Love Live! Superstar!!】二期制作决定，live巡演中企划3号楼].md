@@ -4472,3 +4472,15 @@ bd后续抽选可能追加开个蛋，西武或ssa，当然这歌单再来第21�
 
 第四话看完啦，倒是还蛮搞笑的啦，除此之外就没什么想说的了，没啥味道的一集
 
+
+
+*****
+
+####  ads147147  
+##### 408#       发表于 2021-11-15 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551391&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-15 13:31</a>
+
+第四话看完啦，倒是还蛮搞笑的啦，除此之外就没什么想说的了，没啥味道的一集 ...</blockquote>
+花田样板戏是这样的。
+

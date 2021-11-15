@@ -12084,3 +12084,40 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 越大弧弯越长分数越多
 
+
+
+*****
+
+####  920619lqy  
+##### 1102#       发表于 2021-11-15 13:46
+
+ 本帖最后由 920619lqy 于 2021-11-14 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551398&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-14 23:32</a>
+
+漂移的基础我已经写在顶楼了
+
+也有演示视频参考</blockquote>#43 viper已搞，确实不错，刚把OTRO MUNDO那个只要7W分就能三星的过了
+
+拉一个连续弧的分数会不会比同距离的来回摆头更高一些？
+
+*****
+
+####  天神十三煞  
+##### 1103#         楼主| 发表于 2021-11-15 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551604&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-14 21:46</a>
+
+拉一个连续弧的分数会不会比同距离的来回摆头更高一些？</blockquote>
+
+连续的大弧肯定比来回摆高
+
+弧线拉得越长分数后面累积比例系数就高
+
+滑弧线一旦折断分数系数重算，
+
+所以你看我的视频宁可中途补油或增刹也尽量去画大弯，
+
+实际上滑的过程中失速或超速是有容差池范围的
+
+不低速或超速到轮胎抓地摩擦力保持一定程度不变都可以算漂移连续状态
+
