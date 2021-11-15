@@ -9421,3 +9421,12 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 CJ之前说每周一例会，我以为CJ走了这会就没了，没想到还要开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 另外这次好像很紧急的样子，艾队和琳都推迟直播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2523#       发表于 2021-11-15 21:09
+
+怎么开个会开了这么久。。<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+

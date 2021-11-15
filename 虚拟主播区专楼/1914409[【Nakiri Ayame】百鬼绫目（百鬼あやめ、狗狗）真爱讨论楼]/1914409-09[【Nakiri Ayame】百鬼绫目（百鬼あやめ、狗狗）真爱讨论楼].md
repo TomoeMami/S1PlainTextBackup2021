@@ -17729,3 +17729,12 @@ syl，说起来绫好像蛮长一段时间没转fanart了，但百鬼众一直�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">百鬼众到底是什么生物，被绫总这么玩还不跑路。
 
+
+
+*****
+
+####  因为你不会  
+##### 13484#       发表于 2021-11-15 21:04
+
+都是哥谭来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
