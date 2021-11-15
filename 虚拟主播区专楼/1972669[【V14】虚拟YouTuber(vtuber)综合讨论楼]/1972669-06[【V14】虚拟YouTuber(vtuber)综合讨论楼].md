@@ -12058,3 +12058,12 @@ bora走了，就等roha也走，然后kr爆炸。过不了多久en也爆炸，�
 
 查看全部评分
 
+
+
+*****
+
+####  我不是很好  
+##### 8397#       发表于 2021-11-15 19:43
+
+有可能就是因为想当偶像呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

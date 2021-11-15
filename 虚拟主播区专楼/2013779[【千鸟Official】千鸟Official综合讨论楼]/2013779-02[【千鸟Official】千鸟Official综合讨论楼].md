@@ -9400,3 +9400,12 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 周一不是例行会议吗
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2521#       发表于 2021-11-15 19:56
+
+原来千鸟还会例行开会的么。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
