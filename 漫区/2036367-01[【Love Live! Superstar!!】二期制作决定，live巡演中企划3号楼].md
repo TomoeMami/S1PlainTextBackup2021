@@ -4937,3 +4937,57 @@ nako刚才更新了和pay酱的合照，nako也集邮成功了，C52现在就差
 
 我现在live差不多是这个流程，开场了大家还是很稳，心疼打铁，小星星今天手好像没伸直了，岬跳舞厉害，青山和佩稳稳稳美美美，鲤鱼什么时候才能solo，青山跳舞真好看，打铁唱歌是神，今天吃什么，星团真帅，星团真漂亮，光路光路，日语口语考试，鲤鱼和打铁今天怎么贴，安可安可，扔外套，合照合照，是鲤X贴贴！我磕到了！谢谢鲤鱼！！
 
+
+
+*****
+
+####  名津流  
+##### 445#       发表于 2021-11-15 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555238&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-15 18:08</a></blockquote>
+看群里有人做了个翻转的版本，同步率就更高了
+
+<img src="https://img.saraba1st.com/forum/202111/15/223035wunu1uu1h811n16h.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211115222802.jpg</strong> (377.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 22:30 上传
+
+*****
+
+####  稀勢のささ  
+##### 446#       发表于 2021-11-15 22:35
+
+看了下切片今天的小剧场有点多啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 贴就算了还带单防的
+
+*****
+
+####  iuhehc  
+##### 447#       发表于 2021-11-15 22:36
+
+佩佩的自拍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 448#       发表于 2021-11-15 22:40
+
+<img src="https://img.saraba1st.com/forum/202111/15/224015tmle5mhlmej48r95.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_223811.jpg</strong> (157.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 22:40 上传
+
+*****
+
+####  chenflyyy  
+##### 449#       发表于 2021-11-15 22:42
+
+ 本帖最后由 chenflyyy 于 2021-11-15 22:45 编辑 
+
+最近感觉nako和pay也挺好磕的，有股莫名的母女感，还有双人曲，应该说团里怎么c5 2都好磕<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

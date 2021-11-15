@@ -12382,3 +12382,15 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1125#       发表于 2021-11-15 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53557666&amp;ptid=2033303" target="_blank">wawaren 发表于 2021-11-15 22:09</a>
+
+刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我的心得是前几个弯像导弹一样一头撞向第一名，抢下第一名后就ez game了
+
