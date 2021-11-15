@@ -4991,3 +4991,21 @@ nako刚才更新了和pay酱的合照，nako也集邮成功了，C52现在就差
 
 最近感觉nako和pay也挺好磕的，有股莫名的母女感，还有双人曲，应该说团里怎么c5 2都好磕<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 450#       发表于 2021-11-15 22:52
+
+今晚是货真价实的c52，一个没缺……
+
+
+
+*****
+
+####  稀勢のささ  
+##### 451#       发表于 2021-11-15 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这就是pay的艺术吗
+

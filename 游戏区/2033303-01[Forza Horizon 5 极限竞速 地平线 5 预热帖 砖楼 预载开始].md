@@ -12394,3 +12394,24 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我的心得是前几个弯像导弹一样一头撞向第一名，抢下第一名后就ez game了
 
+
+
+*****
+
+####  wawaren  
+##### 1126#       发表于 2021-11-15 22:41
+
+<blockquote>诶哟卧草 发表于 2021-11-15 22:32
+我的心得是前几个弯像导弹一样一头撞向第一名，抢下第一名后就ez game了 ...</blockquote>
+是的，前车已经减速的情况下我靠前车减速，我就赚了
+
+*****
+
+####  evaqyqx  
+##### 1127#       发表于 2021-11-15 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555498&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 18:30</a>
+
+我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问 ...</blockquote>
+看老外说是因为内存泄漏   我感觉火山那个公路赛道特别明显    不过我也不知道啥是内存泄漏
+
