@@ -9260,3 +9260,14 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">静，你痔疮割好了吗，什么时候上班啊
 
+
+
+*****
+
+####  Finsty  
+##### 2507#       发表于 2021-11-15 09:11
+
+琳其实不太所谓年龄，都透露自己妹妹年纪了，也至少是楼友（不是克）辈分的人了大概<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
