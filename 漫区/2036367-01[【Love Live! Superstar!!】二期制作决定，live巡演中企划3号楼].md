@@ -4263,3 +4263,28 @@ C8391E5A-DB4F-41E7-855D-39E6E31FC1B0.jpeg
 
 我先说明我没要争什么，我也从来不想跟任何人（除了小鬼）发生冲突，我从头到尾只对运营有意见，有什么可以楼里好好讨论
 
+
+
+*****
+
+####  Karin11974  
+##### 388#       发表于 2021-11-15 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545864&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-14 23:41</a>
+上海原来是5年小学4年初中的吗？还以为全国都是统一6年小学三年初中的 ...</blockquote>
+哪里提到？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chenflyyy  
+##### 389#       发表于 2021-11-15 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53547409&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-15 08:11</a>
+哪里提到？
+
+—— 来自 S1Fun</blockquote>
+https://b23.tv/RCSfJ9
+voice+杂志的鲤鱼转发，松雾做了翻译<img src="https://p.sda1.dev/3/d8337bb6e17217e8aa3b4a084cfee902/IMG_CMP_67483781.jpeg" referrerpolicy="no-referrer">
+
