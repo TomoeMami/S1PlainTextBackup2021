@@ -12039,3 +12039,25 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 全三星就差drift了，已经不想做了。这周活动那个要死要活搞了9W分完成要求了，但是三星要13W。分值只看在地 ...</blockquote>
 和速度有关系，慢速连续漂移有时候不如一个高速漂亮的过弯
 
+
+
+*****
+
+####  saberserker  
+##### 1099#       发表于 2021-11-15 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 12:53</a>
+
+全三星就差drift了，已经不想做了。这周活动那个要死要活搞了9W分完成要求了，但是三星要13W。分值只看在地 ...</blockquote>
+贴吧看了个马自达RX7的调教180 434 666，超好控制，自动挡也能用，控制好油门力度就行，想高分就得速度快。
+
+*****
+
+####  hzh3355  
+##### 1100#       发表于 2021-11-15 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 12:53</a>
+
+全三星就差drift了，已经不想做了。这周活动那个要死要活搞了9W分完成要求了，但是三星要13W。分值只看在地 ...</blockquote>
+那个我有一次速度还可以车完全横过来漂了第一个弯道+一小段直线，直接就4W6了；但是最后还是没有达到13W，摇杆感觉都快被摇烂了
+
