@@ -11122,3 +11122,15 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 又想起一个点不知道会不会解释，按照萝拉这话开头的说法，能通过漩涡保护的通道进入格兰海洋的只有人鱼和海 ...</blockquote>
 三人组不就是海洋妖精么
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2317#       发表于 2021-11-15 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555065&amp;ptid=1963832" target="_blank">leghorn00 发表于 2021-11-15 17:52</a>
+
+三人组不就是海洋妖精么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么可能，妖精是库鲁伦那种
+

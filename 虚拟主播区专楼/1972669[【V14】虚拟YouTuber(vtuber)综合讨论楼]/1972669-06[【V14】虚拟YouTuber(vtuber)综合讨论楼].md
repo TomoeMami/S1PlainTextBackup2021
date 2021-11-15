@@ -12022,3 +12022,16 @@ bora走了，就等roha也走，然后kr爆炸。过不了多久en也爆炸，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">en怎么会那么快就炸，我看那群女人现在玩的挺开心的
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8395#       发表于 2021-11-15 18:10
+
+ 本帖最后由 格林卡罗尔 于 2021-11-15 18:11 编辑 
+
+哈弟和cr那个管人企划昨天就招到人了，怕是不用等几个月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
