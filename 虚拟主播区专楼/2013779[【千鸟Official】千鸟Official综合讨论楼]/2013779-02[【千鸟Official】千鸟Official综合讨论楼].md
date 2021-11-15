@@ -9345,3 +9345,14 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 王木木不是很清楚，但是文静根据她的描述其实大约就是25，6，7这样</blockquote>
 文静年龄应该很清楚就算是刚发售初中iPhone5应该也就是2526这样
 
+
+
+*****
+
+####  小憨1  
+##### 2515#       发表于 2021-11-15 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549582&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-15 11:21</a>
+文静年龄应该很清楚就算是刚发售初中iPhone5应该也就是2526这样</blockquote>
+额，我马上25，我初中毕业时候iphone4s刚发售
+

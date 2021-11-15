@@ -11931,3 +11931,33 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  izumlily  
+##### 1088#       发表于 2021-11-15 11:28
+
+v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺便问一下名人堂怎么进
+
+*****
+
+####  fmhy1234  
+##### 1089#       发表于 2021-11-15 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549713&amp;ptid=2033303" target="_blank">izumlily 发表于 2021-11-15 11:28</a>
+
+v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺便问一下名人堂怎么进 ...</blockquote>
+剧情全解锁
+
+*****
+
+####  Hanzong  
+##### 1090#       发表于 2021-11-15 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549590&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-15 11:21</a>
+开自动驾驶挂特制蓝图皮筋绑RT，睡觉前放上第二天起来收割
+
+—— 来自 S1Fun ...</blockquote>
+我在上面看到了，不过现在有具体哪张图用哪辆车跑这种最优解了嘛，求个视频教学
+
