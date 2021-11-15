@@ -12295,3 +12295,28 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 —— ...</blockquote>
 我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问题，内存32G不太可能是内存吧，导致我我每玩2小时左右就得重开一次游戏<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ギナ  
+##### 1117#       发表于 2021-11-15 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555498&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 18:30</a>
+我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问 ...</blockquote>
+啊，这个bug还没修好么<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hzh3355  
+##### 1118#       发表于 2021-11-15 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555741&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 18:57</a>
+
+啊，这个bug还没修好么
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我用XGP玩没遇到，但是前天XGP不知道为啥文件损坏打不开游戏了，我又非常讨厌他那个文件管理系统，就在STEAM上重买了一份重头玩，然后就遇到这个问题了，昨天的事情
+
