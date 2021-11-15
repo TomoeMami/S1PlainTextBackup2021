@@ -11820,3 +11820,37 @@ https://twitter.com/fumoto_kamasu?t=xGl211DWVzlQsh5dWvsc7g&amp;s=09
 
 又是典中典之唯一指定背锅位fmt<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让索尼派个好点的人来呗
 
+
+
+*****
+
+####  winda  
+##### 8371#       发表于 2021-11-15 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虽然其他几个高层换水还换挺快，但fmt可是riku君的创业亲兄弟
+ankr还是我陆君的ankr哦，毕竟30叛忍时是这么说的
+
+*****
+
+####  rzrbtk  
+##### 8372#       发表于 2021-11-15 15:02
+
+ngo确实有梗，要不是粉毛软妹这个形象有点恐怖就推了，前几天还跟小琥珀一起玩儿拆弹，贴贴…
+
+*****
+
+####  IDIDIDID  
+##### 8373#       发表于 2021-11-15 15:05
+
+iwaiwa也是起家的亲兄弟啊😭
+
+*****
+
+####  poipanchao  
+##### 8374#       发表于 2021-11-15 15:06
+
+往好处想是，bo想做肯定还能看到
+就怕不想做了，那就真的消失人海了
+
+vspo，cr甚至holo都可以，救一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
