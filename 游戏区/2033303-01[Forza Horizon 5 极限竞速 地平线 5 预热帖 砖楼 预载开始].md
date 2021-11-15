@@ -11882,3 +11882,52 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+
+*****
+
+####  aceralon  
+##### 1083#       发表于 2021-11-15 11:14
+
+看来大家都觉得这代ai弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hanzong  
+##### 1084#       发表于 2021-11-15 11:19
+
+刚开始玩，求教现在刷钱/刷点数的最优解是啥？
+
+*****
+
+####  4ckc  
+##### 1085#       发表于 2021-11-15 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549480&amp;ptid=2033303" target="_blank">aceralon 发表于 2021-11-15 11:14</a>
+看来大家都觉得这代ai弱智了</blockquote>
+弱智B，演技不行A<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  4ckc  
+##### 1086#       发表于 2021-11-15 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549563&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-15 11:19</a>
+刚开始玩，求教现在刷钱/刷点数的最优解是啥？</blockquote>
+开自动驾驶挂特制蓝图皮筋绑RT，睡觉前放上第二天起来收割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yyyxxxrrr  
+##### 1087#       发表于 2021-11-15 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546160&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-15 00:19</a>
+这游戏AI感觉确实有点离谱，我现在普通公路赛基本吊打专家AI，但有个盘山公路无限连环弯的比赛要追上熟练AI ...</blockquote>
+感觉ai过高速弯比较保守，唯独这个环岛一个都没有，我最后还是放弃过弯，直接鱼雷才赢得
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

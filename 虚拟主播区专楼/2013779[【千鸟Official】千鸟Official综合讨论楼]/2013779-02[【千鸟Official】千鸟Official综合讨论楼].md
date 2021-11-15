@@ -9324,3 +9324,24 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 王木木不是很清楚，但是文静根据她的描述其实大约就是25，6，7这样
 
+
+
+*****
+
+####  伞沢直美  
+##### 2513#       发表于 2021-11-15 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我将停止呼吸，直到静静割完痔疮
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我将停止呼吸，直到静静母子平安
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我将停止呼吸，直到静静开好眼角
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我将停止呼吸，直到静静脱离全麻
+
+*****
+
+####  haruhiismer  
+##### 2514#       发表于 2021-11-15 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53548897&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-15 10:37</a>
+王木木不是很清楚，但是文静根据她的描述其实大约就是25，6，7这样</blockquote>
+文静年龄应该很清楚就算是刚发售初中iPhone5应该也就是2526这样
+
