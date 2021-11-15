@@ -11935,3 +11935,51 @@ vspo就不用唱歌跳舞了么<img src="https://static.saraba1st.com/image/smil
 
 郡「リスナーの言う「ちょっとお休みが続いた後に新衣装発表されると怖い」という気持ち心底分かるようになってしまった  つらいわね」，历战liver郡郡…
 
+
+
+*****
+
+####  fastary  
+##### 8385#       发表于 2021-11-15 16:40
+
+ 本帖最后由 fastary 于 2021-11-15 16:46 编辑 
+
+说起来黑客也是5.20剧情回以后休止一个月6.19披露新衣装（指涩谷街头那个视频）……虽说事到如今观众这边是无从知晓根据投票结果他是否真会毕业了，现在想来真是越发后怕<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+而且男v毕业再转v就是杏星恐怕也没虹好，以后他哪天毕业估计就从此远离v圈当他的小实况主去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望这天晚点到来吧
+
+*****
+
+####  十四洲  
+##### 8386#       发表于 2021-11-15 16:51
+
+休止回来之后只要继续播下去总有发新衣服的一天，虹最近除了roa还有休止的吗…
+
+*****
+
+####  生麦之发杀  
+##### 8387#       发表于 2021-11-15 16:53
+
+ 本帖最后由 生麦之发杀 于 2021-11-15 16:55 编辑 
+
+bora隐退后加入yuya小团体可能性微存
+
+什么虹kr反抗军(
+
+*****
+
+####  poipanchao  
+##### 8388#       发表于 2021-11-15 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554287&amp;ptid=1972669" target="_blank">十四洲 发表于 2021-11-15 16:51</a>
+休止回来之后只要继续播下去总有发新衣服的一天，虹最近除了roa还有休止的吗… ...</blockquote>
+那多了去了
+釜山，sky，走等等
+
+*****
+
+####  FCCHua  
+##### 8389#       发表于 2021-11-15 16:58
+
+嘛，虽然小熊猫和走姐都是健康原因，sky是学业原因
+
