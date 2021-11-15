@@ -12218,3 +12218,14 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 不知道下版会不会修复。
 
+
+
+*****
+
+####  Totokei  
+##### 1111#       发表于 2021-11-15 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545985&amp;ptid=2033303" target="_blank">AEmpire 发表于 2021-11-14 23:55</a>
+我学着B站上的视频把QQ和QQ云盾的进程关了之后，刚把几个线上挑战全刷了，全程没掉过线，你可以试 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我的情况应该不是这种，FH4乃至更早的作品都是这样，但是以前都是单机可以搞定除了联机赛事之外的其他奖品，FH5改成要拿第二档进度奖品就必须线上就心情复杂了
+
