@@ -12424,3 +12424,19 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">尝试把qq和q盾的进程关了然后在arcade里连续漂移了六分钟之后断线什么都没剩下
 
+
+
+*****
+
+####  miyamotoruri  
+##### 1129#       发表于 2021-11-16 00:22
+
+总觉得这代比4代容易推头，不知道是不是我好久没玩手残错觉……
+
+*****
+
+####  nailuo1993  
+##### 1130#       发表于 2021-11-16 00:40
+
+自动挡把abs和tcr打开勉强能开后驱了，这代s1级的车后驱比四驱强了一档啊
+

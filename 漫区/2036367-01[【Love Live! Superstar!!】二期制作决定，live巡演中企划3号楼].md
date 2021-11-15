@@ -5025,3 +5025,14 @@ nako刚才更新了和pay酱的合照，nako也集邮成功了，C52现在就差
 
 让鲤鱼d完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 454#       发表于 2021-11-16 00:29
+
+liyuu拍照挺会找位置，不管自拍还是他拍都水平稳定地展现了颜，就想起某次生放对镜头做饭撒的时候大家都比心wink，liyuu突然摆头来了一套漫展coser表情切换，当时看着就觉得流石大物coser...
+
+反观某jk偶像，怎么拍的还不如live截图好看啊w
+
