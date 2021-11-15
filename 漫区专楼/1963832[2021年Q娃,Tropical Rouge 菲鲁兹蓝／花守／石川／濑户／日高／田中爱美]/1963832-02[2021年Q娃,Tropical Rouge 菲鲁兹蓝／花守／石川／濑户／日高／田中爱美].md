@@ -11048,3 +11048,14 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 虽然可能是为了搞笑效果，但是萝莉说女王就是女王这点其实也怪怪，她自己都有名字，女王会没有名字吗？又或者女王本身可能就不是真正的存在？
 
+
+
+*****
+
+####  twit  
+##### 2310#       发表于 2021-11-15 09:44
+
+其实惰怠魔女才是真正的女王，龙宫的女王是居民心中的幻想<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

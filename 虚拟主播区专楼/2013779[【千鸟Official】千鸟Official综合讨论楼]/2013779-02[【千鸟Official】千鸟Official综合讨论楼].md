@@ -9271,3 +9271,28 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  haruhiismer  
+##### 2508#       发表于 2021-11-15 09:50
+
+ 本帖最后由 haruhiismer 于 2021-11-15 09:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53547873&amp;ptid=2013779" target="_blank">Finsty 发表于 2021-11-15 09:11</a>
+琳其实不太所谓年龄，都透露自己妹妹年纪了，也至少是楼友（不是克）辈分的人了大概
+
+—— 来自 HUA ...</blockquote>
+我大学刚毕业我爸又给我生了个弟弟，这样算琳比老克还老<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  faithlifer  
+##### 2509#       发表于 2021-11-15 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53537645&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-14 09:57</a>
+一想到刚从全麻中回复意识若有若离的文静，我就直接🥵🥵🥵</blockquote>
+收收味<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
