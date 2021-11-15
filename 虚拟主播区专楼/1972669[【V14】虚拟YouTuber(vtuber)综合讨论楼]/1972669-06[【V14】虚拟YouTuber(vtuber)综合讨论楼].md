@@ -11983,3 +11983,26 @@ bora隐退后加入yuya小团体可能性微存
 
 嘛，虽然小熊猫和走姐都是健康原因，sky是学业原因
 
+
+
+*****
+
+####  Suzutsuki  
+##### 8390#       发表于 2021-11-15 17:01
+
+bora走了，就等roha也走，然后kr爆炸。过不了多久en也爆炸，然后是不是就该轮到本社了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 8391#       发表于 2021-11-15 17:17
+
+釜山感觉人是快没了，不知道葵皇最近有提到过没有，另外几个休止问题都不是很大，至少推还在正常动的，釜山好像就404突然诈尸了一下又没消息了，应该有一个月了，感觉虹女大逃杀缩毒的速度还是比较慢，不知道bora毕业后是不是就会加快了
+
+*****
+
+####  zerouuz  
+##### 8392#       发表于 2021-11-15 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是说要治疗抑郁症？让她好好休息吧
+
