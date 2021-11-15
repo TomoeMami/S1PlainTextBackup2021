@@ -12067,3 +12067,29 @@ bora走了，就等roha也走，然后kr爆炸。过不了多久en也爆炸，�
 
 有可能就是因为想当偶像呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 8398#       发表于 2021-11-15 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">噗提之前会限直播突然呕吐，静音完回来说没事听着就很吓人
+10月底的工商倒是正常出了，但推特完全没动，就油管上动过一次
+
+*****
+
+####  winda  
+##### 8399#       发表于 2021-11-15 20:27
+
+<img src="https://img.saraba1st.com/forum/202111/15/202652v6uu261e1euqeddu.png" referrerpolicy="no-referrer">
+
+<strong>FEO1TTdakAEP9RY.png</strong> (79.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-15 20:26 上传
+
+bsyl，slee终于埋了
+

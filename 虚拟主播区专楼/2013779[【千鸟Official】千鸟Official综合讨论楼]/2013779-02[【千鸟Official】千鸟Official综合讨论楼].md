@@ -9409,3 +9409,15 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 
 原来千鸟还会例行开会的么。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2522#       发表于 2021-11-15 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53556402&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-15 19:56</a>
+原来千鸟还会例行开会的么。。</blockquote>
+CJ之前说每周一例会，我以为CJ走了这会就没了，没想到还要开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+另外这次好像很紧急的样子，艾队和琳都推迟直播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

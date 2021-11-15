@@ -11134,3 +11134,12 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 三人组不就是海洋妖精么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么可能，妖精是库鲁伦那种
 
+
+
+*****
+
+####  过气页游  
+##### 2318#       发表于 2021-11-15 20:22
+
+有没有可能其实反派都是被やらねえだ附身的活物，后面还有黑幕
+
