@@ -17684,3 +17684,39 @@ syl 4ch也太情弱 21年了还在紫宝大学生
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能要让我们大家都猜错了
 
+
+
+*****
+
+####  stedckk  
+##### 13480#       发表于 2021-11-15 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">感觉最近推上放的这两个素材应该有一段时间了，最近的战绩找不到那个狐狸的记录，至于哪找的就不清楚了，估计还是那几个号，其实还有些素材还没删都没放上去。
+
+*****
+
+####  nian1538  
+##### 13481#       发表于 2021-11-15 19:08
+
+润姨男友的事放绫总这里估计也啥影响都没有
+所以说靠游戏力耐久力杂谈力歌舞力养gachi力称帝称王都是镜花水月转瞬即逝，你杏人人都应该研究一下怎么把自己的粉丝变成百鬼组
+
+*****
+
+####  一仙  
+##### 13482#       发表于 2021-11-15 19:10
+
+<img src="https://img.saraba1st.com/forum/202111/15/190916jp0emwyiaijvc0te.jpg" referrerpolicy="no-referrer">
+
+<strong>FEOi3rjaIAAs3nM.jpg</strong> (561.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 19:09 上传
+
+[https://twitter.com/TorinoAqua/status/1460189871998267393?s=20](https://twitter.com/TorinoAqua/status/1460189871998267393?s=20)
+
+torino老师，神！
+
+syl，说起来绫好像蛮长一段时间没转fanart了，但百鬼众一直都还有不错的产出。
+
