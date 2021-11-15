@@ -9473,3 +9473,16 @@ CJ之前说每周一例会，我以为CJ走了这会就没了，没想到还要�
 
 河 南 王 木 木
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 2529#       发表于 2021-11-15 23:38
+
+绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+随便解释一下 当时李赣直播间在刷千鸟和螺旋丸哪个厉害，紧接着有人开始刷鸟不灭，所以我当时随手丢了个直播间链接
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

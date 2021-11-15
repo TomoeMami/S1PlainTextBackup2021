@@ -17738,3 +17738,19 @@ syl，说起来绫好像蛮长一段时间没转fanart了，但百鬼众一直�
 
 都是哥谭来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a37356205  
+##### 13485#       发表于 2021-11-15 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久没来，突然感觉好像好久没看过直播了，才发现原来不是错觉啊
+
+*****
+
+####  因为你不会  
+##### 13486#       发表于 2021-11-15 23:37
+
+绫总已经抽象成符号了，活着就有节目效果，那还看什么直播。不用看也不用播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
