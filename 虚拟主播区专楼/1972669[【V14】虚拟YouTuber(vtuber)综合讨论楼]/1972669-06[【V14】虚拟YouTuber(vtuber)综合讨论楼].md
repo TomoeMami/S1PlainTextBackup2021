@@ -11736,3 +11736,55 @@ nijikr是头部毕业制么<img src="https://static.saraba1st.com/image/smiley/f
 
 上个月的艺人旅团apex大联动没参加也太可惜了吧
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 8360#       发表于 2021-11-15 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我的两周年纪念尸体名录又多了一位。
+
+*****
+
+####  winda  
+##### 8361#       发表于 2021-11-15 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">上次休止会限闹完就不想留了吧，以她的人脉去vspo去cr哪边不都比nkr好
+
+*****
+
+####  IDIDIDID  
+##### 8362#       发表于 2021-11-15 14:24
+
+是不是明年kr这个企划也要废弃了，毕竟bora&gt;其他人加一起
+
+*****
+
+####  ヒトニナル  
+##### 8363#       发表于 2021-11-15 14:27
+
+哦多！vspo冲上了赛道！
+
+*****
+
+####  死体残留  
+##### 8364#       发表于 2021-11-15 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">nijikr这个周年曲还上bora了 笑死了
+首播评论应该不能看了 还有明年么 nijikr这企划
+
+*****
+
+####  黑漆漆的漆漆  
+##### 8365#       发表于 2021-11-15 14:30
+
+虹又半年<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 8366#       发表于 2021-11-15 14:34
+
+哟哟哟，这不是riku桑吗，好久不见还是这么拉啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
