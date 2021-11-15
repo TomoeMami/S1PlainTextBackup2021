@@ -11869,3 +11869,16 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  itsmyrailgun  
+##### 1082#       发表于 2021-11-15 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53543390&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-14 20:16</a>
+这ai有毛病吧，同一个比赛跑A800，用rx7跑3分02轻松甩开ai几秒钟，用86跑3分02被甩开几秒钟，反复跑了几次 ...</blockquote>
+鱼雷第一的ai是普通玩家版本答案了我发现了 。。。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
