@@ -4370,3 +4370,19 @@ bd后续抽选可能追加开个蛋，西武或ssa，当然这歌单再来第21�
 其他团 ...</blockquote>
 咱两就不在一条线上，我不说行了吧？您赢了，您说啥就是啥，您都对。
 
+
+
+*****
+
+####  笋狐  
+##### 396#       发表于 2021-11-15 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小学5中学4？我这一直是小学6初中3啊
+
+*****
+
+####  中野四葉  
+##### 397#       发表于 2021-11-15 10:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海这边好像一直就是5年小学4年初中
+
