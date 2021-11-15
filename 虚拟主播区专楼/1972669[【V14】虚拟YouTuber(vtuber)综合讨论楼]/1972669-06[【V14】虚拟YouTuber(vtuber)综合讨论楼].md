@@ -12173,3 +12173,73 @@ ancr可不能死<img src="https://static.saraba1st.com/image/smiley/face2017/066
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 8407#       发表于 2021-11-15 23:40
+
+加藤纯一39W同接，管人是什么cylx<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 8408#       发表于 2021-11-15 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟各种卡新衣服nijisanji app可以占头功
+
+*****
+
+####  alcoholic1000  
+##### 8409#       发表于 2021-11-15 23:55
+
+加藤纯一毕业有49w吗
+
+Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/15/235332ks5ql9psi9znuhiy.png" referrerpolicy="no-referrer">
+
+<strong>눈보라 일어났는데 방송 안 켜는 이ᄋ.png</strong> (68.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/235039gsqswog9us1c7m61.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>보라 여기 팔로우 해놨네.jpeg</strong> (79.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 23:50 上传
+
+*****
+
+####  winda  
+##### 8410#       发表于 2021-11-16 00:00
+
+1位　1,325,992　手越祐也（記者会見）
+2位　780,324　嵐（発表）
+3位　701,681　Abema公式（亀田興毅企画）
+4位　682,715　任天堂公式（ニンテンドーダイレクト）
+5位　558,000　佐藤健（初配信）
+6位　519,006　カプコン（モンハンアプデ情報）
+7位　491,132　桐生ココ（卒業ライブ）
+8位　475,430　ポケモン（ダイパリメイク発表）
+9位　474,143　モンスト（5周年イベント）
+10位　472,155　吉本興業（アメトーク　雨上がり解散）
+11位　424,171　フジロック（フジロック）
+12位　421,931　The PAGE（小池百合子会見）
+13位　381,981　二宮和也（誕生日）
+14位　373,432　乃木坂46（ライブ）
+15位　372,391　テレビ東京スポーツ（柔道日本代表内定決定戦）
+16位　348,622　Snow Man（デビュー1周年記念）
+17位　332,738　FGO（5周年記念）
+
+加藤純一金ネジキ32万　←今ここ
+
+18位　316,969　コレコレ（みきおだ暴露）
+19位　307,627　スカイピース（5周年卒業ドッキリ）
+20位　295,129　バベル（妖怪ウォッチ2）
+

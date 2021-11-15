@@ -12415,3 +12415,12 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问 ...</blockquote>
 看老外说是因为内存泄漏   我感觉火山那个公路赛道特别明显    不过我也不知道啥是内存泄漏
 
+
+
+*****
+
+####  Totokei  
+##### 1128#       发表于 2021-11-15 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">尝试把qq和q盾的进程关了然后在arcade里连续漂移了六分钟之后断线什么都没剩下
+
