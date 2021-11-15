@@ -3210,3 +3210,18 @@ an枪是没kiss
 
 命运石之门就离谱，本身也不是战斗系的
 
+
+
+*****
+
+####  hypnossz86  
+##### 6229#       发表于 2021-11-15 22:10
+
+ 本帖最后由 hypnossz86 于 2021-11-15 22:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53556915&amp;ptid=1570791" target="_blank">alialex 发表于 2021-11-15 20:47</a>
+哪个马猴烧酒，纺织Q娃？</blockquote>
+马猴烧酒说的是老幼组那个活动吧
+这么一看估计幼女an要上了
+
+石头门只求gear设计不要像doa那么糊弄了...
+

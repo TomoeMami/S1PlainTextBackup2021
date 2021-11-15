@@ -9439,3 +9439,28 @@ CJ之前说每周一例会，我以为CJ走了这会就没了，没想到还要�
 
 艾瑞思开了
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2525#       发表于 2021-11-15 22:00
+
+王木木说是好事
+
+暗示艾白屁都不敢放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2526#       发表于 2021-11-15 22:01
+
+琳：开会内容对你们和对我们都是好事<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 2527#       发表于 2021-11-15 22:13
+
+[鸟不灭](https://live.bilibili.com/11289806)
+

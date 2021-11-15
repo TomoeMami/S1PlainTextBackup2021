@@ -4900,3 +4900,40 @@ FD-6XYeaMAAK-Kq.jpg
 
 跟岬合照那张脸真是太美型了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 441#       发表于 2021-11-15 22:06
+
+巡演到现在的返图合照，打铁和鲤鱼都是缺一张和pay酱的合照就集邮成功了，就看谁先了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 442#       发表于 2021-11-15 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53557638&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-15 22:06:31</a>
+巡演到现在的返图合照，打铁和鲤鱼都是缺一张和pay酱的合照就集邮成功了，就看谁先了 ...</blockquote>好吧，pay酱那边有和打铁的合照，已经集邮完成了，鲤鱼你要加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 443#       发表于 2021-11-15 22:20
+
+nako刚才更新了和pay酱的合照，nako也集邮成功了，C52现在就差鲤p和nagip了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 444#       发表于 2021-11-15 22:22
+
+我现在live差不多是这个流程，开场了大家还是很稳，心疼打铁，小星星今天手好像没伸直了，岬跳舞厉害，青山和佩稳稳稳美美美，鲤鱼什么时候才能solo，青山跳舞真好看，打铁唱歌是神，今天吃什么，星团真帅，星团真漂亮，光路光路，日语口语考试，鲤鱼和打铁今天怎么贴，安可安可，扔外套，合照合照，是鲤X贴贴！我磕到了！谢谢鲤鱼！！
+
