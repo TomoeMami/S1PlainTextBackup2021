@@ -12320,3 +12320,16 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 —— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 我用XGP玩没遇到，但是前天XGP不知道为啥文件损坏打不开游戏了，我又非常讨厌他那个文件管理系统，就在STEAM上重买了一份重头玩，然后就遇到这个问题了，昨天的事情
 
+
+
+*****
+
+####  ギナ  
+##### 1119#       发表于 2021-11-15 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555768&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 19:00</a>
+我用XGP玩没遇到，但是前天XGP不知道为啥文件损坏打不开游戏了，我又非常讨厌他那个文件管理系统，就在ST ...</blockquote>
+哦，我现在升级到Win11后倒是完全遇到过这个bug<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
