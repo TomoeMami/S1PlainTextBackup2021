@@ -689,3 +689,14 @@ xgp 有啥游戏
 
 得，库存已经没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lq95v5  
+##### 71#       发表于 2021-11-15 08:33
+
+我买得早 用得挺爽的  主要是体积小 不占地方 
+
+玩游戏设备运行噪音基本上听不见
+

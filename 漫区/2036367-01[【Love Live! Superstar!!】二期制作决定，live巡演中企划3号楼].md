@@ -4288,3 +4288,30 @@ C8391E5A-DB4F-41E7-855D-39E6E31FC1B0.jpeg
 https://b23.tv/RCSfJ9
 voice+杂志的鲤鱼转发，松雾做了翻译<img src="https://p.sda1.dev/3/d8337bb6e17217e8aa3b4a084cfee902/IMG_CMP_67483781.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 390#       发表于 2021-11-15 08:26
+
+bd后续抽选可能追加开个蛋，西武或ssa，当然这歌单再来第21次上座率可能真的会难看
+
+
+
+*****
+
+####  lj205  
+##### 391#       发表于 2021-11-15 08:39
+
+原来5个人都涂了各种代表色的指甲油，现在才发现，鲤鱼还是小星星配色
+
+*****
+
+####  lj205  
+##### 392#       发表于 2021-11-15 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53547494&amp;ptid=2036367" target="_blank">星降る森 发表于 2021-11-15 08:26</a>
+bd后续抽选可能追加开个蛋，西武或ssa，当然这歌单再来第21次上座率可能真的会难看 ...</blockquote>
+写的是活动，应该就不是追加场
+
