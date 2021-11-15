@@ -11909,3 +11909,20 @@ vspo就不用唱歌跳舞了么<img src="https://static.saraba1st.com/image/smil
 
 哈弟那边还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 8382#       发表于 2021-11-15 16:03
+
+如果真去日本的话感觉转v可能性挺大的
+
+*****
+
+####  poipanchao  
+##### 8383#       发表于 2021-11-15 16:15
+
+哪来的消息要去日本发展
+我只看到2000在说
+
