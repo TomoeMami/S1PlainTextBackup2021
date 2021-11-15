@@ -19816,3 +19816,18 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1383#       发表于 2021-11-15 12:22
+
+ 本帖最后由 再买自检星剁手 于 2021-11-15 12:24 编辑 
+
+联动卓明谷，中文翻译成抹布拉布其实是十分科学的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[帖子来源](https://bbs.saraba1st.com/2b/thread-2037514-0-1.html)
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

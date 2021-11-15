@@ -11961,3 +11961,24 @@ v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺�
 —— 来自 S1Fun ...</blockquote>
 我在上面看到了，不过现在有具体哪张图用哪辆车跑这种最优解了嘛，求个视频教学
 
+
+
+*****
+
+####  舌怪  
+##### 1091#       发表于 2021-11-15 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546160&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-15 00:19</a>
+
+这游戏AI感觉确实有点离谱，我现在普通公路赛基本吊打专家AI，但有个盘山公路无限连环弯的比赛要追上熟练AI ...</blockquote>
+瞭望台环道是吧？这个赛道AI最赖皮
+
+*****
+
+####  有钱多买小人  
+##### 1092#       发表于 2021-11-15 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549815&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-15 11:35</a>
+我在上面看到了，不过现在有具体哪张图用哪辆车跑这种最优解了嘛，求个视频教学 ...</blockquote>
+创意中心event lab看玩家自制图。今日热门经典佳作前几名肯定有刷钱图。
+
