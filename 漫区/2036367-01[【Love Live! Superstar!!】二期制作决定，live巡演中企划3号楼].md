@@ -4582,3 +4582,22 @@ b今天的选妃切片居然这么快有了，果然是青山<img src="https://s
 
 在微博上看到今天的合鲤gif了，谢谢谢谢，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 419#       发表于 2021-11-15 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551391&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-15 13:31</a>
+第四话看完啦，倒是还蛮搞笑的啦，除此之外就没什么想说的了，没啥味道的一集 ...</blockquote>
+下集预告看了吗，当时这集出来后全都在讨论这个，正片都没人聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 420#       发表于 2021-11-15 17:55
+
+<img src="http://wx2.sinaimg.cn/large/4a145404ly1gwfy9zbwrjg20l20bm4qw.gif" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/4a145404ly1gwfya09gt1g209m059kjq.gif" referrerpolicy="no-referrer">
+

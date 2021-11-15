@@ -11110,3 +11110,15 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 拖延魔女啊 其他是假药 拖延魔女是人鱼绝对跑不了 大概有“钥匙”吧</blockquote>
 还能有钥匙这种便利的吗，我是感觉得亲自去
 
+
+
+*****
+
+####  leghorn00  
+##### 2316#       发表于 2021-11-15 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53552518&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-11-15 14:55</a>
+
+又想起一个点不知道会不会解释，按照萝拉这话开头的说法，能通过漩涡保护的通道进入格兰海洋的只有人鱼和海 ...</blockquote>
+三人组不就是海洋妖精么
+
