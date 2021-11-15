@@ -14643,3 +14643,12 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 我第一次和女生看电影就是夸了，不是谈恋爱还是什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 7182#       发表于 2021-11-15 14:49
+
+只能说都是观众的错了，你为什么不去变成那30%的人去哄夸宝开心呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

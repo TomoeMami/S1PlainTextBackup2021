@@ -11788,3 +11788,35 @@ nijikr是头部毕业制么<img src="https://static.saraba1st.com/image/smiley/f
 
 哟哟哟，这不是riku桑吗，好久不见还是这么拉啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 8367#       发表于 2021-11-15 14:44
+
+https://twitter.com/fumoto_kamasu?t=xGl211DWVzlQsh5dWvsc7g&amp;s=09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">kr那么废估计有一大半都是这货的锅
+
+*****
+
+####  qq845629713  
+##### 8368#       发表于 2021-11-15 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer"> 别唱衰啊，你anycolor的四周年大型全员演出服大型live还在路上呢，你一个海外分社的毕业就毕业了，能奈我何？
+
+*****
+
+####  Suny08  
+##### 8369#       发表于 2021-11-15 14:57
+
+还是Vspo好，昨天那ark不比虹ark好看一万倍
+
+*****
+
+####  OldGlory  
+##### 8370#       发表于 2021-11-15 14:58
+
+又是典中典之唯一指定背锅位fmt<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让索尼派个好点的人来呗
+
