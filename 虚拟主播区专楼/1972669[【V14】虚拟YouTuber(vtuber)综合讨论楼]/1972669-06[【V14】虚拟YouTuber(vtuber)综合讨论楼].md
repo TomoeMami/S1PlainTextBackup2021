@@ -12093,3 +12093,32 @@ bora走了，就等roha也走，然后kr爆炸。过不了多久en也爆炸，�
 
 bsyl，slee终于埋了
 
+
+
+*****
+
+####  freakystar  
+##### 8400#       发表于 2021-11-15 21:56
+
+又毕业一个吗，有预感，没想到这么快<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+syl，感觉最近几位的毕业多多少少跟资源分配以及虹接下来的规划有关，前两位毕业后都变相回归直播了，bora换个身份继续播的可能性很大。
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 8401#       发表于 2021-11-15 21:57
+
+然后iwa打算回归老本行，slee这票人也是够惨的
+
+QQ图片20211115215629.jpg
+(168.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215655dzzokkkvpv60b6yh.jpg" referrerpolicy="no-referrer">
+
