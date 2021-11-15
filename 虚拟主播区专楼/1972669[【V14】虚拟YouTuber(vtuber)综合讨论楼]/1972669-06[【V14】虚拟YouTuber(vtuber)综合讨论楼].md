@@ -11652,3 +11652,87 @@ kr 3期以后默认没3D招的人
 roha可能也有
 是时候展现棒子荣耀的舞技了
 
+
+
+*****
+
+####  qq845629713  
+##### 8350#       发表于 2021-11-15 14:02
+
+<img src="https://img.saraba1st.com/forum/202111/15/140214zatzs4bt2tvbxl1g.png" referrerpolicy="no-referrer">
+
+<strong>FENcTbMaIAEoiyk.png</strong> (106.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 14:02 上传
+
+bora：“我不当韩国人了！”
+
+*****
+
+####  死体残留  
+##### 8351#       发表于 2021-11-15 14:07
+
+nijikr是头部毕业制么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+这就是狂招人的代价么
+
+*****
+
+####  空集  
+##### 8352#       发表于 2021-11-15 14:08
+
+哈...好突然..  以及towa又一次朋友减一么
+
+*****
+
+####  qq845629713  
+##### 8353#       发表于 2021-11-15 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 还好吧，因为学业上的理由肯定不是永别，再续前缘不就可以了
+
+*****
+
+####  OldGlory  
+##### 8354#       发表于 2021-11-15 14:14
+
+毕业寿衣，彩虹老传统了
+
+*****
+
+####  IDIDIDID  
+##### 8355#       发表于 2021-11-15 14:14
+
+？？？
+
+*****
+
+####  死体残留  
+##### 8356#       发表于 2021-11-15 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">之前休止期是去打工的，肯定是看运营不爽了，肯定会转生的，就看vspo或者holo新人了
+
+*****
+
+####  IDIDIDID  
+##### 8357#       发表于 2021-11-15 14:15
+
+虹女反向大逃杀也太哈人了😅
+
+*****
+
+####  poipanchao  
+##### 8358#       发表于 2021-11-15 14:15
+
+最后的哈弟赛加新衣服加一堆联动落地
+其实预兆蛮多的
+
+只希望vspo给点力吧…
+
+*****
+
+####  FCCHua  
+##### 8359#       发表于 2021-11-15 14:18
+
+上个月的艺人旅团apex大联动没参加也太可惜了吧
+
