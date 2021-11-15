@@ -12006,3 +12006,19 @@ bora走了，就等roha也走，然后kr爆炸。过不了多久en也爆炸，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是说要治疗抑郁症？让她好好休息吧
 
+
+
+*****
+
+####  hulaoda007  
+##### 8393#       发表于 2021-11-15 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">唉...
+
+*****
+
+####  ヒトニナル  
+##### 8394#       发表于 2021-11-15 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">en怎么会那么快就炸，我看那群女人现在玩的挺开心的
+

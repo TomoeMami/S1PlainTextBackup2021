@@ -12246,3 +12246,38 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  xsummer  
+##### 1113#       发表于 2021-11-15 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53553628&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 16:08</a>
+
+我又测试过几遍了，msaa拉到8X就算3090也肯定稳不住全程4K60帧的，你确定你是开着8X而不是4X吗
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我昨天开到8x，结果爆显存了
+
+*****
+
+####  xsummer  
+##### 1114#       发表于 2021-11-15 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53553274&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-15 15:44</a>
+
+我的情况应该不是这种，FH4乃至更早的作品都是这样，但是以前都是单机可以搞定除了联机赛事之外的 ...</blockquote>
+我用xbox玩也各种掉线，不全是qq的锅，服务器应该也是有问题的
+
+*****
+
+####  ギナ  
+##### 1115#       发表于 2021-11-15 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554689&amp;ptid=2033303" target="_blank">xsummer 发表于 2021-11-15 17:21</a>
+我昨天开到8x，结果爆显存了</blockquote>
+3090不会爆显存，但是GPU占用率经常跳到百分百，关键是8X你不开写轮眼也对比不出跟4X的差异<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -4547,3 +4547,38 @@ b今天的选妃切片居然这么快有了，果然是青山<img src="https://s
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kata魂  
+##### 416#       发表于 2021-11-15 17:27
+
+<img src="https://img.saraba1st.com/forum/202111/15/172708s1fpl3f1v9hvv639.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1636968404870d4847ee5b0b7f85bb6ab14971a2094ae.jpg</strong> (123.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-15 17:27 上传
+
+微博上看到的，有丶刺激
+
+*****
+
+####  player3960  
+##### 417#       发表于 2021-11-15 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554754&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-15 17:27:25</a>
+微博上看到的，有丶刺激</blockquote>我好了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 418#       发表于 2021-11-15 17:36
+
+在微博上看到今天的合鲤gif了，谢谢谢谢，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
