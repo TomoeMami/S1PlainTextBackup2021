@@ -12440,3 +12440,14 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 自动挡把abs和tcr打开勉强能开后驱了，这代s1级的车后驱比四驱强了一档啊
 
+
+
+*****
+
+####  Vladimeow  
+##### 1131#       发表于 2021-11-16 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551954&amp;ptid=2033303" target="_blank">lotusaelise 发表于 2021-11-15 14:13</a>
+现在每周的arcade是不是完全不用指望了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根本没人，而且目标设置的非常离谱，坐等上修吧
+
