@@ -12243,3 +12243,14 @@ Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" refe
 19位　307,627　スカイピース（5周年卒業ドッキリ）
 20位　295,129　バベル（妖怪ウォッチ2）
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8411#       发表于 2021-11-16 01:45
+
+39w,一下赶超二宫和也<img src="https://p.sda1.dev/3/af86130fb61400cc813ca526caabb48c/49b102a937be744d.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

@@ -12451,3 +12451,64 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 现在每周的arcade是不是完全不用指望了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根本没人，而且目标设置的非常离谱，坐等上修吧
 
+
+
+*****
+
+####  920619lqy  
+##### 1132#       发表于 2021-11-16 02:00
+
+ 本帖最后由 920619lqy 于 2021-11-15 12:08 编辑 
+
+刚才搞了一局showcase最后故意刹个车输掉给我算日常完成了
+
+然后这个新的日常又完成不了了
+
+*****
+
+####  mwj  
+##### 1133#       发表于 2021-11-16 02:04
+
+<blockquote>wawaren 发表于 2021-11-15 22:09
+刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙 ...</blockquote>
+感觉老手难度基本初学者玩两天加上适当倒带赢得挺容易的。
+
+*****
+
+####  920619lqy  
+##### 1134#       发表于 2021-11-16 02:24
+
+就离谱，原来那个做完整个月所有活动的成就可以在发售前一周做完，而判定条件实际上只是分数做到最大值就行，什么野鸡成就。
+
+*****
+
+####  crosz  
+##### 1135#       发表于 2021-11-16 03:00
+
+ 本帖最后由 crosz 于 2021-11-16 03:01 编辑 
+
+巨硬送了辆20周年涂装的918
+
+<img src="https://img.saraba1st.com/forum/202111/16/030013ktweotzexwaa88uq.jpg" referrerpolicy="no-referrer">
+
+<strong>758B86FE-020A-43A1-B50B-4705A749E384.jpg</strong> (299.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 03:00 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天神十三煞  
+##### 1136#         楼主| 发表于 2021-11-16 05:25
+
+ 本帖最后由 天神十三煞 于 2021-11-15 13:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559838&amp;ptid=2033303" target="_blank">crosz 发表于 2021-11-15 11:00</a>
+
+巨硬送了辆20周年涂装的918</blockquote>
+收到了918
+
+但是没涂装
+

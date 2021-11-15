@@ -9526,3 +9526,24 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 为啥我感觉这些都没啥，是我太不敏感了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 2534#       发表于 2021-11-16 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559609&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-16 01:41</a>
+
+为啥我感觉这些都没啥，是我太不敏感了吗？</blockquote>
+不要你敏感,要超管敏感<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 2535#       发表于 2021-11-16 02:40
+
+毕竟这里是巨魔论坛，我们觉得很正常的东西超管会超级敏感
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

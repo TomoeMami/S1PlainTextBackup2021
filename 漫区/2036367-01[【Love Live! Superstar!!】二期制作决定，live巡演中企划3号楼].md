@@ -5036,3 +5036,12 @@ liyuu拍照挺会找位置，不管自拍还是他拍都水平稳定地展现了
 
 反观某jk偶像，怎么拍的还不如live截图好看啊w
 
+
+
+*****
+
+####  iuhehc  
+##### 455#       发表于 2021-11-16 05:09
+
+往回看了一些生放送，鲤鱼念台本不会读字时，nako nagi坐旁边的话几乎立马反应过来，告诉怎么读<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
