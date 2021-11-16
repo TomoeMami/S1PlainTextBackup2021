@@ -5122,3 +5122,68 @@ B9100EDB-04FC-45C4-BF2A-579E2D974E98.jpeg
 
 <img src="https://img.saraba1st.com/forum/202111/16/135923iopeyw1zyq4df4zx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 462#       发表于 2021-11-16 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">各地都在搞跨年live线下观影聚会了，社畜只能表示羡慕了…………
+
+*****
+
+####  普之舜舜  
+##### 463#       发表于 2021-11-16 16:34
+
+来楼里宣传一波拉拉跨年演唱会的线下组织qq群：
+重庆：981588821
+深圳场：634834909(暂时满员)
+广州场：415426527
+上海场：602504572
+北京场：836039636
+台州场：836663244
+福州场：675069931
+香港场：684779604
+西安场：703061647
+武汉场：670488147
+哈尔滨场：616206087
+沈阳场：746046878
+杭州场，长沙场敬请期待
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 464#       发表于 2021-11-16 16:34
+
+我dd
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 465#       发表于 2021-11-16 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566682&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-16 16:31</a>
+各地都在搞跨年live线下观影聚会了，社畜只能表示羡慕了…………</blockquote>
+可以看现场转播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  边境的  
+##### 466#       发表于 2021-11-16 16:39
+
+其实在群里和群友腾讯会议一边看一边吹水也蛮不错的，楼主加把劲整个q群出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 467#       发表于 2021-11-16 16:43
+
+显然，鲤鱼姐比花田十辉更慬得观众们想看些什么<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

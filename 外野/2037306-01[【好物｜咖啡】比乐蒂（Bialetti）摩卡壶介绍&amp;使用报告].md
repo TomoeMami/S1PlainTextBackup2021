@@ -805,3 +805,17 @@ syl 居然被看到了 不要暴露我管人痴身份<img src="https://static.sa
 
 —— 来自 OnePlus GM1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  tsounaiq  
+##### 70#       发表于 2021-11-16 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535501&amp;ptid=2037306" target="_blank">逆位之月 发表于 2021-11-13 23:27</a>
+
+这壶如果换成不锈钢会不会更好，很多人都觉得铝制品不够健康
+
+—— 来自 HUAWEI EVR-AL00, Android  ...</blockquote>
+食品专用铝，选用的是特别的合金，不锈钢么，我意大利同事说，千万不能用，做出来的咖啡是不锈钢味的咖啡。
+
