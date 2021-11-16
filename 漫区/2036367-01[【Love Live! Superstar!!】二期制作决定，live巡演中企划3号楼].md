@@ -5307,3 +5307,15 @@ D64CC61D-7FA7-4758-93FA-0CE41ABC30D2.jpeg
 
 不擅长修图的JK多可爱啊，佩佩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  index  
+##### 477#       发表于 2021-11-16 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566820&amp;ptid=2036367" target="_blank">边境的 发表于 2021-11-16 16:39</a>
+
+其实在群里和群友腾讯会议一边看一边吹水也蛮不错的，楼主加把劲整个q群出来啊 ...</blockquote>
+推荐一个621802820 虽然人不是很多但每周都有去现场的大佬
+

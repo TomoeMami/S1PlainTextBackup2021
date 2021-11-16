@@ -4943,3 +4943,32 @@ s1的m楼群已经变成asoul群了。加同好会粉丝群得了。
 
 一个人也叫这么多吗
 
+
+
+*****
+
+####  往世雷书  
+##### 5069#       发表于 2021-11-16 19:50
+
+ 本帖最后由 往世雷书 于 2021-11-16 19:55 编辑 
+
+新人还是有的，至于是什么人因为什么动机入坑，就完全是个谜了
+我很想挨个私信这几十人上百人，你们是因为什么如此想不开点她的关注
+
+<img src="https://img.saraba1st.com/forum/202111/16/194953hut7bzzfy3997ivr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211116_194930_com.UCMobile_edit_882164906744035.jpg</strong> (135.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 19:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2014720  
+##### 5070#       发表于 2021-11-16 19:58
+
+呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

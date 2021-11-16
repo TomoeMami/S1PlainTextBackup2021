@@ -12780,3 +12780,14 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 我是手动辅助只开abs，有些meta车真的就八字不合，比如s1的nsx-gt，千匹马力配个烂胎烂悬挂，2档打滑不知 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NSXGT是这样的，不熟悉的话过弯怎么过怎么变扭，然后这车后段跟个火箭似的能很快窜到360以上，我也是用不习惯，还是喜欢百年牛这种操控车。
 
+
+
+*****
+
+####  Totokei  
+##### 1161#       发表于 2021-11-16 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-16 15:58</a>
+没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了 ...</blockquote>
+有的，出门挂机回来发现途中死机连技能点都全部木大
+
