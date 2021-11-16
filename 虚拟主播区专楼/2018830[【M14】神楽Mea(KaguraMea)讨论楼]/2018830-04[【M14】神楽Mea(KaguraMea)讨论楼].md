@@ -4997,3 +4997,32 @@ s1的m楼群已经变成asoul群了。加同好会粉丝群得了。
 
 m楼群。。。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mr.shelter  
+##### 5074#       发表于 2021-11-16 21:14
+
+怎么变AS群了，不是天天复读老一套么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+卧槽群友点醒梦中人，这个AS群该不会说的是狼群吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabishi_Jiku  
+##### 5075#       发表于 2021-11-16 21:17
+
+ 本帖最后由 Sabishi_Jiku 于 2021-11-16 21:20 编辑 
+
+谁看asoul了，能不能不要凭空侮辱人？反而是尻头自己去推010了吧？
+
+*****
+
+####  往世雷书  
+##### 5076#       发表于 2021-11-16 21:22
+
+谁潮看谁，以前庄司潮看庄司，现在别人潮看别人，谁像你们这些老古板一样一个女人看三年啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

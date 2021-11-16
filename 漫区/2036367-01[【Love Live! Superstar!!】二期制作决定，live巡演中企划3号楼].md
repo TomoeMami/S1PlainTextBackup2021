@@ -5362,3 +5362,47 @@ D64CC61D-7FA7-4758-93FA-0CE41ABC30D2.jpeg
 
 吃东西这张看的好心动
 
+
+
+*****
+
+####  lj205  
+##### 481#       发表于 2021-11-16 21:09
+
+鲤鱼超话粉破万了，我加入的时候貌似才3000出头<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无聊的我  
+##### 482#       发表于 2021-11-16 21:11
+
+叔叔家的10-12集有删减吗？  没会员看不到。。 
+
+*****
+
+####  lj205  
+##### 483#       发表于 2021-11-16 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570132&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-16 20:51</a>
+吃东西这张看的好心动</blockquote>
+真实美女<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 484#       发表于 2021-11-16 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570320&amp;ptid=2036367" target="_blank">无聊的我 发表于 2021-11-16 21:11</a>
+叔叔家的10-12集有删减吗？  没会员看不到。。</blockquote>
+好像没有，就是字幕翻译不太行
+
+*****
+
+####  cxj649  
+##### 485#       发表于 2021-11-16 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570320&amp;ptid=2036367" target="_blank">无聊的我 发表于 2021-11-16 21:11</a>
+
+叔叔家的10-12集有删减吗？  没会员看不到。。</blockquote>
+没有，顺便之前无印卖肉几个场景其实没删，所以是看审核和时期，估计9月风声紧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

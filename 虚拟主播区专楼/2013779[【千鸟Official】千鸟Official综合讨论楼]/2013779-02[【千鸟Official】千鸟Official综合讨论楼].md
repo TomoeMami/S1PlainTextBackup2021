@@ -9766,3 +9766,14 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 王木木这大乱斗，我笑嘻了
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2560#       发表于 2021-11-16 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569272&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-16 19:37</a>
+正规企业势就是好，虽然千鸟前面抽象成这样了，想整个新点子也能付之行动，不像口呆口那种策反两人立刻完蛋 ...</blockquote>
+可是ce也是企业势啊
+
