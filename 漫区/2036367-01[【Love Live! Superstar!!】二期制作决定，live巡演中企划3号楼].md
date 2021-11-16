@@ -5567,3 +5567,17 @@ D64CC61D-7FA7-4758-93FA-0CE41ABC30D2.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">台上单防不够推上也得防是吧
 
+
+
+*****
+
+####  名津流  
+##### 505#       发表于 2021-11-17 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571959&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-16 23:56</a>
+
+现在估计在一脸得意地巡视各sns</blockquote>
+泥潭巨魔钓鱼时会不会也是类似的心态，发一个语不惊人死不休的言论之后然后就得意的躲在一旁观察这群为此吵得鸡飞狗跳的人类，真是其乐无穷
+
+你鱼炸可香豚也是故意操纵比赛的嫌疑，天天刻意造糖，然后再将糖扔到各SNS的粉丝堆里看本来平静的社区瞬间爆炸，肯定也是一脸坏笑地在幕后偷着乐
+

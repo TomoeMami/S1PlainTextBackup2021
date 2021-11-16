@@ -12968,3 +12968,14 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 马自达如果技能树点出来了也可以用马自达
 
+
+
+*****
+
+####  Vladimeow  
+##### 1177#       发表于 2021-11-17 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571512&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-16 23:11</a>
+电动爹是lotus的最强吗？钱不够时心心念念，付款后索然无味</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">这代RIMAC C2性能很不错，看好他能在S2有一席之地
+

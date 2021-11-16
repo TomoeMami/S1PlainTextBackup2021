@@ -9997,3 +9997,15 @@ syl 立刻白魅力时刻
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  憧憬鲨  
+##### 2582#       发表于 2021-11-17 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570776&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-16 21:55</a>
+呃呃(；一_一)开个玩笑而已。
+sly扣鹅是什么很严重的减益吗？我新参真心求问 ...</blockquote>
+加减鹅都没啥用，但是负鹅去外野钓鱼更容易被版主砍头
+

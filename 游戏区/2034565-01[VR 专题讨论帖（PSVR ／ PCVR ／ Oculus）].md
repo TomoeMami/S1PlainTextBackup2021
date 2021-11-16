@@ -2127,3 +2127,14 @@ vr有不少运动量大的游戏，部分游戏甚至以健身为目的能到撸
 另外支持 Cross Buy，$40，比 Rift 版的 $60 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">云了一下pc版的视频（PC版机器跑不起），感觉这游戏适合做VR射击入门，简单难度射击有模糊判定，看那样偏个15度角以内都算射中了。
 
+
+
+*****
+
+####  frankCC  
+##### 135#       发表于 2021-11-17 03:56
+
+[https://uploadvr.com/meta-quest-2-10-million-oculus](https://uploadvr.com/meta-quest-2-10-million-oculus)
+
+高通老总宣布quest2销量超过一千万。
+
