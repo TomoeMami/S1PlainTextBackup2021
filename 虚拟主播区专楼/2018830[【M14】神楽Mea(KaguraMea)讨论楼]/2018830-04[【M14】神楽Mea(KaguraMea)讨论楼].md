@@ -4754,3 +4754,12 @@ neet的末日
 
 你管那叫新fo？
 
+
+
+*****
+
+####  时间在我手中  
+##### 5048#       发表于 2021-11-16 09:36
+
+冷知识，推特某次改版之后点进去fo最上面的未必是最新follow的人，我今早特意看了一样我最上面是犬山<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

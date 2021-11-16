@@ -9556,3 +9556,14 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 一个猜想，文静住院是去打血清了，下一任中国队长就是她，一拳打爆静栗惹
 
+
+
+*****
+
+####  有效击穿  
+##### 2537#       发表于 2021-11-16 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53560658&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-16 09:03</a>
+一个猜想，文静住院是去打血清了，下一任中国队长就是她，从玻璃巨炮变身钢铁核心 ...</blockquote>
+错误的，文静住院是性转去了，要从冲浪抽象童贞蝈楠变成纯粹文学少女了。
+
