@@ -12812,3 +12812,26 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 黑楼无限的918是怎么领。。。</blockquote>
 消息里面给的
 
+
+
+*****
+
+####  何然  
+##### 1164#       发表于 2021-11-16 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569976&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 20:37</a>
+
+消息里面给的</blockquote>
+发现我重新启动一次fh5之后有了
+
+然后再发现是20周年不是黑楼（
+
+*****
+
+####  920619lqy  
+##### 1165#       发表于 2021-11-16 21:00
+
+<blockquote>bad_alloc 发表于 2021-11-16 06:37
+消息里面给的</blockquote>
+开关游戏数次也没拿到车，礼物那一页就是空的，这就很尴尬了，连发个车都发没了。
+
