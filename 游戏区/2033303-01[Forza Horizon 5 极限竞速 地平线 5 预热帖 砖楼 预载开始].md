@@ -12571,3 +12571,42 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 刚刚按贴吧老哥说 ...</blockquote>
 感谢提醒，这判断条件怕不是全都写反了
 
+
+
+*****
+
+####  舌怪  
+##### 1142#       发表于 2021-11-16 10:10
+
+跑拉力赛，过一个弯时被ai挤了出去，然后这ai一点回到赛道的意思都没有，而是笔直地推着我往赛道外面跑了十万八千里，完全是蓄意同归于尽的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太可怕了
+
+*****
+
+####  lancasterliang  
+##### 1143#       发表于 2021-11-16 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561501&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-16 10:10</a>
+
+跑拉力赛，过一个弯时被ai挤了出去，然后这ai一点回到赛道的意思都没有，而是笔直地推着我往赛道外面跑了十 ...</blockquote>
+我感觉这代bot比过去开车脏了不少，不知道是不是错觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 1144#       发表于 2021-11-16 10:16
+
+<blockquote>舌怪 发表于 2021-11-15 20:10
+跑拉力赛，过一个弯时被ai挤了出去，然后这ai一点回到赛道的意思都没有，而是笔直地推着我往赛道外面跑了十 ...</blockquote>
+不错了，这次至少不像前作有时候会在第一个弯道时搞高速左右横跳直接把你挤出去，大部分时候除了神仙加速度和魔法抓地力以外只会在低速弯道时超车
+
+*****
+
+####  4ckc  
+##### 1145#       发表于 2021-11-16 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561583&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-16 10:16</a>
+我感觉这代bot比过去开车脏了不少，不知道是不是错觉</blockquote>
+过去也挺脏，不能和AI缠斗基本至少是3开始都通用的（因为我是3开始玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
