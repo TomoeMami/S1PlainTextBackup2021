@@ -19831,3 +19831,16 @@ HSST里面装了S11还是核弹，这次是被铠衣爹拦住了
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  freyja_wion  
+##### 1384#       发表于 2021-11-15 17:33
+
+TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
+<img src="https://p.sda1.dev/3/e6e9171be1545068704c17bcfcd3f0ca/IMG_CMP_26553164.jpeg" referrerpolicy="no-referrer">
+元の世界に戻った白銀武は鑑純夏と再会し、「元の世界」へ帰るために「この世界」を救う未来を勝ち取る決意を固める。2001年12月4日。民間人の居住が許されない危険地域への帰還を強行した元住民の救出作戦を帝国軍が実施したとの報道を見た武は、また時間を短縮できたと喜ぶ。そんな武に冥夜は、この国は力無き者に負担を強いていると怒りを露にするのだった。
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

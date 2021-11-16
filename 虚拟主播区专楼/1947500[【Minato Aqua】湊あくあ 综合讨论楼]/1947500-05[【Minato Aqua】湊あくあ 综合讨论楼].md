@@ -14672,3 +14672,39 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 不用变成30%，看不爽为何不选择离开？赖着不走唧唧歪歪的不是太难看了点？干脆点<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Scardy  
+##### 7185#       发表于 2021-11-15 17:55
+
+呃呃，70%都离开的话，夸怎么样我不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  雪风utopia  
+##### 7186#       发表于 2021-11-15 18:44
+
+还能怎么样，接受自己是底边然后大摆特摆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 7187#       发表于 2021-11-15 18:45
+
+如果cncrew算crew的话，早就有70%的人不看她了
+
+
+
+*****
+
+####  adw667  
+##### 7188#       发表于 2021-11-16 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该二转了
+

@@ -4547,3 +4547,542 @@ b今天的选妃切片居然这么快有了，果然是青山<img src="https://s
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kata魂  
+##### 416#       发表于 2021-11-15 17:27
+
+<img src="https://img.saraba1st.com/forum/202111/15/172708s1fpl3f1v9hvv639.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1636968404870d4847ee5b0b7f85bb6ab14971a2094ae.jpg</strong> (123.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-15 17:27 上传
+
+微博上看到的，有丶刺激
+
+*****
+
+####  player3960  
+##### 417#       发表于 2021-11-15 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554754&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-15 17:27:25</a>
+微博上看到的，有丶刺激</blockquote>我好了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 418#       发表于 2021-11-15 17:36
+
+在微博上看到今天的合鲤gif了，谢谢谢谢，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  chenflyyy  
+##### 419#       发表于 2021-11-15 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551391&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-15 13:31</a>
+第四话看完啦，倒是还蛮搞笑的啦，除此之外就没什么想说的了，没啥味道的一集 ...</blockquote>
+下集预告看了吗，当时这集出来后全都在讨论这个，正片都没人聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 420#       发表于 2021-11-15 17:55
+
+<img src="http://wx2.sinaimg.cn/large/4a145404ly1gwfy9zbwrjg20l20bm4qw.gif" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/4a145404ly1gwfya09gt1g209m059kjq.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  a92063256  
+##### 421#       发表于 2021-11-15 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555102&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-15 17:55</a></blockquote>
+我好了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 422#       发表于 2021-11-15 18:08
+
+<img src="https://img.saraba1st.com/forum/202111/15/180805z6d5vritvvqiutqr.jpg" referrerpolicy="no-referrer">
+
+<strong>af95bdd6fb667f9.jpg</strong> (93.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 18:08 上传
+
+*****
+
+####  稀勢のささ  
+##### 423#       发表于 2021-11-15 18:08
+
+好啊 好啊
+
+*****
+
+####  TTAA  
+##### 424#       发表于 2021-11-15 18:09
+
+可香是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 425#       发表于 2021-11-15 18:13
+
+可香！你做得好！你做得好啊！
+
+*****
+
+####  lj205  
+##### 426#       发表于 2021-11-15 18:18
+
+今天看了好多鱼水母熊狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">开心
+回来鲤鱼各种给糖
+谢谢鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 427#       发表于 2021-11-15 18:21
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=add39b08e4389b5038ffe05ab535e5f1/8e7a4843fbf2b21108110458978065380cd78ea8.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=94eb8d277c3fb80e0cd161df06d12ffb/284221f33a87e950a028727a4d385343fbf2b4a8.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=60af13f3912a283443a636036bb7c92e/96b84a3d269759ee3d9b6325f7fb43166f22dfd3.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=4e168f6995a20cf44690fed746084b0c/47bbcc2a6059252dc3be15ea719b033b5ab5b971.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cat1230  
+##### 428#       发表于 2021-11-15 18:27
+
+ニードロ老师今天不得手都画麻了，等出图。名场面太多了
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  优妮可  
+##### 429#       发表于 2021-11-15 19:20
+
+<img src="https://img.saraba1st.com/forum/202111/15/192038rzvcjd8ddn7csvjc.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_191849.jpg</strong> (98.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 19:20 上传
+
+
+
+*****
+
+####  player3960  
+##### 430#       发表于 2021-11-15 19:50
+
+泥陀螺老师这速度……<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  megapikachu  
+##### 431#       发表于 2021-11-15 19:50
+
+周边
+
+Screenshot_20211115_184836_com.huawei.browser_edit_133502364058274.jpg
+(321.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/194955ok4phmmuwtwqjmhm.jpg" referrerpolicy="no-referrer">
+
+FD-6bcYaAAEaVAx.jpg
+(283.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 19:50 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/195014uyyk9yaccahlkd4t.jpg" referrerpolicy="no-referrer">
+
+FD-6XYeaMAAK-Kq.jpg
+(254.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 19:50 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/195014c80068xgmmngegi0.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  黑雪姫  
+##### 432#       发表于 2021-11-15 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53556327&amp;ptid=2036367" target="_blank">megapikachu 发表于 2021-11-15 19:50</a>
+
+周边</blockquote>
+烫可可
+
+
+
+*****
+
+####  cybernetics31  
+##### 433#       发表于 2021-11-15 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">真好啊，还是鲤鱼会啊
+
+*****
+
+####  优妮可  
+##### 434#       发表于 2021-11-15 21:42
+
+<img src="https://img.saraba1st.com/forum/202111/15/214250f82n740r8bz25g4z.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_212718.jpg</strong> (219.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/214250a7yenmj90jv7tte4.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_212716.jpg</strong> (150.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/214250dt2tvtsrctv7c86g.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_213730.jpg</strong> (341.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/214251dimfnunn38e36dr8.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_213733.jpg</strong> (337.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:42 上传
+
+
+
+*****
+
+####  lj205  
+##### 435#       发表于 2021-11-15 21:53
+
+谢谢鲤鱼，<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">知道怎么安慰我们
+
+*****
+
+####  a92063256  
+##### 436#       发表于 2021-11-15 21:54
+
+后台继续贴<img src="https://p.sda1.dev/3/ed963cf4f7656a36bbc9d159bc6c859d/IMG_CMP_54459979.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 437#       发表于 2021-11-15 21:57
+
+<img src="https://img.saraba1st.com/forum/202111/15/215723ay8yqooxhwske8za.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_215555.jpg</strong> (453.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215723dwxaxc2w5ujifssw.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_215557.jpg</strong> (164 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215724hbz7jxzkvrkrj8kk.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_215559.jpg</strong> (220.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215724txe4zzsxya4yphhh.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_215605.jpg</strong> (328.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215725ggt22wgymnz228yw.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_215607.jpg</strong> (247.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215725g7f4232d3aoese7l.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_215617.jpg</strong> (309.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215726b5arj3gn3yfr4n12.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_215618.jpg</strong> (395.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+*****
+
+####  cat1230  
+##### 438#       发表于 2021-11-15 21:58
+
+ニードロ老师光速出图
+
+-9lddQsgvd-az9tK2gT3cSpx-sg.jpeg
+(90.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202111/15/215737dazraz8jf0d06ujp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 439#       发表于 2021-11-15 22:00
+
+鲤鱼live上就没差nako没贴到，合照贴到了，圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 440#       发表于 2021-11-15 22:03
+
+跟岬合照那张脸真是太美型了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  player3960  
+##### 441#       发表于 2021-11-15 22:06
+
+巡演到现在的返图合照，打铁和鲤鱼都是缺一张和pay酱的合照就集邮成功了，就看谁先了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 442#       发表于 2021-11-15 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53557638&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-15 22:06:31</a>
+巡演到现在的返图合照，打铁和鲤鱼都是缺一张和pay酱的合照就集邮成功了，就看谁先了 ...</blockquote>好吧，pay酱那边有和打铁的合照，已经集邮完成了，鲤鱼你要加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 443#       发表于 2021-11-15 22:20
+
+nako刚才更新了和pay酱的合照，nako也集邮成功了，C52现在就差鲤p和nagip了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 444#       发表于 2021-11-15 22:22
+
+我现在live差不多是这个流程，开场了大家还是很稳，心疼打铁，小星星今天手好像没伸直了，岬跳舞厉害，青山和佩稳稳稳美美美，鲤鱼什么时候才能solo，青山跳舞真好看，打铁唱歌是神，今天吃什么，星团真帅，星团真漂亮，光路光路，日语口语考试，鲤鱼和打铁今天怎么贴，安可安可，扔外套，合照合照，是鲤X贴贴！我磕到了！谢谢鲤鱼！！
+
+
+
+*****
+
+####  名津流  
+##### 445#       发表于 2021-11-15 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555238&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-15 18:08</a></blockquote>
+看群里有人做了个翻转的版本，同步率就更高了
+
+<img src="https://img.saraba1st.com/forum/202111/15/223035wunu1uu1h811n16h.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211115222802.jpg</strong> (377.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 22:30 上传
+
+*****
+
+####  稀勢のささ  
+##### 446#       发表于 2021-11-15 22:35
+
+看了下切片今天的小剧场有点多啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 贴就算了还带单防的
+
+*****
+
+####  iuhehc  
+##### 447#       发表于 2021-11-15 22:36
+
+佩佩的自拍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 448#       发表于 2021-11-15 22:40
+
+<img src="https://img.saraba1st.com/forum/202111/15/224015tmle5mhlmej48r95.jpg" referrerpolicy="no-referrer">
+
+<strong>20211115_223811.jpg</strong> (157.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 22:40 上传
+
+*****
+
+####  chenflyyy  
+##### 449#       发表于 2021-11-15 22:42
+
+ 本帖最后由 chenflyyy 于 2021-11-15 22:45 编辑 
+
+最近感觉nako和pay也挺好磕的，有股莫名的母女感，还有双人曲，应该说团里怎么c5 2都好磕<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kata魂  
+##### 450#       发表于 2021-11-15 22:52
+
+今晚是货真价实的c52，一个没缺……
+
+
+
+*****
+
+####  稀勢のささ  
+##### 451#       发表于 2021-11-15 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这就是pay的艺术吗
+
+
+
+*****
+
+####  Norkey1  
+##### 452#       发表于 2021-11-15 23:06
+
+中国直女式超直球营业帮大忙了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TCone  
+##### 453#       发表于 2021-11-15 23:19
+
+让鲤鱼d完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 454#       发表于 2021-11-16 00:29
+
+liyuu拍照挺会找位置，不管自拍还是他拍都水平稳定地展现了颜，就想起某次生放对镜头做饭撒的时候大家都比心wink，liyuu突然摆头来了一套漫展coser表情切换，当时看着就觉得流石大物coser...
+
+反观某jk偶像，怎么拍的还不如live截图好看啊w
+
+
+
+*****
+
+####  iuhehc  
+##### 455#       发表于 2021-11-16 05:09
+
+往回看了一些生放送，鲤鱼念台本不会读字时，nako nagi坐旁边的话几乎立马反应过来，告诉怎么读<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 456#       发表于 2021-11-16 07:49
+
+很正常吧？不会念不是一说就会吗？平时肯定也问不少不懂的词，不是太难的会提一下应该也能懂，估计都习惯了。
+
+
+
+*****
+
+####  普之舜舜  
+##### 457#       发表于 2021-11-16 08:39
+
+有点忙，发的有点晚了。
+我用阿里云盘分享了「[MP4]ラブライブ!スーパースター!! Lie... 北海道公演 DAY2.mp4」，你可以不限速下载🚀
+复制这段内容打开「阿里云盘」App 即可获取
+链接：https://www.aliyundrive.com/s/iZ7aAv8xb1s
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  仟音一心  
+##### 458#       发表于 2021-11-16 10:02
+
+twi:baiyuBYY
+
+7D2F01C8-B20D-421A-A79D-3F02DE09A51D.jpeg
+(114.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/095511z7u0p71qqdo704qx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

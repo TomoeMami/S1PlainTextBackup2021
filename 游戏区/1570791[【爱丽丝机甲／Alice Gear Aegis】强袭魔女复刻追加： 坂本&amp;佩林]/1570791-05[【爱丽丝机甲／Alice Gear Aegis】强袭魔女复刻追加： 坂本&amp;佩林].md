@@ -3174,3 +3174,135 @@ an枪是没kiss
 
 好不容易抽到电猫猫，超级猫猫拳的爽快度跟我看大佬打的完全不一样啊，时机好难用<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（虽然是预想到了
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6225#       发表于 2021-11-15 19:17
+
+明天再没有预告本月中旬恐怕就没新活动新AN了。18号的重大发表要是新的联动那么本月也没新女演员了。
+
+
+
+*****
+
+####  江戸前ルナ  
+##### 6226#       发表于 2021-11-15 19:21
+
+不负责任转发预告，
+
+魔法少女活动复刻（附带对应新AN），月底新联动
+
+
+
+*****
+
+####  alialex  
+##### 6227#         楼主| 发表于 2021-11-15 20:47
+
+哪个马猴烧酒，纺织Q娃？
+
+*****
+
+####  LEOKO~  
+##### 6228#       发表于 2021-11-15 20:52
+
+命运石之门就离谱，本身也不是战斗系的
+
+
+
+*****
+
+####  hypnossz86  
+##### 6229#       发表于 2021-11-15 22:10
+
+ 本帖最后由 hypnossz86 于 2021-11-15 22:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53556915&amp;ptid=1570791" target="_blank">alialex 发表于 2021-11-15 20:47</a>
+哪个马猴烧酒，纺织Q娃？</blockquote>
+马猴烧酒说的是老幼组那个活动吧
+这么一看估计幼女an要上了
+
+石头门只求gear设计不要像doa那么糊弄了...
+
+
+
+*****
+
+####  mamiya  
+##### 6230#       发表于 2021-11-16 00:51
+
+啥啊，联动真是石头门？？
+
+
+
+*****
+
+####  unsh  
+##### 6231#       发表于 2021-11-16 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这又是跟谁勾搭上了才会联动石头门
+
+*****
+
+####  江戸前ルナ  
+##### 6232#       发表于 2021-11-16 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561639&amp;ptid=1570791" target="_blank">unsh 发表于 2021-11-16 10:20</a>
+
+这又是跟谁勾搭上了才会联动石头门</blockquote>
+讲个实话，以前的5pb被猫舍全资买了(名字改成啥忘了一搜就搜到)，所以这次其实是社内联动<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+另外摇曳露营好像也属这个子公司的，这次是自己人应该不会被下架了吧，复刻可待<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  心灵的乳头  
+##### 6233#       发表于 2021-11-16 10:44
+
+国服这一波接一波的，快年底了，辛苦养服大佬们了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 6234#       发表于 2021-11-16 10:46
+
+ 本帖最后由 hypnossz86 于 2021-11-16 10:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561805&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-16 10:35</a>
+讲个实话，以前的5pb被猫舍全资买了(名字改成啥忘了一搜就搜到)，所以这次其实是社内联动对于阿金 ...</blockquote>
+colopl收的是mages
+摇曳露营我记得是娇喘的吧？
+
+哦，查了查是芳文社
+mages是接外包拿到授权做了个游戏改而已
+这个授权范围包不包括aga联动可就不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unsh  
+##### 6235#       发表于 2021-11-16 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561805&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-16 10:35</a>
+讲个实话，以前的5pb被猫舍全资买了(名字改成啥忘了一搜就搜到)，所以这次其实是社内联动对于阿金 ...</blockquote>
+原来是这样，一切都合情合理了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  江戸前ルナ  
+##### 6236#       发表于 2021-11-16 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561963&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-11-16 10:46</a>
+
+colopl收的是mages
+
+摇曳露营我记得是娇喘的吧？</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1921628-1-1.html](https://bbs.saraba1st.com/2b/thread-1921628-1-1.html)
+
+5pb就是mages吧。记得泥潭还转过新闻。
+
+露营版权肯定要重新打招呼吧，不过这次不是有门路了嘛。按我说就别碰瓷了，干脆谈一下直接来个IP品牌联动活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

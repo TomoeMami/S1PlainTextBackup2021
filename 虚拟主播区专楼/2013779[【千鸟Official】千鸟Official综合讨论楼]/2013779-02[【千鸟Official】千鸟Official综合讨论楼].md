@@ -9377,3 +9377,265 @@ bu萌萌鸟和贴吧发散鸟刚打完发烂战役，而鸟综就像个停尸间
 应该是后面还干了一部分运营的工作，有提到过
 后面节奏起来之后也说：我不再称运营了，不想接这个黑锅
 
+
+
+*****
+
+####  小憨1  
+##### 2518#       发表于 2021-11-15 19:30
+
+今晚的会议大概率会决定千鸟的未来<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 2519#       发表于 2021-11-15 19:37
+
+又开会，我要发散了
+
+*****
+
+####  T型钉宫病毒  
+##### 2520#       发表于 2021-11-15 19:42
+
+周一不是例行会议吗
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2521#       发表于 2021-11-15 19:56
+
+原来千鸟还会例行开会的么。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  小憨1  
+##### 2522#       发表于 2021-11-15 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53556402&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-15 19:56</a>
+原来千鸟还会例行开会的么。。</blockquote>
+CJ之前说每周一例会，我以为CJ走了这会就没了，没想到还要开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+另外这次好像很紧急的样子，艾队和琳都推迟直播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2523#       发表于 2021-11-15 21:09
+
+怎么开个会开了这么久。。<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  GrayishWh0  
+##### 2524#       发表于 2021-11-15 21:26
+
+艾瑞思开了
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2525#       发表于 2021-11-15 22:00
+
+王木木说是好事
+
+暗示艾白屁都不敢放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2526#       发表于 2021-11-15 22:01
+
+琳：开会内容对你们和对我们都是好事<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 2527#       发表于 2021-11-15 22:13
+
+[鸟不灭](https://live.bilibili.com/11289806)
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2528#       发表于 2021-11-15 23:18
+
+河 南 王 木 木
+
+
+
+*****
+
+####  H2Ofrozen  
+##### 2529#       发表于 2021-11-15 23:38
+
+绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+随便解释一下 当时李赣直播间在刷千鸟和螺旋丸哪个厉害，紧接着有人开始刷鸟不灭，所以我当时随手丢了个直播间链接
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  丢了五块钱  
+##### 2530#       发表于 2021-11-15 23:53
+
+co宝大学生还要写毕业论文的
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2531#       发表于 2021-11-16 00:54
+
+ 本帖最后由 莫洛骑士 于 2021-11-15 12:57 编辑 
+
+千鸟的未来是光明的，是璀璨的，是战无不胜的！
+
+syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  小憨1  
+##### 2532#       发表于 2021-11-16 01:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">需要和表姐一样紧急补文化课了，不过琳姐没我妈能把握这个度
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2533#       发表于 2021-11-16 01:41
+
+为啥我感觉这些都没啥，是我太不敏感了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  tankai  
+##### 2534#       发表于 2021-11-16 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559609&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-16 01:41</a>
+
+为啥我感觉这些都没啥，是我太不敏感了吗？</blockquote>
+不要你敏感,要超管敏感<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 2535#       发表于 2021-11-16 02:40
+
+毕竟这里是巨魔论坛，我们觉得很正常的东西超管会超级敏感
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2536#       发表于 2021-11-16 09:03
+
+一个猜想，文静住院是去打血清了，下一任中国队长就是她，一拳打爆静栗惹
+
+
+
+*****
+
+####  有效击穿  
+##### 2537#       发表于 2021-11-16 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53560658&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-16 09:03</a>
+一个猜想，文静住院是去打血清了，下一任中国队长就是她，从玻璃巨炮变身钢铁核心 ...</blockquote>
+错误的，文静住院是性转去了，要从冲浪抽象童贞蝈楠变成纯粹文学少女了。
+
+
+
+*****
+
+####  huyuanhao120  
+##### 2538#       发表于 2021-11-16 10:45
+
+鸟楼发言比鸟直播好看
+
+*****
+
+####  莫洛骑士  
+##### 2539#       发表于 2021-11-16 10:45
+
+众所周知，皮套人讲究的是虚拟的皮+中之人的魂，灵魂出窍意味着中之人离开，表情包从猫猫变成狗也暗示着曾经的文静正在离去
+<img src="https://p.sda1.dev/3/a9d72c89301fc90b48f2d0477598007b/IMG_CMP_172969775.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2540#       发表于 2021-11-16 10:55
+
+鸟P的发散真是
+
+*****
+
+####  灰色的狐狸  
+##### 2541#       发表于 2021-11-16 11:01
+
+这理具服啊，看得我一愣一愣的
+
+*****
+
+####  魔法少女大头  
+##### 2542#       发表于 2021-11-16 11:05
+
+<img src="https://p.sda1.dev/3/1d52e7a90c130373bfae8972ef0660ae/IMG_CMP_73044852.jpeg" referrerpolicy="no-referrer">
+只有总督才能品茶是吧
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2543#       发表于 2021-11-16 11:10
+
+舰长能发两眼一黑就已经满足了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 2544#       发表于 2021-11-16 11:12
+
+卧槽单马尾
+
+新衣服吗
+
+还嘘
+
+老阿姨
+
+
+
+*****
+
+####  希克苏鲁伯  
+##### 2545#       发表于 2021-11-16 11:38
+
+单马尾运动服🥵🥵🥵🥵
+

@@ -17659,3 +17659,118 @@ syl 4ch也太情弱 21年了还在紫宝大学生
 
 出离愤怒了，决定同时循环播放974K的海想列車和986K的Howling以示抗议
 
+
+
+*****
+
+####  一仙  
+##### 13477#       发表于 2021-11-15 17:30
+
+今年真的还有直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  西行寺八云紫  
+##### 13478#       发表于 2021-11-15 18:23
+
+播不播不知道 不过我刚刚刷阿B视频刷出来中之人KTV和男性合唱视频 离谱 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Fami水  
+##### 13479#       发表于 2021-11-15 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能要让我们大家都猜错了
+
+
+
+*****
+
+####  stedckk  
+##### 13480#       发表于 2021-11-15 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">感觉最近推上放的这两个素材应该有一段时间了，最近的战绩找不到那个狐狸的记录，至于哪找的就不清楚了，估计还是那几个号，其实还有些素材还没删都没放上去。
+
+*****
+
+####  nian1538  
+##### 13481#       发表于 2021-11-15 19:08
+
+润姨男友的事放绫总这里估计也啥影响都没有
+所以说靠游戏力耐久力杂谈力歌舞力养gachi力称帝称王都是镜花水月转瞬即逝，你杏人人都应该研究一下怎么把自己的粉丝变成百鬼组
+
+*****
+
+####  一仙  
+##### 13482#       发表于 2021-11-15 19:10
+
+<img src="https://img.saraba1st.com/forum/202111/15/190916jp0emwyiaijvc0te.jpg" referrerpolicy="no-referrer">
+
+<strong>FEOi3rjaIAAs3nM.jpg</strong> (561.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-15 19:09 上传
+
+[https://twitter.com/TorinoAqua/status/1460189871998267393?s=20](https://twitter.com/TorinoAqua/status/1460189871998267393?s=20)
+
+torino老师，神！
+
+syl，说起来绫好像蛮长一段时间没转fanart了，但百鬼众一直都还有不错的产出。
+
+
+
+*****
+
+####  stedckk  
+##### 13483#       发表于 2021-11-15 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">百鬼众到底是什么生物，被绫总这么玩还不跑路。
+
+
+
+*****
+
+####  因为你不会  
+##### 13484#       发表于 2021-11-15 21:04
+
+都是哥谭来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  a37356205  
+##### 13485#       发表于 2021-11-15 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久没来，突然感觉好像好久没看过直播了，才发现原来不是错觉啊
+
+*****
+
+####  因为你不会  
+##### 13486#       发表于 2021-11-15 23:37
+
+绫总已经抽象成符号了，活着就有节目效果，那还看什么直播。不用看也不用播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nian1538  
+##### 13487#       发表于 2021-11-16 08:48
+
+There are four versions of Menelaus' and Helen's reunion on the night of the sack of Troy:
+
+Menelaus sought out Helen in the conquered city. Raging at her infidelity, he raised his sword to kill her, but as he saw her weeping at his feet, begging for her life, Menelaus' wrath instantly left him. He took pity on her and decided to take her back as his wife.
+
+Menelaus resolved to kill Helen, but her irresistible beauty prompted him to drop his sword and take her back to his ship "to punish her at Sparta", as he claimed.
+
+According to the Bibliotheca, Menelaus raised his sword in front of the temple in the central square of Troy to kill her, but his wrath went away when he saw her rending her clothes in anguish, revealing her naked breasts. 
+
+A similar version by Stesichorus in "Ilion's Conquest" narrated that Menelaus surrendered her to his soldiers to stone her to death, but when she ripped the front of her robes, the Achaean warriors were stunned by her beauty and the stones fell harmlessly from their hands as they stared at her.
+
+我曾经以为古希腊文学里这种选择原谅她或者听歌听到海难都是编出来的段子
+直到我看到了绫总和百鬼组
+

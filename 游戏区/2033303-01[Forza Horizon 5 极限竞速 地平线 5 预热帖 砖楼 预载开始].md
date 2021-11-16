@@ -12246,3 +12246,395 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  xsummer  
+##### 1113#       发表于 2021-11-15 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53553628&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 16:08</a>
+
+我又测试过几遍了，msaa拉到8X就算3090也肯定稳不住全程4K60帧的，你确定你是开着8X而不是4X吗
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我昨天开到8x，结果爆显存了
+
+*****
+
+####  xsummer  
+##### 1114#       发表于 2021-11-15 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53553274&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-15 15:44</a>
+
+我的情况应该不是这种，FH4乃至更早的作品都是这样，但是以前都是单机可以搞定除了联机赛事之外的 ...</blockquote>
+我用xbox玩也各种掉线，不全是qq的锅，服务器应该也是有问题的
+
+*****
+
+####  ギナ  
+##### 1115#       发表于 2021-11-15 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554689&amp;ptid=2033303" target="_blank">xsummer 发表于 2021-11-15 17:21</a>
+我昨天开到8x，结果爆显存了</blockquote>
+3090不会爆显存，但是GPU占用率经常跳到百分百，关键是8X你不开写轮眼也对比不出跟4X的差异<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  hzh3355  
+##### 1116#       发表于 2021-11-15 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554878&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 17:36</a>
+
+3090不会爆显存，但是GPU占用率经常跳到百分百，关键是8X你不开写轮眼也对比不出跟4X的差异
+
+—— ...</blockquote>
+我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问题，内存32G不太可能是内存吧，导致我我每玩2小时左右就得重开一次游戏<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ギナ  
+##### 1117#       发表于 2021-11-15 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555498&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 18:30</a>
+我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问 ...</blockquote>
+啊，这个bug还没修好么<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hzh3355  
+##### 1118#       发表于 2021-11-15 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555741&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 18:57</a>
+
+啊，这个bug还没修好么
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我用XGP玩没遇到，但是前天XGP不知道为啥文件损坏打不开游戏了，我又非常讨厌他那个文件管理系统，就在STEAM上重买了一份重头玩，然后就遇到这个问题了，昨天的事情
+
+
+
+*****
+
+####  ギナ  
+##### 1119#       发表于 2021-11-15 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555768&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 19:00</a>
+我用XGP玩没遇到，但是前天XGP不知道为啥文件损坏打不开游戏了，我又非常讨厌他那个文件管理系统，就在ST ...</blockquote>
+哦，我现在升级到Win11后倒是完全遇到过这个bug<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  920619lqy  
+##### 1120#       发表于 2021-11-15 19:47
+
+<blockquote>hzh3355 发表于 2021-11-15 05:00
+我用XGP玩没遇到，但是前天XGP不知道为啥文件损坏打不开游戏了，我又非常讨厌他那个文件管理系统，就在ST ...</blockquote>
+是说玩着玩着突然平均帧率大幅降低但是可能玩着玩着又好了的情况？我上周正式发售前没遇到，这周开始遇到了，不知道什么情况。
+
+*****
+
+####  吃鸡南小鸟  
+##### 1121#       发表于 2021-11-15 19:51
+
+加速器挂哪个服?想玩个活动赛战局都没几个人，以前fh4里战局几十个人
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  nemunoki  
+##### 1122#       发表于 2021-11-15 20:09
+
+现在一个战局最多就12人，看不到人的时候原地换个车出来容易刷出人，能不能过街机纯看脸
+
+
+
+*****
+
+####  诶哟卧草  
+##### 1123#       发表于 2021-11-15 21:42
+
+<[img src="https://i.loli.net/2021/11/15/ZjIYrfMTshGHomg.png" referrerpolicy="no-referrer">
+
+刚才完成了这个，但是什么都没拿到，是不是一共有三场，三场都打完拿第一了才有奖励？
+
+
+
+*****
+
+####  wawaren  
+##### 1124#       发表于 2021-11-15 22:09
+
+刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙
+
+
+
+*****
+
+####  诶哟卧草  
+##### 1125#       发表于 2021-11-15 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53557666&amp;ptid=2033303" target="_blank">wawaren 发表于 2021-11-15 22:09</a>
+
+刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我的心得是前几个弯像导弹一样一头撞向第一名，抢下第一名后就ez game了
+
+
+
+*****
+
+####  wawaren  
+##### 1126#       发表于 2021-11-15 22:41
+
+<blockquote>诶哟卧草 发表于 2021-11-15 22:32
+我的心得是前几个弯像导弹一样一头撞向第一名，抢下第一名后就ez game了 ...</blockquote>
+是的，前车已经减速的情况下我靠前车减速，我就赚了
+
+*****
+
+####  evaqyqx  
+##### 1127#       发表于 2021-11-15 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555498&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 18:30</a>
+
+我3090开2X玩久了也会开始出现帧率大幅波动（前2秒正常，后2秒进入慢动作，非常明显），不知道是哪里的问 ...</blockquote>
+看老外说是因为内存泄漏   我感觉火山那个公路赛道特别明显    不过我也不知道啥是内存泄漏
+
+
+
+*****
+
+####  Totokei  
+##### 1128#       发表于 2021-11-15 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">尝试把qq和q盾的进程关了然后在arcade里连续漂移了六分钟之后断线什么都没剩下
+
+
+
+*****
+
+####  miyamotoruri  
+##### 1129#       发表于 2021-11-16 00:22
+
+总觉得这代比4代容易推头，不知道是不是我好久没玩手残错觉……
+
+*****
+
+####  nailuo1993  
+##### 1130#       发表于 2021-11-16 00:40
+
+自动挡把abs和tcr打开勉强能开后驱了，这代s1级的车后驱比四驱强了一档啊
+
+
+
+*****
+
+####  Vladimeow  
+##### 1131#       发表于 2021-11-16 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551954&amp;ptid=2033303" target="_blank">lotusaelise 发表于 2021-11-15 14:13</a>
+现在每周的arcade是不是完全不用指望了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根本没人，而且目标设置的非常离谱，坐等上修吧
+
+
+
+*****
+
+####  920619lqy  
+##### 1132#       发表于 2021-11-16 02:00
+
+ 本帖最后由 920619lqy 于 2021-11-15 12:08 编辑 
+
+刚才搞了一局showcase最后故意刹个车输掉给我算日常完成了
+
+然后这个新的日常又完成不了了
+
+*****
+
+####  mwj  
+##### 1133#       发表于 2021-11-16 02:04
+
+<blockquote>wawaren 发表于 2021-11-15 22:09
+刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙 ...</blockquote>
+感觉老手难度基本初学者玩两天加上适当倒带赢得挺容易的。
+
+*****
+
+####  920619lqy  
+##### 1134#       发表于 2021-11-16 02:24
+
+就离谱，原来那个做完整个月所有活动的成就可以在发售前一周做完，而判定条件实际上只是分数做到最大值就行，什么野鸡成就。
+
+*****
+
+####  crosz  
+##### 1135#       发表于 2021-11-16 03:00
+
+ 本帖最后由 crosz 于 2021-11-16 03:01 编辑 
+
+巨硬送了辆20周年涂装的918
+
+<img src="https://img.saraba1st.com/forum/202111/16/030013ktweotzexwaa88uq.jpg" referrerpolicy="no-referrer">
+
+<strong>758B86FE-020A-43A1-B50B-4705A749E384.jpg</strong> (299.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 03:00 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天神十三煞  
+##### 1136#         楼主| 发表于 2021-11-16 05:25
+
+ 本帖最后由 天神十三煞 于 2021-11-15 13:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559838&amp;ptid=2033303" target="_blank">crosz 发表于 2021-11-15 11:00</a>
+
+巨硬送了辆20周年涂装的918</blockquote>
+收到了918
+
+但是没涂装
+
+
+
+*****
+
+####  gzGaryC  
+##### 1137#       发表于 2021-11-16 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559971&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-16 05:25</a>
+
+收到了918
+
+但是没涂装</blockquote>
+我的收到车库里是原厂车漆，但是开出来又能显示限定涂装，十分神秘
+
+*****
+
+####  Vladimeow  
+##### 1138#       发表于 2021-11-16 08:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">有个疑问，似乎这代FE车都是出场自带调教的？我看抽了个CLKGTR FE和第六元素FE都是998，而且原厂就好丝滑。。
+
+
+
+*****
+
+####  有钱多买小人  
+##### 1139#       发表于 2021-11-16 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53560283&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-16 08:18</a>
+有个疑问，似乎这代FE车都是出场自带调教的？我看抽了个CLKGTR FE和第六元素FE都是998，而且原厂就 ...</blockquote>
+fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个人喜好。
+
+
+
+*****
+
+####  aaronluray  
+##### 1140#       发表于 2021-11-16 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559707&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-16 02:00</a>
+
+刚才搞了一局showcase最后故意刹个车输掉给我算日常完成了
+
+然后这个新的日常又完成不了了 ...</blockquote>
+刚刚专门跑了一个新赛道，赞赏都解锁了日常还是没反应，来专楼一看果然不是个例<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  920619lqy  
+##### 1141#       发表于 2021-11-16 09:50
+
+<blockquote>aaronluray 发表于 2021-11-15 19:17
+刚刚专门跑了一个新赛道，赞赏都解锁了日常还是没反应，来专楼一看果然不是个例
+
+刚刚按贴吧老哥说 ...</blockquote>
+感谢提醒，这判断条件怕不是全都写反了
+
+
+
+*****
+
+####  舌怪  
+##### 1142#       发表于 2021-11-16 10:10
+
+跑拉力赛，过一个弯时被ai挤了出去，然后这ai一点回到赛道的意思都没有，而是笔直地推着我往赛道外面跑了十万八千里，完全是蓄意同归于尽的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太可怕了
+
+*****
+
+####  lancasterliang  
+##### 1143#       发表于 2021-11-16 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561501&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-16 10:10</a>
+
+跑拉力赛，过一个弯时被ai挤了出去，然后这ai一点回到赛道的意思都没有，而是笔直地推着我往赛道外面跑了十 ...</blockquote>
+我感觉这代bot比过去开车脏了不少，不知道是不是错觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 1144#       发表于 2021-11-16 10:16
+
+<blockquote>舌怪 发表于 2021-11-15 20:10
+跑拉力赛，过一个弯时被ai挤了出去，然后这ai一点回到赛道的意思都没有，而是笔直地推着我往赛道外面跑了十 ...</blockquote>
+不错了，这次至少不像前作有时候会在第一个弯道时搞高速左右横跳直接把你挤出去，大部分时候除了神仙加速度和魔法抓地力以外只会在低速弯道时超车
+
+*****
+
+####  4ckc  
+##### 1145#       发表于 2021-11-16 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561583&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-16 10:16</a>
+我感觉这代bot比过去开车脏了不少，不知道是不是错觉</blockquote>
+过去也挺脏，不能和AI缠斗基本至少是3开始都通用的（因为我是3开始玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  舌怪  
+##### 1146#       发表于 2021-11-16 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561586&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-16 10:16</a>
+
+不错了，这次至少不像前作有时候会在第一个弯道时搞高速左右横跳直接把你挤出去，大部分时候除了神仙加速 ...</blockquote>
+我也是只碰到这一次，但实在是太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就车头顶着我的车门笔直地往外推，大晚上的肥肠吓人
+
+
+
+*****
+
+####  hzh3355  
+##### 1147#       发表于 2021-11-16 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53558145&amp;ptid=2033303" target="_blank">evaqyqx 发表于 2021-11-15 22:54</a>
+
+看老外说是因为内存泄漏   我感觉火山那个公路赛道特别明显    不过我也不知道啥是内存泄漏 ...</blockquote>
+草啊，PG也太拉胯了
+
+内存泄露一般是指游戏在反复创建某些素材，并且不会在不用的时候删除掉，导致堆积，时间久了就把内存吃完了；我怀疑是联网修好了以后，路人的车子不会被从内存清掉所以时间久了就会顿卡
+
+如果是内存泄露导致的顿卡，那么顿卡的原因就是内存不够了以后，系统需要把内存的数据放到磁盘上去，这一步非常慢
+
