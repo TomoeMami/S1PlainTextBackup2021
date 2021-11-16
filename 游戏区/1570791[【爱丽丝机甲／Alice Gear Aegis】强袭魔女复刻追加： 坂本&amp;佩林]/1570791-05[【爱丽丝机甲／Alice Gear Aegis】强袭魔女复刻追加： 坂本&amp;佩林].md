@@ -3288,3 +3288,21 @@ mages是接外包拿到授权做了个游戏改而已
 讲个实话，以前的5pb被猫舍全资买了(名字改成啥忘了一搜就搜到)，所以这次其实是社内联动对于阿金 ...</blockquote>
 原来是这样，一切都合情合理了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6236#       发表于 2021-11-16 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561963&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-11-16 10:46</a>
+
+colopl收的是mages
+
+摇曳露营我记得是娇喘的吧？</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1921628-1-1.html](https://bbs.saraba1st.com/2b/thread-1921628-1-1.html)
+
+5pb就是mages吧。记得泥潭还转过新闻。
+
+露营版权肯定要重新打招呼吧，不过这次不是有门路了嘛。按我说就别碰瓷了，干脆谈一下直接来个IP品牌联动活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
