@@ -9828,3 +9828,27 @@ sly扣鹅是什么很严重的减益吗？我新参真心求问
 
 —— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2565#       发表于 2021-11-16 22:11
+
+ 本帖最后由 莫洛骑士 于 2021-11-16 10:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53567188&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-11-16 05:02</a>
+有清晰度高点的吗？感觉可以做个钥匙扣啥的</blockquote>
+这个清晰度其实做钥匙扣够了，我用一样的方法用嘉然的表情包做了亚克力的钥匙扣，b站表情都是162x162，我发的这个是waifu2x放大一倍加点降噪
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 四叶的花| + 1|好评加鹅|
+
+查看全部评分
+
