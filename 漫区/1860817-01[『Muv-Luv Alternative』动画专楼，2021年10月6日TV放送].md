@@ -19844,3 +19844,14 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  freyja_wion  
+##### 1385#       发表于 2021-11-16 21:40
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
