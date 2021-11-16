@@ -9852,3 +9852,21 @@ sly扣鹅是什么很严重的减益吗？我新参真心求问
 
 查看全部评分
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2566#       发表于 2021-11-16 22:37
+
+艾白这个打嗝也太频繁点了，不会真的是有什么隐疾吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2567#       发表于 2021-11-16 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571174&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-16 22:37</a>
+艾白这个打嗝也太频繁点了，不会真的是有什么隐疾吧</blockquote>
+说话多+边说话边喝东西，吃进去的冷空气多，喝的奶茶估计也是热的，更容易打嗝
+
