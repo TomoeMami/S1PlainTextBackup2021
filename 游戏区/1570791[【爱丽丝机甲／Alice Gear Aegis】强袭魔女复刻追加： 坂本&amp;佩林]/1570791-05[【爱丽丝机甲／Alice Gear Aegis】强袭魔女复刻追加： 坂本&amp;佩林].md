@@ -3234,3 +3234,24 @@ an枪是没kiss
 
 啥啊，联动真是石头门？？
 
+
+
+*****
+
+####  unsh  
+##### 6231#       发表于 2021-11-16 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这又是跟谁勾搭上了才会联动石头门
+
+*****
+
+####  江戸前ルナ  
+##### 6232#       发表于 2021-11-16 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561639&amp;ptid=1570791" target="_blank">unsh 发表于 2021-11-16 10:20</a>
+
+这又是跟谁勾搭上了才会联动石头门</blockquote>
+讲个实话，以前的5pb被猫舍全资买了(名字改成啥忘了一搜就搜到)，所以这次其实是社内联动<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+另外摇曳露营好像也属这个子公司的，这次是自己人应该不会被下架了吧，复刻可待<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

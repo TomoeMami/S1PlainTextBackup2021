@@ -12610,3 +12610,15 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  舌怪  
+##### 1146#       发表于 2021-11-16 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561586&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-16 10:16</a>
+
+不错了，这次至少不像前作有时候会在第一个弯道时搞高速左右横跳直接把你挤出去，大部分时候除了神仙加速 ...</blockquote>
+我也是只碰到这一次，但实在是太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就车头顶着我的车门笔直地往外推，大晚上的肥肠吓人
+
