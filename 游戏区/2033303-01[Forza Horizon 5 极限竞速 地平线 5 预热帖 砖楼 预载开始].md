@@ -12512,3 +12512,24 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 但是没涂装
 
+
+
+*****
+
+####  gzGaryC  
+##### 1137#       发表于 2021-11-16 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559971&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-16 05:25</a>
+
+收到了918
+
+但是没涂装</blockquote>
+我的收到车库里是原厂车漆，但是开出来又能显示限定涂装，十分神秘
+
+*****
+
+####  Vladimeow  
+##### 1138#       发表于 2021-11-16 08:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">有个疑问，似乎这代FE车都是出场自带调教的？我看抽了个CLKGTR FE和第六元素FE都是998，而且原厂就好丝滑。。
+
