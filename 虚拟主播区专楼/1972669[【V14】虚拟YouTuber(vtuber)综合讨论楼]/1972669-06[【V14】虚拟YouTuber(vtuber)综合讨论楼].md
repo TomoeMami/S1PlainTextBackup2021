@@ -12325,3 +12325,22 @@ Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" refe
 
 这回的演出是谁搞的也太漂亮了，索尼那边的？
 
+
+
+*****
+
+####  rzrbtk  
+##### 8420#       发表于 2021-11-16 19:02
+
+不省一楼，郡郡终于跟白雪巴（及队友）联动了啊，害怕！
+
+*****
+
+####  怜  
+##### 8421#       发表于 2021-11-16 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568860&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-11-16 19:02</a>
+
+不省一楼，郡郡终于跟白雪巴（及队友）联动了啊，害怕！</blockquote>
+白雪巴发推已经打错成群道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

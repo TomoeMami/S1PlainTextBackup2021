@@ -4916,3 +4916,21 @@ neet的末日
 
 才第二天，周四再见吧。
 
+
+
+*****
+
+####  GeraltzRivii  
+##### 5066#       发表于 2021-11-16 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564018&amp;ptid=2018830" target="_blank">边境的 发表于 2021-11-16 13:20</a>
+请问s1有mea的讨论群吗？by很久找不到组织的小萌新管人粉</blockquote>
+s1的m楼群已经变成asoul群了。加同好会粉丝群得了。
+
+*****
+
+####  璃絵和花瑠  
+##### 5067#       发表于 2021-11-16 19:21
+
+不是，哪来这么多的新人，都要入土了的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
