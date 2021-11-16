@@ -5270,3 +5270,31 @@ D64CC61D-7FA7-4758-93FA-0CE41ABC30D2.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然pay宝之前在用美颜，还是一键美颜那种
 
+
+
+*****
+
+####  K·os  
+##### 473#       发表于 2021-11-16 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566743&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-11-16 16:34</a>
+
+楼里宣传一波拉拉跨年演唱会的线下组织qq群：
+
+深圳场：634834909</blockquote>
+活动筹备那个群的群号搜索不到啊
+
+*****
+
+####  蜜梨柑  
+##### 474#       发表于 2021-11-16 18:29
+
+线下一起打尻才有氛围啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 475#       发表于 2021-11-16 18:33
+
+鲤鱼快教教佩自拍啊…………
+

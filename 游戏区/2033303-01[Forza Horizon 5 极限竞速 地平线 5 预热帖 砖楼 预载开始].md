@@ -12748,3 +12748,14 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PG香槟喝完了快回来更新补丁啊，又说是“希望”本周后段发布更新，植被刷新距离+SSAO道路有横纹+光影错误树木烟雾边缘马赛克+内存泄漏打2-3小时3090+3900X+32G+M2SSD都卡成傻子这几个问题搞得我玩得难受死了只想等更新（最草的是我全低画质1024在那窗口挂机50圈，到3-40圈的时候都能卡到只有20帧....）
 
+
+
+*****
+
+####  Vladimeow  
+##### 1158#       发表于 2021-11-16 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53567893&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 17:48</a>
+搜了一些meta车调教，感觉真的难开</blockquote>
+Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有铁头这种完全统治的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
