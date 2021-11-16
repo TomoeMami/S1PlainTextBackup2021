@@ -12989,3 +12989,18 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 本田 nsx-r gt什么情况？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 不知道什么时候多出一辆 挂拍卖300w秒出。看了眼技能也没特点
 
+
+
+*****
+
+####  Kshatriya  
+##### 1179#       发表于 2021-11-17 07:09
+
+<blockquote>pl0okm 发表于 2021-11-17 06:48
+本田 nsx-r gt什么情况？
+
+不知道什么时候多出一辆 挂拍卖300w秒出。看了眼技能也没特点 ...</blockquote>
+少和挂机导致cr不值钱
+
+本身也是s1最好开的后驱之一
+
