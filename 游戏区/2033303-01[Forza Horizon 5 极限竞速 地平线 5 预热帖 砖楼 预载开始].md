@@ -12544,3 +12544,17 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 有个疑问，似乎这代FE车都是出场自带调教的？我看抽了个CLKGTR FE和第六元素FE都是998，而且原厂就 ...</blockquote>
 fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个人喜好。
 
+
+
+*****
+
+####  aaronluray  
+##### 1140#       发表于 2021-11-16 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559707&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-16 02:00</a>
+
+刚才搞了一局showcase最后故意刹个车输掉给我算日常完成了
+
+然后这个新的日常又完成不了了 ...</blockquote>
+刚刚专门跑了一个新赛道，赞赏都解锁了日常还是没反应，来专楼一看果然不是个例<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
