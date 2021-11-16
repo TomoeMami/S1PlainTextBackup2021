@@ -4763,3 +4763,19 @@ neet的末日
 
 冷知识，推特某次改版之后点进去fo最上面的未必是最新follow的人，我今早特意看了一样我最上面是犬山<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  肥到终点  
+##### 5049#       发表于 2021-11-16 09:50
+
+我这边最上面是绿熊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dualist彩  
+##### 5050#       发表于 2021-11-16 09:59
+
+那新fo了两个是谁呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

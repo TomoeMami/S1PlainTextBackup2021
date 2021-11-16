@@ -5068,3 +5068,21 @@ liyuu拍照挺会找位置，不管自拍还是他拍都水平稳定地展现了
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 458#       发表于 2021-11-16 10:02
+
+twi:baiyuBYY
+
+7D2F01C8-B20D-421A-A79D-3F02DE09A51D.jpeg
+(114.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/095511z7u0p71qqdo704qx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
