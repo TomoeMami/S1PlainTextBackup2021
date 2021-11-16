@@ -5070,3 +5070,15 @@ m楼群。。。<img src="https://static.saraba1st.com/image/smiley/face2017/049
 
 关注最早的up主有十年了，这个up直播看了也有六年了。你麻只要播下去我应该也能看下去，直播这东西，有人追的是一个社交谈资，有人只是找合胃口的娱乐，各取所需有什么问题呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呓亘  
+##### 5081#       发表于 2021-11-16 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568941&amp;ptid=2018830" target="_blank">GeraltzRivii 发表于 2021-11-16 19:10</a>
+
+s1的m楼群已经变成asoul群了。加同好会粉丝群得了。</blockquote>
+你说的是小狼群吗？
+
