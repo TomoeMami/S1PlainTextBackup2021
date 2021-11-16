@@ -2113,3 +2113,17 @@ vr有不少运动量大的游戏，部分游戏甚至以健身为目的能到撸
 
 另外支持 Cross Buy，$40，比 Rift 版的 $60 便宜…
 
+
+
+*****
+
+####  魔法酪饼  
+##### 134#       发表于 2021-11-16 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53563172&amp;ptid=2034565" target="_blank">bypass 发表于 2021-11-16 12:09</a>
+
+ 荣誉宣章 Quest 版今天发售了，41GB，Quest 64G 的克星来了。
+
+另外支持 Cross Buy，$40，比 Rift 版的 $60 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">云了一下pc版的视频（PC版机器跑不起），感觉这游戏适合做VR射击入门，简单难度射击有模糊判定，看那样偏个15度角以内都算射中了。
+
