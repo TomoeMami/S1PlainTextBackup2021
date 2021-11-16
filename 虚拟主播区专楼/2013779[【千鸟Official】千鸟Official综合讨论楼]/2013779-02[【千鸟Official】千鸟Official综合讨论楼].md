@@ -9986,3 +9986,14 @@ syl 立刻白魅力时刻
 
 怎么是两只右脚啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tn_teana  
+##### 2581#       发表于 2021-11-17 01:29
+
+白白这个鼠标垫绷不住了，明天发给她麻一下
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
