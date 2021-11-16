@@ -17774,3 +17774,16 @@ A similar version by Stesichorus in "Ilion's Conquest" narrated that Menelaus su
 我曾经以为古希腊文学里这种选择原谅她或者听歌听到海难都是编出来的段子
 直到我看到了绫总和百鬼组
 
+
+
+*****
+
+####  cctvyt1  
+##### 13488#       发表于 2021-11-16 12:04
+
+看了那个自称和绫总连麦双排的泡菜人 
+
+11/5发的推特还特地加tag 之后又玩好几次
+
+绫总自搜不可能没看到吧 还是压根不在乎 上分要紧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
