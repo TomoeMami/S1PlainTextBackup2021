@@ -9786,3 +9786,45 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 说起来勒夫之前发的那个疑似指千鸟的动态删了
 
+
+
+*****
+
+####  GAKOTO  
+##### 2562#         楼主| 发表于 2021-11-16 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53558678&amp;ptid=2013779" target="_blank">H2Ofrozen 发表于 2021-11-15 23:38</a>
+绷
+
+随便解释一下 当时李赣直播间在刷千鸟和螺旋丸哪个厉害，紧接着有人开始刷鸟不灭，所以我当时随 ...</blockquote>
+呃呃(；一_一)开个玩笑而已。
+sly扣鹅是什么很严重的减益吗？我新参真心求问
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| H2Ofrozen| + 1|追着连扣的行为我们一般称为追猎.|
+
+查看全部评分
+
+*****
+
+####  IDIDIDID  
+##### 2563#       发表于 2021-11-16 21:55
+
+也许相关，腾讯招 聘好像是个女的在运营
+
+*****
+
+####  凭依华  
+##### 2564#       发表于 2021-11-16 22:00
+
+谁给白白投的mhr读安岛，蚌埠住了
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
