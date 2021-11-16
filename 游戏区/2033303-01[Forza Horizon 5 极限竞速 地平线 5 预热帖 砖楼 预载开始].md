@@ -12948,3 +12948,23 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  天神十三煞  
+##### 1176#         楼主| 发表于 2021-11-17 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53572550&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-16 08:55</a>
+
+不会漂移，季节赛漂移过不了。
+
+—— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+刷新看顶楼
+
+用漂移方程式的车道奇viper#43上手，
+
+这周漂移调教选那个auto之类的
+
+马自达如果技能树点出来了也可以用马自达
+
