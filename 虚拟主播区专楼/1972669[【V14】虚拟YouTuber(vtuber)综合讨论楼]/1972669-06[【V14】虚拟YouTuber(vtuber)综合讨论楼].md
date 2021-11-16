@@ -12289,3 +12289,30 @@ Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" refe
 
 这个是之前约好的吧
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8416#       发表于 2021-11-16 17:05
+
+ 本帖最后由 alcoholic1000 于 2021-11-16 17:14 编辑 
+
+不愧是大监督，这演出设计
+
+新3D的耳朵晃来晃去好可爱好想揪，耳环也很精致
+
+*****
+
+####  FCCHua  
+##### 8417#       发表于 2021-11-16 17:15
+
+兔头新3d看起来质量很可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 8418#       发表于 2021-11-16 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
