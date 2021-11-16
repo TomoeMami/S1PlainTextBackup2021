@@ -19869,3 +19869,16 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 —— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
 你看“还有气儿”直播就知道，鸡枞对我国评价很高
 
+
+
+*****
+
+####  oskneo  
+##### 1387#       发表于 2021-11-17 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571394&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-16 22:58</a>
+你看“还有气儿”直播就知道，鸡枞对我国评价很高</blockquote>
+求日文名或链接。
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
