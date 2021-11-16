@@ -9870,3 +9870,42 @@ sly扣鹅是什么很严重的减益吗？我新参真心求问
 艾白这个打嗝也太频繁点了，不会真的是有什么隐疾吧</blockquote>
 说话多+边说话边喝东西，吃进去的冷空气多，喝的奶茶估计也是热的，更容易打嗝
 
+
+
+*****
+
+####  tankai  
+##### 2568#       发表于 2021-11-16 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570777&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-16 21:55</a>
+
+也许相关，腾讯招 聘好像是个女的在运营</blockquote>
+不等式缔造者?
+
+*****
+
+####  tankai  
+##### 2569#       发表于 2021-11-16 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571174&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-16 22:37</a>
+
+艾白这个打嗝也太频繁点了，不会真的是有什么隐疾吧</blockquote>
+胃病就是这样,我老胃病了,不吃夜霄好很多.
+
+*****
+
+####  IDIDIDID  
+##### 2570#       发表于 2021-11-16 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571473&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-16 23:07</a>
+
+不等式缔造者?</blockquote>
+瞳子新动态都晒私连了应该不是男的吧。不过一个姑娘比文静还能抄，我看请来当3.0也不是不可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2571#       发表于 2021-11-16 23:26
+
+还不如把1.0 逮回来当3.0 ,游戏力问题解决了,还有口臭.
+

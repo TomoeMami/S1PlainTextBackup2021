@@ -12869,3 +12869,49 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 醉了，开服前还能玩玩多人，开服了反而搜不到人了 
 
+
+
+*****
+
+####  Totokei  
+##### 1170#       发表于 2021-11-16 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571125&amp;ptid=2033303" target="_blank">12481632 发表于 2021-11-16 22:33</a>
+
+沙滩车和野兽那个表演赛后半段的大车要怎么开啊，直接油门一点速度都没有，只能先倒车把速度提起来再换成油 ...</blockquote>
+绕着外场跑圈，满足了速度的目标再去撞保龄球或者爬坡之类的动作
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 1171#       发表于 2021-11-16 23:11
+
+电动爹是lotus的最强吗？钱不够时心心念念，付款后索然无味
+
+<img src="https://img.saraba1st.com/forum/202111/16/231036pfna8119988n3hae.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(49).png</strong> (177.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 23:10 上传
+
+另外这服务器绝了，领车都领不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/16/231112ksj444bt45hn5jlc.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(50).png</strong> (60.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 23:11 上传
+
+*****
+
+####  makece  
+##### 1172#       发表于 2021-11-16 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">700经典肌肉车 庞蒂克Trans AM手感太爽了，性能完全超同级车一大截
+
