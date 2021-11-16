@@ -3255,3 +3255,36 @@ an枪是没kiss
 
 另外摇曳露营好像也属这个子公司的，这次是自己人应该不会被下架了吧，复刻可待<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6233#       发表于 2021-11-16 10:44
+
+国服这一波接一波的，快年底了，辛苦养服大佬们了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 6234#       发表于 2021-11-16 10:46
+
+ 本帖最后由 hypnossz86 于 2021-11-16 10:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561805&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-16 10:35</a>
+讲个实话，以前的5pb被猫舍全资买了(名字改成啥忘了一搜就搜到)，所以这次其实是社内联动对于阿金 ...</blockquote>
+colopl收的是mages
+摇曳露营我记得是娇喘的吧？
+
+哦，查了查是芳文社
+mages是接外包拿到授权做了个游戏改而已
+这个授权范围包不包括aga联动可就不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unsh  
+##### 6235#       发表于 2021-11-16 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561805&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-16 10:35</a>
+讲个实话，以前的5pb被猫舍全资买了(名字改成啥忘了一搜就搜到)，所以这次其实是社内联动对于阿金 ...</blockquote>
+原来是这样，一切都合情合理了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
