@@ -17787,3 +17787,19 @@ A similar version by Stesichorus in "Ilion's Conquest" narrated that Menelaus su
 
 绫总自搜不可能没看到吧 还是压根不在乎 上分要紧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 13489#       发表于 2021-11-16 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">什么时候出现一个中国尼桑跟绫总双排上分，这样东亚三国都被绫总集齐了
+
+*****
+
+####  因为你不会  
+##### 13490#       发表于 2021-11-16 18:48
+
+双排不说，中国狙击队不早就有了，你说是吧狗组
+
