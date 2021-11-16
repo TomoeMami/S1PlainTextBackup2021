@@ -4873,3 +4873,23 @@ neet的末日
 
 加群没啥用哇，都不说话的，
 
+
+
+*****
+
+####  肥到终点  
+##### 5061#       发表于 2021-11-16 14:57
+
+72278374 同好会一群
+
+*****
+
+####  往世雷书  
+##### 5062#       发表于 2021-11-16 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564349&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2021-11-16 13:45</a>
+每一只天狗都是能独当一面的个体，弱者才会抱团取暖，天狗在黑泥中绽放，在抗压中强大 ...</blockquote>
+这个确实，报团遇到猪队友反而整得自己灰头土脸，直接只代表自己就完事了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
