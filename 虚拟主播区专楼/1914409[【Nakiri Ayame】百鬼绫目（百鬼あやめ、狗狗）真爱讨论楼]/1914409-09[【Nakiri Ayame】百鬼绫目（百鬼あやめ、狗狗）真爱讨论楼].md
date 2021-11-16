@@ -17754,3 +17754,23 @@ syl，说起来绫好像蛮长一段时间没转fanart了，但百鬼众一直�
 
 绫总已经抽象成符号了，活着就有节目效果，那还看什么直播。不用看也不用播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13487#       发表于 2021-11-16 08:48
+
+There are four versions of Menelaus' and Helen's reunion on the night of the sack of Troy:
+
+Menelaus sought out Helen in the conquered city. Raging at her infidelity, he raised his sword to kill her, but as he saw her weeping at his feet, begging for her life, Menelaus' wrath instantly left him. He took pity on her and decided to take her back as his wife.
+
+Menelaus resolved to kill Helen, but her irresistible beauty prompted him to drop his sword and take her back to his ship "to punish her at Sparta", as he claimed.
+
+According to the Bibliotheca, Menelaus raised his sword in front of the temple in the central square of Troy to kill her, but his wrath went away when he saw her rending her clothes in anguish, revealing her naked breasts. 
+
+A similar version by Stesichorus in "Ilion's Conquest" narrated that Menelaus surrendered her to his soldiers to stone her to death, but when she ripped the front of her robes, the Achaean warriors were stunned by her beauty and the stones fell harmlessly from their hands as they stared at her.
+
+我曾经以为古希腊文学里这种选择原谅她或者听歌听到海难都是编出来的段子
+直到我看到了绫总和百鬼组
+

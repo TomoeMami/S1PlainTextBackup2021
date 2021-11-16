@@ -9547,3 +9547,12 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2536#       发表于 2021-11-16 09:03
+
+一个猜想，文静住院是去打血清了，下一任中国队长就是她，一拳打爆静栗惹
+

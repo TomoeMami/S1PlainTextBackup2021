@@ -12533,3 +12533,14 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">有个疑问，似乎这代FE车都是出场自带调教的？我看抽了个CLKGTR FE和第六元素FE都是998，而且原厂就好丝滑。。
 
+
+
+*****
+
+####  有钱多买小人  
+##### 1139#       发表于 2021-11-16 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53560283&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-16 08:18</a>
+有个疑问，似乎这代FE车都是出场自带调教的？我看抽了个CLKGTR FE和第六元素FE都是998，而且原厂就 ...</blockquote>
+fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个人喜好。
+
