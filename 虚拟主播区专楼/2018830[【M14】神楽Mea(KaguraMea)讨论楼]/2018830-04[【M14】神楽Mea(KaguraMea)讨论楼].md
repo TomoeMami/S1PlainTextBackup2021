@@ -4853,3 +4853,14 @@ neet的末日
 
 每一只天狗都是能独当一面的个体，弱者才会抱团取暖，天狗在黑泥中绽放，在抗压中强大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Joffre✔  
+##### 5059#       发表于 2021-11-16 13:56
+
+<blockquote>边境的 发表于 2021-11-16 13:20
+请问s1有mea的讨论群吗？by很久找不到组织的小萌新管人粉</blockquote>
+真萌新就去同好会粉丝群吧
+
