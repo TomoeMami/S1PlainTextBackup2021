@@ -9693,3 +9693,21 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 用表情包给粉丝分层+稀释弹幕信息量，非mmr老🌰该滚了
 
+
+
+*****
+
+####  四叶的花  
+##### 2552#       发表于 2021-11-16 17:02
+
+有清晰度高点的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉可以做个钥匙扣啥的
+
+*****
+
+####  小憨1  
+##### 2553#       发表于 2021-11-16 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53567188&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-11-16 17:02</a>
+有清晰度高点的吗？感觉可以做个钥匙扣啥的</blockquote>
+贴吧有，也是莫洛骑士传的
+

@@ -12273,3 +12273,19 @@ Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" refe
 彩虹又发拼盘专了。这次还有四周年特别观影应募代码，意思要从买专的手里抽票是吧。
 看看还能卖多少
 
+
+
+*****
+
+####  qq845629713  
+##### 8414#       发表于 2021-11-16 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> bora看起来心情不错啊，今天还和아키라레이出去玩了，
+
+*****
+
+####  OldGlory  
+##### 8415#       发表于 2021-11-16 16:46
+
+这个是之前约好的吧
+

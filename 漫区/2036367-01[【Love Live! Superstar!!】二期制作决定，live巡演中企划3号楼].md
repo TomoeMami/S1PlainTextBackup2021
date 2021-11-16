@@ -5187,3 +5187,16 @@ B9100EDB-04FC-45C4-BF2A-579E2D974E98.jpeg
 
 显然，鲤鱼姐比花田十辉更慬得观众们想看些什么<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 468#       发表于 2021-11-16 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53560150&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-16 07:49</a>
+很正常吧？不会念不是一说就会吗？平时肯定也问不少不懂的词，不是太难的会提一下应该也能懂，估计都习惯了 ...</blockquote>
+我也觉得平时问了不少词，生放送就有种妈妈教孩子的既视感（?）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -12713,3 +12713,22 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了 ...</blockquote>
 有的，我上次晚上下班回家发现才跑了3圈就被树卡住了明显更让人火大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天神十三煞  
+##### 1155#         楼主| 发表于 2021-11-16 16:51
+
+ 本帖最后由 天神十三煞 于 2021-11-16 00:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-15 23:58</a>
+
+没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了 ...</blockquote>
+辅助都打开
+
+用lygggg的，不要用Nomorecake的
+
+右边末端的蓝图，不是中间的
+
+中间的蓝图末尾转向太急容易飘出去
+
