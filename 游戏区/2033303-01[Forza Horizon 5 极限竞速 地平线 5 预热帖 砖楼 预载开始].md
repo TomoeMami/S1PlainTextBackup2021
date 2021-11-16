@@ -12732,3 +12732,19 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 中间的蓝图末尾转向太急容易飘出去
 
+
+
+*****
+
+####  bad_alloc  
+##### 1156#       发表于 2021-11-16 17:48
+
+搜了一些meta车调教，感觉真的难开<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 1157#       发表于 2021-11-16 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PG香槟喝完了快回来更新补丁啊，又说是“希望”本周后段发布更新，植被刷新距离+SSAO道路有横纹+光影错误树木烟雾边缘马赛克+内存泄漏打2-3小时3090+3900X+32G+M2SSD都卡成傻子这几个问题搞得我玩得难受死了只想等更新（最草的是我全低画质1024在那窗口挂机50圈，到3-40圈的时候都能卡到只有20帧....）
+
