@@ -828,3 +828,21 @@ syl 居然被看到了 不要暴露我管人痴身份<img src="https://static.sa
 
 N年前买过一个，拧不紧容易从侧面溢出来+拧太紧萃取完打不开+容易糊掉+橡胶圈用了一段时间密闭太差重新买一个花了大几十块……最后连壶带磨带一套手冲装备去海鲜市场找接盘侠了，胶囊机它不香吗（指喝奶咖
 
+
+
+*****
+
+####  Kitadoom  
+##### 72#         楼主| 发表于 2021-11-16 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566350&amp;ptid=2037306" target="_blank">unclewhite 发表于 2021-11-16 16:07</a>
+用过太麻烦了，尤其是得等冷却了才能清洗这件事情要崩溃哩</blockquote>
+我一般是直接用冷水冲冷却的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kitadoom  
+##### 73#         楼主| 发表于 2021-11-16 17:39
+
+看来大家对这玩意意见很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实属于是玩具定位了
+
