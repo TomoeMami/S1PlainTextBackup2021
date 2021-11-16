@@ -9684,3 +9684,12 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  IDIDIDID  
+##### 2551#       发表于 2021-11-16 15:36
+
+用表情包给粉丝分层+稀释弹幕信息量，非mmr老🌰该滚了
+
