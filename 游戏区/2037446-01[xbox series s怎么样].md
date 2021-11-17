@@ -753,3 +753,16 @@ xgp 有啥游戏
 
 我去看了下xgp游戏库还是很不错啊，xsx价格正常了还是想入一个。
 
+
+
+*****
+
+####  faithlifer  
+##### 77#       发表于 2021-11-17 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53547296&amp;ptid=2037446" target="_blank">Redis 发表于 2021-11-15 07:41</a>
+得，库存已经没了</blockquote>
+犹豫就会败北<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
