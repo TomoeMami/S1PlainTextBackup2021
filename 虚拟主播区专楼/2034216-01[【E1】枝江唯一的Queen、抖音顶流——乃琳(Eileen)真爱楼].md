@@ -2634,3 +2634,27 @@ douban.com/group/topic/252737763/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">乃宝别舔手指了，要舔舔我吧
 
+
+
+*****
+
+####  sanlow666  
+##### 201#         楼主| 发表于 2021-11-17 18:15
+
+乃琳Queen:[坏女人？！人家明明敲无辜！！【直播剪辑】](https://t.bilibili.com/593921890309426941)
+
+（运营代发）节选  10月20日 乃琳单播
+————————————————
+出镜：乃琳
+场景：自制
+软件：基于Unity自研
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202111/17/181544sg3ll7lodlbz9kbf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 18:15 上传
+
