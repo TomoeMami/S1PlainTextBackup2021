@@ -13201,3 +13201,14 @@ PG恐怕得修完bug才开
 
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  4ckc  
+##### 1198#       发表于 2021-11-17 15:44
+
+这次其实就是回归3不想在钱的问题上打扰玩家爽到，都没有4的爱丁堡那种烧钱的房子，基本就是说不要有负担随便跑不要担心会破产，其实是比较合理的设计。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

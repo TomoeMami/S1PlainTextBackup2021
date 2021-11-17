@@ -805,3 +805,38 @@ xgp 有啥游戏
 [https://www.xbox.com/en-US/xbox-game-pass/games](https://www.xbox.com/en-US/xbox-game-pass/games)</blockquote>
 我看美服XGP游戏比港服多好多啊，是不是换区比较合适？有没有中文是不是哪个区都一样？
 
+
+
+*****
+
+####  faithlifer  
+##### 82#       发表于 2021-11-17 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579887&amp;ptid=2037446" target="_blank">whydevil 发表于 2021-11-17 15:38</a>
+
+我看美服XGP游戏比港服多好多啊，是不是换区比较合适？有没有中文是不是哪个区都一样？
+
+ ...</blockquote>
+可以随便随时换区，有些游戏港服下架了去美服下也是一样的，至于中文问题要看厂家，比如巫师3你在阿区买了一个几块钱的，必须切回港服下才有中文
+
+*****
+
+####  whydevil  
+##### 83#       发表于 2021-11-17 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579963&amp;ptid=2037446" target="_blank">faithlifer 发表于 2021-11-17 15:43</a>
+
+可以随便随时换区，有些游戏港服下架了去美服下也是一样的，至于中文问题要看厂家，比如巫师3你在阿区买 ...</blockquote>
+明白了，没啥特别想玩的别服游戏就老实港服就行。省心。
+
+*****
+
+####  超人越神  
+##### 84#       发表于 2021-11-17 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541313&amp;ptid=2037446" target="_blank">Redis 发表于 2021-11-14 17:10</a>
+xgp三年200块怎么拿到的？一个月不是都要9刀么，还是家庭套餐？</blockquote>
+自己查查，论坛里还有教程，或者百度毛子 xgp,一开始还150多呢，200已经是涨价了
+
+—— 来自 Xiaomi M2004J7AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

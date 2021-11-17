@@ -12458,3 +12458,43 @@ https://note.com/yume_note1205/n/nb2f04ec86d10
 
 感觉vta一出生就已经在被砍的路上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 8433#       发表于 2021-11-17 15:40
+
+ユメノグラフィアのサービス終了、これまで何度か配信で取り上げさせてもらったり、新人さんがデビューする度に挨拶してくれたりと思い入れがあったからとても残念。SLEEの全メンバー卒業といい、力及ばなかったことを悔しく感じる。
+
+黑客不仅是虹信居然还是精神运营……除了不开sc会员给运营赚钱之外简直是模范员工，ankr何德何能啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头小希  
+##### 8434#       发表于 2021-11-17 15:57
+
+火 舞元 火
+
+【新ビジュアルグッズ第12弾 販売決定！】
+
+11/18(木)12:00から #にじストア にて
+
+桜凛月、舞元啓介、ルイス・キャミー、町田ちま、えま★おうがすと、魔使マオ
+
+6名の新ビジュアルを使用したグッズの受注販売を行います！
+
+詳細はこちら！▽
+[https://t.co/kuUAvH5jp5](https://t.co/kuUAvH5jp5)
+
+#にじさんじ新ビジュアルグッズ [https://t.co/Prcu58MSYz](https://t.co/Prcu58MSYz)
+
+1637118307428.jpg
+(455.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 15:53 上传
+
+<img src="https://img.saraba1st.com/forum/202111/17/155313jva8dt8mfu8u7ka8.jpg" referrerpolicy="no-referrer">
+

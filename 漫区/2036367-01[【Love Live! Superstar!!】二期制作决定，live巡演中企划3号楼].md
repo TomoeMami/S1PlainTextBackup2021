@@ -5876,3 +5876,26 @@ https://youtu.be/8u5KfZKd9-Y
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 535#       发表于 2021-11-17 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579387&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-17 15:06</a>
+
+https://www.fujisan.co.jp/product/2363/new/
+
+这里能买电子版，能用国内visa卡，上次那期次世代美少女鲤 ...</blockquote>
+谢谢，那我先买电子版的，如果质量可以再买实体书
+
+*****
+
+####  stygian  
+##### 536#       发表于 2021-11-17 16:00
+
+"可憐に初登場"
+
+大胆预测一套校服一套白连衣裙完事<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
