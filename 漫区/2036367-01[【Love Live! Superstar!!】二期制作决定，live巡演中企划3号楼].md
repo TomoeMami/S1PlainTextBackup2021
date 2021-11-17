@@ -6232,3 +6232,19 @@ pay宝真该学自拍技术了<img src="https://static.saraba1st.com/image/smile
 
 虽然但是，佩佩这自拍也很好看吧，我觉得五个人里她的颜值是最能打的
 
+
+
+*****
+
+####  stygian  
+##### 571#       发表于 2021-11-17 20:16
+
+pay子这自拍的贼像东京大饭店演及川光博老婆那个。。。
+
+*****
+
+####  kata魂  
+##### 572#       发表于 2021-11-17 20:22
+
+pay这个美甲…小小偶像团两位重女属性，我愿称你俩为卧龙凤雏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
