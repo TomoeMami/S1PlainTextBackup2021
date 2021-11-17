@@ -13236,3 +13236,14 @@ PG恐怕得修完bug才开
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然在无限技能点的前提下supra比吉普更好，但是因为一般玩家名下已经一堆丰田车感觉不能自动化点技能啊
 
+
+
+*****
+
+####  Hanzong  
+##### 1201#       发表于 2021-11-17 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585814&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-17 22:05</a>
+虽然在无限技能点的前提下supra比吉普更好，但是因为一般玩家名下已经一堆丰田车感觉不能自动化点技 ...</blockquote>
+啥叫自动化点技能啊？我现在都是手点的
+

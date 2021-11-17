@@ -3828,3 +3828,30 @@ banana继续绝版中
 
 新活动这个赛博朋克混搭日本昭和风，莫名地给我一种忍者杀手的既视感...
 
+
+
+*****
+
+####  qixinno2  
+##### 84331#       发表于 2021-11-17 22:01
+
+ 本帖最后由 qixinno2 于 2021-11-17 22:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585513&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-17 21:45</a>
+
+new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但这也太菜了啊 卡面是伽摩那种戳人XP也行 这完全不行啊
+
+*****
+
+####  angelooo  
+##### 84332#       发表于 2021-11-17 22:28
+
+讲真阿国但凡有个御姐ver我也就忍了，这次noco感觉摸了，这就是你游优秀画师的宿命吗
+
+*****
+
+####  黑上シグマ  
+##### 84333#       发表于 2021-11-17 22:37
+
+翻页
+
