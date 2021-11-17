@@ -6529,3 +6529,78 @@ ll官推还发了中文版的，就是2022写成2021很尴尬</blockquote>
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  名津流  
+##### 599#       发表于 2021-11-18 03:04
+
+ 本帖最后由 名津流 于 2021-11-18 03:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586363&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-17 22:40</a>
+
+那条官推底下有不少伪中国语，什么“我绝对视听不可避”之类的
+
+还有一个：快进到上海偶像怒斥香港主播 ...</blockquote>
+钟岚珠：“可可酱，由平安名堇来当C位好不好啊？”
+
+唐可可：“吼啊”
+
+钟岚珠：“就是说你也赞成平安名堇当C位。”
+
+唐可可：“当然啦。”
+
+钟岚珠：“可可酱，你这么说呢，会不会给人内定啊，钦定的感觉？”
+
+唐可可：“你问我兹瓷不兹瓷，我当然兹瓷。平安名堇是我们Liella的成员，我怎么能不兹瓷呢？”
+
+钟岚珠：“可是呢，可可酱……”
+
+唐可可：“岚珠你啊，不要老是想弄个大新闻，说现在钦定了，把我批判一番…我告诉你我是身经百战见得多啦，哪个校园偶像我没见过？SUNNY PASSION比你们虹咲偶像部不知道要高到哪里去了，我和她们谈笑 风生。”
+
+from 微博 红海军步兵近卫军大尉
+
+*****
+
+####  iuhehc  
+##### 600#       发表于 2021-11-18 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588838&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-18 03:04</a>
+
+钟岚珠：“可可酱，由平安名堇来当C位好不好啊？”
+
+唐可可：“吼啊”
+
+钟岚珠：“就是说你也赞成平安名堇当 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  名津流  
+##### 601#       发表于 2021-11-18 04:41
+
+星团确定要上FNS歌谣祭了
+
+在第二夜的出场名单里：
+[https://www.fujitv.co.jp/FNS/index.html](https://www.fujitv.co.jp/FNS/index.html)
+
+<img src="https://img.saraba1st.com/forum/202111/18/044033tff45oof5efozeo9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211118043940.png</strong> (48.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 04:40 上传
+
+<img src="https://img.saraba1st.com/forum/202111/18/044042u7v66usc6xxxijh7.jpg" referrerpolicy="no-referrer">
+
+<strong>c2D4O-jb.jpg</strong> (142.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 04:40 上传
+
+顺带一提赛马娘在第一夜
+

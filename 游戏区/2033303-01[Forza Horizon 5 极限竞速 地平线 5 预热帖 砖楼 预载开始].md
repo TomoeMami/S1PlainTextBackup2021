@@ -13322,3 +13322,103 @@ PG恐怕得修完bug才开
 —— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅 ...</blockquote>
 5%还挺简单的吧，自己改的车都1%了
 
+
+
+*****
+
+####  马僧虔  
+##### 1209#       发表于 2021-11-18 01:41
+
+游戏更新了？更了啥啊？
+
+*****
+
+####  爱护动物抓根宝  
+##### 1210#       发表于 2021-11-18 02:09
+
+ 本帖最后由 爱护动物抓根宝 于 2021-11-18 02:27 编辑 
+
+[https://support.forzamotorsport.net/hc/en-us/articles/4410593330579-FH5-Release-Notes-November-17th-2021-CU3-CU4-](https://support.forzamotorsport.net/hc/en-us/articles/4410593330579-FH5-Release-Notes-November-17th-2021-CU3-CU4-)
+
+(声称)各种闪退修复，网络修复，pc远景修复
+
+忠诚奖励和vip资格修复
+super7bug被修复，车辆收藏买车bug被修复，赛前调教被当做bug也修复了，全自动驾驶加入检测，具体是啥没上游戏不知道
+willys和牛魔王的摇摇乐perk直接被移除了
+
+*****
+
+####  pl0okm  
+##### 1211#       发表于 2021-11-18 02:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奔驰AMG重回封面
+
+*****
+
+####  -SLSL-  
+##### 1212#       发表于 2021-11-18 03:02
+
+我的摇摇乐<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 1213#         楼主| 发表于 2021-11-18 03:05
+
+有人试过街机了吗
+
+新版能过了吗
+
+*****
+
+####  meltykiss  
+##### 1214#       发表于 2021-11-18 03:55
+
+还好，已经靠摇摇乐把车基本收集全了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 1215#         楼主| 发表于 2021-11-18 04:10
+
+ 本帖最后由 天神十三煞 于 2021-11-17 12:17 编辑 
+
+普通街机有人了
+
+还是没人玩漂移
+
+这个劲敌要撞就算了，表演赛要第二也是醉了
+
+这都什么咖喱糊的，登上领奖台次数99，获胜次数98，强迫症要死了
+
+好像掉线不卡壳了
+
+设置非全开极高时出现的傻屌横纹也没了
+
+然后那一堆不能做的赞赏还是不能做
+
+咖喱慢慢糊
+
+*****
+
+####  -SLSL-  
+##### 1216#       发表于 2021-11-18 04:40
+
+这个佛拉松的IE啥时候下架啊，我算了下就算周挑战全做完了也不够点买<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天神十三煞  
+##### 1217#         楼主| 发表于 2021-11-18 04:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53589027&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-17 12:40</a>
+
+这个佛拉松的IE啥时候下架啊，我算了下就算周挑战全做完了也不够点买 ...</blockquote>
+多跑几遍过关挑战
+
+其实很多车的技能树里有送点
+
+这个车赞赏里有
+
+我都忘了怎么搞到手的了
+

@@ -19989,3 +19989,18 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 
 最后那几个镜头真的很经典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1399#       发表于 2021-11-18 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588390&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-11-18 01:21</a>
+小兔子的不少小动作都还行，看来制作组是萝莉控。</blockquote>
+小珠，美琴，霞都是超水平发挥。之前吉宗钢纪在人设图出来后说乳量整体下滑了。动画组回复“监督喜欢平一点的”
+
+已经实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

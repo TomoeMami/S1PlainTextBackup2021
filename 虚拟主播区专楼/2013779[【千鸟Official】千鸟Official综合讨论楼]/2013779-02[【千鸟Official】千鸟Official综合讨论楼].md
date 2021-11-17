@@ -10392,3 +10392,23 @@ ylg功课属实没做好，含金量定型文都没念好，不得不说海子�
 
 楼友这怕不是要把老板吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 2627#       发表于 2021-11-18 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53583930&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-17 19:59</a>
+
+这个白白文静亲自选的，出了事文静全责，是不是这个道理。</blockquote>
+太是了,反正文静这个月寄了.所有的锅丢她没错.当个千鸟沙包也好.
+
+*****
+
+####  莫洛骑士  
+##### 2628#       发表于 2021-11-18 03:43
+
+我认清了，再也他娘的不发什么狗屁暖男评论了，攻击性必须拉满，反正静女妖现在是个卧床不起的轮椅人，我要把语言化为力量透过屏幕给她一✋
+<img src="https://p.sda1.dev/3/8e033de508dc52ee5bebbb39bb9fc472/1636250292397.jpg" referrerpolicy="no-referrer">
+

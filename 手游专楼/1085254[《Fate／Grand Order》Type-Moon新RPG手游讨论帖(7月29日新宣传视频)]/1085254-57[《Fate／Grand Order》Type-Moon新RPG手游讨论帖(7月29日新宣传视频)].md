@@ -3882,3 +3882,12 @@ new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
 
 咦，阿国不是挺可爱的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 84337#       发表于 2021-11-18 04:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">CAO.....加班到半夜才刚到家.....一打开游戏竟然送我自己了
+
