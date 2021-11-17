@@ -2149,3 +2149,33 @@ vr有不少运动量大的游戏，部分游戏甚至以健身为目的能到撸
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  bypass  
+##### 137#         楼主| 发表于 2021-11-17 10:00
+
+ 本帖最后由 bypass 于 2021-11-17 10:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53573660&amp;ptid=2034565" target="_blank">droople 发表于 2021-11-17 08:04</a>
+
+问下现在多少以前的3a游戏上了quest2了啊？
+
+----发送自 Xiaomi Redmi K30 Pro,Android 11 ...</blockquote>
+目前已经上的就生化 4，未来明确上的是 GTA:SA，以及 "Arizona Sunshine and After The Fall developer Vertigo Games is set to bring some of <strong>the worlds from gaming publisher Deep Silver to VR</strong> in a new deal <strong>with Meta and the Oculus Studios label</strong>"，按现在这个套路应该也是老游戏移植，地铁、死亡岛或者黑道圣徒。
+
+*****
+
+####  bypass  
+##### 138#         楼主| 发表于 2021-11-17 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53573222&amp;ptid=2034565" target="_blank">frankCC 发表于 2021-11-17 03:56</a>
+
+https://uploadvr.com/meta-quest-2-10-million-oculus
+
+高通老总宣布quest2销量超过一千万。 ...</blockquote>
+高通后来又补充说
+ <blockquote> “During Qualcomm’s Investor Day event, CEO and President Cristiano Amon highlighted the momentum of the XR business and stated that Quest 2 has shipped an estimated 10 million units. <strong>This number is an average of third-party market size estimates from industry analysts, and wasn’t meant as an official disclosure of sales numbers by Meta or Qualcomm</strong>. Snapdragon XR Platforms power over 50 commercial devices, including Quest, and Qualcomm’s early investments have established Snapdragon as the platform of choice for connecting physical and digital spaces.”</blockquote>
+
+当然他们内部肯定是知道 XR2 供货给 Oculus 的情况的，所以这个数据偏差不会太大我觉得。
+
