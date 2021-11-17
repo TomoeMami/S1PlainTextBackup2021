@@ -13037,3 +13037,17 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 播放列表里也是未完成，什么鬼
 
+
+
+*****
+
+####  lancasterliang  
+##### 1183#       发表于 2021-11-17 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574116&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-17 09:00</a>
+
+重打两次了，都飞了500m了，跳出的提示是距离赛季目标还差1m
+
+播放列表里也是未完成，什么鬼 ...</blockquote>
+退出重进试试
+
