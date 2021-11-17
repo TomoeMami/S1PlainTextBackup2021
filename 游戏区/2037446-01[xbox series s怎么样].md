@@ -766,3 +766,12 @@ xgp 有啥游戏
 
 —— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  丿溟牌货  
+##### 78#       发表于 2021-11-17 14:38
+
+月初抢到了一台国行，目前体验良好。主要是家里没4K显示设备 XSS感觉完全够用了，玩地平线5还有光环 FIFA啥的XPG妥妥的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -5793,3 +5793,51 @@ s1巨魔除了把米吃贵p用没有<img src="https://static.saraba1st.com/image
 
 几首bd特典曲都挺棒的，风格各异，期待到时2nd上唱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 527#       发表于 2021-11-17 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53577066&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-17 12:33</a>
+
+https://youtu.be/8u5KfZKd9-Y
+
+找到一个水团小宫有纱的，感觉可以参考一下</blockquote>
+这………………果然就算尺度大……身材也是决定要素啊……但是确实跟COS的风格又不一样，总之还是期待，先研究一下怎么买
+
+*****
+
+####  D麦林  
+##### 528#       发表于 2021-11-17 14:28
+
+我翻鲤鱼老照片的时候看她那几次泳装cos还挺……嗯
+
+主要是肚子挺不错的
+
+是能让腹控欢喜的程度
+
+*****
+
+####  stygian  
+##### 529#       发表于 2021-11-17 14:30
+
+周pb又不是只有尺度大的，当年四千年上的时候就是普通写真，按你鲤鱼姐在日出道后一直的路线我觉得你们还是别期待太多
+
+*****
+
+####  cat1230  
+##### 530#       发表于 2021-11-17 14:40
+
+大尺度肯定没戏，毕竟唐可可人间体。但是泳装还是可以期待的吧。泳装算不算大尺度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 531#       发表于 2021-11-17 14:42
+
+我单纯希望看到不一样的鲤鱼~~~，并没有什么过度期待~~~~~~~~~~~~~~~
+

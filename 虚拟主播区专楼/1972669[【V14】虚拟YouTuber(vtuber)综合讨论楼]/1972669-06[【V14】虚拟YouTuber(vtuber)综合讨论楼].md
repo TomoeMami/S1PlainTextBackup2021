@@ -12415,3 +12415,13 @@ syl，看了E队训练被这个强度吓到了，在自选图里跟高等级观�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实还行。
 
+
+
+*****
+
+####  NBXX  
+##### 8429#       发表于 2021-11-17 14:36
+
+https://note.com/yume_note1205/n/nb2f04ec86d10
+この度ユメノグラフィアは、2021年12月30日をもちましてサービスを終了させていただくこととなりました。
+
