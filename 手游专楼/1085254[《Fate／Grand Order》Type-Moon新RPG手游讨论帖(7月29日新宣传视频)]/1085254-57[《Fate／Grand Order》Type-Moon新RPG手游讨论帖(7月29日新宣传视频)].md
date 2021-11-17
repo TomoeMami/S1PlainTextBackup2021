@@ -3735,3 +3735,12 @@ banana继续绝版中
 
 蓝丸宝具勉强能打阳间本，但是本身蓝卡被扣的太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 84321#       发表于 2021-11-17 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这兰丸是宇宙来的吧 怎么混在信长这边了
+
