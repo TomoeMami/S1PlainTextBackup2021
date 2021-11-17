@@ -5662,3 +5662,116 @@ LOL可还行 刚好今天更新版本 这吊人直播前还打了几把 该夜�
 
 来了来了 我的夜宵时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 5148#       发表于 2021-11-17 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586732&amp;ptid=2018830" target="_blank">Klience 发表于 2021-11-17 22:58</a>
+
+LOL可还行 刚好今天更新版本 这吊人直播前还打了几把 该夜宵时间了</blockquote>
+就说发推说今天更新了想玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5149#       发表于 2021-11-17 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586844&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-11-17 23:05</a>
+
+就说发推说今天更新了想玩啊</blockquote>
+她下午4点就开始玩了 直播前还打了几把 发推做做样子罢了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5150#       发表于 2021-11-17 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586867&amp;ptid=2018830" target="_blank">Klience 发表于 2021-11-17 23:06</a>
+
+她下午4点就开始玩了 直播前还打了几把 发推做做样子罢了</blockquote>
+意料之中，怕不是推迟半小时也是没打完，出门两天回来肯定要好好犒劳自己的嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5151#       发表于 2021-11-17 23:09
+
+这补刀 我舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5152#       发表于 2021-11-17 23:14
+
+是在下路玩ADC吗，被打的喵喵叫，猫总赢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5153#       发表于 2021-11-17 23:15
+
+对面女警加娜美 属实是恶心 再加上致命节奏的改动 符文叠满又能加射程 更加恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5154#       发表于 2021-11-17 23:16
+
+你还是别玩ad了 这版本的改动最大赢家是法师和坦克 你还是把你波比给我交了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5155#       发表于 2021-11-17 23:16
+
+貌似明天还会播LOL<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5156#       发表于 2021-11-17 23:19
+
+这人的ad还是辣眼睛 还不如波比有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5157#       发表于 2021-11-17 23:20
+
+这人的adc我一直很怀疑我去玩几天都能比她强）
+
+*****
+
+####  gongge666  
+##### 5158#       发表于 2021-11-17 23:21
+
+这么多年依然最低画质30帧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">她大概真的没懂电脑的朋友
+
+*****
+
+####  Klience  
+##### 5159#       发表于 2021-11-17 23:21
+
+那你去试试呗 欢迎坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5160#       发表于 2021-11-17 23:22
+
+ 本帖最后由 时间在我手中 于 2021-11-17 23:23 编辑 
+
+不试，对MOBA就没兴趣过，更别提连我都知道ADC新手地狱了。她打瓦我还有点兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Klience  
+##### 5161#       发表于 2021-11-17 23:25
+
+瓦算了吧 画质感感觉像在玩4399网页枪战似的 玩瓦我还不如玩光环或apex呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -13256,3 +13256,14 @@ PG恐怕得修完bug才开
 
 刚才好不容易才凑够五六个人把过关赛过了，在场所有人都非常兴奋，实在是太不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Totokei  
+##### 1203#       发表于 2021-11-17 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586202&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-17 22:30</a>
+啥叫自动化点技能啊？我现在都是手点的</blockquote>
+楼主发过一个按键脚本，可以实现自动化买吉普点技能点扔吉普
+

@@ -11143,3 +11143,48 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 有没有可能其实反派都是被やらねえだ附身的活物，后面还有黑幕
 
+
+
+*****
+
+####  HGCG2  
+##### 2319#       发表于 2021-11-17 23:07
+
+<img src="https://img.saraba1st.com/forum/202111/17/230709t85gj52980iz8gbx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 23:07 上传
+
+大鱿蒸鹅心
+
+*****
+
+####  leleq  
+##### 2320#       发表于 2021-11-17 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586878&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-11-17 23:07</a>
+
+大鱿蒸鹅心</blockquote>
+这是c99？
+
+*****
+
+####  最强惠酱  
+##### 2321#       发表于 2021-11-17 23:18
+
+今晚日本星q重播最终话，没想到那边的评价不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 2322#       发表于 2021-11-17 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586997&amp;ptid=1963832" target="_blank">leleq 发表于 2021-11-17 23:15</a>
+这是c99？</blockquote>
+应该不是，但是被误传挺广（
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -6416,3 +6416,48 @@ pay子那美甲我更倾向于是蒂芬妮色
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 591#       发表于 2021-11-17 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53583616&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-17 19:36</a>
+
+艹，韩国人不早就有了吗，pile算半个啊
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+那爱香还算1/4个呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他们应该说的是像可可岚珠这种角色本身设定是外国人的情况吧
+
+谁知道呢也不算不可能 这企划在韩国人气也不低 而且韩国还有偶像传统
+
+*****
+
+####  player3960  
+##### 592#       发表于 2021-11-17 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586921&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-17 23:09:50</a>
+那爱香还算1/4个呢
+
+他们应该说的是像可可岚珠这种角色本身设定是外国人的情况吧
+
+谁知道呢也不算不可能 这 ...</blockquote>韩国人也可以啦，不过先来个英法的也不错啊，先把五常凑齐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 593#       发表于 2021-11-17 23:23
+
+<img src="https://img.saraba1st.com/forum/202111/17/232255v3m83t0j7j287tt5.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1637162325107.jpg</strong> (179.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 23:22 上传
+
