@@ -5751,3 +5751,36 @@ s1巨魔除了把米吃贵p用没有<img src="https://static.saraba1st.com/image
 
 想听她们唱kpop 风
 
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 523#       发表于 2021-11-17 13:16
+
+第六话看完了
+
+第七话阿B有删减吗，我的种子只有第七话没速度拖不下来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 524#       发表于 2021-11-17 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53577673&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-17 13:16</a>
+第六话看完了
+
+第七话阿B有删减吗，我的种子只有第七话没速度拖不下来 ...</blockquote>
+后面的听说没什么删减，被删的比较严重的就4到6话
+
+*****
+
+####  仟音一心  
+##### 525#       发表于 2021-11-17 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53577673&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-17 13:16</a>
+第六话看完了
+
+第七话阿B有删减吗，我的种子只有第七话没速度拖不下来 ...</blockquote>
+后面应该没有了，加油
+
