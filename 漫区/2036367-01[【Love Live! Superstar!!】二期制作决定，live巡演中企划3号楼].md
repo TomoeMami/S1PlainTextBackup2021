@@ -6207,3 +6207,28 @@ nako够到角色胸，sayu就只能到角色腰了，到时鲤鱼应该能到角
 山根绮估计还是会说的，有看到切片，她玩游戏的时候不小心冒出了中文</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她在其他广播里说自己不会说中文，那句估计是平时被她爸妈带偏的
 
+
+
+*****
+
+####  player3960  
+##### 568#       发表于 2021-11-17 19:51
+
+pay酱这水色的指甲，意味深长<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 569#       发表于 2021-11-17 19:52
+
+pay宝真该学自拍技术了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  emmer  
+##### 570#       发表于 2021-11-17 20:01
+
+虽然但是，佩佩这自拍也很好看吧，我觉得五个人里她的颜值是最能打的
+

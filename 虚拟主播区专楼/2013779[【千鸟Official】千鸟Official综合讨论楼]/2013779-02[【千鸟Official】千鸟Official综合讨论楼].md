@@ -10283,3 +10283,19 @@ ylg功课属实没做好，含金量定型文都没念好，不得不说海子�
 
 白子这样嗯引我看着还是挺不安的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  四叶的花  
+##### 2614#       发表于 2021-11-17 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白子没文静那个能力，嗯引容易惹祸啊
+
+*****
+
+####  IDIDIDID  
+##### 2615#       发表于 2021-11-17 19:59
+
+这个白白文静亲自选的，出了事文静全责，是不是这个道理。
+
