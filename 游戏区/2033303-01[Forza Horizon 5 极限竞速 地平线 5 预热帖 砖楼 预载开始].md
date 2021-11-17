@@ -13101,3 +13101,26 @@ win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  有钱多买小人  
+##### 1189#       发表于 2021-11-17 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574997&amp;ptid=2033303" target="_blank">GrayishWh0 发表于 2021-11-17 10:09</a>
+win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我补啊</blockquote>
+ms说了hub不会更新了，明年年中彻底关掉。
+
+*****
+
+####  AEmpire  
+##### 1190#       发表于 2021-11-17 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574116&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-17 09:00</a>
+
+重打两次了，都飞了500m了，跳出的提示是距离赛季目标还差1m
+
+播放列表里也是未完成，什么鬼 ...</blockquote>
+我也是，永远差1m，后面干脆放弃了
+

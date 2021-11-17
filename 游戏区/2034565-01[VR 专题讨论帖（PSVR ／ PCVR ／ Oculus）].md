@@ -2202,3 +2202,19 @@ https://uploadvr.com/meta-quest-2-10-million-oculus
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 不是一个组做的，VR 是自家团队在弄，应该不用太担心。
 
+
+
+*****
+
+####  droople  
+##### 141#       发表于 2021-11-17 10:49
+
+<blockquote>引用第139楼bypass于2021-11-17 10:38发表的  :
+
+引用:droople 发表于 2021-11-17 10:36看现在gta三部曲的质量很让人担心啊 ......</blockquote>
+@bypass
+
+那看来可以买下一代quest了
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
