@@ -6027,3 +6027,56 @@ nako也去了，剩下三人应该也会发吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 549#       发表于 2021-11-17 18:28
+
+终于有针对中国粉丝的活动了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_2  
+##### 550#       发表于 2021-11-17 18:29
+
+这好，支持
+
+*****
+
+####  优妮可  
+##### 551#       发表于 2021-11-17 18:35
+
+鲤鱼这好忙啊
+
+*****
+
+####  chenflyyy  
+##### 552#       发表于 2021-11-17 18:38
+
+全中文直播，后面还有官方日语烤肉的，算是这垃圾游戏的国服少有起到作用的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 553#       发表于 2021-11-17 18:39
+
+好!
+
+*****
+
+####  wsdbyh  
+##### 554#       发表于 2021-11-17 18:42
+
+杨明同学会不会教鲤鱼几句粤语<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 555#       发表于 2021-11-17 18:42
+
+ll官推也发推了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

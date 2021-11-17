@@ -3513,3 +3513,33 @@ banana继续绝版中
 
 在隔壁瞥到了一个解包，但是帖子已经删了，好像说新增了一个随机任务的函数。
 
+
+
+*****
+
+####  alucardcz  
+##### 84294#       发表于 2021-11-17 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森 兰 丸
+
+*****
+
+####  eden_hazard  
+##### 84295#       发表于 2021-11-17 18:37
+
+出国阿云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊不是出阿国云
+
+*****
+
+####  xiongxingyu  
+##### 84296#       发表于 2021-11-17 18:38
+
+卧槽，两套完全版的灵衣？人气高就是可以为所欲为啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 84297#       发表于 2021-11-17 18:42
+
+新歌出来了，伍越同舟。这系列能出到拾吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

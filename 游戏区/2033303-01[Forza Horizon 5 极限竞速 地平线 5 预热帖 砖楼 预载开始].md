@@ -13212,3 +13212,18 @@ PG恐怕得修完bug才开
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  xsummer  
+##### 1199#       发表于 2021-11-17 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579760&amp;ptid=2033303" target="_blank">yyyxxxrrr 发表于 2021-11-17 15:30</a>
+图都清完了。现在我还记得刚买4的时候，那一周要求用10 000 000的经典老爷车参赛，太绝望了
+
+—— 来自 v ...</blockquote>
+其实，可以租车的，只不过是原厂调教不好开
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

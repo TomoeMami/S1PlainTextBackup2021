@@ -10234,3 +10234,30 @@ syl文静不在的日子里补了好多游戏和番，人也正常多了，老�
 每条动态都回一嘴迟早会回的，不过还是直播里PUA好玩。</blockquote>
 到现在总共就回了我5条评论和2次私信😭😭😭
 
+
+
+*****
+
+####  夜潇箫  
+##### 2609#       发表于 2021-11-17 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">文静是不是也是21号复活，这下可以恰梓鲨流量起飞了
+
+*****
+
+####  小憨1  
+##### 2610#       发表于 2021-11-17 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53582756&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-17 18:33</a>
+文静是不是也是21号复活，这下可以恰梓鲨流量起飞了</blockquote>
+今天麻药劲刚过去，21号就播感觉有点悬
+
+
+
+*****
+
+####  huyuanhao120  
+##### 2611#       发表于 2021-11-17 18:45
+
+输麻了
+
