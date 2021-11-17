@@ -13267,3 +13267,12 @@ PG恐怕得修完bug才开
 啥叫自动化点技能啊？我现在都是手点的</blockquote>
 楼主发过一个按键脚本，可以实现自动化买吉普点技能点扔吉普
 
+
+
+*****
+
+####  Totokei  
+##### 1204#       发表于 2021-11-18 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">被人发现授权页上加上了上汽和蔚来EP9的信息，搞不好上汽给了mini ev
+

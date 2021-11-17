@@ -5862,3 +5862,51 @@ zsyl  这个疯狂看我看我让我想起之前偶然看到的某个IG的选�
 
 压缩 好的 究极无敌下饭局 准备下饭吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 5173#       发表于 2021-11-17 23:48
+
+亚索打摆烂波比，不是坐牢吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Klience  
+##### 5174#       发表于 2021-11-17 23:50
+
+她还带了征服者 反正嘛 老老实实补刀就好 不过这边一个击飞都没有 我看她这局能开几次大招<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 5175#       发表于 2021-11-17 23:54
+
+水银鞋加智慧末刃不是随便打
+
+*****
+
+####  Klience  
+##### 5176#       发表于 2021-11-17 23:57
+
+前提是要有操作和发育好的前提下 你现在看看这人 0/4 对面熬夜波比估计打一套就能把压缩一半血打没 等她出了新装备 拥有护盾提供额外法穿那个装备 那准备说拜拜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 5177#       发表于 2021-11-18 00:01
+
+太快乐了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Klience  
+##### 5178#       发表于 2021-11-18 00:01
+
+e上去被女警狂风拉开距离 进入敌方防御塔攻击范围 还追着 还是15点了吧
+

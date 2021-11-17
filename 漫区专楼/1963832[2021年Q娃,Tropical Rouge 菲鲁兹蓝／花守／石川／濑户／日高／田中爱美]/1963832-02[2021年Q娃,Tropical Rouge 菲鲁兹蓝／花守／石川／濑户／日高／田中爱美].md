@@ -11188,3 +11188,17 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  leleq  
+##### 2323#       发表于 2021-11-17 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53587114&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-11-17 23:22</a>
+
+应该不是，但是被误传挺广（
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+这图竟然没有r18 100%的出包<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
