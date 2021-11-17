@@ -5862,3 +5862,17 @@ https://youtu.be/8u5KfZKd9-Y
 
 你们关注点就是穿啥吗？……………………难道就不期待一下妆容和神情表现还有肢体语言如何呈现这些吗？…………
 
+
+
+*****
+
+####  Karin11974  
+##### 534#       发表于 2021-11-17 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53578741&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-17 14:26</a>
+这………………果然就算尺度大……身材也是决定要素啊……但是确实跟COS的风格又不一样，总之还是期待， ...</blockquote>
+[https://www.fujisan.co.jp/product/2363/new/](https://www.fujisan.co.jp/product/2363/new/)
+这里能买电子版，能用国内visa卡，上次那期次世代美少女鲤鱼上榜的我买了，不过真就只有那一页小图
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
