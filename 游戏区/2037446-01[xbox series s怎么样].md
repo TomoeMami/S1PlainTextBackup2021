@@ -775,3 +775,33 @@ xgp 有啥游戏
 
 月初抢到了一台国行，目前体验良好。主要是家里没4K显示设备 XSS感觉完全够用了，玩地平线5还有光环 FIFA啥的XPG妥妥的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hell1226  
+##### 79#       发表于 2021-11-17 15:28
+
+为了玩儿halo光速去鼓楼提了一台，加价200.
+
+玩儿过今年，明年开春卖了再整台xsx也行。不咋亏。
+
+*****
+
+####  iou90  
+##### 80#       发表于 2021-11-17 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546562&amp;ptid=2037446" target="_blank">江南映月 发表于 2021-11-15 01:34</a>
+
+怎么看现在xgp有啥游戏？？？</blockquote>
+[https://www.xbox.com/en-US/xbox-game-pass/games](https://www.xbox.com/en-US/xbox-game-pass/games)
+
+*****
+
+####  whydevil  
+##### 81#       发表于 2021-11-17 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579740&amp;ptid=2037446" target="_blank">iou90 发表于 2021-11-17 15:29</a>
+[https://www.xbox.com/en-US/xbox-game-pass/games](https://www.xbox.com/en-US/xbox-game-pass/games)</blockquote>
+我看美服XGP游戏比港服多好多啊，是不是换区比较合适？有没有中文是不是哪个区都一样？
+

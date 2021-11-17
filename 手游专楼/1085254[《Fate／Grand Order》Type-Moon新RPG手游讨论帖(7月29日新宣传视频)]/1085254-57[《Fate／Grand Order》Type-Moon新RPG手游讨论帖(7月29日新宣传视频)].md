@@ -3504,3 +3504,12 @@ banana继续绝版中
 
 怎么又维护 难道今天晚上准备直接开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 84293#       发表于 2021-11-17 15:33
+
+在隔壁瞥到了一个解包，但是帖子已经删了，好像说新增了一个随机任务的函数。
+

@@ -13188,3 +13188,16 @@ PG恐怕得修完bug才开
 原来地平线4里那几个每天给钱的产业怎么没有了，刚买了铜堡酒店就剩10000了，怕下周买不起做任务的车了[f:0 ...</blockquote>
 就算不挂机刷，清清地图不就有钱了，每次升级都能抽，我感觉这游戏在没钱的时候特别容易抽125000或者175000。刷刷三星，每个图跑赢一次之类的
 
+
+
+*****
+
+####  yyyxxxrrr  
+##### 1197#       发表于 2021-11-17 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579293&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-17 15:00</a>
+就算不挂机刷，清清地图不就有钱了，每次升级都能抽，我感觉这游戏在没钱的时候特别容易抽125000或者1750 ...</blockquote>
+图都清完了。现在我还记得刚买4的时候，那一周要求用10 000 000的经典老爷车参赛，太绝望了
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
