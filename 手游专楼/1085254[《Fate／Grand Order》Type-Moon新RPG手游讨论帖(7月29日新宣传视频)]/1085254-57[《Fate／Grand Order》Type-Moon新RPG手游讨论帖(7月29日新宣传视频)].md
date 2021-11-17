@@ -3770,3 +3770,32 @@ banana继续绝版中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼节性10票无事发生，跑路了，这池子我要扔1石算我输
 
+
+
+*****
+
+####  qixinno2  
+##### 84325#       发表于 2021-11-17 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585023&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-17 21:17</a>
+
+欧 超绝羡慕 连这都能预感到 太羡慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有几个渣渣角色都是这么抽到的 抽卡前知道这角色比较弱B 但没事干准备扔石头 点抽卡的那一瞬间就感觉要出货了
+
+*****
+
+####  v22325  
+##### 84326#       发表于 2021-11-17 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然发现没有鬼武藏 二十发才来 其他什么都没有 不抽了
+
+*****
+
+####  alucardcz  
+##### 84327#       发表于 2021-11-17 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585168&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-17 21:26</a>
+
+有几个渣渣角色都是这么抽到的 抽卡前知道这角色比较弱B 但没事干准备扔石头 点抽卡的那一瞬间就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧！
+

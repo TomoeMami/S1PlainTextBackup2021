@@ -6335,3 +6335,28 @@ pay这指甲要是可堇这团也太扭了，我姑且当恋堇吧。省一楼�
 
 我觉得liella还是别进llas了，这游戏没救的，我不想为了liella去玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实还不如开个四团新游戏，把垃圾klab踢开
 
+
+
+*****
+
+####  Karin11974  
+##### 582#       发表于 2021-11-17 21:26
+
+募集来信，但是感觉也没啥好写的，也不玩手游，等各位整活了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a92063256  
+##### 583#       发表于 2021-11-17 21:31
+
+LLAS下了又删，始终没玩长<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 584#       发表于 2021-11-17 21:34
+
+想着万代能不能让南梦宫偶像大师组做款ll游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

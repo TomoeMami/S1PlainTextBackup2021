@@ -5454,3 +5454,28 @@ zsyl  又想被池面抱抱了，什么镇静剂
 
 我随便点的少女ray中了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 5122#       发表于 2021-11-17 21:28
+
+你已经中了不知道多少次了（
+
+*****
+
+####  时间在我手中  
+##### 5123#       发表于 2021-11-17 21:28
+
+结果最后还是翻了
+
+syl  因为我经常点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汇聚群光  
+##### 5124#       发表于 2021-11-17 21:32
+
+这个抒情风钢琴伴奏版的少女Ray属实是惊艳到我了，可惜最后还是没绷住
+
