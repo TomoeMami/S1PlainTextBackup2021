@@ -2179,3 +2179,26 @@ https://uploadvr.com/meta-quest-2-10-million-oculus
 
 当然他们内部肯定是知道 XR2 供货给 Oculus 的情况的，所以这个数据偏差不会太大我觉得。
 
+
+
+*****
+
+####  droople  
+##### 139#       发表于 2021-11-17 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574873&amp;ptid=2034565" target="_blank">bypass 发表于 2021-11-17 10:00:03</a>
+"，按现在这个套路应该也是老游戏移植，地铁、死亡岛或者黑道圣徒。</blockquote>看现在gta三部曲的质量很让人担心啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  bypass  
+##### 140#         楼主| 发表于 2021-11-17 10:38
+
+<blockquote>droople 发表于 2021-11-17 10:36
+看现在gta三部曲的质量很让人担心啊
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+不是一个组做的，VR 是自家团队在弄，应该不用太担心。
+

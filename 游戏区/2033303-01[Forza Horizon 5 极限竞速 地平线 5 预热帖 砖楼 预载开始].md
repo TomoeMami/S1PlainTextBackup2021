@@ -13088,3 +13088,16 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我补啊
 
+
+
+*****
+
+####  difa  
+##### 1188#       发表于 2021-11-17 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53573743&amp;ptid=2033303" target="_blank">Robakey 发表于 2021-11-17 08:19</a>
+有没有好哥哥教一下这个赛季分如何简单的获取，赛车肄业生感觉老手ai实在是过于离谱了 ...</blockquote>
+最简单的办法，找个车，抄个调教。然后难度里辅助全开，自动跑。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
