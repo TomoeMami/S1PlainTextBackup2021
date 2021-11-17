@@ -5910,3 +5910,49 @@ zsyl  这个疯狂看我看我让我想起之前偶然看到的某个IG的选�
 
 e上去被女警狂风拉开距离 进入敌方防御塔攻击范围 还追着 还是15点了吧
 
+
+
+*****
+
+####  Klience  
+##### 5179#       发表于 2021-11-18 00:05
+
+好 终于一血了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5180#       发表于 2021-11-18 00:05
+
+我看不懂，但我大受震撼，这种越塔强杀究竟是为了什么····<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 5181#       发表于 2021-11-18 00:07
+
+狗头在干什么
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Klience  
+##### 5182#       发表于 2021-11-18 00:07
+
+没有压缩会拒绝虚线的 卧槽 这拉扯可以啊 ** 这狗头这装备活该被这人拿压缩杀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5183#       发表于 2021-11-18 00:08
+
+这狗头只有一件破舰者 没伤害的 出神分说不定能杀
+
+*****
+
+####  时间在我手中  
+##### 5184#       发表于 2021-11-18 00:23
+
+经典首胜下播
+

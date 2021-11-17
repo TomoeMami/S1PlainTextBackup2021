@@ -3864,3 +3864,21 @@ new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
 
 今儿发的10张护符丢进去，没有豹出云阿国…
 
+
+
+*****
+
+####  白金口袋  
+##### 84335#       发表于 2021-11-18 00:12
+
+10护符+1发十连没中，也没啥继续投入的欲望了
+
+卡面和性能都很微妙，观望一下剧情中的表现吧，要是达到当年莉莉丝那种水平就考虑再捞一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 84336#       发表于 2021-11-18 00:19
+
+咦，阿国不是挺可爱的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
