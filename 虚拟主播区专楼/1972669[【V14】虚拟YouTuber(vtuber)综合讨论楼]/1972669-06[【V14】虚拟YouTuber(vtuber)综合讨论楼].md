@@ -12507,3 +12507,12 @@ https://note.com/yume_note1205/n/nb2f04ec86d10
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按着顺序kr还有多久走in的老路了
 
+
+
+*****
+
+####  IDIDIDID  
+##### 8436#       发表于 2021-11-17 16:46
+
+怎么看都是索尼在削田角的权，当然也是田角这堆企划拿不出成绩就是了。
+

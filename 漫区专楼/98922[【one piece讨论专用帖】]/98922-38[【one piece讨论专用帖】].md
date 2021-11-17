@@ -7612,3 +7612,24 @@ PS.女澡堂和海贼王你竟然选择了海贼王（划掉）
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  真红眼教授  
+##### 56083#       发表于 2021-11-17 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53578681&amp;ptid=98922" target="_blank">gg326 发表于 2021-11-17 14:21</a>
+
+快进到被阎魔夺舍，劈断阎魔</blockquote>
+厨子，如果战斗结束后我变得不是我了，一定要把我杀掉
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acatv  
+##### 56084#       发表于 2021-11-17 16:46
+
+尾田：草帽团里有个人升级战力要靠装备，是谁我不说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
