@@ -840,3 +840,12 @@ xgp三年200块怎么拿到的？一个月不是都要9刀么，还是家庭套�
 
 —— 来自 Xiaomi M2004J7AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hui.w  
+##### 85#       发表于 2021-11-17 17:30
+
+建议常驻李家坡，中文游戏最多
+

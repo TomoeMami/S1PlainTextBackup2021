@@ -12525,3 +12525,47 @@ https://note.com/yume_note1205/n/nb2f04ec86d10
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 8438#       发表于 2021-11-17 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448064&amp;ptid=1972669" target="_blank">free 发表于 2021-11-7 10:26</a>
+
+最近研究了一下这个推特上热火朝天的VtuberFesJapan（就是原来的nico超会议）海选赛规则
+
+https://vtuberfes ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/17/173033pqjy2osykk2mozy3.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (332.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202111/17/173033ell0m5ikgwe5xnwl.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (371.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202111/17/173033ms8geuo5n8wz5uek.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (343.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 17:30 上传
+
+*****
+
+####  死体残留  
+##### 8439#       发表于 2021-11-17 17:37
+
+新手部门好地狱啊
+
