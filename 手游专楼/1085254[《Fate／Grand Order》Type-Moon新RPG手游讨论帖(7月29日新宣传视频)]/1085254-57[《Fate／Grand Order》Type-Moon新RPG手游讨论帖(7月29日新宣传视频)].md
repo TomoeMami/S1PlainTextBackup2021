@@ -3592,3 +3592,89 @@ banana继续绝版中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页
 
+
+
+*****
+
+####  alucardcz  
+##### 84304#       发表于 2021-11-17 19:05
+
+这卡面也太摸  几乎没有变化
+
+*****
+
+####  承尘  
+##### 84305#       发表于 2021-11-17 19:05
+
+绿卡术阶单体，在这叠debuff呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 84306#       发表于 2021-11-17 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cv居然是光头
+
+*****
+
+####  zore  
+##### 84307#       发表于 2021-11-17 19:08
+
+阿国的卡面有点普通啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yzj134100  
+##### 84308#       发表于 2021-11-17 19:08
+
+居然出了，想要眼罩妹多点
+
+*****
+
+####  xiongxingyu  
+##### 84309#       发表于 2021-11-17 19:09
+
+3发11连出货，很好，虽然5星礼装还没抽到。恭喜政委登陆月球，而且背后的高达是光头梶田，组长你感觉如何了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84310#       发表于 2021-11-17 19:14
+
+阿国这花里胡哨的但其实压根没啥特色，满破和三破相似度也太高了，兰丸满破变病娇了感觉
+
+*****
+
+####  里村紅葉  
+##### 84311#       发表于 2021-11-17 19:15
+
+尾田光头这是CV出道了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 84312#       发表于 2021-11-17 19:16
+
+艹 一发呼符出货 切到隔壁发现卡池还在 两发出了金时 还剩7张可以备战12月了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84313#       发表于 2021-11-17 19:17
+
+<blockquote>引用第84310楼里村紅葉于2021-11-17 19:15发表的  :
+
+尾田光头这是CV出道了？</blockquote>
+他配过不少东西了……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  上坂莲华  
+##### 84314#       发表于 2021-11-17 19:18
+
+40连就出了第4宝泳装信长，等12石再拼一枪了
+

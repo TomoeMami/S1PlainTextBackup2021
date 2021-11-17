@@ -17871,3 +17871,16 @@ Something feels unfair
 
 太久没登推特，被锁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cctvyt1  
+##### 13497#       发表于 2021-11-17 19:02
+
+不公平论早就车过好几轮了 白皮还是太落后版本
+
+反正结论就那样 什么公司不管你寄吧谁 什么摆烂没碍着其他人
+
+看百鬼众哪时先蚌不住更有趣<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

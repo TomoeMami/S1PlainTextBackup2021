@@ -6089,3 +6089,56 @@ ll官推也发推了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 好啊！好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 557#       发表于 2021-11-17 19:03
+
+好耶！
+
+*****
+
+####  名津流  
+##### 558#       发表于 2021-11-17 19:10
+
+官推这条下面的留言看到不少韩国人说下个系列一定要有韩国角色<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 559#       发表于 2021-11-17 19:20
+
+<img src="https://img.saraba1st.com/forum/202111/17/192005c0q486g48j0j119i.jpg" referrerpolicy="no-referrer">
+
+<strong>20211117_191620.jpg</strong> (341.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202111/17/192005eo0wa00ax50ggq05.jpg" referrerpolicy="no-referrer">
+
+<strong>20211117_191622.jpg</strong> (470.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202111/17/192005s0rxdh9l7vlhmxi9.jpg" referrerpolicy="no-referrer">
+
+<strong>20211117_191623.jpg</strong> (374.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202111/17/192006cj5z4a4p54e4sphj.jpg" referrerpolicy="no-referrer">
+
+<strong>20211117_191625.jpg</strong> (283.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 19:20 上传
+
