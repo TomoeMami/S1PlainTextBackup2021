@@ -12516,3 +12516,12 @@ https://note.com/yume_note1205/n/nb2f04ec86d10
 
 怎么看都是索尼在削田角的权，当然也是田角这堆企划拿不出成绩就是了。
 
+
+
+*****
+
+####  hulaoda007  
+##### 8437#       发表于 2021-11-17 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
