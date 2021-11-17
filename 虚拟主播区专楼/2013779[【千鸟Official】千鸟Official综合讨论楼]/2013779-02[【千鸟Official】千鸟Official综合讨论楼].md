@@ -10009,3 +10009,22 @@ syl 立刻白魅力时刻
 sly扣鹅是什么很严重的减益吗？我新参真心求问 ...</blockquote>
 加减鹅都没啥用，但是负鹅去外野钓鱼更容易被版主砍头
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2583#       发表于 2021-11-17 08:53
+
+外野都知道管人区鹅通货膨胀严重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 2584#       发表于 2021-11-17 08:55
+
+白白的录播出了
+[https://www.bilibili.com/video/B ... _id_from=444.41.0.0](https://www.bilibili.com/video/BV1xQ4y1U7pM?spm_id_from=444.41.0.0)
+
+不知道会不会引来一波大的
+

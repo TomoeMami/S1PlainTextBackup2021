@@ -13024,3 +13024,16 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 有没有好哥哥教一下这个赛季分如何简单的获取，赛车肄业生感觉老手ai实在是过于离谱了 ...</blockquote>
 找个好哥哥一起排啦<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1182#       发表于 2021-11-17 09:00
+
+<[img src="https://i.loli.net/2021/11/17/ev4Fj3ErRht6agA.png" referrerpolicy="no-referrer">
+
+重打两次了，都飞了500m了，跳出的提示是距离赛季目标还差1m
+
+播放列表里也是未完成，什么鬼
+
