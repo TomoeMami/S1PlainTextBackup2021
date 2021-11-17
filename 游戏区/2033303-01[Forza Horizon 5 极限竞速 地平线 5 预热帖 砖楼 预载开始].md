@@ -13004,3 +13004,12 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 本身也是s1最好开的后驱之一
 
+
+
+*****
+
+####  Robakey  
+##### 1180#       发表于 2021-11-17 08:19
+
+有没有好哥哥教一下这个赛季分如何简单的获取，赛车肄业生感觉老手ai实在是过于离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
