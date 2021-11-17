@@ -12617,3 +12617,12 @@ bora这基本是转生宣言了吧……
 <strong>ステイホーム需要で収益が半年間で約23.4倍に！「キャストとふたりきりで話せるVR体験」のユメノグラフィアがさらなる事業基盤強化へ。</strong>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在回过头来看这篇一路高歌猛进到砍企划，精彩
 
+
+
+*****
+
+####  FCCHua  
+##### 8444#       发表于 2021-11-17 23:35
+
+弃医从管...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

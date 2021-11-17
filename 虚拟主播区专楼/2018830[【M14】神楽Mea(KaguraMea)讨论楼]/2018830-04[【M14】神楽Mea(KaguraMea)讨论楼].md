@@ -5775,3 +5775,90 @@ LOL可还行 刚好今天更新版本 这吊人直播前还打了几把 该夜�
 
 瓦算了吧 画质感感觉像在玩4399网页枪战似的 玩瓦我还不如玩光环或apex呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 5162#       发表于 2021-11-17 23:27
+
+牛逼 我就没有见过ad敢往tank走 还被人打了一套 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5163#       发表于 2021-11-17 23:28
+
+问题是黑楼无限和apex她更不可能玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">apex要玩也是兰熊那几个人带着玩才有点可能了
+
+*****
+
+####  T_Hb  
+##### 5164#       发表于 2021-11-17 23:28
+
+唉，为什么就图奇卡呢，怪事情
+
+*****
+
+####  时间在我手中  
+##### 5165#       发表于 2021-11-17 23:28
+
+调分辨率呗，实在不行可以去看转播，摇头，我反正比TC流畅多了
+
+*****
+
+####  Klience  
+##### 5166#       发表于 2021-11-17 23:29
+
+我又没指望她玩这些 她玩个lol能给我带来惊奇感我就很感谢她了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5167#       发表于 2021-11-17 23:31
+
+ 本帖最后由 时间在我手中 于 2021-11-17 23:33 编辑 
+
+我不玩的游戏看起来没啥劲只能说
+
+syl  这什么千里突袭救场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一首剑戟怒涛献上嗷
+
+zsyl  这个疯狂看我看我让我想起之前偶然看到的某个IG的选手啥的吧，也是LOL的一直说看我看我看我的剪辑，然后还是死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5168#       发表于 2021-11-17 23:32
+
+别玩ad了 你玩个波比不比你ad强吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5169#       发表于 2021-11-17 23:37
+
+被打的胡言乱语
+
+*****
+
+####  Klience  
+##### 5170#       发表于 2021-11-17 23:41
+
+17级打15级 随便打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5171#       发表于 2021-11-17 23:42
+
+赢了还是输了，没看到
+
+这人接受点播英雄是吧）
+
+*****
+
+####  Klience  
+##### 5172#       发表于 2021-11-17 23:43
+
+压缩 好的 究极无敌下饭局 准备下饭吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
