@@ -5238,3 +5238,19 @@ e哥这算什么呢，退坑反踩吗<img src="https://static.saraba1st.com/imag
 
 我不是好东西也不等于我是尾巴区的人，这个道理有什么很难理解的吗，亦或者是说我2013年玩贴吧的时候有vtuber这个概念了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 5098#       发表于 2021-11-17 11:31
+
+那08年玩贴吧的我是不是超级老害了
+
+*****
+
+####  草牛  
+##### 5099#       发表于 2021-11-17 11:32
+
+v8群是我爹，不准骂他
+
