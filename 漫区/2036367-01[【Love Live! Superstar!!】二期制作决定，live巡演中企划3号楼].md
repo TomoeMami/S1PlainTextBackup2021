@@ -5784,3 +5784,12 @@ s1巨魔除了把米吃贵p用没有<img src="https://static.saraba1st.com/image
 第七话阿B有删减吗，我的种子只有第七话没速度拖不下来 ...</blockquote>
 后面应该没有了，加油
 
+
+
+*****
+
+####  chenflyyy  
+##### 526#       发表于 2021-11-17 13:27
+
+几首bd特典曲都挺棒的，风格各异，期待到时2nd上唱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
