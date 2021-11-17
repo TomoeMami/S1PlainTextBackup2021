@@ -6142,3 +6142,68 @@ ll官推也发推了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 2021-11-17 19:20 上传
 
+
+
+*****
+
+####  chenflyyy  
+##### 560#       发表于 2021-11-17 19:29
+
+不知道到时在哪里直播，那个bilibili秋叶原2？希望官方趁这个机会搞个正式稳定运营的B站号吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 561#       发表于 2021-11-17 19:31
+
+nako够到角色胸，sayu就只能到角色腰了，到时鲤鱼应该能到角色肩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 562#       发表于 2021-11-17 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 563#       发表于 2021-11-17 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。。。。。。。pay宝这自拍 鱼啊 好歹教教吧 这黑眼圈真的，，，，，，
+
+*****
+
+####  player3960  
+##### 564#       发表于 2021-11-17 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53583287&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-17 19:10:59</a>
+官推这条下面的留言看到不少韩国人说下个系列一定要有韩国角色</blockquote>艹，韩国人不早就有了吗，pile算半个啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 565#       发表于 2021-11-17 19:36
+
+哇塞佩佩做指甲了！？水蓝色可还行
+
+*****
+
+####  ikamoyu  
+##### 566#       发表于 2021-11-17 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53583597&amp;ptid=2036367" target="_blank"> 中野四葉 发表于 2021-11-17 19:34</a> 什么时候imas也拉一下卢婷和山根綺俩人来联动啊，不过这俩人估计都不认识而且中文都不会说 </blockquote>
+山根绮估计还是会说的，有看到切片，她玩游戏的时候不小心冒出了中文来自: iPhone客户端
+
+*****
+
+####  中野四葉  
+##### 567#       发表于 2021-11-17 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53583670&amp;ptid=2036367" target="_blank">ikamoyu 发表于 2021-11-17 19:40</a>
+
+山根绮估计还是会说的，有看到切片，她玩游戏的时候不小心冒出了中文</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她在其他广播里说自己不会说中文，那句估计是平时被她爸妈带偏的
+

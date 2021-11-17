@@ -3678,3 +3678,31 @@ banana继续绝版中
 
 40连就出了第4宝泳装信长，等12石再拼一枪了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84315#       发表于 2021-11-17 19:31
+
+森兰丸的声优是东海帝皇，联想到之前妖兰的无声铃鹿和妖崔的特别周，制作组有马厨石锤了。
+
+*****
+
+####  里村紅葉  
+##### 84316#       发表于 2021-11-17 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53583390&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-11-17 19:17</a>
+
+他配过不少东西了……
+
+----发送自 STAGE1 App for Android.</blockquote>
+翻了翻发现确实月英学园那会儿就在配了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 84317#       发表于 2021-11-17 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">兰丸回收果然给砍了亿点点
+
