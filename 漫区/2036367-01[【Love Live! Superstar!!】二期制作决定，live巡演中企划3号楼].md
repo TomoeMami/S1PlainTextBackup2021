@@ -6360,3 +6360,12 @@ LLAS下了又删，始终没玩长<img src="https://static.saraba1st.com/image/s
 
 想着万代能不能让南梦宫偶像大师组做款ll游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蜜梨柑  
+##### 585#       发表于 2021-11-17 21:48
+
+那我觉得不如指望se，起码负责开发了街机版和主机版游戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

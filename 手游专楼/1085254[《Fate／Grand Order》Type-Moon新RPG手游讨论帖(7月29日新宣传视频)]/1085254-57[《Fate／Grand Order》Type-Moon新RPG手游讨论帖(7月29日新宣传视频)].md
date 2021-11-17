@@ -3799,3 +3799,32 @@ banana继续绝版中
 有几个渣渣角色都是这么抽到的 抽卡前知道这角色比较弱B 但没事干准备扔石头 点抽卡的那一瞬间就 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧！
 
+
+
+*****
+
+####  qixinno2  
+##### 84328#       发表于 2021-11-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585442&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-17 21:39</a>
+
+欧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">欧个蛋蛋 摩根之后三个多月才出的首个五星就是个弱渣
+
+*****
+
+####  alucardcz  
+##### 84329#       发表于 2021-11-17 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585489&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-17 21:43</a>
+
+欧个蛋蛋 摩根之后三个多月才出的首个五星就是个弱渣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">new血赚 这游戏99%的卡基本都用不上不是常识吗
+
+*****
+
+####  Jamaisvu  
+##### 84330#       发表于 2021-11-17 21:48
+
+新活动这个赛博朋克混搭日本昭和风，莫名地给我一种忍者杀手的既视感...
+
