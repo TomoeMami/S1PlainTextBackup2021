@@ -10205,3 +10205,21 @@ syl文静不在的日子里补了好多游戏和番，人也正常多了，老�
 
 ✋人之初版本真不行，除非静静回我评论
 
+
+
+*****
+
+####  tankai  
+##### 2606#       发表于 2021-11-17 14:50
+
+太肤浅了，你要学会鱼钓让她读的技术。
+
+*****
+
+####  tankai  
+##### 2607#       发表于 2021-11-17 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53577704&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-17 13:18</a>
+为什么没回我😭我🦈了你😭😭😭😭</blockquote>
+每条动态都回一嘴迟早会回的，不过还是直播里PUA好玩。
+
