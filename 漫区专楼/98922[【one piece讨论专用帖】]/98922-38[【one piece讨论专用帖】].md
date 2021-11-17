@@ -7633,3 +7633,12 @@ PS.女澡堂和海贼王你竟然选择了海贼王（划掉）
 
 尾田：草帽团里有个人升级战力要靠装备，是谁我不说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  24k纯帅  
+##### 56085#       发表于 2021-11-17 17:54
+
+这刀还会听歌呀
+

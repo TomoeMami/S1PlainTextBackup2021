@@ -12569,3 +12569,22 @@ https://vtuberfes ...</blockquote>
 
 新手部门好地狱啊
 
+
+
+*****
+
+####  free  
+##### 8440#       发表于 2021-11-17 17:52
+
+也不知道nico整这种公开斗虫打榜活动是不是和叔叔学的，天天看这些人推上拉票可有意思了，各种真情实感小作文“我要上超会议！”
+
+给你们看看challenger组第三那个弃医从管的老姐，这个小作文真的给我看惊呆了
+
+<img src="https://img.saraba1st.com/forum/202111/17/175205v0no0bi42i0ri0ng.jpg" referrerpolicy="no-referrer">
+
+<strong>弃医从管.jpg</strong> (858.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 17:52 上传
+
