@@ -5086,3 +5086,643 @@ twi:baiyuBYY
 
 <img src="https://img.saraba1st.com/forum/202111/16/095511z7u0p71qqdo704qx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 459#       发表于 2021-11-16 13:44
+
+第五话看完，还行
+
+
+
+*****
+
+####  仟音一心  
+##### 460#       发表于 2021-11-16 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564324&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-16 13:44</a>
+第五话看完，还行</blockquote>
+4～6都还行的
+
+*****
+
+####  仟音一心  
+##### 461#       发表于 2021-11-16 13:59
+
+nimuyaah
+
+B9100EDB-04FC-45C4-BF2A-579E2D974E98.jpeg
+(228.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 13:59 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/135923iopeyw1zyq4df4zx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cybernetics31  
+##### 462#       发表于 2021-11-16 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">各地都在搞跨年live线下观影聚会了，社畜只能表示羡慕了…………
+
+*****
+
+####  普之舜舜  
+##### 463#       发表于 2021-11-16 16:34
+
+来楼里宣传一波拉拉跨年演唱会的线下组织qq群：
+重庆：981588821
+深圳场：634834909(暂时满员)
+广州场：415426527
+上海场：602504572
+北京场：836039636
+台州场：836663244
+福州场：675069931
+香港场：684779604
+西安场：703061647
+武汉场：670488147
+哈尔滨场：616206087
+沈阳场：746046878
+杭州场，长沙场敬请期待
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 464#       发表于 2021-11-16 16:34
+
+我dd
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 465#       发表于 2021-11-16 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566682&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-16 16:31</a>
+各地都在搞跨年live线下观影聚会了，社畜只能表示羡慕了…………</blockquote>
+可以看现场转播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  边境的  
+##### 466#       发表于 2021-11-16 16:39
+
+其实在群里和群友腾讯会议一边看一边吹水也蛮不错的，楼主加把劲整个q群出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 467#       发表于 2021-11-16 16:43
+
+显然，鲤鱼姐比花田十辉更慬得观众们想看些什么<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  iuhehc  
+##### 468#       发表于 2021-11-16 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53560150&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-16 07:49</a>
+很正常吧？不会念不是一说就会吗？平时肯定也问不少不懂的词，不是太难的会提一下应该也能懂，估计都习惯了 ...</blockquote>
+我也觉得平时问了不少词，生放送就有种妈妈教孩子的既视感（?）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  仟音一心  
+##### 469#       发表于 2021-11-16 17:07
+
+这就是外星人梗？
+
+D5D900AD-2F53-44B8-A2D2-FA6850BAB839.jpeg
+(378.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/170649f7vmwwonhponmanp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+40493B62-C4CD-4B26-A0F7-29BB7A7AD672.jpeg
+(350.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/170649c5hv866k09ahokq5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 470#       发表于 2021-11-16 17:07
+
+这就是外星人梗？
+
+D64CC61D-7FA7-4758-93FA-0CE41ABC30D2.jpeg
+(185.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/170716f9es4s47ea9eda9y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+74C1FB9F-2115-40C4-A139-D5DDD50BFFBC.jpeg
+(206.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/170714f7grhcnx167x5c7g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 471#       发表于 2021-11-16 17:23
+
+我还是约着妹子一起看或者自己看好了…………都是不认识的人…………很尬……
+
+
+
+*****
+
+####  cybernetics31  
+##### 472#       发表于 2021-11-16 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然pay宝之前在用美颜，还是一键美颜那种
+
+
+
+*****
+
+####  K·os  
+##### 473#       发表于 2021-11-16 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566743&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-11-16 16:34</a>
+
+楼里宣传一波拉拉跨年演唱会的线下组织qq群：
+
+深圳场：634834909</blockquote>
+活动筹备那个群的群号搜索不到啊
+
+*****
+
+####  蜜梨柑  
+##### 474#       发表于 2021-11-16 18:29
+
+线下一起打尻才有氛围啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 475#       发表于 2021-11-16 18:33
+
+鲤鱼快教教佩自拍啊…………
+
+
+
+*****
+
+####  emmer  
+##### 476#       发表于 2021-11-16 18:55
+
+不擅长修图的JK多可爱啊，佩佩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  index  
+##### 477#       发表于 2021-11-16 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566820&amp;ptid=2036367" target="_blank">边境的 发表于 2021-11-16 16:39</a>
+
+其实在群里和群友腾讯会议一边看一边吹水也蛮不错的，楼主加把劲整个q群出来啊 ...</blockquote>
+推荐一个621802820 虽然人不是很多但每周都有去现场的大佬
+
+
+
+*****
+
+####  Makinohara  
+##### 478#       发表于 2021-11-16 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">海外党准备自己看，小国太难找到同好了
+
+*****
+
+####  lj205  
+##### 479#       发表于 2021-11-16 20:18
+
+694772453
+
+我加了这个群
+
+
+
+*****
+
+####  优妮可  
+##### 480#       发表于 2021-11-16 20:51
+
+<img src="https://img.saraba1st.com/forum/202111/16/205148pu5ozzwzv4i55ivw.jpg" referrerpolicy="no-referrer">
+
+<strong>20211116_204540.jpg</strong> (201.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 20:51 上传
+
+<img src="https://img.saraba1st.com/forum/202111/16/205148z5vfbugwqtbb0ub9.jpg" referrerpolicy="no-referrer">
+
+<strong>20211116_204543.jpg</strong> (417.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 20:51 上传
+
+吃东西这张看的好心动
+
+
+
+*****
+
+####  lj205  
+##### 481#       发表于 2021-11-16 21:09
+
+鲤鱼超话粉破万了，我加入的时候貌似才3000出头<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无聊的我  
+##### 482#       发表于 2021-11-16 21:11
+
+叔叔家的10-12集有删减吗？  没会员看不到。。 
+
+*****
+
+####  lj205  
+##### 483#       发表于 2021-11-16 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570132&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-16 20:51</a>
+吃东西这张看的好心动</blockquote>
+真实美女<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 484#       发表于 2021-11-16 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570320&amp;ptid=2036367" target="_blank">无聊的我 发表于 2021-11-16 21:11</a>
+叔叔家的10-12集有删减吗？  没会员看不到。。</blockquote>
+好像没有，就是字幕翻译不太行
+
+*****
+
+####  cxj649  
+##### 485#       发表于 2021-11-16 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570320&amp;ptid=2036367" target="_blank">无聊的我 发表于 2021-11-16 21:11</a>
+
+叔叔家的10-12集有删减吗？  没会员看不到。。</blockquote>
+没有，顺便之前无印卖肉几个场景其实没删，所以是看审核和时期，估计9月风声紧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  player3960  
+##### 486#       发表于 2021-11-16 21:29
+
+什么盛世美颜<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 487#       发表于 2021-11-16 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超话人多有时候会塞粉就是了
+
+*****
+
+####  lj205  
+##### 488#       发表于 2021-11-16 21:33
+
+我是不在超话里说话啦，就每天打个卡，实在不知道说啥，老了激情不起来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cybernetics31  
+##### 489#       发表于 2021-11-16 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">果然鲤鱼是可香头子
+
+*****
+
+####  lj205  
+##### 490#       发表于 2021-11-16 22:04
+
+指甲修的真干净
+
+
+
+*****
+
+####  lj205  
+##### 491#       发表于 2021-11-16 22:29
+
+鲤鱼和打铁啊这，临睡觉给我们打鸡血是怎么回事？还让不让人睡觉了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 492#       发表于 2021-11-16 22:29
+
+<img src="https://img.saraba1st.com/forum/202111/16/222922n1k9iuhi9e02okvk.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (47.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 22:29 上传
+
+最近浓度超标了啊
+
+首先我不是百合豚，然后.jpg
+
+*****
+
+####  chenflyyy  
+##### 493#       发表于 2021-11-16 22:36
+
+所以sayu到底说了什么，鲤鱼姐学会卖关子了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 494#       发表于 2021-11-16 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 495#       发表于 2021-11-16 22:46
+
+推上一堆女粉晒指甲，鲤鱼居然拉了那么多女粉<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  优妮可  
+##### 496#       发表于 2021-11-16 22:57
+
+摄糖量过高了
+
+*****
+
+####  cybernetics31  
+##### 497#       发表于 2021-11-16 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">真好啊，真好啊，果然这企划就是真人香
+
+
+
+*****
+
+####  cybernetics31  
+##### 498#       发表于 2021-11-16 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">马内甲也发日常的推了，这是要加入战场的节奏啊
+
+*****
+
+####  chenflyyy  
+##### 499#       发表于 2021-11-16 23:13
+
+看马内甲的日常推时有种云养女儿的感觉
+
+*****
+
+####  Norkey1  
+##### 500#       发表于 2021-11-16 23:13
+
+鲤鱼这孩子，有成为重女的潜质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 501#       发表于 2021-11-16 23:16
+
+什么鲤鱼的诱惑
+
+
+
+*****
+
+####  lj205  
+##### 502#       发表于 2021-11-16 23:56
+
+现在估计在一脸得意地巡视各sns 
+
+
+
+*****
+
+####  lj205  
+##### 503#       发表于 2021-11-17 00:20
+
+原来那之前打铁发了跟佩佩飞机坐一起的推，这波是怎么回事？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  稀勢のささ  
+##### 504#       发表于 2021-11-17 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">台上单防不够推上也得防是吧
+
+
+
+*****
+
+####  名津流  
+##### 505#       发表于 2021-11-17 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571959&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-16 23:56</a>
+
+现在估计在一脸得意地巡视各sns</blockquote>
+泥潭巨魔钓鱼时会不会也是类似的心态，发一个语不惊人死不休的言论之后然后就得意的躲在一旁观察这群为此吵得鸡飞狗跳的人类，真是其乐无穷
+
+你鱼炸可香豚也是故意操纵比赛的嫌疑，天天刻意造糖，然后再将糖扔到各SNS的粉丝堆里看本来平静的社区瞬间爆炸，肯定也是一脸坏笑地在幕后偷着乐
+
+
+
+*****
+
+####  Norkey1  
+##### 506#       发表于 2021-11-17 07:20
+
+s1巨魔除了把米吃贵p用没有<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+鲤鱼主人还能让人痛并快乐着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+鲤门<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  TTAA  
+##### 507#       发表于 2021-11-17 07:36
+
+指甲修得很漂亮
+
+
+
+*****
+
+####  lj205  
+##### 508#       发表于 2021-11-17 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571529&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-11-16 23:13</a>
+鲤鱼这孩子，有成为重女的潜质</blockquote>
+别上当，就跟前面名津流说的那样，她就是扔个鱼饵炸鱼，古参会不知道粉丝心理？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  player3960  
+##### 509#       发表于 2021-11-17 08:40
+
+图一乐，别上头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  lj205  
+##### 510#       发表于 2021-11-17 10:00
+
+买起来！！！！！！！！！！！！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/17/100039fy5v1wqe1u5cya5w.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211117095947.jpg</strong> (207.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 10:00 上传
+
+
+
+*****
+
+####  优妮可  
+##### 511#       发表于 2021-11-17 11:26
+
+<blockquote>lj205 发表于 2021-11-17 10:00
+买起来！！！！！！！！！！！！！！！！！！！</blockquote>
+这啥？
+
+*****
+
+####  Karin11974  
+##### 512#       发表于 2021-11-17 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53576087&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-17 11:26</a>
+这啥？</blockquote>
+鲤鱼上playboy
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  D麦林  
+##### 513#       发表于 2021-11-17 11:51
+
+能不能整点……就是那种……rtc喜闻乐见的……那种……<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Karin11974  
+##### 514#       发表于 2021-11-17 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53576444&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-17 11:51</a>
+能不能整点……就是那种……rtc喜闻乐见的……那种……</blockquote>
+你鲤鱼姐的平板，不要公开处刑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 515#       发表于 2021-11-17 11:59
+
+毕竟她的COS照我看着只觉得“嗯，可以，挺可爱的”……………………实在想不出能多露骨…………
+
+有没有谁发一下这杂志其他人的照片给参考一下
+
+*****
+
+####  cybernetics31  
+##### 516#       发表于 2021-11-17 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看过她最瑟的也就露肚脐和大腿那种
+
+
+
+*****
+
+####  cat1230  
+##### 517#       发表于 2021-11-17 12:27
+
+只要长得可爱，身材平一点无所谓，2次元里也是萌点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，可以瑟瑟。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Karin11974  
+##### 518#       发表于 2021-11-17 12:33
+
+[https://youtu.be/8u5KfZKd9-Y](https://youtu.be/8u5KfZKd9-Y)
+找到一个水团小宫有纱的，感觉可以参考一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安瓦尔阿明  
+##### 519#       发表于 2021-11-17 12:38
+
+一般尺度比较大，会有泳装等比较轻薄的服装。大家可以试着在微博搜索“週プレ”看看。
+

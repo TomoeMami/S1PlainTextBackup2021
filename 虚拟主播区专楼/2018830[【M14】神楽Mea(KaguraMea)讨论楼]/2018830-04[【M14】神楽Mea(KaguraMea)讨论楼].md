@@ -4819,3 +4819,514 @@ neet的末日
 
 又是啥也没有的一天吗
 
+
+
+*****
+
+####  边境的  
+##### 5055#       发表于 2021-11-16 13:20
+
+请问s1有mea的讨论群吗？by很久找不到组织的小萌新管人粉<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  雪风utopia  
+##### 5056#       发表于 2021-11-16 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564018&amp;ptid=2018830" target="_blank">边境的 发表于 2021-11-16 13:20</a>
+请问s1有mea的讨论群吗？by很久找不到组织的小萌新管人粉</blockquote>
+离s1相关的群远点，会变得不幸<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5057#       发表于 2021-11-16 13:38
+
+台球早就没正经的吊人粉丝群了，不如说本来也没有
+
+*****
+
+####  Dualist彩  
+##### 5058#       发表于 2021-11-16 13:45
+
+每一只天狗都是能独当一面的个体，弱者才会抱团取暖，天狗在黑泥中绽放，在抗压中强大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Joffre✔  
+##### 5059#       发表于 2021-11-16 13:56
+
+<blockquote>边境的 发表于 2021-11-16 13:20
+请问s1有mea的讨论群吗？by很久找不到组织的小萌新管人粉</blockquote>
+真萌新就去同好会粉丝群吧
+
+
+
+*****
+
+####  十九号大侠  
+##### 5060#       发表于 2021-11-16 14:34
+
+加群没啥用哇，都不说话的，
+
+
+
+*****
+
+####  肥到终点  
+##### 5061#       发表于 2021-11-16 14:57
+
+72278374 同好会一群
+
+*****
+
+####  往世雷书  
+##### 5062#       发表于 2021-11-16 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564349&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2021-11-16 13:45</a>
+每一只天狗都是能独当一面的个体，弱者才会抱团取暖，天狗在黑泥中绽放，在抗压中强大 ...</blockquote>
+这个确实，报团遇到猪队友反而整得自己灰头土脸，直接只代表自己就完事了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  雪风utopia  
+##### 5063#       发表于 2021-11-16 16:26
+
+今日の播会有吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5064#       发表于 2021-11-16 16:28
+
+忙
+
+*****
+
+####  时间在我手中  
+##### 5065#       发表于 2021-11-16 16:29
+
+才第二天，周四再见吧。
+
+
+
+*****
+
+####  GeraltzRivii  
+##### 5066#       发表于 2021-11-16 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564018&amp;ptid=2018830" target="_blank">边境的 发表于 2021-11-16 13:20</a>
+请问s1有mea的讨论群吗？by很久找不到组织的小萌新管人粉</blockquote>
+s1的m楼群已经变成asoul群了。加同好会粉丝群得了。
+
+*****
+
+####  璃絵和花瑠  
+##### 5067#       发表于 2021-11-16 19:21
+
+不是，哪来这么多的新人，都要入土了的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T_Hb  
+##### 5068#       发表于 2021-11-16 19:41
+
+一个人也叫这么多吗
+
+
+
+*****
+
+####  往世雷书  
+##### 5069#       发表于 2021-11-16 19:50
+
+ 本帖最后由 往世雷书 于 2021-11-16 19:55 编辑 
+
+新人还是有的，至于是什么人因为什么动机入坑，就完全是个谜了
+我很想挨个私信这几十人上百人，你们是因为什么如此想不开点她的关注
+
+<img src="https://img.saraba1st.com/forum/202111/16/194953hut7bzzfy3997ivr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211116_194930_com.UCMobile_edit_882164906744035.jpg</strong> (135.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 19:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2014720  
+##### 5070#       发表于 2021-11-16 19:58
+
+呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  掉头学姐  
+##### 5071#       发表于 2021-11-16 20:11
+
+变asoul群了？真有趣呢
+
+
+
+*****
+
+####  雪风utopia  
+##### 5072#       发表于 2021-11-16 20:26
+
+哪个m楼群，来点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Dualist彩  
+##### 5073#       发表于 2021-11-16 20:30
+
+m楼群。。。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Mr.shelter  
+##### 5074#       发表于 2021-11-16 21:14
+
+怎么变AS群了，不是天天复读老一套么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+卧槽群友点醒梦中人，这个AS群该不会说的是狼群吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabishi_Jiku  
+##### 5075#       发表于 2021-11-16 21:17
+
+ 本帖最后由 Sabishi_Jiku 于 2021-11-16 21:20 编辑 
+
+谁看asoul了，能不能不要凭空侮辱人？反而是尻头自己去推010了吧？
+
+*****
+
+####  往世雷书  
+##### 5076#       发表于 2021-11-16 21:22
+
+谁潮看谁，以前庄司潮看庄司，现在别人潮看别人，谁像你们这些老古板一样一个女人看三年啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  时间在我手中  
+##### 5077#       发表于 2021-11-16 21:38
+
+别尬黒，老子就几把不喜欢看直播。
+
+有空看别人直播我干嘛不自己上手去打。
+
+
+
+*****
+
+####  路人庚  
+##### 5078#       发表于 2021-11-16 22:03
+
+对上味儿了自然也能看的久（就像看了十年小秦一样，啊，不知不觉就进行了一个长期的看
+
+顺手进行一个熟肉的推荐，前晚的直播开头的欢声笑语：[https://b23.tv/H85cfye](https://b23.tv/H85cfye)
+
+（看你咩发疯是真的有趣
+
+
+
+*****
+
+####  TiHaru  
+##### 5079#       发表于 2021-11-16 22:15
+
+兔妈给麦酱装了个摄像头
+
+评论管麦酱叫若頭绷不住了
+
+
+
+*****
+
+####  clvan_  
+##### 5080#       发表于 2021-11-16 22:31
+
+关注最早的up主有十年了，这个up直播看了也有六年了。你麻只要播下去我应该也能看下去，直播这东西，有人追的是一个社交谈资，有人只是找合胃口的娱乐，各取所需有什么问题呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  呓亘  
+##### 5081#       发表于 2021-11-16 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568941&amp;ptid=2018830" target="_blank">GeraltzRivii 发表于 2021-11-16 19:10</a>
+
+s1的m楼群已经变成asoul群了。加同好会粉丝群得了。</blockquote>
+你说的是小狼群吗？
+
+
+
+*****
+
+####  呓亘  
+##### 5082#       发表于 2021-11-16 23:44
+
+小狼群也不是asoul群啊
+
+*****
+
+####  2014720  
+##### 5083#       发表于 2021-11-16 23:45
+
+怎么聊着聊着某些人就急了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 5084#       发表于 2021-11-16 23:50
+
+[1]【神楽めあ Bilibili Dynamic】
+
+动态类型 : 转发动态
+
+动态内容 : 错过生日了～～😭💦
+
+有栖酱生日快乐ฅ˙Ⱉ˙ฅ
+
+今天也最喜欢你了⸝⸝-  ̫ -⸝⸝⸝⸝-  ̫ -⸝⸝
+
+被转发动态类型 : 带图动态
+
+被转发动态时间 : 2021-11-16 09:17:49 UTC
+
+被转发动态内容 : 因为今天是生日，所以一直在一边看着小兔子们发的祝福推文、插画、视频和摆的周边阵，把能保存的都保存下来，一边说着啊啊好开心〜好可爱〜〜〜结果、发现忘记买蛋糕了🎂💦
+
+也收到了海牛的礼物🍓
+
+攒了好多话想说，今晚北京时间22点〜来聊聊吧☕💕
+
+发布时间 : 2021-11-16 15:25:47 UTC
+
+*****
+
+####  呓亘  
+##### 5085#       发表于 2021-11-16 23:51
+
+动了动了 傻卵女人真是长情啊
+
+*****
+
+####  呓亘  
+##### 5086#       发表于 2021-11-16 23:51
+
+我感觉Alice隐退之前这人不会隐退的
+
+
+
+*****
+
+####  掉头学姐  
+##### 5087#       发表于 2021-11-17 00:12
+
+远古牌组
+
+
+
+*****
+
+####  肥到终点  
+##### 5088#       发表于 2021-11-17 02:29
+
+私信机器人是没有结果的
+
+
+
+*****
+
+####  笋狐  
+##### 5089#       发表于 2021-11-17 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新人先不说，老害留存率是蛮高的，毕竟风风雨雨走来（
+
+
+
+*****
+
+####  时间在我手中  
+##### 5090#       发表于 2021-11-17 09:20
+
+只能说不是负增长就算赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yywzjsw  
+##### 5091#       发表于 2021-11-17 09:20
+
+我觉得是被你麻唱歌吸引入坑的
+
+
+
+*****
+
+####  T_Hb  
+##### 5092#       发表于 2021-11-17 09:57
+
+day3
+
+
+
+*****
+
+####  2014720  
+##### 5093#       发表于 2021-11-17 10:34
+
+人家就过来听听歌看个乐，谁跟你们这群魔怔人一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 5094#       发表于 2021-11-17 10:38
+
+给小狼群发了两次申请都没给通过 好冰冷的世界啊
+
+
+
+*****
+
+####  时间在我手中  
+##### 5095#       发表于 2021-11-17 10:53
+
+尾巴群的说别人魔怔人属于是贼喊捉贼了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  雪风utopia  
+##### 5096#       发表于 2021-11-17 11:13
+
+e哥这算什么呢，退坑反踩吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5097#       发表于 2021-11-17 11:18
+
+待过一个群就算进坑了的话，我在小狼窝和thh官群等群都待过，怎么没见有人来咬我【退坑反踩】呢？
+
+还是说尾巴区的群确实不配拿别人是魔怔人这种东西来说事呢？建议好好学习一下什么叫做逻辑，不要揪着个本质狗屁都不算的事实就跟我扯皮你也不是什么好东西
+
+我不是好东西也不等于我是尾巴区的人，这个道理有什么很难理解的吗，亦或者是说我2013年玩贴吧的时候有vtuber这个概念了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yywzjsw  
+##### 5098#       发表于 2021-11-17 11:31
+
+那08年玩贴吧的我是不是超级老害了
+
+*****
+
+####  草牛  
+##### 5099#       发表于 2021-11-17 11:32
+
+v8群是我爹，不准骂他
+
+
+
+*****
+
+####  往世雷书  
+##### 5100#       发表于 2021-11-17 11:46
+
+打，打起来，揪他头发
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  雪风utopia  
+##### 5101#       发表于 2021-11-17 11:48
+
+ 本帖最后由 雪风utopia 于 2021-11-17 11:55 编辑 
+
+当然，群里还是欢迎大家的，大门一直敞开<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+放一个大门在这里:135133231
+
+*****
+
+####  ColdAir  
+##### 5102#       发表于 2021-11-17 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575381&amp;ptid=2018830" target="_blank">呓亘 发表于 2021-11-17 10:38</a>
+给小狼群发了两次申请都没给通过 好冰冷的世界啊</blockquote>
+🐉🐢进🍊了，没人审核了
+
+
+
+*****
+
+####  Ayarinn  
+##### 5103#       发表于 2021-11-17 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 5104#       发表于 2021-11-17 12:18
+
+qq群不适合我这种老年人玩
+
+*****
+
+####  桐谷眼人  
+##### 5105#       发表于 2021-11-17 12:21
+
+最后一次看m楼相关消息已经是快两年前了……
+
+小狼群倒是视奸了很久，一直很令人困惑……
+
+
+
+*****
+
+####  Dualist彩  
+##### 5106#       发表于 2021-11-17 12:31
+
+只能说挖掘机是看管人第一动力了捏，什么时候把你麻盒开了
+
+反转了，麻麻或许就是再利用这一点pua你们🐶老嗨捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 5107#       发表于 2021-11-17 12:43
+
+hunter will be hunted!
+

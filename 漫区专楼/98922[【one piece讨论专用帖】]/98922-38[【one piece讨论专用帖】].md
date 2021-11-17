@@ -7520,3 +7520,43 @@ PS.女澡堂和海贼王你竟然选择了海贼王（划掉）
 
 大妈可能还是收不掉吧
 
+
+
+*****
+
+####  真红眼教授  
+##### 56074#       发表于 2021-11-17 09:46
+
+御田：没想到吧，我还有把刀！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  银翼的维罗西  
+##### 56075#       发表于 2021-11-17 10:30
+
+俺们御田开过光的刀就是这么牛逼
+
+
+
+*****
+
+####  天使的日曜日  
+##### 56076#       发表于 2021-11-17 10:46
+
+阎魔我们不要了，换回秋水好吗
+
+一把大快刀搞得那么神乎其神，怕是等练成了黑刀也都是尾田他爹的功劳，索隆果然只是阎魔放置架<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  klzxs  
+##### 56077#       发表于 2021-11-17 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就像战斗服成就了三治一样
+
+我相信这刀也会成就索隆
+

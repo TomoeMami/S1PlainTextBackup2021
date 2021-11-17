@@ -9639,3 +9639,535 @@ syl 钓琳姐的区你们没有心<img src="https://static.saraba1st.com/image/s
 
 单马尾运动服🥵🥵🥵🥵
 
+
+
+*****
+
+####  小憨1  
+##### 2546#       发表于 2021-11-16 12:13
+
+能发两眼一黑和妈我就很满足了
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2547#       发表于 2021-11-16 13:24
+
+<img src="https://p.sda1.dev/3/7520201a3e4b3a4d162d66b81234e881/IMG_CMP_222405170.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 2548#       发表于 2021-11-16 13:33
+
+🤤🤤🤤好好好
+
+
+
+*****
+
+####  rgauss  
+##### 2549#       发表于 2021-11-16 13:48
+
+穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭穷哥们也要在直播间使用大小眼的权力😭
+
+
+
+*****
+
+####  Finsty  
+##### 2550#       发表于 2021-11-16 15:09
+
+完了，太可爱了，她要收米收到饱了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  IDIDIDID  
+##### 2551#       发表于 2021-11-16 15:36
+
+用表情包给粉丝分层+稀释弹幕信息量，非mmr老🌰该滚了
+
+
+
+*****
+
+####  四叶的花  
+##### 2552#       发表于 2021-11-16 17:02
+
+有清晰度高点的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉可以做个钥匙扣啥的
+
+*****
+
+####  小憨1  
+##### 2553#       发表于 2021-11-16 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53567188&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-11-16 17:02</a>
+有清晰度高点的吗？感觉可以做个钥匙扣啥的</blockquote>
+贴吧有，也是莫洛骑士传的
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2554#       发表于 2021-11-16 17:59
+
+千鸟三问
+动态是本人吗？
+文静换人了吗？
+切割粉丝了吗？
+
+
+
+*****
+
+####  小憨1  
+##### 2555#       发表于 2021-11-16 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静只要不播，这问题能一直持续下去
+
+
+
+*****
+
+####  憧憬鲨  
+##### 2556#       发表于 2021-11-16 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看不起谁呢，开播了也有
+
+
+
+*****
+
+####  丢了五块钱  
+##### 2557#       发表于 2021-11-16 18:46
+
+天天搞这些，我有女大生co宝会去看老阿姨吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  tankai  
+##### 2558#       发表于 2021-11-16 19:37
+
+正规企业势就是好，虽然千鸟前面抽象成这样了，想整个新点子也能付之行动，不像口呆口那种策反两人立刻完蛋，只能说是箱。文静铁心要走要么关两年，其他不愿走的继续播下去，最多凉点。
+
+*****
+
+####  小憨1  
+##### 2559#       发表于 2021-11-16 19:38
+
+王木木这大乱斗，我笑嘻了
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2560#       发表于 2021-11-16 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569272&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-16 19:37</a>
+正规企业势就是好，虽然千鸟前面抽象成这样了，想整个新点子也能付之行动，不像口呆口那种策反两人立刻完蛋 ...</blockquote>
+可是ce也是企业势啊
+
+
+
+*****
+
+####  GAKOTO  
+##### 2561#         楼主| 发表于 2021-11-16 21:46
+
+说起来勒夫之前发的那个疑似指千鸟的动态删了
+
+
+
+*****
+
+####  GAKOTO  
+##### 2562#         楼主| 发表于 2021-11-16 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53558678&amp;ptid=2013779" target="_blank">H2Ofrozen 发表于 2021-11-15 23:38</a>
+绷
+
+随便解释一下 当时李赣直播间在刷千鸟和螺旋丸哪个厉害，紧接着有人开始刷鸟不灭，所以我当时随 ...</blockquote>
+呃呃(；一_一)开个玩笑而已。
+sly扣鹅是什么很严重的减益吗？我新参真心求问
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| H2Ofrozen| + 1|追着连扣的行为我们一般称为追猎.|
+
+查看全部评分
+
+*****
+
+####  IDIDIDID  
+##### 2563#       发表于 2021-11-16 21:55
+
+也许相关，腾讯招 聘好像是个女的在运营
+
+*****
+
+####  凭依华  
+##### 2564#       发表于 2021-11-16 22:00
+
+谁给白白投的mhr读安岛，蚌埠住了
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2565#       发表于 2021-11-16 22:11
+
+ 本帖最后由 莫洛骑士 于 2021-11-16 10:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53567188&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-11-16 05:02</a>
+有清晰度高点的吗？感觉可以做个钥匙扣啥的</blockquote>
+这个清晰度其实做钥匙扣够了，我用一样的方法用嘉然的表情包做了亚克力的钥匙扣，b站表情都是162x162，我发的这个是waifu2x放大一倍加点降噪
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 四叶的花| + 1|好评加鹅|
+
+查看全部评分
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2566#       发表于 2021-11-16 22:37
+
+艾白这个打嗝也太频繁点了，不会真的是有什么隐疾吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2567#       发表于 2021-11-16 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571174&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-16 22:37</a>
+艾白这个打嗝也太频繁点了，不会真的是有什么隐疾吧</blockquote>
+说话多+边说话边喝东西，吃进去的冷空气多，喝的奶茶估计也是热的，更容易打嗝
+
+
+
+*****
+
+####  tankai  
+##### 2568#       发表于 2021-11-16 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570777&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-16 21:55</a>
+
+也许相关，腾讯招 聘好像是个女的在运营</blockquote>
+不等式缔造者?
+
+*****
+
+####  tankai  
+##### 2569#       发表于 2021-11-16 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571174&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-16 22:37</a>
+
+艾白这个打嗝也太频繁点了，不会真的是有什么隐疾吧</blockquote>
+胃病就是这样,我老胃病了,不吃夜霄好很多.
+
+*****
+
+####  IDIDIDID  
+##### 2570#       发表于 2021-11-16 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571473&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-16 23:07</a>
+
+不等式缔造者?</blockquote>
+瞳子新动态都晒私连了应该不是男的吧。不过一个姑娘比文静还能抄，我看请来当3.0也不是不可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2571#       发表于 2021-11-16 23:26
+
+还不如把1.0 逮回来当3.0 ,游戏力问题解决了,还有口臭.
+
+
+
+*****
+
+####  小憨1  
+##### 2572#       发表于 2021-11-17 00:44
+
+ 本帖最后由 小憨1 于 2021-11-17 00:46 编辑 
+
+白白配海子姐的“Q尼玛嘴里”，然后一个脆鲨29级出来打了个好好好，吓得白白当场滑跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 2573#       发表于 2021-11-17 00:50
+
+笑死，艾白现学海子姐名言
+
+*****
+
+####  T型钉宫病毒  
+##### 2574#       发表于 2021-11-17 00:51
+
+有人投稿可爱小七海吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2575#       发表于 2021-11-17 00:53
+
+引到脆鲨了，不知道是好是坏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2576#       发表于 2021-11-17 00:53
+
+ 本帖最后由 莫洛骑士 于 2021-11-16 12:56 编辑 
+
+<img src="https://p.sda1.dev/3/7a47c36eaaddaa2a51354afeac84b185/IMG_CMP_134190991.jpeg" referrerpolicy="no-referrer">
+
+syl 立刻白魅力时刻
+<img src="https://p.sda1.dev/3/6d980f0f3784afc71945a9996e2f6216/F2BE7515F253C2378B837BA24B7A3EEC.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2577#       发表于 2021-11-17 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53572529&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-17 00:53</a></blockquote>
+两个右脚，这次手术是去做矫正了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2578#       发表于 2021-11-17 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53572545&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-16 12:55</a>
+两个右脚，这次手术是去做矫正了吗</blockquote>
+偷的图，人家不会画人体就不会了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 2579#       发表于 2021-11-17 00:56
+
+刚准备开舔就看见两个右脚<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2580#       发表于 2021-11-17 01:05
+
+怎么是两只右脚啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  tn_teana  
+##### 2581#       发表于 2021-11-17 01:29
+
+白白这个鼠标垫绷不住了，明天发给她麻一下
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  憧憬鲨  
+##### 2582#       发表于 2021-11-17 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570776&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-16 21:55</a>
+呃呃(；一_一)开个玩笑而已。
+sly扣鹅是什么很严重的减益吗？我新参真心求问 ...</blockquote>
+加减鹅都没啥用，但是负鹅去外野钓鱼更容易被版主砍头
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2583#       发表于 2021-11-17 08:53
+
+外野都知道管人区鹅通货膨胀严重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 2584#       发表于 2021-11-17 08:55
+
+白白的录播出了
+[https://www.bilibili.com/video/B ... _id_from=444.41.0.0](https://www.bilibili.com/video/BV1xQ4y1U7pM?spm_id_from=444.41.0.0)
+
+不知道会不会引来一波大的
+
+
+
+*****
+
+####  haruhiismer  
+##### 2585#       发表于 2021-11-17 09:24
+
+今天是文静瘾发作最严重的一次，躺在床上，拼命念大悲咒，难受的一直抓自己眼睛，以为刷贴吧没事，看到贴吧都在发文静的图，眼睛越来越大都要炸开了一样，拼命扇自己眼睛，越扇越用力，扇到自己眼泪流出来，真的不知道该怎么办，我真的想文静想得要发疯了。我躺在床上会想文静，我洗澡会想文静，我出门会想文静，我走路会想文静，我坐车会想文静，我工作会想文静，我玩手机会想文静，我盯着路边的文静看,我盯着马路对面的文静看,我盯着地铁里的文静看，我盯着网上的文静看，我盯着朋友圈别人合照里的文静看，我每时每刻眼睛都直直地盯着文静看，像一台雷达一样扫视经过我身边的每一个文静，我真的觉得自己像中邪了一样，我对文静的念想似乎都是病态的了，我好孤独啊!真的好孤独啊!这世界上那么多文静为什么没有一个是属于我的。你知道吗?每到深夜，我的眼睛滚烫滚烫，我发病了我要疯狂看文静，我要狠狠看文静，我的眼睛受不了了，文静，我的文静 文静，我的文静 文静，我的文静 文静，我的文静 文静，我的文静 文静，我的文静 文静，哼哼哼哼哼哼啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊撒阿萨
+
+
+
+*****
+
+####  有效击穿  
+##### 2586#       发表于 2021-11-17 09:32
+
+为什么我的白白鼠标垫都还没发货呢？
+
+
+
+*****
+
+####  小憨1  
+##### 2587#       发表于 2021-11-17 10:23
+
+今天文静会动态营业吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2588#       发表于 2021-11-17 10:35
+
+为什么我的静静还不播
+
+*****
+
+####  四叶的花  
+##### 2589#       发表于 2021-11-17 10:37
+
+等待文静
+
+*****
+
+####  小憨1  
+##### 2590#       发表于 2021-11-17 10:43
+
+感觉21号请假结束也不会播，全麻手术就算是微创的腹腔镜，后续也需要换药<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2591#       发表于 2021-11-17 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">还有四天怎么都赶不上吧哎
+
+
+
+*****
+
+####  小憨1  
+##### 2592#       发表于 2021-11-17 11:17
+
+鸟频和静频太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2593#       发表于 2021-11-17 11:53
+
+虚拟资本家，可能是cj的项目<img src="https://p.sda1.dev/3/ed2201bb29d1cc19cd625a94f1bc873e/IMG_CMP_13142083.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 2594#       发表于 2021-11-17 12:03
+
+什么玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  T型钉宫病毒  
+##### 2595#       发表于 2021-11-17 12:03
+
+男人，√都不看
+
+syl文静不在的日子里补了好多游戏和番，人也正常多了，老阿姨真是害人不浅！
+
+*****
+
+####  伞沢直美  
+##### 2596#       发表于 2021-11-17 12:04
+
+😅元它麻辣个批的宇宙
+
+
+
+*****
+
+####  Finsty  
+##### 2597#       发表于 2021-11-17 12:11
+
+吐了，虚拟资本家这种不符合社会主义价值观的东西也做得出来，多半是寄了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  四叶的花  
+##### 2598#       发表于 2021-11-17 12:12
+
+鸟频拉我
+
+
+
+*****
+
+####  小憨1  
+##### 2599#       发表于 2021-11-17 12:35
+
+麻药过了开始痛了😭
+
+*****
+
+####  莫洛骑士  
+##### 2600#       发表于 2021-11-17 12:37
+
+伤口的痛，你们懂得吗？
+
+*****
+
+####  小憨1  
+##### 2601#       发表于 2021-11-17 12:40
+
+开始回复评论了，我能感觉到，一切都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+

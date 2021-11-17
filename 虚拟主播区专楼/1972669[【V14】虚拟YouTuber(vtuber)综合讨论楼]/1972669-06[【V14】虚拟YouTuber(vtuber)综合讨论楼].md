@@ -12254,3 +12254,164 @@ Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" refe
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+
+*****
+
+####  rzrbtk  
+##### 8412#       发表于 2021-11-16 15:58
+
+等等这个月之女粉妹也太可爱了吧w
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 8413#       发表于 2021-11-16 16:04
+
+彩虹又发拼盘专了。这次还有四周年特别观影应募代码，意思要从买专的手里抽票是吧。
+看看还能卖多少
+
+
+
+*****
+
+####  qq845629713  
+##### 8414#       发表于 2021-11-16 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> bora看起来心情不错啊，今天还和아키라레이出去玩了，
+
+*****
+
+####  OldGlory  
+##### 8415#       发表于 2021-11-16 16:46
+
+这个是之前约好的吧
+
+
+
+*****
+
+####  alcoholic1000  
+##### 8416#       发表于 2021-11-16 17:05
+
+ 本帖最后由 alcoholic1000 于 2021-11-16 17:14 编辑 
+
+不愧是大监督，这演出设计
+
+新3D的耳朵晃来晃去好可爱好想揪，耳环也很精致
+
+*****
+
+####  FCCHua  
+##### 8417#       发表于 2021-11-16 17:15
+
+兔头新3d看起来质量很可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 8418#       发表于 2021-11-16 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 8419#       发表于 2021-11-16 17:40
+
+这回的演出是谁搞的也太漂亮了，索尼那边的？
+
+
+
+*****
+
+####  rzrbtk  
+##### 8420#       发表于 2021-11-16 19:02
+
+不省一楼，郡郡终于跟白雪巴（及队友）联动了啊，害怕！
+
+*****
+
+####  怜  
+##### 8421#       发表于 2021-11-16 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568860&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-11-16 19:02</a>
+
+不省一楼，郡郡终于跟白雪巴（及队友）联动了啊，害怕！</blockquote>
+白雪巴发推已经打错成群道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 8422#       发表于 2021-11-16 19:21
+
+<blockquote>怜 发表于 2021-11-16 19:04
+白雪巴发推已经打错成群道了</blockquote>
+尊敬的夜之国女王可以随意称呼底边女郡郡🙇‍♂️🙇‍♂️
+
+
+
+*****
+
+####  free  
+##### 8423#       发表于 2021-11-16 21:21
+
+原定于今年之内发布的杏en3D因新冠延期了，本来还指望破个同接纪录呢
+
+省一楼来个好玩的，虚拟资本家国V出道，首播就讲元宇宙，不管是不是炒作，这个真的绷不住了
+[https://t.bilibili.com/593610732818612570](https://t.bilibili.com/593610732818612570)
+
+*****
+
+####  FCCHua  
+##### 8424#       发表于 2021-11-16 21:26
+
+ 本帖最后由 FCCHua 于 2021-11-16 21:29 编辑 
+
+10点
+<strong>[大切なお知らせ]いつも応援してくれている皆さんへ[因幡はねる/あにま一れ]</strong>
+[https://youtu.be/U18B8SGnzyU](https://youtu.be/U18B8SGnzyU)
+
+*****
+
+####  tiro_finale  
+##### 8425#       发表于 2021-11-16 21:32
+
+应该是什么好消息吧...这个“为我们的友谊干杯”式的字体有点遭不住
+
+
+
+*****
+
+####  rzrbtk  
+##### 8426#       发表于 2021-11-16 21:51
+
+郡東つねる要是无了对我的打击不下于みれロア解散…
+syl，看了E队训练被这个强度吓到了，在自选图里跟高等级观众训练完全就是正经集训，上次喷喷大会郡郡也没这么拼过，的感觉。E队人毅力真不错啊，虽然对上的是大叔猫感觉会发生些怪事…
+
+
+
+*****
+
+####  溴麝香草酚蓝  
+##### 8427#       发表于 2021-11-16 23:59
+
+爱丽丝 我的爱丽丝
+
+
+
+*****
+
+####  hulaoda007  
+##### 8428#       发表于 2021-11-17 00:01
+
+ 本帖最后由 hulaoda007 于 2021-11-17 00:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实还行。
+

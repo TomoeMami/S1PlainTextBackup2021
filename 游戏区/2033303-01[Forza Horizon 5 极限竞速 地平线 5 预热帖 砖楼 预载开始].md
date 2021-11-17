@@ -12638,3 +12638,522 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 如果是内存泄露导致的顿卡，那么顿卡的原因就是内存不够了以后，系统需要把内存的数据放到磁盘上去，这一步非常慢
 
+
+
+*****
+
+####  Karin11974  
+##### 1148#       发表于 2021-11-16 13:27
+
+顿卡没试过，基本丝滑，3090 4k 特效拉满 msaa 8x 就森林和草丛这种场景会降到40-50帧吧，还有时速300以上跑圈时帧率也会下降一点，我现在是把渲染分辨率降一档到超高质量，然后msaa 4x，最低帧率都能保持70左右，而且狗牙不明显，感觉这一代本身狗牙特别多，真4k+msaa 2x也挺显眼，顶不住
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Karin11974  
+##### 1149#       发表于 2021-11-16 13:28
+
+还有尝试关了qq之后联机真没掉过了，服了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  天神十三煞  
+##### 1150#         楼主| 发表于 2021-11-16 14:26
+
+ 本帖最后由 天神十三煞 于 2021-11-15 22:31 编辑 
+
+不容易，淘汰赛整了二十盘终于拿了第一，好出生点太重要了，
+
+上来刷到4，5级的车，就去怼别人，这样后面起码八级才有机会赢，后面如果遇到跑车剪完不要换，
+
+这代地势起伏非常大，越野才是神。
+
+*****
+
+####  有钱多买小人  
+##### 1151#       发表于 2021-11-16 14:29
+
+机场危险标志3星后那个2分钟内完成指定的2个危险标志的3星要怎么搞啊？我寻思山上也不能直接飞到机场吧。
+
+
+
+*****
+
+####  aceralon  
+##### 1152#       发表于 2021-11-16 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564936&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-16 14:29</a>
+
+机场危险标志3星后那个2分钟内完成指定的2个危险标志的3星要怎么搞啊？我寻思山上也不能直接飞到机场吧。 ...</blockquote>
+两分钟是在完成了其中一个之后开始计时的，所以只要在一分半钟之内能赶到下一个出发点就差不多可以了，毕竟完成一个三星可能也就三十秒。
+
+
+
+*****
+
+####  诶哟卧草  
+##### 1153#       发表于 2021-11-16 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了
+
+
+
+*****
+
+####  samta  
+##### 1154#       发表于 2021-11-16 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-16 15:58</a>
+
+没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了 ...</blockquote>
+有的，我上次晚上下班回家发现才跑了3圈就被树卡住了明显更让人火大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  天神十三煞  
+##### 1155#         楼主| 发表于 2021-11-16 16:51
+
+ 本帖最后由 天神十三煞 于 2021-11-16 00:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-15 23:58</a>
+
+没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了 ...</blockquote>
+辅助都打开
+
+用lygggg的，不要用Nomorecake的
+
+右边末端的蓝图，不是中间的
+
+中间的蓝图末尾转向太急容易飘出去
+
+
+
+*****
+
+####  bad_alloc  
+##### 1156#       发表于 2021-11-16 17:48
+
+搜了一些meta车调教，感觉真的难开<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 1157#       发表于 2021-11-16 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PG香槟喝完了快回来更新补丁啊，又说是“希望”本周后段发布更新，植被刷新距离+SSAO道路有横纹+光影错误树木烟雾边缘马赛克+内存泄漏打2-3小时3090+3900X+32G+M2SSD都卡成傻子这几个问题搞得我玩得难受死了只想等更新（最草的是我全低画质1024在那窗口挂机50圈，到3-40圈的时候都能卡到只有20帧....）
+
+
+
+*****
+
+####  Vladimeow  
+##### 1158#       发表于 2021-11-16 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53567893&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 17:48</a>
+搜了一些meta车调教，感觉真的难开</blockquote>
+Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有铁头这种完全统治的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  bad_alloc  
+##### 1159#       发表于 2021-11-16 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568608&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-16 18:40</a>
+
+Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有铁头这种完全统治的 ...</blockquote>
+我是手动辅助只开abs，有些meta车真的就八字不合，比如s1的nsx-gt，千匹马力配个烂胎烂悬挂，2档打滑不知道弯道怎么开
+
+*****
+
+####  Vladimeow  
+##### 1160#       发表于 2021-11-16 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568743&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 18:52</a>
+我是手动辅助只开abs，有些meta车真的就八字不合，比如s1的nsx-gt，千匹马力配个烂胎烂悬挂，2档打滑不知 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NSXGT是这样的，不熟悉的话过弯怎么过怎么变扭，然后这车后段跟个火箭似的能很快窜到360以上，我也是用不习惯，还是喜欢百年牛这种操控车。
+
+
+
+*****
+
+####  Totokei  
+##### 1161#       发表于 2021-11-16 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-16 15:58</a>
+没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了 ...</blockquote>
+有的，出门挂机回来发现途中死机连技能点都全部木大
+
+
+
+*****
+
+####  何然  
+##### 1162#       发表于 2021-11-16 20:23
+
+黑楼无限的918是怎么领。。。
+
+
+
+*****
+
+####  bad_alloc  
+##### 1163#       发表于 2021-11-16 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569816&amp;ptid=2033303" target="_blank">何然 发表于 2021-11-16 20:23</a>
+
+黑楼无限的918是怎么领。。。</blockquote>
+消息里面给的
+
+
+
+*****
+
+####  何然  
+##### 1164#       发表于 2021-11-16 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569976&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 20:37</a>
+
+消息里面给的</blockquote>
+发现我重新启动一次fh5之后有了
+
+然后再发现是20周年不是黑楼（
+
+*****
+
+####  920619lqy  
+##### 1165#       发表于 2021-11-16 21:00
+
+<blockquote>bad_alloc 发表于 2021-11-16 06:37
+消息里面给的</blockquote>
+开关游戏数次也没拿到车，礼物那一页就是空的，这就很尴尬了，连发个车都发没了。
+
+
+
+*****
+
+####  Kshatriya  
+##### 1166#       发表于 2021-11-16 21:58
+
+后驱很重要的一点是不要学四驱那样降档全油门出弯，试试起步后不降到3档以下，应付好中低速弯之后剩下的就是享受狂暴后段了
+
+
+
+*****
+
+####  铅笔  
+##### 1167#       发表于 2021-11-16 22:32
+
+迪劳伦刷分太容易了。轻松300w了
+
+*****
+
+####  12481632  
+##### 1168#       发表于 2021-11-16 22:33
+
+沙滩车和野兽那个表演赛后半段的大车要怎么开啊，直接油门一点速度都没有，只能先倒车把速度提起来再换成油门才能维持一小段速度，有什么别的技巧么
+
+
+
+*****
+
+####  有钱多买小人  
+##### 1169#       发表于 2021-11-16 22:47
+
+醉了，开服前还能玩玩多人，开服了反而搜不到人了 
+
+
+
+*****
+
+####  Totokei  
+##### 1170#       发表于 2021-11-16 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571125&amp;ptid=2033303" target="_blank">12481632 发表于 2021-11-16 22:33</a>
+
+沙滩车和野兽那个表演赛后半段的大车要怎么开啊，直接油门一点速度都没有，只能先倒车把速度提起来再换成油 ...</blockquote>
+绕着外场跑圈，满足了速度的目标再去撞保龄球或者爬坡之类的动作
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 1171#       发表于 2021-11-16 23:11
+
+电动爹是lotus的最强吗？钱不够时心心念念，付款后索然无味
+
+<img src="https://img.saraba1st.com/forum/202111/16/231036pfna8119988n3hae.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(49).png</strong> (177.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 23:10 上传
+
+另外这服务器绝了，领车都领不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/16/231112ksj444bt45hn5jlc.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(50).png</strong> (60.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-16 23:11 上传
+
+*****
+
+####  makece  
+##### 1172#       发表于 2021-11-16 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">700经典肌肉车 庞蒂克Trans AM手感太爽了，性能完全超同级车一大截
+
+
+
+*****
+
+####  hagenda4  
+##### 1173#       发表于 2021-11-16 23:47
+
+新人肝季节赛肝的头疼
+
+搞清楚规则用了2天
+
+打比赛用了2天 
+
+
+
+*****
+
+####  nailuo1993  
+##### 1174#       发表于 2021-11-17 00:27
+
+这代s2 mt900s后驱也太强了，比s1车还好操控
+
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1175#       发表于 2021-11-17 00:55
+
+不会漂移，季节赛漂移过不了。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  天神十三煞  
+##### 1176#         楼主| 发表于 2021-11-17 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53572550&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-16 08:55</a>
+
+不会漂移，季节赛漂移过不了。
+
+—— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+刷新看顶楼
+
+用漂移方程式的车道奇viper#43上手，
+
+这周漂移调教选那个auto之类的
+
+马自达如果技能树点出来了也可以用马自达
+
+
+
+*****
+
+####  Vladimeow  
+##### 1177#       发表于 2021-11-17 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571512&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-16 23:11</a>
+电动爹是lotus的最强吗？钱不够时心心念念，付款后索然无味</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">这代RIMAC C2性能很不错，看好他能在S2有一席之地
+
+
+
+*****
+
+####  pl0okm  
+##### 1178#       发表于 2021-11-17 06:48
+
+本田 nsx-r gt什么情况？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不知道什么时候多出一辆 挂拍卖300w秒出。看了眼技能也没特点
+
+
+
+*****
+
+####  Kshatriya  
+##### 1179#       发表于 2021-11-17 07:09
+
+<blockquote>pl0okm 发表于 2021-11-17 06:48
+本田 nsx-r gt什么情况？
+
+不知道什么时候多出一辆 挂拍卖300w秒出。看了眼技能也没特点 ...</blockquote>
+少和挂机导致cr不值钱
+
+本身也是s1最好开的后驱之一
+
+
+
+*****
+
+####  Robakey  
+##### 1180#       发表于 2021-11-17 08:19
+
+有没有好哥哥教一下这个赛季分如何简单的获取，赛车肄业生感觉老手ai实在是过于离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Vladimeow  
+##### 1181#       发表于 2021-11-17 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53573743&amp;ptid=2033303" target="_blank">Robakey 发表于 2021-11-17 08:19</a>
+有没有好哥哥教一下这个赛季分如何简单的获取，赛车肄业生感觉老手ai实在是过于离谱了 ...</blockquote>
+找个好哥哥一起排啦<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  诶哟卧草  
+##### 1182#       发表于 2021-11-17 09:00
+
+<[img src="https://i.loli.net/2021/11/17/ev4Fj3ErRht6agA.png" referrerpolicy="no-referrer">
+
+重打两次了，都飞了500m了，跳出的提示是距离赛季目标还差1m
+
+播放列表里也是未完成，什么鬼
+
+
+
+*****
+
+####  lancasterliang  
+##### 1183#       发表于 2021-11-17 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574116&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-17 09:00</a>
+
+重打两次了，都飞了500m了，跳出的提示是距离赛季目标还差1m
+
+播放列表里也是未完成，什么鬼 ...</blockquote>
+退出重进试试
+
+
+
+*****
+
+####  Hanzong  
+##### 1184#       发表于 2021-11-17 09:24
+
+话说你们都能进那个地平线商店吗，我不管怎样都进不去，加速器和梯子都试过了
+
+*****
+
+####  lancasterliang  
+##### 1185#       发表于 2021-11-17 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574405&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-17 09:24</a>
+
+话说你们都能进那个地平线商店吗，我不管怎样都进不去，加速器和梯子都试过了 ...</blockquote>
+还没开呢
+
+*****
+
+####  Hanzong  
+##### 1186#       发表于 2021-11-17 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574470&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-17 09:29</a>
+还没开呢</blockquote>
+原来是这样，多谢
+
+
+
+*****
+
+####  GrayishWh0  
+##### 1187#       发表于 2021-11-17 10:09
+
+win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我补啊
+
+
+
+*****
+
+####  difa  
+##### 1188#       发表于 2021-11-17 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53573743&amp;ptid=2033303" target="_blank">Robakey 发表于 2021-11-17 08:19</a>
+有没有好哥哥教一下这个赛季分如何简单的获取，赛车肄业生感觉老手ai实在是过于离谱了 ...</blockquote>
+最简单的办法，找个车，抄个调教。然后难度里辅助全开，自动跑。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  有钱多买小人  
+##### 1189#       发表于 2021-11-17 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574997&amp;ptid=2033303" target="_blank">GrayishWh0 发表于 2021-11-17 10:09</a>
+win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我补啊</blockquote>
+ms说了hub不会更新了，明年年中彻底关掉。
+
+*****
+
+####  AEmpire  
+##### 1190#       发表于 2021-11-17 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574116&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-17 09:00</a>
+
+重打两次了，都飞了500m了，跳出的提示是距离赛季目标还差1m
+
+播放列表里也是未完成，什么鬼 ...</blockquote>
+我也是，永远差1m，后面干脆放弃了
+
+
+
+*****
+
+####  docklabor  
+##### 1191#       发表于 2021-11-17 11:21
+
+我一直都打不开点数商店，其他啥都正常，简直日了狗，有人知道啥问题不
+
+*****
+
+####  wzy200912345  
+##### 1192#       发表于 2021-11-17 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575995&amp;ptid=2033303" target="_blank">docklabor 发表于 2021-11-17 11:21</a>
+
+我一直都打不开点数商店，其他啥都正常，简直日了狗，有人知道啥问题不</blockquote>
+“The Forzathon Shop is currently not open, please keep an eye on our social channels for when this is available”
+
+PG恐怕得修完bug才开
+
+
+
+*****
+
+####  AliceMilky  
+##### 1193#       发表于 2021-11-17 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575539&amp;ptid=2033303" target="_blank">AEmpire 发表于 2021-11-17 10:50</a>
+
+我也是，永远差1m，后面干脆放弃了</blockquote>
+我是先去别的飞，然后再传送过去飞就成功了
+

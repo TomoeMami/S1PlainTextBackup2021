@@ -19844,3 +19844,56 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  freyja_wion  
+##### 1385#       发表于 2021-11-16 21:40
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 1386#       发表于 2021-11-16 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53570625&amp;ptid=1860817" target="_blank">freyja_wion 发表于 2021-11-16 21:40</a>
+
+乐
+
+—— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+你看“还有气儿”直播就知道，鸡枞对我国评价很高
+
+
+
+*****
+
+####  oskneo  
+##### 1387#       发表于 2021-11-17 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571394&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-16 22:58</a>
+你看“还有气儿”直播就知道，鸡枞对我国评价很高</blockquote>
+求日文名或链接。
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 1388#       发表于 2021-11-17 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53572388&amp;ptid=1860817" target="_blank">oskneo 发表于 2021-11-17 00:39</a>
+求日文名或链接。
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 S1Next-鹅版 v2.4.4.1</blockquote>
+【动画化的15年曲折之路【âge公式生放送 [still breathing] #95 20210903】剪辑全熟-哔哩哔哩】https://b23.tv/lWRQs5
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
