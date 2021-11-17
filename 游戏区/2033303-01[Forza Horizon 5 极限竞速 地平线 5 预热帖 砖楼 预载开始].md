@@ -13124,3 +13124,24 @@ ms说了hub不会更新了，明年年中彻底关掉。
 播放列表里也是未完成，什么鬼 ...</blockquote>
 我也是，永远差1m，后面干脆放弃了
 
+
+
+*****
+
+####  docklabor  
+##### 1191#       发表于 2021-11-17 11:21
+
+我一直都打不开点数商店，其他啥都正常，简直日了狗，有人知道啥问题不
+
+*****
+
+####  wzy200912345  
+##### 1192#       发表于 2021-11-17 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575995&amp;ptid=2033303" target="_blank">docklabor 发表于 2021-11-17 11:21</a>
+
+我一直都打不开点数商店，其他啥都正常，简直日了狗，有人知道啥问题不</blockquote>
+“The Forzathon Shop is currently not open, please keep an eye on our social channels for when this is available”
+
+PG恐怕得修完bug才开
+

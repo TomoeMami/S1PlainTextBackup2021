@@ -5218,3 +5218,23 @@ day3
 
 尾巴群的说别人魔怔人属于是贼喊捉贼了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雪风utopia  
+##### 5096#       发表于 2021-11-17 11:13
+
+e哥这算什么呢，退坑反踩吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5097#       发表于 2021-11-17 11:18
+
+待过一个群就算进坑了的话，我在小狼窝和thh官群等群都待过，怎么没见有人来咬我【退坑反踩】呢？
+
+还是说尾巴区的群确实不配拿别人是魔怔人这种东西来说事呢？建议好好学习一下什么叫做逻辑，不要揪着个本质狗屁都不算的事实就跟我扯皮你也不是什么好东西
+
+我不是好东西也不等于我是尾巴区的人，这个道理有什么很难理解的吗，亦或者是说我2013年玩贴吧的时候有vtuber这个概念了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
