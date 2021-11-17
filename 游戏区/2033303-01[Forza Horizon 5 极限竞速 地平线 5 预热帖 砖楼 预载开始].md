@@ -13276,3 +13276,25 @@ PG恐怕得修完bug才开
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">被人发现授权页上加上了上汽和蔚来EP9的信息，搞不好上汽给了mini ev
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1205#       发表于 2021-11-18 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586750&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-17 22:59</a>
+刚才好不容易才凑够五六个人把过关赛过了，在场所有人都非常兴奋，实在是太不容易了 ...</blockquote>
+周常就差这个了，明早打算去美服试试最后一搏
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  拉鲁拉丝  
+##### 1206#       发表于 2021-11-18 00:35
+
+劲敌赛abcd5%以内也太难了，完全进不去。都开挂了吗。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

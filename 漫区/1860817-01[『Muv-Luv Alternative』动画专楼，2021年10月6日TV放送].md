@@ -19906,3 +19906,16 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 
 砍了那么多剧情之后剩下的基本都是跟狐狸相关的了，真的有点女主的感觉了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1390#       发表于 2021-11-18 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53587888&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-11-18 00:18</a>
+砍了那么多剧情之后剩下的基本都是跟狐狸相关的了，真的有点女主的感觉了 ...</blockquote>
+游戏里把香月认作女主也没问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -3306,3 +3306,23 @@ colopl收的是mages
 
 露营版权肯定要重新打招呼吧，不过这次不是有门路了嘛。按我说就别碰瓷了，干脆谈一下直接来个IP品牌联动活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6237#       发表于 2021-11-18 00:26
+
+<img src="https://img.saraba1st.com/forum/202111/18/002337i9yjyic94nsismci.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211118001626.png</strong> (54.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 00:23 上传
+
+这张图放了俩阿噶群，反应都炸得有点大啊233<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真相：
+https://twitter.com/Rookieforever1/status/1460999196652146690
+
