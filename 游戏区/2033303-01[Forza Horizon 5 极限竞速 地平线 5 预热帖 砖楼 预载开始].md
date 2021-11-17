@@ -13145,3 +13145,15 @@ ms说了hub不会更新了，明年年中彻底关掉。
 
 PG恐怕得修完bug才开
 
+
+
+*****
+
+####  AliceMilky  
+##### 1193#       发表于 2021-11-17 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575539&amp;ptid=2033303" target="_blank">AEmpire 发表于 2021-11-17 10:50</a>
+
+我也是，永远差1m，后面干脆放弃了</blockquote>
+我是先去别的飞，然后再传送过去飞就成功了
+

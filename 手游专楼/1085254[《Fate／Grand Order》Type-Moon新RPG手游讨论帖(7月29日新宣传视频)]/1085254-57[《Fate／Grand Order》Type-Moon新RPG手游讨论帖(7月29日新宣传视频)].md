@@ -3484,3 +3484,14 @@ banana继续绝版中
  ...</blockquote>
 天下布五<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空气蛹  
+##### 84291#       发表于 2021-11-17 12:01
+
+死亡冲刺完成，赶在最后2分钟打完了高难<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

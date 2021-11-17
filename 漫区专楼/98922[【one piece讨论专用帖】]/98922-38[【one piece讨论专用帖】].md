@@ -7549,3 +7549,14 @@ PS.女澡堂和海贼王你竟然选择了海贼王（划掉）
 
 一把大快刀搞得那么神乎其神，怕是等练成了黑刀也都是尾田他爹的功劳，索隆果然只是阎魔放置架<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 56077#       发表于 2021-11-17 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就像战斗服成就了三治一样
+
+我相信这刀也会成就索隆
+

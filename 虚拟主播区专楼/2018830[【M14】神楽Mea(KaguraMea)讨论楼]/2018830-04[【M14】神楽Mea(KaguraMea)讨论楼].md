@@ -5254,3 +5254,36 @@ e哥这算什么呢，退坑反踩吗<img src="https://static.saraba1st.com/imag
 
 v8群是我爹，不准骂他
 
+
+
+*****
+
+####  往世雷书  
+##### 5100#       发表于 2021-11-17 11:46
+
+打，打起来，揪他头发
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  雪风utopia  
+##### 5101#       发表于 2021-11-17 11:48
+
+ 本帖最后由 雪风utopia 于 2021-11-17 11:55 编辑 
+
+当然，群里还是欢迎大家的，大门一直敞开<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+放一个大门在这里:135133231
+
+*****
+
+####  ColdAir  
+##### 5102#       发表于 2021-11-17 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575381&amp;ptid=2018830" target="_blank">呓亘 发表于 2021-11-17 10:38</a>
+给小狼群发了两次申请都没给通过 好冰冷的世界啊</blockquote>
+🐉🐢进🍊了，没人审核了
+
