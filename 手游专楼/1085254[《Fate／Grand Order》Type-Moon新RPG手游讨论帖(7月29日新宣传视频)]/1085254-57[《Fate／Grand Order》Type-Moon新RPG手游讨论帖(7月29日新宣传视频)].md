@@ -3770,3 +3770,88 @@ banana继续绝版中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼节性10票无事发生，跑路了，这池子我要扔1石算我输
 
+
+
+*****
+
+####  qixinno2  
+##### 84325#       发表于 2021-11-17 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585023&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-17 21:17</a>
+
+欧 超绝羡慕 连这都能预感到 太羡慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有几个渣渣角色都是这么抽到的 抽卡前知道这角色比较弱B 但没事干准备扔石头 点抽卡的那一瞬间就感觉要出货了
+
+*****
+
+####  v22325  
+##### 84326#       发表于 2021-11-17 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然发现没有鬼武藏 二十发才来 其他什么都没有 不抽了
+
+*****
+
+####  alucardcz  
+##### 84327#       发表于 2021-11-17 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585168&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-17 21:26</a>
+
+有几个渣渣角色都是这么抽到的 抽卡前知道这角色比较弱B 但没事干准备扔石头 点抽卡的那一瞬间就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧！
+
+
+
+*****
+
+####  qixinno2  
+##### 84328#       发表于 2021-11-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585442&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-17 21:39</a>
+
+欧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">欧个蛋蛋 摩根之后三个多月才出的首个五星就是个弱渣
+
+*****
+
+####  alucardcz  
+##### 84329#       发表于 2021-11-17 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585489&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-17 21:43</a>
+
+欧个蛋蛋 摩根之后三个多月才出的首个五星就是个弱渣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">new血赚 这游戏99%的卡基本都用不上不是常识吗
+
+*****
+
+####  Jamaisvu  
+##### 84330#       发表于 2021-11-17 21:48
+
+新活动这个赛博朋克混搭日本昭和风，莫名地给我一种忍者杀手的既视感...
+
+
+
+*****
+
+####  qixinno2  
+##### 84331#       发表于 2021-11-17 22:01
+
+ 本帖最后由 qixinno2 于 2021-11-17 22:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585513&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-17 21:45</a>
+
+new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但这也太菜了啊 卡面是伽摩那种戳人XP也行 这完全不行啊
+
+*****
+
+####  angelooo  
+##### 84332#       发表于 2021-11-17 22:28
+
+讲真阿国但凡有个御姐ver我也就忍了，这次noco感觉摸了，这就是你游优秀画师的宿命吗
+
+*****
+
+####  黑上シグマ  
+##### 84333#       发表于 2021-11-17 22:37
+
+翻页
+

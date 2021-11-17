@@ -6335,3 +6335,73 @@ pay这指甲要是可堇这团也太扭了，我姑且当恋堇吧。省一楼�
 
 我觉得liella还是别进llas了，这游戏没救的，我不想为了liella去玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实还不如开个四团新游戏，把垃圾klab踢开
 
+
+
+*****
+
+####  Karin11974  
+##### 582#       发表于 2021-11-17 21:26
+
+募集来信，但是感觉也没啥好写的，也不玩手游，等各位整活了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a92063256  
+##### 583#       发表于 2021-11-17 21:31
+
+LLAS下了又删，始终没玩长<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 584#       发表于 2021-11-17 21:34
+
+想着万代能不能让南梦宫偶像大师组做款ll游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蜜梨柑  
+##### 585#       发表于 2021-11-17 21:48
+
+那我觉得不如指望se，起码负责开发了街机版和主机版游戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 586#       发表于 2021-11-17 22:21
+
+问题提交了，不知道会不会被抽到
+
+
+
+*****
+
+####  stygian  
+##### 587#       发表于 2021-11-17 22:27
+
+pay子那美甲我更倾向于是蒂芬妮色
+
+*****
+
+####  金持池面  
+##### 588#       发表于 2021-11-17 22:34
+
+ 本帖最后由 金持池面 于 2021-11-17 22:38 编辑 
+
+这指甲肯定是可可色啦，pay这自拍背景全是可堇，还用身体和杯子挡住了香音，太沉重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 589#       发表于 2021-11-17 22:40
+
+那条官推底下有不少伪中国语，什么“我绝对视听不可避”之类的
+
+还有一个：快进到上海偶像怒斥香港主播
+
