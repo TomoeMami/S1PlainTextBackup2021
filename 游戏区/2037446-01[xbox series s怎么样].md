@@ -849,3 +849,24 @@ xgp三年200块怎么拿到的？一个月不是都要9刀么，还是家庭套�
 
 建议常驻李家坡，中文游戏最多
 
+
+
+*****
+
+####  若闲  
+##### 86#       发表于 2021-11-17 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541313&amp;ptid=2037446" target="_blank">Redis 发表于 2021-11-14 17:10</a>
+
+xgp三年200块怎么拿到的？一个月不是都要9刀么，还是家庭套餐？</blockquote>
+淘宝直接买，建议申请个游戏专用新账号，三年158，昨天刚帮朋友买了，目前正在爽地平线5。
+
+顺便一提我十一买的500块三年<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  共谍常凯申  
+##### 87#       发表于 2021-11-17 20:39
+
+性能太渣了，完全没必要
+
