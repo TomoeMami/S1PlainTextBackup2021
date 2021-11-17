@@ -3744,3 +3744,29 @@ banana继续绝版中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这兰丸是宇宙来的吧 怎么混在信长这边了
 
+
+
+*****
+
+####  qixinno2  
+##### 84322#       发表于 2021-11-17 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 虽然我有预感会抽到 但没想到真TMD一发十连就出了 果然我注定只能抽到微妙角色么
+
+*****
+
+####  alucardcz  
+##### 84323#       发表于 2021-11-17 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53584907&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-17 21:07</a>
+
+艹 虽然我有预感会抽到 但没想到真TMD一发十连就出了 果然我注定只能抽到微妙角色么 ...</blockquote>
+欧 超绝羡慕 连这都能预感到 太羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84324#       发表于 2021-11-17 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼节性10票无事发生，跑路了，这池子我要扔1石算我输
+

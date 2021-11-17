@@ -6284,3 +6284,54 @@ pay这指甲要是可堇这团也太扭了，我姑且当恋堇吧。省一楼�
 
 有人发现对面是小百合，应该是小百合帮她拍的，怪不得关了美颜，而且角度也有点微妙
 
+
+
+*****
+
+####  kata魂  
+##### 577#       发表于 2021-11-17 21:06
+
+<img src="https://img.saraba1st.com/forum/202111/17/210601o4mnqvh05lvhxvvx.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (49.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-17 21:06 上传
+
+贴吧有人说是蜜瓜绿，我搜了一下，还真是
+
+美甲对于我这种直男来说还是太难分辨了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 578#       发表于 2021-11-17 21:07
+
+佩佩…………佩佩啊……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+鲤鱼坏人
+
+*****
+
+####  player3960  
+##### 579#       发表于 2021-11-17 21:08
+
+直接出个新手游吧，四个团一起进去，话说万南自己又不是不做游戏，干嘛不自己开发<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 580#       发表于 2021-11-17 21:15
+
+鲤鱼和菜宝这生放莫不是鲤鱼跑去问了然后给企划个启发安排的？我记得之前直播她还说不行，后来又说去问问虽然估计也是不太行。结果现在居然成了，希望能变成固定节目……
+
+*****
+
+####  chenflyyy  
+##### 581#       发表于 2021-11-17 21:20
+
+我觉得liella还是别进llas了，这游戏没救的，我不想为了liella去玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实还不如开个四团新游戏，把垃圾klab踢开
+
