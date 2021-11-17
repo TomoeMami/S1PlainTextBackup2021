@@ -10223,3 +10223,14 @@ syl文静不在的日子里补了好多游戏和番，人也正常多了，老�
 为什么没回我😭我🦈了你😭😭😭😭</blockquote>
 每条动态都回一嘴迟早会回的，不过还是直播里PUA好玩。
 
+
+
+*****
+
+####  小憨1  
+##### 2608#       发表于 2021-11-17 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579136&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-17 14:51</a>
+每条动态都回一嘴迟早会回的，不过还是直播里PUA好玩。</blockquote>
+到现在总共就回了我5条评论和2次私信😭😭😭
+
