@@ -3543,3 +3543,52 @@ banana继续绝版中
 
 新歌出来了，伍越同舟。这系列能出到拾吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 84298#       发表于 2021-11-17 18:45
+
+好的，萝莉pass
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 84299#       发表于 2021-11-17 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森兰丸变娘们了
+
+*****
+
+####  黑上シグマ  
+##### 84300#       发表于 2021-11-17 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼节性扔几张票
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  Jamaisvu  
+##### 84301#       发表于 2021-11-17 18:51
+
+迷之兰丸X，不知道是森兰丸本丸还是套马甲的别人......不过信长已经娘化了，真的森兰丸也变女倒也没什么不妥，继续homo（误）
+
+*****
+
+####  Jamaisvu  
+##### 84302#       发表于 2021-11-17 18:58
+
+其实把织田信长和头骨放在一起，联想到的是浅井长政或者阿市...说不定谜兰丸是其一的马甲呢...
+
+*****
+
+####  alucardcz  
+##### 84303#       发表于 2021-11-17 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页
+

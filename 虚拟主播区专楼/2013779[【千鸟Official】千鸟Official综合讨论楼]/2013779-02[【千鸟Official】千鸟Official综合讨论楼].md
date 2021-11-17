@@ -10261,3 +10261,16 @@ syl文静不在的日子里补了好多游戏和番，人也正常多了，老�
 
 输麻了
 
+
+
+*****
+
+####  丢了五块钱  
+##### 2612#       发表于 2021-11-17 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574062&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-11-17 08:55</a>
+白白的录播出了
+
+https://www.bilibili.com/video/BV1xQ4y1U7pM?spm_id_from=444.41.0.0</blockquote>
+ylg功课属实没做好，含金量定型文都没念好，不得不说海子姐nb
+
