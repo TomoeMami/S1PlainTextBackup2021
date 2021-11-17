@@ -6506,3 +6506,12 @@ BFCCFB09-E066-4AD0-A596-55DBECD760DA.jpeg
 
 <img src="https://img.saraba1st.com/forum/202111/17/235912hb1g0mucrbgx10nm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 597#       发表于 2021-11-18 01:08
+
+ll官推还发了中文版的，就是2022写成2021很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
