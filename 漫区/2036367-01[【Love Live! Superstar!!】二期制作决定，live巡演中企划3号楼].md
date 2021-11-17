@@ -6515,3 +6515,17 @@ BFCCFB09-E066-4AD0-A596-55DBECD760DA.jpeg
 
 ll官推还发了中文版的，就是2022写成2021很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  世界的膀胱者  
+##### 598#       发表于 2021-11-18 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588269&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-18 01:08</a>
+ll官推还发了中文版的，就是2022写成2021很尴尬</blockquote>
+2022年以后理论上也是是2021年以后
+逻辑上没问题<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

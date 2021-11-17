@@ -19963,3 +19963,29 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 
 小兔子的不少小动作都还行，看来制作组是萝莉控。
 
+
+
+*****
+
+####  菱0零  
+##### 1396#       发表于 2021-11-18 01:24
+
+感觉明明因为疯狂快进只抓重点，导致武变成纯夏究极单推人了，结果还是花了半集时间老老实实推进和霞的关系，反而和纯夏聊天的部分草草了事，霞真是制作组亲女儿啊
+这最后一幕也太226了，按照这个加戏程度，会不会把天诛国贼的场面做出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hacisiki  
+##### 1397#       发表于 2021-11-18 01:24
+
+12.5开始咯，下周大的要来了。
+
+*****
+
+####  hlazd  
+##### 1398#       发表于 2021-11-18 01:32
+
+最后那几个镜头真的很经典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

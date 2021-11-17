@@ -13309,3 +13309,16 @@ PG恐怕得修完bug才开
 
 所以如果不想看着车库里两辆相同的车无能狂怒的话，就先别做super7了
 
+
+
+*****
+
+####  bad_alloc  
+##### 1208#       发表于 2021-11-18 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588037&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-18 00:35</a>
+劲敌赛abcd5%以内也太难了，完全进不去。都开挂了吗。
+
+—— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅 ...</blockquote>
+5%还挺简单的吧，自己改的车都1%了
+
