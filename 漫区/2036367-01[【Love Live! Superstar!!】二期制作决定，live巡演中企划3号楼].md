@@ -5726,3 +5726,28 @@ s1巨魔除了把米吃贵p用没有<img src="https://static.saraba1st.com/image
 
 一般尺度比较大，会有泳装等比较轻薄的服装。大家可以试着在微博搜索“週プレ”看看。
 
+
+
+*****
+
+####  player3960  
+##### 520#       发表于 2021-11-17 12:44
+
+民警的个人曲真好听啊，还是爵士乐，2nd live上应该能听到吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 521#       发表于 2021-11-17 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">太好听了吧~
+
+*****
+
+####  lj205  
+##### 522#       发表于 2021-11-17 13:00
+
+民警曲风定调是爵士乐了咩？
+
+想听她们唱kpop 风
+
