@@ -19882,3 +19882,18 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1388#       发表于 2021-11-17 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53572388&amp;ptid=1860817" target="_blank">oskneo 发表于 2021-11-17 00:39</a>
+求日文名或链接。
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 S1Next-鹅版 v2.4.4.1</blockquote>
+【动画化的15年曲折之路【âge公式生放送 [still breathing] #95 20210903】剪辑全熟-哔哩哔哩】https://b23.tv/lWRQs5
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
