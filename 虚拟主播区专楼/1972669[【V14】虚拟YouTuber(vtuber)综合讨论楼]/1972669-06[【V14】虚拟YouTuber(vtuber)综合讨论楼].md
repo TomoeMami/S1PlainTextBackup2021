@@ -12655,3 +12655,12 @@ bora这基本是转生宣言了吧……
 
 每次听这位大小姐直播唱歌都觉得您还是多练练为好（录音尚可，直播气短），不过打榜斗虫真的是坏文明<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 8448#       发表于 2021-11-18 18:14
+
+Ahamo看着好像Amazon啊...明明是Docomo。
+

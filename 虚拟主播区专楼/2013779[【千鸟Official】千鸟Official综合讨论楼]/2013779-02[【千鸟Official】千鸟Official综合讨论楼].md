@@ -10583,3 +10583,26 @@ dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还�
 
 这个月应该是寄了
 
+
+
+*****
+
+####  小憨1  
+##### 2649#       发表于 2021-11-18 18:13
+
+一天没有补充静能量，我身上好像有白白在爬<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2650#       发表于 2021-11-18 18:18
+
+文静寄了这几天看了一些其他四个人的切片，白白就不说了，王木木真是不简单，coco感觉是天赋选手青春无敌，最没记忆点的果然是队长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zuperer  
+##### 2651#       发表于 2021-11-18 18:19
+
+什么四保一
+
