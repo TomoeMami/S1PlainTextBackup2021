@@ -12790,3 +12790,25 @@ SINSEKAI STUDIO が求めているのは新たなる歌声、そして次世代�
 
 神椿应该没有独角兽吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 8455#       发表于 2021-11-18 22:00
+
+ 本帖最后由 FCCHua 于 2021-11-18 22:02 编辑 
+
+vspo怎么又要集体valorant<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 8456#       发表于 2021-11-18 22:15
+
+这哥们第一眼让我想起律可，还都是吉他弹唱选手，发的这首歌挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+裸春市和深脊界这个高楼大厦雨夜霓虹灯的风格，挺刻板印象赛博朋克的，还弄那么多中文招牌......
+
+看起来深脊界和裸春市应该是设定为“对立”，有点像最早的hnst和anmr那种
+

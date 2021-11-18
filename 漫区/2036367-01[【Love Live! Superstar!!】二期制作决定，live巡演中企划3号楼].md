@@ -7106,3 +7106,42 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 顺便它自称是12年的古参<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 650#       发表于 2021-11-18 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602010&amp;ptid=2036367" target="_blank">cxj649 发表于 2021-11-18 22:00</a>
+
+这位，在虹之咲字幕组的联动动态评论里。之前在被L吧挂过所以我有点印象
+
+顺便它自称是12年的古参[f ...</blockquote>
+翻了一圈 今日人类观察了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+看说话方式好像也不像是鬼岛的……但也不像是大陆的 哥谭人？
+
+话说看了一遍他动态 感觉就没有他不喷的东西
+
+*****
+
+####  cxj649  
+##### 651#       发表于 2021-11-18 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602144&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-18 22:11</a>
+
+翻了一圈 今日人类观察了属于是
+
+看说话方式好像也不像是鬼岛的……但也不像是大陆的 哥谭人？
+
+话 ...</blockquote>
+按时间的话，它之所以黑鲤鱼，大概也只是鲤鱼加了LL而已，几个关键字它喷的时间太火星了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 652#       发表于 2021-11-18 22:23
+
+这种人就没必要搭理他了
+
