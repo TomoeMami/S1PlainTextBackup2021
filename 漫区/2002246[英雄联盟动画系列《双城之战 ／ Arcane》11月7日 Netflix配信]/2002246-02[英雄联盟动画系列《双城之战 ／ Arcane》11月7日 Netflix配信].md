@@ -1399,3 +1399,19 @@ vi能不能认真加强下啊<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  凡人  
+##### 1603#       发表于 2021-11-18 22:55
+
+前三集蔚已经17岁了啊，看不太出来
+
+*****
+
+####  theti  
+##### 1604#       发表于 2021-11-18 22:57
+
+vi的大招太弱智了，空中就被人打死了等于控自己
+

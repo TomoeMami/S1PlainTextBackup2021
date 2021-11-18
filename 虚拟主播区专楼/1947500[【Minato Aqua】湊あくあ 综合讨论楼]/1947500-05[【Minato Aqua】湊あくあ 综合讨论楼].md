@@ -14750,3 +14750,23 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 阿B有人建了个HOLO的频道 有要进的吗 可以私信我留QQ号我找频道主要邀请票 我积分不够回不了私信
 
+
+
+*****
+
+####  a2276382  
+##### 7193#       发表于 2021-11-18 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602386&amp;ptid=1947500" target="_blank">西行寺八云紫 发表于 2021-11-18 22:32</a>
+阿B有人建了个HOLO的频道 有要进的吗 可以私信我留QQ号我找频道主要邀请票 我积分不够回不了私信 ...</blockquote>
+已私信
+
+*****
+
+####  越动天下  
+##### 7194#       发表于 2021-11-18 22:53
+
+ 本帖最后由 越动天下 于 2021-11-18 22:55 编辑 
+
+里面aqua频道天天crew和天狗还有其他的人搏击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想好呀 syl 烂掉的11月
+
