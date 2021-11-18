@@ -6913,3 +6913,21 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 第七话看完啦，这展开确实没有料到，另外这片子也太喜欢迫害民警同志了</blockquote>
 我不说话<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 632#       发表于 2021-11-18 13:42
+
+都有点冲动上全特了！……我一直在等特典图，所以还没下单
+
+*****
+
+####  Karin11974  
+##### 633#       发表于 2021-11-18 14:02
+
+鲤鱼个人的曲风，只能说我不是受众，很难无脑买支持<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，冲个fc看看文好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
