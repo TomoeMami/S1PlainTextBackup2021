@@ -6837,3 +6837,36 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 626#       发表于 2021-11-18 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594197&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-18 12:52</a>
+有点小贵，最重要是人在国内享受不到福利
+
+—— 来自 S1Fun</blockquote>
+福利基本都能享受到啊，你指哪些？
+
+*****
+
+####  Karin11974  
+##### 627#       发表于 2021-11-18 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594346&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-18 13:04</a>
+福利基本都能享受到啊，你指哪些？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/18/130706mq74psqu11j7utii.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4140.PNG</strong> (225.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 13:07 上传
+
+这几个？虽然目前好像也没啥活动的样子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

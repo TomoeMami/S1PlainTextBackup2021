@@ -2304,3 +2304,32 @@ image.png
 —— 来自 MANN 8S, Android 7.1.2上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 那也要有个华为手机才能有一体机功能.... 饺子哥用过吗？体验咋样？主要是佩戴咋样？
 
+
+
+*****
+
+####  dumplingpro  
+##### 146#       发表于 2021-11-18 13:05
+
+ 本帖最后由 dumplingpro 于 2021-11-18 13:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594156&amp;ptid=2034565" target="_blank">五元请收好 发表于 2021-11-18 12:49</a>
+
+那也要有个华为手机才能有一体机功能.... 饺子哥用过吗？体验咋样？主要是佩戴咋样？ ...</blockquote>
+没用过，因为定位是废物，所以没把他当VR……
+
+不过群里有，短焦VR就是轻便这个没的说，其他比较渣。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  五元请收好  
+##### 147#       发表于 2021-11-18 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594371&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-18 13:05</a>
+
+没用过，因为定位是废物，所以没把他当VR……
+
+不过群里有，短焦VR就是轻便这个没的说，其他比较渣。[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 感谢回复
+
+华为打扰了
+

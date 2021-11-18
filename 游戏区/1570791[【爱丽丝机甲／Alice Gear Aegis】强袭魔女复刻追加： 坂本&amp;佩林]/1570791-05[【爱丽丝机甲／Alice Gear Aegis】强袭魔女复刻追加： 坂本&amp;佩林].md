@@ -3376,3 +3376,23 @@ ps 可以提前改标题了
 
 感谢提醒 已改
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6243#       发表于 2021-11-18 13:04
+
+ova不是已经有过男声优了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来想说有伪娘就抽，但仔细一想就算真有也是性转版本。金字塔够胆敢上小动物吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 6244#       发表于 2021-11-18 13:13
+
+男声优是男声优
+伪娘上机可就颠覆世界观了
+变成了is世界观(
+
