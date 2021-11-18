@@ -20098,3 +20098,12 @@ TVアニメ『マブラヴ オルタネイティヴ』第7話「約束」
 
 漫画版彩峰是按着白银武<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是基于漫画改编的
 
+
+
+*****
+
+####  熊猫阿黑  
+##### 1407#       发表于 2021-11-18 21:28
+
+Alt3那一屋子杜霞的姐妹，身高发型各不相同，而且没有一个崩的。。
+

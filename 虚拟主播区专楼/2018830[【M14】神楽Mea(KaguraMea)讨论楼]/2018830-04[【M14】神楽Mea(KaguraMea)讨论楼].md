@@ -6851,3 +6851,59 @@ syl  没说，现在都没说时间怕不是突击直接开了
 
 叔叔的任务罢了
 
+
+
+*****
+
+####  雪风utopia  
+##### 5296#       发表于 2021-11-18 21:30
+
+楼友不是有个fjb吗，给羊身上开个洞放进去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 5297#       发表于 2021-11-18 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">你麻当初如日中天蒸蒸日上的时候不来弄现在才来割这最后一点 想不透
+
+草莓果酱买 
+
+*****
+
+####  黒長直姫  
+##### 5298#       发表于 2021-11-18 21:34
+
+如日中天的时候你麻怕啊
+
+但凡你麻有点野心 还有XX XXX什么事
+
+*****
+
+####  雪风utopia  
+##### 5299#       发表于 2021-11-18 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601657&amp;ptid=2018830" target="_blank">ashero 发表于 2021-11-18 21:32</a>
+你麻当初如日中天蒸蒸日上的时候不来弄现在才来割这最后一点 想不透
+
+草莓果酱买  ...</blockquote>
+有没有可能现在才想到呢<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 5300#       发表于 2021-11-18 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理，管人除了老爱四天王这种知名度高的早些时候就出了塑料小人，你麻已经算那之后比较早的那批了（虽然是国内厂家）
+
+*****
+
+####  TomDu  
+##### 5301#       发表于 2021-11-18 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601657&amp;ptid=2018830" target="_blank">ashero 发表于 2021-11-18 21:32</a>
+你麻当初如日中天蒸蒸日上的时候不来弄现在才来割这最后一点 想不透
+
+草莓果酱买  ...</blockquote>
+想透的想透的
+
