@@ -670,3 +670,16 @@ booster也有科兴内个效果？<img src="https://static.saraba1st.com/image/s
 
 没啥事。
 
+
+
+*****
+
+####  睏睏  
+##### 76#       发表于 2021-11-19 06:04
+
+ 本帖最后由 睏睏 于 2021-11-19 06:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604373&amp;ptid=2038124" target="_blank">烦死了 发表于 2021-11-19 06:00</a>
+
+什么叫 已经要， 我们这边红州从来没人管过ever</blockquote>
+我们封城两百多天了，最近解封，然后即将开放所有限制。密切接触者都不需要隔离了，也不会公布哪里有病例哪里高风险了。
+
