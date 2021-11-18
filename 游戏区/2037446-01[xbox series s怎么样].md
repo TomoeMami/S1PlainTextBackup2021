@@ -870,3 +870,36 @@ xgp三年200块怎么拿到的？一个月不是都要9刀么，还是家庭套�
 
 性能太渣了，完全没必要
 
+
+
+*****
+
+####  cubesun  
+##### 88#       发表于 2021-11-18 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541957&amp;ptid=2037446" target="_blank">管他三俗 发表于 2021-11-14 18:14</a>
+
+在用XSS玩地平线5 体验就是挺行 比PC读盘快了不止一点点 而且BUG也少功耗也低（玩地平线70w左右） 玩个一天 ...</blockquote>
+不对呀，XGPU不是自带金会员吗？
+
+另外你XSS和电脑的云存档公用起来方便吗？切换设备都能直接接着玩？
+
+*****
+
+####  cubesun  
+##### 89#       发表于 2021-11-18 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545413&amp;ptid=2037446" target="_blank">炯Ⅺ 发表于 2021-11-14 22:56</a>
+
+再借楼问一下，刚买了XSS，我肯定是会买忍龙黑和忍龙2无印的，但忍龙3刀锋该买哪个版本？是买xbox360的3刀 ...</blockquote>
+你向下兼容的运行效果怎么样？默认X1S的水平是现在最劝退我的。不然我都想图便宜搞个来配XGPU用了。
+
+不过我看了B站评测，现在XSS也支持FPS BOOST，很多老游戏都可以达到2K60帧，这样看来也不错？主要看具体是哪些游戏支持的。
+
+*****
+
+####  fengyue  
+##### 90#       发表于 2021-11-18 17:18
+
+xss最神奇的地方是，你如果经常出差且旅行箱大一点，你是能带的。
+
