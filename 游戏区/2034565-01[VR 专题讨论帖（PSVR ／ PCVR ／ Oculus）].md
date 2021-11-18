@@ -2218,3 +2218,50 @@ https://uploadvr.com/meta-quest-2-10-million-oculus
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  dumplingpro  
+##### 142#       发表于 2021-11-18 09:42
+
+17号华为vr glass发布了双摄像头图像识别配件，还整了个quest同款手柄。
+
+不知道华为的定位技术，有什么水平，能不能追**ICO。<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+反正看了是转投arpara+灯塔套件了
+
+<img src="https://img.saraba1st.com/forum/202111/18/094043c7fejejnzj57zrzn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 09:40 上传
+
+<img src="https://img.saraba1st.com/forum/202111/18/094057n1s510skd0kc24gs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (668.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 09:40 上传
+
+image.png
+(9.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 09:40 上传
+
+<img src="https://img.saraba1st.com/forum/202111/18/094013cssy6fjslz1axsla.png" referrerpolicy="no-referrer">
+
+image.png
+(4.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 09:40 上传
+
+<img src="https://img.saraba1st.com/forum/202111/18/094036mmp4pp5pdjcrjzu5.png" referrerpolicy="no-referrer">
+
