@@ -1447,3 +1447,61 @@ vi的大招太弱智了，空中就被人打死了等于控自己
 
 佛耶格尔<img src="https://static.saraba1st.com/image/smiley/carton2017/371.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  漫漫来  
+##### 1609#       发表于 2021-11-19 00:48
+
+打了一天，维克托不管在上路还是在中路都是被杰斯爆杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这版本杰斯有了先攻真的无敌，打肉打脆皮都能玩
+
+*****
+
+####  arctichan  
+##### 1610#       发表于 2021-11-19 00:50
+
+从没想到有一天我会说出这句话：金克斯的侧乳真诱人。
+
+*****
+
+####  镜面の云  
+##### 1611#       发表于 2021-11-19 00:54
+
+ 本帖最后由 镜面の云 于 2021-11-19 00:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602426&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-18 22:36</a>
+
+狼人都T2了（虽然新版本数据不稳定）
+
+vi能不能认真加强下啊</blockquote>
+蔚不改机制的画永远有上位替代青钢影（换血护盾，突进眩晕，攻速，大招锁定击退周围人）
+
+不过结合故事背景，灰夫人也是执法官的上位替代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 1612#       发表于 2021-11-19 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">妈的破败这游戏剧情不是挺完整的，怎么皮肤事件弄得这么丑陋
+
+*****
+
+####  bairn  
+##### 1613#       发表于 2021-11-19 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603766&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-19 00:55</a>
+
+妈的破败这游戏剧情不是挺完整的，怎么皮肤事件弄得这么丑陋</blockquote>
+这事发生在光明哨兵1年前
+
+*****
+
+####  阿刚  
+##### 1614#       发表于 2021-11-19 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603798&amp;ptid=2002246" target="_blank">bairn 发表于 2021-11-19 01:01</a>
+
+这事发生在光明哨兵1年前</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">是啊，我的意思是这不一个挺正常的开头，甚至可以说开的很不错的头，然后游戏里搞了个……都不是蛇尾或者续貂了……你哪怕参考下破王游戏里剧情的铺垫也不至于崩成这样啊。一年前厄运赌命打到暗影岛，一年后自己主动吃破败……
+
