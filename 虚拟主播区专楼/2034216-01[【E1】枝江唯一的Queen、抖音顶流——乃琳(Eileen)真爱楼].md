@@ -2676,3 +2676,22 @@ douban.com/group/topic/252737763/
 
 晚安，乃宝，明天等你和拉姐的直播
 
+
+
+*****
+
+####  sanlow666  
+##### 204#         楼主| 发表于 2021-11-18 15:29
+
+乃琳Queen:[发布抖音](https://www.douyin.com/video/7031805895361219871)
+
+我不相信你没有这样过！#校内校外#有课和没课的区别
+
+<img src="https://img.saraba1st.com/forum/202111/18/152858mg7gbi5iggiz1yvd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 15:28 上传
+
