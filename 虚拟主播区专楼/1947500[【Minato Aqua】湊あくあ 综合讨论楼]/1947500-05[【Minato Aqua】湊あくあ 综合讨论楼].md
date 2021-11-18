@@ -14770,3 +14770,28 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 里面aqua频道天天crew和天狗还有其他的人搏击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想好呀 syl 烂掉的11月
 
+
+
+*****
+
+####  雪风utopia  
+##### 7195#       发表于 2021-11-18 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602631&amp;ptid=1947500" target="_blank">越动天下 发表于 2021-11-18 22:53</a>
+里面aqua频道天天crew和天狗还有其他的人搏击 想好呀 syl 烂掉的11月</blockquote>
+感觉不如无限制竞技场的s1好用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西行寺八云紫  
+##### 7196#       发表于 2021-11-18 23:04
+
+现在还好 今晚船员爆发了一波已经不让在夸频道遭皮其他v了
+
+*****
+
+####  西行寺八云紫  
+##### 7197#       发表于 2021-11-18 23:05
+
+要加的私信留我qq号这个频道邀请是QQ上邀请的
+

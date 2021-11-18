@@ -10778,3 +10778,12 @@ dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还�
 
 我每次点进琳直播间，有一半概率是在谈吃的，很难不是肥婆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2672#       发表于 2021-11-18 23:18
+
+算是和草莓 椰子这烂梗过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

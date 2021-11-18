@@ -13700,3 +13700,19 @@ lod修复，起码在火山口不是一片糊了
 
 这周的蛇头限定A800的现代超跑，这不就只有i8符合条件吗
 
+
+
+*****
+
+####  Totokei  
+##### 1247#       发表于 2021-11-18 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩了两周外加点了几台supra也才500多个fp点，买了商店限定的本田就花完了，这一作也是只有去玩arcade才能获得比较多的fp点吗
+
+*****
+
+####  战狼PTSD  
+##### 1248#       发表于 2021-11-18 23:10
+
+特么的，今天忽悠朋友开XGP，准备上游戏来点截图，结果更新一直失败，按网上教程重置商城后游戏直接没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
