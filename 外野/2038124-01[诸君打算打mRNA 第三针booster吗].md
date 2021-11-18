@@ -692,3 +692,15 @@ booster也有科兴内个效果？<img src="https://static.saraba1st.com/image/s
 
 就很纠结，5月份打的辉瑞第二针，最危险的要教书的9-12月没法打booster，过完12月基本每天接触不到太多人，怕副作用太大又不太想去打。
 
+
+
+*****
+
+####  ztgmeteor  
+##### 78#       发表于 2021-11-19 06:58
+
+迫不及待的想打第三针了。
+之前感觉不出来疫苗的作用，直到有一天我老板确诊delta（他没打疫苗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+兄弟们，疫苗真的有用，我真的迫不及待的要打第三针了。
+哦，疫苗是辉瑞。
+
