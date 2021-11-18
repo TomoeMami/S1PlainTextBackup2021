@@ -12761,3 +12761,32 @@ SINSEKAI STUDIO が求めているのは新たなる歌声、そして次世代�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不还在招人吗，别急啊
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8453#       发表于 2021-11-18 21:55
+
+<img src="https://img.saraba1st.com/forum/202111/18/215410r5cqmghzzcg5pt7q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>はじめまして。この度SINSEKAI STUDIOからデビュー することになりました。跳亜（トビ.jpeg</strong> (303.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 21:54 上传
+
+魔男入场<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> <blockquote>はじめまして。この度SINSEKAI STUDIOからデビュー
+
+することになりました。跳亜（トビア）です。
+
+よろしくお願いします
+[https://www.youtube.com/watch?v=143pBQQm5Y8](https://www.youtube.com/watch?v=143pBQQm5Y8)</blockquote>
+
+*****
+
+####  OldGlory  
+##### 8454#       发表于 2021-11-18 21:57
+
+神椿应该没有独角兽吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

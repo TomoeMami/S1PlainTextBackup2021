@@ -7050,3 +7050,59 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 就是录好的节目
 
+
+
+*****
+
+####  cat1230  
+##### 646#       发表于 2021-11-18 21:52
+
+星团这个行程堪比996了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不对，感觉比996还很，因为基本不能随便摸鱼得全力以赴的上节目
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 647#       发表于 2021-11-18 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼加上个人活动基本007了………………
+
+*****
+
+####  D麦林  
+##### 648#       发表于 2021-11-18 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53598864&amp;ptid=2036367" target="_blank">cxj649 发表于 2021-11-18 18:25</a>
+
+在菜鱼联动看到一个之前在L吧挂过的鲤鱼黑，我好奇去看它动态
+
+只能说这种黑子有点可悲，没鲤鱼时候黑水，黑 ...</blockquote>
+谁啊 我去各大平台翻了一圈没看到疑似你说的人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还是说已经被我拉黑了
+
+*****
+
+####  cxj649  
+##### 649#       发表于 2021-11-18 22:00
+
+ 本帖最后由 cxj649 于 2021-11-18 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601951&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-18 21:55</a>
+
+谁啊 我去各大平台翻了一圈没看到疑似你说的人啊
+
+还是说已经被我拉黑了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/18/220038chrrajm4r8um1amn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211118215839.png</strong> (6.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 22:00 上传
+
+这位，在虹之咲字幕组的联动动态评论里。之前在被L吧挂过所以我有点印象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便它自称是12年的古参<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

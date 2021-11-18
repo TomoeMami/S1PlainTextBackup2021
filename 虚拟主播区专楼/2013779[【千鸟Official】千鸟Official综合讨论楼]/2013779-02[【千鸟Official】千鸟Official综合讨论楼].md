@@ -10716,3 +10716,56 @@ dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还�
 
 那确实和静静没关系哦👋
 
+
+
+*****
+
+####  有效击穿  
+##### 2665#       发表于 2021-11-18 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53600733&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-18 20:33</a>
+
+文静这煞星也就只有我能镇住了，速速毕业与我结婚。</blockquote>
+你说能镇住就镇得住了？把你八字给我交了
+
+*****
+
+####  四叶的花  
+##### 2666#       发表于 2021-11-18 21:48
+
+不关静静的事哦<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有效击穿  
+##### 2667#       发表于 2021-11-18 21:54
+
+想做琳的鼠标垫了，千鸟屋的名菜是文白丼还是文琳丼捏
+
+*****
+
+####  haruhiismer  
+##### 2668#       发表于 2021-11-18 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601940&amp;ptid=2013779" target="_blank">有效击穿 发表于 2021-11-18 21:54</a>
+想做琳的鼠标垫了，千鸟屋的名菜是文白丼还是文琳丼捏</blockquote>
+叫文艾不叫文白
+
+*****
+
+####  有效击穿  
+##### 2669#       发表于 2021-11-18 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601966&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-18 21:57</a>
+叫文艾不叫文白</blockquote>
+文艾?文艾！就是你在群里和群友付费文爱之后还要开办公用品发票是吧，gnk48！
+
+*****
+
+####  丢了五块钱  
+##### 2670#       发表于 2021-11-18 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53598782&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-18 18:18</a>
+文静寄了这几天看了一些其他四个人的切片，白白就不说了，王木木真是不简单，coco感觉是天赋选手青春无敌， ...</blockquote>
+艾瑞思开始玩真实的话怕99.9%的人接受不了，我来我不喜欢她夹，现在我觉得还是夹着点好
+

@@ -1343,3 +1343,47 @@ popstar就是现在做双城的这家公司做的啊
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  飞升之后  
+##### 1597#       发表于 2021-11-18 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601434&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-18 21:17</a>
+
+哈哈哈
+
+破败王小丑程度已经超越100%</blockquote>
+什么？破败王，那不是个滑稽戏演员吗
+
+*****
+
+####  9616777  
+##### 1598#       发表于 2021-11-18 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破败王不是个谐星吗
+
+*****
+
+####  Ashen-11  
+##### 1599#       发表于 2021-11-18 21:58
+
+丑中有丑丑中丑
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  lost_恩恩  
+##### 1600#       发表于 2021-11-18 21:59
+
+居然和万智牌联动了，推出异画系列，大概有11张，直接用的动画手绘图
+
+*****
+
+####  飞升之后  
+##### 1601#       发表于 2021-11-18 21:59
+
+我觉得目前破败王的剧情会重新推翻
+
