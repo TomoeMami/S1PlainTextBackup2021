@@ -6931,3 +6931,23 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 634#       发表于 2021-11-18 14:50
+
+松雾大佬翻译了一下小文章<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 635#       发表于 2021-11-18 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53595238&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-18 14:02</a>
+鲤鱼个人的曲风，只能说我不是受众，很难无脑买支持，冲个fc看看文好了
+
+—— 来自 S1Fun ...</blockquote>
+新专说是会有不同曲风，可以再等等
+

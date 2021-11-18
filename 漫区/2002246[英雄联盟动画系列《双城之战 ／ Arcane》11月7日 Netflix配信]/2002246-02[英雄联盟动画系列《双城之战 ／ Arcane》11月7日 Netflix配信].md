@@ -848,3 +848,15 @@ nga不一直是这样吗要这是日本公司弄的早就吹爆了</blockquote>
 说到诺克萨斯，米达尔达家族会不会和熔铁少女芮尔有关系啊都是黑人，而且梅尔床戏那段披发的样子跟 ...</blockquote>
 金克斯年纪怎么解释，又是合法萝莉了吗
 
+
+
+*****
+
+####  blackll7  
+##### 1579#       发表于 2021-11-18 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53595626&amp;ptid=2002246" target="_blank">scorbian 发表于 2021-11-18 14:28</a>
+
+说到诺克萨斯，米达尔达家族会不会和熔铁少女芮尔有关系啊都是黑人，而且梅尔床戏那段披发的样子跟 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">完全不通，因为米达尔完全没有没落，可以参考lor卡牌
+
