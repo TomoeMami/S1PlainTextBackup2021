@@ -6804,3 +6804,36 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 挺住啊，熬过这阵儿，熬过去就好了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Karin11974  
+##### 623#       发表于 2021-11-18 12:42
+
+你们说的马内甲发文在哪里啊，fc app吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cybernetics31  
+##### 624#       发表于 2021-11-18 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594060&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-18 12:42</a>
+你们说的马内甲发文在哪里啊，fc app吗？
+
+—— 来自 S1Fun</blockquote>
+对，fc的app
+
+*****
+
+####  Karin11974  
+##### 625#       发表于 2021-11-18 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594099&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-18 12:45</a>
+对，fc的app</blockquote>
+有点小贵，最重要是人在国内享受不到福利<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

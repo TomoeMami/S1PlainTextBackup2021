@@ -2279,3 +2279,28 @@ image.png
 不知道华为的定位技术，有什么水 ...</blockquote>
 4999..................... 卖给华为铁粉的吗？
 
+
+
+*****
+
+####  dumplingpro  
+##### 144#       发表于 2021-11-18 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594056&amp;ptid=2034565" target="_blank">五元请收好 发表于 2021-11-18 12:42</a>
+4999..................... 卖给华为铁粉的吗？</blockquote>
+他的本体别说闲鱼，淘宝都900了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  五元请收好  
+##### 145#       发表于 2021-11-18 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594100&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-18 12:45</a>
+
+他的本体别说闲鱼，淘宝都900了
+
+—— 来自 MANN 8S, Android 7.1.2上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+那也要有个华为手机才能有一体机功能.... 饺子哥用过吗？体验咋样？主要是佩戴咋样？
+
