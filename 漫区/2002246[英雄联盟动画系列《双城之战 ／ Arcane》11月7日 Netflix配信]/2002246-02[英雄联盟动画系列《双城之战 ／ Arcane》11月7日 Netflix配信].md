@@ -967,3 +967,37 @@ nga不一直是这样吗要这是日本公司弄的早就吹爆了</blockquote>
 
 如果米和油之后真能把崩1234加个原的故事讲清楚串起来，已经有过完整的崩坏宇宙了，那出个动画我觉得上拓ip这个赛道也是可以的，但就目前那些个手游改，包括之后某舟，现在的某米。真的离拓ip的距离还很远。。。
 
+
+
+*****
+
+####  暗黑能乐  
+##### 1589#       发表于 2021-11-18 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597569&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-18 16:40</a>
+
+也不是，我说的那种手游改是他本体的世界设定自己都闹不明白，本体剧情都没法自洽，本身都算不上是个什么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜fate近几年的几个动画评价也是不怎么样，而且fate也就一个fgo是手游。。我觉得fate要是有勇气出个全新的原创动画企划，那才是大众最想看到的，成天游戏改还改得不怎么样。哪里有多少成功的“拓IP动画”，都是服务粉丝还服务不到位的
+
+*****
+
+####  厄神之息  
+##### 1590#       发表于 2021-11-18 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597694&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-18 16:50</a>
+
+可惜fate近几年的几个动画评价也是不怎么样，而且fate也就一个fgo是手游。。我觉得fate要是有勇气 ...</blockquote>
+我觉得fate能达到拓ip标准和目的的也就新fsn和fz两个吧，这俩之后fate的ip就已经拓开了不用再拓了，之后的动画就已经完全是粉丝向手游改的水准了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  厄神之息  
+##### 1591#       发表于 2021-11-18 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597694&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-18 16:50</a>
+
+可惜fate近几年的几个动画评价也是不怎么样，而且fate也就一个fgo是手游。。我觉得fate要是有勇气 ...</blockquote>
+而且拓ip也不一定游改啊，我觉得jojo也算是很成功拓ip案例了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

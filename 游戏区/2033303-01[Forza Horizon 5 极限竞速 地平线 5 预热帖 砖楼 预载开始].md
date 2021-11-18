@@ -13648,3 +13648,17 @@ willys和牛魔王的摇摇乐perk直接被移除了
 我除了抗锯齿全部拉到最高画面长这样，还爆了显存，这制作组是不是人啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 <[img src="https://z3.ax1x.com/2021/11/18/ITFwT0.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aaronluray  
+##### 1242#       发表于 2021-11-18 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53593642&amp;ptid=2033303" target="_blank">monono 发表于 2021-11-18 12:04</a>
+
+那么现在有新的摇摇乐的法子么？</blockquote>
+贴吧有人分享的一些替代车 [https://tieba.baidu.com/p/7616798667](https://tieba.baidu.com/p/7616798667)
+
+当然，基本都是10个技能点往上的了，看你自己觉得要不要刷了
+

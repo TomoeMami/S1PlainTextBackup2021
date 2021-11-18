@@ -2370,3 +2370,20 @@ image.png
 之前关注了下HP G2，小派那个拍折腾软件配置，Arpara还没怎么听说过，刚搜了下好像是这俩月里新出的？
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">说起来现在用Arpara这样5K级别的 观影是能感受有影院的几分体验？
 
+
+
+*****
+
+####  dumplingpro  
+##### 151#       发表于 2021-11-18 16:48
+
+ 本帖最后由 dumplingpro 于 2021-11-18 16:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53596204&amp;ptid=2034565" target="_blank">vf503 发表于 2021-11-18 15:11</a>
+
+感谢
+
+之前关注了下HP G2，小派那个拍折腾软件配置，Arpara还没怎么听说过，刚搜了下好像是这俩月里新出的 ...</blockquote>
+所以Q2+淘宝破解完事了。
+
+Arpara是新出的，小厂产品，屏幕用顶配，色彩好，视野小、清晰度高、轻便、小厂多少有些小毛病，定位系统等于没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，但是准备出V社的灯塔定位套件，所以我才打算跳坑试试，不推荐一般人贸贸然跳进去。
+
