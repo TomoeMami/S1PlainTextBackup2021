@@ -10624,3 +10624,19 @@ dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还�
 
 1.0时期我只关注了文静，1.0文静也是怪话超人
 
+
+
+*****
+
+####  Finsty  
+##### 2654#       发表于 2021-11-18 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉祥物队长和挑头担责干活的队长显然得分开嘛，不奇怪
+
+*****
+
+####  灰色的狐狸  
+##### 2655#       发表于 2021-11-18 19:03
+
+艾瑞斯真的。。我一直感觉就是太正经，有点太冷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6973,3 +6973,13 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 语气都很云，拿了几个疑似云的名词自顾自黑空气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 638#       发表于 2021-11-18 18:52
+
+[https://twitter.com/SwyQ6/status/1461196494250254336](https://twitter.com/SwyQ6/status/1461196494250254336)
+<img src="https://p.sda1.dev/3/d2aaf08d0409af242e30f73b71441eb9/20211118_185203.jpg" referrerpolicy="no-referrer">
+
