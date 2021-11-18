@@ -860,3 +860,61 @@ nga不一直是这样吗要这是日本公司弄的早就吹爆了</blockquote>
 说到诺克萨斯，米达尔达家族会不会和熔铁少女芮尔有关系啊都是黑人，而且梅尔床戏那段披发的样子跟 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">完全不通，因为米达尔完全没有没落，可以参考lor卡牌
 
+
+
+*****
+
+####  名津流  
+##### 1580#       发表于 2021-11-18 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53595442&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-18 14:16</a>
+
+大概类比 就是未来原神出了一个相关世界观衍生动画，很多人ptsd也就能理解了。
+
+不过区别是，可能米哈游根本 ...</blockquote>
+明日方舟不就做了吗，感觉原神只是时间问题
+
+*****
+
+####  名津流  
+##### 1581#       发表于 2021-11-18 15:04
+
+快1600楼了都没人发吗，官网配合动画更新的有点类似文字冒险类的画风独特的3D探索小游戏，不是之前那些没多少人看完了的整个游戏故事背景的设定资料，而就是这动画有关的，完全可以当彩蛋看，互交效果还是非常棒的：
+
+用QQ号就能登录：
+[https://lol.qq.com/act/a20211030conex/phase3/?e_code=441370](https://lol.qq.com/act/a20211030conex/phase3/?e_code=441370)
+
+<img src="https://img.saraba1st.com/forum/202111/18/142351q5t2rjcsq8swe57j.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20211118142243.png</strong> (238.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 14:23 上传
+
+还附带了各种小游戏，有的剧情彩蛋内容要过了小游戏才能观看，至于多选项的对话，选哪个都没区别
+
+此外，游戏客户端内还定期解锁一些双城之战探索活动的内容，这个就是纯文字的彩蛋了，有兴趣的话我可以全都截图搬运
+
+*****
+
+####  暗黑能乐  
+##### 1582#       发表于 2021-11-18 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53596094&amp;ptid=2002246" target="_blank">名津流 发表于 2021-11-18 15:04</a>
+
+快1600楼了都没人发吗，官网配合动画更新的有点类似文字冒险类的画风独特的3D探索小游戏，不是之前那些没多 ...</blockquote>
+已经探索了，主要感觉没什么直接联系，又是经典“我”做视角，也就带你逛逛皮城祖安了（甚至好几个地区是无关的）
+
+*****
+
+####  暗黑能乐  
+##### 1583#       发表于 2021-11-18 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53595442&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-18 14:16</a>
+
+大概类比 就是未来原神出了一个相关世界观衍生动画，很多人ptsd也就能理解了。
+
+不过区别是，可能米哈游根本 ...</blockquote>
+国内这些个IP得照顾观众雷点可太多了，首先如果真的要拓展这个世界，那你必然不能依然用所谓的主线主角旅行者，因为这样限制非常大。那你以其他人为主角来写，你敢写超出现有剧情里的东西吗，角色敢让他们去和其他角色发展感情吗，你看杰斯和梅尔这么一搞，你要是换个迪卢克和什么黑妹搞了，看米忽悠能不能被喷炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

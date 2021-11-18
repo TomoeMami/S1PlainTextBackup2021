@@ -2355,3 +2355,18 @@ image.png
 一个人的巨幕厅那种感觉  ...</blockquote>
 这个属于VR基本功能了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vf503  
+##### 150#       发表于 2021-11-18 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53595469&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-18 14:18</a>
+
+这个属于VR基本功能了。</blockquote>
+感谢
+
+之前关注了下HP G2，小派那个拍折腾软件配置，Arpara还没怎么听说过，刚搜了下好像是这俩月里新出的？
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">说起来现在用Arpara这样5K级别的 观影是能感受有影院的几分体验？
+

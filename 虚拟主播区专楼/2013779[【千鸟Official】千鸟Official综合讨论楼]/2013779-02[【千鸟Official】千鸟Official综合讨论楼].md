@@ -10517,3 +10517,26 @@ ndwd：别靠近文静，会变得不幸
 
 都是自己起的节奏，不管文静的事哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cherrydove  
+##### 2641#       发表于 2021-11-18 15:10
+
+dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还是选择ndwd炒个大的呢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Finsty  
+##### 2642#       发表于 2021-11-18 15:15
+
+炒楼友不比炒VR稳多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 2643#       发表于 2021-11-18 15:16
+
+炒ndwd能同时炒vr
+
