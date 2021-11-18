@@ -3891,3 +3891,19 @@ new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">CAO.....加班到半夜才刚到家.....一打开游戏竟然送我自己了
 
+
+
+*****
+
+####  khxooo  
+##### 84338#       发表于 2021-11-18 09:50
+
+10呼符连3星礼装都不给过分了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yzj134100  
+##### 84339#       发表于 2021-11-18 09:58
+
+东海帝王+政委 xp直击
+

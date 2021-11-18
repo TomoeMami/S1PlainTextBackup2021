@@ -6674,3 +6674,21 @@ fns上只唱一首歌，还是tvsize的那种，倒是可以期待有没有和�
 
 都是录的，还好
 
+
+
+*****
+
+####  土豆不土  
+##### 610#       发表于 2021-11-18 09:53
+
+准备给朋友传教，叔叔家除了删掉了跪拜sunnypa之外还有什么删减吗
+
+*****
+
+####  cybernetics31  
+##### 611#       发表于 2021-11-18 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591035&amp;ptid=2036367" target="_blank">土豆不土 发表于 2021-11-18 09:53</a>
+准备给朋友传教，叔叔家除了删掉了跪拜sunnypa之外还有什么删减吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绑了加农那段删了
+
