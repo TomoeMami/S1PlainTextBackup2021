@@ -10412,3 +10412,12 @@ ylg功课属实没做好，含金量定型文都没念好，不得不说海子�
 我认清了，再也他娘的不发什么狗屁暖男评论了，攻击性必须拉满，反正静女妖现在是个卧床不起的轮椅人，我要把语言化为力量透过屏幕给她一✋
 <img src="https://p.sda1.dev/3/8e033de508dc52ee5bebbb39bb9fc472/1636250292397.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2629#       发表于 2021-11-18 09:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以我都是发三条，一条暖男一条发病一条臊皮，一般都是臊皮的那条被回复
+
