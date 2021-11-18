@@ -6613,3 +6613,28 @@ from 微博 红海军步兵近卫军大尉
 
 场次也太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 603#       发表于 2021-11-18 08:05
+
+真的是玩命草，万代资本家不是人，这状态怎么可能调整的过来。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 604#       发表于 2021-11-18 08:13
+
+各种团<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 605#       发表于 2021-11-18 08:17
+
+这是提前录好的还是直播
+

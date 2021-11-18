@@ -13431,3 +13431,21 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">什么？没有摇摇乐了？
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1219#       发表于 2021-11-18 08:04
+
+能否不更新离线继续刷摇摇乐。。
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  有钱多买小人  
+##### 1220#       发表于 2021-11-18 08:10
+
+摇摇乐没了就算了，侦测自动驾驶是不能自动挂机了？？
+
