@@ -10446,3 +10446,21 @@ ylg功课属实没做好，含金量定型文都没念好，不得不说海子�
 
 每次我想攻击性拉满的评论，可我总是在点发送键前放弃了，还是太爱她了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2633#       发表于 2021-11-18 10:34
+
+人之初是没有前途的，如果有深陷人之痛苦的鸟p欢迎加入“人之初k48互助小组”，让我们一起走出阴影<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2634#       发表于 2021-11-18 10:34
+
+ 本帖最后由 莫洛骑士 于 2021-11-17 22:35 编辑 
+
+文静我好想你啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

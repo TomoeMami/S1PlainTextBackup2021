@@ -6692,3 +6692,31 @@ fns上只唱一首歌，还是tvsize的那种，倒是可以期待有没有和�
 准备给朋友传教，叔叔家除了删掉了跪拜sunnypa之外还有什么删减吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绑了加农那段删了
 
+
+
+*****
+
+####  土豆不土  
+##### 612#       发表于 2021-11-18 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591118&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-18 09:58</a>
+
+绑了加农那段删了</blockquote>
+那少了好多乐趣噢
+
+*****
+
+####  秋月艾莉  
+##### 613#       发表于 2021-11-18 10:39
+
+伏牛山疫情后除了J社自己人没几个上主持台互动的，大部分都是唱完就溜了
+
+估计也就只能在后台看见其他明星了
+
+*****
+
+####  DarthAka  
+##### 614#       发表于 2021-11-18 10:46
+
+伏牛山翻车祭，开麦没翻也算是个宣传
+

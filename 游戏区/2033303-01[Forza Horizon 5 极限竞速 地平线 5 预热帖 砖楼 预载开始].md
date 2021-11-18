@@ -13510,3 +13510,23 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 这次更新了机械能玩了吗 fh4都没串流带宽问题5直接玩不了
 
+
+
+*****
+
+####  nemunoki  
+##### 1228#       发表于 2021-11-18 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么巨硬这个沙雕游戏服务每次更新都要逼我把游戏重置一遍
+
+*****
+
+####  bad_alloc  
+##### 1229#       发表于 2021-11-18 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53590002&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-18 08:46</a>
+环道比较热门，跑的人太多了，开自动s1s2过了，abcd进不去。我跑长途试试。
+
+—— 来自 OPPO PCCM00, And ...</blockquote>
+开自动干啥，自动的路线跟刹车点很烂的，自己开呀
+
