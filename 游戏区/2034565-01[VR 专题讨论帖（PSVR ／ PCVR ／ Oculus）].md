@@ -2265,3 +2265,17 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202111/18/094036mmp4pp5pdjcrjzu5.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  五元请收好  
+##### 143#       发表于 2021-11-18 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53590872&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-18 09:42</a>
+
+17号华为vr glass发布了双摄像头图像识别配件，还整了个quest同款手柄。
+
+不知道华为的定位技术，有什么水 ...</blockquote>
+4999..................... 卖给华为铁粉的吗？
+
