@@ -13449,3 +13449,21 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 摇摇乐没了就算了，侦测自动驾驶是不能自动挂机了？？
 
+
+
+*****
+
+####  Vladimeow  
+##### 1221#       发表于 2021-11-18 08:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">禁得好，早该管管了
+
+*****
+
+####  wzy200912345  
+##### 1222#       发表于 2021-11-18 08:36
+
+挂机还是能刷熟练点的，只是收益砍了快一半.刷完后可以选择贵的8W换13技能点4次抽奖（1次普通一次超抽）的15年保时捷卡曼，或者便宜的2-3W马自达97年RX-7有2次普通抽奖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+已经当保时捷贩子刷了20多辆了
+
