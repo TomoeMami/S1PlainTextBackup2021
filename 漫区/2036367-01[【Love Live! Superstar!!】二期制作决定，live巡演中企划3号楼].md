@@ -6870,3 +6870,46 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 628#       发表于 2021-11-18 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594480&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-18 13:12</a>
+
+这几个？虽然目前好像也没啥活动的样子
+
+—— 来自 S1Fun</blockquote>
+门票抽选主要受疫情影响
+
+限定活动很多也是直播的，像接下来23号的生放送
+
+后面两个你只要有日本接收地址就行，好像转运地址也可以的。
+
+*****
+
+####  呆毛王嫁给我  
+##### 629#       发表于 2021-11-18 13:32
+
+第七话看完啦，这展开确实没有料到，另外这片子也太喜欢迫害民警同志了
+
+*****
+
+####  cybernetics31  
+##### 630#       发表于 2021-11-18 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">加入fc算是最直接支持鲤鱼的方法了，反正比在叔叔家上舰便宜。觉得贵支持下一专咯，反正比那个绳子便宜。
+
+
+
+*****
+
+####  lj205  
+##### 631#       发表于 2021-11-18 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594789&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-18 13:32</a>
+第七话看完啦，这展开确实没有料到，另外这片子也太喜欢迫害民警同志了</blockquote>
+我不说话<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

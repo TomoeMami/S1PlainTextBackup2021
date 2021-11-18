@@ -3396,3 +3396,17 @@ ova不是已经有过男声优了<img src="https://static.saraba1st.com/image/sm
 伪娘上机可就颠覆世界观了
 变成了is世界观(
 
+
+
+*****
+
+####  alialex  
+##### 6245#         楼主| 发表于 2021-11-18 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594348&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2021-11-18 13:04</a>
+
+ova不是已经有过男声优了
+
+本来想说有伪娘就抽，但仔细一想就算真有也是性转版本。金字塔够胆敢上小 ...</blockquote>
+不是游戏本体付声的不算啦不然夜露老爸之前广播剧已经发声了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
