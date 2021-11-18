@@ -934,3 +934,22 @@ nga不一直是这样吗要这是日本公司弄的早就吹爆了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">手游（网游）改有手游改的赛道，拓ip的作品有拓ip的赛道，手游改只用角色露一遍脸照顾下粉丝保证不喂大屎就行了，故事啥的只是附带的，本质还是烧钱的手游宣传片，巩固自己粉丝群体的忠实度。但拓ip的作品可就不一样了，目的是让更多受众知道并认可你的ip，好为以后的ip相关作品做铺垫，玩砸了别人以后可就对这ip不买账了，强行拉一起比较，不可取。
 
+
+
+*****
+
+####  银枪子龙  
+##### 1586#       发表于 2021-11-18 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">拳头制作水平最高的动画还是KDA的POPSTAR吧，综合来说
+
+*****
+
+####  暗黑能乐  
+##### 1587#       发表于 2021-11-18 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53596631&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-18 15:38</a>
+
+手游（网游）改有手游改的赛道，拓ip的作品有拓ip的赛道，手游改只用角色露一遍脸照顾下粉丝保证不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这话不就是变相的看不起手游了，觉得手游动画就是宣传片，不能是想拓展IP。
+
