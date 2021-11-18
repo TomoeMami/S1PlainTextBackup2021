@@ -13608,3 +13608,12 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 感觉bug修了个寂寞，画面依然很屎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ozymandias  
+##### 1238#       发表于 2021-11-18 14:33
+
+这次补丁所向披靡车手过于所向披靡有没有改啊？
+
