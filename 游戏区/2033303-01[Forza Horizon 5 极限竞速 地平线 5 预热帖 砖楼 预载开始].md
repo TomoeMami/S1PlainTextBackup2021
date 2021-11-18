@@ -13467,3 +13467,37 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 已经当保时捷贩子刷了20多辆了
 
+
+
+*****
+
+####  aaronluray  
+##### 1223#       发表于 2021-11-18 08:41
+
+摇摇乐果然没了啊，不过我还有快400次超级抽奖没抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，无所谓啦
+
+*****
+
+####  gzGaryC  
+##### 1224#       发表于 2021-11-18 08:44
+
+记得自己的第六元素FE跟雪佛兰FE在头几天就抽出来了，买车给的超级抽奖有小一百发这俩反而一个都没出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉鲁拉丝  
+##### 1225#       发表于 2021-11-18 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588499&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 01:35</a>
+5%还挺简单的吧，自己改的车都1%了</blockquote>
+环道比较热门，跑的人太多了，开自动s1s2过了，abcd进不去。我跑长途试试。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gzGaryC  
+##### 1226#       发表于 2021-11-18 08:49
+
+顺便给俱乐部里的 Dihphys dalao送上掌声，用辅助全关的手离XJR15跑劲敌真的太强了
+
