@@ -13737,3 +13737,16 @@ lod修复，起码在火山口不是一片糊了
 虽然这听起来很离谱，但是我加速修理我法那辆车房250的时候看都没看直接按下了A。当我反应过来修理费是4800w而不是48w时亚历克斯已经热情地开始向我介绍了
 就这样一夜暴穷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bad_alloc  
+##### 1251#       发表于 2021-11-19 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603281&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-19 00:02</a>
+选车型 超的不多很方便降档
+
+雷克萨斯里有个调校叫bmw killer</blockquote>
+用i8随便调了一下一遍过了，还挺简单的
+
