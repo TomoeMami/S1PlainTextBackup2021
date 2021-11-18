@@ -13716,3 +13716,14 @@ lod修复，起码在火山口不是一片糊了
 
 特么的，今天忽悠朋友开XGP，准备上游戏来点截图，结果更新一直失败，按网上教程重置商城后游戏直接没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pl0okm  
+##### 1249#       发表于 2021-11-19 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602630&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 22:53</a>
+这周的蛇头限定A800的现代超跑，这不就只有i8符合条件吗</blockquote>
+ 选车型 超的不多很方便降档
+

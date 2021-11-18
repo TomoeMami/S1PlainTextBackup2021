@@ -10787,3 +10787,12 @@ dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还�
 
 算是和草莓 椰子这烂梗过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2673#       发表于 2021-11-18 23:42
+
+琳这个bgm，想静静了
+
