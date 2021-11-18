@@ -1415,3 +1415,19 @@ vi能不能认真加强下啊<img src="https://static.saraba1st.com/image/smiley
 
 vi的大招太弱智了，空中就被人打死了等于控自己
 
+
+
+*****
+
+####  弗林蒂萨  
+##### 1605#       发表于 2021-11-18 23:27
+
+低配皇子，开大进去以后出不来就很蠢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  uponutopia  
+##### 1606#       发表于 2021-11-18 23:38
+
+蔚那傻逼机制早该REMAKE了，Q技能控自己大招控自己，一个打拳英雄完全没有打击感和格斗快感  被隔壁缝合的达摩完爆
+
