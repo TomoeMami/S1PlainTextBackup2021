@@ -6396,3 +6396,366 @@ syl  没说，现在都没说时间怕不是突击直接开了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  2014720  
+##### 5239#       发表于 2021-11-18 20:43
+
+啊…<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 5240#       发表于 2021-11-18 20:43
+
+ 本帖最后由 clvan_ 于 2021-11-18 20:45 编辑 
+
+热度唱法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl，就是带这东西货啊
+
+*****
+
+####  T_Hb  
+##### 5241#       发表于 2021-11-18 20:43
+
+ 本帖最后由 T_Hb 于 2021-11-18 20:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还惦记着这么点韭菜呢
+
+*****
+
+####  时间在我手中  
+##### 5242#       发表于 2021-11-18 20:45
+
+ 本帖最后由 时间在我手中 于 2021-11-18 20:46 编辑 
+
+愚蠢的羊党-10000
+
+<img src="https://img.saraba1st.com/forum/202111/18/204613hb3p9u8e3h4elmpz.jpg" referrerpolicy="no-referrer">
+
+<strong>091E403BE5945B1EDEE4E978B3969DF4.jpg</strong> (151.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 20:46 上传
+
+思考
+
+*****
+
+####  2014720  
+##### 5243#       发表于 2021-11-18 20:47
+
+ 本帖最后由 2014720 于 2021-11-18 20:49 编辑 
+
+有些歌是不是已经成批限专用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/e767e307ec02e8366565e5150773ab60/IMG_CMP_34481721.png" referrerpolicy="no-referrer">槽点有点多啊
+
+*****
+
+####  Ky·Kiske  
+##### 5244#       发表于 2021-11-18 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">掐叔叔的饭，可是现在还能卖多少呢
+
+*****
+
+####  古战场亡魂  
+##### 5245#       发表于 2021-11-18 20:50
+
+叔叔可以的，为了卖玩具……
+
+*****
+
+####  路人庚  
+##### 5246#       发表于 2021-11-18 20:50
+
+噗
+
+*****
+
+####  yywzjsw  
+##### 5247#       发表于 2021-11-18 20:50
+
+艹？这个l2d不错
+
+*****
+
+####  时间在我手中  
+##### 5248#       发表于 2021-11-18 20:50
+
+<img src="https://img.saraba1st.com/forum/202111/18/205020qecio91eyrmy2zyi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 20:50 上传
+
+我谔谔
+
+*****
+
+####  黒長直姫  
+##### 5249#       发表于 2021-11-18 20:50
+
+**是带货
+
+这羊我要了
+
+*****
+
+####  2014720  
+##### 5250#       发表于 2021-11-18 20:50
+
+猫党出来说句话！出来说句话！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  clvan_  
+##### 5251#       发表于 2021-11-18 20:50
+
+草
+
+*****
+
+####  Ky·Kiske  
+##### 5252#       发表于 2021-11-18 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">叔叔用心了啊
+
+*****
+
+####  Klience  
+##### 5253#       发表于 2021-11-18 20:50
+
+什么邪神l2d。。。。
+
+*****
+
+####  T_Hb  
+##### 5254#       发表于 2021-11-18 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一毛钱也不给叔叔
+
+*****
+
+####  雪风utopia  
+##### 5255#       发表于 2021-11-18 20:51
+
+猫党就像小丑<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5256#       发表于 2021-11-18 20:51
+
+愚蠢的羊杂CR不得好死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 5257#       发表于 2021-11-18 20:51
+
+这羊不对啊，怎么只有2只脚？？？？？
+
+*****
+
+####  Sleipnirω  
+##### 5258#       发表于 2021-11-18 20:51
+
+坏了，羊党赢麻了
+
+*****
+
+####  路人庚  
+##### 5259#       发表于 2021-11-18 20:51
+
+答案是扶她
+
+*****
+
+####  makourisu-2  
+##### 5260#       发表于 2021-11-18 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  追风小星星  
+##### 5261#       发表于 2021-11-18 20:52
+
+猫咩，我的猫咩<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yywzjsw  
+##### 5262#       发表于 2021-11-18 20:52
+
+毕竟是debu，所以胖的看不到脚，实锤debu了
+
+*****
+
+####  clvan_  
+##### 5263#       发表于 2021-11-18 20:53
+
+这东西做起来一大块并不费劲的，不过效果挺生草目的达成的不错
+
+*****
+
+####  路人庚  
+##### 5264#       发表于 2021-11-18 20:53
+
+你咩姐如果能把她的这堆皮日常拿出来整活大概也会挺有意思的（
+
+*****
+
+####  十九号大侠  
+##### 5265#       发表于 2021-11-18 20:53
+
+猫党还跳不跳
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  璃絵和花瑠  
+##### 5266#       发表于 2021-11-18 20:54
+
+哈哈，猫党<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 5267#       发表于 2021-11-18 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还挺想要的，不想给叔叔送钱的记得明天不要抢（
+
+*****
+
+####  aliade  
+##### 5268#       发表于 2021-11-18 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我宣布今天开始我就是苏格兰人了
+
+*****
+
+####  T_Hb  
+##### 5269#       发表于 2021-11-18 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我肯定不买
+
+*****
+
+####  yywzjsw  
+##### 5270#       发表于 2021-11-18 20:54
+
+等个魔力赏全是这货，然后咸鱼低价处理_(:з」∠)_
+
+*****
+
+####  十九号大侠  
+##### 5271#       发表于 2021-11-18 20:55
+
+这就是资本家吗，连小麻这点钱都要吸
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古战场亡魂  
+##### 5272#       发表于 2021-11-18 20:56
+
+问题是这玩偶确实是四条腿的。
+
+*****
+
+####  Ky·Kiske  
+##### 5273#       发表于 2021-11-18 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">倒是可以编个借口给儿子买个
+
+就怕当成邪神了
+
+*****
+
+####  时间在我手中  
+##### 5274#       发表于 2021-11-18 20:57
+
+网警叔叔都有孩子了，不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 5275#       发表于 2021-11-18 20:57
+
+大家都不买，那明天就不用抢嘞吧
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  makourisu-2  
+##### 5276#       发表于 2021-11-18 20:57
+
+就我个人而言，我超喜欢那个天邪鬼的黄偶像皮肤<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">然而连草莓果酱的live2d都不做，更不可能轮到这个了
+
+*****
+
+####  2014720  
+##### 5277#       发表于 2021-11-18 20:57
+
+这还没11点呢，给叔叔带货就这么难受吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 5278#       发表于 2021-11-18 20:58
+
+先说好谁买谁是狗
+
+*****
+
+####  璃絵和花瑠  
+##### 5279#       发表于 2021-11-18 20:59
+
+早该润了
+
+*****
+
+####  yywzjsw  
+##### 5280#       发表于 2021-11-18 20:59
+
+我等朋友抽魔力赏不要给我
+
+
+
+*****
+
+####  路人庚  
+##### 5281#       发表于 2021-11-18 20:59
+
+谁买谁傻逼
+
+傻逼就傻逼
+
+*****
+
+####  iuhehc  
+##### 5282#       发表于 2021-11-18 21:00
+
+看图还以为左边是挂件
+
+*****
+
+####  时间在我手中  
+##### 5283#       发表于 2021-11-18 21:00
+
+认真说句，羊玩偶我评价比草莓饺子景品高，草莓饺子的脸我有点接受不能
+

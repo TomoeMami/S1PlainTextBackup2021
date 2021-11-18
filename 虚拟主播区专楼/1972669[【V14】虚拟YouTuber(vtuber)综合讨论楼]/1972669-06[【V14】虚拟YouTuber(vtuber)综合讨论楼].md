@@ -12683,3 +12683,72 @@ Ahamo看着好像Amazon啊...明明是Docomo。
 
 叛忍！
 
+
+
+*****
+
+####  free  
+##### 8450#       发表于 2021-11-18 20:41
+
+[https://www.youtube.com/watch?v=MeSaX5SXTKI](https://www.youtube.com/watch?v=MeSaX5SXTKI)
+
+「SINSEKAI STUDIO」誕生。
+
+看起来是与裸春市对应的企划“深脊界”，这几个黑影都谁？裸春终于有男人了
+
+<img src="https://img.saraba1st.com/forum/202111/18/204117rkyoz9k9srdmsq0a.png" referrerpolicy="no-referrer">
+
+<strong>深脊界.png</strong> (160.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 20:41 上传
+
+ <blockquote>若き異能たちが集結するクリエイティブレーベル「KAMITSUBAKI STUDIO」が発足して2年。
+
+音楽と物語で世界を「少しだけ」変える。私達は、バーチャルとリアルを行き交いながら、様々な才能、体験を創出してきた。「音楽」から「物語」が生まれ、新しい世界と才能の可能性を拡張し続けていく。 これは発足当初から変わらない神椿のテーマである。
+
+そして2021年6月「SINSEKAI CITY PROJECT」を発表、深脊界の謎めいた新たな世界観が姿を現した。
+
+深脊界の世界観を構成するキーワードは、「混沌」と「探索」。舞台は「神椿市」と近くて遠い場所にある「深脊界市」。二つの世界観の始まりの瞬間を、是非一緒に見届けて欲しい。
+
+そして2021年11月、SINSEKAI CITY PROJECTと同期した「KAMITSUBAKI STUDIO」から派生する、新たなプロジェクトがスタートする。
+
+それが「SINSEKAI STUDIO」。
+
+「SINSEKAI STUDIO」では、バーチャルとリアルを横断出来るアーティスト、クリエイター達に加え、新たな「未完成な才能達」を募集する。
+
+「SINSEKAI STUDIO」の主人公はもしかしたら「あなた」かもしれない。世界の可能性を拡張する “未完成な才能” に出会えることを、チーム一同、心から楽しみにしている。
+
+神椿と地続きで少し異質なもう一つの世界「深脊界市」をお楽しみに。
+
+KAMITSUBAKI STUDIO ／ SINSEKAI STUDIO
+
+総合プロデューサー・PIEDPIPER
+
+--------------------------------------------------
+
+SINSEKAI STUDIO
+
+Twitter：[https://twitter.com/sinsekai__jp](https://twitter.com/sinsekai__jp)
+
+WEB：[https://sinsekaistudio.jp/](https://sinsekaistudio.jp/)
+
+AUDITION：[https://audition.sinsekaistudio.jp/](https://audition.sinsekaistudio.jp/)
+
+SINSEKAI AUDITION
+
+KAMITSUBAKI STUDIOから派生した、新たなプロジェクトSINSEKAI STUDIOがオーディションを開催。シンガー＆クリエイターを募集します。
+
+SINSEKAI STUDIO が求めているのは新たなる歌声、そして次世代を担うクリエイター。深脊界へダイブせよ。
+
+エントリーは2021年11月25日（木）より開始。
+[https://audition.sinsekaistudio.jp/](https://audition.sinsekaistudio.jp/)</blockquote>
+
+*****
+
+####  hulaoda007  
+##### 8451#       发表于 2021-11-18 20:49
+
+明天哈哥3D...
+
