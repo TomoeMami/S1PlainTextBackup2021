@@ -1,0 +1,557 @@
+
+
+*****
+
+####  烦死了  
+##### 1#       楼主       发表于 2021-11-18 10:39
+
+据新乡时报报道， FDA 最早周四就会批准所有成年人的booster， 第二针6个月以后的都可以打。pifzer BNT 的booster 跟前2针一样， moderna的booster是只有普通一半的剂量（你也知道自己加多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+诸君打算打第三针吗， 打的话是准备打一样的还是混打？
+
+我之前被moderna 第二针伤到了， 如果打的话会选pifzer的booster &gt; 不打 &gt; moderna booster
+
+[https://www.nytimes.com/2021/11/ ... r-booster-shot.html](https://www.nytimes.com/2021/11/16/us/politics/fda-pfizer-booster-shot.html)
+
+[https://www.cdc.gov/coronavirus/ ... s/booster-shot.html](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/booster-shot.html)
+
+*****
+
+####  过气页游  
+##### 2#       发表于 2021-11-18 10:49
+
+前天才打完辉瑞第二针，静观其变
+
+*****
+
+####  linekm  
+##### 3#       发表于 2021-11-18 10:56
+
+内地打了两针科兴，第三针在香港打了复必泰。除了反应大点被撂倒了一天剩下感觉没啥事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JollytheJoker  
+##### 4#       发表于 2021-11-18 10:58
+
+暂时不打。
+
+我这里托儿所现在的流行病是手足口<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，德尔塔还没一个。
+
+*****
+
+####  ballban  
+##### 5#       发表于 2021-11-18 11:10
+
+能打肯定打 不过我9月才打完
+
+*****
+
+####  ballban  
+##### 6#       发表于 2021-11-18 11:10
+
+能打肯定打 不过我9月才打完
+
+*****
+
+####  烦死了  
+##### 7#         楼主| 发表于 2021-11-18 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592307&amp;ptid=2038124" target="_blank">JollytheJoker 发表于 2021-11-18 10:58</a>
+
+暂时不打。
+
+我这里托儿所现在的流行病是手足口，德尔塔还没一个。</blockquote>
+喷了 手足口没有疫苗的吗
+
+*****
+
+####  Maestro  
+##### 8#       发表于 2021-11-18 15:33
+
+短期不准备，要打也是打强生当booster，俩mRNA疫苗一个数据有问题， 一个有心肌炎风险直接部分停用了（30岁以下男性）
+
+我自己打完辉瑞全身不舒服了一段时间，感觉当了小白鼠 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  droople  
+##### 9#       发表于 2021-11-18 15:55
+
+<blockquote>引用第7楼Maestro于2021-11-18 15:33发表的  :
+
+短期不准备，要打也是打强生当booster，俩mRNA疫苗一个数据有问题， 一个有心肌炎风险直接部分......</blockquote>
+@Maestro
+
+强生是没问题吗？
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Maestro  
+##### 10#       发表于 2021-11-18 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53596905&amp;ptid=2038124" target="_blank">droople 发表于 2021-11-18 15:55</a>
+@Maestro
+
+强生是没问题吗？</blockquote>
+学生没得选，像这样发展之后估计学校要求要么打加强针要么每天做核酸（现在就是疫苗or每天核酸 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  surely  
+##### 11#       发表于 2021-11-18 16:22
+
+国内的第三针国药已经打了
+
+满6个月之后，社区就开始动员了。
+
+*****
+
+####  Redis  
+##### 12#       发表于 2021-11-18 16:24
+
+我已经预约了周五的第三针，辉瑞
+
+到时候变成绿魔还是四百大妈还是毒液，我会回泥潭汇报的
+
+*****
+
+####  colorless  
+##### 13#       发表于 2021-11-18 16:28
+
+前两针moderna打完就回国了 现在不知道能不能打第三针………
+
+*****
+
+####  Tr火药味  
+##### 14#       发表于 2021-11-18 16:37
+
+三针科兴了。没有任何反应。
+
+*****
+
+####  李天宝  
+##### 15#       发表于 2021-11-18 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597248&amp;ptid=2038124" target="_blank">Maestro 发表于 2021-11-18 16:18</a>
+
+学生没得选，像这样发展之后估计学校要求要么打加强针要么每天做核酸（现在就是疫苗or每天核酸 
+
+ ...</blockquote>
+强生不是爆出过代工厂环境不合格吗，问题更严重吧，还有它和AZ疫苗都是腺病毒载体疫苗、也爆出过疑似血栓副作用问题，可能就是代工厂的问题
+
+强生疫苗美国代工厂环境不合格，1500万剂被销毁恐怕只是开始
+[https://new.qq.com/rain/a/20210422A0ETYJ00](https://new.qq.com/rain/a/20210422A0ETYJ00)
+
+*****
+
+####  hlazd  
+##### 16#       发表于 2021-11-18 16:49
+
+两针打的都是辉瑞，第三针到时间就考虑去打不过打什么随意，不是AZ就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  圈量子  
+##### 17#       发表于 2021-11-18 16:49
+
+打第二针辉瑞的时候啥反应没有，第三针等学校医院开始通知打了就去试试
+
+*****
+
+####  Maestro  
+##### 18#       发表于 2021-11-18 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597590&amp;ptid=2038124" target="_blank">李天宝 发表于 2021-11-18 16:42</a>
+
+强生不是爆出过代工厂环境不合格吗，问题更严重吧，还有它和AZ疫苗都是腺病毒载体疫苗、也爆出过疑似血栓 ...</blockquote>
+所以说能拖则拖咯<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰天犹恨雨无锋  
+##### 19#       发表于 2021-11-18 16:54
+
+按我的理解腺病毒不是远不如mrna么，哪有不打辉瑞打强生的
+
+*****
+
+####  riczxc  
+##### 20#       发表于 2021-11-18 16:56
+
+novavax吧，否则造出多少突刺蛋白都没数。
+
+*****
+
+####  riczxc  
+##### 21#       发表于 2021-11-18 16:57
+
+最好还是躲家里，物理隔离。
+
+*****
+
+####  kinasa  
+##### 22#       发表于 2021-11-18 17:02
+
+我明年2月第二针才满半年，到时候再看吧，十有八九还是打辉瑞
+
+*****
+
+####  Maestro  
+##### 23#       发表于 2021-11-18 17:04
+
+这不是novavax根本就是虚空疫苗么，要是有机会回国我宁愿去补一针智飞（
+
+至少法国人根据本国数据认为俩mRNA疫苗对30以下男性都有心肌炎/心包炎风险 
+
+*****
+
+####  riczxc  
+##### 24#       发表于 2021-11-18 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597925&amp;ptid=2038124" target="_blank">Maestro 发表于 2021-11-18 17:04</a>
+
+这不是novavax根本就是虚空疫苗么，要是有机会回国我宁愿去补一针智飞（
+
+至少法国人根据本国数据认为俩mRN ...</blockquote>
+sanofi太慢了，否则他们也是重组蛋白的。
+
+*****
+
+####  sandro  
+##### 25#       发表于 2021-11-18 18:43
+
+国内什么时候可以打mrna啊
+
+*****
+
+####  nvis  
+##### 26#       发表于 2021-11-18 18:49
+
+第三针继续打灭活，这几年等其他人做白老鼠验证下mrna的副作用再考虑。
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  riczxc  
+##### 27#       发表于 2021-11-18 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53599090&amp;ptid=2038124" target="_blank">sandro 发表于 2021-11-18 18:43</a>
+
+国内什么时候可以打mrna啊</blockquote>
+国内有重组蛋白，为什么要打基因疫苗？
+
+蛋白质在体外制造，浓度都确定。mrna、腺病毒疫苗的蛋白质都在细胞内制造，谁能告诉我产量怎么控制？
+
+*****
+
+####  希望之花  
+##### 28#       发表于 2021-11-18 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">wtm想打灭活疫苗都没地方打
+
+*****
+
+####  vaonon  
+##### 29#       发表于 2021-11-18 19:36
+
+等国产mrna上市了打
+
+*****
+
+####  pyx  
+##### 30#       发表于 2021-11-18 19:41
+
+先等等看有没有第四针
+
+
+
+*****
+
+####  nozomitech  
+##### 31#       发表于 2021-11-18 19:56
+
+z
+
+我这里莫得纳已经对30岁以下停了，他妈逼我就打的莫得纳，日尼玛，az早就停打了，强生也有血栓风险，所以也没得选了，只能打生物科技的。不过我8月底打的第二针，离半年还有点时间，先看情况，个人不太愿意打第三针，莫得纳和生物科技，一个数据造假一个心肌炎，再加上之前政客忽悠说什么打完疫苗就自由了，打完疫苗管一年，现在疫情越来越严重，疫苗也说只管半年，我已经不相信zf了。连我都这么想，相信第三针的数据会非常难看，呵呵。
+
+希望欧美赶紧认证中国疫苗吧，我不想打这个mRNA了，我想回国打灭活的。
+
+*****
+
+####  9616777  
+##### 32#       发表于 2021-11-18 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53600179&amp;ptid=2038124" target="_blank">nozomitech 发表于 2021-11-18 19:56</a>
+
+我这里莫得纳已经对30岁以下停了，他妈逼我就打的莫得纳，日尼玛，az早就停打了，强生也有血栓风险，所以也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不是说不同技术路线不能混打吗
+
+这个老鼠不要当了吧
+
+*****
+
+####  riczxc  
+##### 33#       发表于 2021-11-18 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53600213&amp;ptid=2038124" target="_blank">9616777 发表于 2021-11-18 19:59</a>
+
+不是说不同技术路线不能混打吗
+
+这个老鼠不要当了吧</blockquote>
+新冠病毒和mRNA疫苗也是不同的技术路线
+
+*****
+
+####  nozomitech  
+##### 34#       发表于 2021-11-18 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53600213&amp;ptid=2038124" target="_blank">9616777 发表于 2021-11-18 12:59</a>
+
+不是说不同技术路线不能混打吗
+
+这个老鼠不要当了吧</blockquote>
+那就不打了呗，不过我身边有人之前国内打了两针灭活，国外不认又打了两针生物科技的。而且不是个例。
+
+*****
+
+####  帕林马哲理  
+##### 35#       发表于 2021-11-18 20:21
+
+下个月打，还是BioNTech。目前不打疫苗已经不许进超市了，想不明白为何德国还有2kw不打的。
+
+*****
+
+####  nozomitech  
+##### 36#       发表于 2021-11-18 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53600553&amp;ptid=2038124" target="_blank">帕林马哲理 发表于 2021-11-18 13:21</a>
+
+下个月打，还是BioNTech。目前不打疫苗已经不许进超市了，想不明白为何德国还有2kw不打的。 ...</blockquote>
+不打疫苗超市可以进的啊，3g规则不包括超市这种卖生活必需品的场所吧？
+
+*****
+
+####  归英章华  
+##### 37#       发表于 2021-11-18 21:06
+
+已经打了第三针。
+
+现在BMI&gt;25就能打
+和所有人都能打区别很小了
+
+*****
+
+####  RaidenII  
+##### 38#       发表于 2021-11-18 21:19
+
+打，但是现在打前两针的医院没得booster打
+
+*****
+
+####  骆宾王  
+##### 39#       发表于 2021-11-18 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601274&amp;ptid=2038124" target="_blank">归英章华 发表于 2021-11-18 21:06</a>
+
+已经打了第三针。
+
+现在BMI&gt;25就能打</blockquote>
+是大于25还是小于25？
+
+*****
+
+####  归英章华  
+##### 40#       发表于 2021-11-18 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601916&amp;ptid=2038124" target="_blank">骆宾王 发表于 2021-11-18 21:53</a>
+是大于25还是小于25？</blockquote>
+BMI大于25。超重
+考虑到美国三分之二的人大于。再加上其他疾病和一线职业。不能打的成年人没几个了。
+
+*****
+
+####  边缘中心  
+##### 41#       发表于 2021-11-18 22:35
+
+已打，而且是moderna的。虽然说是风险高一点，但同时也说效果好一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a9okalypse  
+##### 42#       发表于 2021-11-18 22:42
+
+上周末打了pfizer
+啥事没有。
+
+*****
+
+####  a9okalypse  
+##### 43#       发表于 2021-11-18 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602269&amp;ptid=2038124" target="_blank">归英章华 发表于 2021-11-18 22:21</a>
+BMI大于25。超重
+考虑到美国三分之二的人大于。再加上其他疾病和一线职业。不能打的成年人没几个了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有这一说？我BMI 15.5
+
+*****
+
+####  Alkaided  
+##### 44#       发表于 2021-11-18 22:49
+
+个人不是很想打booster...
+
+我们这边感染率还行，开学三个月了确诊病例不到十个
+
+*****
+
+####  kts1mg  
+##### 45#       发表于 2021-11-18 23:56
+
+不打，明年回国怕做核酸检测出问题
+
+*****
+
+####  riczxc  
+##### 46#       发表于 2021-11-19 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53600553&amp;ptid=2038124" target="_blank">帕林马哲理 发表于 2021-11-18 20:21</a>
+下个月打，还是BioNTech。目前不打疫苗已经不许进超市了，想不明白为何德国还有2kw不打的。 ...</blockquote>
+多半在等灭活以及重组蛋白。
+
+*****
+
+####  烦死了  
+##### 47#         楼主| 发表于 2021-11-19 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597825&amp;ptid=2038124" target="_blank">riczxc 发表于 2021-11-18 16:57</a>
+最好还是躲家里，物理隔离。</blockquote>
+顶不住了 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">每周in person 组会 + 老板带头不戴口罩
+
+*****
+
+####  烦死了  
+##### 48#         楼主| 发表于 2021-11-19 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603264&amp;ptid=2038124" target="_blank">riczxc 发表于 2021-11-19 00:00</a>
+多半在等灭活以及重组蛋白。</blockquote>
+树皮疫苗novavax批准遥遥无期啊
+
+*****
+
+####  riczxc  
+##### 49#       发表于 2021-11-19 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603330&amp;ptid=2038124" target="_blank">烦死了 发表于 2021-11-19 00:08</a>
+顶不住了 每周in person 组会 + 老板带头不戴口罩</blockquote>
+防毒面具用p100滤棉加护目镜就好。疫情刚开始我就这样去超市的。
+
+记得吃饭喝水要在室外。
+
+*****
+
+####  riczxc  
+##### 50#       发表于 2021-11-19 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603357&amp;ptid=2038124" target="_blank">烦死了 发表于 2021-11-19 00:11</a>
+树皮疫苗novavax批准遥遥无期啊</blockquote>
+美国不知道，欧洲EMA要批准应该是这几周会有消息了。
+
+*****
+
+####  genki  
+##### 51#       发表于 2021-11-19 00:14
+
+第三针北京生物前几天已打完<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+按照上面的说法，以后半年一针属于常态了，对打疫苗还有顾忌的可以歇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JollytheJoker  
+##### 52#       发表于 2021-11-19 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603330&amp;ptid=2038124" target="_blank">烦死了 发表于 2021-11-19 00:08</a>
+顶不住了 每周in person 组会 + 老板带头不戴口罩</blockquote>
+怕什么，我老板和大老板还在计划全组聚餐呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DFantasy  
+##### 53#       发表于 2021-11-19 00:31
+
+前天带娃去打了第一针，好像没什么反应。我4月打的第二针moderna，我老公5月打的第二针辉瑞，准备有booster就把booster打了吧，家里两娃，老二还不能打，万一中了，就算没重症，谁来照顾娃也是个麻烦事。
+
+*****
+
+####  UncleY  
+##### 54#       发表于 2021-11-19 00:44
+
+不打算打，已经打了2针pfizer，并自愈了Delta 我体内的抗体应该比第三针强
+
+*****
+
+####  Zuckerfrei  
+##### 55#       发表于 2021-11-19 00:50
+
+两针辉瑞入了，希望大使馆能搞点灭活的加强针让中国护照的人去打，这天天新增的数字看着恐怖。
+
+*****
+
+####  ak123  
+##### 56#       发表于 2021-11-19 00:53
+
+在北京全家刚打完第三针，两个国药一个科兴，结果我这年轻的副作用反而最大，第二天身上酸痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 57#         楼主| 发表于 2021-11-19 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603574&amp;ptid=2038124" target="_blank">JollytheJoker 发表于 2021-11-19 00:31</a>
+怕什么，我老板和大老板还在计划全组聚餐呢</blockquote>
+我朋友圈 加州的也有庆祝疫情结束开趴的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YoumuChan  
+##### 58#       发表于 2021-11-19 01:14
+
+第三针pfizer上个月打了，发了两天低烧
+
+*****
+
+####  JollytheJoker  
+##### 59#       发表于 2021-11-19 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603850&amp;ptid=2038124" target="_blank">烦死了 发表于 2021-11-19 01:11</a>
+我朋友圈 加州的也有庆祝疫情结束开趴的</blockquote>
+我们公司刚从冰柜里翻出smallpox呢还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，区区新冠…
+
+不过我八月底去的南加度假，发现贵的酒店和便宜酒店里，都没人带口罩<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 60#         楼主| 发表于 2021-11-19 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603893&amp;ptid=2038124" target="_blank">JollytheJoker 发表于 2021-11-19 01:18</a>
+我们公司刚从冰柜里翻出smallpox呢还，区区新冠…
+
+不过我八月底去的南加度假，发现贵的酒店和便 ...</blockquote>
+肏 原来投毒的是你司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Bot7  
+##### 61#       发表于 2021-11-19 01:33
+
+在犹豫去不去打第三针辉瑞，现在这个疫情情况感觉没有特别大必要？
+
+身边朋友来看辉瑞应该是目前为止最安全的？毕竟都能给小孩打了
+
