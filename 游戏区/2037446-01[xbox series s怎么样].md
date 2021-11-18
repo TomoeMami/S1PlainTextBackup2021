@@ -914,3 +914,17 @@ xss最神奇的地方是，你如果经常出差且旅行箱大一点，你是�
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  管他三俗  
+##### 92#       发表于 2021-11-18 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53598004&amp;ptid=2037446" target="_blank">cubesun 发表于 2021-11-18 17:11</a>
+
+不对呀，XGPU不是自带金会员吗？
+
+另外你XSS和电脑的云存档公用起来方便吗？切换设备都能直接接着玩？ ...</blockquote>
+切换设备要同步一下存档 起码我这里就花个半分钟吧 挺快的。地平线我是直接买的 没冲XGP
+

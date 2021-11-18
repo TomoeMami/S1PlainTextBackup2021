@@ -6329,3 +6329,70 @@ syl  没说，现在都没说时间怕不是突击直接开了
 
 反正下面油管继续
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 5230#       发表于 2021-11-18 20:22
+
+自我定位精准<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 5231#       发表于 2021-11-18 20:22
+
+哈哈被嘲讽呢：年薪千万的话，mea可以和我结婚吗。你麻：哦哦那你加油。最近我是年薪5千万也啥想法了
+
+*****
+
+####  yywzjsw  
+##### 5232#       发表于 2021-11-18 20:26
+
+年薪17亿还会和我结婚吗？年薪17谁找你_(:з」∠)_
+
+*****
+
+####  2014720  
+##### 5233#       发表于 2021-11-18 20:26
+
+属实是养刁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5234#       发表于 2021-11-18 20:28
+
+要是待会继续lol的话 我得赶紧把每日清了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5235#       发表于 2021-11-18 20:35
+
+唱屁呢
+
+*****
+
+####  时间在我手中  
+##### 5236#       发表于 2021-11-18 20:36
+
+咩子，这melt你把握不住<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 5237#       发表于 2021-11-18 20:38
+
+唱的很有感情
+
+*****
+
+####  追风小星星  
+##### 5238#       发表于 2021-11-18 20:38
+
+这是什么唱法？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
