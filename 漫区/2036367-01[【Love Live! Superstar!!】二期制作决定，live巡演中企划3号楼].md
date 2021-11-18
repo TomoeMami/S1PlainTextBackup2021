@@ -7145,3 +7145,58 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 这种人就没必要搭理他了
 
+
+
+*****
+
+####  ads147147  
+##### 653#       发表于 2021-11-18 22:26
+
+ 本帖最后由 ads147147 于 2021-11-18 22:28 编辑 
+
+混泥潭的看到巨魔怎么还觉得和新鲜事物一样。
+
+话说12年也算老资格？我还以为按动新杂志出二单碟mv的2011年时间点才算中国这边的骨粉吧，起码我认识很多的都是因为动新才知道爱生活（菜宝鲤鱼也是）。
+
+这样想2011年真是神奇的年分。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 654#       发表于 2021-11-18 22:34
+
+鲤鱼姐终于发了，还以为今天不发了呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 655#       发表于 2021-11-18 22:35
+
+嘛 那条评论已经删了 不过我去问了下 字幕组说原则上不拉黑人 那也就算了（
+
+话说这人也能归入巨魔范畴吗 已经超越巨魔的底线进入纯纯贵物的领域了吧
+
+*****
+
+####  lj205  
+##### 656#       发表于 2021-11-18 22:39
+
+说实话还是蛮担心她演唱会的各种情况，好久没这种无力感。可恶，居然为个小偶像心急<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 657#       发表于 2021-11-18 22:42
+
+ 本帖最后由 D麦林 于 2021-11-18 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602176&amp;ptid=2036367" target="_blank">cxj649 发表于 2021-11-18 22:14</a>
+
+按时间的话，它之所以黑鲤鱼，大概也只是鲤鱼加了LL而已，几个关键字它喷的时间太火星了 ...</blockquote>
+这人可是直接把岚珠和可可称为“媚中角色”的
+
+这成分就不用我多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+再往前翻了翻 感觉确信了 应该是哥谭人
+那胆子害挺大的属于是 都几月了还在蹦跶
+

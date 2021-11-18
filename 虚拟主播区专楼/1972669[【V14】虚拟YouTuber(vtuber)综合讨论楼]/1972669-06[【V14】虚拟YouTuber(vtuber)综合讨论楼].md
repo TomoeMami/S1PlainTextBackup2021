@@ -12812,3 +12812,34 @@ vspo怎么又要集体valorant<img src="https://static.saraba1st.com/image/smile
 
 看起来深脊界和裸春市应该是设定为“对立”，有点像最早的hnst和anmr那种
 
+
+
+*****
+
+####  ヒトニナル  
+##### 8457#       发表于 2021-11-18 22:23
+
+（律可+奏手）/ 2吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 8458#       发表于 2021-11-18 22:25
+
+ 本帖最后由 IDIDIDID 于 2021-11-18 22:29 编辑 
+
+🙋‍神椿独角兽。别人无所谓不要碰理芽谢谢合作.
+
+SYL：
+
+oresama竟然去神椿了？
+
+*****
+
+####  秋月孝三  
+##### 8459#       发表于 2021-11-18 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">牛郎小哥终于摸出了环境武器
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

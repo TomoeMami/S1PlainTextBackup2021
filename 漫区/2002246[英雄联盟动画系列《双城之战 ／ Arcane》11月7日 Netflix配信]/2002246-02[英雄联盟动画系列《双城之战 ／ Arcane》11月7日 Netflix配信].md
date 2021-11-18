@@ -1387,3 +1387,15 @@ popstar就是现在做双城的这家公司做的啊
 
 我觉得目前破败王的剧情会重新推翻
 
+
+
+*****
+
+####  亚可（本人）  
+##### 1602#       发表于 2021-11-18 22:36
+
+狼人都T2了（虽然新版本数据不稳定）
+vi能不能认真加强下啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
