@@ -10493,3 +10493,27 @@ ylg功课属实没做好，含金量定型文都没念好，不得不说海子�
 NGA前VR楼楼主是鸟p，现PHP楼楼主也是鸟P，两边都起了大节奏
 我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2638#       发表于 2021-11-18 11:49
+
+ndwd：别靠近文静，会变得不幸
+
+*****
+
+####  rgauss  
+##### 2639#       发表于 2021-11-18 11:51
+
+✋✋✋ 
+错误的 wink天下第一
+
+*****
+
+####  T型钉宫病毒  
+##### 2640#       发表于 2021-11-18 11:56
+
+都是自己起的节奏，不管文静的事哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
