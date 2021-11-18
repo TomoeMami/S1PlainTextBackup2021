@@ -1312,3 +1312,15 @@ nga不一直是这样吗要这是日本公司弄的早就吹爆了</blockquote>
 拳头制作水平最高的动画还是KDA的POPSTAR吧，综合来说</blockquote>
 POP/star是真破圈作，和kpop搭上线之后拳头的女拳PTSD也好了，最近几年出皮肤突出一个胆子大
 
+
+
+*****
+
+####  狼影者瑞德克斯  
+##### 1595#       发表于 2021-11-18 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53596793&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-18 15:48</a>
+
+拳头制作水平最高的动画还是KDA的POPSTAR吧，综合来说</blockquote>
+popstar就是现在做双城的这家公司做的啊
+

@@ -2387,3 +2387,17 @@ image.png
 
 Arpara是新出的，小厂产品，屏幕用顶配，色彩好，视野小、清晰度高、轻便、小厂多少有些小毛病，定位系统等于没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，但是准备出V社的灯塔定位套件，所以我才打算跳坑试试，不推荐一般人贸贸然跳进去。
 
+
+
+*****
+
+####  vf503  
+##### 152#       发表于 2021-11-18 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597678&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-11-18 16:48</a>
+
+所以Q2+淘宝破解完事了。
+
+Arpara是新出的，小厂产品、屏幕用了顶配（mirco OLED记得是像芯片一样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">感谢前辈布道指路
+
