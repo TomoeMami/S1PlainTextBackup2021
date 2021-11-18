@@ -2333,3 +2333,25 @@ image.png
 
 华为打扰了
 
+
+
+*****
+
+####  vf503  
+##### 148#       发表于 2021-11-18 14:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">每逢VR贴  我就想问有没看电影体验好得方案
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个人的巨幕厅那种感觉 
+
+*****
+
+####  dumplingpro  
+##### 149#       发表于 2021-11-18 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53595323&amp;ptid=2034565" target="_blank">vf503 发表于 2021-11-18 14:08</a>
+
+每逢VR贴  我就想问有没看电影体验好得方案
+
+一个人的巨幕厅那种感觉  ...</blockquote>
+这个属于VR基本功能了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

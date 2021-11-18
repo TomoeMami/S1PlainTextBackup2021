@@ -13599,3 +13599,12 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 抽到辆多余的AE86想卖,结果发现挂不上高价<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1237#       发表于 2021-11-18 14:17
+
+感觉bug修了个寂寞，画面依然很屎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
