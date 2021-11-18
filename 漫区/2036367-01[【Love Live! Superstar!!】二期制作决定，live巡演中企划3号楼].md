@@ -6720,3 +6720,16 @@ fns上只唱一首歌，还是tvsize的那种，倒是可以期待有没有和�
 
 伏牛山翻车祭，开麦没翻也算是个宣传
 
+
+
+*****
+
+####  JustW_2  
+##### 615#       发表于 2021-11-18 10:52
+
+ 本帖最后由 JustW_2 于 2021-11-18 10:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591035&amp;ptid=2036367" target="_blank">土豆不土 发表于 2021-11-18 09:53</a>
+
+准备给朋友传教，叔叔家除了删掉了跪拜sunnypa之外还有什么删减吗</blockquote>
+可可朝sp画像拜的画面没了，声音却还在……总体无伤大雅吧
+

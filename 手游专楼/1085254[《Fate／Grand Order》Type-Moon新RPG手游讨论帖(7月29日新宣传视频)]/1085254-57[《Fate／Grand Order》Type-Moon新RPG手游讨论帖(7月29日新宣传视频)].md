@@ -3916,3 +3916,46 @@ new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
 
 看了下解包，阿国挺强了啊（作为绿卡打手），宝具回收和指令卡性能比夹馍稍微强一点点，50冲，宝具前置3t的绿卡down和D类魔性特攻，3t的红绿魔放，职阶虽然拉胯但是白值是全攻击倾向的，勉强能看（尤其是在c阶）虽然单回合但数值不错的集星和爆伤。基本上就是个去掉ae特攻加上魔性特攻的夹馍，咋就被人形容得和下水道从者一样了？2年前cba环境下夹馍甚至可以拿来当高难泛用打手用的，纵使现在时代变了，水平相当的阿国依然能完爆你游半数以上的单体打手，尤其是在单体打手稀缺的C阶。怪只能怪CBA跟不上环境了，风水轮流转，大家又回到了等绿拐的年代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 84341#       发表于 2021-11-18 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591720&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-11-18 10:34</a>
+
+看了下解包，阿国挺强了啊（作为绿卡打手），宝具回收和指令卡性能比夹馍稍微强一点点，50冲，宝具前置3t的 ...</blockquote>
+迦摩除了AE特攻以外，值得一提的还有超强的单挑能力。绿卡版本迦摩在所有的单体BOSS红字和白字场合打了一堆最速出来，单挑表演向也比比皆是（容错挺高、基本都是能抄的作业）。Assassin单体没什么高自充也给迦摩周回上班制造了一定的条件
+
+感觉阿国只能当个对策打手这种局限性还是其次。最大的不满还是围绕卡面和模组都实质上只有一组换换颜色这点……很多人就是给自己找个理由不抽这个卡池（当然性价比上确实没必要抽），能豹出来或者轻松开图鉴的自然就不用考虑这个问题了
+
+*****
+
+####  izumilee  
+##### 84342#       发表于 2021-11-18 10:54
+
+第九个护符出了，放着了，最近白嫖的有点多<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84343#       发表于 2021-11-18 11:00
+
+<blockquote>引用第84336楼森兰丸于2021-11-18 04:18发表的  :
+
+本帖最后由 森兰丸 于 2021-11-18 10:23 编辑 CAO.....加班到半夜才刚到家.......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太吵了，静音了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  xiongxingyu  
+##### 84344#       发表于 2021-11-18 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592154&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-11-18 10:52</a>
+
+迦摩除了AE特攻以外，值得一提的还有超强的单挑能力。绿卡版本迦摩在所有的单体BOSS红字和白字场合打了一 ...</blockquote>
+其实术阶竞争压力更低吧，杀阶当年还有女儿、x毛和夹馍卷来卷去，术阶在今年泳装夏洛蒂之前甚至没有一个能打3连的，伊利亚今年自充本之前，除了妖僧甚至没有能兼顾输出和np的，术阶单体太拉了以至于大家打杀阶高难基本上都上狂阶或者ae了。这样来看，阿国在职阶内部的排位甚至还高过夹馍，毕竟竞争上岗的是2个红卡和1个4星蓝卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

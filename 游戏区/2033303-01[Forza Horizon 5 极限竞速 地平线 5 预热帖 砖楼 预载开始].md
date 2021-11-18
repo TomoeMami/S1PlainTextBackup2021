@@ -13530,3 +13530,54 @@ willys和牛魔王的摇摇乐perk直接被移除了
 —— 来自 OPPO PCCM00, And ...</blockquote>
 开自动干啥，自动的路线跟刹车点很烂的，自己开呀
 
+
+
+*****
+
+####  nemunoki  
+##### 1230#       发表于 2021-11-18 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53589027&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-18 04:40</a>
+
+这个佛拉松的IE啥时候下架啊，我算了下就算周挑战全做完了也不够点买 ...</blockquote>
+这阿波罗和车展150W直接拉来的有区别吗，没区别的话还不如买车展拉不到的458s，至少现在拍卖里没人挂这车
+
+
+
+*****
+
+####  舌怪  
+##### 1231#       发表于 2021-11-18 10:54
+
+同问，现在forzathon商店的那辆apollo ie 18 2018值得换吗？
+
+*****
+
+####  bad_alloc  
+##### 1232#       发表于 2021-11-18 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592185&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-18 10:54</a>
+
+同问，现在forzathon商店的那辆apollo ie 18 2018值得换吗？</blockquote>
+才150万，咬咬牙直接用钱买了，点数留着买车展买不到的车吧
+
+*****
+
+####  舌怪  
+##### 1233#       发表于 2021-11-18 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592215&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 10:55</a>
+
+才150万，咬咬牙直接用钱买了，点数留着买车展买不到的车吧</blockquote>
+原来车展有啊？那没事了
+
+*****
+
+####  -SLSL-  
+##### 1234#       发表于 2021-11-18 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592027&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-18 10:46</a>
+
+这阿波罗和车展150W直接拉来的有区别吗，没区别的话还不如买车展拉不到的458s，至少现在拍卖里没人挂这车 ...</blockquote>
+不知道，我一直开的欢迎包送的IE<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
