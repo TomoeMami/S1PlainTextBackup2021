@@ -13750,3 +13750,30 @@ lod修复，起码在火山口不是一片糊了
 雷克萨斯里有个调校叫bmw killer</blockquote>
 用i8随便调了一下一遍过了，还挺简单的
 
+
+
+*****
+
+####  Vladimeow  
+##### 1252#       发表于 2021-11-19 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603319&amp;ptid=2033303" target="_blank">innovation_s 发表于 2021-11-19 00:07</a>
+虽然这听起来很离谱，但是我加速修理我法那辆车房250的时候看都没看直接按下了A。当我反应过来修理费是4800 ...</blockquote>
+那辆250是真的巨几把慢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鹿斗典善  
+##### 1253#       发表于 2021-11-19 01:06
+
+很多小超的都能降，但只能按名字搜调教
+
+另外把Q盾问题也修了，必须好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 1254#       发表于 2021-11-19 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">这周周常那个eventlab相关的任务四要干啥啊？偏偏这个没翻译。。
+
