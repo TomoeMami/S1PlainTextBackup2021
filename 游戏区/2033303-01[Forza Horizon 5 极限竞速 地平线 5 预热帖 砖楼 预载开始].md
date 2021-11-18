@@ -13617,3 +13617,34 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 这次补丁所向披靡车手过于所向披靡有没有改啊？
 
+
+
+*****
+
+####  Tjodrek  
+##### 1239#       发表于 2021-11-18 16:25
+
+这绘制距离依然近得离谱，修了个寂寞，这工作室赶快找个坑把自己埋了
+
+*****
+
+####  舌怪  
+##### 1240#       发表于 2021-11-18 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597369&amp;ptid=2033303" target="_blank">Tjodrek 发表于 2021-11-18 16:25</a>
+
+这绘制距离依然近得离谱，修了个寂寞，这工作室赶快找个坑把自己埋了</blockquote>
+我这的树叶和树干贴图好歹正常了
+
+*****
+
+####  Tjodrek  
+##### 1241#       发表于 2021-11-18 16:31
+
+ 本帖最后由 Tjodrek 于 2021-11-18 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597394&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-18 16:27</a>
+
+我这的树叶和树干贴图好歹正常了</blockquote>
+我除了抗锯齿全部拉到最高画面长这样，还爆了显存，这制作组是不是人啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+<[img src="https://z3.ax1x.com/2021/11/18/ITFwT0.png" referrerpolicy="no-referrer">
+
