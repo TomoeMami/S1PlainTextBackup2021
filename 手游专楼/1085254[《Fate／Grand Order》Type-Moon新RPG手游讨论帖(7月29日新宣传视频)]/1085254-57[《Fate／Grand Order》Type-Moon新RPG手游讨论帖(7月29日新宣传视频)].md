@@ -4033,3 +4033,17 @@ new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
 
 你游这个高杉，只能说又是pv欺诈，笑死我了
 
+
+
+*****
+
+####  上坂莲华  
+##### 84352#       发表于 2021-11-18 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588975&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-11-18 04:18</a>
+
+CAO.....加班到半夜才刚到家.....一打开游戏竟然送我自己了
+
+还是高贵的蓝卡仇光炮.....私様が強い ...</blockquote>
+SKIP（T头西服身男性）
+

@@ -6258,3 +6258,44 @@ syl  没说，现在都没说时间怕不是突击直接开了
 
 不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 5221#       发表于 2021-11-18 19:28
+
+呃呃，带货歌回
+
+*****
+
+####  T_Hb  
+##### 5222#       发表于 2021-11-18 19:29
+
+带啥货啊，货都没有
+
+*****
+
+####  时间在我手中  
+##### 5223#       发表于 2021-11-18 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53599708&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-11-18 19:29</a>
+带啥货啊，货都没有</blockquote>
+封面写了有谷子告知
+
+*****
+
+####  2014720  
+##### 5224#       发表于 2021-11-18 19:32
+
+不会是带会员购吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5225#       发表于 2021-11-18 19:32
+
+ 本帖最后由 T_Hb 于 2021-11-18 19:34 编辑 
+
+打扰了，没意思
+
