@@ -12664,3 +12664,22 @@ bora这基本是转生宣言了吧……
 
 Ahamo看着好像Amazon啊...明明是Docomo。
 
+
+
+*****
+
+####  IDIDIDID  
+##### 8449#       发表于 2021-11-18 19:40
+
+ 本帖最后由 IDIDIDID 于 2021-11-18 19:42 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/18/194042lp9fexxhneu787en.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (162.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-18 19:40 上传
+
+叛忍！
+
