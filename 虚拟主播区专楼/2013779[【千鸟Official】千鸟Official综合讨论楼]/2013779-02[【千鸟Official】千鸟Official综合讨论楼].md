@@ -10421,3 +10421,28 @@ ylg功课属实没做好，含金量定型文都没念好，不得不说海子�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以我都是发三条，一条暖男一条发病一条臊皮，一般都是臊皮的那条被回复
 
+
+
+*****
+
+####  GAKOTO  
+##### 2630#         楼主| 发表于 2021-11-18 10:20
+
+鸟p也迎来了cp粉大战人之初的版本了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 2631#         楼主| 发表于 2021-11-18 10:20
+
+ 本帖最后由 GAKOTO 于 2021-11-18 10:25 编辑 
+
+风奴
+
+*****
+
+####  四叶的花  
+##### 2632#       发表于 2021-11-18 10:26
+
+每次我想攻击性拉满的评论，可我总是在点发送键前放弃了，还是太爱她了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
