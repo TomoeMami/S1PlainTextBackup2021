@@ -1324,3 +1324,22 @@ POP/star是真破圈作，和kpop搭上线之后拳头的女拳PTSD也好了，�
 拳头制作水平最高的动画还是KDA的POPSTAR吧，综合来说</blockquote>
 popstar就是现在做双城的这家公司做的啊
 
+
+
+*****
+
+####  新的起源  
+##### 1596#       发表于 2021-11-18 21:17
+
+哈哈哈
+
+破败王小丑程度已经超越100%
+
+拳头新游戏补充了伊苏尔德那么恨佛耶戈的原因
+
+伊苏尔德只想当个裁缝不想当王后，死亡对她是种解脱
+
+所以她起床气才那么大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
