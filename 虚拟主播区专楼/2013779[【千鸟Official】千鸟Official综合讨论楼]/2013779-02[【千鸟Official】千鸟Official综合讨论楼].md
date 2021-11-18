@@ -10649,3 +10649,31 @@ dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还�
 
 我就不该看管人玩解谜游戏，王木木这画中世界看得我想过去线下揍她<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 2657#       发表于 2021-11-18 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53600208&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-18 19:58</a>
+
+我就不该看管人玩解谜游戏，王木木这画中世界看得我想过去线下揍她 ...</blockquote>
+我看见是这个游戏第一时间就退了，血压已经够高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 2658#       发表于 2021-11-18 20:09
+
+看管人玩游戏不就是折磨么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 2659#       发表于 2021-11-18 20:14
+
+三只小猪！艾瑞思看艾瑞思看艾瑞思
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
