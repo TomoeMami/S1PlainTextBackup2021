@@ -12646,3 +12646,12 @@ bora这基本是转生宣言了吧……
 弃医从管...</blockquote>
 木口头部大概真比一般医生赚的多很多，但是其他社嘛。。。除非你也是king。
 
+
+
+*****
+
+####  sgssk  
+##### 8447#       发表于 2021-11-18 11:09
+
+每次听这位大小姐直播唱歌都觉得您还是多练练为好（录音尚可，直播气短），不过打榜斗虫真的是坏文明<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

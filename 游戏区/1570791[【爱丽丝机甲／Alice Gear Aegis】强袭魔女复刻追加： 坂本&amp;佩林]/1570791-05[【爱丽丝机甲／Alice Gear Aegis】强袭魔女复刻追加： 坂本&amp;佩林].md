@@ -3326,3 +3326,31 @@ colopl收的是mages
 真相：
 https://twitter.com/Rookieforever1/status/1460999196652146690
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6238#       发表于 2021-11-18 11:12
+
+还好这两天没进楼，都提前拆包了吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+机器人笔记多好，就是没石头门名气大喽。估计就果冻和助手两人，说实话根本不想抽。
+
+本来东云+小学生双ANPU一次，发缇玛单独一次正好可以在今年出完19年的女演员，然后明年就可以出到今年的AN女演员，现在看来悬了。
+
+*****
+
+####  hypnossz86  
+##### 6239#       发表于 2021-11-18 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有打工战士就抽一抽，助手看情况...
+嘟嘟噜不行
+
+*****
+
+####  alialex  
+##### 6240#         楼主| 发表于 2021-11-18 11:19
+
+确实 要是玩什么凶真性转还能看个乐呵 石头门几个女的很不搭啊
+

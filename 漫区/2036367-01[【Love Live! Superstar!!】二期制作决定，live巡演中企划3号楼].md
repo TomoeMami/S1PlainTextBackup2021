@@ -6733,3 +6733,17 @@ fns上只唱一首歌，还是tvsize的那种，倒是可以期待有没有和�
 准备给朋友传教，叔叔家除了删掉了跪拜sunnypa之外还有什么删减吗</blockquote>
 可可朝sp画像拜的画面没了，声音却还在……总体无伤大雅吧
 
+
+
+*****
+
+####  D麦林  
+##### 616#       发表于 2021-11-18 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591035&amp;ptid=2036367" target="_blank">土豆不土 发表于 2021-11-18 09:53</a>
+
+准备给朋友传教，叔叔家除了删掉了跪拜sunnypa之外还有什么删减吗</blockquote>
+最重要的还是第4集堇绑架香音然后唱具足虫施法那段没了 而且是整段剪掉了
+
+5、6两集也有些删减 反正叔叔家的删减基本集中在4-6这三集 其他就没什么
+

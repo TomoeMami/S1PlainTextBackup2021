@@ -3959,3 +3959,33 @@ new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
 迦摩除了AE特攻以外，值得一提的还有超强的单挑能力。绿卡版本迦摩在所有的单体BOSS红字和白字场合打了一 ...</blockquote>
 其实术阶竞争压力更低吧，杀阶当年还有女儿、x毛和夹馍卷来卷去，术阶在今年泳装夏洛蒂之前甚至没有一个能打3连的，伊利亚今年自充本之前，除了妖僧甚至没有能兼顾输出和np的，术阶单体太拉了以至于大家打杀阶高难基本上都上狂阶或者ae了。这样来看，阿国在职阶内部的排位甚至还高过夹馍，毕竟竞争上岗的是2个红卡和1个4星蓝卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 84345#       发表于 2021-11-18 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592333&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-11-18 11:00</a>
+
+太吵了，静音了
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">この人でなし!
+
+*****
+
+####  qixinno2  
+##### 84346#       发表于 2021-11-18 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说了一大堆 不还是菜
+
+*****
+
+####  黑上シグマ  
+##### 84347#       发表于 2021-11-18 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我为啥要去搞内部竞争，大公不香吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
