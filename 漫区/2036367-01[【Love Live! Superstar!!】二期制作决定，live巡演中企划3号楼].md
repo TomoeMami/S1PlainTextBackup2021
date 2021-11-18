@@ -6960,3 +6960,16 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 小姑娘独自在异乡打拼确实是不容易
 
+
+
+*****
+
+####  cxj649  
+##### 637#       发表于 2021-11-18 18:25
+
+在菜鱼联动看到一个之前在L吧挂过的鲤鱼黑，我好奇去看它动态
+
+只能说这种黑子有点可悲，没鲤鱼时候黑水，黑虹，现在黑鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+语气都很云，拿了几个疑似云的名词自顾自黑空气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

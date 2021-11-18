@@ -2401,3 +2401,20 @@ Arpara是新出的，小厂产品，屏幕用顶配，色彩好，视野小、�
 Arpara是新出的，小厂产品、屏幕用了顶配（mirco OLED记得是像芯片一样 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">感谢前辈布道指路
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 153#       发表于 2021-11-18 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53598340&amp;ptid=2034565" target="_blank">vf503 发表于 2021-11-18 17:37</a>
+感谢前辈布道指路</blockquote>
+观影没啥问题，画面算是vajor以外最强的vr头显。
+面罩有问题，导致画面不能显示完全。
+主玩游戏的话目前不推荐购买，观影的话可以考虑。
+华为，三星和苹果的部分机型支持视频输出功能，可以投屏到头显里看视频玩游戏。不支持的机型可以买官方的配件mirrocast来投屏。
+另外观影是直连设备（pc/手机/游戏主机）作为头戴显示器用，所以视角是固定的，不能转头，沉浸感不如vr。
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
