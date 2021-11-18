@@ -4047,3 +4047,12 @@ CAO.....加班到半夜才刚到家.....一打开游戏竟然送我自己了
 还是高贵的蓝卡仇光炮.....私様が強い ...</blockquote>
 SKIP（T头西服身男性）
 
+
+
+*****
+
+####  白金口袋  
+##### 84353#       发表于 2021-11-19 02:44
+
+以为藤丸会模仿克劳德当反抗军，结果走得是神罗合作路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

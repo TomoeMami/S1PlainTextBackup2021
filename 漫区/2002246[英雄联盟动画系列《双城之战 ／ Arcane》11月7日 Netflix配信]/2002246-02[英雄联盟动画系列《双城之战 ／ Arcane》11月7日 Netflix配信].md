@@ -1505,3 +1505,71 @@ vi能不能认真加强下啊</blockquote>
 这事发生在光明哨兵1年前</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">是啊，我的意思是这不一个挺正常的开头，甚至可以说开的很不错的头，然后游戏里搞了个……都不是蛇尾或者续貂了……你哪怕参考下破王游戏里剧情的铺垫也不至于崩成这样啊。一年前厄运赌命打到暗影岛，一年后自己主动吃破败……
 
+
+
+*****
+
+####  飞升之后  
+##### 1615#       发表于 2021-11-19 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603820&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-19 01:05</a>
+
+是啊，我的意思是这不一个挺正常的开头，甚至可以说开的很不错的头，然后游戏里搞了个……都不是 ...</blockquote>
+这就是恶心的地方，赛娜出的时候还和S7的开季CG连上了。。。哪知破败王一出就谐了
+
+*****
+
+####  NANA1Komatsu  
+##### 1616#       发表于 2021-11-19 01:47
+
+ 本帖最后由 NANA1Komatsu 于 2021-11-19 02:13 编辑 
+
+编辑
+
+*****
+
+####  飞升之后  
+##### 1617#       发表于 2021-11-19 01:48
+
+孤勇者要大量出现在正能量视频里了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这种叔叔也不敢限
+
+*****
+
+####  飞升之后  
+##### 1618#       发表于 2021-11-19 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604036&amp;ptid=2002246" target="_blank">NANA1Komatsu 发表于 2021-11-19 01:47</a>
+
+那个女执法官没死吧，第四还是第五集出现在了杰斯的庄园跟女警比枪法</blockquote>
+每一集开始基本都是人物的回忆，第四集是女警幼时的回忆
+
+*****
+
+####  bairn  
+##### 1619#       发表于 2021-11-19 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604036&amp;ptid=2002246" target="_blank">NANA1Komatsu 发表于 2021-11-19 01:47</a>
+
+那个女执法官没死吧，第四还是第五集出现在了杰斯的庄园跟女警比枪法</blockquote>
+你这看的啥，紧接着都是马克斯去扫墓了
+
+*****
+
+####  NANA1Komatsu  
+##### 1620#       发表于 2021-11-19 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604083&amp;ptid=2002246" target="_blank">bairn 发表于 2021-11-19 02:05</a>
+你这看的啥，紧接着都是马克斯去扫墓了</blockquote>
+我以为她是有什么不可告人的任务在潜伏呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，主要是女警声线没变多少没注意是回忆
+
+
+
+*****
+
+####  NANA1Komatsu  
+##### 1621#       发表于 2021-11-19 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604049&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-19 01:50</a>
+每一集开始基本都是人物的回忆，第四集是女警幼时的回忆</blockquote>
+我以为她是有什么不可告人的任务在潜伏呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，主要是女警声线没变多少没注意是回忆
+

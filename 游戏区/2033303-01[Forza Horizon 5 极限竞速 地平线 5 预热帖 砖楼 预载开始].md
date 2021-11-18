@@ -13794,3 +13794,16 @@ lod修复，起码在火山口不是一片糊了
 
 2021-11-19 01:21 上传
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1256#       发表于 2021-11-19 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591885&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 10:39</a>
+开自动干啥，自动的路线跟刹车点很烂的，自己开呀</blockquote>
+我太懒了。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

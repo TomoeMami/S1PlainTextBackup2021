@@ -555,3 +555,118 @@ BMI大于25。超重
 
 身边朋友来看辉瑞应该是目前为止最安全的？毕竟都能给小孩打了
 
+
+
+*****
+
+####  yizi1  
+##### 62#       发表于 2021-11-19 02:18
+
+我周六打算去打moderna的booster，主要考虑接下来几个月要滑雪，还是提升下抗体水平。
+
+*****
+
+####  lixueaaa  
+##### 63#       发表于 2021-11-19 04:01
+
+我第一针强生，前几天打了辉瑞的booster。就头疼了一两天<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  foxlxr  
+##### 64#       发表于 2021-11-19 04:21
+
+前两针都是辉瑞的，打了以后就是有点困。睡一晚上第二天就活蹦乱跳了。还可以借口请假在家。等过了6个月就去打加强。
+
+*****
+
+####  工口兔  
+##### 65#       发表于 2021-11-19 04:39
+
+打，都打了两针了，该有什么副作用已经逃不掉了，既然2针压根挡不住delta，那不是只能打了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  航迹云  
+##### 66#       发表于 2021-11-19 04:54
+
+我跟女票都打了booster，没什么反应，也就隔天会有点点晕加胳膊疼。
+
+*****
+
+####  航迹云  
+##### 67#       发表于 2021-11-19 04:54
+
+我跟女票都打了booster，没什么反应，也就隔天会有点点晕加胳膊疼。
+
+*****
+
+####  航迹云  
+##### 68#       发表于 2021-11-19 04:54
+
+我跟女票都打了booster，没什么反应，也就隔天会有点点晕加胳膊疼。
+
+*****
+
+####  航迹云  
+##### 69#       发表于 2021-11-19 04:54
+
+我跟女票都打了booster，没什么反应，也就隔天会有点点晕加胳膊疼。
+
+*****
+
+####  内野  
+##### 70#       发表于 2021-11-19 05:40
+
+太惨了吧 不在国内的只能当小白鼠了
+
+*****
+
+####  fmonion  
+##### 71#       发表于 2021-11-19 05:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604303&amp;ptid=2038124" target="_blank">航迹云 发表于 2021-11-19 04:54</a>
+
+我跟女票都打了booster，没什么反应，也就隔天会有点点晕加胳膊疼。</blockquote>
+知道你们隔天会有点点晕加胳膊疼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睏睏  
+##### 72#       发表于 2021-11-19 05:47
+
+ 本帖最后由 睏睏 于 2021-11-19 05:53 编辑 
+
+打吧。政府已经要躺平了，不管了，我们只能打疫苗求平安了。哦对了打的是辉瑞。
+
+*****
+
+####  烦死了  
+##### 73#         楼主| 发表于 2021-11-19 05:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604303&amp;ptid=2038124" target="_blank">航迹云 发表于 2021-11-19 04:54</a>
+
+我跟女票都打了booster，没什么反应，也就隔天会有点点晕加胳膊疼。</blockquote>
+booster也有科兴内个效果？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 74#         楼主| 发表于 2021-11-19 06:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604362&amp;ptid=2038124" target="_blank">睏睏 发表于 2021-11-19 05:47</a>
+
+打吧。政府已经要躺平了，不管了，我们只能打疫苗求平安了。哦对了打的是辉瑞。
+
+ ...</blockquote>
+什么叫 已经要， 我们这边红州从来没人管过ever<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 75#       发表于 2021-11-19 06:01
+
+第三针Pfizer打完了，被放倒了一天。
+
+没啥事。
+
