@@ -219,7 +219,7 @@ async def UpdateThread(threaddict,semaphore):
     except Exception as e:
         with open(rootdir+'ErrorLog.txt','a',encoding='utf-8') as f:
             f.write(str(e)+'\n')
-            f.write('!!error:id='+threaddict['id'])
+            f.write('!!error:id='+threaddict['id']+'\n')
         pass
 
 
