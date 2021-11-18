@@ -10473,3 +10473,23 @@ ylg功课属实没做好，含金量定型文都没念好，不得不说海子�
 
 还不是楼友带起来的人之初风气，平时我弹幕都不发的更别说求认知了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2636#       发表于 2021-11-18 11:21
+
+看着楼友发病我很心疼
+
+虽然我最近也在看以前的录播过日子
+
+*****
+
+####  小憨1  
+##### 2637#       发表于 2021-11-18 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最近内桑过的也不是很顺心啊
+NGA前VR楼楼主是鸟p，现PHP楼楼主也是鸟P，两边都起了大节奏
+我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3989,3 +3989,15 @@ new血赚 这游戏99%的卡基本都用不上不是常识吗</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  xiongxingyu  
+##### 84348#       发表于 2021-11-18 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592569&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-18 11:13</a>
+
+说了一大堆 不还是菜</blockquote>
+看你对“菜”怎么定义了，阿国扔5星单体里属于比较靠前的，放全部5星打手里至少也强过一半以上，如果只打算玩十几个从者通吃所有本就完全没必要抽，如果追求最优解，在很多场合都可以上场。哪天真的出个cab、杀狐级别的绿拐就和水魔总、团长一样原地起飞。
+
