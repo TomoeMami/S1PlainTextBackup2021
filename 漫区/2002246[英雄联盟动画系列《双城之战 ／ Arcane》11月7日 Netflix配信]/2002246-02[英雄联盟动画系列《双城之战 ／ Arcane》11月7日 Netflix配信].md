@@ -2303,3 +2303,14 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 —— 来自 HUAWEI EBG-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
 风女是皮城的
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 1688#       发表于 2021-11-19 21:01
+
+有英配种吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

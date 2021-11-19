@@ -11090,3 +11090,45 @@ cnm这省略吓死我了
 
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  haruhiismer  
+##### 2705#       发表于 2021-11-19 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614627&amp;ptid=2013779" target="_blank">香蕉很香 发表于 2021-11-19 20:35</a>
+嗯冲触摸，直播间已经被永久封禁。
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+现在是穷哥们琪琪
+
+*****
+
+####  香蕉很香  
+##### 2706#       发表于 2021-11-19 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614765&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-19 20:46</a>
+
+现在是穷哥们琪琪</blockquote>
+下午直播间就被永丰了。
+
+*****
+
+####  haruhiismer  
+##### 2707#       发表于 2021-11-19 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614825&amp;ptid=2013779" target="_blank">香蕉很香 发表于 2021-11-19 20:51</a>
+下午直播间就被永丰了。</blockquote>
+啊这，那我地上足球上哪看去
+
+*****
+
+####  香蕉很香  
+##### 2708#       发表于 2021-11-19 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614910&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-19 20:58</a>
+
+啊这，那我地上足球上哪看去</blockquote>
+直播间被封，账号还是可以用的。八妹去虎扑转生了。
+
