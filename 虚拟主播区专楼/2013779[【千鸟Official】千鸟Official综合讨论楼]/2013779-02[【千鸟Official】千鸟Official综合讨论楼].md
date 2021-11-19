@@ -10876,3 +10876,40 @@ syl 南京的大学里的宿舍，阳台漏风，开空调只要关了就冷了�
 
 南方冬天还行啊 不开空调的，一般就烤火炉
 
+
+
+*****
+
+####  haruhiismer  
+##### 2683#       发表于 2021-11-19 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53608866&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-19 14:22</a>
+南方冬天还行啊 不开空调的，一般就烤火炉</blockquote>
+你说的取暖器吧
+
+*****
+
+####  rgauss  
+##### 2684#       发表于 2021-11-19 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53610426&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-19 16:26</a>
+
+你说的取暖器吧</blockquote>
+不都差不多吗
+
+*****
+
+####  haruhiismer  
+##### 2685#       发表于 2021-11-19 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53610471&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-19 16:29</a>
+不都差不多吗</blockquote>
+一个要烟囱独门独户才能用，一个插上电就行这差别老大了
+
+*****
+
+####  夜潇箫  
+##### 2686#       发表于 2021-11-19 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烧炭得开窗，电炉费电。不过coco没有秋裤我是真的没想到的
+
