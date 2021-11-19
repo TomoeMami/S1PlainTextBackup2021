@@ -745,3 +745,19 @@ mrna疫苗不太会一年后还影响核酸的
 我这里托儿所现在的流行病是手足口，德尔塔还没一个。</blockquote>
 等有了再打不就来不及了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ak123  
+##### 83#       发表于 2021-11-19 09:58
+
+ 本帖最后由 ak123 于 2021-11-19 09:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603989&amp;ptid=2038124" target="_blank">Bot7 发表于 2021-11-19 01:33</a>
+
+在犹豫去不去打第三针辉瑞，现在这个疫情情况感觉没有特别大必要？
+
+身边朋友来看辉瑞应该是目前为止最安全 ...</blockquote>
+
+海外单日死亡新增不带掉还屡破新高，到底是什么舆论轮环境长期引导的，能得出没必要的结论？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

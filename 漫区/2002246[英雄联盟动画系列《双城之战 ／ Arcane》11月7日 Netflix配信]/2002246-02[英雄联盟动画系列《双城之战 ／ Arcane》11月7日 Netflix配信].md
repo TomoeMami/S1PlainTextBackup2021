@@ -1573,3 +1573,19 @@ vi能不能认真加强下啊</blockquote>
 每一集开始基本都是人物的回忆，第四集是女警幼时的回忆</blockquote>
 我以为她是有什么不可告人的任务在潜伏呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，主要是女警声线没变多少没注意是回忆
 
+
+
+*****
+
+####  亚可（本人）  
+##### 1622#       发表于 2021-11-19 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603756&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-19 00:54</a>
+蔚不改机制的画永远有上位替代青钢影（换血护盾，突进眩晕，攻速，大招锁定击退周围人）
+
+不过结合故事背景 ...</blockquote>
+还好吧，灰夫人EW被砍以后就打不过野了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+在打野这块没那么上位了
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
