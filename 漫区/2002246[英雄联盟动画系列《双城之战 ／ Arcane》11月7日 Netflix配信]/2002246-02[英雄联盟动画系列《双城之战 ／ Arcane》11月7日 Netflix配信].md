@@ -1784,3 +1784,15 @@ VI在游戏里面最大的问题是手感糟糕，类似定位的英雄手感都
 —— 来自 HUAWEI EBG-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得赶紧把破败王的伪装CD砍一砍了
 
+
+
+*****
+
+####  remedios010000  
+##### 1643#       发表于 2021-11-19 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564435&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-16 13:51</a>
+
+不是，梅尔好歹位高权重，被一个低城的“疯子”说炸就炸死了？残血被jinx远程缘分大招收了？ ...</blockquote>
+这有什么不能的,人上人又不会分身又不会复活,就算是硬换肯定也是能换掉的,怎么这么多人不懂得这个道理<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
