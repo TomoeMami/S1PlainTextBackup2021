@@ -2049,3 +2049,24 @@ VI在游戏里面最大的问题是手感糟糕，类似定位的英雄手感都
 
 不过有设计师表示他认为蔚的玩法和青钢影确实重叠的较多，计划进行玩法更新，到时候再看看吧
 
+
+
+*****
+
+####  qingshuihe  
+##### 1668#       发表于 2021-11-19 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53610952&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-19 17:01</a>
+
+假的吧，有这么多时长，多拖一周的热度不香吗？</blockquote>
+每集40分钟时长已经很不讲道理了，2个小时感觉也不是不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漫漫来  
+##### 1669#       发表于 2021-11-19 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611309&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-19 17:22</a>
+穿甲霞前段时间才刚韩服AD登顶来着，被紧急削了一波，也不至于连T4都不到吧。。杰斯现在削这么惨， ...</blockquote>
+你可以看看opgg，新版本第一天杰斯上单排名上升了30位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -903,3 +903,12 @@ mrna疫苗不太会一年后还影响核酸的</blockquote>
 
 感觉还是不着急打，先静观其变，要是反响还行，就等期末忙完去打
 
+
+
+*****
+
+####  gutzz  
+##### 97#       发表于 2021-11-19 18:01
+
+这两个月想回国不能打，等之后过来再打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
