@@ -11242,3 +11242,68 @@ cnm这省略吓死我了
 阑尾炎不是微创手术吗，三天就被踢出医院那种，这人怎么全麻了</blockquote>
 她说她恢复的很慢，还有刀口
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2721#       发表于 2021-11-20 00:43
+
+我感觉艾瑞思一直在替陈珺找补，陈珺大概可能说不准真的没下来。
+
+*****
+
+####  tankai  
+##### 2722#       发表于 2021-11-20 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617397&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-20 00:15</a>
+
+张三从来都不是鸟p中的一员，下一句我忘了</blockquote>
+正好艾瑞思看自己2060离场前说:过去当V,有次只有三个观众看自己直播(大概日箱),现在能来2060舞台让更多人
+
+见到自己很满足.在抹眼泪.张三这个B崩出来这活儿的时候给整麻了.
+
+*****
+
+####  tankai  
+##### 2723#       发表于 2021-11-20 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617699&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-20 00:43</a>
+
+我感觉艾瑞思一直在替陈珺找补，陈珺大概可能说不准真的没下来。</blockquote>
+以前我就在想文静下克上,会不会把队长后台整没了.<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">毕竟1.0能保她的大约是珺神拍板.
+
+*****
+
+####  夜潇箫  
+##### 2724#       发表于 2021-11-20 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">艾瑞思进这个企划就很奇怪，她一个完全不会打游戏的进一个电竞企划
+
+*****
+
+####  tankai  
+##### 2725#       发表于 2021-11-20 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617504&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-20 00:25</a>
+
+她说她恢复的很慢，还有刀口</blockquote>
+她那破身体素质.
+
+*****
+
+####  夜潇箫  
+##### 2726#       发表于 2021-11-20 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">文静这个身体素质，以后生小孩，不管是顺产还是剖腹产，都恢复的好慢，搞不好会有生命危险
+
+*****
+
+####  tankai  
+##### 2727#       发表于 2021-11-20 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617801&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-20 00:52</a>
+
+艾瑞思进这个企划就很奇怪，她一个完全不会打游戏的进一个电竞企划</blockquote>
+她是最先确定1.0人选的么.我怎么听说当初要整电竞LOL女队.有两个后悔没来临时填了二个.
+
