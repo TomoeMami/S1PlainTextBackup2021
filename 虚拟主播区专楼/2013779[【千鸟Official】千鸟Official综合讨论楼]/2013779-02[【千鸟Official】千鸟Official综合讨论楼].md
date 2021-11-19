@@ -11077,3 +11077,16 @@ cnm这省略吓死我了
 
 编辑  
 
+
+
+*****
+
+####  香蕉很香  
+##### 2704#       发表于 2021-11-19 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613787&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-19 19:37</a>
+原来李老八也套皮了。还开了变声器，这下文静复出之后可以联动咯。</blockquote>
+嗯冲触摸，直播间已经被永久封禁。
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

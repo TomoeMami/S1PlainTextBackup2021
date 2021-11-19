@@ -2277,3 +2277,29 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 还有比新剑魔更有特色的吗当然我说的不是游戏性，而是：</blockquote>
 嗯，你好，我是收枚科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿刚  
+##### 1686#       发表于 2021-11-19 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614211&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-19 20:08</a>
+
+皮城好像没辅助吧？
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">轮椅妹啊，再怎么说也是个高配琴女
+
+*****
+
+####  三个尻枪手  
+##### 1687#       发表于 2021-11-19 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614211&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-19 20:08</a>
+
+皮城好像没辅助吧？
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+风女是皮城的
+

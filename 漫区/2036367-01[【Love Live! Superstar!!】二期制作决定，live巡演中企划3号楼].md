@@ -7608,3 +7608,64 @@ FEjJ_6jaQAIGCXu.jfif
 
 这歌算是回归出初心吗～～
 
+
+
+*****
+
+####  megapikachu  
+##### 694#       发表于 2021-11-19 20:39
+
+之前关注过一家卖趴趴的店（当然其他的周边也卖），可可加了两次价，其他的原价。最近因为库存见底再次提价，结果堇的因为库存比较多所以没提价。不过库存嘛，每家店情况可能不同。今天mega size的可可发售，看看之后情况会怎样。另外还有一个一单服装的准备发售，可可的提前到达预定上限，其他的仍然可以预定。
+
+<img src="https://img.saraba1st.com/forum/202111/19/202433f80ddadlzf3s2wm9.jpg" referrerpolicy="no-referrer">
+
+<strong>FEKhps9acAAmQH9.jpg</strong> (398.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 20:24 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/202505b2smw80pastxz5sx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211115_184836_com.huawei.browser_edit_133502364058274.jpg</strong> (321.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 20:25 上传
+
+一巡场贩的角色徽章，的确小千的便宜一点，但也有除可可外没区别的。（图里的其实应该是店家提出的收购价，你去买就不是这个价了，例如香音的它标720，实际上买就要1320了，然后官方标价500一个）
+
+<img src="https://img.saraba1st.com/forum/202111/19/202819iv8nqukqqxrdm9xq.jpg" referrerpolicy="no-referrer">
+
+<strong>FEhh9JkakAE_xMw.jpg</strong> (519.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 20:28 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/202848n37ew778ze7e1we3.jpg" referrerpolicy="no-referrer">
+
+<strong>FEXl3kTagAAkdmJ.jpg</strong> (206.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 20:28 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/202923z8mrc91nfmdp9s9s.png" referrerpolicy="no-referrer">
+
+<strong>FD0TJHRaIAANQzn.png</strong> (254.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 20:29 上传
+
+只是粗略一看的话，的确小千的要便宜一点。（店家也没必要出一个不切实际的高收购价然后自己亏钱）但总体来说，除了可可以外，基本还算同一水平线吧。暂时没有特夸张，例如这样的：
+
+<img src="https://img.saraba1st.com/forum/202111/19/203822o7t15p6gedjl1jzl.jpg" referrerpolicy="no-referrer">
+
+<strong>FEYU0oVaAAAfcxb.jpg</strong> (255.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 20:38 上传
+
