@@ -1926,3 +1926,86 @@ VI在游戏里面最大的问题是手感糟糕，类似定位的英雄手感都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">不过祖安英雄太特么多了，凑两队都够了
 
+
+
+*****
+
+####  名津流  
+##### 1659#       发表于 2021-11-19 17:07
+
+这楼转型游戏讨论楼了吗
+
+*****
+
+####  渡边菌  
+##### 1660#       发表于 2021-11-19 17:10
+
+以前还玩lol的时候总觉得皮城出身的英雄总有股莫名的恶臭感。不管是小黄毛还是女警都让我觉得难受。杰斯算是我最讨厌的。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">唯一一个有好感的还是发条。现在看动画倒是觉得杰斯也没那么恶心了。
+
+*****
+
+####  有优越感的人mk2  
+##### 1661#       发表于 2021-11-19 17:12
+
+应该不会吧，真有两小时完全可以多放一礼拜
+
+*****
+
+####  镜面の云  
+##### 1662#       发表于 2021-11-19 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53610448&amp;ptid=2002246" target="_blank">Yourselfine 发表于 2021-11-19 16:27</a>
+
+动画片带货能力太强了，玩ad的朋友天天抢着喊我要玩爆爆/小蛋糕。打野朋友时不时玩把vi 而我小心翼翼地玩杰 ...</blockquote>
+如今这个版本，路人局里金克斯、蔚、女警不都是自己给自己找罪受
+
+蔚去打野会玩还好点，金克斯和女警就是比霞好一点的t4级
+
+反而杰斯是唯一一个能拿出来单C的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战场公主希维尔  
+##### 1663#       发表于 2021-11-19 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611221&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-19 17:18:26</a>
+如今这个版本，路人局里金克斯、蔚、女警不都是自己给自己找罪受
+
+蔚去打野会玩还好点，金克斯和女警就是 ...</blockquote>手游女警和蔚都不错。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  阿刚  
+##### 1664#       发表于 2021-11-19 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611221&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-19 17:18</a>
+
+如今这个版本，路人局里金克斯、蔚、女警不都是自己给自己找罪受
+
+蔚去打野会玩还好点，金克斯和女警就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">选杰斯怕是开局要被对面五个人蹲一次
+
+*****
+
+####  暗黑能乐  
+##### 1665#       发表于 2021-11-19 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611221&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-19 17:18</a>
+
+如今这个版本，路人局里金克斯、蔚、女警不都是自己给自己找罪受
+
+蔚去打野会玩还好点，金克斯和女警就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">穿甲霞前段时间才刚韩服AD登顶来着，被紧急削了一波，也不至于连T4都不到吧。。杰斯现在削这么惨，都没啥人玩了啊感觉
+
+*****
+
+####  镜面の云  
+##### 1666#       发表于 2021-11-19 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611309&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-19 17:22</a>
+
+穿甲霞前段时间才刚韩服AD登顶来着，被紧急削了一波，也不至于连T4都不到吧。。杰斯现在削这么惨， ...</blockquote>
+整个s11的装备体系跟霞完全不兼容啊，看新赛季如何吧
+

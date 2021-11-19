@@ -4065,3 +4065,12 @@ SKIP（T头西服身男性）
 
 阿国的意义不是开创性的术阶绿卡宝具吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84355#       发表于 2021-11-19 17:20
+
+伪阶龙马稳了，放技能会遮挡，全程不说话
+
