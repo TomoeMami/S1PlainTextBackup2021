@@ -7251,3 +7251,79 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 <img src="https://p.sda1.dev/3/1b424c27a56d310ff2cfd46bef5fa24b/IMG_CMP_247872653.png" referrerpolicy="no-referrer">
 来了
 
+
+
+*****
+
+####  优妮可  
+##### 662#       发表于 2021-11-19 14:26
+
+这个月的好快
+
+*****
+
+####  lj205  
+##### 663#       发表于 2021-11-19 14:32
+
+大阪是今天开始吗？
+
+*****
+
+####  cat1230  
+##### 664#       发表于 2021-11-19 14:34
+
+这就是巡演间隙抽空拍的mv啊，鲤鱼牛逼就完了。下月工作量还得加倍，鲤鱼姐，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 665#       发表于 2021-11-19 14:36
+
+晒宠
+
+AB06744B-7F70-4AF2-BE39-26AE313C8E6B.jpeg
+(150.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 14:36 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/143617y0qgpbgq7x01nxxq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8A27705B-B2C7-40DE-ACB3-D9E263874000.jpeg
+(352.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 14:36 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/143617pqxr9xyv9xonz976.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 666#       发表于 2021-11-19 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602400&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-18 22:34</a>
+
+鲤鱼姐终于发了，还以为今天不发了呢</blockquote>
+合鲤同款芭菲
+
+CFBE3D7A-659A-46B1-BE6C-BD8CF48EB2E7.jpeg
+(321.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 14:38 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/143811kt9cnm3j950cdd93.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 667#       发表于 2021-11-19 14:42
+
+今晚又得在评论区想个好点的热评，不然又是一堆口水巾了。
+

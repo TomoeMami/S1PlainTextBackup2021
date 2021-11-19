@@ -3428,3 +3428,37 @@ ova不是已经有过男声优了
 
 风怒
 
+
+
+*****
+
+####  alialex  
+##### 6248#         楼主| 发表于 2021-11-19 14:27
+
+这个背影我好了，所以联动角色能抽菲利斯？意料之外的展开
+
+*****
+
+####  hypnossz86  
+##### 6249#       发表于 2021-11-19 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那个图不是夜露么...
+
+*****
+
+####  alialex  
+##### 6250#         楼主| 发表于 2021-11-19 14:33
+
+一般联动活动是有这个角色的才会有她的衣服
+
+*****
+
+####  杂灰  
+##### 6251#       发表于 2021-11-19 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53609055&amp;ptid=1570791" target="_blank">alialex 发表于 2021-11-19 14:33</a>
+一般联动活动是有这个角色的才会有她的衣服</blockquote>
+啊凹到现在都没实装，doa的服袋泳装也跟实装得那俩没关系，大流士只送飞机，小迷糊也没有送衣服，到现在为止只有dta和sw会送联动角色的衣服，作为论据还是不够充分吧
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

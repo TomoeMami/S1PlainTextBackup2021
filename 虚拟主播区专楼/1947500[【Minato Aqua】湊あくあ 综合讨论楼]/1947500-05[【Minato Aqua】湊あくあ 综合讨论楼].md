@@ -14795,3 +14795,26 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 要加的私信留我qq号这个频道邀请是QQ上邀请的
 
+
+
+*****
+
+####  Maonpuyo  
+##### 7198#       发表于 2021-11-19 14:24
+
+真的假的哦，主播摆烂一年多了都还有crew战天狗，双方互考记忆力和修史吗，都不知道哪来的热情<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我现在只想看阿夸什么时候直播没人看粉丝全部跑掉逐渐消亡
+
+*****
+
+####  Maonpuyo  
+##### 7199#       发表于 2021-11-19 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sekai2014  
+##### 7200#       发表于 2021-11-19 14:28
+
+有什么办法呢4
+
