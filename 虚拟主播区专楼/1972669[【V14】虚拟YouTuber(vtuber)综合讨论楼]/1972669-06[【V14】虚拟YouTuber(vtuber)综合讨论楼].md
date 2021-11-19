@@ -12905,3 +12905,15 @@ image.png
 えにから的えに原来是这意思。
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">そにから想要第二个海牛吗？
 
+
+
+*****
+
+####  winda  
+##### 8464#       发表于 2021-11-19 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602014&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-11-18 22:00</a>
+vspo怎么又要集体valorant
+syl 原来没任天堂的直播授权啊...</blockquote>
+beni终于要回归valo了么<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -7719,3 +7719,18 @@ E057FE5F-FE52-4566-BEDC-DC5F00AC8D2E.jpeg
 
 <img src="https://img.saraba1st.com/forum/202111/19/132421d72xm47k644o6myd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 56091#       发表于 2021-11-19 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53608155&amp;ptid=98922" target="_blank">仟音一心 发表于 2021-11-19 13:24</a>
+剧场版RED
+
+我猜是打红伯爵“孤高之红”巴洛里克·莱德菲尔德
+
+ パトリック・レッドフィールド </blockquote>
+三条伤疤，红发可能性更大
+

@@ -10867,3 +10867,12 @@ syl 南京的大学里的宿舍，阳台漏风，开空调只要关了就冷了�
 
 在厦门上学时候就感觉过南方冬天真不是人呆的地方，1，2月冻的要死<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 2682#       发表于 2021-11-19 14:22
+
+南方冬天还行啊 不开空调的，一般就烤火炉
+

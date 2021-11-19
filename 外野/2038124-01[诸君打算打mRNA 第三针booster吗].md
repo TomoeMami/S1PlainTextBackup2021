@@ -880,3 +880,15 @@ moderna的booster好像第三针只有半剂
 
 就是会困，都是在家睡一两天...
 
+
+
+*****
+
+####  kts1mg  
+##### 95#       发表于 2021-11-19 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604820&amp;ptid=2038124" target="_blank">coldhot3 发表于 2021-11-19 08:23</a>
+
+mrna疫苗不太会一年后还影响核酸的</blockquote>
+明年3月回国就三四个月了还是怕影响
+
