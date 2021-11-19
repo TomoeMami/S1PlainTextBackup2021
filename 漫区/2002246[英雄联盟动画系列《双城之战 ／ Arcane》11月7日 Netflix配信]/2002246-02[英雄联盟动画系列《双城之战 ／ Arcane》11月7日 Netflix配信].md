@@ -2070,3 +2070,41 @@ VI在游戏里面最大的问题是手感糟糕，类似定位的英雄手感都
 穿甲霞前段时间才刚韩服AD登顶来着，被紧急削了一波，也不至于连T4都不到吧。。杰斯现在削这么惨， ...</blockquote>
 你可以看看opgg，新版本第一天杰斯上单排名上升了30位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有优越感的人mk2  
+##### 1670#       发表于 2021-11-19 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611693&amp;ptid=2002246" target="_blank">号为熊 发表于 2021-11-19 17:41</a>
+
+以前青钢影可以打野的时候确实一度弄得皇子和蔚失业了，有人惦记到现在很正常
+
+前两天NGA突然把青钢影设计 ...</blockquote>
+萨勒芬妮严格来说应该是琴女的重做，因为琴女玩家不愿意所以就单独出一个了，个人的看法也是有一些很有特色的英雄重做了很可惜，比如亚托克斯
+
+*****
+
+####  号为熊  
+##### 1671#       发表于 2021-11-19 18:18
+
+ 本帖最后由 号为熊 于 2021-11-19 18:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53612219&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-11-19 18:09</a>
+
+萨勒芬妮严格来说应该是琴女的重做，因为琴女玩家不愿意所以就单独出一个了，个人的看法也是有一些很有特 ...</blockquote>
+按NGA某海外党说是外网经典阴谋论，原因是预览出来的时候琴女刚被砍过，琴女玩家觉得这个技能组不拿去做给琴女重做，拿去做新英雄开始酸了
+
+琴女作为一个辅助版的乌迪尔你把QWE三个光环集中到一个W上面然后这个W满级130耗蓝20+冷却时间，Q和E用妮蔻的QE糊弄过去，想想就知道节目效果不会比剑魔重做差——哦对了，剑魔重做刚出来的时候不少锐雯玩家和剑魔玩家抱怨说是设计师给他们重做了个大号锐雯出来，但我总觉得这个大号锐雯未免有点呆了，不过后来设计师强调重做英雄一定会尊重英雄原有特色，建议琴女玩家去找剑魔玩家打一架
+
+*****
+
+####  暗黑能乐  
+##### 1672#       发表于 2021-11-19 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53612051&amp;ptid=2002246" target="_blank">漫漫来 发表于 2021-11-19 18:00</a>
+你可以看看opgg，新版本第一天杰斯上单排名上升了30位</blockquote>
+胜率下降两个百分点，只剩40左右了
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
