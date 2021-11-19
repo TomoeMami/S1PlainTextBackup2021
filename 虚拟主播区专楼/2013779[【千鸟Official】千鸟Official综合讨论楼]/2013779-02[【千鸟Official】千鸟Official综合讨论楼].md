@@ -11231,3 +11231,14 @@ cnm这省略吓死我了
 张三从来都不是鸟p中的一员，下一句我忘了
 <img src="https://p.sda1.dev/3/56a4aa083b48932025ba2b69e54c6feb/44cd70c6ec97b805.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2720#       发表于 2021-11-20 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616788&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-19 23:25</a>
+阑尾炎不是微创手术吗，三天就被踢出医院那种，这人怎么全麻了</blockquote>
+她说她恢复的很慢，还有刀口
+
