@@ -846,3 +846,12 @@ mrna疫苗不太会一年后还影响核酸的
 看了下  除了一位仁兄打了modenra booster  其他都打的 辉瑞bnt 的booster</blockquote>
 我认识一个前两针moderna的，加强针也打moderna，打完第二天直接翻白眼摔地上了，吓得女朋友掐了半天人中<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Redis  
+##### 92#       发表于 2021-11-19 13:25
+
+moderna的booster好像第三针只有半剂
+

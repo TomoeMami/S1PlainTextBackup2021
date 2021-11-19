@@ -7220,3 +7220,24 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  D麦林  
+##### 660#       发表于 2021-11-19 13:15
+
+ 本帖最后由 D麦林 于 2021-11-19 13:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/19/131635lp9bhp0jh95f0tc4.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211117143527.png</strong> (175.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 13:16 上传
+
+说起来之前看到的这个
+
+猛然发现 原来小香菇和小不点的……狗设？还挺还原现实的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

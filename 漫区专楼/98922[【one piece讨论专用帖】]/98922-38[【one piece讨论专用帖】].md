@@ -7675,3 +7675,14 @@ king你……
 
 嚯,这刀还会吸查克拉的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 56089#       发表于 2021-11-19 13:17
+
+凯多家都是些什么啊，一看就不是啥正经恐龙……
+
+难怪杰克会说两位大哥，原来是这方面比不上啊
+
