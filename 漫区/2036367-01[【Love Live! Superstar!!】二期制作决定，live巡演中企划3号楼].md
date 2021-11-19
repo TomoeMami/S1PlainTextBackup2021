@@ -7360,3 +7360,62 @@ CFBE3D7A-659A-46B1-BE6C-BD8CF48EB2E7.jpeg
 
 他们要是知道就不会这样了，鱼b站三十多万粉，就算只有三百个人想玩这梗，也得刷三百多次。现在菜宝也有点被辣炒米粉这梗搞烦的样子。
 
+
+
+*****
+
+####  优妮可  
+##### 672#       发表于 2021-11-19 15:32
+
+<img src="https://img.saraba1st.com/forum/202111/19/153155mjq6lbcblnp0z0jn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211119_153029.jpg</strong> (49.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 15:31 上传
+
+这是那个杂志吗
+
+*****
+
+####  D麦林  
+##### 673#       发表于 2021-11-19 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53609753&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-19 15:32</a>
+
+这是那个杂志吗</blockquote>
+是的吧
+
+那还行 感觉对最近的鲤鱼来说算得露出度高了
+
+曲线也挺明显的（
+
+我宣布rtc可以开始buy了
+
+*****
+
+####  lj205  
+##### 674#       发表于 2021-11-19 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53609753&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-19 15:32</a>
+这是那个杂志吗</blockquote>
+买起来
+
+*****
+
+####  cybernetics31  
+##### 675#       发表于 2021-11-19 15:37
+
+便宜，管是不是，这睡衣<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">买买买
+
+*****
+
+####  安瓦尔阿明  
+##### 676#       发表于 2021-11-19 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53609753&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-19 15:32</a>
+
+这是那个杂志吗</blockquote>
+这杂志一般是这样，实体书上会放几页，同时会出这样一份电子版写真集，有几十页。看就完事了。
+

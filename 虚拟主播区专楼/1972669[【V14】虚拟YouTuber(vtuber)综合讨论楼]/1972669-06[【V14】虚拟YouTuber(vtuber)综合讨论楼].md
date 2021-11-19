@@ -12965,3 +12965,29 @@ Valo 这波热度该蹭的呀，csgo 的top1最近都在天天瓦，引流了一
 
 彩虹好活！
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8471#       发表于 2021-11-19 15:32
+
+好活是指你虹不声不响把大太子给卖了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/19/153115hxo0wqd77qodxiu4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>あれてかレーベルがユニバーサルミュージック名義じゃん.jpeg.jpeg</strong> (96.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 15:31 上传
+
+*****
+
+####  毛头小希  
+##### 8472#       发表于 2021-11-19 15:40
+
+彩虹好活！
+
+那种请个xx专家来摄影棚里整活的姑且不提，上次的无人岛这次的卡丁车开销都挺大的吧，这推的力度是真的猛
+
