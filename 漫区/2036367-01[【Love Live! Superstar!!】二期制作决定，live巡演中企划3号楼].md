@@ -7585,3 +7585,17 @@ FEjJ_6jaQAIGCXu.jfif
 
 有一说一，真的平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 692#       发表于 2021-11-19 19:56
+
+ 本帖最后由 黑雪姫 于 2021-11-19 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613526&amp;ptid=2036367" target="_blank">megapikachu 发表于 2021-11-19 19:20</a>
+你看的是什么谷？</blockquote>
+好像大部分都是，比如这个。
+
+<img src="https://p.sda1.dev/3/506d3faf0b577833cf5955f5e5ff6897/IMG_CMP_51679585.jpeg" referrerpolicy="no-referrer">
+

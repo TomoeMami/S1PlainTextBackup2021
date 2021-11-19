@@ -2214,3 +2214,29 @@ MMORPG这事居然是来真的？我以为口嗨一把就算了，现在MMORPG�
 
 只能说，拳头自己这些年办比赛赚的确实多，再加上有鹅厂当糖爹，现在拳头这帮人是有点烧钱玩梦想的意思在里面了，我想玩卡牌游戏，我想玩格斗游戏，我想玩mmo，我想做动画……所以我就做了，就这么简单
 
+
+
+*****
+
+####  古凌锋  
+##### 1681#       发表于 2021-11-19 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611221&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-19 17:18</a>
+
+如今这个版本，路人局里金克斯、蔚、女警不都是自己给自己找罪受
+
+蔚去打野会玩还好点，金克斯和女警就是 ...</blockquote>
+前几个月金克斯不是挺强的？
+
+*****
+
+####  Siran_China  
+##### 1682#       发表于 2021-11-19 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53612219&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-11-19 18:09</a>
+
+萨勒芬妮严格来说应该是琴女的重做，因为琴女玩家不愿意所以就单独出一个了，个人的看法也是有一些很有特 ...</blockquote>
+还有比新剑魔更有特色的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然我说的不是游戏性，而是： <blockquote>暮光星灵！你！该！！死！！！ 啊！！！！
+
+来！让我杀你，一千遍，也不够！！！！</blockquote>
+

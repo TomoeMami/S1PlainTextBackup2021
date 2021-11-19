@@ -4074,3 +4074,15 @@ SKIP（T头西服身男性）
 
 伪阶龙马稳了，放技能会遮挡，全程不说话
 
+
+
+*****
+
+####  シャル  
+##### 84356#       发表于 2021-11-19 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611268&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-19 17:20</a>
+
+伪阶龙马稳了，放技能会遮挡，全程不说话</blockquote>
+不是阿国特攻嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
