@@ -2468,3 +2468,16 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 
 从征服者联盟变成致命节奏联盟罢了
 
+
+
+*****
+
+####  亚可（本人）  
+##### 1701#       发表于 2021-11-20 01:41
+
+顺便一提，狼头现在也很猛
+人马波比艾克改带狼头了，病友局各种泥头车人马四处乱创，各种一脚爆杀
+感觉致命节奏灵性猎手两兄弟马上就要享受拳式平衡了（指砍废<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
