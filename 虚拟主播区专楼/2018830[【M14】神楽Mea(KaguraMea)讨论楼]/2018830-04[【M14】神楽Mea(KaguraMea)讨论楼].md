@@ -7027,3 +7027,25 @@ syl  没说，现在都没说时间怕不是突击直接开了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朝颜  
+##### 5315#       发表于 2021-11-19 19:02
+
+ 本帖最后由 朝颜 于 2021-11-19 19:05 编辑 
+
+猫党真不行<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+顺便一提这个广告词有股“从天而降的美少女”的那种概视感
+
+*****
+
+####  时间在我手中  
+##### 5316#       发表于 2021-11-19 19:07
+
+感觉今晚也没了，这周说实话跟没播区别也不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等这肥婆发生日短袖带着我的新玩具再拍一次合影得了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
