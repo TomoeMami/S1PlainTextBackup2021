@@ -7768,3 +7768,50 @@ FEjJ_6jaQAIGCXu.jfif
 
 看了后更希望鲤鱼能出V家曲风的歌和MV了，带电音的那种
 
+
+
+*****
+
+####  Norkey1  
+##### 707#       发表于 2021-11-19 22:30
+
+不出所料出现了啊…直接在鲤鱼本人动态骂这么难听。口水巾好歹可以踩下去，这种类型的立场有天然的正义性，根本踩不下去才是真正影响观感的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+所以我才说“适当温和的敲打”是必要的…
+
+28EE4740-EF1C-474E-96A4-79E87710422C.jpeg
+(282.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/222517toi2alzocxcebdir.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 708#       发表于 2021-11-19 22:39
+
+<img src="https://img.saraba1st.com/forum/202111/19/223920q188r4nknqikkp1r.png" referrerpolicy="no-referrer">
+
+<strong>也不要太责备他了.png</strong> (148.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 22:39 上传
+
+深夜脑洞P图
+
+*****
+
+####  D麦林  
+##### 709#       发表于 2021-11-19 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616060&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-11-19 22:30</a>
+
+不出所料出现了啊…直接在鲤鱼本人动态骂这么难听。口水巾好歹可以踩下去，这种类型的立场有天然的正义性， ...</blockquote>
+要是温和敲打有用梗小鬼就不叫梗小鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+嘛我姑且相信他们还有基本的自知之明 再来个几次让他们知道自己不受欢迎 应该就会自知没趣撤了吧
+

@@ -2420,3 +2420,28 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 
 明天几点更新来着？九点？
 
+
+
+*****
+
+####  theti  
+##### 1697#       发表于 2021-11-19 22:28
+
+<blockquote>伊森温特斯 发表于 2021-11-19 22:16
+明天几点更新来着？九点？</blockquote>
+下午4点
+
+*****
+
+####  Siran_China  
+##### 1698#       发表于 2021-11-19 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53615727&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-19 22:01</a>
+
+的确，这三年都只玩大乱斗和看比赛了
+
+最近的心得是女警是下水道里的下水道，我宁愿骰子换个艾翁整活都不选 ...</blockquote>
+致命节奏强到离谱，你能想象一级对砍，对面带致命节奏的近战英雄砍着砍着就+90%攻速吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反倒是一直被认为很op的先攻最终强度不大
+
