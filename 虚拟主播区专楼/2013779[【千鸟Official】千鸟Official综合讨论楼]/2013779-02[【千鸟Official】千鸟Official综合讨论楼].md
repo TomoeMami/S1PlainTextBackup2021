@@ -11150,3 +11150,24 @@ cnm这省略吓死我了
 
 静，人生有梦各自精彩，等我回来看你你一定会是千舰大v了吧😭😭😭
 
+
+
+*****
+
+####  小憨1  
+##### 2711#       发表于 2021-11-19 22:41
+
+原来是阑尾炎……那确实需要住几天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/f8a0040cec987dbeca04b6e32970618d/IMG_20211119_224144.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tn_teana  
+##### 2712#       发表于 2021-11-19 22:42
+
+<img src="https://p.sda1.dev/3/a0bb9be3a0ebb09a1923b1d74e166ace/IMG_CMP_267274548.jpeg" referrerpolicy="no-referrer">
+
+啊这
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

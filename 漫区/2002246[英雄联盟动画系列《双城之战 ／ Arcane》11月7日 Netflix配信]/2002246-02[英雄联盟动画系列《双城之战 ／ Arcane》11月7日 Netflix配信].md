@@ -2445,3 +2445,26 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 
 反倒是一直被认为很op的先攻最终强度不大
 
+
+
+*****
+
+####  镜面の云  
+##### 1699#       发表于 2021-11-19 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616145&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-19 22:38</a>
+
+致命节奏强到离谱，你能想象一级对砍，对面带致命节奏的近战英雄砍着砍着就+90%攻速吗
+
+反倒是一直 ...</blockquote>
+看了下是很夸张，感觉迟早要削
+
+说不定下周就热补丁削了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  theti  
+##### 1700#       发表于 2021-11-19 22:45
+
+从征服者联盟变成致命节奏联盟罢了
+

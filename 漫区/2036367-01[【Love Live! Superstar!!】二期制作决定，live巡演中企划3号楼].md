@@ -7815,3 +7815,82 @@ FEjJ_6jaQAIGCXu.jfif
 
 嘛我姑且相信他们还有基本的自知之明 再来个几次让他们知道自己不受欢迎 应该就会自知没趣撤了吧
 
+
+
+*****
+
+####  lj205  
+##### 710#       发表于 2021-11-19 22:52
+
+这有什么踩的？你不骂难听点他们永远不觉得自己错，看看下面说梗警察的，这些人说白就是没家教不分场合
+
+*****
+
+####  Norkey1  
+##### 711#       发表于 2021-11-19 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616184&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-19 22:41</a>
+要是温和敲打有用梗小鬼就不叫梗小鬼了
+
+嘛我姑且相信他们还有基本的自知之明 再来个几次让他们知 ...</blockquote>
+鉴于星团出圈程度，直接把所有刷的人都打成小鬼并不明智，还是有萌二的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+退一步说，实在不爽建议私信，在本人下面这样骂人死实在是…观感甚至没有口水巾好
+
+*****
+
+####  优妮可  
+##### 712#       发表于 2021-11-19 22:54
+
+<blockquote>Norkey1 发表于 2021-11-19 22:30
+不出所料出现了啊…直接在鲤鱼本人动态骂这么难听。口水巾好歹可以踩下去，这种类型的立场有天然的正义性， ...</blockquote>
+你可以翻翻之前的动态，有温和的劝过的，没啥用。而且mv下面照样有刷的。明后天开live得发动态又是一阵风雨。
+
+*****
+
+####  D麦林  
+##### 713#       发表于 2021-11-19 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616336&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-11-19 22:54</a>
+鉴于星团出圈程度，直接把所有刷的人都打成小鬼并不明智，还是有萌二的
+退一步说，实在不爽建议私 ...</blockquote>
+这事都车过多少次了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+现在还在刷的不是小鬼还什么是小鬼
+
+*****
+
+####  Norkey1  
+##### 714#       发表于 2021-11-19 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616306&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-19 22:52</a>
+这有什么踩的？你不骂难听点他们永远不觉得自己错，看看下面说梗警察的，这些人说白就是没家教不分场合 ...</blockquote>
+支持私信对骂<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 715#       发表于 2021-11-19 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616360&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-19 22:56</a>
+这事都车过多少次了
+现在还在刷的不是小鬼还什么是小鬼</blockquote>
+入坑时间未知，就难以判定了。
+
+*****
+
+####  chenflyyy  
+##### 716#       发表于 2021-11-19 23:01
+
+ 本帖最后由 chenflyyy 于 2021-11-19 23:02 编辑 
+
+出警梗小鬼很容易被出警而形成套娃的，这样的评论区也不会多好看，梗小鬼是真的很难治<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+我选择是点踩然后拉黑，但最近发现黑名单到上限了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 717#       发表于 2021-11-19 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616339&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-19 22:54</a>
+你可以翻翻之前的动态，有温和的劝过的，没啥用。而且mv下面照样有刷的。明后天开live得发动态又是一阵风 ...</blockquote>
+既然温和和问候亲人都不可避免这类现象，那还是在 公共动态 温和劝告给人观感来的好一些<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
