@@ -11187,3 +11187,19 @@ cnm这省略吓死我了
 
 说是阑尾炎，其实是噶牛子<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2715#       发表于 2021-11-19 23:25
+
+阑尾炎不是微创手术吗，三天就被踢出医院那种，这人怎么全麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2716#       发表于 2021-11-19 23:32
+
+这娘们平时不吃少吃碳水,直播熬夜,10月就没几次不带鼻音直播.爱吃炸鸡,免疫力看着就一塌糊涂.阑尾出问题太正常了.
+
