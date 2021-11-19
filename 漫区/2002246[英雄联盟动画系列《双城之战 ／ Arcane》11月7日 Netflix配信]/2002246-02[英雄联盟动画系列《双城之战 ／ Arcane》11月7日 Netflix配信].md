@@ -2314,3 +2314,51 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  号为熊  
+##### 1689#       发表于 2021-11-19 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614454&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-19 20:24</a>
+
+轮椅妹啊，再怎么说也是个高配琴女</blockquote>
+别搁这云了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">路人局我琴辅助位胜率第一，岂是辅助位胜率倒数第三的英雄可以随便碰瓷的？
+
+<img src="https://img.saraba1st.com/forum/202111/19/211226eutq30s66svvt66y.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (13.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/211143yr3yrsys91oyplo3.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (14.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 21:11 上传
+
+*****
+
+####  ammk  
+##### 1690#       发表于 2021-11-19 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614708&amp;ptid=2002246" target="_blank">三个尻枪手 发表于 2021-11-19 20:41</a>
+
+风女是皮城的</blockquote>
+是祖安的信仰神
+
+*****
+
+####  阿刚  
+##### 1691#       发表于 2021-11-19 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53615149&amp;ptid=2002246" target="_blank">号为熊 发表于 2021-11-19 21:12</a>
+
+别搁这云了路人局我琴辅助位胜率第一，岂是辅助位胜率倒数第三的英雄可以随便碰瓷的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不是好歹能用，琴女高配也是当时出来炎上的梗啊
+
