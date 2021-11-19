@@ -7686,3 +7686,36 @@ king你……
 
 难怪杰克会说两位大哥，原来是这方面比不上啊
 
+
+
+*****
+
+####  仟音一心  
+##### 56090#       发表于 2021-11-19 13:24
+
+剧场版RED
+
+我猜是打红伯爵“孤高之红”巴洛里克·莱德菲尔德
+
+ パトリック・レッドフィールド 
+
+Patrick·Redfield
+
+E057FE5F-FE52-4566-BEDC-DC5F00AC8D2E.jpeg
+(117.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 13:24 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/132421qpvs3ht4vcgmts2b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1BDE1458-A0FE-48D9-9FE4-6BC0B020A44B.jpeg
+(182.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 13:24 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/132421d72xm47k644o6myd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
