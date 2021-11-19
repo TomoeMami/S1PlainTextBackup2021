@@ -13017,3 +13017,19 @@ Valo 这波热度该蹭的呀，csgo 的top1最近都在天天瓦，引流了一
 お見逃しなく！
 #まひまひ3D　#にじさんじ3Dお披露目 
 
+
+
+*****
+
+####  Lucy_Diamonds  
+##### 8475#       发表于 2021-11-19 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53609381&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-11-19 15:00</a>
+
+Valo 这波热度该蹭的呀，csgo 的top1最近都在天天瓦，引流了一大堆人过去，瓦能抓住这段csgoMajor后的空窗 ...</blockquote>
+大家都想蹭热度
+
+八云beni来了
+
+我就这表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

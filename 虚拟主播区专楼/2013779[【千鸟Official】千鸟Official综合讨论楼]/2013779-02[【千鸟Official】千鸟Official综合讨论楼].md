@@ -10913,3 +10913,15 @@ syl 南京的大学里的宿舍，阳台漏风，开空调只要关了就冷了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烧炭得开窗，电炉费电。不过coco没有秋裤我是真的没想到的
 
+
+
+*****
+
+####  rgauss  
+##### 2687#       发表于 2021-11-19 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53610489&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-19 16:30</a>
+
+一个要烟囱独门独户才能用，一个插上电就行这差别老大了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烤火炉也可以烧天然气啊 我亲戚过冬用的这个
+

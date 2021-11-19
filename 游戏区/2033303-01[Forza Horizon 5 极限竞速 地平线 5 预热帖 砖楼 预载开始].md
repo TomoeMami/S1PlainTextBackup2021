@@ -13864,3 +13864,17 @@ lod修复，起码在火山口不是一片糊了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挑战赛再不快点改怕不是第一季就清不掉全任务了 都跑去点车技能了
 
+
+
+*****
+
+####  鹿斗典善  
+##### 1262#       发表于 2021-11-19 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603859&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-19 01:14</a>
+
+这周周常那个eventlab相关的任务四要干啥啊？偏偏这个没翻译。。</blockquote>
+直走不就行了
+
+图标巨汉，标题苦行，结果就图个乐，挺好的
+
