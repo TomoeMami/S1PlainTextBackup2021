@@ -835,3 +835,14 @@ mrna疫苗不太会一年后还影响核酸的
 害 这不是下周就假期了吗 不得出去溜溜</blockquote>
 小伙子啊，你在红州这个天天也没少暴露啊，IgG N蛋白测过吗？
 
+
+
+*****
+
+####  a9okalypse  
+##### 91#       发表于 2021-11-19 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606726&amp;ptid=2038124" target="_blank">烦死了 发表于 2021-11-19 10:55</a>
+看了下  除了一位仁兄打了modenra booster  其他都打的 辉瑞bnt 的booster</blockquote>
+我认识一个前两针moderna的，加强针也打moderna，打完第二天直接翻白眼摔地上了，吓得女朋友掐了半天人中<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
