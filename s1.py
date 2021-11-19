@@ -174,8 +174,8 @@ async def UpdateThread(threaddict,semaphore):
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles
             else:
                 filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
-            mkdir(rootdir+'已归档/')
-            filedir_des =rootdir+'已归档/'+thdata[threaddict['id']]['category']+'/'
+            mkdir(rootdir+'Archived/')
+            filedir_des =rootdir+'Archived/'+thdata[threaddict['id']]['category']+'/'
             mkdir(filedir_des)
             shutil.move(filedir_src,filedir_des)
         elif(totalpage >= lastpage):
