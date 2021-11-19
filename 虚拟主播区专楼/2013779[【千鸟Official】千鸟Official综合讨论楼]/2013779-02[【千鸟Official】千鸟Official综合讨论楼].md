@@ -10925,3 +10925,12 @@ syl 南京的大学里的宿舍，阳台漏风，开空调只要关了就冷了�
 一个要烟囱独门独户才能用，一个插上电就行这差别老大了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烤火炉也可以烧天然气啊 我亲戚过冬用的这个
 
+
+
+*****
+
+####  小憨1  
+##### 2688#       发表于 2021-11-19 17:39
+
+做成壁纸了，文静真可爱啊真可爱啊真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

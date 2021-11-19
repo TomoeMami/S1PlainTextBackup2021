@@ -2009,3 +2009,43 @@ VI在游戏里面最大的问题是手感糟糕，类似定位的英雄手感都
 穿甲霞前段时间才刚韩服AD登顶来着，被紧急削了一波，也不至于连T4都不到吧。。杰斯现在削这么惨， ...</blockquote>
 整个s11的装备体系跟霞完全不兼容啊，看新赛季如何吧
 
+
+
+*****
+
+####  号为熊  
+##### 1667#       发表于 2021-11-19 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606036&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-19 10:11</a>
+
+不同位置也能硬比的吗。。。我建议再对比一下纳尔，打团还得控怒气，上去可能还会拍空，一套也弄不死还得靠 ...</blockquote>
+以前青钢影可以打野的时候确实一度弄得皇子和蔚失业了，有人惦记到现在很正常
+
+前两天NGA突然把青钢影设计师Jeevun Sihdu被开除的过时新闻翻出来炒，一群人在那里复读卡莎和萨勒芬妮是薇恩和娑娜的上位替代，吓得我赶紧去查数据
+
+<img src="https://img.saraba1st.com/forum/202111/19/173542f0l4958vy4048g1v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>网页捕获_19-11-2021_173448_u.gg.jpeg</strong> (211.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 17:35 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/19/173542fyb5050ssym0x00m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>网页捕获_19-11-2021_173357_u.gg.jpeg</strong> (361.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 17:35 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+听说最近新出的11.23数据里两组差距能更夸张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+像这种老英雄人柱力玩家永远只能记住某个机制看起来和自己专精很相似的新英雄强势的时候是怎么挤压出场空间的，等到过一段时间因为版本变化两极反转后这些人就要装不知道了
+
+不过有设计师表示他认为蔚的玩法和青钢影确实重叠的较多，计划进行玩法更新，到时候再看看吧
+
