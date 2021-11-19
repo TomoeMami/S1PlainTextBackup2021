@@ -13993,3 +13993,19 @@ lod修复，起码在火山口不是一片糊了
 
 俱乐部才100多人 能排100不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冀人燕南天  
+##### 1273#       发表于 2021-11-20 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613676&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-19 19:28</a>
+
+名人堂挤进前五百了，我也是肝帝了。
+
+俱乐部跌出百名，坛友们要知耻
+
+ ...</blockquote>
+俱乐部到底有啥用啊
+
