@@ -2397,3 +2397,17 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 
 —— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  镜面の云  
+##### 1695#       发表于 2021-11-19 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53615386&amp;ptid=2002246" target="_blank">Yourselfine 发表于 2021-11-19 21:31</a>
+
+透漏出你最近没玩游戏了不是 女警和jinx现版本前五名 t2级别 t1就俩</blockquote>
+的确，这三年都只玩大乱斗和看比赛了
+
+最近的心得是女警是下水道里的下水道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7731,3 +7731,31 @@ FEjJ_6jaQAIGCXu.jfif
 我觉得造型挺好的，除了把B杯变A杯
 要是跳舞就好了
 
+
+
+*****
+
+####  cat1230  
+##### 703#       发表于 2021-11-19 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613808&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-11-19 19:38</a>
+
+有一说一，真的平</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">属于细分领域，精准定位特定粉丝群体。
+
+我觉得咋不整些中性风格的MV，小西装之类的吸引点女粉，本身好想1巡里女粉增长喜人？
+
+*****
+
+####  iuhehc  
+##### 704#       发表于 2021-11-19 21:58
+
+作曲是teddyloid啊？！
+
+*****
+
+####  cybernetics31  
+##### 705#       发表于 2021-11-19 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面mv 还有呢，不急
+
