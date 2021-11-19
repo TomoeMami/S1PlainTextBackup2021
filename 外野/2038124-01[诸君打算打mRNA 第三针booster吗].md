@@ -731,3 +731,17 @@ booster也有科兴内个效果？<img src="https://static.saraba1st.com/image/s
 不打，明年回国怕做核酸检测出问题</blockquote>
 mrna疫苗不太会一年后还影响核酸的
 
+
+
+*****
+
+####  cxn  
+##### 82#       发表于 2021-11-19 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592307&amp;ptid=2038124" target="_blank">JollytheJoker 发表于 2021-11-18 10:58</a>
+
+暂时不打。
+
+我这里托儿所现在的流行病是手足口，德尔塔还没一个。</blockquote>
+等有了再打不就来不及了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
