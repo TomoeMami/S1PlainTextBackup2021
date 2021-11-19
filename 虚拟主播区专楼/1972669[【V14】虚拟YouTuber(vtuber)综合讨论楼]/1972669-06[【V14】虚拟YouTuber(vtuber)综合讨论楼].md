@@ -12895,3 +12895,13 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202111/19/131129h8strmcr33c2t6gb.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 8463#       发表于 2021-11-19 13:59
+
+えにから的えに原来是这意思。
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">そにから想要第二个海牛吗？
+

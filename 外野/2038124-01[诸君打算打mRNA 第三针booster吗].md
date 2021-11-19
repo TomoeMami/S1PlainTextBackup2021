@@ -866,3 +866,17 @@ moderna的booster好像第三针只有半剂
 我打的一针康希诺 这个有第二针加强么？</blockquote>
 我记得看新闻说到腺病毒疫苗也有加强针打
 
+
+
+*****
+
+####  phorcys02  
+##### 94#       发表于 2021-11-19 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597526&amp;ptid=2038124" target="_blank">Tr火药味 发表于 2021-11-18 16:37</a>
+
+三针科兴了。没有任何反应。</blockquote>
+我打了三针科兴，每次打完别的没啥
+
+就是会困，都是在家睡一两天...
+
