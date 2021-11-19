@@ -7956,3 +7956,12 @@ FEjJ_6jaQAIGCXu.jfif
 
 下面那个评论还说鲤鱼是玩梗大王，说白还是没认清自己错在哪。就这受不了了啊？那鲤鱼好不容易每次发动态开直播，满屏全是这些东西就受得了？
 
+
+
+*****
+
+####  稀勢のささ  
+##### 724#       发表于 2021-11-20 00:10
+
+鲤鱼姐这mv的红色小背心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 微妙
+
