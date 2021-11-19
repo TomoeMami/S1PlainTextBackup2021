@@ -7327,3 +7327,36 @@ CFBE3D7A-659A-46B1-BE6C-BD8CF48EB2E7.jpeg
 
 今晚又得在评论区想个好点的热评，不然又是一堆口水巾了。
 
+
+
+*****
+
+####  chenflyyy  
+##### 668#       发表于 2021-11-19 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53609036&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-19 14:32</a>
+大阪是今天开始吗？</blockquote>
+明天
+
+*****
+
+####  lj205  
+##### 669#       发表于 2021-11-19 14:46
+
+现在去破站我都把口水巾踩一遍<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 670#       发表于 2021-11-19 14:51
+
+鲤鱼现在有些动态都不发B站了，梗小鬼该想想为什么<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+微博更了昨天探店的新图<img src="https://p.sda1.dev/3/e280f1cdc0222d3986f0f9db7c66fde8/IMG_CMP_205115282.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 671#       发表于 2021-11-19 15:02
+
+他们要是知道就不会这样了，鱼b站三十多万粉，就算只有三百个人想玩这梗，也得刷三百多次。现在菜宝也有点被辣炒米粉这梗搞烦的样子。
+
