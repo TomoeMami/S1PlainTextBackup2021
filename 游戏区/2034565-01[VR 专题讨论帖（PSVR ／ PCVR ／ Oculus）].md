@@ -2444,3 +2444,19 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202111/19/091845eyb1q3b69pfq3fpg.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vf503  
+##### 155#       发表于 2021-11-19 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53599112&amp;ptid=2034565" target="_blank">伊莉伊莉雅 发表于 2021-11-18 18:45</a>
+
+观影没啥问题，画面算是vajor以外最强的vr头显。
+
+面罩有问题，导致画面不能显示完全。
+
+主玩游戏的话目前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我一直觉得头显是个不错的应用  不过好像没什么人关注。。。 
+
