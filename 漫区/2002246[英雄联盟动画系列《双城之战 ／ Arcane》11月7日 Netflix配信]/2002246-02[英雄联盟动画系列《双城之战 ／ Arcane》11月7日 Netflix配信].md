@@ -2362,3 +2362,38 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 别搁这云了路人局我琴辅助位胜率第一，岂是辅助位胜率倒数第三的英雄可以随便碰瓷的？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不是好歹能用，琴女高配也是当时出来炎上的梗啊
 
+
+
+*****
+
+####  Yourselfine  
+##### 1692#       发表于 2021-11-19 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611221&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-19 17:18</a>
+ 如今这个版本，路人局里金克斯、蔚、女警不都是自己给自己找罪受 蔚去打野会玩还好点，金克斯和女警就是 ...</blockquote>
+透漏出你最近没玩游戏了不是 女警和jinx现版本前五名 t2级别 t1就俩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  号为熊  
+##### 1693#       发表于 2021-11-19 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53615286&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-19 21:23</a>
+
+这不是好歹能用，琴女高配也是当时出来炎上的梗啊</blockquote>
+因为这两个英雄我都玩（虽然熟练度不高）所以我很清楚带这个节奏的大概率是云玩家，所以特别反感有人玩这个梗。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且47.6%的胜率在路人局里面基本算是顶级下水道的那批了，如果还不加强只能说明这玩意不是给统计对象所处的分段玩的。更恐怖的是我记得msi以后这玩意就一直是这个胜率水平，中间加强了两次都没抬回来，琴女都起飞了“高配琴女”没有不起飞的理由不是吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚可（本人）  
+##### 1694#       发表于 2021-11-19 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53615386&amp;ptid=2002246" target="_blank">Yourselfine 发表于 2021-11-19 21:31</a>
+透漏出你最近没玩游戏了不是 女警和jinx现版本前五名 t2级别 t1就俩</blockquote>
+主要是能带新致命节奏的都上T2了
+狼人剑圣在韩服都爬上来，除了唯一受害者梦魇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
