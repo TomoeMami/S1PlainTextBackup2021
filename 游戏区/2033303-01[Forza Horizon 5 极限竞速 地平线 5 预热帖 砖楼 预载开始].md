@@ -13959,3 +13959,28 @@ lod修复，起码在火山口不是一片糊了
 
 自从发现ai都是贴线高速过弯之后对ai对战失去了兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liyropen  
+##### 1270#       发表于 2021-11-19 23:09
+
+还是劲敌刷圈叹涂装好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  铅笔  
+##### 1271#       发表于 2021-11-19 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614905&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-19 20:57</a>
+
+对赞赏提不起劲，能把吃鸡以外的成就都做掉估计就是极限了
+
+目前街机感觉就破坏主题最好做，2次撞娃娃1次破 ...</blockquote>
+漂移太难了，搞个车上手起码要练三四个小时，同样的车子调教不同，甩尾操作完全不一样。
+
+有的车子随便打一下方向就转圈，有的要先点刹车后马上踩油门，有的油门一松一紧就开始飘了，飘起来之后控制也是乱七八糟的，再加上车子多，根本耐不住心思练技术，随便玩玩得了。
+

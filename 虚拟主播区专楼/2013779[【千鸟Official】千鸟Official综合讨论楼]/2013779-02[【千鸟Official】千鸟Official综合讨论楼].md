@@ -11171,3 +11171,19 @@ cnm这省略吓死我了
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  IDIDIDID  
+##### 2713#       发表于 2021-11-19 23:11
+
+割下来的阑尾直播间抽了
+
+*****
+
+####  夜潇箫  
+##### 2714#       发表于 2021-11-19 23:18
+
+说是阑尾炎，其实是噶牛子<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -7894,3 +7894,43 @@ FEjJ_6jaQAIGCXu.jfif
 你可以翻翻之前的动态，有温和的劝过的，没啥用。而且mv下面照样有刷的。明后天开live得发动态又是一阵风 ...</blockquote>
 既然温和和问候亲人都不可避免这类现象，那还是在 公共动态 温和劝告给人观感来的好一些<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 718#       发表于 2021-11-19 23:10
+
+温和这么多次都没改变那不如直接骂，有啥不好的？要是新人过来刚好看到，也能马上知道这就是个烂梗避免被误伤。
+
+*****
+
+####  kimibsb  
+##### 719#       发表于 2021-11-19 23:18
+
+发现我入坑LL企划以来每次靠直觉推的纸片人后来都是人气偏低一点的
+缪推花 水推露 星推千
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 720#       发表于 2021-11-19 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616693&amp;ptid=2036367" target="_blank">kimibsb 发表于 2021-11-19 23:18</a>
+发现我入坑LL企划以来每次靠直觉推的纸片人后来都是人气偏低一点的
+缪推花 水推露 星推千
+ ...</blockquote>
+千还好，中之人nako 也可爱，恋就。。。。。。
+
+
+
+*****
+
+####  Norkey1  
+##### 721#       发表于 2021-11-19 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53616579&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-19 23:10</a>
+温和这么多次都没改变那不如直接骂，有啥不好的？要是新人过来刚好看到，也能马上知道这就是个烂梗避免被误 ...</blockquote>
+哥们，冷静点。对纯新人来说温和和暴躁都能起到“烂梗提示”作用，骂太难听会把人吓跑。反对的是在本人动态下骂，正如上面那位说的该刷还是刷，这种在公共场合嘴臭“正义发言”真的很难看，而且毫无用处…<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
