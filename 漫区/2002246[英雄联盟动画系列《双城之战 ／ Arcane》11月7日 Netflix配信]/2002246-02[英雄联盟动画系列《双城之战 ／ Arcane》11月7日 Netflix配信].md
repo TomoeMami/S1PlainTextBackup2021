@@ -1719,3 +1719,68 @@ vi能不能认真加强下啊</blockquote>
 最重要的输出控制位移技能还要先减速自己</blockquote>
 额，破败王也减速自己啊。。
 
+
+
+*****
+
+####  暗黑能乐  
+##### 1636#       发表于 2021-11-19 11:10
+
+你们不能只看单体，很多都是讲配合的，蔚的配合就是简单粗暴，多段控制而且大招是指向性，2V2可以直接单秒一个，纯看后期，纯看单挑自然比不过，但是石头人为什么到现在也能是上单混分巨兽呢，因为人家就是简单粗暴的大招怼你脸上好配合人啊。。
+
+*****
+
+####  有优越感的人mk2  
+##### 1637#       发表于 2021-11-19 11:16
+
+VI在游戏里面最大的问题是手感糟糕，类似定位的英雄手感都很好，光这一点她就很难有人玩，技能要不要重做不好说，但是模型肯定是要重做一下
+
+*****
+
+####  暗黑能乐  
+##### 1638#       发表于 2021-11-19 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">给我把E的CD给下调一下就好，要求不高，现在一级充能 太慢了，清野速度着实不太行
+
+*****
+
+####  亚可（本人）  
+##### 1639#       发表于 2021-11-19 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606882&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-19 11:05</a>
+额，破败王也减速自己啊。。不如说这种蓄力技能基本都自带减速吧</blockquote>
+但是破败王有加速和伪装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古凌锋  
+##### 1640#       发表于 2021-11-19 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53601434&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-18 21:17</a>
+
+哈哈哈
+
+破败王小丑程度已经超越100%</blockquote>
+真就小丑皇啊
+
+*****
+
+####  厄神之息  
+##### 1641#       发表于 2021-11-19 11:20
+
+大招控自己这个根本不叫事，亚索也大招也控自己，大家照样玩亚索，看见虚线就接大。蚂蚱大招也控自己，也经常被当强点控拿出来康人，蔚的大招主要是距离近，发动慢，伤害还低。其实最主要的点还是发动慢，要是瞄准人以后直接箭步冲过去击飞击落这技能就好很多。
+
+*****
+
+####  暗黑能乐  
+##### 1642#       发表于 2021-11-19 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53607107&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-19 11:19</a>
+
+但是破败王有加速和伪装
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得赶紧把破败王的伪装CD砍一砍了
+

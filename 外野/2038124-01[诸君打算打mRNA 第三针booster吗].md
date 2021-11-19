@@ -824,3 +824,14 @@ mrna疫苗不太会一年后还影响核酸的
 
 我打的一针康希诺 这个有第二针加强么？
 
+
+
+*****
+
+####  JollytheJoker  
+##### 90#       发表于 2021-11-19 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606767&amp;ptid=2038124" target="_blank">烦死了 发表于 2021-11-19 10:58</a>
+害 这不是下周就假期了吗 不得出去溜溜</blockquote>
+小伙子啊，你在红州这个天天也没少暴露啊，IgG N蛋白测过吗？
+
