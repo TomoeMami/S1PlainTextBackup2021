@@ -7760,3 +7760,12 @@ op世界观人造味挺重的
 
 凯多一伙都是尼玛谐星，应该都交给山治打
 
+
+
+*****
+
+####  saturnus  
+##### 56094#       发表于 2021-11-19 19:26
+
+剧场版监督是谷口耶，至少比漫画令人期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

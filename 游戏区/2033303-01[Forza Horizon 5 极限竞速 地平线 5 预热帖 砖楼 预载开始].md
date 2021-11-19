@@ -13889,3 +13889,13 @@ lod修复，起码在火山口不是一片糊了
 圆满,反正季节赛的一些弱智项目是不去打了</blockquote>
 有两辆车得等后面季节赛才能拿吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">如果是拍卖场整的话有可能一块被封号
 
+
+
+*****
+
+####  天神十三煞  
+##### 1264#         楼主| 发表于 2021-11-19 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">名人堂挤进前五百了，我也是肝帝了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">俱乐部跌出百名，坛友们要知耻
+
