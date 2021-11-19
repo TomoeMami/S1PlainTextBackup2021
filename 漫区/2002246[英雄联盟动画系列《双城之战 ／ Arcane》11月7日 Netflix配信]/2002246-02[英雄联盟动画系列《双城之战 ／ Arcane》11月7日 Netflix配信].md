@@ -2240,3 +2240,40 @@ MMORPG这事居然是来真的？我以为口嗨一把就算了，现在MMORPG�
 
 来！让我杀你，一千遍，也不够！！！！</blockquote>
 
+
+
+*****
+
+####  亚可（本人）  
+##### 1683#       发表于 2021-11-19 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611693&amp;ptid=2002246" target="_blank">号为熊 发表于 2021-11-19 17:41</a>
+以前青钢影可以打野的时候确实一度弄得皇子和蔚失业了，有人惦记到现在很正常
+
+前两天NGA突然把青钢影设计 ...</blockquote>
+VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给她送头送起来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+卡莎MSI后就萎了吧
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  亚可（本人）  
+##### 1684#       发表于 2021-11-19 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611021&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-19 17:06</a>
+纯皮城对纯祖安胜率怎么样，不过祖安英雄太特么多了，凑两队都够了 ...</blockquote>
+皮城好像没辅助吧？
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  筱原重工  
+##### 1685#       发表于 2021-11-19 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613998&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-19 19:51</a>
+
+还有比新剑魔更有特色的吗当然我说的不是游戏性，而是：</blockquote>
+嗯，你好，我是收枚科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

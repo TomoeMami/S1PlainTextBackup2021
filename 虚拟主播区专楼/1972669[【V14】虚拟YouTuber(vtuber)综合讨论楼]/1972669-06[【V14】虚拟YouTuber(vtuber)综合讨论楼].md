@@ -13131,3 +13131,47 @@ https://youtu.be/LMTmboEANqQ
 
 不太行。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8487#       发表于 2021-11-19 20:04
+
+什么花谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 8488#       发表于 2021-11-19 20:04
+
+ 本帖最后由 alcoholic1000 于 2021-11-19 20:18 编辑 
+
+<img src="https://img.saraba1st.com/forum/202111/19/200450q2olnw08wbbn58b6.png" referrerpolicy="no-referrer">
+
+<strong>【３Dお披露目】・・・おや？ハジメの　ようすが・・・！　#ハジメの寄席【にし.png</strong> (100.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 20:04 上传
+
+开幕落语 <blockquote>死神は大体40分かかるぞ
+
+……え？
+
+嘘だろ…？</blockquote><blockquote>YouTube「なんか重いな、こいつの配信ちょっと止めるか笑」</blockquote>
+
+*****
+
+####  rzrbtk  
+##### 8489#       发表于 2021-11-19 20:06
+
+哈哥这场景做了个寄席啊，还蛮有泛用性的
+
+*****
+
+####  lhawp  
+##### 8490#       发表于 2021-11-19 20:17
+
+哈哥这落语真不错，是不是讲完再顺便cover个8爷？
+
