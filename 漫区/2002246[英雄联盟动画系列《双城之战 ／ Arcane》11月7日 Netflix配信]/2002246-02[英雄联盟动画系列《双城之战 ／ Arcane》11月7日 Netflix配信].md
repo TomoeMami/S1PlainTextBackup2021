@@ -2108,3 +2108,40 @@ VI在游戏里面最大的问题是手感糟糕，类似定位的英雄手感都
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  狼影者瑞德克斯  
+##### 1673#       发表于 2021-11-19 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么回事？怎么从动画讨论一转游戏讨论了，没更新就这么饥渴难耐吗
+
+*****
+
+####  狼影者瑞德克斯  
+##### 1674#       发表于 2021-11-19 18:43
+
+给你们看点好玩的
+
+<img src="https://img.saraba1st.com/forum/202111/19/184219scepimh7p5heeoe4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 18:42 上传
+
+如果你喜欢《双城之战》或《破败王者：英雄联盟传奇》游戏并且对更多的英雄联盟IP感到兴趣，我的建议，如果你是对故事感兴趣，去玩看看《LOR/符文大地传說》；或者，如果你想要很棒的多人游戏体验，去玩看看《英雄联盟手游》。对，我们正在为大家打造MMORPG。
+
+《英雄联盟手游》对新人玩家来说有更好的游戏体验，但是要入坑PC版就太走火入魔了。
+
+image.png
+(39.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 18:41 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/184154bja7az1janlhjllq.png" referrerpolicy="no-referrer">
+

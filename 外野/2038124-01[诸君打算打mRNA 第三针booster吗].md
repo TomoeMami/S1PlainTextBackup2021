@@ -912,3 +912,12 @@ mrna疫苗不太会一年后还影响核酸的</blockquote>
 
 这两个月想回国不能打，等之后过来再打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asier  
+##### 98#       发表于 2021-11-19 18:40
+
+只打灭活
+
