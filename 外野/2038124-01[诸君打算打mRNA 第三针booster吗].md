@@ -720,3 +720,14 @@ booster也有科兴内个效果？<img src="https://static.saraba1st.com/image/s
 
 懒得出门，坐等公司提供on site第三针再去打
 
+
+
+*****
+
+####  coldhot3  
+##### 81#       发表于 2021-11-19 08:23
+
+<blockquote>kts1mg 发表于 2021-11-18 23:56
+不打，明年回国怕做核酸检测出问题</blockquote>
+mrna疫苗不太会一年后还影响核酸的
+
