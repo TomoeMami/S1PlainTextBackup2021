@@ -2145,3 +2145,33 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202111/19/184154bja7az1janlhjllq.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  老冰棍初号机  
+##### 1675#       发表于 2021-11-19 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53612808&amp;ptid=2002246" target="_blank">狼影者瑞德克斯 发表于 2021-11-19 18:43</a>
+给你们看点好玩的
+
+如果你喜欢《双城之战》或《破败王者：英雄联盟传奇》游戏并且对更多的英雄联盟IP感到兴 ...</blockquote>
+鬼蟹说了句人话，确实不建议纯新人直接玩端游<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">和老玩家差距太大，会被打崩心态的。玩玩手游或者lor确实挺好的。何苦来和这一帮老油子们玩找罪受呢
+
+—— 来自 realme RMX2173, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  文文情报屋  
+##### 1676#       发表于 2021-11-19 19:04
+
+这是实话……
+
+那会儿我处心积虑勾引我老婆陪我打lol
+
+她初学，我开小号，然后第一局还可以
+
+然后立马匹配的都是老油子了，把我老婆这萌新直接打出阴影……
+
+最后结果就是我陪她去打王者农药了……
+
