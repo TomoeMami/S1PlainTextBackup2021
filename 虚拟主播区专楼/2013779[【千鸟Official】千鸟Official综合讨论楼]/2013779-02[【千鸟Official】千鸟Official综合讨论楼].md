@@ -10814,3 +10814,56 @@ dota联动是21号，文静假期结束也是21号，静宝21号会选择vr还�
 
 琳的直播间gn味越来越大了，suki<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2676#       发表于 2021-11-19 09:02
+
+下次二创鉴赏回能看到莫洛的发病小视频吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 2677#       发表于 2021-11-19 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">年纪轻轻的有风湿病。哪种风湿病?
+
+*****
+
+####  莫洛骑士  
+##### 2678#       发表于 2021-11-19 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53605258&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-18 21:06</a>
+年纪轻轻的有风湿病。哪种风湿病?</blockquote>
+Co原话是“不是没穿秋裤，是没得穿，算了不说了，说了好像卖惨”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我又不好说了
+
+*****
+
+####  夜潇箫  
+##### 2679#       发表于 2021-11-19 09:14
+
+她们在宿舍，应该不怕冷吧，再说了，没有还不会网购吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2680#       发表于 2021-11-19 09:17
+
+ 本帖最后由 莫洛骑士 于 2021-11-18 21:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53605335&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-11-18 21:14</a>
+她们在宿舍，应该不怕冷吧，再说了，没有还不会网购吗</blockquote>
+我在南京的冬天待过，长三角的冬天我真不好说，一般人家好像也都做不到狂开空调
+
+Co宝没回去家最后去pdd买了个20块钱的衣服，我真怀疑是原力仗着Co宝没毕业没有劳动者资格不用签劳动合同所以给开了个非技术的实习生工资
+
+syl 南京的大学里的宿舍，阳台漏风，开空调只要关了就冷了，还没光照进来，墙薄不保温，睡觉甚至还得戴帽子不然早上起来头都冷，起床第一件事穿全套外衣，最好去室外坐着因为室外有阳光比室内暖和，最后全员往图书馆和教室跑<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 2681#       发表于 2021-11-19 09:19
+
+在厦门上学时候就感觉过南方冬天真不是人呆的地方，1，2月冻的要死<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

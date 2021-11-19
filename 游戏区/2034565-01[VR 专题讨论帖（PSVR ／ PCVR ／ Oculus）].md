@@ -2418,3 +2418,29 @@ Arpara是新出的，小厂产品、屏幕用了顶配（mirco OLED记得是像�
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  bypass  
+##### 154#         楼主| 发表于 2021-11-19 09:16
+
+ 本帖最后由 bypass 于 2021-11-19 09:21 编辑 
+
+亚利桑那阳光的开发商 Vertigo Games 的新作 《After the Fall》也上架 Steam 了，VR 版的 L4D 风格游戏，12 月 10 日发售，国区标准版 116（预购促销 104.40），豪华版 153（折后 141.40），预购可以享受 8 折以及提前 2 天进游戏，豪华版带独占皮肤、OST 和美术集。
+
+[https://store.steampowered.com/a ... ll__Launch_Edition/](https://store.steampowered.com/app/751630/After_the_Fall__Launch_Edition/)
+
+算是 12 月唯一比较期待的游戏了，就是 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 我没有玩 VR 的朋友。
+
+另外这个游戏有 PSVR 和 Quest 版本，不知道能不能跨平台联机。
+
+image.png
+(473.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-19 09:18 上传
+
+<img src="https://img.saraba1st.com/forum/202111/19/091845eyb1q3b69pfq3fpg.png" referrerpolicy="no-referrer">
+

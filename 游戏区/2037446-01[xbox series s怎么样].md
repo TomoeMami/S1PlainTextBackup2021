@@ -939,3 +939,22 @@ xss最神奇的地方是，你如果经常出差且旅行箱大一点，你是�
 再借楼问一下，刚买了XSS，我肯定是会买忍龙黑和忍龙2无印的，但忍龙3刀锋该买哪个版本？是买xbox360的3刀 ...</blockquote>
 忍龙黑和刀锋都可以直接玩大师合集，西格玛1反正≈黑，XSS运行360的黑和2有专属强化，分辨率提升，刀锋没有任何强化，糊的妈不认识
 
+
+
+*****
+
+####  何处分可  
+##### 94#       发表于 2021-11-19 09:12
+
+买个xss等xsx降价就完事了
+
+*****
+
+####  Lisylfn  
+##### 95#       发表于 2021-11-19 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53598096&amp;ptid=2037446" target="_blank">fengyue 发表于 2021-11-18 17:18</a>
+
+xss最神奇的地方是，你如果经常出差且旅行箱大一点，你是能带的。</blockquote>
+都不需要旅行箱大...背包都可以<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
