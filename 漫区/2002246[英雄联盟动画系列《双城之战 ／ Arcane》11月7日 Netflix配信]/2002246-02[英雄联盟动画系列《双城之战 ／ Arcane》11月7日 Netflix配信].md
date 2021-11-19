@@ -1656,3 +1656,66 @@ vi能不能认真加强下啊</blockquote>
 
 不是有实验说，克隆腕豪打不过vi
 
+
+
+*****
+
+####  亚可（本人）  
+##### 1630#       发表于 2021-11-19 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606316&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-19 10:32</a>
+男拳和女拳哪个厉害</blockquote>
+上路对线腕豪吊打，神单vi吊打
+比打野的话那刷野gank都是vi厉害点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  胧楼  
+##### 1631#       发表于 2021-11-19 10:56
+
+但是打团腕豪秒了啊
+
+*****
+
+####  暗黑能乐  
+##### 1632#       发表于 2021-11-19 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606246&amp;ptid=2002246" target="_blank">弗林蒂萨 发表于 2021-11-19 10:27</a>
+
+开始多位置比较了吗？那么我杠一下大家别认真，同样都是打拳的，这腕豪不把蔚吊起来打啊，告诉你什 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话，现在腕豪不带点燃也就那样吧，没有以前那么变态了
+
+*****
+
+####  亚可（本人）  
+##### 1633#       发表于 2021-11-19 11:00
+
+对比破败王，vi的Q有点篮子的
+最重要的输出控制位移技能还要先减速自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  镜面の云  
+##### 1634#       发表于 2021-11-19 11:02
+
+看b吧那帖子里说的，真就全世界讨厌杰斯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过贴里还有两个观点我觉得挺有意思的 <blockquote>别人把杰斯一脚踹下去可以，但维克托不行，杰斯弹劾大头是为了救维克托</blockquote>
+以及 <blockquote>讨厌杰斯能理解，但讨厌杰斯的同时又喜欢金克斯就很迷惑</blockquote>
+
+*****
+
+####  暗黑能乐  
+##### 1635#       发表于 2021-11-19 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606815&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-19 11:00</a>
+
+对比破败王，vi的Q有点篮子的
+
+最重要的输出控制位移技能还要先减速自己</blockquote>
+额，破败王也减速自己啊。。
+

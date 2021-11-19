@@ -796,3 +796,31 @@ mrna疫苗不太会一年后还影响核酸的
 
 反过来说，如果真这么低，那也没必要打booster，苟到要出去玩的时候再说吧。
 
+
+
+*****
+
+####  烦死了  
+##### 87#         楼主| 发表于 2021-11-19 10:55
+
+看了下  除了一位仁兄打了modenra booster  其他都打的 辉瑞bnt 的booster<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 88#         楼主| 发表于 2021-11-19 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606504&amp;ptid=2038124" target="_blank">JollytheJoker 发表于 2021-11-19 10:44</a>
+
+你想啊，一个托儿所三十几个小孩加上家长，加上工作人员的家庭，这么百十来号人，零暴露的概率是多低。
+
+ ...</blockquote>
+害 这不是下周就假期了吗 不得出去溜溜<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Theseus  
+##### 89#       发表于 2021-11-19 10:59
+
+我打的一针康希诺 这个有第二针加强么？
+

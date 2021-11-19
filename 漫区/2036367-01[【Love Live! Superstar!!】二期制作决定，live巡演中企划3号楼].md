@@ -7209,3 +7209,14 @@ BB334867-7412-40D8-A4FA-532F911D69E4.jpeg
 
 无需理会这种人，就让他越看越气又无能为力
 
+
+
+*****
+
+####  普之舜舜  
+##### 659#       发表于 2021-11-19 11:00
+
+理nt干嘛呀？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

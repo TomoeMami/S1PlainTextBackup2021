@@ -13855,3 +13855,12 @@ lod修复，起码在火山口不是一片糊了
 
 不过这怎么所有比赛都是暴雨天，有的跑着跑着还天黑了
 
+
+
+*****
+
+####  pl0okm  
+##### 1261#       发表于 2021-11-19 10:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挑战赛再不快点改怕不是第一季就清不掉全任务了 都跑去点车技能了
+
