@@ -761,3 +761,16 @@ mrna疫苗不太会一年后还影响核酸的
 
 海外单日死亡新增不带掉还屡破新高，到底是什么舆论轮环境长期引导的，能得出没必要的结论？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  coldhot3  
+##### 84#       发表于 2021-11-19 10:16
+
+<blockquote>JollytheJoker 发表于 2021-11-19 01:18
+我们公司刚从冰柜里翻出smallpox呢还，区区新冠…
+
+不过我八月底去的南加度假，发现贵的酒店和便 ...</blockquote>
+疫苗部门未来两三年的KPI有了。
+

@@ -1589,3 +1589,38 @@ vi能不能认真加强下啊</blockquote>
 
 —— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  镜面の云  
+##### 1623#       发表于 2021-11-19 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53605911&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-19 10:00</a>
+
+还好吧，灰夫人EW被砍以后就打不过野了
+
+在打野这块没那么上位了</blockquote>
+青钢影单带不说，打团既能飞后排一脚踹死AD，也能真伤打坦克。蔚还得铁憨憨的打三环
+
+一边大招是不可选区，一边是自己控自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sfour  
+##### 1624#       发表于 2021-11-19 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53594635&amp;ptid=2002246" target="_blank">星名早苗 发表于 2021-11-18 13:23</a>
+
+这梅尔的老妈我第一眼还以为是前3集的片警没被炸死。。。。</blockquote>
+原来不止我一个看错
+
+不过那片警是被直接撂倒了吧
+
+*****
+
+####  暗黑能乐  
+##### 1625#       发表于 2021-11-19 10:11
+
+不同位置也能硬比的吗。。。我建议再对比一下纳尔，打团还得控怒气，上去可能还会拍空，一套也弄不死还得靠队友，小纳尔还得铁憨憨打三环
+

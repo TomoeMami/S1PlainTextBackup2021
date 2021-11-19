@@ -2460,3 +2460,19 @@ image.png
 主玩游戏的话目前 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我一直觉得头显是个不错的应用  不过好像没什么人关注。。。 
 
+
+
+*****
+
+####  arikado  
+##### 156#       发表于 2021-11-19 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53596204&amp;ptid=2034565" target="_blank">vf503 发表于 2021-11-18 15:11</a>
+
+感谢
+
+之前关注了下HP G2，小派那个拍折腾软件配置，Arpara还没怎么听说过，刚搜了下好像是这俩月里新出的 ...</blockquote>
+小派其实反而是最不用折腾软件的，装了驱动即插即用，软件steam上的都能用。不过LCD屏幕的效果应该比不上OLED。他们家LED屏幕的5ksuper我也没看过实际看过效果。
+
+没有无线便利度比不上Q2……就是FOV应该没有比他大的。
+
