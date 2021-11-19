@@ -774,3 +774,25 @@ mrna疫苗不太会一年后还影响核酸的
 不过我八月底去的南加度假，发现贵的酒店和便 ...</blockquote>
 疫苗部门未来两三年的KPI有了。
 
+
+
+*****
+
+####  JollytheJoker  
+##### 85#       发表于 2021-11-19 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53606102&amp;ptid=2038124" target="_blank">coldhot3 发表于 2021-11-19 10:16</a>
+疫苗部门未来两三年的KPI有了。</blockquote>
+可不如九价hpv
+
+*****
+
+####  JollytheJoker  
+##### 86#       发表于 2021-11-19 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604897&amp;ptid=2038124" target="_blank">cxn 发表于 2021-11-19 08:33</a>
+等有了再打不就来不及了嘛</blockquote>
+你想啊，一个托儿所三十几个小孩加上家长，加上工作人员的家庭，这么百十来号人，零暴露的概率是多低。
+
+反过来说，如果真这么低，那也没必要打booster，苟到要出去玩的时候再说吧。
+

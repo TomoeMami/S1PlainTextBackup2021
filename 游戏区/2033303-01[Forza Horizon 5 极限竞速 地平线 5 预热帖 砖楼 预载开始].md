@@ -13830,3 +13830,28 @@ lod修复，起码在火山口不是一片糊了
 看了djs的宽体总结才发现
 这代没有火箭兔了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xsummer  
+##### 1259#       发表于 2021-11-19 10:21
+
+昨天断网把剩下的技能点刷吉普了，还不错抽奖补了20多辆车，钱也6000w了，慢慢季节赛补剩下的车好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xsummer  
+##### 1260#       发表于 2021-11-19 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604754&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-19 08:12</a>
+
+扣盾哪里修好了，开着还是照常掉线。
+
+这周眼镜蛇头又是拍脑门想的数据，变成i8限定赛了，
+
+什么LFA的那个调 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我随便找了个兰博的A级调教，还是挺简单的。
+
+不过这怎么所有比赛都是暴雨天，有的跑着跑着还天黑了
+

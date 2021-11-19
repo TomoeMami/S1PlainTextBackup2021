@@ -7666,3 +7666,12 @@ PS.女澡堂和海贼王你竟然选择了海贼王（划掉）
 
 king你……
 
+
+
+*****
+
+####  owada  
+##### 56088#       发表于 2021-11-19 10:33
+
+嚯,这刀还会吸查克拉的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
