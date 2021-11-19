@@ -941,3 +941,107 @@ mrna疫苗不太会一年后还影响核酸的</blockquote>
 
 国内更重视完全可以理解，一方面人口密度大传播速度不是一个数量级，其次人均ICU数量也承担不起大面积感染的风险，只能说国情不同吧。对于国内来讲，在靠谱的特效药终结疫情之前，零容忍政策还是非常有必要的。
 
+
+
+*****
+
+####  風舞雪  
+##### 100#       发表于 2021-11-20 01:51
+
+昨天刚打完pfizer第三针 半夜发冷 完全睡不着 早上头疼 身体软 也没寒热 就是tm人废了 没法上班 请假了
+
+刚睡了1小时 稍微好点 关键是被子再厚还是冷
+
+我第一第二针都没事儿 也都是pfizer的。
+
+*****
+
+####  桐名  
+##### 101#       发表于 2021-11-20 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53618283&amp;ptid=2038124" target="_blank">風舞雪 发表于 2021-11-20 01:51</a>
+
+昨天刚打完pfizer第三针 半夜发冷 完全睡不着 早上头疼 身体软 也没寒热 就是tm人废了 没法上班 请假了
+
+刚 ...</blockquote>
+多喝热水x
+
+整点蜂蜜√
+
+*****
+
+####  sukal2008  
+##### 102#       发表于 2021-11-20 03:45
+
+三个月前就领先全世界打了第三针加强针<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">  
+
+第三针的不适反应可比前两针强烈太多了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sukal2008  
+##### 103#       发表于 2021-11-20 03:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53618283&amp;ptid=2038124" target="_blank">風舞雪 发表于 2021-11-20 01:51</a>
+
+昨天刚打完pfizer第三针 半夜发冷 完全睡不着 早上头疼 身体软 也没寒热 就是tm人废了 没法上班 请假了
+
+刚 ...</blockquote>
+吃莲花清瘟可以缓解疫苗副作用，亲试有效
+
+*****
+
+####  sukal2008  
+##### 104#       发表于 2021-11-20 03:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53608827&amp;ptid=2038124" target="_blank">kts1mg 发表于 2021-11-19 14:19</a>
+
+明年3月回国就三四个月了还是怕影响</blockquote>
+现在打过疫苗回国的政策不是有疫苗接种证明和抗体检测就行了么
+
+*****
+
+####  烦死了  
+##### 105#         楼主| 发表于 2021-11-20 05:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53618674&amp;ptid=2038124" target="_blank">sukal2008 发表于 2021-11-20 03:45</a>
+
+三个月前就领先全世界打了第三针加强针  
+
+第三针的不适反应可比前两针强烈太多了  更糟糕的 ...</blockquote>
+我moderna二阵以后也感觉左胸不舒服  最近才好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  边缘中心  
+##### 106#       发表于 2021-11-20 05:12
+
+ 本帖最后由 边缘中心 于 2021-11-20 05:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53608170&amp;ptid=2038124" target="_blank">Redis 发表于 2021-11-19 13:25</a>
+
+moderna的booster好像第三针只有半剂</blockquote>
+对。但是就算半剂也比Pfizer浓度高的样子（pfizer一针是30mcg/0.3ml，moderna是100mcg/0.5ml）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 107#       发表于 2021-11-20 05:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53618283&amp;ptid=2038124" target="_blank">風舞雪 发表于 2021-11-20 01:51</a>
+
+昨天刚打完pfizer第三针 半夜发冷 完全睡不着 早上头疼 身体软 也没寒热 就是tm人废了 没法上班 请假了
+
+刚 ...</blockquote>
+半夜发冷什么情况，你有吃感冒退烧药么
+
+*****
+
+####  jctc  
+##### 108#       发表于 2021-11-20 05:27
+
+打科兴啊
+
+科兴打了不止治新馆
+
+还壮阳
+

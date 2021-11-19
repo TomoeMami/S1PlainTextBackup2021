@@ -11357,3 +11357,21 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2337#       发表于 2021-11-20 01:47
+
+卧槽，越想越恐怖啊，魔女也是被抽取了记忆所以想不起来传说q娃一直很痛苦，这样的装置居然是在格兰海洋的宫殿里，我怎么觉得有点不敢想了。。。。萝拉真夏这刀子已经快发下来了吧
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kerfars  
+##### 2338#       发表于 2021-11-20 04:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不就是坐实传q魔女就是be真夏萝拉了吗
+

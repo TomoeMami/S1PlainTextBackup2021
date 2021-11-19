@@ -14020,3 +14020,22 @@ lod修复，起码在火山口不是一片糊了
 俱乐部到底有啥用啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一起出去排在线比赛看起来比较气派，一堆战队的
 
+
+
+*****
+
+####  gzGaryC  
+##### 1275#       发表于 2021-11-20 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617937&amp;ptid=2033303" target="_blank">冀人燕南天 发表于 2021-11-20 01:06</a>
+
+俱乐部到底有啥用啊</blockquote>
+挂在名字前面图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gzGaryC  
+##### 1276#       发表于 2021-11-20 02:31
+
+跟朋友一起联机的时候发现一个bug，队员借用队长的车的时候匹配的AI是原厂评级，不知道可不可以用来刷所向披靡
+

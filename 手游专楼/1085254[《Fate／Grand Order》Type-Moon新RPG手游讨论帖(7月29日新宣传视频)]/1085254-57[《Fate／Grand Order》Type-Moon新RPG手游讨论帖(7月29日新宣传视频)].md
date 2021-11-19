@@ -4086,3 +4086,12 @@ SKIP（T头西服身男性）
 伪阶龙马稳了，放技能会遮挡，全程不说话</blockquote>
 不是阿国特攻嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  الطائر  
+##### 84357#       发表于 2021-11-20 01:54
+
+两个杀狐搭配阿国，就可以一回合放两次技能了！虽然并没有什么用
+
