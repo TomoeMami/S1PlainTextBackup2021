@@ -14847,3 +14847,37 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  nian1538  
+##### 7204#       发表于 2021-11-20 10:43
+
+<img src="https://img.saraba1st.com/forum/202111/20/104050lyqquzh6ggy837ut.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (17.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 10:40 上传
+
+<img src="https://img.saraba1st.com/forum/202111/20/104050o86it33c5483t5b4.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (18.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 10:40 上传
+
+ちょいと怪しいぞ？
+
+*****
+
+####  zpy393  
+##### 7205#       发表于 2021-11-20 10:59
+
+当所有人都以为她不播，她可能就播了，这就是种PUA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然最后不播也是PUA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
