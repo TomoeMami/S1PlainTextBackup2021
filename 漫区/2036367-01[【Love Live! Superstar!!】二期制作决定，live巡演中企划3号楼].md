@@ -7986,3 +7986,17 @@ FEjJ_6jaQAIGCXu.jfif
 
 你再想想吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 727#       发表于 2021-11-20 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53618867&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-11-20 06:33</a>
+你再想想吧</blockquote>
+主要 你在这说也没用啊
+你问我会不会去一起骂那我不会 不好看 而且这事早都说累了
+但我只能说我完全理解那些忍不住开骂的人 虽然不支持
+但不支持又能怎么样 我们又拦不住住他们 我要真有本事拦住他们我干嘛不直接顺着网线去把那些乱玩梗的人拦住 效率高多了
+

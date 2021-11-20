@@ -2509,3 +2509,21 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 还有比新剑魔更有特色的吗当然我说的不是游戏性，而是：</blockquote>
 剑魔的特色，当然是活字印刷术了  看了个新活笑死我了XD  【潘森！你太BABY了-哔哩哔哩】https://b23.tv/T5QfP9X
 
+
+
+*****
+
+####  ky7913  
+##### 1705#       发表于 2021-11-20 09:10
+
+imdb打分人数超过3.1万了，总排名再上升一位来到15，14就是瑞克和莫蒂。
+
+*****
+
+####  qingshuihe  
+##### 1706#       发表于 2021-11-20 09:17
+
+有巨人地鸣前的感觉了，是神是屎就看结尾这波了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
