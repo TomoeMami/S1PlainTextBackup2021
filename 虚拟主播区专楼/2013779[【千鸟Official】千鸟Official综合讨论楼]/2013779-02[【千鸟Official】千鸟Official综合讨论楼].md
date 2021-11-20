@@ -11370,3 +11370,16 @@ cnm这省略吓死我了
 
 裤裆喷文静香水居然被无视了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难道你们都干过了？
 
+
+
+*****
+
+####  袜子  
+##### 2735#       发表于 2021-11-20 13:23
+
+ 本帖最后由 袜子 于 2021-11-20 13:26 编辑 
+
+艾瑞斯前世应该是日箱 真空管娃娃-绘茉 的驾驶员，消息来源不确定，可信度也不确定就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl我当年做阑尾炎手术的时候还是正经开刀没微创，我怀疑是文静憋太久才去检查导致炎症扩大所以动刀了，躺一个月也正常（嘿嘿嘿，静静身上有和我一样的刀疤捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">）
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
