@@ -8496,3 +8496,69 @@ FEjJ_6jaQAIGCXu.jfif
 
 2021-11-20 19:45 上传
 
+
+
+*****
+
+####  lj205  
+##### 779#       发表于 2021-11-20 19:51
+
+我还嫌这章鱼贵，现在看来只能买了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ces轴承仨  
+##### 780#       发表于 2021-11-20 19:53
+
+好。鱼solo总算有了。
+
+
+
+*****
+
+####  lj205  
+##### 781#       发表于 2021-11-20 19:53
+
+佩佩的章鱼嘟嘟嘴😚
+
+*****
+
+####  仟音一心  
+##### 782#       发表于 2021-11-20 19:56
+
+这次防住了
+
+D3900EB8-C38E-45A5-8C78-3C2FDFEFCABA.png
+(164.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202111/20/195646bucwje7pjjjz385l.png" referrerpolicy="no-referrer">
+
+*****
+
+####  musicat  
+##### 783#       发表于 2021-11-20 19:58
+
+刚刚看完小星星的切片，导播是终于还原了动画里的情景了啊。
+
+而且这次力德的表现是终于放开了，声音不紧巴巴的脖子也是不再说感觉缩着的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+上来论坛一看，果然大家对这场更是一片好评。
+
+*****
+
+####  lj205  
+##### 784#       发表于 2021-11-20 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626102&amp;ptid=2036367" target="_blank">musicat 发表于 2021-11-20 19:58</a>
+刚刚看完小星星的切片，导播是终于还原了动画里的情景了啊。
+
+而且这次力德的表现是终于放开了，声音不紧巴 ...</blockquote>
+猫大入坑了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+今天可以说发挥超神的一场，包括导播
+北海道真的很微妙
+

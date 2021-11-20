@@ -14103,3 +14103,14 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 —— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.5 ...</blockquote>
 不用，送车只不过是本来的一次性地点再利用
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1283#       发表于 2021-11-20 19:49
+
+越野赛飞起来落地，怎么保持平衡，总是左右来回晃。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

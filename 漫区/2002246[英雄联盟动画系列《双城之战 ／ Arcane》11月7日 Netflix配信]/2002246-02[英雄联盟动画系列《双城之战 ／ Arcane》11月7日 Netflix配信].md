@@ -4734,3 +4734,211 @@ Oh, my enemy, how could I have ever let you down? "
 
 完了，这下拳头的货太纯了。。。第二季猴年马月阿
 
+
+
+*****
+
+####  毛利提督  
+##### 1957#       发表于 2021-11-20 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624776&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-20 18:09</a>
+
+估计除了杰斯全灭了 ，大头回来主持大局</blockquote>
+大头估计直接在下城和吉格斯一起隐居了
+
+*****
+
+####  tornadoDA  
+##### 1958#       发表于 2021-11-20 19:45
+
+我觉得真有第二季艾克的时间能力也不会研发出来吧？时间倒流这个东西太难写了
+
+*****
+
+####  毛利提督  
+##### 1959#       发表于 2021-11-20 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624988&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 18:26</a>
+
+大头确实有点搞笑的，一开始坐船我还以为是要去找辛吉德，没想到溜达一圈见不受欢迎就准备回去了 ...</blockquote>
+大头的塑造完全是被强行谜语人
+
+*****
+
+####  lucifer5455  
+##### 1960#       发表于 2021-11-20 19:46
+
+这金克丝用了九集时间终于第一个升到了六级，然后就一发大招送走了这一季。
+
+*****
+
+####  筱原重工  
+##### 1961#       发表于 2021-11-20 19:49
+
+ 本帖最后由 筱原重工 于 2021-11-20 19:51 编辑 
+
+蔚jinx女警三角恋真是厉害了，尤其是jinx的脑补，凯特琳真是罪孽深重，平安双城提醒您警惕女酮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">jinx真是弑父狂魔啊，俩爸爸都是她亲手杀的，虽然都不是有意的，这下好了，彻底变疯批了
+
+维克托还没彻底走向进化之路，大头早就让你毁了海克斯核心非不听，搭进去个妹子不说，海克斯核心好像还有了自我意识，想毁也难了，非得等一个紫皮光头杀过来吗，不听老人言啊<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">嘛也别说了，拿起大锤给老婆报仇吧
+
+事情发展到最后怎么选双城都得打，三个人去jinx家作客，首先蔚不可能杀了凯特琳，她们俩连床都上了。蔚跟希尔科又不会放弃嘴炮jinx，一个是亲妹妹一个是亲女儿。jinx被嘴炮疯了起枪至少带走一个，带走希尔科彻底变jinx干议会一炮；带走蔚还是彻底变jinx，希尔科也不会答应和平协定，还是干议会一炮。反正梅尔这炮是必须得挨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+必须得有第二季啊，维克托女警都还没变英雄，范德尔最后也有镜头还得变狼人，议会被一锅端了卡密尔也会出场吧，等不及要看双城大打出手了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 伊森温特斯| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  雪狐舞步  
+##### 1962#       发表于 2021-11-20 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625931&amp;ptid=2002246" target="_blank">lucifer5455 发表于 2021-11-20 19:46</a>
+
+这金克丝用了九集时间终于第一个升到了六级，然后就一发大招送走了这一季。 ...</blockquote>
+她拿了这么多人头，第一个到6也正常<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有优越感的人mk2  
+##### 1963#       发表于 2021-11-20 19:51
+
+最后三集每个人都在痛苦，成倍的痛苦，最后一发火箭超级加倍<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小修  
+##### 1964#       发表于 2021-11-20 19:53
+
+希尔科最后也活成范德尔的样子，真是让人绝望。
+
+*****
+
+####  saynie  
+##### 1965#       发表于 2021-11-20 19:56
+
+最后几个镜头，炼金前头的兽人爪子是狼人吧
+
+下一季估计就出场了
+
+*****
+
+####  屌丶哲  
+##### 1966#       发表于 2021-11-20 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">董安，我的董安
+怎么说死就死了
+
+*****
+
+####  QAQAQA11  
+##### 1967#       发表于 2021-11-20 19:56
+
+VI的打戏真的太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">艾克jinx那段也是帅的不行
+
+*****
+
+####  LinkerWeg  
+##### 1968#       发表于 2021-11-20 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">激素水平阈值新高
+
+*****
+
+####  lucifer5455  
+##### 1969#       发表于 2021-11-20 19:58
+
+<blockquote>雪狐舞步 发表于 2021-11-20 19:49
+她拿了这么多人头，第一个到6也正常</blockquote>
+全怪艾克，三环最后一下不a，不然就没后面了。
+
+*****
+
+####  战场公主希维尔  
+##### 1970#       发表于 2021-11-20 19:59
+
+都是什么缺德图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/20/195916pt0xke0o0mbgffo0.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQja0-1w40KpT1kSam-7x.jpg</strong> (27.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 19:59 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 伊森温特斯| + 1|草啊啊啊啊啊啊啊|
+
+查看全部评分
+
+*****
+
+####  飞升之后  
+##### 1971#       发表于 2021-11-20 20:00
+
+现在难得有杰斯这样的角色塑造
+
+*****
+
+####  尼特子很辛苦哟  
+##### 1972#       发表于 2021-11-20 20:01
+
+金克丝真是万能工具人，写不下去了就找金克丝出来救场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aisakahammer  
+##### 1973#       发表于 2021-11-20 20:01
+
+  艾克打金克丝这段好棒啊， 尤其是小艾克那段影像，BGM也舒服，这才是打戏啊
+
+*****
+
+####  saynie  
+##### 1974#       发表于 2021-11-20 20:03
+
+青梅...呜呜...我的青梅<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/20/200316mzpk6akhiy6m3ooz.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211118181750.jpg</strong> (24.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 20:03 上传
+
+*****
+
+####  飞升之后  
+##### 1975#       发表于 2021-11-20 20:03
+
+艾克，真正的祖安之光
+
+*****
+
+####  秋色如歌  
+##### 1976#       发表于 2021-11-20 20:03
+
+太太太爽了，只想看下一季！！
+
+jinx亲手刀自己两个爹，黑转路人了
+
