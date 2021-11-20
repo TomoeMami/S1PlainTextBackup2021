@@ -2683,3 +2683,15 @@ me.png
 
 <img src="https://img.saraba1st.com/forum/202111/20/122838e4wfawvzhjjvwhvi.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  狼影者瑞德克斯  
+##### 1722#       发表于 2021-11-20 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53620553&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-20 11:38</a>
+
+艾克对v的台词里就有说她是叛徒啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以，第一周大家骂爆爆，第二周骂杰斯，第三周骂蔚
+

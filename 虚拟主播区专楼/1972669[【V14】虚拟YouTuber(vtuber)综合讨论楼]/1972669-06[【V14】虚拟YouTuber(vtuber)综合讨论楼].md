@@ -13215,3 +13215,12 @@ https://youtu.be/LMTmboEANqQ
 被郡郡新衣服剪影震撼，感觉更像是口了的衣服，郡也穿lo啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">....震惊 这剪影你不说我肯定不敢猜是军刀
 
+
+
+*****
+
+####  OldGlory  
+##### 8494#       发表于 2021-11-20 13:03
+
+这宝可梦一发售最近的管人直播又没法看了
+
