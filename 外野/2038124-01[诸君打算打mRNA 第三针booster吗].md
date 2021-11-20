@@ -1237,3 +1237,19 @@ booster我是不想去打了
 
 ----发送自 [asus ASUS_I003D,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Redis  
+##### 126#       发表于 2021-11-21 07:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53631104&amp;ptid=2038124" target="_blank">outel 发表于 2021-11-21 05:51</a>
+
+@Redis
+
+10小时未发作的 我是前一天下午5点打的 第二天中午才躺平</blockquote>
+已经24小时了
+
+什么都没有发生。。。
+
