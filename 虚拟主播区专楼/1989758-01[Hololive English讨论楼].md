@@ -23856,3 +23856,32 @@ Ame: 护照在办了在办了<img src="https://static.saraba1st.com/image/smiley
 展台
 [https://www.youtube.com/watch?v=Db5Z6S1kR7I](https://www.youtube.com/watch?v=Db5Z6S1kR7I)
 
+
+
+*****
+
+####  a1741128  
+##### 1477#       发表于 2021-11-20 11:33
+
+议会的所谓“见面会”
+
+<img src="https://img.saraba1st.com/forum/202111/20/113304ms6dp6dnsd3r4p4j.jpg" referrerpolicy="no-referrer">
+
+<strong>14.jpg</strong> (511.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 11:33 上传
+
+延迟几十分钟
+
+打招呼
+
+自我介绍
+
+回答推上的一些问题
+
+回答最喜欢的时刻
+
+结束
+

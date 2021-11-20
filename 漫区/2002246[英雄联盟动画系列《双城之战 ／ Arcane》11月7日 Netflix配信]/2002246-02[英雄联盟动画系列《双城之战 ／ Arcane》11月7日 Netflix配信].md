@@ -2615,3 +2615,35 @@ jakelove（s8限定）得到史诗加强<img src="https://static.saraba1st.com/i
   -- 来自 能手机投票的 Stage1 ...</blockquote>
 现在最难处理的是V的心境变化，一个痛恨皮城和执法官的人，怎么才能让她合理地自愿成为皮城执法官，如果处理不好，祖安叛徒的帽子就戴好吧
 
+
+
+*****
+
+####  ky7913  
+##### 1716#       发表于 2021-11-20 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53619892&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-20 10:29</a>
+
+我现在就怕整个皮城祖安互相理解合力对抗诺克萨斯这种又俗又烂的活
+
+  -- 来自 能手机投票的 Stage1 ...</blockquote>
+应该不至于😂
+
+*****
+
+####  医生狼多  
+##### 1717#       发表于 2021-11-20 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53620283&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-20 11:11</a>
+话说新赛季正式开始什么时候，新的赛季CG什么时候。。。去年为了配合破败小丑，其实赛季CG不够尽兴 ...</blockquote>
+季前赛已经开了，一个多月差不多吧
+
+*****
+
+####  lost_恩恩  
+##### 1718#       发表于 2021-11-20 11:38
+
+<blockquote>狼影者瑞德克斯 发表于 2021-11-20 11:18
+现在最难处理的是V的心境变化，一个痛恨皮城和执法官的人，怎么才能让她合理地自愿成为皮城执法官，如果 ...</blockquote>
+艾克对v的台词里就有说她是叛徒啊
+

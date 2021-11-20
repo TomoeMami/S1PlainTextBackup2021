@@ -1045,3 +1045,15 @@ moderna的booster好像第三针只有半剂</blockquote>
 
 还壮阳
 
+
+
+*****
+
+####  kts1mg  
+##### 109#       发表于 2021-11-20 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53618680&amp;ptid=2038124" target="_blank">sukal2008 发表于 2021-11-20 03:48</a>
+
+现在打过疫苗回国的政策不是有疫苗接种证明和抗体检测就行了么</blockquote>
+短时间内mrna疫苗不是会lgm蛋白阳性么
+
