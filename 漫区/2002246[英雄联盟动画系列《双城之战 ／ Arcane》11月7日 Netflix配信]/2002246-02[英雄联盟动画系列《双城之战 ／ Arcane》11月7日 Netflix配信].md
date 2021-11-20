@@ -5741,3 +5741,165 @@ Everything will not change。
 
 范德尔真的在实验室的话，这一想，希尔科去雕像那里喝酒就怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  翻滚吧熊犊子  
+##### 2062#       发表于 2021-11-20 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627620&amp;ptid=2002246" target="_blank">chillstar 发表于 2021-11-20 21:45</a>
+
+艾欧尼亚影流、辛德拉，德玛西亚拉克丝，诺克萨斯锐雯的剧情都挺纠结的 ...</blockquote>
+太散 所以希望下一部能继续保持惊喜吧 这次双城确实牛比
+
+*****
+
+####  Tjodrek  
+##### 2063#       发表于 2021-11-20 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627553&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-11-20 21:39</a>
+
+不能这么比啊，卡莎10岁掉入虚空靠着生吞虚空怪物活下来，这也没疯啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是这两人生长环境一模一样啊，都是一条街的
+
+*****
+
+####  lucifer5455  
+##### 2064#       发表于 2021-11-20 21:52
+
+<blockquote>plok201 发表于 2021-11-20 21:49
+范德尔真的在实验室的话，这一想，希尔科去雕像那里喝酒就怪怪的</blockquote>
+没啥怪怪的，很有可能范德尔就是希尔科送到炼金那里去的
+
+*****
+
+####  狭义文具爱好者  
+##### 2065#       发表于 2021-11-20 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这世界那么多人总得有一两个疯子，相关创作里又有人不少人喜欢这种形象
+
+以一个疯子的起源故事来考量，双城的水平绝对是t1的，这年份做疯子不成做成小丑的太多了
+
+*****
+
+####  masariro  
+##### 2066#       发表于 2021-11-20 21:56
+
+第七集有点看不懂了，要是凯特琳被炸的很严重，得赶紧就医。蔚带她走可以理解。可是找了好久的妹妹再次出现在眼前，就这样走了……艾克和金克丝蒙太奇那段挺好，
+
+*****
+
+####  lucifer5455  
+##### 2067#       发表于 2021-11-20 21:56
+
+这双城故事的冲突点和人物塑造虽然有些老套，但结合故事串联确实相当nb
+
+*****
+
+####  bairn  
+##### 2068#       发表于 2021-11-20 21:56
+
+所以现在哪里有网飞的英配中字磁力链接或者百度网盘嘛
+
+*****
+
+####  bairn  
+##### 2069#       发表于 2021-11-20 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627749&amp;ptid=2002246" target="_blank">masariro 发表于 2021-11-20 21:56</a>
+
+第七集有点看不懂了，要是凯特琳被炸的很严重，得赶紧就医。蔚带她走可以理解。可是找了好久的妹妹再次出现 ...</blockquote>
+vi也已经发现jinx不是爆爆了吧
+
+*****
+
+####  与天争锋_LZ  
+##### 2070#       发表于 2021-11-20 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627749&amp;ptid=2002246" target="_blank">masariro 发表于 2021-11-20 21:56</a>
+第七集有点看不懂了，要是凯特琳被炸的很严重，得赶紧就医。蔚带她走可以理解。可是找了好久的妹妹再次出现 ...</blockquote>
+金克丝就是冲着杀凯特琳来的啊
+一开始的伤就是虫群爆炸炸的，然后直接拿枪扫射
+
+能走的了都是艾克好兄弟殿后
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  amanohanei  
+##### 2071#       发表于 2021-11-20 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627754&amp;ptid=2002246" target="_blank">bairn 发表于 2021-11-20 21:56</a>
+
+所以现在哪里有网飞的英配中字磁力链接或者百度网盘嘛</blockquote>
+magnet:?xt=urn:btih:9f567bf4460dad2bebd13da83dcc367da2212315&amp;dn=Arcane.S01.1080p.NF.WEB-DL.x265.10bit.HDR.DDP5.1-TEPES%5Brartv%5D&amp;tr=http%3A%2F%2Ftracker.trackerfix.com%3A80%2Fannounce&amp;tr=udp%3A%2F%2F9.rarbg.me%3A2870&amp;tr=udp%3A%2F%2F9.rarbg.to%3A2770&amp;tr=udp%3A%2F%2Ftracker.slowcheetah.org%3A14770&amp;tr=udp%3A%2F%2Ftracker.tallpenguin.org%3A15760
+
+magnet:?xt=urn:btih:aac9397397dbfde3d0f49d3bd4cf5203a50bded6&amp;dn=Arcane.S01.1080p.NF.WEBRip.DDP5.1.x265-TEPES%5Brartv%5D&amp;tr=http%3A%2F%2Ftracker.trackerfix.com%3A80%2Fannounce&amp;tr=udp%3A%2F%2F9.rarbg.me%3A2850&amp;tr=udp%3A%2F%2F9.rarbg.to%3A2860&amp;tr=udp%3A%2F%2Ftracker.tallpenguin.org%3A15780&amp;tr=udp%3A%2F%2Ftracker.thinelephant.org%3A12710
+
+上面是HDR的
+
+网飞自带多国字幕
+
+*****
+
+####  bairn  
+##### 2072#       发表于 2021-11-20 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627791&amp;ptid=2002246" target="_blank">amanohanei 发表于 2021-11-20 22:00</a>
+
+magnet:?xt=urn:btih:9f567bf4460dad2bebd13da83dcc367da2212315&amp;dn=Arcane.S01.1080p.NF.WEB-DL.x265.10 ...</blockquote>
+OK谢谢
+
+*****
+
+####  名津流  
+##### 2073#       发表于 2021-11-20 22:01
+
+这片精致的构图真是比比皆是
+
+<img src="https://img.saraba1st.com/forum/202111/20/215627idhozbhb7d077e3h.png" referrerpolicy="no-referrer">
+
+<strong>Arcane.S01E08.Oil.and.Water.1080p.NF.WEB-DL.DDP5.1.HEVC-TEPES.mkv_20211120_215214.167.png</strong> (249.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 21:56 上传
+
+这一幕对峙戏，杰斯虽然是居高临下的位置，但画面却借用墙上的壁画来比喻了右边才是手握实力与强权来压迫杰斯的一方，所以杰斯才一副心神不宁坐立不安的样子，而且表面上杰斯还是因为对方的坦诚相见才扭捏起来，实在是安排得巧妙
+
+*****
+
+####  缺德猫  
+##### 2074#       发表于 2021-11-20 22:02
+
+magnet:?xt=urn:btih:61113067ADF93A98B475A63ED96D72F32541C20B
+
+magnet:?xt=urn:btih:514E1C3754600A712F5C9A308CA72CC44CB647C7
+
+magnet:?xt=urn:btih:2B7B95C1E52D7943D30827780D3311D7D1581C88
+
+magnet:?xt=urn:btih:A6B520BAE2B72FBA2BEF6BB02E890398583558A3
+
+magnet:?xt=urn:btih:8D521B505D3B115EAF6FD0D903599CD19CBA9367
+
+magnet:?xt=urn:btih:3733AEF20DAB120C6A37E16C3B014BD447B23F43
+
+magnet:?xt=urn:btih:4CDED7D5E23EE31D8C615A129864B1ADB2F4D1A5
+
+magnet:?xt=urn:btih:338EC50E9FF41CC36E72D57B75C68318191DE6BA
+
+magnet:?xt=urn:btih:CFF8928A522403C007286F67E77936596F3BEBEB
+
+试试能用不？我自己是看的这个
+
+*****
+
+####  彩虹肥宅  
+##### 2075#       发表于 2021-11-20 22:03
+
+求个网飞中配磁力<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
