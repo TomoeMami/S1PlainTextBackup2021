@@ -8411,3 +8411,88 @@ FEjJ_6jaQAIGCXu.jfif
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  普之舜舜  
+##### 772#       发表于 2021-11-20 19:26
+
+是呀，今天听他们说效果不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可惜自己没时间看
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  名津流  
+##### 773#       发表于 2021-11-20 19:27
+
+青山压手：“大家冷静一下”.jpg
+
+这只是大阪而已，要过年也等回到东京主场再说
+
+*****
+
+####  lj205  
+##### 774#       发表于 2021-11-20 19:27
+
+今天这牛排可太值了
+
+*****
+
+####  优妮可  
+##### 775#       发表于 2021-11-20 19:35
+
+<img src="https://img.saraba1st.com/forum/202111/20/193536m1y33dl6okjkm39f.jpg" referrerpolicy="no-referrer">
+
+<strong>20211120_193405.jpg</strong> (599.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 19:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/20/193537sf77ef8t76618ght.jpg" referrerpolicy="no-referrer">
+
+<strong>20211120_193413.jpg</strong> (587.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 19:35 上传
+
+*****
+
+####  秋月艾莉  
+##### 776#       发表于 2021-11-20 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">外星人在鲤鱼姐握手的时候竟有一瞬间露出了地球女性的娇羞表情
+
+*****
+
+####  iuhehc  
+##### 777#       发表于 2021-11-20 19:39
+
+鲤鱼弱混强混切换的挺自然的，还是有经验啊！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 778#       发表于 2021-11-20 19:45
+
+<img src="https://img.saraba1st.com/forum/202111/20/194519v26ndcozxsxee7cn.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1637408634036.jpg</strong> (296.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 19:45 上传
+
+<img src="https://img.saraba1st.com/forum/202111/20/194519p69gampgppjqpgj2.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1637408635966.jpg</strong> (326.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 19:45 上传
+

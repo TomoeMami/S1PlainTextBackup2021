@@ -11424,3 +11424,35 @@ syl我当年做阑尾炎手术的时候还是正经开刀没微创，我怀疑�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">我咋能想到恁多呢，就是怕被封号，不敢发
 
+
+
+*****
+
+####  IDIDIDID  
+##### 2741#       发表于 2021-11-20 19:26
+
+<img src="https://img.saraba1st.com/forum/202111/20/192643hn6tppxp1yhpniuy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211120-192605.jpg</strong> (69.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-20 19:26 上传
+
+痛失韩国市场
+
+*****
+
+####  小憨1  
+##### 2742#       发表于 2021-11-20 19:26
+
+我宣布这是今日最佳<img src="https://p.sda1.dev/3/833ffcd43783c17ebc79d7006b742047/20a1fbe5fb9c5289.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 2743#       发表于 2021-11-20 19:30
+
+以后不要黑屁隔壁珠宝商人私下打👊了，真正的拳击手在这里。
+

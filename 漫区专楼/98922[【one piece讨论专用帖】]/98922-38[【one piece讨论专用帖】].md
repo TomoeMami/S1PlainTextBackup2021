@@ -7794,3 +7794,12 @@ op世界观人造味挺重的
 
 这几个恐龙蛮有意思的，让我想起司法岛的长颈鹿，也是一股胡逼味<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宅之猴晒阴  
+##### 56098#       发表于 2021-11-20 19:34
+
+尾田重新定义了恐龙
+
