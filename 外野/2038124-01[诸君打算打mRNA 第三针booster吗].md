@@ -1202,3 +1202,38 @@ booster我是不想去打了
 
 今天所有都好了 除了头还是疼 就是感冒那种头疼 鼻塞以外都还好 不像昨天 小便都没力气
 
+
+
+*****
+
+####  防空识别区  
+##### 123#       发表于 2021-11-21 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628127&amp;ptid=2038124" target="_blank">風舞雪 发表于 2021-11-20 22:33</a>
+
+第三针最新回报 昨天身体是软的 头疼 浑身发冷 躺尸一天 真的是躺尸一天 东西都没怎么吃
+
+今天所有都好了 除 ...</blockquote>
+最好去做一下心肌炎检测吧
+
+*****
+
+####  蛇头  
+##### 124#       发表于 2021-11-21 05:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想打第三针，但日本还没具体政策，不过看楼里各位坛友的经历决定不打第一批了，有点慌
+
+*****
+
+####  outel  
+##### 125#       发表于 2021-11-21 05:51
+
+<blockquote>引用第115楼Redis于2021-11-20 01:34发表的  :
+
+我补了辉瑞第三针现在快10个小时了比第二针症状还轻微感觉自己打到假疫苗了</blockquote>
+@Redis
+
+10小时未发作的 我是前一天下午5点打的 第二天中午才躺平
+
+----发送自 [asus ASUS_I003D,Android 11](http://stage1.5j4m.com/?1.37)
+
