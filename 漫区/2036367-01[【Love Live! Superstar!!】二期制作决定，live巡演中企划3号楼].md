@@ -8082,3 +8082,19 @@ FEjJ_6jaQAIGCXu.jfif
 今天solo有鲤鱼的liella之歌了，当然，在这楼某人眼里还是21首不换歌live</blockquote>
 你就直接说是我呗，我说的话我不怕被翻，官方打脸我很高兴啊。
 
+
+
+*****
+
+####  秋月艾莉  
+##### 735#       发表于 2021-11-20 15:56
+
+几日没去逛拉板，早几日马娘吹风上红白时这帮人在发自嘲意味浓厚的
+
+【朗報】ウマ娘、紅白濃厚
+
+今天一看变成了
+
+【朗報】ウマ娘死亡【祝勝】
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是一帮贱批，笑歪了
+

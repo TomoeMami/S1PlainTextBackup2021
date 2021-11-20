@@ -13237,3 +13237,19 @@ https://youtu.be/LMTmboEANqQ
 
 —— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  winda  
+##### 8496#       发表于 2021-11-20 15:40
+
+<blockquote>長おじ「スプラ大会ガチすぎてCRかと思った」
+
+樋口「リスナーがね…負けたとき怒られるから…」
+
+手帳「ハハハ…」
+
+この箱息苦しいよ😢</blockquote>
+虾勇每天练8小时，叶山队练前先单独练习12小时，这次喷喷大会也一样这么卷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
