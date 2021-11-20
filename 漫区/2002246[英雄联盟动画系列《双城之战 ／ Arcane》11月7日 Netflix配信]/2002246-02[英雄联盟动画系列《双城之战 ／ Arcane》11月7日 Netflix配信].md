@@ -6058,3 +6058,157 @@ jinx和vi的问题，归根结底是jinx已经早vi一步长大了，而vi却想
 
 enemy是越看越带感
 
+
+
+*****
+
+####  Paradox7  
+##### 2091#       发表于 2021-11-20 22:24
+
+本来看到最后，四个人围坐在一起玩电车难题我就想爆笑的，这里面三个英雄，jinx最后还疯了，只能是希尔科你来死了。不过死的方式还是演绎的挺好的我感觉，还有要是杰斯的黑妹没死多好
+
+*****
+
+####  Paradox7  
+##### 2092#       发表于 2021-11-20 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628030&amp;ptid=2002246" target="_blank">彩虹肥宅 发表于 2021-11-20 22:22</a>
+
+所以阿克尚只要解决了爆爆就能复活基本上所有的人</blockquote>
+要是能解决爆爆本来也没什么人会死<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  彩虹肥宅  
+##### 2093#       发表于 2021-11-20 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628069&amp;ptid=2002246" target="_blank">Paradox7 发表于 2021-11-20 22:25</a>
+
+要是能解决爆爆本来也没什么人会死</blockquote>
+应该解决艾克，一切的开始就是他跟踪了杰斯<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屌丶哲  
+##### 2094#       发表于 2021-11-20 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628039&amp;ptid=2002246" target="_blank">狭义文具爱好者 发表于 2021-11-20 22:23</a>
+还看到个有趣的说法，孤勇者作词人看完动画人麻了，但凡有一个能对上的也不至于一个都对不上
+
+enemy ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">孤勇者mv里全是金克斯的画面，就很喜感
+有个up剪的维克托就很配
+
+*****
+
+####  狭义文具爱好者  
+##### 2095#       发表于 2021-11-20 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628084&amp;ptid=2002246" target="_blank">屌丶哲 发表于 2021-11-20 22:27</a>
+
+孤勇者mv里全是金克斯的画面，就很喜感
+
+有个up剪的维克托就很配</blockquote>
+维克托后三集下来尤其是一板凳没砸下来也差了点意思，另外就是他这条线没结束也有影响
+
+*****
+
+####  筱原重工  
+##### 2096#       发表于 2021-11-20 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628076&amp;ptid=2002246" target="_blank">彩虹肥宅 发表于 2021-11-20 22:26</a>
+
+应该解决艾克，一切的开始就是他跟踪了杰斯</blockquote>
+直接解决杰斯，一切的开始的开始就是他拿危险的海克斯水晶沉迷于魔法实验<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摸鱼先锋  
+##### 2097#       发表于 2021-11-20 22:30
+
+最后希尔克死在金克丝手里我接受不了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+本来第6集无能狂怒踢手下逼格都掉光了，这最后三集这老父亲形象看泪目了
+
+*****
+
+####  ammk  
+##### 2098#       发表于 2021-11-20 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628039&amp;ptid=2002246" target="_blank">狭义文具爱好者 发表于 2021-11-20 22:23</a>
+
+还看到个有趣的说法，孤勇者作词人看完动画人麻了，但凡有一个能对上的也不至于一个都对不上
+
+enemy ...</blockquote>
+给艾克吧，祖安的未来
+
+*****
+
+####  艾希  
+##### 2099#       发表于 2021-11-20 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627885&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-20 22:09</a>
+
+说实话我想看下一季讲你的故事</blockquote>
+只要不是快进到和泰达米尔联姻就行了……
+
+*****
+
+####  scorbian  
+##### 2100#       发表于 2021-11-20 22:35
+
+这一季聚焦在VI和金克斯姐妹，可以说是完美完成任务了，所有主要角色形象全都塑造起来了，给后面更大的矛盾也埋够了伏笔，第二季快给老子吐出来啊啊啊啊啊
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  今天不守尸  
+##### 2101#       发表于 2021-11-20 22:37
+
+大桥上那段应该是薇怂了吧
+
+虽然在前面和艾克争论时还嘴硬说爆爆还是那个爆爆，自己一定会把她唤回来的
+
+结果真当金克斯上来炸死一桥人，毫不犹豫地朝着小蛋糕开枪后，印象中的那个爱缠着自己撒娇的妹妹变得如此陌生而可怕，她自己也不知道该怎么面对她又该说些什么话了吧
+
+逃避可耻但真的有效<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摸鱼先锋  
+##### 2102#       发表于 2021-11-20 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628003&amp;ptid=2002246" target="_blank">lucifer5455 发表于 2021-11-20 22:20</a>
+
+金克丝要杀凯特琳啊，蔚是两头为难状态，这个时候艾克要殿后，自己顺势先带着女警跑路也算下意识的合理反 ...</blockquote>
+核心原因还是蔚是个脑子里全是肌肉的莽夫……桥上的金克丝还没用微光勉强还能讲点道理，把来意说明白了金克丝还是发疯只能说神仙难救，结果话也不说直接溜了，在金克丝眼里就是抛弃2.0，完美复刻童年剧情，最后为啥发病晚期也就完全能理解了
+
+*****
+
+####  今天不守尸  
+##### 2103#       发表于 2021-11-20 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628094&amp;ptid=2002246" target="_blank">狭义文具爱好者 发表于 2021-11-20 22:29</a>
+
+维克托后三集下来尤其是一板凳没砸下来也差了点意思，另外就是他这条线没结束也有影响 ...</blockquote>
+而且绕了这么大一圈子后维克托和杰斯这哥俩又成一条心的了，一个选择了和平，一个放弃了进化，这要和游戏里的设定对起来起码还得再来一季剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Chinacaii  
+##### 2104#       发表于 2021-11-20 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627450&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-20 21:31</a>
+ 这要是青梅的话这场景就太厉害了吧 小时候青梅走了之后维克托玩自己做的小船，根本追不上，长大了用海克 ...</blockquote>
+第六集开头维克托的回忆里有出现青梅的名字：斯凯<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摸鱼先锋  
+##### 2105#       发表于 2021-11-20 22:45
+
+非要说蔚只是会莽好像也不太对，小时候看到爆爆情绪不对蔚都能带她出去看风景话聊，结果长大之后情商反而像掉线了一样，最后对峙那块不停戳金克丝内心痛点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
