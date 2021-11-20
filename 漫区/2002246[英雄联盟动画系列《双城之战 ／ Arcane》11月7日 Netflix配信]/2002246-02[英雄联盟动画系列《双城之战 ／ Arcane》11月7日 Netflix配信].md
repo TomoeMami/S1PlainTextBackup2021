@@ -5903,3 +5903,158 @@ magnet:?xt=urn:btih:CFF8928A522403C007286F67E77936596F3BEBEB
 
 求个网飞中配磁力<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kaminagi  
+##### 2076#       发表于 2021-11-20 22:04
+
+什么嘛，亚索放个风墙全救了。
+
+*****
+
+####  艾希  
+##### 2077#       发表于 2021-11-20 22:05
+
+说这一季是花了6年做的，那要等下一季的意思是……
+
+*****
+
+####  伊森温特斯  
+##### 2078#       发表于 2021-11-20 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627848&amp;ptid=2002246" target="_blank">艾希 发表于 2021-11-20 22:05</a>
+说这一季是花了6年做的，那要等下一季的意思是……</blockquote>
+说实话我想看下一季讲你的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  机翻猫  
+##### 2079#       发表于 2021-11-20 22:09
+
+为啥在这种最高潮的地方戛然而止啊，受不了了
+
+祖安女神经病的社精管理是吧
+
+*****
+
+####  夹具装配图  
+##### 2080#       发表于 2021-11-20 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627831&amp;ptid=2002246" target="_blank">彩虹肥宅 发表于 2021-11-20 22:03</a>
+
+求个网飞中配磁力</blockquote>
+网飞版中配无删[https://www.aliyundrive.com/s/gAtpb5V2sXW](https://www.aliyundrive.com/s/gAtpb5V2sXW)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 彩虹肥宅| + 1|多谢|
+
+查看全部评分
+
+*****
+
+####  ashero  
+##### 2081#       发表于 2021-11-20 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627848&amp;ptid=2002246" target="_blank">艾希 发表于 2021-11-20 22:05</a>
+
+说这一季是花了6年做的，那要等下一季的意思是……</blockquote>
+立项六年 开工好像是17年 往好处想 奥运番（不是）
+
+*****
+
+####  masariro  
+##### 2082#       发表于 2021-11-20 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627775&amp;ptid=2002246" target="_blank">与天争锋_LZ 发表于 2021-11-20 21:58</a>
+
+金克丝就是冲着杀凯特琳来的啊
+
+一开始的伤就是虫群爆炸炸的，然后直接拿枪扫射</blockquote>
+经你提醒冲着凯特琳来我就明白了。金克丝实在是太疯了，一开始她开枪我还理解成她又抽风了，没往冲着凯特琳那方向想。
+
+*****
+
+####  lost_恩恩  
+##### 2083#       发表于 2021-11-20 22:14
+
+<blockquote>masariro 发表于 2021-11-20 21:56
+第七集有点看不懂了，要是凯特琳被炸的很严重，得赶紧就医。蔚带她走可以理解。可是找了好久的妹妹再次出现 ...</blockquote>
+从第一次相见金克丝大杀特杀时蔚就愣了一下吧，一直走不出来的其实是蔚，金克丝强调了很多遍我变了感觉她都没当回事，还以为是那个黏着自己的小怂包爆爆，再见面就更狠了，所以估计也有点要逃避的意思，最后一幕甚至还在试图唤醒爆爆，到头来最懂金克丝的是希尔科。
+
+不过蔚从小监狱长大，奉行拳头说话，直来直去的，肯定没有那么细腻的情感
+
+*****
+
+####  摸鱼先锋  
+##### 2084#       发表于 2021-11-20 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627749&amp;ptid=2002246" target="_blank">masariro 发表于 2021-11-20 21:56</a>
+
+第七集有点看不懂了，要是凯特琳被炸的很严重，得赶紧就医。蔚带她走可以理解。可是找了好久的妹妹再次出现 ...</blockquote>
+是的，凯特琳只有一点腿伤甚至不用看医生，自己老爹绑点绷带就行了，结果蔚456集里一直口口声声说什么也要把金克丝的爆爆人格找回来，就为了腿瘸了的凯特琳就走了？虽然这是金克丝黑化的必要事件，还是感觉前后人设有点割裂，看这段剧情满脸黑人问号
+
+*****
+
+####  与天争锋_LZ  
+##### 2085#       发表于 2021-11-20 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627803&amp;ptid=2002246" target="_blank">名津流 发表于 2021-11-20 22:01</a>
+
+这片精致的构图真是比比皆是</blockquote>
+其实还有一点，梅尔是真喜欢杰斯，这也属于女婿见丈母娘了，那也是得战战兢兢的
+
+*****
+
+####  zxc786  
+##### 2086#       发表于 2021-11-20 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627966&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-20 22:15</a>
+
+是的，凯特琳只有一点腿伤甚至不用看医生，自己老爹绑点绷带就行了，结果蔚456集里一直口口声声说什么也 ...</blockquote>
+为了把海克斯核心交回去，只是没想到已经被调包了。
+
+jinx和vi的问题，归根结底是jinx已经早vi一步长大了，而vi却想把jinx变回在她怀里撒娇的爆爆。所以，不管有没有凯特琳结局都是一样的。
+
+*****
+
+####  lucifer5455  
+##### 2087#       发表于 2021-11-20 22:20
+
+<blockquote>摸鱼先锋 发表于 2021-11-20 22:15
+是的，凯特琳只有一点腿伤甚至不用看医生，自己老爹绑点绷带就行了，结果蔚456集里一直口口声声说什么也 ...</blockquote>
+金克丝要杀凯特琳啊，蔚是两头为难状态，这个时候艾克要殿后，自己顺势先带着女警跑路也算下意识的合理反应吧。
+
+*****
+
+####  Paradox7  
+##### 2088#       发表于 2021-11-20 22:22
+
+其看到金克丝和薇他们在桥上打的时候，蔚扶着女警就走了没留下来拦着金克丝还感觉有点离谱。不过到最后看到她和希尔科对金克丝的区别的话，其实她和杰斯有点像，又想拉回爆爆又想保住小蛋糕，而希尔科只有金克丝这么一个女儿了，为了金克丝可以把之前的努力全放弃掉从头再来，可惜最后金克丝下意识保护蔚失手把他打死了。
+
+还有那个二把手女吕布，感觉是不是要作为新英雄登场了，她也太耐揍了，lor刚出的时候我玩过，好像没有她？
+
+*****
+
+####  彩虹肥宅  
+##### 2089#       发表于 2021-11-20 22:22
+
+所以阿克尚只要解决了爆爆就能复活基本上所有的人<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 2090#       发表于 2021-11-20 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还看到个有趣的说法，孤勇者作词人看完动画人麻了，但凡有一个能对上的也不至于一个都对不上
+
+enemy是越看越带感
+

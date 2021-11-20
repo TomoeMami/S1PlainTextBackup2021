@@ -4118,3 +4118,33 @@ SKIP（T头西服身男性）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">武市画了三套立绘结果都还是npc。
 
+
+
+*****
+
+####  zore  
+##### 84361#       发表于 2021-11-20 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NPC笑了
+
+*****
+
+####  シャル  
+##### 84362#       发表于 2021-11-20 22:11
+
+现在就枪龙马不明
+
+*****
+
+####  zore  
+##### 84363#       发表于 2021-11-20 22:18
+
+翻页
+
+*****
+
+####  zore  
+##### 84364#       发表于 2021-11-20 22:18
+
+翻页
+

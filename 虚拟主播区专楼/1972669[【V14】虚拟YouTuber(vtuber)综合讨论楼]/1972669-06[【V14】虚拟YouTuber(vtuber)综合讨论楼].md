@@ -13433,3 +13433,14 @@ hachi上了</blockquote>
 
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  winda  
+##### 8512#       发表于 2021-11-20 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶山fanclub说自己暂时不会参加大会了
+
+天天练8小时最后一轮游果然撑不住
+

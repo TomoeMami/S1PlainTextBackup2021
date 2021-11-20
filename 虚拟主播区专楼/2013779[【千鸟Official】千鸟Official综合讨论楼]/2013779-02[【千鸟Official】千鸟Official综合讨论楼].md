@@ -11537,3 +11537,24 @@ syl我当年做阑尾炎手术的时候还是正经开刀没微创，我怀疑�
 
 白白去5424对线了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2753#       发表于 2021-11-20 22:21
+
+ 本帖最后由 T型钉宫病毒 于 2021-11-20 22:22 编辑 
+
+千鸟两个广告位，赢！
+
+<img src="https://img.saraba1st.com/forum/202111/20/221717sw5dddd92fzj5ik6.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211120221005.png</strong> (359.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 22:17 上传
+
+ndwd还我文京<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
