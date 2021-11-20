@@ -2527,3 +2527,26 @@ imdb打分人数超过3.1万了，总排名再上升一位来到15，14就是瑞
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  新的起源  
+##### 1707#       发表于 2021-11-20 10:29
+
+我现在就怕整个皮城祖安互相理解合力对抗诺克萨斯这种又俗又烂的活<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  有优越感的人mk2  
+##### 1708#       发表于 2021-11-20 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53619892&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-20 10:29</a>
+
+我现在就怕整个皮城祖安互相理解合力对抗诺克萨斯这种又俗又烂的活
+
+  -- 来自 能手机投票的 Stage1 ...</blockquote>
+真要这么写剧本那真是无话可说，完全跟第一幕第二幕脱节<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
