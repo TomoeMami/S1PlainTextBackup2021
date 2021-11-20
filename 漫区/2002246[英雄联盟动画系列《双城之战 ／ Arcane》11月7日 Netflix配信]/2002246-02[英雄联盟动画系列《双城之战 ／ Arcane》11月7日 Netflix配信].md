@@ -5507,3 +5507,237 @@ Everything will not change。
 
 这部剧前面如果打9分的话，那最后这一炮可以直接升华为12分
 
+
+
+*****
+
+####  bartholo4  
+##### 2037#       发表于 2021-11-20 21:25
+
+ 本帖最后由 bartholo4 于 2021-11-20 21:30 编辑 
+
+这步影像化走的这么好
+加上有腾讯娱乐的资本
+说不定后面会直接出电影
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  六尺之下  
+##### 2038#       发表于 2021-11-20 21:27
+
+太强了，非游戏玩家被震撼到
+
+*****
+
+####  lucifer5455  
+##### 2039#       发表于 2021-11-20 21:28
+
+老实讲，电影有这部水平，绝对贡献票房。
+
+*****
+
+####  zxc786  
+##### 2040#       发表于 2021-11-20 21:29
+
+金克丝真滴太有魅力了，绝了。
+
+
+
+*****
+
+####  节艾司  
+##### 2041#       发表于 2021-11-20 21:30
+
+不用伤心，大火箭是斩杀伤害，打不死满血的人。
+
+*****
+
+####  chillstar  
+##### 2042#       发表于 2021-11-20 21:31
+
+ 本帖最后由 chillstar 于 2021-11-20 21:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实也有第二季的线索，乌鸦上位前后厄加特就要被派到祖安了
+
+不过还是停在这里就好
+
+*****
+
+####  筱原重工  
+##### 2043#       发表于 2021-11-20 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626161&amp;ptid=2002246" target="_blank">saynie 发表于 2021-11-20 20:03</a>
+青梅...呜呜...我的青梅</blockquote>
+这要是青梅的话这场景就太厉害了吧
+小时候青梅走了之后维克托玩自己做的小船，根本追不上，长大了用海克斯核心治好了腿，健步如飞超过一艘艘大船，回去赶紧做全身改造最后害死了青梅<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/7a29443e9918072dd5a2127ab842df81/IMG_CMP_132905064.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/1c5cf59858584926cdea7c80bbf2a660/IMG_CMP_166073489.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  六尺之下  
+##### 2044#       发表于 2021-11-20 21:31
+
+<img src="https://s3.bmp.ovh/imgs/2021/11/3322fb4364ade827.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿尔及利亚  
+##### 2045#       发表于 2021-11-20 21:32
+
+看杰斯打架差点忘记他也是猛男了，还以为是和维克托一样的弱鸡<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leyenda  
+##### 2046#       发表于 2021-11-20 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627276&amp;ptid=2002246" target="_blank">amanohanei 发表于 2021-11-20 21:17</a>
+
+游戏载入的时的彩蛋已经写明了狼人就叫范德尔</blockquote>
+那是P图，就没见过第二例
+
+*****
+
+####  bartholo4  
+##### 2047#       发表于 2021-11-20 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627441&amp;ptid=2002246" target="_blank">节艾司 发表于 2021-11-20 21:30</a>
+不用伤心，大火箭是斩杀伤害，打不死满血的人。</blockquote>
+这可是用上了海克斯科技的6级英雄单位打非武装平民，基础伤害就够喝了
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  彩虹肥宅  
+##### 2048#       发表于 2021-11-20 21:35
+
+我第一个用rmb买的英雄就是jinx<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+我真的好喜欢她
+
+*****
+
+####  bartholo4  
+##### 2049#       发表于 2021-11-20 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627450&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-20 21:31</a>
+这要是青梅的话这场景就太厉害了吧
+小时候青梅走了之后维克托玩自己做的小船，根本追不上，长大了用海克 ...</blockquote>
+其实青梅变灰那里维克托想砸核心又没有下手，我还以为他后面发现可以通过献祭他人让自己稳定的改造身体的方法了，后面要黑化
+结果第二天就拜托杰斯去销毁核心
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  芝士排骨  
+##### 2050#       发表于 2021-11-20 21:37
+
+制作上唯一的瑕疵就是艾克这个流量配音
+
+*****
+
+####  bairn  
+##### 2051#       发表于 2021-11-20 21:38
+
+有没有网飞中字的磁力链接，百度网盘也可以
+
+*****
+
+####  翻滚吧熊犊子  
+##### 2052#       发表于 2021-11-20 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在这么优秀 不知道拳头下一部剧集能否超越了 希望不是出道即颠峰啊；感觉艾欧尼亚，德玛西亚和诺克萨斯没有双城这么纠结的剧情啊
+
+*****
+
+####  Tjodrek  
+##### 2053#       发表于 2021-11-20 21:38
+
+ 本帖最后由 Tjodrek 于 2021-11-20 21:39 编辑 
+
+所以同样是小时候弱鸡自己犯错害死家人最后没人要的小屁孩，为啥艾克是个正常人<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">花了九集篇幅就讲了一个精神分裂患者如何杀死自己的另一个人格？
+
+*****
+
+####  amanohanei  
+##### 2054#       发表于 2021-11-20 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627460&amp;ptid=2002246" target="_blank">leyenda 发表于 2021-11-20 21:32</a>
+
+那是P图，就没见过第二例</blockquote>
+我记得我这两天玩看到了,应该不是记错了,我在留意留意
+
+*****
+
+####  有优越感的人mk2  
+##### 2055#       发表于 2021-11-20 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627533&amp;ptid=2002246" target="_blank">Tjodrek 发表于 2021-11-20 21:38</a>
+
+所以同样是小时候弱鸡自己犯错害死家人最后没人要的小屁孩，为啥艾克是个正常人 ...</blockquote>
+不能这么比啊，卡莎10岁掉入虚空靠着生吞虚空怪物活下来，这也没疯啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星名早苗  
+##### 2056#       发表于 2021-11-20 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627533&amp;ptid=2002246" target="_blank">Tjodrek 发表于 2021-11-20 21:38</a>
+
+所以同样是小时候弱鸡自己犯错害死家人最后没人要的小屁孩，为啥艾克是个正常人花了九集篇幅就讲了 ...</blockquote>
+有希尔科养着，虽然是真父爱但也真带坏
+
+*****
+
+####  暗示我7酱  
+##### 2057#       发表于 2021-11-20 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626514&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-20 20:27</a>
+
+我寻思这锤子没有别的加成吧，怎么杰斯拿上直接碾压那些微光强化人了……还有金克斯的被动也出来了 ...</blockquote>
+笑死，干掉二爹出被动了。被炼金强化后 金克斯为什么这么强好像也合理了，不过ADC的小身板还是没变
+
+*****
+
+####  Tjodrek  
+##### 2058#       发表于 2021-11-20 21:44
+
+这最后她自己说了她变疯的原因就是蔚不要她了，希尔科对她有影响是希尔科自己一厢情愿
+
+*****
+
+####  chillstar  
+##### 2059#       发表于 2021-11-20 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627531&amp;ptid=2002246" target="_blank">翻滚吧熊犊子 发表于 2021-11-20 21:38</a>
+
+现在这么优秀 不知道拳头下一部剧集能否超越了 希望不是出道即颠峰啊；感觉艾欧尼亚，德玛西亚和诺 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">艾欧尼亚影流、辛德拉，德玛西亚拉克丝，诺克萨斯锐雯的剧情都挺纠结的
+
+*****
+
+####  芝士排骨  
+##### 2060#       发表于 2021-11-20 21:46
+
+<img src="https://img.saraba1st.com/forum/202111/20/214622qik7l37a7efcqf7l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 21:46 上传
+
+*****
+
+####  plok201  
+##### 2061#       发表于 2021-11-20 21:49
+
+范德尔真的在实验室的话，这一想，希尔科去雕像那里喝酒就怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

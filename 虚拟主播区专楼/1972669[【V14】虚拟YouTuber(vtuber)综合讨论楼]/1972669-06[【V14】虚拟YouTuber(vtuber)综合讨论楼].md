@@ -13422,3 +13422,14 @@ Available for 1 day.
 hachi上了</blockquote>
 有小青蛙诶<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月孝三  
+##### 8511#       发表于 2021-11-20 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特地从エリア杯切过去看牛郎视点，总算是突破第一轮了
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

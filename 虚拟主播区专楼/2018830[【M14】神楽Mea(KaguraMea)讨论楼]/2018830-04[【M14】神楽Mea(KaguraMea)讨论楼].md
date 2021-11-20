@@ -7299,3 +7299,19 @@ cr这景品卖200，这玩偶也卖这个价格是真的不值，有这钱不如
 
 已经在考虑要不要彻底摆烂了，shit<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 5342#       发表于 2021-11-20 21:32
+
+没开苔总的会员，不清楚后面的联动
+
+*****
+
+####  路人庚  
+##### 5343#       发表于 2021-11-20 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">d群动，盒限改明天咯
+

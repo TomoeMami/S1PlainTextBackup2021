@@ -14128,3 +14128,17 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 —— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅版  ...</blockquote>
 飞起来前对准，起飞的时候不要打方向
 
+
+
+*****
+
+####  Vladimeow  
+##### 1285#       发表于 2021-11-20 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625974&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-20 19:49</a>
+
+越野赛飞起来落地，怎么保持平衡，总是左右来回晃。
+
+—— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅版  ...</blockquote>
+首先悬挂的调教要正常，然后上坡的时候头得对准
+
