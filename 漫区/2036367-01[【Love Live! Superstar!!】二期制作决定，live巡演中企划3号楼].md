@@ -8071,3 +8071,14 @@ FEjJ_6jaQAIGCXu.jfif
 
 今天solo有鲤鱼的liella之歌了，当然，在这楼某人眼里还是21首不换歌live
 
+
+
+*****
+
+####  lj205  
+##### 734#       发表于 2021-11-20 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53622822&amp;ptid=2036367" target="_blank">星降る森 发表于 2021-11-20 15:12</a>
+今天solo有鲤鱼的liella之歌了，当然，在这楼某人眼里还是21首不换歌live</blockquote>
+你就直接说是我呗，我说的话我不怕被翻，官方打脸我很高兴啊。
+
