@@ -11699,3 +11699,40 @@ CJ在不是很正常？人家总得交接工作的嘛~
 
 所有人不就只有文静刚过陈珺吗
 
+
+
+*****
+
+####  小憨1  
+##### 2770#       发表于 2021-11-21 00:47
+
+我倾向于CJ挂个名然后不管千鸟这边了
+
+*****
+
+####  rgauss  
+##### 2771#       发表于 2021-11-21 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你们这一讨论 隔壁nga的看到了 发散一会 贴吧又要回到cj版本
+
+*****
+
+####  小憨1  
+##### 2772#       发表于 2021-11-21 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">S1的五元盾阻挡了太多
+
+*****
+
+####  袜子  
+##### 2773#       发表于 2021-11-21 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">情弱车轱辘是网络世界的一环，习惯就好
+
+*****
+
+####  夜之中道崩殂  
+##### 2774#       发表于 2021-11-21 01:02
+
+陈珺版本全靠我了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
