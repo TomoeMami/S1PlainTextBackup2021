@@ -2903,3 +2903,107 @@ me.png
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  尼特子很辛苦哟  
+##### 1748#       发表于 2021-11-20 16:26
+
+rarbg上有资源了
+
+*****
+
+####  银枪子龙  
+##### 1749#       发表于 2021-11-20 16:30
+
+本来就算维克托拉胯些，中配和英配也是五五开，但加上艾克这真垃圾捧读，真的不行
+
+*****
+
+####  酱油康  
+##### 1750#       发表于 2021-11-20 16:32
+
+ 本帖最后由 酱油康 于 2021-11-20 16:36 编辑 
+
+妈的，艾克！！！！！！！！！！！！！！！！！！！太帅了啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊激动的说不出话，第七集结尾太炸了，帅到爆炸，两个人用小时候的方式对决，心有灵犀的歪嘴笑，啊啊啊啊啊啊啊啊啊啊啊啊啊啊阿
+
+<img src="https://img.saraba1st.com/forum/202111/20/163521j632u2366uya287h.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211120163458.png</strong> (76.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 16:35 上传
+
+*****
+
+####  老冰棍初号机  
+##### 1751#       发表于 2021-11-20 16:33
+
+艾克这中配也太傻逼了吧？我顶不住了，去看英文版了，本来觉得中文还行的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2173, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  银枪子龙  
+##### 1752#       发表于 2021-11-20 16:34
+
+梅尔哥哥没了是不是大坑啊，会不会是惹了乌鸦
+
+*****
+
+####  银枪子龙  
+##### 1753#       发表于 2021-11-20 16:35
+
+特色小吃
+
+*****
+
+####  阿刚  
+##### 1754#       发表于 2021-11-20 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">妈的adc哪来的勇气和法刺站桩输出啊
+
+*****
+
+####  亚可（本人）  
+##### 1755#       发表于 2021-11-20 16:37
+
+梅尔家不会惹到乌鸦了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  银枪子龙  
+##### 1756#       发表于 2021-11-20 16:38
+
+果然炼金是大恶人
+
+*****
+
+####  CCCCCC梵  
+##### 1757#       发表于 2021-11-20 16:40
+
+乌鸦搞三权不是清算一大票吗 也算是个背锅位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  泡吧_  
+##### 1758#       发表于 2021-11-20 16:41
+
+艾克太帅了！
+
+*****
+
+####  与天争锋_LZ  
+##### 1759#       发表于 2021-11-20 16:43
+
+第7集这结尾插曲也太性感了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

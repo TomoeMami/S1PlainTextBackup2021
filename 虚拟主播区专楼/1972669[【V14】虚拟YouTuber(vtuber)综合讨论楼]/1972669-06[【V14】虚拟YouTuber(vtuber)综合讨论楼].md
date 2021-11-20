@@ -13276,3 +13276,16 @@ https://youtu.be/LMTmboEANqQ
 省一楼，郡郡不队练跑来t台怒喷郡妈还被田中姐姐听到了我. ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老师也是为了队练压缩旅游时间，挺拼的，abb队伍比X段队出线形势好
 
+
+
+*****
+
+####  rzrbtk  
+##### 8499#       发表于 2021-11-20 16:28
+
+<blockquote>winda 发表于 2021-11-20 16:16
+老师也是为了队练压缩旅游时间，挺拼的，abb队伍比X段队出线形势好</blockquote>
+怎么说呢，听圭利和郡道说的就是，对行程发现每个时段都有至少两个人合不上的时候就已经两眼一黑了，我是不奢望奇迹发生了，郡郡自己也明白的。反正这队就是，为哈哥3D应援，昨天其实已经实质成功惹…
+
+我猜这回喷喷胜者也会是主办方吧，就跟apex大会一样
+
