@@ -11383,3 +11383,12 @@ cnm这省略吓死我了
 syl我当年做阑尾炎手术的时候还是正经开刀没微创，我怀疑是文静憋太久才去检查导致炎症扩大所以动刀了，躺一个月也正常（嘿嘿嘿，静静身上有和我一样的刀疤捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">）
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tankai  
+##### 2736#       发表于 2021-11-20 13:46
+
+疼了我帮她揉揉。
+

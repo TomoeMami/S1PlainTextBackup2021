@@ -1100,3 +1100,17 @@ moderna的booster好像第三针只有半剂</blockquote>
 
 前阵子那个出境体检，大夫也没说需要打第三针，于是就一直没打
 
+
+
+*****
+
+####  沉默之声  
+##### 114#       发表于 2021-11-20 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597925&amp;ptid=2038124" target="_blank">Maestro 发表于 2021-11-18 17:04</a>
+
+这不是novavax根本就是虚空疫苗么，要是有机会回国我宁愿去补一针智飞（
+
+至少法国人根据本国数据认为俩mRN ...</blockquote>
+看药厂对心肌炎药物的预期就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
