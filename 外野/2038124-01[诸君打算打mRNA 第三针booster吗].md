@@ -1057,3 +1057,14 @@ moderna的booster好像第三针只有半剂</blockquote>
 现在打过疫苗回国的政策不是有疫苗接种证明和抗体检测就行了么</blockquote>
 短时间内mrna疫苗不是会lgm蛋白阳性么
 
+
+
+*****
+
+####  CR2  
+##### 110#       发表于 2021-11-20 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打个疫苗怎么那么多有的没的，又不要钱
+
+1、2、3针全是第一批接种人员赶来嘲笑
+

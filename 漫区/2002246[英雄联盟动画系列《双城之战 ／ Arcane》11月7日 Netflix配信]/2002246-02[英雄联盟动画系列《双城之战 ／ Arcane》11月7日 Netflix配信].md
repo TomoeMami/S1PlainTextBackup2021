@@ -2647,3 +2647,21 @@ jakelove（s8限定）得到史诗加强<img src="https://static.saraba1st.com/i
 现在最难处理的是V的心境变化，一个痛恨皮城和执法官的人，怎么才能让她合理地自愿成为皮城执法官，如果 ...</blockquote>
 艾克对v的台词里就有说她是叛徒啊
 
+
+
+*****
+
+####  战场公主希维尔  
+##### 1719#       发表于 2021-11-20 11:50
+
+还有四小时。<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  球獭  
+##### 1720#       发表于 2021-11-20 12:03
+
+可惜只有三周，想再看一会儿评论区<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
