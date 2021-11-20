@@ -19686,3 +19686,25 @@ kos-mos.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 莉亚拉靠手游加成悄悄滴上分，哪天超过曾经单杀里昂的库拉托斯也不是不可能。
 
+
+
+*****
+
+####  肛之练筋士  
+##### 5949#       发表于 2021-11-20 20:13
+
+在今天举办的「传说祭2021」活动上，官方正式宣布《破晓传说》将舞台剧化，预定于2022年3月26日·27日公演，部分出演名单如下：
+
+奥尔芬 未定
+
+希侬　飯窪 春菜
+
+琳薇尔　和内 璃乃
+
+洛　大平 峻也
+
+奇沙兰　横田 ひかる
+
+杜欧哈林　岩永 徹也
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

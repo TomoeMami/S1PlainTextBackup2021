@@ -1158,3 +1158,36 @@ moderna的booster好像第三针只有半剂</blockquote>
 
 按现在这个情况 半年一打难道要一直打下去? 
 
+
+
+*****
+
+####  烦死了  
+##### 119#         楼主| 发表于 2021-11-20 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624320&amp;ptid=2038124" target="_blank">Redis 发表于 2021-11-20 17:34</a>
+我补了辉瑞第三针
+
+现在快10个小时了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 那下次混搭moderna
+
+*****
+
+####  lokibear  
+##### 120#       发表于 2021-11-20 20:18
+
+我第二针辉瑞10月1打的 打完第二周觉得浑身不怎么舒服
+
+现在好些了 但还是有些奇奇怪怪的症状 比如有时候人会发冷 有时候嗜睡 
+
+booster我是不想去打了
+
+
+
+*****
+
+####  xuzy0919  
+##### 121#       发表于 2021-11-20 20:21
+
+等公司统一安排打，前两针都是科兴，第三针能打还是打科兴
+

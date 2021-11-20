@@ -4942,3 +4942,120 @@ VI的打戏真的太爽了<img src="https://static.saraba1st.com/image/smiley/fa
 
 jinx亲手刀自己两个爹，黑转路人了
 
+
+
+*****
+
+####  theti  
+##### 1977#       发表于 2021-11-20 20:03
+
+第二季有消息吗，身上有食蚁兽
+
+*****
+
+####  ky7913  
+##### 1978#       发表于 2021-11-20 20:04
+
+7～9imdb小分速报9.7、9.8、9.6，虽然还只是双位人数的打分
+
+*****
+
+####  战场公主希维尔  
+##### 1979#       发表于 2021-11-20 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625969&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-20 19:49</a>
+
+蔚jinx女警三角恋真是厉害了，尤其是jinx的脑补，凯特琳真是罪孽深重，平安双城提醒您警惕女酮jinx ...</blockquote>
+第七集战吧狂喜
+
+*****
+
+####  qingshuihe  
+##### 1980#       发表于 2021-11-20 20:08
+
+真正的adc，金克斯爆杀所有人，虚假的adc，女警，她不爱我了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我不是大叔  
+##### 1981#       发表于 2021-11-20 20:08
+
+祖安的未来真就看艾克了，纯纯的祖安之子
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  唧唧歪歪办事处  
+##### 1982#       发表于 2021-11-20 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626172&amp;ptid=2002246" target="_blank">ky7913 发表于 2021-11-20 20:04</a>
+
+7～9imdb小分速报9.7、9.8、9.6，虽然还只是双位人数的打分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这几集画面,音乐,镜头满中满分.
+
+ 就是最后吊人胃口很急
+
+*****
+
+####  飞升之后  
+##### 1983#       发表于 2021-11-20 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626242&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-20 20:09</a>
+
+这几集画面,音乐,镜头满中满分.
+
+ 就是最后吊人胃口很急</blockquote>
+不，要给断章狗差评<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yujohn  
+##### 1984#       发表于 2021-11-20 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626172&amp;ptid=2002246" target="_blank">ky7913 发表于 2021-11-20 20:04</a>
+
+7～9imdb小分速报9.7、9.8、9.6，虽然还只是双位人数的打分</blockquote>
+才几分钟就变成9.7，9.9和10.0了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PokerFaceSmile  
+##### 1985#       发表于 2021-11-20 20:16
+
+拳头真是喜欢这套啊，嘉文三世也是在议和前死于弑君突刺<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有优越感的人mk2  
+##### 1986#       发表于 2021-11-20 20:17
+
+这后三集值得多看两遍，质量是真高
+
+*****
+
+####  飞升之后  
+##### 1987#       发表于 2021-11-20 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626357&amp;ptid=2002246" target="_blank">PokerFaceSmile 发表于 2021-11-20 20:16</a>
+
+拳头真是喜欢这套啊，嘉文三世也是在议和前死于弑君突刺</blockquote>
+还有更经典的黄鸡和泽拉斯，那才是真经典，那个故事文案算是我最喜欢的一篇拳头文案了
+
+*****
+
+####  战场公主希维尔  
+##### 1988#       发表于 2021-11-20 20:19
+
+逛贴吧看笑了
+
+<img src="https://img.saraba1st.com/forum/202111/20/201910g8d8qpy8dnpp1e1c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-39t2Qja0-5l6wK24T3cSlc-sg.jpeg</strong> (75.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 20:19 上传
+
