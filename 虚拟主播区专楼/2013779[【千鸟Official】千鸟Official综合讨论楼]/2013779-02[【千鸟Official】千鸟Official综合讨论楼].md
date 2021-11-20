@@ -11753,3 +11753,17 @@ CJ在不是很正常？人家总得交接工作的嘛~
 <blockquote>“骂我！”“🔥货！见货！碧池！lkd！🌟奴！...”
 房间充满了肉体碰撞的声音和ndwd不堪入耳的辱骂声，文静感受到肉体和心灵的双重满足，仿佛回到了直播间....</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2777#       发表于 2021-11-21 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629737&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-21 00:55</a>
+
+你们这一讨论 隔壁nga的看到了 发散一会 贴吧又要回到cj版本
+
+syl.主要现在贴吧的炒cp版本挺好笑的 c ...</blockquote>
+ndwd天天cue文静，文静又不播，可不就剩炒cp了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -7177,3 +7177,59 @@ jinx在化工厂大爆炸前就有精神问题，后面的事只能说是诱因�
 第二维克托，第三蔚，。。。杰斯垫底</blockquote>
 噗哈哈，杰斯做了所有正确的选择，然而所有人都厌恶杰斯，错的到底是杰斯还是这个世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2202#       发表于 2021-11-21 01:31
+
+“叫我塔利斯议员”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仿佛知道大家都喜欢这个梗一样特地又来了一句
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  狼影者瑞德克斯  
+##### 2203#       发表于 2021-11-21 01:33
+
+梅尔最后给了个镜头，身上金纹亮起不会是什么保命魔法吧？毕竟特意给了个裸背镜头都要展示这个金纹，总要提供什么信息吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  镜面の云  
+##### 2204#       发表于 2021-11-21 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53630018&amp;ptid=2002246" target="_blank">碎片整理 发表于 2021-11-21 01:25</a>
+
+噗哈哈，杰斯做了所有正确的选择，然而所有人都厌恶杰斯，错的到底是杰斯还是这个世界 ...</blockquote>
+大家只是不想在虚构故事里还要感受现实自身的无能为力
+
+要是杰斯能抄起锤子二话不说EQWRQAAAE直接清理掉所有的问题那也能是人气第一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  masariro  
+##### 2205#       发表于 2021-11-21 01:34
+
+我觉得杰斯亲自去摧毁制作微光的工厂这个情节很好。
+
+第八集当蔚离开，女警追出去说一起想想办法时。我觉得还有什么办法呢，矛盾激化都到这个程度了。
+
+要谈吗？要皮尔吉沃特的人放弃一直以来享有的生活，只是为了让黑巷的人过上更好的日子？
+
+要打吗？要打也是议员下达命令让手下去执行罢了。
+
+当杰斯失手打死那个童工的时候，我明白为什么会有比尔吉沃特和黑巷如今的局面，为什么放任黑巷这个鬼样子了。
+
+因为做决定的人没有在现场。
+
+*****
+
+####  freka  
+##### 2206#       发表于 2021-11-21 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53630079&amp;ptid=2002246" target="_blank">狼影者瑞德克斯 发表于 2021-11-21 01:33</a>
+梅尔最后给了个镜头，身上金纹亮起不会是什么保命魔法吧？毕竟特意给了个裸背镜头都要展示这个金纹，总要提 ...</blockquote>
+我觉得这特写是为了表现出她是必死的
+
