@@ -8098,3 +8098,26 @@ FEjJ_6jaQAIGCXu.jfif
 【朗報】ウマ娘死亡【祝勝】
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是一帮贱批，笑歪了
 
+
+
+*****
+
+####  离心  
+##### 736#       发表于 2021-11-20 16:15
+
+嗨，正常。如果又反转那群人八成又是新的说辞了
+
+*****
+
+####  iuhehc  
+##### 737#       发表于 2021-11-20 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53623241&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-11-20 15:56</a>
+
+几日没去逛拉板，早几日马娘吹风上红白时这帮人在发自嘲意味浓厚的
+
+【朗報】ウマ娘、紅白濃厚
+
+今天一看变成 ...</blockquote>
+笑死
+

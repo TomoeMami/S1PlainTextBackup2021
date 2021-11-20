@@ -13253,3 +13253,26 @@ https://youtu.be/LMTmboEANqQ
 この箱息苦しいよ😢</blockquote>
 虾勇每天练8小时，叶山队练前先单独练习12小时，这次喷喷大会也一样这么卷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 8497#       发表于 2021-11-20 16:03
+
+之前看郡图透，新衣服有点像米浴，可不敢乱蹭...
+
+省一楼，郡郡不队练跑来t台怒喷郡妈还被田中姐姐听到了我...只能祈祷今晚不要输太难看了...
+
+*****
+
+####  winda  
+##### 8498#       发表于 2021-11-20 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53623328&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-11-20 16:03</a>
+
+之前看郡图透，新衣服有点像米浴，可不敢乱蹭...
+
+省一楼，郡郡不队练跑来t台怒喷郡妈还被田中姐姐听到了我. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老师也是为了队练压缩旅游时间，挺拼的，abb队伍比X段队出线形势好
+

@@ -1114,3 +1114,12 @@ moderna的booster好像第三针只有半剂</blockquote>
 至少法国人根据本国数据认为俩mRN ...</blockquote>
 看药厂对心肌炎药物的预期就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  乌鸫  
+##### 115#       发表于 2021-11-20 16:18
+
+两针辉瑞加moderna booster，躺了一天，希望有用
+
