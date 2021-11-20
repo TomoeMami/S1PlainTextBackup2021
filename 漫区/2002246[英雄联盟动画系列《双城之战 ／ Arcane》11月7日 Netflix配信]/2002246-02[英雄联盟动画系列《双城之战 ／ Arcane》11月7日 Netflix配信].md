@@ -5326,3 +5326,184 @@ bangumi看了一眼，果不其然又开始了，唉
 
 Jinx cpu超频杀死希尔科后，自己做出了选择成为jinx，连带着精神好像也稳定了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，真好来自: iPhone客户端
 
+
+
+*****
+
+####  ky7913  
+##### 2019#       发表于 2021-11-20 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626318&amp;ptid=2002246" target="_blank">yujohn 发表于 2021-11-20 20:14</a>
+
+才几分钟就变成9.7，9.9和10.0了</blockquote>
+太可怕了
+
+*****
+
+####  hallowilliam  
+##### 2020#       发表于 2021-11-20 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626963&amp;ptid=2002246" target="_blank">astrayveller 发表于 2021-11-20 20:57</a>
+
+希尔科到最后终于理解了范达尔然后又被金克斯打死了 这娃天生克爹是吧 ...</blockquote>
+有一说一范德尔的人头算不到金克斯1吧，最多算个助攻。
+
+*****
+
+####  有优越感的人mk2  
+##### 2021#       发表于 2021-11-20 21:08
+
+应该是不会有第二期了，或者说皮城祖安的故事到此为止了，因为后续剧情已经接上人物传记了
+
+*****
+
+####  wcorvo  
+##### 2022#       发表于 2021-11-20 21:10
+
+可耻伸手求个最后三集的网盘资源<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">BT下载不下来啊
+
+*****
+
+####  Mchaos  
+##### 2023#       发表于 2021-11-20 21:10
+
+ 本帖最后由 Mchaos 于 2021-11-20 21:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627024&amp;ptid=2002246" target="_blank">百合豚 发表于 2021-11-20 20:59</a>
+结局真的精彩，没有落入烂俗，结尾vi不能为了jinx放弃凯特琳，但是jinx可以为了vi射杀自己的养父，最终vi和 ...</blockquote>
+杀希尔科的是爆爆，也杀了最后的爆爆。然后完全体金克丝诞生了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qxs  
+##### 2024#       发表于 2021-11-20 21:12
+
+<blockquote>wcorvo 发表于 2021-11-20 21:10
+可耻伸手求个最后三集的网盘资源BT下载不下来啊</blockquote>
+用网盘离线下载呗
+
+*****
+
+####  有优越感的人mk2  
+##### 2025#       发表于 2021-11-20 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627192&amp;ptid=2002246" target="_blank">wcorvo 发表于 2021-11-20 21:10</a>
+
+可耻伸手求个最后三集的网盘资源BT下载不下来啊</blockquote>
+[https://www.aliyundrive.com/s/PR ... 5989c8b2eadd0cf9042](https://www.aliyundrive.com/s/PRsQgVBPM9G/folder/61875e6b01ea563ad50b45989c8b2eadd0cf9042)
+
+*****
+
+####  三个尻枪手  
+##### 2026#       发表于 2021-11-20 21:15
+
+一切都是命运的作弄
+
+什么都不会改变
+
+Everything will not change。
+
+*****
+
+####  amanohanei  
+##### 2027#       发表于 2021-11-20 21:15
+
+一个是艾克和金克斯在桥上战斗的回溯场面
+
+一个大头在看到艾克种的树之后惊呼  '你怎么能在这么短暂的生命里完成这么雄伟的发明?'
+
+我感觉编剧的意思是此时的艾克已经有了时间回溯的能力了?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过好像那个海克斯罐子后面被拿走了,可能是想多了吧
+
+*****
+
+####  amanohanei  
+##### 2028#       发表于 2021-11-20 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625804&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-20 19:37</a>
+
+所以这三集哪里有范德尔是狼人的实锤？</blockquote>
+游戏载入的时的彩蛋已经写明了狼人就叫范德尔
+
+*****
+
+####  弗林蒂萨  
+##### 2029#       发表于 2021-11-20 21:18
+
+谁给你们保证说有第二季啦，或者有的话还是双城故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+拍艾欧尼亚抵抗诺克萨斯侵略那段不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  筱原重工  
+##### 2030#       发表于 2021-11-20 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627024&amp;ptid=2002246" target="_blank">百合豚 发表于 2021-11-20 20:59</a>
+
+结局真的精彩，没有落入烂俗，结尾vi不能为了jinx放弃凯特琳，但是jinx可以为了vi射杀自己的养父，最终vi和 ...</blockquote>
+不能按照精神病的标准要求蔚啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪怕不是凯特琳而是从大街上随便拉一个人，蔚也不可能说杀就杀了
+
+*****
+
+####  新的起源  
+##### 2031#       发表于 2021-11-20 21:19
+
+抽了一辈子烟，然后你想戒烟了，你的肺答应了，但肺癌不答应了
+
+金克丝就是肺癌
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tianfeng1007  
+##### 2032#       发表于 2021-11-20 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627249&amp;ptid=2002246" target="_blank">amanohanei 发表于 2021-11-20 21:15</a>
+
+一个是艾克和金克斯在桥上战斗的回溯场面
+
+一个大头在看到艾克种的树之后惊呼  '你怎么能在这么短暂的生命里 ...</blockquote>
+回溯的明显是小时候艾克和金克斯一起玩的游戏啊 
+
+小的时候艾克身体弱躲不开子弹 当然也预示了艾克的能力
+
+大头那个应该是表达大头长生种对人类短暂生命的看法开始转变吧
+
+*****
+
+####  lost_恩恩  
+##### 2033#       发表于 2021-11-20 21:19
+
+<blockquote>amanohanei 发表于 2021-11-20 21:15
+一个是艾克和金克斯在桥上战斗的回溯场面
+
+一个大头在看到艾克种的树之后惊呼  '你怎么能在这么短暂的生命里 ...</blockquote>
+回溯场面玩的是个对比？小时候两人就这么玩过，参见火影卡卡西vs带土那段，和时间回溯没什么关系
+
+*****
+
+####  QAQAQA11  
+##### 2034#       发表于 2021-11-20 21:21
+
+看炼金和维克托的对话，他以前还和黑默丁格一起共事过？
+
+*****
+
+####  厄神之息  
+##### 2035#       发表于 2021-11-20 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627163&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-11-20 21:08</a>
+
+应该是不会有第二期了，或者说皮城祖安的故事到此为止了，因为后续剧情已经接上人物传记了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">那拳头就快点更新宇宙上的背景啊，现在动画剧集相关人物的背景故事和动画里全都驴唇不对马嘴的，又没有正确的背景故事，又不搞第二季把后面的事讲清楚，这是要憋死我们？
+
+*****
+
+####  病少爷  
+##### 2036#       发表于 2021-11-20 21:21
+
+这部剧前面如果打9分的话，那最后这一炮可以直接升华为12分
+

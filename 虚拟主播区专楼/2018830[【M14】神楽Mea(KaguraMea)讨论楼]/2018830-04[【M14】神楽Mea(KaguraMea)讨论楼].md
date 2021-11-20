@@ -7288,3 +7288,14 @@ cr这景品卖200，这玩偶也卖这个价格是真的不值，有这钱不如
 
 我都忘了今天是day几了
 
+
+
+*****
+
+####  时间在我手中  
+##### 5341#       发表于 2021-11-20 21:15
+
+已经月底了，接下来的一周估计又是联动连发
+
+已经在考虑要不要彻底摆烂了，shit<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
