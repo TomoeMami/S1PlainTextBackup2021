@@ -2566,3 +2566,52 @@ imdb打分人数超过3.1万了，总排名再上升一位来到15，14就是瑞
 
 新版本感觉炼金龙魂也是个很恶心的玩意，全员秽土重生，突出一个变态
 
+
+
+*****
+
+####  飞升之后  
+##### 1711#       发表于 2021-11-20 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53620130&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-20 10:54</a>
+
+新版本感觉炼金龙魂也是个很恶心的玩意，全员秽土重生，突出一个变态</blockquote>
+复活肯定要被削的，活不到正式开季
+
+*****
+
+####  飞升之后  
+##### 1712#       发表于 2021-11-20 11:11
+
+话说新赛季正式开始什么时候，新的赛季CG什么时候。。。去年为了配合破败小丑，其实赛季CG不够尽兴
+
+*****
+
+####  伊森温特斯  
+##### 1713#       发表于 2021-11-20 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53620130&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-20 10:54</a>
+新版本感觉炼金龙魂也是个很恶心的玩意，全员秽土重生，突出一个变态</blockquote>
+jakelove（s8限定）得到史诗加强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 1714#       发表于 2021-11-20 11:16
+
+<blockquote>飞升之后 发表于 2021-11-20 11:11
+话说新赛季正式开始什么时候，新的赛季CG什么时候。。。去年为了配合破败小丑，其实赛季CG不够尽兴 ...</blockquote>
+越想越气，给这个败家玩意倾斜了多少资源，最后出来是这么个怪物小丑。连带着现在那个rpg都受影响，本身游戏做的真的不错的
+
+*****
+
+####  狼影者瑞德克斯  
+##### 1715#       发表于 2021-11-20 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53619892&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-20 10:29</a>
+
+我现在就怕整个皮城祖安互相理解合力对抗诺克萨斯这种又俗又烂的活
+
+  -- 来自 能手机投票的 Stage1 ...</blockquote>
+现在最难处理的是V的心境变化，一个痛恨皮城和执法官的人，怎么才能让她合理地自愿成为皮城执法官，如果处理不好，祖安叛徒的帽子就戴好吧
+
