@@ -3150,3 +3150,109 @@ rarbg上有资源了</blockquote>
 
 那个搞梅尔家族的应该确实是乌鸦了
 
+
+
+*****
+
+####  annasa  
+##### 1776#       发表于 2021-11-20 17:08
+
+第八集这个结尾<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">是玩过游戏的要大喊的帅
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aurraro  
+##### 1777#       发表于 2021-11-20 17:08
+
+第九集多长？
+
+*****
+
+####  银枪子龙  
+##### 1778#       发表于 2021-11-20 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624031&amp;ptid=2002246" target="_blank">aurraro 发表于 2021-11-20 17:08</a>
+
+第九集多长？</blockquote>
+40分钟
+
+*****
+
+####  lucifer5455  
+##### 1779#       发表于 2021-11-20 17:10
+
+这蔚要是个男的，感觉就成了蔚的后宫片了，金克丝和女警就是典型的青梅大战天降啊
+
+*****
+
+####  银枪子龙  
+##### 1780#       发表于 2021-11-20 17:10
+
+最后希尔科成了范德尔，一个轮回
+
+*****
+
+####  有优越感的人mk2  
+##### 1781#       发表于 2021-11-20 17:10
+
+现在有没有英语中字云盘资源了？都不敢看楼里回复怕被剧透了
+
+*****
+
+####  亚可（本人）  
+##### 1782#       发表于 2021-11-20 17:13
+
+草，蔚两件套立马回去打回场子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  theti  
+##### 1783#       发表于 2021-11-20 17:15
+
+金克丝复活第一件事去找女警，这也太扭了
+
+*****
+
+####  我不是大叔  
+##### 1784#       发表于 2021-11-20 17:17
+
+艹艾克也太jb帅了吧，脑海里那个有点谐的形象瞬间没了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  银枪子龙  
+##### 1785#       发表于 2021-11-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624091&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-20 17:15</a>
+
+金克丝复活第一件事去找女警，这也太扭了</blockquote>
+金克丝复活第一件事不是打晕蔚吗
+
+*****
+
+####  亚可（本人）  
+##### 1786#       发表于 2021-11-20 17:21
+
+蔚你被打晕几回了啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Roedeer  
+##### 1787#       发表于 2021-11-20 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53623549&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-20 16:25</a>
+我拉到最后看了一眼
+
+断章狗罪该万死</blockquote>
+看完了，我同意你说的，断章狗能不能快死啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
