@@ -6319,3 +6319,141 @@ v和希尔科都是刚开始对范德尔的那一套老大理论嗤之以鼻，�
 
 果然还是有删减，不过无伤大雅，现在知道的一个是给眼睛打针镜头改了，一个小女孩斩首镜头删除了
 
+
+
+*****
+
+####  摸鱼先锋  
+##### 2118#       发表于 2021-11-20 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628440&amp;ptid=2002246" target="_blank">unclea 发表于 2021-11-20 22:59</a>
+
+桥上是有点怪，一般这情况不该是v留下来断后，让滑板带女警走。虽然结果肯定还是聊爆 ...</blockquote>
+对啊，你蔚也是个祖安人跟艾克也没啥区别，让艾克带着水晶跟女警走有啥不行的呢？虽然怎么都不可能带回来爆爆还说不定加速金克丝疯魔程度，但这么一拍屁股走了再加上456集大量的小蛋糕桥段很难不让我觉得违和
+
+*****
+
+####  MaskedBlade  
+##### 2119#       发表于 2021-11-20 23:07
+
+看完有点失望，我觉得剧情是崩了，跟有没做完没有关系，就是逻辑上收不住了
+
+不过动画的部分还是很棒，可惜了
+
+*****
+
+####  kiririno  
+##### 2120#       发表于 2021-11-20 23:08
+
+桥上那段还是有些强行，再怎么说也是你盼了好些年的妹妹，一开始接受不了本能逃避就罢了，但后来手雷都爆了，妹妹和发小生死未卜，vi还跟没事人一样搁那观望，后面两集也没表现出啥关心他们死活的态度，该忙啥忙啥，对比之下，也难怪有些人会觉得希尔克更爱jinx了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摸鱼先锋  
+##### 2121#       发表于 2021-11-20 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628564&amp;ptid=2002246" target="_blank">kiririno 发表于 2021-11-20 23:08</a>
+
+桥上那段还是有些强行，再怎么说也是你盼了好些年的妹妹，一开始接受不了本能逃避就罢了，但后来手雷都爆了 ...</blockquote>
+没记错的话还特意加了凯特琳蔚床上聊骚时候金克丝被猥琐大叔注射神必液体的画面吧，这恶意简直溢出来了，同样这么处理的杰斯梅尔维克托桥段杰斯被骂成狗了，蔚风评一点没被害到只能说对比强烈了
+
+*****
+
+####  百合豚  
+##### 2122#       发表于 2021-11-20 23:12
+
+唉，意难平，精彩，但是不畅快，看完了感觉心里堵着了，怎么最后成了这样呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goiler_0  
+##### 2123#       发表于 2021-11-20 23:14
+
+有没有不是hevc的资源, 楼上给的全部只有声音没图像<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊森温特斯  
+##### 2124#       发表于 2021-11-20 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628633&amp;ptid=2002246" target="_blank">goiler_0 发表于 2021-11-20 23:14</a>
+有没有不是hevc的资源, 楼上给的全部只有声音没图像</blockquote>
+不求收藏的话，黄鱼3块钱买3天VIP不就完事了……
+
+*****
+
+####  kiririno  
+##### 2125#       发表于 2021-11-20 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628607&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-20 23:12</a>
+
+没记错的话还特意加了凯特琳蔚床上聊骚时候金克丝被猥琐大叔注射神必液体的画面吧，这恶意简直溢出来了， ...</blockquote>
+jinx意识模糊时的幻觉还扭曲的不行，太搞了
+
+*****
+
+####  goiler_0  
+##### 2126#       发表于 2021-11-20 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628651&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-20 23:16</a>
+
+不求收藏的话，黄鱼3块钱买3天VIP不就完事了……</blockquote>
+我看完了, 想下下来..
+
+*****
+
+####  暗黑能乐  
+##### 2127#       发表于 2021-11-20 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说实话，按照现在LOR是后日谈来看的话，金克丝这发火箭怕是没炸死人，不然凯特琳和蔚也不会一股子任她胡闹的样，特别是蔚和金克丝，没有现在这么深的鸿沟的，金克丝也还是一脸姐控，虽然疯了。
+
+*****
+
+####  theti  
+##### 2128#       发表于 2021-11-20 23:18
+
+别搞的都是vi的错呀，归根结底还不是jinx天生神经质，屁大点事都要死要活的，这样的小屁孩实在太麻烦了
+
+*****
+
+####  新八  
+##### 2129#       发表于 2021-11-20 23:21
+
+看完了。好得不真实。感觉在这就是拳头的钢铁侠1。
+
+*****
+
+####  名津流  
+##### 2130#       发表于 2021-11-20 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628633&amp;ptid=2002246" target="_blank">goiler_0 发表于 2021-11-20 23:14</a>
+
+有没有不是hevc的资源, 楼上给的全部只有声音没图像</blockquote>
+装一个 VLC media player播放器，保证能播x265格式的
+
+不过x264的也有：
+
+Arcane.S01E09.The.Monster.You.Created.1080p.NF.WEBRip.DDP5.1.x264-TEPES[rartv]
+
+magnet:?xt=urn:btih:85407ec02607e2601866369e770390efd1b52d69
+
+Arcane.S01E08.Oil.and.Water.1080p.NF.WEBRip.DDP5.1.x264-TEPES[rartv]
+
+magnet:?xt=urn:btih:bd808cd18de3ea8b2f4514933a4f3635a5141d05
+
+Arcane.S01E07.The.Boy.Savior.1080p.NF.WEBRip.DDP5.1.x264-TEPES[rartv]
+
+magnet:?xt=urn:btih:f3c48dfa8fd3afa03802b540aa8e2883bda5282c
+
+
+
+*****
+
+####  有优越感的人mk2  
+##### 2131#       发表于 2021-11-20 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628671&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-20 23:18:11</a>
+说实话，按照现在LOR是后日谈来看的话，金克丝这发火箭怕是没炸死人，不然凯特琳和蔚也不会一股子任她胡闹 ...</blockquote>lor好像是if线
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -13480,3 +13480,34 @@ bora大福参加的这个BF主播宣传赛
 
 不是，10万还嫌不多吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 8517#       发表于 2021-11-20 23:08
+
+喷喷10万还有什么不满意的
+
+*****
+
+####  秋月孝三  
+##### 8518#       发表于 2021-11-20 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以風呂的ブキパワー想靠赛前酬勤每天得苦练30小时以上吧
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  fastary  
+##### 8519#       发表于 2021-11-20 23:19
+
+黑客这，明明是参加官方宣传联动大会结果先是找不到人组队后是加不上AI结果实质沦为solo直播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">syl
+
+黑客说想参加年末马车杯诶，还随口补了一句“毕竟马车是个人的竞赛”，难道他真的对社内组队竞赛产生阴影了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然听到的时候很期待不过看喷喷这情况，想到以他一向的习惯估计就是参加也不会酬勤，估计也是一轮游<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+还是不要多做期待为好，不过换句话说也体会不到临阵磨枪结果被暴打的失望也挺好……吧
+
