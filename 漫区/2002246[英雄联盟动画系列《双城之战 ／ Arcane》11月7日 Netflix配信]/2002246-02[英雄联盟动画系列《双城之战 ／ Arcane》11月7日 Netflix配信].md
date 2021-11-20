@@ -6692,3 +6692,240 @@ LOL世界观的魔法师是什么设定，第二集法庭提到魔法师都好�
 
 祖安是不是从皮城旁边的矿场慢慢发展成现在这样的，看希尔科对炼金男爵们说的，似乎几十年前还只是矿场，是他和范德尔带着发展壮大成现在的祖安的，或者说他们建立的只是黑巷，这里算是祖安中心？
 
+
+
+*****
+
+####  ルティナ  
+##### 2157#       发表于 2021-11-21 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629252&amp;ptid=2002246" target="_blank">Paradox7 发表于 2021-11-21 00:04</a>
+祖安是不是从皮城旁边的矿场慢慢发展成现在这样的，看希尔科对炼金男爵们说的，似乎几十年前还只是矿场，是 ...</blockquote>
+最早是一个城市
+后来遇到了地震还是海啸什么的祖安那块地基下沉了就变成现在这样了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  hallowilliam  
+##### 2158#       发表于 2021-11-21 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628337&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-20 22:52</a>
+
+趴在地上想了想，其实剧情也算是合理吧
+
+v和jinx有个根本都不同就是之前v讨厌的，范德尔的“大局观”</blockquote>
+话说既然要打英文，Vi和Cait起码不要打错吧。。。
+
+*****
+
+####  镜面の云  
+##### 2159#       发表于 2021-11-21 00:09
+
+ 本帖最后由 镜面の云 于 2021-11-21 00:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629252&amp;ptid=2002246" target="_blank">Paradox7 发表于 2021-11-21 00:04</a>
+
+祖安是不是从皮城旁边的矿场慢慢发展成现在这样的，看希尔科对炼金男爵们说的，似乎几十年前还只是矿场，是 ...</blockquote>
+按设定，符文大陆和恕瑞玛大陆之间有一道地峡，地峡上有一座港口城市叫祖安，作为两个大陆之间通商口岸，也有矿场但之后大家有钱了想发展，开挖运河，用炸药爆破，结果出了事故发生了大规模塌陷一部分城市沉了下去几乎完蛋，在靠着信仰神迦娜的庇护下没彻底毁掉
+
+最后塌陷的部分还叫祖安，没塌陷的部分就该叫皮尔特沃夫
+
+*****
+
+####  筱原重工  
+##### 2160#       发表于 2021-11-21 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629245&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-21 00:03</a>
+我的意思是英雄特征，金克斯杰斯女警维克托的英雄特征都有苗头了
+
+蔚还不知道为啥最终是执法官
+
+艾克的时间 ...</blockquote>
+艾克有大头了啊，最后镜头也给了表，估计是跟大头讨论学习造出来的z型驱动
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  毛利提督  
+##### 2161#       发表于 2021-11-21 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629185&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-20 23:58</a>
+
+金克斯不愧是金克斯
+
+杰斯和希尔科终于能达成和平的时候，又被她一炮给轰没了</blockquote>
+金克丝崩爹的一刻就意味着没可能按照杰斯的计划和平了，祖安巫妖王没了协议直接就是废纸，小鱼小虾群魔乱舞
+
+倒是皮城议会未免太过都合，明显不可能调和的矛盾，这都能调和给杰斯和黑妹开的挂也太大了
+
+正常情况下应该是议会还在因为对杰斯口诛笔伐撕逼中，然后大家一起感谢金克丝老铁送的火箭
+
+另外皮城祖安全面对峙，大头应该是回不了皮城直接接吉格斯漫画的故事线了
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2162#       发表于 2021-11-21 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629205&amp;ptid=2002246" target="_blank">屌丶哲 发表于 2021-11-21 00:00</a>
+
+两个城市的美术风格，各种服装，建筑，很费精力吧
+
+我不是很懂这些，但是要换个城市继续讲的话，不是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 为了做联盟宇宙,拳头在n年前就开始布置了,做各个城邦设定花费了海量的美术资源.
+
+*****
+
+####  阿刚  
+##### 2163#       发表于 2021-11-21 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628889&amp;ptid=2002246" target="_blank">praetorian 发表于 2021-11-20 23:34</a>
+
+我英语有点不行金克斯叫艾克The Boy Savior到底是指艾克救了蔚和女警还是说金克斯一直都知道收养小孩子的野 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我倾向于一直知道，艾克肯定和她沟通过，但她表示vi死了我管你那么多，然后杀起野火帮的人来也毫不手软
+
+*****
+
+####  镜面の云  
+##### 2164#       发表于 2021-11-21 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629317&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-21 00:10</a>
+
+艾克有大头了啊，最后镜头也给了表，估计是跟大头讨论学习造出来的z型驱动
+
+—— 来自 HUAWEI ALP-AL00,  ...</blockquote>
+但没水晶了啊
+
+一开始以为这个故事争夺的水晶最后会在艾克手上
+
+但没想到金克斯的火箭炮是用水晶驱动的
+
+好你个金克斯，原来你也是海克斯战士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tianfeng1007  
+##### 2165#       发表于 2021-11-21 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629252&amp;ptid=2002246" target="_blank">Paradox7 发表于 2021-11-21 00:04</a>
+
+祖安是不是从皮城旁边的矿场慢慢发展成现在这样的，看希尔科对炼金男爵们说的，似乎几十年前还只是矿场，是 ...</blockquote>
+按原来拳头的设定 祖安和皮城是一体的 
+
+在世界中和巴拿马一个坐落位置  然后从城中间修了条运河想发展贸易  
+
+结果修成那天发生大地震接海啸 祖安那半拉沉了下去  环境变得很恶劣
+
+之后可能皮城可能放弃了祖安这半边？有钱人都跑到皮城了
+
+*****
+
+####  scorbian  
+##### 2166#       发表于 2021-11-21 00:17
+
+贴两张VI的，又帅又撩<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/909d449c741c426c4d472dde19620c76/IMG_CMP_72677436.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  鹅大人  
+##### 2167#       发表于 2021-11-21 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629205&amp;ptid=2002246" target="_blank">屌丶哲 发表于 2021-11-21 00:00</a>
+两个城市的美术风格，各种服装，建筑，很费精力吧
+
+我不是很懂这些，但是要换个城市继续讲的话，不是 ...</blockquote>
+设定上还好说，毕竟lol宇宙都给设定好了，各个地区风格也早定下来了，美术资源本体其实还挺多的，就是剧情得翻天大改
+我还是想看傻傻的波比寻找英雄的故事，不过太伟光正了没爆点
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  镜面の云  
+##### 2168#       发表于 2021-11-21 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628221&amp;ptid=2002246" target="_blank">今天不守尸 发表于 2021-11-20 22:41</a>
+
+而且绕了这么大一圈子后维克托和杰斯这哥俩又成一条心的了，一个选择了和平，一个放弃了进化，这要和游戏 ...</blockquote>
+刚好被金克丝一个大招打没了呗
+
+科尔西和议会被没了，杰斯一个人想和平也和平不了
+
+而维克托可以被炸得充分的理解血肉苦弱，机械飞升（说不定整个场面里就他被海克斯核心强化了，伤的最轻，只来得及救杰斯），彻底懂了要光荣进化
+
+*****
+
+####  江风改二  
+##### 2169#       发表于 2021-11-21 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">LOL的致命玩笑！
+
+*****
+
+####  镜面の云  
+##### 2170#       发表于 2021-11-21 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628607&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-20 23:12</a>
+
+没记错的话还特意加了凯特琳蔚床上聊骚时候金克丝被猥琐大叔注射神必液体的画面吧，这恶意简直溢出来了， ...</blockquote>
+这算什么，大家对女同更加宽容吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  筱原重工  
+##### 2171#       发表于 2021-11-21 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629345&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-21 00:13</a>
+但没水晶了啊
+
+一开始以为这个故事争夺的水晶最后会在艾克手上
+
+但没想到金克斯的火箭炮是用水晶驱动的</blockquote>
+杰斯，你看看你都守护了些什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  qxs  
+##### 2172#       发表于 2021-11-21 00:26
+
+<blockquote>飞升之后 发表于 2021-11-21 00:01
+艾克还行把， 艾克目前表现得已经很成熟了。。反而蔚，一直停在自己的舒适区 ...</blockquote>
+蔚一直在大牢里打架斗殴，能有啥长进
+
+*****
+
+####  镜面の云  
+##### 2173#       发表于 2021-11-21 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629317&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-21 00:10</a>
+
+艾克有大头了啊，最后镜头也给了表，估计是跟大头讨论学习造出来的z型驱动
+
+—— 来自 HUAWEI ALP-AL00,  ...</blockquote>
+游戏英雄背景里，艾克是为了救一个朋友才整出Z驱动的吧
+
+我的意思就是希望下一季的支线能讲一讲艾克和他朋友的故事
+
+当然把这个背景改成艾克想挽救魔怔的金克斯而开发时间机器也行
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2174#       发表于 2021-11-21 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629373&amp;ptid=2002246" target="_blank">scorbian 发表于 2021-11-21 00:17</a>
+
+贴两张VI的，又帅又撩</blockquote>
+可惜现在最高的也就1080p,之后不知道会不会放出4k资源...
+
+这么好的画面没最高清用来截图太可惜了
+

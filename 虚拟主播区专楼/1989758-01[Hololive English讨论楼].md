@@ -23905,3 +23905,17 @@ Ame: 护照在办了在办了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  smy20011  
+##### 1480#         楼主| 发表于 2021-11-21 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626933&amp;ptid=1989758" target="_blank">cy6959 发表于 2021-11-20 20:55</a>
+
+没咋看过en，今天首页刷出来几个切片，问一下，en现在都是这种q版3d么
+
+—— 来自 vivo NEX S, Andr ...</blockquote>
+没有正常3d，只能用这种q版的
+

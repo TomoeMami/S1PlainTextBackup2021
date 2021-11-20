@@ -11608,3 +11608,39 @@ ndwdwsln<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" re
 
 艾瑞思替陈珺找补，我早就发现的一个问题，nga之后发的，贴吧才搬，我宣布，S1赢！
 
+
+
+*****
+
+####  rgauss  
+##### 2760#       发表于 2021-11-21 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629239&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-21 00:03</a>
+
+艾瑞思替陈珺找补，我早就发现的一个问题，nga之后发的，贴吧才搬，我宣布，S1赢！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你看有人发s1截图吗 没有 说明s1 p用没有
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2761#       发表于 2021-11-21 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629303&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-21 00:09</a>
+你看有人发s1截图吗 没有 说明s1 p用没有</blockquote>
+nga那个明显学我的，没人提醒，一般不会有人说“找补”这个词，普通话讲“开脱”<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2762#       发表于 2021-11-21 00:20
+
+ 本帖最后由 tankai 于 2021-11-21 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629155&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-20 23:55</a>
+
+都让他赢完了
+
+但是ndwd当静栗惹后爹我是赞同的，至少比什么京华哥哥强</blockquote>
+回错楼了,尴尬.
+
