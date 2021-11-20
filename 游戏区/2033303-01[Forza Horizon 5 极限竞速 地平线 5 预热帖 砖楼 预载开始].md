@@ -14059,3 +14059,14 @@ WIN10商店版的不能用PS5手柄吗，连上电脑没反应，但是断开手
 
 PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一个小时，啥心情都没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  君往何处  
+##### 1279#       发表于 2021-11-20 12:49
+
+今天连着两次线上比赛的时候越野车轮子卡地里了，一次是巡回赛，高台落地一边的轮子在地里，另一次是游乐场，上那个足球场中间的平台四个轮子都入地了，游乐场那个还没法重置车辆，只能直接退出比赛<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+另外好像单机的季节锦标赛三个必须一次跑完？跑了一个重开游戏进度就没了
+

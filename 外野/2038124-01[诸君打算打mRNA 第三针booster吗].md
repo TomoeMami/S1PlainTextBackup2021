@@ -1091,3 +1091,12 @@ moderna的booster好像第三针只有半剂</blockquote>
 
 —— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  我不怀好意  
+##### 113#       发表于 2021-11-20 12:49
+
+前阵子那个出境体检，大夫也没说需要打第三针，于是就一直没打
+
