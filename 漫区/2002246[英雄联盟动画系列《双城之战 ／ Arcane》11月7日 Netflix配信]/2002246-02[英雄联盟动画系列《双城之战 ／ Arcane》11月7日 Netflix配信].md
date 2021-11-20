@@ -3988,3 +3988,260 @@ https://b23.tv/av4755326/
 
 —— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  弗林蒂萨  
+##### 1874#       发表于 2021-11-20 18:31
+
+结局之前不是都被剧透过了吗？我只想知道是惹到哪个诺克萨斯的大佬了？
+
+*****
+
+####  星名早苗  
+##### 1875#       发表于 2021-11-20 18:32
+
+梅尔刚洗的白白的真要轰死？从目前看便当的都有预兆，梅尔没怎么看到铺垫
+
+*****
+
+####  theti  
+##### 1876#       发表于 2021-11-20 18:32
+
+<blockquote>弗林蒂萨 发表于 2021-11-20 18:31
+结局之前不是都被剧透过了吗？我只想知道是惹到哪个诺克萨斯的大佬了？</blockquote>
+乌鸦乐芙兰二选一呗，诺手是直来直去的
+
+*****
+
+####  唧唧歪歪办事处  
+##### 1877#       发表于 2021-11-20 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625047&amp;ptid=2002246" target="_blank">弗林蒂萨 发表于 2021-11-20 18:31</a>
+
+结局之前不是都被剧透过了吗？我只想知道是惹到哪个诺克萨斯的大佬了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">除了乌鸦还能是谁,没发现越到后面乌鸦越多吗
+
+*****
+
+####  Anonekoy  
+##### 1878#       发表于 2021-11-20 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624993&amp;ptid=2002246" target="_blank">bartholo4 发表于 2021-11-20 18:26</a>
+
+按这个理解，这一炮女警死还是希尔科死都要轰的了
+
+—— 来自 Google Pixel 4 XL, Android 12上的 S1Next ...</blockquote>
+vi如果杀了女警，金克斯应该就跟vi远走高飞了吧，毕竟海克斯核心是最后才上膛的
+
+*****
+
+####  酱油康  
+##### 1879#       发表于 2021-11-20 18:35
+
+ 本帖最后由 酱油康 于 2021-11-20 18:36 编辑 
+
+第七集艾克单挑金克斯那段真的是绝了，反反复复看了N遍，老友重逢却是刀剑相向，用儿时的方式解决纷争，那种相视一笑的默契，帅炸了“还记不记得这个？”
+
+“小时候你就赢不了我，当我不敢？”
+
+*****
+
+####  梦醉妖刀  
+##### 1880#       发表于 2021-11-20 18:35
+
+为什么都在说梅尔会死，维克托杰斯还在旁边呢
+
+*****
+
+####  厄神之息  
+##### 1881#       发表于 2021-11-20 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624929&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-20 18:22</a>
+
+梅尔他哥惹得人是谁？乌鸦？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+大概率乌鸦，按时间算乌鸦也差不多刚获得恶魔之力，开始铁血清算了。
+
+*****
+
+####  新的起源  
+##### 1882#       发表于 2021-11-20 18:36
+
+助手妹子好惨啊
+
+之前一直在练习怎么和维克托搭话茬
+
+看到维克托做实验以为他有危险，还奋不顾身的救人，结果被轰成灰了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星名早苗  
+##### 1883#       发表于 2021-11-20 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625097&amp;ptid=2002246" target="_blank">梦醉妖刀 发表于 2021-11-20 18:35</a>
+
+为什么都在说梅尔会死，维克托杰斯还在旁边呢</blockquote>
+杰斯没带锤子，维克托开个挂顶多把杰斯救下来吧
+
+*****
+
+####  唧唧歪歪办事处  
+##### 1884#       发表于 2021-11-20 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625085&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 18:34</a>
+
+vi如果杀了女警，金克斯应该就跟vi远走高飞了吧，毕竟海克斯核心是最后才上膛的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">爆爆已经回不来了,以她对她姐姐的了解她能不知道她姐姐下不了手吗?
+
+  大家都变了,蔚反而是活在过去没变的那个
+
+*****
+
+####  lost_恩恩  
+##### 1885#       发表于 2021-11-20 18:37
+
+<blockquote>星名早苗 发表于 2021-11-20 18:32
+梅尔刚洗的白白的真要轰死？从目前看便当的都有预兆，梅尔没怎么看到铺垫 ...</blockquote>
+梅尔死不死看蕾哈娜美妆续约不续约（笑）
+
+*****
+
+####  theti  
+##### 1886#       发表于 2021-11-20 18:37
+
+<blockquote>Anonekoy 发表于 2021-11-20 18:34
+vi如果杀了女警，金克斯应该就跟vi远走高飞了吧，毕竟海克斯核心是最后才上膛的 ...</blockquote>
+女警死了，她老妈和杰斯不得暴走，直接开战了
+
+*****
+
+####  kiririno  
+##### 1887#       发表于 2021-11-20 18:38
+
+其实最后希尔科说的还真对，她们姐妹俩已经不可能过到一块去了，vi为了唤回爆爆所呼喊的那些名字偏偏都是金克斯的痛处，说明vi已经完全无法理解金克斯了
+
+*****
+
+####  CCCCCC梵  
+##### 1888#       发表于 2021-11-20 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">刚看完第八集，沉闷压得我快喘不过来气了
+
+*****
+
+####  星名早苗  
+##### 1889#       发表于 2021-11-20 18:41
+
+虎扑有一句评论说得好
+
+造就Jinx的，不是马尔科或者VI，而是双城
+
+今天没有JINX的大火箭，明天也会有另一个
+
+*****
+
+####  星名早苗  
+##### 1890#       发表于 2021-11-20 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625118&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-20 18:37</a>
+
+梅尔死不死看蕾哈娜美妆续约不续约（笑）</blockquote>
+全剧颜值用心第一，果然是资本的力量<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我不是大叔  
+##### 1891#       发表于 2021-11-20 18:41
+
+金克丝比我想的还逆天，维克托机械飞升后还是这个维克托吗，第二季核心估计就是那玩意了，怕是光头真要杀上门给他人道毁灭了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ammk  
+##### 1892#       发表于 2021-11-20 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624821&amp;ptid=2002246" target="_blank">MaskedBlade 发表于 2021-11-20 18:13</a>
+第7集地城会议里，与希尔可叫板的人是什么口音？</blockquote>
+可能是炼金男爵
+
+*****
+
+####  余情自取  
+##### 1893#       发表于 2021-11-20 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625116&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-20 18:37</a>
+爆爆已经回不来了,以她对她姐姐的了解她能不知道她姐姐下不了手吗?
+
+  大家都变了,蔚反而是活在过 ...</blockquote>
+那也确实，毕竟蔚一直在监狱里根本不知道外面的情况。她对待金克丝的态度就是几年前的自己
+
+*****
+
+####  Anonekoy  
+##### 1894#       发表于 2021-11-20 18:43
+
+野火帮势力也不大吧，希尔科死后艾克真能领导祖安？
+
+*****
+
+####  厄神之息  
+##### 1895#       发表于 2021-11-20 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625124&amp;ptid=2002246" target="_blank">kiririno 发表于 2021-11-20 18:38</a>
+
+其实最后希尔科说的还真对，她们姐妹俩已经不可能过到一块去了，vi为了唤回爆爆所呼喊的那些名字偏偏都是金 ...</blockquote>
+金克斯一直在诱导她姐接受现在的自己，她姐一根筋，活在过去不可自拔，还觉得她是当年的爆爆。非要让金克斯回到过去。要是蔚脑子再活一点说不定就happyend了，不过也没有那种可能，她要是脑子活一点也不会像个愣头青一样戴个拳套就觉得自己能单挑全世界了
+
+*****
+
+####  唧唧歪歪办事处  
+##### 1896#       发表于 2021-11-20 18:43
+
+<img src="https://img.saraba1st.com/forum/202111/20/184230mmkkg2mmwqxoxiwo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 18:42 上传
+
+艹啊
+
+*****
+
+####  飞升之后  
+##### 1897#       发表于 2021-11-20 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625186&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 18:43</a>
+
+野火帮势力也不大吧，希尔科死后艾克真能领导祖安？</blockquote>
+炼金男爵，目前祖安再没一个话事人了。
+
+*****
+
+####  theti  
+##### 1898#       发表于 2021-11-20 18:43
+
+<blockquote>Anonekoy 发表于 2021-11-20 18:43
+野火帮势力也不大吧，希尔科死后艾克真能领导祖安？</blockquote>
+炼金男爵还活着好几个呢
+
+*****
+
+####  星名早苗  
+##### 1899#       发表于 2021-11-20 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625194&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-20 18:43</a>
+
+艹啊</blockquote>
+和平，指所有人都炸没了
+
