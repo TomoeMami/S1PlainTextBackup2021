@@ -4346,3 +4346,173 @@ vi如果杀了女警，金克斯应该就跟vi远走高飞了吧，毕竟海克�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  飞升之后  
+##### 1912#       发表于 2021-11-20 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625390&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-20 19:01</a>
+
+杰斯干掉的那个炼金男爵的小孩啊
+
+那只能说小奴隶主好死</blockquote>
+第二遍我才发现
+
+*****
+
+####  prayto7f  
+##### 1913#       发表于 2021-11-20 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">也太好看了，上次这么追着看还是odd taxi，一年能有几次这种机会啊
+
+*****
+
+####  CCCCCC梵  
+##### 1914#       发表于 2021-11-20 19:05
+
+还是不明白希尔科为什么把金克斯当亲女儿一样，我感觉真的亲女儿都不一定有金克斯亲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是大叔  
+##### 1915#       发表于 2021-11-20 19:06
+
+看完还有个感想，女铜害人，这片我觉得最大的槽点就是金克丝和女警蔚这对的，因为姐姐找了个女人所以神经病恶化也过于生草了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  qxs  
+##### 1916#       发表于 2021-11-20 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625442&amp;ptid=2002246" target="_blank">CCCCCC梵 发表于 2021-11-20 19:05</a>
+
+还是不明白希尔科为什么把金克斯当亲女儿一样，我感觉真的亲女儿都不一定有金克斯亲 ...</blockquote>
+第三集最后希尔科明显是动容了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tjodrek  
+##### 1917#       发表于 2021-11-20 19:10
+
+早说了艾克是全剧最帅了，第二季这不得安排一个主角？
+
+*****
+
+####  狭义文具爱好者  
+##### 1918#       发表于 2021-11-20 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625442&amp;ptid=2002246" target="_blank">CCCCCC梵 发表于 2021-11-20 19:05</a>
+
+还是不明白希尔科为什么把金克斯当亲女儿一样，我感觉真的亲女儿都不一定有金克斯亲 ...</blockquote>
+可能这剧里当家长都容易被影响吧，除非像梅尔她妈一样直接扔出去不管
+
+*****
+
+####  whyy  
+##### 1919#       发表于 2021-11-20 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625442&amp;ptid=2002246" target="_blank">CCCCCC梵 发表于 2021-11-20 19:05:29</a>
+还是不明白希尔科为什么把金克斯当亲女儿一样，我感觉真的亲女儿都不一定有金克斯亲 ...</blockquote>那是另一个他自己啊，他现在是现在范德尔的位置，他会希望当年的范德尔放弃自己吗？所以金克丝才说，希尔科永远活在和范德尔在河里决裂的那一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  theti  
+##### 1920#       发表于 2021-11-20 19:13
+
+<blockquote>狭义文具爱好者 发表于 2021-11-20 19:11
+可能这剧里当家长都容易被影响吧，除非像梅尔她妈一样直接扔出去不管</blockquote>
+梅尔她妈也爱梅尔啊，说自己受不了梅尔求轻的眼神
+
+
+
+*****
+
+####  ddlsyo  
+##### 1921#       发表于 2021-11-20 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">艾克这个立绘笑，我沦陷了
+
+*****
+
+####  飞升之后  
+##### 1922#       发表于 2021-11-20 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625509&amp;ptid=2002246" target="_blank">狭义文具爱好者 发表于 2021-11-20 19:11</a>
+
+可能这剧里当家长都容易被影响吧，除非像梅尔她妈一样直接扔出去不管</blockquote>
+梅尔妈也是了解女儿性格和自己所处的诺克萨斯格格不入，才把她扔出去，还专门选了皮城，也是爱梅尔的
+
+*****
+
+####  tornadoDA  
+##### 1923#       发表于 2021-11-20 19:14
+
+不会维克托被炸成重伤，直接被杰斯抱到海克斯核心那里改造吧？
+
+*****
+
+####  雪狐舞步  
+##### 1924#       发表于 2021-11-20 19:15
+
+看哭了
+
+*****
+
+####  李可  
+##### 1925#       发表于 2021-11-20 19:17
+
+版本答案 艾克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  三个尻枪手  
+##### 1926#       发表于 2021-11-20 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625442&amp;ptid=2002246" target="_blank">CCCCCC梵 发表于 2021-11-20 19:05</a>
+
+还是不明白希尔科为什么把金克斯当亲女儿一样，我感觉真的亲女儿都不一定有金克斯亲 ...</blockquote>
+他其实也把金克斯当成自己了
+
+对金克斯好就是补偿当年被“背叛”的自己
+
+*****
+
+####  狭义文具爱好者  
+##### 1927#       发表于 2021-11-20 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625538&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-20 19:13</a>
+
+梅尔她妈也爱梅尔啊，说自己受不了梅尔求轻的眼神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就因为爱才会这样啊，如果梅尔还在的话她自己也说了会变得软弱，不爱怎么会呢
+
+*****
+
+####  有优越感的人mk2  
+##### 1928#       发表于 2021-11-20 19:21
+
+看完了，结局果然还是彻头彻尾的悲剧，和平提议刚刚通过就被火箭炸了，讽刺啊
+
+*****
+
+####  Mchaos  
+##### 1929#       发表于 2021-11-20 19:21
+
+炼金女儿是不是被他改造成娃娃鱼了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lost_恩恩  
+##### 1930#       发表于 2021-11-20 19:22
+
+其实金克丝也不知道议会正在开会吧，只是想一炮轰过去，大家战起来，和小时候救人那段异曲同工，但是这次是故意的
+

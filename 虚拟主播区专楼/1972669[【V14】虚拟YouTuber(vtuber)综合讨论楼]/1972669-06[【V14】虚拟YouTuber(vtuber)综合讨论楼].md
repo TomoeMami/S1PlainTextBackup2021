@@ -13326,3 +13326,21 @@ https://youtu.be/LMTmboEANqQ
 
 接下来極肆姉妹怕不是要被大叔猫吊着锤了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">...毫无招架之力啊
 
+
+
+*****
+
+####  秋月孝三  
+##### 8503#       发表于 2021-11-20 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">エリア下的ローラー果然是...
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  winda  
+##### 8504#       发表于 2021-11-20 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">居然还能顶着超神发挥的野良猫拿下一把，ssk硬实力
+
