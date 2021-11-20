@@ -1123,3 +1123,18 @@ moderna的booster好像第三针只有半剂</blockquote>
 
 两针辉瑞加moderna booster，躺了一天，希望有用
 
+
+
+*****
+
+####  Redis  
+##### 116#       发表于 2021-11-20 17:34
+
+我补了辉瑞第三针
+
+现在快10个小时了
+
+比第二针症状还轻微<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+感觉自己打到假疫苗了
+

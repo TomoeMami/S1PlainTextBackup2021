@@ -3256,3 +3256,58 @@ rarbg上有资源了</blockquote>
 
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  银枪子龙  
+##### 1788#       发表于 2021-11-20 17:30
+
+好家伙，看完了，金克丝真的是金克丝
+
+*****
+
+####  银枪子龙  
+##### 1789#       发表于 2021-11-20 17:31
+
+有生之年系列+1
+
+*****
+
+####  CCCCCC梵  
+##### 1790#       发表于 2021-11-20 17:38
+
+嘶。。。怎么感觉矛盾都是在利益分不好的时候爆发？双城
+
+*****
+
+####  Ashen-11  
+##### 1791#       发表于 2021-11-20 17:38
+
+原来一直以来只有一个➗
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  银枪子龙  
+##### 1792#       发表于 2021-11-20 17:39
+
+解决问题的思路真的很美式
+
+*****
+
+####  zxc786  
+##### 1793#       发表于 2021-11-20 17:42
+
+维克托小天使太惨了吧
+
+*****
+
+####  亚可（本人）  
+##### 1794#       发表于 2021-11-20 17:43
+
+顶级骇人鲸啊这是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

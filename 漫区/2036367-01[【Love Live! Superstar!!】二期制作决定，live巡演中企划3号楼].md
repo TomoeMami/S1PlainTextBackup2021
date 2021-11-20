@@ -8183,3 +8183,72 @@ FEjJ_6jaQAIGCXu.jfif
 
 今天这场全员都好棒包括导播音响灯光
 
+
+
+*****
+
+####  中野四葉  
+##### 746#       发表于 2021-11-20 17:26
+
+ 本帖最后由 中野四葉 于 2021-11-20 17:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了，鲤鱼的anniversary，nako的ringing
+
+*****
+
+####  chenflyyy  
+##### 747#       发表于 2021-11-20 17:26
+
+还真是，不知道那老哥消息来自哪的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 748#       发表于 2021-11-20 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624220&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-20 17:26</a>
+
+还真是，不知道那老哥消息来自哪的</blockquote>
+彩排会走一遍流程的
+
+如果提前在场馆蹲点是能听到曲目的（
+
+*****
+
+####  iuhehc  
+##### 749#       发表于 2021-11-20 17:28
+
+鲤鱼这身liella之歌的衣服好看！！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绯想alter2nd  
+##### 750#       发表于 2021-11-20 17:29
+
+回眸一笑百媚生，六宫粉黛无颜色
+
+
+
+*****
+
+####  cybernetics31  
+##### 751#       发表于 2021-11-20 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">看来要补票了
+
+*****
+
+####  a92063256  
+##### 752#       发表于 2021-11-20 17:29
+
+这小白裙子真不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 753#       发表于 2021-11-20 17:29
+
+我死了！谢谢官方打脸！我这就去订座！！！
+

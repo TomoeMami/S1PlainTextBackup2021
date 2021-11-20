@@ -11401,3 +11401,12 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么把，我越来越想把女王当最终反派了。。虽然可能性确实很低，但是目前不论是大地戒指还是海洋戒指以及香水戒指这些升级道具，身为女王的她却一次提示都没给过（热Q是我入坑作，前作不知道有没有这种情况），感觉很怪。
 
+
+
+*****
+
+####  三合一出现  
+##### 2341#       发表于 2021-11-20 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">都快完结了，居然集中爆料，药啊
+
