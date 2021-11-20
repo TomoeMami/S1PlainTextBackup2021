@@ -4245,3 +4245,104 @@ vi如果杀了女警，金克斯应该就跟vi远走高飞了吧，毕竟海克�
 艹啊</blockquote>
 和平，指所有人都炸没了
 
+
+
+*****
+
+####  tewaku  
+##### 1900#       发表于 2021-11-20 18:46
+
+我操啊这结局，我操啊
+
+早知道看完每一集停下来说些什么好了，现在看完第九集什么都说不出来只想说我操了
+
+*****
+
+####  狭义文具爱好者  
+##### 1901#       发表于 2021-11-20 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就是啊，说是和平协议，说是自由通行，以前也没妨碍皮城从底层虹吸维克托和那个可怜妹子这种人才，说让祖安自治以前除了有人犯事也没人下来管，说是自由贸易，也没见之前进货少了，正经货物总不能比微光还难贸易？
+
+反而是一直说的挖矿，范德尔的拳套和蔚的拳套对应，效率是高了，可就能让那几个炼金男爵喘不上气的废气，真能解决吗
+
+*****
+
+####  Fakerの幻影  
+##### 1902#       发表于 2021-11-20 18:48
+
+这结局<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第二季怕是有生之年了
+
+*****
+
+####  厄神之息  
+##### 1903#       发表于 2021-11-20 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">一回忆又想到个血压高的事，杰斯亲自去底层转了一圈，又被梅尔她妈一顿喷，发觉政治比自己想的复杂太多，认清了自己没能力搞好上下层关系决定退出议会，重归科研领域，维克托死了迷妹认识到了奥术远非自己能控制的，理解了大头，决定即便身死也不碰奥术，摆脱了符文（虚空？）的控制，结果这两人刚刚回归初心，重归于好，就让jinx一炮归0了，我真是草了。
+
+*****
+
+####  VirMoe  
+##### 1904#       发表于 2021-11-20 18:52
+
+杰斯和维克托都活着，难道就梅尔倒霉<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yakee  
+##### 1905#       发表于 2021-11-20 18:54
+
+梅尔一定死。不是老婆怎么加BUFF？
+
+*****
+
+####  飞升之后  
+##### 1906#       发表于 2021-11-20 18:54
+
+不过皮城议会这个死伤局面很适合卡密尔出来收拾残局，这倒是方便卡密尔出场了
+
+*****
+
+####  唧唧歪歪办事处  
+##### 1907#       发表于 2021-11-20 18:55
+
+这季打系大部分是蔚贡献的,最后被绑起来没法上拳头试用话疗治疗金克斯结果 1/100大失败<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackll7  
+##### 1908#       发表于 2021-11-20 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">干，第二季呢，第二季呢，第二季呢，不会全明星才播预告吧
+
+*****
+
+####  qxs  
+##### 1909#       发表于 2021-11-20 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625194&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-20 18:43</a>
+
+艹啊</blockquote>
+过于生艹
+
+*****
+
+####  高斯与格林  
+##### 1910#       发表于 2021-11-20 18:58
+
+一炮干碎皮城
+
+*****
+
+####  新的起源  
+##### 1911#       发表于 2021-11-20 19:01
+
+杰斯干掉的那个炼金男爵的小孩啊
+
+那只能说小奴隶主好死
+
+这剧就喜欢玩这种小心思，刚才杰斯还在懊悔杀了无辜小孩，结果死的这个是最不无辜的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

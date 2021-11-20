@@ -13298,3 +13298,31 @@ https://youtu.be/LMTmboEANqQ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">喷喷大赛就看葛叶和猫猫哪个更神棍了 两个都是新手，葛叶中间还有live
 
+
+
+*****
+
+####  rzrbtk  
+##### 8501#       发表于 2021-11-20 18:42
+
+ 本帖最后由 rzrbtk 于 2021-11-20 18:51 编辑 
+
+Ｍ队这唯一一次队练也太水了，大家一起看比赛还行...
+
+这大赛第一回好激烈，ssk王子都好强，这下得打到晚上啊
+
+第二局有点不知道替谁加油了，E队平时巨拼，但是大叔猫又很有趣...（采访环节，kgym复活！）
+
+*****
+
+####  alcoholic1000  
+##### 8502#       发表于 2021-11-20 18:45
+
+ 本帖最后由 alcoholic1000 于 2021-11-20 18:59 编辑 
+
+开局就这么刺激，看ssk视角真捏了一把汗
+
+没怎么看过队练，阿喵喵和点E都打得挺好？air发挥不错了
+
+接下来極肆姉妹怕不是要被大叔猫吊着锤了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">...毫无招架之力啊
+

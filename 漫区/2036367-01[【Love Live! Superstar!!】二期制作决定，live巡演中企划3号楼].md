@@ -8348,3 +8348,40 @@ FEjJ_6jaQAIGCXu.jfif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer"> 今天没看，我亏了一万
 
+
+
+*****
+
+####  普之舜舜  
+##### 766#       发表于 2021-11-20 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等下我会传录播的
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ads147147  
+##### 767#       发表于 2021-11-20 18:57
+
+说起来如果真的跑满20场，到时候bd怎么办？全收入？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kata魂  
+##### 768#       发表于 2021-11-20 19:01
+
+看到切片了
+
+卧槽这导播
+
+卧槽这镜头
+
+卧槽这小星星
+
+卧槽这solo
+
+卧槽这场好强啊，镜头太专业了，不愧是大地方的
+
