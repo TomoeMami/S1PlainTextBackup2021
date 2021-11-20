@@ -5196,3 +5196,133 @@ jinx亲手刀自己两个爹，黑转路人了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不愧是最符合新版本致命节奏的英雄，jinx这一波波节奏带的
 
+
+
+*****
+
+####  雪狐舞步  
+##### 2004#       发表于 2021-11-20 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">换个角度，杰斯不贪图享乐，能切身实地体察民情，又顾全大局，以和为贵，又能听得进忠心耿耿大臣（老婆）的谏言，要不是金克斯一发火箭，或许又是史书上的一代明君
+
+*****
+
+####  stygianlunar  
+##### 2005#       发表于 2021-11-20 20:54
+
+在每个角色的结局从一开始就既定的前提下，这个故事讲的已经很优秀了。
+
+每个人都以为自己走在正确的道路上，然后每个人都成了命运的囚徒。
+
+每个角色都因其性格而选择，而性格又是环境所带来的，然后他们的选择又让自己坠入更绝望的环境
+
+*****
+
+####  astrayveller  
+##### 2006#       发表于 2021-11-20 20:57
+
+希尔科到最后终于理解了范达尔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然后又被金克斯打死了 这娃天生克爹是吧
+
+*****
+
+####  novem  
+##### 2007#       发表于 2021-11-20 20:57
+
+结局真是给力，没走什么烂人洗白的套路
+
+*****
+
+####  remedios010000  
+##### 2008#       发表于 2021-11-20 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625973&amp;ptid=2002246" target="_blank">雪狐舞步 发表于 2021-11-20 19:49</a>
+
+她拿了这么多人头，第一个到6也正常</blockquote>
+补队友也算经验是把<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネロ  
+##### 2009#       发表于 2021-11-20 20:59
+
+第8集CV躺在床上握着手含情脉脉的望着彼此，镜头一转别的场景剧情
+
+我觉得以法国人的尿性，这两个人这时塑造成这种气氛，接着100%做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+手背轻抚对方脸颊的小天使好温柔，VI眼睛里的光太特么耀眼了
+
+*****
+
+####  百合豚  
+##### 2010#       发表于 2021-11-20 20:59
+
+结局真的精彩，没有落入烂俗，结尾vi不能为了jinx放弃凯特琳，但是jinx可以为了vi射杀自己的养父，最终vi和希尔科两人合作将powder塑造成了真正的jinx
+
+
+
+*****
+
+####  芝士排骨  
+##### 2011#       发表于 2021-11-20 20:59
+
+所有角色都痛苦。
+
+金克斯的痛苦是最不能理解的，我感觉还是先天性的精神问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  游游荡荡  
+##### 2012#       发表于 2021-11-20 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626539&amp;ptid=2002246" target="_blank">JennyFaceOff 发表于 2021-11-20 20:28</a>
+
+一直攒着没看，听说9集放完了，想问国配怎么样？有地方下载吗</blockquote>
+这次国配整体很不错，某些场景感觉比英配还要合适，但有几个人物演绎拉跨，然后日配是完全不行
+
+所以，下英配国配两个版本看两次好了
+
+*****
+
+####  十点半  
+##### 2013#       发表于 2021-11-20 21:00
+
+这是不是就是之前说的“希腊式悲剧”？
+
+*****
+
+####  筱原重工  
+##### 2014#       发表于 2021-11-20 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626616&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-20 20:33</a>
+
+现实更绝望啊，毕竟真正的妖魔鬼怪其实都还没出来呢</blockquote>
+期待艾克的主治大夫蒙多出场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芝士排骨  
+##### 2015#       发表于 2021-11-20 21:02
+
+剧情断在这里好难受啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lost_恩恩  
+##### 2016#       发表于 2021-11-20 21:03
+
+bangumi看了一眼，果不其然又开始了，唉
+
+*****
+
+####  飞升之后  
+##### 2017#       发表于 2021-11-20 21:03
+
+问：破败王会如何看待双城之战
+
+*****
+
+####  ranqI  
+##### 2018#       发表于 2021-11-20 21:03
+
+Jinx cpu超频杀死希尔科后，自己做出了选择成为jinx，连带着精神好像也稳定了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，真好来自: iPhone客户端
+

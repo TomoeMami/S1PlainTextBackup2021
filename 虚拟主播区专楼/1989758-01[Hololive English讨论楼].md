@@ -23894,3 +23894,14 @@ Ame: 护照在办了在办了<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> Ollie vs. Ame chess battle when
 
+
+
+*****
+
+####  cy6959  
+##### 1479#       发表于 2021-11-20 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没咋看过en，今天首页刷出来几个切片，问一下，en现在都是这种q版3d么
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
