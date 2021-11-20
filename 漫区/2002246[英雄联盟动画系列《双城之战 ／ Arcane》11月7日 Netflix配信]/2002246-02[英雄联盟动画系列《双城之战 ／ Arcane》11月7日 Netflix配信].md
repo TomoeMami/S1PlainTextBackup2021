@@ -6929,3 +6929,93 @@ v和jinx有个根本都不同就是之前v讨厌的，范德尔的“大局观�
 
 这么好的画面没最高清用来截图太可惜了
 
+
+
+*****
+
+####  有点追求  
+##### 2175#       发表于 2021-11-21 00:28
+
+看了一遍第七集，金克斯给席尔克打针之前，她在席尔克桌子上的被子是被遮住的，打完针之后杯子又出现了，很好展现了心理的转变。类似镜头语言真的挺多的。看得出来整部动画，这个团队花费的时间都去哪了= = ，第二季估计又是遥遥无期
+
+*****
+
+####  飞升之后  
+##### 2176#       发表于 2021-11-21 00:28
+
+拳头的地区美术资源还是有很多优秀现成，还是看人物和故事
+
+*****
+
+####  镜面の云  
+##### 2177#       发表于 2021-11-21 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629450&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-21 00:24</a>
+
+杰斯，你看看你都守护了些什么啊
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 S1Next-鹅版 v2.5. ...</blockquote>
+说起来，金克斯还是打了微光的海克斯生化战士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+面板数据怕不是登场的英雄里最夸张的（而游戏里是最脆的那一档）
+
+*****
+
+####  飞升之后  
+##### 2178#       发表于 2021-11-21 00:31
+
+那个涡轮炼金战士也是挺搞的
+
+*****
+
+####  lsmnbs  
+##### 2179#       发表于 2021-11-21 00:31
+
+还不错。。高科技人均大发明家。。。人均苦大仇深哈哈哈
+
+*****
+
+####  暗黑能乐  
+##### 2180#       发表于 2021-11-21 00:33
+
+涡轮炼金罐很牛啊，这加速时间完爆游戏里好吧（
+
+还有杰斯这无限Q，搁这无限火力呢
+
+*****
+
+####  筱原重工  
+##### 2181#       发表于 2021-11-21 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629492&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-21 00:28</a>
+说起来，金克斯还是打了微光的海克斯生化战士
+
+面板数据怕不是登场的英雄里最夸张的（而游戏里是最 ...</blockquote>
+皮城祖安双城之子 kono jinx da<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lsmnbs  
+##### 2182#       发表于 2021-11-21 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627533&amp;ptid=2002246" target="_blank">Tjodrek 发表于 2021-11-20 21:38</a>
+
+所以同样是小时候弱鸡自己犯错害死家人最后没人要的小屁孩，为啥艾克是个正常人花了九集篇幅就讲了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">所以说教育很重要。。跑偏了，一开始去偷东西到后面彻底崩坏了就有点膈应
+
+*****
+
+####  千千千千鸟  
+##### 2183#       发表于 2021-11-21 00:40
+
+杰斯的加点是一级e2级w三级q，好丑陋的加点啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 2184#       发表于 2021-11-21 00:46
+
+美术资源还好，看lor那边能知道拳头有用力的做积累，还有几年来的cg都是有积累的
+
