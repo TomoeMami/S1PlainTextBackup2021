@@ -2481,3 +2481,31 @@ VNT1已经很久了，基本上就是AD版剑圣，团战打起来总有人给�
 
 —— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  佛剑分说  
+##### 1702#       发表于 2021-11-20 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613722&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-19 19:31</a>
+
+没啥事可以来看片，双城那种手绘结合CG技术，迪士尼曾经探索过</blockquote>
+暴雪从军团版本开始也有不少cg用这种方式制作，但是显而易见的低成本低作画数量，出来的效果就完全是另一种样子了
+
+*****
+
+####  QAQAQA11  
+##### 1703#       发表于 2021-11-20 08:34
+
+蚂蚁在爬<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qxs  
+##### 1704#       发表于 2021-11-20 08:37
+
+<blockquote>Siran_China 发表于 2021-11-19 19:51
+还有比新剑魔更有特色的吗当然我说的不是游戏性，而是：</blockquote>
+剑魔的特色，当然是活字印刷术了  看了个新活笑死我了XD  【潘森！你太BABY了-哔哩哔哩】https://b23.tv/T5QfP9X
+

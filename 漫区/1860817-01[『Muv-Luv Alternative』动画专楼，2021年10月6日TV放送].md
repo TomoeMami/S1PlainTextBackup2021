@@ -20153,3 +20153,28 @@ Alt3那一屋子杜霞的姐妹，身高发型各不相同，而且没有一个�
 
 既然是卖胶片那就把黎明作战做出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1412#       发表于 2021-11-20 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611203&amp;ptid=1860817" target="_blank">102mph 发表于 2021-11-19 17:17</a>
+突然想起 原作比较大的一个缺点就是最终作战从成功落地就直接跳跃到攻击boss门卫了 但是看当前节奏 这里估 ...</blockquote>
+这其实不是这季动画考虑的内容，补全降落到A号目标的战斗反而是比较好做的。
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  再买自检星剁手  
+##### 1413#       发表于 2021-11-20 08:34
+
+提醒一下TV版和BD版的区别……
+
+<img src="https://p.sda1.dev/3/04af0d5f6b1d988434fd624f7f1624cf/IMG_CMP_178682041.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/5fcafa32d0489d0a45dfd1cdb0f3512a/-7066c348b93bff92.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

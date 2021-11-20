@@ -11375,3 +11375,16 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不就是坐实传q魔女就是be真夏萝拉了吗
 
+
+
+*****
+
+####  最强惠酱  
+##### 2339#       发表于 2021-11-20 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617304&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-11-20 00:07</a>
+恭喜凉川女士成为菱川女士接班人</blockquote>
+珊瑚那存在感还没有阿圆15年味重<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
