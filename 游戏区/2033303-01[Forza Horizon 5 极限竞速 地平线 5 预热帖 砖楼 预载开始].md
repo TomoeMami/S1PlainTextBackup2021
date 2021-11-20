@@ -14081,3 +14081,25 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 这ai也没修啊，领跑的ai异常地快，甩开后面一大截根本追不上，费尽办法超过去之后就开始萎了跟着后面的车群一起跑，太垃圾了
 
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1281#       发表于 2021-11-20 14:50
+
+这一代车库宝物还得先送人一辆车才能拿到？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  萱时令  
+##### 1282#       发表于 2021-11-20 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53622520&amp;ptid=2033303" target="_blank">半江瑟瑟半江红 发表于 2021-11-20 14:50</a>
+这一代车库宝物还得先送人一辆车才能拿到？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.5 ...</blockquote>
+不用，送车只不过是本来的一次性地点再利用
+
