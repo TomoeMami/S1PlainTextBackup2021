@@ -11341,3 +11341,23 @@ cnm这省略吓死我了
 
 文静天天说麻了麻了，原来是麻药一直没停过啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  haruhiismer  
+##### 2732#       发表于 2021-11-20 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614945&amp;ptid=2013779" target="_blank">香蕉很香 发表于 2021-11-19 21:00</a>
+直播间被封，账号还是可以用的。八妹去虎扑转生了。</blockquote>
+我超穷哥们琪琪号也被封了
+
+*****
+
+####  Finsty  
+##### 2733#       发表于 2021-11-20 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正队长那性格吧，我不好发散，只能说不适合版本了，故事再好滤镜也撑不住的
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
