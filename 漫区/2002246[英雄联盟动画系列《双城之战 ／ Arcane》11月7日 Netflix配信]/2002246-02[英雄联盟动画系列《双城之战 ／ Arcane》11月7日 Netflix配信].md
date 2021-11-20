@@ -3563,3 +3563,428 @@ There is always a choice.
 
 而且之前说汉化标题双城之战是自由发挥，但这原标题奥术好像也没多贴合剧情，前半段存在感还好，后半段和奥术有关的只有维克托一个人了，而维克托的戏份感觉才讲了个开头。。。
 
+
+
+*****
+
+####  酱油康  
+##### 1826#       发表于 2021-11-20 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624697&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-20 18:05</a>
+
+这结局真是把我看麻了，金克斯克死3任爹这个也就算了，我没搞懂啊，她为什么要射这一炮啊，她姐老活 ...</blockquote>
+大概就是类似于疯了
+
+“来啊，战啊，战个痛快”
+
+*****
+
+####  天才我心  
+##### 1827#       发表于 2021-11-20 18:06
+
+打斗没得说
+但感觉 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+蹲一个第二季消息
+
+*****
+
+####  天才我心  
+##### 1828#       发表于 2021-11-20 18:06
+
+没看到机械飞升就像身上有蚂蚁在爬
+
+*****
+
+####  theti  
+##### 1829#       发表于 2021-11-20 18:07
+
+双城未来看艾克大头的了，其他人又是仇上加仇
+
+*****
+
+####  SY.Autumnman  
+##### 1830#       发表于 2021-11-20 18:07
+
+金克斯你怎么不笑啊怎么不笑啊
+
+
+
+*****
+
+####  飞升之后  
+##### 1831#       发表于 2021-11-20 18:08
+
+维克托也在，他的拐杖或者杰斯身上可能有海克斯宝石吧，从之前来看，宝石有护体屏障的功能
+
+*****
+
+####  厄神之息  
+##### 1832#       发表于 2021-11-20 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624713&amp;ptid=2002246" target="_blank">酱油康 发表于 2021-11-20 18:06</a>
+
+大概就是类似于疯了
+
+“来啊，战啊，战个痛快”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">你疯了你可以手刃亲姐，也可以出于嫉恨一枪崩了亲姐的新女友（他以为），让你的亲姐痛不欲生，你炸议会是干几把呢？！
+
+*****
+
+####  狭义文具爱好者  
+##### 1833#       发表于 2021-11-20 18:09
+
+给我哭惨了
+
+*****
+
+####  tianfeng1007  
+##### 1834#       发表于 2021-11-20 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624697&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-20 18:05</a>
+
+这结局真是把我看麻了，金克斯克死3任爹这个也就算了，我没搞懂啊，她为什么要射这一炮啊，她姐老活 ...</blockquote>
+后续可以直接看金克斯mv了  精神病就是精神病  你能理解你也成精神病了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  theti  
+##### 1835#       发表于 2021-11-20 18:09
+
+估计除了杰斯全灭了 ，大头回来主持大局
+
+*****
+
+####  今天不守尸  
+##### 1836#       发表于 2021-11-20 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624759&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-20 18:08</a>
+
+你疯了你可以手刃亲姐，也可以出于嫉恨一枪崩了亲姐的新女友（他以为），让你的亲姐痛不欲生，你 ...</blockquote>
+干爹希尔科最后的波纹啊，“咱们走着瞧，早晚要让他们后悔”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞升之后  
+##### 1837#       发表于 2021-11-20 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624776&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-20 18:09</a>
+
+估计除了杰斯全灭了 ，大头回来主持大局</blockquote>
+维克托也在现场。。如果真有第二季，这个局面，卡密尔的出现很顺理成章。
+
+*****
+
+####  Anonekoy  
+##### 1838#       发表于 2021-11-20 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624652&amp;ptid=2002246" target="_blank">bairn 发表于 2021-11-20 18:00</a>
+
+不死完也会被乌鸦一锅端的</blockquote>
+梅尔他哥要是惹的乌鸦，怎么还能放她妈跑到皮城搬救兵的？
+
+*****
+
+####  节艾司  
+##### 1839#       发表于 2021-11-20 18:11
+
+原来标题的意思是arcane missile, 是奥术飞弹
+
+*****
+
+####  QAQAQA11  
+##### 1840#       发表于 2021-11-20 18:12
+
+这样看下一季应该还是继续说双城，我什么时候才能看到别的城邦故事啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  球獭  
+##### 1841#       发表于 2021-11-20 18:12
+
+我看了啥<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">后续还要多少年
+
+*****
+
+####  星名早苗  
+##### 1842#       发表于 2021-11-20 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624759&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-20 18:08</a>
+
+你疯了你可以手刃亲姐，也可以出于嫉恨一枪崩了亲姐的新女友（他以为），让你的亲姐痛不欲生，你 ...</blockquote>
+亲手干掉爹，当然要满足爹的遗愿
+
+*****
+
+####  飞升之后  
+##### 1843#       发表于 2021-11-20 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624792&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 18:11</a>
+
+梅尔他哥要是惹的乌鸦，怎么还能放她妈跑到皮城搬救兵的？</blockquote>
+这个时间线，乌鸦的势力应该还没游戏时候的那么强
+
+*****
+
+####  kotori666  
+##### 1844#       发表于 2021-11-20 18:12
+
+看到那段来来回回抢宝珠就觉得有点拖沓不妙，结果真没想到来玩黑屏wtf，美剧看得少是不是那边编剧都喜欢这么玩阿<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 1845#       发表于 2021-11-20 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624790&amp;ptid=2002246" target="_blank">今天不守尸 发表于 2021-11-20 18:11</a>
+
+干爹希尔科最后的波纹啊，“咱们走着瞧，早晚要让他们后悔”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">她倒确实让所有人都后悔了，他范爹，他姐，他希爹，还有他小兄弟艾克，一个没放过，全后悔了
+
+*****
+
+####  MaskedBlade  
+##### 1846#       发表于 2021-11-20 18:13
+
+第7集地城会议里，与希尔可叫板的人是什么口音？
+
+*****
+
+####  tornadoDA  
+##### 1847#       发表于 2021-11-20 18:13
+
+看完结局蚂蚁爬的更厉害了
+
+*****
+
+####  天才我心  
+##### 1848#       发表于 2021-11-20 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624821&amp;ptid=2002246" target="_blank">MaskedBlade 发表于 2021-11-20 18:13</a>
+第7集地城会议里，与希尔可叫板的人是什么口音？</blockquote>
+亚裔？
+
+*****
+
+####  梦醉妖刀  
+##### 1849#       发表于 2021-11-20 18:14
+
+金克丝最后一炮我觉得是希尔科的夙愿。
+
+杰斯错估了希尔科对金克丝的感情，以为自己的要求不算过分，但其实让希尔科陷入到了“理想”与“亲人”的抉择
+
+希尔科最后选择了亲人其实就是“qtmd理想”，金克丝的这一炮算是替希尔科说了一句“cnm老子不选了”
+
+*****
+
+####  天才我心  
+##### 1850#       发表于 2021-11-20 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话 希尔科塑造得真挺好
+
+*****
+
+####  厄神之息  
+##### 1851#       发表于 2021-11-20 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624812&amp;ptid=2002246" target="_blank">星名早苗 发表于 2021-11-20 18:12</a>
+
+亲手干掉爹，当然要满足爹的遗愿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">她爹在水池子那把想要的说的清清楚楚，她也在那听，临死也是说的绝不出卖你，她能不知道她爹的遗愿吗。
+
+*****
+
+####  theti  
+##### 1852#       发表于 2021-11-20 18:15
+
+vi要是放弃女警，议会里他妈和杰斯也不会善罢甘休的，和平还是达不成，怎么选都死局了
+
+*****
+
+####  kiririno  
+##### 1853#       发表于 2021-11-20 18:17
+
+看完之后心情复杂，完蛋，我已经没办法直视金克斯这个角色了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与天争锋_LZ  
+##### 1854#       发表于 2021-11-20 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569345&amp;ptid=2002246" target="_blank">与天争锋_LZ 发表于 2021-11-16 19:45</a>
+我感觉会是金克丝亲手杀了希尔科
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 S1Next-鹅版 v2.5 ...</blockquote>
+果然
+刚看完，我麻了
+只能用毁灭吧，赶紧的来表达我现在的感情
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Anonekoy  
+##### 1855#       发表于 2021-11-20 18:18
+
+杰斯最后开会说希尔科同意了和平提案，不会是金克斯传的假消息吧，制造一锅端议会的机会<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">毕竟希尔克不会同意拿金克斯交换，而金克斯射那一炮明显是知道议会在开会的
+
+*****
+
+####  bairn  
+##### 1856#       发表于 2021-11-20 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624792&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 18:11</a>
+
+梅尔他哥要是惹的乌鸦，怎么还能放她妈跑到皮城搬救兵的？</blockquote>
+时间线在乌鸦刚起事吧
+
+*****
+
+####  CCCCCC梵  
+##### 1857#       发表于 2021-11-20 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">哎...看楼里剧透感觉是不是爆爆就克亲人啊
+
+*****
+
+####  节艾司  
+##### 1858#       发表于 2021-11-20 18:19
+
+其实她不知道里面有没有人，有人是在干什么，反正她爹老让她完成武器，那可给赶紧试射一下。
+
+*****
+
+####  狭义文具爱好者  
+##### 1859#       发表于 2021-11-20 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624885&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 18:18</a>
+
+杰斯最后开会说希尔科同意了和平提案，不会是金克斯传的假消息吧，制造一锅端议会的机会毕竟希尔克 ...</blockquote>
+你这么一说还真是，去上城转了一圈？
+
+*****
+
+####  kaminagi  
+##### 1860#       发表于 2021-11-20 18:20
+
+梅尔塑造这么好炸死可惜了。
+
+
+
+*****
+
+####  theti  
+##### 1861#       发表于 2021-11-20 18:21
+
+想了想还是大头的锅，都两百年了，才到底城体恤民情，早干嘛去了呢
+
+*****
+
+####  whyy  
+##### 1862#       发表于 2021-11-20 18:21
+
+美强惨=有人气，这就是自然规律啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都行
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  新的起源  
+##### 1863#       发表于 2021-11-20 18:22
+
+梅尔他哥惹得人是谁？乌鸦？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  飞升之后  
+##### 1864#       发表于 2021-11-20 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624910&amp;ptid=2002246" target="_blank">kaminagi 发表于 2021-11-20 18:20</a>
+
+梅尔塑造这么好炸死可惜了。</blockquote>
+想救也可以，最后那里梅尔的金属衣服可以解读为某种力量
+
+*****
+
+####  漫漫来  
+##### 1865#       发表于 2021-11-20 18:23
+
+杰斯这战斗力也太离谱了，全程普通q也能打赢，这要是加强q哪怕不是一炮毁天灭地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bartholo4  
+##### 1866#       发表于 2021-11-20 18:23
+
+看完再看一遍jinx的个人mv
+https://b23.tv/av4755326/
+
+这小猴子敲得真爽
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  theti  
+##### 1867#       发表于 2021-11-20 18:23
+
+艾克造
+
+*****
+
+####  飞升之后  
+##### 1868#       发表于 2021-11-20 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624919&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-20 18:21</a>
+
+想了想还是大头的锅，都两百年了，才到底城体恤民情，早干嘛去了呢</blockquote>
+大头早年创立的时候肯定是了解的。。对于长生种，时间会改变很多东西
+
+*****
+
+####  theti  
+##### 1869#       发表于 2021-11-20 18:24
+
+可能艾克造出时间装置，让大头穿越回去，以皮城之父的身份改革才有机会化解矛盾了
+
+*****
+
+####  QAQAQA11  
+##### 1870#       发表于 2021-11-20 18:25
+
+<img src="https://img.saraba1st.com/forum/202111/20/182459abvs5w5ghg1ggu5h.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20211120182309.png</strong> (11.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 18:24 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霜落  
+##### 1871#       发表于 2021-11-20 18:25
+
+希尔科和维克托<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，最后金克丝开炮的那段看的时候全程不敢喘气，啥时候有第二季看啊。
+
+*****
+
+####  Anonekoy  
+##### 1872#       发表于 2021-11-20 18:26
+
+大头确实有点搞笑的，一开始坐船我还以为是要去找辛吉德，没想到溜达一圈见不受欢迎就准备回去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bartholo4  
+##### 1873#       发表于 2021-11-20 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624885&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 18:18</a>
+杰斯最后开会说希尔科同意了和平提案，不会是金克斯传的假消息吧，制造一锅端议会的机会毕竟希尔克 ...</blockquote>
+按这个理解，这一炮女警死还是希尔科死都要轰的了
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
