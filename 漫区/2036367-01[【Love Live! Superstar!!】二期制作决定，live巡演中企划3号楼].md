@@ -8618,3 +8618,47 @@ D3900EB8-C38E-45A5-8C78-3C2FDFEFCABA.png
 
 还以为鲤鱼返图会发穿liella之歌衣服的，结果还是wish song那套，感觉这五个人的返图基本就op套，一单套，和wish song套换着来
 
+
+
+*****
+
+####  JustW_2  
+##### 789#       发表于 2021-11-20 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626580&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-20 20:31</a>
+这个镜头好啊~~</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">导播也在养成（不是）
+
+*****
+
+####  优妮可  
+##### 790#       发表于 2021-11-20 22:55
+
+<img src="https://img.saraba1st.com/forum/202111/20/225531bjztlbttwb4eh6ec.jpg" referrerpolicy="no-referrer">
+
+<strong>20211120_224731.jpg</strong> (325.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 22:55 上传
+
+*****
+
+####  lj205  
+##### 791#       发表于 2021-11-20 22:57
+
+大概是因为这几首歌间隔时间比较长
+
+*****
+
+####  优妮可  
+##### 792#       发表于 2021-11-20 23:00
+
+<img src="https://img.saraba1st.com/forum/202111/20/230057m5kdflfkkeufzsv7.jpg" referrerpolicy="no-referrer">
+
+<strong>20211120_225741.jpg</strong> (613.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 23:00 上传
+
