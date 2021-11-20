@@ -3007,3 +3007,146 @@ rarbg上有资源了
 
 —— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  tewaku  
+##### 1760#       发表于 2021-11-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53623562&amp;ptid=2002246" target="_blank">尼特子很辛苦哟 发表于 2021-11-20 16:26</a>
+
+rarbg上有资源了</blockquote>
+这些资源带字幕的吗？
+
+*****
+
+####  qxs  
+##### 1761#       发表于 2021-11-20 16:50
+
+希尔科真的把金克斯当女儿养啊
+
+----发送自 [Xiaomi Mi 10,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lucifer5455  
+##### 1762#       发表于 2021-11-20 16:50
+
+杰斯又和黑妹滚了啊
+
+*****
+
+####  lucifer5455  
+##### 1763#       发表于 2021-11-20 16:52
+
+希尔科有点帅啊
+
+*****
+
+####  lucifer5455  
+##### 1764#       发表于 2021-11-20 16:52
+
+希尔科有点帅啊
+
+*****
+
+####  伊森温特斯  
+##### 1765#       发表于 2021-11-20 16:53
+
+唉，这种制造双方信息差导致的对立有点俗了
+艾克太尼玛帅了，但是为什么他没有海克斯宝石也可以倒流时间躲子弹？
+
+*****
+
+####  银枪子龙  
+##### 1766#       发表于 2021-11-20 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53623854&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-20 16:53</a>
+
+唉，这种制造双方信息差导致的对立有点俗了
+
+艾克太尼玛帅了，但是为什么他没有海克斯宝石也可以倒流时间躲 ...</blockquote>
+只是艺术表现手法，小时候打闹时候没躲过去，现在他躲过去了
+
+*****
+
+####  银枪子龙  
+##### 1767#       发表于 2021-11-20 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53623854&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-20 16:53</a>
+
+唉，这种制造双方信息差导致的对立有点俗了
+
+艾克太尼玛帅了，但是为什么他没有海克斯宝石也可以倒流时间躲 ...</blockquote>
+剧情确实挺俗的，这议会洗还有蔚和杰斯达成共识，突袭老巢
+
+*****
+
+####  阿尔及利亚  
+##### 1768#       发表于 2021-11-20 16:58
+
+听说整了个爆孝如雷的活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银枪子龙  
+##### 1769#       发表于 2021-11-20 16:58
+
+这三集估计是蔚要挨骂了
+
+*****
+
+####  空气先生  
+##### 1770#       发表于 2021-11-20 16:58
+
+艾克太帅了吧
+
+
+
+*****
+
+####  QAQAQA11  
+##### 1771#       发表于 2021-11-20 17:01
+
+大头好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银枪子龙  
+##### 1772#       发表于 2021-11-20 17:01
+
+果然是献祭了爱慕的妹子。。之前真猜对了
+
+*****
+
+####  QAQAQA11  
+##### 1773#       发表于 2021-11-20 17:01
+
+大头好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尼特子很辛苦哟  
+##### 1774#       发表于 2021-11-20 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53623775&amp;ptid=2002246" target="_blank">tewaku 发表于 2021-11-20 16:47</a>
+
+这些资源带字幕的吗？</blockquote>
+网飞扒下来的自带字幕的吧
+
+<img src="https://img.saraba1st.com/forum/202111/20/170240oryz4zrvvdrys8yd.jpg" referrerpolicy="no-referrer">
+
+<strong>22.jpg</strong> (138.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-20 17:02 上传
+
+*****
+
+####  银枪子龙  
+##### 1775#       发表于 2021-11-20 17:03
+
+那个搞梅尔家族的应该确实是乌鸦了
+

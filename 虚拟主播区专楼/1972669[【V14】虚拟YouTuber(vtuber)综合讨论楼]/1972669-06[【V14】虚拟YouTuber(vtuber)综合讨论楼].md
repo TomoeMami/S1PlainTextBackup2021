@@ -13289,3 +13289,12 @@ https://youtu.be/LMTmboEANqQ
 
 我猜这回喷喷胜者也会是主办方吧，就跟apex大会一样
 
+
+
+*****
+
+####  死体残留  
+##### 8500#       发表于 2021-11-20 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">喷喷大赛就看葛叶和猫猫哪个更神棍了 两个都是新手，葛叶中间还有live
+
