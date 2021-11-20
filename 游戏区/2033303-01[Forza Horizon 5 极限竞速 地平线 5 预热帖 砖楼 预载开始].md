@@ -14050,3 +14050,12 @@ lod修复，起码在火山口不是一片糊了
 
 WIN10商店版的不能用PS5手柄吗，连上电脑没反应，但是断开手柄又显示没有控制器
 
+
+
+*****
+
+####  AEmpire  
+##### 1278#       发表于 2021-11-20 12:38
+
+PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一个小时，啥心情都没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

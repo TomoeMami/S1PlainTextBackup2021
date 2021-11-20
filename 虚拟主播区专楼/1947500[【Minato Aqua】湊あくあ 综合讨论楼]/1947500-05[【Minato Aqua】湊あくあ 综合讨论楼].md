@@ -14881,3 +14881,17 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 当然最后不播也是PUA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sekai2014  
+##### 7206#       发表于 2021-11-20 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53620030&amp;ptid=1947500" target="_blank">nian1538 发表于 2021-11-20 10:43</a>
+
+ちょいと怪しいぞ？</blockquote>
+又不是每个人都一样的训练量.
+
+不奇怪吧.
+

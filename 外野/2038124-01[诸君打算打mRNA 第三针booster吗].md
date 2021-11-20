@@ -1068,3 +1068,26 @@ moderna的booster好像第三针只有半剂</blockquote>
 
 1、2、3针全是第一批接种人员赶来嘲笑
 
+
+
+*****
+
+####  oznark  
+##### 111#       发表于 2021-11-20 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53618283&amp;ptid=2038124" target="_blank">風舞雪 发表于 2021-11-20 01:51</a>
+
+昨天刚打完pfizer第三针 半夜发冷 完全睡不着 早上头疼 身体软 也没寒热 就是tm人废了 没法上班 请假了
+
+刚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我打莫德纳第二针和你这反应一样，关键是我最开始就是人有点软，我想着身体壮没事就去上班了，结果10点到单位，大概不到1点的时候追加了严重的偏头痛症状，头一阵一阵地发紧，然后跟老大请假之后回家路上顺手买了一提含糖的佳得乐，回家之后一边滚床一边喝佳得乐，当时就一个想法，曹操真是个伟大的人。
+
+*****
+
+####  bartholo4  
+##### 112#       发表于 2021-11-20 12:33
+
+现在国内这疫情也不严重 等公司像之前那样不停地催了再去打 按半年算，明年三月再打应该都可以
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
