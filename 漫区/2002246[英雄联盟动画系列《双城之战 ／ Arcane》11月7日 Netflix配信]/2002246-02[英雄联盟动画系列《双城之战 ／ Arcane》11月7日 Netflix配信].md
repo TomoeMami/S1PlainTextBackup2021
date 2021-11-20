@@ -6457,3 +6457,104 @@ magnet:?xt=urn:btih:f3c48dfa8fd3afa03802b540aa8e2883bda5282c
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ziyer  
+##### 2132#       发表于 2021-11-20 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628671&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-20 23:18</a>
+说实话，按照现在LOR是后日谈来看的话，金克丝这发火箭怕是没炸死人，不然凯特琳和蔚也不会一股子任 ...</blockquote>
+lor完全割裂看吧，完全对不上的
+
+*****
+
+####  狭义文具爱好者  
+##### 2133#       发表于 2021-11-20 23:29
+
+说起lor啊，又想到一个贼乐的点
+
+（忘了具体谁）：你必须把海克斯科技做成武器
+
+杰斯：不黑默丁格不会同意的
+
+lor黑默丁格：嘿嘿，200米高的海克斯霸王龙，嘿嘿
+
+*****
+
+####  战场公主希维尔  
+##### 2134#       发表于 2021-11-20 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628354&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-20 22:53</a>
+
+我是感觉桥上那段不是死局，在场四个人三个是发小，把女警身份唠明白了也不至于最后干残一个干废一个，金克 ...</blockquote>
+艾克应该是知道蔚不会对金克斯全力动手，挡不住金克斯。但又必须有一个底城人和女警一起走，所以艾克自己站出来挡金克斯。蔚么可能理解艾克的意思，而且也有逃避吧。
+
+*****
+
+####  uponutopia  
+##### 2135#       发表于 2021-11-20 23:31
+
+还是受制于游戏改的范畴，游戏角色总不能整的缺胳膊少腿，要不然小蛋糕早被献祭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且也要考虑推广分级不能真的爽大的，收尾差口气，总的来说还是优秀的游戏改编动画，镜头细节可以反复玩味
+
+*****
+
+####  praetorian  
+##### 2136#       发表于 2021-11-20 23:34
+
+我英语有点不行金克斯叫艾克The Boy Savior到底是指艾克救了蔚和女警还是说金克斯一直都知道收养小孩子的野火帮老大是艾克。
+
+*****
+
+####  摸鱼先锋  
+##### 2137#       发表于 2021-11-20 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628853&amp;ptid=2002246" target="_blank">战场公主希维尔 发表于 2021-11-20 23:31</a>
+
+艾克应该是知道蔚不会对金克斯全力动手，挡不住金克斯。但又必须有一个底城人和女警一起走，所以艾克自己 ...</blockquote>
+我是感觉大桥前后剧情有点给蔚整崩了，退一万步说留艾克殿后是迫不得已，最后手雷都炸了，金克丝和艾克都生死未卜了还在那女同调情，有点无语了，杰斯打完炮知道维克托病了还知道去看呢，蔚跟个没事人是吧，你们打吧我溜达
+
+*****
+
+####  kiririno  
+##### 2138#       发表于 2021-11-20 23:41
+
+话说如果下一季动画不讲双城了，那我该怎么获知皮城祖安这些角色的后续发展呢？指望游戏本体出活动或者更新设定？那也太折磨了吧，蚂蚁已经开始爬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  昨日恋曲  
+##### 2139#       发表于 2021-11-20 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">希望第二季能讲讲约德尔人
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  whyy  
+##### 2140#       发表于 2021-11-20 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628968&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-20 23:40:40</a>
+我是感觉大桥前后剧情有点给蔚整崩了，退一万步说留艾克殿后是迫不得已，最后手雷都炸了，金克丝和艾克都 ...</blockquote>那是蒙太奇吧，蔚那时候离桥很远的，她又不能放着受伤的凯特琳自己跑回桥上去。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  暗黑能乐  
+##### 2141#       发表于 2021-11-20 23:44
+
+其实确实是有在塑造蔚的迷茫，目前唯一毫无长进的人其实就是蔚，她的时间停住了，周围都在对她强调一切都变了，只有她想认为一切都没变，然后又有些逃避不敢面对现实，自以为解决掉希尔科就能解决一切问题。。。希望第二季出来后能重点讲讲蔚的转变，现在的她到皮城执法官还有一段路要走的。。
+
+*****
+
+####  Paradox7  
+##### 2142#       发表于 2021-11-20 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628976&amp;ptid=2002246" target="_blank">kiririno 发表于 2021-11-20 23:41</a>
+
+话说如果下一季动画不讲双城了，那我该怎么获知皮城祖安这些角色的后续发展呢？指望游戏本体出活动或者更新 ...</blockquote>
+估计得等拳头的mmo了，指不定各个地方都来一点动画或者电影漫画之类的剧情拓展，然后不讲完，中间到lol空的一段mmo慢慢讲（
+

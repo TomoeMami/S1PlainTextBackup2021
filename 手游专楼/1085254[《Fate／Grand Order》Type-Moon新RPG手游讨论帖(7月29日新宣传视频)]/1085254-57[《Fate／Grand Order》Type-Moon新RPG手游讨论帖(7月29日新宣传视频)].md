@@ -4157,3 +4157,29 @@ SKIP（T头西服身男性）
 
 隔壁是不是反应过度了，什么最大的卫星坠落事件，我寻思252还没被开除出主线吧，连异闻带之王都没落地呢，前几天的风向是日本历史和人物谁要看啊，今天就在哭几个日本男性英灵落地无望，我当然知道这是两群人，但连着一起看这剧情就挺搞笑的
 
+
+
+*****
+
+####  真红眼教授  
+##### 84366#       发表于 2021-11-20 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628768&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-11-20 23:26</a>
+
+隔壁是不是反应过度了，什么最大的卫星坠落事件，我寻思252还没被开除出主线吧，连异闻带之王都没落地呢， ...</blockquote>
+画了几个帅点的NPC立绘就叫卫星坠落
+
+没立绘又要喊躺平了
+
+反正都由他们说了算
+
+*****
+
+####  J-002  
+##### 84367#       发表于 2021-11-20 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628768&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-11-20 23:26</a>
+
+隔壁是不是反应过度了，什么最大的卫星坠落事件，我寻思252还没被开除出主线吧，连异闻带之王都没落地呢， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">隔壁不一直都这德行
+

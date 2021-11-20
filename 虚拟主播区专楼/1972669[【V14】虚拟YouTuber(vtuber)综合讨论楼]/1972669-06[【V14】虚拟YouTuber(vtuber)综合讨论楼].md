@@ -13511,3 +13511,12 @@ bora大福参加的这个BF主播宣传赛
 
 还是不要多做期待为好，不过换句话说也体会不到临阵磨枪结果被暴打的失望也挺好……吧
 
+
+
+*****
+
+####  死体残留  
+##### 8520#       发表于 2021-11-20 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">明年喷3呢，实话说喷喷这游戏开观战视角比个人视角好看
+
