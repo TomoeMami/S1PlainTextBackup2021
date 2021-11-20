@@ -7052,3 +7052,128 @@ v和jinx有个根本都不同就是之前v讨厌的，范德尔的“大局观�
 
 jinx在化工厂大爆炸前就有精神问题，后面的事只能说是诱因，感觉powder变成jinx只是时间问题。
 
+
+
+*****
+
+####  飞升之后  
+##### 2189#       发表于 2021-11-21 01:05
+
+金克斯对于蔚不认可现在的金克斯很绝望
+
+*****
+
+####  飞升之后  
+##### 2190#       发表于 2021-11-21 01:06
+
+新时代可没有希尔科的船票
+
+
+
+*****
+
+####  飞升之后  
+##### 2191#       发表于 2021-11-21 01:08
+
+外网IGN发的最喜欢剧集英雄角色的投票，金克斯是第一30%多
+
+*****
+
+####  Dashuaibi  
+##### 2192#       发表于 2021-11-21 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629879&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-21 01:08</a>
+
+外网IGN发的最喜欢剧集英雄角色的投票，金克斯是第一30%多</blockquote>
+这不就等于只把老父亲和黑妹给排除了
+
+*****
+
+####  第贰个十年  
+##### 2193#       发表于 2021-11-21 01:10
+
+ 本帖最后由 第贰个十年 于 2021-11-21 01:12 编辑 
+
+虽然整个剧情都透露出一股“为了把几个角色拐到游戏设定上去”的味道，想出来的故事也略显土味和一点都合，但能把这好几条线糅合在一起也讲清楚了节奏也不蹦让人看得懂已经实属不易，看得出来是打磨了很久趋近完美了。毕竟是先有的“目标”再想的剧本，已经可以了。再加上顶级的制作和偶尔优秀的演出，属于是已经做到了商业片的极致，让人感叹有钱真是能为所欲为。再往上就已经是得靠灵性才能达到的艺术境界了强求不得。
+
+这种质量的片说不上绝无仅有但也不是随时都有的，我想我能给个+2<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不过第二季应该是没得想了，毕竟故事已经讲完了热度也拿到了，再接着编也没什么意义。如果以后出其他地区的故事的话可能会作为彩蛋提到一些皮城的相关信息，但为这再整一季就没必要了。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  飞升之后  
+##### 2194#       发表于 2021-11-21 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629894&amp;ptid=2002246" target="_blank">Dashuaibi 发表于 2021-11-21 01:09</a>
+
+这不就等于只把老父亲和黑妹给排除了</blockquote>
+第二维克托，第三蔚，。。。杰斯垫底
+
+*****
+
+####  freka  
+##### 2195#       发表于 2021-11-21 01:19
+
+看完了，我一开始就觉得能保持前三集的质量绝对是年度top3，看完九集之后我就觉得双城已经封神了
+
+*****
+
+####  佛剑分说  
+##### 2196#       发表于 2021-11-21 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629205&amp;ptid=2002246" target="_blank">屌丶哲 发表于 2021-11-21 00:00</a>
+
+两个城市的美术风格，各种服装，建筑，很费精力吧
+
+我不是很懂这些，但是要换个城市继续讲的话，不是 ...</blockquote>
+如果是皮克斯那种纯3D建模动画，确实做好了双城的场景素材，再拍一部复用素材会节约很大成本。但是这片的绘画加工3d模式其实比较无所谓。
+
+如果制作方只是动画公司，自然是一个故事一直讲下去。但是这个片子的野心很明显不只是为了做一部动画而已，而是肩负了塑造拓展游戏宇宙的使命。在这种情况下，拍新的场景新的英雄新的故事，感觉应该是更好的选择。
+
+*****
+
+####  飞升之后  
+##### 2197#       发表于 2021-11-21 01:23
+
+再没有比这个结局更适合引出卡密尔的了
+
+*****
+
+####  飞升之后  
+##### 2198#       发表于 2021-11-21 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629967&amp;ptid=2002246" target="_blank">佛剑分说 发表于 2021-11-21 01:19</a>
+
+如果是皮克斯那种纯3D建模动画，确实做好了双城的场景素材，再拍一部复用素材会节约很大成本。但是这片的 ...</blockquote>
+拳头一下超神一下超鬼很正常，谨慎期待就好
+
+*****
+
+####  阿刚  
+##### 2199#       发表于 2021-11-21 01:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这个大导弹怼脸的结局真的不能忍啊……一定要有个交代得把，第二季也好，实在不行游戏彩蛋也行啊
+
+*****
+
+####  碎片整理  
+##### 2200#       发表于 2021-11-21 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629910&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-21 01:11</a>
+
+第二维克托，第三蔚，。。。杰斯垫底</blockquote>
+噗哈哈，杰斯做了所有正确的选择，然而所有人都厌恶杰斯，错的到底是杰斯还是这个世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  碎片整理  
+##### 2201#       发表于 2021-11-21 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629910&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-21 01:11</a>
+
+第二维克托，第三蔚，。。。杰斯垫底</blockquote>
+噗哈哈，杰斯做了所有正确的选择，然而所有人都厌恶杰斯，错的到底是杰斯还是这个世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4201,3 +4201,15 @@ SKIP（T头西服身男性）
 
 <img src="https://img.saraba1st.com/forum/202111/20/235655pew2hz44b9kbyzcq.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 84369#       发表于 2021-11-21 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626663&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-20 20:37</a>
+
+阿国怎么也会说斯麦卢的，卡尔蜜拉被火星龙鸣彻底同化了（悲）</blockquote>
+还能Excellent<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11736,3 +11736,20 @@ CJ在不是很正常？人家总得交接工作的嘛~
 
 陈珺版本全靠我了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 2775#       发表于 2021-11-21 01:14
+
+白白彻底坏掉了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 2776#       发表于 2021-11-21 01:22
+
+<blockquote>“骂我！”“🔥货！见货！碧池！lkd！🌟奴！...”
+房间充满了肉体碰撞的声音和ndwd不堪入耳的辱骂声，文静感受到肉体和心灵的双重满足，仿佛回到了直播间....</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
