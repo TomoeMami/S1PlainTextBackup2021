@@ -4095,3 +4095,26 @@ SKIP（T头西服身男性）
 
 两个杀狐搭配阿国，就可以一回合放两次技能了！虽然并没有什么用
 
+
+
+*****
+
+####  里村紅葉  
+##### 84358#       发表于 2021-11-20 20:37
+
+阿国怎么也会说斯麦卢的，卡尔蜜拉被火星龙鸣彻底同化了（悲）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84359#       发表于 2021-11-20 20:42
+
+推上似乎画师说高杉，武市，新兵卫都是NPC
+
+*****
+
+####  当光停止  
+##### 84360#       发表于 2021-11-20 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">武市画了三套立绘结果都还是npc。
+

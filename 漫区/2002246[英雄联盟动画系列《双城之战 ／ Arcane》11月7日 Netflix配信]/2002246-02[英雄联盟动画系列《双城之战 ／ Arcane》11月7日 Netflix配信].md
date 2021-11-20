@@ -5059,3 +5059,140 @@ jinx亲手刀自己两个爹，黑转路人了
 
 2021-11-20 20:19 上传
 
+
+
+*****
+
+####  屌丶哲  
+##### 1989#       发表于 2021-11-20 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">再往后就是皮城百特曼VS祖安小丑了，没意思
+应该会换一个主视角，或者换地方
+
+*****
+
+####  名津流  
+##### 1990#       发表于 2021-11-20 20:24
+
+卧槽，锤形态杰斯议员好几把炫酷，看得我都想玩杰斯了
+
+动画这种传媒带货能力是真的一流
+
+*****
+
+####  阿刚  
+##### 1991#       发表于 2021-11-20 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我寻思这锤子没有别的加成吧，怎么杰斯拿上直接碾压那些微光强化人了……还有金克斯的被动也出来了，女警没啥发挥空间真是太可惜了
+
+*****
+
+####  JennyFaceOff  
+##### 1992#       发表于 2021-11-20 20:28
+
+一直攒着没看，听说9集放完了，想问国配怎么样？有地方下载吗
+
+*****
+
+####  唧唧歪歪办事处  
+##### 1993#       发表于 2021-11-20 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626514&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-20 20:27</a>
+
+我寻思这锤子没有别的加成吧，怎么杰斯拿上直接碾压那些微光强化人了……还有金克斯的被动也出来了 ...</blockquote>
+海克斯科技能增强体质,不过动画里这点没明说
+
+*****
+
+####  ammk  
+##### 1994#       发表于 2021-11-20 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626379&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-20 20:18</a>
+还有更经典的黄鸡和泽拉斯，那才是真经典，那个故事文案算是我最喜欢的一篇拳头文案了 ...</blockquote>
+只论故事背景，皇帝是我最喜欢的角色。希望改编能上大屏幕
+
+*****
+
+####  ammk  
+##### 1995#       发表于 2021-11-20 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626539&amp;ptid=2002246" target="_blank">JennyFaceOff 发表于 2021-11-20 20:28</a>
+一直攒着没看，听说9集放完了，想问国配怎么样？有地方下载吗</blockquote>
+国配整体不错，可惜后三集出了个畜生演了个关键角色
+建议直接英配，感情的张力很到位
+
+*****
+
+####  阿刚  
+##### 1996#       发表于 2021-11-20 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625825&amp;ptid=2002246" target="_blank">伊森温特斯 发表于 2021-11-20 19:38</a>
+
+看完了，突出一个无语。我现在真的不太喜欢金克斯了，所有的人都爱她包容她原谅她所有的错误
+
+但她以你今天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">没办法，她已经是个神经病了，所有行为都是现实幻觉混在一起的。就像你说的，在你看来他可能是因为你左脚进门所以要把你的脚砍了，但在她看来是你左脚进门了上面挂着什么不可名状的东西要砍了，你要阻止她她就只能为了你好宰了你
+
+*****
+
+####  狭义文具爱好者  
+##### 1997#       发表于 2021-11-20 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626539&amp;ptid=2002246" target="_blank">JennyFaceOff 发表于 2021-11-20 20:28</a>
+
+一直攒着没看，听说9集放完了，想问国配怎么样？有地方下载吗</blockquote>
+789成年艾克拉低所有，看原配或者等网飞版中配吧
+
+*****
+
+####  筱原重工  
+##### 1998#       发表于 2021-11-20 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626465&amp;ptid=2002246" target="_blank">屌丶哲 发表于 2021-11-20 20:23</a>
+
+再往后就是皮城百特曼VS祖安小丑了，没意思
+
+应该会换一个主视角，或者换地方 ...</blockquote>
+换艾克视角吧，这孩子真是祖安之光，要文韬有文韬要武略有武略要科技有科技要良心有良心，最后还有了大头，带领祖安的不二人选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 1999#       发表于 2021-11-20 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626598&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-20 20:32</a>
+
+换艾克视角吧，这孩子真是祖安之光，要文韬有文韬要武略有武略要科技有科技要良心有良心，最后还有了大头 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现实更绝望啊，毕竟真正的妖魔鬼怪其实都还没出来呢
+
+*****
+
+####  Fakerの幻影  
+##### 2000#       发表于 2021-11-20 20:34
+
+艾克的z驱动还没出来吧
+
+*****
+
+####  厄神之息  
+##### 2001#       发表于 2021-11-20 20:44
+
+突然想到，新英雄会不会不是梅尔，而是这个没死的黑大姐？跟英雄级的v打了好几次46开，背景故事也明确接下来也有明确的行事目标了，给希尔科报仇杀死金克斯。
+
+*****
+
+####  有优越感的人mk2  
+##### 2002#       发表于 2021-11-20 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626774&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-20 20:44</a>
+
+突然想到，新英雄会不会不是梅尔，而是这个没死的黑大姐？跟英雄级的v打了好几次46开，背景故事也明确接下 ...</blockquote>
+这大姐的塑造也够强的，台词戏份都不多
+
+*****
+
+####  chillstar  
+##### 2003#       发表于 2021-11-20 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不愧是最符合新版本致命节奏的英雄，jinx这一波波节奏带的
+
