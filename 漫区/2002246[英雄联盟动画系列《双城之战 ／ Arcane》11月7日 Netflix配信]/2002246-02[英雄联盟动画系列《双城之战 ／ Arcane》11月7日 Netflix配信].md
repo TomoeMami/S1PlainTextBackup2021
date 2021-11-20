@@ -3311,3 +3311,255 @@ rarbg上有资源了</blockquote>
 
 —— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  有妹是老婆  
+##### 1795#       发表于 2021-11-20 17:43
+
+这下范德尔石锤是狼人了
+
+*****
+
+####  CCCCCC梵  
+##### 1796#       发表于 2021-11-20 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不是为什么让女警这个上城人劝艾克放弃宝石和解啊？？？这真的很无语
+
+*****
+
+####  飞升之后  
+##### 1797#       发表于 2021-11-20 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624439&amp;ptid=2002246" target="_blank">CCCCCC梵 发表于 2021-11-20 17:43:53</a>
+不是为什么让女警这个上城人劝艾克放弃宝石和解啊？？？这真的很无语</blockquote>希尔科通过执法官把爆炸的事甩锅野火帮啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Anonekoy  
+##### 1798#       发表于 2021-11-20 17:45
+
+沃日，怎么结束连个预告都没有的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lost_恩恩  
+##### 1799#       发表于 2021-11-20 17:48
+
+后期是不是也没钱了，各种人物大脸怼镜头，背景也简单了很多，过场黑屏。但是真特么帅啊，艾克真特么帅啊，最后不出意外的开放式结局
+
+*****
+
+####  CCCCCC梵  
+##### 1800#       发表于 2021-11-20 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624452&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-20 17:45</a>
+
+希尔科通过执法官把爆炸的事甩锅野火帮啊
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+没，野火帮也是被迫害要自卫，女警就这么说你要为了大义放弃这个宝石接着和希尔科斗，怎么说呢...就很高高在上感觉很不好
+
+
+
+*****
+
+####  飞升之后  
+##### 1801#       发表于 2021-11-20 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624501&amp;ptid=2002246" target="_blank">CCCCCC梵 发表于 2021-11-20 17:49:00</a>
+没，野火帮也是被迫害要自卫，女警就这么说你要为了大义放弃这个宝石接着和希尔科斗，怎么说呢...就很高 ...</blockquote>皮城怕的是爆炸吗？怕的是那个宝石
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Linjiangzhu  
+##### 1802#       发表于 2021-11-20 17:50
+
+看完了，就很<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anonekoy  
+##### 1803#       发表于 2021-11-20 17:50
+
+这导弹只炸死个梅尔我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">议会不得被一锅端了啊
+
+*****
+
+####  LinkerWeg  
+##### 1804#       发表于 2021-11-20 17:51
+
+There is always a choice.
+
+*****
+
+####  老冰棍初号机  
+##### 1805#       发表于 2021-11-20 17:51
+
+难顶啊，剧情一下戛然而止<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫塚猫夫  
+##### 1806#       发表于 2021-11-20 17:52
+
+最近玩了盘金克斯，听到那句“♪~她就是个卢瑟，总是爱哭的样子，恰恰恰恰~♪”才明白怎么回事。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  annasa  
+##### 1807#       发表于 2021-11-20 17:53
+
+大孝女害人精<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">梅尔我的梅尔
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ky7913  
+##### 1808#       发表于 2021-11-20 17:54
+
+反正故事也不可能结束，就这么开放式结局挺好的
+
+*****
+
+####  bairn  
+##### 1809#       发表于 2021-11-20 17:54
+
+看不到第二季我身上有食蚁兽在爬
+
+*****
+
+####  新的起源  
+##### 1810#       发表于 2021-11-20 17:54
+
+最后的结局有点意思啊
+
+举手表决和平换来的是个究极死亡飞弹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Anonekoy  
+##### 1811#       发表于 2021-11-20 17:56
+
+这么说梅尔家的继承人都死完了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  今天不守尸  
+##### 1812#       发表于 2021-11-20 17:58
+
+这本以为是群像剧，结果是金克斯的独角戏啊，皮祖两城其他英雄的剧情都还展开就结束了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酱油康  
+##### 1813#       发表于 2021-11-20 17:58
+
+这结局绝了，一发炮弹，没有退路了，所有人的努力都化为灰飞烟灭
+
+太绝望了
+
+*****
+
+####  sad6504  
+##### 1814#       发表于 2021-11-20 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">结局看自闭了
+
+*****
+
+####  星名早苗  
+##### 1815#       发表于 2021-11-20 18:00
+
+前3集还能说造化弄人，最后只能说谁也救不了了
+
+*****
+
+####  qxs  
+##### 1816#       发表于 2021-11-20 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588014&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-18 00:32</a>
+
+看起来梅尔和她妈关系并不好......</blockquote>
+梅尔她妈还是很爱梅尔的
+
+*****
+
+####  bairn  
+##### 1817#       发表于 2021-11-20 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624597&amp;ptid=2002246" target="_blank">Anonekoy 发表于 2021-11-20 17:56</a>
+
+这么说梅尔家的继承人都死完了？</blockquote>
+不死完也会被乌鸦一锅端的
+
+*****
+
+####  空气先生  
+##### 1818#       发表于 2021-11-20 18:02
+
+?????????????????
+
+*****
+
+####  星名早苗  
+##### 1819#       发表于 2021-11-20 18:02
+
+艾克和大头碰在一起，能不能搞一出妇联4？
+
+*****
+
+####  三个尻枪手  
+##### 1820#       发表于 2021-11-20 18:02
+
+梅尔第9集见她妈的时候，那个滚出去的小白脸出去的时候，旁边的侍卫笑了一下。尚武的民风就是看不起这种吃软饭的
+
+细节啊
+
+*****
+
+####  Anonekoy  
+##### 1821#       发表于 2021-11-20 18:03
+
+应该有第二季吧，不然怎么解释杰斯活下来了？毕竟连锤子都不在身边
+
+*****
+
+####  Linjiangzhu  
+##### 1822#       发表于 2021-11-20 18:03
+
+动画没拉，但是剧情真的意难平，虽然结尾唱what could have been，但再选一次真的会有好的结局吗？姐妹最终要分道扬镳，双城最后还是要打。
+
+感觉这议会最后只能活个杰斯了
+
+妈的网飞给爷续订第二季
+
+*****
+
+####  何でやねん  
+##### 1823#       发表于 2021-11-20 18:04
+
+疯女人真棒<img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 1824#       发表于 2021-11-20 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这结局真是把我看麻了，金克斯克死3任爹这个也就算了，我没搞懂啊，她为什么要射这一炮啊，她姐老活在过去，她射议会干吊啊。
+
+*****
+
+####  今天不守尸  
+##### 1825#       发表于 2021-11-20 18:05
+
+而且之前说汉化标题双城之战是自由发挥，但这原标题奥术好像也没多贴合剧情，前半段存在感还好，后半段和奥术有关的只有维克托一个人了，而维克托的戏份感觉才讲了个开头。。。
+
