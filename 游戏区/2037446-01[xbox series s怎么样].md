@@ -958,3 +958,14 @@ xss最神奇的地方是，你如果经常出差且旅行箱大一点，你是�
 xss最神奇的地方是，你如果经常出差且旅行箱大一点，你是能带的。</blockquote>
 都不需要旅行箱大...背包都可以<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  丈育  
+##### 96#       发表于 2021-11-20 08:49
+
+请问现在的日版xss还有手柄断连信道问题吗，感觉各大平台还是日版的最便宜
+
+— from HUAWEI DBY-W09, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
