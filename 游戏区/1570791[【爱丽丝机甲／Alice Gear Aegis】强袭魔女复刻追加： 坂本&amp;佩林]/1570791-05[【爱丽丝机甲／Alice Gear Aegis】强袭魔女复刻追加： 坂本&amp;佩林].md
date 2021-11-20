@@ -3462,3 +3462,14 @@ ova不是已经有过男声优了
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6252#       发表于 2021-11-20 23:53
+
+[https://www.bilibili.com/video/BV18U4y1u78s](https://www.bilibili.com/video/BV18U4y1u78s)
+
+国服有热心大佬做了分支目押的说明。有说明有对比，关键是有慢镜和动作特征说明，对练习目押的熟练度非常有帮助，可以减少大量摸索的时间，非常推荐。就算是日服玩家也可以去支持学习下的，毕竟这么多女演员也不是个个都有爱和有时间去摸索目押点、练肌肉记忆。
+
