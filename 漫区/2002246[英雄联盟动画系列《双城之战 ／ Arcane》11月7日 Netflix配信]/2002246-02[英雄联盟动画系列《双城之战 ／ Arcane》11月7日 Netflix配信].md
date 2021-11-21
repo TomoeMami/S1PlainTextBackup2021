@@ -7720,3 +7720,102 @@ Where’s a Hexgate when you need one?
 老爹要惩治不孝女了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不孝女成天在皮城闹腾，老爹上不去啊只能在祖安混
 
+
+
+*****
+
+####  第贰个十年  
+##### 2260#       发表于 2021-11-21 10:27
+
+ 本帖最后由 第贰个十年 于 2021-11-21 10:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53631891&amp;ptid=2002246" target="_blank">IRIS虹 发表于 2021-11-21 09:32</a>
+为啥说故事已经讲完了，感觉很多东西都还没讲呐</blockquote>
+因为在我看来——如同我提到的——这部作品的剧情事实上是为人物服务的，并没有一个很重要的主题和主轴，它的任务就是想办法合理得把各个角色拐到游戏设定上去，所以很多时候会有奇怪的发展。
+比如杰斯前一秒被嘴炮下定决心要造锤子打希尔科，打一场就因为打死了人破防跑路了。你要说合不合理，那确实还能算合理，但你说蠢不蠢，那也是真的蠢，在剧本结构上这样塑造一个人物只会显得他一点也不坚定并且之前的嘴炮毫无意义，但没办法，杰斯必须造锤子和拳套，但又不能真跟希尔科打个你死我活不然金克斯那部分就不好处理，就你会发现这部分剧情其实没什么意义，唯一推动的就是让杰斯意识到底城人过得不好，但由“杀死了小孩”来意识到这点是否……虽然这样处理也还可以接受就是了。
+
+有点偏题，总之，在我看来这是一个剧本不是最重要的元素的作品，那出第二季把故事讲完的意义在哪呢？虽然还有些没有写完的部分，狼人维克托啥的，但毕竟角色已经都差不多拐上去了，故事上再出就只能讲女同三角之间不得不说的一百个打情骂俏小故事了——虽然这个我还真蛮想看的——还不如讲讲其他地区扩宽世界观，也更好发挥。当然我其实是更倾向于认为lol估摸着火不到下一部动画了。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  狼影者瑞德克斯  
+##### 2261#       发表于 2021-11-21 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53630128&amp;ptid=2002246" target="_blank">freka 发表于 2021-11-21 01:40</a>
+
+我觉得这特写是为了表现出她是必死的</blockquote>
+那没必要还特意给个裸背镜头展示她的金纹吧
+
+*****
+
+####  暗黑能乐  
+##### 2262#       发表于 2021-11-21 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">待会梅尔英雄一出看一眼技能来个保命技就知道死没死了
+
+*****
+
+####  佛剑分说  
+##### 2263#       发表于 2021-11-21 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53632461&amp;ptid=2002246" target="_blank">第贰个十年 发表于 2021-11-21 10:27</a>
+
+因为在我看来——如同我提到的——这部作品的剧情事实上是为人物服务的，并没有一个很重要的主题和主轴， ...</blockquote>
+赞同最后一段的每一个字
+
+*****
+
+####  与天争锋_LZ  
+##### 2264#       发表于 2021-11-21 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627966&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-20 22:15</a>
+是的，凯特琳只有一点腿伤甚至不用看医生，自己老爹绑点绷带就行了，结果蔚456集里一直口口声声说什么也 ...</blockquote>
+还有一种解释
+蔚一直想的妹妹都是爆爆
+
+其实是想逃避“金克丝”的
+
+<img src="https://p.sda1.dev/3/65466839e138106603194e2c8268e987/IMG_CMP_118050108.png" referrerpolicy="no-referrer">
+
+结尾金克丝希望自己无论是爆爆还是金克丝，蔚都能接受自己，但是并不能
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lost_恩恩  
+##### 2265#       发表于 2021-11-21 10:39
+
+<img src="https://img.saraba1st.com/forum/202111/21/103905yw9s4913pq1qs4a4.jpg" referrerpolicy="no-referrer">
+
+<strong>-2025822428.jpg</strong> (29.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-21 10:39 上传
+
+吃，都可以吃，真要这样我倒想看看发条的故事要咋改
+
+*****
+
+####  暗黑能乐  
+##### 2266#       发表于 2021-11-21 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53632615&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-21 10:39</a>
+
+吃，都可以吃，真要这样我倒想看看发条的故事要咋改</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个皮城祖安英雄一大堆关系户了直接
+
+*****
+
+####  新的起源  
+##### 2267#       发表于 2021-11-21 10:42
+
+好消息：你们不用等6年
+
+坏消息：2022年甭想了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

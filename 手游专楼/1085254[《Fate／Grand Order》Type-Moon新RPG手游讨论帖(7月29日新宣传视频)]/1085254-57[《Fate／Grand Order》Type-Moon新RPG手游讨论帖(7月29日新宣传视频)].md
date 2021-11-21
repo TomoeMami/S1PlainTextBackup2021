@@ -4231,3 +4231,19 @@ SKIP（T头西服身男性）
 
 挺好的，不切合实际的yy早点儿击碎比较好，省的像宙斯一样整天xjb奶，还自己臆想出一个奥运活动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 84372#       发表于 2021-11-21 10:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开贴庆祝炎上的样子真有点滑稽，还有在那追问性转团长池子流水的
+
+*****
+
+####  真红眼教授  
+##### 84373#       发表于 2021-11-21 10:43
+
+看来确实有不少人捏着鼻子玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
