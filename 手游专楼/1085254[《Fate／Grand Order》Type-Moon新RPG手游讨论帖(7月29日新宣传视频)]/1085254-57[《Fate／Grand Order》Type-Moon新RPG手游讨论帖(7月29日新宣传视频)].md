@@ -4272,3 +4272,15 @@ SKIP（T头西服身男性）
 至于隔壁？那里还有正常讨论的人？ ...</blockquote>
 团长的色图是真的多，我存了一大堆，基本都是从4chan存的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  真红眼教授  
+##### 84376#       发表于 2021-11-21 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53632807&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-21 10:54</a>
+
+团长的色图是真的多，我存了一大堆，基本都是从4chan存的</blockquote>
+团长涩图的爆发程度超乎我的想象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

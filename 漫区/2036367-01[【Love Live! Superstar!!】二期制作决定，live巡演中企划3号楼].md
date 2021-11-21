@@ -8997,3 +8997,175 @@ D3900EB8-C38E-45A5-8C78-3C2FDFEFCABA.png
 
 等他什么时候来这里对线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  emmer  
+##### 826#       发表于 2021-11-21 11:06
+
+触及利益比触及灵魂更高效啊
+
+*****
+
+####  优妮可  
+##### 827#       发表于 2021-11-21 11:08
+
+他不退有什么办法吗？
+
+*****
+
+####  lj205  
+##### 828#       发表于 2021-11-21 11:10
+
+说你是切尔西球迷试试<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 829#       发表于 2021-11-21 11:11
+
+屎黄色论坛真nm难用
+
+*****
+
+####  li463900160  
+##### 830#       发表于 2021-11-21 11:12
+
+嗨，你们要我来我就来了，你们硬要说我是为了赚钱糊弄你们我也没话说，还有什么想骂的我这边来给各位一一解释清楚
+
+*****
+
+####  emmer  
+##### 831#       发表于 2021-11-21 11:13
+
+给摩天轮点赞还打滚不承认<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 832#       发表于 2021-11-21 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开个盘吧 啥时候气急败坏又转黑
+
+*****
+
+####  iuhehc  
+##### 833#       发表于 2021-11-21 11:15
+
+点赞摩天轮和某条#还能洗吗
+
+*****
+
+####  离心  
+##### 834#       发表于 2021-11-21 11:16
+
+<blockquote>li463900160 发表于 2021-11-21 11:12
+嗨，你们要我来我就来了，你们硬要说我是为了赚钱糊弄你们我也没话说，还有什么想骂的我这边来给各位一一解 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/21/111622fkkarjrnivb6ziim.jpg" referrerpolicy="no-referrer">
+
+<strong>f3f4442184b4b4cf.jpg</strong> (242.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 11:16 上传
+
+来，听你解释
+
+*****
+
+####  D麦林  
+##### 835#       发表于 2021-11-21 11:16
+
+隔壁怎么吵起来了 本来还想看看大阪场感想 赶紧润过来
+我超怎么这里也吵起来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 836#       发表于 2021-11-21 11:16
+
+ 本帖最后由 寒风夜 于 2021-11-21 11:21 编辑 
+
+有小丑啊
+
+*****
+
+####  li463900160  
+##### 837#       发表于 2021-11-21 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633124&amp;ptid=2036367" target="_blank">离心 发表于 2021-11-21 11:16</a>
+
+来，听你解释</blockquote>
+因为这中文根本配的听不出来是中文，当初不也一堆人说不看字幕都不知道说了什么么？
+
+*****
+
+####  绯想alter2nd  
+##### 838#       发表于 2021-11-21 11:19
+
+这里人不多，不影响你收入的
+
+*****
+
+####  D麦林  
+##### 839#       发表于 2021-11-21 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633144&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 11:18</a>
+因为这中文根本配的听不出来是中文，当初不也一堆人说不看字幕都不知道说了什么么？ ...</blockquote>
+然后就能用这种形容词是吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+当一个说的话恰到好处以至于.jpg
+
+*****
+
+####  li463900160  
+##### 840#       发表于 2021-11-21 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633116&amp;ptid=2036367" target="_blank">iuhehc 发表于 2021-11-21 11:15</a>
+
+点赞摩天轮和某条#还能洗吗</blockquote>
+我隔壁说了，我这里也说下
+
+我不止点赞过，之前s1还有爆黑料的我也跟风说了摩天轮
+
+那是15、16年左右的事情，那时候上海圈子都在传这件事，你身边朋友都在说，那我也被带进去了
+
+
+
+*****
+
+####  中野四葉  
+##### 841#       发表于 2021-11-21 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633144&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 11:18</a>
+因为这中文根本配的听不出来是中文，当初不也一堆人说不看字幕都不知道说了什么么？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你就打了这个tag？这论证过于有力了你不加个数字论证？
+
+*****
+
+####  cybernetics31  
+##### 842#       发表于 2021-11-21 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那几个点赞解释解释啊
+
+*****
+
+####  li463900160  
+##### 843#       发表于 2021-11-21 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633099&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2021-11-21 11:14</a>
+
+开个盘吧 啥时候气急败坏又转黑</blockquote>
+我不会转黑，我之前微博上也说了我看小偶像就是实力说话，我之前以为鲤鱼是被蜀黍带进去的想看乐子，现在她表现出来的实力的确能够站在这个舞台上，所以我为什么要黑？
+
+*****
+
+####  离心  
+##### 844#       发表于 2021-11-21 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633144&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 11:18</a>
+
+因为这中文根本配的听不出来是中文，当初不也一堆人说不看字幕都不知道说了什么么？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">兄弟你真的不用装的。这里和隔壁专楼也没多少人，不会耽误你的生意。
+

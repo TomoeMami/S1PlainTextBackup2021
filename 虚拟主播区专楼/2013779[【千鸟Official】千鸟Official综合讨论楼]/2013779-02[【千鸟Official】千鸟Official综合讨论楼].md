@@ -11823,3 +11823,19 @@ ndwd天天cue文静，文静又不播，可不就剩炒cp了<img src="https://st
 怎么又新版本了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 看个千鸟真累啊，希望文静复播先狠狠地训波粉<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2784#       发表于 2021-11-21 11:08
+
+<blockquote>表达了尊敬和抬爱</blockquote>有文科生疑似语文不及格
+
+*****
+
+####  rgauss  
+##### 2785#       发表于 2021-11-21 11:16
+
+👋👋👋我错了 还是cj版本吧 
+
