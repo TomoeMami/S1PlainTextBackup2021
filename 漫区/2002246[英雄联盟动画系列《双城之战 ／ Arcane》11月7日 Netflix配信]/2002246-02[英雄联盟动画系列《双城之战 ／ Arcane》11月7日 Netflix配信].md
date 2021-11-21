@@ -8354,3 +8354,90 @@ scout在S11没选过维克托吧？</blockquote>
 
 所以禁gun就是好啊，个人武力值终归是有极限的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  今天不守尸  
+##### 2319#       发表于 2021-11-21 15:04
+
+<img src="https://img.saraba1st.com/forum/202111/21/150258e3cz2m13jic3x1cl.jpg" referrerpolicy="no-referrer">
+
+<strong>575ce1fdfc0392459a1d53e1c294a4c27f1e25c2.jpg</strong> (20.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 15:02 上传
+
+<img src="https://img.saraba1st.com/forum/202111/21/150255ap6yrsza0uyw1q2j.jpg" referrerpolicy="no-referrer">
+
+<strong>278bc9c4b74543a96c5b31da43178a82b80114f3.jpg</strong> (22.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 15:02 上传
+
+<img src="https://img.saraba1st.com/forum/202111/21/150246olkt3kdztk5mt8ht.jpg" referrerpolicy="no-referrer">
+
+<strong>06d7f488d43f8794eb57fac0971b0ef419d53ac2.jpg</strong> (24.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 15:02 上传
+
+薇迫切需要给妹妹网购一个这个道具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞升之后  
+##### 2320#       发表于 2021-11-21 15:09
+
+如果第二季的，双城的本土英雄撑不起第二季把，估计要真正引入外部势力了。。什么厄加特被诺克萨斯搞来阿。。。烬来双城犯事阿。。。EZ到外面探险拿了宝物，引来追兵阿
+
+*****
+
+####  飞升之后  
+##### 2321#       发表于 2021-11-21 15:13
+
+罗云熙是不是该给范丞丞磕2个头
+
+*****
+
+####  飞升之后  
+##### 2322#       发表于 2021-11-21 15:14
+
+很难不色色，搞得跟欧式内衣一样
+
+00891AKFgy1gwlvyp0zfwj30hg0gjdh1.jpg
+(22.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202111/21/151426t4ctpj4wdjwffcvt.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  儒雅随和李田所  
+##### 2323#       发表于 2021-11-21 15:16
+
+唯一不太喜欢的情节就是维克托害死青梅黑妹那段 太都合了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  战场公主希维尔  
+##### 2324#       发表于 2021-11-21 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636048&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-21 14:51:00</a>
+所以禁gun就是好啊，个人武力值终归是有极限的</blockquote>但这是幻想世界，魔法比枪牛逼多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有好多可以以一当百的怪物。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  (wing)  
+##### 2325#       发表于 2021-11-21 15:20
+
+一口气看完九集，只能说剧情全靠疯批来强行推动了
+

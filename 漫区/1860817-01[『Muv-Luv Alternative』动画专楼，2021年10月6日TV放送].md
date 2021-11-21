@@ -20178,3 +20178,25 @@ Alt3那一屋子杜霞的姐妹，身高发型各不相同，而且没有一个�
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hacisiki  
+##### 1414#       发表于 2021-11-21 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53619171&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-20 08:34</a>
+
+提醒一下TV版和BD版的区别……</blockquote>
+手绘和3D的区别么！这都算重置了吧hhh
+
+*****
+
+####  hacisiki  
+##### 1415#       发表于 2021-11-21 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53611203&amp;ptid=1860817" target="_blank">102mph 发表于 2021-11-19 17:17</a>
+
+突然想起 原作比较大的一个缺点就是最终作战从成功落地就直接跳跃到攻击boss门卫了 但是看当前节奏 这里估 ...</blockquote>
+全年龄版有一长段钻洞的动画吧（所以R18完全没有意义啊，我都是直接跳过，整段游戏唯一跳过的剧情）
+

@@ -12158,3 +12158,15 @@ ndwd你给我出来！
 
 为什么不能产房，呸，病房直播，是住不起红房子吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 2817#       发表于 2021-11-21 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635842&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-21 14:35</a>
+
+为什么不能产房，呸，病房直播，是住不起红房子吗</blockquote>
+不是单人间.而且每次护士医生进来一看文静举个手机在呱呱呱的说话,肯定要把这女人转脑科.
+

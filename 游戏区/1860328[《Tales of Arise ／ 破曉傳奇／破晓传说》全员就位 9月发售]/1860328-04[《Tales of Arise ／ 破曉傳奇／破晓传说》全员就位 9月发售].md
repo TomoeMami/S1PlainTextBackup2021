@@ -19740,3 +19740,27 @@ kos-mos.jpg
 
 红毛能拿第一有点出乎意料之外.....其他倒是还在预料之中
 
+
+
+*****
+
+####  hugosol  
+##### 5952#       发表于 2021-11-21 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626306&amp;ptid=1860328" target="_blank">肛之练筋士 发表于 2021-11-20 20:13</a>
+
+在今天举办的「传说祭2021」活动上，官方正式宣布《破晓传说》将舞台剧化，预定于2022年3月26日·27日公演 ...</blockquote>
+怎么混进去一个檀黎斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  法拉  
+##### 5953#       发表于 2021-11-21 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634856&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-11-21 13:28</a>
+
+我还在想这贴怎么又被顶上来了
+
+红毛能拿第一有点出乎意料之外.....其他倒是还在预料之中</blockquote>
+在我的意料之中，因为杜欧哈林人气确实太爆炸了
+
