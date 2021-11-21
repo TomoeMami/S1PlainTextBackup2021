@@ -7516,3 +7516,44 @@ Where’s a Hexgate when you need one?
 
 甚至arcane官方头像改成一个2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ammk  
+##### 2238#       发表于 2021-11-21 08:49
+
+这个时间点好啊，不然光自家粉丝嚷嚷都躲不了
+
+*****
+
+####  暗黑能乐  
+##### 2239#       发表于 2021-11-21 08:50
+
+其实金克丝也还没到完全疯狂的程度啊
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  qxs  
+##### 2240#       发表于 2021-11-21 08:57
+
+第二季消息来了，看样子还是皮城https://share.api.weibo.cn/share/263440529.html?weibo_id=4705885442279438
+
+----发送自 [Xiaomi Mi 10,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  qxs  
+##### 2241#       发表于 2021-11-21 08:58
+
+<img src="https://img.saraba1st.com/forum/202111/21/085757laccbcimczf0ioi9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-11-21-08-55-39-237_com.weico.international.jpg</strong> (163.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-21 08:57 上传
+

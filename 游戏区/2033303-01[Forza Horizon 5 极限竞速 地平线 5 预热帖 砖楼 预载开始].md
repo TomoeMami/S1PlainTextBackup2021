@@ -14213,3 +14213,14 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 今天又遇到了新的bug，大地图上看不到一起组队的队友，但是我俩都看得到其他人；还有游乐场跑一半其他人莫名其妙消失不见了但是进度还在蹭蹭往上涨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1293#       发表于 2021-11-21 08:57
+
+终极刷技能点的方法出了，我去抽奖了。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

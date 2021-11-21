@@ -13520,3 +13520,19 @@ bora大福参加的这个BF主播宣传赛
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">明年喷3呢，实话说喷喷这游戏开观战视角比个人视角好看
 
+
+
+*****
+
+####  free  
+##### 8521#       发表于 2021-11-21 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625712&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2021-11-20 19:29</a>
+
+hachi上了</blockquote>
+中排：狮子神、蓝莓、MZM、律可、琉璃姐、花剪
+
+前排：花京院、口吃神、烂货、老爱、小白、太子、大葵
+
+应该没看错吧......这阵容还行，不过好像是线下live？
+
