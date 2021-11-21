@@ -7686,3 +7686,26 @@ debu
 
 你查一下她战绩就知道 她这次直播之前唯一赢的还是10天前<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 5390#       发表于 2021-11-22 00:08
+
+脑淤血操作 我看麻了
+
+*****
+
+####  T_Hb  
+##### 5391#       发表于 2021-11-22 00:09
+
+还好我看不懂
+
+*****
+
+####  雪风utopia  
+##### 5392#       发表于 2021-11-22 00:18
+
+叫的好烧<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

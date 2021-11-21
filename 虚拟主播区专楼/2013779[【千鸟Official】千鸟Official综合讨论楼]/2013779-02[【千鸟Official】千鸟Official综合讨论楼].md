@@ -12691,3 +12691,18 @@ VR也没吧，主播这行好像都这样？<img src="https://static.saraba1st.c
 
 co宝和琳的唱歌水平我只能遗憾的说，不如烧鸡，开口就想退
 
+
+
+*****
+
+####  papermoon868  
+##### 2874#       发表于 2021-11-22 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53640175&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-21 19:43</a>
+倒是文静切个阑尾之后也太虚弱了。。。
+
+今天还偶像的修养什么的，就不能好好吃饭嘛 ...</blockquote>
+两个手术，阑尾和嗓子
+
+—— 来自 sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

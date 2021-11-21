@@ -10238,3 +10238,49 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 起码年轻的肉体还是表露的比较好了 值回票价而且小赚
 细想感觉也挺好的 起码说明对事务所的人来说凭鲤鱼的魅力不需要出卖色相就能获得欢迎（？）
 
+
+
+*****
+
+####  仟音一心  
+##### 938#       发表于 2021-11-22 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643384&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-21 23:55</a>
+
+其实我感觉这一套里面 露出度倒是大差不差
+
+其实也不一定要露出度高才能色起来
+
+但是主要是穿搭和拍 ...</blockquote>
+阳光就对了，你看标题
+
+3A31F4CC-5679-49B0-8F30-1D2B74041FCE.jpeg
+(161.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 00:05 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/000532upxd2tpb5vooxs52.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 939#       发表于 2021-11-22 00:14
+
+我除了真漂亮外就没有其他的想法………………这正常吗……
+
+*****
+
+####  stygian  
+##### 940#       发表于 2021-11-22 00:16
+
+（大阪两场有老哥录了档吗
+
+*****
+
+####  lj205  
+##### 941#       发表于 2021-11-22 00:19
+
+这写真甚至还有憨憨照，笑死我了
+

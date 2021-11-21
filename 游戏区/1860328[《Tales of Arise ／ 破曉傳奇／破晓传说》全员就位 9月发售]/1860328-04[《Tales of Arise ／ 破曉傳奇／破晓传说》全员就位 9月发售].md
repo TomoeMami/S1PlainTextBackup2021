@@ -19854,3 +19854,14 @@ toar的二创是真的少，产出连发售快四年的泥潭真爱都打不过�
 
 反正我挺讨厌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ranapocket  
+##### 5963#       发表于 2021-11-22 00:06
+
+发售之后杜欧讨论度就很高，第一没什么好惊讶的吧，我对男主有前三比较惊讶。以及队里属性最没意思的是奇莎拉，明明发售前人设看起来还不错的。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

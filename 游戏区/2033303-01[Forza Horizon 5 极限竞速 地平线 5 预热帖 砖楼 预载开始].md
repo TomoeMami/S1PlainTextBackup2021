@@ -14478,3 +14478,14 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 其实在线肯定比上代多很多，毕竟基数更大了，泥潭俱乐部200人不到，半夜都有10人，白天高峰40人，平均至少 ...</blockquote>
 前两天还看youtube上一个老哥吐槽了半天，和朋友组队，游戏里别的玩家都能看见，就自己身边的队友看不见<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Vladimeow  
+##### 1317#       发表于 2021-11-22 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642635&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-21 22:47</a>
+其实在线肯定比上代多很多，毕竟基数更大了，泥潭俱乐部200人不到，半夜都有10人，白天高峰40人，平均至少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">联机这点真是大退步，体验极差
+
