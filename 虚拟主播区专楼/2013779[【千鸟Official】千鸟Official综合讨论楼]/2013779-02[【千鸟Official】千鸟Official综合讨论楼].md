@@ -11868,3 +11868,93 @@ ndwd天天cue文静，文静又不播，可不就剩炒cp了<img src="https://st
 —— 来自 HUAWE ...</blockquote>
 有理由怀疑他看到了
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2789#       发表于 2021-11-21 11:45
+
+夫 妻 对 拜
+
+*****
+
+####  sonyjam  
+##### 2790#       发表于 2021-11-21 11:49
+
+你们这不废话，人就在隔壁b综，你们说啥他怎么可能看不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  魔法少女大头  
+##### 2791#       发表于 2021-11-21 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">这逼偷我梗偷了一年了，php这名字一分钱版权费都没给过，梁木惹。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  莫洛骑士  
+##### 2792#       发表于 2021-11-21 11:53
+
+内德维德大人，如果你在看，请注意我从来不是针对你，如果我真的进去了，一切责任在文静，虽然我是在你的动态发评论，但是我的目的不是冲你
+
+静栗惹们，你们不想看文静直播么?现在只要我们把节奏搞大，文静就必须突击切割，所以想看直播的家人们，该做什么不用我说了吧​
+
+*****
+
+####  魔法少女大头  
+##### 2793#       发表于 2021-11-21 11:55
+
+这就去鸟吧炒个大的，说静夫常驻鸟综，能给鸟综引个大的么<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  莫洛骑士  
+##### 2794#       发表于 2021-11-21 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633615&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-11-20 23:55</a>
+这就去鸟吧炒个大的，说静夫常驻鸟综，能给鸟综引个大的么
+
+—— 来自 HUAWEI HMA-AL00, Android 10 ...</blockquote>
+不太行，五块里一分钱都不会给鸟综，中国人不能坑中国人
+
+*****
+
+####  伞沢直美  
+##### 2795#       发表于 2021-11-21 12:00
+
+哈人，新家圈我😱
+
+*****
+
+####  tankai  
+##### 2796#       发表于 2021-11-21 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633504&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-21 11:45</a>
+夫 妻 对 拜</blockquote>
+入洞房，唢呐吹起
+
+*****
+
+####  GAKOTO  
+##### 2797#         楼主| 发表于 2021-11-21 12:03
+
+没关系，为了守护最好的鸟综，我会化身权限√见一个删一个<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2798#       发表于 2021-11-21 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633615&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-11-21 11:55</a>
+这就去鸟吧炒个大的，说静夫常驻鸟综，能给鸟综引个大的么
+
+—— 来自 HUAWEI HMA-AL00, Android 10 ...</blockquote>
+🐦p抽象，好嘻闹是不假，攻击性可一点都不低哦，还引还引，给你一拳。
+
