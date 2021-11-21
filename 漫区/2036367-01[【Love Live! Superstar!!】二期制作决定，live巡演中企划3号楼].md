@@ -9722,3 +9722,22 @@ https://meeting.tencent.com/dm/1xbsKiqZO4sw
 
 为什么day1有day2没有了…搞不懂安排…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 895#       发表于 2021-11-21 16:12
+
+客串
+
+*****
+
+####  lj205  
+##### 896#       发表于 2021-11-21 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636754&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-21 15:49</a>
+
+大阪day1限定卡</blockquote>
+地区限定UR卡，来就送
+

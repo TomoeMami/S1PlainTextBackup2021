@@ -12170,3 +12170,23 @@ ndwd你给我出来！
 为什么不能产房，呸，病房直播，是住不起红房子吗</blockquote>
 不是单人间.而且每次护士医生进来一看文静举个手机在呱呱呱的说话,肯定要把这女人转脑科.
 
+
+
+*****
+
+####  Finsty  
+##### 2818#       发表于 2021-11-21 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636468&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-21 15:22</a>
+不是单人间.而且每次护士医生进来一看文静举个手机在呱呱呱的说话,肯定要把这女人转脑科. ...</blockquote>
+护士看见一个娘们儿人还没好就对着手机balabala的，还女友营业娇柔造作的gnk48给你一拳，就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  夜潇箫  
+##### 2819#       发表于 2021-11-21 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学狗蛋马玉米啊，假装和男朋友打电话
+
