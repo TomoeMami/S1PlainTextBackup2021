@@ -4668,3 +4668,25 @@ FGO運営
 
 话说上个月还在nga看到一个帖子的高赞说明明今年除了奥伯龙外另一个男五星是1月村正，但丝毫没有感觉到这么久没出男从者，是因为奥伯龙一个顶十个吗。然后现在就开始说男从者少，是你们的奥宝不香了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shinitakute  
+##### 84413#       发表于 2021-11-21 22:51
+
+现在的新主线一般需要练哪些从者啊，手里有拐：孔明梅林 打手：杀狐 摩根 奥博龙 白枪呆
+还有没有练的剑魔总，枪梅留基努（音译？），欧罗巴船长梅芙，伊莉雅杰克福尔摩斯白贞，哪些需要拉起来，哪些优先点技能？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得大家都说孔梅在新主线不好用了……
+
+*****
+
+####  都谷捻柏  
+##### 84414#       发表于 2021-11-21 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591720&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-11-18 10:34:24</a>
+看了下解包，阿国挺强了啊（作为绿卡打手），宝具回收和指令卡性能比夹馍稍微强一点点，50冲，宝具前置3t的 ...</blockquote>自信点，不打追击战，单体人均仓管
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

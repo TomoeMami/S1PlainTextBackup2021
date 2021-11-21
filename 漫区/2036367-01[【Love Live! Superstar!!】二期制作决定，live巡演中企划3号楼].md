@@ -10132,3 +10132,12 @@ sayu是站台阶上了吧<img src="https://static.saraba1st.com/image/smiley/fac
 有道理，这种非官方出的周边确实没那个必要，大概率还是made in china
 刚淘宝搜了下，大号的淘宝同款卖25，hxy等代购大店卖165<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 931#       发表于 2021-11-21 22:53
+
+sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
