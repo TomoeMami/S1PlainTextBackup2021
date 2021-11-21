@@ -1294,3 +1294,19 @@ booster我是不想去打了
 
 我打了3针辉瑞，都没什么感觉，除了每次胳膊都特别疼。今年流感疫苗反而差点把我干翻
 
+
+
+*****
+
+####  MK17Mod0  
+##### 130#       发表于 2021-11-22 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53631151&amp;ptid=2038124" target="_blank">Redis 发表于 2021-11-21 07:01</a>
+
+已经24小时了
+
+什么都没有发生。。。</blockquote>
+这东西完全看人，没反应就是没反应，有反应就一直有
+
+我朋友两针打完躺家里一两天，公司还有一个打完住院一周的，我两针Pfizer都一丁点反应都没有，连针眼胳膊疼都没
+
