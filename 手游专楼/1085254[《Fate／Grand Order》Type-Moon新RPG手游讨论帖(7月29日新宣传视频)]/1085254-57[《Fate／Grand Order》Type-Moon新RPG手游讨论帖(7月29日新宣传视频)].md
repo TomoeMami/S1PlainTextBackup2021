@@ -4360,3 +4360,17 @@ SKIP（T头西服身男性）
 无聊下回游戏看了下，发现邮箱里多出了几百个五星狗粮？？为啥？？
 一下子喂了好多1级的角色，现在就特别缺棋子。感觉又可以玩一段时间了
 
+
+
+*****
+
+####  クー子  
+##### 84384#       发表于 2021-11-21 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635937&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-11-21 14:41</a>
+无聊下回游戏看了下，发现邮箱里多出了几百个五星狗粮？？为啥？？
+一下子喂了好多1级的角色，现在就特别缺 ...</blockquote>
+当然是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要关服跑路了。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

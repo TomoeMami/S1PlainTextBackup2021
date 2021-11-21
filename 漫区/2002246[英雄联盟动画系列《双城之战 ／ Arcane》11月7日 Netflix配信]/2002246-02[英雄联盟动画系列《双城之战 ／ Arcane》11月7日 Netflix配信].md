@@ -8441,3 +8441,19 @@ scout在S11没选过维克托吧？</blockquote>
 
 一口气看完九集，只能说剧情全靠疯批来强行推动了
 
+
+
+*****
+
+####  阿刚  
+##### 2326#       发表于 2021-11-21 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">说起来看到现在双城能出英雄的应该有三个吧，杰斯的丈母娘，独臂大姐，野火帮那个蝙蝠男。这仨都貌似有点武力而且戏份不少还有独立建模（？）
+
+*****
+
+####  QAQAQA11  
+##### 2327#       发表于 2021-11-21 15:41
+
+大头在祖安用小零件给女孩变陀螺那段真的太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

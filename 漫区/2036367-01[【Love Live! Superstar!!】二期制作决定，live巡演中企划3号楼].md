@@ -9654,3 +9654,41 @@ https://meeting.tencent.com/dm/1xbsKiqZO4sw
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  saya1892  
+##### 888#       发表于 2021-11-21 15:26
+
+之前也有过差点糊脸，大阪DAY2就很注意把手放下来了
+
+<img src="https://img.saraba1st.com/forum/202111/21/152620inhm0eq8yr6006yr.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (33.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 15:26 上传
+
+*****
+
+####  lj205  
+##### 889#       发表于 2021-11-21 15:31
+
+今天可以期待ringring吗
+
+*****
+
+####  优妮可  
+##### 890#       发表于 2021-11-21 15:36
+
+一日限定
+
+*****
+
+####  lj205  
+##### 891#       发表于 2021-11-21 15:39
+
+鲤鱼这算ssr 还是ur 卡？………………
+
