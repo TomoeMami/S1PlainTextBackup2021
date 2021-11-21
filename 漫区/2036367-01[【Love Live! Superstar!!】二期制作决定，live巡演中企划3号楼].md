@@ -9599,3 +9599,19 @@ mmr眼中最恶臭的S1管人楼要发散也得讲个有理有据  前20页除
 —— 来 ...</blockquote>
 谢谢，还是会议好<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 885#       发表于 2021-11-21 14:35
+
+<blockquote>引用第882楼中野四葉于2021-11-21 13:56发表的  :
+
+才知道鲤鱼1st的场子租14个小时要330w日元，比一巡两天东京场的租金加起来都贵</blockquote>
+@中野四葉
+
+我一时分不清是公司高估鲤鱼在日人气还是我们低估鲤鱼在日人气了。现在看就看一巡可可粉转化率了吧。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

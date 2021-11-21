@@ -8295,3 +8295,41 @@ scout在S11没选过维克托吧？</blockquote>
 难以同意，应该是各自都给了一个选择的机会。先是爆爆把枪给薇选择，如果杀了女警，那唯一的妹妹爆爆就会 ...</blockquote>
 金克斯杀希尔科是因为他要杀vi了，金克斯一直就是以她姐姐为第一中心，后面也没杀女警，她不想让她姐姐跟她一样疯狂。
 
+
+
+*****
+
+####  空灵闲逸  
+##### 2314#       发表于 2021-11-21 14:26
+
+ 本帖最后由 空灵闲逸 于 2021-11-21 14:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635588&amp;ptid=2002246" target="_blank">黑猫桑 发表于 2021-11-21 14:19</a>
+金克斯杀希尔科是因为他要杀vi了，金克斯一直就是以她姐姐为第一中心，后面也没杀女警，她不想让她姐姐跟 ...</blockquote>
+她拿机枪扫射的时候也没有避着点蔚啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Siran_China  
+##### 2315#       发表于 2021-11-21 14:35
+
+我返回去看了好几次第九集结尾，梅尔身上的金色饰件绝对不是在反光，而是在发光，那也许真的是某种防护装备，说不定是金身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/21/143447q9wmujn9wun0al9w.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (116.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 14:34 上传
+
+*****
+
+####  碎片整理  
+##### 2316#       发表于 2021-11-21 14:40
+
+<blockquote>黑猫桑 发表于 2021-11-21 14:19
+金克斯杀希尔科是因为他要杀vi了，金克斯一直就是以她姐姐为第一中心，后面也没杀女警，她不想让她姐姐跟 ...</blockquote>
+从最后那段运镜，和3个人的表情看，金克斯在开枪时显然没意识到希尔科拿枪是打谁。
+
