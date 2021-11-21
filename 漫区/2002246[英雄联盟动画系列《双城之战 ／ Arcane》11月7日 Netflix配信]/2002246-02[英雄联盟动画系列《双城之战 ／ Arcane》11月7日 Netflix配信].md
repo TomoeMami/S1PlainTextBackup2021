@@ -9275,3 +9275,35 @@ vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是�
 这是我觉得这部剧最色的地方，虽然我也无感</blockquote>
 我是金克丝被注射那段，太刺激了我草！
 
+
+
+*****
+
+####  有优越感的人mk2  
+##### 2404#       发表于 2021-11-22 01:09
+
+最后一段废旧工厂里，还是有好多乌鸦，斯维因果然是在偷看吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  飞升之后  
+##### 2405#       发表于 2021-11-22 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53644163&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-11-22 01:09</a>
+
+最后一段废旧工厂里，还是有好多乌鸦，斯维因果然是在偷看吧
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+应该还不至于,JINX的象征而已把
+
+*****
+
+####  西瓜不甜不甜  
+##### 2406#       发表于 2021-11-22 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641974&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-21 21:55</a>
+每个地区都有一个重要约德尔人。。。</blockquote>
+而且还都是兢兢业业为第二故乡添砖加瓦，大头、波比、克烈、凯南等等，约德尔人真是不简单<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

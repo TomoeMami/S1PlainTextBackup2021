@@ -19865,3 +19865,16 @@ toar的二创是真的少，产出连发售快四年的泥潭真爱都打不过�
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  wakatoro  
+##### 5964#       发表于 2021-11-22 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643523&amp;ptid=1860328" target="_blank">ranapocket 发表于 2021-11-22 00:06</a>
+发售之后杜欧讨论度就很高，第一没什么好惊讶的吧，我对男主有前三比较惊讶。以及队里属性最没意思的是奇莎 ...</blockquote>
+入队以后就一直除了当知心大姐姐就是控哥，真是可惜了一张御姐脸跟好身材。。。。。
+
+—— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

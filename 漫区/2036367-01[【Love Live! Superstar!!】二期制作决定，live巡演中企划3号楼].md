@@ -10329,3 +10329,14 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 
 是不是最后几张特典各家不一样？我官网买的最后几张听说跟别家买又不一样
 
+
+
+*****
+
+####  D麦林  
+##### 947#       发表于 2021-11-22 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643929&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-22 00:47</a>
+好奇她睡衣那套怎么又感觉不小的样子</blockquote>
+对比前几天新发的MV的样子来看我感觉睡衣那几张要么有装备加成要么就是用了魔法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

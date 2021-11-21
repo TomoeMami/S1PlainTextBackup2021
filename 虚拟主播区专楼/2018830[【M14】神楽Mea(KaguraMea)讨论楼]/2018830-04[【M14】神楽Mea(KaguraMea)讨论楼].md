@@ -7750,3 +7750,35 @@ debu
 
 看死了
 
+
+
+*****
+
+####  古战场亡魂  
+##### 5398#       发表于 2021-11-22 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">终于开始慢慢玩男英雄了，以后能看到上单男枪吗？？
+
+*****
+
+####  T_Hb  
+##### 5399#       发表于 2021-11-22 01:15
+
+溜了
+
+*****
+
+####  Rem-清曲  
+##### 5400#       发表于 2021-11-22 01:16
+
+上单男枪不一定有，上单杰斯可能有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  古战场亡魂  
+##### 5401#       发表于 2021-11-22 01:19
+
+今天劫感觉还行吧，毕竟第一把。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">格温她玩过吗，也是女的，今天打她波比她还挺难受的。
+
