@@ -4608,3 +4608,34 @@ FGO運営
 
 这件事在隔壁不就是伯爵杀生院那次的经典复刻吗，真不愧是FGO版，连复刻都原汁原味<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 84407#       发表于 2021-11-21 19:26
+
+这边龙马不是新选组砍的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84408#       发表于 2021-11-21 19:36
+
+<blockquote>シャル 发表于 2021-11-21 19:26
+这边龙马不是新选组砍的</blockquote>
+杀掉龙马的势力本来历史上就不明，最大的嫌疑人是回见组，然后在各类影视动漫作品里就看创作者自由发挥了
+
+*****
+
+####  angelooo  
+##### 84409#       发表于 2021-11-21 19:37
+
+<blockquote>khxooo 发表于 2021-11-21 19:18
+景虎和卑弥呼好像找着找着找到了拉萊耶，还把克总的触手剁下来吃了草
+
+</blockquote>
+北斋：发生了什么
+
+你游的克系玩意就是菜啦233
+

@@ -12533,3 +12533,39 @@ Overidea 直播间:[[https://live.bilibili.com/704808](https://live.bilibili.com
 
 co宝在播f1？好感度upup
 
+
+
+*****
+
+####  rgauss  
+##### 2857#       发表于 2021-11-21 19:29
+
+下一个版本是内战版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丢了五块钱  
+##### 2858#       发表于 2021-11-21 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639887&amp;ptid=2013779" target="_blank">GrayishWh0 发表于 2021-11-21 19:25</a>
+co宝在播f1？好感度upup</blockquote>
+co宝的各种爱好你想象不到的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 2859#       发表于 2021-11-21 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639958&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-21 19:29</a>
+下一个版本是内战版本</blockquote>
+回滚1.0是吧
+
+*****
+
+####  灰色的狐狸  
+##### 2860#       发表于 2021-11-21 19:43
+
+倒是文静切个阑尾之后也太虚弱了。。。
+
+今天还偶像的修养什么的，就不能好好吃饭嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
