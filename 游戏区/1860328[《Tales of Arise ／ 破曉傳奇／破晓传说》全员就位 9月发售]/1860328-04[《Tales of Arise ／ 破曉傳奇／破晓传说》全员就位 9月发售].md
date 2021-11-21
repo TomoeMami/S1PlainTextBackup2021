@@ -19830,3 +19830,16 @@ toar的二创是真的少，产出连发售快四年的泥潭真爱都打不过�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我不喜欢黑皮，而且还是der逼属性的，这人设你要给个帅哥没事卖个蠢犯个中二当个妈宝男我也就忍了，作为全队唯一的装傻担当可能更能激发女性喜爱，确实大家口味不一样
 
+
+
+*****
+
+####  wakatoro  
+##### 5961#       发表于 2021-11-21 22:21
+
+杜欧这人身上的属性是真没意思，ky，没烟火气，历史控，小剧场里一点也不有趣。
+
+不过后期到达雷纳基斯后，进一步挖掘他身为雷纳人的深刻反思让我印象深刻。总体来说他的人物塑造算是破晓里为数不多写得好的了。这么一看得第一也算能接受不是
+
+—— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -10094,3 +10094,22 @@ sayu是站台阶上了吧<img src="https://static.saraba1st.com/image/smiley/fac
 
 靠，怎么这里也看到有要代购的……别冲动啊…………<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cqc1021  
+##### 927#       发表于 2021-11-21 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641537&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-21 21:25</a>
+
+这章鱼越看越想买了，有代购吗</blockquote>
+建议先上1688搜一搜看有没有20块钱一个的同款<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 928#       发表于 2021-11-21 22:16
+
+我刚淘宝包邮费30多买了个大的
+
