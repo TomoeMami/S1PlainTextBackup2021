@@ -9055,3 +9055,31 @@ lol世界里没火药不妨碍有枪，你看卢锡安夫妇手里那家伙</blo
 我返回去看了好几次第九集结尾，梅尔身上的金色饰件绝对不是在反光，而是在发光，那也许真的是某种防护装备 ...</blockquote>
 可能梅尔用这个力量保全了杰斯然后牺牲，然后她妈借机开战
 
+
+
+*****
+
+####  黑猫桑  
+##### 2384#       发表于 2021-11-21 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635707&amp;ptid=2002246" target="_blank">空灵闲逸 发表于 2021-11-21 14:26</a>
+
+她拿机枪扫射的时候也没有避着点蔚啊
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 S1Next-鹅版 v ...</blockquote>
+vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是希尔科打的，那枪还冒烟呢
+
+*****
+
+####  wyjbnb  
+##### 2385#       发表于 2021-11-21 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杰斯为什么讨人厌，就是因为立场不坚定啊，中间换了多少立场，完全没自己主见，别人说啥他就干啥
+
+*****
+
+####  goudante  
+##### 2386#       发表于 2021-11-21 22:43
+
+话说有没有动画播完之后的英雄登场率变化统计？我感觉除了杰斯（虽然我本人还是喜欢他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）其他英雄都赢麻了啊，特别是蔚和金克斯两姐妹，还有维克托，形象丰满了好多，艾克也贼几把帅
+

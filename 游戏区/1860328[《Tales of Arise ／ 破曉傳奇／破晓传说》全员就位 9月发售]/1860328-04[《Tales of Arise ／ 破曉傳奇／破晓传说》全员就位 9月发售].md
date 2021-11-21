@@ -19843,3 +19843,14 @@ toar的二创是真的少，产出连发售快四年的泥潭真爱都打不过�
 
 —— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  fuochai  
+##### 5962#       发表于 2021-11-21 22:28
+
+杜欧这种不就是 啊 何同学吗
+
+反正我挺讨厌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

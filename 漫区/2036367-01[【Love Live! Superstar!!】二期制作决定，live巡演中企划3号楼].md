@@ -10113,3 +10113,22 @@ sayu是站台阶上了吧<img src="https://static.saraba1st.com/image/smiley/fac
 
 我刚淘宝包邮费30多买了个大的
 
+
+
+*****
+
+####  Norkey1  
+##### 929#       发表于 2021-11-21 22:39
+
+没找到一样的，还是去定了一个21cm的。之前淘宝买了个仿真章鱼和具足虫不知道为啥被强势围观了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 930#       发表于 2021-11-21 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642161&amp;ptid=2036367" target="_blank">cqc1021 发表于 2021-11-21 22:09</a>
+建议先上1688搜一搜看有没有20块钱一个的同款</blockquote>
+有道理，这种非官方出的周边确实没那个必要，大概率还是made in china
+刚淘宝搜了下，大号的淘宝同款卖25，hxy等代购大店卖165<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
