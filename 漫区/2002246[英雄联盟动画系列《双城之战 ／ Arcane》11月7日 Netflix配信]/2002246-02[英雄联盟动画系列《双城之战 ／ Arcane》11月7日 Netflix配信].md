@@ -9120,3 +9120,17 @@ vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是�
 有火药，男枪女枪的就是火铳阿</blockquote>
 船长：你说的对
 
+
+
+*****
+
+####  空灵闲逸  
+##### 2391#       发表于 2021-11-21 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642379&amp;ptid=2002246" target="_blank">黑猫桑 发表于 2021-11-21 22:28</a>
+
+vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是希尔科打的，那枪还冒烟呢 ...</blockquote>
+在顶楼上打野火帮的时候，还有在大桥蔚搀扶凯瑟琳的时候，都是直接往蔚那边扫的，当然野火帮的时候也可以说是打上头了，大桥的时候也可以说不过是想让蔚松手。
+
+不过确实是你这种解释更合理，毕竟在杀了希尔科后金克丝是带着悔意跑过去的，如果是觉得希尔科背叛了的话，就不会这样做了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

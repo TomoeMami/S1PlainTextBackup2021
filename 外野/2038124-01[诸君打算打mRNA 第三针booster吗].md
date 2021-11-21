@@ -1253,3 +1253,21 @@ booster我是不想去打了
 
 什么都没有发生。。。
 
+
+
+*****
+
+####  風舞雪  
+##### 127#       发表于 2021-11-21 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53631151&amp;ptid=2038124" target="_blank">Redis 发表于 2021-11-21 07:01</a>
+
+已经24小时了
+
+什么都没有发生。。。</blockquote>
+那估计就没事儿了 这东西真的看人
+
+ 基本要被干翻 24小时内肯定知道了..
+
+我已经好了 头也不疼了
+
