@@ -7541,3 +7541,26 @@ debu
 
 她还是老老实实玩波比上单好一点 打野这位置费脑子 可惜你咩没脑子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 5371#       发表于 2021-11-21 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一眼就被杀了
+
+*****
+
+####  Klience  
+##### 5372#       发表于 2021-11-21 21:52
+
+这几次对拼消耗处理的还可以 所以你咩就不适合玩打野 老老实实上单波比就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5373#       发表于 2021-11-21 21:59
+
+铁男对波比一点办法也没有 铁男R波比 波比可以把铁男锤飞 根本近不了身
+

@@ -14375,3 +14375,15 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 痛苦，这破车我根本甩不起来</blockquote>
 蓝图搜loopstation 2圈版应该够用 甲壳虫点一点速度技能 高速公路用急速调校 开始前自动转向刹车四个全开 按住w后win+g调出gamebar卡住w自动前进
 
+
+
+*****
+
+####  君往何处  
+##### 1309#       发表于 2021-11-21 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641308&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 21:11</a>
+
+痛苦，这破车我根本甩不起来</blockquote>
+先升个调校，升一下能力点，点数就快了
+

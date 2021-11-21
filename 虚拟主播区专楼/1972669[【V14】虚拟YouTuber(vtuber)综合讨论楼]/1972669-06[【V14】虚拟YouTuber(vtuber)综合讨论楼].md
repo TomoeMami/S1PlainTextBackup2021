@@ -13741,3 +13741,41 @@ nico的档
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哼...
 
+
+
+*****
+
+####  ヒトニナル  
+##### 8542#       发表于 2021-11-21 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹楼比比赛好看
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| _Ra1nMaker| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  死体残留  
+##### 8543#       发表于 2021-11-21 21:48
+
+虾这分组是有点水平的 前三水平都差不多
+就看一个运气了
+
+*****
+
+####  alcoholic1000  
+##### 8544#       发表于 2021-11-21 21:55
+
+恭喜主办恭喜king<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+看了ssk台我也要哭了...
+
