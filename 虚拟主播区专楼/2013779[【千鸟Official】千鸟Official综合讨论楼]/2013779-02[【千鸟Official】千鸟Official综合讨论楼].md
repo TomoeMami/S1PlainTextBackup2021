@@ -12569,3 +12569,14 @@ co宝的各种爱好你想象不到的<img src="https://static.saraba1st.com/ima
 
 今天还偶像的修养什么的，就不能好好吃饭嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gawain039  
+##### 2861#       发表于 2021-11-21 19:45
+
+白白配音回，年味渐浓！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
