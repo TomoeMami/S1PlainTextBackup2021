@@ -11489,3 +11489,12 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 而且也有寿命论啊，这魔女都活了多久了，传Q都只剩个灵魂在镜子里了。。 ...</blockquote>
 寿命论到没事 Q娃都是永远青春的你看近30的抓心众今年客串还不是水灵灵的（还被整活回吐槽大妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  hyper-hibiki  
+##### 2349#       发表于 2021-11-21 18:03
+
+等会儿，这集有十年之约嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

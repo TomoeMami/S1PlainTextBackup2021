@@ -8688,3 +8688,80 @@ LOL世界观的魔法师是什么设定，第二集法庭提到魔法师都好�
 
 说起来，老美有动画火了就出周边的传统么？我还挺喜欢艾克那个怀表的
 
+
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2352#       发表于 2021-11-21 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638292&amp;ptid=2002246" target="_blank">毛利提督 发表于 2021-11-21 17:37</a>
+
+其实如果真按照这个继续展开，大头一直谜语人这个问题就可以解释了
+
+比如大头亲眼目睹了祖安皮城最初的大 ...</blockquote>
+  应该是造桥工程设计上是没问题的,桥的一遍挖着挖着触动飞升者的坟墓 导致大崩塌,
+
+祖安皮城相当于建在炸药上的 说出真相估计大部分人要跑路 剩下的都是贪飞升者力量的
+
+*****
+
+####  beanbeam  
+##### 2353#       发表于 2021-11-21 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637174&amp;ptid=2002246" target="_blank">星名早苗 发表于 2021-11-21 16:23</a>
+一直没看懂小蛋糕雨里为什么问what about us
+
+你们的关系有到这？</blockquote>
+水油不溶（❎）水乳交融（✅）
+
+*****
+
+####  新的起源  
+##### 2354#       发表于 2021-11-21 17:52
+
+ez是皮城的吧
+
+真打起来有危险，佐伊肯定来帮忙，但是有一个问题
+
+佐伊帮忙打架出名了，会把剑魔和稻草人吸引过来
+
+这两货发起飙来大概率会把所有人都杀了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  whyy  
+##### 2355#       发表于 2021-11-21 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634487&amp;ptid=2002246" target="_blank">chillstar 发表于 2021-11-21 13:04:03</a>
+他是被jinx表情给骗了，不然早一棍子下去</blockquote>那也能叫骗啊，就一瞬间的事
+金克丝当时估计就是不想活了，在她的视角里，姐姐彻底抛弃了自己（从结局希尔科说蔚在骗她，金克丝说她不会骗我，“not again”，证明至少在金克丝看来，放烟花重聚的时候蔚说一直想找自己也是骗人的，实际就是跟皮城小妞混得乐不思妹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+一个嫉妒缺爱的神经病，绝望之后在姐姐面前自爆疯狂，乱嗨一通一了百了，反正也没人在意她，应该就是这么简单——艾克就算最后一拳下去了，金克丝掐手榴弹的手该松还是会松啊……这疯批本来也没想活
+ps：晚餐制服女警之前装可怜，在我看来其实更多的是她特别享受蔚阻止女警伤害自己、想要保护自己的样子，这才更符合她缺爱+嫉妒女警+疯批的人设，那个回帖说是金克丝安排了一切、做局引导弄死爆爆的，实在过于阴谋论了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+pps：蔚和女警在大床上谈心，下一个镜头转场到金克丝接受炼金的改造，实在是太惨了，却几乎没人跟之前维克托吐血议员开黑车一样拿来讨论，实在是有点可惜……
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  千千千千鸟  
+##### 2356#       发表于 2021-11-21 17:59
+
+[https://www.bilibili.com/video/B ... 5966629593301276853](https://www.bilibili.com/video/BV1tQ4y1v7zW?from=search&amp;seid=15966629593301276853)
+
+拳头真的好会炒啊，动画里艾克VS金克斯很精彩但是游戏里根本操作不出来？出一个让你能操作出来的游戏！
+
+*****
+
+####  毛利提督  
+##### 2357#       发表于 2021-11-21 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638536&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-21 17:52</a>
+
+ez是皮城的吧
+
+真打起来有危险，佐伊肯定来帮忙，但是有一个问题</blockquote>
+ez本来设定就是自从捡了护手之后走哪儿哪儿塌，这俩来不来都没法善了
+

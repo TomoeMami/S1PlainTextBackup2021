@@ -12287,3 +12287,112 @@ ndwd我撒了你
 
 伤害文静的我一个都不放过！<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我有一个朋友  
+##### 2831#       发表于 2021-11-21 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+抽噎了，我的静好心疼……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T型钉宫病毒  
+##### 2832#       发表于 2021-11-21 17:47
+
+都怪ndwd！ndwdk48！
+
+*****
+
+####  四叶的花  
+##### 2833#       发表于 2021-11-21 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">谁再带节奏，我将终结他的生命
+
+*****
+
+####  伞沢直美  
+##### 2834#       发表于 2021-11-21 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">复活！
+
+*****
+
+####  伞沢直美  
+##### 2835#       发表于 2021-11-21 17:50
+
+呜呜呜呜，静静静静静静
+
+*****
+
+####  tankai  
+##### 2836#       发表于 2021-11-21 17:50
+
+ndwd k48！
+
+点赞.png
+(9.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 17:50 上传
+
+<img src="https://img.saraba1st.com/forum/202111/21/175034jreuaar4gsncteyu.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 2837#       发表于 2021-11-21 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我的静我的静我的静
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  伞沢直美  
+##### 2838#       发表于 2021-11-21 17:53
+
+一直在低烧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 2839#       发表于 2021-11-21 17:53
+
+快去休息吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 2840#       发表于 2021-11-21 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">多希望生病的是我
+
+*****
+
+####  伞沢直美  
+##### 2841#       发表于 2021-11-21 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">被阿姨拿捏了，入脑了入脑了
+
+*****
+
+####  IDIDIDID  
+##### 2842#       发表于 2021-11-21 17:59
+
+有一部分静🌰惹不是**
+
+*****
+
+####  GrayishWh0  
+##### 2843#       发表于 2021-11-21 18:03
+
+静的身子骨这么差啊。。。。以及，听她说是她自己上自己的医保？原力wsln
+
