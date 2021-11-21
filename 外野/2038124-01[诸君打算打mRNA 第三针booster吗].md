@@ -1271,3 +1271,26 @@ booster我是不想去打了
 
 我已经好了 头也不疼了
 
+
+
+*****
+
+####  Redis  
+##### 128#       发表于 2021-11-22 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643206&amp;ptid=2038124" target="_blank">風舞雪 发表于 2021-11-21 23:36</a>
+
+那估计就没事儿了 这东西真的看人
+
+ 基本要被干翻 24小时内肯定知道了..</blockquote>
+我现在啥事情没有了
+
+果然看人这个，以后就认定辉瑞打了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空想瓶子  
+##### 129#       发表于 2021-11-22 07:16
+
+我打了3针辉瑞，都没什么感觉，除了每次胳膊都特别疼。今年流感疫苗反而差点把我干翻
+
