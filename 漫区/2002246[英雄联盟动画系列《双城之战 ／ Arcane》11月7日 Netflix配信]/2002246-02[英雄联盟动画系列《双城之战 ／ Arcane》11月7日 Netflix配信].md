@@ -7609,3 +7609,52 @@ Where’s a Hexgate when you need one?
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  天才我心  
+##### 2248#       发表于 2021-11-21 09:45
+
+第二季<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天天acgn  
+##### 2249#       发表于 2021-11-21 09:50
+
+第一季在我心里本年度最佳之一。不过第二季应该是刚新建文件夹吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 2250#       发表于 2021-11-21 09:52
+
+这故事明显离结束还差远了，再用一季正好，蔚的转变也要写的，这一发大火箭后的局面也不是随便能糊弄过去的。。。
+
+
+
+*****
+
+####  zhuyc110  
+##### 2251#       发表于 2021-11-21 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53631132&amp;ptid=2002246" target="_blank">书法局 发表于 2021-11-21 06:29</a>
+
+希尔科不交金克丝，换来了祖安独立又有什么用，金克丝三天两头上去送一发火箭不还是要开战，金克丝要不是个 ...</blockquote>
+下城被上城欺辱这么多年，真的是一张纸就能解决的吗？
+
+没用的
+
+*****
+
+####  暗黑能乐  
+##### 2252#       发表于 2021-11-21 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53632192&amp;ptid=2002246" target="_blank">zhuyc110 发表于 2021-11-21 10:02</a>
+
+下城被上城欺辱这么多年，真的是一张纸就能解决的吗？
+
+没用的</blockquote>
+至少同意自治就是踏出一大步啊
+

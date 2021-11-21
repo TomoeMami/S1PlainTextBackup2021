@@ -8828,3 +8828,28 @@ D3900EB8-C38E-45A5-8C78-3C2FDFEFCABA.png
 
 有人可以总结下松雾的开团么
 
+
+
+*****
+
+####  a92063256  
+##### 807#       发表于 2021-11-21 09:42
+
+我大概总结一下我知道的吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+就是淘宝有个叫米亚亲的小作坊的代购店，店主叫车西，微博名Chelsea_Lily。他在自己的群里和微博上口嗨过鲤鱼，并且群里很多鲤黑，过去有几个非常跳的鲤黑都是出自他的群里。
+然后松雾这两天发现这家店里鲤鱼一专销量很高，就站出来希望大家退款，换一家店买，鲤鱼厨的钱不应该给鲤黑赚。松雾发出微博之后过了一个半小时左右车西找到松雾解释说他过去和群里人口嗨过鲤鱼，但是现在他已经停止口嗨了，感觉很无辜，松雾警告他之后就把微博隐藏了。
+
+这段聊天记录可以直接去松雾微博上看，我翻了翻这位的微博，七月有这样一条
+<img src="https://p.sda1.dev/3/2f5f90031ff8d11dd44e93e376ac917a/IMG_CMP_216272612.jpeg" referrerpolicy="no-referrer">
+顺着转发链上两条看进去就有这种阴沟里的生物
+<img src="https://p.sda1.dev/3/cc9c0fa9eadffd60704b828c4c166b7a/IMG_CMP_109996019.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/cd3589b8724977a080aebadc15678130/IMG_CMP_206530868.jpeg" referrerpolicy="no-referrer">
+什么成分大家自己做判断吧
+
+*****
+
+####  优妮可  
+##### 808#       发表于 2021-11-21 10:00
+
+我也是在这买的，现在退货换还来得及吗？
+
