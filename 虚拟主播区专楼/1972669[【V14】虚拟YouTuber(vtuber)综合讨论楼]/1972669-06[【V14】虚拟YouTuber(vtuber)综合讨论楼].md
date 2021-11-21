@@ -13589,3 +13589,12 @@ Vrchat里的新活动
 
 vr不都炸了好几回了嘛，经典21号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 8527#       发表于 2021-11-21 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主催只有社长没进4强，今天解说台社长配两职业哥了
+

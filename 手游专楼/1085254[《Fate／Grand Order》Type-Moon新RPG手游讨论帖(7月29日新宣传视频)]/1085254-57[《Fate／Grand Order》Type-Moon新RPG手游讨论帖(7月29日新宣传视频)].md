@@ -4476,3 +4476,67 @@ SKIP（T头西服身男性）
 
 就这算炎上？
 
+
+
+*****
+
+####  真红眼教授  
+##### 84395#       发表于 2021-11-21 18:26
+
+照着社区“意见”做游戏死球的还少么，能撼动运营商想法的只有流水数据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84396#       发表于 2021-11-21 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638128&amp;ptid=1085254" target="_blank">rzxa 发表于 2021-11-21 17:25</a>
+
+就这算炎上？</blockquote>
+按照日本人那种什么都能替运营着想的思路来说 算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84397#       发表于 2021-11-21 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637743&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-11-21 16:59</a>
+但凡看看推特也说不出这种话</blockquote>
+连一万推文都没有也叫炎上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84398#       发表于 2021-11-21 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639270&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-21 18:39</a>
+
+连一万推文都没有也叫炎上</blockquote>
+ゲーム · トレンド
+
+FGO運営
+
+25,660件のツイート
+
+嗯？
+
+*****
+
+####  zakki  
+##### 84399#       发表于 2021-11-21 18:42
+
+搞不懂隔壁的脑回路，一个npc有多种立绘差分难道不是良心吗，有什么好喷的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84400#       发表于 2021-11-21 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639301&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-11-21 18:41</a>
+ゲーム · トレンド
+
+FGO運営
+
+25,660件のツイート</blockquote>
+上午nga吵的时候我去看还没有1w，话说连个摩根复刻几小时内都有10w推文的讨论度，这点儿能算个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

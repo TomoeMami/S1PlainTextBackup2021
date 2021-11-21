@@ -12440,3 +12440,44 @@ ndwd k48！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">而我还在回味静子的最后一次直播，《断章取义，进去吧倒霉蛋们》
 
+
+
+*****
+
+####  袜子  
+##### 2849#       发表于 2021-11-21 18:27
+
+今天的静静好软妹啊，是3.0手术完成视频看完了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tankai  
+##### 2850#       发表于 2021-11-21 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638895&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-21 18:15</a>
+
+补充一下私信内容
+
+内德维德你好，我是文静</blockquote>
+红毛男嗯造文静谢罪静栗惹团建?
+
+
+
+*****
+
+####  Quark  
+##### 2851#       发表于 2021-11-21 18:42
+
+红毛鸡蛋wsln<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Finsty  
+##### 2852#       发表于 2021-11-21 18:43
+
+回旋了，她是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
