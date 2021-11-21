@@ -11458,3 +11458,34 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 萝拉总给我一种要反了的感觉，特别是真夏叫大家走的时候她来了个下定决心的表情，给我感觉像是想要把女王杀了似的（
 
+
+
+*****
+
+####  leleq  
+##### 2346#       发表于 2021-11-21 17:33
+
+和之前推测得一样 魔女就是罗拉得be版 前面魔女招揽罗拉被秒拒 现在就不一定了 记忆的海螺给了个特写可能要唤醒罗拉的关键道具？
+
+这集的夏夏和罗拉真是甜死了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，
+
+*****
+
+####  暗黑能乐  
+##### 2347#       发表于 2021-11-21 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638233&amp;ptid=1963832" target="_blank">leleq 发表于 2021-11-21 17:33</a>
+
+和之前推测得一样 魔女就是罗拉得be版 前面魔女招揽罗拉被秒拒 现在就不一定了 记忆的海螺给了个特写可能要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且也有寿命论啊，这魔女都活了多久了，传Q都只剩个灵魂在镜子里了。。
+
+*****
+
+####  leleq  
+##### 2348#       发表于 2021-11-21 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638255&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-11-21 17:34</a>
+
+而且也有寿命论啊，这魔女都活了多久了，传Q都只剩个灵魂在镜子里了。。 ...</blockquote>
+寿命论到没事 Q娃都是永远青春的你看近30的抓心众今年客串还不是水灵灵的（还被整活回吐槽大妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+

@@ -8653,3 +8653,38 @@ LOL世界观的魔法师是什么设定，第二集法庭提到魔法师都好�
 最后一个过了啊，不一定睡了呢！</blockquote>
 按照法国人的尿性，都在床上摆成69了，接下来不干点啥都对不起他们自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2348#       发表于 2021-11-21 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别吧，爹妈还在呢，这祖安仔有这个胆？我不信
+
+*****
+
+####  ARATANG  
+##### 2349#       发表于 2021-11-21 17:28
+
+艾克为啥强 因为有父母 family的力量<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛利提督  
+##### 2350#       发表于 2021-11-21 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636894&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-21 16:00</a>
+
+祖安背景故事其实有个大坑，据传祖安这个名字来源自城市下面埋葬着飞升者，而坐微光的花疑是和虚空有关， ...</blockquote>
+其实如果真按照这个继续展开，大头一直谜语人这个问题就可以解释了
+
+比如大头亲眼目睹了祖安皮城最初的大爆炸是飞升者导致，但是为了不动摇双城存在的根本没办法把真相轻易说出去，只能当谜语人
+
+*****
+
+####  lost_恩恩  
+##### 2351#       发表于 2021-11-21 17:40
+
+说起来，老美有动画火了就出周边的传统么？我还挺喜欢艾克那个怀表的
+
