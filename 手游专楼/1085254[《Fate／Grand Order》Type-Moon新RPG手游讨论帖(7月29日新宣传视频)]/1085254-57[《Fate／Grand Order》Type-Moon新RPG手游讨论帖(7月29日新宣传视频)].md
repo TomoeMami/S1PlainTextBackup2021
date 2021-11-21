@@ -4648,3 +4648,12 @@ FGO運営
 
 虽然都说梦女犯病，但多出个角色骗梦女钱不是挺好吗，不明白为啥不出
 
+
+
+*****
+
+####  DARKGRAY  
+##### 84411#       发表于 2021-11-21 21:22
+
+恨不得什么新卡都不出，现状已经够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

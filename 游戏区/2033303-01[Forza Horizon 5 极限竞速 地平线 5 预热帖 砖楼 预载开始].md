@@ -14354,3 +14354,24 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 老当益壮的经典赛车是什么车</blockquote>
 车辆列表里按Y，然后选择经典赛车的组别
 
+
+
+*****
+
+####  qzy741147  
+##### 1307#       发表于 2021-11-21 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641055&amp;ptid=2033303" target="_blank">fantastical 发表于 2021-11-21 20:49</a>
+
+双倍技术分歌曲的时候在中央仙人掌空旷地区甩甩尾有个5万 x 10倍不就结束了，三分钟最多了 ...</blockquote>
+痛苦，这破车我根本甩不起来
+
+*****
+
+####  pl0okm  
+##### 1308#       发表于 2021-11-21 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641308&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 21:11</a>
+痛苦，这破车我根本甩不起来</blockquote>
+蓝图搜loopstation 2圈版应该够用 甲壳虫点一点速度技能 高速公路用急速调校 开始前自动转向刹车四个全开 按住w后win+g调出gamebar卡住w自动前进
+

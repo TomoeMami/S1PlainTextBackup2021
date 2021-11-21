@@ -7463,3 +7463,40 @@ cr这景品卖200，这玩偶也卖这个价格是真的不值，有这钱不如
 
 先lol，晚上还精神的话就唱歌，今天突然勤奋
 
+
+
+*****
+
+####  yywzjsw  
+##### 5361#       发表于 2021-11-21 21:08
+
+观众参与型
+
+*****
+
+####  T_Hb  
+##### 5362#       发表于 2021-11-21 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 5363#       发表于 2021-11-21 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">申请好友审批，但要说一句喜欢阿咩的地方才能通过
+
+*****
+
+####  T_Hb  
+##### 5364#       发表于 2021-11-21 21:12
+
+有坦克民
+
+*****
+
+####  yywzjsw  
+##### 5365#       发表于 2021-11-21 21:13
+
+debu
+
