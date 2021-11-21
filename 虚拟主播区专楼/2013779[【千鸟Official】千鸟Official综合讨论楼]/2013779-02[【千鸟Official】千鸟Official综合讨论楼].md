@@ -11958,3 +11958,47 @@ ndwd天天cue文静，文静又不播，可不就剩炒cp了<img src="https://st
 —— 来自 HUAWEI HMA-AL00, Android 10 ...</blockquote>
 🐦p抽象，好嘻闹是不假，攻击性可一点都不低哦，还引还引，给你一拳。
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2799#       发表于 2021-11-21 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">想想看真引来新鸟p，偷莫子写的文去人之初的就多了，那还是算了。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  希克苏鲁伯  
+##### 2800#       发表于 2021-11-21 12:16
+
+反转了，我一直是弃车人打入鸟p的内鬼
+
+*****
+
+####  本间日阳  
+##### 2801#       发表于 2021-11-21 12:19
+
+克老师已经通关了维阿去挑战千鸟了，什么时候千鸟也通关了就该看as了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cherrydove| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  T型钉宫病毒  
+##### 2802#       发表于 2021-11-21 12:24
+
+昨天还说从不炒作，今天就炒了波大的，真有你的内桑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

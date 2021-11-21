@@ -4302,3 +4302,17 @@ SKIP（T头西服身男性）
 
 手游哭着喊着要男角色这种风气好久前就有了，尼姑庵19年白情复刻旧剑不出新角色的时候就一堆节奏，我当时还和好几个人说旧剑太弱了多攒石头给CBA，一群人追着我回了几页我就是爱抽你管得着么，拐是一时的爱是一辈子的，从那以后基本就只看攻略收表情包了，不过尼姑庵为什么那么男角色lives matter，总不能手游版全是酮吧
 
+
+
+*****
+
+####  真红眼教授  
+##### 84379#       发表于 2021-11-21 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633771&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-11-21 12:06</a>
+
+手游哭着喊着要男角色这种风气好久前就有了，尼姑庵19年白情复刻旧剑不出新角色的时候就一堆节奏，我当时还 ...</blockquote>
+其他手游版块也是一样的（比如某二字游戏）
+
+只能说某些玩家发声量太大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -8029,3 +8029,23 @@ scout在S11没选过维克托吧？</blockquote>
 
 最需要重做的是蔚
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2289#       发表于 2021-11-21 12:07
+
+没啥好重做的。。减点cd加点伤害，直接起飞
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  与天争锋_LZ  
+##### 2290#       发表于 2021-11-21 12:15
+
+小丑掉缸之后飙升成一线反派了，金克丝改造也加了点智力<img src="https://p.sda1.dev/3/77443e638b538d75f97c14cd4c495b19/IMG_CMP_221600120.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
