@@ -19708,3 +19708,22 @@ kos-mos.jpg
 杜欧哈林　岩永 徹也
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qiyu1234  
+##### 5950#       发表于 2021-11-21 09:18
+
+今年 12月15日 系列诞生日 IP生配信
+
+出演者有点意思，一个新作人气王，两个新手游主人公，还有一个近藤隆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/21/091836vem27e5dc0sscqe0.jpg" referrerpolicy="no-referrer">
+
+<strong>imgsrc.jpg</strong> (74.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 09:18 上传
+
