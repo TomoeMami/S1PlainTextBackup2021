@@ -11813,3 +11813,13 @@ ndwd天天cue文静，文静又不播，可不就剩炒cp了<img src="https://st
 这下不得不当cpf了，明明静栗惹都是在认后爹，文静却还主动私信ndwd道歉，难道团建不是发“ndwdk48”“你几把谁啊”“别蹭了真不熟”吗？
 文静一个大写的按耐不住要去私联👋👋👋三十如狼四十如虎真的是
 
+
+
+*****
+
+####  小憨1  
+##### 2783#       发表于 2021-11-21 10:20
+
+怎么又新版本了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+看个千鸟真累啊，希望文静复播先狠狠地训波粉<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
