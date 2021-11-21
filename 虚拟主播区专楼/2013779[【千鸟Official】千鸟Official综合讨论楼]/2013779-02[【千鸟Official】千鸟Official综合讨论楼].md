@@ -11839,3 +11839,32 @@ ndwd天天cue文静，文静又不播，可不就剩炒cp了<img src="https://st
 
 👋👋👋我错了 还是cj版本吧 
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2786#       发表于 2021-11-21 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">等下四字母再给静姨发个私信道歉表示不应该直播说私信，是不是就能继续炒起来了。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 2787#       发表于 2021-11-21 11:39
+
+得嘞，道歉永动机发动了，cj已经是死人版本了，现在是最新最潮的ndwd版本
+
+*****
+
+####  小憨1  
+##### 2788#       发表于 2021-11-21 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633362&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-11-21 11:33</a>
+等下四字母再给静姨发个私信道歉表示不应该直播说私信，是不是就能继续炒起来了。
+
+—— 来自 HUAWE ...</blockquote>
+有理由怀疑他看到了
+

@@ -9169,3 +9169,150 @@ D3900EB8-C38E-45A5-8C78-3C2FDFEFCABA.png
 因为这中文根本配的听不出来是中文，当初不也一堆人说不看字幕都不知道说了什么么？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">兄弟你真的不用装的。这里和隔壁专楼也没多少人，不会耽误你的生意。
 
+
+
+*****
+
+####  cybernetics31  
+##### 845#       发表于 2021-11-21 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议出门左转微博解释吧 小泥潭没多少人生意的 
+
+*****
+
+####  lj205  
+##### 846#       发表于 2021-11-21 11:24
+
+我不在你那买，所以不拱火了
+
+但是这专楼一路追下来，前20页内容的恶臭我到现在还记得，这时候你倒是要轻轻放下，乐子人确实好当
+
+*****
+
+####  kata魂  
+##### 847#       发表于 2021-11-21 11:24
+
+兄弟 这里是s1 不要怕 大胆的黑屁
+
+nga不让黑屁 s1还不让了不成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 848#       发表于 2021-11-21 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633169&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 11:19</a>
+
+我隔壁说了，我这里也说下
+
+我不止点赞过，之前s1还有爆黑料的我也跟风说了摩天轮</blockquote>
+什么受害者姿态
+
+*****
+
+####  a92063256  
+##### 849#       发表于 2021-11-21 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633074&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 11:12</a>
+嗨，你们要我来我就来了，你们硬要说我是为了赚钱糊弄你们我也没话说，还有什么想骂的我这边来给各位一一解 ...</blockquote>
+之前点赞那条你没看到摩天轮emoji吗？没看到的话那条微博直接没有宾语，你都点进他配的图看了，就是没看他配的文字是吗？
+<img src="https://i.bmp.ovh/imgs/2021/11/29e6bec09324f765.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/fda05698e0c6b5f237e455115119fb23/GF72TVAD3H5JMM{VAC9RD_M(1).png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  li463900160  
+##### 850#       发表于 2021-11-21 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633171&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-11-21 11:20</a>
+
+所以你就打了这个tag？这论证过于有力了你不加个数字论证？ ...</blockquote>
+我说了下原由，这么搞的确是口嗨在里面，你就这这点喷我也可以理解，接受批评
+
+*****
+
+####  li463900160  
+##### 851#       发表于 2021-11-21 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633256&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-11-21 11:25</a>
+
+之前点赞那条你没看到摩天轮emoji吗？没看到的话那条微博直接没有宾语，你都点进他配的图看了，就是没看 ...</blockquote>
+说了，我以前的确黑过，这都是证据，现在被黑转粉了，你们不能原谅也是正确的，我就是过来表个态度，给各位挨打当小丑看的
+
+*****
+
+####  优妮可  
+##### 852#       发表于 2021-11-21 11:28
+
+又想黑人又想赚钱没那么好的事哦，别整两幅面孔，那些人你也很熟，你说你改观了，那你把他们挂出来证明一下。总归得罪一边人，你自己选吧。
+
+*****
+
+####  li463900160  
+##### 853#       发表于 2021-11-21 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633310&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-21 11:28</a>
+
+又想黑人又想赚钱没那么好的事哦，别整两幅面孔，那些人你也很熟，你说你改观了，那你把他们挂出来证明一下 ...</blockquote>
+你叫我现在挂我的确挂不出来，因为我这边群已经没人黑鲤鱼了
+
+我改观的证据也现在就是嘴上说说，各位觉得是乐子的依然可以当乐子，但是我态度也摆在这里了，以后我还是会继续支持liella，鲤鱼以及拉拉其他团
+
+*****
+
+####  中野四葉  
+##### 854#       发表于 2021-11-21 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">群里没了微博也销号了？顺便那个太君也挂下呗
+
+*****
+
+####  Norkey1  
+##### 855#       发表于 2021-11-21 11:36
+
+s1黑屁确实没啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时我翻回去也只觉得乐
+虽然不看4v论坛，但是那边反应应该更大吧
+现在最重要的就是论证自己不是两面人
+
+*****
+
+####  li463900160  
+##### 856#       发表于 2021-11-21 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633357&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-11-21 11:33</a>
+
+群里没了微博也销号了？顺便那个太君也挂下呗</blockquote>
+推特上有个白皮，也是个著名尬吹，叫 Alse - 鯉友 ，给你挂一下看看
+
+我个人的确是不太接受这种尬吹
+
+*****
+
+####  中野四葉  
+##### 857#       发表于 2021-11-21 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633394&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 11:36</a>
+推特上有个白皮，也是个著名尬吹，叫 Alse - 鯉友 ，给你挂一下看看
+
+我个人的确是不太接受这种尬吹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转进如风只能说明你在逃避挂人和之前说的已经切割。在你眼里正经推人所以推特里全是她的内容等同于放黑屁瞎编黑料？你连为什么要挂人都在装糊涂
+
+*****
+
+####  lj205  
+##### 858#       发表于 2021-11-21 11:41
+
+你别转移焦点，怎么个摩天**家都看出来就你没看出来？你转的这位跟你也是老相识了吧？还能不知道他是不是黑？他说的话恶意有多大？要都是朋友，就算不赞成对方的喜好，但是也会尽量避免提起，更何况还在明知道自己朋友喜欢的情况下写那么恶毒的内容，你们俩一个骂一个赞倒是很配合。
+
