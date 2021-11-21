@@ -10284,3 +10284,32 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 
 这写真甚至还有憨憨照，笑死我了
 
+
+
+*****
+
+####  player3960  
+##### 942#       发表于 2021-11-22 00:27
+
+这写真集真是不出意外的……健全呢
+憨憨鲤鱼涩不起来，蓝色长裙那几张还蛮好看的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 943#       发表于 2021-11-22 00:35
+
+比nagi那套还要健全不少，palyboy就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过还是好美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cqc1021  
+##### 944#       发表于 2021-11-22 00:38
+
+很健全的写真集<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

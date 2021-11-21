@@ -9151,3 +9151,42 @@ vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是�
 
 —— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  309465205  
+##### 2393#       发表于 2021-11-22 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53628103&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-20 22:30</a>
+
+最后希尔克死在金克丝手里我接受不了怎么死不行偏偏被自己宁愿放弃祖安未来都不愿舍弃的女儿手刃了 ...</blockquote>
+其实死在jinx手里,让jinx彻底成为jinx,我觉得希尔科是乐意了
+
+*****
+
+####  殿珣  
+##### 2394#       发表于 2021-11-22 00:35
+
+孤勇者这首歌是英雄联盟中文主题曲？没看国语版，是开头替换掉enemy？
+这首歌是唱的金克斯？？为啥mv里都是金克斯。看起来应该是唱的vi吧？
+
+*****
+
+####  309465205  
+##### 2395#       发表于 2021-11-22 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629879&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-21 01:08</a>
+
+外网IGN发的最喜欢剧集英雄角色的投票，金克斯是第一30%多</blockquote>
+国内也是,不管那个论坛,金克斯都是爱的多恨得也多的角色
+
+第二是维克托,所以如果有负数票的话可能维克托是真的第一
+
+*****
+
+####  sjbssd  
+##### 2396#       发表于 2021-11-22 00:44
+
+不行，感觉金克丝直到最后都有爆爆的灵魂在体内，轰出炸弹的时候没有那种纯粹的恶，内心还是在挣扎，这个感觉和游戏里还差不少，并不是完美的。
+
