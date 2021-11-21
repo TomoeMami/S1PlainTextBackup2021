@@ -8264,3 +8264,34 @@ GENG那把翻盘再被翻啊<img src="https://static.saraba1st.com/image/smiley/
 
 梅尔有没有活下来的可能啊。。。还有之前没看清，海克斯是装到鱼骨头里了还是装到导弹里了。要留在鱼骨头里那金克丝现在是拿着海克斯科技的微光强化人，谁打的过。。。
 
+
+
+*****
+
+####  lucifer5455  
+##### 2311#       发表于 2021-11-21 14:15
+
+<blockquote>小修 发表于 2021-11-21 13:42
+我觉得下一季会有金克斯、凯特琳联手救蔚的段落。</blockquote>
+难说，金克丝就是金克丝，已经不是爆爆了，这是希尔科用他的死换来的。希尔科最珍视就是自己的这个养女金克丝，他一直以来都希望金克丝能成为金克丝，抛弃掉那个爆爆。而最后虽然爆爆为了姐姐杀了他，但他的死却换来了金克丝成型，也算是得偿所愿。
+
+*****
+
+####  亚可（本人）  
+##### 2312#       发表于 2021-11-21 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633708&amp;ptid=2002246" target="_blank">狼影者瑞德克斯 发表于 2021-11-21 12:02</a>
+scout在S11没选过维克托吧？</blockquote>
+4强赛选了，眼看要翻盘走鳄鱼脸葬送比赛那把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  黑猫桑  
+##### 2313#       发表于 2021-11-21 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634412&amp;ptid=2002246" target="_blank">碎片整理 发表于 2021-11-21 12:58</a>
+难以同意，应该是各自都给了一个选择的机会。先是爆爆把枪给薇选择，如果杀了女警，那唯一的妹妹爆爆就会 ...</blockquote>
+金克斯杀希尔科是因为他要杀vi了，金克斯一直就是以她姐姐为第一中心，后面也没杀女警，她不想让她姐姐跟她一样疯狂。
+

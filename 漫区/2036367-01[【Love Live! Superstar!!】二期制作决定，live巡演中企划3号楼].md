@@ -9585,3 +9585,17 @@ mmr眼中最恶臭的S1管人楼要发散也得讲个有理有据  前20页除
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">才知道鲤鱼1st的场子租14个小时要330w日元，比一巡两天东京场的租金加起来都贵
 
+
+
+*****
+
+####  lj205  
+##### 884#       发表于 2021-11-21 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635137&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-11-21 13:48</a>
+
+直播间是肯定没有的连播声音都能被禁掉，我等下看看发下腾讯会议吧。会议是老家
+
+—— 来 ...</blockquote>
+谢谢，还是会议好<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

@@ -3525,3 +3525,14 @@ boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</bloc
 操作起来要被气死，按遇到蝎子或者斧子，要么锁到蝎子尾巴要么锁到2边的斧子 ...</blockquote>
 最快是直接点屏幕目标直接锁定啊。如果不在屏幕内就按对应红圈转向再点屏幕。
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 6257#       发表于 2021-11-21 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634527&amp;ptid=1570791" target="_blank">心灵的乳头 发表于 2021-11-21 13:06</a>
+boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</blockquote>
+实验功能里面有 “结合半自动手动操作
+
