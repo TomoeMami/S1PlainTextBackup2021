@@ -7819,3 +7819,26 @@ Where’s a Hexgate when you need one?
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Piano-Forest  
+##### 2268#         楼主| 发表于 2021-11-21 10:50
+
+👊CEO：
+[https://twitter.com/niiicolo/status/1462225669551575042](https://twitter.com/niiicolo/status/1462225669551575042)
+
+So yeah, we are working on #arcane season 2. 
+
+The good news: you won’t have to wait for 6 years (the time it took us to making season 1)
+
+The bad news: it’s not coming in 2022 😢
+
+*****
+
+####  Paradox7  
+##### 2269#       发表于 2021-11-21 10:50
+
+希望瑞兹出来的时候帅一点，得对得起他的设定，还有青钢影！全是超帅的角色
+

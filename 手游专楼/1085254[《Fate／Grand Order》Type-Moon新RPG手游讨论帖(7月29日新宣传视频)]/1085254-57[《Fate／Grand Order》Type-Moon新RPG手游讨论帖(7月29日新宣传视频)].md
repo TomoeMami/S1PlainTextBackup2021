@@ -4247,3 +4247,28 @@ SKIP（T头西服身男性）
 
 看来确实有不少人捏着鼻子玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  真红眼教授  
+##### 84374#       发表于 2021-11-21 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53632611&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-11-21 10:39</a>
+
+开贴庆祝炎上的样子真有点滑稽，还有在那追问性转团长池子流水的</blockquote>
+流水不知道，只知道匿名论坛里到处都是团长涩图，比泳装还多
+
+至于隔壁？那里还有正常讨论的人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84375#       发表于 2021-11-21 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53632700&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-11-21 10:46</a>
+流水不知道，只知道匿名论坛里到处都是团长涩图，比泳装还多
+
+至于隔壁？那里还有正常讨论的人？ ...</blockquote>
+团长的色图是真的多，我存了一大堆，基本都是从4chan存的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

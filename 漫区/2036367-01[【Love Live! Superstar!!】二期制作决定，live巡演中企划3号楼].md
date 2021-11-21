@@ -8965,3 +8965,35 @@ D3900EB8-C38E-45A5-8C78-3C2FDFEFCABA.png
 
 黑转粉就应该把自己群里那几个贵物微博挂出来骂一顿，划清界限，这口头说寄吧呢，
 
+
+
+*****
+
+####  iuhehc  
+##### 822#       发表于 2021-11-21 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有什么店推荐一下
+
+*****
+
+####  a92063256  
+##### 823#       发表于 2021-11-21 10:46
+
+我也有好几张cdbd什么的都是在这家买的，大家以后避雷就好<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">说实话让这种贵物赚了兜里的钱我是真的很不爽的
+
+*****
+
+####  秋月艾莉  
+##### 824#       发表于 2021-11-21 11:00
+
+本人在隔壁下场了
+
+看来是有一点点急www
+
+*****
+
+####  lj205  
+##### 825#       发表于 2021-11-21 11:02
+
+等他什么时候来这里对线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
