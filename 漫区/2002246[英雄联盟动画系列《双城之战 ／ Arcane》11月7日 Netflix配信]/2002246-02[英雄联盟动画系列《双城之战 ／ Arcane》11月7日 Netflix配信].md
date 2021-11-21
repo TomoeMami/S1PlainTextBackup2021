@@ -7566,3 +7566,46 @@ Where’s a Hexgate when you need one?
 
 二季就好，真的，不要太拖沓，不要注水
 
+
+
+*****
+
+####  kiririno  
+##### 2243#       发表于 2021-11-21 09:25
+
+第二季还在双城挺好的，说实话就这个结局很难让人能干脆利索把注意力转移到其他城邦去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然多久能做出来就另说了
+
+*****
+
+####  Yourselfine  
+##### 2244#       发表于 2021-11-21 09:27
+
+应该用一两集结局然后开启新篇章？总不能一直双城之战吧，arcane代入其他城邦也合适，只是国服翻译感觉陷入之前“魔法少女”的窘境了
+
+*****
+
+####  IRIS虹  
+##### 2245#       发表于 2021-11-21 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629895&amp;ptid=2002246" target="_blank">第贰个十年 发表于 2021-11-21 01:10</a>
+虽然整个剧情都透露出一股“为了把几个角色拐到游戏设定上去”的味道，想出来的故事也略显土味和一点都合， ...</blockquote>
+为啥说故事已经讲完了，感觉很多东西都还没讲呐
+
+*****
+
+####  我不是大叔  
+##### 2246#       发表于 2021-11-21 09:36
+
+其实arcane这标题就说明大纲早就写好了，说不定第二季都差不多了，这家法国工作室从get jinx到艾克的second，对皮城祖安这里肯定比其他地区要熟悉的多，素材应该也积累了不少，大概率这系列的核心就是海克斯科技核心了，后面其他势力的角色肯定都有被卷进来的可能，诺克萨斯就是一定的了，瑞兹按他的尿性多半也要出现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  龙爪  
+##### 2247#       发表于 2021-11-21 09:42
+
+下一季能看到我最喜欢的青钢影吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

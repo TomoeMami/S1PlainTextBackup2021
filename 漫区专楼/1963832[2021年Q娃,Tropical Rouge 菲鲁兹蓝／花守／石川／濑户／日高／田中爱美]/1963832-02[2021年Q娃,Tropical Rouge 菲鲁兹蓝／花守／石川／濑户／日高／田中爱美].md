@@ -11410,3 +11410,14 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">都快完结了，居然集中爆料，药啊
 
+
+
+*****
+
+####  过气页游  
+##### 2342#       发表于 2021-11-21 09:41
+
+两小只真的很可爱<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">这集看完感觉女王还是有很多事没说。
+
+顺便这个魔女会不会本来也是人鱼而且跟传说Q娃是朋友，但是想把消除记忆这件事给一直延后，但最后记忆还是被强制吸收了，就魔怔了就变魔女了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
