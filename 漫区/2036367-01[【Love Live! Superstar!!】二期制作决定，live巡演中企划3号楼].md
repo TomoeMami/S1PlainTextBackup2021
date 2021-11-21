@@ -10340,3 +10340,46 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 好奇她睡衣那套怎么又感觉不小的样子</blockquote>
 对比前几天新发的MV的样子来看我感觉睡衣那几张要么有装备加成要么就是用了魔法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 948#       发表于 2021-11-22 04:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643602&amp;ptid=2036367" target="_blank">stygian 发表于 2021-11-22 00:16</a>
+（大阪两场有老哥录了档吗</blockquote>
+有
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 949#       发表于 2021-11-22 04:09
+
+这几周开始忙起来了，大阪这两场我都没什么时间细看，感觉错过好多。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 950#       发表于 2021-11-22 04:10
+
+两次的录播 大阪day1
+「[MP4]ラブライブ!スーパースター!! Lie...s~ 大阪公演 DAY1.mp4」，点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载，极速在线查看享用。
+链接：https://www.aliyundrive.com/s/xmwvEHhSooV
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 951#       发表于 2021-11-22 04:10
+
+「[MP4]ラブライブ!スーパースター!! Lie...s~ 大阪公演 DAY2.mp4」，点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载，极速在线查看享用。
+链接：https://www.aliyundrive.com/s/Zbqrw4J3SXS
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

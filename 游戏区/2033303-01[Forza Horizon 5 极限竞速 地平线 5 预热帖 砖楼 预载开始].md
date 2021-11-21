@@ -14516,3 +14516,27 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 感觉现在网络比刚开始稳定多了，直连一样能玩，拍卖行和涂装也都能正常刷出来，4代不开加速器连个线上都费劲
 
+
+
+*****
+
+####  pl0okm  
+##### 1321#       发表于 2021-11-22 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643730&amp;ptid=2033303" target="_blank">悲叹的夜想曲 发表于 2021-11-22 00:30</a>
+
+网络有什么好点的解决办法吗，我到现在都还没完整的进行过一次多人任务，和多人有关的赞赏都没法做 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先关闭qq这类会导致疯狂掉线的
+
+然后我用[https://keylol.com/t763191-1-1](https://keylol.com/t763191-1-1)锁了香港 效果如何未知
+
+过关挑战赛挑类型挑时间 像空中 漂移太随缘 比如空中跳跃撞靶太多人掌握不好起跳方向和速度 而且现在很多位置放的阴间。开超跑进漂移的比比皆是，混乱难在小游戏一旦有人挂机/不会玩就超慢，破坏好一点，竞速相对最简单
+
+时间像这周末的13 14点 20 21点人数都挺多
+
+开始前传送进圈刷不出人可以试试切单人再切回来，标签页在线的右下角按钮。如果游戏会随机卡死的话推荐打两局就重开游戏免得下一局有希望时打一半游戏没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 前几分钟进度太慢推荐直接放弃等下一局或打完第一阶段esc退出赛事 会结算点数的。
+
+然后是自己网络 移动怎么样未知 如果你网络晚高峰时期出口比较卡就要等1点半之后 但这个时间大概只有季节刚更新那天人才会很多，不然就要早上中午
+
+游乐场蛇头这些个组队的和上面差不多 有加速器还是挺稳的 只有魔法可以用netch，steam可用进程模式，win10 xgp大概只能靠bypass lan and china模式
+

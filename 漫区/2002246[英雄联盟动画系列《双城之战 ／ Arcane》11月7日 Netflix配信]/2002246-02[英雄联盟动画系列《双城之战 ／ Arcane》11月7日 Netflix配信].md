@@ -9307,3 +9307,85 @@ vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是�
 每个地区都有一个重要约德尔人。。。</blockquote>
 而且还都是兢兢业业为第二故乡添砖加瓦，大头、波比、克烈、凯南等等，约德尔人真是不简单<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2407#       发表于 2021-11-22 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643889&amp;ptid=2002246" target="_blank">sjbssd 发表于 2021-11-22 00:44</a>
+
+不行，感觉金克丝直到最后都有爆爆的灵魂在体内，轰出炸弹的时候没有那种纯粹的恶，内心还是在挣扎，这个感 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/22/014416xjlztjo7ol8k0rkk.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211122014145.jpg</strong> (185.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 01:44 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/014429sudwq4z00qcjzw7o.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211122014209.jpg</strong> (136.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 01:44 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/014437cjjjzdzpimndew0n.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211122014215.jpg</strong> (129.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 01:44 上传
+
+金克斯过去爆爆，现在爆爆的现在是金克斯。一直是一个人罢了，这场选择题她能不知道她姐姐这个性格开不了枪吗。目的只是想让她接受现在的自己，结果蔚宁愿远走他乡也不愿接受现在的她.<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 2408#       发表于 2021-11-22 01:53
+
+但是这个提案确实很有魅力。。。
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  JC_AR  
+##### 2409#       发表于 2021-11-22 02:06
+
+一口气看完，真的吊，各种方面，希望不要延续美剧第二季必烂的传统
+
+*****
+
+####  kaolimadepi  
+##### 2410#       发表于 2021-11-22 03:19
+
+第二季姐妹的亲情故事快讲完了可以放一放，杰斯和维克托这两位的故事还长着呢。围绕人体改造的讨论也是经典话题了很容易写。顺便带出青钢影机器人发条这些高人气英雄。
+
+*****
+
+####  龙爪  
+##### 2411#       发表于 2021-11-22 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643997&amp;ptid=2002246" target="_blank">sjbssd 发表于 2021-11-22 00:53</a>
+金克丝有奈奈的！你仔细舔啊！像布丁一样的一点点</blockquote>
+小年糕<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  龙爪  
+##### 2412#       发表于 2021-11-22 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643997&amp;ptid=2002246" target="_blank">sjbssd 发表于 2021-11-22 00:53</a>
+金克丝有奈奈的！你仔细舔啊！像布丁一样的一点点</blockquote>
+小年糕<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
