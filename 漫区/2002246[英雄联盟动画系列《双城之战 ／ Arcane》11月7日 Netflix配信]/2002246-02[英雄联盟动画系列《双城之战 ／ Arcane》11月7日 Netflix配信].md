@@ -8878,3 +8878,38 @@ ez本来设定就是自从捡了护手之后走哪儿哪儿塌，这俩来不来
 罗云熙粉丝这几天一直在B站做维克托剪辑视频，反响还不错。。真的，可以去给范丞丞磕几个头 ...</blockquote>
 本来腾讯中配听得好好的,结果到成年艾克那里听了3s 果断换英文台.......
 
+
+
+*****
+
+####  FerMonster  
+##### 2368#       发表于 2021-11-21 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613807&amp;ptid=2002246" target="_blank">狼影者瑞德克斯 发表于 2021-11-19 19:38</a>
+
+你如果看拳头现在的扩展方向，全是要么冷门要么不赚钱的。
+
+只能说，拳头自己这些年办比赛赚的确实 ...</blockquote>
+主要是动画做出来了，加上流媒体传播的快，ip宇宙逐渐起势了
+
+*****
+
+####  飞升之后  
+##### 2369#       发表于 2021-11-21 20:07
+
+突然想到炼金那只古代种里奥，最后被炼金装进罐子里了。。。不会游戏里炼金背的罐子里也是里奥把？？？
+
+*****
+
+####  chillstar  
+##### 2370#       发表于 2021-11-21 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638626&amp;ptid=2002246" target="_blank">whyy 发表于 2021-11-21 17:57</a>
+
+那也能叫骗啊，就一瞬间的事
+
+金克丝当时估计就是不想活了，在她的视角里，姐姐彻底抛弃了自己（从结局希尔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以说她看起来能打是因为和她打的人都没下死手，最后还不是艾克把手雷打飞了
+
+整个剧里她周围的人都爱护她，她把自己给整成缺爱了，造就金克斯的就是她自己，不是双城
+
