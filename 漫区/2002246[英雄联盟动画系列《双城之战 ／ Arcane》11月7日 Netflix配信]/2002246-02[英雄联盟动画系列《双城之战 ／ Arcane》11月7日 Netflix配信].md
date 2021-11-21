@@ -8333,3 +8333,24 @@ scout在S11没选过维克托吧？</blockquote>
 金克斯杀希尔科是因为他要杀vi了，金克斯一直就是以她姐姐为第一中心，后面也没杀女警，她不想让她姐姐跟 ...</blockquote>
 从最后那段运镜，和3个人的表情看，金克斯在开枪时显然没意识到希尔科拿枪是打谁。
 
+
+
+*****
+
+####  bartholo4  
+##### 2317#       发表于 2021-11-21 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635843&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-21 14:35</a>
+我返回去看了好几次第九集结尾，梅尔身上的金色饰件绝对不是在反光，而是在发光，那也许真的是某种防护装备 ...</blockquote>
+从表现手法上分析
+可定是一种保护装置，要不然。没必要给这个特写
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  qingshuihe  
+##### 2318#       发表于 2021-11-21 14:51
+
+所以禁gun就是好啊，个人武力值终归是有极限的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

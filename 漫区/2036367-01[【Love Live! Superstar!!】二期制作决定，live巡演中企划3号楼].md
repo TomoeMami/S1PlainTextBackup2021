@@ -9615,3 +9615,42 @@ mmr眼中最恶臭的S1管人楼要发散也得讲个有理有据  前20页除
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  普之舜舜  
+##### 886#       发表于 2021-11-21 14:54
+
+学会计的舜舜同学 邀请您参加腾讯会议
+会议主题：c020109703的快速会议
+会议时间：2021/11/21 13:42-14:42 (GMT+08:00) 
+
+点击链接直接加入会议：
+https://meeting.tencent.com/dm/1xbsKiqZO4sw
+
+会议ID：514 128 261
+
+手机一键拨号入会
++8675536550000,,514128261# (中国大陆)
++85230018898,,,2,514128261# (中国香港)
+
+根据您的位置拨号
++8675536550000 (中国大陆)
++85230018898 (中国香港)
+
+复制该信息，打开手机腾讯会议即可参与
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 887#       发表于 2021-11-21 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635448&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-21 14:09</a>
+谢谢，还是会议好</blockquote>
+会议来了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
