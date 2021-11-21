@@ -14250,3 +14250,12 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 我体育场碰到过竞速第一回合就是冲破限制 绕圈绕了9分钟才过 然后没有了
 
+
+
+*****
+
+####  bad_alloc  
+##### 1296#       发表于 2021-11-21 12:31
+
+唯一一次完成的街机是漂移，看着房间里十几个大哥一起拉烟，非常感动<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -9436,3 +9436,24 @@ s1黑屁确实没啥<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以是咋想地跑咱这来解释呢 想立正挨打去瓜的源头松雾那啊
 
+
+
+*****
+
+####  K·os  
+##### 870#       发表于 2021-11-21 12:26
+
+我很怀念一号楼的前20页，现在这样，还能叫s1吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  中野四葉  
+##### 871#       发表于 2021-11-21 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633997&amp;ptid=2036367" target="_blank">K·os 发表于 2021-11-21 12:26</a>
+
+我很怀念一号楼的前20页，现在这样，还能叫s1吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老哥你在音宝楼可不是这样的
+

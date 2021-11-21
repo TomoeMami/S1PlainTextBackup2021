@@ -4316,3 +4316,17 @@ SKIP（T头西服身男性）
 
 只能说某些玩家发声量太大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  清风朗月  
+##### 84380#       发表于 2021-11-21 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633805&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-11-21 12:10</a>
+
+其他手游版块也是一样的（比如某二字游戏）
+
+只能说某些玩家发声量太大 ...</blockquote>
+当初就有很多人嫌弃废狗媚宅不给男角色待遇去转投雪之下的，然而几年过去了，男性那数量待遇还不如废狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
