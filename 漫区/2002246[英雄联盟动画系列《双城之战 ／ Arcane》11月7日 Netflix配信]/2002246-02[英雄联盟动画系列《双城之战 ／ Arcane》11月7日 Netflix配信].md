@@ -7460,3 +7460,59 @@ vi将jinx体现的矛盾全部归咎于希尔科，这一季，vi在复仇，get
 
 本来因为破败活动的sb剧情对这剧没啥期待，这不是能把剧情编好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  appleduo  
+##### 2232#       发表于 2021-11-21 08:27
+
+有第二季了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  appleduo  
+##### 2233#       发表于 2021-11-21 08:31
+
+Ready yourselves, friends. Season 2 of Arcane is now in production. 
+
+Where’s a Hexgate when you need one? 
+
+文件夹已经新建好了(
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  theti  
+##### 2234#       发表于 2021-11-21 08:36
+
+还是金克丝薇的故事，真要皮城蝙蝠侠大战祖安小丑了
+
+*****
+
+####  theti  
+##### 2235#       发表于 2021-11-21 08:37
+
+http://t.cn/A6xMhxgh  第二季预告
+
+*****
+
+####  Yourselfine  
+##### 2236#       发表于 2021-11-21 08:39
+
+Ready yourselves, friends. Season 2 of Arcane is now in production. 
+
+Where’s a Hexgate when you need one?
+
+在做了在做了
+
+*****
+
+####  Yourselfine  
+##### 2237#       发表于 2021-11-21 08:40
+
+甚至arcane官方头像改成一个2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
