@@ -8913,3 +8913,60 @@ ez本来设定就是自从捡了护手之后走哪儿哪儿塌，这俩来不来
 
 整个剧里她周围的人都爱护她，她把自己给整成缺爱了，造就金克斯的就是她自己，不是双城
 
+
+
+*****
+
+####  狭义文具爱好者  
+##### 2371#       发表于 2021-11-21 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636447&amp;ptid=2002246" target="_blank">战场公主希维尔 发表于 2021-11-21 15:20</a>
+
+但这是幻想世界，魔法比枪牛逼多了还有好多可以以一当百的怪物。
+
+  -- 来自 有消息提醒的 Stage1官 ...</blockquote>
+lol世界里没火药不妨碍有枪，你看卢锡安夫妇手里那家伙
+
+*****
+
+####  飞升之后  
+##### 2372#       发表于 2021-11-21 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53640761&amp;ptid=2002246" target="_blank">狭义文具爱好者 发表于 2021-11-21 20:25</a>
+
+lol世界里没火药不妨碍有枪，你看卢锡安夫妇手里那家伙</blockquote>
+有火药，男枪女枪的就是火铳阿
+
+*****
+
+####  ammk  
+##### 2373#       发表于 2021-11-21 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634861&amp;ptid=2002246" target="_blank">Yourselfine 发表于 2021-11-21 13:28</a>
+不是六年后，但也不是在2022年。
+
+那是下周六吗？</blockquote>
+下周六更新那就是宇宙神作
+
+*****
+
+####  emeab  
+##### 2374#       发表于 2021-11-21 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53631282&amp;ptid=2002246" target="_blank">资本剑客 发表于 2021-11-21 08:15</a>
+
+本来因为破败活动的sb剧情对这剧没啥期待，这不是能把剧情编好的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">破败活动的剧情是皮肤组做的. 突出一个乱编 
+
+*****
+
+####  emeab  
+##### 2375#       发表于 2021-11-21 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629478&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-21 00:26</a>
+
+可惜现在最高的也就1080p,之后不知道会不会放出4k资源...
+
+这么好的画面没最高清用来截图太可惜了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer"> 腾讯视频的垃圾画质. 一打起来就糊 网飞就清晰不少..
+
