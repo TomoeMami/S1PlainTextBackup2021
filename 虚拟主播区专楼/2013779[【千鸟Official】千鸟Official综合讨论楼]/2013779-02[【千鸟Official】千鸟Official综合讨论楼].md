@@ -12675,3 +12675,19 @@ BV1dq4y1u7br
 
 但是原力让人在上海居住上班但是居然不给交社保，那估计五险一金全都没有，实在黑心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GAKOTO  
+##### 2872#         楼主| 发表于 2021-11-21 23:44
+
+VR也没吧，主播这行好像都这样？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丢了五块钱  
+##### 2873#       发表于 2021-11-21 23:53
+
+co宝和琳的唱歌水平我只能遗憾的说，不如烧鸡，开口就想退
+

@@ -9134,3 +9134,20 @@ vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是�
 
 不过确实是你这种解释更合理，毕竟在杀了希尔科后金克丝是带着悔意跑过去的，如果是觉得希尔科背叛了的话，就不会这样做了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  与天争锋_LZ  
+##### 2392#       发表于 2021-11-21 23:58
+
+ 本帖最后由 与天争锋_LZ 于 2021-11-22 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641695&amp;ptid=2002246" target="_blank">ooohaoguai2 发表于 2021-11-21 21:36</a>
+梅尔大概率是没了。这意味伴随着双城开战，梅尔的妈出于感情和家族一定会全力介入；而乌鸦（梅尔家族的敌人 ...</blockquote>
+英雄战力之间的差距太大了，只要有足够强的一个/几个英雄来就能改变走向，就皮城自己还有卡密尔这个百岁老妖婆当然过于机械降神就不好看了
+
+海克斯科技是个香饽饽，如果诺克萨斯这么想要，别的势力肯定也不想让他真得手
+之前说海克斯飞门让皮城成了大陆运输枢纽，那各方势力在这龙争虎斗也是很合理的
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

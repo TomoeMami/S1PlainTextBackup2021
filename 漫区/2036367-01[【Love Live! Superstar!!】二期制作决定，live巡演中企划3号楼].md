@@ -10157,3 +10157,84 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前偶尔露个肚脐还挺瑟的
 
+
+
+*****
+
+####  cat1230  
+##### 934#       发表于 2021-11-21 23:41
+
+为了烫裤裤，鲤鱼姐牺牲了很多<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  名津流  
+##### 935#       发表于 2021-11-21 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641537&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-21 21:25</a>
+
+这章鱼越看越想买了，有代购吗</blockquote>
+别处看到的图，挂着liella标题的章鱼价格55-165，挂着小仓唯标题的章鱼一半价格都不到
+
+<img src="https://img.saraba1st.com/forum/202111/21/225621ty0rhyi8t10irhyz.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211121222024.jpg</strong> (87.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 22:56 上传
+
+  
+
+<img src="https://img.saraba1st.com/forum/202111/21/225621bffexg3lqcccsdxg.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211121222028.jpg</strong> (339.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 22:56 上传
+
+然后评论区好几个都是买这个便宜的然后当liella的周边来使用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/21/225622ocnf3x08d0rn0v8n.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211121222031.jpg</strong> (194.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202111/21/225622xhlhhdoj6l4zor41.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211121222034.jpg</strong> (142.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 22:56 上传
+
+*****
+
+####  cat1230  
+##### 936#       发表于 2021-11-21 23:50
+
+有差别啊，Liella款章鱼底部有分色，这款没有。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  D麦林  
+##### 937#       发表于 2021-11-21 23:55
+
+ 本帖最后由 D麦林 于 2021-11-22 00:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643214&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-21 23:37</a>
+鱼写真露出度还没她以前长发自拍露的多以前偶尔露个肚脐还挺瑟的 ...</blockquote>
+其实我感觉这一套里面 露出度倒是大差不差
+其实也不一定要露出度高才能色起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+但是主要是穿搭和拍照的风格都 都太阳光了
+基本上除了那套睡衣的比较妩媚以外剩下的都色不太起来
+起码年轻的肉体还是表露的比较好了 值回票价而且小赚
+细想感觉也挺好的 起码说明对事务所的人来说凭鲤鱼的魅力不需要出卖色相就能获得欢迎（？）
+

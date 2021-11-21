@@ -7642,3 +7642,47 @@ debu
 
 连续两次打工人 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 5384#       发表于 2021-11-21 23:46
+
+格温：贾克斯是你爹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5385#       发表于 2021-11-21 23:50
+
+嬉しい
+
+*****
+
+####  Klience  
+##### 5386#       发表于 2021-11-21 23:52
+
+有野爹就是好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5387#       发表于 2021-11-21 23:52
+
+补周业绩是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 5388#       发表于 2021-11-21 23:56
+
+感觉还是lol赢的时候最开心，仿佛几个星期没赢过的感觉。
+
+*****
+
+####  Klience  
+##### 5389#       发表于 2021-11-21 23:57
+
+你查一下她战绩就知道 她这次直播之前唯一赢的还是10天前<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
