@@ -8096,3 +8096,95 @@ scout在S11没选过维克托吧？</blockquote>
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Elder神选  
+##### 2294#       发表于 2021-11-21 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53627707&amp;ptid=2002246" target="_blank">Tjodrek 发表于 2021-11-20 21:52</a>
+
+问题是这两人生长环境一模一样啊，都是一条街的</blockquote>
+艾克的父母没有那么魔怔
+
+*****
+
+####  Elder神选  
+##### 2295#       发表于 2021-11-21 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625688&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-20 19:27</a>
+
+虽然知道女警不会死，但是端盘子那段气氛渲染的真特么到位，我都怕盖子一掀开女警的头摆在上面，结果金克丝 ...</blockquote>
+这个是吐槽小丑
+
+*****
+
+####  theti  
+##### 2296#       发表于 2021-11-21 12:56
+
+目前双城出场的角色，除了第二集的法师外，还真是金克丝最能打了，悲剧令人成长啊
+
+*****
+
+####  IRIS虹  
+##### 2297#       发表于 2021-11-21 12:57
+
+问问有没有4k的英配资源，爬楼没找到
+
+*****
+
+####  碎片整理  
+##### 2298#       发表于 2021-11-21 12:58
+
+<blockquote>与天争锋_LZ 发表于 2021-11-21 12:15
+小丑掉缸之后飙升成一线反派了，金克丝改造也加了点智力
+
+</blockquote>
+难以同意，应该是各自都给了一个选择的机会。先是爆爆把枪给薇选择，如果杀了女警，那唯一的妹妹爆爆就会回到薇的身边。然后金克斯把枪给希尔科选择，如果希尔科不背叛金克斯，那乖女儿金克斯就会回到希尔科的身边。
+
+薇没有选杀女警，但提出了远走高飞的另一条道路。这时金克斯开始动摇。而希尔科拿起枪则将金克斯推向了爆爆，因为她以为希尔科终究还是选择了背叛她，金克斯已经没有了容身之地。
+
+结果并不是，希尔科只是想阻止薇抢走金克斯。临死前还爆发绝世好爹之力，一连串我不怪你、祖安和你摆一起我也选你、你永远是最棒的……超量打击。
+
+一边是黏黏糊糊、和小三纠缠不清的姐姐（爆爆视角），一边是愿意为了自己放弃毕生追求的老爹，金克斯的选择合情合理。
+
+至于最后炮轰议会，则是代表她自愿担负起希尔科反抗皮城的理念，彻底杀死那个软弱的爆爆。
+
+*****
+
+####  chillstar  
+##### 2299#       发表于 2021-11-21 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">金克斯能打是因为别人打她不下杀手吧，桥上要是艾克打出三环剧情都结束了
+
+*****
+
+####  zxc786  
+##### 2300#       发表于 2021-11-21 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634420&amp;ptid=2002246" target="_blank">chillstar 发表于 2021-11-21 12:59</a>
+
+金克斯能打是因为别人打她不下杀手吧，桥上要是艾克打出三环剧情都结束了 ...</blockquote>
+不是，艾克要下杀手了，但金克丝藏了颗雷把艾克炸飞了。
+
+*****
+
+####  Elder神选  
+##### 2301#       发表于 2021-11-21 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53624501&amp;ptid=2002246" target="_blank">CCCCCC梵 发表于 2021-11-20 17:49</a>
+
+没，野火帮也是被迫害要自卫，女警就这么说你要为了大义放弃这个宝石接着和希尔科斗，怎么说呢...就很高 ...</blockquote>
+女警思路是好的，但是还是天真，艾克也是想和解，所以艾克提出了和解可以但我也要去的要求。
+
+*****
+
+####  chillstar  
+##### 2302#       发表于 2021-11-21 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634434&amp;ptid=2002246" target="_blank">zxc786 发表于 2021-11-21 13:00</a>
+
+不是，艾克要下杀手了，但金克丝藏了颗雷把艾克炸飞了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他是被jinx表情给骗了，不然早一棍子下去
+

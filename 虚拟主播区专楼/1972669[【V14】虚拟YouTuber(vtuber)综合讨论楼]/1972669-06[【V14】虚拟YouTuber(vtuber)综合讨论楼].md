@@ -13573,3 +13573,19 @@ hachi上了</blockquote>
 
 Vrchat里的新活动
 
+
+
+*****
+
+####  poipanchao  
+##### 8525#       发表于 2021-11-21 12:44
+
+彩虹好死！！！
+
+*****
+
+####  FCCHua  
+##### 8526#       发表于 2021-11-21 12:50
+
+vr不都炸了好几回了嘛，经典21号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

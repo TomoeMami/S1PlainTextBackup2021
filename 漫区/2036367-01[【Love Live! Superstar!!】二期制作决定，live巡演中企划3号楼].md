@@ -9457,3 +9457,65 @@ s1黑屁确实没啥<img src="https://static.saraba1st.com/image/smiley/face2017
 我很怀念一号楼的前20页，现在这样，还能叫s1吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老哥你在音宝楼可不是这样的
 
+
+
+*****
+
+####  秋月艾莉  
+##### 872#       发表于 2021-11-21 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633189&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 11:21</a>
+
+我不会转黑，我之前微博上也说了我看小偶像就是实力说话，我之前以为鲤鱼是被蜀黍带进去的想看乐子，现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前在开闭坑待过，黑转路乃至转粉这种事还是很常见的，我姑且信了，就不继续拱火了
+
+嘛爱口嗨别人就得做好被人喷回来的准备，立正挨顿打就算了
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不然你来个百张碟拆封视频自证粉丝吧，保证叫人乖乖闭嘴www
+
+*****
+
+####  稀勢のささ  
+##### 873#       发表于 2021-11-21 12:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mmr眼中最恶臭的S1管人楼要发散也得讲个有理有据  前20页除了纯粹的恶意还有啥
+
+*****
+
+####  名津流  
+##### 874#       发表于 2021-11-21 12:54
+
+支持拆碟自证
+毕竟现在这局面不都等着你切腹掏掏看有几碗粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  K·os  
+##### 875#       发表于 2021-11-21 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634068&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-11-21 12:32</a>
+
+老哥你在音宝楼可不是这样的</blockquote>
+那只能说是我水平不行，属于是见习巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 876#       发表于 2021-11-21 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633707&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-11-21 12:02</a>
+
+不想给自己洗白了，首先翻记录很累，我现在的确没精力翻，也不想再继续挂人，毕竟我之前也是黑过的一份子 ...</blockquote>
+要当小丑就拿出点诚意来，比如送楼里每人一套。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  li463900160  
+##### 877#       发表于 2021-11-21 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633959&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-21 12:23</a>
+
+所以是咋想地跑咱这来解释呢 想立正挨打去瓜的源头松雾那啊</blockquote>
+我跟松雾那边误会都解除了，之前做的错事他也原谅我了，所以微博都删了
+
