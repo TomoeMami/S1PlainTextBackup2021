@@ -12580,3 +12580,14 @@ co宝的各种爱好你想象不到的<img src="https://static.saraba1st.com/ima
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  tn_teana  
+##### 2862#       发表于 2021-11-21 21:02
+
+这下顶流的含金量了<img src="https://p.sda1.dev/3/b2f510ca4e4d4e726edaa54d2eaeddeb/960C7CD275CEA85B664FC13CDFAFE7E4.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

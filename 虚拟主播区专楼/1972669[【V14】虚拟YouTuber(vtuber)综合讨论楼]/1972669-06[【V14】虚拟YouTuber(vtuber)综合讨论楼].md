@@ -13669,3 +13669,23 @@ yuni这个创世之音是重播吗
 
 唱了蜜雪冰城版的苏珊娜，然后说在B站要开号了，就是官方找的吧
 
+
+
+*****
+
+####  NBXX  
+##### 8535#       发表于 2021-11-21 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482544&amp;ptid=1972669" target="_blank">NBXX 发表于 2021-11-9 22:04</a>
+
+**** 本内容被作者隐藏 ****</blockquote>
+以下内容需要积分高于 10000 才可浏览
+
+链接: [https://pan.baidu.com/s/1TuMiMWIUeF4AoumeeAosjA](https://pan.baidu.com/s/1TuMiMWIUeF4AoumeeAosjA) 提取码: i7vh 复制这段内容后打开百度网盘手机App，操作更方便哦 
+
+--来自百度网盘超级会员v4的分享
+
+HIMEHINA LIVE 2021「希織歌と時鐘」 - 20211109(火) 1900開始 - ニコニコ生放送
+
+nico的档
+

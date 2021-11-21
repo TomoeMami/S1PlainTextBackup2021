@@ -14309,3 +14309,48 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 但论数量上arcade能取得的能暴打后面两个，vip还是什么的一局arcade三关全过能拿到60分
 
+
+
+*****
+
+####  qzy741147  
+##### 1302#       发表于 2021-11-21 20:45
+
+这周的大众甲壳虫拿50万技术点怎么刷快一点，昨天拼了老命刷了499000多分，然后今天准备把剩下几百分打完，结果一上线就直接bug了，所有奖励车都显示抽奖。再重开一次，直接把分数给我清零了。心态直接爆炸了。
+
+*****
+
+####  fantastical  
+##### 1303#       发表于 2021-11-21 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641002&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 20:45</a>
+
+这周的大众甲壳虫拿50万技术点怎么刷快一点，昨天拼了老命刷了499000多分，然后今天准备把剩下几百分打完， ...</blockquote>
+双倍技术分歌曲的时候在中央仙人掌空旷地区甩甩尾有个5万 x 10倍不就结束了，三分钟最多了
+
+*****
+
+####  difa  
+##### 1304#       发表于 2021-11-21 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641002&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 20:45</a>
+
+这周的大众甲壳虫拿50万技术点怎么刷快一点，昨天拼了老命刷了499000多分，然后今天准备把剩下几百分打完， ...</blockquote>
+蓝图
+
+*****
+
+####  makece  
+##### 1305#       发表于 2021-11-21 20:52
+
+老当益壮的经典赛车是什么车 
+
+*****
+
+####  Totokei  
+##### 1306#       发表于 2021-11-21 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641081&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-21 20:52</a>
+老当益壮的经典赛车是什么车</blockquote>
+车辆列表里按Y，然后选择经典赛车的组别
+

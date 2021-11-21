@@ -79,3 +79,12 @@
 
 绫总一个若頭现在也能收自己的舎弟了啊
 
+
+
+*****
+
+####  cctvyt1  
+##### 13509#       发表于 2021-11-21 20:48
+
+紫宝3天宝可梦的时数和绫总半年差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
