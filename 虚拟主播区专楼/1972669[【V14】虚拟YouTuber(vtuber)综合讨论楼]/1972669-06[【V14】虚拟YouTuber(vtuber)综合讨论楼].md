@@ -13613,3 +13613,28 @@ vr不都炸了好几回了嘛，经典21号<img src="https://static.saraba1st.co
 
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  free  
+##### 8529#       发表于 2021-11-21 19:01
+
+[https://bbs.nga.cn/read.php?tid=29532042](https://bbs.nga.cn/read.php?tid=29532042)
+
+新一期京晚，这次的人选怎么全是国V和彩虹了......彩虹连en和kr组都全上了
+
+*****
+
+####  hulaoda007  
+##### 8530#       发表于 2021-11-21 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">Eli可爱。
+
+*****
+
+####  格林卡罗尔  
+##### 8531#       发表于 2021-11-21 19:07
+
+我还想看谢拉锤子装不认识，居然没来
+

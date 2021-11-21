@@ -4597,3 +4597,14 @@ FGO運営
 他们是先预设这是个从者，然后没实装再狂喷，但我一开始就觉得是个npc，两套立绘这么多差分这不还挺良心 ...</blockquote>
 一个臆想的奥运活动都能扯好几年就说明了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 84406#       发表于 2021-11-21 19:18
+
+景虎和卑弥呼好像找着找着找到了拉萊耶，还把克总的触手剁下来吃了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这件事在隔壁不就是伯爵杀生院那次的经典复刻吗，真不愧是FGO版，连复刻都原汁原味<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -14296,3 +14296,16 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 不打arcade的话怎么刷马拉松点数？刷技术点点车么
 
+
+
+*****
+
+####  Totokei  
+##### 1301#       发表于 2021-11-21 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638004&amp;ptid=2033303" target="_blank">lotusaelise 发表于 2021-11-21 17:17</a>
+不打arcade的话怎么刷马拉松点数？刷技术点点车么</blockquote>
+目前就arcade，技能点树和嘉年华每日任务能取得fp点
+
+但论数量上arcade能取得的能暴打后面两个，vip还是什么的一局arcade三关全过能拿到60分
+

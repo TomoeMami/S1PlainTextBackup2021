@@ -20212,3 +20212,22 @@ Alt3那一屋子杜霞的姐妹，身高发型各不相同，而且没有一个�
 提醒一下TV版和BD版的区别……</blockquote>
 这区别也太大了……
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 1417#       发表于 2021-11-21 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636411&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-11-21 15:17</a>
+
+手绘和3D的区别么！这都算重置了吧hhh</blockquote>
+因为一开始没做好3d
+
+*****
+
+####  Dag8  
+##### 1418#       发表于 2021-11-21 19:10
+
+这番真的有路人看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

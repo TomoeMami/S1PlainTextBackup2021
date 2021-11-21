@@ -11509,3 +11509,14 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  isa2456  
+##### 2351#       发表于 2021-11-21 19:04
+
+ 本帖最后由 isa2456 于 2021-11-21 19:05 编辑 
+
+规定什么的萝拉当女王之后废除不就好了，或者干脆别回去了，对四大洋有恩总不能把鱼给生擒回去吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还有不老不死的拖延下去究竟是为了什么. 感觉可以直接一波放到最后又憋回日常了，最终大招应该就是大地和海洋一起用吧
+
