@@ -88,3 +88,12 @@
 
 紫宝3天宝可梦的时数和绫总半年差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13510#       发表于 2021-11-21 21:25
+
+紫宝今年也遭遇了挺多，能走到现在这样看到还是挺让人开心的
+

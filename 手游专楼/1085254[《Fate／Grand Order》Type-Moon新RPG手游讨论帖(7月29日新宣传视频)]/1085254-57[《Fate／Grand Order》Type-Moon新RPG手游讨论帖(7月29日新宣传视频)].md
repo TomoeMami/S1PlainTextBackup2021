@@ -4657,3 +4657,14 @@ FGO運営
 
 恨不得什么新卡都不出，现状已经够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84412#       发表于 2021-11-21 21:25
+
+ 本帖最后由 zakki 于 2021-11-21 21:32 编辑 
+
+话说上个月还在nga看到一个帖子的高赞说明明今年除了奥伯龙外另一个男五星是1月村正，但丝毫没有感觉到这么久没出男从者，是因为奥伯龙一个顶十个吗。然后现在就开始说男从者少，是你们的奥宝不香了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
