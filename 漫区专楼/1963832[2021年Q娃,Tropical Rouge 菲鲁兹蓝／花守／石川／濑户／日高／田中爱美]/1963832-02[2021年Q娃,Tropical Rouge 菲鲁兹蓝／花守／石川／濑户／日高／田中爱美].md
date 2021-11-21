@@ -11498,3 +11498,14 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 等会儿，这集有十年之约嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最强惠酱  
+##### 2350#       发表于 2021-11-21 18:26
+
+这敌对关系和星q类似啊，只不过星际间的距离换成了记忆，萝 莉拉去陆地那段真好看啊，我觉得最后还是会被删除记忆，不然夏夏那句话就白讲了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

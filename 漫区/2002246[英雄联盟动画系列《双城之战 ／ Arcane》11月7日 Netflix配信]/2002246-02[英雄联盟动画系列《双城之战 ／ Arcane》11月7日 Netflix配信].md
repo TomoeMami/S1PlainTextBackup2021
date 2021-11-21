@@ -8765,3 +8765,38 @@ ez是皮城的吧
 真打起来有危险，佐伊肯定来帮忙，但是有一个问题</blockquote>
 ez本来设定就是自从捡了护手之后走哪儿哪儿塌，这俩来不来都没法善了
 
+
+
+*****
+
+####  儒雅随和李田所  
+##### 2358#       发表于 2021-11-21 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638659&amp;ptid=2002246" target="_blank">毛利提督 发表于 2021-11-21 17:59</a>
+ez本来设定就是自从捡了护手之后走哪儿哪儿塌，这俩来不来都没法善了</blockquote>
+有佐伊就可以来个剑魔<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  whyy  
+##### 2359#       发表于 2021-11-21 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638659&amp;ptid=2002246" target="_blank">毛利提督 发表于 2021-11-21 17:59:53</a>
+ez本来设定就是自从捡了护手之后走哪儿哪儿塌，这俩来不来都没法善了</blockquote>反过来想，如果真埋着飞升者，很可能就是ez回来之后塌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+如果小黄毛再带回来一个同样美强惨的虚空小妹就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  AlfredXC  
+##### 2360#       发表于 2021-11-21 18:10
+
+周末两天补完了，质量是真的顶，不谈动画制作层面，即便是剧本也在水平之上，下一季真的得等好久了
+
+蔚的全称竟然是violet，真是没法联系到一起<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外每集的演员表都是杰斯在第一位，蔚、金克斯反而在后面，不知道是根据啥来排的
+
