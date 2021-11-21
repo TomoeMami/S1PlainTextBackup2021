@@ -9561,3 +9561,27 @@ mmr眼中最恶臭的S1管人楼要发散也得讲个有理有据  前20页除
 
 欸，今天有直播房间吗？没有我就自己买票了
 
+
+
+*****
+
+####  普之舜舜  
+##### 882#       发表于 2021-11-21 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634715&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-21 13:18</a>
+看来之前冈山飞北海道就是拍playboy去了吧
+
+欸，今天有直播房间吗？没有我就自己买票了
+
+ ...</blockquote>
+直播间是肯定没有的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">连播声音都能被禁掉，我等下看看发下腾讯会议吧。会议是老家
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  中野四葉  
+##### 883#       发表于 2021-11-21 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">才知道鲤鱼1st的场子租14个小时要330w日元，比一巡两天东京场的租金加起来都贵
+

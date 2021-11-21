@@ -14259,3 +14259,23 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 唯一一次完成的街机是漂移，看着房间里十几个大哥一起拉烟，非常感动<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nemunoki  
+##### 1297#       发表于 2021-11-21 13:59
+
+碰到一把比较有意思的，在歌利亚起点南北同时刷出2个红圈，北面是漂移南面是空中，在场的9个人很默契地选择了漂移然后8分钟齐刷刷就清场了
+
+*****
+
+####  Totokei  
+##### 1298#       发表于 2021-11-21 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">arcade人少真的没法玩，下午跑了两局漂移，第一局只有我和另一位大哥，拼了老命跑只过得去第一关
+
+然后另一局有六七个人，六分钟就把三关搞定了
+
+我看操场什么时候针对人数调数据<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
