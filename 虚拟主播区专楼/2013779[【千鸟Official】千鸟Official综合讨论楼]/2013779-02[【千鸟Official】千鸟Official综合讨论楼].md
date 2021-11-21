@@ -12628,3 +12628,41 @@ co宝的各种爱好你想象不到的<img src="https://static.saraba1st.com/ima
 
 我宣布伤害静静的人我一个都不放过<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 2867#       发表于 2021-11-21 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639958&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-21 19:29</a>
+
+下一个版本是内战版本</blockquote>
+内战?什么秦王扫六合。。
+
+*****
+
+####  rgauss  
+##### 2868#       发表于 2021-11-21 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642839&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-21 23:05</a>
+
+内战?什么秦王扫六合。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">静力惹之间的内战啊
+
+*****
+
+####  T型钉宫病毒  
+##### 2869#       发表于 2021-11-21 23:12
+
+白白快被每天都发隔音不好的弹幕气死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 2870#       发表于 2021-11-21 23:15
+
+BV1dq4y1u7br
+
+千鸟团歌试听。好坏自己心中有杆秤。
+

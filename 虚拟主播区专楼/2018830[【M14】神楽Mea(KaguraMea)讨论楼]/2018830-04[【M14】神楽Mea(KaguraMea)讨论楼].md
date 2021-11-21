@@ -7589,3 +7589,26 @@ debu
 
 说实话其实这三段好友申请可以做个剪辑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 5377#       发表于 2021-11-21 23:19
+
+赢！
+
+*****
+
+####  时间在我手中  
+##### 5378#       发表于 2021-11-21 23:19
+
+恭喜肥坦喜提本周直播首胜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 5379#       发表于 2021-11-21 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于赢了一把
+

@@ -4690,3 +4690,38 @@ FGO運営
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  khxooo  
+##### 84415#       发表于 2021-11-21 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642679&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-11-21 22:51</a>
+
+现在的新主线一般需要练哪些从者啊，手里有拐：孔明梅林 打手：杀狐 摩根 奥博龙 白枪呆
+
+还有没有练的剑魔 ...</blockquote>
+怎么可能不好用，梅林回血无敌，就算是后期的主线也能提高容错率，不好用是因为不能3T爆破。优先梅林或者奥伯龙吧。魔总和妖兰第二吧。
+
+*****
+
+####  都谷捻柏  
+##### 84416#       发表于 2021-11-21 23:10
+
+一群废物，只会在推特上发牢骚，要炎上就整大点啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  J-002  
+##### 84417#       发表于 2021-11-21 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53635937&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-11-21 14:41</a>
+
+无聊下回游戏看了下，发现邮箱里多出了几百个五星狗粮？？为啥？？
+
+一下子喂了好多1级的角色，现在就特别缺 ...</blockquote>
+上个月提高过关待遇，主线剧情关卡过关奖励增加了四五星狗粮，已经打完的玩家就一次性发到邮箱里
+
