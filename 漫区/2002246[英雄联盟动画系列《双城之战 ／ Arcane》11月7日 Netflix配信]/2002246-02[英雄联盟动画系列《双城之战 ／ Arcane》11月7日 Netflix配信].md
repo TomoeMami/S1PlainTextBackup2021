@@ -8571,3 +8571,46 @@ scout在S11没选过维克托吧？</blockquote>
 
 昨天晚上玩手游，用v和金克斯两把血马c没有赢，最后把选了杰斯摆烂，居然赢了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Burabura  
+##### 2340#       发表于 2021-11-21 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637005&amp;ptid=2002246" target="_blank">悲叹的夜想曲 发表于 2021-11-21 16:10</a>
+明年没有第二季，感觉全身有蚂蚁在爬</blockquote>
+拳头ceo说了2022没有
+
+
+
+*****
+
+####  伊斯坎达尔王  
+##### 2341#       发表于 2021-11-21 16:32
+
+我觉得谁死了这个问题没什么好讨论的
+
+杰斯也在这里呢，而我们当然知道他一定不会死，得出结论“议会有人能在爆炸中活下来”，他们自有办法
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2342#       发表于 2021-11-21 16:36
+
+<blockquote>Burabura 发表于 2021-11-21 16:28
+拳头ceo说了2022没有</blockquote>
+2022年没有不代表2021年没有
+
+*****
+
+####  筱原重工  
+##### 2343#       发表于 2021-11-21 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637174&amp;ptid=2002246" target="_blank">星名早苗 发表于 2021-11-21 16:23</a>
+
+一直没看懂小蛋糕雨里为什么问what about us
+
+你们的关系有到这？</blockquote>
+这俩人过命的交情啊，凯特琳把蔚从监狱里捞出来，在黑巷救了蔚；蔚在桥上救了凯特琳，在床上跟凯特琳诉衷肠。单就说这话的小蛋糕来看，蔚是她的向导，探案路上第一也是唯一的伙伴，底层阴暗面的人生导师，性启蒙者
+

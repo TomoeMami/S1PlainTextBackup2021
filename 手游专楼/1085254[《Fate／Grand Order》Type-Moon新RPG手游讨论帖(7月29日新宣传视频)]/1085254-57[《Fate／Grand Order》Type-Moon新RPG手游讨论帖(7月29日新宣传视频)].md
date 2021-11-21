@@ -4391,3 +4391,30 @@ SKIP（T头西服身男性）
 
 虽然我也不觉得炎上能有多大效果，但老是岁月静好的不免让人担心你游玩家是不是太母猪了点，能小烧一下我倒觉得安心了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 84386#       发表于 2021-11-21 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">啥 摸了几天发生了什么 炎上啥了？
+
+*****
+
+####  里村紅葉  
+##### 84387#       发表于 2021-11-21 16:36
+
+我的建议是这次的新男卫星全部性转然后在街机落地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 84388#       发表于 2021-11-21 16:42
+
+为什么男人出得少也算喷点？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+自从帖吧自宫以后就只能逛隔壁了，开始还算好，就是小学生B孝子有点多，最近集美越来越多，幸好她们也就只能在国内论坛嚎一下，外服游戏的优势这就体现出来了
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
