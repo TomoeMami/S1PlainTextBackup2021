@@ -9519,3 +9519,45 @@ s1黑屁确实没啥<img src="https://static.saraba1st.com/image/smiley/face2017
 所以是咋想地跑咱这来解释呢 想立正挨打去瓜的源头松雾那啊</blockquote>
 我跟松雾那边误会都解除了，之前做的错事他也原谅我了，所以微博都删了
 
+
+
+*****
+
+####  Norkey1  
+##### 878#       发表于 2021-11-21 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634329&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2021-11-21 12:51</a>
+mmr眼中最恶臭的S1管人楼要发散也得讲个有理有据  前20页除了纯粹的恶意还有啥 ...</blockquote>
+啥啊，之前管人专楼发散和纯粹恶意也没差多少吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_2  
+##### 879#       发表于 2021-11-21 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来当初老哥都是纯发散啊，吓得我看了三集才敢进专楼
+
+*****
+
+####  优妮可  
+##### 880#       发表于 2021-11-21 13:15
+
+<img src="https://img.saraba1st.com/forum/202111/21/131533w1ny58bnb971qbw3.jpg" referrerpolicy="no-referrer">
+
+<strong>uUzvQ3lML_bkIqyakc1vFhcD1LjPo8yt_iUb5dR3d8r5m8rSD2r1Nf-NxZJIuHs6WePvSwDPYVdlM38g.jpg</strong> (46.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 13:15 上传
+
+*****
+
+####  lj205  
+##### 881#       发表于 2021-11-21 13:18
+
+ 本帖最后由 lj205 于 2021-11-21 13:19 编辑 
+
+看来之前冈山飞北海道就是拍playboy去了吧
+
+欸，今天有直播房间吗？没有我就自己买票了
+

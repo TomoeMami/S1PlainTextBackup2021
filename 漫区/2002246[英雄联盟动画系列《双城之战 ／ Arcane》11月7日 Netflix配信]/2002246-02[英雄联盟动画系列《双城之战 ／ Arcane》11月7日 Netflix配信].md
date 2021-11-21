@@ -8188,3 +8188,33 @@ scout在S11没选过维克托吧？</blockquote>
 不是，艾克要下杀手了，但金克丝藏了颗雷把艾克炸飞了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他是被jinx表情给骗了，不然早一棍子下去
 
+
+
+*****
+
+####  殿珣  
+##### 2303#       发表于 2021-11-21 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634487&amp;ptid=2002246" target="_blank">chillstar 发表于 2021-11-21 13:04</a>
+他是被jinx表情给骗了，不然早一棍子下去</blockquote>
+金克斯是崽种神经病，爆爆是无辜的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战场公主希维尔  
+##### 2304#       发表于 2021-11-21 13:10
+
+往大了说，金克斯就是皮城对祖安剥削历史所诞生的恶。现在上城的人上人想用上等人的方式（投票表决）赐予底城物资、和平以及自由。
+
+结果被金克斯一炮糊脸，也算是对杰斯高高在上态度的讽刺。
+
+*****
+
+####  厄神之息  
+##### 2305#       发表于 2021-11-21 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634420&amp;ptid=2002246" target="_blank">chillstar 发表于 2021-11-21 12:59</a>
+
+金克斯能打是因为别人打她不下杀手吧，桥上要是艾克打出三环剧情都结束了 ...</blockquote>
+完不了，祖安的未来给希尔科换金克斯他都不换，要是真让艾克一棍子干死了，你觉得希尔科能善罢甘休？不得把祖安掀个底朝天也要找出野火帮？而且金克斯没了，后面杰斯的条件希尔科也拿不出来了。
+

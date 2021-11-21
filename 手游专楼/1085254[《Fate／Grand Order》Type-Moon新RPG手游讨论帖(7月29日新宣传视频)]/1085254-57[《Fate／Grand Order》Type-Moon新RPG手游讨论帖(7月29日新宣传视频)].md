@@ -4330,3 +4330,14 @@ SKIP（T头西服身男性）
 只能说某些玩家发声量太大 ...</blockquote>
 当初就有很多人嫌弃废狗媚宅不给男角色待遇去转投雪之下的，然而几年过去了，男性那数量待遇还不如废狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  virusking  
+##### 84381#       发表于 2021-11-21 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53633771&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-11-21 12:06</a>
+手游哭着喊着要男角色这种风气好久前就有了，尼姑庵19年白情复刻旧剑不出新角色的时候就一堆节奏，我当时还 ...</blockquote>
+手游板集美浓度很高（舰B这种除外），你发个我虽然是男的但是喜欢男的能有一堆人支持，与此同时原神板和明日方舟板早就开始对我女但女这种工贼行径展开了批斗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。或者反过来，你在猴板和马桶看到的拳师，基本都有上面两个板的成分
+

@@ -3473,3 +3473,27 @@ ova不是已经有过男声优了
 
 国服有热心大佬做了分支目押的说明。有说明有对比，关键是有慢镜和动作特征说明，对练习目押的熟练度非常有帮助，可以减少大量摸索的时间，非常推荐。就算是日服玩家也可以去支持学习下的，毕竟这么多女演员也不是个个都有爱和有时间去摸索目押点、练肌肉记忆。
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6253#       发表于 2021-11-21 13:06
+
+boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？
+
+*****
+
+####  hypnossz86  
+##### 6254#       发表于 2021-11-21 13:15
+
+ 本帖最后由 hypnossz86 于 2021-11-21 13:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634527&amp;ptid=1570791" target="_blank">心灵的乳头 发表于 2021-11-21 13:06</a>
+
+boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是有切换目标的按键么....那个&lt;·&gt;的按键
+
+如果没在屏幕内需要在设置里面打开手动模式
+
+然后按屏幕左右的那个转向，就能锁屏幕外的目标了
+
