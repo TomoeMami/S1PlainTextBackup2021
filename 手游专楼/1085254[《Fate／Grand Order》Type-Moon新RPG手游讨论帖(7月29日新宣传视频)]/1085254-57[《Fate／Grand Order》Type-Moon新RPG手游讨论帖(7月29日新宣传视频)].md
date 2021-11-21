@@ -4439,3 +4439,31 @@ SKIP（T头西服身男性）
 也就国内论坛重拳出击了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但凡看看推特也说不出这种话
 
+
+
+*****
+
+####  zore  
+##### 84391#       发表于 2021-11-21 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637743&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-11-21 16:59</a>
+
+但凡看看推特也说不出这种话</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是我偏见了,但dw从来就不吃炎上这一套吧,要吃的话某些难看立绘早改了
+
+不说男女卡,就新卡而言也变少了.一二三星都懒得出,本质dwfw
+
+*****
+
+####  zore  
+##### 84392#       发表于 2021-11-21 17:14
+
+翻页
+
+*****
+
+####  zore  
+##### 84393#       发表于 2021-11-21 17:15
+
+翻页
+

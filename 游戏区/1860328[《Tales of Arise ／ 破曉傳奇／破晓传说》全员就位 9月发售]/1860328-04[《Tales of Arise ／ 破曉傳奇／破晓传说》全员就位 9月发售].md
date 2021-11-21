@@ -19764,3 +19764,26 @@ kos-mos.jpg
 红毛能拿第一有点出乎意料之外.....其他倒是还在预料之中</blockquote>
 在我的意料之中，因为杜欧哈林人气确实太爆炸了
 
+
+
+*****
+
+####  bgmilk  
+##### 5954#       发表于 2021-11-21 17:12
+
+   意料之中，传说榜本质女粉榜，破晓最吸女粉的男人不就是黑皮么
+
+*****
+
+####  森兰丸  
+##### 5955#       发表于 2021-11-21 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636485&amp;ptid=1860328" target="_blank">法拉 发表于 2021-11-21 15:24</a>
+
+在我的意料之中，因为杜欧哈林人气确实太爆炸了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真没多少感觉.....也可能是到了我这个年龄已经不怎么关心同人圈了
+
+反正这作在我看来就是打完就结束了.....没有任何值得回味的地方.....后劲和之前的几作根本没法比
+
+还有编剧对这作的剧情怎么样心里是真的没点逼数吗.....竟然还要出舞台剧.....谁给的信心
+

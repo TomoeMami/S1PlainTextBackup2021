@@ -14279,3 +14279,20 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 我看操场什么时候针对人数调数据<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1299#       发表于 2021-11-21 17:08
+
+[https://discord.gg/forza](https://discord.gg/forza)
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">来废渣官方群吧，凑了9个老外，5分钟一场街机，马拉松点数刷爽了
+
+*****
+
+####  lotusaelise  
+##### 1300#       发表于 2021-11-21 17:17
+
+不打arcade的话怎么刷马拉松点数？刷技术点点车么
+

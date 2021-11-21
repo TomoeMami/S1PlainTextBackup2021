@@ -8614,3 +8614,42 @@ scout在S11没选过维克托吧？</blockquote>
 你们的关系有到这？</blockquote>
 这俩人过命的交情啊，凯特琳把蔚从监狱里捞出来，在黑巷救了蔚；蔚在桥上救了凯特琳，在床上跟凯特琳诉衷肠。单就说这话的小蛋糕来看，蔚是她的向导，探案路上第一也是唯一的伙伴，底层阴暗面的人生导师，性启蒙者
 
+
+
+*****
+
+####  MiTu75  
+##### 2344#       发表于 2021-11-21 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53629218&amp;ptid=2002246" target="_blank">八汰乌 发表于 2021-11-21 00:01</a>
+
+LOL世界观的魔法师是什么设定，第二集法庭提到魔法师都好战，后面能看到魔法大战科技吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大发明记忆力里的灾难场景和流浪法师瑞兹的回忆的场景可以对的上，而且控制海克斯核心的是符文，所以我认为他们说的是符文之战。魔法大战科技会不会出现我不知道，但有可能流浪法师会出现。
+
+*****
+
+####  阿刚  
+##### 2345#       发表于 2021-11-21 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637476&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-21 16:41</a>
+
+这俩人过命的交情啊，凯特琳把蔚从监狱里捞出来，在黑巷救了蔚；蔚在桥上救了凯特琳，在床上跟凯特琳诉衷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后一个过了啊，不一定睡了呢！
+
+*****
+
+####  飞升之后  
+##### 2346#       发表于 2021-11-21 17:10
+
+谁质疑蔚和小蛋糕，谁就是坏人
+
+*****
+
+####  狼影者瑞德克斯  
+##### 2347#       发表于 2021-11-21 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637859&amp;ptid=2002246" target="_blank">阿刚 发表于 2021-11-21 17:09</a>
+
+最后一个过了啊，不一定睡了呢！</blockquote>
+按照法国人的尿性，都在床上摆成69了，接下来不干点啥都对不起他们自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
