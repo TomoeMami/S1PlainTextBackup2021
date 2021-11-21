@@ -9190,3 +9190,88 @@ vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是�
 
 不行，感觉金克丝直到最后都有爆爆的灵魂在体内，轰出炸弹的时候没有那种纯粹的恶，内心还是在挣扎，这个感觉和游戏里还差不少，并不是完美的。
 
+
+
+*****
+
+####  309465205  
+##### 2397#       发表于 2021-11-22 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53632362&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-21 10:17</a>
+
+说起来，老妈踹门端枪瞄准一气呵成，凯特琳应该够是身体随妈比较多，头发倒是爸爸的颜色 ，感情细腻也是随 ...</blockquote>
+头发像爹,瞳色像妈,小蛋糕哈利波特说
+
+*****
+
+####  飞升之后  
+##### 2398#       发表于 2021-11-22 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643796&amp;ptid=2002246" target="_blank">殿珣 发表于 2021-11-22 00:35</a>
+
+孤勇者这首歌是英雄联盟中文主题曲？没看国语版，是开头替换掉enemy？
+
+这首歌是唱的金克斯？？为啥mv里都是 ...</blockquote>
+中文主题曲，貌似没加入正片把，宣传成分大。MV里蔚的戏份也很多把，尤其是第三集那段拿上老爹圈套救人的打斗
+
+*****
+
+####  sjbssd  
+##### 2399#       发表于 2021-11-22 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634018&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-21 12:27</a>
+
+又简略看了一遍英配，希尔科虽然是个畜生，但是还是唏嘘啊，最后活成了兄弟的样子，而且跟范德尔一样，死的 ...</blockquote>
+金克丝有奈奈的！你仔细舔啊！像布丁一样的一点点
+
+*****
+
+####  飞升之后  
+##### 2400#       发表于 2021-11-22 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643997&amp;ptid=2002246" target="_blank">sjbssd 发表于 2021-11-22 00:53</a>
+
+金克丝有奈奈的！你仔细舔啊！像布丁一样的一点点</blockquote>
+不可以色色
+
+00891AKFgy1gwlvyp0zfwj30hg0gjdh1.jpg
+(22.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 00:55 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/005515qqdkbwfqqytqqv5p.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  sjbssd  
+##### 2401#       发表于 2021-11-22 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53644015&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-22 00:55</a>
+
+不可以色色</blockquote>
+我       不        要       看       男       人       的       裸       背
+
+*****
+
+####  飞升之后  
+##### 2402#       发表于 2021-11-22 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53644037&amp;ptid=2002246" target="_blank">sjbssd 发表于 2021-11-22 00:58</a>
+
+我       不        要       看       男       人       的       裸       背</blockquote>
+这是我觉得这部剧最色的地方，虽然我也无感
+
+*****
+
+####  sjbssd  
+##### 2403#       发表于 2021-11-22 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53644064&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-22 01:00</a>
+
+这是我觉得这部剧最色的地方，虽然我也无感</blockquote>
+我是金克丝被注射那段，太刺激了我草！
+

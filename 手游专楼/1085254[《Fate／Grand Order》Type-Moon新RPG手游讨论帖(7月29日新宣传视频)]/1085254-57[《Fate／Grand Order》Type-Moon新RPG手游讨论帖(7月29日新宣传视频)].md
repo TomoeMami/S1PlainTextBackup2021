@@ -4734,3 +4734,17 @@ FGO運営
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dw会看推特的话早就实装天井了，之前樱O大战死前，内部员工爆料不就说dw的企业文化就是报喜不报忧，外面再怎么炎上，内部也不会讨论这些问题，因为他们认为这会影响员工的积极性，你讨论甚至会被领导穿小鞋。
 
+
+
+*****
+
+####  alucardcz  
+##### 84419#       发表于 2021-11-22 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642679&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-11-21 22:51</a>
+
+现在的新主线一般需要练哪些从者啊，手里有拐：孔明梅林 打手：杀狐 摩根 奥博龙 白枪呆
+
+还有没有练的剑魔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀狐  奥博龙 是新时代的拐 必须拉满  
+
