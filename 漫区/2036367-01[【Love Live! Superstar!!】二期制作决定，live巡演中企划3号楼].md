@@ -9692,3 +9692,33 @@ https://meeting.tencent.com/dm/1xbsKiqZO4sw
 
 鲤鱼这算ssr 还是ur 卡？………………
 
+
+
+*****
+
+####  cat1230  
+##### 892#       发表于 2021-11-21 15:45
+
+<blockquote>引用第879楼优妮可于2021-11-21 13:15发表的  :</blockquote>
+@优妮可
+
+确实很保守的衣服，不过这张拍的真好看，着瞬间抓的准。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  优妮可  
+##### 893#       发表于 2021-11-21 15:49
+
+<blockquote>lj205 发表于 2021-11-21 15:39
+鲤鱼这算ssr 还是ur 卡？………………</blockquote>
+大阪day1限定卡
+
+*****
+
+####  kata魂  
+##### 894#       发表于 2021-11-21 16:02
+
+为什么day1有day2没有了…搞不懂安排…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

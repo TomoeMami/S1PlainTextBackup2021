@@ -4374,3 +4374,20 @@ SKIP（T头西服身男性）
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+
+*****
+
+####  katun  
+##### 84385#       发表于 2021-11-21 16:04
+
+虽然我对这次的男人没啥兴趣，但炎上一下运营有什么不好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一年下来只出三个男人，为了多出女性只能切鸡缝合偏门三件套齐上，有名有姓的英雄上不了座，奇美拉越出越欢
+
+长草复刻混了快半年，憋出来的剧情摆烂，产能不足了几年也从不扩招，水平翻转转圈玩上瘾
+
+几年了没像样的氪金福利，反倒搞出了要求强氪6宝的从者硬币这种玩意
+
+虽然我也不觉得炎上能有多大效果，但老是岁月静好的不免让人担心你游玩家是不是太母猪了点，能小烧一下我倒觉得安心了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
