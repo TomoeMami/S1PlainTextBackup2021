@@ -12481,3 +12481,46 @@ ndwd k48！
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  tn_teana  
+##### 2853#       发表于 2021-11-21 18:55
+
+心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！心疼静静！
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T型钉宫病毒  
+##### 2854#       发表于 2021-11-21 18:56
+
+ 本帖最后由 T型钉宫病毒 于 2021-11-21 19:02 编辑 
+
+今年京华哥哥的京晚，千鸟有三位参演
+
+文静、艾瑞思、艾白
+
+11月28日 20:00
+
+Overidea 直播间:[[https://live.bilibili.com/704808](https://live.bilibili.com/704808)]
+
+<img src="https://img.saraba1st.com/forum/202111/21/185454ji9retrhh63qttzl.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211121185422.png</strong> (193.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-21 18:54 上传
+
+[https://bbs.nga.cn/read.php?tid=29528022](https://bbs.nga.cn/read.php?tid=29528022)
+
+*****
+
+####  IDIDIDID  
+##### 2855#       发表于 2021-11-21 18:59
+
+喷了，新老两代流量给千鸟嗯灌是吧，文京太真了我哭死😭
+

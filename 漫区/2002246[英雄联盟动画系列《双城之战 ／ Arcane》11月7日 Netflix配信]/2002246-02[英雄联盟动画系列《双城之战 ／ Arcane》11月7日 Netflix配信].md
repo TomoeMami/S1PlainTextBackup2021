@@ -8800,3 +8800,43 @@ ez本来设定就是自从捡了护手之后走哪儿哪儿塌，这俩来不来
 
 另外每集的演员表都是杰斯在第一位，蔚、金克斯反而在后面，不知道是根据啥来排的
 
+
+
+*****
+
+####  ネロ  
+##### 2361#       发表于 2021-11-21 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53637174&amp;ptid=2002246" target="_blank">星名早苗 发表于 2021-11-21 16:23</a>
+
+一直没看懂小蛋糕雨里为什么问what about us
+
+你们的关系有到这？</blockquote>
+这两在床上那气氛
+
+蔚基本已经将内心裸露在小蛋糕面前了，而小蛋糕也温柔地接纳了，轻轻安抚了她袒露的所有不安和自责（蔚全篇除了小蛋糕也就对养父范德尔这样过）
+
+以制作组是法国人来说，说这两当时做了也不奇怪
+
+*****
+
+####  摸鱼先锋  
+##### 2362#       发表于 2021-11-21 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638626&amp;ptid=2002246" target="_blank">whyy 发表于 2021-11-21 17:57</a>
+
+那也能叫骗啊，就一瞬间的事
+
+金克丝当时估计就是不想活了，在她的视角里，姐姐彻底抛弃了自己（从结局希尔 ...</blockquote>
+女主滤镜了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金克丝完全变疯批除了最后一幕，感觉大桥上蔚接受不了金克丝人设直接带着女警跑路占很大原因
+
+*****
+
+####  whyy  
+##### 2363#       发表于 2021-11-21 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639449&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-21 18:51:59</a>
+女主滤镜了属于是金克丝完全变疯批除了最后一幕，感觉大桥上蔚接受不了金克丝人设直接带着女警跑路占很大 ...</blockquote>那她这不就是纯摆烂找死了吗，那种时候还会耍心机的人，怎么会要同归于尽啊，继续装可怜话疗劝退找机会开溜才合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

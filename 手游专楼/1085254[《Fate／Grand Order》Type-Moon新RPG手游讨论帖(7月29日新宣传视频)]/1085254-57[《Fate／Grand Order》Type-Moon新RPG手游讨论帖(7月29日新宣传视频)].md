@@ -4540,3 +4540,60 @@ FGO運営
 25,660件のツイート</blockquote>
 上午nga吵的时候我去看还没有1w，话说连个摩根复刻几小时内都有10w推文的讨论度，这点儿能算个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  真红眼教授  
+##### 84401#       发表于 2021-11-21 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639314&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-21 18:42</a>
+
+搞不懂隔壁的脑回路，一个npc有多种立绘差分难道不是良心吗，有什么好喷的 ...</blockquote>
+自己臆想的从者没落地，哪怕和活动八竿子打不着=DW的锅
+
+看到NPC立绘很帅，但没落地=DW的锅
+
+你看2.6的矮人铁匠和哥布林三人组就没人喊着要落地，为啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84402#       发表于 2021-11-21 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639327&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-21 18:43</a>
+
+上午nga吵的时候我去看还没有1w，话说连个摩根复刻几小时内都有10w推文的讨论度，这点儿能算个啥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那LGA更算不上啥了，你们还不是成天当宝一样往这里搬
+
+*****
+
+####  白金口袋  
+##### 84403#       发表于 2021-11-21 18:51
+
+脑残梦女的逻辑不需要去理解
+
+不过这次剧情真心算有意思的，至少比去年同样是gudaguda的邪马台国有趣，也可能因为我不是新选组粉，看去年他们几个内讧也不知道是在那纠结个啥，反正今年我是少见的没skip认真看下来的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84404#       发表于 2021-11-21 18:56
+
+ 本帖最后由 zakki 于 2021-11-21 18:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639371&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-11-21 18:46</a>
+自己臆想的从者没落地，哪怕和活动八竿子打不着=DW的锅
+
+看到NPC立绘很帅，但没落地=DW的锅</blockquote>
+他们是先预设这是个从者，然后没实装再狂喷，但我一开始就觉得是个npc，两套立绘这么多差分这不还挺良心的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 84405#       发表于 2021-11-21 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53639516&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-21 18:56</a>
+
+他们是先预设这是个从者，然后没实装再狂喷，但我一开始就觉得是个npc，两套立绘这么多差分这不还挺良心 ...</blockquote>
+一个臆想的奥运活动都能扯好几年就说明了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

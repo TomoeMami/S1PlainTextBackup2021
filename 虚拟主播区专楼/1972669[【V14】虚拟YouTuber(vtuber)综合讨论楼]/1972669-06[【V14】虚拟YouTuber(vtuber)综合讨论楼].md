@@ -13598,3 +13598,18 @@ vr不都炸了好几回了嘛，经典21号<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主催只有社长没进4强，今天解说台社长配两职业哥了
 
+
+
+*****
+
+####  秋月孝三  
+##### 8528#       发表于 2021-11-21 18:41
+
+ 本帖最后由 秋月孝三 于 2021-11-21 18:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开了台就听到疑似ばるニキ的声音，还以为自己睡昏头了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿king用生命换掉了🐼人的ボムラ
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
