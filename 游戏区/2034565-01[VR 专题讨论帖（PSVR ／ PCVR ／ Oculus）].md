@@ -2513,3 +2513,16 @@ Meta Quest
 
 <img src="https://img.saraba1st.com/forum/202111/22/213442lt91a27mqmmhzdma.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dumplingpro  
+##### 159#       发表于 2021-11-22 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656150&amp;ptid=2034565" target="_blank">egged5 发表于 2021-11-22 21:34</a>
+刚刚买了quest2，去官网看了一下Oculus Link的支持的列表，这里Not Currently Supported的是指完全用不了的 ...</blockquote>
+别管它，先不说这支持什么意思，最后串流用的也是第三方的vd，只要电脑能跑就能串。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

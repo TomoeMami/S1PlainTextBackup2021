@@ -13187,3 +13187,12 @@ nga静楼p用没有，全是偷贴吧和s1的二手
 为啥这里也挺纯良平静，跟b综仿佛不是一个论坛</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为鸟综就没几个人
 
+
+
+*****
+
+####  huyuanhao120  
+##### 2916#       发表于 2021-11-22 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">不是纯良谁来鸟宗。
+
