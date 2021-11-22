@@ -10699,3 +10699,23 @@ LL说来应该是万代家的企划 结果万代自己的手办部门就做过�
 第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
 动画这东西本来就是一种娱乐，你能找到让你开心的点（所以能看下去）就行了，其他人的意见不用过于纠结，更何况有些人也就是借机会表达对动画的不满而已，你怎么想的人家才不在乎。
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 981#       发表于 2021-11-22 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650164&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:44</a>
+7-8确实剧情非常迷惑，毫无道理，花了这么大篇幅强行凑一个加入的理由，还不如希直接算一卦有说服力
+
+但是 ...</blockquote>
+说是这么说但是7-8还是很迷，恋的人物塑造可以说一团糟，不过老哥你看得开挺好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 982#       发表于 2021-11-22 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挺好的，赶紧看完动画来看中之人吧
+

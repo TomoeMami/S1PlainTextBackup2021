@@ -20265,3 +20265,20 @@ steam版阉割的“alt纯夏的真相”，原版可是不亚于名场面的存
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  freyja_wion  
+##### 1422#       发表于 2021-11-22 16:36
+
+第8話“帝都動乱”あらすじ
+
+　2001年12月5日。帝都でクーデターが発生。千鶴の父・榊是親首相を初め閣僚数名が沙霧尚哉大尉率いるクーデター部隊によって暗殺された。
+
+　武たち207B分隊にも実戦想定の出撃待機命令が下る。出撃を前に慧は、自分に送られてきていた手紙は沙霧大尉からのものであることを武に告げる。
+
+<img src="https://p.sda1.dev/3/aa12ed0a66b577335f779e2b9cf35bc3/IMG_CMP_37409426.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/5b473714aaaa0b72eeec77cf1c21bf81/upiUu8dxQAW3NF9V6CoICjaCubDkBHBziAmoa7hSV2ehF3Q46mAZD5WS0sTb9OOdEy5q527So3wmMpY4.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

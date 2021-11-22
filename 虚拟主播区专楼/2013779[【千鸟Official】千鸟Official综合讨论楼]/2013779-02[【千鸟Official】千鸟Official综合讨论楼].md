@@ -12936,3 +12936,28 @@ https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0
 
 文静嗯休息了一个月，太行了
 
+
+
+*****
+
+####  小憨1  
+##### 2895#       发表于 2021-11-22 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">艾瑞思是真出问题了吧，我真的不能理解了
+
+*****
+
+####  袜子  
+##### 2896#       发表于 2021-11-22 16:44
+
+又咋了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夜潇箫  
+##### 2897#       发表于 2021-11-22 16:45
+
+艾瑞思又出什么问题了
+
