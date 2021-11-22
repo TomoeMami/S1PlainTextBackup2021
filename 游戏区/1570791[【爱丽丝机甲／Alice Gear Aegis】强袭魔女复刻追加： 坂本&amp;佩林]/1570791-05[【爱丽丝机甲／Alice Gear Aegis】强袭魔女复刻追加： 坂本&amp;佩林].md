@@ -3561,3 +3561,18 @@ boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</bloc
 
 2d立绘是阿金脸，3d建模。。。大概成子坂伙食太好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 6261#       发表于 2021-11-22 18:17
+
+看见联动石头门想弄个初始试试
+
+结果发现tb上都是自选号
+
+没有石头号。。。
+
+尴尬 这样都不一定抽得到啊 就没意义了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

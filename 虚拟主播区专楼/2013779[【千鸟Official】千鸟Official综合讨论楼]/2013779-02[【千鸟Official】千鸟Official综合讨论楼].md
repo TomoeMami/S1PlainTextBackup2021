@@ -13069,3 +13069,26 @@ https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0
 
 查看全部评分
 
+
+
+*****
+
+####  tankai  
+##### 2905#       发表于 2021-11-22 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652869&amp;ptid=2013779" target="_blank">vale_hana 发表于 2021-11-22 17:30</a>
+
+麻烦指个路呗，谢谢</blockquote>
+想看可以稍微关注一下NGA千鸟站队1.0综合贴,那里虽然没什么人聊千鸟了,但都是1.0留下来的老粉.
+
+据说404小姐圣诞节左右复出,估计参加了什么箱.
+
+*****
+
+####  tankai  
+##### 2906#       发表于 2021-11-22 18:16
+
+艾瑞思之前哭诉后就不正常.2.0和国V圈联动也是文静和艾白3D打歌服一前一后去了冰火,我猜测2060是老运营留下最后的波纹.
+
+我YY的如何?
+

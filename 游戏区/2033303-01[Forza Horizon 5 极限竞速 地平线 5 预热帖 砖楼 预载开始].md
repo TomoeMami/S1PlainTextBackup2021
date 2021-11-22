@@ -14718,3 +14718,36 @@ lancia跟alfa有戏吗</blockquote>
 记得提前玩的时候贴吧就有人卡bug，主界面的中文显示的是地平线4</blockquote>
 以后也别光嘲笑EA的年货体育游戏换皮了，这操场几年一作还不是一样
 
+
+
+*****
+
+####  qzy741147  
+##### 1337#       发表于 2021-11-22 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652322&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-22 16:57</a>
+能把FH4的bug原封不动搬过来，就嗯换皮是吧</blockquote>
+他要换皮也就算了，4里有的车5还给删了，真是气人
+
+*****
+
+####  天神十三煞  
+##### 1338#         楼主| 发表于 2021-11-22 18:18
+
+ 本帖最后由 天神十三煞 于 2021-11-22 02:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">换皮过分了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换皮换肉不换骨
+
+至少地图和音乐大量新的不是吗
+
+图拉庙和标题那两首是真的好听
+
+删车是不可能删的，有复用材料不用是狗
+
+最多版权问题扯皮拖拖拉拉，要不就是弄到中后期活动吊胃口整KPI
+
+你们去看赞赏那些项目就知道了，有些还做不了，因为车还没出来，吊着你呐
+
+而且有些车本身在FH4也是后期才发出来，大概率就是弄活动里
+
