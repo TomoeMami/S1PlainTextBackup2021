@@ -5428,3 +5428,21 @@ NMD两单沉了
 是啊，给个一次的前置50宝威该多好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要求不高 给个宝具本就行
 
+
+
+*****
+
+####  khxooo  
+##### 84487#       发表于 2021-11-22 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656560&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 22:13</a>
+我要求不高 给个宝具本就行</blockquote>
+我的意思就是宝具本后每次宝具自带一次50宝威<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84488#       发表于 2021-11-22 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是强化狂娜　３０变５０冲如何
+
