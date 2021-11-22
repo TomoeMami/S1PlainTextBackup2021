@@ -3536,3 +3536,19 @@ boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</bloc
 boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</blockquote>
 实验功能里面有 “结合半自动手动操作
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6258#       发表于 2021-11-22 14:07
+
+还真是助手和打工战士，嘟嘟噜真吉祥物<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 6259#       发表于 2021-11-22 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以，可惜只有25票了
+

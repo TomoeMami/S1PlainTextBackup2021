@@ -4845,3 +4845,58 @@ FGO運営
 新衣服还在8级，上个活动都是赶着DeadLine打完的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84428#       发表于 2021-11-22 14:08
+
+ 本帖最后由 zakki 于 2021-11-22 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53647885&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 11:58</a>
+
+是不是我不会用 我的奥伯龙除了在C狗三连时搭配杀狐外 其他时候完全不知道怎么配 还是必须要2宝以上 ...</blockquote>
+第一种是所有双C呆，双CBA的阵容换下一个，上奥伯龙，我已经很久没用过双C呆了，再也不用翻半天助战找对应礼装的C呆，直接筛选满破MIX里随便挑一个符合的。
+
+第二种是双奥伯龙配打手，一宝奥伯龙打一面，二宝及以上奥伯龙打二面，打手打第三面。
+
+第三种是奥伯龙道满，这俩是绝配能互拐，既可打暴击又能打宝具，第三人看本选择是单体还是光炮，很灵活。再加上奥伯龙杀狐配妖兰或者C狗。
+
+我常用就这几种，还有用奥伯龙打三面的打法没怎么用过，可能得绑个04服不然伤害不够
+
+*****
+
+####  zakki  
+##### 84429#       发表于 2021-11-22 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649089&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 13:22</a>
+
+隔壁现在不是已经进化成
+
+不管啥问题先干一拳DW，然后开始怀疑是不是樱井先手下毒，再开始一个个排查甩锅了 ...</blockquote>
+奥伯龙队不吃衣服啊，我最近就在用新衣服，10np对奥伯龙很关键。10点np加被动20加奥伯龙充的70正好凑够100。如果想要伤害高就用04服
+
+*****
+
+####  zakki  
+##### 84430#       发表于 2021-11-22 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649388&amp;ptid=1085254" target="_blank">人生啊 发表于 2021-11-22 13:49</a>
+
+隔壁拳师浓度真是越来越高了</blockquote>
+隔壁拳师不是最恶心的，最恶心的是二鬼子，理中客，还有反串成二鬼子和理中客的拳师<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 84431#       发表于 2021-11-22 14:20
+
+ 本帖最后由 exiaexa 于 2021-11-22 14:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649682&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 14:10</a>
+
+奥伯龙队不吃衣服啊，我最近就在用新衣服，10np对奥伯龙很关键。10点np加被动20加奥伯龙充的70正好凑够10 ...</blockquote>
+那么问题来了，我用常规阵容就行啊何必多点20np去将就奥伯龙，我又不缺那点火力
+
+重点是还有一堆打手的羁绊还等着练
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

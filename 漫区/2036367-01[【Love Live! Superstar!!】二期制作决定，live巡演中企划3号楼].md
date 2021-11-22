@@ -10577,3 +10577,38 @@ LL说来应该是万代家的企划 结果万代自己的手办部门就做过�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 969#       发表于 2021-11-22 14:04
+
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但是制作尚算精良，至少迄今为止没有哪一方面比最初版那个LL差吧
+
+*****
+
+####  秋月艾莉  
+##### 970#       发表于 2021-11-22 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649581&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:04</a>
+
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你自己喜欢就好了，这边老观众有怨气撒撒罢了
+
+看完有兴趣可以继续去看真人生放，尤其是最近的巡演，各种糖各种贴甜掉牙
+
+*****
+
+####  中野四葉  
+##### 971#       发表于 2021-11-22 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">追番和一次性看完体验肯定还是不一样的
+
+*****
+
+####  绯想alter2nd  
+##### 972#       发表于 2021-11-22 14:21
+
+那就继续看吧，已经没什么好怕的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
