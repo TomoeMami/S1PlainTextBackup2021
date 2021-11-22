@@ -10393,3 +10393,14 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 闲的没事点开相册发现它把鲤鱼和小百合当成一个人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/41867c68d669b069f6cad7e2c374bd72/IMG_CMP_170659704.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 953#       发表于 2021-11-22 08:31
+
+我这边有点智障<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

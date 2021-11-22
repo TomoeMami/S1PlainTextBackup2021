@@ -14540,3 +14540,16 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 游乐场蛇头这些个组队的和上面差不多 有加速器还是挺稳的 只有魔法可以用netch，steam可用进程模式，win10 xgp大概只能靠bypass lan and china模式
 
+
+
+*****
+
+####  Vladimeow  
+##### 1322#       发表于 2021-11-22 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643864&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-22 00:41</a>
+这网络问题**操蛋，我跑了6回大雨倾盆第一都没完成。
+
+—— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">开UU基本就不会掉了，对了把QQ和Q盾关了，这是重点
+
