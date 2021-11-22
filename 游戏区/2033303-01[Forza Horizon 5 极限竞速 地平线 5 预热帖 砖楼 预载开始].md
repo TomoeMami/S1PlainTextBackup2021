@@ -14671,3 +14671,28 @@ xsx手柄已经很爽了，方向盘上手需要适应一阵
 
 方向盘玩要把转向从标准调到拟真，会舒服不少
 
+
+
+*****
+
+####  天神十三煞  
+##### 1333#         楼主| 发表于 2021-11-22 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646164&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-21 18:00</a>
+
+球地址
+
+lancia跟alfa有戏吗</blockquote>
+声音采样花絮就是蓝旗亚的车
+
+你在担心个啥
+
+*****
+
+####  920619lqy  
+##### 1334#       发表于 2021-11-22 16:57
+
+<blockquote>qzy741147 发表于 2021-11-21 23:57
+还是疫情对产能造成了影响，包括游戏本身这么多bug，可能根本就来不及做了。这次近两年的新车真的少得可 ...</blockquote>
+能把FH4的bug原封不动搬过来，就嗯换皮是吧
+

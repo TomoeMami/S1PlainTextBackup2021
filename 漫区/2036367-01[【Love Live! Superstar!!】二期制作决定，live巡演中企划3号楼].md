@@ -10719,3 +10719,14 @@ LL说来应该是万代家的企划 结果万代自己的手办部门就做过�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挺好的，赶紧看完动画来看中之人吧
 
+
+
+*****
+
+####  Karin11974  
+##### 983#       发表于 2021-11-22 16:47
+
+pb写真观摩完，感觉摄影师真的重要，之前那个voice+访谈怼正面全身照像个憨憨，还有鲤鱼新专那两套感觉装扮和灯光也是一言难尽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

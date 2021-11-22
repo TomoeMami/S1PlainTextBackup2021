@@ -12961,3 +12961,53 @@ https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0
 
 艾瑞思又出什么问题了
 
+
+
+*****
+
+####  rgauss  
+##### 2898#       发表于 2021-11-22 16:48
+
+直播日历憋了三天 最近直播时间也不太稳
+
+*****
+
+####  小憨1  
+##### 2899#       发表于 2021-11-22 16:51
+
+ 本帖最后由 小憨1 于 2021-11-22 16:52 编辑 
+
+前天发了条动态，说直播表21号发
+
+<img src="https://img.saraba1st.com/forum/202111/22/164919xp41ug4zyhqq4fg1.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (25.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 16:49 上传
+
+21号晚上鸽了，在前天的动态里评论说今天上午发
+
+<img src="https://img.saraba1st.com/forum/202111/22/164919smppymj8l8tqqpzy.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (28.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 16:49 上传
+
+然后刚才在前天的动态里评论说再等等
+
+<img src="https://img.saraba1st.com/forum/202111/22/164919gmr22zq62b1pmgdm.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (26.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 16:49 上传
+
+全鸽了就算了，为什么不能发个新动态来说，真以为自己粉丝浓度和静栗惹一样每天对着动态嗯刷了？
+
+也得亏艾妃糖总体对艾瑞思是温柔的态度，这要是文静发的，我评论里直接直球辱骂了
+
