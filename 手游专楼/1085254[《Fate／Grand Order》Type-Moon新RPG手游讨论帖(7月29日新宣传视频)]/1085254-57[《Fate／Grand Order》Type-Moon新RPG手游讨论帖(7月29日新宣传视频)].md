@@ -4757,3 +4757,33 @@ FGO運営
 
 奥伯龙实在太好用了，感觉不用到无限池就能满绊了，现在组队都是先放一个奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84421#       发表于 2021-11-22 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我就不一样了，妖精王抽到以后一次都没用过
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  風卷豹  
+##### 84422#       发表于 2021-11-22 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642679&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-11-21 22:51</a>
+
+现在的新主线一般需要练哪些从者啊，手里有拐：孔明梅林 打手：杀狐 摩根 奥博龙 白枪呆
+
+还有没有练的剑魔 ...</blockquote>
+你没有C呆，梅林肯定不能下岗，主线里无论是苟还是爆破都有用。
+
+*****
+
+####  qixinno2  
+##### 84423#       发表于 2021-11-22 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是我不会用 我的奥伯龙除了在C狗三连时搭配杀狐外 其他时候完全不知道怎么配 还是必须要2宝以上打一面
+
