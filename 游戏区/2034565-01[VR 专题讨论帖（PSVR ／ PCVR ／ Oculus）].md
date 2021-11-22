@@ -2493,3 +2493,23 @@ Meta Quest
 
 2021-11-19 17:59 上传
 
+
+
+*****
+
+####  egged5  
+##### 158#       发表于 2021-11-22 21:34
+
+刚刚买了quest2，去官网看了一下Oculus Link的支持的列表，这里Not Currently Supported的是指完全用不了的吗
+
+目前用的是移动版的1650，在官网上是Not Currently Supported
+
+屏幕截图 2021-11-22 213345.png
+(51.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 21:34 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/213442lt91a27mqmmhzdma.png" referrerpolicy="no-referrer">
+
