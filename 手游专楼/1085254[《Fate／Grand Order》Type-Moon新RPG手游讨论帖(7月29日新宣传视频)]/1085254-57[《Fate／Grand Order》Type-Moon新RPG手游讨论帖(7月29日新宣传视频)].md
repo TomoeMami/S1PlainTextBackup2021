@@ -5268,3 +5268,24 @@ NMD两单沉了
 
 一发11连命中，溜了
 
+
+
+*****
+
+####  alucardcz  
+##### 84471#       发表于 2021-11-22 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654258&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-11-22 19:19</a>
+
+这龙马三破感觉变黑了点？尤其是和一破的肤色比，也许是衣服的关系。然而，阿龙明显是变成白（粉白）毛了。 ...</blockquote>
+你不说这是龙马我还真以为是阿周娜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 84472#       发表于 2021-11-22 19:43
+
+说真的白阿龙小姐有点吓人
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
