@@ -10789,3 +10789,18 @@ fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/fa
 
 2021-11-22 18:43 上传
 
+
+
+*****
+
+####  Karin11974  
+##### 989#       发表于 2021-11-22 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652964&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-22 17:36</a>
+层主心态好就好。
+
+个人是没办法把这种严重逻辑问题的两集当做对不对电波来处理。个人理解是贩卖梦想也要 ...</blockquote>
+就是强行套个真香的学生会长模版，先立模版人设再硬掰剧情，难免生硬，要说逻辑从第一话结尾未来预报由学校唱到大街，中间又突然蹦出几个队友就知道动画剧情是图一乐的，本质三次元团广告片，做得好看当然更好，不好看么，歌舞好那也就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

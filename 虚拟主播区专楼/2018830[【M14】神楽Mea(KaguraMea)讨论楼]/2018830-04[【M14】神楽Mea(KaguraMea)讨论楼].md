@@ -7915,3 +7915,12 @@ syl 问了一下明晚十点一小时，那这不是铁定没了
 
 9点
 
+
+
+*****
+
+####  T_Hb  
+##### 5417#       发表于 2021-11-22 19:15
+
+我还以为会有观众投票环节呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

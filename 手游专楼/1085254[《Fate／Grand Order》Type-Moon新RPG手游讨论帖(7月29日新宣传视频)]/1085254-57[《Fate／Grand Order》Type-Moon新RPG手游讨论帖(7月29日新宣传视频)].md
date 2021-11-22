@@ -5245,3 +5245,26 @@ NMD两单沉了
 
 草，为什么弓本一面的6个铜怪道满即死不掉，不是必定即死铜怪的吗
 
+
+
+*****
+
+####  qixinno2  
+##### 84468#       发表于 2021-11-22 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两发十连白嫖失败 GG
+
+*****
+
+####  xiongxingyu  
+##### 84469#       发表于 2021-11-22 19:19
+
+这龙马三破感觉变黑了点？尤其是和一破的肤色比，也许是衣服的关系。然而，阿龙明显是变成白（粉白）毛了。果然抑制力的打工仔最后都逃不过黑皮白毛的宿命吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddr  
+##### 84470#       发表于 2021-11-22 19:23
+
+一发11连命中，溜了
+
