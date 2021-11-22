@@ -1310,3 +1310,19 @@ booster我是不想去打了
 
 我朋友两针打完躺家里一两天，公司还有一个打完住院一周的，我两针Pfizer都一丁点反应都没有，连针眼胳膊疼都没
 
+
+
+*****
+
+####  Redis  
+##### 131#       发表于 2021-11-22 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645006&amp;ptid=2038124" target="_blank">MK17Mod0 发表于 2021-11-22 07:29</a>
+
+这东西完全看人，没反应就是没反应，有反应就一直有
+
+我朋友两针打完躺家里一两天，公司还有一个打完住院 ...</blockquote>
+我也是第三针胳膊都没怎么疼
+
+感觉自己打到生理盐水了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
