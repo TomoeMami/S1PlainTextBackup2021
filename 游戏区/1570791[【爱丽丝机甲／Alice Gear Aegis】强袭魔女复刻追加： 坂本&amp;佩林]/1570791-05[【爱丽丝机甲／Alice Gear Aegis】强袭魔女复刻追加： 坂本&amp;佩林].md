@@ -3576,3 +3576,31 @@ boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</bloc
 
 尴尬 这样都不一定抽得到啊 就没意义了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RioShiina  
+##### 6262#       发表于 2021-11-22 18:29
+
+<blockquote>DRAGONBLEAPIECE 发表于 2021-11-22 18:17
+看见联动石头门想弄个初始试试
+
+结果发现tb上都是自选号
+
+没有石头号。。。
+</blockquote>
+这个游戏的抽卡点数会过期的， 能留的只有氪金的钻石 ：）
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 6263#       发表于 2021-11-22 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653694&amp;ptid=1570791" target="_blank">RioShiina 发表于 2021-11-22 18:29</a>
+
+这个游戏的抽卡点数会过期的， 能留的只有氪金的钻石 ：）</blockquote>
+这样的吗
+
+那初始号想抽满联动角色是不是不太现实？
+
