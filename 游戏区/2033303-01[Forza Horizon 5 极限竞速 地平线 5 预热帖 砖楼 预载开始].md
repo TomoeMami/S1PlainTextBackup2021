@@ -14567,3 +14567,26 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Robakey  
+##### 1324#       发表于 2021-11-22 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575383&amp;ptid=2033303" target="_blank">difa 发表于 2021-11-17 10:38</a>
+
+最简单的办法，找个车，抄个调教。然后难度里辅助全开，自动跑。
+
+—— 来自 S1Fun ...</blockquote>
+学到了 好哥哥 晚上回去试试
+
+*****
+
+####  Totokei  
+##### 1325#       发表于 2021-11-22 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">之后更新的车辆被解包了，感觉都挺微妙的最近年份的车比较少，都是现有车辆的不同版本为主
+
+虽然TT这个车系老得快换代了可TTRS终于要加入Forza了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
