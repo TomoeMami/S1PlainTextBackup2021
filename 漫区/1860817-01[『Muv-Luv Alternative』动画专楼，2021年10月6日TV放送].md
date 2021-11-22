@@ -20291,3 +20291,16 @@ steam版阉割的“alt纯夏的真相”，原版可是不亚于名场面的存
 
 应该是黑色无语雷在动画的首次亮相
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1424#       发表于 2021-11-23 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656354&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-11-22 21:53</a>
+应该是黑色无语雷在动画的首次亮相</blockquote>
+白色吧，黑色是白银武在tda世界线里开得
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
