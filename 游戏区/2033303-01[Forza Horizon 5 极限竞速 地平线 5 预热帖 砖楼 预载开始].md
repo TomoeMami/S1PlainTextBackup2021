@@ -14604,3 +14604,17 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 球地址
 lancia跟alfa有戏吗
 
+
+
+*****
+
+####  Totokei  
+##### 1327#       发表于 2021-11-22 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646164&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-22 10:00</a>
+球地址
+lancia跟alfa有戏吗</blockquote>
+[http://tieba.baidu.com/p/7621222 ... 10.3.9&amp;sfc=copy](http://tieba.baidu.com/p/7621222809?share=9105&amp;fr=share&amp;unique=BCF3F513C05D94C38C2D073378B3A0BC&amp;st=1637546565&amp;client_type=1&amp;client_version=10.3.9&amp;sfc=copy)
+
+原帖在reddit上，贴吧也有人发了
+
