@@ -10501,3 +10501,17 @@ sayu这拍的像是被章鱼脑控了</blockquote>
 
 有人已经传到微博上了，可以搜一下
 
+
+
+*****
+
+####  ads147147  
+##### 963#       发表于 2021-11-22 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643793&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-22 00:35</a>
+
+比nagi那套还要健全不少，palyboy就这
+
+不过还是好美</blockquote>
+看了下ic实验室讲过的playboy历史，里头反复讲究色而不淫来着，某种意义上还真是这种清汤寡水风格更适合。
+
