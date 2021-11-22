@@ -13176,3 +13176,14 @@ nga静楼p用没有，全是偷贴吧和s1的二手
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看见屎黄色论坛就会④
 
+
+
+*****
+
+####  rgauss  
+##### 2915#       发表于 2021-11-22 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655570&amp;ptid=2013779" target="_blank">cherrydove 发表于 2021-11-22 20:53</a>
+为啥这里也挺纯良平静，跟b综仿佛不是一个论坛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为鸟综就没几个人
+
