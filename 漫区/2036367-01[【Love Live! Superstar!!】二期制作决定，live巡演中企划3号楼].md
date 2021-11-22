@@ -11044,3 +11044,16 @@ tmd，星团怎么成了这个样子.jpg
 
 合理怀疑这届LL是带着任务来的，运营也许打过招呼了，你们平时没事私下互动就多搞点百合营业刺激一下粉丝.doc
 
+
+
+*****
+
+####  saglork  
+##### 1011#       发表于 2021-11-23 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658809&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-23 01:01</a>
+合理怀疑这届LL是带着任务来的，运营也许打过招呼了，你们平时没事私下互动就多搞点百合营业刺激一下粉丝.d ...</blockquote>
+这还用怀疑吗，从缪中后期，运营就已经在刻意添加了
+台上的东西别想太多，嗑就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+星还是时间太短，说白了成员之间现在都还在磨合熟悉，缪水都是两三年后渐渐从广播节目和日常生活返照之类的才能渐渐看出成员之间关系到底谁和谁比较近<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
