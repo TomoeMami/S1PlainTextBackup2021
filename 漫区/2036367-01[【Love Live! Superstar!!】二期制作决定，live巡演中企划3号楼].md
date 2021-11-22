@@ -10404,3 +10404,19 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 954#       发表于 2021-11-22 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53644215&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-22 01:14</a>
+
+对比前几天新发的MV的样子来看我感觉睡衣那几张要么有装备加成要么就是用了魔法 ...</blockquote>
+但是看之前的周刊JUMP里穿背心的照片还是可以的嘛
+
+算了，怎样都好，至少知道鲤鱼是真的健康向~
+
+昨天把周刊PB的首页看了一下，一圈内衣、比基尼，就鲤鱼穿最多wwww
+

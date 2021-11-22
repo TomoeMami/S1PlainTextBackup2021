@@ -14553,3 +14553,17 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 —— 来自 OPPO PCCM00, Android 11上的 S1Next-鹅版 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">开UU基本就不会掉了，对了把QQ和Q盾关了，这是重点
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1323#       发表于 2021-11-22 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645157&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-22 08:21</a>
+开UU基本就不会掉了，对了把QQ和Q盾关了，这是重点</blockquote>
+我是主机玩的。
+我去做别的任务做够了，也没掉线。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
