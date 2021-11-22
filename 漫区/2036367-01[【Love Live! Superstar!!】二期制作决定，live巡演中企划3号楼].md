@@ -10444,3 +10444,60 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  D麦林  
+##### 957#       发表于 2021-11-22 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642696&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-21 22:53</a>
+
+sayu这拍的像是被章鱼脑控了</blockquote>
+什么密特罗德
+
+*****
+
+####  AlfredXC  
+##### 958#       发表于 2021-11-22 11:18
+
+ 本帖最后由 AlfredXC 于 2021-11-22 11:22 编辑 
+
+看着还是有些拘束，表情、动作都没放开
+
+*****
+
+####  yevvet  
+##### 959#       发表于 2021-11-22 11:18
+
+感觉liyuu再瘦个10斤会更好看。现在有点肉肉的
+
+*****
+
+####  TTAA  
+##### 960#       发表于 2021-11-22 11:20
+
+还是肉一点吧，看起来健康
+
+
+
+*****
+
+####  yevvet  
+##### 961#       发表于 2021-11-22 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53647316&amp;ptid=2036367" target="_blank">yevvet 发表于 2021-11-22 11:18</a>
+感觉liyuu再瘦个10斤会更好看。现在有点肉肉的</blockquote>
+看写真感觉应该110斤左右
+
+*****
+
+####  lj205  
+##### 962#       发表于 2021-11-22 11:21
+
+要匀称身材，不要病态瘦白<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+买了PB的实体版，有两三张不一样的，里面有张表情特写不错，我甚至有点悸动。
+
+有人已经传到微博上了，可以搜一下
+
