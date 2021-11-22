@@ -10638,3 +10638,43 @@ LL说来应该是万代家的企划 结果万代自己的手办部门就做过�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">鲤鱼握外星人手那段太上头了，难得一见青山姐露出迷糊的表情
 
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 976#       发表于 2021-11-22 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649991&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-22 14:33</a>
+
+恶评如潮的7～8话都能接受那这作确实没有你接受不了的了，也没啥，这里的大多数人对剧情要求还是比较高的 ...</blockquote>
+7-8确实剧情非常迷惑，毫无道理，花了这么大篇幅强行凑一个加入的理由，还不如希直接算一卦有说服力
+
+但是LL本来就是个毫无道理的系列作品呀
+
+几个中学生每天课后在学校屋顶练习，那点练习量，再有天赋也肯定是歌不好舞不齐的啊，哪有出道成为偶像巅峰的可能性呢
+
+看LL这种作品，不就是要接受这些解构之后的奇怪设定，专注于感受作品的内核，歌颂爱和梦想吗
+
+*****
+
+####  emmer  
+##### 977#       发表于 2021-11-22 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649359&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-22 13:47</a>
+
+万代还做过一次性注塑成型分色的鸟，完全是在炫技，角色眼睛都是通过注塑直接做出成品的，到手只需要上随便 ...</blockquote>
+不是有后续的明日香吗
+
+*****
+
+####  仟音一心  
+##### 978#       发表于 2021-11-22 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650164&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:44</a>
+
+7-8确实剧情非常迷惑，毫无道理，花了这么大篇幅强行凑一个加入的理由，还不如希直接算一卦有说服力
+
+但是 ...</blockquote>
+不是，设定的话怎么样我都能接受，但这种几乎把恋当全作唯一反派来写逻辑还完全站不住的剧情就是很要命，几乎毁了这个角色的风评。同样是真香型会长，前作都没有处理成这么差的。
+

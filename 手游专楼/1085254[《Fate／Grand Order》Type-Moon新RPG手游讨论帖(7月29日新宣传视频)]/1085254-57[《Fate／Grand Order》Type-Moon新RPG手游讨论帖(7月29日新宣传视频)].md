@@ -4914,3 +4914,33 @@ FGO運営
 重点是还有一堆打手的羁绊 ...</blockquote>
 问题是常规阵容不是绑定双C呆或者双CBA吗，这样锁死助战，找的麻烦，奥伯龙的队除了双奥伯龙外，红蓝绿卡都能上，不绑定助战。看你是不喜欢翻助战还是不喜欢自己出俩五星拉高cost。不过用双C呆配打手，后面放几个练羁绊不如干脆让后面练羁绊的上前排打，万圣和泳装就是直接用龙娘和小芬奇打的。
 
+
+
+*****
+
+####  exiaexa  
+##### 84433#       发表于 2021-11-22 14:51
+
+ 本帖最后由 exiaexa 于 2021-11-22 14:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650063&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 14:38</a>
+
+问题是常规阵容不是绑定双C呆或者双CBA吗，这样锁死助战，找的麻烦，奥伯龙的队除了双奥伯龙外，红蓝绿卡 ...</blockquote>
+哪儿有这么麻烦，我现在基本路子就是直接俩宝石打手+一个拐
+
+支援只看礼装管你谁带的，想这么多不如多打一把，反正不抽卡石头管够
+
+只有遇到血量特别高的阴间本我才会考虑上两个拐
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84434#       发表于 2021-11-22 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650257&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 14:51</a>
+
+哪儿有这么麻烦，我现在基本路子就是直接俩宝石打手+一个拐
+
+支援只看礼装管你谁带的，想这么多不如多打一 ...</blockquote>
+高宝肯定可以这么玩，我这种低宝就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且你这么组队也能用奥伯龙啊，上三和狂用奥伯龙打一面就行，三个人一人一面，buff有奥伯龙的群体30宝威就够了
+

@@ -12894,3 +12894,20 @@ ti10是什么节奏啊。。</blockquote>
 
 反正那天狠狠给这个"炒作狗"一巴掌,有些流量吃不吃小心点.
 
+
+
+*****
+
+####  tbdmgx@163.com  
+##### 2892#       发表于 2021-11-22 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53648908&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-22 13:08</a></blockquote>
+其实她很早就知道老克
+[https://www.bilibili.com/video/B ... id_from=333.999.0.0](https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0)
+
+1:17:06秒的时候放了老克扮猪吃老虎参加莱老师歌会的切片，言语中也提到了“克老师”
+
+8.19摆烂练歌回有人点歌《向天再借五百年》还看到有弹幕刷了wink
+
+弃车人看文静多起来应该是10月新衣后，当我10月29点开第一个录播的时候P综群里已经不少静栗惹了
+
