@@ -1340,3 +1340,12 @@ booster我是不想去打了
 感觉自己打到生理盐水了</blockquote>
 可能稀释的时候没搞匀， 你那针就是saline<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ekdc11  
+##### 133#       发表于 2021-11-23 06:17
+
+第三针还是选了辉瑞，打了来报告。
+
