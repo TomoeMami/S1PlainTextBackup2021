@@ -10612,3 +10612,29 @@ LL说来应该是万代家的企划 结果万代自己的手办部门就做过�
 
 那就继续看吧，已经没什么好怕的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 973#       发表于 2021-11-22 14:27
+
+最迷的第8话都接受了，那应该没什么问题，总的来说还是能算个中等偏上的作品
+
+*****
+
+####  仟音一心  
+##### 974#       发表于 2021-11-22 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649581&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:04</a>
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
+恶评如潮的7～8话都能接受那这作确实没有你接受不了的了，也没啥，这里的大多数人对剧情要求还是比较高的。
+反正鉴赏区我给的是0。
+
+*****
+
+####  秋月艾莉  
+##### 975#       发表于 2021-11-22 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">鲤鱼握外星人手那段太上头了，难得一见青山姐露出迷糊的表情
+

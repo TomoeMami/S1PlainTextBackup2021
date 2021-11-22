@@ -12876,3 +12876,21 @@ ti10期间，让文静祝福ame的sc不下二十条，弹幕的更是数不胜�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53648908&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-22 13:08</a></blockquote>
 ti10是什么节奏啊。。
 
+
+
+*****
+
+####  tankai  
+##### 2891#       发表于 2021-11-22 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649582&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-22 14:04</a>
+
+ti10是什么节奏啊。。</blockquote>
+不懂游戏,QA回后半一转嗯引流电竞相关.适逢TI10决赛日,B站又允许播(LOL不行),文静想尝试调整节目内容.
+
+后面不是LGD输了么.直播间节奏就起来了,一开始都在骂LGD下面八,文静好不尴尬,只能婉转的说两句客套话.
+
+下播后她肯定还在看自己直播间里大家发散,心里忐忑不安,不到一小时上播解释为什么会后面转播决赛.
+
+反正那天狠狠给这个"炒作狗"一巴掌,有些流量吃不吃小心点.
+

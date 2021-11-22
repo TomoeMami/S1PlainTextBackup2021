@@ -4900,3 +4900,17 @@ FGO運営
 重点是还有一堆打手的羁绊还等着练
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84432#       发表于 2021-11-22 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649835&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 14:20</a>
+
+那么问题来了，我用常规阵容就行啊何必多点20np去将就奥伯龙，我又不缺那点火力
+
+重点是还有一堆打手的羁绊 ...</blockquote>
+问题是常规阵容不是绑定双C呆或者双CBA吗，这样锁死助战，找的麻烦，奥伯龙的队除了双奥伯龙外，红蓝绿卡都能上，不绑定助战。看你是不喜欢翻助战还是不喜欢自己出俩五星拉高cost。不过用双C呆配打手，后面放几个练羁绊不如干脆让后面练羁绊的上前排打，万圣和泳装就是直接用龙娘和小芬奇打的。
+
