@@ -13196,3 +13196,21 @@ nga静楼p用没有，全是偷贴吧和s1的二手
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">不是纯良谁来鸟宗。
 
+
+
+*****
+
+####  莫洛骑士  
+##### 2917#       发表于 2021-11-22 23:23
+
+都眼熟了罢了，要是人多了也一样👋
+当然千鸟就算等到毕业了也不可能有那么多人来
+
+*****
+
+####  莫洛骑士  
+##### 2918#       发表于 2021-11-22 23:25
+
+真铁弱智
+<img src="https://p.sda1.dev/3/00f4d659ee8f7f5410981e39b777ef75/IMG_CMP_75503888.jpeg" referrerpolicy="no-referrer">
+

@@ -10907,3 +10907,60 @@ fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/fa
 
 2021-11-22 23:12 上传
 
+
+
+*****
+
+####  JustW_2  
+##### 998#       发表于 2021-11-22 23:26
+
+ 本帖最后由 JustW_2 于 2021-11-22 23:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然完结这么久了，也不太想车tv，但回过头看，1-3和10的观感好，很大程度上归功于唐可可这一角色的成功塑造。如果你把唐可可摘出去，其实也就是花田平均水平的发挥，不能说差，也不算太好。（当然唐可可的塑造也离不了花田）
+
+*****
+
+####  ads147147  
+##### 999#       发表于 2021-11-22 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656521&amp;ptid=2036367" target="_blank">welcom 发表于 2021-11-22 22:09</a>
+按照台长的说法就是虹团强推，星团垃圾，第二季虹团他没表示，但是星团是明确说了只会更垃圾
+
+嘛也就这样 ...</blockquote>
+更“拉”的偶像番，怕不是一语双关。
+
+从拉拉味来说，确实非常拉，花田这么多年也没变过那套先心意再去写故事逻辑的思路，所以要自闭就什么jb破事都出现，心意到了就完事OK，搞得和劣质魔法少女动画一样，拍着拍着就很扯淡。
+田中仁搞过真的大友魔法少女，就知道花田那套不能一直用，偶尔用下来点睛就好了。或者说，搞带货，花田只想着live播完了事，根本不考虑对角色塑造的伤害。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  名津流  
+##### 1000#       发表于 2021-11-22 23:33
+
+在微博上看到好几个不同版本的这种“X秒内找出唐可可”的图，太搞了
+
+<img src="https://img.saraba1st.com/forum/202111/22/233337yri8hpvikhl8vz8r.jpg" referrerpolicy="no-referrer">
+
+<strong>005PEyTGgy1gwo7pu32clj30ku0xce81.jpg</strong> (370.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 23:33 上传
+
+*****
+
+####  chenflyyy  
+##### 1001#       发表于 2021-11-22 23:36
+
+BV1RU4y1M7j4
+广播曲B站有人发了，印象比较深刻的是虹的，好吵（
+
+*****
+
+####  chenflyyy  
+##### 1002#       发表于 2021-11-22 23:38
+
+nagi最近跟nako贴贴好多啊，不再是孤狼一个了，真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
