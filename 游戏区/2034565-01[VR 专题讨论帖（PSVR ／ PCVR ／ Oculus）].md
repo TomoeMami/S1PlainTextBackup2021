@@ -2586,3 +2586,21 @@ Meta Quest
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 165#       发表于 2021-11-23 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659214&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-23 02:08</a>
+今天Q2到货了，问几个问题
+第一个是感觉有时候屏幕显示有点模糊，但是调整一下眼镜位置就好了，这个无解吗
+ ...</blockquote>
+1.配个镜片换个头戴，quest比较重，像楼上说的玩着容易滑下来。（即使换了头戴多少也有这个问题
+2.不明白糊脸说的是啥，电影院效果一般用来看普通视频。vr视频（180度/360度）可以手动设置一下视频格式，一般上下格式或者左右格式可以选3d。
+3.安装时需要，启动时不用。
+4.翻翻饺子哥推荐帖
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
