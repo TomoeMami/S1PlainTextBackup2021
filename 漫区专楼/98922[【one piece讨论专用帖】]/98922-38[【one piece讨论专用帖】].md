@@ -7840,3 +7840,20 @@ king和queen这两只谐星恐龙反而还保留了op一贯的风格，和之国
 king这个弹射头部到底是怎么回事</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">跟卡库  奎因一个性质 我很强但是我也很谐 你看着办吧
 
+
+
+*****
+
+####  C男人  
+##### 56103#       发表于 2021-11-22 20:29
+
+三角龙是直升机
+
+腕龙是玄武
+
+翼龙用弹弓狩猎
+
+错误的恐龙知识又增加了呢。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+

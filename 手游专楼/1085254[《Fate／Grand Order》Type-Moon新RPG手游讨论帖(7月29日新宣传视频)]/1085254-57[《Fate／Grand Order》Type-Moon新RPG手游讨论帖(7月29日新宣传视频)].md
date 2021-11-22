@@ -5320,3 +5320,25 @@ NMD两单沉了
 我魅惑miss了直接前面开了一个C呆的宝具，刚好打死</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太麻烦　不如直接武师傅直接ｍｙ　ｎａｍｅ（
 
+
+
+*****
+
+####  シャル  
+##### 84476#       发表于 2021-11-22 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653471&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 18:10</a>
+
+麻了　最新本夹摸特攻高概率ｍｉｓｓ　带满破礼装都打不死弓凛　又要用回武藏了　我都不想用武藏了 ...</blockquote>
+不是萝兰2抢劈死嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 84477#       发表于 2021-11-22 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654258&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-11-22 19:19</a>
+
+这龙马三破感觉变黑了点？尤其是和一破的肤色比，也许是衣服的关系。然而，阿龙明显是变成白（粉白）毛了。 ...</blockquote>
+这个状态是罢**工了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

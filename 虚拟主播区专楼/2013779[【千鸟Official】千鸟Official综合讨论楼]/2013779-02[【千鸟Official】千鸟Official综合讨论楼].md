@@ -13124,3 +13124,28 @@ https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0
 然而文静被小正太“创”的要死要活你楼都没人提一嘴，令人感叹。</blockquote>
 刚生完三胎就准备四胎了？
 
+
+
+*****
+
+####  rgauss  
+##### 2910#       发表于 2021-11-22 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654575&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-11-22 19:44</a>
+2060这么大项目怎么着也得提前几个月半年，连建模也是1.0的人设，铁1.0，就没想到能这么狗屎
+
+直播员们别看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你给直播员s1号吗
+
+
+
+*****
+
+####  tbdmgx@163.com  
+##### 2911#       发表于 2021-11-22 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655201&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-22 20:29</a>
+
+你给直播员s1号吗</blockquote>
+折中一下，该看NGA文静楼了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">樱桃鸽子广告费结一下
+
