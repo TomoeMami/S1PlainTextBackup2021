@@ -9416,3 +9416,27 @@ vi和希尔科两人是相反的位置，金克斯在中间，vi的那一枪是�
 
 还是觉得海克斯核心和机器人有关系，毕竟关键词都是自我学习
 
+
+
+*****
+
+####  筱原重工  
+##### 2416#       发表于 2021-11-22 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53644037&amp;ptid=2002246" target="_blank">sjbssd 发表于 2021-11-22 00:58</a>
+我       不        要       看       男       人       的       裸       背</blockquote>
+来点女人的裸背<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/1dfa91f30e6cc5caa1a715cfab89365d/IMG_CMP_38716.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/d16b321127dffac0d67d1cd7819e1d4e/IMG_CMP_152275282.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  remedios010000  
+##### 2417#       发表于 2021-11-22 10:36
+
+突然意识到这金克斯身上全是文身也没见腾讯P掉啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">隔壁叔叔就怕的不行
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
