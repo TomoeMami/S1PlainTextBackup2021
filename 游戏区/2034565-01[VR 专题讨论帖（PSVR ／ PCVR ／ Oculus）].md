@@ -2555,3 +2555,34 @@ Meta Quest
 第三个是air link必须路由器翻墙才能用？
 最后就是除了aylx和节奏光剑还有生化4以外，推荐些必买的vr游戏，谢谢
 
+
+
+*****
+
+####  wszweill  
+##### 163#       发表于 2021-11-23 07:14
+
+ 本帖最后由 wszweill 于 2021-11-22 18:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659214&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-22 13:08</a>
+
+今天Q2到货了，问几个问题
+
+第一个是感觉有时候屏幕显示有点模糊，但是调整一下眼镜位置就好了，这个无解吗
+
+ ...</blockquote>
+呃，就前两点的话，第一个个人体感是买个支架，稳定到一个不糊的位置，quest2自带的框架，反正我是玩一会如果动作大一点，导致装置滑动一点就可能糊了，而且极大改善佩戴感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+第二个，vr小电影多数是可以调位置的吧，糊脸大概率是初始位置太近了。。
+
+*****
+
+####  伊莉伊莉雅  
+##### 164#       发表于 2021-11-23 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659134&amp;ptid=2034565" target="_blank">violettor 发表于 2021-11-23 01:48</a>
+请问下quest2有出新版的消息吗，现在买算不算入国军？另外pc串流对网速要求高吗，家里是普通的百兆宽带，我 ...</blockquote>
+有消息，明年10月发布，早买早享受。
+路由器有些要求，不过即使是100M的2.4g也勉强能玩，你这个理论上没啥问题。steam link改改串流带宽试试。
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
