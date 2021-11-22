@@ -3604,3 +3604,17 @@ boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</bloc
 
 那初始号想抽满联动角色是不是不太现实？
 
+
+
+*****
+
+####  windaria  
+##### 6264#       发表于 2021-11-22 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653839&amp;ptid=1570791" target="_blank">DRAGONBLEAPIECE 发表于 2021-11-22 18:40</a>
+
+这样的吗
+
+那初始号想抽满联动角色是不是不太现实？</blockquote>
+这个完全看脸，有可能，几率很低就是了
+

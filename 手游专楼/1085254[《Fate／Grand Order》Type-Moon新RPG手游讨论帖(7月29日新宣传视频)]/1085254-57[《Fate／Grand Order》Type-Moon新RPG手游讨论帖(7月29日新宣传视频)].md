@@ -5236,3 +5236,12 @@ NMD两单沉了
 
 新弓本 艾蕾！上班！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84467#       发表于 2021-11-22 18:53
+
+草，为什么弓本一面的6个铜怪道满即死不掉，不是必定即死铜怪的吗
+
