@@ -4944,3 +4944,35 @@ FGO運営
 支援只看礼装管你谁带的，想这么多不如多打一 ...</blockquote>
 高宝肯定可以这么玩，我这种低宝就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且你这么组队也能用奥伯龙啊，上三和狂用奥伯龙打一面就行，三个人一人一面，buff有奥伯龙的群体30宝威就够了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 84435#       发表于 2021-11-22 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649644&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 14:08</a>
+
+第一种是所有双C呆，双CBA的阵容换下一个，上奥伯龙，我已经很久没用过双C呆了，再也不用翻半天助战找对应 ...</blockquote>
+换下一个回收够吗？
+
+*****
+
+####  zakki  
+##### 84436#       发表于 2021-11-22 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650557&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-11-22 15:08</a>
+
+换下一个回收够吗？</blockquote>
+肯定够，除非不带50np的倍卡，纯六加成无np的话，那只有一部分np够，比如迦摩。不过如果不带倍卡也没要用这个队，直接双奥或道奥就是了
+
+*****
+
+####  DARKGRAY  
+##### 84437#       发表于 2021-11-22 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650626&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 15:15</a>
+
+肯定够，除非不带50np的倍卡，纯六加成无np的话，那只有一部分np够，比如迦摩。不过如果不带倍卡也没要用 ...</blockquote>
+那俩一个还是锁助战一个没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

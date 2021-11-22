@@ -12911,3 +12911,19 @@ ti10是什么节奏啊。。</blockquote>
 
 弃车人看文静多起来应该是10月新衣后，当我10月29点开第一个录播的时候P综群里已经不少静栗惹了
 
+
+
+*****
+
+####  tankai  
+##### 2893#       发表于 2021-11-22 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650384&amp;ptid=2013779" target="_blank">tbdmgx@163.com 发表于 2021-11-22 14:59</a>
+
+其实她很早就知道老克
+
+https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0
+
+1:17:06秒 ...</blockquote>
+老克看文静冰火回还有过经典发言.
+
