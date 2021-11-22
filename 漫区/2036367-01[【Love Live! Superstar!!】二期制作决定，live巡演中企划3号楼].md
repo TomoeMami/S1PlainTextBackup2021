@@ -10818,3 +10818,12 @@ fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/fa
 —— 来自 Xiaomi Mi 10 Pro, Android 11上 ...</blockquote>
 明日香那个是真香，属实高技术力
 
+
+
+*****
+
+####  qratosone  
+##### 991#       发表于 2021-11-22 20:05
+
+比较公允地看，动画其实也就7-8和12拉胯了，其他的都在LL平均水平上，然后1-3和10是两个神回
+

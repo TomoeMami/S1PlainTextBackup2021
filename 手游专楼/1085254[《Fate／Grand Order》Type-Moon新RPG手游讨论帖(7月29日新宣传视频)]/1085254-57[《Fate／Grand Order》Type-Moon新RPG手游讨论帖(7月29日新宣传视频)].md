@@ -5298,3 +5298,25 @@ NMD两单沉了
 
 前几天那个绝对击破完全胜利，今天有个元气爆发，经验值写的时候是不是在复习蓝光人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 84474#       发表于 2021-11-22 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653471&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 18:10</a>
+
+麻了　最新本夹摸特攻高概率ｍｉｓｓ　带满破礼装都打不死弓凛　又要用回武藏了　我都不想用武藏了 ...</blockquote>
+我魅惑miss了直接前面开了一个C呆的宝具，刚好打死
+
+*****
+
+####  alucardcz  
+##### 84475#       发表于 2021-11-22 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654889&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-11-22 20:07</a>
+
+我魅惑miss了直接前面开了一个C呆的宝具，刚好打死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太麻烦　不如直接武师傅直接ｍｙ　ｎａｍｅ（
+
