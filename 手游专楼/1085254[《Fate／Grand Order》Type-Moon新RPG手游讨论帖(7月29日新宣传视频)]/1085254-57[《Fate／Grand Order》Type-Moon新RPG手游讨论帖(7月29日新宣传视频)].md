@@ -5020,3 +5020,25 @@ FGO運営
 仇凛　欧羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">仇凛有什么可羡慕的
 
+
+
+*****
+
+####  alucardcz  
+##### 84442#       发表于 2021-11-22 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53651420&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 16:05</a>
+
+仇凛有什么可羡慕的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌没有
+
+*****
+
+####  qixinno2  
+##### 84443#       发表于 2021-11-22 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53651496&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 16:09</a>
+
+萌没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">惊了 竟然没仇凛 但你有的我没有的更多啊
+
