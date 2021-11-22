@@ -14590,3 +14590,17 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 虽然TT这个车系老得快换代了可TTRS终于要加入Forza了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bad_alloc  
+##### 1326#       发表于 2021-11-22 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645578&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-22 09:15</a>
+之后更新的车辆被解包了，感觉都挺微妙的最近年份的车比较少，都是现有车辆的不同版本为主
+
+虽然TT ...</blockquote>
+球地址
+lancia跟alfa有戏吗
+
