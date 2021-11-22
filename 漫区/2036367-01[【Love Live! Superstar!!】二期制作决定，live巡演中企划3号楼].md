@@ -10839,3 +10839,47 @@ fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/fa
 比较公允地看，动画其实也就7-8和12拉胯了，其他的都在LL平均水平上，然后1-3和10是两个神回 ...</blockquote>
 有4集，占1/3的篇幅是神回，放其他新番里已经算是很不错的了吧
 
+
+
+*****
+
+####  D麦林  
+##### 993#       发表于 2021-11-22 22:02
+
+这帮人终于进化到不需要口水巾起手自己和自己就能接龙起来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+但是观感反倒比口水巾好一些 天知道为什么
+
+算了还是点个踩
+
+*****
+
+####  D麦林  
+##### 994#       发表于 2021-11-22 22:06
+
+ 本帖最后由 D麦林 于 2021-11-22 22:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652838&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-22 17:29</a>
+
+去查了下还真是，和鸟的那个都隔了多少年了，果然是炫技吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上 ...</blockquote>
+这系列官方明说了的 就是用来实验新技术的
+
+你没看商品名上就有个Labo吗
+
+但是鸟那个 原型是请Max厂的人来做的
+
+回避了万代拼装部的弱项（
+
+*****
+
+####  welcom  
+##### 995#       发表于 2021-11-22 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656262&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-22 21:45</a>
+
+有4集，占1/3的篇幅是神回，放其他新番里已经算是很不错的了吧</blockquote>
+按照台长的说法就是虹团强推，星团垃圾，第二季虹团他没表示，但是星团是明确说了只会更垃圾
+
+嘛也就这样了
+

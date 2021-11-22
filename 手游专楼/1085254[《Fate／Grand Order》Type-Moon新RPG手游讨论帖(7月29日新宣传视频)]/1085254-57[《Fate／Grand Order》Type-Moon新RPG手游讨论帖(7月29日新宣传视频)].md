@@ -5397,3 +5397,34 @@ NMD两单沉了
 
 泥潭这个吞帖子是好不了了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 84484#       发表于 2021-11-22 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656347&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 21:52</a>
+仇信长都强化两次了 仇凛什么时候才能获得强化</blockquote>
+是啊，给个一次的前置50宝威该多好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  J-002  
+##### 84485#       发表于 2021-11-22 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653782&amp;ptid=1085254" target="_blank">v22325 发表于 2021-11-22 18:35</a>
+
+这最后也太虎头蛇尾了  中间搞那么一段信长头我还以为是重要大戏呢 怎么就一个个全都老马死了  ...</blockquote>
+别着急，本篇还没结局呢，而且咕达咕哒一直都有个恶搞的第二部，怎么也得解释一下兰丸X本能寺的记忆是怎么回事
+
+*****
+
+####  qixinno2  
+##### 84486#       发表于 2021-11-22 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656469&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-11-22 22:04</a>
+
+是啊，给个一次的前置50宝威该多好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要求不高 给个宝具本就行
+
