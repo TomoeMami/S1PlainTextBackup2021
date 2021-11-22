@@ -12816,3 +12816,41 @@ co宝和琳的唱歌水平我只能遗憾的说，不如烧鸡，开口就想退
 
 鸟吧快八千人了，个个水的一B。符合千鸟P不满万的传说。
 
+
+
+*****
+
+####  tankai  
+##### 2887#       发表于 2021-11-22 12:42
+
+文静不在的11月
+
+<img src="https://img.saraba1st.com/forum/202111/22/123706fn78n4wwozp8sr8z.jpg" referrerpolicy="no-referrer">
+
+<strong>阿里旺旺图片20211122123649.jpg</strong> (14.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 12:37 上传
+
+,
+
+从弹幕流量上看,
+
+<img src="https://img.saraba1st.com/forum/202111/22/124017ryqepuyu4e9ydbed.jpg" referrerpolicy="no-referrer">
+
+<strong>阿里旺旺图片20211122123921.jpg</strong> (40.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 12:40 上传
+
+虚拟区这三家尚比千鸟多,鸟P还需努力.
+
+*****
+
+####  T型钉宫病毒  
+##### 2888#       发表于 2021-11-22 12:42
+
+鸟8太能炒了，现在看什么都像rp<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -10541,3 +10541,17 @@ LL说来应该是万代家的企划 结果万代自己的手办部门就做过�
 
 现在看那边帝宝SHF的样品倒是挺不错的
 
+
+
+*****
+
+####  努斯万克  
+##### 966#       发表于 2021-11-22 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645203&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-11-22 08:31</a>
+
+我这边有点智障
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+怎么还有010啊
+
