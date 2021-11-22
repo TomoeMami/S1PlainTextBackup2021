@@ -5289,3 +5289,12 @@ NMD两单沉了
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  DARKGRAY  
+##### 84473#       发表于 2021-11-22 19:49
+
+前几天那个绝对击破完全胜利，今天有个元气爆发，经验值写的时候是不是在复习蓝光人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
