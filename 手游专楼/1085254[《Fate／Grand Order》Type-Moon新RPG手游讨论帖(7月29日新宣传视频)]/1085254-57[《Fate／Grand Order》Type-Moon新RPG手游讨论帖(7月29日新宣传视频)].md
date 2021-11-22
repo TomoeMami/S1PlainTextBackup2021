@@ -5486,3 +5486,34 @@ NMD两单沉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兰丸这声音挺有特色的 有点听上瘾了
 
+
+
+*****
+
+####  khxooo  
+##### 84493#       发表于 2021-11-23 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658501&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-11-23 00:33</a>
+真要奶的话那就小太阳圣诞妇科，这是近期最合理的时间段了</blockquote>
+我认为直接开生放送的活动，然后圣诞复刻和新圣诞无缝。
+
+*****
+
+####  都谷捻柏  
+##### 84494#       发表于 2021-11-23 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657071&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 22:46:02</a>
+不是强化狂娜　３０变５０冲如何</blockquote>变500缓冲
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qixinno2  
+##### 84495#       发表于 2021-11-23 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658501&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-11-23 00:33</a>
+
+真要奶的话那就小太阳圣诞妇科，这是近期最合理的时间段了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我敢奶一口今年都不会复刻 顶多新年日替可能会出来 
+

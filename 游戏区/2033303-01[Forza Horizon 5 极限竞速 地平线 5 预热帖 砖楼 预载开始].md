@@ -14760,3 +14760,16 @@ lancia跟alfa有戏吗</blockquote>
 
 不过下一代真的要拓宽一点新玩法了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萱时令  
+##### 1340#       发表于 2021-11-23 00:42
+
+ 本帖最后由 萱时令 于 2021-11-23 00:49 编辑 
+
+地平线终究还是外传 下一作还要等游乐场先搞明白t10的新引擎
+声浪实录也是搭系列发展的光 我觉得5的开发过程中一定录了很多5中不会有的车的声音 给数字系列顺便准备
+保守预计6只有画面的进步 地图面积这种甚至会倒退<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
