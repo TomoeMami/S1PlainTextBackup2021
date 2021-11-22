@@ -7819,3 +7819,24 @@ op世界观人造味挺重的
 
 king这个弹射头部到底是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gutzz  
+##### 56101#       发表于 2021-11-22 14:54
+
+既然都要在刀上做文章了当初为什么要设计秋水换阎魔的剧情呢，剑圣的传承难道不比御田阴魂不散好看得多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+king和queen这两只谐星恐龙反而还保留了op一贯的风格，和之国扔开御田和他的几个小弟都挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穆  
+##### 56102#       发表于 2021-11-22 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650005&amp;ptid=98922" target="_blank">清真肥皂厂 发表于 2021-11-22 14:33</a>
+
+king这个弹射头部到底是怎么回事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">跟卡库  奎因一个性质 我很强但是我也很谐 你看着办吧
+

@@ -5042,3 +5042,80 @@ FGO運営
 萌没有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">惊了 竟然没仇凛 但你有的我没有的更多啊
 
+
+
+*****
+
+####  alucardcz  
+##### 84444#       发表于 2021-11-22 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然开了２期池
+
+*****
+
+####  zakki  
+##### 84445#       发表于 2021-11-22 17:09
+
+集美们，打拳真的有用<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84446#       发表于 2021-11-22 17:10
+
+话说一个周一就开的卡池有必要藏着掖着语音吗
+
+*****
+
+####  白金口袋  
+##### 84447#       发表于 2021-11-22 17:10
+
+DW还是厉害，这就放一只枪龙马出来堵梦女的嘴，“行了行了给你们一个了别要饭了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84448#       发表于 2021-11-22 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652503&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 17:09</a>
+
+集美们，打拳真的有用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波是立于不败之地　就算ｄｗ本来就这打算也没法证明是不是
+
+*****
+
+####  cckuku  
+##### 84449#       发表于 2021-11-22 17:10
+
+枪光炮卷的厉害啊
+
+*****
+
+####  angelooo  
+##### 84450#       发表于 2021-11-22 17:11
+
+乐子人狂喜乱舞中，这是dw骗了一波热搜（不
+
+
+
+*****
+
+####  angelooo  
+##### 84451#       发表于 2021-11-22 17:13
+
+仇信又强化了
+
+*****
+
+####  真红眼教授  
+##### 84452#       发表于 2021-11-22 17:21
+
+“继续打拳他们就会把NPC马上落地了”
+
+*****
+
+####  angelooo  
+##### 84453#       发表于 2021-11-22 17:22
+
+枪龙马这回收是不是可以洗洗睡了
+

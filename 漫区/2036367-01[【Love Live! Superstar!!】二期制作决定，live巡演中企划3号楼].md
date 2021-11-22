@@ -10730,3 +10730,19 @@ pb写真观摩完，感觉摄影师真的重要，之前那个voice+访谈怼正
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 984#       发表于 2021-11-22 17:06
+
+那两套我觉得还行啊，除了里面那件红色的……
+
+*****
+
+####  cybernetics31  
+##### 985#       发表于 2021-11-22 17:13
+
+fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是想看水着啥的
+
