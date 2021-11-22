@@ -10429,3 +10429,18 @@ sayu这拍的像是被章鱼脑控了<img src="https://static.saraba1st.com/imag
 
 周末传教大成功<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">开心
 
+
+
+*****
+
+####  cqc1021  
+##### 956#       发表于 2021-11-22 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645374&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-22 08:56</a>
+但是看之前的周刊JUMP里穿背心的照片还是可以的嘛
+
+算了，怎样都好，至少知道鲤鱼是真的健康向~</blockquote>
+鲤鱼这是我见过的最健全的周刊pb写真了，比乃木坂46上周刊pb拍的写真还健全<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

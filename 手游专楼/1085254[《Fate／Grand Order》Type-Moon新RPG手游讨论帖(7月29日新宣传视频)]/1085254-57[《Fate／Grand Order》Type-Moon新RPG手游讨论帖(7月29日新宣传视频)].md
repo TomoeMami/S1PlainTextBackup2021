@@ -4748,3 +4748,12 @@ FGO運営
 还有没有练的剑魔 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀狐  奥博龙 是新时代的拐 必须拉满  
 
+
+
+*****
+
+####  zakki  
+##### 84420#       发表于 2021-11-22 10:57
+
+奥伯龙实在太好用了，感觉不用到无限池就能满绊了，现在组队都是先放一个奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

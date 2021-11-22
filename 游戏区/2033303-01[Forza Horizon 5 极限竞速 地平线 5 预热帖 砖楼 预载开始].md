@@ -14618,3 +14618,12 @@ lancia跟alfa有戏吗</blockquote>
 
 原帖在reddit上，贴吧也有人发了
 
+
+
+*****
+
+####  fender0402  
+##### 1328#       发表于 2021-11-22 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">借楼问下，目前爽玩的话要什么设备比较划算？
+
