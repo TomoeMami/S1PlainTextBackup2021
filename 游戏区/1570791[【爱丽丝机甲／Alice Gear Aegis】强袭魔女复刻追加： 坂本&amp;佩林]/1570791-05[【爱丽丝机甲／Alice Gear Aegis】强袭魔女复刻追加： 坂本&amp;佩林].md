@@ -3650,3 +3650,12 @@ AGA的联动点击就送所有三星联动人物甚至不用刷活动，只有�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我记得入坑还是送点票的吧.....可以刷初始搏一搏？
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 6268#       发表于 2021-11-22 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏出货满没谱的，要么氪爆要么随缘吧？
+

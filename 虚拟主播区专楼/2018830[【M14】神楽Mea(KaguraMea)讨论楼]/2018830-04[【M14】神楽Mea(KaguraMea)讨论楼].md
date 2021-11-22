@@ -7924,3 +7924,53 @@ syl 问了一下明晚十点一小时，那这不是铁定没了
 
 我还以为会有观众投票环节呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 5418#       发表于 2021-11-22 21:13
+
+视角图谔谔
+
+F9JBMSM64Y[8[2MC1PVIXH3.jpg
+(190.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 21:13 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/211346r1s5x1vbx55b717v.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 5419#       发表于 2021-11-22 21:17
+
+短发的我好了
+
+*****
+
+####  T_Hb  
+##### 5420#       发表于 2021-11-22 21:17
+
+ 本帖最后由 T_Hb 于 2021-11-22 21:19 编辑 
+
+明年的立牌预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能出AB款骗钱
+
+*****
+
+####  雪风utopia  
+##### 5421#       发表于 2021-11-22 21:19
+
+至少不用活动都用证件照了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 5422#       发表于 2021-11-22 21:19
+
+Key Visual
+
+阿咩是想出个大海报吗（
+

@@ -5342,3 +5342,32 @@ NMD两单沉了
 这龙马三破感觉变黑了点？尤其是和一破的肤色比，也许是衣服的关系。然而，阿龙明显是变成白（粉白）毛了。 ...</blockquote>
 这个状态是罢**工了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 84478#       发表于 2021-11-22 21:07
+
+前几天看阿国讲跟天逆神什么仇什么怨讲的头头是道，怎么到处刑的时候这人全程在OMO啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 84479#       发表于 2021-11-22 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655776&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-22 21:07</a>
+
+前几天看阿国讲跟天逆神什么仇什么怨讲的头头是道，怎么到处刑的时候这人全程在OMO啊 ...</blockquote>
+人在维持结界啊
+
+*****
+
+####  里村紅葉  
+##### 84480#       发表于 2021-11-22 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655862&amp;ptid=1085254" target="_blank">シャル 发表于 2021-11-22 21:13</a>
+
+人在维持结界啊</blockquote>
+我说的是最后武市自刀的时候，我以前起码她会出来收个尾刀之类的，结果一转头去搞临终关怀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
