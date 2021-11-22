@@ -4806,3 +4806,42 @@ FGO運営
 需要他出来补伤害/NP的场合好像不太多，不过也可能是我最近一直在练新衣服
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人生啊  
+##### 84425#       发表于 2021-11-22 13:49
+
+隔壁拳师浓度真是越来越高了
+
+*****
+
+####  alucardcz  
+##### 84426#       发表于 2021-11-22 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649089&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 13:22</a>
+
+隔壁现在不是已经进化成
+
+不管啥问题先干一拳DW，然后开始怀疑是不是樱井先手下毒，再开始一个个排查甩锅了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新衣服这经验太少不应该已经满了吗  
+
+这次我都用的c狗狐狸奥某人
+
+*****
+
+####  exiaexa  
+##### 84427#       发表于 2021-11-22 13:55
+
+ 本帖最后由 exiaexa 于 2021-11-22 13:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649414&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 13:52</a>
+
+新衣服这经验太少不应该已经满了吗  
+
+这次我都用的c狗狐狸奥某人</blockquote>
+最近因为机战30摸得透彻
+
+新衣服还在8级，上个活动都是赶着DeadLine打完的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

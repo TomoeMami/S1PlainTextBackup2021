@@ -14639,3 +14639,17 @@ lancia跟alfa有戏吗</blockquote>
 借楼问下，目前爽玩的话要什么设备比较划算？</blockquote>
 xsx手柄已经很爽了，方向盘上手需要适应一阵
 
+
+
+*****
+
+####  qzy741147  
+##### 1330#       发表于 2021-11-22 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645578&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-22 09:15</a>
+
+之后更新的车辆被解包了，感觉都挺微妙的最近年份的车比较少，都是现有车辆的不同版本为主
+
+虽然TT ...</blockquote>
+还是疫情对产能造成了影响，包括游戏本身这么多bug，可能根本就来不及做了。这次近两年的新车真的少得可怜
+
