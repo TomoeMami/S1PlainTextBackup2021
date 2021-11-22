@@ -14751,3 +14751,12 @@ lancia跟alfa有戏吗</blockquote>
 
 而且有些车本身在FH4也是后期才发出来，大概率就是弄活动里
 
+
+
+*****
+
+####  Vladimeow  
+##### 1339#       发表于 2021-11-23 00:27
+
+不过下一代真的要拓宽一点新玩法了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

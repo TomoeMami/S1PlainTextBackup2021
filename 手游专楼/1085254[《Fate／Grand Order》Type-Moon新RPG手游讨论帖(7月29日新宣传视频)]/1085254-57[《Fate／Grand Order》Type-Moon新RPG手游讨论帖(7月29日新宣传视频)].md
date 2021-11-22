@@ -5458,3 +5458,31 @@ NMD两单沉了
 感谢经验值挽救了我被菌鸽鸽折磨得ボロボロ的兴趣
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 84490#       发表于 2021-11-23 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657071&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 22:46</a>
+
+不是强化狂娜　３０变５０冲如何</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么首先狂娜什么时候复刻啊
+
+*****
+
+####  angelooo  
+##### 84491#       发表于 2021-11-23 00:33
+
+<blockquote>qixinno2 发表于 2021-11-23 00:24
+那么首先狂娜什么时候复刻啊</blockquote>
+真要奶的话那就小太阳圣诞妇科，这是近期最合理的时间段了
+
+*****
+
+####  v22325  
+##### 84492#       发表于 2021-11-23 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兰丸这声音挺有特色的 有点听上瘾了
+
