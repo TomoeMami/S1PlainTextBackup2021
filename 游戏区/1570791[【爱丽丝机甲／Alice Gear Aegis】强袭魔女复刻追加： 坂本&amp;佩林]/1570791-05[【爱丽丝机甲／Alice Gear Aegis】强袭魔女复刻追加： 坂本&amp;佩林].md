@@ -3552,3 +3552,12 @@ boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</bloc
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以，可惜只有25票了
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 6260#       发表于 2021-11-22 15:44
+
+2d立绘是阿金脸，3d建模。。。大概成子坂伙食太好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
