@@ -4976,3 +4976,18 @@ FGO運営
 肯定够，除非不带50np的倍卡，纯六加成无np的话，那只有一部分np够，比如迦摩。不过如果不带倍卡也没要用 ...</blockquote>
 那俩一个还是锁助战一个没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84438#       发表于 2021-11-22 15:33
+
+ 本帖最后由 zakki 于 2021-11-22 15:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650732&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-11-22 15:21</a>
+
+那俩一个还是锁助战一个没有啊
+
+不过带50NP不是至少也要2面打300-50-20-50-70=110么，感觉挺难的啊 ...</blockquote>
+绿卡当然是只有6个怪的时候才能玩玩了，我万圣就是用莫莱刷的，魔总也可以，邪马台90+最优阵容就是魔总CBA奥伯龙。如果不是的话什么时候绿卡配打六加成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果是蓝卡无初始np六加成，绑定04服肯定够，村正，迦摩，仇凛等np没问题，都不需要开被动，30自充的开被动也可以，但像芝诺比阿这种没自充的就肯定不行了
+
