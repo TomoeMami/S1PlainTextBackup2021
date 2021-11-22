@@ -5172,3 +5172,42 @@ DW还是厉害，这就放一只枪龙马出来堵梦女的嘴，“行了行了
 
 现在只有是个5星就给50充和正脸特写<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84460#       发表于 2021-11-22 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653097&amp;ptid=1085254" target="_blank">quanlix 发表于 2021-11-22 17:44</a>
+现在只有是个5星就给50充和正脸特写</blockquote>
+妖兰啊，130冲，两个宝具都无正脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84461#       发表于 2021-11-22 17:47
+
+艹尼玛歪阿莫
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  exiaexa  
+##### 84462#       发表于 2021-11-22 17:50
+
+NMD两单沉了
+
+是个枪光炮不想加钱，明年见吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84463#       发表于 2021-11-22 17:54
+
+哟西，第二单出了，我又是拥有所有枪阶的男人了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
