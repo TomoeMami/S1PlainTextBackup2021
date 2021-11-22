@@ -11057,3 +11057,18 @@ tmd，星团怎么成了这个样子.jpg
 台上的东西别想太多，嗑就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 星还是时间太短，说白了成员之间现在都还在磨合熟悉，缪水都是两三年后渐渐从广播节目和日常生活返照之类的才能渐渐看出成员之间关系到底谁和谁比较近<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zylwz  
+##### 1012#       发表于 2021-11-23 01:40
+
+<blockquote>saglork 发表于 2021-11-23 01:16
+这还用怀疑吗，从缪中后期，运营就已经在刻意添加了
+
+台上的东西别想太多，嗑就是了
+
+星还是时间太 ...</blockquote>
+不过星有个好处是年轻  年轻人之间更容易交心一点 磨合时间没准比老油条社会人要短
+
