@@ -4787,3 +4787,22 @@ FGO運営
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是我不会用 我的奥伯龙除了在C狗三连时搭配杀狐外 其他时候完全不知道怎么配 还是必须要2宝以上打一面
 
+
+
+*****
+
+####  exiaexa  
+##### 84424#       发表于 2021-11-22 13:22
+
+隔壁现在不是已经进化成
+
+不管啥问题先干一拳DW，然后开始怀疑是不是樱井先手下毒，再开始一个个排查甩锅了吗
+
+跟风闹一下有啥奇怪的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便你们奥伯龙怎么都这么快的，我的奥伯龙至今还在羁绊5
+
+需要他出来补伤害/NP的场合好像不太多，不过也可能是我最近一直在练新衣服
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
