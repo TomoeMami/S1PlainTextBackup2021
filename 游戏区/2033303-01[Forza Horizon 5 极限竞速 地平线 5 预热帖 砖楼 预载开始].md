@@ -14627,3 +14627,15 @@ lancia跟alfa有戏吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">借楼问下，目前爽玩的话要什么设备比较划算？
 
+
+
+*****
+
+####  江宁老实人  
+##### 1329#       发表于 2021-11-22 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53647039&amp;ptid=2033303" target="_blank">fender0402 发表于 2021-11-22 11:00</a>
+
+借楼问下，目前爽玩的话要什么设备比较划算？</blockquote>
+xsx手柄已经很爽了，方向盘上手需要适应一阵
+
