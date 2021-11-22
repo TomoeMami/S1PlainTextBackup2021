@@ -10827,3 +10827,15 @@ fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/fa
 
 比较公允地看，动画其实也就7-8和12拉胯了，其他的都在LL平均水平上，然后1-3和10是两个神回
 
+
+
+*****
+
+####  名津流  
+##### 992#       发表于 2021-11-22 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654858&amp;ptid=2036367" target="_blank">qratosone 发表于 2021-11-22 20:05</a>
+
+比较公允地看，动画其实也就7-8和12拉胯了，其他的都在LL平均水平上，然后1-3和10是两个神回 ...</blockquote>
+有4集，占1/3的篇幅是神回，放其他新番里已经算是很不错的了吧
+

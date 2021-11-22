@@ -20282,3 +20282,12 @@ steam版阉割的“alt纯夏的真相”，原版可是不亚于名场面的存
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hlazd  
+##### 1423#       发表于 2021-11-22 21:53
+
+应该是黑色无语雷在动画的首次亮相
+

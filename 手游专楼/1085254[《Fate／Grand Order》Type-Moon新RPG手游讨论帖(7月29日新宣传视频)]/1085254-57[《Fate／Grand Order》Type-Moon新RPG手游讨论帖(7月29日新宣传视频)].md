@@ -5371,3 +5371,29 @@ NMD两单沉了
 人在维持结界啊</blockquote>
 我说的是最后武市自刀的时候，我以前起码她会出来收个尾刀之类的，结果一转头去搞临终关怀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 84481#       发表于 2021-11-22 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655907&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-22 21:15</a>
+
+我说的是最后武市自刀的时候，我以前起码她会出来收个尾刀之类的，结果一转头去搞临终关怀了 ...</blockquote>
+她的作用就是事先做好了锁让他安心自刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 84482#       发表于 2021-11-22 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇信长都强化两次了 仇凛什么时候才能获得强化
+
+*****
+
+####  里村紅葉  
+##### 84483#       发表于 2021-11-22 21:57
+
+泥潭这个吞帖子是好不了了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
