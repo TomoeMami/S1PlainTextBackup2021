@@ -10746,3 +10746,31 @@ pb写真观摩完，感觉摄影师真的重要，之前那个voice+访谈怼正
 
 fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是想看水着啥的
 
+
+
+*****
+
+####  ads147147  
+##### 986#       发表于 2021-11-22 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650184&amp;ptid=2036367" target="_blank">emmer 发表于 2021-11-22 14:46</a>
+不是有后续的明日香吗</blockquote>
+去查了下还真是，和鸟的那个都隔了多少年了，果然是炫技吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ads147147  
+##### 987#       发表于 2021-11-22 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649581&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:04</a>
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
+层主心态好就好。
+
+个人是没办法把这种严重逻辑问题的两集当做对不对电波来处理。个人理解是贩卖梦想也要讲究个工匠精神，起码得尊重观众，然而没有，导致恋现在孤狼一样的处境，还得靠中之人收拾残局。
+
+如果访谈冒出来说就是要弄成这样符合青山孤狼性格的剧情，那我只能说那大合唱wish song干啥。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

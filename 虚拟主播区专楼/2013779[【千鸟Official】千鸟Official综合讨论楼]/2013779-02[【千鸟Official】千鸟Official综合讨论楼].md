@@ -13027,3 +13027,45 @@ https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0
 
 问下，前任文静转生了吗？
 
+
+
+*****
+
+####  rgauss  
+##### 2902#       发表于 2021-11-22 17:27
+
+ 本帖最后由 rgauss 于 2021-11-22 17:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652738&amp;ptid=2013779" target="_blank">vale_hana 发表于 2021-11-22 17:22</a>
+问下，前任文静转生了吗？</blockquote>
+404 之前不套皮直播 现在在准备套皮转生
+
+*****
+
+####  vale_hana  
+##### 2903#       发表于 2021-11-22 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652824&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-22 17:27</a>
+404 之前不套皮直播 现在在准备套皮转生</blockquote>
+麻烦指个路呗，谢谢
+
+*****
+
+####  rgauss  
+##### 2904#       发表于 2021-11-22 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652869&amp;ptid=2013779" target="_blank">vale_hana 发表于 2021-11-22 17:30</a>
+麻烦指个路呗，谢谢</blockquote>
+"4040v0" 不过 好像还没准备好皮套
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| vale_hana| + 1|感谢|
+
+查看全部评分
+

@@ -14696,3 +14696,25 @@ lancia跟alfa有戏吗</blockquote>
 还是疫情对产能造成了影响，包括游戏本身这么多bug，可能根本就来不及做了。这次近两年的新车真的少得可 ...</blockquote>
 能把FH4的bug原封不动搬过来，就嗯换皮是吧
 
+
+
+*****
+
+####  aaronluray  
+##### 1335#       发表于 2021-11-22 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652322&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-22 16:57</a>
+
+能把FH4的bug原封不动搬过来，就嗯换皮是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得提前玩的时候贴吧就有人卡bug，主界面的中文显示的是地平线4
+
+*****
+
+####  920619lqy  
+##### 1336#       发表于 2021-11-22 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652822&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-22 03:27</a>
+
+记得提前玩的时候贴吧就有人卡bug，主界面的中文显示的是地平线4</blockquote>
+以后也别光嘲笑EA的年货体育游戏换皮了，这操场几年一作还不是一样
+
