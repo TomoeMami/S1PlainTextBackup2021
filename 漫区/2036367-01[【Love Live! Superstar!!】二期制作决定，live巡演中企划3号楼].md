@@ -10964,3 +10964,54 @@ BV1RU4y1M7j4
 
 nagi最近跟nako贴贴好多啊，不再是孤狼一个了，真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1003#       发表于 2021-11-22 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657649&amp;ptid=2036367" target="_blank">JustW_2 发表于 2021-11-22 23:26</a>
+虽然完结这么久了，也不太想车tv，但回过头看，1-3和10的观感好，很大程度上归功于唐可可这一角色的 ...</blockquote>
+可可塑造好，那也是因为可可就是老立德模板了，这导致了后面糟糕的部分就在于花田必须把不适合立德的香音强行拉到立德上去，导致香音传强行发生。只能说突破常规角色真的别找笔力低的人去写，真的塑造的特别糟糕，几次角色成长都弄得特别僵硬，还会强行塞过去没见过的设定去擦屁股（特别是千香的部分）。
+
+某种意义上Liella这种明明是团队却弄得一盘散沙的割裂感，就是试图塑造不同的角色定位，但花田没能战胜自己的不适区，最后翻车。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cat1230  
+##### 1004#       发表于 2021-11-22 23:46
+
+liyuu这写真销量今日棒1啊，挺不错的，目前还只有3个5星好评。
+
+顺便青山上月底那本电子写真也看了下目前不到一个月的时间打星的有269人，评分4.8。稍微对比了下亚马逊关联推送的其他写真，好评人数和分数都是相当相当高的，而且也是衣服穿得最保守的。
+
+期待鲤鱼这本也大卖~~
+
+*****
+
+####  JustW_2  
+##### 1005#       发表于 2021-11-22 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657730&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-22 23:33</a>
+
+在微博上看到好几个不同版本的这种“X秒内找出唐可可”的图，太搞了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还行，至少发型有不小区别
+
+*****
+
+####  Norkey1  
+##### 1006#       发表于 2021-11-22 23:56
+
+青山和nako互动也是超直球啊(*ﾟﾛﾟ)
+tmd，星团怎么成了这个样子.jpg
+
+*****
+
+####  中野四葉  
+##### 1007#       发表于 2021-11-23 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">警惕打女同牌
+
