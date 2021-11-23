@@ -9544,3 +9544,1015 @@ B站那个UP徐老师，感觉多看几期越看越觉得水准有限，昨天�
 
 第二季能播点其他地区吗，想看展现符文大陆各地风貌，金克丝这摊子事感觉写成这样也差不多了，后续搞点小说或者游戏事件来补完呗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qingshuihe  
+##### 2427#       发表于 2021-11-22 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646950&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 10:55</a>
+
+B站那个UP徐老师，感觉多看几期越看越觉得水准有限，昨天居然在腾讯节目里说艾克在那段打斗里放大了，艾克 ...</blockquote>
+无非是看个彩蛋，这种大up背书，定了风向也就大差不差了。他的观众里不知道多少都是云的都没看完整过呢。
+
+*****
+
+####  狼影者瑞德克斯  
+##### 2428#       发表于 2021-11-22 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53647204&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 11:10</a>
+
+不知道狼人能不能恢复人性啊，预告最后是狼嚎，铁定是要出场了，如果能来个范德尔金克丝蔚的重聚会很有意思 ...</blockquote>
+狼人不闻到血掉的时候有人性，但是也就只是人性了，记忆都被折磨得支离破碎了
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2429#       发表于 2021-11-22 11:36
+
+<blockquote>文文情报屋 发表于 2021-11-22 11:05
+jinx其实已经很清楚vi不可能接受现在的自己了，但是她还想最后试一试
+
+在大桥上vi看见杀气腾腾的jinx，背着 ...</blockquote>
+   最后宴会的文戏足以体现编剧的功力有多深
+
+  蔚杀了女警，金克丝就真能变回爆爆吗？爆爆金克丝是2人格其实一直是蔚的一厢情愿罢了，在金克丝开心的扫射野火帮的时候在金克丝爆炸袭击执法官的时候 蔚就打心底不愿承认现在这个杀人狂疯子是自己的妹妹。
+
+  金克丝也知道蔚没法下杀手，但想让蔚为自己成为现在这样子担责 让蔚承认现在的自己。
+
+  结果事情和以往一样脱离了金克丝的掌控，蔚像别的动漫主角一样说2个我都不选选第三条路。但这正是让金克丝崩溃的地方蔚宁愿离开家乡离开女在不相见也不愿承认现在的自己，而另一边希尔科急了知道金克丝真走了那肯定未来在蔚认清金克丝真面目时候2人还要闹翻。然后金克丝精神病发作打碎灯女警脱离掌控之后的发展就更是命运的捉弄，宴会屋顶满满的乌鸦暗示金克丝真的是厄运之人（排除斯维因可能性的话）。
+
+  编剧为了让金克丝疯的合理可以说是煞费苦心，DC里小丑糟糕的一天让小丑发疯，金克丝这边一次不够来2次2次不够来3次。更恐怖的是正如稻草人的话语一样金克丝都是你的错，每次厄运降临都源于金克丝的行动
+
+*****
+
+####  有优越感的人mk2  
+##### 2430#       发表于 2021-11-22 11:56
+
+我其实觉得第九集结尾已经很完美了，后面只需要一些官方小说就行，希望第二季做别的内容，现在这些角色稍微出场给个交代就行
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  厄神之息  
+##### 2431#       发表于 2021-11-22 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646950&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 10:55</a>
+
+B站那个UP徐老师，感觉多看几期越看越觉得水准有限，昨天居然在腾讯节目里说艾克在那段打斗里放大了，艾克 ...</blockquote>
+正经看背景的人谁看徐老师啊，照着背景故事总结懒人包都总结不明白的节目，之前节目还说过塞拉斯完克加里奥这种小学生级比战力的神论，细节彩蛋推测也全是贴吧知乎别人嚼烂的推测他就拿来说，他对背景的兴趣无限接近于没有，就是为了吃这碗饭而已。现在还算好的了，一开始真的是背景都没读完就瞎逼说被lks阴阳怪气骂了之后才收敛了一点，不过lks最后也是走上了章承恩的老路，实话说他后来不做lol编年史转做科技区对他对lol背景爱好者都是好事。
+
+*****
+
+####  飞升之后  
+##### 2432#       发表于 2021-11-22 11:59
+
+徐老师听一乐就行，不如水母
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  saynie  
+##### 2433#       发表于 2021-11-22 12:09
+
+嘴上说着为了大业，实际上贩卖新型药物掌控地下势力的设定，有点像最近玩的《海沙风云》，不过希尔科最少还有点人性。
+
+可惜科罗莎虽然也有机械拳套，但没有VI能打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  beanbeam  
+##### 2434#       发表于 2021-11-22 13:25
+
+这片儿的画面和前后剧情真是时不时洋溢着工整呼应的美，光二五仔那个角色，都能用打火机作为贯穿线索的小道具玩儿出花来。
+
+*****
+
+####  ooohaoguai2  
+##### 2435#       发表于 2021-11-22 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53648063&amp;ptid=2002246" target="_blank">saynie 发表于 2021-11-22 12:09</a>
+
+嘴上说着为了大业，实际上贩卖新型药物掌控地下势力的设定，有点像最近玩的《海沙风云》，不过希尔科最少还 ...</blockquote>
+微光是炼金科技的基础，是大发明家口中科技不加以节制的结果，但是很明显底层人没有对科技斟酌更久的资格；不能单纯认为是现实世界中的药物滥用
+
+*****
+
+####  暗黑能乐  
+##### 2436#       发表于 2021-11-22 14:21
+
+我还是觉得金克丝确确实实的是有两个人格的，又或者她的两种属性是有明显的主导期的，在4-6集你能感受到很多疯狂的行径言论流露于表，但是蔚出现后就很明显的受到了压制，说话做事都是在克制自己。看看第九话宴会那段，一开始很明显的是JINX，各种调侃以及捉弄人的举措，但是在蔚向她提出了远走高飞的选项后，她就陷入了自我斗争，因为这个提案对powder人格的诱惑力太大了，所以她又陷入了自我斗争。直到最后希尔科死了，她也依然是powder人格主导，她并不是像第四话那样带着快感去做恶事，而是看起来很痛苦地决定了要做JINX才会做的事。
+
+*****
+
+####  古凌锋  
+##### 2437#       发表于 2021-11-22 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649856&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 14:21</a>
+
+我还是觉得金克丝确确实实的是有两个人格的，又或者她的两种属性是有明显的主导期的，在4-6集你能感受到很 ...</blockquote>
+人会纠结不代表就人格分裂呀（虽然她确实脑子有病
+
+*****
+
+####  暗黑能乐  
+##### 2438#       发表于 2021-11-22 15:03
+
+ 本帖最后由 暗黑能乐 于 2021-11-22 15:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650204&amp;ptid=2002246" target="_blank">古凌锋 发表于 2021-11-22 14:47</a>
+
+人会纠结不代表就人格分裂呀（虽然她确实脑子有病</blockquote>
+我是想表示她状态确实不一样，而那种很疯的状态才是JINX，但至少第九话末尾的她不太JINX。其实希尔科是很明显的怕她变回powder的，所以他才会阻挠两人见面，想先杀了蔚，在事情暴露后依然在扯谎挽留。并不是希尔科更懂她更能接纳她所以金克丝最后选择了JINX的，而是希尔科付出了更多，我是这么认为的。
+
+*****
+
+####  银枪子龙  
+##### 2439#       发表于 2021-11-22 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">我怎么想到的俏如来和默苍离，铸心之计
+
+*****
+
+####  文文情报屋  
+##### 2440#       发表于 2021-11-22 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650474&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 15:03</a>
+
+我是想表示她状态确实不一样，而那种很疯的状态才是JINX，但至少第九话末尾的她不太JINX。其实希尔科是很 ...</blockquote>
+我的理解是jinx一直想要的是一种包容的爱，即便自己做错了，搞砸了，也能原谅她的那种来自父母亲人的爱
+
+而这种爱只有小时候的vi给过她
+
+成年后的她对vi的感情是复杂的
+
+她当然知道当年是自己搞砸了，所以才会一直看到幻觉，那是她的负罪感
+
+希尔科对她很好，但是她总是觉得不踏实，她知道当年希尔科是想杀了她，她认为希尔科之所以留着自己是因为自己能打能杀
+
+所以当vi回来的时候她很矛盾
+
+一方面希望找回当年那种爱，另一方面又害怕vi看到如今自己这副杀人狂的模样嫌弃自己
+
+所以会在第一次见面的时候特别强调我变了
+
+然而最终vi在大桥上还是背弃了金克斯
+
+和艾克的对决激起儿时那快乐的回忆，那个时候金克斯大概知道已经无法回头，万念俱灰的她，可能觉得死在这个“快乐”的瞬间大概也不坏
+
+然而她没有死
+
+此刻她变的更加不人不鬼，然后她又恰巧听到希尔科的自白，以为希尔科也要背叛自己
+
+对自身境地的愤恨让她开始仇恨vi，仇恨希尔科
+
+“明明是你们把我变成了这样，可是你们却想不要我”
+
+于是就有了那场怕是让vi一辈子也忘不了的晚宴
+
+最后的最后，金克斯发现，其实希尔科真的爱她，她一直在vi身上追寻不得的那种无条件的爱，希尔科给了
+
+她得到了她最想要的一切，也在同一时刻失去了一切。
+
+此时，她不再需要vi了，她也不再需要爆爆了，于是她变成了金克斯，也放下了对vi的执着
+
+走向了“新生”
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ColinWine| + 1|好评加鹅|
+| John-Smith| + 1||
+| 摸鱼先锋| + 1|好评加鹅|
+| blckfyre| + 1||
+
+查看全部评分
+
+*****
+
+####  枫林不见  
+##### 2441#       发表于 2021-11-22 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650532&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-22 15:07</a>
+我怎么想到的俏如来和默苍离，铸心之计</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这一次，你做的很好
+
+*****
+
+####  枫林不见  
+##### 2442#       发表于 2021-11-22 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641695&amp;ptid=2002246" target="_blank">ooohaoguai2 发表于 2021-11-21 21:36</a>
+梅尔大概率是没了。这意味伴随着双城开战，梅尔的妈出于感情和家族一定会全力介入；而乌鸦（梅尔家族的敌人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">梅尔感觉身上有一个金身，估计死不了
+
+*****
+
+####  theti  
+##### 2443#       发表于 2021-11-22 16:27
+
+看第二季预告，怎么也不可能是放下vi呀，只能是你
+
+*****
+
+####  武男  
+##### 2444#       发表于 2021-11-22 16:43
+
+ 本帖最后由 武男 于 2021-11-22 16:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53634018&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-21 12:27</a>
+
+又简略看了一遍英配，希尔科虽然是个畜生，但是还是唏嘘啊，最后活成了兄弟的样子，而且跟范德尔一样，死的 ...</blockquote>
+杰斯大概是没成长的杯面吧，金克斯这大概类似于小丑。
+
+*****
+
+####  文文情报屋  
+##### 2445#       发表于 2021-11-22 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53651785&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-22 16:27</a>
+
+看第二季预告，怎么也不可能是放下vi呀，只能是你</blockquote>
+这一季可以说大部分时候是金克斯追着vi跑，希望vi不要抛弃自己，希望vi再爱自己一次
+
+1-3明显是爆爆努力的证明自己，试图追上vi，结果搞砸爆炸
+
+4-6算是重新认识，两人终于短短的一起走了一会儿，然后vi就给抓走了，爆爆继续追她
+
+然后第七集大桥之后，vi自己跑开，后面也一直没去找金克斯，直到她被抓去晚宴，最后在一片狼藉中，追着vi跑的爆爆彻底退场，希尔科的女儿金克斯独自向前，把不知所措的vi扔在身后
+
+从第二季预告那几句来说
+
+是vi和女警决定去追捕金克斯
+
+明显立场逆转了
+
+我相信，经历了这一切之后，vi也会有点成长，会去思考怎么面对自己的妹妹
+
+*****
+
+####  qingshuihe  
+##### 2446#       发表于 2021-11-22 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652065&amp;ptid=2002246" target="_blank">武男 发表于 2021-11-22 16:43:43</a>
+杰斯大概是没成长的杯面吧，金克斯这大概类似于小丑。</blockquote>不能简单类比的，老爷追求和杰斯也不一样。金克斯和小丑也不一样。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  武男  
+##### 2447#       发表于 2021-11-22 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652198&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-22 16:50</a>
+
+不能简单类比的，老爷追求和杰斯也不一样。金克斯和小丑也不一样。
+
+  -- 来自 能看大图的 Stage1官方 Andr ...</blockquote>
+也是，突发奇想，突发奇想
+
+*****
+
+####  lucifer5455  
+##### 2448#       发表于 2021-11-22 17:26
+
+<blockquote>文文情报屋 发表于 2021-11-22 16:47
+这一季可以说大部分时候是金克斯追着vi跑，希望vi不要抛弃自己，希望vi再爱自己一次
+
+1-3明显是爆爆努力的 ...</blockquote>
+赞同，这一季主要是讲金克丝的，结尾金克丝已经升6了成为暴走萝莉了，而蔚其实并没有成长。下一季感觉要对蔚的成长了，交代下怎么成为皮城执法官的，另外就是讲讲杰斯的未来守护者，维克托的机械先驱，艾克的时间刺客这些头衔怎么来的了。
+
+*****
+
+####  暗黑能乐  
+##### 2449#       发表于 2021-11-22 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652793&amp;ptid=2002246" target="_blank">lucifer5455 发表于 2021-11-22 17:26</a>
+
+赞同，这一季主要是讲金克丝的，结尾金克丝已经升6了成为暴走萝莉了，而蔚其实并没有成长。下一季感觉要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾克八成是要吃书了，这倒带能力没黑默丁格帮忙我不不信的，甚至我觉得这能力和魔法更接近，单凭艾克一个人哪倒腾的出来
+
+*****
+
+####  lucifer5455  
+##### 2450#       发表于 2021-11-22 17:41
+
+<blockquote>暗黑能乐 发表于 2021-11-22 17:36
+艾克八成是要吃书了，这倒带能力没黑默丁格帮忙我不不信的，甚至我觉得这能力和魔法更接近，单凭 ...</blockquote>
+这倒无所谓，吃书是常态。
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2451#       发表于 2021-11-22 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652959&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 17:36</a>
+
+艾克八成是要吃书了，这倒带能力没黑默丁格帮忙我不不信的，甚至我觉得这能力和魔法更接近，单凭 ...</blockquote>
+能力要改很正常,在个人剧情还好 在这种多人互动的剧集里,有个随便时间倒流的人对编剧来说太难顶
+
+*****
+
+####  lucifer5455  
+##### 2452#       发表于 2021-11-22 18:01
+
+第一季出场的主要英雄人物，感觉完全体就两个:大发明家和皮城女警。蔚和杰斯他们这些明显还有成长故事线没讲。
+
+*****
+
+####  新的起源  
+##### 2453#       发表于 2021-11-22 18:24
+
+说个无关的
+
+程璐要回lck了
+
+我伤心的都吃不下饭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  飞升之后  
+##### 2454#       发表于 2021-11-22 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653630&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-22 18:24</a>
+
+说个无关的
+
+程璐要回lck了</blockquote>
+程璐是谁？
+
+*****
+
+####  lucifer5455  
+##### 2455#       发表于 2021-11-22 18:35
+
+<blockquote>飞升之后 发表于 2021-11-22 18:29
+程璐是谁？</blockquote>
+姜承録 the shy
+
+*****
+
+####  lucifer5455  
+##### 2456#       发表于 2021-11-22 18:36
+
+不过回就回了，就他这两年表现的水平真的还不如可汗
+
+*****
+
+####  飞升之后  
+##### 2457#       发表于 2021-11-22 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653778&amp;ptid=2002246" target="_blank">lucifer5455 发表于 2021-11-22 18:35</a>
+
+姜承録 the shy</blockquote>
+哪里的小道消息，红叉区都没炸，等官宣
+
+*****
+
+####  tornadoDA  
+##### 2458#       发表于 2021-11-22 19:46
+
+<blockquote>lucifer5455 发表于 2021-11-22 18:01
+第一季出场的主要英雄人物，感觉完全体就两个:大发明家和皮城女警。蔚和杰斯他们这些明显还有成长故事线没 ...</blockquote>
+大头距离疯狂制造军火还有段剧情吧？
+
+*****
+
+####  弗林蒂萨  
+##### 2459#       发表于 2021-11-22 19:49
+
+ts要真走了，我接受不了，从秃子开始喜欢ig这么多年了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊斯坎达尔王  
+##### 2460#       发表于 2021-11-22 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646950&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 10:55</a>
+
+B站那个UP徐老师，感觉多看几期越看越觉得水准有限，昨天居然在腾讯节目里说艾克在那段打斗里放大了，艾克 ...</blockquote>
+他的视频就图一乐，倒不是说他做得不认真，就是个人（或者团队）水平有限
+
+阅读理解错误、小学生战力比较都是常有的事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  bairn  
+##### 2461#       发表于 2021-11-22 20:07
+
+回就回了  我是不信他还有救的
+
+*****
+
+####  theti  
+##### 2462#       发表于 2021-11-22 20:13
+
+徐老师就图一乐，给动画引点流也是好的
+
+*****
+
+####  lucifer5455  
+##### 2463#       发表于 2021-11-22 20:14
+
+好像从LPL回LCK的没有水平不下滑的吧
+
+*****
+
+####  厄神之息  
+##### 2464#       发表于 2021-11-22 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53644253&amp;ptid=2002246" target="_blank">西瓜不甜不甜 发表于 2021-11-22 01:18</a>
+
+而且还都是兢兢业业为第二故乡添砖加瓦，大头、波比、克烈、凯南等等，约德尔人真是不简单 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是，克烈在诺克萨斯除了大头兵把他的故事当传说，真正的权贵阶级都要烦死这个不知道哪冒出来的占地为王的无编制土皇帝了。
+
+*****
+
+####  新的起源  
+##### 2465#       发表于 2021-11-22 20:45
+
+lol rpg已经实锤狐狸不是处了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  我不是大叔  
+##### 2466#       发表于 2021-11-22 20:52
+
+又看了一遍，拳头是不是所有动画工作室梦寐以求的甲方，虽然是命题作文，但给的创作自由真的太大了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  sandro  
+##### 2467#       发表于 2021-11-22 20:58
+
+啥时候可以看到瑞兹大光头啊
+
+*****
+
+####  摸鱼先锋  
+##### 2468#       发表于 2021-11-22 21:12
+
+ 本帖最后由 摸鱼先锋 于 2021-11-22 21:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643764&amp;ptid=2002246" target="_blank">309465205 发表于 2021-11-22 00:32</a>
+
+其实死在jinx手里,让jinx彻底成为jinx,我觉得希尔科是乐意了</blockquote>
+是的，这几天细琢磨这处情节感觉挺绝的，那种局面之下当希尔科拿起枪的一瞬间金克丝就注定会成为完全体金克丝了，不管是为了救蔚给希尔科突突了还是没救下蔚蔚被希尔科突突了完全体金克丝都会诞生，前者是真实发生的剧情，后者的话蔚真挂了金克丝估计也是转头就给希尔科一梭子，姐和爹都没了怕是精神崩溃得更彻底我感觉希尔科电光火石之间想不到这么多，但就结果而言除了他自己挂了确实一切都向着他想要的方向发展了，完美的祖安之女诞生了，傲慢的皮尔特沃夫议会也遭受了惨痛的代价
+
+*****
+
+####  摸鱼先锋  
+##### 2469#       发表于 2021-11-22 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643889&amp;ptid=2002246" target="_blank">sjbssd 发表于 2021-11-22 00:44</a>
+
+不行，感觉金克丝直到最后都有爆爆的灵魂在体内，轰出炸弹的时候没有那种纯粹的恶，内心还是在挣扎，这个感 ...</blockquote>
+最后轰炸弹时候那眼神哪有一点金克丝的影子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lost_恩恩  
+##### 2470#       发表于 2021-11-22 21:18
+
+<img src="https://img.saraba1st.com/forum/202111/22/211633m9cgb8c3rg4s4sa6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211122_211047_tv.danmaku.bili.jpg</strong> (114.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 21:16 上传
+
+一些背景真的很有意思，前面提到梅尔将军与杰斯聊天，后面的背景暗示两人的主动权
+
+大头这个背景，仿佛在嘲笑大头这个300多岁的智者一无所知
+
+*****
+
+####  摸鱼先锋  
+##### 2471#       发表于 2021-11-22 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649856&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-22 14:21</a>
+
+我还是觉得金克丝确确实实的是有两个人格的，又或者她的两种属性是有明显的主导期的，在4-6集你能感受到很 ...</blockquote>
+从那场晚宴她吐露真情实感开始就一点金克丝影子都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摸鱼先锋  
+##### 2472#       发表于 2021-11-22 21:42
+
+这剧火是火，讨论氛围是真不好，杰斯上了黑妹就杰÷，进议会就资本守护者，好歹最后下去抡锤子洗白了，到金克丝这就一水金÷，稍微分析下相关剧情金孝子帽子就扣上来了（然后一投票又全是金克丝第一，也是无语子），各种扯现实什么你分析杀人犯跟杀人犯共情试试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我寻思我就看个动画片啊，哪有那么多有的没的，再说现实不也有研究社会心理学犯罪心理学的，至于这么魔怔么
+
+*****
+
+####  qingshuihe  
+##### 2473#       发表于 2021-11-22 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656149&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-22 21:34</a>
+
+从那场晚宴她吐露真情实感开始就一点金克丝影子都没有在希尔科死之前就好几次有想哭的表情了，最 ...</blockquote>
+金克斯这种海克斯都能搞定的大佬，智商肯定不低，我倾向于爆爆和金克斯人格是共存的，或者根本就不算人格，只是性格的2个方面。
+
+*****
+
+####  阿刚  
+##### 2474#       发表于 2021-11-22 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656284&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-22 21:47</a>
+
+金克斯这种海克斯都能搞定的大佬，智商肯定不低，我倾向于爆爆和金克斯人格是共存的，或者根本就不算人格 ...</blockquote>
+嗯，不是那种分成两个的人格，而是性格的软弱面，爆爆意味着自己的可以继续躲在vi的身后
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2475#       发表于 2021-11-22 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655937&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-22 21:18</a>
+
+一些背景真的很有意思，前面提到梅尔将军与杰斯聊天，后面的背景暗示两人的主动权
+
+大头这个背景，仿佛在嘲 ...</blockquote>
+CL:其实，很多都属于Fortiche自己的风格，我们只是在寻找并且被他们吸引了。我认为刚才你提到的风格在他们早期的作品来看已经具备了——它十分动画化并且有一些同样《英雄联盟》游戏所具有的风格化特点。总之在大屏幕上看着会有一种非常亲切的感觉。
+
+我们投入大量精力去打磨的主要是“如何让镜头表现得更像真的是有人手持相机拍摄”。举个例子，一个很简单的例子：爆爆，也就是JINX小的时候，她的头发是怎么剪的？看上去像是她自己剪的，她似乎并没有多考虑如果剪掉会是什么样子”。全片充满了这样的小细节，在动画中有时一眨眼就过去了。但是我认为我们需要达到那种电影化的级别，因此我们总是在追逐这些电影化的表现。
+
+有很多次，我们不得不说：“好吧，我们必须停下，因为她的头发看上去不对。我不知道，因为光线？因为太简单？或者我们需要不同的元素去塑造饱满的生活感。”我觉得所有都归功于这些不完美的瑕疵。每当你制作那些“真实”的东西，它永远都不会是完美的。你总是尽可能地接近完美，但永远不会达到。当我们制作一些东西，比如小水滴在镜头上的感觉，或是故意的不完美对焦，如何人为地去打造这些东西对我们来说总是最大的疑问。
+
+可以说，Fortiche是一个非常特殊的工作室，这些是他们独特的风格。他们无疑非常喜欢这些独特的东西。我们在巴黎这里，那些艺术的视角和对自身技术的自豪感是让整部《英雄联盟：双城之战》最终成为如今这样的作品的重要原因。
+
+转载[https://weibo.com/ttarticle/p/show?id=2309404706390244720732](https://weibo.com/ttarticle/p/show?id=2309404706390244720732) 
+
+双城之战的用心程度怕不是精细到帧
+
+*****
+
+####  qxs  
+##### 2476#       发表于 2021-11-22 22:07
+
+<blockquote>他们作为非常有天分的核心成员在早期参与搭建了《英雄联盟》的宇宙。Riot说服Netflix让开发者们领导动画剧集的制作，并且最终证明这是有效的，真的、真的非常有效。</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2477#       发表于 2021-11-22 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656506&amp;ptid=2002246" target="_blank">qxs 发表于 2021-11-22 22:07</a></blockquote>
+[https://metro.co.uk/2021/11/07/a ... vie-curse-15552044/](https://metro.co.uk/2021/11/07/arcane-interview-league-of-legends-breaks-the-video-game-movie-curse-15552044/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">才看见,上面这里是原文,译者瞎搞?
+
+*****
+
+####  lost_恩恩  
+##### 2478#       发表于 2021-11-22 22:13
+
+维克托的剪辑视频播放百万，被顶上B站热门，up一看就是罗云熙粉丝，关键是，剪的还不错，玛德，饭圈果然有点东西
+
+*****
+
+####  qxs  
+##### 2479#       发表于 2021-11-22 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656535&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-22 22:10</a>
+
+https://metro.co.uk/2021/11/07/arcane-interview-league-of-legends-breaks-the-video-game-movie-curs ...</blockquote>
+没瞎搞，只是这句话太有意思了。 It really, really works.
+
+*****
+
+####  晨风零雨426  
+##### 2480#       发表于 2021-11-22 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656237&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-22 21:42</a>
+
+这剧火是火，讨论氛围是真不好，杰斯上了黑妹就杰÷，进议会就资本守护者，好歹最后下去抡锤子洗白了，到金 ...</blockquote>
+自我规制的高度驯化人类是这样的，依靠不假思索地公开批评一切看到的“不和谐”来自我满足。
+
+*****
+
+####  晨风零雨426  
+##### 2481#       发表于 2021-11-22 22:26
+
+另外这片因为鹅国钱多搞了同步上映，结果很多老爷到了第六集开始后知后觉味道不对……
+
+其实这片子在很多方面都很刺老爷的G点，比如渲染阶级对立冲突、刻画底层暴力、展现上层腐败、大量军警暴力执法和戒严场景、最后结束于底层献忠人对顶层老爷的本社爆破。
+
+以后这片子被怎么封杀都不奇怪。
+
+*****
+
+####  新的起源  
+##### 2482#       发表于 2021-11-22 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656561&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-22 22:13:39</a>
+维克托的剪辑视频播放百万，被顶上B站热门，up一看就是罗云熙粉丝，关键是，剪的还不错，玛德，饭圈果然有 ...</blockquote>罗云熙配的确实可以
+
+你看范某人的粉丝就没脸做剪辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2483#       发表于 2021-11-22 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656766&amp;ptid=2002246" target="_blank">晨风零雨426 发表于 2021-11-22 22:26</a>
+
+另外这片因为鹅国钱多搞了同步上映，结果很多老爷到了第六集开始后知后觉味道不对……
+
+其实这片子在很多方 ...</blockquote>
+其实我觉得双城之战相对它的体量,感觉宣发资源不太足的样子,宣发基本上都在lol相关游戏客户端搞,铺天盖地的蝗虫广告宣发呢.论坛看到的都大多是自来水,真水军都没见到几个..........
+
+*****
+
+####  毛利提督  
+##### 2484#       发表于 2021-11-22 22:31
+
+对于看这片都要魔怔的人只能说差不多得了，别又试图狂欢
+
+*****
+
+####  筱原重工  
+##### 2485#       发表于 2021-11-22 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656766&amp;ptid=2002246" target="_blank">晨风零雨426 发表于 2021-11-22 22:26</a>
+
+另外这片因为鹅国钱多搞了同步上映，结果很多老爷到了第六集开始后知后觉味道不对……
+
+其实这片子在很多方 ...</blockquote>
+四面出击的神神都没闻着味过来，您算是走在时代前面了
+
+*****
+
+####  飞升之后  
+##### 2486#       发表于 2021-11-22 22:34
+
+又来套盾？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  新的起源  
+##### 2487#       发表于 2021-11-22 22:39
+
+楼上滚回你的cltv去吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  有优越感的人mk2  
+##### 2488#       发表于 2021-11-22 22:43
+
+怎么还有深深挤进来了，晦气
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  摸鱼先锋  
+##### 2489#       发表于 2021-11-22 22:45
+
+ 本帖最后由 摸鱼先锋 于 2021-11-22 22:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656663&amp;ptid=2002246" target="_blank">晨风零雨426 发表于 2021-11-22 22:21</a>
+
+自我规制的高度驯化人类是这样的，依靠不假思索地公开批评一切看到的“不和谐”来自我满足。 ...</blockquote>
+硬要扯现实的话我觉得怎样看待“金克丝”这种因社会矛盾孕育而生的犯罪者某种程度上能反映社会是用一种什么样的心理在看待底层。
+
+金克丝这个人罪无可赦，也理应受到法律制裁，无论是一枪崩了还是大牢蹲到死都是她应得的结局，但这不代表追溯她的人物轨迹并通过她的经历来分析社会问题是无意义的，“人家艾克和蔚不比你惨多了人家怎么正常，还不是你自己的原因”这种说法我觉得社达味还是有点重，金克丝是祖安之恶的具体化身，她代表的是绝大多数生活毫无希望的祖安底层，祖安与皮尔特沃夫的矛盾一日无法缓和，这种人物就会一个接一个的出现，努力解决现实问题，让这种滋生潜在罪犯的环境变好才是一个美好社会应有的追求。包括进步青年杰斯在内，所有皮尔特沃夫人对祖安人是有种居高临下的鄙视感的，最后提出和解时也是傲慢地说这是为了救你们的命。至于再往下的执法官更是明晃晃地叫祖安人“阴沟里的臭老鼠”，这种不被平等看待的屈辱感才是希尔科想要开战和金克丝最终射出那发导弹的根本原因
+
+*****
+
+####  qxs  
+##### 2490#       发表于 2021-11-22 22:49
+
+别和深深拌嘴了，该去看看上面的老哥发的拳头两位主创的访谈了，内容很有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  筱原重工  
+##### 2491#       发表于 2021-11-22 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656237&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-22 21:42</a>
+
+这剧火是火，讨论氛围是真不好，杰斯上了黑妹就杰÷，进议会就资本守护者，好歹最后下去抡锤子洗白了，到金 ...</blockquote>
+只能说这篇的人物让二极管无所适从了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+杰斯开黑车被骂，反过来弹劾大头救维克托被夸；大头多可爱啊，反过来被扣个思想保守的帽子被黑
+
+金克丝带孝女弑父捣乱被骂，反过来真疯批粉的人还真不少；蔚狂拽酷屌霸，反过来因为不能跟疯子共情杀了凯特琳一样被骂
+
+不过让我诧异的是希尔科就因为对金克丝好风评已经高到不可思议了，光吹他爱女儿也就算了，现在都快化身为祖安无产阶级的导师了，不知道的还以为炼金男爵是祖安公社呢。埃斯科瓦尔有人气真不是吹的，换二次元一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摸鱼先锋  
+##### 2492#       发表于 2021-11-22 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657164&amp;ptid=2002246" target="_blank">筱原重工 发表于 2021-11-22 22:51</a>
+
+只能说这篇的人物让二极管无所适从了
+
+杰斯开黑车被骂，反过来弹劾大头救维克托被夸；大头多可爱啊 ...</blockquote>
+杰斯风评至少在抡锤子下去干之前就我观察几个论坛都是骂÷生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">救维克托没几个提都在骂他KTV大头
+
+*****
+
+####  厄神之息  
+##### 2493#       发表于 2021-11-22 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">刚上映的时候都有看完内部放映的舅舅出来说杰斯本垒，jinx炮杀梅尔之类的准确消息了，这些人能看到原片，审片的人看不着原片是吧？键政魔怔人差不多得了。
+
+*****
+
+####  摸鱼先锋  
+##### 2494#       发表于 2021-11-22 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656820&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-22 22:29</a>
+
+其实我觉得双城之战相对它的体量,感觉宣发资源不太足的样子,宣发基本上都在lol相关游戏客户端搞,铺天盖地 ...</blockquote>
+可能是夺冠那天晚上扰民活动太多，企鹅怕事态发酵触霉头就低调了
+
+*****
+
+####  飞升之后  
+##### 2495#       发表于 2021-11-22 22:58
+
+杰斯后三集肉也卖了，锤子大炮都拿上了，还能要求什么<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  筱原重工  
+##### 2496#       发表于 2021-11-22 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657223&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-22 22:54</a>
+
+杰斯风评至少在抡锤子下去干之前就我观察几个论坛都是骂÷生救维克托没几个提都在骂他KTV大头 ...</blockquote>
+基本上还是均势，一边骂一边反转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这方面可以参考一下徐老师的视频，这种大up在角色风评上对大众的把握还是比较靠谱的
+
+*****
+
+####  厄神之息  
+##### 2497#       发表于 2021-11-22 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我对杰斯改观是第9集认清自己能力以后回归科研不搞政治那，前面各种飘各种摇摆，不是说错，对比他搭档维克托一看真的就是不坚定不讨喜，反而最后退出议会不怕得罪人那段还蛮讨人喜欢的。
+
+*****
+
+####  飞升之后  
+##### 2498#       发表于 2021-11-22 23:03
+
+因此直到在它成功之前我们都需要厚着脸皮并有一些疯狂地去告诉大家我们能做到，因为要找到那些说你们做不到的怀疑者是非常容易的。。。希望第二季能保持水准尤其是今年还是个破败王小丑年
+
+*****
+
+####  摸鱼先锋  
+##### 2499#       发表于 2021-11-22 23:11
+
+我是觉得单从艺术性上来说祖安和皮城的故事已经讲得非常完美了，下一季剧本不打磨好非常容易变成蔚金克丝凯特琳的贵乱扭曲剧情，战吧是狂喜了，剧情深度就下来了。
+
+往好了想的话下一季蔚的戏份应该会增加，如何面对这个陌生的妹妹如何面对双城之间的矛盾，写好了能让蔚的人物塑造再上一层，就这么结束的话金克丝人物塑造挺完整的，蔚最后三集多多少少有点拉了，到最后还是个肌肉笨蛋而且由于没法接受金克丝人格直接溜了溜了，她妹妹最后那个疯批样她得负一定责任的
+
+*****
+
+####  飞升之后  
+##### 2500#       发表于 2021-11-22 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657445&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-22 23:11</a>
+
+我是觉得单从艺术性上来说祖安和皮城的故事已经讲得非常完美了，下一季剧本不打磨好非常容易变成蔚金克丝凯 ...</blockquote>
+蔚和金克斯很难再深挖了，因为她两已经很接近游戏里的状态。。。反而女警面对母亲的死亡，会有更进一步的成长。。。。当然我i理想中的第二季主角不会是三人组
+
+*****
+
+####  飞升之后  
+##### 2501#       发表于 2021-11-22 23:16
+
+如果结局，究极死亡飞弹被亚索一个风墙拦下来，这个结局几分
+
+*****
+
+####  ooohaoguai2  
+##### 2502#       发表于 2021-11-22 23:17
+
+ 本帖最后由 ooohaoguai2 于 2021-11-22 23:21 编辑 
+
+这片又不是边做边放，肯定是走过审核流程的
+
+其实国内审核机制，丢给影视专家审核的方法，其实电影化、镜头语言好、内核自洽的作品，更容易搏得专家的好感；一个这些方面劣质的作品，更容易导致专家反感。而这种喜好一定程度影响了审核的难易，从而对后者中的擦边球元素更加严格
+
+而建政莫证人不一定没有脑子，但一定缺乏审美，这也是欧美娱乐圈白左泛滥后质量下降的一个原因
+
+*****
+
+####  lucifer5455  
+##### 2503#       发表于 2021-11-22 23:23
+
+<blockquote>飞升之后 发表于 2021-11-22 23:15
+蔚和金克斯很难再深挖了，因为她两已经很接近游戏里的状态。。。反而女警面对母亲的死亡，会有更进一步的 ...</blockquote>
+金克丝是比较完整了，蔚可没有，从第一集到最后一集她本人可以说根本没有啥成长。这离他的称号皮城执法官还差的远呢，怎么安排她从仇视皮城到成为执法官大概就是下一季要讲的内容之一。
+
+*****
+
+####  飞升之后  
+##### 2504#       发表于 2021-11-22 23:31
+
+[https://www.bilibili.com/video/B ... ommend_more_video.0](https://www.bilibili.com/video/BV1RF411h7zA/?spm_id_from=333.788.recommend_more_video.0)磕爽了
+
+*****
+
+####  晨风零雨426  
+##### 2505#       发表于 2021-11-23 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657059&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-22 22:45</a>
+
+硬要扯现实的话我觉得怎样看待“金克丝”这种因社会矛盾孕育而生的犯罪者某种程度上能反映社会是用一种什 ...</blockquote>
+是的，就这个意思。金克斯本身甚至不重要，大环境如此，哪怕她本人命运走向别的道路（完全有可能），也会有其他的银克斯、铜克斯。
+
+放任问题不去解决，就只能被问题反过来解决，毕竟问题（矛盾）是个不稳态，不可能维持现状永恒稳定，总会往或好或坏的方向发展的。
+
+*****
+
+####  晨风零雨426  
+##### 2506#       发表于 2021-11-23 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657237&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-22 22:55</a>
+
+刚上映的时候都有看完内部放映的舅舅出来说杰斯本垒，jinx炮杀梅尔之类的准确消息了，这些人能看到 ...</blockquote>
+审片的人只是所谓“上层”这个大概念里的九牛一毛，而且在其中不是什么高级人物。
+
+我的意思是，这片子内容被其他一些人觉得不太行了……这种风险谁也没法完全控制，除非一开始就彻底不引进，所谓少干少错，不干不错嘛。
+
+*****
+
+####  晨风零雨426  
+##### 2507#       发表于 2021-11-23 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657311&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-22 23:01</a>
+
+我对杰斯改观是第9集认清自己能力以后回归科研不搞政治那，前面各种飘各种摇摆，不是说错，对比他搭 ...</blockquote>
+所以说杰斯其实塑造得还不错，一个有志青年认清自己的能力和责任所在，动摇后回归自己的初心，挺好的。
+
+*****
+
+####  骊歌三叠  
+##### 2508#       发表于 2021-11-23 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658124&amp;ptid=2002246" target="_blank">晨风零雨426 发表于 2021-11-23 00:05</a>
+
+审片的人只是所谓“上层”这个大概念里的九牛一毛，而且在其中不是什么高级人物。
+
+我的意思是，这片子内 ...</blockquote>
+泥潭牌面时刻，您这种上层人居然舍得来我们底层通风报信，但凡杰斯有你一半体恤民情祖安也不至于走到这般田地
+
+*****
+
+####  暗黑能乐  
+##### 2509#       发表于 2021-11-23 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657311&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-22 23:01</a>
+
+我对杰斯改观是第9集认清自己能力以后回归科研不搞政治那，前面各种飘各种摇摆，不是说错，对比他搭 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这一炮下去也由不得他想急流勇退了。。。
+
+*****
+
+####  伊斯坎达尔王  
+##### 2510#       发表于 2021-11-23 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656820&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-22 22:29</a>
+
+其实我觉得双城之战相对它的体量,感觉宣发资源不太足的样子,宣发基本上都在lol相关游戏客户端搞,铺天盖地 ...</blockquote>
+在国外算是宣发爆棚了，国内毕竟腾讯视频独家，企鹅的打算更多是“多赚一些钱”，而拳头的目的是彻底推广英雄联盟IP和动画产品
+
+*****
+
+####  sug2shake  
+##### 2511#       发表于 2021-11-23 02:18
+
+lol和lor都不想玩，看完双城之战想进一步了解世界观和人物应该看什么？
+
+*****
+
+####  飞升之后  
+##### 2512#       发表于 2021-11-23 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659246&amp;ptid=2002246" target="_blank">sug2shake 发表于 2021-11-23 02:18:50</a>
+lol和lor都不想玩，看完双城之战想进一步了解世界观和人物应该看什么？</blockquote>把官号下的动画CG都可以看下，B站有up做的编年史
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  powerpyc  
+##### 2513#       发表于 2021-11-23 06:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659246&amp;ptid=2002246" target="_blank">sug2shake 发表于 2021-11-23 02:18</a>
+
+lol和lor都不想玩，看完双城之战想进一步了解世界观和人物应该看什么？</blockquote>
+官网貌似也有很多信息，但是看B站总结可能更快
+
+*****
+
+####  ky7913  
+##### 2514#       发表于 2021-11-23 06:36
+
+imdb电视分类排名上升到12，超过权游了
+
+Screenshot_20211123-063132_UC Browser.jpg
+(172.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 06:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/063551n6yly3ts2h19o3tl.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  新的起源  
+##### 2515#       发表于 2021-11-23 07:13
+
+原来是神神和精神赵家人组合成的扭曲产物啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+一部国内热度一般的动画片
+
+居然有一群位高权重的老爷们盯着不爽
+
+你以为这是三体啊，有副国级拍板
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  新的起源  
+##### 2516#       发表于 2021-11-23 08:20
+
+一集双城起码1000万刀吧
+
+一集普通日本深夜番大概1000万日元
+
+日美汇率1:115
+
+也就是说9集双城能做1000集国王排名？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  shiko  
+##### 2517#       发表于 2021-11-23 08:24
+
+看完第三集感觉金克丝纯nt<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+但看完全集之后，发现最喜欢的人物居然还是金克丝和皮尔科<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qxs  
+##### 2518#       发表于 2021-11-23 08:30
+
+<blockquote>sug2shake 发表于 2021-11-23 02:18
+lol和lor都不想玩，看完双城之战想进一步了解世界观和人物应该看什么？</blockquote>
+《英雄联盟》宇宙官网有人物传记，b站英雄联盟宇宙官号里面有城邦故事短片
+
+*****
+
+####  lost_恩恩  
+##### 2519#       发表于 2021-11-23 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659567&amp;ptid=2002246" target="_blank">ky7913 发表于 2021-11-23 06:36</a>
+
+imdb电视分类排名上升到12，超过权游了</blockquote>
+美国二次元等太久了，太久了
+
+*****
+
+####  银枪子龙  
+##### 2520#       发表于 2021-11-23 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659567&amp;ptid=2002246" target="_blank">ky7913 发表于 2021-11-23 06:36</a>
+
+imdb电视分类排名上升到12，超过权游了</blockquote>
+还不如说权游那种烂尾还能这个分数，真的厉害
+
