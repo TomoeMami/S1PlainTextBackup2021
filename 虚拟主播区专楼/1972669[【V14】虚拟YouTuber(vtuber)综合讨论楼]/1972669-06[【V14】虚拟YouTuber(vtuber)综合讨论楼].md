@@ -13989,3 +13989,14 @@ lena姨歇了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gi
 
 郡道老师这BDSP玩得，四天王战打得死去活来，结果到白菜姐学会了鬼盆栽面前6龙舞，一路推过去了，前面四天王那段的鬼哭狼嚎跟假的一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 8563#       发表于 2021-11-23 15:56
+
+<blockquote>白金口袋 发表于 2021-11-23 12:05
+郡道老师这BDSP玩得，四天王战打得死去活来，结果到白菜姐学会了鬼盆栽面前6龙舞，一路推过去了，前面四天 ...</blockquote>
+知道作针对了，肯定就简单了，本来就是故意设置用来卡初见的，不过这极速地龙确实太离谱了，多拉贡荡斯都得舞个三四段才能比他快
+

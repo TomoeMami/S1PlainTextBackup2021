@@ -8133,3 +8133,44 @@ Key Visual
 
 什么小孩开大车
 
+
+
+*****
+
+####  雪风utopia  
+##### 5441#       发表于 2021-11-23 15:48
+
+我扮演圣诞老爷爷也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cushaw  
+##### 5442#       发表于 2021-11-23 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  T_Hb  
+##### 5443#       发表于 2021-11-23 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 5444#       发表于 2021-11-23 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5445#       发表于 2021-11-23 16:00
+
+懂了，圣诞开始就要在家呆着直到过完年才回来直播<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+但是那时候的小麻已经被两年后的亲戚孩子巨蟒降服了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
