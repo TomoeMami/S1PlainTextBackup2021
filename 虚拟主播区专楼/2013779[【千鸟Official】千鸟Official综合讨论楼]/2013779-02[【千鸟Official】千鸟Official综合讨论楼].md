@@ -13600,3 +13600,12 @@ coco怎么大一早在播</blockquote>
 
 当初对照着别人视频教程一个个招式练的，游戏里的教程实在不太行，不知道白白有没有看
 
+
+
+*****
+
+####  rgauss  
+##### 2943#       发表于 2021-11-23 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">她看过攻略 很认真了 就是还得看 还得练
+

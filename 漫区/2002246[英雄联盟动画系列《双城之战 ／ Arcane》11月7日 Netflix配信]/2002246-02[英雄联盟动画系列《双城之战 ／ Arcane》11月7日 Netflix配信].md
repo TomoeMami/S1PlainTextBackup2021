@@ -11314,3 +11314,38 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 
 说起来我挺想看fortiche把《blame！》动画化是什么效果，刚刚把希骑剧场版看了，虽然制作上维持了质量，但是看完了arcane之后再看这个片完全是索然无味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2577#       发表于 2021-11-23 23:27
+
+不懂就问，听说里面有百合要素。请问是直女卖姬还是正儿八经的女同？
+
+*****
+
+####  theti  
+##### 2578#       发表于 2021-11-23 23:31
+
+看了今天更新的档案，小蛋糕真是脾气好啊，在警局各种被无视，都不用家里的关系
+
+*****
+
+####  theti  
+##### 2579#       发表于 2021-11-23 23:32
+
+<blockquote>灼眼的夏娜酱 发表于 2021-11-23 23:27
+不懂就问，听说里面有百合要素。请问是直女卖姬还是正儿八经的女同？</blockquote>
+真女酮，还有喜闻乐见的修罗的和骨科
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2580#       发表于 2021-11-23 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672125&amp;ptid=2002246" target="_blank">theti 发表于 2021-11-23 23:32</a>
+
+真女酮，还有喜闻乐见的修罗的和骨科</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">多谢，那我得去看看。
+

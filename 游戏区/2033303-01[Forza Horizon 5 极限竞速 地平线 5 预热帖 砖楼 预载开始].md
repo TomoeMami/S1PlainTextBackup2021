@@ -14926,3 +14926,12 @@ lancia跟alfa有戏吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这代美利坚V8好吵啊，拉高转之后全是破音，耳朵被按着猛干的感觉
 
+
+
+*****
+
+####  aaronluray  
+##### 1355#       发表于 2021-11-23 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次日常又出问题了。目前还没看到有人试出来到底怎样才算过的
+
