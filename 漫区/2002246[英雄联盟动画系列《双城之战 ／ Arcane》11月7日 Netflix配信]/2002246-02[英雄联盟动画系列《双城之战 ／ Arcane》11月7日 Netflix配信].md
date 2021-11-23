@@ -10879,3 +10879,24 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 脑洞太大</blockquote>
 主要是一直强调叫我议员，让人觉得杰斯就是个钟爱权力的人，最后退位让贤的演出，也只是把这群臭鱼烂虾一网打尽的计谋，杰斯啊，你的心思，比夏亚还深！
 
+
+
+*****
+
+####  伊森温特斯  
+##### 2543#       发表于 2021-11-23 13:13
+
+好奇如果真的2亿成本的话南极贱畜掏了多少
+开了VIP也有横幅式和插入式广告，吃相太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊森温特斯  
+##### 2544#       发表于 2021-11-23 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53661947&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-23 11:00</a>
+哈哈哈，刚看到的，杰斯才是幕后黑手
+
+杰斯利用机会接近梅尔，因为他知道梅尔是诺克萨斯人（小伏笔），杰斯 ...</blockquote>
+再多想一步，也许幕后黑手是vi，故意带jinx去偷杰斯然后引起爆炸和之后双城对立，最后逼得金克斯开大收人头，然后她作为唯一一个知道那天议会上说了什么的下城人就有机会挤进管理层，这也算为什么在桥上见了爆爆却带着女警跑去议会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

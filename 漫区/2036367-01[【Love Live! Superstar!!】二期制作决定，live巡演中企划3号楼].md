@@ -11463,3 +11463,43 @@ D0AA6B44-FF0B-4343-9B8F-D267ED00B0C4.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  名津流  
+##### 1046#       发表于 2021-11-23 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663210&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-23 12:22</a>
+
+磕点当消遣就行，别上头，全部当成营业也并无不妥。
+
+5ch上都有不少人上头了。 ...</blockquote>
+求翻译的原帖，求更多！
+
+*****
+
+####  秋月艾莉  
+##### 1047#       发表于 2021-11-23 13:12
+
+双鱼这波全贴了，双N也尽力在贴了，pay子呢？pay子在干嘛？
+
+#pay子状态
+
+*****
+
+####  名津流  
+##### 1048#       发表于 2021-11-23 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662121&amp;ptid=2036367" target="_blank">Piano-Forest 发表于 2021-11-23 11:11</a></blockquote>
+别人都是橘猫，就你是酒红色，这是成分有问题
+
+说起来我最开始看虹的时候以为you才是主角，那样的话前三代主角都姓高，就你姓涩，这是出身有问题
+
+*****
+
+####  名津流  
+##### 1049#       发表于 2021-11-23 13:18
+
+看到一个加强版，什么三年内找出唐可可，头像密密麻麻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
