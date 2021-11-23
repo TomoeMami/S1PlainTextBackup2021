@@ -3670,3 +3670,15 @@ AGA的联动点击就送所有三星联动人物甚至不用刷活动，只有�
 
 反正我是很不爽这个联动把AN梓希往后顶了。
 
+
+
+*****
+
+####  madcow  
+##### 6270#       发表于 2021-11-23 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654320&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2021-11-22 19:25</a>
+
+AGA的联动点击就送所有三星联动人物甚至不用刷活动，只有四星才要抽。三星强度足够用到关服，主界面语音和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在这个联动池就不是吧，三星没有重力属性那个，我上次还氪金了结果出了两四星绿毛的
+
