@@ -2784,3 +2784,17 @@ vd串流是不是占用资源比airlink小很多？
 
 快两年了从来没收到过oculus store的优惠券<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rinkzea  
+##### 178#       发表于 2021-11-23 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660129&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-23 08:52</a>
+
+应该就是楼上朋友说的距离问题，我把skybox的距离调成-5了，默认0距离直接糊脸上了……
+
+air link我用普通 ...</blockquote>
+airlink不需要翻墙。但你要先把pc端的airlink开关打开，quest里才能搜到
+

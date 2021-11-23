@@ -11152,3 +11152,55 @@ tmd，星团怎么成了这个样子.jpg
 
 演得太真我倒反而不敢恰了
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1020#       发表于 2021-11-23 11:11
+
+<img src="https://p.sda1.dev/3/499855ff40a212d8858da15ddc69f45f/20211123_110940.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  中野四葉  
+##### 1021#       发表于 2021-11-23 11:12
+
+这个就是之前的投票？果然是4立德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 1022#       发表于 2021-11-23 11:14
+
+艹，投四灰毛的大失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Karin11974  
+##### 1023#       发表于 2021-11-23 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53661931&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-23 10:59</a>
+不知道为什么最近开始喜欢上那种看着就能看出有营业成分的关系
+
+就是那种 有一点表演感我反而能恰的 ...</blockquote>
+有哪些是太真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  D麦林  
+##### 1024#       发表于 2021-11-23 11:19
+
+ 本帖最后由 D麦林 于 2021-11-23 11:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662132&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-11-23 11:12</a>
+
+这个就是之前的投票？果然是4立德</blockquote>
+不是投票啊
+
+投票的是下一期和下下期的
+这期是官方选的人
+
