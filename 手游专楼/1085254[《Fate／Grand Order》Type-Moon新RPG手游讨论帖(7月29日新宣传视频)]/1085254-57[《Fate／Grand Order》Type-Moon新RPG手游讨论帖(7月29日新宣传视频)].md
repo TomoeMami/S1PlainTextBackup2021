@@ -5526,3 +5526,17 @@ NMD两单沉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">冲刺模式开启ing，一周时间争取车完这次活动！弹射太好玩了搞到都没心情打活动！
 
+
+
+*****
+
+####  白金口袋  
+##### 84497#       发表于 2021-11-23 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655907&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-22 07:15</a>
+
+我说的是最后武市自刀的时候，我以前起码她会出来收个尾刀之类的，结果一转头去搞临终关怀了 ...</blockquote>
+武市自刀那段根本原样照搬达伊大冒险修格尔灭掉米斯特那段，连对话都一模一样的
+
+“我一开始就知道你到最后的最后肯定会选择我附身”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

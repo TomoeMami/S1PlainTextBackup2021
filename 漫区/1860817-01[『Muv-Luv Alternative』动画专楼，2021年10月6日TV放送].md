@@ -20304,3 +20304,28 @@ steam版阉割的“alt纯夏的真相”，原版可是不亚于名场面的存
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 1425#       发表于 2021-11-23 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659372&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-23 03:16</a>
+
+白色吧，黑色是白银武在tda世界线里开得
+
+—— 来自 OnePlus HD1900, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+女仆开的是黑红，TDA的是黑黄？
+
+*****
+
+####  hlazd  
+##### 1426#       发表于 2021-11-23 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659372&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-23 03:16</a>
+白色吧，黑色是白银武在tda世界线里开得
+
+—— 来自 OnePlus HD1900, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+白色那张你仔细看，左边远景里有台黑色的
+

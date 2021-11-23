@@ -14785,3 +14785,15 @@ lancia跟alfa有戏吗</blockquote>
 声浪实录也是搭系列发展的光 我觉得5的开发过 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小地图那就是日本了
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1342#       发表于 2021-11-23 11:31
+
+晚上跑了三个钟头，把所有的道路都探索了。
+广告牌都没显示出来是为什么。是要做任务吗。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -11204,3 +11204,45 @@ tmd，星团怎么成了这个样子.jpg
 投票的是下一期和下下期的
 这期是官方选的人
 
+
+
+*****
+
+####  player3960  
+##### 1025#       发表于 2021-11-23 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662274&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-23 11:19</a>
+
+不是投票啊
+
+投票的是下一期和下下期的
+
+这期是官方选的人</blockquote>
+那排除法，下期这四位应该不会上了，有点期待呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 1026#       发表于 2021-11-23 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662316&amp;ptid=2036367" target="_blank">player3960 发表于 2021-11-23 11:22</a>
+
+那排除法，下期这四位应该不会上了，有点期待呢</blockquote>
+也不一定啊 这期只是官方想凑个四立德出来而已
+
+下期谁上还得看投票结果
+
+*****
+
+####  D麦林  
+##### 1027#       发表于 2021-11-23 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662200&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-23 11:15</a>
+
+有哪些是太真的
+
+—— 来自 S1Fun</blockquote>
+其实合鲤有些时候会让我感觉太真了（
+
+不过还好 星这边现在的距离感还是刚刚好的程度 往后才能更深入的看出哪些更真<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
