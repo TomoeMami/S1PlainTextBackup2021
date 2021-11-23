@@ -11857,3 +11857,14 @@ DQ4里搞出一个人气很高的角色特鲁尼克大叔
 话说回来之前翻到发现鲤鱼对菜宝也用过🔥🔥🔥
 她真的好喜欢这个<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 1074#       发表于 2021-11-23 21:18
+
+某前排观众的文字版repo
+
+[https://www.bilibili.com/read/cv14105692](https://www.bilibili.com/read/cv14105692)
+
