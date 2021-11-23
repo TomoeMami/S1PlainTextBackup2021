@@ -14832,3 +14832,27 @@ lancia跟alfa有戏吗</blockquote>
 
 玩了半天才发现路上跑的是真人
 
+
+
+*****
+
+####  feelmydick  
+##### 1346#       发表于 2021-11-23 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">大量痛车作者被封号了包括MrYuShaw大佬，涂装也被下架，无语子
+
+<img src="https://img.saraba1st.com/forum/202111/23/164701sszhmyh7tcc6cwiz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211123164543.png</strong> (40.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 16:47 上传
+
+*****
+
+####  monono  
+##### 1347#       发表于 2021-11-23 17:01
+
+为啥被封？
+

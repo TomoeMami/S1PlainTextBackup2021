@@ -11662,3 +11662,25 @@ https://fate.5ch.net/test/read.cgi/lovelive/1637585538/直接板内按标题找�
 
 最后不知怎的就画成了圣诞节式样的历代集合图
 
+
+
+*****
+
+####  iuhehc  
+##### 1061#       发表于 2021-11-23 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663970&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-23 13:32</a>
+佩佩在跟世界史搏斗
+
+孩子太单纯了，再说自己推可堇但是鲤鱼拼命推可香，搞得她也有点不知所措吧 ...</blockquote>
+反倒感觉是，像剧中可可找香音贴，堇在一旁看着的样子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cybernetics31  
+##### 1062#       发表于 2021-11-23 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼你倒是多看看pay啊
+

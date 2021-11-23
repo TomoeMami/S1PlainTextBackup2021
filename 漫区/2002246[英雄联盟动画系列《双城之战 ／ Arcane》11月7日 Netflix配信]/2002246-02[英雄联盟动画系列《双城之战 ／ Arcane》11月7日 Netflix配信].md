@@ -11070,3 +11070,14 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 如果你喜欢《双城之战》或《破败王者：英雄联盟传奇》游戏并且对更多的英雄联盟IP感到兴趣，我的建议，如果 ...</blockquote>
 已经有不少人尝试，然后深刻体验祖安生活了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ammk  
+##### 2560#       发表于 2021-11-23 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53666905&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-23 16:45</a>
+已经有不少人尝试，然后深刻体验祖安生活了</blockquote>
+按道理3级前都是人机，不至于上来就pvp才是
+
