@@ -13370,3 +13370,12 @@ coco怎么大一早在播</blockquote>
 不知道今天晚上有没有人播，习惯了后台挂个直播黑听打游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 队长播游戏回……额……
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 2932#       发表于 2021-11-23 19:39
+
+游戏力不行的根本还是杂谈力不行，如果够会吹逼玩啥都是效果。可惜队长和木木属实有点折磨
+

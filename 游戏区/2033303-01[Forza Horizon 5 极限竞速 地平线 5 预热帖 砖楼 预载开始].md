@@ -14917,3 +14917,12 @@ lancia跟alfa有戏吗</blockquote>
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  鹿斗典善  
+##### 1354#       发表于 2021-11-23 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这代美利坚V8好吵啊，拉高转之后全是破音，耳朵被按着猛干的感觉
+

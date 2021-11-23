@@ -11836,3 +11836,14 @@ DQ4里搞出一个人气很高的角色特鲁尼克大叔
 
 刚说她帅哥被纠正是美女，好好好大美女
 
+
+
+*****
+
+####  名津流  
+##### 1072#       发表于 2021-11-23 19:34
+
+上次那个群马巡演拍了现场repo的老哥发新视频了，这次是大阪的repo
+
+[https://www.bilibili.com/video/BV1HP4y1V7rG](https://www.bilibili.com/video/BV1HP4y1V7rG)
+

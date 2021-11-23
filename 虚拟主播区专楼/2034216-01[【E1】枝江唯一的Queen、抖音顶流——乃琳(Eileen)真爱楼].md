@@ -2871,3 +2871,41 @@ douban.com/group/topic/252737763/
 明天宝你会直播两小时吗<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 其实我不想听你6.9的心路历程，我想听你讲故事
 
+
+
+*****
+
+####  sanlow666  
+##### 220#         楼主| 发表于 2021-11-23 19:26
+
+乃琳Queen:[奶淇琳带我走吧！我要被“小恶魔”拿下啦！【直播剪辑】](https://t.bilibili.com/596217992712446793)
+
+（运营代发）
+
+工具人：哎呀(｀ﾟДﾟ´)!!
+
+结算自10月28日乃琳&amp;嘉然直播
+
+表演/出镜：乃琳 嘉然
+
+软件：基于Unity自研
+
+场景：自制
+
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202111/23/192614df9avvah03ta0haq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (201.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 19:26 上传
+
+*****
+
+####  sanlow666  
+##### 221#         楼主| 发表于 2021-11-23 19:27
+
+加班外加肠炎犯了......感觉自己快寄了，唉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
