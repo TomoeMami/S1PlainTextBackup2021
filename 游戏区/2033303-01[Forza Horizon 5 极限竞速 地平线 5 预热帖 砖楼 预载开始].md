@@ -14944,3 +14944,15 @@ lancia跟alfa有戏吗</blockquote>
 
 这代有各级别类别推荐车型了吗？
 
+
+
+*****
+
+####  920619lqy  
+##### 1357#       发表于 2021-11-24 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672067&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-23 09:26</a>
+
+这次日常又出问题了。目前还没看到有人试出来到底怎样才算过的</blockquote>
+有个说法是之前没有完成过expedition才行，和上周的showcase差不多，不过上周那个如果完成过的话可以主动输掉，这次的输掉也不算。
+
