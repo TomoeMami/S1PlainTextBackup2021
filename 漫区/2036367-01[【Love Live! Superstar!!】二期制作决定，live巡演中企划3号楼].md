@@ -11895,3 +11895,30 @@ DQ4里搞出一个人气很高的角色特鲁尼克大叔
 
 青山姐太美了吧
 
+
+
+*****
+
+####  iuhehc  
+##### 1077#       发表于 2021-11-23 23:05
+
+这表情 什么冰山美人<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 1078#       发表于 2021-11-23 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53670522&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-23 21:18</a>
+某前排观众的文字版repo
+
+https://www.bilibili.com/read/cv14105692</blockquote>
+看完了，我好酸啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 1079#       发表于 2021-11-23 23:21
+
+今天恋恋生日了啦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

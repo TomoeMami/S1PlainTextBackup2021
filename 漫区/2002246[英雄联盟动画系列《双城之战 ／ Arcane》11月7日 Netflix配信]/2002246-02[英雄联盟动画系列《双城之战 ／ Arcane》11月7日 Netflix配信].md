@@ -11288,3 +11288,29 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  acejoe  
+##### 2574#       发表于 2021-11-23 23:04
+
+如果这片是一般3d风格的话，很多对话我肯定觉得拖，但是美术太屌了，脸部的笔触细节让我想要多来点近景正反打。
+
+*****
+
+####  有优越感的人mk2  
+##### 2575#       发表于 2021-11-23 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53671809&amp;ptid=2002246" target="_blank">acejoe 发表于 2021-11-23 23:04</a>
+
+如果这片是一般3d风格的话，很多对话我肯定觉得拖，但是美术太屌了，脸部的笔触细节让我想要多来点近景正反 ...</blockquote>
+这片剧情前后呼应对仗工整，很多画面构图都是经过琢磨的，单纯看台本会略显单薄，但是综合起来画面信息量是相当大的
+
+*****
+
+####  有优越感的人mk2  
+##### 2576#       发表于 2021-11-23 23:15
+
+说起来我挺想看fortiche把《blame！》动画化是什么效果，刚刚把希骑剧场版看了，虽然制作上维持了质量，但是看完了arcane之后再看这个片完全是索然无味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

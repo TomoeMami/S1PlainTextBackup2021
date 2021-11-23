@@ -13591,3 +13591,12 @@ coco怎么大一早在播</blockquote>
 
 孩子随她妈，有点想念静静的仙7了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cherrydove  
+##### 2942#       发表于 2021-11-23 23:20
+
+当初对照着别人视频教程一个个招式练的，游戏里的教程实在不太行，不知道白白有没有看
+
