@@ -14917,3 +14917,21 @@ syl: 日清的高级票当时没退的人现在收到了横須賀ストーリー
 
 现在？
 
+
+
+*****
+
+####  星の守  
+##### 7209#       发表于 2021-11-23 11:43
+
+不是复活不是回归，是突击<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maonpuyo  
+##### 7210#       发表于 2021-11-23 11:56
+
+ 本帖最后由 Maonpuyo 于 2021-11-23 11:57 编辑 
+
+肯定是生日前的唯一一次直播了，不过她有说过生日要播吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

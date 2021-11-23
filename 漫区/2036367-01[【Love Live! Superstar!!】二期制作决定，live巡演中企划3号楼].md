@@ -11246,3 +11246,46 @@ tmd，星团怎么成了这个样子.jpg
 
 不过还好 星这边现在的距离感还是刚刚好的程度 往后才能更深入的看出哪些更真<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中野四葉  
+##### 1028#       发表于 2021-11-23 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奇卡还是没逃过迫害(指从右往左念
+
+*****
+
+####  Karin11974  
+##### 1029#       发表于 2021-11-23 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662491&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-11-23 11:33</a>
+其实合鲤有些时候会让我感觉太真了（
+
+不过还好 星这边现在的距离感还是刚刚好的程度 往后才能更深入的看 ...</blockquote>
+感觉最多也就发展成台下好友吧，之前岬鱼不也挺真的，对中国人来说大阪人应该比较容易混熟
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 1030#       发表于 2021-11-23 12:03
+
+还好吧，没觉得很真，除非亲个嘴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 1031#       发表于 2021-11-23 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个飞吻把你鲤鱼姐吓得都要跳起来了 真啥啊 除非真亲个嘴
+
+*****
+
+####  离心  
+##### 1032#       发表于 2021-11-23 12:07
+
+论迫害我还是佩服官方的
+
