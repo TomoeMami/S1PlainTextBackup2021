@@ -2604,3 +2604,16 @@ Meta Quest
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  dumplingpro  
+##### 166#       发表于 2021-11-23 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659134&amp;ptid=2034565" target="_blank">violettor 发表于 2021-11-23 01:48</a>
+请问下quest2有出新版的消息吗，现在买算不算入国军？另外pc串流对网速要求高吗，家里是普通的百兆宽带，我 ...</blockquote>
+高通拿不出足够强的xr3芯片了，预定明年的quest pro是个面向专业人士，多了眼追面捕的专业版，屏幕性能应该没有太大提升。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
