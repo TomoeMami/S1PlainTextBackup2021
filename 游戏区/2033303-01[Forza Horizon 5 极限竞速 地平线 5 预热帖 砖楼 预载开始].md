@@ -14856,3 +14856,14 @@ lancia跟alfa有戏吗</blockquote>
 
 为啥被封？
 
+
+
+*****
+
+####  qianoooo  
+##### 1348#       发表于 2021-11-23 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53667149&amp;ptid=2033303" target="_blank">monono 发表于 2021-11-23 17:01</a>
+为啥被封？</blockquote>
+版权或者被举报儿童色情啥的吧
+
