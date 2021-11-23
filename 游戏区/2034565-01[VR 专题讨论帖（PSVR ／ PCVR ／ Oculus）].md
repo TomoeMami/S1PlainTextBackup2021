@@ -2828,3 +2828,20 @@ vd串流是不是占用资源比airlink小很多？</blockquote>
 
 vd串流是不是占用资源比airlink小很多？
 
+
+
+*****
+
+####  bypass  
+##### 182#         楼主| 发表于 2021-11-24 07:24
+
+官方正式宣布了生化 4 VR 的佣兵模式，明年更新，以及生化 4 是 Quest 2 平台销售最快的游戏。
+
+<img src="https://img.saraba1st.com/forum/202111/24/072411jzrqe7uuw6wrtww7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (259.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 07:24 上传
+
