@@ -11749,3 +11749,26 @@ liyuu有次推特跟nako互动，说了句 nako suki 火火火 ，然后就成�
 
 这话说了后没几天，官方发了那个抢尾巴比赛上又说了句 nako坏人nako，然后两句话和句型就被经常拿来一起用，合成一个梗了
 
+
+
+*****
+
+####  永恒的王牌  
+##### 1066#       发表于 2021-11-23 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53667734&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-23 17:40</a>
+
+sayu 勇者
+
+liyuu 商人
+
+nako 格斗家</blockquote>
+DQ的游人好像就是直翻游人来着，虽然我没玩过DQ也不懂这职业干嘛的，好像就只是个贤者前置职业<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1067#       发表于 2021-11-23 18:40
+
+鲤鱼晚上fc的生放说写真是很久之前拍的…………夏天的时候…………<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">那么上上周冲绳就是别的了
+

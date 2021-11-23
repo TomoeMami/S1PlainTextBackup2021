@@ -3682,3 +3682,27 @@ AGA的联动点击就送所有三星联动人物甚至不用刷活动，只有�
 AGA的联动点击就送所有三星联动人物甚至不用刷活动，只有四星才要抽。三星强度足够用到关服，主界面语音和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在这个联动池就不是吧，三星没有重力属性那个，我上次还氪金了结果出了两四星绿毛的
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6271#       发表于 2021-11-23 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53668209&amp;ptid=1570791" target="_blank">madcow 发表于 2021-11-23 18:16</a>
+
+现在这个联动池就不是吧，三星没有重力属性那个，我上次还氪金了结果出了两四星绿毛的 ...</blockquote>
+mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是共用的。同样的还有Ti2和IA，猛禽和强袭猛禽。
+
+虽然我不知道金字塔这样对待联动角色有什么意义
+
+*****
+
+####  江戸前ルナ  
+##### 6272#       发表于 2021-11-23 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53668209&amp;ptid=1570791" target="_blank">madcow 发表于 2021-11-23 18:16</a>
+
+现在这个联动池就不是吧，三星没有重力属性那个，我上次还氪金了结果出了两四星绿毛的 ...</blockquote>
+因为“人物”只有电猫猫啊，两只是同一人。重力猫猫是阿金原创相当于an版。同理还有冰属的小迷糊，大流士那对也是。人物那里是放在同一人物下而且不能同时出场。其他的联动角色一定会送一个三星人物。
+

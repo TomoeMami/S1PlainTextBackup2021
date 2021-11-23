@@ -14906,3 +14906,14 @@ lancia跟alfa有戏吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">那个举报作者并移除造型的选项就在选车菜单最下面，一不小心手欠都能按到，这设计可以给个迷惑大赏了
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1353#       发表于 2021-11-23 18:22
+
+昨天我也是，删除gtr的时候就差点点到了。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
