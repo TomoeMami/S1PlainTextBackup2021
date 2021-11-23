@@ -10910,3 +10910,40 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 才发觉维克托几个热度高的切片都是罗云熙粉丝做的，这就是饭圈妹妹的能量么，不过最热的那个直接把杰斯剪成反衬维克托的人物了。
 fcc粉丝怎么fblk的。
 
+
+
+*****
+
+####  银枪子龙  
+##### 2546#       发表于 2021-11-23 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53664011&amp;ptid=2002246" target="_blank">胧楼 发表于 2021-11-23 13:35</a>
+
+才发觉维克托几个热度高的切片都是罗云熙粉丝做的，这就是饭圈妹妹的能量么，不过最热的那个直接把杰斯剪成 ...</blockquote>
+早说了，罗云熙要给范丞丞磕几个头
+
+*****
+
+####  京吹病人  
+##### 2547#       发表于 2021-11-23 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659866&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-23 08:20</a>
+一集双城起码1000万刀吧
+
+一集普通日本深夜番大概1000万日元</blockquote>
+数字从哪来的？是有准确的消息来源还是纯一拍脑袋算出来的？
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Lynn冰翎  
+##### 2548#       发表于 2021-11-23 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53664452&amp;ptid=2002246" target="_blank">京吹病人 发表于 2021-11-23 14:11</a>
+
+数字从哪来的？是有准确的消息来源还是纯一拍脑袋算出来的？
+
+—— 来自 OnePlus GM1910, Android 11上的 ...</blockquote>
+前面那个不好说，后面这个算得便宜了点，一集日本动画2000万以内，1000万太抠门了。
+

@@ -3659,3 +3659,14 @@ AGA的联动点击就送所有三星联动人物甚至不用刷活动，只有�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏出货满没谱的，要么氪爆要么随缘吧？
 
+
+
+*****
+
+####  yygundam  
+##### 6269#       发表于 2021-11-23 14:27
+
+氪爆都有概率捞不到东西的，体验极差。所以建议随缘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我是很不爽这个联动把AN梓希往后顶了。
+

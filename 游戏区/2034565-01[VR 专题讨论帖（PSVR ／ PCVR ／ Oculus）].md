@@ -2819,3 +2819,12 @@ vd串流是不是占用资源比airlink小很多？
 vd串流是不是占用资源比airlink小很多？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 搜了一下，貌似也没看到有人讨论这两个的资源占用比较的。另外就是看到有人说 VD 对 FSR 的支持比较好。
 
+
+
+*****
+
+####  hikari0805  
+##### 181#       发表于 2021-11-23 14:12
+
+vd串流是不是占用资源比airlink小很多？
+

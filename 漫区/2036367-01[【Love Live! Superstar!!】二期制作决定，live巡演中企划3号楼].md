@@ -11588,3 +11588,62 @@ https://fate.5ch.net/test/read.cgi/lovelive/1637585538/直接板内按标题找�
 
 另外，我目前看到最快的是0.56秒，他的方法是不停地刷新然后点同一个位置
 
+
+
+*****
+
+####  plazum  
+##### 1056#       发表于 2021-11-23 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663813&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-23 13:18</a>
+
+看到一个加强版，什么三年内找出唐可可，头像密密麻麻的</blockquote>
+那个有人找到了，在左上方约四分之一的位置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 1057#       发表于 2021-11-23 14:18
+
+最早的
+
+なこすき🔥🔥🔥っっていうりーすき🔥🔥🔥
+[https://fate.5ch.net/test/read.cgi/lovelive/1633793526/](https://fate.5ch.net/test/read.cgi/lovelive/1633793526/)
+
+なこ、りーすき🔥🔥🔥
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1637499766](https://itest.5ch.net/fate/test/read.cgi/lovelive/1637499766)
+
+りーちゃんがなこを嫌いになるとき🔥🔥🔥🔥🔥
+[https://fate.5ch.net/test/read.cgi/lovelive/1637591393/](https://fate.5ch.net/test/read.cgi/lovelive/1637591393/)
+
+りーさゆとか見え見えの百合営業。。。 
+[https://fate.5ch.net/test/read.cgi/lovelive/1637585538](https://fate.5ch.net/test/read.cgi/lovelive/1637585538)
+
+甚至还有这个，不过好像掉了
+
+可可(168cm)「かのーん♡」ｷﾞｭｯ かのん(159cm)「くくちゃん！？///」
+[https://fate.5ch.net/test/read.cgi/lovelive/1637630684](https://fate.5ch.net/test/read.cgi/lovelive/1637630684)
+
+*****
+
+####  D麦林  
+##### 1058#       发表于 2021-11-23 14:20
+
+说起来这个封面是不是意味着以后也不会有“经典款LL画风”的Liella角色了
+
+伊能津这次也是参照了斋藤敦史的人设画的香音 不是他自己常用来画LL的画风
+
+那看来哪怕参战AS也会保持原画风了
+
+不过挺好的
+
+*****
+
+####  秋月艾莉  
+##### 1059#       发表于 2021-11-23 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53664367&amp;ptid=2036367" target="_blank">plazum 发表于 2021-11-23 14:04</a>
+
+这有什么，那sayuri直接就是yuri了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不是也写了sayuri吗，就是说两人名字都藏着yuri啊
+
