@@ -2493,3 +2493,127 @@ Meta Quest
 
 2021-11-19 17:59 上传
 
+
+
+*****
+
+####  egged5  
+##### 158#       发表于 2021-11-22 21:34
+
+刚刚买了quest2，去官网看了一下Oculus Link的支持的列表，这里Not Currently Supported的是指完全用不了的吗
+
+目前用的是移动版的1650，在官网上是Not Currently Supported
+
+屏幕截图 2021-11-22 213345.png
+(51.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 21:34 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/213442lt91a27mqmmhzdma.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dumplingpro  
+##### 159#       发表于 2021-11-22 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656150&amp;ptid=2034565" target="_blank">egged5 发表于 2021-11-22 21:34</a>
+刚刚买了quest2，去官网看了一下Oculus Link的支持的列表，这里Not Currently Supported的是指完全用不了的 ...</blockquote>
+别管它，先不说这支持什么意思，最后串流用的也是第三方的vd，只要电脑能跑就能串。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  hikari0805  
+##### 160#       发表于 2021-11-23 00:47
+
+今晚打乒乓球差点打爆手柄（
+
+
+
+*****
+
+####  violettor  
+##### 161#       发表于 2021-11-23 01:48
+
+请问下quest2有出新版的消息吗，现在买算不算入国军？另外pc串流对网速要求高吗，家里是普通的百兆宽带，我有个华硕的千兆的路由器，忘了型号但是600多买的，用steam link玩游戏还是非常模糊卡顿，不知道怎么回事，quest串流放pc视频和玩alyx会不会也特别卡呀…
+
+*****
+
+####  Leona_Akari  
+##### 162#       发表于 2021-11-23 02:08
+
+今天Q2到货了，问几个问题
+第一个是感觉有时候屏幕显示有点模糊，但是调整一下眼镜位置就好了，这个无解吗
+第二个是我steam上买了sky vr player，然后随便下了两部VR小电影，原来屏幕是直接糊脸的么，但是感觉电影院模式又看不出VR效果
+第三个是air link必须路由器翻墙才能用？
+最后就是除了aylx和节奏光剑还有生化4以外，推荐些必买的vr游戏，谢谢
+
+
+
+*****
+
+####  wszweill  
+##### 163#       发表于 2021-11-23 07:14
+
+ 本帖最后由 wszweill 于 2021-11-22 18:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659214&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-22 13:08</a>
+
+今天Q2到货了，问几个问题
+
+第一个是感觉有时候屏幕显示有点模糊，但是调整一下眼镜位置就好了，这个无解吗
+
+ ...</blockquote>
+呃，就前两点的话，第一个个人体感是买个支架，稳定到一个不糊的位置，quest2自带的框架，反正我是玩一会如果动作大一点，导致装置滑动一点就可能糊了，而且极大改善佩戴感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+第二个，vr小电影多数是可以调位置的吧，糊脸大概率是初始位置太近了。。
+
+*****
+
+####  伊莉伊莉雅  
+##### 164#       发表于 2021-11-23 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659134&amp;ptid=2034565" target="_blank">violettor 发表于 2021-11-23 01:48</a>
+请问下quest2有出新版的消息吗，现在买算不算入国军？另外pc串流对网速要求高吗，家里是普通的百兆宽带，我 ...</blockquote>
+有消息，明年10月发布，早买早享受。
+路由器有些要求，不过即使是100M的2.4g也勉强能玩，你这个理论上没啥问题。steam link改改串流带宽试试。
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 165#       发表于 2021-11-23 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659214&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-23 02:08</a>
+今天Q2到货了，问几个问题
+第一个是感觉有时候屏幕显示有点模糊，但是调整一下眼镜位置就好了，这个无解吗
+ ...</blockquote>
+1.配个镜片换个头戴，quest比较重，像楼上说的玩着容易滑下来。（即使换了头戴多少也有这个问题
+2.不明白糊脸说的是啥，电影院效果一般用来看普通视频。vr视频（180度/360度）可以手动设置一下视频格式，一般上下格式或者左右格式可以选3d。
+3.安装时需要，启动时不用。
+4.翻翻饺子哥推荐帖
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  dumplingpro  
+##### 166#       发表于 2021-11-23 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659134&amp;ptid=2034565" target="_blank">violettor 发表于 2021-11-23 01:48</a>
+请问下quest2有出新版的消息吗，现在买算不算入国军？另外pc串流对网速要求高吗，家里是普通的百兆宽带，我 ...</blockquote>
+高通拿不出足够强的xr3芯片了，预定明年的quest pro是个面向专业人士，多了眼追面捕的专业版，屏幕性能应该没有太大提升。
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

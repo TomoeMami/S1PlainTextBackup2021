@@ -14639,3 +14639,137 @@ lancia跟alfa有戏吗</blockquote>
 借楼问下，目前爽玩的话要什么设备比较划算？</blockquote>
 xsx手柄已经很爽了，方向盘上手需要适应一阵
 
+
+
+*****
+
+####  qzy741147  
+##### 1330#       发表于 2021-11-22 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645578&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-22 09:15</a>
+
+之后更新的车辆被解包了，感觉都挺微妙的最近年份的车比较少，都是现有车辆的不同版本为主
+
+虽然TT ...</blockquote>
+还是疫情对产能造成了影响，包括游戏本身这么多bug，可能根本就来不及做了。这次近两年的新车真的少得可怜
+
+
+
+*****
+
+####  lotusaelise  
+##### 1331#       发表于 2021-11-22 14:48
+
+原来墨西哥小曲sobre las olas和carmen是同一作者 怪不得听起来那么像
+
+
+
+*****
+
+####  没钱买手办  
+##### 1332#       发表于 2021-11-22 15:15
+
+方向盘玩要把转向从标准调到拟真，会舒服不少
+
+
+
+*****
+
+####  天神十三煞  
+##### 1333#         楼主| 发表于 2021-11-22 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646164&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-21 18:00</a>
+
+球地址
+
+lancia跟alfa有戏吗</blockquote>
+声音采样花絮就是蓝旗亚的车
+
+你在担心个啥
+
+*****
+
+####  920619lqy  
+##### 1334#       发表于 2021-11-22 16:57
+
+<blockquote>qzy741147 发表于 2021-11-21 23:57
+还是疫情对产能造成了影响，包括游戏本身这么多bug，可能根本就来不及做了。这次近两年的新车真的少得可 ...</blockquote>
+能把FH4的bug原封不动搬过来，就嗯换皮是吧
+
+
+
+*****
+
+####  aaronluray  
+##### 1335#       发表于 2021-11-22 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652322&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-22 16:57</a>
+
+能把FH4的bug原封不动搬过来，就嗯换皮是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得提前玩的时候贴吧就有人卡bug，主界面的中文显示的是地平线4
+
+*****
+
+####  920619lqy  
+##### 1336#       发表于 2021-11-22 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652822&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-22 03:27</a>
+
+记得提前玩的时候贴吧就有人卡bug，主界面的中文显示的是地平线4</blockquote>
+以后也别光嘲笑EA的年货体育游戏换皮了，这操场几年一作还不是一样
+
+
+
+*****
+
+####  qzy741147  
+##### 1337#       发表于 2021-11-22 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652322&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-22 16:57</a>
+能把FH4的bug原封不动搬过来，就嗯换皮是吧</blockquote>
+他要换皮也就算了，4里有的车5还给删了，真是气人
+
+*****
+
+####  天神十三煞  
+##### 1338#         楼主| 发表于 2021-11-22 18:18
+
+ 本帖最后由 天神十三煞 于 2021-11-22 02:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">换皮过分了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换皮换肉不换骨
+
+至少地图和音乐大量新的不是吗
+
+图拉庙和标题那两首是真的好听
+
+删车是不可能删的，有复用材料不用是狗
+
+最多版权问题扯皮拖拖拉拉，要不就是弄到中后期活动吊胃口整KPI
+
+你们去看赞赏那些项目就知道了，有些还做不了，因为车还没出来，吊着你呐
+
+而且有些车本身在FH4也是后期才发出来，大概率就是弄活动里
+
+
+
+*****
+
+####  Vladimeow  
+##### 1339#       发表于 2021-11-23 00:27
+
+不过下一代真的要拓宽一点新玩法了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  萱时令  
+##### 1340#       发表于 2021-11-23 00:42
+
+ 本帖最后由 萱时令 于 2021-11-23 00:49 编辑 
+
+地平线终究还是外传 下一作还要等游乐场先搞明白t10的新引擎
+声浪实录也是搭系列发展的光 我觉得5的开发过程中一定录了很多5中不会有的车的声音 给数字系列顺便准备
+保守预计6只有画面的进步 地图面积这种甚至会倒退<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

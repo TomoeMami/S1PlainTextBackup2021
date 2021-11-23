@@ -3536,3 +3536,126 @@ boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</bloc
 boss战里如何最快速度取消锁定boss转而锁定身后的杂鱼？</blockquote>
 实验功能里面有 “结合半自动手动操作
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6258#       发表于 2021-11-22 14:07
+
+还真是助手和打工战士，嘟嘟噜真吉祥物<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 6259#       发表于 2021-11-22 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以，可惜只有25票了
+
+
+
+*****
+
+####  江戸前ルナ  
+##### 6260#       发表于 2021-11-22 15:44
+
+2d立绘是阿金脸，3d建模。。。大概成子坂伙食太好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 6261#       发表于 2021-11-22 18:17
+
+看见联动石头门想弄个初始试试
+
+结果发现tb上都是自选号
+
+没有石头号。。。
+
+尴尬 这样都不一定抽得到啊 就没意义了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  RioShiina  
+##### 6262#       发表于 2021-11-22 18:29
+
+<blockquote>DRAGONBLEAPIECE 发表于 2021-11-22 18:17
+看见联动石头门想弄个初始试试
+
+结果发现tb上都是自选号
+
+没有石头号。。。
+</blockquote>
+这个游戏的抽卡点数会过期的， 能留的只有氪金的钻石 ：）
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 6263#       发表于 2021-11-22 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653694&amp;ptid=1570791" target="_blank">RioShiina 发表于 2021-11-22 18:29</a>
+
+这个游戏的抽卡点数会过期的， 能留的只有氪金的钻石 ：）</blockquote>
+这样的吗
+
+那初始号想抽满联动角色是不是不太现实？
+
+
+
+*****
+
+####  windaria  
+##### 6264#       发表于 2021-11-22 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653839&amp;ptid=1570791" target="_blank">DRAGONBLEAPIECE 发表于 2021-11-22 18:40</a>
+
+这样的吗
+
+那初始号想抽满联动角色是不是不太现实？</blockquote>
+这个完全看脸，有可能，几率很低就是了
+
+
+
+*****
+
+####  江戸前ルナ  
+##### 6265#       发表于 2021-11-22 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653839&amp;ptid=1570791" target="_blank">DRAGONBLEAPIECE 发表于 2021-11-22 18:40</a>
+
+这样的吗
+
+那初始号想抽满联动角色是不是不太现实？</blockquote>
+只为当期联动人物而想省钱拿初始入坑的话，可以考虑下活动过半时再去翻初始。一般月底大活动都有20天以上时间（卡池可能2周多一点），过一周多再看看初始。不过这个就要碰运气了，一来那些店的初始号不一定抽到，二来我也不知道那些店对初始号是怎么管理，会不会及时抽卡或者更新。
+
+
+
+*****
+
+####  不灭的旋律  
+##### 6266#       发表于 2021-11-22 19:25
+
+AGA的联动点击就送所有三星联动人物甚至不用刷活动，只有四星才要抽。三星强度足够用到关服，主界面语音和四星也是一样的，也就部分四星专用剧情看不到。不介意强度的话随缘喽。
+
+
+
+*****
+
+####  hypnossz86  
+##### 6267#       发表于 2021-11-22 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我记得入坑还是送点票的吧.....可以刷初始搏一搏？
+
+
+
+*****
+
+####  拍不到脑袋  
+##### 6268#       发表于 2021-11-22 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏出货满没谱的，要么氪爆要么随缘吧？
+

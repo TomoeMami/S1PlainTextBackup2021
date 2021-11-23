@@ -10564,3 +10564,534 @@ LL说来应该是万代家的企划 结果万代自己的手办部门就做过�
 
 周PB和美国playboy不是一码事，纯蹭名字的
 
+
+
+*****
+
+####  ads147147  
+##### 968#       发表于 2021-11-22 13:47
+
+万代还做过一次性注塑成型分色的鸟，完全是在炫技，角色眼睛都是通过注塑直接做出成品的，到手只需要上随便剪剪拼起来就行，比景品还精细不少。
+
+然后就没有然后了，真怀疑是不是整个负责团队被砍了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 969#       发表于 2021-11-22 14:04
+
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但是制作尚算精良，至少迄今为止没有哪一方面比最初版那个LL差吧
+
+*****
+
+####  秋月艾莉  
+##### 970#       发表于 2021-11-22 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649581&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:04</a>
+
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你自己喜欢就好了，这边老观众有怨气撒撒罢了
+
+看完有兴趣可以继续去看真人生放，尤其是最近的巡演，各种糖各种贴甜掉牙
+
+*****
+
+####  中野四葉  
+##### 971#       发表于 2021-11-22 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">追番和一次性看完体验肯定还是不一样的
+
+*****
+
+####  绯想alter2nd  
+##### 972#       发表于 2021-11-22 14:21
+
+那就继续看吧，已经没什么好怕的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  chenflyyy  
+##### 973#       发表于 2021-11-22 14:27
+
+最迷的第8话都接受了，那应该没什么问题，总的来说还是能算个中等偏上的作品
+
+*****
+
+####  仟音一心  
+##### 974#       发表于 2021-11-22 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649581&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:04</a>
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
+恶评如潮的7～8话都能接受那这作确实没有你接受不了的了，也没啥，这里的大多数人对剧情要求还是比较高的。
+反正鉴赏区我给的是0。
+
+*****
+
+####  秋月艾莉  
+##### 975#       发表于 2021-11-22 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">鲤鱼握外星人手那段太上头了，难得一见青山姐露出迷糊的表情
+
+
+
+*****
+
+####  呆毛王嫁给我  
+##### 976#       发表于 2021-11-22 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649991&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-22 14:33</a>
+
+恶评如潮的7～8话都能接受那这作确实没有你接受不了的了，也没啥，这里的大多数人对剧情要求还是比较高的 ...</blockquote>
+7-8确实剧情非常迷惑，毫无道理，花了这么大篇幅强行凑一个加入的理由，还不如希直接算一卦有说服力
+
+但是LL本来就是个毫无道理的系列作品呀
+
+几个中学生每天课后在学校屋顶练习，那点练习量，再有天赋也肯定是歌不好舞不齐的啊，哪有出道成为偶像巅峰的可能性呢
+
+看LL这种作品，不就是要接受这些解构之后的奇怪设定，专注于感受作品的内核，歌颂爱和梦想吗
+
+*****
+
+####  emmer  
+##### 977#       发表于 2021-11-22 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649359&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-22 13:47</a>
+
+万代还做过一次性注塑成型分色的鸟，完全是在炫技，角色眼睛都是通过注塑直接做出成品的，到手只需要上随便 ...</blockquote>
+不是有后续的明日香吗
+
+*****
+
+####  仟音一心  
+##### 978#       发表于 2021-11-22 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650164&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:44</a>
+
+7-8确实剧情非常迷惑，毫无道理，花了这么大篇幅强行凑一个加入的理由，还不如希直接算一卦有说服力
+
+但是 ...</blockquote>
+不是，设定的话怎么样我都能接受，但这种几乎把恋当全作唯一反派来写逻辑还完全站不住的剧情就是很要命，几乎毁了这个角色的风评。同样是真香型会长，前作都没有处理成这么差的。
+
+
+
+*****
+
+####  lj205  
+##### 979#       发表于 2021-11-22 15:13
+
+三团歌偷跑
+
+
+
+*****
+
+####  megapikachu  
+##### 980#       发表于 2021-11-22 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649581&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:04</a>
+
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
+动画这东西本来就是一种娱乐，你能找到让你开心的点（所以能看下去）就行了，其他人的意见不用过于纠结，更何况有些人也就是借机会表达对动画的不满而已，你怎么想的人家才不在乎。
+
+
+
+*****
+
+####  绯想alter2nd  
+##### 981#       发表于 2021-11-22 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650164&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:44</a>
+7-8确实剧情非常迷惑，毫无道理，花了这么大篇幅强行凑一个加入的理由，还不如希直接算一卦有说服力
+
+但是 ...</blockquote>
+说是这么说但是7-8还是很迷，恋的人物塑造可以说一团糟，不过老哥你看得开挺好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 982#       发表于 2021-11-22 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挺好的，赶紧看完动画来看中之人吧
+
+
+
+*****
+
+####  Karin11974  
+##### 983#       发表于 2021-11-22 16:47
+
+pb写真观摩完，感觉摄影师真的重要，之前那个voice+访谈怼正面全身照像个憨憨，还有鲤鱼新专那两套感觉装扮和灯光也是一言难尽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  lj205  
+##### 984#       发表于 2021-11-22 17:06
+
+那两套我觉得还行啊，除了里面那件红色的……
+
+*****
+
+####  cybernetics31  
+##### 985#       发表于 2021-11-22 17:13
+
+fc上了拍写真的花絮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是想看水着啥的
+
+
+
+*****
+
+####  ads147147  
+##### 986#       发表于 2021-11-22 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650184&amp;ptid=2036367" target="_blank">emmer 发表于 2021-11-22 14:46</a>
+不是有后续的明日香吗</blockquote>
+去查了下还真是，和鸟的那个都隔了多少年了，果然是炫技吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ads147147  
+##### 987#       发表于 2021-11-22 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649581&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-11-22 14:04</a>
+第九话看完，至今没有体会到你们告诫我不要继续看的心意，我觉得都挺....正常的，算不上多么优秀的作品，但 ...</blockquote>
+层主心态好就好。
+
+个人是没办法把这种严重逻辑问题的两集当做对不对电波来处理。个人理解是贩卖梦想也要讲究个工匠精神，起码得尊重观众，然而没有，导致恋现在孤狼一样的处境，还得靠中之人收拾残局。
+
+如果访谈冒出来说就是要弄成这样符合青山孤狼性格的剧情，那我只能说那大合唱wish song干啥。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  优妮可  
+##### 988#       发表于 2021-11-22 18:43
+
+<img src="https://img.saraba1st.com/forum/202111/22/184334eejaeq344uqxx0qo.jpg" referrerpolicy="no-referrer">
+
+<strong>20211122_183255.jpg</strong> (267.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 18:43 上传
+
+
+
+*****
+
+####  Karin11974  
+##### 989#       发表于 2021-11-22 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652964&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-22 17:36</a>
+层主心态好就好。
+
+个人是没办法把这种严重逻辑问题的两集当做对不对电波来处理。个人理解是贩卖梦想也要 ...</blockquote>
+就是强行套个真香的学生会长模版，先立模版人设再硬掰剧情，难免生硬，要说逻辑从第一话结尾未来预报由学校唱到大街，中间又突然蹦出几个队友就知道动画剧情是图一乐的，本质三次元团广告片，做得好看当然更好，不好看么，歌舞好那也就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  emmer  
+##### 990#       发表于 2021-11-22 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652838&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-22 17:29</a>
+
+去查了下还真是，和鸟的那个都隔了多少年了，果然是炫技吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上 ...</blockquote>
+明日香那个是真香，属实高技术力
+
+
+
+*****
+
+####  qratosone  
+##### 991#       发表于 2021-11-22 20:05
+
+比较公允地看，动画其实也就7-8和12拉胯了，其他的都在LL平均水平上，然后1-3和10是两个神回
+
+
+
+*****
+
+####  名津流  
+##### 992#       发表于 2021-11-22 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654858&amp;ptid=2036367" target="_blank">qratosone 发表于 2021-11-22 20:05</a>
+
+比较公允地看，动画其实也就7-8和12拉胯了，其他的都在LL平均水平上，然后1-3和10是两个神回 ...</blockquote>
+有4集，占1/3的篇幅是神回，放其他新番里已经算是很不错的了吧
+
+
+
+*****
+
+####  D麦林  
+##### 993#       发表于 2021-11-22 22:02
+
+这帮人终于进化到不需要口水巾起手自己和自己就能接龙起来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+但是观感反倒比口水巾好一些 天知道为什么
+
+算了还是点个踩
+
+*****
+
+####  D麦林  
+##### 994#       发表于 2021-11-22 22:06
+
+ 本帖最后由 D麦林 于 2021-11-22 22:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652838&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-22 17:29</a>
+
+去查了下还真是，和鸟的那个都隔了多少年了，果然是炫技吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上 ...</blockquote>
+这系列官方明说了的 就是用来实验新技术的
+
+你没看商品名上就有个Labo吗
+
+但是鸟那个 原型是请Max厂的人来做的
+
+回避了万代拼装部的弱项（
+
+*****
+
+####  welcom  
+##### 995#       发表于 2021-11-22 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656262&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-22 21:45</a>
+
+有4集，占1/3的篇幅是神回，放其他新番里已经算是很不错的了吧</blockquote>
+按照台长的说法就是虹团强推，星团垃圾，第二季虹团他没表示，但是星团是明确说了只会更垃圾
+
+嘛也就这样了
+
+
+
+*****
+
+####  Norkey1  
+##### 996#       发表于 2021-11-22 23:04
+
+又不是单元剧，那几集很难救回来，作品整体拉了还是拉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 997#       发表于 2021-11-22 23:12
+
+嚯，今晚双N上大分啊
+
+<img src="https://img.saraba1st.com/forum/202111/22/231219fhwxe0zjnnhe3kk1.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (47.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 23:12 上传
+
+
+
+*****
+
+####  JustW_2  
+##### 998#       发表于 2021-11-22 23:26
+
+ 本帖最后由 JustW_2 于 2021-11-22 23:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然完结这么久了，也不太想车tv，但回过头看，1-3和10的观感好，很大程度上归功于唐可可这一角色的成功塑造。如果你把唐可可摘出去，其实也就是花田平均水平的发挥，不能说差，也不算太好。（当然唐可可的塑造也离不了花田）
+
+*****
+
+####  ads147147  
+##### 999#       发表于 2021-11-22 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656521&amp;ptid=2036367" target="_blank">welcom 发表于 2021-11-22 22:09</a>
+按照台长的说法就是虹团强推，星团垃圾，第二季虹团他没表示，但是星团是明确说了只会更垃圾
+
+嘛也就这样 ...</blockquote>
+更“拉”的偶像番，怕不是一语双关。
+
+从拉拉味来说，确实非常拉，花田这么多年也没变过那套先心意再去写故事逻辑的思路，所以要自闭就什么jb破事都出现，心意到了就完事OK，搞得和劣质魔法少女动画一样，拍着拍着就很扯淡。
+田中仁搞过真的大友魔法少女，就知道花田那套不能一直用，偶尔用下来点睛就好了。或者说，搞带货，花田只想着live播完了事，根本不考虑对角色塑造的伤害。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  名津流  
+##### 1000#       发表于 2021-11-22 23:33
+
+在微博上看到好几个不同版本的这种“X秒内找出唐可可”的图，太搞了
+
+<img src="https://img.saraba1st.com/forum/202111/22/233337yri8hpvikhl8vz8r.jpg" referrerpolicy="no-referrer">
+
+<strong>005PEyTGgy1gwo7pu32clj30ku0xce81.jpg</strong> (370.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 23:33 上传
+
+*****
+
+####  chenflyyy  
+##### 1001#       发表于 2021-11-22 23:36
+
+BV1RU4y1M7j4
+广播曲B站有人发了，印象比较深刻的是虹的，好吵（
+
+*****
+
+####  chenflyyy  
+##### 1002#       发表于 2021-11-22 23:38
+
+nagi最近跟nako贴贴好多啊，不再是孤狼一个了，真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ads147147  
+##### 1003#       发表于 2021-11-22 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657649&amp;ptid=2036367" target="_blank">JustW_2 发表于 2021-11-22 23:26</a>
+虽然完结这么久了，也不太想车tv，但回过头看，1-3和10的观感好，很大程度上归功于唐可可这一角色的 ...</blockquote>
+可可塑造好，那也是因为可可就是老立德模板了，这导致了后面糟糕的部分就在于花田必须把不适合立德的香音强行拉到立德上去，导致香音传强行发生。只能说突破常规角色真的别找笔力低的人去写，真的塑造的特别糟糕，几次角色成长都弄得特别僵硬，还会强行塞过去没见过的设定去擦屁股（特别是千香的部分）。
+
+某种意义上Liella这种明明是团队却弄得一盘散沙的割裂感，就是试图塑造不同的角色定位，但花田没能战胜自己的不适区，最后翻车。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cat1230  
+##### 1004#       发表于 2021-11-22 23:46
+
+liyuu这写真销量今日棒1啊，挺不错的，目前还只有3个5星好评。
+
+顺便青山上月底那本电子写真也看了下目前不到一个月的时间打星的有269人，评分4.8。稍微对比了下亚马逊关联推送的其他写真，好评人数和分数都是相当相当高的，而且也是衣服穿得最保守的。
+
+期待鲤鱼这本也大卖~~
+
+*****
+
+####  JustW_2  
+##### 1005#       发表于 2021-11-22 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657730&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-22 23:33</a>
+
+在微博上看到好几个不同版本的这种“X秒内找出唐可可”的图，太搞了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还行，至少发型有不小区别
+
+*****
+
+####  Norkey1  
+##### 1006#       发表于 2021-11-22 23:56
+
+青山和nako互动也是超直球啊(*ﾟﾛﾟ)
+tmd，星团怎么成了这个样子.jpg
+
+*****
+
+####  中野四葉  
+##### 1007#       发表于 2021-11-23 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">警惕打女同牌
+
+
+
+*****
+
+####  kata魂  
+##### 1008#       发表于 2021-11-23 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到这指甲突然想起来我至今仍未知道小百合对鲤鱼说的什么话
+
+
+
+*****
+
+####  player3960  
+##### 1009#       发表于 2021-11-23 00:28
+
+今夜，pay酱在睡梦中，成了橘外人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  名津流  
+##### 1010#       发表于 2021-11-23 01:01
+
+合理怀疑这届LL是带着任务来的，运营也许打过招呼了，你们平时没事私下互动就多搞点百合营业刺激一下粉丝.doc
+
+
+
+*****
+
+####  saglork  
+##### 1011#       发表于 2021-11-23 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658809&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-23 01:01</a>
+合理怀疑这届LL是带着任务来的，运营也许打过招呼了，你们平时没事私下互动就多搞点百合营业刺激一下粉丝.d ...</blockquote>
+这还用怀疑吗，从缪中后期，运营就已经在刻意添加了
+台上的东西别想太多，嗑就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+星还是时间太短，说白了成员之间现在都还在磨合熟悉，缪水都是两三年后渐渐从广播节目和日常生活返照之类的才能渐渐看出成员之间关系到底谁和谁比较近<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zylwz  
+##### 1012#       发表于 2021-11-23 01:40
+
+<blockquote>saglork 发表于 2021-11-23 01:16
+这还用怀疑吗，从缪中后期，运营就已经在刻意添加了
+
+台上的东西别想太多，嗑就是了
+
+星还是时间太 ...</blockquote>
+不过星有个好处是年轻  年轻人之间更容易交心一点 磨合时间没准比老油条社会人要短
+
+
+
+*****
+
+####  cat1230  
+##### 1013#       发表于 2021-11-23 02:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  仟音一心  
+##### 1014#       发表于 2021-11-23 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657730&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-22 23:33</a>
+
+在微博上看到好几个不同版本的这种“X秒内找出唐可可”的图，太搞了</blockquote>
+这个太简单了
+

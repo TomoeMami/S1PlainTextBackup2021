@@ -20252,3 +20252,55 @@ Alt3那一屋子杜霞的姐妹，身高发型各不相同，而且没有一个�
 
 ？这图不是ATE吗
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1421#       发表于 2021-11-22 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53636419&amp;ptid=1860817" target="_blank">hacisiki 发表于 2021-11-21 15:18</a>
+全年龄版有一长段钻洞的动画吧（所以R18完全没有意义啊，我都是直接跳过，整段游戏唯一跳过的剧情） ...</blockquote>
+steam版阉割的“alt纯夏的真相”，原版可是不亚于名场面的存在
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  freyja_wion  
+##### 1422#       发表于 2021-11-22 16:36
+
+第8話“帝都動乱”あらすじ
+
+　2001年12月5日。帝都でクーデターが発生。千鶴の父・榊是親首相を初め閣僚数名が沙霧尚哉大尉率いるクーデター部隊によって暗殺された。
+
+　武たち207B分隊にも実戦想定の出撃待機命令が下る。出撃を前に慧は、自分に送られてきていた手紙は沙霧大尉からのものであることを武に告げる。
+
+<img src="https://p.sda1.dev/3/aa12ed0a66b577335f779e2b9cf35bc3/IMG_CMP_37409426.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/5b473714aaaa0b72eeec77cf1c21bf81/upiUu8dxQAW3NF9V6CoICjaCubDkBHBziAmoa7hSV2ehF3Q46mAZD5WS0sTb9OOdEy5q527So3wmMpY4.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  hlazd  
+##### 1423#       发表于 2021-11-22 21:53
+
+应该是黑色无语雷在动画的首次亮相
+
+
+
+*****
+
+####  再买自检星剁手  
+##### 1424#       发表于 2021-11-23 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656354&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-11-22 21:53</a>
+应该是黑色无语雷在动画的首次亮相</blockquote>
+白色吧，黑色是白银武在tda世界线里开得
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

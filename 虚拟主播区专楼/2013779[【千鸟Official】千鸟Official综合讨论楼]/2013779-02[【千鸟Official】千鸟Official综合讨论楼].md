@@ -12866,3 +12866,369 @@ ti10期间，让文静祝福ame的sc不下二十条，弹幕的更是数不胜�
 白白冰火之后，文静直播复盘，弹幕都在刷看ndwd锐评版，问是和京华联动还是和ndwd联动的时候弹幕也都是ndwd，之前弹幕也时常会提到ndwd，文静就觉得静栗惹也挺喜欢ndwd的，所以就和ndwd打个招呼，为以后可能的联动打个基础。
 文静一直在努力地寻找和静栗惹的共同爱好和话题，但是每次总是有一部分静栗惹站出来，骂文静没有顾及到他们，但是文静真的能满足全部静栗惹吗？爱是互相尊重互相理解，文静一直在尝试，希望在她害怕这份爱之前，静栗惹也能理解她，她做的一切，确实是因为喜欢静栗惹，想让静栗惹开心</blockquote>
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2890#       发表于 2021-11-22 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53648908&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-22 13:08</a></blockquote>
+ti10是什么节奏啊。。
+
+
+
+*****
+
+####  tankai  
+##### 2891#       发表于 2021-11-22 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649582&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-22 14:04</a>
+
+ti10是什么节奏啊。。</blockquote>
+不懂游戏,QA回后半一转嗯引流电竞相关.适逢TI10决赛日,B站又允许播(LOL不行),文静想尝试调整节目内容.
+
+后面不是LGD输了么.直播间节奏就起来了,一开始都在骂LGD下面八,文静好不尴尬,只能婉转的说两句客套话.
+
+下播后她肯定还在看自己直播间里大家发散,心里忐忑不安,不到一小时上播解释为什么会后面转播决赛.
+
+反正那天狠狠给这个"炒作狗"一巴掌,有些流量吃不吃小心点.
+
+
+
+*****
+
+####  tbdmgx@163.com  
+##### 2892#       发表于 2021-11-22 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53648908&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-22 13:08</a></blockquote>
+其实她很早就知道老克
+[https://www.bilibili.com/video/B ... id_from=333.999.0.0](https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0)
+
+1:17:06秒的时候放了老克扮猪吃老虎参加莱老师歌会的切片，言语中也提到了“克老师”
+
+8.19摆烂练歌回有人点歌《向天再借五百年》还看到有弹幕刷了wink
+
+弃车人看文静多起来应该是10月新衣后，当我10月29点开第一个录播的时候P综群里已经不少静栗惹了
+
+
+
+*****
+
+####  tankai  
+##### 2893#       发表于 2021-11-22 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650384&amp;ptid=2013779" target="_blank">tbdmgx@163.com 发表于 2021-11-22 14:59</a>
+
+其实她很早就知道老克
+
+https://www.bilibili.com/video/BV1xb4y1k7Be?spm_id_from=333.999.0.0
+
+1:17:06秒 ...</blockquote>
+老克看文静冰火回还有过经典发言.
+
+
+
+*****
+
+####  自此行道皆单  
+##### 2894#       发表于 2021-11-22 16:01
+
+文静嗯休息了一个月，太行了
+
+
+
+*****
+
+####  小憨1  
+##### 2895#       发表于 2021-11-22 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">艾瑞思是真出问题了吧，我真的不能理解了
+
+*****
+
+####  袜子  
+##### 2896#       发表于 2021-11-22 16:44
+
+又咋了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夜潇箫  
+##### 2897#       发表于 2021-11-22 16:45
+
+艾瑞思又出什么问题了
+
+
+
+*****
+
+####  rgauss  
+##### 2898#       发表于 2021-11-22 16:48
+
+直播日历憋了三天 最近直播时间也不太稳
+
+*****
+
+####  小憨1  
+##### 2899#       发表于 2021-11-22 16:51
+
+ 本帖最后由 小憨1 于 2021-11-22 16:52 编辑 
+
+前天发了条动态，说直播表21号发
+
+<img src="https://img.saraba1st.com/forum/202111/22/164919xp41ug4zyhqq4fg1.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (25.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 16:49 上传
+
+21号晚上鸽了，在前天的动态里评论说今天上午发
+
+<img src="https://img.saraba1st.com/forum/202111/22/164919smppymj8l8tqqpzy.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (28.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 16:49 上传
+
+然后刚才在前天的动态里评论说再等等
+
+<img src="https://img.saraba1st.com/forum/202111/22/164919gmr22zq62b1pmgdm.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (26.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 16:49 上传
+
+全鸽了就算了，为什么不能发个新动态来说，真以为自己粉丝浓度和静栗惹一样每天对着动态嗯刷了？
+
+也得亏艾妃糖总体对艾瑞思是温柔的态度，这要是文静发的，我评论里直接直球辱骂了
+
+
+
+*****
+
+####  rgauss  
+##### 2900#       发表于 2021-11-22 17:16
+
+支持正义开骂
+
+*****
+
+####  vale_hana  
+##### 2901#       发表于 2021-11-22 17:22
+
+问下，前任文静转生了吗？
+
+
+
+*****
+
+####  rgauss  
+##### 2902#       发表于 2021-11-22 17:27
+
+ 本帖最后由 rgauss 于 2021-11-22 17:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652738&amp;ptid=2013779" target="_blank">vale_hana 发表于 2021-11-22 17:22</a>
+问下，前任文静转生了吗？</blockquote>
+404 之前不套皮直播 现在在准备套皮转生
+
+*****
+
+####  vale_hana  
+##### 2903#       发表于 2021-11-22 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652824&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-22 17:27</a>
+404 之前不套皮直播 现在在准备套皮转生</blockquote>
+麻烦指个路呗，谢谢
+
+*****
+
+####  rgauss  
+##### 2904#       发表于 2021-11-22 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652869&amp;ptid=2013779" target="_blank">vale_hana 发表于 2021-11-22 17:30</a>
+麻烦指个路呗，谢谢</blockquote>
+"4040v0" 不过 好像还没准备好皮套
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| vale_hana| + 1|感谢|
+
+查看全部评分
+
+
+
+*****
+
+####  tankai  
+##### 2905#       发表于 2021-11-22 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652869&amp;ptid=2013779" target="_blank">vale_hana 发表于 2021-11-22 17:30</a>
+
+麻烦指个路呗，谢谢</blockquote>
+想看可以稍微关注一下NGA千鸟站队1.0综合贴,那里虽然没什么人聊千鸟了,但都是1.0留下来的老粉.
+
+据说404小姐圣诞节左右复出,估计参加了什么箱.
+
+*****
+
+####  tankai  
+##### 2906#       发表于 2021-11-22 18:16
+
+艾瑞思之前哭诉后就不正常.2.0和国V圈联动也是文静和艾白3D打歌服一前一后去了冰火,我猜测2060是老运营留下最后的波纹.
+
+我YY的如何?
+
+
+
+*****
+
+####  IDIDIDID  
+##### 2907#       发表于 2021-11-22 19:34
+
+然而文静被小正太“创”的要死要活你楼都没人提一嘴，令人感叹。
+
+
+
+*****
+
+####  希克苏鲁伯  
+##### 2908#       发表于 2021-11-22 19:44
+
+2060这么大项目怎么着也得提前几个月半年，连建模也是1.0的人设，铁1.0，就没想到能这么狗屎
+
+直播员们别看鸟吧了，要看就来看纯良萌萌人聚集地鸟综吧
+
+
+
+*****
+
+####  lunaticfear  
+##### 2909#       发表于 2021-11-22 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654446&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-11-22 19:34</a>
+
+然而文静被小正太“创”的要死要活你楼都没人提一嘴，令人感叹。</blockquote>
+刚生完三胎就准备四胎了？
+
+
+
+*****
+
+####  rgauss  
+##### 2910#       发表于 2021-11-22 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654575&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-11-22 19:44</a>
+2060这么大项目怎么着也得提前几个月半年，连建模也是1.0的人设，铁1.0，就没想到能这么狗屎
+
+直播员们别看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你给直播员s1号吗
+
+
+
+*****
+
+####  tbdmgx@163.com  
+##### 2911#       发表于 2021-11-22 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655201&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-22 20:29</a>
+
+你给直播员s1号吗</blockquote>
+折中一下，该看NGA文静楼了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">樱桃鸽子广告费结一下
+
+
+
+*****
+
+####  cherrydove  
+##### 2912#       发表于 2021-11-22 20:53
+
+为啥这里也挺纯良平静，跟b综仿佛不是一个论坛
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 2913#       发表于 2021-11-22 21:21
+
+nga静楼p用没有，全是偷贴吧和s1的二手
+
+
+
+*****
+
+####  伞沢直美  
+##### 2914#       发表于 2021-11-22 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看见屎黄色论坛就会④
+
+
+
+*****
+
+####  rgauss  
+##### 2915#       发表于 2021-11-22 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655570&amp;ptid=2013779" target="_blank">cherrydove 发表于 2021-11-22 20:53</a>
+为啥这里也挺纯良平静，跟b综仿佛不是一个论坛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为鸟综就没几个人
+
+
+
+*****
+
+####  huyuanhao120  
+##### 2916#       发表于 2021-11-22 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">不是纯良谁来鸟宗。
+
+
+
+*****
+
+####  莫洛骑士  
+##### 2917#       发表于 2021-11-22 23:23
+
+都眼熟了罢了，要是人多了也一样👋
+当然千鸟就算等到毕业了也不可能有那么多人来
+
+*****
+
+####  莫洛骑士  
+##### 2918#       发表于 2021-11-22 23:25
+
+真铁弱智
+<img src="https://p.sda1.dev/3/00f4d659ee8f7f5410981e39b777ef75/IMG_CMP_75503888.jpeg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  丢了五块钱  
+##### 2919#       发表于 2021-11-23 07:14
+
+巨龙来咯<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 2920#       发表于 2021-11-23 08:38
+
+coco怎么大一早在播
+

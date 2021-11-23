@@ -4806,3 +4806,714 @@ FGO運営
 需要他出来补伤害/NP的场合好像不太多，不过也可能是我最近一直在练新衣服
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人生啊  
+##### 84425#       发表于 2021-11-22 13:49
+
+隔壁拳师浓度真是越来越高了
+
+*****
+
+####  alucardcz  
+##### 84426#       发表于 2021-11-22 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649089&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 13:22</a>
+
+隔壁现在不是已经进化成
+
+不管啥问题先干一拳DW，然后开始怀疑是不是樱井先手下毒，再开始一个个排查甩锅了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新衣服这经验太少不应该已经满了吗  
+
+这次我都用的c狗狐狸奥某人
+
+*****
+
+####  exiaexa  
+##### 84427#       发表于 2021-11-22 13:55
+
+ 本帖最后由 exiaexa 于 2021-11-22 13:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649414&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 13:52</a>
+
+新衣服这经验太少不应该已经满了吗  
+
+这次我都用的c狗狐狸奥某人</blockquote>
+最近因为机战30摸得透彻
+
+新衣服还在8级，上个活动都是赶着DeadLine打完的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 84428#       发表于 2021-11-22 14:08
+
+ 本帖最后由 zakki 于 2021-11-22 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53647885&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 11:58</a>
+
+是不是我不会用 我的奥伯龙除了在C狗三连时搭配杀狐外 其他时候完全不知道怎么配 还是必须要2宝以上 ...</blockquote>
+第一种是所有双C呆，双CBA的阵容换下一个，上奥伯龙，我已经很久没用过双C呆了，再也不用翻半天助战找对应礼装的C呆，直接筛选满破MIX里随便挑一个符合的。
+
+第二种是双奥伯龙配打手，一宝奥伯龙打一面，二宝及以上奥伯龙打二面，打手打第三面。
+
+第三种是奥伯龙道满，这俩是绝配能互拐，既可打暴击又能打宝具，第三人看本选择是单体还是光炮，很灵活。再加上奥伯龙杀狐配妖兰或者C狗。
+
+我常用就这几种，还有用奥伯龙打三面的打法没怎么用过，可能得绑个04服不然伤害不够
+
+*****
+
+####  zakki  
+##### 84429#       发表于 2021-11-22 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649089&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 13:22</a>
+
+隔壁现在不是已经进化成
+
+不管啥问题先干一拳DW，然后开始怀疑是不是樱井先手下毒，再开始一个个排查甩锅了 ...</blockquote>
+奥伯龙队不吃衣服啊，我最近就在用新衣服，10np对奥伯龙很关键。10点np加被动20加奥伯龙充的70正好凑够100。如果想要伤害高就用04服
+
+*****
+
+####  zakki  
+##### 84430#       发表于 2021-11-22 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649388&amp;ptid=1085254" target="_blank">人生啊 发表于 2021-11-22 13:49</a>
+
+隔壁拳师浓度真是越来越高了</blockquote>
+隔壁拳师不是最恶心的，最恶心的是二鬼子，理中客，还有反串成二鬼子和理中客的拳师<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 84431#       发表于 2021-11-22 14:20
+
+ 本帖最后由 exiaexa 于 2021-11-22 14:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649682&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 14:10</a>
+
+奥伯龙队不吃衣服啊，我最近就在用新衣服，10np对奥伯龙很关键。10点np加被动20加奥伯龙充的70正好凑够10 ...</blockquote>
+那么问题来了，我用常规阵容就行啊何必多点20np去将就奥伯龙，我又不缺那点火力
+
+重点是还有一堆打手的羁绊还等着练
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 84432#       发表于 2021-11-22 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649835&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 14:20</a>
+
+那么问题来了，我用常规阵容就行啊何必多点20np去将就奥伯龙，我又不缺那点火力
+
+重点是还有一堆打手的羁绊 ...</blockquote>
+问题是常规阵容不是绑定双C呆或者双CBA吗，这样锁死助战，找的麻烦，奥伯龙的队除了双奥伯龙外，红蓝绿卡都能上，不绑定助战。看你是不喜欢翻助战还是不喜欢自己出俩五星拉高cost。不过用双C呆配打手，后面放几个练羁绊不如干脆让后面练羁绊的上前排打，万圣和泳装就是直接用龙娘和小芬奇打的。
+
+
+
+*****
+
+####  exiaexa  
+##### 84433#       发表于 2021-11-22 14:51
+
+ 本帖最后由 exiaexa 于 2021-11-22 14:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650063&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 14:38</a>
+
+问题是常规阵容不是绑定双C呆或者双CBA吗，这样锁死助战，找的麻烦，奥伯龙的队除了双奥伯龙外，红蓝绿卡 ...</blockquote>
+哪儿有这么麻烦，我现在基本路子就是直接俩宝石打手+一个拐
+
+支援只看礼装管你谁带的，想这么多不如多打一把，反正不抽卡石头管够
+
+只有遇到血量特别高的阴间本我才会考虑上两个拐
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84434#       发表于 2021-11-22 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650257&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-11-22 14:51</a>
+
+哪儿有这么麻烦，我现在基本路子就是直接俩宝石打手+一个拐
+
+支援只看礼装管你谁带的，想这么多不如多打一 ...</blockquote>
+高宝肯定可以这么玩，我这种低宝就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且你这么组队也能用奥伯龙啊，上三和狂用奥伯龙打一面就行，三个人一人一面，buff有奥伯龙的群体30宝威就够了
+
+
+
+*****
+
+####  DARKGRAY  
+##### 84435#       发表于 2021-11-22 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53649644&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 14:08</a>
+
+第一种是所有双C呆，双CBA的阵容换下一个，上奥伯龙，我已经很久没用过双C呆了，再也不用翻半天助战找对应 ...</blockquote>
+换下一个回收够吗？
+
+*****
+
+####  zakki  
+##### 84436#       发表于 2021-11-22 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650557&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-11-22 15:08</a>
+
+换下一个回收够吗？</blockquote>
+肯定够，除非不带50np的倍卡，纯六加成无np的话，那只有一部分np够，比如迦摩。不过如果不带倍卡也没要用这个队，直接双奥或道奥就是了
+
+*****
+
+####  DARKGRAY  
+##### 84437#       发表于 2021-11-22 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650626&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 15:15</a>
+
+肯定够，除非不带50np的倍卡，纯六加成无np的话，那只有一部分np够，比如迦摩。不过如果不带倍卡也没要用 ...</blockquote>
+那俩一个还是锁助战一个没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 84438#       发表于 2021-11-22 15:33
+
+ 本帖最后由 zakki 于 2021-11-22 15:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53650732&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-11-22 15:21</a>
+
+那俩一个还是锁助战一个没有啊
+
+不过带50NP不是至少也要2面打300-50-20-50-70=110么，感觉挺难的啊 ...</blockquote>
+绿卡当然是只有6个怪的时候才能玩玩了，我万圣就是用莫莱刷的，魔总也可以，邪马台90+最优阵容就是魔总CBA奥伯龙。如果不是的话什么时候绿卡配打六加成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果是蓝卡无初始np六加成，绑定04服肯定够，村正，迦摩，仇凛等np没问题，都不需要开被动，30自充的开被动也可以，但像芝诺比阿这种没自充的就肯定不行了
+
+
+
+*****
+
+####  qixinno2  
+##### 84439#       发表于 2021-11-22 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基本都没有 还是乖乖双C呆仇凛冲了
+
+*****
+
+####  alucardcz  
+##### 84440#       发表于 2021-11-22 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53651290&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 15:57</a>
+
+基本都没有 还是乖乖双C呆仇凛冲了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇凛　欧羡慕
+
+*****
+
+####  qixinno2  
+##### 84441#       发表于 2021-11-22 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53651306&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 15:57</a>
+
+仇凛　欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">仇凛有什么可羡慕的
+
+
+
+*****
+
+####  alucardcz  
+##### 84442#       发表于 2021-11-22 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53651420&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 16:05</a>
+
+仇凛有什么可羡慕的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌没有
+
+*****
+
+####  qixinno2  
+##### 84443#       发表于 2021-11-22 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53651496&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 16:09</a>
+
+萌没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">惊了 竟然没仇凛 但你有的我没有的更多啊
+
+
+
+*****
+
+####  alucardcz  
+##### 84444#       发表于 2021-11-22 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然开了２期池
+
+*****
+
+####  zakki  
+##### 84445#       发表于 2021-11-22 17:09
+
+集美们，打拳真的有用<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84446#       发表于 2021-11-22 17:10
+
+话说一个周一就开的卡池有必要藏着掖着语音吗
+
+*****
+
+####  白金口袋  
+##### 84447#       发表于 2021-11-22 17:10
+
+DW还是厉害，这就放一只枪龙马出来堵梦女的嘴，“行了行了给你们一个了别要饭了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84448#       发表于 2021-11-22 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652503&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-22 17:09</a>
+
+集美们，打拳真的有用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波是立于不败之地　就算ｄｗ本来就这打算也没法证明是不是
+
+*****
+
+####  cckuku  
+##### 84449#       发表于 2021-11-22 17:10
+
+枪光炮卷的厉害啊
+
+*****
+
+####  angelooo  
+##### 84450#       发表于 2021-11-22 17:11
+
+乐子人狂喜乱舞中，这是dw骗了一波热搜（不
+
+
+
+*****
+
+####  angelooo  
+##### 84451#       发表于 2021-11-22 17:13
+
+仇信又强化了
+
+*****
+
+####  真红眼教授  
+##### 84452#       发表于 2021-11-22 17:21
+
+“继续打拳他们就会把NPC马上落地了”
+
+*****
+
+####  angelooo  
+##### 84453#       发表于 2021-11-22 17:22
+
+枪龙马这回收是不是可以洗洗睡了
+
+
+
+*****
+
+####  zakki  
+##### 84454#       发表于 2021-11-22 17:24
+
+还是太高看经验值了，还以为能整个真名溶解的假龙马，第二个伪装者。
+
+*****
+
+####  angelooo  
+##### 84455#       发表于 2021-11-22 17:26
+
+<blockquote>zakki 发表于 2021-11-22 17:24
+还是太高看经验值了，还以为能整个真名溶解的假龙马，第二个伪装者。</blockquote>
+蛾子：你满破可以秀恩爱，我就得坐在小公主的尸体上？
+
+*****
+
+####  exiaexa  
+##### 84456#       发表于 2021-11-22 17:27
+
+啥玩意儿啊.JPG
+
+咋回事儿啊.JPG
+
+怎么我打个机战30，活动才打了第一关就又开了个池子啊.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84457#       发表于 2021-11-22 17:37
+
+强度看起来不大行，还想着如果是伪阶就抽了，结果是枪阶还是光炮。不过话说经验值咕哒咕哒的套路是不是就升格一个活动四星成五星，信长，龙马，下一个怕是谦信了
+
+*****
+
+####  yzj134100  
+##### 84458#       发表于 2021-11-22 17:43
+
+奈何是枪光炮
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  quanlix  
+##### 84459#       发表于 2021-11-22 17:44
+
+现在只有是个5星就给50充和正脸特写<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 84460#       发表于 2021-11-22 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653097&amp;ptid=1085254" target="_blank">quanlix 发表于 2021-11-22 17:44</a>
+现在只有是个5星就给50充和正脸特写</blockquote>
+妖兰啊，130冲，两个宝具都无正脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84461#       发表于 2021-11-22 17:47
+
+艹尼玛歪阿莫
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  exiaexa  
+##### 84462#       发表于 2021-11-22 17:50
+
+NMD两单沉了
+
+是个枪光炮不想加钱，明年见吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84463#       发表于 2021-11-22 17:54
+
+哟西，第二单出了，我又是拥有所有枪阶的男人了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  alucardcz  
+##### 84464#       发表于 2021-11-22 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了　最新本夹摸特攻高概率ｍｉｓｓ　带满破礼装都打不死弓凛　又要用回武藏了　我都不想用武藏了
+
+
+
+*****
+
+####  v22325  
+##### 84465#       发表于 2021-11-22 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这最后也太虎头蛇尾了  中间搞那么一段信长头我还以为是重要大戏呢 怎么就一个个全都老马死了 
+
+*****
+
+####  仰望神的括约肌  
+##### 84466#       发表于 2021-11-22 18:44
+
+新弓本 艾蕾！上班！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 84467#       发表于 2021-11-22 18:53
+
+草，为什么弓本一面的6个铜怪道满即死不掉，不是必定即死铜怪的吗
+
+
+
+*****
+
+####  qixinno2  
+##### 84468#       发表于 2021-11-22 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两发十连白嫖失败 GG
+
+*****
+
+####  xiongxingyu  
+##### 84469#       发表于 2021-11-22 19:19
+
+这龙马三破感觉变黑了点？尤其是和一破的肤色比，也许是衣服的关系。然而，阿龙明显是变成白（粉白）毛了。果然抑制力的打工仔最后都逃不过黑皮白毛的宿命吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddr  
+##### 84470#       发表于 2021-11-22 19:23
+
+一发11连命中，溜了
+
+
+
+*****
+
+####  alucardcz  
+##### 84471#       发表于 2021-11-22 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654258&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-11-22 19:19</a>
+
+这龙马三破感觉变黑了点？尤其是和一破的肤色比，也许是衣服的关系。然而，阿龙明显是变成白（粉白）毛了。 ...</blockquote>
+你不说这是龙马我还真以为是阿周娜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 84472#       发表于 2021-11-22 19:43
+
+说真的白阿龙小姐有点吓人
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  DARKGRAY  
+##### 84473#       发表于 2021-11-22 19:49
+
+前几天那个绝对击破完全胜利，今天有个元气爆发，经验值写的时候是不是在复习蓝光人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  霧谷藤乃  
+##### 84474#       发表于 2021-11-22 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653471&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 18:10</a>
+
+麻了　最新本夹摸特攻高概率ｍｉｓｓ　带满破礼装都打不死弓凛　又要用回武藏了　我都不想用武藏了 ...</blockquote>
+我魅惑miss了直接前面开了一个C呆的宝具，刚好打死
+
+*****
+
+####  alucardcz  
+##### 84475#       发表于 2021-11-22 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654889&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-11-22 20:07</a>
+
+我魅惑miss了直接前面开了一个C呆的宝具，刚好打死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太麻烦　不如直接武师傅直接ｍｙ　ｎａｍｅ（
+
+
+
+*****
+
+####  シャル  
+##### 84476#       发表于 2021-11-22 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653471&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 18:10</a>
+
+麻了　最新本夹摸特攻高概率ｍｉｓｓ　带满破礼装都打不死弓凛　又要用回武藏了　我都不想用武藏了 ...</blockquote>
+不是萝兰2抢劈死嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 84477#       发表于 2021-11-22 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53654258&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-11-22 19:19</a>
+
+这龙马三破感觉变黑了点？尤其是和一破的肤色比，也许是衣服的关系。然而，阿龙明显是变成白（粉白）毛了。 ...</blockquote>
+这个状态是罢**工了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  里村紅葉  
+##### 84478#       发表于 2021-11-22 21:07
+
+前几天看阿国讲跟天逆神什么仇什么怨讲的头头是道，怎么到处刑的时候这人全程在OMO啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 84479#       发表于 2021-11-22 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655776&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-22 21:07</a>
+
+前几天看阿国讲跟天逆神什么仇什么怨讲的头头是道，怎么到处刑的时候这人全程在OMO啊 ...</blockquote>
+人在维持结界啊
+
+*****
+
+####  里村紅葉  
+##### 84480#       发表于 2021-11-22 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655862&amp;ptid=1085254" target="_blank">シャル 发表于 2021-11-22 21:13</a>
+
+人在维持结界啊</blockquote>
+我说的是最后武市自刀的时候，我以前起码她会出来收个尾刀之类的，结果一转头去搞临终关怀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DARKGRAY  
+##### 84481#       发表于 2021-11-22 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655907&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-11-22 21:15</a>
+
+我说的是最后武市自刀的时候，我以前起码她会出来收个尾刀之类的，结果一转头去搞临终关怀了 ...</blockquote>
+她的作用就是事先做好了锁让他安心自刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 84482#       发表于 2021-11-22 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇信长都强化两次了 仇凛什么时候才能获得强化
+
+*****
+
+####  里村紅葉  
+##### 84483#       发表于 2021-11-22 21:57
+
+泥潭这个吞帖子是好不了了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  khxooo  
+##### 84484#       发表于 2021-11-22 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656347&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 21:52</a>
+仇信长都强化两次了 仇凛什么时候才能获得强化</blockquote>
+是啊，给个一次的前置50宝威该多好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  J-002  
+##### 84485#       发表于 2021-11-22 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53653782&amp;ptid=1085254" target="_blank">v22325 发表于 2021-11-22 18:35</a>
+
+这最后也太虎头蛇尾了  中间搞那么一段信长头我还以为是重要大戏呢 怎么就一个个全都老马死了  ...</blockquote>
+别着急，本篇还没结局呢，而且咕达咕哒一直都有个恶搞的第二部，怎么也得解释一下兰丸X本能寺的记忆是怎么回事
+
+*****
+
+####  qixinno2  
+##### 84486#       发表于 2021-11-22 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656469&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-11-22 22:04</a>
+
+是啊，给个一次的前置50宝威该多好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要求不高 给个宝具本就行
+
+
+
+*****
+
+####  khxooo  
+##### 84487#       发表于 2021-11-22 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656560&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-11-22 22:13</a>
+我要求不高 给个宝具本就行</blockquote>
+我的意思就是宝具本后每次宝具自带一次50宝威<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84488#       发表于 2021-11-22 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是强化狂娜　３０变５０冲如何
+
+
+
+*****
+
+####  exiaexa  
+##### 84489#       发表于 2021-11-22 23:00
+
+一口气打完，这普普通通的英灵王道剧情总算是对味儿了
+
+感谢经验值挽救了我被菌鸽鸽折磨得ボロボロ的兴趣
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 84490#       发表于 2021-11-23 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657071&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 22:46</a>
+
+不是强化狂娜　３０变５０冲如何</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么首先狂娜什么时候复刻啊
+
+*****
+
+####  angelooo  
+##### 84491#       发表于 2021-11-23 00:33
+
+<blockquote>qixinno2 发表于 2021-11-23 00:24
+那么首先狂娜什么时候复刻啊</blockquote>
+真要奶的话那就小太阳圣诞妇科，这是近期最合理的时间段了
+
+*****
+
+####  v22325  
+##### 84492#       发表于 2021-11-23 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兰丸这声音挺有特色的 有点听上瘾了
+
+
+
+*****
+
+####  khxooo  
+##### 84493#       发表于 2021-11-23 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658501&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-11-23 00:33</a>
+真要奶的话那就小太阳圣诞妇科，这是近期最合理的时间段了</blockquote>
+我认为直接开生放送的活动，然后圣诞复刻和新圣诞无缝。
+
+*****
+
+####  都谷捻柏  
+##### 84494#       发表于 2021-11-23 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53657071&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-22 22:46:02</a>
+不是强化狂娜　３０变５０冲如何</blockquote>变500缓冲
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qixinno2  
+##### 84495#       发表于 2021-11-23 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658501&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-11-23 00:33</a>
+
+真要奶的话那就小太阳圣诞妇科，这是近期最合理的时间段了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我敢奶一口今年都不会复刻 顶多新年日替可能会出来 
+

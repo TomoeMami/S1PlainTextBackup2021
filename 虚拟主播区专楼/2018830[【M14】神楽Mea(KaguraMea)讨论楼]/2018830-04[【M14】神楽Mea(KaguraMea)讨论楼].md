@@ -7825,3 +7825,243 @@ debu
 
 昨晚看着看着睡着了，真可爱就像小女友在你旁边撒娇
 
+
+
+*****
+
+####  T_Hb  
+##### 5407#       发表于 2021-11-22 14:29
+
+22，23，24三连联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  雪风utopia  
+##### 5408#       发表于 2021-11-22 14:52
+
+是我喜欢的车轱辘话
+
+
+
+*****
+
+####  时间在我手中  
+##### 5409#       发表于 2021-11-22 15:16
+
+23号联动什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">犬山那边？
+
+*****
+
+####  T_Hb  
+##### 5410#       发表于 2021-11-22 15:23
+
+牙白女子会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  2014720  
+##### 5411#       发表于 2021-11-22 15:40
+
+我怎么记忆中苔苔已经办了无数次这活动了
+
+啊啊，想听她唱ktv<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T_Hb  
+##### 5412#       发表于 2021-11-22 15:48
+
+今晚有歌回
+
+*****
+
+####  时间在我手中  
+##### 5413#       发表于 2021-11-22 15:57
+
+ 本帖最后由 时间在我手中 于 2021-11-22 16:02 编辑 
+
+犬山的那个几点，今晚歌回盲猜个9点开始吧，看不到推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 问了一下明晚十点一小时，那这不是铁定没了
+
+*****
+
+####  T_Hb  
+##### 5414#       发表于 2021-11-22 16:02
+
+10点，可以提前播或者快乐101
+
+
+
+*****
+
+####  时间在我手中  
+##### 5415#       发表于 2021-11-22 16:08
+
+10点前的提前播按照过往来看还是比较少的
+
+
+
+*****
+
+####  T_Hb  
+##### 5416#       发表于 2021-11-22 17:05
+
+9点
+
+
+
+*****
+
+####  T_Hb  
+##### 5417#       发表于 2021-11-22 19:15
+
+我还以为会有观众投票环节呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  时间在我手中  
+##### 5418#       发表于 2021-11-22 21:13
+
+视角图谔谔
+
+F9JBMSM64Y[8[2MC1PVIXH3.jpg
+(190.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 21:13 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/211346r1s5x1vbx55b717v.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 5419#       发表于 2021-11-22 21:17
+
+短发的我好了
+
+*****
+
+####  T_Hb  
+##### 5420#       发表于 2021-11-22 21:17
+
+ 本帖最后由 T_Hb 于 2021-11-22 21:19 编辑 
+
+明年的立牌预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能出AB款骗钱
+
+*****
+
+####  雪风utopia  
+##### 5421#       发表于 2021-11-22 21:19
+
+至少不用活动都用证件照了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 5422#       发表于 2021-11-22 21:19
+
+Key Visual
+
+阿咩是想出个大海报吗（
+
+
+
+*****
+
+####  2014720  
+##### 5423#       发表于 2021-11-22 21:28
+
+这图也太烧了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dualist彩  
+##### 5424#       发表于 2021-11-22 21:32
+
+这首好听啊，好想抱着她亲她
+
+     
+
+突然心脏停了一拍
+
+
+
+*****
+
+####  路人庚  
+##### 5425#       发表于 2021-11-22 21:56
+
+物语连发啊
+
+*****
+
+####  古战场亡魂  
+##### 5426#       发表于 2021-11-22 21:59
+
+物语专场啊
+
+
+
+*****
+
+####  T_Hb  
+##### 5427#       发表于 2021-11-22 22:12
+
+好久没播打雀了
+
+
+
+*****
+
+####  时间在我手中  
+##### 5428#       发表于 2021-11-22 23:03
+
+呃呃，这个图要做亚克力牌可还行
+
+
+
+*****
+
+####  T_Hb  
+##### 5429#       发表于 2021-11-22 23:21
+
+敬礼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  2014720  
+##### 5430#       发表于 2021-11-23 00:13
+
+麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  时雨rain  
+##### 5431#       发表于 2021-11-23 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">额，什么咩行者
+
+
+
+*****
+
+####  雪风utopia  
+##### 5432#       发表于 2021-11-23 02:40
+
+白丝大腿和腿环和大水袋看得我我忍不住了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+

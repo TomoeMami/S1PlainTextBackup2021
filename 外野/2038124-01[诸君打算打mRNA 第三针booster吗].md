@@ -1326,3 +1326,48 @@ booster我是不想去打了
 
 感觉自己打到生理盐水了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烦死了  
+##### 132#         楼主| 发表于 2021-11-23 04:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645084&amp;ptid=2038124" target="_blank">Redis 发表于 2021-11-22 07:53</a>
+
+我也是第三针胳膊都没怎么疼
+
+感觉自己打到生理盐水了</blockquote>
+可能稀释的时候没搞匀， 你那针就是saline<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ekdc11  
+##### 133#       发表于 2021-11-23 06:17
+
+第三针还是选了辉瑞，打了来报告。
+
+
+
+*****
+
+####  frosta  
+##### 134#       发表于 2021-11-23 06:36
+
+能打肯定打
+
+之前瑞辉第二针直接撂倒躺了一整天
+
+不知道第三针会不会反应更大
+
+
+
+*****
+
+####  水可载舟  
+##### 135#       发表于 2021-11-23 07:32
+
+六月打了两针国药然后九月打了两针辉瑞，不太确定明年要不要再打一针
+
