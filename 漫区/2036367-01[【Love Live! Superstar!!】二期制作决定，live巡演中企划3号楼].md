@@ -11560,3 +11560,31 @@ D0AA6B44-FF0B-4343-9B8F-D267ED00B0C4.jpeg
 
 りーゆー逆から読むと百合
 
+
+
+*****
+
+####  plazum  
+##### 1054#       发表于 2021-11-23 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53664093&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-11-23 13:42</a>
+
+https://fate.5ch.net/test/read.cgi/lovelive/1637585538/直接板内按标题找就有了
+
+顺带一说我觉得 ...</blockquote>
+这有什么，那sayuri直接就是yuri了
+
+*****
+
+####  plazum  
+##### 1055#       发表于 2021-11-23 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663605&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-23 12:54</a>
+
+玩明白了，其实用领结和衣服颜色来分辨才是最快的
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的
+
+另外，我目前看到最快的是0.56秒，他的方法是不停地刷新然后点同一个位置
+
