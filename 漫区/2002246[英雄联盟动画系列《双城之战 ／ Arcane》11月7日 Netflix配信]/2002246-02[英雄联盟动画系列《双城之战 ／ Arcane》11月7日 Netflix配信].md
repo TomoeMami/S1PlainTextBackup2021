@@ -11010,3 +11010,63 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 看英雄联盟宇宙的文章，抛开剧情不说看得出来是很用心的，不同地区用的不同作者和风格，比如一个东方风格 ...</blockquote>
 挖了黑图书馆很多人写书啊
 
+
+
+*****
+
+####  新的起源  
+##### 2555#       发表于 2021-11-23 16:37
+
+离谱
+
+明凯入党了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  银枪子龙  
+##### 2556#       发表于 2021-11-23 16:39
+
+中国人入党很稀奇吗？哪天硬币哥入党再来离谱
+
+*****
+
+####  新的起源  
+##### 2557#       发表于 2021-11-23 16:40
+
+如果你喜欢《双城之战》或《破败王者：英雄联盟传奇》游戏并且对更多的英雄联盟IP感到兴趣，我的建议，如果你是对故事感兴趣，去玩看看《LOR/符文大地传說》；或者，如果你想要很棒的多人游戏体验，去玩看看《英雄联盟手游 m》。对，我们正在为大家打造MMORPG
+
+鬼蟹你原来知道端游薇和金克丝没法玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  petrouchka  
+##### 2558#       发表于 2021-11-23 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460483&amp;ptid=2002246" target="_blank">昴星长明 发表于 2021-11-8 11:29</a>
+
+打，都可以打；但是蔚蹭了一下又不打了，打了但是没完全打；然后还是刺激了金克丝导致决裂；看着就有点难 ...</blockquote>
+我感觉和你看的不是一个动画.....
+
+金克斯这小孩有大毛病啊，边缘性人格障碍一般人兜不住，她后来那样都是注定的
+
+我以为一到三集已经说得够清楚了。
+
+如何评价动画《英雄联盟：双城之战》大结局第 9 集中金克丝的作为？ - 李烂树的回答 - 知乎
+[https://www.zhihu.com/question/500355875/answer/2234574556](https://www.zhihu.com/question/500355875/answer/2234574556)
+
+（我大概同意这个回答）
+
+*****
+
+####  银枪子龙  
+##### 2559#       发表于 2021-11-23 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53666819&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-23 16:40</a>
+
+如果你喜欢《双城之战》或《破败王者：英雄联盟传奇》游戏并且对更多的英雄联盟IP感到兴趣，我的建议，如果 ...</blockquote>
+已经有不少人尝试，然后深刻体验祖安生活了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

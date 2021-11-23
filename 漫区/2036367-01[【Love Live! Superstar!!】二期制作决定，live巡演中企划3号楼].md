@@ -11647,3 +11647,18 @@ https://fate.5ch.net/test/read.cgi/lovelive/1637585538/直接板内按标题找�
 这有什么，那sayuri直接就是yuri了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不是也写了sayuri吗，就是说两人名字都藏着yuri啊
 
+
+
+*****
+
+####  D麦林  
+##### 1060#       发表于 2021-11-23 16:40
+
+伊能津老师：
+
+一开始对方说不需要季节感
+
+但是我就是想画点毛绒绒的东西
+
+最后不知怎的就画成了圣诞节式样的历代集合图
+
