@@ -2646,3 +2646,71 @@ air link我用普通路由器的话Q2显示没有互联网连接，然后pc端�
 
 vd串流是不是占用资源比airlink小很多？
 
+
+
+*****
+
+####  bypass  
+##### 170#         楼主| 发表于 2021-11-23 09:37
+
+《杀手三》VR 模式在 PS 平台的限时独占结束，明年 1 月份登录 PSVR，同时还支持光追（跑不起）：<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 超棒的好嘛！
+
+<img src="https://img.saraba1st.com/forum/202111/23/093654zhgho27o6nngn7eg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 09:36 上传
+
+官方演示用的 Valve Index：
+
+<img src="https://img.saraba1st.com/forum/202111/23/093741p0r352of2pko15ok.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 09:37 上传
+
+*****
+
+####  bypass  
+##### 171#         楼主| 发表于 2021-11-23 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659214&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-23 02:08</a>
+
+今天Q2到货了，问几个问题
+
+第一个是感觉有时候屏幕显示有点模糊，但是调整一下眼镜位置就好了，这个无解吗
+
+ ...</blockquote>
+关于问题一，如果你用的是自带头戴的话，尝试把位置调到你清晰的位置，然后把头戴拉紧（后面是可以拉的，只要人没死怎么拉都可以），我个人就是这么解决的，自带头戴虽然各种拉胯，但是紧是**的紧 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bypass  
+##### 172#         楼主| 发表于 2021-11-23 09:42
+
+ 本帖最后由 bypass 于 2021-11-23 09:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53656150&amp;ptid=2034565" target="_blank">egged5 发表于 2021-11-22 21:34</a>
+
+刚刚买了quest2，去官网看了一下Oculus Link的支持的列表，这里Not Currently Supported的是指完全用不了的 ...</blockquote>
+社区的反馈是可以：
+
+<img src="https://img.saraba1st.com/forum/202111/23/094145nconsocwqo1q7ojf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 09:41 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/094200y0d4xnbb0zybxf04.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 09:42 上传
+
