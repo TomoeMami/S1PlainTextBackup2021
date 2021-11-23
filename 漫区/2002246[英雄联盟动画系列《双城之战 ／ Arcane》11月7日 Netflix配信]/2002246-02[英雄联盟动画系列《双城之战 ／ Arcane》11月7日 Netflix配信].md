@@ -11238,3 +11238,26 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 我s5前的满级号现在怎么能回来爽光荣进化啊，只能玩人机了吗</blockquote>
 打打大乱斗，大乱斗宽容度还是挺高的
 
+
+
+*****
+
+####  飞升之后  
+##### 2570#       发表于 2021-11-23 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53669800&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-23 20:27</a>
+
+那我也来推了，都是一个爹的，瓦罗兰特角色歌
+
+【拳头音乐【Valorant】角色歌-哔哩哔哩】https://b23.tv/I ...</blockquote>
+圣贤和新的高质量男性的角色曲好听
+
+*****
+
+####  虚空小龙虾  
+##### 2571#       发表于 2021-11-23 21:03
+
+推荐岩雀角色曲
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

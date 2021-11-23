@@ -5540,3 +5540,14 @@ NMD两单沉了
 
 “我一开始就知道你到最后的最后肯定会选择我附身”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84498#       发表于 2021-11-23 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">街机今年圣诞是肯娘，第七章搞得跟金闪闪alter一样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">总之盐川飞妈
+
