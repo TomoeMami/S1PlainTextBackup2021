@@ -13232,3 +13232,25 @@ nga静楼p用没有，全是偷贴吧和s1的二手
 
 coco怎么大一早在播
 
+
+
+*****
+
+####  GAKOTO  
+##### 2921#         楼主| 发表于 2021-11-23 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660010&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-23 08:38</a>
+
+coco怎么大一早在播</blockquote>
+co宝经常早上播的，巨龙是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 2922#       发表于 2021-11-23 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660040&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-23 08:41</a>
+
+co宝经常早上播的，巨龙是这样的</blockquote>
+原来如此
+
