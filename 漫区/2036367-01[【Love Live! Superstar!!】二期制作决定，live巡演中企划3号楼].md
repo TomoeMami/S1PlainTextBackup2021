@@ -11713,3 +11713,39 @@ nagi 赌徒→贤者
 
 好像有点想看这样的5个美少女组队闯异世界的网游小说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 1064#       发表于 2021-11-23 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53664528&amp;ptid=2036367" target="_blank">saya1892 发表于 2021-11-23 14:18</a>
+最早的
+
+なこすき🔥🔥🔥っっていうりーすき🔥🔥🔥
+
+https://fate.5ch.net/test/read.cgi/lovelive/1633793526 ...</blockquote>
+三个🔥到底什么梗啊，到处都是
+
+*****
+
+####  名津流  
+##### 1065#       发表于 2021-11-23 17:46
+
+ 本帖最后由 名津流 于 2021-11-23 17:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53667781&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-23 17:43</a>
+
+三个🔥到底什么梗啊，到处都是</blockquote>
+liyuu有次推特跟nako互动，说了句 nako suki 火火火 ，然后就成梗了，而且一直被当做是这对CP组合最有力的证据
+
+<img src="https://img.saraba1st.com/forum/202111/23/175731fykwy66r3xp0drip.jpg" referrerpolicy="no-referrer">
+
+<strong>XLLPsiR.jpg</strong> (188.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 17:57 上传
+
+这话说了后没几天，官方发了那个抢尾巴比赛上又说了句 nako坏人nako，然后两句话和句型就被经常拿来一起用，合成一个梗了
+

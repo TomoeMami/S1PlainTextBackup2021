@@ -14897,3 +14897,12 @@ lancia跟alfa有戏吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">刚刚看见一个截图说有人找不到移除涂装的按钮然后就按了那个举报作者并移除造型的按钮
 
+
+
+*****
+
+####  nemunoki  
+##### 1352#       发表于 2021-11-23 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">那个举报作者并移除造型的选项就在选车菜单最下面，一不小心手欠都能按到，这设计可以给个迷惑大赏了
+
