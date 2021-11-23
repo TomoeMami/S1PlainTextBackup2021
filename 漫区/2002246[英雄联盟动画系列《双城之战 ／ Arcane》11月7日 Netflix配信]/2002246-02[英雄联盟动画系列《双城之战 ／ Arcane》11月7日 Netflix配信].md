@@ -11361,3 +11361,39 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2582#       发表于 2021-11-24 00:14
+
+Reddit上有人爆料连同宣发 双城经费花了2亿美金<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  309465205  
+##### 2583#       发表于 2021-11-24 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53655857&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-22 21:12</a>
+
+是的，这几天细琢磨这处情节感觉挺绝的，那种局面之下当希尔科拿起枪的一瞬间金克丝就注定会成为完全体金 ...</blockquote>
+甚至自己挂了也算,他给范德尔的石像倒酒时已经表示不知道自己以后该干嘛了
+
+*****
+
+####  bairn  
+##### 2584#       发表于 2021-11-24 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672605&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-24 00:14</a>
+
+Reddit上有人爆料连同宣发 双城经费花了2亿美金</blockquote>
+给个链接 一直见有人这么说但从没见到出处
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2585#       发表于 2021-11-24 00:18
+
+开看，人物线条好硬朗，这种风格之前没看过。蓝发小女孩中文配音挺可爱。
+

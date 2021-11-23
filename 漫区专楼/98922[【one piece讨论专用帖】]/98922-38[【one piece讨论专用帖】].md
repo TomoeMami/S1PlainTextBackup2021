@@ -7888,3 +7888,14 @@ king这个弹射头部到底是怎么回事</blockquote>
 
 库里雷利都有霸王色，索隆肯定也有，不然怎么做海贼王团副手
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56107#       发表于 2021-11-24 00:11
+
+不会霸王色缠绕的话这时候突然觉醒个霸王色也没什么大不了的
+
+后面想打败烬还不是得靠「御田」的阎魔觉醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
