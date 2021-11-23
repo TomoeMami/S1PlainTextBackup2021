@@ -11188,3 +11188,25 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 按道理3级前都是人机，不至于上来就pvp才是</blockquote>
 我s5前的满级号现在怎么能回来爽光荣进化啊，只能玩人机了吗
 
+
+
+*****
+
+####  飞升之后  
+##### 2566#       发表于 2021-11-23 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53669432&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-23 19:56</a>
+
+这几天回去听了听15年的英雄联盟音乐原声，只能说拳头这群人做游戏是真的有追求。音乐质量绝对是拔尖水准， ...</blockquote>
+露露和萨科也有故事吗？？只看过露露和小跑的冒险故事
+
+*****
+
+####  Siran_China  
+##### 2567#       发表于 2021-11-23 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53669681&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-23 20:15</a>
+
+露露和萨科也有故事吗？？只看过露露和小跑的冒险故事</blockquote>
+没有文字故事，只有这一首曲子，除此之外萨科似乎没有在其他故事里出现过，露露倒是出了名的古灵精怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
