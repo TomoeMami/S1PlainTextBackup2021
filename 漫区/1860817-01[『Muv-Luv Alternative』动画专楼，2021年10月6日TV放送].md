@@ -20338,3 +20338,17 @@ steam版阉割的“alt纯夏的真相”，原版可是不亚于名场面的存
 
 游戏原作没有黑色武御雷的刻画吧，一般出身的平民涂装
 
+
+
+*****
+
+####  freyja_wion  
+##### 1428#       发表于 2021-11-23 12:37
+
+ 本帖最后由 freyja_wion 于 2021-11-23 12:39 编辑 
+
+<img src="https://p.sda1.dev/3/1c86d2fa73ba3c658dff3f943ddea080/IMG_CMP_22626748.png" referrerpolicy="no-referrer">光线问题吧，应该还是白的
+又仔细看了一下脸好像不一样<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

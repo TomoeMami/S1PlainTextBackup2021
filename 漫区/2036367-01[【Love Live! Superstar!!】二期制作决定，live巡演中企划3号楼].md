@@ -11316,3 +11316,121 @@ tmd，星团怎么成了这个样子.jpg
 
 要是真的我反倒会觉得害怕，直女营业就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 1036#       发表于 2021-11-23 12:22
+
+企划里真一点还得是萌p
+
+*****
+
+####  wsdbyh  
+##### 1037#       发表于 2021-11-23 12:22
+
+星是5个人，不像水缪那样9个人，就算里面有小圈子，也不会搞得谁和谁关系会太疏远吧
+
+*****
+
+####  仟音一心  
+##### 1038#       发表于 2021-11-23 12:22
+
+磕点当消遣就行，别上头，全部当成营业也并无不妥。
+
+5ch上都有不少人上头了。
+
+872D7810-7567-4EF5-855A-094587C386B7.jpeg
+(406.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/122219q1y9t4bby1m181a1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D0AA6B44-FF0B-4343-9B8F-D267ED00B0C4.jpeg
+(332.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/122218nwhutk1vsufkwvuz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8070300E-81F3-4A2B-841B-7DB7C727C063.jpeg
+(395.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/122219gcpyves0nwp8jhg5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+62CE8CFA-BCE4-4266-A633-F3CE49BE9E6A.jpeg
+(283 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/122220uwh4r60r55a7i4ar.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+58A3CD5F-C874-4C7D-9ACC-EBCE22F8496D.jpeg
+(241.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/122220y182aj5mw8sj4w4p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 1039#       发表于 2021-11-23 12:22
+
+<img src="https://img.saraba1st.com/forum/202111/23/122222mdu2dln6d3ut7te8.png" referrerpolicy="no-referrer">
+
+<strong>d20a3abd-957f-489a-b4b7-d641515e8929.png</strong> (564.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 12:22 上传
+
+和东京塔搞活动
+
+*****
+
+####  cat1230  
+##### 1040#       发表于 2021-11-23 12:29
+
+起码得是浅野真澄和堀江由衣这对一样的闺密才能叫私底下关系好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 1041#       发表于 2021-11-23 12:34
+
+鲤鱼fc更新花絮2了，太阳直射加上水面反射睁不开眼太可爱了。这写真感觉9成是国人贡献的
+
+*****
+
+####  cybernetics31  
+##### 1042#       发表于 2021-11-23 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">年龄小还不懂营业吗
+论营业，隔壁兔明显更上头啊
+
+*****
+
+####  cat1230  
+##### 1043#       发表于 2021-11-23 12:39
+
+容易害羞的话搞百合营业不合适吧，但可堇明显是p酱主推<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

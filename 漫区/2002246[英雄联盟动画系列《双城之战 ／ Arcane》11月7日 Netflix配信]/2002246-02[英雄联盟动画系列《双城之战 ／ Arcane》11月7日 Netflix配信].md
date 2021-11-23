@@ -10824,3 +10824,17 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 这真没必要，皮肤本来就是缝合各种其他文化元素的，你做出来没人家原型做得好，就没啥意义了 ...</blockquote>
 确实，皮肤宇宙属于给别人添热度，跟主宇宙IP破圈的目标偏差有点多
 
+
+
+*****
+
+####  银枪子龙  
+##### 2538#       发表于 2021-11-23 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662279&amp;ptid=2002246" target="_blank">doas9 发表于 2021-11-23 11:20</a>
+
+应该不止，从前期拳头自己说acrane掏光了自己的钱包来看。
+
+风格有一定相似的蜘平，成本1.5亿刀。</blockquote>
+制作费用没这么高吧
+

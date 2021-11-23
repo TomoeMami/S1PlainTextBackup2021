@@ -13265,3 +13265,14 @@ co宝经常早上播的，巨龙是这样的</blockquote>
 coco怎么大一早在播</blockquote>
 早安coco的含金量
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2924#       发表于 2021-11-23 12:44
+
+文静出院了文静出院了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
