@@ -11289,3 +11289,30 @@ tmd，星团怎么成了这个样子.jpg
 
 论迫害我还是佩服官方的
 
+
+
+*****
+
+####  player3960  
+##### 1033#       发表于 2021-11-23 12:08
+
+能成好朋友就是胜利，那些营业也不能太上头，现在星团还在早期，而且最近都忙的很，就看以后成员之间线下的私人互动多不多了，我反正还乐观的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cat1230  
+##### 1034#       发表于 2021-11-23 12:12
+
+只有菜宝才能是真的，别的都是营业<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  chenflyyy  
+##### 1035#       发表于 2021-11-23 12:19
+
+要是真的我反倒会觉得害怕，直女营业就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
