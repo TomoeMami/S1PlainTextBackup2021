@@ -11443,3 +11443,21 @@ Reddit上有人爆料连同宣发 双城经费花了2亿美金</blockquote>
 
 坏了，这几天满脑子都在想着VI和凯特琳这对，劲太大了，拳头怎么这么会呢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  狭义文具爱好者  
+##### 2591#       发表于 2021-11-24 01:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我这两天满脑子都是杰斯和维克托这对
+
+原设定还好，现在杰斯这个形象这俩人咋分道扬镳啊
+
+*****
+
+####  ammk  
+##### 2592#       发表于 2021-11-24 01:16
+
+上面俩位建议都去lor看日后谈解解渴，算是官方出的if线
+
