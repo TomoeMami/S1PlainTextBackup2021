@@ -10639,3 +10639,39 @@ imdb电视分类排名上升到12，超过权游了</blockquote>
 艾克八成是要吃书了，这倒带能力没黑默丁格帮忙我不不信的，甚至我觉得这能力和魔法更接近，单凭 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/366.png" referrerpolicy="no-referrer">说不定是他回到过去确定了世界线呢
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2523#       发表于 2021-11-23 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660801&amp;ptid=2002246" target="_blank">武男 发表于 2021-11-23 09:42</a>
+
+说不定是他回到过去确定了世界线呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">拳头的闪电侠么，重启世界线就靠你了
+
+*****
+
+####  医生狼多  
+##### 2524#       发表于 2021-11-23 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659246&amp;ptid=2002246" target="_blank">sug2shake 发表于 2021-11-23 02:18</a>
+lol和lor都不想玩，看完双城之战想进一步了解世界观和人物应该看什么？</blockquote>
+可以先看下播放量最高的这两个cg
+【【英雄联盟】2019赛季CG 《觉醒》-哔哩哔哩】https://b23.tv/ldGxuJc
+
+【【英雄联盟】战士 – 2020赛季CG动画-哔哩哔哩】https://b23.tv/8dI9GPw
+
+21赛季的破败王就别看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外lol还有皮肤宇宙的cg，战地机甲源计划魔法少女之类的，跟主宇宙无关
+
+*****
+
+####  武男  
+##### 2525#       发表于 2021-11-23 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660970&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-23 09:56</a>
+
+拳头的闪电侠么，重启世界线就靠你了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">一开始不就是他搞出来的嘛，所以按美漫各种时间能力来说，还真不一定不是他
+
