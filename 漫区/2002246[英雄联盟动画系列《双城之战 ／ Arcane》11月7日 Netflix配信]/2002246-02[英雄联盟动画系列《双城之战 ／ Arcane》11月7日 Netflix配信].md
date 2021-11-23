@@ -10838,3 +10838,44 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 风格有一定相似的蜘平，成本1.5亿刀。</blockquote>
 制作费用没这么高吧
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2539#       发表于 2021-11-23 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663345&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-23 12:33</a>
+
+制作费用没这么高吧</blockquote>
+说是红迪那边透露，加上宣发在2亿美元左右，考虑到9集，360分钟，加上请了一堆音乐大佬作曲唱歌，我觉得还真差不多，蜘平120分钟左右，制作成本1亿，双城应该是因为很多手绘的背景，比3D精细建模便宜，省钱了
+
+*****
+
+####  消失的八月  
+##### 2540#       发表于 2021-11-23 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53661947&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-23 11:00</a>
+
+哈哈哈，刚看到的，杰斯才是幕后黑手
+
+杰斯利用机会接近梅尔，因为他知道梅尔是诺克萨斯人（小伏笔），杰斯 ...</blockquote>
+脑洞太大<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tewaku  
+##### 2541#       发表于 2021-11-23 12:53
+
+2亿没毛病，这是电影级制作了
+
+*****
+
+####  lost_恩恩  
+##### 2542#       发表于 2021-11-23 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663515&amp;ptid=2002246" target="_blank">消失的八月 发表于 2021-11-23 12:45</a>
+
+脑洞太大</blockquote>
+主要是一直强调叫我议员，让人觉得杰斯就是个钟爱权力的人，最后退位让贤的演出，也只是把这群臭鱼烂虾一网打尽的计谋，杰斯啊，你的心思，比夏亚还深！
+

@@ -20352,3 +20352,12 @@ steam版阉割的“alt纯夏的真相”，原版可是不亚于名场面的存
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hlazd  
+##### 1429#       发表于 2021-11-23 12:43
+
+左边右边两台的传感器颜色不一样的
+

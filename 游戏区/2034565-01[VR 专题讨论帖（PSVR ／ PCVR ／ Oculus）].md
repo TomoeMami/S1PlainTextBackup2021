@@ -2798,3 +2798,12 @@ vd串流是不是占用资源比airlink小很多？
 air link我用普通 ...</blockquote>
 airlink不需要翻墙。但你要先把pc端的airlink开关打开，quest里才能搜到
 
+
+
+*****
+
+####  hikari0805  
+##### 179#       发表于 2021-11-23 12:58
+
+vd串流是不是占用资源比airlink小很多？
+

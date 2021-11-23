@@ -11434,3 +11434,32 @@ D0AA6B44-FF0B-4343-9B8F-D267ED00B0C4.jpeg
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  plazum  
+##### 1044#       发表于 2021-11-23 12:46
+
+昨晚在一个群的群友的启发下用那个找唐可可的图做了个小游戏，大家可以玩玩看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Karin11974  
+##### 1045#       发表于 2021-11-23 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663523&amp;ptid=2036367" target="_blank">plazum 发表于 2021-11-23 12:46</a>
+昨晚在一个群的群友的启发下用那个找唐可可的图做了个小游戏，大家可以玩玩看https://zrtech.org/tk ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202111/23/125323obzgkkiqfc5i5q8e.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4192.PNG</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 12:53 上传
+
+玩明白了，其实用领结和衣服颜色来分辨才是最快的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
