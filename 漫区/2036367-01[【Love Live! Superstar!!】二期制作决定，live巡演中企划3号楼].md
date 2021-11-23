@@ -11503,3 +11503,60 @@ D0AA6B44-FF0B-4343-9B8F-D267ED00B0C4.jpeg
 
 看到一个加强版，什么三年内找出唐可可，头像密密麻麻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1050#       发表于 2021-11-23 13:32
+
+佩佩在跟世界史搏斗
+
+孩子太单纯了，再说自己推可堇但是鲤鱼拼命推可香，搞得她也有点不知所措吧
+
+
+
+*****
+
+####  chenflyyy  
+##### 1051#       发表于 2021-11-23 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53662121&amp;ptid=2036367" target="_blank">Piano-Forest 发表于 2021-11-23 11:11</a></blockquote>
+这封面画得真棒啊。。。太色了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+既然这期出了四立德封面，接下来的两期投票封面应该就不会再出现吧
+
+*****
+
+####  仟音一心  
+##### 1052#       发表于 2021-11-23 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663762&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-23 13:12</a>
+
+求翻译的原帖，求更多！</blockquote>
+就贴吧里[http://tieba.baidu.com/p/7622865 ... amp;share_from=post](http://tieba.baidu.com/p/7622865892?&amp;share=9105&amp;fr=sharewise&amp;unique=F6512184F99BE4F5D5162797F79CC5EB&amp;st=1637645754&amp;client_type=1&amp;client_version=12.13.1&amp;sfc=copy&amp;share_from=post)
+
+5ch原贴我也不知道
+
+53334295-561C-4672-9815-23727DD8C16E.jpeg
+(314.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 13:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/23/133548yt2qq1tq3a9w91ri.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 1053#       发表于 2021-11-23 13:42
+
+[https://fate.5ch.net/test/read.cgi/lovelive/1637585538/](https://fate.5ch.net/test/read.cgi/lovelive/1637585538/)直接板内按标题找就有了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺带一说我觉得原贴精华是这句
+
+8名無しで叶える物語(茸)2021/11/22(月) 21:58:03.69ID:thkL8Xwd
+
+さ百合
+
+りーゆー逆から読むと百合
+

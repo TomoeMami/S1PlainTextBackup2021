@@ -2807,3 +2807,15 @@ airlink不需要翻墙。但你要先把pc端的airlink开关打开，quest里�
 
 vd串流是不是占用资源比airlink小很多？
 
+
+
+*****
+
+####  bypass  
+##### 180#         楼主| 发表于 2021-11-23 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53663633&amp;ptid=2034565" target="_blank">hikari0805 发表于 2021-11-23 12:58</a>
+
+vd串流是不是占用资源比airlink小很多？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 搜了一下，貌似也没看到有人讨论这两个的资源占用比较的。另外就是看到有人说 VD 对 FSR 的支持比较好。
+
