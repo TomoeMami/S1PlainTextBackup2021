@@ -11684,3 +11684,32 @@ https://fate.5ch.net/test/read.cgi/lovelive/1637585538/直接板内按标题找�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼你倒是多看看pay啊
 
+
+
+*****
+
+####  名津流  
+##### 1063#       发表于 2021-11-23 17:40
+
+<img src="https://img.saraba1st.com/forum/202111/23/173742n258592ccoec8ls2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211123173737.png</strong> (13.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 17:37 上传
+
+sayu 勇者
+
+liyuu 商人
+
+nako 格斗家
+
+pay  魔法师
+
+nagi 赌徒→贤者
+
+像这样的风格
+
+好像有点想看这样的5个美少女组队闯异世界的网游小说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

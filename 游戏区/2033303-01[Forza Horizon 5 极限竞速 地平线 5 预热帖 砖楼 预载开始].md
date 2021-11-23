@@ -14867,3 +14867,33 @@ lancia跟alfa有戏吗</blockquote>
 为啥被封？</blockquote>
 版权或者被举报儿童色情啥的吧
 
+
+
+*****
+
+####  bad_alloc  
+##### 1349#       发表于 2021-11-23 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53666930&amp;ptid=2033303" target="_blank">feelmydick 发表于 2021-11-23 16:47</a>
+
+大量痛车作者被封号了包括MrYuShaw大佬，涂装也被下架，无语子</blockquote>
+哎这pg，正事不干，xjb搞
+
+下过MrYuShaw这位大佬不少涂装，没痛车开我玩个几把的地平线
+
+*****
+
+####  Vladimeow  
+##### 1350#       发表于 2021-11-23 17:38
+
+傻逼PG
+
+
+
+*****
+
+####  Totokei  
+##### 1351#       发表于 2021-11-23 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">刚刚看见一个截图说有人找不到移除涂装的按钮然后就按了那个举报作者并移除造型的按钮
+
