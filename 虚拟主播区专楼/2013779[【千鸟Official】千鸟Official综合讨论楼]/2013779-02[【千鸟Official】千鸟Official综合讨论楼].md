@@ -13571,3 +13571,23 @@ coco怎么大一早在播</blockquote>
 
 室友看我在看白白直播，说这有点菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tbdmgx@163.com  
+##### 2940#       发表于 2021-11-23 22:06
+
+ 本帖最后由 tbdmgx@163.com 于 2021-11-23 22:07 编辑 
+
+这何止有点菜，初见泥鱼龙兜圈20分钟没上过刃然后被打死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我默默退出了直播间...
+
+
+
+*****
+
+####  T型钉宫病毒  
+##### 2941#       发表于 2021-11-23 22:09
+
+孩子随她妈，有点想念静静的仙7了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

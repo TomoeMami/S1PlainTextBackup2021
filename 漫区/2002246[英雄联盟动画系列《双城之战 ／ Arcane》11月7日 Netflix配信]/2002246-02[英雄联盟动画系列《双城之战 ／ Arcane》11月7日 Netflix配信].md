@@ -11261,3 +11261,17 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  飞升之后  
+##### 2572#       发表于 2021-11-23 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53670317&amp;ptid=2002246" target="_blank">虚空小龙虾 发表于 2021-11-23 21:03</a>
+
+推荐岩雀角色曲
+
+—— 来自 meizu 17, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+第一次赛季CG里的岩雀真绝，希望正史里也能有这段
+
