@@ -11128,3 +11128,14 @@ tmd，星团怎么成了这个样子.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  kata魂  
+##### 1018#       发表于 2021-11-23 10:40
+
+ 本帖最后由 kata魂 于 2021-11-23 10:42 编辑 
+
+先不说别的，合鲤这身高差，年龄差，性格差，国籍差，甚至样貌还有些相似，这种在轻小说都算buff叠满的不用来营业那简直是在犯罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

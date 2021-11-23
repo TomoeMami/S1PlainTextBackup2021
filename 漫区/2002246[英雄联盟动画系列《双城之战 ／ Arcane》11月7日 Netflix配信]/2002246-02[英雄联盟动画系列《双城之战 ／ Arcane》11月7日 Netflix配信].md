@@ -10711,3 +10711,26 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 
 艾克的大不就是蚂蚁的大吗
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2529#       发表于 2021-11-23 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53661319&amp;ptid=2002246" target="_blank">终结之心 发表于 2021-11-23 10:20</a>
+
+是我听错了还是你没下过客户端
+
+艾克的大不就是蚂蚁的大吗</blockquote>
+游戏里的表现自然和设定里的不太一样。。游戏你又不能真让其他玩家直接倒带
+
+*****
+
+####  终结之心  
+##### 2530#       发表于 2021-11-23 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53661416&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-23 10:26</a>
+游戏里的表现自然和设定里的不太一样。。游戏你又不能真让其他玩家直接倒带 ...</blockquote>
+也是，宣传CG和游戏里不一样，上面是我说错了
+
