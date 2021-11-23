@@ -11349,3 +11349,15 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 真女酮，还有喜闻乐见的修罗的和骨科</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">多谢，那我得去看看。
 
+
+
+*****
+
+####  战场公主希维尔  
+##### 2581#       发表于 2021-11-23 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672173&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-23 23:35:49</a>
+多谢，那我得去看看。</blockquote>战吧狂喜的扭曲度。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
