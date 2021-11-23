@@ -13562,3 +13562,12 @@ coco怎么大一早在播</blockquote>
 为了上高素质国V开始刻意爆粗口了</blockquote>
 白白的事业心<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 2939#       发表于 2021-11-23 21:42
+
+室友看我在看白白直播，说这有点菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
