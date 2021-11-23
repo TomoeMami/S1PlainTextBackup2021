@@ -11772,3 +11772,67 @@ DQ的游人好像就是直翻游人来着，虽然我没玩过DQ也不懂这职�
 
 鲤鱼晚上fc的生放说写真是很久之前拍的…………夏天的时候…………<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">那么上上周冲绳就是别的了
 
+
+
+*****
+
+####  welcom  
+##### 1068#       发表于 2021-11-23 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53668466&amp;ptid=2036367" target="_blank">永恒的王牌 发表于 2021-11-23 18:37</a>
+
+DQ的游人好像就是直翻游人来着，虽然我没玩过DQ也不懂这职业干嘛的，好像就只是个贤者前置职业 ...</blockquote>
+DQ3当时加进来这个职业更像是一个玩笑，毕竟是初代就能和公主搞一晚上的老男人恶趣味
+
+FC原版是真的只能混日子到20级转贤者，就为了节省贤者之书
+
+后来SFC版好歹花样多了点虽然还是混子位就是了
+
+其他作品没什么自由转职了
+
+*****
+
+####  名津流  
+##### 1069#       发表于 2021-11-23 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53668789&amp;ptid=2036367" target="_blank">welcom 发表于 2021-11-23 19:02</a>
+
+DQ3当时加进来这个职业更像是一个玩笑，毕竟是初代就能和公主搞一晚上的老男人恶趣味
+
+FC原版是真的只能混 ...</blockquote>
+DQ系列里商人是能干嘛？怎么他们给鲤鱼安了个这个
+
+*****
+
+####  welcom  
+##### 1070#       发表于 2021-11-23 19:08
+
+ 本帖最后由 welcom 于 2021-11-23 19:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53668826&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-23 19:04</a>
+
+DQ系列里商人是能干嘛？怎么他们给鲤鱼安了个这个</blockquote>
+商人在DQ3FC版用处不大，更主要是主线剧情工具人后期必须有一个
+
+DQ4里搞出一个人气很高的角色特鲁尼克大叔
+
+他白手起家勤劳肯干，靠着冒险得到第一桶金越做越大，但得知世界危机之后并没有安于自己的生活，而是热心寻找勇者资助抗魔大业
+
+作为勇者小队的金主和后勤还是很靠谱的，
+
+自己衍生出作品不说，SFC版DQ3和DQ5 DQ6之类的也不少这种角色和剧情（开拓移民村之类的）
+
+其实要说和可可还是有点差别的就是了
+
+*****
+
+####  lj205  
+##### 1071#       发表于 2021-11-23 19:10
+
+鲤鱼原来写真8月就拍了，那她冈山后到底干啥去了
+
+顺便孩子真勤俭，衣服都是国内带去的，一直穿
+
+今天又知道她一些新东西
+
+刚说她帅哥被纠正是美女，好好好大美女
+
