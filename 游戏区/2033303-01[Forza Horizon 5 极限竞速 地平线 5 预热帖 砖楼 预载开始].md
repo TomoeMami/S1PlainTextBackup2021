@@ -14773,3 +14773,15 @@ lancia跟alfa有戏吗</blockquote>
 声浪实录也是搭系列发展的光 我觉得5的开发过程中一定录了很多5中不会有的车的声音 给数字系列顺便准备
 保守预计6只有画面的进步 地图面积这种甚至会倒退<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Totokei  
+##### 1341#       发表于 2021-11-23 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658609&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-23 00:42</a>
+地平线终究还是外传 下一作还要等游乐场先搞明白t10的新引擎
+声浪实录也是搭系列发展的光 我觉得5的开发过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小地图那就是日本了
+

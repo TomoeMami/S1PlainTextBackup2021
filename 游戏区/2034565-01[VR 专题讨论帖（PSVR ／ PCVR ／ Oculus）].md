@@ -2617,3 +2617,32 @@ Meta Quest
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Leona_Akari  
+##### 167#       发表于 2021-11-23 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659651&amp;ptid=2034565" target="_blank">伊莉伊莉雅 发表于 2021-11-23 07:30</a>
+1.配个镜片换个头戴，quest比较重，像楼上说的玩着容易滑下来。（即使换了头戴多少也有这个问题
+2.不明白 ...</blockquote>
+应该就是楼上朋友说的距离问题，我把skybox的距离调成-5了，默认0距离直接糊脸上了……
+air link我用普通路由器的话Q2显示没有互联网连接，然后pc端没反应，我今天回去再看看吧
+
+*****
+
+####  Leona_Akari  
+##### 168#       发表于 2021-11-23 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659612&amp;ptid=2034565" target="_blank">wszweill 发表于 2021-11-23 07:14</a>
+呃，就前两点的话，第一个个人体感是买个支架，稳定到一个不糊的位置，quest2自带的框架，反正我是玩一会 ...</blockquote>
+我买的时候淘宝给我一个第三方头戴的，虽然感觉也没啥用，我也不戴眼镜的……
+
+*****
+
+####  hikari0805  
+##### 169#       发表于 2021-11-23 08:57
+
+vd串流是不是占用资源比airlink小很多？
+
