@@ -11111,3 +11111,80 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 
 对于拳头所谓LOL宇宙，树立信心的功能很大
 
+
+
+*****
+
+####  Siran_China  
+##### 2564#       发表于 2021-11-23 19:56
+
+这几天回去听了听15年的英雄联盟音乐原声，只能说拳头这群人做游戏是真的有追求。音乐质量绝对是拔尖水准，推荐给大家听。
+[音乐专辑 - 英雄联盟官方网站](http://lol.qq.com/act/a20150210music/index.html?atm_cl=ad&amp;atm_pos=6412)
+
+网易云上也有
+
+<img src="https://img.saraba1st.com/forum/202111/23/191419zod6lqdh4g61dz6c.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (92.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 19:14 上传
+
+<strong>Demacia Rising 《德玛西亚的崛起》</strong>
+
+德玛西亚众英雄的共同主题曲，分好几段，每段的气质都不一样，仿佛是德玛西亚的历史走向，建国-固基-大战。
+
+<strong>Tidecaller 《唤潮者》</strong>
+
+娜美发布时的主题曲，海浪的感觉表现得非常好。
+
+<strong>Tiny Masterpiece of Evil 《邪恶小杰作》</strong>
+
+小法的主题曲，乐器配合和人声咏唱对那种邪恶反派的感觉的表现很出色，就是小法本人太滑稽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<strong>The curse of the sad mummy 《阿木木的诅咒》</strong>
+
+这是这张专辑的重头戏，当年专辑是和这个曲子的MV一起出的，还顺带出了记录专辑创作过程的纪录片《乐动英雄》，值得一看，看完你就知道我为啥说拳头这些人做游戏有追求了。
+[英雄联盟《乐动英雄》纪录片](https://www.bilibili.com/video/BV1jx411A7yM?from=search&amp;seid=12844933353240827854&amp;spm_id_from=333.337.0.0)
+
+虽然这曲子不是我最喜欢的，但我认为十分震撼人心。
+
+<strong>Quinn and Valor 《奎因和华洛》</strong>
+
+德玛西亚之翼的主题曲，和Demacia Rising一个风格，恢弘大气。（虽然玩上单战士巨讨厌奎因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及一切手长上单ad）
+
+<strong>Braum 《布隆》</strong>
+
+弗雷尔卓德之心——布隆的主题曲。有股子苏格兰味，可能是因为我玩过文明6听斯卡布罗集市听惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">气质和大块头布隆也很搭配。（你永远可以相信布隆.jpg）
+
+<strong>Tales of the Rift 《峡谷传说》</strong>
+
+有请全专辑我最喜欢的曲子登场！这就是大名鼎鼎的召唤师峡谷主题曲。在英雄联盟的早期设定中，为了遏制德玛西亚和诺克萨斯两大国家之间的战争，在两国边境处——同时也是瓦洛兰大陆的中心，建立了战争学院，在那里人们修建了召唤师峡谷，每个国家派出代表自己的英雄，以在召唤师峡谷作战的方式一决胜负。这首曲子就是召唤师峡谷所代表的精神和理想的象征。
+
+（只是后来各种神魔鬼都被做成英雄，战争学院的设定就站不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">于是改掉了）
+
+<strong>Lulu And Shaco's Quirky Encounter 《露露和萨科的奇妙遭遇》</strong>
+
+这是恶魔小丑萨科难得的和其他英雄之间发生的故事——从背景故事看的话萨科除了是十恶魔之一以外就和其他英雄没什么联系了。这首曲子突出一个古灵精怪，很符合两个英雄的气质。结尾有段小提琴，极为惊艳，是我在专辑中第二喜欢的部分。
+
+<strong>Freljord 《弗雷尔卓德》</strong>
+
+这是代表弗雷尔卓德的主题曲，当前嚎哭深渊地图背景音乐就是这首曲子的修改加长版，无论从乐器，编曲，人声咏唱上都是对所谓“酷寒之地”的极致诠释，并列我最喜欢的曲子第二名。
+
+<strong>Challengers 《挑战者们》</strong>
+
+中文又译为《最强王者们》。原因很简单，美服最强王者段位的命名就是Challengers，这是拳头写给所有达到最强王者段位玩家的曲子，很燃，非常燃。
+
+还有几首就听的少了，了解不多。本来这专辑只是Volume 1，我当年初中眼巴巴地等Volume 2和3，到底也没出。这首专辑的质量，相信各位试听一下就能感觉得出，耳朵不骗人。
+
+*****
+
+####  sandro  
+##### 2565#       发表于 2021-11-23 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53666941&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-23 16:47</a>
+
+按道理3级前都是人机，不至于上来就pvp才是</blockquote>
+我s5前的满级号现在怎么能回来爽光荣进化啊，只能玩人机了吗
+
