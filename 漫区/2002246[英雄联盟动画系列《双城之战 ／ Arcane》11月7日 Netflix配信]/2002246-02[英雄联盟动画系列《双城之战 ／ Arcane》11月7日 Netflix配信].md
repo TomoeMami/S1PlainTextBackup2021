@@ -11397,3 +11397,49 @@ Reddit上有人爆料连同宣发 双城经费花了2亿美金</blockquote>
 
 开看，人物线条好硬朗，这种风格之前没看过。蓝发小女孩中文配音挺可爱。
 
+
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2586#       发表于 2021-11-24 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672635&amp;ptid=2002246" target="_blank">bairn 发表于 2021-11-24 00:18</a>
+
+给个链接 一直见有人这么说但从没见到出处</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我也是听别人说的
+
+*****
+
+####  飞升之后  
+##### 2587#       发表于 2021-11-24 00:31
+
+真正制作也至少4年，能坚持开发下去，也真算拳头投入得很彻底
+
+*****
+
+####  飞升之后  
+##### 2588#       发表于 2021-11-24 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672726&amp;ptid=2002246" target="_blank">唧唧歪歪办事处 发表于 2021-11-24 00:29</a>
+
+我也是听别人说的</blockquote>
+已经到处传了
+
+*****
+
+####  暗黑能乐  
+##### 2589#       发表于 2021-11-24 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672637&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 00:18</a>
+
+开看，人物线条好硬朗，这种风格之前没看过。蓝发小女孩中文配音挺可爱。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是建议看英配，中配的话别看腾讯的，有角色配的很拉
+
+*****
+
+####  scorbian  
+##### 2590#       发表于 2021-11-24 00:43
+
+坏了，这几天满脑子都在想着VI和凯特琳这对，劲太大了，拳头怎么这么会呢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

@@ -13609,3 +13609,23 @@ coco怎么大一早在播</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">她看过攻略 很认真了 就是还得看 还得练
 
+
+
+*****
+
+####  小憨1  
+##### 2944#       发表于 2021-11-24 00:33
+
+白白直播做起来了啊，提督数有点夸张，努努力把这200舰稳住，女儿长大了
+
+*****
+
+####  rgauss  
+##### 2945#       发表于 2021-11-24 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53671132&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-23 22:09</a>
+孩子随她妈，有点想念静静的仙7了
+
+syl是不是她防具太好了，感觉怪物都是被磨死的</blockquote>
+是的
+
