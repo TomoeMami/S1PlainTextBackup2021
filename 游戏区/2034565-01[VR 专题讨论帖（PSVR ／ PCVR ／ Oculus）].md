@@ -2736,3 +2736,51 @@ vd串流是不是占用资源比airlink小很多？
 我买的时候淘宝给我一个第三方头戴的，虽然感觉也没啥用，我也不戴眼镜的…… ...</blockquote>
 是那种固定后脑+额头的头戴嘛，最终是戴在头戴上为不是卡在quest上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 175#         楼主| 发表于 2021-11-23 10:42
+
+<img src="https://img.saraba1st.com/forum/202111/23/104153bcccq6wbqbwtrycs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 10:41 上传
+
+微软模拟飞行的 VR 模式也支持体感控制器了（虽然感觉体验应该不会很好）。
+
+还有就是 Oculus 商店的黑五折扣也要来了，想买游戏的请等等。
+
+<img src="https://img.saraba1st.com/forum/202111/23/104337ikevsu4tkce4kshr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-23 10:43 上传
+
+*****
+
+####  bypass  
+##### 176#         楼主| 发表于 2021-11-23 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659214&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-23 02:08</a>
+
+今天Q2到货了，问几个问题
+
+第一个是感觉有时候屏幕显示有点模糊，但是调整一下眼镜位置就好了，这个无解吗
+
+ ...</blockquote>
+反正这个多调调就好，应该不至于无解，我也有一阵感觉好模糊，但调整了…就好了，挺奇怪的。
+
+*****
+
+####  Litccc  
+##### 177#       发表于 2021-11-23 10:52
+
+快两年了从来没收到过oculus store的优惠券<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

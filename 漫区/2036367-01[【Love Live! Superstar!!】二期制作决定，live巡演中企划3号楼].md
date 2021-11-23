@@ -11139,3 +11139,16 @@ tmd，星团怎么成了这个样子.jpg
 
 先不说别的，合鲤这身高差，年龄差，性格差，国籍差，甚至样貌还有些相似，这种在轻小说都算buff叠满的不用来营业那简直是在犯罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 1019#       发表于 2021-11-23 10:59
+
+不知道为什么最近开始喜欢上那种看着就能看出有营业成分的关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是那种 有一点表演感我反而能恰的更香
+
+演得太真我倒反而不敢恰了
+
