@@ -7899,3 +7899,12 @@ king这个弹射头部到底是怎么回事</blockquote>
 
 后面想打败烬还不是得靠「御田」的阎魔觉醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  晴岚  
+##### 56108#       发表于 2021-11-24 01:31
+
+御田灵魂复活夺舍索隆吧,或者当索隆背后灵,等索隆打不过的时候就附体索隆身上。
+
