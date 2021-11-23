@@ -2714,3 +2714,25 @@ vd串流是不是占用资源比airlink小很多？
 
 2021-11-23 09:42 上传
 
+
+
+*****
+
+####  Leona_Akari  
+##### 173#       发表于 2021-11-23 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660758&amp;ptid=2034565" target="_blank">bypass 发表于 2021-11-23 09:39</a>
+关于问题一，如果你用的是自带头戴的话，尝试把位置调到你清晰的位置，然后把头戴拉紧（后面是可以拉的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我还特意换的第三方头戴
+
+*****
+
+####  wszweill  
+##### 174#       发表于 2021-11-23 10:22
+
+ 本帖最后由 wszweill 于 2021-11-22 21:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660139&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-22 19:53</a>
+
+我买的时候淘宝给我一个第三方头戴的，虽然感觉也没啥用，我也不戴眼镜的…… ...</blockquote>
+是那种固定后脑+额头的头戴嘛，最终是戴在头戴上为不是卡在quest上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -10675,3 +10675,39 @@ lol和lor都不想玩，看完双城之战想进一步了解世界观和人物�
 拳头的闪电侠么，重启世界线就靠你了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">一开始不就是他搞出来的嘛，所以按美漫各种时间能力来说，还真不一定不是他
 
+
+
+*****
+
+####  新的起源  
+##### 2526#       发表于 2021-11-23 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53660970&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-23 09:56:22</a>
+拳头的闪电侠么，重启世界线就靠你了</blockquote>艾克的时间回溯很low的
+
+基本等于疯狂钻石，敌人回血自己不回
+
+最大用处就是背板
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  银枪子龙  
+##### 2527#       发表于 2021-11-23 10:07
+
+艾克的时间能力没那么强，只是把时间能力运用在战斗上层面
+
+*****
+
+####  终结之心  
+##### 2528#       发表于 2021-11-23 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53661107&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-23 10:05</a>
+艾克的时间回溯很low的
+
+基本等于疯狂钻石，敌人回血自己不回</blockquote>
+是我听错了还是你没下过客户端
+
+艾克的大不就是蚂蚁的大吗
+
