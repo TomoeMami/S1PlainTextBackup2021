@@ -8016,3 +8016,12 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 
 索大也有霸王色了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yeluffy  
+##### 56118#       发表于 2021-11-24 18:10
+
+山治无铺垫，索隆有铺垫的
+

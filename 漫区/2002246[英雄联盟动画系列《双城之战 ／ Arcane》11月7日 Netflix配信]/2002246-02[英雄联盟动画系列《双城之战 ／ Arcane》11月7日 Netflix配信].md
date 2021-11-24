@@ -12208,3 +12208,59 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 不是，fortiche做了金克斯的get jinx、s4 Worriors、初代kda pop/stars，s8 rise、艾克的seconds，除艾克 ...</blockquote>
 我草，这么屌
 
+
+
+*****
+
+####  古凌锋  
+##### 2659#       发表于 2021-11-24 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682136&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-24 17:19</a>
+
+有啊，第二集救杰斯和他妈那个
+
+能用传送这种空间系怎么也是个大能吧？</blockquote>
+是个一般通过法师
+
+*****
+
+####  弗林蒂萨  
+##### 2660#       发表于 2021-11-24 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678687&amp;ptid=2002246" target="_blank">hallowilliam 发表于 2021-11-24 13:26</a>
+别管什么评分了。。。
+
+昨天看到一个投票，选Arcane里最喜欢的角色，双选，我犹豫了半天居然想不出哪两个角 ...</blockquote>
+因为人性是复杂的，世界也不是非黑即白的
+
+*****
+
+####  弗林蒂萨  
+##### 2661#       发表于 2021-11-24 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682743&amp;ptid=2002246" target="_blank">sandro 发表于 2021-11-24 18:03</a>
+我草，这么屌</blockquote>
+快成拳头御用了，合作了很多年
+
+*****
+
+####  tewaku  
+##### 2662#       发表于 2021-11-24 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682703&amp;ptid=2002246" target="_blank">hallowilliam 发表于 2021-11-24 18:00</a>
+
+问题是一大堆说喜欢希尔科。
+
+同时还搬出三观批判这套东西，就。。挺迷的。。。</blockquote>
+大把喜欢金克斯然后喷杰斯的呢，算了不要纠结<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ammk  
+##### 2663#       发表于 2021-11-24 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682838&amp;ptid=2002246" target="_blank">弗林蒂萨 发表于 2021-11-24 18:11</a>
+快成拳头御用了，合作了很多年</blockquote>
+讲真，我觉得这家工作室可以收购
+后续要做的东西多了去了，拳头自家那个cg水平有点不够用
+

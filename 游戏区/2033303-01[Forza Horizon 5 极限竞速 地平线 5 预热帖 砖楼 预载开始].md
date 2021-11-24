@@ -15255,3 +15255,18 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tdsourcetag=s_pcqq_send_grpfile&amp;
 不过既然被封的绝大部分是二次元，也很难说没人搞事了⑧ ...</blockquote>
 我疑心是二次元涂装下载的人多又喜欢换来换去，很多人不知道怎么正确更换涂装就按了这个最容易找到的键，系统短时间收到大量举报自动ban掉事主。
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1380#       发表于 2021-11-24 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679484&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-24 14:22</a>
+之前吉普最方便的是，这个品牌就他一辆车。。。脚本特别方便，现在不知道还有没这样的车了
+
+—— 来自 On ...</blockquote>
+B站有人做脚本的，你搜搜。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
