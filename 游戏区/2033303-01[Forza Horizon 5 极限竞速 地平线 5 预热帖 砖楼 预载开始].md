@@ -14956,3 +14956,16 @@ lancia跟alfa有戏吗</blockquote>
 这次日常又出问题了。目前还没看到有人试出来到底怎样才算过的</blockquote>
 有个说法是之前没有完成过expedition才行，和上周的showcase差不多，不过上周那个如果完成过的话可以主动输掉，这次的输掉也不算。
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1358#       发表于 2021-11-24 09:00
+
+https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tdsourcetag=s_pcqq_send_grpfile&amp;ADUIN=350549144&amp;ADSESSION=1636565045&amp;ADTAG=CLIENT.QQ.5839_.0&amp;ADPUBNO=27173&amp;tab=20lz8t
+
+nga看到的
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
