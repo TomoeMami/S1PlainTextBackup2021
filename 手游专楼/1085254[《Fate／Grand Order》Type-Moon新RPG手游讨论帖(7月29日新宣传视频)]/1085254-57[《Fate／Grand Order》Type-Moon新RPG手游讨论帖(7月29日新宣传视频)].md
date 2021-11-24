@@ -5603,3 +5603,15 @@ NMD两单沉了
 我打活动弓凛本遇到的，弓凛有这本事啊</blockquote>
 对魔力了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holyblood  
+##### 84504#       发表于 2021-11-24 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680722&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-11-24 15:43</a>
+
+对魔力了解一下</blockquote>
+原来有这么复杂的机制，白玩了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前都没注意
+

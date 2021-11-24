@@ -1216,3 +1216,104 @@ OK，你确实是知道这里有sexual orientation和gender identity两个点的
 国外最大的两个哈利波特的粉丝网站联合声明，将网站关于jk罗琳的所有图片和文字全部删除，不再提及她对哈利 ...</blockquote>
 JK罗琳就是个臭写书的，她懂个屁的哈利波特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  εRemastered  
+##### 119#       发表于 2021-11-24 16:06
+
+ 本帖最后由 εRemastered 于 2021-11-24 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680607&amp;ptid=2039029" target="_blank">abaan 发表于 2021-11-24 15:33</a>
+
+其实我一直搞不明白跨性别的一个点，就是性别认同到底是什么东西？
+
+我是觉得穿衣、爱好、言行风格、职业、 ...</blockquote>
+我觉得这是个只有从有gender概念的语言里才会诞生的问题，汉语使用者就不要试图去理解这个烦恼的根源了，这属于闲着没事给词语分gender的屈折语使用者才有的privilege<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">  中国人自然而然地理解为，这里的核心标签是性别，个人可能会变的那个东西只能叫“心理性别”，是一种衍生的次要标签
+
+支持跨性别到底要干什么，大部分人自己也不知道。我见过同一个论坛上“最终目标应该是消除gender”和“不应该消除gender”都能得高赞，只要稍微包装一下你的语言<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  今晚吃啥  
+##### 120#       发表于 2021-11-24 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680790&amp;ptid=2039029" target="_blank">εRemastered 发表于 2021-11-24 15:48</a>
+
+OK，你确实是知道这里有sexual orientation和gender identity两个点的。你口中的拳师组织在吵的都是“一 ...</blockquote>
+“JK罗琳支持针对未成年的转换疗法”这个是我早上先看了她个人网站的长文有去看推受到之前文章的影响理解错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原本的意思是“针对未成年的激素治疗是新时代的转换疗法”，这个确实是我口胡了
+
+不过不影响其他结论
+
+
+
+*****
+
+####  今晚吃啥  
+##### 121#       发表于 2021-11-24 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680938&amp;ptid=2039029" target="_blank">eezhangjie 发表于 2021-11-24 15:57</a>
+
+对啊，我也觉得。我以为大家趋同任意自由，结果老外分出几十种标签取向。但les gay trans还都有刻板打扮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不这么搞怎么拿选票，都是生意
+
+*****
+
+####  PLD  
+##### 122#       发表于 2021-11-24 16:12
+
+图里的穿山是什么意思
+
+*****
+
+####  med  
+##### 123#       发表于 2021-11-24 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681175&amp;ptid=2039029" target="_blank">PLD 发表于 2021-11-24 16:12</a>
+
+图里的穿山是什么意思</blockquote>
+穿山（寨jk）
+
+*****
+
+####  今晚吃啥  
+##### 124#       发表于 2021-11-24 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680607&amp;ptid=2039029" target="_blank">abaan 发表于 2021-11-24 15:33</a>
+
+其实我一直搞不明白跨性别的一个点，就是性别认同到底是什么东西？
+
+我是觉得穿衣、爱好、言行风格、职业、 ...</blockquote>
+我觉得根源就两点，一个是社会认知上对不同性别的行为有刻板偏见，另一个就是女性在性行为中被默认为客体，被异化为所谓的“性资源”
+
+解决这两点人类就真正迎来性别平等了，跨性别问题也就解决了
+
+*****
+
+####  ak123  
+##### 125#       发表于 2021-11-24 16:18
+
+ 本帖最后由 ak123 于 2021-11-24 16:19 编辑 
+
+这事儿挺好啊，jk罗琳本来就是喊打喊杀的白左，那她碰瓷并和极端派女拳站一起，被更政确更武德的跨跨白左人身毁灭了不是理所当然的么，毕竟这个社会赶尽杀绝的氛围有她一份力，不爽就删号呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有乐亭八云  
+##### 126#       发表于 2021-11-24 16:20
+
+当年JK说黑人女赫敏的时候是想趟右翼的浑水呢吧？学霸人设和黑色人设在老伦敦眼里也不是啥高档货。
+
+*****
+
+####  古代人皮克  
+##### 127#       发表于 2021-11-24 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681089&amp;ptid=2039029" target="_blank">εRemastered 发表于 2021-11-24 16:06</a>
+我觉得这是个只有从有gender概念的语言里才会诞生的问题，汉语使用者就不要试图去理解这个烦恼的根源了， ...</blockquote>
+主要是跨和跨之间区别巨大，闹得最凶的还是跨里面本身特权最大的mtf，而mtf能闹这么大不还是因为他们本身享受到的男性资源提供的。这事本质上是一种迫害女性的男性特权。
+
+当然主要还是政府和法律制定者和稀泥，要我说严格按照切篮子这件事来判，哪有这么多事。
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
