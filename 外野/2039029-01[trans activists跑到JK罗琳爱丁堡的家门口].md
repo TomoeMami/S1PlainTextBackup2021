@@ -746,3 +746,32 @@ https://m.douban.com/group/topic/253652207/  这篇44万磅 不过偏远吧 �
 但是你说赫敏就是黑人，那 ...</blockquote>
 哈姆雷特就是个很好的例子，16年那个莎士比亚逝世四百年纪念演出上头九个演过哈姆雷特的人，有男有女有黑有白的，本来在戏剧圈子就是司空见惯的事了，有谁跑去叽歪原作吗，没有。罗琳倒好，该说的不说不该说的瞎说，自己写的书自己都忘了吧，我看她是就没在乎过这个角色。
 
+
+
+*****
+
+####  今晚吃啥  
+##### 79#       发表于 2021-11-24 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677297&amp;ptid=2039029" target="_blank">εRemastered 发表于 2021-11-24 11:42</a>
+
+她说的哪句话是支持电击？我很好奇</blockquote>
+六月份的时候点赞了一个反对加拿大将电击治疗跨性别/同性恋列为非法的推，之后还解释了说自己反对电击扭转性向，但是支持用来治疗青少年跨性别倾向
+
+顺便一踢电击治疗LGBT的开创者Robert Galbraith Heath刚好和JK罗琳笔名重名，就还挺巧合的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  忘却的彼方  
+##### 80#       发表于 2021-11-24 12:22
+
+黑牛白牛到爱丁堡了嗷~
+
+*****
+
+####  章文元  
+##### 81#       发表于 2021-11-24 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677835&amp;ptid=2039029" target="_blank"> 忘却的彼方 发表于 2021-11-24 12:22</a> 黑牛白牛到爱丁堡了嗷~ </blockquote>
+你们变性三人对我们拳师三人，来彩虹旗给他整个活
+
