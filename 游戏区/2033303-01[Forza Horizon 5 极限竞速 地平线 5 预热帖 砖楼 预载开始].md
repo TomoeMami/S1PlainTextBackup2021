@@ -14992,3 +14992,52 @@ nga看到的
 有个说法是之前没有完成过expedition才行，和上周的showcase差不多，不过上周那个如果完成过的话可以主动 ...</blockquote>
 弱智中的弱智啊……
 
+
+
+*****
+
+####  大哀之君  
+##### 1361#       发表于 2021-11-24 11:28
+
+<img src="https://img.saraba1st.com/forum/202111/24/112219xk6efsfvxae0akvy.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211124_111748.jpg</strong> (196.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/24/112239e11222trjgu0ujhx.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211124_111804.jpg</strong> (194.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/24/112249loay9f1hffd1eppa.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211124_111818.jpg</strong> (188.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/24/112257s50hm5net6t6gyq5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211124_111843.jpg</strong> (188.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202111/24/112715yxgy296a2m9ag6xx.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211124_111914.jpg</strong> (85.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 11:27 上传
+
+PG你恶事做绝<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+

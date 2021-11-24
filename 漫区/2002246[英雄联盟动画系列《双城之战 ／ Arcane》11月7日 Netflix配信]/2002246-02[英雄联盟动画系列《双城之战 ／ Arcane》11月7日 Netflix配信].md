@@ -11620,3 +11620,45 @@ Reddit上有人爆料连同宣发 双城经费花了2亿美金</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">bangumi评分三个人打一分，总评就直接8.3了
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2610#       发表于 2021-11-24 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676837&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-24 11:15</a>
+
+很好奇赛维卡第二季会做出什么，希尔科没了，一只手也没了</blockquote>
+继承希尔科的遗志，成为炼金男爵之一呗，和现在祖安情况差不多，炼金男爵分片自制，加上一些怪物
+
+
+
+*****
+
+####  ooohaoguai2  
+##### 2611#       发表于 2021-11-24 11:35
+
+ 本帖最后由 ooohaoguai2 于 2021-11-24 11:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53673075&amp;ptid=2002246" target="_blank">狭义文具爱好者 发表于 2021-11-24 01:08</a>
+
+我这两天满脑子都是杰斯和维克托这对
+
+原设定还好，现在杰斯这个形象这俩人咋分道扬镳啊 ...</blockquote>
+奥数能量本身就引导人走向负面。这也可以解释维克托本人和其造物机器人品性上的差别
+
+可能维克托走向光荣进化，就是杰斯强行挽救维克多生命的结果
+
+如果是这样的走向，并且能表达好，这部剧就真的很有古希腊悲剧的感觉，我们基本上都不是坏人，也没有真正意义上的坏人在迫害我们，但就是有一种命运引导我们走向如此悲剧
+
+*****
+
+####  新的起源  
+##### 2612#       发表于 2021-11-24 11:39
+
+打就打呗
+
+bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -14149,3 +14149,16 @@ vchama.xyz
 
 <img src="https://img.saraba1st.com/forum/202111/24/103039y9x89j3qwxnwbxeb.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 8577#       发表于 2021-11-24 11:21
+
+<blockquote>winda 发表于 2021-11-24 10:02
+昨天练习赛完nrk直言要哭了，同时带新人和当igl不容易啊
+
+感受到律金TV的痛了么 ...</blockquote>
+要怪也只能怪为什么把hero拉来了啊，拉个新手好姐妹那就也只能忍气吞声带着了，至少瓦是可以1打5的，现在自己是尼公子位舞台无限大的，花芽姐妹那队比较难但是神城那队还是有机会的
+
