@@ -984,3 +984,47 @@ cancel culture指的不是取消点赞，而是指对政治不正确的人进行
 
 靠 这个19年给我整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  εRemastered  
+##### 103#       发表于 2021-11-24 14:04
+
+ 本帖最后由 εRemastered 于 2021-11-24 14:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678547&amp;ptid=2039029" target="_blank">今晚吃啥 发表于 2021-11-24 13:18</a>
+
+Robert Galbraith Heath (May 9, 1915 – September 21, 1999)
+
+哪个19年？</blockquote>
+"Bill C8 will criminalize a therapist who counsels a child to accept the body they were born in"
+
+虽说美加那边的活动家都很喜欢夸大法案的内容，但我还是没看出这条推哪里说了电击啊，难道加拿大英文有什么等价于electricshock的隐语？
+
+counsel，counsel有什么问题吗？建议一下“你先不要急着吃激素割J8”在某些人眼里已经是反人类了是吗？
+
+*****
+
+####  εRemastered  
+##### 104#       发表于 2021-11-24 14:07
+
+[@今晚吃啥](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=543105) @AraTurambar
+
+我把去年67月JK罗琳的推翻了一边，只看到她说激素疗法和变性手术“可能是新时代的conversion therapy”（言下之意 conversion therapy当然是坏的），真的是没找到支持电击在哪，麻烦两位**指一下
+
+*****
+
+####  今晚吃啥  
+##### 105#       发表于 2021-11-24 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679201&amp;ptid=2039029" target="_blank">εRemastered 发表于 2021-11-24 14:04</a>
+
+"Bill C8 will criminalize a therapist who counsels a child to accept the body they were born in"
+
+ ...</blockquote>
+[https://www.canada.ca/en/departm ... duct-in-canada.html](https://www.canada.ca/en/department-justice/news/2020/09/federal-government-reintroduces-legislation-to-criminalize-conversion-therapy-related-conduct-in-canada.html)
+
+你自己去查查所谓“转化疗法”是什么几把玩意不就清楚了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">杨永信还说自己是靠感恩教育和集体生活给人戒网瘾的呢，不遮着点说怎么蒙骗大众扩大传播面
+

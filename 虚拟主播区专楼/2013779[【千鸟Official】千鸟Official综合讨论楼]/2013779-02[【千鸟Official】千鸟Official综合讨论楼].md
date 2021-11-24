@@ -13736,3 +13736,35 @@ WOC，有鸟P跑海子姐动态下臊皮。非是一两只，这下路人缘G了
 
 昨天白白mhw直播的效果那么好吗？我回去补补看
 
+
+
+*****
+
+####  rgauss  
+##### 2959#       发表于 2021-11-24 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679168&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-24 14:02</a>
+昨天白白mhw直播的效果那么好吗？我回去补补看</blockquote>
+别看 只看ed就行 看打游戏你能脑溢血 泥鱼龙溜了半个小时
+
+*****
+
+####  sanxgh571  
+##### 2960#       发表于 2021-11-24 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678595&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-24 13:21</a>
+WOC，有鸟P跑海子姐动态下臊皮。非是一两只，这下路人缘G了</blockquote>
+干挺好的，加把劲。我都赞了
+代入一下就知道这种情况下正主粉丝要正主点草以后才能集火，否则说啥都无力。
+第三方鸟u属实一支奇兵了。
+
+*****
+
+####  灰色的狐狸  
+##### 2961#       发表于 2021-11-24 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679213&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-24 14:04</a>
+
+别看 只看ed就行 看打游戏你能脑溢血 泥鱼龙溜了半个小时</blockquote>
+好<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
