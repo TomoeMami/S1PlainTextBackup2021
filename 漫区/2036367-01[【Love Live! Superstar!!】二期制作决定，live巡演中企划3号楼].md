@@ -12389,3 +12389,34 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 1122#       发表于 2021-11-24 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53686247&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-24 22:39</a>
+唐可可的诱惑应该有新素材了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+第四话在录音了，小透一下：有人要唱歌
+
+*****
+
+####  kata魂  
+##### 1123#       发表于 2021-11-24 22:46
+
+纪念日
+
+双人曲
+
+可恋明明能绝杀的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 1124#       发表于 2021-11-24 22:50
+
+学霸可恋磕了！
+
