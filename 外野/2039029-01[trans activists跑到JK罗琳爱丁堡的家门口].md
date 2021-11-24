@@ -1317,3 +1317,139 @@ OK，你确实是知道这里有sexual orientation和gender identity两个点的
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
+
+
+*****
+
+####  ak123  
+##### 128#       发表于 2021-11-24 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676656&amp;ptid=2039029" target="_blank">大哉乾元 发表于 2021-11-24 11:03</a>
+首先，书里没明确写过，但侧面写过。
+
+比如赫敏晒黑了，比如赫敏被吓得脸色苍白。哦对了，所有版本的插画里 ...</blockquote>
+不光为政治正确撒谎还碰瓷哦，还直接给反对的读者扣了个种族主义的帽子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 129#       发表于 2021-11-24 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681282&amp;ptid=2039029" target="_blank">有乐亭八云 发表于 2021-11-24 16:20</a>
+当年JK说黑人女赫敏的时候是想趟右翼的浑水呢吧？学霸人设和黑色人设在老伦敦眼里也不是啥高档货。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">关于老伦敦高知黑人这种刻板歧视也能扯一篮子事情咯
+
+无非是他老伦敦没啥文化话语权，大家懒得提了
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+*****
+
+####  sykeash  
+##### 130#       发表于 2021-11-24 16:25
+
+是真特么的能造
+
+抛开那些乱七八糟的，直接公开别人住址这种典型的stk本身不就是罪行嘛233
+
+*****
+
+####  ak123  
+##### 131#       发表于 2021-11-24 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681327&amp;ptid=2039029" target="_blank">古代人皮克 发表于 2021-11-24 16:24</a>
+主要是跨和跨之间区别巨大，闹得最凶的还是跨里面本身特权最大的mtf，而mtf能闹这么大不还是因为他们本身 ...</blockquote>
+我就想起当年mlp海外圈子，一个展会mtf主办方公开辱骂ftm恶心下流的乐子事儿了，说好的一起反对父权男权，结果还是父权男权压迫其他啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  今晚吃啥  
+##### 132#       发表于 2021-11-24 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681340&amp;ptid=2039029" target="_blank">ak123 发表于 2021-11-24 16:24</a>
+
+不光为政治正确撒谎还碰瓷哦，还直接给反对的读者扣了个种族主义的帽子
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">JK罗琳自己也老racist了，也就是火焰杯中译出的早，那会大家对Cho Chang这种名字还没什么概念
+
+*****
+
+####  ak123  
+##### 133#       发表于 2021-11-24 16:30
+
+ 本帖最后由 ak123 于 2021-11-24 16:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681407&amp;ptid=2039029" target="_blank">今晚吃啥 发表于 2021-11-24 16:29</a>
+
+JK罗琳自己也老racist了，也就是火焰杯中译出的早，那会大家对Cho Chang这种名字还没什么概念 ...</blockquote>
+
+白左眼里黄皮也算人？这阵子留学生被杀也没见白左看见啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 134#       发表于 2021-11-24 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681401&amp;ptid=2039029" target="_blank">ak123 发表于 2021-11-24 16:28</a>
+
+我就想起当年mlp海外圈子，一个展会mtf主办方公开辱骂ftm恶心下流的乐子事儿了，说好的一起反对父权男权 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和男有关的性少数群体屁事特别多 不是因为男性特权这帮子人哪闹的起来？
+
+ftm和拉拉哪有这么多逼事
+
+*****
+
+####  eezhangjie  
+##### 135#         楼主| 发表于 2021-11-24 16:34
+
+<blockquote>古代人皮克 发表于 2021-11-24 16:24
+主要是跨和跨之间区别巨大，闹得最凶的还是跨里面本身特权最大的mtf，而mtf能闹这么大不还是因为他们本身 ...</blockquote>
+为什么男跨女强势和男性身份有关？
+
+*****
+
+####  钞君  
+##### 136#       发表于 2021-11-24 16:34
+
+<blockquote>sykeash 发表于 2021-11-24 16:25
+是真特么的能造
+
+抛开那些乱七八糟的，直接公开别人住址这种典型的stk本身不就是罪行嘛233 ...</blockquote>
+她家地址算是半公开的，名人嘛。
+
+*****
+
+####  ak123  
+##### 137#       发表于 2021-11-24 16:39
+
+ 本帖最后由 ak123 于 2021-11-24 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681470&amp;ptid=2039029" target="_blank">古代人皮克 发表于 2021-11-24 16:32</a>
+
+和男有关的性少数群体屁事特别多 不是因为男性特权这帮子人哪闹的起来？
+
+ftm和拉拉哪有这么多逼 ...</blockquote>
+
+其实说到这个不得不提当年lgbt运动的黑历史，早期时候，g和恋童癖是一起手牵手上街闹的，连口号都差不多，还有个专门的老白男恋童组织一直挂在lgbt下面，直到90年代联合国因此杯葛整个组织，才在l领头下把这群人赶出去，否则现在lgbt的名声不会比is啥的好哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 138#       发表于 2021-11-24 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681490&amp;ptid=2039029" target="_blank">eezhangjie 发表于 2021-11-24 16:34</a>
+
+为什么男跨女强势和男性身份有关？</blockquote>
+因为就算他是个“受尽隐藏身份折磨，只能用XX方式表达自己”，他在大众认知里面也是个男的啊。在社会工作生活里面作为一个男的好处有哪一个是没得到的吗
+
+*****
+
+####  古代人皮克  
+##### 139#       发表于 2021-11-24 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681581&amp;ptid=2039029" target="_blank">ak123 发表于 2021-11-24 16:39</a>
+
+其实说到这个不得不提当年lgbt运动的黑历史，lgbt运动的时候，g和恋童癖是一起手牵手上街闹的，连口号都 ...</blockquote>
+男同性恋的身份构成 社会构成还有历史和其他的现代性少数完全不是一个级别的 男同除了日**之外就是个男的 能吃LGBT大锅饭 性少数里面每个人都有责任
+
