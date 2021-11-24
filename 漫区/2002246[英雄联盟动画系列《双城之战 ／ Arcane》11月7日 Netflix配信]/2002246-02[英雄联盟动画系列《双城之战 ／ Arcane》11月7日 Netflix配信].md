@@ -12439,3 +12439,37 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 昨天看到一个投票，选Arcane里最喜欢的角色，双选，我犹豫了半天居然想不出哪两个角 ...</blockquote>
 我个人觉得和互联网的舆论压抑氛围高度相关（各种不能说的ZZZQ），最后导致依然有发言意愿的人中很多都是被高度驯化的口号墙头草。
 
+
+
+*****
+
+####  Siran_China  
+##### 2678#       发表于 2021-11-24 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53684008&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-24 19:54</a>
+
+其实也说明一个问题，你说上城人对下层人有多压迫也谈不上，更多的是看不上，无视，以及傲慢，两人都进了 ...</blockquote>
+维克托不是被大头看中了吗？要知道他最初可是大头助教。至于上城下城的存在，那是设定，我们先不说这个设定是否合理，值不值得严肃分析——就当它是合理的，那祖安实际上就是贫民区或者城乡结合部一样的存在，城乡结合部可不会只因为无视和傲慢就形成。我觉得真实状况是上城对下城人在经济状况，教育水平，居住和健康条件，发展空间上全面领先，造成了无形的，连他们自己都难以意识到的压迫。
+
+——某种意义上可以参考北京户口vs河北户口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是地域黑，别骂我啊
+
+*****
+
+####  whyy  
+##### 2679#       发表于 2021-11-24 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53684208&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-24 20:10</a>
+
+维克托不是被大头看中了吗？要知道他最初可是大头助教。至于上城下城的存在，那是设定，我们先不说这个设 ...</blockquote>
+最简单的：皮城的工业污水废水肯定是往祖安排啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">吸血怎么说
+
+*****
+
+####  whyy  
+##### 2680#       发表于 2021-11-24 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53683751&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-24 19:33</a>
+
+艾克，维克托和凯特琳的人气居然不是最高的吗？那只能说大家对“美强惨”的需求远高于“伟光正” ...</blockquote>
+艾克、维克托本身也能套入美强惨里吧，凯特琳被职场冷暴力，勉强也能算美强（小）惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

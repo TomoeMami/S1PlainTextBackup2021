@@ -12227,3 +12227,52 @@ playboy写真原来是八月拍的<img src="https://p.sda1.dev/3/2dffae10281a850
 
 可堇恋歌超对我味
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1107#       发表于 2021-11-24 20:06
+
+ 本帖最后由 Piano-Forest 于 2021-11-24 20:08 编辑 
+
+💫Blu-ray💫
+
+TVアニメ「ラブライブ！スーパースター!!」
+
+全巻購入特典情報 一挙公開🎊
+
+🎤A-on STORE特典曲「探して！Future」
+
+🎤アニメイト特典曲「HAPPY TO DO WA！」
+
+🎤ゲーマーズ特典曲「Stella!」
+
+🎤ソフマップ×アニメガ特典曲「変わらないすべて」
+
+🎤楽天ブックス特典曲「クレッシェンドゆ・ら」
+
+📺試聴動画
+[https://youtube.com/playlist?lis ... f8ND4reESt6WGb4R-WG](https://youtube.com/playlist?list=PLYpy4kJmEo77ppf8ND4reESt6WGb4R-WG)
+
+☑BD詳細
+[https://lovelive-anime.jp/yuigaoka/bd/](https://lovelive-anime.jp/yuigaoka/bd/)
+<img src="https://p.sda1.dev/3/193438409e1e78ce1275e42e078b26ea/20211124_200407.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/a3e8b83cfe4cb8b9e9005211dc69ec39/20211124_200432.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/e07e09dfe4068d97d2ef42cd6d67d36b/20211124_200434.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/51374df511c4ca9ee5ce0e52a47d27f6/20211124_200435.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_2  
+##### 1108#       发表于 2021-11-24 20:11
+
+【有灵魂的Galaxy!!粤配Liella!第10话插曲《Nonfiction!!》-哔哩哔哩】https://b23.tv/Vt0uHEG
+
+*****
+
+####  lj205  
+##### 1109#       发表于 2021-11-24 20:12
+
+可恋这什么小悸动歌词！？我现在就想看鲤鱼和青山面对面对唱！没有完整版听我要死了！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
