@@ -11707,3 +11707,38 @@ bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face201
 
 2021-11-24 13:20 上传
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2617#       发表于 2021-11-24 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678592&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 13:20</a>
+
+这个是谁哇，前面出现过吗？</blockquote>
+那个一开始在酒吧被黑商搞，范德尔替他出面摆平的
+
+*****
+
+####  hallowilliam  
+##### 2618#       发表于 2021-11-24 13:26
+
+别管什么评分了。。。
+
+昨天看到一个投票，选Arcane里最喜欢的角色，双选，我犹豫了半天居然想不出哪两个角色最喜欢。
+
+足以说明起码在我眼里，Arcane的角色塑造是真的非常出色。最后我选了两个倒霉蛋，杰斯和金克斯。
+
+我发现国内论坛讨论剧情（暂时不说S1），非常喜欢用“三观”和“合理性”这种东西来批判，完全不在乎角色的多样化和个人经历影响。不知道这个趋势和这几年的政治紧张有没有关系。
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2619#       发表于 2021-11-24 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678683&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-24 13:26</a>
+
+那个一开始在酒吧被黑商搞，范德尔替他出面摆平的</blockquote>
+哦哦对，多谢多谢。出现时间太短没认出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

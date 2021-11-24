@@ -12097,3 +12097,23 @@ FBF14E81-F469-41E3-8422-DC20452B4221.jpeg
 
 下个月上young dragon age（片假名去死啊）封面
 
+
+
+*****
+
+####  D麦林  
+##### 1094#       发表于 2021-11-24 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677358&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-11-24 11:46</a>
+
+发些黄图贴吧应该很快就炸了吧
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+现在早就不能这么玩了……
+
+不说别的就那AI审核 发都发不出来的
+
+现在看有人似乎在试图发正常贴来对抗 其他的我也不知道怎么办了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+也许放着不管让它自己炸掉反而好些 反正现在这种小贴吧也没啥人看了 总比变成粪坑好
+

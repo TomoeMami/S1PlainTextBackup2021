@@ -8556,3 +8556,49 @@ space直播
 
 福袋拿了个交换和钥匙，开始三打一了
 
+
+
+*****
+
+####  时间在我手中  
+##### 5490#       发表于 2021-11-24 13:23
+
+ 本帖最后由 时间在我手中 于 2021-11-24 13:29 编辑 
+
+bsyl 两个一，传世绝活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这个一打三被黄兔子两轮杀完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+心跳倒计时是吧，三个黄色不信邪全部爆炸，绷
+
+
+
+*****
+
+####  T_Hb  
+##### 5491#       发表于 2021-11-24 13:29
+
+这节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5492#       发表于 2021-11-24 13:31
+
+ 本帖最后由 时间在我手中 于 2021-11-24 13:38 编辑 
+
+吊人今天不垫底就算赢，不过这个怎么算赢或者结束条件是什么。
+
+哦，原来有回合数
+
+万年老二吊人
+
+五元的蘑菇真小（）
+
+*****
+
+####  专业划水人员  
+##### 5493#       发表于 2021-11-24 13:40
+
+又小又快
+

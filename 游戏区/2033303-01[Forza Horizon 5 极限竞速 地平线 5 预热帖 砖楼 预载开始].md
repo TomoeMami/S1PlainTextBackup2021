@@ -15123,3 +15123,14 @@ PG你恶事做绝</blockquote>
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  920619lqy  
+##### 1369#       发表于 2021-11-24 13:37
+
+<blockquote>nemunoki 发表于 2021-11-23 23:13
+这个成就我看有些人季前赛就跳了，但是我季前赛除了街机以外全清也没跳，所以感觉不是按点数算 ...</blockquote>
+实在离谱，逼急了SAM一键解锁爱谁玩谁玩去
+
