@@ -12420,3 +12420,19 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 学霸可恋磕了！
 
+
+
+*****
+
+####  Norkey1  
+##### 1125#       发表于 2021-11-24 23:09
+
+我们千恋党只能迎接毁灭了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 1126#       发表于 2021-11-24 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

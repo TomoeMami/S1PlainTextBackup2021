@@ -12524,3 +12524,14 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 单纯只做双城，可能会快不少，。。但还是希望有一定的扩展
 
+
+
+*****
+
+####  VirMoe  
+##### 2686#       发表于 2021-11-24 23:18
+
+下了个Arcane.S01.1080p.NF.WEB-DL.x265.10bit.HDR.DDP5.1-TEPES[rartv]，感觉还是更习惯国语，可以完全不看字幕专注画面。
+
+有没有人指个路去哪可以下载1080p,WEB-DL,10bit.HDR.DDP5.1网飞国语版的双城之战。
+
