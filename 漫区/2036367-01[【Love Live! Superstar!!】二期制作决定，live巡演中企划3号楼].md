@@ -12351,3 +12351,41 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 “已经超越了朋友”？？？
 
+
+
+*****
+
+####  kata魂  
+##### 1118#       发表于 2021-11-24 22:30
+
+好喜欢可恋这种ゆらゆら的感觉····
+
+*****
+
+####  ads147147  
+##### 1119#       发表于 2021-11-24 22:31
+
+这次千香的编曲好像是写缪玻璃花园的那个，还有可恋有说法了！！！
+
+真的可以入股可恋吗。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 1120#       发表于 2021-11-24 22:34
+
+二次元里是学霸组，三次元里是年长组
+
+不少人吃吧？wwww
+
+*****
+
+####  ads147147  
+##### 1121#       发表于 2021-11-24 22:39
+
+唐可可的诱惑应该有新素材了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
