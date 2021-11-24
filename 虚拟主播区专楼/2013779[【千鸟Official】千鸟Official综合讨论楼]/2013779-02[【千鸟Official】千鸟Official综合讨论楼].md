@@ -13768,3 +13768,14 @@ WOC，有鸟P跑海子姐动态下臊皮。非是一两只，这下路人缘G了
 别看 只看ed就行 看打游戏你能脑溢血 泥鱼龙溜了半个小时</blockquote>
 好<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tn_teana  
+##### 2962#       发表于 2021-11-24 14:39
+
+白白最开始的老头走得差不多了，现在白白已经在抽象的路上越走越远了
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

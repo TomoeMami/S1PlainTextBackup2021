@@ -1028,3 +1028,27 @@ counsel，counsel有什么问题吗？建议一下“你先不要急着吃激素
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">杨永信还说自己是靠感恩教育和集体生活给人戒网瘾的呢，不遮着点说怎么蒙骗大众扩大传播面
 
+
+
+*****
+
+####  奈奈未喵  
+##### 106#       发表于 2021-11-24 14:35
+
+坐等跨跨引领人类走向光明未来星辰大海
+
+*****
+
+####  小野賢章  
+##### 107#       发表于 2021-11-24 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53674418&amp;ptid=2039029" target="_blank">与天争锋_LZ 发表于 2021-11-24 08:21</a>
+
+我在想政治正确风波离欧美文x还有多远
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 S1Next-鹅版 ...</blockquote>
+如火如荼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">武斗都好多次了。
+
+“跨性别”男进女浴室露“鸟”引街头混战！
+[https://www.163.com/dy/article/GF43CSUU0521KGPB.html](https://www.163.com/dy/article/GF43CSUU0521KGPB.html)
+

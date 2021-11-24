@@ -7998,3 +7998,12 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 原来索隆之前一直藏着自己的霸王色</blockquote>
 应该是说限制自己的霸气不被阎魔吸走还是你想吃就全喂给你这个意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烈士鲮鱼  
+##### 56116#       发表于 2021-11-24 14:26
+
+给厨子也整一个啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

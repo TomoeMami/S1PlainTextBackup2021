@@ -15172,3 +15172,18 @@ nga说是跟女拳有关，真假不知
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1373#       发表于 2021-11-24 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679004&amp;ptid=2033303" target="_blank">wzy200912345 发表于 2021-11-24 13:50</a>
+“1. 想一次刷超级抽奖加马拉松点数5点的去刷2017日产GTR，一次消耗10技能点。
+
+2. 想光刷点数的去刷大众2 ...</blockquote>
+之前吉普最方便的是，这个品牌就他一辆车。。。脚本特别方便，现在不知道还有没这样的车了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
