@@ -2857,3 +2857,12 @@ vd串流是不是占用资源比airlink小很多？
 vd串流是不是占用资源比airlink小很多？</blockquote>
 没有这个说法，只是VD更加成熟稳定接地气。
 
+
+
+*****
+
+####  Leona_Akari  
+##### 184#       发表于 2021-11-25 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">SKYBOX的电影院模式看电影真是太爽了，今晚看了阿丽塔，太舒服了。。。就是下一部电影都好大。。。
+

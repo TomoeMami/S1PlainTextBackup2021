@@ -3234,3 +3234,19 @@ syl她那么倔强又那么温柔，唉......
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拖S1后腿  
+##### 246#       发表于 2021-11-25 01:25
+
+“不能只有你们保护我。你们也知道，你们的乃宝一直都是一个比较倔的人。” <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laphire  
+##### 247#       发表于 2021-11-25 01:41
+
+还有关于tom和那只椭圆脸白猫，原视频也说了那只白猫是有做丑化处理的。如果真的做tom希望能把乃琳定位放在常驻演员的那只白猫身上<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+

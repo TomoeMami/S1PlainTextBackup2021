@@ -5624,3 +5624,14 @@ NMD两单沉了
 
 查了一下，龙马竟然没有神性和龙属性，这也太奇怪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 84506#       发表于 2021-11-25 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53686847&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-11-24 23:27</a>
+查了一下，龙马竟然没有神性和龙属性，这也太奇怪了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">rider阶有，lancer阶没有….也太怪了龙马桑，你老婆究竟真的有没有神性啊….
+
