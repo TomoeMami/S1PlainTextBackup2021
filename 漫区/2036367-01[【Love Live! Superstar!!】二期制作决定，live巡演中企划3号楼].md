@@ -12276,3 +12276,34 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 可恋这什么小悸动歌词！？我现在就想看鲤鱼和青山面对面对唱！没有完整版听我要死了！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 1110#       发表于 2021-11-24 20:31
+
+ 本帖最后由 绯想alter2nd 于 2021-11-24 20:32 编辑 
+
+扣扣群偷的图
+小巧思是右上的火柴人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/2da9fd39eb744cb7c8767b4771b625ce/IMG_CMP_87208598.jpeg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kata魂  
+##### 1111#       发表于 2021-11-24 20:36
+
+可恋的歌词····这么真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+然而动画并没有<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1112#       发表于 2021-11-24 20:36
+
+要动画干嘛，自己脑补都比动画拍的好
+
