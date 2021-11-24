@@ -8658,3 +8658,27 @@ mari这三发骰子血妈亏hhhh
 
 希望今晚有播
 
+
+
+*****
+
+####  yywzjsw  
+##### 5500#       发表于 2021-11-24 17:06
+
+这一大堆片假名是什么鬼 
+
+*****
+
+####  时间在我手中  
+##### 5501#       发表于 2021-11-24 17:13
+
+ 本帖最后由 时间在我手中 于 2021-11-24 17:24 编辑 
+
+老子有两个东西没查出来
+
+反正大意就是super ultra miracle hyper Kinetic position
+
+reverser（转向器） Dongaragashan（疑似歌名或者什么nico梗）急速过山车不也挺好的吗（之后复读一次）接一个astro blaster（银河船太空号）疑似迪士尼乐园的设施名称 is a small world mental hera chatteru yu beam
+
+简称，不知道是什么JB玩意儿的是一个世界性能让你menhera掉的光线
+

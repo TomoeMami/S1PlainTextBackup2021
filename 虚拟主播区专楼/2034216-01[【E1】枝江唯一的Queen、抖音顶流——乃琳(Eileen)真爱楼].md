@@ -2990,3 +2990,28 @@ douban.com/group/topic/252737763/
 
 2021-11-24 14:43 上传
 
+
+
+*****
+
+####  sanlow666  
+##### 223#         楼主| 发表于 2021-11-24 17:20
+
+乃琳Queen:[出大事啦！偶像戴上“粉丝滤镜”啦！【直播剪辑】](https://t.bilibili.com/596597800966156029)
+
+（运营代发）
+
+结选自11月13日小剧场
+表演/出镜：乃琳 向晚 贝拉 珈乐 嘉然
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202111/24/172037jztqyirrt31v3rwz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 17:20 上传
+

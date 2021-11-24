@@ -12108,3 +12108,27 @@ OK我去搜搜看。
 
 竟然没有配套的新英雄。。看来疫情真的打乱了拳头这两年整体的计划
 
+
+
+*****
+
+####  终结之心  
+##### 2650#       发表于 2021-11-24 17:11
+
+我也是一直觉得Arcane应该去和美剧比
+和Anime没什么好比的了
+
+只是举例硬比的那些萌萌二次元还有新晋民工动画实在太好笑
+
+*****
+
+####  亚可（本人）  
+##### 2651#       发表于 2021-11-24 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680322&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:16</a>
+动画里出场的人物武力值有点儿低好像没有哪位是一骑当千、移山填海的大能。 ...</blockquote>
+有啊，第二集救杰斯和他妈那个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+能用传送这种空间系怎么也是个大能吧？
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
