@@ -1142,3 +1142,77 @@ JD罗琳说这都是她当时太年轻所犯下的错误
 
 如果有一天穿着、举止、职业等等的生活中的方方面面都真的没有了性别限制，跨性别的现象是不是会减少很多呢？
 
+
+
+*****
+
+####  εRemastered  
+##### 113#       发表于 2021-11-24 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680424&amp;ptid=2039029" target="_blank">今晚吃啥 发表于 2021-11-24 15:21</a>
+
+我上边发的加拿大司法部的文章你干脆没看是吗？
+
+人家写得很清楚了，C8法案提出了五项与转化疗法有关的行 ...</blockquote>
+OK，你确实是知道这里有sexual orientation和gender identity两个点的。你口中的拳师组织在吵的都是“一味认可鼓励青少年自认的gender identity是不对的”，我就不纠结这点了，我就想问一下，
+
+你上面说JK罗琳“反对<strong>电击</strong>扭转性向，但是支持用来治疗青少年跨性别倾向”，这话到底在哪？
+
+我找她推翻来翻去还是没找到，你能给我指出来吗？
+
+*****
+
+####  Processed  
+##### 114#       发表于 2021-11-24 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680607&amp;ptid=2039029" target="_blank">abaan 发表于 2021-11-24 15:33</a>
+
+其实我一直搞不明白跨性别的一个点，就是性别认同到底是什么东西？
+
+我是觉得穿衣、爱好、言行风格、职业、 ...</blockquote>
+只是异性装扮的话，即使在中国这么保守的国家接受度也慢慢提高了，更不要说白左当道的国家
+
+但对于女性来说，还是有几头牛在的，生理男女装后能不能进女厕所只是其中之一，在现在来看这都是退无可退的底线
+
+*****
+
+####  古代人皮克  
+##### 115#       发表于 2021-11-24 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680607&amp;ptid=2039029" target="_blank">abaan 发表于 2021-11-24 15:33</a>
+
+其实我一直搞不明白跨性别的一个点，就是性别认同到底是什么东西？
+
+我是觉得穿衣、爱好、言行风格、职业、 ...</blockquote>
+你这个观点恰好就是目前的主要争论=&gt;性别到底是不是社会认同。这个事情的核心论点在于，性少数人群能不能和正常人享受到同等的法律待遇？同性能不能扯证？同性能不能成为**的加害受害者？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是你穿个女装胡子一大把篮子也没割就“宣布”自己是女的，耍赖也不能这么耍的吧
+
+*****
+
+####  eezhangjie  
+##### 116#         楼主| 发表于 2021-11-24 15:57
+
+<blockquote>abaan 发表于 2021-11-24 15:33
+其实我一直搞不明白跨性别的一个点，就是性别认同到底是什么东西？
+
+我是觉得穿衣、爱好、言行风格、职业、 ...</blockquote>
+对啊，我也觉得。我以为大家趋同任意自由，结果老外分出几十种标签取向。但les gay trans还都有刻板打扮，雷达就是因为这些。越爱标榜个性的反而越模板。
+
+*****
+
+####  我不怀好意  
+##### 117#       发表于 2021-11-24 15:59
+
+尽管觉得有点过分，不过本质上还是罗琳阿姨孽力反馈了
+
+*****
+
+####  希斯塔姆  
+##### 118#       发表于 2021-11-24 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53671609&amp;ptid=2039029" target="_blank">eezhangjie 发表于 2021-11-23 22:49</a>
+
+国外最大的两个哈利波特的粉丝网站联合声明，将网站关于jk罗琳的所有图片和文字全部删除，不再提及她对哈利 ...</blockquote>
+JK罗琳就是个臭写书的，她懂个屁的哈利波特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

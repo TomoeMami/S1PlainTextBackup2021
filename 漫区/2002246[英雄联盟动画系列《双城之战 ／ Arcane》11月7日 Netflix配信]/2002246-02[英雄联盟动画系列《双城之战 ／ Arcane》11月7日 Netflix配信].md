@@ -12061,3 +12061,41 @@ OK我去搜搜看。
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2646#       发表于 2021-11-24 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680704&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:42</a>
+
+英雄联盟里的“英雄”是个专门的称号吗？成为英雄是有明显的分界点的？ ...</blockquote>
+并不是，双城是先有游戏再有动画，大家习惯把游戏里的角色称为英雄而已，和动画没啥关系，因为游戏还得继续，所有动画没办法写死，这大概也是一些创作限制吧
+
+*****
+
+####  厄神之息  
+##### 2647#       发表于 2021-11-24 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680704&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:42</a>
+
+英雄联盟里的“英雄”是个专门的称号吗？成为英雄是有明显的分界点的？ ...</blockquote>
+英雄就是champion，国内统一翻译成了英雄，其实就是游戏内可选角色的意思而已，至于分界点这个，按称号来的话，有的有有的没有，比如剧中的维克托，他起码得经过全身机械化改造，消除了自己的负面情感，才会成为游戏中的“机械先驱”，V的称号是皮城执法官，那她现在也没有成为执法官，这中间还有一段路要走，但是杰斯这种称号是“未来守护者”的就很难说他现在和之后的分别了。
+
+*****
+
+####  ttoo  
+##### 2648#       发表于 2021-11-24 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680704&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:42</a>
+
+英雄联盟里的“英雄”是个专门的称号吗？成为英雄是有明显的分界点的？ ...</blockquote>
+不是专门的称号
+
+在游戏里作为可选择操作的角色一般就叫英雄
+
+不过因为目前的故事时间线在游戏之前
+
+所以可以认为能在游戏里选择的角色，不会在目前的故事里完全退场
+
