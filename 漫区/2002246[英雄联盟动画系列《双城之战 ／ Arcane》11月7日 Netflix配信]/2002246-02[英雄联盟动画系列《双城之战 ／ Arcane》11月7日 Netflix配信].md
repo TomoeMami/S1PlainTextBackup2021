@@ -12546,3 +12546,28 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 音乐基本都是拳头本家负责
 
+
+
+*****
+
+####  飞升之后  
+##### 2688#       发表于 2021-11-25 02:03
+
+所以最早喊爆爆是JINX的是蔚自己
+
+5166d3fdly1gwq6066wbsj20ut0d9n6k.jpg
+(55.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 02:02 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/020243a7g0n7em0df0vzzf.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  佛剑分说  
+##### 2689#       发表于 2021-11-25 03:04
+
+B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

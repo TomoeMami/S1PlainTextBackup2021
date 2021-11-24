@@ -14320,3 +14320,28 @@ yasuyuki的新女儿，個人勢 SunSister所属</blockquote>
 
 这个时间大概率跟虹第四回马车杯本战撞车，你虹人干脆别去反正APEX也没buff了...<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shpdw  
+##### 8591#       发表于 2021-11-25 04:48
+
+ 本帖最后由 shpdw 于 2021-11-25 04:51 编辑 
+
+Vocals:
+
+Gero/あらき/＋α／あるふぁきゅん。/un:c/＿＿（アンダーバー）/clear/nero/ぐるたみん/鋼兵/ASK/コゲ犬/that/ぽこた/湯毛/超学生/ChouCho/ナノ/VALSHE/ピコ/あさまる/amu/蛇足/みーちゃん/MARiA/YURiCa/花たん/らっぷびと/luz
+
+Music &amp; Lyri：40mP
+
+Mix：白井 康裕
+
+Vocal EDIT：ゆまみ屋-yumamiy
+
+Illustration：チェリ子/のう/八三
+
+Movie：まきのせな
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的男偶像们，彩虹的男偶像们
+

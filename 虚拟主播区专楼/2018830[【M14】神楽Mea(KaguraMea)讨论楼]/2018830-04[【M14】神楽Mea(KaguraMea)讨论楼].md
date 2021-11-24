@@ -8799,3 +8799,101 @@ syl 那个来了？信酱记一下
 
 多饥渴啊，都产生背后被男人抱着的错觉了
 
+
+
+*****
+
+####  时间在我手中  
+##### 5513#       发表于 2021-11-25 02:14
+
+为了让更多人看到然后早日推特二十万所以才最近认真完成kpi（大嘘）
+
+*****
+
+####  2014720  
+##### 5514#       发表于 2021-11-25 02:19
+
+半夜渴醒看见这女人在播，我他妈<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 5515#       发表于 2021-11-25 02:31
+
+ 本帖最后由 雪风utopia 于 2021-11-25 02:32 编辑 
+
+推特播也就那么多人看，每次都是同一批，这对推特涨粉有什么用呢<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+syl 您是完全不打算去睡吗<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 5516#       发表于 2021-11-25 02:37
+
+小麻寂寞了，要找男人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 5517#       发表于 2021-11-25 02:57
+
+我不行了，睡了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5518#       发表于 2021-11-25 03:02
+
+明天（周五）还要去美容院的样子
+
+*****
+
+####  雪风utopia  
+##### 5519#       发表于 2021-11-25 03:10
+
+自言自语快三个小时也太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5520#       发表于 2021-11-25 03:40
+
+没自言自语，有人发评论还是tag啥的估计
+
+不然这人有些对话就是对空气说话了
+
+
+
+*****
+
+####  雪风utopia  
+##### 5521#       发表于 2021-11-25 03:41
+
+ 本帖最后由 雪风utopia 于 2021-11-25 03:44 编辑 
+
+不是说要睡觉了吗，怎么又聊起来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+syl 终于完了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5522#       发表于 2021-11-25 03:49
+
+录完，睡觉。
+
+*****
+
+####  雪风utopia  
+##### 5523#       发表于 2021-11-25 04:57
+
+被你麻整的我睡不着了，下次再听我就是傻逼
+
+*****
+
+####  雪风utopia  
+##### 5524#       发表于 2021-11-25 05:29
+
+twitch播了，可惜我手机耳机都没电了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

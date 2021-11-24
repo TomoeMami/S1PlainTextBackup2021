@@ -15344,3 +15344,14 @@ B站有人做脚本的，你搜搜。
 需要完成你没有做过的探险，要是之前全都做了就gg了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真是笑了，这个PG完全就是在嘲讽玩家，嘉年华活动永远没人，每日活动还不配做，这马拉松点数不要也罢。
 
+
+
+*****
+
+####  liyropen  
+##### 1388#       发表于 2021-11-25 02:50
+
+4代前期也这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

@@ -20399,3 +20399,23 @@ Q：对初次接触该作品的观众，请介绍一下本作的魅力点。
 
 当然，我也希望你能借此机会把《黑之宣告》也看了。
 
+
+
+*****
+
+####  镜hinata  
+##### 1432#       发表于 2021-11-25 01:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">等了好久发现没更,上巴哈看了眼说因为棒球赛事延后到3点
+
+*****
+
+####  菱0零  
+##### 1433#       发表于 2021-11-25 03:44
+
+简报室里背诵入队宣誓的部分删了啊，个人很喜欢那段的，冥夜明明这段剧情里地位很重要了，作画还是好穷，果然本质和207其他人一个待遇<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+进度一赶果然只能注重主角团了，中央作战司令室的剧情改编的乱七八糟，小珠老爸的立场感觉都变了，希望后面悠阳的部分能正常做吧
+最后吐槽下怎么小麻还要亲自开车的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
