@@ -15355,3 +15355,12 @@ B站有人做脚本的，你搜搜。
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  920619lqy  
+##### 1389#       发表于 2021-11-25 06:44
+
+有被笑到，今天的日常果然是必须要完成没有完成过的故事模式章节才算数。幸好我test driver都还没做
+
