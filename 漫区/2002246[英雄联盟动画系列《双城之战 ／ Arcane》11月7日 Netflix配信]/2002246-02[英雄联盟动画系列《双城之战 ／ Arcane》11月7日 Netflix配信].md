@@ -12487,3 +12487,24 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 （说实在的我觉得祖安实在不是什么宜居的地方，能有座城就已经很离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  战场公主希维尔  
+##### 2682#       发表于 2021-11-24 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53684398&amp;ptid=2002246" target="_blank">whyy 发表于 2021-11-24 20:24</a>
+
+艾克、维克托本身也能套入美强惨里吧，凯特琳被职场冷暴力，勉强也能算美强（小）惨 ...</blockquote>
+凯特琳身为皮城顶级2代。不动用关系被职场欺凌，只能说“这不是我想要的生活”
+
+不能算惨<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反正我改名  
+##### 2683#       发表于 2021-11-24 21:57
+
+拳头这要做下去全讲完不会真做到2077吧。挺想看德玛西亚的，宇宙重组后德玛西亚就不再伟光正，塞拉斯直接让德玛西亚变成黑深残了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
