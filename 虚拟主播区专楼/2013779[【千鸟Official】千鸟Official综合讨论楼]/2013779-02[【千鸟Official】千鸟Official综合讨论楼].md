@@ -13713,3 +13713,26 @@ WOC，有鸟P跑海子姐动态下臊皮。非是一两只，这下路人缘G了
 
 问就是套盾，现在谁还在乎路人缘啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  四叶的花  
+##### 2956#       发表于 2021-11-24 13:45
+
+还行吧，引流而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有v87团建做铺垫对比起来观感也没那么差
+
+*****
+
+####  Geronimo  
+##### 2957#       发表于 2021-11-24 13:49
+
+这下子黑暗骑士了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 2958#       发表于 2021-11-24 14:02
+
+昨天白白mhw直播的效果那么好吗？我回去补补看
+

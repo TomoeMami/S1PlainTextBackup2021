@@ -11742,3 +11742,21 @@ bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face201
 那个一开始在酒吧被黑商搞，范德尔替他出面摆平的</blockquote>
 哦哦对，多谢多谢。出现时间太短没认出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  共谍常凯申  
+##### 2620#       发表于 2021-11-24 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678036&amp;ptid=2002246" target="_blank">百合豚 发表于 2021-11-24 12:40</a>
+本质看lol不爽啊，连自诩客观中立的s1都给arcane打了四个-2呢，不过也无所谓，反正这片必然得奖 ...</blockquote>
+还要特地开小号投，贱不贱啊.jpg
+
+*****
+
+####  sandro  
+##### 2621#       发表于 2021-11-24 13:53
+
+杰西真的是极品眉笔，游戏里捞不到冠军皮肤，动画里千夫所指，好歹也是个高富帅啊
+
