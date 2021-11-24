@@ -12171,3 +12171,40 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 不是，fortiche做了金克斯的get jinx、s4 Worriors、初代kda pop/stars，s8 rise、艾克的seconds，除艾克 ...</blockquote>
 源计划是BLUER做的吧
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 2656#       发表于 2021-11-24 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682428&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-24 17:39</a>
+
+不是，fortiche做了金克斯的get jinx、s4 Worriors、初代kda pop/stars，s8 rise、艾克的seconds，除艾克 ...</blockquote>
+给整个源计划的大电影吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hallowilliam  
+##### 2657#       发表于 2021-11-24 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680363&amp;ptid=2002246" target="_blank">tewaku 发表于 2021-11-24 15:18</a>
+
+近年都是这个倾向，所有人都必须伟光正甚至反派都不能过分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 问题是一大堆说喜欢希尔科。
+
+同时还搬出三观批判这套东西，就。。挺迷的。。。
+
+感觉对角色发泄恶意也算是最近的传统了。。。
+
+当然了，不是对编剧而是对角色发泄恶意，起码代表编剧真的做的很好了。。。
+
+*****
+
+####  sandro  
+##### 2658#       发表于 2021-11-24 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682428&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-24 17:39</a>
+不是，fortiche做了金克斯的get jinx、s4 Worriors、初代kda pop/stars，s8 rise、艾克的seconds，除艾克 ...</blockquote>
+我草，这么屌
+

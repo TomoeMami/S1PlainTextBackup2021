@@ -15232,3 +15232,26 @@ nga说是跟女拳有关，真假不知
 
 2021-11-24 17:16 上传
 
+
+
+*****
+
+####  Vladimeow  
+##### 1378#       发表于 2021-11-24 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53674750&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-24 09:00</a>
+https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tdsourcetag=s_pcqq_send_grpfile&amp;ADUIN=350549144&amp;ADSESSIO ...</blockquote>
+直呼好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大哀之君  
+##### 1379#       发表于 2021-11-24 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681705&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-24 16:47</a>
+
+这移除按钮也是属实nt了
+
+不过既然被封的绝大部分是二次元，也很难说没人搞事了⑧ ...</blockquote>
+我疑心是二次元涂装下载的人多又喜欢换来换去，很多人不知道怎么正确更换涂装就按了这个最容易找到的键，系统短时间收到大量举报自动ban掉事主。
+
