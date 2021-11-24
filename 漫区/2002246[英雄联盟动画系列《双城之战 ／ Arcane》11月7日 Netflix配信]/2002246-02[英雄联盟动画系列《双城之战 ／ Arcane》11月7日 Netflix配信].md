@@ -12352,3 +12352,39 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 2021-11-24 19:16 上传
 
+
+
+*****
+
+####  摸鱼先锋  
+##### 2671#       发表于 2021-11-24 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678687&amp;ptid=2002246" target="_blank">hallowilliam 发表于 2021-11-24 13:26</a>
+
+别管什么评分了。。。
+
+昨天看到一个投票，选Arcane里最喜欢的角色，双选，我犹豫了半天居然想不出哪两个角 ...</blockquote>
+不仅扯三观和合理性这两杆大旗，稍微从角色和经历这块说两句，洗地孝子的帽子就扣上来了，感觉现在动画观众的戾气不是一般的重，再加上引流来的游戏玩家，经常打开讨论区感觉跟进了粪坑一样<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+（说到投票这块骂得最狠的抗吧开了好几个人气投票，全是金克丝碾压，人人都骂金÷人人都爱金÷了可以说是，真是奇妙深刻）
+
+*****
+
+####  厄神之息  
+##### 2672#       发表于 2021-11-24 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53683673&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-24 19:23</a>
+
+不仅扯三观和合理性这两杆大旗，稍微从角色和经历这块说两句，洗地孝子的帽子就扣上来了，感觉现在动画观 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">艾克，维克托和凯特琳的人气居然不是最高的吗？那只能说大家对“美强惨”的需求远高于“伟光正”了
+
+*****
+
+####  晨风零雨426  
+##### 2673#       发表于 2021-11-24 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53683673&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-11-24 19:23</a>
+
+不仅扯三观和合理性这两杆大旗，稍微从角色和经历这块说两句，洗地孝子的帽子就扣上来了，感觉现在动画观 ...</blockquote>
+主要是粉的和黑的不是一拨人，黑的碰巧喜欢“高声彰高义”。
+
