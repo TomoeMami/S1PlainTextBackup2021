@@ -14240,3 +14240,21 @@ yagoo哥哥还缺人做ppt吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">那yagoo还是比田角会炒，田角那个vr恐怖游戏就只存在kemt的脑子了
 
+
+
+*****
+
+####  空集  
+##### 8584#       发表于 2021-11-24 20:47
+
+这东西版本号写个0.2明显就是弄个饼出来写写ppt
+
+*****
+
+####  winda  
+##### 8585#       发表于 2021-11-24 20:59
+
+beni今天当igl打得挺好的，攻击评论也少了不少<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+26-15 mvp
+

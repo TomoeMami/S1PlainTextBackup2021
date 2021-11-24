@@ -12473,3 +12473,17 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 艾克，维克托和凯特琳的人气居然不是最高的吗？那只能说大家对“美强惨”的需求远高于“伟光正” ...</blockquote>
 艾克、维克托本身也能套入美强惨里吧，凯特琳被职场冷暴力，勉强也能算美强（小）惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Siran_China  
+##### 2681#       发表于 2021-11-24 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53684386&amp;ptid=2002246" target="_blank">whyy 发表于 2021-11-24 20:23</a>
+
+最简单的：皮城的工业污水废水肯定是往祖安排啊吸血怎么说</blockquote>
+污水排放应该不算是吸血的证据（哪怕在现实中也一样），只要是工业就会产生废弃物，而且你皮城和祖安的地理位置重合，往哪排没区别，真正重要的应该是皮城挤占了祖安的资源。那么是怎么挤占的呢？就是我刚刚说的全方面领先。
+
+（说实在的我觉得祖安实在不是什么宜居的地方，能有座城就已经很离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
