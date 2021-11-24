@@ -2845,3 +2845,15 @@ vd串流是不是占用资源比airlink小很多？
 
 2021-11-24 07:24 上传
 
+
+
+*****
+
+####  dumplingpro  
+##### 183#       发表于 2021-11-24 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53664464&amp;ptid=2034565" target="_blank">hikari0805 发表于 2021-11-23 14:12</a>
+
+vd串流是不是占用资源比airlink小很多？</blockquote>
+没有这个说法，只是VD更加成熟稳定接地气。
+
