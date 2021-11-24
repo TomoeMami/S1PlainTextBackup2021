@@ -12436,3 +12436,14 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 1127#       发表于 2021-11-25 00:09
+
+这歌词心里路程走下来，叫恋恋是理所应当的
+
+这动画12集处理的人际关系都不如人家1分钟的歌词
+

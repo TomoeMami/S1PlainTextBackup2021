@@ -14305,3 +14305,18 @@ yasuyuki的新女儿，個人勢 SunSister所属</blockquote>
 
 狗狗狗怎么一个月没播了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8590#       发表于 2021-11-25 00:14
+
+ 本帖最后由 alcoholic1000 于 2021-11-25 00:18 编辑 
+
+12/25 Apex CRカップ 年末最終大会，12/26 シークレットイベント
+
+看样子是要用CR给merise做铺垫？
+
+这个时间大概率跟虹第四回马车杯本战撞车，你虹人干脆别去反正APEX也没buff了...<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

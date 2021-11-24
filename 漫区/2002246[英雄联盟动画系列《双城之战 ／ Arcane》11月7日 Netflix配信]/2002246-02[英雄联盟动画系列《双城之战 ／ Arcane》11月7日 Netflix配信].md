@@ -12535,3 +12535,14 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 有没有人指个路去哪可以下载1080p,WEB-DL,10bit.HDR.DDP5.1网飞国语版的双城之战。
 
+
+
+*****
+
+####  飞升之后  
+##### 2687#       发表于 2021-11-25 00:12
+
+[https://www.bilibili.com/video/B ... _id_from=444.41.0.0](https://www.bilibili.com/video/BV1A44y1e7yf?spm_id_from=444.41.0.0)【英雄联盟】开发者日志：《双城之战》的音乐
+
+音乐基本都是拳头本家负责
+
