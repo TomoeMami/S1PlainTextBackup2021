@@ -14258,3 +14258,26 @@ beni今天当igl打得挺好的，攻击评论也少了不少<img src="https://s
 
 26-15 mvp
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8586#       发表于 2021-11-24 21:28
+
+贝妮本来打瓦罗兰特比较多，感觉这活动就是为了捞贝妮的
+
+*****
+
+####  NBXX  
+##### 8587#       发表于 2021-11-24 21:32
+
+ 本帖最后由 NBXX 于 2021-11-24 21:34 编辑 
+
+緋月ひの
+[https://twitter.com/hino_hizuki](https://twitter.com/hino_hizuki)
+
+yasuyuki的新女儿，個人勢 SunSister所属
+<img src="https://p.sda1.dev/3/932021006c6836e85c1babc4fc942748/Y_WR_4MHCNPQFOO4I1R69SF.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/6038a420f254e3eeb688f2d8a4d9f389/ESC@V_C__O`N8_15G_KB__S.png" referrerpolicy="no-referrer">
+
