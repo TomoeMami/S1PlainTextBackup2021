@@ -7933,3 +7933,15 @@ king这个弹射头部到底是怎么回事</blockquote>
  パトリック・レッドフィールド </blockquote>
 Redfield，不会恶搞生化危机之类的梗吧 
 
+
+
+*****
+
+####  仟音一心  
+##### 56111#       发表于 2021-11-24 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676319&amp;ptid=98922" target="_blank">yangxu 发表于 2021-11-24 10:43</a>
+
+Redfield，不会恶搞生化危机之类的梗吧</blockquote>
+已经确定是讲红发了
+

@@ -652,3 +652,53 @@ https://m.douban.com/group/topic/253652207/  这篇44万磅 不过偏远吧 �
 
 但否定自己的设定，就为了搞ZZZQ，那今天被更强大的魔法打败了魔法，也是自作自受。
 
+
+
+*****
+
+####  烂菊花  
+##### 70#       发表于 2021-11-24 11:06
+
+这帮变态真该送进精神病院
+
+*****
+
+####  田黄石  
+##### 71#       发表于 2021-11-24 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676361&amp;ptid=2039029" target="_blank">我被骗了五块钱 发表于 2021-11-24 10:46</a>
+这和她当年的观点又不冲突，书里确实没有出现过赫敏的人种描写吧，但是生理性别是客观事实啊，一个人又不 ...</blockquote>
+我完全理解哈利波特话剧赫敏请黑人演，毕竟不这样那哈姆雷特我们不就演不了。
+但是你说赫敏就是黑人，那就太搞笑了，这是典型的脑子都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且jk罗琳我看这意思有点要被打倒，她肯定说错了某些话，而且是没几个人敢支持那种
+
+*****
+
+####  flymop  
+##### 72#       发表于 2021-11-24 11:10
+
+我要是，JK罗琳，我就把书再版，改成轻小说，插画把三主角画成黑人，MSL和gay<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 73#       发表于 2021-11-24 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676727&amp;ptid=2039029" target="_blank">田黄石 发表于 2021-11-24 11:08</a>
+
+我完全理解哈利波特话剧赫敏请黑人演，毕竟不这样那哈姆雷特我们不就演不了。
+
+但是你说赫敏就是黑人，那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她支持TERF啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者说真女权不支持TERF才有问题好吧 凭什么穿个女装割个篮子（或者没割）就来享受我们奋斗出来的东西？
+
+*****
+
+####  不见不散  
+##### 74#       发表于 2021-11-24 11:23
+
+这贴笑死我了，来个jk九宫格吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
