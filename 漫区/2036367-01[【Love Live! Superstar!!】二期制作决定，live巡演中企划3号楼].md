@@ -12328,3 +12328,26 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  宋西湖  
+##### 1115#       发表于 2021-11-24 22:03
+
+クレッシェンドゆ・ら  <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哎哟，自从第三话之后，我就入了可恋股，但是一直都是假药盛行，这下终于嗑到真糖了吗，唬哈哈哈哈哈哈，
+
+*****
+
+####  cat1230  
+##### 1116#       发表于 2021-11-24 22:14
+
+可恋曲好棒，这5个里最喜欢的，完整版不知道啥样<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_2  
+##### 1117#       发表于 2021-11-24 22:17
+
+“已经超越了朋友”？？？
+

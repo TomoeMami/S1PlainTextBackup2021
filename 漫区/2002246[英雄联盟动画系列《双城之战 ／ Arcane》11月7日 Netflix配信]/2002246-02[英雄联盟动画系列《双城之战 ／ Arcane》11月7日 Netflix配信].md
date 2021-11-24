@@ -12508,3 +12508,19 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 拳头这要做下去全讲完不会真做到2077吧。挺想看德玛西亚的，宇宙重组后德玛西亚就不再伟光正，塞拉斯直接让德玛西亚变成黑深残了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bairn  
+##### 2684#       发表于 2021-11-24 22:11
+
+想做快点就只能降低效果了
+
+*****
+
+####  飞升之后  
+##### 2685#       发表于 2021-11-24 22:11
+
+单纯只做双城，可能会快不少，。。但还是希望有一定的扩展
+
