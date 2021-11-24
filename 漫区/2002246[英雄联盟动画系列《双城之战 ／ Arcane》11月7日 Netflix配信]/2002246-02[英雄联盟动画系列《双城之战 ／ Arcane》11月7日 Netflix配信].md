@@ -11576,3 +11576,17 @@ Reddit上有人爆料连同宣发 双城经费花了2亿美金</blockquote>
 多谢，那我得去看看。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不知道是不是，动画也没明说，也没有相关表示，不喜欢嗑cp的是看不出来是不是姬佬的。
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2605#       发表于 2021-11-24 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676003&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-24 10:26</a>
+
+不知道是不是，动画也没明说，也没有相关表示，不喜欢嗑cp的是看不出来是不是姬佬的。 ...</blockquote>
+[https://b23.tv/jqVjnkz](https://b23.tv/jqVjnkz)
+
+论一个剪辑是如何掌控剧情的
+

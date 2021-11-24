@@ -7917,3 +7917,19 @@ king这个弹射头部到底是怎么回事</blockquote>
 
 谁把索隆睁眼开须佐的图改成御田附体看看
 
+
+
+*****
+
+####  yangxu  
+##### 56110#       发表于 2021-11-24 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53608155&amp;ptid=98922" target="_blank">仟音一心 发表于 2021-11-19 13:24</a>
+
+剧场版RED
+
+我猜是打红伯爵“孤高之红”巴洛里克·莱德菲尔德
+
+ パトリック・レッドフィールド </blockquote>
+Redfield，不会恶搞生化危机之类的梗吧 
+
