@@ -11824,3 +11824,96 @@ bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face201
 比方希尔科就是要往上打 ...</blockquote>
 其实还有蔚，这两位都很迷茫
 
+
+
+*****
+
+####  chivalry  
+##### 2625#       发表于 2021-11-24 15:05
+
+真就全员苦逼，太惨了，没一个笑着的，我就想问，假如蔚没有路过皮尔特沃夫，是不是就不会这样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2626#       发表于 2021-11-24 15:08
+
+卧槽，没想到结局这个 样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2627#       发表于 2021-11-24 15:09
+
+游戏世界观里有人物的后续剧情吗，还是说动画基本独立，游戏里没什么剧情。
+
+*****
+
+####  暗黑能乐  
+##### 2628#       发表于 2021-11-24 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680220&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:09</a>
+游戏世界观里有人物的后续剧情吗，还是说动画基本独立，游戏里没什么剧情。 ...</blockquote>
+英雄人物传记被吃了一些书，如果游戏语音彩蛋不改的话，离到游戏里的状态还有一段距离吧
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  厄神之息  
+##### 2629#       发表于 2021-11-24 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680220&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:09</a>
+
+游戏世界观里有人物的后续剧情吗，还是说动画基本独立，游戏里没什么剧情。 ...</blockquote>
+有，英雄联盟宇宙里有写，但是跟这动画对不上，这动画吃了几乎所有出场角色的书，所以想知道这一炮到成为英雄之前的这段后续基本只能等第二季，想看成为英雄以后的后日谈可以去英雄联盟宇宙找对应人物的短篇小说，比如维克托哄小孩之类的。
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2630#       发表于 2021-11-24 15:16
+
+动画里出场的人物武力值有点儿低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像没有哪位是一骑当千、移山填海的大能。
+
+*****
+
+####  厄神之息  
+##### 2631#       发表于 2021-11-24 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680199&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:08</a>
+
+卧槽，没想到结局这个 样子</blockquote>
+那你不大行，漫区大神基本都开头10分钟就猜出结尾的。
+
+*****
+
+####  tewaku  
+##### 2632#       发表于 2021-11-24 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678687&amp;ptid=2002246" target="_blank">hallowilliam 发表于 2021-11-24 13:26</a>
+
+别管什么评分了。。。
+
+昨天看到一个投票，选Arcane里最喜欢的角色，双选，我犹豫了半天居然想不出哪两个角 ...</blockquote>
+近年都是这个倾向，所有人都必须伟光正甚至反派都不能过分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2633#       发表于 2021-11-24 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680342&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-24 15:17</a>
+
+那你不大行，漫区大神基本都开头10分钟就猜出结尾的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一个人物都不认识，英雄联盟摸都没摸过，猜个鬼啊。
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2634#       发表于 2021-11-24 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680318&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-24 15:16</a>
+
+有，英雄联盟宇宙里有写，但是跟这动画对不上，这动画吃了几乎所有出场角色的书，所以想知道这一炮到成为 ...</blockquote>
+最后那一炮轰过去，大楼里的维克托和杰斯还能活得了吗？游戏小说的后日谈和动画估计也对不上了吧。
+

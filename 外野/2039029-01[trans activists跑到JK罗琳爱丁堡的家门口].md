@@ -1092,3 +1092,29 @@ https://www.canada.ca/en/department-justice/news/2020/09/federal-government-rein
 
 最新的批判应该是，罗琳按照男同很“娘”的刻板印象描写老邓，实际上是在歧视<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  今晚吃啥  
+##### 110#       发表于 2021-11-24 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679971&amp;ptid=2039029" target="_blank">εRemastered 发表于 2021-11-24 14:54</a>
+
+你是不是把liberal一方对自己“敌人”的描述默认为100%真实的？推特说对面支持电击你就信了，仔细看看所 ...</blockquote>
+我上边发的加拿大司法部的文章你干脆没看是吗？
+
+人家写得很清楚了，C8法案提出了五项与转化疗法有关的行为入刑：
+
+1. 导致未成年人接受转化治疗
+
+2. 将未成年人带离加拿大到国外接受转化治疗
+
+3. 导致一个人在违背其意愿的情况下接受转化治疗
+
+4. 从提供转换治疗中获利
+
+5. 宣传提供转换治疗的提议
+
+还又是“担忧”又是“说服”的，国内外拳尸这点倒是一个尿性，又XX又XX的
+

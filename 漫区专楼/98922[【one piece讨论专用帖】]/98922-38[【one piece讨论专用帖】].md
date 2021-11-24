@@ -8007,3 +8007,12 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 
 给厨子也整一个啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  darkjack  
+##### 56117#       发表于 2021-11-24 15:04
+
+索大也有霸王色了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

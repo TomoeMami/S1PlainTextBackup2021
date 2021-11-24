@@ -5551,3 +5551,32 @@ NMD两单沉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">总之盐川飞妈
 
+
+
+*****
+
+####  holyblood  
+##### 84499#       发表于 2021-11-24 15:07
+
+有没有人遇到用紫发少女(baba)上降防debuff时点了快进，结果debuff没加上的情况？这个是bug么？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 84500#       发表于 2021-11-24 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680185&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-11-24 15:07</a>
+
+有没有人遇到用紫发少女(baba)上降防debuff时点了快进，结果debuff没加上的情况？这个是bug么？ ...</blockquote>
+我估摸着吧，大概率是对面的对魔力把降防给顶掉了，因为快进的关系你没看清对面头上的miss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holyblood  
+##### 84501#       发表于 2021-11-24 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680232&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-11-24 15:11</a>
+
+我估摸着吧，大概率是对面的对魔力把降防给顶掉了，因为快进的关系你没看清对面头上的miss ...</blockquote>
+我打活动弓凛本遇到的，弓凛有这本事啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
