@@ -12316,3 +12316,15 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 这几首又是民警没有单独的CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 1114#       发表于 2021-11-24 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53684744&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-24 20:49:49</a>
+这几首又是民警没有单独的CP</blockquote>不慌，算上小星星，c52才出来三首歌，再出七首歌就齐活了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
