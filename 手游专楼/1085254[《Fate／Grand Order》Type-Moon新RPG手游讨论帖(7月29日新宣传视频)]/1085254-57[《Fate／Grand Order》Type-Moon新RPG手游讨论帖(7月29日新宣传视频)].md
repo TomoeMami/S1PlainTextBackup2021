@@ -5615,3 +5615,12 @@ NMD两单沉了
 对魔力了解一下</blockquote>
 原来有这么复杂的机制，白玩了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前都没注意
 
+
+
+*****
+
+####  khxooo  
+##### 84505#       发表于 2021-11-24 23:27
+
+查了一下，龙马竟然没有神性和龙属性，这也太奇怪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

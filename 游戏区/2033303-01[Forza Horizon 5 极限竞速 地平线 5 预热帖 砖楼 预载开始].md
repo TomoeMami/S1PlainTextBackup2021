@@ -15288,3 +15288,29 @@ B站有人做脚本的，你搜搜。
 
 赛车游戏也能吃鸡我是没想到的
 
+
+
+*****
+
+####  lotusaelise  
+##### 1383#       发表于 2021-11-24 23:23
+
+看来还是网络问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 在看不到队友的情况下虚空涨分完成了第一次arcade
+
+*****
+
+####  风流庵TypeC  
+##### 1384#       发表于 2021-11-24 23:37
+
+ 本帖最后由 风流庵TypeC 于 2021-11-24 23:39 编辑 
+
+这给我刷新到人堆里是不是就可以变成玩GTA了
+
+<img src="https://img.saraba1st.com/forum/202111/24/233643wu4cu9nca6f46u6q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (708.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 23:36 上传
+
