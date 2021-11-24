@@ -11535,3 +11535,32 @@ Reddit上有人爆料连同宣发 双城经费花了2亿美金</blockquote>
 
 孤勇者要成今年正能量神曲了。。这歌要是去年上半年出，传唱度估计还要翻几倍
 
+
+
+*****
+
+####  Siran_China  
+##### 2601#       发表于 2021-11-24 10:11
+
+焰浪之潮！你一说我就想起来那个调子了，一听就知道是比尔吉沃特的那种<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银枪子龙  
+##### 2602#       发表于 2021-11-24 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53675738&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-24 10:11</a>
+
+焰浪之潮！你一说我就想起来那个调子了，一听就知道是比尔吉沃特的那种 ...</blockquote>
+可惜那段时间我可能是LOL刚玩累，脱坑了一段时间，那个大事件时期没参加
+
+*****
+
+####  ky7913  
+##### 2603#       发表于 2021-11-24 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53675507&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-24 09:57</a>
+
+梅尔老妈点的小白脸好像是底城鸡院里的那个面具男吧</blockquote>
+是的，项链一样
+

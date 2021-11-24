@@ -553,3 +553,24 @@ https://m.douban.com/group/topic/253652207/  这篇44万磅 不过偏远吧 �
 
 住那么远还要条子保护她~是不是浪费纳税人的钱？
 
+
+
+*****
+
+####  PrincessBanana  
+##### 62#       发表于 2021-11-24 10:19
+
+上版本T0卡组被新出的人权卡堵在门口乱杀
+
+欧美大区优秀的匹配机制
+
+*****
+
+####  钞君  
+##### 63#       发表于 2021-11-24 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53674587&amp;ptid=2039029" target="_blank">C.W.Nimitz 发表于 2021-11-24 08:44</a>
+
+支持电击是啥</blockquote>
+点击治疗夸夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

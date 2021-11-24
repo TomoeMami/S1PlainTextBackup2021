@@ -14119,3 +14119,13 @@ vchama.xyz
 
 2021-11-24 01:48 上传
 
+
+
+*****
+
+####  winda  
+##### 8575#       发表于 2021-11-24 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天练习赛完nrk直言要哭了，同时带新人和当igl不容易啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感受到律金TV的痛了么
+
