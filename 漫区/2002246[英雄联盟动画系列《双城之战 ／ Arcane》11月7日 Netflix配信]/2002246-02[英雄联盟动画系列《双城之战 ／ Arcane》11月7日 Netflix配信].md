@@ -12327,3 +12327,28 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 有没有把“Arcane”读成“茜”的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Siran_China  
+##### 2670#       发表于 2021-11-24 19:16
+
+发现了点新东西，只能说维克托是真的惨...他的助手其实是他的青梅竹马，他俩小时候就见过<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/24/191606tk9klazjnjzcjtlo.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (147.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 19:16 上传
+
+<img src="https://img.saraba1st.com/forum/202111/24/191633khvshsthvirj5i5r.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (142.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 19:16 上传
+

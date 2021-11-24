@@ -14191,3 +14191,43 @@ vchama.xyz
 12/26 シークレットイベント
 熟悉的圣诞节cr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 8581#       发表于 2021-11-24 19:13
+
+[https://twitter.com/VTuberFes_jp/status/1463462402792599552](https://twitter.com/VTuberFes_jp/status/1463462402792599552)
+
+aether在万粉以下组还是挺强的，不过真上了超会议唱啥呢......其实前两天发的晓之车就挺好的
+
+mimi掉到challenger组第二了，第三那弃医从管老姐天天写的小作文我都要看哭了，赶紧给她通过了吧
+
+<img src="https://img.saraba1st.com/forum/202111/24/191327pnpmkvpzvae4ewen.png" referrerpolicy="no-referrer">
+
+<strong>rookie.png</strong> (38.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202111/24/191327m6i6aetoa0t66laz.png" referrerpolicy="no-referrer">
+
+<strong>challenger.png</strong> (39.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 19:13 上传
+
+*****
+
+####  free  
+##### 8582#       发表于 2021-11-24 19:17
+
+不省一楼了，杏的游戏昨天搞了一小时试玩，看了以后不知道说什么好。只能祝宇宙的大杏赢了又赢，早日上市了
+
+yagoo哥哥还缺人做ppt吗
+
+[https://www.youtube.com/watch?v=V722bYH07P4](https://www.youtube.com/watch?v=V722bYH07P4)
+
