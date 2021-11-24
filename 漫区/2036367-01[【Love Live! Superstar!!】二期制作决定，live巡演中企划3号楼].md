@@ -12513,3 +12513,15 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都对歌词感到震惊
 
+
+
+*****
+
+####  ads147147  
+##### 1133#       发表于 2021-11-25 07:35
+
+懂了，这歌是if线，是可可拉恋恋入队的平行世界。这个世界线里，没有废校，没有死妈，没有资本家老爹对女儿不管不问。
+有的是一瞬的心动，难以言语的tokimeiki，似乎合不来的两人就此重合在一起。终于可以解释第三话里恋到底在看什么了，果然第四话开始剧本就从花田神换成了花田庸人。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
