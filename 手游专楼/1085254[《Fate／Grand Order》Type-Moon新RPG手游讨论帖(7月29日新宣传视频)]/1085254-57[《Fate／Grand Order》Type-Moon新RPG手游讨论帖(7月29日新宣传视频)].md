@@ -5580,3 +5580,26 @@ NMD两单沉了
 我估摸着吧，大概率是对面的对魔力把降防给顶掉了，因为快进的关系你没看清对面头上的miss ...</blockquote>
 我打活动弓凛本遇到的，弓凛有这本事啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84502#       发表于 2021-11-24 15:30
+
+<blockquote>引用第84500楼holyblood于2021-11-24 15:22发表的  :
+
+引用:xiongxingyu 发表于 2021-11-24 15:11我估摸着吧，大概率是对面的对魔......</blockquote>
+弓凛可是对魔力A再加女神神核B，顶你个debuff不要太正常
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  khxooo  
+##### 84503#       发表于 2021-11-24 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680438&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-11-24 15:22</a>
+我打活动弓凛本遇到的，弓凛有这本事啊</blockquote>
+对魔力了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

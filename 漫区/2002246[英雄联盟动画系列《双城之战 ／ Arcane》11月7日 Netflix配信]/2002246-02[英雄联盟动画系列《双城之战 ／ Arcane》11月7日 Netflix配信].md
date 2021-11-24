@@ -11917,3 +11917,147 @@ bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face201
 有，英雄联盟宇宙里有写，但是跟这动画对不上，这动画吃了几乎所有出场角色的书，所以想知道这一炮到成为 ...</blockquote>
 最后那一炮轰过去，大楼里的维克托和杰斯还能活得了吗？游戏小说的后日谈和动画估计也对不上了吧。
 
+
+
+*****
+
+####  厄神之息  
+##### 2635#       发表于 2021-11-24 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680364&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:18</a>
+
+我一个人物都不认识，英雄联盟摸都没摸过，猜个鬼啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">没事，我玩过，我也没猜到，就是有人说自己看开头十分钟就猜到结尾我觉得很厉害而已，如果对这些人物后续或是其他游戏觉得背景感兴趣可以看看“英雄联盟宇宙”这个网站。
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2636#       发表于 2021-11-24 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680458&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-24 15:23</a>
+
+没事，我玩过，我也没猜到，就是有人说自己看开头十分钟就猜到结尾我觉得很厉害而已，如果对这些 ...</blockquote>
+OK我去搜搜看。
+
+看完之后感觉的确挺媚战吧的，坛友诚不我欺。如果是个原创番每周一集，估计战吧讨论度报表<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银枪子龙  
+##### 2637#       发表于 2021-11-24 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680363&amp;ptid=2002246" target="_blank">tewaku 发表于 2021-11-24 15:18</a>
+
+近年都是这个倾向，所有人都必须伟光正甚至反派都不能过分</blockquote>
+我会用三观去评判，但我不喜欢用基于现实的三观，我看重的还是动画故事里的世界观和人物轨迹
+
+*****
+
+####  tewaku  
+##### 2638#       发表于 2021-11-24 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680491&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-24 15:25</a>
+
+我会用三观去评判，但我不喜欢用基于现实的三观，我看重的还是动画故事里的世界观和人物轨迹 ...</blockquote>
+问题是那些人就喜欢跳出作品带入现实批判一番，反正我是看得有点晕的，怀疑这些人就是想借作品指桑骂槐罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 2639#       发表于 2021-11-24 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680433&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:22</a>
+
+最后那一炮轰过去，大楼里的维克托和杰斯还能活得了吗？游戏小说的后日谈和动画估计也对不上了吧。 ...</blockquote>
+能活肯定能活，毕竟都是游戏里英雄级的人，没法写死，但是人物前传肯定是对不上了，但是后日谈已经是他们成为英雄之后的事了，这部分已经比还没放映的第二季还要远了，比如维克托已经把身体上上下下都换成机械体了，凯特琳也成警长，心腹大患不再是jinx而是C了，这中间隔的时间少说也得有2、3年所以应该还是能对的上的。
+
+*****
+
+####  缺德猫  
+##### 2640#       发表于 2021-11-24 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53674138&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-24 07:06</a>
+
+首要是先把炼金重做了，配音赶紧换了，反差太大了</blockquote>
+对，炼金跟游戏和动画里是完全相反的角色，哪哪都对不上。
+
+
+
+*****
+
+####  筱原重工  
+##### 2641#       发表于 2021-11-24 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680521&amp;ptid=2002246" target="_blank">tewaku 发表于 2021-11-24 15:28</a>
+问题是那些人就喜欢跳出作品带入现实批判一番，反正我是看得有点晕的，怀疑这些人就是想借作品指桑骂槐罢 ...</blockquote>
+指桑骂槐指的还是希尔科这种毒枭，艾克在哭诶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  银枪子龙  
+##### 2642#       发表于 2021-11-24 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680521&amp;ptid=2002246" target="_blank">tewaku 发表于 2021-11-24 15:28</a>
+
+问题是那些人就喜欢跳出作品带入现实批判一番，反正我是看得有点晕的，怀疑这些人就是想借作品指桑骂槐罢 ...</blockquote>
+套盾，为了批评找理由而已
+
+*****
+
+####  厄神之息  
+##### 2643#       发表于 2021-11-24 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680601&amp;ptid=2002246" target="_blank">缺德猫 发表于 2021-11-24 15:33</a>
+
+对，炼金跟游戏和动画里是完全相反的角色，哪哪都对不上。</blockquote>
+炼金：她的伤势很重。
+
+希尔科：你以为我看不出来吗！
+
+炼金：我应该能救活他，但过程会很艰难。
+
+希尔科：她能挺过去
+
+炼金：开始之前，我还有个问题必须知道。
+
+希尔科：什么！？
+
+炼金：到底是摇还是不摇？
+
+希尔科：？？？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 缺德猫| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2644#       发表于 2021-11-24 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680537&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-24 15:29</a>
+
+能活肯定能活，毕竟都是游戏里英雄级的人，没法写死，但是人物前传肯定是对不上了，但是后日谈已经是他们 ...</blockquote>
+英雄联盟里的“英雄”是个专门的称号吗？成为英雄是有明显的分界点的？
+
+*****
+
+####  暗黑能乐  
+##### 2645#       发表于 2021-11-24 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680704&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:42</a>
+英雄联盟里的“英雄”是个专门的称号吗？成为英雄是有明显的分界点的？ ...</blockquote>
+好像没有这种专门的称呼（
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
