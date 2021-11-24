@@ -15041,3 +15041,14 @@ nga看到的
 
 PG你恶事做绝<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 1362#       发表于 2021-11-24 11:55
+
+<blockquote>aaronluray 发表于 2021-11-23 19:41
+看了下，确实要没打过的才算，但是大部分人应该都做了。下一个日常好像是要打一个故事章节才行，怕不是也 ...</blockquote>
+原本这傻逼arcade做不完，想在这第一个月解锁min meet max成就的唯一希望就是把包括每日挑战在内的点数全拿了，这下好了，第二周开始就没戏了。
+
