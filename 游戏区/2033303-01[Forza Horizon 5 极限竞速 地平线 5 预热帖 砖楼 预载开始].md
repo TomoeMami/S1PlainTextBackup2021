@@ -15198,3 +15198,20 @@ nga说是跟女拳有关，真假不知
 
 麻中麻
 
+
+
+*****
+
+####  老黑305  
+##### 1375#       发表于 2021-11-24 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这移除按钮也是属实nt了
+不过既然被封的绝大部分是二次元，也很难说没人搞事了⑧
+
+*****
+
+####  aaronluray  
+##### 1376#       发表于 2021-11-24 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我之前刷完小吉普删的时候也有好几次差点就点到这个选项上面去了，pg把选项塞这里完全就是脑子有问题
+

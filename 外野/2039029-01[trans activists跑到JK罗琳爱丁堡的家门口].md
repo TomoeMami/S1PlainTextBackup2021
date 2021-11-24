@@ -1453,3 +1453,42 @@ ftm和拉拉哪有这么多逼 ...</blockquote>
 其实说到这个不得不提当年lgbt运动的黑历史，lgbt运动的时候，g和恋童癖是一起手牵手上街闹的，连口号都 ...</blockquote>
 男同性恋的身份构成 社会构成还有历史和其他的现代性少数完全不是一个级别的 男同除了日**之外就是个男的 能吃LGBT大锅饭 性少数里面每个人都有责任
 
+
+
+*****
+
+####  Processed  
+##### 140#       发表于 2021-11-24 16:48
+
+ 本帖最后由 Processed 于 2021-11-24 16:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681490&amp;ptid=2039029" target="_blank">eezhangjie 发表于 2021-11-24 16:34</a>
+
+为什么男跨女强势和男性身份有关？</blockquote>
+mtf体格是男性的，一般女性争不过
+
+mtf社会性别上带着个女性的画皮，一般男性也拉不下脸去争
+
+mtf还自带一个lgbt++属性，在白左当道的国家就是有天然正义，犯了什么事都要帮忙遮掩
+
+这种buff拉满的角色，还有蛋糕分的时候大家忍忍也就过去了，蛋糕不够分了有什么冲突一定是从mtf开始的。所以大家对mtf的态度一直都比较认真，认为要切鸟明志的是普遍意见
+
+*****
+
+####  missingedge  
+##### 141#       发表于 2021-11-24 16:51
+
+有个问题，她能现在收回所有的hp相关ip么
+
+*****
+
+####  古代人皮克  
+##### 142#       发表于 2021-11-24 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681736&amp;ptid=2039029" target="_blank">Processed 发表于 2021-11-24 16:48</a>
+mtf体格是男性的，一般女性争不过
+
+mtf社会性别上带着个女性的画皮，一般男性也拉不下脸去争</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得不仅要切篮子 还要每月放血！
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
