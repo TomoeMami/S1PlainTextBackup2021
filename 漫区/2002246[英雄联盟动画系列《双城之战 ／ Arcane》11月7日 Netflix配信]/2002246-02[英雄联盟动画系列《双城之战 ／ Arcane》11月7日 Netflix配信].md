@@ -12132,3 +12132,42 @@ OK我去搜搜看。
 
 —— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 2652#       发表于 2021-11-24 17:31
+
+做源计划cg的公司和做奥术的是同一个吗
+
+*****
+
+####  新的起源  
+##### 2653#       发表于 2021-11-24 17:35
+
+好像the shy 又拉扯回 lpl了
+
+t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ammk  
+##### 2654#       发表于 2021-11-24 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682282&amp;ptid=2002246" target="_blank">彩虹肥宅 发表于 2021-11-24 17:31</a>
+做源计划cg的公司和做奥术的是同一个吗</blockquote>
+不是，fortiche做了金克斯的get jinx、s4 Worriors、初代kda pop/stars，s8 rise、艾克的seconds，除艾克那个稍冷门些其他全是爆品
+
+*****
+
+####  银枪子龙  
+##### 2655#       发表于 2021-11-24 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682428&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-24 17:39</a>
+
+不是，fortiche做了金克斯的get jinx、s4 Worriors、初代kda pop/stars，s8 rise、艾克的seconds，除艾克 ...</blockquote>
+源计划是BLUER做的吧
+

@@ -8682,3 +8682,44 @@ reverser（转向器） Dongaragashan（疑似歌名或者什么nico梗）急速
 
 简称，不知道是什么JB玩意儿的是一个世界性能让你menhera掉的光线
 
+
+
+*****
+
+####  2014720  
+##### 5502#       发表于 2021-11-24 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682059&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-11-24 17:13</a>
+反正大意就是super ultra miracle hyper Kinetic position
+
+reverser（转向器） Dongaragashan（疑似歌名或 ...</blockquote>
+什么东西
+
+*****
+
+####  时间在我手中  
+##### 5503#       发表于 2021-11-24 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682355&amp;ptid=2018830" target="_blank">2014720 发表于 2021-11-24 17:36</a>
+什么东西</blockquote>
+你就当这人大姨妈来了脸滚键盘发射了menhera光线
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|射我脸上|
+
+查看全部评分
+
+*****
+
+####  T_Hb  
+##### 5504#       发表于 2021-11-24 17:39
+
+KPI罢了
+

@@ -13855,3 +13855,15 @@ ___你好，我是文静
 
 亚达呦，阑尾做错了什么😭，连发言的权利都没有吗？
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2970#       发表于 2021-11-24 17:25
+
+没事，反正千鸟又没有装扮<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+臊皮被人喷了就说自己是v87，黑暗骑士被人感谢了再揭开面具展现自己鸟批的本相。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
