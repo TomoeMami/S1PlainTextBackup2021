@@ -775,3 +775,39 @@ https://m.douban.com/group/topic/253652207/  这篇44万磅 不过偏远吧 �
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677835&amp;ptid=2039029" target="_blank"> 忘却的彼方 发表于 2021-11-24 12:22</a> 黑牛白牛到爱丁堡了嗷~ </blockquote>
 你们变性三人对我们拳师三人，来彩虹旗给他整个活
 
+
+
+*****
+
+####  εRemastered  
+##### 82#       发表于 2021-11-24 12:30
+
+<blockquote>今晚吃啥 发表于 2021-11-24 12:17
+六月份的时候点赞了一个反对加拿大将电击治疗跨性别/同性恋列为非法的推，之后还解释了说自己反对电击扭 ...</blockquote>
+敢问原话是怎么说的？没找到你形容的这些言论
+
+*****
+
+####  ciaoyao0045  
+##### 83#       发表于 2021-11-24 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677335&amp;ptid=2039029" target="_blank">εRemastered 发表于 2021-11-24 11:45</a>
+
+卧槽，不会真有人以为切jb切子宫安全无害就跟切肿瘤一样是个正常疗法吧？ </blockquote>　　割篮子——不管是割人的、还是割牲口的——有啥不正常？从爱尔兰到契丹的医生都没少割过。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakas  
+##### 84#       发表于 2021-11-24 12:41
+
+好笑
+
+屏幕截图 2021-11-24 124036.jpg
+(30.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202111/24/124132ed55fkeqapspmgae.jpg" referrerpolicy="no-referrer">
+

@@ -11671,3 +11671,12 @@ bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face201
 
 赛维卡我估计第二季大概率要挂在狼人手里，这也是宿命啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百合豚  
+##### 2614#       发表于 2021-11-24 12:40
+
+本质看lol不爽啊，连自诩客观中立的s1都给arcane打了四个-2呢，不过也无所谓，反正这片必然得奖
+

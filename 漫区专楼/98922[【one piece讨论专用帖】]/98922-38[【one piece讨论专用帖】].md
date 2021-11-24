@@ -7945,3 +7945,21 @@ Redfield，不会恶搞生化危机之类的梗吧
 Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 已经确定是讲红发了
 
+
+
+*****
+
+####  tyauto  
+##### 56112#       发表于 2021-11-24 12:39
+
+原来索隆之前一直藏着自己的霸王色
+
+<img src="https://img.saraba1st.com/forum/202111/24/123913ik6oj4hmou6kmmag.jpg" referrerpolicy="no-referrer">
+
+<strong>3F59498ECADBB3492AA22DABFA1AD0EB.jpg</strong> (80.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-24 12:39 上传
+
