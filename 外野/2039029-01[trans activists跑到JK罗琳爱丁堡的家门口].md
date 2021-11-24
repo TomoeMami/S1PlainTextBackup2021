@@ -868,3 +868,70 @@ girls（薛定谔）害girl
 
 一个99年就死掉的人在19年开创电击疗法？？？
 
+
+
+*****
+
+####  623607644  
+##### 91#       发表于 2021-11-24 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53674418&amp;ptid=2039029" target="_blank">与天争锋_LZ 发表于 2021-11-24 08:21</a>
+
+我在想政治正确风波离欧美文x还有多远
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经差不多了，网络大字报，大V公审，大家嘴臭丢鸡蛋，然后被切割网络抄家，就差一个线下充公了
+
+*****
+
+####  小野賢章  
+##### 92#       发表于 2021-11-24 13:12
+
+你想要 liberalism，就会得到 liberalism 的一切<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 93#       发表于 2021-11-24 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678287&amp;ptid=2039029" target="_blank">田黄石 发表于 2021-11-24 13:00</a>
+
+问题是在舆论上，我看到jk罗琳在被单方面群殴，连哈利波特的演员也没几个敢声援。
+
+到了这份上，我觉得jk ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她不服可以找TERF群体抱团嘛
+
+*****
+
+####  Kyoto  
+##### 94#       发表于 2021-11-24 13:13
+
+穿山jk，罪不可赦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  钞君  
+##### 95#       发表于 2021-11-24 13:15
+
+ 本帖最后由 钞君 于 2021-11-24 13:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678200&amp;ptid=2039029" target="_blank">寂寞羽化 发表于 2021-11-24 12:53</a>
+
+点赞的是反对未成年人滥用变性药物，根本和电击没关系。罗琳的笔名是13年起的，这个电击疗法是那个人19年 ...</blockquote>
+你的19年是2019年还是1919年？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Robert Galbraith Heath (May 9, 1915 – September 21, 1999) 
+
+*****
+
+####  今晚吃啥  
+##### 96#       发表于 2021-11-24 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678200&amp;ptid=2039029" target="_blank">寂寞羽化 发表于 2021-11-24 12:53</a>
+
+点赞的是反对未成年人滥用变性药物，根本和电击没关系。罗琳的笔名是13年起的，这个电击疗法是那个人19年 ...</blockquote>
+Robert Galbraith Heath (May 9, 1915 – September 21, 1999)
+
+哪个19年？
+

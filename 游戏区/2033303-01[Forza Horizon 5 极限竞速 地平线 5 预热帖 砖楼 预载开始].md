@@ -15085,3 +15085,41 @@ PG你恶事做绝<img src="https://static.saraba1st.com/image/smiley/face2017/19
 PG你恶事做绝</blockquote>
 谢邀，已改差评<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AEmpire  
+##### 1365#       发表于 2021-11-24 13:05
+
+这封号也太打击社区创作热情了，没痛车开我玩NM<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">PG的社区运营是猪吗
+
+*****
+
+####  nemunoki  
+##### 1366#       发表于 2021-11-24 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677481&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-24 11:55</a>
+
+原本这傻逼arcade做不完，想在这第一个月解锁min meet max成就的唯一希望就是把包括每日挑战在内的点数全 ...</blockquote>
+这个成就我看有些人季前赛就跳了，但是我季前赛除了街机以外全清也没跳，所以感觉不是按点数算
+
+*****
+
+####  aaronluray  
+##### 1367#       发表于 2021-11-24 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677481&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-24 11:55</a>
+
+原本这傻逼arcade做不完，想在这第一个月解锁min meet max成就的唯一希望就是把包括每日挑战在内的点数全 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">别说了，我tour第三轮都跑到最后一圈了，啪的一下我就掉线被踢出去了
+
+*****
+
+####  诶哟卧草  
+##### 1368#       发表于 2021-11-24 13:23
+
+又攒了快1000点了现在用来超级抽奖的车是哪辆？当然要方便用脚本的那种
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

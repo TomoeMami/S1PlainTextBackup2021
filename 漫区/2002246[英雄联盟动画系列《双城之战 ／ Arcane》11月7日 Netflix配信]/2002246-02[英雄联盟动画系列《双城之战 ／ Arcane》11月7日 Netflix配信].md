@@ -11680,3 +11680,30 @@ bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face201
 
 本质看lol不爽啊，连自诩客观中立的s1都给arcane打了四个-2呢，不过也无所谓，反正这片必然得奖
 
+
+
+*****
+
+####  阿刚  
+##### 2615#       发表于 2021-11-24 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677516&amp;ptid=2002246" target="_blank">我不是大叔 发表于 2021-11-24 11:56</a>
+
+赛维卡我估计第二季大概率要挂在狼人手里，这也是宿命啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别说她这机械臂还挺适合做成英雄的
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2616#       发表于 2021-11-24 13:20
+
+这个是谁哇，前面出现过吗？
+
+<img src="https://img.saraba1st.com/forum/202111/24/132034zdbzub0qnq0ub0uv.png" referrerpolicy="no-referrer">
+
+<strong>111.PNG</strong> (637.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 13:20 上传
+
