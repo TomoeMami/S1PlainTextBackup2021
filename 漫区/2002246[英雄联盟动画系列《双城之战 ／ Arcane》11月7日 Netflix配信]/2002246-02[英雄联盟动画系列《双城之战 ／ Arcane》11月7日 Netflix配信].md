@@ -12571,3 +12571,14 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2690#       发表于 2021-11-25 07:23
+
+<blockquote>飞升之后 发表于 2021-11-25 00:12
+https://www.bilibili.com/video/BV1A44y1e7yf?spm_id_from=444.41.0.0【英雄联盟】开发者日志：《双城之战 ...</blockquote>
+好家伙 ，做MV有瘾，必须每集都安排一段是吧
+
