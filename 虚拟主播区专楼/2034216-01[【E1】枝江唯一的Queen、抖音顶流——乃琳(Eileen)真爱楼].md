@@ -2909,3 +2909,84 @@ douban.com/group/topic/252737763/
 
 加班外加肠炎犯了......感觉自己快寄了，唉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 222#         楼主| 发表于 2021-11-24 14:43
+
+乃琳Queen:[转发动态](https://t.bilibili.com/596557776165720814)
+分享视频
+@BOURNEWAY:
+
+----
+
+【A-SOUL/乃琳】猛1奶淇琳也要和乃琳甜蜜合唱《舒伯特玫瑰》
+
+搁平时听到这首歌直接划过了，因为这个调对女中音很不友好捏，上不去下不来卡在这了属于是。
+
+但是！没有人可以拒绝跟乃宝合唱嘻嘻！乃琳！为了你！我要摁唱《舒伯特玫瑰》！mua！
+
+乃琳Queen [https://space.bilibili.com/672342685/](https://space.bilibili.com/672342685/)
+
+<img src="https://img.saraba1st.com/forum/202111/24/144131aplq6363f7d7fdyf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 14:41 上传
+
+乃琳Queen:[转发动态](https://t.bilibili.com/596557943667349052)
+
+分享视频
+
+@临暗_iZumi:
+
+----
+
+【A-SOUL】和乃宝合唱《舒伯特玫瑰》(百万调音师上班了)
+
+这次把乃琳的声音提取出来重新进行了修混~
+
+乃琳这首唱的太好听了叭！！！
+
+演唱:乃琳/林小暗
+
+修音/和声:林小暗
+
+混音:点师傅
+
+<img src="https://img.saraba1st.com/forum/202111/24/144244mqdzhsuyyf7ai6ip.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 14:42 上传
+
+乃琳Queen:[转发动态](https://t.bilibili.com/596558523494228414)
+
+分享视频
+
+@颜白Simon: 芜湖，是新视频
+
+----
+
+【能转】铃声小向晚
+
+素材来源：@不知名奶淇琳  
+
+@向晚大魔王  
+
+去学校了设个定时稿，月假回家整波大的
+
+<img src="https://img.saraba1st.com/forum/202111/24/144330tbt7hbvydrltudmx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-24 14:43 上传
+

@@ -13779,3 +13779,17 @@ WOC，有鸟P跑海子姐动态下臊皮。非是一两只，这下路人缘G了
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  小憨1  
+##### 2963#       发表于 2021-11-24 14:59
+
+ 本帖最后由 小憨1 于 2021-11-24 15:01 编辑 
+
+翻了一下七海动态下面的评论，笑yue了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+文静看着评论区估计现在应该和 地铁老人手机.jpg一样
+
+syl，海频开了鸟跌子频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

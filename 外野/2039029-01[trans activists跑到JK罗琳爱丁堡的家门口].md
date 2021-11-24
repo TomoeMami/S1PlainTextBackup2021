@@ -1052,3 +1052,43 @@ counsel，counsel有什么问题吗？建议一下“你先不要急着吃激素
 “跨性别”男进女浴室露“鸟”引街头混战！
 [https://www.163.com/dy/article/GF43CSUU0521KGPB.html](https://www.163.com/dy/article/GF43CSUU0521KGPB.html)
 
+
+
+*****
+
+####  εRemastered  
+##### 108#       发表于 2021-11-24 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679448&amp;ptid=2039029" target="_blank">今晚吃啥 发表于 2021-11-24 14:19</a>
+
+https://www.canada.ca/en/department-justice/news/2020/09/federal-government-reintroduces-legislati ...</blockquote>
+你是不是把liberal一方对自己“敌人”的描述默认为100%真实的？推特说对面支持电击你就信了，仔细看看所谓TERF反对C-8哪些部分也不至于这么简单粗暴吧
+
+女权组织表示反对C-8对各人自认的gender identity一概支持，担忧即使是性别相关的心理咨询都有可能被入罪
+
+↓
+
+”知名拳师组织支持性别认知扭转治疗“
+
+↓
+
+”JK罗琳支持拳师组织支持电击“
+
+↓
+
+”你自己去查查所谓“转化疗法”是什么几把玩意不就清楚了“
+
+感谢您示范“不遮着点说怎么蒙骗大众扩大传播面”的操作，学习了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 109#       发表于 2021-11-24 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53674573&amp;ptid=2039029" target="_blank">freka 发表于 2021-11-24 08:42</a>
+
+我记得jk罗琳后来补设定把院长老头变成同性恋了吧？玩这套想想就恶心，这下孽力反噬了 ...</blockquote>
+这种批判落伍了，邓布利多穿紫色的巫师袍、高跟靴，戴女式帽子，罗琳完全可以说一开始就设定老邓是男同。
+
+最新的批判应该是，罗琳按照男同很“娘”的刻板印象描写老邓，实际上是在歧视<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

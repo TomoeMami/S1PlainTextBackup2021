@@ -11794,3 +11794,33 @@ bgm人均暮光之眼<img src="https://static.saraba1st.com/image/smiley/face201
 
 然而吧……确实是看着就是各种妥协，各种耳边风一吹就转向……
 
+
+
+*****
+
+####  qingshuihe  
+##### 2623#       发表于 2021-11-24 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679335&amp;ptid=2002246" target="_blank">文文情报屋 发表于 2021-11-24 14:11</a>
+
+杰斯这人就是过于真实了一点
+
+这片里大部分都有自己的立场，有自己的追求
+
+比方希尔科就是要往上打 ...</blockquote>
+杰斯就像他语音里，为了更美好的明天，但是这个目标太虚幻了，没有那么清晰的一条路去走，所以杰斯每次选择都是当下他觉得合适的，终归是太年轻了，见得少，没法看透表象背后的本质，才显得随波逐流没有主见。开头说他24岁，到最后估计也就30左右，跟这些老政治混子比，太年轻了。如果有个30多将近40，见识多了，这些议员的动作手法见多了，自己科研也更进一步，双城也更了解了，他应该就会做出更好的选择。
+
+*****
+
+####  银枪子龙  
+##### 2624#       发表于 2021-11-24 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679335&amp;ptid=2002246" target="_blank">文文情报屋 发表于 2021-11-24 14:11</a>
+
+杰斯这人就是过于真实了一点
+
+这片里大部分都有自己的立场，有自己的追求
+
+比方希尔科就是要往上打 ...</blockquote>
+其实还有蔚，这两位都很迷茫
+
