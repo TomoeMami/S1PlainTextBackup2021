@@ -12388,3 +12388,54 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 不仅扯三观和合理性这两杆大旗，稍微从角色和经历这块说两句，洗地孝子的帽子就扣上来了，感觉现在动画观 ...</blockquote>
 主要是粉的和黑的不是一拨人，黑的碰巧喜欢“高声彰高义”。
 
+
+
+*****
+
+####  晨风零雨426  
+##### 2674#       发表于 2021-11-24 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53683751&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-24 19:33</a>
+
+艾克，维克托和凯特琳的人气居然不是最高的吗？那只能说大家对“美强惨”的需求远高于“伟光正” ...</blockquote>
+伟光正一方面文艺上容易无聊，一方面在价值传递上容易虚伪。
+
+相比于虚伪的高大全，观众显然更喜欢有真实感的缺陷人物。
+
+*****
+
+####  伊斯坎达尔王  
+##### 2675#       发表于 2021-11-24 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682136&amp;ptid=2002246" target="_blank">亚可（本人） 发表于 2021-11-24 17:19</a>
+
+有啊，第二集救杰斯和他妈那个
+
+能用传送这种空间系怎么也是个大能吧？</blockquote>
+需要借助水晶才能传送，某种意义上说明不是大能<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">这是为了引出“普通人也能享受魔法的恩泽”
+
+毕竟天才法师都是徒手挫魔法的
+
+*****
+
+####  lost_恩恩  
+##### 2676#       发表于 2021-11-24 19:54
+
+<blockquote>Siran_China 发表于 2021-11-24 19:16
+发现了点新东西，只能说维克托是真的惨...他的助手其实是他的青梅竹马，他俩小时候就见过
+
+ ...</blockquote>
+其实也说明一个问题，你说上城人对下层人有多压迫也谈不上，更多的是看不上，无视，以及傲慢，两人都进了上城学府，只是没人给投资
+
+*****
+
+####  晨风零雨426  
+##### 2677#       发表于 2021-11-24 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678687&amp;ptid=2002246" target="_blank">hallowilliam 发表于 2021-11-24 13:26</a>
+
+别管什么评分了。。。
+
+昨天看到一个投票，选Arcane里最喜欢的角色，双选，我犹豫了半天居然想不出哪两个角 ...</blockquote>
+我个人觉得和互联网的舆论压抑氛围高度相关（各种不能说的ZZZQ），最后导致依然有发言意愿的人中很多都是被高度驯化的口号墙头草。
+
