@@ -811,3 +811,60 @@ https://m.douban.com/group/topic/253652207/  这篇44万磅 不过偏远吧 �
 
 <img src="https://img.saraba1st.com/forum/202111/24/124132ed55fkeqapspmgae.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寂寞羽化  
+##### 85#       发表于 2021-11-24 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53673102&amp;ptid=2039029" target="_blank">AraTurambar 发表于 2021-11-24 01:11</a>
+
+支持电击实在无法可想。
+
+我也认为Trans运动不乏魔怔之处，批评也是合理的。</blockquote>
+辟谣了很多遍了，罗琳没有支持电击，她点赞的是讲对于未成年Trans，不能滥用激素药物。因为现在欧美不少医生，只要未成年人自称Trans，就开给他们改变性征的激素药物。罗琳觉得这是不对的。
+
+*****
+
+####  寂寞羽化  
+##### 86#       发表于 2021-11-24 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677800&amp;ptid=2039029" target="_blank">今晚吃啥 发表于 2021-11-24 12:17</a>
+
+六月份的时候点赞了一个反对加拿大将电击治疗跨性别/同性恋列为非法的推，之后还解释了说自己反对电击扭 ...</blockquote>
+点赞的是反对未成年人滥用变性药物，根本和电击没关系。罗琳的笔名是13年起的，这个电击疗法是那个人19年开创的，罗琳还有预知能力？
+
+*****
+
+####  sheshiro  
+##### 87#       发表于 2021-11-24 12:58
+
+girls（薛定谔）害girl
+
+*****
+
+####  田黄石  
+##### 88#       发表于 2021-11-24 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676827&amp;ptid=2039029" target="_blank">古代人皮克 发表于 2021-11-24 11:15</a>
+她支持TERF啊
+
+或者说真女权不支持TERF才有问题好吧 凭什么穿个女装割个篮子（或者没割） ...</blockquote>
+问题是在舆论上，我看到jk罗琳在被单方面群殴，连哈利波特的演员也没几个敢声援。
+到了这份上，我觉得jk罗琳该学会闭嘴了
+
+*****
+
+####  悲叹的夜想曲  
+##### 89#       发表于 2021-11-24 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年恰了LGBT的饭，现在孽力反噬了就石砸狗叫了
+
+*****
+
+####  钞君  
+##### 90#       发表于 2021-11-24 13:03
+
+一个99年就死掉的人在19年开创电击疗法？？？
+

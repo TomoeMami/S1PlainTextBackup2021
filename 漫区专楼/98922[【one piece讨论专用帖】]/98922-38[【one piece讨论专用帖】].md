@@ -7963,3 +7963,26 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 由手机上传
 2021-11-24 12:39 上传
 
+
+
+*****
+
+####  盛世孤篇  
+##### 56113#       发表于 2021-11-24 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678027&amp;ptid=98922" target="_blank">tyauto 发表于 2021-11-24 12:39</a>
+
+原来索隆之前一直藏着自己的霸王色</blockquote>
+索隆两年后一直是装逼状态<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 56114#       发表于 2021-11-24 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单行本一百卷的标题是霸王色
+
+封面是路飞艾斯大和索隆三治 除了三治都是已知霸王色
+
+三治是不在也有机会安排下
+
