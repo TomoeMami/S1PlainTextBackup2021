@@ -12264,3 +12264,47 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 讲真，我觉得这家工作室可以收购
 后续要做的东西多了去了，拳头自家那个cg水平有点不够用
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2664#       发表于 2021-11-24 18:23
+
+<blockquote>ammk 发表于 2021-11-24 18:14
+讲真，我觉得这家工作室可以收购
+
+后续要做的东西多了去了，拳头自家那个cg水平有点不够用 ...</blockquote>
+其实拳头自家也有好作品，比如给亲女儿做的这部【英雄联盟 官方动画《安妮: 起源 (ANNIE:Origins)》及 幕后的制作故事-哔哩哔哩】https://b23.tv/qtEm6aq
+
+今天听了个电台才知道，当初梦工厂解散，拳头趁机招了一帮大手子，还是有点东西的
+
+*****
+
+####  Freakyyu  
+##### 2665#       发表于 2021-11-24 18:24
+
+今年最遗憾的就是塔利斯议员没有冠军皮肤<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">要是DK夺冠的话希望还大点，EDG夺冠那九成是男枪了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lost_恩恩  
+##### 2666#       发表于 2021-11-24 18:28
+
+<blockquote>lost_恩恩 发表于 2021-11-24 18:23
+其实拳头自家也有好作品，比如给亲女儿做的这部【英雄联盟 官方动画《安妮: 起源 (ANNIE:Origins)》及 幕 ...</blockquote>
+更正， 不是解散，是缩减人员
+
+*****
+
+####  sandro  
+##### 2667#       发表于 2021-11-24 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53683017&amp;ptid=2002246" target="_blank">Freakyyu 发表于 2021-11-24 18:24</a>
+今年最遗憾的就是塔利斯议员没有冠军皮肤要是DK夺冠的话希望还大点，EDG夺冠那九成是男枪了
+
+——  ...</blockquote>
+芙兰朵那把杰西哪怕中个三炮感觉皮肤都可以了
+

@@ -12176,3 +12176,22 @@ FBF14E81-F469-41E3-8422-DC20452B4221.jpeg
 
 她很多衣服都是国内带过去的，不奇怪了
 
+
+
+*****
+
+####  emmer  
+##### 1101#       发表于 2021-11-24 18:34
+
+勤俭的小偶像，这过于可爱了
+
+*****
+
+####  二月十日  
+##### 1102#       发表于 2021-11-24 18:40
+
+<img src="http://ww1.sinaimg.cn/large/6840fbb0gy1gwqfc73cpgj21520n4jx4.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/6840fbb0gy1gwqfc1chlvj20v91voaj4.jpg" referrerpolicy="no-referrer">
+
+正好看到这个，鲨鱼林也很节约，太般配了8<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+

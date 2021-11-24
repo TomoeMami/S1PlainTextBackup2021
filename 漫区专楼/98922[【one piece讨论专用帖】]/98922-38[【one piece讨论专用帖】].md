@@ -8025,3 +8025,12 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 
 山治无铺垫，索隆有铺垫的
 
+
+
+*****
+
+####  inconolast  
+##### 56119#       发表于 2021-11-24 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正全力吹御田，能不能干脆让御田夺舍绿藻头啊
+
