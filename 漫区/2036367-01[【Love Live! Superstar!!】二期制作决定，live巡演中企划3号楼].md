@@ -12447,3 +12447,52 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 这动画12集处理的人际关系都不如人家1分钟的歌词
 
+
+
+*****
+
+####  ads147147  
+##### 1128#       发表于 2021-11-25 00:31
+
+所以说花田写的什么jb剧本
+
+顺便上一个唱超越友情的，就是步梦女士的夢への一歩：
+
+友達とか親友を超えた
+我们之间超越友人与亲人的感情
+切磋琢磨できる「仲間」さ
+正为切磋琢磨共进的“伙伴”啊
+
+这个啊，假药造起来。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  笋狐  
+##### 1129#       发表于 2021-11-25 00:32
+
+ 本帖最后由 笋狐 于 2021-11-25 00:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我书读得少，你给翻译翻译：什么叫<strong>超越朋友</strong>的感情啊？配合歌词看前几话恋的举动简直笑拉了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">然后动画里就被花田大师把人设毁得惨不忍睹
+
+*****
+
+####  秋月艾莉  
+##### 1130#       发表于 2021-11-25 00:42
+
+ 本帖最后由 秋月艾莉 于 2021-11-25 00:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是很契合动画吗，没好好说几句，仿佛合不来，转头就超越友情了（指恋恋
+
+还不如靠一句かもね看个未来可期
+
+*****
+
+####  优妮可  
+##### 1131#       发表于 2021-11-25 00:44
+
+可恋这歌词好顶啊
+

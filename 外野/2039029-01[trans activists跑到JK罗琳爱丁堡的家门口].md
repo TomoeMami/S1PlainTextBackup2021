@@ -1514,3 +1514,31 @@ Zz正确之力，借用一下？！
 有个问题，她能现在收回所有的hp相关ip么</blockquote>
 现在的HP活动居然都好意思直接声明不邀请她
 
+
+
+*****
+
+####  语文j教师  
+##### 145#       发表于 2021-11-25 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53670292&amp;ptid=2039029" target="_blank">儛進 发表于 2021-11-23 21:02</a>
+
+跨跨这么威胁人家女人干嘛呢？她可是你们自以为的同性呢？！ ...</blockquote>
+婚驴是哪个性别发明的词语，又是形容哪个性别的？
+
+爹妈都可以不要，说开除你就开除你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  语文j教师  
+##### 146#       发表于 2021-11-25 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681470&amp;ptid=2039029" target="_blank">古代人皮克 发表于 2021-11-24 16:32</a>
+
+和男有关的性少数群体屁事特别多 不是因为男性特权这帮子人哪闹的起来？
+
+ftm和拉拉哪有这么多逼 ...</blockquote>
+你觉得少是因为你接触的少。
+
+数量一多你再看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
