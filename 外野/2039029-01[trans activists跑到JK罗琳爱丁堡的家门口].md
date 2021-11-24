@@ -574,3 +574,12 @@ https://m.douban.com/group/topic/253652207/  这篇44万磅 不过偏远吧 �
 支持电击是啥</blockquote>
 点击治疗夸夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  量子大蛇  
+##### 64#       发表于 2021-11-24 10:36
+
+上版本大神玩家没有跟上这个版本的输出思路啊，可惜进的是个PVP服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

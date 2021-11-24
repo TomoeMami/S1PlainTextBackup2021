@@ -14981,3 +14981,14 @@ nga看到的
 有个说法是之前没有完成过expedition才行，和上周的showcase差不多，不过上周那个如果完成过的话可以主动 ...</blockquote>
 看了下，确实要没打过的才算，但是大部分人应该都做了。下一个日常好像是要打一个故事章节才行，怕不是也是没打过的才算<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  马僧虔  
+##### 1360#       发表于 2021-11-24 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53673940&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-24 03:59</a>
+有个说法是之前没有完成过expedition才行，和上周的showcase差不多，不过上周那个如果完成过的话可以主动 ...</blockquote>
+弱智中的弱智啊……
+

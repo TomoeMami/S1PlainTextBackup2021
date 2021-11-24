@@ -11564,3 +11564,15 @@ Reddit上有人爆料连同宣发 双城经费花了2亿美金</blockquote>
 梅尔老妈点的小白脸好像是底城鸡院里的那个面具男吧</blockquote>
 是的，项链一样
 
+
+
+*****
+
+####  厄神之息  
+##### 2604#       发表于 2021-11-24 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672173&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-23 23:35</a>
+
+多谢，那我得去看看。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不知道是不是，动画也没明说，也没有相关表示，不喜欢嗑cp的是看不出来是不是姬佬的。
+
