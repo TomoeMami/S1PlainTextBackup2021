@@ -12308,3 +12308,22 @@ t1ceo亲近辟谣了<img src="https://static.saraba1st.com/image/smiley/face2017
 ——  ...</blockquote>
 芙兰朵那把杰西哪怕中个三炮感觉皮肤都可以了
 
+
+
+*****
+
+####  飞升之后  
+##### 2668#       发表于 2021-11-24 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53682494&amp;ptid=2002246" target="_blank">彩虹肥宅 发表于 2021-11-24 17:44</a>
+
+给整个源计划的大电影吧</blockquote>
+源计划主要是四期拉跨了。。。皮肤宇宙还是星守综合质量最高
+
+*****
+
+####  十点半  
+##### 2669#       发表于 2021-11-24 18:54
+
+有没有把“Arcane”读成“茜”的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+

@@ -8034,3 +8034,15 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正全力吹御田，能不能干脆让御田夺舍绿藻头啊
 
+
+
+*****
+
+####  fmchar  
+##### 56120#       发表于 2021-11-24 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53683162&amp;ptid=98922" target="_blank">inconolast 发表于 2021-11-24 18:36</a>
+
+反正全力吹御田，能不能干脆让御田夺舍绿藻头啊</blockquote>
+绿藻头迟早是三把黑刀在手的天下第一剑客，干嘛要御田代打
+
