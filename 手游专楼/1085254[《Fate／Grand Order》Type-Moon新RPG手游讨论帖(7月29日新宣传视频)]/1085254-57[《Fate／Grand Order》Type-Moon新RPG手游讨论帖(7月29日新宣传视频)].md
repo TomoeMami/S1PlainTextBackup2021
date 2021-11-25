@@ -5644,3 +5644,14 @@ NMD两单沉了
 
 2.65出太公望？
 
+
+
+*****
+
+####  khxooo  
+##### 84508#       发表于 2021-11-25 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53697092&amp;ptid=1085254" target="_blank">zakki 发表于 2021-11-25 17:34</a>
+2.65出太公望？</blockquote>
+哪里来的情报？给个链接？
+

@@ -2875,3 +2875,32 @@ vd串流是不是占用资源比airlink小很多？</blockquote>
 
 周四了，oculus商店依旧没有要打折的意思
 
+
+
+*****
+
+####  bypass  
+##### 186#         楼主| 发表于 2021-11-25 17:59
+
+<blockquote>hikari0805 发表于 2021-11-25 07:53
+周四了，oculus商店依旧没有要打折的意思</blockquote>
+还早
+
+<img src="https://img.saraba1st.com/forum/202111/25/175908jz484h2tp11piwrp.png" referrerpolicy="no-referrer">
+
+<strong>6294F0A0-A084-4AF2-B51E-CC2100C67A6E.png</strong> (254.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-25 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/175908wq1w1vg1mt13owqu.png" referrerpolicy="no-referrer">
+
+<strong>C4622671-F980-4EE8-A422-7B3B662476FF.png</strong> (240.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-11-25 17:59 上传
+
