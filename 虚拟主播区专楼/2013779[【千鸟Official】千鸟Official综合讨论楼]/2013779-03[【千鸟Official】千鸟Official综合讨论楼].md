@@ -75,3 +75,22 @@ syl 文静在一楼，其他几个都在二楼，其实真听不到文静在那�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  tn_teana  
+##### 3008#       发表于 2021-11-26 01:09
+
+新麦收音太好了，王木木测试玩手机都能听见
+快进到听到直播员放屁<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  夜潇箫  
+##### 3009#       发表于 2021-11-26 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">快进到听到上厕所的声音
+
