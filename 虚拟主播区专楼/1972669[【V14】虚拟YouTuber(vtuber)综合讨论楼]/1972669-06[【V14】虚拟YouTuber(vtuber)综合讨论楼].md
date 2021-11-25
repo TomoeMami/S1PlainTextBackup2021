@@ -14459,3 +14459,19 @@ yqqx虽然不是什么坏人，但实在太yhm了
 
 原来oreapo昨晚到今天不止私下apex排位上分还玩valo了啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8602#       发表于 2021-11-25 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53689499&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-11-25 09:29</a>
+
+好像还和一期生联动撞了，千都不一定会去，估计这次你虹应该很难去捧场了
+
+另外发现夜见直播做的日程表， ...</blockquote>
+都不去CR挺好的，叶之前就不想去apex比赛了，king十二月收录很多希望也别捧场了...主播烦观众也觉得没啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+突然发现yorumi同期两人都主流出道了...不过SMC感觉关系挺好，虽然没生日联动了其它活动也应该可以照旧
+

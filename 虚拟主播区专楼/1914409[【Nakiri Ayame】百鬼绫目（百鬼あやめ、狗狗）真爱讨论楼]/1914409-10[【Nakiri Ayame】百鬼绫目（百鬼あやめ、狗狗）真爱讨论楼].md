@@ -177,3 +177,16 @@ EN作用也就那样吧
 
 十二月十三日是生日，意味着三周以内一定有一次直播<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一仙  
+##### 13520#       发表于 2021-11-25 17:01
+
+一周一条推
+
+感觉百鬼众已经放弃思考绫究竟在干什么了，总之全肯定<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+这就是摆烂主播的摆烂粉丝的样子吧<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
