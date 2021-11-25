@@ -3340,3 +3340,43 @@ syl她那么倔强又那么温柔，唉......
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  sanlow666  
+##### 257#         楼主| 发表于 2021-11-25 14:06
+
+乃琳Queen:[转发动态](https://t.bilibili.com/596921980798986399)
+分享视频
+@馒馒x:
+----
+【A-SOUL/乃琳】《舒伯特玫瑰》 乃琳和我合唱啦！
+欢迎来到馒馒的花园堡垒~
+@A-SOUL_Official @乃琳Queen 爱你哟~
+乃琳Queen [https://space.bilibili.com/672342685/](https://space.bilibili.com/672342685/)
+
+<img src="https://img.saraba1st.com/forum/202111/25/140526dx617qhm4mbboxoo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 14:05 上传
+
+乃琳Queen:[转发动态](https://t.bilibili.com/596922079587429017)
+
+分享视频
+@天御鳥命:
+----
+【A-SOUL】《舒伯特玫瑰》小合
+临时学的小合
+
+<img src="https://img.saraba1st.com/forum/202111/25/140610e99tg814qz5484xe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (185.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 14:06 上传
+

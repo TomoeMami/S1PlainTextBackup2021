@@ -8115,3 +8115,35 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 由手机上传
 2021-11-25 13:50 上传
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 56127#       发表于 2021-11-25 14:13
+
+好了，铺垫足足一话，回忆杀也放够了
+下一话该到我最喜欢的索隆一刀秒时间了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ceruleancard  
+##### 56128#       发表于 2021-11-25 14:17
+
+ 本帖最后由 ceruleancard 于 2021-11-25 14:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53693958&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2021-11-25 14:13</a>
+
+好了，铺垫足足一话，回忆杀也放够了
+
+下一话该到我最喜欢的索隆一刀秒时间了吧</blockquote>
+想多了，肯定切镜头，起码还有德雷克、雷藏、山治、基德罗、马尔科以藏，硬要算的话，大和、布鲁克、甚平、乔巴这几个人都可以再打打，交代完了才轮得到索隆一刀秒<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkjack  
+##### 56129#       发表于 2021-11-25 14:18
+
+一刀秒不至于，还没弄清种族呢，应该是先破个防。
+
