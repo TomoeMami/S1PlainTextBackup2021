@@ -14080,3 +14080,14 @@ yuhuo焚身，小男友今晚有难了🥵🥵🥵
 
 静瘾犯了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 2994#       发表于 2021-11-25 21:52
+
+我可不可以说文静maybe
+
+看文静后我这几天突然长出两个口腔溃疡，分别在两侧，这几天吃饭太痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+

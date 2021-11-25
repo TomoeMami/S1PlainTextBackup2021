@@ -14497,3 +14497,34 @@ yqqx虽然不是什么坏人，但实在太yhm了
 
 说起来最近这样的事也不少，运营是有在做类似和事佬/妇联那种劝和不劝分的工作吗，那也劝劝我....嘛
 
+
+
+*****
+
+####  poipanchao  
+##### 8605#       发表于 2021-11-25 21:50
+
+彩虹好死！
+
+pina病休了
+
+*****
+
+####  free  
+##### 8606#       发表于 2021-11-25 21:54
+
+ruki真没了，维阿产瓜的速度真是惊人，建议彩虹今后改叫维阿jp
+
+省一楼，看看这篇“世界中にファン5000万人。VTuber「ホロライブ」が急成長する理由”
+
+其实内容没啥好看的，但是yagoo哥哥每次都能摆出这么让人忍俊不禁的pose真的是......
+[https://forbesjapan.com/articles/detail/44507](https://forbesjapan.com/articles/detail/44507)
+
+<img src="https://img.saraba1st.com/forum/202111/25/215424i5bf29fqyq9aaw9u.jpg" referrerpolicy="no-referrer">
+
+<strong>yagoo.jpg</strong> (108.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 21:54 上传
+

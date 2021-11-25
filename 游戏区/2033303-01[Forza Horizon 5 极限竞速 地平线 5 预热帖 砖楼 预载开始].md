@@ -15524,3 +15524,14 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 —— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  920619lqy  
+##### 1404#       发表于 2021-11-25 21:47
+
+<blockquote>半江瑟瑟半江红 发表于 2021-11-25 07:37
+不知道是不是我的错觉，以前3代4代过检查点的黄带时候从外侧稍微刮到一点甚至黄带都不被撞动就算过了，这代 ...</blockquote>
+我体感上觉得FH4的检查点判定应该是比FH5更严格一点，前作我至少要蹭一下，这一作我遇到几次车身和检查点边缘距离将近等于黄条1/4宽还没要我倒带的情况
+
