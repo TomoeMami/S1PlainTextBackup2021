@@ -12775,3 +12775,15 @@ B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，�
 很好奇赛维卡第二季会做出什么，希尔科没了，一只手也没了</blockquote>
 祖安英雄还有好些没出呢 老鼠/炸弹人/厄加特/机器人/蒙多/
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2708#       发表于 2021-11-25 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53691237&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-25 11:05</a>
+
+漫区钓鱼贴最后发展果然是各方抛却体面开始混战了，又想了想自己发的希望两边都克制一下合力沉贴的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我甚至在下盗版的地方看到因为双城吵架的
+
