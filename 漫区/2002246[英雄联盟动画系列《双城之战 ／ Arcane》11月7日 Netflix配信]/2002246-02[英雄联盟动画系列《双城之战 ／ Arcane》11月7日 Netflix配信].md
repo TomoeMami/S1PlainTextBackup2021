@@ -13188,3 +13188,15 @@ edg3连冠我就要弃游了。
 就算梅尔活下来 ，杰斯和维克托怎么办，还没看到维克托光荣进化后的样子就这么便当了真的大丈夫 ？[f:067 ...</blockquote>
 恰恰相反，首当其冲挨了这一炮的梅尔反而应该是很难活下来吧，其他人因为大部分伤害被梅尔吃了，倒是生存概率变高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  消失的八月  
+##### 2744#       发表于 2021-11-25 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53699771&amp;ptid=2002246" target="_blank">不能曰的秘密 发表于 2021-11-25 20:41</a>
+
+炸弹都到脸上了怎么逃生，闪现吗</blockquote>
+亚索传过来给个风墙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
