@@ -12550,3 +12550,44 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 可恋!可恋!
 
+
+
+*****
+
+####  saya1892  
+##### 1137#       发表于 2021-11-25 09:27
+
+这句台词突然别有深意了起来<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/25/092655gdderuyi9dfii58o.png" referrerpolicy="no-referrer">
+
+<strong>0.png</strong> (72.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 09:26 上传
+
+*****
+
+####  仟音一心  
+##### 1138#       发表于 2021-11-25 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53687454&amp;ptid=2036367" target="_blank">笋狐 发表于 2021-11-25 00:32</a>
+我书读得少，你给翻译翻译：什么叫超越朋友的感情啊？配合歌词看前几话恋的举动简直笑拉了
+
+ ...</blockquote>
+可恋几乎没有互动吧？除了开始的反对学园偶像和后面的一句“恋恋”。
+星无佬不得不P图才能让恋加入诱惑就是证明。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 1139#       发表于 2021-11-25 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53689569&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-11-25 09:33</a>
+
+可恋几乎没有互动吧？除了开始的反对学园偶像和后面的一句“恋恋”。
+
+星无佬不得不P图才能让恋加入诱惑就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请结合歌词“从相遇的那天起，我就只关注着你”分析恋1-3话举动的深意（8分）
+

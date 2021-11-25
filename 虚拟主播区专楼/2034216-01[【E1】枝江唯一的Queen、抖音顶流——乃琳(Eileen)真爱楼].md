@@ -3284,3 +3284,22 @@ syl她那么倔强又那么温柔，唉......
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lqd1984  
+##### 252#       发表于 2021-11-25 09:44
+
+乃宝究竟是因为可爱而倔强呢？还是倔强而可爱？
+
+*****
+
+####  勾陈一  
+##### 253#       发表于 2021-11-25 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688045&amp;ptid=2034216" target="_blank">别叫我宅男 发表于 2021-11-25 02:12</a>
+
+因为楼主很勤奋，赞赏</blockquote>
+楼主勤奋建设是一回事，但是楼里有好多基本不在A楼出没的奶淇琳那就是另一回事了
+
