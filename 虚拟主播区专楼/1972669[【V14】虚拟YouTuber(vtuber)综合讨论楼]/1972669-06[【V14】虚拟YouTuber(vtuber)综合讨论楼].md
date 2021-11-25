@@ -14537,3 +14537,13 @@ ruki真没了，维阿产瓜的速度真是惊人，建议彩虹今后改叫维�
 
 最近沉迷皇女的原神了，虽然这游戏我自己玩了会就删了，看她直播云起来却这么有意思，从游玩风格到个人偏好、从吐槽自演到理解分析，几乎完美符合我的需求<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 8608#       发表于 2021-11-26 00:57
+
+HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 】
+[https://mega.nz/folder/aBdCHJxD#cOljnumSQuRNcCsO92pE7Q](https://mega.nz/folder/aBdCHJxD#cOljnumSQuRNcCsO92pE7Q)
+

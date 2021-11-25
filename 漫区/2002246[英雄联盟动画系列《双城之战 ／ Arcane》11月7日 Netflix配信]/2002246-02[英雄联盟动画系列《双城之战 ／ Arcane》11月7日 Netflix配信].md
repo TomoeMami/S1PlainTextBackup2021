@@ -13248,3 +13248,24 @@ edg3连冠我就要弃游了。
 
 如果梅尔人气反馈足够高的话，也许会被做成新英雄免于一死...
 
+
+
+*****
+
+####  飞升之后  
+##### 2749#       发表于 2021-11-26 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53702689&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-25 23:47</a>
+
+啊这，哪里有完整版？</blockquote>
+当然是TX狗比的QQ音乐阿
+
+*****
+
+####  qxs  
+##### 2750#       发表于 2021-11-26 00:58
+
+<blockquote>Siran_China 发表于 2021-11-25 23:47
+啊这，哪里有完整版？</blockquote>
+b站号拳头游戏音乐也可以听
+
