@@ -12811,3 +12811,57 @@ B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，�
 
 那个帖里有没有真的日漫痴我不清楚，但是漫区是真有不少日漫痴认死理觉得不论国漫还是欧美都是垃圾的
 
+
+
+*****
+
+####  银枪子龙  
+##### 2711#       发表于 2021-11-25 14:53
+
+这次没法一转农批，只能撒泼了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lost_恩恩  
+##### 2712#       发表于 2021-11-25 14:56
+
+<img src="https://img.saraba1st.com/forum/202111/25/145532i33dgcqj11m1x3m6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211125_145450_tv.danmaku.bili.jpg</strong> (93.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 14:55 上传
+
+可惜，有的无人声也不错的
+
+*****
+
+####  战场公主希维尔  
+##### 2713#       发表于 2021-11-25 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53692377&amp;ptid=2002246" target="_blank">文文情报屋 发表于 2021-11-25 12:14:55</a>
+面对飞弹，梅尔嗖的一下飞上了天空
+
+“不装了，其实爷是潘森”</blockquote>蕾安娜不要我了，凯瑟琳不要你了。我们在一起！
+
+警惕瓦罗兰女同<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Cybellybanana  
+##### 2714#       发表于 2021-11-25 15:01
+
+不知道这算不算你们说的ost
+
+image.png
+(130.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 15:01 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/150126dn59y4hpphmwpzcy.png" referrerpolicy="no-referrer">
+

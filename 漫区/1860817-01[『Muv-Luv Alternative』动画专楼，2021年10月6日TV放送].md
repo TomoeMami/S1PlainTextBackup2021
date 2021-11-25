@@ -20497,3 +20497,14 @@ CARNELIAN先生
 
 原作有暗示是被洗 脑的，自己也不知道自己为什么会扣下扳机
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1439#       发表于 2021-11-25 14:53
+
+这集还行吧，天台对话那段氛围感挺足的
+
+然后又回去过了一遍游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
