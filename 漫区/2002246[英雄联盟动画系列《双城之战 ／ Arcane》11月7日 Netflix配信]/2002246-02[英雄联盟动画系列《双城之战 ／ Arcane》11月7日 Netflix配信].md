@@ -12712,3 +12712,66 @@ B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">漫区钓鱼贴最后发展果然是各方抛却体面开始混战了，又想了想自己发的希望两边都克制一下合力沉贴的建议没人理的情况，我现在是十分能理解大头屡次提出正确建议都被人无视最后还被议会踢了的心情了。
 
+
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2702#       发表于 2021-11-25 12:04
+
+<blockquote>厄神之息 发表于 2021-11-25 11:05
+漫区钓鱼贴最后发展果然是各方抛却体面开始混战了，又想了想自己发的希望两边都克制一下合力沉贴的 ...</blockquote>
+某种意义上钓鱼帖那楼被吊上的人证明了，那帖可能不是在钓鱼而是在说实话……
+
+*****
+
+####  emeab  
+##### 2703#       发表于 2021-11-25 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53684008&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-24 19:54</a>
+
+其实也说明一个问题，你说上城人对下层人有多压迫也谈不上，更多的是看不上，无视，以及傲慢，两人都进了 ...</blockquote>
+ 也没多压迫 就是不给你资源. 就算你天赋好/运气好 进入了上城 也会受到各种歧视. 而且皮城把垃圾都排放到下城就知道了. 下城的污染也不都是微光带来的. 你看维克托就是典型
+
+*****
+
+####  文文情报屋  
+##### 2704#       发表于 2021-11-25 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53690871&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-25 10:46</a>
+
+不是有人分析梅尔身上很多巨神峰元素，可能梅尔的的父亲一系是巨神峰重要人物。。。她妈杀死的那个女王也像 ...</blockquote>
+面对飞弹，梅尔嗖的一下飞上了天空
+
+“不装了，其实爷是潘森”<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有优越感的人mk2  
+##### 2705#       发表于 2021-11-25 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53691237&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-11-25 11:05</a>
+
+漫区钓鱼贴最后发展果然是各方抛却体面开始混战了，又想了想自己发的希望两边都克制一下合力沉贴的 ...</blockquote>
+我一开始是真觉得奇怪，在漫区不应该都是动画爱好者吗，这级别的动画大家一起享受作品不好吗，只能说有人对riot天生有巨大的敌意，再看那个贴第一页的几个刀楼炖屎爱好者和小号在那唱双簧，我就理解了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  emeab  
+##### 2706#       发表于 2021-11-25 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53680220&amp;ptid=2002246" target="_blank">灼眼的夏娜酱 发表于 2021-11-24 15:09</a>
+
+游戏世界观里有人物的后续剧情吗，还是说动画基本独立，游戏里没什么剧情。 ...</blockquote>
+动画基本上和游戏完全改变过了. 而最后一版的jinx 和 VI 的剧情 是刚刚好和动画开始做的时间差不多. 而且很碎片化. 很难说拳头会不会吃书
+
+*****
+
+####  emeab  
+##### 2707#       发表于 2021-11-25 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53676837&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-24 11:15</a>
+
+很好奇赛维卡第二季会做出什么，希尔科没了，一只手也没了</blockquote>
+祖安英雄还有好些没出呢 老鼠/炸弹人/厄加特/机器人/蒙多/
+
