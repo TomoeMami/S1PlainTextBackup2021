@@ -8074,3 +8074,19 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 
 索隆两年后太安逸了，一直缺这样一场突破的战斗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saturnus  
+##### 56123#       发表于 2021-11-25 12:27
+
+详细情报还是挺燃的，最近涉及索山的两话节奏都很棒，感觉不像是WT亲自画的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盛世孤篇  
+##### 56124#       发表于 2021-11-25 12:39
+
+这一段更多是回忆小时候的道场吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

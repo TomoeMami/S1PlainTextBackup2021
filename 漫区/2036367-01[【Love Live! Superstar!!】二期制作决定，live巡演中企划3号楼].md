@@ -12682,3 +12682,16 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 2021-11-25 12:06 上传
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1145#       发表于 2021-11-25 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是S2继续有可可救千/恋的剧情那就正式可以宣布Liella确立了以两巨头为中心的领导体系了
+
+不过我觉得最该拉娘配的还是千恋+堇恋，目前人气+剧情定位的后三人，这样每个人就都有两组CP，刚刚好
+
+（拉完以后再把可香再推推，舒服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
