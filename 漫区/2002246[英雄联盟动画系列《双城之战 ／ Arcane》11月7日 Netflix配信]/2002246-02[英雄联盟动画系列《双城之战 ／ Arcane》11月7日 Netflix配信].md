@@ -12787,3 +12787,27 @@ B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，�
 漫区钓鱼贴最后发展果然是各方抛却体面开始混战了，又想了想自己发的希望两边都克制一下合力沉贴的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我甚至在下盗版的地方看到因为双城吵架的
 
+
+
+*****
+
+####  vmon  
+##### 2709#       发表于 2021-11-25 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53692392&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-11-25 12:15</a>
+
+我一开始是真觉得奇怪，在漫区不应该都是动画爱好者吗，这级别的动画大家一起享受作品不好吗，只能说有人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">刀刀一般声音都比较大，然后今年因为被颠勺了所以声音比往年都大的多，正常。
+
+*****
+
+####  tewaku  
+##### 2710#       发表于 2021-11-25 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53692392&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-11-25 12:15</a>
+
+我一开始是真觉得奇怪，在漫区不应该都是动画爱好者吗，这级别的动画大家一起享受作品不好吗，只能说有人 ...</blockquote>
+你要知道漫区有不少人看见欧美就ptsd，直白点说就是在漫区欧美系是小众
+
+那个帖里有没有真的日漫痴我不清楚，但是漫区是真有不少日漫痴认死理觉得不论国漫还是欧美都是垃圾的
+

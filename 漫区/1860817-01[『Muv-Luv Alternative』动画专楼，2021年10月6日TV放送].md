@@ -20484,3 +20484,16 @@ CARNELIAN先生
 
 美国黑屁完整地展现了，这下对“英语吃屎”剧情更加期待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOPKOM  
+##### 1438#         楼主| 发表于 2021-11-25 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53692035&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-25 11:55</a>
+
+看下来，和漫画剧情基本一致啊，尤其是月咏阐述真正的美国时。另外小珠爸爸立场没变。沙雾宣讲只有一个头像 ...</blockquote>
+
+原作有暗示是被洗 脑的，自己也不知道自己为什么会扣下扳机
+
