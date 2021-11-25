@@ -20471,3 +20471,16 @@ CARNELIAN先生
 
 看gal改就是折磨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1437#       发表于 2021-11-25 11:55
+
+看下来，和漫画剧情基本一致啊，尤其是月咏阐述真正的美国时。另外小珠爸爸立场没变。沙雾宣讲只有一个头像还是差了点，以为会像cg一样做点动作。
+
+和漫画一样，把内鬼故意射击做出来了。但被揍的士兵却是一脸懵逼，本以为应该是一脸坏笑的（毕竟目的达到了）
+
+美国黑屁完整地展现了，这下对“英语吃屎”剧情更加期待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
