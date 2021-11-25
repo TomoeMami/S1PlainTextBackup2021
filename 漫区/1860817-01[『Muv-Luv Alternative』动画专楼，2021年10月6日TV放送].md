@@ -20462,3 +20462,12 @@ CARNELIAN先生
 
 攒了几话一起看，感觉男主好憨啊草，明明是二周目了，感觉还是像个愣头青23333话说这个两个世界到底怎么个运作原理，男主在beta存在的世界的时候，原世界的自己呢
 
+
+
+*****
+
+####  球獭  
+##### 1436#       发表于 2021-11-25 11:45
+
+看gal改就是折磨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
