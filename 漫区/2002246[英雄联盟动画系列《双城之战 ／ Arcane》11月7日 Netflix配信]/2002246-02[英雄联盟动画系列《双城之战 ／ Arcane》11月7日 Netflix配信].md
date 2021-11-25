@@ -12582,3 +12582,15 @@ B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，�
 https://www.bilibili.com/video/BV1A44y1e7yf?spm_id_from=444.41.0.0【英雄联盟】开发者日志：《双城之战 ...</blockquote>
 好家伙 ，做MV有瘾，必须每集都安排一段是吧
 
+
+
+*****
+
+####  银枪子龙  
+##### 2691#       发表于 2021-11-25 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688181&amp;ptid=2002246" target="_blank">佛剑分说 发表于 2021-11-25 03:04</a>
+
+B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，可怕</blockquote>
+正能量神曲，看到一个假面骑士的版本，很搭
+

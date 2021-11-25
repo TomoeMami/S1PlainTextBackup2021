@@ -14380,3 +14380,28 @@ Movie：まきのせな
 
 另外发现夜见直播做的日程表，下周四12月2号社长生日夜见写的是solo直播和会限，坚持了两年的smc联动定番也没了，之前夜见杂谈有评论问为什么不拉社长一起玩bio了夜见回得是社长太忙了不好意思去找他，一个想法可能因为主流无敌男团rofmao 的原因smc以后应该是没了，夜见前几天还和博士一起开了很久的会不知道是不是也是因为这个
 
+
+
+*****
+
+####  shpdw  
+##### 8595#       发表于 2021-11-25 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688913&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-11-25 08:39</a>
+
+这里面能算得上偶像的男人一个都没有好吗唯一能和偶像擦点边的是点5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这话的醍醐味就在可以同时套在彩虹男人身上
+
+蛇足怎么不偶像了，蛇足有偶像感最重要的私生活混乱<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 8596#       发表于 2021-11-25 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53689674&amp;ptid=1972669" target="_blank">shpdw 发表于 2021-11-25 09:42</a>
+你这话的醍醐味就在可以同时套在彩虹男人身上
+
+蛇足怎么不偶像了，蛇足有偶像感最重要的私生活混 ...</blockquote>
+我本来想说虹男就不是偶像，但是四周年live的衣服突然出现在脑海里，一下子嗦不粗话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

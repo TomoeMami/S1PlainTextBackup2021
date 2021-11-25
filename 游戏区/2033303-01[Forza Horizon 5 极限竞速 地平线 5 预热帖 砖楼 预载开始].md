@@ -15440,3 +15440,16 @@ FH5 ...</blockquote>
 
 PG：疫情还要做后续内容，我很抠很懒不想招新GM员工或者外包的拉<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  faithlifer  
+##### 1397#       发表于 2021-11-25 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677056&amp;ptid=2033303" target="_blank">大哀之君 发表于 2021-11-24 11:28</a>
+PG你恶事做绝</blockquote>
+pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

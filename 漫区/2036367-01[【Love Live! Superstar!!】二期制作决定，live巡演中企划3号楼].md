@@ -12591,3 +12591,26 @@ TVアニメ「ラブライブ！スーパースター!!」
 星无佬不得不P图才能让恋加入诱惑就 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请结合歌词“从相遇的那天起，我就只关注着你”分析恋1-3话举动的深意（8分）
 
+
+
+*****
+
+####  lj205  
+##### 1140#       发表于 2021-11-25 09:49
+
+请结合广播吃药
+
+
+
+*****
+
+####  仟音一心  
+##### 1141#       发表于 2021-11-25 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53689776&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-25 09:49</a>
+
+请结合广播吃药</blockquote>
+<img src="http://wx4.sinaimg.cn/mw690/4a145404ly1gwlsyzcuxvg20l20c9x6w.gif" referrerpolicy="no-referrer">
+
+那结合live不是更准
+
