@@ -15424,3 +15424,19 @@ FH5重现这些事只能说明t10压根就没改
 
 求问，怎么在两台电脑用一个存档，同一个账号。我另一个电脑下载完打开就是新档
 
+
+
+*****
+
+####  wzy200912345  
+##### 1396#       发表于 2021-11-25 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688550&amp;ptid=2033303" target="_blank">Porsche 发表于 2021-11-25 07:39</a>
+
+看来一些从FH5入坑的新同学不知道FH4时有多少痛车大佬被莫名其妙的封号和被别人作弊解锁复制涂装逼走的
+
+FH5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> tun10：FH我不太管的
+
+PG：疫情还要做后续内容，我很抠很懒不想招新GM员工或者外包的拉<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
