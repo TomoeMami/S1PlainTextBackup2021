@@ -14426,3 +14426,14 @@ Movie：まきのせな
 下不了了，还能再发一次吗</blockquote>
 2L就有
 
+
+
+*****
+
+####  winda  
+##### 8599#       发表于 2021-11-25 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看bora最后的安排表才注意到，自从2434杀企划后小千就没和bora联动过了，直到这回毕业前联动
+
+不知道当初她带bora有没有后悔
+
