@@ -20453,3 +20453,12 @@ CARNELIAN先生
 <img src="https://p.sda1.dev/3/ed54eb450a854d44defb37004bd49bb0/20211125_102205.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/a73625bc49019a20373d590da17c3382/88375b8614253b6f659a6cba65e7b6e0fc6b64ad_619e42caf2402.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 1435#       发表于 2021-11-25 10:34
+
+攒了几话一起看，感觉男主好憨啊草，明明是二周目了，感觉还是像个愣头青23333话说这个两个世界到底怎么个运作原理，男主在beta存在的世界的时候，原世界的自己呢
+
