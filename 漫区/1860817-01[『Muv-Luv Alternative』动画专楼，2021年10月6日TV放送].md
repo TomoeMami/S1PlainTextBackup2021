@@ -20508,3 +20508,15 @@ CARNELIAN先生
 
 然后又回去过了一遍游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hlazd  
+##### 1440#       发表于 2021-11-25 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53690662&amp;ptid=1860817" target="_blank">暗黑能乐 发表于 2021-11-25 10:34</a>
+
+攒了几话一起看，感觉男主好憨啊草，明明是二周目了，感觉还是像个愣头青23333话说这个两个世界到底怎么个 ...</blockquote>
+因为alt前期他仗着自己“知道”得多就表现得很冲很急，等125后开始全新经历就一点点被现实教训了
+

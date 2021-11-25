@@ -12897,3 +12897,19 @@ image.png
 可惜，有的无人声也不错的</blockquote>
 你这表述问题大了，人家可能以为你问的是instrumental版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真正想问的应该是有没有OST
 
+
+
+*****
+
+####  ammk  
+##### 2718#       发表于 2021-11-25 15:28
+
+ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源
+
+*****
+
+####  银枪子龙  
+##### 2719#       发表于 2021-11-25 15:30
+
+网易云11首曲子，只传了5首就停了。。。企鹅我啊，不想给网易面子
+

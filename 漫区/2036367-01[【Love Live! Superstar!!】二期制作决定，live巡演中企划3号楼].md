@@ -12727,3 +12727,15 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 只能说真几把无聊。
 
+
+
+*****
+
+####  ads147147  
+##### 1149#       发表于 2021-11-25 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694765&amp;ptid=2036367" target="_blank">rzrbtk 发表于 2021-11-25 15:10</a>
+
+不过ll系列的双人曲一般也不是明说是在描述两人之间的关系吧，姑且不能算可恋关系认证？除非像misty frosty ...</blockquote>
+双人曲这种两个人都是饰演一个角色去和听众互动的写法，因为不带主语就很像是两人对唱，这种模糊暧昧的感觉也是这种情歌有趣的地方。
+
