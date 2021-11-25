@@ -13229,3 +13229,22 @@ edg3连冠我就要弃游了。
  ...</blockquote>
 网易云的不全
 
+
+
+*****
+
+####  Siran_China  
+##### 2747#       发表于 2021-11-25 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53702646&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-25 23:45</a>
+
+网易云的不全</blockquote>
+啊这，哪里有完整版？
+
+*****
+
+####  beanbeam  
+##### 2748#       发表于 2021-11-25 23:58
+
+如果梅尔人气反馈足够高的话，也许会被做成新英雄免于一死...
+
