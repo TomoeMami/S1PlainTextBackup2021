@@ -15599,3 +15599,30 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 草，一直开A、B级，这S级蛇头就算没人开X级车我也头疼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nemunoki  
+##### 1411#       发表于 2021-11-26 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看红迪的人说吃鸡淘汰了2个人结果不算完成
+
+*****
+
+####  萱时令  
+##### 1412#       发表于 2021-11-26 00:35
+
+蛇头看见x级队友可以直接退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 反正退了剩下的人更好跑 没有任何心理负担
+排第三把看见全员s2后我就知道已经稳了 果然过了 过关挑战赛也凑到5个人漂移过了
+吃鸡苟30还行 看见淘汰两人直接pass 两三分不要了
+
+*****
+
+####  君往何处  
+##### 1413#       发表于 2021-11-26 00:39
+
+服气，感觉网络变得更差了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+我感觉预购顶级版的自己真是个<img src="https://static.saraba1st.com/image/smiley/carton2017/091.gif" referrerpolicy="no-referrer">
+
