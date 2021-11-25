@@ -13162,3 +13162,29 @@ edg3连冠我就要弃游了。
 
 官推上还特意PO出梅尔（衣服内的）黄金装饰发亮的截图问粉丝猜猜这是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不能曰的秘密  
+##### 2742#       发表于 2021-11-25 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53699981&amp;ptid=2002246" target="_blank">whyy 发表于 2021-11-25 20:54</a>
+
+这就是编剧的事情了
+
+官推上还特意PO出梅尔（衣服内的）黄金装饰发亮的截图问粉丝猜猜这是怎么回事 ...</blockquote>
+就算梅尔活下来 ，杰斯和维克托怎么办，还没看到维克托光荣进化后的样子就这么便当了真的大丈夫 ？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这也确实是编剧的事情了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whyy  
+##### 2743#       发表于 2021-11-25 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53700263&amp;ptid=2002246" target="_blank">不能曰的秘密 发表于 2021-11-25 21:12</a>
+
+就算梅尔活下来 ，杰斯和维克托怎么办，还没看到维克托光荣进化后的样子就这么便当了真的大丈夫 ？[f:067 ...</blockquote>
+恰恰相反，首当其冲挨了这一炮的梅尔反而应该是很难活下来吧，其他人因为大部分伤害被梅尔吃了，倒是生存概率变高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
