@@ -12611,3 +12611,63 @@ B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发了这种诱导人往有救的方向想要是梅尔还是死了喷死你们这些staff
 
+
+
+*****
+
+####  文文情报屋  
+##### 2693#       发表于 2021-11-25 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688021&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-25 02:03</a>
+
+所以最早喊爆爆是JINX的是蔚自己</blockquote>
+最早一直是狂鼠哥喊的
+
+不过对爆爆来说狂鼠哥喊就喊了，反正她和狂鼠哥本来就互相看不顺眼
+
+蔚喊那就真是最亲近的人捅心窝了……
+
+*****
+
+####  暗黑能乐  
+##### 2694#       发表于 2021-11-25 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53690675&amp;ptid=2002246" target="_blank">文文情报屋 发表于 2021-11-25 10:35</a>
+
+最早一直是狂鼠哥喊的
+
+不过对爆爆来说狂鼠哥喊就喊了，反正她和狂鼠哥本来就互相看不顺眼
+
+蔚喊那就真是最 ...</blockquote>
+麦罗没说JINX这个词吧
+
+*****
+
+####  Siran_China  
+##### 2695#       发表于 2021-11-25 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53690361&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-25 10:19</a>
+
+发了这种诱导人往有救的方向想要是梅尔还是死了喷死你们这些staff</blockquote>
+还真不是反光啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到巨神峰之力立大功
+
+*****
+
+####  古凌锋  
+##### 2696#       发表于 2021-11-25 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53690711&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-25 10:37</a>
+
+麦罗没说JINX这个词吧</blockquote>
+第一集就说了
+
+*****
+
+####  文文情报屋  
+##### 2697#       发表于 2021-11-25 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53690711&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-25 10:37</a>
+
+麦罗没说JINX这个词吧</blockquote>
+说了，看英文版更清楚一点
+
