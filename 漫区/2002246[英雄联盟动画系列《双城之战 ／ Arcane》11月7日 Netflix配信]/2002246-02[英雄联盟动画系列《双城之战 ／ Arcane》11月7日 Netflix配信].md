@@ -13094,3 +13094,14 @@ ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源</blockquote
 话说🇫🇷人是不是特别钟爱三渲二啊，pptp里一到法国小哥的部分也是三渲二 ...</blockquote>
 严格说并不是三渲二，跟塞尔达那种卡通渲染差别挺大的。
 
+
+
+*****
+
+####  MaskedBlade  
+##### 2736#       发表于 2021-11-25 18:45
+
+ 本帖最后由 MaskedBlade 于 2021-11-25 18:46 编辑 
+
+<img src="https://img.nga.178.com/attachments/mon_202111/25/-39t2Q17d-kdywZkT3cSov-ke.png.medium.jpg" referrerpolicy="no-referrer">编辑
+

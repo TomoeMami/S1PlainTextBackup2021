@@ -3751,3 +3751,19 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 反正新an是老幼组...哪个都没有性趣（
 
+
+
+*****
+
+####  yygundam  
+##### 6278#       发表于 2021-11-25 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696277&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-11-25 16:51</a>
+
+30连只出了打工...没票了
+
+希望这一个月能再囤30连把助手也出了
+
+反正新an是老幼组...哪个都没有性趣 ...</blockquote>
+等等。。。。拆包拆出奶奶了么，这俩当初实装差了10个月呢。
+
