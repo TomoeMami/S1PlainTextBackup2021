@@ -12594,3 +12594,20 @@ https://www.bilibili.com/video/BV1A44y1e7yf?spm_id_from=444.41.0.0【英雄联�
 B站随便刷了刷，《孤勇者》的各种翻唱怕不是有几百支了，可怕</blockquote>
 正能量神曲，看到一个假面骑士的版本，很搭
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2692#       发表于 2021-11-25 10:19
+
+<img src="https://img.saraba1st.com/forum/202111/25/101903u8ll333z338bl8zp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211125101728.png</strong> (32.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 10:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发了这种诱导人往有救的方向想要是梅尔还是死了喷死你们这些staff
+

@@ -20419,3 +20419,37 @@ Q：对初次接触该作品的观众，请介绍一下本作的魅力点。
 
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1434#       发表于 2021-11-25 10:22
+
+━━━━━━━━━━━━━━━
+
+#マブラヴオルタネイティヴ
+
+ ▶︎CARNELIAN先生​​​
+
+━━━━━━━━━━━━━​━━
+
+アニメ放送記念し
+
+CARNELIAN先生
+
+@beni_carnelian
+
+から
+
+イラストとコメントが
+
+到着です！
+
+ありがとうございます。
+
+▶︎コメントはこちら
+[https://muv-luv-alternative-anime.com/news/detail.php?id=1095909](https://muv-luv-alternative-anime.com/news/detail.php?id=1095909)
+<img src="https://p.sda1.dev/3/ed54eb450a854d44defb37004bd49bb0/20211125_102205.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/a73625bc49019a20373d590da17c3382/88375b8614253b6f659a6cba65e7b6e0fc6b64ad_619e42caf2402.jpg" referrerpolicy="no-referrer">
+
