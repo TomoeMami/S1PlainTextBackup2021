@@ -3790,3 +3790,19 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">剧情还挺有意思的，这夜露露还有reading steiner，不知道未罗有没有
 
+
+
+*****
+
+####  yygundam  
+##### 6281#       发表于 2021-11-25 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53698677&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-11-25 19:25</a>
+
+不，拆包我不懂的，我的意思是魔法少女复刻应该就是老幼其中之一吧....
+
+这俩我都不太行所以无所谓 ...</blockquote>
+按顺序说确实是差不多该轮到梓希了。
+
+如果奶奶也一起扔出来就太可怕了。。。看到2UP就头疼。
+

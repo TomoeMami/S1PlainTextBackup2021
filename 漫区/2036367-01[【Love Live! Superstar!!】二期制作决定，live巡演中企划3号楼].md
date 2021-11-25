@@ -13043,3 +13043,176 @@ ringing这歌正棒啊，现场来说，这算不怎么好唱的歌吧。调一�
 
 这场太值了，鲤鱼心里一直有我们
 
+
+
+*****
+
+####  优妮可  
+##### 1185#       发表于 2021-11-25 20:04
+
+<img src="https://img.saraba1st.com/forum/202111/25/200415iew5f2jjeadtitqq.jpg" referrerpolicy="no-referrer">
+
+<strong>20211125_195927.jpg</strong> (568.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:04 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/200415sl5le8e5u1wuuvda.jpg" referrerpolicy="no-referrer">
+
+<strong>20211125_195933.jpg</strong> (574.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:04 上传
+
+*****
+
+####  kata魂  
+##### 1186#       发表于 2021-11-25 20:06
+
+鲤鱼舞台气场越来越强了啊~是好事<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  emmer  
+##### 1187#       发表于 2021-11-25 20:13
+
+<img src="https://img.saraba1st.com/forum/202111/25/201351k935jak3ajjsgpjp.png" referrerpolicy="no-referrer">
+
+<strong>2021-11-25 20-13-38.png</strong> (91.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:13 上传
+
+好帅哦
+
+*****
+
+####  cybernetics31  
+##### 1188#       发表于 2021-11-25 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人都知道是国内偷跑的消息了 看群也说10组也是转发的 。。。。。这么大个字幕组不看官方就转发也是。。。。。。。
+
+*****
+
+####  cybernetics31  
+##### 1189#       发表于 2021-11-25 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53699383&amp;ptid=2036367" target="_blank">emmer 发表于 2021-11-25 20:13</a>
+
+好帅哦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">pay这表情 鱼阿鱼
+
+*****
+
+####  仟音一心  
+##### 1190#       发表于 2021-11-25 20:17
+
+今日份的
+
+74D9FE94-5889-4027-8C4E-A68875BCACD2.jpeg
+(55.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201726t1a58aamtlz6txa6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+817F9A01-E40C-420D-9ED0-4F54A313575B.jpeg
+(47.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201726rkvilxyz22l8n72n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4E905686-5455-4E5D-89EF-C966A228688D.jpeg
+(89.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201726di11vi1rz4jf01if.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0E9BFA76-CA7A-475C-871F-4037E55D87B7.jpeg
+(89.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201727u9q9veg9pitqo9hh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E6CC09EA-9230-46F4-B288-5022B20723B8.jpeg
+(131.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201727muc6ecmx9yvgv6y9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4A38AFAC-6861-49E5-9FD2-F8E883FA03E3.jpeg
+(96.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201727umpcfrc311f9q1r2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FD664DB9-EB38-4AA2-AC93-74315F560618.jpeg
+(292.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201727r14ba7ccguc3g31x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1513919E-133B-4293-924A-19D73869C753.jpeg
+(71.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201727ea5bk6gk69k2kdmt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2F6099A7-3535-47DA-8478-5BEBFFAA5CE3.jpeg
+(208.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201727pp8p7jrdprjnnua4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3134317A-16E7-495D-B40C-34D4E0DAA41A.gif
+(1.36 MB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/201728qotomwttpsatpizl.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1191#       发表于 2021-11-25 20:23
+
+鱼啊 多看看pay吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 1192#       发表于 2021-11-25 20:25
+
+在微博看到🐟最后说中文的切片了，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
