@@ -13148,3 +13148,17 @@ edg3连冠我就要弃游了。
 第八集开头小梅尔提到的给女王用的紧急出口，还有同一集蔚离开议会时cue到的出口，说不定是为结局议会被炮 ...</blockquote>
 炸弹都到脸上了怎么逃生，闪现吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  whyy  
+##### 2741#       发表于 2021-11-25 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53699771&amp;ptid=2002246" target="_blank">不能曰的秘密 发表于 2021-11-25 20:41</a>
+
+炸弹都到脸上了怎么逃生，闪现吗</blockquote>
+这就是编剧的事情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+官推上还特意PO出梅尔（衣服内的）黄金装饰发亮的截图问粉丝猜猜这是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

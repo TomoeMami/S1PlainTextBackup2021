@@ -13239,3 +13239,50 @@ FD664DB9-EB38-4AA2-AC93-74315F560618.jpeg
 
 2021-11-25 20:31 上传
 
+
+
+*****
+
+####  cybernetics31  
+##### 1194#       发表于 2021-11-25 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">追加有一天和隔壁兔的个人1st撞上了。。。。。。。。推上不少在纠结了。。。。
+
+*****
+
+####  chenflyyy  
+##### 1195#       发表于 2021-11-25 20:50
+
+ 本帖最后由 chenflyyy 于 2021-11-25 20:52 编辑 
+
+这场两天16000呢，bd3很难卖到这个数吧（
+bd4抽这场就有点晚了
+
+*****
+
+####  优妮可  
+##### 1196#       发表于 2021-11-25 20:51
+
+<img src="https://img.saraba1st.com/forum/202111/25/205130uedbren1bbe4p3sp.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1637844518468.jpg</strong> (345.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:51 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/205130lhhz0dzy8he68qyq.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1637844521806.jpg</strong> (348.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:51 上传
+
+*****
+
+####  lj205  
+##### 1197#       发表于 2021-11-25 20:52
+
+肯定不止bd3吧？不过现在这商法……真的要榨干了……
+
