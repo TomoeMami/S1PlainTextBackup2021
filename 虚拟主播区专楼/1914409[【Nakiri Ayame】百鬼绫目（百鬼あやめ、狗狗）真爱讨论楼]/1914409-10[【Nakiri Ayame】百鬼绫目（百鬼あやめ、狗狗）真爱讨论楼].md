@@ -257,3 +257,30 @@ EN作用也就那样吧
 
 看推上说内容是不直播的绫总会去当网页设计师草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 13528#       发表于 2021-11-26 02:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破案了，原来绫总平时在学HTML、CSS、JavaScript、php，怪不得一直没空
+
+*****
+
+####  cctvyt1  
+##### 13529#       发表于 2021-11-26 02:30
+
+Q：不是直播主会想做什么
+
+A：网页设计
+
+绫总你还有前端梦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  昆西昆希昆  
+##### 13530#       发表于 2021-11-26 03:12
+
+LOL也没在动。mio呢mio呢？救一下啊！
+

@@ -13494,3 +13494,15 @@ DC33A4BA-51FF-4CA1-94AD-139187570D15.jpeg
 
 <img src="https://img.saraba1st.com/forum/202111/25/234059a6iui52y8v7ifqkk.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 1216#       发表于 2021-11-26 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53700560&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-25 21:37</a>
+
+十连r，真是好久没玩这么令我上火的游戏了</blockquote>
+4个10连，终于出可可UR了，今晚大满足
+

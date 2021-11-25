@@ -13269,3 +13269,36 @@ edg3连冠我就要弃游了。
 啊这，哪里有完整版？</blockquote>
 b站号拳头游戏音乐也可以听
 
+
+
+*****
+
+####  阿刚  
+##### 2751#       发表于 2021-11-26 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53702869&amp;ptid=2002246" target="_blank">beanbeam 发表于 2021-11-25 23:58</a>
+
+如果梅尔人气反馈足够高的话，也许会被做成新英雄免于一死...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她老娘的建模倒是更适合做成英雄
+
+*****
+
+####  佛剑分说  
+##### 2752#       发表于 2021-11-26 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696916&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-25 17:24</a>
+
+话说🇫🇷人是不是特别钟爱三渲二啊，pptp里一到法国小哥的部分也是三渲二 ...</blockquote>
+这个动画不是3渲2阿，超大量场景是不建模不3D的画师平面作画
+
+*****
+
+####  性欲モンスター  
+##### 2753#       发表于 2021-11-26 04:50
+
+刚看完了，能不能别再出现智障狗血老套的夺回装着重要东西的容器但偏偏就是不花几秒时间打开确定东西还在里面反而急着跑开的剧情了？
+
+不单单是这部而已，一堆动画电影影视小说等题材的作者编剧就是喜欢塞这种脑残剧情展开，每一次看到这种剧情展开就觉得编剧作者傻逼。
+
+第二季希望Jinx开场就不得好死，千万别洗白，把宝贵的动画时间留给其他角色们发挥。
+
