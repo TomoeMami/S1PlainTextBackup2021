@@ -20623,3 +20623,17 @@ CARNELIAN先生
 
 一直都没接触这个系列，不怎么了解，随便下了一集除了红衣服那个绿毛其他角色都看不对眼，好像还是个配角来的。
 
+
+
+*****
+
+####  hacisiki  
+##### 1447#       发表于 2021-11-25 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53701414&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-25 22:27</a>
+
+这段讨论的东西更封建国家“君主与臣民的责任与义务”弯弯绕的
+
+这事对应的是unlimited篇里火山避难事件 ...</blockquote>
+其实还有一个暗线：整个帝国陆军在之前的大陆派遣作战和本土防御作战中军纪、士气和训练完全被打崩了。
+

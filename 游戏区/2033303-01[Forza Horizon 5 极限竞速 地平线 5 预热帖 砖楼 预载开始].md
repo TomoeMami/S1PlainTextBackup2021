@@ -15535,3 +15535,12 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 不知道是不是我的错觉，以前3代4代过检查点的黄带时候从外侧稍微刮到一点甚至黄带都不被撞动就算过了，这代 ...</blockquote>
 我体感上觉得FH4的检查点判定应该是比FH5更严格一点，前作我至少要蹭一下，这一作我遇到几次车身和检查点边缘距离将近等于黄条1/4宽还没要我倒带的情况
 
+
+
+*****
+
+####  Totokei  
+##### 1405#       发表于 2021-11-25 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有无限制车辆蛇头的设定，我更加确定fh5运营是傻逼了
+
