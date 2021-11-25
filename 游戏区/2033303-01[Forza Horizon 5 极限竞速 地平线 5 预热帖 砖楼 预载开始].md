@@ -15395,3 +15395,23 @@ FH5重现这些事只能说明t10压根就没改
 需要完成你没有做过的探险，要是之前全都做了就gg了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">被蠢到了
 
+
+
+*****
+
+####  nemunoki  
+##### 1393#       发表于 2021-11-25 08:31
+
+<blockquote>920619lqy 发表于 2021-11-25 07:58
+看了一下steam商店页面，运营成这个样子好评率还能有81%，只能说消费者还是太宽容了。 ...</blockquote>
+这个事情就跟隔壁真香的游戏一样，玩家越核心发现的问题才越多，轻度玩家能进得去游戏瞎开开就完事了，你说这个成就赞赏马拉松什么的谁懂啊
+
+*****
+
+####  Totokei  
+##### 1394#       发表于 2021-11-25 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688850&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-25 08:31</a>
+这个事情就跟隔壁真香的游戏一样，玩家越核心发现的问题才越多，轻度玩家能进得去游戏瞎开开就完事了，你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">至少感觉FH4的数值设定上没有那么离谱，每日任务和arcade前身forzathon live只要不断线也很好完成
+
