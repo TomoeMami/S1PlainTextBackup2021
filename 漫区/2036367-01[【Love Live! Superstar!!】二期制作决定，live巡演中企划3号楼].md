@@ -12784,3 +12784,49 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 这个场多大？追加应该就是bd3抽吧
 
+
+
+*****
+
+####  lj205  
+##### 1155#       发表于 2021-11-25 16:29
+
+吃相太难看了
+
+*****
+
+####  秋月艾莉  
+##### 1156#       发表于 2021-11-25 16:31
+
+噢看到信源了编辑了
+
+*****
+
+####  chenflyyy  
+##### 1157#       发表于 2021-11-25 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53695692&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-25 16:16</a>
+这个场多大？追加应该就是bd3抽吧</blockquote>
+8000，估计bd4也抽这个
+
+*****
+
+####  iuhehc  
+##### 1158#       发表于 2021-11-25 16:36
+
+8000人场ガーデンシアター昂
+
+*****
+
+####  寒风夜  
+##### 1159#       发表于 2021-11-25 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">整不会了，不如只在这搞一场
+
+*****
+
+####  蜜梨柑  
+##### 1160#       发表于 2021-11-25 16:41
+
+怎么得到的消息，图还挺真的，不会真的有舅舅吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

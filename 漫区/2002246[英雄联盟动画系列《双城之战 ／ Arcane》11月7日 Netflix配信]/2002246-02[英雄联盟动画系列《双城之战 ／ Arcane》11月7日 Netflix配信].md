@@ -12943,3 +12943,67 @@ ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源
 ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">就不能学学日本那变边，卖碟，周边都搞起来么，艾克的那个表就不错啊！
 
+
+
+*****
+
+####  ammk  
+##### 2722#       发表于 2021-11-25 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53695768&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-25 16:20</a>
+
+就不能学学日本那变边，卖碟，周边都搞起来么，艾克的那个表就不错啊！ ...</blockquote>
+官方的手办周边可以等等看，国内的跟进速度不是很快
+
+*****
+
+####  ooohaoguai2  
+##### 2723#       发表于 2021-11-25 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53695352&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-25 15:56</a>
+
+艾克英配，可以的。。</blockquote>
+艾克在美国已经被 CIA 冲进屋里乱枪打死了
+
+*****
+
+####  Siran_China  
+##### 2724#       发表于 2021-11-25 16:35
+
+楚雨荨的拳套，小蛋糕的步枪，杰斯的大锤子，还有大头本人，都可以出周边嘛
+
+*****
+
+####  新的起源  
+##### 2725#       发表于 2021-11-25 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53695352&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-25 15:56:22</a>
+艾克英配，可以的。。</blockquote>这动画没有强调肤色人种，用一种很高级的方式表达zzzq，大家都很接受
+
+结果这cv一上来就表达身份政治，太low了
+
+关键是外面还没人敢批评他
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  弗林蒂萨  
+##### 2726#       发表于 2021-11-25 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">周边有啊，淘宝就有旗舰店，不过不是这次动画专门用商品，我估计你们看了也没啥想买的
+
+另外说一句，炸弹人的手办是真不错
+
+*****
+
+####  银枪子龙  
+##### 2727#       发表于 2021-11-25 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696169&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-11-25 16:43</a>
+
+这动画没有强调肤色人种，用一种很高级的方式表达zzzq，大家都很接受
+
+结果这cv一上来就表达身份政治，太lo ...</blockquote>
+这么想也是，异世界还要强调肤色就很没意思
+
