@@ -3715,3 +3715,26 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 出了俩助手，单抽到活动结束了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alialex  
+##### 6274#         楼主| 发表于 2021-11-25 15:08
+
+有一说一这次三星联动角色好敷衍。居然穿制式战斗服整的跟一星似的
+
+*****
+
+####  江戸前ルナ  
+##### 6275#       发表于 2021-11-25 15:09
+
+拍照模式开了，有泳池！！！<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 6276#       发表于 2021-11-25 15:17
+
+某踩单车GIF估计会产生大量阿噶特色沙雕图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

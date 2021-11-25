@@ -12865,3 +12865,35 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202111/25/150126dn59y4hpphmwpzcy.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2715#       发表于 2021-11-25 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694615&amp;ptid=2002246" target="_blank">Cybellybanana 发表于 2021-11-25 15:01</a>
+
+不知道这算不算你们说的ost</blockquote>
+可能是我没表达明白，其实我是想问卖不卖盘来着- -
+
+*****
+
+####  Cybellybanana  
+##### 2716#       发表于 2021-11-25 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694640&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-25 15:03</a>
+
+可能是我没表达明白，其实我是想问卖不卖盘来着- -</blockquote>
+哦哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Siran_China  
+##### 2717#       发表于 2021-11-25 15:22
+
+ 本帖最后由 Siran_China 于 2021-11-25 15:23 编辑 
+<blockquote>lost_恩恩 发表于 2021-11-25 14:56
+可惜，有的无人声也不错的</blockquote>
+你这表述问题大了，人家可能以为你问的是instrumental版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真正想问的应该是有没有OST
+

@@ -12706,3 +12706,24 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  rzrbtk  
+##### 1147#       发表于 2021-11-25 15:10
+
+不过ll系列的双人曲一般也不是明说是在描述两人之间的关系吧，姑且不能算可恋关系认证？除非像misty frosty love那样直接说指向。其实现在这样愉快小伙伴的状态也还好吧，比起友情yosoro
+
+*****
+
+####  ads147147  
+##### 1148#       发表于 2021-11-25 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694198&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-11-25 14:29</a>
+
+气死，今天刚才知道日本那边的留学生（还是研究生），至今还在拿摩天轮的梗黑liyuu，为啥我知道呢，因为那 ...</blockquote>
+联动隔壁高华比美国人更懂美国jpg，所以留学生比霓虹金更黑国人也不是不可以理解。
+
+只能说真几把无聊。
+
