@@ -3781,3 +3781,12 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 这俩我都不太行所以无所谓了......
 
+
+
+*****
+
+####  hypnossz86  
+##### 6280#       发表于 2021-11-25 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">剧情还挺有意思的，这夜露露还有reading steiner，不知道未罗有没有
+

@@ -20520,3 +20520,25 @@ CARNELIAN先生
 攒了几话一起看，感觉男主好憨啊草，明明是二周目了，感觉还是像个愣头青23333话说这个两个世界到底怎么个 ...</blockquote>
 因为alt前期他仗着自己“知道”得多就表现得很冲很急，等125后开始全新经历就一点点被现实教训了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1441#       发表于 2021-11-25 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694334&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2021-11-25 14:40</a>
+
+原作有暗示是被洗 脑的，自己也不知道自己为什么会扣下扳机</blockquote>
+那动画这方面更像原作，反正纯动画党看起来就很像误射
+
+漫画版看起来就是故意的
+
+<img src="https://img.saraba1st.com/forum/202111/25/200308y1rl079ebtget5no.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2021-11-25 200149.png</strong> (125.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:03 上传
+

@@ -8221,3 +8221,18 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 
 龙，红发，鹰眼这种没展现真正实力的设定强者真是躺赢的代表，只要挂机等WT版本更新就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绝赞販売中  
+##### 56138#       发表于 2021-11-25 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694285&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-11-25 14:36</a>
+照这架势King大概率也会霸缠
+
+不然霸缠这越级这么大的能力对面怎么打，可以把皇副级路飞直接升到皇级的
+
+不过 ...</blockquote>
+索隆依靠阎魔达到的，路飞是靠自己练出无上大拖孩，还是差了一点.但是流樱设定真是废了
+
