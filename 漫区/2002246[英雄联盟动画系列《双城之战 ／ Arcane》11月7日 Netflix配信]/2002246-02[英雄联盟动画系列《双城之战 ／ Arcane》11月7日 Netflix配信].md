@@ -13200,3 +13200,32 @@ edg3连冠我就要弃游了。
 炸弹都到脸上了怎么逃生，闪现吗</blockquote>
 亚索传过来给个风墙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Siran_China  
+##### 2745#       发表于 2021-11-25 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我错了，拳头LOL音乐合集一直在做，只不过不再以volume命名，而是按赛季出的
+
+<img src="https://img.saraba1st.com/forum/202111/25/234233ktpc85hppclcvcpt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (107.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 23:42 上传
+
+*****
+
+####  飞升之后  
+##### 2746#       发表于 2021-11-25 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53702610&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-25 23:42</a>
+
+我错了，拳头LOL音乐合集一直在做，只不过不再以volume命名，而是按赛季出的
+
+ ...</blockquote>
+网易云的不全
+

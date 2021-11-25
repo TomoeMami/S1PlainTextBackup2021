@@ -13451,3 +13451,46 @@ pay这不是自己拍的就好看多了<img src="https://static.saraba1st.com/im
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53701639&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-25 22:43</a></blockquote>
 鲤鱼还是会拍
 
+
+
+*****
+
+####  lj205  
+##### 1213#       发表于 2021-11-25 23:21
+
+青山和佩佩这张是鲤鱼拍的吧？背景一样的
+
+*****
+
+####  仟音一心  
+##### 1214#       发表于 2021-11-25 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53701639&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-25 22:43</a></blockquote>
+
+歌名拼错了，已编辑
+
+DC33A4BA-51FF-4CA1-94AD-139187570D15.jpeg
+(630.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 23:27 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/232713blzz1206550g4od8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1215#       发表于 2021-11-25 23:41
+
+手摸哪儿呢
+
+1C01FFD8-DEDA-4420-BBAF-86C0157ADD6B.gif
+(1.3 MB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 23:40 上传
+
+<img src="https://img.saraba1st.com/forum/202111/25/234059a6iui52y8v7ifqkk.gif" referrerpolicy="no-referrer">
+

@@ -20637,3 +20637,43 @@ CARNELIAN先生
 这事对应的是unlimited篇里火山避难事件 ...</blockquote>
 其实还有一个暗线：整个帝国陆军在之前的大陆派遣作战和本土防御作战中军纪、士气和训练完全被打崩了。
 
+
+
+*****
+
+####  hacisiki  
+##### 1448#       发表于 2021-11-25 23:29
+
+啊，F15这个动作真棒
+
+*****
+
+####  hacisiki  
+##### 1449#       发表于 2021-11-25 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53659372&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-23 03:16</a>
+
+白色吧，黑色是白银武在tda世界线里开得
+
+—— 来自 OnePlus HD1900, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+仔细看了一样，是黑色的普通兵机站了一排。TDA世界线武爷开的是换头换色的冥夜机。
+
+*****
+
+####  freyja_wion  
+##### 1450#       发表于 2021-11-25 23:35
+
+一直在巴哈追的番，看弹幕反应也挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hlazd  
+##### 1451#       发表于 2021-11-25 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53702491&amp;ptid=1860817" target="_blank">freyja_wion 发表于 2021-11-25 23:35</a>
+
+一直在巴哈追的番，看弹幕反应也挺有意思的进度都赶成了这样现在播了8集也一堆人不耐烦了只 ...</blockquote>
+抹布三部作的结构问题不就是铺垫太长嘛，就算把前两部扔了光看alt也够长了
+

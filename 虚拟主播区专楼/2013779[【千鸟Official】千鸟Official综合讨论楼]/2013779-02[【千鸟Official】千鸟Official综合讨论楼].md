@@ -14141,3 +14141,15 @@ yuhuo焚身，小男友今晚有难了🥵🥵🥵
 
 新麦好么.艾瑞思和艾白唱歌走音我都听出来了.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 3000#       发表于 2021-11-25 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53702278&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-25 23:25</a>
+
+新麦好么.艾瑞思和艾白唱歌走音我都听出来了.</blockquote>
+收音估计还没调好，白白那边有点噪音
+

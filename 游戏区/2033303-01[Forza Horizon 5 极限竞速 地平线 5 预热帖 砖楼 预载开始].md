@@ -15544,3 +15544,12 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有无限制车辆蛇头的设定，我更加确定fh5运营是傻逼了
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1406#       发表于 2021-11-25 23:26
+
+xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，画面观感都比地平线5强还么有bug，笑了，我等个一年再回来玩地平线5吧
+
