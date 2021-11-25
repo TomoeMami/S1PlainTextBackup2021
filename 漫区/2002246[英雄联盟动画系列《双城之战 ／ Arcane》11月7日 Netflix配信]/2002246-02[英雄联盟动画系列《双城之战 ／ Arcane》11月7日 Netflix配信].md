@@ -13105,3 +13105,27 @@ ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源</blockquote
 
 <img src="https://img.nga.178.com/attachments/mon_202111/25/-39t2Q17d-kdywZkT3cSov-ke.png.medium.jpg" referrerpolicy="no-referrer">编辑
 
+
+
+*****
+
+####  战场公主希维尔  
+##### 2737#       发表于 2021-11-25 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53698089&amp;ptid=2002246" target="_blank">MaskedBlade 发表于 2021-11-25 18:45:52</a>
+编辑</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">edg3连冠我就要弃游了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  MaskedBlade  
+##### 2738#       发表于 2021-11-25 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53698390&amp;ptid=2002246" target="_blank">战场公主希维尔 发表于 2021-11-25 19:07</a>
+
+edg3连冠我就要弃游了。
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+我这边怎么看不到。我以为我发失败了
+

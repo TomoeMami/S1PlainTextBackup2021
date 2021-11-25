@@ -3767,3 +3767,17 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 反正新an是老幼组...哪个都没有性趣 ...</blockquote>
 等等。。。。拆包拆出奶奶了么，这俩当初实装差了10个月呢。
 
+
+
+*****
+
+####  hypnossz86  
+##### 6279#       发表于 2021-11-25 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53698115&amp;ptid=1570791" target="_blank">yygundam 发表于 2021-11-25 18:47</a>
+
+等等。。。。拆包拆出奶奶了么，这俩当初实装差了10个月呢。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不，拆包我不懂的，我的意思是魔法少女复刻应该就是老幼其中之一吧....
+
+这俩我都不太行所以无所谓了......
+
