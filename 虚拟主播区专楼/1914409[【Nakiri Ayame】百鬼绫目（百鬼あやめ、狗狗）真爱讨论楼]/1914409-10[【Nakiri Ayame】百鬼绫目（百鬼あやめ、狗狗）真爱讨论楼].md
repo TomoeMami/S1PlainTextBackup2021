@@ -190,3 +190,14 @@ EN作用也就那样吧
 
 这就是摆烂主播的摆烂粉丝的样子吧<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fami水  
+##### 13521#       发表于 2021-11-25 17:22
+
+只会お疲れ様ぁ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+百鬼众支离破碎的发言
+以前上学的时候，怎么没觉得绫总那么热爱上课<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

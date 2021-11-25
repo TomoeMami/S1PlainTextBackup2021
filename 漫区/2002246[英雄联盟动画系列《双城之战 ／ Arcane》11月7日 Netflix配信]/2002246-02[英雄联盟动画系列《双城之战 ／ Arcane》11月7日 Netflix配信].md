@@ -13045,3 +13045,41 @@ ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源</blockquote
 “尝尝大家伙”</blockquote>
 拳头的手办普遍拉胯
 
+
+
+*****
+
+####  Siran_China  
+##### 2731#       发表于 2021-11-25 17:24
+
+话说🇫🇷人是不是特别钟爱三渲二啊，pptp里一到法国小哥的部分也是三渲二
+
+*****
+
+####  彩虹肥宅  
+##### 2732#       发表于 2021-11-25 17:30
+
+[https://youtu.be/7rAbZUZCnL8](https://youtu.be/7rAbZUZCnL8)
+
+50几秒那个bgm是哪首
+
+*****
+
+####  银枪子龙  
+##### 2733#       发表于 2021-11-25 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696916&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-25 17:24</a>
+
+话说🇫🇷人是不是特别钟爱三渲二啊，pptp里一到法国小哥的部分也是三渲二 ...</blockquote>
+这个工作室绝活吧，拳头也好这口
+
+*****
+
+####  ooohaoguai2  
+##### 2734#       发表于 2021-11-25 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696916&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-25 17:24</a>
+
+话说🇫🇷人是不是特别钟爱三渲二啊，pptp里一到法国小哥的部分也是三渲二 ...</blockquote>
+这种三渲二的流程是：分镜-&gt;草原-&gt;3d。其实是代替手绘动画行业中最主要的劳动力密集环节，二原和动画，和劳动力成本有关系。但技法上还是尽量追求手绘动画的生动。
+

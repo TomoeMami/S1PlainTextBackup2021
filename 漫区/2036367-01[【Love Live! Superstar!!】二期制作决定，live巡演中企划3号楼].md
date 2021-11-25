@@ -12909,3 +12909,34 @@ sunnypa说实话有点尴尬，半首歌都出过却能在12话击败liella，�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1171#       发表于 2021-11-25 17:22
+
+又看了一下，10组这是首发的偷跑信源？有舅舅？
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那这舅舅信源可真是挺NB的，两小时都等不及
+
+*****
+
+####  lj205  
+##### 1172#       发表于 2021-11-25 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696488&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-11-25 17:02</a>
+资本家牛逼啊，这工作量，007。Liella工资到底多少啊，之前知道一个地偶她们月薪差不多55万
+
+----发送自 Xi ...</blockquote>
+55万那么多？不可能吧？
+不过都这样压榨应该不会太低
+
+*****
+
+####  寒风夜  
+##### 1173#       发表于 2021-11-25 17:42
+
+ 本帖最后由 寒风夜 于 2021-11-25 17:46 编辑 
+
+鲤鱼还是好神勇啊  状态
+

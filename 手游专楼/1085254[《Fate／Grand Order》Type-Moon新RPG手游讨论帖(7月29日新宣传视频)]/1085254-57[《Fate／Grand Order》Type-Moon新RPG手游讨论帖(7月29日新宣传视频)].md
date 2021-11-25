@@ -5635,3 +5635,12 @@ NMD两单沉了
 查了一下，龙马竟然没有神性和龙属性，这也太奇怪了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">rider阶有，lancer阶没有….也太怪了龙马桑，你老婆究竟真的有没有神性啊….
 
+
+
+*****
+
+####  zakki  
+##### 84507#       发表于 2021-11-25 17:34
+
+2.65出太公望？
+
