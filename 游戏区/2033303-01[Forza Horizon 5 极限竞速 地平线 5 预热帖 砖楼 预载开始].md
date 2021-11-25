@@ -15383,3 +15383,15 @@ FH5重现这些事只能说明t10压根就没改
 
 看了一下steam商店页面，运营成这个样子好评率还能有81%，只能说消费者还是太宽容了。
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1392#       发表于 2021-11-25 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53687119&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-24 23:54</a>
+
+需要完成你没有做过的探险，要是之前全都做了就gg了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">被蠢到了
+
