@@ -15478,3 +15478,24 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 留给操场的时间不多了</blockquote>
 这次每日的时间在下个赛季还会倒数，不知道是不是下个赛季还能做
 
+
+
+*****
+
+####  天神十三煞  
+##### 1400#         楼主| 发表于 2021-11-25 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696026&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-25 00:35</a>
+
+这次每日的时间在下个赛季还会倒数，不知道是不是下个赛季还能做</blockquote>
+做不了的是那个娱乐场皇冠
+
+日活可补倒是不是很有所谓
+
+*****
+
+####  nemunoki  
+##### 1401#       发表于 2021-11-25 16:49
+
+游乐场王冠要去公开赛那里排，赛季奖励那个通道不行
+

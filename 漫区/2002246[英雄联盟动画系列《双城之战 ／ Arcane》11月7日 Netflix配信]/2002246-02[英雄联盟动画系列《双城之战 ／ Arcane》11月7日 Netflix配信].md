@@ -13007,3 +13007,41 @@ ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源</blockquote
 结果这cv一上来就表达身份政治，太lo ...</blockquote>
 这么想也是，异世界还要强调肤色就很没意思
 
+
+
+*****
+
+####  弗林蒂萨  
+##### 2728#       发表于 2021-11-25 16:47
+
+<img src="https://img.saraba1st.com/forum/202111/25/164707x7hidn28k8dnhkv4.jpg" referrerpolicy="no-referrer">
+
+<strong>282800_P_1625047555.jpg</strong> (87.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 16:47 上传
+
+“尝尝大家伙”
+
+*****
+
+####  lost_恩恩  
+##### 2729#       发表于 2021-11-25 16:54
+
+<blockquote>弗林蒂萨 发表于 2021-11-25 16:44
+周边有啊，淘宝就有旗舰店，不过不是这次动画专门用商品，我估计你们看了也没啥想买的
+
+另外说一句， ...</blockquote>
+去看了看，除了安妮的熊，其他也太特么丑了，限量那个金克丝与蔚是啥玩意啊
+
+*****
+
+####  银枪子龙  
+##### 2730#       发表于 2021-11-25 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696215&amp;ptid=2002246" target="_blank">弗林蒂萨 发表于 2021-11-25 16:47</a>
+
+“尝尝大家伙”</blockquote>
+拳头的手办普遍拉胯
+

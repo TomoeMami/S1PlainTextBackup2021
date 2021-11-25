@@ -12830,3 +12830,71 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 怎么得到的消息，图还挺真的，不会真的有舅舅吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 1161#       发表于 2021-11-25 16:44
+
+可能又是排演偷跑出来的？话说作为一个字幕组发这种偷跑消息不太好吧。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1162#       发表于 2021-11-25 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">10组这个确实………………还是说字幕组里头有舅舅？
+
+*****
+
+####  player3960  
+##### 1163#       发表于 2021-11-25 16:48
+
+来了来了，就让我看看新一代叛教神曲是怎么打败星光的！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+话说arise的歌我可是听的比缪斯的所有歌都久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1164#       发表于 2021-11-25 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">敌团歌都挺好听的，之前雪团那两首循环了好久
+
+*****
+
+####  chenflyyy  
+##### 1165#       发表于 2021-11-25 16:53
+
+sunnypa说实话有点尴尬，半首歌都出过却能在12话击败liella，全季也没什么表现，现在人气相比之前的敌团来说相当低迷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看看追加live上声优的表现能不能挽回点人气吧，这两位也是新人
+
+*****
+
+####  lj205  
+##### 1166#       发表于 2021-11-25 16:54
+
+下班走人！
+
+*****
+
+####  寒风夜  
+##### 1167#       发表于 2021-11-25 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有什么不尴尬
+
+*****
+
+####  土豆不土  
+##### 1168#       发表于 2021-11-25 16:55
+
+我比较在意SP会穿着火鸡一样的打歌服出场吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1169#       发表于 2021-11-25 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nonfiction 那堆吊带袜估计永远看不到
+
