@@ -13216,3 +13216,26 @@ FD664DB9-EB38-4AA2-AC93-74315F560618.jpeg
 
 在微博看到🐟最后说中文的切片了，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 1193#       发表于 2021-11-25 20:31
+
+ 本帖最后由 saya1892 于 2021-11-25 20:36 编辑 
+
+鲤鱼每次小作文时间都要check有没有人不换棒子，这次指了2楼的一个，队友都吐槽说鲤酱真的很严格
+
+直播贴说恐怕会出现为了被鲤鱼指专门不变色的人
+
+然后这人还发推了
+
+<img src="https://img.saraba1st.com/forum/202111/25/203119ernd13l2qq68jp42.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (30.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 20:31 上传
+

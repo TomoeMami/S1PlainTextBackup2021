@@ -13129,3 +13129,22 @@ edg3连冠我就要弃游了。
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 我这边怎么看不到。我以为我发失败了
 
+
+
+*****
+
+####  whyy  
+##### 2739#       发表于 2021-11-25 20:37
+
+第八集开头小梅尔提到的给女王用的紧急出口，还有同一集蔚离开议会时cue到的出口，说不定是为结局议会被炮轰后这些人逃生留的伏笔吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不能曰的秘密  
+##### 2740#       发表于 2021-11-25 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53699714&amp;ptid=2002246" target="_blank">whyy 发表于 2021-11-25 20:37</a>
+
+第八集开头小梅尔提到的给女王用的紧急出口，还有同一集蔚离开议会时cue到的出口，说不定是为结局议会被炮 ...</blockquote>
+炸弹都到脸上了怎么逃生，闪现吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

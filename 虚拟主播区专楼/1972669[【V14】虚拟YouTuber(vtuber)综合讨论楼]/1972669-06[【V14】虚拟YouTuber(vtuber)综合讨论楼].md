@@ -14475,3 +14475,14 @@ yqqx虽然不是什么坏人，但实在太yhm了
 
 突然发现yorumi同期两人都主流出道了...不过SMC感觉关系挺好，虽然没生日联动了其它活动也应该可以照旧
 
+
+
+*****
+
+####  FCCHua  
+##### 8603#       发表于 2021-11-25 20:37
+
+ 本帖最后由 FCCHua 于 2021-11-25 20:40 编辑 
+
+草，今天b组直接打了个13比0，而且是目前三个组里的最速吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
