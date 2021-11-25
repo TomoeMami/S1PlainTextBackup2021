@@ -15513,3 +15513,14 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 日活可补倒是不是很有所谓</blockquote>
 楼上也说了，那个要去公开赛随便找一个，我这里只差每日这两个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1403#       发表于 2021-11-25 21:37
+
+不知道是不是我的错觉，以前3代4代过检查点的黄带时候从外侧稍微刮到一点甚至黄带都不被撞动就算过了，这代好像不行了？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

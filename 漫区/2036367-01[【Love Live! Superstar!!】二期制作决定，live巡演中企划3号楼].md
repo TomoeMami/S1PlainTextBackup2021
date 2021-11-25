@@ -13286,3 +13286,27 @@ bd4抽这场就有点晚了
 
 肯定不止bd3吧？不过现在这商法……真的要榨干了……
 
+
+
+*****
+
+####  蜜梨柑  
+##### 1198#       发表于 2021-11-25 21:25
+
+运营BD多塞点，刚好我出了抽选回点血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 1199#       发表于 2021-11-25 21:37
+
+<img src="https://img.saraba1st.com/forum/202111/25/213718r7vt4cxxoxh473bb.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (41.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-25 21:37 上传
+
+十连r，真是好久没玩这么令我上火的游戏了
+
