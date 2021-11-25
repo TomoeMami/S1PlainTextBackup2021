@@ -12931,3 +12931,15 @@ ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源
 
 <img src="https://img.saraba1st.com/forum/202111/25/155552hz17xjn10tp0gs4m.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2721#       发表于 2021-11-25 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694972&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-25 15:28</a>
+
+ost QQ音乐lol账号下有张90首曲子的专辑，hi-res的资源</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">就不能学学日本那变边，卖碟，周边都搞起来么，艾克的那个表就不错啊！
+

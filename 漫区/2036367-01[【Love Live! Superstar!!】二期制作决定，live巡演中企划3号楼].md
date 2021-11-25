@@ -12759,3 +12759,28 @@ TVアニメ「ラブライブ！スーパースター!!」
 
 追加场来了，竟然拉上了sunnypa<img src="https://p.sda1.dev/3/d8e6c6588196c87e20be1f2c7f80f416/IMG_CMP_15316768.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 1152#       发表于 2021-11-25 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">啊 还追加
+
+*****
+
+####  仟音一心  
+##### 1153#       发表于 2021-11-25 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53695409&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-25 15:59</a>
+追加场来了，竟然拉上了sunnypa</blockquote>
+希望歌给点力
+
+*****
+
+####  cybernetics31  
+##### 1154#       发表于 2021-11-25 16:16
+
+这个场多大？追加应该就是bd3抽吧
+
