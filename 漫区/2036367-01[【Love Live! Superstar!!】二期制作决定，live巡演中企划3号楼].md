@@ -13023,3 +13023,14 @@ https://share.api.weibo.cn/share/264340696.html?weibo_id=4707482318143655
 
 真是越来越稳了……再过10场得是啥样
 
+
+
+*****
+
+####  cat1230  
+##### 1183#       发表于 2021-11-25 19:27
+
+ringing这歌正棒啊，现场来说，这算不怎么好唱的歌吧。调一直很高的样子。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

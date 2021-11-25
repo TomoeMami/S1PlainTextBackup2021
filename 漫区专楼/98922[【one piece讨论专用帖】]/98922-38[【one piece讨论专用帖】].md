@@ -8212,3 +8212,12 @@ Redfield，不会恶搞生化危机之类的梗吧</blockquote>
 
 耕三郎为什么离开和之国来着？我记得之前提到过？
 
+
+
+*****
+
+####  fmchar  
+##### 56137#       发表于 2021-11-25 19:35
+
+龙，红发，鹰眼这种没展现真正实力的设定强者真是躺赢的代表，只要挂机等WT版本更新就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
