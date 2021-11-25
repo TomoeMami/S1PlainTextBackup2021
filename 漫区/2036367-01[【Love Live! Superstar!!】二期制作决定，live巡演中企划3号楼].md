@@ -12979,3 +12979,38 @@ sunnypa说实话有点尴尬，半首歌都出过却能在12话击败liella，�
 
 我要被鲤鱼可爱死了！！东京特典票买的太值了！！！！！！！
 
+
+
+*****
+
+####  优妮可  
+##### 1178#       发表于 2021-11-25 18:09
+
+淦，错过了，等个切片
+
+*****
+
+####  秋月艾莉  
+##### 1179#       发表于 2021-11-25 18:14
+
+无论是成员还是导播都进步得都又快又稳
+
+这波巡演对新人是苦了点但也可以学到很多，底子够好逼一下水平也是突飞猛进，都是必经之路
+
+*****
+
+####  chenflyyy  
+##### 1180#       发表于 2021-11-25 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53697605&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-25 18:09</a>
+淦，错过了，等个切片</blockquote>
+https://share.api.weibo.cn/share/264340696.html?weibo_id=4707482318143655
+微博有人发了
+
+*****
+
+####  cybernetics31  
+##### 1181#       发表于 2021-11-25 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">白裙加最后那个wink  真好啊真好啊
+

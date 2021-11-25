@@ -5655,3 +5655,21 @@ NMD两单沉了
 2.65出太公望？</blockquote>
 哪里来的情报？给个链接？
 
+
+
+*****
+
+####  zakki  
+##### 84509#       发表于 2021-11-25 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53697330&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-11-25 17:51</a>
+哪里来的情报？给个链接？</blockquote>
+4chan的情报，不一定是真的。不过2.6的爆料和泳装魔总立绘都是从4chan出来的
+
+*****
+
+####  quanlix  
+##### 84510#       发表于 2021-11-25 18:20
+
+对狐狸，出太公望倒是合理
+

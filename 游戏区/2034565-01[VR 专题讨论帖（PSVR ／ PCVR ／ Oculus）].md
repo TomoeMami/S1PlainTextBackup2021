@@ -2904,3 +2904,17 @@ vd串流是不是占用资源比airlink小很多？</blockquote>
 由手机上传
 2021-11-25 17:59 上传
 
+
+
+*****
+
+####  魔法酪饼  
+##### 187#       发表于 2021-11-25 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53687952&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-25 01:42</a>
+
+SKYBOX的电影院模式看电影真是太爽了，今晚看了阿丽塔，太舒服了。。。就是下一部电影都好大。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">支持读NAS上的资源，以及，单论观影的话其实pico好点。
+
+我俩都用，一大爱好就是用neo3刷啊b舔管人切片。
+
