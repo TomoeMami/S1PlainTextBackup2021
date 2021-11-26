@@ -3237,3 +3237,48 @@ JUST IN: Belgium reports 2 suspected cases of new coronavirus variant
 只要躺平了不去测序，蛊 ...</blockquote>
 iota啊，第一个新血清型。要不是干不过十亿培养皿的印度delta，早就，缓慢传遍全世界了。
 
+
+
+*****
+
+####  riczxc  
+##### 301#         楼主| 发表于 2021-11-26 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53714038&amp;ptid=2039422" target="_blank">米村正二 发表于 2021-11-26 20:05</a>
+多半会给个毫无存在感的亚种直接糊弄过去，就像alpha beta gamma一样</blockquote>
+alpha虽然现在是弱鸡，可传染力是原始毒株的两倍哦。
+
+*****
+
+####  柔福帝姬  
+##### 302#       发表于 2021-11-26 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705286&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 08:46</a>
+
+血清分型的意思是，打了疫苗也多半没用。
+
+要开发新的疫苗了。</blockquote>
+新的疫苗不还是辉瑞和摩德纳么，更加利好了。
+
+*****
+
+####  Duc_d'_Muka  
+##### 303#       发表于 2021-11-26 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707699&amp;ptid=2039422" target="_blank">人民de救星 发表于 2021-11-26 11:58</a>
+
+元祖→Delta→Nu 下一个是不是 Unicorn
+
+—— 来自 S1Fun</blockquote>
+幼女控有希腊字母编号吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">应该是柯西了吧
+
+*****
+
+####  sjbssd  
+##### 304#       发表于 2021-11-26 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711661&amp;ptid=2039422" target="_blank">holyblood 发表于 2021-11-26 16:46</a>
+
+俺觉得别人战胜新冠我们输了，别人没战胜新冠我们也输了，怕不是b站ceo摸电线，输麻了 ...</blockquote>
+球球你们不要再摸电线了，笑麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

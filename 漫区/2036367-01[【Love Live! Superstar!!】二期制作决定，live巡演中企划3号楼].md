@@ -13790,3 +13790,54 @@ DC33A4BA-51FF-4CA1-94AD-139187570D15.jpeg
 
 才2月
 
+
+
+*****
+
+####  lj205  
+##### 1244#       发表于 2021-11-26 20:07
+
+既然都决定开2ND，为毛还要追加那两场公演…………………………不过说不定一专都录好了
+
+*****
+
+####  优妮可  
+##### 1245#       发表于 2021-11-26 20:10
+
+*****
+
+####  优妮可  
+##### 1246#       发表于 2021-11-26 20:10
+
+<img src="https://img.saraba1st.com/forum/202111/26/201007xminzbeq2nqeoken.jpg" referrerpolicy="no-referrer">
+
+<strong>20211126_200618.jpg</strong> (152.76 KB, 下载次数: )
+
+下载附件
+
+2021-11-26 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202111/26/201007gz0ug06h2a88agyh.jpg" referrerpolicy="no-referrer">
+
+<strong>20211126_200619.jpg</strong> (129.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202111/26/201007rhsy6eme5n866se5.jpg" referrerpolicy="no-referrer">
+
+<strong>20211126_200625.jpg</strong> (552.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202111/26/201008v9iji7rgv6622ijj.jpg" referrerpolicy="no-referrer">
+
+<strong>20211126_200628.jpg</strong> (532.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 20:10 上传
+

@@ -15802,3 +15802,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1431#       发表于 2021-11-26 20:13
+
+夜晚拍照代码：793 683 718​
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
