@@ -2784,3 +2784,70 @@ delta血清型一样的，刚打三个月内保护效果还是很不错的，超
 
 针对新版本基本无效了，得等一波迭代了。
 
+
+
+*****
+
+####  自由斗士  
+##### 266#       发表于 2021-11-26 17:48
+
+<blockquote>骆宾王 发表于 2021-11-26 16:21
+那是因为没有垄断，大家都能产</blockquote>
+所以产业链位置不重要，不可替代性才重要。
+
+*****
+
+####  ak123  
+##### 267#       发表于 2021-11-26 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712297&amp;ptid=2039422" target="_blank">lovepenny 发表于 2021-11-26 17:31</a>
+这玩意到底哪儿来的，那么凶
+
+----发送自 STAGE1 App for Android.</blockquote>
+南非大量艾滋病人，艾滋病人免疫力约等于无，嚷新冠肆意变异<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最好不说  
+##### 268#       发表于 2021-11-26 17:50
+
+世卫明早九点召开专家技术会议讨论新变种，估计该给尊号了，B.1.1.529:什么德尔塔，冢中枯骨尔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  inconolast  
+##### 269#       发表于 2021-11-26 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">血清分型的话现有疫苗全g
+
+rna开发疫苗再快也要临床一二三这么走
+
+当然昂撒白皮怕是要干直接上这种生孩子没py的事情
+
+但是毒疫苗就不知道打给谁了
+
+*****
+
+####  比亚迪  
+##### 270#       发表于 2021-11-26 17:57
+
+赶紧染到美国去
+
+
+
+*****
+
+####  3Psm  
+##### 271#       发表于 2021-11-26 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704262&amp;ptid=2039422" target="_blank">skyuni 发表于 2021-11-26 02:31</a>
+
+那外面得像欧洲黑死病一样死一半人口，完全逆全球化到工业革命前。
+
+现在的变异速度，根本不可能靠研发药品 ...</blockquote>
+不会逆全球化到工业革命之前
+
+全球化工业革命的意义就是：除非全球都回档，否则有一个备份，就是最新版本。
+
+真的国外都黑死病时代死一半，最大可能是人类命运共同体成为政治实体，然后中国全球化版本上线。
+
