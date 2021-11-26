@@ -15824,3 +15824,25 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 这个任务有什么特别的吗，我是直接拍了没事，倒是这周那个要在晚上拍照的一直做不了，天黑了怎么拍都不算 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是在那个午夜狂飙的季节赛里做完了
 
+
+
+*****
+
+####  Totokei  
+##### 1433#       发表于 2021-11-27 00:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">慕名玩了蛇头，感受到了大家暴怒的原因
+
+自认为技术还行参照攻略选了个elise套了大神998的调教，匹配之后发现队友都是998没有x级感觉稍微有了一点胜算，然后一看地图预览，窄路急弯开nm
+
+对这条道路来说998完全过剩了，比赛的时候我和队友就是不断地重复过弯时撞墙，或者撞墙时鱼雷到ai前面，最后痛苦地赢了
+
+*****
+
+####  gzGaryC  
+##### 1434#       发表于 2021-11-27 00:40
+
+跟好友组队试了四把蛇头终于过了
+
+最后一把不知道碰到了什么bug有7个玩家5个电脑，玩家都是S2电脑全是S1；水库冲刺赛我居然是杆位发车，第二张图换成了好友虚空杆位发车直接领先后面的人一个弯道，莫明其妙地赢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

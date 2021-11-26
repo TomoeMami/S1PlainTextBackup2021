@@ -3574,3 +3574,21 @@ Israel has identified four cases of the B.1.1.529 variant, all recent travellers
 
 另外，两针AZ，9月份一针强生的也中奖了的
 
+
+
+*****
+
+####  头像才不霸气呢  
+##### 332#       发表于 2021-11-27 00:36
+
+美股背着玩意吓尿了？ 跌了一千点
+
+*****
+
+####  边缘中心  
+##### 333#       发表于 2021-11-27 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53716990&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-27 00:02</a>
+另外，两针AZ，9月份一针强生中奖的也有了</blockquote>
+这个连中delta都不奇怪，中这个不是更理所当然<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
