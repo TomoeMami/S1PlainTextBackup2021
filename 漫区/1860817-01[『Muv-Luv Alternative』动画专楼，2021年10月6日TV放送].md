@@ -20847,3 +20847,15 @@ BETA大忠臣沙雾尚哉真是好样的，让日本失去大量战力的男人�
 
 在125里损失的F22就好几架，连带能开22的精锐卫士，美军心疼又肉疼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hacisiki  
+##### 1466#       发表于 2021-11-26 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715608&amp;ptid=1860817" target="_blank">hlazd 发表于 2021-11-26 21:47</a>
+
+在125里损失的F22就好几架，连带能开22的精锐卫士，美军心疼又肉疼</blockquote>
+一个中队啊啊啊啊啊啊
+

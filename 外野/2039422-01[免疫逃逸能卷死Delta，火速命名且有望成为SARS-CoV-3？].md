@@ -3505,3 +3505,27 @@ Israel has identified four cases of the B.1.1.529 variant, all recent travellers
 总的来说，相比疫苗和旧病毒的自然免疫，现在药物没有大规模使用不存在抗药筛选，同时多款药物针对不同靶 ...</blockquote>
 新数据可不是对新变种
 
+
+
+*****
+
+####  creymorgan  
+##### 325#       发表于 2021-11-26 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53716072&amp;ptid=2039422" target="_blank">曾鸟栖夜夏 发表于 2021-11-26 22:25</a>
+
+新数据可不是对新变种</blockquote>
+药还没用呢，当前的变异趋势和抗药无关的。
+
+*****
+
+####  曾鸟栖夜夏  
+##### 326#       发表于 2021-11-26 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53716095&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-26 22:27</a>
+
+药还没用呢，当前的变异趋势和抗药无关的。</blockquote>
+我直白一点
+
+警惕默沙东数据造假风险
+
