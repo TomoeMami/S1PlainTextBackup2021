@@ -15752,3 +15752,12 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 还拿到了十级车的赞赏，第二次成功赢下淘汰赛。
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Vladimeow  
+##### 1426#       发表于 2021-11-26 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">特么的911carrera那个拍照任务我死活完成不了，有没有什么抢救方法啊
+

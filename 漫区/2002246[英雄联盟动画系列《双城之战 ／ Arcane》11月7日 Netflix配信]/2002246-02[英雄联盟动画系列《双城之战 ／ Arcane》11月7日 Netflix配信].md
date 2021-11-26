@@ -13405,3 +13405,12 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 “不装了，其实爷是潘森”</blockquote>
 真要是潘森一个人怕是能把双城的所有人图图了，灰夫人什么臭鱼烂虾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ammk  
+##### 2762#       发表于 2021-11-26 19:44
+
+档案大家看了么？jinx心路历程有意思
+

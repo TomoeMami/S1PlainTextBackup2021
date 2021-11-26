@@ -3028,3 +3028,94 @@ It is already in Europe.
 
 现在看脱贫攻坚以至人类命运共同体的理念真是太正确了，放任发展差距拉大，等落后地区养出蛊来，发达地区也难独善其身
 
+
+
+*****
+
+####  藤岛鸣海  
+##### 285#       发表于 2021-11-26 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713563&amp;ptid=2039422" target="_blank">深渊魔王 发表于 2021-11-26 19:20</a>
+现在看脱贫攻坚以至人类命运共同体的理念真是太正确了，放任发展差距拉大，等落后地区养出蛊来，发达地区也 ...</blockquote>
+地球就这么大，除非跑出地球，要不然没有任何人可独善其身的。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  AlienFromEarth  
+##### 286#       发表于 2021-11-26 19:26
+
+ 本帖最后由 AlienFromEarth 于 2021-11-26 19:27 编辑 
+<blockquote>深渊魔王 发表于 2021-11-26 19:20
+现在看脱贫攻坚以至人类命运共同体的理念真是太正确了，放任发展差距拉大，等落后地区养出蛊来，发达地区也 ...</blockquote>
+是的，美国之所以当世界帝国才不到一百年就现在这样，重要原因就是他们把整个美洲玩废了，以至于美洲根本没法搞大规模产业转移，更别提放任毒，还有导致大量难民。古巴封锁了居然比邻居日子好
+
+*****
+
+####  w2131978  
+##### 287#       发表于 2021-11-26 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712690&amp;ptid=2039422" target="_blank">比亚迪 发表于 2021-11-26 17:57</a>
+
+赶紧染到美国去</blockquote>
+阿妹你看坐拥将近五千万确诊。三亿多的培养皿，有出过什么上台面的变异毒株吗？
+
+只要躺平了不去测序，蛊王就都是其他国家养出来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  inconolast  
+##### 288#       发表于 2021-11-26 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713617&amp;ptid=2039422" target="_blank">w2131978 发表于 2021-11-26 19:26</a>
+
+阿妹你看坐拥将近五千万确诊。三亿多的培养皿，有出过什么上台面的变异毒株吗？
+
+只要躺平了不去测序，蛊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实是有的
+
+还是个有封号的
+
+iota，纽约搞出来的
+
+不过卷输了，大概6月份之后就g了
+
+本身也彩，加上阿米的媒体管控，绝大多数人应该都没听过
+
+*****
+
+####  inconolast  
+##### 289#       发表于 2021-11-26 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713617&amp;ptid=2039422" target="_blank">w2131978 发表于 2021-11-26 19:26</a>
+
+阿妹你看坐拥将近五千万确诊。三亿多的培养皿，有出过什么上台面的变异毒株吗？
+
+只要躺平了不去测序，蛊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实是有的
+
+还是个有封号的
+
+iota，纽约搞出来的
+
+不过卷输了，大概6月份之后就g了
+
+本身也彩，加上阿米的媒体管控，绝大多数人应该都没听过
+
+*****
+
+####  Vincent_law  
+##### 290#       发表于 2021-11-26 19:38
+
+WHO发言人：专家组会议将在日内瓦时间中午开始。在就新冠变异病毒进行小组会谈后，WHO将向各国提供指导建议。变异毒株首次于11月11日被发现，发现变异病毒的速度非常快。
+
+*****
+
+####  wwdzcjsmxx  
+##### 291#       发表于 2021-11-26 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713134&amp;ptid=2039422" target="_blank">死亡確認 发表于 2021-11-26 18:35</a>
+就现在这样子怕是实际已经传到欧洲了，连以色列都有了的话美国怕是实际流行起来了，只是就美国那鸟样怕是压 ...</blockquote>
+人类灭亡倒计时<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
