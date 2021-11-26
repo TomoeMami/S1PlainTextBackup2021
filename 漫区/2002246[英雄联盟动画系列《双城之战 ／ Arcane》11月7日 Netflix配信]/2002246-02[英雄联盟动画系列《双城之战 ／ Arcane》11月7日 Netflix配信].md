@@ -13506,3 +13506,14 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 端游第四个免费皮肤的任务，档案有jinx的绘本日记</blockquote>
 那个好像不是日记，就是绘本，台词是金克斯的录音？
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 2771#       发表于 2021-11-26 23:59
+
+我翻遍了原声还有剧集，都没找到那首预告片的背景音乐，他们不会为了一个预告片还特地整了一首新的配乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
