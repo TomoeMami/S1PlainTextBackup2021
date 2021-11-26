@@ -14599,3 +14599,34 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 
 2021-11-26 11:19 上传
 
+
+
+*****
+
+####  Ketestrait  
+##### 8613#       发表于 2021-11-26 11:25
+
+芹菜，这是鹿岛眼罩ver.么
+
+*****
+
+####  hulaoda007  
+##### 8614#       发表于 2021-11-26 11:29
+
+要来啦。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 8615#       发表于 2021-11-26 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">老师是不是今年要毕业了
+新衣服加吉祥物联动和军舰双叶……
+
+*****
+
+####  OldGlory  
+##### 8616#       发表于 2021-11-26 11:40
+
+金鱼msmgbr4小姐能中几个？
+
