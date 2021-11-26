@@ -2210,3 +2210,33 @@ conv3和cov3的区别啦~
 天佑日本人？几年后是不是可以和平接手樱花妹？</blockquote>
 醒醒吧你，接手也是带毒，要么一堆后遗症的
 
+
+
+*****
+
+####  coldhot3  
+##### 211#       发表于 2021-11-26 14:05
+
+<blockquote>charse2r 发表于 2021-11-26 13:25
+然后又上来了</blockquote>
+这是仰卧起坐成瘾了？
+
+*****
+
+####  yksoft1  
+##### 212#       发表于 2021-11-26 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708631&amp;ptid=2039422" target="_blank">hsxa 发表于 2021-11-26 13:02</a>
+
+delta是百式原型机啊...跟提坦斯的mk2不是一条线</blockquote>
+delta是阿纳海姆系的，而mk2是镇暴型吉姆发展出来的，应该是老露娜2还是杰布罗系的
+
+*****
+
+####  aegisangel  
+##### 213#       发表于 2021-11-26 14:20
+
+<blockquote>自由斗士 发表于 2021-11-26 11:48
+出口市场萎缩主要原因是政治。就算新冠结束，出口市场也回不来了</blockquote>
+行了键盘经济学家，不要用你浅薄的常识来推导供需关系了
+

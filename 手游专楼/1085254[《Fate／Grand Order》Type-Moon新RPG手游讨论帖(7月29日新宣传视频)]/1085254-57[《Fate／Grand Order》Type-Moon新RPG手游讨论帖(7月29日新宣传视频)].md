@@ -5734,3 +5734,24 @@ NMD两单沉了
 震惊 难道萌新转运了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 萌新又豹了 好羡慕
 
+
+
+*****
+
+####  xiongxingyu  
+##### 84517#       发表于 2021-11-26 14:04
+
+谁说单体宝具周回用不上只能打高难的？真正的肝帝都是要周回高难本的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84518#       发表于 2021-11-26 14:12
+
+<blockquote>引用第84510楼alucardcz于2021-11-26 00:05发表的  :
+
+震惊 难道萌新转运了</blockquote>
+狗还是你狗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
