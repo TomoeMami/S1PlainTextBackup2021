@@ -707,3 +707,115 @@ cov3，第一反应是3x3卷积神经网络<img src="https://static.saraba1st.co
 
 如果根本没有交叉抗体，到底是怎么把delta的份额都占了？
 
+
+
+*****
+
+####  克鲁特尼  
+##### 68#       发表于 2021-11-26 08:11
+
+<blockquote>riczxc 发表于 2021-11-26 04:22
+不撞南墙不回头。就是要有“极其恐怖的医疗挤兑情况”才会有教育作用。
+
+</blockquote>
+的确，我长这么大第一次在国内看到医疗挤兑对于当地的人民是多么绝望的感觉，
+
+*****
+
+####  creymorgan  
+##### 69#       发表于 2021-11-26 08:12
+
+<blockquote>AraTurambar 发表于 2021-11-26 08:08
+所以南非那个数据我根本看不懂。
+
+如果根本没有交叉抗体，到底是怎么把delta的份额都占了？ ...</blockquote>
+日增数变成了4倍，那么凭空多出来的部分不就是75%。
+
+*****
+
+####  riczxc  
+##### 70#         楼主| 发表于 2021-11-26 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704961&amp;ptid=2039422" target="_blank">AraTurambar 发表于 2021-11-26 08:08</a>
+
+所以南非那个数据我根本看不懂。
+
+如果根本没有交叉抗体，到底是怎么把delta的份额都占了？ ...</blockquote>
+而且delta刚爆了一波，所以还有对delta抗体啊，自然delta占有率上不去。
+
+*****
+
+####  楠芽吹  
+##### 71#       发表于 2021-11-26 08:15
+
+皮科克博士写道：“对亚洲的输出意味着，感染可能比目前基因序列检测得到的结果更为普遍。”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 72#         楼主| 发表于 2021-11-26 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704976&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-11-26 08:11</a>
+
+的确，我长这么大第一次在国内看到医疗挤兑对于当地的人民是多么绝望的感觉， ...</blockquote>
+SARS当年没有医疗挤兑已经很恐怖了（当然主要是得了就要去鬼门关跑一趟）。
+
+即使这样，还是远比不上武汉当时的情景。
+
+*****
+
+####  sadaharu529  
+##### 73#       发表于 2021-11-26 08:16
+
+这个病毒盛行后，南非情况究竟怎么样嘛？比之前差很多吗？
+
+辉瑞的特效药还有没有效果？
+
+*****
+
+####  人生如戏  
+##### 74#       发表于 2021-11-26 08:19
+
+看着这新病毒能和新冠共生？传播率还要高啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  riczxc  
+##### 75#         楼主| 发表于 2021-11-26 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705019&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 08:16</a>
+
+这个病毒盛行后，南非情况究竟怎么样嘛？比之前差很多吗？
+
+辉瑞的特效药还有没有效果？ ...</blockquote>
+也就是这一波提前开始了，还没到挤兑的时候。以前新冠一波波地来，现在可能没喘气的空间了吧。
+
+而且这个R0貌似很高...
+
+药的事情我就不清楚了。
+
+*****
+
+####  laotoutou  
+##### 76#       发表于 2021-11-26 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705019&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 08:16</a>
+这个病毒盛行后，南非情况究竟怎么样嘛？比之前差很多吗？
+
+辉瑞的特效药还有没有效果？ ...</blockquote>
+能造成股票波动就是最大的作用
+
+*****
+
+####  riczxc  
+##### 77#         楼主| 发表于 2021-11-26 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705036&amp;ptid=2039422" target="_blank">人生如戏 发表于 2021-11-26 08:19</a>
+
+看着这新病毒能和新冠共生？传播率还要高啊
+
+—— 来自 S1Fun</blockquote>
+共生就算了。怕的是会不会互相促进（通过OAS/ADE）。
+
