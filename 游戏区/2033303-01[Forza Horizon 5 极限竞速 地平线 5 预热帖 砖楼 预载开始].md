@@ -15664,3 +15664,19 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 明明大家一起开A800车就解决的事情，非要给BOT送X999的车，真的是对自己的水平和BOT的作弊能力没有B数 ...</blockquote>
 决定接下来闲了就去做善事，开辆d级进去然后秒退。兄弟啊只能帮你们到这了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nemunoki  
+##### 1418#       发表于 2021-11-26 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709993&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-26 14:47</a>
+
+话说游戏里的俱乐部能不能喊人组队啊？</blockquote>
+小帮手应用里面有个聊天频道，但是游戏里看不见所以没什么用
+
+不知道6个X的AI是什么情况，至少就我其他等级的AI跑下来，感觉强弱分配一般都是2强4弱，也就是说玩家侧其实都没必要去抢第一，只要能保证拿下三名以后都是可以赢的，还是那句老话不怕强对手只怕猪队友
+
+<[img src="https://z3.ax1x.com/2021/11/26/oVZggJ.png" referrerpolicy="no-referrer">
+

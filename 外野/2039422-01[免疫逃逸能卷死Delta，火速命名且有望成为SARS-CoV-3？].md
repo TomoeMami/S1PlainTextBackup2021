@@ -2344,3 +2344,72 @@ Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被�
 但最近这几年看到发达国家这么拉跨的 ...</blockquote>
 致死率越高的病毒越好防疫，物理隔绝一段时间让宿主都死光就OK了，但是新冠这种低致死率高传染性且大量无症状传染的病毒，一般的隔离措施根本用处不大
 
+
+
+*****
+
+####  fksoul  
+##### 225#       发表于 2021-11-26 15:10
+
+人在南非豪登省，心情平静。
+
+虽说大家心知肚明政府数据都是忽悠人，不过从每日一百多例跳到过千只用了几天还是很惊悚。
+
+这一波来得非常快，还没等政府数据更新明显就已经感觉到周围社交圈里有人中招了。
+
+第一波身边的人中招花了几个月，第三波大概是一个月，这第四波只有几天。
+
+— from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天使日又日| + 1|老哥注意安全|
+| 桐名| + 1|平安|
+
+查看全部评分
+
+*****
+
+####  克鲁特尼  
+##### 226#       发表于 2021-11-26 15:12
+
+<blockquote>fksoul 发表于 2021-11-26 15:10
+人在南非豪登省，心情平静。
+
+虽说大家心知肚明政府数据都是忽悠人，不过从每日一百多例跳到过千只用了几天 ...</blockquote>
+哥们你自己也要注意防护啊
+
+*****
+
+####  pushare  
+##### 227#       发表于 2021-11-26 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709807&amp;ptid=2039422" target="_blank">Lord_Voldemort 发表于 2021-11-26 14:31</a>
+各国开始对非洲断航班了，都发觉这次的毒株不对劲了吧。。。妈的别从香港跑进来啊 ...</blockquote>
+晚了，南非和印度的往来那么多，早就进更大培养皿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fksoul  
+##### 228#       发表于 2021-11-26 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710364&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-11-26 15:12</a>
+哥们你自己也要注意防护啊</blockquote>
+恩，会多加注意的。
+
+已经打了两针辉瑞，不过每天出门KN95 消毒液不离手。每天手机消毒外壳都要褪色了哈哈。
+
+其实南非人民还真就没怎么像欧美那样成天抗议口罩。大家都戴着，不过有时候比较敷衍罢了。 
+
+现在最头疼的是经济再这么被lockdown搞就要完蛋了，但不限制疫情就会**，的确是骑虎难下啊。
+
+— from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

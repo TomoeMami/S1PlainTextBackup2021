@@ -13325,3 +13325,18 @@ b站号拳头游戏音乐也可以听
 刚看完了，能不能别再出现智障狗血老套的夺回装着重要东西的容器但偏偏就是不花几秒时间打开确定东西还在里 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">英雄怎么死，这是游戏正片之前的剧情
 
+
+
+*****
+
+####  sfour  
+##### 2756#       发表于 2021-11-26 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53669800&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-23 20:27</a>
+那我也来推了，都是一个爹的，瓦罗兰特角色歌
+
+【拳头音乐【Valorant】角色歌-哔哩哔哩】https://b23.tv/I ...</blockquote>
+die for you是真的好听，sage的听多了感觉一般般，最牛逼的还是sova和cypher的配乐，尤其是sova的，感觉光听音乐就把人设展现的淋漓尽致了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
