@@ -3399,3 +3399,54 @@ How many?  300?”
 说到集装箱，最近立陶宛就用了集装箱处置难民，我在想那么密集会不会暴雷 ...</blockquote>
 那就看外国躺平在一轮又一轮的变异病毒下面能不能躺的住了
 
+
+
+*****
+
+####  sylali  
+##### 316#       发表于 2021-11-26 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705233&amp;ptid=2039422" target="_blank">之世郎 发表于 2021-11-26 08:40</a>
+
+这个新变种的命名24小时就走了正常的10天流程，全程欧洲病毒学家开后门，你猜欧洲怕不怕呢 ...</blockquote>
+英国今天一天就飞快执行把南部非洲6国列入旅行红色名单了。旅客必须隔离。欧洲显然是怕的。
+
+*****
+
+####  曾鸟栖夜夏  
+##### 317#       发表于 2021-11-26 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711417&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-26 16:31</a>
+
+虽然这证明了新冠确实牛逼异常，但也不太要太过担心了。
+
+普克鲁胺是受体拮抗剂——针对病毒侵入
+
+默沙东神药 ...</blockquote>
+默沙东新数据保护力下降至30%
+
+*****
+
+####  inconolast  
+##### 318#       发表于 2021-11-26 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715316&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-26 21:22</a>
+
+似乎最后一班从豪登起飞的航班（应该是约翰内斯堡）送了300乘客到伦敦？
+
+“A friend arrived in London th ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">那你嘤怕是g了，10月份的时候大嘤把南非从red list挪出去了
+
+所以这批人是居家隔离
+
+那龟龟，现在全抓回去都难救了
+
+*****
+
+####  riczxc  
+##### 319#         楼主| 发表于 2021-11-26 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715675&amp;ptid=2039422" target="_blank">sylali 发表于 2021-11-26 21:53</a>
+英国今天一天就飞快执行把南部非洲6国列入旅行红色名单了。旅客必须隔离。欧洲显然是怕的。 ...</blockquote>
+楼上转了推，显然不行。
+

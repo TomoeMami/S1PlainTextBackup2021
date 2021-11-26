@@ -8421,3 +8421,15 @@ king的这个种族 肯定要跟着新海贼王才有未来吧
 
 就硬打肯定还是一点效果都没有
 
+
+
+*****
+
+####  hkguty  
+##### 56156#       发表于 2021-11-26 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53714885&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-11-26 20:53</a>
+
+山治的硬皮和发火和king一样，发火的时候奎因还说，只有那个种族做的到，不是同族就是用了这个神族的基因 ...</blockquote>
+但是我记得杰尔马66几姐弟能力都有些区别，不过山治如果真的跟king有关的话，倒是确实可以在没霸王色的情况下还能开出其他外挂，继续吹得跟索隆平起平坐
+

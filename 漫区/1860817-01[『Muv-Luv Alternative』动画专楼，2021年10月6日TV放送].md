@@ -20838,3 +20838,12 @@ BETA大忠臣沙雾尚哉真是好样的，让日本失去大量战力的男人�
 最近打折半價想買來補習一下</blockquote>
 直接买无印和alt，目前steam版就是最适合现在体验的版本，不需要折腾
 
+
+
+*****
+
+####  hlazd  
+##### 1465#       发表于 2021-11-26 21:47
+
+在125里损失的F22就好几架，连带能开22的精锐卫士，美军心疼又肉疼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
