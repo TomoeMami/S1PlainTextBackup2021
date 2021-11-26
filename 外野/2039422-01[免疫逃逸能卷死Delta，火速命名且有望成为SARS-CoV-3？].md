@@ -2413,3 +2413,93 @@ Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被�
 
 — from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  madeira  
+##### 229#       发表于 2021-11-26 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710174&amp;ptid=2039422" target="_blank">66666 发表于 2021-11-26 14:58</a>
+致死率越高的病毒越好防疫，物理隔绝一段时间让宿主都死光就OK了，但是新冠这种低致死率高传染性且大量无 ...</blockquote>
+超高致死率 加 动物-人传染 加 无症状动物宿主 比如鸟 老鼠 咋防
+
+*****
+
+####  configxxxx  
+##### 230#       发表于 2021-11-26 15:31
+
+飞沫传播，超高致死率加超长潜伏期，潜伏期能传染
+
+*****
+
+####  soloviki  
+##### 231#       发表于 2021-11-26 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710550&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-26 15:28</a>
+超高致死率 加 动物-人传染 加 无症状动物宿主 比如鸟 老鼠 咋防</blockquote>
+不就鼠疫么 
+不好防是不存在的 只是愿不愿好好防 能不能接受好好防代价的问题
+
+*****
+
+####  骆宾王  
+##### 232#       发表于 2021-11-26 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710599&amp;ptid=2039422" target="_blank">soloviki 发表于 2021-11-26 15:32</a>
+不就鼠疫么 
+不好防是不存在的 只是愿不愿好好防 能不能接受好好防代价的问题 ...</blockquote>
+鼠疫没有空气传播吧？
+
+*****
+
+####  creymorgan  
+##### 233#       发表于 2021-11-26 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710608&amp;ptid=2039422" target="_blank">骆宾王 发表于 2021-11-26 15:32</a>
+
+鼠疫没有空气传播吧？</blockquote>
+肺鼠疫
+
+*****
+
+####  tomatoKnight  
+##### 234#       发表于 2021-11-26 15:34
+
+<blockquote>骆宾王 发表于 2021-11-26 15:32
+鼠疫没有空气传播吧？</blockquote>
+鼠疫可以飞沫传播
+
+*****
+
+####  zhjy999  
+##### 235#       发表于 2021-11-26 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710608&amp;ptid=2039422" target="_blank">骆宾王 发表于 2021-11-26 15:32</a>
+
+鼠疫没有空气传播吧？</blockquote>
+肺鼠疫，飞沫
+
+*****
+
+####  海关  
+##### 236#       发表于 2021-11-26 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708760&amp;ptid=2039422" target="_blank">9号单开道岔 发表于 2021-11-26 13:11</a>
+
+瑞典认为疫情已经结束了，没有了
+
+瑞典新首相安德松应当于本月26日正式就职并组建新政府。她在当选 ...</blockquote>
+瑞典新当选首相玛格达莱娜·安德松宣布辞职
+
+不是25号辞职了么？
+
+*****
+
+####  淡蓝色幽灵  
+##### 237#       发表于 2021-11-26 15:43
+
+<blockquote>蹲在厕所数姐姐 发表于 2021-11-26 12:07
+黑死病死一半人，是不是世界一下子就不内卷了？</blockquote>
+历史上英国在黑死病之后确实出现了一个自耕农有一百英亩土地的时期。
+

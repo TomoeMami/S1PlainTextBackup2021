@@ -13571,3 +13571,35 @@ DC33A4BA-51FF-4CA1-94AD-139187570D15.jpeg
 
 说不定不说了呢，某些人简直莫名其妙
 
+
+
+*****
+
+####  cat1230  
+##### 1222#       发表于 2021-11-26 15:25
+
+我更想看今天应援灯不变色的有几个<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 1223#       发表于 2021-11-26 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710507&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-11-26 15:25</a>
+
+我更想看今天应援灯不变色的有几个
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+配图
+
+499329D1-0584-446F-A27A-51E5195E1FA4.jpeg
+(144.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202111/26/153823i32vlz289873yr8r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
