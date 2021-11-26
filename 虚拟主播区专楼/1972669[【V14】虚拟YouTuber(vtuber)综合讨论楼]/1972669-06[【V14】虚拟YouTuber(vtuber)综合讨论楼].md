@@ -14800,3 +14800,24 @@ fra还特意点名了一下，结合这位自我介绍说喜欢音乐，大概�
 
 狙击
 
+
+
+*****
+
+####  OldGlory  
+##### 8632#       发表于 2021-11-26 20:48
+
+已经下了给撇撇让路了
+
+*****
+
+####  cxj649  
+##### 8633#       发表于 2021-11-26 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707639&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-26 11:55</a>
+
+为什么就不是点生活叛军</blockquote>
+因为最像点叛军大米先行转生成个功利卖肉底边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然不太可能，但如果这次有亲点那几个的话就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

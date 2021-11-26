@@ -20815,3 +20815,26 @@ CARNELIAN先生
 
 BETA大忠臣沙雾尚哉真是好样的，让日本失去大量战力的男人啊，不知火和击震损失了不少<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hacisiki  
+##### 1463#       发表于 2021-11-26 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53714445&amp;ptid=1860817" target="_blank">Carta_Issue 发表于 2021-11-26 20:27</a>
+
+BETA大忠臣沙雾尚哉真是好样的，让日本失去大量战力的男人啊，不知火和击震损失了不少 ...</blockquote>
+光帝都防卫师团就3个联队的战术机，加上富士教导队和进缴的第二次和绝对防御线上的帝国军部队和美军的损失。还不知道有没有其他响应撅起的战术机部队。
+
+*****
+
+####  慕容断月  
+##### 1464#       发表于 2021-11-26 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713738&amp;ptid=1860817" target="_blank">nicholas30 发表于 2021-11-26 19:39</a>
+有人知道steam版是移植的哪個版本嗎？
+
+最近打折半價想買來補習一下</blockquote>
+直接买无印和alt，目前steam版就是最适合现在体验的版本，不需要折腾
+
