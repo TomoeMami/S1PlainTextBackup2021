@@ -20859,3 +20859,18 @@ BETA大忠臣沙雾尚哉真是好样的，让日本失去大量战力的男人�
 在125里损失的F22就好几架，连带能开22的精锐卫士，美军心疼又肉疼</blockquote>
 一个中队啊啊啊啊啊啊
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1467#       发表于 2021-11-26 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713738&amp;ptid=1860817" target="_blank">nicholas30 发表于 2021-11-26 19:39</a>
+有人知道steam版是移植的哪個版本嗎？
+
+最近打折半價想買來補習一下</blockquote>
+steam版就是以前的PC版啊，如果要较真的话应该是后期的win7版。首次接触的话只买那两款支持中文的就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

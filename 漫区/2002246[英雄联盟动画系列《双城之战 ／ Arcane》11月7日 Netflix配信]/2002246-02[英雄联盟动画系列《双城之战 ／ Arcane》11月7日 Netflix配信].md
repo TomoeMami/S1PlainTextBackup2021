@@ -13494,3 +13494,15 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 
 正经人谁写日记
 
+
+
+*****
+
+####  古凌锋  
+##### 2770#       发表于 2021-11-26 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715320&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-26 21:22</a>
+
+端游第四个免费皮肤的任务，档案有jinx的绘本日记</blockquote>
+那个好像不是日记，就是绘本，台词是金克斯的录音？
+
