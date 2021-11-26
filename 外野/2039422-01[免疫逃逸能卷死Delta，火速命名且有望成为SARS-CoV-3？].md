@@ -953,3 +953,182 @@ SARS当年没有医疗挤兑已经很恐怖了（当然主要是得了就要去�
 欧洲和南非应该航班交往密切，政治关系也密切 ...</blockquote>
 英国已经断航了。
 
+
+
+*****
+
+####  riczxc  
+##### 91#         楼主| 发表于 2021-11-26 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705247&amp;ptid=2039422" target="_blank">自由斗士 发表于 2021-11-26 08:42</a>
+
+利好辉瑞和摩德纳</blockquote>
+血清分型的意思是，打了疫苗也多半没用。
+
+要开发新的疫苗了。
+
+*****
+
+####  sadaharu529  
+##### 92#       发表于 2021-11-26 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705277&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 08:45</a>
+英国已经断航了。</blockquote>
+英国真的狡猾，可能想摸着欧洲过河吧。
+
+*****
+
+####  粉色猛男  
+##### 93#       发表于 2021-11-26 08:47
+
+怎么还在点传播性啊，真就瘟疫公司啊
+
+*****
+
+####  ycwzq  
+##### 94#       发表于 2021-11-26 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705286&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 08:46</a>
+
+血清分型的意思是，打了疫苗也多半没用。
+
+要开发新的疫苗了。</blockquote>
+mRNA技术路线转新疫苗速度最快
+
+*****
+
+####  晃来晃去  
+##### 95#       发表于 2021-11-26 08:48
+
+<img src="https://img.saraba1st.com/forum/202111/26/084848emizw2irvesrmwdm.jpg" referrerpolicy="no-referrer">
+
+<strong>1931786187.jpg</strong> (127.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 08:48 上传
+
+本子这是怎么回事？
+
+*****
+
+####  creymorgan  
+##### 96#       发表于 2021-11-26 08:50
+
+<blockquote>晃来晃去 发表于 2021-11-26 08:48
+本子这是怎么回事？</blockquote>
+日本接种开始的晚，现在绝大多数是半年内的，抗体鲜活着呢
+
+*****
+
+####  Akakaka  
+##### 97#       发表于 2021-11-26 08:50
+
+<blockquote>AraTurambar 发表于 2021-11-26 08:29
+看到了，确实是爆了。
+
+赶紧造新疫苗吧，以后新冠疫苗就和流感一样复合毒株了。
+</blockquote>
+二价二联都在做了
+
+我们这个环节已经全力加速了，各个环节都是全力状态
+
+谁能想象这个版本号更新这么快啊…
+
+*****
+
+####  内野  
+##### 98#       发表于 2021-11-26 08:51
+
+天佑日本人？几年后是不是可以和平接手樱花妹？
+
+*****
+
+####  罗莉控  
+##### 99#       发表于 2021-11-26 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704708&amp;ptid=2039422" target="_blank">mrzc 发表于 2021-11-26 06:50</a>
+
+看分析是在往其它导致感冒症状的冠状病毒演化，不过只综合其它族类的优点，有可能是delta卷出来的新六边 ...</blockquote>
+拍老师的说法是新变异株的FCS切割点的序列正在往OC43的序列演进，OC43是感冒病毒中最广泛传播的一种，其FCS切割点被认为是自然界中最优化的
+
+*****
+
+####  武蔵  
+##### 100#       发表于 2021-11-26 08:53
+
+新冠真是钝刀子割肉啊，欧洲各国整天仰卧起坐的，很难说到底是不负责任的政府培养了短视的国民，还是短视的国民造就了不负责任的政府
+
+*****
+
+####  克鲁特尼  
+##### 101#       发表于 2021-11-26 08:54
+
+<blockquote>罗莉控 发表于 2021-11-26 08:52
+拍老师的说法是新变异株的FCS切割点的序列正在往OC43的序列演进，OC43是感冒病毒中最广泛传播的一种，其F ...</blockquote>
+以后口罩要戴很多年了么。。。
+
+*****
+
+####  riczxc  
+##### 102#         楼主| 发表于 2021-11-26 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705236&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 08:41</a>
+
+欧洲和南非交往密切，那个摩纳哥王妃不就又被从南非逮回去吗？
+
+如果这个病毒真牛，那欧洲肯定先爆。</blockquote>
+随便看看，开普敦到欧洲就两班了，然后约翰内斯堡到欧洲也有三班。毫不设防啊。
+
+*****
+
+####  罗莉控  
+##### 103#       发表于 2021-11-26 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705019&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 08:16</a>
+
+这个病毒盛行后，南非情况究竟怎么样嘛？比之前差很多吗？
+
+辉瑞的特效药还有没有效果？ ...</blockquote>
+由于NSP4（还是5？）那个靶点没变，辉瑞神药应该还有效
+
+*****
+
+####  罗莉控  
+##### 104#       发表于 2021-11-26 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705171&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 08:33</a>
+
+我是感觉如果欧洲都还没慌的话，那南非新变种就还不严重。
+
+欧洲和南非应该航班交往密切，政治关系也密切 ...</blockquote>
+欧洲的检测能力…………这个变异株是香港检测出来的，12日左右上报，后面一周南非附近就上报了十几例，然后南非就用快速检测法检测这玩意与delta不同的位点（这个在某个位点和alpha相同，与delta不同），惊奇发现在某些地区这玩意市场占有率已经75了
+
+*****
+
+####  nerugigannte  
+##### 105#       发表于 2021-11-26 09:02
+
+νウィルスはダテじゃない
+
+*****
+
+####  自由斗士  
+##### 106#       发表于 2021-11-26 09:03
+
+<blockquote>riczxc 发表于 2021-11-26 08:46
+血清分型的意思是，打了疫苗也多半没用。
+
+要开发新的疫苗了。</blockquote>
+所以利好这两家有mRNA疫苗开发能力的公司。
+
+*****
+
+####  电脑死机  
+##### 107#       发表于 2021-11-26 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704273&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-11-26 02:33</a>
+
+说这些人民群众也看不懂， 一天死1w之前没人会在乎</blockquote>
+错了，是他们社区一天死1w才会在乎
+
