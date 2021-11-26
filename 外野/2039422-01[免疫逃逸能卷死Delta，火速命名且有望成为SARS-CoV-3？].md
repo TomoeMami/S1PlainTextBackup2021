@@ -4026,3 +4026,36 @@ moderna的剂量已经超大了
 感觉主要还是加剂量不用重新审批？</blockquote>
 moderna那个已经是biontech的三倍了，都不敢让30岁以下的打。还要加？
 
+
+
+*****
+
+####  pushare  
+##### 373#       发表于 2021-11-27 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717405&amp;ptid=2039422" target="_blank">边缘中心 发表于 2021-11-27 01:16</a>
+J&amp;J现在的说法是因为效果低，所有人都应该在2个月打第二针，倒是没有第三针的政策。不过三针mRNA都有再感 ...</blockquote>
+中奖的是两针az后再打一针强生的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lord_Voldemort  
+##### 374#       发表于 2021-11-27 07:17
+
+世卫罕见高效率、各国争先恐后的断航、股市暴跌、期货暴跌。。。突然间慌成这样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看的人心慌
+到底真是新蛊王登基，还是恐慌在传播中放大了
+
+*****
+
+####  Redis  
+##### 375#       发表于 2021-11-27 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717936&amp;ptid=2039422" target="_blank">Lord_Voldemort 发表于 2021-11-27 07:17</a>
+
+世卫罕见高效率、各国争先恐后的断航、股市暴跌、期货暴跌。。。突然间慌成这样看的人心慌
+
+到底真是 ...</blockquote>
+感觉是熟练了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过看moderna和辉瑞的发言人的发言来看，情况的确不容乐观，之前delta出来的时候他们都是有信心，现在感觉是很没信心了，如果最后抗感染的效力降低到20-30%，那么和疫苗失效也没啥区别了
+
