@@ -15635,3 +15635,32 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 就我今天排了一上午蛇头到刚才的经验，看到x级大家直接退了算了，我碰到的x级全是些开倒数的。带我飞的那场倒都是s2的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 1415#       发表于 2021-11-26 14:45
+
+明明大家一起开A800车就解决的事情，非要给BOT送X999的车，真的是对自己的水平和BOT的作弊能力没有B数
+
+*****
+
+####  舌怪  
+##### 1416#       发表于 2021-11-26 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709969&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-26 14:45</a>
+
+明明大家一起开A800车就解决的事情，非要给BOT送X999的车，真的是对自己的水平和BOT的作弊能力没有B数 ...</blockquote>
+话说游戏里的俱乐部能不能喊人组队啊？
+
+*****
+
+####  aaronluray  
+##### 1417#       发表于 2021-11-26 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709969&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-26 14:45</a>
+
+明明大家一起开A800车就解决的事情，非要给BOT送X999的车，真的是对自己的水平和BOT的作弊能力没有B数 ...</blockquote>
+决定接下来闲了就去做善事，开辆d级进去然后秒退。兄弟啊只能帮你们到这了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

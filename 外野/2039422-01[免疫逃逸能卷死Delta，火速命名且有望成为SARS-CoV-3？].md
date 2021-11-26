@@ -2282,3 +2282,65 @@ delta是阿纳海姆系的，而mk2是镇暴型吉姆发展出来的，应该是
 这是仰卧起坐成瘾了？</blockquote>
 好像说是上任六小时后辞了，然后又复职了。。
 
+
+
+*****
+
+####  飞奔的拓拓  
+##### 219#       发表于 2021-11-26 14:47
+
+<blockquote>骆宾王 发表于 2021-11-26 14:33
+不买的我们不生产不就好了？原材料输出比工业品输出牛逼是哪条世界线啊？ ...</blockquote>
+没说牛逼啊，但这波通胀肯定迟早得吃。外国乱放水肯定会影响国内物价。
+
+*****
+
+####  lwflwf  
+##### 220#       发表于 2021-11-26 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709874&amp;ptid=2039422" target="_blank">天野银次X美堂蛮 发表于 2021-11-26 14:36</a>
+
+好像说是上任六小时后辞了，然后又复职了。。</blockquote>
+本来辞职就是社民希望单独组建吧
+
+*****
+
+####  天野银次X美堂蛮  
+##### 221#       发表于 2021-11-26 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710025&amp;ptid=2039422" target="_blank">lwflwf 发表于 2021-11-26 14:50</a>
+
+本来辞职就是社民希望单独组建吧</blockquote>
+搞不明白这类仰卧起坐的原因。。我这么个外国人看个热闹就是了
+
+*****
+
+####  雨落飘零  
+##### 222#       发表于 2021-11-26 14:54
+
+前段时间泥潭不是有个国外回来得了新冠的傻逼，在论坛嚷嚷航班熔断太傻逼，一个月多几百个入境感染也没事的吗，当时就给扣到负500鹅，我自己也扣了他十几二十鹅吧，那时就感觉这种傻逼根本不带冤枉的，现在看到这条，只恨鹅扣得还不够
+
+*****
+
+####  lwflwf  
+##### 223#       发表于 2021-11-26 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53710033&amp;ptid=2039422" target="_blank">天野银次X美堂蛮 发表于 2021-11-26 14:50</a>
+
+搞不明白这类仰卧起坐的原因。。我这么个外国人看个热闹就是了</blockquote>
+Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被否决了
+
+所以她辞职，现在在申请成立社民的单独政府，这个月月底投票
+
+*****
+
+####  66666  
+##### 224#       发表于 2021-11-26 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704888&amp;ptid=2039422" target="_blank">小妻水亚美 发表于 2021-11-26 07:52</a>
+
+以前觉得高死亡率的如埃博拉，还没传播开患者就都死光了，反倒没事。
+
+但最近这几年看到发达国家这么拉跨的 ...</blockquote>
+致死率越高的病毒越好防疫，物理隔绝一段时间让宿主都死光就OK了，但是新冠这种低致死率高传染性且大量无症状传染的病毒，一般的隔离措施根本用处不大
+
