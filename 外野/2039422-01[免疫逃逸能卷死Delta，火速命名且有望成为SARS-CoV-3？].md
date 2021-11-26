@@ -3592,3 +3592,31 @@ Israel has identified four cases of the B.1.1.529 variant, all recent travellers
 另外，两针AZ，9月份一针强生中奖的也有了</blockquote>
 这个连中delta都不奇怪，中这个不是更理所当然<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 334#       发表于 2021-11-27 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717273&amp;ptid=2039422" target="_blank">边缘中心 发表于 2021-11-27 00:46</a>
+
+这个连中delta都不奇怪，中这个不是更理所当然</blockquote>
+打完三针腺病毒重组的delta突破之前有记录？没印象了
+
+*****
+
+####  pyx  
+##### 335#       发表于 2021-11-27 00:52
+
+也别整mRNA什么的了，老实学流感疫苗，每年刷个新的灭活加强针吧。。。
+
+*****
+
+####  zqr211  
+##### 336#       发表于 2021-11-27 00:52
+
+周一大a记得买300142沃森生物
+
+这玩意有自产mrna疫苗的实力 怕是要重回100了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
