@@ -3302,3 +3302,77 @@ alpha虽然现在是弱鸡，可传染力是原始毒株的两倍哦。</blockqu
 
 —— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  foxpat  
+##### 307#       发表于 2021-11-26 21:10
+
+这玩意儿主要是感觉比德尔塔还卷，然后速度还快，就看今年元旦欧美是不是大街上烧死人了
+
+*****
+
+####  太吾士河  
+##### 308#       发表于 2021-11-26 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715156&amp;ptid=2039422" target="_blank">foxpat 发表于 2021-11-26 21:10</a>
+这玩意儿主要是感觉比德尔塔还卷，然后速度还快，就看今年元旦欧美是不是大街上烧死人了 ...</blockquote>
+怎么可能像🇮🇳佬那样？太不体面了！
+冷冻车管够<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  克鲁特尼  
+##### 309#       发表于 2021-11-26 21:16
+
+看欧美12月份的情况了，要是一个多月就能单刷欧美副本，我觉得我们过年之前还是多屯点东西
+
+*****
+
+####  zwf1020  
+##### 310#       发表于 2021-11-26 21:19
+
+如果出现ade就可以看到欧美成片路倒了
+
+*****
+
+####  foxpat  
+##### 311#       发表于 2021-11-26 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715226&amp;ptid=2039422" target="_blank">太吾士河 发表于 2021-11-26 21:15</a>
+
+怎么可能像🇮🇳佬那样？太不体面了！
+
+冷冻车管够</blockquote>
+现在集装箱都不够用了，冷冻车怕不是也很难管够，上上次看到大街上烧死人是在新崔斯特瑞姆，上次是在德里，这次不知道在哪儿
+
+*****
+
+####  pushare  
+##### 312#       发表于 2021-11-26 21:22
+
+似乎最后一班从豪登起飞的航班（应该是约翰内斯堡）送了300乘客到伦敦？
+
+“A friend arrived in London this morning on one of the last flights from South Africa.
+
+Health officials met the plane, but no additional precautions are being taken for the hundreds of passengers.”
+
+“The flight came from Gauteng - the province where the new variant was identified.
+Flight arriving in London from Gauteng (the most affected 🇿🇦 province) this morning 
+
+So…the passengers did what?  Just got on the Trains or into taxis after an 11.5 hour flight, plus all the mixing in the airport before and after?
+
+How many?  300?”
+
+*****
+
+####  克鲁特尼  
+##### 313#       发表于 2021-11-26 21:23
+
+<blockquote>foxpat 发表于 2021-11-26 21:20
+现在集装箱都不够用了，冷冻车怕不是也很难管够，上上次看到大街上烧死人是在新崔斯特瑞姆，上次是在德里 ...</blockquote>
+说到集装箱，最近立陶宛就用了集装箱处置难民，我在想那么密集会不会暴雷
+

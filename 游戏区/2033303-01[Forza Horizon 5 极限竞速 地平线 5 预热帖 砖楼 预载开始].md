@@ -15813,3 +15813,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Vladimeow  
+##### 1432#       发表于 2021-11-26 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713984&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-26 20:02</a>
+这个任务有什么特别的吗，我是直接拍了没事，倒是这周那个要在晚上拍照的一直做不了，天黑了怎么拍都不算 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是在那个午夜狂飙的季节赛里做完了
+

@@ -13434,3 +13434,54 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 
 有些时候就需要一个工具人，维克托没人拉一把，这部剧就讲不完了
 
+
+
+*****
+
+####  thez  
+##### 2765#       发表于 2021-11-26 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713786&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-26 19:44</a>
+
+档案大家看了么？jinx心路历程有意思</blockquote>
+啥档案？求链接
+
+*****
+
+####  飞升之后  
+##### 2766#       发表于 2021-11-26 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711366&amp;ptid=2002246" target="_blank">不入流美术 发表于 2021-11-26 16:26</a>
+
+没几集就领便当的那个女警配音是太空无垠里的联合国秘书长老太太吗</blockquote>
+这个？
+
+7352978fly1gwrn00vbctj20u00xwgq7.jpg
+(134.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202111/26/212015n774mieinkn77k2y.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  不入流美术  
+##### 2767#       发表于 2021-11-26 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715289&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-26 21:20</a>
+
+这个？</blockquote>
+对，就是这位，声音太好辨认了
+
+*****
+
+####  ammk  
+##### 2768#       发表于 2021-11-26 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715287&amp;ptid=2002246" target="_blank">thez 发表于 2021-11-26 21:20</a>
+
+啥档案？求链接</blockquote>
+端游第四个免费皮肤的任务，档案有jinx的绘本日记
+
