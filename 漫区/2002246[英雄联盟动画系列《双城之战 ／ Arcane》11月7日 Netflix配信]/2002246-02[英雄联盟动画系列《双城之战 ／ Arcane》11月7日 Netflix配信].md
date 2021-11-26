@@ -13313,3 +13313,15 @@ b站号拳头游戏音乐也可以听
 梅尔最后给了个镜头，身上金纹亮起不会是什么保命魔法吧？毕竟特意给了个裸背镜头都要展示这个金纹，总要提 ...</blockquote>
 和第二季一起新出个英雄，梅尔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  弗林蒂萨  
+##### 2755#       发表于 2021-11-26 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704611&amp;ptid=2002246" target="_blank">性欲モンスター 发表于 2021-11-26 04:50</a>
+
+刚看完了，能不能别再出现智障狗血老套的夺回装着重要东西的容器但偏偏就是不花几秒时间打开确定东西还在里 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">英雄怎么死，这是游戏正片之前的剧情
+

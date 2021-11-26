@@ -819,3 +819,137 @@ SARS当年没有医疗挤兑已经很恐怖了（当然主要是得了就要去�
 —— 来自 S1Fun</blockquote>
 共生就算了。怕的是会不会互相促进（通过OAS/ADE）。
 
+
+
+*****
+
+####  星野结衣  
+##### 78#       发表于 2021-11-26 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704911&amp;ptid=2039422" target="_blank">Vincent_law 发表于 2021-11-26 07:57</a>
+空气就能传播…感觉只抓密接或者密接的密接有点不够用了</blockquote>
+呼吸道疾病主要传播途径不通过空气那通过啥。。。有点看不懂你的逻辑
+更何况新冠比普通的冠状病毒传染能力强多了
+
+*****
+
+####  AraTurambar  
+##### 79#       发表于 2021-11-26 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704981&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-26 08:12</a>
+
+日增数变成了4倍，那么凭空多出来的部分不就是75%。</blockquote>
+看到了，确实是爆了。
+
+赶紧造新疫苗吧，以后新冠疫苗就和流感一样复合毒株了。
+
+还有就是不知道药物还起不起效果，毕竟不走抗体。
+
+*****
+
+####  钢铁之魂  
+##### 80#       发表于 2021-11-26 08:31
+
+话说，南非在南半球，现在是夏天吧，这新变种要是来北半球不是杀疯了？
+
+*****
+
+####  sadaharu529  
+##### 81#       发表于 2021-11-26 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705064&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 08:22</a>
+也就是这一波提前开始了，还没到挤兑的时候。以前新冠一波波地来，现在可能没喘气的空间了吧。</blockquote>
+我是感觉如果欧洲都还没慌的话，那南非新变种就还不严重。
+
+欧洲和南非应该航班交往密切，政治关系也密切，要有事也是欧洲先遭。
+
+*****
+
+####  炽十二翼  
+##### 82#       发表于 2021-11-26 08:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不执行清零政策的会被动清零吗？
+
+*****
+
+####  坚果大爷  
+##### 83#       发表于 2021-11-26 08:37
+
+<blockquote>sadaharu529 发表于 2021-11-26 08:33
+我是感觉如果欧洲都还没慌的话，那南非新变种就还不严重。
+
+欧洲和南非应该航班交往密切，政治关系也密切 ...</blockquote>
+实在是不敢相信欧洲的判断力
+
+*****
+
+####  zhy_2018  
+##### 84#       发表于 2021-11-26 08:39
+
+不点死亡率，估计还是没人当回事，也就我们比较认真
+
+*****
+
+####  之世郎  
+##### 85#       发表于 2021-11-26 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705171&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 08:33</a>
+
+我是感觉如果欧洲都还没慌的话，那南非新变种就还不严重。
+
+欧洲和南非应该航班交往密切，政治关系也密切 ...</blockquote>
+这个新变种的命名24小时就走了正常的10天流程，全程欧洲病毒学家开后门，你猜欧洲怕不怕呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sadaharu529  
+##### 86#       发表于 2021-11-26 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705204&amp;ptid=2039422" target="_blank">坚果大爷 发表于 2021-11-26 08:37</a>
+实在是不敢相信欧洲的判断力</blockquote>
+欧洲和南非交往密切，那个摩纳哥王妃不就又被从南非逮回去吗？
+
+如果这个病毒真牛，那欧洲肯定先爆。
+
+先不用焦虑，看欧洲结果就好。
+
+*****
+
+####  自由斗士  
+##### 87#       发表于 2021-11-26 08:42
+
+利好辉瑞和摩德纳
+
+*****
+
+####  sadaharu529  
+##### 88#       发表于 2021-11-26 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705233&amp;ptid=2039422" target="_blank">之世郎 发表于 2021-11-26 08:40</a>
+这个新变种的命名24小时就走了正常的10天流程，全程欧洲病毒学家开后门，你猜欧洲怕不怕呢 ...</blockquote>
+哇塞，一向拖拖拉拉的欧洲通关流程这么快，看样子威慑性可能真有点大。
+
+不过毕竟没封城没执行清零政策，说不定也就是取代delta的社会地位，不慌，不慌……
+
+*****
+
+####  之世郎  
+##### 89#       发表于 2021-11-26 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705247&amp;ptid=2039422" target="_blank">自由斗士 发表于 2021-11-26 08:42</a>
+
+利好辉瑞和摩德纳</blockquote>
+香港感染者就是打过辉瑞疫苗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 90#         楼主| 发表于 2021-11-26 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705171&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 08:33</a>
+
+我是感觉如果欧洲都还没慌的话，那南非新变种就还不严重。
+
+欧洲和南非应该航班交往密切，政治关系也密切 ...</blockquote>
+英国已经断航了。
+
