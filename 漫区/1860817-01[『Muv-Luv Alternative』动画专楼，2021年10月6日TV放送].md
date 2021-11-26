@@ -20806,3 +20806,12 @@ CARNELIAN先生
 
 最近打折半價想買來補習一下
 
+
+
+*****
+
+####  Carta_Issue  
+##### 1462#       发表于 2021-11-26 20:27
+
+BETA大忠臣沙雾尚哉真是好样的，让日本失去大量战力的男人啊，不知火和击震损失了不少<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

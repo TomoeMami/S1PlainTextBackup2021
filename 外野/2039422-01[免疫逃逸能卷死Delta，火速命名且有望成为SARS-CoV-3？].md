@@ -3282,3 +3282,23 @@ alpha虽然现在是弱鸡，可传染力是原始毒株的两倍哦。
 俺觉得别人战胜新冠我们输了，别人没战胜新冠我们也输了，怕不是b站ceo摸电线，输麻了 ...</blockquote>
 球球你们不要再摸电线了，笑麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 305#       发表于 2021-11-26 20:27
+
+现在这个病毒就像是个dot灾变点数，消灾变点数就要扣钱扣发展度，只要不去消，灾变点数就开始涨，而且还有阶段条，全球只要有一个国家灾变点数涨满了，影响就进入下一个阶段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米村正二  
+##### 306#       发表于 2021-11-26 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53714080&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 20:08</a>
+alpha虽然现在是弱鸡，可传染力是原始毒株的两倍哦。</blockquote>
+卷不过delta都是小透明。
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
