@@ -1276,3 +1276,48 @@ mRNA技术路线转新疫苗速度最快
 
 这还没打败沙鲁，布欧都已经骑脸了
 
+
+
+*****
+
+####  塑料士官长  
+##### 122#       发表于 2021-11-26 10:13
+
+我想过很多未来的可能性
+
+我便未估到是《黄卡人》和《发条女孩》世界线啊，大家物理隔离了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  coldhot3  
+##### 123#       发表于 2021-11-26 10:14
+
+<blockquote>Vincent_law 发表于 2021-11-26 07:57
+空气就能传播…感觉只抓密接或者密接的密接有点不够用了</blockquote>
+我一直认为有hepa滤膜的宇航服比较有效，以后每个人都是自己隔离的微环境。健康人头盔上有绿光，阳性患者闪黄光，宇航服破了的闪红光。
+
+*****
+
+####  med  
+##### 124#       发表于 2021-11-26 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704856&amp;ptid=2039422" target="_blank">yigua 发表于 2021-11-26 07:45</a>
+
+cov3，第一反应是3x3卷积神经网络
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 难道不是三维卷积 c3d 
+
+*****
+
+####  自由斗士  
+##### 125#       发表于 2021-11-26 10:19
+
+<blockquote>罗莉控 发表于 2021-11-26 09:11
+知乎上的喷总（莫得纳员工）打游戏打的不亦乐乎，情况还不严重！</blockquote>
+美国技术红利
+
+摩德纳那套工艺都是成熟的了，可以说是以不变应万变了，疫苗开发时间是小时级的
+
+他都财务自由了，有的就是钱，就算中招都可以像ykw一样直接定制大剂量单抗。
+

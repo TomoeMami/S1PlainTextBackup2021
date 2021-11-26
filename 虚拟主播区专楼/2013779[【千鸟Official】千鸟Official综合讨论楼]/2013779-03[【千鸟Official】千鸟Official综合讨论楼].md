@@ -157,3 +157,12 @@ syl 文静在一楼，其他几个都在二楼，其实真听不到文静在那�
 
 仔细听 音色还是有点区别，不过第一次听我也没听出来啥区别
 
+
+
+*****
+
+####  蠢蠢C  
+##### 3016#       发表于 2021-11-26 10:06
+
+确实好像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
