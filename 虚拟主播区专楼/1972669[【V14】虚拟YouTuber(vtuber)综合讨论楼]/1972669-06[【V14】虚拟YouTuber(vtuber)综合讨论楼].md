@@ -14667,3 +14667,26 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 
 我听说大米早早转生了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8621#       发表于 2021-11-26 12:31
+
+然后大米成了一天开三窗会限对应不同会员等级的女人，让人大开眼界
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  rzrbtk  
+##### 8622#       发表于 2021-11-26 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707374&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-11-26 11:36</a>
+老师是不是今年要毕业了
+新衣服加吉祥物联动和军舰双叶……</blockquote>
+明年，最早也是明年，最近还自己说也许是全社最不想引退的liver。
+郡郡最近这种观众友好型直播很多，霓虹疫情好起来了准备开始挣旅游钱的感觉，好像还要跟妈去海外来着。
+不过最近又是姐妹又是吉祥物又是月樱女子组会限看香芹节目好像回到了一年前，物是人非惹
+

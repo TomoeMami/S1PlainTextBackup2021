@@ -1934,3 +1934,57 @@ mk2并不强吧 那这次的牛变种得有多强（
 反科学反人类政权终结者还差不多</blockquote>
 康米幽灵再抬头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  物理毒狗  
+##### 184#       发表于 2021-11-26 12:28
+
+还是得等后续，楼里的承日难收收味儿<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 185#       发表于 2021-11-26 12:32
+
+Ω到底什么时候才出现，还是因为太恐怖而不会用omega命名
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一顿王八拳  
+##### 186#       发表于 2021-11-26 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704466&amp;ptid=2039422" target="_blank">蛇头 发表于 2021-11-26 03:23</a>
+
+又要屯点物资窝家里了，希望日本政府别作死</blockquote>
+大家现在一看数据每天全国感染数才100例左右，全都开始放飞自我了。然后这两天看到的两针接种率才70%多，年末的旅游看来又要泡汤了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊可费斯  
+##### 187#       发表于 2021-11-26 12:41
+
+传染性高，说明致死率低吧，这波是强制共存。
+
+*****
+
+####  wwdzcjsmxx  
+##### 188#       发表于 2021-11-26 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704178&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-26 02:13</a>
+刚看完，感染德尔塔的抗体护不了体，再得新病毒很快。香港的隔离酒店对门同开，呼吸阀漏的微小部分就可以传 ...</blockquote>
+呼吸伐都过滤不了吗<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 189#       发表于 2021-11-26 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708344&amp;ptid=2039422" target="_blank">伊可费斯 发表于 2021-11-26 12:41</a>
+
+传染性高，说明致死率低吧，这波是强制共存。</blockquote>
+然而所有现实都证明新冠是往高传播高致死发展的，一开始全世界流行的毒株确实对老人以外影响不大，然后你也看到了，阿三株连阿三都杀的坟头遍地火葬场爆满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
