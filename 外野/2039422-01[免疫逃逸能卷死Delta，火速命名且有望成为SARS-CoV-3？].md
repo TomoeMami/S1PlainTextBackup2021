@@ -3450,3 +3450,58 @@ How many?  300?”
 英国今天一天就飞快执行把南部非洲6国列入旅行红色名单了。旅客必须隔离。欧洲显然是怕的。 ...</blockquote>
 楼上转了推，显然不行。
 
+
+
+*****
+
+####  creymorgan  
+##### 320#       发表于 2021-11-26 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715695&amp;ptid=2039422" target="_blank">曾鸟栖夜夏 发表于 2021-11-26 21:55</a>
+
+默沙东新数据保护力下降至30%</blockquote>
+总的来说，相比疫苗和旧病毒的自然免疫，现在药物没有大规模使用不存在抗药筛选，同时多款药物针对不同靶点，突变基本不影响现有药物的研制意义。
+
+*****
+
+####  aegisangel  
+##### 321#       发表于 2021-11-26 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711127&amp;ptid=2039422" target="_blank">自由斗士 发表于 2021-11-26 16:09</a>
+
+还是不要用你们大棋党的“常识”来纠正我的现实了。
+
+现实就是别人拒绝的原因就是政治。今年和M硝子和O陶 ...</blockquote>
+西方铁板一块，原来天下熙熙是S B想出来的
+
+*****
+
+####  pushare  
+##### 322#       发表于 2021-11-26 22:15
+
+那要每月一针？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+Israel has identified four cases of the B.1.1.529 variant, all recent travellers. One case, a 32-year-old woman returning from South Africa, was triple vaccinated with Pfizer and had her 3rd dose just two months ago.
+
+*****
+
+####  AraTurambar  
+##### 323#       发表于 2021-11-26 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715906&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-26 22:10</a>
+
+总的来说，相比疫苗和旧病毒的自然免疫，现在药物没有大规模使用不存在抗药筛选，同时多款药物针对不同靶 ...</blockquote>
+要确保不出定向突变的话，必须上鸡尾酒，甚至有条件的情况下联用单抗和其他一些辅助药物。
+
+所以必须三家一起爆产能，最好授权别家药厂一起爆产能，我主要是不信任非洲赤脚医生的水平。
+
+*****
+
+####  曾鸟栖夜夏  
+##### 324#       发表于 2021-11-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715906&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-26 22:10</a>
+
+总的来说，相比疫苗和旧病毒的自然免疫，现在药物没有大规模使用不存在抗药筛选，同时多款药物针对不同靶 ...</blockquote>
+新数据可不是对新变种
+
