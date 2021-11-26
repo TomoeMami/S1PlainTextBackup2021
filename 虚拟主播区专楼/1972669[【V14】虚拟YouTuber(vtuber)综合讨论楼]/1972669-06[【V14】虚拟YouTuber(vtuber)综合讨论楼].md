@@ -14630,3 +14630,31 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 
 金鱼msmgbr4小姐能中几个？
 
+
+
+*****
+
+####  十四洲  
+##### 8617#       发表于 2021-11-26 11:43
+
+军舰双叶第二次了，不算buff吧…
+
+*****
+
+####  poipanchao  
+##### 8618#       发表于 2021-11-26 11:49
+
+ 本帖最后由 poipanchao 于 2021-11-26 11:51 编辑 
+
+彩虹好死！
+
+杏6这宣传图比立绘好看多了
+顺便这个时间直接绝了bo的可能
+
+*****
+
+####  死体残留  
+##### 8619#       发表于 2021-11-26 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么就不是点生活叛军
+

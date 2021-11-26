@@ -1744,3 +1744,129 @@ delta能防下来，这个应该也有希望。</blockquote>
 
 “不就是个破疫苗吗！看我把它退回去！”
 
+
+
+*****
+
+####  自由斗士  
+##### 167#       发表于 2021-11-26 11:48
+
+<blockquote>tomatoKnight 发表于 2021-11-26 10:42
+那你想想死的不是人，是我们的出口市场需求在一点点掉。
+
+这样下去，国内生产一开始因为产业转移景气，最 ...</blockquote>
+出口市场萎缩主要原因是政治。就算新冠结束，出口市场也回不来了
+
+*****
+
+####  Karajan  
+##### 168#       发表于 2021-11-26 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706711&amp;ptid=2039422" target="_blank">tomatoKnight 发表于 2021-11-26 10:42</a>
+那你想想死的不是人，是我们的出口市场需求在一点点掉。
+
+这样下去，国内生产一开始因为产业转移景气，最 ...</blockquote>
+掉个鬼，疫情持续下去只会继续破坏他们的制造业，最后更加依赖进口
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天野银次X美堂蛮  
+##### 169#       发表于 2021-11-26 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707495&amp;ptid=2039422" target="_blank">cubesun 发表于 2021-11-26 11:45</a>
+
+不能，这个叫Nu，是主角机，战斗力比delta强很多的。
+
+“不就是个破疫苗吗！看我把它推回去！”</blockquote>
+脑中beyond the time开始响起了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOGmk2  
+##### 170#       发表于 2021-11-26 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707139&amp;ptid=2039422" target="_blank">天野银次X美堂蛮 发表于 2021-11-26 11:14</a>
+
+说句比较反人类的话。。。死亡率还是低了。不然早重视起来了</blockquote>
+COVID就是完美卡在这条线上,低了就真是流感了,高了压力巨大就没这么浪
+
+*****
+
+####  acgcon  
+##### 171#       发表于 2021-11-26 11:54
+
+照这个趋势，以后可以直接改名人类终结者了
+
+*****
+
+####  人民de救星  
+##### 172#       发表于 2021-11-26 11:58
+
+元祖→Delta→Nu 下一个是不是 Unicorn<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ak123  
+##### 173#       发表于 2021-11-26 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707630&amp;ptid=2039422" target="_blank">acgcon 发表于 2021-11-26 11:54</a>
+
+照这个趋势，以后可以直接改名人类终结者了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反科学反人类政权终结者还差不多
+
+*****
+
+####  飞奔的拓拓  
+##### 174#       发表于 2021-11-26 11:59
+
+<blockquote>03e7 发表于 2021-11-26 11:42
+进口原材料价格暴涨，出口商品价格爆爆爆爆爆涨
+
+最好自己的事，只要受影响比对手少我们就赢了 ...</blockquote>
+并不会的，上涨幅度是有限的。很多工业品不是必需的，价格真涨到一定程度不买就是了。只能说疫情之下国外肯定比国内惨，但一波伤害还是免不了吃的，未必是利大于弊。
+
+*****
+
+####  ak123  
+##### 175#       发表于 2021-11-26 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707130&amp;ptid=2039422" target="_blank">waterstars 发表于 2021-11-26 11:13</a>
+
+那能怎么办？让西方国家封城清零？美国……等会，也别美国了，加州，一个州，来封城清零……别，也别加州了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有人信日本病毒神奇消失么？我怎么看严肃科学机构都当日本人放屁呢
+
+*****
+
+####  C.W.Nimitz  
+##### 176#       发表于 2021-11-26 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706387&amp;ptid=2039422" target="_blank">自由斗士 发表于 2021-11-25 18:19</a>
+
+美国技术红利
+
+摩德纳那套工艺都是成熟的了，可以说是以不变应万变了，疫苗开发时间是小时级的
+
+他都财务自 ...</blockquote>
+产能和运输问题咋解决？
+
+能造出来不等于能种到群众那
+
+*****
+
+####  ak123  
+##### 177#       发表于 2021-11-26 12:05
+
+<img src="https://img.saraba1st.com/forum/202111/26/120317jvrk8qgrarpamqdv.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211126120235.png</strong> (132.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 12:03 上传
+
+这几天欧米的尿性，平均6成的接种率加持下面对阿三株都一败涂地，再来个免疫逃逸的牛株，还不得杀个尸山血海<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
