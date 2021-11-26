@@ -184,3 +184,21 @@ syl 文静在一楼，其他几个都在二楼，其实真听不到文静在那�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  伞沢直美  
+##### 3019#       发表于 2021-11-26 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53703537&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-26 00:48</a>
+
+不要靠近文静的15个理由，不得不信！
+
+1.文静不满意陈珺的工作态度，几天后陈珺被调离岗位。
+
+2.冰糖关注文静 ...</blockquote>
+什么人形天灾😱
+
+万方有罪，罪在鸟批
+
