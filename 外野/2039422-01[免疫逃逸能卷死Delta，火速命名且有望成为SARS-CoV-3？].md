@@ -1988,3 +1988,81 @@ mk2并不强吧 那这次的牛变种得有多强（
 传染性高，说明致死率低吧，这波是强制共存。</blockquote>
 然而所有现实都证明新冠是往高传播高致死发展的，一开始全世界流行的毒株确实对老人以外影响不大，然后你也看到了，阿三株连阿三都杀的坟头遍地火葬场爆满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天野银次X美堂蛮  
+##### 190#       发表于 2021-11-26 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707718&amp;ptid=2039422" target="_blank">ak123 发表于 2021-11-26 11:59</a>
+
+真有人信日本病毒神奇消失么？我怎么看严肃科学机构都当日本人放屁呢 ...</blockquote>
+个人看到的想法。。。基本上对目前日本疫情还行是归结到目前还在疫苗抗体有效期内，加上日本相对的国民卫生较好，口罩习惯性戴着，然后暂时算是个疫情感染低谷来解释目前的情况的。至于之前日本人说的那个基因导致自爆的事儿，应该只是日本人自嗨而已
+
+*****
+
+####  ak123  
+##### 191#       发表于 2021-11-26 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708433&amp;ptid=2039422" target="_blank">天野银次X美堂蛮 发表于 2021-11-26 12:48</a>
+
+个人看到的想法。。。基本上对目前日本疫情还行是归结到目前还在疫苗抗体有效期内，加上日本相对的国民卫 ...</blockquote>
+这不是必然的么，日本人发这个傻逼新闻的时候一是新首相登基，二是接种率达到70%
+
+本质给领导吹牛逼呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天野银次X美堂蛮  
+##### 192#       发表于 2021-11-26 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708494&amp;ptid=2039422" target="_blank">ak123 发表于 2021-11-26 12:52</a>
+
+这不是必然的么，日本人发这个傻逼新闻的时候一是新首相登基，二是接种率达到70%
+
+本质给领导吹牛逼呢[f:0 ...</blockquote>
+随意了。。。。反正之后真要爆也会爆。。
+
+*****
+
+####  ひびき  
+##### 193#       发表于 2021-11-26 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708371&amp;ptid=2039422" target="_blank"> wwdzcjsmxx 发表于 2021-11-26 12:43</a> 引用:eezhangjie 发表于 2021-11-26 02:13 刚看完，感染德尔塔的抗体护不了体，再得新病毒很快。香港的隔离酒店对门同开，呼吸阀漏的微小部分就可以传 ... 呼吸伐都过滤不了吗 </blockquote>
+呼吸阀又不过滤往外呼的气来自: iPhone客户端
+
+*****
+
+####  hsxa  
+##### 194#       发表于 2021-11-26 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707996&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-11-26 12:16</a>
+
+查了下 delta是mk2
+
+mk2并不强吧 那这次的牛变种得有多强（</blockquote>
+delta是百式原型机啊...跟提坦斯的mk2不是一条线
+
+*****
+
+####  男开山  
+##### 195#       发表于 2021-11-26 13:02
+
+日本新冠灭绝不灭绝有啥关系？难道日本新冠灭绝了外面就不传染进去了？ 除非是传染进去就自动灭绝 那真是天选之地了
+
+*****
+
+####  刘清  
+##### 196#       发表于 2021-11-26 13:04
+
+<blockquote>wwdzcjsmxx 发表于 2021-11-26 12:43
+呼吸伐都过滤不了吗</blockquote>
+如果健康人用呼吸阀口罩，没问题。
+
+患者戴上，那就是行走的病毒扩散器。
+
+因为呼吸阀是单向的，外界病毒进不去口罩，但你呼出的气会通过呼吸阀排到口罩外，包括病毒。
+
+这个应该是为了让呼吸轻松一些的产物吧。
+
