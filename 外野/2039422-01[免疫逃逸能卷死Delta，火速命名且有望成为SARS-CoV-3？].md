@@ -2503,3 +2503,33 @@ Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被�
 黑死病死一半人，是不是世界一下子就不内卷了？</blockquote>
 历史上英国在黑死病之后确实出现了一个自耕农有一百英亩土地的时期。
 
+
+
+*****
+
+####  sloorz  
+##### 238#       发表于 2021-11-26 15:46
+
+很荣幸和大家一起经历人类历史上的重大事件。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66666  
+##### 239#       发表于 2021-11-26 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709991&amp;ptid=2039422" target="_blank">飞奔的拓拓 发表于 2021-11-26 14:47</a>
+
+没说牛逼啊，但这波通胀肯定迟早得吃。外国乱放水肯定会影响国内物价。 ...</blockquote>
+所以国家才会限电限制生产，而目前全世界最健康的供应链都在中国，你说需求减少了，原材料还能涨哪去？
+
+有人说国外也能削减原材料产量啊，问题是国外能削减原材料产量，能不进口中国商品吗？
+
+*****
+
+####  声波  
+##### 240#       发表于 2021-11-26 16:06
+
+牛要来了么，牛<img src="https://static.saraba1st.com/image/smiley/bundam2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MRX-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -5755,3 +5755,24 @@ NMD两单沉了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  森兰丸  
+##### 84519#       发表于 2021-11-26 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53702985&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-11-26 00:05</a>
+
+震惊 难道萌新转运了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草.....萌新还是那个大家熟悉的萌新
+
+*****
+
+####  angelooo  
+##### 84520#       发表于 2021-11-26 15:54
+
+<blockquote>xiongxingyu 发表于 2021-11-26 14:04
+谁说单体宝具周回用不上只能打高难的？真正的肝帝都是要周回高难本的。阿国女士恐成为fgo开服以来被 ...</blockquote>
+阿国女士才是真正的柱子，被无限刷的那种233
+

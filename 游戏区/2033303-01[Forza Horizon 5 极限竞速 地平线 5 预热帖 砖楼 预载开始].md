@@ -15680,3 +15680,15 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 <[img src="https://z3.ax1x.com/2021/11/26/oVZggJ.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  itsmyrailgun  
+##### 1419#       发表于 2021-11-26 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">开蛇头700过了
+队友稳定拿100分，我保证开过ai，就行了，剩下交给队友
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
