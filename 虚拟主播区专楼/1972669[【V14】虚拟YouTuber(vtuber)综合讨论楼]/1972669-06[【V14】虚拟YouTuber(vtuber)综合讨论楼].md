@@ -14577,3 +14577,25 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 
 省一楼，杏三期生这个live，全程十几首歌有不是播片的吗，我看了半天，好像除了ED前面那首，其他全是播片吧，这现场观众都能看下去？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 8612#       发表于 2021-11-26 11:19
+
+杏六期生“秘密结社holoX”
+
+今晚8点就首播出道
+
+[https://twitter.com/hololivetv/status/1464066772340936706](https://twitter.com/hololivetv/status/1464066772340936706)
+[https://www.youtube.com/watch?v=vqmh-8qU5Wg](https://www.youtube.com/watch?v=vqmh-8qU5Wg)
+
+<img src="https://img.saraba1st.com/forum/202111/26/111911hs04plq94q59qtv3.jpg" referrerpolicy="no-referrer">
+
+<strong>X.jpg</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 11:19 上传
+
