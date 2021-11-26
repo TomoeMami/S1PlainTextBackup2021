@@ -4002,3 +4002,27 @@ moderna的剂量已经超大了
 moderna怎么就会加剂量。。。。</blockquote>
 感觉主要还是加剂量不用重新审批？
 
+
+
+*****
+
+####  烦死了  
+##### 371#       发表于 2021-11-27 06:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717858&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-27 05:55</a>
+
+moderna的剂量已经超大了
+
+感觉我的辉瑞booster算白打了</blockquote>
+别介，我今天刚去打了辉瑞booster<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 372#         楼主| 发表于 2021-11-27 06:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717861&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-27 05:57</a>
+
+感觉主要还是加剂量不用重新审批？</blockquote>
+moderna那个已经是biontech的三倍了，都不敢让30岁以下的打。还要加？
+
