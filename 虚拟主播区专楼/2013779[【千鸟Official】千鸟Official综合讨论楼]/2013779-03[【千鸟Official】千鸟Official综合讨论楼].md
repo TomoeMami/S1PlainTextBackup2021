@@ -231,3 +231,24 @@ syl 文静在一楼，其他几个都在二楼，其实真听不到文静在那�
 
 唏嘘，文静十月底2060后的发散值VR一个收帐号禁言毕业一条龙服务吗？去总部闹会被乱棍打去吗？打在静身疼在我心<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3023#       发表于 2021-11-26 13:10
+
+ 本帖最后由 莫洛骑士 于 2021-11-26 01:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708276&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-26 00:36</a>
+唏嘘，文静十月底2060后的发散值VR一个收帐号禁言毕业一条龙服务吗？去总部闹会被乱棍打去吗？打在静身疼在 ...</blockquote>
+狠狠地拷打文静，不知天高地厚的东西！
+
+syl 看文静切片之后有了个虐文的思路，但是不是很想写<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">感觉真可怜
+
+*****
+
+####  tankai  
+##### 3024#       发表于 2021-11-26 13:20
+
+写！
+

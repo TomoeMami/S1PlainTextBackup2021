@@ -2066,3 +2066,61 @@ delta是百式原型机啊...跟提坦斯的mk2不是一条线
 
 这个应该是为了让呼吸轻松一些的产物吧。
 
+
+
+*****
+
+####  KOGmk2  
+##### 197#       发表于 2021-11-26 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708217&amp;ptid=2039422" target="_blank">longrider 发表于 2021-11-26 12:32</a>
+
+Ω到底什么时候才出现，还是因为太恐怖而不会用omega命名
+
+—— 来自 S1Fun</blockquote>
+世卫组织已经设定希腊字母用完转星座命名了.......聖斗少女Ω
+
+*****
+
+####  9号单开道岔  
+##### 198#       发表于 2021-11-26 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706793&amp;ptid=2039422" target="_blank">桐名 发表于 2021-11-26 10:49:10</a>
+比如说程序员那瑞典吧，躺平先锋免疫模范，全国3%人口嗅觉失常
+
+任何事情都是双甚至多面的 ...</blockquote>瑞典认为疫情已经结束了，没有了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+瑞典新首相安德松应当于本月26日正式就职并组建新政府。她在当选后召开的新闻发布会上说：“瑞典的发展面临一些严重问题，我将带领新政府应对这些亟待解决的难题，将聚焦社会融合、气候变化和福利这三个重点。”
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  9090asd  
+##### 199#       发表于 2021-11-26 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708371&amp;ptid=2039422" target="_blank">wwdzcjsmxx 发表于 2021-11-26 12:43</a>
+
+呼吸伐都过滤不了吗</blockquote>
+呼吸阀口罩对病毒无效，这是去年的共识
+
+*****
+
+####  catazshadow  
+##### 200#       发表于 2021-11-26 13:21
+
+搅屎棍已经宣布6个非洲国家航班禁止入境了，平时反应这么慢
+
+终于慌了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  coldhot3  
+##### 201#       发表于 2021-11-26 13:21
+
+<blockquote>9号单开道岔 发表于 2021-11-26 13:11
+瑞典认为疫情已经结束了，没有了
+
+瑞典新首相安德松应当于本月26日正式就职并组建新政府。她在当选 ...</blockquote>
+抱歉，这位首相已经下去了。
+
