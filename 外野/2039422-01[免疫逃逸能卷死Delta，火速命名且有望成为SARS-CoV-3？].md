@@ -1321,3 +1321,104 @@ cov3，第一反应是3x3卷积神经网络
 
 他都财务自由了，有的就是钱，就算中招都可以像ykw一样直接定制大剂量单抗。
 
+
+
+*****
+
+####  我不怀好意  
+##### 126#       发表于 2021-11-26 10:30
+
+这可真是一场旷日持久的疫情
+
+*****
+
+####  coldhot3  
+##### 127#       发表于 2021-11-26 10:30
+
+<blockquote>mirrorside 发表于 2021-11-26 09:15
+讲真，看欧美国家新冠疫情稍微下去点就开躺，还嘲笑别的不躺的国家，结果躺出个新boss又怂了开始做仰卧起坐 ...</blockquote>
+你想想都是在死人这事情就笑不出来了。
+
+*****
+
+####  罗莉控  
+##### 128#       发表于 2021-11-26 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706529&amp;ptid=2039422" target="_blank">coldhot3 发表于 2021-11-26 10:30</a>
+
+你想想都是在死人这事情就笑不出来了。</blockquote>
+真要出ADE了，我们这种疫苗打得好的也遭难啊
+
+*****
+
+####  med  
+##### 129#       发表于 2021-11-26 10:36
+
+现在出国还是一个好选择吗 --
+
+*****
+
+####  evanchen  
+##### 130#       发表于 2021-11-26 10:37
+
+所谓群体免疫的问题就在这里
+感染多了确实能筛出有抗体的，但是病毒变异速度也上去了，有抗体的不管用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mirrorside  
+##### 131#       发表于 2021-11-26 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706529&amp;ptid=2039422" target="_blank">coldhot3 发表于 2021-11-26 10:30</a>
+
+你想想都是在死人这事情就笑不出来了。</blockquote>
+为什么笑不出来？他们自己选的，求仁得仁而已，就欧美死人最多的那段时间还一大批的人要求解封不戴口罩，这躺下不就是他们想要的吗？ 低人权国家就是厉害.JPG
+
+*****
+
+####  iluso  
+##### 132#       发表于 2021-11-26 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706632&amp;ptid=2039422" target="_blank">evanchen 发表于 2021-11-26 10:37</a>
+
+所谓群体免疫的问题就在这里
+
+感染多了确实能筛出有抗体的，但是病毒变异速度也上去了，有抗体的不管用了[f: ...</blockquote>
+但这个是在HIV患者体内卷出来的
+
+*****
+
+####  tomatoKnight  
+##### 133#       发表于 2021-11-26 10:42
+
+<blockquote>mirrorside 发表于 2021-11-26 10:39
+为什么笑不出来？他们自己选的，求仁得仁而已，就欧美死人最多的那段时间还一大批的人要求解封不戴口罩， ...</blockquote>
+那你想想死的不是人，是我们的出口市场需求在一点点掉。
+
+这样下去，国内生产一开始因为产业转移景气，最后人死多了还是会受需求萎缩的影响。
+
+转内循环的过程会更加痛苦
+
+*****
+
+####  mirrorside  
+##### 134#       发表于 2021-11-26 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706711&amp;ptid=2039422" target="_blank">tomatoKnight 发表于 2021-11-26 10:42</a>
+
+那你想想死的不是人，是我们的出口市场需求在一点点掉。
+
+这样下去，国内生产一开始因为产业转移景气，最 ...</blockquote>
+欧美疫情死人太多导致出口市场缩小和我笑欧美躺平结果求仁得仁的奇葩操作有什么冲突吗？
+
+*****
+
+####  曾鸟栖夜夏  
+##### 135#       发表于 2021-11-26 10:46
+
+<blockquote>tomatoKnight 发表于 2021-11-26 10:42
+那你想想死的不是人，是我们的出口市场需求在一点点掉。
+
+这样下去，国内生产一开始因为产业转移景气，最 ...</blockquote>
+我们提内循环都多久呢，您这是哪国友人？
+
