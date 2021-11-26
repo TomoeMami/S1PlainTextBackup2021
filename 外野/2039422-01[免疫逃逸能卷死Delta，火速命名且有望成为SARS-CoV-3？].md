@@ -3620,3 +3620,55 @@ Israel has identified four cases of the B.1.1.529 variant, all recent travellers
 
 这玩意有自产mrna疫苗的实力 怕是要重回100了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Redis  
+##### 337#       发表于 2021-11-27 01:04
+
+还是等子弹飞一下吧
+
+南非哪个数据感觉不大正常，前一天300多，后一天直接2w+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  边缘中心  
+##### 338#       发表于 2021-11-27 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717294&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-27 00:49</a>
+打完三针腺病毒重组的delta突破之前有记录？没印象了</blockquote>
+J&amp;J现在的说法是因为效果低，所有人都应该在2个月打第二针，倒是没有第三针的政策。不过三针mRNA都有再感染delta的例子，AZ和J&amp;J不会有明显更出色的效果吧
+
+*****
+
+####  Redis  
+##### 339#       发表于 2021-11-27 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717405&amp;ptid=2039422" target="_blank">边缘中心 发表于 2021-11-27 01:16</a>
+
+J&amp;J现在的说法是因为效果低，所有人都应该在2个月打第二针，倒是没有第三针的政策。不过三针mRNA都有再感 ...</blockquote>
+三针被delta突破的也有
+
+只能说这个。。。看命
+
+*****
+
+####  Redis  
+##### 340#       发表于 2021-11-27 01:23
+
+不过这个真的难顶
+
+要知道这玩意儿的传播力和抗免疫能力，还要等多久来着？
+
+*****
+
+####  Redis  
+##### 341#       发表于 2021-11-27 01:24
+
+另外老外自己指出的
+
+禁止南非的航班毫无意义
+
+因为大部分南非的航班回去阿拉伯国家转机进入欧洲
+
