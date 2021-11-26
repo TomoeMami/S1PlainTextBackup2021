@@ -5776,3 +5776,14 @@ NMD两单沉了
 谁说单体宝具周回用不上只能打高难的？真正的肝帝都是要周回高难本的。阿国女士恐成为fgo开服以来被 ...</blockquote>
 阿国女士才是真正的柱子，被无限刷的那种233
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84521#       发表于 2021-11-26 16:05
+
+商店都还没有搬完，有多余体力再考虑吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

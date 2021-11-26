@@ -2533,3 +2533,79 @@ Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被�
 
 —— 来自 HUAWEI MRX-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  last_crusader  
+##### 241#       发表于 2021-11-26 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707046&amp;ptid=2039422" target="_blank">ftqwer1 发表于 2021-11-26 11:06:52</a>
+每次看到这个都想起天启四骑士的圣经。
+
+我看见羔羊揭开七印中第一印的时候，就听见四活物中的一个活物， ...</blockquote>一样，“绿骑士已经杀疯了”，“黑骑士已然超神“<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  自由斗士  
+##### 242#       发表于 2021-11-26 16:09
+
+<blockquote>aegisangel 发表于 2021-11-26 14:20
+行了键盘经济学家，不要用你浅薄的常识来推导供需关系了</blockquote>
+还是不要用你们大棋党的“常识”来纠正我的现实了。
+
+现实就是别人拒绝的原因就是政治。今年和M硝子和O陶瓷合作协议被撕，S化学断供的原因就是他们不和共产党国家的企业有商业来往。
+
+马基雅维利都知道国家伟力在于勇士效死，不在黄金多寡。美利坚天朝养士76年，板荡之时，岂无忠信？
+
+*****
+
+####  geminixxf  
+##### 243#       发表于 2021-11-26 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704283&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 02:38</a>
+所以要搞NPI然后清零啊。
+
+例如欧洲国家现在每天死几百个老人，他们就开始大多数支持封城了。就是短视、 ...</blockquote>
+一天才死几百人他们也不会重视，美国现在死了80万左右，一天也差不多1900了，也没见美国多重视，要到黑死病那水平了，昂撒才能懂事。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  abcbuzhiming  
+##### 244#       发表于 2021-11-26 16:12
+
+<blockquote>madeira 发表于 2021-11-26 15:28
+超高致死率 加 动物-人传染 加 无症状动物宿主 比如鸟 老鼠 咋防</blockquote>
+人隔离，超高致死的在人群里传不了多远。检测有哪几种动物宿主，全部扑杀，人类工业化手段用出来的话没有什么动物种群灭不了的
+
+*****
+
+####  自由斗士  
+##### 245#       发表于 2021-11-26 16:13
+
+<blockquote>骆宾王 发表于 2021-11-26 14:33
+不买的我们不生产不就好了？原材料输出比工业品输出牛逼是哪条世界线啊？ ...</blockquote>
+锂，钴原材料比下游工业品赚钱。
+
+*****
+
+####  abcbuzhiming  
+##### 246#       发表于 2021-11-26 16:15
+
+<blockquote>骆宾王 发表于 2021-11-26 15:32
+鼠疫没有空气传播吧？</blockquote>
+清朝末期东北鼠疫，肺鼠疫。自己查查，伍连德成名战，有个著名外国专家因不相信鼠疫能空气传播，就死了
+
+*****
+
+####  骆宾王  
+##### 247#       发表于 2021-11-26 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711178&amp;ptid=2039422" target="_blank">自由斗士 发表于 2021-11-26 16:13</a>
+锂，钴原材料比下游工业品赚钱。</blockquote>
+那是因为没有垄断，大家都能产
+
