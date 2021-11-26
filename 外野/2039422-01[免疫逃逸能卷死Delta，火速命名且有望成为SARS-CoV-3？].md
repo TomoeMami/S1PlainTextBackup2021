@@ -2628,3 +2628,66 @@ Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被�
 
 面对三个针对不同靶点的药物新冠基本上不存在靠几次阴间变异就全部躲过去的可能性。
 
+
+
+*****
+
+####  holyblood  
+##### 249#       发表于 2021-11-26 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706844&amp;ptid=2039422" target="_blank">tomatoKnight 发表于 2021-11-26 10:52</a>
+
+国内生产一开始因为产业转移景气，最后人死多了还是会受需求萎缩的影响。
+
+拜托你不要只看后半句，</blockquote>
+俺觉得别人战胜新冠我们输了，别人没战胜新冠我们也输了，怕不是b站ceo摸电线，输麻了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  博叔  
+##### 250#       发表于 2021-11-26 16:49
+
+看我把全球的感染人数推回去！来自: iPhone客户端
+
+*****
+
+####  holyblood  
+##### 251#       发表于 2021-11-26 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707456&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-26 11:42</a>
+
+进口原材料价格暴涨，出口商品价格爆爆爆爆爆涨
+
+最好自己的事，只要受影响比对手少我们就赢了 ...</blockquote>
+为啥出口价格会暴涨，难道现在不是打价格战卷死国内同行的好机会么。我对我国资本家有信心<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  belmen  
+##### 252#       发表于 2021-11-26 16:54
+
+到现在还是只点了传播和逃逸，点致死收割一波之前欧美是不会停止躺平的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  coldhot3  
+##### 253#       发表于 2021-11-26 16:55
+
+<blockquote>abcbuzhiming 发表于 2021-11-26 16:12
+人隔离，超高致死的在人群里传不了多远。检测有哪几种动物宿主，全部扑杀，人类工业化手段用出来的话没有 ...</blockquote>
+你扑灭个老鼠试试？
+
+*****
+
+####  cube  
+##### 254#       发表于 2021-11-26 16:58
+
+说起来，泥潭前几天还有人抱怨回国的隔离政策太苛刻来着<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桐名  
+##### 255#       发表于 2021-11-26 17:00
+
+以色列发现一例
+
