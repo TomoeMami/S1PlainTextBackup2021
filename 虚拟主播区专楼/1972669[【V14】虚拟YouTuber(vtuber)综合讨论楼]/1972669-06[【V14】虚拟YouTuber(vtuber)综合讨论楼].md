@@ -14547,3 +14547,12 @@ ruki真没了，维阿产瓜的速度真是惊人，建议彩虹今后改叫维�
 HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 】
 [https://mega.nz/folder/aBdCHJxD#cOljnumSQuRNcCsO92pE7Q](https://mega.nz/folder/aBdCHJxD#cOljnumSQuRNcCsO92pE7Q)
 
+
+
+*****
+
+####  winda  
+##### 8609#       发表于 2021-11-26 09:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">KR毕业bora，VR毕业ruki，一起上分，都毕业7个人了
+

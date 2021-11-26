@@ -139,3 +139,12 @@ syl 文静在一楼，其他几个都在二楼，其实真听不到文静在那�
 为啥喊后妈义母啊</blockquote>
 两人声音有点像，不过主要还是静栗惹太久没见到静，缺乏母爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜潇箫  
+##### 3014#       发表于 2021-11-26 09:05
+
+如果不是字幕，我真没听出她俩声音区别
+

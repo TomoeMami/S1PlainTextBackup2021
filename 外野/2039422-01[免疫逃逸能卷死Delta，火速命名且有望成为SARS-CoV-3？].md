@@ -1132,3 +1132,91 @@ mRNA技术路线转新疫苗速度最快
 说这些人民群众也看不懂， 一天死1w之前没人会在乎</blockquote>
 错了，是他们社区一天死1w才会在乎
 
+
+
+*****
+
+####  sadaharu529  
+##### 108#       发表于 2021-11-26 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705453&amp;ptid=2039422" target="_blank">罗莉控 发表于 2021-11-26 09:02</a>
+欧洲的检测能力…………这个变异株是香港检测出来的，12日左右上报，后面一周南非附近就上报了十几例，然 ...</blockquote>
+市场占有率那么大了，居然都是主动检测而不是因为医院爆了被动检测出的。
+
+这样分析的话，这个病毒可能传播性强，毒性不一定很强，先不要慌。
+
+*****
+
+####  catazshadow  
+##### 109#       发表于 2021-11-26 09:10
+
+利好加密币，all in！
+
+*****
+
+####  罗莉控  
+##### 110#       发表于 2021-11-26 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705354&amp;ptid=2039422" target="_blank">罗莉控 发表于 2021-11-26 08:52</a>
+
+拍老师的说法是新变异株的FCS切割点的序列正在往OC43的序列演进，OC43是感冒病毒中最广泛传播的一种，其F ...</blockquote>
+拍老师的图，新变异株的FCS切割点序列离最优化的OC43模式还差3个氨基酸，而原始株差6个，所以别急，应该还有24个月左右…………
+
+*****
+
+####  罗莉控  
+##### 111#       发表于 2021-11-26 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705461&amp;ptid=2039422" target="_blank">自由斗士 发表于 2021-11-26 09:03</a>
+
+所以利好这两家有mRNA疫苗开发能力的公司。</blockquote>
+知乎上的喷总（莫得纳员工）打游戏打的不亦乐乎，情况还不严重！
+
+*****
+
+####  罗莉控  
+##### 112#       发表于 2021-11-26 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705508&amp;ptid=2039422" target="_blank">sadaharu529 发表于 2021-11-26 09:08</a>
+
+市场占有率那么大了，居然都是主动检测而不是因为医院爆了被动检测出的。
+
+这样分析的话，这个病毒可能传 ...</blockquote>
+南非正在半年以来的疫情低谷（谷底），医院的压力较小，最近10来天新变异株的发源地豪登省已经垂直起飞了
+
+*****
+
+####  cdy111222  
+##### 113#       发表于 2021-11-26 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705315&amp;ptid=2039422" target="_blank">晃来晃去 发表于 2021-11-26 08:48</a>
+
+本子这是怎么回事？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别问，问就是承日难
+
+*****
+
+####  mirrorside  
+##### 114#       发表于 2021-11-26 09:15
+
+讲真，看欧美国家新冠疫情稍微下去点就开躺，还嘲笑别的不躺的国家，结果躺出个新boss又怂了开始做仰卧起坐的样子实在太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克鲁特尼  
+##### 115#       发表于 2021-11-26 09:15
+
+<blockquote>罗莉控 发表于 2021-11-26 09:10
+拍老师的图，新变异株的FCS切割点序列离最优化的OC43模式还差3个氨基酸，而原始株差6个，所以别急，应该 ...</blockquote>
+感觉焦虑症要起来了
+
+*****
+
+####  riczxc  
+##### 116#         楼主| 发表于 2021-11-26 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705589&amp;ptid=2039422" target="_blank">mirrorside 发表于 2021-11-26 09:15</a>
+
+讲真，看欧美国家新冠疫情稍微下去点就开躺，还嘲笑别的不躺的国家，结果躺出个新boss又怂了开始做仰卧起坐 ...</blockquote>
+欧洲不是没等到王者过来就已经倒在delta下了么？
+
