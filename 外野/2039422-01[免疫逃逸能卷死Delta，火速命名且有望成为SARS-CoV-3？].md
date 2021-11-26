@@ -2889,3 +2889,86 @@ rna开发疫苗再快也要临床一二三这么走
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  nerugigannte  
+##### 275#       发表于 2021-11-26 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昂撒不基德，接受大自然制裁吧！
+
+*****
+
+####  死亡確認  
+##### 276#       发表于 2021-11-26 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713204&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-11-26 18:42</a>
+
+怕是要如id
+
+现在的问题就是新变种死亡率到底是涨了还是跌了了</blockquote>
+我觉得涨跌无所谓了，你基数变大了就算死亡率再低死亡人数也要起来了，而且目前看这变种能和delta一起来……
+
+*****
+
+####  riczxc  
+##### 277#         楼主| 发表于 2021-11-26 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713204&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-11-26 18:42</a>
+怕是要如id
+
+现在的问题就是新变种死亡率到底是涨了还是跌了了</blockquote>
+感染数涨得那么快，死亡率即使低了，也会马上挤兑。
+
+而且，复制效率更高，死亡率多半不会变低。
+
+*****
+
+####  pushare  
+##### 278#       发表于 2021-11-26 18:55
+
+躺还是不躺？
+
+UK Health Secretary Sajid Javid to deliver statement on new coronavirus variant at 11 a.m. (6 a.m. ET)
+
+Israeli Prime Minister Bennett on new coronavirus variant: "We are currently on the verge of a state of emergency. ... Our main principle is to act fast, strong and now" 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Alexmacau8  
+##### 279#       发表于 2021-11-26 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713327&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-26 18:55</a>
+躺还是不躺？
+
+UK Health Secretary Sajid Javid to deliver statement on new coronavirus variant at 11  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">YPM万能 我们发现了什么，可能需要采取措施
+
+*****
+
+####  riczxc  
+##### 280#         楼主| 发表于 2021-11-26 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713327&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-26 18:55</a>
+躺还是不躺？
+
+UK Health Secretary Sajid Javid to deliver statement on new coronavirus variant at 11  ...</blockquote>
+我觉得他们是有计划地躺，不把人命当回事。
+
+现在出了计划外的事件了，就要起来了。
+
+*****
+
+####  pushare  
+##### 281#       发表于 2021-11-26 19:00
+
+高赞回复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+Most people fly via Arab nations from South Africa to Europe. There is no way this has been contained. Already 3 cases in Israel...
+
+Flights coming in to UK from Doha, Dubai etc
+
+It is already in Europe. 
+

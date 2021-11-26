@@ -20767,3 +20767,31 @@ CARNELIAN先生
 
 深层原因是大家在为打败BETA后的世界上分得更多利益而早作准备（整个一章都如章节名一般，是在说“坐陇望蜀的人间”，也正是这种得陇望蜀的做法，让男主这样一个“我心里只有驱逐BETA，你也应该这么想”的傻子，出现了转变），后面冥夜也理解这种想法会表现的更为明显，在冥夜去谈话那段
 
+
+
+*****
+
+####  yone0000  
+##### 1459#       发表于 2021-11-26 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53699221&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-25 20:03</a>
+
+那动画这方面更像原作，反正纯动画党看起来就很像误射
+
+漫画版看起来就是故意的</blockquote>
+动画里我就在等他来个阴谋得逞的表情，结果居然一脸懵逼到结束<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hacisiki  
+##### 1460#       发表于 2021-11-26 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712005&amp;ptid=1860817" target="_blank">Kuroe 发表于 2021-11-26 17:12</a>
+
+其实考虑政变的理由是否合理时，也应该考虑到用于发表演说换取支持的说法和深层原因的区别。
+
+就如二二六， ...</blockquote>
+所以我特别想看那群人主动去接疏散任务然后不用强看着群众被岩浆吞没的时候的表情。
+
+当然眼不见也能为净。
+

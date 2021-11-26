@@ -15731,3 +15731,24 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 过了的那一把好像有一个X，但是重要的是三局我们（感觉我改的998senna起跑比队友快一些，能在一开始抢到前面的位置）都在第一个路口把所有车撞成了一坨，不这样的话前四辆车基本上稳定的全程不踩刹车越开越远。
 
+
+
+*****
+
+####  天神十三煞  
+##### 1425#         楼主| 发表于 2021-11-26 18:41
+
+ 本帖最后由 天神十三煞 于 2021-11-26 02:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53703341&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-25 08:31</a>
+
+我看红迪的人说吃鸡淘汰了2个人结果不算完成</blockquote>
+这周的应该没问题
+
+我刚才打了几局
+
+第三局淘汰四个对手，这个通过了
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+还拿到了十级车的赞赏，第二次成功赢下淘汰赛。
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
