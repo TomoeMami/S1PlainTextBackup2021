@@ -1870,3 +1870,67 @@ COVID就是完美卡在这条线上,低了就真是流感了,高了压力巨大�
 
 这几天欧米的尿性，平均6成的接种率加持下面对阿三株都一败涂地，再来个免疫逃逸的牛株，还不得杀个尸山血海<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  droople  
+##### 178#       发表于 2021-11-26 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707820&amp;ptid=2039422" target="_blank">ak123 发表于 2021-11-26 12:05</a>
+
+这几天欧米的尿性，平均6成的接种率加持下面对阿三株都一败涂地，再来个免疫逃逸的牛株，还不得杀个尸山 ...</blockquote>
+你看看智利和星加坡
+
+*****
+
+####  蹲在厕所数姐姐  
+##### 179#       发表于 2021-11-26 12:07
+
+黑死病死一半人，是不是世界一下子就不内卷了？
+
+*****
+
+####  Kanoya  
+##### 180#       发表于 2021-11-26 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706331&amp;ptid=2039422" target="_blank">coldhot3 发表于 2021-11-26 10:14</a>
+我一直认为有hepa滤膜的宇航服比较有效，以后每个人都是自己隔离的微环境。健康人头盔上有绿光，阳性患者 ...</blockquote>
+城市坞壁+健康驿站+一户建+阿凡达式外骨骼呗
+
+
+
+*****
+
+####  天国直通车  
+##### 181#       发表于 2021-11-26 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707718&amp;ptid=2039422" target="_blank">ak123 发表于 2021-11-26 11:59</a>
+真有人信日本病毒神奇消失么？我怎么看严肃科学机构都当日本人放屁呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">以日本人的尿性，必然是“delta发生变异”-&gt;“delta被变异型取代”-&gt;“日本人检测到变异型但未检测到delta”-&gt;“日本人宣称delta已自然消失”，就像福岛核事故排放核废水一样
+
+至于delta的日本变种，除了中国就没其它地方在意，尤其是日本
+
+*****
+
+####  neptunehs  
+##### 182#       发表于 2021-11-26 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707699&amp;ptid=2039422" target="_blank">人民de救星 发表于 2021-11-26 11:58</a>
+元祖→Delta→Nu 下一个是不是 Unicorn
+
+—— 来自 S1Fun</blockquote>
+查了下 delta是mk2
+mk2并不强吧 那这次的牛变种得有多强（
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  soloviki  
+##### 183#       发表于 2021-11-26 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707705&amp;ptid=2039422" target="_blank">ak123 发表于 2021-11-26 11:58</a>
+反科学反人类政权终结者还差不多</blockquote>
+康米幽灵再抬头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

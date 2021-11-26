@@ -14658,3 +14658,12 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么就不是点生活叛军
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8620#       发表于 2021-11-26 12:14
+
+我听说大米早早转生了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
