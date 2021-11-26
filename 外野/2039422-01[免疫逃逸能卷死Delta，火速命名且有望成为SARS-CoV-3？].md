@@ -2124,3 +2124,71 @@ delta是百式原型机啊...跟提坦斯的mk2不是一条线
 瑞典新首相安德松应当于本月26日正式就职并组建新政府。她在当选 ...</blockquote>
 抱歉，这位首相已经下去了。
 
+
+
+*****
+
+####  charse2r  
+##### 202#       发表于 2021-11-26 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708901&amp;ptid=2039422" target="_blank">coldhot3 发表于 2021-11-26 13:21</a>
+
+抱歉，这位首相已经下去了。</blockquote>
+然后又上来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arca  
+##### 203#       发表于 2021-11-26 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708699&amp;ptid=2039422" target="_blank">KOGmk2 发表于 2021-11-26 13:07</a>
+
+世卫组织已经设定希腊字母用完转星座命名了.......聖斗少女Ω</blockquote>
+天马流（行）新（冠）拳！
+
+*****
+
+####  charse2r  
+##### 204#       发表于 2021-11-26 13:27
+
+mrna疫苗这么好想必这个🐂变种也不怕的吧，想看庄时利和微博下复兴股东的嘴脸<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  coldhot3  
+##### 205#       发表于 2021-11-26 13:27
+
+<blockquote>罗莉控 发表于 2021-11-26 10:35
+真要出ADE了，我们这种疫苗打得好的也遭难啊</blockquote>
+这都没交叉中和活性，怎么出ade。
+
+*****
+
+####  小妻水亚美  
+##### 206#       发表于 2021-11-26 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708344&amp;ptid=2039422" target="_blank">伊可费斯 发表于 2021-11-26 12:41</a>
+传染性高，说明致死率低吧，这波是强制共存。</blockquote>
+现在高传播在没有点出其他传播手段之前，都是高载量导致的，接种过疫苗的还好，没接种过的大概率被直接带走。
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  枯风瘦雪02  
+##### 207#       发表于 2021-11-26 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704856&amp;ptid=2039422" target="_blank">yigua 发表于 2021-11-26 07:45</a>
+
+cov3，第一反应是3x3卷积神经网络
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+conv3和cov3的区别啦~
+
+*****
+
+####  BLAME  
+##### 208#       发表于 2021-11-26 13:37
+
+不是有开拓药业对新冠有效率91%的普克鲁胺吗？
+
