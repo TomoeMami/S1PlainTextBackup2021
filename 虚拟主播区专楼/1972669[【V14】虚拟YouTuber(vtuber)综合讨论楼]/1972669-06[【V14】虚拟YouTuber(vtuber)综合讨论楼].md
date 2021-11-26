@@ -14556,3 +14556,24 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">KR毕业bora，VR毕业ruki，一起上分，都毕业7个人了
 
+
+
+*****
+
+####  Map-2  
+##### 8610#       发表于 2021-11-26 10:40
+
+苔姨还是有几分姿色的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/13d43bd1a2c0e9362f67e38d6347d2fb/FE6FQUjacAADI6V.jpeg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  free  
+##### 8611#       发表于 2021-11-26 10:44
+
+太子昨晚直播说今后要增加活动频率，争取一周直播三次，你一周三次要播什么啊...不会也打枪吧
+
+省一楼，杏三期生这个live，全程十几首歌有不是播片的吗，我看了半天，好像除了ED前面那首，其他全是播片吧，这现场观众都能看下去？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

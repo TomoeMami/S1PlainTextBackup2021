@@ -166,3 +166,21 @@ syl 文静在一楼，其他几个都在二楼，其实真听不到文静在那�
 
 确实好像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3017#       发表于 2021-11-26 10:55
+
+我宣布艾白歌力爆杀文静，因为文静持续力是E，艾白起码是个B
+
+*****
+
+####  人民de救星  
+##### 3018#       发表于 2021-11-26 11:04
+
+艾瑞思动态发自拍了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大家快去看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
