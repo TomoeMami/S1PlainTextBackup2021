@@ -2691,3 +2691,55 @@ Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被�
 
 以色列发现一例
 
+
+
+*****
+
+####  卿卿雅儿  
+##### 256#       发表于 2021-11-26 17:12
+
+外行问个问题，国内打的第三针能应对delta吗？如果疫苗只是晚一个版本，也还好？
+
+*****
+
+####  L.L  
+##### 257#       发表于 2021-11-26 17:14
+
+新冠太懂政治了。
+
+*****
+
+####  Paradox7  
+##### 258#       发表于 2021-11-26 17:16
+
+跟混沌入侵一样一波一波的，每波都来个混沌神选
+
+*****
+
+####  Promeus  
+##### 259#       发表于 2021-11-26 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711863&amp;ptid=2039422" target="_blank">桐名 发表于 2021-11-26 17:00</a>
+
+以色列发现一例</blockquote>
+三例了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+然后以色列入境要求疫苗和核酸报告……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曾鸟栖夜夏  
+##### 260#       发表于 2021-11-26 17:21
+
+<blockquote>卿卿雅儿 发表于 2021-11-26 17:12
+外行问个问题，国内打的第三针能应对delta吗？如果疫苗只是晚一个版本，也还好？ ...</blockquote>
+各家第三针其实delta都够呛，你看德国、新加坡这些地区现在的破防的情况就是了，但是mRNA效果拉胯这事儿呢，在哪的舆论都有点政治不正确，所以就抓着灭活锤
+
+*****
+
+####  月初照  
+##### 261#       发表于 2021-11-26 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711160&amp;ptid=2039422" target="_blank"> abcbuzhiming 发表于 2021-11-26 16:12</a> 引用:madeira 发表于 2021-11-26 15:28 超高致死率 加 动物-人传染 加 无症状动物宿主 比如鸟 老鼠 咋防 人隔离，超高致死的在人群里传不了多远。检测有哪几种动物宿主，全部扑杀，人类工业化手段用出来的话没有什么动物种群灭不了的 </blockquote>
+蟑螂蚊子有话说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

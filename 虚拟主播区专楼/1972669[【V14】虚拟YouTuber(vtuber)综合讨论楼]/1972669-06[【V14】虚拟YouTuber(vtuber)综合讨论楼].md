@@ -14722,3 +14722,29 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 
 是emma啊
 
+
+
+*****
+
+####  FCCHua  
+##### 8626#       发表于 2021-11-26 17:05
+
+ 本帖最后由 FCCHua 于 2021-11-26 17:12 编辑 
+
+eli12月3日ddd披露，看来最近身体状态还行，等一个乐器表演...
+
+*****
+
+####  free  
+##### 8627#       发表于 2021-11-26 17:13
+
+fra还特意点名了一下，结合这位自我介绍说喜欢音乐，大概是个会唱的，从唱见圈里找找吧
+
+<img src="https://img.saraba1st.com/forum/202111/26/171307un0rt2nlzya3c7cl.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (29.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 17:13 上传
+
