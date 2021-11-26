@@ -2743,3 +2743,44 @@ Magdalena Andersson的社民和绿党的联合政府的预算计划在议会被�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711160&amp;ptid=2039422" target="_blank"> abcbuzhiming 发表于 2021-11-26 16:12</a> 引用:madeira 发表于 2021-11-26 15:28 超高致死率 加 动物-人传染 加 无症状动物宿主 比如鸟 老鼠 咋防 人隔离，超高致死的在人群里传不了多远。检测有哪几种动物宿主，全部扑杀，人类工业化手段用出来的话没有什么动物种群灭不了的 </blockquote>
 蟑螂蚊子有话说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  lovepenny  
+##### 262#       发表于 2021-11-26 17:31
+
+这玩意到底哪儿来的，那么凶<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  9090asd  
+##### 263#       发表于 2021-11-26 17:33
+
+<blockquote>卿卿雅儿 发表于 2021-11-26 17:12
+外行问个问题，国内打的第三针能应对delta吗？如果疫苗只是晚一个版本，也还好？ ...</blockquote>
+delta血清型一样的，刚打三个月内保护效果还是很不错的，超过三个月大家都不行。
+
+*****
+
+####  9090asd  
+##### 264#       发表于 2021-11-26 17:34
+
+<blockquote>自由斗士 发表于 2021-11-26 16:13
+锂，钴原材料比下游工业品赚钱。</blockquote>
+锂矿几年前澳大利亚打价格战都是赔本买的。
+
+*****
+
+####  stoiorz  
+##### 265#       发表于 2021-11-26 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712023&amp;ptid=2039422" target="_blank">卿卿雅儿 发表于 2021-11-26 17:12</a>
+
+外行问个问题，国内打的第三针能应对delta吗？如果疫苗只是晚一个版本，也还好？ ...</blockquote>
+针对delta有效果啊，降低致死和重症率。
+
+针对新版本基本无效了，得等一波迭代了。
+

@@ -13376,3 +13376,18 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 
 <img src="https://img.saraba1st.com/forum/202111/26/165057qtbn7ds9had0bodo.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuaistage1  
+##### 2760#       发表于 2021-11-26 17:35
+
+ 本帖最后由 wuaistage1 于 2021-11-26 17:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694215&amp;ptid=2002246" target="_blank">tewaku 发表于 2021-11-25 14:30</a>
+
+你要知道漫区有不少人看见欧美就ptsd，直白点说就是在漫区欧美系是小众
+
+那个帖里有没有真的日漫痴我不清 ...</blockquote>
+从讨论作品角度来说这边除了渔夫多点我觉得还好啊，比猴区的日漫至上论氛围淡多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁有个帖子只是因为以双城为例求大家推荐点日系的优秀演技作画，语气还算正常没怎么看出捧一踩一，就被喷得狗血淋头，回帖各种“竟然不知道我大日漫优秀演技海了去了？这种傻逼不能忍！”的应激也是醉了。
+
