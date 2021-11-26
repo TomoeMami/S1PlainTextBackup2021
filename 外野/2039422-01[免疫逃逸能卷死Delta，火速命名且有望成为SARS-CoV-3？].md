@@ -4059,3 +4059,51 @@ J&amp;J现在的说法是因为效果低，所有人都应该在2个月打第二
 
 不过看moderna和辉瑞的发言人的发言来看，情况的确不容乐观，之前delta出来的时候他们都是有信心，现在感觉是很没信心了，如果最后抗感染的效力降低到20-30%，那么和疫苗失效也没啥区别了
 
+
+
+*****
+
+####  天使日又日  
+##### 376#       发表于 2021-11-27 07:25
+
+加大剂量…面对高速变种的病毒只能说加大剂量，这是没有办法的办法了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  diyihaoshitu  
+##### 377#       发表于 2021-11-27 07:32
+
+ 本帖最后由 diyihaoshitu 于 2021-11-27 07:35 编辑 
+
+按理说如果一个病毒的传染率高，那它的死亡率就一定会低
+
+—— 来自 vivo Y55L, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+*****
+
+####  lazyboy  
+##### 378#       发表于 2021-11-27 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717951&amp;ptid=2039422" target="_blank">diyihaoshitu 发表于 2021-11-27 07:32</a>
+按理说如果一个病毒的传染率高，那它的死亡率就一定会低
+
+—— 来自 vivo Y55L, Android 6.0.1上的 S1Next- ...</blockquote>
+哪里有这个理论的解释说明？
+
+—— 来自 HUAWEI EVR-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Promeus  
+##### 379#       发表于 2021-11-27 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717951&amp;ptid=2039422" target="_blank">diyihaoshitu 发表于 2021-11-27 07:32</a>
+按理说如果一个病毒的传染率高，那它的死亡率就一定会低
+
+—— 来自 vivo Y55L, Android 6.0.1上的 S1Next- ...</blockquote>
+天花:你在想什么美事呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

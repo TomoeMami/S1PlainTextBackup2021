@@ -14193,3 +14193,21 @@ pay酱在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 不过最大的槽点应该还是那个“KETEA”吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  後藤正文  
+##### 1267#       发表于 2021-11-27 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717815&amp;ptid=2036367" target="_blank">名津流 发表于 2021-11-27 05:00</a>
+东风本田的蓝V号里有个可可的痛车</blockquote>
+老拉拉人了，之前是凯美瑞，前两年卖了换的思域，是絵里 善子 可可推，最近刚换了一张新的善子&amp;可可
+
+*****
+
+####  太阳寺太守  
+##### 1268#       发表于 2021-11-27 07:37
+
+没买过先行抽选，请问如果花了买bd的钱抽选，门票还要再付一次钱吗？是不是买了bd也不一定抽得到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
