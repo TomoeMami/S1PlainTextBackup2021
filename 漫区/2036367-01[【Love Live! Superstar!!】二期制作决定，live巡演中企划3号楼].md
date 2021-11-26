@@ -13985,3 +13985,14 @@ ID:wr08lyr7(12/75)
 那个综艺节目是个啥玩意？</blockquote>
 什么节目
 
+
+
+*****
+
+####  lj205  
+##### 1256#       发表于 2021-11-26 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53715951&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-11-26 22:14</a>
+什么节目</blockquote>
+あすのめざましどようび気になる人がいたらRT♪　櫻井翔(嵐)　▽磯村勇斗　▽霜降り明星　▽ZAZY　▽しゅんしゅんクリニックP　▽中条あやみ　▽生見愛瑠　▽Liella!　▽大谷翔平　▽伊藤美誠　☆内容変更の際はご了承下さい
+

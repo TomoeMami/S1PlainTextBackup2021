@@ -8462,3 +8462,22 @@ king的这个种族 肯定要跟着新海贼王才有未来吧</blockquote>
 
 然后索隆不是要当世界第一剑豪，那就Karma呗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，你看现这状态相当于开出炼狱蝶了,估计快击破了XD
 
+
+
+*****
+
+####  亚尔迪8424  
+##### 56159#       发表于 2021-11-26 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53714885&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-11-26 20:53</a>
+
+山治的硬皮和发火和king一样，发火的时候奎因还说，只有那个种族做的到，不是同族就是用了这个神族的基因 ...</blockquote>
+那这次sanji的开挂 难怪要和kING的战斗放在一起
+
+*****
+
+####  亚尔迪8424  
+##### 56160#       发表于 2021-11-26 22:47
+
+king和queen的强度 不愧是大看板
+
