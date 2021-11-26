@@ -13517,3 +13517,17 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  whyy  
+##### 2772#       发表于 2021-11-27 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713786&amp;ptid=2002246" target="_blank">ammk 发表于 2021-11-26 19:44</a>
+
+档案大家看了么？jinx心路历程有意思</blockquote>
+当时看第一集，下电梯的时候，麦罗在抱怨金克丝，蔚虽然没有抱怨，但转身时那个懊恼的表情，证明她其实是在意妹妹把这趟的收获都弄丢了的；后面姐妹谈心，金克丝说「我把事情都搞砸了，我总是这样，我不会打架」的时候，蔚没有反驳，只是说「你不用会打架」，金克丝的反应很有趣，懊恼的微表情用额头砸了一下正在做的「小胡子」。当时就感觉「蔚其实也对妹妹总是搞砸事情有点烦（否则第三集结尾也不会脱口而出麦罗说的对你就是个祸害），但不论出于感情还是理性，她都知道控制自己的情绪；而爆爆这种第一集开头就开始出现幻视的精神不稳定的，性格本来就足够敏感，她其实一直感觉到姐姐其实也对自己不满意，但只是没说出口」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在看了档案里金克丝的涂鸦日记「姐姐说我还不行/她嘴上没说，但她心里是这么想的/她看我的眼神就是这个意思/别盯着我看了！」，一种看懂的感觉油然而生，猜中的感觉就让人暗爽<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
