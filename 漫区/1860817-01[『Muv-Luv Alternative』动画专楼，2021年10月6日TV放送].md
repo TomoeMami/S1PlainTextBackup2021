@@ -20874,3 +20874,26 @@ steam版就是以前的PC版啊，如果要较真的话应该是后期的win7版
 
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  freyja_wion  
+##### 1468#       发表于 2021-11-26 23:32
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 1469#       发表于 2021-11-26 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53716713&amp;ptid=1860817" target="_blank">freyja_wion 发表于 2021-11-26 23:32</a>
+
+大的要来了
+
+—— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ate就该被钉到耻辱柱上 什么玩意
+

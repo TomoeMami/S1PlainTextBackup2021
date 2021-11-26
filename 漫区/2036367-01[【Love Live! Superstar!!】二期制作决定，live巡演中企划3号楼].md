@@ -14005,3 +14005,25 @@ ID:wr08lyr7(12/75)
 
 不认识呢，但看这名单其他人好像好厉害
 
+
+
+*****
+
+####  chenflyyy  
+##### 1258#       发表于 2021-11-26 23:27
+
+还想着今天怎么没人发返图的nako就发了<img src="https://p.sda1.dev/3/7118776794dbb55f7dfc11da4ecb60b6/IMG_CMP_144454566.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 1259#       发表于 2021-11-26 23:31
+
+ 本帖最后由 秋月艾莉 于 2021-11-26 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53716342&amp;ptid=2036367" target="_blank">lj205 发表于 2021-11-26 22:52</a>
+
+あすのめざましどようび気になる人がいたらRT♪　櫻井翔(嵐)　▽磯村勇斗　▽霜降り明星　▽ZAZY　▽しゅ ...</blockquote>
+闹钟电视啊，一大早的新闻节目，播巡演相关的报道
+
+说明话题度渐渐升高了
+
