@@ -13391,3 +13391,17 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 那个帖里有没有真的日漫痴我不清 ...</blockquote>
 从讨论作品角度来说这边除了渔夫多点我觉得还好啊，比猴区的日漫至上论氛围淡多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">隔壁有个帖子只是因为以双城为例求大家推荐点日系的优秀演技作画，语气还算正常没怎么看出捧一踩一，就被喷得狗血淋头，回帖各种“竟然不知道我大日漫优秀演技海了去了？这种傻逼不能忍！”的应激也是醉了。
 
+
+
+*****
+
+####  Konayu  
+##### 2761#       发表于 2021-11-26 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53692377&amp;ptid=2002246" target="_blank">文文情报屋 发表于 2021-11-25 12:14</a>
+
+面对飞弹，梅尔嗖的一下飞上了天空
+
+“不装了，其实爷是潘森”</blockquote>
+真要是潘森一个人怕是能把双城的所有人图图了，灰夫人什么臭鱼烂虾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
