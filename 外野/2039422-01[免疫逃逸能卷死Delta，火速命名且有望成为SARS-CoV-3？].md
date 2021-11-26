@@ -2240,3 +2240,45 @@ delta是阿纳海姆系的，而mk2是镇暴型吉姆发展出来的，应该是
 出口市场萎缩主要原因是政治。就算新冠结束，出口市场也回不来了</blockquote>
 行了键盘经济学家，不要用你浅薄的常识来推导供需关系了
 
+
+
+*****
+
+####  sekai2014  
+##### 214#       发表于 2021-11-26 14:30
+
+南非没得艾滋病泛滥，个个都能成为移动的病毒培养槽。
+
+*****
+
+####  最好不说  
+##### 215#       发表于 2021-11-26 14:31
+
+大的又来了
+
+*****
+
+####  Lord_Voldemort  
+##### 216#       发表于 2021-11-26 14:31
+
+各国开始对非洲断航班了，都发觉这次的毒株不对劲了吧。。。妈的别从香港跑进来啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  骆宾王  
+##### 217#       发表于 2021-11-26 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707708&amp;ptid=2039422" target="_blank">飞奔的拓拓 发表于 2021-11-26 11:59</a>
+并不会的，上涨幅度是有限的。很多工业品不是必需的，价格真涨到一定程度不买就是了。只能说疫情之下国外 ...</blockquote>
+不买的我们不生产不就好了？原材料输出比工业品输出牛逼是哪条世界线啊？
+
+*****
+
+####  天野银次X美堂蛮  
+##### 218#       发表于 2021-11-26 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709455&amp;ptid=2039422" target="_blank">coldhot3 发表于 2021-11-26 14:05</a>
+
+这是仰卧起坐成瘾了？</blockquote>
+好像说是上任六小时后辞了，然后又复职了。。
+

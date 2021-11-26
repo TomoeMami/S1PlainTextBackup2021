@@ -3428,3 +3428,28 @@ Sanlow，给个痛快
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 261#         楼主| 发表于 2021-11-26 14:43
+
+乃琳Queen:[女团偶像模仿毒液！还原度竟达1000%！【直播剪辑】](https://t.bilibili.com/597302162711770284)
+
+（运营代发）
+
+节选自11月10日乃琳单播
+表演/出镜：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202111/26/144259n1c5x671l6pz1hl1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 14:42 上传
+

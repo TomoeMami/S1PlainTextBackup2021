@@ -15626,3 +15626,12 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 我感觉预购顶级版的自己真是个<img src="https://static.saraba1st.com/image/smiley/carton2017/091.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aaronluray  
+##### 1414#       发表于 2021-11-26 14:42
+
+就我今天排了一上午蛇头到刚才的经验，看到x级大家直接退了算了，我碰到的x级全是些开倒数的。带我飞的那场倒都是s2的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

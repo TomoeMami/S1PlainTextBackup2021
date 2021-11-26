@@ -14700,3 +14700,25 @@ HOLOLIVE FANTASY 1st LIVE FAN FUN ISLAND【 #ホロライブ3期生1stライブ 
 等下，大米转生到哪了？
 我倒是看到说枪ema大米说的，虽然很快就证伪了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8624#       发表于 2021-11-26 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709632&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-11-26 14:19</a>
+
+等下，大米转生到哪了？
+
+我倒是看到说枪ema大米说的，虽然很快就证伪了</blockquote>
+虽然不是vspo的ema，但也是ema
+[栢森エマ](https://www.youtube.com/channel/UCJN7efhiwMD2ejB2wFnN5Iw/videos)
+
+*****
+
+####  OldGlory  
+##### 8625#       发表于 2021-11-26 14:31
+
+是emma啊
+
