@@ -3119,3 +3119,121 @@ WHO发言人：专家组会议将在日内瓦时间中午开始。在就新冠�
 就现在这样子怕是实际已经传到欧洲了，连以色列都有了的话美国怕是实际流行起来了，只是就美国那鸟样怕是压 ...</blockquote>
 人类灭亡倒计时<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亚尔迪8424  
+##### 292#       发表于 2021-11-26 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713731&amp;ptid=2039422" target="_blank">wwdzcjsmxx 发表于 2021-11-26 19:38</a>
+
+人类灭亡倒计时</blockquote>
+恐怕是西方文明灭亡的倒计时
+
+*****
+
+####  KOGmk2  
+##### 293#       发表于 2021-11-26 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713617&amp;ptid=2039422" target="_blank">w2131978 发表于 2021-11-26 19:26</a>
+
+阿妹你看坐拥将近五千万确诊。三亿多的培养皿，有出过什么上台面的变异毒株吗？
+
+只要躺平了不去测序，蛊 ...</blockquote>
+一百年了,有谁知道西班牙大流感是美人希大规模发病然后扣西班牙帽子的?西班牙游而不击,美人希抗疫主力!
+
+*****
+
+####  pushare  
+##### 294#       发表于 2021-11-26 19:49
+
+欧洲首检出？
+
+JUST IN: Belgium reports 2 suspected cases of new coronavirus variant
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| riczxc| + 2||
+
+查看全部评分
+
+*****
+
+####  Promeus  
+##### 295#       发表于 2021-11-26 19:50
+
+根据拍老师的说法，以色列的三个患者跑了一个……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Gotu| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  希望之花  
+##### 296#       发表于 2021-11-26 19:59
+
+<blockquote>creymorgan 发表于 2021-11-26 16:31
+虽然这证明了新冠确实牛逼异常，但也不太要太过担心了。
+
+普克鲁胺是受体拮抗剂——针对病毒侵入
+
+默沙东神药 ...</blockquote>
+有没有一种对人体没有副作用的阻断病毒的可能，比如直接切断传染途径？
+
+*****
+
+####  abcbuzhiming  
+##### 297#       发表于 2021-11-26 20:01
+
+<blockquote>coldhot3 发表于 2021-11-26 16:55
+你扑灭个老鼠试试？</blockquote>
+你不会真觉得人动员起来搞不定老鼠吧？你对人类的工业化机器缺乏认识
+
+*****
+
+####  米村正二  
+##### 298#       发表于 2021-11-26 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708217&amp;ptid=2039422" target="_blank">longrider 发表于 2021-11-26 12:32</a>
+
+Ω到底什么时候才出现，还是因为太恐怖而不会用omega命名
+
+—— 来自 S1Fun</blockquote>
+多半会给个毫无存在感的亚种直接糊弄过去，就像alpha beta gamma一样
+
+*****
+
+####  鱼见  
+##### 299#       发表于 2021-11-26 20:06
+
+从南非产生算历史必然性了,  南非是全世界艾滋病毒感染率最高的国家之一, 国内有大量免疫缺陷人群, 对于疫苗这种依赖人体自身免疫作用的医疗方式, 对南非完全无用, 南非可以永远可持续产出新变异病毒
+
+*****
+
+####  coldhot3  
+##### 300#       发表于 2021-11-26 20:07
+
+<blockquote>w2131978 发表于 2021-11-26 19:26
+阿妹你看坐拥将近五千万确诊。三亿多的培养皿，有出过什么上台面的变异毒株吗？
+
+只要躺平了不去测序，蛊 ...</blockquote>
+iota啊，第一个新血清型。要不是干不过十亿培养皿的印度delta，早就，缓慢传遍全世界了。
+

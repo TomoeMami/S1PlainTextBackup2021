@@ -15761,3 +15761,44 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">特么的911carrera那个拍照任务我死活完成不了，有没有什么抢救方法啊
 
+
+
+*****
+
+####  aaronluray  
+##### 1427#       发表于 2021-11-26 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713709&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-26 19:36</a>
+
+特么的911carrera那个拍照任务我死活完成不了，有没有什么抢救方法啊</blockquote>
+贴吧有说 可以先换一辆车拍，马上在换回911拍可以过
+
+*****
+
+####  920619lqy  
+##### 1428#       发表于 2021-11-26 20:02
+
+<blockquote>Vladimeow 发表于 2021-11-26 05:36
+特么的911carrera那个拍照任务我死活完成不了，有没有什么抢救方法啊</blockquote>
+这个任务有什么特别的吗，我是直接拍了没事，倒是这周那个要在晚上拍照的一直做不了，天黑了怎么拍都不算。后来搜别人做的晚上的图进去拍又算数了
+
+*****
+
+####  萱时令  
+##### 1429#       发表于 2021-11-26 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711705&amp;ptid=2033303" target="_blank">cxl6191467 发表于 2021-11-26 16:49</a>
+现在还有什么办法能刷钱吗？我是主机板，我看网上都是用按键精灵什么的</blockquote>
+刷钱方法没变 还是技能点换资源 现在蓝图甚至更多更完善了 只是俩封面车削了后效率低了很多
+按键精灵不是必要的 随便什么能录制按键操作的就行
+
+*****
+
+####  4ckc  
+##### 1430#       发表于 2021-11-26 20:04
+
+各种季节任务无法完成的应该都是网络问题
+基本上就是你做任务的时候要确保连接正常，一个判断依据是地图上你能看到其他玩家在移动
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

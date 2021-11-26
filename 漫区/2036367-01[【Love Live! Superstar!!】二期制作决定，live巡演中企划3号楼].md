@@ -13696,3 +13696,97 @@ DC33A4BA-51FF-4CA1-94AD-139187570D15.jpeg
 
 终于看到5人版扭跨<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 1234#       发表于 2021-11-26 19:48
+
+2nd live这么快，还以为得2期动画后<img src="https://p.sda1.dev/3/e463bfd48096c3445da2b6235fabe9ba/IMG_CMP_21204447.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1235#       发表于 2021-11-26 19:48
+
+<img src="https://img.saraba1st.com/forum/202111/26/194814mx3zm5vn7443v7vn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211126194754.png</strong> (118.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202111/26/194850mr7zvblz72eervel.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211126194830.png</strong> (152.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-26 19:48 上传
+
+*****
+
+####  kata魂  
+##### 1236#       发表于 2021-11-26 19:50
+
+这鲤鱼是真的没休息了哦…
+
+*****
+
+####  lj205  
+##### 1237#       发表于 2021-11-26 19:50
+
+青山哭了！！！！！！！！！！！！111
+
+*****
+
+####  chenflyyy  
+##### 1238#       发表于 2021-11-26 19:51
+
+无敌的青山姐也绷不住了
+
+*****
+
+####  cybernetics31  
+##### 1239#       发表于 2021-11-26 19:53
+
+ 本帖最后由 cybernetics31 于 2021-11-26 19:57 编辑 
+
+2月到3月中间还算有点时间休息 2nd这也太快了吧。。。。。。。。。。而且离虹4th时间也太近了吧 。。。。。
+
+*****
+
+####  优妮可  
+##### 1240#       发表于 2021-11-26 19:57
+
+休息估计也会插生放的
+
+*****
+
+####  kata魂  
+##### 1241#       发表于 2021-11-26 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713864&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-11-26 19:53</a>
+
+2月到3月中间还算有点时间休息 2nd这也太快了吧。。。。。。。。。。</blockquote>
+关键是2nd唱bd曲的话，新舞练习之类的不可能有休息啊…
+
+*****
+
+####  cybernetics31  
+##### 1242#       发表于 2021-11-26 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713912&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-26 19:57</a>
+
+关键是2nd唱bd曲的话，新舞练习之类的不可能有休息啊…</blockquote>
+估计休息时间还是有的 不像鲤鱼自己fc生放说的现在她基本就没休息时间。。。。。。
+
+*****
+
+####  寒风夜  
+##### 1243#       发表于 2021-11-26 19:59
+
+才2月
+
