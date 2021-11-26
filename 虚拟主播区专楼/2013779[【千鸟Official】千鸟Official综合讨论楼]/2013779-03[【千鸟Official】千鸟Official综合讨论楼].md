@@ -372,3 +372,12 @@ syl 看文静切片之后有了个虐文的思路，但是不是很想写<img sr
 
 最近宫斗结束政权稳定了才正式接受邀请，所以只能加在最上面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3036#       发表于 2021-11-27 06:54
+
+根据文静的maybe属性，我对出现在这张图里的V的职业前途深感忧虑
+
