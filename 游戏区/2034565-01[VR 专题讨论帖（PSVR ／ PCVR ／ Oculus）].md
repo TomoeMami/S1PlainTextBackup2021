@@ -2944,3 +2944,16 @@ SKYBOX的电影院模式看电影真是太爽了，今晚看了阿丽塔，太�
 
 感觉没啥买的。。。大部分都没steam便宜。。。。
 
+
+
+*****
+
+####  dumplingpro  
+##### 190#       发表于 2021-11-26 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711885&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-11-26 17:02</a>
+感觉没啥买的。。。大部分都没steam便宜。。。。</blockquote>
+蒸汽的话，推荐zomday和evespace，16.5和13块钱，买不到吃亏买不到上当<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
