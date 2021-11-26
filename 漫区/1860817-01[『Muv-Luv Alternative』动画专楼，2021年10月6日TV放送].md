@@ -20897,3 +20897,34 @@ steam版就是以前的PC版啊，如果要较真的话应该是后期的win7版
 —— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ate就该被钉到耻辱柱上 什么玩意
 
+
+
+*****
+
+####  wwddrte  
+##### 1470#       发表于 2021-11-27 03:16
+
+只看了动画的到这集有点懵逼，之前第六第七集我还以为终于进主线了，不知道为啥这里要来一段政变
+
+
+
+*****
+
+####  噗呸破屁诚  
+##### 1471#       发表于 2021-11-27 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717716&amp;ptid=1860817" target="_blank">wwddrte 发表于 2021-11-27 03:16</a>
+
+只看了动画的到这集有点懵逼，之前第六第七集我还以为终于进主线了，不知道为啥这里要来一段政变 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看你对主线的定义是啥了，如果有“战斗大场面”就是主线，那么125绝对是前期的小主线了
+
+*****
+
+####  wwddrte  
+##### 1472#       发表于 2021-11-27 05:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717745&amp;ptid=1860817" target="_blank">噗呸破屁诚 发表于 2021-11-27 03:42</a>
+
+看你对主线的定义是啥了，如果有“战斗大场面”就是主线，那么125绝对是前期的小主线了 ...</blockquote>
+Alternative4吧，之前不是等三天就能去拿公式了嘛
+

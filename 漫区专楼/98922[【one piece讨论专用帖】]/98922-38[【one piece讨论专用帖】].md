@@ -8481,3 +8481,24 @@ king的这个种族 肯定要跟着新海贼王才有未来吧</blockquote>
 
 king和queen的强度 不愧是大看板
 
+
+
+*****
+
+####  魏柔  
+##### 56161#       发表于 2021-11-27 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706362&amp;ptid=98922" target="_blank">tyauto 发表于 2021-11-26 10:17</a>
+
+直接一两话内干翻，现在尾田明显加快进度，毕竟要在五年内完结</blockquote>
+御田荣一郎只要把和之国砍了，5年内早完结了
+
+和之国真是又臭又长
+
+*****
+
+####  赚钱娶老婆  
+##### 56162#       发表于 2021-11-27 02:38
+
+古伊娜还有个妹妹啊
+

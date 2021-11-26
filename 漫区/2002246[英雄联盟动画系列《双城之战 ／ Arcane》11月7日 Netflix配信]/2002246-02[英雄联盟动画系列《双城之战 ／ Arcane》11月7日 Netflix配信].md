@@ -13531,3 +13531,57 @@ SOVA是那个俄罗斯弓箭手吗？那个曲子确实好听
 
 现在看了档案里金克丝的涂鸦日记「姐姐说我还不行/她嘴上没说，但她心里是这么想的/她看我的眼神就是这个意思/别盯着我看了！」，一种看懂的感觉油然而生，猜中的感觉就让人暗爽<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bartholo4  
+##### 2773#       发表于 2021-11-27 01:44
+
+jinx现在还是一股苦大仇深的脸
+离“笑口常开”的版本感觉还差一些偷税的关键剧情
+嗯，估计穿上比基尼后才是完全体
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2774#       发表于 2021-11-27 01:56
+
+<blockquote>bartholo4 发表于 2021-11-27 01:44
+jinx现在还是一股苦大仇深的脸
+
+离“笑口常开”的版本感觉还差一些偷税的关键剧情
+
+嗯，估计穿上比基尼后才是 ...</blockquote>
+  第二季主题应该是维克多那句什么时候改变都不晚。
+
+*****
+
+####  Redis  
+##### 2775#       发表于 2021-11-27 02:38
+
+vi和caitlyn是官配还是jayce和caitlyn是官配？
+
+不是lol玩家，比较好奇 
+
+*****
+
+####  Redis  
+##### 2776#       发表于 2021-11-27 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53694640&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-25 15:03</a>
+
+可能是我没表达明白，其实我是想问卖不卖盘来着- -</blockquote>
+我觉得目前ost卖盘的很少很少了
+
+一般直接流媒
+
+*****
+
+####  缺德猫  
+##### 2777#       发表于 2021-11-27 03:05
+
+维克托青梅的意识很可能在那个海克斯核心里。
+

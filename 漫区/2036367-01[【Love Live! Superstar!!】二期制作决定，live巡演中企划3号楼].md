@@ -14110,3 +14110,86 @@ ID:wr08lyr7(12/75)
 pay酱在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/e7ce468cf5572f8e7192c8e76ea716eb/IMG_CMP_169208879.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 1266#       发表于 2021-11-27 05:00
+
+东风本田的蓝V号里有个可可的痛车
+
+<img src="https://img.saraba1st.com/forum/202111/27/045550yiseukzur97i9ow7.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20211127045252.png</strong> (71.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:55 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/045550gxp01r50z9tnlzw5.jpg" referrerpolicy="no-referrer">
+
+<strong>A3.jpg</strong> (385.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:55 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/045549mcyyrcydccx4rync.jpg" referrerpolicy="no-referrer">
+
+<strong>74fc1e43gy1gwmxcq0h8mj218z0u0k3y.jpg</strong> (361.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:55 上传
+
+车主是这位：@是王潘不是谱玮
+
+更多的图见这里：[https://weibo.com/2021996215/L1twtb5FL](https://weibo.com/2021996215/L1twtb5FL)
+
+他好像还不止一辆可可痛车
+
+<img src="https://img.saraba1st.com/forum/202111/27/045845qv66vkprkvwirpa0.jpg" referrerpolicy="no-referrer">
+
+<strong>FEs4pEiakAI_sSn.jpg</strong> (558.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/045842c9a5919s7o917515.jpg" referrerpolicy="no-referrer">
+
+<strong>FCHuxl7VEAQZImc.jpg</strong> (348.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/045843d0k7fksds1tk3fls.jpg" referrerpolicy="no-referrer">
+
+<strong>788536b7ly1gwewd3gponj22tc1vkkjn.jpg</strong> (496.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/045843nqtqrxa5a0m83amg.jpg" referrerpolicy="no-referrer">
+
+<strong>788536b7ly1gwewctm10aj22tc1l0qv8.jpg</strong> (615.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:58 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/045844zz30xc3l58rjir30.jpg" referrerpolicy="no-referrer">
+
+<strong>FEc2znSaAAEnrFv.jpg</strong> (480.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 04:58 上传
+
+仔细看还能发现可可的一句中文台词
+
+不过最大的槽点应该还是那个“KETEA”吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

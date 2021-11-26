@@ -3672,3 +3672,333 @@ J&amp;J现在的说法是因为效果低，所有人都应该在2个月打第二
 
 因为大部分南非的航班回去阿拉伯国家转机进入欧洲
 
+
+
+*****
+
+####  zqr211  
+##### 342#       发表于 2021-11-27 01:59
+
+感觉其实就是配合老美的打压油价策略。。。
+
+是否真有这么严重我持怀疑态度
+
+*****
+
+####  hacisiki  
+##### 343#       发表于 2021-11-27 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707046&amp;ptid=2039422" target="_blank">ftqwer1 发表于 2021-11-26 11:06</a>
+
+每次看到这个都想起天启四骑士的圣经。</blockquote>
+然后解放军来了，把骑士们锤进土里，同时高喊着：“我们有坦克，我们有科学！”
+
+*****
+
+####  hacisiki  
+##### 344#       发表于 2021-11-27 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712161&amp;ptid=2039422" target="_blank">月初照 发表于 2021-11-26 17:22</a>
+
+蟑螂蚊子有话说</blockquote>
+蚊子其实最简单，重启DDT满世界铺满，OK。
+
+*****
+
+####  alerbe  
+##### 345#       发表于 2021-11-27 02:36
+
+比利时确诊欧洲第一例新变种，去过土耳其和埃及，没去过南非
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| riczxc| + 2||
+
+查看全部评分
+
+*****
+
+####  riczxc  
+##### 346#         楼主| 发表于 2021-11-27 02:53
+
+命名了。R0能是delta的5倍，吓死人。
+
+*****
+
+####  澜灰-  
+##### 347#       发表于 2021-11-27 03:08
+
+可还行，直接Omicron了..
+
+*****
+
+####  Redis  
+##### 348#       发表于 2021-11-27 03:12
+
+ 本帖最后由 Redis 于 2021-11-27 03:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717672&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-27 02:53</a>
+
+命名了。R0能是delta的5倍，吓死人。</blockquote>
+delta不是都一传5了么
+
+这个能一传25？
+
+*****
+
+####  螺纹  
+##### 349#       发表于 2021-11-27 03:17
+
+刷财联社和见闻刷到过，过来一看s1也更新很快嘛
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  最好不说  
+##### 350#       发表于 2021-11-27 03:18
+
+这下真爆杀德尔塔了，非洲的变种都是怪物吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+而且看起来不知道在非洲养了多久蛊，老欧洲这波封锁肯定晚了，刚被delta蹂躏了大半年又要被Omicron爆艹还可能被前后一起爆，呜呜呜我哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+我装的，让傻卵白皮玩群体免疫，看你新冠爷爷整不整死你就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 351#       发表于 2021-11-27 03:19
+
+<blockquote>The first known confirmed B.1.1.529 infection was from a specimen collected on 9 November 2021.</blockquote>
+
+完犊子咯，这病毒早就传播了很久了
+
+*****
+
+####  Wcy  
+##### 352#       发表于 2021-11-27 03:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53708375&amp;ptid=2039422" target="_blank">ak123 发表于 2021-11-26 12:44</a>
+
+然而所有现实都证明新冠是往高传播高致死发展的，一开始全世界流行的毒株确实对老人以外影响不大，然后你 ...</blockquote>
+死亡率升高了吗，有数据吗？
+
+*****
+
+####  系色可符香  
+##### 353#       发表于 2021-11-27 03:52
+
+还不够，白皮多死点才会老实
+
+*****
+
+####  lexi  
+##### 354#       发表于 2021-11-27 03:57
+
+<blockquote>riczxc 发表于 2021-11-26 02:38
+所以要搞NPI然后清零啊。
+
+例如欧洲国家现在每天死几百个老人，他们就开始大多数支持封城了。就是短视、 ...</blockquote>
+一年多了，欧洲每天死的人哪止几百啊。
+
+*****
+
+####  lexi  
+##### 355#       发表于 2021-11-27 04:14
+
+<blockquote>天野银次X美堂蛮 发表于 2021-11-26 11:17
+我新冠只示范一次吗？</blockquote>
+你们都看好了，我新冠只示范五次！什么？有同学还没看清楚？那我再来亿次吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 356#         楼主| 发表于 2021-11-27 04:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717760&amp;ptid=2039422" target="_blank">lexi 发表于 2021-11-27 03:57</a>
+
+一年多了，欧洲每天死的人哪止几百啊。</blockquote>
+我是说每个国家。
+
+*****
+
+####  riczxc  
+##### 357#         楼主| 发表于 2021-11-27 04:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717750&amp;ptid=2039422" target="_blank">Wcy 发表于 2021-11-27 03:48</a>
+
+死亡率升高了吗，有数据吗？</blockquote>
+没有。但是结合强了，理论上应该会升高。
+
+*****
+
+####  烦死了  
+##### 358#       发表于 2021-11-27 04:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717725&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-27 03:19</a>
+完犊子咯，这病毒早就传播了很久了</blockquote>
+好消息 早就在传 死亡人数没上升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 359#         楼主| 发表于 2021-11-27 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717793&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-11-27 04:28</a>
+
+好消息 早就在传 死亡人数没上升</blockquote>
+红迪r/coronavirus的那帮人就是这样催眠自己的。差不多新冠三年了，至少有人提醒死亡数会滞后。
+
+*****
+
+####  wszweill  
+##### 360#       发表于 2021-11-27 04:49
+
+ 本帖最后由 wszweill 于 2021-11-26 15:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713426&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2021-11-26 06:06</a>
+
+@LeBonHomme
+
+最近又有舆论宣称新冠会往低毒性高传染性进化，最终变成一种普通感冒…</blockquote>
+考虑到基因重组也得有个源头，真入侵新受体，非洲这么大规模的HIV感染率，和HIV重组的可能性比其他未知的低毒性病毒重组的可能性高多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 主要问题在于宿主细胞不一样，一般情况下还是挺难重组的（
+
+
+
+*****
+
+####  境堺の侍  
+##### 361#       发表于 2021-11-27 05:00
+
+ 本帖最后由 境堺の侍 于 2021-11-27 05:01 编辑 
+
+岛国住人扫一眼Telegraph，最显眼的标题 “<strong>We need to take back our lives from the permanent Covid panic-mongers</strong>”，精要/副标题：“Even before the new variant emerged, the lazy and risk-averse were threatening everyone with procedures and precautions”
+
+白眼翻上天。自求多福的又一年<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 362#         楼主| 发表于 2021-11-27 05:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717814&amp;ptid=2039422" target="_blank">境堺の侍 发表于 2021-11-27 05:00</a>
+
+岛国住人扫一眼Telegraph，最显眼的标题 “We need to take back our lives from the permanent Covid pani ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯皮内西  
+##### 363#       发表于 2021-11-27 05:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717814&amp;ptid=2039422" target="_blank">境堺の侍 发表于 2021-11-27 05:00</a>
+岛国住人扫一眼Telegraph，最显眼的标题 “We need to take back our lives from the permanent Covid pani ...</blockquote>
+外来务工人员就好好看guardian吧，看托利报纸惹自己不开心干什么呢。
+
+*****
+
+####  lexi  
+##### 364#       发表于 2021-11-27 05:40
+
+ 本帖最后由 lexi 于 2021-11-27 05:45 编辑 
+<blockquote>自由斗士 发表于 2021-11-26 16:09
+<blockquote>还是不要用你们大棋党的“常识”来纠正我的现实了。</blockquote><blockquote>现实就是别人拒绝的原因就是政治。今年和M硝子和O陶瓷合作协议被撕，S化学断供的原因就是他们不和共产党国家的企业有商业来往。</blockquote><blockquote>
+</blockquote><blockquote>马基雅维利都知道国家伟力在于勇士效死，不在黄金多寡。美利坚天朝养士76年，板荡之时，岂无忠信？</blockquote></blockquote>鸡蛋灌饼一到水区，所有水区的人便都看着他笑，有的叫道，“鸡蛋灌饼，你又跟人键战了!”他不回答，对柜里说，“来个没人认识的新账号，要正100鹅的。”便排出九文大钱。他们又故意的高声嚷道，“你一定又吹泥国药丸，被人挂城门了!”鸡蛋灌饼睁大眼睛说，“你怎么这样凭空污人清白……”“什么清白?我前几天亲眼见你在水区舌战群儒，说什么你们死到临头，结果第二天YKW宣布退出TPP。”鸡蛋灌饼便涨红了脸，额上的青筋条条绽出，争辩道，“键战不能算输……政治经济学!……国际关系的事，他YKW懂个屁？我能算输么?”接连便是难懂的话，什么“悲天悯人”，什么“众人皆醉我独醒”之类，引得众人都哄笑起来：水区内外充满了快活的空气。
+
+鸡蛋灌饼大，您这是新账号嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  境堺の侍  
+##### 365#       发表于 2021-11-27 05:49
+
+ 本帖最后由 境堺の侍 于 2021-11-27 05:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717822&amp;ptid=2039422" target="_blank">斯皮内西 发表于 2021-11-27 05:09</a>
+
+外来务工人员就好好看guardian吧，看托利报纸惹自己不开心干什么呢。</blockquote>
+是的，赶紧就去看了眼Guardian，调整心情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 366#       发表于 2021-11-27 05:50
+
+疫苗制造商 Moderna 表示，新的 Omicron 变体对其 Covid-19 疫苗的功效以及自然达到的免疫力构成了“重大的潜在风险”。
+
+“最近描述的 Omicron 变体包括在 Delta 变体中发现的突变，这些突变被认为会增加传播性，而在 Beta 和 Delta 变体中发现的突变被认为可以促进免疫逃逸，”Moderna 周五在新闻发布会上说。
+
+“突变的组合代表了加速自然和疫苗诱导免疫力减弱的重大潜在风险，”该公司表示。
+
+该公司表示，它正在迅速开展工作，以测试其疫苗中和新变种的能力，预计将在未来几周内提供数据。
+
+如果目前的疫苗和疫苗的当前加强剂量不足以对抗这种变体，一种可能的解决方案是用更大的剂量加强接种，Moderna 表示正在测试。
+
+该公司还在评估两种多价助推器候选产品，看看它们是否能提供针对 Omicron 的卓越保护。两个候选者都包括新变体中存在的一些病毒突变。
+
+Moderna 还在评估 Omicron 特定的助推器候选人。
+
+“我们有三道防线，我们正在并行推进，”Moderna 首席执行官 Stephane Bancel 在新闻稿中说。 “Omicron 变体中的突变令人担忧，几天以来，我们一直在尽可能快地执行我们的策略来解决这个变体。”
+
+*****
+
+####  烦死了  
+##### 367#       发表于 2021-11-27 05:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717854&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-27 05:50</a>
+
+疫苗制造商 Moderna 表示，新的 Omicron 变体对其 Covid-19 疫苗的功效以及自然达到的免疫力构成了“重大的 ...</blockquote><blockquote>一种可能的解决方案是用更大的剂量加强接种</blockquote>
+
+说好的mrna疫苗可以随时改变序列？
+
+moderna怎么就会加剂量。。。。
+
+*****
+
+####  Redis  
+##### 368#       发表于 2021-11-27 05:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717855&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-11-27 05:52</a>
+
+说好的mrna疫苗可以随时改变序列？
+
+moderna怎么就会加剂量。。。。</blockquote>
+moderna的剂量已经超大了
+
+感觉我的辉瑞booster算白打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 369#       发表于 2021-11-27 05:57
+
+辉瑞发言人
+ <blockquote>"该变体与以前观察到的变体有很大不同，因为它有位于尖峰蛋白的额外突变。我们期望最迟在两周内获得更多的实验室测试数据。这些数据将提供更多关于B.1.1.529是否可能是一个逃逸变体的信息，如果该变体在全球蔓延，可能需要对我们的疫苗进行调整，"该发言人写道。</blockquote>
+
+*****
+
+####  Redis  
+##### 370#       发表于 2021-11-27 05:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717855&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-11-27 05:52</a>
+
+说好的mrna疫苗可以随时改变序列？
+
+moderna怎么就会加剂量。。。。</blockquote>
+感觉主要还是加剂量不用重新审批？
+
