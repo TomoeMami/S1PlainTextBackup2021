@@ -14211,3 +14211,14 @@ pay酱在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 没买过先行抽选，请问如果花了买bd的钱抽选，门票还要再付一次钱吗？是不是买了bd也不一定抽得到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1269#       发表于 2021-11-27 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717962&amp;ptid=2036367" target="_blank">太阳寺太守 发表于 2021-11-27 07:37</a>
+没买过先行抽选，请问如果花了买bd的钱抽选，门票还要再付一次钱吗？是不是买了bd也不一定抽得到 ...</blockquote>
+恭喜你答对了
+
