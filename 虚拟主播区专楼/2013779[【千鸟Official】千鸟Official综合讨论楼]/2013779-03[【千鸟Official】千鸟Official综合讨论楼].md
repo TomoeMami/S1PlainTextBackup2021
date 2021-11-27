@@ -422,3 +422,20 @@ syl 看文静切片之后有了个虐文的思路，但是不是很想写<img sr
 
 11月都快过去了，静瘾最重的那次……（前面忘了）躺在床上抠自己的眼乌珠（后面忘了）……静静静静静静<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 3040#       发表于 2021-11-27 16:13
+
+阑尾梗都玩腻了,没意思.文静也不抛点新乐子出来,还不如去原力喝咖啡杯被乱棍打毕业呢.鸟吧最近也凉凉，没梗好难受。唔啊~
+
+<img src="https://img.saraba1st.com/forum/202111/27/161353f8uk5qz3wdgov8zd.png" referrerpolicy="no-referrer">
+
+<strong>两眼一黑.png</strong> (7.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 16:13 上传
+

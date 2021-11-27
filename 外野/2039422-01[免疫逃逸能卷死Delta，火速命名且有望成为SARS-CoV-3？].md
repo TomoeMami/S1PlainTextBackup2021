@@ -5837,3 +5837,126 @@ John，Jean，Johann，Juan都是一个来源。
 
 这才是这个视频能够看到的事实，至于你说的那些，都只存在于你的脑子里
 
+
+
+*****
+
+####  inconolast  
+##### 533#       发表于 2021-11-27 16:04
+
+差不多得了，自己开个帖对喷去
+
+*****
+
+####  lexi  
+##### 534#       发表于 2021-11-27 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718868&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 10:28</a>
+
+xi不是读作ksi么  真命名了 应该也读作variant ksi之类的  写法就更不像了 ξ咋能和汉语拼音扯上关系呢 ...</blockquote>
+恐龙特急克赛号！
+
+*****
+
+####  朋友  
+##### 535#       发表于 2021-11-27 16:06
+
+ 本帖最后由 朋友 于 2021-11-27 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722541&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 16:03</a>
+
+这个视频说的是美国中间商不同意涨价，然后这家中国生产企业就撇开中间商自己搞供应链了，这对其他中国企 ...</blockquote>
+你脑补的这些什么美国企业多了个竞争对手的才是搞笑，视频里说的很清楚，无法盈利。
+
+“美国中间商不同意涨价，然后这家中国生产企业就撇开中间商自己搞供应链了” 这确实是减少竞争，是已经在竞争中被别的中国企业拿着低价干烂了的结果，怎么就不是中国企业之间的价格竞争了？ 
+
+不是我脑补别的企业压价，而是中间商最终不同意涨价这件事本身就说明了其他企业在压价。人家中间商从其他供应商手里吸血，反手再干死你，怎么就成了牺牲中间商了？
+
+*****
+
+####  jago2051  
+##### 536#       发表于 2021-11-27 16:09
+
+我今天手欠查了一下他这数据源
+[https://ourworldindata.org/coronavirus/country/south-africa](https://ourworldindata.org/coronavirus/country/south-africa)
+
+我发现他这图改了啊，到今天为止那曲线也没他画的1/3高。
+
+截至11月25号才1000人，这哥们为了流量这么搞不好吧？
+
+*****
+
+####  最好不说  
+##### 537#       发表于 2021-11-27 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722439&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-11-27 15:53</a>
+
+【#南非两趟抵达荷兰班机约85人新冠阳性#】据路透社报道，荷兰卫生部门表示，来自南非的两趟航班中，约有85 ...</blockquote>
+然而香港第二例omicron就是在隔离酒店被传染的，还不全面停飞我只能说老欧洲真的勇<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lexi  
+##### 538#       发表于 2021-11-27 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721253&amp;ptid=2039422" target="_blank">sylver2333 发表于 2021-11-27 13:59</a>
+
+一直没发现Omicron和Omega就是O的大小写，O-micron和O-mega，上一次这种感觉还是在知道w是double-u的时候 ...</blockquote>
+卧槽，听你说我才学习到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 539#       发表于 2021-11-27 16:15
+
+ 本帖最后由 汽车屁 于 2021-11-27 16:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722576&amp;ptid=2039422" target="_blank">朋友 发表于 2021-11-27 16:06</a>
+
+你脑补的这些什么美国企业多了个竞争对手的才是搞笑，视频里说的很清楚，无法盈利。
+
+“美国中间商不同意 ...</blockquote>
+因为中国企业的价格竞争，所以导致涨价没有成功？这就是你所谓的中国企业之间的价格战？
+
+一家中国企业价格没有上涨成功，然后他的选择是自己搞供应链，短期也许没有盈利，但长期却是对美国中间商的掘墓人
+
+那另一家企业呢？是否涨价成功了？是否也出海跨境了？这就不得而知了
+
+只知道，美国的中间商现在多了一个长期的战略竞争对手
+
+*****
+
+####  死亡確認  
+##### 540#       发表于 2021-11-27 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722154&amp;ptid=2039422" target="_blank">内野 发表于 2021-11-27 15:24</a>
+
+都啥时候了还想着出国 嫌命长吗 要我说现在全是入境带来的 出去了可别回来了 ...</blockquote>
+要知道，就算是现在还有不少人争着要润出去的，理由就是现在外面的留学租房什么的变便宜了，我就知道去年今年有好几个上海的妹子跑日本去了，说现在去日本读书名额变多了房租变便宜了整体价格都低了，至于风险什么的估计压根没考虑……
+
+
+
+*****
+
+####  朋友  
+##### 541#       发表于 2021-11-27 16:24
+
+ 本帖最后由 朋友 于 2021-11-27 16:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722664&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 16:15</a>
+
+因为中国企业的价格竞争，所以导致涨价没有成功？你是这个意思？这就是你所说的中国企业之间的价格战？
+
+ ...</blockquote>
+当然啊，这不叫价格战什么叫价格战？注意前提，原材料价格普遍上涨，现有价格无法盈利。
+
+放下你的长期和大棋，按你的说法，华为也没有被美国制裁，毕竟虽然华为没法给TSMC投片了，但是华为万一之后有了去美化的芯片生产线，美国要多了一个长期战略竞争对手。不是说后面这件事不可能，但这和华为被制裁，和国内厂家打价格战有什么关系呢？
+
+现在的问题是，如果涨价，大家都能爽，反正要么中间商把涨价吃了，要么美国消费者把这部分吃了。
+
+不涨价，或许可以卷死其他供应商，然后自己爽，或者被别人卷死，反正中间商低价拿货乐呵呵啊，至于说竞争，你把货卖给别的供应商，或者你自己出来卖，对于他来说都只是另一个卖家而已，没差啊。相比起别的本土作战的，你做跨境本来就是劣势。
+
+*****
+
+####  swf  
+##### 542#       发表于 2021-11-27 16:24
+
+毒性减弱没有？
+
