@@ -14453,3 +14453,12 @@ https://youtu.be/hGxFsyHDsUE
 苍天君的1st巡演in 东京Vlog居然今天凌晨就发了，这次好快
 [https://www.bilibili.com/video/BV14S4y1R7u1](https://www.bilibili.com/video/BV14S4y1R7u1)
 
+
+
+*****
+
+####  平贺才人  
+##### 1291#       发表于 2021-11-27 22:44
+
+<img src="http://tva2.sinaimg.cn/large/6fcb9509ly1gwu3alyd7aj20gv0d5mxy.jpg" referrerpolicy="no-referrer">
+

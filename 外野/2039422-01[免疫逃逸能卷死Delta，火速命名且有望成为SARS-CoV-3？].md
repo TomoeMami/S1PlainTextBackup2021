@@ -7039,3 +7039,60 @@ igm验血不一定准5分钟出结果，有啥用呀<img src="https://static.sar
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  coldhot3  
+##### 644#       发表于 2021-11-27 22:48
+
+<blockquote>falisi 发表于 2021-11-27 20:16
+越看越觉得不是我党多英明，是外面太傻逼了</blockquote>
+你以为中国境内脑袋拎不清的人少吗？能顶住压力，不被干扰做出正确决策就是厉害。基层能克制住草台倾向把上面决策执行基本ok ，那也是执行力强。
+
+*****
+
+####  淡蓝色幽灵  
+##### 645#       发表于 2021-11-27 22:52
+
+<blockquote>小妻水亚美 发表于 2021-11-27 21:41
+我其实就想知道当年第二波西班牙流感时，青壮年死亡率极高的时候，欧洲国家的青年是不是都怕得躲在家里哪里 ...</blockquote>
+实际上因为战时消息管制，很多人是身边死了很多人才发现有瘟疫。
+
+*****
+
+####  亚尔迪8424  
+##### 646#       发表于 2021-11-27 23:00
+
+居然到现在还没看出 我 D的英明果断之处，还好意思在楼里发言？
+
+咱家领导人能力碾压这个世界 
+
+*****
+
+####  creymorgan  
+##### 647#       发表于 2021-11-27 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727222&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-27 22:26</a>
+
+同样的话，也可以应用于初期的delta爆发。</blockquote>
+B.1.1.529顾名思义前置是B.1.1，而B.1.1在测序记录中消失很久了。
+
+所以这就是一个在艾滋病人体内残存大半年的在奇葩内环境下演化的特殊病毒，虽然突变数量多，但是没不像德尔塔每一个突变都是经过考验确认会带来优势才保留下来的。
+
+作为对比，德尔塔是一个混江湖一场场擂打下来的武林盟主，而奥米克戎是突然出现的怪招野路子，出招奇葩很不适应，但硬素质大概率是不如真的经历过的德尔塔的。
+
+其实非洲零散上报的阴间变种有很多，都是突出一个突变位点多，但是真正混出头的好像还真没有，这大概就是高艾滋病低防疫力量（包括疫苗、抗体类药物）地区的特殊性了。
+
+所以更多的应该是关注而不是恐慌。
+
+*****
+
+####  laotoutou  
+##### 648#       发表于 2021-11-27 23:03
+
+“It’s all speculation at this stage. It may be it’s highly transmissible, but so far the cases we are seeing are extremely mild,” she said. “Maybe two weeks from now I will have a different opinion, but this is what we are seeing. So are we seriously worried? No. We are concerned and we watch what’s happening. But for now we’re saying, ‘OK: there’s a whole hype out there. [We’re] not sure why.’”
+
+至少目前看来症状极其轻微，但是没有说和xx比。当初delta也是极其轻微。
+目前看来新变种致死率确实不高。
+
