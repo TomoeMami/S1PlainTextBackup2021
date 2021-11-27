@@ -14255,3 +14255,23 @@ pay酱在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 1273#       发表于 2021-11-27 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718737&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-11-27 10:11</a>
+那么座位也是全随机？能高价收前排座吗
+
+—— 来自 S1Fun</blockquote>
+对，除非你搞定人脸识别否则不能
+
+*****
+
+####  chenflyyy  
+##### 1274#       发表于 2021-11-27 11:57
+
+我说pay昨晚怎么没发返图的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5005,3 +5005,94 @@ Cancer Virus 可还行</blockquote>
 血清型分化的可怕之处可不只在免疫突破，而是让产生ADE效应的可能性大增，登革热ADE的原因就是感 ...</blockquote>
 就看看会不会快进到保护艾滋病还是保护全人类二选一了
 
+
+
+*****
+
+####  古怪  
+##### 462#       发表于 2021-11-27 11:47
+
+<blockquote>汽车屁 发表于 2021-11-27 11:39
+以色列刚打辉瑞时确诊率骤降，之后确诊率飙升。日本刚开始以色列第一阶段，确诊几乎消失了，接下来等待日 ...</blockquote>
+日本不测，不报就当控制住了。闭上眼睛就是天黑。
+
+*****
+
+####  汽车屁  
+##### 463#       发表于 2021-11-27 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705365&amp;ptid=2039422" target="_blank">武蔵 发表于 2021-11-26 08:53</a>
+
+新冠真是钝刀子割肉啊，欧洲各国整天仰卧起坐的，很难说到底是不负责任的政府培养了短视的国民，还是短视的 ...</blockquote>
+彼此成全吧
+
+资本掌控国家，用快乐教育愚弄民众，自己却花高价享受和中国一样的普通教育，然后反智民众选出短视政府，短视政府无力面对灾难，最后资本逃离，一地鸡毛，螺旋下降，完美闭环，
+
+*****
+
+####  tomatoKnight  
+##### 464#       发表于 2021-11-27 11:52
+
+<blockquote>pliee 发表于 2021-11-27 11:26
+这玩意致死率有提高吗？不搞外国估计还是躺平任草</blockquote>
+高了也一样啊，当年鼠疫死亡率高不高，伦敦还不是躺平认草，有钱人全去乡下躲着，全城马都绝迹，穷人躺平到老鼠都病死，一场大火烧光城市，疫情就结束啦
+
+*****
+
+####  03e7  
+##### 465#       发表于 2021-11-27 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719211&amp;ptid=2039422" target="_blank">kula01 发表于 2021-11-27 11:11</a>
+
+巨蟹座病毒
+
+双鱼座病毒    这些听着比较弱鸡</blockquote>
+天秤座病毒，超长潜伏期
+
+*****
+
+####  神之领域  
+##### 466#       发表于 2021-11-27 12:00
+
+国外进入国内又一波小规模传播不可避免了。哎，而为速度更快，那现在的防控措施更难了呀。真是没完没了，国外那些躺平的真的无语
+
+*****
+
+####  汽车屁  
+##### 467#       发表于 2021-11-27 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706616&amp;ptid=2039422" target="_blank">med 发表于 2021-11-26 10:36</a>
+
+现在出国还是一个好选择吗 --</blockquote>
+世界线已经变了。。。
+
+*****
+
+####  魔皇崩裂拳  
+##### 468#       发表于 2021-11-27 12:02
+
+88星座用完了就用108魔星？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  余海露  
+##### 469#       发表于 2021-11-27 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704449&amp;ptid=2039422" target="_blank">skumi 发表于 2021-11-26 03:20</a>
+香港有病例了，怕不是刚聊得差不多通关又要先搁置。专家组刚走…</blockquote>
+就轰空酒店隔离还漏了+传染了几个人的现状，只能祈祷3号通关了别出事，否则这些去检查，给通关提供依据的专家就得受着<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reedwkaka  
+##### 470#       发表于 2021-11-27 12:04
+
+有没有科学点的预测，这次疫情需要多少年结束啊？还是说以后彻底回不到疫情前的状态了
+
+*****
+
+####  unlsycn  
+##### 471#       发表于 2021-11-27 12:05
+
+真是旷日持久的战争..想念没有疫情的时代
+
