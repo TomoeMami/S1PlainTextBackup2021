@@ -6718,3 +6718,21 @@ South Africa reports 2,828 new coronavirus cases, an increase of 258% from last 
 
 相比之下，6亿美元援助不小了。
 
+
+
+*****
+
+####  对羟基笨甲酸  
+##### 615#       发表于 2021-11-27 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我对疫情一直比较乐观，现在觉得说不定真能养出个超级病毒
+
+*****
+
+####  小妻水亚美  
+##### 616#       发表于 2021-11-27 21:41
+
+我其实就想知道当年第二波西班牙流感时，青壮年死亡率极高的时候，欧洲国家的青年是不是都怕得躲在家里哪里都不敢去啊。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

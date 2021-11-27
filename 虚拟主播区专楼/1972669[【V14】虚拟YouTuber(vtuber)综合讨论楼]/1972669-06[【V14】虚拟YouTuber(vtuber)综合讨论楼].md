@@ -14898,3 +14898,21 @@ react的黒音よみ，毕业后到b站当了三个月个人势小有成色</blo
 #hendy新衣装
 这企划太草了，第一组hnn大活跃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8641#       发表于 2021-11-27 21:38
+
+<blockquote>加賀美 ハヤト办公楼
+
+@H_KAGAMI2434
+
+ちなみに明日昼は夜見さんとバイオ７をやります。
+
+翻译推文
+
+下午6:23 · 2021年11月27日·Twitter Web App</blockquote>
+前段时间还在杞忧没有smc同期联动了，这不就来了
+
