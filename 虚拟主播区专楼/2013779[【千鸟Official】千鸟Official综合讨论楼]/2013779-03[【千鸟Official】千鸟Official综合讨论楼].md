@@ -608,3 +608,21 @@ co宝哪里就正经了，而且前段时间表现得就很成熟理智嘛
 
 nga专楼都有路人去楼里问鸟p咋回事了，给我整不会了
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3058#       发表于 2021-11-28 00:36
+
+不应该让鸟p融入他们，要让他们适应鸟p<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 3059#       发表于 2021-11-28 00:43
+
+感觉似曾相识……As上BML的评论区好像也是这个画风……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

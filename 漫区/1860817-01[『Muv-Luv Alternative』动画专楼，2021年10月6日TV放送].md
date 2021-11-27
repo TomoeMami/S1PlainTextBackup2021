@@ -20969,3 +20969,33 @@ Alternative4吧，之前不是等三天就能去拿公式了嘛</blockquote>
 
 怕看的太多影响推游戏的观感或者被剧透什么的，泥潭有没有对我这类人的观影提示
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1476#       发表于 2021-11-28 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728418&amp;ptid=1860817" target="_blank">wqm2008 发表于 2021-11-28 00:19</a>
+
+没推过muv但以后肯定会推muv的推荐现在去看动画吗？
+
+怕看的太多影响推游戏的观感或者被剧透什么的，泥潭有 ...</blockquote>
+推荐，看多了主要是怕你接受不了游戏的人设而已。
+
+毕竟动画为了省成本把人物细节省略了不少，有的人会受不了原作有棱有角的发型。
+
+*****
+
+####  wqm2008  
+##### 1477#       发表于 2021-11-28 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728445&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-11-28 00:24</a>
+
+推荐，看多了主要是怕你接受不了游戏的人设而已。
+
+毕竟动画为了省成本把人物细节省略了不少，有的人会受 ...</blockquote>
+古早人设对我来讲不是毒点，游戏13年我就想推来着，听龙空那时说又臭又长就放下了
+
+既然这样就去下几集看看啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
