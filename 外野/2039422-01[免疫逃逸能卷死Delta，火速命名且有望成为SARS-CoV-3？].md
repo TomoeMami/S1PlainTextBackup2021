@@ -5469,3 +5469,83 @@ w是没文化英语这么读，有文化法语读两个v
 由于Omicron新病毒的爆发，南非豪登省的病例在25 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这不就是瘟疫公司
 
+
+
+*****
+
+####  汽车屁  
+##### 505#       发表于 2021-11-27 14:49
+
+ 本帖最后由 汽车屁 于 2021-11-27 14:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721532&amp;ptid=2039422" target="_blank">朋友 发表于 2021-11-27 14:23</a>
+
+《绝不束手躺平！原材料价格涨势凶猛 看中国外贸企业如何应对 》
+[https://tv.cctv.com/v/v1/VIDEWYpgOG55](https://tv.cctv.com/v/v1/VIDEWYpgOG55) ...</blockquote>
+你说这个涨5个点美国客户不同意的视频，说的是美国客户即贸易代理商不同意涨价，中国的生产企业就自己做跨境电商，取消掉中间商这一环节。那个小冰箱以前给美国贸易代理商一台70到80美元，中国的生产企业在亚马逊能直接卖到229美元
+
+说的更明确一点，这次的船运涨价，灭掉的是美国贸易代理商，中国企业直接打通供应链，你美国贸易代理商不同意涨价5％，那你就去死吧
+
+你这视频看的，你是怎么得出中国企业打价格战这个结论的？打价格战从7，80美元打到229美元？
+
+*****
+
+####  Redis  
+##### 506#       发表于 2021-11-27 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721760&amp;ptid=2039422" target="_blank">randomsin1 发表于 2021-11-27 14:41</a>
+
+本地不是没有供应商就是价格更高供货期更长</blockquote>
+这倒真不一定
+
+有钱能使鬼推磨，看消费者的耐心了
+
+*****
+
+####  汽车屁  
+##### 507#       发表于 2021-11-27 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721536&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-27 14:23</a>
+
+飞机运费和吞吐和海运比都是杯水车薪
+
+大件什么的更别提了</blockquote>
+美国的贸易代理商都咯屁了，还本地供应商，美国要是有本地供应商那不早就伟大了，还要建国同志干嘛
+
+*****
+
+####  reekilynn  
+##### 508#       发表于 2021-11-27 14:53
+
+ 本帖最后由 reekilynn 于 2021-11-27 14:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719484&amp;ptid=2039422" target="_blank">深渊魔王 发表于 2021-11-27 11:36</a>
+约翰与江恩</blockquote>
+John，Jean，Johann，Juan都是一个来源。
+类似的还有Charles，Carlos，Karl，Karol和Karoly
+
+—— 来自 OnePlus GM1917, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Redis  
+##### 509#       发表于 2021-11-27 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721868&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 14:52</a>
+
+美国的贸易代理商都咯屁了，还本地供应商，美国要是有本地供应商那不早就伟大了，还要建国同志干嘛 ...</blockquote>
+建国同志是人为制造门槛
+
+新冠是自然制造的门槛
+
+我觉得新冠强力多了，买不到比起贵可要要命
+
+*****
+
+####  朋友  
+##### 510#       发表于 2021-11-27 15:05
+
+ 本帖最后由 朋友 于 2021-11-27 15:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721834&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 14:49</a>
+
+你说这个涨5个点美国客户不同意的视频，说的是美国客户即贸易代理商不同意涨价，中国的生产企业就自己做跨 ...</blockquote>
+你没听懂吗，说的是涨5个点客户不同意，不同意的理由是因为有人可以不涨这5个点供货，229美元做跨境电商短期内无法盈利，因为覆盖不了仓储、物流和售后成本。而人家代理商照样不涨价照样拿货卖的好好的，你说谁去死？
+

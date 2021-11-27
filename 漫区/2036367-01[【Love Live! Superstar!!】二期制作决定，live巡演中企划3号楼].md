@@ -14293,3 +14293,38 @@ pay酱在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 官方又发了个练习室视频
 
+
+
+*****
+
+####  优妮可  
+##### 1277#       发表于 2021-11-27 14:50
+
+就这样顺手抱了青山姐
+
+*****
+
+####  kata魂  
+##### 1278#       发表于 2021-11-27 14:50
+
+短时间内水渚鱼和可恋股暴涨
+
+*****
+
+####  ads147147  
+##### 1279#       发表于 2021-11-27 14:54
+
+https://youtu.be/hGxFsyHDsUE
+
+什么叫青山说：鲤鱼各种毛手毛脚啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/0ca40c1186e397fee4f0716dececeff8/-5683f55d2cb3459b.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  player3960  
+##### 1280#       发表于 2021-11-27 15:05
+
+练习室视频是好文明啊，官方多来点，观众能看清编舞的全貌，翻跳的也能参考，还能扣糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
