@@ -15857,3 +15857,26 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  阿狸狸狸狸狸  
+##### 1436#       发表于 2021-11-27 09:45
+
+为什么你们蛇头都能选800的车，我怎么只能选些塞纳还有些s2之类的
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  gzGaryC  
+##### 1437#       发表于 2021-11-27 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718571&amp;ptid=2033303" target="_blank">阿狸狸狸狸狸 发表于 2021-11-27 09:45</a>
+
+为什么你们蛇头都能选800的车，我怎么只能选些塞纳还有些s2之类的
+
+—— 来自 OnePlus KB2000, Android 11 ...</blockquote>
+可以在嘉年华列表里按手柄的菜单键看自己有哪些符合条件的车
+

@@ -4339,3 +4339,63 @@ rna开发疫苗再快也要临床一二三这么走
 
 传的有点快啊，马拉维都有
 
+
+
+*****
+
+####  dawning  
+##### 401#       发表于 2021-11-27 09:46
+
+这也许就是大过滤器吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ooohaoguai2  
+##### 402#       发表于 2021-11-27 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717951&amp;ptid=2039422" target="_blank">diyihaoshitu 发表于 2021-11-27 07:32</a>
+
+按理说如果一个病毒的传染率高，那它的死亡率就一定会低
+
+—— 来自 vivo Y55L, Android 6.0.1上的 S1Next- ...</blockquote>
+没有这个说法，只是长期来看兼有死亡率和传播性的疾病，把宿主都杀光了，也就消灭自己了
+
+*****
+
+####  结夜野棠.  
+##### 403#       发表于 2021-11-27 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718271&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-27 09:02</a>
+不用牛命名？</blockquote>
+[https://twitter.com/paulnuki/status/1464310918389587974](https://twitter.com/paulnuki/status/1464310918389587974)
+
+A WHO source confirmed the letters Nu and Xi of the Greek alphabet had been deliberately avoided. Nu had been skipped to avoid confusion with the word "new" and Xi had been skipped to "avoid stigmatising a region", they said.
+
+All pandemics inherently political!
+
+中文就不翻译了 有点敏感（
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| downnote| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  烦死了  
+##### 404#       发表于 2021-11-27 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718646&amp;ptid=2039422" target="_blank">结夜野棠. 发表于 2021-11-27 09:55</a>
+
+https://twitter.com/paulnuki/status/1464310918389587974
+
+A WHO source confirmed the letters Nu and ...</blockquote>
+考虑的还挺周到的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
