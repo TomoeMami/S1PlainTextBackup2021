@@ -9275,3 +9275,39 @@ ios是用不了推特空间直播的cc字幕吗，看别人截图有这东西，
 
 经典为了三分钟节目一月不怎么播<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pei23333  
+##### 5569#       发表于 2021-11-27 16:24
+
+万一这次是3d呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  2014720  
+##### 5570#       发表于 2021-11-27 16:30
+
+即使是ddd这种效率也属实猪逼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+当然她本身就是一个猪逼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 5571#       发表于 2021-11-27 16:39
+
+这么多人每人也就一首歌的时间，还用得着3d？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  T_Hb  
+##### 5572#       发表于 2021-11-27 16:43
+
+很明显不是这个活动，一直在准备的是另外一个
+
