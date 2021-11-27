@@ -6596,3 +6596,41 @@ South Africa reports 2,828 new coronavirus cases, an increase of 258% from last 
 这又不高，佛州之前经常10-20%</blockquote>
 别和德桑蒂斯这行为艺术家比烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oyss  
+##### 604#       发表于 2021-11-27 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722720&amp;ptid=2039422" target="_blank">死亡確認 发表于 2021-11-27 16:21</a>
+
+要知道，就算是现在还有不少人争着要润出去的，理由就是现在外面的留学租房什么的变便宜了，我就知道去年 ...</blockquote>
+这相当于收割疫情红利.自己付出一定的风险成本.降下来的房租和名额,都是别人的头上的社会成本.相当于全社会抗疫,为这些人付差价.
+
+*****
+
+####  66666  
+##### 605#       发表于 2021-11-27 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725206&amp;ptid=2039422" target="_blank">falisi 发表于 2021-11-27 20:16</a>
+
+越看越觉得不是我党多英明，是外面太傻逼了</blockquote>
+国家之间就是这样，尤其是大国难道还找不出几个真正懂的人？
+
+不是国外都是傻逼，而是做不到罢了，马克龙推个弱化版健康码都天天几万人**，要是学中国搞行程码还不得几百万人攻打爱舍丽宫了
+
+*****
+
+####  翻滚吧熊犊子  
+##### 606#       发表于 2021-11-27 20:38
+
+真不知道印度会咋样…也是测试新变种ade的最佳环境？毕竟几乎全民有抗体了
+
+*****
+
+####  configxxxx  
+##### 607#       发表于 2021-11-27 20:40
+
+是的，国外这些政客从一开始就知道应该怎么做，但是也从一开始就知道做不到，所以之后的种种行为都只不过是在为自己执政效率低下对基层毫无管控找借口而已
+
