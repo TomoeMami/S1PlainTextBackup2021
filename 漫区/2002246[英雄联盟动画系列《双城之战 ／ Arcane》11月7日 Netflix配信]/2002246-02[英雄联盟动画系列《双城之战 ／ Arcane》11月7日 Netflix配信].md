@@ -13585,3 +13585,18 @@ vi和caitlyn是官配还是jayce和caitlyn是官配？
 
 维克托青梅的意识很可能在那个海克斯核心里。
 
+
+
+*****
+
+####  bairn  
+##### 2778#       发表于 2021-11-27 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717648&amp;ptid=2002246" target="_blank">Redis 发表于 2021-11-27 02:38</a>
+vi和caitlyn是官配还是jayce和caitlyn是官配？
+
+不是lol玩家，比较好奇</blockquote>
+没有官配，只是游戏里vi和catelyn有些暧昧互动
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

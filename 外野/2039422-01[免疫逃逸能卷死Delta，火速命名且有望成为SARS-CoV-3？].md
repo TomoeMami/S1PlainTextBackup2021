@@ -4107,3 +4107,47 @@ J&amp;J现在的说法是因为效果低，所有人都应该在2个月打第二
 
 —— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  03e7  
+##### 380#       发表于 2021-11-27 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713936&amp;ptid=2039422" target="_blank">希望之花 发表于 2021-11-26 19:59</a>
+
+有没有一种对人体没有副作用的阻断病毒的可能，比如直接切断传染途径？ ...</blockquote>
+你说的是口罩吗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 烦死了| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  wokazuleaa  
+##### 381#       发表于 2021-11-27 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712607&amp;ptid=2039422" target="_blank">inconolast 发表于 2021-11-26 17:52</a>
+血清分型的话现有疫苗全g
+
+rna开发疫苗再快也要临床一二三这么走
+
+当然昂撒白皮怕是要干直接上这种生 ...</blockquote>
+俺觉得是ww毕竟4v连高端都敢打
+
+*****
+
+####  fenrir  
+##### 382#       发表于 2021-11-27 07:58
+
+香港也有了吧，昨天看圆脸说的
+
