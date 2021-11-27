@@ -14242,3 +14242,16 @@ pay酱在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 他妈的，买的可可挂件莫名其妙没了，还不到一个月
 
+
+
+*****
+
+####  ads147147  
+##### 1272#       发表于 2021-11-27 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717962&amp;ptid=2036367" target="_blank">太阳寺太守 发表于 2021-11-27 07:37</a>
+没买过先行抽选，请问如果花了买bd的钱抽选，门票还要再付一次钱吗？是不是买了bd也不一定抽得到 ...</blockquote>
+恭喜你答对了。甚至学会了抢答。欢迎来到资本家的世界。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

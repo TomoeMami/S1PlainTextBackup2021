@@ -4878,3 +4878,130 @@ Cancer Virus 可还行
 现在我脑海中能响起的只有月亮之上了
 [https://www.bilibili.com/video/BV1fx411P777](https://www.bilibili.com/video/BV1fx411P777)
 
+
+
+*****
+
+####  pliee  
+##### 449#       发表于 2021-11-27 11:26
+
+这玩意致死率有提高吗？不搞外国估计还是躺平任草<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zqr211  
+##### 450#       发表于 2021-11-27 11:28
+
+我觉得是演的
+
+拜登支持率不行了 立一个抗病毒人设
+
+还能打压大宗压通胀
+
+
+
+*****
+
+####  eezhangjie  
+##### 451#       发表于 2021-11-27 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719370&amp;ptid=2039422" target="_blank">pliee 发表于 2021-11-27 11:26:30</a>
+这玩意致死率有提高吗？不搞外国估计还是躺平任草</blockquote>传染性提升，挤兑了就死亡率上升
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  韩子  
+##### 452#       发表于 2021-11-27 11:29
+
+所以为什么要跳过牛高和柯西啊…
+
+*****
+
+####  韩子  
+##### 453#       发表于 2021-11-27 11:29
+
+所以为什么要跳过牛高和柯西啊…
+
+*****
+
+####  韩子  
+##### 454#       发表于 2021-11-27 11:30
+
+好吧看到解释了，纳得（
+
+*****
+
+####  defdoublec  
+##### 455#       发表于 2021-11-27 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719298&amp;ptid=2039422" target="_blank">中二骚年 发表于 2021-11-27 11:19</a>
+Cancer Virus 可还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹
+
+*****
+
+####  深渊魔王  
+##### 456#       发表于 2021-11-27 11:36
+
+<blockquote>madeira 发表于 2021-11-27 11:00
+那中文的凯撒是谁翻译的呢 只有古典拉丁文中才这么读 欧洲的几大国家语言 发音都接近c 或者tsi
+
+网上说自 ...</blockquote>
+约翰与江恩
+
+*****
+
+####  阿纳金  
+##### 457#       发表于 2021-11-27 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719298&amp;ptid=2039422" target="_blank">中二骚年 发表于 2021-11-27 11:19</a>
+Cancer Virus 可还行</blockquote>
+基于跳过牛病的理由，巨蟹座病毒应该也会跳过
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  汽车屁  
+##### 458#       发表于 2021-11-27 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705273&amp;ptid=2039422" target="_blank">之世郎 发表于 2021-11-26 08:45</a>
+
+香港感染者就是打过辉瑞疫苗的</blockquote>
+以色列刚打辉瑞时确诊率骤降，之后确诊率飙升。日本刚开始以色列第一阶段，确诊几乎消失了，接下来等待日本的就是以色列的第二阶段，确诊率飙升
+ <blockquote>近日，世界著名医学期刊《柳叶刀》公布了一项研究数据，称接种两剂辉瑞疫苗的五个月后，疫苗的效果会急剧减弱
+
+这项研究的数据样本，是在2020年12月至2021年8月间的一共343万6957名辉瑞疫苗接种者。通过分析他们的电子健康记录，研究人员发现：
+
+在接种两剂辉瑞疫苗后，第一个月预防感染新冠病毒的有效率为88%，依然保持在一个相当高的水准。但在五个月后这个数字就降到了47%。</blockquote>
+
+*****
+
+####  阿纳金  
+##### 459#       发表于 2021-11-27 11:40
+
+凤凰座病毒，感染治愈后会反复复阳
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  最好不说  
+##### 460#       发表于 2021-11-27 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718536&amp;ptid=2039422" target="_blank">费老师 发表于 2021-11-27 09:38</a>
+
+这种能感染已经感染痊愈的人吗？</blockquote>
+血清型分化的可怕之处可不只在免疫突破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  骆宾王  
+##### 461#       发表于 2021-11-27 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719538&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-27 11:42</a>
+血清型分化的可怕之处可不只在免疫突破，而是让产生ADE效应的可能性大增，登革热ADE的原因就是感 ...</blockquote>
+就看看会不会快进到保护艾滋病还是保护全人类二选一了
+
