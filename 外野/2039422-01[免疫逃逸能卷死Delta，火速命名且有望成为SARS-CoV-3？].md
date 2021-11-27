@@ -7182,3 +7182,23 @@ B.1.1再烂，也是新冠，现在有个似乎传染力比delta厉害的变异�
 咱家领导人能力碾压这个世界  ...</blockquote>
 与其说是领导人能力不如说是整个体制优势，中国特色就是只要上头真的想执行就能执行下去，而且至少能保证基础民生，国外绝大多数国家，就像领导人真的想这么做，国家的体系不允许他们执行，就像隔壁本子闹到最后也只能叫人自主决定
 
+
+
+*****
+
+####  tillnight  
+##### 655#       发表于 2021-11-28 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个猜想不一定对，会不会是南非疾控特别靠谱抓出来了变异病毒，实际上病毒是在欧美养出来的，这会知道了才去查。
+
+*****
+
+####  鸟耶稣  
+##### 656#       发表于 2021-11-28 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725159&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 20:12</a>
+立陶宛 280 万人，累计确诊 46.5 万，16.6%
+
+上个月 CPI 8%，是少数疫情和通胀都比美国还厉害的国家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以急着拿6e刀贷款也可以理解了
+
