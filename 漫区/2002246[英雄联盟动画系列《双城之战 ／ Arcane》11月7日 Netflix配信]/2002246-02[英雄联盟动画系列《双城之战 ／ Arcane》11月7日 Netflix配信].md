@@ -13874,3 +13874,44 @@ Part 1
 
 这要是刚做完马上就雨中分手可有点渣
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2796#       发表于 2021-11-27 22:33
+
+<blockquote>不入流美术 发表于 2021-11-26 21:21
+对，就是这位，声音太好辨认了</blockquote>
+受到启发，去IMDB翻了翻
+
+<img src="https://img.saraba1st.com/forum/202111/27/223232dodqugco11xx2ov2.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211127_221843_com.UCMobile.png</strong> (48.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 22:32 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/223243nwted21e77dld17l.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211127_222027_com.UCMobile.png</strong> (24.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 22:32 上传
+
+其实就是照着配音的脸在建模吧喂，希尔科的配音演员还挺厉害，配过好多DC 漫威的动画
+
+*****
+
+####  ammk  
+##### 2797#       发表于 2021-11-27 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727313&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-27 22:33</a>
+
+受到启发，去IMDB翻了翻
+
+其实就是照着配音的脸在建模吧喂，希尔科的配音演员还挺厉害，配过好多DC 漫威 ...</blockquote>
+瓦也是这样，基本都是照着配音演员建模，还有个他们组内的设计人员
+

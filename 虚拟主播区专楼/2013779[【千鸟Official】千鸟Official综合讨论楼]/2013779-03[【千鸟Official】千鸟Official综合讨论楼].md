@@ -523,3 +523,30 @@ syl 看文静切片之后有了个虐文的思路，但是不是很想写<img sr
 
 什么意思文静将在28号闪电归来?
 
+
+
+*****
+
+####  tankai  
+##### 3051#       发表于 2021-11-27 22:28
+
+一听有抽奖爱疯13。 有人立马有话说了。
+
+<img src="https://img.saraba1st.com/forum/202111/27/222818xc581xvv8xf1tf8z.png" referrerpolicy="no-referrer">
+
+<strong>点赞.png</strong> (9.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 22:28 上传
+
+*****
+
+####  tankai  
+##### 3052#       发表于 2021-11-27 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727052&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-27 22:13</a>
+
+什么意思文静将在28号闪电归来?</blockquote>
+她前面都看电影了，28号有米拿不得摆懒了。
+

@@ -6933,3 +6933,109 @@ igm验血不一定准5分钟出结果，有啥用呀<img src="https://static.sar
 全球</blockquote>
 屁股决定脑袋。症状先不说，香港病例就是疫苗突破感染啊。
 
+
+
+*****
+
+####  riczxc  
+##### 635#         楼主| 发表于 2021-11-27 22:26
+
+ 本帖最后由 riczxc 于 2021-11-27 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727120&amp;ptid=2039422" target="_blank">redsibyl 发表于 2021-11-27 22:18</a>
+
+南非医学协会**：新毒株症状轻　质疑报道为何如此夸张
+
+全球</blockquote>
+
+同样的话，也可以应用于初期的delta爆发。
+
+医生如果不学微积分，难道还没学过指数函数？
+
+欧洲歌舞升平的时候，其实数字也是稳步上涨，在指数坐标系上是一条完美的直线。
+
+*****
+
+####  最好不说  
+##### 636#       发表于 2021-11-27 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727120&amp;ptid=2039422" target="_blank">redsibyl 发表于 2021-11-27 22:18</a>
+
+南非医学协会**：新毒株症状轻　质疑报道为何如此夸张
+
+全球</blockquote>
+不说其他的，暂未发现有接种过新冠疫苗的人群感染这句就是放屁，GISAID里南非某例的测序原因就是疫苗接种后突破性感染，香港那两例也是打完三针以后照样中招
+
+*****
+
+####  riczxc  
+##### 637#         楼主| 发表于 2021-11-27 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727120&amp;ptid=2039422" target="_blank">redsibyl 发表于 2021-11-27 22:18</a>
+
+南非医学协会**：新毒株症状轻　质疑报道为何如此夸张
+
+全球</blockquote>
+当然，大家喜欢这样的新闻。只看大多数，尤其是delta，新冠的症状也是很轻微的。
+
+前面有潭友说了，新冠病毒最讲政治，不多不少就收割个1%，还都是老人。剩下还有不少轻症以及无症状感染，让大家掉以轻心，不采取雷霆措施，然后就医疗挤兑了。
+
+*****
+
+####  希望之花  
+##### 638#       发表于 2021-11-27 22:39
+
+ 本帖最后由 希望之花 于 2021-11-27 22:40 编辑 
+
+按理说洗衣粉应该是能得到这个星球上最顶级的医疗资源最后还是被科洛娜打败了，应该还是看运气
+
+*****
+
+####  希望之花  
+##### 639#       发表于 2021-11-27 22:39
+
+风怒编辑
+
+*****
+
+####  riczxc  
+##### 640#         楼主| 发表于 2021-11-27 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727037&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-27 22:12</a>
+
+英国卫生大臣贾维德：英国发现了两例奥密克戎变异株感染病例。 两名患者正在和他们的家人进行自我隔离[f:06 ...</blockquote>
+熟悉的味道。两年了还是不会抄作业。
+
+*****
+
+####  曾鸟栖夜夏  
+##### 641#       发表于 2021-11-27 22:41
+
+<blockquote>天青月白 发表于 2021-11-27 22:11
+美国死亡人数多是因为得新冠因为其他病死了都算新冠死和21年修改标准导致大增是谁塑造的正确集体记忆吗？国 ...</blockquote>
+中文科普圈和医疗圈mRNA神教塑造的
+
+*****
+
+####  riczxc  
+##### 642#         楼主| 发表于 2021-11-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727109&amp;ptid=2039422" target="_blank">ak123 发表于 2021-11-27 22:17</a>
+
+我现在还记得，华邮这种北米匪帮媒体找科学家科学论证，封城之后会死的更惨，比不封锁病毒传播感 ...</blockquote>
+是的。我看到了就觉得，现代互联网发达，组织能力这么强的时代，居然还有这种观点，叹为观止。美国政府肯定做不来，但是贝光头肯定可以。
+
+就是这帮拉平曲线的专家不肯认错，所以才一直没有共识。中国控制了新冠？我不看我不看。
+
+*****
+
+####  飞侠小黑  
+##### 643#       发表于 2021-11-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725159&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 20:12</a>
+立陶宛 280 万人，累计确诊 46.5 万，16.6%
+
+上个月 CPI 8%，是少数疫情和通胀都比美国还厉害的国家 ...</blockquote>
+看来确实需要6亿美金的贷款<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
