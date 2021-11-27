@@ -381,3 +381,12 @@ syl 看文静切片之后有了个虐文的思路，但是不是很想写<img sr
 
 根据文静的maybe属性，我对出现在这张图里的V的职业前途深感忧虑
 
+
+
+*****
+
+####  GAKOTO  
+##### 3037#         楼主| 发表于 2021-11-27 09:10
+
+这张图传播范围挺大的，被s1的那个狗官博给发到微博去，害的管人痴被狠狠地群嘲了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

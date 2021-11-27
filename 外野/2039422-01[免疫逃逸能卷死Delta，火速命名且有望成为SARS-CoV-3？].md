@@ -4265,3 +4265,54 @@ rna开发疫苗再快也要临床一二三这么走
 
 不用牛命名？
 
+
+
+*****
+
+####  希远闹  
+##### 393#       发表于 2021-11-27 09:07
+
+世卫将南非新发现毒株命名为Omicron
+
+*****
+
+####  g54088  
+##### 394#       发表于 2021-11-27 09:13
+
+日本搞了个南非洲6国入境10日强制隔离，但是欧洲已经有无南非洲旅居史的病例了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  g54088  
+##### 395#       发表于 2021-11-27 09:13
+
+ 本帖最后由 g54088 于 2021-11-27 09:15 编辑 
+
+然后现在有人怀疑这是资本家为了操纵美股股价割韭菜搞出来的夸大宣传。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ak123  
+##### 396#       发表于 2021-11-27 09:14
+
+ 本帖最后由 ak123 于 2021-11-27 09:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718301&amp;ptid=2039422" target="_blank">希远闹 发表于 2021-11-27 09:07</a>
+
+世卫将南非新发现毒株命名为Omicron</blockquote>
+这就确定了，不是牛毒株了？
+
+*****
+
+####  riczxc  
+##### 397#         楼主| 发表于 2021-11-27 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717951&amp;ptid=2039422" target="_blank">diyihaoshitu 发表于 2021-11-27 07:32</a>
+按理说如果一个病毒的传染率高，那它的死亡率就一定会低
+
+—— 来自 vivo Y55L, Android 6.0.1上的 S1Next- ...</blockquote>
+没有这样的必然性。
+
