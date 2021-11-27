@@ -6422,3 +6422,109 @@ ADE又不是一定登革热那种ADE。
 
 South Africa reports 2,828 new coronavirus cases, an increase of 258% from last week, with a positivity rate of 9.1%
 
+
+
+*****
+
+####  liens  
+##### 588#       发表于 2021-11-27 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724735&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-27 19:42</a>
+
+南非这阳性率
+
+South Africa reports 2,828 new coronavirus cases, an increase of 258% from last ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">致死数据有了么
+
+*****
+
+####  坚果大爷  
+##### 589#       发表于 2021-11-27 19:54
+
+发现之前欧洲就传遍了吧
+
+*****
+
+####  克鲁特尼  
+##### 590#       发表于 2021-11-27 19:56
+
+得，到底点了哪些技能点很快就能知道了，真成瘟疫公司了
+
+*****
+
+####  枯风瘦雪02  
+##### 591#       发表于 2021-11-27 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724628&amp;ptid=2039422" target="_blank">falisi 发表于 2021-11-27 19:33</a>
+
+拍老师是谁</blockquote>
+知乎用户@拍照稀烂帮帮主，是个已经坚持很久的持“疫情还远未结束，仍需严肃对待”论点的“焦虑分发KOL”，在他那里可以看到很多已经被主流声音忽略的新冠研究成果
+
+*****
+
+####  最好不说  
+##### 592#       发表于 2021-11-27 19:59
+
+<blockquote>liens 发表于 2021-11-27 19:46
+致死数据有了么</blockquote>
+这还是在被delta犁过一遍进入了不应期的南非，等欧洲这波omicron爆发以后和正杀得兴起的delta同台竞技（或者共舞）真是画美不看
+
+*****
+
+####  66666  
+##### 593#       发表于 2021-11-27 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724679&amp;ptid=2039422" target="_blank">Humpy 发表于 2021-11-27 19:38</a>
+
+希望立陶宛也多来几个的我是不是太缺德了</blockquote>
+立陶宛肯定早就有了，这次防疫这块东欧比西欧还拉胯
+
+*****
+
+####  剁屌鱼头  
+##### 594#       发表于 2021-11-27 20:00
+
+逃避免疫？这不就一能空气传播的hiv？我在想，会不会，会不会人类文明已经进入倒计时？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  烦死了  
+##### 595#       发表于 2021-11-27 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724735&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-27 19:42</a>
+南非这阳性率
+
+South Africa reports 2,828 new coronavirus cases, an increase of 258% from last ...</blockquote>
+这又不高，佛州之前经常10-20% <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 596#       发表于 2021-11-27 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724930&amp;ptid=2039422" target="_blank">剁屌鱼头 发表于 2021-11-27 20:00</a>
+逃避免疫？这不就一能空气传播的hiv？我在想，会不会，会不会人类文明已经进入倒计时？
+
+  -- 来自 能搜索 ...</blockquote>
+我个人认为逃避免疫的意思是逃避delta留下的免疫记录
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  月初照  
+##### 597#       发表于 2021-11-27 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724930&amp;ptid=2039422" target="_blank"> 剁屌鱼头 发表于 2021-11-27 20:00</a> 逃避免疫？这不就一能空气传播的hiv？我在想，会不会，会不会人类文明已经进入倒计时？    -- 来自 能搜索的 Stage1官方 Android客户端 </blockquote>
+没那么厉害 就是之前打过疫苗或者感染过也等于无防护来自: iPhone客户端
+
+*****
+
+####  Lord_Voldemort  
+##### 598#       发表于 2021-11-27 20:05
+
+欧洲明显是已经传了好一阵子了，只不过没有测序，不知道是新变种<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+我估计马上就会有倒查多少个月之前样品的新闻了
+

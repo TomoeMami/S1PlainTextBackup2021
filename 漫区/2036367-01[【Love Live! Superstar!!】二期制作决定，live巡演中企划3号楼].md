@@ -14421,3 +14421,16 @@ https://youtu.be/hGxFsyHDsUE
 
 快进到ゆらゆら
 
+
+
+*****
+
+####  ads147147  
+##### 1288#       发表于 2021-11-27 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722891&amp;ptid=2036367" target="_blank">TTAA 发表于 2021-11-27 16:36</a>
+贴贴的时候青山姐还在抗拒</blockquote>
+这个问题我寻思可能是太热了让人走开点，不是抗拒。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
