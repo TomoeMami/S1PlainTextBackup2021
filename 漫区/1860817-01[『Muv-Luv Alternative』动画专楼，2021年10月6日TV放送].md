@@ -20941,3 +20941,31 @@ Alternative4吧，之前不是等三天就能去拿公式了嘛</blockquote>
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1474#       发表于 2021-11-28 00:13
+
+ 本帖最后由 再买自检星剁手 于 2021-11-28 00:22 编辑 
+
+假如[@篁唯依](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=163878) 出现在本篇动画时<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/28/001321hmzblmxldhmz0xls.png" referrerpolicy="no-referrer">
+
+<strong>93673153_p0.png</strong> (98.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-28 00:13 上传
+
+*****
+
+####  wqm2008  
+##### 1475#       发表于 2021-11-28 00:19
+
+没推过muv但以后肯定会推muv的推荐现在去看动画吗？
+
+怕看的太多影响推游戏的观感或者被剧透什么的，泥潭有没有对我这类人的观影提示
+
