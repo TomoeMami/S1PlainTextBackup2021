@@ -4481,3 +4481,144 @@ Another, a hotel worker from Malawi, had her second dose of AZ in mid-July. A th
 为啥Ν和Ξ都不要了呢，希腊字母本来就不多还这么浪费</blockquote>
 发音和拼写有点敏感
 
+
+
+*****
+
+####  fkinway  
+##### 412#       发表于 2021-11-27 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718646&amp;ptid=2039422" target="_blank">结夜野棠. 发表于 2021-11-27 09:55</a>
+https://twitter.com/paulnuki/status/1464310918389587974
+
+A WHO source confirmed the letters Nu and ...</blockquote>
+下面的回复意料之中的友善<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yswm  
+##### 413#       发表于 2021-11-27 10:27
+
+<blockquote>tomatoKnight 发表于 2021-11-26 10:42
+那你想想死的不是人，是我们的出口市场需求在一点点掉。
+
+这样下去，国内生产一开始因为产业转移景气，最 ...</blockquote>
+中国进出口才占到世界的两成多，国外的贸易能力还有广阔的下降空间。更何况世界范围需求下降会导致原材料价格下降
+
+*****
+
+####  madeira  
+##### 414#       发表于 2021-11-27 10:28
+
+ 本帖最后由 madeira 于 2021-11-27 10:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718727&amp;ptid=2039422" target="_blank">飞侠小黑 发表于 2021-11-27 10:09</a>
+
+太搞了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+xi不是读作ksi么  真命名了 应该也读作variant ksi之类的  写法就更不像了 ξ咋能和汉语拼音扯上关系呢
+
+*****
+
+####  月初照  
+##### 415#       发表于 2021-11-27 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718536&amp;ptid=2039422" target="_blank"> 费老师 发表于 2021-11-27 09:38</a> 这种能感染已经感染痊愈的人吗？ </blockquote>
+能 已痊愈的患者对omicron没有额外的免疫能力来自: iPhone客户端
+
+*****
+
+####  equion  
+##### 416#       发表于 2021-11-27 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718646&amp;ptid=2039422" target="_blank">结夜野棠. 发表于 2021-11-27 09:55</a>
+https://twitter.com/paulnuki/status/1464310918389587974
+
+A WHO source confirmed the letters Nu and ...</blockquote>
+然而评论已经开始了
+
+*****
+
+####  上海大姨妈  
+##### 417#       发表于 2021-11-27 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718868&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 10:28</a>
+xi不是读作ksi么  真命名了 应该也读作variant ksi之类的  写法就更不像了 ξ咋能和汉语拼音扯上关系呢 ...</blockquote>
+装什么糊涂啊
+
+*****
+
+####  白色池塘  
+##### 418#       发表于 2021-11-27 10:34
+
+omicorn四舍五入一下就是unicorn，事独角兽高达
+
+*****
+
+####  madeira  
+##### 419#       发表于 2021-11-27 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718891&amp;ptid=2039422" target="_blank">上海大姨妈 发表于 2021-11-27 10:30</a>
+
+装什么糊涂啊</blockquote>
+我是奇怪who既然要用希腊字母命名 为啥不直接写希腊字母 凭啥写作英语的拼法
+
+*****
+
+####  中二骚年  
+##### 420#       发表于 2021-11-27 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718921&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 10:35</a>
+
+我是奇怪who既然要用希腊字母命名 为啥不直接写希腊字母 凭啥写作英语的拼法 ...</blockquote>
+不用LaTeX的话输入希腊字母很麻烦啊
+
+
+
+*****
+
+####  炎夏型塞拉利昂  
+##### 421#       发表于 2021-11-27 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707495&amp;ptid=2039422" target="_blank">cubesun 发表于 2021-11-26 11:45</a>
+不能，这个叫Nu，是主角机，战斗力比delta强很多的。
+
+“不就是个破疫苗吗！看我把它推回去！”</blockquote>
+太乌鸦嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">再变异下去新冠变成丧尸病毒怎么办……
+
+*****
+
+####  埃罗芒阿  
+##### 422#       发表于 2021-11-27 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718815&amp;ptid=2039422" target="_blank">暗之精灵 发表于 2021-11-27 10:21</a>
+
+为啥Ν和Ξ都不要了呢，希腊字母本来就不多还这么浪费</blockquote>
+好消息：WHO考虑用完希腊字母接着用星座
+
+*****
+
+####  上海大姨妈  
+##### 423#       发表于 2021-11-27 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718921&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 10:35</a>
+我是奇怪who既然要用希腊字母命名 为啥不直接写希腊字母 凭啥写作英语的拼法 ...</blockquote>
+不是这个问题，而是希腊字母既能写作alpha 也能写作α或者Α。
+
+*****
+
+####  希远闹  
+##### 424#       发表于 2021-11-27 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">比利时都有了，
+
+*****
+
+####  madeira  
+##### 425#       发表于 2021-11-27 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718932&amp;ptid=2039422" target="_blank">中二骚年 发表于 2021-11-27 10:37</a>
+
+不用LaTeX的话输入希腊字母很麻烦啊</blockquote>
+现在的输入法哪怕是英文输入法 不是都自带希腊字母输入的么  既然emoji都愿意多翻几页候选 输个希腊字母也没啥难度吧 
+
