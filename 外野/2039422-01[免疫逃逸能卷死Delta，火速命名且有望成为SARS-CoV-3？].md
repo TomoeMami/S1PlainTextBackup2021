@@ -6065,3 +6065,55 @@ ADE又不是一定登革热那种ADE。
 
 但是八成这疫情可见未来几年完不了
 
+
+
+*****
+
+####  huanyanqia  
+##### 552#       发表于 2021-11-27 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722959&amp;ptid=2039422" target="_blank">66666 发表于 2021-11-27 16:46</a>
+操，真出ADE效应的话，全球一年至少得死1000万人</blockquote>
+应该是1000万吧，现在两年不到全球就500万了，还是假设外国不瞒报的情况
+
+*****
+
+####  Khvarenah  
+##### 553#       发表于 2021-11-27 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723099&amp;ptid=2039422" target="_blank">永远喜欢刘人语 发表于 2021-11-27 17:01</a>
+
+冬奥还办吗</blockquote>
+本来也没打算让外国游客进啊
+
+运动员这会儿早都进去了
+
+*****
+
+####  tclm  
+##### 554#       发表于 2021-11-27 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709396&amp;ptid=2039422" target="_blank">b86694918 发表于 2021-11-26 14:00</a>
+新加坡将限制来自南非和附近国家的旅客入境。（彭博）</blockquote>
+自由皿煮在哪里
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aceback  
+##### 555#       发表于 2021-11-27 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723274&amp;ptid=2039422" target="_blank">tclm 发表于 2021-11-27 17:16</a>
+自由皿煮在哪里
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+新加坡貌似一直也不自由皿煮
+
+*****
+
+####  wwz11s  
+##### 556#       发表于 2021-11-27 17:23
+
+变异病毒没完没了是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
