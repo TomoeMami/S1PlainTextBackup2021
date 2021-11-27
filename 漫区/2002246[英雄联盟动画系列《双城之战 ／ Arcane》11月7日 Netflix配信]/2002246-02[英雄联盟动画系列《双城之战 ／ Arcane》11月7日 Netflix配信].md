@@ -13600,3 +13600,16 @@ vi和caitlyn是官配还是jayce和caitlyn是官配？
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  kaminagi  
+##### 2779#       发表于 2021-11-27 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717690&amp;ptid=2002246" target="_blank">缺德猫 发表于 2021-11-27 03:05</a>
+维克托青梅的意识很可能在那个海克斯核心里。</blockquote>
+布里茨青梅说<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

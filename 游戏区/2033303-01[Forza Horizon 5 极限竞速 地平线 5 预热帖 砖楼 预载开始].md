@@ -15846,3 +15846,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 最后一把不知道碰到了什么bug有7个玩家5个电脑，玩家都是S2电脑全是S1；水库冲刺赛我居然是杆位发车，第二张图换成了好友虚空杆位发车直接领先后面的人一个弯道，莫明其妙地赢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Karin11974  
+##### 1435#       发表于 2021-11-27 08:30
+
+隔几天没玩然后启动提示错误，什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

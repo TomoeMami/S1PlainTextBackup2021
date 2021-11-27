@@ -4184,3 +4184,48 @@ rna开发疫苗再快也要临床一二三这么走
 
 就现在国外这拉胯程度…
 
+
+
+*****
+
+####  holyblood  
+##### 386#       发表于 2021-11-27 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717853&amp;ptid=2039422" target="_blank">境堺の侍 发表于 2021-11-27 05:49</a>
+
+是的，赶紧就去看了眼Guardian，调整心情</blockquote>
+卫报是哈克首相认为的外来务工人员指定报纸么？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vneet  
+##### 387#       发表于 2021-11-27 08:27
+
+因为没有在东方大国首发的zzqq于是世卫也能正常反应干事了。
+
+这就是西方要的与病毒共存，病毒又不会因为你友好共存就选择原谅你而放慢进化的步伐。
+
+*****
+
+####  飞侠小黑  
+##### 388#       发表于 2021-11-27 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705315&amp;ptid=2039422" target="_blank">晃来晃去 发表于 2021-11-26 08:48</a>
+本子这是怎么回事？</blockquote>
+大概被新变种卷死了吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  飞侠小黑  
+##### 389#       发表于 2021-11-27 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718109&amp;ptid=2039422" target="_blank">Vneet 发表于 2021-11-27 08:27</a>
+因为没有在东方大国首发的zzqq于是世卫也能正常反应干事了。
+
+这就是西方要的与病毒共存，病毒又不会因为你 ...</blockquote>
+西方想和病毒共存，问过病毒同意了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
