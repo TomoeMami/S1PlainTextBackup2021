@@ -6204,3 +6204,30 @@ ADE又不是一定登革热那种ADE。
 
 按现在这种趋势，结合外国的防疫能力，只有研发一种分钟级快速检测的手段才有希望彻底扑灭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  第八协奏曲  
+##### 565#       发表于 2021-11-27 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724081&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 18:38</a>
+按现在这种趋势，结合外国的防疫能力，只有研发一种分钟级快速检测的手段才有希望彻底扑灭了 ...</blockquote>
+没用
+
+秒级也没用
+
+检测出来后他们根本做不到后续的管控
+
+—— 来自 meizu 17 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  米村正二  
+##### 566#       发表于 2021-11-27 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724081&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 18:38</a>
+
+按现在这种趋势，结合外国的防疫能力，只有研发一种分钟级快速检测的手段才有希望彻底扑灭了 ...</blockquote>
+分钟级的测出来也是让你回家自主隔离，那不还是白搭。
+

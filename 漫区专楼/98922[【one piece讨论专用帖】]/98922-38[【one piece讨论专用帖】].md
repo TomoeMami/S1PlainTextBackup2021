@@ -8600,3 +8600,14 @@ king和queen的强度 不愧是大看板
 
 艾尼路的名字来源是“能量”（エネルギー），有坛友求证一下吗？
 
+
+
+*****
+
+####  acejoe  
+##### 56171#       发表于 2021-11-27 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723571&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-11-27 17:43</a>
+艾尼路的名字来源是“能量”（エネルギー），有坛友求证一下吗？</blockquote>
+难道不是艾米纳姆吗？
+
