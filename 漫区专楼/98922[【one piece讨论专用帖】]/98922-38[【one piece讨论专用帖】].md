@@ -8611,3 +8611,18 @@ king和queen的强度 不愧是大看板
 艾尼路的名字来源是“能量”（エネルギー），有坛友求证一下吗？</blockquote>
 难道不是艾米纳姆吗？
 
+
+
+*****
+
+####  azbhg1  
+##### 56172#       发表于 2021-11-27 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723520&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-11-27 17:38</a>
+露娜莉亚，Luna，月亮。
+
+月球人，有翅膀。
+
+神之国的人，神之国不在了，（也许）飞上月球了。</blockquote>
+大哥，古代国王全是外星人？
+

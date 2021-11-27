@@ -6680,3 +6680,41 @@ South Africa reports 2,828 new coronavirus cases, an increase of 258% from last 
 越看越觉得不是我党多英明，是外面太傻逼了</blockquote>
 草台世界，都这样子。
 
+
+
+*****
+
+####  鱼见  
+##### 612#       发表于 2021-11-27 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725159&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 20:12</a>
+
+立陶宛 280 万人，累计确诊 46.5 万，16.6%
+
+上个月 CPI 8%，是少数疫情和通胀都比美国还厉害的国家 ...</blockquote>
+难怪要转移矛盾, 问题是一个鼻屎大的国家对着中国转移矛盾是什么脑子
+
+*****
+
+####  台球论坛网友  
+##### 613#       发表于 2021-11-27 21:14
+
+南非77例。香港两例，其中一例来自加拿大。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[https://inews.co.uk/news/politic ... lobal-total-1319011](https://inews.co.uk/news/politics/south-africa-new-covid-super-variant-cases-global-total-1319011)
+[https://nationalpost.com/news/wo ... avelled-from-canada](https://nationalpost.com/news/world/hong-kong-confirms-two-cases-of-new-covid-19-variant-one-travelled-from-canada)
+
+*****
+
+####  creymorgan  
+##### 614#       发表于 2021-11-27 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53726043&amp;ptid=2039422" target="_blank">鱼见 发表于 2021-11-27 21:06</a>
+
+难怪要转移矛盾, 问题是一个鼻屎大的国家对着中国转移矛盾是什么脑子</blockquote>
+也因为觉得自己不大，所以吃不了多少亏。
+
+相比之下，6亿美元援助不小了。
+
