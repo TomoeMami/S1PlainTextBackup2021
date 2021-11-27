@@ -6231,3 +6231,92 @@ ADE又不是一定登革热那种ADE。
 按现在这种趋势，结合外国的防疫能力，只有研发一种分钟级快速检测的手段才有希望彻底扑灭了 ...</blockquote>
 分钟级的测出来也是让你回家自主隔离，那不还是白搭。
 
+
+
+*****
+
+####  eezhangjie  
+##### 567#       发表于 2021-11-27 19:07
+
+【#德国发现疑似感染新变异株病例#】据路透社报道，德国黑森州社会事务部长27日表示，最新发现的新冠病毒变异株Omicron很可能已经抵达德国。
+
+法兰克福机场所在的黑森州社会事务部长在社交媒体上写道:“昨晚，在一名从南非返回的旅客身上发现了几个典型的Omicron突变。”他表示正在对该变种进行全面测序。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  克鲁特尼  
+##### 568#       发表于 2021-11-27 19:08
+
+就看12月份欧洲的情况了
+
+*****
+
+####  小野賢章  
+##### 569#       发表于 2021-11-27 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724328&amp;ptid=2039422" target="_blank">米村正二 发表于 2021-11-27 19:05</a>
+
+分钟级的测出来也是让你回家自主隔离，那不还是白搭。</blockquote>
+至少有意愿的组织可以打造一些安全区，然后慢慢往外推了。
+
+现在遍地开花，没有安全的地方，实在想不到有什么办法能结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  faithlifer  
+##### 570#       发表于 2021-11-27 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724352&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-27 19:07</a>
+
+【#德国发现疑似感染新变异株病例#】据路透社报道，德国黑森州社会事务部长27日表示，最新发现的新冠病毒变 ...</blockquote>
+抵达这词用的好像被又一个人类居住地被新王攻克了一样，虽然确实如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  riczxc  
+##### 571#         楼主| 发表于 2021-11-27 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724352&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-27 19:07</a>
+【#德国发现疑似感染新变异株病例#】据路透社报道，德国黑森州社会事务部长27日表示，最新发现的新冠病毒变 ...</blockquote>
+嘿嘿，法兰克福和约翰内斯堡之前一直有直航，还会转机到别处，所以一点都不奇怪。
+
+*****
+
+####  朋友  
+##### 572#       发表于 2021-11-27 19:20
+
+他们边境政策最大的问题就是就算有可快速筛查，最多也就隔离一下阳性的，把潜伏期当作不存在。断航政策更是掩耳盗铃到了极致，假装自己在防疫。
+
+*****
+
+####  朋友  
+##### 573#       发表于 2021-11-27 19:22
+
+比如荷兰这个有85个阳性但是航班，剩下人就不用隔离啦。https://www.zaobao.com.sg/realtime/world/story20211127-1217667
+
+*****
+
+####  riczxc  
+##### 574#         楼主| 发表于 2021-11-27 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724370&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 19:08</a>
+至少有意愿的组织可以打造一些安全区，然后慢慢往外推了。
+
+现在遍地开花，没有安全的地方，实在想不到有 ...</blockquote>
+我也觉得是这样的。至少不会有超级传播，而新冠其实主要依赖超级传播。
+
+ 核酸阳性可能症状还没开始。
+
+*****
+
+####  riczxc  
+##### 575#         楼主| 发表于 2021-11-27 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724481&amp;ptid=2039422" target="_blank">朋友 发表于 2021-11-27 19:20</a>
+他们边境政策最大的问题就是就算有可快速筛查，最多也就隔离一下阳性的，把潜伏期当作不存在。断航政策更是 ...</blockquote>
+72小时有效的pcr，也够搞笑了。
+
