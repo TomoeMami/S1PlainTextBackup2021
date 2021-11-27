@@ -14443,3 +14443,13 @@ https://youtu.be/hGxFsyHDsUE
 
 脑子已经在ゆらゆら了
 
+
+
+*****
+
+####  名津流  
+##### 1290#       发表于 2021-11-27 20:42
+
+苍天君的1st巡演in 东京Vlog居然今天凌晨就发了，这次好快
+[https://www.bilibili.com/video/BV14S4y1R7u1](https://www.bilibili.com/video/BV14S4y1R7u1)
+

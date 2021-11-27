@@ -6634,3 +6634,49 @@ South Africa reports 2,828 new coronavirus cases, an increase of 258% from last 
 
 是的，国外这些政客从一开始就知道应该怎么做，但是也从一开始就知道做不到，所以之后的种种行为都只不过是在为自己执政效率低下对基层毫无管控找借口而已
 
+
+
+*****
+
+####  之世郎  
+##### 608#       发表于 2021-11-27 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724723&amp;ptid=2039422" target="_blank">いみじくも萌二 发表于 2021-11-27 19:41</a>
+
+就这些天天打人权台湾牌发达国家和狗腿子们的抗疫表现让这次新病毒图他们几千万人都不过分，是他 ...</blockquote>
+立国全国才几百万呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  いみじくも萌二  
+##### 609#       发表于 2021-11-27 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725866&amp;ptid=2039422" target="_blank">之世郎 发表于 2021-11-27 20:56</a>
+
+立国全国才几百万呢</blockquote>
+我又没说光一国
+
+*****
+
+####  riczxc  
+##### 610#         楼主| 发表于 2021-11-27 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725601&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-11-27 20:40</a>
+
+是的，国外这些政客从一开始就知道应该怎么做，但是也从一开始就知道做不到，所以之后的种种行为都只不过是 ...</blockquote>
+不是的。你这么说简单了。传染病学的主流方法是那套flatten the curve然后（用疫苗）群体免疫，中国这套动态清零不是主流意见，所以被嘲笑为中世纪方法。
+
+当然，到了2020年5月还看不出的政客应该不多了。但是北半球到夏天了，所以也放飞自我了。到后面就很难获得政治能量去处理了。
+
+如果在欧美爆发的时机不是2020年2月而是19年12月，那就会有更大的政治能量进行清零了。
+
+*****
+
+####  riczxc  
+##### 611#         楼主| 发表于 2021-11-27 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725206&amp;ptid=2039422" target="_blank">falisi 发表于 2021-11-27 20:16</a>
+
+越看越觉得不是我党多英明，是外面太傻逼了</blockquote>
+草台世界，都这样子。
+
