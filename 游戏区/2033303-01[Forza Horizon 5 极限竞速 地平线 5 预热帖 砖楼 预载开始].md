@@ -16075,3 +16075,16 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 他被单挑了后在摆烂
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1457#       发表于 2021-11-27 21:47
+
+<img src="https://p.sda1.dev/3/684ed31e3fa633ac3747ef09b3c7cfa2/IMG_CMP_115311127.png" referrerpolicy="no-referrer">
+
+感谢榜一大哥，真滴快。
+
+—— 来自 samsung SM-T865N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

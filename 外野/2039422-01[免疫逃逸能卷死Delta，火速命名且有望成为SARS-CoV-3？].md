@@ -6736,3 +6736,41 @@ South Africa reports 2,828 new coronavirus cases, an increase of 258% from last 
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  克鲁特尼  
+##### 617#       发表于 2021-11-27 21:47
+
+欧洲那应该很快就能知道欧米克戎和德尔塔有没有血清表型分化了，到底是争个高低还是双倍的“快乐”？
+
+*****
+
+####  riczxc  
+##### 618#         楼主| 发表于 2021-11-27 21:48
+
+ 本帖最后由 riczxc 于 2021-11-27 21:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53726655&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-11-27 21:47</a>
+
+欧洲那应该很快就能知道欧米克戎和德尔塔有没有血清表型分化了，到底是争个高低还是双倍的“快乐”？ ...</blockquote>
+
+欧洲当然能知道。不过刚被delta犁过的南非已经爆发了，所以占了先机的应该是他们。
+
+*****
+
+####  帕林马哲理  
+##### 619#       发表于 2021-11-27 21:54
+
+超市已经被恐慌性屯货买空了不少货架了，好在我还有三个月存粮<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  configxxxx  
+##### 620#       发表于 2021-11-27 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725963&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-27 21:02</a>
+
+不是的。你这么说简单了。传染病学的主流方法是那套flatten the curve然后（用疫苗）群体免疫，中国这套 ...</blockquote>
+所以在看到了武汉惨状之后仍然觉得没啥自己国家死一批就过去了吗？恕我直言，这算不算反人类
+

@@ -3904,3 +3904,12 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太吊了，凶真居然全语音，一个全部语气词语音的美少女机甲游戏里面唯一一个全语音的男人...
 
+
+
+*****
+
+####  LEOKO~  
+##### 6292#       发表于 2021-11-27 21:46
+
+凶真全语音就离谱
+
