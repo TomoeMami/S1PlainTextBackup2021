@@ -5096,3 +5096,88 @@ Cancer Virus 可还行</blockquote>
 
 真是旷日持久的战争..想念没有疫情的时代
 
+
+
+*****
+
+####  最好不说  
+##### 472#       发表于 2021-11-27 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719551&amp;ptid=2039422" target="_blank">骆宾王 发表于 2021-11-27 11:44</a>
+
+就看看会不会快进到保护艾滋病还是保护全人类二选一了</blockquote>
+所以全是傻逼白皮咎由自取<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 473#       发表于 2021-11-27 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706632&amp;ptid=2039422" target="_blank">evanchen 发表于 2021-11-26 10:37</a>
+
+所谓群体免疫的问题就在这里
+
+感染多了确实能筛出有抗体的，但是病毒变异速度也上去了，有抗体的不管用了[f: ...</blockquote>
+群体免疫的意思是，筛出这些有抗体的之后，其他没抗体的直接咯屁，然后这些有抗体的生下子女，子女继承能产生抗体的体质，之后所有人就都免疫了。这里隐含两个意思，一个是至少要持续到子女生下来，第二个是其他人全部死亡或多器官衰竭低质量生存
+
+所以，群体免疫，也叫畜群免疫
+
+最好的观察国家就是印度
+
+*****
+
+####  冰箱研会长  
+##### 474#       发表于 2021-11-27 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719791&amp;ptid=2039422" target="_blank">reedwkaka 发表于 2021-11-27 12:04</a>
+
+有没有科学点的预测，这次疫情需要多少年结束啊？还是说以后彻底回不到疫情前的状态了 ...</blockquote>
+没有 之前大连刚出疫情的时候
+
+本地晚报引用了一个国内X大学"久经考验"的模型的预测
+
+说7号就能控制住
+
+*****
+
+####  飞奔的拓拓  
+##### 475#       发表于 2021-11-27 12:12
+
+<blockquote>最好不说 发表于 2021-11-27 12:07
+所以全是傻逼白皮咎由自取，WHO哀求了多少次留点疫苗给第三世界，一个个视而不见拼命往自家屯，让 ...</blockquote>
+没用，第三世界国家缺的是疫苗吗？明明是可靠的行政体系。
+
+*****
+
+####  砥草  
+##### 476#       发表于 2021-11-27 12:13
+
+<blockquote>魔皇崩裂拳 发表于 2021-11-27 12:02
+88星座用完了就用108魔星？</blockquote>
+申请优先用我天巧星<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+专业二五仔，容易被打倒，甚至没人打我就自行消失了……你们甚至不肯叫我一句“传说中的宫守”<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 477#       发表于 2021-11-27 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53706844&amp;ptid=2039422" target="_blank">tomatoKnight 发表于 2021-11-26 10:52</a>
+
+国内生产一开始因为产业转移景气，最后人死多了还是会受需求萎缩的影响。
+
+拜托你不要只看后半句，</blockquote>
+这不一定啊，对方也许会因为死人导致需求减少，但同样也会因为死人导致供给减少
+
+只要对方供给减少&gt;需求减少，那我们照样能出口更多嘛
+
+*****
+
+####  thisism  
+##### 478#       发表于 2021-11-27 12:15
+
+南非可比阿三靠谱多了 
+
+阿三的delta可是蓄力了5个月才报出来
+
