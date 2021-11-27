@@ -14351,3 +14351,16 @@ https://youtu.be/hGxFsyHDsUE
 
 2021-11-27 15:12 上传
 
+
+
+*****
+
+####  太阳寺太守  
+##### 1282#       发表于 2021-11-27 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719511&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-11-27 11:38</a>
+恭喜你答对了。甚至学会了抢答。欢迎来到资本家的世界。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S ...</blockquote>
+草，那还是老老实实网站抽选得了，抽得到就去，抽不到就看直播。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
