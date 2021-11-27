@@ -21022,3 +21022,25 @@ Alternative4吧，之前不是等三天就能去拿公式了嘛</blockquote>
 怕看的太多影响推游戏的观感或者被剧透什么的，泥潭有 ...</blockquote>
 不推荐，基本上大部分的gal改只要有玩原作的意愿那么都不推荐直接看动画
 
+
+
+*****
+
+####  wqm2008  
+##### 1480#       发表于 2021-11-28 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728736&amp;ptid=1860817" target="_blank">V宇宙的守夜人Z 发表于 2021-11-28 01:15</a>
+
+不推荐，我前面说过了，动画真的不适合初见，哪怕云游戏流程视频都比直接看动画好…初见的体验只有一次， ...</blockquote>
+那就只看第一集<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wqm2008  
+##### 1481#       发表于 2021-11-28 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728736&amp;ptid=1860817" target="_blank">V宇宙的守夜人Z 发表于 2021-11-28 01:15</a>
+
+不推荐，我前面说过了，动画真的不适合初见，哪怕云游戏流程视频都比直接看动画好…初见的体验只有一次， ...</blockquote>
+很久前推大图书馆的牧羊人就是后悔没忍住先看了动画
+
