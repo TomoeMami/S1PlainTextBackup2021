@@ -15988,3 +15988,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  天神十三煞  
+##### 1449#         楼主| 发表于 2021-11-27 15:24
+
+傻屌PG到底什么时候才更新
+
+一堆判断错误就不能单独热更吗
+
