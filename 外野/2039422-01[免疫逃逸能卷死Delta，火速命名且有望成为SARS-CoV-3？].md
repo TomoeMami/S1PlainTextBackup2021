@@ -4399,3 +4399,85 @@ https://twitter.com/paulnuki/status/1464310918389587974
 A WHO source confirmed the letters Nu and ...</blockquote>
 考虑的还挺周到的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  飞侠小黑  
+##### 405#       发表于 2021-11-27 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718646&amp;ptid=2039422" target="_blank">结夜野棠. 发表于 2021-11-27 09:55</a>
+https://twitter.com/paulnuki/status/1464310918389587974
+
+A WHO source confirmed the letters Nu and ...</blockquote>
+太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  中二骚年  
+##### 406#       发表于 2021-11-27 10:11
+
+还以为是牛高达太主角了
+
+*****
+
+####  eezhangjie  
+##### 407#       发表于 2021-11-27 10:13
+
+拍照稀烂帮帮主
+
+大号的悲报……
+以色列一共揪出了4例B.1.1.529……
+其中一例是30多岁女性，已接种三针BNT，最后一针于9月份接种；
+还有一例已接种两针J&amp;J，最后一针也是9月份接种。
+
+BTW，别问我来源，如果来源可以透露的话，我会主动写出来的。
+
+疫苗突破
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  L.L  
+##### 408#       发表于 2021-11-27 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718747&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-27 10:13</a>
+拍照稀烂帮帮主
+
+大号的悲报……</blockquote>
+9月才接种的。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">新王要用实战逐步证明自己了。
+
+*****
+
+####  pushare  
+##### 409#       发表于 2021-11-27 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718747&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-27 10:13</a>
+拍照稀烂帮帮主
+
+大号的悲报……</blockquote>
+以色列时报某关联人士发过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Israel has identified four cases of the B.1.1.529 variant, all recent travellers. One case, a 32-year-old woman returning from South Africa, was triple vaccinated with Pfizer and had her 3rd dose just two months ago.
+
+Another, a hotel worker from Malawi, had her second dose of AZ in mid-July. A third had her second J&amp;J dose two months ago.
+
+*****
+
+####  暗之精灵  
+##### 410#       发表于 2021-11-27 10:21
+
+为啥Ν和Ξ都不要了呢，希腊字母本来就不多还这么浪费
+
+*****
+
+####  克鲁特尼  
+##### 411#       发表于 2021-11-27 10:23
+
+<blockquote>暗之精灵 发表于 2021-11-27 10:21
+为啥Ν和Ξ都不要了呢，希腊字母本来就不多还这么浪费</blockquote>
+发音和拼写有点敏感
+

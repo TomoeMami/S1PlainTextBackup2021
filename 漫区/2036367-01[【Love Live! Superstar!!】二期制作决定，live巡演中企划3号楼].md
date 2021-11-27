@@ -14222,3 +14222,14 @@ pay酱在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 没买过先行抽选，请问如果花了买bd的钱抽选，门票还要再付一次钱吗？是不是买了bd也不一定抽得到 ...</blockquote>
 恭喜你答对了
 
+
+
+*****
+
+####  Karin11974  
+##### 1270#       发表于 2021-11-27 10:11
+
+那么座位也是全随机？能高价收前排座吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
