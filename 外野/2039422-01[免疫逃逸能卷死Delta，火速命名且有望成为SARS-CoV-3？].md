@@ -4229,3 +4229,39 @@ rna开发疫苗再快也要临床一二三这么走
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  KOGmk2  
+##### 390#       发表于 2021-11-27 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717951&amp;ptid=2039422" target="_blank">diyihaoshitu 发表于 2021-11-27 07:32</a>
+
+按理说如果一个病毒的传染率高，那它的死亡率就一定会低
+
+—— 来自 vivo Y55L, Android 6.0.1上的 S1Next- ...</blockquote>
+请给出具体的基因因变分析,或者直接给SCI论文号也可
+
+
+
+*****
+
+####  nvis  
+##### 391#       发表于 2021-11-27 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717951&amp;ptid=2039422" target="_blank">diyihaoshitu 发表于 2021-11-27 07:32</a>
+按理说如果一个病毒的传染率高，那它的死亡率就一定会低
+
+—— 来自 vivo Y55L, Android 6.0.1上的 S1Next- ...</blockquote>
+天花鼠疫黑死病笑而不语
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  eezhangjie  
+##### 392#       发表于 2021-11-27 09:02
+
+不用牛命名？
+

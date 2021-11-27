@@ -13613,3 +13613,17 @@ vi和caitlyn是官配还是jayce和caitlyn是官配？
 
 —— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  十点半  
+##### 2780#       发表于 2021-11-27 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718096&amp;ptid=2002246" target="_blank">kaminagi 发表于 2021-11-27 08:25</a>
+
+布里茨青梅说
+
+—— 来自 realme RMX3366, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+这个说法太毒了，感觉真的有可能
+
