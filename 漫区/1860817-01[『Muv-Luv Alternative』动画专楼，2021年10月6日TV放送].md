@@ -20999,3 +20999,26 @@ Alternative4吧，之前不是等三天就能去拿公式了嘛</blockquote>
 
 既然这样就去下几集看看啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1478#       发表于 2021-11-28 01:15
+
+ 本帖最后由 V宇宙的守夜人Z 于 2021-11-28 01:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728418&amp;ptid=1860817" target="_blank"> wqm2008 发表于 2021-11-28 00:19</a> 没推过muv但以后肯定会推muv的推荐现在去看动画吗？  怕看的太多影响推游戏的观感或者被剧透什么的，泥潭有没有对我这类人的观影提示 </blockquote>
+不推荐，我前面说过了，动画真的不适合初见，哪怕云游戏流程视频都比直接看动画好…初见的体验只有一次，后面的几个大爆点没玩游戏真的是糟蹋来自: iPhone客户端
+
+*****
+
+####  噗呸破屁诚  
+##### 1479#       发表于 2021-11-28 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728418&amp;ptid=1860817" target="_blank">wqm2008 发表于 2021-11-28 00:19</a>
+
+没推过muv但以后肯定会推muv的推荐现在去看动画吗？
+
+怕看的太多影响推游戏的观感或者被剧透什么的，泥潭有 ...</blockquote>
+不推荐，基本上大部分的gal改只要有玩原作的意愿那么都不推荐直接看动画
+

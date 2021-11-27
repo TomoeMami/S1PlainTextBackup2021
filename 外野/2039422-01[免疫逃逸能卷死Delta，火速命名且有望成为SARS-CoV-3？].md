@@ -7202,3 +7202,14 @@ B.1.1再烂，也是新冠，现在有个似乎传染力比delta厉害的变异�
 上个月 CPI 8%，是少数疫情和通胀都比美国还厉害的国家 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以急着拿6e刀贷款也可以理解了
 
+
+
+*****
+
+####  riczxc  
+##### 657#         楼主| 发表于 2021-11-28 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728594&amp;ptid=2039422" target="_blank">tillnight 发表于 2021-11-28 00:49</a>
+一个猜想不一定对，会不会是南非疾控特别靠谱抓出来了变异病毒，实际上病毒是在欧美养出来的，这会 ...</blockquote>
+欧洲再烂，测序还是没停下，而且每周发布变种占比的。
+

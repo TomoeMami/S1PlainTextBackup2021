@@ -16097,3 +16097,30 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">在体育场做那个保持100mph得分的任务也太好笑了，只需要在内环把油门和方向按死就行了，车就开始自动高速绕圈了
 
+
+
+*****
+
+####  马僧虔  
+##### 1459#       发表于 2021-11-28 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720509&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-27 12:59</a>
+大概就是东京漂移吧</blockquote>
+麻了，千万别整个主打漂移的dlc啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 1460#       发表于 2021-11-28 01:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代的T100 BAJA是退环境了吗，都没见人提起。上代好喜欢用，S1级越野大哥，极速吓人。
+
+*****
+
+####  Vladimeow  
+##### 1461#       发表于 2021-11-28 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720535&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-27 13:00</a>
+这车又没人买，400万买断价一堆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像中低档价位的车拍卖行全是加价，高价位就低很多，除了F1GT还有那个shelby daytona也是便宜了不少，商城三千万拍卖行五百万。
+
