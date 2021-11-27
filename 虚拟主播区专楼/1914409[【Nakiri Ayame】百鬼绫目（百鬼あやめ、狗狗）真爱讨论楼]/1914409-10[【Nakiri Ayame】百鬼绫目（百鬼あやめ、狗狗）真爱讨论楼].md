@@ -342,3 +342,19 @@ LOL也没在动。mio呢mio呢？救一下啊！
 这应该是关注了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚刚看的时候还没有的，估计刚起床
 
+
+
+*****
+
+####  心垂万刃  
+##### 13536#       发表于 2021-11-27 13:02
+
+6期生已经有一个上位傻紫了，会不会有个上位绫总可不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fami水  
+##### 13537#       发表于 2021-11-27 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">真的可以有
+

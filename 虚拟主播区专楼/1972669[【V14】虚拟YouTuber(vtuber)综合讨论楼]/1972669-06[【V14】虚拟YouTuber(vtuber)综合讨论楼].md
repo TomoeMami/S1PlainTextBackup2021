@@ -14857,3 +14857,16 @@ valo那边，b组居然赢了a组
 
 怎么今天就看到nga开始有人谜语说小V转生16w同接这就是个人势和企业势的区别云云了
 
+
+
+*****
+
+####  OldGlory  
+##### 8638#       发表于 2021-11-27 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720233&amp;ptid=1972669" target="_blank">fastary 发表于 2021-11-27 12:39</a>
+昨天那个杏六期前世谁啊
+
+怎么今天就看到nga开始有人谜语说小V转生16w同接这就是个人势和企业势的区别云云了 ...</blockquote>
+react的黒音よみ，毕业后到b站当了三个月个人势小有成色
+

@@ -5233,3 +5233,60 @@ Cancer Virus 可还行</blockquote>
 有没有科学点的预测，这次疫情需要多少年结束啊？还是说以后彻底回不到疫情前的状态了 ...</blockquote>
 防疫不讲科学，怎么做科学预测？
 
+
+
+*****
+
+####  最好不说  
+##### 484#       发表于 2021-11-27 13:15
+
+<blockquote>飞奔的拓拓 发表于 2021-11-27 12:49
+机场卡住也就拖延点时间罢了，最多也就撑个俩月。说到底，现在大部分国家没有阻挡难民的能力，那自然也也 ...</blockquote>
+现在最宝贵的就是时间，能挡住两个月就能给疫苗开发和政策转变留出更多余地，新变种带来的冲击也能降低不少，多拖一天都能多留几万条命，可惜白皮只会狂踩油门
+
+*****
+
+####  chais613  
+##### 485#       发表于 2021-11-27 13:16
+
+下一个希腊字母就是派了吧
+
+*****
+
+####  天使日又日  
+##### 486#       发表于 2021-11-27 13:18
+
+渔村这样还能通关吗，不再推迟一下？不然深圳广东压力太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  musicat  
+##### 487#       发表于 2021-11-27 13:18
+
+真的不会好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+星座命名第一反应不是圣斗士，是Vertex树海化
+
+*****
+
+####  汽车屁  
+##### 488#       发表于 2021-11-27 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709991&amp;ptid=2039422" target="_blank">飞奔的拓拓 发表于 2021-11-26 14:47</a>
+
+没说牛逼啊，但这波通胀肯定迟早得吃。外国乱放水肯定会影响国内物价。 ...</blockquote>
+大宗期货昨晚已经跪了，原油暴跌－8％
+
+*****
+
+####  小妻水亚美  
+##### 489#       发表于 2021-11-27 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719791&amp;ptid=2039422" target="_blank">reedwkaka 发表于 2021-11-27 12:04</a>
+有没有科学点的预测，这次疫情需要多少年结束啊？还是说以后彻底回不到疫情前的状态了 ...</blockquote>
+如果国外一直躺平，那2020年就是新冠纪元年。
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
