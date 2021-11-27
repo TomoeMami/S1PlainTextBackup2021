@@ -7305,3 +7305,31 @@ B.1.1再烂，也是新冠，现在有个似乎传染力比delta厉害的变异�
 
 —— 来自 meizu MEIZU 18s Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  桐名  
+##### 665#       发表于 2021-11-28 07:26
+
+如果说南非是波谷期被逆势强抬，这一波啊，这一波欧洲大概是Δ上升期神仙打架<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  super_uni  
+##### 666#       发表于 2021-11-28 07:33
+
+南非现在是夏天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  Ik4ruga  
+##### 667#       发表于 2021-11-28 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727851&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-27 23:16</a>
+ 南非说因为上报新变异被惩罚，全世界都将其拉黑。 这么说有一定道理，以后尤其是第三世界国家，人口年轻化 ...</blockquote>
+互害的地狱
+有内味了
+
