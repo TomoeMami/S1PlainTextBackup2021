@@ -5345,3 +5345,64 @@ Cancer Virus 可还行</blockquote>
 
 听说是在晚期艾滋病人体内变异而来，南非本来就是艾滋病人比例极高的地方。
 
+
+
+*****
+
+####  Redis  
+##### 496#       发表于 2021-11-27 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721045&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 13:38</a>
+
+你看的央视说啥了</blockquote>
+现在美国是不敢订了
+
+订了也运不过来
+
+长此以往，国际贸易恐怕是要遭
+
+*****
+
+####  汽车屁  
+##### 497#       发表于 2021-11-27 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721490&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-27 14:18</a>
+
+现在美国是不敢订了
+
+订了也运不过来</blockquote>
+我看的是，美国派飞机来运货
+
+*****
+
+####  朋友  
+##### 498#       发表于 2021-11-27 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721045&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 13:38</a>
+
+你看的央视说啥了</blockquote>
+《绝不束手躺平！原材料价格涨势凶猛 看中国外贸企业如何应对 》
+[https://tv.cctv.com/v/v1/VIDEWYpgOG55rAO0V3vHOCei211026.html](https://tv.cctv.com/v/v1/VIDEWYpgOG55rAO0V3vHOCei211026.html)
+
+原材料价格上涨，一方面是合同周期，旧合同价格已经签下来，另一方面下游的涨幅跟不上成本。前者你可以说毕竟合同签了，后面这个摆明了就是你不干有的是人干，大家成本都涨，但是反正有人愿意以更低的价格签，这不就是价格战吗？
+
+后面又吹跨境电商的时候直接说破了这个
+
+“涨5个点”
+
+“我不同意了，别人没涨价，他们都不给我涨价”
+
+*****
+
+####  Redis  
+##### 499#       发表于 2021-11-27 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721509&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 14:20</a>
+
+我看的是，美国派飞机来运货</blockquote>
+飞机运费和吞吐和海运比都是杯水车薪
+
+大件什么的更别提了
+
+现在定个家具动辄6个月起，那我还不如直接挑一个本地的供应商的了
+
