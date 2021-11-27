@@ -7292,3 +7292,16 @@ B.1.1再烂，也是新冠，现在有个似乎传染力比delta厉害的变异�
 
 — from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  无责任死猫  
+##### 664#       发表于 2021-11-28 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727030&amp;ptid=2039422" target="_blank">天青月白 发表于 2021-11-27 22:11</a>
+美国死亡人数多是因为得新冠因为其他病死了都算新冠死和21年修改标准导致大增是谁塑造的正确集体记忆吗？国 ...</blockquote>
+是改标准才死的那么少，并发症全部不算。
+
+—— 来自 meizu MEIZU 18s Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
