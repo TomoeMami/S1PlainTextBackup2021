@@ -4622,3 +4622,64 @@ omicorn四舍五入一下就是unicorn，事独角兽高达
 不用LaTeX的话输入希腊字母很麻烦啊</blockquote>
 现在的输入法哪怕是英文输入法 不是都自带希腊字母输入的么  既然emoji都愿意多翻几页候选 输个希腊字母也没啥难度吧 
 
+
+
+*****
+
+####  madeira  
+##### 426#       发表于 2021-11-27 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718962&amp;ptid=2039422" target="_blank">上海大姨妈 发表于 2021-11-27 10:41</a>
+
+不是这个问题，而是希腊字母既能写作alpha 也能写作α或者Α。</blockquote>
+alpha只是音译  而且跟希腊人的发音也不像 这种不就是洋泾滨  
+
+*****
+
+####  inconolast  
+##### 427#       发表于 2021-11-27 10:49
+
+因为你要考虑到阿米全是文盲啊，凯撒他们都会按英文读法读成西萨的
+
+*****
+
+####  ryan831231  
+##### 428#       发表于 2021-11-27 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718976&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 10:44</a>
+现在的输入法哪怕是英文输入法 不是都自带希腊字母输入的么  既然emoji都愿意多翻几页候选 输个希腊字母 ...</blockquote>
+看不懂你在这装什么糊涂，这世界知道latex的人有1%吗？你觉得一般人打希腊字母比较简单还是alpha比较简单？拿α到街上问，能有几个中国人正确发音？不要老是用你自己的眼光看世界，世上多得是只靠语音输入的人。
+
+*****
+
+####  madeira  
+##### 429#       发表于 2021-11-27 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719020&amp;ptid=2039422" target="_blank">inconolast 发表于 2021-11-27 10:49</a>
+
+因为你要考虑到阿米全是文盲啊，凯撒他们都会按英文读法读成西萨的</blockquote>
+那中文的凯撒是谁翻译的呢 只有古典拉丁文中才这么读 欧洲的几大国家语言 发音都接近c 或者tsi
+
+网上说自打日耳曼蛮子听到这个词之后 他们就按照类似 Caesar的发音读了
+
+*****
+
+####  音羽城  
+##### 430#       发表于 2021-11-27 11:01
+
+<blockquote>tomatoKnight 发表于 2021-11-26 10:52
+国内生产一开始因为产业转移景气，最后人死多了还是会受需求萎缩的影响。
+
+拜托你不要只看后半句，
+</blockquote>
+可以转向出口棺材和骨灰盒嘛，这不是更好吗？
+
+*****
+
+####  上海大姨妈  
+##### 431#       发表于 2021-11-27 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719001&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 10:46</a>
+alpha只是音译  而且跟希腊人的发音也不像 这种不就是洋泾滨</blockquote>
+但是可以这样写啊，你是真傻还是装傻。
+
