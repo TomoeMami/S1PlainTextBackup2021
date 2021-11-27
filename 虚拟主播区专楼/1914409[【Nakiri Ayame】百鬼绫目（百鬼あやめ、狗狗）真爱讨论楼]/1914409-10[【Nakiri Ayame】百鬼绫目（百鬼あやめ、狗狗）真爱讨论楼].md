@@ -293,3 +293,40 @@ LOL也没在动。mio呢mio呢？救一下啊！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总还没关注6期，估计连6期出了都不知道，她到底为啥还留在杏啊
 
+
+
+*****
+
+####  stedckk  
+##### 13532#       发表于 2021-11-27 12:32
+
+<img src="https://img.saraba1st.com/forum/202111/27/123227ootquzg2bu4z2quc.png" referrerpolicy="no-referrer">
+
+<strong>6)Q2}5($X{[@XXT_`CKS_1O.png</strong> (56.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 12:32 上传
+
+*****
+
+####  绿色子龙  
+##### 13533#       发表于 2021-11-27 12:33
+
+<img src="https://img.saraba1st.com/forum/202111/27/123258hzjyjjho8j9n1ay9.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211127123219.jpg</strong> (54.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 12:32 上传
+
+这应该是关注了吧
+
+*****
+
+####  一仙  
+##### 13534#       发表于 2021-11-27 12:33
+
+毫无危机感的绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待后面来一个绫总正上位替代
+

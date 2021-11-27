@@ -390,3 +390,26 @@ syl 看文静切片之后有了个虐文的思路，但是不是很想写<img sr
 
 这张图传播范围挺大的，被s1的那个狗官博给发到微博去，害的管人痴被狠狠地群嘲了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3038#       发表于 2021-11-27 12:34
+
+顶级二创，偷了隔壁的但是又做出了特色
+【静 栗 惹 现 状-哔哩哔哩动画https://b23.tv/k6n9RbH
+<img src="https://p.sda1.dev/3/d17524a73c73c76b8b08f836d8bb305a/IMG_CMP_189835598.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GAKOTO| + 1|好活|
+
+查看全部评分
+

@@ -5181,3 +5181,25 @@ Cancer Virus 可还行</blockquote>
 
 阿三的delta可是蓄力了5个月才报出来
 
+
+
+*****
+
+####  最好不说  
+##### 479#       发表于 2021-11-27 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719882&amp;ptid=2039422" target="_blank">飞奔的拓拓 发表于 2021-11-27 12:12</a>
+
+没用，第三世界国家缺的是疫苗吗？明明是可靠的行政体系。</blockquote>
+就算让第三世界人民大规模接种做不到，在少数核心大城市铺开筛检总做得到吧，就比如南非这个非洲养蛊罐的最大输出端，哪怕卡住约堡机场都能好不少，硬要等到omicron开始大杀特杀才急急忙忙断航，但人家早传遍亚欧非了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桐名  
+##### 480#       发表于 2021-11-27 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719791&amp;ptid=2039422" target="_blank">reedwkaka 发表于 2021-11-27 12:04</a>
+
+有没有科学点的预测，这次疫情需要多少年结束啊？还是说以后彻底回不到疫情前的状态了 ...</blockquote>
+科学的说法就是in waves<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
