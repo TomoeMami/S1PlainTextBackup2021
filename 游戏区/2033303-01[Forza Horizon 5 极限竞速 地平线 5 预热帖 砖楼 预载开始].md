@@ -16088,3 +16088,12 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 —— 来自 samsung SM-T865N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  aaronluray  
+##### 1458#       发表于 2021-11-27 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">在体育场做那个保持100mph得分的任务也太好笑了，只需要在内环把油门和方向按死就行了，车就开始自动高速绕圈了
+

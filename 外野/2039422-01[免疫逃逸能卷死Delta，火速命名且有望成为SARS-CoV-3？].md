@@ -7147,3 +7147,24 @@ B.1.1再烂，也是新冠，现在有个似乎传染力比delta厉害的变异�
 
 以后谁敢先报？？
 
+
+
+*****
+
+####  Kirixima  
+##### 652#       发表于 2021-11-27 23:39
+
+假设一下，国外洗稿，说新病毒致死率低，把人头全推代尔塔上，然后想办法把新病毒引进来…资本家会不会这么做？
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  creymorgan  
+##### 653#       发表于 2021-11-27 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728052&amp;ptid=2039422" target="_blank">Kirixima 发表于 2021-11-27 23:39</a>
+
+假设一下，国外洗稿，说新病毒致死率低，把人头全推代尔塔上，然后想办法把新病毒引进来…资本家会不会这么 ...</blockquote>
+测序的成本比基本的pcr更大，所以也不存在对其中一个毒株特别放行的可行性。
+
