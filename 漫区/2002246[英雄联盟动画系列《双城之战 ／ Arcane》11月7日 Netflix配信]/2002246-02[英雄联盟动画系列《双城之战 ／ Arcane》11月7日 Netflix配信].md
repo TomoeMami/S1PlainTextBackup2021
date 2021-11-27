@@ -13798,3 +13798,47 @@ Part 1
 孤勇者这歌算火起来了么？虽然没到大街小巷那种，但是B站这翻唱，各种乐器演奏不少啊，那个父母小提琴，圆 ...</blockquote>
 完美的正能量神曲<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ネロ  
+##### 2789#       发表于 2021-11-27 20:08
+
+ 本帖最后由 ネロ 于 2021-11-27 20:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723684&amp;ptid=2002246" target="_blank">不入流美术 发表于 2021-11-27 17:54:57</a>
+
+都很疲惫不是应该睡觉吗</blockquote>
+是去议会的时候感觉很疲惫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ネロ  
+##### 2790#       发表于 2021-11-27 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723565&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-27 17:42:49</a>
+明明是任君想象（
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的  v2.5.2</blockquote>嘴上说任君想象<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+其实编剧自己的态度已经很明显了
+不然只说一句任君想象就行了
+解释这么多不就是潜台词呼之欲出<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  筱原重工  
+##### 2791#       发表于 2021-11-27 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723565&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-27 17:42</a>
+
+明明是任君想象（
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+那合理想象一下，俩人上床前凯特琳她妈让她们做好在议会前发言的准备，结果到了议会俩个人的看法完全相反，凯特琳不支持开战，而蔚要打爆希尔科的狗头，俩人甚至在金克丝的问题上都没对好口供，足见她们压根就没谈正事，那孤女寡女那么长时间共处一室干了什么就可想而知了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

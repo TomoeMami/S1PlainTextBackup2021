@@ -6528,3 +6528,71 @@ South Africa reports 2,828 new coronavirus cases, an increase of 258% from last 
 欧洲明显是已经传了好一阵子了，只不过没有测序，不知道是新变种<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 我估计马上就会有倒查多少个月之前样品的新闻了
 
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 599#       发表于 2021-11-27 20:07
+
+人在欧洲，虽然目前没太多确诊消息但感觉欧洲已经是筛子了，今天就想在室友群里提醒下两个特别爱出门的注意防护，结果发生了如下对话：
+我：到底什么时候是个头啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+室友A：疫苗肯定会出来的，等吧，相信科学<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+我：可我觉得不能指望疫苗啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+室友A：指望政客？你开玩笑？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+我：我是说不能“光”指望疫苗，没有政府配套管控，有疫苗一样爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+室友A：我不喜欢国内模式，闭关锁国<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+室友A：而且我说的疫苗，又不是现在的疫苗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+我：……可在至少一针能管一年管所有突变的疫苗出来前，政府越摆烂情况就越糟啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+室友A：这才两年，恐怕要持续十年呢，接下来靠玄学吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我虽然也在海外而且想回家回不去，但我还是支持国内严防死守的……作为武汉人我对去年年初是有深刻阴影的，这年头能过上正常生活的地方多弥足珍贵啊……
+只能说真的，屁股决定脑袋吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 600#       发表于 2021-11-27 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724679&amp;ptid=2039422" target="_blank">Humpy 发表于 2021-11-27 19:38</a>
+
+希望立陶宛也多来几个的我是不是太缺德了</blockquote>
+立陶宛 280 万人，累计确诊 46.5 万，16.6%<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+上个月 CPI 8%，是少数疫情和通胀都比美国还厉害的国家。
+
+
+
+*****
+
+####  第八协奏曲  
+##### 601#       发表于 2021-11-27 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725069&amp;ptid=2039422" target="_blank">Waldeinsamkeit 发表于 2021-11-27 20:07</a>
+人在欧洲，虽然目前没太多确诊消息但感觉欧洲已经是筛子了，今天就想在室友群里提醒下两个特别爱出门的注意 ...</blockquote>
+让你室友千万别回国
+
+就在外面待着，别回来给防疫人员添麻烦
+
+—— 来自 meizu 17 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  falisi  
+##### 602#       发表于 2021-11-27 20:16
+
+<blockquote>shimotsuki14 发表于 2021-11-27 19:39
+外面老是这么养蛊看得人是有点绝望……</blockquote>
+越看越觉得不是我党多英明，是外面太傻逼了
+
+*****
+
+####  pushare  
+##### 603#       发表于 2021-11-27 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724952&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-11-27 20:01</a>
+这又不高，佛州之前经常10-20%</blockquote>
+别和德桑蒂斯这行为艺术家比烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

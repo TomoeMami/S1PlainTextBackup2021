@@ -20928,3 +20928,16 @@ steam版就是以前的PC版啊，如果要较真的话应该是后期的win7版
 看你对主线的定义是啥了，如果有“战斗大场面”就是主线，那么125绝对是前期的小主线了 ...</blockquote>
 Alternative4吧，之前不是等三天就能去拿公式了嘛
 
+
+
+*****
+
+####  oskneo  
+##### 1473#       发表于 2021-11-27 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717833&amp;ptid=1860817" target="_blank">wwddrte 发表于 2021-11-27 05:29</a>
+Alternative4吧，之前不是等三天就能去拿公式了嘛</blockquote>
+围绕时空的线和战争的线都是主线，实际上去到al基本没啥支线个人线了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
