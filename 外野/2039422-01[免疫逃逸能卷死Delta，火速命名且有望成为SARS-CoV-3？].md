@@ -6320,3 +6320,105 @@ ADE又不是一定登革热那种ADE。
 他们边境政策最大的问题就是就算有可快速筛查，最多也就隔离一下阳性的，把潜伏期当作不存在。断航政策更是 ...</blockquote>
 72小时有效的pcr，也够搞笑了。
 
+
+
+*****
+
+####  riczxc  
+##### 576#         楼主| 发表于 2021-11-27 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724498&amp;ptid=2039422" target="_blank">朋友 发表于 2021-11-27 19:22</a>
+比如荷兰这个有85个阳性但是航班，剩下人就不用隔离啦。https://www.zaobao.com.sg/realtime/world/story20 ...</blockquote>
+也就测一次就可以不隔离了。
+
+*****
+
+####  蓝泽玲  
+##### 577#       发表于 2021-11-27 19:24
+
+如果变异成潜伏期超级短的类型就好对付了
+
+*****
+
+####  MDGreg  
+##### 578#       发表于 2021-11-27 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722720&amp;ptid=2039422" target="_blank"> 死亡確認 发表于 2021-11-27 16:21</a> 引用:内野 发表于 2021-11-27 15:24 都啥时候了还想着出国 嫌命长吗 要我说现在全是入境带来的 出去了可别回来了 ... 要知道，就算是现在还有不少人争着要润出去的，理由就是现在外面的留学租房什么的变便宜了，我就知道去年今年有好几个上海的妹子跑日本去了，说现在去日本读书名额变多了房租变便宜了整体价格都低了，至于风险什么的估计压根没考虑…… </blockquote>
+多润一个出去就少一个和你卷，这也反对的吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  最好不说  
+##### 579#       发表于 2021-11-27 19:27
+
+ 本帖最后由 最好不说 于 2021-11-27 19:29 编辑 
+
+捷克公共卫生办公室：发现了奥密克戎变异株疑似感染病例，并进行了进一步检测。 欧洲进入找蟑螂模式<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Oshino57  
+##### 580#       发表于 2021-11-27 19:28
+
+もっどもっど
+
+*****
+
+####  riczxc  
+##### 581#         楼主| 发表于 2021-11-27 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724556&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-27 19:27</a>
+捷克公共卫生办公室：发现了奥密克戎变异株疑似感染病例，并进行了进一步检测。 欧洲进入找蟑螂模式 ...</blockquote>
+所以说欧洲绝对遍地开花了。
+
+*****
+
+####  克鲁特尼  
+##### 582#       发表于 2021-11-27 19:30
+
+这么看欧洲都传遍了
+
+*****
+
+####  falisi  
+##### 583#       发表于 2021-11-27 19:33
+
+<blockquote>Promeus 发表于 2021-11-26 19:50
+根据拍老师的说法，以色列的三个患者跑了一个……
+
+—— 来自 realme RMX3366, Android 11上的 S1Ne ...</blockquote>
+拍老师是谁
+
+*****
+
+####  Humpy  
+##### 584#       发表于 2021-11-27 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望立陶宛也多来几个的我是不是太缺德了
+
+*****
+
+####  shimotsuki14  
+##### 585#       发表于 2021-11-27 19:39
+
+外面老是这么养蛊看得人是有点绝望……
+
+*****
+
+####  いみじくも萌二  
+##### 586#       发表于 2021-11-27 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724679&amp;ptid=2039422" target="_blank">Humpy 发表于 2021-11-27 19:38</a>
+
+希望立陶宛也多来几个的我是不是太缺德了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就这些天天打人权台湾牌发达国家和狗腿子们的抗疫表现让这次新病毒图他们几千万人都不过分，是他们不自己不积德
+
+*****
+
+####  pushare  
+##### 587#       发表于 2021-11-27 19:42
+
+南非这阳性率<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+South Africa reports 2,828 new coronavirus cases, an increase of 258% from last week, with a positivity rate of 9.1%
+
