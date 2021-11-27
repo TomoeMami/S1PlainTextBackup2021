@@ -7213,3 +7213,82 @@ B.1.1再烂，也是新冠，现在有个似乎传染力比delta厉害的变异�
 一个猜想不一定对，会不会是南非疾控特别靠谱抓出来了变异病毒，实际上病毒是在欧美养出来的，这会 ...</blockquote>
 欧洲再烂，测序还是没停下，而且每周发布变种占比的。
 
+
+
+*****
+
+####  fksoul  
+##### 658#       发表于 2021-11-28 04:12
+
+ 本帖最后由 fksoul 于 2021-11-28 04:13 编辑 
+
+上来更新下情况，感谢各位潭友祝福。
+
+我的朋友从这周一左右开始身体不舒服（症状类似感冒，不严重）昨天去测试结果确诊了，她打了两针辉瑞。
+
+我昨天有了一次密接，是去办事的办公室里有人中招，不过测试结果出来是阴性。
+
+来势凶猛啊。
+
+— from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Redis  
+##### 659#       发表于 2021-11-28 04:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725159&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 20:12</a>
+
+立陶宛 280 万人，累计确诊 46.5 万，16.6%
+
+上个月 CPI 8%，是少数疫情和通胀都比美国还厉害的国家 ...</blockquote>
+怪不得要和tg蹬鼻子上脸
+
+原来是走投无路了
+
+*****
+
+####  Redis  
+##### 660#       发表于 2021-11-28 04:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729193&amp;ptid=2039422" target="_blank">fksoul 发表于 2021-11-28 04:12</a>
+
+上来更新下情况，感谢各位潭友祝福。
+
+我的朋友从这周一左右开始身体不舒服（症状类似感冒，不严重）昨天去 ...</blockquote>
+你打疫苗的情况如何
+
+
+
+*****
+
+####  eezhangjie  
+##### 661#       发表于 2021-11-28 04:58
+
+<blockquote>tillnight 发表于 2021-11-28 00:49
+一个猜想不一定对，会不会是南非疾控特别靠谱抓出来了变异病毒，实际上病毒是在欧美养出来的，这会 ...</blockquote>
+直接看拍照稀烂的知乎，他贴的进化树新病毒应该中南美出品
+
+*****
+
+####  nozomitech  
+##### 662#       发表于 2021-11-28 05:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725069&amp;ptid=2039422" target="_blank">Waldeinsamkeit 发表于 2021-11-27 13:07</a>
+
+人在欧洲，虽然目前没太多确诊消息但感觉欧洲已经是筛子了，今天就想在室友群里提醒下两个特别爱出门的注意 ...</blockquote>
+欧洲遍地开花只是时间问题，边境这些管控措施根本就是笑话。
+
+我也想回国啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fksoul  
+##### 663#       发表于 2021-11-28 06:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729201&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-28 04:17</a>
+你打疫苗的情况如何</blockquote>
+两针辉瑞已经打完，目前没什么反应。
+
+— from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

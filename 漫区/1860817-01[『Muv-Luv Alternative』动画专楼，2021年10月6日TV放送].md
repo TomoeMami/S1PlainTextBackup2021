@@ -21044,3 +21044,60 @@ Alternative4吧，之前不是等三天就能去拿公式了嘛</blockquote>
 不推荐，我前面说过了，动画真的不适合初见，哪怕云游戏流程视频都比直接看动画好…初见的体验只有一次， ...</blockquote>
 很久前推大图书馆的牧羊人就是后悔没忍住先看了动画
 
+
+
+*****
+
+####  hlazd  
+##### 1482#       发表于 2021-11-28 01:56
+
+ 本帖最后由 hlazd 于 2021-11-28 02:00 编辑 
+
+动画是看个热闹，看精美3D机战，动画的战术机部分有大量细节这是游戏比不了的。但动画受限制跳过/删减了不少剧情，想认真品味剧情要打游戏。不冲突。
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1483#       发表于 2021-11-28 02:00
+
+动画的演出我觉得还不如游戏有临战感来自: iPhone客户端
+
+*****
+
+####  wqm2008  
+##### 1484#       发表于 2021-11-28 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728913&amp;ptid=1860817" target="_blank">V宇宙的守夜人Z 发表于 2021-11-28 02:00</a>
+
+动画的演出我觉得还不如游戏有临战感</blockquote>
+爽哇，刚拉完第一集，真好蛙真好蛙
+
+*****
+
+####  ReginaldMorgan  
+##### 1485#       发表于 2021-11-28 04:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53728970&amp;ptid=1860817" target="_blank">wqm2008 发表于 2021-11-28 02:22</a>
+爽哇，刚拉完第一集，真好蛙真好蛙</blockquote>
+热知识，第一集是原创回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wqm2008  
+##### 1486#       发表于 2021-11-28 04:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729182&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2021-11-28 04:06</a>
+
+热知识，第一集是原创回</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">防线被突破、想接战友被救结果是淋一脸强酸和女人唱歌难民死这几段做的还真的挺不错的
+
+就是司令部全员玉碎这段莫名其妙有点昭和。
+
+原创回咋说观感到确实是不错，往后看感觉还没遇到什么好看的剧情，都是白银武在基地中的二三事，动画的节奏有点慢了。
+
+我还挺期待闪回中白银和冥夜在火山前的那段呢，看起来是要互诉衷肠了？脑补一下火山即将爆发，beta大举进攻，屁民四处奔散，庞贝末日，在乱世中两个人在大雪天彼此依偎紧紧相拥，竟然还有点浪漫。
+
+纯夏真是好女孩啊，千赫也是，认真又严肃最可爱了。现在看完七话最想做的就是下游戏推纯夏线和千鹤线，如果有的话，不过好像那个脑子就是纯夏的样子。这条世界线可能不能二人幸终了，冥夜那个跟班有点谜语人说白银武死了又不说怎么回事，让人很迷惑。
+
+接下来感觉看剧情是要演大雪天二二六了，为什么气氛又开始变的昭和起来了。
+
