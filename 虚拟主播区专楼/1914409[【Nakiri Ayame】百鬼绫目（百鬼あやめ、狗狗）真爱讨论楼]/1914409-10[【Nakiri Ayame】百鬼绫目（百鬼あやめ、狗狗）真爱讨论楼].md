@@ -330,3 +330,15 @@ LOL也没在动。mio呢mio呢？救一下啊！
 
 毫无危机感的绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待后面来一个绫总正上位替代
 
+
+
+*****
+
+####  stedckk  
+##### 13535#       发表于 2021-11-27 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720154&amp;ptid=1914409" target="_blank">绿色子龙 发表于 2021-11-27 12:33</a>
+
+这应该是关注了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚刚看的时候还没有的，估计刚起床
+

@@ -5203,3 +5203,33 @@ Cancer Virus 可还行</blockquote>
 有没有科学点的预测，这次疫情需要多少年结束啊？还是说以后彻底回不到疫情前的状态了 ...</blockquote>
 科学的说法就是in waves<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  飞奔的拓拓  
+##### 481#       发表于 2021-11-27 12:49
+
+<blockquote>最好不说 发表于 2021-11-27 12:30
+就算让第三世界人民大规模接种做不到，在少数核心大城市铺开筛检总做得到吧，就比如南非这个非洲养蛊罐的 ...</blockquote>
+机场卡住也就拖延点时间罢了，最多也就撑个俩月。说到底，现在大部分国家没有阻挡难民的能力，那自然也也挡不住疫情传播。
+
+*****
+
+####  pushare  
+##### 482#       发表于 2021-11-27 12:51
+
+纸猫也做仰卧起坐？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/24be8c5920a016ab07998848d482d3fe/IMG_CMP_22713081.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  03e7  
+##### 483#       发表于 2021-11-27 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719791&amp;ptid=2039422" target="_blank">reedwkaka 发表于 2021-11-27 12:04</a>
+
+有没有科学点的预测，这次疫情需要多少年结束啊？还是说以后彻底回不到疫情前的状态了 ...</blockquote>
+防疫不讲科学，怎么做科学预测？
+

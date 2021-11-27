@@ -15919,3 +15919,36 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起开阔场景，昨晚蛇头就是上桥的时候没对准直接撞烂护栏下去了只能y回去
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1442#       发表于 2021-11-27 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720218&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-27 12:38</a>
+
+草，手滑买了1500万的f1gt，拍卖行只要400万，气死了</blockquote>
+拍卖行捡漏的可能性太低了，基本都要加钱。
+
+*****
+
+####  再买自检星剁手  
+##### 1443#       发表于 2021-11-27 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719739&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-27 11:59</a>
+
+看外网pg实习员工泄漏的消息挺像那么一回事的 DLC1是个小的城市地图
+
+ 虚构城市 用了去日本采集的信息 日本 ...</blockquote>
+大概就是东京漂移吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bad_alloc  
+##### 1444#       发表于 2021-11-27 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720491&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-27 12:58</a>
+拍卖行捡漏的可能性太低了，基本都要加钱。</blockquote>
+这车又没人买，400万买断价一堆
+
