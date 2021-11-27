@@ -5290,3 +5290,42 @@ Cancer Virus 可还行</blockquote>
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  有口皆悲  
+##### 490#       发表于 2021-11-27 13:28
+
+原来今年才2021，疫情爆发不过是去年的事
+
+*****
+
+####  汽车屁  
+##### 491#       发表于 2021-11-27 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711718&amp;ptid=2039422" target="_blank">holyblood 发表于 2021-11-26 16:50</a>
+
+为啥出口价格会暴涨，难道现在不是打价格战卷死国内同行的好机会么。我对我国资本家有信心 ...</blockquote>
+需求多的订单都排到明年了，你跟谁打价格战呢？
+
+*****
+
+####  朋友  
+##### 492#       发表于 2021-11-27 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720986&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-11-27 13:33</a>
+
+需求多的订单都排到明年了，你跟谁打价格战呢？</blockquote>
+你这个说法和我几天前在央视上看的不大一样
+
+*****
+
+####  汽车屁  
+##### 493#       发表于 2021-11-27 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721015&amp;ptid=2039422" target="_blank">朋友 发表于 2021-11-27 13:35</a>
+
+你这个说法和我几天前在央视上看的不大一样</blockquote>
+你在央视看到的是啥
+
