@@ -15961,3 +15961,30 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 日本场景岂不是街道赛跑到吐，不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1446#       发表于 2021-11-27 14:36
+
+出生去哪里找空头啊，为什么别人一出生就能去有空投的地方捡车
+
+*****
+
+####  冀人燕南天  
+##### 1447#       发表于 2021-11-27 14:37
+
+蛇头，自动驾驶，yyds<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liyropen  
+##### 1448#       发表于 2021-11-27 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721711&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-27 14:36</a>
+出生去哪里找空头啊，为什么别人一出生就能去有空投的地方捡车</blockquote>
+开局的车箱一般都是在建筑附近的
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

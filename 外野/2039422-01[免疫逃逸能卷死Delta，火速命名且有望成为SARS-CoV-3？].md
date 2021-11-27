@@ -5406,3 +5406,66 @@ Cancer Virus 可还行</blockquote>
 
 现在定个家具动辄6个月起，那我还不如直接挑一个本地的供应商的了
 
+
+
+*****
+
+####  droople  
+##### 500#       发表于 2021-11-27 14:27
+
+<blockquote>引用第493楼sylver2333于2021-11-27 13:59发表的  :
+
+一直没发现Omicron和Omega就是O的大小写，O-micron和O-mega，上一次这种感觉还......</blockquote>
+@sylver2333
+
+不，大小写和大小是不同的，他们分别表示大o和小o，但是各自有各自的大小写
+w是没文化英语这么读，有文化法语读两个v
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  eezhangjie  
+##### 501#       发表于 2021-11-27 14:35
+
+地利IMBA分子生物技术研究所专家Ulrich Elling谈Omicron
+
+由于Omicron新病毒的爆发，南非豪登省的病例在25天内翻了几百倍。 病毒在刺突蛋白区域有32个突变。 相比Delta，病毒传播速度快了500%，还有免疫逃逸的特性。 病毒传播的速度很快，Rtt高得封城都难以控制。所以唯一的方式是停止航班防止输入。 毒株的致病性还不太清楚，需要进一步研究。
+
+[https://www.zhihu.com/zvideo/1447920017970647040](https://www.zhihu.com/zvideo/1447920017970647040)
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  randomsin1  
+##### 502#       发表于 2021-11-27 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721536&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-27 14:23</a>
+
+飞机运费和吞吐和海运比都是杯水车薪
+
+大件什么的更别提了</blockquote>
+本地不是没有供应商就是价格更高供货期更长
+
+*****
+
+####  wyjbnb  
+##### 503#       发表于 2021-11-27 14:42
+
+<blockquote>03e7 发表于 2021-11-27 11:53
+天秤座病毒，超长潜伏期</blockquote>
+双鱼座，有其他11个的特点
+
+*****
+
+####  希远闹  
+##### 504#       发表于 2021-11-27 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721698&amp;ptid=2039422" target="_blank">eezhangjie 发表于 2021-11-27 14:35</a>
+
+地利IMBA分子生物技术研究所专家Ulrich Elling谈Omicron
+
+由于Omicron新病毒的爆发，南非豪登省的病例在25 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这不就是瘟疫公司
+
