@@ -6774,3 +6774,162 @@ South Africa reports 2,828 new coronavirus cases, an increase of 258% from last 
 不是的。你这么说简单了。传染病学的主流方法是那套flatten the curve然后（用疫苗）群体免疫，中国这套 ...</blockquote>
 所以在看到了武汉惨状之后仍然觉得没啥自己国家死一批就过去了吗？恕我直言，这算不算反人类
 
+
+
+*****
+
+####  无责任死猫  
+##### 621#       发表于 2021-11-27 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53726851&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-11-27 21:58</a>
+所以在看到了武汉惨状之后仍然觉得没啥自己国家死一批就过去了吗？恕我直言，这算不算反人类 ...</blockquote>
+这才是人类。
+
+—— 来自 HUAWEI DUB-AL00a, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  天青月白  
+##### 622#       发表于 2021-11-27 22:11
+
+美国死亡人数多是因为得新冠因为其他病死了都算新冠死和21年修改标准导致大增是谁塑造的正确集体记忆吗？国内好多人都是这说法。但我看美国cdc自己发的研究，回顾2020的新冠死者死亡诊断书，写了新冠的有97%符合新冠晚期症状，而且从拜登上台后明明疫情数据是突然大跌，跌到5，6月才回升到现在的高峰。
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Oshino57  
+##### 623#       发表于 2021-11-27 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53726778&amp;ptid=2039422" target="_blank">帕林马哲理 发表于 2021-11-27 21:54</a>
+超市已经被恐慌性屯货买空了不少货架了，好在我还有三个月存粮。</blockquote>
+在德国的时候每次去超市多摸了一下货架都会感觉自己中招的几率上升了一分
+回到国内无限制地胡吃海喝是真的自由<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+0感染和低感染对日子人来说确实完全不同的体验
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  最好不说  
+##### 624#       发表于 2021-11-27 22:12
+
+英国卫生大臣贾维德：英国发现了两例奥密克戎变异株感染病例。 两名患者正在和他们的家人进行自我隔离<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pushare  
+##### 625#       发表于 2021-11-27 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53726146&amp;ptid=2039422" target="_blank">台球论坛网友 发表于 2021-11-27 21:14</a>
+
+南非77例。香港两例，其中一例来自加拿大。</blockquote>
+报道里面来自加拿大那例是在香港隔离酒店隔离的时候被对门来自南非传染的，不是在加拿大或者在飞行中被传染的
+
+*****
+
+####  正义大朋友  
+##### 626#       发表于 2021-11-27 22:17
+
+看了一眼，欧米茄绝赞上升中<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 627#       发表于 2021-11-27 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725963&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-27 21:02</a>
+不是的。你这么说简单了。传染病学的主流方法是那套flatten the curve然后（用疫苗）群体免疫，中国这套 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在还记得，华邮这种北米匪帮媒体找科学家科学论证，封城之后会死的更惨，比不封锁病毒传播感染速度还快，然后拉平曲线才是唯一科学解决方法，事实上也看到了
+
+*****
+
+####  redsibyl  
+##### 628#       发表于 2021-11-27 22:18
+
+南非医学协会**：新毒株症状轻　质疑报道为何如此夸张
+全球
+
+撰写：唐飞
+2021-11-27 20:26:01
+最后更新日期：2021-11-27 20:26
+
+俄罗斯卫星通讯社11月27日报道，南非医学协会**安吉丽克·库切（Angelique Coetzee）26日介绍了感染新冠病毒新毒株“奥密克戎”（Omicron）的症状，并称该变体目前仅引发“轻度疾病”。
+
+库切称，这是一种轻度疾病，症状包括肌肉酸疼、疲倦，并伴有轻微咳嗽。到目前为止，我们发现感染者并没有失去味觉和嗅觉，也没有明显的症状。
+
+库切还透露，一部分患者正在家中接受治疗。
+库切称，目前南非的医院并未因新毒株而加重负担，此外，暂未发现有接种过新冠疫苗的人群感染。库切还表示，病毒的确会传播，但就目前而言，我们不知道为什么会有如此多夸张的报道，一切仍在调查之中。
+
+世界卫生组织11月26日将新冠病毒变异株B.1.1.529以希腊字母“omicron”命名，并正式将其列为“需要关注”的新冠病毒变异株。
+
+。。。所以，到底这病毒症状是不是变弱了？
+
+*****
+
+####  battleship64  
+##### 629#       发表于 2021-11-27 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723274&amp;ptid=2039422" target="_blank">tclm 发表于 2021-11-27 17:16</a>
+自由皿煮在哪里
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+新加坡有这俩东西？
+
+*****
+
+####  休達  
+##### 630#       发表于 2021-11-27 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724370&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 19:08</a>
+至少有意愿的组织可以打造一些安全区，然后慢慢往外推了。
+
+现在遍地开花，没有安全的地方，实在想不到有 ...</blockquote>
+抵抗力差的全部死完就结束了，死个10亿人差不多了。
+
+
+
+*****
+
+####  最好不说  
+##### 631#       发表于 2021-11-27 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727030&amp;ptid=2039422" target="_blank">天青月白 发表于 2021-11-27 22:11</a>
+
+美国死亡人数多是因为得新冠因为其他病死了都算新冠死和21年修改标准导致大增是谁塑造的正确集体记忆吗？国 ...</blockquote>
+对于这种论调吧，甩个数据就行：牛津Aburto教授的论文指出在2019年到2020年期间美国男性的出生预期寿命下降幅度达到2.2岁，这一年里得多死多少人才能有这效果<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 632#         楼主| 发表于 2021-11-27 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53726851&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-11-27 21:58</a>
+
+所以在看到了武汉惨状之后仍然觉得没啥自己国家死一批就过去了吗？恕我直言，这算不算反人类 ...</blockquote>
+本来上层政客就不会把下面的人当人，而且死的老人不但国家当他们是负担，年轻人也觉得让老人死挺好的。
+
+再加上上层政客的圈子都是全球化精英，对于他们来说，赚钱自由还有旅行自由比金子还重要（你看看连我国大城市的上层中产都多少对国内防疫有怨言），既然下面有民意，那更加不需要做了。
+
+话说回来，这么高的动员水平是需要下面的人配合的，不要低估武汉后国内共识的作用。
+
+*****
+
+####  battleship64  
+##### 633#       发表于 2021-11-27 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53724081&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-11-27 18:38</a>
+按现在这种趋势，结合外国的防疫能力，只有研发一种分钟级快速检测的手段才有希望彻底扑灭了 ...</blockquote>
+igm验血不一定准5分钟出结果，有啥用呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不就是小感冒.jpg
+
+*****
+
+####  idler1984  
+##### 634#       发表于 2021-11-27 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727120&amp;ptid=2039422" target="_blank">redsibyl 发表于 2021-11-27 22:18</a>
+南非医学协会**：新毒株症状轻　质疑报道为何如此夸张
+全球</blockquote>
+屁股决定脑袋。症状先不说，香港病例就是疫苗突破感染啊。
+

@@ -14916,3 +14916,24 @@ react的黒音よみ，毕业后到b站当了三个月个人势小有成色</blo
 下午6:23 · 2021年11月27日·Twitter Web App</blockquote>
 前段时间还在杞忧没有smc同期联动了，这不就来了
 
+
+
+*****
+
+####  rzrbtk  
+##### 8642#       发表于 2021-11-27 22:08
+
+郡郡最近两次被人联动放鸽子了，西西就算了，叶师怎么这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|今年睡过了好几次|
+
+查看全部评分
+
