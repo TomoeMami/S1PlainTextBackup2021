@@ -4683,3 +4683,198 @@ alpha只是音译  而且跟希腊人的发音也不像 这种不就是洋泾�
 alpha只是音译  而且跟希腊人的发音也不像 这种不就是洋泾滨</blockquote>
 但是可以这样写啊，你是真傻还是装傻。
 
+
+
+*****
+
+####  八云萌华  
+##### 432#       发表于 2021-11-27 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53717878&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-27 06:20</a>
+
+moderna那个已经是biontech的三倍了，都不敢让30岁以下的打。还要加？</blockquote>
+莫德那之前已经变相承认剂量过大要减计量了
+
+现在再加计量，乖乖，谁还敢打
+
+*****
+
+####  madeira  
+##### 433#       发表于 2021-11-27 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719134&amp;ptid=2039422" target="_blank">上海大姨妈 发表于 2021-11-27 11:03</a>
+
+但是可以这样写啊，你是真傻还是装傻。</blockquote>
+我没说不是这么写, 只是觉得英语真霸道, 借用别人字母也就罢了, 还把全世界其他国家的人 希腊字母读音给带歪了.
+
+在没特意搜之前, 我也是以为alpha, beta之类只是把希腊人的发音用英语转写了下而已, 哪知道能差这么远.
+
+*****
+
+####  内野  
+##### 434#       发表于 2021-11-27 11:10
+
+高华还在家工作呢 这波还不严重 什么时候等高华门纷纷要回国再说
+
+*****
+
+####  马化云  
+##### 435#       发表于 2021-11-27 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704175&amp;ptid=2039422" target="_blank">苏西踩到我了 发表于 2021-11-26 02:12</a>
+
+and……现在要入冬过年了，病毒传染力加倍，今年继续待家里吧</blockquote>
+南非南半球，现在正夏天呢
+
+*****
+
+####  kula01  
+##### 436#       发表于 2021-11-27 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718955&amp;ptid=2039422" target="_blank">埃罗芒阿 发表于 2021-11-27 10:40</a>
+
+好消息：WHO考虑用完希腊字母接着用星座</blockquote>
+巨蟹座病毒
+
+双鱼座病毒    这些听着比较弱鸡
+
+狮子座病毒
+
+金牛座病毒
+
+双子座病毒
+
+水瓶座病毒    这些听着比较完蛋了。。。。。
+
+天秤座病毒
+
+牧羊座病毒
+
+人马座病毒   这些听着比较友善
+
+摩羯座病毒
+
+室女座病毒
+
+天蝎座病毒   这些槛要死人了
+
+*****
+
+####  KOGmk2  
+##### 437#       发表于 2021-11-27 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718646&amp;ptid=2039422" target="_blank">结夜野棠. 发表于 2021-11-27 09:55</a>
+
+https://twitter.com/paulnuki/status/1464310918389587974
+
+A WHO source confirmed the letters Nu and ...</blockquote>
+关键词系统居然这么有牌面
+
+*****
+
+####  KOGmk2  
+##### 438#       发表于 2021-11-27 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718536&amp;ptid=2039422" target="_blank">费老师 发表于 2021-11-27 09:38</a>
+
+这种能感染已经感染痊愈的人吗？</blockquote>
+按这个新种的变异程度老疫苗/抗体很可能根本不会触发免疫反应......
+
+*****
+
+####  烦死了  
+##### 439#       发表于 2021-11-27 11:14
+
+辩经字母的差不多得了 带歪了
+
+*****
+
+####  fkinway  
+##### 440#       发表于 2021-11-27 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719211&amp;ptid=2039422" target="_blank">kula01 发表于 2021-11-27 11:11</a>
+巨蟹座病毒
+
+双鱼座病毒    这些听着比较弱鸡</blockquote>
+蛇夫座：这病毒中了能起死回生，这可不得了
+
+*****
+
+####  windzz  
+##### 441#       发表于 2021-11-27 11:17
+
+仙女座病毒发来贺电
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  上海大姨妈  
+##### 442#       发表于 2021-11-27 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719187&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 11:08</a>
+我没说不是这么写, 只是觉得英语真霸道, 借用别人字母也就罢了, 还把全世界其他国家的人 希腊字母读音给 ...</blockquote>
+太常见了，谁让这些希腊字母除了大小写还有英文转写。而且这些英文转写还被人拿来当正式书写用
+
+*****
+
+####  死宅真恶心  
+##### 443#       发表于 2021-11-27 11:18
+
+o高达不是挺弱的嘛
+
+*****
+
+####  xxren  
+##### 444#       发表于 2021-11-27 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718646&amp;ptid=2039422" target="_blank">结夜野棠. 发表于 2021-11-27 09:55</a>
+https://twitter.com/paulnuki/status/1464310918389587974
+
+A WHO source confirmed the letters Nu and ...</blockquote>
+艹，还能这样
+
+—— 来自 HUAWEI NXT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  droople  
+##### 445#       发表于 2021-11-27 11:19
+
+<blockquote>引用第435楼kula01于2021-11-27 11:11发表的  :
+
+引用:埃罗芒阿 发表于 2021-11-27 10:40好消息：WHO考虑用完希腊字母接着用星座巨蟹......</blockquote>
+@kula01
+
+你这是按圣斗士排序么
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  中二骚年  
+##### 446#       发表于 2021-11-27 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718955&amp;ptid=2039422" target="_blank">埃罗芒阿 发表于 2021-11-27 10:40</a>
+
+好消息：WHO考虑用完希腊字母接着用星座</blockquote>
+Cancer Virus 可还行
+
+*****
+
+####  lindley  
+##### 447#       发表于 2021-11-27 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你们就非要在Omicron的讨论贴里讨论无关的东西以求删帖吗？
+
+*****
+
+####  atomhappy  
+##### 448#       发表于 2021-11-27 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707603&amp;ptid=2039422" target="_blank">天野银次X美堂蛮 发表于 2021-11-26 11:53</a>
+
+脑中beyond the time开始响起了。。。</blockquote>
+现在我脑海中能响起的只有月亮之上了
+[https://www.bilibili.com/video/BV1fx411P777](https://www.bilibili.com/video/BV1fx411P777)
+

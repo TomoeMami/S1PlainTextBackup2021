@@ -3532,3 +3532,20 @@ Sanlow，给个痛快
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  sanlow666  
+##### 269#         楼主| 发表于 2021-11-27 11:02
+
+[Eileen-button](https://eileenbtn.com/?dt_dapp=1#/)
+乃琳Eileen的音声按钮站，现阶段录音还比较少，可以图一乐。
+
+*****
+
+####  一般通过广纤  
+##### 270#       发表于 2021-11-27 11:04
+
+什么？乃琳是50w？！
+
