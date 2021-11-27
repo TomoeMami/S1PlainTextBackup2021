@@ -6117,3 +6117,17 @@ ADE又不是一定登革热那种ADE。
 
 变异病毒没完没了是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Place_O  
+##### 557#       发表于 2021-11-27 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722658&amp;ptid=2039422" target="_blank">lexi 发表于 2021-11-27 16:14</a>
+卧槽，听你说我才学习到</blockquote>
+其实U和W都是从V来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+法语里面念double v
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+

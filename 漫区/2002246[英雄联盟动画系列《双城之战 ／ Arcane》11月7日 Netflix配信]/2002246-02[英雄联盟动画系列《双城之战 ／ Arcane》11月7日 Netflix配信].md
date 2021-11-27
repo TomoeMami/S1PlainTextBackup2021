@@ -13733,3 +13733,21 @@ Part 1
 
 有时候觉得皮尔特沃夫这个译名就很怪...Piltover也不是这么读的呀
 
+
+
+*****
+
+####  银枪子龙  
+##### 2783#       发表于 2021-11-27 17:36
+
+真做了
+
+-39t2Q2p-1lgvZbT3cSl1-sg.jpg.medium.jpg
+(78.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-27 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202111/27/173611inkdqif4bkq040df.jpg" referrerpolicy="no-referrer">
+
