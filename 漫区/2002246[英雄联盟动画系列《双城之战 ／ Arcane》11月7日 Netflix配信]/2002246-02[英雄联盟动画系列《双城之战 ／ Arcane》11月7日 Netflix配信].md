@@ -13924,3 +13924,17 @@ Part 1
 
 那个歌剧院里的黄种人小提琴师，也是根据真人演奏家建模的，华裔陈锐
 
+
+
+*****
+
+####  Redis  
+##### 2799#       发表于 2021-11-27 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725360&amp;ptid=2002246" target="_blank">jf8350143 发表于 2021-11-27 20:24</a>
+
+目前这个反响后续让vi和凯特琳直接出柜很顺利成章……</blockquote>
+还需要橱柜么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+这也太明显了
+
