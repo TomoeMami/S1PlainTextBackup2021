@@ -13751,3 +13751,50 @@ Part 1
 
 <img src="https://img.saraba1st.com/forum/202111/27/173611inkdqif4bkq040df.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2784#       发表于 2021-11-27 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723503&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-27 17:36</a>
+真做了</blockquote>
+明明是任君想象（
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lost_恩恩  
+##### 2785#       发表于 2021-11-27 17:46
+
+孤勇者这歌算火起来了么？虽然没到大街小巷那种，但是B站这翻唱，各种乐器演奏不少啊，那个父母小提琴，圆号的绝了 
+
+*****
+
+####  用户名就算了吧  
+##### 2786#       发表于 2021-11-27 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723503&amp;ptid=2002246" target="_blank">银枪子龙 发表于 2021-11-27 17:36</a>
+
+真做了</blockquote>
+绝了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不入流美术  
+##### 2787#       发表于 2021-11-27 17:54
+
+都很疲惫不是应该睡觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银枪子龙  
+##### 2788#       发表于 2021-11-27 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723608&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-27 17:46</a>
+
+孤勇者这歌算火起来了么？虽然没到大街小巷那种，但是B站这翻唱，各种乐器演奏不少啊，那个父母小提琴，圆 ...</blockquote>
+完美的正能量神曲<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
