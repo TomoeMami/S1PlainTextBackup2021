@@ -8318,3 +8318,21 @@ Israel reports 4 new suspected Omicron cases, including 3 people with no travel 
 香港卫生署是这样的，坚持用刺突蛋白特征突变来指代整个毒株，WHO用希腊字母代称好歹还知道哪个是哪个， ...</blockquote>
 香港这是循哪里的习惯？who是国际组织啊，这种事上别出心裁有什么意义
 
+
+
+*****
+
+####  螺纹  
+##### 764#       发表于 2021-11-29 01:09
+
+hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是上半年热门
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Duc_d'_Muka  
+##### 765#       发表于 2021-11-29 01:17
+
+虽然带英声称把航线给断了但我坚定地相信马上又会爆发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

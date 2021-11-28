@@ -1484,3 +1484,274 @@ U1S1，有丶假
 
 什么剖腹产？
 
+
+
+*****
+
+####  星街こうせい  
+##### 3159#       发表于 2021-11-29 01:02
+
+“看你们刷一会儿喜欢我再下”
+
+文静这功力没3到5个前男友去锤炼我是不信的。
+
+*****
+
+####  haruhiismer  
+##### 3160#       发表于 2021-11-29 01:02
+
+太养了这下gachi了
+
+*****
+
+####  gawain039  
+##### 3161#       发表于 2021-11-29 01:03
+
+12月再见了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 3162#       发表于 2021-11-29 01:03
+
+我还没刷怎么就断推流了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 3163#       发表于 2021-11-29 01:04
+
+这下前男友是真的，老头是真的，枕营业是真的，京华哥哥也是真的，我脱粉了。
+
+*****
+
+####  莫洛骑士  
+##### 3164#       发表于 2021-11-29 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739167&amp;ptid=2013779" target="_blank">星街こうせい 发表于 2021-11-28 13:02</a>
+“看你们刷一会儿喜欢我再下”
+
+文静这功力没3到5个前男友去锤炼我是不信的。
+
+ ...</blockquote>
+3到5个？30到50个！
+
+*****
+
+####  星街こうせい  
+##### 3165#       发表于 2021-11-29 01:09
+
+不是，我才回过味来，文静今晚这么一透底简直是把艾瑞思架在火上烤啊，文静你好狠的心。
+
+*****
+
+####  GAKOTO  
+##### 3166#         楼主| 发表于 2021-11-29 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739143&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-11-29 01:00</a>
+甲鱼汤是什么梗</blockquote>
+有人发sc让海子姐祝福，海子姐说甲鱼汤对手术恢复好
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T型钉宫病毒| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  雨井绫  
+##### 3167#       发表于 2021-11-29 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我这段时间有时候会想，是不是静在力挽狂潮后陨落才是终极的节目效果，到现在我也无法给千鸟这企划想象出一个美好未来。
+
+*****
+
+####  人民de救星  
+##### 3168#       发表于 2021-11-29 01:09
+
+原力会议在千鸟的历史上是一个生死攸关的转折点。原力会议挽救了静，挽救了鸟p，挽救了千鸟official！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小憨1  
+##### 3169#       发表于 2021-11-29 01:10
+
+等会嗷，当年陈珺20页PPT入职初音，现在文静10页PPT干碎陈珺？
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aikkkkk  
+##### 3170#       发表于 2021-11-29 01:11
+
+不管今晚这解释是真还是假都可以说明文静这女人是真的不简单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 3171#       发表于 2021-11-29 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739251&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-28 13:10</a>
+等会嗷，当年陈珺20页PPT入职初音，现在文静10页PPT干碎陈珺？</blockquote>
+1个文静 = 2个陈珺
+
+*****
+
+####  星街こうせい  
+##### 3172#       发表于 2021-11-29 01:12
+
+如果是真的，我希望它是假的，如果是假的，我希望超级加倍。这就是虚拟感啊。
+
+*****
+
+####  gawain039  
+##### 3173#       发表于 2021-11-29 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739232&amp;ptid=2013779" target="_blank">星街こうせい 发表于 2021-11-29 01:09</a>
+不是，我才回过味来，文静今晚这么一透底简直是把艾瑞思架在火上烤啊，文静你好狠的心。 ...</blockquote>
+今晚歌会艾白和思思真的太麻了，播片就算了，播的还是老的不行的玩意儿，互动也好尬
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gawain039  
+##### 3174#       发表于 2021-11-29 01:12
+
+ 本帖最后由 gawain039 于 2021-11-29 01:14 编辑 
+
+风怒
+
+*****
+
+####  希克苏鲁伯  
+##### 3175#       发表于 2021-11-29 01:13
+
+我的心被文静女士带走了，今生或许不再有悲喜
+
+有一说一，看千鸟变动快一个月了背后还这副烂样，很难想象怎么起死回生
+
+*****
+
+####  gawain039  
+##### 3176#       发表于 2021-11-29 01:13
+
+ 本帖最后由 gawain039 于 2021-11-29 01:14 编辑 
+
+风怒
+
+*****
+
+####  tankai  
+##### 3177#       发表于 2021-11-29 01:14
+
+世界是友好的？悲惨世界！诸君请看
+
+<img src="https://img.saraba1st.com/forum/202111/29/011334zy857rnyxg44fbyi.jpg" referrerpolicy="no-referrer">
+
+<strong>阿里旺旺图片20211129011319.jpg</strong> (46.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 01:13 上传
+
+*****
+
+####  tankai  
+##### 3178#       发表于 2021-11-29 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739141&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 00:59</a>
+
+肚子和嘴开刀了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+肚子知道，嘴为什么要开刀啊？
+
+*****
+
+####  星街こうせい  
+##### 3179#       发表于 2021-11-29 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739271&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 01:12</a>
+
+今晚歌会艾白和思思真的太麻了，播片就算了，播的还是老的不行的玩意儿，互动也好尬
+
+—— 来自 HUAWEI Y ...</blockquote>
+不是这个意思。艾瑞思又是陈珺前朝遗老，作为队长关键时刻又站不出来，输出控场甚至打经济都要靠半路进来的文静，这是直接给劈到地心了。
+
+*****
+
+####  gawain039  
+##### 3180#       发表于 2021-11-29 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739290&amp;ptid=2013779" target="_blank">tankai 发表于 2021-11-29 01:14</a>
+肚子知道，嘴为什么要开刀啊？</blockquote>
+没说，也许是口腔或者咽喉疾病？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  雨井绫  
+##### 3181#       发表于 2021-11-29 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我已经十几分钟没看到文静的嗯活了，什么时候能再给大家整波大的
+
+*****
+
+####  gawain039  
+##### 3182#       发表于 2021-11-29 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739293&amp;ptid=2013779" target="_blank">星街こうせい 发表于 2021-11-29 01:15</a>
+不是这个意思。艾瑞思又是陈珺前朝遗老，作为队长关键时刻又站不出来，输出控场甚至打经济都要靠半路进来 ...</blockquote>
+还是希望5个人能一起走下去<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  夜潇箫  
+##### 3183#       发表于 2021-11-29 01:17
+
+别的不说，我挺想看琳跳舞<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3184#       发表于 2021-11-29 01:18
+
+艾瑞思早该劈劈了 
+根本就不懂直播 不知道咋去创造节目效果
+她的努力大家都知道 但他努力在了提升自我上，这样的努力吸引不到别人来看她直播
+
+*****
+
+####  雨井绫  
+##### 3185#       发表于 2021-11-29 01:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">真的很期待文静能给我们整点新活，但是她这身体状态……至少今天这直播听起来还是气若游丝，真不知道什么时候能好起来。
+
+*****
+
+####  小憨1  
+##### 3186#       发表于 2021-11-29 01:19
+
+如果故事是真的，千鸟配不上文静的执行力
+如果故事是假的，千鸟配不上文静的编故事能力
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，其他四个在这场直播以后还打算和这个月一样继续摆吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
