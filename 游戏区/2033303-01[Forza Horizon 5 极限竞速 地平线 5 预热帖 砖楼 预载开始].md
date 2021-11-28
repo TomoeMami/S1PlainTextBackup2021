@@ -16181,3 +16181,33 @@ vocho任务倒数第二关就送甲虫了</blockquote>
 
 这破游戏bug太多，有中生无，愣是说我没有这车
 
+
+
+*****
+
+####  马僧虔  
+##### 1467#       发表于 2021-11-28 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731035&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-28 12:07</a>
+好吧，原来是feature
+
+这破游戏bug太多，有中生无，愣是说我没有这车</blockquote>
+这游戏能治好成就强迫症的话也算是功德无量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱护动物抓根宝  
+##### 1468#       发表于 2021-11-28 14:34
+
+pg这也太摆烂了，今天闲着没事清点下车库，发现百年牛的后轮转向终于给加上了，然而疣猪号还是没有，p1的尾翼还是放不下来，明年的无限试驾能不能给点压力啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 1469#       发表于 2021-11-28 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53732580&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-28 00:29</a>
+
+这游戏能治好成就强迫症的话也算是功德无量了</blockquote>
+我觉得还是MCC比较合适一点，700个又多又臭的成就，不知道什么人能有兴趣做。
+
