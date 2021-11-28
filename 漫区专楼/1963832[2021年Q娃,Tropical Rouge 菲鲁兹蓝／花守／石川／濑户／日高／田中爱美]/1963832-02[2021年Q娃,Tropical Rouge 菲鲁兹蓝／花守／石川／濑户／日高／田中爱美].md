@@ -11634,3 +11634,16 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 对打互相表白这种桥段是怎么看都不腻啊，飞鸟单马尾是真的好看
 
+
+
+*****
+
+####  leleq  
+##### 2364#       发表于 2021-11-28 21:04
+
+这集真是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 百合子真是人如其名 
+
+飞鸟放弃对决后的一人站在球场的分镜简直了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下一集不知道凉了不对是凉村女士能不能靠搞暧昧换来点戏份呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
