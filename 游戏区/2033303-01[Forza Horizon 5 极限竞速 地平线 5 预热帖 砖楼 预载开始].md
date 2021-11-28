@@ -16220,3 +16220,21 @@ pg这也太摆烂了，今天闲着没事清点下车库，发现百年牛的后
 
 arcade排到了一群人，很快就做完了，一切都是这么美好，直到我卡在了结算界面只能强退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天神十三煞  
+##### 1471#         楼主| 发表于 2021-11-28 17:21
+
+这破游戏是这样的 不首发刷不到钱
+
+刷钱了就得吃各种条件判断都分不清的傻逼bug
+
+*****
+
+####  DancingAndy  
+##### 1472#       发表于 2021-11-28 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">排了三天蛇头总算碰到一次没有x级的队友过了
+

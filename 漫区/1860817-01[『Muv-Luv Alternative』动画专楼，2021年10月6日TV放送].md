@@ -21110,3 +21110,14 @@ Alternative4吧，之前不是等三天就能去拿公式了嘛</blockquote>
 
 Alternative最近这两话看得想睡觉……是制作组拉了还是这段就是这么无聊的
 
+
+
+*****
+
+####  Toby_dak  
+##### 1488#       发表于 2021-11-28 17:07
+
+别说动画党了，我当时在XP上玩游戏时候也是郁闷得很。明明都要拿到公式做出00单元，准备继续爽快展开的，但突然搞了个昭和味十足的内斗政变。政变剧情完了，以为就要拳打脚踢BETA，实际却是被BETA打出PTSD名场面<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
