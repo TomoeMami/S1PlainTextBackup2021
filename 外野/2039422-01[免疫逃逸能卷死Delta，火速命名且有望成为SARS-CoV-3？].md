@@ -7897,3 +7897,36 @@ Nu和new的发音像，ξ是为尊者（凯撒)讳
 
 一个外来自复制异物对人体的亲和力变强，实在没有道理认定其毒性反而会变弱。
 
+
+
+*****
+
+####  redsibyl  
+##### 724#       发表于 2021-11-28 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731934&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-28 13:24</a>
+南非医生说omicron只导致轻微症状那条新闻果然有问题，根据BNO NEWS报道，Coetzee原本说的是在小部分健康年 ...</blockquote>
+看来是急了。。。
+
+*****
+
+####  lexi  
+##### 725#       发表于 2021-11-28 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723371&amp;ptid=2039422" target="_blank">Place_O 发表于 2021-11-27 17:24</a>
+
+其实U和W都是从V来的
+
+法语里面念double v</blockquote>
+double v这个我知道，学英语的时候老师教过，但o-mega和o-micron这两个是这么个意思就真的是刚刚在本贴被教育到了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kingjob  
+##### 726#       发表于 2021-11-28 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704131&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 02:04</a>
+
+传染性很高，最重要是血清分型，免疫逃逸（会不会ADE？）</blockquote>
+血清分型对于免疫的意义是什么？网上查不到啊
+
