@@ -7741,3 +7741,35 @@ r0是delta的5倍的话，那岂不是到30了？
 
 是不是得过新冠然后痊愈的能被反复传染？那不是疫情永无止境了？
 
+
+
+*****
+
+####  最好不说  
+##### 710#       发表于 2021-11-28 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731062&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-11-28 12:09</a>
+
+不愧是带英</blockquote>
+估计马上就要到“也许当初能做点什么，但现在太迟了”<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  takami  
+##### 711#       发表于 2021-11-28 12:39
+
+只有我想知道为什么跳过牛和柯西吗？
+
+为了不影响卖胶，大b使了钱？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  出门踏春  
+##### 712#       发表于 2021-11-28 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730506&amp;ptid=2039422" target="_blank">bankofsoul 发表于 2021-11-28 11:13</a>
+现在出门去欧洲旅游？您还是先去看看脑子吧。</blockquote>
+劝他干嘛，最好死在外面，别回来祸害人！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
