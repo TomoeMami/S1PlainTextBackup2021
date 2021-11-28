@@ -8116,3 +8116,27 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 美国还没有……当然也可能是测得少</blockquote>
 按美国的玩法怕是拖到全球基本都有了才说自己有。
 
+
+
+*****
+
+####  最好不说  
+##### 746#       发表于 2021-11-28 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53735310&amp;ptid=2039422" target="_blank">ftqwer1 发表于 2021-11-28 19:52</a>
+
+按美国的玩法怕是拖到全球基本都有了才说自己有。</blockquote>
+不用慌，莫德纳已经开吹说针对omicron的新冠疫苗在2022年初就能可供使用，你永远可以相信美利坚<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kirixima  
+##### 747#       发表于 2021-11-28 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53735003&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-28 19:24</a>
+1918的疫情直接导致德国续战无力停止了对抗，你真担心三战应该担心疫情结束，到时候高额的债务在加息后无 ...</blockquote>
+实际上我们这种抗疫政策是非常花钱的。一人测一次七十，现在一年下来爆了五六个地方，动不动就是区域普查。如果这种事情常态化，加上国外炼蛊练出来的高阶毒王，经济成本肯定会上升。接下来肯定要考虑向资本家开刀了，毕竟我们是社会主义社会。
+但是另外一方面，战争一般都在大的灾害后，对外战争可以转移内部矛盾。国外虽然这么拉胯，但是到了一定程度肯定也需要转移内部矛盾，释放内部的经济压力，基本上就是依靠战争了。我觉得可能不会等到人死的打不起仗，真打不起仗那资本主义就真的是太拉胯了。
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
