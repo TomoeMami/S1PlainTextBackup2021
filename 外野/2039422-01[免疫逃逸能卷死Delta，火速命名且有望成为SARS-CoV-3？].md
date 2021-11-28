@@ -8140,3 +8140,45 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 
 —— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  creymorgan  
+##### 748#       发表于 2021-11-28 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53735829&amp;ptid=2039422" target="_blank">Kirixima 发表于 2021-11-28 20:21</a>
+
+实际上我们这种抗疫政策是非常花钱的。一人测一次七十，现在一年下来爆了五六个地方，动不动就是区域普查 ...</blockquote>
+需要复习一遍，在经历了封城的2020年中国是全球主要经济体里唯一正增长的么？
+
+你既然关心经济，那么就该知道清零才是经济损失最小的对策。
+
+*****
+
+####  creymorgan  
+##### 749#       发表于 2021-11-28 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53735829&amp;ptid=2039422" target="_blank">Kirixima 发表于 2021-11-28 20:21</a>
+
+战争一般都在大的灾害后，对外战争可以转移内部矛盾。国外虽然这么拉胯，但是到了一定程度肯定也需要转移 ...</blockquote>
+那么你在担心疫情结束还是疫情不结束？
+
+*****
+
+####  yario  
+##### 750#       发表于 2021-11-28 20:42
+
+不要怀疑我们的能力
+
+
+
+*****
+
+####  yario  
+##### 751#       发表于 2021-11-28 20:43
+
+<blockquote>Kirixima 发表于 2021-11-28 20:21
+战争一般都在大的灾害后，对外战争可以转移内部矛盾。国外虽然这么拉胯，但是到了一定程度肯定也需要转移 ...</blockquote>
+西方国家从**战争开始掠夺的世界主导权，该吐出来了
+
