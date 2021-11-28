@@ -7930,3 +7930,17 @@ double v这个我知道，学英语的时候老师教过，但o-mega和o-micron�
 传染性很高，最重要是血清分型，免疫逃逸（会不会ADE？）</blockquote>
 血清分型对于免疫的意义是什么？网上查不到啊
 
+
+
+*****
+
+####  KOGmk2  
+##### 727#       发表于 2021-11-28 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53732305&amp;ptid=2039422" target="_blank">kingjob 发表于 2021-11-28 14:05</a>
+
+血清分型对于免疫的意义是什么？网上查不到啊</blockquote>
+血清分型就是抗体识别失败,在已有的抗体看来根本就不是自己要对付的病毒,正常情况下二价二联疫苗能解决,本身不算不可处理的危机,问题在于COVID很明显不是躺平认锤的~~~Delta加传染性/Omicron直接回避抗体,结果还是如果不清零的话迟早养出蛊王
+
+P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了,那等于直接废掉了已有的全部单抗药物.
+
