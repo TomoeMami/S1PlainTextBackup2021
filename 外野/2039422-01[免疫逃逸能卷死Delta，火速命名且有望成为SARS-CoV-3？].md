@@ -8391,3 +8391,15 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 
 — from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  烦死了  
+##### 771#       发表于 2021-11-29 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53736954&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-28 21:34</a>
+
+丹麦检出两例南非输入，约堡飞阿姆斯特丹的那两个航班的61个阳性里确认了13个，但肯定不止这些。另外荷兰佬 ...</blockquote>
+传统异能了， 只检测非洲来的航班，自然都是非洲输入<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
