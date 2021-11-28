@@ -436,3 +436,19 @@ LOL也没在动。mio呢mio呢？救一下啊！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这号估计是别人送的吧
 
+
+
+*****
+
+####  Fami水  
+##### 13546#       发表于 2021-11-28 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">看着像韩国名字，不行 棒子浓度高了
+
+*****
+
+####  FCCHua  
+##### 13547#       发表于 2021-11-28 15:57
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
