@@ -8378,3 +8378,16 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 我觉得关键还是致死率和重症率吧，要是真变成大号流感也不是不行</blockquote>
 是什么会令你觉得会变低的？感染原理类似，效率理论增高，怎么就突然会变成大号流感了？
 
+
+
+*****
+
+####  super_uni  
+##### 770#       发表于 2021-11-29 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739632&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-11-29 02:11</a>
+目前已经发现病例的地方</blockquote>
+看了眼马达加斯加<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
