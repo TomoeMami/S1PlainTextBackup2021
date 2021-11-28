@@ -16238,3 +16238,29 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">排了三天蛇头总算碰到一次没有x级的队友过了
 
+
+
+*****
+
+####  itsmyrailgun  
+##### 1473#       发表于 2021-11-28 23:05
+
+<img src="https://img.saraba1st.com/forum/202111/28/230432i34p7iu44z33tati.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211128230409.png</strong> (270.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-28 23:04 上传
+
+昨天喊了五个网友，陪我过生日，全部用的都是初音未来痛车涂装，跑完季节赛以后大家一起拍了一张照片
+
+顺带求问PC怎么导出照片，forzahub没有FH5的选项
+
+*****
+
+####  bad_alloc  
+##### 1474#       发表于 2021-11-28 23:18
+
+花了一个上午把广告牌跟全部道路做了，接下来佛系玩了
+
