@@ -8038,3 +8038,37 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 
 澳大利亚新增两例omicron确诊，目前全世界确诊115例，疑似1073例，顺便放个BNONEWS做的omicron感染情况统计网页https://bnonews.com/index.php/2021/11/omicron-tracker/
 
+
+
+*****
+
+####  蔵女  
+##### 738#       发表于 2021-11-28 18:24
+
+这已经扩散到全世界了吧…
+
+*****
+
+####  Humpy  
+##### 739#       发表于 2021-11-28 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734503&amp;ptid=2039422" target="_blank">蔵女 发表于 2021-11-28 18:24</a>
+这已经扩散到全世界了吧…</blockquote>
+美国还没有……当然也可能是测得少
+
+*****
+
+####  小野賢章  
+##### 740#       发表于 2021-11-28 18:36
+
+美国是因为周末所以还没有发现吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  configxxxx  
+##### 741#       发表于 2021-11-28 18:42
+
+<blockquote>对羟基笨甲酸 发表于 2021-11-28 18:13
+我还以为洗衣粉那级别的都病逝了会让有钱人群体警觉呢……还是说洗衣服出身不高其实也混不进真权贵圈？ ...</blockquote>
+人总会死的，84也够本了，惊吓程度不大
+
