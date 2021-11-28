@@ -15064,3 +15064,33 @@ ptr现在这个下面的英文字幕，看起来是人工实时翻译的，好�
 
 不对 看了下还是自动的，但是经常卡死
 
+
+
+*****
+
+####  rzrbtk  
+##### 8656#       发表于 2021-11-28 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738117&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-11-28 23:18</a>
+
+不对 看了下还是自动的，但是经常卡死</blockquote>
+是自动的吧，郡郡和老板娘都用过，分免费版和付费版，准确度还挺高，但语速快了就无了（所以郡买来根本用不了）
+
+*****
+
+####  free  
+##### 8657#       发表于 2021-11-28 23:22
+
+uta部这次大概率是真没了，虽然是歌势组合不过也没啥资源，原创曲都肉眼可见的穷，运营特别废物，入B生不逢时。
+
+18年到现在的组合，只能说可惜了，不知道能不能带着皮转成个人势。
+
+*****
+
+####  Porsche  
+##### 8658#       发表于 2021-11-28 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738143&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-11-28 23:21</a>
+是自动的吧，郡郡和老板娘都用过，分免费版和付费版，准确度还挺高，但语速快了就无了（所以郡买来根本用 ...</blockquote>
+刚才已经完全驴唇不对马嘴了，翻译速度是不是受限于pc性能
+

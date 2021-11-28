@@ -9743,3 +9743,147 @@ image.png
 
 要十一点半了，麻了
 
+
+
+*****
+
+####  专业划水人员  
+##### 5621#       发表于 2021-11-28 23:25
+
+到了
+
+*****
+
+####  追风小星星  
+##### 5622#       发表于 2021-11-28 23:25
+
+吊人该不会睡着了吧?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咸鱼渣  
+##### 5623#       发表于 2021-11-28 23:26
+
+来了
+
+*****
+
+####  pei23333  
+##### 5624#       发表于 2021-11-28 23:26
+
+来了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  路人庚  
+##### 5625#       发表于 2021-11-28 23:26
+
+神tm memory
+
+*****
+
+####  古战场亡魂  
+##### 5626#       发表于 2021-11-28 23:26
+
+ 本帖最后由 古战场亡魂 于 2021-11-28 23:27 编辑 
+
+？？？？？？？？？这歌没出pv吗？？？？？今年一月份的……窝草……
+
+*****
+
+####  时间在我手中  
+##### 5627#       发表于 2021-11-28 23:27
+
+你麻麻的播片<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">本体看来就是尬吹比那几分钟了
+
+*****
+
+####  T_Hb  
+##### 5628#       发表于 2021-11-28 23:27
+
+怎么还把她麦克风带着啊
+
+*****
+
+####  咸鱼渣  
+##### 5629#       发表于 2021-11-28 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这麦克风
+
+*****
+
+####  时间在我手中  
+##### 5630#       发表于 2021-11-28 23:32
+
+【粉丝的温暖】
+
+*****
+
+####  2014720  
+##### 5631#       发表于 2021-11-28 23:33
+
+就这你给我排练了一月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5632#       发表于 2021-11-28 23:33
+
+等今日の播了
+
+*****
+
+####  专业划水人员  
+##### 5633#       发表于 2021-11-28 23:34
+
+等下个肉猪
+
+*****
+
+####  路人庚  
+##### 5634#       发表于 2021-11-28 23:34
+
+很明显忙的事情不是这个了（昨天的直播果然是把话先说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 5635#       发表于 2021-11-28 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738271&amp;ptid=2018830" target="_blank">2014720 发表于 2021-11-28 23:33</a>
+
+就这你给我排练了一月</blockquote>
+怎么可能是排练这个……这曲子是今年年初的，这对话的套路都用几年了，这玩意后台等待的那点时间就够用了。
+
+*****
+
+####  时间在我手中  
+##### 5636#       发表于 2021-11-28 23:39
+
+肥婆快播，今天压东西压了六小时
+
+*****
+
+####  古战场亡魂  
+##### 5637#       发表于 2021-11-28 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">都这么久了，你的那首Love じゃなきャ的pv呢？
+
+*****
+
+####  汇聚群光  
+##### 5638#       发表于 2021-11-28 23:39
+
+都这么晚了，今天要是还播估计只有推限/tc/图奇lol三选一了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，我一直以为这节目油管是直播b站是转播，直到我发现油管比b站慢了几秒钟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咸鱼渣  
+##### 5639#       发表于 2021-11-28 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">估计没直播了吧
+

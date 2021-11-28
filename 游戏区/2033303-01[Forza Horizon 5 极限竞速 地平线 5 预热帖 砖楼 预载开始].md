@@ -16264,3 +16264,19 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 花了一个上午把广告牌跟全部道路做了，接下来佛系玩了
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 1475#       发表于 2021-11-28 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53737989&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-28 23:05</a>
+
+昨天喊了五个网友，陪我过生日，全部用的都是初音未来痛车涂装，跑完季节赛以后大家一起拍了一张照片
+
+顺带 ...</blockquote>
+[https://forzamotorsport.net/](https://forzamotorsport.net/)
+
+进去登录，然后在抬头的community-FH5 Gallary里
+
