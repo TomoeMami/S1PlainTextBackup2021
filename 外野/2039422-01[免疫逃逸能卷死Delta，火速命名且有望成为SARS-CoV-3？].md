@@ -7390,3 +7390,18 @@ omicron在南非都要把delta卷死一统天下了，你还觉得它野路子�
 
 现在就怕这个欧米克戎和德尔塔“强强联合”，能同时得
 
+
+
+*****
+
+####  咸鱼咸又咸  
+##### 673#       发表于 2021-11-28 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729591&amp;ptid=2039422" target="_blank">klmmmx 发表于 2021-11-28 08:45</a>
+这个杀伤力如何…</blockquote>
+“新冠病毒新型变异毒株 Omicron 目前只导致轻度不适，如轻度肌肉酸痛和容易疲劳，并没有明显症状。” —— 南非医学会**。
+传染性强，重症，致死率很大概率会低。
+德尔塔比最早得新冠致死率也是更低吧
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
