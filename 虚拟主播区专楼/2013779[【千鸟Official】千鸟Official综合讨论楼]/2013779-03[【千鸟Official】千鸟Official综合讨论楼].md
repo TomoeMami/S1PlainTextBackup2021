@@ -865,3 +865,12 @@ nga专楼都有路人去楼里问鸟p咋回事了，给我整不会了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我超我不好说
 
+
+
+*****
+
+####  小憨1  
+##### 3085#       发表于 2021-11-28 21:14
+
+节目顺序应该是这个，千鸟挺靠后了，估计得一个半小时之后<img src="https://p.sda1.dev/3/9dfb269c028bd6ed6613a19eb2e46179/IMG_CMP_7427159.jpeg" referrerpolicy="no-referrer">
+

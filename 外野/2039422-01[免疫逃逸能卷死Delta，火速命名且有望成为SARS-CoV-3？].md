@@ -8182,3 +8182,16 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 战争一般都在大的灾害后，对外战争可以转移内部矛盾。国外虽然这么拉胯，但是到了一定程度肯定也需要转移 ...</blockquote>
 西方国家从**战争开始掠夺的世界主导权，该吐出来了
 
+
+
+*****
+
+####  pushare  
+##### 752#       发表于 2021-11-28 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734530&amp;ptid=2039422" target="_blank">Humpy 发表于 2021-11-28 18:27</a>
+美国还没有……当然也可能是测得少</blockquote>
+每天一班约翰内斯堡直飞纽约29日截止<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
