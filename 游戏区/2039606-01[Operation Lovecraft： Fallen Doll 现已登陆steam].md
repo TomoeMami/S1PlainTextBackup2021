@@ -1,0 +1,614 @@
+
+
+*****
+
+####  lzh1993  
+##### 1#       楼主       发表于 2021-11-27 10:30
+
+磨磨唧唧2个月 终于上架了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  supergilaboy  
+##### 2#       发表于 2021-11-27 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">我还以为是新克苏鲁游戏
+
+*****
+
+####  greemoore1981  
+##### 3#       发表于 2021-11-27 10:42
+
+[https://bbs.saraba1st.com/2b/thread-2034788-1-1.html](https://bbs.saraba1st.com/2b/thread-2034788-1-1.html)
+
+你们两打一架？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jy000129| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  walfeds  
+##### 4#       发表于 2021-11-27 10:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道是我以前下的demo太老还是什么原因，这玩意有任何游戏性吗
+
+*****
+
+####  lzh1993  
+##### 5#         楼主| 发表于 2021-11-27 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718968&amp;ptid=2039606" target="_blank">greemoore1981 发表于 2021-11-27 10:42</a>
+
+https://bbs.saraba1st.com/2b/thread-2034788-1-1.html
+
+你们两打一架？</blockquote>
+早回过了 全篇瞎扯淡
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Jooohnny|-1||
+
+查看全部评分
+
+*****
+
+####  lzh1993  
+##### 6#         楼主| 发表于 2021-11-27 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718975&amp;ptid=2039606" target="_blank">walfeds 发表于 2021-11-27 10:44</a>
+
+不知道是我以前下的demo太老还是什么原因，这玩意有任何游戏性吗</blockquote>
+单机部分要明年才出 卡牌
+
+*****
+
+####  1a不解释  
+##### 7#       发表于 2021-11-27 10:52
+
+在下了在下了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Jooohnny  
+##### 8#       发表于 2021-11-27 10:56
+
+ 本帖最后由 Jooohnny 于 2021-11-27 11:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">知道为什么做订阅制这么赚了吗，完全没进度狂拖才有人去骂你，有一点进度就有楼主这样的孝子贤孙洗地，直接洗成一个全篇瞎扯淡
+
+看一眼我挂制作组的原帖就知道，几个人狂发discord聊天记录说我造谣，我把patreon的公告原文贴出来就开始装死，属于饭圈那套玩明白了，核心粉一套对外又是一套<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大家都是一个群的好兄弟，怎么会骗人呢
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 战术核辣条| + 1||
+| fuochai| + 2|好评加鹅|
+| liekong| + 1||
+
+查看全部评分
+
+*****
+
+####  swrrt_11  
+##### 9#       发表于 2021-11-27 10:57
+
+不如支持i社呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lzh1993  
+##### 10#         楼主| 发表于 2021-11-27 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719067&amp;ptid=2039606" target="_blank">Jooohnny 发表于 2021-11-27 10:56</a>
+
+知道为什么做订阅制这么赚了吗，完全没进度狂拖才有人去骂你，有一点进度就有楼主这样的孝子贤孙洗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">然而现在35刀就随便玩 都不用抽key 你那贴还不是瞎扯淡
+
+*****
+
+####  461757753  
+##### 11#       发表于 2021-11-27 11:10
+
+所以有没有图
+
+*****
+
+####  アルメリア  
+##### 12#       发表于 2021-11-27 11:24
+
+保护费交了吗
+
+*****
+
+####  天神十三煞  
+##### 13#       发表于 2021-11-27 11:44
+
+就这破玩意儿
+
+还有反作弊
+
+感觉单机模式和上一个发布的版本没多大卵区别
+
+在线模式连半天没反应
+
+*****
+
+####  lzh1993  
+##### 14#         楼主| 发表于 2021-11-27 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719552&amp;ptid=2039606" target="_blank">天神十三煞 发表于 2021-11-27 11:44</a>
+
+就这破玩意儿
+
+还有反作弊
+
+感觉单机模式和上一个发布的版本没多大卵区别</blockquote>
+在线模式没开呢 下周
+
+*****
+
+####  Stellar_Frost  
+##### 15#       发表于 2021-11-27 12:35
+
+君子动手不动口的感觉
+
+*****
+
+####  Tring  
+##### 16#       发表于 2021-11-27 13:00
+
+单机明年出，在线下周开，现在35刀就玩个肉搏？
+
+*****
+
+####  1a不解释  
+##### 17#       发表于 2021-11-27 13:06
+
+ 本帖最后由 1a不解释 于 2021-11-27 13:07 编辑 
+
+看了一下，更新的东西太少了，vr更是完全没看出来哪里更新了，除了一些根本看不到的姿势。不知道这在线模式能有啥新意
+
+*****
+
+####  clstc  
+##### 18#       发表于 2021-11-27 13:12
+
+zod 3d区之前有条版规严禁发布这吊游戏资源，最近这玩意新版本上了，就让人在3d区发了个0.34版，然后还把版规撤了，这吃相有够难看的。
+
+*****
+
+####  lzh1993  
+##### 19#         楼主| 发表于 2021-11-27 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720715&amp;ptid=2039606" target="_blank">clstc 发表于 2021-11-27 13:12</a>
+
+zod 3d区之前有条版规严禁发布这吊游戏资源，最近这玩意新版本上了，就让人在3d区发了个0.34版，然后还把版 ...</blockquote>
+官方发的demo 你在steam也能免费下
+
+*****
+
+####  hyiang98  
+##### 20#       发表于 2021-11-27 13:16
+
+35dollar就这？
+我想起那些用滚5引擎做滚3滚4辐射3重置的组了
+Dollar拿到手，一年两年出一段小视频，就又能混几年日志
+Bethesda还是认真重置一下滚3滚4辐射3好了，别让这种订阅制人把Dollar拿走<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  clstc  
+##### 21#       发表于 2021-11-27 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720729&amp;ptid=2039606" target="_blank">lzh1993 发表于 2021-11-27 13:14</a>
+
+官方发的demo 你在steam也能免费下</blockquote>
+那你官方自己搞个公告或者链接给人免费下呗，找个人在3d区单独发个收酱油的资源帖，这操作什么用心还用说么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 22#       发表于 2021-11-27 13:21
+
+中国人不坑中国人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siebten  
+##### 23#       发表于 2021-11-27 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那上周管steam要的key有没有发给36刀的人啊 还是依旧攥在手里呢
+
+*****
+
+####  naclken.  
+##### 24#       发表于 2021-11-27 14:05
+
+又是锁区
+
+作者千方百计想帮玩家省钱
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  upisud18  
+##### 25#       发表于 2021-11-27 14:10
+
+众筹黄油订阅挤牙膏要饭真是财富密码
+ <blockquote>根据茶馆了解，《Fallen Doll》的团队主要由中国的开发者组成，而这也是我们今天要聊的重点。</blockquote>
+这居然还是个国内开发者组成的团队？
+
+*****
+
+####  luxiaojiaxp  
+##### 26#       发表于 2021-11-27 14:13
+
+ 本帖最后由 luxiaojiaxp 于 2021-11-27 14:15 编辑 
+
+笑死，就这还抢着送钱
+<img src="https://i2.hoopchina.com.cn/hupuapp/bbs/54645001488420/thread_54645001488420_20191124204152_s_985872_o_w_180_h_175_25041.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 9, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Stellar_Frost  
+##### 27#       发表于 2021-11-27 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721388&amp;ptid=2039606" target="_blank">upisud18 发表于 2021-11-27 14:10</a>
+众筹黄油订阅挤牙膏要饭真是财富密码</blockquote>
+是国人团队
+这文月下写的？
+
+*****
+
+####  lzh1993  
+##### 28#         楼主| 发表于 2021-11-27 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721166&amp;ptid=2039606" target="_blank">siebten 发表于 2021-11-27 13:51</a>
+
+那上周管steam要的key有没有发给36刀的人啊 还是依旧攥在手里呢</blockquote>
+上面就说了 都发了
+
+*****
+
+####  upisud18  
+##### 29#       发表于 2021-11-27 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721897&amp;ptid=2039606" target="_blank">Stellar_Frost 发表于 2021-11-27 14:55</a>
+
+是国人团队
+
+这文月下写的？</blockquote>
+应该是吧，毕竟他是茶馆编辑部里ghs相关最资深的一位了
+
+*****
+
+####  fuochai  
+##### 30#       发表于 2021-11-27 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718936&amp;ptid=2039606" target="_blank">supergilaboy 发表于 2021-11-27 10:38</a>
+
+我还以为是新克苏鲁游戏</blockquote>
+看了下steam简介 确实有那方面元素
+
+还以为是love+craft
+
+
+
+*****
+
+####  repal  
+##### 31#       发表于 2021-11-27 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720760&amp;ptid=2039606" target="_blank">hyiang98 发表于 2021-11-27 13:16</a>
+ 35dollar就这？ 我想起那些用滚5引擎做滚3滚4辐射3重置的组了 Dollar拿到手，一年两年出一段小视频，就又能 ...</blockquote>
+这些组敢朝粉丝要刀乐怕不是要被杯赛追着屁股告到底裤赔光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siebten  
+##### 32#       发表于 2021-11-27 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721982&amp;ptid=2039606" target="_blank">lzh1993 发表于 2021-11-27 15:05</a>
+
+上面就说了 都发了</blockquote>
+early access的key吗？还是只能用来内测的key啊
+
+*****
+
+####  rick343  
+##### 33#       发表于 2021-11-27 16:05
+
+ 本帖最后由 rick343 于 2021-11-27 22:26 编辑 
+
+有玩过的说说质量如何吗demo试过了，不如直接下那种视频，还省流量
+
+*****
+
+####  Yinacona  
+##### 34#       发表于 2021-11-27 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">之前那个扫雷贴没太看懂，在这贴看下来更疑惑了。前面说单机部分明年出，然后又说线上模式下周。那现在steam里的的是什么内容啊？
+
+*****
+
+####  lzh1993  
+##### 35#         楼主| 发表于 2021-11-27 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722252&amp;ptid=2039606" target="_blank">siebten 发表于 2021-11-27 15:34</a>
+
+early access的key吗？还是只能用来内测的key啊</blockquote>
+cbt ea要明年4月
+
+*****
+
+####  lzh1993  
+##### 36#         楼主| 发表于 2021-11-27 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722575&amp;ptid=2039606" target="_blank">Yinacona 发表于 2021-11-27 16:06</a>
+
+之前那个扫雷贴没太看懂，在这贴看下来更疑惑了。前面说单机部分明年出，然后又说线上模式下周。那 ...</blockquote>
+目前游戏只有ghs内容 线上也是ghs
+
+*****
+
+####  wolfwood  
+##### 37#       发表于 2021-11-27 16:12
+
+理所当然的锁区了，等一个3DM中国英雄
+
+*****
+
+####  lzh1993  
+##### 38#         楼主| 发表于 2021-11-27 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722622&amp;ptid=2039606" target="_blank">wolfwood 发表于 2021-11-27 16:12</a>
+
+理所当然的锁区了，等一个3DM中国英雄</blockquote>
+做成网游了 别想了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siebten  
+##### 39#       发表于 2021-11-27 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722595&amp;ptid=2039606" target="_blank">lzh1993 发表于 2021-11-27 16:08</a>
+
+cbt ea要明年4月</blockquote>
+也就是虽然承诺过36刀就给游戏 现在制作组手里也有了steam给的ea key 但是还是不能给你们咯<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 毕竟要恰饭的嘛
+
+*****
+
+####  乃木坂裕人  
+##### 40#       发表于 2021-11-27 17:20
+
+下了个试玩版，有点意思，比一路神不知道高到哪里去了
+
+*****
+
+####  ParadiseMartyr  
+##### 41#       发表于 2021-11-27 17:42
+
+我也玩了试玩我感觉搞黄色没illusion有意思啊
+整一堆人外
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  维忧用老  
+##### 42#       发表于 2021-11-27 17:47
+
+这线上模式把我逗乐了真的，还不如直接强制联网
+
+*****
+
+####  dxx9664  
+##### 43#       发表于 2021-11-27 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722575&amp;ptid=2039606" target="_blank">Yinacona 发表于 2021-11-27 16:06</a>
+
+之前那个扫雷贴没太看懂，在这贴看下来更疑惑了。前面说单机部分明年出，然后又说线上模式下周。那 ...</blockquote>
+姿势模拟器，可以选择几个妹子
+
+然后克鲁斯系的怪物
+
+有触手有虫子
+
+背景可以换
+
+*****
+
+####  Kazuhira  
+##### 44#       发表于 2021-11-27 18:09
+
+弔意思没有，不如接着黑楼<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  madcow  
+##### 45#       发表于 2021-11-27 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722662&amp;ptid=2039606" target="_blank">lzh1993 发表于 2021-11-27 16:15</a>
+
+做成网游了 别想了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">网游是什么情况
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是就是需要联网才能玩还是说真就整成网游了？还有那个卡牌战役又是啥，之前看群友吹的神神秘秘的（（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是不是到最后就是还是以之前网上有的BETA版那种为主
+
+*****
+
+####  rsgdn  
+##### 46#       发表于 2021-11-27 18:20
+
+国产游戏常见的开发运营<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+vrchat 开房间 请
+
+*****
+
+####  tency  
+##### 47#       发表于 2021-11-28 09:37
+
+原来这么垃圾的么
+
+*****
+
+####  夏延  
+##### 48#       发表于 2021-11-28 11:08
+
+36刀<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有钱人真多啊
+
+*****
+
+####  Vladimeow  
+##### 49#       发表于 2021-11-28 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就这
+
+*****
+
+####  高龙  
+##### 50#       发表于 2021-11-28 14:17
+
+有什么内容？还是摆姿势和打桩机？没有赛博朋克情色全境封锁第三人称射击之类的额外要素？说真的，几个人用现成素材蹿一关射击关卡什么的也能悠很多粉了。结果完全没有？
+
+*****
+
+####  zhhy  
+##### 51#       发表于 2021-11-28 14:45
+
+无端联想，照这个制作组的架势是不是会有给干活的核心粉发key这种情况
+
+*****
+
+####  lzh1993  
+##### 52#         楼主| 发表于 2021-11-28 16:18
+
+<blockquote>高龙 发表于 2021-11-28 14:17
+有什么内容？还是摆姿势和打桩机？没有赛博朋克情色全境封锁第三人称射击之类的额外要素？说真的，几个人用 ...</blockquote>
+战旗 类似itb
+
+*****
+
+####  lzh1993  
+##### 53#         楼主| 发表于 2021-11-28 17:28
+
+demo版马上解锁所有内容了
+
+*****
+
+####  sword混沌  
+##### 54#       发表于 2021-11-28 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734058&amp;ptid=2039606" target="_blank">lzh1993 发表于 2021-11-28 17:28</a>
+demo版马上解锁所有内容了</blockquote>
+demo能玩后宫模式嘛
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lzh1993  
+##### 55#         楼主| 发表于 2021-11-28 17:36
+
+<blockquote>sword混沌 发表于 2021-11-28 17:31
+demo能玩后宫模式嘛
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+明显不能
+
+*****
+
+####  茛菪  
+##### 56#       发表于 2021-11-28 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720760&amp;ptid=2039606" target="_blank">hyiang98 发表于 2021-11-27 13:16</a>
+
+35dollar就这？
+
+我想起那些用滚5引擎做滚3滚4辐射3重置的组了
+
+Dollar拿到手，一年两年出一段小视频，就又能 ...</blockquote>
+这些项目普遍是没有拿钱的。一个是怕杯赛的铁拳，二是这些项目组织上普遍要靠大量不同领域的志愿者合作，有了钱怎么分是地狱难度的问题。参与这些项目的人不是为了钱而是为了积累经验+刷简历
+
+*****
+
+####  lancer48  
+##### 57#       发表于 2021-11-28 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">36刀确实贵，以前订阅的用户好像每个月能拿几件衣服，现在demo就是个拨片器，等两天以后看看key发下来一下是什么情况吧
+
+*****
+
+####  lzh1993  
+##### 58#         楼主| 发表于 2021-11-28 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53736703&amp;ptid=2039606" target="_blank">lancer48 发表于 2021-11-28 21:13</a>
+
+36刀确实贵，以前订阅的用户好像每个月能拿几件衣服，现在demo就是个拨片器，等两天以后看看key发下 ...</blockquote>
+36还会送一年季票 
+
+*****
+
+####  newtypefans  
+##### 59#       发表于 2021-11-28 21:54
+
+36刀的是EA不是close beta
+
+An accumulative $36+(USD) pledge will get you the full uncensored game after the development is completed
+
+(You will receive the steam key once the game enters early access) 
+
+这是原话,一堆人连36刀能玩上什么都搞不清楚就在这里喷,我是真的服了
+
+*****
+
+####  lzh1993  
+##### 60#         楼主| 发表于 2021-11-28 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53737204&amp;ptid=2039606" target="_blank">newtypefans 发表于 2021-11-28 21:54</a>
+
+36刀的是EA不是close beta
+
+An accumulative $36+(USD) pledge will get you the full uncensored game afte ...</blockquote>
+现在cbt也能玩了 等48小时发key
+
+
+
+*****
+
+####  tansapple  
+##### 61#       发表于 2021-11-28 22:44
+
+难为楼主还在洗，不知道是交了35美刀的还是交了95美刀的，反正谁相信这骗子要饭组谁傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
