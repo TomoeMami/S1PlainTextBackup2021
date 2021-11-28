@@ -7593,3 +7593,51 @@ omg，深圳官方通报，新增两个南非来的，不知道是不是变异�
 我国这套才是标准而 ...</blockquote>
 虽然土，但管用
 
+
+
+*****
+
+####  eezhangjie  
+##### 694#       发表于 2021-11-28 11:28
+
+<blockquote>ysys 发表于 2021-11-28 11:09
+好像就不是南非先查出来的……流出到国外测出来才反推回南非</blockquote>
+南非科学家发现的
+
+*****
+
+####  藤岛鸣海  
+##### 695#       发表于 2021-11-28 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730428&amp;ptid=2039422" target="_blank">Wcy 发表于 2021-11-28 11:06</a>
+我还计划圣诞节去法国中欧旅行呢，什么都订好了，我倒不是很怕病毒，但不要封锁啊。 ...</blockquote>
+怕什么，大不了一条命而已。接着游，接着浪。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  最好不说  
+##### 696#       发表于 2021-11-28 11:37
+
+拍老师说英国发现的两例Omicron，在演化树上的位置，跟其他地区的境外输入Omicron都不大一样。
+
+所以omicron可能已经在英国独立演化一段时间了，你以为非洲是最大输出端，其实是我带英哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bartholo4  
+##### 697#       发表于 2021-11-28 11:39
+
+出国生命健康危险对个人来说其实不大
+主要是时间成本，圣诞出去玩一圈，怕是春节都还在居家隔离<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 4 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  蔵女  
+##### 698#       发表于 2021-11-28 11:46
+
+r0是delta的5倍的话，那岂不是到30了？
+
