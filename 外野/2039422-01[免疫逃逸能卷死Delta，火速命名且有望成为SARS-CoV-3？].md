@@ -7333,3 +7333,37 @@ B.1.1再烂，也是新冠，现在有个似乎传染力比delta厉害的变异�
 互害的地狱
 有内味了
 
+
+
+*****
+
+####  亚尔迪8424  
+##### 668#       发表于 2021-11-28 08:32
+
+LeBonHomme 
+
+今天 01:38 来自 HUAWEI Mate 30 已编辑
+
+大概扫了一眼，omicron的突变有几处确实和计算模拟出来理论上与ACE2受体亲和能力最强突变不谋而合。对模拟预测感兴趣的可以阅读这篇文献：O网页链接
+
+看这情况，我来个暴论好了，新冠还在朝着理论上更强的方向进化[吃瓜]
+
+Omicron的出现基本上推翻了之前认为delta会是新冠最后一个危险变种的说法。
+
+巴斯德大佬的最新预测。
+
+另外，我的个人意见：认为死亡率低的，是因为我D 我政府把你保护的太好了。
+
+*****
+
+####  飞侠小黑  
+##### 669#       发表于 2021-11-28 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727670&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-27 23:02</a>
+B.1.1.529顾名思义前置是B.1.1，而B.1.1在测序记录中消失很久了。
+
+所以这就是一个在艾滋病人体内残存大半 ...</blockquote>
+omicron在南非都要把delta卷死一统天下了，你还觉得它野路子不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
