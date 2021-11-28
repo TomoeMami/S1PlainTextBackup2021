@@ -9689,3 +9689,39 @@ image.png
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  路人庚  
+##### 5615#       发表于 2021-11-28 22:26
+
+ 本帖最后由 路人庚 于 2021-11-28 22:42 编辑 
+
+大概半小时内会出现（
+
+*****
+
+####  追风小星星  
+##### 5616#       发表于 2021-11-28 22:35
+
+ 本帖最后由 追风小星星 于 2021-11-28 22:40 编辑 
+
+快了
+
+*****
+
+####  十九号大侠  
+##### 5617#       发表于 2021-11-28 22:39
+
+那不是要12点以后去了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  雪风utopia  
+##### 5618#       发表于 2021-11-28 22:45
+
+等麻麻，麻麻来了再看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

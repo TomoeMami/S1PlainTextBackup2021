@@ -1386,3 +1386,20 @@ booster我是不想去打了
 
 现在起了之后感觉还是有点热度？但是头不晕也不疼，这点比第二针好多了。估计下午就能恢复正常<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烦死了  
+##### 137#         楼主| 发表于 2021-11-28 22:28
+
+混打小白鼠来报
+
+前二针moderna， booster 辉瑞bnt
+
+经过了moderna 三倍剂量的洗礼，对辉瑞一倍已经毫无感觉，肌肉酸疼程度甚至不如第一针的moderna， 更没有什么发烧头疼， 就是则效果不知道怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+副反应烈度排序：
+
+moderna 第二针&gt;&gt;&gt; moderna 第一针&gt;flu shot&gt; 辉瑞booster
+
