@@ -16138,3 +16138,46 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
  ...</blockquote>
 开局空投的位置好像会比较固定，只是车是随机的，可以记住一两个位置每次都选那
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1463#       发表于 2021-11-28 11:49
+
+有什么可以方便的车库查重的方法么，重复的太多了
+
+*****
+
+####  诶哟卧草  
+##### 1464#       发表于 2021-11-28 11:55
+
+车辆收集就差大众beetle 1963，这个怎么获取？
+
+*****
+
+####  鹿斗典善  
+##### 1465#       发表于 2021-11-28 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730919&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-28 11:55</a>
+
+车辆收集就差大众beetle 1963，这个怎么获取？</blockquote>
+FH3到现在也只能手动筛选重复车，PG先死个妈
+
+vocho任务倒数第二关就送甲虫了
+
+*****
+
+####  诶哟卧草  
+##### 1466#       发表于 2021-11-28 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730983&amp;ptid=2033303" target="_blank">鹿斗典善 发表于 2021-11-28 12:02</a>
+
+FH3到现在也只能手动筛选重复车，PG先死个妈
+
+vocho任务倒数第二关就送甲虫了</blockquote>
+好吧，原来是feature
+<[img src="https://i.loli.net/2021/11/28/8zENCQd7cue4XyS.jpg" referrerpolicy="no-referrer">
+
+这破游戏bug太多，有中生无，愣是说我没有这车
+
