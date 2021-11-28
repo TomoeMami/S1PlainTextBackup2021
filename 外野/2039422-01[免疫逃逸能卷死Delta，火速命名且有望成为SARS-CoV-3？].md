@@ -7944,3 +7944,15 @@ double v这个我知道，学英语的时候老师教过，但o-mega和o-micron�
 
 P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了,那等于直接废掉了已有的全部单抗药物.
 
+
+
+*****
+
+####  朋友  
+##### 728#       发表于 2021-11-28 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53732305&amp;ptid=2039422" target="_blank">kingjob 发表于 2021-11-28 14:05</a>
+
+血清分型对于免疫的意义是什么？网上查不到啊</blockquote>
+抗体效力下降，但不管怎么变大家会死咬住尽管不能预防感染，但可以防重症这一说，以此来给不愿担责任又想假装防疫的监管部门洗地。说的就是你FDA。
+
