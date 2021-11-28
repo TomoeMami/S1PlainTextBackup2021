@@ -13963,3 +13963,21 @@ Part 1
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  jf8350143  
+##### 2801#       发表于 2021-11-28 08:51
+
+ 本帖最后由 jf8350143 于 2021-11-28 08:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727754&amp;ptid=2002246" target="_blank">Redis 发表于 2021-11-27 23:08</a>
+还需要橱柜么
+
+这也太明显了</blockquote>
+明显归明显，只要没有实锤就会有一堆人拒绝承认，米帝这方面挺保守的。尤其是动画还是游戏里剧情之前，而游戏里俩人还没有明确在一起。
+
+不过第二季要后年，到时候游戏里同步出柜也不是不可能……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
