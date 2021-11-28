@@ -8084,3 +8084,15 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 
 —— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  creymorgan  
+##### 743#       发表于 2021-11-28 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734853&amp;ptid=2039422" target="_blank">Kirixima 发表于 2021-11-28 19:05</a>
+
+其实我现在最怕的是，虽然国内目前来说只是零星散发，即使出了什么乱子（前几波），也能飞快控制住（也可能 ...</blockquote>
+1918的疫情直接导致德国续战无力停止了对抗，你真担心三战应该担心疫情结束，到时候高额的债务在加息后无法兑现比疫情本身更有可能引发危机。
+

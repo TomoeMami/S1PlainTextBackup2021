@@ -14966,3 +14966,14 @@ ANYCOLOR更新了媒体材料，但是好像除了把にじさんじ甲⼦園(20
 [にじさんじ_媒体資料_211125.pdf](https://files.microcms-assets.io/assets/5694fd90407444338a64d654e407cc0e/00f4cc7229e74ce8857f2d37827a06d1/%E3%81%AB%E3%81%97%E3%82%99%E3%81%95%E3%82%93%E3%81%97%E3%82%99_%E5%AA%92%E4%BD%93%E8%B3%87%E6%96%99_211125.pdf)
 <img src="https://p.sda1.dev/3/9df481be1e3deed3b0677d7db8c716e3/PM_6HP_AK2`GRR718Y__93Y.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 8646#       发表于 2021-11-28 19:11
+
+ 本帖最后由 FCCHua 于 2021-11-28 19:15 编辑 
+
+bora最后还是赶上了啊，谢谢你，艺人旅团<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
