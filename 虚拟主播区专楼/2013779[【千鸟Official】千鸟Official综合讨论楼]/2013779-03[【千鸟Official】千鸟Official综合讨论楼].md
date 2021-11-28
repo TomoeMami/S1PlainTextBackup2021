@@ -1292,3 +1292,195 @@ nga专楼都有路人去楼里问鸟p咋回事了，给我整不会了
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  星街こうせい  
+##### 3136#       发表于 2021-11-29 00:45
+
+又开始透底了，真不怕被开啊
+
+*****
+
+####  tankai  
+##### 3137#       发表于 2021-11-29 00:46
+
+文静第一 友好第二，
+
+<img src="https://img.saraba1st.com/forum/202111/29/004540fh63tkrhf3xtp4bn.jpg" referrerpolicy="no-referrer">
+
+<strong>阿里旺旺图片20211129004523.jpg</strong> (153.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 00:45 上传
+
+*****
+
+####  星街こうせい  
+##### 3138#       发表于 2021-11-29 00:47
+
+有事陈珺背锅，没事陈珺躺枪，文静，你好狠的心！
+
+*****
+
+####  雨井绫  
+##### 3139#       发表于 2021-11-29 00:48
+
+文静还真亲自去找过其他公司拉投资啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 3140#       发表于 2021-11-29 00:49
+
+这下枕营业都是真的了。
+
+*****
+
+####  星街こうせい  
+##### 3141#       发表于 2021-11-29 00:50
+
+不是什么半泽直树，你也太能编了8
+
+*****
+
+####  gawain039  
+##### 3142#       发表于 2021-11-29 00:50
+
+文静单刀闯原力！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  星街こうせい  
+##### 3143#       发表于 2021-11-29 00:51
+
+U1S1，有丶假
+
+*****
+
+####  haruhiismer  
+##### 3144#       发表于 2021-11-29 00:51
+
+什么关羽
+
+*****
+
+####  四叶的花  
+##### 3145#       发表于 2021-11-29 00:51
+
+单刀赴会
+
+*****
+
+####  gawain039  
+##### 3146#       发表于 2021-11-29 00:52
+
+只要她今晚能把这个故事讲圆，我也服了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gawain039  
+##### 3147#       发表于 2021-11-29 00:52
+
+珺神噶了，但是还在对接工作中
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  李可  
+##### 3148#       发表于 2021-11-29 00:54
+
+静 我的静<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  七夜美琴  
+##### 3149#       发表于 2021-11-29 00:55
+
+10页ppt太热血了。
+看着另外4个队友天天他妈的摆烂放映室，我为文静感到不值。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  四叶的花  
+##### 3150#       发表于 2021-11-29 00:56
+
+回旋!回旋!
+
+
+
+*****
+
+####  星街こうせい  
+##### 3151#       发表于 2021-11-29 00:56
+
+我要在我最漂亮的时候自杀--文静
+
+*****
+
+####  魔法少女大头  
+##### 3152#       发表于 2021-11-29 00:57
+
+怎么连隔壁鲨鱼的牌组也要抄啊
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  tn_teana  
+##### 3153#       发表于 2021-11-29 00:57
+
+今天给大家讲静将军千里走单骑，过五关斩六将，挽狂澜于既倒，救大厦于将倾的故事
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 3154#       发表于 2021-11-29 00:57
+
+静来承担，静来承认
+
+*****
+
+####  莫洛骑士  
+##### 3155#       发表于 2021-11-29 00:58
+
+挽狂澜于既倒，扶千鸟之将倾
+
+文静一直在赢，文在赢！
+
+*****
+
+####  gawain039  
+##### 3156#       发表于 2021-11-29 00:59
+
+肚子和嘴开刀了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T型钉宫病毒  
+##### 3157#       发表于 2021-11-29 01:00
+
+甲鱼汤是什么梗
+
+*****
+
+####  tankai  
+##### 3158#       发表于 2021-11-29 01:00
+
+什么剖腹产？
+
