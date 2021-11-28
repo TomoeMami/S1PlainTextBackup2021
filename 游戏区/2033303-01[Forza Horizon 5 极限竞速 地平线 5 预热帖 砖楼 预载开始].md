@@ -16211,3 +16211,12 @@ pg这也太摆烂了，今天闲着没事清点下车库，发现百年牛的后
 这游戏能治好成就强迫症的话也算是功德无量了</blockquote>
 我觉得还是MCC比较合适一点，700个又多又臭的成就，不知道什么人能有兴趣做。
 
+
+
+*****
+
+####  aaronluray  
+##### 1470#       发表于 2021-11-28 15:11
+
+arcade排到了一群人，很快就做完了，一切都是这么美好，直到我卡在了结算界面只能强退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
