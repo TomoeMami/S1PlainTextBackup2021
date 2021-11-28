@@ -11668,3 +11668,15 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 2021-11-28 21:35 上传
 
+
+
+*****
+
+####  最强惠酱  
+##### 2366#       发表于 2021-11-28 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53736961&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-11-28 21:35</a></blockquote>
+都选！都选！
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

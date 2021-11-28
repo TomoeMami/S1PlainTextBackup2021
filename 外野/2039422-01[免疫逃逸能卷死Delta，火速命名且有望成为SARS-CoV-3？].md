@@ -8223,3 +8223,36 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 Nu和new的发音像，ξ是为尊者（凯撒)讳</blockquote>
 看来没法看到玩 “牛科罗娜不是伊达” 的梗了
 
+
+
+*****
+
+####  pushare  
+##### 756#       发表于 2021-11-28 21:48
+
+已经是旧闻了吧
+
+Israel reports 4 new suspected Omicron cases, including 3 people with no travel history 
+
+*****
+
+####  走在路上  
+##### 757#       发表于 2021-11-28 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734853&amp;ptid=2039422" target="_blank">Kirixima 发表于 2021-11-28 19:05:36</a>
+其实我现在最怕的是，虽然国内目前来说只是零星散发，即使出了什么乱子（前几波），也能飞快控制住（也可能 ...</blockquote>张嘴就来也要有个限度，几百年？给你算少点按300年吧，公元1721年，康熙六十年，你确定你知道那会儿普通老百姓过的什么日子？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  坚果大爷  
+##### 758#       发表于 2021-11-28 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731934&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-28 13:24</a>
+
+南非医生说omicron只导致轻微症状那条新闻果然有问题，根据BNO NEWS报道，Coetzee原本说的是在小部分健康年 ...</blockquote>
+专家：FUCK YOU
+
+媒体：记者惨遭**
+

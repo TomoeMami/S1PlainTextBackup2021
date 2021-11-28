@@ -8637,3 +8637,15 @@ king和queen的强度 不愧是大看板
 大哥，古代国王全是外星人？</blockquote>
 不好说。很多有关联的细节。艾尼路的扉页故事最后是有古代遗迹的。
 
+
+
+*****
+
+####  若槻镜  
+##### 56174#       发表于 2021-11-28 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53723571&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-11-27 17:43</a>
+
+艾尼路的名字来源是“能量”（エネルギー），有坛友求证一下吗？</blockquote>
+尾田有在SBS里说过，是的。
+
