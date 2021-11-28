@@ -15094,3 +15094,26 @@ uta部这次大概率是真没了，虽然是歌势组合不过也没啥资源�
 是自动的吧，郡郡和老板娘都用过，分免费版和付费版，准确度还挺高，但语速快了就无了（所以郡买来根本用 ...</blockquote>
 刚才已经完全驴唇不对马嘴了，翻译速度是不是受限于pc性能
 
+
+
+*****
+
+####  rzrbtk  
+##### 8659#       发表于 2021-11-28 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738209&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-11-28 23:26</a>
+
+刚才已经完全驴唇不对马嘴了，翻译速度是不是受限于pc性能</blockquote>
+莫非不是同一个...？我觉得还蛮可以的，有时候看老板娘直播会觉得“这都给你翻出来了”的程度（原神档[https://www.youtube.com/watch?v=aKoQk-_JjSM](https://www.youtube.com/watch?v=aKoQk-_JjSM)），虽然偶尔是会有错句
+
+*****
+
+####  poipanchao  
+##### 8660#       发表于 2021-11-28 23:55
+
+bora最后的旅团赛很有趣
+
+算是一个收尾了
+
+希望还能再见吧
+

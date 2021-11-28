@@ -16280,3 +16280,35 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 进去登录，然后在抬头的community-FH5 Gallary里
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 1476#       发表于 2021-11-28 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738116&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-28 23:18</a>
+花了一个上午把广告牌跟全部道路做了，接下来佛系玩了</blockquote>
+我把全部道路跑了为啥没显示完全全部的广告牌。
+
+—— 来自 samsung SM-T865N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  再买自检星剁手  
+##### 1477#       发表于 2021-11-28 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738454&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-28 23:51</a>
+
+我把全部道路跑了为啥没显示完全全部的广告牌。
+
+—— 来自 samsung SM-T865N, Android 11上的 S1Next-鹅 ...</blockquote>
+有的广告牌不在路边啊，要做故事任务等路线才被发现（指做这些任务的时候你才经过这些地方）
+
+*****
+
+####  再买自检星剁手  
+##### 1478#       发表于 2021-11-28 23:55
+
+“上传干净利落成绩”跑劲敌可比干弱智ai有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

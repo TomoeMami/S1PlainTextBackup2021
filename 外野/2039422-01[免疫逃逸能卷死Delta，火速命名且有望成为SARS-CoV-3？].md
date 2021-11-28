@@ -8277,3 +8277,19 @@ Israel reports 4 new suspected Omicron cases, including 3 people with no travel 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大英？看看英超观众席，场场爆满
 
+
+
+*****
+
+####  ch23  
+##### 761#       发表于 2021-11-28 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734492&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-28 18:22</a>
+
+澳大利亚新增两例omicron确诊，目前全世界确诊115例，疑似1073例，顺便放个BNONEWS做的omicron感染情况统计 ...</blockquote>
+这里说香港确认了两个
+
+看今天新闻，今天多了一个境外输入确诊N501Y变异病毒株的，再看看是非洲来的，基本上就是第三例omicron了吧
+
+香港这种奇葩的分法<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

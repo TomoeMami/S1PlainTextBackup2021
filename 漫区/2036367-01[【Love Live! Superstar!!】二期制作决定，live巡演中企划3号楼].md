@@ -14578,3 +14578,59 @@ pay子下午发返图了
 
 希望不会把我识别成抽奖号，因为我一条动态也没发过（）
 
+
+
+*****
+
+####  chenflyyy  
+##### 1302#       发表于 2021-11-28 23:47
+
+刚转了，快30了，楼里没见这么多人过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 1303#       发表于 2021-11-28 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738354&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-11-28 23:41</a>
+
+这可恋曲油管跟b站双爆啊~</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这最高和最低就差了5k也能叫爆吗
+
+*****
+
+####  中野四葉  
+##### 1304#       发表于 2021-11-28 23:49
+
+<img src="https://img.saraba1st.com/forum/202111/28/234847zh8gj0gd7bzpg74g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-28 23:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">可可这身衣服真色啊
+
+*****
+
+####  中野四葉  
+##### 1305#       发表于 2021-11-28 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738406&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-11-28 23:47</a>
+
+刚转了，快30了，楼里没见这么多人过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">nga挺多视奸你楼的……不过两边的楼重合度本来就挺高
+
+*****
+
+####  kata魂  
+##### 1306#       发表于 2021-11-28 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738423&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-11-28 23:48</a>
+
+这最高和最低就差了5k也能叫爆吗</blockquote>
+油管的数据哪有那么好拉开，不如说现在星团粉丝量也没膨胀到可以倍差。只是作为动画里啥都没描述的双人曲却能做到这么多播放量就很不容易了。
+
+点进去详细的播放量和点赞差也是可恋双人最高
+
