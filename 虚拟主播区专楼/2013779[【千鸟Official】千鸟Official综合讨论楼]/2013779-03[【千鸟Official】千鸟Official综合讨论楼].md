@@ -794,3 +794,22 @@ nga专楼都有路人去楼里问鸟p咋回事了，给我整不会了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  GAKOTO  
+##### 3077#         楼主| 发表于 2021-11-28 17:53
+
+ 本帖最后由 GAKOTO 于 2021-11-28 17:57 编辑 
+
+流心退了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">【千鸟开播一周年纪念-哔哩哔哩】https://b23.tv/GKt2Fif
+千鸟录播也停了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 3078#       发表于 2021-11-28 17:56
+
+文静是谁，真不熟✋，谁稀罕看你直播啊，今晚上也不会去京晚上看你唱歌的
+
