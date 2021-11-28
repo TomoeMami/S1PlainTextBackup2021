@@ -7405,3 +7405,17 @@ omicron在南非都要把delta卷死一统天下了，你还觉得它野路子�
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  回忆and无语  
+##### 674#       发表于 2021-11-28 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729762&amp;ptid=2039422" target="_blank">咸鱼咸又咸 发表于 2021-11-28 09:23</a>
+
+“新冠病毒新型变异毒株 Omicron 目前只导致轻度不适，如轻度肌肉酸痛和容易疲劳，并没有明显症状。” — ...</blockquote>
+不见得 <blockquote>　被“德尔塔”毒株感染后，患者体内的病毒载量会比较高。在此前的广州疫情中，患者发病以后转为重型、危重型的比例比以往高，而且转为重型、危重型的时间提前。患者的CT值非常低，CT值越低就表示体内病毒载量越高，患者核酸转阴所需要的时间延长。</blockquote>
+
+[“德尔塔”毒株有多“凶”？如何防范？权威解答来了](https://www.hunan.gov.cn/topic/fkxxgzbd/bdfkyfzs/202107/t20210730_20023743.html)
+
