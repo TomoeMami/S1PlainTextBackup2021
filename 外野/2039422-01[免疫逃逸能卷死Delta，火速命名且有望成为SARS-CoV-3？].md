@@ -8293,3 +8293,17 @@ Israel reports 4 new suspected Omicron cases, including 3 people with no travel 
 
 香港这种奇葩的分法<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 762#       发表于 2021-11-29 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738486&amp;ptid=2039422" target="_blank">ch23 发表于 2021-11-28 23:54</a>
+
+这里说香港确认了两个
+
+看今天新闻，今天多了一个境外输入确诊N501Y变异病毒株的，再看看是非洲来的，基本 ...</blockquote>
+香港卫生署是这样的，坚持用刺突蛋白特征突变来指代整个毒株，WHO用希腊字母代称好歹还知道哪个是哪个，光说N501Y突变鬼知道到底是哪种
+
