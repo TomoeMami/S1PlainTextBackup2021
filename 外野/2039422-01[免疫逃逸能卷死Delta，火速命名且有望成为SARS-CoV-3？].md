@@ -8336,3 +8336,24 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 
 虽然带英声称把航线给断了但我坚定地相信马上又会爆发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Khvarenah  
+##### 766#       发表于 2021-11-29 02:11
+
+<img src="https://p.sda1.dev/3/c334818c6d7e958cd1b6e3322fed9126/0ec8d7df50a3c256a5b3fc0b50367c13.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/9a6ab94115f11f73303b799ff87e635a/IMG_CMP_266062036.jpeg" referrerpolicy="no-referrer">
+目前已经发现病例的地方
+
+*****
+
+####  ak123  
+##### 767#       发表于 2021-11-29 05:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739632&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-11-29 02:11</a>
+
+目前已经发现病例的地方</blockquote>
+欧洲完蛋喽，米国阿三这种经常和欧洲交流的地方显然也在隐性爆炸中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

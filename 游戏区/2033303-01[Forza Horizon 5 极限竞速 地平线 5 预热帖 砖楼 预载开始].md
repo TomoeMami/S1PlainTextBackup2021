@@ -16328,3 +16328,23 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 反正我是氪地图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 十几块钱送给pg了
 
+
+
+*****
+
+####  liyropen  
+##### 1480#       发表于 2021-11-29 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738496&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-28 23:55</a>
+“上传干净利落成绩”跑劲敌可比干弱智ai有意思多了</blockquote>
+赛车游戏的终点皆是跑圈<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  cscnake  
+##### 1481#       发表于 2021-11-29 05:48
+
+请问冬季的锦标赛一直完成不了怎么办？车是符合要求的，也试过每场都跑了第一，但就是不结算。。。3个锦标赛都是这样。。。来自: iPhone客户端
+
