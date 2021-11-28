@@ -13938,3 +13938,28 @@ Part 1
 
 这也太明显了
 
+
+
+*****
+
+####  新的起源  
+##### 2800#       发表于 2021-11-28 08:21
+
+不知道有没有人玩新出的破败王游戏
+
+里面完善几个英雄的细节
+
+俄洛伊没有想像中那么坚强，一直在是否要怀疑自己神之间挣扎。
+
+布隆顶级情商，团队润滑剂，谁都喜欢布隆，俄洛伊几次想睡他，但都被布隆鸽了
+
+亚索还是装逼男，撩了几个妹子，跟阿狸互动很多，还要去诺克萨斯救锐雯，但是破败王大事件完全没戏份就很草
+
+阿狸死过老公所以对其它人疏远，赏金很讨厌阿狸<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+赏金剧情最丰富，团队领导女强人，很难想像她后面会投靠小丑王这个手下败将
+
+派克支线没做<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
