@@ -16312,3 +16312,19 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 “上传干净利落成绩”跑劲敌可比干弱智ai有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bad_alloc  
+##### 1479#       发表于 2021-11-29 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738454&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-28 23:51</a>
+
+我把全部道路跑了为啥没显示完全全部的广告牌。
+
+—— 来自 samsung SM-T865N, Android 11上的 S1Next-鹅 ...</blockquote>
+你找下全广告牌的截图吧，有挺多广告牌不在路边的
+
+反正我是氪地图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 十几块钱送给pg了
+
