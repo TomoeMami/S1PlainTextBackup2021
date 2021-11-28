@@ -7428,3 +7428,39 @@ omicron在南非都要把delta卷死一统天下了，你还觉得它野路子�
 
 我在想一件事，这次南非上报后喜提负面经济大礼包一条龙，因此官员都骂娘来着，这样多来几次大礼包后 对第三世界新变种上报等积极性的影响有多少？
 
+
+
+*****
+
+####  Zinccc  
+##### 676#       发表于 2021-11-28 10:12
+
+还以为是牛高达或者柯西高达，结果命名成这个字母了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一时没想到这个omicron长什么样，因为好像这个字母一般都直接读成英文O了，比如算法复杂度里
+
+*****
+
+####  斯皮内西  
+##### 677#       发表于 2021-11-28 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729762&amp;ptid=2039422" target="_blank">咸鱼咸又咸 发表于 2021-11-28 09:23</a>
+“新冠病毒新型变异毒株 Omicron 目前只导致轻度不适，如轻度肌肉酸痛和容易疲劳，并没有明显症状。” — ...</blockquote>
+这个是标准的wishful thinking了。delta比武汉株的重症率和致死率都高。
+
+“病毒传播性高了致死率就会低”这种自我安慰的理论也不知道为什么这么多人信。病毒的基因突变是完全没有方向的。
+
+*****
+
+####  yario  
+##### 678#       发表于 2021-11-28 10:19
+
+<blockquote>克鲁特尼 发表于 2021-11-28 08:54
+现在就怕这个欧米克戎和德尔塔“强强联合”，能同时得</blockquote>
+武汉爆发的新冠，也能和流感一起得
+
+*****
+
+####  L.L  
+##### 679#       发表于 2021-11-28 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">别自我安慰了，以色列封国了，他们获得的数据肯定比我们普通老百姓不知道高多少了。
+

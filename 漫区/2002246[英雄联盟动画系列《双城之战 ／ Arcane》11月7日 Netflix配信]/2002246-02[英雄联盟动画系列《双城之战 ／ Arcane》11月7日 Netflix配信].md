@@ -13990,3 +13990,15 @@ Part 1
 
 别搞了，76橱柜PTSD了
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2803#       发表于 2021-11-28 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729931&amp;ptid=2002246" target="_blank">qingshuihe 发表于 2021-11-28 09:55</a>
+
+别搞了，76橱柜PTSD了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得OW的问题是喜欢配给路人。。。
+
