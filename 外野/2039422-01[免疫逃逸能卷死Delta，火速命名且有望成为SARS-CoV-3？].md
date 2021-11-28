@@ -7464,3 +7464,49 @@ omicron在南非都要把delta卷死一统天下了，你还觉得它野路子�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">别自我安慰了，以色列封国了，他们获得的数据肯定比我们普通老百姓不知道高多少了。
 
+
+
+*****
+
+####  ひびき  
+##### 680#       发表于 2021-11-28 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729762&amp;ptid=2039422" target="_blank"> 咸鱼咸又咸 发表于 2021-11-28 09:23</a> 引用:klmmmx 发表于 2021-11-28 08:45 这个杀伤力如何… “新冠病毒新型变异毒株 Omicron 目前只导致轻度不适，如轻度肌肉酸痛和容易疲劳，并没有明显症状。” —— 南非医学会**。 传染性强，重症，致死率很大概率会低。 德尔塔比最早得新冠致死率也是更低吧  —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 S1N </blockquote>
+德尔塔比原版强，看起来比原版弱是因为大部分国家不是得过原版就打了疫苗来自: iPhone客户端
+
+*****
+
+####  riczxc  
+##### 681#         楼主| 发表于 2021-11-28 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730046&amp;ptid=2039422" target="_blank">Zinccc 发表于 2021-11-28 10:12</a>
+还以为是牛高达或者柯西高达，结果命名成这个字母了一时没想到这个omicron长什么样，因为好像这个字 ...</blockquote>
+
+其实早应该想到了，毕竟有Ω复杂度
+
+*****
+
+####  9090asd  
+##### 682#       发表于 2021-11-28 10:33
+
+以色列这个封国十四天意义不大啊
+
+*****
+
+####  g54088  
+##### 683#       发表于 2021-11-28 10:35
+
+以色列是先锁国看看其他国家情况吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ひびき  
+##### 684#       发表于 2021-11-28 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725963&amp;ptid=2039422" target="_blank"> riczxc 发表于 2021-11-27 21:02</a> 引用:configxxxx 发表于 2021-11-27 20:40 是的，国外这些政客从一开始就知道应该怎么做，但是也从一开始就知道做不到，所以之后的种种行为都只不过是 ... 不是的。你这么说简单了。传染病学的主流方法是那套flatten the curve然后（用疫苗）群体免疫，中国这套动态清零不是主流意见，所以被嘲笑为中世纪方法。   当然，到了2020年5月还看不出的政客应该不多了。但是 </blockquote>
+所谓的“传染病学的主流方法压平曲线”怕是被资本主义利益集团收买的应声虫献的方法
+
+我国这套才是标准而经典的“消灭传染源、切断传播途径、保护易感人群”的传染病控制方法来自: iPhone客户端
+

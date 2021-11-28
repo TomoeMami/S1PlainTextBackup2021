@@ -14002,3 +14002,15 @@ Part 1
 别搞了，76橱柜PTSD了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得OW的问题是喜欢配给路人。。。
 
+
+
+*****
+
+####  qingshuihe  
+##### 2804#       发表于 2021-11-28 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730034&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-11-28 10:10</a>
+
+我觉得OW的问题是喜欢配给路人。。。</blockquote>
+留点想象空间对谁都好，万一以后真能清算zzzq，也没给人把柄嘛
+
