@@ -7773,3 +7773,68 @@ r0是delta的5倍的话，那岂不是到30了？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  KOGmk2  
+##### 713#       发表于 2021-11-28 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731077&amp;ptid=2039422" target="_blank">砥草 发表于 2021-11-28 12:10</a>
+
+也是……
+
+指望他们能严格抗疫，还不如指望上帝派几个天使下来正面肛四骑士。 ...</blockquote>
+天使全部加入了党支部
+
+*****
+
+####  KOGmk2  
+##### 714#       发表于 2021-11-28 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731439&amp;ptid=2039422" target="_blank">takami 发表于 2021-11-28 12:39</a>
+
+只有我想知道为什么跳过牛和柯西吗？
+
+为了不影响卖胶，大b使了钱？</blockquote>
+Nu容易让只会听音不会写字的人以为是个新病毒来了,Kexi的英文转写是Xi,容易引发关键词系统的反应
+
+*****
+
+####  cube  
+##### 715#       发表于 2021-11-28 12:50
+
+因为疫情已经耽误了俩课题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，啥时候是个头。
+
+*****
+
+####  schneehertz  
+##### 716#       发表于 2021-11-28 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705589&amp;ptid=2039422" target="_blank">mirrorside 发表于 2021-11-26 09:15</a>
+
+讲真，看欧美国家新冠疫情稍微下去点就开躺，还嘲笑别的不躺的国家，结果躺出个新boss又怂了开始做仰卧起坐 ...</blockquote>
+求个头像出处
+
+*****
+
+####  takami  
+##### 717#       发表于 2021-11-28 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731542&amp;ptid=2039422" target="_blank">KOGmk2 发表于 2021-11-28 12:47</a>
+
+Nu容易让只会听音不会写字的人以为是个新病毒来了,Kexi的英文转写是Xi,容易引发关键词系统的反应
+
+ ...</blockquote>
+但是这国外定的吧，国外没关键字系统吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOGmk2  
+##### 718#       发表于 2021-11-28 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731619&amp;ptid=2039422" target="_blank">takami 发表于 2021-11-28 12:53</a>
+
+但是这国外定的吧，国外没关键字系统吧</blockquote>
+蓝星目前WHO最大的疫苗捐赠者就是我国......得罪大金主?
+
