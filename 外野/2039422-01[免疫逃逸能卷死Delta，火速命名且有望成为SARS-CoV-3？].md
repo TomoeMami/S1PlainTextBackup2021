@@ -8003,3 +8003,38 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 啊我突然明白了，是不是之前的变种现有的单抗都有效，所以有钱人不怕就无所谓，这次突然出来一个单抗无效的 ...</blockquote>
 一方面是这个。另外就是他们搞的群体免疫计划可能白搞了。英国人故意传染那么多中小学生的恶心事都做出来了，现在发觉一无所获。
 
+
+
+*****
+
+####  对羟基笨甲酸  
+##### 734#       发表于 2021-11-28 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734367&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-28 18:05</a>
+肯定有这个原因的，保自己几个月等搞到十来万病患的康复血清，筛选出中和效率高的抗体完成克隆后，估计就 ...</blockquote>
+我还以为洗衣粉那级别的都病逝了会让有钱人群体警觉呢……还是说洗衣服出身不高其实也混不进真权贵圈？
+
+*****
+
+####  MDGreg  
+##### 735#       发表于 2021-11-28 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734416&amp;ptid=2039422" target="_blank"> 对羟基笨甲酸 发表于 2021-11-28 18:13</a> 引用:creymorgan 发表于 2021-11-28 18:05 肯定有这个原因的，保自己几个月等搞到十来万病患的康复血清，筛选出中和效率高的抗体完成克隆后，估计就 ... 我还以为洗衣粉那级别的都病逝了会让有钱人群体警觉呢……还是说洗衣服出身不高其实也混不进真权贵圈？ </blockquote>
+洗衣粉他有多发性骨髓瘤啊，这样都能84岁寿终正寝，充分说明就是个屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  cumbland  
+##### 736#       发表于 2021-11-28 18:18
+
+<blockquote>对羟基笨甲酸 发表于 2021-11-28 18:13
+我还以为洗衣粉那级别的都病逝了会让有钱人群体警觉呢……还是说洗衣服出身不高其实也混不进真权贵圈？ ...</blockquote>
+他算各种并发症，新冠因素不高
+
+*****
+
+####  最好不说  
+##### 737#       发表于 2021-11-28 18:22
+
+澳大利亚新增两例omicron确诊，目前全世界确诊115例，疑似1073例，顺便放个BNONEWS做的omicron感染情况统计网页https://bnonews.com/index.php/2021/11/omicron-tracker/
+
