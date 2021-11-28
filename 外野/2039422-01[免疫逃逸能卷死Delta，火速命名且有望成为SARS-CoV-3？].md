@@ -8357,3 +8357,12 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 目前已经发现病例的地方</blockquote>
 欧洲完蛋喽，米国阿三这种经常和欧洲交流的地方显然也在隐性爆炸中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  healeveryone  
+##### 768#       发表于 2021-11-29 06:13
+
+我觉得关键还是致死率和重症率吧，要是真变成大号流感也不是不行
+
