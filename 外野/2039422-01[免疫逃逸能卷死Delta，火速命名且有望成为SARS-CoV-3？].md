@@ -8256,3 +8256,24 @@ Israel reports 4 new suspected Omicron cases, including 3 people with no travel 
 
 媒体：记者惨遭**
 
+
+
+*****
+
+####  riczxc  
+##### 759#         楼主| 发表于 2021-11-28 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53737130&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-28 21:48</a>
+
+已经是旧闻了吧
+
+Israel reports 4 new suspected Omicron cases, including 3 people with no travel hist ...</blockquote>
+南非相关的新闻果然是荷兰人比较关心。
+
+*****
+
+####  天使日又日  
+##### 760#       发表于 2021-11-28 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大英？看看英超观众席，场场爆满
+

@@ -15014,3 +15014,12 @@ chima好好唱歌别理小废物们行吗，现在这活也太烂了。
 
 京晚开了
 
+
+
+*****
+
+####  OldGlory  
+##### 8651#       发表于 2021-11-28 22:09
+
+有些人可能没看过第一届京晚在那大惊小怪，其实第一届京晚也有满屏的独轮车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
