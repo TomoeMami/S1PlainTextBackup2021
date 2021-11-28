@@ -8195,3 +8195,31 @@ P.S.常用的单克隆抗体主要就是血清培养提取,如果血清分型了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  天使日又日  
+##### 753#       发表于 2021-11-28 21:29
+
+美帝的大开放政策之下没有才有鬼，而且稀宗现在那么拉应该没胆那么快重新封锁来个政令如拉屎，等下周美帝上班就该有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  最好不说  
+##### 754#       发表于 2021-11-28 21:34
+
+丹麦检出两例南非输入，约堡飞阿姆斯特丹的那两个航班的61个阳性里确认了13个，但肯定不止这些。另外荷兰佬和带英一样在飞机落地以后除了检测以外没做任何隔离之类的防控，在测出61个阳性以后直接让乘客各找各妈，阳性自我隔离，阴性直接回家，不得不说比起带英多少还是做了点事，虽然都没有什么卵用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  takami  
+##### 755#       发表于 2021-11-28 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731921&amp;ptid=2039422" target="_blank">falisi 发表于 2021-11-28 13:22</a>
+
+Nu和new的发音像，ξ是为尊者（凯撒)讳</blockquote>
+看来没法看到玩 “牛科罗娜不是伊达” 的梗了
+

@@ -14518,3 +14518,21 @@ pay子下午发返图了
 
 <img src="https://img.saraba1st.com/forum/202111/28/024042kvaxhgmcw9uvbw8z.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Norkey1  
+##### 1297#       发表于 2021-11-28 21:39
+
+搞了个抽奖，欢迎楼友来抽。转发过30就在下个月28号抽，但是我还是挺担心本楼会不会连30人都没到<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+微信图片_20211128213638.jpg
+(109.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-28 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202111/28/213646icbjtaxt11jcpc43.jpg" referrerpolicy="no-referrer">
+

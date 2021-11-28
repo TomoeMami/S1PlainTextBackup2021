@@ -9678,3 +9678,14 @@ image.png
 
 那啥的节目表就在下面的点击关注的顺序那边，应该是倒数的节目，和爱丽丝靠在一起的话，有可能是和爱丽丝的合唱吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 5614#       发表于 2021-11-28 21:37
+
+还有多久啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
