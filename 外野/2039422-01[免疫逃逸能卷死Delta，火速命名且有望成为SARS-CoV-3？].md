@@ -7838,3 +7838,45 @@ Nu容易让只会听音不会写字的人以为是个新病毒来了,Kexi的英�
 但是这国外定的吧，国外没关键字系统吧</blockquote>
 蓝星目前WHO最大的疫苗捐赠者就是我国......得罪大金主?
 
+
+
+*****
+
+####  柔福帝姬  
+##### 719#       发表于 2021-11-28 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731632&amp;ptid=2039422" target="_blank">KOGmk2 发表于 2021-11-28 12:55</a>
+
+蓝星目前WHO最大的疫苗捐赠者就是我国......得罪大金主?</blockquote>
+我国超过英国的阿斯利康了？
+
+*****
+
+####  火峰冷  
+##### 720#       发表于 2021-11-28 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731619&amp;ptid=2039422" target="_blank">takami 发表于 2021-11-28 12:53</a>
+
+但是这国外定的吧，国外没关键字系统吧</blockquote>
+怕讨论病毒的账号被当成“中国propaganda”被封吧
+
+
+
+*****
+
+####  falisi  
+##### 721#       发表于 2021-11-28 13:22
+
+<blockquote>takami 发表于 2021-11-28 12:39
+只有我想知道为什么跳过牛和柯西吗？
+
+为了不影响卖胶，大b使了钱？</blockquote>
+Nu和new的发音像，ξ是为尊者（凯撒)讳
+
+*****
+
+####  最好不说  
+##### 722#       发表于 2021-11-28 13:24
+
+南非医生说omicron只导致轻微症状那条新闻果然有问题，根据BNO NEWS报道，Coetzee原本说的是在小部分健康年轻人这个群体里症状轻微，但她对于易感人群十分担忧，结果被某些媒体一转就变成了医学协会主 席表示新变种问题不大症状轻微搞不懂为啥渲染得这么恐怖，这断章取义真是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

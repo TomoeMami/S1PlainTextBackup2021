@@ -732,3 +732,12 @@ nga专楼都有路人去楼里问鸟p咋回事了，给我整不会了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那个乃琳毒唯攻击性好强，琳被他弹幕整沉默了一会
 
+
+
+*****
+
+####  伞沢直美  
+##### 3071#       发表于 2021-11-28 13:11
+
+有没有一种可能，静子会在欧阳晚会之后一个突的击，给我狠狠地收米<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

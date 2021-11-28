@@ -11591,3 +11591,28 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 这红蓝CP，好姬友一生一起走<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2359#       发表于 2021-11-28 13:08
+
+飞鸟学姐解决的还是很清爽的，还可以
+
+*****
+
+####  暗黑能乐  
+##### 2360#       发表于 2021-11-28 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">下集预告这个手勾手看的我有点眩晕。。
+
+*****
+
+####  最强惠酱  
+##### 2361#       发表于 2021-11-28 13:25
+
+看似走红蓝线，其实飞鸟选的是夏夏，下集路人珊瑚支棱起来了！！
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -14206,3 +14206,17 @@ Q：你好，我是中国粉丝。我非常喜欢Arcane，它是如此惊人！�
 
 A：很高兴你喜欢这个隐喻！
 
+
+
+*****
+
+####  FFFia  
+##### 2811#       发表于 2021-11-28 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731606&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-28 12:52</a>
+
+其实是推特问答，转自NGA
+
+Q：蔚和凯特琳在床上那幕戏之后，凯特琳问蔚：“那我们呢？” 这是不是说明那晚 ...</blockquote>
+谢谢
+
