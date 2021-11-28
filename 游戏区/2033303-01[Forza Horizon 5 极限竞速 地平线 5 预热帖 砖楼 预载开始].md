@@ -16124,3 +16124,17 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 这车又没人买，400万买断价一堆</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像中低档价位的车拍卖行全是加价，高价位就低很多，除了F1GT还有那个shelby daytona也是便宜了不少，商城三千万拍卖行五百万。
 
+
+
+*****
+
+####  君往何处  
+##### 1462#       发表于 2021-11-28 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722689&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-27 16:18</a>
+
+我真是操了，这大逃杀一出生就被各种3-4级车追着打，尼玛这帮人为什么抢空投这么快，我找个空投就找半天
+
+ ...</blockquote>
+开局空投的位置好像会比较固定，只是车是随机的，可以记住一两个位置每次都选那
+
