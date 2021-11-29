@@ -15365,3 +15365,43 @@ syl 看来vspo拿到了任天堂部分授权
 
 A综讨论一个魂，B基本是环维阿圈国V，C是环巧克拉拉的在B日V为主，杏综就聊杏，M综就聊神乐mea，剩下一个V综，其实你可以说除了这五家之外剩下的粉丝比较纯良......
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8681#       发表于 2021-11-29 21:10
+
+ 本帖最后由 alcoholic1000 于 2021-11-29 21:15 编辑 
+
+杏六期的Chloe从皮到声音都好可爱，知道这人在钓gachi还是难以抵御<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+これは下剋上
+
+Syl，天开这企划第一次还挺有意思的，参与者都是老熟人
+
+时间和规模再扩大一下应该会更精彩（不知道会不会有哪个箱照抄）
+
+*****
+
+####  free  
+##### 8682#       发表于 2021-11-29 21:14
+
+真的吗，我反而觉得今天是最无聊的一位......还是第一天的总帅最好
+
+不过说实话目前这四位各种缝合既视感都太重了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 8683#       发表于 2021-11-29 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749585&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-11-29 21:10</a>
+
+杏六期的Chloe从皮到声音都好可爱，知道这人在钓gachi还是难以抵御
+
+これは下剋上</blockquote>
+别说缝箱内的了，我甚至感觉到了点星川感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+太熟练了，太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
