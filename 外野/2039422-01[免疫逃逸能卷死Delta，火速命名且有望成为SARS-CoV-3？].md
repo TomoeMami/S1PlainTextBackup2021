@@ -9339,3 +9339,47 @@ what？故意传染中小学生？这什么智熄操作？
 只怕到时候海外只有草席的需求了……</blockquote>
 那到时候我们的内需可就大了去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  voluspa  
+##### 864#       发表于 2021-11-29 16:08
+
+ 本帖最后由 voluspa 于 2021-11-29 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+老天给开金手指帮你快进到伟大复兴的 hanppy end , 还要啥自行车? 
+
+*****
+
+####  小妻水亚美  
+##### 865#       发表于 2021-11-29 16:13
+
+今年这情形，国内估计又要鼓励原地过年了，连着两年不回家过年，很多人估计蛮难受的。
+希望探亲假的政策，zf强调一下，好歹错峰回家。
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  03e7  
+##### 866#       发表于 2021-11-29 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+都到这程度了你还担心出口？
+
+*****
+
+####  冤枉呐  
+##### 867#       发表于 2021-11-29 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745799&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 16:17</a>
+都到这程度了你还担心出口？</blockquote>
+我担心前期催起来的产能消化不掉。
+社会经济不是游戏点一下就有效果的，生产过剩消化不掉啥结果啊，总不能真票证经济吧……
+话说我觉得当时猪肉价格低的时候，就该找两匹马逼捐，给全国人民每人发一斤猪肉。
+

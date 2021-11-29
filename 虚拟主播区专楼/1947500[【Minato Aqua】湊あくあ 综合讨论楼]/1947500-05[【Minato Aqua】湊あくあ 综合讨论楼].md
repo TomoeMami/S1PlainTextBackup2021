@@ -15083,3 +15083,12 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 至少四播，这周还挺勤的。（要是live结束后也保持这样就好）
 
+
+
+*****
+
+####  面具13  
+##### 7222#       发表于 2021-11-29 16:06
+
+这是被6期的卷王们吓到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多卷卷，多卷卷
+

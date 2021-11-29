@@ -2604,3 +2604,26 @@ syl，之前运营是兼职</blockquote>
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  小憨1  
+##### 3274#       发表于 2021-11-29 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745577&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 15:59</a>
+
+电台不算时长，好离谱，思思月底要狂补时长了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+就剩一天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3275#       发表于 2021-11-29 16:11
+
+开会讨论盗号？真真假假，假假真真<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
