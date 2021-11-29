@@ -9415,3 +9415,65 @@ what？故意传染中小学生？这什么智熄操作？
 大萧条前大家也是觉得危机会逐步释放，实际上没有哪次危机是逐步释放的。
 这是客观规律，不是想当然就能解决问题的。
 
+
+
+*****
+
+####  海关  
+##### 871#       发表于 2021-11-29 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744055&amp;ptid=2039422" target="_blank">gane1010 发表于 2021-11-29 14:09</a>
+
+前段时间一堆人yygq国内不开放 各种讽刺  新冠真是喜欢打脸</blockquote>
+新冠专治各种不服<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  creymorgan  
+##### 872#       发表于 2021-11-29 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746120&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 16:43</a>
+
+美元指数持续上涨，危机就在边缘了
+
+大萧条前大家也是觉得危机会逐步释放，实际上没有哪次危机是逐步释放 ...</blockquote>
+那问题就又不是产能过剩的问题了
+
+*****
+
+####  creymorgan  
+##### 873#       发表于 2021-11-29 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746120&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 16:43</a>
+
+美元指数持续上涨，危机就在边缘了
+
+大萧条前大家也是觉得危机会逐步释放，实际上没有哪次危机是逐步释放 ...</blockquote>
+你担心的到底是疫情结束，还是疫情无法结束？
+
+*****
+
+####  mp5  
+##### 874#       发表于 2021-11-29 16:52
+
+建议你去查查新冠后遗症的研究
+看完之后你就不会这么乐观了
+
+----发送自 [Xiaomi M2007J17I,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  最好不说  
+##### 875#       发表于 2021-11-29 16:57
+
+南非流行病学家AbdoolKarim：感染病例迅速增加，我们预计会出现新的变种和第四波疫情。 大的没完了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 876#       发表于 2021-11-29 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746203&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 16:49</a>
+你担心的到底是疫情结束，还是疫情无法结束？</blockquote>
+我担心疫情结束了米国还阳，也担心疫情不结束的前提下，国内不加强宏观调控，放任现在催出来的产能爆掉
+

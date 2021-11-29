@@ -829,3 +829,17 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 游戏本身一言难尽，但是播片真的带感，体位方面疯狂堆量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zeromike  
+##### 84#       发表于 2021-11-29 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746022&amp;ptid=2039606" target="_blank">naclken. 发表于 2021-11-29 16:34</a>
+
+说起来，我见过的体位很多的游戏有个sword x hime，也是上了steam还有原生中文
+
+游戏本身一言难尽，但是播片 ...</blockquote>
+那个画面还可以，但是模型和动作很粗糙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

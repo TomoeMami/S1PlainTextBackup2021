@@ -19942,3 +19942,15 @@ toar的二创是真的少，产出连发售快四年的泥潭真爱都打不过�
 破晓传说即使做到这个地步也没有劝退腐女我是真没想到</blockquote>
 手游有个什么活动奥尔芬+克雷斯组合爆杀黑皮+盖亚斯。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按理说那边的腐女纯度应该更高吧
 
+
+
+*****
+
+####  qiyu1234  
+##### 5971#       发表于 2021-11-29 17:02
+
+万南欧洲发布了官方问卷，内容是调查欧洲玩家对破晓传说的内容评价及对传说系列未来重制/欧洲发行作品的倾向及整个系列游戏的各项元素满意度
+
+因为不限制用户，所以谁都能填
+[https://bandai.eu.qualtrics.com/jfe/form/SV_cZnwhgbfyqj1wns](https://bandai.eu.qualtrics.com/jfe/form/SV_cZnwhgbfyqj1wns)
+
