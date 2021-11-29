@@ -14724,3 +14724,21 @@ pay子下午发返图了
 本楼居然有这么多人，顺便看了眼uid，泥潭老人家论坛实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 当时和我一起看ll的基本上都脱宅了，只有我还在看了。看到谭友，“隔壁叔叔都快三十了还在看动画.jpg”的心理负担也少了一些<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1316#       发表于 2021-11-29 23:20
+
+封面投票结果出来了，差点就四灰毛
+
+*****
+
+####  player3960  
+##### 1317#       发表于 2021-11-29 23:20
+
+四灰毛大失败啊，ksks你得支楞起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
