@@ -9734,3 +9734,95 @@ what？故意传染中小学生？这什么智熄操作？
 —— 来自 OnePlus LE2100, And ...</blockquote>
 口岸城市压力都挺大的，今年疫情严重的地方除了扬州大都是口岸城市：常年防疫的瑞丽就不说了，额济纳，满洲里，黑河，包括大连。。
 
+
+
+*****
+
+####  飞侠小黑  
+##### 900#       发表于 2021-11-29 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746115&amp;ptid=2039422" target="_blank">mwj 发表于 2021-11-29 16:42</a>
+感觉中国这20年超高速发展给了很多人这是一种常态的感觉，之前知乎上还有不少人斩钉截铁的说经济增长不到6% ...</blockquote>
+因为无法接受制度竞争失败了啊，一旦承认了自己的制度是落后的，那么世界就崩坏了，只能不停骗自己对岸一定会崩溃，不是明天就是明年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  飞侠小黑  
+##### 901#       发表于 2021-11-29 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746985&amp;ptid=2039422" target="_blank">FanFun 发表于 2021-11-29 17:48</a>
+一直没关注，全球居然已经死了450万人了</blockquote>
+我觉得实际上翻个倍，可能都已经破千万了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  9号单开道岔  
+##### 902#       发表于 2021-11-29 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39:01</a>
+为什么疫情楼里总是要聊经济？</blockquote>所有关于疫情发展的预测里，经济学家写得预测总是最乐观的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+只要封锁/疫苗/特效药发起进攻，一切都会好起来的，下个季度or下半年经济就会强力反弹
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  飞侠小黑  
+##### 903#       发表于 2021-11-29 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53748151&amp;ptid=2039422" target="_blank">9号单开道岔 发表于 2021-11-29 19:27</a>
+所有关于疫情发展的预测里，经济学家写得预测总是最乐观的。</blockquote>
+只能说都是和资本家一伙的，年初预测今年经济反弹，拉抬高股市，年中调低预期，年底表示因为疫情原因未能达到预期，然后来年再这么来一遍
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  砥草  
+##### 904#       发表于 2021-11-29 19:31
+
+<blockquote>FanFun 发表于 2021-11-29 17:48
+一直没关注，全球居然已经死了450万人了</blockquote>
+考虑的欧美那种改标准降低死亡率，印度等国统计能力跟不上，还有新冠肆虐更严重却连哭声都没人听得见的一大把落后国家……
+
+我个人觉得翻个倍都有可能(´･_･`)
+
+*****
+
+####  ASDZ  
+##### 905#       发表于 2021-11-29 19:32
+
+ 本帖最后由 ASDZ 于 2021-11-29 19:33 编辑 
+
+精资不怕死，只怕没订单
+
+而我只想抡起劳动法砸烂资本家狗头
+
+—— 来自 Xiaomi MI 9 SE, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  坚果大爷  
+##### 906#       发表于 2021-11-29 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742703&amp;ptid=2039422" target="_blank">LHO 发表于 2021-11-29 12:06</a>
+
+会不会是欧美他们早发现了一直没报就等着南非报? 南非那种医疗水准能检测报出来传播应该不短时间了, 欧美那 ...</blockquote>
+老传统艺能了
+
+*****
+
+####  arsenalfcc  
+##### 907#       发表于 2021-11-29 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746985&amp;ptid=2039422" target="_blank">FanFun 发表于 2021-11-29 17:48</a>
+一直没关注，全球居然已经死了450万人了</blockquote>
+印度至少还要加个100万吧
+
