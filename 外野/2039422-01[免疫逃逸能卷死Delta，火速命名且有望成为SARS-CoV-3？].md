@@ -10172,3 +10172,33 @@ Foram identificados 13 casos  ...</blockquote>
 
 可制造的单克隆抗体。有钱有权的话，轻症都可以随便打。
 
+
+
+*****
+
+####  zss4414  
+##### 936#       发表于 2021-11-29 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751319&amp;ptid=2039422" target="_blank">lindley 发表于 2021-11-29 23:41</a>
+
+美国和他的朋友国们这次这么果断，很难让人觉得不是在操纵心理预期耶，要么就是资本家们又在炒股了 ...</blockquote>
+美联储要缩表了就出这档事，很难不怀疑是不是有舆论层面的推波助澜。
+
+不是说病毒不行，是反应这么快真有鬼
+
+*****
+
+####  天使日又日  
+##### 937#       发表于 2021-11-29 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对病毒也能扣种族歧视帽子啊，不如让病毒在这些人体内团聚算了吧
+
+*****
+
+####  Redis  
+##### 938#       发表于 2021-11-29 23:55
+
+看样子现在的疫苗，从防止感染的角度来说，对于这个病毒果然没啥效果。
+
+1/4的人送去医治的已经接种了疫苗，1/8的是完全接种。南非的整体接种率也是差不多1/4。
+
