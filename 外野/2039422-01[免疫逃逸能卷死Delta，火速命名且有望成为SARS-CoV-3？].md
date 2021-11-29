@@ -8516,3 +8516,46 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 当地时间11月27日，意大利罗马儿童医院科研团队发布新冠病毒新型变异毒株奥密克戎的全球首张图片。<img src="http://www.news.cn/politics/2021-11/28/1128109024_16380767503591n.png" referrerpolicy="no-referrer">
 <img src="http://www.news.cn/politics/1128109024_16380767035771n.webp" referrerpolicy="no-referrer">"><img src="http://www.news.cn/politics/2021-11/28/1128109024_16380768245661n.png" referrerpolicy="no-referrer">"><img src="http://www.news.cn/politics/2021-11/28/1128109024_16380769604331n.jpg" referrerpolicy="no-referrer">">　　近期在南非检出的新型变异毒株，因传染性强，甚至可能导致新冠康复者二次感染而备受关注。中国工程院院士钟南山27日表示，目前对该变种病毒还没有太多了解，但这种病毒携带大量突变，对防疫工作也提出了更多挑战。
 
+
+
+*****
+
+####  冤枉呐  
+##### 784#       发表于 2021-11-29 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53707591&amp;ptid=2039422" target="_blank">Karajan 发表于 2021-11-26 11:52</a>
+掉个鬼，疫情持续下去只会继续破坏他们的制造业，最后更加依赖进口
+
+—— 来自 HUAWEI CLT-AL00, Android ...</blockquote>
+他们的需求不是无限的
+如果疫情持续下去，海外需求萎缩了，货卖给谁啊？
+
+*****
+
+####  最好不说  
+##### 785#       发表于 2021-11-29 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740129&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-11-29 07:37</a>
+
+传统异能了， 只检测非洲来的航班，自然都是非洲输入</blockquote>
+复刻去年年初<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最好不说  
+##### 786#       发表于 2021-11-29 11:47
+
+彭博11月29日援引日本NTV报道，日本政府将禁止所有外国旅客进入该国，以加强边境管制。报道指出，日本政府最快将在今天下午宣布，禁止外国旅客入境，除非有特殊原因或因人道主义问题。日本此前允许海外商务访问者和学生入境。近期，由于担心奥密克戎新冠变种而禁止来自南非和其他非洲国家的人入境。共同社报道称，日本首相岸田文雄将在当地时间下午1点10分公布边境措施。 
+
+不得了，你日居然都吓得高效起来了，但说现在还没发现omicron我怎么就不信呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 787#       发表于 2021-11-29 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742328&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-29 11:34</a>
+
+复刻去年年初</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西方一直在用种族主义心态防疫的，只要来自白皮国家基本上不设防
+

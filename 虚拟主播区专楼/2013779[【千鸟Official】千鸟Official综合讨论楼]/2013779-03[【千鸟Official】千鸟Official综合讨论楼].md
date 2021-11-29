@@ -2096,3 +2096,28 @@ lao mao病了，一个气息晃一个拍子跟不上，相当严重
 风怒编辑
 可以预测一下NGA接下来打啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3218#       发表于 2021-11-29 11:24
+
+ 本帖最后由 夜之中道崩殂 于 2021-11-29 11:25 编辑 
+
+首先，贴吧还在打。其次，s1打个锤子。最后，nga已经打完了。
+
+*****
+
+####  莫洛骑士  
+##### 3219#       发表于 2021-11-29 11:25
+
+s1真的能打起来吗，感觉按照贴吧的阵营划分，鸟综有的阵营可能都没人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3220#       发表于 2021-11-29 11:28
+
+贴吧不前几天就在混战么
+

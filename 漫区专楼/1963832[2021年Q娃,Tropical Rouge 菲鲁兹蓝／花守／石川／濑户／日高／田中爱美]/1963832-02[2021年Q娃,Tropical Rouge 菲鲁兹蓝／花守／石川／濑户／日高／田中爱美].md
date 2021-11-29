@@ -11689,3 +11689,22 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 前天看到一个表说今年女人卖得不好？有人知道热情Q娃今年收益怎样？
 
+
+
+*****
+
+####  lydia5989  
+##### 2368#       发表于 2021-11-29 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53741900&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-11-29 11:01</a>
+
+前天看到一个表说今年女人卖得不好？有人知道热情Q娃今年收益怎样？</blockquote>
+对比去年应该卖的挺不错，去年数据我记得挺惨的，太君那个好像是预算表不是销售表？
+
+*****
+
+####  暗黑能乐  
+##### 2369#       发表于 2021-11-29 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">小友们行不行啊，搞笑的都看不下去不至于吧
+
