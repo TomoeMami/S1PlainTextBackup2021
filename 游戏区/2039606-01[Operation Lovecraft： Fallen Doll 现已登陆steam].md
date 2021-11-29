@@ -737,3 +737,95 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 不如i社+1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  穿越护城河  
+##### 75#       发表于 2021-11-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53741623&amp;ptid=2039606" target="_blank">zeromike 发表于 2021-11-29 10:39</a>
+
+主打还是画质技术这一块，i社技术力与之相比就完全不行，价格更是算上各种dlc远高于Fallen Doll，唯一且也 ...</blockquote>
+兄啊，你这句应该裱起来送给开发组
+
+*****
+
+####  昴星长明  
+##### 76#       发表于 2021-11-29 14:55
+
+ 本帖最后由 昴星长明 于 2021-11-29 14:59 编辑 
+
+纯以GHS为主要内容的游戏，FALLEN DOLL这种形式（其他例子如马头社新作）就是最垃圾的；
+
+整特么上十好几个G，真正的颜色内容就是几段零散GIF循环播放，难以施法，实用性极低；
+
+要我说还是得学习学**品牌 梅麻吕系列，东方审美的人设、连贯的剧情、流畅的播片方式，沉浸式的电影体验，才是正路。
+
+
+
+*****
+
+####  461757753  
+##### 77#       发表于 2021-11-29 15:22
+
+8
+
+*****
+
+####  461757753  
+##### 78#       发表于 2021-11-29 15:24
+
+<blockquote>461757753 发表于 2021-11-29 15:22
+8</blockquote>
+手滑，别小看i社啊，3d黄油就i社能打了
+
+*****
+
+####  Sissii  
+##### 79#       发表于 2021-11-29 15:25
+
+发ZOD都被人喷的垃圾游戏
+
+*****
+
+####  zeromike  
+##### 80#       发表于 2021-11-29 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744580&amp;ptid=2039606" target="_blank">穿越护城河 发表于 2021-11-29 14:49</a>
+
+兄啊，你这句应该裱起来送给开发组</blockquote>
+你可能看反了..
+
+
+
+*****
+
+####  h1r0  
+##### 81#       发表于 2021-11-29 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744580&amp;ptid=2039606" target="_blank">穿越护城河 发表于 2021-11-29 14:49</a>
+兄啊，你这句应该裱起来送给开发组</blockquote>
+他这id眼熟，应该是zod的管理员，不用送
+
+*****
+
+####  zeromike  
+##### 82#       发表于 2021-11-29 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745114&amp;ptid=2039606" target="_blank">h1r0 发表于 2021-11-29 15:27</a>
+
+他这id眼熟，应该是zod的管理员，不用送</blockquote>
+早就不是啦，而且是不是管理员跟评价游戏无关
+
+
+
+*****
+
+####  naclken.  
+##### 83#       发表于 2021-11-29 16:34
+
+说起来，我见过的体位很多的游戏有个sword x hime，也是上了steam还有原生中文
+
+游戏本身一言难尽，但是播片真的带感，体位方面疯狂堆量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

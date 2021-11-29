@@ -15167,3 +15167,75 @@ YouTube Music Weekend vol.4 開催決定
 
 2021-11-29 13:14 上传
 
+
+
+*****
+
+####  死体残留  
+##### 8664#       发表于 2021-11-29 14:45
+
+7/12<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一半以上的杏了
+
+*****
+
+####  free  
+##### 8665#       发表于 2021-11-29 15:00
+
+这种活动反正就照着名气最大的请了，上一届我记得杏是烂货圆脸azki死神律可，虹是委员长德龙raindrops，再加个太子，不过看了几个都是播片，没啥大意思
+
+省一楼，昨晚的世萌首次vtuber场决赛，老爱狗妈狐神乐mea分列1-4位，不过这也就再一次证明了世萌其实只有中国人在玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 8666#       发表于 2021-11-29 15:30
+
+ 本帖最后由 poipanchao 于 2021-11-29 15:38 编辑 
+
+中国人 x
+炒作狗 v
+世盟票数多少啊？
+
+这票数别说asoul了，快跟010的同接五五开了…
+
+
+
+*****
+
+####  tiro_finale  
+##### 8667#       发表于 2021-11-29 16:22
+
+豆知识：当年的日萌也是中国人在玩，几百票能撕成谍影重重
+
+这件事让我有点想不到的是世萌竟然还在办，而且还有人在乎，之前还遇到拉票的了...
+
+萌战这东西恶臭程度和无谓程度都比管人还高很多，属于是搜一下都浪费时间的玩意
+
+
+
+*****
+
+####  星街こうせい  
+##### 8668#       发表于 2021-11-29 16:25
+
+是狐狐不是圣皇我不是很认可这个活动的含金量
+
+*****
+
+####  OldGlory  
+##### 8669#       发表于 2021-11-29 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745893&amp;ptid=1972669" target="_blank">星街こうせい 发表于 2021-11-29 16:25</a>
+
+是狐狐不是圣皇我不是很认可这个活动的含金量</blockquote>
+圣皇就是狐狐打下去的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 8670#       发表于 2021-11-29 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 应该吐槽就算是萌战吧都很多年前没人关注这玩意了，不要说一般的ACG相关论坛了，管人还能又炒一把的。。
+

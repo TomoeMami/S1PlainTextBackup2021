@@ -2299,3 +2299,340 @@ s1真的能打起来吗，感觉按照贴吧的阵营划分，鸟综有的阵营
 
 能盗号和盗了号是不一样的。
 
+
+
+*****
+
+####  乾坤小  
+##### 3241#       发表于 2021-11-29 13:58
+
+听说文静十页ppt把老板ktv了，然后日本大佐盗了文静的b站账号？
+千鸟商战比电影还好看啊
+
+
+
+*****
+
+####  小憨1  
+##### 3242#       发表于 2021-11-29 14:43
+
+琳给我笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+琳解释歌会：三个东西没新活就学我别上
+琳回应文静单飞：她想走的时候我坐她旁边一把鼻涕一把泪的抱着她，她身上全是我鼻涕没衣服穿了，就留下来了
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3243#       发表于 2021-11-29 14:54
+
+讲个笑话，维阿动态都没审核<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3244#       发表于 2021-11-29 14:56
+
+维啊出大事的话不光要审核，还有运营负责RP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3245#       发表于 2021-11-29 15:00
+
+文静为了自己单飞还偷队友显卡是吧
+
+
+
+*****
+
+####  gawain039  
+##### 3246#       发表于 2021-11-29 15:14
+
+狠狠拷打静女妖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  夜之中道崩殂  
+##### 3247#       发表于 2021-11-29 15:20
+
+拷打新运营，做千鸟的运营，这是他此生绝无仅有的抗压机会。
+
+*****
+
+####  T型钉宫病毒  
+##### 3248#       发表于 2021-11-29 15:21
+
+私信不会也审吧，我还没届到过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3249#       发表于 2021-11-29 15:24
+
+自信点，不会回私信了，happy
+
+*****
+
+####  希克苏鲁伯  
+##### 3250#       发表于 2021-11-29 15:24
+
+木木今天真行阿
+
+*****
+
+####  GAKOTO  
+##### 3251#         楼主| 发表于 2021-11-29 15:27
+
+不会真要转型偶像吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3252#       发表于 2021-11-29 15:28
+
+坏了，我没怎么发过弹幕，但是总感觉傻x弹幕在骂我。<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3253#       发表于 2021-11-29 15:31
+
+少一点放映室吧，求求了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 3254#       发表于 2021-11-29 15:31
+
+唉，琳把我想说的说完了
+紫色隐藏顶边，绿色你就在那瘫着吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 3255#       发表于 2021-11-29 15:32
+
+不会真有人信文静乃至上次cj是被盗号了吧
+
+*****
+
+####  gawain039  
+##### 3256#       发表于 2021-11-29 15:33
+
+文静你给我下来！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  小憨1  
+##### 3257#       发表于 2021-11-29 15:45
+
+文静一审结束
+艾白审判开始<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3258#       发表于 2021-11-29 15:47
+
+刚来，王木木审判了啥
+
+syl，之前运营是兼职<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3259#       发表于 2021-11-29 15:49
+
+节目基本是直播员想的
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 3260#       发表于 2021-11-29 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745409&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-29 15:47</a>
+刚来，王木木审判了啥
+
+syl，之前运营是兼职</blockquote>
+审判艾白环节好像无了，不过审判文静看的是真爽
+
+*****
+
+####  灰色的狐狸  
+##### 3261#       发表于 2021-11-29 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745452&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-29 15:50</a>
+
+审判艾白环节好像无了，不过审判文静看的是真爽</blockquote>
+说啥了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+我有空回去看看
+
+*****
+
+####  gawain039  
+##### 3262#       发表于 2021-11-29 15:54
+
+80小时的直播没有策划可太折磨了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gawain039  
+##### 3263#       发表于 2021-11-29 15:55
+
+没有活儿有不想偷，我的评价是：早该发动行窃预兆了！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 3264#       发表于 2021-11-29 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745497&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-29 15:54</a>
+说啥了
+
+我有空回去看看</blockquote>
+基本把对文静的梁木点能劈的都劈完了
+
+*****
+
+####  GAKOTO  
+##### 3265#         楼主| 发表于 2021-11-29 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745507&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 15:54</a>
+
+80小时的直播没有策划可太折磨了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+可是V圈或者说直播这行本来就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3266#       发表于 2021-11-29 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745544&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-29 15:57</a>
+可是V圈或者说直播这行本来就是这样的</blockquote>
+她们不是游戏主播，可以固定播一个游戏，天天唱歌杂谈嗓子也顶不住吧
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灰色的狐狸  
+##### 3267#       发表于 2021-11-29 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745529&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-29 15:56</a>
+
+基本把对文静的梁木点能劈的都劈完了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不愧是同时招进来的好队友
+
+*****
+
+####  rgauss  
+##### 3268#       发表于 2021-11-29 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745563&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 15:59</a>
+她们不是游戏主播，可以固定播一个游戏，天天唱歌杂谈嗓子也顶不住吧
+
+—— 来自 HUAWEI YAL-AL10, Andro ...</blockquote>
+千鸟游戏室 狗都不看
+
+*****
+
+####  gawain039  
+##### 3269#       发表于 2021-11-29 15:59
+
+电台不算时长，好离谱，思思月底要狂补时长了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  haruhiismer  
+##### 3270#       发表于 2021-11-29 16:00
+
+千年游戏力低的一批
+
+
+
+*****
+
+####  gawain039  
+##### 3271#       发表于 2021-11-29 16:00
+
+主要是选的游戏下来一点不练，猪b操作看多了我血压真要爆了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  haruhiismer  
+##### 3272#       发表于 2021-11-29 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745597&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 16:00</a>
+主要是选的游戏下来一点不练，猪b操作看多了我血压真要爆了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S ...</blockquote>
+技术还好主要玩游戏没有造节目效果
+
+*****
+
+####  gawain039  
+##### 3273#       发表于 2021-11-29 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745601&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-11-29 16:01</a>
+技术还好主要玩游戏没有造节目效果</blockquote>
+打得太少，回应不了弹幕，只能全力专注游戏，演技也差一点，能创造什么效果呢？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  小憨1  
+##### 3274#       发表于 2021-11-29 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745577&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 15:59</a>
+
+电台不算时长，好离谱，思思月底要狂补时长了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+就剩一天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3275#       发表于 2021-11-29 16:11
+
+开会讨论盗号？真真假假，假假真真<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  星街こうせい  
+##### 3276#       发表于 2021-11-29 16:38
+
+不管怎样绿色阿姨昨天的危机公关在管人历史上是前无古人的，我翻了下评论基本也没人真信她那一套，但是鸟p都表示只要活好无所谓真假，这就更牛逼了。
+

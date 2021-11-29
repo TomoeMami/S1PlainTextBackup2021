@@ -8865,3 +8865,553 @@ omicron用某度搜索不出结果是什么鬼
 
 而他们支付能力萎缩之前，总有点可以付出来而且我们要的东西的
 
+
+
+*****
+
+####  冤枉呐  
+##### 819#       发表于 2021-11-29 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742800&amp;ptid=2039422" target="_blank">lifengzhi321 发表于 2021-11-29 12:15</a>
+想想二战时的美国，担心卖不出货吗？
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+二战时候很多国家有战时景气啊，产能可以造在战场上
+
+*****
+
+####  nerugigannte  
+##### 820#       发表于 2021-11-29 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">g7这就召开紧急会议啦？到底发生了些什么
+
+*****
+
+####  冤枉呐  
+##### 821#       发表于 2021-11-29 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742860&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 12:21</a>
+海外生产也萎缩啊，而且必然比需求萎缩更严重。海外需求减少100w，生产减少200w，就相当于多了100万的市 ...</blockquote>
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收入，那时候需求又怎么样呢？
+到了那个点上，国内产能被临时性的需求刺激出的景气咋整
+
+*****
+
+####  冤枉呐  
+##### 822#       发表于 2021-11-29 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743604&amp;ptid=2039422" target="_blank">armedangel 发表于 2021-11-29 13:28</a>
+反正没工开了，要不谈谈第一岛链和瓦森纳协定的事？</blockquote>
+还是要收狗，帮狗治病，让狗买货
+
+
+
+*****
+
+####  钞君  
+##### 823#       发表于 2021-11-29 14:07
+
+日本也
+
+【速報】政府　全世界から外国人の“入国停止”を発表
+[https://news.yahoo.co.jp/article ... fd52e0320b9301ded18](https://news.yahoo.co.jp/articles/e0eb2d3a03d7658b16e80fd52e0320b9301ded18)
+
+*****
+
+####  creymorgan  
+##### 824#       发表于 2021-11-29 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+需求当然是来自对方全面接受新马歇尔计划呀。
+
+*****
+
+####  gane1010  
+##### 825#       发表于 2021-11-29 14:09
+
+ 本帖最后由 gane1010 于 2021-11-29 14:14 编辑 
+
+前段时间一堆人yygq国内不开放 各种讽刺  新冠真是喜欢打脸
+
+*****
+
+####  冤枉呐  
+##### 826#       发表于 2021-11-29 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743747&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 13:41</a>
+人的需求当然是无限的。
+
+而他们支付能力萎缩之前，总有点可以付出来而且我们要的东西的 ...</blockquote>
+你这话讲的，流浪汉当然有“需要”，他这个“需要”能转化成“需求”嘛？
+疫情砸烂海外产能，会刺激出国内的景气，但是没有产能的海外，是没办法永远买足你的景气的
+现在是美元充当黄金的时代，但是绿纸不是真黄金，美匪政府往死里印钱，要么印到最后印成废纸，要么是我国捏鼻子扛他的超发
+
+*****
+
+####  冤枉呐  
+##### 827#       发表于 2021-11-29 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744042&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 14:09</a>
+需求当然是来自对方全面接受新马歇尔计划呀。</blockquote>
+喷了
+马歇尔计划那是因为战争可以赢，可以按着对方头签无条件投降。赢了下面可以开心建设。
+新冠怎么赢呐？你说他啥时候能消失？
+
+*****
+
+####  内野  
+##### 828#       发表于 2021-11-29 14:15
+
+等他们没有产能了 我们开航母过去啊 不然造来参观的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 829#       发表于 2021-11-29 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712884&amp;ptid=2039422" target="_blank">忧伤的宝贝 发表于 2021-11-26 18:15</a>
+你这是鼠目寸光，它们人死多了，高端产业就没人搞了，等我们抢占了高端产业，还需要这点出口的蝇头小利？ ...</blockquote>
+国内扩出来的中低端产能你打个响指就能变身成高端呐？
+市场经济可不是计划指令
+
+*****
+
+####  EP2  
+##### 830#       发表于 2021-11-29 14:18
+
+跳过了Nu和Xi，who很懂嘛
+
+*****
+
+####  creymorgan  
+##### 831#       发表于 2021-11-29 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744127&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:15</a>
+
+国内扩出来的中低端产能你打个响指就能变身成高端呐？
+
+市场经济可不是计划指令 ...</blockquote>
+旧高端没了不就是相对高端
+
+还想享受到旧高端那就主动移到还能保证生产的地方去。
+
+
+
+*****
+
+####  03e7  
+##### 832#       发表于 2021-11-29 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+等萎缩到你说的这步，国外都成废土世界了
+
+*****
+
+####  冤枉呐  
+##### 833#       发表于 2021-11-29 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744238&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 14:23</a>
+等萎缩到你说的这步，国外都成废土世界了</blockquote>
+现在要不是美匪放水，就已经很可怕了
+美匪放水，那就没问题了嘛？
+
+*****
+
+####  66666  
+##### 834#       发表于 2021-11-29 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+当然是**咯，推进人民币国际化自然国内产能就有新的市场
+
+*****
+
+####  lyjssj  
+##### 835#       发表于 2021-11-29 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么疫情楼里总是要聊经济？
+
+*****
+
+####  钦念以忱  
+##### 836#       发表于 2021-11-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+海外连需求都没了，中国还想做生意的事情，该想怎么把960万变成2000万的事情了。
+
+*****
+
+####  03e7  
+##### 837#       发表于 2021-11-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+
+为什么疫情楼里总是要聊经济？</blockquote>
+因为总有人想证明清零会导致经济下滑，是错的
+
+
+
+*****
+
+####  L.L  
+##### 838#       发表于 2021-11-29 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+为什么疫情楼里总是要聊经济？</blockquote>
+因为中已输，疫情数据上没办法扯就只能说经济了，但去年全世界gdp数据在那里只能说未来中己输。
+
+*****
+
+####  creymorgan  
+##### 839#       发表于 2021-11-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744322&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:30</a>
+
+现在要不是美匪放水，就已经很可怕了
+
+美匪放水，那就没问题了嘛？</blockquote>
+你要和疫情从来没出现的平行世界过比经济，那肯定是比不过，至少发生世界经济规则大洗牌之前肯定比不过。
+
+*****
+
+####  mwj  
+##### 840#       发表于 2021-11-29 14:49
+
+老实说，如果真的国外需求萎缩到那种地步，那中国还想什么做生意，该想的是红旗插满蓝星吧......
+
+
+
+*****
+
+####  钦念以忱  
+##### 841#       发表于 2021-11-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744088&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:12</a>
+
+喷了
+
+马歇尔计划那是因为战争可以赢，可以按着对方头签无条件投降。赢了下面可以开心建设。
+
+新冠怎么赢呐 ...</blockquote>
+在当地设立党委和人民代表大会，不就可以赢了。
+
+*****
+
+####  高龙  
+##### 842#       发表于 2021-11-29 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744165&amp;ptid=2039422" target="_blank">EP2 发表于 2021-11-29 14:18</a>
+
+跳过了Nu和Xi，who很懂嘛</blockquote>
+现在**就是个黑人。之前一段时间新冠政治化闹得凶，中国警惕中对此必然反应敏感且在新冠医疗产品供应中是核心地位。肯定这两个要避讳。
+
+*****
+
+####  creymorgan  
+##### 843#       发表于 2021-11-29 14:52
+
+反正我个人对疫情的结束是极为乐观的
+
+三种针对不同靶点的小分子口服药呼之欲出。
+
+然后鸡尾酒一下，效果好副作用小抗药性弱，疫情的负担基本上就过去了。
+
+到时候日常备少量普克鲁胺当作高危接触后的阻断剂，哪怕查出阳性药房直接给你一套鸡尾酒口服药，不能叫正常但已经不算社会负担。
+
+*****
+
+####  matrixtheory  
+##### 844#       发表于 2021-11-29 14:57
+
+国外原来每x个月被delta犁一边，现在出来了omicron，每y个月又被犁一遍，要是再出来几个omega，phi啥的，以后干脆冬眠吧，每17个月或者19个月出来活动一次<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  kemyes  
+##### 845#       发表于 2021-11-29 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744692&amp;ptid=2039422" target="_blank">matrixtheory 发表于 2021-11-29 14:57</a>
+
+国外原来每x个月被delta犁一边，现在出来了omicron，每y个月又被犁一遍，要是再出来几个omega，phi啥的，以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">最后制造出守护神龙维萨拉，然后全体进入冷罐冬眠至一个没有新冠的时代嘛？
+
+
+
+*****
+
+####  kenqqex  
+##### 846#       发表于 2021-11-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744692&amp;ptid=2039422" target="_blank">matrixtheory 发表于 2021-11-29 14:57</a>
+
+国外原来每x个月被delta犁一边，现在出来了omicron，每y个月又被犁一遍，要是再出来几个omega，phi啥的，以 ...</blockquote>
+传颂之物?
+
+*****
+
+####  voluspa  
+##### 847#       发表于 2021-11-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+
+为什么疫情楼里总是要聊经济？</blockquote>
+因为防疫方面已经没啥好讨论的, 兔子考的分数比其他所有地区加起来都要明显高...
+
+所以唯一可以讨论就是: 兔子你考得这么好, 我们很难办啊, 都是同班同学, 你就不能学我们交白卷嘛..
+
+*****
+
+####  狄一琛2019  
+##### 848#       发表于 2021-11-29 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734375&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-28 18:07</a>
+
+一方面是这个。另外就是他们搞的群体免疫计划可能白搞了。英国人故意传染那么多中小学生的恶心事都做出来 ...</blockquote>
+what？故意传染中小学生？这什么智熄操作？
+
+*****
+
+####  狄一琛2019  
+##### 849#       发表于 2021-11-29 15:33
+
+形势严峻啊，今年冬天又要接着宅了，考虑去屯些乱七八糟的东西，虽然就算封城了基本生活应该不用愁，但是不能网购还是很麻烦
+
+*****
+
+####  武男  
+##### 850#       发表于 2021-11-29 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742258&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 11:29</a>
+
+他们的需求不是无限的
+
+如果疫情持续下去，海外需求萎缩了，货卖给谁啊？ ...</blockquote>
+你只担心经济能否健康发展，这已经类似于美国佬坐着拖拉机逃荒了
+
+
+
+*****
+
+####  冤枉呐  
+##### 851#       发表于 2021-11-29 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745283&amp;ptid=2039422" target="_blank">武男 发表于 2021-11-29 15:38</a>
+你只担心经济能否健康发展，这已经类似于美国佬坐着拖拉机逃荒了</blockquote>
+那我也犯不着替米国人担心健康呐
+脚上泡自己走的嘛
+
+*****
+
+####  creymorgan  
+##### 852#       发表于 2021-11-29 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745144&amp;ptid=2039422" target="_blank">kenqqex 发表于 2021-11-29 15:29</a>
+
+传颂之物?</blockquote>
+我觉得是17年蝉……
+
+*****
+
+####  朋友  
+##### 853#       发表于 2021-11-29 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+
+为什么疫情楼里总是要聊经济？</blockquote>
+对西方社会来说防疫不就是经济嘛，不管是拿着疫苗要你用军事基地来抵押还是对债务的物理出清，就算是讲科学的地方也得讲经济，总不能真的跑非洲去扶贫来消除隐患吧，说句难听的，消灭隐患都比这可能性来的大。
+
+*****
+
+####  冤枉呐  
+##### 854#       发表于 2021-11-29 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744622&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 14:52</a>
+反正我个人对疫情的结束是极为乐观的
+
+三种针对不同靶点的小分子口服药呼之欲出。
+
+然后鸡尾酒一下，效果好副 ...</blockquote>
+有潜伏期，有后遗症，也不是保管能治好
+
+艾滋病有鸡尾酒疗法能治愈，那人就不戴套子了？
+而且艾滋病你知道高位暴露，这玩意怎么知道，出门一次吃一颗么……
+
+*****
+
+####  creymorgan  
+##### 855#       发表于 2021-11-29 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745411&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:47</a>
+
+有潜伏期，有后遗症，也不是保管能治好
+
+艾滋病有鸡尾酒疗法能治愈，那人就不戴套子了？</blockquote>
+艾滋病靠鸡尾酒无法真正痊愈，新冠可以
+
+短期出国吃
+
+*****
+
+####  冤枉呐  
+##### 856#       发表于 2021-11-29 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744453&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 14:40</a>
+因为总有人想证明清零会导致经济下滑，是错的</blockquote>
+你这……
+这不都在担心现在的出口不可持续，要未雨绸缪嘛？谁说清零不好了？自己的想法千万别安在别人嘴里吧
+
+*****
+
+####  冤枉呐  
+##### 857#       发表于 2021-11-29 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718471&amp;ptid=2039422" target="_blank">曾鸟栖夜夏 发表于 2021-11-27 09:29</a>
+微博上的mRNA神教信徒还在自我**，笑死我了</blockquote>
+我就看目前还没有官方说mrna不好的吧
+艾博的疫苗出来，如果三期效果特别好，老哥你又怎么想呢
+
+*****
+
+####  冤枉呐  
+##### 858#       发表于 2021-11-29 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719110&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 11:00</a>
+那中文的凯撒是谁翻译的呢 只有古典拉丁文中才这么读 欧洲的几大国家语言 发音都接近c 或者tsi
+
+网上说自 ...</blockquote>
+欧洲的几大国家语言 发音都接近c 或者tsi正宗日耳曼，德语可是k哦
+
+*****
+
+####  冤枉呐  
+##### 859#       发表于 2021-11-29 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719121&amp;ptid=2039422" target="_blank">音羽城 发表于 2021-11-27 11:01</a>
+可以转向出口棺材和骨灰盒嘛，这不是更好吗？</blockquote>
+只怕到时候海外只有草席的需求了……
+
+*****
+
+####  砥草  
+##### 860#       发表于 2021-11-29 15:55
+
+<blockquote>冤枉呐 发表于 2021-11-29 15:53
+只怕到时候海外只有草席的需求了……</blockquote>
+真到了这一步就用不着担忧什么出口贸易了，该考虑怎么多快好省的把红旗插遍世界
+
+*****
+
+####  creymorgan  
+##### 861#       发表于 2021-11-29 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+草席也好呀
+
+而且给草席种芦苇的地估计能出去直接捡了。
+
+*****
+
+####  mwj  
+##### 862#       发表于 2021-11-29 15:59
+
+我觉得担心国外人死光了导致国内出口崩的是不是做题做魔怔了，就像考试一样定的目标是超过90%的人，结果除了自己以外其他人考试前暴毙导致没人可超了还觉得自己不行......
+
+*****
+
+####  yuandi0120  
+##### 863#       发表于 2021-11-29 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+那到时候我们的内需可就大了去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  voluspa  
+##### 864#       发表于 2021-11-29 16:08
+
+ 本帖最后由 voluspa 于 2021-11-29 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+老天给开金手指帮你快进到伟大复兴的 hanppy end , 还要啥自行车? 
+
+*****
+
+####  小妻水亚美  
+##### 865#       发表于 2021-11-29 16:13
+
+今年这情形，国内估计又要鼓励原地过年了，连着两年不回家过年，很多人估计蛮难受的。
+希望探亲假的政策，zf强调一下，好歹错峰回家。
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  03e7  
+##### 866#       发表于 2021-11-29 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+都到这程度了你还担心出口？
+
+*****
+
+####  冤枉呐  
+##### 867#       发表于 2021-11-29 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745799&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 16:17</a>
+都到这程度了你还担心出口？</blockquote>
+我担心前期催起来的产能消化不掉。
+社会经济不是游戏点一下就有效果的，生产过剩消化不掉啥结果啊，总不能真票证经济吧……
+话说我觉得当时猪肉价格低的时候，就该找两匹马逼捐，给全国人民每人发一斤猪肉。
+
+
+
+*****
+
+####  creymorgan  
+##### 868#       发表于 2021-11-29 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745897&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 16:25</a>
+
+我担心前期催起来的产能消化不掉。
+
+社会经济不是游戏点一下就有效果的，生产过剩消化不掉啥结果啊，总不 ...</blockquote>
+外面要死也不是瞬间死绝的，也不是同时死绝的，你担心转不过来？
+
+*****
+
+####  mwj  
+##### 869#       发表于 2021-11-29 16:42
+
+感觉中国这20年超高速发展给了很多人这是一种常态的感觉，之前知乎上还有不少人斩钉截铁的说经济增长不到6%就要崩是基本经济规律的，就不知道这经济规律是哪个野鸡经济学家提出的，近一百年除了中国还有哪个经济体能持续20年经济增长超过他们所定义的要崩的线的吗？
+
+*****
+
+####  冤枉呐  
+##### 870#       发表于 2021-11-29 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745967&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 16:31</a>
+外面要死也不是瞬间死绝的，也不是同时死绝的，你担心转不过来？</blockquote>
+美元指数持续上涨，危机就在边缘了
+大萧条前大家也是觉得危机会逐步释放，实际上没有哪次危机是逐步释放的。
+这是客观规律，不是想当然就能解决问题的。
+
