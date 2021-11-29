@@ -9199,3 +9199,143 @@ what？故意传染中小学生？这什么智熄操作？
 如果疫情持续下去，海外需求萎缩了，货卖给谁啊？ ...</blockquote>
 你只担心经济能否健康发展，这已经类似于美国佬坐着拖拉机逃荒了
 
+
+
+*****
+
+####  冤枉呐  
+##### 851#       发表于 2021-11-29 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745283&amp;ptid=2039422" target="_blank">武男 发表于 2021-11-29 15:38</a>
+你只担心经济能否健康发展，这已经类似于美国佬坐着拖拉机逃荒了</blockquote>
+那我也犯不着替米国人担心健康呐
+脚上泡自己走的嘛
+
+*****
+
+####  creymorgan  
+##### 852#       发表于 2021-11-29 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745144&amp;ptid=2039422" target="_blank">kenqqex 发表于 2021-11-29 15:29</a>
+
+传颂之物?</blockquote>
+我觉得是17年蝉……
+
+*****
+
+####  朋友  
+##### 853#       发表于 2021-11-29 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+
+为什么疫情楼里总是要聊经济？</blockquote>
+对西方社会来说防疫不就是经济嘛，不管是拿着疫苗要你用军事基地来抵押还是对债务的物理出清，就算是讲科学的地方也得讲经济，总不能真的跑非洲去扶贫来消除隐患吧，说句难听的，消灭隐患都比这可能性来的大。
+
+*****
+
+####  冤枉呐  
+##### 854#       发表于 2021-11-29 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744622&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 14:52</a>
+反正我个人对疫情的结束是极为乐观的
+
+三种针对不同靶点的小分子口服药呼之欲出。
+
+然后鸡尾酒一下，效果好副 ...</blockquote>
+有潜伏期，有后遗症，也不是保管能治好
+
+艾滋病有鸡尾酒疗法能治愈，那人就不戴套子了？
+而且艾滋病你知道高位暴露，这玩意怎么知道，出门一次吃一颗么……
+
+*****
+
+####  creymorgan  
+##### 855#       发表于 2021-11-29 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745411&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:47</a>
+
+有潜伏期，有后遗症，也不是保管能治好
+
+艾滋病有鸡尾酒疗法能治愈，那人就不戴套子了？</blockquote>
+艾滋病靠鸡尾酒无法真正痊愈，新冠可以
+
+短期出国吃
+
+*****
+
+####  冤枉呐  
+##### 856#       发表于 2021-11-29 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744453&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 14:40</a>
+因为总有人想证明清零会导致经济下滑，是错的</blockquote>
+你这……
+这不都在担心现在的出口不可持续，要未雨绸缪嘛？谁说清零不好了？自己的想法千万别安在别人嘴里吧
+
+*****
+
+####  冤枉呐  
+##### 857#       发表于 2021-11-29 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718471&amp;ptid=2039422" target="_blank">曾鸟栖夜夏 发表于 2021-11-27 09:29</a>
+微博上的mRNA神教信徒还在自我**，笑死我了</blockquote>
+我就看目前还没有官方说mrna不好的吧
+艾博的疫苗出来，如果三期效果特别好，老哥你又怎么想呢
+
+*****
+
+####  冤枉呐  
+##### 858#       发表于 2021-11-29 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719110&amp;ptid=2039422" target="_blank">madeira 发表于 2021-11-27 11:00</a>
+那中文的凯撒是谁翻译的呢 只有古典拉丁文中才这么读 欧洲的几大国家语言 发音都接近c 或者tsi
+
+网上说自 ...</blockquote>
+欧洲的几大国家语言 发音都接近c 或者tsi正宗日耳曼，德语可是k哦
+
+*****
+
+####  冤枉呐  
+##### 859#       发表于 2021-11-29 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719121&amp;ptid=2039422" target="_blank">音羽城 发表于 2021-11-27 11:01</a>
+可以转向出口棺材和骨灰盒嘛，这不是更好吗？</blockquote>
+只怕到时候海外只有草席的需求了……
+
+*****
+
+####  砥草  
+##### 860#       发表于 2021-11-29 15:55
+
+<blockquote>冤枉呐 发表于 2021-11-29 15:53
+只怕到时候海外只有草席的需求了……</blockquote>
+真到了这一步就用不着担忧什么出口贸易了，该考虑怎么多快好省的把红旗插遍世界
+
+*****
+
+####  creymorgan  
+##### 861#       发表于 2021-11-29 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+草席也好呀
+
+而且给草席种芦苇的地估计能出去直接捡了。
+
+*****
+
+####  mwj  
+##### 862#       发表于 2021-11-29 15:59
+
+我觉得担心国外人死光了导致国内出口崩的是不是做题做魔怔了，就像考试一样定的目标是超过90%的人，结果除了自己以外其他人考试前暴毙导致没人可超了还觉得自己不行......
+
+*****
+
+####  yuandi0120  
+##### 863#       发表于 2021-11-29 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745487&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 15:53</a>
+
+只怕到时候海外只有草席的需求了……</blockquote>
+那到时候我们的内需可就大了去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
