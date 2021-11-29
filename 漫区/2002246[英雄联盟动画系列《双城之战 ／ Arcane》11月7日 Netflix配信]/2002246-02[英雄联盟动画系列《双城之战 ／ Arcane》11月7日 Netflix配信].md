@@ -14360,3 +14360,43 @@ Q：蔚和凯特琳在床上那幕戏之后，凯特琳问蔚：“那我们呢�
 看同人大多都是蔚攻凯特琳受不能理解，剧里面凯特琳在明显是偏主动的一方，浴室的镜头也暗示凯特琳是攻，结 ...</blockquote>
 毕竟小蛋糕和妓院里，是蔚主动撩的。。
 
+
+
+*****
+
+####  飞升之后  
+##### 2824#       发表于 2021-11-29 22:11
+
+突然发现人物剧烈表情时候出现过好多次口水，以前看动漫很少看到
+
+*****
+
+####  巴麻耒  
+##### 2825#       发表于 2021-11-29 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750154&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-29 21:57</a>
+毕竟小蛋糕和妓院里，是蔚主动撩的。。</blockquote>
+感觉蔚就是那种整天无意识撩别人的那种，碰到杰斯也说小帅哥，但是感情和身体接触上都属于被动的那边，两次都是小蛋糕主动摸她脸
+
+这种看起来像个铁t，背地却是个受的反差萌就很棒，我看比较少人get到这点
+
+*****
+
+####  三个尻枪手  
+##### 2826#       发表于 2021-11-29 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750154&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-29 21:57</a>
+
+毕竟小蛋糕和妓院里，是蔚主动撩的。。</blockquote>
+妓院里小蛋糕没一会就和别的小姐姐躺一起了
+
+*****
+
+####  飞升之后  
+##### 2827#       发表于 2021-11-29 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750366&amp;ptid=2002246" target="_blank">巴麻耒 发表于 2021-11-29 22:15</a>
+
+感觉蔚就是那种整天无意识撩别人的那种，碰到杰斯也说小帅哥，但是感情和身体接触上都属于被动的那边，两 ...</blockquote>
+莱特宁_ltg  微博上这位和你口味很一致
+

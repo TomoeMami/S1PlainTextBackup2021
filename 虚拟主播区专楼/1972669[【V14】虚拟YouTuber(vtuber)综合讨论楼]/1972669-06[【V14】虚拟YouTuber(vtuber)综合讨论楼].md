@@ -15443,3 +15443,19 @@ Syl，天开这企划第一次还挺有意思的，参与者都是老熟人
 
 阿床终于播了，还是歌回<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 8688#       发表于 2021-11-29 22:15
+
+今天这位应该和昨天的粉猫换个皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 8689#       发表于 2021-11-29 22:17
+
+阿床是不是刚发现油管把👎藏了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

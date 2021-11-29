@@ -9951,3 +9951,43 @@ Foram identificados 13 casos da variante Ómicron em Portugal, anunciou, esta se
 
 Para garantir a quebra de cadeias de transmissão e seguindo o princípio da precaução em Saúde Pública, "enquanto se aguardam mais informações relativamente à transmissão, impacto e efetividade vacinal contra a variante Ómicron", o instituto refere que autoridades de saúde "determinaram o isolamento profilático dos contactos dos casos de infeção associados a este surto, independentemente do estado vacinal e do nível de exposição".
 
+
+
+*****
+
+####  大江户战士  
+##### 916#       发表于 2021-11-29 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749227&amp;ptid=2039422" target="_blank">nobady 发表于 2021-11-29 20:48</a>
+
+这个病毒现在一直在点传染性天赋，致死率的属性点都下降了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁跟你说的致死率下降了
+
+*****
+
+####  configxxxx  
+##### 917#       发表于 2021-11-29 22:08
+
+搞不懂为啥会觉得传染性上升致死率就会下降，这两个有必然联系吗？你要说得了这病立马死，那应该很快死光了也就不传染了，就新冠这种，只是单纯的提高传染性，然后每个也潜伏个三五天，就算致死率也提高了也能多传很多人吧
+
+*****
+
+####  炎夏型塞拉利昂  
+##### 918#       发表于 2021-11-29 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53748279&amp;ptid=2039422" target="_blank">arsenalfcc 发表于 2021-11-29 19:40</a>
+印度至少还要加个100万吧</blockquote>
+印度直接加个0吧
+
+*****
+
+####  亚尔迪8424  
+##### 919#       发表于 2021-11-29 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750205&amp;ptid=2039422" target="_blank">pushare 发表于 2021-11-29 22:01</a>
+
+葡超球队 比兰伦斯SAD 队内社区传播 Omicron阳性 13例 球员和工作人员都有
+
+Foram identificados 13 casos  ...</blockquote>
+直接上结论 这个病绝对不是南非先出现，欧洲早就传到社区了
+
