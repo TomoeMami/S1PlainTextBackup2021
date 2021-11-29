@@ -10265,3 +10265,12 @@ bsyl  改九点了
 
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  T_Hb  
+##### 5683#       发表于 2021-11-29 22:36
+
+唱48系的歌有种说不出的感觉，还挺好
+

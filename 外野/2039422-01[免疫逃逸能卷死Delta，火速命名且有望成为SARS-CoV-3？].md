@@ -9991,3 +9991,78 @@ Para garantir a quebra de cadeias de transmissão e seguindo o princípio da pre
 Foram identificados 13 casos  ...</blockquote>
 直接上结论 这个病绝对不是南非先出现，欧洲早就传到社区了
 
+
+
+*****
+
+####  riczxc  
+##### 920#         楼主| 发表于 2021-11-29 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749285&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2021-11-29 20:52</a>
+
+【关于奥密克戎，国家卫生健康委权威解答来了！】针对新冠病毒奥密克戎变异株，国家卫生健康委组织中国疾控 ...</blockquote>
+没有提到和香港的通关安排啊。
+
+深圳又要瑟瑟发抖了。
+
+*****
+
+####  正义大朋友  
+##### 921#       发表于 2021-11-29 22:25
+
+再来一波，伟大复兴再提前几年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 922#         楼主| 发表于 2021-11-29 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750419&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2021-11-29 22:20</a>
+
+直接上结论 这个病绝对不是南非先出现，欧洲早就传到社区了</blockquote>
+当然不是最先在南非。非洲南部那么多国家，只有南非能测序出来。
+
+*****
+
+####  砥草  
+##### 923#       发表于 2021-11-29 22:31
+
+ 本帖最后由 砥草 于 2021-11-29 22:32 编辑 
+<blockquote>亚尔迪8424 发表于 2021-11-29 22:20
+直接上结论 这个病绝对不是南非先出现，欧洲早就传到社区了</blockquote>
+目前来说，我觉得最诡异的是南非刚刚上报，欧洲日本就如此果断迅速的紧急断航。
+
+我国拥有领先的新冠防治经验，都说尚待研究判断。怎么这些一直仰卧起坐的“自由”国家倒突然雷厉风行起来了……？<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+感觉有什么重要消息他们是知道的，而我们还不知道，那么问题来了，他们怎么能那么快知道了呢？
+
+开个阴暗的脑洞，他们可能已经发现了这个变异，有了一定了解，却出于经济等考虑没有公布。等被hk踢爆后，南非紧急自查上报，然后被扣了锅，成了喜提被动封锁一条龙的替罪羊国家。<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Errey  
+##### 924#       发表于 2021-11-29 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750552&amp;ptid=2039422" target="_blank">砥草 发表于 2021-11-29 22:31</a>
+
+目前来说，我觉得最诡异的是南非刚刚上报，欧洲日本就如此果断迅速的紧急断航。
+
+我国拥有领先的新冠防治经 ...</blockquote>
+这个脑洞并不阴暗，但应该不够准确
+
+假设是自己中招掩盖着，早知道那早该暗里封锁了，没有任何必要借其他国家当借口
+
+非常可能是通消息的投毒
+
+*****
+
+####  折岛睦月  
+##### 925#       发表于 2021-11-29 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750552&amp;ptid=2039422" target="_blank">砥草 发表于 2021-11-29 22:31</a>
+
+目前来说，我觉得最诡异的是南非刚刚上报，欧洲日本就如此果断迅速的紧急断航。
+
+我国拥有领先的新冠防治经 ...</blockquote>
+的确，我觉得他们肯定之前有发现不对劲的地方了，正好南非爆出来了就顺势扣上去
+
