@@ -8432,3 +8432,14 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lexi  
+##### 775#       发表于 2021-11-29 08:27
+
+<blockquote>希远闹 发表于 2021-11-29 08:08
+【吴尊友：#疫苗接种+72小时核酸阴性入境策略不符合我国情景#】中国疾病预防控制中心流行病学首席专家吴尊 ...</blockquote>
+就是这么个道理。
+
