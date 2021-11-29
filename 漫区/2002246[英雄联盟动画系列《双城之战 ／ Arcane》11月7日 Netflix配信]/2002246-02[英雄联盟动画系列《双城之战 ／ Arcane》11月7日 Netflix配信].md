@@ -14411,3 +14411,15 @@ Q：蔚和凯特琳在床上那幕戏之后，凯特琳问蔚：“那我们呢�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tewaku  
+##### 2829#       发表于 2021-11-30 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751282&amp;ptid=2002246" target="_blank">jf8350143 发表于 2021-11-29 23:38</a>
+
+比起无关紧要的攻受（女同真的分这玩意吗），我更好奇为啥到处都能看到有人对喷，各种金÷蔚÷啥的，这年头 ...</blockquote>
+二极管叫得响
+

@@ -14769,3 +14769,12 @@ pay子下午发返图了
 
 雪菜还是强无敌啊。ksks四灰毛buff+动画亲女儿役都败了
 
+
+
+*****
+
+####  kata魂  
+##### 1321#       发表于 2021-11-30 00:12
+
+四灰毛计划大失败，但鸟可居然没有败给其他人也是一种成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

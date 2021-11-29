@@ -10202,3 +10202,28 @@ Foram identificados 13 casos  ...</blockquote>
 
 1/4的人送去医治的已经接种了疫苗，1/8的是完全接种。南非的整体接种率也是差不多1/4。
 
+
+
+*****
+
+####  nobady  
+##### 939#       发表于 2021-11-30 00:04
+
+难道这就是上限控制器，只要人类突破上限，就自动启动，然后淘汰一些人<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，太可怕了
+
+*****
+
+####  KENN  
+##### 940#       发表于 2021-11-30 00:09
+
+哈人，看不到结束的那一天
+
+*****
+
+####  Redis  
+##### 941#       发表于 2021-11-30 00:14
+
+然后南非居然现在疫苗打不动了，因为接种意愿低？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+真的离谱到家了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
