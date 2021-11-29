@@ -8997,3 +8997,62 @@ omicron用某度搜索不出结果是什么鬼
 
 还想享受到旧高端那就主动移到还能保证生产的地方去。
 
+
+
+*****
+
+####  03e7  
+##### 832#       发表于 2021-11-29 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+等萎缩到你说的这步，国外都成废土世界了
+
+*****
+
+####  冤枉呐  
+##### 833#       发表于 2021-11-29 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744238&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 14:23</a>
+等萎缩到你说的这步，国外都成废土世界了</blockquote>
+现在要不是美匪放水，就已经很可怕了
+美匪放水，那就没问题了嘛？
+
+*****
+
+####  66666  
+##### 834#       发表于 2021-11-29 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+当然是**咯，推进人民币国际化自然国内产能就有新的市场
+
+*****
+
+####  lyjssj  
+##### 835#       发表于 2021-11-29 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么疫情楼里总是要聊经济？
+
+*****
+
+####  钦念以忱  
+##### 836#       发表于 2021-11-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+海外连需求都没了，中国还想做生意的事情，该想怎么把960万变成2000万的事情了。
+
+*****
+
+####  03e7  
+##### 837#       发表于 2021-11-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+
+为什么疫情楼里总是要聊经济？</blockquote>
+因为总有人想证明清零会导致经济下滑，是错的
+
