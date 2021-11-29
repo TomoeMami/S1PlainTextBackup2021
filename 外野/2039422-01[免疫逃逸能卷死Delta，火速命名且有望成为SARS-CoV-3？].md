@@ -10241,3 +10241,31 @@ Foram identificados 13 casos  ...</blockquote>
 真的离谱到家了 ...</blockquote>
 全部都自然感染过了...
 
+
+
+*****
+
+####  Redis  
+##### 943#       发表于 2021-11-30 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751755&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 00:27</a>
+
+全部都自然感染过了...</blockquote>
+这个没啥关系，只管打疫苗还是没打过疫苗
+
+*****
+
+####  烦死了  
+##### 944#       发表于 2021-11-30 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751188&amp;ptid=2039422" target="_blank">www151007 发表于 2021-11-29 23:29</a>
+我估计。人类真的可能要永久改变生活习惯了。</blockquote>
+我觉得不会 白皮马照跑舞照跳 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 945#       发表于 2021-11-30 01:01
+
+不要拿中国生死观去套白皮，人家根本不怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

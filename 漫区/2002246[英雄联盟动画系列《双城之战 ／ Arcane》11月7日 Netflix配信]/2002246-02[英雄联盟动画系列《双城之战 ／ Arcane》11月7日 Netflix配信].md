@@ -14423,3 +14423,22 @@ Q：蔚和凯特琳在床上那幕戏之后，凯特琳问蔚：“那我们呢�
 比起无关紧要的攻受（女同真的分这玩意吗），我更好奇为啥到处都能看到有人对喷，各种金÷蔚÷啥的，这年头 ...</blockquote>
 二极管叫得响
 
+
+
+*****
+
+####  純愛中毒  
+##### 2830#       发表于 2021-11-30 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">我不会要痿到双城第二季吧？
+
+*****
+
+####  飞升之后  
+##### 2831#       发表于 2021-11-30 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751924&amp;ptid=2002246" target="_blank">純愛中毒 发表于 2021-11-30 00:48</a>
+
+前些天一口气看完双城之后还一直念念不忘，我以为自己治好了动漫阳痿，结果这几天尝试了几次，点了 ...</blockquote>
+建议拳头新赛季再整个类似破败王的烂活，从而拉低你的期待
+

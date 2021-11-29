@@ -16429,3 +16429,16 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 想买个地平线4补票，steam还是没有扳机震动吗？
 
+
+
+*****
+
+####  小张翔  
+##### 1489#       发表于 2021-11-30 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751783&amp;ptid=2033303" target="_blank">Karin11974 发表于 2021-11-30 00:30</a>
+想买个地平线4补票，steam还是没有扳机震动吗？</blockquote>
+没吧 买win10版买一份PC能用, XBOX也能用。
+
+—— 来自 OPPO PDHM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

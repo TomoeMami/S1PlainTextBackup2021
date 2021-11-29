@@ -15123,3 +15123,56 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 大脸猫不像这俩小年轻那么脆弱，应该就是被收录搞得身心疲劳，然后去找狗子玩去了。
 
+
+
+*****
+
+####  zpy393  
+##### 7226#       发表于 2021-11-29 17:37
+
+我比较担心疫情要是再爆发，线下live会不会又无了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星の守  
+##### 7227#       发表于 2021-11-29 17:38
+
+那也太惨了吧<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星の守  
+##### 7228#       发表于 2021-11-29 19:38
+
+十点播恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7229#       发表于 2021-11-29 19:49
+
+狗子的这个游戏是不是蹭得有点晚了？别人都是一个星期前播的，怕不是没热度了
+
+*****
+
+####  越动天下  
+##### 7230#       发表于 2021-11-29 19:55
+
+蹭还是要蹭的好吧 虽然我记得和一位你楼友估计的时间还是相距很远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  面具13  
+##### 7231#       发表于 2021-11-29 22:26
+
+演过头尬死了
+
+*****
+
+####  面具13  
+##### 7232#       发表于 2021-11-29 23:16
+
+对歌回没了的解释是有版权歌需要切（但是看上去不打算切掉放出来？）
+

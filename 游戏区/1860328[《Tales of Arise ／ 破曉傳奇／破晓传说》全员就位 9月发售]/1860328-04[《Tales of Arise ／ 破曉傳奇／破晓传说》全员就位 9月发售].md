@@ -19954,3 +19954,14 @@ toar的二创是真的少，产出连发售快四年的泥潭真爱都打不过�
 因为不限制用户，所以谁都能填
 [https://bandai.eu.qualtrics.com/jfe/form/SV_cZnwhgbfyqj1wns](https://bandai.eu.qualtrics.com/jfe/form/SV_cZnwhgbfyqj1wns)
 
+
+
+*****
+
+####  宛若青空  
+##### 5972#       发表于 2021-11-29 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746392&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-11-29 17:02</a>
+万南欧洲发布了官方问卷，内容是调查欧洲玩家对破晓传说的内容评价及对传说系列未来重制/欧洲发行作品的倾 ...</blockquote>
+填了，居然有问DLC、漫画、动画的提问<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

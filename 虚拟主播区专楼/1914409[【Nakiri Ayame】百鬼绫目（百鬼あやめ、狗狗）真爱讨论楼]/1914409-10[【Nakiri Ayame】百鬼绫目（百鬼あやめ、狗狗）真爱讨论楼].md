@@ -516,3 +516,79 @@ LOL也没在动。mio呢mio呢？救一下啊！
 
 绫总赏脸接工商是给面子
 
+
+
+*****
+
+####  stedckk  
+##### 13554#       发表于 2021-11-29 22:22
+
+<img src="https://img.saraba1st.com/forum/202111/29/222202gv5955nzzygzygve.png" referrerpolicy="no-referrer">
+
+<strong>B_PG_LSED[7Q347JR7{O8LK.png</strong> (11.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 22:22 上传
+
+*****
+
+####  nian1538  
+##### 13555#       发表于 2021-11-29 22:38
+
+潤羽るしあ🦋ホロライブ3期生
+
+@uruharushia
+
+今日あやめ先輩のダンスを見たんだけどめっちゃ可愛かった🥰💕
+
+10:30 PM · Nov 29, 2021·Twitter for iPhone
+
+*****
+
+####  一仙  
+##### 13556#       发表于 2021-11-29 22:53
+
+前面狐狸还说绫总多么努力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再凑出两个姨给绫总站台我就相信绫总线下真的很努力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cctvyt1  
+##### 13557#       发表于 2021-11-29 23:15
+
+还是先开台吧 六期一出几个老成员都急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今天的虎鲸新人据说像上位绫总
+
+*****
+
+####  stedckk  
+##### 13558#       发表于 2021-11-29 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪像了
+
+*****
+
+####  因为你不会  
+##### 13559#       发表于 2021-11-29 23:40
+
+我真不信绫总有人山寨得来
+
+*****
+
+####  面具13  
+##### 13560#       发表于 2021-11-30 00:18
+
+据说是笑声有点像
+
+
+
+*****
+
+####  夏小筱ss  
+##### 13561#       发表于 2021-11-30 00:56
+
+早该卷了，卷死绫总
+

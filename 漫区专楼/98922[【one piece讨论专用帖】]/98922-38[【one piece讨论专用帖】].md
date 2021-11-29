@@ -8683,3 +8683,32 @@ king和queen的强度 不愧是大看板
 
 由于连载的时间和暗示的设计比较明显和紧密，所以感觉尾田在空岛阶段就想到了”月球“和”遗迹“这样的东西。
 
+
+
+*****
+
+####  灌水机  
+##### 56178#       发表于 2021-11-29 17:29
+
+所以古代种不是灭绝而且全体星际移民了么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+上一个文明发展到气候变暖，海平面上升不适宜居住，集体飞走了，而大秘宝是个发射中心？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  C男人  
+##### 56179#       发表于 2021-11-29 22:33
+
+之前不是 “红土大陆上会身体冒火的种族” 吗？
+
+设定越来越复杂了？
+
+*****
+
+####  Piano-Forest  
+##### 56180#       发表于 2021-11-29 23:31
+
+<img src="https://p.sda1.dev/3/b5d6fa6795346c5c1c949fd79b9480ec/20211129_232546.jpg" referrerpolicy="no-referrer">
+

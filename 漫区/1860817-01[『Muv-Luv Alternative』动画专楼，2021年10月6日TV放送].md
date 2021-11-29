@@ -21138,3 +21138,22 @@ Alternative最近这两话看得想睡觉……是制作组拉了还是这段就
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  阿虚家的三味  
+##### 1490#       发表于 2021-11-29 17:29
+
+看来这是准备把大尉他们在127里的神级表现逼得反叛军走险那场战斗做出来了？
+
+*****
+
+####  hacisiki  
+##### 1491#       发表于 2021-11-29 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746781&amp;ptid=1860817" target="_blank">阿虚家的三味 发表于 2021-11-29 17:29</a>
+
+看来这是准备把大尉他们在127里的神级表现逼得反叛军走险那场战斗做出来了？ ...</blockquote>
+迫真漫改新作
+

@@ -2727,3 +2727,1143 @@ syl，之前运营是兼职</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾瑞思这就沦为煮饭婆了吗
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 3287#       发表于 2021-11-29 17:22
+
+王木木是不是还说了来千鸟之前收入更高来着？？？
+
+*****
+
+####  伞沢直美  
+##### 3288#       发表于 2021-11-29 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">今天连摆烂动态都不舍得发了是吧
+
+*****
+
+####  灰色的狐狸  
+##### 3289#       发表于 2021-11-29 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746805&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-29 17:30</a>
+
+今天连摆烂动态都不舍得发了是吧</blockquote>
+审 核
+
+*****
+
+####  伞沢直美  
+##### 3290#       发表于 2021-11-29 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746826&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-29 17:32</a>
+
+审 核</blockquote>
+静将军都斩了九千岁，怎的陛下还吝惜兵符，不知将在外君命有所不受，莫不是昏聩的不是陈珺忠贤，竟是……
+
+*****
+
+####  灰色的狐狸  
+##### 3291#       发表于 2021-11-29 18:18
+
+文静开了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  伞沢直美  
+##### 3292#       发表于 2021-11-29 18:19
+
+而我还没下班，令人感慨<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3293#       发表于 2021-11-29 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747258&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-29 18:19</a>
+而我还没下班，令人感慨</blockquote>
+电台
+手机听着就行了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  灰色的狐狸  
+##### 3294#       发表于 2021-11-29 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747258&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-29 18:19</a>
+而我还没下班，令人感慨</blockquote>
+电台
+手机听着就行了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  夜潇箫  
+##### 3295#       发表于 2021-11-29 18:26
+
+鸟又散<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 3296#       发表于 2021-11-29 18:26
+
+风怒
+
+*****
+
+####  gawain039  
+##### 3297#       发表于 2021-11-29 18:28
+
+节奏太快了吧，吃个饭又来节奏了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  逸yi  
+##### 3298#       发表于 2021-11-29 18:29
+
+贴吧烂炒的太多了
+
+*****
+
+####  我有一个朋友  
+##### 3299#       发表于 2021-11-29 18:30
+
+文静太难了……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  四叶的花  
+##### 3300#       发表于 2021-11-29 18:32
+
+😨怎么了怎么了，我在外面听不了
+
+
+
+*****
+
+####  haruhiismer  
+##### 3301#       发表于 2021-11-29 18:32
+
+文静真是没活了，这就哭了
+
+*****
+
+####  希克苏鲁伯  
+##### 3302#       发表于 2021-11-29 18:34
+
+又哪来的弱智节奏，有点怀疑整天四处丢屎的是不是同一批人
+
+以前静将军光速QA多冷静，现在却成了天天破防的小女生。呵呵有人疑似对粉丝入脑了，就像突然有了软肋
+
+*****
+
+####  sunxpw  
+##### 3303#       发表于 2021-11-29 18:35
+
+哭的还是比较有水平的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  gawain039  
+##### 3304#       发表于 2021-11-29 18:37
+
+没活了咬打火机也破防，主播的心之壁也太薄了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  我有一个朋友  
+##### 3305#       发表于 2021-11-29 18:37
+
+归根结底对于一帮乐子人想要进行提纯就不是件容易的事，更何况千鸟一堆问题尤其是摊上了个弱智运营……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T型钉宫病毒  
+##### 3306#       发表于 2021-11-29 18:40
+
+除了“可能是队友没准备好”剩下的就又是拉扯和车轱辘以前说过的话，我捏麻都快会背了
+
+*****
+
+####  夜潇箫  
+##### 3307#       发表于 2021-11-29 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">卡卡卡
+
+*****
+
+####  gawain039  
+##### 3308#       发表于 2021-11-29 18:42
+
+静女妖的尬笑就是新活，网也太卡了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  我有一个朋友  
+##### 3309#       发表于 2021-11-29 18:44
+
+不过千鸟这边版本更新也太快了，2月的As都没这么多事。感觉一般的乐子人都受不了这么快的版本更新……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 3310#       发表于 2021-11-29 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">不是 这版本更新太快了
+
+*****
+
+####  haruhiismer  
+##### 3311#       发表于 2021-11-29 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747551&amp;ptid=2013779" target="_blank">我有一个朋友 发表于 2021-11-29 18:44</a>
+不过千鸟这边版本更新也太快了，2月的As都没这么多事。感觉一般的乐子人都受不了这么快的版本更新……
+
+— ...</blockquote>
+懂不懂先引流再提纯啊，感觉跟不上纯属太草台
+
+*****
+
+####  gawain039  
+##### 3312#       发表于 2021-11-29 18:47
+
+文静直言队友不会直播
+
+*****
+
+####  faithlifer  
+##### 3313#       发表于 2021-11-29 18:47
+
+切割队友了，狂<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Finsty  
+##### 3314#       发表于 2021-11-29 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天哪是文静直播，今天是运营QA
+
+*****
+
+####  我有一个朋友  
+##### 3315#       发表于 2021-11-29 18:50
+
+挺心疼她的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，文静还是适合单飞，做个个人势……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 3316#       发表于 2021-11-29 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">头秃
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sunxpw  
+##### 3317#       发表于 2021-11-29 18:51
+
+文静这个话术水平真的爆杀99%的v
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  gawain039  
+##### 3318#       发表于 2021-11-29 18:52
+
+主播还会查成分是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 3319#       发表于 2021-11-29 18:52
+
+企划试图做大很难不引到臊皮乐子人。但是a能靠不断好起来的直播企划，海子姐能脑死摆烂抗压，静静似乎只想过救活千鸟，却没想到随之而来的压力，唏嘘
+
+*****
+
+####  rgauss  
+##### 3320#       发表于 2021-11-29 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">说队友不会直播已经很给面子了，那不然直言说其他人摆烂或者说观众不会欣赏吗
+
+*****
+
+####  九门惠  
+##### 3321#       发表于 2021-11-29 18:54
+
+网页连续崩溃没听到锐评队友环节……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 3322#       发表于 2021-11-29 18:54
+
+她太怕失去粉丝（热度）了，下午在王木木那里监军，可能又浏览论坛，发现新节奏是切割乐子人。她急了。一如不干她屁事的TI决赛回节奏。她平时在直播里拉扯都是节目效果，她怕人走茶凉怕到心理崩溃。这是我的发散。
+
+*****
+
+####  gawain039  
+##### 3323#       发表于 2021-11-29 18:55
+
+弹幕一堆独轮车
+
+*****
+
+####  我有一个朋友  
+##### 3324#       发表于 2021-11-29 18:55
+
+ 本帖最后由 我有一个朋友 于 2021-11-29 18:56 编辑 
+
+好像说错话了……“提线木偶”论……
+syl.顶级拉扯，不愧是你啊
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gawain039  
+##### 3325#       发表于 2021-11-29 18:56
+
+能不讲盗号这事了吗？
+
+*****
+
+####  整活骑士  
+##### 3326#       发表于 2021-11-29 18:56
+
+乐子人的脑回路确实难以理解 放ti你不爱看就走呗 ，还得炒一波。也不知道是rp的弱智还是真弱智
+
+*****
+
+####  星街こうせい  
+##### 3327#       发表于 2021-11-29 18:59
+
+开始拉一批打一批了，文静你开完刀天天躺在床上看毛选是吧
+
+*****
+
+####  胡里奥  
+##### 3328#       发表于 2021-11-29 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她不提纯难道等着乐子人把她变成女版八哥然后踢她功德箱吗
+
+*****
+
+####  gawain039  
+##### 3329#       发表于 2021-11-29 18:59
+
+电脑粉色，手机绿色，很难绷得住
+
+*****
+
+####  tankai  
+##### 3330#       发表于 2021-11-29 18:59
+
+锐评队友不太行，除非你是老板，不然无形给自己和同事造疙瘩。
+
+
+
+*****
+
+####  rgauss  
+##### 3331#       发表于 2021-11-29 19:00
+
+她活太认真了
+
+*****
+
+####  碧波青云  
+##### 3332#       发表于 2021-11-29 19:02
+
+这也太卡了
+
+*****
+
+####  aikkkkk  
+##### 3333#       发表于 2021-11-29 19:03
+
+文静尽力在捡了，_____在干什么？
+
+*****
+
+####  星街こうせい  
+##### 3334#       发表于 2021-11-29 19:03
+
+NGA贴吧豆瓣，鸟综P用没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3335#       发表于 2021-11-29 19:04
+
+不看s1 梁木了
+
+*****
+
+####  gawain039  
+##### 3336#       发表于 2021-11-29 19:04
+
+豆瓣贴吧都看鸟楼都不愿意看吗？
+
+*****
+
+####  袜子  
+##### 3337#       发表于 2021-11-29 19:04
+
+鸟综屁用没有，寄！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  希克苏鲁伯  
+##### 3338#       发表于 2021-11-29 19:04
+
+ 本帖最后由 希克苏鲁伯 于 2021-11-29 19:05 编辑 
+
+看贴吧泥哥豆瓣，不看s1<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">纯良萌萌人输得这么彻底，我要从此🥜吴涛哥
+
+*****
+
+####  haruhiismer  
+##### 3339#       发表于 2021-11-29 19:05
+
+不看s1人之初急了
+
+*****
+
+####  星街こうせい  
+##### 3340#       发表于 2021-11-29 19:05
+
+思思的微博不太看，开始明牌反贼了是吧
+
+*****
+
+####  雨井绫  
+##### 3341#       发表于 2021-11-29 19:05
+
+ 本帖最后由 雨井绫 于 2021-11-29 19:07 编辑 
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+s1，你就是个寄吧！
+
+*****
+
+####  我有一个朋友  
+##### 3342#       发表于 2021-11-29 19:05
+
+豆瓣都看啊，不看S1，输麻了……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gawain039  
+##### 3343#       发表于 2021-11-29 19:06
+
+豆瓣鸟组真的有人吗？
+
+*****
+
+####  灰色的狐狸  
+##### 3344#       发表于 2021-11-29 19:06
+
+为什么不看s1！
+
+*****
+
+####  GAKOTO  
+##### 3345#         楼主| 发表于 2021-11-29 19:06
+
+五块钱果然是天堑吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  整活骑士  
+##### 3346#       发表于 2021-11-29 19:06
+
+豆瓣还有讨论千鸟的？
+
+*****
+
+####  四叶的花  
+##### 3347#       发表于 2021-11-29 19:07
+
+快去给文静发个邀请码
+
+*****
+
+####  T型钉宫病毒  
+##### 3348#       发表于 2021-11-29 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候逛S1V版不需要账号可能就会看了吧
+
+*****
+
+####  gawain039  
+##### 3349#       发表于 2021-11-29 19:07
+
+为什么总想着把粉丝成分查那么清楚呢？人那么复杂，几句弹幕也看不出来什么吧
+
+*****
+
+####  灰色的狐狸  
+##### 3350#       发表于 2021-11-29 19:07
+
+有种中年人的忧伤
+
+*****
+
+####  袜子  
+##### 3351#       发表于 2021-11-29 19:08
+
+发过邀请码了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别问了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  GAKOTO  
+##### 3352#         楼主| 发表于 2021-11-29 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747875&amp;ptid=2013779" target="_blank">整活骑士 发表于 2021-11-29 19:06</a>
+豆瓣还有讨论千鸟的？</blockquote>
+没有，几天冒一个回复，基本都是鸟吧的在烂炒
+
+*****
+
+####  aikkkkk  
+##### 3353#       发表于 2021-11-29 19:08
+
+我宁愿犯错，也不愿意什么都不做！
+
+*****
+
+####  gawain039  
+##### 3354#       发表于 2021-11-29 19:09
+
+两极反转！
+
+*****
+
+####  灰色的狐狸  
+##### 3355#       发表于 2021-11-29 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747896&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-11-29 19:07</a>
+
+为什么总想着把粉丝成分查那么清楚呢？人那么复杂，几句弹幕也看不出来什么吧 ...</blockquote>
+看她说七月份的直播方法
+
+只能说是事业心太强，活得太认真
+
+*****
+
+####  灰色的狐狸  
+##### 3356#       发表于 2021-11-29 19:11
+
+两人抱头痛哭
+
+*****
+
+####  星街こうせい  
+##### 3357#       发表于 2021-11-29 19:11
+
+木木和文静经常在私底下抱头痛哭，剩下3个队友在一边路段。。。
+
+*****
+
+####  gawain039  
+##### 3358#       发表于 2021-11-29 19:12
+
+就不能不讨论这些话题，养好病开茶水间，难道真的回不到过去了吗？
+
+*****
+
+####  星街こうせい  
+##### 3359#       发表于 2021-11-29 19:12
+
+“开播哭又要说我们收大米”
+
+👆不是你今天不就在开播哭收大米吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3360#       发表于 2021-11-29 19:14
+
+宝贝亲亲难以接受
+
+
+
+*****
+
+####  星街こうせい  
+##### 3361#       发表于 2021-11-29 19:17
+
+别抽象混沌系谢谢你了
+
+*****
+
+####  gawain039  
+##### 3362#       发表于 2021-11-29 19:17
+
+做不到抽象主播，被骂就低气压
+
+*****
+
+####  星街こうせい  
+##### 3363#       发表于 2021-11-29 19:19
+
+出现了！“直播员”
+
+*****
+
+####  gawain039  
+##### 3364#       发表于 2021-11-29 19:19
+
+12月份可以正常直播，嗓子需要休息，所以会减少说话强度
+
+*****
+
+####  我有一个朋友  
+##### 3365#       发表于 2021-11-29 19:19
+
+话术很高明。
+“不喜欢看你就润……”
+切割是主播行为，粉丝流失是观众行为。
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  星街こうせい  
+##### 3366#       发表于 2021-11-29 19:20
+
+海子姐的心之壁比我高多了
+
+*****
+
+####  Finsty  
+##### 3367#       发表于 2021-11-29 19:20
+
+梦做得挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3368#       发表于 2021-11-29 19:20
+
+商量放映室问题
+
+*****
+
+####  星街こうせい  
+##### 3369#       发表于 2021-11-29 19:23
+
+ndwd我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3370#       发表于 2021-11-29 19:23
+
+鸟p什么样，千鸟未来的直播就什么样
+
+*****
+
+####  cherrydove  
+##### 3371#       发表于 2021-11-29 19:24
+
+[https://www.bilibili.com/video/BV1YP4y137MN](https://www.bilibili.com/video/BV1YP4y137MN)
+
+楼友们能点个赞么<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  德里达幽灵  
+##### 3372#       发表于 2021-11-29 19:27
+
+听下来有点感概，尤其是对于“队友没活”、“对标A-SOUL”以及道路选择方面上的回应。
+
+如果把直播比作跳舞，A-SOUL的直播就像是穿插了即兴段落的成品舞，而千鸟——以及绝大多数管人——的直播就像是全程freestyle。如果功力没有达到很高的层次，成品舞永远是比freestyle更好看的。
+
+如果千鸟有五个文静，那么或许这五个文静之间的battle还能让人饶有趣味地多看上一两年。
+
+但现在的千鸟没有五个文静，那么她们绝对更适合去搞3D，去试着走偶像道路，去尝试着像隔壁一样用台本去驱动直播。毕竟就算是跳宅舞，也比让毫无舞蹈基本功的人去freestyle更好看<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3373#       发表于 2021-11-29 19:27
+
+新来的是运营小哥
+
+*****
+
+####  星街こうせい  
+##### 3374#       发表于 2021-11-29 19:27
+
+运营哥哥我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3375#       发表于 2021-11-29 19:28
+
+会有live？
+
+*****
+
+####  Finsty  
+##### 3376#       发表于 2021-11-29 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">依然在考虑1月润
+
+*****
+
+####  灰色的狐狸  
+##### 3377#       发表于 2021-11-29 19:30
+
+1月还是有可能散惹
+
+*****
+
+####  夜潇箫  
+##### 3378#       发表于 2021-11-29 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">鸟又要散
+
+*****
+
+####  gawain039  
+##### 3379#       发表于 2021-11-29 19:34
+
+第一页：营收，二创，忘了，大概就是千鸟已有的资本和未来的方向
+
+*****
+
+####  四叶的花  
+##### 3380#       发表于 2021-11-29 19:37
+
+原力:哦牛批还有这种企划，马上撤资
+
+*****
+
+####  星街こうせい  
+##### 3381#       发表于 2021-11-29 19:38
+
+开！
+
+*****
+
+####  人別離苦  
+##### 3382#       发表于 2021-11-29 19:38
+
+？？？<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3383#       发表于 2021-11-29 19:40
+
+草了，关键信息扒网线是吧！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 3384#       发表于 2021-11-29 19:41
+
+？？？盒开？？？
+
+*****
+
+####  gawain039  
+##### 3385#       发表于 2021-11-29 19:44
+
+节奏太多，不敢联动了
+
+*****
+
+####  星街こうせい  
+##### 3386#       发表于 2021-11-29 19:47
+
+是不是傻逼啊是不是傻逼啊还真笑嘻嘻的把运营盾背身上是吧，你知不知道女团企划的运营就是拿来背锅的啊
+
+*****
+
+####  袜子  
+##### 3387#       发表于 2021-11-29 19:53
+
+鸟综又输一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  维斯瓦军团  
+##### 3388#       发表于 2021-11-29 19:53
+
+s1输麻了
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 3389#       发表于 2021-11-29 19:54
+
+问1月毕业的SC是我发的，如果真的要润了也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+这段时间就好好当一个观众了
+
+*****
+
+####  袜子  
+##### 3390#       发表于 2021-11-29 19:55
+
+健康看管，不健康就赶紧跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真心话，看管人就讲究个虚拟醍醐味，顶不住就跑是正确的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  我有一个朋友  
+##### 3391#       发表于 2021-11-29 19:55
+
+太牛了，每次关键时刻全自动消音……
+我已经不知道是我卡还是直播间卡了
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  人別離苦  
+##### 3392#       发表于 2021-11-29 19:57
+
+卡得太诡异了<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 3393#       发表于 2021-11-29 20:01
+
+还惦记那破偶像梦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3394#       发表于 2021-11-29 20:05
+
+不会再当
+
+*****
+
+####  四叶的花  
+##### 3395#       发表于 2021-11-29 20:05
+
+她太会养噶吃了
+
+*****
+
+####  袜子  
+##### 3396#       发表于 2021-11-29 20:14
+
+建议直接找楼友去当运营<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl可以好好的拷打运营了！好耶！勒夫是吧？
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  四叶的花  
+##### 3397#       发表于 2021-11-29 20:15
+
+建议运营开个直播🐦p们给他补补课
+
+*****
+
+####  T型钉宫病毒  
+##### 3398#       发表于 2021-11-29 20:15
+
+找勒夫炒波大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3399#       发表于 2021-11-29 20:17
+
+爱静信静等静，错过前面1小时回放在哪<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3400#       发表于 2021-11-29 20:18
+
+找勒夫也太秀了
+
+*****
+
+####  袜子  
+##### 3401#       发表于 2021-11-29 20:18
+
+运营开播！鸟P给你上课！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我有一个朋友  
+##### 3402#       发表于 2021-11-29 20:18
+
+太对了太对了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+加速加速，一路狂奔……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  haruhiismer  
+##### 3403#       发表于 2021-11-29 20:27
+
+有没有repo，在看斗鱼公务员
+
+*****
+
+####  真·螺旋眼  
+##### 3404#       发表于 2021-11-29 20:28
+
+版主刚想打SC 怎么下播了
+
+*****
+
+####  逸yi  
+##### 3405#       发表于 2021-11-29 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53748922&amp;ptid=2013779" target="_blank">真·螺旋眼 发表于 2021-11-29 20:28</a>
+版主刚想打SC 怎么下播了</blockquote>
+哪个版主
+
+*****
+
+####  T型钉宫病毒  
+##### 3406#       发表于 2021-11-29 20:32
+
+勒夫吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3407#       发表于 2021-11-29 21:22
+
+文静的偶像是个执念，吊着她继续前进
+当然，我觉得文静还是早点放弃那偶像梦吧 国内偶像行不通的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说到底，偶像每个人的定义都不同 也许在某些人心中她已经是偶像了呢
+我来劈思思和艾白了，思思我是真看不懂，她和她粉丝共同构建了一个幻想的梦境，想骂也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+艾白上次节奏炸毛了，现在没啥人冲了。
+
+*****
+
+####  小憨1  
+##### 3408#       发表于 2021-11-29 21:26
+
+如果1月之后文静走了，千鸟还能活吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3409#       发表于 2021-11-29 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749762&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-29 21:26</a>
+如果1月之后文静走了，千鸟还能活吗</blockquote>
+文静现在是千鸟的核心 
+如果文静走了 千鸟就算不死，营收也得掉一半以上 投资估计就黄了
+
+*****
+
+####  小憨1  
+##### 3410#       发表于 2021-11-29 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749856&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-11-29 21:33</a>
+文静现在是千鸟的核心 
+如果文静走了 千鸟就算不死，营收也得掉一半以上 投资估计就黄了 ...</blockquote>
+1月没拉到投资的话文静就走了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 3411#       发表于 2021-11-29 21:35
+
+没看过艾瑞丝直播，感觉现在各个论坛都在车她，咋回事呢
+
+*****
+
+####  bapijun1  
+##### 3412#       发表于 2021-11-29 21:36
+
+ 本帖最后由 bapijun1 于 2021-11-29 21:40 编辑 
+
+文静直播
+
+*****
+
+####  rgauss  
+##### 3413#       发表于 2021-11-29 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749877&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-11-29 21:35</a>
+没看过艾瑞丝直播，感觉现在各个论坛都在车她，咋回事呢</blockquote>
+长期种下的因，现在结果了。
+
+*****
+
+####  莫洛骑士  
+##### 3414#       发表于 2021-11-29 21:55
+
+刚起，听说鸟又要散<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+*****
+
+####  是谁的书画  
+##### 3415#       发表于 2021-11-29 22:05
+
+艾瑞丝是这个“偶像”企划从1.0开始到今天为止最像“偶像”的人，可能这就是原因吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+可惜主役不会是她，所以故事里她也不会圆满
+
+*****
+
+####  夜潇箫  
+##### 3416#       发表于 2021-11-29 22:14
+
+文静1月会不会润<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+琳倒是最像会第一个跑的人
+
+*****
+
+####  cherrydove  
+##### 3417#       发表于 2021-11-29 22:51
+
+co宝已经透明到连润的时候都提不到名字了么
+
+*****
+
+####  伞沢直美  
+##### 3418#       发表于 2021-11-29 22:58
+
+千鸟录播有了，狠狠地补
+
+*****
+
+####  莫洛骑士  
+##### 3419#       发表于 2021-11-29 22:59
+
+V⭕️是个轮回，每次都有从万物竞发生机勃勃到一片狼藉黯然殇魂的故事，巨浪退潮之后观众又会去看下一个V，留在沙滩上的只有碎了一地的梦想<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3420#       发表于 2021-11-29 23:02
+
+巨浪巨浪不断地增长<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  小憨1  
+##### 3421#       发表于 2021-11-29 23:03
+
+要是1月文静真走了，我也润了
+
+*****
+
+####  rgauss  
+##### 3422#       发表于 2021-11-29 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750792&amp;ptid=2013779" target="_blank">cherrydove 发表于 2021-11-29 22:51</a>
+
+co宝已经透明到连润的时候都提不到名字了么</blockquote>
+因为大家都知道co宝走的时候一定会很快就走
+
+*****
+
+####  莫洛骑士  
+##### 3423#       发表于 2021-11-29 23:22
+
+NGA也已经进化成了千鸟唯一认知论坛了，s1依然屁用没有
+
+*****
+
+####  伞沢直美  
+##### 3424#       发表于 2021-11-29 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">NGA贴吧豆瓣都看，就是不看粪海狂蛆婆罗门
+
+*****
+
+####  T型钉宫病毒  
+##### 3425#       发表于 2021-11-29 23:31
+
+ 本帖最后由 T型钉宫病毒 于 2021-11-29 23:33 编辑 
+
+尬黑，主战场依然是阿b评论区，nga和贴吧并列第二，s1不能提罢了
+
+*****
+
+####  huyuanhao120  
+##### 3426#       发表于 2021-11-29 23:46
+
+鸟楼哪里有婆罗门<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3427#       发表于 2021-11-30 00:34
+
+错误的，是因为文静勤俭节约，不想花5块钱。
+
+*****
+
+####  四叶的花  
+##### 3428#       发表于 2021-11-30 00:58
+
+s1还敢出现呢？站直挨打就完事了
+
+*****
+
+####  莫洛骑士  
+##### 3429#       发表于 2021-11-30 01:00
+
+完了，文静表情包无了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

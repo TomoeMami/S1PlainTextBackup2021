@@ -3913,3 +3913,34 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 凶真全语音就离谱
 
+
+
+*****
+
+####  hypnossz86  
+##### 6293#       发表于 2021-11-29 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喷了，嘟嘟噜的怀表又停了
+怎么这世界线都17点多了，嘟嘟噜还是要挂
+
+*****
+
+####  alialex  
+##### 6294#         楼主| 发表于 2021-11-29 21:52
+
+啊？真的又挂了？
+
+*****
+
+####  江戸前ルナ  
+##### 6295#       发表于 2021-11-29 22:11
+
+哈哈，国服也到了这一天了，挂个TAG上B站一堆虐100150200的BOSS视频<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LEOKO~  
+##### 6296#       发表于 2021-11-29 23:16
+
+嘟嘟噜又挂了，真没VICE性
+

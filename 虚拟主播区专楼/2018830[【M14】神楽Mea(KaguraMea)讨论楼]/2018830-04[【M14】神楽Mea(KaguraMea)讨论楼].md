@@ -10294,3 +10294,29 @@ bsyl  改九点了
 —— 来自 HUAWEI NOH-AN00, Android 10上的 S1Next-鹅版 v2.5.2-pl ...</blockquote>
 是我，这个是真的<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 5686#       发表于 2021-11-30 00:54
+
+今天的联动有点好看，笑点不断<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5687#       发表于 2021-11-30 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751958&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-11-30 00:54</a>
+
+今天的联动有点好看，笑点不断</blockquote>
+来丶精彩节选
+
+*****
+
+####  T_Hb  
+##### 5688#       发表于 2021-11-30 01:07
+
+机动战士兰塔姆，无限raise赢了跳脸，输了有钱人的余裕，一般vtuber进来就被威压
+
