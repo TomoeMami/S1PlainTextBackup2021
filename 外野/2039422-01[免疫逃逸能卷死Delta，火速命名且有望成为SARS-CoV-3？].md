@@ -10269,3 +10269,17 @@ Foram identificados 13 casos  ...</blockquote>
 
 不要拿中国生死观去套白皮，人家根本不怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DraQin  
+##### 946#       发表于 2021-11-30 01:09
+
+Omicron对我的直接影响就是
+本来英国回国机票价格一直都贵，但还算稳定
+但自打很多学校同意后续课程可以网课以及变种新闻爆出来后，英国接下来一整年的回国机票价格一夜之间以坐火箭一般的速度直接起飞
+吓得我赶紧以高于正常价但是低于现有最高价不少的价格收了一张明年8月底的票，也顾不得未来9个月的政策变动和直航之类更加虚无缥缈的事情了
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
