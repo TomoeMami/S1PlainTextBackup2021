@@ -14460,3 +14460,21 @@ Q：蔚和凯特琳在床上那幕戏之后，凯特琳问蔚：“那我们呢�
 
 出啥柜呀，这男枪卡牌CP，设计师一个劲想给石锤，但是上头就是不准，我是不信女警蔚能真出柜CP，顶多蔚（但这也太刻板了）
 
+
+
+*****
+
+####  Redis  
+##### 2834#       发表于 2021-11-30 06:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53729615&amp;ptid=2002246" target="_blank">jf8350143 发表于 2021-11-28 08:51</a>
+
+明显归明显，只要没有实锤就会有一堆人拒绝承认，米帝这方面挺保守的。尤其是动画还是游戏里剧情之前，而 ...</blockquote>
+和实锤真没啥区别了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+what about us
+
+这种台词真的还有解读成其他的余地么
+
+没说死也是考虑到不被中东或者我国审查吧
+
