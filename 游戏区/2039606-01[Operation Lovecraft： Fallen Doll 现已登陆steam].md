@@ -877,3 +877,18 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 88#       发表于 2021-11-29 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749499&amp;ptid=2039606" target="_blank">sfour 发表于 2021-11-29 21:03</a>
+话说hs2一直没玩过，但他那个海量mod这游戏有可能实现吗？
+
+—— 来自 S1Fun ...</blockquote>
+不可能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9925,3 +9925,29 @@ ZONG 书记 宣布，为实现非盟确定的2022年60%非洲人口接种新冠�
 
 咱们就是在干实事。
 
+
+
+*****
+
+####  小野賢章  
+##### 914#       发表于 2021-11-29 21:52
+
+不要孤立静止看待经济问题。完全没有疫情，经济就会好了？
+
+如果没有疫情，现在每天的头条可能还是毛衣战。
+
+疫情让我们不好过，但其他国家更不好过，相比之下还算好的。
+
+*****
+
+####  pushare  
+##### 915#       发表于 2021-11-29 22:01
+
+葡超球队 比兰伦斯SAD 队内社区传播 Omicron阳性 13例 球员和工作人员都有
+
+Foram identificados 13 casos da variante Ómicron em Portugal, anunciou, esta segunda-feira, o Instituto Nacional de Saúde Doutor Ricardo Jorge (INSA), adiantando que as 13 amostras positivas estão "associadas a casos de infeção de jogadores do Belenenses SAD, dado que um dos casos positivos terá tido uma viagem recente à África do Sul".
+
+"Os ensaios preliminares efetuados no INSA sugerem, fortemente, que todos os 13 casos associados aos jogadores da Belenenses SAD estejam relacionados com a variante de preocupação Ómicron", lê-se no comunicado do INSA enviado às redações (entretanto, Graça Freitas, diretora-geral de saúde, esclareceu que os casos não são apenas entre jogadores, também há casos no staff).
+
+Para garantir a quebra de cadeias de transmissão e seguindo o princípio da precaução em Saúde Pública, "enquanto se aguardam mais informações relativamente à transmissão, impacto e efetividade vacinal contra a variante Ómicron", o instituto refere que autoridades de saúde "determinaram o isolamento profilático dos contactos dos casos de infeção associados a este surto, independentemente do estado vacinal e do nível de exposição".
+
