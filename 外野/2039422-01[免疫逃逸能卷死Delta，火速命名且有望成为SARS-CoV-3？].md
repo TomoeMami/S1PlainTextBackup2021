@@ -10375,3 +10375,27 @@ Omicron对我的直接影响就是
 基督教国家不奇怪。
 他们可没有什么人定胜天之类的传统。
 
+
+
+*****
+
+####  tclm  
+##### 954#       发表于 2021-11-30 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749227&amp;ptid=2039422" target="_blank">nobady 发表于 2021-11-29 20:48</a>
+这个病毒现在一直在点传染性天赋，致死率的属性点都下降了</blockquote>
+如果我想通关瘟疫公司我也是传染性和耐寒耐热先点满，致死性最后上
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  navarra  
+##### 955#       发表于 2021-11-30 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751208&amp;ptid=2039422" target="_blank">螺纹 发表于 2021-11-29 23:30</a>
+权贵抗体是啥？病愈者的血清？</blockquote>
+欧美有钱人一直在使用克隆单抗来治疗新冠
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -906,3 +906,16 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 —— 来自 S1Fun ...</blockquote>
 不可能，这个ue4做的，之后还要升ue5
 
+
+
+*****
+
+####  永远的访客  
+##### 90#       发表于 2021-11-30 07:20
+
+ 本帖最后由 永远的访客 于 2021-11-30 07:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740695&amp;ptid=2039606" target="_blank">RockingHorse 发表于 2021-11-29 09:14</a>
+
+冲着爱手艺去的，DEMO里完全没体现吗</blockquote>
+我觉得爱手艺是多义梗，这标题其实翻译是MAKE LOVE行动/爱情飞船，差不多在宇宙MMO开乱交PARTY算是不折不扣元宇宙吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
