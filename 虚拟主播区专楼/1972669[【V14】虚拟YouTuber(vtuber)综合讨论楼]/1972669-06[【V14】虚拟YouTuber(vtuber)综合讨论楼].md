@@ -15213,3 +15213,29 @@ YouTube Music Weekend vol.4 開催決定
 
 萌战这东西恶臭程度和无谓程度都比管人还高很多，属于是搜一下都浪费时间的玩意
 
+
+
+*****
+
+####  星街こうせい  
+##### 8668#       发表于 2021-11-29 16:25
+
+是狐狐不是圣皇我不是很认可这个活动的含金量
+
+*****
+
+####  OldGlory  
+##### 8669#       发表于 2021-11-29 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745893&amp;ptid=1972669" target="_blank">星街こうせい 发表于 2021-11-29 16:25</a>
+
+是狐狐不是圣皇我不是很认可这个活动的含金量</blockquote>
+圣皇就是狐狐打下去的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 8670#       发表于 2021-11-29 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 应该吐槽就算是萌战吧都很多年前没人关注这玩意了，不要说一般的ACG相关论坛了，管人还能又炒一把的。。
+

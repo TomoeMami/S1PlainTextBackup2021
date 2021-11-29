@@ -21121,3 +21121,20 @@ Alternative最近这两话看得想睡觉……是制作组拉了还是这段就
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  freyja_wion  
+##### 1489#       发表于 2021-11-29 16:26
+
+<img src="https://p.sda1.dev/3/2f9fe1c2b4d539fc15cb4bbd519c74f7/FYGmLWc6Rv1BG2dqtq7fyYLDW8HbjVwqx8ChHlf39zKEB7SPHaGYWpw4EL4abpVy7Tb22TPw52bsy944.jpg" referrerpolicy="no-referrer">第9話“戦場”あらすじ
+
+　神宮司教官を隊長として臨時編成された武たち第207小隊は、後方警備任務として箱根の塔ヶ島離城に配置された。
+
+　離城には冥夜と容姿が瓜二つの政威大将軍・煌武院悠陽が戦場となった帝都から脱出してきていた。
+
+　第207小隊は悠陽を横浜基地へ送り届ける作戦を開始する。
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
