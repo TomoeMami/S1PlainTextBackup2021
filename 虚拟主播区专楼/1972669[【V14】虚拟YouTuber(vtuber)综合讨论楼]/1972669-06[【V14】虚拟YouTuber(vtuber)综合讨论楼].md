@@ -15405,3 +15405,41 @@ Syl，天开这企划第一次还挺有意思的，参与者都是老熟人
 
 太熟练了，太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 8684#       发表于 2021-11-29 21:25
+
+大家都是成精的老害了
+
+还是想要一个新鲜感
+
+太缝了就没那味儿了
+
+*****
+
+####  Ketestrait  
+##### 8685#       发表于 2021-11-29 21:30
+
+作为游戏民这种直球硬养的实在不在喜好范围内，不是因为芹菜的皮这首播我都看不完<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 8686#       发表于 2021-11-29 21:34
+
+[https://www.youtube.com/watch?v=0nYBKFzC2k8](https://www.youtube.com/watch?v=0nYBKFzC2k8)
+
+【歌】しっとり多め、時間短め、野菜ましまし【戌亥とこ/にじさんじ】
+
+どんどんどん！
+
+*****
+
+####  FCCHua  
+##### 8687#       发表于 2021-11-29 21:39
+
+阿床终于播了，还是歌回<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
