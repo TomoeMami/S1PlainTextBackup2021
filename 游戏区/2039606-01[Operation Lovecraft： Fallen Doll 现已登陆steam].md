@@ -630,3 +630,12 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 就demo那点东西，10分钟就点完了，一点意思都没有
 
+
+
+*****
+
+####  zeromike  
+##### 64#       发表于 2021-11-29 10:39
+
+主打还是画质技术这一块，i社技术力与之相比就完全不行，价格更是算上各种dlc远高于Fallen Doll，唯一且也是最大的优势就是unity mod开发很方便，并且有很大的社区，还有studio模式。
+
