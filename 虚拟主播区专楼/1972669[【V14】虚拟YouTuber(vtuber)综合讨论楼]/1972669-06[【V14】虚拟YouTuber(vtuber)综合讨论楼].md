@@ -15258,3 +15258,22 @@ YouTube Music Weekend vol.4 開催決定
 毕业以后非公开，也算常规操作了
 5点毕业，还赶得上杏6<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 8673#       发表于 2021-11-29 17:44
+
+bora这不就和小千联动了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 看来vspo拿到了任天堂部分授权
+
+*****
+
+####  FCCHua  
+##### 8674#       发表于 2021-11-29 17:44
+
+ 本帖最后由 FCCHua 于 2021-11-29 17:45 编辑 
+
+风怒
+
