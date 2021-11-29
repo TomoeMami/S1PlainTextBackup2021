@@ -639,3 +639,12 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 主打还是画质技术这一块，i社技术力与之相比就完全不行，价格更是算上各种dlc远高于Fallen Doll，唯一且也是最大的优势就是unity mod开发很方便，并且有很大的社区，还有studio模式。
 
+
+
+*****
+
+####  过河小马  
+##### 65#       发表于 2021-11-29 11:00
+
+啥？这种游戏还有线上模式？云X交趴？万人同撸？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

@@ -2052,3 +2052,21 @@ lao mao病了，一个气息晃一个拍子跟不上，相当严重
 
 这里又怎么冒出来这么多妖魔鬼怪，我还以为鸟综人少，正常人比较多。现在有点鸟批大一统了，鸟吧味越来越大。
 
+
+
+*****
+
+####  四叶的花  
+##### 3213#       发表于 2021-11-29 10:42
+
+ 本帖最后由 四叶的花 于 2021-11-29 10:44 编辑 
+
+我一直在🐦综犯病啊，你不会觉得来s1管人区的有什么正常人吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3214#       发表于 2021-11-29 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">都看管人了，还能有啥正常人
+
