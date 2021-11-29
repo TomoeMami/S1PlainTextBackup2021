@@ -855,3 +855,25 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 那个画面还可以，但是模型和动作很粗糙</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那个有不少眼熟的模型，真的很草就是了
 
+
+
+*****
+
+####  sfour  
+##### 86#       发表于 2021-11-29 21:01
+
+草 怎么还能隔好几个小时风怒的
+
+*****
+
+####  sfour  
+##### 87#       发表于 2021-11-29 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745095&amp;ptid=2039606" target="_blank">zeromike 发表于 2021-11-29 15:25</a>
+另外i社还有个优点是可以捏脸，衣服体位不分角色，虽然大部分都是一代代继承自前作。
+
+体位方面fallen doll ...</blockquote>
+话说hs2一直没玩过，但他那个海量mod这游戏有可能实现吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
