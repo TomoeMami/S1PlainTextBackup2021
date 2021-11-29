@@ -477,3 +477,13 @@ LOL也没在动。mio呢mio呢？救一下啊！
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">又是收录 收录个啥
 是打LOL的暗号么
 
+
+
+*****
+
+####  nian1538  
+##### 13550#       发表于 2021-11-29 12:44
+
+突然有个想法
+不会也是sololive吧
+

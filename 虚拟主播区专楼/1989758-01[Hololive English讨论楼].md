@@ -24043,3 +24043,12 @@ Ollie又开始对后辈疯狂贴贴了<img src="https://static.saraba1st.com/ima
 
 果然短视频才是smol模型的正确用法<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M1NG  
+##### 1487#       发表于 2021-11-29 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">日本又封国了，3d化又得搁置了
+
