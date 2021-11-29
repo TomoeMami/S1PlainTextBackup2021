@@ -15296,3 +15296,39 @@ syl 看来vspo拿到了任天堂部分授权
 
 2021-11-29 18:36 上传
 
+
+
+*****
+
+####  winda  
+##### 8676#       发表于 2021-11-29 19:06
+
+<img src="https://img.saraba1st.com/forum/202111/29/190449zjz5q1a2pk1kwm41.png" referrerpolicy="no-referrer">
+
+<strong>ruri.png</strong> (123.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202111/29/190454zbr1j1ojjgozx0gz.png" referrerpolicy="no-referrer">
+
+<strong>wify.png</strong> (55.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 19:04 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bora至少不会像一期那几位一样连头像都没了吧
+
+露露也是档案留半年，azm，江，千南，海夜叉神，0都不留档，像霞那样隐藏后靠列表公开的是少数
+
+*****
+
+####  格林卡罗尔  
+##### 8677#       发表于 2021-11-29 19:11
+
+[https://www.youtube.com/watch?v= ... 9%E9%96%8B%E5%8F%B8](https://www.youtube.com/watch?v=mb8Voo597zI&amp;ab_channel=%E3%83%90%E3%83%BC%E3%83%81%E3%83%A3%E3%83%AB%E5%82%B5%E5%8B%99%E8%80%85youtuber%E5%A4%A9%E9%96%8B%E5%8F%B8)
+
+这管人mc大逃杀开幕毫无紧张感啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

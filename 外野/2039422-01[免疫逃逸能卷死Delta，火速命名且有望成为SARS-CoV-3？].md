@@ -9676,3 +9676,61 @@ what？故意传染中小学生？这什么智熄操作？
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  pushare  
+##### 894#       发表于 2021-11-29 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747772&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-29 18:59</a>
+
+苏格兰确认之前发现的6例omicron均为本地感染，带英这起码传了大半个月了吧 ...</blockquote>
+难怪贾维这行为艺术家要号召G7卫生部长开紧急会议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 895#       发表于 2021-11-29 19:09
+
+ 本帖最后由 汽车屁 于 2021-11-29 19:17 编辑 
+
+[https://wx4.sinaimg.cn/mw690/b4b5059agy1gwmovxuckjj20u03pc7v0.jpg](https://wx4.sinaimg.cn/mw690/b4b5059agy1gwmovxuckjj20u03pc7v0.jpg)
+
+<img src="https://wx4.sinaimg.cn/mw690/b4b5059agy1gwmovxuckjj20u03pc7v0.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  克鲁特尼  
+##### 896#       发表于 2021-11-29 19:15
+
+荷兰那个差点跑掉的都上飞机了，要不是西风骑士团给力，就要润板鸭了
+
+*****
+
+####  冤枉呐  
+##### 897#       发表于 2021-11-29 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747650&amp;ptid=2039422" target="_blank">lysh_233 发表于 2021-11-29 18:51</a>
+你这ID。。。前面这一系列发言，两军交战时被拿来祭旗了一点都不冤枉</blockquote>
+我发言什么了？你说说看呢？
+
+*****
+
+####  混乱之雨  
+##### 898#       发表于 2021-11-29 19:18
+
+这次是瘟疫工厂几点零版本了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vbadvance  
+##### 899#       发表于 2021-11-29 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747609&amp;ptid=2039422" target="_blank">干翻天爱瑠 发表于 2021-11-29 18:49</a>
+
+如果我没记错的话，上一次国内德尔塔流行的源头也是某个关口城市吧
+
+—— 来自 OnePlus LE2100, And ...</blockquote>
+口岸城市压力都挺大的，今年疫情严重的地方除了扬州大都是口岸城市：常年防疫的瑞丽就不说了，额济纳，满洲里，黑河，包括大连。。
+

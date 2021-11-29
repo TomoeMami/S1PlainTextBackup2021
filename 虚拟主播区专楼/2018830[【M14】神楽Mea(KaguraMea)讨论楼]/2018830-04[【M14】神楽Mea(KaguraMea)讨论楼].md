@@ -10121,3 +10121,12 @@ smjb歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" ref
 
 虽然有几个位置的节奏没踩准但还是不错（毕竟这歌还是有点难度的
 
+
+
+*****
+
+####  路人庚  
+##### 5666#       发表于 2021-11-29 19:23
+
+bsyl，东京21点播
+
