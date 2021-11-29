@@ -2368,3 +2368,66 @@ s1真的能打起来吗，感觉按照贴吧的阵营划分，鸟综有的阵营
 
 私信不会也审吧，我还没届到过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3249#       发表于 2021-11-29 15:24
+
+自信点，不会回私信了，happy
+
+*****
+
+####  希克苏鲁伯  
+##### 3250#       发表于 2021-11-29 15:24
+
+木木今天真行阿
+
+*****
+
+####  GAKOTO  
+##### 3251#         楼主| 发表于 2021-11-29 15:27
+
+不会真要转型偶像吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3252#       发表于 2021-11-29 15:28
+
+坏了，我没怎么发过弹幕，但是总感觉傻x弹幕在骂我。<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 3253#       发表于 2021-11-29 15:31
+
+少一点放映室吧，求求了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小憨1  
+##### 3254#       发表于 2021-11-29 15:31
+
+唉，琳把我想说的说完了
+紫色隐藏顶边，绿色你就在那瘫着吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 3255#       发表于 2021-11-29 15:32
+
+不会真有人信文静乃至上次cj是被盗号了吧
+
+*****
+
+####  gawain039  
+##### 3256#       发表于 2021-11-29 15:33
+
+文静你给我下来！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

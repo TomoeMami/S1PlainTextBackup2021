@@ -797,3 +797,24 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 兄啊，你这句应该裱起来送给开发组</blockquote>
 你可能看反了..
 
+
+
+*****
+
+####  h1r0  
+##### 81#       发表于 2021-11-29 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744580&amp;ptid=2039606" target="_blank">穿越护城河 发表于 2021-11-29 14:49</a>
+兄啊，你这句应该裱起来送给开发组</blockquote>
+他这id眼熟，应该是zod的管理员，不用送
+
+*****
+
+####  zeromike  
+##### 82#       发表于 2021-11-29 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745114&amp;ptid=2039606" target="_blank">h1r0 发表于 2021-11-29 15:27</a>
+
+他这id眼熟，应该是zod的管理员，不用送</blockquote>
+早就不是啦，而且是不是管理员跟评价游戏无关
+

@@ -15185,3 +15185,18 @@ YouTube Music Weekend vol.4 開催決定
 
 省一楼，昨晚的世萌首次vtuber场决赛，老爱狗妈狐神乐mea分列1-4位，不过这也就再一次证明了世萌其实只有中国人在玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 8666#       发表于 2021-11-29 15:30
+
+ 本帖最后由 poipanchao 于 2021-11-29 15:38 编辑 
+
+中国人 x
+炒作狗 v
+世盟票数多少啊？
+
+这票数别说asoul了，快跟010的同接五五开了…
+

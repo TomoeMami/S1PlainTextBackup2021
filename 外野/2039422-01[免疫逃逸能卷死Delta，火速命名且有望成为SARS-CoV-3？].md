@@ -9146,3 +9146,56 @@ omicron用某度搜索不出结果是什么鬼
 国外原来每x个月被delta犁一边，现在出来了omicron，每y个月又被犁一遍，要是再出来几个omega，phi啥的，以 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">最后制造出守护神龙维萨拉，然后全体进入冷罐冬眠至一个没有新冠的时代嘛？
 
+
+
+*****
+
+####  kenqqex  
+##### 846#       发表于 2021-11-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744692&amp;ptid=2039422" target="_blank">matrixtheory 发表于 2021-11-29 14:57</a>
+
+国外原来每x个月被delta犁一边，现在出来了omicron，每y个月又被犁一遍，要是再出来几个omega，phi啥的，以 ...</blockquote>
+传颂之物?
+
+*****
+
+####  voluspa  
+##### 847#       发表于 2021-11-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+
+为什么疫情楼里总是要聊经济？</blockquote>
+因为防疫方面已经没啥好讨论的, 兔子考的分数比其他所有地区加起来都要明显高...
+
+所以唯一可以讨论就是: 兔子你考得这么好, 我们很难办啊, 都是同班同学, 你就不能学我们交白卷嘛..
+
+*****
+
+####  狄一琛2019  
+##### 848#       发表于 2021-11-29 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53734375&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-28 18:07</a>
+
+一方面是这个。另外就是他们搞的群体免疫计划可能白搞了。英国人故意传染那么多中小学生的恶心事都做出来 ...</blockquote>
+what？故意传染中小学生？这什么智熄操作？
+
+*****
+
+####  狄一琛2019  
+##### 849#       发表于 2021-11-29 15:33
+
+形势严峻啊，今年冬天又要接着宅了，考虑去屯些乱七八糟的东西，虽然就算封城了基本生活应该不用愁，但是不能网购还是很麻烦
+
+*****
+
+####  武男  
+##### 850#       发表于 2021-11-29 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742258&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 11:29</a>
+
+他们的需求不是无限的
+
+如果疫情持续下去，海外需求萎缩了，货卖给谁啊？ ...</blockquote>
+你只担心经济能否健康发展，这已经类似于美国佬坐着拖拉机逃荒了
+
