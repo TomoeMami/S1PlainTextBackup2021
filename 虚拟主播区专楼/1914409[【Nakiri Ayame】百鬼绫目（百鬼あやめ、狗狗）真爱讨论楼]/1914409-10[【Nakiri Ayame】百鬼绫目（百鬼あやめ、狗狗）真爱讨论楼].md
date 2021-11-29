@@ -601,3 +601,27 @@ LOL也没在动。mio呢mio呢？救一下啊！
 
 绫总怕这个？熬死了多少人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  昆西昆希昆  
+##### 13563#       发表于 2021-11-30 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722839&amp;ptid=1914409" target="_blank">因为你不会 发表于 2021-11-27 16:32</a>
+
+上位绫总一年播两次是吧</blockquote>
+直接不播。虚拟主播的优点就是虚拟感很强<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  昆西昆希昆  
+##### 13564#       发表于 2021-11-30 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53732911&amp;ptid=1914409" target="_blank">cctvyt1 发表于 2021-11-28 15:03</a>
+
+https://vtuber-matome.com/vtuber-19079-153554.html
+
+原来绫总LOL换小号了</blockquote>
+403了 小号id叫啥呀
+

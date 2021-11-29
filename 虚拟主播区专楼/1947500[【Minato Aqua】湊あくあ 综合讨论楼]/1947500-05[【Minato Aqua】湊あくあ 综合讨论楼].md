@@ -15176,3 +15176,29 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 对歌回没了的解释是有版权歌需要切（但是看上去不打算切掉放出来？）
 
+
+
+*****
+
+####  kesoi  
+##### 7233#       发表于 2021-11-30 01:49
+
+看了一半没看下去，有段时间没看她了，怎么玩恐怖游戏还是这样的演技。。。
+
+*****
+
+####  Scardy  
+##### 7234#       发表于 2021-11-30 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53748456&amp;ptid=1947500" target="_blank">越动天下 发表于 2021-11-29 19:55</a>
+
+蹭还是要蹭的好吧 虽然我记得和一位你楼友估计的时间还是相距很远了 ...</blockquote>
+大半个月前说的要蹭的狗子恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新磕娘  
+##### 7235#       发表于 2021-11-30 02:19
+
+又一年过去，明年阿夸生日，看看有什么活
+

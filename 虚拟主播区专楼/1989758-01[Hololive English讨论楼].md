@@ -24052,3 +24052,14 @@ Ollie又开始对后辈疯狂贴贴了<img src="https://static.saraba1st.com/ima
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">日本又封国了，3d化又得搁置了
 
+
+
+*****
+
+####  被子十三  
+##### 1488#       发表于 2021-11-30 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743292&amp;ptid=1989758" target="_blank">M1NG 发表于 2021-11-29 12:58</a>
+日本又封国了，3d化又得搁置了</blockquote>
+之前没接触过，3D化是需要扫描身体参数然后做动捕的吗？如果这样的话中之人实际体型和设定相差太多咋办
+

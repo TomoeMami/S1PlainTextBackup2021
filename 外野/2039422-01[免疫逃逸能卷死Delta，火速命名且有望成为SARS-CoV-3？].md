@@ -10283,3 +10283,83 @@ Omicron对我的直接影响就是
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  faithlifer  
+##### 947#       发表于 2021-11-30 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752048&amp;ptid=2039422" target="_blank">DraQin 发表于 2021-11-30 01:09</a>
+Omicron对我的直接影响就是
+本来英国回国机票价格一直都贵，但还算稳定
+但自打很多学校同意后续课程可以网 ...</blockquote>
+明年8月要多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  DraQin  
+##### 948#       发表于 2021-11-30 03:09
+
+ 本帖最后由 DraQin 于 2021-11-29 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752328&amp;ptid=2039422" target="_blank">faithlifer 发表于 2021-11-29 18:38</a>
+明年8月要多少啊
+
+—— 来自 samsung SM-N9600, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+以我买的这一班经典双芬航方案AY087为例，上礼拜价格是1000磅左右
+英国时间今天凌晨买的是1690磅（Economy Flex可退以及另加一个行李额，然而买了以后才知道芬航上飞机前会再给一个行李额，浪费70磅），不可退的Light减200
+本方案从6月到8月几乎所有时间点都已经是2133起跳，所以给我逮住一个还能1700拿下的日子以后（8.24）我就果断出手了
+其余比如法兰哥本之类的我就不清楚了，没查
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Redis  
+##### 949#       发表于 2021-11-30 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752379&amp;ptid=2039422" target="_blank">DraQin 发表于 2021-11-30 03:09</a>
+
+以我买的这一班经典双芬航方案AY087为例，上礼拜价格是1000磅左右
+
+英国时间今天凌晨买的是1690磅（Econom ...</blockquote>
+1700磅还好啊
+
+*****
+
+####  riczxc  
+##### 950#         楼主| 发表于 2021-11-30 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752000&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-11-30 01:01</a>
+
+不要拿中国生死观去套白皮，人家根本不怕</blockquote>
+起码我有个荷兰的朋友，我问他们，你们80岁入院率那么高，但是没几个进ICU的，没问题吧。他说，我们的观念不大一样，80岁以上算活够了，也就不折腾了，出于类似原因荷兰也有安乐死什么的。
+
+反正是不能理解。
+
+*****
+
+####  DraQin  
+##### 951#       发表于 2021-11-30 04:49
+
+ 本帖最后由 DraQin 于 2021-11-29 21:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752394&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-29 19:20</a>
+1700磅还好啊</blockquote>
+是的，只能说给我捡漏到了还有1700的时间点，还在我的接受范围内
+但是其余大多数时间点的航班我查了下现在就基本都在人民币20000块以上了，还都是不能退票的那种，我买的8.24这一周已经算是唯一还没有沦陷的那个礼拜
+本来如果光看这个价格倒也没什么，疫情下回国机票两三万四五万比比皆是不足为奇，原本我也没指望过能像去时一样5000块钱搞定全套，但是这离我回国还有大半年就搞成这样了，说真的有一点夸张
+要知道这条航线如果是21年回国的话，提前半年买机票就够了，甚至再晚点，4月买8月的机票都还可以8000块钱拿下，现在搞得我只能比预先计划提前小半年就把机票买了
+虽然已知本航线芬航未来会翻倍加班，但一来我判断我已经等不了他们放机票了，先把现有的诺亚方舟抓住再说；二来就算是加了班今年来英国的人也比去年不知道多多少，就加这么点班次我觉得并不会对整体情况有多大改善
+只能说国内有些人嘴上喊着开放共存，但在外华人纷纷用钱包认同了“明年也不可能好到哪去”的共识
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  内野  
+##### 952#       发表于 2021-11-30 05:41
+
+再来几波大的就能吃尸体了
+
