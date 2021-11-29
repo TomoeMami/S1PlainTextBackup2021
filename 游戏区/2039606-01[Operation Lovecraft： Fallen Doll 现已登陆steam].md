@@ -762,3 +762,38 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 要我说还是得学习学**品牌 梅麻吕系列，东方审美的人设、连贯的剧情、流畅的播片方式，沉浸式的电影体验，才是正路。
 
+
+
+*****
+
+####  461757753  
+##### 77#       发表于 2021-11-29 15:22
+
+8
+
+*****
+
+####  461757753  
+##### 78#       发表于 2021-11-29 15:24
+
+<blockquote>461757753 发表于 2021-11-29 15:22
+8</blockquote>
+手滑，别小看i社啊，3d黄油就i社能打了
+
+*****
+
+####  Sissii  
+##### 79#       发表于 2021-11-29 15:25
+
+发ZOD都被人喷的垃圾游戏
+
+*****
+
+####  zeromike  
+##### 80#       发表于 2021-11-29 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744580&amp;ptid=2039606" target="_blank">穿越护城河 发表于 2021-11-29 14:49</a>
+
+兄啊，你这句应该裱起来送给开发组</blockquote>
+你可能看反了..
+

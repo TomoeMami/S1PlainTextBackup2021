@@ -9134,3 +9134,15 @@ omicron用某度搜索不出结果是什么鬼
 
 —— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  kemyes  
+##### 845#       发表于 2021-11-29 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744692&amp;ptid=2039422" target="_blank">matrixtheory 发表于 2021-11-29 14:57</a>
+
+国外原来每x个月被delta犁一边，现在出来了omicron，每y个月又被犁一遍，要是再出来几个omega，phi啥的，以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">最后制造出守护神龙维萨拉，然后全体进入冷罐冬眠至一个没有新冠的时代嘛？
+

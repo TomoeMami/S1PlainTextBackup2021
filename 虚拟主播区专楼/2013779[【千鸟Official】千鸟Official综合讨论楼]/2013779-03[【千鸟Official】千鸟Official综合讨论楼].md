@@ -2343,3 +2343,28 @@ s1真的能打起来吗，感觉按照贴吧的阵营划分，鸟综有的阵营
 
 文静为了自己单飞还偷队友显卡是吧
 
+
+
+*****
+
+####  gawain039  
+##### 3246#       发表于 2021-11-29 15:14
+
+狠狠拷打静女妖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  夜之中道崩殂  
+##### 3247#       发表于 2021-11-29 15:20
+
+拷打新运营，做千鸟的运营，这是他此生绝无仅有的抗压机会。
+
+*****
+
+####  T型钉宫病毒  
+##### 3248#       发表于 2021-11-29 15:21
+
+私信不会也审吧，我还没届到过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
