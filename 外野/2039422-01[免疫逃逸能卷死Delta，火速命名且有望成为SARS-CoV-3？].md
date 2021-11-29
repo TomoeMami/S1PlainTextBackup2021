@@ -10363,3 +10363,15 @@ Omicron对我的直接影响就是
 
 再来几波大的就能吃尸体了
 
+
+
+*****
+
+####  不热爱讨论  
+##### 953#       发表于 2021-11-30 06:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752456&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 04:24</a>
+起码我有个荷兰的朋友，我问他们，你们80岁入院率那么高，但是没几个进ICU的，没问题吧。他说，我们的观 ...</blockquote>
+基督教国家不奇怪。
+他们可没有什么人定胜天之类的传统。
+
