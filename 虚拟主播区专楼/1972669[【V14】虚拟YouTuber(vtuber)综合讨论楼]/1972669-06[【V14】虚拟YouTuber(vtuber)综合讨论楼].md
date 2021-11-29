@@ -15538,3 +15538,66 @@ Sth Never Changes，没意思了，也就淡出了。
 
 20组四人全灭了吧
 
+
+
+*****
+
+####  rzrbtk  
+##### 8695#       发表于 2021-11-30 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751414&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-11-29 23:51</a>
+
+新衣服，吉祥物联动，skb部线下联动，郡神星联动
+
+20组四人全灭了吧</blockquote>
+郡郡杂谈说怎么来热度的时候还有观众建议她先休息半个月再来发衣服嘞<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，现在看来可惜没真搞炒一波大的...新衣服是一年前下的单半年前会限放了图，吉祥物是梦追侧不自闭（很牛）的结果，skb线下也是约了好久，军舰皿是一周年，与其说毕业不如说最近好事很多，而且人家19组还有人童田撑着呢。
+
+其实看到有些人被自推毕业吓得呜呜哇哇的就有点呃，跑路前的那种氛围真的感觉不出来嘛，我相信我郡至少明年才做露脸涩晴女主播！（不过要是被美人coser提早骗走了也没办法）
+
+*****
+
+####  窓付き  
+##### 8696#       发表于 2021-11-30 00:38
+
+😦
+
+<img src="https://img.saraba1st.com/forum/202111/30/003503xs5xsssf15a15c2r.jpg" referrerpolicy="no-referrer">
+
+<strong>xlsHBq6.jpg</strong> (130.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/30/003506xnyu9999d6dt6ebn.jpg" referrerpolicy="no-referrer">
+
+<strong>cK2c55Q.jpg</strong> (70.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/30/003509u8mz1w87wfrg1cp3.jpg" referrerpolicy="no-referrer">
+
+<strong>wd5j8uZ.jpg</strong> (137.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/30/003552hk8jys0r8zx4ru1s.jpg" referrerpolicy="no-referrer">
+
+<strong>Zb8LkAk.jpg</strong> (225.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202111/30/003558l4aaxusu409s4cg2.jpg" referrerpolicy="no-referrer">
+
+<strong>TTXMZzz.jpg</strong> (240.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 00:35 上传
+

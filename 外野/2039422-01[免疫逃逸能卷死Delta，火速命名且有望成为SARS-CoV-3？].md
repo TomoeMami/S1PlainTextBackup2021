@@ -10227,3 +10227,17 @@ Foram identificados 13 casos  ...</blockquote>
 
 真的离谱到家了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  riczxc  
+##### 942#         楼主| 发表于 2021-11-30 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751647&amp;ptid=2039422" target="_blank">Redis 发表于 2021-11-30 00:14</a>
+
+然后南非居然现在疫苗打不动了，因为接种意愿低？
+
+真的离谱到家了 ...</blockquote>
+全部都自然感染过了...
+

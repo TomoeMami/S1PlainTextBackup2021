@@ -14778,3 +14778,38 @@ pay子下午发返图了
 
 四灰毛计划大失败，但鸟可居然没有败给其他人也是一种成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 1322#       发表于 2021-11-30 00:22
+
+不是中报吗？ ksks还有机会吧。
+
+*****
+
+####  kata魂  
+##### 1323#       发表于 2021-11-30 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751723&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-11-30 00:22</a>
+
+不是中报吗？ ksks还有机会吧。</blockquote>
+这已经是结果了，中报的是另一个活动
+
+*****
+
+####  仟音一心  
+##### 1324#       发表于 2021-11-30 00:28
+
+日常手滑（第二次了）
+
+C233A07A-3DD7-4437-B13B-8230AE74E7DD.jpeg
+(153.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202111/30/002822o8tmime8eskjl8ks.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
