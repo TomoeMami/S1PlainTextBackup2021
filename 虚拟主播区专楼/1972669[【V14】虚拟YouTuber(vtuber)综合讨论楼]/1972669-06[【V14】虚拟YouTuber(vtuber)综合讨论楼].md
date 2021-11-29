@@ -15146,3 +15146,24 @@ bora最后的旅团赛很有趣
 看到今天批小将怒斥“大资本入场”搞坏了京晚，心血来潮想去看看索尼搞的那团，看来“大资本”也不是想搞啥 ...</blockquote>
 索尼别的人选就不说了 这些皮一半劣质3D一半差劲可动性烂的L2的 和原立绘都不符合，资源全放在做一小段动画和官网整花里胡哨的噱头然后出道后马上啥支援没有了，说难听点这种“大资本”是根本就瞧不起V圈吧，那你不死谁死，就算从大资本的角度论资本运作也尚不如乐华一根毛了。可惜又有五个姑娘给他坑害了就是，真的毒瘤。
 
+
+
+*****
+
+####  free  
+##### 8663#       发表于 2021-11-29 13:14
+
+[https://www.youtube.com/watch?v=3M7sBBoopug](https://www.youtube.com/watch?v=3M7sBBoopug)
+
+YouTube Music Weekend vol.4 開催決定
+
+管人部分参与名单
+
+<img src="https://img.saraba1st.com/forum/202111/29/131406pc8eo8osoo76w0zc.jpg" referrerpolicy="no-referrer">
+
+<strong>管人.jpg</strong> (80.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 13:14 上传
+
