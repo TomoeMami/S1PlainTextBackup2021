@@ -2008,3 +2008,16 @@ syl，其他四个在这场直播以后还打算和这个月一样继续摆吗<i
 
 静子昨晚果然突了，然而我完全错过令人感慨<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 3209#       发表于 2021-11-29 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731814&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-11-28 13:11</a>
+有没有一种可能，静子会在欧阳晚会之后一个突的击，给我狠狠地收米</blockquote>
+结果还是狠狠的突了，虽然原因不太一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

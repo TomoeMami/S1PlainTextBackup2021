@@ -612,3 +612,12 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 难为楼主还在洗，不知道是交了35美刀的还是交了95美刀的，反正谁相信这骗子要饭组谁傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RockingHorse  
+##### 62#       发表于 2021-11-29 09:14
+
+冲着爱手艺去的，DEMO里完全没体现吗
+

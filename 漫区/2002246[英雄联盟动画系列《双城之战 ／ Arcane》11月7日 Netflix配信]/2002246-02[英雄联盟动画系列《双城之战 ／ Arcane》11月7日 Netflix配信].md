@@ -14304,3 +14304,15 @@ Q：蔚和凯特琳在床上那幕戏之后，凯特琳问蔚：“那我们呢�
 
 果然，这种热点小岛秀夫只会迟到，不会缺席啊
 
+
+
+*****
+
+####  新的起源  
+##### 2819#       发表于 2021-11-29 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740425&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-11-29 08:43:48</a>
+果然，这种热点小岛秀夫只会迟到，不会缺席啊</blockquote>小岛gg觉最近一直这样
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
