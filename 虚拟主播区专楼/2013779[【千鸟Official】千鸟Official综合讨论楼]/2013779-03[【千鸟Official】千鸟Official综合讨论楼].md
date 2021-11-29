@@ -2691,3 +2691,39 @@ syl，之前运营是兼职</blockquote>
 
 而且王木木帮忙兜底应该不止一次了
 
+
+
+*****
+
+####  星街こうせい  
+##### 3283#       发表于 2021-11-29 17:05
+
+文静只不过是王木木的打手罢了🧐
+
+*****
+
+####  夜潇箫  
+##### 3284#       发表于 2021-11-29 17:05
+
+艾瑞思屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不对，只会做饭
+
+*****
+
+####  tankai  
+##### 3285#       发表于 2021-11-29 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746345&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-11-29 16:59</a>
+
+之前回看文静生日会的时候知道她和文静好像是同一天招进来的
+
+这两人应该关系很好，现在看像是一个在前面打 ...</blockquote>
+两人拿到皮的使用权后一夜没睡。。。。。。
+
+*****
+
+####  憧憬鲨  
+##### 3286#       发表于 2021-11-29 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾瑞思这就沦为煮饭婆了吗
+

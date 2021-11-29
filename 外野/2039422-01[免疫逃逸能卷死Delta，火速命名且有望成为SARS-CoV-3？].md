@@ -9477,3 +9477,30 @@ what？故意传染中小学生？这什么智熄操作？
 你担心的到底是疫情结束，还是疫情无法结束？</blockquote>
 我担心疫情结束了米国还阳，也担心疫情不结束的前提下，国内不加强宏观调控，放任现在催出来的产能爆掉
 
+
+
+*****
+
+####  creymorgan  
+##### 877#       发表于 2021-11-29 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746361&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 17:00</a>
+
+我担心疫情结束了米国还阳，也担心疫情不结束的前提下，国内不加强宏观调控，放任现在催出来的产能爆掉 ...</blockquote>
+恰巧我两个都不担心。
+
+即使美国恢复，中国也证明了在全球产业中无可替代。
+
+美国无法恢复，那么中国需要大量的产能来主持世界重构。
+
+*****
+
+####  jy000129  
+##### 878#       发表于 2021-11-29 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731934&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-28 13:24</a>
+南非医生说omicron只导致轻微症状那条新闻果然有问题，根据BNO NEWS报道，Coetzee原本说的是在小部分健康年 ...</blockquote>
+标准的科学家艹妓者母亲
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

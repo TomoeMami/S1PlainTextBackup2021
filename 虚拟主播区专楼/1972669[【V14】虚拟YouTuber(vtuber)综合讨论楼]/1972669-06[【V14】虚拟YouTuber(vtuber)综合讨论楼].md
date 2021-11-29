@@ -15239,3 +15239,12 @@ YouTube Music Weekend vol.4 開催決定
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 应该吐槽就算是萌战吧都很多年前没人关注这玩意了，不要说一般的ACG相关论坛了，管人还能又炒一把的。。
 
+
+
+*****
+
+####  qq845629713  
+##### 8671#       发表于 2021-11-29 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> bora视频全非公开，今天和勇气姐贵和cpt打apex，明天毕业直播维阿kr你做的好啊
+

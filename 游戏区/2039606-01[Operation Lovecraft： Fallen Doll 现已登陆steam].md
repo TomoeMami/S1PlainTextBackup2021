@@ -843,3 +843,15 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 游戏本身一言难尽，但是播片 ...</blockquote>
 那个画面还可以，但是模型和动作很粗糙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  madcow  
+##### 85#       发表于 2021-11-29 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746415&amp;ptid=2039606" target="_blank">zeromike 发表于 2021-11-29 17:03</a>
+
+那个画面还可以，但是模型和动作很粗糙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那个有不少眼熟的模型，真的很草就是了
+
