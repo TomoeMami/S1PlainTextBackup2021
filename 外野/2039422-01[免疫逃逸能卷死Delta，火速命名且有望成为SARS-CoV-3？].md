@@ -8865,3 +8865,42 @@ omicron用某度搜索不出结果是什么鬼
 
 而他们支付能力萎缩之前，总有点可以付出来而且我们要的东西的
 
+
+
+*****
+
+####  冤枉呐  
+##### 819#       发表于 2021-11-29 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742800&amp;ptid=2039422" target="_blank">lifengzhi321 发表于 2021-11-29 12:15</a>
+想想二战时的美国，担心卖不出货吗？
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+二战时候很多国家有战时景气啊，产能可以造在战场上
+
+*****
+
+####  nerugigannte  
+##### 820#       发表于 2021-11-29 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">g7这就召开紧急会议啦？到底发生了些什么
+
+*****
+
+####  冤枉呐  
+##### 821#       发表于 2021-11-29 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742860&amp;ptid=2039422" target="_blank">03e7 发表于 2021-11-29 12:21</a>
+海外生产也萎缩啊，而且必然比需求萎缩更严重。海外需求减少100w，生产减少200w，就相当于多了100万的市 ...</blockquote>
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收入，那时候需求又怎么样呢？
+到了那个点上，国内产能被临时性的需求刺激出的景气咋整
+
+*****
+
+####  冤枉呐  
+##### 822#       发表于 2021-11-29 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743604&amp;ptid=2039422" target="_blank">armedangel 发表于 2021-11-29 13:28</a>
+反正没工开了，要不谈谈第一岛链和瓦森纳协定的事？</blockquote>
+还是要收狗，帮狗治病，让狗买货
+
