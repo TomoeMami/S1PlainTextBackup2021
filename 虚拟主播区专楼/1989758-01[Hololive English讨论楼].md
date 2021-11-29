@@ -24034,3 +24034,12 @@ Danc’in Smol Ame!
 
 Ollie又开始对后辈疯狂贴贴了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimmy1996  
+##### 1486#       发表于 2021-11-29 12:00
+
+果然短视频才是smol模型的正确用法<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

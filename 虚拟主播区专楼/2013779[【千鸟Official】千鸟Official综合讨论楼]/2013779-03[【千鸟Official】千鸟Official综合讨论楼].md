@@ -2139,3 +2139,45 @@ s1真的能打起来吗，感觉按照贴吧的阵营划分，鸟综有的阵营
 贴吧帖子不是被删的差不多了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 我昨天发的批粉色的两贴都没了
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3223#       发表于 2021-11-29 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742685&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-29 12:04</a>
+怎么又风怒</blockquote>
+检查检查自己的网吧，我很少看见鸟综风怒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3224#       发表于 2021-11-29 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742787&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-11-29 12:14</a>
+检查检查自己的网吧，我很少看见鸟综风怒</blockquote>
+5G流量不该这样的，一定是鹅球的问题
+
+*****
+
+####  憧憬鲨  
+##### 3225#       发表于 2021-11-29 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">S1真能打起来吗
+
+*****
+
+####  小憨1  
+##### 3226#       发表于 2021-11-29 12:24
+
+还有这样的
+12.6W粉，主动送上门的血包，文静给我狠狠地吸<img src="https://p.sda1.dev/3/13beea788880731789c43608ccc5f2eb/IMG_CMP_197338304.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3227#       发表于 2021-11-29 12:24
+
+换了WIFI还风怒，真是鹅球的问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

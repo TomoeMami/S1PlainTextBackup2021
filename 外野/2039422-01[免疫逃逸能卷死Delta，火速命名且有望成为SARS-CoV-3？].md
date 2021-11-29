@@ -8559,3 +8559,161 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 复刻去年年初</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西方一直在用种族主义心态防疫的，只要来自白皮国家基本上不设防
 
+
+
+*****
+
+####  苍月·蓝  
+##### 788#       发表于 2021-11-29 11:52
+
+麻了 下年经济也好不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  出言不迅  
+##### 789#       发表于 2021-11-29 11:53
+
+omicron用某度搜索不出结果是什么鬼
+
+*****
+
+####  9号单开道岔  
+##### 790#       发表于 2021-11-29 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739316&amp;ptid=2039422" target="_blank">Duc_d'_Muka 发表于 2021-11-29 01:17:40</a>
+虽然带英声称把航线给断了但我坚定地相信马上又会爆发的</blockquote>第二阶段，也许有事发生，但我们不该采取行动.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  9号单开道岔  
+##### 791#       发表于 2021-11-29 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740085&amp;ptid=2039422" target="_blank">super_uni 发表于 2021-11-29 07:22:00</a>
+看了眼马达加斯加 v2.5.2</blockquote>没啥好看的，南非印度裔多，马达加斯加印度裔多，南非是非洲的金融贸易中心，马达加斯加早就破口了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  LHO  
+##### 792#       发表于 2021-11-29 12:06
+
+会不会是欧美他们早发现了一直没报就等着南非报? 南非那种医疗水准能检测报出来传播应该不短时间了, 欧美那边医疗机构能没有提前检测出来?
+
+*****
+
+####  9号单开道岔  
+##### 793#       发表于 2021-11-29 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740183&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-11-29 07:57:58</a></blockquote>搂草打兔子，以色列这么搞封国，内部隐患也压住了。
+
+不知道巴勒斯坦疫苗覆盖率是多少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  9号单开道岔  
+##### 794#       发表于 2021-11-29 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740183&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-11-29 07:57:58</a></blockquote>搂草打兔子，以色列这么搞封国，内部隐患也压住了。
+
+不知道巴勒斯坦疫苗覆盖率是多少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  米村正二  
+##### 795#       发表于 2021-11-29 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742711&amp;ptid=2039422" target="_blank">9号单开道岔 发表于 2021-11-29 12:07</a>
+搂草打兔子，以色列这么搞封国，内部隐患也压住了。
+
+不知道巴勒斯坦疫苗覆盖率是多少</blockquote>
+约等于零，包皮佬专挑快过期的az送给巴勒斯坦打。
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cube  
+##### 796#       发表于 2021-11-29 12:13
+
+太君那不是说“已经消失”了么，搞得这样风声鹤唳，让拿外务省经费的很难办啊。
+
+*****
+
+####  lifengzhi321  
+##### 797#       发表于 2021-11-29 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742258&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 11:29</a>
+他们的需求不是无限的
+如果疫情持续下去，海外需求萎缩了，货卖给谁啊？ ...</blockquote>
+想想二战时的美国，担心卖不出货吗？
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  土旦克007  
+##### 798#       发表于 2021-11-29 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742711&amp;ptid=2039422" target="_blank">9号单开道岔 发表于 2021-11-29 12:07</a>
+
+搂草打兔子，以色列这么搞封国，内部隐患也压住了。
+
+不知道巴勒斯坦疫苗覆盖率是多少</blockquote>
+基本没有，然后我还记得去年看到的一则新闻，巴勒斯坦控制区内唯一的新冠检测实验室被以色列军机炸毁......
+
+*****
+
+####  03e7  
+##### 799#       发表于 2021-11-29 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742258&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 11:29</a>
+
+他们的需求不是无限的
+
+如果疫情持续下去，海外需求萎缩了，货卖给谁啊？ ...</blockquote>
+海外生产也萎缩啊，而且必然比需求萎缩更严重。海外需求减少100w，生产减少200w，就相当于多了100万的市场空缺
+
+*****
+
+####  g54088  
+##### 800#       发表于 2021-11-29 12:21
+
+日本也锁国了啊，慌得一比。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  L.L  
+##### 801#       发表于 2021-11-29 12:23
+
+11区居然都能反应这么快的？
+
+*****
+
+####  L.L  
+##### 802#       发表于 2021-11-29 12:23
+
+ 本帖最后由 L.L 于 2021-11-29 12:25 编辑 
+
+风怒。
+
+*****
+
+####  03e7  
+##### 803#       发表于 2021-11-29 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742677&amp;ptid=2039422" target="_blank">9号单开道岔 发表于 2021-11-29 12:03</a>
+
+没啥好看的，南非印度裔多，马达加斯加印度裔多，南非是非洲的金融贸易中心，马达加斯加早就破口了
+
+ ...</blockquote>
+那是瘟疫公司梗啦，马达加斯加是最难传播的地区之一
+
