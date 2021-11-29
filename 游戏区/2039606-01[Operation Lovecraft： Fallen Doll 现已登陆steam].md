@@ -621,3 +621,12 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 冲着爱手艺去的，DEMO里完全没体现吗
 
+
+
+*****
+
+####  Jimlee079  
+##### 63#       发表于 2021-11-29 10:18
+
+就demo那点东西，10分钟就点完了，一点意思都没有
+

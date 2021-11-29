@@ -8658,3 +8658,14 @@ king和queen的强度 不愧是大看板
 
 看完新一话，阎魔强度跟御田没什么关系
 
+
+
+*****
+
+####  klzxs  
+##### 56176#       发表于 2021-11-29 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然没关系啊 你甚至可以说御田才是沾了阎魔的光
+
+但读者是真的有点御田ptsd了
+

@@ -15027,3 +15027,50 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 希望影响不大
 
+
+
+*****
+
+####  越动天下  
+##### 7216#       发表于 2021-11-29 10:04
+
+通知都发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋会事
+
+*****
+
+####  越动天下  
+##### 7217#       发表于 2021-11-29 10:05
+
+ 本帖最后由 越动天下 于 2021-11-29 10:06 编辑 
+
+风怒
+
+*****
+
+####  越动天下  
+##### 7218#       发表于 2021-11-29 10:05
+
+风怒
+
+*****
+
+####  越动天下  
+##### 7219#       发表于 2021-11-29 10:05
+
+风怒
+
+*****
+
+####  星の守  
+##### 7220#       发表于 2021-11-29 10:16
+
+难得的连续直播，楼友疑似太激动了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/29/101535sqi1irehazeiq1wp.jpg" referrerpolicy="no-referrer">
+
+<strong>FFU2xtZakAA1saD-orig.jpg</strong> (224.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 10:15 上传
+

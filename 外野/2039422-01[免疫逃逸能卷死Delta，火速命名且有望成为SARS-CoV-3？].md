@@ -8452,3 +8452,30 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我有个猜想，之前欧洲大爆发会不会其实就是omicron，只不过是南非倒霉测序上报了，所以被当源头了
 
+
+
+*****
+
+####  creymorgan  
+##### 777#       发表于 2021-11-29 10:10
+
+<blockquote>kiragz 发表于 2021-11-29 09:56
+我有个猜想，之前欧洲大爆发会不会其实就是omicron，只不过是南非倒霉测序上报了，所以被当源头了 ...</blockquote>
+不大可能，因为我国入境病例是全测序的，如果早就在欧洲大量出现，极少的概率才会一个我们的入境病例都不是。
+
+*****
+
+####  riczxc  
+##### 778#         楼主| 发表于 2021-11-29 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53741110&amp;ptid=2039422" target="_blank">kiragz 发表于 2021-11-29 09:56</a>
+我有个猜想，之前欧洲大爆发会不会其实就是omicron，只不过是南非倒霉测序上报了，所以被当源头了 ...</blockquote>
+欧洲测序不少的。别幻想了，更大的还没来。现在只是delta而已。
+
+*****
+
+####  creymorgan  
+##### 779#       发表于 2021-11-29 10:16
+
+欧洲的爆发已经在以色列和新加坡预演过了，就是疫苗效果逐渐到期德尔塔大爷又回来了。
+
