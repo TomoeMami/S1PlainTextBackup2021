@@ -8403,3 +8403,12 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 丹麦检出两例南非输入，约堡飞阿姆斯特丹的那两个航班的61个阳性里确认了13个，但肯定不止这些。另外荷兰佬 ...</blockquote>
 传统异能了， 只检测非洲来的航班，自然都是非洲输入<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Khvarenah  
+##### 772#       发表于 2021-11-29 07:57
+
+<img src="https://p.sda1.dev/3/2b6a674e5f9723c6d24bbf370e20a73c/IMG_CMP_195014091.jpeg" referrerpolicy="no-referrer">
+
