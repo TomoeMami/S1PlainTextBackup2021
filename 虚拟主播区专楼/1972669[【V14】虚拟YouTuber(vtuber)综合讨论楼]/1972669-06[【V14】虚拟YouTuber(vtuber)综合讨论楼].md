@@ -15459,3 +15459,62 @@ Syl，天开这企划第一次还挺有意思的，参与者都是老熟人
 
 阿床是不是刚发现油管把👎藏了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星街こうせい  
+##### 8690#       发表于 2021-11-29 22:45
+
+にじさんじ運営の別サービス「ユメノグラフィア」を急にクビにされたVtuber50人、抗議運動を開始。えにから社長の田角に謝罪を求める
+[http://hebi.5ch.net/test/read.cgi/news4vip/1638193626](http://hebi.5ch.net/test/read.cgi/news4vip/1638193626)
+
+👆これマジ？やばくない？<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 8691#       发表于 2021-11-29 22:51
+
+不靠自己靠喜欢的人来鄙视别人不是好习惯捏。
+
+*****
+
+####  SuntoryNomu  
+##### 8692#       发表于 2021-11-29 22:54
+
+<blockquote>눈보라❄💜ヌンボラ【NIJISANJI KR】
+
+@BoraNun2434
+
+あとこれ、非公開のやつっていうか
+
+色々あって乗せれなかったけど
+
+一部だけでも残しとく🐣</blockquote>
+
+[https://twitter.com/BoraNun2434/status/1465242629596057603](https://twitter.com/BoraNun2434/status/1465242629596057603)
+
+<img src="https://img.saraba1st.com/forum/202111/29/224204p3p1srob3baus1ab.png" referrerpolicy="no-referrer">
+
+<strong>29224057.png</strong> (96.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 22:42 上传
+
+以下内容需要积分高于 1 才可浏览
+
+日常地雷发言。
+
+以下内容需要积分高于 30000 才可浏览
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">毕竟没什么可看的了。
+
+和现实事件有关系吧，和露露毕业也有关系吧。谁知道呢。
+
+Sth Never Changes，没意思了，也就淡出了。
+
+最近也只看某个VR主播了，单纯感觉她很可爱，偷偷地看看而已。
+
+认知恐惧症，repo也只是开个私人楼罢了。
+

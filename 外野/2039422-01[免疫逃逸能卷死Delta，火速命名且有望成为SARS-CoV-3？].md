@@ -10066,3 +10066,27 @@ Foram identificados 13 casos  ...</blockquote>
 我国拥有领先的新冠防治经 ...</blockquote>
 的确，我觉得他们肯定之前有发现不对劲的地方了，正好南非爆出来了就顺势扣上去
 
+
+
+*****
+
+####  creymorgan  
+##### 926#       发表于 2021-11-29 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750552&amp;ptid=2039422" target="_blank">砥草 发表于 2021-11-29 22:31</a>
+
+目前来说，我觉得最诡异的是南非刚刚上报，欧洲日本就如此果断迅速的紧急断航。
+
+我国拥有领先的新冠防治经 ...</blockquote>
+我的看法很简单，现在有钱人依赖的单克隆抗体和抗体鸡尾酒面对奥米克戎要不灵了
+
+于是在出现足够多痊愈者拿他们抽血筛出抗体前，有钱人希望扩散尽可能慢一点。
+
+*****
+
+####  最好不说  
+##### 927#       发表于 2021-11-29 22:56
+
+目前全世界omicron确诊184例 ，疑似1120例，比起昨天增加的不算很多，但各主要国家基本都有了，接下来就看omicron和delta的劲爆双人舞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/ce8f9cb5bbbc6b5779e0ac36cf2d0df7/20211129.PNG" id="aimg_Y8hz4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
