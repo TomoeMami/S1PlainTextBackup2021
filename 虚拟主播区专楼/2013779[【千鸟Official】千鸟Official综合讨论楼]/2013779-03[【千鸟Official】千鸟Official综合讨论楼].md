@@ -2021,3 +2021,16 @@ syl，其他四个在这场直播以后还打算和这个月一样继续摆吗<i
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  明镜止水s  
+##### 3210#       发表于 2021-11-29 09:26
+
+ 本帖最后由 明镜止水s 于 2021-11-29 09:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53739969&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-11-29 05:40</a>
+
+秋晚成了🤡有点不甘心，但是或许一头冷水让大家冷静下也是件好事，10月末已经出现了一些无处可去的粉丝横冲 ...</blockquote>
+lao mao病了，一个气息晃一个拍子跟不上，相当严重
+

@@ -14316,3 +14316,15 @@ Q：蔚和凯特琳在床上那幕戏之后，凯特琳问蔚：“那我们呢�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2820#       发表于 2021-11-29 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738780&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-11-29 00:22</a>
+
+梅尔确实有很多巨神峰元素，如果拳头想，靠这些伏笔保下她也说得过去。。。总体还是看第二季的剧本要求。。 ...</blockquote>
+但是目前好像也没有梅尔跟巨神峰有联系的暗示吧
+
