@@ -8803,3 +8803,65 @@ omicron用某度搜索不出结果是什么鬼
 
 西方政府回旋太快，有些人都跟不上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小野賢章  
+##### 813#       发表于 2021-11-29 13:23
+
+如果 O 变种真的很厉害，那反应快也没啥用，只要不清零，也就是把爆发时间往后推一点而已<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rilakkuma  
+##### 814#       发表于 2021-11-29 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">总比没反应强啊，毕竟我国现在也不是完全和海外断绝
+
+*****
+
+####  creymorgan  
+##### 815#       发表于 2021-11-29 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743529&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-11-29 13:21</a>
+
+这次西方反应那么快的？真就那么可怕？
+
+当然以他们的应对方法来说，是一点用都没</blockquote>
+西方国家对奥米克戎特别控制，但也不控死，这样会控制疫情发展速度，好达到一定数量的国民感染并痊愈后疫情尚未彻底失控的状态。此时就可以从自己同族的痊愈者体内抽出大量的血清，从中筛选出最好的抗体，给付得起钱的人带来保护。
+
+*****
+
+####  armedangel  
+##### 816#       发表于 2021-11-29 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742258&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 11:29</a>
+他们的需求不是无限的
+如果疫情持续下去，海外需求萎缩了，货卖给谁啊？ ...</blockquote>
+反正没工开了，要不谈谈第一岛链和瓦森纳协定的事？
+
+*****
+
+####  voluspa  
+##### 817#       发表于 2021-11-29 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743477&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-29 13:14</a>
+
+据荷兰国家电视台NOS：两名来自南非、新冠检测呈阳性的旅客在逃离荷兰一家隔离酒店并试图乘坐飞往西班牙的 ...</blockquote>
+罗马传统, 皿煮, 目田那是市民的权利, 黑奴不算市民...<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  creymorgan  
+##### 818#       发表于 2021-11-29 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742258&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 11:29</a>
+
+他们的需求不是无限的
+
+如果疫情持续下去，海外需求萎缩了，货卖给谁啊？ ...</blockquote>
+人的需求当然是无限的。
+
+而他们支付能力萎缩之前，总有点可以付出来而且我们要的东西的
+
