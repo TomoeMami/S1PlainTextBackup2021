@@ -8443,3 +8443,12 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 【吴尊友：#疫苗接种+72小时核酸阴性入境策略不符合我国情景#】中国疾病预防控制中心流行病学首席专家吴尊 ...</blockquote>
 就是这么个道理。
 
+
+
+*****
+
+####  kiragz  
+##### 776#       发表于 2021-11-29 09:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我有个猜想，之前欧洲大爆发会不会其实就是omicron，只不过是南非倒霉测序上报了，所以被当源头了
+
