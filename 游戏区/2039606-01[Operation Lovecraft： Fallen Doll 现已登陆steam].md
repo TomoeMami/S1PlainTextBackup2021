@@ -686,3 +686,12 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 那应该叫联网验证，也不是线上模式啊</blockquote>
 强制在线咯
 
+
+
+*****
+
+####  Ik4ruga  
+##### 70#       发表于 2021-11-29 11:55
+
+交了保护费没有啊就硬广
+

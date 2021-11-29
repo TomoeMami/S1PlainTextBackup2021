@@ -2121,3 +2121,21 @@ s1真的能打起来吗，感觉按照贴吧的阵营划分，鸟综有的阵营
 
 贴吧不前几天就在混战么
 
+
+
+*****
+
+####  小憨1  
+##### 3221#       发表于 2021-11-29 12:04
+
+贴吧帖子不是被删的差不多了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我昨天发的批粉色的两贴都没了
+
+*****
+
+####  小憨1  
+##### 3222#       发表于 2021-11-29 12:04
+
+贴吧帖子不是被删的差不多了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我昨天发的批粉色的两贴都没了
+
