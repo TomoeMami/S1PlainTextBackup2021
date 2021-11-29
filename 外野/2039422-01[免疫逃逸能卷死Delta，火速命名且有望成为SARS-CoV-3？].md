@@ -8904,3 +8904,96 @@ omicron用某度搜索不出结果是什么鬼
 反正没工开了，要不谈谈第一岛链和瓦森纳协定的事？</blockquote>
 还是要收狗，帮狗治病，让狗买货
 
+
+
+*****
+
+####  钞君  
+##### 823#       发表于 2021-11-29 14:07
+
+日本也
+
+【速報】政府　全世界から外国人の“入国停止”を発表
+[https://news.yahoo.co.jp/article ... fd52e0320b9301ded18](https://news.yahoo.co.jp/articles/e0eb2d3a03d7658b16e80fd52e0320b9301ded18)
+
+*****
+
+####  creymorgan  
+##### 824#       发表于 2021-11-29 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743995&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:05</a>
+
+海外供给比需求萎缩得快，但是这玩意不是没有底的。这么持续下去，绝大多数海外的人收入下降，甚至没有收 ...</blockquote>
+需求当然是来自对方全面接受新马歇尔计划呀。
+
+*****
+
+####  gane1010  
+##### 825#       发表于 2021-11-29 14:09
+
+ 本帖最后由 gane1010 于 2021-11-29 14:14 编辑 
+
+前段时间一堆人yygq国内不开放 各种讽刺  新冠真是喜欢打脸
+
+*****
+
+####  冤枉呐  
+##### 826#       发表于 2021-11-29 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53743747&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 13:41</a>
+人的需求当然是无限的。
+
+而他们支付能力萎缩之前，总有点可以付出来而且我们要的东西的 ...</blockquote>
+你这话讲的，流浪汉当然有“需要”，他这个“需要”能转化成“需求”嘛？
+疫情砸烂海外产能，会刺激出国内的景气，但是没有产能的海外，是没办法永远买足你的景气的
+现在是美元充当黄金的时代，但是绿纸不是真黄金，美匪政府往死里印钱，要么印到最后印成废纸，要么是我国捏鼻子扛他的超发
+
+*****
+
+####  冤枉呐  
+##### 827#       发表于 2021-11-29 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744042&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-29 14:09</a>
+需求当然是来自对方全面接受新马歇尔计划呀。</blockquote>
+喷了
+马歇尔计划那是因为战争可以赢，可以按着对方头签无条件投降。赢了下面可以开心建设。
+新冠怎么赢呐？你说他啥时候能消失？
+
+*****
+
+####  内野  
+##### 828#       发表于 2021-11-29 14:15
+
+等他们没有产能了 我们开航母过去啊 不然造来参观的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 829#       发表于 2021-11-29 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53712884&amp;ptid=2039422" target="_blank">忧伤的宝贝 发表于 2021-11-26 18:15</a>
+你这是鼠目寸光，它们人死多了，高端产业就没人搞了，等我们抢占了高端产业，还需要这点出口的蝇头小利？ ...</blockquote>
+国内扩出来的中低端产能你打个响指就能变身成高端呐？
+市场经济可不是计划指令
+
+*****
+
+####  EP2  
+##### 830#       发表于 2021-11-29 14:18
+
+跳过了Nu和Xi，who很懂嘛
+
+*****
+
+####  creymorgan  
+##### 831#       发表于 2021-11-29 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744127&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:15</a>
+
+国内扩出来的中低端产能你打个响指就能变身成高端呐？
+
+市场经济可不是计划指令 ...</blockquote>
+旧高端没了不就是相对高端
+
+还想享受到旧高端那就主动移到还能保证生产的地方去。
+
