@@ -10090,3 +10090,85 @@ Foram identificados 13 casos  ...</blockquote>
 目前全世界omicron确诊184例 ，疑似1120例，比起昨天增加的不算很多，但各主要国家基本都有了，接下来就看omicron和delta的劲爆双人舞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/ce8f9cb5bbbc6b5779e0ac36cf2d0df7/20211129.PNG" id="aimg_Y8hz4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+
+*****
+
+####  riczxc  
+##### 928#         楼主| 发表于 2021-11-29 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750552&amp;ptid=2039422" target="_blank">砥草 发表于 2021-11-29 22:31</a>
+
+目前来说，我觉得最诡异的是南非刚刚上报，欧洲日本就如此果断迅速的紧急断航。
+
+我国拥有领先的新冠防治经 ...</blockquote>
+上面说的权贵抗体免死金牌被破，这个理由就足够了。
+
+再说，阴间变种多得是，如果没有南非这次的爆发，没有人会当回事。
+
+如果以前有了，那反而千万不能封关。
+
+*****
+
+####  www151007  
+##### 929#       发表于 2021-11-29 23:29
+
+我估计。人类真的可能要永久改变生活习惯了。
+
+*****
+
+####  螺纹  
+##### 930#       发表于 2021-11-29 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751134&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-29 23:24</a>
+
+上面说的权贵抗体免死金牌被破，这个理由就足够了。</blockquote>
+权贵抗体是啥？病愈者的血清？
+
+
+
+*****
+
+####  www151007  
+##### 931#       发表于 2021-11-29 23:32
+
+当地时间11月28日，据澳大利亚SBS广播公司报道，澳大利亚新增两例奥密克戎变异毒株感染病例。
+
+反对将奥密克戎与德尔塔“种族隔离”
+
+就在澳政府宣布收紧防疫措施同一天，澳大利亚已连续三周举行大规模抗议活动，有网民反映，甚至还有抗议者称，反对将奥密克戎变异毒株与其在澳大利亚的德尔塔“朋友”隔离，称“这是种族歧视和种族隔离”。
+
+*****
+
+####  kurono  
+##### 932#       发表于 2021-11-29 23:38
+
+哎，外国这群只会仰卧起坐的虫豸……（通辽UP主语气
+
+突出一个 竖子不足与谋啊
+
+*****
+
+####  الطائر  
+##### 933#       发表于 2021-11-29 23:39
+
+“奥密克戎”太难听，不如叫“欧美克隆”
+
+*****
+
+####  lindley  
+##### 934#       发表于 2021-11-29 23:41
+
+美国和他的朋友国们这次这么果断，很难让人觉得不是在操纵心理预期耶，要么就是资本家们又在炒股了
+
+*****
+
+####  riczxc  
+##### 935#         楼主| 发表于 2021-11-29 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751208&amp;ptid=2039422" target="_blank">螺纹 发表于 2021-11-29 23:30</a>
+
+权贵抗体是啥？病愈者的血清？</blockquote>
+
+可制造的单克隆抗体。有钱有权的话，轻症都可以随便打。
+
