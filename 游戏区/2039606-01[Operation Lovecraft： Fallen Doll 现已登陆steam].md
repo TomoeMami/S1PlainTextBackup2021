@@ -648,3 +648,41 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 啥？这种游戏还有线上模式？云X交趴？万人同撸？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  筒井彩芽  
+##### 66#       发表于 2021-11-29 11:10
+
+我还以为是新作，点进去一看这不是八百年前的demo吗，vr下优化还是一样的屎...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四宫家印  
+##### 67#       发表于 2021-11-29 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53741880&amp;ptid=2039606" target="_blank">过河小马 发表于 2021-11-29 11:00</a>
+
+啥？这种游戏还有线上模式？云X交趴？万人同撸？</blockquote>
+线上模式重点就是避免被破解吧
+
+*****
+
+####  过河小马  
+##### 68#       发表于 2021-11-29 11:20
+
+<blockquote>四宫家印 发表于 2021-11-29 11:15
+线上模式重点就是避免被破解吧</blockquote>
+那应该叫联网验证，也不是线上模式啊
+
+*****
+
+####  四宫家印  
+##### 69#       发表于 2021-11-29 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53742112&amp;ptid=2039606" target="_blank">过河小马 发表于 2021-11-29 11:20</a>
+
+那应该叫联网验证，也不是线上模式啊</blockquote>
+强制在线咯
+

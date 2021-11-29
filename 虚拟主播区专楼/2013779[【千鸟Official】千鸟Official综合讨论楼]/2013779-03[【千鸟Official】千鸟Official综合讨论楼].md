@@ -2070,3 +2070,29 @@ lao mao病了，一个气息晃一个拍子跟不上，相当严重
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">都看管人了，还能有啥正常人
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3215#       发表于 2021-11-29 11:05
+
+别tm套盾了，我说的正常人和妖魔鬼怪是啥意思懂得都懂，不懂也不想和你们解释。反正一股鸟8味越来越冲就是了。
+
+*****
+
+####  小憨1  
+##### 3216#       发表于 2021-11-29 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧毒唯混战刚结束，S1开始成分战了吗
+
+*****
+
+####  小憨1  
+##### 3217#       发表于 2021-11-29 11:18
+
+ 本帖最后由 小憨1 于 2021-11-29 11:20 编辑 
+
+风怒编辑
+可以预测一下NGA接下来打啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

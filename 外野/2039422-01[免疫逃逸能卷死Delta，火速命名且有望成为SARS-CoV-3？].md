@@ -8506,3 +8506,13 @@ hk这样子的话，omicron不还是还含有e484q还是e484k么，反正也是�
 
 美帝不测序  就没有
 
+
+
+*****
+
+####  科技新闻搬运工  
+##### 783#       发表于 2021-11-29 11:24
+
+当地时间11月27日，意大利罗马儿童医院科研团队发布新冠病毒新型变异毒株奥密克戎的全球首张图片。<img src="http://www.news.cn/politics/2021-11/28/1128109024_16380767503591n.png" referrerpolicy="no-referrer">
+<img src="http://www.news.cn/politics/1128109024_16380767035771n.webp" referrerpolicy="no-referrer">"><img src="http://www.news.cn/politics/2021-11/28/1128109024_16380768245661n.png" referrerpolicy="no-referrer">"><img src="http://www.news.cn/politics/2021-11/28/1128109024_16380769604331n.jpg" referrerpolicy="no-referrer">">　　近期在南非检出的新型变异毒株，因传染性强，甚至可能导致新冠康复者二次感染而备受关注。中国工程院院士钟南山27日表示，目前对该变种病毒还没有太多了解，但这种病毒携带大量突变，对防疫工作也提出了更多挑战。
+
