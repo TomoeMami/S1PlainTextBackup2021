@@ -15332,3 +15332,14 @@ syl 看来vspo拿到了任天堂部分授权
 
 这管人mc大逃杀开幕毫无紧张感啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 8678#       发表于 2021-11-29 19:42
+
+[https://www.youtube.com/watch?v=HRPr9NmEiTQ](https://www.youtube.com/watch?v=HRPr9NmEiTQ)
+
+油男这个让弹幕来演队里宝可梦的玩法真有意思
+
