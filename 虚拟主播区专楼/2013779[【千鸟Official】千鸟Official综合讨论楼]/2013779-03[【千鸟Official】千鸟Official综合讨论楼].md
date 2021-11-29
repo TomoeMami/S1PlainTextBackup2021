@@ -2181,3 +2181,76 @@ s1真的能打起来吗，感觉按照贴吧的阵营划分，鸟综有的阵营
 
 换了WIFI还风怒，真是鹅球的问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜潇箫  
+##### 3228#       发表于 2021-11-29 12:30
+
+陆鳐本来身体不太好，沾上文静，这下又要出毛病了<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 3229#       发表于 2021-11-29 12:30
+
+风怒
+
+*****
+
+####  灰色的狐狸  
+##### 3230#       发表于 2021-11-29 12:31
+
+楼上风怒什么情况
+
+为什么还有10万粉的过来找文静
+忒怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  灰色的狐狸  
+##### 3231#       发表于 2021-11-29 12:31
+
+鹅球出问题了淦
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  夜之中道崩殂  
+##### 3232#       发表于 2021-11-29 12:32
+
+怒起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 3233#       发表于 2021-11-29 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是新时代的船票，不要看不起啊
+
+*****
+
+####  qihaiqihai  
+##### 3234#       发表于 2021-11-29 12:37
+
+<img src="https://img.saraba1st.com/forum/202111/29/123620ozfaukvdpgg6vlvk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211129074940.png</strong> (32.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 12:36 上传
+
+ 有没有大佬啊，好奇真的假的？
+
+*****
+
+####  四叶的花  
+##### 3235#       发表于 2021-11-29 12:38
+
+未来是文静的时代，现在登船还来得及🖖
+
