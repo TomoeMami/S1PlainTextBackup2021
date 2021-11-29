@@ -9536,3 +9536,51 @@ what？故意传染中小学生？这什么智熄操作？
 
 会不会到最后变成：几十年后，我们出国的方式就是穿着防护服拿着铳，去把文明的火种带到丧尸横行的世界其他地方。。。
 
+
+
+*****
+
+####  干翻天爱瑠  
+##### 883#       发表于 2021-11-29 18:34
+
+满洲里会不会是Omicron呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  干翻天爱瑠  
+##### 884#       发表于 2021-11-29 18:34
+
+满洲里会不会是Omicron呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  克鲁特尼  
+##### 885#       发表于 2021-11-29 18:37
+
+<blockquote>干翻天爱瑠 发表于 2021-11-29 18:34
+满洲里会不会是Omicron呢
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+希望别是，要不然按这架势今年北方是很难过了
+
+*****
+
+####  汽车屁  
+##### 886#       发表于 2021-11-29 18:40
+
+ 本帖最后由 汽车屁 于 2021-11-29 18:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53747400&amp;ptid=2039422" target="_blank">干翻天爱瑠 发表于 2021-11-29 18:34</a>
+
+满洲里会不会是Omicron呢
+
+—— 来自 OnePlus LE2100, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+内蒙古满洲里市于11月28日早8时，全面开展首次大规模核酸检测工作。29日8时，首轮全员核酸检测工作全面完成，共采集样本175554人份，检测出阳性样本60份。
+
+-------------------
+
+在全员检测面前，alpha，德尔塔，欧米茄，区别并不大
+

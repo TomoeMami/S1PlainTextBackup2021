@@ -16406,3 +16406,17 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 1月会加中国车+打折
 
+
+
+*****
+
+####  xsummer  
+##### 1487#       发表于 2021-11-29 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740376&amp;ptid=2033303" target="_blank">wzy200912345 发表于 2021-11-29 08:35</a>
+
+如何赢蛇头？只要队友退光了就必赢拉！</blockquote>
+这几把蛇头就有病，路人傻逼队友还特别喜欢选x级的车，跑起来直接掉到队尾，都没我s1的车跑得快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+周末净跟傻逼网友斗智斗勇了
+

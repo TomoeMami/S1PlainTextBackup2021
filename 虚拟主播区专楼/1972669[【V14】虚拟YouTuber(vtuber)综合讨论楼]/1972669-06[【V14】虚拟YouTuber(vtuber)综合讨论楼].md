@@ -15277,3 +15277,22 @@ syl 看来vspo拿到了任天堂部分授权
 
 风怒
 
+
+
+*****
+
+####  free  
+##### 8675#       发表于 2021-11-29 18:36
+
+ 本帖最后由 free 于 2021-11-29 18:37 编辑 
+
+这irys只能立个纸板和人家3D的联动，然后宣布live又上不了，那叫人家干啥来呢，多尴尬啊...
+
+<img src="https://img.saraba1st.com/forum/202111/29/183612z9bb7uafj5p5f9b8.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (75.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-29 18:36 上传
+
