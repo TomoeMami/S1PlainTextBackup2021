@@ -737,3 +737,28 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 不如i社+1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  穿越护城河  
+##### 75#       发表于 2021-11-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53741623&amp;ptid=2039606" target="_blank">zeromike 发表于 2021-11-29 10:39</a>
+
+主打还是画质技术这一块，i社技术力与之相比就完全不行，价格更是算上各种dlc远高于Fallen Doll，唯一且也 ...</blockquote>
+兄啊，你这句应该裱起来送给开发组
+
+*****
+
+####  昴星长明  
+##### 76#       发表于 2021-11-29 14:55
+
+ 本帖最后由 昴星长明 于 2021-11-29 14:59 编辑 
+
+纯以GHS为主要内容的游戏，FALLEN DOLL这种形式（其他例子如马头社新作）就是最垃圾的；
+
+整特么上十好几个G，真正的颜色内容就是几段零散GIF循环播放，难以施法，实用性极低；
+
+要我说还是得学习学**品牌 梅麻吕系列，东方审美的人设、连贯的剧情、流畅的播片方式，沉浸式的电影体验，才是正路。
+

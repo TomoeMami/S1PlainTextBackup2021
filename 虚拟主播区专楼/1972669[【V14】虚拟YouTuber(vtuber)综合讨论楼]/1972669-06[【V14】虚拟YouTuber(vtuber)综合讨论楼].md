@@ -15167,3 +15167,21 @@ YouTube Music Weekend vol.4 開催決定
 
 2021-11-29 13:14 上传
 
+
+
+*****
+
+####  死体残留  
+##### 8664#       发表于 2021-11-29 14:45
+
+7/12<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一半以上的杏了
+
+*****
+
+####  free  
+##### 8665#       发表于 2021-11-29 15:00
+
+这种活动反正就照着名气最大的请了，上一届我记得杏是烂货圆脸azki死神律可，虹是委员长德龙raindrops，再加个太子，不过看了几个都是播片，没啥大意思
+
+省一楼，昨晚的世萌首次vtuber场决赛，老爱狗妈狐神乐mea分列1-4位，不过这也就再一次证明了世萌其实只有中国人在玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

@@ -9056,3 +9056,81 @@ omicron用某度搜索不出结果是什么鬼
 为什么疫情楼里总是要聊经济？</blockquote>
 因为总有人想证明清零会导致经济下滑，是错的
 
+
+
+*****
+
+####  L.L  
+##### 838#       发表于 2021-11-29 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744429&amp;ptid=2039422" target="_blank">lyjssj 发表于 2021-11-29 14:39</a>
+为什么疫情楼里总是要聊经济？</blockquote>
+因为中已输，疫情数据上没办法扯就只能说经济了，但去年全世界gdp数据在那里只能说未来中己输。
+
+*****
+
+####  creymorgan  
+##### 839#       发表于 2021-11-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744322&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:30</a>
+
+现在要不是美匪放水，就已经很可怕了
+
+美匪放水，那就没问题了嘛？</blockquote>
+你要和疫情从来没出现的平行世界过比经济，那肯定是比不过，至少发生世界经济规则大洗牌之前肯定比不过。
+
+*****
+
+####  mwj  
+##### 840#       发表于 2021-11-29 14:49
+
+老实说，如果真的国外需求萎缩到那种地步，那中国还想什么做生意，该想的是红旗插满蓝星吧......
+
+
+
+*****
+
+####  钦念以忱  
+##### 841#       发表于 2021-11-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744088&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 14:12</a>
+
+喷了
+
+马歇尔计划那是因为战争可以赢，可以按着对方头签无条件投降。赢了下面可以开心建设。
+
+新冠怎么赢呐 ...</blockquote>
+在当地设立党委和人民代表大会，不就可以赢了。
+
+*****
+
+####  高龙  
+##### 842#       发表于 2021-11-29 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53744165&amp;ptid=2039422" target="_blank">EP2 发表于 2021-11-29 14:18</a>
+
+跳过了Nu和Xi，who很懂嘛</blockquote>
+现在**就是个黑人。之前一段时间新冠政治化闹得凶，中国警惕中对此必然反应敏感且在新冠医疗产品供应中是核心地位。肯定这两个要避讳。
+
+*****
+
+####  creymorgan  
+##### 843#       发表于 2021-11-29 14:52
+
+反正我个人对疫情的结束是极为乐观的
+
+三种针对不同靶点的小分子口服药呼之欲出。
+
+然后鸡尾酒一下，效果好副作用小抗药性弱，疫情的负担基本上就过去了。
+
+到时候日常备少量普克鲁胺当作高危接触后的阻断剂，哪怕查出阳性药房直接给你一套鸡尾酒口服药，不能叫正常但已经不算社会负担。
+
+*****
+
+####  matrixtheory  
+##### 844#       发表于 2021-11-29 14:57
+
+国外原来每x个月被delta犁一边，现在出来了omicron，每y个月又被犁一遍，要是再出来几个omega，phi啥的，以后干脆冬眠吧，每17个月或者19个月出来活动一次<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
