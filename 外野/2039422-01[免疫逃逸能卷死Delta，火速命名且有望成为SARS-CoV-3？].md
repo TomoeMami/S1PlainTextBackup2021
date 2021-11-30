@@ -12036,3 +12036,87 @@ ER满了又能怎样，去抢床吗？</blockquote>
 
 他也表示，专付对付Omicron的疫苗要花几个月的时间才能大量生产，莫德纳「和辉瑞无法下周就生出10剂…但能在夏天前生产几十亿剂吗？当然可以。」</blockquote>
 
+
+
+*****
+
+####  greemoore1981  
+##### 1099#       发表于 2021-12-1 07:04
+
+儿童入院病例里重症率多少？
+
+*****
+
+####  riczxc  
+##### 1100#         楼主| 发表于 2021-12-1 07:06
+
+南非的病例增长速度回到了3-4天翻番了，比起爆发delta欧洲糟糕多了：
+
+[https://twitter.com/GosiaGasperoPhD/status/1465542126037463043](https://twitter.com/GosiaGasperoPhD/status/1465542126037463043)
+
+rsa.jpeg
+(143.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 07:05 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/070558nlahkiaaujz6uiak.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 1101#         楼主| 发表于 2021-12-1 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765781&amp;ptid=2039422" target="_blank">greemoore1981 发表于 2021-12-1 07:04</a>
+
+儿童入院病例里重症率多少？</blockquote>
+貌似还没有什么数据。也就爆发了几个星期？
+
+*****
+
+####  greemoore1981  
+##### 1102#       发表于 2021-12-1 07:15
+
+这变体传过去欧美只是时间问题，毕竟不是全球都对南非禁航，我更感兴趣的是后遗症是否会更严重
+
+*****
+
+####  烦死了  
+##### 1103#       发表于 2021-12-1 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765758&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 06:51</a>
+
+美股今天反弹以后又跌，大家觉得是被Moderna的CEO吓到了。</blockquote>
+BNT 老总beg to differ
+
+BioNTech CEO says vaccine likely to protect against severe COVID from Omicron
+
+BNT CEO 说 疫苗防重症还是大概率有用，接着奏乐接着舞<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[https://www.reuters.com/business ... omicron-2021-11-30/](https://www.reuters.com/business/healthcare-pharmaceuticals/biontech-ceo-says-current-vaccine-likely-protect-against-severe-covid-omicron-2021-11-30/)
+
+*****
+
+####  riczxc  
+##### 1104#         楼主| 发表于 2021-12-1 07:17
+
+ 本帖最后由 riczxc 于 2021-12-1 07:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765794&amp;ptid=2039422" target="_blank">greemoore1981 发表于 2021-12-1 07:15</a>
+
+这变体传过去欧美只是时间问题，毕竟不是全球都对南非禁航，我更感兴趣的是后遗症是否会更严重 ...</blockquote>
+
+谁知道什么后遗症，大家都在猜。要有数据那一年乃至几年后了。
+
+不过都无所谓，然后让小朋友染疫。英国还直接承认了就是直接让学生染疫。
+
+*****
+
+####  riczxc  
+##### 1105#         楼主| 发表于 2021-12-1 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765794&amp;ptid=2039422" target="_blank">greemoore1981 发表于 2021-12-1 07:15</a>
+
+这变体传过去欧美只是时间问题，毕竟不是全球都对南非禁航，我更感兴趣的是后遗症是否会更严重 ...</blockquote>
+还有就是，已经在欧美了。
+
