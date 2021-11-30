@@ -954,3 +954,26 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  绚烂航迹云  
+##### 94#       发表于 2021-11-30 12:39
+
+closed beta开了，云鉴黄师们来冲一波了
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lzh1993  
+##### 95#         楼主| 发表于 2021-11-30 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53756208&amp;ptid=2039606" target="_blank">绚烂航迹云 发表于 2021-11-30 12:39</a>
+
+closed beta开了，云鉴黄师们来冲一波了
+
+----发送自 Sony XQ-AT72,Android 11</blockquote>
+都在抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

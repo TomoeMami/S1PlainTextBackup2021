@@ -10541,3 +10541,74 @@ Omicron对我的直接影响就是
 死的是老人白皮可以说优化 ...</blockquote>
 仿斯巴达例，死剩种的素质惊人，碾压眯眯眼…………
 
+
+
+*****
+
+####  いみじくも萌二  
+##### 970#       发表于 2021-11-30 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755839&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 12:08</a>
+
+不太妙啊，据彭博社报道，在南非Omicron疫情的震中，婴幼儿占全部入院病例的10%
+
+死的是老人白皮可以说优化 ...</blockquote>
+筛选穷人，引进高端移民！usa输不了
+
+*****
+
+####  24k纯帅  
+##### 971#       发表于 2021-11-30 12:26
+
+其实不测序就不会知道什么变种吧，话说我们之前一直以为蛊王是印度，妹想到，
+
+*****
+
+####  天国直通车  
+##### 972#       发表于 2021-11-30 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755839&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 12:08</a>
+不太妙啊，据彭博社报道，在南非Omicron疫情的震中，婴幼儿占全部入院病例的10%
+
+死的是老人白皮可以说优化 ...</blockquote>
+白皮有让新生儿感冒“增加抵抗力”的传统，我国国内流传的“感冒能自愈”谬论出自白皮反智传统。
+
+同时白皮还认为“新冠只是小感冒”，所以等看戏就行了
+
+*****
+
+####  天国直通车  
+##### 973#       发表于 2021-11-30 12:29
+
+ 本帖最后由 天国直通车 于 2021-11-30 12:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53756069&amp;ptid=2039422" target="_blank">24k纯帅 发表于 2021-11-30 12:26</a>
+其实不测序就不会知道什么变种吧，话说我们之前一直以为蛊王是印度，妹想到， ...</blockquote>
+真正的盅王其实是诞生于交通枢纽，例如沙特、美国等，南非还只能提供地区盅王作为全球盅王侯选
+
+*****
+
+####  内野  
+##### 974#       发表于 2021-11-30 12:39
+
+这波国外新生人口减少，又赢麻了
+
+*****
+
+####  博丽灵梦的御币  
+##### 975#       发表于 2021-11-30 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要古维为在知乎发起进攻，一切都会好起来的
+
+*****
+
+####  Niceday  
+##### 976#       发表于 2021-11-30 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53756072&amp;ptid=2039422" target="_blank">天国直通车 发表于 2021-11-30 12:26</a>
+白皮有让新生儿感冒“增加抵抗力”的传统，我国国内流传的“感冒能自愈”谬论出自白皮反智传统。
+
+同时白 ...</blockquote>
+别的不说，感冒的确就是自限性的啊。
+
+特别是病毒性感冒，所有的药都只是缓解症状。
+
