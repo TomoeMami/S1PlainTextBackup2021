@@ -10770,3 +10770,61 @@ Omicron对我的直接影响就是
 其实不测序就不会知道什么变种吧，话说我们之前一直以为蛊王是印度，妹想到， ...</blockquote>
 先开大的输，我觉得印度还没开大
 
+
+
+*****
+
+####  wanxx  
+##### 991#       发表于 2021-11-30 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53704600&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-26 04:39</a>
+
+新冠死亡率不高不低最要命。
+
+如果能上10%，那至少发达国家全清零了。</blockquote>
+感染的人基数大 医院处理不归来
+
+死亡率用另一种方式拉高了
+
+*****
+
+####  西风之哀  
+##### 992#       发表于 2021-11-30 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53757239&amp;ptid=2039422" target="_blank">罗蒙诺索夫 发表于 2021-11-30 14:15</a>
+
+有没有人统计过一个人最多能够感染几次新冠</blockquote>
+你的问题近似于：
+
+一个人最多能感染几次冠状病毒？
+
+然后近似于：
+
+一个人最多能感冒几次？
+
+*****
+
+####  FenixTB  
+##### 993#       发表于 2021-11-30 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53757503&amp;ptid=2039422" target="_blank">西风之哀 发表于 2021-11-30 14:34</a>
+
+你的问题近似于：
+
+一个人最多能感染几次冠状病毒？</blockquote>
+The answer, my friend, is blowin' in the wind
+
+The answer is blowin' in the wind~♪
+
+*****
+
+####  海关  
+##### 994#       发表于 2021-11-30 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752379&amp;ptid=2039422" target="_blank">DraQin 发表于 2021-11-30 03:09</a>
+
+以我买的这一班经典双芬航方案AY087为例，上礼拜价格是1000磅左右
+
+英国时间今天凌晨买的是1690磅（Econom ...</blockquote>
+辛苦了~欢迎明年回来~
+
