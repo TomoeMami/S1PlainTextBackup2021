@@ -11886,3 +11886,118 @@ ER满了又能怎样，去抢床吗？
 
 美国的医保就更好玩了，首先最穷的肯定没医保，然后稍微有点钱的医保也不可能包救护车。
 
+
+
+*****
+
+####  Niceday  
+##### 1087#       发表于 2021-12-1 06:28
+
+美国共和党和民主党这两年狗脑子都要打出来了。 民主党的地盘上要是真的发生了大爆发而没有报道，共和党早就拿出来搞事了，不要以为那群政客会有任何考虑到国家利益，以大局为重的想法。  反之也一样。
+
+泥潭很多对于美国的阴谋论，任何了解美国社会撕裂有多严重的人都要笑死的。
+
+*****
+
+####  sin.yugi  
+##### 1088#       发表于 2021-12-1 06:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765726&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-11-30 17:28</a>
+美国共和党和民主党这两年狗脑子都要打出来了。 民主党的地盘上要是真的发生了大爆发而没有报道，共和党早 ...</blockquote>
+先定义一下大爆发？
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  riczxc  
+##### 1089#         楼主| 发表于 2021-12-1 06:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765723&amp;ptid=2039422" target="_blank">休達 发表于 2021-12-1 06:22</a>
+
+冷链卡车当停尸房用，只要不把人当人。就不会存在挤兑。
+
+ER满了又能怎样，去抢床吗？</blockquote>
+卡车不都发臭了吗，这种笑话不可能看不出来的。
+
+*****
+
+####  sin.yugi  
+##### 1090#       发表于 2021-12-1 06:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765702&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 17:01</a>
+总要埋的吧？烧也好，埋也好，都会挤兑的。问问从业人员就知道的事情，哪里瞒得住。</blockquote>
+流浪汉根本就没有了去er的概念,自生自灭
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  riczxc  
+##### 1091#         楼主| 发表于 2021-12-1 06:35
+
+ 本帖最后由 riczxc 于 2021-12-1 06:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765732&amp;ptid=2039422" target="_blank">sin.yugi 发表于 2021-12-1 06:32</a>
+
+先定义一下大爆发？
+
+— from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.2-play</blockquote>
+
+就是上年纽约四月份那种应死尽死啊。按照初期新冠的传播速度，100万人染疫也不过是翻倍20次。2.5天的翻倍速度用不了50天。
+
+*****
+
+####  休達  
+##### 1092#       发表于 2021-12-1 06:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765733&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 06:33</a>
+卡车不都发臭了吗，这种笑话不可能看不出来的。</blockquote>
+冷链卡车啊……就是平时拉牛肉的那种，纽约疫情高峰的时候每个医院门口一堆。
+
+*****
+
+####  Niceday  
+##### 1093#       发表于 2021-12-1 06:37
+
+ 本帖最后由 Niceday 于 2021-12-1 06:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765732&amp;ptid=2039422" target="_blank">sin.yugi 发表于 2021-12-1 06:32</a>
+
+先定义一下大爆发？
+
+— from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.2-play</blockquote>
+
+人口密集的城市，面对新冠传入躺平不做任何事，包括口罩疫苗隔离等超过一个月后的情况。
+
+*****
+
+####  riczxc  
+##### 1094#         楼主| 发表于 2021-12-1 06:41
+
+ 本帖最后由 riczxc 于 2021-12-1 06:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765739&amp;ptid=2039422" target="_blank">休達 发表于 2021-12-1 06:37</a>
+
+冷链卡车啊……就是平时拉牛肉的那种，纽约疫情高峰的时候每个医院门口一堆。 ...</blockquote>
+
+就是有卡车没电最后发臭了，没听说？
+
+停在医院外所以还是医疗挤兑了吧。都不傻的。
+
+*****
+
+####  configxxxx  
+##### 1095#       发表于 2021-12-1 06:42
+
+你们说的这个事跟O变种有关系吗？没有要不要考虑单开一个楼？
+
+*****
+
+####  riczxc  
+##### 1096#         楼主| 发表于 2021-12-1 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765745&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-1 06:42</a>
+
+你们说的这个事跟O变种有关系吗？没有要不要考虑单开一个楼？</blockquote>
+不好意思，歪楼了。
+
+我继续发O变种的消息吧。
+
