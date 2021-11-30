@@ -10612,3 +10612,17 @@ Omicron对我的直接影响就是
 
 特别是病毒性感冒，所有的药都只是缓解症状。
 
+
+
+*****
+
+####  钦念以忱  
+##### 977#       发表于 2021-11-30 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53745751&amp;ptid=2039422" target="_blank">小妻水亚美 发表于 2021-11-29 16:13</a>
+
+今年这情形，国内估计又要鼓励原地过年了，连着两年不回家过年，很多人估计蛮难受的。
+
+希望探亲假的政策，z ...</blockquote>
+后新冠时代，家族团聚可以从冬天改成夏天。
+
