@@ -11273,3 +11273,39 @@ moderna这个老板是说了老实话
 
 没失效就可以用它的单一疫苗全面替代。
 
+
+
+*****
+
+####  riczxc  
+##### 1037#         楼主| 发表于 2021-11-30 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760992&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 19:29</a>
+果然，再生元的单抗挂了。再生元公司初步试验表明，其抗体药物鸡尾酒疗法对奥密克戎变异株失去效力。  ...</blockquote>
+果然如此。血清分型实锤一半。
+
+*****
+
+####  yario  
+##### 1038#       发表于 2021-11-30 20:10
+
+西方国家都是畜生。这个新变种大概率又是不测序的美帝搞出来的
+
+*****
+
+####  Vneet  
+##### 1039#       发表于 2021-11-30 20:19
+
+从无印被zz化搞成斗争对立的一开始就已经一错到底了，现在zz化没无印那时那么浓但想防疫正常化那也已经迟了。
+
+*****
+
+####  nerugigannte  
+##### 1040#       发表于 2021-11-30 20:23
+
+ 本帖最后由 nerugigannte 于 2021-11-30 20:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760981&amp;ptid=2039422" target="_blank">对羟基笨甲酸 发表于 2021-11-30 19:28</a>
+
+也还好中国国力强了，不然跟西班牙一样因为诚实永载负面史册</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">虽然名面上没，但现在很多人也被发达国家阵营xi nao成起源是武汉了
+

@@ -3988,3 +3988,18 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 主要画面太窄外加手机操作也不方便
 
+
+
+*****
+
+####  hypnossz86  
+##### 6300#       发表于 2021-11-30 20:01
+
+ 本帖最后由 hypnossz86 于 2021-11-30 20:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53761159&amp;ptid=1570791" target="_blank">DRAGONBLEAPIECE 发表于 2021-11-30 19:45</a>
+
+比起当年现在有好玩点了吗</blockquote>
+没有(
+
+不过3d机娘手游这个独一份，甚至放到单机游戏里这类型现在也没有了......
+
