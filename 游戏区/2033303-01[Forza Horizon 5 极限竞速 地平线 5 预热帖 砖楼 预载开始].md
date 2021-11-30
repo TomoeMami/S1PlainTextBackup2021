@@ -16518,3 +16518,17 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 一定要在线做也太傻逼了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开个UU 关掉Q盾
 
+
+
+*****
+
+####  诶哟卧草  
+##### 1497#       发表于 2021-11-30 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755402&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-30 11:35</a>
+晚上的判定好像的确有点问题，你觉得够晚了但系统不觉得
+季节目标不显示完成的有可能是因为你当时 ...</blockquote>
+原来是掉线了？我一直以为是游戏bug，感觉去做个别的任务再回来做就好了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

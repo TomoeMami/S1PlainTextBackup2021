@@ -10506,3 +10506,38 @@ Omicron对我的直接影响就是
 就算我国，再打一遍疫苗（对抗新变异株），也会更加艰难。而且财政啊，目前我们打了20亿剂以上，就算按某些 ...</blockquote>
 存人失地，人地皆存。
 
+
+
+*****
+
+####  最好不说  
+##### 967#       发表于 2021-11-30 12:08
+
+不太妙啊，据彭博社报道，在南非Omicron疫情的震中，婴幼儿占全部入院病例的10% <blockquote>Children under the age of 2 account for about 10% of total hospital admissions in the omicron epicenter Tshwane in South Africa, according to the National Institute for Communicable Diseases.
+
+“It does however appear that in this early part of this wave a higher proportion of children are being admitted than they were in the past,” Jaffat said.</blockquote>
+死的是老人白皮可以说优化人口结构，死的是下一代呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  克鲁特尼  
+##### 968#       发表于 2021-11-30 12:23
+
+<blockquote>最好不说 发表于 2021-11-30 12:08
+不太妙啊，据彭博社报道，在南非Omicron疫情的震中，婴幼儿占全部入院病例的10%
+
+死的是老人白皮可以说优化 ...</blockquote>
+就和1918大流感一样，后面二三波才是全年龄制霸
+
+*****
+
+####  罗莉控  
+##### 969#       发表于 2021-11-30 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755839&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 12:08</a>
+
+不太妙啊，据彭博社报道，在南非Omicron疫情的震中，婴幼儿占全部入院病例的10%
+
+死的是老人白皮可以说优化 ...</blockquote>
+仿斯巴达例，死剩种的素质惊人，碾压眯眯眼…………
+
