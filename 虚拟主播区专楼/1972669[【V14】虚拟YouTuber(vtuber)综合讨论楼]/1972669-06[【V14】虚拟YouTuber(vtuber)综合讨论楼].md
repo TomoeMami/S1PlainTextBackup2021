@@ -15713,3 +15713,23 @@ md，黑客这下给我整不会了
 
 又想起上上周杂谈说“没有好告知，但是有坏告知”了，只有毕业不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8708#       发表于 2021-11-30 09:29
+
+彩虹当初新项目铺的有多爽，现在砍的就有多痛？
+看起来挺干脆的样子。
+下饺子估计也是这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 8709#       发表于 2021-11-30 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩虹好死
+
+直接整成隔壁万世一箱得了
+

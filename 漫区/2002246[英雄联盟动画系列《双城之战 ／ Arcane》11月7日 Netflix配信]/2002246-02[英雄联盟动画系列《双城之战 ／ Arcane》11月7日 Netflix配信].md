@@ -14478,3 +14478,17 @@ what about us
 
 没说死也是考虑到不被中东或者我国审查吧
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2835#       发表于 2021-11-30 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752540&amp;ptid=2002246" target="_blank">Redis 发表于 2021-11-30 06:26</a>
+
+和实锤真没啥区别了
+
+what about us</blockquote>
+剧情留白，给观众点想象空间挺好，创作上有自由，还能堵政治正确的嘴，比那些强加给角色某样属性的强多了
+
