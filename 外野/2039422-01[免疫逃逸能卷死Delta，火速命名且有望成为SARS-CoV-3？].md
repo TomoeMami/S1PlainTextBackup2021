@@ -10828,3 +10828,39 @@ The answer is blowin' in the wind~♪
 英国时间今天凌晨买的是1690磅（Econom ...</blockquote>
 辛苦了~欢迎明年回来~
 
+
+
+*****
+
+####  makiRicardo  
+##### 995#       发表于 2021-11-30 14:46
+
+<img src="https://img.saraba1st.com/forum/202111/30/144622yakwrbrr1yb01hki.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 14:46 上传
+
+*****
+
+####  pushare  
+##### 996#       发表于 2021-11-30 14:46
+
+日本共同社：在日本发现的首例奥密克戎毒株感染患者此前去过纳米比亚。
+
+*****
+
+####  voluspa  
+##### 997#       发表于 2021-11-30 15:03
+
+真是统一甩锅给非洲的感觉呢..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 998#       发表于 2021-11-30 15:06
+
+欧美日说好和病毒共存，病毒真来了，又着急忙慌禁航，真●叶公好龙
+
