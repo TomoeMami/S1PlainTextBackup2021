@@ -1029,3 +1029,17 @@ closed beta开了，云鉴黄师们来冲一波了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  rgm2000  
+##### 101#       发表于 2021-11-30 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53758983&amp;ptid=2039606" target="_blank">不见不散 发表于 2021-11-30 16:37</a>
+
+啥时候更新完啥时候买，我被惩戒魅魔坑了可不能再被坑一次
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+惩戒魅魔起码是30多R不是35刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
