@@ -10726,3 +10726,47 @@ Omicron对我的直接影响就是
 
 【中疾控专家：#现有疫苗对奥密克戎仍有效#，#我国正在研制针对变异株疫苗#】中国疾控中心病毒病预防控制所所长许文波指出，应对奥密克戎，新冠疫苗目前仍然是有效的，能有效降低重症和死亡，并且可以降低感染发生规模。但针对不同变异毒株的传播力及其免疫逃避能力，疫苗的作用还有待观察。因此，第二代苗或针对新的变异株的疫苗研制、技术储备都在做。#超10国确诊奥密克戎新冠变异株#[http://t.cn/A6xopHUK](http://t.cn/A6xopHUK)
 
+
+
+*****
+
+####  lazyboy  
+##### 987#       发表于 2021-11-30 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755839&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 12:08</a>
+不太妙啊，据彭博社报道，在南非Omicron疫情的震中，婴幼儿占全部入院病例的10%
+
+死的是老人白皮可以说优化 ...</blockquote>
+物竞天择，适者生存！在压力下产生了适合新时代的人类NewType！
+
+—— 来自 HUAWEI EVR-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  桐名  
+##### 988#       发表于 2021-11-30 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53756069&amp;ptid=2039422" target="_blank">24k纯帅 发表于 2021-11-30 12:26</a>
+
+其实不测序就不会知道什么变种吧，话说我们之前一直以为蛊王是印度，妹想到， ...</blockquote>
+当初搞出了αβγ之后还是我恒河Δ大杀四方
+
+恒河水，浪里个浪，后浪永远拍前浪<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  罗蒙诺索夫  
+##### 989#       发表于 2021-11-30 14:15
+
+有没有人统计过一个人最多能够感染几次新冠
+
+*****
+
+####  smilebomb  
+##### 990#       发表于 2021-11-30 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53756069&amp;ptid=2039422" target="_blank">24k纯帅 发表于 2021-11-30 12:26</a>
+
+其实不测序就不会知道什么变种吧，话说我们之前一直以为蛊王是印度，妹想到， ...</blockquote>
+先开大的输，我觉得印度还没开大
+
