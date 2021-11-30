@@ -11532,3 +11532,38 @@ https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_ogg
 
 <img src="https://p.sda1.dev/3/ad36d0f0b7b067c17d013354cdd71da5/IMG_CMP_124221560.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  riczxc  
+##### 1059#         楼主| 发表于 2021-12-1 01:13
+
+ 本帖最后由 riczxc 于 2021-12-1 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763975&amp;ptid=2039422" target="_blank">oldq 发表于 2021-11-30 23:34</a>
+考虑一下武汉的人口密度和医院量好不好，2400W人的城呢。换在人口密度不高的地方人均医护足够多的情况挤兑 ...</blockquote>
+纽约四月才爆炸的。不是说完全没道理，但是你对比两者人口密度
+
+硚口区、江汉区，都是武汉两个重要的区。江汉区是武汉市重要的金融商贸核心区，全境面积28.29平方公里，常住人口68万人，则人口密度是24037人/平方千米。
+
+纽约市则是38242人每平方千米。
+
+https://www.6sqft.com/see-how-nycs-urban-density-stacks-up-against-other-major-cities
+
+按照新冠开始时三天翻一番，纽约病床数要是武汉的100万倍，才能保证两者同时爆发，而纽约挤兑那么迟。
+
+*****
+
+####  riczxc  
+##### 1060#         楼主| 发表于 2021-12-1 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764149&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-11-30 23:52</a>
+我可以举一个例子
+
+1918大流感最早在美国出现，但是真的大爆发是美国士兵把病毒带到法国后开始的，之后就 ...</blockquote>
+现在对医疗挤兑级别的灾难，信息管制几乎无效了。
+
+你要考虑1918年人不因为流感死也有伤寒霍乱等一大堆失望因素。你看现在非洲你也不见有什么问题。
+
+发达国家真正开始新冠医疗挤兑的时候，是瞒不住的。日本、纽约，例子一长串。
+

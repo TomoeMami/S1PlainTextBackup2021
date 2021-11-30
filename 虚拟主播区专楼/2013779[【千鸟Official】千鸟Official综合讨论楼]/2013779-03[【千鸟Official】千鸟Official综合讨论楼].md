@@ -5510,3 +5510,224 @@ Syl.还在骗还在骗
 千舰拿下了，鸟吧好几个引退的，交出最后的波纹了，那他们to签还要吗 ...</blockquote>
 贴吧不天天引退?
 
+
+
+*****
+
+####  袜子  
+##### 3636#       发表于 2021-12-1 01:00
+
+作为纯纯的乐子人，如果真1月份寄了，那在我的视野里属于是高品质乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直是没有感情的尸体啊
+
+*****
+
+####  夜之中道崩殂  
+##### 3637#       发表于 2021-12-1 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764892&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-1 00:59</a>
+贴吧不天天引退?</blockquote>
+真的走了，一个点赞狂魔从来不烂炒
+
+*****
+
+####  小憨1  
+##### 3638#       发表于 2021-12-1 01:02
+
+本来我以为如果文静1月寄了，我再也不看V了
+但今天我不确定我那时候顶不顶得住<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 3639#       发表于 2021-12-1 01:02
+
+ 本帖最后由 我有一个朋友 于 2021-12-1 01:03 编辑 
+
+要是我是第一年看V大概也会入脑感动吧，可是我只觉得佩服……令人感叹
+
+*****
+
+####  袜子  
+##### 3640#       发表于 2021-12-1 01:02
+
+ 本帖最后由 袜子 于 2021-12-1 01:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764915&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-1 01:01</a>
+
+真的走了，一个点赞狂魔从来不烂炒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原因呢？有点好奇，不过寄就寄呗，本来就是找乐子，想那么多干嘛
+
+SYL我的悲喜和感动，已经随着时间远去了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3641#       发表于 2021-12-1 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764932&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-1 01:02</a>
+原因呢？有点好奇，不过寄就寄呗，本来就是找乐子，想那么多干嘛</blockquote>
+说没热情了，给千鸟五个都上了舰，留个纪念就走了
+
+*****
+
+####  莫洛骑士  
+##### 3642#       发表于 2021-12-1 01:04
+
+ 本帖最后由 莫洛骑士 于 2021-11-30 13:05 编辑 
+
+记得找腾子返现
+<img src="https://p.sda1.dev/3/a3081c210aca55d03eb7824503f987d1/2e0049b9221b4a01_edit_77019231059081.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3643#       发表于 2021-12-1 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764915&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-1 01:01</a>
+真的走了，一个点赞狂魔从来不烂炒</blockquote>
+那就走了呗 
+人生如梦 就当这场梦醒了 继续下一个梦呗
+大家来看直播都是寻找开心的 也许看着不那么开心的时候，离开也没啥
+
+*****
+
+####  aikkkkk  
+##### 3644#       发表于 2021-12-1 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很佩服能对一个v保持长久热情的人，我都是及时行乐，无聊了就换下一个，反正v多的是，死都死不完
+
+*****
+
+####  四叶的花  
+##### 3645#       发表于 2021-12-1 01:07
+
+快出🐦🛡️吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是版本最强盾了
+
+*****
+
+####  夜之中道崩殂  
+##### 3646#       发表于 2021-12-1 01:07
+
+ 本帖最后由 夜之中道崩殂 于 2021-12-1 01:10 编辑 
+
+千鸟的魅力在于，你永远不知道下一次出的是什么幺蛾子，虽然跟的有点累
+
+syl然而coco还在万粉不到百舰，而且在写论文并随时可能run，令人感叹。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 3647#       发表于 2021-12-1 01:08
+
+那不好说，我自己的话mea入坑，看来看去感觉自己天狗成分还是最高的……
+
+*****
+
+####  袜子  
+##### 3648#       发表于 2021-12-1 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764985&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-1 01:07</a>
+千鸟的魅力在于，你永远不知道下一次出的是什么幺蛾子，虽然跟的有点累</blockquote>
+这大概就是千鸟独特的赛道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太难跟其实看点别的岁月静好的也没啥，而且也不是非要看V
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tankai  
+##### 3649#       发表于 2021-12-1 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764875&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-12-1 00:58</a>
+
+楼友私我地址，我送你一期礼物</blockquote>
+嘿嘿，我有了。卡其。。。。。。。
+
+*****
+
+####  灰色的狐狸  
+##### 3650#       发表于 2021-12-1 01:10
+
+我认真看过的V其实就两个，而且多少都是跟风的，第一次看的是小红，不过后来语音问题就没看了
+
+第二就是文静了，看文静其实是看到那个全滑班的视频才注意到的
+
+*****
+
+####  aikkkkk  
+##### 3651#       发表于 2021-12-1 01:11
+
+仔细想想，我投入最多的v居然是歌姬，高强度追了一年，最后因为受不了同担mmr的环境最后润了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3652#       发表于 2021-12-1 01:11
+
+第一个小红，第二个文静，什么奇迹哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 3653#       发表于 2021-12-1 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看谁谁造奇迹是吧
+
+*****
+
+####  tankai  
+##### 3654#       发表于 2021-12-1 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764915&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-1 01:01</a>
+
+真的走了，一个点赞狂魔从来不烂炒</blockquote>
+害怕再次变AS那种气氛吧，其实文静借护士电脑电台那次，鸟吧里他们就不安了，感谢他们在千鸟2.0 初期做了基础粉丝。
+
+*****
+
+####  夜之中道崩殂  
+##### 3655#       发表于 2021-12-1 01:14
+
+我也是基础粉丝，文静2.0首播就来了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3656#       发表于 2021-12-1 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765031&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-1 01:10</a>
+我认真看过的V其实就两个，而且多少都是跟风的，第一次看的是小红，不过后来语音问题就没看了
+
+第二就是文静 ...</blockquote>
+不然我套个皮你来看我？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 3657#       发表于 2021-12-1 01:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我第一次看她们直播是五个人人类一败涂地，属实是灾难
+
+*****
+
+####  我有一个朋友  
+##### 3658#       发表于 2021-12-1 01:17
+
+其实我就是昨天上的舰，看见文静哭、炒作不下去了莫名地很兴奋。我在楼里发的心疼都是rp的，我自己都觉得自己很扭曲
+
+*****
+
+####  灰色的狐狸  
+##### 3659#       发表于 2021-12-1 01:19
+
+文静锐评暴雪
+
+syl，我可是刚看没两天她就宣布鸟可能要散了+请假了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3660#       发表于 2021-12-1 01:19
+
+反正出脑文静的时候 我估计也不会看直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过这段时间也确实挺欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+明天还有事 早点睡了 明天补录播了
+
