@@ -648,3 +648,33 @@ https://vtuber-matome.com/vtuber-19079-153554.html
 
 虽说一起打的还是那帮人，英雄池也基本一样，但也有可能是小圈子里别的人的号
 
+
+
+*****
+
+####  cctvyt1  
+##### 13567#       发表于 2021-11-30 11:43
+
+但角色池、出装能相似到9成几乎是同个人吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+小圈子也找不出第二个专玩软辅的
+
+syl昨天小号打个几场改开大号到早上6点
+
+毫无压力的绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202111/30/114318fazjmdtkndjj4lvn.jpg" referrerpolicy="no-referrer">
+
+<strong>J22kRP5l.jpg</strong> (78.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 11:43 上传
+
+*****
+
+####  越动天下  
+##### 13568#       发表于 2021-11-30 11:59
+
+反正当时是怎么推出来我也不知道的 好像是就换了个名字🤔 我当时也不在论坛 无从考证
+
