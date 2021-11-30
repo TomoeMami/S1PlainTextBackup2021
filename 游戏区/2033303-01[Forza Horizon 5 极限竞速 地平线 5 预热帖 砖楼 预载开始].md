@@ -16544,3 +16544,14 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 另外问个问题，我加载某些新车、某些轮毂、刹车升级这些的时候总会顿卡，卡二十几秒，这是什么问题？肯定不是ssd，我pcie4的ssd平时快得一逼。
 
+
+
+*****
+
+####  pl0okm  
+##### 1499#       发表于 2021-11-30 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755212&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-30 11:23</a>
+我试试，明明在开放地图里已经等到伸手不见五指的黑了，拍照都不算晚上不给我完成 ...</blockquote>
+拍照应该也有bug 试试换一辆地平线宣传里没拍过的车 拍照 切回任务车辆 拍照
+

@@ -15944,3 +15944,24 @@ syl 角色都收走了 用角色制作的翻唱也没意义了吧 应该争取�
 
 说实话不希望彩虹现在死，剩下的vespo也好vshojo也好都和杏一样是独角兽箱也太无聊了，当然田角多吃几口屎我是想看的。
 
+
+
+*****
+
+####  空集  
+##### 8731#       发表于 2021-11-30 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755075&amp;ptid=1972669" target="_blank">星街こうせい 发表于 2021-11-30 11:14</a>
+
+说实话不希望彩虹现在死，剩下的vespo也好vshojo也好都和杏一样是独角兽箱也太无聊了，当然田角多吃几口屎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">vspo和vwhore哪里独角兽了，独角兽咬你哦
+
+*****
+
+####  星街こうせい  
+##### 8732#       发表于 2021-11-30 13:15
+
+<blockquote>空集 发表于 2021-11-30 13:09
+vspo和vwhore哪里独角兽了，独角兽咬你哦</blockquote>
+确实用词不当，就是那种你好我好大家好的女团。维阿和维阿jp起码直球不仲戏码是业界顶尖的。
+
