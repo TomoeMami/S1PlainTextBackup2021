@@ -4956,3 +4956,254 @@ Syl.还在骗还在骗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一期到底多香，有没有人寄一个给哥们闻闻
 
+
+
+*****
+
+####  小憨1  
+##### 3565#       发表于 2021-12-1 00:21
+
+好好好，之前的舰长还有头像！我赢麻了！
+反转了，大伙都有
+
+*****
+
+####  灰色的狐狸  
+##### 3566#       发表于 2021-12-1 00:21
+
+呜呜呜没有一期哭死
+
+*****
+
+####  袜子  
+##### 3567#       发表于 2021-12-1 00:22
+
+赢疯了兄弟们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有追加，有to签，有头像
+
+*****
+
+####  小憨1  
+##### 3568#       发表于 2021-12-1 00:24
+
+我超，是to签！我以为是普通手写卡
+
+*****
+
+####  aikkkkk  
+##### 3569#       发表于 2021-12-1 00:25
+
+带货主播，指带自己的舰长礼物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 3570#       发表于 2021-12-1 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764292&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-1 00:05</a>
+
+825舰，真的离谱早五分钟就千舰了SYL啧不续啊，我赢麻了！</blockquote>
+她看重的粉丝存量，舰长这些水到渠成。
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3571#       发表于 2021-12-1 00:26
+
+真的能千舰吗
+
+*****
+
+####  四叶的花  
+##### 3572#       发表于 2021-12-1 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">输麻了
+
+*****
+
+####  小憨1  
+##### 3573#       发表于 2021-12-1 00:26
+
+一期的含金量，说实话盒子凑上去闻的话还是有很淡的香味<img src="https://p.sda1.dev/3/58e72793e13736e0b05acfa1c1c83c2e/IMG_CMP_242047391.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 3574#       发表于 2021-12-1 00:27
+
+这是6.1w粉主播的数据吗，吃了吧<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 3575#       发表于 2021-12-1 00:27
+
+今天独轮车说书杀的好快啊，举办一个死一个
+
+*****
+
+####  夜之中道崩殂  
+##### 3576#       发表于 2021-12-1 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764499&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-1 00:27</a>
+今天独轮车说书杀的好快啊，举办一个死一个</blockquote>
+草，你就是举报狗是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3577#       发表于 2021-12-1 00:29
+
+脆鲨，this way
+
+*****
+
+####  小憨1  
+##### 3578#       发表于 2021-12-1 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在前两天开直播哭哭的时候就上舰了，今天就打了点SC看大伙冲舰，赢麻了
+
+*****
+
+####  灰色的狐狸  
+##### 3579#       发表于 2021-12-1 00:30
+
+小号 古户绘梨花
+
+*****
+
+####  T型钉宫病毒  
+##### 3580#       发表于 2021-12-1 00:30
+
+我只举办说书的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3581#       发表于 2021-12-1 00:32
+
+万向天引搞个10W能搞静盾吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3582#       发表于 2021-12-1 00:33
+
+都暗示你买粉了，还万象天引呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3583#       发表于 2021-12-1 00:33
+
+可能有点KY……1月润了的话还能来得及吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+因为当时那个SC是我问的……很在意这个
+
+*****
+
+####  我有一个朋友  
+##### 3584#       发表于 2021-12-1 00:33
+
+是时候整棍静二创了，动物园之力……
+
+*****
+
+####  aikkkkk  
+##### 3585#       发表于 2021-12-1 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谁爱引谁引去吧，反正我现在看到这词就膈应
+
+*****
+
+####  cherrydove  
+##### 3586#       发表于 2021-12-1 00:35
+
+这个季度的礼物出来了么，我觉得这偶像服挺难看的
+
+*****
+
+####  GAKOTO  
+##### 3587#         楼主| 发表于 2021-12-1 00:36
+
+鸟p有一半是吃过万象天引苦头的au
+
+*****
+
+####  夜之中道崩殂  
+##### 3588#       发表于 2021-12-1 00:36
+
+都在冲千舰，而我还没有花一分钱，令人感叹。
+
+*****
+
+####  灰色的狐狸  
+##### 3589#       发表于 2021-12-1 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764587&amp;ptid=2013779" target="_blank">cherrydove 发表于 2021-12-1 00:35</a>
+
+这个季度的礼物出来了么，我觉得这偶像服挺难看的</blockquote>
+还没有，之前的事情一直拖着吧
+
+*****
+
+####  小憨1  
+##### 3590#       发表于 2021-12-1 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764587&amp;ptid=2013779" target="_blank">cherrydove 发表于 2021-12-1 00:35</a>
+这个季度的礼物出来了么，我觉得这偶像服挺难看的</blockquote>
+这季度是新衣服，应该是有立牌，但还没图透
+
+*****
+
+####  T型钉宫病毒  
+##### 3591#       发表于 2021-12-1 00:37
+
+新衣服立牌早确定了吧，忘记立牌是人形还是圆形了
+
+*****
+
+####  袜子  
+##### 3592#       发表于 2021-12-1 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">害，别当真啊，真引我也疯···
+
+*****
+
+####  大蒜火腿肠  
+##### 3593#       发表于 2021-12-1 00:38
+
+有一说一，虽然🐦p确实吃过万象天引的苦，但此时此刻，真的恰如彼时彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+如果说当时au万象天引的动机只是虚无缥缈的“不引她们就毕业了”的杞人忧天，但现在千鸟1月可能毕业的未来却实实在在地摆在每个🐦p面前<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3594#       发表于 2021-12-1 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764622&amp;ptid=2013779" target="_blank">大蒜火腿肠 发表于 2021-12-1 00:38</a>
+有一说一，虽然🐦p确实吃过万象天引的苦，但此时此刻，真的恰如彼时彼刻
+如果说当时au万象天引的动 ...</blockquote>
+如果1月没资金投入的话，希望文静能想到今天而选择留下来<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法少女大头  
+##### 3595#       发表于 2021-12-1 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">可别万象天引了，听到就膈应
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  袜子  
+##### 3596#       发表于 2021-12-1 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764563&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-12-1 00:33</a>
+
+可能有点KY……1月润了的话还能来得及吗
+
+因为当时那个SC是我问的……很在意这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舰长礼物本身是没有合约的，拼一枪了只能
+
