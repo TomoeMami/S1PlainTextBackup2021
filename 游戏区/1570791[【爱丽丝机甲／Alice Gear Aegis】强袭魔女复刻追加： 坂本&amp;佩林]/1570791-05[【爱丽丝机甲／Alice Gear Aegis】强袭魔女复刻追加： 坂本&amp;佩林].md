@@ -3971,3 +3971,20 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 —— 来自 OnePlus KB2000, Android 11上的 S1Next- ...</blockquote>
 应该是活动调查图的BOSS。你只要不踩它周围降等级的格子的话，BOSS就是高等级。
 
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 6299#       发表于 2021-11-30 19:45
+
+这游戏想起来当年开服时候玩过一段时间
+
+不过感觉模式单一就没玩下去
+
+没想到还活了这么久<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+比起当年现在有好玩点了吗
+
+主要画面太窄外加手机操作也不方便
+
