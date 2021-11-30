@@ -11871,3 +11871,18 @@ https://wwwnc.cdc.gov/eid/article/26/8/20-0219_article
 
 总要埋的吧？烧也好，埋也好，都会挤兑的。问问从业人员就知道的事情，哪里瞒得住。
 
+
+
+*****
+
+####  休達  
+##### 1086#       发表于 2021-12-1 06:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765702&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 06:01</a>
+总要埋的吧？烧也好，埋也好，都会挤兑的。问问从业人员就知道的事情，哪里瞒得住。</blockquote>
+冷链卡车当停尸房用，只要不把人当人。就不会存在挤兑。
+
+ER满了又能怎样，去抢床吗？
+
+美国的医保就更好玩了，首先最穷的肯定没医保，然后稍微有点钱的医保也不可能包救护车。
+
