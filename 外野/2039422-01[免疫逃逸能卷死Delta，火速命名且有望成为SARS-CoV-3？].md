@@ -10672,3 +10672,57 @@ Omicron对我的直接影响就是
 后新冠时代，家族团聚可以从冬天改成夏天。</blockquote>
 我也觉得是，真人夏天团聚过春节。冬天可以元宇宙
 
+
+
+*****
+
+####  Niceday  
+##### 982#       发表于 2021-11-30 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53756602&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-11-30 13:14</a>
+被自身免疫系统消灭也叫自限吗？我理解的自限应该是自己在细胞里复制几代自己就玩完了不再复制，新冠显然 ...</blockquote>
+叫。
+
+自限性疾病，就是疾病在发生发展到一定程度后，靠机体调节能够控制病情发展并逐渐恢复痊愈。
+
+*****
+
+####  battleship64  
+##### 983#       发表于 2021-11-30 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53756549&amp;ptid=2039422" target="_blank">钦念以忱 发表于 2021-11-30 13:09</a>
+中国一贯反对简单粗暴的断航。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">熔断是民航局规定不得不尝
+
+*****
+
+####  charse2r  
+##### 984#       发表于 2021-11-30 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752048&amp;ptid=2039422" target="_blank">DraQin 发表于 2021-11-30 01:09</a>
+
+Omicron对我的直接影响就是
+
+本来英国回国机票价格一直都贵，但还算稳定
+
+但自打很多学校同意后续课程可以网 ...</blockquote>
+要等到明年那是不是可以考虑自己开车回来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还能快点
+
+*****
+
+####  烦死了  
+##### 985#       发表于 2021-11-30 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755839&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 12:08</a>
+不太妙啊，据彭博社报道，在南非Omicron疫情的震中，婴幼儿占全部入院病例的10%
+
+死的是老人白皮可以说优化 ...</blockquote>
+白皮大获全胜 到时候死的都是穷人少数族裔黑哥哥的婴儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 986#       发表于 2021-11-30 13:46
+
+【中疾控专家：#现有疫苗对奥密克戎仍有效#，#我国正在研制针对变异株疫苗#】中国疾控中心病毒病预防控制所所长许文波指出，应对奥密克戎，新冠疫苗目前仍然是有效的，能有效降低重症和死亡，并且可以降低感染发生规模。但针对不同变异毒株的传播力及其免疫逃避能力，疫苗的作用还有待观察。因此，第二代苗或针对新的变异株的疫苗研制、技术储备都在做。#超10国确诊奥密克戎新冠变异株#[http://t.cn/A6xopHUK](http://t.cn/A6xopHUK)
+
