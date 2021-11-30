@@ -15270,3 +15270,12 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 2月份的时候EN就说拿到魂2/3的直播许可了，jp和en应该不至于分开要许可，有没有那么万分之一的机率把缺了的魂2补上来？想看她被谷村老贼的恶意虐哭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yukimi7  
+##### 7242#       发表于 2021-11-30 16:32
+
+明天生日喽！
+

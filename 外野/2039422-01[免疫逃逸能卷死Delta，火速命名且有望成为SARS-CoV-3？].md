@@ -10994,3 +10994,31 @@ The answer is blowin' in the wind~♪
 就算我国，再打一遍疫苗（对抗新变异株），也会更加艰难。而且财政啊，目前我们打了20亿剂以上，就算按某些 ...</blockquote>
 只要是自己生产的，别在乎花了多少钱，就当经济刺激计划
 
+
+
+*****
+
+####  nobady  
+##### 1011#       发表于 2021-11-30 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53754381&amp;ptid=2039422" target="_blank">卡普空 发表于 2021-11-30 10:31</a>
+
+没有任何证据说明新冠的致死率属性下降了，而且传染性和致死率并没有关联性，不存在一个高了另一个就会降 ...</blockquote>
+疫苗有效降低了重症率和死亡率，如果说不打疫苗确实是没有下降，但是对打疫苗的就是降低了
+
+*****
+
+####  Redis  
+##### 1012#       发表于 2021-11-30 16:42
+
+moderna这个老板是说了老实话
+
+奈何很多人不爱听<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帕帕盖诺  
+##### 1013#       发表于 2021-11-30 16:42
+
+关于危害性，这病毒不是已经被发现传播有一阵子了吗，南非那边没数据？
+

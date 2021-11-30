@@ -1008,3 +1008,24 @@ closed beta开了，云鉴黄师们来冲一波了
 老哥你这的帖子我权限不够，想看看你怎么说的，现在我也感觉上当了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">喷的东西微博已经发的到处都是了，跟你上面那条一样，目前的内容完全是废品不具有可玩性，哪怕再给出半年这个制作组也一定是端不出什么能玩的东西的
 
+
+
+*****
+
+####  cnwind042  
+##### 99#       发表于 2021-11-30 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53758525&amp;ptid=2039606" target="_blank">Jooohnny 发表于 2021-11-30 15:55</a>
+
+喷的东西微博已经发的到处都是了，跟你上面那条一样，目前的内容完全是废品不具有可玩性，哪怕再 ...</blockquote>
+感觉这安心多做点姿势多捏点人和衣服不行吗，长处也就这些了……非得塞这种废品内容，画大饼也没有一点B数
+
+*****
+
+####  不见不散  
+##### 100#       发表于 2021-11-30 16:37
+
+啥时候更新完啥时候买，我被惩戒魅魔坑了可不能再被坑一次
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
