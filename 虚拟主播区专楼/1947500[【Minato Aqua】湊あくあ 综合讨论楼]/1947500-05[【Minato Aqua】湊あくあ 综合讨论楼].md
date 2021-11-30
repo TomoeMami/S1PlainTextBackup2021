@@ -15202,3 +15202,14 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 又一年过去，明年阿夸生日，看看有什么活
 
+
+
+*****
+
+####  Scardy  
+##### 7236#       发表于 2021-11-30 08:24
+
+还能有什么活，无非是凸待+live<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

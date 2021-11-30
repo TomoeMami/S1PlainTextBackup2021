@@ -625,3 +625,15 @@ https://vtuber-matome.com/vtuber-19079-153554.html
 原来绫总LOL换小号了</blockquote>
 403了 小号id叫啥呀
 
+
+
+*****
+
+####  越动天下  
+##### 13565#       发表于 2021-11-30 08:22
+
+ 本帖最后由 越动天下 于 2021-11-30 08:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752335&amp;ptid=1914409" target="_blank">昆西昆希昆 发表于 2021-11-30 02:41</a>
+403了 小号id叫啥呀</blockquote>
+应该叫梓豪熙吗 https://jp.op.gg/summoner/userName=%E6%A2%93%E8%B1%AA%E7%86%99 还有就改个名吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
