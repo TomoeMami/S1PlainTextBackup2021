@@ -11466,3 +11466,42 @@ https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_ogg
 福奇从来都是美帝太医，没啥叛不叛变的</blockquote>
 明明是骗大家别戴口罩的政治家，抗疫是副业。
 
+
+
+*****
+
+####  crazyt  
+##### 1053#       发表于 2021-11-30 23:26
+
+<blockquote>riczxc 发表于 2021-11-30 23:05
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。 ...</blockquote>
+电子烟肺炎和死掉好几万的流感季就这么当没发生过了。穷比都赶回家去自生自灭，永远都不会发生医疗挤兑。
+
+*****
+
+####  zerona  
+##### 1054#       发表于 2021-11-30 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763643&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 23:05</a>
+
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。 ...</blockquote>
+本来一个医学研究的问题，欧美的脑子却早只剩zz了。
+
+*****
+
+####  oldq  
+##### 1055#       发表于 2021-11-30 23:34
+
+考虑一下武汉的人口密度和医院量好不好，2400W人的城呢。换在人口密度不高的地方人均医护足够多的情况挤兑会大幅延后。
+
+*****
+
+####  聪少  
+##### 1056#       发表于 2021-11-30 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53746361&amp;ptid=2039422" target="_blank">冤枉呐 发表于 2021-11-29 17:00</a>
+担心疫情不结束的前提下，国内不加强宏观调控，放任现在催出来的产能爆掉 ...</blockquote>
+还催生的产能了，你看看ppi看看pmi，这是催生产能？这是在去产能好吧？出口增长主要来自汇率上涨。
+
+别活着自己幻想出来的世界了，疫情楼就好好聊疫情，扯什么你YY出来的经济，没人对你的装出来的悲天悯人感兴趣
+

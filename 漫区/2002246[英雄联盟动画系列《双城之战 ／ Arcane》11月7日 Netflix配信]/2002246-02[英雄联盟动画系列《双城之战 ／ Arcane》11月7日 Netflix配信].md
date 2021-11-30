@@ -14676,3 +14676,17 @@ http://b23.tv/30Y9TBw</blockquote>
 你要说“大多人喜欢”，那我觉得“大多人”也不喜欢女警蔚真女同呢</blockquote>
 大多人喜欢啥和双方是男是女没太大关系，关键在于人物形象塑造得怎么样，能不能让人接受，是真情流露还是zzzq，这东西作为观众心里应该有底。小蛋糕和楚雨荨反正我可以接受姐妹情，也可以接受女同，这要归功于双城的编剧和导演。至于那些强行女同的动画...我又不是白河豚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  whyy  
+##### 2853#       发表于 2021-11-30 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763432&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-11-30 22:44</a>
+
+大多人喜欢啥和双方是男是女没太大关系，关键在于人物形象塑造得怎么样，能不能让人接受，是真情流露还是 ...</blockquote>
+我个人只讨厌直女卖姬/直男卖腐，像设定上就是gay的男男女女，真无所谓，shameless美剧里俩男的舌吻我都能看下去……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那种明明角色不是同，却非要组腐cp的，我实在无法理解。按理说会组cp，是出于对角色的喜爱吧？可既然喜爱这角色，那起码应该尊重这个角色的设定才对……<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

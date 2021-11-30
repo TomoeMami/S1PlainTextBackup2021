@@ -5796,3 +5796,15 @@ NMD两单沉了
 
 没有狗叫，这不科学啊。
 
+
+
+*****
+
+####  alucardcz  
+##### 84523#       发表于 2021-11-30 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763867&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-11-30 23:24</a>
+
+没有狗叫，这不科学啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没池啊 现在这2个池还有人会抽吗
+

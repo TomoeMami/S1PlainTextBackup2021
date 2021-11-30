@@ -4410,3 +4410,51 @@ WOC O 。文静这人不能处，死信骂她去喽。</blockquote>
 
 所以雀魂怎么了，ylg不懂
 
+
+
+*****
+
+####  GAKOTO  
+##### 3495#         楼主| 发表于 2021-11-30 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763870&amp;ptid=2013779" target="_blank">aikkkkk 发表于 2021-11-30 23:24</a>
+所以雀魂怎么了，ylg不懂</blockquote>
+可能是因为1.0，1.0的崩溃和雀魂联动回多少是有点关系
+
+*****
+
+####  夜潇箫  
+##### 3496#       发表于 2021-11-30 23:29
+
+文静笑弄潮儿是吧，梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aikkkkk  
+##### 3497#       发表于 2021-11-30 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763915&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-11-30 23:28</a>
+可能是因为1.0，1.0的崩溃和雀魂联动回多少是有点关系</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听说1.0不是成天嗯在那lol才死的吗，原来还有雀魂联动回
+
+*****
+
+####  rgauss  
+##### 3498#       发表于 2021-11-30 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">西班牙独轮车咋又来了
+
+*****
+
+####  小憨1  
+##### 3499#       发表于 2021-11-30 23:35
+
+完了，文静傻了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3500#       发表于 2021-11-30 23:36
+
+两眼一黑
+
