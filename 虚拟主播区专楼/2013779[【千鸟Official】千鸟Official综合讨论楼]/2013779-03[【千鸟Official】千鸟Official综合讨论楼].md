@@ -4726,3 +4726,233 @@ WOC O 。文静这人不能处，死信骂她去喽。</blockquote>
 
 可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我有一个朋友  
+##### 3536#       发表于 2021-12-1 00:00
+
+有一说一在V圈皮真是委屈她了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+Syl.还在骗还在骗
+
+*****
+
+####  rgauss  
+##### 3537#       发表于 2021-12-1 00:01
+
+我哭了 没切过来 她能延一天么
+
+*****
+
+####  Quark  
+##### 3538#       发表于 2021-12-1 00:01
+
+过了12点大航海后面数字直接不动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aikkkkk  
+##### 3539#       发表于 2021-12-1 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我承认我被诈骗到了，第一时间上舰了
+
+*****
+
+####  袜子  
+##### 3540#       发表于 2021-12-1 00:01
+
+赢！静静亲笔！！！！！哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 3541#       发表于 2021-12-1 00:01
+
+还有自己卡片
+
+赚大了兄弟们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aikkkkk  
+##### 3542#       发表于 2021-12-1 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764245&amp;ptid=2013779" target="_blank">Quark 发表于 2021-12-1 00:01</a>
+过了12点大航海后面数字直接不动了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别尬黑，还是动了的，掉了几十舰
+
+*****
+
+####  rgauss  
+##### 3543#       发表于 2021-12-1 00:02
+
+我紫砂了
+
+*****
+
+####  T型钉宫病毒  
+##### 3544#       发表于 2021-12-1 00:03
+
+800多张累死老阿姨算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3545#       发表于 2021-12-1 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764262&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-1 00:02</a>
+
+我紫砂了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3546#       发表于 2021-12-1 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">叫你们卡点，赢！
+
+*****
+
+####  灰色的狐狸  
+##### 3547#       发表于 2021-12-1 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">其实是昨天刚好到期的，还想着阿姨什么时候上播再续
+
+*****
+
+####  rgauss  
+##### 3548#       发表于 2021-12-1 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">没事 到时收一份就行 应该
+
+*****
+
+####  袜子  
+##### 3549#       发表于 2021-12-1 00:05
+
+ 本帖最后由 袜子 于 2021-12-1 00:09 编辑 
+
+825舰，真的离谱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aikkkkk  
+##### 3550#       发表于 2021-12-1 00:08
+
+千鸟收集礼物信息用的是不是官方的渠道，跟as一样的那种
+
+*****
+
+####  rgauss  
+##### 3551#       发表于 2021-12-1 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764321&amp;ptid=2013779" target="_blank">aikkkkk 发表于 2021-12-1 00:08</a>
+千鸟收集礼物信息用的是不是官方的渠道，跟as一样的那种</blockquote>
+好像是
+
+*****
+
+####  碧波青云  
+##### 3552#       发表于 2021-12-1 00:08
+
+经典欲擒故纵,早该冲刺了
+
+*****
+
+####  rgauss  
+##### 3553#       发表于 2021-12-1 00:09
+
+赢
+
+*****
+
+####  我有一个朋友  
+##### 3554#       发表于 2021-12-1 00:09
+
+ 本帖最后由 我有一个朋友 于 2021-12-1 00:12 编辑 
+
+这不就千舰了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 3555#       发表于 2021-12-1 00:09
+
+又开始诈骗了，十二月还有，那还能再续hh
+
+但是今晚上舰的肯定来不及了吧，舰长32天呢
+
+*****
+
+####  T型钉宫病毒  
+##### 3556#       发表于 2021-12-1 00:09
+
+11月是舰长礼物+特殊礼物+手写卡片
+
+12月就少个特殊礼物吧
+
+*****
+
+####  sunxpw  
+##### 3557#       发表于 2021-12-1 00:10
+
+手写1000张，想想就很累<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  四叶的花  
+##### 3558#       发表于 2021-12-1 00:13
+
+有点冲不动了
+
+*****
+
+####  袜子  
+##### 3559#       发表于 2021-12-1 00:14
+
+毕竟不是11月限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">825个兄弟赢太多了
+
+*****
+
+####  Minz824  
+##### 3560#       发表于 2021-12-1 00:14
+
+没忍住爆金币了，彻底被拿捏了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 3561#       发表于 2021-12-1 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764230&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-12-1 00:00</a>
+
+上舰有礼物吗?有了我也上一个</blockquote>
+多一张手写卡片。
+
+*****
+
+####  rgauss  
+##### 3562#       发表于 2021-12-1 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过几天小号再爆个金币好了
+
+*****
+
+####  我有一个朋友  
+##### 3563#       发表于 2021-12-1 00:19
+
+你们🐦p什么时候开始万象天引啊，静栗惹屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aikkkkk  
+##### 3564#       发表于 2021-12-1 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一期到底多香，有没有人寄一个给哥们闻闻
+

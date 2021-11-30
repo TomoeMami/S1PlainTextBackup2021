@@ -1072,3 +1072,12 @@ closed beta开了，云鉴黄师们来冲一波了
 又搁着画饼这抽卡真的原因不明，说的包含小队战术和牌组构筑的Roguelike策略游戏，其实还不是抽卡， ...</blockquote>
 好家伙，怎么坑钱怎么来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  石化金鱼  
+##### 105#       发表于 2021-12-1 00:07
+
+楼主呢，给点作用啊
+
