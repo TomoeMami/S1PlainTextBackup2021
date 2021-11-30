@@ -15696,3 +15696,20 @@ ankr要上市吧，y1ys这种线上陪酒一对一太难有增值业务了，而
 
 梦回2018，那时候从一开始是一个有能主播与无能运营的时代。
 
+
+
+*****
+
+####  fastary  
+##### 8707#       发表于 2021-11-30 09:16
+
+md，黑客这下给我整不会了
+
+11月月初请假一周(ymen那边是回乡探亲了)，整个月除了定期杂谈全是联动，自己频道开窗只有9次(其中2次没留录播)，月中连续联动四五天还直接压力大发烧，发推越来越少直到联动都不发推直接转别人告知，月初说好要在月末搞的企划都快定好了现在直接没声，上周杂谈又是各种金游不打算播又是因为很多事想做没法做又不能说给观众道歉……
+
+别是梦涂鸦结束没事先通知或者运营开始要API或者有什么企划又被上头毙掉了，导致心灰意冷直接摆烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+好在至少联动参加还算积极，但也不是完全保险啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+又想起上上周杂谈说“没有好告知，但是有坏告知”了，只有毕业不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
