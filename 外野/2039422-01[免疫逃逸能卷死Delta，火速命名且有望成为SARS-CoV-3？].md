@@ -11040,3 +11040,37 @@ moderna这个老板是说了老实话
 关于危害性，这病毒不是已经被发现传播有一阵子了吗，南非那边没数据？</blockquote>
 而且欧洲各国都发现了啊，科学家没有分离出毒株研究吗？啥叫只有一个南非的ppt
 
+
+
+*****
+
+####  克鲁特尼  
+##### 1016#       发表于 2021-11-30 17:19
+
+<blockquote>汽车屁 发表于 2021-11-30 16:51
+内蒙古满洲里本次疫情涉及的前3名病例的病毒全基因组序列与国内此前疫情的同源性低，提示本次疫情是由一起 ...</blockquote>
+满洲里这个是德尔塔？还是说已经成了欧米克戎？
+
+*****
+
+####  汽车屁  
+##### 1017#       发表于 2021-11-30 17:23
+
+ 本帖最后由 汽车屁 于 2021-11-30 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53759497&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-11-30 17:19</a>
+
+满洲里这个是德尔塔？还是说已经成了欧米克戎？</blockquote>
+病毒全基因组序列与国内此前疫情的同源性低
+
+------------------------
+
+应该是德尔塔，如果是omicron就该直说omicron，不会跟以前的比了
+
+*****
+
+####  ひびき  
+##### 1018#       发表于 2021-11-30 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53758631&amp;ptid=2039422" target="_blank"> 公共知识 发表于 2021-11-30 16:03</a> 引用:voluspa 发表于 2021-11-30 16:01 在动态清零的管理方法下, 第三针没有特殊情况就是自愿 而且那怕是2000亿,  比起因为疫情全面蔓延导致的生 ... 而且这2000亿是通过疫苗产业链进入社会经济活动的。对于国家来说，支出人民币根本不算成本，只是一个收入分配的问题。 </blockquote>
+前提是国药科兴好好拿钱搞研发，别去卖房买地买海外资产<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
