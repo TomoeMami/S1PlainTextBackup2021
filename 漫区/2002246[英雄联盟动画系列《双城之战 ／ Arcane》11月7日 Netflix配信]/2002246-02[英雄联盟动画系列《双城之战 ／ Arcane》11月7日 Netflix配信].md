@@ -14643,3 +14643,12 @@ cp厨会叫的比较响而已，男枪卡牌这种互坑的好兄弟比cp锁死�
 
 仔细想想维克托助手似乎是替维克托承受了海克斯符文的进化改造，维克托这时候已经没有炼金的微光药剂了，接受海克斯符文的力量只会跟助手一个下场<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SpaceCowboy  
+##### 2850#       发表于 2021-11-30 21:15
+
+话说万智牌和双城之战的联动已经可以预定了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

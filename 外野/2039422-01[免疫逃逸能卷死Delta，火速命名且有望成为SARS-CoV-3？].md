@@ -11336,3 +11336,38 @@ Omicron对我的直接影响就是
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  pushare  
+##### 1043#       发表于 2021-11-30 21:10
+
+South Africa COVID update:
+
+- New cases: 2,273
+- Average: 2,255 (+280)
+- Positivity rate: 10.7% (+0.9)
+- In hospital: 2,328 (+96)
+- In ICU: 233 (+2)
+- New deaths: 25
+- Average: 34 (+2)
+
+*****
+
+####  riczxc  
+##### 1044#         楼主| 发表于 2021-11-30 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53759697&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 17:37</a>
+
+英格兰和意大利都发现了学校传播的Omicron病例，疯狂快进了属于是</blockquote>
+补一补链接比较好吧。S1内容质量还是高点好：
+
+英国
+
+https://www.theguardian.com/world/2021/nov/29/school-staff-and-pupils-in-essex-tested-for-omicron-covid-variant
+
+意大利
+
+https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_oggi_positivi_scuola_figli-6354383.html
+
