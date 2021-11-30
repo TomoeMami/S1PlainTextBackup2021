@@ -14652,3 +14652,27 @@ cp厨会叫的比较响而已，男枪卡牌这种互坑的好兄弟比cp锁死�
 
 话说万智牌和双城之战的联动已经可以预定了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  碎片整理  
+##### 2851#       发表于 2021-11-30 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53754265&amp;ptid=2002246" target="_blank">godke 发表于 2021-11-30 10:25</a>
+
+大乱斗商店老板语音暗示vi和小蛋糕暧昧关系
+
+http://b23.tv/30Y9TBw</blockquote>
+点进去顺便看了关联的视频，发现凯特琳新语音有句“告诉薇，其实我。。。”，已经是直球告白了吧
+
+*****
+
+####  Siran_China  
+##### 2852#       发表于 2021-11-30 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760195&amp;ptid=2002246" target="_blank">伊斯坎达尔王 发表于 2021-11-30 18:22</a>
+
+你要说“大多人喜欢”，那我觉得“大多人”也不喜欢女警蔚真女同呢</blockquote>
+大多人喜欢啥和双方是男是女没太大关系，关键在于人物形象塑造得怎么样，能不能让人接受，是真情流露还是zzzq，这东西作为观众心里应该有底。小蛋糕和楚雨荨反正我可以接受姐妹情，也可以接受女同，这要归功于双城的编剧和导演。至于那些强行女同的动画...我又不是白河豚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
