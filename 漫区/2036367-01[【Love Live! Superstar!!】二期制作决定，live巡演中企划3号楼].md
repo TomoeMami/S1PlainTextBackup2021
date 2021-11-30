@@ -14838,3 +14838,14 @@ ksks可以留着跟妮善堇下次凑吃瘪组
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算是凑齐了南家三姐妹
 
+
+
+*****
+
+####  damian-wade  
+##### 1328#       发表于 2021-11-30 08:00
+
+这种跨团联动投票一般都挺实在的，不像团内投票要搞平衡什么的，下期善霞堇确实蛮有可能的，不过我估计老妮要拉，只能指望其他团的联动票了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
