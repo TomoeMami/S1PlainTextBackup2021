@@ -16456,3 +16456,14 @@ syl，这段话是在说尊妈
 
 杏奴看到这俩推しマーク差点吓死了。
 
+
+
+*****
+
+####  whzfjk  
+##### 8776#       发表于 2021-12-1 01:52
+
+パセ画的沙花叉クロヱ皮看着挺舒服
+
+眼罩这设定让我想起泥潭名媛菜园之州女士，摘眼镜（眼罩）都是切jpg，搞得很正式一样<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

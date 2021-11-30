@@ -24072,3 +24072,25 @@ Ollie又开始对后辈疯狂贴贴了<img src="https://static.saraba1st.com/ima
 
 除了会穿模以外身材并不影响动捕
 
+
+
+*****
+
+####  M1NG  
+##### 1490#       发表于 2021-12-1 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752355&amp;ptid=1989758" target="_blank">被子十三 发表于 2021-11-30 02:56</a>
+
+之前没接触过，3D化是需要扫描身体参数然后做动捕的吗？如果这样的话中之人实际体型和设定相差太多咋办 ...</blockquote>
+为了实时表现效果的话一般都是需要全身动捕进行骨骼绑定的，en应该是用便携设备设计的3d，但也要去holo的专业工作室里动捕拿到参数慢慢调整，动捕都可以调，体型影响问题不大。
+
+*****
+
+####  空集  
+##### 1491#       发表于 2021-12-1 04:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53620499&amp;ptid=1989758" target="_blank">a1741128 发表于 2021-11-20 11:33</a>
+
+议会的所谓“见面会”</blockquote>
+本来也没啥感觉，突然感觉没去好亏，感觉可能是这辈子最接近有机会去的线下活动了。。虽然我那个周末有事加要规划来回的机票和住宿确实又不现实。。 哎 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，只恨我不是在纽约而是在乡下上学吧
+

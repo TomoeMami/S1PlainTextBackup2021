@@ -11604,3 +11604,270 @@ https://www.6sqft.com/see-how-nycs-urban-density-stacks-up-against-other-major-c
 要我说，论文里的血清抗体中和测试明明测到了2019年12月 ...</blockquote>
 据英国《镜报》和美国《**》报道，意大利研究人员一篇去年11月的论文指出，959名接受过肺癌筛查的人的血液样本检测中发现111人的新冠病毒抗体检测结果呈阳性，其中最早的样本采集时间是2019年10月第一周，表明他们至少在2019年9月就已感染。
 
+
+
+*****
+
+####  creymorgan  
+##### 1064#       发表于 2021-12-1 01:47
+
+<blockquote>riczxc 发表于 2021-12-1 01:13
+纽约四月才爆炸的。不是说完全没道理，但是你对比两者人口密度
+
+硚口区、江汉区，都是武汉两个重要的区。 ...</blockquote>
+实际上美国核酸样品记录溯源可以到19年，但是大流行时的毒株测序上游是欧洲。
+
+也就是说美国爆发的不是美国19年末就有的毒株，而是经过了中国-欧洲-美国路径的。那么问题是这个人路径在中国之前可能还有节点么？完全可能不是么。
+
+然后意大利最早核酸记录是19年11月。
+
+早在中国规模传播前新冠就分布全球了。
+
+*****
+
+####  riczxc  
+##### 1065#         楼主| 发表于 2021-12-1 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765260&amp;ptid=2039422" target="_blank">天国直通车 发表于 2021-12-1 01:44</a>
+据英国《镜报》和美国《**》报道，意大利研究人员一篇去年11月的论文指出，959名接受过肺癌筛查的人的血 ...</blockquote>
+的确很可疑，但是血清抗体测试的特异性很多都不太够的。你看看这个链接好了。
+
+http://rs.yiigle.com/m/CN114452202005/1199013.htm
+
+*****
+
+####  riczxc  
+##### 1066#         楼主| 发表于 2021-12-1 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765278&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-1 01:47</a>
+实际上美国核酸样品记录溯源可以到19年，但是大流行时的毒株测序上游是欧洲。
+
+也就是说美国爆发的不是美 ...</blockquote>
+意大利11月的核酸记录我倒是没听过，有链接么？
+
+*****
+
+####  天国直通车  
+##### 1067#       发表于 2021-12-1 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765150&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 01:25</a>
+电子烟肺炎当然很可疑，但不是没有抓住痛脚么。
+
+要我说，论文里的血清抗体中和测试明明测到了2019年12月 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">知道白皮为什么咉咉中国在“9月爆发新冠”，而不是在“12月爆发”吗？因为白皮在9月已经出现病例
+
+*****
+
+####  riczxc  
+##### 1068#         楼主| 发表于 2021-12-1 01:57
+
+ 本帖最后由 riczxc 于 2021-12-1 02:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765278&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-1 01:47</a>
+实际上美国核酸样品记录溯源可以到19年，但是大流行时的毒株测序上游是欧洲。
+
+也就是说美国爆发的不是美 ...</blockquote>
+新冠疫情爆炸往往是很多个哑弹感染者加上少数的超级传播者。
+
+所以，如果有一两个病例最后运气不好，的确会成为爆发地，但是，还是需要有足够病例为基础，才能确保大爆发。
+
+我不过是说，按照各方面的证据看，觉得武汉很可疑不奇怪，不能什么都归结为洗脳。你们在证明说不一定是武汉。我们的观点并不矛盾。
+
+*****
+
+####  riczxc  
+##### 1069#         楼主| 发表于 2021-12-1 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765292&amp;ptid=2039422" target="_blank">天国直通车 发表于 2021-12-1 01:50</a>
+知道白皮为什么咉咉中国在“9月爆发新冠”，而不是在“12月爆发”吗？因为白皮在9月已经出现病例 ...</blockquote>
+我觉得有并不奇怪。但有多少例。另外，出现SARI不一定是新冠。过硬的证据需要PCR实锤。
+
+*****
+
+####  天国直通车  
+##### 1070#       发表于 2021-12-1 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765329&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 01:59</a>
+我觉得有并不奇怪。但有多少例。另外，出现SARI不一定是新冠。过硬的证据需要PCR实锤。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是个问题，不检测不追踪的永远没有病例。
+
+*****
+
+####  sin.yugi  
+##### 1071#       发表于 2021-12-1 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765324&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 12:57</a>
+新冠疫情爆炸往往是很多个哑弹感染者加上少数的超级传播者。
+
+所以，如果有一两个病例最后运气不好，的确 ...</blockquote>
+发生挤兑的前提是 有 “认知”这是个特殊的病并且有特殊对待。 没有认知米国人就是死在自己屋里也当是流感了事。就如米国一直每天新增10万也没所谓的医疗挤兑，因为他们已经不怎么在乎。
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  coldhot3  
+##### 1072#       发表于 2021-12-1 03:18
+
+<blockquote>riczxc 发表于 2021-11-30 23:05
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。 ...</blockquote>
+只要严格执行分诊制，基层不转诊，怎么挤兑？
+
+*****
+
+####  烦死了  
+##### 1073#       发表于 2021-12-1 03:40
+
+只要看病足够贵 没保险不去看病 怎么爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 1074#         楼主| 发表于 2021-12-1 04:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765530&amp;ptid=2039422" target="_blank">coldhot3 发表于 2021-12-1 03:18</a>
+只要严格执行分诊制，基层不转诊，怎么挤兑？</blockquote>
+火葬场挤兑。
+
+*****
+
+####  riczxc  
+##### 1075#         楼主| 发表于 2021-12-1 04:29
+
+ 本帖最后由 riczxc 于 2021-12-1 04:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765475&amp;ptid=2039422" target="_blank">sin.yugi 发表于 2021-12-1 02:50</a>
+发生挤兑的前提是 有 “认知”这是个特殊的病并且有特殊对待。 没有认知米国人就是死在自己屋里也当是流 ...</blockquote>
+他们挤兑是分地方的。前段时间佛罗里达不才挤兑了？
+
+而且考虑现在还是有打疫苗，而且也有新冠一波波犁过的自然免疫，高危人群的自我保护意识以及更成熟的治疗方案。
+
+纽约为了避免挤兑，在omicron来之前也紧急状态了。
+
+*****
+
+####  riczxc  
+##### 1076#         楼主| 发表于 2021-12-1 04:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765353&amp;ptid=2039422" target="_blank">天国直通车 发表于 2021-12-1 02:03</a>
+这是个问题，不检测不追踪的永远没有病例。</blockquote>
+非洲就如此。但是也可以入境筛查。
+
+军运会血样至少没报道出什么来。
+
+*****
+
+####  riczxc  
+##### 1077#         楼主| 发表于 2021-12-1 04:34
+
+ 本帖最后由 riczxc 于 2021-12-1 04:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763503&amp;ptid=2039422" target="_blank">kris_ch 发表于 2021-11-30 22:50</a></blockquote>
+你觉得我说得不对，尽管可以回复一条条反驳，暗戳戳扣分骂街三岁小孩都会。
+
+维护空气，辛苦了。
+
+*****
+
+####  riczxc  
+##### 1078#         楼主| 发表于 2021-12-1 04:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765555&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-1 03:40</a>
+只要看病足够贵 没保险不去看病 怎么爆啊</blockquote>
+救护车挤兑。
+
+如果说美国的穷人，反正没钱，不交费就好了，反正法律规定必须治。怕的是那些有一点财产的穷人。
+
+*****
+
+####  sin.yugi  
+##### 1079#       发表于 2021-12-1 05:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765601&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 15:29</a>
+他们挤兑是分地方的。前段时间佛罗里达不才挤兑了？
+
+而且考虑现在还是有打疫苗，而且也有新冠一波波犁过 ...</blockquote>
+你找这么多借口没有任何意义。事实是平均10万每天确诊的水平，并不能让米国人产生所谓的挤兑。那就是说要米国在2019或者2020年初发生所谓的挤兑要每天新增远远超过10万的水平。在那个时期，并没有这么广泛的传播，不就完事了。要知道那时还是原版病毒远没有现在的delta厉害。
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  riczxc  
+##### 1080#         楼主| 发表于 2021-12-1 05:38
+
+ 本帖最后由 riczxc 于 2021-12-1 05:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765666&amp;ptid=2039422" target="_blank">sin.yugi 发表于 2021-12-1 05:26</a>
+
+你找这么多借口没有任何意义。事实是平均10万每天确诊的水平，并不能让米国人产生所谓的挤兑。那就是说要 ...</blockquote>
+
+你说得也不是没有道理，但是疫苗的确把delta的R0降得和原始株一样了，而且加上群体免疫应死尽死，而且还高危群体自身有所保护，还有滥用单克隆抗体，当然不能直接比了。
+
+你还没有考虑的是，这个数字是入冬的水平。假设同样10万确诊的水平，2020时怎么可能让纽约撑到4月才爆炸？别忘记，两到三天翻一番，当时什么都不知道的时候，新冠疫情指数从1增长到10万还用不了两个月。
+
+https://wwwnc.cdc.gov/eid/article/26/8/20-0219_article
+
+
+
+*****
+
+####  休達  
+##### 1081#       发表于 2021-12-1 05:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765613&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 04:42</a>
+救护车挤兑。
+
+如果说美国的穷人，反正没钱，不交费就好了，反正法律规定必须治。怕的是那些有一点财产的 ...</blockquote>
+美国穷人敢叫救护车？？？你知道美国救护车拉一趟多少钱吗？
+
+*****
+
+####  riczxc  
+##### 1082#         楼主| 发表于 2021-12-1 05:48
+
+ 本帖最后由 riczxc 于 2021-12-1 05:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765685&amp;ptid=2039422" target="_blank">休達 发表于 2021-12-1 05:45</a>
+
+美国穷人敢叫救护车？？？你知道美国救护车拉一趟多少钱吗？</blockquote>
+
+我说救护车挤兑也不是再说美国。欧洲救护车挤兑了一段时间了。
+
+美国情况不知道啊，1000刀以下能解决吧，再不行ER排队挤兑吧。反正最迟到殡仪馆肯定能看见。
+
+真穷人还要交钱？反正都交不起吧。
+
+*****
+
+####  sin.yugi  
+##### 1083#       发表于 2021-12-1 05:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765689&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 16:48</a>
+我说救护车挤兑也不是再说美国。欧洲救护车挤兑了一段时间了。
+
+美国情况不知道啊，1000刀以下能解决吧， ...</blockquote>
+你可能不知道，纽约没钱的很多都睡在街头，就连所谓最繁华的曼哈顿时代广场42街也满地流浪汉。他们是不可能会去所谓医院的。死了估计也是在某个不知名的角落。还有救护车是2000刀起跳。
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  休達  
+##### 1084#       发表于 2021-12-1 05:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765689&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 05:48</a>
+我说救护车挤兑也不是再说美国。欧洲救护车挤兑了一段时间了。
+
+美国情况不知道啊，1000刀以下能解决吧， ...</blockquote>
+救护车3000刀
+
+真穷人直接死家里，教会或者慈善机构帮忙装袋埋了，和你家丢袋垃圾差不多，有啥挤兑的。
+
+*****
+
+####  riczxc  
+##### 1085#         楼主| 发表于 2021-12-1 06:01
+
+ 本帖最后由 riczxc 于 2021-12-1 06:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765693&amp;ptid=2039422" target="_blank">sin.yugi 发表于 2021-12-1 05:53</a>
+
+你可能不知道，纽约没钱的很多都睡在街头，就连所谓最繁华的曼哈顿时代广场42街也满地流浪汉。他们是不可 ...</blockquote>
+
+总要埋的吧？烧也好，埋也好，都会挤兑的。问问从业人员就知道的事情，哪里瞒得住。
+

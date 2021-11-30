@@ -5809,3 +5809,142 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 
 对标as的请去鸟吧，现在正在ttk
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 3668#       发表于 2021-12-1 01:43
+
+希望新的一月老阿姨能少点zqsg<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3669#       发表于 2021-12-1 01:43
+
+这配图，不愧是你啊<img src="https://p.sda1.dev/3/c19933f34fb3a0a9a0e6f51cb63e14c0/IMG_CMP_147455918.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3670#       发表于 2021-12-1 01:57
+
+希望新的一月老阿姨能少点zqsg，多点炒作<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">鸟吧狗都不看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  443421870  
+##### 3671#       发表于 2021-12-1 01:59
+
+不应该是静海梓嘉嘛，从三亚海口搬到天津了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aikkkkk  
+##### 3672#       发表于 2021-12-1 02:10
+
+文静，你毁了多少人的早八<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3673#       发表于 2021-12-1 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765381&amp;ptid=2013779" target="_blank">aikkkkk 发表于 2021-12-1 02:10</a>
+文静，你毁了多少人的早八</blockquote>
+我早九，但现在也寄了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3674#       发表于 2021-12-1 02:15
+
+“大家！我千舰了！”文静刚刚下播还没来得及关电脑，就撑着大病未愈的身体，提起因为三个多小时的直播而萎靡的精神向队友报喜。
+ “只要我一直有新的舰长，有新人有热度，千鸟就能活下去吧……”文静现在想的，也正如直播时说的那样，她一直都是心口如一的女孩。
+ 拖着身体走到了客厅，队友已经早早等在这里了，微微冒着热气的茶水证明她们已经在这里有段时间了，可屋子里的气氛却并不似茶水这么温和，坐在中间的艾瑞思更是脸阴沉的像现在屋外的天空一样。
+ “怎么了吗？大家……”察觉到气氛不对的文静连忙收敛了笑容，低下头看着艾瑞思不断踏着地板的脚，小声问到。
+ 可文静话刚出口一半，就被沉闷的碰撞声打断了，接下来便是刺耳的弦音，文静觉得大地突然从脚下消失了，地面在极速的贴近，她想扶住什么却牵动了肚子上的伤口，最后还是以额头和地面密切接触的方式停了下来，因为没有地暖而冰冷的千鸟地板和额头的疼痛，让仿佛离开身体的灵魂又稍微清醒了一下，回头望去coco拿着吉他站在身后。
+ “不愧是千鸟力气最大的人……”文静心里第一时间居然冒出了这种奇怪的念头，然后她看到了吉他下部的一抹赤色，感受着头上的温热，文静很容易就明白了刚刚发生了什么。
+ “哟哟哟~这不是我们的千舰大主播吗？怎么爬地上了啊！”直播间外的艾白早已经卸下了营业声线，妩媚的声音里满是嘲讽：“是想起来今天地板还没擦了，要给大家擦地板了吗？”
+ 一个并不干净的抹布被丢到了文静的脸上，随之而来的是艾瑞思的冰冷声音：“把弄到地上的脏东西擦了。”
+ “脏东西？”不断袭来的眩晕和肚子上伤口的疼痛，让文静反应开始变得有些迟钝，自己明明记得刚出来时地板上很干净的啊。“哦，原来脏东西是这个啊……”地上不断滴落的殷红让文静有些想哭，她其实一直很胆小的，也怕血。
+ 可还没等文静流泪，她的整张脸就变得温热了——随着艾瑞思泼来的茶水变得温热起来了。随之而来的还有砸过来的杯子和艾瑞思的叱责：“让你把脏东西擦了没听到吗！是不是觉得自己现在是大主播了，翅膀硬了啊！”
+ “是不是忘了当初是谁把你找进来的啊！当初真是瞎了眼了找了你这个倒马毒！”杯子摔落的声音就像划破暴雨的雷声，冲锋前的号角，带出来了艾瑞思一串串怒骂：“刚入职业四个月就把陈总给扳倒了，没找到你这么心机婊，接下来是不是就该轮到我这个队长了啊！准备给我下什么黑手啊你？没阑尾的东西！”
+ “队长，我真的没有……你听我解释……”文静刚想开口，就又被剧痛把剩下的话给打断在了肚子里，不知何时走到了自己面前的王木木用高跟鞋精准的踢到了自己腹部的伤口上，她能感受到伤口已经开裂了，应该在不断的渗出血来。
+ “艾队少和她废话了！刚刚直播还阴阳我们，说什么让观众把她关注列表拉到底边什么的话，这个小婊*！”琳也早失去了平时的优雅，边骂边往文静的因为渗血已经发红伤口上又补了一脚，然后用前脚掌踩在了文静被长筒袜包裹着的，充满少女气息的大腿的中间，轻轻的碾动着脚掌，踩在少女最敏感也是最柔弱的部位。
+ “今晚我们是不是得好好的伺候伺候我们的大主播呀，你们说是不是啊？”艾瑞思边说边站了起来，脱下了自己粉色的鞋子漏出被白袜包裹的小脚，准确的用脚尖点在了文静樱粉色的唇上。“大主播能不能先开开金口帮我把袜子脱了啊，也好让我伺候你呀。”艾瑞思生气的声音也依然如同百灵鸟一样好听……
+早九，寄了，明天请假趁机去打加强针<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 3675#       发表于 2021-12-1 02:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了艾瑞斯都转发了千舰
+我怀疑文静把另外三个人都摇醒了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  灰色的狐狸  
+##### 3676#       发表于 2021-12-1 02:30
+
+ 本帖最后由 灰色的狐狸 于 2021-12-1 02:33 编辑 
+
+鹅球还没好
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  T型钉宫病毒  
+##### 3677#       发表于 2021-12-1 02:41
+
+故意不摇醒队长等鸟p发散是吧
+
+*****
+
+####  tankai  
+##### 3678#       发表于 2021-12-1 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765401&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-1 02:15</a>
+
+“大家！我千舰了！”文静刚刚下播还没来得及关电脑，就撑着大病未愈的身体，提起因为三个多小时的直播而萎 ...</blockquote>
+不是不看得吗？睡了。
+
+*****
+
+####  haruhiismer  
+##### 3679#       发表于 2021-12-1 02:54
+
+静女妖架空队长
+
+*****
+
+####  tbdmgx@163.com  
+##### 3680#       发表于 2021-12-1 03:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765249&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-12-1 01:43</a>
+
+这配图，不愧是你啊</blockquote>
+说好的跟盗图狗切割以后再不发猫图呢<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  papermoon868  
+##### 3681#       发表于 2021-12-1 04:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765401&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-1 02:15</a>
+“大家！我千舰了！”文静刚刚下播还没来得及关电脑，就撑着大病未愈的身体，提起因为三个多小时的直播而萎 ...</blockquote>
+多写点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

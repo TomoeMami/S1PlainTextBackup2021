@@ -1081,3 +1081,24 @@ closed beta开了，云鉴黄师们来冲一波了
 
 楼主呢，给点作用啊
 
+
+
+*****
+
+####  kusanagi9999  
+##### 106#       发表于 2021-12-1 02:15
+
+太乐了，不得不说我对中国黄油有刻板印象了
+
+—— 来自 vivo V1809A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kina  
+##### 107#       发表于 2021-12-1 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53737757&amp;ptid=2039606" target="_blank">tansapple 发表于 2021-11-28 22:44</a>
+
+难为楼主还在洗，不知道是交了35美刀的还是交了95美刀的，反正谁相信这骗子要饭组谁傻逼[f:0 ...</blockquote>
+也许楼主就是开发组的呢
+
