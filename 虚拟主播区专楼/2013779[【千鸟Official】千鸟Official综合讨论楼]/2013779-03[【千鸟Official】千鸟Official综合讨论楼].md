@@ -5731,3 +5731,81 @@ syl，我可是刚看没两天她就宣布鸟可能要散了+请假了<img src="
 不过这段时间也确实挺欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 明天还有事 早点睡了 明天补录播了
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 3661#       发表于 2021-12-1 01:22
+
+看了七年海鲜台就爆了两张办卡，管人真的害人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 3662#       发表于 2021-12-1 01:23
+
+ 本帖最后由 tankai 于 2021-12-1 01:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764932&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-1 01:02</a>
+
+原因呢？有点好奇，不过寄就寄呗，本来就是找乐子，想那么多干嘛
+
+SYL我的悲喜和感动，已经随着时间 ...</blockquote>
+千鸟11月12号白白OP里“训（认知）粉”，让几个老头破防。
+
+琳前天说了12月千鸟要变，以后动态审核，私信不回？等等。。“对标”我没听清可能是发散。
+
+、
+
+那么当初做乐子人被MMR赶出来的AS粉，肯定绝望了。就算前晚文静哭播不放弃任何成分的人，他们也不回头了。
+
+*****
+
+####  小憨1  
+##### 3663#       发表于 2021-12-1 01:26
+
+那么到底是“静晚梓鲨”还是“海阑梓嘉”呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 3664#       发表于 2021-12-1 01:30
+
+这人已经是没阑尾的家伙了……
+
+其实我觉得文静在As里取代乃琳绰绰有余（暴论）
+
+*****
+
+####  袜子  
+##### 3665#       发表于 2021-12-1 01:30
+
+认真讲，人多了扭曲的氛围自然就没了……这是必然的。
+
+SYL文静每次上大舰都有人说下个月要掉大舰，结果这个女人总有新的炒作新的舰长数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令人唏嘘
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  袜子  
+##### 3666#       发表于 2021-12-1 01:35
+
+ 本帖最后由 袜子 于 2021-12-1 01:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765135&amp;ptid=2013779" target="_blank">tankai 发表于 2021-12-1 01:23</a>
+千鸟11月12号白白OP里“训（认知）粉”，让几个老头破防。
+
+琳前天说了12月千鸟要变，以后动态审核，私信 ...</blockquote>
+我也是12月看as的乐子人啊，现在还是as直播次次不落，别当认知厨，就能永保乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这！就是虚拟感。
+
+syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  莫洛骑士  
+##### 3667#       发表于 2021-12-1 01:39
+
+对标as的请去鸟吧，现在正在ttk
+

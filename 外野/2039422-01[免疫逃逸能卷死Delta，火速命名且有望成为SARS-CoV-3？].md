@@ -11567,3 +11567,40 @@ https://www.6sqft.com/see-how-nycs-urban-density-stacks-up-against-other-major-c
 
 发达国家真正开始新冠医疗挤兑的时候，是瞒不住的。日本、纽约，例子一长串。
 
+
+
+*****
+
+####  riczxc  
+##### 1061#         楼主| 发表于 2021-12-1 01:25
+
+ 本帖最后由 riczxc 于 2021-12-1 01:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763894&amp;ptid=2039422" target="_blank">crazyt 发表于 2021-11-30 23:26</a>
+电子烟肺炎和死掉好几万的流感季就这么当没发生过了。穷比都赶回家去自生自灭，永远都不会发生医疗挤兑。 ...</blockquote>
+电子烟肺炎当然很可疑，但不是没有抓住痛脚么。
+
+要我说，论文里的血清抗体中和测试明明测到了2019年12月的美国献血样本有阳性，就没人查11月的，这才奇怪。当然这不是PCR测试。
+
+但是，新冠爆发那么厉害，不送医院死在家里但没新闻的事情，不太可能在欧美发生。否则这两年大家看的笑话是哪来的？
+
+*****
+
+####  BLTUS  
+##### 1062#       发表于 2021-12-1 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752456&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 04:24</a>
+
+起码我有个荷兰的朋友，我问他们，你们80岁入院率那么高，但是没几个进ICU的，没问题吧。他说，我们的观 ...</blockquote>
+没什么不能理解的，国外已经基本把新冠当成一般流感，8、90岁的老头老太进了ICU本来就凶多吉少，不如少去折腾
+
+*****
+
+####  天国直通车  
+##### 1063#       发表于 2021-12-1 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765150&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 01:25</a>
+电子烟肺炎当然很可疑，但不是没有抓住痛脚么。
+
+要我说，论文里的血清抗体中和测试明明测到了2019年12月 ...</blockquote>
+据英国《镜报》和美国《**》报道，意大利研究人员一篇去年11月的论文指出，959名接受过肺癌筛查的人的血液样本检测中发现111人的新冠病毒抗体检测结果呈阳性，其中最早的样本采集时间是2019年10月第一周，表明他们至少在2019年9月就已感染。
+
