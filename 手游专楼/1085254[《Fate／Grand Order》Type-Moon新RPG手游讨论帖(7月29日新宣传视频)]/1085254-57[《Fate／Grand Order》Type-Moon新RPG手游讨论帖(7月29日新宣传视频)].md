@@ -5787,3 +5787,12 @@ NMD两单沉了
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  khxooo  
+##### 84522#       发表于 2021-11-30 23:24
+
+没有狗叫，这不科学啊。
+

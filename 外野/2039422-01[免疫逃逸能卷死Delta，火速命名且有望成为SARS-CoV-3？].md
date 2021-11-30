@@ -11454,3 +11454,15 @@ https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_ogg
 虽然名面上没，但现在很多人也被发达国家阵营xi nao成起源是武汉了</blockquote>
 我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。
 
+
+
+*****
+
+####  riczxc  
+##### 1052#         楼主| 发表于 2021-11-30 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763413&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2021-11-30 22:42</a>
+
+福奇从来都是美帝太医，没啥叛不叛变的</blockquote>
+明明是骗大家别戴口罩的政治家，抗疫是副业。
+
