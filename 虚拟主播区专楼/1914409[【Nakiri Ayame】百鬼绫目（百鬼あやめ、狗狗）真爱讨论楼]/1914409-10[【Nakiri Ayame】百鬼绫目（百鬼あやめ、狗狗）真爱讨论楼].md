@@ -710,3 +710,12 @@ syl昨天小号打个几场改开大号到早上6点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在她手上T1和T3有什么区别
 
+
+
+*****
+
+####  因为你不会  
+##### 13573#       发表于 2021-11-30 19:26
+
+绫总的LOL选择不是打打杀杀，是人情世故，是看脸下饭
+

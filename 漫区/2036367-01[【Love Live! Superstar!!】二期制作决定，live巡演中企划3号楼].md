@@ -14858,3 +14858,23 @@ ksks可以留着跟妮善堇下次凑吃瘪组
 
 巡演的goods终于发货了，2nd除了场刊对别的没兴趣，但就一本东西还要邮费啥的感觉有点不爽，莫非要走代购吗？
 
+
+
+*****
+
+####  cxj649  
+##### 1330#       发表于 2021-11-30 19:23
+
+<blockquote>中野四葉 发表于 2021-11-29 23:22
+4灰毛，我的4灰毛。雪菜还是太强了，该猜再下期是谁了</blockquote>
+应该是妮善霞堇
+
+*****
+
+####  lj205  
+##### 1331#       发表于 2021-11-30 19:30
+
+[https://www.bilibili.com/video/B ... mp;unique_k=svVZeDT](https://www.bilibili.com/video/BV1h44y1h7CT?p=1&amp;share_medium=android&amp;share_plat=android&amp;share_session_id=b4ae4eca-3671-42d5-a774-7566b6315f23&amp;share_source=QQ&amp;share_tag=s_i&amp;timestamp=1638270397&amp;unique_k=svVZeDT)
+
+你鲤鱼吃的也不少………………………………………………………………………………
+
