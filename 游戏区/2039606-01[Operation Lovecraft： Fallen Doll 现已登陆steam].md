@@ -996,3 +996,15 @@ closed beta开了，云鉴黄师们来冲一波了
 知道为什么做订阅制这么赚了吗，完全没进度狂拖才有人去骂你，有一点进度就有楼主这样的孝子贤孙洗 ...</blockquote>
 老哥你这的帖子我权限不够，想看看你怎么说的，现在我也感觉上当了
 
+
+
+*****
+
+####  Jooohnny  
+##### 98#       发表于 2021-11-30 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53758397&amp;ptid=2039606" target="_blank">lancer48 发表于 2021-11-30 15:44</a>
+
+老哥你这的帖子我权限不够，想看看你怎么说的，现在我也感觉上当了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">喷的东西微博已经发的到处都是了，跟你上面那条一样，目前的内容完全是废品不具有可玩性，哪怕再给出半年这个制作组也一定是端不出什么能玩的东西的
+
