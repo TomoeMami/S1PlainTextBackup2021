@@ -14574,3 +14574,27 @@ cp厨会叫的比较响而已，男枪卡牌这种互坑的好兄弟比cp锁死�
 凯特琳好高，金克丝18岁还这么矮是不是有点发育不良，希尔科是不是不给她吃好吃的
 <img src="https://p.sda1.dev/3/6d7a87c2c98cafbb865823ee68a40514/IMG_CMP_82790353.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sandro  
+##### 2844#       发表于 2021-11-30 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760018&amp;ptid=2002246" target="_blank">巴麻耒 发表于 2021-11-30 18:06</a>
+凯特琳好高，金克丝18岁还这么矮是不是有点发育不良，希尔科是不是不给她吃好吃的
+ ...</blockquote>
+160也算发育不良了吗
+
+*****
+
+####  狼影者瑞德克斯  
+##### 2845#       发表于 2021-11-30 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760018&amp;ptid=2002246" target="_blank">巴麻耒 发表于 2021-11-30 18:06</a>
+
+凯特琳好高，金克丝18岁还这么矮是不是有点发育不良，希尔科是不是不给她吃好吃的
+
+ ...</blockquote>
+我倒觉得是她自己不愿意好好吃饭，看人家赛维卡也没像她这样
+

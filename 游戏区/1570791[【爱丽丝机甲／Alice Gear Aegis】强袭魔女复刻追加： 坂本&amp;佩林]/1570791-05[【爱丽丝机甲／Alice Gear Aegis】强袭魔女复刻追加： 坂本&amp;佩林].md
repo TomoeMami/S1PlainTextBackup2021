@@ -3944,3 +3944,16 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 嘟嘟噜又挂了，真没VICE性
 
+
+
+*****
+
+####  蕾丝  
+##### 6297#       发表于 2021-11-30 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750326&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-29 22:11</a>
+哈哈，国服也到了这一天了，挂个TAG上B站一堆虐100150200的BOSS视频正如彼时彼刻 ...</blockquote>
+这些高难本是从哪里进去打？星际玩家没找到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
