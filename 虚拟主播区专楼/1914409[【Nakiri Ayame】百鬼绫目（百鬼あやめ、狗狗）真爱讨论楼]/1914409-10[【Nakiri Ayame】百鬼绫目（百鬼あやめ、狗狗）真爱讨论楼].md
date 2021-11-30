@@ -637,3 +637,14 @@ https://vtuber-matome.com/vtuber-19079-153554.html
 403了 小号id叫啥呀</blockquote>
 应该叫梓豪熙吗 https://jp.op.gg/summoner/userName=%E6%A2%93%E8%B1%AA%E7%86%99 还有就改个名吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  nian1538  
+##### 13566#       发表于 2021-11-30 10:48
+
+这次这个说是绫总的小号说实话缺乏论证过程，不太令人信服
+
+虽说一起打的还是那帮人，英雄池也基本一样，但也有可能是小圈子里别的人的号
+

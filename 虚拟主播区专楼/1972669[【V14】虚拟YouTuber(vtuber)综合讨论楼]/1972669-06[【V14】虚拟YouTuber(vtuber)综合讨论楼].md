@@ -15881,3 +15881,50 @@ syl 角色都收走了 用角色制作的翻唱也没意义了吧 应该争取�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然我支持虹死，快点死，都要等不及了
 
+
+
+*****
+
+####  free  
+##### 8725#       发表于 2021-11-30 10:42
+
+企划散了旗下成员带皮转成个人势的，日V我就想起来一个星空学院，国V不清楚了
+
+这个企划肯定是不赚钱的，也看不到很明确商业前景，但是这么突然的就砍掉，虹怕不是真的要上市了吧
+
+不太懂日本的劳动相关法律，这搁国内首先就全员赔个N+1先不然劳动仲裁见，不过这些直播员算不算虹员工怎么签的合同我们也不知道<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真飞鸟i  
+##### 8726#       发表于 2021-11-30 10:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚拟陪酒真的不赚钱吗，记得以前ppt上占比还挺大的，
+
+*****
+
+####  硫黄  
+##### 8727#       发表于 2021-11-30 10:57
+
+前阵子不是还有人在吹纸片人人权的嘛
+
+咱管人就不能有人权啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+全世界的管人站起来，你们真的就只是营运手下的牵线木偶吗
+
+凭什么营运一句话我们的存在痕迹就消失的干干净净了？
+
+活在海盗切片里的你真的还是你自己吗？
+
+不过对比下个人势不断换皮转生几万粉，进箱没播就银盾怕是到管人业界凉了都没戏啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 8728#       发表于 2021-11-30 10:59
+
+劳务派遣？个人承包？规避方法还蛮多的
+
+另外带皮走的还是有不少的，不过基本上都是箱炸了，好聚好散皮送你
+比如童话的露露大姐，白雪reid
+
