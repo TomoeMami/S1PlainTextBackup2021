@@ -11428,3 +11428,29 @@ https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_ogg
 至于那群欧洲佬到底是测到不说等别人发现好扣锅给别 ...</blockquote>
 海外的测出来不都是德尔塔吗？
 
+
+
+*****
+
+####  kris_ch  
+##### 1050#       发表于 2021-11-30 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53762824&amp;ptid=2039422" target="_blank">希远闹 发表于 2021-11-30 21:53</a>
+
+外交部驳斥福奇涉疫情不当言论赵立坚对福奇有关表态表示遗憾
+
+老逼样叛变了 上次谭黑狗 ...</blockquote>
+你这反应也太慢了，福奇啥逼样的不早暴露了，何谈现在才叛变。。
+
+
+
+*****
+
+####  riczxc  
+##### 1051#         楼主| 发表于 2021-11-30 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53761648&amp;ptid=2039422" target="_blank">nerugigannte 发表于 2021-11-30 20:23</a>
+
+虽然名面上没，但现在很多人也被发达国家阵营xi nao成起源是武汉了</blockquote>
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。
+

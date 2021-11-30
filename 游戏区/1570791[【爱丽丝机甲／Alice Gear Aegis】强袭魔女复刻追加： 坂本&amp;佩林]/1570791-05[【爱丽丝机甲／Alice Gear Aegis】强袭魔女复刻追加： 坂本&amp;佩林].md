@@ -4065,3 +4065,27 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 6306#       发表于 2021-11-30 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53761774&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-11-30 20:29</a>
+
+多了很多东西啊，除了调查没变外（拖
+
+1，战场摄影模式，别挡着我拍女演员；</blockquote>
+这游戏有扫荡吗？ 除了高难本
+
+*****
+
+####  江戸前ルナ  
+##### 6307#       发表于 2021-11-30 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763439&amp;ptid=1570791" target="_blank">DRAGONBLEAPIECE 发表于 2021-11-30 22:45</a>
+
+这游戏有扫荡吗？ 除了高难本</blockquote>
+有。饰品券可以调查目录出来。买衣服也会送。用调查目录可以扫荡调查图的点并获得报酬。
+
