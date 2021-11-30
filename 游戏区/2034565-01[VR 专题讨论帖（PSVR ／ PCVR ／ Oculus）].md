@@ -2957,3 +2957,14 @@ SKYBOX的电影院模式看电影真是太爽了，今晚看了阿丽塔，太�
 
 —— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Ichihatsu  
+##### 191#       发表于 2021-11-30 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">怪不得都吹VD，用官方的有线无线费劲连上又和VIVE驱动冲突啥也干不了，买VD不仅秒连而且啥问题没有。
+
+就是渣渣1070+网件R7000感觉有延迟，显卡买不起的情况下有啥傻子也能用的串流商店路由推荐吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

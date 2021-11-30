@@ -11309,3 +11309,30 @@ moderna这个老板是说了老实话
 也还好中国国力强了，不然跟西班牙一样因为诚实永载负面史册</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">虽然名面上没，但现在很多人也被发达国家阵营xi nao成起源是武汉了
 
+
+
+*****
+
+####  foxpat  
+##### 1041#       发表于 2021-11-30 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752048&amp;ptid=2039422" target="_blank">DraQin 发表于 2021-11-30 01:09</a>
+
+Omicron对我的直接影响就是
+
+本来英国回国机票价格一直都贵，但还算稳定
+
+但自打很多学校同意后续课程可以网 ...</blockquote>
+弄个机票套期保值？
+
+*****
+
+####  DraQin  
+##### 1042#       发表于 2021-11-30 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53761849&amp;ptid=2039422" target="_blank">foxpat 发表于 2021-11-30 12:34</a>
+弄个机票套期保值？</blockquote>
+我只知道我抓住了最后一个还能1700磅入手的机会，因为就在两个小时前，本班航班明年3月到8月的价格已经全面到达3000磅
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
