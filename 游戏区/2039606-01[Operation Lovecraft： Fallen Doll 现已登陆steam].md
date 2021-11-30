@@ -1054,3 +1054,21 @@ closed beta开了，云鉴黄师们来冲一波了
 
 现在i社的东西那么强大，傻子花35刀买这破烂
 
+
+
+*****
+
+####  Vladimeow  
+##### 103#       发表于 2021-11-30 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能把这屌逼游戏发到手游区
+
+*****
+
+####  Litccc  
+##### 104#       发表于 2021-11-30 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53758322&amp;ptid=2039606" target="_blank">lancer48 发表于 2021-11-30 15:37</a>
+又搁着画饼这抽卡真的原因不明，说的包含小队战术和牌组构筑的Roguelike策略游戏，其实还不是抽卡， ...</blockquote>
+好家伙，怎么坑钱怎么来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -11211,3 +11211,15 @@ moderna这个老板是说了老实话
 
 对武汉是这样，对南非也是这样
 
+
+
+*****
+
+####  坚果大爷  
+##### 1032#       发表于 2021-11-30 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53759744&amp;ptid=2039422" target="_blank">L.L 发表于 2021-11-30 17:41</a>
+
+这就校园传播了，才几天啊。在快进下就最后一步我们原本能做啥了。 ...</blockquote>
+应该问都传播多久了才开始检测吧
+
