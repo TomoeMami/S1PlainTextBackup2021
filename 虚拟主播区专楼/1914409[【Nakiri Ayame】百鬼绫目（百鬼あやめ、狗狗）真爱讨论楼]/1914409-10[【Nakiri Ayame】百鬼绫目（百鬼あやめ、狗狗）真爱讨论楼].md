@@ -772,3 +772,12 @@ pua比绫总好的，直播次数没绫总少
 
 话说怎样才算绫总的上位替代啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  因为你不会  
+##### 13579#       发表于 2021-12-1 00:59
+
+真有那种人可以封个绫董（事长）了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

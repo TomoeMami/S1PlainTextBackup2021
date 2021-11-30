@@ -21166,3 +21166,16 @@ Alternative最近这两话看得想睡觉……是制作组拉了还是这段就
 
 <img src="https://p.sda1.dev/3/fb8b72d3666c6589d5e40a5d2a552bc7/yande.re 891819 bikini mitsurugi_meiya muvluv muvluv_alternative swimsuits.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  102mph  
+##### 1493#       发表于 2021-12-1 00:59
+
+ 本帖最后由 102mph 于 2021-12-1 01:01 编辑 
+
+咋说呢 muv本篇也就是extra确实是挺无聊的日常 过了extra后面的故事就开始快速跃迁了 不太推荐看动画 这游戏剧透还是有中度影响的
+
+另外提一个或许是个人的特例吧 我第一个玩的age游戏就是muv 那时候打黄油已经七八年了 但因为第一次接触age的演出 extra给我的震撼反而要比后两个都要大 因为那宇宙级别的script编写工作量……想说的大概是如果是个老黄油玩家 玩muv的看点不只是剧情 还有看age的演出系统和脚本编写
+

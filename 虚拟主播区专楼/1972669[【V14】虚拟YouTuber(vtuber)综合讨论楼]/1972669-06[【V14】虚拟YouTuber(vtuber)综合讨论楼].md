@@ -16438,3 +16438,21 @@ syl，这段话是在说尊妈
 ❄️💜ボラとたくさん遊んでたくさんチャンピオンとった思い出⭐️
 [https://www.youtube.com/watch?v=ubnoYrdeNhE](https://www.youtube.com/watch?v=ubnoYrdeNhE)
 
+
+
+*****
+
+####  杰西蜜  
+##### 8774#       发表于 2021-12-1 00:55
+
+这cpt铁暗恋bora
+
+—— 来自 realme RMX2121, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+*****
+
+####  星街こうせい  
+##### 8775#       发表于 2021-12-1 00:59
+
+杏奴看到这俩推しマーク差点吓死了。
+

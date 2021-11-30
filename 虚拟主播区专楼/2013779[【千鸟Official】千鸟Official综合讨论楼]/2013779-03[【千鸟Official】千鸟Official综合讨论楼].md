@@ -5207,3 +5207,306 @@ Syl.还在骗还在骗
 因为当时那个SC是我问的……很在意这个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舰长礼物本身是没有合约的，拼一枪了只能
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 3597#       发表于 2021-12-1 00:41
+
+要1000了！要1000了！
+
+*****
+
+####  四叶的花  
+##### 3598#       发表于 2021-12-1 00:42
+
+拿下
+
+*****
+
+####  夜之中道崩殂  
+##### 3599#       发表于 2021-12-1 00:42
+
+千舰拿下！
+
+*****
+
+####  莫洛骑士  
+##### 3600#       发表于 2021-12-1 00:42
+
+拿下！
+
+
+
+*****
+
+####  小憨1  
+##### 3601#       发表于 2021-12-1 00:42
+
+拿下！
+
+*****
+
+####  我有一个朋友  
+##### 3602#       发表于 2021-12-1 00:42
+
+拿下！
+
+*****
+
+####  灰色的狐狸  
+##### 3603#       发表于 2021-12-1 00:42
+
+拿下！
+
+*****
+
+####  人民de救星  
+##### 3604#       发表于 2021-12-1 00:43
+
+拿下！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  胡里奥  
+##### 3605#       发表于 2021-12-1 00:43
+
+拿下！
+
+*****
+
+####  GAKOTO  
+##### 3606#         楼主| 发表于 2021-12-1 00:43
+
+怎么那么快啊，想小号卡个一千的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3607#       发表于 2021-12-1 00:44
+
+拿下！
+
+*****
+
+####  莫洛骑士  
+##### 3608#       发表于 2021-12-1 00:44
+
+#文静万舰计划
+
+*****
+
+####  夜潇箫  
+##### 3609#       发表于 2021-12-1 00:44
+
+有请静女皇登基<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 3610#       发表于 2021-12-1 00:44
+
+拿下！
+
+*****
+
+####  七夜美琴  
+##### 3611#       发表于 2021-12-1 00:44
+
+拿下！！！
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  大蒜火腿肠  
+##### 3612#       发表于 2021-12-1 00:44
+
+奇迹之夜！
+
+*****
+
+####  小憨1  
+##### 3613#       发表于 2021-12-1 00:45
+
+最后那个瞬间上了30舰左右<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般通过广纤  
+##### 3614#       发表于 2021-12-1 00:45
+
+国一V!
+
+*****
+
+####  鳳凰院クレア  
+##### 3615#       发表于 2021-12-1 00:45
+
+恭喜千舰！文静已经不是小v了
+
+*****
+
+####  希克苏鲁伯  
+##### 3616#       发表于 2021-12-1 00:46
+
+登顶第一楼！
+
+*****
+
+####  夜之中道崩殂  
+##### 3617#       发表于 2021-12-1 00:46
+
+一半？全部！
+
+*****
+
+####  小憨1  
+##### 3618#       发表于 2021-12-1 00:47
+
+草，我是不是入脑有点魔怔了
+听到她说会竭尽全力让文静活下来的时候我真的泪目了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 3619#       发表于 2021-12-1 00:47
+
+要笑嘻惹<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 3620#       发表于 2021-12-1 00:47
+
+官方认证三俗主播文静
+
+*****
+
+####  zzs2338645  
+##### 3621#       发表于 2021-12-1 00:49
+
+赶紧出静盾
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tankai  
+##### 3622#       发表于 2021-12-1 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764592&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-1 00:36</a>
+
+都在冲千舰，而我还没有花一分钱，令人感叹。</blockquote>
+我发普通弹幕她回应，这是我认可她看她的原因，并不是一味掉钱眼里。
+
+我今天问得是：”你看得是哪个吧，V吧还是鸟吧。"
+
+*****
+
+####  443421870  
+##### 3623#       发表于 2021-12-1 00:51
+
+以后绰号叫文帝怎么样？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lunaticfear  
+##### 3624#       发表于 2021-12-1 00:51
+
+真是夸张啊，也算是出了分力吧，当补票了
+
+*****
+
+####  袜子  
+##### 3625#       发表于 2021-12-1 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">消费看自己，造奇观大可不必，不消费也没啥
+
+*****
+
+####  我有一个朋友  
+##### 3626#       发表于 2021-12-1 00:54
+
+ 本帖最后由 我有一个朋友 于 2021-12-1 00:55 编辑 
+
+要是能上拜年祭吸一波就好了，其实不是很看好太高的浓度，当然文静要是能把握住当我没说（目前看来做得很好）……
+
+*****
+
+####  tankai  
+##### 3627#       发表于 2021-12-1 00:57
+
+哦哦 ，我SC就这么一说她还真唱啊？
+
+*****
+
+####  魔法少女大头  
+##### 3628#       发表于 2021-12-1 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别的不说，努力这块，肯定是拿下了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T型钉宫病毒  
+##### 3629#       发表于 2021-12-1 00:57
+
+清唱薄纱ndwd<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清光の学生会长  
+##### 3630#       发表于 2021-12-1 00:57
+
+卧槽这才几天千鸟综就这么多楼了，发生了什么
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  小憨1  
+##### 3631#       发表于 2021-12-1 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764864&amp;ptid=2013779" target="_blank">tankai 发表于 2021-12-1 00:57</a>
+哦哦 ，我SC就这么一说她还真唱啊？</blockquote>
+楼友私我地址，我送你一期礼物<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 3632#       发表于 2021-12-1 00:58
+
+该二创了，文静和文静合唱《她说》
+
+*****
+
+####  夜之中道崩殂  
+##### 3633#       发表于 2021-12-1 00:58
+
+千舰拿下了，鸟吧好几个引退的，交出最后的波纹了，那他们to签还要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 3634#       发表于 2021-12-1 00:58
+
+今后不再怕天明，我想只是害怕清醒<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">千鸟走到今天就像梦一样，如果这是梦，希望不会有醒的一天
+
+*****
+
+####  rgauss  
+##### 3635#       发表于 2021-12-1 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764880&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-1 00:58</a>
+千舰拿下了，鸟吧好几个引退的，交出最后的波纹了，那他们to签还要吗 ...</blockquote>
+贴吧不天天引退?
+

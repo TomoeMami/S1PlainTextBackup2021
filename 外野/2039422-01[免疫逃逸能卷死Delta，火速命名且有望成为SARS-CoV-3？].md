@@ -11521,3 +11521,14 @@ https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_ogg
 
 而美国作为病毒溯源地，在是在1918年10月爆发的大规模疫情，这距离1918年3月的美国可查最早病例，已经过去半年。
 
+
+
+*****
+
+####  pushare  
+##### 1058#       发表于 2021-12-1 00:48
+
+以色列院感
+
+<img src="https://p.sda1.dev/3/ad36d0f0b7b067c17d013354cdd71da5/IMG_CMP_124221560.jpeg" referrerpolicy="no-referrer">
+
