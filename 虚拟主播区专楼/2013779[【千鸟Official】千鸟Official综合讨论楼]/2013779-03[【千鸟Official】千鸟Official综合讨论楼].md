@@ -3932,3 +3932,29 @@ s1还敢出现呢？站直挨打就完事了
 
 一个人孤立全班是吧
 
+
+
+*****
+
+####  小憨1  
+##### 3437#       发表于 2021-11-30 10:21
+
+ 本帖最后由 小憨1 于 2021-11-30 10:22 编辑 
+
+复刻1.0是吧
+syl，打算调整一下自己，楼友们有没有什么好的出脑方式啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3438#       发表于 2021-11-30 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53754182&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-11-30 10:21</a>
+
+复刻1.0是吧
+
+syl，打算调整一下自己，楼友们有没有什么好的出脑方式啊以前不看直播都在打游戏，然而 ...</blockquote>
+涂锤
+
+究极修身养性
+

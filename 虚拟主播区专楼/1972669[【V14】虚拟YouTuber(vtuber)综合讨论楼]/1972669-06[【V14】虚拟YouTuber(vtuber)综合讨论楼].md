@@ -15782,3 +15782,102 @@ https://twitter.com/Mei_M_YG/status/1465310360701857797?s=20<blockquote></blockq
 
 这也太强了吧<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 8715#       发表于 2021-11-30 10:23
+
+管人身份做的这些东西自己花钱却没法带走不说合不合情理吧，也算是现在的常态，单独拿出来很难说有很大问题
+
+但前面还在招新人突然一下把整个项目直接砍掉的Anycolor还是傻逼
+
+虽说这个项目从一开始就没人看好的感觉
+
+那么VTA...
+
+*****
+
+####  死体残留  
+##### 8716#       发表于 2021-11-30 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">现在彩虹还在招学院生，陪酒这个项目突然终止会不会下一个就是学院了，再说彩虹现在一年一期或者两期学院生招那么多正式出道还有几个
+
+syl 角色都收走了 用角色制作的翻唱也没意义了吧 应该争取的是要回角色和频道
+
+*****
+
+####  FCCHua  
+##### 8717#       发表于 2021-11-30 10:27
+
+问题来了，虹到底还有几个半年啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 8718#       发表于 2021-11-30 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53749138&amp;ptid=1972669" target="_blank">zhuoqiu 发表于 2021-11-29 20:42</a>
+
+你楼为什么打架辩经频率大不如前了呢。我觉得这个情形暗示着日v在国内的影响力逐渐减弱。想加入小团体大家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">因为日V离了杏就毫无讨论度
+
+*****
+
+####  渡鸦骑士  
+##### 8719#       发表于 2021-11-30 10:32
+
+等等，那么现在看来虹in不会也是这样被砍的吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 8720#       发表于 2021-11-30 10:33
+
+今年就死！彩虹好死！
+
+*****
+
+####  硫黄  
+##### 8721#       发表于 2021-11-30 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候才能带皮跑路，箱死魂不灭呢
+
+比起营运换驾驶员恶心观众，更想看带皮换箱恶心营运
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|确实|
+
+查看全部评分
+
+*****
+
+####  心垂万刃  
+##### 8722#       发表于 2021-11-30 10:36
+
+那必不可能的，哪个企业会傻到这个程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 8723#       发表于 2021-11-30 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">暴死，垃圾节目停播，都回去做生放送艺人，想重回19年为止的繁荣又没办法的如今该婷婷了。
+
+*****
+
+####  ヒトニナル  
+##### 8724#       发表于 2021-11-30 10:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">皮是企业出钱买的啊，归属权也是企业的，怎么能带皮跑
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然我支持虹死，快点死，都要等不及了
+

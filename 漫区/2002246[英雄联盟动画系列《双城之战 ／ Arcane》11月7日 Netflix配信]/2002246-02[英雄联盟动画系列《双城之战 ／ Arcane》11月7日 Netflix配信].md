@@ -14492,3 +14492,34 @@ what about us
 what about us</blockquote>
 剧情留白，给观众点想象空间挺好，创作上有自由，还能堵政治正确的嘴，比那些强加给角色某样属性的强多了
 
+
+
+*****
+
+####  godke  
+##### 2836#       发表于 2021-11-30 10:25
+
+大乱斗商店老板语音暗示vi和小蛋糕暧昧关系
+http://b23.tv/30Y9TBw
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  pharos  
+##### 2837#       发表于 2021-11-30 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53750366&amp;ptid=2002246" target="_blank">巴麻耒 发表于 2021-11-29 22:15</a>
+
+感觉蔚就是那种整天无意识撩别人的那种，碰到杰斯也说小帅哥，但是感情和身体接触上都属于被动的那边，两 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我能理解你，我是男装丽人P/BG爱好者
+
+*****
+
+####  emmer  
+##### 2838#       发表于 2021-11-30 10:40
+
+就是要留白啊
+
+说得明明白白就无趣了
+
