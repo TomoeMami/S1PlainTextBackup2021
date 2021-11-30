@@ -928,3 +928,15 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 
 早上不是要开测后宫模式了吗，回家品一下
 
+
+
+*****
+
+####  laputahao  
+##### 92#       发表于 2021-11-30 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53752622&amp;ptid=2039606" target="_blank">永远的访客 发表于 2021-11-30 07:20</a>
+
+我觉得爱手艺是多义梗，这标题其实翻译是MAKE LOVE行动/爱情飞船，差不多在宇宙MMO开乱交PARTY算是不折不 ...</blockquote>
+宇宙MMO....这游戏梦想这么远大的吗 真能实现吗
+
