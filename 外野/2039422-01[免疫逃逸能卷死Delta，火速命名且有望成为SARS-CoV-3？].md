@@ -11223,3 +11223,17 @@ moderna这个老板是说了老实话
 这就校园传播了，才几天啊。在快进下就最后一步我们原本能做啥了。 ...</blockquote>
 应该问都传播多久了才开始检测吧
 
+
+
+*****
+
+####  voluspa  
+##### 1033#       发表于 2021-11-30 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53759816&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-11-30 17:47</a>
+
+这不是才几天的问题，这只说明了这玩儿在欧洲早就有了
+
+至于那群欧洲佬到底是测到不说等别人发现好扣锅给别 ...</blockquote>
+基本上, 我们每次的输入案例都会做毒株溯源( 反正就那么几十最多上百号人, 实验室负担不大 )...omicron 目前就hk那几例..
+

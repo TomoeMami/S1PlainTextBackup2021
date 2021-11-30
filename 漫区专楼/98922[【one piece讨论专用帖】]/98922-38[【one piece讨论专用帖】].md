@@ -8723,3 +8723,24 @@ king和queen的强度 不愧是大看板
 
 <img src="http://tiebapic.baidu.com/forum/pic/item/c6042df5e0fe9925decaabbe71a85edf8fb171cc.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  24k纯帅  
+##### 56182#       发表于 2021-11-30 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760364&amp;ptid=98922" target="_blank">Gerald1 发表于 2021-11-30 18:38</a>
+海贼王贴吧版好像比原版带感</blockquote>
+以前漫画也有贴吧版<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫檀.Uzuki  
+##### 56183#       发表于 2021-11-30 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760364&amp;ptid=98922" target="_blank">Gerald1 发表于 2021-11-30 18:38</a>
+
+海贼王贴吧版好像比原版带感</blockquote>
+贴吧版咋回事？
+

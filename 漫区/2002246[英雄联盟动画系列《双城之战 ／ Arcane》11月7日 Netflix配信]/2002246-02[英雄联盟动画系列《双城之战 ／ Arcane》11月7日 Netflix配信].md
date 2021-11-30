@@ -14620,3 +14620,17 @@ cp厨会叫的比较响而已，男枪卡牌这种互坑的好兄弟比cp锁死�
 160也算发育不良了吗</blockquote>
 你看她亲姐姐青春期吃牢饭长大发育都比她好
 
+
+
+*****
+
+####  新的起源  
+##### 2848#       发表于 2021-11-30 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53758517&amp;ptid=2002246" target="_blank">Paradox7 发表于 2021-11-30 15:54:19</a>
+cp厨会叫的比较响而已，男枪卡牌这种互坑的好兄弟比cp锁死好玩多了</blockquote>我也觉得
+
+男枪卡牌这种好莱坞警匪片经典损友搭档的组合比纯粹的cp同性恋有意思的多
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
