@@ -12120,3 +12120,41 @@ BNT CEO 说 疫苗防重症还是大概率有用，接着奏乐接着舞<img src
 这变体传过去欧美只是时间问题，毕竟不是全球都对南非禁航，我更感兴趣的是后遗症是否会更严重 ...</blockquote>
 还有就是，已经在欧美了。
 
+
+
+*****
+
+####  riczxc  
+##### 1106#         楼主| 发表于 2021-12-1 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765803&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-1 07:17</a>
+
+BNT 老总beg to differ
+
+BioNTech CEO says vaccine likely to protect against severe COVID from Omicr ...</blockquote>
+大户还是需要时间撤退的吧。。
+
+*****
+
+####  洛拉斯  
+##### 1107#       发表于 2021-12-1 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763643&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 23:05</a>
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。 ...</blockquote>
+你美爹至今不肯开放德克里克堡，那肯定是毫无嫌疑
+
+*****
+
+####  riczxc  
+##### 1108#         楼主| 发表于 2021-12-1 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765829&amp;ptid=2039422" target="_blank">洛拉斯 发表于 2021-12-1 07:29</a>
+
+你美爹至今不肯开放德克里克堡，那肯定是毫无嫌疑</blockquote>
+
+阴谋论我也有我觉得挺好的版本的。那个什么堡当然也有嫌疑。
+
+但是这个是Omicron的帖子，虽然不是我歪的楼，但是我后面也被带歪了，所以我也悔改，尽量不在贴内讨论这个话题了。
+
+如果要讨论阴谋论，不妨另开帖子。
+

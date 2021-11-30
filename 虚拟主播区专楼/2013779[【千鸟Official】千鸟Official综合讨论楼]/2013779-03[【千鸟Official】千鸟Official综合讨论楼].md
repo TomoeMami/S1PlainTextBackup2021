@@ -5948,3 +5948,14 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 
 —— 来自 sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  伞沢直美  
+##### 3682#       发表于 2021-12-1 07:39
+
+文静，阑圣！
+
+千鸟失去的是阑尾，得到的是___！
+
