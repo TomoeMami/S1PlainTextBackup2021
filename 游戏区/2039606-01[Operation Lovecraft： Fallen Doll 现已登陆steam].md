@@ -977,3 +977,22 @@ closed beta开了，云鉴黄师们来冲一波了
 ----发送自 Sony XQ-AT72,Android 11</blockquote>
 都在抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lancer48  
+##### 96#       发表于 2021-11-30 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）。这后宫模式也压根进不去感觉给你卡到电梯间里，看着有三个房间根本进不去，开始试验也放不下去人
+
+*****
+
+####  lancer48  
+##### 97#       发表于 2021-11-30 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719067&amp;ptid=2039606" target="_blank">Jooohnny 发表于 2021-11-27 10:56</a>
+
+知道为什么做订阅制这么赚了吗，完全没进度狂拖才有人去骂你，有一点进度就有楼主这样的孝子贤孙洗 ...</blockquote>
+老哥你这的帖子我权限不够，想看看你怎么说的，现在我也感觉上当了
+
