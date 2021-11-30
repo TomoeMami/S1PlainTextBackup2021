@@ -14553,3 +14553,14 @@ http://b23.tv/30Y9TBw
 
 cp厨会叫的比较响而已，男枪卡牌这种互坑的好兄弟比cp锁死好玩多了
 
+
+
+*****
+
+####  sandro  
+##### 2842#       发表于 2021-11-30 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751282&amp;ptid=2002246" target="_blank">jf8350143 发表于 2021-11-29 23:38</a>
+比起无关紧要的攻受（女同真的分这玩意吗），我更好奇为啥到处都能看到有人对喷，各种金÷蔚÷啥的，这年头 ...</blockquote>
+金触感觉是骂金拉夫骂顺口了
+

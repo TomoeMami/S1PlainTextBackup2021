@@ -10983,3 +10983,14 @@ The answer is blowin' in the wind~♪
 而且那怕是2000亿,  比起因为疫情全面蔓延导致的生 ...</blockquote>
 而且这2000亿是通过疫苗产业链进入社会经济活动的。对于国家来说，支出人民币根本不算成本，只是一个收入分配的问题。
 
+
+
+*****
+
+####  洛拉斯  
+##### 1010#       发表于 2021-11-30 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755465&amp;ptid=2039422" target="_blank">罗莉控 发表于 2021-11-30 11:38</a>
+就算我国，再打一遍疫苗（对抗新变异株），也会更加艰难。而且财政啊，目前我们打了20亿剂以上，就算按某些 ...</blockquote>
+只要是自己生产的，别在乎花了多少钱，就当经济刺激计划
+
