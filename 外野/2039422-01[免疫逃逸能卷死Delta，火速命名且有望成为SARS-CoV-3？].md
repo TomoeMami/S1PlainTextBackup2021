@@ -10399,3 +10399,12 @@ Omicron对我的直接影响就是
 
 —— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lexi  
+##### 956#       发表于 2021-11-30 08:57
+
+葡萄牙一支足球队贝伦人队（Belenenses）有13人查出奥密克戎阳性，该队27号刚跟本菲卡队（Benfica）踢过球。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
