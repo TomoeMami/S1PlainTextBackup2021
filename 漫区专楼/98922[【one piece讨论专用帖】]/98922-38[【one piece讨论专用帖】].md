@@ -8712,3 +8712,14 @@ king和queen的强度 不愧是大看板
 
 <img src="https://p.sda1.dev/3/b5d6fa6795346c5c1c949fd79b9480ec/20211129_232546.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Gerald1  
+##### 56181#       发表于 2021-11-30 18:38
+
+海贼王贴吧版好像比原版带感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="http://tiebapic.baidu.com/forum/pic/item/c6042df5e0fe9925decaabbe71a85edf8fb171cc.jpg" referrerpolicy="no-referrer">
+

@@ -14598,3 +14598,25 @@ cp厨会叫的比较响而已，男枪卡牌这种互坑的好兄弟比cp锁死�
  ...</blockquote>
 我倒觉得是她自己不愿意好好吃饭，看人家赛维卡也没像她这样
 
+
+
+*****
+
+####  伊斯坎达尔王  
+##### 2846#       发表于 2021-11-30 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755241&amp;ptid=2002246" target="_blank">镜面の云 发表于 2021-11-30 11:24</a>
+
+不是，男枪卡牌这种，作为这种曾经有过矛盾，后来和好的战火兄弟关系不是挺有趣的吗，在约德尔人CG里也是 ...</blockquote>
+你要说“大多人喜欢”，那我觉得“大多人”也不喜欢女警蔚真女同呢
+
+*****
+
+####  筱原重工  
+##### 2847#       发表于 2021-11-30 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760139&amp;ptid=2002246" target="_blank">sandro 发表于 2021-11-30 18:17</a>
+
+160也算发育不良了吗</blockquote>
+你看她亲姐姐青春期吃牢饭长大发育都比她好
+

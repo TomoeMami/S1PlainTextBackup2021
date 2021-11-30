@@ -3957,3 +3957,17 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  yygundam  
+##### 6298#       发表于 2021-11-30 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53760063&amp;ptid=1570791" target="_blank">蕾丝 发表于 2021-11-30 18:10</a>
+
+这些高难本是从哪里进去打？星际玩家没找到
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next- ...</blockquote>
+应该是活动调查图的BOSS。你只要不踩它周围降等级的格子的话，BOSS就是高等级。
+
