@@ -5808,3 +5808,12 @@ NMD两单沉了
 没有狗叫，这不科学啊。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没池啊 现在这2个池还有人会抽吗
 
+
+
+*****
+
+####  芭德薇  
+##### 84524#       发表于 2021-11-30 23:54
+
+我来狗一下，第一张护符久违地出了loading，金枪龙马……结果这个活动两个池加起来出了1五星2总司4以藏（2宝变6宝），0森长可，三星限定开个图鉴太难了
+

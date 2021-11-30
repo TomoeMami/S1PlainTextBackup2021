@@ -11505,3 +11505,19 @@ https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_ogg
 
 别活着自己幻想出来的世界了，疫情楼就好好聊疫情，扯什么你YY出来的经济，没人对你的装出来的悲天悯人感兴趣
 
+
+
+*****
+
+####  creymorgan  
+##### 1057#       发表于 2021-11-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763643&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 23:05</a>
+
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。 ...</blockquote>
+我可以举一个例子
+
+1918大流感最早在美国出现，但是真的大爆发是美国士兵把病毒带到法国后开始的，之后就是一战信息管制已经开始大疫的法德毫无消息，反而是未参战的西班牙首先报道疫情被甩了锅。
+
+而美国作为病毒溯源地，在是在1918年10月爆发的大规模疫情，这距离1918年3月的美国可查最早病例，已经过去半年。
+
