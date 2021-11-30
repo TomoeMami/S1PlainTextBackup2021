@@ -10408,3 +10408,25 @@ Omicron对我的直接影响就是
 
 葡萄牙一支足球队贝伦人队（Belenenses）有13人查出奥密克戎阳性，该队27号刚跟本菲卡队（Benfica）踢过球。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  罗莉控  
+##### 957#       发表于 2021-11-30 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751208&amp;ptid=2039422" target="_blank">螺纹 发表于 2021-11-29 23:30</a>
+
+权贵抗体是啥？病愈者的血清？</blockquote>
+权贵（用）抗体（可以）免死的金牌
+
+*****
+
+####  卡普空  
+##### 958#       发表于 2021-11-30 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751404&amp;ptid=2039422" target="_blank">zss4414 发表于 2021-11-29 23:49</a>
+
+美联储要缩表了就出这档事，很难不怀疑是不是有舆论层面的推波助澜。</blockquote>
+缩表是不可能缩的，我看大米不到泡泡吹爆炸那一天是不会主动缩表的，现在缩现在完蛋，还不如死扛把雷丢给下一任
+

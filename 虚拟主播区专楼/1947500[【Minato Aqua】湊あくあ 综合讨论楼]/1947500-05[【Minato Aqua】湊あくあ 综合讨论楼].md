@@ -15222,3 +15222,22 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 能把盐水图完工吗
 
+
+
+*****
+
+####  17119854  
+##### 7238#       发表于 2021-11-30 10:11
+
+直播时间：10月10日
+
+<img src="https://img.saraba1st.com/forum/202111/30/101036szzyu6ykzuy5ax16.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211130100822.png</strong> (13.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-30 10:10 上传
+
+其实连上下的目标都没有实现<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
