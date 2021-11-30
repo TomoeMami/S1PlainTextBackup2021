@@ -748,3 +748,18 @@ syl昨天小号打个几场改开大号到早上6点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是说没有上位替代吧
 
+
+
+*****
+
+####  因为你不会  
+##### 13577#       发表于 2021-11-30 21:40
+
+直播次数少的，声音没绫总好
+
+声音比绫总好的，pua没绫总好
+
+pua比绫总好的，直播次数没绫总少
+
+循环
+

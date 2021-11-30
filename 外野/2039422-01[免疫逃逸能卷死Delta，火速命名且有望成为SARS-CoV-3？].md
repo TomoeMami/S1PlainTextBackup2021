@@ -11371,3 +11371,24 @@ https://www.theguardian.com/world/2021/nov/29/school-staff-and-pupils-in-essex-t
 
 https://www.ilmattino.it/caserta/variante_omicron_in_campania_ultime_notizie_oggi_positivi_scuola_figli-6354383.html
 
+
+
+*****
+
+####  希远闹  
+##### 1045#       发表于 2021-11-30 21:53
+
+外交部驳斥福奇涉疫情不当言论赵立坚对福奇有关表态表示遗憾
+
+老逼样叛变了 上次谭黑狗
+
+*****
+
+####  汽车屁  
+##### 1046#       发表于 2021-11-30 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53761943&amp;ptid=2039422" target="_blank">DraQin 发表于 2021-11-30 20:44</a>
+
+我只知道我抓住了最后一个还能1700磅入手的机会，因为就在两个小时前，本班航班明年3月到8月的价格已经全 ...</blockquote>
+也许，半个世纪后，你抱着孙子，给他讲述末日之壁建立前在污染区纵横万里的故事。。。
+
