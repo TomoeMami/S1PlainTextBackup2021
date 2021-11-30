@@ -11074,3 +11074,33 @@ moderna这个老板是说了老实话
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53758631&amp;ptid=2039422" target="_blank"> 公共知识 发表于 2021-11-30 16:03</a> 引用:voluspa 发表于 2021-11-30 16:01 在动态清零的管理方法下, 第三针没有特殊情况就是自愿 而且那怕是2000亿,  比起因为疫情全面蔓延导致的生 ... 而且这2000亿是通过疫苗产业链进入社会经济活动的。对于国家来说，支出人民币根本不算成本，只是一个收入分配的问题。 </blockquote>
 前提是国药科兴好好拿钱搞研发，别去卖房买地买海外资产<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  最好不说  
+##### 1019#       发表于 2021-11-30 17:33
+
+<blockquote>克鲁特尼 发表于 2021-11-30 17:19
+满洲里这个是德尔塔？还是说已经成了欧米克戎？</blockquote>
+毛子目前还没有omicron确诊或疑似病例，感觉还是沿海口岸发现首例输入可能性大一点
+
+*****
+
+####  最好不说  
+##### 1020#       发表于 2021-11-30 17:37
+
+英格兰和意大利都发现了学校传播的Omicron病例，疯狂快进了属于是
+
+
+
+*****
+
+####  L.L  
+##### 1021#       发表于 2021-11-30 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53759697&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-11-30 17:37</a>
+
+英格兰和意大利都发现了学校传播的Omicron病例，疯狂快进了属于是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这就校园传播了，才几天啊。在快进下就最后一步我们原本能做啥了。
+

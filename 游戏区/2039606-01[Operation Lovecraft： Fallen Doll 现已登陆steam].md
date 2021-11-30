@@ -1043,3 +1043,14 @@ closed beta开了，云鉴黄师们来冲一波了
 ----发送自 STAGE1 App for Android. ...</blockquote>
 惩戒魅魔起码是30多R不是35刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  9090asd  
+##### 102#       发表于 2021-11-30 17:34
+
+这破玩意开发了这么多年才一丁点内容，还有植入挖矿程序的黑历史。
+
+现在i社的东西那么强大，傻子花35刀买这破烂
+
