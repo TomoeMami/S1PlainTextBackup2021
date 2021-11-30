@@ -15241,3 +15241,12 @@ Pokemon最后打算只靠别人给的蛋+随机遗忘技能打通的样子
 
 其实连上下的目标都没有实现<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 7239#       发表于 2021-11-30 11:36
+
+去EN服路上乱搞被炎了，之后除了运动会不愿意碰mc了吧
+

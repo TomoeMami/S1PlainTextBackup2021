@@ -940,3 +940,17 @@ An accumulative $36+(USD) pledge will get you the full uncensored game afte ...<
 我觉得爱手艺是多义梗，这标题其实翻译是MAKE LOVE行动/爱情飞船，差不多在宇宙MMO开乱交PARTY算是不折不 ...</blockquote>
 宇宙MMO....这游戏梦想这么远大的吗 真能实现吗
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 93#       发表于 2021-11-30 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755144&amp;ptid=2039606" target="_blank">laputahao 发表于 2021-11-30 11:18</a>
+宇宙MMO....这游戏梦想这么远大的吗 真能实现吗</blockquote>
+画饼骗钱而已，怎么可能
+这项目就是冲着骗钱来的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

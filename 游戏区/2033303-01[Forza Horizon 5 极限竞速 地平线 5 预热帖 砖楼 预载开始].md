@@ -16485,3 +16485,36 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 另外就是那些区间测速，测速点 ，跳台之类的赛季目标，我用了符合要求的车也跑到了规定速度，为什么还不算我完成阿。一般不应该是失败也会显示季节目标失败吗，我是根本不显示失败还是成功。这个礼拜和上个礼拜各有一个目标碰到了这个问题
 
+
+
+*****
+
+####  4ckc  
+##### 1494#       发表于 2021-11-30 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755247&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-30 11:25</a>
+另外就是那些区间测速，测速点 ，跳台之类的赛季目标，我用了符合要求的车也跑到了规定速度，为什么还不算 ...</blockquote>
+晚上的判定好像的确有点问题，你觉得够晚了但系统不觉得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+季节目标不显示完成的有可能是因为你当时掉线了或实际没在线上，一般来说，如果能在大地图上看到正在移动的其他玩家，就说明确实在线上了，做季节目标前可以先确认这个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qzy741147  
+##### 1495#       发表于 2021-11-30 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755402&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-30 11:35</a>
+晚上的判定好像的确有点问题，你觉得够晚了但系统不觉得
+季节目标不显示完成的有可能是因为你当时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一定要在线做也太傻逼了
+
+*****
+
+####  Vladimeow  
+##### 1496#       发表于 2021-11-30 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755424&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-30 11:36</a>
+一定要在线做也太傻逼了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开个UU 关掉Q盾
+
