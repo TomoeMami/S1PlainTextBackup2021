@@ -12524,3 +12524,44 @@ WHO做个把关把恶意的名字去掉就是了，多大点事。  台风命�
 
 主要是要设计一个鼓励发现病毒，而不是惩罚发现病毒的机制。
 
+
+
+*****
+
+####  卡普空  
+##### 1137#       发表于 2021-12-1 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53759540&amp;ptid=2039422" target="_blank">ひびき 发表于 2021-11-30 17:24</a>
+
+前提是国药科兴好好拿钱搞研发，别去卖房买地买海外资产</blockquote>
+现在进房地产是想抄底吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laotoutou  
+##### 1138#       发表于 2021-12-1 09:41
+
+美国封存了12月4号以前的血液样本不让查抗体了。有个众议员老太太呼吁接着查下去，也没下文了。
+
+也有美国有少数人是真的想知道真相。
+大环境是新冠溯源政治化没跑了。
+如果真的可望真相，直接从自己查起啊
+
+*****
+
+####  kiragz  
+##### 1139#       发表于 2021-12-1 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763643&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 23:05</a>
+
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。</blockquote>
+什么叫武汉爆发早，之前美国的电子烟肺炎是啥，敢不敢去查下历史数据看是不是新冠
+
+*****
+
+####  Khvarenah  
+##### 1140#       发表于 2021-12-1 09:45
+
+<img src="https://p.sda1.dev/3/10b1726563f0997495eb93f8756ec627/IMG_CMP_157184997.jpeg" referrerpolicy="no-referrer">
+欧洲遍地有是因为本来就是从欧洲开始的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5860,3 +5860,17 @@ NMD两单沉了
 ----发送自 STAGE1 App for Android.</blockquote>
 除非这次新圣诞跨年，又或者所谓的主线活动就是今年的圣诞，否则复刻塞不进去吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84529#       发表于 2021-12-1 09:29
+
+<blockquote>引用第84527楼khxooo于2021-12-01 09:03发表的  :
+
+引用:黑上シグマ 发表于 2021-12-1 08:35会无缝圣诞复刻----发送自 STAGE1 ......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾蕾那次圣诞也是主线，所以新圣诞是主线活动可能性很高啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
