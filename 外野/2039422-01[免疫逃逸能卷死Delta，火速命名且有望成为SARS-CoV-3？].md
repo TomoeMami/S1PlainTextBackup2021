@@ -13922,3 +13922,37 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 
 之前我国的文宣提出"正确的集体记忆"还被某些人念念不忘嘲讽呢，轮到自己干"政"确的偏差记忆倒是相当熟练。
 
+
+
+*****
+
+####  lazyboy  
+##### 1253#       发表于 2021-12-1 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772476&amp;ptid=2039422" target="_blank">朋友 发表于 2021-12-1 17:04</a>
+所以呢？mrna平台的安全性已经不需要第二次临床来证明了，反正打都打了。无非是大老爷秉着少做少错，又不 ...</blockquote>
+疫情也才不到两年，连病毒的后遗症都缺少长期追踪研究。mrna 技术的安全性怎么就不需要确认了？
+
+—— 来自 HUAWEI EVR-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  死亡確認  
+##### 1254#       发表于 2021-12-1 20:59
+
+看圆脸的说法，新变种r0能到30？而且现在基本可以推定说这变种已经实际流行一阵子了，很快圣诞节了，距离全面爆发还有多久…看隔壁日本，前天还说要停止外国人入境，今天就爆出来已经有辆例了，而且还有几个本身应该自我隔离的人失踪，估计欧洲那边也差不多这德行，22年的世界会怎样啊…
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  creymorgan  
+##### 1255#       发表于 2021-12-1 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53775682&amp;ptid=2039422" target="_blank">死亡確認 发表于 2021-12-1 20:59</a>
+
+看圆脸的说法，新变种r0能到30？而且现在基本可以推定说这变种已经实际流行一阵子了，很快圣诞节了，距离全 ...</blockquote>
+自然是出现血清分型的可能性更大。
+
+30太离谱。
+
