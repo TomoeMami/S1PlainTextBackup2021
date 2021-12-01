@@ -6137,3 +6137,15 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 
 这食人花（？）装个重机枪是什么朋克造型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 84552#       发表于 2021-12-1 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773697&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-12-1 18:47</a>
+
+毫无机会，毕竟形象都是借的</blockquote>
+或者下地的会是糖果，但是请你搞清楚一件事，姆里安才是原型，糖果才是借用形象的那一个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
