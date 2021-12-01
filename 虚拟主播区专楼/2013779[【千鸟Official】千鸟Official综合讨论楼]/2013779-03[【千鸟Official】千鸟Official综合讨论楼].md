@@ -5959,3 +5959,16 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 
 千鸟失去的是阑尾，得到的是___！
 
+
+
+*****
+
+####  人民de救星  
+##### 3683#       发表于 2021-12-1 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765401&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-1 02:15</a>
+“大家！我千舰了！”文静刚刚下播还没来得及关电脑，就撑着大病未愈的身体，提起因为三个多小时的直播而萎 ...</blockquote>
+快把你的摄像头从千鸟宿舍拆了😭😭😭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

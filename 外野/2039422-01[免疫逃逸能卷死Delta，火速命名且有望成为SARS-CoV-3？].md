@@ -12228,3 +12228,97 @@ South Africa reports 4,373 new coronavirus cases, an increase of 404% from last 
 </blockquote>
 保险付就是虚标价，你自己掏那就是实打实，不服别买保险啊
 
+
+
+*****
+
+####  66666  
+##### 1114#       发表于 2021-12-1 08:04
+
+按照波士顿圆脸发出的荷兰最新疫情数据，几乎可以肯定欧洲已经遍地都是了
+
+*****
+
+####  希远闹  
+##### 1115#       发表于 2021-12-1 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763503&amp;ptid=2039422" target="_blank">kris_ch 发表于 2021-11-30 22:50</a>
+
+你这反应也太慢了，福奇啥逼样的不早暴露了，何谈现在才叛变。。</blockquote>
+这可是老家伙第一次明面上说是武汉源头 我反应怎么会慢呢
+
+*****
+
+####  riczxc  
+##### 1116#         楼主| 发表于 2021-12-1 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765972&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-1 08:04</a>
+
+按照波士顿圆脸发出的荷兰最新疫情数据，几乎可以肯定欧洲已经遍地都是了 ...</blockquote>
+荷兰肯定糟糕，毕竟和南非的各种往来还是多。
+
+*****
+
+####  66666  
+##### 1117#       发表于 2021-12-1 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765758&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 06:51</a>
+
+美股反弹以后今天又跌，大家觉得是被Moderna的CEO吓到了。</blockquote>
+人家卖疫苗的，自然要往最严重方向说咯
+
+*****
+
+####  洛拉斯  
+##### 1118#       发表于 2021-12-1 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765992&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 08:07</a>
+荷兰肯定糟糕，毕竟和南非的各种往来还是多。</blockquote>
+还搁这南非爆发论
+
+你美几千万患者无一突变出现，真是自由民主感召啊
+
+反正只要我不测序不检测，那自然万事大吉，然后往别人头上扣锅就行了
+
+南非和中国一样负责的上报，让后就成为了背锅侠
+
+*****
+
+####  JJDUB3VQ  
+##### 1119#       发表于 2021-12-1 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755465&amp;ptid=2039422" target="_blank">罗莉控 发表于 2021-11-30 11:38:47</a>
+就算我国，再打一遍疫苗（对抗新变异株），也会更加艰难。而且财政啊，目前我们打了20亿剂以上，就算按某些 ...</blockquote>才两千亿而已
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  riczxc  
+##### 1120#         楼主| 发表于 2021-12-1 08:20
+
+ 本帖最后由 riczxc 于 2021-12-1 08:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766037&amp;ptid=2039422" target="_blank">洛拉斯 发表于 2021-12-1 08:17</a>
+
+还搁这南非爆发论
+
+你美几千万患者无一突变出现，真是自由民主感召啊</blockquote>
+
+最先发现是博茨瓦纳，基本测出来的大多有旅游记录，就是南部非洲传遍了。自然会通过南非传出去。
+
+美国的突变种Iota是血清分型你知道么？
+
+假设美国早有了，那么香港也应当能测出来。毕竟两地的联系还是比南非紧密的。
+
+*****
+
+####  riczxc  
+##### 1121#         楼主| 发表于 2021-12-1 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766046&amp;ptid=2039422" target="_blank">JJDUB3VQ 发表于 2021-12-1 08:19</a>
+
+才两千亿而已
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+有能正常运作的供应链，一下就赚回来了。
+

@@ -33,3 +33,16 @@
 不用，送车只不过是本来的一次性地点再利用</blockquote>
 应该怎么拿车库宝物啊？看网上视频教程然后跑到地点就看到房子，无法触发；有人说图伦冒险要完成其中一项，但我做的时候糊里糊涂地就做完了，里面的支线找东西一个都没做，也不知道如何补做。
 
+
+
+*****
+
+####  Vladimeow  
+##### 1504#       发表于 2021-12-1 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765001&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-12-1 01:08</a>
+我在用手离，目前的有关设置为：左摇杆转向，LT刹车，LB手刹，RT油门，A离合，B升挡，X降档
+
+应该没有需 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">离合和档位拇指一个就搞定么，感觉不错
+
