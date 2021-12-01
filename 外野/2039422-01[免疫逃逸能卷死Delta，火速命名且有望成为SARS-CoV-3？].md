@@ -13327,3 +13327,29 @@ pfizer说要三个月,主要瓶颈在fda批准
 
 —— 来自 realme RMX2173, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  sssacpgdr  
+##### 1204#       发表于 2021-12-1 14:26
+
+<blockquote>Niceday 发表于 2021-12-1 13:12
+为敌就为敌呗。  搞得好像你们很重要一样，都是上论坛吹水，谁稀罕谁啊。
+
+一个个连钟南山都看不上了，你 ...</blockquote>
+什么狗逼东西啊，真当坛友不知道你是什么货色，你表演给你去世的母亲看呢？
+
+*****
+
+####  pagedown  
+##### 1205#       发表于 2021-12-1 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770153&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 14:00</a>
+某些楼也真是可笑，写的大义凛然的，说为了不让国际上孤立中国所以要放弃科学，放弃脑子，主动拥抱溯源政治 ...</blockquote>
+像阁下这么有科学素养的人，应该是欧美百十年来引领人类科技和人文之光的结果。出现像我这样在阁下口中成为“放弃脑子”“政治化病毒溯源”的人，也是欧美这两年应对新冠表现的结果。
+
+受过文明之光沐浴的阁下，应该很清楚南非接下来会有什么下场，也很清楚我们为什么反对让南非承受这样的结果。明明已经知道结果，还坚持你口中的科学溯源，这一段逻辑是说不通的，必须你亲口解释。
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
