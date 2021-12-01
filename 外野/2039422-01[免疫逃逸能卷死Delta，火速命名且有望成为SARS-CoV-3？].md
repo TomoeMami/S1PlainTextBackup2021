@@ -13190,3 +13190,34 @@ I have always considered myself as a scientist. 但新冠起源这个问题，�
 
 装的自己放弃脑子就能拯救国家声誉似的，内宣还能用，外宣你试试看谁理你啊。
 
+
+
+*****
+
+####  桐名  
+##### 1191#       发表于 2021-12-1 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/237.gif" referrerpolicy="no-referrer">给这楼提前点个蜡
+
+*****
+
+####  天使日又日  
+##### 1192#       发表于 2021-12-1 13:27
+
+【#英国决定缩短疫苗接种间隔时间#】据俄罗斯卫星网30日报道，由于出现新冠变异新毒株“奥密克戎”，英国卫生部决定将新冠病毒疫苗接种间隔时间从6个月缩短到3个月。英国卫生大臣赛义德·贾维德写道：“在奥密克戎出现后，我请英国疫苗接种和免疫联合委员会（JCVI）紧急考虑扩大疫苗接种计划的方法……我接受了他们的建议，把第二针和第三针的间隔时间缩短一半，从6个月减为3个月。”
+
+此前，世卫组织此前召开紧急会议后决定将在南非发现的新冠病毒新变异株B.1.1.529列为“需要关注”的变异毒株，并以希腊字母将其命名为“奥密克戎”。
+
+这接种间隔是可以说缩就缩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  FanFun  
+##### 1193#       发表于 2021-12-1 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763643&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 23:05</a>
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。</blockquote>
+你也认为还没确定不是吗？既然如此你还给未确定的事情定调“不是洗_脑”，为西方开脱，这不是你受西方价值影响的表现？
+

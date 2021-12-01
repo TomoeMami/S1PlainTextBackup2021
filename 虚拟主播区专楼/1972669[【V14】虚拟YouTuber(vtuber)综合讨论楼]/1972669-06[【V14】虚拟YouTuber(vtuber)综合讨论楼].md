@@ -16517,3 +16517,37 @@ syl，这段话是在说尊妈
 
 找十个女葛叶
 
+
+
+*****
+
+####  OldGlory  
+##### 8781#       发表于 2021-12-1 13:24
+
+我看大部分虹男女粉对杏是一点兴趣都没有的，各看各的没什么不好的，杏粉为什么要这么虚伪呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 8782#       发表于 2021-12-1 13:28
+
+ 本帖最后由 poipanchao 于 2021-12-1 13:34 编辑 
+
+昨天bo走的时候我去扫了一眼5ch厕所
+还是看到不少holostar威 胁论的
+顺便串里对bo的恶意真的大，vspo串才是娘家
+
+*****
+
+####  chmiao  
+##### 8783#       发表于 2021-12-1 13:31
+
+昨晚skb部录播无了，哪里能找到存档<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 8784#       发表于 2021-12-1 13:35
+
+不过虹男算运气好了。大肆男偶像运营这事毕竟是抽到好几张ssr男卡以后，属于顺势了。
+
