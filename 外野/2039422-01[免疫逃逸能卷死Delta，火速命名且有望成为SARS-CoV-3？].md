@@ -14207,3 +14207,29 @@ no evidence从专业人员嘴巴里面蹦出来是是不知道的意思
 
 南非国家传染病研究所(NICD) ：omicron变异株已迅速成为南非传播的主要毒株，在11月份的新冠肺炎病例样本中，发现74%的样本存在omicron变异株，南非的9个省中则有5个检测到了omicron变异株。南非新增8561例新冠肺炎确诊病例，相较昨日接近翻倍
 
+
+
+*****
+
+####  sjbssd  
+##### 1278#       发表于 2021-12-2 01:24
+
+死亡数据呢？死亡数据在哪里？就因为有钱人的买活没效了就这么慌，垃圾
+
+<img src="https://img.saraba1st.com/forum/202112/02/012417ehhmxxn6yhuz9ymu.png" referrerpolicy="no-referrer">
+
+<strong>4CBDFCEC.png</strong> (1.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-2 01:24 上传
+
+*****
+
+####  死亡確認  
+##### 1279#       发表于 2021-12-2 01:42
+
+看到几个躺平大国仰卧起坐的速度，到底是这个变种真的特别可怕还是实际他们已经流行很久手里一堆证据就是不报…
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

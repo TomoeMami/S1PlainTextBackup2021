@@ -102,3 +102,14 @@
 想问一下谭友手离的手柄键位安排，最近打算潜下心来练A级，发现一堆的手离车，头痛。我手动用的是默 ...</blockquote>
 我是LB离合A手刹B升X降。以前打FH4初学手离试过两种常见键位，感觉LB离合比A离合更容易习惯。尤其过急弯时刹车并降2-3档，A离合我很容易按错；而且LB手刹漂移的手感也不好
 
+
+
+*****
+
+####  Vladimeow  
+##### 1510#       发表于 2021-12-2 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777647&amp;ptid=2033303" target="_blank">citrus 发表于 2021-12-2 00:42</a>
+我是LB离合A手刹B升X降。以前打FH4初学手离试过两种常见键位，感觉LB离合比A离合更容易习惯。尤其过急弯 ...</blockquote>
+A离合要上拇指肚了，真是不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
