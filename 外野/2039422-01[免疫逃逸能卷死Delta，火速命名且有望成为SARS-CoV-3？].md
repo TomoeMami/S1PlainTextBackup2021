@@ -14184,3 +14184,26 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 不就是暗示现有疫苗在omicron面前依旧有效，反正也不用急，最迟到明年一月各 ...</blockquote>
 这暗示是你脑补的吧
 
+
+
+*****
+
+####  Redis  
+##### 1276#       发表于 2021-12-2 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777656&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-2 00:45</a>
+
+玩这种文字游戏有意思吗？
+
+不就是暗示现有疫苗在omicron面前依旧有效，反正也不用急，最迟到明年一月各 ...</blockquote>
+no evidence从专业人员嘴巴里面蹦出来是是不知道的意思
+
+当然媒体怎么理解那是媒体的事情了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最好不说  
+##### 1277#       发表于 2021-12-2 01:11
+
+南非国家传染病研究所(NICD) ：omicron变异株已迅速成为南非传播的主要毒株，在11月份的新冠肺炎病例样本中，发现74%的样本存在omicron变异株，南非的9个省中则有5个检测到了omicron变异株。南非新增8561例新冠肺炎确诊病例，相较昨日接近翻倍
+
