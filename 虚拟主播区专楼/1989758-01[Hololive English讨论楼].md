@@ -24094,3 +24094,13 @@ Ollie又开始对后辈疯狂贴贴了<img src="https://static.saraba1st.com/ima
 议会的所谓“见面会”</blockquote>
 本来也没啥感觉，突然感觉没去好亏，感觉可能是这辈子最接近有机会去的线下活动了。。虽然我那个周末有事加要规划来回的机票和住宿确实又不现实。。 哎 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，只恨我不是在纽约而是在乡下上学吧
 
+
+
+*****
+
+####  shimmy1996  
+##### 1492#       发表于 2021-12-1 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">同时有这么多bae，不愧是除了ame外唯一能进watropolis的存在
+la+满满的gura x shion即视感hhh  holobirb喜+2
+
