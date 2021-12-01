@@ -21190,3 +21190,16 @@ Alternative最近这两话看得想睡觉……是制作组拉了还是这段就
 </blockquote>
 明明能画的很好，为什么动起来这么挫。。
 
+
+
+*****
+
+####  oskneo  
+##### 1495#       发表于 2021-12-1 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764884&amp;ptid=1860817" target="_blank">102mph 发表于 2021-12-1 00:59</a>
+咋说呢 muv本篇也就是extra确实是挺无聊的日常 过了extra后面的故事就开始快速跃迁了 不太推荐看动画 这游 ...</blockquote>
+宇宙级别的script编写是什么意思
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

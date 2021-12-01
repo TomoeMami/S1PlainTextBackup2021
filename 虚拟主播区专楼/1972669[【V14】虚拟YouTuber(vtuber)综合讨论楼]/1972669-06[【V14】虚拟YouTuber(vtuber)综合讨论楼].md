@@ -16564,3 +16564,37 @@ syl，这段话是在说尊妈
 
 确实现在虹之于男v跟杏之于女v差不多吧，对我来说反正是好事，要是能像杏en搞点大物套皮倒是不错，不过感觉不太可能…
 
+
+
+*****
+
+####  winda  
+##### 8786#       发表于 2021-12-1 14:13
+
+<img src="https://img.saraba1st.com/forum/202112/01/141128szzjn4zyonyropye.png" referrerpolicy="no-referrer">
+
+<strong>lain.png</strong> (24.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 14:11 上传
+
+虹想发展虹男先想想办法怎么处理碍事的虹女吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠着虹男挣钱结果箱里人员阴盛阳衰
+
+*****
+
+####  FCCHua  
+##### 8787#       发表于 2021-12-1 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8788#       发表于 2021-12-1 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769831&amp;ptid=1972669" target="_blank">chmiao 发表于 2021-12-1 13:31</a>
+
+昨晚skb部录播无了，哪里能找到存档</blockquote>
+[https://www.bilibili.com/video/BV1og411A7R3](https://www.bilibili.com/video/BV1og411A7R3)
+

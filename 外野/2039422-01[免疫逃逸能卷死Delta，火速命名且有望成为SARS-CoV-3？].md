@@ -13262,3 +13262,68 @@ I have always considered myself as a scientist. 但新冠起源这个问题，�
 
 还不放弃脑子就是与你为敌，那我看你们的敌人在nhc<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朋友  
+##### 1198#       发表于 2021-12-1 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770070&amp;ptid=2039422" target="_blank">ひびき 发表于 2021-12-1 13:55</a>
+
+知乎喷总说他们莫得纳做疫苗用不了那么久，是FDA大老爷卡着不给批</blockquote>
+这么说也没错，那个alpha还是beta变种的疫苗现在还在做3期，也不知道现在美国哪来的alpha变种
+
+*****
+
+####  smy20011  
+##### 1199#       发表于 2021-12-1 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769526&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-1 13:07</a>
+
+疫苗改靶点再生产施打至少要半年到八个月，新变种传遍全国只要两三个月。楼里一帮人看了两年学术文献了，到 ...</blockquote>
+pfizer说要三个月,主要瓶颈在fda批准
+
+*****
+
+####  Niceday  
+##### 1200#       发表于 2021-12-1 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770130&amp;ptid=2039422" target="_blank">chobits99 发表于 2021-12-1 13:59</a>
+能说下这个新的非洲冠到底严重还是不严重</blockquote>
+现在有一些信息但是样本量都太小了，没有啥意义。
+
+唯一知道的就是有可能使疫苗失效而且可以卷赢Delta，足够大家保持警惕到有足够的研究结果了。
+
+
+
+*****
+
+####  7776169  
+##### 1201#       发表于 2021-12-1 14:08
+
+<blockquote>天使日又日 发表于 2021-12-1 13:27
+【#英国决定缩短疫苗接种间隔时间#】据俄罗斯卫星网30日报道，由于出现新冠变异新毒株“奥密克戎”，英国卫 ...</blockquote>
+他们觉得可以就可以呗（笑）
+
+*****
+
+####  laotoutou  
+##### 1202#       发表于 2021-12-1 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770153&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 14:00</a>
+某些楼也真是可笑，写的大义凛然的，说为了不让国际上孤立中国所以要放弃科学，放弃脑子，主动拥抱溯源政治 ...</blockquote>
+主要是福奇这种怪武汉消毒行径，貌似担心破坏现场。
+但是反过来他们自己不检测12月4号以前的血液样本，
+难道不担心美国最早的病例环境被破坏吗？
+这种事情越早测越好啊。
+
+*****
+
+####  黑斯廷斯  
+##### 1203#       发表于 2021-12-1 14:18
+
+我说这贴怎么的这么长呢，原来有这么个玩意儿进来了啊。欧美日印加油，人还死了一半都不到呢，加油！
+
+—— 来自 realme RMX2173, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
