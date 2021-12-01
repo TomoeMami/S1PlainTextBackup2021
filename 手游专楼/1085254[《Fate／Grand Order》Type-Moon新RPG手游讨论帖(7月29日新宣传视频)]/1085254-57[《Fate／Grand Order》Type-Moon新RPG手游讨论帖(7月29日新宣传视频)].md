@@ -5874,3 +5874,23 @@ NMD两单沉了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  alucardcz  
+##### 84530#       发表于 2021-12-1 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">怎么维护了 我体力还没清（
+
+*****
+
+####  khxooo  
+##### 84531#       发表于 2021-12-1 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766704&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-1 09:29</a>
+艾蕾那次圣诞也是主线，所以新圣诞是主线活动可能性很高啊
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+那么这次圣诞5星估计就是圣诞首次5星男从者了。
+

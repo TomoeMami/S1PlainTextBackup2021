@@ -12952,3 +12952,89 @@ https://www.bilibili.com/video/BV1464y147w1/</blockquote>
 I have always considered myself as a scientist. 但新冠起源这个问题，从来就都不是个科学问题，而是地缘 ...</blockquote>
 支持，现在新冠溯源变成了一个政治问题，科学只能站一边去了
 
+
+
+*****
+
+####  Niceday  
+##### 1174#       发表于 2021-12-1 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768353&amp;ptid=2039422" target="_blank">ftqwer1 发表于 2021-12-1 11:30</a>
+现在新冠已经让中国在新闻舆论上背了一年多的锅，你先让那帮欧米国家老老实实抗疫再来谈什么命名 ...</blockquote>
+啥玩意啊，这不就是说不应该让南非来背锅么？  到你这成了给欧美命名权？  合着新变种是欧美发现的咯？
+
+沙家浜都不懂就来插嘴？
+
+*****
+
+####  peculiar  
+##### 1175#       发表于 2021-12-1 12:09
+
+<img src="https://img.saraba1st.com/forum/202112/01/115745m54gicunf5vem5k5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.76 KB, 下载次数: 0)
+
+下载附件
+
+原帖
+2021-12-1 11:57 上传
+
+脳，一个日文简化字。
+
+又考虑到CJK统一字库这回事，为防止误伤，我复制到Word看了下这个字的Unicode：8133；
+
+<img src="https://img.saraba1st.com/forum/202112/01/120256ff8lw85llnclhlnh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.58 KB, 下载次数: 0)
+
+下载附件
+
+“脳”
+2021-12-1 12:02 上传
+
+那么“脑”呢？8111。
+
+<img src="https://img.saraba1st.com/forum/202112/01/120334epkhcy4x5dl7ayg9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.4 KB, 下载次数: 0)
+
+下载附件
+
+“脑”
+2021-12-1 12:03 上传
+
+虽说中国大陆的字库也收了“脳”字，但都排到国标E区了，这主要是国标（宋体）为了兼容CJKV四家的字库而不断扩充的结果。
+
+所以，阁下是怎么选中的简中罕见，日文常见的8133，而非简中通用的8111呢？
+
+*****
+
+####  creymorgan  
+##### 1176#       发表于 2021-12-1 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768808&amp;ptid=2039422" target="_blank">peculiar 发表于 2021-12-1 12:09</a>
+
+脳，一个日文简化字。
+
+又考虑到CJK统一字库这回事，为防止误伤，我复制到Word看了下这个字的Unicode：8133 ...</blockquote>
+我有个猜测是为了绕过屏蔽词
+
+下为测试文
+
+**
+
+洗脳
+
+*****
+
+####  ftqwer1  
+##### 1177#       发表于 2021-12-1 12:13
+
+ 本帖最后由 ftqwer1 于 2021-12-1 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768769&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 12:06</a>
+
+啥玩意啊，这不就是说不应该让南非来背锅么？  到你这成了给欧美命名权？  合着新变种是欧美发现的咯？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">谁脏也没你脏啊，自己屁股坐的稳话里话外给哪国洗白当别人看不出来然后指责人家屁股叙事。你美帝电子烟肺炎几千个住院病例，现在一份病例结果都交不出来。还跟大家讲科学。
+
