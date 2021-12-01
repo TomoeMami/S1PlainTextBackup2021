@@ -13038,3 +13038,80 @@ I have always considered myself as a scientist. 但新冠起源这个问题，�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">谁脏也没你脏啊，自己屁股坐的稳话里话外给哪国洗白当别人看不出来然后指责人家屁股叙事。你美帝电子烟肺炎几千个住院病例，现在一份病例结果都交不出来。还跟大家讲科学。
 
+
+
+*****
+
+####  pagedown  
+##### 1178#       发表于 2021-12-1 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766509&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 09:14</a>
+说话不占理就开始从屁股找补了？   那你还讨论啥呢，自己对着镜子骂不就完了。
+
+新冠的溯源我相信下面这 ...</blockquote>
+理客中是思维工具，不是人生目标。1161楼说得挺好我不重复，你理解不了你就会永远与我们这群人为敌。如果你是真正的理客中那么能不能将我们这群人纳入你的思考范围呢？如果你一定要无视我们，那么你是唯心主义还是理客中？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  h1dalei  
+##### 1179#       发表于 2021-12-1 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53757920&amp;ptid=2039422" target="_blank">卡普空 发表于 2021-11-30 15:07</a>
+
+只要你足够强能活下来，可以感染无数次</blockquote>
+人的肺一般有几个?
+
+*****
+
+####  最好不说  
+##### 1180#       发表于 2021-12-1 12:36
+
+当地时间11月30日，英国政府发布的数据显示，截至目前英国已经确诊22例新冠变异病毒奥密克戎毒株感染病例。当天，英国首相约翰逊在新闻发布会上表示将加快新冠疫苗加强针的接种速度，在2022年1月底前为所有成年人提供疫苗加强针。超过150个社区药房将被用于加强针接种。
+
+带英看起来是下定决心要靠疫苗共存到底了，但leaky vaccine能在omicron乃至后续的变种面前撑多久呢，我很好奇<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ひびき  
+##### 1181#       发表于 2021-12-1 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768808&amp;ptid=2039422" target="_blank"> peculiar 发表于 2021-12-1 12:09</a>  脳，一个日文简化字。 又考虑到CJK统一字库这回事，为防止误伤，我复制到Word看了下这个字的Unicode：8133； 那么“脑”呢？8111。 虽说中国大陆的字库也收了“脳”字，但都排到国标E区了，这主要是国标（宋体）为了兼容CJKV四家的字库而不断扩充的结果。 所以，阁下是怎么选中的简中罕见，日文常见的8133，而非简中通用的8111呢？附件： </blockquote>
+这就是你不懂s1了
+
+你用原版的脑字接在洗字后面打出来试试？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  ひびき  
+##### 1182#       发表于 2021-12-1 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768473&amp;ptid=2039422" target="_blank"> Alexmacau8 发表于 2021-12-1 11:37</a>  很好，很有精神！  先给你留个档，省的编辑了  附件： </blockquote>
+你用原版的脑字接在洗字后面打出来试试？打得出来吗你？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  peculiar  
+##### 1183#       发表于 2021-12-1 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769155&amp;ptid=2039422" target="_blank">ひびき 发表于 2021-12-1 12:38</a>
+
+这就是你不懂s1了
+
+你用原版的脑字接在洗字后面打出来试试？</blockquote>
+也有道理，不过换我的话也许会加空格：洗 脑
+
+*****
+
+####  lifengzhi321  
+##### 1184#       发表于 2021-12-1 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53767122&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-1 10:04</a>
+如果致死率是100％，你说的火葬场挤兑才是正确的
+
+致死率是100％吗？</blockquote>
+火葬场也不是按100%规模设计的，比如设计时是按每年人口的1%死亡率来设计的规模，现在突然变成了2%或更高了，就会挤兑了
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
