@@ -6464,3 +6464,12 @@ a的大环境本来就反鸟，现在鸟的反a情绪也日益高涨了，你自
 
 带主播啦，摆烂也有人上贡啦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wasted  
+##### 3735#       发表于 2021-12-1 21:35
+
+呃呃，新人刚来看vtb，这个文静的看点主要是啥啊
+

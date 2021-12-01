@@ -909,3 +909,12 @@ There will be normal LoL stream at this rate
 
 怎么办，歌回同接比绫总高，能不能投稿一首グッバイ宣言让绫总加点压力
 
+
+
+*****
+
+####  Fami水  
+##### 13592#       发表于 2021-12-1 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只要没开播 压力就没到绫总这边
+

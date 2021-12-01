@@ -10722,3 +10722,12 @@ ff<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrer
 
 郭楠真的是…
 
+
+
+*****
+
+####  Klience  
+##### 5734#       发表于 2021-12-1 21:40
+
+嗨呀 lol民输麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
