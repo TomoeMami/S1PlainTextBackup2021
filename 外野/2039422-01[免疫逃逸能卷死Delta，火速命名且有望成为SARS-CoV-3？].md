@@ -13455,3 +13455,24 @@ pfizer说要三个月,主要瓶颈在fda批准
 
 我并不太在乎期货死人怎么抹黑我，而且因为他们那边太惨不忍睹了我甚至还有点同情他们
 
+
+
+*****
+
+####  623607644  
+##### 1215#       发表于 2021-12-1 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53771695&amp;ptid=2039422" target="_blank">过河小马 发表于 2021-12-1 16:02</a>
+
+我并不太在乎期货死人怎么抹黑我，而且因为他们那边太惨不忍睹了我甚至还有点同情他们 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抹黑你的主力军从来不是期货死人，而是趴在期货死人上面吸血的伯爵桑啊
+
+*****
+
+####  riczxc  
+##### 1216#         楼主| 发表于 2021-12-1 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770968&amp;ptid=2039422" target="_blank">洛拉斯 发表于 2021-12-1 15:01</a>
+楼主自己开始的</blockquote>
+真的不是我开始的。
+

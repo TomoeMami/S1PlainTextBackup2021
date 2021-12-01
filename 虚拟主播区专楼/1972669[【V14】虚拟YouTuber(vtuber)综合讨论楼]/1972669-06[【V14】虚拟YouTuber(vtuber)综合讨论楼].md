@@ -16713,3 +16713,50 @@ holostar感觉人和皮不搭<img src="https://static.saraba1st.com/image/smiley
 
 已经够行了，都给虹女专场live了，谷子也都会绑虹女，工商宣传什么都有，说实话就现在这样虹女就不配拿这么多资源的，被厄介粉踩不是正常，虹女衰退的这个问题其实对虹没影响的，按我自己作为一个虹女粉丝的观察，虹女观众流失主要是在路人观众，就算是葵皇这种退的比较厉害的核心粉丝也没有流失的，纯粹只是现在路人看热闹喜欢看虹男罢了，如果有一些噱头路人粉丝还是会回来看的，新人入坑这块不好说，应该是少了，不过虹本来新人就少，deadgame
 
+
+
+*****
+
+####  free  
+##### 8802#       发表于 2021-12-1 16:10
+
+请选择你觉得更偶像的一组<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/01/161004vvotpt5t3ww8jw8o.png" referrerpolicy="no-referrer">
+
+<strong>虹.png</strong> (341.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/161004zzifx5c1wx65iup7.jpg" referrerpolicy="no-referrer">
+
+<strong>杏.jpg</strong> (209.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 16:10 上传
+
+*****
+
+####  shpdw  
+##### 8803#       发表于 2021-12-1 16:10
+
+社长粉丝比例男性高达七成。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前就没啥虹男弱势的这一说法，就算是19年刀柴社力光这些从来都没弱势过。开了前虹女那也得开没法偶像的前虹男了。
+
+衰退和什么男不男女不女没啥关系，以前的虹女也不需要吃偶像化这块饭。那两年抄虹箱的半吊子想法做偶像化没几个好下场。
+
+你虹本来就高度依赖个人势社区文化产出的，也实际只是那两年个人势文化的一个缩影，这种社区早就半死不活。有ngo这种人已经是你虹的回光返照了，只要能死好看点就可以了。
+
+*****
+
+####  OldGlory  
+##### 8804#       发表于 2021-12-1 16:17
+
+虹女现在这么恶劣的生存环境是不是有意为之的呢？
+
+最简单的例子，eden组这种四男一女的出法，虹女不弱势就有鬼了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
