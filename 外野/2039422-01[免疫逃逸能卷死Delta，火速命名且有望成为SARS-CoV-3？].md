@@ -14085,3 +14085,25 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 
 还用得着费心去鼓励别的国家检测新变种。。我们自己检测好就行了，你管得着国外死活吗？
 
+
+
+*****
+
+####  ak123  
+##### 1268#       发表于 2021-12-1 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776462&amp;ptid=2039422" target="_blank">飞奔的拓拓 发表于 2021-12-1 22:04</a>
+
+我觉得那时最好指望美国人还有点理智，别去按核按钮。</blockquote>
+都那样了，发射井的人都躲起来瑟瑟发抖了，谁还关心上面是不是活着的老白男神经病发什么指令啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  inconolast  
+##### 1269#       发表于 2021-12-1 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776446&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-12-1 22:03</a>
+
+据说新冠会损害神经系统是吧？我看这位症状挺严重的</blockquote>
+[https://www.bilibili.com/video/BV1eW411t7EZ](https://www.bilibili.com/video/BV1eW411t7EZ)
+

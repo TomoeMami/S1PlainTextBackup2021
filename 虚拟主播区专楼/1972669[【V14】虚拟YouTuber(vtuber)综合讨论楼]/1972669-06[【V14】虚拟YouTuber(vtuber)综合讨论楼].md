@@ -17047,3 +17047,15 @@ EN虹女又不养独角兽<img src="https://static.saraba1st.com/image/smiley/fa
 
 男V不会讲批话狗都不看，哪个国家的大火男主播讲不了几句屎尿屁段子呀，那还叫事
 
+
+
+*****
+
+####  winda  
+##### 8833#       发表于 2021-12-1 22:53
+
+ 本帖最后由 winda 于 2021-12-1 22:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就要说说lauren骂ホモ野郎被点踩的事了
+homo营业的家伙说ホモ野郎
+

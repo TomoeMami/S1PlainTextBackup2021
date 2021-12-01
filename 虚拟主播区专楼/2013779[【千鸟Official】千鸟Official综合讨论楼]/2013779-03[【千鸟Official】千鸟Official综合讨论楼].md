@@ -6526,3 +6526,12 @@ a的大环境本来就反鸟，现在鸟的反a情绪也日益高涨了，你自
 摆烂，热水器，炒作，触摸，炸弹</blockquote>
 你搁这赶人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 3742#       发表于 2021-12-1 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">纯良就不能做鸟批嘛，我还在看小红呢
+

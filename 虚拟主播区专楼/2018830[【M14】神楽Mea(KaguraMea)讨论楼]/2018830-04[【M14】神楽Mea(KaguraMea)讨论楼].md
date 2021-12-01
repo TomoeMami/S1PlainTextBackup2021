@@ -10763,3 +10763,26 @@ ff<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrer
 
 打撸只要玩波比还能看看操作，打枪马成麻花就没啥意思只能说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 5739#       发表于 2021-12-1 22:42
+
+问题来了，这人的一会儿的直播是什么时候呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻麻的今天周三不是周五啊死肥婆
+
+*****
+
+####  Klience  
+##### 5740#       发表于 2021-12-1 22:43
+
+快了 刚打完一局 估计现在赶着做封面吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5741#       发表于 2021-12-1 22:49
+
+噗，什么看比赛现场学技术
+
