@@ -6489,3 +6489,40 @@ a的大环境本来就反鸟，现在鸟的反a情绪也日益高涨了，你自
 
 我从v8入坑的v<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 3738#       发表于 2021-12-1 22:21
+
+千鸟真温暖啊<img src="https://p.sda1.dev/3/48d4947ee89f7505922a9c5b21847a2b/IMG_CMP_114920529.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3739#       发表于 2021-12-1 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776555&amp;ptid=2013779" target="_blank">cherrydove 发表于 2021-12-1 22:14</a>
+刚来看v就看文静也太狠了，真担心看v生涯，看点杂谈整活，唱歌（很少）看几次直播就能知道是否适合了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我第一个v也是文静啊 没问题的
+
+*****
+
+####  莫洛骑士  
+##### 3740#       发表于 2021-12-1 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776103&amp;ptid=2013779" target="_blank">wasted 发表于 2021-12-1 09:35</a>
+呃呃，新人刚来看vtb，这个文静的看点主要是啥啊</blockquote>
+摆烂，热水器，炒作，触摸，炸弹
+
+*****
+
+####  T型钉宫病毒  
+##### 3741#       发表于 2021-12-1 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776776&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-1 22:36</a>
+
+摆烂，热水器，炒作，触摸，炸弹</blockquote>
+你搁这赶人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

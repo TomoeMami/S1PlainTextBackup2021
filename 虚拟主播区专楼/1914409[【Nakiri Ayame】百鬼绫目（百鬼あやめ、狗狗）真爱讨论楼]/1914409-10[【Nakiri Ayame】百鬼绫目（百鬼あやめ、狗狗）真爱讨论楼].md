@@ -918,3 +918,14 @@ There will be normal LoL stream at this rate
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只要没开播 压力就没到绫总这边
 
+
+
+*****
+
+####  一仙  
+##### 13593#       发表于 2021-12-1 22:32
+
+看了绫总参加的官台综艺，绫天天收录就整的这种东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还不如多整点翻唱
+
