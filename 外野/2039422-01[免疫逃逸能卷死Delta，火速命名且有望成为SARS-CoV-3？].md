@@ -13780,3 +13780,56 @@ WHO能够承受各方政治压力，依据科学指导工作已经很不容易�
 
 据nhk报道，日本发现第二例omicron，从秘鲁输入。草，原来南美早没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑斯廷斯  
+##### 1242#       发表于 2021-12-1 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772901&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-1 17:38</a>
+据nhk报道，日本发现第二例omicron，从秘鲁输入。草，原来南美早没了
+
+另外沙特发现一例从北非输入的 ...</blockquote>
+基本可以确认欧美早就流行开了，只不过硬挺着看哪个倒霉国家受不了先爆出来，然后光速锁国。冬天马上来了，我很看好白皮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2173, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ひびき  
+##### 1243#       发表于 2021-12-1 17:54
+
+我本来不想说美国起源的
+
+然而今天忽然一波热搜篡改历史记忆跟福奇打配合把我恶心坏了，**霉里奸！我呸<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+还tm12月1号，绿帽潭还冒出一堆说11月的不明ID
+
+我<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">就是nm的德堡病毒来自: iPhone客户端
+
+*****
+
+####  最好不说  
+##### 1244#       发表于 2021-12-1 18:03
+
+<blockquote>黑斯廷斯 发表于 2021-12-1 17:47
+基本可以确认欧美早就流行开了，只不过硬挺着看哪个倒霉国家受不了先爆出来，然后光速锁国。冬天马上来了 ...</blockquote>
+我倾向于在delta这波秋冬季攻势的演化下omicron悄**的传遍了世界，毕竟从演化树上看应该是10月底在非洲出现的，满打满算也就一个月。这玩意要憋住还是很难的，因为免疫逃逸的缘故爆发以后肯定有大量接种后感染的案例爆出来
+
+*****
+
+####  riczxc  
+##### 1245#         楼主| 发表于 2021-12-1 18:04
+
+ 本帖最后由 riczxc 于 2021-12-1 18:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772901&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-1 17:38</a>
+据nhk报道，日本发现第二例omicron，从秘鲁输入。草，原来南美早没了
+
+另外沙特发现一例从北非输入的 ...</blockquote>
+美国已经有借口了，之前都是delta，所以测序量少了。
+
+cdc不认账，不过他们的专家也说至少美国国内有两千例以上
+
+https://www.businessinsider.com/omicron-the-us-probably-has-2000-cases-already-covid-expert-2021-11
+

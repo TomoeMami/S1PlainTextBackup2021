@@ -6059,3 +6059,62 @@ C09B5FAF-7FED-4EAB-819E-C06DDD99E744.jpeg
 
 BOSSRUSH全是杂兵可说不过去啊
 
+
+
+*****
+
+####  シャル  
+##### 84548#       发表于 2021-12-1 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772900&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-12-1 17:38</a>
+
+虽然可能要留梗
+
+但想一下除了2.1的雷帝和2.2跟苏特合体的芬里尔，最多再算个角神外剩下几个异闻带狐 ...</blockquote>
+有新敌人
+
+这次要搞通古斯大爆炸了
+
+597558E5-838A-4329-B55F-DF85FECCE522.jpeg
+(137.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/175314kx2meufcvm6xueed.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3E45DCF0-9FAF-44A5-936C-A329A59E3BD6.jpeg
+(324.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/175316rjbjfpehz2bh4277.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+86E5383C-B93E-432B-B69E-51B9A707CF53.jpeg
+(171.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/175317iilozjkmkzgwkiee.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 84549#       发表于 2021-12-1 17:54
+
+又是虚无期间
+
+C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
+(435.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 17:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/175414ml34lua39e3j9iii.png" referrerpolicy="no-referrer">
+

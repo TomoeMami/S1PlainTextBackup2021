@@ -6358,3 +6358,35 @@ a的大环境本来就反鸟，现在鸟的反a情绪也日益高涨了，你自
 
 倒是游戏会依旧是灾难
 
+
+
+*****
+
+####  小憨1  
+##### 3723#       发表于 2021-12-1 17:49
+
+五个人的游戏回就是纯纯的灾难……艾队隐身，其他人大吼大叫
+
+*****
+
+####  灰色的狐狸  
+##### 3724#       发表于 2021-12-1 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">其实这么说的话，让她们去跑团好像是个不错的选择
+
+*****
+
+####  夜潇箫  
+##### 3725#       发表于 2021-12-1 17:59
+
+五个游戏猪鼻<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3726#       发表于 2021-12-1 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773036&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-1 17:50</a>
+其实这么说的话，让她们去跑团好像是个不错的选择</blockquote>
+白白说过有跑团的想法，说感觉玩的人有意思，看的人会很无聊
+
