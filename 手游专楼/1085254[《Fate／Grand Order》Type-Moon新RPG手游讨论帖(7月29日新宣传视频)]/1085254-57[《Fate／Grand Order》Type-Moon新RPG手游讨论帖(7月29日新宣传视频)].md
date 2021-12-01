@@ -6149,3 +6149,34 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 毫无机会，毕竟形象都是借的</blockquote>
 或者下地的会是糖果，但是请你搞清楚一件事，姆里安才是原型，糖果才是借用形象的那一个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 84553#       发表于 2021-12-1 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">刚刚在群里八奇了一下，这次应该是姜子牙一路打玉藻打到通古斯
+妲乙当年情人是黄帝，为复活他而接受女娲条件祸害商朝，而后姜子牙封神演义打妲乙，妲乙收敛了点，但后面死心不改，跑到日本搞事情改名玉藻前，姜子牙闻后化身为安倍清明二打玉藻。
+最后在18世纪时，玉藻在通古斯搞事情，姜子牙再现，三打玉藻并通过通古斯大爆炸封印了玉藻，然而异星神帮助下脱逃出来再次搞事，而她这次和异星神交易可能还是复活黄帝….
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">反正先奶姜子牙是冠位骑先～～～性格怕不是和土狼红茶一个性格
+
+*****
+
+####  cckuku  
+##### 84554#       发表于 2021-12-1 20:18
+
+姜子牙化身成安倍晴明…本子那边真的能接受这种搞法？不会炎上吗？
+
+*****
+
+####  シャル  
+##### 84555#       发表于 2021-12-1 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773895&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-1 19:00</a>
+
+这食人花（？）装个重机枪是什么朋克造型</blockquote>
+枪械爱好者的完美进化形态吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+装更多枪更猛的火力
+
