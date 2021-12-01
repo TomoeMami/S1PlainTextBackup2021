@@ -13221,3 +13221,44 @@ I have always considered myself as a scientist. 但新冠起源这个问题，�
 我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。</blockquote>
 你也认为还没确定不是吗？既然如此你还给未确定的事情定调“不是洗_脑”，为西方开脱，这不是你受西方价值影响的表现？
 
+
+
+*****
+
+####  ひびき  
+##### 1194#       发表于 2021-12-1 13:55
+
+ 本帖最后由 ひびき 于 2021-12-1 13:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769526&amp;ptid=2039422" target="_blank"> lipo 发表于 2021-12-1 13:07</a> 疫苗改靶点再生产施打至少要半年到八个月，新变种传遍全国只要两三个月。楼里一帮人看了两年学术文献了，到现在连算数都算不好。 </blockquote>
+知乎喷总说他们莫得纳做疫苗用不了那么久，是FDA大老爷卡着不给批<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 来自: iPhone客户端
+
+*****
+
+####  chobits99  
+##### 1195#       发表于 2021-12-1 13:59
+
+能说下这个新的非洲冠到底严重还是不严重
+
+*****
+
+####  thq  
+##### 1196#       发表于 2021-12-1 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769246&amp;ptid=2039422" target="_blank">Nanachi 发表于 2021-12-1 12:47</a>
+
+洗‏﻿﻿​‌‎‎​‌‎‎脑
+
+可以试试用这个：[https://yuanfux.github.io/zero-width-web/](https://yuanfux.github.io/zero-width-web/) ...</blockquote>试试，警‏‏‍‏‍‍﻿​‏‌‌‌‌‏‍察
+
+确实是好东西啊，收藏了
+
+*****
+
+####  Niceday  
+##### 1197#       发表于 2021-12-1 14:00
+
+某些楼也真是可笑，写的大义凛然的，说为了不让国际上孤立中国所以要放弃科学，放弃脑子，主动拥抱溯源政治化。
+你们是不是漏了一步，放弃科学以后，怎么在国际上说服别人？  靠**么？  **你洗得过欧美么？
+
+还不放弃脑子就是与你为敌，那我看你们的敌人在nhc<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
