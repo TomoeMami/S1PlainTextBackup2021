@@ -2977,3 +2977,22 @@ SKYBOX的电影院模式看电影真是太爽了，今晚看了阿丽塔，太�
 
 airlink目前遇到的唯一问题，玩的时候不能录视频~所以继续用虚拟桌面
 
+
+
+*****
+
+####  bypass  
+##### 193#         楼主| 发表于 2021-12-1 10:00
+
+Oculus Quest v35 更新推出，对国内玩家比较有用的是<strong>全局自动云存档正式上线</strong>。
+
+<img src="https://img.saraba1st.com/forum/202112/01/100036gng4k1fr6tzmkc5r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 10:00 上传
+
+[https://www.oculus.com/blog/mixe ... us-software-update/](https://www.oculus.com/blog/mixed-reality-made-easy-messenger-calling-cloud-backup-and-more-in-the-newest-oculus-software-update/)
+

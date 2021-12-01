@@ -12565,3 +12565,46 @@ WHO做个把关把恶意的名字去掉就是了，多大点事。  台风命�
 <img src="https://p.sda1.dev/3/10b1726563f0997495eb93f8756ec627/IMG_CMP_157184997.jpeg" referrerpolicy="no-referrer">
 欧洲遍地有是因为本来就是从欧洲开始的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  theloved  
+##### 1141#       发表于 2021-12-1 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763643&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 23:05</a>
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。</blockquote>
+武汉嫌疑最大的前提是病毒来源于自然界，但是如果病毒来源于实验室呢？
+
+*****
+
+####  configxxxx  
+##### 1142#       发表于 2021-12-1 09:52
+
+<blockquote>Niceday 发表于 2021-12-1 09:22
+台风是轮流的不大一样。
+
+主要是要设计一个鼓励发现病毒，而不是惩罚发现病毒的机制。 ...</blockquote>
+想多了，又不是啥好事没人愿意认领第一个发现，类比一下的话第一个发现尸体的还嫌疑最大呢
+
+*****
+
+####  汽车屁  
+##### 1143#       发表于 2021-12-1 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765090&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 01:17</a>
+
+现在对医疗挤兑级别的灾难，信息管制几乎无效了。
+
+你要考虑1918年人不因为流感死也有伤寒霍乱等一大堆失 ...</blockquote>
+中国有医疗挤兑是因为中国对老百姓负责，纽约不挤兑是因为美国人不值钱，美国有低人权优势
+
+看看日本为啥不挤兑，因为都让你在家自我疗养，你直接死在家里。没有治疗，当然就没有医疗挤兑
+
+*****
+
+####  最好不说  
+##### 1144#       发表于 2021-12-1 09:59
+
+南美都有了，你美还一例都没有，好神奇啊
+
