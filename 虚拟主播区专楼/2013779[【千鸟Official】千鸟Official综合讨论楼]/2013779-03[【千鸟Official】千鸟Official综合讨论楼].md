@@ -6139,3 +6139,33 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 我寄吧谁啊，你寄吧谁啊，他寄吧谁啊，谁代表我谁4000+</blockquote>
 。。原来如此
 
+
+
+*****
+
+####  小憨1  
+##### 3698#       发表于 2021-12-1 14:41
+
+就这种套模板的贺图能憋十几小时，我用脚都能做出来<img src="https://p.sda1.dev/3/b435ece1f7ea2746b2834bbda592e34a/5d08b1f86ac73c4a.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 3699#       发表于 2021-12-1 14:44
+
+别尬黑，三俗主播能有个贺图不错了。忍辱负重，🐦虽三户，亡b必🐦!🤕
+
+*****
+
+####  rgauss  
+##### 3700#       发表于 2021-12-1 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">这种贺图我开ps分分钟都可以做十几个
+
+*****
+
+####  T型钉宫病毒  
+##### 3701#       发表于 2021-12-1 14:57
+
+京华哥哥的还要11个小时呢，鸟p不要不知好歹<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

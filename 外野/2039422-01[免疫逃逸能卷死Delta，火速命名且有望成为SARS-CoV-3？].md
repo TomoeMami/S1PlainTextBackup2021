@@ -13353,3 +13353,32 @@ pfizer说要三个月,主要瓶颈在fda批准
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Vneet  
+##### 1206#       发表于 2021-12-1 14:56
+
+你们在吵jb啊，科学溯源可是我国一直坚持的立场，连带的是拒绝把溯源zz化，两手都要才是硬道理。
+
+*****
+
+####  星之卡比  
+##### 1207#       发表于 2021-12-1 14:58
+
+我tm的就想从这个帖子了解一下新变种的最新情况，你们tm的能不能去别的地方聊政治话题？
+
+— from OnePlus HD1907, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  洛拉斯  
+##### 1208#       发表于 2021-12-1 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770927&amp;ptid=2039422" target="_blank">星之卡比 发表于 2021-12-1 14:58</a>
+我tm的就想从这个帖子了解一下新变种的最新情况，你们tm的能不能去别的地方聊政治话题？
+
+— from OnePlus  ...</blockquote>
+楼主自己开始的
+

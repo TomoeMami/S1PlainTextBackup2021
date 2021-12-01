@@ -16607,3 +16607,28 @@ syl，这段话是在说尊妈
 
 虹女的问题是一直在衰退，无解
 
+
+
+*****
+
+####  fastary  
+##### 8790#       发表于 2021-12-1 14:41
+
+这么说来去看了眼出道时惊为天人的eden组，虽然订阅光速冲上了20w但后面就慢起来了啊。不过再一算都跟valz平均差不多了，就虹而言依旧很厉害……不知道下一期会不会再憋一年，能搞成什么样
+
+
+
+*****
+
+####  OldGlory  
+##### 8791#       发表于 2021-12-1 14:46
+
+憋一年就这样的话还是下饺子舒坦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真飞鸟i  
+##### 8792#       发表于 2021-12-1 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holostar威 胁论是什么鬼，约等于埃塞俄比亚威 胁论了吧。
+
