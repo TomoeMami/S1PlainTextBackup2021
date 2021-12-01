@@ -6024,3 +6024,16 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 两弱是谁我咋感觉艾白是弱其他三个都是躺</blockquote>
 思思要是真躺了就不会被指导到破防哭了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 3689#       发表于 2021-12-1 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766483&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-1 09:12</a>
+鸟吧评价艾白是唯一把三寄一加学明白的</blockquote>
+那你还炒！隔壁都在挂你炒作记录了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
