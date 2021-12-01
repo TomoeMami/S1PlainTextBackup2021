@@ -16760,3 +16760,28 @@ holostar感觉人和皮不搭<img src="https://static.saraba1st.com/image/smiley
 
 最简单的例子，eden组这种四男一女的出法，虹女不弱势就有鬼了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8805#       发表于 2021-12-1 16:22
+
+按从holo看虹的视角出发。
+感觉就是虹女之间没有能做到很强的联系性和交流。反而是虹男直接冲突和共鸣比较激烈。
+
+*****
+
+####  毛头小希  
+##### 8806#       发表于 2021-12-1 16:31
+
+<blockquote>OldGlory 发表于 2021-12-1 16:17
+虹女现在这么恶劣的生存环境是不是有意为之的呢？
+
+最简单的例子，eden组这种四男一女的出法，虹女不弱势就 ...</blockquote>
+讲得好像当初世怜女就能让虹女多强势一样
+
+en全是女的目前也还行吧，虽然据说en男快出了
+
+完全想象不能
+
