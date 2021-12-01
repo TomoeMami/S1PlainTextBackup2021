@@ -16648,3 +16648,22 @@ holostar感觉人和皮不搭<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 星怕是yagoo按自己性癖乱来的吧 我虽然是男性阿宅 但是我暴言一局对于一般的女性来说eden组的皮讨喜度完爆星没毛病吧 
 
+
+
+*****
+
+####  poipanchao  
+##### 8795#       发表于 2021-12-1 15:25
+
+那杏女皮也比虹女皮精致
+虽然也有虹女好运抽到ssr，但是好皮也好死啊，全没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+这么说起来田角才是给吧
+
+*****
+
+####  ヒトニナル  
+##### 8796#       发表于 2021-12-1 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细一想木口星的皮的确有一股莫名其妙的土味
+

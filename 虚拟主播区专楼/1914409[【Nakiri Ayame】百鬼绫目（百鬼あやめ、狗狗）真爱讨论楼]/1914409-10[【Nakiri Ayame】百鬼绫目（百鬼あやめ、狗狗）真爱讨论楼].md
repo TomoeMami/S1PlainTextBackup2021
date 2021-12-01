@@ -874,3 +874,29 @@ syl还以为清洁工能卷绫总 看来卷的是润姨
 
 绫总是准备收租加年终奖
 
+
+
+*****
+
+####  nian1538  
+##### 13589#       发表于 2021-12-1 15:21
+
+&gt;Towa sponsored to play LoL spin off game
+
+&gt;Luna sponsored to play LoL spin off game
+
+&gt;Botan and Aqua sponsored to watch LoL movie
+
+Who do I blame for this?
+
+There will be normal LoL stream at this rate
+
+绫总高强度直播的版本要来了吗
+
+*****
+
+####  阿尔达希尔  
+##### 13590#       发表于 2021-12-1 15:27
+
+绫总今年直播时长高达150小时，要感恩<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
