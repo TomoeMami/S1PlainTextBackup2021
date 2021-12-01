@@ -12868,3 +12868,87 @@ I have always considered myself as a scientist. 但新冠起源这个问题，�
 https://www.bilibili.com/video/BV1464y147w1/</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">如果你看1069L，你会看到楼主的舆论导向已经由“新冠率先出现在武汉”变成“即使欧美更早之前有新冠病例，但欧美不测序不检测，所以病例少，爆发起点还是武汉”。毫无科学精神，先定调再编故事。
 
+
+
+*****
+
+####  66666  
+##### 1167#       发表于 2021-12-1 11:28
+
+我觉得你们老把致死率跟严重性挂钩其实没什么意义，你们看致死率只有0.4%的霍乱在我国是唯二的甲级传染病，发现之后必须2小时内上报，极易传染
+
+现在医学看传染病危害性一般是预期寿命第一，伤残率（后遗症）第二，第三才是致死率，现在新冠病毒在前2个方面对人类威胁性巨大，对人类造成的危害也远远比那些所谓致死率超高的病毒要高的多
+
+*****
+
+####  Alexmacau8  
+##### 1168#       发表于 2021-12-1 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">楼主你去年是冰箱里过的吗？ 纽约冷冻大卡车和埋尸无人岛都装不知道。
+
+*****
+
+####  ftqwer1  
+##### 1169#       发表于 2021-12-1 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768211&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 11:20</a>
+我前面就说了让WHO把个关把恶意的筛掉就是了。
+
+命名权已经是成本最低的鼓励方式了，泥潭网友喷可以，至 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你想让这个楼爆炸直接献祭你这号就行了，反正扣了500多鹅的号全论坛都知道你的立场，不心疼。
+
+*****
+
+####  lolozp  
+##### 1170#       发表于 2021-12-1 11:34
+
+不用欧美了，4v还很多坚持用武汉来称呼病毒的人呢
+
+
+
+*****
+
+####  你这瓜保熟吗  
+##### 1171#       发表于 2021-12-1 11:34
+
+ 本帖最后由 你这瓜保熟吗 于 2021-12-1 11:36 编辑 
+
+看着楼里几位表演，我只能说很喜欢楼上某位的一句话
+<blockquote>只能像现在这样粪海狂蛆一般地一边嘴硬，一边当期货死人。以前我不看屠美灭日那样的爽文是因为觉得yy的东西很没品，现在我不看那样的爽文是因为真的妹有那个必要。</blockquote>
+当然某几位可能不是期货死人，因为连润出去的资本都没有，看着自己精神亲爹们排队火葬场恨不得以身代之顺便喷xx病毒<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alexmacau8  
+##### 1172#       发表于 2021-12-1 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 很好，很有精神！
+
+先给你留个档，省的编辑了
+
+<img src="https://img.saraba1st.com/forum/202112/01/113710o84t0nhm0wkkh8s7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0A55D972-7CDB-4748-A10C-9E564EA2EB52.jpeg</strong> (25.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/113710f9ldfa9f2vvsqv4v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>42BDE712-0186-4B39-915D-5528D0A7F5E4.jpeg</strong> (477.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 11:37 上传
+
+*****
+
+####  罗莉控  
+##### 1173#       发表于 2021-12-1 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53767988&amp;ptid=2039422" target="_blank">nominication47 发表于 2021-12-1 11:06</a>
+
+I have always considered myself as a scientist. 但新冠起源这个问题，从来就都不是个科学问题，而是地缘 ...</blockquote>
+支持，现在新冠溯源变成了一个政治问题，科学只能站一边去了
+

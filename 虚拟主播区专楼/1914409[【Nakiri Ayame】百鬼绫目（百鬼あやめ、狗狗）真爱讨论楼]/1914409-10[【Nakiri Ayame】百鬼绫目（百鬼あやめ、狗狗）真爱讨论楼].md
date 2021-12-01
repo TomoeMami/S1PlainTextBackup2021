@@ -839,3 +839,18 @@ syl还以为清洁工能卷绫总 看来卷的是润姨
 
 仿佛上次纪念直播还是在上次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绿色子龙  
+##### 13586#       发表于 2021-12-1 11:31
+
+<blockquote>一仙 发表于 2021-11-30 23:50
+话说怎样才算绫总的上位替代啊</blockquote>
+上位替代小目标:
+
+3个月播一次
+
+翻唱再见宣言半年1500w播放
+
