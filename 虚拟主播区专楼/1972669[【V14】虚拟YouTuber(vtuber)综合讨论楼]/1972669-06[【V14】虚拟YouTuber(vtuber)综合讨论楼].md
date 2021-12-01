@@ -16891,3 +16891,12 @@ en虹女已经是日常fxxk shxt bixxh三件套互相问候了，看好en虹男�
 感觉现在虹女要靠虹en来拯救了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 8817#       发表于 2021-12-1 18:45
+
+虽然上次5ch觉得rrm也愿意借king来吸血。
+

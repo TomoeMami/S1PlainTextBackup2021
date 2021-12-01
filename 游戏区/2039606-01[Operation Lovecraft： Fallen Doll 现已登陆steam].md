@@ -1167,3 +1167,12 @@ closed beta开了，云鉴黄师们来冲一波了
 
 出来对线吧。我要宣布马头社出的那玩意儿比这个好。[@lzh1993](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=191463)  
 
+
+
+*****
+
+####  lancer48  
+##### 115#       发表于 2021-12-1 19:07
+
+算了我是傻逼，35刀就35刀吧，这进去就是bug说好的24小时内呢上补丁也见不到东西，今天上去一看莫名其妙的给我后宫模式封了24小时，本身就玩不了的东西。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不gacha不会做游戏（虽说是免费gacha），衣服靠别的玩家给你点赞的代币买，后宫模式有体力限制（理智），还有日常比如某角色gc几次，送点抽卡代币。感觉纯粹是为了反盗版才弄成线上模式
+

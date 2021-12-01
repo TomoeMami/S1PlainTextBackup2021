@@ -13849,3 +13849,20 @@ https://www.businessinsider.com/omicron-the-us-probably-has-2000-cases-already-c
 
 都不知那些人过的哪里的11月
 
+
+
+*****
+
+####  Niceday  
+##### 1247#       发表于 2021-12-1 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772191&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-1 16:43</a>
+说你是打着科学的幌子，行政治目的之实你还不承认
+
+WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...</blockquote>
+我看你也别来疫情楼，去治治被迫害妄想症吧。
+
+我不过是在试图找看看有没有能够补偿病毒发现者的办法，也许我的办法确实是非常天真或者干脆就不切实际，这都是可以讨论的。  但是某些人，口上说反对污名化，实际却除了给别人的方案说着诛心之论什么都不干。 那就有多远滚多远。
+
+再重复一遍：  光看你反对了，你支持什么？  能不能说一个可以更加鼓励各国主动发现病毒的方案？  让我看看你有什么高见可以解决问题？
+

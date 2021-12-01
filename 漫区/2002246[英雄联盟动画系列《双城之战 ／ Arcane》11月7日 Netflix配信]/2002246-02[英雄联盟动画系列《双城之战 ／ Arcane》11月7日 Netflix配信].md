@@ -14736,3 +14736,18 @@ b站拳头游戏音乐发了双城的原声配乐
 
 4个多小时的管弦乐
 
+
+
+*****
+
+####  Siran_China  
+##### 2859#       发表于 2021-12-1 18:53
+
+几个小细节：
+
+1. 分三个星期放送，每次放送三集是因为这剧被分为了三幕，ACT1、ACT2、ACT3。其实很像一场戏剧。
+
+2. 录音是柏林交响乐团，不是柏林爱乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评论区已经有认错的人了...
+
+3. 强烈推荐ACT2开头一首，我终于找到心心念念的海克斯飞门启动音乐了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

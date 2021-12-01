@@ -14916,3 +14916,15 @@ ksks可以留着跟妮善堇下次凑吃瘪组
 
 按照疫情前的经验在超话写了福冈和名古屋的一些土产和美食推荐，老实说那些有名的手信随便东京手信店都能买到，而且现在基本都可以网购（除非像生八桥这种），特别是我觉得日本那堆堆点心吃起来都一个味，真不如吃现地………………
 
+
+
+*****
+
+####  名津流  
+##### 1336#       发表于 2021-12-1 18:54
+
+秋叶原2号机已经开始了
+今天给鲤鱼姐整个拔刺game吧<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

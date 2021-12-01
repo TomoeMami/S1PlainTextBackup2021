@@ -6118,3 +6118,22 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 
 <img src="https://img.saraba1st.com/forum/202112/01/175414ml34lua39e3j9iii.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 84550#       发表于 2021-12-1 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772750&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-1 17:25</a>
+
+不知道姆莉安有没有实装的机会，毕竟算是仅有的让杀狐动感情的角色。2.6里杀狐好像说过收集了一些有皮毛的 ...</blockquote>
+毫无机会，毕竟形象都是借的<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 84551#       发表于 2021-12-1 19:00
+
+这食人花（？）装个重机枪是什么朋克造型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
