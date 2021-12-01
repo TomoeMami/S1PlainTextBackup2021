@@ -6193,3 +6193,26 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 妲乙当年情人是黄帝，为复活他而接受 ...</blockquote>
 这，坏女人一转恋爱脑+姜子牙缝晴明某些人怕是要喷爆了
 
+
+
+*****
+
+####  里村紅葉  
+##### 84557#       发表于 2021-12-1 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53775121&amp;ptid=1085254" target="_blank">シャル 发表于 2021-12-1 20:21</a>
+
+枪械爱好者的完美进化形态吧
+
+装更多枪更猛的火力</blockquote>
+大概是豌豆射手被盖塔线照过了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 84558#       发表于 2021-12-1 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53775241&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-1 20:28</a>
+这，坏女人一转恋爱脑+姜子牙缝晴明某些人怕是要喷爆了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正八奇，随便云的
+
