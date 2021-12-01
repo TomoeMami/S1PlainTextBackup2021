@@ -14233,3 +14233,268 @@ no evidence从专业人员嘴巴里面蹦出来是是不知道的意思
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  國立中央大學  
+##### 1280#       发表于 2021-12-2 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773886&amp;ptid=2039422" target="_blank"> Niceday 发表于 2021-12-1 18:59</a> 引用:汽车屁 发表于 2021-12-1 16:43 说你是打着科学的幌子，行政治目的之实你还不承认  WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ... 我看你也别来疫情楼，去治治被迫害妄想症吧。  我不过是在试图找看看有没有能够补偿病毒发现者的办法，也许我的办法确实是非常天真或者干脆就不切实际，这都是可以讨论的。  但是某些人，口上说反对污名化，实际却除了给别人的方案说着诛心之论什 </blockquote>
+我就单刀直入地问了，你注册这个号的时候在想什么？来自: iPhone客户端
+
+*****
+
+####  wszweill  
+##### 1281#       发表于 2021-12-2 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777550&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-1 11:26</a>
+
+疫苗本来就会随着时间减弱,说的是没有证据而不是说没有减弱</blockquote>
+按南非的组织力度，实验做完了黄花菜都凉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 1282#       发表于 2021-12-2 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778028&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-2 02:30</a>
+
+按南非的组织力度，实验做完了黄花菜都凉了 比如前阵子cns上证明口罩降低新冠的论文，科学研究有 ...</blockquote>
+我觉得禁航是不科学的，两周的时间足够测出疫苗对抗体的防护程度了，盲目禁航其实是歧视性的措施。
+
+再说了，禁航其实对减慢传播没什么作用，只要有局域传播，肯定就能传播开的
+
+*****
+
+####  riczxc  
+##### 1283#         楼主| 发表于 2021-12-2 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777773&amp;ptid=2039422" target="_blank">Redis 发表于 2021-12-2 01:11</a>
+
+no evidence从专业人员嘴巴里面蹦出来是是不知道的意思
+
+当然媒体怎么理解那是媒体的事情了 ...</blockquote>
+专业人士就不搞政治？no evidence的用法是，放在你希望否定的东西前面，造成一种否定的感觉，同时也可以逃避责任。
+
+疫情开始这么久，这么说话的还少？
+
+https://twitter.com/who/status/1217043229427761152?lang=en
+
+https://time.com/5794729/coronavirus-face-masks/
+
+https://www.nbcnews.com/health/health-news/coronavirus-airborne-here-s-what-we-know-n1216726
+
+*****
+
+####  朋友  
+##### 1284#       发表于 2021-12-2 03:24
+
+ 本帖最后由 朋友 于 2021-12-2 03:35 编辑 
+<blockquote>lazyboy 发表于 2021-12-1 20:57
+疫情也才不到两年，连病毒的后遗症都缺少长期追踪研究。mrna 技术的安全性怎么就不需要确认了？
+
+—— 来 ...</blockquote>
+我说的是对这些打了的国家没有再来一次临床的意义，同一种病毒，同一个技术平台，1针2针加强针，打都打了，不安全还能怎么样？你再跑一次临床能证明什么安全性问题？
+
+*****
+
+####  riczxc  
+##### 1285#         楼主| 发表于 2021-12-2 03:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778077&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-2 03:00</a>
+
+我觉得禁航是不科学的，两周的时间足够测出疫苗对抗体的防护程度了，盲目禁航其实是歧视性的措施。
+
+再说 ...</blockquote>
+两周能进个200*14人了。再传个几代就好笑了。
+
+不禁，就要搞集中隔离。能搞的其实不多。
+
+没事为什么要旅游？商务用网络不就好了。
+
+*****
+
+####  Redis  
+##### 1286#       发表于 2021-12-2 03:32
+
+cdc终于报告了米国第一例了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 1287#       发表于 2021-12-2 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778117&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-2 03:24</a>
+
+专业人士就不搞政治？no evidence的用法是，放在你希望否定的东西前面，造成一种否定的感觉，同时也可以 ...</blockquote>
+搞不搞有什么区别么
+
+他们说的又没有错<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+更别说这些人说的东西传到最后到底是啥意思鬼知道
+
+*****
+
+####  滋啦球  
+##### 1288#       发表于 2021-12-2 03:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">所以目前新变种的战斗力如何？重症率和死亡率以及症状有大致的结论嘛？
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Redis  
+##### 1289#       发表于 2021-12-2 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778134&amp;ptid=2039422" target="_blank">滋啦球 发表于 2021-12-2 03:35</a>
+
+所以目前新变种的战斗力如何？重症率和死亡率以及症状有大致的结论嘛？
+
+—— 来自 OnePlus KB2000, ...</blockquote>
+薛定谔的结论
+
+最坏的情况就是传播力远强于delta，致病力不变
+
+我觉得股市还可以抖三抖
+
+*****
+
+####  Redis  
+##### 1290#       发表于 2021-12-2 03:47
+
+<blockquote>For two of the patients who had been fully vaccinated with mRNA vaccines within six months, their symptoms were very mild, Prof. Yuen said. He added that their antibody levels in blood samples went up 10 times within a few days of their infection being found</blockquote>
+
+来自香港的两个病例的进程
+
+
+
+*****
+
+####  烦死了  
+##### 1291#       发表于 2021-12-2 03:50
+
+美帝看别人爆的差不多了 姗姗来迟宣布
+本土“发现”第一例 在加州<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[https://www.cnn.com/2021/12/01/h ... med-case/index.html](https://www.cnn.com/2021/12/01/health/us-omicron-variant-confirmed-case/index.html)
+
+*****
+
+####  绿茶与猫  
+##### 1292#       发表于 2021-12-2 03:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769223&amp;ptid=2039422" target="_blank">peculiar 发表于 2021-12-1 12:44</a>
+也有道理，不过换我的话也许会加空格：洗 脑</blockquote>
+其实加粗就行了
+洗<strong>脑</strong>，洗脑
+
+*****
+
+####  riczxc  
+##### 1293#         楼主| 发表于 2021-12-2 03:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778129&amp;ptid=2039422" target="_blank">Redis 发表于 2021-12-2 03:33</a>
+
+搞不搞有什么区别么
+
+他们说的又没有错</blockquote>
+他们说得当然没有错了。但是显然怎么用真话来误导别人才是搞政治得真谛吧。他们这么样在公开场合说话，明显带着误导别人得目的（例如Fauci就承认了不让戴口罩是为了留着口罩给医护），说是说谎不过分。
+
+没有证据空气传播
+
+vs
+
+暂时没有证据空气传播，但是考虑其他冠状病毒得情况，有可能有空气传播
+
+没有证据证明口罩有用
+
+vs
+
+暂时没有证据证明口罩有用，但是考虑口罩理论上能阻止病毒得传播，还是要戴
+
+*****
+
+####  wszweill  
+##### 1294#       发表于 2021-12-2 04:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778077&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-1 14:00</a>
+
+我觉得禁航是不科学的，两周的时间足够测出疫苗对抗体的防护程度了，盲目禁航其实是歧视性的措施。
+
+再说 ...</blockquote>
+从头做实验，真两周顶多做个体外滴度吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+我的意思是如果两周之后结论是疫苗确实不行，那结合拉跨的隔离措施，该扩散也就扩散了，行政管控先于科学结论很正常，但是结合国外目前大概率已经扩散的现状，那管控本身作为政治表演意义更大。
+
+*****
+
+####  riczxc  
+##### 1295#         楼主| 发表于 2021-12-2 04:29
+
+ 本帖最后由 riczxc 于 2021-12-2 04:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778182&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-2 04:17</a>
+
+从头做实验，真两周顶多做个体外滴度吧 
+
+我的意思是如果两周之后结论是疫苗确实不行，那结合拉跨 ...</blockquote>
+
+一架飞机能进60个病人，一周能有很多种子了。
+
+*****
+
+####  wszweill  
+##### 1296#       发表于 2021-12-2 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778192&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 15:29</a>
+
+一架飞机能进60个病人，一周能有很多种子了。</blockquote>
+但是召集病人，安排住宿等行政过程-签订协议-运到有研究能力的发达国家-搜集病毒-培养病毒-做实验。两周能把病人运过来就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 1297#       发表于 2021-12-2 04:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778120&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-2 03:27</a>
+
+两周能进个200*14人了。再传个几代就好笑了。</blockquote>
+本土有病例的情况下，你觉得传2800个人需要几天？
+
+*****
+
+####  ak123  
+##### 1298#       发表于 2021-12-2 04:47
+
+ 本帖最后由 ak123 于 2021-12-2 04:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778120&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-2 03:27</a>
+
+两周能进个200*14人了。再传个几代就好笑了。</blockquote>
+
+还200x14？你看看越南面对印度株怎么做到一个月死一万多人的、他们不过是被公知忽悠了而已，防御能力怎么也比米国之流好出几条街尚且如此，其他的吗
+
+*****
+
+####  riczxc  
+##### 1299#         楼主| 发表于 2021-12-2 04:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778213&amp;ptid=2039422" target="_blank">ak123 发表于 2021-12-2 04:47</a>
+
+还200x14？你看看越南面对印度株怎么做到一个月死一万多人的、他们不过是被公知忽悠了而已，防御能力怎么 ...</blockquote>
+越南不是不想防主动共存，是真的防不住被动共存的。
+
+*****
+
+####  riczxc  
+##### 1300#         楼主| 发表于 2021-12-2 04:57
+
+ 本帖最后由 riczxc 于 2021-12-2 05:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778209&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-2 04:43</a>
+
+本土有病例的情况下，你觉得传2800个人需要几天？</blockquote>
+
+如果只有100个以下的病人，那到2800人还是需要5个周期的，也就是半个月。抓紧点还是能省掉一半工作。总比不做好。
+
+考虑之前病例全球的病例可能不多（拍老师说，观察进化树，暂时的观察是病毒分化出来还没多久）。
+
