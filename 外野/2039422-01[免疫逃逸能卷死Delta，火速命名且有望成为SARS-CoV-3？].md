@@ -14147,3 +14147,26 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 欧米克隆病毒大多数都是轻症， 也没有证据证明疫苗效力会减弱</blockquote>
 话说太满说太早基本都会被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 1273#       发表于 2021-12-2 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777391&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-2 00:04</a>
+
+话说太满说太早基本都会被打脸，起码疫苗效力没减弱我是不信的，不说目前爆出来的这么多接种后突 ...</blockquote>
+疫苗本来就会随着时间减弱,说的是没有证据而不是说没有减弱
+
+*****
+
+####  最好不说  
+##### 1274#       发表于 2021-12-2 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777550&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-2 00:26</a>
+
+疫苗本来就会随着时间减弱,说的是没有证据而不是说没有减弱</blockquote>
+玩这种文字游戏有意思吗？ <blockquote>there's no evidence to suggest vaccines may be less effective against the variant</blockquote>
+不就是暗示现有疫苗在omicron面前依旧有效，反正也不用急，最迟到明年一月各项数据都能出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

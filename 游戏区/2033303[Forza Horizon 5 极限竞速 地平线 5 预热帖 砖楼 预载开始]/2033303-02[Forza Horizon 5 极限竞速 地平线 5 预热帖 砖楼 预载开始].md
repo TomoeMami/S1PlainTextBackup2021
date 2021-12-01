@@ -90,3 +90,15 @@
 
 话说开场能重跑一遍吗？
 
+
+
+*****
+
+####  citrus  
+##### 1509#       发表于 2021-12-2 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53764815&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-12-1 00:52</a>
+
+想问一下谭友手离的手柄键位安排，最近打算潜下心来练A级，发现一堆的手离车，头痛。我手动用的是默 ...</blockquote>
+我是LB离合A手刹B升X降。以前打FH4初学手离试过两种常见键位，感觉LB离合比A离合更容易习惯。尤其过急弯时刹车并降2-3档，A离合我很容易按错；而且LB手刹漂移的手感也不好
+

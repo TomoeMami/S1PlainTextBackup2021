@@ -946,3 +946,22 @@ There will be normal LoL stream at this rate
 
 可以感恩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 13595#       发表于 2021-12-2 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53369568&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-11-1 20:32</a>
+
+5次？高看绫总了，就现在这鬼样不会超过5次的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上个月怎么说来着，绫总能不能打我脸啊
+
+*****
+
+####  夏小筱ss  
+##### 13596#       发表于 2021-12-2 00:37
+
+还有她们的圣诞装，绫总不可能不出来吧，预定4次直播
+
