@@ -6077,3 +6077,16 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3692#       发表于 2021-12-1 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768761&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-1 00:06</a>
+来点换头小作文，鹅呢！
+
+2022年，holo本社七期生出道了。</blockquote>
+换头前是猫雷，换头后是文静，折磨我两遍我不扣你就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

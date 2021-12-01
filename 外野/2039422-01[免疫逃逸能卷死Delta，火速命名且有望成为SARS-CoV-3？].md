@@ -13115,3 +13115,42 @@ I have always considered myself as a scientist. 但新冠起源这个问题，�
 
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Nanachi  
+##### 1185#       发表于 2021-12-1 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769170&amp;ptid=2039422" target="_blank">ひびき 发表于 2021-12-1 12:39</a>
+
+你用原版的脑字接在洗字后面打出来试试？打得出来吗你？</blockquote>
+洗‏﻿﻿​‌‎‎​‌‎‎脑
+
+可以试试用这个：[https://yuanfux.github.io/zero-width-web/](https://yuanfux.github.io/zero-width-web/)
+
+*****
+
+####  CloneCommando  
+##### 1186#       发表于 2021-12-1 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53768769&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 12:06</a>
+
+啥玩意啊，这不就是说不应该让南非来背锅么？  到你这成了给欧美命名权？  合着新变种是欧美发现的咯？
+
+ ...</blockquote>
+妈了逼的**的傻逼玩意 个2020-2-7注册niceday的司马玩意跟这说你妈了逼呢 
+
+*****
+
+####  汽车屁  
+##### 1187#       发表于 2021-12-1 12:56
+
+ 本帖最后由 汽车屁 于 2021-12-1 13:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53769226&amp;ptid=2039422" target="_blank">lifengzhi321 发表于 2021-12-1 12:45</a>
+
+火葬场也不是按100%规模设计的，比如设计时是按每年人口的1%死亡率来设计的规模，现在突然变成了2%或更高 ...</blockquote>
+所以，出现火葬场挤兑并不容易，因为致死率低。这就是他们试图用火葬场挤兑来掩盖医疗挤兑的原因，他们把感染去医院替换成了直接去火葬场。把感染的100人，变成了100×致死率，所以火葬场挤兑一旦出现，记得乘以98。
+
+同理，救护车挤兑一旦出现，记得乘以20，一次救护车挤兑，相当于20次医疗挤兑，因为100个确诊的人本应该全部去医院，但是只有5个人叫了救护车，其他19倍的人被掩盖了
+
