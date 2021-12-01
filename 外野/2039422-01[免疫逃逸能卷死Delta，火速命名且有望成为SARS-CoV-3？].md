@@ -12322,3 +12322,78 @@ South Africa reports 4,373 new coronavirus cases, an increase of 404% from last 
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 有能正常运作的供应链，一下就赚回来了。
 
+
+
+*****
+
+####  thisism  
+##### 1122#       发表于 2021-12-1 08:24
+
+逃逸就就是开了新市场，在新市场里头继续卷
+
+*****
+
+####  Niceday  
+##### 1123#       发表于 2021-12-1 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766037&amp;ptid=2039422" target="_blank">洛拉斯 发表于 2021-12-1 08:17</a>
+还搁这南非爆发论
+
+你美几千万患者无一突变出现，真是自由民主感召啊</blockquote>
+WHO 官网没有墙吧？  上面至少有3个变种是在美国第一次发现的。
+
+虽然O有很大概率不是南非起源的，但是你这尬黑太没水平了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 朋友| + 1|笑死|
+| masterffzhou|-1|理客中|
+
+查看全部评分
+
+*****
+
+####  洛拉斯  
+##### 1124#       发表于 2021-12-1 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766112&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 08:30</a>
+WHO 官网没有墙吧？  上面至少有3个变种是在美国第一次发现的。
+
+虽然O有很大概率不是南非起源的，但是你 ...</blockquote>
+是是是，美国病例都是我尬黑出来的
+
+至于某楼主信誓旦旦的相信武汉爆发论，那肯定是理中客了
+
+*****
+
+####  Niceday  
+##### 1125#       发表于 2021-12-1 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766157&amp;ptid=2039422" target="_blank">洛拉斯 发表于 2021-12-1 08:36</a>
+是是是，美国病例都是我尬黑出来的
+
+至于某楼主信誓旦旦的相信武汉爆发论，那肯定是理中客了 ...</blockquote>
+你美几千万患者无一突变出现  这是谁说的？
+
+说错了就认，以为靠阴阳怪气的就能占理？
+
+另外说WHO这个变种命名策略真的烂，就应该把命名权给第一个发现的国家，这样才能激发各国检测的动力。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanrendu  
+##### 1126#       发表于 2021-12-1 08:42
+
+ 本帖最后由 nanrendu 于 2021-12-1 08:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765702&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 06:01</a>
+总要埋的吧？烧也好，埋也好，都会挤兑的。问问从业人员就知道的事情，哪里瞒得住。</blockquote>
+你是不是不知道美国这波死的很多都是穷人，连骨灰都没有人领，殡仪馆老板拿骨灰放一屋子发视频表示没地方放了，你还在谈挤兑的问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

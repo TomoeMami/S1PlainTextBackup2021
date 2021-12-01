@@ -5826,3 +5826,24 @@ NMD两单沉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">再过10几小时会无缝接新活动或者主线么......
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84526#       发表于 2021-12-1 08:35
+
+<blockquote>引用第84524楼森兰丸于2021-12-01 06:01发表的  :
+
+再过10几小时会无缝接新活动或者主线么......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会无缝圣诞复刻
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  areklose  
+##### 84527#       发表于 2021-12-1 08:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">很久没玩FGO了。这次换了安卓平板来玩。点技能快了好多了。是不是最近更新的功能
+

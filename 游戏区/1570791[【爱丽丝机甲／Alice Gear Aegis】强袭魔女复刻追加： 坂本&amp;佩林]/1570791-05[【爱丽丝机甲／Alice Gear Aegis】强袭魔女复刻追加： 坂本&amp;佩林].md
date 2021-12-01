@@ -4109,3 +4109,14 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 好久没体验到世界对麻油喜的恶意了，然而过了这么多年我只想笑都感动不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hypnossz86  
+##### 6310#       发表于 2021-12-1 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实是只想笑
+联系到你游活动都是搞怪剧情，只给我一种荒诞的感觉...
+现在就等着看看最后是不是能够再来一次欺骗世界了...
+
