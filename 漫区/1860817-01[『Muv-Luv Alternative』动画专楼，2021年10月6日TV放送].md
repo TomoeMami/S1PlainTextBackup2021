@@ -21203,3 +21203,21 @@ Alternative最近这两话看得想睡觉……是制作组拉了还是这段就
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  102mph  
+##### 1496#       发表于 2021-12-1 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770278&amp;ptid=1860817" target="_blank">oskneo 发表于 2021-12-1 14:11</a>
+
+宇宙级别的script编写是什么意思
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+演出的复杂程度 
+
+不只是战斗的效果或者战斗的变化程度 而是日常中各类演出变化的次数（比如立绘差分 位置变化等等）
+
+恐怕是一般游戏的几倍还要多
+
