@@ -24121,3 +24121,17 @@ la+满满的gura x shion即视感hhh  holobirb喜+2
 
 2021-12-1 14:45 上传
 
+
+
+*****
+
+####  被子十三  
+##### 1494#       发表于 2021-12-1 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765581&amp;ptid=1989758" target="_blank">空集 发表于 2021-12-1 04:04</a>
+
+本来也没啥感觉，突然感觉没去好亏，感觉可能是这辈子最接近有机会去的线下活动了。。虽然我那个周末有事 ...</blockquote>
+Ina生日上时代广场那一天我刚好在纽约……甚至就在曼哈顿见朋友，然后把整件事情忘了
+
+不知道这么说会不会让你好受点<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

@@ -5925,3 +5925,17 @@ NMD两单沉了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  闽明  
+##### 84535#       发表于 2021-12-1 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53771381&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-1 15:37</a>
+
+五星都送过了还想着送四星？
+
+去年也没送啊</blockquote>
+记忆混乱了，今年也送过五星了？<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
+
