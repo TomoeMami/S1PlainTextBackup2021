@@ -16916,3 +16916,62 @@ en虹女已经是日常fxxk shxt bixxh三件套互相问候了，看好en虹男�
 
 虹en现在比大部分jp虹女还差
 
+
+
+*****
+
+####  我不是很好  
+##### 8820#       发表于 2021-12-1 19:23
+
+“未来可期”
+
+
+
+*****
+
+####  _Ra1nMaker  
+##### 8821#       发表于 2021-12-1 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头小希  
+##### 8822#       发表于 2021-12-1 19:25
+
+毕竟虹en海外没什么基本盘，属于刚起步，而且鲨皇对英文圈蓝海的垄断可比当年爱皇可怕多了
+
+*****
+
+####  free  
+##### 8823#       发表于 2021-12-1 19:25
+
+老爱五周年，4号有超重大发表，会是什么呢
+
+<img src="https://img.saraba1st.com/forum/202112/01/192425j2lfpw727w722m44.jpg" referrerpolicy="no-referrer">
+
+<strong>超重大.jpg</strong> (527.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 19:24 上传
+
+省一楼，大葵还愿意陪这种烂货圆脸玩真不容易，这种烂货怎么还有脸和大葵一起唱，烂货！
+[https://www.youtube.com/watch?v=mLSRdi2o-EI](https://www.youtube.com/watch?v=mLSRdi2o-EI)
+
+*****
+
+####  星街こうせい  
+##### 8824#       发表于 2021-12-1 19:34
+
+我自己看的虹EN两条龙一个唱歌特别好听一个打枪特别牛逼，你虹不会推而已。
+
+*****
+
+####  渡鸦骑士  
+##### 8825#       发表于 2021-12-1 19:37
+
+虹en关键在于0基础也意味着0负担啊。
+
+你虹现在问题不就在于负担重嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
