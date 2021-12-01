@@ -14690,3 +14690,15 @@ http://b23.tv/30Y9TBw</blockquote>
 
 那种明明角色不是同，却非要组腐cp的，我实在无法理解。按理说会组cp，是出于对角色的喜爱吧？可既然喜爱这角色，那起码应该尊重这个角色的设定才对……<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Siran_China  
+##### 2854#       发表于 2021-12-1 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763996&amp;ptid=2002246" target="_blank">whyy 发表于 2021-11-30 23:35</a>
+
+我个人只讨厌直女卖姬/直男卖腐，像设定上就是gay的男男女女，真无所谓，shameless美剧里俩男的舌吻我都 ...</blockquote>
+你这属于是理想主义了，这年头还有几个尊重原设的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把磕cp的人一排除很难剩下多少人
+

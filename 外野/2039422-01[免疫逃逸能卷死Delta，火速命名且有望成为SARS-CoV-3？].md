@@ -12158,3 +12158,73 @@ BioNTech CEO says vaccine likely to protect against severe COVID from Omicr ...<
 
 如果要讨论阴谋论，不妨另开帖子。
 
+
+
+*****
+
+####  淡蓝色幽灵  
+##### 1109#       发表于 2021-12-1 07:46
+
+<blockquote>riczxc 发表于 2021-12-1 01:25
+电子烟肺炎当然很可疑，但不是没有抓住痛脚么。
+
+要我说，论文里的血清抗体中和测试明明测到了2019年12月 ...</blockquote>
+因为就新冠病毒自疫情以来的变异过程来看，其传染能力R0值是逐渐提高的，而且这种变异是随着传播规模扩大逐渐提高概率的。
+
+那么反推回去，在武汉疫情出现之前存在的毒株必然是R0值不太高——至少必然低于阿尔法毒株。
+
+初始R0值低，传播速度慢，因此积累变异速度也慢，在这种情况下不发生医疗挤兑也是可能的。
+
+直到被传播到武汉之后积累变异突破了某个阈值。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| riczxc| + 1|这也是一种假说，但是alpha是英国变种.|
+
+查看全部评分
+
+*****
+
+####  pushare  
+##### 1110#       发表于 2021-12-1 07:50
+
+South Africa reports 4,373 new coronavirus cases, an increase of 404% from last week
+
+
+
+*****
+
+####  riczxc  
+##### 1111#         楼主| 发表于 2021-12-1 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765896&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-1 07:50</a>
+
+South Africa reports 4,373 new coronavirus cases, an increase of 404% from last week</blockquote>
+感觉又回到疫情刚开始大家什么防护都没有的速度了。
+
+*****
+
+####  深渊魔王  
+##### 1112#       发表于 2021-12-1 07:56
+
+<blockquote>淡蓝色幽灵 发表于 2021-12-1 07:46
+因为就新冠病毒自疫情以来的变异过程来看，其传染能力R0值是逐渐提高的，而且这种变异是随着传播规模扩大 ...</blockquote>
+也有可能是先前流行的地区人口密度没那么大吧。天朝的中心城市情况太特殊了。
+
+*****
+
+####  LilyWhite  
+##### 1113#       发表于 2021-12-1 08:00
+
+<blockquote>riczxc 发表于 2021-12-1 06:01
+总要埋的吧？烧也好，埋也好，都会挤兑的。问问从业人员就知道的事情，哪里瞒得住。
+
+</blockquote>
+保险付就是虚标价，你自己掏那就是实打实，不服别买保险啊
+
