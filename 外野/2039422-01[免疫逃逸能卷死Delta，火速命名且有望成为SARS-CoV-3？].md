@@ -14009,3 +14009,24 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好奇问下,如果r0 30 + 死亡率翻10倍,灭亡人类需要多久?
 
+
+
+*****
+
+####  亚尔迪8424  
+##### 1261#       发表于 2021-12-1 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776165&amp;ptid=2039422" target="_blank">塔奇克马 发表于 2021-12-1 21:40</a>
+
+好奇问下,如果r0 30 + 死亡率翻10倍,灭亡人类需要多久?</blockquote>
+中国将是救世主
+
+*****
+
+####  都谷捻柏  
+##### 1262#       发表于 2021-12-1 22:02
+
+南非这波过后，会不会变得越来越没有国家愿意主动上报了，反正都是摆烂就完事。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

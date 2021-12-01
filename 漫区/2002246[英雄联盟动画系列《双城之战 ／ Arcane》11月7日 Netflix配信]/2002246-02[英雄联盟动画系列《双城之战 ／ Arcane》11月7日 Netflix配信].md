@@ -14751,3 +14751,26 @@ b站拳头游戏音乐发了双城的原声配乐
 
 3. 强烈推荐ACT2开头一首，我终于找到心心念念的海克斯飞门启动音乐了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  飞升之后  
+##### 2860#       发表于 2021-12-1 21:54
+
+希尔科会季中登陆云顶，还不是作为英雄，估计是作为海克斯科技的路线选择吧
+
+*****
+
+####  ooohaoguai2  
+##### 2861#       发表于 2021-12-1 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773381&amp;ptid=2002246" target="_blank">hcf220 发表于 2021-12-1 18:21</a>
+
+话说金克斯这种坑爹坑姐坑队友，自己不知道自己在干嘛疯狂祸祸人的角色真的有个人魅力吗？
+
+你说战力强她也 ...</blockquote>
+小丑在最糟糕的一天也没做成任何事，全都是失败，魅力不是来源于强大
+
+魅力的源头应当是角色内核的自洽
+
