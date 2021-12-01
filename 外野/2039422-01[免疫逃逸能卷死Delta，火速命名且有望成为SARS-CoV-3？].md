@@ -13833,3 +13833,19 @@ cdc不认账，不过他们的专家也说至少美国国内有两千例以上
 
 https://www.businessinsider.com/omicron-the-us-probably-has-2000-cases-already-covid-expert-2021-11
 
+
+
+*****
+
+####  螺纹  
+##### 1246#       发表于 2021-12-1 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773081&amp;ptid=2039422" target="_blank">ひびき 发表于 2021-12-1 17:54</a>
+
+我本来不想说美国起源的
+
+然而今天忽然一波热搜篡改历史记忆跟福奇打配合把我恶心坏了，**霉里奸！我呸[f:1 ...</blockquote>
+巨恶心，我天天看水区都没见那会11月有人说，基本都12月底到1月才开始逐渐变多的，尤其深圳发现有输入那会
+
+都不知那些人过的哪里的11月
+
