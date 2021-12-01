@@ -12397,3 +12397,89 @@ WHO 官网没有墙吧？  上面至少有3个变种是在美国第一次发�
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  洛拉斯  
+##### 1127#       发表于 2021-12-1 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766202&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 08:41</a>
+你美几千万患者无一突变出现  这是谁说的？
+
+说错了就认，以为靠阴阳怪气的就能占理？</blockquote>
+反正这一波南非上报以后西方集体拉黑的操作太熟练了
+
+你要是不觉得西方已经提前知道变种的信息那你继续理中客好了
+
+我继续阴阳怪气整个西方，你不喜欢看可以拉黑我
+
+*****
+
+####  Niceday  
+##### 1128#       发表于 2021-12-1 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766231&amp;ptid=2039422" target="_blank">洛拉斯 发表于 2021-12-1 08:46</a>
+反正这一波南非上报以后西方集体拉黑的操作太熟练了
+
+你要是不觉得西方已经提前知道变种的信息那你继续理 ...</blockquote>
+我看不惯没有脑子无视事实的尬黑，不管你阴阳怪气谁都会喷你。
+
+你忍不了可以拉黑。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 1129#       发表于 2021-12-1 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53763643&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-30 23:05</a>
+
+我不觉得这是洗脳。考虑新冠病毒无论那个国家最终都会医疗挤兑的情况，的确武汉爆发早，所以嫌疑大。</blockquote>
+你这么积极搬运外网新闻相信你也知道他们所期望什么样的舆论导向以及他们怎么行动的，西方阵营的抹黑**并不仅仅停留在溯源阶段，而是想通过溯源这一问题引出后续的所谓瞒报问题【各项证据表明不存在瞒报这一说】，再把世界陷入大危机的责任全部推给中国，1年半前国外的统一口径之一就是等疫情过去了川大总统带头向中国讨万亿赔款
+
+*****
+
+####  洛拉斯  
+##### 1130#       发表于 2021-12-1 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766262&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 08:50</a>
+我看不惯没有脑子无视事实的尬黑，不管你阴阳怪气谁都会喷你。
+
+你忍不了可以拉黑。 ...</blockquote>
+那你肯定觉得楼主说的是事实吧，毕竟你没喷楼主
+
+*****
+
+####  inconolast  
+##### 1131#       发表于 2021-12-1 08:53
+
+<blockquote>Niceday 发表于 2021-12-1 08:41
+你美几千万患者无一突变出现  这是谁说的？
+
+说错了就认，以为靠阴阳怪气的就能占理？</blockquote>
+烂活儿
+
+以西方这个拉跨情况，怕是一个礼拜他就能把整个中国14亿人每人起一种病毒名而国内好不容易找到一种结果微博投了半天票得票最高的是割割
+
+*****
+
+####  Nanachi  
+##### 1132#       发表于 2021-12-1 08:57
+
+楼主凌晨1点4点开始疯狂回贴了，下次记得倒个时差再带节奏吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JAD-AL50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Niceday  
+##### 1133#       发表于 2021-12-1 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766288&amp;ptid=2039422" target="_blank">inconolast 发表于 2021-12-1 08:53</a>
+烂活儿
+
+以西方这个拉跨情况，怕是一个礼拜他就能把整个中国14亿人每人起一种病毒名而国内好不容易找到一 ...</blockquote>
+喷了，我国要是能命名你觉得会是微博投票？
+
+WHO做个把关把恶意的名字去掉就是了，多大点事。  台风命名那么多年不一样很正常？
+

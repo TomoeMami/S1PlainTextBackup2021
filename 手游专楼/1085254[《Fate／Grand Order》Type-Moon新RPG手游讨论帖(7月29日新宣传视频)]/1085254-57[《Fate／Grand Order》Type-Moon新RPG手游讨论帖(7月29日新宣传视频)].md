@@ -5847,3 +5847,16 @@ NMD两单沉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">很久没玩FGO了。这次换了安卓平板来玩。点技能快了好多了。是不是最近更新的功能
 
+
+
+*****
+
+####  khxooo  
+##### 84528#       发表于 2021-12-1 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766149&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-1 08:35</a>
+会无缝圣诞复刻
+
+----发送自 STAGE1 App for Android.</blockquote>
+除非这次新圣诞跨年，又或者所谓的主线活动就是今年的圣诞，否则复刻塞不进去吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

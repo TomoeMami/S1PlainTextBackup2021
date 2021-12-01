@@ -5972,3 +5972,21 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  九门惠  
+##### 3684#       发表于 2021-12-1 08:47
+
+千鸟一强两弱两躺的时代已经结束，一超两弱两躺的时代已经到来<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 3685#       发表于 2021-12-1 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766243&amp;ptid=2013779" target="_blank">九门惠 发表于 2021-12-1 08:47</a>
+千鸟一强两弱两躺的时代已经结束，一超两弱两躺的时代已经到来</blockquote>
+两弱是谁我咋感觉艾白是弱其他三个都是躺
+
