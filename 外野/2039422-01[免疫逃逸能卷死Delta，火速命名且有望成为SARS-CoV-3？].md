@@ -13382,3 +13382,26 @@ pfizer说要三个月,主要瓶颈在fda批准
 — from OnePlus  ...</blockquote>
 楼主自己开始的
 
+
+
+*****
+
+####  Niceday  
+##### 1209#       发表于 2021-12-1 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53770635&amp;ptid=2039422" target="_blank">pagedown 发表于 2021-12-1 14:39</a>
+像阁下这么有科学素养的人，应该是欧美百十年来引领人类科技和人文之光的结果。出现像我这样在阁下口中成 ...</blockquote>
+好了好了知道你被欧美欺负得自暴自弃了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+而且从头到尾我都在说不应该让南非承受发现的代价，甚至提出了方案给南非命名权，我的方案的确不一定有效，但是你们喷我的，我看不出有任何不让南非承受的办法，全部是自暴自弃和发泄情绪。
+
+有些人能不能去看看nhc关于溯源的态度？  坚持科学溯源反对政治化是我国的国策，而且是唯一有可能外宣有效的办法。
+虽然目前来说属于吃力不讨好的状态，但是比起自暴自弃的企图放弃脑子企图跟人比洗 脑能力要靠谱一万倍。
+
+*****
+
+####  yario  
+##### 1210#       发表于 2021-12-1 15:20
+
+今天就有人在微博篡改时间线了 上了热搜，和美帝福太医配合的很好呀
+
