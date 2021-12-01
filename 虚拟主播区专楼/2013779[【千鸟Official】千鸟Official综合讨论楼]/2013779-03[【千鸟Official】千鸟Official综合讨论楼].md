@@ -6289,3 +6289,72 @@ syl这波最本质的要求是想要静盾吧，结果现在都没人提了，�
 
 该去A手直播间里刷“下一站：文静”了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  四叶的花  
+##### 3715#       发表于 2021-12-1 17:22
+
+哈人，a跌来了我第一个润<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3716#       发表于 2021-12-1 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772666&amp;ptid=2013779" target="_blank">pipeline 发表于 2021-12-1 17:18</a>
+文静的切片其实是不少的，只不过播放数大多徘徊在四位数。
+
+切片是能涨粉，但前提是得有新人来看你的这个切 ...</blockquote>
+a的大环境本来就反鸟，现在鸟的反a情绪也日益高涨了，你自己爱刷自己去刷，别到时候两边猎你的时候溅我一身血<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherrydove  
+##### 3717#       发表于 2021-12-1 17:34
+
+各个切片员都各自为战吧，没有几位一起组织起来整二创组的么
+
+*****
+
+####  我有一个朋友  
+##### 3718#       发表于 2021-12-1 17:35
+
+引流也不一定要引As啊，像花花通过瓶子引动画区我觉得就很聪明……
+
+*****
+
+####  rgauss  
+##### 3719#       发表于 2021-12-1 17:38
+
+哈人 我先白旗了
+
+*****
+
+####  灰色的狐狸  
+##### 3720#       发表于 2021-12-1 17:39
+
+她们五个甚至没怎么一起播过吧
+
+
+
+*****
+
+####  夜潇箫  
+##### 3721#       发表于 2021-12-1 17:41
+
+可以去引反a势力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+五个人还是一起播过几次都，像游戏，海龟汤推理什么的
+
+*****
+
+####  灰色的狐狸  
+##### 3722#       发表于 2021-12-1 17:45
+
+我印象也是这几个
+
+海龟汤效果很好
+
+倒是游戏会依旧是灾难
+

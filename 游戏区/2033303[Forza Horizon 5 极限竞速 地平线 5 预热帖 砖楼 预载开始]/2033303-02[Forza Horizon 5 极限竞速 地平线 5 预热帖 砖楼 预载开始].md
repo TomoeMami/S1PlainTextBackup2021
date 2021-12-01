@@ -46,3 +46,28 @@
 应该没有需 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">离合和档位拇指一个就搞定么，感觉不错
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1505#       发表于 2021-12-1 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765771&amp;ptid=2033303" target="_blank">天知道 发表于 2021-12-1 06:59</a>
+应该怎么拿车库宝物啊？看网上视频教程然后跑到地点就看到房子，无法触发；有人说图伦冒险要完成其中一项 ...</blockquote>
+地图提示你该找，也就是出现蓝紫色问号圈的时候再找
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天知道  
+##### 1506#       发表于 2021-12-1 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772905&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-12-1 17:38</a>
+
+地图提示你该找，也就是出现蓝紫色问号圈的时候再找
+
+—— 来自 OnePlus HD1900, Android 11上的 S1Next- ...</blockquote>
+好的，那再问下，能再重打图伦那关吗？
+

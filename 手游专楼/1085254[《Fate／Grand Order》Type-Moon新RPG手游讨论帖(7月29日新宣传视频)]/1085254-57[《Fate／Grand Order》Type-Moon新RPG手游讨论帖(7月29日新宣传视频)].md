@@ -6019,3 +6019,43 @@ BGO和日服双修，有时候会产生莫名混乱的记忆
 
 期间限定活动，可以的，怕不是真的是圣诞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84545#       发表于 2021-12-1 17:25
+
+ 本帖最后由 Jamaisvu 于 2021-12-1 17:28 编辑 
+
+不知道姆莉安有没有实装的机会，毕竟算是仅有的让杀狐动感情的角色。2.6里杀狐好像说过收集了一些有皮毛的巨兽当自己的尾巴，估计这章就要打它们了。话说看章节图标下面好像有个恐龙的形状，说不定这次会去侏罗纪白垩纪之类的时代战斗吧方舟：冠位指定
+
+正好做一些长毛的大蜥蜴当敌方单位，给恐龙的真实形象正名<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 84546#       发表于 2021-12-1 17:25
+
+辈先好看啊
+
+C09B5FAF-7FED-4EAB-819E-C06DDD99E744.jpeg
+(488.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/01/172528io2x2q5ztx2iq056.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 84547#       发表于 2021-12-1 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然可能要留梗
+
+但想一下除了2.1的雷帝和2.2跟苏特合体的芬里尔，最多再算个角神外剩下几个异闻带狐狸真能捞到什么大家伙么
+
+BOSSRUSH全是杂兵可说不过去啊
+
