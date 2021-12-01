@@ -17059,3 +17059,24 @@ EN虹女又不养独角兽<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就要说说lauren骂ホモ野郎被点踩的事了
 homo营业的家伙说ホモ野郎
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8834#       发表于 2021-12-2 00:18
+
+没什么，King也骂过
+
+接班King证据+1
+
+Syl，<blockquote>西園チグサ「今回のCRカップは絶対に出ません私、年末までマジで忙しいから」</blockquote>
+好！忙点好，最好都别去！
+
+*****
+
+####  Suny08  
+##### 8835#       发表于 2021-12-2 00:21
+
+原来smc 联动在12号，之前开会是在说这个，那我暂时再信一次
+
