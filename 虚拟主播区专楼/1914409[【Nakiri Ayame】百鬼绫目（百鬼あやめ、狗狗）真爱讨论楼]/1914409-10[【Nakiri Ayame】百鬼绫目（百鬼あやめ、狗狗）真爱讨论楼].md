@@ -781,3 +781,34 @@ pua比绫总好的，直播次数没绫总少
 
 真有那种人可以封个绫董（事长）了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cctvyt1  
+##### 13580#       发表于 2021-12-1 10:06
+
+ 本帖最后由 cctvyt1 于 2021-12-1 10:10 编辑 
+
+绫总赢在你杏目前唯一有爱播不播的神秘性
+
+只要她还没毕业 狐爸狼妈会照料一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+姨们是来掙錢的 学不来
+
+syl还以为清洁工能卷绫总 看来卷的是润姨
+
+*****
+
+####  nian1538  
+##### 13581#       发表于 2021-12-1 10:11
+
+可能绫总真的是家里不缺钱的计科高材生吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 13582#       发表于 2021-12-1 10:14
+
+绫总 12月播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

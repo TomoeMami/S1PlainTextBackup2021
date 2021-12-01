@@ -12608,3 +12608,104 @@ WHO做个把关把恶意的名字去掉就是了，多大点事。  台风命�
 
 南美都有了，你美还一例都没有，好神奇啊
 
+
+
+*****
+
+####  汽车屁  
+##### 1145#       发表于 2021-12-1 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765598&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 04:26</a>
+
+火葬场挤兑。</blockquote>
+如果致死率是100％，你说的火葬场挤兑才是正确的
+
+致死率是100％吗？
+
+致死率百分之一多，本来该有100个人去医院的，却只有一两个人去火葬场
+
+也就是说，如果你看到了一次火葬场挤兑，那么本就该出现98次医疗挤兑
+
+请问你看到了美国出现几次火葬场挤兑？请记得乘以98
+
+*****
+
+####  Niceday  
+##### 1146#       发表于 2021-12-1 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766980&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-1 09:52</a>
+想多了，又不是啥好事没人愿意认领第一个发现，类比一下的话第一个发现尸体的还嫌疑最大呢 ...</blockquote>
+所以起码给个命名权总比没有好
+
+*****
+
+####  smy20011  
+##### 1147#       发表于 2021-12-1 10:08
+
+能不能别老拿美股说话，今天下跌是因为美联储继续减少债券购买，而不是病毒
+
+*****
+
+####  洛拉斯  
+##### 1148#       发表于 2021-12-1 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766509&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 09:14</a>
+说话不占理就开始从屁股找补了？   那你还讨论啥呢，自己对着镜子骂不就完了。
+
+新冠的溯源我相信下面这 ...</blockquote>
+一口咬定首先出现在中国，请问证据呢？
+
+世卫组织来过武汉溯源，没去过美国，因为美国反对
+
+老老实实承认中国先发现很难吗
+
+*****
+
+####  nvis  
+##### 1149#       发表于 2021-12-1 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53766202&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-1 08:41</a>
+你美几千万患者无一突变出现  这是谁说的？
+
+说错了就认，以为靠阴阳怪气的就能占理？</blockquote>
+把命名权交给国家？按目前全球的舆论形态，你信不信绝大部分变种代号都故意用中国城市来命名？
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  汽车屁  
+##### 1150#       发表于 2021-12-1 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765613&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 04:42</a>
+
+救护车挤兑。
+
+如果说美国的穷人，反正没钱，不交费就好了，反正法律规定必须治。怕的是那些有一点财产的 ...</blockquote>
+类似于致死率
+
+被感染的100人中，有多少人会去叫救护车？
+
+假设100人确诊，有5个人会叫救护车，那么你每看见一次救护车挤兑，就请乘以20
+
+换句话说，你把本应提供的医疗服务，弱化成救护车服务和火葬场服务，我只能说，美国人是真的不值钱，美国人就是贱
+
+*****
+
+####  烦死了  
+##### 1151#       发表于 2021-12-1 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765918&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 07:55</a>
+
+感觉又回到疫情刚开始大家什么防护都没有的速度了。</blockquote>
+南非2针本来就只有25% 不到 啊
+
+*****
+
+####  creymorgan  
+##### 1152#       发表于 2021-12-1 10:25
+
+<blockquote>烦死了 发表于 2021-12-1 10:24
+南非2针本来就只有25% 不到 啊</blockquote>
+抗体检出率70%，估计有6成的南非人已经得过病。
+
