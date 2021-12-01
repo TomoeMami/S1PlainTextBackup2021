@@ -14107,3 +14107,17 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 据说新冠会损害神经系统是吧？我看这位症状挺严重的</blockquote>
 [https://www.bilibili.com/video/BV1eW411t7EZ](https://www.bilibili.com/video/BV1eW411t7EZ)
 
+
+
+*****
+
+####  流浪的使徒  
+##### 1270#       发表于 2021-12-1 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53774438&amp;ptid=2039422" target="_blank">cumbland 发表于 2021-12-1 19:37</a>
+
+鼓励？拜振华尽全力掩盖疫情，免得让人发现他连懂王都不如。西方各国有样学样，没有上报就是没有疫情。反 ...</blockquote>
+“因庙堂之上，朽木为官，殿陛之间，禽兽食禄；狼心狗行之辈，滚滚当道，奴颜婢膝之徒，纷纷秉政。以致社稷丘墟，苍生涂炭。”
+
+是不是很有既视感
+

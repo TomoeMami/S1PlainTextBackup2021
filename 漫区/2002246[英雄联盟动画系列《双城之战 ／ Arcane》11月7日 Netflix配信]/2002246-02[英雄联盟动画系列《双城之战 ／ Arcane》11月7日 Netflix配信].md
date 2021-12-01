@@ -14788,3 +14788,31 @@ b站拳头游戏音乐发了双城的原声配乐
 1. 分三个星期放送，每次放送三集是因为这剧被分为了三幕，ACT1、ACT2、ACT3。其实很像一场戏 ...</blockquote>
 好家伙，要真是柏林爱乐不得磕着头让拳头出ost一买买三份<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hcf220  
+##### 2863#       发表于 2021-12-1 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776452&amp;ptid=2002246" target="_blank">ooohaoguai2 发表于 2021-12-1 22:04</a>
+小丑在最糟糕的一天也没做成任何事，全都是失败，魅力不是来源于强大
+
+魅力的源头应当是角色内核的自洽 ...</blockquote>
+开玩喜呢，自恰绝不是一个角色魅力的必要条件。
+
+阿q福贵这些人物也自恰，也没几个人觉得他是一个有个人魅力的人物。
+
+你举的那个小丑，别人基于他“有魅力”是因为符合每个人心里的魅力模板。他有实力，有智商，有神秘度，尽职尽责堪称模范反派，他如果掉到炉子里以后变成了垫脚石那样的人物，你觉得他还有魅力吗。
+
+我是真不明白这个要能力没能力，硬实力被艾克秒的角色，主要战绩靠骗靠偷袭杀路人的角色，给我感觉比无惨还low。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  tornadoDA  
+##### 2864#       发表于 2021-12-1 23:26
+
+小丑我也不喜欢，金克丝我也不喜欢，如果你讨厌金克丝，那你也应该讨厌小丑吧
+
