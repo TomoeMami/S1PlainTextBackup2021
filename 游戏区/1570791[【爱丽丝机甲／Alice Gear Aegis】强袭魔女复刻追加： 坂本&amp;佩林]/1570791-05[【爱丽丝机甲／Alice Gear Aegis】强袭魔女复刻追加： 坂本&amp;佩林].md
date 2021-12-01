@@ -4149,3 +4149,13 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 
 联动角色一般就 三星一套 四星一套 泳装一套 部分角色会多一套一星通用战斗服 别的没了
 
+
+
+*****
+
+####  hypnossz86  
+##### 6314#       发表于 2021-12-1 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">这个解决也太简单粗暴了
+二期的路都断绝了...
+

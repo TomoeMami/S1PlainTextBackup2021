@@ -14121,3 +14121,29 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 
 是不是很有既视感
 
+
+
+*****
+
+####  烦死了  
+##### 1271#       发表于 2021-12-1 23:51
+
+红迪热搜：
+
+欧米克隆病毒大多数都是轻症， 也没有证据证明疫苗效力会减弱
+
+继续浪起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[https://news.sky.com/story/covid ... t-says-who-12483729](https://news.sky.com/story/covid-19-most-omicron-cases-are-mild-and-theres-no-evidence-to-suggest-vaccines-may-be-less-effective-against-the-variant-says-who-12483729)
+
+*****
+
+####  最好不说  
+##### 1272#       发表于 2021-12-2 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777293&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-1 23:51</a>
+
+红迪热搜：
+
+欧米克隆病毒大多数都是轻症， 也没有证据证明疫苗效力会减弱</blockquote>
+话说太满说太早基本都会被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
