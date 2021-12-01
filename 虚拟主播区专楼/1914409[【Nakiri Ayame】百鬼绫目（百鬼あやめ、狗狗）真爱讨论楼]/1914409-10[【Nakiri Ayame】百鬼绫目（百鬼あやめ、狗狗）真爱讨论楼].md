@@ -900,3 +900,12 @@ There will be normal LoL stream at this rate
 
 绫总今年直播时长高达150小时，要感恩<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绿色子龙  
+##### 13591#       发表于 2021-12-1 19:54
+
+怎么办，歌回同接比绫总高，能不能投稿一首グッバイ宣言让绫总加点压力
+

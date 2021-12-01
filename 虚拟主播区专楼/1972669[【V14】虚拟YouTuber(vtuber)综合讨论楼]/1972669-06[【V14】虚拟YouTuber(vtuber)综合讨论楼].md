@@ -16975,3 +16975,57 @@ en虹女已经是日常fxxk shxt bixxh三件套互相问候了，看好en虹男�
 
 你虹现在问题不就在于负担重嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 8826#       发表于 2021-12-1 19:44
+
+虹EN一开始感觉不太行，抽了2期之后最近感觉还确实挺好看，个人能力强的选手也有，箱推力也有
+
+不过之后要加的男人怎么融入是个问题
+
+*****
+
+####  OldGlory  
+##### 8827#       发表于 2021-12-1 19:48
+
+直接融入就行，白皮没啥独角兽
+
+*****
+
+####  星街こうせい  
+##### 8828#       发表于 2021-12-1 19:48
+
+[https://www.youtube.com/watch?v=r66UzB0WuGo](https://www.youtube.com/watch?v=r66UzB0WuGo)
+
+👆5天100W再生，这是能接king的班了吧
+
+*****
+
+####  free  
+##### 8829#       发表于 2021-12-1 19:56
+
+居然加入シアーミュージック了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/01/195648h5itspm055pe4rzo.png" referrerpolicy="no-referrer">
+
+<strong>UTA.png</strong> (124.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 19:56 上传
+
+*****
+
+####  毛头小希  
+##### 8830#       发表于 2021-12-1 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53774545&amp;ptid=1972669" target="_blank">nian1538 发表于 2021-12-1 19:44</a>
+
+虹EN一开始感觉不太行，抽了2期之后最近感觉还确实挺好看，个人能力强的选手也有，箱推力也有
+
+不过之后要加 ...</blockquote>
+这你就要问问名誉EN会员Oliver教授了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
