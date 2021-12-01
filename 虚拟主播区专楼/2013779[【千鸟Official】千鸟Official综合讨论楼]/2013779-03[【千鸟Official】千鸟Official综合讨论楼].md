@@ -6426,3 +6426,32 @@ a的大环境本来就反鸟，现在鸟的反a情绪也日益高涨了，你自
 
 盒盒，文静的事业心
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 3731#       发表于 2021-12-1 18:23
+
+ 本帖最后由 灰色的狐狸 于 2021-12-1 18:30 编辑 
+
+白白昨天的深蹲后遗症出来了吗
+
+这群人是出门庆祝去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  haruhiismer  
+##### 3732#       发表于 2021-12-1 18:25
+
+千舰就摆烂呵呵，我要去as直播刷文静了，坐等半夜哭哭上播
+
+*****
+
+####  tankai  
+##### 3733#       发表于 2021-12-1 18:34
+
+她以为自己吃的是咖哩。。。
+

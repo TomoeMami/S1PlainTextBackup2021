@@ -24165,3 +24165,15 @@ Ame在家里的的动捕应该是index/HTC全套+3个追踪器绑在身上（脚
 
 比工作室差很多但对海外几个来说我觉得够用了
 
+
+
+*****
+
+####  M1NG  
+##### 1496#       发表于 2021-12-1 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772414&amp;ptid=1989758" target="_blank">a1741128 发表于 2021-12-1 17:00</a>
+
+美国最大的动漫展应该是洛杉矶的ANIME EXPO吧，上次myth全员都去了，22年她们肯定也会去的，不愁没机会，另 ...</blockquote>
+cover要是愿意花钱愿意投入技术的话，给五人造一套和Codemiko那种差不多的惯性服基本上就有非常优秀的效果了，不过holo的3d嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">在工作室里都做成这样，我估计也就是个简化版3d，以后3d回能录播就全都录播，模型能做精细点都烧高香了
+

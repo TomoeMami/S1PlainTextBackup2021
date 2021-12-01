@@ -3728,3 +3728,30 @@ Sanlow，给个痛快
 
 乃琳Queen:[发布动态](https://t.bilibili.com/598885115866291370) <blockquote>十二月啦~要不明天来一场漫~无~目~的~的杂谈？想跟我聊点什么呀~</blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 288#         楼主| 发表于 2021-12-1 18:33
+
+乃琳Queen:[【翻唱】乃琳《羞答答的玫瑰轻悄悄地开》| 今天揽你入怀~（直播剪辑）](https://t.bilibili.com/599217748192879929)
+
+（运营代发）
+
+素材来自11月27日小剧场
+歌曲：羞答答的玫瑰轻悄悄地开
+原唱：孟庭苇
+翻唱：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202112/01/183342m650oo85110umxj7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 18:33 上传
+
