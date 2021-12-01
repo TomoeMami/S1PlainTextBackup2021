@@ -16785,3 +16785,65 @@ en全是女的目前也还行吧，虽然据说en男快出了
 
 完全想象不能
 
+
+
+*****
+
+####  OldGlory  
+##### 8807#       发表于 2021-12-1 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772044&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-12-1 16:31</a>
+
+讲得好像当初世怜女就能让虹女多强势一样
+
+en全是女的目前也还行吧，虽然据说en男快出了
+
+完全想象不能 ...</blockquote>
+就算是世怜女，生存环境也比鲨鱼妹好很多了
+
+当然还是比不过田角亲生的三小只<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  獅白ぼたん  
+##### 8808#       发表于 2021-12-1 16:46
+
+出了一个全女的世怜差不多都扑街了，怎么能怪eden组找男人呢
+
+*****
+
+####  winda  
+##### 8809#       发表于 2021-12-1 16:46
+
+ 本帖最后由 winda 于 2021-12-1 16:51 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/01/164456cagumyuangouvgun.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211201_164210.jpg</strong> (22.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-1 16:44 上传
+
+帕特姐同期凸待edens粉怒评 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就算是在世怜女，绿色不照样作死碰葛叶，社长，黛灰被踩了个遍。
+还有nrk，葛叶，不破联动时候，葛叶因为说了自己cr先找nrk，后找的不破，被打sc诱导点踩的事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl三枝之前看串说法，唱歌6000同接男女7:3，游戏3000同接男女就变3:7了
+
+*****
+
+####  free  
+##### 8810#       发表于 2021-12-1 16:49
+
+虹en出男人的话从twitch拉点大物主播吧，比较想看
+
+*****
+
+####  poipanchao  
+##### 8811#       发表于 2021-12-1 16:57
+
+跟世怜女基本同期的kr三期，抽了bora和roha两张好卡
+放本社早就大赢特赢了
+主要还是日本人不行
+

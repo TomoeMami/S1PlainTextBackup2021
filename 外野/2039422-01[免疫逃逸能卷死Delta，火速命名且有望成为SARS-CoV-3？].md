@@ -13566,3 +13566,101 @@ WHO能够承受各方政治压力，依据科学指导工作已经很不容易�
 
 把污名化由少数国家理不直气不壮，暗搓搓地进行，变成一个合法的行为，就是你提出这个命名权的目的。
 
+
+
+*****
+
+####  lipo  
+##### 1224#       发表于 2021-12-1 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772103&amp;ptid=2039422" target="_blank">朋友 发表于 2021-12-1 16:36</a>
+你说的123期就是FDA的问题了，对辉瑞来说就是点点鼠标的事，问题是你FDA的大老爷不敢批啊，明年夏天能做完 ...</blockquote>
+只要工厂的生产分发还遵守物理规律，药厂负责人还不想因为麻翻一群人而进监狱，在实验室里改mrna编码改得再快也没用。
+
+*****
+
+####  朋友  
+##### 1225#       发表于 2021-12-1 16:52
+
+ 本帖最后由 朋友 于 2021-12-1 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772297&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-1 16:51</a>
+
+只要工厂的生产分发还遵守物理规律，药厂负责人还不想因为麻翻一群人而进监狱，在实验室里改mrna编码改得 ...</blockquote>
+但是流感疫苗就是这么做的，你今天打的新冠也是加速出来的，说白了还是大老爷不想担责，反正我不批疫苗，你死了，你运气不好，关我屁事
+
+*****
+
+####  riczxc  
+##### 1226#         楼主| 发表于 2021-12-1 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772091&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-1 16:36</a>
+博茨瓦纳发了声明。11月7日的病例是境外外交人员带过来的</blockquote>
+可惜没有说是哪国的。
+
+*****
+
+####  lipo  
+##### 1227#       发表于 2021-12-1 16:56
+
+ 本帖最后由 lipo 于 2021-12-1 16:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772312&amp;ptid=2039422" target="_blank">朋友 发表于 2021-12-1 16:52</a>
+但是流感疫苗就是这么做的，你今天打的新冠也是加速出来的，说白了还是大老爷不想担责，反正我不批疫苗， ...</blockquote>
+流感疫苗是灭活疫苗，最差的结果无非是活性减弱不够得了流感。
+
+*****
+
+####  朋友  
+##### 1228#       发表于 2021-12-1 16:58
+
+ 本帖最后由 朋友 于 2021-12-1 17:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772362&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-1 16:56</a>
+
+流感疫苗是灭活疫苗，最差的结果无非是活性减弱不够得了流感。</blockquote>
+那可不一定，当年的RSV的ADE就是灭活整出来的。按照灭火的工艺，正常生产条件下灭火失败导致活性减弱是最不可能的。
+
+*****
+
+####  lipo  
+##### 1229#       发表于 2021-12-1 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772391&amp;ptid=2039422" target="_blank">朋友 发表于 2021-12-1 16:58</a>
+那可不一定，当年的RSV的ADE就是灭活整出来的。按照灭火的工艺，正常生产条件下灭火失败导致活性减弱是最 ...</blockquote>
+任何种类疫苗都有可能ade，任何疫苗也都有可能过敏，这些本来就不在讨论中。
+
+*****
+
+####  voluspa  
+##### 1230#       发表于 2021-12-1 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772312&amp;ptid=2039422" target="_blank">朋友 发表于 2021-12-1 16:52</a>
+
+但是流感疫苗就是这么做的，你今天打的新冠也是加速出来的，说白了还是大老爷不想担责，反正我不批疫苗， ...</blockquote>
+听你的话, 你觉得流感疫苗是几个月就搞出上市的?
+
+
+
+*****
+
+####  朋友  
+##### 1231#       发表于 2021-12-1 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772422&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-1 17:00</a>
+
+任何种类疫苗都有可能ade，任何疫苗也都有可能过敏，这些本来就不在讨论中。 ...</blockquote>
+所以呢？mrna平台的安全性已经不需要第二次临床来证明了，反正打都打了。无非是大老爷秉着少做少错，又不是没疫苗打的态度不愿给新的序列加速而已。
+
+至于流感，大家都知道每年的流感都不一样，你不加速批那压根就没疫苗可打。至于新冠，找两个专家上去说说什么旧疫苗对新病毒依然有效，反正本来天天就那么多感染，谁又能说是因为新的变种还是冬天到了呢？
+
+除非感染人数有个暴增，那我相信这帮人就会像屁股点了火箭一样光速批准新疫苗的。
+
+*****
+
+####  朋友  
+##### 1232#       发表于 2021-12-1 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772434&amp;ptid=2039422" target="_blank">voluspa 发表于 2021-12-1 17:01</a>
+
+听你的话, 你觉得流感疫苗是几个月就搞出上市的?</blockquote><blockquote>疫苗厂商获得流感疫苗组份后，确定疫苗生产的种类和规模。由此可以推算，流感疫苗的真正生产时间，通常在每年3月以后，经过4~5个月生产周期，自检合格的疫苗由中检院完成批签发后才能上市，再被运到各省市疾控中心，进而下拨到接种机构。
+
+　　因此，流感疫苗不是“点单可取”的普通商品，在这样的上市流程下，流感疫苗第一批批签发的时间最快在8月份左右，通常在9月份后进入放量阶段。而今年因为新冠肺炎疫情，很多厂家已经提前准备，流感疫苗上市时间有所提前。</blockquote>
+

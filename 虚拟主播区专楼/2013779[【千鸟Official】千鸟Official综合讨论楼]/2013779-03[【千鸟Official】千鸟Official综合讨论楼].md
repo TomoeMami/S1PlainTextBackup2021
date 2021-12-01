@@ -6187,3 +6187,58 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 
 怎么全是渔夫互钓啊，真路人一个都不敢惹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 3704#       发表于 2021-12-1 16:40
+
+千舰了粉丝基本没涨，不打钱的老东西都冒出来了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 3705#       发表于 2021-12-1 16:50
+
+昨天这直播内容也就老东西看得下去，纯路人可不进来就走嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 3706#       发表于 2021-12-1 16:50
+
+4000多的粉丝团贡献了1000多的舰长，这个核心付费率比“6w粉千舰”还要夸张……
+
+*****
+
+####  suzumiya123  
+##### 3707#       发表于 2021-12-1 16:52
+
+6.1w粉丝6.22w弹幕，静栗惹人均V老嗨是吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  我有一个朋友  
+##### 3708#       发表于 2021-12-1 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772309&amp;ptid=2013779" target="_blank">suzumiya123 发表于 2021-12-1 16:52</a>
+6.1w粉丝6.22w弹幕，静栗惹人均V老嗨是吧
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 ...</blockquote>
+再看看弹幕人数，你就明白静栗惹批话多了……
+4790人，6.22万弹幕……
+
+*****
+
+####  灰色的狐狸  
+##### 3709#       发表于 2021-12-1 16:55
+
+没有什么吸引路人的切片，昨晚千舰的原因也可以说是礼物的功劳。
+
+路人一脸懵逼，不涨也正常
+
+先至少等运营交接完这些该有的东西重新启动后再看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

@@ -24135,3 +24135,33 @@ Ina生日上时代广场那一天我刚好在纽约……甚至就在曼哈顿�
 
 不知道这么说会不会让你好受点<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a1741128  
+##### 1495#       发表于 2021-12-1 17:00
+
+美国最大的动漫展应该是洛杉矶的ANIME EXPO吧，上次myth全员都去了，22年她们肯定也会去的，不愁没机会，另外也有小型的展出会（就上面议会这个见面会这种），好像至少有2-3次
+
+工作室的动补设备基本上是下面这样，包括CY、asoul什么的都这种，身材比例要大体对得上，要不会违和，表情有专门的人来控制（也有顶着个架子摄像头来面捕的）
+
+理论上北美几个在洛杉矶、纽约之类的地方肯定能租的到场地和设备，但没人员（除非全部外包）也不安全
+
+只能指望cover若干年后能在北美把工作室建起来要不只能全员去日本
+
+<img src="https://img.saraba1st.com/forum/202112/01/164310tizivsvck2d88kjz.png" referrerpolicy="no-referrer">
+
+<strong>987.png</strong> (76.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 16:43 上传
+
+Ame在家里的的动捕应该是index/HTC全套+3个追踪器绑在身上（脚2个+腰1个）
+
+极限情况下应该有这种效果（B站的琉璃子，她绑了6个追踪器在身上）
+[https://www.bilibili.com/video/BV1JV411H7t6?](https://www.bilibili.com/video/BV1JV411H7t6?)
+
+比工作室差很多但对海外几个来说我觉得够用了
+

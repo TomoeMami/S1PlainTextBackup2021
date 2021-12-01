@@ -5939,3 +5939,28 @@ NMD两单沉了
 去年也没送啊</blockquote>
 记忆混乱了，今年也送过五星了？<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 84536#       发表于 2021-12-1 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53771646&amp;ptid=1085254" target="_blank">闽明 发表于 2021-12-1 15:59</a>
+记忆混乱了，今年也送过五星了？</blockquote>
+送了啊，6周年给的，而且包括剧情限定，没有选的话现在打开商店就能选一个。
+
+*****
+
+####  alucardcz  
+##### 84537#       发表于 2021-12-1 17:04
+
+更新了个狐狸pv。。。真要打狐狸了吗
+
+*****
+
+####  khxooo  
+##### 84538#       发表于 2021-12-1 17:04
+
+狐狸好大的牌面啊，这次应该不是活动吧。不过好像说过灵脉石不能用？
+
