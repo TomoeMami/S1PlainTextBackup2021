@@ -21221,3 +21221,21 @@ Alternative最近这两话看得想睡觉……是制作组拉了还是这段就
 
 恐怕是一般游戏的几倍还要多
 
+
+
+*****
+
+####  hlazd  
+##### 1497#       发表于 2021-12-2 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">这集真的升天，战斗细节太多了，想各种截图
+
+*****
+
+####  freyja_wion  
+##### 1498#       发表于 2021-12-2 00:48
+
+看出来了，只要是有萝卜的集数做的都不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

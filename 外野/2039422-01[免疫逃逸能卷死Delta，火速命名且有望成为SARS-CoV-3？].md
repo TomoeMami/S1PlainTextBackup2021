@@ -14170,3 +14170,17 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 玩这种文字游戏有意思吗？ <blockquote>there's no evidence to suggest vaccines may be less effective against the variant</blockquote>
 不就是暗示现有疫苗在omicron面前依旧有效，反正也不用急，最迟到明年一月各项数据都能出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 1275#       发表于 2021-12-2 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777656&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-2 00:45</a>
+
+玩这种文字游戏有意思吗？
+
+不就是暗示现有疫苗在omicron面前依旧有效，反正也不用急，最迟到明年一月各 ...</blockquote>
+这暗示是你脑补的吧
+
