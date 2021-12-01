@@ -14030,3 +14030,58 @@ WHO能够承受各方政治压力，依据科学指导抗疫已经很不容 ...<
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  天使日又日  
+##### 1263#       发表于 2021-12-1 22:03
+
+<img src="https://img.saraba1st.com/forum/202112/01/220224w2p8u2d8a2mucpap.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-1 22:02 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">据说新冠会损害神经系统是吧？我看这位症状挺严重的
+
+*****
+
+####  克鲁特尼  
+##### 1264#       发表于 2021-12-1 22:04
+
+<blockquote>ak123 发表于 2021-12-1 21:37
+30是什么妖孽，我记得之前最屌的空气传播的麻疹也就18</blockquote>
+圆脸的原话应该是指南非这病例增长速度假如是按纯纯地没得过一次新冠的人群来算，r0得有30了；毕竟刚被德尔塔扫荡过一遍不应该增长这么快
+
+*****
+
+####  飞奔的拓拓  
+##### 1265#       发表于 2021-12-1 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776202&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2021-12-1 21:43</a>
+
+中国将是救世主</blockquote>
+我觉得那时最好指望美国人还有点理智，别去按核按钮。
+
+*****
+
+####  creymorgan  
+##### 1266#       发表于 2021-12-1 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776439&amp;ptid=2039422" target="_blank">都谷捻柏 发表于 2021-12-1 22:02</a>
+
+南非这波过后，会不会变得越来越没有国家愿意主动上报了，反正都是摆烂就完事。
+
+  -- 来自 能手机投票的 S ...</blockquote>
+其实搞到大家努力找茬，严查入境病患说不定效率比现在这种还高一些。
+
+*****
+
+####  公共知识  
+##### 1267#       发表于 2021-12-1 22:10
+
+还用得着费心去鼓励别的国家检测新变种。。我们自己检测好就行了，你管得着国外死活吗？
+

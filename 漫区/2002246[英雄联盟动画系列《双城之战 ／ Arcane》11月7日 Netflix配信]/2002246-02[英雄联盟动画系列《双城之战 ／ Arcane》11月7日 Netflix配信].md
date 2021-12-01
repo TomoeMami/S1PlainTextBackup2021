@@ -14774,3 +14774,17 @@ b站拳头游戏音乐发了双城的原声配乐
 
 魅力的源头应当是角色内核的自洽
 
+
+
+*****
+
+####  筱原重工  
+##### 2862#       发表于 2021-12-1 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773789&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-12-1 18:53</a>
+
+几个小细节：
+
+1. 分三个星期放送，每次放送三集是因为这剧被分为了三幕，ACT1、ACT2、ACT3。其实很像一场戏 ...</blockquote>
+好家伙，要真是柏林爱乐不得磕着头让拳头出ost一买买三份<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

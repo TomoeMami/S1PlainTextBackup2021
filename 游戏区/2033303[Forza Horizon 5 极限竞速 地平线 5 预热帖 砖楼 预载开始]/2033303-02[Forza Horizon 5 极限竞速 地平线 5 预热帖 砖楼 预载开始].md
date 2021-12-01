@@ -71,3 +71,22 @@
 —— 来自 OnePlus HD1900, Android 11上的 S1Next- ...</blockquote>
 好的，那再问下，能再重打图伦那关吗？
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1507#       发表于 2021-12-1 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772931&amp;ptid=2033303" target="_blank">天知道 发表于 2021-12-1 17:41</a>
+
+好的，那再问下，能再重打图伦那关吗？</blockquote>
+可以，地图上的筛选，冒险和表演赛是一起的。找到图伦冒险就行
+
+*****
+
+####  mwj  
+##### 1508#       发表于 2021-12-1 22:22
+
+话说开场能重跑一遍吗？
+
