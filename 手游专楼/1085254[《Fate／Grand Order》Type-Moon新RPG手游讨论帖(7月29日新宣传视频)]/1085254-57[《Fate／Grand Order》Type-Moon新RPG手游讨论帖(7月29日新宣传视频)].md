@@ -5964,3 +5964,58 @@ NMD两单沉了
 
 狐狸好大的牌面啊，这次应该不是活动吧。不过好像说过灵脉石不能用？
 
+
+
+*****
+
+####  angelooo  
+##### 84539#       发表于 2021-12-1 17:13
+
+这和平安京差不多？杀狐会不会表演一个妇科
+
+*****
+
+####  angelooo  
+##### 84540#       发表于 2021-12-1 17:15
+
+宝具指令卡和chain加速喷了
+
+
+
+*****
+
+####  alucardcz  
+##### 84541#       发表于 2021-12-1 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772622&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-1 17:15</a>
+
+宝具指令卡和chain加速喷了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">出个新的 杀狐“暗”
+
+*****
+
+####  zakki  
+##### 84542#       发表于 2021-12-1 17:15
+
+感觉pv出现的cg都是新的，狐狸要把前几个异闻带复现吗
+
+*****
+
+####  闽明  
+##### 84543#       发表于 2021-12-1 17:16
+
+ 本帖最后由 闽明 于 2021-12-1 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772405&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-1 16:59</a>
+
+送了啊，6周年给的，而且包括剧情限定，没有选的话现在打开商店就能选一个。 ...</blockquote>
+想起来了，好像是选了老李<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+BGO和日服双修，有时候会产生莫名混乱的记忆
+
+*****
+
+####  khxooo  
+##### 84544#       发表于 2021-12-1 17:24
+
+期间限定活动，可以的，怕不是真的是圣诞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

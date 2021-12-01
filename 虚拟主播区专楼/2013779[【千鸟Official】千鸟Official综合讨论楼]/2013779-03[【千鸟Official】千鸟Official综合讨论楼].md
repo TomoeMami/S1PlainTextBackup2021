@@ -6242,3 +6242,50 @@ syl！超你妈！不准冲琳！我砍死你<img src="https://static.saraba1st.
 
 先至少等运营交接完这些该有的东西重新启动后再看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ml1642879  
+##### 3710#       发表于 2021-12-1 17:08
+
+纯棍杂，第一次看V，主播什么时候三胎
+
+*****
+
+####  四叶的花  
+##### 3711#       发表于 2021-12-1 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">切片和投稿才是涨粉关键，文静都多久没投稿了
+
+*****
+
+####  夜之中道崩殂  
+##### 3712#       发表于 2021-12-1 17:13
+
+ 本帖最后由 夜之中道崩殂 于 2021-12-1 17:15 编辑 
+
+冷知识，文静投稿是除了艾瑞思最勤的了，然后是琳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl这波最本质的要求是想要静盾吧，结果现在都没人提了，全在钓。这要真出静盾了，那可真是书写传奇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3713#       发表于 2021-12-1 17:17
+
+等钓得差不多文静开播了估计又会想起来了
+
+静栗惹得二向性
+
+*****
+
+####  pipeline  
+##### 3714#       发表于 2021-12-1 17:18
+
+文静的切片其实是不少的，只不过播放数大多徘徊在四位数。
+
+切片是能涨粉，但前提是得有新人来看你的这个切片，他才会转化成粉丝。
+
+该去A手直播间里刷“下一站：文静”了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
