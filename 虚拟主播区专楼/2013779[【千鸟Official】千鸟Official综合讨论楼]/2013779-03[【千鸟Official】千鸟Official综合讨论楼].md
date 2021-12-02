@@ -6607,3 +6607,17 @@ syl这个是楼友吗？鸟频看见的</blockquote>
 
 鹅球又坏了
 
+
+
+*****
+
+####  魔法少女大头  
+##### 3750#       发表于 2021-12-2 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778703&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-2 08:29</a>
+三体小鬼什么都不懂，乱说的
+不过满屏fk u and never come back犹在眼前，此时此刻恰如彼时彼刻罢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可少说点吧，等下又被拉典型
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

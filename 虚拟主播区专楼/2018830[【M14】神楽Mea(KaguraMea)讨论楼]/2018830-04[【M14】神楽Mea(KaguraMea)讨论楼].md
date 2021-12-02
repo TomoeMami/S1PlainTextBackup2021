@@ -10999,3 +10999,43 @@ lol就sound only，打枪看几眼<img src="https://static.saraba1st.com/image/s
 
 syl  图奇感谢图用了手冲老师的图可还行
 
+
+
+*****
+
+####  yywzjsw  
+##### 5767#       发表于 2021-12-2 10:51
+
+这突然一惊的‘yi'真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5768#       发表于 2021-12-2 10:52
+
+ 本帖最后由 时间在我手中 于 2021-12-2 10:58 编辑 
+
+太典了，一群人宛若rush b一样的气势前仆后继排排送
+
+这混烟只能说完全没搞懂机制，反正大马路走位打人就完事
+
+残局滴咩！一换一就是赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新手强起经济**太典了
+
+草，这残局一对一竟然跳打爆头了，什么B1t附体
+
+我超，小森上号了是吧，这AK竟然连杀四个，差点ace<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5769#       发表于 2021-12-2 10:58
+
+开了是吧 建议严查<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5770#       发表于 2021-12-2 10:59
+
+不是，这人这AK一样的武器压的有点厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
