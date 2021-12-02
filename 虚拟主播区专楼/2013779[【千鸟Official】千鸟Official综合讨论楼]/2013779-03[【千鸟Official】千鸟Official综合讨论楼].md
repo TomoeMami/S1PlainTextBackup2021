@@ -6573,3 +6573,17 @@ syl这个是楼友吗？鸟频看见的<img src="https://static.saraba1st.com/im
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3747#       发表于 2021-12-2 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778626&amp;ptid=2013779" target="_blank">魔法少女大头 发表于 2021-12-1 20:14</a>
+解构是吧
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+三体小鬼什么都不懂，乱说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过满屏fk u and never come back犹在眼前，此时此刻恰如彼时彼刻罢了
+

@@ -14617,3 +14617,79 @@ vs
 
 你活在自己世界挺好的
 
+
+
+*****
+
+####  03e7  
+##### 1311#       发表于 2021-12-2 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778664&amp;ptid=2039422" target="_blank">你这瓜保熟吗 发表于 2021-12-2 08:22</a>
+
+正确的抗疫方案:管控，封锁，流调，打疫苗，正视，合作
+
+楼里大手子提出的方案:给发现国命名权</blockquote>
+上午给发现国命名权，下午美国就会发现10个新变种，命名武汉1武汉2武汉3…
+
+*****
+
+####  pushare  
+##### 1312#       发表于 2021-12-2 08:35
+
+npr报道：omicron在南非报告之前一周就已经在欧洲了
+
+https://www.npr.org/2021/11/30/1060025081/omicron-variant-netherlands-europe-south-africa
+
+The omicron coronavirus variant was already in the Netherlands a week before South Africa reported the new variant to the World Health Organization, according to a Dutch health agency.
+
+The variant was recently identified in retests of samples that were taken on Nov. 19 and 23, the National Institute for Public Health and the Environment, or RIVM, announced on Tuesday.
+
+Revelations about the variant's existence in Europe before it was reported in Africa add a new twist to questions about where and how the variant originated — and whether travel bans on South Africa and its neighbors are an appropriate response to the variant
+
+*****
+
+####  UnhappyTails  
+##### 1313#       发表于 2021-12-2 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778672&amp;ptid=2039422" target="_blank">洛拉斯 发表于 2021-12-2 08:23</a>
+
+懂了，美帝就是美帝，疫情都是假的，连欧米克容都不原意去美国
+
+你活在自己世界挺好的 ...</blockquote>
+?还在不会去美帝？怕你不知道加州已经有病例了
+
+而你这个美国孝子还在疫情是假的不愿意去美帝
+
+50w嘴真的硬
+
+*****
+
+####  auraria  
+##### 1314#       发表于 2021-12-2 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53767572&amp;ptid=2039422" target="_blank">nominication47 发表于 2021-12-1 10:38</a>
+上次白皮遇到类似的情况的时候，靠躺平撑过了疫情，靠劫掠经济上回血加甩锅。
+
+这会遇到新冠，加上网络时 ...</blockquote>
+白皮面对大流行疾病哪次不是躺平过去的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+只是这次出了个异端，一个他们眼里人口多卫生条件差政府腐败不透明等等抗疫debuff叠满的国家居然能彻底摁住疫情，有对比就有伤害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Niceday  
+##### 1315#       发表于 2021-12-2 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778664&amp;ptid=2039422" target="_blank">你这瓜保熟吗 发表于 2021-12-2 08:22</a>
+正确的抗疫方案:管控，封锁，流调，打疫苗，正视，合作
+楼里大手子提出的方案:给发现国命名权</blockquote>
+泥潭现在堕落到对线都喜欢给别人编一个目的来赢麻了？   下次直接赢麻了就行，不用打一大段字。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我的方案重来都是只针对一个问题，就是首先发现病毒的国家反而要承担骂名和被断航，比如当年的我国和这次的南非。 而这样会打击这些国家检测新病毒和新变种的积极性。
+我哪句话说过命名权是用来解决整体防疫用的？  画个靶子赢麻了？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+命名权不过是我唯一能想到的有可行性的方案，而不是因为这个方案很好用。我也不是啥专家，我的方案不好用很正常。你们要是有别的方案能解决问题我很欢迎讨论。
+
+这么久了，在这楼里说不应该南非背锅好几个，骂欧美不肯检测的好几个，骂我的方案不行好几个，就是没看到有任何其他的方案来鼓励各国检测新变种，口惠而实不至这点倒是跟欧美学得很溜。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
