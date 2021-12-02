@@ -14719,3 +14719,44 @@ Revelations about the variant's existence in Europe before it was reported in Af
 
 风怒
 
+
+
+*****
+
+####  无责任死猫  
+##### 1318#       发表于 2021-12-2 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778597&amp;ptid=2039422" target="_blank">UnhappyTails 发表于 2021-12-2 08:09</a>
+
+澳洲可是封国普查治疗一应俱全
+
+我看他这是幸灾乐祸</blockquote>
+新西兰是白皮里难得认真防疫的，拿土澳这垃圾来相提并论过了。
+
+*****
+
+####  Niceday  
+##### 1319#       发表于 2021-12-2 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778997&amp;ptid=2039422" target="_blank">你这瓜保熟吗 发表于 2021-12-2 09:04</a>
+风怒</blockquote>
+能把用屁股说话讲得这么文雅和理直气壮也不容易。
+
+看我不爽又讲不过，只能靠阴阳怪气来挽回一下脸面。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+然后再给个似是而非的比喻，装作是有方案但是不屑于说的样子。能打这么一大段比喻，就是不说实际可以怎么操作。  问就是不想辩经。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+只要我不说怎么解决，就可以只喷人而立于不败之地，属实是把键盘侠玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你这瓜保熟吗  
+##### 1320#       发表于 2021-12-2 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779097&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-2 09:13</a>
+能把用屁股说话讲得这么文雅和理直气壮也不容易。
+
+看我不爽又讲不过，只能靠阴阳怪气来挽回一下脸面。[f ...</blockquote>
+那可是，您这300贴负300鹅的人，打起滚了确实一般人也说不过<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+希望您继续大力宣扬您的发现国命名权大计，毕竟某些人精神爹在抗疫上吃了大瘪没话说，只能讨讨嘴皮子功夫图个爽了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

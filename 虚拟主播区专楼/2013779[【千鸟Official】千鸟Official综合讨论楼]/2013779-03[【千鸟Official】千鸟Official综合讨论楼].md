@@ -6587,3 +6587,23 @@ syl这个是楼友吗？鸟频看见的<img src="https://static.saraba1st.com/im
 三体小鬼什么都不懂，乱说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过满屏fk u and never come back犹在眼前，此时此刻恰如彼时彼刻罢了
 
+
+
+*****
+
+####  小憨1  
+##### 3748#       发表于 2021-12-2 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777135&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-1 23:25</a>
+新参不会是文静来sj了吧
+
+syl这个是楼友吗？鸟频看见的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为回答了这个，现在我逼乎首页全是ASOUL相关
+
+*****
+
+####  小憨1  
+##### 3749#       发表于 2021-12-2 09:13
+
+鹅球又坏了
+
