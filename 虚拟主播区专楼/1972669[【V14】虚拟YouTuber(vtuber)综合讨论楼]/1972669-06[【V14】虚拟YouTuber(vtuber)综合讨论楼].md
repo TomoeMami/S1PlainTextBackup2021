@@ -17098,3 +17098,22 @@ Syl，<blockquote>西園チグサ「今回のCRカップは絶対に出ません
 
 直播圈子这种退役职业哥还是香啊……自带一门绝活，其他方面稍微有点能力就能出头
 
+
+
+*****
+
+####  UnhappyTails  
+##### 8838#       发表于 2021-12-2 14:13
+
+ 本帖最后由 UnhappyTails 于 2021-12-2 14:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773917&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-12-1 19:01</a>
+
+真的能吸上吗</blockquote>
+吸的上个屁
+
+jp的gachi女粉整体疯批度和极端个体疯批度都遥遥领先
+
+吸一波估计都被人追着打别说长期了
+
+rrm还是多联联卵用吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
