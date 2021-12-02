@@ -11039,3 +11039,76 @@ syl  图奇感谢图用了手冲老师的图可还行
 
 不是，这人这AK一样的武器压的有点厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 5771#       发表于 2021-12-2 11:02
+
+之前那三枪打的确实可以<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5772#       发表于 2021-12-2 11:03
+
+这几手真的稳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 手感起来就乱杀是吧
+
+*****
+
+####  时间在我手中  
+##### 5773#       发表于 2021-12-2 11:04
+
+换边手枪局，看看防守如何了
+
+还可以，手枪也不错
+
+*****
+
+####  yywzjsw  
+##### 5774#       发表于 2021-12-2 11:05
+
+点的可以
+
+*****
+
+####  时间在我手中  
+##### 5775#       发表于 2021-12-2 11:06
+
+什么猪叫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5776#       发表于 2021-12-2 11:07
+
+刚夸完没几句就吃瘪 不经夸是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5777#       发表于 2021-12-2 11:08
+
+ 本帖最后由 时间在我手中 于 2021-12-2 11:11 编辑 
+
+开着技能满大街走，生怕别人打不死你是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么老有事没事切刀
+
+这被闪了鬼叫真大声
+
+小分13结束可还行，估计能打多一把正好下，节奏挺快
+
+*****
+
+####  yywzjsw  
+##### 5778#       发表于 2021-12-2 11:12
+
+今天感觉怎么那么娘<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">明明lol不是这种感觉
+
+*****
+
+####  T_Hb  
+##### 5779#       发表于 2021-12-2 11:12
+
+转角遇到鬼
+
