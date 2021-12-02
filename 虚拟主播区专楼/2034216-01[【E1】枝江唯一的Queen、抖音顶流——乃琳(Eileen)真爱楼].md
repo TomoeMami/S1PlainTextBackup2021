@@ -3791,3 +3791,108 @@ Sanlow，给个痛快
 还有直男写的“耽美”是最香的，直女写的“百合”好吃😋
 果丹皮那种呆呆“直男”感很重，香！
 
+
+
+*****
+
+####  一般通过广纤  
+##### 293#       发表于 2021-12-2 11:27
+
+香水小样是什么东东？
+
+*****
+
+####  sanlow666  
+##### 294#         楼主| 发表于 2021-12-2 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781033&amp;ptid=2034216" target="_blank">一般通过广纤 发表于 2021-12-2 11:27</a>
+香水小样是什么东东？</blockquote>
+十来块钱一瓶的“试用装”，香水商家让购买者正式消费前心里有个底用的。去线下柜台有概率能白嫖。
+
+*****
+
+####  我有一个朋友  
+##### 295#       发表于 2021-12-2 11:30
+
+ 本帖最后由 我有一个朋友 于 2021-12-2 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781033&amp;ptid=2034216" target="_blank">一般通过广纤 发表于 2021-12-2 11:27</a>
+香水小样是什么东东？</blockquote>
+试用的……乃琳提到的那个香水售价600多，穷大学生买个小样体验一下当个代餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一般通过广纤  
+##### 296#       发表于 2021-12-2 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781077&amp;ptid=2034216" target="_blank">sanlow666 发表于 2021-12-2 11:29</a>
+十来块钱一瓶的“试用装”，香水商家让购买者正式消费前心里有个底用的。去线下柜台有概率能白嫖。 ...</blockquote>
+我的意思是乃琳有提到某个品牌的小样么？因为最近不看单播不知道发生了啥
+
+*****
+
+####  我有一个朋友  
+##### 297#       发表于 2021-12-2 11:33
+
+ 本帖最后由 我有一个朋友 于 2021-12-2 11:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781129&amp;ptid=2034216" target="_blank">一般通过广纤 发表于 2021-12-2 11:31</a>
+我的意思是乃琳有提到某个品牌的小样么？因为最近不看单播不知道发生了啥 ...</blockquote>
+乃琳提到了晚晚推荐的一款香水
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 一般通过广纤| + 1|好评加鹅|
+| sanlow666| + 1|yep|
+
+查看全部评分
+
+*****
+
+####  一般通过广纤  
+##### 298#       发表于 2021-12-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781152&amp;ptid=2034216" target="_blank">我有一个朋友 发表于 2021-12-2 11:33</a>
+乃琳提到了晚晚推荐的一款香水</blockquote>
+哪个牌子的嘛，我马上下单！
+
+*****
+
+####  我有一个朋友  
+##### 299#       发表于 2021-12-2 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781168&amp;ptid=2034216" target="_blank">一般通过广纤 发表于 2021-12-2 11:34</a>
+哪个牌子的嘛，我马上下单！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/02/113639l9w1hdjohlh94m9i.png" referrerpolicy="no-referrer">
+
+<strong>ExponentAsset-d239f509bcc9aa1ee155334f2dc9e4a1.png</strong> (145.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-2 11:36 上传
+
+昨天A楼有人发的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 一般通过广纤| + 1|好评加鹅|
+
+查看全部评分
+

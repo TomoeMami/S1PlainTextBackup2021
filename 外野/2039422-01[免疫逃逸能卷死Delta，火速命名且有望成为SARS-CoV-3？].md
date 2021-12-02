@@ -14883,3 +14883,42 @@ Revelations about the variant's existence in Europe before it was reported in Af
 所以呢？mrna平台的安全性已经不需要第二次临床来证明了，反正打都打了。无非是大老爷秉着少做少错，又不 ...</blockquote>
 mrna的平台工艺，理论上是平台工艺，实际上人类认知是有限的。质粒序列对于工艺性能是有影响的。polya长度会影响质粒传代稳定性，有些序列的特殊高级结构会导致super coiled form增加 导致原来用的线性化工艺不好用，有些特殊序列会引起nicking增多，导致截短杂质变多。最可气好多时候不是阴性阳性结果，是影响工艺稳定性，因此CEO都说我们这个很快，但底层技术人员能不能拿出来足够稳定的生产工艺还真是问题。
 
+
+
+*****
+
+####  國立中央大學  
+##### 1331#       发表于 2021-12-2 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778992&amp;ptid=2039422" target="_blank">你这瓜保熟吗 发表于 2021-12-2 09:04</a>
+
+得了吧，您老人家的屁股从外野到卓明谷无人不知无人不晓，在这理中客什么呢另外我只打了三句话， ...</blockquote>
+别辩了，一个觉得李文亮去世是好日子的傻逼。
+
+*****
+
+####  炙冰  
+##### 1332#       发表于 2021-12-2 11:39
+
+你们真闲，网上又不能物理交流还试图说服一个自认正确的负分坛友
+
+你看我负分我就不认为我说的是错的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  peculiar  
+##### 1333#       发表于 2021-12-2 11:40
+
+<blockquote>绿茶与猫 发表于 2021-12-2 03:51
+其实加粗就行了
+
+洗脑，洗脑</blockquote>
+草，学到了，简直视敏感词系统的目的为无物。
+
+*****
+
+####  Redis  
+##### 1334#       发表于 2021-12-2 11:41
+
+这楼感觉离被炸飞也不远了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
