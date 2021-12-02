@@ -6790,3 +6790,42 @@ syl这个是楼友吗？鸟频看见的</blockquote>
 
 琳姐这次要斩谁<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 3769#       发表于 2021-12-2 21:01
+
+来了来了
+
+*****
+
+####  袜子  
+##### 3770#       发表于 2021-12-2 21:02
+
+胆子最小的文静（指单刀杀到南京并掏出十页PPT）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3771#       发表于 2021-12-2 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天魔解体大法，指依靠割阑尾的勇气达成上述夺权成就
+
+*****
+
+####  希克苏鲁伯  
+##### 3772#       发表于 2021-12-2 21:17
+
+文静直言队友是祸害
+
+*****
+
+####  suzumiya123  
+##### 3773#       发表于 2021-12-2 21:20
+
+<img src="https://p.sda1.dev/3/feb6591011d9a34aafd3ff5e72b24e4b/IMG_CMP_21042255.jpeg" referrerpolicy="no-referrer">文件薄纱嘉然，文再赢！
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

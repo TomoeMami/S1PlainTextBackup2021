@@ -6534,3 +6534,24 @@ VI是六的意思，估计指的是大银妇，B5真的是完全没提到。
 这次好像就是日替池啊。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日替只有北斋和机娘啊
 
+
+
+*****
+
+####  khxooo  
+##### 84584#       发表于 2021-12-2 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787689&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-2 21:02</a>
+日替只有北斋和机娘啊</blockquote>
+草，ylssb<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 84585#       发表于 2021-12-2 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787695&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-2 21:03</a>
+
+草，ylssb</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">加角色幕间物语却不出角色的池子 下次伽摩池怕是要成为CCC那种了
+

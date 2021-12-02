@@ -15399,3 +15399,62 @@ https://i.ifeng.com/c/8BchWMv47Wl
 
 — from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  riczxc  
+##### 1373#         楼主| 发表于 2021-12-2 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787405&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-2 20:37</a>
+
+https://i.ifeng.com/c/8BchWMv47Wl
+
+彭博社：新冠奥密克戎变异株一定程度上证明中国清零策略是对的</blockquote>
+看到这个标题简直要笑死。成功了一年半的政策，现在才看出，脑子起码在300万公里以外，月球都嫌近了。
+
+补个链接。
+
+[https://www.bloomberg.com/news/a ... cron-closes-borders](https://www.bloomberg.com/news/articles/2021-11-30/china-basks-in-covid-zero-vindication-as-omicron-closes-borders)
+
+*****
+
+####  applelian  
+##### 1374#       发表于 2021-12-2 21:09
+
+这不完了
+
+阿三接力养蛊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 1375#       发表于 2021-12-2 21:12
+
+三哥不是号称90%的人都有抗体吗 大型试验看看康复者对欧米克隆效果如何
+绝佳的实验场所啊 点赞
+
+*****
+
+####  流浪的使徒  
+##### 1376#       发表于 2021-12-2 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787511&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-2 20:45</a>
+
+美国现在通胀压力除了大宗商品价格，还有供应链问题，故意渲染变种病毒危险性只会让供应链更加混乱，搞不 ...</blockquote>
+美国通胀是货币供应量剧增、供应链问题、大宗商品上涨等等问题叠加的结果，这些问题通过疫情相互联系又独立存在，打一个并不能解决掉通胀
+
+*****
+
+####  流浪的使徒  
+##### 1377#       发表于 2021-12-2 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787536&amp;ptid=2039422" target="_blank">super_uni 发表于 2021-12-2 20:48</a>
+
+加息就好了，这么麻烦干嘛，反正那些寡头都能提前知道消息
+
+— from OPPO PEGM00, Android 11 of  ...</blockquote>
+不会甘心的，加息不仅仅会引爆资本泡沫，还会加大财政债务利息负担，会用除了加息之外一切手段，失败之后再说
+
+但加息之外一切手段必然失败，因为中国不可能投降，时间就这么一点一点的丧失掉了
+
