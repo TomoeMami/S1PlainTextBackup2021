@@ -6902,3 +6902,87 @@ syl这个是楼友吗？鸟频看见的</blockquote>
 
 给海子姐新衣回让路，什么好女人
 
+
+
+*****
+
+####  rgauss  
+##### 3783#       发表于 2021-12-2 22:02
+
+鸟综输
+
+*****
+
+####  莫洛骑士  
+##### 3784#       发表于 2021-12-2 22:03
+
+ 本帖最后由 莫洛骑士 于 2021-12-2 10:14 编辑 
+
+s1又输麻了
+
+“来s1吗？”
+“不来啊，现在防御力有点低”
+
+*****
+
+####  希克苏鲁伯  
+##### 3785#       发表于 2021-12-2 22:05
+
+桀桀，妄称冲浪大手子，当v不看s1，就像四大名著不看斗罗大陆
+
+*****
+
+####  夜之中道崩殂  
+##### 3786#       发表于 2021-12-2 22:08
+
+鸟吧于之千鸟，犹如s1于之维阿
+
+*****
+
+####  袜子  
+##### 3787#       发表于 2021-12-2 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸟综日常，已经习惯了
+
+*****
+
+####  伞沢直美  
+##### 3788#       发表于 2021-12-2 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">桀桀，杀批还是太多了
+
+*****
+
+####  cherrydove  
+##### 3789#       发表于 2021-12-2 22:15
+
+“不了不了，我最近防御力低下”，看来是b综威名远扬了，影响了鸟综
+
+*****
+
+####  夜之中道崩殂  
+##### 3790#       发表于 2021-12-2 22:15
+
+捏麻麻的，明明现在s1鸟综是除了nga静楼最纯良的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 3791#       发表于 2021-12-2 22:15
+
+静静不来s1都是b综的锅<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 3792#       发表于 2021-12-2 22:16
+
+b综全责<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 3793#       发表于 2021-12-2 22:18
+
+b综都是铁血维阿信，其他v有啥讨论度
+
