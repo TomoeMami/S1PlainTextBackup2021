@@ -15306,3 +15306,17 @@ r0没有那么高，打了疫苗的delta r0没有8，我记得也就1.5～3的�
 
 你是觉得病人照顾病人在会重复感染的情况下没法？然而传染病本来就可重复感染，病症初期中和抗体还没起来呢，病人彼此是没有保护力的。
 
+
+
+*****
+
+####  柔福帝姬  
+##### 1366#       发表于 2021-12-2 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53786354&amp;ptid=2039422" target="_blank">東方仗助 发表于 2021-12-2 19:11</a>
+
+血清分型的出现意味着方舱医院方案被破掉了。
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 S1Next-鹅版 v2. ...</blockquote>
+国内没有大爆发，也不需要方舱医院啊。
+

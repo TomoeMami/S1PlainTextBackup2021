@@ -6429,3 +6429,67 @@ C848F593-CD94-4926-B94E-826A4353CFE0.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/02/190656a3r3wyuucru39utb.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 84578#       发表于 2021-12-2 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779639&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-12-2 09:55</a>
+
+你说的恐龙是哪个地方</blockquote>
+对不起，我这个人幻视非常严重，再加上丛林背景就不自觉地联想到恐龙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/02/192744l00zgz0o5o0g2l7g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211202_192532.jpg</strong> (310.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-2 19:27 上传
+
+其实这个章节标志只是玉藻的九条尾巴罢了，估计也没什么延伸意义...
+
+<img src="https://img.saraba1st.com/forum/202112/02/192745zy8y8kkii1z1dilx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211202_192718.jpg</strong> (271.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-2 19:27 上传
+
+*****
+
+####  Jamaisvu  
+##### 84579#       发表于 2021-12-2 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779845&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-2 10:10</a>
+
+灵长类杀手是芙芙，不是beast4。就好比快乐天是杀生院但不是beast3。beast4的理是比较，柯扬斯卡娅的理目 ...</blockquote>
+Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶，作为BeastⅣ候选者的高扬斯卡娅就是其中之一。
+
+这只高扬斯卡娅是『被人类迫害的东西・人类用于迫害的东西』之中的『用于迫害的东西』。
+
+BEAST的理是固定的吗？杀狐羁绊资料里说了是IV的候补。
+
+关于第五兽，根据提亚马特的资料：
+
+Nega Genesis：A
+
+与BeastⅥ拥有的『Nega Messiah』属于同类技能。
+
+能颠覆现有进化论、地球创世预言等等的概念结界。
+
+负有这个的BeastⅡ对从正确人类史中诞生的
+
+从者的宝具有极强的耐性。
+
+持有能力是“反弥赛亚（反救世主）”，感觉逼格更高一些。
+
+狐狸目前的能力好像主要是“人类互相伤害”这方面的，武器，战争，斗争，比较，第四兽的理说不定能理解为“恶性竞争”（我克制你克制我的克制），大概。
+
+...其实我也是瞎猜的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+新狐狸不知道还做不做，我感觉出一个第四兽候补的BEAST卡资料补些设定就差不多了，类似IIIL魔罗伽摩、IIIR快乐天祈荒....
+
