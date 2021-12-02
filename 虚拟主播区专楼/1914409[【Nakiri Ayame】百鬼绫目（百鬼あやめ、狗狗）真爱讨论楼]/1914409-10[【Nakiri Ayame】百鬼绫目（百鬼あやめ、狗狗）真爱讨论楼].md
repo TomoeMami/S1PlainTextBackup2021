@@ -983,3 +983,12 @@ There will be normal LoL stream at this rate
 
 半夜跑去团长那里吃锅然后又（回家？）开始打lol到底是什么奇怪的作息
 
+
+
+*****
+
+####  Fami水  
+##### 13599#       发表于 2021-12-2 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">危机感？ 好事
+

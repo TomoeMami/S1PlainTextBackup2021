@@ -14775,3 +14775,76 @@ Revelations about the variant's existence in Europe before it was reported in Af
 
 你这还不那几个有爹生没娘养的坛友，起码人不浪费时间，拜拜了你内。
 
+
+
+*****
+
+####  长弓破风  
+##### 1322#       发表于 2021-12-2 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778802&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-2 08:42</a>
+
+泥潭现在堕落到对线都喜欢给别人编一个目的来赢麻了？   下次直接赢麻了就行，不用打一大段字。
+
+ ...</blockquote>
+如果这真是你的目的，那么我建议你最好不要再提了。一、现在变种命名权在WHO手里，而且它也明确宣布了不会再用地名命名新的变种，目的就是为了防止防疫政治化和污名化；二、两年了，你还看不明白西方国家的政客们怀的什么坏心吗？他们不把疫情问题政治化污名化，那国内几百万感染者和十多万病亡者的锅就直接砸他们头上了好么。在这种情况下你觉得能有什么办法让他们冒政治生命甚至生物生命直接终结的风险来科学溯源、科学防疫？这是不可能达成的目标
+
+*****
+
+####  pushare  
+##### 1323#       发表于 2021-12-2 09:53
+
+南非12月1日新增8561,11月30日新增4373
+
+30-nov-tues.jpg
+(113.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-2 09:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/02/095305hmm7q1mqm4qm5qqm.jpg" referrerpolicy="no-referrer">
+
+01-dec-map.jpg
+(113.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-2 09:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/02/095313c7q4xmh7w5hz4l5q.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  66666  
+##### 1324#       发表于 2021-12-2 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779608&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-2 09:53</a>
+
+南非12月1日新增8561,11月30日新增4373</blockquote>
+反正要么是R0=30，要么是免疫逃逸，两个选项对如今的世界都非常糟糕
+
+*****
+
+####  战斗鸡  
+##### 1325#       发表于 2021-12-2 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779630&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-2 09:54</a>
+
+反正要么是R0=30，要么是免疫逃逸，两个选项对如今的世界都非常糟糕</blockquote>
+往好了想，至少不是两者皆是呗。
+
+*****
+
+####  TonyKnight  
+##### 1326#       发表于 2021-12-2 10:02
+
+额，前面看到“美国”，“熊市”这几个词，第一时间居然想到的美国浣熊市。。
+
+*****
+
+####  克鲁特尼  
+##### 1327#       发表于 2021-12-2 10:03
+
+高楼必出troll
+

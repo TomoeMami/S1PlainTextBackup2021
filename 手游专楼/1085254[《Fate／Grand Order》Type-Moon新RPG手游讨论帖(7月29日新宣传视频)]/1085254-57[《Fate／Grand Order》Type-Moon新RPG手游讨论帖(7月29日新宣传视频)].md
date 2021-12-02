@@ -6267,3 +6267,37 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">小怪的造型倒是挺整蛊的
 
+
+
+*****
+
+####  zakki  
+##### 84565#       发表于 2021-12-2 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779410&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-12-2 09:40</a>
+
+杀狐现在的位置也是补的梅林兽的空席。</blockquote>
+所以看不起还踩一脚前任不是挺正常的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我是不认为她会直接成为beast4，目前只说的是作为候选者诞生，而且理都和芙芙的不一样，我觉得最后还是会成beast5，不然beast5到现在一点儿线索都没有
+
+*****
+
+####  当光停止  
+##### 84566#       发表于 2021-12-2 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779546&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-2 09:48</a>
+
+所以看不起还踩一脚前任不是挺正常的吗不过我是不认为她会直接成为beast4，目前只说的是作为候选 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非灵长生存圈，再加上这堆枪，很多很多枪。
+
+不往灵长类杀手方向靠，我不信。
+
+*****
+
+####  真红眼教授  
+##### 84567#       发表于 2021-12-2 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53772750&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-1 17:25</a>
+
+不知道姆莉安有没有实装的机会，毕竟算是仅有的让杀狐动感情的角色。2.6里杀狐好像说过收集了一些有皮毛的 ...</blockquote>
+你说的恐龙是哪个地方
+
