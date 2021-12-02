@@ -14995,3 +14995,27 @@ mrna的平台工艺，理论上是平台工艺，实际上人类认知是有限�
 南非12月1日新增8561,11月30日新增4373</blockquote>
 直觉不妙，日死亡28人，对应的是两周前日感染几百不到1000的情况，这个死亡率有点高
 
+
+
+*****
+
+####  lvcha  
+##### 1340#       发表于 2021-12-2 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781612&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-2 11:58</a>
+
+污水监测技术</blockquote>
+以后处理尸体不能考虑下水道了
+
+*****
+
+####  yario  
+##### 1341#       发表于 2021-12-2 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781676&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-2 12:03</a>
+
+能，的确用过的。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+我们真是科学防控
+
