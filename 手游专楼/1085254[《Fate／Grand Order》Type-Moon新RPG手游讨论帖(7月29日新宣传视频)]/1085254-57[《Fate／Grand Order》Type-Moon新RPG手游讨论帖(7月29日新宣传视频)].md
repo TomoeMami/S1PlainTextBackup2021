@@ -6301,3 +6301,18 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 不知道姆莉安有没有实装的机会，毕竟算是仅有的让杀狐动感情的角色。2.6里杀狐好像说过收集了一些有皮毛的 ...</blockquote>
 你说的恐龙是哪个地方
 
+
+
+*****
+
+####  zakki  
+##### 84568#       发表于 2021-12-2 10:10
+
+ 本帖最后由 zakki 于 2021-12-2 10:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779618&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-12-2 09:53</a>
+
+非灵长生存圈，再加上这堆枪，很多很多枪。
+
+不往灵长类杀手方向靠，我不信。 ...</blockquote>
+灵长类杀手是芙芙，不是beast4。就好比快乐天是杀生院但不是beast3。beast4的理是比较，柯扬斯卡娅的理目前来看和比较不沾边。而且如果她是灵长类杀手，那她整个非灵长类的生存圈干嘛，一个都不克制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最关键的是beast5现在一点信息都没有，所以才奶柯扬斯卡娅最后还会是beast5，奶着玩而已反正月底也就知道了
+

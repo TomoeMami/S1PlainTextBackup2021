@@ -14848,3 +14848,27 @@ Revelations about the variant's existence in Europe before it was reported in Af
 
 高楼必出troll
 
+
+
+*****
+
+####  卡普空  
+##### 1328#       发表于 2021-12-2 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778566&amp;ptid=2039422" target="_blank">希远闹 发表于 2021-12-2 08:03</a>
+
+哈尔滨对主动核酸检测阳性人员奖励1万元#【#哈尔滨增1例本土确诊#、2例初筛阳性 对主动核酸检测结果为阳性 ...</blockquote>
+希望内蒙和云南跟进
+
+*****
+
+####  汽车屁  
+##### 1329#       发表于 2021-12-2 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778566&amp;ptid=2039422" target="_blank">希远闹 发表于 2021-12-2 08:03</a>
+
+哈尔滨对主动核酸检测阳性人员奖励1万元#【#哈尔滨增1例本土确诊#、2例初筛阳性 对主动核酸检测结果为阳性 ...</blockquote>
+好政策
+
+从健康角度，官帽角度，节约医疗资源角度，各方面讲都是一个多赢的政策
+
