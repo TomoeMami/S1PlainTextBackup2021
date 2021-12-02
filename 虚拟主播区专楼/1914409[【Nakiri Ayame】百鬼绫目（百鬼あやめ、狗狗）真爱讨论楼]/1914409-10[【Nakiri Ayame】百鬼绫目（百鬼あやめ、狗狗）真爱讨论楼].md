@@ -1001,3 +1001,15 @@ There will be normal LoL stream at this rate
 
 我不信
 
+
+
+*****
+
+####  昆西昆希昆  
+##### 13601#       发表于 2021-12-2 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778038&amp;ptid=1914409" target="_blank">寺川愛美 发表于 2021-12-2 02:35</a>
+
+報，梓豪熙和でぶ助不是同一個人，除非一個人操控2個帳號打同一場aram</blockquote>
+解锁新人物：绫总的孪生姐妹
+

@@ -24196,3 +24196,15 @@ cover要是愿意花钱愿意投入技术的话，给五人造一套和Codemiko�
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">gen6有专楼吗
 koyori设定有好多地方和ame有点像诶，加上ollie可以组成holo brains<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a1741128  
+##### 1499#       发表于 2021-12-2 19:13
+
+你有想法可以直接去
+[https://bbs.saraba1st.com/2b/thread-2018062-288-1.html](https://bbs.saraba1st.com/2b/thread-2018062-288-1.html)
+
+讨论
+
