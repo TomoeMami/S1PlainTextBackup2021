@@ -113,3 +113,14 @@
 我是LB离合A手刹B升X降。以前打FH4初学手离试过两种常见键位，感觉LB离合比A离合更容易习惯。尤其过急弯 ...</blockquote>
 A离合要上拇指肚了，真是不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 1511#       发表于 2021-12-2 07:50
+
+<blockquote>mwj 发表于 2021-12-1 08:22
+话说开场能重跑一遍吗？</blockquote>
+我记得就是其中一个showcase，地图上是个飞机图标那个，名字忘了，可以反复跑
+
