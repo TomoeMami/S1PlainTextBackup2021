@@ -6232,3 +6232,38 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 
 我只在乎出不出狐狸灵衣
 
+
+
+*****
+
+####  zakki  
+##### 84561#       发表于 2021-12-2 09:28
+
+ 本帖最后由 zakki 于 2021-12-2 09:32 编辑 
+
+我记得柯扬斯卡娅出典只有fgo吧，而且印象中是1.0终章才孕育出来的，按理来说不会和历史或者神话扯上什么关系。
+
+*****
+
+####  zakki  
+##### 84562#       发表于 2021-12-2 09:35
+
+话说当年2.0序章柯扬斯卡娅刚出场的时候踩芙芙，一堆人还喷你知道它是谁吗，你敢踩兽？现在回想，谁又不是呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 84563#       发表于 2021-12-2 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779325&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-2 09:35</a>
+
+话说当年2.0序章柯扬斯卡娅刚出场的时候踩芙芙，一堆人还喷你知道它是谁吗，你敢踩兽？现在回想，谁又不是 ...</blockquote>
+杀狐现在的位置也是补的梅林兽的空席。
+
+*****
+
+####  zore  
+##### 84564#       发表于 2021-12-2 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">小怪的造型倒是挺整蛊的
+

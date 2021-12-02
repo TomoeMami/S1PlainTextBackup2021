@@ -14760,3 +14760,18 @@ Revelations about the variant's existence in Europe before it was reported in Af
 
 希望您继续大力宣扬您的发现国命名权大计，毕竟某些人精神爹在抗疫上吃了大瘪没话说，只能讨讨嘴皮子功夫图个爽了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niceday  
+##### 1321#       发表于 2021-12-2 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779154&amp;ptid=2039422" target="_blank">你这瓜保熟吗 发表于 2021-12-2 09:19</a>
+那可是，您这300贴负300鹅的人，打起滚了确实一般人也说不过
+
+希望您继续大力宣扬您的发现国命名 ...</blockquote>
+真是又菜又爱玩啊，对线对半天，除了晒屁股之外一点啥都不会，就这？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">   
+
+你这还不那几个有爹生没娘养的坛友，起码人不浪费时间，拜拜了你内。
+
