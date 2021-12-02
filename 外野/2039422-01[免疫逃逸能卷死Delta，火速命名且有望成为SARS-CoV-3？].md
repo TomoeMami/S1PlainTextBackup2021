@@ -15188,3 +15188,44 @@ r0没有那么高，打了疫苗的delta r0没有8，我记得也就1.5～3的�
 之前拥有S:R346K的变异株包括：Mu、A.30（免疫逃逸排行榜Top 3）</blockquote>
 已经进入plus版了，omicron：我还能变身三次<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 1356#       发表于 2021-12-2 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53783474&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-2 14:44</a>
+
+按照波士顿圆脸的说法，南非25％完成两针德尔塔疫苗，所以这个高确诊率有可能是之前的疫苗对奥密克戎无效， ...</blockquote>
+不会两者皆有，因为这两者是相互矛盾的，r0高达30的前提是omicron没有免疫逃逸，被delta感染过一遍以后短时间内不会感染omicron，不然南非早就日增十万乃至百万了
+
+*****
+
+####  alyce  
+##### 1357#       发表于 2021-12-2 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778028&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-2 02:30</a>
+
+按南非的组织力度，实验做完了黄花菜都凉了 比如前阵子cns上证明口罩降低新冠的论文，科学研究有 ...</blockquote>
+第一阶段：我们宣称什么事都没有
+
+第二阶段：我们说也许有事发生，但不应该采取行动（要等确实的“证据”出来）
+
+第三阶段：也许我们应该采取行动，但什么都做不了（“证据”出来了，但没辙了）
+
+第四阶段：也许我们当初能做点什么，但现在已太迟了
+
+正在从二过渡到三<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 1358#       发表于 2021-12-2 15:14
+
+ 本帖最后由 汽车屁 于 2021-12-2 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53783776&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-2 15:09</a>
+
+不会两者皆有，因为这两者是相互矛盾的，r0高达30的前提是omicron没有免疫逃逸，被delta感染过一遍以后短 ...</blockquote>
+对，他说r0＝30，明显就是一个排除法，用一个明显高的不可思议的说法，来暗示是第一种可能
+
