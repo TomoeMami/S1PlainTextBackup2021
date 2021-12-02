@@ -15334,3 +15334,35 @@ lor新出的卡
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  狼影者瑞德克斯  
+##### 2903#       发表于 2021-12-2 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789224&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-12-2 23:24</a>
+
+lor新出的卡
+
+艾欧尼亚又出了个隐世高手</blockquote>
+诺克萨斯是政权完整民族基本团结的**“国家”，艾欧尼亚是人杰地灵制度落后鱼龙混杂内部矛盾重重的“地区”，组织性的差距导致了艾欧尼亚初期的一败再败
+
+*****
+
+####  大老虎  
+##### 2904#       发表于 2021-12-2 23:50
+
+泥潭著名指定婆罗门的总结终于来了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新的起源  
+##### 2905#       发表于 2021-12-3 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789433&amp;ptid=2002246" target="_blank">大老虎 发表于 2021-12-02 23:50:03</a></blockquote>一直在吐槽游戏环境
+
+所以今年拳头才禁止所有人啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

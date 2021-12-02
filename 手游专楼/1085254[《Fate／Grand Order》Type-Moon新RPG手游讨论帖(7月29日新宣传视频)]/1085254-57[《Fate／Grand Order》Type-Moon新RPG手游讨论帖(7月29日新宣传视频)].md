@@ -6564,3 +6564,12 @@ VI是六的意思，估计指的是大银妇，B5真的是完全没提到。
 
 喷了.....加雷斯幕间这什么OOC剧情.....把别人JJ拿掉就算了.....还自己又加了一段感情戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 84587#       发表于 2021-12-2 23:49
+
+不知不觉杀狐都这么多衣服了,很急<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
