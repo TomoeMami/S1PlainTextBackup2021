@@ -6737,3 +6737,37 @@ syl这个是楼友吗？鸟频看见的</blockquote>
 
 竹衣是谁?1.0?
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3763#       发表于 2021-12-2 19:46
+
+竹衣就是一个本来想去千鸟，结果没去的人。因为文静1.0要套皮了，所以被传成是她了，其实没关系。
+
+*****
+
+####  rgauss  
+##### 3764#       发表于 2021-12-2 19:47
+
+这鸟综不会只有我单推文静吧😨
+
+竹衣不就一蹭热度的 竹一这个是之前看到千鸟招人，萌生了当V的想法
+
+*****
+
+####  夜之中道崩殂  
+##### 3765#       发表于 2021-12-2 19:57
+
+贴吧烂透了，彭于晏也走了，还好我早跑了，现在一群ylg
+
+*****
+
+####  GAKOTO  
+##### 3766#         楼主| 发表于 2021-12-2 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53786940&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-2 19:57</a>
+贴吧烂透了，彭于晏也走了，还好我早跑了，现在一群ylg</blockquote>
+呃呃，你是？顺便你这名字是在说nbht吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

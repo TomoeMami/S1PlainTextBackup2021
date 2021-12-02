@@ -1013,3 +1013,19 @@ There will be normal LoL stream at this rate
 報，梓豪熙和でぶ助不是同一個人，除非一個人操控2個帳號打同一場aram</blockquote>
 解锁新人物：绫总的孪生姐妹
 
+
+
+*****
+
+####  stedckk  
+##### 13602#       发表于 2021-12-2 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">小号不是绫总，难道真的在天天练歌练舞？
+
+*****
+
+####  Fami水  
+##### 13603#       发表于 2021-12-2 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个小小的车队竟能有卧龙凤雏两位在一起
+
