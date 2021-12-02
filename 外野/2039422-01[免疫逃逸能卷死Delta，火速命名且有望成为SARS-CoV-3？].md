@@ -15087,3 +15087,28 @@ mrna的平台工艺，理论上是平台工艺，实际上人类认知是有限�
  ...</blockquote>
 美国发现一个变种，起名CSDF-HJK-INA-NKI-AOL，然后媒体全部简写china，你是打算让连最开始的武汉污名化称呼都阻止不了的WHO，去肃清美国媒体界吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wszweill  
+##### 1348#       发表于 2021-12-2 13:52
+
+ 本帖最后由 wszweill 于 2021-12-2 00:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781802&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-1 23:12</a>
+
+为啥没有继续用下去
+
+中国不像美国，遍地都是感染者，无法使用，这在中国应该是一个可以大规模普及的技术</blockquote>
+我觉得正相反，因为不是遍地感染者所以不好用。PCR也有检测极限，一个大区要只有一个新冠患者，那他的病毒RNA--下水道--抽样检测到，那他估计得把整个小区感染完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  塔奇克马  
+##### 1349#       发表于 2021-12-2 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53782870&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-2 13:52</a>
+
+我觉得正相反，因为不是遍地感染者所以不好用。PCR也有检测极限，一个大区要只有一个新冠患者，那他的病毒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">有点异形里喝下黑水化成汁投江那味了
+
