@@ -7052,3 +7052,44 @@ b综都是铁血维阿信，其他v有啥讨论度
 
 攻击性和阑子一块切割了吗？还是说大v来谨慎起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  憧憬鲨  
+##### 3802#       发表于 2021-12-3 00:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静在B综还是有讨论度的吧
+
+*****
+
+####  tankai  
+##### 3803#       发表于 2021-12-3 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53788238&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-2 21:48</a>
+
+给海子姐新衣回让路，什么好女人</blockquote>
+海子姐对待千鸟喷她的倭瓜小号和2060见面的队长比嫡系好唉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 3804#       发表于 2021-12-3 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53788366&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-2 22:03</a>
+
+s1又输麻了
+
+“来s1吗？”</blockquote>
+谁问得，是不是你？这不坑死鸟综了。虽然真的没用。
+
+*****
+
+####  tankai  
+##### 3805#       发表于 2021-12-3 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53788507&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-2 22:15</a>
+
+捏麻麻的，明明现在s1鸟综是除了nga静楼最纯良的</blockquote>
+可能文静好抽象那口。你越是黑她。她越兴奋。（什么神经质）
+

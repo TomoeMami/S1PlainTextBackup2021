@@ -15548,3 +15548,28 @@ Still, the zero-tolerance strategy China is clinging to has come under growing c
 笑死，你说的第一手专家消息就是例如那种来源福奇和米国cdc, 戴口罩没用之类的吗。这比自媒体都不如[f:03 ...</blockquote>
 那也比二手自媒体消息强啊，比如这位引用自媒体翻译彭博社账号，都不放原文的
 
+
+
+*****
+
+####  riczxc  
+##### 1386#         楼主| 发表于 2021-12-3 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789815&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 00:33</a>
+你这自媒体都不如的观点是怎么来的呢?因为美国cdc在口罩上面犯了错误,所以他们的公信力就不如自媒体了么? ...</blockquote>
+真正专家的自媒体我觉得比cdc要好，当然不能只看一个。
+
+cdc太政治了。(当然专家也政治，但是总是好点)。
+
+*****
+
+####  smy20011  
+##### 1387#       发表于 2021-12-3 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789941&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 00:51</a>
+
+真正专家的自媒体我觉得比cdc要好，当然不能只看一个。
+
+cdc太政治了。(当然专家也政治，但是总是好点)。 ...</blockquote>
+非专家自媒体以及非专业公众号呢?
+
