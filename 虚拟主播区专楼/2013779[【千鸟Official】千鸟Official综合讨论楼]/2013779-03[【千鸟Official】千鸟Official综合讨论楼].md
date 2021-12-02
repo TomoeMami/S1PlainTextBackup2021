@@ -7018,3 +7018,21 @@ b综都是铁血维阿信，其他v有啥讨论度
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">没有文静的锐评 这节目比在家里陪亲戚看电视还要坐牢
 
+
+
+*****
+
+####  四叶的花  
+##### 3798#       发表于 2021-12-3 00:10
+
+我就不一样了，有文静锐评我也看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3799#       发表于 2021-12-3 00:14
+
+文静噶了之后攻击力确实减弱了，看这期2060我甚至有点顶不住，没有静的嘲笑看节目很痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

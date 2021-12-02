@@ -15366,3 +15366,26 @@ lor新出的卡
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  狼影者瑞德克斯  
+##### 2906#       发表于 2021-12-3 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789433&amp;ptid=2002246" target="_blank">大老虎 发表于 2021-12-2 23:50</a>
+
+https://www.bilibili.com/video/av934517955
+
+泥潭著名指定婆罗门的总结终于来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行，他都自报家门是撸狗了。
+
+而且说实话他这期好多观点和说法我都在别的视频里听过，感觉这次就是随便扒了点网上舆论凑了凑，不是很用心，全视频价值最高的是开头关于LOL的冷笑话
+
+*****
+
+####  有优越感的人mk2  
+##### 2907#       发表于 2021-12-3 00:18
+
+这视频略有点敷衍吧，就说了一下剧情角色以及玩家想法，连制作都一笔带过了，不过也正常，这片子真要展开了一点一点抠细节估计能抠几个小时
+
