@@ -17157,3 +17157,53 @@ jp的gachi女粉整体疯批度和极端个体疯批度都遥遥领先</blockquo
 
 rrm主要是看king的人基本都已经很熟她了，类似叶子和叶，纯蹭起不到多大作用，得靠她自己整活，king最多也就能提供点曝光度
 
+
+
+*****
+
+####  hulaoda007  
+##### 8842#       发表于 2021-12-2 14:45
+
+说的好像rrm没联光君似的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 8843#       发表于 2021-12-2 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53783391&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-2 14:38</a>
+你这话就有点扯了，美夜子和774的熊都是吸到king就一瞬间突破了不小瓶颈，熊后夜祭那波甚至直接被送上卡 ...</blockquote>
+背叛是个什么烧法啊。
+没懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 8844#       发表于 2021-12-2 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53783391&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-2 14:38</a>
+
+你这话就有点扯了，美夜子和774的熊都是吸到king就一瞬间突破了不小瓶颈，熊后夜祭那波甚至直接被送上卡 ...</blockquote>
+濑户美夜子和rrm需求的血量还是有一定区别的啊
+
+更何况你说的那种不叫吸血，最多算引了一波流罢了
+
+吸血怎么也得是能持续通过这个获取粉丝的
+
+那king那里适合的人本来就很少啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天下雨  
+##### 8845#       发表于 2021-12-2 14:58
+
+ 本帖最后由 天下雨 于 2021-12-2 15:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53783539&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-2 14:49</a>
+
+背叛是个什么烧法啊。
+
+没懂</blockquote>
+她第一个大搞同期外联动+抛弃初中生的皮变身性感大姐姐+同期联动频率在世怜女其他人里偏低
+
+刚抛弃初中生皮搞类似SH世界观还去跟舞元贴贴那会儿烧得最厉害，后面小蓝也出门联动变多，小红也换了女大生的新衣，世怜女开始增加上官台节目频率之后她这儿的火势都没啥了，就剩下烧了太久变成扭曲黏着anti的那一小撮人
+

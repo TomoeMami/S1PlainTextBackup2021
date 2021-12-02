@@ -15170,3 +15170,21 @@ r0没有那么高，打了疫苗的delta r0没有8，我记得也就1.5～3的�
 
 估计是二者皆有
 
+
+
+*****
+
+####  最好不说  
+##### 1355#       发表于 2021-12-2 15:01
+
+拍老师的最新动态 <blockquote>Omicron被发现一个星期，
+
+已经开始出现第一批稳定的额外突变。
+
+其中最值得关注的是这货：刺突蛋白R346K。
+
+功能增益：免疫逃逸。
+
+之前拥有S:R346K的变异株包括：Mu、A.30（免疫逃逸排行榜Top 3）</blockquote>
+已经进入plus版了，omicron：我还能变身三次<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
