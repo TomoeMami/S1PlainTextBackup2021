@@ -15484,3 +15484,12 @@ A9972F66-43F4-4FA7-81F8-DDB90878A73E.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/02/220917bvn544vtctxj57xc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 1378#       发表于 2021-12-2 22:43
+
+那个什么唐可可的诱惑我就想起果皇贩毒，实在是……这配置太还原了，无论是动画还是现实都充满了样板戏，人类就是活在一个样板戏的世界<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

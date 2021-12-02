@@ -6555,3 +6555,12 @@ VI是六的意思，估计指的是大银妇，B5真的是完全没提到。
 草，ylssb</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">加角色幕间物语却不出角色的池子 下次伽摩池怕是要成为CCC那种了
 
+
+
+*****
+
+####  森兰丸  
+##### 84586#       发表于 2021-12-2 22:51
+
+喷了.....加雷斯幕间这什么OOC剧情.....把别人JJ拿掉就算了.....还自己又加了一段感情戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
