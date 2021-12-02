@@ -6561,3 +6561,15 @@ syl这个是楼友吗？鸟频看见的<img src="https://static.saraba1st.com/im
 
 已屏蔽逼乎全部vtb相关话题<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  魔法少女大头  
+##### 3746#       发表于 2021-12-2 08:14
+
+<img src="https://p.sda1.dev/3/2cf14c2d95c5f0f20b4de5dbc747355c/Screenshot_20211202_081334.jpg" referrerpolicy="no-referrer">
+解构是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

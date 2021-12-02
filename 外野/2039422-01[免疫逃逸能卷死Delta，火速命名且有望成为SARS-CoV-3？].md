@@ -14533,3 +14533,87 @@ vs
 
 艹 魔幻
 
+
+
+*****
+
+####  droople  
+##### 1304#       发表于 2021-12-2 08:06
+
+<blockquote>引用第1302楼希远闹于2021-12-02 08:03发表的  :
+
+哈尔滨对主动核酸检测阳性人员奖励1万元#【#哈尔滨增1例本土确诊#、2例初筛阳性 对主动核酸检测结果......</blockquote>
+@希远闹
+
+改成补贴会不会听上去好很多
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  希远闹  
+##### 1305#       发表于 2021-12-2 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778580&amp;ptid=2039422" target="_blank">droople 发表于 2021-12-2 08:06</a>
+
+@希远闹
+
+改成补贴会不会听上去好很多</blockquote>
+一万也算多的了 这补贴也太多了
+
+*****
+
+####  UnhappyTails  
+##### 1306#       发表于 2021-12-2 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53776446&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-12-1 22:03</a>
+据说新冠会损害神经系统是吧？我看这位症状挺严重的</blockquote>
+澳洲可是封国普查治疗一应俱全
+
+我看他这是幸灾乐祸
+
+你少对土澳新西兰这些地方的官员有什么期待，他们知道啥体面和规矩，搞不好就是不知道自己姓什么出来嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+白皮猪当官的还有几个有脑子的啊
+
+*****
+
+####  Vneet  
+##### 1307#       发表于 2021-12-2 08:11
+
+ 本帖最后由 Vneet 于 2021-12-2 08:16 编辑 
+
+的确魔幻，甚至有点吸引人"主动"中奖了。再加上国人被保护得太好了，大概很多人还意识不到问题的严重性，说不定真有侥幸的认为轻症没事还能白嫖一万。
+
+*****
+
+####  UnhappyTails  
+##### 1308#       发表于 2021-12-2 08:14
+
+作为一个医者福奇已经彻底失败了，除了在“进步派”美人面前刷流量他们根本没能阻止美国疫情的连续恶化
+
+那他只能靠做政客成功来弥补一下了，可以理解，关上一扇窗打开一扇门嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你这瓜保熟吗  
+##### 1309#       发表于 2021-12-2 08:22
+
+正确的抗疫方案:管控，封锁，流调，打疫苗，正视，合作
+楼里大手子提出的方案:给发现国命名权
+
+泥潭卧虎藏龙名不虚传<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛拉斯  
+##### 1310#       发表于 2021-12-2 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778562&amp;ptid=2039422" target="_blank">UnhappyTails 发表于 2021-12-2 08:03</a>
+自己放屁被人揭穿就气急败坏转进以后阿对对对
+
+熟悉的味道，nga可千万别关谭啊，不然这些废物就到处都是 ...</blockquote>
+懂了，美帝就是美帝，疫情都是假的，连欧米克容都不原意去美国
+
+你活在自己世界挺好的
+
