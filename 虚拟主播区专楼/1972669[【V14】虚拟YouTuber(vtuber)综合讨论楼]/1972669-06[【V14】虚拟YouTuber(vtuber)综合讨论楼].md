@@ -17317,3 +17317,37 @@ rrm主要是看king的人基本都已经很熟她了，类似叶子和叶，纯�
 
 同期这群人要是能起来，起码她将来想蹭男v热度，直接跟同期男的贴贴or叫上个男同期一起蹭就行了，同期在jp可是最大最好挡箭牌，这人其实还蛮精明的，应该不是没考虑
 
+
+
+*****
+
+####  dybang  
+##### 8855#       发表于 2021-12-2 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53784234&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-12-2 15:50</a>
+虹只有教授不是全职是社畜
+
+而且鲨妹跟红毛明显主播经验丰富，年纪大的两个文职明显是素人/只冲浪不下场的 ...</blockquote>
+我觉得性格比专业重要一些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">即使在虹很多人还是没到豁出去那一步，性格不适合播久了会有心理疾病
+
+*****
+
+####  OldGlory  
+##### 8856#       发表于 2021-12-2 16:05
+
+隔了一年确实麻烦，但又有什么办法呢？
+
+至于男v真火了同期女v想蹭到热度，我只想说这是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 8857#       发表于 2021-12-2 16:16
+
+ 本帖最后由 winda 于 2021-12-2 16:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53783391&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-2 14:38</a>
+你这话就有点扯了，美夜子和774的熊都是吸到king就一瞬间突破了不小瓶颈，熊后夜祭那波甚至直接被送上卡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论背叛还有跑去打榜的红色和查无此人的黄色
+绿色自己撕了设定喝酒是有问题，不过那几次她乱入社长打泰坦和mc不用敬语烧的理由倒也是明明白白
+光是因为背叛同期像赤色组织的森友，rofmao的kaida是不会烧到近2000的
+
