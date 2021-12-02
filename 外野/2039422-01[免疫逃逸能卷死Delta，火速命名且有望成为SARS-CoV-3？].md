@@ -15052,3 +15052,38 @@ mrna的平台工艺，理论上是平台工艺，实际上人类认知是有限�
 污水监测技术</blockquote>
 屎总一直在鼓吹这个
 
+
+
+*****
+
+####  smy20011  
+##### 1345#       发表于 2021-12-2 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53782532&amp;ptid=2039422" target="_blank">星之卡比 发表于 2021-12-2 13:20</a>
+
+我再说一次，楼内吵架的求你们去别的好吗？ 你们吵爽了，楼炸了，大家都没的新消息看了。还美其名曰变种本 ...</blockquote>
+这变种几乎不可能在中国传开,导致进这个楼的都是各种姿势想看美国笑话的键政人
+
+你把一堆建政人放到一起,不聊政治聊什么?
+
+新消息也没什么可看的,如果想看欧美笑话,观察者网可以看个够,如果想看事实,至少等两周之后才有结果
+
+*****
+
+####  greencement  
+##### 1346#       发表于 2021-12-2 13:34
+
+带着任务和干粮来搅混水的，不把福奇版美国钦定新冠 “时间线” 贯彻到底，怎么会走？
+
+*****
+
+####  历史之  
+##### 1347#       发表于 2021-12-2 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778802&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-2 08:42</a>
+
+泥潭现在堕落到对线都喜欢给别人编一个目的来赢麻了？   下次直接赢麻了就行，不用打一大段字。
+
+ ...</blockquote>
+美国发现一个变种，起名CSDF-HJK-INA-NKI-AOL，然后媒体全部简写china，你是打算让连最开始的武汉污名化称呼都阻止不了的WHO，去肃清美国媒体界吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
