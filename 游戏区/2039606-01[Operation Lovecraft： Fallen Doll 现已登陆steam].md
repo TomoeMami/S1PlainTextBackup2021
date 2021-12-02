@@ -1191,3 +1191,33 @@ closed beta开了，云鉴黄师们来冲一波了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  超人越神  
+##### 117#       发表于 2021-12-2 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53773222&amp;ptid=2039606" target="_blank">diablo5 发表于 2021-12-1 18:06</a>
+
+纳迪亚之宝现在是出完了吧，几个月前下载过一个汉化版，之后风头紧，就没有汉化组做了 ...</blockquote>
+没出完，还在更新，只是汉化组解散了没有新的汉化了
+
+*****
+
+####  Dgnic_  
+##### 118#       发表于 2021-12-2 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53785223&amp;ptid=2039606" target="_blank">超人越神 发表于 2021-12-2 17:04</a>
+没出完，还在更新，只是汉化组解散了没有新的汉化了</blockquote>
+完结了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">版本号不是一点几了么
+
+*****
+
+####  Dgnic_  
+##### 119#       发表于 2021-12-2 17:22
+
+ 本帖最后由 Dgnic_ 于 2021-12-2 17:23 编辑 
+
+风怒
+

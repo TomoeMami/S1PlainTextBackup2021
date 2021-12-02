@@ -6630,3 +6630,65 @@ syl这个是楼友吗？鸟频看见的</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">白日茶水间，我的白日茶水间
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 3752#       发表于 2021-12-2 17:24
+
+老阿姨的事业心，这个月该大茶特茶了(指茶水间<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3753#       发表于 2021-12-2 17:26
+
+夜间茶水间
+
+灌一肚皮水，晚上好起夜是吧
+
+*****
+
+####  灰色的狐狸  
+##### 3754#       发表于 2021-12-2 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这群人都干啥去了
+
+怎么没什么人播啊
+
+*****
+
+####  GAKOTO  
+##### 3755#         楼主| 发表于 2021-12-2 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53785583&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-2 17:29</a>
+这群人都干啥去了
+
+怎么没什么人播啊</blockquote>
+来看竹衣joy<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 3756#         楼主| 发表于 2021-12-2 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53785583&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-2 17:29</a>
+这群人都干啥去了
+
+怎么没什么人播啊</blockquote>
+来看竹衣joy<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3757#       发表于 2021-12-2 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53785583&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-2 17:29</a>
+这群人都干啥去了
+
+怎么没什么人播啊</blockquote>
+粉的早上播了，绿的中午发动态说出门了，黄的早上发了个动态，估计在赶论文，紫的请假了，白的是真的人间蒸发了
+<img src="https://p.sda1.dev/3/b1aed8aacd301eb9458961386c8b1bf8/IMG_CMP_40002607.jpeg" referrerpolicy="no-referrer">
+感觉她们是去录歌
+
