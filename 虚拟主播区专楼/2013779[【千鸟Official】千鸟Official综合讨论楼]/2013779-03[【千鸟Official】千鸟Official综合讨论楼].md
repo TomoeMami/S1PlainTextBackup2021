@@ -7093,3 +7093,14 @@ s1又输麻了
 捏麻麻的，明明现在s1鸟综是除了nga静楼最纯良的</blockquote>
 可能文静好抽象那口。你越是黑她。她越兴奋。（什么神经质）
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3806#       发表于 2021-12-3 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789927&amp;ptid=2013779" target="_blank">tankai 发表于 2021-12-2 12:49</a>
+谁问得，是不是你？这不坑死鸟综了。虽然真的没用。</blockquote>
+澄清下，不是我，因为我没米打sc
+

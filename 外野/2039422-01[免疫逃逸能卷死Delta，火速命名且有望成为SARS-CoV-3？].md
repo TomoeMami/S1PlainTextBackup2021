@@ -15573,3 +15573,34 @@ cdc太政治了。(当然专家也政治，但是总是好点)。
 cdc太政治了。(当然专家也政治，但是总是好点)。 ...</blockquote>
 非专家自媒体以及非专业公众号呢?
 
+
+
+*****
+
+####  riczxc  
+##### 1388#         楼主| 发表于 2021-12-3 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789962&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 00:54</a>
+非专家自媒体以及非专业公众号呢?</blockquote>
+如果有可查证的来源那其实也无所谓。
+
+*****
+
+####  smy20011  
+##### 1389#       发表于 2021-12-3 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790131&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 01:24</a>
+
+如果有可查证的来源那其实也无所谓。</blockquote>
+既然有可查证来源，为什么不直接用来源？
+
+*****
+
+####  柔福帝姬  
+##### 1390#       发表于 2021-12-3 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790149&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 01:28</a>
+
+既然有可查证来源，为什么不直接用来源？</blockquote>
+来源可能不是中文也不是英文还不是日文。
+
