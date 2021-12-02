@@ -24186,3 +24186,13 @@ cover要是愿意花钱愿意投入技术的话，给五人造一套和Codemiko�
 
 鲨鱼复活了！
 
+
+
+*****
+
+####  shimmy1996  
+##### 1498#       发表于 2021-12-2 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">gen6有专楼吗
+koyori设定有好多地方和ame有点像诶，加上ollie可以组成holo brains<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

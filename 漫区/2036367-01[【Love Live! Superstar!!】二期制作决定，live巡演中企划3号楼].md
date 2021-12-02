@@ -15317,3 +15317,13 @@ pay子自拍的滤镜实在是看不下去<img src="https://static.saraba1st.com
 
 2021-12-2 14:44 上传
 
+
+
+*****
+
+####  D麦林  
+##### 1371#       发表于 2021-12-2 18:53
+
+草 我翻译切片的时候还想难道这店名就叫cafe crepe club这么简单的吗我一定是听错了
+结果就是这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
