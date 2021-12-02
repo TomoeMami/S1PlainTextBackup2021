@@ -6493,3 +6493,12 @@ Nega Genesis：A
 
 新狐狸不知道还做不做，我感觉出一个第四兽候补的BEAST卡资料补些设定就差不多了，类似IIIL魔罗伽摩、IIIR快乐天祈荒....
 
+
+
+*****
+
+####  qixinno2  
+##### 84580#       发表于 2021-12-2 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不出个伽摩池么
+
