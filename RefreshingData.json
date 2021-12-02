@@ -136,9 +136,9 @@
     "newtitle": "[梦幻模拟战手游讨论帖【已全平台上线】Q群863247063]"
   },
   "1085254": {
-    "totalreply": 84570,
+    "totalreply": 84575,
     "title": "[《Fate／Grand Order》Type-Moon新RPG手游讨论帖(7月29日新宣传视频)]",
-    "lastedit": 1638422731,
+    "lastedit": 1638441105,
     "category": "手游专楼",
     "active": true,
     "newtitle": "[《Fate／Grand Order》Type-Moon新RPG手游讨论帖(7月29日新宣传视频)]"
@@ -412,8 +412,8 @@
     "title": "[再放送スレ]",
     "lastedit": 1638439267,
     "category": "虚拟主播区专楼",
-    "active": true,
-    "newtitle": "[世代交代]"
+    "active": false,
+    "newtitle": "[]"
   },
   "2013779": {
     "totalreply": 3757,
@@ -752,10 +752,10 @@
     "active": false
   },
   "2033655": {
-    "totalreply": 4434,
+    "totalreply": 4435,
     "title": "[DOTA2 TI11赛季转会期专楼]",
     "newtitle": "[DOTA2 TI11赛季专楼（7.30e版本更新，Marci登录游戏，无言之旅…]",
-    "lastedit": 1638439677,
+    "lastedit": 1638441015,
     "category": "游戏区",
     "active": true
   },
@@ -1034,10 +1034,10 @@
   "2035016": {
     "totalreply": 798,
     "title": "[2021年11月网文推荐交流帖]",
-    "newtitle": "[2021年11月网文推荐交流帖]",
+    "newtitle": "[]",
     "lastedit": 1638286068,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2034965": {
     "totalreply": 83,
@@ -1239,14 +1239,6 @@
     "category": "游戏区",
     "active": false
   },
-  "2035328": {
-    "totalreply": 73,
-    "title": "[xgppc的1刀三个月活动又开始啦]",
-    "newtitle": "[xgppc的1刀三个月活动又开始啦]",
-    "lastedit": 1636020434,
-    "category": "游戏区",
-    "active": false
-  },
   "2035607": {
     "totalreply": 123,
     "title": "[一个路由器固件作者魔怔了]",
@@ -1434,10 +1426,10 @@
   "2035765": {
     "totalreply": 712,
     "title": "[新生·原神综合讨论专楼（禁止新开讨论）]",
-    "newtitle": "[新生·原神综合讨论专楼（禁止新开讨论）]",
+    "newtitle": "[]",
     "lastedit": 1638346859,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2035764": {
     "totalreply": 176,
@@ -1746,10 +1738,10 @@
   "2035478": {
     "totalreply": 84,
     "title": "[国王排名漫画进度讨论贴]",
-    "newtitle": "[国王排名漫画进度讨论贴]",
+    "newtitle": "[]",
     "lastedit": 1638116701,
     "category": "漫区",
-    "active": true
+    "active": false
   },
   "2036105": {
     "totalreply": 167,
@@ -2850,10 +2842,10 @@
   "2036787": {
     "totalreply": 98,
     "title": "[各位老哥帮我看看还需要什么喷涂工具？]",
-    "newtitle": "[各位老哥帮我看看还需要什么喷涂工具？]",
+    "newtitle": "[]",
     "lastedit": 1637662035,
     "category": "漫区",
-    "active": true
+    "active": false
   },
   "2036983": {
     "totalreply": 220,
@@ -2890,10 +2882,10 @@
   "2037000": {
     "totalreply": 131,
     "title": "[（要素过多）威斯康星猎尼人在接受聆讯时当众大哭]",
-    "newtitle": "[（要素过多）威斯康星猎尼人在接受聆讯时当众大哭]",
+    "newtitle": "[]",
     "lastedit": 1637407604,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2037022": {
     "totalreply": 418,
@@ -3498,10 +3490,10 @@
   "2037446": {
     "totalreply": 97,
     "title": "[xbox series s怎么样]",
-    "newtitle": "[xbox series s怎么样]",
+    "newtitle": "[]",
     "lastedit": 1638096100,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2037451": {
     "totalreply": 73,
@@ -3546,10 +3538,10 @@
   "2036069": {
     "totalreply": 82,
     "title": "[剑藏名山，侠隐红尘—大宇双剑以外的早期DOS武侠游戏浅谈]",
-    "newtitle": "[剑藏名山，侠隐红尘—大宇双剑以外的早期DOS武侠游戏浅谈]",
+    "newtitle": "[]",
     "lastedit": 1637456849,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2037498": {
     "totalreply": 229,
@@ -3634,10 +3626,10 @@
   "2037573": {
     "totalreply": 115,
     "title": "[不是很理解欧美RPG游戏为啥要限制装备重量和数量]",
-    "newtitle": "[不是很理解欧美RPG游戏为啥要限制装备重量和数量]",
+    "newtitle": "[]",
     "lastedit": 1637296938,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2037506": {
     "totalreply": 78,
@@ -3706,10 +3698,10 @@
   "2037670": {
     "totalreply": 196,
     "title": "[黑暗之魂3风评为什么不如一代？]",
-    "newtitle": "[黑暗之魂3风评为什么不如一代？]",
+    "newtitle": "[]",
     "lastedit": 1637150756,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2037684": {
     "totalreply": 149,
@@ -3754,10 +3746,10 @@
   "2037688": {
     "totalreply": 122,
     "title": "[Dota2主播抓到一个＊＊女厕的女装变态狂]",
-    "newtitle": "[Dota2主播抓到一个＊＊女厕的女装变态狂]",
+    "newtitle": "[]",
     "lastedit": 1637196409,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2037703": {
     "totalreply": 94,
@@ -3930,10 +3922,10 @@
   "2037811": {
     "totalreply": 120,
     "title": "[媳妇终于答应我买电脑了]",
-    "newtitle": "[媳妇终于答应我买电脑了]",
+    "newtitle": "[]",
     "lastedit": 1637223825,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2037500": {
     "totalreply": 66,
@@ -4114,18 +4106,18 @@
   "2037854": {
     "totalreply": 85,
     "title": "[脱宅是因为越来越接受不了现在的日式思维？]",
-    "newtitle": "[脱宅是因为越来越接受不了现在的日式思维？]",
+    "newtitle": "[]",
     "lastedit": 1637154425,
     "category": "漫区",
-    "active": true
+    "active": false
   },
   "2037873": {
     "totalreply": 80,
     "title": "[塔那宇宙之微信视频故事]",
-    "newtitle": "[塔那宇宙之微信视频故事]",
+    "newtitle": "[]",
     "lastedit": 1637683580,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2037800": {
     "totalreply": 64,
@@ -4154,10 +4146,10 @@
   "2037941": {
     "totalreply": 161,
     "title": "[天津台直播事故现反转：女主持被批，知情人透露不是第…]",
-    "newtitle": "[天津台直播事故现反转：女主持被批，知情人透露不是第…]",
+    "newtitle": "[]",
     "lastedit": 1637201043,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2037932": {
     "totalreply": 78,
@@ -4170,10 +4162,10 @@
   "2037942": {
     "totalreply": 141,
     "title": "[分享两个摸鱼小网站]",
-    "newtitle": "[分享两个摸鱼小网站]",
+    "newtitle": "[]",
     "lastedit": 1637201240,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2037897": {
     "totalreply": 70,
@@ -4186,10 +4178,10 @@
   "2037959": {
     "totalreply": 221,
     "title": "[【TGA2021】这段知乎游戏圈的黑话该如何翻译？]",
-    "newtitle": "[【TGA2021】这段知乎游戏圈的黑话该如何翻译？]",
+    "newtitle": "[]",
     "lastedit": 1637314005,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2037979": {
     "totalreply": 67,
@@ -4218,10 +4210,10 @@
   "2037974": {
     "totalreply": 140,
     "title": "[“喂，叫你们院长接电话！ ”]",
-    "newtitle": "[“喂，叫你们院长接电话！ ”]",
+    "newtitle": "[]",
     "lastedit": 1637920948,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2037898": {
     "totalreply": 63,
@@ -4266,10 +4258,10 @@
   "2037954": {
     "totalreply": 64,
     "title": "[老猎人请求出战！]",
-    "newtitle": "[老猎人请求出战！]",
+    "newtitle": "[]",
     "lastedit": 1637403820,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2037827": {
     "totalreply": 65,
@@ -4402,26 +4394,26 @@
   "2038072": {
     "totalreply": 78,
     "title": "[这个真给看破防了，背着婴儿送外卖……]",
-    "newtitle": "[这个真给看破防了，背着婴儿送外卖……]",
+    "newtitle": "[]",
     "lastedit": 1637273256,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2038017": {
     "totalreply": 103,
     "title": "[感觉自己觉醒了新的xp——嗲嗲的京片子]",
-    "newtitle": "[感觉自己觉醒了新的xp——嗲嗲的京片子]",
+    "newtitle": "[]",
     "lastedit": 1637250244,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2038112": {
     "totalreply": 462,
     "title": "[隔壁泥潭NGA今天炸了。]",
-    "newtitle": "[隔壁泥潭NGA今天炸了。]",
+    "newtitle": "[]",
     "lastedit": 1638076935,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2038055": {
     "totalreply": 99,
@@ -5226,10 +5218,10 @@
   "2038461": {
     "totalreply": 107,
     "title": "[纵使疾风起，不破圣衣来!]",
-    "newtitle": "[纵使疾风起，不破圣衣来!]",
+    "newtitle": "[]",
     "lastedit": 1638092802,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2038532": {
     "totalreply": 135,
@@ -5386,18 +5378,18 @@
   "2038653": {
     "totalreply": 234,
     "title": "[二狗在微博被小仙女无情的围攻]",
-    "newtitle": "[二狗在微博被小仙女无情的围攻]",
+    "newtitle": "[]",
     "lastedit": 1637720618,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2038642": {
     "totalreply": 170,
     "title": "[【孽力反馈】女子走路低头玩手机，重重摔下楼梯后脑勺着地，路人男子冷漠]",
-    "newtitle": "[【孽力反馈】女子走路低头玩手机，重重摔下楼梯后脑勺…]",
+    "newtitle": "[]",
     "lastedit": 1637661830,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2038518": {
     "totalreply": 73,
@@ -5786,10 +5778,10 @@
   "2038867": {
     "totalreply": 249,
     "title": "[金庸主角颜值排名这样排是否合理]",
-    "newtitle": "[金庸主角颜值排名这样排是否合理]",
+    "newtitle": "[]",
     "lastedit": 1637816752,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2038727": {
     "totalreply": 63,
@@ -6536,10 +6528,10 @@
     "active": true
   },
   "2039346": {
-    "totalreply": 522,
+    "totalreply": 527,
     "title": "[上海苏州地区新疫情，晚上6点发布会，张文宏出席]",
     "newtitle": "[包邮区新一轮疫情，破案了，是国航]",
-    "lastedit": 1638439529,
+    "lastedit": 1638440891,
     "category": "外野",
     "active": true
   },
@@ -6672,10 +6664,10 @@
     "active": true
   },
   "2039422": {
-    "totalreply": 1362,
+    "totalreply": 1363,
     "title": "[免疫逃逸能卷死Delta，火速命名且有望成为SARS-CoV-3？]",
     "newtitle": "[Omicron变种免疫逃逸能卷赢Delta，爆发地婴幼儿入院占比10%]",
-    "lastedit": 1638437315,
+    "lastedit": 1638440896,
     "category": "外野",
     "active": true
   },
@@ -7610,10 +7602,10 @@
   "2039974": {
     "totalreply": 119,
     "title": "[联动表弟室友是艾滋的帖子，当自己身边人是艾滋的话，…]",
-    "newtitle": "[联动表弟室友是艾滋的帖子，当自己身边人是艾滋的话，…]",
+    "newtitle": "[]",
     "lastedit": 1638242909,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2039966": {
     "totalreply": 93,
@@ -7760,10 +7752,10 @@
     "active": true
   },
   "2039937": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[有没有日文原版书爱好者]",
     "newtitle": "[有没有日文原版书爱好者]",
-    "lastedit": 1638439630,
+    "lastedit": 1638440960,
     "category": "外野",
     "active": true
   },
@@ -8000,10 +7992,10 @@
     "active": true
   },
   "2040175": {
-    "totalreply": 298,
+    "totalreply": 299,
     "title": "[这个世代的游戏本简直是最水桶的游戏设备]",
     "newtitle": "[这个世代的游戏本简直是最水桶的游戏设备]",
-    "lastedit": 1638439644,
+    "lastedit": 1638440969,
     "category": "游戏区",
     "active": true
   },
@@ -8096,10 +8088,10 @@
     "active": true
   },
   "2040234": {
-    "totalreply": 263,
+    "totalreply": 264,
     "title": "[steam之类的PC平台对外行人来说还是太难了吗]",
     "newtitle": "[steam之类的PC平台对外行人来说还是太难了吗]",
-    "lastedit": 1638427403,
+    "lastedit": 1638441087,
     "category": "游戏区",
     "active": true
   },
@@ -8200,10 +8192,10 @@
     "active": true
   },
   "2040254": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[这位唯一住房加名给女方，离婚险些弄得自己被拘留了。]",
     "newtitle": "[这位唯一住房加名给女方，离婚险些弄得自己被拘留了。]",
-    "lastedit": 1638437257,
+    "lastedit": 1638441172,
     "category": "外野",
     "active": true
   },
@@ -8296,10 +8288,10 @@
     "active": true
   },
   "2040309": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[如果我国的制作公司出一部近现代战争题材的FPS,你最想要？]",
     "newtitle": "[如果我国的制作公司出一部近现代战争题材的FPS,你最想要？]",
-    "lastedit": 1638439745,
+    "lastedit": 1638441091,
     "category": "游戏区",
     "active": true
   },
@@ -8360,10 +8352,10 @@
     "active": true
   },
   "2040344": {
-    "totalreply": 96,
+    "totalreply": 102,
     "title": "[【四周年纪念】异度2的女性角色里，你更喜欢谁？]",
     "newtitle": "[【四周年纪念】异度2的女性角色里，你更喜欢谁？]",
-    "lastedit": 1638439657,
+    "lastedit": 1638441092,
     "category": "游戏区",
     "active": true
   },
@@ -8408,10 +8400,10 @@
     "active": true
   },
   "2040359": {
-    "totalreply": 132,
+    "totalreply": 133,
     "title": "[转隔壁某帖，大猛子引发行业改变？土木人不配当UP主！]",
     "newtitle": "[转隔壁某帖，大猛子引发行业改变？土木人不配当UP主！]",
-    "lastedit": 1638437266,
+    "lastedit": 1638440989,
     "category": "外野",
     "active": true
   },
@@ -8426,31 +8418,31 @@
   "2040383": {
     "totalreply": 121,
     "title": "[STEAM这次促销结束了，大家买了哪些游戏]",
-    "newtitle": "[STEAM这次促销结束了，大家买了哪些游戏]",
+    "newtitle": "[]",
     "lastedit": 1638434781,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2040372": {
-    "totalreply": 134,
+    "totalreply": 135,
     "title": "[胡锡进：呼吁联想高管降薪 将省下的钱用于增加研发]",
     "newtitle": "[胡锡进：呼吁联想高管降薪 将省下的钱用于增加研发]",
-    "lastedit": 1638439661,
+    "lastedit": 1638441176,
     "category": "外野",
     "active": true
   },
   "2040396": {
-    "totalreply": 220,
+    "totalreply": 221,
     "title": "[中国青年报：成不了何同学，又怎样呢？]",
     "newtitle": "[中国青年报：成不了何同学，又怎样呢？]",
-    "lastedit": 1638439789,
+    "lastedit": 1638441159,
     "category": "外野",
     "active": true
   },
   "2040161": {
     "totalreply": 71,
     "title": "[【第八期】张捷评联想系列视频]",
-    "newtitle": "[【第八期】张捷评联想系列视频]",
+    "newtitle": "[【第八期附番外滴滴文章】张捷评联想系列视频]",
     "lastedit": 1638416781,
     "category": "外野",
     "active": true
@@ -8466,10 +8458,10 @@
   "2040420": {
     "totalreply": 166,
     "title": "[华理女生，玉玉症来了]",
-    "newtitle": "[华理女生，玉玉症来了]",
+    "newtitle": "[]",
     "lastedit": 1638437333,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2040360": {
     "totalreply": 76,
@@ -8488,10 +8480,10 @@
     "active": false
   },
   "2040413": {
-    "totalreply": 164,
+    "totalreply": 167,
     "title": "[豆瓣回复功能暂停使用：涉及全部小组、12月17号恢复]",
     "newtitle": "[豆瓣回复功能暂停使用：涉及全部小组、12月17号恢复]",
-    "lastedit": 1638439826,
+    "lastedit": 1638440991,
     "category": "外野",
     "active": true
   },
@@ -8504,10 +8496,10 @@
     "active": true
   },
   "2040446": {
-    "totalreply": 111,
+    "totalreply": 112,
     "title": "[知乎答主秋原这爆料够猛的，这下可有得PTSD了]",
     "newtitle": "[知乎答主秋原这爆料够猛的，这下可有得PTSD了]",
-    "lastedit": 1638439662,
+    "lastedit": 1638440994,
     "category": "外野",
     "active": true
   },
@@ -8520,26 +8512,26 @@
     "active": true
   },
   "2040400": {
-    "totalreply": 72,
+    "totalreply": 74,
     "title": "[台州公职人员网购河豚毒素杀妻：为骗保还债，结婚系预谋]",
     "newtitle": "[台州公职人员网购河豚毒素杀妻：为骗保还债，结婚系预谋]",
-    "lastedit": 1638439664,
+    "lastedit": 1638440994,
     "category": "外野",
     "active": true
   },
   "2040311": {
     "totalreply": 71,
     "title": "[媲美指环王 奇幻大作 《时光之轮》 可以出个开放世界RPG吧]",
-    "newtitle": "[媲美指环王 奇幻大作 《时光之轮》 可以出个开放世界RPG吧]",
+    "newtitle": "[]",
     "lastedit": 1638434702,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   "2040365": {
-    "totalreply": 72,
+    "totalreply": 75,
     "title": "[建个关于如何做游戏类UP主的讨论楼吧（非具体UP楼）]",
     "newtitle": "[建个关于如何做游戏类UP主的讨论楼吧（非具体UP楼）]",
-    "lastedit": 1638439665,
+    "lastedit": 1638441095,
     "category": "游戏区",
     "active": true
   },
@@ -8552,18 +8544,26 @@
     "active": true
   },
   "2040296": {
-    "totalreply": 64,
+    "totalreply": 67,
     "title": "[这个大王饶命的OP看着还行啊]",
     "newtitle": "[这个大王饶命的OP看着还行啊]",
-    "lastedit": 1638437121,
+    "lastedit": 1638441095,
     "category": "漫区",
     "active": true
   },
   "2040497": {
-    "totalreply": 131,
+    "totalreply": 150,
     "title": "[男子在上海一大厦圈养十几名＊＊，残忍手段令人咋舌]",
     "newtitle": "[男子在上海一大厦圈养十几名＊＊，残忍手段令人咋舌]",
-    "lastedit": 1638439672,
+    "lastedit": 1638441099,
+    "category": "外野",
+    "active": true
+  },
+  "2040385": {
+    "totalreply": 62,
+    "title": "[不想一死了之，想公开输出负能量，求指导，]",
+    "newtitle": "[不想一死了之，想公开输出负能量，求指导，]",
+    "lastedit": 1638441102,
     "category": "外野",
     "active": true
   }
