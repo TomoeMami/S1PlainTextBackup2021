@@ -15604,3 +15604,406 @@ cdc太政治了。(当然专家也政治，但是总是好点)。 ...</blockquot
 既然有可查证来源，为什么不直接用来源？</blockquote>
 来源可能不是中文也不是英文还不是日文。
 
+
+
+*****
+
+####  smy20011  
+##### 1391#       发表于 2021-12-3 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790178&amp;ptid=2039422" target="_blank">柔福帝姬 发表于 2021-12-3 01:34</a>
+
+来源可能不是中文也不是英文还不是日文。</blockquote>
+有机器翻译
+
+*****
+
+####  lipo  
+##### 1392#       发表于 2021-12-3 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789815&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 00:33</a>
+你这自媒体都不如的观点是怎么来的呢?因为美国cdc在口罩上面犯了错误,所以他们的公信力就不如自媒体了么? ...</blockquote>
+他们敢在口罩这种小问题上为了政治撒谎，为什么就不会因为其它政治原因撒谎？全世界又不是只有米国cdc和自媒体能说话。
+
+*****
+
+####  smy20011  
+##### 1393#       发表于 2021-12-3 02:12
+
+一手可信数据
+
+1. 各国cdc官网的感染数据,传播数据以及变种数据
+
+2. 经过同行评审过的论文
+
+以上数据是最可信的,所有其他的讨论都是基于上面数据的,如果你觉的这些数据不可信,那么其他讨论也就完全不可信
+
+一手信息/观点
+
+1. 专家公众平台上的完整发言
+
+2. cdc提出的指导意见
+
+这些信息是来自于有专业素养的人的发言,但是会受到政治影响
+
+正规二手信息: 正规媒体转述和编译的专家发言/论文结果/数据
+
+这些信息的问题是,媒体转述,翻译的时候会删减专家发言中的事实,以适应媒体本身的偏见,然而作为一个正规媒体,修改或者曲解专家发言的情况不多见
+
+垃圾二手信息: 媒体为了迎合自己观众,编造或者扭曲事实
+
+这些媒体为了设置某种议题,罔顾事实的进行编造,比如各种保守派媒体反对疫苗
+
+推特/微博小道消息: 完全没有可信度
+
+*****
+
+####  smy20011  
+##### 1394#       发表于 2021-12-3 02:14
+
+如果你转载一个新闻,却没有任何链接让人能对这新闻的信源进行查证,那这新闻也没有什么可信度了
+
+*****
+
+####  smy20011  
+##### 1395#       发表于 2021-12-3 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790293&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-3 01:59</a>
+
+他们敢在口罩这种小问题上为了政治撒谎，为什么就不会因为其它政治原因撒谎？全世界又不是只有米国cdc和 ...</blockquote>
+美国Cdc不可信的话,那你信不信美国cdc说美国感染变种了呢? 口罩可以被政治影响,难道变种数据就不能被影响么?
+
+如果你不信cdc的数据,连讨论变种的基础都不存在
+
+*****
+
+####  nanrendu  
+##### 1396#       发表于 2021-12-3 02:52
+
+圆脸每次都有给出处的自媒体，疫情期间对专业术语查询无门的人来说，能帮助理解很多医学概念。他不能和一般自媒体等同而论吧？很多专业人士不可能坚持去向普通人科普医学上的专业问题，如果他的分析有什么错误可以指出来的，没必要一棒子打死。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nanrendu  
+##### 1397#       发表于 2021-12-3 03:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790353&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 02:17</a>
+美国Cdc不可信的话,那你信不信美国cdc说美国感染变种了呢? 口罩可以被政治影响,难道变种数据就不能被影响 ...</blockquote>
+为什么要只相信他们的数据？如果我们只相信他们的数据的话，中国就应该背这个黑锅。
+我还记得很清楚，疫情刚开始，想用毒株来溯源的时候，有的专家说过， 目前还无法分析新冠毒株是哪个变异出哪个，中国也并不是最初的变异种。当时的图表箭头指向中国是其中之一分支而已。后面舆论越来越奇怪，在没有任何新的证据的情况下，图表里面武汉直接简单粗暴就变成了溯源的源头。震撼了我的三观，你觉得亲眼见证的我能相信他们所谓的专业数据？
+凭什么只在中国，而美国不开放溯源，科学么？美国不是源头的专业数据在哪儿？压住过去的样品不给开放，把事儿摁死了，等100年后再给中国翻案有屁用吗？当西方的专业性已经失去科学客观时候，也只能把他们的数据当成一种参考。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  smy20011  
+##### 1398#       发表于 2021-12-3 03:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790440&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-3 03:03</a>
+
+为什么要只相信他们的数据？如果我们只相信他们的数据的话，中国就应该背这个黑锅。
+
+我还记得很清楚，疫 ...</blockquote>
+不相信数据你怎么讨论变种疫情？
+
+*****
+
+####  nanrendu  
+##### 1399#       发表于 2021-12-3 03:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790444&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 03:05</a>
+不相信数据你怎么讨论变种疫情？</blockquote>
+不想只相信他们的数据，有问题吗？
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  riczxc  
+##### 1400#         楼主| 发表于 2021-12-3 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790339&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 02:12</a>
+
+一手可信数据
+
+1. 各国cdc官网的感染数据,传播数据以及变种数据
+
+2. 经过同行评审过的论文</blockquote>
+我不是说你说得不对，但是你知道疫情初期美国的疫情数据是一亩三分地负责汇总的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 1401#       发表于 2021-12-3 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790450&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-3 03:07</a>
+
+不想只相信他们的数据，有问题吗？
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+想讨论美国疫情，你能找出一个比美国cdc更准确的信源么?
+
+*****
+
+####  smy20011  
+##### 1402#       发表于 2021-12-3 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790453&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:08</a>
+
+我不是说你说得不对，但是你知道疫情初期美国的疫情数据是一亩三分地负责汇总的吗？
+
+ ...</blockquote>
+汇总的是地方cdc的数据啊
+
+*****
+
+####  riczxc  
+##### 1403#         楼主| 发表于 2021-12-3 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790454&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 03:08</a>
+想讨论美国疫情，你能找出一个比美国cdc更准确的信源么?</blockquote>
+见上<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 1404#         楼主| 发表于 2021-12-3 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790456&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 03:09</a>
+汇总的是地方cdc的数据啊</blockquote>
+是的，但是就是连及时汇总都做不到。草台度爆满。
+
+*****
+
+####  smy20011  
+##### 1405#       发表于 2021-12-3 03:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790462&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:10</a>
+
+是的，但是就是连汇总都做不到。</blockquote>
+现在讨论的是cdc数据是不是可信,如果不可信,一亩三分地的数据汇总也不可信啊
+
+你认可一亩三分地的数据,是因为你相信cdc的数据
+
+一亩三分地是做了数据汇总不假,但是这样证明了cdc的数据的可信性
+
+*****
+
+####  柔福帝姬  
+##### 1406#       发表于 2021-12-3 03:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790453&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:08</a>
+
+我不是说你说得不对，但是你知道疫情初期美国的疫情数据是一亩三分地负责汇总的吗？
+
+ ...</blockquote>
+一亩三分地绝对是美国的大恶人，本来美国根本不想统计和公布全国性的整体疫情数据，结果现在弄的人尽皆知美国因为新冠死了80万人。
+
+*****
+
+####  riczxc  
+##### 1407#         楼主| 发表于 2021-12-3 03:14
+
+ 本帖最后由 riczxc 于 2021-12-3 03:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790466&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 03:11</a>
+
+现在讨论的是cdc数据是不是可信,如果不可信,一亩三分地的数据汇总也不可信啊
+
+你认可一亩三分地的数据,是 ...</blockquote>
+
+那段时间，是CDC汇总的数据太烂被骂了，一亩三分地才成为官方的推荐。
+
+也就是说，在一段时间内，一亩三分地比美国全国CDC的数据更权威，因为标明了来源是地方CDC。
+
+同样草台的情况，貌似德国RKI也出现过。
+
+*****
+
+####  smy20011  
+##### 1408#       发表于 2021-12-3 03:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790469&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:14</a>
+
+那段时间，是CDC汇总的数据太烂被骂了，一亩三分地才成为官方的推荐。
+
+也就是说，在一段时间内，一亩三 ...</blockquote>
+不是,你想证明什么?
+
+如果你认为cdc数据可信,又有什么好辩论的呢?
+
+*****
+
+####  riczxc  
+##### 1409#         楼主| 发表于 2021-12-3 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790474&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 03:17</a>
+
+不是,你想证明什么?
+
+如果你认为cdc数据可信,又有什么好辩论的呢?</blockquote>
+就是美国全国CDC放在网站上的数据不可信了，所以才需要一亩三分地。
+
+在这里，原始信源是地方的CDC。地方CDC数据权威可信，不说明全国的CDC数据可信。
+
+你的CDC指的是全国CDC，还是地方的CDC？
+
+话不能说得太满。
+
+*****
+
+####  柔福帝姬  
+##### 1410#       发表于 2021-12-3 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790462&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:10</a>
+
+是的，但是就是连及时汇总都做不到。草台度爆满。</blockquote>
+不是做不到，是不想做，美国疫情前期可是出过america yes的。
+
+
+
+*****
+
+####  smy20011  
+##### 1411#       发表于 2021-12-3 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790483&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:20</a>
+
+就是美国全国CDC放在网站上的数据不可信了，所以才需要一亩三分地。
+
+在这里，原始信源是地方的CDC。地方 ...</blockquote>
+我说的是全世界各国个地方政府cdc发布的疫情实时数据
+
+cdc当初的数据不是不准,而是慢
+
+*****
+
+####  riczxc  
+##### 1412#         楼主| 发表于 2021-12-3 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790486&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 03:23</a>
+
+我说的是全世界各国个地方政府cdc发布的疫情实时数据
+
+cdc当初的数据不是不准,而是慢 ...</blockquote>
+慢不就不权威了？疫情大爆发了还歌舞升平，这就是错误。中国人口四万万还有总和生育率2.1都是权威数据，不过旧了一点而已。
+
+*****
+
+####  smy20011  
+##### 1413#       发表于 2021-12-3 03:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790495&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:26</a>
+
+慢不就不权威了？疫情大爆发了还歌舞升平，这就是错误。中国人口四万万还有总和生育率2.1都是权威数据， ...</blockquote>
+中国1900年人口4万万,就是权威数据啊
+
+数据都需要有时间限制,难道不是么?
+
+*****
+
+####  riczxc  
+##### 1414#         楼主| 发表于 2021-12-3 03:40
+
+ 本帖最后由 riczxc 于 2021-12-3 03:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790499&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 03:29</a>
+
+中国1900年人口4万万,就是权威数据啊
+
+数据都需要有时间限制,难道不是么?</blockquote>
+
+假设这个4万万是挂在国家统计局的网站每日更新数据上，那不就搞笑了？
+
+CDC就是干了这件事情，不信自己看去年3月5号，数据差了1倍
+
+https://web.archive.org/web/20200305095435/https://www.cdc.gov/coronavirus/2019-ncov/cases-in-us.html
+
+https://web.archive.org/web/20200305083445/https://coronavirus.1point3acres.com/en
+
+*****
+
+####  lipo  
+##### 1415#       发表于 2021-12-3 04:18
+
+ 本帖最后由 lipo 于 2021-12-3 04:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790353&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 02:17</a>
+美国Cdc不可信的话,那你信不信美国cdc说美国感染变种了呢? 口罩可以被政治影响,难道变种数据就不能被影响 ...</blockquote>
+你的逻辑学的有问题，低置信度又不代表否命题一定成立。你们天天讲zf公信力崩溃也没硬是反着来找屎吃么。
+
+当然我的确不太相信cdc公布的数据，就米国中部大农村那种人死鸟朝天的光棍精神，数据永远都是低估。
+
+*****
+
+####  smy20011  
+##### 1416#       发表于 2021-12-3 04:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790543&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-3 04:18</a>
+
+你的逻辑学的有问题，低置信度又不代表否命题一定成立。你们天天讲zf公信力崩溃也没硬是反着来找屎吃么。 ...</blockquote>
+首先“你们”是谁？我在论坛上吹水，怎么就多了一个人了？
+
+第二，如果你觉得CDC数据可信度低，那么你如何有说服力的证明美国本土存在新变种，甚至说美国本土存在新冠呢？
+
+*****
+
+####  smy20011  
+##### 1417#       发表于 2021-12-3 04:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790511&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 03:40</a>
+
+假设这个4万万是挂在国家统计局的网站每日更新数据上，那不就搞笑了？
+
+CDC就是干了这件事情，不信自己看 ...</blockquote>
+CDC官网：This page will be updated regularly at noon Mondays through Fridays. Numbers close out at 4 p.m. the day before reporting.
+
+一亩三分地：Last updated at : 2020-03-04 23:29
+
+你是不是没搞清楚更新的规则啊？
+
+*****
+
+####  烦死了  
+##### 1418#       发表于 2021-12-3 05:37
+
+这是圆脸PTSD了 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L.L  
+##### 1419#       发表于 2021-12-3 05:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圆脸ptsd都有还行。
+
+*****
+
+####  lipo  
+##### 1420#       发表于 2021-12-3 05:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790567&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 04:51</a>
+首先“你们”是谁？我在论坛上吹水，怎么就多了一个人了？
+
+第二，如果你觉得CDC数据可信度低，那么你如何 ...</blockquote>
+那你如何证明你没吃屎呢？玩滑坡谁不会啊，再次证明你高等教育阶段都是睡过去了（前提是有的话）。
+
+*****
+
+####  smy20011  
+##### 1421#       发表于 2021-12-3 06:00
+
+ 本帖最后由 smy20011 于 2021-12-3 06:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790622&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-3 05:56</a>
+
+那你如何证明你没吃屎呢？玩滑坡谁不会啊，再次证明你高等教育阶段都是睡过去了（前提是有的话）。 ...</blockquote>
+？请你说明一下，在不相信CDC的前提下，如何证明美国存在新冠变种感染
+
+*****
+
+####  lipo  
+##### 1422#       发表于 2021-12-3 06:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790626&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 06:00</a>
+？请你说明一下，在不相信CDC的前提下，如何证明美国存在新冠变种感染</blockquote>
+？请你说明一下，如何证明你没吃屎？
+

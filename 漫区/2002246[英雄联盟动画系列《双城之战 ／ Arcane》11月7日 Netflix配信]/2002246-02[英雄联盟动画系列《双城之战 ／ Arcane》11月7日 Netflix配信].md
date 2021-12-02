@@ -15554,3 +15554,92 @@ https://www.bilibili.com/video/av934517955
 
 <img src="https://img.saraba1st.com/forum/202112/03/012917nbdy6pmdp66eccfk.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bairn  
+##### 2911#       发表于 2021-12-3 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789224&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-12-2 23:24</a>
+
+lor新出的卡
+
+艾欧尼亚又出了个隐世高手</blockquote>
+然并卵  艾欧尼亚就是古希腊各个城邦  互相之间只在刀妹领导下团结了一次
+
+*****
+
+####  飞升之后  
+##### 2912#       发表于 2021-12-3 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790250&amp;ptid=2002246" target="_blank">bairn 发表于 2021-12-3 01:48</a>
+
+然并卵  艾欧尼亚就是古希腊各个城邦  互相之间只在刀妹领导下团结了一次 ...</blockquote>
+艾欧尼亚很多高人估计不理会世俗的
+
+*****
+
+####  Siran_China  
+##### 2913#       发表于 2021-12-3 02:03
+
+Amanda参与过真探编剧啊，怪不得故事质量过硬，也是个跨界编剧啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Siran_China  
+##### 2914#       发表于 2021-12-3 02:08
+
+ 本帖最后由 Siran_China 于 2021-12-3 02:13 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/03/020822icljy3y43mcc3brr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-03-02-05-43-51.jpg</strong> (235.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-3 02:08 上传
+
+Bangumi上这篇最近的剧评写得挺好的，有条有理，有自己的一套观点和逻辑。不过我个人并不怎么同意作者的观点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双城的剧本还是配得上制作的
+
+*****
+
+####  飞升之后  
+##### 2915#       发表于 2021-12-3 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790324&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-12-03 02:08:24</a>
+双城的剧本还是配得上制作的</blockquote>必竟是以人物为核心的动画
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  唧唧歪歪办事处  
+##### 2916#       发表于 2021-12-3 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790324&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-12-3 02:08</a>
+
+Bangumi上这篇最近的剧评写得挺好的，有条有理，有自己的一套观点和逻辑。不过我个人并不怎么同意作者的观 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">双城的剧本,基本算是打磨中的打磨没法在好的那种........
+
+*****
+
+####  阿刚  
+##### 2917#       发表于 2021-12-3 03:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">有英雄背景这个大框架在，能基本保持原有剧情逻辑还能把整个故事穿起来已经做得很不容易了……基本上所有人物吃书都是吃在小地方了
+
+*****
+
+####  FFFia  
+##### 2918#       发表于 2021-12-3 03:52
+
+ 本帖最后由 FFFia 于 2021-12-3 04:35 编辑 
+
+他说的问题是存在，差不多就是有些角色过于工具人化，为了金克丝线的完整性cut掉了太多有讲述余地的故事，支线写的余味不足。不过剧情整体架构已经很强了，能感受到编剧很大一部分精力放在情节的对称与呼应上了。
+
+个人觉得塑造最失败的就爆爆那俩玩伴，他指出的其他配角，女助手太次要，肯给暗恋的伏线已足够，警长线两代警长的呼应基本完成。这么看其实次要的人物线除了余味差一点，算是物尽其用了。
+
+金克丝线的强势是取舍层面的问题，我觉得脚本选择深挖核心人物肯定是对的，次要配角的故事该cut就cut写得糙点也没办法了。第二季故事全面铺开，再去塑造jinx这个最复杂的角色肯定来不及。那篇评论说成剧本要给其他人磕头的程度我觉得不至于，制作水准日本那边肯定可以打，但这剧本现在日本人绝对写不来。
+
