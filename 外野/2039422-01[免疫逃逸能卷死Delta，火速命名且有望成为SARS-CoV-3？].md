@@ -15458,3 +15458,18 @@ https://i.ifeng.com/c/8BchWMv47Wl
 
 但加息之外一切手段必然失败，因为中国不可能投降，时间就这么一点一点的丧失掉了
 
+
+
+*****
+
+####  飞侠小黑  
+##### 1378#       发表于 2021-12-2 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787405&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-2 20:37</a>
+https://i.ifeng.com/c/8BchWMv47Wl
+
+彭博社：新冠奥密克戎变异株一定程度上证明中国清零策略是对的</blockquote>
+美国需要的大宗只有石油，其他需要的是中国的产品，而中国产品我觉得无论大宗涨不涨，国内产品是一定要涨的
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
