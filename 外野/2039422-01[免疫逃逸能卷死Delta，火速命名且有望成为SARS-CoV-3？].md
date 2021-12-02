@@ -16186,3 +16186,51 @@ CDC也不是都是准确的 自己也要根据情况判断 比如CDC说本土有
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  03e7  
+##### 1436#       发表于 2021-12-3 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790637&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-3 06:09</a>
+
+一些专家认为Omicron变体可能是在动物宿主中进化而来
+
+当Covid-19变体出现时，公认的观点是，它们所包含的 ...</blockquote>
+斯普林特老师：你礼貌吗
+
+*****
+
+####  configxxxx  
+##### 1437#       发表于 2021-12-3 07:30
+
+<blockquote>riczxc 发表于 2021-12-3 07:11
+没有办法啊，现在大家都在等数据。</blockquote>
+啊，已经过去一个礼拜了，各国也都发现了这个变种，我还以为一些相关的基础数据会有更新呢，从前到后看下来似乎还是南非一张ppt？
+
+*****
+
+####  smy20011  
+##### 1438#       发表于 2021-12-3 07:35
+
+<blockquote>configxxxx 发表于 2021-12-3 07:30
+啊，已经过去一个礼拜了，各国也都发现了这个变种，我还以为一些相关的基础数据会有更新呢，从前到后看下 ...</blockquote>
+招募志愿者，抽血清，培养病毒，做抗体中和测试，都需要时间，所以现在只能等。
+
+*****
+
+####  riczxc  
+##### 1439#         楼主| 发表于 2021-12-3 07:35
+
+ 本帖最后由 riczxc 于 2021-12-3 07:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790776&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-3 07:30</a>
+
+啊，已经过去一个礼拜了，各国也都发现了这个变种，我还以为一些相关的基础数据会有更新呢，从前到后看下 ...</blockquote>
+
+南非入院数在上升啊。单克隆抗体的确不行了。
+
+要多谢南非科学家速度快，所以我们才没有戏看。
+
+本来疫情就是慢慢来的，像货运火车撞墙一样，慢慢但坚定地。
+
