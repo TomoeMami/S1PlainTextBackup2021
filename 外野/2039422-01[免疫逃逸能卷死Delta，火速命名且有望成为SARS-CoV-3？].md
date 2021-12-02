@@ -14952,3 +14952,46 @@ mrna的平台工艺，理论上是平台工艺，实际上人类认知是有限�
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  汽车屁  
+##### 1337#       发表于 2021-12-2 12:12
+
+ 本帖最后由 汽车屁 于 2021-12-2 12:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781676&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-2 12:03</a>
+
+能，的确用过的。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+为啥没有继续用下去
+
+中国不像美国，遍地都是感染者，无法使用，这在中国应该是一个可以大规模普及的技术
+
+按下水道分支划分全市，提纲携领，相对于看不见摸不着的新冠，是一个很好的抓手，可以做到有迹可循了
+
+*****
+
+####  andychen  
+##### 1338#       发表于 2021-12-2 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781676&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-2 12:03</a>
+能，的确用过的。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+看了两眼红迪，血氧下90在美帝那都算轻症放回家自己保养...
+这一不小心人没了怕是都没人知道
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  罗莉控  
+##### 1339#       发表于 2021-12-2 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53779608&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-2 09:53</a>
+
+南非12月1日新增8561,11月30日新增4373</blockquote>
+直觉不妙，日死亡28人，对应的是两周前日感染几百不到1000的情况，这个死亡率有点高
+
