@@ -15504,3 +15504,25 @@ https://i.ifeng.com/c/8BchWMv47Wl
 绝佳的实验场所啊 点赞 ...</blockquote>
 是，三哥如果人数回来的话就说明天然抗体会被击穿 疫情进度条大部分重置，乐观一点就是我们25年见！不乐观一点就是有望争夺近100年来大事件前5。
 
+
+
+*****
+
+####  smy20011  
+##### 1382#       发表于 2021-12-2 23:22
+
+ 本帖最后由 smy20011 于 2021-12-2 23:24 编辑 
+<blockquote>汽车屁 发表于 2021-12-2 20:37
+https://i.ifeng.com/c/8BchWMv47Wl
+
+彭博社：新冠奥密克戎变异株一定程度上证明中国清零策略是对的
+</blockquote>
+看到原文了
+
+*****
+
+####  smy20011  
+##### 1383#       发表于 2021-12-2 23:28
+
+Still, the zero-tolerance strategy China is clinging to has come under growing criticism from abroad and at least partly from within, and goes well beyond rigid border closures to include a growing suite of disruptive curbs. 
+
