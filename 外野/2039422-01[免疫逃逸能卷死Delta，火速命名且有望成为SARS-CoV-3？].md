@@ -15361,3 +15361,41 @@ Lav Agarwal, Joint Secretary, Union Health Ministry:
 
 这个报道一出，我反倒开始认同 英国、以色列、日本这些铁杆小弟是在配合美国打压大宗期货价格，降低美国通胀压力。也从侧面反应了，奥密克戎的威力也许并不大
 
+
+
+*****
+
+####  coldhot3  
+##### 1370#       发表于 2021-12-2 20:42
+
+<blockquote>madeira 发表于 2021-12-2 14:26
+按照定义 你打了疫苗就没有r0这个概念了吧 有干预后叫有效再生数
+
+我看搜索的定义 r0是基本再生数 是指无 ...</blockquote>
+好吧是我想差了，应该换个角标就对了吧，
+
+*****
+
+####  66666  
+##### 1371#       发表于 2021-12-2 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787405&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-2 20:37</a>
+
+https://i.ifeng.com/c/8BchWMv47Wl
+
+彭博社：新冠奥密克戎变异株一定程度上证明中国清零策略是对的</blockquote>
+美国现在通胀压力除了大宗商品价格，还有供应链问题，故意渲染变种病毒危险性只会让供应链更加混乱，搞不好通胀会更厉害，原料降价你东西运不进来有个毛用
+
+*****
+
+####  super_uni  
+##### 1372#       发表于 2021-12-2 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787405&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-2 20:37</a>
+https://i.ifeng.com/c/8BchWMv47Wl
+
+彭博社：新冠奥密克戎变异株一定程度上证明中国清零策略是对的</blockquote>
+加息就好了，这么麻烦干嘛，反正那些寡头都能提前知道消息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

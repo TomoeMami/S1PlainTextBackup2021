@@ -6502,3 +6502,35 @@ Nega Genesis：A
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不出个伽摩池么
 
+
+
+*****
+
+####  khxooo  
+##### 84581#       发表于 2021-12-2 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53786743&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-2 19:41</a>
+
+Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶，作为BeastⅣ候选者的高扬斯卡娅就是其中之一 ...</blockquote>
+VI是六的意思，估计指的是大银妇，B5真的是完全没提到。
+
+*****
+
+####  khxooo  
+##### 84582#       发表于 2021-12-2 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787320&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-2 20:31</a>
+
+不出个伽摩池么</blockquote>
+这次好像就是日替池啊。
+
+*****
+
+####  qixinno2  
+##### 84583#       发表于 2021-12-2 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787569&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-2 20:52</a>
+
+这次好像就是日替池啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日替只有北斋和机娘啊
+
