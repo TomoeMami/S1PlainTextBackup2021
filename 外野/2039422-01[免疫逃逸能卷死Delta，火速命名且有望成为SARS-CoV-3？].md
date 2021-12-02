@@ -15473,3 +15473,12 @@ https://i.ifeng.com/c/8BchWMv47Wl
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Eroco  
+##### 1379#       发表于 2021-12-2 21:56
+
+韩国今天确认了第6例omicron确诊哦，加油，继续共存
+

@@ -17454,3 +17454,27 @@ rrm主要是看king的人基本都已经很熟她了，类似叶子和叶，纯�
 
 楼友们这个nijisanji fanclub是啥时候推出的啊？这个会报又有些啥内容
 
+
+
+*****
+
+####  OldGlory  
+##### 8869#       发表于 2021-12-2 21:40
+
+出了一年多了
+
+*****
+
+####  alcoholic1000  
+##### 8870#       发表于 2021-12-2 21:53
+
+ 本帖最后由 alcoholic1000 于 2021-12-2 21:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787797&amp;ptid=1972669" target="_blank">蓬莱广告 发表于 2021-12-2 21:12</a>
+
+楼友们这个nijisanji fanclub是啥时候推出的啊？这个会报又有些啥内容</blockquote>
+2020年10月9号吧，会报是每年寄出三次，关于liver的一些个人情报提问回顾预告周边的一系列内容（仅支持在日地址）
+
+有些liver也会在会报偷跑一些对个人来说比较重要的活动情报
+
+4th FES之类的票也会在Fanclub先行抽选
+
