@@ -15491,3 +15491,16 @@ https://i.ifeng.com/c/8BchWMv47Wl
 
 印度 这么一来 又要开始养蛊了
 
+
+
+*****
+
+####  L.L  
+##### 1381#       发表于 2021-12-2 22:30
+
+ 本帖最后由 L.L 于 2021-12-2 22:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787804&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-2 21:12</a>
+三哥不是号称90%的人都有抗体吗 大型试验看看康复者对欧米克隆效果如何
+绝佳的实验场所啊 点赞 ...</blockquote>
+是，三哥如果人数回来的话就说明天然抗体会被击穿 疫情进度条大部分重置，乐观一点就是我们25年见！不乐观一点就是有望争夺近100年来大事件前5。
+
