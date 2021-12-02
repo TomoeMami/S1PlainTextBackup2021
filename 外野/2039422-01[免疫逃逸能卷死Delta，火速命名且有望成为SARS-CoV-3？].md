@@ -15032,3 +15032,23 @@ mrna的平台工艺，理论上是平台工艺，实际上人类认知是有限�
 
 还是一万元好
 
+
+
+*****
+
+####  星之卡比  
+##### 1343#       发表于 2021-12-2 13:20
+
+我再说一次，楼内吵架的求你们去别的好吗？ 你们吵爽了，楼炸了，大家都没的新消息看了。还美其名曰变种本身没什么好讨论，不吵点政治盖不起高楼。变种没有好讨论的你们出去好吗
+
+— from OnePlus HD1907, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  Kanoya  
+##### 1344#       发表于 2021-12-2 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781612&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-2 11:58</a>
+污水监测技术</blockquote>
+屎总一直在鼓吹这个
+
