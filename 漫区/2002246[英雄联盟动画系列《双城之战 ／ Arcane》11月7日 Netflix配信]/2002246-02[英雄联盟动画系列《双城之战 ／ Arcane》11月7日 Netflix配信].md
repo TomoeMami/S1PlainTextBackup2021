@@ -14911,3 +14911,14 @@ b站拳头游戏音乐发了双城的原声配乐
 
 至于后面，金克斯都疯了，疯子还需要讲基本法吗？
 
+
+
+*****
+
+####  sandro  
+##### 2872#       发表于 2021-12-2 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777972&amp;ptid=2002246" target="_blank">碎片整理 发表于 2021-12-2 01:59</a>
+范德尔之死站在金克斯的角度她一点都没做错。她又不知道范德尔刚好能脱困，事实上如果锁开的慢上一时半刻 ...</blockquote>
+行为没错，所以是霉比，金克斯
+

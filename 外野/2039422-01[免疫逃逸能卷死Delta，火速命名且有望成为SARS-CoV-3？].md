@@ -14693,3 +14693,29 @@ Revelations about the variant's existence in Europe before it was reported in Af
 
 这么久了，在这楼里说不应该南非背锅好几个，骂欧美不肯检测的好几个，骂我的方案不行好几个，就是没看到有任何其他的方案来鼓励各国检测新变种，口惠而实不至这点倒是跟欧美学得很溜。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  你这瓜保熟吗  
+##### 1316#       发表于 2021-12-2 09:04
+
+ 本帖最后由 你这瓜保熟吗 于 2021-12-2 09:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53778802&amp;ptid=2039422" target="_blank">Niceday 发表于 2021-12-2 08:42</a>
+泥潭现在堕落到对线都喜欢给别人编一个目的来赢麻了？   下次直接赢麻了就行，不用打一大段字。
+
+ ...</blockquote>
+得了吧，您老人家的屁股从外野到卓明谷无人不知无人不晓，在这理中客什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我在这贴最后回您老人家一次告诉你为什么这么多人不陪你聊“正确的方案”，毕竟汴京只会让双方都更坚信自己是对的是不是
+
+我小时候如果考砸了，老师和父母都是关注错在哪下次怎么改，而不是给我上两小时心理课教育下次考砸了怎么迅速又愉快的告诉大家来换个棒棒糖吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你这瓜保熟吗  
+##### 1317#       发表于 2021-12-2 09:04
+
+ 本帖最后由 你这瓜保熟吗 于 2021-12-2 09:05 编辑 
+
+风怒
+

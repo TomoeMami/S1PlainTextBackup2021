@@ -15492,3 +15492,12 @@ mv质量挺高，不过因为不是**口水歌所以估计播放量还是堪忧<
 
 这套没做猫耳有点小失望<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7265#       发表于 2021-12-2 08:53
+
+新曲听着确实比那天生唱的好不少，也比きらきら好点，但也就普普通通了
+
