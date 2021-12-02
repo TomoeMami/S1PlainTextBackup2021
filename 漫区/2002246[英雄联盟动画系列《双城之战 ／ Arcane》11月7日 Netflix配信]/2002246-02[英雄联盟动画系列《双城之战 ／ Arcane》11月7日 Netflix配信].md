@@ -15389,3 +15389,15 @@ https://www.bilibili.com/video/av934517955
 
 这视频略有点敷衍吧，就说了一下剧情角色以及玩家想法，连制作都一笔带过了，不过也正常，这片子真要展开了一点一点抠细节估计能抠几个小时
 
+
+
+*****
+
+####  飞升之后  
+##### 2908#       发表于 2021-12-3 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53789691&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2021-12-3 00:18</a>
+
+这视频略有点敷衍吧，就说了一下剧情角色以及玩家想法，连制作都一笔带过了，不过也正常，这片子真要展开了 ...</blockquote>
+[https://www.bilibili.com/video/B ... ommend_more_video.3](https://www.bilibili.com/video/BV1ch411t77L/?spm_id_from=333.788.recommend_more_video.3)这个有抠    华纳资深动画师逐帧称赞双城之战PV(生肉)
+

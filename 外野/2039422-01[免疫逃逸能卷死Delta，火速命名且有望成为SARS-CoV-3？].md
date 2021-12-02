@@ -15526,3 +15526,25 @@ https://i.ifeng.com/c/8BchWMv47Wl
 
 Still, the zero-tolerance strategy China is clinging to has come under growing criticism from abroad and at least partly from within, and goes well beyond rigid border closures to include a growing suite of disruptive curbs. 
 
+
+
+*****
+
+####  sin.yugi  
+##### 1384#       发表于 2021-12-3 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53785341&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-2 04:12</a>
+我指的是消息来源是卫生部，专家等权威部门，而不是拿着数据做二次解读的自媒体 ...</blockquote>
+笑死，你说的第一手专家消息就是例如那种来源福奇和米国cdc, 戴口罩没用之类的吗。这比自媒体都不如<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 1385#       发表于 2021-12-3 00:33
+
+<blockquote>sin.yugi 发表于 2021-12-3 00:30
+笑死，你说的第一手专家消息就是例如那种来源福奇和米国cdc, 戴口罩没用之类的吗。这比自媒体都不如[f:03 ...</blockquote>
+那也比二手自媒体消息强啊，比如这位引用自媒体翻译彭博社账号，都不放原文的
+

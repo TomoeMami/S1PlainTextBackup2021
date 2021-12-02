@@ -11265,3 +11265,49 @@ gg，要下了去准备出门吃饭了
 
 兰熊很喜欢咋和啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一吓就怂神乐咩
 
+
+
+*****
+
+####  时间在我手中  
+##### 5797#       发表于 2021-12-3 00:22
+
+这人这语气真欠打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真想腹击交
+
+*****
+
+####  路人庚  
+##### 5798#       发表于 2021-12-3 00:23
+
+赢了一把就开始跳，骚话一大堆草
+
+*****
+
+####  路人庚  
+##### 5799#       发表于 2021-12-3 00:26
+
+绿仙运好allin干死了兰熊草，绿仙阿咩1v1了
+
+*****
+
+####  路人庚  
+##### 5800#       发表于 2021-12-3 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">nmd笑死了，用装可爱的语气一本正经的骗人草
+
+*****
+
+####  路人庚  
+##### 5801#       发表于 2021-12-3 00:35
+
+草，赢了钱后川剧变脸“绿仙你只有一万五千吗？”
+
+*****
+
+####  clvan_  
+##### 5802#       发表于 2021-12-3 00:35
+
+ 本帖最后由 clvan_ 于 2021-12-3 00:36 编辑 
+
+旁观完我都感觉受到了一亿点精神伤害，笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
