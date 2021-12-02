@@ -14963,3 +14963,47 @@ b站拳头游戏音乐发了双城的原声配乐
 
 至于金克斯的疯，也说的很清楚了，其根结在于薇，反而是希尔科把她从纯粹的疯里拉了回来。没人说她的行动就是对的，但她的行为和逻辑都是自洽的，让人“哀其不幸，怒其不争”。当她最后接过希尔科的遗志后，反而得到了升华。
 
+
+
+*****
+
+####  acejoe  
+##### 2876#       发表于 2021-12-2 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53777935&amp;ptid=2002246" target="_blank">碎片整理 发表于 2021-12-2 01:47</a>
+薇和金克斯是两姐妹逐渐走向对立面，希尔科和金克斯则是精神意志的继承，和你的例子有区别吗？ ...</blockquote>
+区别大了去了好吗，为什么我上面说的这么清楚了还能混为一谈呢？
+这是三个角色，是互相独立塑造的，蝙蝠侠和小丑是一体两面，塑造一个等于塑造另一个。
+
+*****
+
+####  暗黑能乐  
+##### 2877#       发表于 2021-12-2 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有够帅够可爱就有人爱，这么多年了还不懂吗。像有些变态狂反派不过是求生欲强一点，也很多人喜欢啊，这有什么好争执的。。
+
+*****
+
+####  暗黑能乐  
+##### 2878#       发表于 2021-12-2 11:52
+
+<img src="https://img.saraba1st.com/forum/202112/02/115200beybflqbg8heyaxh.jpg" referrerpolicy="no-referrer">
+
+<strong>FFh0lWYaUAMnIfT.jpg</strong> (161.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-2 11:52 上传
+
+不可能的走向（
+
+*****
+
+####  dddty  
+##### 2879#       发表于 2021-12-2 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53781486&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-12-2 11:52</a>
+
+不可能的走向（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说不准就吃书吃成真的了
+
