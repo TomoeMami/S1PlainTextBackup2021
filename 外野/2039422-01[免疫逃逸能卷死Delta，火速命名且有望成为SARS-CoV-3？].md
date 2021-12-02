@@ -16079,3 +16079,64 @@ CDC烂到要用一亩三分地做官方tracker，已经说明了一切。
 
 说过的话不能不认啊，你还说你没吃过屎。
 
+
+
+*****
+
+####  smy20011  
+##### 1427#       发表于 2021-12-3 06:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790650&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-3 06:19</a>
+
+“ 第二，如果你觉得CDC数据可信度低，那么你如何有说服力的证明美国本土存在新变种，甚至说美国本土存在 ...</blockquote>
+是啊，这是“不能证明”而不是”不为真“
+
+PS: 你一直在用的例子是诉诸无知谬误，如果你认同这个逻辑的话，你也要认同进化论是假的，以及鬼存在。
+
+考虑如下证明：
+
+1. 没有人亲自看见新物种的生成，所以进化论是错的。
+
+2. 目前为止没有人证明鬼不存在，可见鬼是存在的。
+
+你是想说我在诉诸无知么？如果是的话，请给出理由
+
+*****
+
+####  riczxc  
+##### 1428#         楼主| 发表于 2021-12-3 06:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790637&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-3 06:09</a>
+
+一些专家认为Omicron变体可能是在动物宿主中进化而来
+
+当Covid-19变体出现时，公认的观点是，它们所包含的 ...</blockquote>
+的确有老鼠适应性变异
+
+*****
+
+####  smy20011  
+##### 1429#       发表于 2021-12-3 06:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790647&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 06:17</a>
+
+别打滚，这是3月4日的一亩三分地，也是接近一倍的差别：
+[https://web.archive.org/web/20210304092342/ht](https://web.archive.org/web/20210304092342/ht) ...</blockquote>
+* Data include both confirmed and presumptive positive cases of COVID-19 reported to CDC or tested at CDC since January 21, 2020, with the exception of testing results for persons repatriated to the United States from Wuhan, China and Japan. State and local public health departments are now testing and publicly reporting their cases. In the event of a discrepancy between CDC cases and cases reported by state and local public health officials, data reported by states should be considered the most up to date.
+
+你自己看CDC的注解么，当时不是所有的洲都每天报告给CDC，并且私人测试的结果也不会交给CDC，你是说这种情况现在依然存在么？
+
+*****
+
+####  riczxc  
+##### 1430#         楼主| 发表于 2021-12-3 06:34
+
+ 本帖最后由 riczxc 于 2021-12-3 06:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790664&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 06:28</a>
+
+* Data include both confirmed and presumptive positive cases of COVID-19 reported to CDC or tested  ...</blockquote>
+
+我当然知道，我是说，你说的最权威的资料，不是在所有时候都能做到权威性（因为没有透明性）。反而是标明好来源的自媒体更权威。
+
+你话说得太满了，这样不好。太容易举反例了。
+
