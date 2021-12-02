@@ -6373,3 +6373,12 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正太伽摩挺可爱的
 
+
+
+*****
+
+####  森兰丸  
+##### 84576#       发表于 2021-12-2 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">根据选项不同还一次出了3个形态.....这波可以的啊
+
