@@ -4159,3 +4159,13 @@ mob算是希尔菲的AN，游戏系统上算同一个人，连专用剧情都是
 <img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">这个解决也太简单粗暴了
 二期的路都断绝了...
 
+
+
+*****
+
+####  心灵的乳头  
+##### 6315#       发表于 2021-12-2 10:22
+
+偶尔看了看剧情，这国服的翻译是找的上海土著么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://z3.ax1x.com/2021/12/02/oYcKJI.jpg" referrerpolicy="no-referrer">
+

@@ -10965,3 +10965,37 @@ lol就sound only，打枪看几眼<img src="https://static.saraba1st.com/image/s
 
 如果和绿熊玩的话 那估计是打枪了 绿熊5个月没上lol了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 5763#       发表于 2021-12-2 10:24
+
+万一和绿熊播不开台就草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 5764#       发表于 2021-12-2 10:27
+
+你能在任何直播间看到卡古拉咩啊 除了在她自己直播间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 5765#       发表于 2021-12-2 10:38
+
+ 本帖最后由 yywzjsw 于 2021-12-2 10:39 编辑 
+
+开了，打枪呢。一进去就听到痴女笑<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5766#       发表于 2021-12-2 10:39
+
+今天又要出门所以播到东京时间1点为止
+
+syl  图奇感谢图用了手冲老师的图可还行
+

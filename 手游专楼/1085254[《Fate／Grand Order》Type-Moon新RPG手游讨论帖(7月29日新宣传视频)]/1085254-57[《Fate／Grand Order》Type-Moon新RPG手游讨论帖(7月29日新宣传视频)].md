@@ -6316,3 +6316,12 @@ C413D5E4-3D2D-4224-88C9-4C5B1C63342F.png
 不往灵长类杀手方向靠，我不信。 ...</blockquote>
 灵长类杀手是芙芙，不是beast4。就好比快乐天是杀生院但不是beast3。beast4的理是比较，柯扬斯卡娅的理目前来看和比较不沾边。而且如果她是灵长类杀手，那她整个非灵长类的生存圈干嘛，一个都不克制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最关键的是beast5现在一点信息都没有，所以才奶柯扬斯卡娅最后还会是beast5，奶着玩而已反正月底也就知道了
 
+
+
+*****
+
+####  zore  
+##### 84569#       发表于 2021-12-2 10:34
+
+月底:指12月31日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
