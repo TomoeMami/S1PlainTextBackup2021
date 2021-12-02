@@ -16007,3 +16007,75 @@ CDC官网：This page will be updated regularly at noon Mondays through Fridays.
 ？请你说明一下，在不相信CDC的前提下，如何证明美国存在新冠变种感染</blockquote>
 ？请你说明一下，如何证明你没吃屎？
 
+
+
+*****
+
+####  烦死了  
+##### 1423#       发表于 2021-12-3 06:09
+
+<strong>一些专家认为Omicron变体可能是在动物宿主中进化而来</strong>
+
+当Covid-19变体出现时，公认的观点是，它们所包含的突变群是在一个免疫力低下的人身上产生的，这个人感染了病毒，无法摆脱感染。但是一些科学家对最新的变种Omicron有另一种理论，即它可能从哪里获得了不寻常的突变，而这种突变使它的尖峰蛋白受到影响。
+
+他们推测该病毒可能是在另一个动物物种中进化的。
+
+该理论认为，某种类型的动物，<strong>可能是啮齿动物，在2020年中期的某个时候感染了SARS-CoV-2病毒。在这个新的物种中，该病毒不断进化，在尖峰蛋白上积累了大约50个突变，然后又蔓延到人身上。</strong>
+
+斯克里普斯研究所的免疫学家克里斯蒂安-安德森（Kristian Andersen）是那些一直提出奥米克朗可能是从一个反向人畜共患事件中出现的观点的人之一。
+
+(人畜共患事件是指一种动物病原体开始感染并在人群中传播。反向人畜共患病是指这种病毒回到动物物种中去。）
+
+[https://www.statnews.com/2021/12 ... -in-an-animal-host/](https://www.statnews.com/2021/12/02/some-experts-suggest-omicron-variant-may-have-evolved-in-an-animal-host/)
+
+纽约下水道老鼠🐭 搞不好才是真正来源<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 1424#       发表于 2021-12-3 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790627&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-3 06:01</a>
+
+？请你说明一下，如何证明你没吃屎？有任何可信信源证明你从没吃过屎么？那么按你的逻辑你一定吃过屎了。 ...</blockquote>
+这命题又不是我提出来的，你提出你就证明呗。
+
+如果你语文正常的话，你应该能意识到，不能证明和不为真不冲突。如果你不采信CDC的话，你不能够对美国存在新冠变种给出证明，因为你根本就没有证据啊。
+
+对于我来说，证明美国存在新冠变种很简单，因为CDC说了监测出变种了。任何认可CDC数据是真实的也都会认同我的观点。
+
+你参与这个楼的讨论，肯定是关心新冠变种的，你又如何在没有任何可信证据的前提下，讨论新冠变种呢？
+
+*****
+
+####  riczxc  
+##### 1425#         楼主| 发表于 2021-12-3 06:17
+
+ 本帖最后由 riczxc 于 2021-12-3 06:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790570&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 04:52</a>
+
+CDC官网：This page will be updated regularly at noon Mondays through Fridays. Numbers close out at ...</blockquote>
+
+别打滚，这是3月4日的一亩三分地，也是接近一倍的差别：
+
+https://web.archive.org/web/20210304092342/https://coronavirus.1point3acres.com/en
+
+对上3月5日的CDC：
+
+https://web.archive.org/web/20200305212803/https://www.cdc.gov/coronavirus/2019-ncov/cases-in-us.html
+
+CDC烂到要用一亩三分地做官方tracker，已经说明了一切。
+
+*****
+
+####  lipo  
+##### 1426#       发表于 2021-12-3 06:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790643&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 06:16</a>
+这命题又不是我提出来的，你提出你就证明呗。
+
+如果你语文正常的话，你应该能意识到，不能证明和不为真不 ...</blockquote>
+“ 第二，如果你觉得CDC数据可信度低，那么你如何有说服力的证明美国本土存在新变种，甚至说美国本土存在新冠呢？ ”
+
+说过的话不能不认啊，你还说你没吃过屎。
+
