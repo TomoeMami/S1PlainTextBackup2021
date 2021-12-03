@@ -1193,3 +1193,13 @@ https://www.economist.com/asia/2021/03/13/india-seems-to-have-suffered-surprisin
 
 疫苗说不定能帮助清零，但是放飞自我就不好说了。
 
+
+
+*****
+
+####  洞庭湖  
+##### 1601#       发表于 2021-12-3 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792605&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-3 10:49</a></blockquote>
+哪里来的慈父信徒<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
