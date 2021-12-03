@@ -24208,3 +24208,15 @@ koyori设定有好多地方和ame有点像诶，加上ollie可以组成holo brai
 
 讨论
 
+
+
+*****
+
+####  smy20011  
+##### 1500#         楼主| 发表于 2021-12-4 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765581&amp;ptid=1989758" target="_blank">空集 发表于 2021-12-1 04:04</a>
+
+本来也没啥感觉，突然感觉没去好亏，感觉可能是这辈子最接近有机会去的线下活动了。。虽然我那个周末有事 ...</blockquote>
+躲过一劫啊
+

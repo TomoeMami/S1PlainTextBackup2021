@@ -7875,3 +7875,31 @@ SYL啊准制作人河马在准号上播，很有意思的老哥<img src="https:/
 
 本来前面挺开心的，结果两个sc一发就打内战，是谁的问题我不好说，要不然以后就别发sc了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 3899#       发表于 2021-12-4 01:53
+
+内战打得属实没意思<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">哪边赢了
+
+*****
+
+####  gnoliyil  
+##### 3900#       发表于 2021-12-4 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802433&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-12-3 10:53</a>
+
+内战打得属实没意思哪边赢了</blockquote>
+文静赢了吧，收天米
+
+
+
+*****
+
+####  莫洛骑士  
+##### 3901#       发表于 2021-12-4 03:20
+
+怪不得要出to签，看样子12月的主基调还是复健，能恢复之前一半直播效果就是赢了
+

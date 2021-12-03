@@ -1416,3 +1416,20 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 并不能相信他们是否是隐瞒不报
 毕竟有英国的例子在先
 
+
+
+*****
+
+####  riczxc  
+##### 1618#         楼主| 发表于 2021-12-4 01:50
+
+ 本帖最后由 riczxc 于 2021-12-4 02:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802281&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-4 01:18</a>
+
+并不能相信他们是否是隐瞒不报
+
+毕竟有英国的例子在先</blockquote>
+测序是普通的流程，科学家不讲政治就可以上传GSAID能发论文，有什么好怕的。
+
+乱七八糟的疫情，谁分得清楚哪个是omicron哪个不是？
+

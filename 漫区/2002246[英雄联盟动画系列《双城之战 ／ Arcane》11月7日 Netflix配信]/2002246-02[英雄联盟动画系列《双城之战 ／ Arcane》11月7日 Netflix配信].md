@@ -15992,3 +15992,36 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  whyy  
+##### 2948#       发表于 2021-12-4 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802253&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-12-4 01:14</a>
+
+那个传送杰斯的法师应该就是旅者泰亚了
+
+旅者泰亚是lor的一张巨神峰卡牌会进化成星灵</blockquote>
+这女星灵可真不挑啊……
+
+*****
+
+####  YESIARE  
+##### 2949#       发表于 2021-12-4 02:25
+
+两晚看完<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">优秀得不像游戏改
+
+*****
+
+####  飞升之后  
+##### 2950#       发表于 2021-12-4 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802253&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-12-4 01:14</a>
+
+那个传送杰斯的法师应该就是旅者泰亚了
+
+旅者泰亚是lor的一张巨神峰卡牌会进化成星灵</blockquote>
+看动画我以为是个老者阿
+
