@@ -6573,3 +6573,15 @@ VI是六的意思，估计指的是大银妇，B5真的是完全没提到。
 
 不知不觉杀狐都这么多衣服了,很急<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 84588#       发表于 2021-12-3 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53788889&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-2 22:51</a>
+
+喷了.....加雷斯幕间这什么OOC剧情.....把别人JJ拿掉就算了.....还自己又加了一段感情戏 ...</blockquote>
+竟然不强化才是yysd
+

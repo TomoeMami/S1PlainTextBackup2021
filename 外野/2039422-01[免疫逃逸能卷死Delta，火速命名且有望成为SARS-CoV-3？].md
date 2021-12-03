@@ -16234,3 +16234,48 @@ CDC也不是都是准确的 自己也要根据情况判断 比如CDC说本土有
 
 本来疫情就是慢慢来的，像货运火车撞墙一样，慢慢但坚定地。
 
+
+
+*****
+
+####  riczxc  
+##### 1440#         楼主| 发表于 2021-12-3 07:49
+
+瑞典电视台报道，挪威的一个圣诞晚餐超级传播，50多个接种了疫苗的人感染，其中有Omicron:
+
+https://www.svt.se/nyheter/utrikes/norge-skarper-atgarder-efter-omikronutbrott
+
+
+
+*****
+
+####  烦死了  
+##### 1441#       发表于 2021-12-3 07:53
+
+冰岛确认欧米克隆， 患者刚打过booster 也没出过国<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+昨天证实，有人在冰岛被诊断出患有 omicron 变体。 他现在在 Landspítali，但他没有出国旅行，因此仍不确定他在哪里感染了病毒。 Þórólfur 说，他在被诊断出感染时刚刚接受了加强剂。
+
+[https://www.reddit.com/r/Coronav ... med_in_iceland_the/](https://www.reddit.com/r/Coronavirus/comments/r75gha/first_omicron_case_confirmed_in_iceland_the/)
+[https://www.visir.is/g/202121908 ... d-fa-orvunar-skammt](https://www.visir.is/g/20212190851d/sa-sem-greindist-smitadur-af-omikron-ny-buinn-ad-fa-orvunar-skammt)
+
+*****
+
+####  03e7  
+##### 1442#       发表于 2021-12-3 07:58
+
+「本文来源：央视新闻客户端」
+
+当地时间12月2日，据冰岛国家广播电台和电视台（RUV）报道，冰岛确认首例奥密克戎毒株感染病例。感染者系一无出国旅行史的成年男子，且已完全接种三剂新冠疫苗。
+
+*****
+
+####  pushare  
+##### 1443#       发表于 2021-12-3 08:01
+
+南非新增病例11535，阳性率22.4%
+
+A total of 51,402 tests were conducted in the last 24hrs, with 11,535 new cases, which represents a 22.4% positivity rate. A further 44 #COVID19 related deaths have been reported, bringing total fatalities to 89,915 to date. 
+
+<img src="https://p.sda1.dev/3/93efb76ec5c7aa85cb61249981286616/IMG_CMP_106190728.jpeg" referrerpolicy="no-referrer">
+
