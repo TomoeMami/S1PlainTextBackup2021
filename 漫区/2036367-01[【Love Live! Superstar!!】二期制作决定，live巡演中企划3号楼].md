@@ -15504,3 +15504,21 @@ A9972F66-43F4-4FA7-81F8-DDB90878A73E.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  D麦林  
+##### 1380#       发表于 2021-12-3 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792495&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-12-3 10:41</a>
+
+鼠标和鼠标垫想买，哪里下单啊
+
+—— 来自 S1Fun</blockquote>
+是景品 放娃娃机里抓的
+
+建议不要对这玩意有什么期待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+官方能不能去找个正经外设厂家出个联名款啊 这玩意都快把电子垃圾写脸上了
+
