@@ -17823,3 +17823,118 @@ DAY2
 ときのそら ロボ子さん 夜空メル アキ・ローゼンタール 湊あくあ 紫咲シオン 百鬼あやめ 癒月ちょこ 大神ミオ 猫又おかゆ 兎田ぺこら 潤羽るしあ 不知火フレア 角巻わため 雪花ラミィ 獅白ぼたん
 [https://hololivesuperexpo.hololivepro.com/](https://hololivesuperexpo.hololivepro.com/)
 
+
+
+*****
+
+####  FCCHua  
+##### 8904#       发表于 2021-12-3 20:03
+
+ 本帖最后由 FCCHua 于 2021-12-3 20:14 编辑 
+
+该看eli了，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿尔达希尔  
+##### 8905#       发表于 2021-12-3 20:05
+
+ 本帖最后由 阿尔达希尔 于 2021-12-3 20:07 编辑 
+
+这算什么大的哦（无关心）syl，这能跳的几个都扔第一天了，这么体谅观众吗。
+
+*****
+
+####  Suny08  
+##### 8906#       发表于 2021-12-3 20:06
+
+はわおば太会养了，有点顶不住了
+
+*****
+
+####  rzrbtk  
+##### 8907#       发表于 2021-12-3 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53799203&amp;ptid=1972669" target="_blank">winda 发表于 2021-12-3 19:51</a>
+黛灰这并没有推特告知看上去的那么吓人
+
+https://youtu.be/QcPClss2sqc?t=472
+
+还说打游戏遇到他不要 ...</blockquote>
+诶…这个说法跟口了失踪去寻找正义的时候好像…
+
+省一楼，lo装好啊！
+
+*****
+
+####  winda  
+##### 8908#       发表于 2021-12-3 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kr roha提供钢琴技术支持，kr这什么工具人
+
+*****
+
+####  影山银  
+##### 8909#       发表于 2021-12-3 20:11
+
+roha做的钢琴，会不会来一段jojo啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 8910#       发表于 2021-12-3 20:12
+
+怎么维阿jp和维阿都有当管人当出玉玉症的
+
+
+
+*****
+
+####  星街こうせい  
+##### 8911#       发表于 2021-12-3 20:14
+
+ 本帖最后由 星街こうせい 于 2021-12-3 20:18 编辑 
+
+ｈｗｗ来点和风摇滚
+
+SYL：
+
+虚假的大的👉3rd文艺汇演
+
+真实的大的👇（でもフェイクかもしれない）
+
+<img src="https://img.saraba1st.com/forum/202112/03/201732gswzu79amulq3hlq.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (193.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-3 20:17 上传
+
+ホロライブあったけぇ・・・
+
+*****
+
+####  FCCHua  
+##### 8912#       发表于 2021-12-3 20:16
+
+ 本帖最后由 FCCHua 于 2021-12-3 20:18 编辑 
+
+草，工商？
+3d玩音游技术貌似又有升级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 8913#       发表于 2021-12-3 20:19
+
+杏收了奥迪双钻多少好处
+
+<img src="https://img.saraba1st.com/forum/202112/03/201933g574pg7c4gpe17b5.png" referrerpolicy="no-referrer">
+
+<strong>双钻.png</strong> (75.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-3 20:19 上传
+
