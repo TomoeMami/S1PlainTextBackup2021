@@ -7731,3 +7731,35 @@ mmd这水平 知道黑幕可以不要这么嚣张吗
 
 瞳鲨来通杀了！
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 3883#       发表于 2021-12-3 23:43
+
+弹幕再打下去文静会半夜上播哭哭吗
+
+*****
+
+####  andeloz  
+##### 3884#       发表于 2021-12-3 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半夜看着直播间收的米笑绷线了
+
+*****
+
+####  袜子  
+##### 3885#       发表于 2021-12-3 23:51
+
+看着大把的米，笑得炸线又送去医院了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3886#       发表于 2021-12-3 23:57
+
+sc打架还行
+
+妖女笑嘻了
+

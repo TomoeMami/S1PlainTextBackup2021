@@ -15732,3 +15732,14 @@ alp老师画的恋恋还是璞玉呢。
 <img src="https://p.sda1.dev/3/9578e4f376a16dad15412caab23d5633/yande.re 893076 2c_galore arashi_chisato hazuki_ren heanna_sumire love_live!_super_star!! seifuku shibuya_kanon tang_keke.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/0d5389cf81e2086242de503a4cd17f4f/yande.re 893131 arashi_chisato hazuki_ren love_live!_super_star!! seifuku tagme tagme_artist_translation ちまき.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lucksolo  
+##### 1398#       发表于 2021-12-3 23:55
+
+今天才听了departure完整版，最后那段合唱真的太好听了。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+不知道live上唱过这首没有
+
