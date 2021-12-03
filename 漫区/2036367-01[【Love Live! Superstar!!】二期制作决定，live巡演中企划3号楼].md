@@ -15722,3 +15722,13 @@ alp老师画的恋恋还是璞玉呢。
 
 看一遍nonfiction六场连放，每场都能感觉到相对之前的进步，有点体会到那种偶像出道就开始追的饭的心情<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1397#       发表于 2021-12-3 22:45
+
+<img src="https://p.sda1.dev/3/9578e4f376a16dad15412caab23d5633/yande.re 893076 2c_galore arashi_chisato hazuki_ren heanna_sumire love_live!_super_star!! seifuku shibuya_kanon tang_keke.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/0d5389cf81e2086242de503a4cd17f4f/yande.re 893131 arashi_chisato hazuki_ren love_live!_super_star!! seifuku tagme tagme_artist_translation ちまき.jpg" referrerpolicy="no-referrer">
+

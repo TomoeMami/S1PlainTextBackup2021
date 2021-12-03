@@ -18148,3 +18148,15 @@ SYL：
 
 又是字幕组烂瓜，有栖mana和字幕组的打钱纠纷，双方同时开台对线，具体去绿帽坛看吧都发了四五个贴了，看了觉得真是弱智
 
+
+
+*****
+
+####  灵思之风jacke  
+##### 8934#       发表于 2021-12-3 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800984&amp;ptid=1972669" target="_blank">free 发表于 2021-12-3 22:25</a>
+
+中间这哥们不是毕业了吗，咋一周年要回魂一下......？</blockquote>
+说是毕业了，其实虽然不发推，倒是一直在点赞一些V相关的东西，个人势嘛，反正是来去如风
+

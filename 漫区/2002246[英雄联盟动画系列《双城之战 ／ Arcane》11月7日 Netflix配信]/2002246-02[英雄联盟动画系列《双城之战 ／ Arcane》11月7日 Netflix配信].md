@@ -15958,3 +15958,16 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 看大家讨论都觉得希尔科死后金克丝就成为了完整体金克丝？可是金克丝单从人设上来说应该是疯疯癫癫的杀人狂啊，希尔科死后金克丝对蔚的自白和最后看着上城血月的眼神怎么看怎么像爆爆
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 2946#       发表于 2021-12-3 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801091&amp;ptid=2002246" target="_blank">摸鱼先锋 发表于 2021-12-3 22:37</a>
+看大家讨论都觉得希尔科死后金克丝就成为了完整体金克丝？可是金克丝单从人设上来说应该是疯疯癫癫的杀人狂 ...</blockquote>
+爆爆接受了jinx
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
