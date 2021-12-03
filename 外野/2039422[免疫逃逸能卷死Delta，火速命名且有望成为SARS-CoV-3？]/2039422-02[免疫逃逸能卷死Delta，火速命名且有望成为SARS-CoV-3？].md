@@ -1251,3 +1251,96 @@ https://www.economist.com/asia/2021/03/13/india-seems-to-have-suffered-surprisin
 
 Omicron首先发现也是在博茨瓦纳，不是南非。
 
+
+
+*****
+
+####  creymorgan  
+##### 1604#       发表于 2021-12-3 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800920&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 22:18</a>
+
+要是靠疫苗躺平就可以解决疫情，那你是对的。既然不能躺平，都是应传尽传，那就有必要考虑选择压。
+
+现在 ...</blockquote>
+疫苗可以减少实际被感染的人数，不至于完全消灭关键变种出现的可能性，但是能相对减少关键变种出现可能性。
+
+进一步说，第三世界打疫苗没用，难道发达国家囤着过期有用？
+
+*****
+
+####  riczxc  
+##### 1605#         楼主| 发表于 2021-12-3 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801357&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 23:03</a>
+
+疫苗可以减少实际被感染的人数，不至于完全消灭关键变种出现的可能性，但是能相对减少关键变种出现可能性 ...</blockquote>
+我的观点是，不清零，打疫苗能少死点人。但是，对解决疫情于事无补，结果迟早都有变种能免疫逃逸。最后搞不好变成Marek病那样，筛出高致死性变种。
+
+Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、能真正阻止感染的疫苗，或者西方也开始清零，否则讨论疫苗防疫没有什么意思，打住吧。
+
+*****
+
+####  モトロ  
+##### 1606#       发表于 2021-12-3 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800790&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 22:04</a>
+
+目前的5大VOC变种出现的时间
+
+阿尔法，英国20年9月
+
+贝塔，南非20年12月</blockquote>
+奥密克戎看样子不像南非诞生啊，欧美都社区传播了
+
+*****
+
+####  Khvarenah  
+##### 1607#       发表于 2021-12-3 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800790&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 22:04</a>
+目前的5大VOC变种出现的时间
+
+阿尔法，英国20年9月
+
+贝塔，南非20年12月</blockquote>
+<img src="https://p.sda1.dev/3/c133ace5c67a1db4ac7d9caf08b0cd49/IMG_CMP_32300842.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 1608#         楼主| 发表于 2021-12-3 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801463&amp;ptid=2039422" target="_blank">モトロ 发表于 2021-12-3 23:14</a>
+
+奥密克戎看样子不像南非诞生啊，欧美都社区传播了</blockquote>
+南非不一定是Omicron的诞生地，但是Gauteng的爆发是显然的。
+
+你看各国对入境旅客的筛查就知道了，南非肯定是传得比欧美厉害。暂时欧美还是Delta多。
+
+*****
+
+####  creymorgan  
+##### 1609#       发表于 2021-12-3 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801432&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 23:11</a>
+
+我的观点是，不清零，打疫苗能少死点人。但是，对解决疫情于事无补，结果迟早都有变种能免疫逃逸。最后搞 ...</blockquote>
+那我说一点跟责任无关的
+
+鸡不会说自己得病，所以都是大规模统一用药的，没法精细化治疗。而且鸡也就那么点价值，不值得精细化治疗。
+
+人会说，人值得。
+
+所以治疗方案对人类是有非常大价值的，而这现在已经看到曙光了，三款针对不同靶点的小分子药呼之欲出。
+
+疫苗减少病例，从而减少突变机会，至少可以拖时间。
+
+*****
+
+####  ftqwer1  
+##### 1610#       发表于 2021-12-3 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801479&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-3 23:16</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">荷兰是怎么了？怎么开始说真话了。
+

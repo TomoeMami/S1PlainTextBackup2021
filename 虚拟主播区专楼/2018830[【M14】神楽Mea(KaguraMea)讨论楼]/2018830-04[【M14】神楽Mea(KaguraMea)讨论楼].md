@@ -11407,3 +11407,12 @@ gg，要下了去准备出门吃饭了
 
 BGM声音好大
 
+
+
+*****
+
+####  2014720  
+##### 5815#       发表于 2021-12-3 23:11
+
+bgm声大人声小老问题了，我现在干别的都听不清她说的啥，音量调大等唱歌时耳朵又给震碎了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
