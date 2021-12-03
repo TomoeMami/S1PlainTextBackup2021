@@ -6651,3 +6651,15 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 2.7 上!中!下!下半!最终章 最终章后半!</blockquote>
 2.6.5 2.7.5 
 
+
+
+*****
+
+####  qixinno2  
+##### 84595#       发表于 2021-12-3 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53794594&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-3 13:05</a>
+
+2.7 上!中!下!下半!最终章 最终章后半!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后过了大半年以为要终章了告诉你实际上2.7只是为了打终章的前置准备 到时候还有个2.8
+
