@@ -501,3 +501,16 @@ Mainland China
 
 央视今天报 夏威夷本地一例没去过南非的感染omicron<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 1546#       发表于 2021-12-3 16:11
+
+<blockquote>creymorgan 发表于 2021-12-3 15:55
+但没几个疾病还被当做普遍威胁。
+
+对新冠的担忧是不需要新冠彻底消失才能过去的，现在来看药物是最有希望 ...</blockquote>
+但这不是清零就是，所有措施都做了，依然会有人得新冠，也有人会死。
+

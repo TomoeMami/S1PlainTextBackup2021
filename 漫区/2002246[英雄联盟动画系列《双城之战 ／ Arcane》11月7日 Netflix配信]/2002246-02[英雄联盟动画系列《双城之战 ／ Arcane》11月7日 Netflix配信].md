@@ -15707,3 +15707,27 @@ Bangumi上这篇最近的剧评写得挺好的，有条有理，有自己的一�
 上城拉的故事线都结束了，比如警长线，两代都便当了，比如锤哥前期的政治爬升线，最后几乎都掌控议会了。
 第二季除非回忆杀不然也不会有这些剧情了。
 
+
+
+*****
+
+####  杉田悠一  
+##### 2925#       发表于 2021-12-3 16:22
+
+我也感觉可惜了，这个制作规模，演出效果，
+
+美剧看的多就能感受到里面有不少美剧人物塑造转折套路的固定范式，
+
+*****
+
+####  scorbian  
+##### 2926#       发表于 2021-12-3 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790922&amp;ptid=2002246" target="_blank">pgain2004 发表于 2021-12-3 08:10</a>
+重新看了一些片段，觉得最强的还是jinx某些介于安静和神经病之间的小表情，刻画是真的强
+那些大幅度神经病 ...</blockquote>
+第四集塞薇卡责怪金克斯时候那个轻蔑的笑
+还有第五集在废弃游乐场里打乌鸦那几个小表情小动作太传神了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
