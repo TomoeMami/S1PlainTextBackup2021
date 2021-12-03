@@ -7269,3 +7269,60 @@ cue海子姐没活是吧<img src="https://static.saraba1st.com/image/smiley/face
 
 老坛酸菜静<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 3826#       发表于 2021-12-3 21:24
+
+好想吴涛文静这个绿茶，狠狠地强身健体
+
+*****
+
+####  灰色的狐狸  
+##### 3827#       发表于 2021-12-3 21:26
+
+孝 心 变 质
+
+*****
+
+####  伞沢直美  
+##### 3828#       发表于 2021-12-3 21:29
+
+“别装茶了，真正的绿茶都很漂亮的”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 3829#       发表于 2021-12-3 21:31
+
+"同样的茶度，越丑越有技术"
+
+*****
+
+####  袜子  
+##### 3830#       发表于 2021-12-3 21:31
+
+ 本帖最后由 袜子 于 2021-12-3 21:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然去过塞纳河，嘴还是没把住
+
+syl之前她没认<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3831#       发表于 2021-12-3 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800443&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-3 21:31</a>
+果然去过塞纳河，嘴还是没把住</blockquote>
+以前说过啊，和朋友一起去的，两个都过了，但文静感觉不适合就退了
+
+*****
+
+####  夜之中道崩殂  
+##### 3832#       发表于 2021-12-3 21:33
+
+原来没说是snh，今天承认了
+
