@@ -16412,3 +16412,43 @@ News Release: Lab testing confirms state’s fir ...</blockquote>
 — from OPPO PEGM00, Android 11 of  ...</blockquote>
 加息是有风险的，等会股市再熔断，你不还是要继续放水，再放那就是美联储买下华尔街了。
 
+
+
+*****
+
+####  武男  
+##### 1456#       发表于 2021-12-3 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790876&amp;ptid=2039422" target="_blank">03e7 发表于 2021-12-3 07:58</a>
+
+「本文来源：央视新闻客户端」
+
+当地时间12月2日，据冰岛国家广播电台和电视台（RUV）报道，冰岛确认首例奥 ...</blockquote>
+没有出国史，那说明社区感染应该已经开始了，不过反正这种情况下也没法查之前的事情了
+
+*****
+
+####  03e7  
+##### 1457#       发表于 2021-12-3 09:50
+
+感染扩大
+
+恶性变异
+
+侵蚀污染
+
+绝对包围
+
+*****
+
+####  Redis  
+##### 1458#       发表于 2021-12-3 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790908&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-3 08:07</a>
+
+明尼苏达的omicron病例，近期只有10多天前去过纽约漫展
+
+News Release: Lab testing confirms state’s fir ...</blockquote><blockquote>近期只有10多天前去过纽约漫展</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
