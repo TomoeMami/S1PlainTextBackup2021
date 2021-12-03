@@ -16668,3 +16668,58 @@ Universal Healthcare Coverage: US 82, Mainland CHINA 70
 
 越是封锁防控严密说明越是"worse"的因果逻辑也就这帮躺平畜群适用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真真的从反方向体验了一把中国不在地球上
 
+
+
+*****
+
+####  武男  
+##### 1476#       发表于 2021-12-3 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792323&amp;ptid=2039422" target="_blank">砥草 发表于 2021-12-3 10:28</a>
+
+微博看到的，大受震撼</blockquote>
+早说了，欧美虽然有很多反智的行为在，但是他们现在搞得仰卧起坐式防疫对人的生活影响远比国内大。所以才有这么多反疫苗**没法摁下去。
+
+*****
+
+####  Khvarenah  
+##### 1477#       发表于 2021-12-3 10:49
+
+<img src="https://p.sda1.dev/3/103c7bcdc4fb1c6cc2c58353e4876b7f/IMG_CMP_255929146.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  Vneet  
+##### 1478#       发表于 2021-12-3 10:49
+
+把彭博这表的chile眼花看混成china了，心想第二可以┐(´-｀)┌
+
+*****
+
+####  smy20011  
+##### 1479#       发表于 2021-12-3 10:50
+
+笑死,这是有多弱智
+
+*****
+
+####  smy20011  
+##### 1480#       发表于 2021-12-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792323&amp;ptid=2039422" target="_blank">砥草 发表于 2021-12-3 10:28</a>
+
+微博看到的，大受震撼</blockquote>
+宁可感染,不打疫苗
+
+*****
+
+####  voluspa  
+##### 1481#       发表于 2021-12-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792422&amp;ptid=2039422" target="_blank">soloviki 发表于 2021-12-3 10:35</a>
+
+彭博这弱智ranking还在排啊 
+
+越是封锁防控严密说明越是"worse"的因果逻辑也就这帮躺平畜群适用了[f: ...</blockquote>
+你要这么理解, 这是 Resilience (恢复), 我们现在的零星案例那能算疫情, 恢复得自然不好看...<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
