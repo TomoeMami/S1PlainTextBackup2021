@@ -472,3 +472,32 @@ Mainland China
 
 这大概才是新冠=流感的最终结局
 
+
+
+*****
+
+####  creymorgan  
+##### 1543#       发表于 2021-12-3 15:55
+
+<blockquote>smy20011 发表于 2021-12-3 15:37
+除了天花之外，没几个清零的</blockquote>
+但没几个疾病还被当做普遍威胁。
+
+对新冠的担忧是不需要新冠彻底消失才能过去的，现在来看药物是最有希望做到的。
+
+*****
+
+####  砥草  
+##### 1544#       发表于 2021-12-3 16:01
+
+<blockquote>smy20011 发表于 2021-12-3 13:43
+这世界已经不可能清零了，想什么呢？</blockquote>
+-_-  国内早就控制住了，都怪国外太拉胯，落后国家无力控制，发达国家傲慢短视，借用一个评论:“本以为是个活动副本，没想到是大版本更新”。如今的局势简直大瘟疫末世文沉浸式体验，我们自己就是传说中的人类基地。<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pl0okm  
+##### 1545#       发表于 2021-12-3 16:03
+
+央视今天报 夏威夷本地一例没去过南非的感染omicron<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
