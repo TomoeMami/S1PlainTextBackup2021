@@ -16723,3 +16723,65 @@ Universal Healthcare Coverage: US 82, Mainland CHINA 70
 越是封锁防控严密说明越是"worse"的因果逻辑也就这帮躺平畜群适用了[f: ...</blockquote>
 你要这么理解, 这是 Resilience (恢复), 我们现在的零星案例那能算疫情, 恢复得自然不好看...<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烦死了  
+##### 1482#       发表于 2021-12-3 11:25
+
+密歇根医院已经爆了 80% 病床和84% ICU 满了 不接受转院病人了
+
+[https://mix957gr.com/some-michig ... ause-they-are-full/](https://mix957gr.com/some-michigan-hospitals-are-turning-away-patients-because-they-are-full/)
+
+*****
+
+####  configxxxx  
+##### 1483#       发表于 2021-12-3 11:27
+
+或者这么说，大陆可是随随便便就能感染人数暴涨几十倍的(1例-50例)，当然不如稳定在每天十来万的地方安全啦
+
+*****
+
+####  kiragz  
+##### 1484#       发表于 2021-12-3 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新冠派对，其实很正常，这个mrna是新事物，谁知道会不会有啥致命后遗症之后才出现
+
+话说为什么欧洲自己不研发灭活疫苗
+
+*****
+
+####  茶仙  
+##### 1485#       发表于 2021-12-3 11:29
+
+笑死，圣经里可没中国人怎么怎么样
+
+新时代的经书里把中国排28名不错了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOGmk2  
+##### 1486#       发表于 2021-12-3 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792020&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-3 10:06</a>
+
+彭博更新了疫情韧性指数 （The Covid Resilience Ranking） 这个冬天最安全的国家和地区 </blockquote>
+兔国不存在于蓝星
+
+*****
+
+####  smy20011  
+##### 1487#       发表于 2021-12-3 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53793270&amp;ptid=2039422" target="_blank">kiragz 发表于 2021-12-3 11:27</a>
+
+新冠派对，其实很正常，这个mrna是新事物，谁知道会不会有啥致命后遗症之后才出现
+
+话说为什么欧洲自 ...</blockquote>
+新冠的危险和后遗症更高啊
+
+第二个,欧洲是有灭活的
+
+The European Commission has approved an agreement with Valneva under which the French vaccine maker would supply up to 60 million doses of VLA2001, its inactivated COVID-19 vaccine candidate. According to the contract, EU member states could purchase almost 27 million doses in 2022. It also includes the possibility to adapt the vaccine to new variant strains, and for EU countries to make a further order of up to 33 million additional vaccine doses in 2023.
+
