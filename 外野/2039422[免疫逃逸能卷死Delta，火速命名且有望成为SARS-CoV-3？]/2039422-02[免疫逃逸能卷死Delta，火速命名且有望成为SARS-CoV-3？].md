@@ -1098,3 +1098,31 @@ https://www.economist.com/asia/2021/03/13/india-seems-to-have-suffered-surprisin
 
 圣诞礼物怎么一个个那么急着锁国啊，西方迎接圣诞老人的方法是把烟囱门窗全部堵死吗？
 
+
+
+*****
+
+####  riczxc  
+##### 1594#         楼主| 发表于 2021-12-3 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53799894&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-12-3 20:44</a>
+
+还真就拿圣诞礼物的论调出来用啊，这群西方鬼佬真的脸都不要了
+
+圣诞礼物怎么一个个那么急着锁国啊， ...</blockquote>
+专家用的是虚拟式，假设轻症多。
+
+媒体自然就像你这样抓住一个“圣诞礼物”不放。
+
+*****
+
+####  天使日又日  
+##### 1595#       发表于 2021-12-3 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53799937&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 20:48</a>
+
+专家用的是虚拟式，假设轻症多。
+
+媒体自然就像你这样抓住一个“圣诞礼物”不放。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是，媒体懂我们大众痛点
+
