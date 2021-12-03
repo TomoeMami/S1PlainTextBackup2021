@@ -16313,3 +16313,24 @@ The person with the Omicron variant is an ** male, is a resident of Hennepin Cou
 News Release: Lab testing confirms state’s fir ...</blockquote>
 ** 是 ad​ult
 
+
+
+*****
+
+####  laotoutou  
+##### 1447#       发表于 2021-12-3 08:29
+
+究竟要等多久才有致死率的明确说法。
+
+*****
+
+####  riczxc  
+##### 1448#         楼主| 发表于 2021-12-3 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53791057&amp;ptid=2039422" target="_blank">laotoutou 发表于 2021-12-3 08:29</a>
+
+究竟要等多久才有致死率的明确说法。</blockquote>
+再等3周？
+
+现在南非应该都是Omicron，但是之前感染的人比较少，所以要有多点数据怎么都要等一个病程吧。
+
