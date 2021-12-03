@@ -16279,3 +16279,37 @@ A total of 51,402 tests were conducted in the last 24hrs, with 11,535 new cases,
 
 <img src="https://p.sda1.dev/3/93efb76ec5c7aa85cb61249981286616/IMG_CMP_106190728.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 1444#       发表于 2021-12-3 08:07
+
+明尼苏达的omicron病例，近期只有10多天前去过纽约漫展
+
+News Release: Lab testing confirms state’s first COVID-19 case involving Omicron variant
+
+Minnesota Department of Health sent this bulletin at 12/02/2021 09:31 AM CST
+
+The person with the Omicron variant is an ** male, is a resident of Hennepin County, and had been vaccinated. The person developed mild symptoms on Nov. 22 and sought COVID-19 testing on Nov. 24. The person’s symptoms have resolved.  The person spoke with MDH case investigators and reported traveling to New York City and attended the Anime NYC 2021 convention at the Javits Center from Nov. 19-21. The person was advised to isolate from others. Minnesota epidemiologists will continue to investigate in collaboration with New York City and the U.S. Centers for Disease Control and Prevention.
+
+*****
+
+####  creymorgan  
+##### 1445#       发表于 2021-12-3 08:18
+
+都不奇怪，靠抗体（无论是痊愈者还是疫苗）顶的地区，面对大概率分型的变种是极为脆弱的。
+
+*****
+
+####  riczxc  
+##### 1446#         楼主| 发表于 2021-12-3 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790908&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-3 08:07</a>
+
+明尼苏达的omicron病例，近期只有10多天前去过纽约漫展
+
+News Release: Lab testing confirms state’s fir ...</blockquote>
+** 是 ad​ult
+
