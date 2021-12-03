@@ -16334,3 +16334,56 @@ News Release: Lab testing confirms state’s fir ...</blockquote>
 
 现在南非应该都是Omicron，但是之前感染的人比较少，所以要有多点数据怎么都要等一个病程吧。
 
+
+
+*****
+
+####  configxxxx  
+##### 1449#       发表于 2021-12-3 08:44
+
+<blockquote>riczxc 发表于 2021-12-3 08:32
+再等3周？
+
+现在南非应该都是Omicron，但是之前感染的人比较少，所以要有多点数据怎么都要等一个病程吧。 ...</blockquote>
+但是感染规模扩大好像持续了有快两周了吧，重症率理论上应该能看出个大概了？
+
+*****
+
+####  克鲁特尼  
+##### 1450#       发表于 2021-12-3 08:45
+
+孩子入院挺多的
+
+*****
+
+####  riczxc  
+##### 1451#         楼主| 发表于 2021-12-3 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53791162&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-3 08:44</a>
+
+但是感染规模扩大好像持续了有快两周了吧，重症率理论上应该能看出个大概了？ ...</blockquote>
+
+现在每天一万例，但是之前几周真的不算多啊。我觉得要算应该能算，但是之前零零碎碎肯定不好算。而且我觉得也没有人会觉得区别会很大。
+
+出来的新闻比较吓人的就是小孩入院很多。
+
+*****
+
+####  Khvarenah  
+##### 1452#       发表于 2021-12-3 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787716&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-2 21:05</a>
+看到这个标题简直要笑死。成功了一年半的政策，现在才看出，脑子起码在300万公里以外，月球都嫌近了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天看的时候都没几个回复的
+这会儿再看底下就全都是傻逼青蛙了
+
+*****
+
+####  66666  
+##### 1453#       发表于 2021-12-3 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790968&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 08:18</a>
+
+都不奇怪，靠抗体（无论是痊愈者还是疫苗）顶的地区，面对大概率分型的变种是极为脆弱的。 ...</blockquote>
+现在就只能祈祷千万不要出ADE效应了，不然对人类来说简直不堪设想
+
