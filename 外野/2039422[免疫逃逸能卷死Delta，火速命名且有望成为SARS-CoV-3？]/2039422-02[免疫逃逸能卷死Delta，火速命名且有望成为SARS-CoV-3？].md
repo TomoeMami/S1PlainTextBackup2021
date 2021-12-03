@@ -68,3 +68,150 @@ PS: 你一直在用的例子是诉诸无知谬误，如果你认同这个逻辑�
 
 你们世界肯定是不可能清零了，我们跟你们比不了，我们是要清零的。。。
 
+
+
+*****
+
+####  smy20011  
+##### 1507#       发表于 2021-12-3 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795229&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:00</a>
+
+你赶快回你们世界吧，别在我们世界待了
+
+你们世界肯定是不可能清零了，我们跟你们比不了，我们是要清零的 ...</blockquote>
+非洲不在这世界上还是怎么的,要不然你的世界不是现实
+
+*****
+
+####  汽车屁  
+##### 1508#       发表于 2021-12-3 14:08
+
+ 本帖最后由 汽车屁 于 2021-12-3 14:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795264&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 14:05</a>
+
+非洲不在这世界上还是怎么的,要不然你的世界不是现实</blockquote>
+你都把中国踢出这个世界了，我们的世界当然和你们的世界不是一个现实了。。。
+你们的世界，已经不可能清零了。。。
+
+*****
+
+####  smy20011  
+##### 1509#       发表于 2021-12-3 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795099&amp;ptid=2039422" target="_blank">lipo 发表于 2021-12-3 13:48</a>
+
+天呐，不会真得新冠把脑子烧了吧，自己说的话都不认了。</blockquote>
+这个不懂的话,去看哥德尔不完备定理证明
+
+*****
+
+####  smy20011  
+##### 1510#       发表于 2021-12-3 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795302&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:08</a>
+
+你都把中国踢出这个世界了，我们的世界当然和你在的世界不是一个现实了。。。 ...</blockquote>
+从世界角度上来看,新冠不可能清零或者这么说,你不可能把新冠病毒在世界范围内消除
+
+*****
+
+####  tillnight  
+##### 1511#       发表于 2021-12-3 14:09
+
+<blockquote>翻滚吧熊犊子 发表于 2021-12-3 13:15
+觉得我国出现也是迟早得事情了 现在就是希望毒性是能真的弱一些了</blockquote>
+想什么呢？三哥病毒牛逼不？国内有了不？都是，但是在国内都能几天扑灭不死人。
+
+*****
+
+####  汽车屁  
+##### 1512#       发表于 2021-12-3 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795309&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 14:08</a>
+
+从世界角度上来看,新冠不可能清零</blockquote>
+从世界角度上来看新冠会清零
+
+*****
+
+####  wszweill  
+##### 1513#       发表于 2021-12-3 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792323&amp;ptid=2039422" target="_blank">砥草 发表于 2021-12-2 21:28</a>
+
+微博看到的，大受震撼</blockquote>
+啥东西，花钱得新冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不愧是资本主义，佩服佩服
+
+*****
+
+####  smy20011  
+##### 1514#       发表于 2021-12-3 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795338&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:10</a>
+
+从世界角度上来看新冠会清零</blockquote>
+为什么?
+
+*****
+
+####  東方仗助  
+##### 1515#       发表于 2021-12-3 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795352&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 14:12</a>
+为什么?</blockquote>
+因为世界上只有一个中国
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天使日又日  
+##### 1516#       发表于 2021-12-3 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795350&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-3 14:11</a>
+啥东西，花钱得新冠 不愧是资本主义，佩服佩服</blockquote>
+因为德国宣布没种疫苗或没有抗体的不允许进入很多场所，这群人疫苗是不会去打的这辈子也不可能打的，那拿钱买抗体买通行证好像也还算符合资本主义？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  公共知识  
+##### 1517#       发表于 2021-12-3 14:15
+
+新冠不可能在世界上消失了，除非它自己消失。消灭新冠需要一个强大的政府。即使西方国家能迷途知返痛定思痛组织起来，这个世界上很多地方也是组织不起一个有强大组织力的政府的。认清这个现实，知道我们下半辈子乃至我们的孩子很可能都要和口罩共存，有利于放弃幻想，坚持抗疫。
+
+*****
+
+####  汽车屁  
+##### 1518#       发表于 2021-12-3 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795352&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 14:12</a>
+
+为什么?</blockquote>
+死光就可以了 <blockquote>也许，半个世纪后，你抱着孙子，给他讲述末日之壁建立前在污染区纵横万里的故事。。。</blockquote>
+关键字：末日之壁，安全区或称绿区，污染区或称红区
+
+*****
+
+####  smy20011  
+##### 1519#       发表于 2021-12-3 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795397&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:16</a>
+
+死光就可以了
+
+关键字：末日之壁，安全区或称绿区，污染区或称红区</blockquote>
+你想太多了,新冠只有在现代才这么大张旗鼓,在古代根本不算事情
+
+*****
+
+####  汽车屁  
+##### 1520#       发表于 2021-12-3 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795452&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 14:20</a>
+
+你想太多了,新冠只有在现代才这么大张旗鼓,在古代根本不算事情</blockquote>
+你咋这么聪明呢？我想说的，就是回到古代啊，你们的世界回到古代。。。
+
