@@ -6585,3 +6585,23 @@ VI是六的意思，估计指的是大银妇，B5真的是完全没提到。
 喷了.....加雷斯幕间这什么OOC剧情.....把别人JJ拿掉就算了.....还自己又加了一段感情戏 ...</blockquote>
 竟然不强化才是yysd
 
+
+
+*****
+
+####  zakki  
+##### 84589#       发表于 2021-12-3 09:37
+
+ 本帖最后由 zakki 于 2021-12-3 09:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53786743&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-2 19:41</a>
+
+Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶，作为BeastⅣ候选者的高扬斯卡娅就是其中之一 ...</blockquote>
+第六兽铺垫很多的，苍银，巴比伦大 淫 妇，666等等，加上还有街机铺垫。第五兽就真的提都没提过。兽的理看起来是固定的吧，毕竟杀生院和迦摩都是爱欲，而且本身两人都是后天形成的兽。还有杀狐现在的羁绊资料其实没啥参考价值，很多部分都是胡乱写进去的，比如什么“为了纪念六周年登场”，保不准会像C呆一样重写。
+
+*****
+
+####  zakki  
+##### 84590#       发表于 2021-12-3 09:41
+
+非灵长生存圈最好就是那个光点和2.65，说真的别tm拖了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

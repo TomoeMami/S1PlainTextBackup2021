@@ -16398,3 +16398,17 @@ News Release: Lab testing confirms state’s fir ...</blockquote>
 现在就只能祈祷千万不要出ADE效应了，不然对人类来说简直不堪设想</blockquote>
 可以看南非的住院率，因为南非基本上都得了delta了
 
+
+
+*****
+
+####  武男  
+##### 1455#       发表于 2021-12-3 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53787536&amp;ptid=2039422" target="_blank">super_uni 发表于 2021-12-2 20:48</a>
+
+加息就好了，这么麻烦干嘛，反正那些寡头都能提前知道消息
+
+— from OPPO PEGM00, Android 11 of  ...</blockquote>
+加息是有风险的，等会股市再熔断，你不还是要继续放水，再放那就是美联储买下华尔街了。
+
