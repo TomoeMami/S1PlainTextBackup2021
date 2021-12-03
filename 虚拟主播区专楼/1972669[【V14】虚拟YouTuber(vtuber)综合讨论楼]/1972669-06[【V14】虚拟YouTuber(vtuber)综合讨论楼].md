@@ -17795,3 +17795,31 @@ fuwa……<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" 
 
 还说打游戏遇到他不要奇怪&amp;回来后想做观众参加型企划
 
+
+
+*****
+
+####  alcoholic1000  
+##### 8903#       发表于 2021-12-3 19:57
+
+ 本帖最后由 alcoholic1000 于 2021-12-3 20:00 编辑 
+
+Bsyl，大的来了（杏ver.）
+
+<img src="https://img.saraba1st.com/forum/202112/03/195710gs276vv7c5735egt.png" referrerpolicy="no-referrer">
+
+<strong>ホロライブプロダクション史上最大級の イベント＆ライブ同時開催!!.png.png</strong> (222 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-3 19:57 上传
+
+DAY1
+
+AZKi さくらみこ 星街すいせい 赤井はあと 白上フブキ 夏色まつり 大空スバル 戌神ころね 白銀ノエル 宝鐘マリン 天音かなた 常闇トワ 姫森ルーナ 桃鈴ねね 尾丸ポルカ
+
+DAY2
+
+ときのそら ロボ子さん 夜空メル アキ・ローゼンタール 湊あくあ 紫咲シオン 百鬼あやめ 癒月ちょこ 大神ミオ 猫又おかゆ 兎田ぺこら 潤羽るしあ 不知火フレア 角巻わため 雪花ラミィ 獅白ぼたん
+[https://hololivesuperexpo.hololivepro.com/](https://hololivesuperexpo.hololivepro.com/)
+
