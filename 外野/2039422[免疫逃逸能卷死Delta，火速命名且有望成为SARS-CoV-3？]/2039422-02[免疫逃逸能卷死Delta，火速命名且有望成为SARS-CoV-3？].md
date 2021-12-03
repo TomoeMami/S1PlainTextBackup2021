@@ -1404,3 +1404,15 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 好几个没旅行史的，是不是这变种已经在欧美传播一段时间了，但是卷不过delta所以没被检测网查到？ ...</blockquote>
 多半不是，否则测序一下就能看到进化树的情况。
 
+
+
+*****
+
+####  Khvarenah  
+##### 1617#       发表于 2021-12-4 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802179&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-4 00:57</a>
+多半不是，否则测序一下就能看到进化树的情况。</blockquote>
+并不能相信他们是否是隐瞒不报
+毕竟有英国的例子在先
+
