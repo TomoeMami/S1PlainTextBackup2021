@@ -6663,3 +6663,14 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 2.7 上!中!下!下半!最终章 最终章后半!</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后过了大半年以为要终章了告诉你实际上2.7只是为了打终章的前置准备 到时候还有个2.8
 
+
+
+*****
+
+####  khxooo  
+##### 84596#       发表于 2021-12-3 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795044&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-3 13:42</a>
+然后过了大半年以为要终章了告诉你实际上2.7只是为了打终章的前置准备 到时候还有个2.8 ...</blockquote>
+终极异闻带伽勒底<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

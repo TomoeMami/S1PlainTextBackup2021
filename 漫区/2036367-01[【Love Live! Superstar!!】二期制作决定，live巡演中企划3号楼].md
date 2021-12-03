@@ -15561,3 +15561,16 @@ A9972F66-43F4-4FA7-81F8-DDB90878A73E.jpeg
 
 鼓掌鼓掌
 
+
+
+*****
+
+####  ads147147  
+##### 1384#       发表于 2021-12-3 14:44
+
+<img src="https://p.sda1.dev/3/287c7820e21a84d265b72dd58f49ffb3/IMG_CMP_170714129.jpeg" referrerpolicy="no-referrer">
+
+alp老师画的恋恋还是璞玉呢。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
