@@ -6629,3 +6629,25 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 法米通和电击的通稿都把这个活动跟平安京一起提的，官方通稿总不至于掉链子吧……我倾向于这次只是宣传上 ...</blockquote>
 那就行，我觉得出成ccc那种形式，活动结束后进主线活动那里和CCC，平安京放一起。看这次活动宣传的力度还挺大，时间节点选的也很特殊，希望能有点大的，不知道紫苑说的下次开始不会再全员存活，是不是指的这次
 
+
+
+*****
+
+####  alucardcz  
+##### 84593#       发表于 2021-12-3 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53791777&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-3 09:41</a>
+
+非灵长生存圈最好就是那个光点和2.65，说真的别tm拖了明年周年前最好把2.7给出了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">2.7 上!中!下!下半!最终章 最终章后半!
+
+*****
+
+####  areklose  
+##### 84594#       发表于 2021-12-3 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53794594&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-3 13:05</a>
+
+2.7 上!中!下!下半!最终章 最终章后半!</blockquote>
+2.6.5 2.7.5 
+
