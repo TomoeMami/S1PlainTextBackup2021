@@ -16803,3 +16803,51 @@ The European Commission has approved an agreement with Valneva under which the F
 
 另外想问一句卷死德尔塔了吗？南非德尔塔的感染率有下降吗？理论上得了这个也能得德尔塔吧
 
+
+
+*****
+
+####  smy20011  
+##### 1490#       发表于 2021-12-3 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53793947&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-3 12:16</a>
+
+另外想问一句卷死德尔塔了吗？南非德尔塔的感染率有下降吗？理论上得了这个也能得德尔塔吧 ...</blockquote>
+南非在之前就已经没有delta病情了,因为绝大部分人都有了,群体免疫
+
+o变种能传播,是因为能感染delta感染者
+
+*****
+
+####  yario  
+##### 1491#       发表于 2021-12-3 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792605&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-3 10:49</a></blockquote>
+他们这么想做死剩种啊。有点意思。。。
+
+*****
+
+####  aceback  
+##### 1492#       发表于 2021-12-3 12:26
+
+delta、omicron、alpha加上始祖病毒 
+一起在体内开party
+
+*****
+
+####  nanrendu  
+##### 1493#       发表于 2021-12-3 12:39
+
+中世纪的人是什么一个样子，现在我们都看到了，这是历史重现了。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  最好不说  
+##### 1494#       发表于 2021-12-3 12:41
+
+<blockquote>configxxxx 发表于 2021-12-3 12:16
+另外想问一句卷死德尔塔了吗？南非德尔塔的感染率有下降吗？理论上得了这个也能得德尔塔吧 ...</blockquote>
+delta现在在南非本来就是不应期，每天几十例那种，新王旧王对决还得看欧美大战场
+
