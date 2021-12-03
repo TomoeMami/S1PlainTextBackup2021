@@ -817,3 +817,148 @@ Mainland China
 
 你说疫苗分配不均不假,更大的问题是,国际上贫富差距太大了
 
+
+
+*****
+
+####  creymorgan  
+##### 1574#       发表于 2021-12-3 18:06
+
+<blockquote>riczxc 发表于 2021-12-3 17:54
+暂时的主流观点是这样的，我觉得不一定很同意。他们考虑问题都很静态。到底疫苗的选择压会不会造成致命性 ...</blockquote>
+无视疫情任其得个遍产生的抗体就对病毒没有选择压力了？
+
+然后，欧美犯下的错可不只是不清零起码还有疫苗帝国主义。
+
+接着，无论是不清零还是疫苗帝国主义都给中国的防疫带来压力，中国人骂他们有十万个理由。
+
+最后，中国人只是老百姓骂骂没有动手，欧美可是政客主动煽动仇恨诱发了多起对黄种人的袭击的。
+
+*****
+
+####  sandro  
+##### 1575#       发表于 2021-12-3 18:06
+
+今天盆友圈好几个人在转发文章说新变种症状轻，是早来的圣诞礼物，这又是个什么讲法
+
+*****
+
+####  smy20011  
+##### 1576#       发表于 2021-12-3 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798308&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 18:06</a>
+
+无视疫情任其得个遍产生的抗体就对病毒没有选择压力了？
+
+然后，欧美犯下的错可不只是不清零起码还有疫苗 ...</blockquote>
+离题越来越远了。。。
+
+你是想说新变种的出现,欧美需要背锅么?
+
+*****
+
+####  smy20011  
+##### 1577#       发表于 2021-12-3 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798315&amp;ptid=2039422" target="_blank">sandro 发表于 2021-12-3 18:06</a>
+
+今天盆友圈好几个人在转发文章说新变种症状轻，是早来的圣诞礼物，这又是个什么讲法 ...</blockquote>
+不是很科学的讲法
+
+先不说现在重症率和delta差不多,就算变轻了肺炎和并发症依然存在
+
+o变种很大可能是能逃逸delta造成的抗体的,感染了o变种,并不能保证你免疫新冠
+
+*****
+
+####  riczxc  
+##### 1578#         楼主| 发表于 2021-12-3 18:15
+
+ 本帖最后由 riczxc 于 2021-12-3 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798315&amp;ptid=2039422" target="_blank">sandro 发表于 2021-12-3 18:06</a>
+
+今天盆友圈好几个人在转发文章说新变种症状轻，是早来的圣诞礼物，这又是个什么讲法 ...</blockquote>
+
+这个我知道。德国传染病学家的说法，用了第二虚拟态。说不定有人德语不好不说，英语也不好。
+
+原文是
+
+Es wäre wirklich ein vorgezogenes Weihnachtsgeschenk, wenn Omicron leichter verliefe. Bei so vielen Mutationen wäre es aber denkbar. Aber Vorsicht: was dagegen spricht: in SA sind nur 6% Ü65 alt. Deutschland ältestes Land Europa mit vielen chronisch Kranken
+
+假设Omicron症状要是真的更加轻微，那真的是早来的圣诞礼物。因为突变那么多，说不定还真有可能。但是小心：也有不乐观的可能：南非只有6%的人超过65岁。德国是欧洲最老的国家，而且有很多长期病患。
+
+https://twitter.com/Karl_Lauterbach/status/1464903997953826821
+
+断章取义还是社交网络第一要义啊。
+
+*****
+
+####  riczxc  
+##### 1579#         楼主| 发表于 2021-12-3 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798308&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 18:06</a>
+
+无视疫情任其得个遍产生的抗体就对病毒没有选择压力了？
+
+然后，欧美犯下的错可不只是不清零起码还有疫苗 ...</blockquote>
+选择压力是什么回事？人人都有疫苗了，自然病毒要点疫苗逃逸。一个不好运，就出现Marek病的情况了，因为现有的疫苗都不防传播。
+
+如果现在人类有更好的疫苗就另说，新冠疫苗太烂了。（鼻喷疫苗是下一个希望）。
+
+疫苗帝国主义的问题是死人更多。主流观点也认为是变种产生的原因。我在这个小点上有不同的观点，主要是Marek病的情况太吓人了。
+
+其他的问题你说得也对，但是这个问题都讨论烂了。
+
+*****
+
+####  configxxxx  
+##### 1580#       发表于 2021-12-3 18:20
+
+假如症状轻如牛痘，同时得过O变种就不会得德尔塔的话，算是吧，但是第一点暂时还不清楚，第二点么，刚看个新闻说O变种突破疫苗保护的能力是德尔塔的三倍。
+
+*****
+
+####  飞升之后  
+##### 1581#       发表于 2021-12-3 18:21
+
+还是看死亡率
+
+*****
+
+####  riczxc  
+##### 1582#         楼主| 发表于 2021-12-3 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798481&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-3 18:20</a>
+
+假如症状轻如牛痘，同时得过O变种就不会得德尔塔的话，算是吧，但是第一点暂时还不清楚，第二点么，刚看个 ...</blockquote>
+就是这个免疫逃逸貌似是单向的。
+
+A能逃逸B的抗体，不说明B能逃逸A的抗体。所以还能嘴硬一段时间。
+
+*****
+
+####  creymorgan  
+##### 1583#       发表于 2021-12-3 18:22
+
+<blockquote>smy20011 发表于 2021-12-3 18:08
+离题越来越远了。。。
+
+你是想说新变种的出现,欧美需要背锅么?</blockquote>
+新变种的出现意味着
+
+1、严控疫情，保证人民的安全和生产，给世界提供了大量疫苗和物资，面对新变种不需要改变防疫政策的中国是对的。
+
+2、天真防疫，疯狂印钱，囤积疫苗，对第三世界强加不平等条约，面对新情况就开始仰卧起坐的欧美的错的。
+
+锅要不要背不好说，但地还是不要洗了。
+
+*****
+
+####  smy20011  
+##### 1584#       发表于 2021-12-3 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798481&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-3 18:20</a>
+
+假如症状轻如牛痘，同时得过O变种就不会得德尔塔的话，算是吧，但是第一点暂时还不清楚，第二点么，刚看个 ...</blockquote>
+O变种的传播本来就是建立在对delta的逃逸上面的,极端一点这两个病毒甚至能够共存
+
