@@ -215,3 +215,96 @@ PS: 你一直在用的例子是诉诸无知谬误，如果你认同这个逻辑�
 你想太多了,新冠只有在现代才这么大张旗鼓,在古代根本不算事情</blockquote>
 你咋这么聪明呢？我想说的，就是回到古代啊，你们的世界回到古代。。。
 
+
+
+*****
+
+####  creymorgan  
+##### 1521#       发表于 2021-12-3 14:25
+
+中国绝大部分时间和地区都是非常低负担的，综合起来在新冠横行的世界里生存对中国的成本一点都不大。
+
+所以对我们来说，坚持自己的对策，对疫情形势加以关注就行了。
+
+而且现在新冠对策也不是没有盼头，三款针对不同靶点的小分子药呼之欲出。
+
+我个人对药物还是比较乐观的，同时有三个靶点的小分子药，只要不傻乎乎一个个送，抗药性是很难出的，这套药可以维持人类文明很长时间对新冠的安全。
+
+*****
+
+####  aceback  
+##### 1522#       发表于 2021-12-3 14:25
+
+某国给全球发了最多的疫苗，造了最多的防疫物资，全球工业瘫痪的时候保证了产品输出，保护十几亿人不被感染。
+然后mvp是挪威[捂脸]
+<img src="https://p.sda1.dev/3/9ed6eaa19eefb7236860ca05c3ab8fbd/IMG_CMP_250233821.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/2b83984d5035410bde1a1659ad874707/IMG_CMP_197570987.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 1523#       发表于 2021-12-3 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795514&amp;ptid=2039422" target="_blank">aceback 发表于 2021-12-3 14:25</a>
+某国给全球发了最多的疫苗，造了最多的防疫物资，全球工业瘫痪的时候保证了产品输出，保护十几亿人不被感染 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不想封建迷信，但是还是得说新冠就是西方的业报啊
+
+*****
+
+####  xtwx1716  
+##### 1524#       发表于 2021-12-3 14:30
+
+这楼里聊的东西已经看不懂了 mindfuck
+
+*****
+
+####  smy20011  
+##### 1525#       发表于 2021-12-3 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795481&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:23</a>
+
+你咋这么聪明呢？我想说的，就是回到古代啊，你们的世界回到古代。。。 ...</blockquote>
+所以你的想象完全是无稽之谈啊
+
+*****
+
+####  yukino1981  
+##### 1526#       发表于 2021-12-3 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792217&amp;ptid=2039422" target="_blank">中二骚年 发表于 2021-12-3 10:20</a>
+
+COVID STATUS
+
+Mainland China
+
+1-Month cases per 100,00 : 0</blockquote>
+基本上这些白皮外媒搞得所谓榜单数据就是以后给收钱的公知和1450作为宣传的论据，以前不少公知举外国的数据和榜单不就是这个套路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 1527#       发表于 2021-12-3 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795588&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 14:31</a>
+
+所以你的想象完全是无稽之谈啊</blockquote>
+你都把中国踢出这个世界了，你跟我讲 无稽之谈？
+
+*****
+
+####  smy20011  
+##### 1528#       发表于 2021-12-3 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795628&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:34</a>
+
+你都把中国踢出这个世界了，你跟我讲 无稽之谈？</blockquote>
+我说的是世界范围内清零
+
+你跟我说的是,除了中国之外全世界死光
+
+我举例说明,更凶狠的病毒也杀不死人类,更何况是新冠
+
+只要病毒不能灭绝全世界其他人,那新冠就不可能从地球上消失啊
+
+你脑补的,只是无稽之谈罢了
+
