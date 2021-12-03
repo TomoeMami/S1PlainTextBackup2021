@@ -1047,3 +1047,23 @@ A能逃逸B的抗体，不说明B能逃逸A的抗体。所以还能嘴硬一段�
 You don't have to change holiday plans due to Omicron if you're vaccinated, Fauci says. But don't wait to get a booster
 [https://www.cnn.com/2021/12/02/h ... thursday/index.html](https://www.cnn.com/2021/12/02/health/us-coronavirus-thursday/index.html)
 
+
+
+*****
+
+####  riczxc  
+##### 1592#         楼主| 发表于 2021-12-3 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798628&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 18:31</a>
+
+印度疫情不是一开始就很严重么?</blockquote>
+要理解现在对Omicron的乐观情绪，不得不看看Delta传了3个月以后有关印度的新闻：
+
+But as India enters, in the words of Health Minister Harsh Vardhan, the "endgame of the pandemic", the hunt for variants has been intensified. "India is in a good position. Cases and deaths are low, hospitals are not overwhelmed, vaccination is picking up speed," says Dr Mishra. 
+
+https://www.bbc.com/news/world-asia-india-56330595
+
+The limited data available suggest that in other parts of India, too, covid-19 has been less lethal than in much of Europe or the Americas.
+
+https://www.economist.com/asia/2021/03/13/india-seems-to-have-suffered-surprisingly-few-deaths-from-covid-19
+

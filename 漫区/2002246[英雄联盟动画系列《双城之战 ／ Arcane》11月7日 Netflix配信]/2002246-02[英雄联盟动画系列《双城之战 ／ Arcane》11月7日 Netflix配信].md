@@ -15801,3 +15801,21 @@ Bangumi上这篇最近的剧评写得挺好的，有条有理，有自己的一�
 《双城之战》是英雄联盟的首部动画剧集 ...</blockquote>
 导演：加亿点点女通讯录要素<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿纳海姆电子  
+##### 2932#       发表于 2021-12-3 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798236&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-12-3 17:58</a>
+
+https://www.bilibili.com/video/BV1nL411M7Hi
+
+这个up说到了童年经历导致对金克斯而言和平不重要这点，于 ...</blockquote>
+这视频做得太具有主观色彩了，Arcane不愧是金克丝传<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+谁说没人能和金克丝共情了，这视频里就展现了一种共情：对非主观故意错误的逃避和谅解。谁没好心办过坏事啊，虽说没有金克丝炸死父兄那么严重那也是挨过打挨过罚的，犯错后都觉得委屈，都渴望别人的谅解与认同。在这个层面上来说金克丝可太幸运了，搞砸一大票没关系有姐姐原谅，炸死干爹没关系有希尔科原谅，手刃希尔科他还能接着原谅，试问谁不渴望犯错后被坑的人来一句“你是完美的”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+比起希尔科被吹成祖安领袖，骂金克丝喜欢金克丝都还挺正常的。“这个世界上所有的人，并不是个个都有你那些优越条件”，这句话本身都带着优越感，更何况我们呢。骂金克丝喜欢金克丝都可以看作是对她的共情，说明这个角色塑造得真挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
