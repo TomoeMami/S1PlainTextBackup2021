@@ -343,3 +343,57 @@ Mainland China
 我举例说明,更凶狠的病毒也杀不死人类,更 ...</blockquote>
 那就走着瞧吧，看看新冠能不能在世界范围内清零。。。
 
+
+
+*****
+
+####  smy20011  
+##### 1531#       发表于 2021-12-3 15:02
+
+<blockquote>汽车屁 发表于 2021-12-3 15:00
+那就走着瞧吧，看看新冠能不能在世界范围内清零。。。</blockquote>
+你这里靠脑补放狠话有什么用啊。。
+
+*****
+
+####  汽车屁  
+##### 1532#       发表于 2021-12-3 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795975&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 15:02</a>
+
+你这里靠脑补放狠话有什么用啊。。</blockquote>
+那就让新冠来说话
+
+*****
+
+####  ysys  
+##### 1533#       发表于 2021-12-3 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795338&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:10</a>
+
+从世界角度上来看新冠会清零</blockquote>
+我们再怎么努力也只能实现部分清零
+
+洋大人的屁股没本事也没必要去擦……
+
+*****
+
+####  crazyt  
+##### 1534#       发表于 2021-12-3 15:14
+
+<blockquote>ysys 发表于 2021-12-3 15:09
+我们再怎么努力也只能实现部分清零
+
+洋大人的屁股没本事也没必要去擦…… ...</blockquote>
+这意思是宿主清零了自然病毒也清零了。
+
+*****
+
+####  03e7  
+##### 1535#       发表于 2021-12-3 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795952&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 15:00</a>
+
+那就走着瞧吧，看看新冠能不能在世界范围内清零。。。</blockquote>
+按泥潭规矩，这种打赌要塞抹布塞到清零那天的
+

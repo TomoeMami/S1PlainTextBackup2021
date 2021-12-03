@@ -6674,3 +6674,15 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 然后过了大半年以为要终章了告诉你实际上2.7只是为了打终章的前置准备 到时候还有个2.8 ...</blockquote>
 终极异闻带伽勒底<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 84597#       发表于 2021-12-3 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795819&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-3 14:49</a>
+
+终极异闻带伽勒底</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总感觉奥尔加会再被迫害一次
+
