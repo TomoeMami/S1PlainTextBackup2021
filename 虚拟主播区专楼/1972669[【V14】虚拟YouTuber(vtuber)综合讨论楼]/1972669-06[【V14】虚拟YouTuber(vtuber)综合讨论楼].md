@@ -17776,3 +17776,22 @@ fuwa……<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" 
 
 我真是草了还有人在虹楼黑泥他黛灰摸鱼ymen活动的。假装情强之前能不能先认真看一眼ymen发过什么推啊，绝了
 
+
+
+*****
+
+####  Paisley  
+##### 8901#       发表于 2021-12-3 19:44
+
+能去医院检查，顶不住就休息其实挺好的，有助于恢复，慢慢等着吧<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">现在让他上班肯定不太行……
+
+*****
+
+####  winda  
+##### 8902#       发表于 2021-12-3 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黛灰这并没有告知看上去的那么吓人
+[https://youtu.be/QcPClss2sqc?t=472](https://youtu.be/QcPClss2sqc?t=472)
+
+还说打游戏遇到他不要奇怪&amp;回来后想做观众参加型企划
+
