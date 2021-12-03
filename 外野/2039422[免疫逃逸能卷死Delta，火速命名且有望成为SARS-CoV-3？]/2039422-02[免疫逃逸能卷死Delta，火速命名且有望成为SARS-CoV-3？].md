@@ -1126,3 +1126,29 @@ https://www.economist.com/asia/2021/03/13/india-seems-to-have-suffered-surprisin
 媒体自然就像你这样抓住一个“圣诞礼物”不放。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是，媒体懂我们大众痛点
 
+
+
+*****
+
+####  克鲁特尼  
+##### 1596#       发表于 2021-12-3 21:06
+
+韩国怎么又要有教会集中爆发奥密克戎了？
+
+*****
+
+####  riczxc  
+##### 1597#         楼主| 发表于 2021-12-3 21:13
+
+ 本帖最后由 riczxc 于 2021-12-3 21:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800168&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-12-3 21:06</a>
+
+韩国怎么又要有教会集中爆发奥密克戎了？</blockquote><blockquote>韩联社首尔12月3日电
+
+ 韩国仁川市弥邹忽区一家教会出现疑似感染“奥密克戎”变异株病例。
+
+上月28日，一名感染“奥密克戎”毒株的乌兹别克斯坦男子的妻子、岳母和朋友3人到该教会参加了礼拜。这3人已经确诊感染新冠病毒，为确认是否感染“奥密克戎”毒株的基因组测序正在进行中。
+
+中央防疫对策本部流行病学调查组组长朴英俊3日在记者会上表示，该教会还报告新的确诊病例。上述3人接触的411人和在其他时段参加礼拜的369人从前日起接受检测，可能将出现新的确诊病例。（完）</blockquote>
+[https://cn.yna.co.kr/view/ACK20211203005200881](https://cn.yna.co.kr/view/ACK20211203005200881)
+

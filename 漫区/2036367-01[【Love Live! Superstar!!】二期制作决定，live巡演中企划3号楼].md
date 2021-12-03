@@ -15713,3 +15713,12 @@ alp老师画的恋恋还是璞玉呢。
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  迪米特里  
+##### 1396#       发表于 2021-12-3 21:03
+
+看一遍nonfiction六场连放，每场都能感觉到相对之前的进步，有点体会到那种偶像出道就开始追的饭的心情<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
