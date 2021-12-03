@@ -7533,3 +7533,73 @@ SC有点哈人了
 
 逼真大主播
 
+
+
+*****
+
+####  小憨1  
+##### 3859#       发表于 2021-12-3 22:21
+
+河马哥都来了
+
+*****
+
+####  rgauss  
+##### 3860#       发表于 2021-12-3 22:24
+
+我不能呼吸了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 3861#       发表于 2021-12-3 22:25
+
+谢天依啥时候套皮啊很急
+
+*****
+
+####  灰色的狐狸  
+##### 3862#       发表于 2021-12-3 22:26
+
+哎我日
+
+我第一次看这节目，这艾瑞斯得建模也太可怕了点吧
+
+*****
+
+####  小憨1  
+##### 3863#       发表于 2021-12-3 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800993&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-3 22:26</a>
+哎我日
+
+我第一次看这节目，这艾瑞斯得建模也太可怕了点吧</blockquote>
+艾队的模型在这里面算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3864#       发表于 2021-12-3 22:29
+
+ 本帖最后由 rgauss 于 2021-12-3 22:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">可不可以把那只鸡静音啊
+
+文静收收味
+
+*****
+
+####  小憨1  
+##### 3865#       发表于 2021-12-3 22:36
+
+CJ真寄吧是个初圣，选谁都行选了个黑幕哥
+
+*****
+
+####  rgauss  
+##### 3866#       发表于 2021-12-3 22:38
+
+mmd这水平 知道黑幕可以不要这么嚣张吗
+
+能把他噶了吗
+
