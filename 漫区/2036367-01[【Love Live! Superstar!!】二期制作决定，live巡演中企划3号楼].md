@@ -15590,3 +15590,19 @@ alp老师画的恋恋还是璞玉呢。
 整体来说还是符 ...</blockquote>
 有兴趣的话，也可以看看live，几位声优的表演质量还是非常不错的。
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 1386#       发表于 2021-12-3 17:25
+
+二次元看完，该看三次元了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 1387#       发表于 2021-12-3 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来离2nd已经不到100天了，然而1st刚过半
+

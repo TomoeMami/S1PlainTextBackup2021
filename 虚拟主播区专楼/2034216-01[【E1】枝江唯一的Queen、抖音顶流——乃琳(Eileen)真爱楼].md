@@ -3933,3 +3933,28 @@ Sanlow，给个痛快
 
 黑发琳好棒！
 
+
+
+*****
+
+####  sanlow666  
+##### 303#         楼主| 发表于 2021-12-3 17:29
+
+乃琳Queen:[哎呀！胡闹小乃琳在线求Mua啦~（直播剪辑）](https://t.bilibili.com/599936644115447242)
+
+（运营代发）
+
+素材来自11月24日乃琳单播
+出镜：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202112/03/172859y1pkdb6mp57aopa0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (156.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-3 17:28 上传
+

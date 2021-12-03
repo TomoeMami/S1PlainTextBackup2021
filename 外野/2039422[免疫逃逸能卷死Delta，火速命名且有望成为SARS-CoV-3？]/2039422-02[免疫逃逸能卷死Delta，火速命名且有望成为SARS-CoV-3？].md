@@ -670,3 +670,93 @@ Mainland China
 
 本来点进去想看下有什么omicron专门信息总汇，结果是屁股大战。。
 
+
+
+*****
+
+####  smy20011  
+##### 1562#       发表于 2021-12-3 17:25
+
+建议主楼消息改成,没有靠谱消息,两周之后再来
+
+*****
+
+####  smy20011  
+##### 1563#       发表于 2021-12-3 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53797550&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 17:01</a>
+
+你觉得现在欧美在干啥？在做不现实的事情么？
+
+现在欧美的模式是衰减就浪，浪没2个月就得收紧，然后紧也就 ...</blockquote>
+全世界又不是只有中国和欧美
+
+*****
+
+####  riczxc  
+##### 1564#         楼主| 发表于 2021-12-3 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53797832&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 17:25</a>
+
+建议主楼消息改成,没有靠谱消息,两周之后再来</blockquote>
+虽然如此，但是还是有些消息的。例如120个打两针的聚会，被一个南非旅行者超级传播omicron感染一半这种新闻。鉴于Omicron已经在各地开枝散叶，这种新闻只会陆续有来。
+
+*****
+
+####  creymorgan  
+##### 1565#       发表于 2021-12-3 17:30
+
+<blockquote>烦恼寺 发表于 2021-12-3 17:03
+搞笑呢, TG不是神仙, 就国外那种遍地开花的局面, 全体国民化身党员链接神圣卡拉也搞不定啊...  真当不用吃 ...</blockquote>
+难道之前国外没有遍地开花？还是之前全民党员？我们会有疏漏但是我们能把疫情控制在局部并且短时间将其消灭。我们也没有极端到为了抹杀这一点风险而彻底堵掉进出口。
+
+综上，我们的对策是可持续的。
+
+*****
+
+####  橋白  
+##### 1566#       发表于 2021-12-3 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我再重复一遍 直接拉黑屏蔽完事 虽然我不用期货死人这种比较激进的词汇 但是方向不一样的人你讲再多也没用
+
+*****
+
+####  smy20011  
+##### 1567#       发表于 2021-12-3 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53797890&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 17:30</a>
+
+难道之前国外没有遍地开花？还是之前全民党员？我们会有疏漏但是我们能把疫情控制在局部并且短时间将其消 ...</blockquote>
+这楼里没人反对国内的清零政策
+
+我说的是,不可能全世界一盘棋的实施这种清零政策而已
+
+*****
+
+####  creymorgan  
+##### 1568#       发表于 2021-12-3 17:36
+
+<blockquote>smy20011 发表于 2021-12-3 17:28
+全世界又不是只有中国和欧美</blockquote>
+还有为了讨点疫苗跟辉瑞签下不平等协议的国家是吧。你真以为他们是想躺平的么？你敢说欧美囤积数倍人口数量的甚至放到过期的疫苗如果及时供应给需要的国家，他们不能控制感染者基数降低出现新变种的可能性？
+
+*****
+
+####  riczxc  
+##### 1569#         楼主| 发表于 2021-12-3 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53797962&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 17:36</a>
+
+还有为了讨点疫苗跟辉瑞签下不平等协议的国家是吧。你真以为他们是想躺平的么？你敢说欧美囤积数倍人口数 ...</blockquote>
+不清零，其实也是饮鸩止渴，毕竟疫苗都是漏的，在全球范围这么用，进化压会选出什么天选之子也不清楚。
+
+还是看看Gauteng的入院数字吧，显然不乐观：
+
+<img src="https://img.saraba1st.com/forum/202112/03/173947vbaky2itafkcbtxi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>gauteng_hospitalization.jpeg</strong> (78.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-3 17:39 上传
+
