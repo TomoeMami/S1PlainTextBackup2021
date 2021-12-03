@@ -1038,3 +1038,14 @@ There will be normal LoL stream at this rate
 
 三轮车，玩具车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13605#       发表于 2021-12-3 11:14
+
+来自拉米的状况更新：那天去的除了绫总还有星街彗星和润润
+
+绫总中途就回家（打lol）了，剩下的5个人一直聊到天亮
+
