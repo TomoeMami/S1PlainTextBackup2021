@@ -514,3 +514,48 @@ Mainland China
 对新冠的担忧是不需要新冠彻底消失才能过去的，现在来看药物是最有希望 ...</blockquote>
 但这不是清零就是，所有措施都做了，依然会有人得新冠，也有人会死。
 
+
+
+*****
+
+####  Vneet  
+##### 1547#       发表于 2021-12-3 16:27
+
+ 本帖最后由 Vneet 于 2021-12-3 16:34 编辑 
+
+清零有什么不可思议的，又不是绝对的"零"，清到威胁丧失的"零散"也是"零"。中国不拉胯，中国清零了，国外不拉胯，世界早就清零了。
+
+搞清楚一点，是国外的拉跨在拖我们努力清零的后腿，而不是清零不可能的再多努力也是白给就悲观自己的努力是否值得。
+
+*****
+
+####  creymorgan  
+##### 1548#       发表于 2021-12-3 16:36
+
+<blockquote>smy20011 发表于 2021-12-3 16:11
+但这不是清零就是，所有措施都做了，依然会有人得新冠，也有人会死。</blockquote>
+神tm所有措施都做了
+
+*****
+
+####  月光下的黑暗  
+##### 1549#       发表于 2021-12-3 16:38
+
+ 本帖最后由 月光下的黑暗 于 2021-12-3 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53796842&amp;ptid=2039422" target="_blank">pl0okm 发表于 2021-12-3 16:03</a>
+
+央视今天报 夏威夷本地一例没去过南非的感染omicron</blockquote>
+这。。。也有可能是南非旅客密接XN传播吧。。。毕竟旅游圣地，人流复杂（传N手？）总不能说新冠会自主变异成某个特定变种吧。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 1550#       发表于 2021-12-3 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53797292&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 16:36</a>
+
+神tm所有措施都做了</blockquote>
+疫苗打了,特效药研发了,依然有人会死
+
+全世界严格隔离不现实
+

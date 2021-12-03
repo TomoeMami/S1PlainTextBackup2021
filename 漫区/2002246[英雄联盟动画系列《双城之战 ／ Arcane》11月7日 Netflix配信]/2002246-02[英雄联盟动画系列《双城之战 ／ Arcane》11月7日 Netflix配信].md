@@ -15731,3 +15731,17 @@ Bangumi上这篇最近的剧评写得挺好的，有条有理，有自己的一�
 
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  飞升之后  
+##### 2927#       发表于 2021-12-3 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53797133&amp;ptid=2002246" target="_blank">scorbian 发表于 2021-12-3 16:23</a>
+
+第四集塞薇卡责怪金克斯时候那个轻蔑的笑
+
+还有第五集在废弃游乐场里打乌鸦那几个小表情小动作太传神了[f: ...</blockquote>
+难得看到有口水，言辞激烈时候口水横飞
+

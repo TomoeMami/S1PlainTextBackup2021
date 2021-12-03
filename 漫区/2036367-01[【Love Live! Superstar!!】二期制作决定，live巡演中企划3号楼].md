@@ -15574,3 +15574,19 @@ alp老师画的恋恋还是璞玉呢。
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  megapikachu  
+##### 1385#       发表于 2021-12-3 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53794867&amp;ptid=2036367" target="_blank">呆毛王嫁给我 发表于 2021-12-3 13:26</a>
+
+全部看完啦
+
+第十话那个live的演出真是太厉害啦，在我心里已经可以和soldier game平起平坐了
+
+整体来说还是符 ...</blockquote>
+有兴趣的话，也可以看看live，几位声优的表演质量还是非常不错的。
+
