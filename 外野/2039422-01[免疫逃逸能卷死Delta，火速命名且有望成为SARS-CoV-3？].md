@@ -16452,3 +16452,163 @@ News Release: Lab testing confirms state’s fir ...</blockquote><blockquote>近
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  卡普空  
+##### 1459#       发表于 2021-12-3 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790885&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-3 08:01</a>
+
+南非新增病例11535，阳性率22.4%
+
+A total of 51,402 tests were conducted in the last 24hrs, with 11,53 ...</blockquote>
+最近三天新增分别是4k，8k，12k
+
+*****
+
+####  广东  
+##### 1460#       发表于 2021-12-3 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790885&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-3 08:01</a>
+
+南非新增病例11535，阳性率22.4%
+
+A total of 51,402 tests were conducted in the last 24hrs, with 11,53 ...</blockquote>
+呃，南非这一周的曲线几乎完美符合指数式增长的模式。
+
+2273，4373，8561，11535……
+
+*****
+
+####  pushare  
+##### 1461#       发表于 2021-12-3 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53791920&amp;ptid=2039422" target="_blank">Redis 发表于 2021-12-3 09:55</a>
+
+LGA去这个的还挺多的</blockquote>
+光看现场照片，基本都戴好口罩了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 1462#       发表于 2021-12-3 10:06
+
+彭博更新了疫情韧性指数 （The Covid Resilience Ranking） 这个冬天最安全的国家和地区 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/03/100418gyryrn4eem8ryypq.jpg" referrerpolicy="no-referrer">
+
+<strong>1638497007(1).jpg</strong> (196.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-3 10:04 上传
+
+<strong>
+</strong><strong>
+</strong>
+<strong>
+</strong>
+
+[https://www.bloomberg.com/graphics/covid-resilience-ranking/](https://www.bloomberg.com/graphics/covid-resilience-ranking/)
+<strong>
+</strong>
+
+*****
+
+####  小李子大脸猫  
+##### 1463#       发表于 2021-12-3 10:08
+
+这波是人类又一轮率先开始变异，再次领先全物种了
+
+*****
+
+####  lazyboy  
+##### 1464#       发表于 2021-12-3 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792020&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-3 10:06</a>
+彭博更新了疫情韧性指数 （The Covid Resilience Ranking） 这个冬天最安全的国家和地区 </blockquote>
+真是难为它们了
+
+—— 来自 HUAWEI EVR-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  少年阳光未知他  
+##### 1465#       发表于 2021-12-3 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792020&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-3 10:06</a>
+
+彭博更新了疫情韧性指数 （The Covid Resilience Ranking） 这个冬天最安全的国家和地区 </blockquote>
+Chile 为什么这么高 明明现在数据比以色列差
+
+*****
+
+####  Redis  
+##### 1466#       发表于 2021-12-3 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792049&amp;ptid=2039422" target="_blank">小李子大脸猫 发表于 2021-12-3 10:08</a>
+
+这波是人类又一轮率先开始变异，再次领先全物种了</blockquote>
+今天有看到说omicron有可能是从动物跳到人身上来的
+
+这个锅不好分了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 1467#       发表于 2021-12-3 10:12
+
+<blockquote>Pfizer Inc. expects its Covid-19 vaccine to hold up against the omicron variant, an executive said, and data on how well it protects should be available within two to three weeks.
+
+“We don’t expect that there will be a significant drop in effectiveness,” Ralf Rene Reinert, vice president of vaccines for international developed markets, said in an interview with Bloomberg Television. “But again, this is speculation. We will check this. We will have the data in the next couple of weeks.”</blockquote>
+
+辉瑞老总这是玩哪出<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  creymorgan  
+##### 1468#       发表于 2021-12-3 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792095&amp;ptid=2039422" target="_blank">Redis 发表于 2021-12-3 10:12</a>
+
+辉瑞老总这是玩哪出</blockquote>
+不要慌，再让我们卖2~3周。
+
+*****
+
+####  Redis  
+##### 1469#       发表于 2021-12-3 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792142&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 10:15</a>
+
+不要慌，再让我们卖2~3周。</blockquote>
+现在欧美delta也还风头正劲
+
+omicron要反客为主还可以等等<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中二骚年  
+##### 1470#       发表于 2021-12-3 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792020&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-3 10:06</a>
+
+彭博更新了疫情韧性指数 （The Covid Resilience Ranking） 这个冬天最安全的国家和地区 </blockquote>
+COVID STATUS
+
+Mainland China
+
+1-Month cases per 100,00 : 0
+
+3-Month case fatality rate : 0%
+
+total deaths per 1 million : 3
+
+排名：第28位！
+
+生活质量那栏也挺有意思，考虑了2021年GDP增长率，2020年发生了什么大家就别管了
+
+Universal Healthcare Coverage: US 82, Mainland CHINA 70
+
