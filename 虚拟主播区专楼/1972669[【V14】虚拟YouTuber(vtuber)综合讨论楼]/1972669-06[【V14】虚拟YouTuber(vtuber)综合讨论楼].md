@@ -17716,3 +17716,63 @@ B站大数据冲塔我不知道算不算，一般直球冲塔的也就这里和�
 
 你们挑染是…？集二人之力于一身的fwmnt又去rfom了，怕
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 8893#       发表于 2021-12-3 18:40
+
+[https://youtu.be/QcPClss2sqc](https://youtu.be/QcPClss2sqc)
+
+黛灰开直播了
+
+*****
+
+####  我不是很好  
+##### 8894#       发表于 2021-12-3 18:44
+
+fuwa……<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 8895#       发表于 2021-12-3 18:45
+
+人在回家路上没戴耳机，我现在简直是热锅上的蚂蚁妈的
+
+*****
+
+####  硫黄  
+##### 8896#       发表于 2021-12-3 18:49
+
+............黑客
+
+*****
+
+####  rzrbtk  
+##### 8897#       发表于 2021-12-3 18:52
+
+有明确的复归计划而且还有心情打联机游戏的话多少能让观众安心吧，虽然未来的事谁也说不准
+
+*****
+
+####  FCCHua  
+##### 8898#       发表于 2021-12-3 18:54
+
+虹quiz的常驻休了两个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 8899#       发表于 2021-12-3 18:55
+
+抑郁症和抑郁状态是不一样的，能在抑郁状态就及时躺平还能商量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 8900#       发表于 2021-12-3 19:30
+
+我真是草了还有人在虹楼黑泥他黛灰摸鱼ymen活动的。假装情强之前能不能先认真看一眼ymen发过什么推啊，绝了
+
