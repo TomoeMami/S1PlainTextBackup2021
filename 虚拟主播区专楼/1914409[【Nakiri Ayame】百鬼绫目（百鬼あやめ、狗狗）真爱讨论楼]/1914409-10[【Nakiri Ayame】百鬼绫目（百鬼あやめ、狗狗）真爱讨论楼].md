@@ -1068,3 +1068,17 @@ There will be normal LoL stream at this rate
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的那个百万主播她直播吗
 
+
+
+*****
+
+####  stedckk  
+##### 13608#       发表于 2021-12-3 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53793048&amp;ptid=1914409" target="_blank">nian1538 发表于 2021-12-3 11:14</a>
+
+来自拉米的状况更新：那天去的除了绫总还有星街彗星和润润
+
+绫总中途就回家（打lol）了，剩下的5个人一直聊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然还是打lol比较重要
+

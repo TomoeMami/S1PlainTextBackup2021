@@ -1087,3 +1087,14 @@ The limited data available suggest that in other parts of India, too, covid-19 h
 
 https://www.economist.com/asia/2021/03/13/india-seems-to-have-suffered-surprisingly-few-deaths-from-covid-19
 
+
+
+*****
+
+####  天使日又日  
+##### 1593#       发表于 2021-12-3 20:44
+
+还真就拿圣诞礼物的论调出来用啊，这群西方鬼佬真的脸都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+圣诞礼物怎么一个个那么急着锁国啊，西方迎接圣诞老人的方法是把烟囱门窗全部堵死吗？
+
