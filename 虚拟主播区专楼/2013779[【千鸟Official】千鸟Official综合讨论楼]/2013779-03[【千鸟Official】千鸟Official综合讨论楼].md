@@ -7781,3 +7781,61 @@ sc打架还行
 
 一想到文静做了手术一个月没洗澡，只能靠香水苟活，在宿舍里都没女人愿意和她贴了，内心就充满了丰收的喜悦
 
+
+
+*****
+
+####  tankai  
+##### 3889#       发表于 2021-12-4 00:24
+
+不熟<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 3890#       发表于 2021-12-4 00:28
+
+ 本帖最后由 莫洛骑士 于 2021-12-3 12:30 编辑 
+
+《史记•文静列传》
+2021年12月3日，文静来姨妈
+
+syl 什么周期性，很明显都不调了，作息烂掉的女人是这样的
+
+*****
+
+####  GAKOTO  
+##### 3891#         楼主| 发表于 2021-12-4 00:29
+
+她应该不是这几天啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 3892#       发表于 2021-12-4 00:30
+
+十号到20号，还没到日子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希克苏鲁伯  
+##### 3893#       发表于 2021-12-4 00:31
+
+姨妈也不一定固定30天，我女朋友就是每个月往前提几天。生活不规律不调了吧
+
+*****
+
+####  灰色的狐狸  
+##### 3894#       发表于 2021-12-4 00:32
+
+其实差不多也有可能这个时候，作息烂+刚手术
+
+不过内战又是什么节奏
+
+*****
+
+####  GAKOTO  
+##### 3895#         楼主| 发表于 2021-12-4 00:34
+
+下播的时候是热门第5，这要是以前说不定还会加会班<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
