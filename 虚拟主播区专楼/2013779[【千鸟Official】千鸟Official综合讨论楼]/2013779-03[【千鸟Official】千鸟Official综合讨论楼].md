@@ -7653,3 +7653,81 @@ mmd这水平 知道黑幕可以不要这么嚣张吗
 前两天没看 今晚什么版本啊</blockquote>
 今晚是静女妖恢复7成功力神回
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 3873#       发表于 2021-12-3 23:22
+
+今晚得sc什么情况额
+
+*****
+
+####  憧憬鲨  
+##### 3874#       发表于 2021-12-3 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等于说静阿姨还要叫鲨书记一句大前辈？
+
+*****
+
+####  andeloz  
+##### 3875#       发表于 2021-12-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801516&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-12-3 23:19</a>
+
+今晚是静女妖恢复7成功力神回</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">有个人的sc看得我摸不着头脑
+
+*****
+
+####  T型钉宫病毒  
+##### 3876#       发表于 2021-12-3 23:26
+
+怎么又有弹幕开始发病了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3877#       发表于 2021-12-3 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">习惯就好，得理解人的多样性
+
+*****
+
+####  rgauss  
+##### 3878#       发表于 2021-12-3 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是 这群人炸也要看时间啊 就嗯炸 效果都没有
+
+*****
+
+####  tankai  
+##### 3879#       发表于 2021-12-3 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801566&amp;ptid=2013779" target="_blank">憧憬鲨 发表于 2021-12-3 23:24</a>
+
+等于说静阿姨还要叫鲨书记一句大前辈？</blockquote>
+她自己开小号喷（蹭）海子姐，请假后粉丝二次SC ，海子姐对文静还是挺友好的。
+
+*****
+
+####  夜潇箫  
+##### 3880#       发表于 2021-12-3 23:33
+
+七海现实里不会认识文静吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3881#       发表于 2021-12-3 23:33
+
+我超大的来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 3882#       发表于 2021-12-3 23:33
+
+瞳鲨来通杀了！
+

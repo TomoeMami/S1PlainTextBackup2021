@@ -1344,3 +1344,34 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801479&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-3 23:16</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">荷兰是怎么了？怎么开始说真话了。
 
+
+
+*****
+
+####  riczxc  
+##### 1611#         楼主| 发表于 2021-12-3 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801479&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-3 23:16</a></blockquote>
+我知道你想暗示什么，不过你新闻里提到的荷兰例子，采样都是11月20号左右。
+
+但是GSAID的南非例子，采样日期都最早能去到11月9号。
+
+再加上Omicron测序的占比，起码南非多半是比荷兰早爆发（除非以后进化树看出些什么来）。
+
+*****
+
+####  柔福帝姬  
+##### 1612#       发表于 2021-12-3 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801479&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-3 23:16</a></blockquote>
+那肯定早啊，再之前连omicron的名字都没定，南非当然没法上报omicron病例。
+
+*****
+
+####  riczxc  
+##### 1613#         楼主| 发表于 2021-12-3 23:29
+
+外行人去看了看GSAID上的进化树，[https://www.gisaid.org/hcov19-variants/](https://www.gisaid.org/hcov19-variants/)
+
+基本上Omicron分化出来就是10月底的事情。Omicron和南非的速度真的都很快。
+
