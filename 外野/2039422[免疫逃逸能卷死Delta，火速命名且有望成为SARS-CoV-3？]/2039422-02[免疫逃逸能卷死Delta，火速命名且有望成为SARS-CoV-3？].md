@@ -1203,3 +1203,51 @@ https://www.economist.com/asia/2021/03/13/india-seems-to-have-suffered-surprisin
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792605&amp;ptid=2039422" target="_blank">Khvarenah 发表于 2021-12-3 10:49</a></blockquote>
 哪里来的慈父信徒<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  creymorgan  
+##### 1602#       发表于 2021-12-3 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800542&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 21:40</a>
+
+但是mrna疫苗也很烂，防不了太多的感染啊。所以防止感染的效果不够把R降到1.5一下，那还是应传尽传。
+
+你 ...</blockquote>
+目前的5大VOC变种出现的时间
+
+阿尔法，英国20年9月
+
+贝塔，南非20年12月
+
+伽马，巴西到日本的旅客21年1月
+
+德尔塔，印度20年10月
+
+奥密克戎，南非21年11月
+
+只有阿尔法诞生在发达国家，而且20年9月也谈不上什么疫苗接种率。
+
+那么所有这5例都是在疫苗接种率不高的情况下诞生的。
+
+*****
+
+####  riczxc  
+##### 1603#         楼主| 发表于 2021-12-3 22:18
+
+ 本帖最后由 riczxc 于 2021-12-3 22:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800790&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-3 22:04</a>
+
+目前的5大VOC变种出现的时间
+
+阿尔法，英国20年9月
+
+贝塔，南非20年12月</blockquote>
+
+要是靠疫苗躺平就可以解决疫情，那你是对的。既然不能躺平，都是应传尽传，那就有必要考虑选择压。
+
+现在的变种在没有疫苗的时候出现，不说明有疫苗就没有变种。例如AY.4.2就是在接种环境里出现的，不一定有Omicron厉害，但是很厉害。
+
+Omicron首先发现也是在博茨瓦纳，不是南非。
+

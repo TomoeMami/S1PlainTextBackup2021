@@ -7479,3 +7479,57 @@ SC有点哈人了
 
 整的跟小学生一样，退网还要昭告天下<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 3853#       发表于 2021-12-3 22:01
+
+考虑到爆金币了，算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 3854#       发表于 2021-12-3 22:03
+
+算了，就是活有点烂
+
+*****
+
+####  GAKOTO  
+##### 3855#         楼主| 发表于 2021-12-3 22:12
+
+虚拟紫砂是管人观众的一环<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 3856#       发表于 2021-12-3 22:15
+
+ 本帖最后由 四叶的花 于 2021-12-3 22:20 编辑 
+
+管人观众比管人v多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3857#       发表于 2021-12-3 22:16
+
+ 本帖最后由 rgauss 于 2021-12-3 22:18 编辑 
+
+唐肯
+
+有一说一 阿准的制作人河马还挺不错
+
+*****
+
+####  灰色的狐狸  
+##### 3858#       发表于 2021-12-3 22:17
+
+文静得热度都110万了额
+
+逼真大主播
+
