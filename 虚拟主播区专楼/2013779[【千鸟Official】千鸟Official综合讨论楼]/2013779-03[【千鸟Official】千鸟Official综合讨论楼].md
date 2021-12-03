@@ -7171,3 +7171,14 @@ s1又输麻了
 
 文静塔图保真吗？
 
+
+
+*****
+
+####  夜潇箫  
+##### 3814#       发表于 2021-12-3 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53793598&amp;ptid=2013779" target="_blank">目田人 发表于 2021-12-3 11:53</a>
+文静塔图保真吗？</blockquote>
+B综那个是假的，其实是另外一个up主的照片
+

@@ -16785,3 +16785,21 @@ Universal Healthcare Coverage: US 82, Mainland CHINA 70
 
 The European Commission has approved an agreement with Valneva under which the French vaccine maker would supply up to 60 million doses of VLA2001, its inactivated COVID-19 vaccine candidate. According to the contract, EU member states could purchase almost 27 million doses in 2022. It also includes the possibility to adapt the vaccine to new variant strains, and for EU countries to make a further order of up to 33 million additional vaccine doses in 2023.
 
+
+
+*****
+
+####  天使日又日  
+##### 1488#       发表于 2021-12-3 12:10
+
+主动感染，有中世纪以得梅毒为荣的样子了，很欧洲
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  configxxxx  
+##### 1489#       发表于 2021-12-3 12:16
+
+另外想问一句卷死德尔塔了吗？南非德尔塔的感染率有下降吗？理论上得了这个也能得德尔塔吧
+

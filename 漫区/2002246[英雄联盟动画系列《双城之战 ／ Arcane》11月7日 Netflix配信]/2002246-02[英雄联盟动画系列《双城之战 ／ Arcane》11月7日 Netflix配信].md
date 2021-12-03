@@ -15673,3 +15673,37 @@ Bangumi上这篇最近的剧评写得挺好的，有条有理，有自己的一�
 
 这剧本还糟糕吗，我觉得也就中间3集略散以外没啥缺点了，跟这片子其他地方比那也就是9.5分和8.5分的区别，大部分片子剧情8分都没有
 
+
+
+*****
+
+####  jf8350143  
+##### 2922#       发表于 2021-12-3 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790934&amp;ptid=2002246" target="_blank">acejoe 发表于 2021-12-3 08:11</a>
+
+上城线的确不行，大量废笔和完成度低的故事线，叙事还被切的很碎。
+
+警长线作为连接上下城的关键，搞得这 ...</blockquote>
+他们第一季播出之前就已经确定了会有第二季了，所以上城线的很多剧情很明显是给第二季留的。我觉得这没啥问题。
+
+*****
+
+####  jf8350143  
+##### 2923#       发表于 2021-12-3 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">又看到“要是arcane拍成真人版就好了”……
+
+迪士尼拍了一万部真人化烂片了这些人怎么还是学不乖呢
+
+*****
+
+####  acejoe  
+##### 2924#       发表于 2021-12-3 12:21
+
+ 本帖最后由 acejoe 于 2021-12-3 12:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53793804&amp;ptid=2002246" target="_blank">jf8350143 发表于 2021-12-3 12:06</a>
+他们第一季播出之前就已经确定了会有第二季了，所以上城线的很多剧情很明显是给第二季留的。我觉得这没啥 ...</blockquote>
+上城拉的故事线都结束了，比如警长线，两代都便当了，比如锤哥前期的政治爬升线，最后几乎都掌控议会了。
+第二季除非回忆杀不然也不会有这些剧情了。
+
