@@ -16612,3 +16612,114 @@ total deaths per 1 million : 3
 
 Universal Healthcare Coverage: US 82, Mainland CHINA 70
 
+
+
+*****
+
+####  汽车屁  
+##### 1471#       发表于 2021-12-3 10:24
+
+ 本帖最后由 汽车屁 于 2021-12-3 10:30 编辑 
+
+【新冠病毒检测收费4000美元，美多地居民收到巨额账单】据报道，贾纳克收到的第一张账单约为2700美元，其中包括急诊室和实验室的费用。后来，他又收到了一张约1300美元的医药费账单。（两张账单约合人民币25500元）贾纳克说，他的保险公司只给他支付了第一张账单的费用，第二张账单的费用却一直没有支付。在近一年的时间里，贾纳克一直接到医院的催缴电话。与贾纳克经历类似的还有来自南卡罗来纳州的科斯坦佐夫妻俩。乔治敦大学健康保险改革中心主任科莱特表示，新冠病毒检测费用本应由保险公司全部承担，而一些医疗中心却会增加“设施费”或“急诊室费”等费用
+
+---------------------------------------------------
+
+检测并确诊一波又一波高峰，美国痛并快乐着。。。
+
+*****
+
+####  你这瓜保熟吗  
+##### 1472#       发表于 2021-12-3 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792020&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-3 10:06</a>
+彭博更新了疫情韧性指数 （The Covid Resilience Ranking） 这个冬天最安全的国家和地区 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">啊对对对，赢麻了赢麻了
+
+再次复述之前某位坛友言论<blockquote>只能像现在这样粪海狂蛆一般地一边嘴硬，一边当期货死人。以前我不看屠美灭日那样的爽文是因为觉得yy的东西很没品，现在我不看那样的爽文是因为真的妹有那个必要。</blockquote>
+他们都这样了，为啥不顺从他们呢
+
+*****
+
+####  砥草  
+##### 1473#       发表于 2021-12-3 10:28
+
+微博看到的，大受震撼
+
+“德语老师的妻子昨天跟我联系，现在北威州也是全面2G，基本上没有疫苗证和康复证明寸步难行。她现在去上班，每天捅鼻孔做测试才能上巴士，但也遇到了不得不承受的窘境。送孩子去游泳课，她和另外一个没打疫苗的妈妈不允许入内，但孩子还小，问游泳课工作人员，你会帮我的孩子换衣服吗？回答是不，您必须把孩子换好衣服送进来。她和另一个妈妈就干脆站在门口，给孩子把衣服换了，零度啊。孩子一声没吭。她都哭了，她说好像这个疫苗就能把人分成三六九等，明明至始至终那么遵守任何的政策，保持距离，减少社交，戴口罩….结果到头来被约束得最凶的就是他们没打疫苗的人，就因为她们坚守他们的权利和原则。我问他们打算怎么办？她和我的德语老师准备去荷兰买感染套餐，不过荷兰的感染套餐又涨价了！从之前的32欧到现在六十多欧了。反疫苗支持者现在的计划是感染----康复----得到有效期六个月的康复证明。”
+
+*****
+
+####  7776169  
+##### 1474#       发表于 2021-12-3 10:33
+
+<blockquote>砥草 发表于 2021-12-3 10:28
+微博看到的，大受震撼
+
+</blockquote>
+建议一步到位成“感染---死亡”
+
+*****
+
+####  soloviki  
+##### 1475#       发表于 2021-12-3 10:35
+
+彭博这弱智ranking还在排啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+越是封锁防控严密说明越是"worse"的因果逻辑也就这帮躺平畜群适用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真真的从反方向体验了一把中国不在地球上
+
+
+
+*****
+
+####  武男  
+##### 1476#       发表于 2021-12-3 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792323&amp;ptid=2039422" target="_blank">砥草 发表于 2021-12-3 10:28</a>
+
+微博看到的，大受震撼</blockquote>
+早说了，欧美虽然有很多反智的行为在，但是他们现在搞得仰卧起坐式防疫对人的生活影响远比国内大。所以才有这么多反疫苗**没法摁下去。
+
+*****
+
+####  Khvarenah  
+##### 1477#       发表于 2021-12-3 10:49
+
+<img src="https://p.sda1.dev/3/103c7bcdc4fb1c6cc2c58353e4876b7f/IMG_CMP_255929146.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  Vneet  
+##### 1478#       发表于 2021-12-3 10:49
+
+把彭博这表的chile眼花看混成china了，心想第二可以┐(´-｀)┌
+
+*****
+
+####  smy20011  
+##### 1479#       发表于 2021-12-3 10:50
+
+笑死,这是有多弱智
+
+*****
+
+####  smy20011  
+##### 1480#       发表于 2021-12-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792323&amp;ptid=2039422" target="_blank">砥草 发表于 2021-12-3 10:28</a>
+
+微博看到的，大受震撼</blockquote>
+宁可感染,不打疫苗
+
+*****
+
+####  voluspa  
+##### 1481#       发表于 2021-12-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792422&amp;ptid=2039422" target="_blank">soloviki 发表于 2021-12-3 10:35</a>
+
+彭博这弱智ranking还在排啊 
+
+越是封锁防控严密说明越是"worse"的因果逻辑也就这帮躺平畜群适用了[f: ...</blockquote>
+你要这么理解, 这是 Resilience (恢复), 我们现在的零星案例那能算疫情, 恢复得自然不好看...<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -6605,3 +6605,15 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 
 非灵长生存圈最好就是那个光点和2.65，说真的别tm拖了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 84591#       发表于 2021-12-3 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53791777&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-3 09:41</a>
+
+非灵长生存圈最好就是那个光点和2.65，说真的别tm拖了明年周年前最好把2.7给出了 ...</blockquote>
+法米通和电击的通稿都把这个活动跟平安京一起提的，官方通稿总不至于掉链子吧……我倾向于这次只是宣传上没特地强调那个序号（实际上大奥和大海战也没强调，都是别的地方提的）
+
