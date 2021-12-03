@@ -1059,3 +1059,12 @@ There will be normal LoL stream at this rate
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">献给百鬼众的galgame，告诉你主播不播到底在干嘛
 <img src="https://p.sda1.dev/3/1cdd67541d0d9478c7fdce7fefee6afc/-e296e218e26e29.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fami水  
+##### 13607#       发表于 2021-12-3 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的那个百万主播她直播吗
+
