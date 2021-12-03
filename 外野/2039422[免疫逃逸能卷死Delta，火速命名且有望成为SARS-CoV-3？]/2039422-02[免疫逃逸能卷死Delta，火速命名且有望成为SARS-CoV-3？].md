@@ -962,3 +962,88 @@ A能逃逸B的抗体，不说明B能逃逸A的抗体。所以还能嘴硬一段�
 假如症状轻如牛痘，同时得过O变种就不会得德尔塔的话，算是吧，但是第一点暂时还不清楚，第二点么，刚看个 ...</blockquote>
 O变种的传播本来就是建立在对delta的逃逸上面的,极端一点这两个病毒甚至能够共存
 
+
+
+*****
+
+####  creymorgan  
+##### 1585#       发表于 2021-12-3 18:25
+
+<blockquote>smy20011 发表于 2021-12-3 18:22
+O变种的传播本来就是建立在对delta的逃逸上面的,极端一点这两个病毒甚至能够共存 ...</blockquote>
+确实存在可能性，他们现在就像20年3月说新冠夏天会消失一样期盼着。
+
+*****
+
+####  configxxxx  
+##### 1586#       发表于 2021-12-3 18:27
+
+<blockquote>riczxc 发表于 2021-12-3 18:21
+就是这个免疫逃逸貌似是单向的。
+
+A能逃逸B的抗体，不说明B能逃逸A的抗体。所以还能嘴硬一段时间。 ...</blockquote>
+明白了，虽然得了德尔塔肯定还会得O变种，但是得了O变种不一定会得德尔塔吧，想来O变种是从无印版单独变异来的，说不定真有这个可能？那还确实能算个好消息，让欧美人民都得一遍死一批剩下当作的打疫苗了
+
+*****
+
+####  riczxc  
+##### 1587#         楼主| 发表于 2021-12-3 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798573&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-3 18:27</a>
+
+明白了，虽然得了德尔塔肯定还会得O变种，但是得了O变种不一定会得德尔塔吧，想来O变种是从无印版单独变 ...</blockquote>
+这个算什么好消息，就是最后一线希望不想放弃，在催眠自己的感觉。
+
+根本就虚无缥缈。Omicron疫情才刚开始，南非人口也年轻。记得大家觉得印度疫情也没什么事的时候吧。无非是实验还没做完，有半个好消息就当一个报道。
+
+*****
+
+####  nanrendu  
+##### 1588#       发表于 2021-12-3 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798289&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 18:04</a>
+目前看到的两种变种起源
+
+1. 艾滋病人身上反复感染
+
+2. 老鼠身上变异</blockquote>
+感觉你扯的有点远了，我还是插一句嘴。
+南非可不只是避孕套的问题，他们那边有廉价的**，还流行一种一个人吸毒之后再抽血分享给另一个来廉价吸毒的方法。艾滋病感染几率非常的大，而且吸毒的好多人都是未成年人。
+【南非有十万人对这种毒品上瘾，还流行着通过注射血液吸毒-哔哩哔哩】https://b23.tv/38JGLTI
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  smy20011  
+##### 1589#       发表于 2021-12-3 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798614&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-3 18:29</a>
+
+这个算什么好消息，就是最后一线希望不想放弃，在催眠自己的感觉。
+
+根本就虚无缥缈。Omicron疫情才刚开 ...</blockquote>
+印度疫情不是一开始就很严重么?
+
+*****
+
+####  smy20011  
+##### 1590#       发表于 2021-12-3 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798619&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-3 18:30</a>
+
+感觉你扯的有点远了，我还是插一句嘴。
+
+南非可不只是避孕套的问题，他们那边有廉价的**，还流行一种一个 ...</blockquote>
+其实也可以归结于穷
+
+
+
+*****
+
+####  smy20011  
+##### 1591#       发表于 2021-12-3 18:39
+
+You don't have to change holiday plans due to Omicron if you're vaccinated, Fauci says. But don't wait to get a booster
+[https://www.cnn.com/2021/12/02/h ... thursday/index.html](https://www.cnn.com/2021/12/02/health/us-coronavirus-thursday/index.html)
+

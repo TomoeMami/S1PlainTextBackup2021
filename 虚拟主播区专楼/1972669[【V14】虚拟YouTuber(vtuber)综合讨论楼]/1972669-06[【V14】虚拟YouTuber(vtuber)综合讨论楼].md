@@ -17653,3 +17653,66 @@ B站大数据冲塔我不知道算不算，一般直球冲塔的也就这里和�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">3D，很好。
 
+
+
+*****
+
+####  FCCHua  
+##### 8886#       发表于 2021-12-3 18:20
+
+居然能在年内看到小夜的3d正式披露，感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+阿柴的还会远吗<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 8887#       发表于 2021-12-3 18:25
+
+我超，我想要的动静不是这个啊
+
+*****
+
+####  poipanchao  
+##### 8888#       发表于 2021-12-3 18:28
+
+彩虹好死！虹男倒塌的第一根柱子来了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 8889#       发表于 2021-12-3 18:29
+
+[https://twitter.com/mayuzumi_X/status/1466714646497628162](https://twitter.com/mayuzumi_X/status/1466714646497628162) <blockquote>黛 灰(まゆずみ かい)@にじさんじ
+
+@mayuzumi_X
+
+【悲報】にじさんじ所属黛灰さん、壊れるwwww
+
+1ヶ月ほど前から中等度のうつ状態に近い症状があって、ここ最近目に見えて悪化を辿っているから、2月に入るまで、現段階で決まってる企画やコラボか、公式配信以外の配信をお休みさせてもらいたい。
+
+配信自体は楽しいしもっとやりたいけど、どうしても解決できず負担になり続けることがあって、配信に至る気力を保てないことが多くなり、今回の決断を取ることになった。
+
+みんなにやる・やりたいって言ったことをうまく出来ないことが続いて、がっかりさせて申し訳ないし情けなく思う。本当にごめん。</blockquote>
+这也www得出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 8890#       发表于 2021-12-3 18:35
+
+喷了你虹这第二个抑郁症了，社内关系这么哈人的吗。
+
+*****
+
+####  毛头小希  
+##### 8891#       发表于 2021-12-3 18:36
+
+毕竟是用少女风app宣布自己有白内障要手术治疗的人啊。嘛身心健康比什么都重要，希望能好好修养
+
+*****
+
+####  rzrbtk  
+##### 8892#       发表于 2021-12-3 18:38
+
+你们挑染是…？集二人之力于一身的fwmnt又去rfom了，怕
+

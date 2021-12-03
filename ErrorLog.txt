@@ -1,1 +1,19 @@
 
+
+!!error:id=2040386
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
+!!error:id=2039364
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
+!!error:id=1914409
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
+!!error:id=1972669
+
+!!error:id=2039341
+
+!!error:id=2039998
+
+!!error:id=2040578
+
+!!error:id=2040089
+
+!!error:id=2037847

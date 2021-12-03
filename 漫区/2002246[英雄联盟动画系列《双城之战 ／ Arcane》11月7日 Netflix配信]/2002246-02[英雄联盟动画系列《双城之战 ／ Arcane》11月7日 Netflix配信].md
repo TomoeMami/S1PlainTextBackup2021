@@ -15787,3 +15787,17 @@ Bangumi上这篇最近的剧评写得挺好的，有条有理，有自己的一�
 
 这个up说到了童年经历导致对金克斯而言和平不重要这点，于是我发散开来分析了一下别的有的没的。
 
+
+
+*****
+
+####  qxs  
+##### 2931#       发表于 2021-12-3 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53790148&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-12-3 01:28</a>
+
+[游戏周边] 双城之战编剧推特问答：第二季剧本分镜配音工作已完成
+
+《双城之战》是英雄联盟的首部动画剧集 ...</blockquote>
+导演：加亿点点女通讯录要素<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
