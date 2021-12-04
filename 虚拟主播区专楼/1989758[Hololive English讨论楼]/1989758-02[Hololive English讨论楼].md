@@ -18,3 +18,19 @@
 
 周边网站又挂了一个
 
+
+
+*****
+
+####  smy20011  
+##### 1503#         楼主| 发表于 2021-12-5 06:53
+
+AME宇宙!
+
+*****
+
+####  shimmy1996  
+##### 1504#       发表于 2021-12-5 07:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想起了之前ame的hololive卖艺人限定nft的恶魔提案
+
