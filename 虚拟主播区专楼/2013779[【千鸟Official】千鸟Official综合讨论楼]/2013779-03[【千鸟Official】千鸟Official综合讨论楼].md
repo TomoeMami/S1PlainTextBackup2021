@@ -8003,3 +8003,12 @@ DK2.0，怀P夜原，含泪一踢四，静鳖真的很会炒
 往好的方面想是去谈投资，因为文静噶了阑子需要休养
 往坏的方面想是去谈转会事宜了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 3912#       发表于 2021-12-4 14:09
+
+千鸟散了之后，原力新企划再推出一个抗压位，复刻2.0文静，引来一群看热闹的，千鸟老东西出面指导大家不要太入脑。历史的循环成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
