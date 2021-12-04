@@ -16079,3 +16079,20 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 这年头人设早就百花齐放了，她体内是有恶人的基因的，不能因为童年悲惨就把锅全部甩给世界。她的二爹对她也算是用自己的方式尽心尽力了，不输大爹。她还想怎么样。vi虽然拿了正义的味方的卡，但是遭的罪不见得比金克丝少，至少金克丝没在牢房度过自己的童年。
 
+
+
+*****
+
+####  小修  
+##### 2955#       发表于 2021-12-4 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53803548&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2021-12-4 09:56</a>
+草，什么电台，直播聊天吗
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+个人小电台，我这边有个大致的大纲但会根据嘉宾的想聊的改改。
+
+比如，玩不玩游戏对于观剧影响如何。
+最喜欢的角色是谁。
+等等
+
