@@ -16162,3 +16162,17 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 这个本子只能按照YA的大方向去写，毕竟受众是青少年</blockquote>
 第四集的炸死好几个皮城警察我还以为后面会收得激烈一点，结果不管是女警金克丝还是警长对这段都是轻轻放下，一句话就没了。
 
+
+
+*****
+
+####  阿纳海姆电子  
+##### 2960#       发表于 2021-12-4 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53803120&amp;ptid=2002246" target="_blank">lost_恩恩 发表于 2021-12-4 08:38</a>
+
+【中字|心理治疗师反应——双城之战：金克斯！-哔哩哔哩】https://b23.tv/UTEJzrv
+
+看完感觉玩心理学的都 ...</blockquote>
+[哈洛的恒河猴实验](https://bbs.saraba1st.com/2b/thread-1794205-1-1.html)哈洛还做过更残酷的实验，不过他的依恋理论对金克丝来说还是挺对症下药的
+
