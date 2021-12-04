@@ -266,3 +266,107 @@ nico老人和t台女主播不会来当皮套主播，所有的可能性就没了
 其实...但算了。</blockquote>
 小白转型的早，可惜箱不够专业……确实已经无所谓了。
 
+
+
+*****
+
+####  percy1234  
+##### 9029#       发表于 2021-12-4 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811863&amp;ptid=1972669" target="_blank">tohellwithit 发表于 2021-12-4 23:03</a>
+原来17年那些各种体力测试，蹭ppap烂梗的短视频，和路人通话什么的就是你圈味最纯的优质内容啊
+
+坦率承认做 ...</blockquote>
+企业势模仿真人youtuber的痕迹太重，即使如此各自对虚拟这件事的探诠释也很精彩。
+至于把vtb当作同人活动延长的那批人，第一年就差不多死完了吧。。
+
+*****
+
+####  小小雪空  
+##### 9030#       发表于 2021-12-4 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812065&amp;ptid=1972669" target="_blank">walfeds 发表于 2021-12-4 23:16</a>
+
+https://www.bilibili.com/video/av20323088</blockquote>
+管人圈子就应该是这种群魔乱舞的弱智味，现在什么偶像，真不熟……
+
+
+
+*****
+
+####  hulaoda007  
+##### 9031#       发表于 2021-12-4 23:27
+
+好日子的时候大概是个人势崛起，虹刚开始那段，大家互相抱团和搞新花样。天开还是微糖的时候，主要是能感觉到大家感情好，互相包容和帮助。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但一想起很多渣运营事件就多少感到隔阂就是了。
+
+*****
+
+####  walfeds  
+##### 9032#       发表于 2021-12-4 23:30
+
+ 本帖最后由 walfeds 于 2021-12-4 23:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812236&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-12-4 23:27</a>
+
+好日子的时候大概是个人势崛起，虹刚开始那段，大家互相抱团和搞新花样。天开还是微糖的时候，主要是能感觉 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/04/233025lfa97kxxukz4j9wx.jpg" referrerpolicy="no-referrer">
+
+<strong>下载.jpg</strong> (13.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:30 上传
+
+传说之夜，让我再吸两口（
+
+*****
+
+####  opersuper  
+##### 9033#       发表于 2021-12-4 23:34
+
+老害该和老爱一样滚了
+
+*****
+
+####  バーチャルS1er  
+##### 9034#       发表于 2021-12-4 23:38
+
+facerig比老爱还要早，套皮直播人是迟早的事，不过没有四天王这东风到现在会不会有彩虹、木口这种大规模就不好说了
+
+四天王说到底只是之前VR产业大暴死的延续+对油土鳖网红的跟风
+
+没有沉下心搞技术的环境、从创作体制来说对优秀的创作者也不友好，不知道是不是VR产业大暴死的影响这行人的心态也挺脆弱的、彩虹刚一出来没多久就有某天王摆烂跑路、
+
+还有业内吃这碗饭的技术者扇风点火“只要有趣一张纸片人就够了”不断在业界拱火，所以主播管人流行后、从四天王的作品质量来看心态上基本也是越来越差的
+
+现在剩下的这两个、akari已经被卖了、能不能继续就要看新金主的兴趣还能维持多久、siro的话，appland公司很擅长节流、能苟很久我是信的、但是原团队早就没了，
+
+现在这长嘴都不利索的家用3D直播只是在无意义的维持老粉罢了
+
+*****
+
+####  バーチャルS1er  
+##### 9035#       发表于 2021-12-4 23:39
+
+你们再说车轱辘本身更加车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tohellwithit  
+##### 9036#       发表于 2021-12-4 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812162&amp;ptid=1972669" target="_blank">percy1234 发表于 2021-12-4 23:22</a>
+
+企业势模仿真人youtuber的痕迹太重，即使如此各自对虚拟这件事的探诠释也很精彩。
+
+至于把vtb当作同人活动 ...</blockquote>
+行业成熟被企业势统治之后确实是没了以前那种氛围和多样性...
+
+*****
+
+####  bluebaby  
+##### 9037#       发表于 2021-12-4 23:40
+
+2021年了，搞短视频的播放数据不能爆杀直播的，那建议只能是去抖音试试
+

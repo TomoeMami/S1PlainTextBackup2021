@@ -16793,3 +16793,61 @@ CA579000-AF33-445E-BDE3-819459860878.jpeg
 
 现在网上传的live切片应该是未修音的吧，不知道是不是半开麦垫音，否则鲤鱼真的稳如狗，特别是今天的特典曲，简直人型CD机，比土生土长的日本人都稳，拉拉系列唱功排名可以算是A级以上了。
 
+
+
+*****
+
+####  saya1892  
+##### 1490#       发表于 2021-12-4 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812018&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-4 23:13</a>
+
+鲤鱼今天又涂小星星指甲</blockquote>
+这两张照片上是有可香色指甲的，今天的live没有染指甲，应该是存货，群友猜测是东京场拍的现在才放出来
+
+<img src="https://img.saraba1st.com/forum/202112/04/232424dbdfbbllvbzhhboh.jpg" referrerpolicy="no-referrer">
+
+<strong>10.jpg</strong> (104.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:24 上传
+
+*****
+
+####  绯想alter2nd  
+##### 1491#       发表于 2021-12-4 23:28
+
+草，全让她算完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 1492#       发表于 2021-12-4 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812091&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-4 23:18</a>
+
+现在网上传的live切片应该是未修音的吧，不知道是不是半开麦垫音，否则鲤鱼真的稳如狗，特别是今天的特典曲 ...</blockquote>
+应该是全开麦垫了某一部分，不过liella之歌不用怎么跳难度不算大，算是基本了 鲤鱼唱功还是有的
+
+*****
+
+####  a92063256  
+##### 1493#       发表于 2021-12-4 23:32
+
+东京场的俩人一人一张现在一起发，这么默契何尝不是另一种发糖<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1494#       发表于 2021-12-4 23:35
+
+应该不是东京场，我记得东京那场好像就洗掉了，看来这两人真的坏坏哦
+
+*****
+
+####  chenflyyy  
+##### 1495#       发表于 2021-12-4 23:37
+
+你们手机到底还有多少好康的没发出来<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">之前的膝枕图也是藏了好久才发
+
