@@ -15761,3 +15761,18 @@ alp老师画的恋恋还是璞玉呢。
 
 看来已经不用提前来排练了
 
+
+
+*****
+
+####  qratosone  
+##### 1401#       发表于 2021-12-4 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800013&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-3 20:54</a>
+这名字感觉就比ahochika要素少一点www
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+估计妹子出道的时候还没有星团呢
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
