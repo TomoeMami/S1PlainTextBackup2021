@@ -16177,3 +16177,23 @@ CFB22517-4D7C-4E4F-A2B1-33E500D2428A.jpeg
 
 今明都有事不能看亏了
 
+
+
+*****
+
+####  仟音一心  
+##### 1438#       发表于 2021-12-4 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53800026&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-3 20:55</a>
+终于忙完了，可以休息一阵子，楼里大伙们好呀好呀
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+等着你的网盘呢
+
+*****
+
+####  lj205  
+##### 1439#       发表于 2021-12-4 18:33
+
+这导播不行<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">整活镜头呢？！
+
