@@ -1718,3 +1718,18 @@ travel ban确实没鸟用，drop了挺好
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  riczxc  
+##### 1645#         楼主| 发表于 2021-12-4 20:14
+
+ 本帖最后由 riczxc 于 2021-12-4 20:21 编辑 
+
+挪威那个聚餐超级传播，现在120个人有90个确诊了。因为首先确诊的是两个和南非有关的病例，所以多半都是Omicron(测序才确认了一部分）。
+
+挪威广播公司的报道：
+
+https://www.nrk.no/norge/fhi_-19-tilfeller-av-omikron-bekreftet-i-norge-1.15757630
+
