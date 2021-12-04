@@ -3967,3 +3967,20 @@ Sanlow，给个痛快
 
 乃琳Queen:[发布动态](https://t.bilibili.com/600176165848663604)<blockquote>这个豆浆....不好喝......这个世界上居然会有不好喝的豆浆呜呜呜呜 </blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 305#         楼主| 发表于 2021-12-4 22:27
+
+乃琳Queen:[发布动态](https://t.bilibili.com/600390875563436795)<blockquote>可恶！被骗了！那就给你们看一个前天拍的合照吧！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/04/222702m9k4kwx1v88v555v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 22:27 上传
+

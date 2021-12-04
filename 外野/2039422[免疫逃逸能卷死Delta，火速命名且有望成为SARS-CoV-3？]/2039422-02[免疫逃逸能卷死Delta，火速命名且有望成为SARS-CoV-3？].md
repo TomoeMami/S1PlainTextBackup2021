@@ -1800,3 +1800,26 @@ https://www.nrk.no/norge/fhi_-19-tilfeller-av-omikron-bekreftet-i-norge-1.157576
 
 啊不过只要有最基础的口罩也许就已经可以大幅降低感染率了
 
+
+
+*****
+
+####  最好不说  
+##### 1651#       发表于 2021-12-4 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53809202&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-4 20:38</a>
+
+漫展比较难分析，这个挪威的事件太典型了，应该很好分析。按照知乎上拍老师的说法，简直不是病毒，是毒气 ...</blockquote>
+如果真有这么高的r0再加上一定程度的免疫逃逸（都不用百分之八九十这么高），这个月就可以看到omicron在全世界杀得血流成河了，还真是欧美各国的最大圣诞礼物，虽然惊远大于喜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 1652#         楼主| 发表于 2021-12-4 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811288&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-4 22:30</a>
+如果真有这么高的r0再加上一定程度的免疫逃逸（都不用百分之八九十这么高），这个月就可以看到omicron在全 ...</blockquote>
+要不逃逸高，要不R0高，反正没好事。
+
+还在自我催眠的那些人，是在希望能逃delta不能逃疫苗。这种一厢情愿，疫情以来太多了。
+
