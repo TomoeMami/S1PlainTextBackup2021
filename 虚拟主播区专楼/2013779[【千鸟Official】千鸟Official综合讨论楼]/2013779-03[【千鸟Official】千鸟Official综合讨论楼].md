@@ -8469,3 +8469,49 @@ co宝老权限狗了，总在别人直播间禁言
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好死
 
+
+
+*****
+
+####  gawain039  
+##### 3971#       发表于 2021-12-4 21:02
+
+星瞳不想当文静姐姐
+
+*****
+
+####  gawain039  
+##### 3972#       发表于 2021-12-4 21:03
+
+星瞳居然真看文静直播，昨天2060还在看，想当文静妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 3973#       发表于 2021-12-4 21:04
+
+星瞳咋了，没看，不是不让提文静吗？
+
+*****
+
+####  gawain039  
+##### 3974#       发表于 2021-12-4 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53809625&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-4 21:04</a>
+星瞳咋了，没看，不是不让提文静吗？</blockquote>
+“我昨天想看2060但是找不到在哪播，就在那个人直播间看的”
+
+*****
+
+####  gawain039  
+##### 3975#       发表于 2021-12-4 21:06
+
+有人发sc钓到了
+
+*****
+
+####  夜之中道崩殂  
+##### 3976#       发表于 2021-12-4 21:08
+
+去鸟吧看了一圈，明白了。瞳子真的是，势利<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

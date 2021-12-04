@@ -16216,3 +16216,15 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 还有就是大头是 ...</blockquote>
 第二季预告明确了还是皮城和祖安的事情，语音里就是凯特琳vi和金克斯
 
+
+
+*****
+
+####  翻滚吧熊犊子  
+##### 2964#       发表于 2021-12-4 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53806092&amp;ptid=2002246" target="_blank">阿纳海姆电子 发表于 2021-12-4 14:57</a>
+
+哈洛的恒河猴实验哈洛还做过更残酷的实验，不过他的依恋理论对金克丝来说还是挺对症下药的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">谢谢那些小猴子的牺牲 看这个实验看泪目了 做父母真不容易啊
+

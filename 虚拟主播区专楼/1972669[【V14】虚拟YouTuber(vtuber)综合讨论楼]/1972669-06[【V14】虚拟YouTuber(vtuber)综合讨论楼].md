@@ -18381,3 +18381,119 @@ V将不V矣！
 
 没想到V14是始皇帝最后一楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 8959#       发表于 2021-12-4 21:01
+
+哎，难过<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tiro_finale  
+##### 8960#       发表于 2021-12-4 21:03
+
+P丸那是得道成仙了，就像群雄逐鹿三国鼎立争到最后全寄、司马家赢麻了，到头来四天王南征北战，这天下还是鲨皇的天下
+
+*****
+
+####  某穆克拉  
+##### 8961#       发表于 2021-12-4 21:05
+
+啊，做了个ppt回来就变天了。
+
+希望还能再见吧
+
+*****
+
+####  毒蛇王维诺米隆  
+##### 8962#       发表于 2021-12-4 21:05
+
+我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  OldGlory  
+##### 8963#       发表于 2021-12-4 21:05
+
+司马家得国不正，暗示<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leufon  
+##### 8964#       发表于 2021-12-4 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swordofsoul1  
+##### 8965#       发表于 2021-12-4 21:07
+
+该望安贴贴了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 8966#       发表于 2021-12-4 21:10
+
+第一次看你，我没能喜欢上你
+
+第二次看你，我已经有了推
+
+我从来没有真正拥抱过你
+
+但你却定义了虚拟的每一寸
+
+祝好，青山在，人未老，“望”再见！
+
+*****
+
+####  fghc_h  
+##### 8967#       发表于 2021-12-4 21:12
+
+老爱<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 8968#       发表于 2021-12-4 21:15
+
+vtuber这个概念和它带来的无穷想像落幕了，不过这个行业已经找到了自己赚钱的方向，还会继续下去的
+
+*****
+
+####  supersssbc  
+##### 8969#       发表于 2021-12-4 21:15
+
+虽然我已经快两年没看绊爱了，唉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 8970#       发表于 2021-12-4 21:17
+
+搞了半天还是最俗最保险的🦄女团最赚钱，中日都一样。
+
+
+
+*****
+
+####  江少寒  
+##### 8971#       发表于 2021-12-4 21:18
+
+看绊爱入坑，四天王到虹杏到现在……心情复杂。
+
+再见。
+
+*****
+
+####  winda  
+##### 8972#       发表于 2021-12-4 21:19
+
+终于终于，vtuber是蹭老爱热度的时代结束了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
