@@ -1648,3 +1648,49 @@ https://wallstreetcn.com/articles/3646500
 他们还想只靠疫苗不封锁来控住这波，完全异想天开，就算现有疫苗能降低omicron重症死亡率，再生数 ...</blockquote>
 南非没有那种治理能力的，老老实实向国际社会求援，看看新疫苗能不能拿到手，不过就算是接种起来，他们能不能覆盖好也是问题。
 
+
+
+*****
+
+####  smy20011  
+##### 1638#       发表于 2021-12-4 16:22
+
+travel ban确实没鸟用，drop了挺好
+
+*****
+
+####  66666  
+##### 1639#       发表于 2021-12-4 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53804149&amp;ptid=2039422" target="_blank">Vneet 发表于 2021-12-4 11:08</a>
+
+刚看了新闻，日本放弃锁国了，历时三天。</blockquote>
+本来这个政策里面漏洞太多，根本达不到效果
+
+*****
+
+####  smy20011  
+##### 1640#       发表于 2021-12-4 16:23
+
+<blockquote>武男 发表于 2021-12-4 16:20
+南非没有那种治理能力的，老老实实向国际社会求援，看看新疫苗能不能拿到手，不过就算是接种起来，他们能 ...</blockquote>
+南非不缺疫苗
+
+*****
+
+####  qratosone  
+##### 1641#       发表于 2021-12-4 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53705547&amp;ptid=2039422" target="_blank">罗莉控 发表于 2021-11-26 09:11</a>
+知乎上的喷总（莫得纳员工）打游戏打的不亦乐乎，情况还不严重！</blockquote>
+他的答案说的是被美国政府气得直接躺平了吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  最好不说  
+##### 1642#       发表于 2021-12-4 16:29
+
+记者今日（12月4日）从内蒙古满洲里市新冠肺炎疫情防控第八场新闻发布会上获悉，经基因测序，本次满洲里的确诊病例感染的新冠病毒均属于德尔塔变异株，为境外新冠病毒通过人和物一次新的输入。（央视新闻） 暂时还是delta，不过毛子肯定防不住omicron
+
