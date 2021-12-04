@@ -2996,3 +2996,12 @@ Oculus Quest v35 更新推出，对国内玩家比较有用的是<strong>全局�
 
 [https://www.oculus.com/blog/mixe ... us-software-update/](https://www.oculus.com/blog/mixed-reality-made-easy-messenger-calling-cloud-backup-and-more-in-the-newest-oculus-software-update/)
 
+
+
+*****
+
+####  AndrewChen  
+##### 194#       发表于 2021-12-4 12:05
+
+问个问题，之前一直想安装vd，现在已经付了款了但是在头戴设备里的商店总是加载不出vd 的商店界面，下载不了，怎么整啊
+
