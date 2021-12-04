@@ -15823,3 +15823,22 @@ alp老师画的恋恋还是璞玉呢。
 
 那个咖啡厅联动为啥没上海……台湾那个不会让鲤鱼来宣传吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 1407#       发表于 2021-12-4 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53805073&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-4 12:49</a>
+
+那个咖啡厅联动为啥没上海……台湾那个不会让鲤鱼来宣传吧？</blockquote>
+还是别了，指不定搞出啥幺蛾子
+
+*****
+
+####  中野四葉  
+##### 1408#       发表于 2021-12-4 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">让鲤鱼宣传也不是不行，直接用中文说，然后加个台湾省
+

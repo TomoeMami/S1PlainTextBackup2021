@@ -1547,3 +1547,17 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 
 #COVID19 UPDATE: A total of 65,990 tests were conducted in the last 24hrs, with 16,055 new cases, which represents a 24.3% positivity rate. A further 25 #COVID19 related deaths have been reported, bringing total fatalities to 89,994 to date. 
 
+
+
+*****
+
+####  最好不说  
+##### 1629#       发表于 2021-12-4 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53804965&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-4 12:38</a>
+
+南非的阳性率还在升
+
+#COVID19 UPDATE: A total of 65,990 tests were conducted in the last 24hrs, with  ...</blockquote>
+他们还想只靠疫苗不封锁来控住这波，完全异想天开<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，就算现有疫苗能降低omicron重症死亡率，再生数可是完全压不住的，这增长速度不到两周就能挤爆南非的门诊和ICU
+
