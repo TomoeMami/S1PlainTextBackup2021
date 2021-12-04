@@ -18203,3 +18203,21 @@ SKB部联动B站好像都删了，发几个网盘，另外nyaa上也有种子可
 
 苍月eri又回来当弹唱女主播了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">消失了几年是去竞选之类了吗
 
+
+
+*****
+
+####  nagitoY  
+##### 8938#       发表于 2021-12-4 16:46
+
+说起来v区没有有栖マナ的楼？本来今天这件事想来看戏，结果发现压根没人讨论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是很好  
+##### 8939#       发表于 2021-12-4 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53806930&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-4 16:46</a>
+说起来v区没有有栖マナ的楼？本来今天这件事想来看戏，结果发现压根没人讨论 ...</blockquote>
+你去c1看看吧。我没点进去不太清楚
+
