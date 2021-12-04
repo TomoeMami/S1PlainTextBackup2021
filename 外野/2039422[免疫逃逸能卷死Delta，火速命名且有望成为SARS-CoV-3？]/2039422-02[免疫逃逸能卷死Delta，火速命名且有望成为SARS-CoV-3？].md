@@ -1466,3 +1466,21 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 
 当然只有两个病例置信率很低。
 
+
+
+*****
+
+####  riczxc  
+##### 1622#         楼主| 发表于 2021-12-4 09:21
+
+ 本帖最后由 riczxc 于 2021-12-4 09:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53803217&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-4 09:00</a>
+
+保护率是统计上的，美国确认2个，一个是三针的，而美国全国三针率还远没过半。
+
+当然只有两个病例置信率很 ...</blockquote>
+
+更可能是三针突破了所以才测序吧。
+
+按照我的理解，作为leaky vaccine，保护率对个人也是统计上的。就像闪避率一样，常在河边走就会必定会遭殃那种。
+
