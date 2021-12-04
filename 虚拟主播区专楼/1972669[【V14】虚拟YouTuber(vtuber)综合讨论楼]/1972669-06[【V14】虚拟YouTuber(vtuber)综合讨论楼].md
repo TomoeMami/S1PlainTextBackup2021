@@ -18497,3 +18497,134 @@ vtuber这个概念和它带来的无穷想像落幕了，不过这个行业已�
 
 终于终于，vtuber是蹭老爱热度的时代结束了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  喜闻乐见  
+##### 8973#       发表于 2021-12-4 21:21
+
+属于v的时代还在加速，都在加速变化提升，回头寻找不变的里面最耀眼的大概是 重 大 发 表 吧
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1gx2467uapvj20q40m1n7k.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  虚拟铲子  
+##### 8974#       发表于 2021-12-4 21:23
+
+始皇死而地分。 地早分了，始皇其实在搞身外化身求长生失败的时候也早死了，今天只是宣布发丧而已。
+
+回顾油管订阅斗虫榜，前二十五大部分都是杏。也就欧美的V少女，以及彩虹唯一葛king能排上。葛king也就24而已。
+
+月之美兔以前还有以为是高祖，现在看也只不过陈胜吴广之流而已。
+
+V圈的朝代特别短小，今天台上的王侯，明天就可能变成荒野的枯骨了。
+
+*****
+
+####  FCCHua  
+##### 8975#       发表于 2021-12-4 21:24
+
+ 本帖最后由 FCCHua 于 2021-12-4 21:39 编辑 
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Blaze626  
+##### 8976#       发表于 2021-12-4 21:25
+
+想起来还是先看的老爱，再注意到了还在漫区作为科普贴的V综，才入了管人这个坑<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katern  
+##### 8977#       发表于 2021-12-4 21:26
+
+5年过得真的很快，这一天还是来了，可以从管人彻底毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  midearth  
+##### 8978#       发表于 2021-12-4 21:30
+
+那时也是摸索期吧，现在的运营绝对干不出换中之人这种事了。
+
+其实如果能维持下去，减少活动频率偶尔发发视频也是好的，毕竟爱酱这个形象是有象征意义的，不过现实不同虚拟空间，总是有太多的难处。
+
+*****
+
+####  Fingest  
+##### 8979#       发表于 2021-12-4 21:32
+
+山顶洞人闻老爱退位 查了下鲨鱼 收获Wellerman一首
+
+*****
+
+####  真飞鸟i  
+##### 8980#       发表于 2021-12-4 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">视频势管人换中之人事件在那段时间发生的频率过高了，总觉得可能是当时视频势的业界共识吧。
+
+*****
+
+####  椎名mahuyo  
+##### 8981#       发表于 2021-12-4 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该去木口体验首播20W，一周订阅50W+了
+
+*****
+
+####  fghc_h  
+##### 8982#       发表于 2021-12-4 21:34
+
+曾经第一眼见到老爱，以为是真AI，惊为天人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 8983#       发表于 2021-12-4 21:36
+
+有幸见证历史了。
+
+始皇现在未必是不赚钱的，但有时候即便能赚钱，如果看不到更进一步的希望的话或许也没什么动力继续下去了吧。
+<img src="https://p.sda1.dev/3/245936c1638792947faaaed95093f9c1/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不想当咸鱼  
+##### 8984#       发表于 2021-12-4 21:36
+
+ 本帖最后由 不想当咸鱼 于 2021-12-4 21:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">看v就是从老爱开始的，虽然也挺久没看v了，结果各种群都在发毕业告知……
+
+*****
+
+####  阿尔达希尔  
+##### 8985#       发表于 2021-12-4 21:36
+
+时光流逝……
+
+*****
+
+####  渡鸦骑士  
+##### 8986#       发表于 2021-12-4 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53810280&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-12-4 21:36</a>
+
+有幸见证历史了。
+
+始皇现在未必是不赚钱的，但有时候即便能赚钱，如果看不到更进一步的希望的话或许也没什 ...</blockquote>
+听我云来的口吻，像是各种大人的原因做不下去了，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+到底是多少人看不到进一步的未来呢？
+
+*****
+
+####  midearth  
+##### 8987#       发表于 2021-12-4 21:40
+
+才发现春日望自己的频道也把直播内容全部删掉了，估计是有心隐退了吧
+

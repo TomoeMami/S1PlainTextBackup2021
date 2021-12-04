@@ -11535,3 +11535,51 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 唱的总感觉有些深情……
 
+
+
+*****
+
+####  Rem-清曲  
+##### 5831#       发表于 2021-12-4 21:21
+
+这帽子歪了，好想弄正 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 5832#       发表于 2021-12-4 21:24
+
+上来就连唱四首，瑞了
+
+*****
+
+####  时间在我手中  
+##### 5833#       发表于 2021-12-4 21:26
+
+ 本帖最后由 时间在我手中 于 2021-12-4 21:32 编辑 
+
+怎么还会唱失落圣诞的歌
+
+狂暴egoist鸿儒啊，破案了。十周年
+
+*****
+
+####  T_Hb  
+##### 5834#       发表于 2021-12-4 21:36
+
+话好少
+
+*****
+
+####  雪风utopia  
+##### 5835#       发表于 2021-12-4 21:36
+
+这么多天推特才涨了不到一千<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 5836#       发表于 2021-12-4 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管那么多有什么用 那么爽的歌回不好吗
+

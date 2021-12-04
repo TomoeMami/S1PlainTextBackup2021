@@ -1785,3 +1785,18 @@ https://www.nrk.no/norge/fhi_-19-tilfeller-av-omikron-bekreftet-i-norge-1.157576
   -- 来 ...</blockquote>
 和日本有事一样躺平啊，没毛病
 
+
+
+*****
+
+####  yuandi0120  
+##### 1650#       发表于 2021-12-4 21:30
+
+ 本帖最后由 yuandi0120 于 2021-12-4 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53809202&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-4 20:38</a>
+
+漫展比较难分析，这个挪威的事件太典型了，应该很好分析。按照知乎上拍老师的说法，简直不是病毒，是毒气 ...</blockquote>
+一次聚餐都这样的话，那像入境航班这种长时间密闭空间不就基本可以认为只要有一个病例那其他旅客（除非自带全身防护）全都可以当感染者看了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+啊不过只要有最基础的口罩也许就已经可以大幅降低感染率了
+
