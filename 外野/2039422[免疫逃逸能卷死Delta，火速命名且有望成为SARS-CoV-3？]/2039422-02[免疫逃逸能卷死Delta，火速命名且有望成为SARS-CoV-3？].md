@@ -1561,3 +1561,16 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 #COVID19 UPDATE: A total of 65,990 tests were conducted in the last 24hrs, with  ...</blockquote>
 他们还想只靠疫苗不封锁来控住这波，完全异想天开<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，就算现有疫苗能降低omicron重症死亡率，再生数可是完全压不住的，这增长速度不到两周就能挤爆南非的门诊和ICU
 
+
+
+*****
+
+####  零下五度猫  
+##### 1630#       发表于 2021-12-4 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53801527&amp;ptid=2039422" target="_blank">ftqwer1 发表于 2021-12-3 23:20</a>
+荷兰是怎么了？怎么开始说真话了。</blockquote>
+荷兰的意思可能是南非瞒报了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K30 Pro, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

@@ -15842,3 +15842,22 @@ alp老师画的恋恋还是璞玉呢。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">让鲤鱼宣传也不是不行，直接用中文说，然后加个台湾省
 
+
+
+*****
+
+####  cat1230  
+##### 1409#       发表于 2021-12-4 13:38
+
+按照官方初始阶段给可可改生日的敏感性来考虑，不会去摸台湾这么麻烦的问题的，或者真去就让liyuu回避一下呗，又不是非得5人聚齐宣传嘛
+
+*****
+
+####  saverok  
+##### 1410#       发表于 2021-12-4 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53803895&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-4 10:37</a>
+
+同一航班还行，羡慕了，期待这老哥这次的vlog</blockquote>
+这老哥的vlog真情实感了 现场感十足
+
