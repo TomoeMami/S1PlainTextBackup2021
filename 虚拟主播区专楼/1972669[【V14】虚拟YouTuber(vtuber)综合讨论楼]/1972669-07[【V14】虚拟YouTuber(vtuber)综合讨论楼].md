@@ -531,3 +531,19 @@ facerig比老爱还要早，套皮直播人是迟早的事，不过没有四天�
 
 人之将死，回光返照。一个时代，终于宣告落幕了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 9053#       发表于 2021-12-5 01:36
+
+在我看来老视频势模式无论是成本问题还是内容上和大量成熟娱乐行业直接竞争都太致命了，可以说出来就直奔着昙花一现了，连讨论过无数次的动画业界体制都比他这套能维持的多。
+
+*****
+
+####  Porsche  
+##### 9054#       发表于 2021-12-5 01:37
+
+最讽刺的是，虽然兔头一己之力改变了整个世界线，但她却是不输视频势始终最有创造力的那个纸片人之一，恨就恨出生在了彩虹吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
