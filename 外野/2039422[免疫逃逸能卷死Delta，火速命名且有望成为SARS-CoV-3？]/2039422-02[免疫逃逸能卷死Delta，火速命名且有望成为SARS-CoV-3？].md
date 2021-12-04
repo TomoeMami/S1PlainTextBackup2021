@@ -1593,3 +1593,58 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 刚看了新闻，日本放弃锁国了，历时三天。</blockquote>
 好的 在高素质的日本人的配合下变成和姦了
 
+
+
+*****
+
+####  骆宾王  
+##### 1633#       发表于 2021-12-4 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798619&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-3 18:30</a>
+感觉你扯的有点远了，我还是插一句嘴。
+南非可不只是避孕套的问题，他们那边有廉价的**，还流行一种一个 ...</blockquote>
+妈耶，抽一管血比买毒还便宜。。。
+
+*****
+
+####  yukino1981  
+##### 1634#       发表于 2021-12-4 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53804149&amp;ptid=2039422" target="_blank">Vneet 发表于 2021-12-04 11:08:14</a>
+刚看了新闻，日本放弃锁国了，历时三天。</blockquote>哈哈哈，本子真TM傻逼，就这种行动力和决心还想和我们比划所谓“台湾有事等于日本有事”。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  武男  
+##### 1635#       发表于 2021-12-4 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53806677&amp;ptid=2039422" target="_blank">yukino1981 发表于 2021-12-4 16:14</a>
+
+哈哈哈，本子真TM傻逼，就这种行动力和决心还想和我们比划所谓“台湾有事等于日本有事”。
+
+  -- 来 ...</blockquote>
+福岛以后你就不该信啊，何况当你每年下水量就是他的一半吨位的时候，他也是个期货罢了
+
+*****
+
+####  RJG丶one  
+##### 1636#       发表于 2021-12-4 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53804371&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-4 11:32</a>
+https://wallstreetcn.com/articles/3646500
+
+自媒体瞎翻译的例子之一</blockquote>
+机器翻译翻报表数据时的常见错误，机翻的问题，也是从业者的常识问题
+
+*****
+
+####  武男  
+##### 1637#       发表于 2021-12-4 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53805314&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-4 13:19</a>
+
+他们还想只靠疫苗不封锁来控住这波，完全异想天开，就算现有疫苗能降低omicron重症死亡率，再生数 ...</blockquote>
+南非没有那种治理能力的，老老实实向国际社会求援，看看新疫苗能不能拿到手，不过就算是接种起来，他们能不能覆盖好也是问题。
+
