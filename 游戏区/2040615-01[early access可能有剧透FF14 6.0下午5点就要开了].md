@@ -573,3 +573,12 @@ _____________________________
 
 这终末真是平平无奇<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LrGsite  
+##### 67#         楼主| 发表于 2021-12-4 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">去做了个饭回来发现被吉田踢了,现在打了两天81级本还没打完,进展缓慢,titan现在1000人排队而且没法切服务器
+

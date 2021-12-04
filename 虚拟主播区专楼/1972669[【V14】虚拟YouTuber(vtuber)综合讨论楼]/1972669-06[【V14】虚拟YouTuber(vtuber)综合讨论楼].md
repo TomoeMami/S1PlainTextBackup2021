@@ -18274,3 +18274,110 @@ SKB部联动B站好像都删了，发几个网盘，另外nyaa上也有种子可
 
 老爱终于要寄了吗
 
+
+
+*****
+
+####  NBXX  
+##### 8944#       发表于 2021-12-4 20:43
+
+<img src="https://p.sda1.dev/3/984bcda2dfd47e56c697732a28b33886/_50_F_U2_N_M7OM_U9@W8ZS.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 8945#       发表于 2021-12-4 20:44
+
+额啊。
+
+*****
+
+####  影山银  
+##### 8946#       发表于 2021-12-4 20:46
+
+一个时代算是要结束了吧
+
+*****
+
+####  free  
+##### 8947#       发表于 2021-12-4 20:48
+
+虽然休止了，还要准备一些尚未公开的项目......会是指什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 8948#       发表于 2021-12-4 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">啊
+
+*****
+
+####  sgssk  
+##### 8949#       发表于 2021-12-4 20:52
+
+V将不V矣！
+
+*****
+
+####  人別離苦  
+##### 8950#       发表于 2021-12-4 20:53
+
+啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  真飞鸟i  
+##### 8951#       发表于 2021-12-4 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">视频势这下真没了。
+
+*****
+
+####  越动天下  
+##### 8952#       发表于 2021-12-4 20:57
+
+视频势时代正式结束了吧
+
+*****
+
+####  狂拽猫少  
+##### 8953#       发表于 2021-12-4 20:57
+
+哭了 老爱舰b工商入的坑 不知不觉五年了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 8954#       发表于 2021-12-4 20:57
+
+这管人世界如你所愿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stedckk  
+##### 8955#       发表于 2021-12-4 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">v入坑还是看了很多老爱的视频的，视频势真的结束了
+
+*****
+
+####  星街こうせい  
+##### 8956#       发表于 2021-12-4 20:59
+
+换P丸登基了。
+
+*****
+
+####  本间日阳  
+##### 8957#       发表于 2021-12-4 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">我上次关心老爱还是她上刀也的radio，当时就感慨沧海桑田世事多变，没想到现在直接驾崩了。
+
+*****
+
+####  璃絵和花瑠  
+##### 8958#       发表于 2021-12-4 21:00
+
+没想到V14是始皇帝最后一楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
