@@ -16187,3 +16187,16 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 那哥们在搞心理的里面也是名声有争议的，比这更没溜的缺德实验都搞过。 ...</blockquote>
 艹，我去查查，原来还是个争议人物
 
+
+
+*****
+
+####  战星辰  
+##### 2962#       发表于 2021-12-4 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">如果后面第二季直接去做别地方去了，这个结局算烂尾吗？
+
+寸止结局对我来说很难给+2
+
+还有就是大头是真的工具人。
+
