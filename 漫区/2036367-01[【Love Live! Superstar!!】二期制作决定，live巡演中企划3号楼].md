@@ -15776,3 +15776,12 @@ alp老师画的恋恋还是璞玉呢。
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  chenflyyy  
+##### 1402#       发表于 2021-12-4 10:37
+
+同一航班还行，羡慕了，期待这老哥这次的vlog<img src="https://p.sda1.dev/3/a280a3a18d46d97040f09b6f79eb9f34/IMG_CMP_37171103.jpeg" referrerpolicy="no-referrer">
+
