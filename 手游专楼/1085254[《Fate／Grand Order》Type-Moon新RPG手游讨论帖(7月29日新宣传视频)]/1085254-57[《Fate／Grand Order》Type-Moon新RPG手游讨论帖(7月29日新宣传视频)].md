@@ -6686,3 +6686,22 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 终极异闻带伽勒底</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总感觉奥尔加会再被迫害一次
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84598#       发表于 2021-12-4 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才想起来这个月票子还没扔，龙马二宝了
+
+*****
+
+####  alucardcz  
+##### 84599#       发表于 2021-12-4 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53809015&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-4 20:27</a>
+
+才想起来这个月票子还没扔，龙马二宝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狗还是你狗
+

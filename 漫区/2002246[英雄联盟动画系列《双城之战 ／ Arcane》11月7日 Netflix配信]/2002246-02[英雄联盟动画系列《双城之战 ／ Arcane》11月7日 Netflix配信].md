@@ -16200,3 +16200,19 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 还有就是大头是真的工具人。
 
+
+
+*****
+
+####  jf8350143  
+##### 2963#       发表于 2021-12-4 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53807913&amp;ptid=2002246" target="_blank">战星辰 发表于 2021-12-4 18:47</a>
+
+如果后面第二季直接去做别地方去了，这个结局算烂尾吗？
+
+寸止结局对我来说很难给+2
+
+还有就是大头是 ...</blockquote>
+第二季预告明确了还是皮城和祖安的事情，语音里就是凯特琳vi和金克斯
+

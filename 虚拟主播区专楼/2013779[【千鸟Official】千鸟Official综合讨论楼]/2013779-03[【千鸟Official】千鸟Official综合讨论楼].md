@@ -8453,3 +8453,19 @@ DK2.0，怀P夜原，含泪一踢四，静鳖真的很会炒
 
 co宝老权限狗了，总在别人直播间禁言
 
+
+
+*****
+
+####  小憨1  
+##### 3969#       发表于 2021-12-4 20:27
+
+在其他人的直播间用其他人的账号封人怎么能算权限狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 3970#       发表于 2021-12-4 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好死
+
