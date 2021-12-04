@@ -15973,3 +15973,19 @@ syl，竹村桐子是谁，鲤鱼和小百合居然能在喜欢的偶像上都�
 
 忍者棒棒确实火过啊。翻唱翻跳一大把，彭薇薇火的时候刚好也B站爆发中。
 
+
+
+*****
+
+####  zylwz  
+##### 1422#       发表于 2021-12-4 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53805953&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-4 14:37</a>
+
+艺人出行除了经纪人不用带其他人了吗？LL企划的staff们应该是提前去了吧？
+
+一行9人，小百合和青山都是海选 ...</blockquote>
+可是那个偶遇的博主说的招手的是最后到的sayuri啊
+
+你刚到机场遇见约好的同事不打招呼的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

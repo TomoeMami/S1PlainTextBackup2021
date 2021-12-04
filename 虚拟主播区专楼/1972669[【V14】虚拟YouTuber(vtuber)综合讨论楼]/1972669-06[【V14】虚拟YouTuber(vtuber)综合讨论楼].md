@@ -18221,3 +18221,27 @@ SKB部联动B站好像都删了，发几个网盘，另外nyaa上也有种子可
 说起来v区没有有栖マナ的楼？本来今天这件事想来看戏，结果发现压根没人讨论 ...</blockquote>
 你去c1看看吧。我没点进去不太清楚
 
+
+
+*****
+
+####  tiro_finale  
+##### 8940#       发表于 2021-12-4 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53806930&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-4 16:46</a>
+
+说起来v区没有有栖マナ的楼？本来今天这件事想来看戏，结果发现压根没人讨论 ...</blockquote>
+这事归B综，你可以去问问，前面看到vt有转
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nagitoY| + 1|原来如此|
+
+查看全部评分
+
