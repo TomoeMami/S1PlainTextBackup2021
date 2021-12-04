@@ -16250,3 +16250,15 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  powerpyc  
+##### 2967#       发表于 2021-12-5 04:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802525&amp;ptid=2002246" target="_blank">YESIARE 发表于 2021-12-4 02:25</a>
+
+两晚看完优秀得不像游戏改</blockquote>
+毕竟是钱和时间砸出来的
+
