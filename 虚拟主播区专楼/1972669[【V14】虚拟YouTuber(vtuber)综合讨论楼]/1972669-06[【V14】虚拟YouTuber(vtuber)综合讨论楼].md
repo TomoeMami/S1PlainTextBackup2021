@@ -18628,3 +18628,129 @@ V圈的朝代特别短小，今天台上的王侯，明天就可能变成荒野�
 
 才发现春日望自己的频道也把直播内容全部删掉了，估计是有心隐退了吧
 
+
+
+*****
+
+####  stedckk  
+##### 8988#       发表于 2021-12-4 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">就现在业界这个样子，确实没啥希望，相关技术感觉也不可能短时间内大爆发。
+
+*****
+
+####  midearth  
+##### 8989#       发表于 2021-12-4 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53810330&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-4 21:38</a>
+
+听我云来的口吻，像是各种大人的原因做不下去了，
+
+到底是多少人看不到进一步的未来呢？ ...</blockquote>
+之前弄了个小公司继续经营应该就是想轻装上阵，到现在宣布休止，应该是真的做不下去了。
+
+*****
+
+####  alcoholic1000  
+##### 8990#       发表于 2021-12-4 21:46
+
+也许是管人行业的一座界碑
+
+当初读到第一财经/Vista看天下杂志中的对老爱介绍，才认识了虚拟主播<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 8991#       发表于 2021-12-4 21:46
+
+第一时间跑去看iwaiwa有没说怪话，目前还没有惹
+
+*****
+
+####  星街こうせい  
+##### 8992#       发表于 2021-12-4 21:47
+
+今天星瞳直播的时候也直说了，不是不想增加直播频次，是成本盖不住。3D势开一次机就是烧钱，眼下还能随便嗯造的就是粉丝人均提款机的A手，就是A手能随便造到什么时候也是未知。
+
+*****
+
+####  遍体精淋af  
+##### 8993#       发表于 2021-12-4 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">遥想那个v圈人人都想蹭的始皇帝，令人唏嘘，老爱退圈并不是没有预想过，只是没想到是用这种方式
+
+*****
+
+####  烤冷面加蛋  
+##### 8994#       发表于 2021-12-4 21:53
+
+<blockquote>かすがのぞみ
+
+@kasuga_nozomi
+
+5周年おめでとうっ🎉
+
+アイちゃんなら絶対もっともっと
+
+インテリジェントなスーパーAIになれます。
+
+アイちゃんが選んだ道が正解になるように
+
+<strong>スリープまで引き続きサポート</strong>していくので
+
+大好きなアイちゃんの決断を
+
+どうか一緒に応援してもらえたら嬉しいです！
+
+よろしくお願いします。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  huanshen  
+##### 8995#       发表于 2021-12-4 21:54
+
+ 本帖最后由 huanshen 于 2021-12-4 21:57 编辑 
+
+视频的投入产出太不成比例了，纯靠视频不整后面的幺蛾子养活一个团队不现实。vtuber的发展之路最终还是朝着资本喜欢的方向上延展出去了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  midearth  
+##### 8996#       发表于 2021-12-4 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53810330&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-4 21:38</a>
+
+听我云来的口吻，像是各种大人的原因做不下去了，
+
+到底是多少人看不到进一步的未来呢？ ...</blockquote>
+[https://youtu.be/OrBYcP0aR5s?t=6781](https://youtu.be/OrBYcP0aR5s?t=6781)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  cheatdeath3  
+##### 8997#       发表于 2021-12-4 21:55
+
+管人就是门生意罢了
+
+要想乳live一样如日中天，还会隐退吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 8998#       发表于 2021-12-4 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 直播势败了，点也败了，赢的是虹男杏女
+

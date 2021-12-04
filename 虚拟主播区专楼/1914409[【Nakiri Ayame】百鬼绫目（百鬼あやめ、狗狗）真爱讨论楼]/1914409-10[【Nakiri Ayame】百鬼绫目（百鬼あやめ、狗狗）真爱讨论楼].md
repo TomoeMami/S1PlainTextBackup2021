@@ -1102,3 +1102,12 @@ There will be normal LoL stream at this rate
 
 紫宝生日回有3DLIVE 绫总是不是该发推了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 13611#       发表于 2021-12-4 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">新衣服和live这个月会有吗
+
