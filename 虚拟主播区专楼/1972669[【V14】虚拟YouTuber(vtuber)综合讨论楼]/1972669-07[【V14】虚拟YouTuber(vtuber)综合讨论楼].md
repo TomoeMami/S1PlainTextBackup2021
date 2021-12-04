@@ -468,3 +468,47 @@ facerig比老爱还要早，套皮直播人是迟早的事，不过没有四天�
 不管谈2d直播还是联动火花，无论如何也要先谈天魔机忍才对吧。
 肯定不止是直播+箱的问题。
 
+
+
+*****
+
+####  星街こうせい  
+##### 9047#       发表于 2021-12-5 00:22
+
+喷了，以前的村子真的回来了，而且还是V1的村子。
+
+*****
+
+####  OldGlory  
+##### 9048#       发表于 2021-12-5 00:26
+
+终于涨了1w粉，非常讽刺了
+
+<img src="https://img.saraba1st.com/forum/202112/05/002650a3w1qz1dq7acmjqr.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211205002524.jpg</strong> (13.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 00:26 上传
+
+*****
+
+####  free  
+##### 9049#       发表于 2021-12-5 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812576&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-12-4 23:57</a>
+
+是转生了还是回箱了？我当年好喜欢她的。当真人主播就算了</blockquote>
+现在是真人弹唱up主ui4s，油管播过一次没露脸，推特经常发弹唱
+
+[https://twitter.com/__ui4s](https://twitter.com/__ui4s)
+[https://www.youtube.com/channel/UCBNESUNOcTboa4oc3ZjGIVw](https://www.youtube.com/channel/UCBNESUNOcTboa4oc3ZjGIVw)
+
+*****
+
+####  rzrbtk  
+##### 9050#       发表于 2021-12-5 00:35
+
+今回马车有团战真是紧张又刺激惹，希望分组来点好玩的，是说八十人真的好多感觉会有些怪怪的组合
+

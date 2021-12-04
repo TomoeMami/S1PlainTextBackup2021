@@ -8535,3 +8535,21 @@ co宝老权限狗了，总在别人直播间禁言
 
 这！就是腾讯！
 
+
+
+*****
+
+####  tankai  
+##### 3979#       发表于 2021-12-5 00:34
+
+晚上我出去吃饭了。看NGA和鸟吧怎么又有发散文静要走？文静昨天结尾处又暗示或者低气压了？
+
+*****
+
+####  GAKOTO  
+##### 3980#         楼主| 发表于 2021-12-5 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812928&amp;ptid=2013779" target="_blank">tankai 发表于 2021-12-5 00:34</a>
+晚上我出去吃饭了。看NGA和鸟吧怎么又有发散文静要走？文静昨天结尾处又暗示或者低气压了？ ...</blockquote>
+看有毕业气氛的二创没有直球否认要毕业吧，加上今天老爱毕业<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
