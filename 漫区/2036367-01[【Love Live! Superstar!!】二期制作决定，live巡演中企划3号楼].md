@@ -16113,3 +16113,67 @@ D53FBCF4-CB15-4A6C-A574-245EE4FC5D0F.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">两位合唱太美了
 
+
+
+*****
+
+####  中野四葉  
+##### 1433#       发表于 2021-12-4 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">本来就喜欢message这首歌，这次还两人合唱，爽到了
+
+*****
+
+####  lj205  
+##### 1434#       发表于 2021-12-4 18:06
+
+今天导播真神
+
+*****
+
+####  仟音一心  
+##### 1435#       发表于 2021-12-4 18:10
+
+导播太强了
+
+A65730A1-760E-499B-B36D-A89D60A10E29.jpeg
+(167.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/181012xe4e6ffqnvo6o7dd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CFB22517-4D7C-4E4F-A2B1-33E500D2428A.jpeg
+(237.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/181012wgfy2xte12tt2cus.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0F27267E-FBF9-4152-BFBA-036BA959BBFD.jpeg
+(210.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/181012bpggigsy00anus4g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 1436#       发表于 2021-12-4 18:19
+
+今天版本大更新，该买哪支股<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 1437#       发表于 2021-12-4 18:22
+
+今明都有事不能看亏了
+
