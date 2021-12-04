@@ -7903,3 +7903,14 @@ SYL啊准制作人河马在准号上播，很有意思的老哥<img src="https:/
 
 怪不得要出to签，看样子12月的主基调还是复健，能恢复之前一半直播效果就是赢了
 
+
+
+*****
+
+####  小憨1  
+##### 3902#       发表于 2021-12-4 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802587&amp;ptid=2013779" target="_blank">gnoliyil 发表于 2021-12-4 02:49</a>
+文静赢了吧，收天米</blockquote>
+还真是
+
