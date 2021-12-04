@@ -1574,3 +1574,22 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 
 — from Xiaomi Redmi K30 Pro, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  bearsnowk  
+##### 1631#       发表于 2021-12-4 13:48
+
+要真是老鼠能传播的话，我国危险啊，进口货物难免带进来老鼠吧
+
+*****
+
+####  Centrum  
+##### 1632#       发表于 2021-12-4 13:54
+
+ 本帖最后由 Centrum 于 2021-12-4 13:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53804149&amp;ptid=2039422" target="_blank">Vneet 发表于 2021-12-4 11:08</a>
+刚看了新闻，日本放弃锁国了，历时三天。</blockquote>
+好的 在高素质的日本人的配合下变成和姦了
+

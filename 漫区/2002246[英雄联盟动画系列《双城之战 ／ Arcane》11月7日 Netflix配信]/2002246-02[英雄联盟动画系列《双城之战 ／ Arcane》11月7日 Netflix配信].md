@@ -16117,3 +16117,23 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 当然剧本本身已经极致的工整，尤其是每话开始时候的角色起源小故事，完全就是教科书级别的精准。至于差的那点儿佐料，能和马丁比点子也算是一种荣誉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qingshuihe  
+##### 2957#       发表于 2021-12-4 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53805111&amp;ptid=2002246" target="_blank">Redis 发表于 2021-12-4 12:54</a>
+
+首先英雄联盟这个ip的框架放在那里
+
+这个本子只能按照YA的大方向去写，毕竟受众是青少年</blockquote>
+张力很多时候不就是那股醍醐味吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+双城各方面都很强，确实醍醐味少，比如桥上艾克打斗，蔚和杰斯打斗，惊艳精彩，吹爆。
+
+现在提起醍醐味，一下子想起来的就是莱纳你坐和活下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那天跟朋友说起文化作品的醍醐味这个词，朋友竟然跟我说完全没听过。
+

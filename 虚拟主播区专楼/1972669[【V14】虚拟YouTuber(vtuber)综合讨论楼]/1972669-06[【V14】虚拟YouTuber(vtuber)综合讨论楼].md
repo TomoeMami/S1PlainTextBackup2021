@@ -18175,3 +18175,22 @@ SYL：
 
 嘛，虽然估计提出来就会被虹人嘲讽是魔怔事业粉吧
 
+
+
+*****
+
+####  free  
+##### 8936#       发表于 2021-12-4 13:47
+
+SKB部联动B站好像都删了，发几个网盘，另外nyaa上也有种子可以自己去拖
+
+链接：[[https://pan.baidu.com/s/1EE3nOFNNxYry53r3qJqx1g](https://pan.baidu.com/s/1EE3nOFNNxYry53r3qJqx1g)]
+
+提取码：3hh1
+
+链接: [[https://pan.baidu.com/s/1SwH3DIkNcJkHPC3Wg-x36A](https://pan.baidu.com/s/1SwH3DIkNcJkHPC3Wg-x36A)] 
+
+提取码: 4ktn
+
+省一楼，后知后觉了，百度地图什么时候上了一堆V的语音？居然还有张京华的，不建议去听
+
