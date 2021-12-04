@@ -16025,3 +16025,18 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 旅者泰亚是lor的一张巨神峰卡牌会进化成星灵</blockquote>
 看动画我以为是个老者阿
 
+
+
+*****
+
+####  lost_恩恩  
+##### 2951#       发表于 2021-12-4 08:38
+
+<blockquote>厄神之息 发表于 2021-12-3 17:58
+https://www.bilibili.com/video/BV1nL411M7Hi
+
+这个up说到了童年经历导致对金克斯而言和平不重要这点，于 ...</blockquote>
+【中字|心理治疗师反应——双城之战：金克斯！-哔哩哔哩】https://b23.tv/UTEJzrv
+
+看完感觉玩心理学的都啥人啊，猕猴实验这种方式都想的出来
+
