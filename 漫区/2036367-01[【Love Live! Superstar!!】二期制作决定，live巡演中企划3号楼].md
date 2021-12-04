@@ -15796,3 +15796,21 @@ alp老师画的恋恋还是璞玉呢。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 1404#       发表于 2021-12-4 12:28
+
+ 本帖最后由 lj205 于 2021-12-4 12:29 编辑 
+
+我就遇见过吴宣仪，坐她后面，然而我并没认出她，还是看到接机粉才知道这人……
+
+*****
+
+####  cybernetics31  
+##### 1405#       发表于 2021-12-4 12:36
+
+羡慕苍天君…………好想现场看live 啊，这疫情啥时候到头啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

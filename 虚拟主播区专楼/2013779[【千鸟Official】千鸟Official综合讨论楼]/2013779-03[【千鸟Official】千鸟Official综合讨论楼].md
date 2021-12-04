@@ -7928,3 +7928,26 @@ Co和艾白失联
 艾瑞思日常看视频岁月静好
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不会1月又来一踢四吧
 
+
+
+*****
+
+####  莫洛骑士  
+##### 3904#       发表于 2021-12-4 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53804723&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-12-4 00:11</a>
+现在这个氛围不对劲
+文静前面深夜电台回说考虑1月解约，千舰回表达了1月还是这样的话不排除人员变动的可能 ...</blockquote>
+一踢四梦幻复刻绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不如说剩下四个人看穿了千鸟，只不过琳通过奈子贴奈子得到了文静的ppt基因又想冲一次，Co宝直接选择写论文去了，艾白无法接受不能摆烂的事实精神失常当自己是萨摩耶现在每天和小区里的狗一起玩了，艾瑞思已经失去了思考能力只会嗯看视频
+
+至于为什么文静还要带伤直播，我推测是因为医疗费太高但社区医保报销太低，只好去找陈珺借钱欠下巨额债务，不惜用to签来勾引人打钱
+
+*****
+
+####  夜潇箫  
+##### 3905#       发表于 2021-12-4 12:32
+
+最后的高光了，烟火消逝前的灿烂<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

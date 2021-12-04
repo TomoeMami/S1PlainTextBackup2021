@@ -1536,3 +1536,14 @@ Omicron很可能就是个靠打疫苗都没法防的例子。除非有新的、�
 
 还有一部分原因是,捐赠的疫苗都是成批成批来的,不确定性造成南非很难针对性的制定疫苗接种计划
 
+
+
+*****
+
+####  pushare  
+##### 1628#       发表于 2021-12-4 12:38
+
+南非的阳性率还在升
+
+#COVID19 UPDATE: A total of 65,990 tests were conducted in the last 24hrs, with 16,055 new cases, which represents a 24.3% positivity rate. A further 25 #COVID19 related deaths have been reported, bringing total fatalities to 89,994 to date. 
+
