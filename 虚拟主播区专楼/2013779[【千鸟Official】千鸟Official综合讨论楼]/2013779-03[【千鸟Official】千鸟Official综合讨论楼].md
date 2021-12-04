@@ -8012,3 +8012,26 @@ DK2.0，怀P夜原，含泪一踢四，静鳖真的很会炒
 
 千鸟散了之后，原力新企划再推出一个抗压位，复刻2.0文静，引来一群看热闹的，千鸟老东西出面指导大家不要太入脑。历史的循环成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 3913#       发表于 2021-12-4 14:23
+
+速报，三点半播
+
+*****
+
+####  GAKOTO  
+##### 3914#         楼主| 发表于 2021-12-4 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 3915#       发表于 2021-12-4 14:38
+
+看来周六黄金档真打算让了，希望有机会能和海子姐拉个联动<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
