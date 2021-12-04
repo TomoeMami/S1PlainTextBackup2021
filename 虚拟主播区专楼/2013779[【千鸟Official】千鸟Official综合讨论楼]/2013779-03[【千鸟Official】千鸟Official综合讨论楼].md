@@ -8553,3 +8553,25 @@ co宝老权限狗了，总在别人直播间禁言
 晚上我出去吃饭了。看NGA和鸟吧怎么又有发散文静要走？文静昨天结尾处又暗示或者低气压了？ ...</blockquote>
 看有毕业气氛的二创没有直球否认要毕业吧，加上今天老爱毕业<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 3981#       发表于 2021-12-5 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812928&amp;ptid=2013779" target="_blank">tankai 发表于 2021-12-5 00:34</a>
+
+晚上我出去吃饭了。看NGA和鸟吧怎么又有发散文静要走？文静昨天结尾处又暗示或者低气压了？ ...</blockquote>
+直播里她自己也说迟迟没下播就是因为想找一个开心点的二创给直播收尾，结果偏偏合了自己一首《她说》结尾。经历过11月节奏的哪个听完不郁闷。
+
+*****
+
+####  小憨1  
+##### 3982#       发表于 2021-12-5 01:12
+
+ 本帖最后由 小憨1 于 2021-12-5 01:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812928&amp;ptid=2013779" target="_blank">tankai 发表于 2021-12-5 00:34</a>
+晚上我出去吃饭了。看NGA和鸟吧怎么又有发散文静要走？文静昨天结尾处又暗示或者低气压了？ ...</blockquote>
+对于二创里的毕业氛闻没有反对，打得SC“一月追梦去了”也没反对，整场直播都一种交代后事的感觉。大概是这样
+
