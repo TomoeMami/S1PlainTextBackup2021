@@ -16040,3 +16040,16 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 看完感觉玩心理学的都啥人啊，猕猴实验这种方式都想的出来
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2952#       发表于 2021-12-4 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53802525&amp;ptid=2002246" target="_blank">YESIARE 发表于 2021-12-4 02:25</a>
+两晚看完优秀得不像游戏改</blockquote>
+严格来说感觉也不能算游戏改就是了233
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
