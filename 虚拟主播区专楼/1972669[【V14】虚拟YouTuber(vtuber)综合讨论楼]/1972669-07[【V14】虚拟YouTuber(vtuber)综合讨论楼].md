@@ -89,3 +89,100 @@
 
 下一次进楼应该是阿满或小白停止活动了
 
+
+
+*****
+
+####  lhawp  
+##### 9011#       发表于 2021-12-4 22:40
+
+阿满能活得比老爱还长我是没想到的…
+
+*****
+
+####  tiro_finale  
+##### 9012#       发表于 2021-12-4 22:42
+
+最近倒是有点找回初心，就单纯看喜欢的内容，不去讨论也不去深究...
+
+*****
+
+####  真飞鸟i  
+##### 9013#       发表于 2021-12-4 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga看见个人的发言：我现在的心情就犹如当年没一枪把希特勒蹦死的英军士兵
+
+也不知道他想崩死的希特勒是谁，但我觉得视频势的死终究是咎由自取。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  OldGlory  
+##### 9014#       发表于 2021-12-4 22:44
+
+按照视频势一天一个小视频看完不就没了的逻辑，做抖音快手的主播应该早就饿死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+事实上p丸都活的很舒服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是很好  
+##### 9015#       发表于 2021-12-4 22:46
+
+主要还是“3d”视频势的问题
+
+*****
+
+####  Porsche  
+##### 9016#       发表于 2021-12-4 22:50
+
+游戏 杂谈 唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老爱甚至不是败给这三样
+而是不管你做什么都有人看的观众行为
+
+*****
+
+####  qq845629713  
+##### 9017#       发表于 2021-12-4 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 纵观一切，所有事件的原点，还是因为绊爱始终是个皮套，始终需要有个人扮演，
+
+如果绊爱一开始就是配音演员+动捕演员，那么后续彩虹也不会想出2D纸片人套皮女主播这个路线了，
+
+nico老人和t台女主播不会来当皮套主播，所有的可能性就没了
+
+*****
+
+####  渡鸦骑士  
+##### 9018#       发表于 2021-12-4 22:53
+
+又要车轱辘视频势的话题吗？
+
+来到如今这个时间点……短视频也没救得起来的视频势……只能很遗憾了。
+
+免费又在逼逼他那套箱推理论了。讲个实话吧，两箱都看的人比你想得多太多了。
+
+与其说箱推隔绝了外界，不如说本来就没有流量灌注的频道，又怎么才能吸引人来看呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+反过来说，本身有吸引力的频道，就算没有多少流量也能积累人气，最近大家也都看到了。
+
+这个时代的流量自有它运行的一套标准，就是和很多人想象的那套完全不一样就是了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 9019#       发表于 2021-12-4 22:56
+
+这种车轱辘也算是V综风格的悼念了
+
+*****
+
+####  Kanchiki  
+##### 9020#       发表于 2021-12-4 22:59
+
+因为觉得内容有趣所以看一看捧个场的群体 跟 因为喜欢人所以不管产出什么内容都看的群体
+
+哪个更好割韭菜资本看得明明白白，贩卖故事不如贩卖感情
+
+台本不一定每次都能写得好，但是PUA大师们骗骗异性阿宅还是很容易的
+

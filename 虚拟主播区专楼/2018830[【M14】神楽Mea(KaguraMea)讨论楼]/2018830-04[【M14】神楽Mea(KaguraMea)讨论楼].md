@@ -11675,3 +11675,28 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 5849#       发表于 2021-12-4 22:51
+
+今天有点舒服
+
+*****
+
+####  ashero  
+##### 5850#       发表于 2021-12-4 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻真是个小巨魔 这两首连着调动情绪真有一套
+
+
+
+*****
+
+####  ylssb10438  
+##### 5851#       发表于 2021-12-4 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

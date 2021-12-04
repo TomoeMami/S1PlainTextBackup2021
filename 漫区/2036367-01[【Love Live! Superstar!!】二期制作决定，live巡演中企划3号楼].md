@@ -16509,3 +16509,136 @@ E4A04EE8-E4DD-4A8F-B131-BFC886286019.jpeg
 
 2021-12-4 22:42 上传
 
+
+
+*****
+
+####  优妮可  
+##### 1467#       发表于 2021-12-4 22:46
+
+<img src="https://img.saraba1st.com/forum/202112/04/224650o3pn1n7eww9nt1d3.jpg" referrerpolicy="no-referrer">
+
+<strong>20211204_224522.jpg</strong> (165.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 22:46 上传
+
+*****
+
+####  a92063256  
+##### 1468#       发表于 2021-12-4 22:47
+
+谢谢鲤鱼，我已经好的不能再好了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1469#       发表于 2021-12-4 22:51
+
+其实鲤鱼那个双人纪念日应该是双人版anniversary，但是她这样写就真的很歧义啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1470#       发表于 2021-12-4 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">立德发的是闭眼的，营业也是真的！
+
+
+
+*****
+
+####  仟音一心  
+##### 1471#       发表于 2021-12-4 22:54
+
+韩国人不行了
+
+<img src="https://img.saraba1st.com/forum/202112/04/225357ffgccqwrze6w3w84.png" referrerpolicy="no-referrer">
+
+<strong>BE0E67DD-3897-4744-9B1E-8D8DBBE1D513.png</strong> (19.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/225358v23nggpg24p20e84.png" referrerpolicy="no-referrer">
+
+<strong>7E210376-4233-4916-8A62-ED3BA830EE2E.png</strong> (230.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 22:53 上传
+
+73ECB05B-3239-4A96-9ABE-B22EE8CAD3B7.jpeg
+(98.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/225357vcov94kofdo9d5zb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6843DBD3-0967-417B-A9BB-42364D0932B2.jpeg
+(118.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 22:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/225357nqw25ad2wazlqiwm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1472#       发表于 2021-12-4 22:55
+
+真的是炸了，什么霸道总裁小鸟依人，还两人都发，还让不让人睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 1473#       发表于 2021-12-4 22:57
+
+巡演最后一场只能亲亲（脸蛋）了吧，企划里我记得上限就是亲脸蛋，忘记是水的哪两位了。
+
+其实鲤鱼和打铁的身高，搞个亲额头比较有意思~~鲤鱼单手扶住打铁下巴然后亲额头<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+梦里啥都有<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 1474#       发表于 2021-12-4 22:57
+
+<img src="https://img.saraba1st.com/forum/202112/04/225738e1gwxwreziw0z0g3.jpg" referrerpolicy="no-referrer">
+
+<strong>20211204_225700.jpg</strong> (236.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 22:57 上传
+
+这是什么帅哥表情
+
+*****
+
+####  二月十日  
+##### 1475#       发表于 2021-12-4 22:58
+
+激动得我胆碱能性荨麻疹都发作了，刚消退下去sayu再来一张又发作了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 1476#       发表于 2021-12-4 22:59
+
+第二张鲤鱼的眼神气势不错<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 1477#       发表于 2021-12-4 22:59
+
+洗完澡冷静回来就看到sayu发了图<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
