@@ -8358,3 +8358,32 @@ DK2.0，怀P夜原，含泪一踢四，静鳖真的很会炒
 
 心之壁<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 3958#       发表于 2021-12-4 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">孤勇者有点折磨了
+
+等下 为啥一下就听出来是红毛鸡蛋
+
+*****
+
+####  小憨1  
+##### 3959#       发表于 2021-12-4 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53807454&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-4 17:47</a>
+孤勇者有点折磨了
+
+等下 为啥一下就听出来是红毛鸡蛋</blockquote>
+我不好说
+
+*****
+
+####  袜子  
+##### 3960#       发表于 2021-12-4 17:59
+
+这个静风车有点水平啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

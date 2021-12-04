@@ -16089,3 +16089,27 @@ D53FBCF4-CB15-4A6C-A574-245EE4FC5D0F.jpeg
 
 等切片了
 
+
+
+*****
+
+####  仟音一心  
+##### 1430#       发表于 2021-12-4 17:46
+
+三场都是合唱，水渚鱼，双na，sayupay
+
+*****
+
+####  chenflyyy  
+##### 1431#       发表于 2021-12-4 17:48
+
+在微博看到切片了，sayu这身好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+还有双n和水煮鱼的合唱，接下来liella之歌这个环节该不会是要c25随机抽人来唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1432#       发表于 2021-12-4 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">两位合唱太美了
+
