@@ -512,3 +512,22 @@ facerig比老爱还要早，套皮直播人是迟早的事，不过没有四天�
 
 今回马车有团战真是紧张又刺激惹，希望分组来点好玩的，是说八十人真的好多感觉会有些怪怪的组合
 
+
+
+*****
+
+####  与天争锋_LZ  
+##### 9051#       发表于 2021-12-5 00:45
+
+如果运营不作死，应该是能多续很久的（v圈标准）
+我印象中很早开始老爱的订阅涨势缓慢了，考虑到设备成本坚持的挺久了
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  minamichisei  
+##### 9052#       发表于 2021-12-5 00:47
+
+人之将死，回光返照。一个时代，终于宣告落幕了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
