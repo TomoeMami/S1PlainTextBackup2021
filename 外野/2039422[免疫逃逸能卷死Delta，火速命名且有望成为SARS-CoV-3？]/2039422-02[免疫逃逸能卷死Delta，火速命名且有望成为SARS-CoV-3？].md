@@ -1823,3 +1823,32 @@ https://www.nrk.no/norge/fhi_-19-tilfeller-av-omikron-bekreftet-i-norge-1.157576
 
 还在自我催眠的那些人，是在希望能逃delta不能逃疫苗。这种一厢情愿，疫情以来太多了。
 
+
+
+*****
+
+####  xiaoba329  
+##### 1653#       发表于 2021-12-4 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一个认识的老乡（上一辈）在英国好像因为新冠去世了，听说当年他准备黑在英国前还和周围人说过“英国女王这岁数估计也没几天活了，苦几年就能靠大赦留在英国了”。
+
+*****
+
+####  最好不说  
+##### 1654#       发表于 2021-12-4 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811898&amp;ptid=2039422" target="_blank">xiaoba329 发表于 2021-12-4 23:05</a>
+
+一个认识的老乡（上一辈）在英国好像因为新冠去世了，听说当年他准备黑在英国前还和周围人说过“英 ...</blockquote>
+有种黑色幽默味
+
+*****
+
+####  血狂毘沙门  
+##### 1655#       发表于 2021-12-4 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811898&amp;ptid=2039422" target="_blank">xiaoba329 发表于 2021-12-4 23:05</a>
+
+一个认识的老乡（上一辈）在英国好像因为新冠去世了，听说当年他准备黑在英国前还和周围人说过“英 ...</blockquote>
+伊丽莎白二世： 哈哈 没想到吧！
+

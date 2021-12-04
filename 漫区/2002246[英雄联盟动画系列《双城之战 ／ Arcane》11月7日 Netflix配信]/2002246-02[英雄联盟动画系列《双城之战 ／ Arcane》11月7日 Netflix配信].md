@@ -16228,3 +16228,12 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 哈洛的恒河猴实验哈洛还做过更残酷的实验，不过他的依恋理论对金克丝来说还是挺对症下药的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">谢谢那些小猴子的牺牲 看这个实验看泪目了 做父母真不容易啊
 
+
+
+*****
+
+####  飞升之后  
+##### 2965#       发表于 2021-12-4 23:08
+
+等新赛季吧
+

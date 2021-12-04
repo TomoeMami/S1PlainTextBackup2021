@@ -16642,3 +16642,154 @@ E4A04EE8-E4DD-4A8F-B131-BFC886286019.jpeg
 
 洗完澡冷静回来就看到sayu发了图<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 1478#       发表于 2021-12-4 23:00
+
+<blockquote>cat1230 发表于 2021-12-4 22:57
+巡演最后一场只能亲亲（脸蛋）了吧，企划里我记得上限就是亲脸蛋，忘记是水的哪两位了。
+
+其实鲤鱼和打铁的 ...</blockquote>
+爱喵杏树？
+
+*****
+
+####  a92063256  
+##### 1479#       发表于 2021-12-4 23:01
+
+这个闭眼埋胸加上鲤鱼的池面脸<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">大晚上的一下子就有劲了
+
+*****
+
+####  离心  
+##### 1480#       发表于 2021-12-4 23:02
+
+合鲤是真的!<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 1481#       发表于 2021-12-4 23:06
+
+宫城live有双buff，你俩不整个大的可下不了台哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Norkey1  
+##### 1482#       发表于 2021-12-4 23:06
+
+刚忙完看了一眼推，感觉一天的疲惫都消失了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+按这种循序渐进到千秋乐那场是不是该亲一个
+亲一个<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  努斯万克  
+##### 1483#       发表于 2021-12-4 23:09
+
+鲤鱼她太明白我们想要看什么了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 1484#       发表于 2021-12-4 23:10
+
+要疯了
+
+<img src="https://img.saraba1st.com/forum/202112/04/230959zyw6ely8ae2mcz2c.png" referrerpolicy="no-referrer">
+
+<strong>8882D684-D88F-42A4-AB72-C7A4F5971B51.png</strong> (54 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/230959tdem9dzknndydyv2.png" referrerpolicy="no-referrer">
+
+<strong>9A41C4DB-5D47-4E6A-B4D9-1C3ED2A55D3C.png</strong> (32.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:09 上传
+
+C6A12643-E874-4B5D-BBD1-B3F953C340BD.jpeg
+(245.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/231000f3ip5ac3us3h54gh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CA579000-AF33-445E-BDE3-819459860878.jpeg
+(241.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/231000onvgfnffff625ebs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1485#       发表于 2021-12-4 23:13
+
+鲤鱼今天又涂小星星指甲
+
+*****
+
+####  DarthAka  
+##### 1486#       发表于 2021-12-4 23:13
+
+高大天然帅气犬系/娇小可爱小心机猫系……这种CP实在好凑
+
+*****
+
+####  cat1230  
+##### 1487#       发表于 2021-12-4 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811819&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-4 23:00</a>
+
+爱喵杏树？</blockquote>
+应该是了，4th的时候吧
+
+*****
+
+####  仟音一心  
+##### 1488#       发表于 2021-12-4 23:15
+
+今夜难眠
+
+51EB47EA-2C44-4CAE-9042-59C4C9B8827F.jpeg
+(173.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/231519rmak4zqsrsr21sam.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+563775CE-9A97-4A4F-BDD8-282317E979B8.jpeg
+(343.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202112/04/231519hkvm2k6mkahkc60z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 1489#       发表于 2021-12-4 23:18
+
+现在网上传的live切片应该是未修音的吧，不知道是不是半开麦垫音，否则鲤鱼真的稳如狗，特别是今天的特典曲，简直人型CD机，比土生土长的日本人都稳，拉拉系列唱功排名可以算是A级以上了。
+

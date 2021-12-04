@@ -186,3 +186,83 @@ nico老人和t台女主播不会来当皮套主播，所有的可能性就没了
 
 台本不一定每次都能写得好，但是PUA大师们骗骗异性阿宅还是很容易的
 
+
+
+*****
+
+####  暴走的包子  
+##### 9021#       发表于 2021-12-4 23:01
+
+梦回v1
+
+—— 來自 samsung SM-F9260, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  tohellwithit  
+##### 9022#       发表于 2021-12-4 23:03
+
+原来17年那些各种体力测试，蹭ppap烂梗的短视频，和路人通话什么的就是你圈味最纯的优质内容啊
+
+坦率承认做了十年的内容主就是比不人气声优更会做娱乐的难度对大家还是太高了呢
+
+*****
+
+####  虚无缥缈的光阴  
+##### 9023#       发表于 2021-12-4 23:05
+
+唉，旧时代的余烬<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katern  
+##### 9024#       发表于 2021-12-4 23:09
+
+现在看到经典v综车轱辘话不知道是该哭还是该笑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+想到等V圈爆炸那天可能楼友还是在这里车轱辘，又突然觉得很安心<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  percy1234  
+##### 9025#       发表于 2021-12-4 23:11
+
+年轻人的第一次正在进行时的亚文化事件，个人和小团队内容创作者创作者数不清的无聊创意和让人偷着乐的鬼点子，抱团取暖没有边界至少表面上和气融融的虚拟乌托邦，那个时代正式落幕了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 9026#       发表于 2021-12-4 23:16
+
+ 本帖最后由 walfeds 于 2021-12-4 23:17 编辑 
+
+[https://www.bilibili.com/video/BV1sW411x7rA](https://www.bilibili.com/video/BV1sW411x7rA)
+
+<img src="https://img.saraba1st.com/forum/202112/04/231116jlgxc88xcvgjwjh8.jpg" referrerpolicy="no-referrer">
+
+<strong>下载.jpg</strong> (13.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-4 23:11 上传
+
+*****
+
+####  hulaoda007  
+##### 9027#       发表于 2021-12-4 23:17
+
+小白应该还能活很久。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实...但算了。
+
+*****
+
+####  酒瓶止迁  
+##### 9028#       发表于 2021-12-4 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53812084&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-12-4 23:17</a>
+
+小白应该还能活很久。
+
+其实...但算了。</blockquote>
+小白转型的早，可惜箱不够专业……确实已经无所谓了。
+
