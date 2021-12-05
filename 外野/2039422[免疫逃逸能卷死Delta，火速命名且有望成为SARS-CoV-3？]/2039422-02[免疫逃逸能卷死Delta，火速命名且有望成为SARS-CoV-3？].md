@@ -2013,3 +2013,55 @@ https://www.zhihu.com/question/365118752/answer/965761130
 法国作为疫苗接种推广做的还行的国家，日增新病例破五万了。</blockquote>
 leaky vaccine是这样的，只打疫苗不清零就像仗着有一件90%闪避的神甲就往百万怪群里冲，怪的攻击频率还是以指数级增长的，别说90%，99%闪避也得跪
 
+
+
+*****
+
+####  creymorgan  
+##### 1670#       发表于 2021-12-5 12:02
+
+<blockquote>最好不说 发表于 2021-12-5 11:42
+据《The Washington Post》援引美国Nference公司专家的初步研究报道，奥密克戎毒株可能拥有引发感冒的病毒 ...</blockquote>
+冠状病毒、鼻病毒、副流感病毒是感冒三大病原体。新冠跟引发感冒的病毒相似理所当然。
+
+*****
+
+####  Alexmacau8  
+##### 1671#       发表于 2021-12-5 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815673&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-5 12:02</a>
+冠状病毒、鼻病毒、副流感病毒是感冒三大病原体。新冠跟引发感冒的病毒相似理所当然。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是新冠直接把流感病毒和感冒病毒卷死了
+
+*****
+
+####  Kanoya  
+##### 1672#       发表于 2021-12-5 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814635&amp;ptid=2039422" target="_blank">Kirixima 发表于 2021-12-5 10:07</a>
+楼里面好多人都是，啥也不懂，就瞎推测。
+传染病用药物控制，不说成本，效果并没有切断传播途径（消灭中间 ...</blockquote>
+你看屎党魁看了个寂寞……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+他说的实验小鼠是复现用的，Omicron有这段，是演化出来的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vneet  
+##### 1673#       发表于 2021-12-5 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815551&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-5 11:48</a>
+
+leaky vaccine是这样的，只打疫苗不清零就像仗着有一件90%闪避的神甲就往百万怪群里冲，怪的攻击频率还是 ...</blockquote>
+哈哈，只要攻击次数足够多，99%的闪避也能破防得一次，毕竟脸再黑刷得足够多也能刷出ssr的。
+
+*****
+
+####  cube  
+##### 1674#       发表于 2021-12-5 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815686&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-5 12:04</a>
+是新冠直接把流感病毒和感冒病毒卷死了</blockquote>
+我们现在的隔离防疫措施对新冠还弱点，但是能非常有效防治其他呼吸道传染病。
+武汉这两年都没出现大范围的流感疫情了。
+

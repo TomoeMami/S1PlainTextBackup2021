@@ -822,3 +822,57 @@ vr/ar的残阳还会再升起吗<img src="https://static.saraba1st.com/image/smi
 
 我们曾经有过许多，但也只是曾经了
 
+
+
+*****
+
+####  443421870  
+##### 9074#       发表于 2021-12-5 12:10
+
+我记得以前有张绊爱杀死初音的fanart吧，结果绊爱被初音熬死了
+
+<img src="https://img.saraba1st.com/forum/202112/05/121023slfvjfz73tlnt389.jpg" referrerpolicy="no-referrer">
+
+<strong>1638626303690.jpg</strong> (176.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 12:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/05/121026uot4236eexp3fnxz.jpg" referrerpolicy="no-referrer">
+
+<strong>1638677166538.jpg</strong> (191.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 12:10 上传
+
+*****
+
+####  hulaoda007  
+##### 9075#       发表于 2021-12-5 12:11
+
+世纪初那十年ip还能再扛十年。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  biye  
+##### 9076#       发表于 2021-12-5 12:15
+
+yagoo最早的思路没准才是对的
+
+套皮技术就是让外形条件不那么好的人 在穷乡僻壤也能用简单设备做直播活动 细水长流
+
+upd8跪了和cover怎么就成为了经济人公司就是另一个故事了
+
+*****
+
+####  与天争锋_LZ  
+##### 9077#       发表于 2021-12-5 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815731&amp;ptid=1972669" target="_blank">443421870 发表于 2021-12-5 12:10</a>
+我记得以前有张绊爱杀死初音的fanart吧，结果绊爱被初音熬死了</blockquote>
+这个？<img src="https://p.sda1.dev/3/436ac6a9be24d9e5bd45c59bfb3a8a68/B484022900332992BF4E3793F898A0B3.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

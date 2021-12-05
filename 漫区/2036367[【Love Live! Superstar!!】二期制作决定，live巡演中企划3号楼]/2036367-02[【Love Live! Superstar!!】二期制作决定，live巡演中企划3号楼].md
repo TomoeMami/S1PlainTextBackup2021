@@ -102,3 +102,33 @@
 
 那个舞台方便唱未来预报么
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1512#       发表于 2021-12-5 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">未来预报好歌啊，就是其他四人part有点少，换句话说小百合要是状态不好那就难搞了
+
+*****
+
+####  chenflyyy  
+##### 1513#       发表于 2021-12-5 12:11
+
+这首歌基本就是sayu的solo秀吧，上这种宣传的节目不应该选op一单这种更团体性的歌吗，搞不懂这选曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+只希望sayu能在这么大的场合下绷住吧
+
+*****
+
+####  秋月艾莉  
+##### 1514#       发表于 2021-12-5 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815738&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-5 12:11</a>
+
+这首歌基本就是sayu的solo秀吧，上这种宣传的节目不应该选op一单这种更团体性的歌吗，搞不懂这选曲
+
+ ...</blockquote>
+未来预报抓耳啊，小百合秀了效果会很不错的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘛我私心是爷的交响曲
+
