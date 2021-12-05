@@ -43,3 +43,15 @@ AME宇宙!
 
 AME I KNEEL
 
+
+
+*****
+
+####  wuzhengkai  
+##### 1506#       发表于 2021-12-5 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53803368&amp;ptid=1989758" target="_blank">shimmy1996 发表于 2021-12-4 09:26</a>
+
+上次jackbox collab的T恤到了，comedy和yagoo's favorite那两件好评如潮（感觉比今天omocat的要好看 ...</blockquote>
+我觉得那个space frontier的最有意境
+

@@ -8734,3 +8734,25 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 还就内个逮到
 
+
+
+*****
+
+####  人民de救星  
+##### 3999#       发表于 2021-12-5 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814771&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-12-5 10:25</a>
+昨那个高素质女团切片已经证实了，看上去最呃呃的静静子其实还是攻击性最弱的一个 ...</blockquote>
+从前：Co宝一定是小太妹
+现在：艾白一定是小太妹
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  四叶的花  
+##### 4000#       发表于 2021-12-5 17:20
+
+<img src="https://p.sda1.dev/3/1d35fad2d708c7aa721c5e148bef54eb/IMG_CMP_93398967.jpeg" referrerpolicy="no-referrer">
+艾白已经融的p爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
