@@ -8642,3 +8642,38 @@ https://www.bilibili.com/video/BV1XL411M7a2
 
 最近艾白也缝得不行，我原以为千鸟最抽象的会是文静，但是感觉艾白已经超越了
 
+
+
+*****
+
+####  伞沢直美  
+##### 3990#       发表于 2021-12-5 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814207&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-12-5 08:43</a>
+
+https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
+我超！妹妹！
+
+瞳子至少在互动上还是有进步的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  伞沢直美  
+##### 3991#       发表于 2021-12-5 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814320&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-5 09:10</a>
+
+最近艾白也缝得不行，我原以为千鸟最抽象的会是文静，但是感觉艾白已经超越了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">昨那个高素质女团切片已经证实了，看上去最呃呃的静静子其实还是攻击性最弱的一个
+
+*****
+
+####  夜潇箫  
+##### 3992#       发表于 2021-12-5 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814771&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-12-5 10:25</a>
+昨那个高素质女团切片已经证实了，看上去最呃呃的静静子其实还是攻击性最弱的一个 ...</blockquote>
+高素质国v推荐那个切片?
+

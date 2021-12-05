@@ -582,3 +582,29 @@ _____________________________
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">去做了个饭回来发现被吉田踢了,现在打了两天81级本还没打完,进展缓慢,titan现在1000人排队而且没法切服务器
 
+
+
+*****
+
+####  onemoment  
+##### 68#       发表于 2021-12-5 10:39
+
+ 本帖最后由 onemoment 于 2021-12-5 10:40 编辑 
+
+和一群4.0的npc到处乱炸，草原民族武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/05/103649h3bwhd0ddxhb3ywo.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (437.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 10:36 上传
+
+*****
+
+####  流光不慕  
+##### 69#       发表于 2021-12-5 10:41
+
+afk三年乐。。。考虑下国际服
+

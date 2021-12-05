@@ -1940,3 +1940,14 @@ https://www.zhihu.com/question/365118752/answer/965761130
 
 —— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  battleship64  
+##### 1663#       发表于 2021-12-5 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53805583&amp;ptid=2039422" target="_blank">bearsnowk 发表于 2021-12-4 13:48</a>
+要真是老鼠能传播的话，我国危险啊，进口货物难免带进来老鼠吧</blockquote>
+集装箱氮气灭鼠
+
