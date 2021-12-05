@@ -802,3 +802,23 @@ V这个概念本身算娱乐圈的一个小分片没错，但是这也不意味�
 
 真是版本回滚 没什么好说的 再见吧
 
+
+
+*****
+
+####  喜闻乐见  
+##### 9072#       发表于 2021-12-5 11:51
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1gx2tdm0rrxj20j00cw44g.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 9073#       发表于 2021-12-5 11:53
+
+产出，运营，变现，老三样不提了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说销售v的概念比探索v的可能性先进的多
+
+vr/ar的残阳还会再升起吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">元宇宙？只是在兜售另一个概念罢了。时候未至
+
+我们曾经有过许多，但也只是曾经了
+

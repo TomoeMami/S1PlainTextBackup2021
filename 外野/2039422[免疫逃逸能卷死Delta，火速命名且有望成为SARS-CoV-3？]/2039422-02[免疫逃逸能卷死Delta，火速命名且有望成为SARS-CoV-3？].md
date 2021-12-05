@@ -1984,3 +1984,32 @@ https://www.zhihu.com/question/365118752/answer/965761130
 
 —— 来自 vivo V2031A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  最好不说  
+##### 1667#       发表于 2021-12-5 11:42
+
+ 本帖最后由 最好不说 于 2021-12-5 11:44 编辑 
+
+据《<strong>The Washington Post</strong>》援引美国Nference公司专家的初步研究报道，奥密克戎毒株可能拥有引发感冒的病毒遗传物质，与此前新冠病毒SARS-CoV-2变种相比，这可能使其更具传染性。
+
+这下真流感化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cube  
+##### 1668#       发表于 2021-12-5 11:44
+
+法国作为疫苗接种推广做的还行的国家，日增新病例破五万了。
+
+*****
+
+####  最好不说  
+##### 1669#       发表于 2021-12-5 11:48
+
+<blockquote>cube 发表于 2021-12-5 11:44
+法国作为疫苗接种推广做的还行的国家，日增新病例破五万了。</blockquote>
+leaky vaccine是这样的，只打疫苗不清零就像仗着有一件90%闪避的神甲就往百万怪群里冲，怪的攻击频率还是以指数级增长的，别说90%，99%闪避也得跪
+
