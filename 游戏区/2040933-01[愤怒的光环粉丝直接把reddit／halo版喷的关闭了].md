@@ -813,3 +813,17 @@ xss跑光追还要保帧数不容易吧
 
 就好像reach护甲锁对着磕头不应该喷了似的
 
+
+
+*****
+
+####  泰坦失足  
+##### 75#         楼主| 发表于 2021-12-6 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821086&amp;ptid=2040933" target="_blank">Stellar_Frost 发表于 2021-12-5 21:43</a>
+
+经典星盟武器削得太过头、丝毫没改善且很可能变本加厉的手柄辅瞄问题、似乎对外挂没什么办法
+
+也就今年卧 ...</blockquote>
+都没了瘫痪功能，显得能量武器太可笑了。原来实体/能量两个派系活脱脱多了一整个电击派
+

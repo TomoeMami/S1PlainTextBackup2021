@@ -659,3 +659,15 @@ afk三年乐。。。考虑下国际服
 
 另外，变态毒唯这种东西真是太可怕了，能超越希望和绝望来到你身边，还好最后也结束了，也算是变相帮主角找回了初心吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jxzeroga0  
+##### 75#       发表于 2021-12-6 02:30
+
+ 本帖最后由 jxzeroga0 于 2021-12-6 02:46 编辑 
+
+打完了，感觉像玩了一个jrpg王道式剧情的outer wilds
+Ow有多牛逼，6.0作为jrpg综合素质就有多牛逼，确实是超越了5.0
+
