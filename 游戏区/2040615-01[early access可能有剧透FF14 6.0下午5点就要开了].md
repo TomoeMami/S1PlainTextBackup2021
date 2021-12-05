@@ -635,3 +635,16 @@ afk三年乐。。。考虑下国际服
 
 上了月球后感觉好多了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kangkangsama  
+##### 73#       发表于 2021-12-5 22:38
+
+海德林告诉你：Answer可tm是老娘的BGM
+
+你以为的海德林：嘻嘻嘻，计划通
+
+实际的海德林：不要BB，就是干！
+

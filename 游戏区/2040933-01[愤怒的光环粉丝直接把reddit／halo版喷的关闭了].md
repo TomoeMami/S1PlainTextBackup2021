@@ -731,3 +731,37 @@ xss跑光追还要保帧数不容易吧
 
 我根本不搭理那些特定武器击杀的任务（因为星盟卡宾现在真的烂），反正最想要的致远星甲在通行证里都有
 
+
+
+*****
+
+####  aruruu  
+##### 67#       发表于 2021-12-5 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53820765&amp;ptid=2040933" target="_blank">Stellar_Frost 发表于 2021-12-5 21:08</a>
+这不是谁有正当性的问题，社区经理不应该做这种事情。他这种发言放国内简直不堪设想，根本不是关一个版就能 ...</blockquote>
+吹343剧情的真没怎么见过，反而很多4和5的meme，但是两次flight之后，r/halo真的快把343夸上天了，反向跳票之后版块里的狂热劲我只在rng夺冠的时候见过。halo is back之类各种煽情到肉麻的回忆展望帖子层出不穷，就这还能被人说成toxic，是见不得halo好的遗老呢
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Stellar_Frost  
+##### 68#       发表于 2021-12-5 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821536&amp;ptid=2040933" target="_blank">aruruu 发表于 2021-12-5 22:27</a>
+
+吹343剧情的真没怎么见过，反而很多4和5的meme，但是两次flight之后，r/halo真的快把343夸上天了，反向跳 ...</blockquote>
+以前是有不少meme，今年flight之后连剧情都吹起来了
+
+现在贴吧喷343都比红迪狠
+
+
+
+*****
+
+####  Luminous脑壳痛  
+##### 69#       发表于 2021-12-5 22:49
+
+该喷，羡慕社区强度，玩家不争取自己权益难道替公司说话？
+

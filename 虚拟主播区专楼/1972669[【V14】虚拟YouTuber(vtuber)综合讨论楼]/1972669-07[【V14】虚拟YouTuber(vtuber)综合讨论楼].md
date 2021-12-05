@@ -1300,3 +1300,24 @@ hikky是已经乘着东风跳出管人路线了，接单子不比涨粉香多了
 【‎VTuber界隈】放送事故 にじさんじのライバー郡道美玲さん、配信中にまさかの性的遊び開始→　アー ...</blockquote>
 郡郡直播的时候把尊给O了，很羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 9110#       发表于 2021-12-5 22:25
+
+VR党是真的什么奇人异士牛鬼蛇神都有，就是他们做的人人皆V无限互联这种梦在当年，应该说就在现在也挺不切实际的，狐叔当年就没少念这种经，后来发现其实没啥人真的感兴趣，也普及不了就撤了。最近是借着元宇宙又有人念起来了，刚逛外野还发现一个讨论vrchat和元宇宙的帖呢
+[https://bbs.saraba1st.com/2b/thread-2032511-1-1.html](https://bbs.saraba1st.com/2b/thread-2032511-1-1.html)
+
+2楼那个V-FES ~FUISION~就是上周在VR里搞的live，一个朋友录的他的主视角，大葵太子青山黛玛还有个谁来着，有兴趣的可以看看，挺短的。VR党最后赢了的世界线里，大概就是如他们希望人手一套VR设备，在VR世界里天天搞这种活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+省一楼，岩本町线下live都开了20次了，这种歌势偶像势出歌有人听live有人看就不用太担心的
+
+*****
+
+####  本间日阳  
+##### 9111#       发表于 2021-12-5 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我相信VR总有一天会普及的，虽然我现在买不起。
+

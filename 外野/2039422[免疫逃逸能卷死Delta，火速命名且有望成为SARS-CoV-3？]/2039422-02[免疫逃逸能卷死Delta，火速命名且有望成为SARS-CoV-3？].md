@@ -2439,3 +2439,199 @@ https://www.vg.no/nyheter/innenriks/i/v586gV/over-120-coronasmittet-etter-julebo
 
 月份不至于，季度
 
+
+
+*****
+
+####  最好不说  
+##### 1702#       发表于 2021-12-5 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821279&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-5 22:03</a>
+
+挪威圣诞聚餐，超120人（全个餐厅也只有120人，所以是100%）感染。全部都打了两针，不知道有没有打了三针的 ...</blockquote>
+罹患率爆炸，欧美也没几个禁大型集会的，假期的家庭聚会也不会少，只能提前祝他们圣诞快乐了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lord_Voldemort  
+##### 1703#       发表于 2021-12-5 22:22
+
+欧洲已经彻底炸了。这波算德（尔塔）奥（密克戎）合并，席卷欧洲<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  suhanblood  
+##### 1704#       发表于 2021-12-5 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821279&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-5 22:03</a>
+
+挪威圣诞聚餐，超120人（全个餐厅也只有120人，所以是100%）感染。全部都打了两针，不知道有没有打了三针的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也太炸裂了，他们是边吃饭边随机舌吻吗
+
+*****
+
+####  L.L  
+##### 1705#       发表于 2021-12-5 22:29
+
+ 本帖最后由 L.L 于 2021-12-5 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821279&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-5 22:03</a>
+挪威圣诞聚餐，超120人（全个餐厅也只有120人，所以是100%）感染。全部都打了两针，不知道有没有打了三针的 ...</blockquote>
+看了下，聚餐传染70人之后再传染了店里其他50人。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">所有人都打了俩针疫苗的情况下基本上杀穿了，感染上究极体德尔塔不过如此，现在就差医疗挤兑和在家等死再放送了。
+
+*****
+
+####  yuandi0120  
+##### 1706#       发表于 2021-12-5 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821279&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-5 22:03</a>
+
+挪威圣诞聚餐，超120人（全个餐厅也只有120人，所以是100%）感染。全部都打了两针，不知道有没有打了三针的 ...</blockquote>
+这也太扯淡了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riczxc  
+##### 1707#         楼主| 发表于 2021-12-5 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821574&amp;ptid=2039422" target="_blank">L.L 发表于 2021-12-5 22:29</a>
+
+看了下，120人聚餐传染70人之后第二轮再传染了50人。所有人都打了俩针疫苗的情况下基本上杀穿了， ...</blockquote>
+应该是70个先检出了，后面50个才刚检出吧。
+
+*****
+
+####  真田源次郎信繁  
+##### 1708#       发表于 2021-12-5 22:34
+
+牛逼，真的觉得这辈子疫情不会好了
+
+*****
+
+####  beta10  
+##### 1709#       发表于 2021-12-5 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821279&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-5 22:03</a>
+
+挪威圣诞聚餐，超120人（全个餐厅也只有120人，所以是100%）感染。全部都打了两针，不知道有没有打了三针的 ...</blockquote>
+卧槽，比想象中还牛逼
+
+*****
+
+####  最好不说  
+##### 1710#       发表于 2021-12-5 22:39
+
+转个疑似在挪威的知乎用户的回答 <blockquote>一点都不奇怪。100以上都正常。圣诞派对并不是只是聚餐，一般公司会预定一个酒店，包括两到三天的行程，比如会议，培训，自由活动，圣诞派对等一系列的活动。会议和培训就不用说了，会议室，大家坐一起，不戴口罩，参考人数，不一定能保持适当的室内距离。自由活动时间，比如和同事一起桑拿，Spa，游泳，小酒吧喝酒聊天，酒店内外闲逛等之类的。然后圣诞派对，北欧应该就是自助餐，取餐及用餐的时候还要和同事近距离交流，小范围内不能有留白，哪怕是不认识的同事，嘻嘻哈哈觥筹交错，每分钟一次露出8颗牙哈哈哈哈哈哈的频率，间隔几次圣诞歌曲大合唱小合唱。
+
+作者：匿名用户
+
+链接：[https://www.zhihu.com/question/503475826/answer/2256772329](https://www.zhihu.com/question/503475826/answer/2256772329)</blockquote>
+这样的话还能理解，要只是共处一室就百分百感染也太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  L.L  
+##### 1711#       发表于 2021-12-5 22:40
+
+ 本帖最后由 L.L 于 2021-12-5 22:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821620&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-5 22:34</a>
+应该是70个先检出了，后面50个才刚检出吧。</blockquote>
+70+是圣诞聚会的人，其他人是店里的其他客人。不过基本上还是共处一室直接gg了。主要这都是打过2针的都被法穿掉了，这种数据横行欧美就是时间问题。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| riczxc| + 2|谢谢纠错|
+
+查看全部评分
+
+*****
+
+####  烦死了  
+##### 1712#       发表于 2021-12-5 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821533&amp;ptid=2039422" target="_blank">suhanblood 发表于 2021-12-5 22:26</a>
+这也太炸裂了，他们是边吃饭边随机舌吻吗</blockquote>
+你还真别说 不无可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最好不说  
+##### 1713#       发表于 2021-12-5 22:42
+
+英国卫生安全局12月5日表示，今日英国各地新确诊86例新冠奥密克戎变异株感染病例。至此，英国累计感染奥密克戎变异株的确诊患者达246例。
+
+带英不仅在这波delta里孤岛压全欧，面对omicron也是遥遥领先，萨斯噶带英<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚尔迪8424  
+##### 1714#       发表于 2021-12-5 22:44
+
+别到最后欧美克隆搞得疫苗连减重症都做不到啊。。。
+
+*****
+
+####  飞侠小黑  
+##### 1715#       发表于 2021-12-5 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53818358&amp;ptid=2039422" target="_blank">windrarara 发表于 2021-12-5 17:16</a>
+看了一堆外媒报道奥密克戎症状轻微不死人...</blockquote>
+delta也是9成以上是轻症啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  天使日又日  
+##### 1716#       发表于 2021-12-5 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这两天看英超，还是满场观众呢，看上去都不戴口罩，偶尔中场直播镜头拍到有戴口罩的观众也是亚洲脸孔的多，人家大英就没怕过新冠大爷
+
+*****
+
+####  亚尔迪8424  
+##### 1717#       发表于 2021-12-5 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821737&amp;ptid=2039422" target="_blank">飞侠小黑 发表于 2021-12-5 22:44</a>
+
+delta也是9成以上是轻症啊
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+德尔塔从轻症到重症的周期非常短
+
+*****
+
+####  飞侠小黑  
+##### 1718#       发表于 2021-12-5 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821761&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2021-12-5 22:48</a>
+德尔塔从轻症到重症的周期非常短</blockquote>
+不管长短，重症转化率是很低的，大部分轻症很快自愈了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  烦死了  
+##### 1719#       发表于 2021-12-5 23:01
+
+<strong>南非研究表明，欧米克隆变体引起的重复感染的可能性比德尔塔病毒高三倍</strong>
+
+南非的科学家们说，根据周四发表的一项初步研究，omicron引起再感染的可能性至少是以前冠状病毒变种（如beta和delta）的三倍。
+
+对南非约280万份冠状病毒阳性样本的统计分析，其中35670份被怀疑是再感染，研究人员得出结论，omicron变异有 "相当大的能力来逃避先前感染的免疫"。
+
+科学家们说，再感染为新变异体如何传播提供了部分解释。研究人员发现，被再次感染的风险升高与南非出现的Omicron变异体在时间上是一致的。
+[https://www.washingtonpost.com/w ... -delta-reinfection/](https://www.washingtonpost.com/world/2021/12/03/omicron-covid-variant-delta-reinfection/)
+
+三哥的好日子还在后头<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

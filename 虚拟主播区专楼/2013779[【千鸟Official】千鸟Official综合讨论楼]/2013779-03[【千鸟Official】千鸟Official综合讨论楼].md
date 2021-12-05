@@ -8849,3 +8849,70 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 文静这边独轮车是不是少了几辆
 
+
+
+*****
+
+####  ml1642879  
+##### 4012#       发表于 2021-12-5 22:30
+
+我算是明白了为什么游戏回狗都不看了
+
+*****
+
+####  rgauss  
+##### 4013#       发表于 2021-12-5 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821584&amp;ptid=2013779" target="_blank">ml1642879 发表于 2021-12-5 22:30</a>
+
+我算是明白了为什么游戏回狗都不看了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天节目效果算好的了
+
+*****
+
+####  小憨1  
+##### 4014#       发表于 2021-12-5 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821584&amp;ptid=2013779" target="_blank">ml1642879 发表于 2021-12-5 22:30</a>
+我算是明白了为什么游戏回狗都不看了</blockquote>
+今天是游戏回里很好的一次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4015#       发表于 2021-12-5 22:32
+
+惩罚环节，烂
+
+*****
+
+####  灰色的狐狸  
+##### 4016#       发表于 2021-12-5 22:33
+
+今天算不错了
+
+*****
+
+####  伞沢直美  
+##### 4017#       发表于 2021-12-5 22:36
+
+她真的，我哭死，给表妹引流是吧
+
+
+
+*****
+
+####  伞沢直美  
+##### 4018#       发表于 2021-12-5 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">蝈钕真下头
+
+*****
+
+####  人民de救星  
+##### 4019#       发表于 2021-12-5 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">今天也是🍵味满满的文静呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
