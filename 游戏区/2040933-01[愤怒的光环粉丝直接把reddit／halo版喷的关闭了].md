@@ -695,3 +695,39 @@ xss跑光追还要保帧数不容易吧
 无非是对氪金设计和内容量不满意，直接说不好玩的很少见。</blockquote>
 实际上也没那么好玩，太抱团抹杀一部分优点
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 64#       发表于 2021-12-5 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53820507&amp;ptid=2040933" target="_blank">Shu-Stella 发表于 2021-12-5 20:43</a>
+因为这游戏可以说是哪都不好就是好玩了</blockquote>
+经典星盟武器削得太过头、丝毫没改善且很可能变本加厉的手柄辅瞄问题、似乎对外挂没什么办法
+也就今年卧龙凤雏衬托得好
+
+*****
+
+####  Shu-Stella  
+##### 65#       发表于 2021-12-5 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821086&amp;ptid=2040933" target="_blank">Stellar_Frost 发表于 2021-12-5 22:43</a>
+
+经典星盟武器削得太过头、丝毫没改善且很可能变本加厉的手柄辅瞄问题、似乎对外挂没什么办法
+
+也就今年卧 ...</blockquote>
+我觉得核心玩法并没有什么问题，武器平衡之类的无非也就是不断地改改改的事情了，毕竟现在的FPS游戏几乎没见过能把武器平衡整的舒服的，我对这个已经麻木了。除了有的时候让我用卡宾枪或者突击队步枪击杀的任务真的很烦人。
+
+*****
+
+####  Stellar_Frost  
+##### 66#       发表于 2021-12-5 21:59
+
+ 本帖最后由 Stellar_Frost 于 2021-12-5 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821175&amp;ptid=2040933" target="_blank">Shu-Stella 发表于 2021-12-5 21:53</a>
+我觉得核心玩法并没有什么问题，武器平衡之类的无非也就是不断地改改改的事情了，毕竟现在的FPS游戏几乎 ...</blockquote>
+光环的核心玩法都二十年了...肯定不会有大问题的
+
+我根本不搭理那些特定武器击杀的任务（因为星盟卡宾现在真的烂），反正最想要的致远星甲在通行证里都有
+
