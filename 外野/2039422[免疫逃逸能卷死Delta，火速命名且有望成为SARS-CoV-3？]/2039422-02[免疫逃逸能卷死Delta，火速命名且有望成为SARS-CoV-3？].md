@@ -2587,3 +2587,51 @@ delta也是9成以上是轻症啊<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  天使日又日  
+##### 1716#       发表于 2021-12-5 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这两天看英超，还是满场观众呢，看上去都不戴口罩，偶尔中场直播镜头拍到有戴口罩的观众也是亚洲脸孔的多，人家大英就没怕过新冠大爷
+
+*****
+
+####  亚尔迪8424  
+##### 1717#       发表于 2021-12-5 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821737&amp;ptid=2039422" target="_blank">飞侠小黑 发表于 2021-12-5 22:44</a>
+
+delta也是9成以上是轻症啊
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+德尔塔从轻症到重症的周期非常短
+
+*****
+
+####  飞侠小黑  
+##### 1718#       发表于 2021-12-5 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821761&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2021-12-5 22:48</a>
+德尔塔从轻症到重症的周期非常短</blockquote>
+不管长短，重症转化率是很低的，大部分轻症很快自愈了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  烦死了  
+##### 1719#       发表于 2021-12-5 23:01
+
+<strong>南非研究表明，欧米克隆变体引起的重复感染的可能性比德尔塔病毒高三倍</strong>
+
+南非的科学家们说，根据周四发表的一项初步研究，omicron引起再感染的可能性至少是以前冠状病毒变种（如beta和delta）的三倍。
+
+对南非约280万份冠状病毒阳性样本的统计分析，其中35670份被怀疑是再感染，研究人员得出结论，omicron变异有 "相当大的能力来逃避先前感染的免疫"。
+
+科学家们说，再感染为新变异体如何传播提供了部分解释。研究人员发现，被再次感染的风险升高与南非出现的Omicron变异体在时间上是一致的。
+[https://www.washingtonpost.com/w ... -delta-reinfection/](https://www.washingtonpost.com/world/2021/12/03/omicron-covid-variant-delta-reinfection/)
+
+三哥的好日子还在后头<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
