@@ -1478,3 +1478,16 @@ moderna 第二针&gt;&gt;&gt; moderna 第一针&gt;flu shot&gt; 辉瑞booster
 我第一针moderna之后抱着试一试的心态试出了磁力，然后后来知道打得可能是那批有不锈钢碎屑的。第二针我都 ...</blockquote>
 磁力？
 
+
+
+*****
+
+####  a479281660  
+##### 146#       发表于 2021-12-5 23:01
+
+第三针刚打完，也没有挑，还是北京生物，胳膊酸胀疼，其他反应没有
+
+一堆带着小孩子的在哪里等辉瑞占位置好烦人
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

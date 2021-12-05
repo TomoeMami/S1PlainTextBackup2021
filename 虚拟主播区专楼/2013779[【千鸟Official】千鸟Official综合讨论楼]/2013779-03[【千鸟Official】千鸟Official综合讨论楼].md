@@ -8916,3 +8916,55 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  rgauss  
+##### 4020#       发表于 2021-12-5 23:07
+
+ 本帖最后由 rgauss 于 2021-12-5 23:09 编辑 
+
+滑了
+
+为什么不是铁观音 梁木了
+
+
+
+*****
+
+####  伞沢直美  
+##### 4021#       发表于 2021-12-5 23:11
+
+什么突发恶疾
+
+四叶草？四叶茶！我超，四叶？……肄业！……静静不要走<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 4022#       发表于 2021-12-5 23:11
+
+我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">我真想给她一拳👊😓
+
+*****
+
+####  T型钉宫病毒  
+##### 4023#       发表于 2021-12-5 23:12
+
+没想到有一天我也能理解吴涛哥<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4024#       发表于 2021-12-5 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这下狂小静了
+
+*****
+
+####  灰色的狐狸  
+##### 4025#       发表于 2021-12-5 23:19
+
+从看的第一天就是吴涛哥<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
