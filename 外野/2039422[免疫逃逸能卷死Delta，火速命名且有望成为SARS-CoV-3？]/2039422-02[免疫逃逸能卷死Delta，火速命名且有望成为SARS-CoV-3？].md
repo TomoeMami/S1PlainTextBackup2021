@@ -2326,3 +2326,48 @@ D跟O会在一个身体里同时感染吗？
 
 看了一堆外媒报道奥密克戎症状轻微不死人...
 
+
+
+*****
+
+####  砥草  
+##### 1692#       发表于 2021-12-5 17:29
+
+<blockquote>windrarara 发表于 2021-12-5 17:16
+看了一堆外媒报道奥密克戎症状轻微不死人...</blockquote>
+过半个月再看
+
+第一，新冠的杀伤力有很大一部分是感染激增打爆医疗资源以后，很多病人得不到救治。
+
+第二，每次有新版本老大出来他们都这么说，然后重复仰卧起坐-_-
+
+*****
+
+####  oznark  
+##### 1693#       发表于 2021-12-5 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53818348&amp;ptid=2039422" target="_blank">飞升之后 发表于 2021-12-5 17:15</a>
+这个新变体的致死率怎么样？如果致死率不行的话，那是不是真的一步步往流感话变种去了 ...</blockquote>
+从早期新冠到德尔塔变种，致死率低一直都是建立在医疗系统不过载的前提下，属于重症患者上呼吸机不低的几率撑过去，但是世界上绝大多数国家的做法是把重症病人分成三种，第一种上呼吸机，第二种找个空闲的病床让他们自己呆着，第三种压根没机会进医院。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  最好不说  
+##### 1694#       发表于 2021-12-5 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53818529&amp;ptid=2039422" target="_blank">oznark 发表于 2021-12-5 17:32</a>
+
+从早期新冠到德尔塔变种，致死率低一直都是建立在医疗系统不过载的前提下，属于重症患者上呼吸机不低的几 ...</blockquote>
+众所周知，只要triage做得好，医疗挤兑就是不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赚钱娶老婆  
+##### 1695#       发表于 2021-12-5 17:43
+
+话说外国这o和d的波峰同期更好，还是错开产生更好啊？
+
+南非是错开了吧，欧洲呢？
+
