@@ -1321,3 +1321,56 @@ VR党是真的什么奇人异士牛鬼蛇神都有，就是他们做的人人皆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我相信VR总有一天会普及的，虽然我现在买不起。
 
+
+
+*****
+
+####  free  
+##### 9112#       发表于 2021-12-5 23:39
+
+年底的四个大拼盘live情报汇总，为什么这些拼盘都赶在年底扎堆开？已经没钱了
+
+SANRIO Virtual FES，12月11、12两天，真人和V混搭的live，两天通票7500
+[https://spwn.jp/events/211211-12-sanrioVfes](https://spwn.jp/events/211211-12-sanrioVfes)
+
+VILLS，12月18、19两天，有live有综艺，两天通票15000
+[https://spwn.jp/events/21121814-vills](https://spwn.jp/events/21121814-vills)
+
+TUBEOUT FES，12月28，票价12800
+[https://virtual.spwn.jp/events/21122801-TOFES](https://virtual.spwn.jp/events/21122801-TOFES)
+
+VirtualMusicAward2021，12月29，下午晚上两场，票价各4000
+[http://www.vma2021.jp/](http://www.vma2021.jp/)
+
+<img src="https://img.saraba1st.com/forum/202112/05/233851kv94to94haavi9z5.jpg" referrerpolicy="no-referrer">
+
+<strong>SANRIO.jpg</strong> (617.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202112/05/233852al4312j4ydr44l3x.jpg" referrerpolicy="no-referrer">
+
+<strong>VILLS.jpg</strong> (252.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202112/05/233852ljw8yww9gwkz5mwv.jpg" referrerpolicy="no-referrer">
+
+<strong>TUBEOUT.jpg</strong> (538.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202112/05/233852c66sh091o9nowyys.jpg" referrerpolicy="no-referrer">
+
+<strong>VMA.jpg</strong> (314.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-5 23:38 上传
+

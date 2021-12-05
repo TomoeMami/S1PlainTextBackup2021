@@ -774,3 +774,21 @@ xss跑光追还要保帧数不容易吧
 
 多人这么少的内容都出这么多问题，战役简直不敢想象
 
+
+
+*****
+
+####  peterhuass  
+##### 71#       发表于 2021-12-5 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53818270&amp;ptid=2040933" target="_blank">redsibyl 发表于 2021-12-5 17:06</a>
+给你个信息，我在西雅图的时候，基本感恩节过完，就有种放假放到新年结束的氛围，大家都摸的彻底 ...</blockquote>
+这不就我们元旦放完等过年吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hotsmile  
+##### 72#       发表于 2021-12-5 23:30
+
+主要是免费游戏，觉得不好玩的退游就是了，也没有喷的必要，现在喷得多不就是已经缴费的玩家
+

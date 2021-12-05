@@ -8968,3 +8968,33 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 从看的第一天就是吴涛哥<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 4026#       发表于 2021-12-5 23:24
+
+阿B直播区这次是不是有任务啊?我看见好几个TOP级主播都在求观众上1毛钱牌子.昨天海子姐新衣都提了嘴.我以为1毛就是个小事呢.
+
+*****
+
+####  夜潇箫  
+##### 4027#       发表于 2021-12-5 23:25
+
+拿牌子的人对，直播部年末数据报告也好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4028#       发表于 2021-12-5 23:26
+
+年底刷kpi了属于是
+
+*****
+
+####  rgauss  
+##### 4029#       发表于 2021-12-5 23:28
+
+年底kpi啊
+
