@@ -132,3 +132,20 @@
 未来预报抓耳啊，小百合秀了效果会很不错的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘛我私心是爷的交响曲
 
+
+
+*****
+
+####  cybernetics31  
+##### 1515#       发表于 2021-12-5 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没事，伏牛山知名翻车祭，唱好了就牛逼了
+
+*****
+
+####  chenflyyy  
+##### 1516#       发表于 2021-12-5 12:29
+
+这首歌确实挺抓耳，我是从这首歌开始喜欢sayu的，希望她能好好发挥抓住这个涨粉的好机会吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+顺便sayu有专门的字幕组了，希望其他几个人的B站字幕组也能建起来，虽然她们现在的活动还不多没多少视频需要翻译<img src="https://p.sda1.dev/3/62aa72d05b69fa157f21deb16ba2a6c1/IMG_CMP_13061347.png" referrerpolicy="no-referrer">
+
