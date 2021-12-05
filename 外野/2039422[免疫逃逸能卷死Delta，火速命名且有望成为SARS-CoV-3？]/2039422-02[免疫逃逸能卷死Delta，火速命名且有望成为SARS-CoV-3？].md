@@ -2262,3 +2262,26 @@ Beta、Gamma、Lambda、Mu，
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  KOGmk2  
+##### 1685#       发表于 2021-12-5 14:14
+
+ 本帖最后由 KOGmk2 于 2021-12-5 14:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815816&amp;ptid=2039422" target="_blank">Vneet 发表于 2021-12-5 12:20</a>
+
+哈哈，只要攻击次数足够多，99%的闪避也能破防得一次，毕竟脸再黑刷得足够多也能刷出ssr的。 ...</blockquote>
+99%回避率在大约一千次攻击的情况下已经可以认为是必中一发攻击了(至少被击中一次的概率达到了99.99568%)
+
+*****
+
+####  亚尔迪8424  
+##### 1686#       发表于 2021-12-5 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53816290&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-12-5 13:15</a>
+
+【#奥密克戎在美国已存在社区传播#】综合《**》、CNBC报道，全美目前已有16个州报告奥密克戎确诊病例，大部 ...</blockquote>
+经典的自己有不测序。盖子一揭 都是蟑螂
+
