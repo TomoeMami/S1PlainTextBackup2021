@@ -11798,3 +11798,14 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 夏夏真是罪孽深重的女主<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2379#       发表于 2021-12-5 19:25
+
+一群路人求帮忙真是笑出声。话说我感觉还是埋了坑啊，萝拉的女王梦，随着被告知的残酷现实可能会破灭，以及真夏真的就她不需要未来吗
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
