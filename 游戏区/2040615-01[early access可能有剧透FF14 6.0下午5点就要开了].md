@@ -648,3 +648,14 @@ afk三年乐。。。考虑下国际服
 
 实际的海德林：不要BB，就是干！
 
+
+
+*****
+
+####  adfj  
+##### 74#       发表于 2021-12-6 01:19
+
+看完素素的直播剧透了，很精彩一本满足，如果是单机的话作为大结局是相当完美了，希望以后的版本吉田他们都有计划吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+另外，变态毒唯这种东西真是太可怕了，能超越希望和绝望来到你身边，还好最后也结束了，也算是变相帮主角找回了初心吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
