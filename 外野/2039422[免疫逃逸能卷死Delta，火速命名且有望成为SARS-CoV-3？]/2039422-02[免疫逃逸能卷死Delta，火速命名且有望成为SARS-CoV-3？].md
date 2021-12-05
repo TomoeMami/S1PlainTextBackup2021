@@ -1881,3 +1881,25 @@ https://www.nrk.no/norge/fhi_-19-tilfeller-av-omikron-bekreftet-i-norge-1.157576
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  riczxc  
+##### 1659#         楼主| 发表于 2021-12-5 08:22
+
+ 本帖最后由 riczxc 于 2021-12-5 08:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814122&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-5 08:17</a>
+
+既然推测新毒株跟老鼠有关系，这次会传染一遍全世界的老鼠吧。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上 ...</blockquote>
+
+其实如果能因此把灭鼠作为变成政治任务，说不定也是一件好事。（我最希望还是灭掉美洲大镰）。
+
+工业化信息化后的人类还是挺厉害的。前提是真要做成一件事。
+
+人类是否有能力把老鼠灭绝？ - 赵泠的回答 - 知乎
+
+https://www.zhihu.com/question/365118752/answer/965761130
+
