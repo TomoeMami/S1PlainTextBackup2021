@@ -176,3 +176,12 @@ OP大概是因为已经演出过没新鲜感，但是也可以用星光序曲嘛
 
 可恋<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 1520#       发表于 2021-12-5 16:51
+
+未来这歌不就是剩下4个上不上台都行来两句帮腔，立德1个在翻车边缘飙高音，基本上翻车预报了吧
+
