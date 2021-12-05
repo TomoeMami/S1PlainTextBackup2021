@@ -11948,3 +11948,12 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 问个东西，你楼还有人记得以前衣原体病这个梗究竟是吊人原创的还是她从星川啥的哪里学来的不。
 
+
+
+*****
+
+####  雪风utopia  
+##### 5882#       发表于 2021-12-5 18:18
+
+看了眼隔壁，管人痴，他真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

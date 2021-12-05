@@ -2387,3 +2387,26 @@ D跟O会在一个身体里同时感染吗？
 
 欧洲没完全错开，估计圣诞会一起了
 
+
+
+*****
+
+####  bigapple555  
+##### 1698#       发表于 2021-12-5 18:09
+
+ 本帖最后由 bigapple555 于 2021-12-5 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53798145&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-3 17:51</a>
+
+是会增大可能性,但是变种该来还是要来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+怎么说呢，反正我觉得大多数人还是想能好一点是一点的
+
+顺着这个思路，有人咒你去死的话，其实也不是不能接受是吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+说实话，Omicron的流行病学相关特征还需要时间去观察，研究；Omicron的锅也没必要这么早分，因为疫情的
+
+原因世界早就一团乱。欧美作为世界秩序主导者的能力这两年已经表现的淋漓尽致了，还能对它们有啥指望？
+
+只可惜我们自己还不够强大，没法更多的支援第三世界国家<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
