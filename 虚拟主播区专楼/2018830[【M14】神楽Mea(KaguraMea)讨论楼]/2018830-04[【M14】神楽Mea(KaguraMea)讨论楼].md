@@ -11957,3 +11957,36 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 看了眼隔壁，管人痴，他真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rosevalley46  
+##### 5883#       发表于 2021-12-5 18:31
+
+ 本帖最后由 rosevalley46 于 2021-12-5 18:34 编辑 
+
+嗨,习惯就好,2202年了还有从直播节目给v做道德评价的是真救不了.真脱了皮以后五毒俱全的也不是没有,倒不见多少卫道士了
+
+*****
+
+####  小小雪空  
+##### 5884#       发表于 2021-12-5 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53819077&amp;ptid=2018830" target="_blank">rosevalley46 发表于 2021-12-5 18:31</a>
+
+嗨,习惯就好,2202年了还有从直播节目给v做道德评价的是真救不了.真脱了皮以后五毒俱全的也不是没有,倒不见 ...</blockquote>
+新生代是这样的，整天闲得没事去车别人……
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|稀客|
+
+查看全部评分
+

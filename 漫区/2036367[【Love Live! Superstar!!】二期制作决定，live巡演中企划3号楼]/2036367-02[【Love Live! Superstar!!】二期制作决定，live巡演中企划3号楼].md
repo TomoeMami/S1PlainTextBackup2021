@@ -225,3 +225,14 @@ OP大概是因为已经演出过没新鲜感，但是也可以用星光序曲嘛
 
 今天鲤鱼的醋简直漫天飞<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">都快成柠檬鱼了
 
+
+
+*****
+
+####  player3960  
+##### 1525#       发表于 2021-12-5 18:39
+
+三天后的伏牛山，打铁要撑住啊，这两天live都有点不在状态，未来预报这首难度又高，希望能发挥好点…<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
