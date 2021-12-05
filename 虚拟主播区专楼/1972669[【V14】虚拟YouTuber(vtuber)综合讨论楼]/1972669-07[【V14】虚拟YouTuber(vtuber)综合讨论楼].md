@@ -658,3 +658,45 @@ facerig比老爱还要早，套皮直播人是迟早的事，不过没有四天�
 还得说一句,V圈必须明白自己是三流创作，这说明自己做得多好都只能靠60分，要放眼整个娱乐界，音乐界，考到那种分数的话那当然不会衰落。我的意思是，视频势没有好到某个地步，同时直播势其实也是。只是大家看的开心罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">算个人不太对也没太理清思路的看法吧。
 
+
+
+*****
+
+####  thisisaspider  
+##### 9062#       发表于 2021-12-5 10:03
+
+都2021年了 遗老们还在分析业界 我真的哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+能多写点吗 我给每个人加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 9063#       发表于 2021-12-5 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814533&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-12-5 09:50</a>
+视频势毕竟是相对油管的小众化...类似给二次元开个新路口。不过不一定会因为这个做不了大。
+
+视频势的失败可 ...</blockquote>
+我觉得很多人一个错觉是，存在一个更稳定的，更专业的高级娱乐圈。
+说实话娱乐圈是存在顶流没错。但是娱乐圈本身稳定度也就那样。
+中层潮起潮落红极一时的更是海了去了。
+V这个概念本身算娱乐圈的一个小分片没错，但是这也不意味着专业度啊，什么的存在差距。
+实际上已经有很多大手子被卷入这个圈子了。
+视频势另外一个特点，我觉得可能是合作的有限性。
+团队的完整性反而使内容产出变得有限。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+合作也是，大家都有团队，两个团队的合作和两个主播的合作可难太多了。
+台本都不知道该用谁的。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1||
+
+查看全部评分
+
