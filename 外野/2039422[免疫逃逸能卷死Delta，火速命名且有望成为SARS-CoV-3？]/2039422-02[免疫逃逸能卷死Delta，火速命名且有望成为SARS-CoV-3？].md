@@ -1970,3 +1970,17 @@ https://www.zhihu.com/question/365118752/answer/965761130
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  三菱自工  
+##### 1666#       发表于 2021-12-5 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814635&amp;ptid=2039422" target="_blank">Kirixima 发表于 2021-12-5 10:07</a>
+楼里面好多人都是，啥也不懂，就瞎推测。
+传染病用药物控制，不说成本，效果并没有切断传播途径（消灭中间 ...</blockquote>
+确实这个病毒太可疑了，应该让丑国开放它那些继承731部队遗产遗志的所有试验室，由全球人民的认同的代表进行彻查。
+
+—— 来自 vivo V2031A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
