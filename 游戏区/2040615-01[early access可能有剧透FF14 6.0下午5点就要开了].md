@@ -617,3 +617,12 @@ afk三年乐。。。考虑下国际服
 
 真就黄金时代白银时代etc的老梗，90本三个终末星球的设定是什么？
 
+
+
+*****
+
+####  kamarus  
+##### 71#       发表于 2021-12-5 17:58
+
+法丹尼尔真是纯恶心人玩意，带着前世更恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
