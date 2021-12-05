@@ -1863,3 +1863,21 @@ https://www.nrk.no/norge/fhi_-19-tilfeller-av-omikron-bekreftet-i-norge-1.157576
 【南非最新研究：奥密克戎传染性低于德尔塔 但免疫突破力更强】南非斯泰伦博斯大学普利亚姆等研究人员在医 ...</blockquote>
 传染力不行的话，很难卷过delta
 
+
+
+*****
+
+####  Vneet  
+##### 1657#       发表于 2021-12-5 08:02
+
+"你死我都未死啦！"
+
+*****
+
+####  nanrendu  
+##### 1658#       发表于 2021-12-5 08:17
+
+既然推测新毒株跟老鼠有关系，这次会传染一遍全世界的老鼠吧。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
