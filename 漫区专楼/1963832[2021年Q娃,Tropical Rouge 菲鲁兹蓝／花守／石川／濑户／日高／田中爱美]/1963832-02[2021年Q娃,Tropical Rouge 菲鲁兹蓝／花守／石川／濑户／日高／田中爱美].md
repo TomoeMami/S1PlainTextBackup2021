@@ -11842,3 +11842,22 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  leleq  
+##### 2383#       发表于 2021-12-5 22:34
+
+ 本帖最后由 leleq 于 2021-12-5 22:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53819625&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-12-5 19:25</a>
+
+一群路人求帮忙真是笑出声。话说我感觉还是埋了坑啊，萝拉的女王梦，随着被告知的残酷现实可能会破灭，以及 ...</blockquote>
+夏夏未来是和罗拉一体的啊 二人共用一个光芒（不对）
+
+罗拉顺利当女王改规矩夏夏就当宠妃呗（？）人间界的工作随便找个能出海的每周去和罗拉偷情就行<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+出了问题来个罗拉忘了 夏夏就要像未来一样 用搭上一辈子的觉悟去学海洋学了 最后大概还得靠罗拉自己想起来了
+
+法Q的结局虽然真的吊 但真不想再来一次了 你看把未来这么开朗的娃磨成啥样了 今年这么整活我可不希望夏夏也变未来这样 
+
