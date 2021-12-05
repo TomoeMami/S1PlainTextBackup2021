@@ -12003,3 +12003,14 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 隔壁那种玩意删楼不就完事了，现在没权限了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 5886#       发表于 2021-12-5 19:02
+
+ 本帖最后由 璃絵和花瑠 于 2021-12-5 19:09 编辑 
+
+泥哥潭这种管天管地管你妈放屁的这种正义人士可不要太多，又要车轱辘个管人的定义又要给管人定个道德米线，哪来的爹味<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
