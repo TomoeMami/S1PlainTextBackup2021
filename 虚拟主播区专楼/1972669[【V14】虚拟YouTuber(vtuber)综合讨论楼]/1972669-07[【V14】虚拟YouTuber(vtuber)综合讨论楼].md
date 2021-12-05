@@ -990,3 +990,35 @@ miku发售了多少年，始皇帝才多少年<img src="https://static.saraba1st
 
 接下来就是成本问题了，如何开一次机就能产出信息量最多的内容呢？答案还是短视频。
 
+
+
+*****
+
+####  千千千千鸟  
+##### 9088#       发表于 2021-12-5 15:01
+
+可惜大号被封了，16年从ACFUN有人搬运绊爱视频开始接触V的概念，到当年啊委出道的时候也照样席卷整个V1楼，4大天王的讨论度被JK组迅速超过，这还是啊委当时接近一周播一次的情况下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+什么视频直播之类的，当时就讨论过几千楼了吧。无限车轱辘讨论来讨论去还是那些。。
+
+现在觉得，其实没必要说什么视频势3D势的终结这种分类上的东西，就只是绊爱这样一个管人的出现，火过，然后过气了，最后引退了。对于油管主，UP主这样的角色来说只是一个很普通的进程。
+
+*****
+
+####  zpbzpb123123  
+##### 9089#       发表于 2021-12-5 15:12
+
+唉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 9090#       发表于 2021-12-5 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53817101&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-12-5 14:51</a>
+
+努力做出虚拟角色的设定，或者说让观众觉得世界上有其他不一样的人这事还是很棒的。
+
+但这和直播与视频关系 ...</blockquote>
+关于虚拟的扮演感，角色设定这方面，其实也是直播会更有优势吧，但是对演者和团队的要求都太高了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
