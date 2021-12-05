@@ -568,3 +568,14 @@ facerig比老爱还要早，套皮直播人是迟早的事，不过没有四天�
 箱与否根本就不是视频势衰退的原因。
 把问题往这方面甩真是让人困惑<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  本间日阳  
+##### 9057#       发表于 2021-12-5 07:40
+
+ 本帖最后由 本间日阳 于 2021-12-5 07:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">所有东西都会过气，无论早晚，倒不用纠结那么多原因，我觉得绊爱已经红了很久了。
+
