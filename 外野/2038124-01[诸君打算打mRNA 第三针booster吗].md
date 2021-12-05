@@ -1518,3 +1518,17 @@ moderna 第二针&gt;&gt;&gt; moderna 第一针&gt;flu shot&gt; 辉瑞booster
 
 我打的一针版
 
+
+
+*****
+
+####  Kakaru  
+##### 150#       发表于 2021-12-6 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645006&amp;ptid=2038124" target="_blank">MK17Mod0 发表于 2021-11-22 07:29</a>
+
+这东西完全看人，没反应就是没反应，有反应就一直有
+
+我朋友两针打完躺家里一两天，公司还有一个打完住院 ...</blockquote>
+打完住院一周是啥情况？
+
