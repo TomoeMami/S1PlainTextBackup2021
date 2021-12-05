@@ -1491,3 +1491,21 @@ moderna 第二针&gt;&gt;&gt; moderna 第一针&gt;flu shot&gt; 辉瑞booster
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Michael379  
+##### 147#       发表于 2021-12-6 06:45
+
+一周前打的摩德纳。打完当天晚上发烧，第二天也发烧，第三天好了。
+
+*****
+
+####  Michael379  
+##### 148#       发表于 2021-12-6 06:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815084&amp;ptid=2038124" target="_blank">droople 发表于 2021-12-5 11:01</a>
+ 因为第三针规定要和第二针一样吧</blockquote>
+可以混打的，坡县研究两针辉瑞一针摩德纳比三针辉瑞免疫效果好。
+
