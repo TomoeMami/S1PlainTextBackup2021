@@ -8698,3 +8698,22 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 昨天非得找个最晦气的二创结尾,那你前面切割为了啥?直播节奏都已经混乱了,给人一种已经什么都不在乎的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  korilori  
+##### 3995#       发表于 2021-12-5 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53816962&amp;ptid=2013779" target="_blank">蓝白胖者 发表于 2021-12-5 14:34</a>
+
+昨天非得找个最晦气的二创结尾,那你前面切割为了啥?直播节奏都已经混乱了,给人一种已经什么都不在乎的感觉[ ...</blockquote>
+昨天有事先润了，看了眼回放其实也就那样，11月那堆乱七八糟的事情造成了很多二创浓度爆表，有节目效果的也不多，她又不想漏掉任何一个at，除了涉及运营的都只能硬撑着一个个看，她那身体心理条件真的已经没法在乎什么东西了。现在节目效果很大一部分都得交给弹幕，可惜昨天没空没能在那个晦气二创给炒作一番。
+
+*****
+
+####  小憨1  
+##### 3996#       发表于 2021-12-5 15:49
+
+昨天直播到了最后面基本都是吊着一口气在播了，没办法
+

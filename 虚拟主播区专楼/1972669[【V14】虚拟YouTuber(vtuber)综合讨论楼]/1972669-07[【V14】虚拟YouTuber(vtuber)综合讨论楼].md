@@ -1083,3 +1083,30 @@ miku发售了多少年，始皇帝才多少年<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">双方想做到更好的话，都有些突破人类的极限了。
 
+
+
+*****
+
+####  小小雪空  
+##### 9094#       发表于 2021-12-5 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53816267&amp;ptid=1972669" target="_blank">walfeds 发表于 2021-12-5 13:12</a>
+
+经历了这么多换魂事件管人的永续性基本被观众否定了而我们无法预见初音未来的消失会是哪一天 ...</blockquote>
+让一个人被所有人喜欢本身就是不可能的，为不同爱好者推出大量角色其实更合理……
+
+而在量产上，视频势很难追得上直播势，因为视频势的成本是远远高于直播势……
+
+一种风格再好，也终究是一种风格，刚开始的直播势的确为V带来了多样性……
+
+当然，现在搞直播的人多了，同化现像严重，这是另外一回事……
+
+*****
+
+####  虚无缥缈的光阴  
+##### 9095#       发表于 2021-12-5 15:54
+
+ 重回初代楼回顾了一下当初的言论，心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
