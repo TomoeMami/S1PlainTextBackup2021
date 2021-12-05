@@ -1951,3 +1951,22 @@ https://www.zhihu.com/question/365118752/answer/965761130
 要真是老鼠能传播的话，我国危险啊，进口货物难免带进来老鼠吧</blockquote>
 集装箱氮气灭鼠
 
+
+
+*****
+
+####  www151007  
+##### 1664#       发表于 2021-12-5 10:46
+
+美国已经开花了。
+
+*****
+
+####  小妻水亚美  
+##### 1665#       发表于 2021-12-5 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">魔都这边老破小公房很多就有老鼠
+感觉根本不可能灭光吧
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

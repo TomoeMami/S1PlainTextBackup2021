@@ -1439,3 +1439,42 @@ moderna 第二针&gt;&gt;&gt; moderna 第一针&gt;flu shot&gt; 辉瑞booster
 
 科兴打完 硬了一个星期
 
+
+
+*****
+
+####  Asuka_12  
+##### 142#       发表于 2021-12-5 10:47
+
+我第一针moderna之后抱着试一试的心态试出了磁力，然后后来知道打得可能是那批有不锈钢碎屑的。第二针我都没去，感觉打了血亏。
+
+*****
+
+####  烦死了  
+##### 143#         楼主| 发表于 2021-12-5 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814094&amp;ptid=2038124" target="_blank">半分宅 发表于 2021-12-5 08:09</a>
+
+第一第二针辉瑞无事，加强针莫德纳副作用很难受，躺倒两天。</blockquote>
+勇士呀 先辉瑞 再moderna
+
+*****
+
+####  droople  
+##### 144#       发表于 2021-12-5 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53626407&amp;ptid=2038124" target="_blank">xuzy0919 发表于 2021-11-20 20:21</a>
+
+等公司统一安排打，前两针都是科兴，第三针能打还是打科兴</blockquote>
+因为第三针规定要和第二针一样吧
+
+*****
+
+####  droople  
+##### 145#       发表于 2021-12-5 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814947&amp;ptid=2038124" target="_blank">Asuka_12 发表于 2021-12-5 10:47</a>
+
+我第一针moderna之后抱着试一试的心态试出了磁力，然后后来知道打得可能是那批有不锈钢碎屑的。第二针我都 ...</blockquote>
+磁力？
+
