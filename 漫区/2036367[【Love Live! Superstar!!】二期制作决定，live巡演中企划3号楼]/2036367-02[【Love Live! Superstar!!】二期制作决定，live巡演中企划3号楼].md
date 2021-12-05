@@ -509,3 +509,19 @@ sayu这表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 
 “liella果然很棒啊，能够合法的抱到各种女人。”
 
+
+
+*****
+
+####  A0171050  
+##### 1547#       发表于 2021-12-6 00:46
+
+有liella的聊天吹水群么，周围就我一人追活动挺难受的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 1548#       发表于 2021-12-6 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有这楼还有隔壁尼姑庵楼还不够吗，为什么一定要加群
+
