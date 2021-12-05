@@ -2192,3 +2192,60 @@ Beta、Gamma、Lambda、Mu，
 
 你这是属于焦虑过头开始找补了，建议从头开始补一遍屎党魁脱敏——然后你才能接受这个「重症变异已经在纽约下水道里子孙满堂」的更大焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  droople  
+##### 1680#       发表于 2021-12-5 13:01
+
+<blockquote>引用第1667楼cube于2021-12-05 11:44发表的  :
+
+法国作为疫苗接种推广做的还行的国家，日增新病例破五万了。</blockquote>
+@cube
+
+你应该看以色列和智利数据，高接种率和高新增，正好一北一南，一冬一夏
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  最好不说  
+##### 1681#       发表于 2021-12-5 13:09
+
+根据病毒学家Trevor Bedford推算，Omicron 当前在南非的 Rt 值大概在 3 到 3.5 之间，作为参考，Delta 在南非和美国的初始 Rt 值约为 1.5。因此可以预测omicron这波世界大流行带来的危害要比delta大得多，除非omicron的重症率死亡率低到可以忽略不计，但这种可能性极小<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过高达三点几的Rt值对我国的防疫体系也是很大的考验，一旦有境外输入就得立刻按死，不然就百分百会有一次大爆发<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汽车屁  
+##### 1682#       发表于 2021-12-5 13:11
+
+ 本帖最后由 汽车屁 于 2021-12-5 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53815965&amp;ptid=2039422" target="_blank">Kanoya 发表于 2021-12-5 12:41</a>
+
+小鼠模型这是常见的实验室手法啊
+
+你这是属于焦虑过头开始找补了，建议从头开始补一遍屎党魁脱敏 ...</blockquote>
+这又在YY 重症变异已经在纽约下水道里子孙满堂
+
+你脑子里的YY无法证明你的 重现 论
+
+想做重现实验很简单，首先确定奥密克戎确实是老鼠传播
+
+在这个事实基础上，再来做试验
+
+没有这个事实基础，那就是制造病毒
+
+*****
+
+####  天使日又日  
+##### 1683#       发表于 2021-12-5 13:15
+
+【#奥密克戎在美国已存在社区传播#】综合《**》、CNBC报道，全美目前已有16个州报告奥密克戎确诊病例，大部分病例均有南非旅居史，部分病例此前已经完成了疫苗接种。美国传染病专家福奇指出，奥密克戎变异毒株在美国已存在社区传播，未来确诊病例将不断增加。卫生官员表示，奥密克戎确诊者均出现轻微症状，这表示接种疫苗仍能预防重症。福奇也认为：“接种疫苗并施打加强针，会在一定程度上起到保护作用，有可能对抗重症，甚至是对抗奥密克戎毒株。”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第四步经典重现
+

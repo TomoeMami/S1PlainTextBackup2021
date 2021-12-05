@@ -929,3 +929,12 @@ upd8跪了和cover怎么就成为了经济人公司就是另一个故事了
 
 miku发售了多少年，始皇帝才多少年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时画这图的人就脑子有问题
 
+
+
+*****
+
+####  walfeds  
+##### 9082#       发表于 2021-12-5 13:12
+
+经历了这么多换魂事件管人的永续性基本被观众否定了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">而我们无法预见初音未来的消失会是哪一天
+
