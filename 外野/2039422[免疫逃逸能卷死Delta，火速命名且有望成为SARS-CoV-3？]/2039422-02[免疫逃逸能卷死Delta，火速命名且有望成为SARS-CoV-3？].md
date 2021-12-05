@@ -1903,3 +1903,16 @@ https://www.nrk.no/norge/fhi_-19-tilfeller-av-omikron-bekreftet-i-norge-1.157576
 
 https://www.zhihu.com/question/365118752/answer/965761130
 
+
+
+*****
+
+####  nanrendu  
+##### 1660#       发表于 2021-12-5 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53814138&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-5 08:22</a>
+其实如果能因此把灭鼠作为变成政治任务，说不定也是一件好事。（我最希望还是灭掉美洲大镰）。</blockquote>
+无危害灭鼠这个真不错，我家附近有黄鼠狼，灭鼠比较担心的就是家附近野猫和黄鼠狼会受影响。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
