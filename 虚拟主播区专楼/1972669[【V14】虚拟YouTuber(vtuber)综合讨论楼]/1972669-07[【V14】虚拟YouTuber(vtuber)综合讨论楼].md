@@ -1239,3 +1239,16 @@ you know it’s naughty virtual virtualize a life alive
 
 提起VRchat 反而是EN的华生由于迟迟海外无法3D逼出来一大堆vrchat很好的活。。包括vrchat团建等等
 
+
+
+*****
+
+####  灵思之风jacke  
+##### 9105#       发表于 2021-12-5 20:15
+
+说起视频势，我推荐一下[空想料理店长蟹](https://www.youtube.com/channel/UCcegcJA0ijqaZUUyvGtr5xQ)，他的视频真的很有味道，而且刚好发了新视频。他也是V初期一直到现在的老人了，经历了很久不明不白的摸索期才有了现在独特的风格。
+
+其实很多人都被那些十几万几十万乃至百万订阅的V遮住了视线，看不到数万乃至数千订阅的V才是数量最多的主流，他们之中也有很多风格特别很有意思的存在，个人势依靠兴趣，有时候延续和离开并不需要那么多的人气支撑和理由。
+
+还有上面免费说的VR势，这一批现在恰恰是跟vtuber最若即若离的存在了。现在可以说是元宇宙在当下最直观写照的Vket的举办公司HIKKY，它的成员和成立者就有好多“原vtuber”，其中移动城的phio，他已经vtuber毕业一两年了，但是还是照常油管发视频，发的东西跟以前也没什么不同，而他vtuber毕业的原因，就是“vtuber”这个头衔对他已经没什么意义。我也分不清memex，八月二雪，amoka，Johnny Henry这种VR音乐vtuber跟YSS，PHAZE这些有啥不同，好像前者其实也没怎么注重“vtuber”的身份。总之，想多了解VR里的音乐势，多关注V-kitazawa AWAKE还有ろい的VTV吧。
+
