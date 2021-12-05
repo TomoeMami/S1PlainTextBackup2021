@@ -11818,3 +11818,27 @@ Q娃少有的非最终阶段一话没有解决敌人的一集 有点类似奸笑
 
 这集的怪攻击方式好恶心
 
+
+
+*****
+
+####  leleq  
+##### 2381#       发表于 2021-12-5 22:16
+
+一开始的夕阳沙滩是什么恋爱动画滤镜啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不过也就这样了staff还是很收敛的 
+
+这集的打斗还行
+
+珊瑚真是可爱无敌啊 其他嗯……………………
+
+最后我还以为要来盾系大绝 扔盾 呢可惜
+
+*****
+
+####  最强惠酱  
+##### 2382#       发表于 2021-12-5 22:20
+
+夏夏不娶何撩<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
