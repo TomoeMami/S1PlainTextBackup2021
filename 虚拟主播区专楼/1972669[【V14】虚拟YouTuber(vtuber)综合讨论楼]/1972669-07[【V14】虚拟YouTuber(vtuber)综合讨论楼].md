@@ -1252,3 +1252,29 @@ you know it’s naughty virtual virtualize a life alive
 
 还有上面免费说的VR势，这一批现在恰恰是跟vtuber最若即若离的存在了。现在可以说是元宇宙在当下最直观写照的Vket的举办公司HIKKY，它的成员和成立者就有好多“原vtuber”，其中移动城的phio，他已经vtuber毕业一两年了，但是还是照常油管发视频，发的东西跟以前也没什么不同，而他vtuber毕业的原因，就是“vtuber”这个头衔对他已经没什么意义。我也分不清memex，八月二雪，amoka，Johnny Henry这种VR音乐vtuber跟YSS，PHAZE这些有啥不同，好像前者其实也没怎么注重“vtuber”的身份。总之，想多了解VR里的音乐势，多关注V-kitazawa AWAKE还有ろい的VTV吧。
 
+
+
+*****
+
+####  walfeds  
+##### 9106#       发表于 2021-12-5 21:27
+
+3D企业势。。。gems12+1-4=9，岩本町3+2=4，cybers系就逃出来了一个后辈，啊不对，还有knn姐贵和米，avex还在给marinasu吊命，22/7眼见得慢性死亡了
+
+游戏部炸完青高倒是续下来了把夏希续没了，再开个label卖歌力；reality也洗剩下kmnz和vesperbell还有rk music那一圈卖歌力，emma都是榨取剩余价值了（准确的说是ficty）
+
+大葵东云转了个体户，yua也神隐了，店长那个アメノセイ不干了，倒是三得利还在动，还有隔壁板蓝根
+
+balus还挺滋润的，剩下就是裸春牛逼了
+
+hikky是已经乘着东风跳出管人路线了，接单子不比涨粉香多了
+
+*****
+
+####  rzrbtk  
+##### 9107#       发表于 2021-12-5 21:32
+
+郡今晚这个桃铁状况好多，突然被通知和从来没聊过的人（三世）联动，直播开始郡才开始下游戏、野猫也跑去充电，玩到一半猫发现自己原来有直播预定了被圭利抓住，有人中途跑去吃饭，现在和三世超高速胡扯，突然聊起来vtb业界啥的，像在听阿叔们聊天，好有趣<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+省一楼，一直搞不懂郡郡对野猫的态度，私下对猫夸奖很多，直播的时候被各种触雷点也不在意，总是莫名有联动但是说实话又不熟，为何…
+
