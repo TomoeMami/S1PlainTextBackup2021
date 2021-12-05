@@ -12014,3 +12014,12 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 泥哥潭这种管天管地管你妈放屁的这种正义人士可不要太多，又要车轱辘个管人的定义又要给管人定个道德米线，哪来的爹味<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 5887#       发表于 2021-12-5 19:54
+
+乐，被泥哥谭畜牲版务口了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不就是打了个htj缩写而已。
+

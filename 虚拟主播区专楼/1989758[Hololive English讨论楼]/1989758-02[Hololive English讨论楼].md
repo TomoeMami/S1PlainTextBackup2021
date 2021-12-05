@@ -55,3 +55,12 @@ AME I KNEEL
 上次jackbox collab的T恤到了，comedy和yagoo's favorite那两件好评如潮（感觉比今天omocat的要好看 ...</blockquote>
 我觉得那个space frontier的最有意境
 
+
+
+*****
+
+####  shimmy1996  
+##### 1507#       发表于 2021-12-5 19:57
+
+”head out” Ame + Kroniicopter <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
