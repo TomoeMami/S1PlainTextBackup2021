@@ -1390,3 +1390,19 @@ leileleile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">太多人生日了吧
 
+
+
+*****
+
+####  一仙  
+##### 13640#       发表于 2021-12-6 21:54
+
+好多生日歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿色子龙  
+##### 13641#       发表于 2021-12-6 21:57
+
+考虑到近半年估计都不会有下一次读SC，那么未来半年的都可以说自己生日
+

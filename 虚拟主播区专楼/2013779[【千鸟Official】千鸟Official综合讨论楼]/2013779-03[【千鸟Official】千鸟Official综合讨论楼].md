@@ -9256,3 +9256,44 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 之前还看到个泥潭截图说的同事关系是啥核中核</blockquote>
 文静:我跟瑞姨都是b站同事
 
+
+
+*****
+
+####  rgauss  
+##### 4059#       发表于 2021-12-6 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">文静挺适合avg的 别换其他类型游戏了 挺好的
+
+*****
+
+####  本间日阳  
+##### 4060#       发表于 2021-12-6 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果有不熟瑞娅的鸟友，我可以科普一下，她是全维阿唯一一个在暴露s1账号的情况下还来b综回复的liver，已经在s1融得批爆了，堪称新一代s1b综公主。总之不要把她当成什么纯洁如画心地善良的好女人，否则会像我一样被她折磨。她最近事业心很强，主动去文静那边互动大概也有这个原因。
+
+*****
+
+####  GAKOTO  
+##### 4061#         楼主| 发表于 2021-12-6 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53833272&amp;ptid=2013779" target="_blank">本间日阳 发表于 2021-12-6 21:42</a>
+如果有不熟瑞娅的鸟友，我可以科普一下，她是全维阿唯一一个在暴露s1账号的情况下还来b综回复的live ...</blockquote>
+瑞姨s1id是什么？我只知道是默认头像<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4062#       发表于 2021-12-6 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53833272&amp;ptid=2013779" target="_blank">本间日阳 发表于 2021-12-6 21:42</a>
+如果有不熟瑞娅的鸟友，我可以科普一下，她是全维阿唯一一个在暴露s1账号的情况下还来b综回复的live ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看了下 不就发过两句话么
+
+*****
+
+####  夜潇箫  
+##### 4063#       发表于 2021-12-6 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后被b综赶出去了，不让她看b综
+
