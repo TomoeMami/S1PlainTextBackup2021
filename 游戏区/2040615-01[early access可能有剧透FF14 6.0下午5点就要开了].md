@@ -841,3 +841,49 @@ S1在吹剧情爽
 
 大屁股那边也是觉得你得回归冒险者的心态才能放手厮杀不才等到现在的
 
+
+
+*****
+
+####  忘却的记忆  
+##### 90#       发表于 2021-12-6 15:09
+
+5.0和6.0直接把ff14扛上历代最强
+
+当然跑腿得去掉
+
+
+
+*****
+
+####  onemoment  
+##### 91#       发表于 2021-12-6 15:16
+
+暗之战士的再访<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，没想到还会再来第一世界
+
+*****
+
+####  边缘中心  
+##### 92#       发表于 2021-12-6 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827987&amp;ptid=2040615" target="_blank">liva 发表于 2021-12-6 14:08</a>
+LGA的人在喷剧情拉
+
+S1在吹剧情爽
+
+那么到底情况如何</blockquote>
+如果他们觉得5.x还可以，那没道理喷6.0拉
+如果5.x就觉得不行，那就是本来口味不合
+
+*****
+
+####  liva  
+##### 93#       发表于 2021-12-6 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53828782&amp;ptid=2040615" target="_blank">边缘中心 发表于 2021-12-6 15:20</a>
+
+如果他们觉得5.x还可以，那没道理喷6.0拉
+
+如果5.x就觉得不行，那就是本来口味不合 ...</blockquote>
+那边觉得5.X普遍拉<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

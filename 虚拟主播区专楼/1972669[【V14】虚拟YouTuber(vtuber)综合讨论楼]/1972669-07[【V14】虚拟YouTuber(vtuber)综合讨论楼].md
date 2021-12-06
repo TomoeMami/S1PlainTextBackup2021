@@ -1668,3 +1668,21 @@ bsyl，封口告知<img src="https://static.saraba1st.com/image/smiley/face2017/
 有花这个V浓度可真是大幅降低了（x）
 <img src="https://wx1.sinaimg.cn/large/008q4Iu3ly1gx43841yy7g305o0a0hdv.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9132#       发表于 2021-12-6 15:15
+
+发现一个不认识的外来词。png
+查了一下。png
+只能说大家为引入无必要的外来词汇费尽心机.png
+
+*****
+
+####  星街こうせい  
+##### 9133#       发表于 2021-12-6 15:18
+
+怪不得官网上员工数又是1开头了，原来是向社会输出人才了啊
+
