@@ -1482,3 +1482,12 @@ How does this dumb bitch have such a big fanbase, she's not even entertaining.
 
 今天好像只宣传PVC没提生日回的事?
 
+
+
+*****
+
+####  nian1538  
+##### 13649#       发表于 2021-12-7 06:47
+
+前面哭哭的时候提了一下想给大家带来最好的生日live吧
+
