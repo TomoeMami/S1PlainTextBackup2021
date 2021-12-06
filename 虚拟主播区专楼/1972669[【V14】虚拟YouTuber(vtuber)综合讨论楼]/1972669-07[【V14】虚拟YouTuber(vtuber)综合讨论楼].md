@@ -1589,3 +1589,42 @@ bsyl，封口告知<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么日本还要管虚拟陪酒的健全性。柿子挑软的捏是吧。
 
+
+
+*****
+
+####  ヒトニナル  
+##### 9123#       发表于 2021-12-6 12:40
+
+我觉得今年アーカイブス的特典更让人乐呵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 9124#       发表于 2021-12-6 12:49
+
+这理由真是迷惑的可以<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+你虹不会真没钱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 9125#       发表于 2021-12-6 12:51
+
+要上市了砍掉不赚钱的东西而已 不会真有人信这种理由吧
+
+*****
+
+####  渡鸦骑士  
+##### 9126#       发表于 2021-12-6 12:53
+
+之前不是说收益良好嘛？
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 9127#       发表于 2021-12-6 12:57
+
+想起一日按摩财报也是巨亏的 可能这种平台抽成比较低吧
+

@@ -657,3 +657,21 @@ n多00后，奔三大龄宅慎加</blockquote>有年轻人好事情啊<img src="
 
 鲤鱼的“一只视频”到底是什么？这人真坏，说了也不发，可恶可恶<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中野四葉  
+##### 1561#       发表于 2021-12-6 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么是从pay开始的，我还以为是nagi。该猜轮到鲤鱼念标题时是正常英文发音还是日式英语发音了
+
+*****
+
+####  Karin11974  
+##### 1562#       发表于 2021-12-6 13:05
+
+大学生才有大把时间追星，社畜爬爬楼看看情报就差不多了，也不想花太多精力，老实说偶像这种东西还是大学生以下的时期最入迷，不过工作后才有经济能力来多多支持，也是矛盾
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

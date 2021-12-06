@@ -2735,3 +2735,23 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 清零的定义根本不一样还吵半天。</blockquote>
 因为一些人装外宾 总是试图混淆动态清零和绝对清零，屁股在哪里特别明显
 
+
+
+*****
+
+####  最好不说  
+##### 1727#       发表于 2021-12-6 12:44
+
+南非报告新增11125例新冠肺炎确诊病例，新冠检测阳性率为23.8%。有意思，阳性率还在升但确诊数却回落了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nvis  
+##### 1728#       发表于 2021-12-6 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827106&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-6 12:44</a>
+南非报告新增11125例新冠肺炎确诊病例，新冠检测阳性率为23.8%。有意思，阳性率还在升但确诊数却回落了[f:0 ...</blockquote>
+说明未检测的人越来越少了
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
