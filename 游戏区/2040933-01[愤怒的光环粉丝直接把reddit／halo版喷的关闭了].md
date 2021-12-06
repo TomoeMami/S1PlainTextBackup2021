@@ -860,3 +860,29 @@ apex也是，第十赛季服务器那个鬼样子，不老老实实闷头 ...</b
 多人这么少的内容都出这么多问题，战役简直不敢想象</blockquote>
 我覺得你不知道來龍去脈的話可以起碼看個第一頁,如果戰役有問題,也不可能是屬於多人模式的問題(太肝/沒單獨遊戲列表/裝飾收費太貴)
 
+
+
+*****
+
+####  D-JoeII  
+##### 79#       发表于 2021-12-6 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53817391&amp;ptid=2040933" target="_blank">aruruu 发表于 2021-12-5 15:24</a>
+
+要是能和reddit一样方便地禁止讨论，twitter也逃不掉的
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1N ...</blockquote>
+twitter跟reddit是兩個世界,在Halo這事上面兩邊民眾一直在互噴
+
+還有4chan那種"我們在多人模式裡一分錢都不會花,你們reddit難民找我們幹嘛"純看戲的
+
+*****
+
+####  SICP  
+##### 80#       发表于 2021-12-6 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53822191&amp;ptid=2040933" target="_blank">peterhuass 发表于 2021-12-5 23:26</a>
+
+这不就我们元旦放完等过年吗</blockquote>
+差不多，不过因为疫情，今年大部分时间都是这个状态，WFH导致开发效率都大幅下降
+
