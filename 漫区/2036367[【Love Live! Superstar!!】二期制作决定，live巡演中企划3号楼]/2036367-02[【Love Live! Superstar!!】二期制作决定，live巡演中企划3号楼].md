@@ -675,3 +675,12 @@ n多00后，奔三大龄宅慎加</blockquote>有年轻人好事情啊<img src="
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ykyin09  
+##### 1563#       发表于 2021-12-6 13:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现nagi原来就比小百合高一点点，星团倒数第二。
+

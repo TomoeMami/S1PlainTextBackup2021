@@ -2755,3 +2755,16 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  最好不说  
+##### 1729#       发表于 2021-12-6 13:09
+
+<blockquote>nvis 发表于 2021-12-6 13:04
+说明未检测的人越来越少了
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我觉得是测得少了，从南非之前几波来看这确诊数还远没到顶峰
+
