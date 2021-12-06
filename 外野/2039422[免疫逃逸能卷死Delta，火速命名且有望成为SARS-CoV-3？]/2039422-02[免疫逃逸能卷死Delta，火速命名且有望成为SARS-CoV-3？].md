@@ -2682,3 +2682,26 @@ delta也是9成以上是轻症啊
 
 [https://www.nytimes.com/2021/12/ ... -omicron-cases.html](https://www.nytimes.com/2021/12/05/nyregion/nyc-anime-convention-omicron-cases.html)
 
+
+
+*****
+
+####  中二骚年  
+##### 1722#       发表于 2021-12-6 11:05
+
+，
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825565&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-6 10:49</a>
+
+新乡时报主动吹哨  欧米克隆在WHO 命名之前就存在美国
+
+他们戴着荧光假发，披着金色流苏的斗篷。他们穿着过 ...</blockquote>
+别给Fake News贴金了，真要吹哨就在南非报告之前吹，现在顶多是吹箫
+
+*****
+
+####  365702240  
+##### 1723#       发表于 2021-12-6 11:05
+
+哎，美国一朋友公司有个人确诊了，现在团队全部居家隔离，她还是个密接的密接<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">希望那个确诊的不是Omicron
+

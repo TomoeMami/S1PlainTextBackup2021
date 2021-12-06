@@ -602,3 +602,15 @@ sayu这表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 有liella的聊天吹水群么，周围就我一人追活动挺难受的</blockquote>
 NO10字幕组的群，群号在B站的字幕组号上有
 
+
+
+*****
+
+####  player3960  
+##### 1556#       发表于 2021-12-6 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825738&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-12-06 11:01:38</a>
+n多00后，奔三大龄宅慎加</blockquote>有年轻人好事情啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
