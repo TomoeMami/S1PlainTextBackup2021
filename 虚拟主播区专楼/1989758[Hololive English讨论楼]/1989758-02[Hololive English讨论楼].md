@@ -84,3 +84,13 @@ AME I KNEEL
 
 cooooool<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PureIllusion  
+##### 1510#       发表于 2021-12-6 10:08
+
+好事
+然而 Rigger PTSD 的我一点都兴奋不起来
+
