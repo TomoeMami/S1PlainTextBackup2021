@@ -1528,3 +1528,64 @@ VirtualMusicAward2021，12月29，下午晚上两场，票价各4000
 
 能不能说意料之中情理之中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 9120#       发表于 2021-12-6 12:04
+
+<img src="https://img.saraba1st.com/forum/202112/06/120153z04phf3fx7prcd4m.png" referrerpolicy="no-referrer">
+
+<strong>101.png</strong> (65.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 12:01 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/120159my9v0yzk3eqg98vr.png" referrerpolicy="no-referrer">
+
+<strong>102.png</strong> (85.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 12:01 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/120204qippvaaeafei3cfd.png" referrerpolicy="no-referrer">
+
+<strong>103.png</strong> (70.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/120208iod11dodoo6o9lmk.png" referrerpolicy="no-referrer">
+
+<strong>104.png</strong> (58.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 12:02 上传
+
+bsyl，封口告知<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+对推上抱怨的cast
+
+※罰を与える※　
+
+
+
+*****
+
+####  hulaoda007  
+##### 9121#       发表于 2021-12-6 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真飞鸟i  
+##### 9122#       发表于 2021-12-6 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么日本还要管虚拟陪酒的健全性。柿子挑软的捏是吧。
+
