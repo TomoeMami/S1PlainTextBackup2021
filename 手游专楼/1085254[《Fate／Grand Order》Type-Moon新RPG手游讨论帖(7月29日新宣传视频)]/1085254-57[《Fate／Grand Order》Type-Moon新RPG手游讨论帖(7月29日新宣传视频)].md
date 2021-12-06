@@ -6793,3 +6793,14 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 今天会有事发生吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必然无事发生 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84607#       发表于 2021-12-6 17:12
+
+中日英韩语公告只是说不要解包算不算新闻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

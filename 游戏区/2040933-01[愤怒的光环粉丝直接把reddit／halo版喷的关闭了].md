@@ -1102,3 +1102,19 @@ cod战地光环，到底哪部才是今年最垃圾的啊</blockquote>
 数毛社说xss战役的画质模式只能1080p30fps，不知道正式版会不会改进，就现在表现出来的开发能力其实挺让 ...</blockquote>
 XSS画质模式1080 30也要喷了么，这不就是正常状态
 
+
+
+*****
+
+####  shlovekd  
+##### 101#       发表于 2021-12-6 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825655&amp;ptid=2040933" target="_blank">FUZE 发表于 2021-12-6 10:55</a>
+
+那明显是2042
+
+毕竟COD也好 HALO也罢 那属于能玩 
+
+2042现在人均跳出 属于不能玩 ...</blockquote>
+我感觉没准现在的跳出是故意针对老玩家查kd的，只要不查积分榜不换小队就不会跳出。考虑到dice 一直推的人人都是赢家的理念。。。。
+

@@ -1239,3 +1239,24 @@ There will be normal LoL stream at this rate
 
 怎么回事呢？
 
+
+
+*****
+
+####  asdhai  
+##### 13624#       发表于 2021-12-6 17:00
+
+这不谢谢狐姨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nian1538| + 1|谢谢フブキング|
+
+查看全部评分
+
