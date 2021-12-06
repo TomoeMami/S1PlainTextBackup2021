@@ -1429,3 +1429,12 @@ How does this dumb bitch have such a big fanbase, she's not even entertaining.
 
 聊了四个多小时了草，念一会儿话题就跑偏。
 
+
+
+*****
+
+####  夏小筱ss  
+##### 13644#       发表于 2021-12-6 23:15
+
+绫总播了三小时，会不会是在刷这个月的数据，好心安理得的偷懒
+

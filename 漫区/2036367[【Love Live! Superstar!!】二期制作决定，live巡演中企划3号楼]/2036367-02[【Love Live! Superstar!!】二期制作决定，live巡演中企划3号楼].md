@@ -877,3 +877,14 @@ sayu在推上搞十万粉感谢随机回复福利，试着用机翻塑料日语�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看到举报就是了，叔叔家别的不说，现在举报反馈还挺快的
 
+
+
+*****
+
+####  cat1230  
+##### 1584#       发表于 2021-12-6 23:10
+
+三团倒计时是咋安排的，25开始第一天是尚未，水虹星是9+12+5=26，最后一个报数的是0？从25-0这样么？
+
+应该是按年龄来排序的吧，最年轻的是尚未<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
