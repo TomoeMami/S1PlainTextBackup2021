@@ -583,3 +583,22 @@ sayu这表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 
 【Liyuu主演 塞壬《Polaris》MV-哔哩哔哩】[https://b23.tv/IfFnIGW](https://b23.tv/IfFnIGW)
 
+
+
+*****
+
+####  cybernetics31  
+##### 1554#       发表于 2021-12-6 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">星团5个人都有粉丝群，鲤鱼粉丝群刚开3群，10组有公开群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">n多00后，奔三大龄宅慎加
+
+*****
+
+####  名津流  
+##### 1555#       发表于 2021-12-6 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53822859&amp;ptid=2036367" target="_blank">A0171050 发表于 2021-12-6 00:46</a>
+
+有liella的聊天吹水群么，周围就我一人追活动挺难受的</blockquote>
+NO10字幕组的群，群号在B站的字幕组号上有
+

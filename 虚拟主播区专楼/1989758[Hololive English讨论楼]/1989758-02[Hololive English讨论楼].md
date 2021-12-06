@@ -94,3 +94,17 @@ cooooool<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" re
 好事
 然而 Rigger PTSD 的我一点都兴奋不起来
 
+
+
+*****
+
+####  wuzhengkai  
+##### 1511#       发表于 2021-12-6 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825048&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-12-6 10:08</a>
+
+好事
+
+然而 Rigger PTSD 的我一点都兴奋不起来</blockquote>
+根据刚刚ame说好像是same mama and papa (as before) 不知道是不是所有人都是这样
+
