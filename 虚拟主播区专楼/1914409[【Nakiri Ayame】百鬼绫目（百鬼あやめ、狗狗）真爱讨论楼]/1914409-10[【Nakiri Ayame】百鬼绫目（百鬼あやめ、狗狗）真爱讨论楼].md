@@ -1373,3 +1373,20 @@ leileleile
 
 差点以为主播也落网了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cctvyt1  
+##### 13638#       发表于 2021-12-6 21:17
+
+绫总「好久没读SC了 好怀念」
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stedckk  
+##### 13639#       发表于 2021-12-6 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">太多人生日了吧
+
