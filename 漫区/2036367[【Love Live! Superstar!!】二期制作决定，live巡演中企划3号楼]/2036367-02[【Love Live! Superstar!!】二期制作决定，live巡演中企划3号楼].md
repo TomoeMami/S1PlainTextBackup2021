@@ -614,3 +614,19 @@ n多00后，奔三大龄宅慎加</blockquote>有年轻人好事情啊<img src="
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 1557#       发表于 2021-12-6 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825738&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-12-6 11:01</a>
+
+星团5个人都有粉丝群，鲤鱼粉丝群刚开3群，10组有公开群n多00后，奔三大龄宅慎加 ...</blockquote>
+确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我最近在几个粉丝群和组群看那帮高中生和现役大学生讨论未来的时候
+
+人生第一次产生了被青春的光辉晃到眼睛的感受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
