@@ -12228,3 +12228,18 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 熟悉的午夜噩梦图奇要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 5910#       发表于 2021-12-6 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53830481&amp;ptid=2018830" target="_blank">TiHaru 发表于 2021-12-6 17:33</a>
+星川gbr这种不就是抄你麻作业的小废物吗
+
+山田感觉像是另一个世界线，再认真一些的麻，还是和其他代不一样 ...</blockquote>
+要是有天狗不当发言楼我肯定把这层挂上去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
