@@ -1212,3 +1212,21 @@ There will be normal LoL stream at this rate
 
 狐皇到底收了绫总什么好处，每次都帮她打掩护
 
+
+
+*****
+
+####  一仙  
+##### 13621#       发表于 2021-12-6 16:05
+
+大概还是属于姨对绫的溺爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cctvyt1  
+##### 13622#       发表于 2021-12-6 16:12
+
+不如说绫总有什么把柄在狐皇手上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+连动都会来
+
