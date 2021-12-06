@@ -1651,3 +1651,20 @@ bsyl，封口告知<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 这种日版临时工裁了就裁了，资本家需要犹豫什么
 
+
+
+*****
+
+####  OldGlory  
+##### 9130#       发表于 2021-12-6 14:18
+
+一人offpako直接炒掉50人鱿鱼，什么超级连坐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sgssk  
+##### 9131#       发表于 2021-12-6 14:18
+
+有花这个V浓度可真是大幅降低了（x）
+<img src="https://wx1.sinaimg.cn/large/008q4Iu3ly1gx43841yy7g305o0a0hdv.gif" referrerpolicy="no-referrer">
+

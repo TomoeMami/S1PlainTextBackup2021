@@ -2793,3 +2793,15 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 这两天是周末…………
 
+
+
+*****
+
+####  L.L  
+##### 1732#       发表于 2021-12-6 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827106&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-6 12:44</a>
+
+南非报告新增11125例新冠肺炎确诊病例，新冠检测阳性率为23.8%。有意思，阳性率还在升但确诊数却回落了[f:0 ...</blockquote>
+昨天周日.在确诊上新冠也是过周日的。
+
