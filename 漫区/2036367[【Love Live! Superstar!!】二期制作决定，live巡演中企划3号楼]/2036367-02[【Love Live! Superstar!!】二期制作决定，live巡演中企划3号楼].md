@@ -923,3 +923,16 @@ B站的综合热门榜排第一个
 
 sayu这回得好认真，3000条目前回复10几条可以理解，果然我这种机翻的很难被选上<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saglork  
+##### 1588#       发表于 2021-12-7 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53834408&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-6 23:10</a>
+三团倒计时是咋安排的，25开始第一天是尚未，水虹星是9+12+5=26，最后一个报数的是0？从25-0这样么？
+
+应该 ...</blockquote>
+应该是25-1，少一个水团休养中的king
+
