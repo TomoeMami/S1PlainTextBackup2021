@@ -2824,3 +2824,29 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 
 就算 Omicon 都是轻症，只要不清零，迟早还会出现其他变种的。这才两年多，好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 1735#       发表于 2021-12-7 00:23
+
+三条消息
+
+首先是条旧闻，eNCA11月30日对南非最大医院ICU主任的采访（视频见油管），提到普通新冠病房和ICU全部爆满，还启用了500个类似方舱的紧急设施，南非卫生部长3号却表示医院没受到影响<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+然后是今天的，南非国家卫生部阻止南非医学研究理事会(SAMRC)的研究人员从电子疫苗接种数据系统获取数据。综合这两条，我觉得南非官方的数据可信度跟印度差不多
+
+最后英国新增90例omicron确诊，明面上已经超过南非成第一了，但我觉得真实数据排第一的肯定不是带英也不是南非<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 1736#       发表于 2021-12-7 00:27
+
+<blockquote>最好不说 发表于 2021-12-7 00:23
+三条消息
+
+首先是条旧闻，eNCA11月30日对南非最大医院ICU主任的采访（视频见油管），提到普通新冠病房和ICU ...</blockquote>
+南非不是好几千新变种？
+
