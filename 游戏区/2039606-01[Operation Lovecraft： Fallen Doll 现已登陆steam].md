@@ -1221,3 +1221,15 @@ closed beta开了，云鉴黄师们来冲一波了
 
 风怒
 
+
+
+*****
+
+####  diablo5  
+##### 120#       发表于 2021-12-6 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53785223&amp;ptid=2039606" target="_blank">超人越神 发表于 2021-12-2 17:04</a>
+
+没出完，还在更新，只是汉化组解散了没有新的汉化了</blockquote>
+我以为上了steam就是完整版了
+

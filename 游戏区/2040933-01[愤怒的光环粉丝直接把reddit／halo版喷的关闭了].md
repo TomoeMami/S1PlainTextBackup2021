@@ -1090,3 +1090,15 @@ cod战地光环，到底哪部才是今年最垃圾的啊</blockquote>
 
 這次光環和COD/BF評分都不是一個級別的,而且不要把reddit玩家當成所有人的感想比較好
 
+
+
+*****
+
+####  zid99825  
+##### 100#       发表于 2021-12-6 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53824717&amp;ptid=2040933" target="_blank">aruruu 发表于 2021-12-6 09:40</a>
+
+数毛社说xss战役的画质模式只能1080p30fps，不知道正式版会不会改进，就现在表现出来的开发能力其实挺让 ...</blockquote>
+XSS画质模式1080 30也要喷了么，这不就是正常状态
+
