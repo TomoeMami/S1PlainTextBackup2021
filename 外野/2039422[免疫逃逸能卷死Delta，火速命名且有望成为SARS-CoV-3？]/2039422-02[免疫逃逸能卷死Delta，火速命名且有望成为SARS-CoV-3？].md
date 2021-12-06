@@ -2768,3 +2768,14 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 我觉得是测得少了，从南非之前几波来看这确诊数还远没到顶峰
 
+
+
+*****
+
+####  天使日又日  
+##### 1730#       发表于 2021-12-6 13:34
+
+我觉得是南非当地的每日检测能力已经到顶了
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -9007,3 +9007,13 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 【千舰巨物回cue星瞳，直呼星瞳瞳比并表示联动需要tx拿出态度-哔哩哔哩】https://b23.tv/W5thN0G 文静拿星瞳当素材望周知
 
+
+
+*****
+
+####  本间日阳  
+##### 4031#       发表于 2021-12-6 13:33
+
+<img src="https://p.sda1.dev/3/9c56a8f4497b3f508ba8604b6f0f0600/IMG_CMP_222192878.jpeg" referrerpolicy="no-referrer">
+这条动态是不是唯一没提到艾瑞思？我真的不敢想了！
+
