@@ -794,3 +794,33 @@ IMG_5626.PNG
 
 <img src="https://img.saraba1st.com/forum/202112/06/232420vstu5zqs0t6rkej1.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  autapomorphy  
+##### 62#       发表于 2021-12-7 01:04
+
+<img src="https://img.saraba1st.com/forum/202112/07/010415adbabdua888k81kk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-7 01:04 上传
+
+我tm笑死
+
+*****
+
+####  mustforver  
+##### 63#       发表于 2021-12-7 01:22
+
+<img src="https://img.saraba1st.com/forum/202112/07/012202qwll5tdttw4v6wet.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-7 01:22 上传
+

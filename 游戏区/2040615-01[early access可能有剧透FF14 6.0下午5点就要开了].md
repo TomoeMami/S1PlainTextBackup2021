@@ -1150,3 +1150,23 @@ lga有就算了，怎么这还有强度魔怔人，扯强度好歹到6.05技改
 
 打完造物院后到离开エルピス这一整段演出实在是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kangkangsama  
+##### 116#       发表于 2021-12-7 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53835368&amp;ptid=2040615" target="_blank">onemoment 发表于 2021-12-7 00:37</a>
+
+打完造物院后到离开エルピス这一整段演出实在是太棒了</blockquote>
+最后那任务：生まれ死んで答を得る
+
+直接就是Answer最后一句歌词
+
+syl
+
+大屁股让最后光战那一笑帅到我了
+
+或者说6.0比之前更体现出光战真的帅
+
