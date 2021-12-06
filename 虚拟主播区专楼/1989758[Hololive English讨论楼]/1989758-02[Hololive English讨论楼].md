@@ -144,3 +144,14 @@ gura的l2d能不能换一个啊，之前那个被人骂死了
 
 Moona选曲sense好评<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 1516#       发表于 2021-12-6 22:30
+
+moona今天歌回成功上万了。
+虽然挺不起眼的，但是一直以来的努力都没有白费啊。
+辛苦了moona
+

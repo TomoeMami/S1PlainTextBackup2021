@@ -6804,3 +6804,12 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  zore  
+##### 84608#       发表于 2021-12-6 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不更新就不会被解包
+

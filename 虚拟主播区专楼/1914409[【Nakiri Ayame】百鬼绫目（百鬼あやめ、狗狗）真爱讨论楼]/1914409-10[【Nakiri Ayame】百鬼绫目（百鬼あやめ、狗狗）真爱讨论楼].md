@@ -1406,3 +1406,26 @@ leileleile
 
 考虑到近半年估计都不会有下一次读SC，那么未来半年的都可以说自己生日
 
+
+
+*****
+
+####  nian1538  
+##### 13642#       发表于 2021-12-6 22:35
+
+&gt;be me 
+&gt;Never watched ayame before 
+&gt;Excited to catch her first stream in months 
+&gt;Crocodile tears 
+&gt;Shills her figurine 
+&gt;Immediately launches into superchat reading 
+
+How does this dumb bitch have such a big fanbase, she's not even entertaining.
+
+*****
+
+####  一仙  
+##### 13643#       发表于 2021-12-6 22:38
+
+聊了四个多小时了草，念一会儿话题就跑偏。
+
