@@ -807,3 +807,19 @@ bsyl,我感觉我想法有点直男了<img src="https://static.saraba1st.com/ima
 果然是夏天也就是大概78月时拍的<img src="https://p.sda1.dev/3/154a880d57a524746c84f24e84bfdf82/IMG_CMP_50374271.png" referrerpolicy="no-referrer">
 sayu在推上搞十万粉感谢随机回复福利，试着用机翻塑料日语回复了下，估计2000多条也不会回复到我（
 
+
+
+*****
+
+####  lj205  
+##### 1578#       发表于 2021-12-6 17:33
+
+就是拍常夏那会顺便拍的吧？怀念直播唠嗑<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 1579#       发表于 2021-12-6 17:41
+
+和菜宝的节目应该快了
+

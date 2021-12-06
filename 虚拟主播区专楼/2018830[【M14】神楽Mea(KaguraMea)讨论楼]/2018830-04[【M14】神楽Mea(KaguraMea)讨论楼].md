@@ -12096,3 +12096,56 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 说是今天可能播吧，过不过12点是不是老鼠台就不一定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TiHaru  
+##### 5896#       发表于 2021-12-6 17:25
+
+补了holox山田的几次推限，像是无snp+串民+独角兽特化的小麻，可代<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+如果你进了杏会也像这样闪闪发光吗
+
+*****
+
+####  雪风utopia  
+##### 5897#       发表于 2021-12-6 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53830380&amp;ptid=2018830" target="_blank">TiHaru 发表于 2021-12-6 17:25</a>
+补了holox山田的几次推限，像是无snp+串民+独角兽特化的小麻，可代
+
+如果你进了杏会也像这样闪闪发 ...</blockquote>
+不会，会像佐藤希一样大摆特摆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 5898#       发表于 2021-12-6 17:28
+
+ 本帖最后由 时间在我手中 于 2021-12-6 17:30 编辑 
+
+想多了，进了还去掉这些，那还是所谓，吊人吗
+
+而且说到代餐这玩意儿，以前日报组加官组小狼窝还有些什么乱七八糟地方的某些人不就找了星川吗
+
+我个人来说，找个银发美少女galgame代都不会找同样是V的人，对这圈现在隔阂是真的大
+
+*****
+
+####  TiHaru  
+##### 5899#       发表于 2021-12-6 17:33
+
+星川gbr这种不就是抄你麻作业的小废物吗
+
+山田感觉像是另一个世界线，再认真一些的麻，还是和其他代不一样的
+
+*****
+
+####  时间在我手中  
+##### 5900#       发表于 2021-12-6 17:37
+
+随你怎么说，代就是代
+
+我还是以前那句话，自己就是自己，而不是什么狗屁代餐。
+
