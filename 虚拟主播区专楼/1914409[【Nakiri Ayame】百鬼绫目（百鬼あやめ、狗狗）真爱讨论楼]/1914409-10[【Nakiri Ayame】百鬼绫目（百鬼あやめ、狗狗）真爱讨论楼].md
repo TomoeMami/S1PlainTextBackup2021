@@ -1438,3 +1438,38 @@ How does this dumb bitch have such a big fanbase, she's not even entertaining.
 
 绫总播了三小时，会不会是在刷这个月的数据，好心安理得的偷懒
 
+
+
+*****
+
+####  一仙  
+##### 13645#       发表于 2021-12-6 23:46
+
+<img src="https://img.saraba1st.com/forum/202112/06/234627eciiq74dil42kd7m.png" referrerpolicy="no-referrer">
+
+<strong>20211206234606.png</strong> (8.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 23:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿色子龙  
+##### 13646#       发表于 2021-12-6 23:47
+
+ 本帖最后由 绿色子龙 于 2021-12-6 23:48 编辑 
+
+但是同接记录已经定了，继续播下去会拉低“时薪”的数据啊
+
+终于念了一半了，还剩下1W5人
+
+*****
+
+####  我不是很好  
+##### 13647#       发表于 2021-12-6 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

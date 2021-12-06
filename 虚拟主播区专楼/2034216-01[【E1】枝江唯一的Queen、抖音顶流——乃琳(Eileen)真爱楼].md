@@ -4011,3 +4011,12 @@ Sanlow，给个痛快
 
 该养会后空翻的猫钓乃宝了<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  primavera  
+##### 309#       发表于 2021-12-6 23:47
+
+一周年直播出国风新团曲的话，乃宝的单曲大概要避免在团曲之下毫无热度所以会再往后稍稍，大概稍一个月？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

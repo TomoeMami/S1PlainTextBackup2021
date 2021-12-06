@@ -1086,3 +1086,13 @@ elpis那段一上来我也觉得太过服务同人女了（虽然也不算坏事
 一流浪汉突然跑过来说让我吃点妈水晶我好变个神龙去宇宙帮忙（学姐还真 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">甩不掉，后面还得开重建加雷马呢
 
+
+
+*****
+
+####  江城诀丶  
+##### 110#       发表于 2021-12-6 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">lga有就算了，怎么这还有强度魔怔人，扯强度好歹到6.05技改
+群里拉完屎跑来S1拉，破防的样子真靓仔
+
