@@ -1456,3 +1456,75 @@ VirtualMusicAward2021，12月29，下午晚上两场，票价各4000
 让我心生芥蒂最终退却的是绝对天使、虚拟养蛊、游戏部、Azulim等一连串现实中的纠葛与压迫反映到虚拟世界的炎上事件。我意识到真正的虚拟是不存在的，就好像大人毁掉孩子的幻想一般。
 浪潮退去，业界与网民失去了互相的信任与尊重。人们对管人的态度从尊重与热爱变为怀疑与消费。最终收敛于套皮主播。
 
+
+
+*****
+
+####  winda  
+##### 9118#       发表于 2021-12-6 11:54
+
+<img src="https://img.saraba1st.com/forum/202112/06/115204ryeetyfzqc2lupzc.png" referrerpolicy="no-referrer">
+
+<strong>01.png</strong> (67.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/115211k767yyl66lmm6lm3.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (73.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/115218kzsoooawy5tyooeg.png" referrerpolicy="no-referrer">
+
+<strong>03.png</strong> (88.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/115224mm6sib9dd9m9699m.png" referrerpolicy="no-referrer">
+
+<strong>04.png</strong> (95.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/115233jo4hllohwiw8zuun.png" referrerpolicy="no-referrer">
+
+<strong>05.png</strong> (78.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/115238ppbrxtrfq7g0qrp0.png" referrerpolicy="no-referrer">
+
+<strong>06.png</strong> (83.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202112/06/115243fn9umgen4hy8hxmn.png" referrerpolicy="no-referrer">
+
+<strong>07.png</strong> (83.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 11:52 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">因为服务的健全性存疑而取消企划，草台还是ankr草台
+
+*****
+
+####  托帕帕  
+##### 9119#       发表于 2021-12-6 11:55
+
+能不能说意料之中情理之中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

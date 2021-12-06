@@ -2705,3 +2705,12 @@ delta也是9成以上是轻症啊
 
 哎，美国一朋友公司有个人确诊了，现在团队全部居家隔离，她还是个密接的密接<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">希望那个确诊的不是Omicron
 
+
+
+*****
+
+####  larthasliu  
+##### 1724#       发表于 2021-12-6 11:46
+
+重症率哪怕只有1%，感染100w就有1w人会可能挂掉，谁能保证这个倒霉蛋不是你的
+
