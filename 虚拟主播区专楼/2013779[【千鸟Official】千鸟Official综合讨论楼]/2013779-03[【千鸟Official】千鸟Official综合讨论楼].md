@@ -9041,3 +9041,14 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 看不懂这动态内容 在说啥游戏啊
 男女主交流的话 现在国内市场主流基本只有女性向类的 又在未定之前 不懂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4034#       发表于 2021-12-6 14:35
+
+应该是昨晚游戏回之后艾白提到最近在玩一个手游很上头
+
+叫花亦山心之月来着
+

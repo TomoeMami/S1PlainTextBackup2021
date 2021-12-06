@@ -2805,3 +2805,22 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 南非报告新增11125例新冠肺炎确诊病例，新冠检测阳性率为23.8%。有意思，阳性率还在升但确诊数却回落了[f:0 ...</blockquote>
 昨天周日.在确诊上新冠也是过周日的。
 
+
+
+*****
+
+####  ntrntr1  
+##### 1733#       发表于 2021-12-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811898&amp;ptid=2039422" target="_blank">xiaoba329 发表于 2021-12-4 23:05</a>
+
+一个认识的老乡（上一辈）在英国好像因为新冠去世了，听说当年他准备黑在英国前还和周围人说过“英 ...</blockquote>
+英女王：我儿子都没等到，你算老几<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 1734#       发表于 2021-12-6 14:40
+
+就算 Omicon 都是轻症，只要不清零，迟早还会出现其他变种的。这才两年多，好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

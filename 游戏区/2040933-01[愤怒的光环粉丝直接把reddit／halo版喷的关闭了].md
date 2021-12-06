@@ -1049,3 +1049,35 @@ cod战地光环，到底哪部才是今年最垃圾的啊</blockquote>
 
 另外战地这个问题吧，ea对这种看门作品规很详细的，我记得5出来没多久就说今年新作了，到关头了都没理清再拖一年无非也就是再混乱一年而已
 
+
+
+*****
+
+####  Paradox7  
+##### 96#       发表于 2021-12-6 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825681&amp;ptid=2040933" target="_blank">高龙 发表于 2021-12-6 10:58</a>
+
+其实吧，如果战地2042打磨一下明年初再出，没准就达成复兴了。2042一股子有想法，但是急着出没做完的感觉 ...</blockquote>
+那个破地图已经是没救了，玩了几个小时新图我就只想玩门户的前代老图了
+
+*****
+
+####  高龙  
+##### 97#       发表于 2021-12-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53826770&amp;ptid=2040933" target="_blank">爱护动物抓根宝 发表于 2021-12-6 12:19</a>
+
+其实还是内容不足，如果343能拍胸脯打包票联机战役自定义forge光追统统三天后准时上线，就算到时候一堆bug ...</blockquote>
+肯定没戏。看PVP的完成度，也就没有大BUG，然后就那样了。
+
+*****
+
+####  高龙  
+##### 98#       发表于 2021-12-6 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53828182&amp;ptid=2040933" target="_blank">Paradox7 发表于 2021-12-6 14:25</a>
+
+那个破地图已经是没救了，玩了几个小时新图我就只想玩门户的前代老图了 ...</blockquote>
+是的，地图不行，尤其是有高楼的图，这方面指望第一季更新时改模式和出新图吧。
+
