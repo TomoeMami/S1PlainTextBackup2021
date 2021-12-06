@@ -9143,3 +9143,16 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4046#       发表于 2021-12-6 18:51
+
+‘等于说以前在出租屋过圣诞是吧？我要闹了’
+
+“放屁”
+
+这语气怎么回事呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

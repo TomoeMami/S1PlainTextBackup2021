@@ -1771,3 +1771,49 @@ yuka可爱可爱  没怎么关注推特帮大忙了
 不知道大家怎么想。
 我是觉得有种说不出的不上不下的感觉。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9143#       发表于 2021-12-6 18:44
+
+<img src="https://img.saraba1st.com/forum/202112/06/184227uh6ir3w46rllafa8.png" referrerpolicy="no-referrer">
+
+<strong>#狂気山脈アニメ映画化プロジェクト【ご報告】主題歌アーティストが「ヰ世界.png</strong> (37.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 18:42 上传
+
+ <blockquote>先日、KAMITSUBAKI STUDIOが今後手掛けるプロジェクトの中に、
+
+TRPG企画『神椿市建設中。NARRATIVE』があること、
+
+そしてその制作に僕、まだら牛が関わらせていただくことが発表されました。
+
+今回こういったご縁があり、ヰ世界情緒さんに主題歌をお願いすることができました。</blockquote>
+
+*****
+
+####  ヒトニナル  
+##### 9144#       发表于 2021-12-6 18:54
+
+怎么说神椿神椿到的
+
+*****
+
+####  walfeds  
+##### 9145#       发表于 2021-12-6 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53831129&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-6 18:31</a>
+
+话说回来，想想神椿最近半年的招子。
+
+给黑潮之下唱主题曲。给muv唱便宜op
+
+把半场live给机动战队包了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说到这个还包圆了furyu那个寨版真女神转生if的曲子
+
+我觉得没什么不好的，不是玩票那能接单子才有持续性<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
