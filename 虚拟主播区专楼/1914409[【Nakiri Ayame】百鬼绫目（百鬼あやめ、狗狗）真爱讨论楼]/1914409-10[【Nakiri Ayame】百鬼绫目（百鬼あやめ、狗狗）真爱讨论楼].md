@@ -1177,3 +1177,20 @@ There will be normal LoL stream at this rate
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">卷的好  卷的绫总天天播
 
+
+
+*****
+
+####  nian1538  
+##### 13618#       发表于 2021-12-6 14:44
+
+白上フブキ🌽@光のホロライブ
+
+@shirakamifubuki
+
+余の配信がきたぞおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおおお
+
+皆のものぉおおおおおおおおおおおおおおおおおおおおおおおおお
+
+百鬼あやめの放送じゃあああああああああああああああああああああああああああああ
+

@@ -6781,3 +6781,15 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">今天会有事发生吗
 
+
+
+*****
+
+####  qixinno2  
+##### 84606#       发表于 2021-12-6 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53828227&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-6 14:29</a>
+
+今天会有事发生吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必然无事发生 
+

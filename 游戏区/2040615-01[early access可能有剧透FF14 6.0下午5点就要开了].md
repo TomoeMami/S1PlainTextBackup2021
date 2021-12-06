@@ -825,3 +825,19 @@ S1在吹剧情爽
 
 — from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  TheOccuria  
+##### 89#       发表于 2021-12-6 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53828351&amp;ptid=2040615" target="_blank">kuglv 发表于 2021-12-6 14:40</a>
+
+问题是整个6.0流程上这个就是最后一战，你说要启下这整个节奏就不太对，也没在3.3结尾的时候就让你去启动 ...</blockquote>
+我觉得大屁股这场战斗算是尾声的一部分，就是拯救完世界后干什么。
+
+既然正事做完了，那首先当然是没任何心理压力的情况下解决这个牛皮糖啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+大屁股那边也是觉得你得回归冒险者的心态才能放手厮杀不才等到现在的
+
