@@ -2714,3 +2714,24 @@ delta也是9成以上是轻症啊
 
 重症率哪怕只有1%，感染100w就有1w人会可能挂掉，谁能保证这个倒霉蛋不是你的
 
+
+
+*****
+
+####  聪少  
+##### 1725#       发表于 2021-12-6 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53792642&amp;ptid=2039422" target="_blank">voluspa 发表于 2021-12-3 10:52</a>
+你要这么理解, 这是 Resilience (恢复), 我们现在的零星案例那能算疫情, 恢复得自然不好看... ...</blockquote>
+resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都不抱怨，resilience一定第一（手动狗头
+
+*****
+
+####  聪少  
+##### 1726#       发表于 2021-12-6 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53797435&amp;ptid=2039422" target="_blank">不热爱讨论 发表于 2021-12-3 16:49</a>
+楼里对线的真是鸡同鸭讲。
+清零的定义根本不一样还吵半天。</blockquote>
+因为一些人装外宾 总是试图混淆动态清零和绝对清零，屁股在哪里特别明显
+

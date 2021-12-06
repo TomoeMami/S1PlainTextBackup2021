@@ -706,3 +706,17 @@ Ow有多牛逼，6.0作为jrpg综合素质就有多牛逼，确实是超越了5.
 
 ↑我提到的这些还没有完全说明这段演出的内容，昨天晚上下播之后跟我cp分析了半天，简直跟做阅读理解一样，每一句台词，每一个分镜都能细细品味那种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  makar0601  
+##### 79#       发表于 2021-12-6 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825550&amp;ptid=2040615" target="_blank">八月琉璃 发表于 2021-12-6 10:48</a>
+虽然知道会出现某些套路剧情，不过看的时候还是很感动的
+就是能不能别再有大屁股之类的出现了 ...</blockquote>
+大屁股算是塑造救了下，结尾类似ff9库加了。比以前屁股胶水好不少
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
