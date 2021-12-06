@@ -834,3 +834,12 @@ sayu在推上搞十万粉感谢随机回复福利，试着用机翻塑料日语�
 
 就是本人就是本人
 
+
+
+*****
+
+####  kata魂  
+##### 1581#       发表于 2021-12-6 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可爱的啊~
+
