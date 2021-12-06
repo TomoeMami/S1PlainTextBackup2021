@@ -543,3 +543,16 @@ sayu这表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.pn
 
 我加了一个，九成大学生…………有几个特别闲……几乎随时都有人说话，有时话题走向不太对劲，不过每周live都很激情<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1551#       发表于 2021-12-6 09:23
+
+[https://animestari.com/lovelive/2020/09/25/rank_lovelive_39/](https://animestari.com/lovelive/2020/09/25/rank_lovelive_39/)
+
+排名测试，还蛮有准头的，毕竟是强制你二选一来排名。
+
+对我来说果然还是雪菜更重要（：D）
+

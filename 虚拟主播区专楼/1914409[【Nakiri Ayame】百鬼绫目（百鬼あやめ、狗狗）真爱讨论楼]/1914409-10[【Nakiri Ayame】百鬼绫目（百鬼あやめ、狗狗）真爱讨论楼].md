@@ -1120,3 +1120,14 @@ There will be normal LoL stream at this rate
 
 娜娜还敢给绫总画衣服？一年能穿几次哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13613#       发表于 2021-12-6 09:20
+
+这两天又看到好多人在辩到底什么才是虚拟Youtuber，感觉现在的绫总基本符合每一条定义了
+
+3D视频势基本不直播，中之人信息严格保密，扮演的是一个和中之人完全不同的集体创作出来的虚拟角色，人设靠观众的想象和同事补充设定，非常虚拟了
+

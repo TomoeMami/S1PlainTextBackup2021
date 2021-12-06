@@ -933,3 +933,23 @@ just a work
 实际上越这么吹越糟糕，**行那是做的不行，和光环开新篇章根本没关系。无限直接把四五全吃书开始大规模co ...</blockquote>
 343开发能力如果不是光环我觉得没啥问题，光环担子过于承重，战地剧情屎好像也没啥人在乎，光环不可能多人单人你都得给搞好
 
+
+
+*****
+
+####  ChrisSnake  
+##### 86#       发表于 2021-12-6 09:23
+
+和高尔夫形成鲜明对比
+
+*****
+
+####  aruruu  
+##### 87#       发表于 2021-12-6 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53824440&amp;ptid=2040933" target="_blank">BK10 发表于 2021-12-6 09:10</a>
+343不是开发能力低，而是项目管理不行，在加上年末放假，不过光环担子也过于承重，战地剧情屎好像也没啥人 ...</blockquote>
+数毛社说xss战役的画质模式只能1080p30fps，不知道正式版会不会改进，就现在表现出来的开发能力其实挺让人担心的
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
