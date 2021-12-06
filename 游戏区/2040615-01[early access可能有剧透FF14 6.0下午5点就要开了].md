@@ -671,3 +671,15 @@ afk三年乐。。。考虑下国际服
 打完了，感觉像玩了一个jrpg王道式剧情的outer wilds
 Ow有多牛逼，6.0作为jrpg综合素质就有多牛逼，确实是超越了5.0
 
+
+
+*****
+
+####  astrayveller  
+##### 76#       发表于 2021-12-6 10:01
+
+比起ow更像仙1的廻魂仙梦感觉
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">古代人的剧情真的好棒 当然法丹尼尔就是个
+
+— from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
