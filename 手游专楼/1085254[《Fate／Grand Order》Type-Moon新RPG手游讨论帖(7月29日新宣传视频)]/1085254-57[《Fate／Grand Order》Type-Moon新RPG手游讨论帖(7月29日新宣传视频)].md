@@ -6705,3 +6705,20 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 才想起来这个月票子还没扔，龙马二宝了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狗还是你狗
 
+
+
+*****
+
+####  zakki  
+##### 84600#       发表于 2021-12-6 10:40
+
+翻K岛发现个人和我的想法差不多。话说K岛应该是讨论型月设定和剧情氛围最好的地方了吧，相比fate吧只有养蛊垃圾场和无意义的论战
+
+<img src="https://img.saraba1st.com/forum/202112/06/104108kx8sxdvzjahrwdcn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211206103843.png</strong> (64.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 10:41 上传
+

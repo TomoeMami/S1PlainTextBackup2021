@@ -953,3 +953,18 @@ just a work
 
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  trentswd  
+##### 88#       发表于 2021-12-6 10:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要说我玩了这么多年游戏学会了什么东西
+
+那就是装死可以解决所有事情
+
+玩家在气头上，除非你能解决问题，否则回复什么都是点燃火药桶，特别是社区经理还敢和玩家对线？这搁国内手游，遇到这种事情已经群情激愤去应用商店打一星**退款了
+
+当然根本原因还是开发商/运营商解决不了问题，也不要把自己整的很无辜似的
+

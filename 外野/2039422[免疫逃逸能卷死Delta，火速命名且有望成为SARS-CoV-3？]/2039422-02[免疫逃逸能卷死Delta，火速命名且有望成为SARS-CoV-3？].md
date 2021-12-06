@@ -2635,3 +2635,15 @@ delta也是9成以上是轻症啊
 
 三哥的好日子还在后头<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  罗莉控  
+##### 1720#       发表于 2021-12-6 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53821604&amp;ptid=2039422" target="_blank">yuandi0120 发表于 2021-12-5 22:32</a>
+
+这也太扯淡了，现在最好有人出来揭露其实这个聚餐还有大家嘴对嘴互相喂饭的环节，或者干脆就是什 ...</blockquote>
+一个呆在挪威的知友说：圣诞聚餐对于挪威人的社交来说极其重要。他说他自己未来几天就有三个聚餐要参加
+
