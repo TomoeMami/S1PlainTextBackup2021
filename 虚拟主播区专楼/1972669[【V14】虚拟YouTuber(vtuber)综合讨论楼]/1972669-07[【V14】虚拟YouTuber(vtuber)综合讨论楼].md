@@ -1817,3 +1817,56 @@ TRPG企画『神椿市建設中。NARRATIVE』があること、
 
 我觉得没什么不好的，不是玩票那能接单子才有持续性<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 9146#       发表于 2021-12-6 20:05
+
+听了你虹的reflexion，这砖质量非常高啊，为啥没卖过pc，小红的want you want和巴的can you keep a secret简直超神发挥啊，你虹观众就喜欢千麻小蜜蜂这种野路子么
+
+*****
+
+####  rzrbtk  
+##### 9147#       发表于 2021-12-6 20:09
+
+虹人车情报（[https://twitter.com/Verde_Giada_111/status/1467768335400316928](https://twitter.com/Verde_Giada_111/status/1467768335400316928)），翡翠开cl7啊<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/06/200907a99rq1gthqrrh5zr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 20:09 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|转了同一条，缘分啊|
+
+查看全部评分
+
+*****
+
+####  Porsche  
+##### 9148#       发表于 2021-12-6 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CL7算什么 你看还有个开皇冠的，就是和国内最后一代同样车系的210
+
+*****
+
+####  渡鸦骑士  
+##### 9149#       发表于 2021-12-6 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53832221&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-12-6 20:05</a>
+听了你虹的reflexion，这砖质量非常高啊，为啥没卖过pc，小红的want you want和巴的can you keep a secret ...</blockquote>
+明显没人气基础啊。
+你虹有一部分观众没有跟上版本的动机<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

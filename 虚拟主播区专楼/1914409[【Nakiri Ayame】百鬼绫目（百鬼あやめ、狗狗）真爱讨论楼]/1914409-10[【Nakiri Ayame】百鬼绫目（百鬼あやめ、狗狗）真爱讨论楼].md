@@ -1260,3 +1260,61 @@ There will be normal LoL stream at this rate
 
 查看全部评分
 
+
+
+*****
+
+####  UnhappyTails  
+##### 13625#       发表于 2021-12-6 20:06
+
+leileleile
+
+*****
+
+####  a37356205  
+##### 13626#       发表于 2021-12-6 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总给自己不播找的理由：心情不好不想播
+
+*****
+
+####  Fami水  
+##### 13627#       发表于 2021-12-6 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心情差不想播，心情好不要播，心情不好不差没心思播 
+
+总之就是不播
+
+*****
+
+####  cctvyt1  
+##### 13628#       发表于 2021-12-6 20:15
+
+果然把自己整哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 13629#       发表于 2021-12-6 20:16
+
+うわ　泣きそう
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fami水  
+##### 13630#       发表于 2021-12-6 20:16
+
+又要哭了 一年前是不是也整过还是半年前
+
+*****
+
+####  a37356205  
+##### 13631#       发表于 2021-12-6 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">心情不好的原因：
+1.上声乐课看不到进步
+2.喉咙发炎状态不好
+3.原唱曲太难唱，收录中途精神崩溃跑去厕所哭
+
