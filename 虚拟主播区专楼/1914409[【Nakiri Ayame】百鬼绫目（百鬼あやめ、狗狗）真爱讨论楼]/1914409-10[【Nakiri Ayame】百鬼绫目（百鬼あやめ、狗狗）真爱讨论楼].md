@@ -1331,3 +1331,45 @@ leileleile
 
 感谢结果我摸摸，又菜又不播赠送的荧光棒
 
+
+
+*****
+
+####  天悬星河  
+##### 13633#       发表于 2021-12-6 20:42
+
+🥲活的这么简单感觉也挺好的
+
+*****
+
+####  nian1538  
+##### 13634#       发表于 2021-12-6 20:43
+
+小粥也太圣人了吧，被你们万组轮流精神冲击
+
+*****
+
+####  FCCHua  
+##### 13635#       发表于 2021-12-6 20:52
+
+不愧是你，倒是一如既往了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  因为你不会  
+##### 13636#       发表于 2021-12-6 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53832554&amp;ptid=1914409" target="_blank">UnhappyTails 发表于 2021-12-6 20:30</a>
+
+感谢原谅不原谅原谅赠送的一个粉丝灯牌
+
+感谢你怎么可能长六期志气，灭自己威风赠送的一个粉丝灯牌</blockquote>
+感谢还在嘴硬的舰长<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  昆西昆希昆  
+##### 13637#       发表于 2021-12-6 20:57
+
+差点以为主播也落网了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
