@@ -729,3 +729,25 @@ Ow有多牛逼，6.0作为jrpg综合素质就有多牛逼，确实是超越了5.
 
 刚刚打完了主线，只能说，呜呼，5.0是9分的话，6.0就是10分，石川超越了自己。。
 
+
+
+*****
+
+####  private920  
+##### 81#       发表于 2021-12-6 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53826996&amp;ptid=2040615" target="_blank">makar0601 发表于 2021-12-6 12:37</a>
+大屁股算是塑造救了下，结尾类似ff9库加了。比以前屁股胶水好不少
+
+—— 来自 motorola XT2153-1, Androi ...</blockquote>
+赞同，太像kuja了，所以单论大屁股这个我还是觉得叙事顺序很成问题。如果像9那样把他安排在最终战之前去世更好，而且6.0对最终boss的铺陈很细腻也比较完整，不会出现9里永恒之暗那么突兀的出现，可惜制作组想还“冒险者”以冒险的初心把与屁股的绝境solo放到了最后，只能说见仁见智了。至少在我这是绝对要扣分的。
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Luminous脑壳痛  
+##### 82#       发表于 2021-12-6 13:59
+
+大屁股太烦人了，对我来说就是纯来恶心我的
+

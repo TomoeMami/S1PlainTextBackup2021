@@ -2779,3 +2779,17 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 
 —— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  罗莉控  
+##### 1731#       发表于 2021-12-6 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827319&amp;ptid=2039422" target="_blank">nvis 发表于 2021-12-6 13:04</a>
+
+说明未检测的人越来越少了
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+这两天是周末…………
+

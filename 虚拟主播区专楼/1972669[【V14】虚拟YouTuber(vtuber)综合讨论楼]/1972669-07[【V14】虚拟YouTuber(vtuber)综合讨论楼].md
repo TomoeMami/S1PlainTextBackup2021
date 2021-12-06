@@ -1628,3 +1628,26 @@ bsyl，封口告知<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 想起一日按摩财报也是巨亏的 可能这种平台抽成比较低吧
 
+
+
+*****
+
+####  winda  
+##### 9128#       发表于 2021-12-6 13:48
+
+ 本帖最后由 winda 于 2021-12-6 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827182&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-12-6 12:51</a>
+
+要上市了砍掉不赚钱的东西而已 不会真有人信这种理由吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以阿裁的说明，是发现了cast和客人私联的情况，比如ff14和客人一起玩，后续还发展出了off pako的流言，但没有证据
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说得像那么回事细想还是很弱智，口了当初伪kerin组团ff14语音流出的时候怎么不把nijisanji也毙了呢，直接50人员工断舍离太狼性了
+
+哦，是个人事业主啊
+
+*****
+
+####  asdhai  
+##### 9129#       发表于 2021-12-6 13:56
+
+这种日版临时工裁了就裁了，资本家需要犹豫什么
+

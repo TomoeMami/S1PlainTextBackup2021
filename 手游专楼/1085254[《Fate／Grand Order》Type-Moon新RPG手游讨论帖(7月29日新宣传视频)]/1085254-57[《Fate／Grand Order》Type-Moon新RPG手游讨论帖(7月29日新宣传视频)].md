@@ -6722,3 +6722,53 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 
 2021-12-6 10:41 上传
 
+
+
+*****
+
+####  sosgame67  
+##### 84601#       发表于 2021-12-6 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825433&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-6 10:40</a>
+
+翻K岛发现个人和我的想法差不多。话说K岛应该是讨论型月设定和剧情氛围最好的地方了吧，相比fate吧只有养蛊 ...</blockquote>
+相对而言了..fate吧本体早就变成和汪吧一样的虚空大乱斗战力痴了，而且新生代找资料翻原文都不行只能虚空脑补<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84602#       发表于 2021-12-6 13:47
+
+翻页
+
+*****
+
+####  zakki  
+##### 84603#       发表于 2021-12-6 13:47
+
+翻页
+
+*****
+
+####  zakki  
+##### 84604#       发表于 2021-12-6 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827097&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-12-6 12:43</a>
+
+相对而言了..fate吧本体早就变成和汪吧一样的虚空大乱斗战力痴了，而且新生代找资料翻原文都不行只能虚空 ...</blockquote>
+我甚至可以列fate吧几大罪责<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一，建政人到处倾倒垃圾
+
+二，二刺猿手游日俄战争
+
+三，斗兽痴跨作品引战拉踩
+
+四，脑补设定虚空大战
+
+五，迦皇倒皇派保皇派党争
+
+六，老害曲解带节奏
+
+第六条是最恶心的，一帮子人高等级的“大佬”天天就不是追剧情看作品的，就是整天抓住点儿细枝末节带节奏恶心人的，打着型月给他们喂屎的旗号给其他正常人喂屎<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

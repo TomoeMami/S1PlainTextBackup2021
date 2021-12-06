@@ -9017,3 +9017,27 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 <img src="https://p.sda1.dev/3/9c56a8f4497b3f508ba8604b6f0f0600/IMG_CMP_222192878.jpeg" referrerpolicy="no-referrer">
 这条动态是不是唯一没提到艾瑞思？我真的不敢想了！
 
+
+
+*****
+
+####  小憨1  
+##### 4032#       发表于 2021-12-6 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827638&amp;ptid=2013779" target="_blank">本间日阳 发表于 2021-12-6 13:33</a>
+
+这条动态是不是唯一没提到艾瑞思？我真的不敢想了！</blockquote>
+放轻松，日常不带队长玩
+
+*****
+
+####  rgauss  
+##### 4033#       发表于 2021-12-6 13:55
+
+ 本帖最后由 rgauss 于 2021-12-6 14:02 编辑 
+
+艾瑞思不玩手游呗
+
+看不懂这动态内容 在说啥游戏啊
+男女主交流的话 现在国内市场主流基本只有女性向类的 又在未定之前 不懂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

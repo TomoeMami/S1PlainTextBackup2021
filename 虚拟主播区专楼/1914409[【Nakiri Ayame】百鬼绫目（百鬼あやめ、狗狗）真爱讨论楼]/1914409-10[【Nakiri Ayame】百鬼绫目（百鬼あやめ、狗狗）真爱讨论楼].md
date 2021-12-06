@@ -1149,3 +1149,22 @@ There will be normal LoL stream at this rate
 
 你的绫皇，无限猖狂！
 
+
+
+*****
+
+####  cctvyt1  
+##### 13616#       发表于 2021-12-6 13:58
+
+終於要開了
+
+大概就13號live回吧
+
+<img src="https://img.saraba1st.com/forum/202112/06/135743vke8e3tdknz8k88n.jpg" referrerpolicy="no-referrer">
+
+<strong>擷取.JPG</strong> (37.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-6 13:57 上传
+
