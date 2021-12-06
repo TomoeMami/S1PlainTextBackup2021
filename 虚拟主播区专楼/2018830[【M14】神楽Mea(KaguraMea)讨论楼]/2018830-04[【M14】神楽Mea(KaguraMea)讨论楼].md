@@ -12149,3 +12149,21 @@ bgm声大人声小老问题了，我现在干别的都听不清她说的啥，�
 
 我还是以前那句话，自己就是自己，而不是什么狗屁代餐。
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 5901#       发表于 2021-12-6 17:46
+
+没活了可以咬打火机，没事想代这代那的干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 5902#       发表于 2021-12-6 17:59
+
+谁是小代谁是通天代
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

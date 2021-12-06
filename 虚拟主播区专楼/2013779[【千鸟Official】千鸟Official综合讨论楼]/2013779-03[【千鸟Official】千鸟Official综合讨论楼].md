@@ -9068,3 +9068,21 @@ https://www.bilibili.com/video/BV1XL411M7a2</blockquote>
 
 去看了一眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老e这个皮套确实有亿点相似啊
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 4037#       发表于 2021-12-6 17:58
+
+今天的游戏回效果还行，方便说批话的纯剧情游戏适合发挥
+
+*****
+
+####  人民de救星  
+##### 4038#       发表于 2021-12-6 17:59
+
+静子她真的太会了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
