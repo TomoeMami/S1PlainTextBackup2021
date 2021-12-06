@@ -126,3 +126,12 @@ cooooool<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" re
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">搅拌器ame
 
+
+
+*****
+
+####  smy20011  
+##### 1514#         楼主| 发表于 2021-12-6 15:35
+
+gura的l2d能不能换一个啊，之前那个被人骂死了
+
