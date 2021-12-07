@@ -9698,3 +9698,22 @@ e那边也没想开战，现在就是缝十公拱火把他@过来了。缝十公
 老E应该是知道这件事了，换了一个皮
 不和文静计较，好人一生平安<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/6fb8de1c78de76dd0d0540c3d1466f01/0CE48C8E6F57664C2786E465CB4A0827.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ml1642879  
+##### 4108#       发表于 2021-12-7 16:05
+
+又是阴间时间直播<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 4109#       发表于 2021-12-7 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53840680&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-7 14:18</a>
+
+所以这次又是什么节奏</blockquote>
+“热心”网友帮千鸟引流。千鸟懒B不接。网友之后去倭瓜直播间控诉，被阑尾当场拿下。
+
