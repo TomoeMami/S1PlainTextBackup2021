@@ -6973,3 +6973,31 @@ cba来个30群充强化不过分吧
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Lokad  
+##### 84628#       发表于 2021-12-7 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53827097&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-12-6 12:43</a>
+
+相对而言了..fate吧本体早就变成和汪吧一样的虚空大乱斗战力痴了，而且新生代找资料翻原文都不行只能虚空 ...</blockquote>
+fate吧已经死了，没有新话题一点活跃度都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+fgo刚出的时候就各种轮战力了吧，吧内环境如此常常车轱辘那几个靶子。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yzj134100  
+##### 84629#       发表于 2021-12-7 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">池子页面改好了 又没完全改好  直接按池子给满很难吗
+
+*****
+
+####  qixinno2  
+##### 84630#       发表于 2021-12-7 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可是那个DW啊 能给你个100抽还不感恩戴德再充10单
+
