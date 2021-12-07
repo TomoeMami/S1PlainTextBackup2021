@@ -4038,3 +4038,16 @@ Sanlow，给个痛快
 
 温暖壁炉味道真的太上头了。我决定以后不给贵团打钱了，省钱下来买香水小样
 
+
+
+*****
+
+####  别叫我宅男  
+##### 312#       发表于 2021-12-8 01:47
+
+ 本帖最后由 别叫我宅男 于 2021-12-8 01:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53846576&amp;ptid=2034216" target="_blank">一般通过广纤 发表于 2021-12-7 21:34</a>
+
+ 温暖壁炉味道真的太上头了。我决定以后不给贵团打钱了，省钱下来买香水小样 ...</blockquote>
+喜欢就整瓶撸好啦<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">遇到合适的香水挺不容易的。s1还有香水楼，看着选选也不错。虽然好久没更新了
+

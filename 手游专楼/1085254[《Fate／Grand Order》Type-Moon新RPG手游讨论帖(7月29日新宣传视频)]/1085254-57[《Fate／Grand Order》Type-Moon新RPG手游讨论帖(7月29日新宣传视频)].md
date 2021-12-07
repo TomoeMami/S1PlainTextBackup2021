@@ -7177,3 +7177,27 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  KOBI  
+##### 84648#       发表于 2021-12-8 03:08
+
+ 本帖最后由 KOBI 于 2021-12-8 03:09 编辑 
+
+想想接下来限定三连就胃痛
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">暗狐狸（并不存在）千万别被WIKI老哥奶中是新绿拐。。
+
+*****
+
+####  J-002  
+##### 84649#       发表于 2021-12-8 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53848091&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-12-8 00:06</a>
+
+幸好有张起源弹，不然真就可以删游戏跑路了，好友里一个超人熊都没有
+
+第三管血尼玛130万，灵脉石 ...</blockquote>
+第三管血初始40w，然后增加剩下的鳞片数量x20w（5t内破2管血）/x7w5（超过5t破2管血）
+

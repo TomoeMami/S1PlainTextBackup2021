@@ -2966,3 +2966,12 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 看英国的曲线，D和O的交叉确实很可能早几天</blockquote>
 丹麦直接投了估计带英也不远了，现在官方报的日增上百，但内鬼已经捅出来早就日增上千了<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windrarara  
+##### 1749#       发表于 2021-12-8 02:03
+
+离上次三哥当街烧人才半年，这就又来了吗
+
