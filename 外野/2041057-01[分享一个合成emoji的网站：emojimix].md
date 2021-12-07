@@ -871,3 +871,47 @@ IMG_5626.PNG
 
 <img src="https://p.sda1.dev/3/48ebaa8bdd9278306d7e04d02dc40a26/u1f605_u1f910.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lzrtwilight  
+##### 66#       发表于 2021-12-7 11:27
+
+ 本帖最后由 lzrtwilight 于 2021-12-7 11:28 编辑 
+
+[https://tikolu.net/emojimix/](https://tikolu.net/emojimix/)🤮+😷
+不许吐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+image.png
+(28.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-7 11:27 上传
+
+<img src="https://img.saraba1st.com/forum/202112/07/112727kd9c775ww7ald1tn.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牙签塞牙  
+##### 67#       发表于 2021-12-7 11:34
+
+没有青蛙啊
+
+*****
+
+####  韩子  
+##### 68#       发表于 2021-12-7 11:40
+
+呕吐+拉链嘴笑到打鸣
+
+*****
+
+####  璃絵和花瑠  
+##### 69#         楼主| 发表于 2021-12-7 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53838803&amp;ptid=2041057" target="_blank">牙签塞牙 发表于 2021-12-7 11:34</a>
+没有青蛙啊</blockquote>
+看组合的emoji有多种逻辑，应该都是特意设计的，只有一部分emoji很正常
+
