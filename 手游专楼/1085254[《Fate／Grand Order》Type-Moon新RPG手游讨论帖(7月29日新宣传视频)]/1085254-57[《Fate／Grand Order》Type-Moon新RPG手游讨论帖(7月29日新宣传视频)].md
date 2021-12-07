@@ -6813,3 +6813,124 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不更新就不会被解包
 
+
+
+*****
+
+####  alucardcz  
+##### 84609#       发表于 2021-12-7 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然有事发生 虽然只是个预告
+
+*****
+
+####  alucardcz  
+##### 84610#       发表于 2021-12-7 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个马大是不是画崩了
+
+*****
+
+####  阿提拉  
+##### 84611#       发表于 2021-12-7 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">圣诞铁拳，倒是非常符合传统了（
+
+*****
+
+####  alucardcz  
+##### 84612#       发表于 2021-12-7 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等 没有卡池?  还是说看图说话 准备复课cba？
+
+*****
+
+####  alucardcz  
+##### 84613#       发表于 2021-12-7 17:09
+
+本イベント期間中の新規サーヴァントは、イベント限定サーヴァント「★4(SR)マルタ〔サンタ〕」のみの1騎限定となります。この機会にぜひ獲得しましょう！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无 其 他 新 卡
+
+*****
+
+####  alucardcz  
+##### 84614#       发表于 2021-12-7 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无限池新增百连 开心吗（
+
+*****
+
+####  阿提拉  
+##### 84615#       发表于 2021-12-7 17:11
+
+这么多年了，终于知道开无限池不用十个十个来了，不过就不能直接600个一下抽完么
+
+*****
+
+####  当光停止  
+##### 84616#       发表于 2021-12-7 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/07/171119vqqi6un82u63g3z0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-7 17:11 上传
+
+话说马大姐这脸不对劲阿。
+
+*****
+
+####  alucardcz  
+##### 84617#       发表于 2021-12-7 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53843097&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-12-7 17:11</a>
+
+话说马大姐这脸不对劲阿。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">何止脸 下面还有全身的立绘 凶都没了
+
+*****
+
+####  仰望神的括约肌  
+##### 84618#       发表于 2021-12-7 17:14
+
+这嘴像是被羽海野传染了一样
+
+*****
+
+####  不垃圾屌丝  
+##### 84619#       发表于 2021-12-7 17:15
+
+小姐您哪位啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  当光停止  
+##### 84620#       发表于 2021-12-7 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53843122&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-7 17:13</a>
+
+何止脸 下面还有全身的立绘 凶都没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坂本みねぢ也准备摆烂了是吗？
+
+画的上俩角色是小灰和平景清。
+
+*****
+
+####  khxooo  
+##### 84621#       发表于 2021-12-7 17:17
+
+有钉子，适当刷一下吧
+
+*****
+
+####  zakki  
+##### 84622#       发表于 2021-12-7 17:18
+
+把新圣诞和圣诞复刻变着法子揉在一起了（指时间10天，无新卡）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

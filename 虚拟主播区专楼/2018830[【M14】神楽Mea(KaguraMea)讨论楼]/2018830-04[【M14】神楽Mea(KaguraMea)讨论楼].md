@@ -12646,3 +12646,44 @@ syl，仔细回忆了一下，我最多也就只连续睡过16个小时，不愧
 
 桀桀，还是暗黑贝贝壬战斗力太强了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 5957#       发表于 2021-12-7 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53842337&amp;ptid=2018830" target="_blank">遗忘回想 发表于 2021-12-7 16:20</a>
+都直球喷粗了还能不进去才怪了，反正和新月云这玩意儿私聊看他装傻也算种乐子
+
+现在借人号玩一个月完事， ...</blockquote>
+如果可以，我希望v圈和平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  遗忘回想  
+##### 5958#       发表于 2021-12-7 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53842945&amp;ptid=2018830" target="_blank">往世雷书 发表于 2021-12-7 17:02</a>
+
+如果可以，我希望v圈和平
+
+—— 来自 S1Fun</blockquote>
+和平啥，小狼窝的某人都通过我QQ找我手机号了可还行，盒武器哈哈哈哈，电话没见来一个
+
+*****
+
+####  yywzjsw  
+##### 5959#       发表于 2021-12-7 17:07
+
+这是大战了什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，你麻今晚是不是又半夜图奇呢
+
+*****
+
+####  Ky·Kiske  
+##### 5960#       发表于 2021-12-7 17:11
+
+上次播瓦洛兰特我就来得及看一眼，第一反应是麻怎么去玩CSGO了
+
