@@ -1914,3 +1914,25 @@ TRPG企画『神椿市建設中。NARRATIVE』があること、
 这个有人熟吗，11月才出道的新人，在推特上发的直播预订竟然还带着简体中文版……而且字体没出问题，很感 ...</blockquote>
 首播还说了句中文，挺搞笑的，说的时候声线瞬间一股大妈味
 
+
+
+*****
+
+####  FCCHua  
+##### 9154#       发表于 2021-12-7 11:44
+
+ 本帖最后由 FCCHua 于 2021-12-7 11:48 编辑 
+
+oreapo+qp终于下播了...最近都是大半夜醒来开播到第二天上午，什么恶性循环<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  443421870  
+##### 9155#       发表于 2021-12-7 11:50
+
+感觉绊爱这事出不了二次元圈吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，
+
+现在才达成300万粉丝只不过是以前取关的重新关注了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

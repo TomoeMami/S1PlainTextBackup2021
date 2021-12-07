@@ -1502,3 +1502,31 @@ How does this dumb bitch have such a big fanbase, she's not even entertaining.
 
 阿德里亚诺再没兑现天赋也比一辈子都在二级联赛踢球的强了无数倍
 
+
+
+*****
+
+####  nian1538  
+##### 13651#       发表于 2021-12-7 11:50
+
+据说来自梅露杂谈，待证实
+
+白A前几天的烤肉一桌是SubaChocoBotanKorosan
+
+另一桌是梅露露娜绫总
+
+梅露露娜烤肉，绫总负责吃
+
+绫总好像弄指甲能花三四小时的样子
+
+好像还谈了些其他很有女子力的话题
+
+*****
+
+####  越动天下  
+##### 13652#       发表于 2021-12-7 11:57
+
+ 本帖最后由 越动天下 于 2021-12-7 11:58 编辑 
+
+不是有日语剪辑吗 虽然我还没看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

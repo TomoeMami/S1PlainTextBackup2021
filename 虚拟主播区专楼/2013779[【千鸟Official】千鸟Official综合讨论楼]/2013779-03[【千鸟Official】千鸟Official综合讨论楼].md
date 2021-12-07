@@ -9488,3 +9488,26 @@ tmd这么晚去吃火锅 什么阴间作息人
 
 大的什么时候来啊，三天没合眼了
 
+
+
+*****
+
+####  andeloz  
+##### 4085#       发表于 2021-12-7 11:45
+
+下次和老E联动打lol吧
+
+*****
+
+####  四叶的花  
+##### 4086#       发表于 2021-12-7 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">多引点圈外大物
+
+*****
+
+####  T型钉宫病毒  
+##### 4087#       发表于 2021-12-7 11:50
+
+拱火b太多了，这口血吸到还不直接银盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

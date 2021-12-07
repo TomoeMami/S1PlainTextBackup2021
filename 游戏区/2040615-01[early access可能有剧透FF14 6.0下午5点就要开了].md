@@ -1267,3 +1267,15 @@ syl
 
 这次跑腿任务已经很少了吧，基本集中在萨雷安地下（特别是8个研究员，但是看完之后的过场还是觉得值得的），其他的都更偏向于让你体验剧情了解故事的。
 
+
+
+*****
+
+####  dddty  
+##### 126#       发表于 2021-12-7 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53837574&amp;ptid=2040615" target="_blank">kangkangsama 发表于 2021-12-7 09:52</a>
+
+这次跑腿任务已经很少了吧，基本集中在萨雷安地下（特别是8个研究员，但是看完之后的过场还是觉得值得的） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">给换成尾行任务和带NPC跑腿任务了。
+
