@@ -9628,3 +9628,63 @@ e那边也没想开战，现在就是缝十公拱火把他@过来了。缝十公
 所以这次又是什么节奏</blockquote>
 还是文静新皮撞车老e那事吧，一帮人在底下拱火
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4101#       发表于 2021-12-7 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53840843&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-7 14:30</a>
+
+还是文静新皮撞车老e那事吧，一帮人在底下拱火</blockquote>
+什么，新皮出来了？？
+
+*****
+
+####  T型钉宫病毒  
+##### 4102#       发表于 2021-12-7 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53841072&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-7 14:47</a>
+
+什么，新皮出来了？？</blockquote>
+就现在这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sanxgh571  
+##### 4103#       发表于 2021-12-7 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53840831&amp;ptid=2013779" target="_blank">小憨1 发表于 2021-12-7 14:30</a>
+文静皮和老E的皮很像，两边都不是很在意，但有个小鬼在两边带节奏</blockquote>
+那个小鬼来回引战，在七海动态底下套a盾倒垃圾都被我举办三四回了
+
+*****
+
+####  魔法少女大头  
+##### 4104#       发表于 2021-12-7 14:52
+
+个把小鬼其实不是大问题，问题是有些可能还是粉丝的想通过维护这种行为，来维护无底线臊皮权。
+虽然臊皮不要影响别人这种话也说过不少次，但是确实没啥用。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灰色的狐狸  
+##### 4105#       发表于 2021-12-7 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53841092&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-7 14:49</a>
+
+就现在这个</blockquote>
+嗨
+
+白兴奋
+
+*****
+
+####  四叶的花  
+##### 4106#       发表于 2021-12-7 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

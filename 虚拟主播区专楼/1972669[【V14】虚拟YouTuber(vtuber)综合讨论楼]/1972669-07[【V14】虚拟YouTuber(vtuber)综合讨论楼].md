@@ -1954,3 +1954,13 @@ oreapo+qp终于下播了...最近都是大半夜醒来开播到第二天上午�
 上午5:14 · 2021年12月7日·Twitter for iPhone</blockquote>
 圭利和野良猫因为观众进VC搞的闹剧终于结束了啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 9157#       发表于 2021-12-7 14:56
+
+[https://youtu.be/-ZltPjGIqm4?t=7098](https://youtu.be/-ZltPjGIqm4?t=7098)
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还是忘不了bora么
+
