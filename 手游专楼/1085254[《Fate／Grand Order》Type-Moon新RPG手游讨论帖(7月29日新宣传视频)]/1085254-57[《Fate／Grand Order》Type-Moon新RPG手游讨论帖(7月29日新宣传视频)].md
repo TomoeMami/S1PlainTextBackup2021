@@ -6934,3 +6934,42 @@ Beast是指从『人类发展过程中诞生的罪业』中所滋生出的罪恶
 
 把新圣诞和圣诞复刻变着法子揉在一起了（指时间10天，无新卡）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 84623#       发表于 2021-12-7 17:26
+
+当我们以为圣诞复刻会复刻狂那的时候yls选择了直接跳过这个活动，好耶！
+
+*****
+
+####  yangun22  
+##### 84624#       发表于 2021-12-7 17:28
+
+没新从者但是新礼装有的，不知道到时候pu谁了
+
+*****
+
+####  areklose  
+##### 84625#       发表于 2021-12-7 17:31
+
+cba来个30群充强化不过分吧
+
+*****
+
+####  KOBI  
+##### 84626#       发表于 2021-12-7 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人选算不算历代圣诞老人里最接近原型的一位了？
+
+*****
+
+####  黑上シグマ  
+##### 84627#       发表于 2021-12-7 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但，我想要街机那边的圣诞肯娘
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
