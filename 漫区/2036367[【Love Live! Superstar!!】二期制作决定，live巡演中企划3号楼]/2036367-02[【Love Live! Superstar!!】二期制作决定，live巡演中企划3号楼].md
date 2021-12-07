@@ -1442,3 +1442,35 @@ B站看了切片，SP属实好听，等个完整版。不过判教神曲还是�
 
 B站的不清楚，在微博看到的几个都改了，磕cp虽好，切勿上头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CAserlumos  
+##### 1645#       发表于 2021-12-7 23:07
+
+说起来我好像还没完整地看一遍本番<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+楼友们有必要再过一遍吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1646#       发表于 2021-12-7 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53847554&amp;ptid=2036367" target="_blank">CAserlumos 发表于 2021-12-7 23:07</a>
+
+说起来我好像还没完整地看一遍本番
+
+楼友们有必要再过一遍吗</blockquote>
+按前面一次看完的楼友来说，好像观感还可以
+
+*****
+
+####  CAserlumos  
+##### 1647#       发表于 2021-12-7 23:12
+
+主要我挺喜欢恋恋的所以不是很想看七八回……
+
+算了再看一遍吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
