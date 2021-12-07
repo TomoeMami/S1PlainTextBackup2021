@@ -1186,3 +1186,14 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">EA玩家居然还要激活多次今天发的正式版cdk，日本人回路是真的理解不能
 
+
+
+*****
+
+####  对羟基笨甲酸  
+##### 119#       发表于 2021-12-7 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53835861&amp;ptid=2040615" target="_blank">摸鱼玩家 发表于 2021-12-7 01:45</a>
+艹，国服还要半年有点忍不住想买国际服了，算上冒险录和直升差不多得600吧，6.0真这么好吗 ...</blockquote>
+我觉得完整性已经超越部分单机ff了，结尾非常爱与王道，好这口的肯定喜欢
+
