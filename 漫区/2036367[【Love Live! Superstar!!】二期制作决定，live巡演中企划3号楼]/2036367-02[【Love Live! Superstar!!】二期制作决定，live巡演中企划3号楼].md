@@ -960,3 +960,21 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 我 大 受 震 撼</blockquote>
 会被买来干什么都不敢想了。。
 
+
+
+*****
+
+####  名津流  
+##### 1591#       发表于 2021-12-7 09:04
+
+没成名前这都不算啥，成名后又被人挖出来的话就有一点点黑历史的味道了
+
+*****
+
+####  cat1230  
+##### 1592#       发表于 2021-12-7 09:18
+
+这个有点犀利啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">价格要说贵也不算
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

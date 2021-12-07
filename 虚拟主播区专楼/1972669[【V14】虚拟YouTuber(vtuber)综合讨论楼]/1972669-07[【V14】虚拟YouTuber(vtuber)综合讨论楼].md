@@ -1884,3 +1884,12 @@ TRPG企画『神椿市建設中。NARRATIVE』があること、
 这个有人熟吗，11月才出道的新人，在推特上发的直播预订竟然还带着中文版……
 查了下原来就是那个找了好几个名画师（堀口、赤坂、etc.）做人设还搞了动画pv的箱。声势这么浩大的宣传，推出来的liver也还是直播嗯打游戏啊。
 
+
+
+*****
+
+####  hulaoda007  
+##### 9151#       发表于 2021-12-7 09:13
+
+千麻不至于野路子吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
