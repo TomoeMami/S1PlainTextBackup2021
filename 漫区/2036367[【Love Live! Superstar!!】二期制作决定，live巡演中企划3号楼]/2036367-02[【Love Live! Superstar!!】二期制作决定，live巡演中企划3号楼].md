@@ -1319,3 +1319,19 @@ HP这首歌很好听啊，不知道编舞怎么样。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">副歌部分带感 这企划的敌团曲总是这么好听
 
+
+
+*****
+
+####  cat1230  
+##### 1630#       发表于 2021-12-7 18:29
+
+B站看了切片，SP属实好听，等个完整版。不过判教神曲还是一代目最有逼格。手绘live当年多惊艳啊。
+
+*****
+
+####  lj205  
+##### 1631#       发表于 2021-12-7 18:44
+
+我觉得裂裂输在选曲上，要是拿Day1去比，指不定谁赢呢～<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
