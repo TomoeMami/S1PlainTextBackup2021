@@ -1259,3 +1259,63 @@ b站20年有人发的开箱视频，好羡慕啊，原来是这种盲盒开包�
 
 下回鲤鱼终于要再次上裂垃圾了
 
+
+
+*****
+
+####  player3960  
+##### 1623#       发表于 2021-12-7 18:08
+
+咋说，叛教一分半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+HP这首歌很好听啊，不知道编舞怎么样。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 1624#       发表于 2021-12-7 18:10
+
+12年舞蹈功底吧，实力肯定有，看老师了，反正那个扫腿肯定有
+
+*****
+
+####  chenflyyy  
+##### 1625#       发表于 2021-12-7 18:14
+
+单拿Starlight Prologue来比我觉得这首还是强很多的（Starlight Prologue我一直就不太喜欢），这两个人水平还是有的，期待东京追加场的表现
+
+*****
+
+####  player3960  
+##### 1626#       发表于 2021-12-7 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53843927&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-07 18:14:32</a>
+单拿Starlight Prologue来比我觉得这首还是强很多的（Starlight Prologue我一直就不太喜欢），这两个人水平 ...</blockquote>但是根据比赛规则的话sh应该不是输给这首歌吧，难道是cw曲？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 1627#       发表于 2021-12-7 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53843953&amp;ptid=2036367" target="_blank">player3960 发表于 2021-12-07 18:16:34</a>
+但是根据比赛规则的话sh应该不是输给这首歌吧，难道是cw曲？</blockquote>打错了是SP<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  秋月艾莉  
+##### 1628#       发表于 2021-12-7 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是在唐哥两次关键比赛里都正面冲烂了莉耶拉战队的歌吗，真不错
+
+*****
+
+####  cybernetics31  
+##### 1629#       发表于 2021-12-7 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">副歌部分带感 这企划的敌团曲总是这么好听
+
