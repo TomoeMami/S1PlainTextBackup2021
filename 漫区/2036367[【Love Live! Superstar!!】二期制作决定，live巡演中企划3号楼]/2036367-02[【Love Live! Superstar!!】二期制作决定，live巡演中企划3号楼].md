@@ -1335,3 +1335,33 @@ B站看了切片，SP属实好听，等个完整版。不过判教神曲还是�
 
 我觉得裂裂输在选曲上，要是拿Day1去比，指不定谁赢呢～<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CAserlumos  
+##### 1632#       发表于 2021-12-7 18:54
+
+之前看了一段时间的楼，这两天感觉入坑了以后多发发言
+
+*****
+
+####  cybernetics31  
+##### 1633#       发表于 2021-12-7 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">sayu：“只有鲤酱可以叫我伊达AV722150851
+
+*****
+
+####  CAserlumos  
+##### 1634#       发表于 2021-12-7 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">贴贴捏
+
+*****
+
+####  iuhehc  
+##### 1635#       发表于 2021-12-7 19:03
+
+撒泥巴这个歌可以啊
+
