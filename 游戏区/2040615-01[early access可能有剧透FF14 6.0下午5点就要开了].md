@@ -1429,3 +1429,15 @@ syl
 弃坑很久了，受不了毫无动作打击感的站桩输出。</blockquote>
 ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和枪刃打击感相当可以，对网游来说算很不错
 
+
+
+*****
+
+####  Raumanzug  
+##### 141#       发表于 2021-12-8 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53845528&amp;ptid=2040615" target="_blank">jxzeroga0 发表于 2021-12-7 20:07</a>
+
+乳丸喜了，大屁股更多像是个病态版宇智波斑【</blockquote>
+指放最终boss后面分量不够和本身对应主角（团）的初心这点，还有最后的对拳，人品那肯定是差远了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

@@ -1490,3 +1490,15 @@ B站的不清楚，在微博看到的几个都改了，磕cp虽好，切勿上�
 
 虽然大家都喜欢磕糖，但是果然真实情况会有所不同吧，就是不知道营业的部分究竟会占多大部分。像liyuu肉眼可见的就跟sayulin和pay要亲近一些。
 
+
+
+*****
+
+####  cat1230  
+##### 1650#       发表于 2021-12-8 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53848043&amp;ptid=2036367" target="_blank">A0171050 发表于 2021-12-8 00:01</a>
+
+虽然大家都喜欢磕糖，但是果然真实情况会有所不同吧，就是不知道营业的部分究竟会占多大部分。像liyuu肉眼 ...</blockquote>
+跟打铁是感觉关系好，节目中会无意的向打铁那边靠，哪怕身边还有其他人，P是没看出来，唯一比较有话题的就是最早那个下班路上让P叫自己姐姐，但这个因为出自P口，没有画面也看不出别的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
