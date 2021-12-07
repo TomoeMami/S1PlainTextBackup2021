@@ -9688,3 +9688,13 @@ e那边也没想开战，现在就是缝十公拱火把他@过来了。缝十公
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 4107#       发表于 2021-12-7 15:15
+
+老E应该是知道这件事了，换了一个皮
+不和文静计较，好人一生平安<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/6fb8de1c78de76dd0d0540c3d1466f01/0CE48C8E6F57664C2786E465CB4A0827.jpg" referrerpolicy="no-referrer">
+
