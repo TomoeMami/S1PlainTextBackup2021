@@ -7166,3 +7166,14 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 
 第三管血尼玛130万，灵脉石放了三次闪闪核弹才打死 
 
+
+
+*****
+
+####  承尘  
+##### 84647#       发表于 2021-12-8 00:49
+
+苹果不多了，难顶<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

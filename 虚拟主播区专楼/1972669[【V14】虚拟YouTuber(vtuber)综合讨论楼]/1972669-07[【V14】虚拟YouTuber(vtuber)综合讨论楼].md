@@ -2071,3 +2071,12 @@ oreapo+qp终于下播了...最近都是大半夜醒来开播到第二天上午�
 
 Syl，King确认养狗，狗叫出声了，虹这些主播一个两个养个小动物和深柜似的秘而不宣,守口如瓶...
 
+
+
+*****
+
+####  OldGlory  
+##### 9167#       发表于 2021-12-8 00:45
+
+我怎么记得大半年前king就在说养狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
