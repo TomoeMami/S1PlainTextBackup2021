@@ -1408,3 +1408,12 @@ B站看了切片，SP属实好听，等个完整版。不过判教神曲还是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">老王animax个人歌手身份上了 状态还行 上跨年live应该没啥问题 
 
+
+
+*****
+
+####  lj205  
+##### 1641#       发表于 2021-12-7 19:53
+
+好像打铁说的不是只有鲤鱼能那么叫而是只有鲤鱼这么叫
+

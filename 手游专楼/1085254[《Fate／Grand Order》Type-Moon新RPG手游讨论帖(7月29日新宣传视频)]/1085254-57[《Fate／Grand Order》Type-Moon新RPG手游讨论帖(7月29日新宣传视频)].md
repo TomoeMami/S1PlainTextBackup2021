@@ -7069,3 +7069,23 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 当然是明天一起开啊，都可以奶
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84638#       发表于 2021-12-7 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53844742&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-7 19:13</a>
+这次拯救绿卡还挺合适？
+
+CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
+玛尔达不是辅助宝具吗
+
+*****
+
+####  khxooo  
+##### 84639#       发表于 2021-12-7 20:00
+
+虚数大海战后CBA就开始不断的搞事，下一年泳装怕不是被BBA给搞一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
