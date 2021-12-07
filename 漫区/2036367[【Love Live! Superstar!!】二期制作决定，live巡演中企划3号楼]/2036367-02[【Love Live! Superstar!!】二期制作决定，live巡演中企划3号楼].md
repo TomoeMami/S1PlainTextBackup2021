@@ -1193,3 +1193,12 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 算上全企划 里p小鹿的擦边球写真应该算更高量级的？
 
+
+
+*****
+
+####  A0171050  
+##### 1616#       发表于 2021-12-7 15:53
+
+色不起来倒是真的，所以如果写真构图拍得不够有创意的话都不太想买<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
