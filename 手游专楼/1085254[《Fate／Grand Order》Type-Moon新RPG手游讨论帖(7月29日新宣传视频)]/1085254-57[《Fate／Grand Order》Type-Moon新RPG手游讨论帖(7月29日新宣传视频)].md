@@ -7089,3 +7089,15 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 
 虚数大海战后CBA就开始不断的搞事，下一年泳装怕不是被BBA给搞一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 84640#       发表于 2021-12-7 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53844740&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-7 19:13</a>
+
+你要豹了吗！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">萌新又在说笑了.....非洲人CBA可是2次都沉了
+

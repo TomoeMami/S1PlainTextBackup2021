@@ -1426,3 +1426,19 @@ B站看了切片，SP属实好听，等个完整版。不过判教神曲还是�
 
 敌团还是最喜欢圣雪，MV太好看了，Live上的两人也超强。
 
+
+
+*****
+
+####  Norkey1  
+##### 1643#       发表于 2021-12-7 21:39
+
+那个翻译确实夹了私货
+
+*****
+
+####  chenflyyy  
+##### 1644#       发表于 2021-12-7 21:45
+
+B站的不清楚，在微博看到的几个都改了，磕cp虽好，切勿上头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
