@@ -2890,3 +2890,25 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 
 —— 来自 HUAWEI EVR-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  最好不说  
+##### 1741#       发表于 2021-12-7 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53847809&amp;ptid=2039422" target="_blank">Jet.Black 发表于 2021-12-7 23:36</a>
+
+国外不是都说Omicron就是一弱鸡么？现在到处都是乐观的声音</blockquote>
+要过节要消费的嘛，商家囤了这么多货，民众假期的行程排的这么满，你要说大的又来了这日子还过不过了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alerbe  
+##### 1742#       发表于 2021-12-8 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53847809&amp;ptid=2039422" target="_blank">Jet.Black 发表于 2021-12-7 23:36</a>
+
+国外不是都说Omicron就是一弱鸡么？现在到处都是乐观的声音</blockquote>
+时针拨回到了2020年3月
+
