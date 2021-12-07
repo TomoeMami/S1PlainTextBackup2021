@@ -1515,3 +1515,14 @@ pay酱看上去挺贴鲤鱼的。但鲤鱼回应感觉相对少一点？这俩�
 
 —— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Karin11974  
+##### 1652#       发表于 2021-12-8 07:41
+
+一开始不是跟nako贴挺多的嘛，只能说别太纠结，你能看到的都是想要让你看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
