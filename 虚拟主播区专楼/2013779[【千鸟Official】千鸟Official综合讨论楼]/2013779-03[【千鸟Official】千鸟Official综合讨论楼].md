@@ -9456,3 +9456,19 @@ tmd这么晚去吃火锅 什么阴间作息人
 主要是真给老e艾特来了这下文静要道歉了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这肯定拖cj和画师出来道歉啊 皮又不是文静画的
 
+
+
+*****
+
+####  korilori  
+##### 4081#       发表于 2021-12-7 10:24
+
+原力那边的画师早就装死了，老鹅的画师看样子也想息事宁人，本身两边用的都是烂大街的女仆元素，只是恰好撞设定而已，现在大家天天烂炒反而感觉这俩皮越看越不像了，这活儿我看炒不大到哪里去。
+
+*****
+
+####  莫洛骑士  
+##### 4082#       发表于 2021-12-7 10:40
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先进行一个割的切
+

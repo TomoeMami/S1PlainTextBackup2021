@@ -1017,3 +1017,33 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 1597#       发表于 2021-12-7 10:21
+
+这有啥的？也就这样了，我觉得按以前我对COS圈的认识来说都是轻量级的
+
+*****
+
+####  pliee  
+##### 1598#       发表于 2021-12-7 10:25
+
+。。。这有啥的
+
+*****
+
+####  cybernetics31  
+##### 1599#       发表于 2021-12-7 10:26
+
+以前cos活动的kiss card，蛮早的了已经，看粉丝群鲤鱼老粉丝基本都有
+
+*****
+
+####  darkendless  
+##### 1600#       发表于 2021-12-7 10:32
+
+路人视角不就一个吻印，google搜索生キスカード结果还不少，对于coser和一般偶像而言也不算什么吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
