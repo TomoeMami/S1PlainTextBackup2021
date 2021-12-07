@@ -7131,3 +7131,25 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 
 瞬间失去了欲望<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 84644#       发表于 2021-12-7 23:36
+
+无限池精准避开大部分玩家急缺素材也是传统艺能了，夏泳和龙马侦探刚结束的现在真心没动力刷<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84645#       发表于 2021-12-7 23:40
+
+<blockquote>引用第84642楼白金口袋于2021-12-07 22:12发表的  :
+
+看了眼交换材料和BOX，好像既没有铃铛也没有鳞粉瞬间失去了欲望</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被你这么一说我去看了下，我仓库里铃铛335个，鳞粉194个，不慌
+倒是钉子比铃铛还少，329个
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

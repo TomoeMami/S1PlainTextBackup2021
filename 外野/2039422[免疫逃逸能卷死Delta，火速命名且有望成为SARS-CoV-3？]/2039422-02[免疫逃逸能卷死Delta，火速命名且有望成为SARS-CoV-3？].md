@@ -2863,3 +2863,30 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 首先是条旧闻，eNCA11月30日对南非最大医院ICU主任的采访（视频见油管），提到普通新冠病房和ICU ...</blockquote>
 按拍老师发的更新的演化树来看，奥密克戎要真是在外面二段三段变身杀出来（而不是在艾滋病人体内憋了一年）以后才在南非爆出来，那估计防疫会很艰难了
 
+
+
+*****
+
+####  最好不说  
+##### 1738#       发表于 2021-12-7 23:33
+
+英国新增101例奥密克戎变异株感染病例，丹麦奥密克戎变异株感染病例累计达398例。欧洲这波omicron已经开始了，看美国新增我怀疑也开始了，不过CDC说40那就40吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jet.Black  
+##### 1739#       发表于 2021-12-7 23:36
+
+国外不是都说Omicron就是一弱鸡么？现在到处都是乐观的声音
+
+*****
+
+####  lazyboy  
+##### 1740#       发表于 2021-12-7 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53847809&amp;ptid=2039422" target="_blank">Jet.Black 发表于 2021-12-7 23:36</a>
+国外不是都说Omicron就是一弱鸡么？现在到处都是乐观的声音</blockquote>
+就是大号流感嘛，BIG FLU
+
+—— 来自 HUAWEI EVR-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
