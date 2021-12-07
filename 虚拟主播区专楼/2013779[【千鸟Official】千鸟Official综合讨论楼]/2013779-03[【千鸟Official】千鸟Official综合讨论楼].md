@@ -9744,3 +9744,12 @@ e那边也没想开战，现在就是缝十公拱火把他@过来了。缝十公
 
 最近举办都没什么正反馈，摆烂车停车弹幕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 4113#       发表于 2021-12-7 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不就一晚上没看直播吗 咋感觉过了好几个版本
+

@@ -7110,3 +7110,24 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 
 卧槽这个平安京的伊吹童子是什么怪物，怎么永远无敌啊，氪五颗灵脉石也打不掉半管血
 
+
+
+*****
+
+####  qixinno2  
+##### 84642#       发表于 2021-12-7 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53846894&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-12-7 22:01</a>
+
+卧槽这个平安京的伊吹童子是什么怪物，怎么永远无敌啊，氪五颗灵脉石也打不掉半管血 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌贯通礼装 或者借个超人熊不就得了
+
+*****
+
+####  白金口袋  
+##### 84643#       发表于 2021-12-7 22:12
+
+看了眼交换材料和BOX，好像既没有铃铛也没有鳞粉
+
+瞬间失去了欲望<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
