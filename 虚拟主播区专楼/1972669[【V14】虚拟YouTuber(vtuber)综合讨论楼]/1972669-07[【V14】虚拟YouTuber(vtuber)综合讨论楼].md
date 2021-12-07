@@ -1902,3 +1902,15 @@ TRPG企画『神椿市建設中。NARRATIVE』があること、
 
 阿巴这通告难道是得了啥妇科疾病动的手术吗？
 
+
+
+*****
+
+####  caupollen  
+##### 9153#       发表于 2021-12-7 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53836870&amp;ptid=1972669" target="_blank">雨井绫 发表于 2021-12-7 08:51</a>
+
+这个有人熟吗，11月才出道的新人，在推特上发的直播预订竟然还带着简体中文版……而且字体没出问题，很感 ...</blockquote>
+首播还说了句中文，挺搞笑的，说的时候声线瞬间一股大妈味
+

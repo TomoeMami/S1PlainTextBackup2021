@@ -1047,3 +1047,30 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 路人视角不就一个吻印，google搜索生キスカード结果还不少，对于coser和一般偶像而言也不算什么吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 1601#       发表于 2021-12-7 10:51
+
+突然想起来，9月份鲤鱼在微博上问过想看她cos啥来着，这事好像没后文了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+还是最近太忙了，我们也都在关注live，除去上节目cos的托尔外，最近的cos是7月份的玛奇玛...
+
+不知道2nd之后她会不会出一次cos啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1602#       发表于 2021-12-7 10:56
+
+她昨晚8点半后就没刷手机，估计是真的太累了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 1603#       发表于 2021-12-7 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 这东西我看了一圈老cos粉都是人手一个的嘛，感觉鲤鱼以前在余弦圈还是蛮有名的
+
