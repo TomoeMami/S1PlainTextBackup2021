@@ -1,12 +1,11 @@
 
-
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1#       楼主       发表于 2021-10-22 13:11
 
 
- 本帖最后由 天神十三煞 于 2021-10-21 23:05 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-21 23:05 编辑
 
 虽然有个新闻贴，但是找不常玩的人编辑楼层会很麻烦的样子
 
@@ -47,11 +46,11 @@
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 2#         楼主| 发表于 2021-10-22 13:11
 
 
- 本帖最后由 天神十三煞 于 2021-10-23 18:19 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-23 18:19 编辑
 
 首发车辆名单：
 
@@ -60,7 +59,7 @@
 
 *****
 
-####  gigbt  
+####  gigbt
 ##### 3#       发表于 2021-10-22 13:13
 
 
@@ -71,7 +70,7 @@
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 4#       发表于 2021-10-22 13:23
 
 
@@ -82,7 +81,7 @@
 
 *****
 
-####  Piano-Forest  
+####  Piano-Forest
 ##### 5#       发表于 2021-10-22 13:25
 
 
@@ -93,7 +92,7 @@
 
 *****
 
-####  秋雨灰灰  
+####  秋雨灰灰
 ##### 6#       发表于 2021-10-22 13:27
 
 
@@ -102,11 +101,11 @@
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 7#         楼主| 发表于 2021-10-22 13:31
 
 
- 本帖最后由 天神十三煞 于 2021-10-21 21:35 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-21 21:35 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53233689&amp;ptid=2033303" target="_blank">Piano-Forest 发表于 2021-10-21 21:25</a>
 [https://bbs.saraba1st.com/2b/thread-2009749-1-1.html](https://bbs.saraba1st.com/2b/thread-2009749-1-1.html)
 
@@ -142,7 +141,7 @@
 
 *****
 
-####  skdom  
+####  skdom
 ##### 8#       发表于 2021-10-22 13:40
 
 
@@ -151,7 +150,7 @@
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 9#       发表于 2021-10-22 13:42
 
 
@@ -160,7 +159,7 @@
 
 *****
 
-####  ekdjf  
+####  ekdjf
 ##### 10#       发表于 2021-10-22 13:47
 
 
@@ -169,7 +168,7 @@
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 11#         楼主| 发表于 2021-10-22 13:52
 
 
@@ -183,7 +182,7 @@
 
 *****
 
-####  muermaru  
+####  muermaru
 ##### 12#       发表于 2021-10-22 14:00
 
 
@@ -192,7 +191,7 @@
 
 *****
 
-####  AliceMilky  
+####  AliceMilky
 ##### 13#       发表于 2021-10-22 14:02
 
 
@@ -201,7 +200,7 @@
 
 *****
 
-####  99mxw  
+####  99mxw
 ##### 14#       发表于 2021-10-22 14:05
 
 
@@ -213,7 +212,7 @@
 
 *****
 
-####  江宁老实人  
+####  江宁老实人
 ##### 15#       发表于 2021-10-22 14:11
 
 
@@ -222,7 +221,7 @@
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 16#       发表于 2021-10-22 14:17
 
 
@@ -231,7 +230,7 @@ steam预售的可以提前几天玩吗？
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 17#       发表于 2021-10-22 14:21
 
 
@@ -240,7 +239,7 @@ steam预售的可以提前几天玩吗？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 18#         楼主| 发表于 2021-10-22 14:22
 
 
@@ -258,11 +257,11 @@ steam预售的可以提前几天玩吗？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 19#         楼主| 发表于 2021-10-22 14:24
 
 
- 本帖最后由 天神十三煞 于 2021-10-21 22:28 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-21 22:28 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53234222&amp;ptid=2033303" target="_blank">99mxw 发表于 2021-10-21 22:05</a>
 
 104G真得有点顶不住了
@@ -280,7 +279,7 @@ steam预售的可以提前几天玩吗？
 
 *****
 
-####  韦伯  
+####  韦伯
 ##### 20#       发表于 2021-10-22 14:32
 
 
@@ -294,7 +293,7 @@ steam预售的可以提前几天玩吗？</blockquote>
 
 *****
 
-####  秋雨灰灰  
+####  秋雨灰灰
 ##### 21#       发表于 2021-10-22 14:32
 
 
@@ -306,7 +305,7 @@ steam预售的可以提前几天玩吗？</blockquote>
 
 *****
 
-####  你好s1  
+####  你好s1
 ##### 22#       发表于 2021-10-22 14:32
 
 
@@ -315,7 +314,7 @@ steam预售的可以提前几天玩吗？</blockquote>
 
 *****
 
-####  松霖  
+####  松霖
 ##### 23#       发表于 2021-10-22 14:33
 
 
@@ -326,7 +325,7 @@ g29估计又要1299了
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 24#       发表于 2021-10-22 14:40
 
 
@@ -337,7 +336,7 @@ g29估计又要1299了
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 25#       发表于 2021-10-22 14:43
 
 
@@ -348,7 +347,7 @@ g29估计又要1299了
 
 *****
 
-####  韦伯  
+####  韦伯
 ##### 26#       发表于 2021-10-22 14:51
 
 
@@ -366,7 +365,7 @@ g29估计又要1299了
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 27#       发表于 2021-10-22 14:52
 
 
@@ -382,7 +381,7 @@ g29估计又要1299了
 
 *****
 
-####  faithlifer  
+####  faithlifer
 ##### 28#       发表于 2021-10-22 15:07
 
 
@@ -391,7 +390,7 @@ g29估计又要1299了
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 29#       发表于 2021-10-22 15:24
 
 
@@ -402,7 +401,7 @@ g29估计又要1299了
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 30#       发表于 2021-10-22 15:53
 
 
@@ -419,7 +418,7 @@ g29估计又要1299了
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 31#       发表于 2021-10-22 15:56
 
 
@@ -430,11 +429,11 @@ g29估计又要1299了
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 32#         楼主| 发表于 2021-10-22 16:10
 
 
- 本帖最后由 天神十三煞 于 2021-10-22 00:11 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-22 00:11 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53235636&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-10-21 23:53</a>
 
 上代刚出也不是没发给ytb用方向盘玩，结果呢</blockquote>
@@ -450,7 +449,7 @@ g29估计又要1299了
 
 *****
 
-####  雪映风影  
+####  雪映风影
 ##### 33#       发表于 2021-10-22 16:11
 
 
@@ -459,7 +458,7 @@ g29估计又要1299了
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 34#       发表于 2021-10-22 16:16
 
 
@@ -472,7 +471,7 @@ g29估计又要1299了
 
 *****
 
-####  战狼PTSD  
+####  战狼PTSD
 ##### 35#       发表于 2021-10-22 16:21
 
 
@@ -490,7 +489,7 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 36#       发表于 2021-10-22 16:30
 
 
@@ -501,11 +500,11 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 37#         楼主| 发表于 2021-10-22 16:44
 
 
- 本帖最后由 天神十三煞 于 2021-10-22 01:19 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-22 01:19 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53235946&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-10-22 00:16</a>
 
 我细调过了，用的T300gt，还是没有手柄一半好玩</blockquote>
@@ -534,7 +533,7 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  gx19860411  
+####  gx19860411
 ##### 38#       发表于 2021-10-22 16:56
 
 
@@ -545,7 +544,7 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  雪映风影  
+####  雪映风影
 ##### 39#       发表于 2021-10-22 16:59
 
 
@@ -558,7 +557,7 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 40#       发表于 2021-10-22 17:00
 
 
@@ -569,7 +568,7 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  战狼PTSD  
+####  战狼PTSD
 ##### 41#       发表于 2021-10-22 17:01
 
 
@@ -581,7 +580,7 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 42#       发表于 2021-10-22 17:02
 
 
@@ -595,7 +594,7 @@ steam版也是连微软服务器吗</blockquote>
 
 *****
 
-####  tasuku  
+####  tasuku
 ##### 43#       发表于 2021-10-22 17:13
 
 
@@ -608,7 +607,7 @@ xgp这堆大容量游戏扛不住
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 44#       发表于 2021-10-22 19:15
 
 
@@ -631,7 +630,7 @@ xgp这堆大容量游戏扛不住</blockquote>
 
 *****
 
-####  黑兽  
+####  黑兽
 ##### 45#       发表于 2021-10-22 19:33
 
 
@@ -646,11 +645,11 @@ xgp这堆大容量游戏扛不住</blockquote>
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 46#       发表于 2021-10-22 20:17
 
 
- 本帖最后由 Hanzong 于 2021-10-22 20:19 编辑 
+ 本帖最后由 Hanzong 于 2021-10-22 20:19 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53236283&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-10-22 16:44</a>
 你这说法其实不大公平
 
@@ -661,7 +660,7 @@ xgp这堆大容量游戏扛不住</blockquote>
 
 *****
 
-####  DraQin  
+####  DraQin
 ##### 47#       发表于 2021-10-23 02:22
 
 
@@ -672,11 +671,11 @@ xgp这堆大容量游戏扛不住</blockquote>
 
 *****
 
-####  mikemow  
+####  mikemow
 ##### 48#       发表于 2021-10-23 20:10
 
 
-pc上网页购买完顶级加载包 
+pc上网页购买完顶级加载包
 xsx重启一下就看到欢迎礼包和vip资格了
 
 另外几个包含在顶级加载包里的貌似xsx商店里还没上架 所以也没看到
@@ -686,7 +685,7 @@ xsx重启一下就看到欢迎礼包和vip资格了
 
 *****
 
-####  褪色的雪花  
+####  褪色的雪花
 ##### 49#       发表于 2021-10-24 07:35
 
 
@@ -697,7 +696,7 @@ xsx重启一下就看到欢迎礼包和vip资格了
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 50#       发表于 2021-10-24 08:10
 
 
@@ -706,7 +705,7 @@ xsx重启一下就看到欢迎礼包和vip资格了
 
 *****
 
-####  GuardHei  
+####  GuardHei
 ##### 51#       发表于 2021-10-24 08:32
 
 
@@ -719,7 +718,7 @@ pc版min spec是970
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 52#       发表于 2021-10-24 09:38
 
 
@@ -728,7 +727,7 @@ pc版min spec是970
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 53#       发表于 2021-10-24 09:52
 
 
@@ -747,7 +746,7 @@ pc版min spec是970
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 54#       发表于 2021-10-24 09:54
 
 
@@ -759,7 +758,7 @@ pc版min spec是970
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 55#       发表于 2021-10-24 09:59
 
 
@@ -770,11 +769,11 @@ pc版min spec是970
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 56#       发表于 2021-10-24 10:09
 
 
- 本帖最后由 bad_alloc 于 2021-10-24 10:12 编辑 
+ 本帖最后由 bad_alloc 于 2021-10-24 10:12 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53254794&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-10-24 09:59</a>
 
 这游戏不跟着版本走会不会缺少玩家热度和讨论度？毕竟游戏看起来还是有点轻网游的味道 ...</blockquote>
@@ -787,7 +786,7 @@ pc版min spec是970
 
 *****
 
-####  h20020901  
+####  h20020901
 ##### 57#       发表于 2021-10-24 10:41
 
 
@@ -798,7 +797,7 @@ pc版min spec是970
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 58#       发表于 2021-10-24 10:52
 
 
@@ -807,7 +806,7 @@ pc版min spec是970
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 59#       发表于 2021-10-24 10:54
 
 
@@ -822,7 +821,7 @@ https://forzamotorsport.net/en-us/news/forza-horizon-5-confirmed-car-list
 
 *****
 
-####  何然  
+####  何然
 ##### 60#       发表于 2021-10-24 10:59
 
 
@@ -837,7 +836,7 @@ https://forzamotorsport.net/en-us/news/forza-horizon-5-confirmed-car-list
 
 *****
 
-####  兮诺  
+####  兮诺
 ##### 61#       发表于 2021-10-24 11:10
 
 
@@ -860,7 +859,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 62#       发表于 2021-10-24 11:13
 
 
@@ -876,11 +875,11 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 63#         楼主| 发表于 2021-10-24 11:15
 
 
- 本帖最后由 天神十三煞 于 2021-10-23 19:19 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-23 19:19 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255198&amp;ptid=2033303" target="_blank">何然 发表于 2021-10-23 18:59</a>
 
 说来这游戏真的有人开超跑么
@@ -905,7 +904,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  andychen  
+####  andychen
 ##### 64#       发表于 2021-10-24 11:17
 
 
@@ -923,11 +922,11 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 65#         楼主| 发表于 2021-10-24 11:27
 
 
- 本帖最后由 天神十三煞 于 2021-10-23 19:29 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-23 19:29 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53255359&amp;ptid=2033303" target="_blank">andychen 发表于 2021-10-23 19:17</a>
 
 比起超跑，一些赛道跑车才是真的难开
@@ -942,7 +941,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  何然  
+####  何然
 ##### 66#       发表于 2021-10-24 12:01
 
 
@@ -960,11 +959,11 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 67#       发表于 2021-10-24 12:34
 
 
- 本帖最后由 qzy741147 于 2021-10-24 12:40 编辑 
+ 本帖最后由 qzy741147 于 2021-10-24 12:40 编辑
 
 所以gamepass的那个dlc要怎么买，商店里dlc列表里就没有那个
 
@@ -984,19 +983,19 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  h20020901  
+####  h20020901
 ##### 68#       发表于 2021-10-24 12:39
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53256205&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-10-24 12:34</a>
 
 所以gamepass的那个dlc要怎么买，商店里dlc列表里就没有那个</blockquote>
-搜索 极限竞速：地平线 5 顶级加载捆绑包 
+搜索 极限竞速：地平线 5 顶级加载捆绑包
 
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 69#       发表于 2021-10-24 12:40
 
 
@@ -1010,7 +1009,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 70#         楼主| 发表于 2021-10-24 12:56
 
 
@@ -1026,7 +1025,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  Xerxes_2  
+####  Xerxes_2
 ##### 71#       发表于 2021-10-24 13:16
 
 
@@ -1040,7 +1039,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  andychen  
+####  andychen
 ##### 72#       发表于 2021-10-24 14:18
 
 
@@ -1054,7 +1053,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  何然  
+####  何然
 ##### 73#       发表于 2021-10-24 14:20
 
 
@@ -1068,7 +1067,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 74#       发表于 2021-10-24 14:24
 
 
@@ -1084,7 +1083,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  andychen  
+####  andychen
 ##### 75#       发表于 2021-10-24 14:53
 
 
@@ -1102,7 +1101,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  何然  
+####  何然
 ##### 76#       发表于 2021-10-24 18:26
 
 
@@ -1120,7 +1119,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  samta  
+####  samta
 ##### 77#       发表于 2021-10-24 23:43
 
 
@@ -1131,7 +1130,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 78#       发表于 2021-10-25 00:16
 
 
@@ -1144,7 +1143,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 79#       发表于 2021-10-25 00:38
 
 
@@ -1159,7 +1158,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 80#       发表于 2021-10-25 00:47
 
 
@@ -1176,7 +1175,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 81#         楼主| 发表于 2021-10-25 01:29
 
 
@@ -1196,7 +1195,7 @@ xbox版 新西兰区  4号19点
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 82#         楼主| 发表于 2021-10-25 01:47
 
 
@@ -1210,11 +1209,11 @@ CCGT不能直接买
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 83#         楼主| 发表于 2021-10-25 01:48
 
 
- 本帖最后由 天神十三煞 于 2021-10-24 12:21 编辑 
+ 本帖最后由 天神十三煞 于 2021-10-24 12:21 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53264887&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-10-24 08:47</a>
 
 调校得好话其实开起来很舒服啊，比如前作的CCGT 魔法抓地力</blockquote>
@@ -1231,7 +1230,7 @@ CCGT的分类是赛道玩具，998的话，顶速和加速都不太理想，
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 84#       发表于 2021-10-25 09:12
 
 
@@ -1244,7 +1243,7 @@ CCGT的分类是赛道玩具，998的话，顶速和加速都不太理想，
 
 *****
 
-####  何然  
+####  何然
 ##### 85#       发表于 2021-10-25 09:24
 
 
@@ -1258,7 +1257,7 @@ CCGT的分类是赛道玩具，998的话，顶速和加速都不太理想，
 
 *****
 
-####  OneMice  
+####  OneMice
 ##### 86#       发表于 2021-10-26 10:00
 
 
@@ -1272,7 +1271,7 @@ https://www.microsoftstore.com.cn/xbox/xbox-wireless-controller-forza-horizon-5-
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 87#       发表于 2021-10-26 10:21
 
 
@@ -1297,7 +1296,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  phonixcry  
+####  phonixcry
 ##### 88#       发表于 2021-10-26 10:33
 
 
@@ -1306,7 +1305,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 89#       发表于 2021-10-26 10:41
 
 
@@ -1323,7 +1322,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 90#         楼主| 发表于 2021-10-29 05:17
 
 
@@ -1338,7 +1337,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  kissingrose  
+####  kissingrose
 ##### 91#       发表于 2021-10-29 05:20
 
 
@@ -1349,7 +1348,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  qool999  
+####  qool999
 ##### 92#       发表于 2021-10-29 07:55
 
 
@@ -1360,7 +1359,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 93#       发表于 2021-10-29 10:13
 
 
@@ -1369,7 +1368,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  夜魅之影  
+####  夜魅之影
 ##### 94#       发表于 2021-10-29 10:14
 
 
@@ -1381,7 +1380,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 95#       发表于 2021-10-29 10:16
 
 
@@ -1394,7 +1393,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  夜魅之影  
+####  夜魅之影
 ##### 96#       发表于 2021-10-29 10:42
 
 
@@ -1408,11 +1407,11 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 97#       发表于 2021-10-30 17:41
 
 
- 本帖最后由 bad_alloc 于 2021-10-30 17:46 编辑 
+ 本帖最后由 bad_alloc 于 2021-10-30 17:46 编辑
 
 进地平线4看了一下，原来自己上次玩还是19年1月
 
@@ -1427,7 +1426,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 98#       发表于 2021-11-1 00:14
 
 
@@ -1441,7 +1440,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 99#       发表于 2021-11-1 02:12
 
 
@@ -1457,7 +1456,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  wyy123  
+####  wyy123
 ##### 100#       发表于 2021-11-1 10:09
 
 
@@ -1466,7 +1465,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  chan  
+####  chan
 ##### 101#       发表于 2021-11-1 10:16
 
 
@@ -1478,7 +1477,7 @@ https://b23.tv/fJL8GJ
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 102#       发表于 2021-11-1 10:18
 
 
@@ -1490,7 +1489,7 @@ s2级车养老真舒服
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 103#       发表于 2021-11-1 10:28
 
 
@@ -1502,7 +1501,7 @@ s2级车养老真舒服
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 104#       发表于 2021-11-1 10:36
 
 
@@ -1511,18 +1510,18 @@ s2级车养老真舒服
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 105#       发表于 2021-11-1 10:36
 
 
- 本帖最后由 feve9999 于 2021-11-1 10:39 编辑 
+ 本帖最后由 feve9999 于 2021-11-1 10:39 编辑
 
 风怒编辑
 
 
 *****
 
-####  你好s1  
+####  你好s1
 ##### 106#       发表于 2021-11-1 10:38
 
 
@@ -1537,7 +1536,7 @@ s2级车养老真舒服
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 107#       发表于 2021-11-1 15:57
 
 
@@ -1550,7 +1549,7 @@ s2级车养老真舒服
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 108#       发表于 2021-11-2 00:26
 
 
@@ -1561,7 +1560,7 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 
 *****
 
-####  D-JoeII  
+####  D-JoeII
 ##### 109#       发表于 2021-11-2 00:43
 
 
@@ -1576,7 +1575,7 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 110#       发表于 2021-11-2 07:17
 
 
@@ -1587,7 +1586,7 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 111#       发表于 2021-11-2 08:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53234586&amp;ptid=2033303" target="_blank">秋雨灰灰 发表于 2021-10-22 14:32</a>
@@ -1597,7 +1596,7 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 
 *****
 
-####  chan  
+####  chan
 ##### 112#       发表于 2021-11-2 09:05
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373443&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 08:59</a>
@@ -1609,7 +1608,7 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 
 *****
 
-####  秋雨灰灰  
+####  秋雨灰灰
 ##### 113#       发表于 2021-11-2 09:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373443&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 08:59</a>
@@ -1618,7 +1617,7 @@ steam买的还不能预载<img src="https://static.saraba1st.com/image/smiley/fa
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 114#       发表于 2021-11-2 09:18
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373582&amp;ptid=2033303" target="_blank">秋雨灰灰 发表于 2021-11-2 09:09</a>
@@ -1627,7 +1626,7 @@ t300法拉利版提升大吗
 
 *****
 
-####  samta  
+####  samta
 ##### 115#       发表于 2021-11-2 09:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
@@ -1637,7 +1636,7 @@ t300法拉利版提升大吗</blockquote>
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 116#       发表于 2021-11-2 09:26
 
 steam可以预载了
@@ -1646,7 +1645,7 @@ steam可以预载了
 
 *****
 
-####  SergeGlenn  
+####  SergeGlenn
 ##### 117#       发表于 2021-11-2 09:28
 
 我看说首发的时候XSS的质量模式会变成1440P 30FPS
@@ -1655,7 +1654,7 @@ steam可以预载了
 
 *****
 
-####  秋雨灰灰  
+####  秋雨灰灰
 ##### 118#       发表于 2021-11-2 09:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
@@ -1665,7 +1664,7 @@ t300法拉利版提升大吗</blockquote>
 
 *****
 
-####  chenyuhao467  
+####  chenyuhao467
 ##### 119#       发表于 2021-11-2 10:04
 
 所以steam版和微软商店版应该选哪个？4代玩steam版然后方向盘有bug…
@@ -1674,7 +1673,7 @@ t300法拉利版提升大吗</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 120#         楼主| 发表于 2021-11-2 12:22
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -1696,7 +1695,7 @@ t300法拉利版提升大吗</blockquote>
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 121#       发表于 2021-11-2 12:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377008&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-2 12:22</a>
@@ -1711,7 +1710,7 @@ t300法拉利版提升大吗</blockquote>
 
 *****
 
-####  agion117  
+####  agion117
 ##### 122#       发表于 2021-11-2 12:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53372807&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-2 07:17</a>
@@ -1721,7 +1720,7 @@ xbox商店显示港区是中午十二点解锁
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 123#       发表于 2021-11-2 12:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377366&amp;ptid=2033303" target="_blank">agion117 发表于 2021-11-2 12:42</a>
@@ -1730,7 +1729,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 124#       发表于 2021-11-2 13:01
 
 方向盘没必要吧，前两作方向盘开一会我就换手柄了
@@ -1739,7 +1738,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  agion117  
+####  agion117
 ##### 125#       发表于 2021-11-2 13:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377408&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-2 12:45</a>
@@ -1749,7 +1748,7 @@ steam就不知道了……也许是一样的吧
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 126#       发表于 2021-11-2 13:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
@@ -1758,7 +1757,7 @@ t300法拉利版提升大吗</blockquote>
 
 *****
 
-####  haru橙子  
+####  haru橙子
 ##### 127#       发表于 2021-11-2 13:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377366&amp;ptid=2033303" target="_blank">agion117 发表于 2021-11-2 12:42</a>
@@ -1768,7 +1767,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  agion117  
+####  agion117
 ##### 128#       发表于 2021-11-2 13:14
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377738&amp;ptid=2033303" target="_blank">haru橙子 发表于 2021-11-2 13:09</a>
@@ -1778,7 +1777,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 129#       发表于 2021-11-2 13:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377733&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-2 13:09</a>
@@ -1789,7 +1788,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 130#         楼主| 发表于 2021-11-2 13:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377870&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-1 21:16</a>
@@ -1811,7 +1810,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 131#       发表于 2021-11-2 14:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53377870&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 13:16</a>
@@ -1825,14 +1824,14 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  Yalbsd  
+####  Yalbsd
 ##### 132#       发表于 2021-11-2 16:59
 
 可以两人合购然后不同存档但是能同时在线吗
 
 *****
 
-####  masterzx  
+####  masterzx
 ##### 133#       发表于 2021-11-2 17:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381007&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-2 16:59</a>
@@ -1842,7 +1841,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 134#       发表于 2021-11-2 17:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381007&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-2 16:59</a>
@@ -1853,7 +1852,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  Yalbsd  
+####  Yalbsd
 ##### 135#       发表于 2021-11-2 17:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381029&amp;ptid=2033303" target="_blank">masterzx 发表于 2021-11-2 17:00</a>
@@ -1863,7 +1862,7 @@ xbox商店显示港区是中午十二点解锁</blockquote>
 
 *****
 
-####  Hanice  
+####  Hanice
 ##### 136#       发表于 2021-11-2 17:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53321993&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-10-29 05:17</a>
@@ -1875,7 +1874,7 @@ FH3\4在win10商店买的，FH5在steam买还能送车吗？
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 137#       发表于 2021-11-2 17:40
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381007&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-2 16:59</a>
@@ -1887,14 +1886,14 @@ xgp足够你玩到下架卖30人民币的时候了
 
 *****
 
-####  dingruntian2  
+####  dingruntian2
 ##### 138#       发表于 2021-11-2 17:48
 
 不知道这一作有没有顶级刷钱bug
 
 *****
 
-####  OneMice  
+####  OneMice
 ##### 139#       发表于 2021-11-2 17:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53381007&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-2 16:59</a>
@@ -1907,7 +1906,7 @@ xbox的话就直接hmoe，pc的话就商店登购买人账号，xbox登游玩的
 
 *****
 
-####  faithlifer  
+####  faithlifer
 ##### 140#       发表于 2021-11-2 18:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53373684&amp;ptid=2033303" target="_blank">feve9999 发表于 2021-11-2 09:18</a>
@@ -1920,7 +1919,7 @@ t300法拉利版提升大吗</blockquote>
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 141#       发表于 2021-11-2 21:35
 
 XGP+顶级捆绑包=终极版，可以这么理解吗？
@@ -1929,7 +1928,7 @@ XGP+顶级捆绑包=终极版，可以这么理解吗？
 
 *****
 
-####  iop000iop  
+####  iop000iop
 ##### 142#       发表于 2021-11-2 22:51
 
 想问一下，我有xgpu，买了推荐的国区顶级加载捆绑包，现在在预载了，怎么才能知道我正在预载的是顶级版？或者说怎么判断我的捆绑包是生效了？
@@ -1938,7 +1937,7 @@ XGP+顶级捆绑包=终极版，可以这么理解吗？
 
 *****
 
-####  逆袭的黑月  
+####  逆袭的黑月
 ##### 143#       发表于 2021-11-2 23:06
 
 买了steam版，感觉应该可以拿到WIN商店版前作奖励吧？毕竟都要登录xbox live
@@ -1947,7 +1946,7 @@ XGP+顶级捆绑包=终极版，可以这么理解吗？
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 144#       发表于 2021-11-2 23:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53387164&amp;ptid=2033303" target="_blank">iop000iop 发表于 2021-11-2 22:51</a>
@@ -1958,7 +1957,7 @@ pc去商店看已安装，xbox看附加内容。不行等能进游戏了再去�
 
 *****
 
-####  chan  
+####  chan
 ##### 145#       发表于 2021-11-3 09:16
 
 pc的xgp大陆不能用，我一直买的港服。但是港服的顶级加截捆绑包是258， 大陆是176。那我买了大陆的顶级加截捆绑包还能适用到我的港服xpg吗？
@@ -1967,7 +1966,7 @@ pc的xgp大陆不能用，我一直买的港服。但是港服的顶级加截捆
 
 *****
 
-####  Miwiki  
+####  Miwiki
 ##### 146#       发表于 2021-11-3 09:26
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391062&amp;ptid=2033303" target="_blank">chan 发表于 2021-11-3 09:16</a>
@@ -1983,7 +1982,7 @@ XSS我是港服
 
 *****
 
-####  chan  
+####  chan
 ##### 147#       发表于 2021-11-3 09:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391185&amp;ptid=2033303" target="_blank">Miwiki 发表于 2021-11-3 09:26</a>
@@ -1999,7 +1998,7 @@ XSS我是港 ...</blockquote>
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 148#       发表于 2021-11-3 11:17
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53391062&amp;ptid=2033303" target="_blank">chan 发表于 2021-11-3 09:16</a>
@@ -2008,11 +2007,11 @@ pc切回国买完再切回香港/新加坡就行<img src="https://static.saraba1
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 149#       发表于 2021-11-3 11:22
 
 <strong>关于送前作车</strong>
-阿b官博：各位车友可以通过Microsoft Store里的Forza Hub App查询是否有之前系列游戏的游玩记录 ​
+阿b官博：各位车友可以通过Microsoft Store里的Forza Hub App查询是否有之前系列游戏的游玩记录
 
 地平线4在xgp里 新入坑的记得嫖辆车<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
@@ -2020,10 +2019,10 @@ pc切回国买完再切回香港/新加坡就行<img src="https://static.saraba1
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 150#       发表于 2021-11-3 14:34
 
- 本帖最后由 风流庵TypeC 于 2021-11-3 14:35 编辑 
+ 本帖最后由 风流庵TypeC 于 2021-11-3 14:35 编辑
 
 <img src="https://img.saraba1st.com/forum/202111/03/143312x49rteb9og3etgii.png" referrerpolicy="no-referrer">
 
@@ -2039,7 +2038,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  ricarto  
+####  ricarto
 ##### 151#       发表于 2021-11-3 14:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53395891&amp;ptid=2033303" target="_blank">风流庵TypeC 发表于 2021-11-3 14:34</a>
@@ -2053,7 +2052,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  Miwiki  
+####  Miwiki
 ##### 152#       发表于 2021-11-3 16:51
 
 惊了，去官网看一下那只手柄，已经上周开订，订完了。。。
@@ -2064,7 +2063,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 153#       发表于 2021-11-3 22:25
 
 今天预载游戏又被MSStore坑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -2073,7 +2072,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 154#       发表于 2021-11-3 23:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402846&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-3 22:25</a>
@@ -2084,7 +2083,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 155#       发表于 2021-11-3 23:49
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53403484&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-3 23:22</a>
@@ -2096,7 +2095,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 156#       发表于 2021-11-4 00:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53402846&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-3 22:25</a>
@@ -2106,7 +2105,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 157#       发表于 2021-11-4 00:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404022&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-4 00:13</a>
@@ -2116,7 +2115,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 158#       发表于 2021-11-4 00:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53404060&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-4 00:16</a>
@@ -2130,7 +2129,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 159#       发表于 2021-11-4 07:04
 
 评分几点出 上90了吗
@@ -2139,7 +2138,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 160#       发表于 2021-11-4 07:24
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53405738&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-4 07:04</a>
@@ -2148,7 +2147,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  rak1  
+####  rak1
 ##### 161#       发表于 2021-11-4 07:40
 
 今晚7点就能玩到了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
@@ -2157,7 +2156,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  andychen  
+####  andychen
 ##### 162#       发表于 2021-11-4 12:44
 
 基里巴斯人已经准备好了，坐等6点解锁
@@ -2166,14 +2165,14 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  q781061296  
+####  q781061296
 ##### 163#       发表于 2021-11-4 13:17
 
 话说买了XGP。还需要买什么包才能在今天提前玩啊
 
 *****
 
-####  lolozp  
+####  lolozp
 ##### 164#       发表于 2021-11-4 13:22
 
 话说有啥便宜的充电电池，非常轻度玩了20多小时地平线4，买了10只南孚只有2个了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -2182,7 +2181,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  andychen  
+####  andychen
 ##### 165#       发表于 2021-11-4 14:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410743&amp;ptid=2033303" target="_blank">q781061296 发表于 2021-11-4 13:17</a>
@@ -2194,7 +2193,7 @@ xgp加国区买了DLC之后，在XBOX商店里显示都有了，除了第一个�
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 166#       发表于 2021-11-4 14:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53410818&amp;ptid=2033303" target="_blank">lolozp 发表于 2021-11-4 13:22</a>
@@ -2206,7 +2205,7 @@ pdd上麦克赛尔，京东的京造都还行
 
 *****
 
-####  DD-963  
+####  DD-963
 ##### 167#       发表于 2021-11-4 14:20
 
 6G显存的1070还能玩吗
@@ -2215,14 +2214,14 @@ pdd上麦克赛尔，京东的京造都还行
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 168#       发表于 2021-11-4 14:49
 
 微软商店莫名其妙下载没速度好久了,预购点了安装完全没反应,退款买steam版去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 *****
 
-####  D-JoeII  
+####  D-JoeII
 ##### 169#       发表于 2021-11-4 15:03
 
 IGN 10
@@ -2233,7 +2232,7 @@ GS 9
 
 *****
 
-####  mashav  
+####  mashav
 ##### 170#       发表于 2021-11-4 15:04
 
 a9和鸡盒评测出了
@@ -2242,7 +2241,7 @@ a9和鸡盒评测出了
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 171#       发表于 2021-11-4 15:10
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412046&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-4 14:49</a>
@@ -2251,14 +2250,14 @@ usbeam有win10商店下载加速规则和使用方法 微软在内地有节点 �
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 172#       发表于 2021-11-4 15:19
 
 稳如死狗 tga能不能给个goty的候选名额啊 给playground点鼓励
 
 *****
 
-####  吃鸡南小鸟  
+####  吃鸡南小鸟
 ##### 173#       发表于 2021-11-4 15:20
 
 MC 28个媒体90分，还是这么稳定，没有任何意外
@@ -2267,7 +2266,7 @@ MC 28个媒体90分，还是这么稳定，没有任何意外
 
 *****
 
-####  saberserker  
+####  saberserker
 ##### 174#       发表于 2021-11-4 15:25
 
 4代全靠刚开始的vip房bug起家，能不能把以前抽奖双倍钱改回来啊
@@ -2278,7 +2277,7 @@ MC 28个媒体90分，还是这么稳定，没有任何意外
 
 *****
 
-####  tuiskusuomaa  
+####  tuiskusuomaa
 ##### 175#       发表于 2021-11-4 15:25
 
 《极限竞速：地平线5》IGN10分：开放世界赛车游戏的巅峰之作
@@ -2287,14 +2286,14 @@ MC 28个媒体90分，还是这么稳定，没有任何意外
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 176#       发表于 2021-11-4 15:45
 
 丢，要憋不住了，得找个理由翘工
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 177#       发表于 2021-11-4 15:47
 
 mc涨到91了，这也忒稳了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -2303,14 +2302,14 @@ mc涨到91了，这也忒稳了<img src="https://static.saraba1st.com/image/smil
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 178#       发表于 2021-11-4 16:13
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经请好假明天开冲了
 
 *****
 
-####  历史厨  
+####  历史厨
 ##### 179#       发表于 2021-11-4 16:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53412384&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-4 15:19</a>
@@ -2322,7 +2321,7 @@ mc涨到91了，这也忒稳了<img src="https://static.saraba1st.com/image/smil
 
 *****
 
-####  iou90  
+####  iou90
 ##### 180#       发表于 2021-11-4 16:33
 
 [https://ftw.usatoday.com/2021/11/forza-horizon-5-review](https://ftw.usatoday.com/2021/11/forza-horizon-5-review)
@@ -2333,7 +2332,7 @@ mckkrik港说感觉95%时间是在白天 夜晚时间过短？
 
 *****
 
-####  机动小蜜蜂  
+####  机动小蜜蜂
 ##### 181#       发表于 2021-11-4 17:30
 
 感觉发售前的实机视频有点少，问下这次有没有详细的内饰改装改色，地平线4基本没有什么内饰更改的选项，连法拉利网页的2D配置器都不如
@@ -2342,7 +2341,7 @@ mckkrik港说感觉95%时间是在白天 夜晚时间过短？
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 182#       发表于 2021-11-4 17:48
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53411641&amp;ptid=2033303" target="_blank">DD-963 发表于 2021-11-4 14:20</a>
@@ -2354,7 +2353,7 @@ mckkrik港说感觉95%时间是在白天 夜晚时间过短？
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 183#       发表于 2021-11-4 18:04
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基里巴斯已发车
@@ -2363,7 +2362,7 @@ mckkrik港说感觉95%时间是在白天 夜晚时间过短？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 184#         楼主| 发表于 2021-11-4 18:08
 
 解锁
@@ -2374,35 +2373,35 @@ mckkrik港说感觉95%时间是在白天 夜晚时间过短？
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 185#       发表于 2021-11-4 18:36
 
 终极版提前游玩是微软商店独占特性？
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 186#       发表于 2021-11-4 18:38
 
 pc一直闪退怎么办
 
 *****
 
-####  swordofsoul1  
+####  swordofsoul1
 ##### 187#       发表于 2021-11-4 18:41
 
 默认不支持ps5手柄么？记得3 4都是支持的啊？来自: iPhone客户端
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 188#       发表于 2021-11-4 18:42
 
 闪退到现在还没玩上<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 189#       发表于 2021-11-4 18:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53414455&amp;ptid=2033303" target="_blank">机动小蜜蜂 发表于 2021-11-4 17:30</a>
@@ -2414,7 +2413,7 @@ pc一直闪退怎么办
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 190#       发表于 2021-11-4 18:49
 
 这作提升主要就地图和引擎声实录吧
@@ -2422,14 +2421,14 @@ pc一直闪退怎么办
 
 *****
 
-####  peshing  
+####  peshing
 ##### 191#       发表于 2021-11-4 18:57
 
 **的连续闪退，就这还最佳赛车游戏？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 192#         楼主| 发表于 2021-11-4 18:59
 
 商店版 基里巴斯 联网 没问题
@@ -2438,14 +2437,14 @@ pc一直闪退怎么办
 
 *****
 
-####  onezer0618  
+####  onezer0618
 ##### 193#       发表于 2021-11-4 19:00
 
 好急，在加班，明天才能玩，另外这次有国产车吗
 
 *****
 
-####  chan  
+####  chan
 ##### 194#       发表于 2021-11-4 19:02
 
 新西兰人开始了！
@@ -2454,14 +2453,14 @@ pc一直闪退怎么办
 
 *****
 
-####  hokagokenjatime  
+####  hokagokenjatime
 ##### 195#       发表于 2021-11-4 19:04
 
 请问一下，我是pc，借的朋友的xgpu，改区能玩吗
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 196#       发表于 2021-11-4 19:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415380&amp;ptid=2033303" target="_blank">hokagokenjatime 发表于 2021-11-4 19:04</a>
@@ -2471,14 +2470,14 @@ pc一直闪退怎么办
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 197#       发表于 2021-11-4 19:04
 
 我win11 beta反而啥问题都没遇到，就是第一次做沙尘暴任务时地面有闪烁，后面有没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 198#       发表于 2021-11-4 19:07
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">一开机要更新20G
@@ -2487,7 +2486,7 @@ pc一直闪退怎么办
 
 *****
 
-####  hokagokenjatime  
+####  hokagokenjatime
 ##### 199#       发表于 2021-11-4 19:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415390&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-4 19:04</a>
@@ -2497,14 +2496,14 @@ pc一直闪退怎么办
 
 *****
 
-####  pppp7049  
+####  pppp7049
 ##### 200#       发表于 2021-11-4 19:17
 
 吐了，性能测试也好，直接开游戏也好，都闪退
 
 *****
 
-####  机动小蜜蜂  
+####  机动小蜜蜂
 ##### 201#       发表于 2021-11-4 19:19
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415390&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-4 19:04</a>
@@ -2518,21 +2517,21 @@ pc一直闪退怎么办
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 202#       发表于 2021-11-4 19:23
 
 闪退的断网再进试试
 
 *****
 
-####  岁在大吉山  
+####  岁在大吉山
 ##### 203#       发表于 2021-11-4 19:23
 
 闪退了10次，最后一次已经到达主舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 204#       发表于 2021-11-4 19:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415593&amp;ptid=2033303" target="_blank">机动小蜜蜂 发表于 2021-11-4 19:19</a>
@@ -2541,7 +2540,7 @@ pc一直闪退怎么办
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 205#       发表于 2021-11-4 19:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415542&amp;ptid=2033303" target="_blank">hokagokenjatime 发表于 2021-11-4 19:15</a>
@@ -2550,7 +2549,7 @@ pc一直闪退怎么办
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 206#       发表于 2021-11-4 19:27
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以是偷渡的锅还是
@@ -2559,14 +2558,14 @@ pc一直闪退怎么办
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 207#       发表于 2021-11-4 19:27
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥我要明天12点才能玩
 
 *****
 
-####  pppp7049  
+####  pppp7049
 ##### 208#       发表于 2021-11-4 19:29
 
 <blockquote>lxx4869 发表于 2021-11-4 19:27
@@ -2575,7 +2574,7 @@ pc一直闪退怎么办
 
 *****
 
-####  pppp7049  
+####  pppp7049
 ##### 209#       发表于 2021-11-4 19:29
 
 <blockquote>Existinghomes 发表于 2021-11-4 19:23
@@ -2584,7 +2583,7 @@ pc一直闪退怎么办
 
 *****
 
-####  arctichan  
+####  arctichan
 ##### 210#       发表于 2021-11-4 19:31
 
 没法用PS4手柄控制吗……？
@@ -2593,7 +2592,7 @@ pc一直闪退怎么办
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 211#       发表于 2021-11-4 19:32
 
 不知道是不是硬盘速度不够，时不时跑在路上提示 串流带宽不足，然后就会有一整块路面没加载出来
@@ -2602,7 +2601,7 @@ pc一直闪退怎么办
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 212#       发表于 2021-11-4 19:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415799&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-4 19:32</a>
@@ -2614,7 +2613,7 @@ pc一直闪退怎么办
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 213#       发表于 2021-11-4 19:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415841&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-4 19:35</a>
@@ -2624,7 +2623,7 @@ pc一直闪退怎么办
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 214#       发表于 2021-11-4 19:39
 
 查了一下好像是爆显存 只能降质了
@@ -2633,14 +2632,14 @@ pc一直闪退怎么办
 
 *****
 
-####  D-JoeII  
+####  D-JoeII
 ##### 215#       发表于 2021-11-4 19:44
 
 這次玩家的角色有對白了啊
 
 *****
 
-####  chan  
+####  chan
 ##### 216#       发表于 2021-11-4 19:47
 
 跑了几个赛事就通知拿到前作封面车了
@@ -2649,7 +2648,7 @@ pc一直闪退怎么办
 
 *****
 
-####  禽兽公爵  
+####  禽兽公爵
 ##### 217#       发表于 2021-11-4 19:48
 
 买了终极版，却还要加班，明天也要加班，希望礼拜日不用加班
@@ -2658,7 +2657,7 @@ pc一直闪退怎么办
 
 *****
 
-####  Yalbsd  
+####  Yalbsd
 ##### 218#       发表于 2021-11-4 19:51
 
 有没有进游戏就闪退的兄弟，咋办
@@ -2667,21 +2666,21 @@ pc一直闪退怎么办
 
 *****
 
-####  rak1  
+####  rak1
 ##### 219#       发表于 2021-11-4 19:53
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">升级包里面的车和VIP还不能领？
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 220#       发表于 2021-11-4 19:57
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些人根本没看过之前那堆地平线5的官方直播啊，不仅介绍了玩家有对白，还有玩家的第三个性别，they/them
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 221#       发表于 2021-11-4 19:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416102&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-4 19:51</a>
@@ -2694,14 +2693,14 @@ pc一直闪退怎么办
 
 *****
 
-####  rak1  
+####  rak1
 ##### 222#       发表于 2021-11-4 19:58
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">xsx的画质模式画面真的绝了，可惜切换要重启
 
 *****
 
-####  D-JoeII  
+####  D-JoeII
 ##### 223#       发表于 2021-11-4 19:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416169&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-4 19:57</a>
@@ -2711,7 +2710,7 @@ pc一直闪退怎么办
 
 *****
 
-####  Yalbsd  
+####  Yalbsd
 ##### 224#       发表于 2021-11-4 20:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416170&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-4 19:57</a>
@@ -2724,7 +2723,7 @@ pc一直闪退怎么办
 
 *****
 
-####  mwj  
+####  mwj
 ##### 225#       发表于 2021-11-4 20:01
 
 怎么修改安装位置啊，c盘实在空不出100g啊
@@ -2733,14 +2732,14 @@ pc一直闪退怎么办
 
 *****
 
-####  Tjodrek  
+####  Tjodrek
 ##### 226#       发表于 2021-11-4 20:02
 
 那几个车为什么领不了，4代也是这样吗
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 227#       发表于 2021-11-4 20:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416216&amp;ptid=2033303" target="_blank">Yalbsd 发表于 2021-11-4 20:01</a>
@@ -2751,7 +2750,7 @@ pc一直闪退怎么办
 
 *****
 
-####  arctichan  
+####  arctichan
 ##### 228#       发表于 2021-11-4 20:05
 
 相比4，没体会到画面上太大的进步。
@@ -2761,7 +2760,7 @@ pc一直闪退怎么办
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 229#       发表于 2021-11-4 20:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416192&amp;ptid=2033303" target="_blank">D-JoeII 发表于 2021-11-4 19:58</a>
@@ -2771,10 +2770,10 @@ pc一直闪退怎么办
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 230#       发表于 2021-11-4 20:10
 
- 本帖最后由 pl0okm 于 2021-11-4 20:12 编辑 
+ 本帖最后由 pl0okm 于 2021-11-4 20:12 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416116&amp;ptid=2033303" target="_blank">rak1 发表于 2021-11-4 19:53</a>
 
 升级包里面的车和VIP还不能领？</blockquote>
@@ -2786,7 +2785,7 @@ pc一直闪退怎么办
 
 *****
 
-####  arctichan  
+####  arctichan
 ##### 231#       发表于 2021-11-4 20:28
 
 断网也闪退……
@@ -2795,7 +2794,7 @@ pc一直闪退怎么办
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 232#       发表于 2021-11-4 20:29
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">卧槽捏人这里也太政治正确了
@@ -2804,10 +2803,10 @@ pc一直闪退怎么办
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 233#         楼主| 发表于 2021-11-4 20:42
 
- 本帖最后由 天神十三煞 于 2021-11-4 04:44 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-4 04:44 编辑
 
 玛雅金字塔这段太棒了
 
@@ -2819,7 +2818,7 @@ pc一直闪退怎么办
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 234#         楼主| 发表于 2021-11-4 20:48
 
 俱乐部居然不通用
@@ -2832,7 +2831,7 @@ Stage1st
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 235#       发表于 2021-11-4 20:49
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">联网就闪退，不联网领取奖励什么的实在没意思了等明天正式解锁再看看
@@ -2841,14 +2840,14 @@ Stage1st
 
 *****
 
-####  历史厨  
+####  历史厨
 ##### 236#       发表于 2021-11-4 21:00
 
 有哪个来总结一下笑啥笑的performance mode和quality mode玩下来的感受优劣不？ 看过ERA的鬼佬眼意见了，看看泥潭的天朝眼是咋个说法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。我正常来说一般是能60就60的，但据说这次画质模式确实画质能显著看出区别？30帧玩久了坚持得下去吗？
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 237#       发表于 2021-11-4 21:00
 
 我这也是vip和车包都没解锁，明天来看吧
@@ -2857,7 +2856,7 @@ Stage1st
 
 *****
 
-####  minysun  
+####  minysun
 ##### 238#       发表于 2021-11-4 21:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416225&amp;ptid=2033303" target="_blank">mwj 发表于 2021-11-4 20:01</a>
@@ -2867,10 +2866,10 @@ XBOX应用-右上角你的账户头像-设置-常规-游戏安装选项-每次�
 
 *****
 
-####  tuiskusuomaa  
+####  tuiskusuomaa
 ##### 239#       发表于 2021-11-4 21:13
 
- 本帖最后由 tuiskusuomaa 于 2021-11-4 21:15 编辑 
+ 本帖最后由 tuiskusuomaa 于 2021-11-4 21:15 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53416915&amp;ptid=2033303" target="_blank">历史厨 发表于 2021-11-4 21:00</a>
 
 有哪个来总结一下笑啥笑的performance mode和quality mode玩下来的感受优劣不？ 看过ERA的鬼佬眼意见了，看 ...</blockquote>
@@ -2880,7 +2879,7 @@ XBOX应用-右上角你的账户头像-设置-常规-游戏安装选项-每次�
 
 *****
 
-####  何尚生  
+####  何尚生
 ##### 240#       发表于 2021-11-4 21:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415730&amp;ptid=2033303" target="_blank">pppp7049 发表于 2021-11-4 19:29</a>
@@ -2892,14 +2891,14 @@ XBOX应用-右上角你的账户头像-设置-常规-游戏安装选项-每次�
 
 *****
 
-####  katern  
+####  katern
 ##### 241#       发表于 2021-11-4 21:31
 
 100g，固态被塞满勒<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 242#       发表于 2021-11-4 21:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417283&amp;ptid=2033303" target="_blank">何尚生 发表于 2021-11-4 21:30</a>
@@ -2910,7 +2909,7 @@ win10系统设置里改区域就行
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 243#       发表于 2021-11-4 22:04
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">技术的你软，原本想重启电脑试试看能不能闪退的情况好一点，结果重启之后点图标只会弹出商店里一个游戏服务的应用的页面
@@ -2921,21 +2920,21 @@ win10系统设置里改区域就行
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 244#       发表于 2021-11-4 22:11
 
 101g，微软这速度最高还只有3.3mb/s，下到明天去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 245#       发表于 2021-11-4 22:11
 
 这才解锁第一天怎么就已经一个已完结的季节和马上就要完结的季节……
 
 *****
 
-####  Sakaiyuki  
+####  Sakaiyuki
 ##### 246#       发表于 2021-11-4 22:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417832&amp;ptid=2033303" target="_blank">冀人燕南天 发表于 2021-11-4 22:11</a>
@@ -2944,14 +2943,14 @@ win10系统设置里改区域就行
 
 *****
 
-####  riin1  
+####  riin1
 ##### 247#       发表于 2021-11-4 22:22
 
 萌新第一次玩Forza，刚下单了一个G29
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 248#       发表于 2021-11-4 22:23
 
 目前不能用方向盘吗，我接上去以后游戏内不识别<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
@@ -2960,7 +2959,7 @@ win10系统设置里改区域就行
 
 *****
 
-####  Sakaiyuki  
+####  Sakaiyuki
 ##### 249#       发表于 2021-11-4 22:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417995&amp;ptid=2033303" target="_blank">riin1 发表于 2021-11-4 22:22</a>
@@ -2969,7 +2968,7 @@ win10系统设置里改区域就行
 
 *****
 
-####  qool999  
+####  qool999
 ##### 250#       发表于 2021-11-4 22:37
 
 xss完成第一个表演赛，睡觉。
@@ -2978,17 +2977,17 @@ xss完成第一个表演赛，睡觉。
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 251#       发表于 2021-11-4 22:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53417820&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-4 22:11</a>
 101g，微软这速度最高还只有3.3mb/s，下到明天去了</blockquote>
-usbeam 
+usbeam
 不换ip也行 重启下传递优化服务也可能下载回满速 微软在大陆有节点
 
 *****
 
-####  riin1  
+####  riin1
 ##### 252#       发表于 2021-11-4 22:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418114&amp;ptid=2033303" target="_blank">Sakaiyuki 发表于 2021-11-4 06:30</a>
@@ -2998,14 +2997,14 @@ usbeam
 
 *****
 
-####  peshing  
+####  peshing
 ##### 253#       发表于 2021-11-4 22:53
 
 发现地面的不远处有明显的材质质量分界线，我明明效果都开到最高了啊
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 254#       发表于 2021-11-4 22:58
 
 麻了，下载出错，求救，我看贴吧也有人出类似问题
@@ -3040,7 +3039,7 @@ usbeam
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 255#       发表于 2021-11-4 22:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418473&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-4 22:58</a>
@@ -3052,22 +3051,22 @@ usbeam
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 256#       发表于 2021-11-4 22:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418314&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-4 22:45</a>
 
-usbeam 
+usbeam
 
 不换ip也行 重启下传递优化服务也可能下载回满速 微软在大陆有节点 ...</blockquote>
 win商店现在重启不会进度条直接没了吗
 
 *****
 
-####  wujae  
+####  wujae
 ##### 257#       发表于 2021-11-4 23:04
 
- 本帖最后由 wujae 于 2021-11-4 23:06 编辑 
+ 本帖最后由 wujae 于 2021-11-4 23:06 编辑
 
 果然PC商城版还是各种祖传问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 地平线3进游戏能运行3分钟就不错了，必然闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -3077,7 +3076,7 @@ win商店现在重启不会进度条直接没了吗
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 258#       发表于 2021-11-4 23:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418490&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-4 22:59</a>
@@ -3088,14 +3087,14 @@ win商店现在重启不会进度条直接没了吗</blockquote>
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 259#       发表于 2021-11-4 23:10
 
 没碰到过闪退，不过win商店有时候报错，重启系统能解决或者从xbox进
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 260#       发表于 2021-11-4 23:13
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么关西漂移这个傻逼翻译从4代照搬过来还没修正
@@ -3104,7 +3103,7 @@ win商店现在重启不会进度条直接没了吗</blockquote>
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 261#       发表于 2021-11-4 23:24
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418645&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-4 23:13</a>
@@ -3118,7 +3117,7 @@ win商店现在重启不会进度条直接没了吗</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 262#       发表于 2021-11-4 23:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418473&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-4 22:58</a>
@@ -3129,10 +3128,10 @@ win商店现在重启不会进度条直接没了吗</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 263#         楼主| 发表于 2021-11-4 23:32
 
- 本帖最后由 天神十三煞 于 2021-11-4 07:43 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-4 07:43 编辑
 
 其实没有什么重装解决不了的问题，商店对网络和防火墙网关之类的设置很脆皮敏感，不知道国产流氓会动什么，然后就报错。
 
@@ -3144,7 +3143,7 @@ windows用户必备acronis，两分钟来回
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 264#       发表于 2021-11-4 23:34
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418861&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-4 23:32</a>
@@ -3157,14 +3156,14 @@ windows用户必备acronis，两分钟来回
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 265#       发表于 2021-11-4 23:39
 
 艹，新手关最后一段跑一半闪退，只能断网试一下了
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 266#       发表于 2021-11-4 23:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418953&amp;ptid=2033303" target="_blank">风流庵TypeC 发表于 2021-11-4 23:39</a>
@@ -3173,7 +3172,7 @@ windows用户必备acronis，两分钟来回
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 267#         楼主| 发表于 2021-11-4 23:43
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418885&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-4 07:34</a>
@@ -3185,7 +3184,7 @@ windows用户必备acronis，两分钟来回
 
 *****
 
-####  misaki_d  
+####  misaki_d
 ##### 268#       发表于 2021-11-4 23:44
 
 steam 下载体验完爆微软商城，G 胖这钱是得让他赚
@@ -3194,7 +3193,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 269#       发表于 2021-11-4 23:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53419002&amp;ptid=2033303" target="_blank">misaki_d 发表于 2021-11-4 23:44</a>
@@ -3205,7 +3204,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 270#       发表于 2021-11-4 23:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418995&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-4 23:43</a>
@@ -3218,7 +3217,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  SpaceCowboy  
+####  SpaceCowboy
 ##### 271#       发表于 2021-11-5 00:00
 
 请问steam的豪华版是几点开early access？
@@ -3227,14 +3226,14 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 272#       发表于 2021-11-5 00:08
 
 0点过后欢迎包的5辆车已经解锁，VIP的黄冠也戴上了
 
 *****
 
-####  真实之影  
+####  真实之影
 ##### 273#       发表于 2021-11-5 00:10
 
 已经可以玩了？
@@ -3243,7 +3242,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 274#         楼主| 发表于 2021-11-5 00:27
 
 这代格里拉也太长了
@@ -3252,7 +3251,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  leonlink  
+####  leonlink
 ##### 275#       发表于 2021-11-5 00:33
 
 这次方向盘支持咋样？刚看一主播是用方向盘玩的，感觉还行
@@ -3261,14 +3260,14 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 276#       发表于 2021-11-5 00:44
 
 穿越回去拿个德罗索 寻宝任务找到位置后不刷宝箱 地图都显示宝箱图标了 跑场比赛回去才刷
 
 *****
 
-####  泉美  
+####  泉美
 ##### 277#       发表于 2021-11-5 01:00
 
 这代ui突然又往方块改＋大字体有点蚌埠住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -3277,7 +3276,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 278#       发表于 2021-11-5 01:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415799&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-4 19:32</a>
@@ -3288,7 +3287,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 279#       发表于 2021-11-5 01:18
 
 现在这个时间点的服务器质量也太糟糕了，疯狂掉线
@@ -3297,14 +3296,14 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  nailuo1993  
+####  nailuo1993
 ##### 280#       发表于 2021-11-5 01:43
 
 这代abs如何，会让刹车距离变远吗
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 281#       发表于 2021-11-5 01:45
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发现有一张买车的票，那张票拿来买最贵的Cobra Daytona？
@@ -3313,14 +3312,14 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  dragrass  
+####  dragrass
 ##### 282#       发表于 2021-11-5 02:02
 
 不是说这一代有国产车吗<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 283#       发表于 2021-11-5 02:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53419837&amp;ptid=2033303" target="_blank">虚无连斩 发表于 2021-11-5 01:45</a>
@@ -3332,7 +3331,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 284#       发表于 2021-11-5 02:11
 
 还有件事，我用天蝎玩，发现刹车时候刹车盘不变红了...
@@ -3342,7 +3341,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 285#         楼主| 发表于 2021-11-5 02:20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -3353,7 +3352,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 286#         楼主| 发表于 2021-11-5 02:44
 
 你们能加俱乐部吗
@@ -3362,14 +3361,14 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 287#       发表于 2021-11-5 02:58
 
 这代设置拉到最高连3090也稳不住4K60啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 288#         楼主| 发表于 2021-11-5 03:24
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420043&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-4 10:58</a>
@@ -3381,7 +3380,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 289#       发表于 2021-11-5 04:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420043&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 02:58</a>
@@ -3390,7 +3389,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 290#       发表于 2021-11-5 04:11
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420138&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-5 04:07</a>
@@ -3400,7 +3399,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 291#       发表于 2021-11-5 04:12
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420087&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 03:24</a>
@@ -3412,7 +3411,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 292#       发表于 2021-11-5 05:13
 
 <blockquote>itsmyrailgun 发表于 2021-11-4 12:03
@@ -3423,7 +3422,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 293#         楼主| 发表于 2021-11-5 05:20
 
 好像有个免费购车劵
@@ -3438,7 +3437,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  mazin001  
+####  mazin001
 ##### 294#       发表于 2021-11-5 07:18
 
 完了
@@ -3449,7 +3448,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 295#       发表于 2021-11-5 07:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420043&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 02:58</a>
@@ -3459,7 +3458,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  Tjodrek  
+####  Tjodrek
 ##### 296#       发表于 2021-11-5 07:46
 
 哪里有dlss啊，眼瞎没看见呢
@@ -3468,7 +3467,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 297#       发表于 2021-11-5 08:03
 
 奇怪，我地平线4的塞纳收到了，3的封面车怎么没有？
@@ -3477,7 +3476,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 298#       发表于 2021-11-5 08:18
 
 研究了一个早上....这代刹车盘变红效果改的太不显眼了...好几辆车烧胎好久才看出红了，简直是玩找茬
@@ -3486,7 +3485,7 @@ steam 下载体验完爆微软商城，G 胖这钱是得让他赚</blockquote>
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 299#       发表于 2021-11-5 08:20
 
 xbox还没解锁，究竟啥时候能玩<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
@@ -3495,7 +3494,7 @@ xbox还没解锁，究竟啥时候能玩<img src="https://static.saraba1st.com/i
 
 *****
 
-####  不会武术  
+####  不会武术
 ##### 300#       发表于 2021-11-5 08:22
 
 反正xgp白嫖就是9号咯？
@@ -3504,7 +3503,7 @@ xbox还没解锁，究竟啥时候能玩<img src="https://static.saraba1st.com/i
 
 *****
 
-####  何然  
+####  何然
 ##### 301#       发表于 2021-11-5 08:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420622&amp;ptid=2033303" target="_blank">铅笔 发表于 2021-11-5 08:20</a>
@@ -3514,7 +3513,7 @@ xbox还没解锁，究竟啥时候能玩</blockquote>
 
 *****
 
-####  何然  
+####  何然
 ##### 302#       发表于 2021-11-5 08:34
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53419423&amp;ptid=2033303" target="_blank">leonlink 发表于 2021-11-5 00:33</a>
@@ -3528,7 +3527,7 @@ xbox还没解锁，究竟啥时候能玩</blockquote>
 
 *****
 
-####  chan  
+####  chan
 ##### 303#       发表于 2021-11-5 08:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53418427&amp;ptid=2033303" target="_blank">peshing 发表于 2021-11-4 22:53</a>
@@ -3540,7 +3539,7 @@ xbox还没解锁，究竟啥时候能玩</blockquote>
 
 *****
 
-####  leonlink  
+####  leonlink
 ##### 304#       发表于 2021-11-5 08:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420737&amp;ptid=2033303" target="_blank">何然 发表于 2021-11-5 08:34</a>
@@ -3553,14 +3552,14 @@ xbox还没解锁，究竟啥时候能玩</blockquote>
 
 *****
 
-####  江宁老实人  
+####  江宁老实人
 ##### 305#       发表于 2021-11-5 08:53
 
 车券在哪领<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 *****
 
-####  q781061296  
+####  q781061296
 ##### 306#       发表于 2021-11-5 09:04
 
 Steam顶级版什么时候可以玩
@@ -3569,14 +3568,14 @@ Steam顶级版什么时候可以玩
 
 *****
 
-####  docklabor  
+####  docklabor
 ##### 307#       发表于 2021-11-5 09:15
 
 西瓜皮加终极包的怎么下游戏？怎么现在程序里还是预安装
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 308#         楼主| 发表于 2021-11-5 09:17
 
 甲壳虫倒数第二关沙漠拍照有一定难度要求
@@ -3597,14 +3596,14 @@ Steam顶级版什么时候可以玩
 
 *****
 
-####  fange  
+####  fange
 ##### 309#       发表于 2021-11-5 09:21
 
 传闻的国产车是那部，咋没看到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 *****
 
-####  何然  
+####  何然
 ##### 310#       发表于 2021-11-5 09:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421154&amp;ptid=2033303" target="_blank">docklabor 发表于 2021-11-5 09:15</a>
@@ -3618,7 +3617,7 @@ Steam顶级版什么时候可以玩
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 311#       发表于 2021-11-5 09:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421225&amp;ptid=2033303" target="_blank">fange 发表于 2021-11-5 09:21</a>
@@ -3627,14 +3626,14 @@ Steam顶级版什么时候可以玩
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 312#       发表于 2021-11-5 09:34
 
 跑完性能测试给我设了个超高，结果一到控制器介绍那个加载界面就跳出，手动选择质量，能进游戏了，但是跑到开头最后一辆车就又跳出了，看了看日志是0xc0000005，感觉只能等更新了，真折腾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 313#       发表于 2021-11-5 09:41
 
 win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升级到最新<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
@@ -3643,7 +3642,7 @@ win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 314#         楼主| 发表于 2021-11-5 09:42
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">早玩就是好啊，各种霸榜
@@ -3651,7 +3650,7 @@ win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升�
 
 *****
 
-####  Finsty  
+####  Finsty
 ##### 315#       发表于 2021-11-5 09:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421373&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-5 09:34</a>
@@ -3663,7 +3662,7 @@ win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 316#       发表于 2021-11-5 10:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421553&amp;ptid=2033303" target="_blank">Finsty 发表于 2021-11-5 09:47</a>
@@ -3673,7 +3672,7 @@ win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 317#         楼主| 发表于 2021-11-5 10:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420144&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-4 12:12</a>
@@ -3685,7 +3684,7 @@ win商店体验真是大粪啊，好不容易下完又说显卡驱动没有升�
 
 *****
 
-####  nomhrpls  
+####  nomhrpls
 ##### 318#       发表于 2021-11-5 10:17
 
 steam买了顶级版是不是过2个小时就能玩了。
@@ -3696,21 +3695,21 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 319#       发表于 2021-11-5 10:32
 
 为啥win商店版用xbox手柄没有震动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 *****
 
-####  monono  
+####  monono
 ##### 320#       发表于 2021-11-5 10:36
 
 保时捷的那个电动车为啥开起来没有声音？我看实车视频里都有模拟声浪音啊。而且后备箱也打不开？
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 321#       发表于 2021-11-5 10:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422183&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-5 10:32</a>
@@ -3722,17 +3721,17 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  冰箱研会长  
+####  冰箱研会长
 ##### 322#       发表于 2021-11-5 10:46
 
 来人！ 给一句好不好玩！ 好玩我周一就买一份
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 323#       发表于 2021-11-5 10:57
 
- 本帖最后由 舌怪 于 2021-11-5 11:01 编辑 
+ 本帖最后由 舌怪 于 2021-11-5 11:01 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421927&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 10:15</a>
 
 我又到处跑了一圈雨林都是60
@@ -3742,7 +3741,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 324#       发表于 2021-11-5 10:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422183&amp;ptid=2033303" target="_blank">培根芝士蛋堡XD 发表于 2021-11-5 10:32</a>
@@ -3754,14 +3753,14 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  何尚生  
+####  何尚生
 ##### 325#       发表于 2021-11-5 11:18
 
 玩上的大佬们说说这代方向盘支持做得怎么样吧。在考虑要不要买个盘子
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 326#       发表于 2021-11-5 11:25
 
 说起来看狗头人直播，进入游戏之前就先选名字，为啥我一直等到搬进第一栋房子时才能改名……
@@ -3770,7 +3769,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 327#         楼主| 发表于 2021-11-5 11:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422602&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-4 18:57</a>
@@ -3782,7 +3781,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  罗科  
+####  罗科
 ##### 328#       发表于 2021-11-5 11:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53423012&amp;ptid=2033303" target="_blank">何尚生 发表于 2021-11-5 11:18</a>
@@ -3792,7 +3791,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  leonlink  
+####  leonlink
 ##### 329#       发表于 2021-11-5 11:46
 
 方向盘支持好，心痒了，可惜更喜欢4代的风景
@@ -3801,7 +3800,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 330#       发表于 2021-11-5 11:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53422622&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-5 10:58</a>
@@ -3813,7 +3812,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  弱逼  
+####  弱逼
 ##### 331#       发表于 2021-11-5 12:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421297&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-5 09:27</a>
@@ -3826,7 +3825,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  Milarvoz  
+####  Milarvoz
 ##### 332#       发表于 2021-11-5 12:26
 
 芜湖，steam安装完了，起飞！
@@ -3836,7 +3835,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 333#       发表于 2021-11-5 12:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53421927&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 10:15</a>
@@ -3849,7 +3848,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  nagitoY  
+####  nagitoY
 ##### 334#       发表于 2021-11-5 12:46
 
 为什么我的steam显示11.9才能解锁<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
@@ -3858,14 +3857,14 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  nagitoY  
+####  nagitoY
 ##### 335#       发表于 2021-11-5 12:47
 
 好像是微软商店早4天
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 336#       发表于 2021-11-5 12:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424080&amp;ptid=2033303" target="_blank">Milarvoz 发表于 2021-11-5 12:26</a>
@@ -3877,7 +3876,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 337#         楼主| 发表于 2021-11-5 13:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424503&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-4 20:52</a>
@@ -3891,7 +3890,7 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 338#       发表于 2021-11-5 13:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424659&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 13:02</a>
@@ -3904,14 +3903,14 @@ steam买了顶级版是不是过2个小时就能玩了。
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 339#       发表于 2021-11-5 13:14
 
 这作也太吃显存了吧，3070调最高漫天的图形bug,地面黑块，植被popin，msaa拉满糊成一团，a卡有这些问题吗
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 340#       发表于 2021-11-5 13:15
 
 steam版刚打完第一场表演赛，倒是没有遇到什么问题
@@ -3920,23 +3919,23 @@ steam版刚打完第一场表演赛，倒是没有遇到什么问题
 
 *****
 
-####  nomhrpls  
+####  nomhrpls
 ##### 341#       发表于 2021-11-5 13:30
 
- 本帖最后由 nomhrpls 于 2021-11-5 13:35 编辑 
+ 本帖最后由 nomhrpls 于 2021-11-5 13:35 编辑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">steam版开场玩到丛林那就闪退，3次了
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 342#       发表于 2021-11-5 13:38
 
 这作的AI好像真的比4要强啊，老手跑起来感觉比4的专业还厉害<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 343#       发表于 2021-11-5 13:41
 
 微软商店版本完全不识别手柄是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -3945,7 +3944,7 @@ steam版刚打完第一场表演赛，倒是没有遇到什么问题
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 344#       发表于 2021-11-5 13:45
 
 感觉画面优化有点屎啊，拉到超高，有时候远景贴图都没加载完<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -3954,7 +3953,7 @@ steam版刚打完第一场表演赛，倒是没有遇到什么问题
 
 *****
 
-####  zzydust  
+####  zzydust
 ##### 345#       发表于 2021-11-5 13:48
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425072&amp;ptid=2033303" target="_blank">nomhrpls 发表于 2021-11-5 13:30</a>
@@ -3964,14 +3963,14 @@ steam版开场玩到丛林那就闪退，3次了</blockquote>
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 346#       发表于 2021-11-5 13:48
 
 方向盘默认设置玩了下，铺装路手感还可以，非铺装路震得手疼，默认方向盘角度太小不知道能不能调，虽然手感确实觉着还可以但因为车内视角，第一次开的赛道不熟悉的话圈速不如手柄开。
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 347#       发表于 2021-11-5 13:49
 
 这代就是不支持微软自家以外的手柄，要开DS4Windows之类的辅助才能用
@@ -3980,7 +3979,7 @@ steam版开场玩到丛林那就闪退，3次了</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 348#       发表于 2021-11-5 13:50
 
 <blockquote>天神十三煞 发表于 2021-11-4 23:02
@@ -3991,7 +3990,7 @@ steam版开场玩到丛林那就闪退，3次了</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 349#         楼主| 发表于 2021-11-5 13:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424095&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-4 20:28</a>
@@ -4005,7 +4004,7 @@ steam版开场玩到丛林那就闪退，3次了</blockquote>
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 350#       发表于 2021-11-5 13:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425142&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-5 13:38</a>
@@ -4015,7 +4014,7 @@ steam版开场玩到丛林那就闪退，3次了</blockquote>
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 351#       发表于 2021-11-5 14:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425266&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-5 13:49</a>
@@ -4029,7 +4028,7 @@ steam版的也要另外装映射软件吗<img src="https://static.saraba1st.com/
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 352#       发表于 2021-11-5 14:06
 
 墨西哥的风景特别多样啊，逛了一圈出乎意料地赏心悦目
@@ -4038,7 +4037,7 @@ steam版的也要另外装映射软件吗<img src="https://static.saraba1st.com/
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 353#         楼主| 发表于 2021-11-5 14:07
 
 那个花车什么鬼
@@ -4047,7 +4046,7 @@ steam版的也要另外装映射软件吗<img src="https://static.saraba1st.com/
 
 *****
 
-####  Lisylfn  
+####  Lisylfn
 ##### 354#       发表于 2021-11-5 14:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425178&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-5 13:41</a>
@@ -4065,14 +4064,14 @@ steam版随便用手柄，图标现实xbox的罢了
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 355#       发表于 2021-11-5 14:09
 
 突然发现xsx手柄的分享键居然生效了，什么时候更新的
 
 *****
 
-####  DD-963  
+####  DD-963
 ##### 356#       发表于 2021-11-5 14:11
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53415780&amp;ptid=2033303" target="_blank">arctichan 发表于 2021-11-4 19:31</a>
@@ -4082,7 +4081,7 @@ steam版随便用手柄，图标现实xbox的罢了
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 357#       发表于 2021-11-5 14:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425538&amp;ptid=2033303" target="_blank">Lisylfn 发表于 2021-11-5 14:08</a>
@@ -4100,7 +4099,7 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 
 *****
 
-####  没钱买手办  
+####  没钱买手办
 ##### 358#       发表于 2021-11-5 14:20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用图马斯特方向盘玩了半天，感觉还是手柄开起来舒服
@@ -4109,10 +4108,10 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 359#         楼主| 发表于 2021-11-5 14:31
 
- 本帖最后由 天神十三煞 于 2021-11-4 22:33 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-4 22:33 编辑
 
 剧情里冒险尽量先解锁下面紫色的第一个街头冒险
 
@@ -4120,7 +4119,7 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 360#       发表于 2021-11-5 14:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425781&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 14:31</a>
@@ -4133,7 +4132,7 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 361#       发表于 2021-11-5 14:50
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，现在才发现，之前开998的车参赛，AI的车也大多是没怎么改造的，这次AI也不装了，你开998，AI也通通998
@@ -4142,10 +4141,10 @@ UWPhook只能把游戏暴露给steam进行添加，但是不能用steam的手柄
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 362#       发表于 2021-11-5 15:12
 
- 本帖最后由 bad_alloc 于 2021-11-5 15:15 编辑 
+ 本帖最后由 bad_alloc 于 2021-11-5 15:15 编辑
 
 送的那辆supra都改装的什么勾八，自己重新改一遍终于舒服了
 
@@ -4155,7 +4154,7 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 363#         楼主| 发表于 2021-11-5 15:14
 
 可能有个别坛友没有成功加俱乐部
@@ -4166,7 +4165,7 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 364#         楼主| 发表于 2021-11-5 15:28
 
 中间有个仙人掌地带没啥障碍物
@@ -4179,7 +4178,7 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  haru橙子  
+####  haru橙子
 ##### 365#       发表于 2021-11-5 15:29
 
 目前来开最速应该是koenigsegg jesko 机场的危险标志能飞1000m+。
@@ -4188,14 +4187,14 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  夜_乌鸦  
+####  夜_乌鸦
 ##### 366#       发表于 2021-11-5 15:31
 
 完全不会玩竞速游戏<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">拐弯就撞墙，有啥提高自己的办法吗
 
 *****
 
-####  yangfanel  
+####  yangfanel
 ##### 367#       发表于 2021-11-5 15:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53424414&amp;ptid=2033303" target="_blank">nagitoY 发表于 2021-11-5 12:47</a>
@@ -4205,7 +4204,7 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 368#       发表于 2021-11-5 15:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
@@ -4214,7 +4213,7 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 369#       发表于 2021-11-5 15:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
@@ -4225,7 +4224,7 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  415452356  
+####  415452356
 ##### 370#       发表于 2021-11-5 15:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
@@ -4235,7 +4234,7 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 371#       发表于 2021-11-5 15:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425266&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-5 13:49</a>
@@ -4248,14 +4247,14 @@ vip送的两个超级抽奖出了huyra fe跟第六元素fe<img src="https://stat
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 372#       发表于 2021-11-5 15:35
 
 xsx始终连不上线上模式，难道是服务器还没开？
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 373#       发表于 2021-11-5 15:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426516&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-5 15:35</a>
@@ -4267,7 +4266,7 @@ xsx能玩了？我刚才1点钟还进不去
 
 *****
 
-####  夜_乌鸦  
+####  夜_乌鸦
 ##### 374#       发表于 2021-11-5 15:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426509&amp;ptid=2033303" target="_blank">415452356 发表于 2021-11-5 15:35</a>
@@ -4277,10 +4276,10 @@ xsx能玩了？我刚才1点钟还进不去
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 375#         楼主| 发表于 2021-11-5 15:51
 
- 本帖最后由 天神十三煞 于 2021-11-5 00:05 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-5 00:05 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-4 23:31</a>
 
 完全不会玩竞速游戏拐弯就撞墙，有啥提高自己的办法吗</blockquote>
@@ -4298,7 +4297,7 @@ xsx能玩了？我刚才1点钟还进不去
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 376#       发表于 2021-11-5 15:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426516&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-5 15:35</a>
@@ -4308,7 +4307,7 @@ xsx始终连不上线上模式，难道是服务器还没开？</blockquote>
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 377#       发表于 2021-11-5 15:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426705&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:51</a>
@@ -4318,7 +4317,7 @@ xsx始终连不上线上模式，难道是服务器还没开？</blockquote>
 
 *****
 
-####  navarra  
+####  navarra
 ##### 378#       发表于 2021-11-5 15:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426208&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-5 15:12</a>
@@ -4330,7 +4329,7 @@ supra最大的特色还是满屏幕的痛车涂装.......
 
 *****
 
-####  升职加薪  
+####  升职加薪
 ##### 379#       发表于 2021-11-5 15:59
 
 不能用豪车虐菜车吗
@@ -4339,7 +4338,7 @@ supra最大的特色还是满屏幕的痛车涂装.......
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 380#       发表于 2021-11-5 16:19
 
 三点提前跑回家了 steam版从安装到打开到跑完几个比赛一点问题都没出 等半天还是值得的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -4347,14 +4346,14 @@ supra最大的特色还是满屏幕的痛车涂装.......
 
 *****
 
-####  没钱买手办  
+####  没钱买手办
 ##### 381#       发表于 2021-11-5 16:20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么加俱乐部
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 382#       发表于 2021-11-5 16:24
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53425316&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 13:52</a>
@@ -4369,14 +4368,14 @@ supra最大的特色还是满屏幕的痛车涂装.......
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 383#       发表于 2021-11-5 16:28
 
 团队游戏只要完赛就能拿奖励了。好起来了。
 
 *****
 
-####  swordofsoul1  
+####  swordofsoul1
 ##### 384#       发表于 2021-11-5 16:36
 
 临时找到的ps4/5手柄玩地平线5的方法
@@ -4394,7 +4393,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  Jumbohard  
+####  Jumbohard
 ##### 385#       发表于 2021-11-5 16:41
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427347&amp;ptid=2033303" target="_blank">swordofsoul1 发表于 2021-11-5 16:36</a>
@@ -4408,7 +4407,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 386#       发表于 2021-11-5 16:43
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426452&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:31</a>
@@ -4420,7 +4419,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 387#       发表于 2021-11-5 16:46
 
 你的车啥水平，AI就啥水平的车，挺好的，可以随意开自己喜欢的车去比赛了
@@ -4429,10 +4428,10 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 388#       发表于 2021-11-5 16:51
 
- 本帖最后由 lxx4869 于 2021-11-5 16:57 编辑 
+ 本帖最后由 lxx4869 于 2021-11-5 16:57 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426705&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:51</a>
 
 驾龄好多年了，不过日常开车也不用比名次过弯也都是慢慢开的，不知道怎么套到竞速游戏里…
@@ -4442,14 +4441,14 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  恋妖壶  
+####  恋妖壶
 ##### 389#       发表于 2021-11-5 16:52
 
 我也发现了，这不是不能手残拿好车去虐菜车了吗，拿尽力去拿好车是不是就没有强度上的价值了
 
 *****
 
-####  hhgjf  
+####  hhgjf
 ##### 390#       发表于 2021-11-5 16:53
 
 萌新请教一下加俱乐部是干啥用的，有什么社交元素。 系列只玩过FH4，把本体的任务/赛道全打了，房忘了是全买还是剩最贵的一栋没买。没加过俱乐部。
@@ -4458,10 +4457,10 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 391#         楼主| 发表于 2021-11-5 17:08
 
- 本帖最后由 天神十三煞 于 2021-11-5 01:11 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-5 01:11 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427165&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 00:24</a>
 
 我是包括msaa在内全部都开到极端的
@@ -4477,14 +4476,14 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 392#       发表于 2021-11-5 17:13
 
 这游戏hdr不支持自动切换嘛，win10里不开hdr游戏里就不让开，而且玩久了有点亮瞎眼，索性关掉了...
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 393#       发表于 2021-11-5 17:22
 
 是这代的塞纳性能比较弱吗，S2级赛下别说用车的性能碾压了，甚至感觉不如AI的性能，调校选的是推荐里前排的调校
@@ -4493,7 +4492,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  iou90  
+####  iou90
 ##### 394#       发表于 2021-11-5 17:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53426705&amp;ptid=2033303" target="_blank">夜_乌鸦 发表于 2021-11-5 15:51</a>
@@ -4505,7 +4504,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 395#       发表于 2021-11-5 17:40
 
 运行了一下，这游戏和之前FH4一样，载入界面1080P30，进游戏后又不能正确识别我这个显示器的144刷新率给我锁了个72，还只能减不能加，改成36以后就改不回来了。
@@ -4514,7 +4513,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 396#       发表于 2021-11-5 17:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427857&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 17:08</a>
@@ -4529,7 +4528,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  misaki_d  
+####  misaki_d
 ##### 397#       发表于 2021-11-5 17:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427567&amp;ptid=2033303" target="_blank">恋妖壶 发表于 2021-11-5 16:52</a>
@@ -4539,21 +4538,21 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 398#       发表于 2021-11-5 17:49
 
 这代墨西哥amigo跟集体磕了药似的，前驱后驱四驱起步我就没赢过，直线加速赛换越野车才拿到第一名。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 399#       发表于 2021-11-5 17:56
 
 感觉古典电台好敷衍啊，没跑多久就循环了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 400#       发表于 2021-11-5 17:59
 
 开始自选形象了，这次怎么比FH4还要歪瓜裂枣？
@@ -4562,7 +4561,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 401#       发表于 2021-11-5 18:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53420729&amp;ptid=2033303" target="_blank">何然 发表于 2021-11-5 08:33</a>
@@ -4572,7 +4571,7 @@ ps4/5手柄，需要虚拟xbox手柄，排在第二位，第一位置为原手�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 402#       发表于 2021-11-5 18:18
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53428314&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-5 17:40</a>
@@ -4586,7 +4585,7 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 *****
 
-####  katern  
+####  katern
 ##### 403#       发表于 2021-11-5 18:41
 
 疯狂闪退，我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -4595,7 +4594,7 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 404#       发表于 2021-11-5 19:10
 
 这游戏地图/任务线上排名第一有奖励/成就吗？
@@ -4605,7 +4604,7 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 *****
 
-####  nomhrpls  
+####  nomhrpls
 ##### 405#       发表于 2021-11-5 20:02
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我进去丛林路段闪退解决的方法是alt+回车窗口，过了之后再全屏就再也没闪退过了，希望能帮上同样闪退的人。
@@ -4614,7 +4613,7 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 406#       发表于 2021-11-5 20:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53429294&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-5 19:10</a>
@@ -4628,7 +4627,7 @@ n卡驱动面板可以锁定游戏在前台和后台时的最大刷新率，不�
 
 *****
 
-####  我很费纸  
+####  我很费纸
 ##### 407#       发表于 2021-11-5 20:27
 
 steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
@@ -4639,23 +4638,23 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 408#       发表于 2021-11-5 20:29
 
 我这边windows版一直提示服务器暂时无法使用……
 
 *****
 
-####  京吹病人  
+####  京吹病人
 ##### 409#       发表于 2021-11-5 20:30
 
-这代电脑的低俗弯也太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">铁1档弯能300+的冲过去 
+这代电脑的低俗弯也太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">铁1档弯能300+的冲过去
 
 
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 410#       发表于 2021-11-5 20:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53428360&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 17:44</a>
@@ -4667,14 +4666,14 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 411#       发表于 2021-11-5 20:54
 
 艹 现在找宝物那都是人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 根本不用找 去圈里人最多的地方就行
 
 *****
 
-####  D-JoeII  
+####  D-JoeII
 ##### 412#       发表于 2021-11-5 21:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53429294&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-5 19:10</a>
@@ -4688,7 +4687,7 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 413#       发表于 2021-11-5 21:12
 
 你们用什么加速器吗，我一直不停弹出掉线通知
@@ -4697,10 +4696,10 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  中泽君  
+####  中泽君
 ##### 414#       发表于 2021-11-5 21:23
 
- 本帖最后由 中泽君 于 2021-11-5 21:27 编辑 
+ 本帖最后由 中泽君 于 2021-11-5 21:27 编辑
 
 <img src="https://img.saraba1st.com/forum/202111/05/212714dutrafwhtat3zunu.jpg" referrerpolicy="no-referrer">
 
@@ -4723,14 +4722,14 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  wolfwood  
+####  wolfwood
 ##### 415#       发表于 2021-11-5 21:24
 
 怪了，为什么开游戏叫我更新驱动，我已经是最新的N卡驱动了啊
 
 *****
 
-####  萧闻蒲  
+####  萧闻蒲
 ##### 416#       发表于 2021-11-5 21:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53430953&amp;ptid=2033303" target="_blank">中泽君 发表于 2021-11-05 21:23:25</a>
@@ -4740,7 +4739,7 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  katern  
+####  katern
 ##### 417#       发表于 2021-11-5 21:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53429748&amp;ptid=2033303" target="_blank">nomhrpls 发表于 2021-11-5 20:02</a>
@@ -4750,7 +4749,7 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  leystage  
+####  leystage
 ##### 418#       发表于 2021-11-5 21:41
 
 玩了几个任务，画面粗看反正还不错，但不对比也没觉得有进化。过场有些贴图错误无伤大雅但感觉打折扣。音乐很有墨西哥风情。总体还是那个味道。
@@ -4759,7 +4758,7 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 419#       发表于 2021-11-5 21:43
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">先等几个补丁，3090 2K拉满画质开到后面街道赛城市爆降帧数直接开始部分花屏了....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -4768,7 +4767,7 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 420#       发表于 2021-11-5 22:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53430469&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-5 20:53</a>
@@ -4781,14 +4780,14 @@ steam终极版为什么一打开就闪退啊<img src="https://static.saraba1st.c
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 421#       发表于 2021-11-5 22:40
 
 DLSS不太行，开超高质量锯齿也非常多，可能这个选项不算DLSS？关掉帧率也没低多少
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 422#       发表于 2021-11-5 22:42
 
 第一个嘉年华西南近海路边房顶的快速旅行广告牌是不是刷了危险标志才能拿？ 路对面小斜坡和房后山坡都不太行的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -4797,14 +4796,14 @@ DLSS不太行，开超高质量锯齿也非常多，可能这个选项不算DLSS
 
 *****
 
-####  mwj  
+####  mwj
 ##### 423#       发表于 2021-11-5 22:53
 
 pc版帧数怎么设置来着？视频选项里只有30帧。
 
 *****
 
-####  luster  
+####  luster
 ##### 424#       发表于 2021-11-5 22:54
 
 我服了 装完了居然说显卡驱动要9613版本才能运行，在网上查了好久都没看到同样的问题
@@ -4813,14 +4812,14 @@ pc版帧数怎么设置来着？视频选项里只有30帧。
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 425#       发表于 2021-11-5 22:56
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">过关赛一点必跳出，难受<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 426#       发表于 2021-11-5 23:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431465&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-5 22:08</a>
@@ -4832,17 +4831,17 @@ pc版帧数怎么设置来着？视频选项里只有30帧。
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 427#       发表于 2021-11-5 23:01
 
- 本帖最后由 Existinghomes 于 2021-11-5 23:04 编辑 
+ 本帖最后由 Existinghomes 于 2021-11-5 23:04 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431798&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-5 22:42</a>
 第一个嘉年华西南近海路边房顶的快速旅行广告牌是不是刷了危险标志才能拿？ 路对面小斜坡和房后山坡都不太 ...</blockquote>
 https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19按评论区说的附近有个危险标志，速度控到160kph左右亲测可行，剩下我记得没有要飞的牌子了（就算有也不难）
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 428#       发表于 2021-11-5 23:02
 
 玩下来pc版的体验感觉真配不上这个分数<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，希望赶紧把问题修一下
@@ -4851,14 +4850,14 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 429#       发表于 2021-11-5 23:27
 
 496.49驱动一次跳出都没碰到...
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 430#       发表于 2021-11-5 23:27
 
 下班回来就在玩了，一晚上下来没碰到什么影响游玩的大问题，我是XGP升终极版的。
@@ -4875,7 +4874,7 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  我很费纸  
+####  我很费纸
 ##### 431#       发表于 2021-11-5 23:31
 
 放弃了，一晚上下来连游戏都没进去，就看见几秒启动界面就没了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -4886,14 +4885,14 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 432#       发表于 2021-11-5 23:32
 
 苦行跑完了，这作环岛还好，苦行和巨汉长度简直是超级加倍，尤其是苦行，这一作的火山设计太棒了，全程顶着红线攻山爽的一匹，感觉在玩尘埃。
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 433#       发表于 2021-11-5 23:35
 
 技术点拿来买supra新车的超级摇摇乐
@@ -4903,28 +4902,28 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  monono  
+####  monono
 ##### 434#       发表于 2021-11-5 23:42
 
 还是会闪退啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 *****
 
-####  aria社长  
+####  aria社长
 ##### 435#       发表于 2021-11-5 23:44
 
 3090最新驱动一直闪退，难受<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 436#       发表于 2021-11-5 23:44
 
 刚开始玩到能加俱乐部了 q群是哪个？泥潭xbox群么
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 437#       发表于 2021-11-5 23:45
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">这就是顶级显卡的代价么...
@@ -4933,7 +4932,7 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 438#       发表于 2021-11-5 23:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432202&amp;ptid=2033303" target="_blank">风流庵TypeC 发表于 2021-11-5 23:35</a>
@@ -4945,21 +4944,21 @@ Supra这车的技术点界面有个技能是解锁一次超级抽奖，所以就
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 439#       发表于 2021-11-5 23:52
 
 3090最新驱动游戏倒是没出过问题,但是玩的steam版游戏内的联网一直在断线
 
 *****
 
-####  Tjodrek  
+####  Tjodrek
 ##### 440#       发表于 2021-11-5 23:55
 
 欢迎包那8辆车怎么添加到车库里啊草，什么破游戏
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 441#       发表于 2021-11-5 23:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431939&amp;ptid=2033303" target="_blank">Existinghomes 发表于 2021-11-5 23:01</a>
@@ -4971,14 +4970,14 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  江宁老实人  
+####  江宁老实人
 ##### 442#       发表于 2021-11-6 00:17
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">疯狂掉线啊，你们什么加速器
 
 *****
 
-####  AliceMilky  
+####  AliceMilky
 ##### 443#       发表于 2021-11-6 00:24
 
 有啥能够比较稳定的联机方法，微软版xbox网络开放
@@ -4987,7 +4986,7 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 444#       发表于 2021-11-6 00:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431926&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-5 23:01</a>
@@ -4999,7 +4998,7 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 445#         楼主| 发表于 2021-11-6 00:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431177&amp;ptid=2033303" target="_blank">leystage 发表于 2021-11-5 05:41</a>
@@ -5023,14 +5022,14 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 446#       发表于 2021-11-6 01:07
 
 今天重新买了steam版，结果switch pro手柄直接就能用，果然软软商店不行<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 *****
 
-####  andychen  
+####  andychen
 ##### 447#       发表于 2021-11-6 01:08
 
 我显卡3080，win10系统更新和显卡驱动都是最新版。从昨天到现在打了十来个小时没任何问题
@@ -5039,21 +5038,21 @@ https://b23.tv/Yi0blu 参考这个视频，#9我按照视频方法飞的，#19�
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 448#       发表于 2021-11-6 01:14
 
 微软服务器挂了 现在就是废的
 
 *****
 
-####  体质的错  
+####  体质的错
 ##### 449#       发表于 2021-11-6 01:15
 
 Betterjoy用Switch Pro的话有选项可以直接禁用真实手柄只保留虚拟360柄吗？扳机键用得多的游戏还是比较适合短键程的手柄
 
 *****
 
-####  韦伯  
+####  韦伯
 ##### 450#       发表于 2021-11-6 01:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53432147&amp;ptid=2033303" target="_blank">janet_ddr 发表于 2021-11-5 23:27</a>
@@ -5073,7 +5072,7 @@ Betterjoy用Switch Pro的话有选项可以直接禁用真实手柄只保留虚�
 
 *****
 
-####  ayaseyue  
+####  ayaseyue
 ##### 451#       发表于 2021-11-6 01:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53431782&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-5 22:40</a>
@@ -5087,14 +5086,14 @@ DLSS不太行，开超高质量锯齿也非常多，可能这个选项不算DLSS
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 452#       发表于 2021-11-6 02:47
 
 XSX版这性能模式比画质模式舒服多了，画质模损失这么多帧数换来的画面也不咋的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 *****
 
-####  逆袭的黑月  
+####  逆袭的黑月
 ##### 453#       发表于 2021-11-6 03:18
 
 被steam版折腾够了,开场闪退来来回回折腾了8次开场比赛.人都吐了
@@ -5103,7 +5102,7 @@ XSX版这性能模式比画质模式舒服多了，画质模损失这么多帧�
 
 *****
 
-####  猫溺泉君  
+####  猫溺泉君
 ##### 454#       发表于 2021-11-6 04:59
 
 这次看官方支持有图马斯特了，jd下单了个t300法拉利，希望不要翻车
@@ -5115,7 +5114,7 @@ fh4时代就买过了，支持一坨屎，到手俩小时退货
 
 *****
 
-####  猫溺泉君  
+####  猫溺泉君
 ##### 455#       发表于 2021-11-6 05:00
 
 btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪退最后发现得给管理员权限启动，4k拉满3090大概80帧，就这样吧
@@ -5124,7 +5123,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 456#       发表于 2021-11-6 05:29
 
 玩了一天了，除了频繁掉线以外没有遇到任何问题
@@ -5136,7 +5135,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  leystage  
+####  leystage
 ##### 457#       发表于 2021-11-6 07:48
 
 <blockquote>天神十三煞 发表于 2021-11-6 00:57
@@ -5154,7 +5153,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  leystage  
+####  leystage
 ##### 458#       发表于 2021-11-6 07:49
 
 <blockquote>leystage 发表于 2021-11-6 07:48
@@ -5165,7 +5164,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 459#       发表于 2021-11-6 08:23
 
 <img src="https://img.saraba1st.com/forum/202111/06/082156l44pnukup62gqn1n.jpg" referrerpolicy="no-referrer">
@@ -5182,7 +5181,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 460#         楼主| 发表于 2021-11-6 08:50
 
 刷钱
@@ -5195,14 +5194,14 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  zzydust  
+####  zzydust
 ##### 461#       发表于 2021-11-6 09:26
 
 不折腾了，退款了，等各种BUG修得差不多了打折的时候再入吧。。。
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 462#       发表于 2021-11-6 09:33
 
 扔车会退还用掉的车辆熟练度吗？
@@ -5211,7 +5210,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  aria社长  
+####  aria社长
 ##### 463#       发表于 2021-11-6 09:51
 
 果然是搜狗输入法的锅，关了就再没跳出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -5220,7 +5219,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  何然  
+####  何然
 ##### 464#       发表于 2021-11-6 10:31
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">说来，之前就思考过这问题
@@ -5231,7 +5230,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  Papercup  
+####  Papercup
 ##### 465#       发表于 2021-11-6 11:01
 
 第一次用Xbox pc，没了解清楚，在港区高价买的扩展包<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
@@ -5240,7 +5239,7 @@ btw微软这是什么jb，白嫖的普通版+豪华升级，一开始反复闪�
 
 *****
 
-####  罗科  
+####  罗科
 ##### 466#       发表于 2021-11-6 11:06
 
 分享一下：我是禁用了realtek那个Nahmic系统服务以后终于不跳出了
@@ -5253,7 +5252,7 @@ Shelby Daytona，得调校一下，上四驱拉力胎最大马力那个引擎，
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 467#       发表于 2021-11-6 11:49
 
 这服务器也太扯了，我到现在没完成过一次公开活动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -5262,7 +5261,7 @@ Shelby Daytona，得调校一下，上四驱拉力胎最大马力那个引擎，
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 468#       发表于 2021-11-6 12:03
 
 这么夸张的吗...我玩了十几个小时，除了有一次进游戏崩溃之外就没闪退过...
@@ -5271,10 +5270,10 @@ Shelby Daytona，得调校一下，上四驱拉力胎最大马力那个引擎，
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 469#       发表于 2021-11-6 13:07
 
- 本帖最后由 nemunoki 于 2021-11-6 13:08 编辑 
+ 本帖最后由 nemunoki 于 2021-11-6 13:08 编辑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游乐场太迷惑了
 
@@ -5290,7 +5289,7 @@ Shelby Daytona，得调校一下，上四驱拉力胎最大马力那个引擎，
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 470#       发表于 2021-11-6 13:19
 
 <blockquote>罗科 发表于 2021-11-5 21:06
@@ -5305,7 +5304,7 @@ https://support.forzamotorsport.net/hc/en-us/articles/360007593074?input_string=
 
 *****
 
-####  tasuku  
+####  tasuku
 ##### 471#       发表于 2021-11-6 13:25
 
 快速恢复应该是有bug
@@ -5313,14 +5312,14 @@ https://support.forzamotorsport.net/hc/en-us/articles/360007593074?input_string=
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 472#       发表于 2021-11-6 13:25
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">我的一个朋友一直是游戏全下完然后提示错误，有什么头绪吗
 
 *****
 
-####  arctichan  
+####  arctichan
 ##### 473#       发表于 2021-11-6 13:39
 
 拍照模式有毒吧？对焦永远对不上。
@@ -5331,7 +5330,7 @@ https://support.forzamotorsport.net/hc/en-us/articles/360007593074?input_string=
 
 *****
 
-####  罗科  
+####  罗科
 ##### 474#       发表于 2021-11-6 13:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53436997&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-6 13:19</a>
@@ -5345,7 +5344,7 @@ https://support.forzamotorsport.net/hc/en-us/articles/360007593074?input_string=
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 475#         楼主| 发表于 2021-11-6 13:51
 
 PG的游戏第一版是这样的
@@ -5358,7 +5357,7 @@ PG的游戏第一版是这样的
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 476#       发表于 2021-11-6 13:59
 
 才发现PC端XB应用小帮手连分享截图的功能都被砍了
@@ -5369,7 +5368,7 @@ PG的游戏第一版是这样的
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 477#       发表于 2021-11-6 14:05
 
 这sb断线提示太折磨了，有时候还会强行停车，根本不敢玩线上比赛
@@ -5378,7 +5377,7 @@ PG的游戏第一版是这样的
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 478#       发表于 2021-11-6 14:24
 
 我是春季低保26分已经拿完，之前跑巡回赛除了队友闪现以外没什么问题，游乐场太生草就算输了也能拿车
@@ -5391,7 +5390,7 @@ PG的游戏第一版是这样的
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 479#         楼主| 发表于 2021-11-6 14:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437423&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-5 21:59</a>
@@ -5407,7 +5406,7 @@ PG的游戏第一版是这样的
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 480#       发表于 2021-11-6 15:06
 
 又有个小bug：不管我开的是啥车，每次打开游戏都必定在家里换回一开始选的那辆车
@@ -5416,7 +5415,7 @@ PG的游戏第一版是这样的
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 481#       发表于 2021-11-6 15:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438126&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-6 14:55</a>
@@ -5430,7 +5429,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 482#       发表于 2021-11-6 15:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438260&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-6 15:06</a>
@@ -5443,7 +5442,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  Papercup  
+####  Papercup
 ##### 483#       发表于 2021-11-6 15:47
 
 为什么车辆包里显示我已购买，但是我的车库里没有这些车啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
@@ -5452,7 +5451,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 484#       发表于 2021-11-6 16:27
 
 花车飙200和跳坡过于生草
@@ -5461,14 +5460,14 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  monono  
+####  monono
 ##### 485#       发表于 2021-11-6 17:08
 
 不停断线怎么回事，挂了代理也没用。。。。
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 486#       发表于 2021-11-6 17:16
 
 季节赛给的Alpine A110原厂调校好开到令人流泪，雷诺你干得好呀，干得好呀
@@ -5477,7 +5476,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 487#       发表于 2021-11-6 18:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53439518&amp;ptid=2033303" target="_blank">monono 发表于 2021-11-6 17:08</a>
@@ -5486,7 +5485,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 488#       发表于 2021-11-6 18:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53438710&amp;ptid=2033303" target="_blank">Papercup 发表于 2021-11-6 15:47</a>
@@ -5498,7 +5497,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  monono  
+####  monono
 ##### 489#       发表于 2021-11-6 18:40
 
 <blockquote>马僧虔 发表于 2021-11-6 18:01
@@ -5507,21 +5506,21 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 490#       发表于 2021-11-6 18:42
 
 蓝色的公路竞速赛有啥好用的车推荐吗？被墨西哥amigo干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 491#       发表于 2021-11-6 18:42
 
 任务提示进入名人堂以解除锁定，怎么进入名人堂，有人知道么
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 492#       发表于 2021-11-6 18:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53437726&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-6 14:24</a>
@@ -5532,7 +5531,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 493#       发表于 2021-11-6 18:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440621&amp;ptid=2033303" target="_blank">铅笔 发表于 2021-11-6 18:42</a>
@@ -5543,15 +5542,15 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 494#       发表于 2021-11-6 18:48
 
-漂移刷分顺便过漂移任务 整了次超级抽奖十连 就抽出来八辆破烂 ……难受 
+漂移刷分顺便过漂移任务 整了次超级抽奖十连 就抽出来八辆破烂 ……难受
 送出去一堆supra 希望有新手能收到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 *****
 
-####  nomhrpls  
+####  nomhrpls
 ##### 495#       发表于 2021-11-6 18:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440623&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-6 18:42</a>
@@ -5561,14 +5560,14 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  misaki_d  
+####  misaki_d
 ##### 496#       发表于 2021-11-6 18:52
 
 这代 ai 的起步怎么这么猛，被乱杀
 
 *****
 
-####  nomhrpls  
+####  nomhrpls
 ##### 497#       发表于 2021-11-6 18:52
 
 这代速度感比上一代好很多感觉，而且不小心跑到草丛也不会马上打滑，开起来更爽了。
@@ -5577,7 +5576,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 498#       发表于 2021-11-6 19:12
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440651&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-6 18:44</a>
@@ -5589,7 +5588,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 499#       发表于 2021-11-6 19:21
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重装游戏之后可以进去了，然后现在两个问题：
@@ -5602,14 +5601,14 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 500#       发表于 2021-11-6 19:24
 
 果然只要来的够早我也能蹭名人堂，昨晚冲了个700名截图睡觉，今天回来一看已经2000开外了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 501#       发表于 2021-11-6 19:27
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这代感觉制作组还是好偷懒啊，为啥买了房子还就一辆车能摆出来，学TDU系列买了房子有车库摆七八辆车出来多好……
@@ -5618,7 +5617,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  makece  
+####  makece
 ##### 502#       发表于 2021-11-6 19:57
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9号解锁，这几天看社区反馈有人说比4代滑有人说5代超级抓地力，有人说过弯操作更精细有人说过弯操作更简化，已懵
@@ -5627,14 +5626,14 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  Porsche  
+####  Porsche
 ##### 503#       发表于 2021-11-6 20:12
 
 用ds4玩的 推荐用input mapper
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 504#         楼主| 发表于 2021-11-6 20:15
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -5654,7 +5653,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  D-JoeII  
+####  D-JoeII
 ##### 505#       发表于 2021-11-6 20:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441128&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-6 19:21</a>
@@ -5668,7 +5667,7 @@ live只能看到2年前的图，forza hub里我甚至看不到有FH5
 
 *****
 
-####  andychen  
+####  andychen
 ##### 506#       发表于 2021-11-6 20:33
 
 V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面还有水
@@ -5677,7 +5676,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 507#       发表于 2021-11-6 20:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441166&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-6 19:24</a>
@@ -5687,10 +5686,10 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 508#       发表于 2021-11-6 20:37
 
- 本帖最后由 lxx4869 于 2021-11-6 20:42 编辑 
+ 本帖最后由 lxx4869 于 2021-11-6 20:42 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441872&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-6 20:15</a>
 
 这代漂移简单多了
@@ -5702,7 +5701,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 509#       发表于 2021-11-6 20:39
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
@@ -5716,7 +5715,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 510#       发表于 2021-11-6 21:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
@@ -5730,7 +5729,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 511#       发表于 2021-11-6 21:12
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
@@ -5741,7 +5740,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 512#       发表于 2021-11-6 21:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53441617&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-6 19:57</a>
@@ -5750,7 +5749,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 513#       发表于 2021-11-6 21:23
 
 所以这一代的测速玩具有定论了吗…
@@ -5759,7 +5758,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 514#         楼主| 发表于 2021-11-6 21:26
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442150&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-6 04:37</a>
@@ -5771,10 +5770,10 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 515#         楼主| 发表于 2021-11-6 21:28
 
- 本帖最后由 天神十三煞 于 2021-11-6 05:38 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-6 05:38 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442772&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-6 05:23</a>
 
 所以这一代的测速玩具有定论了吗…</blockquote>
@@ -5788,21 +5787,21 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 516#       发表于 2021-11-6 21:40
 
 贴一个传送广告牌的大图<img src="https://p.sda1.dev/3/750fb89b784974e040a4fa35c3a50efe/IMG_CMP_137138611.jpeg" referrerpolicy="no-referrer">
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 517#       发表于 2021-11-6 21:41
 
 漂移区间要怎么解锁呢，我现在地图上一个漂移区间都没有
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 518#       发表于 2021-11-6 21:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442997&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-6 21:41</a>
@@ -5812,7 +5811,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 519#       发表于 2021-11-6 21:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53443010&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-6 21:42</a>
@@ -5823,7 +5822,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 520#       发表于 2021-11-6 21:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53440726&amp;ptid=2033303" target="_blank">nomhrpls 发表于 2021-11-6 18:51</a>
@@ -5832,7 +5831,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 521#       发表于 2021-11-6 21:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
@@ -5846,7 +5845,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 522#       发表于 2021-11-6 22:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442827&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-6 21:26</a>
@@ -5858,7 +5857,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  makar0601  
+####  makar0601
 ##### 523#       发表于 2021-11-6 22:10
 
 有一说一感觉地图有点小了，不知道为什么
@@ -5867,7 +5866,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  Kshatriya  
+####  Kshatriya
 ##### 524#       发表于 2021-11-6 22:31
 
 <blockquote>铅笔 发表于 2021-11-6 22:08
@@ -5878,7 +5877,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  Kshatriya  
+####  Kshatriya
 ##### 525#       发表于 2021-11-6 22:35
 
 <blockquote>AEmpire 发表于 2021-11-6 18:42
@@ -5887,14 +5886,14 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 526#       发表于 2021-11-6 22:39
 
 这部越野赛好难啊……
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 527#       发表于 2021-11-6 22:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53443646&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-6 22:39</a>
@@ -5906,14 +5905,14 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 528#       发表于 2021-11-6 23:13
 
 才发现劲敌前5％送车 现在已经卷起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  土卫六的秋天  
+####  土卫六的秋天
 ##### 529#       发表于 2021-11-6 23:14
 
 今天上线一看PG把昨天刷的用在supra的技能点还给我了，但是fairlady的周常进度也清零了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
@@ -5924,14 +5923,14 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 530#       发表于 2021-11-6 23:39
 
 刷抽奖的supra是55000的那辆么
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 531#       发表于 2021-11-6 23:41
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444111&amp;ptid=2033303" target="_blank">土卫六的秋天 发表于 2021-11-6 23:14</a>
@@ -5945,7 +5944,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  arctichan  
+####  arctichan
 ##### 532#       发表于 2021-11-6 23:43
 
 为什么我的游戏突然掉到30帧不变了……
@@ -5954,10 +5953,10 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 533#         楼主| 发表于 2021-11-6 23:46
 
- 本帖最后由 天神十三煞 于 2021-11-6 07:51 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-6 07:51 编辑
 
 说V10第八关难的，你们肯定没看我前面写的新手入门
 
@@ -5965,7 +5964,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 534#       发表于 2021-11-7 00:07
 
 靠，特技车手最后一个任务为啥无法完成啊？每次都是跑到最后的测速点了然后完全没反应，npc不说话，时间也一直在走
@@ -5974,7 +5973,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 535#       发表于 2021-11-7 00:10
 
 妈了个巴子的，退出了一次游戏，回来时居然回档了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">几个小时的进度没了
@@ -5983,14 +5982,14 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  Anarkia  
+####  Anarkia
 ##### 536#       发表于 2021-11-7 00:25
 
 开了十几个小时只会开自动档，有大佬介绍下练手动档的收益怎么样吗
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 537#       发表于 2021-11-7 00:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444951&amp;ptid=2033303" target="_blank">Anarkia 发表于 2021-11-7 00:25</a>
@@ -5999,7 +5998,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  LMBS  
+####  LMBS
 ##### 538#       发表于 2021-11-7 00:30
 
 季节的奖励错过了还能怎么获得？之前明明还有几点，上线变回1点。
@@ -6008,7 +6007,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 539#       发表于 2021-11-7 00:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444994&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-7 00:30</a>
@@ -6022,7 +6021,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 540#       发表于 2021-11-7 00:45
 
 话说特技车手任务第12个提示要进入名人堂才解锁，这该不会真的要你打到世界前列吧？<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
@@ -6031,7 +6030,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 541#       发表于 2021-11-7 00:50
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说起来现在有什么截图的办法，老黄驱动的alt f1在游戏里没反应，把焦点放在桌面但前端显示的是游戏画面倒是可以截图但是进了桌面截图的文件夹里。
@@ -6042,7 +6041,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 542#       发表于 2021-11-7 01:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444104&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-6 23:13</a>
@@ -6054,7 +6053,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 543#       发表于 2021-11-7 01:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53445153&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-7 00:50</a>
@@ -6064,7 +6063,7 @@ xsx手柄的截图键可以用了，我也不知道是啥时候更新的。<img 
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 544#       发表于 2021-11-7 01:19
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53443646&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-6 22:39</a>
@@ -6084,7 +6083,7 @@ trailcat@rocklxd
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 545#       发表于 2021-11-7 01:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53445153&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-7 00:50</a>
@@ -6095,7 +6094,7 @@ trailcat@rocklxd
 
 *****
 
-####  秋雨灰灰  
+####  秋雨灰灰
 ##### 546#       发表于 2021-11-7 01:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53444951&amp;ptid=2033303" target="_blank">Anarkia 发表于 2021-11-7 00:25</a>
@@ -6105,7 +6104,7 @@ trailcat@rocklxd
 
 *****
 
-####  saberserker  
+####  saberserker
 ##### 547#       发表于 2021-11-7 01:31
 
 游乐场每次第二局国王游戏就掉线，直接去拍卖行买车了
@@ -6114,14 +6113,14 @@ trailcat@rocklxd
 
 *****
 
-####  andychen  
+####  andychen
 ##### 548#       发表于 2021-11-7 01:49
 
 感谢楼上几位兄弟的建议，终于把V10打完了
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 549#       发表于 2021-11-7 02:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446206&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 01:49</a>
@@ -6131,7 +6130,7 @@ trailcat@rocklxd
 
 *****
 
-####  andychen  
+####  andychen
 ##### 550#       发表于 2021-11-7 02:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446588&amp;ptid=2033303" target="_blank">冀人燕南天 发表于 2021-11-7 02:21</a>
@@ -6143,7 +6142,7 @@ trailcat@rocklxd
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 551#       发表于 2021-11-7 02:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446601&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 02:23</a>
@@ -6155,21 +6154,21 @@ trailcat@rocklxd
 
 *****
 
-####  秋雨灰灰  
+####  秋雨灰灰
 ##### 552#       发表于 2021-11-7 02:38
 
 名人堂不是要求全球前百分之多少，而是快打完主线的时候必进的，不要着急。进名人堂任务的触发方式是，解锁所有主线故事卡片（不需要打）
 
 *****
 
-####  hallowilliam  
+####  hallowilliam
 ##### 553#       发表于 2021-11-7 03:14
 
 想问一下，有XGP但是想买终极版的话，是不是也没有任何优惠啊。
 
 *****
 
-####  andychen  
+####  andychen
 ##### 554#       发表于 2021-11-7 03:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446920&amp;ptid=2033303" target="_blank">hallowilliam 发表于 2021-11-7 03:14</a>
@@ -6179,7 +6178,7 @@ trailcat@rocklxd
 
 *****
 
-####  hallowilliam  
+####  hallowilliam
 ##### 555#       发表于 2021-11-7 03:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53446930&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 03:15</a>
@@ -6189,7 +6188,7 @@ trailcat@rocklxd
 
 *****
 
-####  andychen  
+####  andychen
 ##### 556#       发表于 2021-11-7 04:10
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447063&amp;ptid=2033303" target="_blank">hallowilliam 发表于 2021-11-7 03:45</a>
@@ -6201,7 +6200,7 @@ PC上买就可以了，通用的
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 557#       发表于 2021-11-7 04:45
 
 玩家开麦能越过win10的静音¿¿¿¿¿¿¿¿¿??????
@@ -6212,7 +6211,7 @@ PC上买就可以了，通用的
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 558#       发表于 2021-11-7 04:57
 
 <blockquote>天神十三煞 发表于 2021-11-6 07:28
@@ -6228,7 +6227,7 @@ PC上买就可以了，通用的
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 559#       发表于 2021-11-7 08:47
 
 djs大佬的十佳推荐出来了。有兴趣的可以去视频，有大佬的调校码
@@ -6268,7 +6267,7 @@ a级拉力最佳操控，jeep更快。
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 560#         楼主| 发表于 2021-11-7 09:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447160&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-6 12:57</a>
@@ -6282,14 +6281,14 @@ a级拉力最佳操控，jeep更快。
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 561#       发表于 2021-11-7 10:27
 
 不知道为啥，真的就只有越野赛莫名的难……同样的难度，其他赛事都是随意拿捏的，就越野赛死活跑不过，ai一个比一个猛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 562#       发表于 2021-11-7 10:34
 
 这个活动点数瓒多了有啥好处吗，还是领完两辆车就可以不管了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -6298,7 +6297,7 @@ a级拉力最佳操控，jeep更快。
 
 *****
 
-####  ozymandias  
+####  ozymandias
 ##### 563#       发表于 2021-11-7 11:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
@@ -6311,7 +6310,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 564#       发表于 2021-11-7 11:19
 
 刷技术点要漂移加成还是特技加成，漂移不算特技吗？还有在线模式玩一局就掉线怎么破，玩了好几场好像没有能完整比赛完的
@@ -6320,7 +6319,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 565#       发表于 2021-11-7 11:37
 
 啊，这supra点了抽奖移除还会返还点数的？那不是永动了？
@@ -6329,7 +6328,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  hallowilliam  
+####  hallowilliam
 ##### 566#       发表于 2021-11-7 11:48
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447115&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-7 04:10</a>
@@ -6341,7 +6340,7 @@ xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 567#       发表于 2021-11-7 11:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448113&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-7 10:34</a>
@@ -6353,7 +6352,7 @@ FH点数等商店开了要大量消费 所以简单的日常还是要顺手清�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 568#       发表于 2021-11-7 12:17
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448706&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-7 11:37</a>
@@ -6364,7 +6363,7 @@ FH点数等商店开了要大量消费 所以简单的日常还是要顺手清�
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 569#       发表于 2021-11-7 13:14
 
 有点麻了，一直在掉线，结果搞得跑的活动的测速和跳台都没算，这垃圾服务器玩个屁
@@ -6373,7 +6372,7 @@ FH点数等商店开了要大量消费 所以简单的日常还是要顺手清�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 570#         楼主| 发表于 2021-11-7 13:28
 
 第一周的活动有问题大概率是因为服务器没正式上线单纯就是写好了样子摆烂
@@ -6384,7 +6383,7 @@ FH点数等商店开了要大量消费 所以简单的日常还是要顺手清�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 571#       发表于 2021-11-7 13:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53450020&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-7 13:28</a>
@@ -6397,7 +6396,7 @@ FH点数等商店开了要大量消费 所以简单的日常还是要顺手清�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 572#       发表于 2021-11-7 13:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53447533&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-7 08:47</a>
@@ -6411,10 +6410,10 @@ https://youtu.be/f0cH95YIRRo</blockquote>
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 573#       发表于 2021-11-7 13:54
 
- 本帖最后由 爱护动物抓根宝 于 2021-11-7 13:57 编辑 
+ 本帖最后由 爱护动物抓根宝 于 2021-11-7 13:57 编辑
 
 B站上找到一个bug挂机刷点数的视频
 [https://b23.tv/1h4GoI](https://b23.tv/1h4GoI)
@@ -6427,7 +6426,7 @@ pg会怎么处理就不知道了<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  redsibyl  
+####  redsibyl
 ##### 574#       发表于 2021-11-7 13:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53450266&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-7 13:52</a>
@@ -6438,7 +6437,7 @@ pg会怎么处理就不知道了<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 575#       发表于 2021-11-7 14:49
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53449866&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-7 13:14</a>
@@ -6450,7 +6449,7 @@ pg会怎么处理就不知道了<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 576#       发表于 2021-11-7 15:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53450294&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-7 13:54</a>
@@ -6464,7 +6463,7 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  BonesDlc  
+####  BonesDlc
 ##### 577#       发表于 2021-11-7 15:37
 
 遇到俱乐部无法创建的错误，是我的问题还是微软的问题
@@ -6479,7 +6478,7 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 578#       发表于 2021-11-7 15:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451044&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-7 15:32</a>
@@ -6490,14 +6489,14 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 579#       发表于 2021-11-7 15:46
 
 称赞里有150w 200w分的奖章 还有100w后失败 指定车辆50w
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 580#       发表于 2021-11-7 15:48
 
 真想刷应该去拿漂移包的随便什么车点满然后去机场刷分，还有两个赛事让你快速结算
@@ -6506,7 +6505,7 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  ozymandias  
+####  ozymandias
 ##### 581#       发表于 2021-11-7 16:00
 
 最麻的还是掉线会瞬间停车，特别是刷特技分的时候
@@ -6515,7 +6514,7 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  nomhrpls  
+####  nomhrpls
 ##### 582#       发表于 2021-11-7 16:22
 
 大抽奖抽到辆第六元素fe，马上去环岛试了试，太哈人了根本不知道刹车键是什么，开完我现在手都在抖。
@@ -6524,10 +6523,10 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 583#       发表于 2021-11-7 16:33
 
- 本帖最后由 lxx4869 于 2021-11-7 16:43 编辑 
+ 本帖最后由 lxx4869 于 2021-11-7 16:43 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448078&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-7 10:27</a>
 
 不知道为啥，真的就只有越野赛莫名的难……同样的难度，其他赛事都是随意拿捏的，就越野赛死活跑不过，ai一 ...</blockquote>
@@ -6537,7 +6536,7 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 584#         楼主| 发表于 2021-11-7 16:40
 
 漂移方程式狗哥43起手，看排行榜，大家用的最多的那个，
@@ -6570,7 +6569,7 @@ https://b23.tv/1h4GoI
 
 现在只要不太出格都可以算
 
-但是漂移首发差不多 手感这代稍微硬一点 
+但是漂移首发差不多 手感这代稍微硬一点
 
 但其实判定不严格更好飘
 
@@ -6582,7 +6581,7 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 585#       发表于 2021-11-7 16:48
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451505&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-7 16:33</a>
@@ -6593,7 +6592,7 @@ https://b23.tv/1h4GoI
 
 *****
 
-####  andychen  
+####  andychen
 ##### 586#       发表于 2021-11-7 17:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53448877&amp;ptid=2033303" target="_blank">hallowilliam 发表于 2021-11-7 11:48</a>
@@ -6605,7 +6604,7 @@ xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 587#       发表于 2021-11-7 17:40
 
 这断网BUG真是吐了，明明游乐场联机都没有问题，但就是不停的给你提示这个，还会强行让车突然停下来。
@@ -6620,7 +6619,7 @@ xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 588#       发表于 2021-11-7 17:40
 
 喷了，网络居然抽疯发重了。编辑
@@ -6629,7 +6628,7 @@ xsx现在是港区，pc应该是国区，但是是一个账号，这样串着买
 
 *****
 
-####  猫溺泉君  
+####  猫溺泉君
 ##### 589#       发表于 2021-11-7 18:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53442103&amp;ptid=2033303" target="_blank">andychen 发表于 2021-11-6 20:33</a>
@@ -6643,14 +6642,14 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  mwj  
+####  mwj
 ##### 590#       发表于 2021-11-7 18:49
 
 在线活动开加速器都狂掉线啊，是我的问题还是游戏的问题？
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 591#       发表于 2021-11-7 19:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53452825&amp;ptid=2033303" target="_blank">mwj 发表于 2021-11-7 18:49</a>
@@ -6662,7 +6661,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  殿珣  
+####  殿珣
 ##### 592#       发表于 2021-11-7 19:14
 
 问问废渣豪华版比普通版多了啥？已经有了xgp，作为轻度玩家还用买豪华版吗？
@@ -6671,7 +6670,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 593#       发表于 2021-11-7 19:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53453033&amp;ptid=2033303" target="_blank">殿珣 发表于 2021-11-7 19:14</a>
@@ -6694,21 +6693,21 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 594#       发表于 2021-11-7 19:27
 
 掉线掉吐了，基本只能玩单机
 
 *****
 
-####  docklabor  
+####  docklabor
 ##### 595#       发表于 2021-11-7 19:30
 
 进游戏后有时候菜单强制弹出来，啥都干不了，关也关不掉，是网络连接的原因吗
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 596#       发表于 2021-11-7 19:31
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53453161&amp;ptid=2033303" target="_blank">docklabor 发表于 2021-11-7 19:30</a>
@@ -6719,7 +6718,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  csolfans  
+####  csolfans
 ##### 597#       发表于 2021-11-7 20:34
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">想问一下PC的痛车代码能在Xbox用吗
@@ -6728,14 +6727,14 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  huruii7  
+####  huruii7
 ##### 598#       发表于 2021-11-7 20:58
 
 快速移动的房子居然要两百万才能买orz…我是不是错过了什么，还是说必须刷到怎么多钱才行
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 599#       发表于 2021-11-7 21:03
 
 游戏玩久了会随机触发声音消失的BUG
@@ -6746,7 +6745,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  LMBS  
+####  LMBS
 ##### 600#       发表于 2021-11-7 22:03
 
 这苦行赛道能把玩家玩睡
@@ -6756,7 +6755,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  redsibyl  
+####  redsibyl
 ##### 601#       发表于 2021-11-7 22:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53453961&amp;ptid=2033303" target="_blank">huruii7 发表于 2021-11-7 20:58</a>
@@ -6765,21 +6764,21 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 602#       发表于 2021-11-7 22:35
 
 想买一部第六元素fe可真难啊...
 
 *****
 
-####  ykyin09  
+####  ykyin09
 ##### 603#       发表于 2021-11-7 22:37
 
 一改车就闪退，我是个例吗
 
 *****
 
-####  田黄石  
+####  田黄石
 ##### 604#       发表于 2021-11-7 22:40
 
 这网络烂到让人震惊，我都怀疑服务器不是在美国，而在特么的火星
@@ -6788,7 +6787,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  猫溺泉君  
+####  猫溺泉君
 ##### 605#       发表于 2021-11-7 22:55
 
 这开车吃鸡哪个脑瘫想出来的，我方一水的500F150，对面都是800的车，那jb赢
@@ -6799,7 +6798,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 606#       发表于 2021-11-7 23:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455296&amp;ptid=2033303" target="_blank">猫溺泉君 发表于 2021-11-7 22:55</a>
@@ -6811,7 +6810,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 607#       发表于 2021-11-7 23:12
 
 看你们都在讨论第六元素fe，我第一次超级抽奖就出了，然后被我卖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -6822,21 +6821,21 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 608#       发表于 2021-11-7 23:28
 
 这作的漂移真的简单很多啊，只要有轮子还在路上就算分
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 609#       发表于 2021-11-7 23:31
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手残万年玩不来漂移，折腾一个晚上大部分点都是靠无限闪回试错过的……太累了
 
 *****
 
-####  猫溺泉君  
+####  猫溺泉君
 ##### 610#       发表于 2021-11-7 23:34
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455433&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-7 23:12</a>
@@ -6849,7 +6848,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 611#         楼主| 发表于 2021-11-7 23:35
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -6861,7 +6860,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  猫溺泉君  
+####  猫溺泉君
 ##### 612#       发表于 2021-11-7 23:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455392&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-7 23:06</a>
@@ -6873,7 +6872,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 613#         楼主| 发表于 2021-11-7 23:40
 
 原来第六元素这么离谱
@@ -6888,7 +6887,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  LMBS  
+####  LMBS
 ##### 614#       发表于 2021-11-7 23:44
 
 刚主线通关，一共一百万玩家
@@ -6897,10 +6896,10 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 615#       发表于 2021-11-7 23:47
 
- 本帖最后由 君往何处 于 2021-11-7 23:53 编辑 
+ 本帖最后由 君往何处 于 2021-11-7 23:53 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455670&amp;ptid=2033303" target="_blank">猫溺泉君 发表于 2021-11-7 23:36</a>
 
 主要是进去之前也不告诉你要什么级别的车，自己不能准备，只能用给的f150，体验非常不好
@@ -6918,7 +6917,7 @@ V10第九关太难了，发一辆后驱柯尼塞格追四驱布加迪，地面�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 616#       发表于 2021-11-7 23:49
 
 fe版和原厂车性能有区别吗？
@@ -6927,10 +6926,10 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 617#       发表于 2021-11-8 00:08
 
- 本帖最后由 pl0okm 于 2021-11-8 00:13 编辑 
+ 本帖最后由 pl0okm 于 2021-11-8 00:13 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455670&amp;ptid=2033303" target="_blank">猫溺泉君 发表于 2021-11-7 23:36</a>
 
 主要是进去之前也不告诉你要什么级别的车，自己不能准备，只能用给的f150，体验非常不好
@@ -6942,7 +6941,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 618#       发表于 2021-11-8 00:13
 
 奥迪测速那个随便搞了台RS6改到S2，结果最多能开到130+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -6953,7 +6952,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 619#       发表于 2021-11-8 00:14
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53455584&amp;ptid=2033303" target="_blank">gzGaryC 发表于 2021-11-7 23:28</a>
@@ -6963,7 +6962,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 620#       发表于 2021-11-8 00:15
 
 话说俱乐部有啥用啊，感觉除了名字多个前缀之外完全没有存在感
@@ -6972,7 +6971,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 621#       发表于 2021-11-8 00:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53456036&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-8 00:13</a>
@@ -6983,7 +6982,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 622#       发表于 2021-11-8 00:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53456036&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-8 00:13</a>
@@ -6997,28 +6996,28 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 623#       发表于 2021-11-8 00:45
 
 这代pi代表的性能又提高了，上一代主要开S1跟A，现在A都感觉快，天天开着个B级A110到处逛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 *****
 
-####  LMBS  
+####  LMBS
 ##### 624#       发表于 2021-11-8 00:51
 
 难受，差两条路才找全
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 625#       发表于 2021-11-8 00:53
 
 我和我朋友联机，我老是跑一半掉线掉出去我朋友没断过，都是UU加速器<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我都怀疑是自己网有问题了。
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 626#       发表于 2021-11-8 00:54
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451081&amp;ptid=2033303" target="_blank">BonesDlc 发表于 2021-11-7 15:37</a>
@@ -7027,7 +7026,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 627#       发表于 2021-11-8 00:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53451505&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-7 16:33</a>
@@ -7038,21 +7037,21 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 628#       发表于 2021-11-8 01:55
 
 受不了顶级ai可以先收藏个高等级调校然后用自己改的低等级进图，开始前最后的设置界面进调校按空格加载收藏，ai还是低级的不会变。比如车调成b级进图换a级配置，ai还是b级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  永远喜欢刘人语  
+####  永远喜欢刘人语
 ##### 629#       发表于 2021-11-8 03:48
 
 新手关丛林保时捷结束进动画稳定跳出，已经玩了五遍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 630#       发表于 2021-11-8 04:41
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">试了一下辅助全开
@@ -7064,7 +7063,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 631#         楼主| 发表于 2021-11-8 06:03
 
 我怀疑是端口占用
@@ -7087,7 +7086,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 632#       发表于 2021-11-8 06:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53457079&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-8 01:55</a>
@@ -7099,7 +7098,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 633#       发表于 2021-11-8 09:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53457559&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 06:03</a>
@@ -7115,7 +7114,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 634#       发表于 2021-11-8 09:49
 
 真的暴躁，上午起来玩了一个小时的在线季节目标，巡回赛玩到一半掉线。游乐场玩到一半掉线，玩nm阿
@@ -7124,14 +7123,14 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  fantastical  
+####  fantastical
 ##### 635#       发表于 2021-11-8 10:26
 
 凡是在线的就没让我能拿到奖励过
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 636#       发表于 2021-11-8 10:31
 
 这周把除了游乐场跟巡回赛之外的所有任务都做完给的分数是足够领两辆车的（需要在线上比赛跑完至少一条赛道）
@@ -7140,7 +7139,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 637#       发表于 2021-11-8 10:41
 
 [https://www.bilibili.com/video/B ... .b_636f6d6d656e74.4](https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74.4)
@@ -7149,7 +7148,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 638#       发表于 2021-11-8 10:53
 
 我这电信裸连虽然自由模式经常掉但参加比赛没掉过  巡回赛 淘汰赛都没问题 昨天跑了一下午 听语音连的是韩国人
@@ -7159,10 +7158,10 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  阿卵真是牛逼  
+####  阿卵真是牛逼
 ##### 639#       发表于 2021-11-8 11:06
 
- 本帖最后由 阿卵真是牛逼 于 2021-11-8 11:08 编辑 
+ 本帖最后由 阿卵真是牛逼 于 2021-11-8 11:08 编辑
 
 有人用1070玩的吗？1080p下各个级别的画质大概能跑多少帧？
 
@@ -7170,7 +7169,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 640#       发表于 2021-11-8 11:34
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460059&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-8 11:06</a>
@@ -7188,7 +7187,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  没钱买手办  
+####  没钱买手办
 ##### 641#       发表于 2021-11-8 12:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460059&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-8 11:06</a>
@@ -7200,14 +7199,14 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 642#       发表于 2021-11-8 13:09
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 *****
 
-####  ricarto  
+####  ricarto
 ##### 643#       发表于 2021-11-8 13:26
 
 这游戏现在已经全自动化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -7216,7 +7215,7 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  田黄石  
+####  田黄石
 ##### 644#       发表于 2021-11-8 13:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53460059&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-8 11:06</a>
@@ -7225,21 +7224,21 @@ fe版和原厂车性能有区别吗？
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 645#       发表于 2021-11-8 13:33
 
 这ai跑泥地太猛了，苦行全靠铺装路面才跑到第一，一进泥地听到后车逐渐接近的引擎声感觉堪比恐怖片
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 646#       发表于 2021-11-8 13:37
 
 试驾开柯尼塞格让我8次险象环生，尼玛我从头跑到尾两次，一辆npc都没有？
 
 *****
 
-####  田黄石  
+####  田黄石
 ##### 647#       发表于 2021-11-8 13:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53459607&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-8 10:41</a>
@@ -7250,7 +7249,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  镜像导航图  
+####  镜像导航图
 ##### 648#       发表于 2021-11-8 13:40
 
 掉线真的修，了嘛，还是老样子啊这吃鸡我就没打完过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -7259,14 +7258,14 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 649#       发表于 2021-11-8 13:50
 
 服了，xsx上也闪退好几回了。
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 650#       发表于 2021-11-8 13:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462241&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-8 13:37</a>
@@ -7275,7 +7274,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 651#       发表于 2021-11-8 13:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462241&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-8 13:37</a>
@@ -7286,7 +7285,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 652#       发表于 2021-11-8 14:05
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462203&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-8 13:33</a>
@@ -7298,7 +7297,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 653#       发表于 2021-11-8 14:06
 
 自动挂机真是太舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
@@ -7306,7 +7305,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 654#       发表于 2021-11-8 14:09
 
 贴吧有人做的自动图更好一点 各种时间的版本都有 起步就自动 楼里视频那个起步还要手动
@@ -7314,7 +7313,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 655#         楼主| 发表于 2021-11-8 14:10
 
 放置游戏
@@ -7323,7 +7322,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 656#       发表于 2021-11-8 14:16
 
 苦行下坡漂移那段是最爽的，最后冲刺才是恐怖游戏，明明泥地甩开了一大截然后就听着后车的声音越来越近。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -7333,14 +7332,14 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 657#       发表于 2021-11-8 14:33
 
 苦行本来我拿呢辆送的三菱被ai乱干，换了辆500多的路虎以后就乱别ai了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 658#       发表于 2021-11-8 14:39
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53462650&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 14:09</a>
@@ -7352,7 +7351,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 659#         楼主| 发表于 2021-11-8 14:51
 
 雪佛兰1953 FE被秒没了
@@ -7361,19 +7360,19 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 660#       发表于 2021-11-8 14:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463018&amp;ptid=2033303" target="_blank">风流庵TypeC 发表于 2021-11-8 14:39</a>
 有代码吗</blockquote>
-<img src="https://p.sda1.dev/3/31b3b6fc25c9b76375336c54e52a4341/s1goose.jpg" referrerpolicy="no-referrer"> 
-都在这 车选其他的也行 都自动了我已经不在意效率了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+<img src="https://p.sda1.dev/3/31b3b6fc25c9b76375336c54e52a4341/s1goose.jpg" referrerpolicy="no-referrer">
+都在这 车选其他的也行 都自动了我已经不在意效率了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 661#       发表于 2021-11-8 15:04
 
 裸连线上直接匹配不到，又不太想搞加速器
@@ -7383,7 +7382,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 662#         楼主| 发表于 2021-11-8 15:18
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -7401,7 +7400,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  chenyuhao467  
+####  chenyuhao467
 ##### 663#       发表于 2021-11-8 15:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463226&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 14:53</a>
@@ -7413,28 +7412,28 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  普通的石头门厨  
+####  普通的石头门厨
 ##### 664#       发表于 2021-11-8 15:53
 
 新人问下通行证是啥。。顶级版应该自带通行证吧？点进去也没看到有任务之类的东西呀（我理解通行证是那种每周做任务解锁车辆的？）
 
 *****
 
-####  monono  
+####  monono
 ##### 665#       发表于 2021-11-8 16:00
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">准备搞一个50圈纯享版挂机
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 666#       发表于 2021-11-8 16:02
 
 刚好抽到辆1953，这就拿去开挂机<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
 *****
 
-####  haru橙子  
+####  haru橙子
 ##### 667#       发表于 2021-11-8 16:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464152&amp;ptid=2033303" target="_blank">普通的石头门厨 发表于 2021-11-8 15:53</a>
@@ -7444,14 +7443,14 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 668#       发表于 2021-11-8 16:05
 
 艹，点进去蓝图一看今日热门清一色的挂机图
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 669#         楼主| 发表于 2021-11-8 16:05
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463392&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-7 23:04</a>
@@ -7467,7 +7466,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 670#       发表于 2021-11-8 16:07
 
 隔壁看到说买车直接在图鉴买
@@ -7476,7 +7475,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  jpiajwopdm  
+####  jpiajwopdm
 ##### 671#       发表于 2021-11-8 16:11
 
 这代还会有阿尔法罗密欧么，上代的giulia好开到离谱，怀念
@@ -7485,7 +7484,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  mwj  
+####  mwj
 ##### 672#       发表于 2021-11-8 16:27
 
 <blockquote>haru橙子 发表于 2021-11-8 16:03
@@ -7494,7 +7493,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 673#       发表于 2021-11-8 16:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464726&amp;ptid=2033303" target="_blank">mwj 发表于 2021-11-8 16:27</a>
@@ -7505,7 +7504,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  redsibyl  
+####  redsibyl
 ##### 674#       发表于 2021-11-8 16:31
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463226&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 14:53</a>
@@ -7514,7 +7513,7 @@ https://www.bilibili.com/video/BV19P4y1V7dq?spm_id_from=333.788.b_636f6d6d656e74
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 675#       发表于 2021-11-8 16:31
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464377&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 16:05</a>
@@ -7527,7 +7526,7 @@ xsx主机怎么操作这个<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 676#       发表于 2021-11-8 16:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464792&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-8 16:31</a>
@@ -7539,7 +7538,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 677#       发表于 2021-11-8 16:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464781&amp;ptid=2033303" target="_blank">redsibyl 发表于 2021-11-8 16:31</a>
@@ -7548,7 +7547,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 678#       发表于 2021-11-8 16:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464781&amp;ptid=2033303" target="_blank">redsibyl 发表于 2021-11-8 16:31</a>
@@ -7560,7 +7559,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下
 
 *****
 
-####  redsibyl  
+####  redsibyl
 ##### 679#       发表于 2021-11-8 16:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464884&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-8 16:38</a>
@@ -7569,7 +7568,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 680#         楼主| 发表于 2021-11-8 16:48
 
 刚才刷了十把jeep willy的超级摇摇乐
@@ -7584,7 +7583,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 681#       发表于 2021-11-8 16:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464820&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-8 16:33</a>
@@ -7598,7 +7597,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 682#       发表于 2021-11-8 17:24
 
 有人知道到底怎么建俱乐部吗，无限报错，PC端。
@@ -7607,7 +7606,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 683#         楼主| 发表于 2021-11-8 17:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465592&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-8 01:24</a>
@@ -7619,7 +7618,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  hokagokenjatime  
+####  hokagokenjatime
 ##### 684#       发表于 2021-11-8 17:57
 
 今晚是不是7点就能玩新西兰的普通版了。。。
@@ -7628,7 +7627,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 685#       发表于 2021-11-8 18:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53465023&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 16:48</a>
@@ -7641,7 +7640,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 686#       发表于 2021-11-8 18:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53466161&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 17:57</a>
@@ -7652,7 +7651,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 687#         楼主| 发表于 2021-11-8 18:39
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53466250&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-8 02:02</a>
@@ -7666,7 +7665,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  danduyao  
+####  danduyao
 ##### 688#       发表于 2021-11-8 18:43
 
 <img src="https://img.saraba1st.com/forum/202111/08/184131u2yyplp2azzpamxa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -7683,14 +7682,14 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  HJJSM  
+####  HJJSM
 ##### 689#       发表于 2021-11-8 19:04
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 我也是显存不足，这是逼着我换显卡啊。这玩意现在降价了没
 
 *****
 
-####  redsibyl  
+####  redsibyl
 ##### 690#       发表于 2021-11-8 19:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53464862&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-8 16:37</a>
@@ -7701,7 +7700,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 691#       发表于 2021-11-8 19:22
 
 周末把地图全走了一遍，这次没有前作那种小角落里差一点点亮的土路了（玩家移动时开图范围很大，地图也画得比较简略，很多土路干脆不画地图了），传送牌子也清了，经验牌子差8个5000的，全都要飞车，过几天慢慢想。
@@ -7710,7 +7709,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 692#       发表于 2021-11-8 20:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53466803&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 18:39</a>
@@ -7724,7 +7723,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 693#       发表于 2021-11-8 20:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53463658&amp;ptid=2033303" target="_blank">chenyuhao467 发表于 2021-11-8 15:22</a>
@@ -7736,7 +7735,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 694#       发表于 2021-11-8 20:34
 
 这一次中文版机翻错误好多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -7748,16 +7747,16 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 695#       发表于 2021-11-8 20:43
 
- 本帖最后由 爱护动物抓根宝 于 2021-11-8 20:45 编辑 
+ 本帖最后由 爱护动物抓根宝 于 2021-11-8 20:45 编辑
 
 草，刚遇到个傻卵老外就因为我跳台多了60米追着我要录像，我问他我前面还有30多人呢你怎么不去问他们，他说前边的都是作弊不算的，我就说你就当我也是作弊把我划掉吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 696#         楼主| 发表于 2021-11-8 20:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53468341&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-8 04:43</a>
@@ -7769,17 +7768,17 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  redsibyl  
+####  redsibyl
 ##### 697#       发表于 2021-11-8 20:49
 
 说起来，上代出的时候不是刚好联动了007，这代不刚好也档期碰一起咋就不联动，上代那车挺帅的
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 698#       发表于 2021-11-8 20:49
 
- 本帖最后由 爱护动物抓根宝 于 2021-11-8 20:53 编辑 
+ 本帖最后由 爱护动物抓根宝 于 2021-11-8 20:53 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53468406&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 20:47</a>
 
 啥跳台
@@ -7791,7 +7790,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 699#       发表于 2021-11-8 21:07
 
 试了下苦行赛道，还可以啊，平均难度，bronco 2021 A级，领先第二7秒，全程没压力，都要睡着了，不过风景还不错
@@ -7800,14 +7799,14 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 700#       发表于 2021-11-8 21:52
 
 现阶段有什么推荐的S1 900评级的街车吗？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 701#         楼主| 发表于 2021-11-8 21:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469109&amp;ptid=2033303" target="_blank">gzGaryC 发表于 2021-11-8 05:52</a>
@@ -7821,14 +7820,14 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 702#       发表于 2021-11-8 22:07
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">橡皮筋绑住手柄，跑大概4圈左右就断开连接……
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 703#       发表于 2021-11-8 22:23
 
 悲剧了，手一滑用白嫖券买了辆supra<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -7837,7 +7836,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 704#       发表于 2021-11-8 22:29
 
 今晚刷了七十多次超级抽奖，近百次普通抽奖，愣是没抽出来，发张无能狂怒时刻给大家开心一下<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
@@ -7859,7 +7858,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 705#         楼主| 发表于 2021-11-8 22:52
 
 200级应该是第一转，加1星
@@ -7872,7 +7871,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 706#       发表于 2021-11-8 22:54
 
 草，新解锁的每日任务似乎有bug完成不了，要撞5个电话亭我撞了20个都没完成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -7881,7 +7880,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 707#       发表于 2021-11-8 23:03
 
 <img src="https://p.sda1.dev/3/9d884969daab7dc5a5f283c491c7ee33/Desktop Screenshot 2021.11.08 - 22.43.18.11 - 副本.png" referrerpolicy="no-referrer">
@@ -7890,7 +7889,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 708#       发表于 2021-11-8 23:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469261&amp;ptid=2033303" target="_blank">虚无连斩 发表于 2021-11-8 22:07</a>
@@ -7902,7 +7901,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 709#       发表于 2021-11-8 23:10
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469690&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-8 22:52</a>
@@ -7917,14 +7916,14 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  LMBS  
+####  LMBS
 ##### 710#       发表于 2021-11-8 23:37
 
 嘉年华里面那个每周挑战容易完成吗？根本不知哪里开任务
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 711#       发表于 2021-11-8 23:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470151&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-8 23:37</a>
@@ -7935,7 +7934,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 712#       发表于 2021-11-8 23:45
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜这游戏以后会有个骂人句式是
@@ -7945,7 +7944,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 713#       发表于 2021-11-8 23:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470151&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-8 23:37</a>
@@ -7955,7 +7954,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 714#       发表于 2021-11-8 23:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469261&amp;ptid=2033303" target="_blank">虚无连斩 发表于 2021-11-8 22:07</a>
@@ -7967,14 +7966,14 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  树洞专用  
+####  树洞专用
 ##### 715#       发表于 2021-11-9 00:08
 
 跑了几小时现在能跟专业难度玩一玩了，这代回放零惩罚额，容易依赖吧。然后我问下是不是过弯高速过撞墙是最佳策略啊，这撞墙减速也太少了，随便超车，车子抓地力也挺离谱的吸住了，fh玩的不多问下是传统吗
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 716#       发表于 2021-11-9 00:10
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470439&amp;ptid=2033303" target="_blank">树洞专用 发表于 2021-11-9 00:08</a>
@@ -7983,7 +7982,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 717#       发表于 2021-11-9 00:19
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470439&amp;ptid=2033303" target="_blank">树洞专用 发表于 2021-11-9 00:08</a>
@@ -7995,7 +7994,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  你好s1  
+####  你好s1
 ##### 718#       发表于 2021-11-9 00:37
 
      临睡前跑了半个小时，整体感觉就是4的资料片
@@ -8006,7 +8005,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 719#       发表于 2021-11-9 00:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469787&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-8 23:03</a>
@@ -8017,7 +8016,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 720#       发表于 2021-11-9 01:14
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说我找不到漂移区域呢，原来还没解锁
@@ -8026,7 +8025,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  agion117  
+####  agion117
 ##### 721#       发表于 2021-11-9 01:16
 
 车辆调校有什么交流区可以抄作业吗，搜索也不知道怎么判断哪个比较适合
@@ -8037,14 +8036,14 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  如月尤菲  
+####  如月尤菲
 ##### 722#       发表于 2021-11-9 01:33
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">话说xsx版的画质和性能模式感觉看不出来啥区别
 
 *****
 
-####  asergh0630rx  
+####  asergh0630rx
 ##### 723#       发表于 2021-11-9 01:34
 
 玩了一下墨西哥和澳大利亚好像啊，也没什么系统上的改进，又是跑飞机跑摩托车有点腻了。
@@ -8053,7 +8052,7 @@ xsx先看网络类型是不是开放吧 实在不行dmz映射一下</blockquote>
 
 *****
 
-####  宅男的爱  
+####  宅男的爱
 ##### 724#       发表于 2021-11-9 02:43
 
 Steam版和Windows Store版可以联机吗？
@@ -8066,7 +8065,7 @@ Steam版和Windows Store版可以联机吗？
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 725#       发表于 2021-11-9 03:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53471111&amp;ptid=2033303" target="_blank">宅男的爱 发表于 2021-11-9 02:43</a>
@@ -8090,10 +8089,10 @@ Steam版和Windows Store版可以联机吗？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 726#         楼主| 发表于 2021-11-9 03:25
 
- 本帖最后由 天神十三煞 于 2021-11-8 11:30 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-8 11:30 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53469109&amp;ptid=2033303" target="_blank">gzGaryC 发表于 2021-11-8 05:52</a>
 
 现阶段有什么推荐的S1 900评级的街车吗？</blockquote>
@@ -8103,10 +8102,10 @@ Steam版和Windows Store版可以联机吗？
 
 *****
 
-####  ayaseyue  
+####  ayaseyue
 ##### 727#       发表于 2021-11-9 04:05
 
- 本帖最后由 ayaseyue 于 2021-11-9 04:12 编辑 
+ 本帖最后由 ayaseyue 于 2021-11-9 04:12 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470916&amp;ptid=2033303" target="_blank">asergh0630rx 发表于 2021-11-9 01:34</a>
 
 玩了一下墨西哥和澳大利亚好像啊，也没什么系统上的改进，又是跑飞机跑摩托车有点腻了。 ...</blockquote>
@@ -8122,23 +8121,23 @@ GT1到现在的7，职业生涯考证买车改车收集系统本质上也没什�
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 728#       发表于 2021-11-9 08:51
 
- 本帖最后由 Existinghomes 于 2021-11-9 08:57 编辑 
+ 本帖最后由 Existinghomes 于 2021-11-9 08:57 编辑
 
 win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">查了下好像是微软商店的老_毛病了
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 729#       发表于 2021-11-9 08:57
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道正式上线后新玩家看着满礼物箱的威利斯吉普和supra什么感受
 
 *****
 
-####  小张翔  
+####  小张翔
 ##### 730#       发表于 2021-11-9 08:59
 
 用xsx刷图 手柄会断开连接咋办<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
@@ -8149,7 +8148,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 731#       发表于 2021-11-9 09:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470913&amp;ptid=2033303" target="_blank">如月尤菲 发表于 2021-11-9 01:33</a>
@@ -8158,17 +8157,17 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 732#       发表于 2021-11-9 09:10
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一说怎么收礼物，看信息箱里也没有啊
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 733#       发表于 2021-11-9 09:11
 
- 本帖最后由 有钱多买小人 于 2021-11-9 09:14 编辑 
+ 本帖最后由 有钱多买小人 于 2021-11-9 09:14 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472003&amp;ptid=2033303" target="_blank">小张翔 发表于 2021-11-9 08:59</a>
 用xsx刷图 手柄会断开连接咋办
 
@@ -8177,14 +8176,14 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  Paradox7  
+####  Paradox7
 ##### 734#       发表于 2021-11-9 09:12
 
 新手有个问题，我ds4手柄接上电脑后 怎么才能选择用手柄玩啊，没有自动换过来
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 735#       发表于 2021-11-9 09:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472107&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-9 09:10</a>
@@ -8193,7 +8192,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  chan  
+####  chan
 ##### 736#       发表于 2021-11-9 09:18
 
 纠结免费券换什么车，你们呢？
@@ -8202,14 +8201,14 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 737#       发表于 2021-11-9 09:28
 
 我换了amg one，感觉不太行啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 *****
 
-####  Lisylfn  
+####  Lisylfn
 ##### 738#       发表于 2021-11-9 09:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472125&amp;ptid=2033303" target="_blank">Paradox7 发表于 2021-11-9 09:12</a>
@@ -8219,7 +8218,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 739#       发表于 2021-11-9 09:33
 
 <blockquote>wzy200912345 发表于 2021-11-8 18:57
@@ -8228,7 +8227,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 740#       发表于 2021-11-9 09:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470913&amp;ptid=2033303" target="_blank">如月尤菲 发表于 2021-11-9 01:33</a>
@@ -8240,7 +8239,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 741#       发表于 2021-11-9 09:43
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472196&amp;ptid=2033303" target="_blank">chan 发表于 2021-11-9 09:18</a>
@@ -8249,7 +8248,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  Paradox7  
+####  Paradox7
 ##### 742#       发表于 2021-11-9 09:43
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472283&amp;ptid=2033303" target="_blank">Lisylfn 发表于 2021-11-9 09:29</a>
@@ -8259,7 +8258,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 743#       发表于 2021-11-9 09:53
 
 <blockquote>chan 发表于 2021-11-8 19:18
@@ -8268,7 +8267,7 @@ win10商店版，遇到两次游戏莫名其妙把自己卸载掉的情况了<im
 
 *****
 
-####  misaki_d  
+####  misaki_d
 ##### 744#       发表于 2021-11-9 09:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472564&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-9 09:53</a>
@@ -8278,7 +8277,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  crosz  
+####  crosz
 ##### 745#       发表于 2021-11-9 09:59
 
 画质模式和帧数模式感觉差别很大啊
@@ -8289,7 +8288,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 746#       发表于 2021-11-9 10:10
 
 <blockquote>爱护动物抓根宝 发表于 2021-11-9 09:43
@@ -8302,7 +8301,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 747#       发表于 2021-11-9 10:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472731&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-9 10:10</a>
@@ -8314,14 +8313,14 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  殿珣  
+####  殿珣
 ##### 748#       发表于 2021-11-9 10:50
 
 问一下，我在pc端下载，先是准备中0%，然后直接在下载列表消失是怎么回事？有人遇到过这个问题嘛？
 
 *****
 
-####  jpiajwopdm  
+####  jpiajwopdm
 ##### 749#       发表于 2021-11-9 10:51
 
 这几天玩下来一个感觉，就是真你妈高清
@@ -8330,7 +8329,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  nomhrpls  
+####  nomhrpls
 ##### 750#       发表于 2021-11-9 10:51
 
 感觉已经住在环岛了，每天下班就是环岛，怎么开都开不腻
@@ -8339,7 +8338,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  jpiajwopdm  
+####  jpiajwopdm
 ##### 751#       发表于 2021-11-9 10:52
 
 顺便邪恶轴心团结点啊，德国车的痛车涂装真的少
@@ -8347,7 +8346,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  monono  
+####  monono
 ##### 752#       发表于 2021-11-9 10:53
 
 借楼 没有必要用东西压住键盘，也没有必要设置宏（不好解除），只要按住W然后按WIN+G打开game bar就能一直开了，退出game bar或者进行别的操作也还是一直开，再按一次W就能解除
@@ -8356,7 +8355,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  永远喜欢刘人语  
+####  永远喜欢刘人语
 ##### 753#       发表于 2021-11-9 10:56
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53471184&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 03:25</a>
@@ -8370,7 +8369,7 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 754#         楼主| 发表于 2021-11-9 11:07
 
 白嫖券根本不需要用
@@ -8387,21 +8386,21 @@ v10 那个全 3 星很简单，几乎每一关都能偷鸡，基本白给
 
 *****
 
-####  没钱买手办  
+####  没钱买手办
 ##### 755#       发表于 2021-11-9 11:08
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们掉线的问题都解决了吗，五分钟掉一下根本没法玩线上模式啊
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 756#       发表于 2021-11-9 11:12
 
 v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  onezer0618  
+####  onezer0618
 ##### 757#       发表于 2021-11-9 11:12
 
 <img src="https://img.saraba1st.com/forum/202111/09/111116no0ct8gd89uccapt.jpg" referrerpolicy="no-referrer">
@@ -8416,7 +8415,7 @@ v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 758#       发表于 2021-11-9 11:12
 
 昨天晚上几乎不掉了
@@ -8425,7 +8424,7 @@ v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 759#       发表于 2021-11-9 11:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473213&amp;ptid=2033303" target="_blank">jpiajwopdm 发表于 2021-11-9 10:51</a>
@@ -8437,7 +8436,7 @@ v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 760#         楼主| 发表于 2021-11-9 11:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473304&amp;ptid=2033303" target="_blank">永远喜欢刘人语 发表于 2021-11-8 18:56</a>
@@ -8449,14 +8448,14 @@ v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 761#       发表于 2021-11-9 11:16
 
 飞车撞牌子大家善用Y，可以节省大量时间
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 762#       发表于 2021-11-9 11:16
 
 如果这代daytona还好用的话白嫖券可以拿来买那个，三千万<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
@@ -8465,24 +8464,24 @@ v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 763#       发表于 2021-11-9 11:21
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天抽到了AE86，开心了
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 764#       发表于 2021-11-9 11:22
 
 这代还是要兼容老机器，新cpu就优化在读盘上面了。否则可以多搞点活动的东西。
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 765#       发表于 2021-11-9 11:27
 
- 本帖最后由 爱护动物抓根宝 于 2021-11-9 11:38 编辑 
+ 本帖最后由 爱护动物抓根宝 于 2021-11-9 11:38 编辑
 
 这代电台怎么听还是太不得劲了，氛围感还不错但抓耳的太少
 
@@ -8492,7 +8491,7 @@ v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  makece  
+####  makece
 ##### 766#       发表于 2021-11-9 12:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53470916&amp;ptid=2033303" target="_blank">asergh0630rx 发表于 2021-11-9 01:34</a>
@@ -8502,7 +8501,7 @@ v10的柯尼塞格简直是一块肥皂
 
 *****
 
-####  紫水晶  
+####  紫水晶
 ##### 767#       发表于 2021-11-9 12:08
 
 sx微软，装了运行不了文件系统错误，重装又来个001错误
@@ -8511,7 +8510,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 768#       发表于 2021-11-9 12:08
 
 <blockquote>makece 发表于 2021-11-9 12:02
@@ -8520,10 +8519,10 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 769#         楼主| 发表于 2021-11-9 12:11
 
- 本帖最后由 天神十三煞 于 2021-11-8 20:13 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-8 20:13 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474282&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-8 20:08</a>
 
 墨西哥有冬天么</blockquote>
@@ -8535,7 +8534,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 770#       发表于 2021-11-9 12:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474327&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 12:11</a>
@@ -8547,7 +8546,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 771#         楼主| 发表于 2021-11-9 12:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474881&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-8 20:51</a>
@@ -8559,7 +8558,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 772#       发表于 2021-11-9 12:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474881&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-9 12:51</a>
@@ -8573,7 +8572,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  ETdiablo  
+####  ETdiablo
 ##### 773#       发表于 2021-11-9 13:11
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472115&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-9 09:11</a>
@@ -8583,7 +8582,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  ricarto  
+####  ricarto
 ##### 774#       发表于 2021-11-9 13:19
 
 帮朋友问一下，XGP pc版本，XBOX XBOX主机小帮手两个都登录了，但是打开游戏显示无法登录地平线档案
@@ -8592,7 +8591,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  makece  
+####  makece
 ##### 775#       发表于 2021-11-9 13:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53474282&amp;ptid=2033303" target="_blank">mcq_2 发表于 2021-11-9 12:08</a>
@@ -8602,7 +8601,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 776#       发表于 2021-11-9 13:43
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475114&amp;ptid=2033303" target="_blank">ETdiablo 发表于 2021-11-9 13:11</a>
@@ -8612,7 +8611,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  齿轮轴君  
+####  齿轮轴君
 ##### 777#       发表于 2021-11-9 13:43
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475114&amp;ptid=2033303" target="_blank">ETdiablo 发表于 2021-11-9 13:11</a>
@@ -8621,7 +8620,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 778#       发表于 2021-11-9 13:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473436&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 11:07</a>
@@ -8637,7 +8636,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 779#       发表于 2021-11-9 13:48
 
 话说forza hub里怎么还是没有fh5的影子
@@ -8646,7 +8645,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  我又忘了用户名  
+####  我又忘了用户名
 ##### 780#       发表于 2021-11-9 14:11
 
 泥潭有木有qq群讨论的, 想加
@@ -8655,7 +8654,7 @@ sx微软，装了运行不了文件系统错误，重装又来个001错误
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 781#         楼主| 发表于 2021-11-9 14:17
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475732&amp;ptid=2033303" target="_blank">我又忘了用户名 发表于 2021-11-8 22:11</a>
@@ -8669,7 +8668,7 @@ xbox群
 
 *****
 
-####  haru橙子  
+####  haru橙子
 ##### 782#       发表于 2021-11-9 15:19
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53472564&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-9 09:53</a>
@@ -8679,7 +8678,7 @@ xbox群
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 783#       发表于 2021-11-9 15:21
 
 今天终于抽出克尔维特55打算体验一下，一进改装给我整笑了
@@ -8698,7 +8697,7 @@ xbox群
 
 *****
 
-####  动力装甲  
+####  动力装甲
 ##### 784#       发表于 2021-11-9 15:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475515&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-9 13:48</a>
@@ -8707,7 +8706,7 @@ xbox群
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 785#       发表于 2021-11-9 15:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476804&amp;ptid=2033303" target="_blank">动力装甲 发表于 2021-11-9 15:29</a>
@@ -8717,21 +8716,21 @@ xbox群
 
 *****
 
-####  onlv星骸  
+####  onlv星骸
 ##### 786#       发表于 2021-11-9 15:39
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">有没有用nspro玩xgpc版成功了的。。 试了n种办法，用映射软件就显示未连接控制器太蠢了。。
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 787#       发表于 2021-11-9 15:41
 
 行吧 也就每周15万的羊毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 788#       发表于 2021-11-9 15:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476968&amp;ptid=2033303" target="_blank">onlv星骸 发表于 2021-11-9 15:39</a>
@@ -8740,7 +8739,7 @@ xbox群
 
 *****
 
-####  漫漫来  
+####  漫漫来
 ##### 789#       发表于 2021-11-9 15:44
 
 这游戏自由视角一定要右摇杆前推才行吗？漫游模式看风景太难受了
@@ -8749,7 +8748,7 @@ xbox群
 
 *****
 
-####  onlv星骸  
+####  onlv星骸
 ##### 790#       发表于 2021-11-9 15:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53477007&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-9 15:42</a>
@@ -8759,7 +8758,7 @@ xbox群
 
 *****
 
-####  lilod  
+####  lilod
 ##### 791#       发表于 2021-11-9 15:54
 
 XGP for pc 到底怎么样才可以使用手柄啊。。其他游戏好好的，进地平线5手柄就是连接不上
@@ -8768,7 +8767,7 @@ XGP for pc 到底怎么样才可以使用手柄啊。。其他游戏好好的，
 
 *****
 
-####  体质的错  
+####  体质的错
 ##### 792#       发表于 2021-11-9 16:14
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53477007&amp;ptid=2033303" target="_blank">qianoooo 发表于 2021-11-9 03:42</a>
@@ -8777,7 +8776,7 @@ betterjoy
 
 *****
 
-####  紫水晶  
+####  紫水晶
 ##### 793#       发表于 2021-11-9 16:19
 
 有没有xgp用ps4手柄的攻略
@@ -8788,7 +8787,7 @@ betterjoy
 
 *****
 
-####  redsibyl  
+####  redsibyl
 ##### 794#       发表于 2021-11-9 16:31
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53475114&amp;ptid=2033303" target="_blank">ETdiablo 发表于 2021-11-9 13:11</a>
@@ -8799,7 +8798,7 @@ betterjoy
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 795#       发表于 2021-11-9 16:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53473451&amp;ptid=2033303" target="_blank">没钱买手办 发表于 2021-11-9 11:08</a>
@@ -8809,7 +8808,7 @@ betterjoy
 
 *****
 
-####  Luc  
+####  Luc
 ##### 796#       发表于 2021-11-9 17:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53477593&amp;ptid=2033303" target="_blank">紫水晶 发表于 2021-11-9 16:19</a>
@@ -8827,7 +8826,7 @@ betterjoy
 
 *****
 
-####  保科智子  
+####  保科智子
 ##### 797#       发表于 2021-11-9 17:05
 
 有个G27想废物利旧，但是只能接PC，e3v2+1070配4k屏幕能接受吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -8836,7 +8835,7 @@ betterjoy
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 798#         楼主| 发表于 2021-11-9 17:32
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -8848,10 +8847,10 @@ betterjoy
 
 *****
 
-####  amuro_h  
+####  amuro_h
 ##### 799#       发表于 2021-11-9 17:39
 
- 本帖最后由 amuro_h 于 2021-11-9 17:42 编辑 
+ 本帖最后由 amuro_h 于 2021-11-9 17:42 编辑
 
 求助 进游戏没事开始第一场的表演赛就报错。。有人知道怎么搞吗。。。
 
@@ -8867,7 +8866,7 @@ betterjoy
 
 *****
 
-####  jpiajwopdm  
+####  jpiajwopdm
 ##### 800#       发表于 2021-11-9 18:05
 
 我为了这游戏专门买了个xbox手柄，结果发现有点问题？
@@ -8879,7 +8878,7 @@ betterjoy
 
 *****
 
-####  秋雨灰灰  
+####  秋雨灰灰
 ##### 801#       发表于 2021-11-9 18:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53479247&amp;ptid=2033303" target="_blank">jpiajwopdm 发表于 2021-11-9 18:05</a>
@@ -8895,7 +8894,7 @@ betterjoy
 
 *****
 
-####  jpiajwopdm  
+####  jpiajwopdm
 ##### 802#       发表于 2021-11-9 19:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53479699&amp;ptid=2033303" target="_blank">秋雨灰灰 发表于 2021-11-9 18:37</a>
@@ -8909,7 +8908,7 @@ betterjoy
 
 *****
 
-####  ckming  
+####  ckming
 ##### 803#       发表于 2021-11-9 19:20
 
 ds5手柄识别不了，吐了
@@ -8918,7 +8917,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 804#       发表于 2021-11-9 19:38
 
 <blockquote>jpiajwopdm 发表于 2021-11-9 19:06
@@ -8931,7 +8930,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  wolfwood  
+####  wolfwood
 ##### 805#       发表于 2021-11-9 19:55
 
 开局第三辆车丛林空降就跳出，怎么还不出补丁修复
@@ -8940,10 +8939,10 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 806#       发表于 2021-11-9 20:06
 
- 本帖最后由 lxx4869 于 2021-11-9 20:21 编辑 
+ 本帖最后由 lxx4869 于 2021-11-9 20:21 编辑
 
 为啥有的涂装只能下载不能应用，右下角没有方向盘的图标？
 
@@ -8951,7 +8950,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 807#       发表于 2021-11-9 20:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53478297&amp;ptid=2033303" target="_blank">保科智子 发表于 2021-11-9 17:05</a>
@@ -8965,10 +8964,10 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  nyaneko  
+####  nyaneko
 ##### 808#       发表于 2021-11-9 20:30
 
- 本帖最后由 nyaneko 于 2021-11-9 20:38 编辑 
+ 本帖最后由 nyaneko 于 2021-11-9 20:38 编辑
 
 艹，sb游戏车展买辆车卡在“正在储存”也是服了
 
@@ -8976,14 +8975,14 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 809#       发表于 2021-11-9 20:36
 
 地平线生活现在是啥情况<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 匹配不到人 过关挑战根本做不完
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 810#       发表于 2021-11-9 20:36
 
 风怒
@@ -8992,7 +8991,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  Deay店长  
+####  Deay店长
 ##### 811#       发表于 2021-11-9 20:37
 
 1063进去，画质自定义部分超高，然后动态模糊超高配合长快门，1080P30也非常非常舒服
@@ -9001,7 +9000,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 812#       发表于 2021-11-9 21:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53478740&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 17:32</a>
@@ -9015,7 +9014,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 813#         楼主| 发表于 2021-11-9 21:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53481750&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-9 05:00</a>
@@ -9031,7 +9030,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 814#       发表于 2021-11-9 21:47
 
 <img src="https://z3.ax1x.com/2021/11/09/IN9g2D.md.jpg" referrerpolicy="no-referrer">
@@ -9042,7 +9041,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 815#       发表于 2021-11-9 22:05
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482355&amp;ptid=2033303" target="_blank">鹿斗典善 发表于 2021-11-9 21:47</a>
@@ -9053,14 +9052,14 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  团结奋进碇真嗣  
+####  团结奋进碇真嗣
 ##### 816#       发表于 2021-11-9 22:16
 
 开了一个小时，这里边的车怎么都轻飘飘的。感觉不如极品14
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 817#       发表于 2021-11-9 22:17
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482113&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-9 21:27</a>
@@ -9082,7 +9081,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  mwj  
+####  mwj
 ##### 818#       发表于 2021-11-9 22:49
 
 折腾了好久总算把第二台车领了......
@@ -9091,7 +9090,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 819#       发表于 2021-11-9 23:15
 
 ，
@@ -9102,7 +9101,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 820#       发表于 2021-11-10 00:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53482660&amp;ptid=2033303" target="_blank">团结奋进碇真嗣 发表于 2021-11-9 22:16</a>
@@ -9113,7 +9112,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  DancingAndy  
+####  DancingAndy
 ##### 821#       发表于 2021-11-10 01:15
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我今天新人上线箱子里怎么没礼物啊
@@ -9122,7 +9121,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  nailuo1993  
+####  nailuo1993
 ##### 822#       发表于 2021-11-10 04:40
 
 这代ai作弊太明显了 ai车物理法则仿佛和玩家的不一样
@@ -9131,7 +9130,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 823#       发表于 2021-11-10 06:20
 
 牌子撞完了，这游戏对于我已经结束了，之后就随便开开
@@ -9140,7 +9139,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 824#       发表于 2021-11-10 07:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484639&amp;ptid=2033303" target="_blank">nailuo1993 发表于 2021-11-10 04:40</a>
@@ -9152,7 +9151,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 825#       发表于 2021-11-10 08:26
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">全版本首发日快过去了你软的补丁还没憋出来
@@ -9161,7 +9160,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 826#       发表于 2021-11-10 09:14
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476666&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-9 15:21</a>
@@ -9177,7 +9176,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 827#       发表于 2021-11-10 10:14
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53484847&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-10 07:32</a>
@@ -9188,7 +9187,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 828#       发表于 2021-11-10 10:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486297&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-10 10:14</a>
@@ -9198,7 +9197,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 829#       发表于 2021-11-10 10:39
 
 智能车手的实力一定程度反映了对应名字真人玩家的实力，所以如果看到某个领头羊的名字经常出现可以通过来回调难度来把这个名字刷走，直到只剩一群菜鸡为止
@@ -9207,7 +9206,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 830#       发表于 2021-11-10 10:58
 
 有没有办法两台电脑一个账号玩一个存档啊，在别的电脑下了个直接给开了新存档。
@@ -9216,7 +9215,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 831#       发表于 2021-11-10 11:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486673&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-10 10:39</a>
@@ -9225,7 +9224,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 832#       发表于 2021-11-10 11:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486536&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-10 10:30</a>
@@ -9234,7 +9233,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 833#       发表于 2021-11-10 11:18
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53487140&amp;ptid=2033303" target="_blank">lotusaelise 发表于 2021-11-10 11:07</a>
@@ -9244,7 +9243,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 834#       发表于 2021-11-10 11:18
 
 <blockquote>lotusaelise 发表于 2021-11-10 11:07
@@ -9255,7 +9254,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 835#       发表于 2021-11-10 11:24
 
 你以为第六元素的魔法抓地力很离谱，但ai的抓地力就是开挂，经常看到用超级离谱的速度过弯
@@ -9264,7 +9263,7 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 836#       发表于 2021-11-10 11:37
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看视频评论，ai用599xe跑环岛9分06秒，而这作的599xe性能一般般
@@ -9273,14 +9272,14 @@ ds5手柄识别不了，吐了
 
 *****
 
-####  阿卵真是牛逼  
+####  阿卵真是牛逼
 ##### 837#       发表于 2021-11-10 12:02
 
 forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还来吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 *****
 
-####  升职加薪  
+####  升职加薪
 ##### 838#       发表于 2021-11-10 12:22
 
 赛车有希望tga goty吗
@@ -9289,7 +9288,7 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 839#       发表于 2021-11-10 12:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53488242&amp;ptid=2033303" target="_blank">升职加薪 发表于 2021-11-10 12:22</a>
@@ -9300,7 +9299,7 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 840#       发表于 2021-11-10 12:38
 
 玩家数量超450万了，不知道车展supra和美军吉普销量加起来能不能过亿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
@@ -9309,7 +9308,7 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 841#       发表于 2021-11-10 12:55
 
 几天玩下来遇到的最大的bug就是地面贴图有时候会爆炸，变成一条一条积水状的bug图形，不知道到底是游戏的问题还是显卡要坏了
@@ -9319,7 +9318,7 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 
 *****
 
-####  Shigure酱  
+####  Shigure酱
 ##### 842#       发表于 2021-11-10 13:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53479247&amp;ptid=2033303" target="_blank">jpiajwopdm 发表于 2021-11-9 18:05</a>
@@ -9331,7 +9330,7 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 843#       发表于 2021-11-10 13:12
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53488689&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-10 12:55</a>
@@ -9344,7 +9343,7 @@ forza7的ai已经被人诟病了，其他车都是杆位ai的炮灰，这代还�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 844#       发表于 2021-11-10 13:19
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53488881&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-10 13:12</a>
@@ -9355,7 +9354,7 @@ win版有检查完整性吗，没有的话我还是直接重下算了<img src="h
 
 *****
 
-####  makece  
+####  makece
 ##### 845#       发表于 2021-11-10 13:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53486673&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-10 10:39</a>
@@ -9367,14 +9366,14 @@ win版有检查完整性吗，没有的话我还是直接重下算了<img src="h
 
 *****
 
-####  没钱买手办  
+####  没钱买手办
 ##### 846#       发表于 2021-11-10 13:48
 
 开局表演赛闪退的试试断网玩，基本都能解决
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 847#       发表于 2021-11-10 13:56
 
 <blockquote>makece 发表于 2021-11-10 13:25
@@ -9383,7 +9382,7 @@ win版有检查完整性吗，没有的话我还是直接重下算了<img src="h
 
 *****
 
-####  弱逼  
+####  弱逼
 ##### 848#       发表于 2021-11-10 13:57
 
 ai很离谱
@@ -9395,7 +9394,7 @@ ai很离谱
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 849#       发表于 2021-11-10 14:16
 
 今天打了几把线上都没有中途被断网踢出，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -9406,10 +9405,10 @@ ai很离谱
 
 *****
 
-####  hhgjf  
+####  hhgjf
 ##### 850#       发表于 2021-11-10 16:12
 
- 本帖最后由 hhgjf 于 2021-11-10 16:16 编辑 
+ 本帖最后由 hhgjf 于 2021-11-10 16:16 编辑
 
 不知不觉MC逆势上扬到92了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">）的95
 
@@ -9419,14 +9418,14 @@ ai很离谱
 
 *****
 
-####  chan  
+####  chan
 ##### 851#       发表于 2021-11-10 16:33
 
 突然想起个问题，前两代都送的车模这次不送了？虽说4代的很拉跨就是了...
 
 *****
 
-####  姬轩辕  
+####  姬轩辕
 ##### 852#       发表于 2021-11-10 16:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53480863&amp;ptid=2033303" target="_blank">wolfwood 发表于 2021-11-9 19:55</a>
@@ -9437,7 +9436,7 @@ ai很离谱
 
 *****
 
-####  电磁炮233  
+####  电磁炮233
 ##### 853#       发表于 2021-11-10 16:39
 
 社区里的玩家自制涂装加载不出来，挂了加速器都没用。。。
@@ -9448,7 +9447,7 @@ ai很离谱
 
 *****
 
-####  Ne0  
+####  Ne0
 ##### 854#       发表于 2021-11-10 17:14
 
 问个 xgp 在 pc 上的问题
@@ -9461,7 +9460,7 @@ ai很离谱
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 855#       发表于 2021-11-10 18:52
 
 有没有可以切到后台的自动跑圈大法，现在电脑什么都干不了和坐牢一样
@@ -9470,7 +9469,7 @@ ai很离谱
 
 *****
 
-####  zgh406624  
+####  zgh406624
 ##### 856#       发表于 2021-11-10 18:56
 
 为什么我没有收到吉普啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我也想要祝福
@@ -9479,7 +9478,7 @@ ai很离谱
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 857#       发表于 2021-11-10 19:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53493689&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-10 18:52</a>
@@ -9493,7 +9492,7 @@ ai很离谱
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 858#       发表于 2021-11-10 19:55
 
 醉了，卡在v10第8关。倒不是难，而是快结尾几个检查点强制失败。。。也没有错过检查点的提示，就直接失败了。。。
@@ -9502,7 +9501,7 @@ ai很离谱
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 859#       发表于 2021-11-10 20:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476648&amp;ptid=2033303" target="_blank">haru橙子 发表于 2021-11-9 01:19</a>
@@ -9514,7 +9513,7 @@ ai很离谱
 
 *****
 
-####  henryhe  
+####  henryhe
 ##### 860#       发表于 2021-11-10 21:03
 
 4玩了大半年一次都没有闪退过，5打算用xgp试玩一下再考虑是否入手，但两天了还是一过健康游戏忠告后就闪退，我还是继续玩4吧
@@ -9523,7 +9522,7 @@ ai很离谱
 
 *****
 
-####  D-JoeII  
+####  D-JoeII
 ##### 861#       发表于 2021-11-10 21:10
 
 微軟其實是不是以為FH5因為撞了COD覺得會走細水長流賣法,所以當初沒準備多點服務器
@@ -9532,7 +9531,7 @@ ai很离谱
 
 *****
 
-####  殿珣  
+####  殿珣
 ##### 862#       发表于 2021-11-10 21:34
 
 问一下5带拍照照片存在哪了？不在hub？
@@ -9541,7 +9540,7 @@ ai很离谱
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 863#       发表于 2021-11-10 22:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495496&amp;ptid=2033303" target="_blank">D-JoeII 发表于 2021-11-10 21:10</a>
@@ -9553,7 +9552,7 @@ ai很离谱
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 864#       发表于 2021-11-10 22:18
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495835&amp;ptid=2033303" target="_blank">殿珣 发表于 2021-11-10 21:34</a>
@@ -9566,7 +9565,7 @@ fh5感觉有点问题，gamebar和老黄都有点难截图
 
 *****
 
-####  Paradox7  
+####  Paradox7
 ##### 865#       发表于 2021-11-10 22:44
 
 我这下载安装ds4windows后还是不能在xgp版地平线5里用啊。。
@@ -9575,14 +9574,14 @@ fh5感觉有点问题，gamebar和老黄都有点难截图
 
 *****
 
-####  tasuku  
+####  tasuku
 ##### 866#       发表于 2021-11-10 22:46
 
 fh4的痛车能搞到5来么...
 
 *****
 
-####  串行总线  
+####  串行总线
 ##### 867#       发表于 2021-11-10 22:49
 
 麻了，今天试了试公开赛，结果分了个拉力苦行赛道。跑到后期疯狂提示内存不足，卡顿越来越明显<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，退掉公开赛才不卡了。来自: iPhone客户端
@@ -9591,7 +9590,7 @@ fh4的痛车能搞到5来么...
 
 *****
 
-####  tianruilee  
+####  tianruilee
 ##### 868#       发表于 2021-11-10 23:08
 
 xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -9608,14 +9607,14 @@ xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 869#       发表于 2021-11-10 23:41
 
 4代一直没敢打公开赛，5代上去匹了十几把，才发现其实只要会直角弯刹车和外内外过弯，就已经比90％的玩家要强了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 870#         楼主| 发表于 2021-11-10 23:42
 
 准备在手机xcould上挂废渣
@@ -9626,7 +9625,7 @@ xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com
 
 *****
 
-####  御风沐雪  
+####  御风沐雪
 ##### 871#       发表于 2021-11-10 23:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496895&amp;ptid=2033303" target="_blank"> tianruilee 发表于 2021-11-10 23:08</a> xcloud挂机刷，解放电脑和游戏机  附件： </blockquote>
@@ -9635,7 +9634,7 @@ xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 872#       发表于 2021-11-10 23:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496709&amp;ptid=2033303" target="_blank">串行总线 发表于 2021-11-10 22:49</a>
@@ -9645,7 +9644,7 @@ xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 873#       发表于 2021-11-11 00:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53494532&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-10 19:55</a>
@@ -9656,7 +9655,7 @@ xcloud挂机刷，解放电脑和游戏机<img src="https://static.saraba1st.com
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 874#       发表于 2021-11-11 00:10
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496676&amp;ptid=2033303" target="_blank">tasuku 发表于 2021-11-10 22:46</a>
@@ -9665,7 +9664,7 @@ fh4的痛车能搞到5来么...</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 875#       发表于 2021-11-11 00:18
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚搞上了按键精灵实现全自动点技能点删车，真的放置抽卡游戏了
@@ -9676,14 +9675,14 @@ fh4的痛车能搞到5来么...</blockquote>
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 876#       发表于 2021-11-11 00:53
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么都开始挂图了，我还是慢慢解锁，感觉这和CE差不多有点毁坏游戏体验（对我来说
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 877#         楼主| 发表于 2021-11-11 00:53
 
 这货卡是什么瘠薄
@@ -9696,7 +9695,7 @@ fh4的痛车能搞到5来么...</blockquote>
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 878#       发表于 2021-11-11 00:56
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497859&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-11 00:53</a>
@@ -9714,7 +9713,7 @@ fh4的痛车能搞到5来么...</blockquote>
 
 *****
 
-####  Senbascira  
+####  Senbascira
 ##### 879#       发表于 2021-11-11 02:38
 
 第一次玩fh，沉迷了两天后发现老手难度的ai都很难打过，直道难以拉近，起步比ai慢，过弯我觉得自己做得蛮好了但是还是比ai差。
@@ -9725,7 +9724,7 @@ fh4的痛车能搞到5来么...</blockquote>
 
 *****
 
-####  haru橙子  
+####  haru橙子
 ##### 880#       发表于 2021-11-11 02:48
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498391&amp;ptid=2033303" target="_blank">Senbascira 发表于 2021-11-11 02:38</a>
@@ -9739,7 +9738,7 @@ A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者�
 
 *****
 
-####  Krizzy  
+####  Krizzy
 ##### 881#       发表于 2021-11-11 07:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498391&amp;ptid=2033303" target="_blank">Senbascira 发表于 2021-11-11 02:38</a>
@@ -9752,7 +9751,7 @@ A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者�
 
 *****
 
-####  tasuku  
+####  tasuku
 ##### 882#       发表于 2021-11-11 08:14
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497500&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-11 00:10</a>
@@ -9768,7 +9767,7 @@ A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者�
 
 *****
 
-####  Lisylfn  
+####  Lisylfn
 ##### 883#       发表于 2021-11-11 08:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497328&amp;ptid=2033303" target="_blank">御风沐雪 发表于 2021-11-10 23:53</a>
@@ -9779,7 +9778,7 @@ A级公路和街赛用风火轮的boneshaker，A级越野用梅奔xclass或者�
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 884#       发表于 2021-11-11 10:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53496398&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-10 22:18</a>
@@ -9797,7 +9796,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 885#       发表于 2021-11-11 10:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53498391&amp;ptid=2033303" target="_blank">Senbascira 发表于 2021-11-11 02:38</a>
@@ -9808,7 +9807,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  Karin11974  
+####  Karin11974
 ##### 886#       发表于 2021-11-11 10:47
 
 掉线一整晚，巡回赛最多坚持到第二场，开uu和裸连都一样，麻了
@@ -9817,7 +9816,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  Krizzy  
+####  Krizzy
 ##### 887#       发表于 2021-11-11 10:49
 
 这代后驱好开了不少，4代个个魔改4驱实在心里接受不了，到后驱又太难开。。
@@ -9826,7 +9825,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  docklabor  
+####  docklabor
 ##### 888#       发表于 2021-11-11 10:53
 
 合作比赛居然要开三场？我记得4是一场啊。这tm3场下来大部分都掉线了
@@ -9835,14 +9834,14 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  docklabor  
+####  docklabor
 ##### 889#       发表于 2021-11-11 11:10
 
 刚才一把合作，第一轮剩四个，第二轮三个，第三轮读了5分钟图，进去后发现前两轮第一的大佬掉了还剩两个，然后开赛剩下那个队友又不动了，我自己开完了全程，艹
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 890#         楼主| 发表于 2021-11-11 11:17
 
 连不上或掉线的看631楼参考一下，实在卜行等明天更新吧，
@@ -9853,7 +9852,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 891#       发表于 2021-11-11 12:34
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53497583&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-11 00:18</a>
@@ -9865,7 +9864,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  intruderz  
+####  intruderz
 ##### 892#       发表于 2021-11-11 12:40
 
 苦行赛道是哪个抽了风的想出来的……越开越煎熬
@@ -9876,7 +9875,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  asergh0630rx  
+####  asergh0630rx
 ##### 893#       发表于 2021-11-11 12:53
 
 <blockquote>Krizzy 发表于 2021-11-11 10:49
@@ -9887,7 +9886,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 894#       发表于 2021-11-11 12:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502609&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-11 12:34</a>
@@ -9896,7 +9895,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 895#       发表于 2021-11-11 12:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53502698&amp;ptid=2033303" target="_blank">intruderz 发表于 2021-11-11 12:40</a>
@@ -9910,7 +9909,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  我又忘了用户名  
+####  我又忘了用户名
 ##### 896#       发表于 2021-11-11 13:36
 
 环岛赛刷了几次跑到10：53了 不知道为啥每次别人起步都比我快. 鬼影车也是. 起步的时候难道不能一直按着油门吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -9919,7 +9918,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 897#       发表于 2021-11-11 13:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53503340&amp;ptid=2033303" target="_blank">我又忘了用户名 发表于 2021-11-11 13:36</a>
@@ -9932,7 +9931,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 898#       发表于 2021-11-11 14:09
 
 刷了一下技能点又搞到一辆第六元素fe，龟龟这真是魔法车，抓地力比jesko强太多了，直接摧毁公路测速区间
@@ -9941,7 +9940,7 @@ fh5感觉有点问题，gameb ...</blockquote>
 
 *****
 
-####  Rebirth_DAN  
+####  Rebirth_DAN
 ##### 899#       发表于 2021-11-11 14:33
 
 分享个群的共享文件 可以作为选择调教的参考
@@ -9951,7 +9950,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  坂上斗真  
+####  坂上斗真
 ##### 900#       发表于 2021-11-11 15:42
 
 问一个设置问题，我是双显示器，想让游戏运行在第二个4k显示器上，但是设置里面没有找到选项，虽然可以在开游戏时候眼明手快把窗口拖到第二个显示器上全屏，但是这样一来设置里面无法识别第二个显示器的hdr，应该如何操作呢
@@ -9960,7 +9959,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  Realplayer  
+####  Realplayer
 ##### 901#       发表于 2021-11-11 16:27
 
 快告诉我怎么简单点刷钱，我要买疣猪<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
@@ -9969,7 +9968,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 902#       发表于 2021-11-11 17:58
 
 是我用错车了吗，到现在劲敌没有一个打到前5%的。翻排行榜还看到一个一秒完成的作弊玩家，醉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -9978,7 +9977,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  Stellar_Frost  
+####  Stellar_Frost
 ##### 903#       发表于 2021-11-11 19:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53476804&amp;ptid=2033303" target="_blank">动力装甲 发表于 2021-11-9 15:29</a>
@@ -9989,7 +9988,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 904#       发表于 2021-11-11 19:17
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53506757&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-11 17:58</a>
@@ -10000,7 +9999,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 905#       发表于 2021-11-11 19:21
 
 赛事赞赏里面各种指定车型和级别的赞赏是必须通过官方地图完成的，但技术类的没有限制
@@ -10009,7 +10008,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 906#       发表于 2021-11-11 19:35
 
 手动和手动离合器有区别吗？手动离合器不加难度收益
@@ -10018,7 +10017,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 907#       发表于 2021-11-11 19:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53508115&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-11 19:35</a>
@@ -10028,7 +10027,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 908#       发表于 2021-11-11 19:56
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53507767&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-11 19:17</a>
@@ -10040,14 +10039,14 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  nailuo1993  
+####  nailuo1993
 ##### 909#       发表于 2021-11-11 20:13
 
 后驱的车是不是没法开自动挡？ 低挡位直接打滑
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 910#       发表于 2021-11-11 20:26
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53508784&amp;ptid=2033303" target="_blank">nailuo1993 发表于 2021-11-11 20:13</a>
@@ -10059,7 +10058,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  tasuku  
+####  tasuku
 ##### 911#       发表于 2021-11-11 20:27
 
 今天hotfix了啥
@@ -10072,7 +10071,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 912#       发表于 2021-11-11 20:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53508784&amp;ptid=2033303" target="_blank">nailuo1993 发表于 2021-11-11 20:13</a>
@@ -10082,7 +10081,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 913#       发表于 2021-11-11 21:00
 
 感觉这一作的剧情模式和表演赛都比前作简单，不知道是不是错觉
@@ -10091,7 +10090,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 914#       发表于 2021-11-11 21:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53508115&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-11 19:35</a>
@@ -10100,7 +10099,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 915#       发表于 2021-11-11 21:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53509251&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-11 21:00</a>
@@ -10113,7 +10112,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 916#       发表于 2021-11-11 22:44
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">系列赛1都开始了然而还是没见着补丁，只能先单机自闭保平安
@@ -10122,14 +10121,14 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 917#       发表于 2021-11-11 23:08
 
 马拉松商店还是打不开啊
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 918#       发表于 2021-11-11 23:17
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">尼玛，对于本手残后备赛季已经挺难了，正式赛季更难还都是线上任务
@@ -10141,14 +10140,14 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 919#       发表于 2021-11-12 00:05
 
 问个问题，有没有什么vtuber玩地平线5啊（4或者其他赛车游戏老视频也可以）
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 920#       发表于 2021-11-12 00:22
 
 加了敞篷开关后手柄键位显然不够用了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -10157,7 +10156,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tab=BB08J2
 
 *****
 
-####  永远喜欢刘人语  
+####  永远喜欢刘人语
 ##### 921#       发表于 2021-11-12 00:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511235&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-12 00:05</a>
@@ -10168,14 +10167,14 @@ Quinn
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 922#       发表于 2021-11-12 00:36
 
 这BOT作弊得太过分了吧？你跟我说这开的是A级车？？
 
 *****
 
-####  紫水晶  
+####  紫水晶
 ##### 923#       发表于 2021-11-12 00:37
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ae86现在值钱吗？能卖多少？
@@ -10184,7 +10183,7 @@ Quinn
 
 *****
 
-####  amuro_h  
+####  amuro_h
 ##### 924#       发表于 2021-11-12 01:05
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53478852&amp;ptid=2033303" target="_blank">amuro_h 发表于 2021-11-9 17:39</a>
@@ -10194,7 +10193,7 @@ Quinn
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 925#       发表于 2021-11-12 01:20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这代狮子头怎么要名人堂资格啊，有人告知名人堂怎么进嘛。。。求救
@@ -10203,7 +10202,7 @@ Quinn
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 926#       发表于 2021-11-12 01:24
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511843&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-12 01:20</a>
@@ -10213,7 +10212,7 @@ Quinn
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 927#         楼主| 发表于 2021-11-12 01:25
 
 已经不是狮子头了
@@ -10222,7 +10221,7 @@ Quinn
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 928#       发表于 2021-11-12 01:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511865&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-12 01:24</a>
@@ -10231,7 +10230,7 @@ Quinn
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 929#       发表于 2021-11-12 01:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511871&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-12 01:25</a>
@@ -10242,7 +10241,7 @@ Quinn
 
 *****
 
-####  makece  
+####  makece
 ##### 930#       发表于 2021-11-12 01:34
 
 跟平均AI打都不一定能稳第一的到了线上公开赛居然还能一直前排<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -10253,7 +10252,7 @@ Quinn
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 931#       发表于 2021-11-12 01:39
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511925&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-12 01:34</a>
@@ -10269,14 +10268,14 @@ Quinn
 
 *****
 
-####  未散琴香  
+####  未散琴香
 ##### 932#       发表于 2021-11-12 02:00
 
 老手难度A级拉力赛的ai也太厉害了吧，速度这么夸张。。有什么a800的能用吗？
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 933#         楼主| 发表于 2021-11-12 02:43
 
 在线巡回赛赢了
@@ -10293,17 +10292,17 @@ Quinn
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 934#       发表于 2021-11-12 04:23
 
- 本帖最后由 pl0okm 于 2021-11-12 04:44 编辑 
+ 本帖最后由 pl0okm 于 2021-11-12 04:44 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512019&amp;ptid=2033303" target="_blank">未散琴香 发表于 2021-11-12 02:00</a>
 老手难度A级拉力赛的ai也太厉害了吧，速度这么夸张。。有什么a800的能用吗？ ...</blockquote>
 奖励喇叭那个？调校不好用就换一个拉力调校。那任务好像限制类型外还指定车辆，我整了辆800马自达不让用 用另一辆进就能选马自达了 要不就是多人合作限制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 935#       发表于 2021-11-12 04:46
 
 <blockquote>爱护动物抓根宝 发表于 2021-11-11 11:39
@@ -10314,7 +10313,7 @@ Quinn
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 936#       发表于 2021-11-12 05:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53445492&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-6 11:07</a>
@@ -10326,7 +10325,7 @@ xsx手柄的截图键可以用了，我也不知道是啥时候更新的。</blo
 
 *****
 
-####  Lisylfn  
+####  Lisylfn
 ##### 937#       发表于 2021-11-12 08:19
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53504922&amp;ptid=2033303" target="_blank">坂上斗真 发表于 2021-11-11 15:42</a>
@@ -10337,7 +10336,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 938#       发表于 2021-11-12 09:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53512019&amp;ptid=2033303" target="_blank">未散琴香 发表于 2021-11-12 02:00</a>
@@ -10349,7 +10348,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 939#       发表于 2021-11-12 09:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511522&amp;ptid=2033303" target="_blank">紫水晶 发表于 2021-11-12 00:37</a>
@@ -10359,7 +10358,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  lostz1991  
+####  lostz1991
 ##### 940#       发表于 2021-11-12 09:17
 
 地平线系列还是能循迹刹车的吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
@@ -10370,14 +10369,14 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 941#       发表于 2021-11-12 10:29
 
 眼镜蛇头原来ai难度是所向披靡，怪不得ai这么快，开了三把才赢
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 942#       发表于 2021-11-12 10:46
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">今天更新补丁了吗，从5号开始我就没连上线上游戏过
@@ -10386,14 +10385,14 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  janet_ddr  
+####  janet_ddr
 ##### 943#       发表于 2021-11-12 10:47
 
 昨晚登录游戏寻宝，看到一堆的玩家名字，心想这联机BUG总算是修好了。结果没几分钟就又碰到断连被停车的bug了，安心等更新吧。
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 944#       发表于 2021-11-12 10:48
 
 跑了眼镜蛇头后更加确信了没有最赖的AI只有更赖的玩家，真人发飙起来直接就转进成6人pvp，不知道怎么输给后面的红车也不知道怎么赢过前面的蓝车
@@ -10402,7 +10401,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  褪色的雪花  
+####  褪色的雪花
 ##### 945#       发表于 2021-11-12 11:15
 
 控制器未连接怎么破啊 ms版 双11入的T248用不了 麻了麻了
@@ -10413,7 +10412,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  makece  
+####  makece
 ##### 946#       发表于 2021-11-12 13:50
 
 从四玩到五还是不会漂移赛，用一样的调教看视频别人全程扭来扭曲拿分我只有弯道能拿点分。
@@ -10422,7 +10421,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 947#       发表于 2021-11-12 13:59
 
 我也不会玩漂移，挣扎了好久终于过了9w分了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -10433,7 +10432,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 948#       发表于 2021-11-12 14:29
 
 我倒是打线上没啥问题了，但是看别人还是有疯狂掉的。刚刚打的游乐场才打到第二轮对方就掉了两个，最后干脆变成了对方一个对我们四个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，于是大家集体划起了水
@@ -10442,7 +10441,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 949#       发表于 2021-11-12 15:04
 
 季节锦标赛，我很确定我跑的三场是对的，也有最后60第一的排名，结果直接判定没做，啥都没了，太离谱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -10451,10 +10450,10 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 950#       发表于 2021-11-12 16:07
 
- 本帖最后由 -SLSL- 于 2021-11-12 16:13 编辑 
+ 本帖最后由 -SLSL- 于 2021-11-12 16:13 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518256&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 15:04</a>
 
 季节锦标赛，我很确定我跑的三场是对的，也有最后60第一的排名，结果直接判定没做，啥都没了，太离谱了吧[f ...</blockquote>
@@ -10462,7 +10461,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 951#       发表于 2021-11-12 16:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53518256&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 15:04</a>
@@ -10471,7 +10470,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  阿卵真是牛逼  
+####  阿卵真是牛逼
 ##### 952#       发表于 2021-11-12 16:25
 
 这代怎么周常测速摄像头这种也要限定车型<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -10480,7 +10479,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  makece  
+####  makece
 ##### 953#       发表于 2021-11-12 16:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53517767&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 14:29</a>
@@ -10490,7 +10489,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 954#       发表于 2021-11-12 16:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519358&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-12 16:25</a>
@@ -10501,7 +10500,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  Karin11974  
+####  Karin11974
 ##### 955#       发表于 2021-11-12 16:50
 
 找车房宝物有什么好方法，以前能无人机随便飞，这代好像就一个照片模式还飞不了太远
@@ -10510,7 +10509,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  永远喜欢刘人语  
+####  永远喜欢刘人语
 ##### 956#       发表于 2021-11-12 16:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53511945&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2021-11-12 01:39</a>
@@ -10522,7 +10521,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 957#       发表于 2021-11-12 16:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519722&amp;ptid=2033303" target="_blank">Karin11974 发表于 2021-11-12 16:50</a>
@@ -10535,7 +10534,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 958#       发表于 2021-11-12 17:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519120&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-12 16:07</a>
@@ -10545,7 +10544,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 959#       发表于 2021-11-12 17:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519134&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-12 16:08</a>
@@ -10557,7 +10556,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  没钱买手办  
+####  没钱买手办
 ##### 960#       发表于 2021-11-12 17:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519730&amp;ptid=2033303" target="_blank">永远喜欢刘人语 发表于 2021-11-12 16:51</a>
@@ -10569,7 +10568,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 961#       发表于 2021-11-12 17:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519915&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-12 17:02</a>
@@ -10580,7 +10579,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 962#         楼主| 发表于 2021-11-12 17:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519730&amp;ptid=2033303" target="_blank">永远喜欢刘人语 发表于 2021-11-12 00:51</a>
@@ -10592,7 +10591,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 963#         楼主| 发表于 2021-11-12 17:42
 
 石锤掉线是因为Q盾，
@@ -10603,7 +10602,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  LMBS  
+####  LMBS
 ##### 964#       发表于 2021-11-12 17:52
 
 开发组是游戏发售就放假去了吗
@@ -10614,7 +10613,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 965#       发表于 2021-11-12 18:15
 
 这狮子头属实难顶，各种意外情况都有，排了五把才赢
@@ -10625,7 +10624,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  wuzhengkai  
+####  wuzhengkai
 ##### 966#       发表于 2021-11-12 18:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519425&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-12 16:29</a>
@@ -10637,7 +10636,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  阿卵真是牛逼  
+####  阿卵真是牛逼
 ##### 967#       发表于 2021-11-12 18:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53519607&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-12 16:42</a>
@@ -10648,7 +10647,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 968#         楼主| 发表于 2021-11-12 19:57
 
 话说不提示服务器不能用了
@@ -10657,7 +10656,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 969#         楼主| 发表于 2021-11-12 19:57
 
 周常限定品牌分类和等级上限
@@ -10672,7 +10671,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 970#       发表于 2021-11-12 21:01
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">我基本从不出现服务器不能用，但是还是过不了，
@@ -10683,14 +10682,14 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 971#       发表于 2021-11-12 22:45
 
 这傻逼吃鸡怎么还算赛季点数的……完全不想玩，开着破甲壳虫什么都捡不到就被淘汰了，还不知道是谁挑战的自己，对手都看不到
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 972#       发表于 2021-11-12 22:56
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524148&amp;ptid=2033303" target="_blank">虚无连斩 发表于 2021-11-12 22:45</a>
@@ -10699,7 +10698,7 @@ win + shift + 方向键，不过我没开hdr，不确定hdr还能不能生效…
 
 *****
 
-####  fanisy  
+####  fanisy
 ##### 973#       发表于 2021-11-12 22:57
 
 FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam上玩能不能拿到我的老玩家奖励？
@@ -10708,7 +10707,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 974#       发表于 2021-11-12 23:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524269&amp;ptid=2033303" target="_blank">fanisy 发表于 2021-11-12 22:57</a>
@@ -10720,7 +10719,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  阿卵真是牛逼  
+####  阿卵真是牛逼
 ##### 975#       发表于 2021-11-12 23:41
 
 这代这傻逼AI别是playground直接照搬FM7的吧，开S2直接被生吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -10729,7 +10728,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 976#       发表于 2021-11-13 00:00
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">表演赛的ai也太快了吧，几乎要尽全力而且不出错才能在终点前ai防水超过去
@@ -10738,7 +10737,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 977#       发表于 2021-11-13 00:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524879&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-13 00:00</a>
@@ -10748,7 +10747,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  makece  
+####  makece
 ##### 978#       发表于 2021-11-13 00:18
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53521030&amp;ptid=2033303" target="_blank">wuzhengkai 发表于 2021-11-12 18:27</a>
@@ -10758,7 +10757,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  makece  
+####  makece
 ##### 979#       发表于 2021-11-13 00:18
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">老手三连战我是真的跑不过，摆烂了
@@ -10767,7 +10766,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  fanisy  
+####  fanisy
 ##### 980#       发表于 2021-11-13 00:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524390&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-12 23:08</a>
@@ -10777,7 +10776,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 981#       发表于 2021-11-13 00:40
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">除了过关挑战都清了
@@ -10787,7 +10786,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 982#       发表于 2021-11-13 01:10
 
 目前跑S1 900的公路赛劲敌感觉Jag的XJR-15跟福特06年的GT都不错，前者极速拉满但是对走线的选择比较严格，后者更好操控但是极速没这么高
@@ -10796,28 +10795,28 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 983#       发表于 2021-11-13 01:51
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下周再更 乐
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 984#       发表于 2021-11-13 01:54
 
 吊，pg真就全员开香槟放假去了？
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 985#       发表于 2021-11-13 02:14
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的这地平线闯关活动每次就三四个人，根本过不去三关啊，有毒吧 四代人都没那么少啊
 
 *****
 
-####  liyropen  
+####  liyropen
 ##### 986#       发表于 2021-11-13 02:18
 
 今晚试着做过关任务的时候，人倒是够了，不过西海岸的飞跃环心任务，看不见环心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。一群人干飞了十分钟啥都没
@@ -10826,7 +10825,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 987#       发表于 2021-11-13 02:48
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53524696&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-12 23:41</a>
@@ -10836,14 +10835,14 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  伊斯坎达尔王  
+####  伊斯坎达尔王
 ##### 988#       发表于 2021-11-13 02:53
 
 最大问题是不会开普通车，所以完全不懂什么转弯倒车的操作逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 *****
 
-####  我又忘了用户名  
+####  我又忘了用户名
 ##### 989#       发表于 2021-11-13 03:45
 
 在线模式好便秘啊， 开比赛就那么短时间，等比赛和过场动画占了那么长的时间
@@ -10852,7 +10851,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 990#       发表于 2021-11-13 10:07
 
 一早报错进不去<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
@@ -10861,7 +10860,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 991#       发表于 2021-11-13 10:12
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53527112&amp;ptid=2033303" target="_blank">鹿斗典善 发表于 2021-11-13 10:07</a>
@@ -10873,7 +10872,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 992#       发表于 2021-11-13 10:29
 
 这个蛇头比赛还要看运气，排到新手进去扭来扭去和排到dalao直接吊打AI体验完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
@@ -10882,7 +10881,7 @@ FH4是在微软商店买的终极版，5代可以在steam上买么？ 在steam�
 
 *****
 
-####  littlezoo  
+####  littlezoo
 ##### 993#       发表于 2021-11-13 11:51
 
 5光追MOD有了，正常比赛的时候也可以开光追了！
@@ -10895,7 +10894,7 @@ B站地址：[https://www.bilibili.com/video/BV13Q4y1U7WA?from=search&amp;seid=1
 resetera讨论贴（里面有下载地址）
 [https://www.resetera.com/threads/forza-horizon-5-pc-in-game-ray-tracing-mod-rt-on-off-comparisons-performance-tests.513534/](https://www.resetera.com/threads/forza-horizon-5-pc-in-game-ray-tracing-mod-rt-on-off-comparisons-performance-tests.513534/)
 
-开启之后效果是这样的~~~:h18 
+开启之后效果是这样的~~~:h18
 
 包括轮胎尾翼反光镜之类的所有车身部件都可以正确反射了，甚至牌照灯，格栅网都可以反射出来，真实度进一步提高，值得一试。
 
@@ -10911,7 +10910,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 994#       发表于 2021-11-13 12:30
 
 对比隔壁2042突然感觉pg也算够意思了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">起码没连夜宣布社区自制赛事不获得技能点&amp;XP
@@ -10920,7 +10919,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 995#       发表于 2021-11-13 13:01
 
 这86太便宜了, 拍卖行出一辆就被秒买断, 根本抢不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -10929,7 +10928,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  agion117  
+####  agion117
 ##### 996#       发表于 2021-11-13 13:43
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么你们能玩，不是Xbox服务器炸了吗
@@ -10938,7 +10937,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 997#       发表于 2021-11-13 14:09
 
 这游戏真牛逼，我正常玩了一周现在开始闪退了……
@@ -10947,7 +10946,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 998#       发表于 2021-11-13 14:28
 
 <blockquote>Totokei 发表于 2021-11-12 10:00
@@ -10958,14 +10957,14 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  永远喜欢刘人语  
+####  永远喜欢刘人语
 ##### 999#       发表于 2021-11-13 14:30
 
 这游戏机翻挺下头的，就不能好好搞个汉化😓
 
 *****
 
-####  永远喜欢刘人语  
+####  永远喜欢刘人语
 ##### 1000#       发表于 2021-11-13 14:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53529529&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-13 14:09</a>
@@ -10976,7 +10975,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1001#       发表于 2021-11-13 14:54
 
 <blockquote>永远喜欢刘人语 发表于 2021-11-13 00:30
@@ -10985,7 +10984,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1002#       发表于 2021-11-13 14:56
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53529721&amp;ptid=2033303" target="_blank">永远喜欢刘人语 发表于 2021-11-13 14:30</a>
@@ -10996,7 +10995,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  difa  
+####  difa
 ##### 1003#       发表于 2021-11-13 15:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53525242&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-13 00:40</a>
@@ -11006,14 +11005,14 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1004#       发表于 2021-11-13 16:00
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥我玩了几个小时游戏会给我锁成83帧，前面还是110左右的 怪了 看温度也正常
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1005#       发表于 2021-11-13 16:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53530398&amp;ptid=2033303" target="_blank">difa 发表于 2021-11-13 15:51</a>
@@ -11024,7 +11023,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1006#         楼主| 发表于 2021-11-13 16:14
 
 过关主要看人数
@@ -11039,7 +11038,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 1007#       发表于 2021-11-13 17:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53530582&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-13 16:14</a>
@@ -11058,16 +11057,16 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1008#       发表于 2021-11-13 17:11
 
- 本帖最后由 nemunoki 于 2021-11-13 17:12 编辑 
+ 本帖最后由 nemunoki 于 2021-11-13 17:12 编辑
 
 不仅如此，4代开活动前是有全图通告鼓励所有人参与的，现在不开地图观察红箭头都没人注意到而且4一场给15分钟，现在缩到10分钟
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1009#         楼主| 发表于 2021-11-13 17:16
 
 他说这个不是重点，4代刚出来这个的时候也是暴多人，有时参与时间倒计时没结束都刷完三关了，到后面没人参加了半天刷不完。
@@ -11076,7 +11075,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  Finsty  
+####  Finsty
 ##### 1010#       发表于 2021-11-13 17:22
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">找不到在iOS上用xcloud的教程 很无助
@@ -11085,14 +11084,14 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  阿卵真是牛逼  
+####  阿卵真是牛逼
 ##### 1011#       发表于 2021-11-13 17:24
 
 现在嘉年华商店是就是进不去，还是我网有问题？ 每次都提示错误。
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 1012#       发表于 2021-11-13 17:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531185&amp;ptid=2033303" target="_blank">阿卵真是牛逼 发表于 2021-11-13 17:24</a>
@@ -11103,10 +11102,10 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1013#         楼主| 发表于 2021-11-13 18:16
 
- 本帖最后由 天神十三煞 于 2021-11-13 02:20 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-13 02:20 编辑
 
 [https://github.com/taojy123/KeymouseGo](https://github.com/taojy123/KeymouseGo)
 
@@ -11127,7 +11126,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  sanlow666  
+####  sanlow666
 ##### 1014#       发表于 2021-11-13 18:17
 
 自己跑加挂机都升到一转37级了，期间不知道抽了多少次超级抽奖终于把这辆豆腐神车搞到手
@@ -11144,7 +11143,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1015#       发表于 2021-11-13 18:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531827&amp;ptid=2033303" target="_blank">sanlow666 发表于 2021-11-13 18:17</a>
@@ -11157,7 +11156,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  DancingAndy  
+####  DancingAndy
 ##### 1016#       发表于 2021-11-13 19:18
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">纯萌新 这漂移区间13w咋飘出来的 撑死八万多了
@@ -11166,7 +11165,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1017#         楼主| 发表于 2021-11-13 20:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532562&amp;ptid=2033303" target="_blank">DancingAndy 发表于 2021-11-13 03:18</a>
@@ -11180,7 +11179,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1018#       发表于 2021-11-13 21:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53532562&amp;ptid=2033303" target="_blank">DancingAndy 发表于 2021-11-13 19:18</a>
@@ -11192,7 +11191,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1019#       发表于 2021-11-13 21:46
 
 这个危险标志限制复古跑车s1 900，我用A725的本田nsx-r飞了告诉我车辆错误？是必须s1 900吗，还是在这之下都可以阿
@@ -11201,10 +11200,10 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1020#       发表于 2021-11-13 22:04
 
- 本帖最后由 pl0okm 于 2021-11-13 22:16 编辑 
+ 本帖最后由 pl0okm 于 2021-11-13 22:16 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534263&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-13 21:46</a>
 
 这个危险标志限制复古跑车s1 900，我用A725的本田nsx-r飞了告诉我车辆错误？是必须s1 900吗，还是在这之下 ...</blockquote>
@@ -11218,7 +11217,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1021#       发表于 2021-11-13 22:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534541&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-13 22:04</a>
@@ -11230,7 +11229,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  LMBS  
+####  LMBS
 ##### 1022#       发表于 2021-11-13 22:20
 
 那个无聊的感染王冠夺旗要打完5场才给点数吗？
@@ -11239,7 +11238,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1023#       发表于 2021-11-13 23:10
 
 这劲敌赞赏给的车还挺好拿的, 感觉只要开出干净圈就能进5%
@@ -11248,14 +11247,14 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  UmarIbnLaAhad  
+####  UmarIbnLaAhad
 ##### 1024#       发表于 2021-11-13 23:21
 
 这赞赏系统什么傻逼判定，我七座房子全买了愣是只算买了六座<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">那个大亨奖赏可是给唯一一辆车的
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1025#       发表于 2021-11-13 23:24
 
 发泄压力那个锦标赛第一场强烈怀疑有bug，ai的车速极不科学各种裸超，重试了N次换了个调教拿supra勉强第二，然后后面两场都轻松第一<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -11264,7 +11263,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1026#       发表于 2021-11-13 23:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535464&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-13 23:24</a>
@@ -11274,7 +11273,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1027#       发表于 2021-11-13 23:36
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">终于搞定，运气好第三场技术分只要总计100W就算过，最后数了一下圈里一共8个人，虽然跑的时候明显没那么多但只是隐形了而已，实际都是在算分的
@@ -11284,7 +11283,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1028#       发表于 2021-11-13 23:49
 
 我用雪佛兰1953挂50圈好不稳啊，经常卡树，求你们的调教代码
@@ -11293,7 +11292,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1029#       发表于 2021-11-14 00:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535682&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-13 23:49</a>
@@ -11311,7 +11310,7 @@ resetera讨论贴（里面有下载地址）
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1030#       发表于 2021-11-14 00:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534760&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-13 22:20</a>
@@ -11323,7 +11322,7 @@ bo5 输赢都算完成
 
 *****
 
-####  masterkeaton  
+####  masterkeaton
 ##### 1031#       发表于 2021-11-14 00:44
 
 是不是挂图跑圈hotfix了
@@ -11332,17 +11331,17 @@ bo5 输赢都算完成
 
 *****
 
-####  夜留歌  
+####  夜留歌
 ##### 1032#       发表于 2021-11-14 00:49
 
 有人碰见过steam版点击开始游戏进不去游戏的情况吗？
 
 *****
 
-####  Stellar_Frost  
+####  Stellar_Frost
 ##### 1033#       发表于 2021-11-14 00:53
 
- 本帖最后由 Stellar_Frost 于 2021-11-14 00:56 编辑 
+ 本帖最后由 Stellar_Frost 于 2021-11-14 00:56 编辑
 
 你巨旗下的工作室是近年给我“奇观感”最强的，包括但不限于MSFS、doom和地平线
 同样，XGP在PC上的“优异表现”也是给我奇观感最强的
@@ -11352,7 +11351,7 @@ bo5 输赢都算完成
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1034#       发表于 2021-11-14 01:27
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狮子头坐牢了四轮总算过了，太惨了。
@@ -11361,7 +11360,7 @@ bo5 输赢都算完成
 
 *****
 
-####  liyropen  
+####  liyropen
 ##### 1035#       发表于 2021-11-14 01:44
 
 bug好多，今天的表演赛事任务有正常完成的吗
@@ -11372,7 +11371,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1036#       发表于 2021-11-14 07:28
 
 这arcade真是死了妈了，每次都是一个人在那刷然后这数值用屁股想的吧
@@ -11381,7 +11380,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1037#       发表于 2021-11-14 09:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53534760&amp;ptid=2033303" target="_blank">LMBS 发表于 2021-11-13 22:20</a>
@@ -11392,7 +11391,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1038#       发表于 2021-11-14 09:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535438&amp;ptid=2033303" target="_blank">UmarIbnLaAhad 发表于 2021-11-13 23:21</a>
@@ -11403,7 +11402,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1039#       发表于 2021-11-14 09:48
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53535464&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-13 23:24</a>
@@ -11414,7 +11413,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 1040#       发表于 2021-11-14 10:51
 
 我只想做个公开竞速赛任务，然而卡在读条已经五分钟了
@@ -11423,7 +11422,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1041#         楼主| 发表于 2021-11-14 11:04
 
 操场最神秘的就是
@@ -11442,16 +11441,16 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1042#       发表于 2021-11-14 11:33
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我好像车房宝库被吞了一个，地图上就只有十三个，我佛 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我好像车房宝库被吞了一个，地图上就只有十三个，我佛
 
 
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1043#       发表于 2021-11-14 12:05
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538351&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-13 21:33</a>
@@ -11461,7 +11460,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1044#       发表于 2021-11-14 12:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538601&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-14 12:05</a>
@@ -11472,7 +11471,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1045#       发表于 2021-11-14 12:22
 
 <blockquote>Vladimeow 发表于 2021-11-13 22:15
@@ -11481,7 +11480,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 1046#       发表于 2021-11-14 12:24
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53536404&amp;ptid=2033303" target="_blank">liyropen 发表于 2021-11-14 01:44</a>
@@ -11493,7 +11492,7 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1047#       发表于 2021-11-14 12:28
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538779&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-13 22:24</a>
@@ -11503,10 +11502,10 @@ bug好多，今天的表演赛事任务有正常完成的吗
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1048#       发表于 2021-11-14 12:32
 
- 本帖最后由 诶哟卧草 于 2021-11-14 12:38 编辑 
+ 本帖最后由 诶哟卧草 于 2021-11-14 12:38 编辑
 
 <[img src="https://i.loli.net/2021/11/14/vafVO3kdXWZRBys.png" referrerpolicy="no-referrer">
 
@@ -11516,7 +11515,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  monono  
+####  monono
 ##### 1049#       发表于 2021-11-14 12:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53531821&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-13 18:16</a>
@@ -11532,7 +11531,7 @@ https://github.com/taojy123/KeymouseGo
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 1050#       发表于 2021-11-14 12:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538865&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-14 12:32</a>
@@ -11546,7 +11545,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  DancingAndy  
+####  DancingAndy
 ##### 1051#       发表于 2021-11-14 12:53
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手动找车房宝物简直是噩梦
@@ -11556,7 +11555,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1052#       发表于 2021-11-14 13:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53539057&amp;ptid=2033303" target="_blank">DancingAndy 发表于 2021-11-14 12:53</a>
@@ -11566,7 +11565,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1053#       发表于 2021-11-14 13:11
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">薛定谔的3000经验牌，成就都跳了，NPC马屁也拍了，然而两个赞赏只解了一个，不管了随它去吧
@@ -11576,7 +11575,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  monono  
+####  monono
 ##### 1054#       发表于 2021-11-14 15:53
 
 这代找宝物比4代容易多了，除了右下雨林那里有个比较难找，其他都是开阔地，找个山顶高坡一看就能看见。不像英国那里全是树找的累死。
@@ -11585,7 +11584,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 1055#       发表于 2021-11-14 17:53
 
 这游戏分季还有涨水枯水的吗，我现在就一个湖心遗迹的广告牌没拿，看攻略别人的湖是干的直接开上去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -11594,7 +11593,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1056#       发表于 2021-11-14 18:06
 
 <blockquote>-SLSL- 发表于 2021-11-14 03:53
@@ -11603,7 +11602,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 1057#       发表于 2021-11-14 18:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53541882&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-14 18:06</a>
@@ -11617,7 +11616,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1058#         楼主| 发表于 2021-11-14 18:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53538865&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-13 20:32</a>
@@ -11631,7 +11630,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1059#       发表于 2021-11-14 18:30
 
 <blockquote>-SLSL- 发表于 2021-11-14 04:20
@@ -11642,7 +11641,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  真实之影  
+####  真实之影
 ##### 1060#       发表于 2021-11-14 18:32
 
 我怎么加不进俱乐部？我4就已经进了s1俱乐部，现在得退了重进？
@@ -11653,7 +11652,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 1061#       发表于 2021-11-14 18:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53542102&amp;ptid=2033303" target="_blank">真实之影 发表于 2021-11-14 18:32</a>
@@ -11666,7 +11665,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1062#       发表于 2021-11-14 19:06
 
 这翻译绝了 拓荒者门北极星奖章页面写的是在山涧门，标记上切回游戏变成巨兽之战门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 跑了两遍巨兽之战才发现
@@ -11677,7 +11676,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1063#       发表于 2021-11-14 20:16
 
 这ai有毛病吧，同一个比赛跑A800，用rx7跑3分02轻松甩开ai几秒钟，用86跑3分02被甩开几秒钟，反复跑了几次跑了个3分01+鱼雷第一的ai才赢，看不起86是吧
@@ -11686,7 +11685,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1064#       发表于 2021-11-14 20:45
 
 以前还黑gt的ai是轨道车，然后吹废渣的ai优秀，从这作ai越野的表现来看，这也跟轨道车没什么区别，跑越野都黏在行车线上跑grip，这就离谱
@@ -11695,14 +11694,14 @@ sb巨硬，强制退坑
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 1065#       发表于 2021-11-14 21:03
 
 有点纳闷，前作社区图里有那么多毒图吗，还是说这作出圈吸了GTA玩家？
 
 *****
 
-####  真实之影  
+####  真实之影
 ##### 1066#       发表于 2021-11-14 21:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53542284&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-14 18:55:44</a>
@@ -11714,7 +11713,7 @@ sb巨硬，强制退坑
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1067#       发表于 2021-11-14 22:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53544094&amp;ptid=2033303" target="_blank">AEmpire 发表于 2021-11-14 21:03</a>
@@ -11724,14 +11723,14 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1068#       发表于 2021-11-14 22:53
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">联网赛事断了几次之后不想再被傻逼操场PUA了，领不了奖励车就领不了吧，这傻逼网络是怎么有脸要玩家完成联网赛事才能领到奖励的
 
 *****
 
-####  miyamotoruri  
+####  miyamotoruri
 ##### 1069#       发表于 2021-11-14 22:53
 
 你们都刷到几百级了，这代升级好快啊
@@ -11740,7 +11739,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1070#       发表于 2021-11-14 23:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53543846&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-14 20:45</a>
@@ -11751,7 +11750,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 1071#       发表于 2021-11-14 23:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545373&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-14 22:53</a>
@@ -11761,7 +11760,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  lxx4869  
+####  lxx4869
 ##### 1072#       发表于 2021-11-14 23:56
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545496&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-14 23:04</a>
@@ -11773,7 +11772,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1073#       发表于 2021-11-15 00:18
 
 奖励的车是抽奖抽不出来的吗，不想做任务。
@@ -11783,7 +11782,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 1074#       发表于 2021-11-15 00:19
 
 这游戏AI感觉确实有点离谱，我现在普通公路赛基本吊打专家AI，但有个盘山公路无限连环弯的比赛要追上熟练AI都很不容易
@@ -11792,14 +11791,14 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  yahanintnedo  
+####  yahanintnedo
 ##### 1075#       发表于 2021-11-15 00:22
 
 这破游戏打开界面摁a无效这bug真是服了，特么每次都得重启
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1076#       发表于 2021-11-15 00:33
 
 开自动驾驶跑了个什么巨物，我发现这ai过弯都不减速的，刷刷的就过去了，还不会被甩出去，轮胎上像长了胶一样。我自动驾驶还得减速<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一减速就被撞。
@@ -11810,7 +11809,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 1077#       发表于 2021-11-15 00:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546153&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-15 00:18</a>
@@ -11820,7 +11819,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1078#       发表于 2021-11-15 00:49
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545990&amp;ptid=2033303" target="_blank">lxx4869 发表于 2021-11-14 23:56</a>
@@ -11831,7 +11830,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  misaki_d  
+####  misaki_d
 ##### 1079#       发表于 2021-11-15 02:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546335&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-15 00:49</a>
@@ -11841,7 +11840,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  NF17  
+####  NF17
 ##### 1080#       发表于 2021-11-15 02:24
 
 5代配车非常重要，公路车跑泥地或者越野基本都会吃瘪，反之亦然
@@ -11862,7 +11861,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1081#       发表于 2021-11-15 10:31
 
 档救回来了，话说xcloud刷车有教程么，必须得挂美国ip？
@@ -11873,7 +11872,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 1082#       发表于 2021-11-15 10:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53543390&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-14 20:16</a>
@@ -11886,21 +11885,21 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  aceralon  
+####  aceralon
 ##### 1083#       发表于 2021-11-15 11:14
 
 看来大家都觉得这代ai弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 1084#       发表于 2021-11-15 11:19
 
 刚开始玩，求教现在刷钱/刷点数的最优解是啥？
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1085#       发表于 2021-11-15 11:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549480&amp;ptid=2033303" target="_blank">aceralon 发表于 2021-11-15 11:14</a>
@@ -11911,7 +11910,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1086#       发表于 2021-11-15 11:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549563&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-15 11:19</a>
@@ -11922,7 +11921,7 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  yyyxxxrrr  
+####  yyyxxxrrr
 ##### 1087#       发表于 2021-11-15 11:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546160&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-15 00:19</a>
@@ -11935,14 +11934,14 @@ FH4的编辑器是游戏后期才加入的，估计吸引不了多少作者和�
 
 *****
 
-####  izumlily  
+####  izumlily
 ##### 1088#       发表于 2021-11-15 11:28
 
 v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺便问一下名人堂怎么进
 
 *****
 
-####  fmhy1234  
+####  fmhy1234
 ##### 1089#       发表于 2021-11-15 11:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549713&amp;ptid=2033303" target="_blank">izumlily 发表于 2021-11-15 11:28</a>
@@ -11952,7 +11951,7 @@ v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺�
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 1090#       发表于 2021-11-15 11:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549590&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-15 11:21</a>
@@ -11965,7 +11964,7 @@ v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺�
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 1091#       发表于 2021-11-15 12:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53546160&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-15 00:19</a>
@@ -11975,7 +11974,7 @@ v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺�
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1092#       发表于 2021-11-15 12:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53549815&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-15 11:35</a>
@@ -11986,28 +11985,28 @@ v10过了,确实不难.但为啥任务点要设在山上,爬山爬的好烦,顺�
 
 *****
 
-####  cscnake  
+####  cscnake
 ##### 1093#       发表于 2021-11-15 12:41
 
 我是不是遇到bug了？那个拍石像的剧情任务，最后两章就是不解锁。倒数第二章说是要解锁所有前面的章节，可是我都完成了。最后一张说要进入名人堂之后解锁，可我已经进了。。。
 
 *****
 
-####  Evilgurren  
+####  Evilgurren
 ##### 1094#       发表于 2021-11-15 12:42
 
 有什么赛场配什么车和调教的教程吗？每次都买系统建议的车感觉不得劲
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1095#       发表于 2021-11-15 12:53
 
 全三星就差drift了，已经不想做了。这周活动那个要死要活搞了9W分完成要求了，但是三星要13W。分值只看在地上蹭的距离？和速度以及是否连续蹭有关吗，虽然这次出界一点还能苟，但是掉头还是立刻失败
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 1096#       发表于 2021-11-15 12:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 12:53</a>
@@ -12016,10 +12015,10 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1097#       发表于 2021-11-15 12:57
 
- 本帖最后由 bad_alloc 于 2021-11-15 12:58 编辑 
+ 本帖最后由 bad_alloc 于 2021-11-15 12:58 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 12:53</a>
 
 全三星就差drift了，已经不想做了。这周活动那个要死要活搞了9W分完成要求了，但是三星要13W。分值只看在地 ...</blockquote>
@@ -12031,7 +12030,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  fantastical  
+####  fantastical
 ##### 1098#       发表于 2021-11-15 12:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 12:53</a>
@@ -12043,7 +12042,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  saberserker  
+####  saberserker
 ##### 1099#       发表于 2021-11-15 13:04
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 12:53</a>
@@ -12053,7 +12052,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 1100#       发表于 2021-11-15 13:05
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 12:53</a>
@@ -12065,10 +12064,10 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1101#         楼主| 发表于 2021-11-15 13:32
 
- 本帖最后由 天神十三煞 于 2021-11-14 21:34 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-14 21:34 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53550828&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-14 20:53</a>
 
 全三星就差drift了，已经不想做了。这周活动那个要死要活搞了9W分完成要求了，但是三星要13W。分值只看在地 ...</blockquote>
@@ -12088,10 +12087,10 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1102#       发表于 2021-11-15 13:46
 
- 本帖最后由 920619lqy 于 2021-11-14 23:47 编辑 
+ 本帖最后由 920619lqy 于 2021-11-14 23:47 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551398&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-14 23:32</a>
 
 漂移的基础我已经写在顶楼了
@@ -12102,7 +12101,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1103#         楼主| 发表于 2021-11-15 13:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551604&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-14 21:46</a>
@@ -12125,7 +12124,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 1104#       发表于 2021-11-15 14:13
 
 现在每周的arcade是不是完全不用指望了
@@ -12134,7 +12133,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  crosz  
+####  crosz
 ##### 1105#       发表于 2021-11-15 14:48
 
 有些漂移区域限定漂移车，这些车手上没有是只能买吗，普通车能改成漂移车吗
@@ -12143,10 +12142,10 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1106#       发表于 2021-11-15 14:56
 
- 本帖最后由 920619lqy 于 2021-11-15 01:04 编辑 
+ 本帖最后由 920619lqy 于 2021-11-15 01:04 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551721&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-14 23:53</a>
 
 连续的大弧肯定比来回摆高
@@ -12164,12 +12163,12 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1107#         楼主| 发表于 2021-11-15 15:21
 
- 本帖最后由 天神十三煞 于 2021-11-14 23:28 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-14 23:28 编辑
 
-[https://pan.baidu.com/s/1Uc66n8Lib0i-Kh1KVZV8Gg](https://pan.baidu.com/s/1Uc66n8Lib0i-Kh1KVZV8Gg) 
+[https://pan.baidu.com/s/1Uc66n8Lib0i-Kh1KVZV8Gg](https://pan.baidu.com/s/1Uc66n8Lib0i-Kh1KVZV8Gg)
 
 提取码：eny1
 
@@ -12183,7 +12182,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 1108#       发表于 2021-11-15 15:26
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53552536&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-15 14:56</a>
@@ -12194,7 +12193,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1109#       发表于 2021-11-15 15:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53552398&amp;ptid=2033303" target="_blank">crosz 发表于 2021-11-15 14:48</a>
@@ -12207,7 +12206,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1110#         楼主| 发表于 2021-11-15 15:40
 
 话说这作的缩放不知道是不是api引用不对
@@ -12222,7 +12221,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1111#       发表于 2021-11-15 15:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53545985&amp;ptid=2033303" target="_blank">AEmpire 发表于 2021-11-14 23:55</a>
@@ -12233,7 +12232,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 1112#       发表于 2021-11-15 16:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53427857&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-5 17:08</a>
@@ -12250,7 +12249,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  xsummer  
+####  xsummer
 ##### 1113#       发表于 2021-11-15 17:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53553628&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 16:08</a>
@@ -12262,7 +12261,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  xsummer  
+####  xsummer
 ##### 1114#       发表于 2021-11-15 17:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53553274&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-15 15:44</a>
@@ -12272,7 +12271,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 1115#       发表于 2021-11-15 17:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554689&amp;ptid=2033303" target="_blank">xsummer 发表于 2021-11-15 17:21</a>
@@ -12285,7 +12284,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 1116#       发表于 2021-11-15 18:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53554878&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 17:36</a>
@@ -12299,7 +12298,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 1117#       发表于 2021-11-15 18:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555498&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 18:30</a>
@@ -12310,7 +12309,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 1118#       发表于 2021-11-15 19:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555741&amp;ptid=2033303" target="_blank">ギナ 发表于 2021-11-15 18:57</a>
@@ -12324,7 +12323,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  ギナ  
+####  ギナ
 ##### 1119#       发表于 2021-11-15 19:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555768&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 19:00</a>
@@ -12337,7 +12336,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1120#       发表于 2021-11-15 19:47
 
 <blockquote>hzh3355 发表于 2021-11-15 05:00
@@ -12346,7 +12345,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  吃鸡南小鸟  
+####  吃鸡南小鸟
 ##### 1121#       发表于 2021-11-15 19:51
 
 加速器挂哪个服?想玩个活动赛战局都没几个人，以前fh4里战局几十个人
@@ -12357,7 +12356,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1122#       发表于 2021-11-15 20:09
 
 现在一个战局最多就12人，看不到人的时候原地换个车出来容易刷出人，能不能过街机纯看脸
@@ -12366,7 +12365,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1123#       发表于 2021-11-15 21:42
 
 <[img src="https://i.loli.net/2021/11/15/ZjIYrfMTshGHomg.png" referrerpolicy="no-referrer">
@@ -12377,7 +12376,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  wawaren  
+####  wawaren
 ##### 1124#       发表于 2021-11-15 22:09
 
 刚玩还只能门外汉难度，这几天居然就能随便过老手难度锦标赛了。学会的唯一的技巧就是过弯少点减速靠撞墙
@@ -12386,7 +12385,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1125#       发表于 2021-11-15 22:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53557666&amp;ptid=2033303" target="_blank">wawaren 发表于 2021-11-15 22:09</a>
@@ -12398,7 +12397,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  wawaren  
+####  wawaren
 ##### 1126#       发表于 2021-11-15 22:41
 
 <blockquote>诶哟卧草 发表于 2021-11-15 22:32
@@ -12407,7 +12406,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  evaqyqx  
+####  evaqyqx
 ##### 1127#       发表于 2021-11-15 22:54
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53555498&amp;ptid=2033303" target="_blank">hzh3355 发表于 2021-11-15 18:30</a>
@@ -12419,7 +12418,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1128#       发表于 2021-11-15 23:50
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">尝试把qq和q盾的进程关了然后在arcade里连续漂移了六分钟之后断线什么都没剩下
@@ -12428,14 +12427,14 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  miyamotoruri  
+####  miyamotoruri
 ##### 1129#       发表于 2021-11-16 00:22
 
 总觉得这代比4代容易推头，不知道是不是我好久没玩手残错觉……
 
 *****
 
-####  nailuo1993  
+####  nailuo1993
 ##### 1130#       发表于 2021-11-16 00:40
 
 自动挡把abs和tcr打开勉强能开后驱了，这代s1级的车后驱比四驱强了一档啊
@@ -12444,7 +12443,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1131#       发表于 2021-11-16 01:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53551954&amp;ptid=2033303" target="_blank">lotusaelise 发表于 2021-11-15 14:13</a>
@@ -12455,10 +12454,10 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1132#       发表于 2021-11-16 02:00
 
- 本帖最后由 920619lqy 于 2021-11-15 12:08 编辑 
+ 本帖最后由 920619lqy 于 2021-11-15 12:08 编辑
 
 刚才搞了一局showcase最后故意刹个车输掉给我算日常完成了
 
@@ -12466,7 +12465,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  mwj  
+####  mwj
 ##### 1133#       发表于 2021-11-16 02:04
 
 <blockquote>wawaren 发表于 2021-11-15 22:09
@@ -12475,17 +12474,17 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1134#       发表于 2021-11-16 02:24
 
 就离谱，原来那个做完整个月所有活动的成就可以在发售前一周做完，而判定条件实际上只是分数做到最大值就行，什么野鸡成就。
 
 *****
 
-####  crosz  
+####  crosz
 ##### 1135#       发表于 2021-11-16 03:00
 
- 本帖最后由 crosz 于 2021-11-16 03:01 编辑 
+ 本帖最后由 crosz 于 2021-11-16 03:01 编辑
 
 巨硬送了辆20周年涂装的918
 
@@ -12501,10 +12500,10 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1136#         楼主| 发表于 2021-11-16 05:25
 
- 本帖最后由 天神十三煞 于 2021-11-15 13:47 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-15 13:47 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559838&amp;ptid=2033303" target="_blank">crosz 发表于 2021-11-15 11:00</a>
 
 巨硬送了辆20周年涂装的918</blockquote>
@@ -12516,7 +12515,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1137#       发表于 2021-11-16 08:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559971&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-16 05:25</a>
@@ -12528,7 +12527,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1138#       发表于 2021-11-16 08:18
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">有个疑问，似乎这代FE车都是出场自带调教的？我看抽了个CLKGTR FE和第六元素FE都是998，而且原厂就好丝滑。。
@@ -12537,7 +12536,7 @@ formula drift里选个车硬蹭嘛，过弯前速度高一点可以多漂一会
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1139#       发表于 2021-11-16 08:56
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53560283&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-16 08:18</a>
@@ -12548,7 +12547,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1140#       发表于 2021-11-16 09:17
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53559707&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-16 02:00</a>
@@ -12562,7 +12561,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1141#       发表于 2021-11-16 09:50
 
 <blockquote>aaronluray 发表于 2021-11-15 19:17
@@ -12575,14 +12574,14 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 1142#       发表于 2021-11-16 10:10
 
 跑拉力赛，过一个弯时被ai挤了出去，然后这ai一点回到赛道的意思都没有，而是笔直地推着我往赛道外面跑了十万八千里，完全是蓄意同归于尽的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太可怕了
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 1143#       发表于 2021-11-16 10:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561501&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-16 10:10</a>
@@ -12592,7 +12591,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1144#       发表于 2021-11-16 10:16
 
 <blockquote>舌怪 发表于 2021-11-15 20:10
@@ -12601,7 +12600,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1145#       发表于 2021-11-16 10:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561583&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-16 10:16</a>
@@ -12614,7 +12613,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 1146#       发表于 2021-11-16 10:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53561586&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-16 10:16</a>
@@ -12626,7 +12625,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  hzh3355  
+####  hzh3355
 ##### 1147#       发表于 2021-11-16 11:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53558145&amp;ptid=2033303" target="_blank">evaqyqx 发表于 2021-11-15 22:54</a>
@@ -12642,7 +12641,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  Karin11974  
+####  Karin11974
 ##### 1148#       发表于 2021-11-16 13:27
 
 顿卡没试过，基本丝滑，3090 4k 特效拉满 msaa 8x 就森林和草丛这种场景会降到40-50帧吧，还有时速300以上跑圈时帧率也会下降一点，我现在是把渲染分辨率降一档到超高质量，然后msaa 4x，最低帧率都能保持70左右，而且狗牙不明显，感觉这一代本身狗牙特别多，真4k+msaa 2x也挺显眼，顶不住
@@ -12651,7 +12650,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  Karin11974  
+####  Karin11974
 ##### 1149#       发表于 2021-11-16 13:28
 
 还有尝试关了qq之后联机真没掉过了，服了
@@ -12662,10 +12661,10 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1150#         楼主| 发表于 2021-11-16 14:26
 
- 本帖最后由 天神十三煞 于 2021-11-15 22:31 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-15 22:31 编辑
 
 不容易，淘汰赛整了二十盘终于拿了第一，好出生点太重要了，
 
@@ -12675,7 +12674,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1151#       发表于 2021-11-16 14:29
 
 机场危险标志3星后那个2分钟内完成指定的2个危险标志的3星要怎么搞啊？我寻思山上也不能直接飞到机场吧。
@@ -12684,7 +12683,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  aceralon  
+####  aceralon
 ##### 1152#       发表于 2021-11-16 14:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53564936&amp;ptid=2033303" target="_blank">有钱多买小人 发表于 2021-11-16 14:29</a>
@@ -12696,7 +12695,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1153#       发表于 2021-11-16 15:58
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了
@@ -12705,7 +12704,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  samta  
+####  samta
 ##### 1154#       发表于 2021-11-16 16:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-16 15:58</a>
@@ -12717,10 +12716,10 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1155#         楼主| 发表于 2021-11-16 16:51
 
- 本帖最后由 天神十三煞 于 2021-11-16 00:52 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-16 00:52 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-15 23:58</a>
 
 没有什么比一觉睡醒发现50圈只跑了20多圈，车还卡在树那里更令人火大的了 ...</blockquote>
@@ -12736,14 +12735,14 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1156#       发表于 2021-11-16 17:48
 
 搜了一些meta车调教，感觉真的难开<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 1157#       发表于 2021-11-16 17:52
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PG香槟喝完了快回来更新补丁啊，又说是“希望”本周后段发布更新，植被刷新距离+SSAO道路有横纹+光影错误树木烟雾边缘马赛克+内存泄漏打2-3小时3090+3900X+32G+M2SSD都卡成傻子这几个问题搞得我玩得难受死了只想等更新（最草的是我全低画质1024在那窗口挂机50圈，到3-40圈的时候都能卡到只有20帧....）
@@ -12752,7 +12751,7 @@ fe本来都调教就跟原厂不同。玩家调校当然更强，换不换看个
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1158#       发表于 2021-11-16 18:40
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53567893&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 17:48</a>
@@ -12763,7 +12762,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1159#       发表于 2021-11-16 18:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568608&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-16 18:40</a>
@@ -12773,7 +12772,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1160#       发表于 2021-11-16 19:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53568743&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 18:52</a>
@@ -12784,7 +12783,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1161#       发表于 2021-11-16 19:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53566205&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-16 15:58</a>
@@ -12795,7 +12794,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  何然  
+####  何然
 ##### 1162#       发表于 2021-11-16 20:23
 
 黑楼无限的918是怎么领。。。
@@ -12804,7 +12803,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1163#       发表于 2021-11-16 20:37
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569816&amp;ptid=2033303" target="_blank">何然 发表于 2021-11-16 20:23</a>
@@ -12816,7 +12815,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  何然  
+####  何然
 ##### 1164#       发表于 2021-11-16 20:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53569976&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-16 20:37</a>
@@ -12828,7 +12827,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1165#       发表于 2021-11-16 21:00
 
 <blockquote>bad_alloc 发表于 2021-11-16 06:37
@@ -12839,7 +12838,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Kshatriya  
+####  Kshatriya
 ##### 1166#       发表于 2021-11-16 21:58
 
 后驱很重要的一点是不要学四驱那样降档全油门出弯，试试起步后不降到3档以下，应付好中低速弯之后剩下的就是享受狂暴后段了
@@ -12848,14 +12847,14 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 1167#       发表于 2021-11-16 22:32
 
 迪劳伦刷分太容易了。轻松300w了
 
 *****
 
-####  12481632  
+####  12481632
 ##### 1168#       发表于 2021-11-16 22:33
 
 沙滩车和野兽那个表演赛后半段的大车要怎么开啊，直接油门一点速度都没有，只能先倒车把速度提起来再换成油门才能维持一小段速度，有什么别的技巧么
@@ -12864,16 +12863,16 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1169#       发表于 2021-11-16 22:47
 
-醉了，开服前还能玩玩多人，开服了反而搜不到人了 
+醉了，开服前还能玩玩多人，开服了反而搜不到人了
 
 
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1170#       发表于 2021-11-16 23:08
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571125&amp;ptid=2033303" target="_blank">12481632 发表于 2021-11-16 22:33</a>
@@ -12885,7 +12884,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1171#       发表于 2021-11-16 23:11
 
 电动爹是lotus的最强吗？钱不够时心心念念，付款后索然无味
@@ -12910,7 +12909,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  makece  
+####  makece
 ##### 1172#       发表于 2021-11-16 23:14
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">700经典肌肉车 庞蒂克Trans AM手感太爽了，性能完全超同级车一大截
@@ -12919,20 +12918,20 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  hagenda4  
+####  hagenda4
 ##### 1173#       发表于 2021-11-16 23:47
 
 新人肝季节赛肝的头疼
 
 搞清楚规则用了2天
 
-打比赛用了2天 
+打比赛用了2天
 
 
 
 *****
 
-####  nailuo1993  
+####  nailuo1993
 ##### 1174#       发表于 2021-11-17 00:27
 
 这代s2 mt900s后驱也太强了，比s1车还好操控
@@ -12941,7 +12940,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1175#       发表于 2021-11-17 00:55
 
 不会漂移，季节赛漂移过不了。
@@ -12952,7 +12951,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1176#         楼主| 发表于 2021-11-17 01:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53572550&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-16 08:55</a>
@@ -12972,7 +12971,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1177#       发表于 2021-11-17 01:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53571512&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-16 23:11</a>
@@ -12983,7 +12982,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1178#       发表于 2021-11-17 06:48
 
 本田 nsx-r gt什么情况？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -12993,7 +12992,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Kshatriya  
+####  Kshatriya
 ##### 1179#       发表于 2021-11-17 07:09
 
 <blockquote>pl0okm 发表于 2021-11-17 06:48
@@ -13008,7 +13007,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Robakey  
+####  Robakey
 ##### 1180#       发表于 2021-11-17 08:19
 
 有没有好哥哥教一下这个赛季分如何简单的获取，赛车肄业生感觉老手ai实在是过于离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
@@ -13017,7 +13016,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1181#       发表于 2021-11-17 08:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53573743&amp;ptid=2033303" target="_blank">Robakey 发表于 2021-11-17 08:19</a>
@@ -13028,7 +13027,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1182#       发表于 2021-11-17 09:00
 
 <[img src="https://i.loli.net/2021/11/17/ev4Fj3ErRht6agA.png" referrerpolicy="no-referrer">
@@ -13041,7 +13040,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 1183#       发表于 2021-11-17 09:16
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574116&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-17 09:00</a>
@@ -13055,14 +13054,14 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 1184#       发表于 2021-11-17 09:24
 
 话说你们都能进那个地平线商店吗，我不管怎样都进不去，加速器和梯子都试过了
 
 *****
 
-####  lancasterliang  
+####  lancasterliang
 ##### 1185#       发表于 2021-11-17 09:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574405&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-17 09:24</a>
@@ -13072,7 +13071,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 1186#       发表于 2021-11-17 09:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574470&amp;ptid=2033303" target="_blank">lancasterliang 发表于 2021-11-17 09:29</a>
@@ -13083,7 +13082,7 @@ Meta车很多是手动或者手离，对驾驶员要求很高的，不过也有�
 
 *****
 
-####  GrayishWh0  
+####  GrayishWh0
 ##### 1187#       发表于 2021-11-17 10:09
 
 win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我补啊
@@ -13092,7 +13091,7 @@ win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我
 
 *****
 
-####  difa  
+####  difa
 ##### 1188#       发表于 2021-11-17 10:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53573743&amp;ptid=2033303" target="_blank">Robakey 发表于 2021-11-17 08:19</a>
@@ -13105,7 +13104,7 @@ win10上的那个forza hub还没加入地平线5？每周白嫖的2w5cr谁给我
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1189#       发表于 2021-11-17 10:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574997&amp;ptid=2033303" target="_blank">GrayishWh0 发表于 2021-11-17 10:09</a>
@@ -13114,7 +13113,7 @@ ms说了hub不会更新了，明年年中彻底关掉。
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 1190#       发表于 2021-11-17 10:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53574116&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-17 09:00</a>
@@ -13128,14 +13127,14 @@ ms说了hub不会更新了，明年年中彻底关掉。
 
 *****
 
-####  docklabor  
+####  docklabor
 ##### 1191#       发表于 2021-11-17 11:21
 
 我一直都打不开点数商店，其他啥都正常，简直日了狗，有人知道啥问题不
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 1192#       发表于 2021-11-17 11:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575995&amp;ptid=2033303" target="_blank">docklabor 发表于 2021-11-17 11:21</a>
@@ -13149,7 +13148,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  AliceMilky  
+####  AliceMilky
 ##### 1193#       发表于 2021-11-17 11:52
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575539&amp;ptid=2033303" target="_blank">AEmpire 发表于 2021-11-17 10:50</a>
@@ -13161,7 +13160,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  yyyxxxrrr  
+####  yyyxxxrrr
 ##### 1194#       发表于 2021-11-17 14:29
 
 原来地平线4里那几个每天给钱的产业怎么没有了，刚买了铜堡酒店就剩10000了，怕下周买不起做任务的车了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -13172,7 +13171,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 1195#       发表于 2021-11-17 14:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53578792&amp;ptid=2033303" target="_blank">yyyxxxrrr 发表于 2021-11-17 14:29</a>
@@ -13181,7 +13180,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1196#       发表于 2021-11-17 15:00
 
 <blockquote>yyyxxxrrr 发表于 2021-11-17 00:29
@@ -13192,7 +13191,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  yyyxxxrrr  
+####  yyyxxxrrr
 ##### 1197#       发表于 2021-11-17 15:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579293&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-17 15:00</a>
@@ -13205,7 +13204,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1198#       发表于 2021-11-17 15:44
 
 这次其实就是回归3不想在钱的问题上打扰玩家爽到，都没有4的爱丁堡那种烧钱的房子，基本就是说不要有负担随便跑不要担心会破产，其实是比较合理的设计。
@@ -13216,7 +13215,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  xsummer  
+####  xsummer
 ##### 1199#       发表于 2021-11-17 18:26
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53579760&amp;ptid=2033303" target="_blank">yyyxxxrrr 发表于 2021-11-17 15:30</a>
@@ -13231,7 +13230,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1200#       发表于 2021-11-17 22:05
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然在无限技能点的前提下supra比吉普更好，但是因为一般玩家名下已经一堆丰田车感觉不能自动化点技能啊
@@ -13240,7 +13239,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  Hanzong  
+####  Hanzong
 ##### 1201#       发表于 2021-11-17 22:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53585814&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-17 22:05</a>
@@ -13251,7 +13250,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1202#       发表于 2021-11-17 22:59
 
 刚才好不容易才凑够五六个人把过关赛过了，在场所有人都非常兴奋，实在是太不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -13260,7 +13259,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1203#       发表于 2021-11-17 23:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586202&amp;ptid=2033303" target="_blank">Hanzong 发表于 2021-11-17 22:30</a>
@@ -13271,7 +13270,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1204#       发表于 2021-11-18 00:00
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">被人发现授权页上加上了上汽和蔚来EP9的信息，搞不好上汽给了mini ev
@@ -13280,7 +13279,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1205#       发表于 2021-11-18 00:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53586750&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-17 22:59</a>
@@ -13291,7 +13290,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1206#       发表于 2021-11-18 00:35
 
 劲敌赛abcd5%以内也太难了，完全进不去。都开挂了吗。
@@ -13302,7 +13301,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  一生未立寸功  
+####  一生未立寸功
 ##### 1207#       发表于 2021-11-18 01:09
 
 谨慎做这周的super7挑战，奖励的捷豹是车房宝物的车，不能移除，不能赠礼，也不能拍卖
@@ -13313,7 +13312,7 @@ PG恐怕得修完bug才开
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1208#       发表于 2021-11-18 01:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588037&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-18 00:35</a>
@@ -13326,17 +13325,17 @@ PG恐怕得修完bug才开
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 1209#       发表于 2021-11-18 01:41
 
 游戏更新了？更了啥啊？
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 1210#       发表于 2021-11-18 02:09
 
- 本帖最后由 爱护动物抓根宝 于 2021-11-18 02:27 编辑 
+ 本帖最后由 爱护动物抓根宝 于 2021-11-18 02:27 编辑
 
 [https://support.forzamotorsport.net/hc/en-us/articles/4410593330579-FH5-Release-Notes-November-17th-2021-CU3-CU4-](https://support.forzamotorsport.net/hc/en-us/articles/4410593330579-FH5-Release-Notes-November-17th-2021-CU3-CU4-)
 
@@ -13348,21 +13347,21 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1211#       发表于 2021-11-18 02:31
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奔驰AMG重回封面
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 1212#       发表于 2021-11-18 03:02
 
 我的摇摇乐<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1213#         楼主| 发表于 2021-11-18 03:05
 
 有人试过街机了吗
@@ -13371,17 +13370,17 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 1214#       发表于 2021-11-18 03:55
 
 还好，已经靠摇摇乐把车基本收集全了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1215#         楼主| 发表于 2021-11-18 04:10
 
- 本帖最后由 天神十三煞 于 2021-11-17 12:17 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-17 12:17 编辑
 
 普通街机有人了
 
@@ -13401,14 +13400,14 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 1216#       发表于 2021-11-18 04:40
 
 这个佛拉松的IE啥时候下架啊，我算了下就算周挑战全做完了也不够点买<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1217#         楼主| 发表于 2021-11-18 04:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53589027&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-17 12:40</a>
@@ -13426,7 +13425,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  monono  
+####  monono
 ##### 1218#       发表于 2021-11-18 07:48
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">什么？没有摇摇乐了？
@@ -13435,7 +13434,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1219#       发表于 2021-11-18 08:04
 
 能否不更新离线继续刷摇摇乐。。
@@ -13444,7 +13443,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1220#       发表于 2021-11-18 08:10
 
 摇摇乐没了就算了，侦测自动驾驶是不能自动挂机了？？
@@ -13453,14 +13452,14 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1221#       发表于 2021-11-18 08:23
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">禁得好，早该管管了
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 1222#       发表于 2021-11-18 08:36
 
 挂机还是能刷熟练点的，只是收益砍了快一半.刷完后可以选择贵的8W换13技能点4次抽奖（1次普通一次超抽）的15年保时捷卡曼，或者便宜的2-3W马自达97年RX-7有2次普通抽奖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -13471,21 +13470,21 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1223#       发表于 2021-11-18 08:41
 
 摇摇乐果然没了啊，不过我还有快400次超级抽奖没抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，无所谓啦
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1224#       发表于 2021-11-18 08:44
 
 记得自己的第六元素FE跟雪佛兰FE在头几天就抽出来了，买车给的超级抽奖有小一百发这俩反而一个都没出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1225#       发表于 2021-11-18 08:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53588499&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 01:35</a>
@@ -13496,7 +13495,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1226#       发表于 2021-11-18 08:49
 
 顺便给俱乐部里的 Dihphys dalao送上掌声，用辅助全关的手离XJR15跑劲敌真的太强了
@@ -13505,7 +13504,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  dddyghr  
+####  dddyghr
 ##### 1227#       发表于 2021-11-18 09:57
 
 这次更新了机械能玩了吗 fh4都没串流带宽问题5直接玩不了
@@ -13514,14 +13513,14 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1228#       发表于 2021-11-18 10:25
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么巨硬这个沙雕游戏服务每次更新都要逼我把游戏重置一遍
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1229#       发表于 2021-11-18 10:39
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53590002&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-18 08:46</a>
@@ -13534,7 +13533,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1230#       发表于 2021-11-18 10:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53589027&amp;ptid=2033303" target="_blank">-SLSL- 发表于 2021-11-18 04:40</a>
@@ -13546,14 +13545,14 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 1231#       发表于 2021-11-18 10:54
 
 同问，现在forzathon商店的那辆apollo ie 18 2018值得换吗？
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1232#       发表于 2021-11-18 10:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592185&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-18 10:54</a>
@@ -13563,7 +13562,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 1233#       发表于 2021-11-18 10:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592215&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 10:55</a>
@@ -13573,7 +13572,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 1234#       发表于 2021-11-18 11:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53592027&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-18 10:46</a>
@@ -13585,7 +13584,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  monono  
+####  monono
 ##### 1235#       发表于 2021-11-18 12:04
 
 那么现在有新的摇摇乐的法子么？
@@ -13594,7 +13593,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 1236#       发表于 2021-11-18 13:49
 
 抽到辆多余的AE86想卖,结果发现挂不上高价<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
@@ -13603,7 +13602,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 1237#       发表于 2021-11-18 14:17
 
 感觉bug修了个寂寞，画面依然很屎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -13612,7 +13611,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  ozymandias  
+####  ozymandias
 ##### 1238#       发表于 2021-11-18 14:33
 
 这次补丁所向披靡车手过于所向披靡有没有改啊？
@@ -13621,14 +13620,14 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  Tjodrek  
+####  Tjodrek
 ##### 1239#       发表于 2021-11-18 16:25
 
 这绘制距离依然近得离谱，修了个寂寞，这工作室赶快找个坑把自己埋了
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 1240#       发表于 2021-11-18 16:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597369&amp;ptid=2033303" target="_blank">Tjodrek 发表于 2021-11-18 16:25</a>
@@ -13638,10 +13637,10 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  Tjodrek  
+####  Tjodrek
 ##### 1241#       发表于 2021-11-18 16:31
 
- 本帖最后由 Tjodrek 于 2021-11-18 16:33 编辑 
+ 本帖最后由 Tjodrek 于 2021-11-18 16:33 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53597394&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-18 16:27</a>
 
 我这的树叶和树干贴图好歹正常了</blockquote>
@@ -13652,7 +13651,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1242#       发表于 2021-11-18 16:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53593642&amp;ptid=2033303" target="_blank">monono 发表于 2021-11-18 12:04</a>
@@ -13666,7 +13665,7 @@ willys和牛魔王的摇摇乐perk直接被移除了
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 1243#       发表于 2021-11-18 19:16
 
 lod修复，起码在火山口不是一片糊了
@@ -13677,7 +13676,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1244#       发表于 2021-11-18 21:45
 
 最后还是没能在换季前做完哪怕一次arcade。恭喜操场喜提我第二个差评，FH4我已经差评过了
@@ -13686,7 +13685,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 1245#       发表于 2021-11-18 22:12
 
 无所谓了，收了500多辆车了，钱也花不完
@@ -13695,7 +13694,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1246#       发表于 2021-11-18 22:53
 
 这周的蛇头限定A800的现代超跑，这不就只有i8符合条件吗
@@ -13704,14 +13703,14 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1247#       发表于 2021-11-18 23:04
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩了两周外加点了几台supra也才500多个fp点，买了商店限定的本田就花完了，这一作也是只有去玩arcade才能获得比较多的fp点吗
 
 *****
 
-####  战狼PTSD  
+####  战狼PTSD
 ##### 1248#       发表于 2021-11-18 23:10
 
 特么的，今天忽悠朋友开XGP，准备上游戏来点截图，结果更新一直失败，按网上教程重置商城后游戏直接没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -13720,7 +13719,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1249#       发表于 2021-11-19 00:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53602630&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 22:53</a>
@@ -13731,7 +13730,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  innovation_s  
+####  innovation_s
 ##### 1250#       发表于 2021-11-19 00:07
 
 虽然这听起来很离谱，但是我加速修理我法那辆车房250的时候看都没看直接按下了A。当我反应过来修理费是4800w而不是48w时亚历克斯已经热情地开始向我介绍了
@@ -13741,7 +13740,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1251#       发表于 2021-11-19 00:30
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603281&amp;ptid=2033303" target="_blank">pl0okm 发表于 2021-11-19 00:02</a>
@@ -13754,7 +13753,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1252#       发表于 2021-11-19 01:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603319&amp;ptid=2033303" target="_blank">innovation_s 发表于 2021-11-19 00:07</a>
@@ -13763,7 +13762,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 1253#       发表于 2021-11-19 01:06
 
 很多小超的都能降，但只能按名字搜调教
@@ -13772,7 +13771,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1254#       发表于 2021-11-19 01:14
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">这周周常那个eventlab相关的任务四要干啥啊？偏偏这个没翻译。。
@@ -13781,7 +13780,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  meltykiss  
+####  meltykiss
 ##### 1255#       发表于 2021-11-19 01:21
 
 圆满,反正季节赛的一些弱智项目是不去打了
@@ -13798,7 +13797,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1256#       发表于 2021-11-19 02:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53591885&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-18 10:39</a>
@@ -13811,7 +13810,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1257#         楼主| 发表于 2021-11-19 08:12
 
 扣盾哪里修好了，开着还是照常掉线。
@@ -13824,7 +13823,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  Porsche  
+####  Porsche
 ##### 1258#       发表于 2021-11-19 08:14
 
 看了djs的宽体总结才发现
@@ -13834,14 +13833,14 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  xsummer  
+####  xsummer
 ##### 1259#       发表于 2021-11-19 10:21
 
 昨天断网把剩下的技能点刷吉普了，还不错抽奖补了20多辆车，钱也6000w了，慢慢季节赛补剩下的车好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 *****
 
-####  xsummer  
+####  xsummer
 ##### 1260#       发表于 2021-11-19 10:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53604754&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-19 08:12</a>
@@ -13859,7 +13858,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1261#       发表于 2021-11-19 10:52
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挑战赛再不快点改怕不是第一季就清不掉全任务了 都跑去点车技能了
@@ -13868,7 +13867,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 1262#       发表于 2021-11-19 16:54
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603859&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-19 01:14</a>
@@ -13882,7 +13881,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  Existinghomes  
+####  Existinghomes
 ##### 1263#       发表于 2021-11-19 18:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53603922&amp;ptid=2033303" target="_blank">meltykiss 发表于 2021-11-19 01:21</a>
@@ -13893,7 +13892,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1264#         楼主| 发表于 2021-11-19 19:28
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">名人堂挤进前五百了，我也是肝帝了。
@@ -13903,7 +13902,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  mcq_2  
+####  mcq_2
 ##### 1265#       发表于 2021-11-19 19:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613676&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-19 19:28</a>
@@ -13919,7 +13918,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1266#       发表于 2021-11-19 20:57
 
 对赞赏提不起劲，能把吃鸡以外的成就都做掉估计就是极限了
@@ -13934,7 +13933,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  12481632  
+####  12481632
 ##### 1267#       发表于 2021-11-19 21:40
 
 虽然已经快习惯了，但是这代的AI真的就是强行搞你，季节竞标赛第一场不管怎么开都是连前两名尾气都吃不到，然后后面两场又随便碾压
@@ -13943,7 +13942,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 1268#       发表于 2021-11-19 21:50
 
 完全不知道赞赏打上去有什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -13954,7 +13953,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  -SLSL-  
+####  -SLSL-
 ##### 1269#       发表于 2021-11-19 22:44
 
 自从发现ai都是贴线高速过弯之后对ai对战失去了兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -13963,7 +13962,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  liyropen  
+####  liyropen
 ##### 1270#       发表于 2021-11-19 23:09
 
 还是劲敌刷圈叹涂装好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -13972,7 +13971,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  铅笔  
+####  铅笔
 ##### 1271#       发表于 2021-11-19 23:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53614905&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-19 20:57</a>
@@ -13988,7 +13987,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 1272#       发表于 2021-11-19 23:29
 
 俱乐部才100多人 能排100不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -13997,7 +13996,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 1273#       发表于 2021-11-20 01:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53613676&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-19 19:28</a>
@@ -14013,7 +14012,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1274#       发表于 2021-11-20 01:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617937&amp;ptid=2033303" target="_blank">冀人燕南天 发表于 2021-11-20 01:06</a>
@@ -14024,7 +14023,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1275#       发表于 2021-11-20 02:31
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53617937&amp;ptid=2033303" target="_blank">冀人燕南天 发表于 2021-11-20 01:06</a>
@@ -14034,7 +14033,7 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1276#       发表于 2021-11-20 02:31
 
 跟朋友一起联机的时候发现一个bug，队员借用队长的车的时候匹配的AI是原厂评级，不知道可不可以用来刷所向披靡
@@ -14043,10 +14042,10 @@ lod修复，起码在火山口不是一片糊了
 
 *****
 
-####  悲叹的夜想曲  
+####  悲叹的夜想曲
 ##### 1277#       发表于 2021-11-20 10:04
 
- 本帖最后由 悲叹的夜想曲 于 2021-11-20 10:10 编辑 
+ 本帖最后由 悲叹的夜想曲 于 2021-11-20 10:10 编辑
 
 WIN10商店版的不能用PS5手柄吗，连上电脑没反应，但是断开手柄又显示没有控制器
 
@@ -14054,7 +14053,7 @@ WIN10商店版的不能用PS5手柄吗，连上电脑没反应，但是断开手
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 1278#       发表于 2021-11-20 12:38
 
 PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一个小时，啥心情都没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -14063,7 +14062,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1279#       发表于 2021-11-20 12:49
 
 今天连着两次线上比赛的时候越野车轮子卡地里了，一次是巡回赛，高台落地一边的轮子在地里，另一次是游乐场，上那个足球场中间的平台四个轮子都入地了，游乐场那个还没法重置车辆，只能直接退出比赛<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
@@ -14074,7 +14073,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1280#       发表于 2021-11-20 13:39
 
 越野赛太无聊了，这周的活动任务还整一堆越野，吐了
@@ -14085,7 +14084,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  半江瑟瑟半江红  
+####  半江瑟瑟半江红
 ##### 1281#       发表于 2021-11-20 14:50
 
 这一代车库宝物还得先送人一辆车才能拿到？
@@ -14094,7 +14093,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 1282#       发表于 2021-11-20 14:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53622520&amp;ptid=2033303" target="_blank">半江瑟瑟半江红 发表于 2021-11-20 14:50</a>
@@ -14107,7 +14106,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1283#       发表于 2021-11-20 19:49
 
 越野赛飞起来落地，怎么保持平衡，总是左右来回晃。
@@ -14118,7 +14117,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  Ne0  
+####  Ne0
 ##### 1284#       发表于 2021-11-20 21:18
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625974&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-20 19:49</a>
@@ -14132,7 +14131,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1285#       发表于 2021-11-20 21:33
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53625974&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-20 19:49</a>
@@ -14146,7 +14145,7 @@ PC版一直更新不了是啥情况，难得周末能开会车，折腾了快一
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1286#       发表于 2021-11-20 21:47
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">白天网络异常好把本周清单的arcade跟蛇头做了，各有各的上火
@@ -14159,7 +14158,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  凯尔  
+####  凯尔
 ##### 1287#       发表于 2021-11-20 22:14
 
 申请加入俱乐部两天了没通过，是4加了其他俱乐部影响吗？
@@ -14168,7 +14167,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  fantastical  
+####  fantastical
 ##### 1288#       发表于 2021-11-20 22:56
 
 这周蛇头虽然是电脑清一色i8，但是实际开下来感觉初始那辆Corvette C8 20用WET MORE GRIP调教比i8抓地力强多了
@@ -14179,7 +14178,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  monono  
+####  monono
 ##### 1289#       发表于 2021-11-21 02:10
 
 终于把车收集齐了
@@ -14188,7 +14187,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1290#       发表于 2021-11-21 06:41
 
 和完成一次街机的难度相比 ，其他周常的难度都不是事儿
@@ -14199,7 +14198,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1291#       发表于 2021-11-21 07:12
 
 蛇头倒是从没觉得难过，大概是队友都给力，上周自己跑挺好，这周用的白板I8纯划水也能垫底压四个BOT吃个总分胜利。arcade依然是什么人都组不到，建议删除这个活动，______都不玩。
@@ -14208,7 +14207,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1292#       发表于 2021-11-21 07:43
 
 今天又遇到了新的bug，大地图上看不到一起组队的队友，但是我俩都看得到其他人；还有游乐场跑一半其他人莫名其妙消失不见了但是进度还在蹭蹭往上涨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -14217,7 +14216,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1293#       发表于 2021-11-21 08:57
 
 终极刷技能点的方法出了，我去抽奖了。
@@ -14228,7 +14227,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1294#         楼主| 发表于 2021-11-21 10:40
 
 街机目前只有一种方法有最稳的过关率
@@ -14243,7 +14242,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1295#       发表于 2021-11-21 11:10
 
 还是要看主题 技术分应该只有混乱出 混乱另外2个是拓荒门和迷你任务 拓荒分数要求不高主要看迷你任务耗时
@@ -14254,7 +14253,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1296#       发表于 2021-11-21 12:31
 
 唯一一次完成的街机是漂移，看着房间里十几个大哥一起拉烟，非常感动<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -14263,14 +14262,14 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1297#       发表于 2021-11-21 13:59
 
 碰到一把比较有意思的，在歌利亚起点南北同时刷出2个红圈，北面是漂移南面是空中，在场的9个人很默契地选择了漂移然后8分钟齐刷刷就清场了
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1298#       发表于 2021-11-21 13:59
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">arcade人少真的没法玩，下午跑了两局漂移，第一局只有我和另一位大哥，拼了老命跑只过得去第一关
@@ -14283,7 +14282,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1299#       发表于 2021-11-21 17:08
 
 [https://discord.gg/forza](https://discord.gg/forza)
@@ -14291,7 +14290,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 1300#       发表于 2021-11-21 17:17
 
 不打arcade的话怎么刷马拉松点数？刷技术点点车么
@@ -14300,7 +14299,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1301#       发表于 2021-11-21 19:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53638004&amp;ptid=2033303" target="_blank">lotusaelise 发表于 2021-11-21 17:17</a>
@@ -14313,14 +14312,14 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1302#       发表于 2021-11-21 20:45
 
 这周的大众甲壳虫拿50万技术点怎么刷快一点，昨天拼了老命刷了499000多分，然后今天准备把剩下几百分打完，结果一上线就直接bug了，所有奖励车都显示抽奖。再重开一次，直接把分数给我清零了。心态直接爆炸了。
 
 *****
 
-####  fantastical  
+####  fantastical
 ##### 1303#       发表于 2021-11-21 20:49
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641002&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 20:45</a>
@@ -14330,7 +14329,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  difa  
+####  difa
 ##### 1304#       发表于 2021-11-21 20:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641002&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 20:45</a>
@@ -14340,14 +14339,14 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  makece  
+####  makece
 ##### 1305#       发表于 2021-11-21 20:52
 
-老当益壮的经典赛车是什么车 
+老当益壮的经典赛车是什么车
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1306#       发表于 2021-11-21 20:55
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641081&amp;ptid=2033303" target="_blank">makece 发表于 2021-11-21 20:52</a>
@@ -14358,7 +14357,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1307#       发表于 2021-11-21 21:11
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641055&amp;ptid=2033303" target="_blank">fantastical 发表于 2021-11-21 20:49</a>
@@ -14368,7 +14367,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1308#       发表于 2021-11-21 21:20
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641308&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 21:11</a>
@@ -14379,7 +14378,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1309#       发表于 2021-11-21 21:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53641308&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-21 21:11</a>
@@ -14391,7 +14390,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1310#       发表于 2021-11-21 22:14
 
 我还记得当初E3发布时候专门提到同时在线人数更多，结果现在同时在线人数还不如上代，连本机车流量都变少了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
@@ -14400,10 +14399,10 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1311#         楼主| 发表于 2021-11-21 22:47
 
- 本帖最后由 天神十三煞 于 2021-11-21 06:49 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-21 06:49 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642215&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-21 06:14</a>
 
 我还记得当初E3发布时候专门提到同时在线人数更多，结果现在同时在线人数还不如上代，连本机车流量都变少了 ...</blockquote>
@@ -14419,7 +14418,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 1312#       发表于 2021-11-21 23:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642215&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-21 22:14</a>
@@ -14429,7 +14428,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1313#       发表于 2021-11-21 23:19
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642635&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-21 22:47</a>
@@ -14443,7 +14442,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1314#         楼主| 发表于 2021-11-21 23:31
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643012&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-21 07:19</a>
@@ -14459,7 +14458,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1315#       发表于 2021-11-21 23:44
 
 这代地图很明显是分区域的，自己能看到的在线玩家就只有所在区域的那一块，超过边界就会消失，而且最多就12人
@@ -14470,7 +14469,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 1316#       发表于 2021-11-21 23:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642635&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-21 22:47</a>
@@ -14482,7 +14481,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1317#       发表于 2021-11-22 00:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53642635&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-21 22:47</a>
@@ -14493,7 +14492,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  悲叹的夜想曲  
+####  悲叹的夜想曲
 ##### 1318#       发表于 2021-11-22 00:30
 
 网络有什么好点的解决办法吗，我到现在都还没完整的进行过一次多人任务，和多人有关的赞赏都没法做
@@ -14502,7 +14501,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1319#       发表于 2021-11-22 00:41
 
 这网络问题**操蛋，我跑了6回大雨倾盆第一都没完成。
@@ -14511,7 +14510,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  saberserker  
+####  saberserker
 ##### 1320#       发表于 2021-11-22 00:54
 
 感觉现在网络比刚开始稳定多了，直连一样能玩，拍卖行和涂装也都能正常刷出来，4代不开加速器连个线上都费劲
@@ -14520,7 +14519,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1321#       发表于 2021-11-22 02:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643730&amp;ptid=2033303" target="_blank">悲叹的夜想曲 发表于 2021-11-22 00:30</a>
@@ -14544,7 +14543,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1322#       发表于 2021-11-22 08:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53643864&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-22 00:41</a>
@@ -14557,7 +14556,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1323#       发表于 2021-11-22 08:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645157&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-22 08:21</a>
@@ -14571,7 +14570,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  Robakey  
+####  Robakey
 ##### 1324#       发表于 2021-11-22 09:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53575383&amp;ptid=2033303" target="_blank">difa 发表于 2021-11-17 10:38</a>
@@ -14583,7 +14582,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1325#       发表于 2021-11-22 09:15
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">之后更新的车辆被解包了，感觉都挺微妙的最近年份的车比较少，都是现有车辆的不同版本为主
@@ -14594,7 +14593,7 @@ arcade这什么傻X难度，第一关还是很正常的刷技术分，第二关�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1326#       发表于 2021-11-22 10:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645578&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-22 09:15</a>
@@ -14608,7 +14607,7 @@ lancia跟alfa有戏吗
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1327#       发表于 2021-11-22 10:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646164&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-22 10:00</a>
@@ -14622,7 +14621,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  fender0402  
+####  fender0402
 ##### 1328#       发表于 2021-11-22 11:00
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">借楼问下，目前爽玩的话要什么设备比较划算？
@@ -14631,7 +14630,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  江宁老实人  
+####  江宁老实人
 ##### 1329#       发表于 2021-11-22 12:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53647039&amp;ptid=2033303" target="_blank">fender0402 发表于 2021-11-22 11:00</a>
@@ -14643,7 +14642,7 @@ xsx手柄已经很爽了，方向盘上手需要适应一阵
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1330#       发表于 2021-11-22 13:57
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53645578&amp;ptid=2033303" target="_blank">Totokei 发表于 2021-11-22 09:15</a>
@@ -14657,7 +14656,7 @@ xsx手柄已经很爽了，方向盘上手需要适应一阵
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 1331#       发表于 2021-11-22 14:48
 
 原来墨西哥小曲sobre las olas和carmen是同一作者 怪不得听起来那么像
@@ -14666,7 +14665,7 @@ xsx手柄已经很爽了，方向盘上手需要适应一阵
 
 *****
 
-####  没钱买手办  
+####  没钱买手办
 ##### 1332#       发表于 2021-11-22 15:15
 
 方向盘玩要把转向从标准调到拟真，会舒服不少
@@ -14675,7 +14674,7 @@ xsx手柄已经很爽了，方向盘上手需要适应一阵
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1333#         楼主| 发表于 2021-11-22 16:54
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53646164&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-21 18:00</a>
@@ -14689,7 +14688,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1334#       发表于 2021-11-22 16:57
 
 <blockquote>qzy741147 发表于 2021-11-21 23:57
@@ -14700,7 +14699,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1335#       发表于 2021-11-22 17:27
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652322&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-22 16:57</a>
@@ -14710,7 +14709,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1336#       发表于 2021-11-22 17:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652822&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-22 03:27</a>
@@ -14722,7 +14721,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1337#       发表于 2021-11-22 18:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53652322&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-22 16:57</a>
@@ -14731,10 +14730,10 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1338#         楼主| 发表于 2021-11-22 18:18
 
- 本帖最后由 天神十三煞 于 2021-11-22 02:23 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-22 02:23 编辑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">换皮过分了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换皮换肉不换骨
@@ -14755,7 +14754,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1339#       发表于 2021-11-23 00:27
 
 不过下一代真的要拓宽一点新玩法了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -14764,10 +14763,10 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 1340#       发表于 2021-11-23 00:42
 
- 本帖最后由 萱时令 于 2021-11-23 00:49 编辑 
+ 本帖最后由 萱时令 于 2021-11-23 00:49 编辑
 
 地平线终究还是外传 下一作还要等游乐场先搞明白t10的新引擎
 声浪实录也是搭系列发展的光 我觉得5的开发过程中一定录了很多5中不会有的车的声音 给数字系列顺便准备
@@ -14777,7 +14776,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1341#       发表于 2021-11-23 08:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53658609&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-23 00:42</a>
@@ -14789,7 +14788,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1342#       发表于 2021-11-23 11:31
 
 晚上跑了三个钟头，把所有的道路都探索了。
@@ -14801,10 +14800,10 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1343#       发表于 2021-11-23 11:57
 
- 本帖最后由 bad_alloc 于 2021-11-23 11:58 编辑 
+ 本帖最后由 bad_alloc 于 2021-11-23 11:58 编辑
 
 推荐一个调校师Ebisu P1，改车风格比较符合我的个人喜好
 
@@ -14816,7 +14815,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1344#       发表于 2021-11-23 12:43
 
 感觉跑环道还是改极端抓地比较快，昨天跑花园环道受ebisu pi改的97 civic启发，把自己的86也改了空动套件跟热熔胎，也跑到了59.1秒
@@ -14827,7 +14826,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  midearth  
+####  midearth
 ##### 1345#       发表于 2021-11-23 14:03
 
 玩了半天才发现路上跑的是真人
@@ -14836,7 +14835,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  feelmydick  
+####  feelmydick
 ##### 1346#       发表于 2021-11-23 16:47
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">大量痛车作者被封号了包括MrYuShaw大佬，涂装也被下架，无语子
@@ -14851,7 +14850,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  monono  
+####  monono
 ##### 1347#       发表于 2021-11-23 17:01
 
 为啥被封？
@@ -14860,7 +14859,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  qianoooo  
+####  qianoooo
 ##### 1348#       发表于 2021-11-23 17:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53667149&amp;ptid=2033303" target="_blank">monono 发表于 2021-11-23 17:01</a>
@@ -14871,7 +14870,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1349#       发表于 2021-11-23 17:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53666930&amp;ptid=2033303" target="_blank">feelmydick 发表于 2021-11-23 16:47</a>
@@ -14883,7 +14882,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1350#       发表于 2021-11-23 17:38
 
 傻逼PG
@@ -14892,7 +14891,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1351#       发表于 2021-11-23 17:43
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">刚刚看见一个截图说有人找不到移除涂装的按钮然后就按了那个举报作者并移除造型的按钮
@@ -14901,7 +14900,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1352#       发表于 2021-11-23 17:54
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">那个举报作者并移除造型的选项就在选车菜单最下面，一不小心手欠都能按到，这设计可以给个迷惑大赏了
@@ -14910,7 +14909,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1353#       发表于 2021-11-23 18:22
 
 昨天我也是，删除gtr的时候就差点点到了。
@@ -14921,7 +14920,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 1354#       发表于 2021-11-23 19:29
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这代美利坚V8好吵啊，拉高转之后全是破音，耳朵被按着猛干的感觉
@@ -14930,7 +14929,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1355#       发表于 2021-11-23 23:26
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次日常又出问题了。目前还没看到有人试出来到底怎样才算过的
@@ -14939,7 +14938,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1356#       发表于 2021-11-24 00:04
 
 这代有各级别类别推荐车型了吗？
@@ -14948,7 +14947,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1357#       发表于 2021-11-24 03:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53672067&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-23 09:26</a>
@@ -14960,7 +14959,7 @@ lancia跟alfa有戏吗</blockquote>
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1358#       发表于 2021-11-24 09:00
 
 https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tdsourcetag=s_pcqq_send_grpfile&amp;ADUIN=350549144&amp;ADSESSION=1636565045&amp;ADTAG=CLIENT.QQ.5839_.0&amp;ADPUBNO=27173&amp;tab=20lz8t
@@ -14973,7 +14972,7 @@ nga看到的
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1359#       发表于 2021-11-24 09:41
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53673940&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-24 03:59</a>
@@ -14985,7 +14984,7 @@ nga看到的
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 1360#       发表于 2021-11-24 10:32
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53673940&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-24 03:59</a>
@@ -14996,7 +14995,7 @@ nga看到的
 
 *****
 
-####  大哀之君  
+####  大哀之君
 ##### 1361#       发表于 2021-11-24 11:28
 
 <img src="https://img.saraba1st.com/forum/202111/24/112219xk6efsfvxae0akvy.jpg" referrerpolicy="no-referrer">
@@ -15045,7 +15044,7 @@ PG你恶事做绝<img src="https://static.saraba1st.com/image/smiley/face2017/19
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1362#       发表于 2021-11-24 11:55
 
 <blockquote>aaronluray 发表于 2021-11-23 19:41
@@ -15056,10 +15055,10 @@ PG你恶事做绝<img src="https://static.saraba1st.com/image/smiley/face2017/19
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1363#         楼主| 发表于 2021-11-24 12:17
 
- 本帖最后由 天神十三煞 于 2021-11-23 20:20 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-23 20:20 编辑
 
 我猜这些活动参数配置应该是分开的人弄的
 
@@ -15077,7 +15076,7 @@ PG你恶事做绝<img src="https://static.saraba1st.com/image/smiley/face2017/19
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1364#       发表于 2021-11-24 12:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677056&amp;ptid=2033303" target="_blank">大哀之君 发表于 2021-11-24 11:28</a>
@@ -15089,14 +15088,14 @@ PG你恶事做绝</blockquote>
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 1365#       发表于 2021-11-24 13:05
 
 这封号也太打击社区创作热情了，没痛车开我玩NM<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">PG的社区运营是猪吗
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1366#       发表于 2021-11-24 13:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677481&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-24 11:55</a>
@@ -15106,7 +15105,7 @@ PG你恶事做绝</blockquote>
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1367#       发表于 2021-11-24 13:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677481&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-24 11:55</a>
@@ -15116,7 +15115,7 @@ PG你恶事做绝</blockquote>
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1368#       发表于 2021-11-24 13:23
 
 又攒了快1000点了现在用来超级抽奖的车是哪辆？当然要方便用脚本的那种
@@ -15127,7 +15126,7 @@ PG你恶事做绝</blockquote>
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1369#       发表于 2021-11-24 13:37
 
 <blockquote>nemunoki 发表于 2021-11-23 23:13
@@ -15138,14 +15137,14 @@ PG你恶事做绝</blockquote>
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 1370#       发表于 2021-11-24 13:48
 
 还有很多赞赏完成不了啊，这bug修得太慢了吧
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 1371#       发表于 2021-11-24 13:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53678641&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-24 13:23</a>
@@ -15163,7 +15162,7 @@ PG你恶事做绝</blockquote>
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1372#       发表于 2021-11-24 14:01
 
 虽然我不怎么痛车但还是支持各位去闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -15176,7 +15175,7 @@ nga说是跟女拳有关，真假不知
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1373#       发表于 2021-11-24 14:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679004&amp;ptid=2033303" target="_blank">wzy200912345 发表于 2021-11-24 13:50</a>
@@ -15191,7 +15190,7 @@ nga说是跟女拳有关，真假不知
 
 *****
 
-####  大哀之君  
+####  大哀之君
 ##### 1374#       发表于 2021-11-24 15:11
 
 <img src="https://p.sda1.dev/3/411c8ca06cc6fa2d4bdf2ebd312333af/IMG_CMP_68335500.jpeg" referrerpolicy="no-referrer">
@@ -15202,7 +15201,7 @@ nga说是跟女拳有关，真假不知
 
 *****
 
-####  老黑305  
+####  老黑305
 ##### 1375#       发表于 2021-11-24 16:47
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这移除按钮也是属实nt了
@@ -15210,7 +15209,7 @@ nga说是跟女拳有关，真假不知
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1376#       发表于 2021-11-24 16:57
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我之前刷完小吉普删的时候也有好几次差点就点到这个选项上面去了，pg把选项塞这里完全就是脑子有问题
@@ -15219,7 +15218,7 @@ nga说是跟女拳有关，真假不知
 
 *****
 
-####  liva  
+####  liva
 ##### 1377#       发表于 2021-11-24 17:17
 
 说你们**
@@ -15236,7 +15235,7 @@ nga说是跟女拳有关，真假不知
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1378#       发表于 2021-11-24 17:50
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53674750&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-24 09:00</a>
@@ -15245,7 +15244,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tdsourcetag=s_pcqq_send_grpfile&amp;
 
 *****
 
-####  大哀之君  
+####  大哀之君
 ##### 1379#       发表于 2021-11-24 18:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53681705&amp;ptid=2033303" target="_blank">老黑305 发表于 2021-11-24 16:47</a>
@@ -15259,7 +15258,7 @@ https://docs.qq.com/sheet/DVGh2RE1Gd3VNa0pQ?tdsourcetag=s_pcqq_send_grpfile&amp;
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1380#       发表于 2021-11-24 18:15
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53679484&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-24 14:22</a>
@@ -15274,7 +15273,7 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1381#       发表于 2021-11-24 19:28
 
 把可见的xp牌子都撞碎了。其实探索路段适合边打比赛边解锁，提前把所有路通了，再玩比赛就有点没意思。
@@ -15283,7 +15282,7 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  midearth  
+####  midearth
 ##### 1382#       发表于 2021-11-24 20:13
 
 赛车游戏也能吃鸡我是没想到的
@@ -15292,17 +15291,17 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  lotusaelise  
+####  lotusaelise
 ##### 1383#       发表于 2021-11-24 23:23
 
 看来还是网络问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 在看不到队友的情况下虚空涨分完成了第一次arcade
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 1384#       发表于 2021-11-24 23:37
 
- 本帖最后由 风流庵TypeC 于 2021-11-24 23:39 编辑 
+ 本帖最后由 风流庵TypeC 于 2021-11-24 23:39 编辑
 
 这给我刷新到人堆里是不是就可以变成玩GTA了
 
@@ -15318,14 +15317,14 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1385#       发表于 2021-11-24 23:45
 
 日常的完成一次探险到底要做什么任务，主线的探险做了个巴哈探险，没算我日常完成
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1386#       发表于 2021-11-24 23:54
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53687037&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-24 23:45</a>
@@ -15337,7 +15336,7 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1387#       发表于 2021-11-25 00:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53687119&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-24 23:54</a>
@@ -15348,7 +15347,7 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  liyropen  
+####  liyropen
 ##### 1388#       发表于 2021-11-25 02:50
 
 4代前期也这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
@@ -15359,7 +15358,7 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1389#       发表于 2021-11-25 06:44
 
 有被笑到，今天的日常果然是必须要完成没有完成过的故事模式章节才算数。幸好我test driver都还没做
@@ -15368,7 +15367,7 @@ B站有人做脚本的，你搜搜。
 
 *****
 
-####  Porsche  
+####  Porsche
 ##### 1390#       发表于 2021-11-25 07:39
 
 看来一些从FH5入坑的新同学不知道FH4时有多少痛车大佬被莫名其妙的封号和被别人作弊解锁复制涂装逼走的
@@ -15378,7 +15377,7 @@ FH5重现这些事只能说明t10压根就没改
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1391#       发表于 2021-11-25 07:58
 
 看了一下steam商店页面，运营成这个样子好评率还能有81%，只能说消费者还是太宽容了。
@@ -15387,7 +15386,7 @@ FH5重现这些事只能说明t10压根就没改
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1392#       发表于 2021-11-25 08:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53687119&amp;ptid=2033303" target="_blank">aaronluray 发表于 2021-11-24 23:54</a>
@@ -15399,7 +15398,7 @@ FH5重现这些事只能说明t10压根就没改
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1393#       发表于 2021-11-25 08:31
 
 <blockquote>920619lqy 发表于 2021-11-25 07:58
@@ -15408,7 +15407,7 @@ FH5重现这些事只能说明t10压根就没改
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1394#       发表于 2021-11-25 08:40
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688850&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-25 08:31</a>
@@ -15419,7 +15418,7 @@ FH5重现这些事只能说明t10压根就没改
 
 *****
 
-####  feve9999  
+####  feve9999
 ##### 1395#       发表于 2021-11-25 08:49
 
 求问，怎么在两台电脑用一个存档，同一个账号。我另一个电脑下载完打开就是新档
@@ -15428,7 +15427,7 @@ FH5重现这些事只能说明t10压根就没改
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 1396#       发表于 2021-11-25 09:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53688550&amp;ptid=2033303" target="_blank">Porsche 发表于 2021-11-25 07:39</a>
@@ -15444,7 +15443,7 @@ PG：疫情还要做后续内容，我很抠很懒不想招新GM员工或者外�
 
 *****
 
-####  faithlifer  
+####  faithlifer
 ##### 1397#       发表于 2021-11-25 09:53
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53677056&amp;ptid=2033303" target="_blank">大哀之君 发表于 2021-11-24 11:28</a>
@@ -15457,7 +15456,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1398#         楼主| 发表于 2021-11-25 15:53
 
 还有六小时
@@ -15468,7 +15467,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1399#       发表于 2021-11-25 16:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53695315&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-25 15:53</a>
@@ -15482,7 +15481,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1400#         楼主| 发表于 2021-11-25 16:42
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696026&amp;ptid=2033303" target="_blank">君往何处 发表于 2021-11-25 00:35</a>
@@ -15494,7 +15493,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1401#       发表于 2021-11-25 16:49
 
 游乐场王冠要去公开赛那里排，赛季奖励那个通道不行
@@ -15503,7 +15502,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1402#       发表于 2021-11-25 18:01
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53696150&amp;ptid=2033303" target="_blank">天神十三煞 发表于 2021-11-25 16:42</a>
@@ -15517,7 +15516,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  半江瑟瑟半江红  
+####  半江瑟瑟半江红
 ##### 1403#       发表于 2021-11-25 21:37
 
 不知道是不是我的错觉，以前3代4代过检查点的黄带时候从外侧稍微刮到一点甚至黄带都不被撞动就算过了，这代好像不行了？
@@ -15528,7 +15527,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1404#       发表于 2021-11-25 21:47
 
 <blockquote>半江瑟瑟半江红 发表于 2021-11-25 07:37
@@ -15539,7 +15538,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1405#       发表于 2021-11-25 23:10
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有无限制车辆蛇头的设定，我更加确定fh5运营是傻逼了
@@ -15548,7 +15547,7 @@ pg 🐴没了<img src="https://static.saraba1st.com/image/smiley/face2017/119.pn
 
 *****
 
-####  培根芝士蛋堡XD  
+####  培根芝士蛋堡XD
 ##### 1406#       发表于 2021-11-25 23:26
 
 xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，画面观感都比地平线5强还么有bug，笑了，我等个一年再回来玩地平线5吧
@@ -15557,7 +15556,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1407#       发表于 2021-11-25 23:53
 
 特么的这周常翻译都是什么鬼啊。。
@@ -15566,14 +15565,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1408#       发表于 2021-11-26 00:09
 
 这个无限制太sb了吧，你不自己组队，随机直接给你来三个x，我开个屁哦。我现在真的好想拿辆x级撞撞设计师，说不定能把他的脑子给撞回来<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1409#         楼主| 发表于 2021-11-26 00:14
 
 我跟你们讲
@@ -15594,7 +15593,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 1410#       发表于 2021-11-26 00:19
 
 草，一直开A、B级，这S级蛇头就算没人开X级车我也头疼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -15603,14 +15602,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1411#       发表于 2021-11-26 00:31
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看红迪的人说吃鸡淘汰了2个人结果不算完成
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 1412#       发表于 2021-11-26 00:35
 
 蛇头看见x级队友可以直接退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 反正退了剩下的人更好跑 没有任何心理负担
@@ -15619,7 +15618,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1413#       发表于 2021-11-26 00:39
 
 服气，感觉网络变得更差了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
@@ -15630,7 +15629,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1414#       发表于 2021-11-26 14:42
 
 就我今天排了一上午蛇头到刚才的经验，看到x级大家直接退了算了，我碰到的x级全是些开倒数的。带我飞的那场倒都是s2的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -15639,14 +15638,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1415#       发表于 2021-11-26 14:45
 
 明明大家一起开A800车就解决的事情，非要给BOT送X999的车，真的是对自己的水平和BOT的作弊能力没有B数
 
 *****
 
-####  舌怪  
+####  舌怪
 ##### 1416#       发表于 2021-11-26 14:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709969&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-26 14:45</a>
@@ -15656,7 +15655,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1417#       发表于 2021-11-26 14:54
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709969&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-26 14:45</a>
@@ -15668,7 +15667,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  nemunoki  
+####  nemunoki
 ##### 1418#       发表于 2021-11-26 15:10
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53709993&amp;ptid=2033303" target="_blank">舌怪 发表于 2021-11-26 14:47</a>
@@ -15684,7 +15683,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 1419#       发表于 2021-11-26 15:47
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">开蛇头700过了
@@ -15696,28 +15695,28 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1420#       发表于 2021-11-26 16:43
 
 蛇头开着梯子，用998的迈凯伦塞纳过了，放以前真是不敢想
 
 *****
 
-####  cxl6191467  
+####  cxl6191467
 ##### 1421#       发表于 2021-11-26 16:49
 
 现在还有什么办法能刷钱吗？我是主机板，我看网上都是用按键精灵什么的
 
 *****
 
-####  有钱多买小人  
+####  有钱多买小人
 ##### 1422#       发表于 2021-11-26 16:58
 
 蛇头拿s2塞纳初见过了。队友3个x3个s2，第一场被ai碾压，第二场掉了一个s2反而变好跑了。
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1423#       发表于 2021-11-26 17:02
 
 蛇头用djs的998塞纳过了, 观察了一下改到X级的选手基本都是撞墙过弯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -15726,7 +15725,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1424#       发表于 2021-11-26 18:22
 
 过了的那一把好像有一个X，但是重要的是三局我们（感觉我改的998senna起跑比队友快一些，能在一开始抢到前面的位置）都在第一个路口把所有车撞成了一坨，不这样的话前四辆车基本上稳定的全程不踩刹车越开越远。
@@ -15735,10 +15734,10 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1425#         楼主| 发表于 2021-11-26 18:41
 
- 本帖最后由 天神十三煞 于 2021-11-26 02:44 编辑 
+ 本帖最后由 天神十三煞 于 2021-11-26 02:44 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53703341&amp;ptid=2033303" target="_blank">nemunoki 发表于 2021-11-25 08:31</a>
 
 我看红迪的人说吃鸡淘汰了2个人结果不算完成</blockquote>
@@ -15756,7 +15755,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1426#       发表于 2021-11-26 19:36
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">特么的911carrera那个拍照任务我死活完成不了，有没有什么抢救方法啊
@@ -15765,7 +15764,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1427#       发表于 2021-11-26 19:46
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713709&amp;ptid=2033303" target="_blank">Vladimeow 发表于 2021-11-26 19:36</a>
@@ -15775,7 +15774,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1428#       发表于 2021-11-26 20:02
 
 <blockquote>Vladimeow 发表于 2021-11-26 05:36
@@ -15784,7 +15783,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 1429#       发表于 2021-11-26 20:03
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53711705&amp;ptid=2033303" target="_blank">cxl6191467 发表于 2021-11-26 16:49</a>
@@ -15794,7 +15793,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1430#       发表于 2021-11-26 20:04
 
 各种季节任务无法完成的应该都是网络问题
@@ -15806,10 +15805,10 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1431#       发表于 2021-11-26 20:13
 
-夜晚拍照代码：793 683 718​
+夜晚拍照代码：793 683 718
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
@@ -15817,7 +15816,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1432#       发表于 2021-11-26 21:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53713984&amp;ptid=2033303" target="_blank">920619lqy 发表于 2021-11-26 20:02</a>
@@ -15828,7 +15827,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1433#       发表于 2021-11-27 00:28
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">慕名玩了蛇头，感受到了大家暴怒的原因
@@ -15839,7 +15838,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1434#       发表于 2021-11-27 00:40
 
 跟好友组队试了四把蛇头终于过了
@@ -15850,7 +15849,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Karin11974  
+####  Karin11974
 ##### 1435#       发表于 2021-11-27 08:30
 
 隔几天没玩然后启动提示错误，什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -15861,7 +15860,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  阿狸狸狸狸狸  
+####  阿狸狸狸狸狸
 ##### 1436#       发表于 2021-11-27 09:45
 
 为什么你们蛇头都能选800的车，我怎么只能选些塞纳还有些s2之类的
@@ -15870,7 +15869,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  gzGaryC  
+####  gzGaryC
 ##### 1437#       发表于 2021-11-27 09:47
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53718571&amp;ptid=2033303" target="_blank">阿狸狸狸狸狸 发表于 2021-11-27 09:45</a>
@@ -15884,10 +15883,10 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  萱时令  
+####  萱时令
 ##### 1438#       发表于 2021-11-27 11:59
 
- 本帖最后由 萱时令 于 2021-11-27 12:03 编辑 
+ 本帖最后由 萱时令 于 2021-11-27 12:03 编辑
 
 看外网pg实习员工泄漏的消息挺像那么一回事的 DLC1是个小的城市地图
  虚构城市 用了去日本采集的信息 日本主题要gg啊 或者是像3 4的DLC一样给6练手的
@@ -15896,7 +15895,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Karin11974  
+####  Karin11974
 ##### 1439#       发表于 2021-11-27 12:36
 
 日本也撑不起一代作品吧，跑圈还能整几条赛道，地平线这种日本没有啥开阔的场景能做吧，北海道？赛跑新干线？
@@ -15905,7 +15904,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1440#       发表于 2021-11-27 12:38
 
 草，手滑买了1500万的f1gt，拍卖行只要400万，气死了
@@ -15914,7 +15913,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Totokei  
+####  Totokei
 ##### 1441#       发表于 2021-11-27 12:39
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起开阔场景，昨晚蛇头就是上桥的时候没对准直接撞烂护栏下去了只能y回去
@@ -15923,7 +15922,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1442#       发表于 2021-11-27 12:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720218&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-27 12:38</a>
@@ -15933,7 +15932,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1443#       发表于 2021-11-27 12:59
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53719739&amp;ptid=2033303" target="_blank">萱时令 发表于 2021-11-27 11:59</a>
@@ -15945,7 +15944,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1444#       发表于 2021-11-27 13:00
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720491&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-27 12:58</a>
@@ -15956,7 +15955,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  AEmpire  
+####  AEmpire
 ##### 1445#       发表于 2021-11-27 14:21
 
 日本场景岂不是街道赛跑到吐，不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -15965,21 +15964,21 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1446#       发表于 2021-11-27 14:36
 
 出生去哪里找空头啊，为什么别人一出生就能去有空投的地方捡车
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 1447#       发表于 2021-11-27 14:37
 
 蛇头，自动驾驶，yyds<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 *****
 
-####  liyropen  
+####  liyropen
 ##### 1448#       发表于 2021-11-27 14:38
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53721711&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-27 14:36</a>
@@ -15992,7 +15991,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1449#         楼主| 发表于 2021-11-27 15:24
 
 傻屌PG到底什么时候才更新
@@ -16003,7 +16002,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1450#       发表于 2021-11-27 16:18
 
 我真是操了，这大逃杀一出生就被各种3-4级车追着打，尼玛这帮人为什么抢空投这么快，我找个空投就找半天
@@ -16012,7 +16011,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1451#       发表于 2021-11-27 17:11
 
 蛇头队友全退了，1打7，一个人随便超几辆车就赢了，ez
@@ -16021,7 +16020,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1452#       发表于 2021-11-27 18:41
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">打了一下午地平线闯关 确认PG绝对是脑瘫，十分钟
@@ -16030,7 +16029,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1453#       发表于 2021-11-27 18:50
 
 一把吃鸡19位被淘汰做完两个周常，收摊了
@@ -16039,7 +16038,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  虚无连斩  
+####  虚无连斩
 ##### 1454#       发表于 2021-11-27 19:55
 
 吐了啊，做打完两场竞标赛，快速传送去第三场闪退，前面两场白打
@@ -16048,7 +16047,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  yyyxxxrrr  
+####  yyyxxxrrr
 ##### 1455#       发表于 2021-11-27 20:16
 
 那个吃鸡单挑有什么限制吗？我挑赢第一个人以后又碰见落单也怎么按都不能发起挑战，他车和我级别都一样
@@ -16057,7 +16056,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1456#         楼主| 发表于 2021-11-27 20:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53725213&amp;ptid=2033303" target="_blank">yyyxxxrrr 发表于 2021-11-27 04:16</a>
@@ -16079,7 +16078,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1457#       发表于 2021-11-27 21:47
 
 <img src="https://p.sda1.dev/3/684ed31e3fa633ac3747ef09b3c7cfa2/IMG_CMP_115311127.png" referrerpolicy="no-referrer">
@@ -16092,7 +16091,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1458#       发表于 2021-11-27 23:28
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">在体育场做那个保持100mph得分的任务也太好笑了，只需要在内环把油门和方向按死就行了，车就开始自动高速绕圈了
@@ -16101,7 +16100,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 1459#       发表于 2021-11-28 01:13
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720509&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-27 12:59</a>
@@ -16110,14 +16109,14 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1460#       发表于 2021-11-28 01:21
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代的T100 BAJA是退环境了吗，都没见人提起。上代好喜欢用，S1级越野大哥，极速吓人。
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1461#       发表于 2021-11-28 01:25
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53720535&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-27 13:00</a>
@@ -16128,7 +16127,7 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  君往何处  
+####  君往何处
 ##### 1462#       发表于 2021-11-28 09:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53722689&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-27 16:18</a>
@@ -16142,21 +16141,21 @@ xgp回去嫖了下地平线4，感觉体验全方位碾压地平线5啊<img src=
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1463#       发表于 2021-11-28 11:49
 
 有什么可以方便的车库查重的方法么，重复的太多了
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1464#       发表于 2021-11-28 11:55
 
 车辆收集就差大众beetle 1963，这个怎么获取？
 
 *****
 
-####  鹿斗典善  
+####  鹿斗典善
 ##### 1465#       发表于 2021-11-28 12:02
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730919&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-28 11:55</a>
@@ -16168,7 +16167,7 @@ vocho任务倒数第二关就送甲虫了
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1466#       发表于 2021-11-28 12:07
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53730983&amp;ptid=2033303" target="_blank">鹿斗典善 发表于 2021-11-28 12:02</a>
@@ -16185,7 +16184,7 @@ vocho任务倒数第二关就送甲虫了</blockquote>
 
 *****
 
-####  马僧虔  
+####  马僧虔
 ##### 1467#       发表于 2021-11-28 14:29
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53731035&amp;ptid=2033303" target="_blank">诶哟卧草 发表于 2021-11-28 12:07</a>
@@ -16196,14 +16195,14 @@ vocho任务倒数第二关就送甲虫了</blockquote>
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 1468#       发表于 2021-11-28 14:34
 
 pg这也太摆烂了，今天闲着没事清点下车库，发现百年牛的后轮转向终于给加上了，然而疣猪号还是没有，p1的尾翼还是放不下来，明年的无限试驾能不能给点压力啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
 *****
 
-####  920619lqy  
+####  920619lqy
 ##### 1469#       发表于 2021-11-28 14:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53732580&amp;ptid=2033303" target="_blank">马僧虔 发表于 2021-11-28 00:29</a>
@@ -16215,7 +16214,7 @@ pg这也太摆烂了，今天闲着没事清点下车库，发现百年牛的后
 
 *****
 
-####  aaronluray  
+####  aaronluray
 ##### 1470#       发表于 2021-11-28 15:11
 
 arcade排到了一群人，很快就做完了，一切都是这么美好，直到我卡在了结算界面只能强退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -16224,7 +16223,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  天神十三煞  
+####  天神十三煞
 ##### 1471#         楼主| 发表于 2021-11-28 17:21
 
 这破游戏是这样的 不首发刷不到钱
@@ -16233,7 +16232,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  DancingAndy  
+####  DancingAndy
 ##### 1472#       发表于 2021-11-28 17:21
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">排了三天蛇头总算碰到一次没有x级的队友过了
@@ -16242,7 +16241,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  itsmyrailgun  
+####  itsmyrailgun
 ##### 1473#       发表于 2021-11-28 23:05
 
 <img src="https://img.saraba1st.com/forum/202111/28/230432i34p7iu44z33tati.png" referrerpolicy="no-referrer">
@@ -16259,7 +16258,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1474#       发表于 2021-11-28 23:18
 
 花了一个上午把广告牌跟全部道路做了，接下来佛系玩了
@@ -16268,7 +16267,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  爱护动物抓根宝  
+####  爱护动物抓根宝
 ##### 1475#       发表于 2021-11-28 23:40
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53737989&amp;ptid=2033303" target="_blank">itsmyrailgun 发表于 2021-11-28 23:05</a>
@@ -16284,7 +16283,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  拉鲁拉丝  
+####  拉鲁拉丝
 ##### 1476#       发表于 2021-11-28 23:51
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738116&amp;ptid=2033303" target="_blank">bad_alloc 发表于 2021-11-28 23:18</a>
@@ -16295,7 +16294,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1477#       发表于 2021-11-28 23:54
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738454&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-28 23:51</a>
@@ -16307,7 +16306,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  再买自检星剁手  
+####  再买自检星剁手
 ##### 1478#       发表于 2021-11-28 23:55
 
 “上传干净利落成绩”跑劲敌可比干弱智ai有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
@@ -16316,7 +16315,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  bad_alloc  
+####  bad_alloc
 ##### 1479#       发表于 2021-11-29 00:21
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738454&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-28 23:51</a>
@@ -16332,7 +16331,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  liyropen  
+####  liyropen
 ##### 1480#       发表于 2021-11-29 01:43
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738496&amp;ptid=2033303" target="_blank">再买自检星剁手 发表于 2021-11-28 23:55</a>
@@ -16343,7 +16342,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  cscnake  
+####  cscnake
 ##### 1481#       发表于 2021-11-29 05:48
 
 请问冬季的锦标赛一直完成不了怎么办？车是符合要求的，也试过每场都跑了第一，但就是不结算。。。3个锦标赛都是这样。。。来自: iPhone客户端
@@ -16352,7 +16351,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  wzy200912345  
+####  wzy200912345
 ##### 1482#       发表于 2021-11-29 08:35
 
 如何赢蛇头？只要队友退光了就必赢拉！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -16369,7 +16368,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  冀人燕南天  
+####  冀人燕南天
 ##### 1483#       发表于 2021-11-29 10:44
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53738454&amp;ptid=2033303" target="_blank">拉鲁拉丝 发表于 2021-11-28 23:51</a>
@@ -16385,7 +16384,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  citrus  
+####  citrus
 ##### 1484#       发表于 2021-11-29 15:04
 
 这周菜才打够20w点，开始蛇头
@@ -16394,14 +16393,14 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  风流庵TypeC  
+####  风流庵TypeC
 ##### 1485#       发表于 2021-11-29 16:24
 
 优化真的菜，我外接显示屏稳2k60帧，这段时间外出用笔记本自带屏幕玩基本相同画面设置就疯狂掉帧，性能测试里面间断次数都60 70次，甚至降画质也是一样不断微微卡顿
 
 *****
 
-####  轮太  
+####  轮太
 ##### 1486#       发表于 2021-11-29 16:34
 
 1月会加中国车+打折
@@ -16410,7 +16409,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  xsummer  
+####  xsummer
 ##### 1487#       发表于 2021-11-29 18:22
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53740376&amp;ptid=2033303" target="_blank">wzy200912345 发表于 2021-11-29 08:35</a>
@@ -16424,7 +16423,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  Karin11974  
+####  Karin11974
 ##### 1488#       发表于 2021-11-30 00:30
 
 想买个地平线4补票，steam还是没有扳机震动吗？
@@ -16433,7 +16432,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  小张翔  
+####  小张翔
 ##### 1489#       发表于 2021-11-30 00:58
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53751783&amp;ptid=2033303" target="_blank">Karin11974 发表于 2021-11-30 00:30</a>
@@ -16446,7 +16445,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1490#       发表于 2021-11-30 10:39
 
 如何才能完成晚上拍照呢。是要硬等到晚上吗
@@ -16455,7 +16454,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1491#       发表于 2021-11-30 10:45
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53754520&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-30 10:39</a>
@@ -16468,7 +16467,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1492#       发表于 2021-11-30 11:23
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53754602&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-30 10:45</a>
@@ -16480,7 +16479,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1493#       发表于 2021-11-30 11:25
 
 另外就是那些区间测速，测速点 ，跳台之类的赛季目标，我用了符合要求的车也跑到了规定速度，为什么还不算我完成阿。一般不应该是失败也会显示季节目标失败吗，我是根本不显示失败还是成功。这个礼拜和上个礼拜各有一个目标碰到了这个问题
@@ -16489,7 +16488,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  4ckc  
+####  4ckc
 ##### 1494#       发表于 2021-11-30 11:35
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755247&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-30 11:25</a>
@@ -16501,7 +16500,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  qzy741147  
+####  qzy741147
 ##### 1495#       发表于 2021-11-30 11:36
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755402&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-30 11:35</a>
@@ -16511,7 +16510,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  Vladimeow  
+####  Vladimeow
 ##### 1496#       发表于 2021-11-30 11:41
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755424&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-30 11:36</a>
@@ -16522,7 +16521,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  诶哟卧草  
+####  诶哟卧草
 ##### 1497#       发表于 2021-11-30 12:06
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755402&amp;ptid=2033303" target="_blank">4ckc 发表于 2021-11-30 11:35</a>
@@ -16536,7 +16535,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  罗科  
+####  罗科
 ##### 1498#       发表于 2021-11-30 12:42
 
 跑了两把蛇头就过了，第一把老实人选了998，结果x级队友上来就退了，理所当然没过。
@@ -16548,7 +16547,7 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  pl0okm  
+####  pl0okm
 ##### 1499#       发表于 2021-11-30 13:09
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53755212&amp;ptid=2033303" target="_blank">qzy741147 发表于 2021-11-30 11:23</a>
@@ -16559,10 +16558,9 @@ arcade排到了一群人，很快就做完了，一切都是这么美好，直�
 
 *****
 
-####  yyyxxxrrr  
+####  yyyxxxrrr
 ##### 1500#       发表于 2021-11-30 15:54
 
 夜晚照相这个新建一个自定义比赛 时间就选夜晚，然后测试，照张相就行了，也不用发布
 
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
-
