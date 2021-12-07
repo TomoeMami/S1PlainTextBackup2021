@@ -9511,3 +9511,36 @@ tmd这么晚去吃火锅 什么阴间作息人
 
 拱火b太多了，这口血吸到还不直接银盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜潇箫  
+##### 4088#       发表于 2021-12-7 12:06
+
+文静没有那个脑子打lol<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 4089#       发表于 2021-12-7 12:10
+
+除非两边想联动，不然根本炒不起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4090#       发表于 2021-12-7 12:14
+
+我直接一个投的降🙇‍♂️🙇‍♂️🙇‍♂️
+
+*****
+
+####  灰色的狐狸  
+##### 4091#       发表于 2021-12-7 12:18
+
+？？？又干嘛了
+抄袭什么意思？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

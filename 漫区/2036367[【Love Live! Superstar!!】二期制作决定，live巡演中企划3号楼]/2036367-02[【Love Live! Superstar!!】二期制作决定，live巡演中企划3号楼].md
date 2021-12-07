@@ -1117,3 +1117,30 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 那么更高量级的都有？</blockquote>
 再高级那估计就到福利姬的范畴了...鲤鱼还不至于<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1608#       发表于 2021-12-7 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以前好像见有人说过，应该在O吧，是不是刚签日本事务所开始活动时候的事，刚开始推整点福利叫人来
+
+不过说实在的小偶像唇印卡也不算罕见啊，开闭都有，再下点的地偶福利就更多花样了
+
+*****
+
+####  Karin11974  
+##### 1609#       发表于 2021-12-7 12:13
+
+在余弦圈大概不算事，我这种路人听过最多的国内的就青行灯，晚香玉之流，印象中是一堆破事拿来调侃的，你鲤鱼姐的名号在LL前是从来没听过，以前大学社团活动搞漫社时cos圈子的也是一堆几把乱的，反正对cos圈印象就不太好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cybernetics31  
+##### 1610#       发表于 2021-12-7 12:16
+
+今天倒计时是麻油鸡…………这基本顺序打乱来倒计时啊
+
