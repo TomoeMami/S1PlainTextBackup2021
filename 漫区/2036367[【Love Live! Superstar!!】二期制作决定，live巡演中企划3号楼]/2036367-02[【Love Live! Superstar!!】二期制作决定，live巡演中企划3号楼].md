@@ -1172,3 +1172,24 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 鲤鱼的COS真的很颠覆我过往对COS的印象了，完全就是，色不起来，就这个唇印我看着都觉得像过家家
 
+
+
+*****
+
+####  player3960  
+##### 1614#       发表于 2021-12-7 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53840030&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-7 13:21</a>
+
+各种就差漏点的不比这还猛？也就个唇印而已
+
+鲤鱼的COS真的很颠覆我过往对COS的印象了，完全就是，色不起 ...</blockquote>
+我注意力完全在第一张图她亲纸的那个脸上，感觉好软的样子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kimibsb  
+##### 1615#       发表于 2021-12-7 13:44
+
+算上全企划 里p小鹿的擦边球写真应该算更高量级的？
+

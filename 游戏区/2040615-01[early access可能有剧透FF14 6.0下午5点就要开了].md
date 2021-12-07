@@ -1299,3 +1299,26 @@ syl
 
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  LrGsite  
+##### 129#         楼主| 发表于 2021-12-7 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53840063&amp;ptid=2040615" target="_blank">游蜓 发表于 2021-12-7 13:24</a>
+
+还可以有外星人啊
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这次的结局把故事进度全都拉到底了,最后直接叫终焉之战,7.0故事要出估计得从爱梅讲的那些故事里挑了,但是论格局都赶不上6.0这次跑到宇宙最远的彼端,击败终焉的故事了
+
+*****
+
+####  shikiki  
+##### 130#       发表于 2021-12-7 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53839999&amp;ptid=2040615" target="_blank">LrGsite 发表于 2021-12-7 13:18</a>
+打完了,FF14的故事以后还怎么讲啊,感觉到头了</blockquote>
+游戏里不是借爱梅的口说了嘛，各种新地方，南方大陆啥的，他说他自己都去过了，那么光呆作为一个冒险者也同样会去。现在回头看一开始让选择入境职业，第一个选项就是冒险者，有种制作组希望玩家不忘初心的感觉，不是游戏里拯救世界的大英雄，而是作为冒险者四处旅行才是真。
+
