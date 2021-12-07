@@ -2954,3 +2954,15 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 反正南非最大医院的ICU从上周开始就爆了，医院入住率也在飙升，看不出任何omicron毒力下降的迹象，再加上 ...</blockquote>
 看英国的曲线，D和O的交叉确实很可能早几天
 
+
+
+*****
+
+####  最好不说  
+##### 1748#       发表于 2021-12-8 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53848187&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-12-8 00:19</a>
+
+看英国的曲线，D和O的交叉确实很可能早几天</blockquote>
+丹麦直接投了估计带英也不远了，现在官方报的日增上百，但内鬼已经捅出来早就日增上千了<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
