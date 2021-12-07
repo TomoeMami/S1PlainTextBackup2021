@@ -2040,3 +2040,34 @@ oreapo+qp终于下播了...最近都是大半夜醒来开播到第二天上午�
 这个有人熟吗，11月才出道的新人，在推特上发的直播预订竟然还带着简体中文版……而且字体没出问题，很感 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仿佛又一个星空学园
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 9165#       发表于 2021-12-7 22:32
+
+<img src="https://img.saraba1st.com/forum/202112/07/223227lh6mpwztfv01kwut.png" referrerpolicy="no-referrer">
+
+<strong>4097ee9732f75b87.png</strong> (228.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-7 22:32 上传
+
+*****
+
+####  alcoholic1000  
+##### 9166#       发表于 2021-12-7 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53845646&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-12-7 20:17</a>
+
+月之又去B综了，好耶（还有king和多拉）
+
+省一楼，虹最近真伤病好多啊，郡发烧小琥珀骨折还有叶师巴啥的， ...</blockquote>
+叶想做近视手术，以后live就不用带隐形了，但今天要手术了才发现保险其中一项还是什么缺了没办法做（没认真听）
+
+巴那个比较严重，子宮內膜异位瘤<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">
+
+Syl，King确认养狗，狗叫出声了，虹这些主播一个两个养个小动物和深柜似的秘而不宣,守口如瓶...
+

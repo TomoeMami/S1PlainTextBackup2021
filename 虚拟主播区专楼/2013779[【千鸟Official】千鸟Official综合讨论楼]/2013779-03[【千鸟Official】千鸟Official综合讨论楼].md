@@ -9753,3 +9753,26 @@ e那边也没想开战，现在就是缝十公拱火把他@过来了。缝十公
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不就一晚上没看直播吗 咋感觉过了好几个版本
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4114#       发表于 2021-12-7 22:26
+
+抓到王老菊进来了，可惜恰巧播的不是杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 4115#       发表于 2021-12-7 22:34
+
+文静给老太太配音实在太专业了，不愧是本音
+
+*****
+
+####  伞沢直美  
+##### 4116#       发表于 2021-12-7 22:40
+
+老妪平日为生计，尽作些小儿女姿态，真是难为静子了
+
