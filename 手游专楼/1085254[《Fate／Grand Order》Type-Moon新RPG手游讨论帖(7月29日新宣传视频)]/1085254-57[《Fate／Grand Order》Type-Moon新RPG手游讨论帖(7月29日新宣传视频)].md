@@ -7153,3 +7153,16 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  shinitakute  
+##### 84646#       发表于 2021-12-8 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53846958&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-7 22:06</a>
+无敌贯通礼装 或者借个超人熊不就得了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">幸好有张起源弹，不然真就可以删游戏跑路了，好友里一个超人熊都没有
+
+第三管血尼玛130万，灵脉石放了三次闪闪核弹才打死 
+
