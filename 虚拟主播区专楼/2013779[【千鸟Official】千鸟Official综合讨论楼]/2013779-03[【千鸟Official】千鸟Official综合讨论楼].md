@@ -9423,3 +9423,36 @@ tmd这么晚去吃火锅 什么阴间作息人
 <img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">这不都前几天的活了 
 企业势，你去冲画师原力带活给你带路
 
+
+
+*****
+
+####  四叶的花  
+##### 4078#       发表于 2021-12-7 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53837629&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-7 09:56</a>
+这不都前几天的活了 
+企业势，你去冲画师原力带活给你带路</blockquote>
+主要是真给老e艾特来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下文静要道歉了
+
+*****
+
+####  袜子  
+##### 4079#       发表于 2021-12-7 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53837672&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-12-7 10:01</a>
+主要是真给老e艾特来了这下文静要道歉了</blockquote>
+出了直播间咱们谁也不认识谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切割！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 4080#       发表于 2021-12-7 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53837672&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-12-7 10:01</a>
+
+主要是真给老e艾特来了这下文静要道歉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这肯定拖cj和画师出来道歉啊 皮又不是文静画的
+

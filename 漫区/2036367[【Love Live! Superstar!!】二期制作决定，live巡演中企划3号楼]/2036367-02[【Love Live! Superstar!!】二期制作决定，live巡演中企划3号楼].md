@@ -1001,3 +1001,19 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 有点心动，这亲下去的时候看着好憨<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 1596#       发表于 2021-12-7 10:01
+
+<blockquote>引用第1594楼chenflyyy于2021-12-07 09:58发表的  :
+
+有点心动，这亲下去的时候看着好憨就是二手的大概率被用过了吧</blockquote>
+@chenflyyy
+
+不是标着全新未拆么
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
