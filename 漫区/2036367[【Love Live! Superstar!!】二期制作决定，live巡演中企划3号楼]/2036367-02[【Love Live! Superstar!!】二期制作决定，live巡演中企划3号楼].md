@@ -1202,3 +1202,42 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 色不起来倒是真的，所以如果写真构图拍得不够有创意的话都不太想买<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1617#       发表于 2021-12-7 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53836318&amp;ptid=2036367" target="_blank">saglork 发表于 2021-12-7 07:14</a>
+应该是25-1，少一个水团休养中的king</blockquote>
+不是说king能赶上么，难道我记错了？
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cat1230  
+##### 1618#       发表于 2021-12-7 16:56
+
+【【拆卡】Vol.23 足球篮球球星卡拆不起，拆一盒liyuu鲤鱼的写真盒子，冉冉升起的coser新星，美到窒息～-哔哩哔哩】https://b23.tv/yRRltk8
+b站20年有人发的开箱视频，好羡慕啊，原来是这种盲盒开包的，这个up人品超级好啊，一盒开出一张签名一张唇印，羡慕哭了。好家伙，500日元一包6张，出货这2张现在值多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 1619#       发表于 2021-12-7 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fc日历直签应该快发货了
+
+*****
+
+####  cat1230  
+##### 1620#       发表于 2021-12-7 17:03
+
+卡包原价买也不贵，这一盒就出货，真羡慕
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
