@@ -947,3 +947,16 @@ sayu这回得好认真，3000条目前回复10几条可以理解，果然我这�
 
 我 大 受 震 撼
 
+
+
+*****
+
+####  A0171050  
+##### 1590#       发表于 2021-12-7 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53836369&amp;ptid=2036367" target="_blank">kimibsb 发表于 2021-12-7 07:33</a>
+https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
+
+我 大 受 震 撼</blockquote>
+会被买来干什么都不敢想了。。
+
