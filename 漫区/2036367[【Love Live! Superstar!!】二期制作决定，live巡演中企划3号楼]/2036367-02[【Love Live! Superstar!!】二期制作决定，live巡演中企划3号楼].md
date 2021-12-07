@@ -1144,3 +1144,31 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 今天倒计时是麻油鸡…………这基本顺序打乱来倒计时啊
 
+
+
+*****
+
+####  saglork  
+##### 1611#       发表于 2021-12-7 13:13
+
+这种级别的福利或者说黑历史，在lovelive系列的cv里毛都不算好吗，谁年轻的时候还没点杀必死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 1612#       发表于 2021-12-7 13:17
+
+唇印纸算个锤子，饭杀必里也就是比较低级的那种，这个价买チェキ实惠多了
+
+*****
+
+####  lj205  
+##### 1613#       发表于 2021-12-7 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53838427&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-7 11:04</a>
+
+那么更高量级的都有？</blockquote>
+各种就差漏点的不比这还猛？也就个唇印而已
+
+鲤鱼的COS真的很颠覆我过往对COS的印象了，完全就是，色不起来，就这个唇印我看着都觉得像过家家
+
