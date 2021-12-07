@@ -1964,3 +1964,21 @@ oreapo+qp终于下播了...最近都是大半夜醒来开播到第二天上午�
 [https://youtu.be/-ZltPjGIqm4?t=7098](https://youtu.be/-ZltPjGIqm4?t=7098)
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还是忘不了bora么
 
+
+
+*****
+
+####  Suny08  
+##### 9158#       发表于 2021-12-7 19:01
+
+本社有优待组en有优待组维阿也有优待组，大家都有光明的未来
+
+*****
+
+####  格林卡罗尔  
+##### 9159#       发表于 2021-12-7 19:04
+
+仔细一看ういは骑的二轮车，想象不能
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

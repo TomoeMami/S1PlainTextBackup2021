@@ -7001,3 +7001,58 @@ fgo刚出的时候就各种轮战力了吧，吧内环境如此常常车轱辘�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可是那个DW啊 能给你个100抽还不感恩戴德再充10单
 
+
+
+*****
+
+####  清风朗月  
+##### 84631#       发表于 2021-12-7 18:05
+
+圣诞羽蛇神没复刻，圣诞小太阳也没复刻，看这样子，圣马达估计也是过村没店逾期不候，圣诞活动从者比什么SSR都保值。
+
+*****
+
+####  rzxa  
+##### 84632#       发表于 2021-12-7 18:16
+
+不是下旬才开通古斯吗，不知为什么选17日结束活动，虽然18日福岡活动应该有生放送
+
+*****
+
+####  森兰丸  
+##### 84633#       发表于 2021-12-7 19:08
+
+在想现在这环境还要不要再抽CBA了.....
+
+*****
+
+####  alucardcz  
+##### 84634#       发表于 2021-12-7 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53844662&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-7 19:08</a>
+
+在想现在这环境还要不要再抽CBA了.....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">你要豹了吗！
+
+*****
+
+####  exiaexa  
+##### 84635#       发表于 2021-12-7 19:13
+
+这次拯救绿卡还挺合适？
+
+CBA和布妹都在，说不定玛尔达都是绿的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84636#       发表于 2021-12-7 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53844742&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-7 19:13</a>
+
+这次拯救绿卡还挺合适？
+
+CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不先开个cba强化本？
+

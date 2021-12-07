@@ -1127,3 +1127,17 @@ XSS画质模式1080 30也要喷了么，这不就是正常状态
 
 还没买XSX，看到评测说XSS的无限还不如X1X，想起来这也不是次世代独占，准备下个来试玩下。突然想到我金会员XGP都没续，那能玩多人吗
 
+
+
+*****
+
+####  madcow  
+##### 103#       发表于 2021-12-7 19:05
+
+，
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53843852&amp;ptid=2040933" target="_blank">ybfelix 发表于 2021-12-7 18:08</a>
+
+还没买XSX，看到评测说XSS的无限还不如X1X，想起来这也不是次世代独占，准备下个来试玩下。突然想到我金会 ...</blockquote>
+多人部分是免费的，哦主机的话忘了要不要金会员了
+
