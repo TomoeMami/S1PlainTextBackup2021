@@ -2013,3 +2013,30 @@ oreapo+qp终于下播了...最近都是大半夜醒来开播到第二天上午�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大葵这四周年怎么谈话这么多。
 
+
+
+*****
+
+####  毛头小希  
+##### 9163#       发表于 2021-12-7 21:03
+
+<blockquote>格林卡罗尔 发表于 2021-12-7 19:04
+仔细一看ういは骑的二轮车，想象不能
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+记得她在机台里说有时候想换个风格造型比如穿得朋克一点什么的，说不定意外的适合
+
+还在直播里大谈把倒下的重型机车扶起来的诀窍，西楚霸王震撼观众
+
+另外推荐一下掰苹果奥数魔刃，已经被做成官方手书了
+
+*****
+
+####  Porsche  
+##### 9164#       发表于 2021-12-7 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53836870&amp;ptid=1972669" target="_blank">雨井绫 发表于 2021-12-7 08:51</a>
+
+这个有人熟吗，11月才出道的新人，在推特上发的直播预订竟然还带着简体中文版……而且字体没出问题，很感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仿佛又一个星空学园
+
