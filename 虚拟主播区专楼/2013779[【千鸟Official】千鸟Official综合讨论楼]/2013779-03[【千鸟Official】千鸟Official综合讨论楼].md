@@ -9609,3 +9609,22 @@ e那边也没想开战，现在就是缝十公拱火把他@过来了。缝十公
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以这次又是什么节奏
 
+
+
+*****
+
+####  小憨1  
+##### 4099#       发表于 2021-12-7 14:30
+
+文静皮和老E的皮很像，两边都不是很在意，但有个小鬼在两边带节奏
+
+*****
+
+####  T型钉宫病毒  
+##### 4100#       发表于 2021-12-7 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53840680&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-7 14:18</a>
+
+所以这次又是什么节奏</blockquote>
+还是文静新皮撞车老e那事吧，一帮人在底下拱火
+
