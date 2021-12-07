@@ -9388,3 +9388,38 @@ tmd这么晚去吃火锅 什么阴间作息人
 
 清汤最强，垃火锅是给味觉破坏的人吃的
 
+
+
+*****
+
+####  rgauss  
+##### 4074#       发表于 2021-12-7 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早切了 出了直播间文静不认的
+
+*****
+
+####  rgauss  
+##### 4075#       发表于 2021-12-7 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53836179&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-12-7 04:13</a>
+清汤最强，垃火锅是给味觉破坏的人吃的</blockquote>
+清汤能有啥味 那还不如汤锅
+
+*****
+
+####  四叶的花  
+##### 4076#       发表于 2021-12-7 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">6w对300w，优势在我
+
+*****
+
+####  rgauss  
+##### 4077#       发表于 2021-12-7 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53837610&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-12-7 09:55</a>
+6w对300w，优势在我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">这不都前几天的活了 
+企业势，你去冲画师原力带活给你带路
+
