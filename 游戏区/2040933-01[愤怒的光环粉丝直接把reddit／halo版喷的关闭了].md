@@ -1171,3 +1171,15 @@ XSS画质模式1080 30也要喷了么，这不就是正常状态
 我感觉没准现在的跳出是故意针对老玩家查kd的，只要不查积分榜不换小队就不会跳出。考虑到dice 一直推的 ...</blockquote>
 算了吧，正常打从不开菜单也经常跳出<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  halflifes  
+##### 107#       发表于 2021-12-7 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53817443&amp;ptid=2040933" target="_blank">lolozp 发表于 2021-12-5 15:32</a>
+
+这些打工人为啥这么喜欢和网友对线= =</blockquote>
+是和日本人学的炎上商法吗？
+

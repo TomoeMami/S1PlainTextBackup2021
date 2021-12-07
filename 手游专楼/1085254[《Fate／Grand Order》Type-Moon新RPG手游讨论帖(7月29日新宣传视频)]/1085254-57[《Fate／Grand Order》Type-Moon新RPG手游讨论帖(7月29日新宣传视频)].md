@@ -7101,3 +7101,12 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 你要豹了吗！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">萌新又在说笑了.....非洲人CBA可是2次都沉了
 
+
+
+*****
+
+####  shinitakute  
+##### 84641#       发表于 2021-12-7 22:01
+
+卧槽这个平安京的伊吹童子是什么怪物，怎么永远无敌啊，氪五颗灵脉石也打不掉半管血
+
