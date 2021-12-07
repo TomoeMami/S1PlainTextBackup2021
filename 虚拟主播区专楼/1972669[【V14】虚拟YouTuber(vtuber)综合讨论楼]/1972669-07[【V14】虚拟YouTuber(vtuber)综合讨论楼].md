@@ -1870,3 +1870,17 @@ TRPG企画『神椿市建設中。NARRATIVE』があること、
 明显没人气基础啊。
 你虹有一部分观众没有跟上版本的动机<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雨井绫  
+##### 9150#       发表于 2021-12-7 08:51
+
+ 本帖最后由 雨井绫 于 2021-12-7 08:56 编辑 
+
+<img src="https://p.sda1.dev/3/e3fd4506980fee234eeec1c7d6fa2a79/IMG_CMP_242610766.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/80862e9142bd6d5c06b13cd94e1acd66/IMG_CMP_161318780.jpeg" referrerpolicy="no-referrer">
+这个有人熟吗，11月才出道的新人，在推特上发的直播预订竟然还带着中文版……
+查了下原来就是那个找了好几个名画师（堀口、赤坂、etc.）做人设还搞了动画pv的箱。声势这么浩大的宣传，推出来的liver也还是直播嗯打游戏啊。
+

@@ -1491,3 +1491,14 @@ How does this dumb bitch have such a big fanbase, she's not even entertaining.
 
 前面哭哭的时候提了一下想给大家带来最好的生日live吧
 
+
+
+*****
+
+####  UnhappyTails  
+##### 13650#       发表于 2021-12-7 08:41
+
+靠天吃饭怎么就不是本事了？
+
+阿德里亚诺再没兑现天赋也比一辈子都在二级联赛踢球的强了无数倍
+
