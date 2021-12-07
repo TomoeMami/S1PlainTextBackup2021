@@ -1381,3 +1381,30 @@ B站看了切片，SP属实好听，等个完整版。不过判教神曲还是�
 
 打铁早就叫了吧，有人考古推特上这么叫过，以前生放送也叫过不过小百合第一次没反应过来，第二次才反应过来
 
+
+
+*****
+
+####  saglork  
+##### 1638#       发表于 2021-12-7 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53842733&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2021-12-7 16:47</a>
+不是说king能赶上么，难道我记错了？
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+第一次公布的名单应该没她，当时只是说可能能赶上，现在没有确定的消息
+
+*****
+
+####  saglork  
+##### 1639#       发表于 2021-12-7 19:39
+
+萨尼趴还不错啊，就差一个手绘live了，第二季肯定会吐出来的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1640#       发表于 2021-12-7 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">老王animax个人歌手身份上了 状态还行 上跨年live应该没啥问题 
+

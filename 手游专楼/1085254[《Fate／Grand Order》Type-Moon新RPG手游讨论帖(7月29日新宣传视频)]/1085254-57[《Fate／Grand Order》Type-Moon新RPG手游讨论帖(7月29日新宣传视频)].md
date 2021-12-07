@@ -7056,3 +7056,16 @@ CBA和布妹都在，说不定玛尔达都是绿的
 CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不先开个cba强化本？
 
+
+
+*****
+
+####  exiaexa  
+##### 84637#       发表于 2021-12-7 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53844782&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-7 19:16</a>
+
+不先开个cba强化本？</blockquote>
+当然是明天一起开啊，都可以奶
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
