@@ -1936,3 +1936,21 @@ oreapo+qp终于下播了...最近都是大半夜醒来开播到第二天上午�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  winda  
+##### 9156#       发表于 2021-12-7 12:59
+
+[https://twitter.com/Gwelu_os_gar/status/1467965636978823168?s=20](https://twitter.com/Gwelu_os_gar/status/1467965636978823168?s=20) <blockquote>グウェル😎にじさんじ
+
+@Gwelu_os_gar
+
+先日発表させて頂きました企画に関しまして、運営とも相談した上、当該のリスナーさんに迷惑がかかる為中止とさせて頂く事になりました。楽しみにしていた方には申し訳ありませんが、何卒ご理解頂けますと幸いです。
+
+翻译推文
+
+上午5:14 · 2021年12月7日·Twitter for iPhone</blockquote>
+圭利和野良猫因为观众进VC搞的闹剧终于结束了啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
