@@ -1074,3 +1074,46 @@ https://share.api.weibo.cn/share/266847107.html?weibo_id=4711480576708484
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 这东西我看了一圈老cos粉都是人手一个的嘛，感觉鲤鱼以前在余弦圈还是蛮有名的
 
+
+
+*****
+
+####  名津流  
+##### 1604#       发表于 2021-12-7 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53837908&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-7 10:21</a>
+
+这有啥的？也就这样了，我觉得按以前我对COS圈的认识来说都是轻量级的</blockquote>
+那么更高量级的都有？
+
+*****
+
+####  player3960  
+##### 1605#       发表于 2021-12-7 11:05
+
+艹，看了一下她9月份那条微博今天上午还有人在留言，希望鲤鱼还记得<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 1606#       发表于 2021-12-7 11:08
+
+<blockquote>引用第1602楼soranoguiji于2021-12-07 10:59发表的  :
+
+这东西我看了一圈老cos粉都是人手一个的嘛，感觉鲤鱼以前在余弦圈还是蛮有名的</blockquote>
+@soranoguiji
+
+推特50万粉，在cm上被围待遇，肯定很有名吧，不过国内多多卖肉那些coser更容易给人名气更大的错觉？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  player3960  
+##### 1607#       发表于 2021-12-7 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53838427&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-7 11:04</a>
+
+那么更高量级的都有？</blockquote>
+再高级那估计就到福利姬的范畴了...鲤鱼还不至于<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

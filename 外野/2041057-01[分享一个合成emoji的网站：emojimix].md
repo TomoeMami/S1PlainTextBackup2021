@@ -860,3 +860,14 @@ IMG_5626.PNG
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Kanoya  
+##### 65#       发表于 2021-12-7 11:24
+
+阴阳怪气超级加倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/48ebaa8bdd9278306d7e04d02dc40a26/u1f605_u1f910.png" referrerpolicy="no-referrer">
+

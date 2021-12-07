@@ -4020,3 +4020,12 @@ Sanlow，给个痛快
 
 一周年直播出国风新团曲的话，乃宝的单曲大概要避免在团曲之下毫无热度所以会再往后稍稍，大概稍一个月？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 310#         楼主| 发表于 2021-12-7 11:19
+
+乃琳Queen:[发布动态](https://t.bilibili.com/601299733595963315) <blockquote>经过友好地交流，我用火腿肠和猫猫交换了rua脑袋十分钟～</blockquote>
+
