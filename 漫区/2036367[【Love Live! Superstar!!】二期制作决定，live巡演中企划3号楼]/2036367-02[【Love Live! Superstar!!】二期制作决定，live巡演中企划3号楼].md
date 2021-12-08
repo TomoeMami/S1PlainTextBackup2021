@@ -2454,3 +2454,12 @@ pay有拍睁闭双眼的</blockquote>
 顺便苍天君自己有开liella的QQ群 群号在他B站简介里</blockquote>
 群里人平均年龄大么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 1743#       发表于 2021-12-9 00:53
+
+你楼其实蛮合适的，说到底一个企划也没那么多信息天天搁群聊吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
