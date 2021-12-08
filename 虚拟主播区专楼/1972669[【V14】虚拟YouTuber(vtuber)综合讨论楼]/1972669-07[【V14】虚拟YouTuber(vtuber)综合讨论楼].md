@@ -2160,3 +2160,32 @@ Syl，King确认养狗，狗叫出声了，虹这些主播一个两个养个小�
 
 看得出来气死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 9176#       发表于 2021-12-8 19:23
+
+彩虹好死！！！
+
+*****
+
+####  rzrbtk  
+##### 9177#       发表于 2021-12-8 19:25
+
+inui唱了phony，感觉最近选曲相当跟随热点，是不是下一首要唱神ぽい了…我个人比起es曲果然还是更爱术曲惹
+
+*****
+
+####  OldGlory  
+##### 9178#       发表于 2021-12-8 19:34
+
+静凛Official
+
+1 小时前
+
+我 不 知 道 我 不 参 加 ！
+
+（注：指NIJISANJI与DLsite的联动音声）
+

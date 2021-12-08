@@ -1930,3 +1930,73 @@ B站这个到liella唱了
 
 太短了，气死我了，就像吃牛排大餐，我才吃完配菜满足的把第一块牛排吃进口，然后服务生马上就把盘子收走了
 
+
+
+*****
+
+####  cybernetics31  
+##### 1700#       发表于 2021-12-8 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特看到吐槽鲤鱼身高比刀男人还高的
+
+*****
+
+####  chenflyyy  
+##### 1701#       发表于 2021-12-8 19:25
+
+跟刀男共用一个环节的，就半首歌，排面还是不够
+希望星未来哪天能成长到前面乃团那些的地位吧
+
+*****
+
+####  cqc1021  
+##### 1702#       发表于 2021-12-8 19:25
+
+ 本帖最后由 cqc1021 于 2021-12-8 19:32 编辑 
+
+FNS万年的一组人一分半钟，能超过三分钟的都不是一般的歌手<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  猫睛石  
+##### 1703#       发表于 2021-12-8 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53857844&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-12-8 19:21</a>
+推特看到吐槽鲤鱼身高比刀男人还高的</blockquote>
+日本人这么矮吗，还看到人说日本新一代平均身高比中国人高云云
+
+*****
+
+####  稀勢のささ  
+##### 1704#       发表于 2021-12-8 19:35
+
+<img src="https://img.saraba1st.com/forum/202112/08/193536nds9p15484p4td6p.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211208193522.png</strong> (102.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-8 19:35 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 1705#       发表于 2021-12-8 19:38
+
+哪止一分半，一分半唱完第一段就没了，算上d melo和第二段副歌起码两分半
+
+乃团来也是差不多，因为绝大多数歌手尤其是偶像的歌的表演版本通常就是差不多这么长，除非唱全曲或者唱多两首
+
+*****
+
+####  player3960  
+##### 1706#       发表于 2021-12-8 19:45
+
+今天的导播有心了，切镜运镜基本还原了动画，编舞也是<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
