@@ -2080,3 +2080,25 @@ Syl，King确认养狗，狗叫出声了，虹这些主播一个两个养个小�
 
 我怎么记得大半年前king就在说养狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 9168#       发表于 2021-12-8 14:35
+
+ 本帖最后由 FCCHua 于 2021-12-8 14:38 编辑 
+
+<strong>【雨森小夜 3Dお披露目配信中止のお知らせ】
+12/10(金)21:00〜配信を予定しておりました雨森小夜3Dお披露目配信について、
+本人の一身上の都合により急遽中止させていただくこととなりました。
+配信を楽しみにしていただいた皆様には誠に恐れ入りますが、何卒ご理解を賜りますようお願いいたします。</strong>
+只能说这很小夜，记得几个月之前说要发翻唱，延期后至今没有踪影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asdhai  
+##### 9169#       发表于 2021-12-8 14:39
+
+三角形小姐姐休止<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
