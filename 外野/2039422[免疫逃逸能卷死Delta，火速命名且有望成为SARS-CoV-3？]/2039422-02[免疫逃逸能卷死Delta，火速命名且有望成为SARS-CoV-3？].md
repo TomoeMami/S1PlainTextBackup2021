@@ -3036,3 +3036,15 @@ Sotrovimab是葛兰素史克和Vir公司联合研发的一种泛sarbecovirus单�
 
 从都是轻症变重症比例较低了，下一步就该是死亡病例较低，再下一步就该是请病人不要死在走廊上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天使日又日  
+##### 1755#       发表于 2021-12-8 12:04
+
+欧冠都还没空场比赛，欧洲佬还没怕啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+临近圣诞，去年封了一次把他们憋坏了，今年那群货要封也是拖过圣诞新年之后了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
