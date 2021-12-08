@@ -2000,3 +2000,27 @@ FNS万年的一组人一分半钟，能超过三分钟的都不是一般的歌�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  中野四葉  
+##### 1707#       发表于 2021-12-8 19:50
+
+<img src="https://img.saraba1st.com/forum/202112/08/195016xnsgbnssugjnsbju.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-8 19:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 1708#       发表于 2021-12-8 20:00
+
+两分多
+

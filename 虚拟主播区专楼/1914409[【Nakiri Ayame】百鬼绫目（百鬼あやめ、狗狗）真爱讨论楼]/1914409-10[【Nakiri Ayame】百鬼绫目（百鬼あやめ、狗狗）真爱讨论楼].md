@@ -1687,3 +1687,42 @@ syl,
 
 Mio's gonna be a terrible mother. She spoils Ayame rotten and enables her behavior. If she has kids they're gonna become a bunch of unruly brats you see at Walmart.
 
+
+
+*****
+
+####  一仙  
+##### 13666#       发表于 2021-12-8 19:48
+
+<img src="https://img.saraba1st.com/forum/202112/08/194715hqxpzyqkytthok6x.png" referrerpolicy="no-referrer">
+
+<strong>20211208194654.png</strong> (37.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-8 19:47 上传
+
+第一个来和绫总互动的六期生出现了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 没有查证过，但听说这位也是姨
+
+*****
+
+####  stedckk  
+##### 13667#       发表于 2021-12-8 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53858273&amp;ptid=1914409" target="_blank">一仙 发表于 2021-12-8 19:48</a>
+
+第一个来和绫总互动的六期生出现了 没有查证过，但听说这位也是姨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">是姨，甚至很有可能是年纪最大的姨
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 一仙| + 1|绫总对姨特攻再实锤|
+
+查看全部评分
+

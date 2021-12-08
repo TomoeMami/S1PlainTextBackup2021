@@ -2189,3 +2189,23 @@ inui唱了phony，感觉最近选曲相当跟随热点，是不是下一首要�
 
 （注：指NIJISANJI与DLsite的联动音声）
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9179#       发表于 2021-12-8 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53857905&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-12-8 19:25</a>
+inui唱了phony，感觉最近选曲相当跟随热点，是不是下一首要唱神ぽい了…我个人比起es曲果然还是更爱术曲惹 ...</blockquote>
+郡噶吃觉得和声像谁？听着不像床本人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 9180#       发表于 2021-12-8 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53858341&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-8 19:53</a>
+郡噶吃觉得和声像谁？听着不像床本人</blockquote>
+我木耳听不出来，不过床预告的时候安洁有转发所以<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
