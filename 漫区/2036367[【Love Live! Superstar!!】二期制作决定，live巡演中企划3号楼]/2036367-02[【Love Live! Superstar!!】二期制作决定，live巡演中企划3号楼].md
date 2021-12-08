@@ -2351,3 +2351,29 @@ https://share.api.weibo.cn/share/267234610.html?weibo_id=4712211865929242
 
 这个是谁？pay之前女团的成员吗？<img src="https://p.sda1.dev/3/2703ca3ecd48c76e76bab1904ca7a09e/IMG_CMP_33292558.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  emmer  
+##### 1735#       发表于 2021-12-8 23:24
+
+福冈live的Vlog来了
+[https://www.bilibili.com/video/B ... _id_from=444.41.0.0](https://www.bilibili.com/video/BV1C34y1X7Wh?spm_id_from=444.41.0.0)
+
+up: 江東弱角蒼天君
+
+*****
+
+####  cybernetics31  
+##### 1736#       发表于 2021-12-8 23:31
+
+羡慕苍天君，酸了
+
+*****
+
+####  中野四葉  
+##### 1737#       发表于 2021-12-8 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小百合的推特回复差不多是其他人的两倍，太真实了。
+

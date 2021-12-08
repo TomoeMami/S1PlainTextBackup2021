@@ -3172,3 +3172,25 @@ DONT PANIC!
 ？！那真的要关闭边境了吧（x</blockquote>
 记者没文化，或者说是故意的。
 
+
+
+*****
+
+####  creymorgan  
+##### 1767#       发表于 2021-12-8 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53860280&amp;ptid=2039422" target="_blank">韩子 发表于 2021-12-8 23:00</a>
+
+？！那真的要关闭边境了吧（x</blockquote>
+为啥，中国对病例是全测序的，没有区别。
+
+*****
+
+####  中二骚年  
+##### 1768#       发表于 2021-12-8 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849925&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-8 09:22</a>
+
+https://www.bloomberg.com/news/articles/2021-12-07/gsk-antibody-treatment-works-on-omicron-mutations ...</blockquote>
+Bloomberg GSK 体外实验 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
