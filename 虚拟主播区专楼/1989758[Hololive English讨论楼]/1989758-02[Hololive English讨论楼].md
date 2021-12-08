@@ -179,3 +179,19 @@ moona今天歌回成功上万了。
 
 我以前怎么不觉得Cali能唱这种有调的歌的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">错觉吗，感觉她今天状态好好
 
+
+
+*****
+
+####  UnhappyTails  
+##### 1519#       发表于 2021-12-8 13:11
+
+直接直播lip trill练歌可太搞了
+
+*****
+
+####  shimmy1996  
+##### 1520#       发表于 2021-12-8 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">看到 #CouncilBuildAFriend 千万别点开
+

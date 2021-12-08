@@ -3086,3 +3086,15 @@ Sotrovimab是葛兰素史克和Vir公司联合研发的一种泛sarbecovirus单�
 
 至少感染了德尔塔是可以感染O变种的，感染了O变种不知道能不能同时感染德尔塔
 
+
+
+*****
+
+####  Karajan  
+##### 1759#       发表于 2021-12-8 13:20
+
+JUST A FLU!
+DONT PANIC!
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
