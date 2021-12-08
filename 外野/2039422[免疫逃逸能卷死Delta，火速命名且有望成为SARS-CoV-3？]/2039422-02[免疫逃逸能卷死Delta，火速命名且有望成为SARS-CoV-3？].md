@@ -3098,3 +3098,15 @@ DONT PANIC!
 
 —— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  wszweill  
+##### 1760#       发表于 2021-12-8 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53848099&amp;ptid=2039422" target="_blank">方舟售票员 发表于 2021-12-7 11:07</a>
+
+说了这么半天，最关键的致死率和重症率怎么样啊</blockquote>
+等一个月omicron传开了，再看看病死数量与感染数的关系呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

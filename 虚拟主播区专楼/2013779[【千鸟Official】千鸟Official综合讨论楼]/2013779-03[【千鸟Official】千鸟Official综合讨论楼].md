@@ -10045,3 +10045,22 @@ sc：推荐下专升本
 
 被带专姑娘拿捏了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逸yi  
+##### 4149#       发表于 2021-12-8 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53853084&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-8 13:27</a>
+啊 她不是说自己喜欢推理，为啥没看过解体诸因啊，那我总感觉她馆系列也没看过了 ...</blockquote>
+可以试试彩虹牙刷白井智之<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 4150#       发表于 2021-12-8 13:49
+
+<img src="https://p.sda1.dev/3/c68a8aa8bb0a7101a3665dd38833fa72/IMG_CMP_254110599.jpeg" referrerpolicy="no-referrer">
+聘子出道以后和瞳大姐静二姐联手炒作，必能对v圈儿完成绝杀。
+
