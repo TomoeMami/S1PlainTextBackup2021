@@ -7428,3 +7428,29 @@ CBA还真强化，不过宝具本有个毛用。。。
 还有个好消息 卡面菜出天际  看来你游真的是没人审稿的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人物其实还行，我觉得挺可爱的，但是背景真的是菜出天际了
 
+
+
+*****
+
+####  angelooo  
+##### 84671#       发表于 2021-12-8 17:29
+
+cba这宝具本，是不是表示这卡已经没用了，等新绿拐就行？
+
+*****
+
+####  exiaexa  
+##### 84672#       发表于 2021-12-8 17:38
+
+不会打架的玛尔达太草
+
+我怎么感觉这活动最后要解除封印
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84673#       发表于 2021-12-8 17:40
+
+坂本现在是不是你游除了苍月之外最垃圾的画师了，之前好歹马达都画的很好，这次这个圣诞马达什么玩意，也就满破表情能看，但这脑袋是不是比例不对
+
