@@ -16399,3 +16399,30 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 看了5集，高潮部分的姐妹决裂写得太潦草了，见证亲友惨死，凶手就是自认为终于帮上了忙的自己，短时间接收 ...</blockquote>
 你这才哪到哪  后面不得诀别好多次
 
+
+
+*****
+
+####  jf8350143  
+##### 2978#       发表于 2021-12-8 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849330&amp;ptid=2002246" target="_blank">dclara1 发表于 2021-12-8 08:04</a>
+看了5集，高潮部分的姐妹决裂写得太潦草了，见证亲友惨死，凶手就是自认为终于帮上了忙的自己，短时间接收 ...</blockquote>
+因为爆爆从小就有精神疾病，不是第三集炸死了人才开始有的（之前被蔚留在房间里的时候很明显）。当然后来被希尔科领养让她病的更重了。
+
+类似于华金那版的小丑，那些事情只是个催化剂，根子是早就种下了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  十点半  
+##### 2979#       发表于 2021-12-8 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849330&amp;ptid=2002246" target="_blank">dclara1 发表于 2021-12-8 08:04</a>
+
+看了5集，高潮部分的姐妹决裂写得太潦草了，见证亲友惨死，凶手就是自认为终于帮上了忙的自己，短时间接收 ...</blockquote>
+动画是法国人做的。
+
+当然了如果制作是指“制片人”的话，美国人在肯砸钱这方面确实nb
+

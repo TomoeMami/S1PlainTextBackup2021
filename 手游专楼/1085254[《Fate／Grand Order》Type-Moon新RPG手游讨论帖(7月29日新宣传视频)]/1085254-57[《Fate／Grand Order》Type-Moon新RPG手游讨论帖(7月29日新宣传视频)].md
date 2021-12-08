@@ -7248,3 +7248,30 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 
 之前的三个应该是黑呆（圣诞黑呆和女仆长）、黑贞（小黑贞和中二泳装）、还有经常被迫害的龙娘（除了机龙不算本体以外大概都算）
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84654#       发表于 2021-12-8 09:39
+
+<blockquote>引用第84650楼白金口袋于2021-12-08 09:05发表的  :
+
+引用:黑上シグマ 发表于 2021-12-7 09:40被你这么一说我去看了下，我仓库里铃铛335个......</blockquote>
+是啊，活动时间打活动，活动东西换完了我就回这儿了，每天体力用完结束
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷活动不存在的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  xiongxingyu  
+##### 84655#       发表于 2021-12-8 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849888&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-8 09:18</a>
+
+毕竟是你狗劳模樱井光的卡……出场率还是能保证的
+
+不过就算角色分支算的很严格的话，马大也应该是第四个 ...</blockquote>
+黑贞lily和一般意义上的马甲已经有点区别了（一般也不会把幼闪看做闪闪的马甲吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

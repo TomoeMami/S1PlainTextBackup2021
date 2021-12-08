@@ -2990,3 +2990,16 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 
 —— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  smy20011  
+##### 1751#       发表于 2021-12-8 09:22
+
+[https://www.bloomberg.com/news/a ... tations-study-shows](https://www.bloomberg.com/news/articles/2021-12-07/gsk-antibody-treatment-works-on-omicron-mutations-study-shows)
+
+今日，据彭博社报道，英国制药巨头葛兰素史克宣布，体外假病毒中和实验数据显示Sotrovimab单克隆抗体不仅对奥密克戎变体的一些标志性突变的有效，而且对全部突变的突刺蛋白有效，目前为止实验测试37处突变。
+
+Sotrovimab是葛兰素史克和Vir公司联合研发的一种泛sarbecovirus单克隆抗体，靶向突刺蛋白的保守表位不太可能随时间发生突变（耐药性更难产生），能够将轻度或中度新冠患者住院和死亡的风险降低79%。
+
