@@ -7507,3 +7507,21 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 马尔斯：助战的锅老子不背，自己找陈宫把那两个摸鱼的给射出去</blockquote>
 你让我换人我就不给你马尔斯<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  承尘  
+##### 84680#       发表于 2021-12-8 18:35
+
+120石new了cba，然后继续长草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cckuku  
+##### 84681#       发表于 2021-12-8 18:37
+
+你们觉得…这妖兰礼装好看吗？卧槽我觉得好丑可是我看nga都在夸我有点怀疑我自己的审美<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
