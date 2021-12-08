@@ -2129,3 +2129,14 @@ Syl，King确认养狗，狗叫出声了，虹这些主播一个两个养个小�
 
 我还蛮喜欢小夜的
 
+
+
+*****
+
+####  FCCHua  
+##### 9173#       发表于 2021-12-8 18:19
+
+[https://twitter.com/Vspo77/status/1468520901050515459](https://twitter.com/Vspo77/status/1468520901050515459)
+这安排，运营里一定有厄介吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/701b440ae51d8a80437fc2f2831049c9/IMG_CMP_226611608.jpeg" referrerpolicy="no-referrer">
+

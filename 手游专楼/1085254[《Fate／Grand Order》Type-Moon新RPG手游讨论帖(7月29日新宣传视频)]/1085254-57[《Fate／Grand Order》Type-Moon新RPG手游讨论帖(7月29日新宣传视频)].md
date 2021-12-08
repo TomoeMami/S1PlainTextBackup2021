@@ -7475,3 +7475,35 @@ cba这宝具本，是不是表示这卡已经没用了，等新绿拐就行？
 你不能因为肉肉长期没出新卡就拉踩你游垫底双壁啊</blockquote>
 所以我说的是现在，肉肉出了新卡再版本更新吧
 
+
+
+*****
+
+####  森兰丸  
+##### 84676#       发表于 2021-12-8 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">**YLS.....400不到的石头和50护符下去又沉了.....看来和CBA是真的无缘
+
+*****
+
+####  qixinno2  
+##### 84677#       发表于 2021-12-8 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在完全没必要去抽CBA了吧
+
+*****
+
+####  khxooo  
+##### 84678#       发表于 2021-12-8 18:19
+
+CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 84679#       发表于 2021-12-8 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53853352&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-12-8 13:47</a>
+马尔斯：助战的锅老子不背，自己找陈宫把那两个摸鱼的给射出去</blockquote>
+你让我换人我就不给你马尔斯<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
