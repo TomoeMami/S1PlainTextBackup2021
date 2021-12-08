@@ -1493,3 +1493,15 @@ ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和�
 
 —— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  TheOccuria  
+##### 148#       发表于 2021-12-8 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849969&amp;ptid=2040615" target="_blank">liva 发表于 2021-12-8 09:27</a>
+
+建议不要拉拉肥最后对拳，简直就是气氛破坏者</blockquote>
+我就是拉拉肥，挺喜感的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

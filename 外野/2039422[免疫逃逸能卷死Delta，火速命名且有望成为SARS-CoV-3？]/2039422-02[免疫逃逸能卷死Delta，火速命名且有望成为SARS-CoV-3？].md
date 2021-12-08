@@ -3012,3 +3012,14 @@ Sotrovimab是葛兰素史克和Vir公司联合研发的一种泛sarbecovirus单�
 
 离达叔的反生命方程式还有多远 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 1753#       发表于 2021-12-8 10:50
+
+人类总在重复相同的错误<img src="https://static.saraba1st.com/image/smiley/carton2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
