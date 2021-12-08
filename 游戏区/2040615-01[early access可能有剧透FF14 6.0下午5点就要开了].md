@@ -1670,3 +1670,18 @@ ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和�
 不找代充，保证网页和游戏登录的IP不乱窜，应该是不会出问题的</blockquote>
 [https://bbs.nga.cn/read.php?tid=29751428](https://bbs.nga.cn/read.php?tid=29751428)  按这个里的案例，就是什么都没干就有可能被封
 
+
+
+*****
+
+####  何でやねん  
+##### 164#       发表于 2021-12-8 22:02
+
+ 本帖最后由 何でやねん 于 2021-12-8 22:20 编辑 
+
+ea就在打到今天终于磨磨蹭蹭打完了，灭了三回把华哥打哭，又跪了三回把大屁股打哭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+没了海妈我就只是个菜鸡冒险者了，以后这日子咋过啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+也还是经典范特西jrpg的惯用套路，剧情掰开了说是拯救大号抑郁症患者，华哥所思所想跟我一模一样，要不是剧情安排我早跳反了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

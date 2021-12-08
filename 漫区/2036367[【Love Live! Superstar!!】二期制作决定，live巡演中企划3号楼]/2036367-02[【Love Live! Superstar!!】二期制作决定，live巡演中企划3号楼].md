@@ -2193,3 +2193,21 @@ https://share.api.weibo.cn/share/267234610.html?weibo_id=4712211865929242
 草</blockquote>
 这魔王一般的表情<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 1723#       发表于 2021-12-8 22:10
+
+油管官方频道更新了练舞室的未来预报，真会挑时间啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 1724#       发表于 2021-12-8 22:17
+
+<img src="https://p.sda1.dev/3/b0bcf93a0e9a57763aa94365115a7c40/IMG_CMP_63721545.jpeg" referrerpolicy="no-referrer">
+
