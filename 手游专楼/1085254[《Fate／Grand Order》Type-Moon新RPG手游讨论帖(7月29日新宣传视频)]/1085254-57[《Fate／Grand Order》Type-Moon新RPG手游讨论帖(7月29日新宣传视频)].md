@@ -7201,3 +7201,24 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 第三管血尼玛130万，灵脉石 ...</blockquote>
 第三管血初始40w，然后增加剩下的鳞片数量x20w（5t内破2管血）/x7w5（超过5t破2管血）
 
+
+
+*****
+
+####  xiongxingyu  
+##### 84650#       发表于 2021-12-8 08:51
+
+话说回来，铁拳圣女也是个闷声赚大钱的主啊，各种活动里戏份不断梗又多，人气意外的高（某站上的小黄图那叫一个多）。这回圣诞马达实装之后就是fgo除了看板娘之外第一个有2个马甲的从者了。而且按照手游传统意义上马甲是同一人穿不同衣服来算（呆毛、黑呆、枪呆不算一个人），马达是继黑呆之后第二个有达成泳装圣诞双马甲的从者，看板娘本体都没有这个待遇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 84651#       发表于 2021-12-8 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53847850&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-7 09:40</a>
+
+被你这么一说我去看了下，我仓库里铃铛335个，鳞粉194个，不慌
+
+倒是钉子比铃铛还少，329个</blockquote>
+敢问一句你咋做到的，天天蹲在オックスフォード就没出去过是吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

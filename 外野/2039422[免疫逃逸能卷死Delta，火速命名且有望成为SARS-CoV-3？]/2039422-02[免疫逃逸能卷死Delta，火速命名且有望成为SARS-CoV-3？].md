@@ -2975,3 +2975,18 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 
 离上次三哥当街烧人才半年，这就又来了吗
 
+
+
+*****
+
+####  金鱼师父  
+##### 1750#       发表于 2021-12-8 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53727194&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-11-27 22:24</a>
+本来上层政客就不会把下面的人当人，而且死的老人不但国家当他们是负担，年轻人也觉得让老人死挺好的。
+
+ ...</blockquote>
+就这样还有南京的拉胯式防疫 要不是运气好没传到市区 再看看同期武汉的二次防疫 还真是上到官员下到百姓齐上阵
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
