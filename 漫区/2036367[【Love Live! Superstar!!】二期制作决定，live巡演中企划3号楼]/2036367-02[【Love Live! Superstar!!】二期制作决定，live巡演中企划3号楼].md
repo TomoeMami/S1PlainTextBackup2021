@@ -2463,3 +2463,14 @@ pay有拍睁闭双眼的</blockquote>
 
 你楼其实蛮合适的，说到底一个企划也没那么多信息天天搁群聊吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 1744#       发表于 2021-12-9 06:15
+
+ 本帖最后由 stygian 于 2021-12-9 06:17 编辑 
+
+FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升，虽然sayu最后サビ的高音还是破了不过人均车祸的fns已经是A+表现，高强度日程效果还是很明显的
+
