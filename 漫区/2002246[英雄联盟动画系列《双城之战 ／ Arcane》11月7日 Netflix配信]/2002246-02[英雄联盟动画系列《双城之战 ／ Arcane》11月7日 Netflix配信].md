@@ -16550,3 +16550,15 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Siran_China  
+##### 2991#       发表于 2021-12-8 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53857673&amp;ptid=2002246" target="_blank">ybfelix 发表于 2021-12-8 19:09</a>
+
+另外片中对双城的起源和历史矛盾感觉有意大片留白，可能是为了将来扩展方便，不把自己写进角落里？只言片语 ...</blockquote>
+早些年只有祖安，祖安是恕瑞玛王国边境上繁荣的港口城市，后来修建日之门船闸的时候使用了炸药，产生了意想不到的后果——陆沉，三分之一的城市沉入海底，还有三分之一直接降到了城市地基下方。尽管如此日之门船闸最终仍然修建完成了，给这座城市带来了数不清的财富。再后来随着时代发展，没有受到陆沉灾难影响的三分之一城市和地底的三分之一城市逐渐分道扬镳，前者给自己起了个新名字皮尔特沃夫，后者仍然叫祖安。
+

@@ -7570,3 +7570,14 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 不好看，我不承认这是妖兰<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rollingusagi  
+##### 84687#       发表于 2021-12-8 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这真不是卡莲在cos妖兰？这帽子可太显眼了，还都是白毛琥珀瞳，別个发卡就ok了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

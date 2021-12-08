@@ -1685,3 +1685,14 @@ ea就在打到今天终于磨磨蹭蹭打完了，灭了三回把华哥打哭，
 
 也还是经典范特西jrpg的惯用套路，剧情掰开了说是拯救大号抑郁症患者，华哥所思所想跟我一模一样，要不是剧情安排我早跳反了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  边缘中心  
+##### 165#       发表于 2021-12-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53851758&amp;ptid=2040615" target="_blank">yth329 发表于 2021-12-8 11:43</a>
+为啥我在国外注册当地外服新号还总是i2501啊，加速器啥的都没开</blockquote>
+换手机流量试试
+
