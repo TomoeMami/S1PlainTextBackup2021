@@ -2225,3 +2225,29 @@ inui唱了phony，感觉最近选曲相当跟随热点，是不是下一首要�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">xiaoye
 
+
+
+*****
+
+####  毛头小希  
+##### 9183#       发表于 2021-12-8 21:40
+
+ 本帖最后由 毛头小希 于 2021-12-8 21:41 编辑 
+
+小夜发推回应了，家里的私事
+
+季节来说也蛮常见的吧，比如上了年纪的长辈什么的……
+
+能处理好再回来就好，幸好不是本人有什么意外
+
+图隔壁搬的
+
+-zue37Q2p-9w9hZ1aT3cSyi-k2.jpg
+(127.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-8 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202112/08/214008lfjtuxjrzlfhf7ll.jpg" referrerpolicy="no-referrer">
+
