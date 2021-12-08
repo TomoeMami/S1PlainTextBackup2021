@@ -3119,3 +3119,15 @@ DONT PANIC!
 
 【南非最新研究：辉瑞疫苗对奥密克戎毒株免疫保护大幅下降】12月7日南非研究团队发布的最新研究结果显示，辉瑞疫苗对奥密克戎毒株的免疫保护作用下降约40倍。该毒株对辉瑞疫苗显示出部分免疫逃脱。此研究结果尚未经同行评审。
 
+
+
+*****
+
+####  jianrenmi  
+##### 1762#       发表于 2021-12-8 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53825791&amp;ptid=2039422" target="_blank">中二骚年 发表于 2021-12-6 11:05</a>
+
+别给Fake News贴金了，真要吹哨就在南非报告之前吹，现在顶多是吹箫</blockquote>
+啊？不该是吹唢呐么？
+
