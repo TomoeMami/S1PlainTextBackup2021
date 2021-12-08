@@ -4060,3 +4060,14 @@ Sanlow，给个痛快
 
 乃琳Queen:[发布动态](https://t.bilibili.com/601706892195216381)<blockquote>哈哈哈哈哈哈哈哈哈哈哈哈晚晚背歌词的时候会把自己气到蹦蹦跳跳诶哈哈哈哈哈哈哈哈哈哈哈哈</blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 314#         楼主| 发表于 2021-12-8 21:00
+
+乃琳Queen:[发布动态](https://t.bilibili.com/601853153012543535)
+<blockquote>哎呀想给你们放晚的录音又忘了哈哈哈哈哈哈哈哈哈，下次吧哈哈哈哈哈哈哈哈哈</blockquote>
+syl感谢乃宝高速发动态<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
