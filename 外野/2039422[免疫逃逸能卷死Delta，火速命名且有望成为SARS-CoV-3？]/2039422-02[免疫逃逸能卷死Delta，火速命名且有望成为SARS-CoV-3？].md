@@ -3023,3 +3023,16 @@ Sotrovimab是葛兰素史克和Vir公司联合研发的一种泛sarbecovirus单�
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  最好不说  
+##### 1754#       发表于 2021-12-8 11:45
+
+ 本帖最后由 最好不说 于 2021-12-8 11:46 编辑 
+
+南非三大私立医院集团之一的mediclinic international表示，新冠肺炎患者的涌入正在不断增加，但只有少数人需要入院接受进一步治疗。Mediclinic在周二的一份声明中说，奥密克戎变体“似乎具有高度传染性”。不过，“到目前为止，需要重症监护和通气的新冠肺炎入院患者的比例较低。”
+
+从都是轻症变重症比例较低了，下一步就该是死亡病例较低，再下一步就该是请病人不要死在走廊上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

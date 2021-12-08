@@ -7322,3 +7322,15 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 打完第三管血还蹦出来一个第四阶段，又是130W ...</blockquote>
 道满就是个DD，不管是剧情上还是关卡里。一边看剧情里道满被我方嘴炮到破防，一边在关卡里花式吊打道满，2.5.5最后两节的体验不要太好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">p.s. 道满战有2.5.2宙斯战同款的高达魔术礼装助战，一看就是让你爽的。
 
+
+
+*****
+
+####  khxooo  
+##### 84660#       发表于 2021-12-8 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53850538&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-12-8 10:15</a>
+
+道满就是个DD，不管是剧情上还是关卡里。一边看剧情里道满被我方嘴炮到破防，一边在关卡里花式吊打道满，2 ...</blockquote>
+宙斯战的礼装真的是让你爽吗<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

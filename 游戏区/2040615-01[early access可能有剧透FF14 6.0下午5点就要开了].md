@@ -1546,3 +1546,35 @@ ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和�
 本来是这么想的，然后忍不住找来6.0的BGM听 ...</blockquote>
 你在说啥？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  放大镜  
+##### 152#       发表于 2021-12-8 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53851775&amp;ptid=2040615" target="_blank">abcdefgadsl 发表于 2021-12-8 11:44</a>
+
+你在说啥？</blockquote>
+本来是想引用123楼
+
+*****
+
+####  TheOccuria  
+##### 153#       发表于 2021-12-8 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53851758&amp;ptid=2040615" target="_blank">yth329 发表于 2021-12-8 11:43</a>
+
+为啥我在国外注册当地外服新号还总是i2501啊，加速器啥的都没开</blockquote>
+找客服battle一下
+
+*****
+
+####  laputahao  
+##### 154#       发表于 2021-12-8 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53843949&amp;ptid=2040615" target="_blank">Ginnody 发表于 2021-12-7 18:16</a>
+
+我是觉得论剧本整体和立意都挺不错的，但拆开看每个环节发现大多数细节和部分逻辑全都在恶心我……（不是指 ...</blockquote>
+从2.0一直以来的大纲都没毛病啊 就是SE不知道为啥一直执拗的认为大家都喜欢它这一套特色剧情细节 明明倒退回小胡子时代那味也行 前进一下学学近几年火的冻鳗也行 它就不 
+
