@@ -7454,3 +7454,24 @@ cba这宝具本，是不是表示这卡已经没用了，等新绿拐就行？
 
 坂本现在是不是你游除了苍月之外最垃圾的画师了，之前好歹马达都画的很好，这次这个圣诞马达什么玩意，也就满破表情能看，但这脑袋是不是比例不对
 
+
+
+*****
+
+####  katun  
+##### 84674#       发表于 2021-12-8 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856473&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-8 17:40</a>
+
+坂本现在是不是你游除了苍月之外最垃圾的画师了，之前好歹马达都画的很好，这次这个圣诞马达什么玩意，也就 ...</blockquote>
+你不能因为肉肉长期没出新卡就拉踩你游垫底双壁啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84675#       发表于 2021-12-8 18:04
+
+<blockquote>katun 发表于 2021-12-8 18:01
+你不能因为肉肉长期没出新卡就拉踩你游垫底双壁啊</blockquote>
+所以我说的是现在，肉肉出了新卡再版本更新吧
+

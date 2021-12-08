@@ -1677,3 +1677,43 @@ FNS演出
 
 求个直播间，水管没信号了
 
+
+
+*****
+
+####  chenflyyy  
+##### 1669#       发表于 2021-12-8 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856445&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-8 17:38</a>
+求个直播间，水管没信号了</blockquote>
+v总现在就在转播
+https://b23.tv/CZXyycx
+
+*****
+
+####  Karin11974  
+##### 1670#       发表于 2021-12-8 17:57
+
+裂拉排最后，大概是几点？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chenflyyy  
+##### 1671#       发表于 2021-12-8 17:59
+
+草，v总的寄了，最后一个差不多快7点吧
+
+*****
+
+####  lj205  
+##### 1672#       发表于 2021-12-8 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856536&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-8 17:45</a>
+
+v总现在就在转播
+
+https://b23.tv/CZXyycx</blockquote>
+被警告了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

@@ -1658,3 +1658,15 @@ ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和�
 听说最近国际服入坑日区有可能2501被封？lga有不少案例</blockquote>
 不找代充，保证网页和游戏登录的IP不乱窜，应该是不会出问题的
 
+
+
+*****
+
+####  摸鱼玩家  
+##### 163#       发表于 2021-12-8 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856261&amp;ptid=2040615" target="_blank">宿 发表于 2021-12-8 17:22</a>
+
+不找代充，保证网页和游戏登录的IP不乱窜，应该是不会出问题的</blockquote>
+[https://bbs.nga.cn/read.php?tid=29751428](https://bbs.nga.cn/read.php?tid=29751428)  按这个里的案例，就是什么都没干就有可能被封
+
