@@ -3005,3 +3005,17 @@ Oculus Quest v35 更新推出，对国内玩家比较有用的是<strong>全局�
 
 问个问题，之前一直想安装vd，现在已经付了款了但是在头戴设备里的商店总是加载不出vd 的商店界面，下载不了，怎么整啊
 
+
+
+*****
+
+####  金赛性学报告  
+##### 195#       发表于 2021-12-8 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53804684&amp;ptid=2034565" target="_blank">AndrewChen 发表于 2021-12-4 12:05</a>
+
+问个问题，之前一直想安装vd，现在已经付了款了但是在头戴设备里的商店总是加载不出vd 的商店界面，下载不 ...</blockquote>
+一个字
+
+翻
+

@@ -1607,3 +1607,17 @@ ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和�
 
 受牙狼的影响吧，牙狼惯例就是打完最强的大怪以后，再和黑骑单挑一场
 
+
+
+*****
+
+####  LrGsite  
+##### 158#         楼主| 发表于 2021-12-8 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53851583&amp;ptid=2040615" target="_blank">放大镜 发表于 2021-12-8 11:31</a>
+
+国服牵扯太多，也不是说丢就能丢下的，再说时间也不允许跑两遍
+
+本来是这么想的，然后忍不住找来6.0的BGM听 ...</blockquote>
+现在在最后一张地图上的bgm无限循环
+
