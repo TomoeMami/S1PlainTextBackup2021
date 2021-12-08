@@ -10148,3 +10148,60 @@ sc：推荐下专升本
 
 syl，怎么又去医院了我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 4161#       发表于 2021-12-8 14:43
+
+内德维德老师是特殊的，呜呜呜！内德维德你出来！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  T型钉宫病毒  
+##### 4162#       发表于 2021-12-8 14:43
+
+给我当面狠狠地骂内德维德<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 4163#       发表于 2021-12-8 14:44
+
+破大防了，两边都破了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4164#       发表于 2021-12-8 14:44
+
+呜呜呜！内德维德你出来
+
+*****
+
+####  haruhiismer  
+##### 4165#       发表于 2021-12-8 14:48
+
+怎么老有这种纱布，给我气氛整低气压了
+
+*****
+
+####  灰色的狐狸  
+##### 4166#       发表于 2021-12-8 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">虽然感觉直播都在看，但好多节奏都跟不上
+
+服了，这个又是之前什么事的脚后跟
+
+*****
+
+####  袜子  
+##### 4167#       发表于 2021-12-8 14:56
+
+粉丝群体出现了偏差，人数变多了那么自然就有不同的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明静确实大V了，好起来了，那么一月份没投资毕业也近在咫尺了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
