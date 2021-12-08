@@ -2080,3 +2080,72 @@ bili.com/video/BV1HM4y1A7J2补个链接
 —— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 https://share.api.weibo.cn/share/267234610.html?weibo_id=4712211865929242
 
+
+
+*****
+
+####  Karin11974  
+##### 1715#       发表于 2021-12-8 20:28
+
+编舞很还原，打铁匠也很用力，比live版本好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  名津流  
+##### 1716#       发表于 2021-12-8 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53858297&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-12-8 19:50</a></blockquote>
+之前不是还有5ch的阿宅说，鲤鱼家境好，做什么都能成功，所以不该祝贺她梦想成真做了lovelive的声优，而是应该谢谢她选择做lovelive的声优
+
+*****
+
+####  zylwz  
+##### 1717#       发表于 2021-12-8 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53858894&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-8 20:35</a>
+
+之前不是还有5ch的阿宅说，鲤鱼家境好，做什么都能成功，所以不该祝贺她梦想成真做了lovelive的声优，而 ...</blockquote>
+家境好还要穿着国内带过去的两位数价格的衣服做节目吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还要在国内读个本科留条后路吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+鱼当然算家境好的 但是撑死了就是有底气去追梦的家境 
+
+还不至于好到能自由选择的地步
+
+*****
+
+####  仟音一心  
+##### 1718#       发表于 2021-12-8 20:44
+
+草
+
+9B7925E0-2BAF-4D93-A002-D9A4F97CBA99.jpeg
+(136.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-8 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202112/08/204404wlnncl6nl5oh2dl4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1E8B504B-A259-4557-A8F7-FC1BEE1A9925.jpeg
+(128.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-8 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202112/08/204404mopb5r5rg0mo05rm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+27951D88-9195-4569-A5AC-A07DA1C9496A.jpeg
+(174.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-8 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202112/08/204404epu6sidxsnieq3sd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
