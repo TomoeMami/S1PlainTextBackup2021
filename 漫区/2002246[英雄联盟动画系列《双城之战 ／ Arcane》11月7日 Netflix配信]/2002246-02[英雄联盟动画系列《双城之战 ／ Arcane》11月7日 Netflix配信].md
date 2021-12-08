@@ -16471,3 +16471,14 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神话装版本伤害溢出是这样的
 
+
+
+*****
+
+####  acejoe  
+##### 2985#       发表于 2021-12-8 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849967&amp;ptid=2002246" target="_blank">jf8350143 发表于 2021-12-8 09:26</a>
+因为爆爆从小就有精神疾病，不是第三集炸死了人才开始有的（之前被蔚留在房间里的时候很明显）。当然后来 ...</blockquote>
+华金的小丑也是这点被喷啊，都是说华金的表演太吊让人忽视了剧情。
+

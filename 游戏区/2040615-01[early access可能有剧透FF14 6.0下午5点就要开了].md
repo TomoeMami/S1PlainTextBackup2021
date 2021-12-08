@@ -1505,3 +1505,44 @@ ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和�
 建议不要拉拉肥最后对拳，简直就是气氛破坏者</blockquote>
 我就是拉拉肥，挺喜感的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  放大镜  
+##### 149#       发表于 2021-12-8 11:31
+
+ 本帖最后由 放大镜 于 2021-12-8 11:41 编辑 
+
+国服牵扯太多，也不是说丢就能丢下的，再说时间也不允许跑两遍
+
+本来是这么想的，然后忍不住找来6.0的BGM听了下……
+
+[https://www.bilibili.com/video/BV1Fb4y1z7Ef?p=2](https://www.bilibili.com/video/BV1Fb4y1z7Ef?p=2)
+
+……现在盛大或者盛趣还作势要删久悬号吗，19年回归国服也没见什么损失，他要现在删我肯定润走啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+————————————————————————————————————————
+
+这个合辑下的高热评论虽不至剧透但肯定会影响初见体验，我多半还要等半年影响不大，正在玩的最好不要往下翻
+
+*****
+
+####  yth329  
+##### 150#       发表于 2021-12-8 11:43
+
+为啥我在国外注册当地外服新号还总是i2501啊，加速器啥的都没开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  abcdefgadsl  
+##### 151#       发表于 2021-12-8 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53851583&amp;ptid=2040615" target="_blank">放大镜 发表于 2021-12-8 11:31</a>
+国服牵扯太多，也不是说丢就能丢下的，再说时间也不允许跑两遍
+
+本来是这么想的，然后忍不住找来6.0的BGM听 ...</blockquote>
+你在说啥？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
