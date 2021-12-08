@@ -1794,3 +1794,139 @@ https://b23.tv/FJnCSq9
 
 草，鲤鱼比左边男的还高
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1682#       发表于 2021-12-8 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我草，居然去演播室了，那这是live了啊
+
+还见到拉希了
+
+*****
+
+####  saglork  
+##### 1683#       发表于 2021-12-8 19:04
+
+lovelive和刀男还真是有缘呢，水团红白那年好像也是和刀男一起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 1684#       发表于 2021-12-8 19:04
+
+斗鱼这个是不是慢半拍orz，还在广告
+
+*****
+
+####  chenflyyy  
+##### 1685#       发表于 2021-12-8 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53857600&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-8 19:04</a>
+斗鱼这个是不是慢半拍orz，还在广告</blockquote>
+慢了好多，我刚刚发的B站快些
+B站这个到liella唱了
+
+*****
+
+####  musicat  
+##### 1686#       发表于 2021-12-8 19:06
+
+挺不错啊，芜湖<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 1687#       发表于 2021-12-8 19:08
+
+ｶﾉﾝｻﾝ!ｽﾊﾞﾗｼｲﾃﾞｽ!
+
+*****
+
+####  saglork  
+##### 1688#       发表于 2021-12-8 19:09
+
+果然这选曲很值得商榷，基本是小百合和四个伴舞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 1689#       发表于 2021-12-8 19:09
+
+挺稳的，可惜还是太短了
+
+*****
+
+####  稀勢のささ  
+##### 1690#       发表于 2021-12-8 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一边唱完了另一边还没开始
+
+*****
+
+####  chenflyyy  
+##### 1691#       发表于 2021-12-8 19:09
+
+ 本帖最后由 chenflyyy 于 2021-12-8 19:11 编辑 
+
+还是挺稳的，sayu绷住了，还是少有的几个live，没翻车可以了
+
+*****
+
+####  寒风夜  
+##### 1692#       发表于 2021-12-8 19:10
+
+稳
+
+*****
+
+####  A0171050  
+##### 1693#       发表于 2021-12-8 19:11
+
+虽然都吐槽选曲，但是只有1分多钟的话，未来予報ハレルヤ应该还是比较合适吧，不然1分多钟哪有时间给你一人一句solo啊
+
+*****
+
+####  cat1230  
+##### 1694#       发表于 2021-12-8 19:13
+
+小百合非常稳~~~
+
+*****
+
+####  musicat  
+##### 1695#       发表于 2021-12-8 19:14
+
+考虑时长，这选曲够可以了，本来就抓耳加容易表现。
+当然个人还是觉得第一印象最强的还是常夏，就是没有5人版本。
+
+*****
+
+####  蜜梨柑  
+##### 1696#       发表于 2021-12-8 19:14
+
+镜头不错，比live的好<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 1697#       发表于 2021-12-8 19:16
+
+下楼拿了个外卖就没了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 1698#       发表于 2021-12-8 19:19
+
+刚刚被抓去拍照错过了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1699#       发表于 2021-12-8 19:20
+
+太短了，气死我了，就像吃牛排大餐，我才吃完配菜满足的把第一块牛排吃进口，然后服务生马上就把盘子收走了
+
