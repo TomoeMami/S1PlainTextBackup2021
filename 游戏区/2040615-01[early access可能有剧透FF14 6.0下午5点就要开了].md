@@ -1696,3 +1696,30 @@ ea就在打到今天终于磨磨蹭蹭打完了，灭了三回把华哥打哭，
 为啥我在国外注册当地外服新号还总是i2501啊，加速器啥的都没开</blockquote>
 换手机流量试试
 
+
+
+*****
+
+####  psvsd  
+##### 166#       发表于 2021-12-9 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856645&amp;ptid=2040615" target="_blank">摸鱼玩家 发表于 2021-12-8 17:55</a>
+ https://bbs.nga.cn/read.php?tid=29751428  按这个里的案例，就是什么都没干就有可能被封 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6.0去国际服那一批黑卡礼物码，代充，跨区cdk，汉化补丁，奇怪梯子总有一款适合您
+国际服常驻国人、5.0蝗一波都没遇到什么问题，怎么他们这就出问题了
+
+*****
+
+####  psvsd  
+##### 167#       发表于 2021-12-9 02:18
+
+73和77本感觉挺有JDK风格的
+不知道是soken写舞曲也这么上手还是黄埔军校又向社会输送人才了（
+
+*****
+
+####  摸鱼玩家  
+##### 168#       发表于 2021-12-9 03:16
+
+不管了，今天开冲6.0
+

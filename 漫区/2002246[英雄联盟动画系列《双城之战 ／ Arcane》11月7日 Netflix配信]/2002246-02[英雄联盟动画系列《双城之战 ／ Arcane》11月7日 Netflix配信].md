@@ -16585,3 +16585,96 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 爆爆开大神曲What Could Have Been
 
+
+
+*****
+
+####  ののワ  
+##### 2993#       发表于 2021-12-9 03:21
+
+ 本帖最后由 ののワ 于 2021-12-9 03:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849330&amp;ptid=2002246" target="_blank">dclara1 发表于 2021-12-8 08:04</a>
+
+看了5集，高潮部分的姐妹决裂写得太潦草了，见证亲友惨死，凶手就是自认为终于帮上了忙的自己，短时间接收 ...</blockquote>
+1哪里决裂了？蔚被关进黑牢大几年一直想着出去找爆。爆一直留着蔚给她的信号弹当念想，即使她的畜生养父在蔚的事情上骗了她。
+
+2救爹行动马上成功结果因为爆出场搞砸一切，亲人全都惨死面前，蔚的一点过激反应很正常吧，随后发现爆危险了立刻回去，这时候就被绑走了，这哪里欠琢磨。
+
+3爆本来就是病态依赖人格，具体来说就是依赖蔚，蔚冒险救父的时候自己在房间里都能给自己整崩溃了，这种情况下蔚离开了濒临彻底崩溃，希尔科乘虚而入，于是换了个人依赖。
+
+4是不是真的有人觉得爆在害死一家人之前没精神问题啊？
+
+5是不是真的有人觉得爆在害死一家人之前就有精神问题这件事很突兀很难理解啊？
+
+*****
+
+####  CyanCloverFern  
+##### 2994#       发表于 2021-12-9 03:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53850977&amp;ptid=2002246" target="_blank">枪聆弹语 发表于 2021-12-8 10:49</a>
+
+神话装版本伤害溢出是这样的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">全肉坦克两秒蒸发，没控制大招都不敢在前面晃悠
+
+*****
+
+####  dclara1  
+##### 2995#       发表于 2021-12-9 04:49
+
+ 本帖最后由 dclara1 于 2021-12-9 04:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862038&amp;ptid=2002246" target="_blank">ののワ 发表于 2021-12-9 03:21</a>
+
+1哪里决裂了？蔚被关进黑牢大几年一直想着出去找爆。爆一直留着蔚给她的信号弹当念想，即使她的畜生养父在 ...</blockquote>
+从前三集铺垫看，爆爆第一是她对自己人真有感情，是真心想帮上忙，第二是她每次搞砸时都会意识到是自己菜，很在意别人看法，很想证明自己，也陷入过自我否认。所以第三集最后她意识到自己又一次搞砸而且害死了亲人的第一反应是恨老姐丢下自己而且瞬间和驴脸内谁贴贴，我是很难理解，太跳脱了
+
+如果前面铺垫她只是个团队混子或者是丁蟹那样做坏事自己没意识的那种人的话还说得通一些
+
+*****
+
+####  ののワ  
+##### 2996#       发表于 2021-12-9 05:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862140&amp;ptid=2002246" target="_blank">dclara1 发表于 2021-12-9 04:49</a>
+
+从前三集铺垫看，爆爆第一是她对自己人真有感情，是真心想帮上忙，第二是她每次搞砸时都会意识到是自己菜 ...</blockquote>
+喷了，姐妹不都是正常的应激反应？用人话来说就是，都是气话。
+
+因为蔚以前是绝对没说过你就是个jinx这种话的。对爆来说，也是其实别人说这个（基本上）无所谓，但是姐说了就太不一样了。
+
+要是场合稍微正常点，话最后也能说开，这种矛盾估计也能弥合，但蔚跑远了冷静一下结果俩人被分别gank了，从此直接被拆散了。
+
+我就不明白了，俩人非常正常且符合年龄和人物设定的合理反应，你们这些成年旁观者也太特么理中客了，吵架都不讲气话的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ののワ  
+##### 2997#       发表于 2021-12-9 05:16
+
+蔚压根就没想走，就是当时的场景属实过于冲击，而且骂了妹妹不该骂的话，自己也是后悔的，必须得离开冷静一下。
+
+爆就更简单了，她唯一的支柱就是姐姐，蔚走了她作为一个孩子又不知道蔚是真的不要她了还是找地方撒个尿，这时候来个谁都得是扑进怀里当救命稻草，来的是希尔科而已，来的是艾克一样扑进去，没准俩人还就成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dclara1  
+##### 2998#       发表于 2021-12-9 05:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862158&amp;ptid=2002246" target="_blank">ののワ 发表于 2021-12-9 05:10</a>
+
+喷了，姐妹不都是正常的应激反应？用人话来说就是，都是气话。
+
+因为蔚以前是绝对没说过你就是个jinx这种 ...</blockquote>
+写剧本得讲究一下高潮跟铺垫对应上吧。不过非要说脑子有病的设定或者小孩说气话能说通那也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ののワ  
+##### 2999#       发表于 2021-12-9 05:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862183&amp;ptid=2002246" target="_blank">dclara1 发表于 2021-12-9 05:43</a>
+
+写剧本得讲究一下高潮跟铺垫对应上吧。不过非要说脑子有病的设定或者小孩说气话能说通那也行吧 ...</blockquote>
+你为啥要觉得9集电视剧里的第3集就是高潮。前三集这一part完全就是铺垫个起的部分而已。
+
+再一个别人的反应都是对应别人之前的铺垫的，反而你设想的那些奇怪的反应才是匪夷所思。
+
