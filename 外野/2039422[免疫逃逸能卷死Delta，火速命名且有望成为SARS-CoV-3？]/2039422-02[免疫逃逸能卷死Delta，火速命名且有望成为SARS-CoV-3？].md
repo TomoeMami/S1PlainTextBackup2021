@@ -3003,3 +3003,12 @@ resilience其实翻译成坚韧更恰当，如果你一直死人，但大家都�
 
 Sotrovimab是葛兰素史克和Vir公司联合研发的一种泛sarbecovirus单克隆抗体，靶向突刺蛋白的保守表位不太可能随时间发生突变（耐药性更难产生），能够将轻度或中度新冠患者住院和死亡的风险降低79%。
 
+
+
+*****
+
+####  wgoenitz  
+##### 1752#       发表于 2021-12-8 10:00
+
+离达叔的反生命方程式还有多远 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
