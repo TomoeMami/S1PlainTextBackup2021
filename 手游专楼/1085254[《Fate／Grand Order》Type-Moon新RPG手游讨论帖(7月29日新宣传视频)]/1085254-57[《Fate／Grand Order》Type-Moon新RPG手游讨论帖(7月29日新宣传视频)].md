@@ -7334,3 +7334,38 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 道满就是个DD，不管是剧情上还是关卡里。一边看剧情里道满被我方嘴炮到破防，一边在关卡里花式吊打道满，2 ...</blockquote>
 宙斯战的礼装真的是让你爽吗<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 84661#       发表于 2021-12-8 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53851983&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-8 12:00</a>
+
+宙斯战的礼装真的是让你爽吗</blockquote>
+马尔斯：助战的锅老子不背，自己找陈宫把那两个摸鱼的给射出去<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 84662#       发表于 2021-12-8 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宙斯战要是能换人根本就是花式爆杀 整个2.52就纯粹是各种让人不爽
+
+*****
+
+####  zakki  
+##### 84663#       发表于 2021-12-8 17:03
+
+CBA还真强化，不过宝具本有个毛用。。。
+
+*****
+
+####  alucardcz  
+##### 84664#       发表于 2021-12-8 17:05
+
+好消息cba强化了
+
+坏消息是宝具本 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

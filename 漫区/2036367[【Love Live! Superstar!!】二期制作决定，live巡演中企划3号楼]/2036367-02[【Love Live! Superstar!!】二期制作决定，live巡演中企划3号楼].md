@@ -1627,3 +1627,33 @@ pay酱看上去挺贴鲤鱼的。但鲤鱼回应感觉相对少一点？这俩�
 
 名古屋两场票面是可可，还以为是福井呢，总之买了
 
+
+
+*****
+
+####  cat1230  
+##### 1664#       发表于 2021-12-8 16:49
+
+b站有直播间吗，晚上
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 1665#       发表于 2021-12-8 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">v总 哈吉那帮人应该会播的
+
+*****
+
+####  caicaistar  
+##### 1666#       发表于 2021-12-8 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53855778&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-8 16:49</a>
+
+b站有直播间吗，晚上
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+晚上播啥鸭
+
