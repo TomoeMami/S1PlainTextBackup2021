@@ -1473,3 +1473,23 @@ ff14最近版本新出的几个职业倒是打击感都还不错，镰刀哥和�
 
 87本给我monoX法老控的感觉，音乐特别jdk。
 
+
+
+*****
+
+####  结发受长生  
+##### 146#       发表于 2021-12-8 10:14
+
+大屁股他寄吧谁啊，就宿敌，完全没感觉，就感觉他像个纱布一样自作多情<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">还挺多人喜欢把大屁股凑CP，受不了
+
+*****
+
+####  makar0601  
+##### 147#       发表于 2021-12-8 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53850529&amp;ptid=2040615" target="_blank">结发受长生 发表于 2021-12-8 10:14</a>
+大屁股他寄吧谁啊，就宿敌，完全没感觉，就感觉他像个纱布一样自作多情还挺多人喜欢把大屁股凑CP， ...</blockquote>
+6.0大屁股就是发现纯自己自作多情破防了
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

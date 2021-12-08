@@ -7275,3 +7275,50 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 不过就算角色分支算的很严格的话，马大也应该是第四个 ...</blockquote>
 黑贞lily和一般意义上的马甲已经有点区别了（一般也不会把幼闪看做闪闪的马甲吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shinitakute  
+##### 84656#       发表于 2021-12-8 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53848995&amp;ptid=1085254" target="_blank">J-002 发表于 2021-12-8 03:24</a>
+第三管血初始40w，然后增加剩下的鳞片数量x20w（5t内破2管血）/x7w5（超过5t破2管血）
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">怎么这样，我就说到三阶段两排无敌怎么一下子没有了
+打完第三管血还蹦出来一个第四阶段，又是130W血 我直接心脏骤停，结果直接结束了
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">看了一下是不是马上就是最后打道满了，道满是不是比伊吹更难打啊，我的灵脉石要用光光了
+
+*****
+
+####  黑上シグマ  
+##### 84657#       发表于 2021-12-8 10:08
+
+<blockquote>引用第84655楼shinitakute于2021-12-08 10:06发表的  :
+
+引用:J-002 发表于 2021-12-8 03:24第三管血初始40w，然后增加剩下的鳞片数量x......</blockquote>
+道满我记得那时候用杀阶迦摩完封，都没见道满动过
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  areklose  
+##### 84658#       发表于 2021-12-8 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早见的待遇挺好的。我觉得未来塔喵应该有除了黑化版的其他马甲
+
+*****
+
+####  xiongxingyu  
+##### 84659#       发表于 2021-12-8 10:15
+
+ 本帖最后由 xiongxingyu 于 2021-12-8 10:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53850418&amp;ptid=1085254" target="_blank">shinitakute 发表于 2021-12-8 10:06</a>
+
+怎么这样，我就说到三阶段两排无敌怎么一下子没有了
+
+打完第三管血还蹦出来一个第四阶段，又是130W ...</blockquote>
+道满就是个DD，不管是剧情上还是关卡里。一边看剧情里道满被我方嘴炮到破防，一边在关卡里花式吊打道满，2.5.5最后两节的体验不要太好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">p.s. 道满战有2.5.2宙斯战同款的高达魔术礼装助战，一看就是让你爽的。
+
