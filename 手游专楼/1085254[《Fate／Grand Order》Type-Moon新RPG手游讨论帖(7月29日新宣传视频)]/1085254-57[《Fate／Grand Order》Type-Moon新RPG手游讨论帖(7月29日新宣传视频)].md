@@ -7369,3 +7369,62 @@ CBA还真强化，不过宝具本有个毛用。。。
 
 坏消息是宝具本 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 84665#       发表于 2021-12-8 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加了个攻击up可以说屁用多没 谁会开cba宝具
+
+*****
+
+####  sosgame67  
+##### 84666#       发表于 2021-12-8 17:08
+
+玛德开个技能本强化会死是吧，老实等新绿拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 84667#       发表于 2021-12-8 17:12
+
+居然是宝具本
+
+笑出声，这是多大仇才能干得出来
+
+真就梅林落泪是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 84668#       发表于 2021-12-8 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息 马大20他充30自充拐
+
+坏消息 绿卡宝具
+
+*****
+
+####  alucardcz  
+##### 84669#       发表于 2021-12-8 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856198&amp;ptid=1085254" target="_blank">qb0079 发表于 2021-12-8 17:17</a>
+
+好消息 马大20他充30自充拐
+
+坏消息 绿卡宝具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有个好消息 卡面菜出天际  看来你游真的是没人审稿的
+
+*****
+
+####  qb0079  
+##### 84670#       发表于 2021-12-8 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856206&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-8 17:18</a>
+
+还有个好消息 卡面菜出天际  看来你游真的是没人审稿的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人物其实还行，我觉得挺可爱的，但是背景真的是菜出天际了
+
