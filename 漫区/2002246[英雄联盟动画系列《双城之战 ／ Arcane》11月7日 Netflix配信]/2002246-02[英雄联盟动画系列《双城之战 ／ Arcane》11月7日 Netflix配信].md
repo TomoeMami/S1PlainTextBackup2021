@@ -16562,3 +16562,26 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 另外片中对双城的起源和历史矛盾感觉有意大片留白，可能是为了将来扩展方便，不把自己写进角落里？只言片语 ...</blockquote>
 早些年只有祖安，祖安是恕瑞玛王国边境上繁荣的港口城市，后来修建日之门船闸的时候使用了炸药，产生了意想不到的后果——陆沉，三分之一的城市沉入海底，还有三分之一直接降到了城市地基下方。尽管如此日之门船闸最终仍然修建完成了，给这座城市带来了数不清的财富。再后来随着时代发展，没有受到陆沉灾难影响的三分之一城市和地底的三分之一城市逐渐分道扬镳，前者给自己起了个新名字皮尔特沃夫，后者仍然叫祖安。
 
+
+
+*****
+
+####  Siran_China  
+##### 2992#       发表于 2021-12-9 01:02
+
+ 本帖最后由 Siran_China 于 2021-12-9 01:05 编辑 
+
+拳头做的这些插曲还没成梗属实可惜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+认贼作父神曲Goodbye
+
+爆爆拉烟神曲Guns for Hire(真神曲，音画结合的神)
+
+甩秒表神曲Dynasties and Dystopia
+
+暴打炼金罐神曲Snakes
+
+女人打架神曲When Everything Went Wrong
+
+爆爆开大神曲What Could Have Been
+
