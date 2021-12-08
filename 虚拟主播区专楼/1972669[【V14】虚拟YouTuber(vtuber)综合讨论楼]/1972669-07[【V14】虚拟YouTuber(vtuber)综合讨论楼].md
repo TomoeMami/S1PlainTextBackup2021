@@ -2251,3 +2251,22 @@ inui唱了phony，感觉最近选曲相当跟随热点，是不是下一首要�
 
 <img src="https://img.saraba1st.com/forum/202112/08/214008lfjtuxjrzlfhf7ll.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9184#       发表于 2021-12-8 22:24
+
+MZM新MV，Balus的支持下质量可以的（感谢深山）
+[https://www.youtube.com/watch?v=RTzHzhWp7K4](https://www.youtube.com/watch?v=RTzHzhWp7K4)
+
+*****
+
+####  Porsche  
+##### 9185#       发表于 2021-12-8 22:29
+
+【#雀魂交流会】私がホンモノの宮永咲だ・・・！！！植田佳奈/森永千才/柚原いづみ【因幡はねる / あにまーれ】 
+
+黄兔子这人脉太可怕了
+
