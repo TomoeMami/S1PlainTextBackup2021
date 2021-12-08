@@ -2209,3 +2209,19 @@ inui唱了phony，感觉最近选曲相当跟随热点，是不是下一首要�
 郡噶吃觉得和声像谁？听着不像床本人</blockquote>
 我木耳听不出来，不过床预告的时候安洁有转发所以<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 9181#       发表于 2021-12-8 20:09
+
+但是phony这歌还是谱皇和可不合唱那版最emo，虽然谱皇完全不唱高音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 9182#       发表于 2021-12-8 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">xiaoye
+

@@ -2024,3 +2024,59 @@ FNS万年的一组人一分半钟，能超过三分钟的都不是一般的歌�
 
 两分多
 
+
+
+*****
+
+####  chenflyyy  
+##### 1709#       发表于 2021-12-8 20:05
+
+在微博看到的切片都是2分20秒左右，原来这么长么，听的时候感觉好短，而前面的感觉一个比一个长<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1710#       发表于 2021-12-8 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死
+
+
+
+*****
+
+####  lj205  
+##### 1711#       发表于 2021-12-8 20:10
+
+要是有伴舞环节多好
+
+*****
+
+####  一个陆仁贾  
+##### 1712#       发表于 2021-12-8 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53858518&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-8 20:05</a>
+在微博看到的切片都是2分20秒左右，原来这么长么，听的时候感觉好短，而前面的感觉一个比一个长 ...</blockquote>
+哪个微博号有，刚回家，错过了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  千千千千鸟  
+##### 1713#       发表于 2021-12-8 20:20
+
+接在刀男环节后面，观感巨幅提升啊，人也更漂亮了，歌也更好听了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+bili.com/video/BV1HM4y1A7J2补个链接
+
+*****
+
+####  chenflyyy  
+##### 1714#       发表于 2021-12-8 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53858708&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2021-12-8 20:19</a>
+哪个微博号有，刚回家，错过了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+https://share.api.weibo.cn/share/267234610.html?weibo_id=4712211865929242
+
