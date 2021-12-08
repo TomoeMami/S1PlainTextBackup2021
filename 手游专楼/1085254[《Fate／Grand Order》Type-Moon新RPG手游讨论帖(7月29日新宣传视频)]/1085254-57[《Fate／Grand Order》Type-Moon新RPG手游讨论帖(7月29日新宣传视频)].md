@@ -7581,3 +7581,18 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  exiaexa  
+##### 84688#       发表于 2021-12-9 00:04
+
+这只妖兰太大了
+
+肯定是别人COS的没毛病
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+顺便山鲁佐德才是这次礼装之光啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

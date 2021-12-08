@@ -2377,3 +2377,24 @@ up: 江東弱角蒼天君
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小百合的推特回复差不多是其他人的两倍，太真实了。
 
+
+
+*****
+
+####  index  
+##### 1738#       发表于 2021-12-8 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53860499&amp;ptid=2036367" target="_blank">emmer 发表于 2021-12-8 23:24</a>
+
+福冈live的Vlog来了
+
+https://www.bilibili.com/video/BV1C34y1X7Wh?spm_id_from=444.41.0.0</blockquote>
+顺便苍天君自己有开liella的QQ群 群号在他B站简介里
+
+*****
+
+####  优妮可  
+##### 1739#       发表于 2021-12-8 23:52
+
+他确定没拍吗？我怎么感觉前面那三个女的好像啊
+

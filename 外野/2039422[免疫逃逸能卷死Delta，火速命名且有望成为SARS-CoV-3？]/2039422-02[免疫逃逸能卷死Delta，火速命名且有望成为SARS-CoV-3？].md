@@ -3194,3 +3194,14 @@ DONT PANIC!
 https://www.bloomberg.com/news/articles/2021-12-07/gsk-antibody-treatment-works-on-omicron-mutations ...</blockquote>
 Bloomberg GSK 体外实验 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  riczxc  
+##### 1769#         楼主| 发表于 2021-12-8 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53860610&amp;ptid=2039422" target="_blank">中二骚年 发表于 2021-12-8 23:35</a>
+Bloomberg GSK 体外实验</blockquote>
+要是真是确定有效，民众又可以应死尽死了。
+
