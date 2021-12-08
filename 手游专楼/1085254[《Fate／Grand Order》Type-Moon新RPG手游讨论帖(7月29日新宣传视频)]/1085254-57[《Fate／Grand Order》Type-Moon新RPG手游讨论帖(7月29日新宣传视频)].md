@@ -7222,3 +7222,29 @@ CBA和布妹都在，说不定玛尔达都是绿的</blockquote>
 倒是钉子比铃铛还少，329个</blockquote>
 敢问一句你咋做到的，天天蹲在オックスフォード就没出去过是吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 84652#       发表于 2021-12-8 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849766&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-12-8 09:05</a>
+
+敢问一句你咋做到的，天天蹲在オックスフォード就没出去过是吗</blockquote>
+铃铛和鳞粉上个活动可以靠侦探任务无限刷，我基本半自回体都刷了200+铃铛，那些靠无限打高难阿国来重置任务的家伙就更多了
+
+*****
+
+####  UNISONIA  
+##### 84653#       发表于 2021-12-8 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849628&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-12-8 08:51</a>
+
+话说回来，铁拳圣女也是个闷声赚大钱的主啊，各种活动里戏份不断梗又多，人气意外的高（某站上的小黄图那叫 ...</blockquote>
+毕竟是你狗劳模樱井光的卡……出场率还是能保证的
+
+不过就算角色分支算的很严格的话，马大也应该是第四个有2马甲（或更多）的从者？（魔王信和太空伊斯塔那种姑且不算同个分支）
+
+之前的三个应该是黑呆（圣诞黑呆和女仆长）、黑贞（小黑贞和中二泳装）、还有经常被迫害的龙娘（除了机龙不算本体以外大概都算）
+

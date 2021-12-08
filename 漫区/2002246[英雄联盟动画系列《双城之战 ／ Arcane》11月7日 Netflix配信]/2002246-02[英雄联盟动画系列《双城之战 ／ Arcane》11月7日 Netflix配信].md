@@ -16387,3 +16387,15 @@ https://www.bilibili.com/video/BV1nL411M7Hi
 
 不过制作是真的强，美国佬在这块还是nb
 
+
+
+*****
+
+####  8604132000  
+##### 2977#       发表于 2021-12-8 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53849330&amp;ptid=2002246" target="_blank">dclara1 发表于 2021-12-8 08:04</a>
+
+看了5集，高潮部分的姐妹决裂写得太潦草了，见证亲友惨死，凶手就是自认为终于帮上了忙的自己，短时间接收 ...</blockquote>
+你这才哪到哪  后面不得诀别好多次
+
