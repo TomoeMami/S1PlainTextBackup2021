@@ -7525,3 +7525,30 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 你们觉得…这妖兰礼装好看吗？卧槽我觉得好丑可是我看nga都在夸我有点怀疑我自己的审美<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 84682#       发表于 2021-12-8 18:47
+
+ 本帖最后由 xiongxingyu 于 2021-12-8 18:50 编辑 
+
+难得呼符出货，虽然cba这宝具本基本蚊子腿，1宝到2宝还算是有点提升吧。22发除了3星礼装都齐了，难得圣诞节不用破费了。（虽然今年2.6.5才是真正的圣诞节）。话说不知道有没有人玩idoly pride，这妖兰的5星礼装让我瞬间幻视隔壁现在正在up的圣诞限定琉依卡面，一样的白长直，一样的正面伸手（主人公只有一只手），甚至连围巾都是同款的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 84683#       发表于 2021-12-8 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化了 又没完全强化
+
+*****
+
+####  angelooo  
+##### 84684#       发表于 2021-12-8 18:49
+
+<blockquote>cckuku 发表于 2021-12-8 18:37
+你们觉得…这妖兰礼装好看吗？卧槽我觉得好丑可是我看nga都在夸我有点怀疑我自己的审美 ...</blockquote>
+辨识度不高，我第一眼还以为是卡莲，另外两张算正常操作还行吧，毕竟你游的五星圣诞礼装是出过cba与梅芙这样的惊世神作的
+

@@ -1735,3 +1735,62 @@ https://b23.tv/CZXyycx</blockquote>
 
 斗鱼这个好像慢了几分钟，算了凑合看吧
 
+
+
+*****
+
+####  chenflyyy  
+##### 1675#       发表于 2021-12-8 18:53
+
+这个快一点，应该差不多要到了吧
+https://b23.tv/FJnCSq9
+
+*****
+
+####  chenflyyy  
+##### 1676#       发表于 2021-12-8 18:56
+
+来了来了
+
+*****
+
+####  musicat  
+##### 1677#       发表于 2021-12-8 18:57
+
+还在斗鱼看，前面的表演都没所谓翻车啊
+
+*****
+
+####  寒风夜  
+##### 1678#       发表于 2021-12-8 18:57
+
+ 本帖最后由 寒风夜 于 2021-12-8 18:59 编辑 
+
+一首还好 是唱完整还是tv啊
+
+*****
+
+####  chenflyyy  
+##### 1679#       发表于 2021-12-8 18:59
+
+前面好多播片的，星估计是要现场唱吧
+
+*****
+
+####  caicaistar  
+##### 1680#       发表于 2021-12-8 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53856445&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-8 17:38</a>
+
+求个直播间，水管没信号了</blockquote>
+噢噢 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Norkey1  
+##### 1681#       发表于 2021-12-8 19:00
+
+草，鲤鱼比左边男的还高
+

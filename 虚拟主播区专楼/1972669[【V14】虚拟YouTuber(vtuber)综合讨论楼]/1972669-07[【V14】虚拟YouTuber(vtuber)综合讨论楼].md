@@ -2140,3 +2140,12 @@ Syl，King确认养狗，狗叫出声了，虹这些主播一个两个养个小�
 这安排，运营里一定有厄介吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/701b440ae51d8a80437fc2f2831049c9/IMG_CMP_226611608.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 9174#       发表于 2021-12-8 18:53
+
+虹要和DLSite合作出ASMR音声然后没请飞鸟P<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就一点尊重都不给啊
+
