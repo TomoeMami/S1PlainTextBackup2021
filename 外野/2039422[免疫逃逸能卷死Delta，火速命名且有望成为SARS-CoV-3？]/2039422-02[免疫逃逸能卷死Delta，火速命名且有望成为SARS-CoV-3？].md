@@ -3340,3 +3340,41 @@ https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ
 
 —— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  最好不说  
+##### 1780#       发表于 2021-12-9 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867762&amp;ptid=2039422" target="_blank">米村正二 发表于 2021-12-9 15:40</a>
+
+喷了，这个balloux老湿还替沪上张某说过话啊
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 S1Nex ...</blockquote>
+共存派里有些坏，有些蠢，有些又坏又蠢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有口皆悲  
+##### 1781#       发表于 2021-12-9 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867762&amp;ptid=2039422" target="_blank">米村正二 发表于 2021-12-9 15:40</a>
+喷了，这个balloux老湿还替沪上张某说过话啊
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 S1Nex ...</blockquote>
+礼尚往来而已。
+<blockquote>@张文宏医生
+
+美国签署大巴林顿宣言，中国青岛实施全民检测，在不平衡中看到共同点
+
+近日，由哈佛、牛津和斯坦福三位顶尖科学家撰写的“大巴顿宣言”获得了全球两万多医学专业工作者的支持。宣言提到，世界在经受着新冠大流行，经过长达9个月的世界关闭与部分停摆，也仅换来目前的局面。长期维持世界的停摆，势必会带来卫生健康相关和经济政治相关的不良结局。在疫苗问世之前，继续采取封锁措施，将造成不可挽回的损失，而弱势群体，首当其冲。从全球来讲，不得不接受大流行的现实，并提供最低成本的群体免疫或为最优选项。
+
+在全球疫情不平衡之际，会出现观念上的撕裂。此时保持我们的战略定力，在不平衡中看到共同点也非常重要。这个共同点就是如何对脆弱人群实施保护的同时逐渐开放国家和世界。
+
+中国由于早期抗疫比较成功，目前全国范围内基本没有本土传播病例，即便出现青岛这样的局部疫情，也可以通过扩大检测来获得“动态清零”。实现最具成本效益的抗疫效果。
+
+就像早期抗疫各国国情不同不能互抄作业，现在全球抗疫进入深水区，也不能互抄作业。中国既要维持目前的抗疫成果，也要为下一步全球的逐渐开放做好准备。目前全球采取比较统一的入境检测与隔离措施，中国也不例外。这段时间窗口是中国制定战略应对的黄金窗口。
+
+中国的疫苗研发目前显示比较好的进度和态势，通过疫苗保护和扩大检测与检疫，中国应该能应付不断改变的世界。</blockquote>
+

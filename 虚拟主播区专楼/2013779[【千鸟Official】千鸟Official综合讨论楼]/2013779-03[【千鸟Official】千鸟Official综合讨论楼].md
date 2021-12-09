@@ -10805,3 +10805,22 @@ syl,王木木锐评文静玩游戏
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  tankai  
+##### 4231#       发表于 2021-12-9 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53865756&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-9 13:05</a>
+
+统一回复下，琳说找好房子搬家之后可以解决白噪音问题的意思是找了个房子让艾白自己搬过去，望周知 ...</blockquote>
+大豪斯都配个院子------&gt;院子里搭个狗窝----&gt;艾白动态大都萨摩耶------&gt;艾白是条狗.
+
+*****
+
+####  tankai  
+##### 4232#       发表于 2021-12-9 16:00
+
+原来播团号也可以吸.
+
