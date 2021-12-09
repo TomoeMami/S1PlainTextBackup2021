@@ -126,3 +126,14 @@
 
 什么猫羊奇美拉
 
+
+
+*****
+
+####  十九号大侠  
+##### 6013#       发表于 2021-12-9 21:45
+
+原来bls又开了啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -1542,3 +1542,147 @@ mcn开播刷礼物不是常规操作？
 二次元确实费拉不堪，蕾皇骂的没问题。 ...</blockquote>
 蕾皇骂的没问题那这2200w不是白赔了，我说实话凭什么罚我<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qratosone  
+##### 169#       发表于 2021-12-9 21:45
+
+u1s1，你们不至于真觉得蕾蝗导致先审后播吧，说他是导火索都抬举他了
+
+—— 来自 OPPO PEUM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  水稳  
+##### 170#       发表于 2021-12-9 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870272&amp;ptid=2041611" target="_blank">Unlight 发表于 2021-12-9 19:17</a>
+
+分期付款
+
+—— 来自 S1Fun</blockquote>
+现钱不动，开播后赚的钱三七分账，不就是还款2千万了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reedwkaka  
+##### 171#       发表于 2021-12-9 21:50
+
+给你一个台阶下，你不要不识相
+
+*****
+
+####  CALPISSODA  
+##### 172#       发表于 2021-12-9 21:51
+
+这种二道贩子居然就都能赚个2200万，只能说我国市场大真的好，每人身上讨一元钱就能创造一个富豪。
+
+*****
+
+####  血狂毘沙门  
+##### 173#       发表于 2021-12-9 21:52
+
+先审后播对b站的影响还不清楚 不过直接把a站新番区干死了
+
+这么一看 蕾皇简直是叔叔的大功臣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  flashenix1  
+##### 174#       发表于 2021-12-9 21:55
+
+这孙贼在他那个男团里属于整活活跃气氛的，迷倒一堆小仙女，离了他那个男团好像也萎了，所以阿姨急着请叔叔放一马了。估计以后专心男团卖腐了，敢再喷新番一堆老哥问候它。
+
+*****
+
+####  洛颜倾墨  
+##### 175#       发表于 2021-12-9 22:00
+
+现在看是1255条评论，然后最新评论是#57248楼
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+就算他回来，还敢开播吗？
+
+*****
+
+####  stuka1942  
+##### 176#       发表于 2021-12-9 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871352&amp;ptid=2041611" target="_blank">禹火 发表于 2021-12-9 20:31</a>
+
+这种无才无德，还口嗨烈士的货色也能花钱消灾，秽土转生，真不愧是大B站。 ...</blockquote>
+叔叔的道德底线一直是这么灵活
+
+今天看到这个消息吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丹德里恩  
+##### 177#       发表于 2021-12-9 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">事实证明，现在这世道想赚钱就不能要脸，尤其是赚傻逼的钱就不能有半点良心
+
+我赌一块，之后逼站力推的直播带货里绝对有他
+
+*****
+
+####  Tree洞  
+##### 178#       发表于 2021-12-9 22:01
+
+<blockquote>sadakawa 发表于 2021-12-9 19:49
+蕾皇和叔叔和解了，受伤的只有被扫射到的只配在下水道过失败人生的无职转生观众（） ...</blockquote>
+严谨点，我虽然并不看无职转生但是作为动画观众也被伤害到了
+
+*****
+
+####  fantuanxiaoyi  
+##### 179#       发表于 2021-12-9 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872444&amp;ptid=2041611" target="_blank">血狂毘沙门 发表于 2021-12-9 21:52</a>
+
+先审后播对b站的影响还不清楚 不过直接把a站新番区干死了
+
+这么一看 蕾皇简直是叔叔的大功臣 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">然后B的国创被腾讯吊打，直接变成一个动画弱站。
+
+*****
+
+####  巨灵巴谛魔  
+##### 180#       发表于 2021-12-9 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872555&amp;ptid=2041611" target="_blank">洛颜倾墨 发表于 2021-12-9 22:00</a>
+
+现在看是1255条评论，然后最新评论是#57248楼
+
+就算他回来，还敢开播吗？ ...</blockquote>
+已经播完，豪取一千三百舰长了
+
+
+
+*****
+
+####  thethird  
+##### 181#       发表于 2021-12-9 22:04
+
+很多人不会今天才知道睿帝是个苟娘养的吧
+
+*****
+
+####  犀利  
+##### 182#       发表于 2021-12-9 22:06
+
+说的最多也就是不充大会员了而已
+
+说不出来再也不上b站这种话啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Rary  
+##### 183#       发表于 2021-12-9 22:06
+
+主播这行这么赚钱吗？
+
