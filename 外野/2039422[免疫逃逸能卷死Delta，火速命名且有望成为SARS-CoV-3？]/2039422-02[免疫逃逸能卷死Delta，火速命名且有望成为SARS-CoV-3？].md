@@ -3405,3 +3405,21 @@ https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ
  ...</blockquote>
 这些上层精英真的tm的冷血吃人不吐骨头啊
 
+
+
+*****
+
+####  riczxc  
+##### 1784#         楼主| 发表于 2021-12-9 17:14
+
+ 本帖最后由 riczxc 于 2021-12-9 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53868723&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-9 16:55</a>
+
+这些上层精英真的tm的冷血吃人不吐骨头啊</blockquote>
+
+当然啦。虽然还是要分的。直接用大巴灵顿宣言做人奸的，显然英国还有美国红州以及Delta大爆发前的印度就是如此。瑞典人口稀疏算半个人奸。
+
+例如一开始骗大家戴口罩没用的政客Fauci就是反对大巴灵顿宣言的。
+
+反对旅行禁令的主要是旅游业还有飞来飞去的世界公民，反对封城等管控措施的主要是中小企业主的利益代表。所以最后疫情大爆发还是不得不封城的时候，我对这些小企业主真的难以抱有同情，都是自作孽。
+
