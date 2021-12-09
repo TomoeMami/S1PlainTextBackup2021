@@ -2614,3 +2614,38 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 某些人（不论中日），不就是哪个角色、声优能让我充分抒发对运营的不满，我就是谁的粉嘛，活脱脱一个破产版吕布。
 
+
+
+*****
+
+####  Karin11974  
+##### 1759#       发表于 2021-12-9 10:19
+
+逛了下贴吧看到这张图，p得真不错，差点以为是先定中之人再设计角色了
+
+<img src="https://img.saraba1st.com/forum/202112/09/101910v6hazuox7zaozd68.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4286.JPG</strong> (515.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 10:19 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/101915nblz6e6uleqb0nz3.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4287.JPG</strong> (515.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 10:19 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/101915cqwuuxutzq5ide2x.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4288.JPG</strong> (493.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 10:19 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
