@@ -1813,3 +1813,29 @@ https://prtimes.jp/main/html/rd/p/000000207.000060567.html
 
 2021-12-9 19:57 上传
 
+
+
+*****
+
+####  一仙  
+##### 13676#       发表于 2021-12-9 22:57
+
+ 本帖最后由 一仙 于 2021-12-9 22:59 编辑 
+
+又播了 歌回<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+百鬼あやめ😈ホロライブ２期生
+
+@nakiriayame
+
+24時半から歌を少しだけ…やろうかな:(っ`ω´c):練習！！！
+
+*****
+
+####  cctvyt1  
+##### 13677#       发表于 2021-12-9 22:58
+
+11点半突袭歌回
+
+绫总你这是真被狐皇烫了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

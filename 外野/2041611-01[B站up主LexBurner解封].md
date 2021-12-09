@@ -1855,3 +1855,49 @@ b站某知名up直播玩游戏时口嗨烈士
 
 叔叔可以再搞一个「我帮蕾丝哥哥还债」活动，又能割一笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 202#       发表于 2021-12-9 22:49
+
+阿b真是纯恶心人，今年没续签大会员看来是对的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  belichick  
+##### 203#       发表于 2021-12-9 22:50
+
+2000万买活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马甲号2  
+##### 204#       发表于 2021-12-9 22:52
+
+叔叔这波是不是赚大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔铁潜水艇  
+##### 205#       发表于 2021-12-9 22:55
+
+乐
+
+*****
+
+####  scorbian  
+##### 206#       发表于 2021-12-9 22:55
+
+最破防的是想了想我可能一辈子都赚不到2000w<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 207#       发表于 2021-12-9 22:59
+
+蕾丝能有2000W，所有在阿批开带会员的人都有责任
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

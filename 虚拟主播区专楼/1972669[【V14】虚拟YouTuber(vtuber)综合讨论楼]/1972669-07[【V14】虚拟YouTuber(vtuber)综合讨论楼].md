@@ -2379,3 +2379,15 @@ ymen要跟os团的朋友一起旅游几天，说是好久没出过门，打算�
 
 就是一定要小心防疫啊(小声)
 
+
+
+*****
+
+####  灵思之风jacke  
+##### 9195#       发表于 2021-12-9 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871413&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2021-12-9 20:35</a>
+
+油管扫到一眼当年因诸种事端退出ban's的城星让友转生的花琴いぐさ已经混成高知县公式当地vtuber了，前几天 ...</blockquote>
+花琴伊草可不是让友转生，她出道比让友早多了，不过她中途做了一段让友是让她比以前更有些知名度了
+
