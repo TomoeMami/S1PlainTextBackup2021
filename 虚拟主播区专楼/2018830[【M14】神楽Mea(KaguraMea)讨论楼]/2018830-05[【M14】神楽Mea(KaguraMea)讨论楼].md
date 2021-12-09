@@ -297,3 +297,19 @@
 
 终于发现了cc字幕的阿咩
 
+
+
+*****
+
+####  遗忘回想  
+##### 6034#       发表于 2021-12-10 01:27
+
+听着就很坦克的声音。
+
+*****
+
+####  雪风utopia  
+##### 6035#       发表于 2021-12-10 01:29
+
+那个人，他又来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/51a07f8c699f78bd811e53acef465816/IMG_20211210_012845.jpg" referrerpolicy="no-referrer">
+

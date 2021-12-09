@@ -2233,3 +2233,60 @@ https://www.bilibili.com/video/BV1Lz4y1U7ks</blockquote>
 莫名其妙，这垃圾口嗨烈士不该死？</blockquote>
 别自欺欺人了，漫区阿宅们对lex口诛笔伐不就是因为无职转生吗？拉烈士出来当大旗让我还以为老蒋成功反攻大陆改信自由主义了呢。
 
+
+
+*****
+
+####  织云纺雪  
+##### 240#       发表于 2021-12-10 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874606&amp;ptid=2041611" target="_blank">散热 发表于 2021-12-10 01:22</a>
+
+别自欺欺人了，漫区阿宅们对lex口诛笔伐不就是因为无职转生吗？拉烈士出来当大旗让我还以为老蒋成功反攻大 ...</blockquote>
+神经病，我反感这垃圾口嗨烈士跟无职有半毛钱关系？我又不看那玩意，你意淫个毛线。
+
+
+
+*****
+
+####  dllplayer  
+##### 241#       发表于 2021-12-10 01:32
+
+<blockquote>圆圆滚滚三喵喵 2021/12/09 20:58:12
+
+我们公司有个商务眼睛极毒。
+
+圆圆滚滚三喵喵 2021/12/09 20:58:30
+
+一眼就看出来了表示这个新闻本质上是个经济等式。
+
+圆圆滚滚三喵喵 2021/12/09 20:58:58
+
+『向外标明B站百大价值两千万』
+
+圆圆滚滚三喵喵 2021/12/09 20:59:15
+
+真她妈牛逼。
+
+圆圆滚滚三喵喵 2021/12/09 20:59:19
+
+这就是商务。</blockquote>
+
+*****
+
+####  头像才不霸气呢  
+##### 242#       发表于 2021-12-10 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874662&amp;ptid=2041611" target="_blank">dllplayer 发表于 2021-12-10 01:32</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊 两千万的合同 都不需要现金流
+
+*****
+
+####  dllplayer  
+##### 243#       发表于 2021-12-10 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874680&amp;ptid=2041611" target="_blank">头像才不霸气呢 发表于 2021-12-10 01:37</a>
+
+是啊 两千万的合同 都不需要现金流</blockquote>
+所以说白了还是飞妈的某人为了赚钱呗....只要能赚钱啥事情都能做
+

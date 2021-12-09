@@ -3136,3 +3136,23 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 所以其实就算是追love live这种企划也是会变成饭圈的吗或者什么二次元跟饭圈其实没啥区别 ...</blockquote>
 ll这是多媒体企划啊，如果是只看动画玩游戏的，没饭圈什么事。三次元这边毕竟要运营偶像的，难免出现饭圈的问题。但还好其实，你不去介入就是了。
 
+
+
+*****
+
+####  普之舜舜  
+##### 1796#       发表于 2021-12-10 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874356&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-10 00:43</a>
+上尉上雅虎日本热搜第一的原因是啥？好突然啊。</blockquote>
+昨天的天气预报吧？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 1797#       发表于 2021-12-10 01:38
+
+目前还行吧，圈里萌萌人（非贬义）还是比较多的，饭圈味还不是很浓，这次运营的选曲也确实存在问题，有争议是难免的，作为sayu粉的我都做好躺平任嘲的准备了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果大家还是比较理智的，除了几个一看就知道是在引战的乐子人外，矛头也基本指向运营，很少上升到本人，没怎么出现各家粉之间的撕逼（至少我没看到
+
