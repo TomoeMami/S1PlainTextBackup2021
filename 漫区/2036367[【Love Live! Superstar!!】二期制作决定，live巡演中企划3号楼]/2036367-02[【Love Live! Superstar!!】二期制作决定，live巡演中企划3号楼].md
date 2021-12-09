@@ -2660,3 +2660,65 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 1761#       发表于 2021-12-9 11:07
+
+<img src="https://img.saraba1st.com/forum/202112/09/110748pix77zmdxmmdbj36.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1639019052939.jpg</strong> (205.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 11:07 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/110748qhjna88njminx8dm.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1639019055252.jpg</strong> (212.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 11:07 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/110749gv1djj1vmr1zomkm.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1639019058202.jpg</strong> (221.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 11:07 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/110749mdad99ndja3n33ad.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1639019060678.jpg</strong> (231 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 11:07 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/110749gjjj2exe3x8p8xtx.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1639019063689.jpg</strong> (219.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 11:07 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/110750px01awid9a1j00ux.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1639019066029.jpg</strong> (228.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 11:07 上传
+
+*****
+
+####  kata魂  
+##### 1762#       发表于 2021-12-9 11:10
+
+差不多得了，昨天表现挺好导播也不错，就是舞蹈有点别扭。至于选歌，这点事难道一点意见都不能有了。别人还不能发表意见了不成，就那帖还有nako推担心万一以后有红白也是这样。你总不能让大家当运营厨吧，难道非的全肯定民才能厨偶像的
+
