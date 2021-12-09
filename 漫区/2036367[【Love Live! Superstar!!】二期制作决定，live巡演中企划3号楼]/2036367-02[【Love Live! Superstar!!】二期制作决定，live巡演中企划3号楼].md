@@ -2989,3 +2989,18 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 不过民警标志性的过膝袜怎么没了？
 
+
+
+*****
+
+####  ads147147  
+##### 1785#       发表于 2021-12-9 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53865883&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-9 13:17</a>
+你确定是胖了？
+
+左2020年12月  右2021年12月</blockquote>
+感觉直接成熟好多，之前的照片像是jk一样，不知道是不是故意弄出这种风格的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
