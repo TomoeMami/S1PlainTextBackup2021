@@ -2759,3 +2759,46 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 是有更多人有机会多唱两句的歌但演都演完了效果也不错，既然效果不错那不就完了么
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">红白的事上了红白再说吧，还没上红白唱未来预报有些人倒是已经开始一口一个侏儒小百合了，连发个推没提步梦都要拿出来强行嘴两句，说句毒唯又怎么了
 
+
+
+*****
+
+####  优妮可  
+##### 1766#       发表于 2021-12-9 12:08
+
+今天是爱香
+
+*****
+
+####  kata魂  
+##### 1767#       发表于 2021-12-9 12:13
+
+ 本帖最后由 kata魂 于 2021-12-9 12:15 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/09/121118s6z98sdnldd261sr.jpg" referrerpolicy="no-referrer">
+
+<strong>-34b3970ee429b97b.jpg</strong> (39.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 12:11 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/121127z2bsfztco58kthz2.jpg" referrerpolicy="no-referrer">
+
+<strong>-74d9985e0811558e.jpg</strong> (41.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 12:11 上传
+
+那个说侏儒小百合的是谁的毒唯我不知道，但阴阳怪气但是有一手。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有趣的是那个阴阳怪气的楼层里后来有一位在别的贴子阴阳怪气鲤鱼的（不是那个仙），谁知道哪里问味组团来的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1768#       发表于 2021-12-9 12:16
+
+这种引战混子都看不出来，那也没法救了
+
