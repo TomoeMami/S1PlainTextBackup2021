@@ -2281,3 +2281,25 @@ MZM今天发的三专圈榜日第9，挺好的
 
 balus这公司我感觉都不靠管人赚钱了，开spwn和到处搞技术支持都够了，烂货圆脸的live就是balus技术支持，然后前些天宗谷的live看的我一路惊呼还能这么玩，结果最后又跳出来个produce by balus
 
+
+
+*****
+
+####  free  
+##### 9187#       发表于 2021-12-9 18:46
+
+[https://twitter.com/raindrops200123/status/1468884375592833025](https://twitter.com/raindrops200123/status/1468884375592833025)
+
+【#RainDrops ライブタイトル決定！】
+
+带雨滴的伞Rain Drops セカンドワンマンライブ SQUALL 〜雨ニモマケズ/風ニモマケズ～带雨滴的伞
+
+2022/02/17 (Thu.)"雨ニモマケズ"
+
+2022/02/18 (Fri.) "風ニモマケズ"
+
+FC先行抽選は 12/10 12:00 からスタート！
+
+詳細はこちら▽
+[https://universal-music.co.jp/raindrops/news/2021-12-09/](https://universal-music.co.jp/raindrops/news/2021-12-09/)
+

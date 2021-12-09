@@ -1778,3 +1778,12 @@ https://prtimes.jp/main/html/rd/p/000000207.000060567.html
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">怪 
 
+
+
+*****
+
+####  Vindicator  
+##### 13673#       发表于 2021-12-9 18:44
+
+一边吐槽亲爹妈一边pua娜娜一边跟mio营业是吧 亲爹妈不行 美少女不行 知心的还是阿姨
+
