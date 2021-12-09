@@ -3267,3 +3267,14 @@ FDA本周向美国得州地区的联邦法官请求，允许该机构每个月�
 
 这个结论你不是说我还以为是市场部做的，两针没用，三证刚刚好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 1774#       发表于 2021-12-9 09:29
+
+辉瑞这实验结果还有讨论的必要？用的假病毒不说，还整出恢复到两针vs普通变异株的水平这种一看就是搪塞的表达。这到底指的是抗体衰减前的还是衰减后的？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+反正其他科学家用活病毒做的实验不管是两针还是三针bnt都是全灭，辉瑞大可以继续自己骗自己
+
