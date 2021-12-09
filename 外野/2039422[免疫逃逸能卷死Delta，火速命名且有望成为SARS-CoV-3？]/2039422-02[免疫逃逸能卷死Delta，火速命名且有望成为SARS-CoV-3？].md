@@ -3389,3 +3389,19 @@ https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ
 
 自然免疫搞死弱鸡平民，活下来的都是多少自带伊述人基因的强者
 
+
+
+*****
+
+####  charse2r  
+##### 1783#       发表于 2021-12-9 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867670&amp;ptid=2039422" target="_blank">李天宝 发表于 2021-12-9 15:34</a>
+
+[老文新发]一篇知乎问答引发的扒皮大戏……
+
+https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ
+
+ ...</blockquote>
+这些上层精英真的tm的冷血吃人不吐骨头啊
+
