@@ -2847,3 +2847,39 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 这次歌选的确实有问题，不过激的争议是正常的，但是人总不能太和自己过不去，前面有人说选这首抓耳吸路人也是有道理
 分蛋糕立德多分一点其实也挺正常，队内就五个人分怎么分大家都少不了多少…
 
+
+
+*****
+
+####  saglork  
+##### 1772#       发表于 2021-12-9 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53865469&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-12-9 12:37</a>
+这次歌选的确实有问题，不过激的争议是正常的，但是人总不能太和自己过不去，前面有人说选这首抓耳吸路人也 ...</blockquote>
+对的，本质上就是lovelive和恶臭偶像饭圈没有任何区别，该有的臭毛病一个不少，这次选曲的表演方式必然让毒唯炸裂，舞台效果好和毒唯炸裂压根是两个问题，没必要混在一起说，运营在选曲的时候就应该考虑到，不在乎的话无所谓，要是不想闹出这种争议，选曲就该再慎重点，别的歌舞台效果也未必差，本身就是个很简单的取舍问题，恶臭偶像饭圈保留节目罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1773#       发表于 2021-12-9 13:15
+
+中文特别节目赶紧给我出来啊
+
+*****
+
+####  黑雪姫  
+##### 1774#       发表于 2021-12-9 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53864683&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-9 11:35</a>
+
+说起来鲤鱼以前直播是不是有开瘦脸啊（
+
+看古早直播录像脸比现在瘦不少 甚至尖下巴
+
+但是仔细看的话会感觉似 ...</blockquote>
+你确定是胖了？
+
+左2020年12月  右2021年12月
+
+<img src="http://wx1.sinaimg.cn/mw1024/40f01d1dgy1gx6tmi3qxbj21o0190twe.jpg" referrerpolicy="no-referrer">
+

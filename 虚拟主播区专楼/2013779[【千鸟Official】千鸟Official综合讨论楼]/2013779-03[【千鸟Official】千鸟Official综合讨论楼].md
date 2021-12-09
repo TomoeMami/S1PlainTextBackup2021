@@ -10717,3 +10717,30 @@ miya mnk那个小家庭都能魔怔？
 
 人之初不灭😡
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4222#       发表于 2021-12-9 13:05
+
+ 本帖最后由 莫洛骑士 于 2021-12-9 01:13 编辑 
+
+统一回复下，琳说找好房子搬家之后可以解决白噪音问题的意思是找了个房子让艾白自己搬过去，望周知
+
+*****
+
+####  四叶的花  
+##### 4223#       发表于 2021-12-9 13:14
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 4224#       发表于 2021-12-9 13:14
+
+ 本帖最后由 andeloz 于 2021-12-8 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">千鸟好温暖啊 里面
+
