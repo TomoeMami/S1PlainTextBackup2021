@@ -1889,3 +1889,19 @@ https://prtimes.jp/main/html/rd/p/000000207.000060567.html
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，只能信她声乐课在上没进步了
 
+
+
+*****
+
+####  一仙  
+##### 13684#       发表于 2021-12-10 00:23
+
+感觉嗓子确实出了问题
+
+*****
+
+####  cctvyt1  
+##### 13685#       发表于 2021-12-10 00:23
+
+今天很明显的状况不好 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

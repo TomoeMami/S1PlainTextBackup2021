@@ -3111,3 +3111,26 @@ After the Fall 昨天开了
 Oculus Quest 有个截图快捷键（System Button + Right Trigger 应该是，记得不太清了），但蛋疼的是，那 ...</blockquote>
 好我回去试试
 
+
+
+*****
+
+####  拿衣服  
+##### 204#       发表于 2021-12-10 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862929&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-12-9 09:21</a>
+After the Fall 昨天开了
+
+看别人联机挺上头的，虽然有些小毛病，画质也只是中规中矩，但打起来嗨， ...</blockquote>
+有瞬移模式吗？
+
+*****
+
+####  dumplingpro  
+##### 205#       发表于 2021-12-10 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874298&amp;ptid=2034565" target="_blank">拿衣服 发表于 2021-12-10 00:36</a>
+
+有瞬移模式吗？</blockquote>
+有，除了对战地图之外，其他都能瞬移
+

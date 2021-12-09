@@ -3101,3 +3101,20 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
   -- ...</blockquote>
 所以其实就算是追love live这种企划也是会变成饭圈的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 1793#       发表于 2021-12-10 00:25
+
+ 本帖最后由 黑雪姫 于 2021-12-10 00:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874126&amp;ptid=2036367" target="_blank">A0171050 发表于 2021-12-10 00:17</a>
+
+所以其实就算是追love live这种企划也是会变成饭圈的吗或者什么二次元跟饭圈其实没啥区别 ...</blockquote>
+你在想什么，拉拉本质就是二次元饭圈...或者说偶像产业本来就是饭圈。偶像和流量明星没有任何区别，只是称呼不一样。
+
+粉丝也是同类，甚至前者有些日本的偶像粉丝干出来的龌龊事情可比国内绝大部分只会在网上喷的后者要恶劣的多。
+
+ 麻烦要认清事实。 拉拉这种已经算是饭圈里比较正常的，但本质还是饭圈，饭圈那些臭毛病不会少的。
+
