@@ -2087,3 +2087,63 @@ https://www.bilibili.com/video/BV1Lz4y1U7ks</blockquote>
 
 这垃圾玩意不死，那烈士真就白死了。
 
+
+
+*****
+
+####  李加特  
+##### 225#       发表于 2021-12-10 00:04
+
+如果没有打破的勇气，如果没有一身铁骨铜皮，还是学会当一滩烂泥的好，最起码能够活下去
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+想想曾经是如此看重B站，虽然我能够理解钱是好东西，很多人都喜欢，但此时此刻，我还是认为曾经的我就是一个傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+我很想发泄，非常想发泄，极度的想发泄，但是我不敢，所以我就只能当一滩烂泥了
+
+*****
+
+####  doink  
+##### 226#       发表于 2021-12-10 00:05
+
+只有阿宅受伤的世界达成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxs123678  
+##### 227#       发表于 2021-12-10 00:06
+
+叔叔罚酒三杯罢了
+
+*****
+
+####  chexk03  
+##### 228#       发表于 2021-12-10 00:17
+
+一天的好心情没有了
+
+当时LEX显示用户封禁中，然后视频一个都没下架隐藏我就知道有这么一天，还等仲裁司法？
+
+你看蕾丝像陈一发真的说了南京如何如何，还会有现在？
+
+现实就是除了打赵弹，阿宅一点办法都没有，被骑脸输出还是在曾经的主场，LEX B站两个都靠动画起家最终也舍弃了动画，真**配狗！
+
+*****
+
+####  Redis  
+##### 229#       发表于 2021-12-10 00:19
+
+你看雷皇还是火嘛
+
+你们就给了他8页流量LOL
+
+*****
+
+####  Redis  
+##### 230#       发表于 2021-12-10 00:22
+
+2200w
+
+这算是卖身契了吧，等于叔叔own他5年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1873,3 +1873,19 @@ https://prtimes.jp/main/html/rd/p/000000207.000060567.html
 
 还是这句话，维持到生日下周再说吧
 
+
+
+*****
+
+####  stedckk  
+##### 13682#       发表于 2021-12-10 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉还是没啥进步
+
+*****
+
+####  Fami水  
+##### 13683#       发表于 2021-12-10 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，只能信她声乐课在上没进步了
+

@@ -3088,3 +3088,16 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 算了 其实你楼和隔壁坛专楼重合度极高
 有几个id头像都一模一样的我都眼熟了
 
+
+
+*****
+
+####  A0171050  
+##### 1792#       发表于 2021-12-10 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872326&amp;ptid=2036367" target="_blank">player3960 发表于 2021-12-9 21:42</a>
+隔壁NGA还在吵，最艹的是有人说未来预报都没在动画里播过为什么要上，可见都是些什么成分的人
+
+  -- ...</blockquote>
+所以其实就算是追love live这种企划也是会变成饭圈的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
