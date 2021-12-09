@@ -10776,3 +10776,19 @@ miya mnk那个小家庭都能魔怔？
 
 彭于晏老吓人了 我每次在评论里发小宝贝都会被他点赞<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4228#       发表于 2021-12-9 15:03
+
+被管人认知不够还要被管人观众认知，人之初真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GAKOTO  
+##### 4229#         楼主| 发表于 2021-12-9 15:12
+
+<blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
