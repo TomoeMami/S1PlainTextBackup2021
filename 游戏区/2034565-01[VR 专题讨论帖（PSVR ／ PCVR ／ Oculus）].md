@@ -3041,3 +3041,23 @@ Oculus Quest v35 更新推出，对国内玩家比较有用的是<strong>全局�
 
 oculus没有像ns一样的全局截图和全局录像功能么…次次想分享运动记录截图老费力了。每次投屏到手机都很麻烦，不重启就连不上手机
 
+
+
+*****
+
+####  坑爹虎  
+##### 198#       发表于 2021-12-9 09:06
+
+我是双11买的，也是看论坛老哥用87VR 自己破解开发者模式，现在在87VR上下游戏，但是我没搞明白87VR上的游戏跟oculus的 商店有啥不一样？
+
+*****
+
+####  dumplingpro  
+##### 199#       发表于 2021-12-9 09:21
+
+After the Fall 昨天开了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看别人联机挺上头的，虽然有些小毛病，画质也只是中规中矩，但打起来嗨，嗨起来，小毛病就不在意了。
+
+但要全程联网，加速器也还没开始支持，我玩不了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

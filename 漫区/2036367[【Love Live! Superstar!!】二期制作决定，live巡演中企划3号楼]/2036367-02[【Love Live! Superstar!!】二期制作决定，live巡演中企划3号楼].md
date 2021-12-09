@@ -2544,3 +2544,64 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 昨天看完我就知道一定会吵起来，lovelive其实饭圈臭毛病一个不少，历来毒唯都不在少数，唐可可这个高人气角色又必然放大这个，哈利路亚这歌舞台效果很好，但表演形式基本就是一个主唱四个伴舞，毒唯炸裂是再正常不过的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 1753#       发表于 2021-12-9 09:12
+
+<blockquote>引用第1751楼saglork于2021-12-09 08:51发表的  :
+
+昨天看完我就知道一定会吵起来，lovelive其实饭圈臭毛病一个不少，历来毒唯都不在少数，唐可可这个......</blockquote>
+@saglork
+
+看帖是日本那边昨天也开始抱怨运营了。拉板什么的。为青山抱不平啥的。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ads147147  
+##### 1754#       发表于 2021-12-9 09:14
+
+香音传到是没什么，小百合又不是担不起，问题是为啥恋恋写成那样才是花田最草的地方，青山你要坚强。
+
+第二季可恋必爆杀可香可堇（可千：那我呢。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  秋月艾莉  
+##### 1755#       发表于 2021-12-9 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">屁大点事，不就运营对比了一下几首可以唱的挑了有高音有要虾相对而言更容易留下印象的未来预报，刚好长度也合适方便剪歌
+
+说为什么不上nonfiction或者哪首cw的纯属脑子不清楚，你1没有大爆歌曲，2人没有足够认知度，还是在初步建立大众印象阶段的时候必然会优先上标准配置，星团的标准配置就是合鲤佩奈渚
+
+5ch有没有伏牛山哪天还不是在黑酸挑，贴吧自己都有不少借机浑水摸鱼的倒是觉得5ch句句属实拿着当论据撕得煞有介事
+
+*****
+
+####  saglork  
+##### 1756#       发表于 2021-12-9 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862838&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-9 09:12</a>
+@saglork
+
+看帖是日本那边昨天也开始抱怨运营了。拉板什么的。为青山抱不平啥的。</blockquote>
+正常啊，唐可可是在国内放大毒唯，青山那个颜值在日本有毒唯再正常不过了，所以我才说这歌选得值得商榷，舞台效果没问题，箱推不在乎，但毒唯或者说轻一点的个人粉看到这种一个主场四个伴舞的表演，不满是完全可以预见的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 1757#       发表于 2021-12-9 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862838&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-9 09:12</a>
+
+@saglork
+
+看帖是日本那边昨天也开始抱怨运营了。拉板什么的。为青山抱不平啥的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">拉板早开始编排青山酸小百合各种不仲了，昨天借题发挥罢了，我不觉他们有什么真打抱不平的意思
+
