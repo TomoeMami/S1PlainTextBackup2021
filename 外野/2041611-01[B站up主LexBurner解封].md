@@ -2475,3 +2475,26 @@ B站已经玩脱一次了，捞了那个谁来（抱歉名字不记得了）直�
 
 <img src="https://p.sda1.dev/3/1a73544570dd95f469af4cba968fecd5/3c6b2b781693be8b.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lurenasa  
+##### 262#       发表于 2021-12-10 07:11
+
+就现在一堆人动画b站不上就不看的，嘴上蒙古上单一看号还是大会员的，叔叔不得可劲造，手游厂商孝子可能都没这么孝，毕竟人家还真可能会退游<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不怀好意  
+##### 263#       发表于 2021-12-10 07:12
+
+做动画的没有骂动画的挣钱
+
+*****
+
+####  flypig_zhy60  
+##### 264#       发表于 2021-12-10 07:25
+
+笑爆打压，不是转头一看一堆大会员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
