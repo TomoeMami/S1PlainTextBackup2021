@@ -2156,3 +2156,38 @@ https://www.bilibili.com/video/BV1Lz4y1U7ks</blockquote>
 
 10月续费的大会员能退款吗<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">太晦气了
 
+
+
+*****
+
+####  chidori  
+##### 232#       发表于 2021-12-10 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这楼跟隔壁说XZ的一起看就很有意思
+
+*****
+
+####  洛颜倾墨  
+##### 233#       发表于 2021-12-10 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874170&amp;ptid=2041611" target="_blank">Redis 发表于 2021-12-10 00:22</a>
+
+2200w
+
+这算是卖身契了吧，等于叔叔own他5年了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">哪有，人家一年就能赚回来了。
+
+*****
+
+####  nmeter  
+##### 234#       发表于 2021-12-10 00:58
+
+叔叔 自罚两杯  我之前充大会员真的sb
+
+*****
+
+####  ドロロ  
+##### 235#       发表于 2021-12-10 01:01
+
+叔叔骗未成年的钱缺德啊
+
