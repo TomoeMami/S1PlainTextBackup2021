@@ -3036,3 +3036,14 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 泥老师画的中之人系列都好有意思
 
+
+
+*****
+
+####  player3960  
+##### 1789#       发表于 2021-12-9 21:42
+
+隔壁NGA还在吵，最艹的是有人说未来预报都没在动画里播过为什么要上，可见都是些什么成分的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

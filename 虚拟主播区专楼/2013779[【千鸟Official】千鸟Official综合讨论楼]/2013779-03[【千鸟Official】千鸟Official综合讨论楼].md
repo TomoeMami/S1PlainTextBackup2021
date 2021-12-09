@@ -10870,3 +10870,72 @@ syl,王木木锐评文静玩游戏
 
 文静锐评蕾÷：你怎么知道我没有发帖，我真的没有发帖喂！
 
+
+
+*****
+
+####  小憨1  
+##### 4238#       发表于 2021-12-9 21:25
+
+说记得我，我赢麻了！
+
+*****
+
+####  rgauss  
+##### 4239#       发表于 2021-12-9 21:26
+
+文静冲浪时间还是不够
+
+*****
+
+####  伞沢直美  
+##### 4240#       发表于 2021-12-9 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有一种可能，文静瞧着像网老嗨其实都是做主播这阵填鸭式自学的，之前都是乖乖女没有网上冲浪过
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">她真的，我哭死，#文静 学力#
+
+*****
+
+####  小憨1  
+##### 4241#       发表于 2021-12-9 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872142&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-12-9 21:27</a>
+有没有一种可能，文静瞧着像网老嗨其实都是做主播这阵填鸭式自学的，之前都是乖乖女没有网上冲浪过
+
+ ...</blockquote>
+确实是开播前恶补的
+
+*****
+
+####  rgauss  
+##### 4242#       发表于 2021-12-9 21:34
+
+ 本帖最后由 rgauss 于 2021-12-9 21:36 编辑 
+
+处刑臭臭泥是吧
+
+"我和ndwd老师，真是话也不敢说，赞也不敢点"
+
+*****
+
+####  伞沢直美  
+##### 4243#       发表于 2021-12-9 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">别再给京华哥哥招魂了，小心把洗脚姐姐引来
+
+*****
+
+####  人民de救星  
+##### 4244#       发表于 2021-12-9 21:38
+
+公开处刑臭臭泥<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 4245#       发表于 2021-12-9 21:38
+
+文静的粉丝全是女粉
+

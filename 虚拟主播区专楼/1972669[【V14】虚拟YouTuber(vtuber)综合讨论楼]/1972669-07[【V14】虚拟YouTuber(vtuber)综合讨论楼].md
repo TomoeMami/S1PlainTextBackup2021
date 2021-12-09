@@ -2366,3 +2366,16 @@ lex回旋有女粉打钱弥补 ，管人回旋又没有CN钱赚
 
 ban‘s这帮人看起来都混得还不错
 
+
+
+*****
+
+####  fastary  
+##### 9194#       发表于 2021-12-9 21:25
+
+ymen要跟os团的朋友一起旅游几天，说是好久没出过门，打算挤出最后一点活力去乐一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+虽然黑客没什么朋友(?)但是幸好ymen有<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+就是一定要小心防疫啊(小声)
+

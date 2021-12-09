@@ -1503,3 +1503,42 @@ sb，lex。叔叔，rnm，退钱
 
 大的都没来，还能憋回去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一般通过宅宅  
+##### 165#       发表于 2021-12-9 21:25
+
+出道六百九十万粉，堪比又一个巨型的奇迹之夜。。。这个起步是多少小up梦寐难求的，希望lex能够抓住这个幻象带来的奇迹，好好的在B站顺利站住脚！中国粉丝都很亚撒西，只要你对我们真心实意，粉丝们也会用真心回报的。祝福向lex未来直播顺利...
+
+*****
+
+####  acejoe  
+##### 166#       发表于 2021-12-9 21:31
+
+你怎么知道那些舰长不是刷的？
+mcn开播刷礼物不是常规操作？
+
+*****
+
+####  仓鼠吃火锅  
+##### 167#       发表于 2021-12-9 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872014&amp;ptid=2041611" target="_blank">yudms1 发表于 2021-12-9 21:15</a>
+
+做日漫的杂谈怎么能跟粉圈沾上的？这粉丝的战斗力真离谱了</blockquote>
+早就搭上叔叔综艺车跟其他up卖腐营业，女粉才是基本盘，搜主楼公告能顺带搜出一堆女粉产的<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">文
+
+*****
+
+####  henryqxg  
+##### 168#       发表于 2021-12-9 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871737&amp;ptid=2041611" target="_blank">shhekun 发表于 2021-12-9 20:57</a>
+
+舰队速度按秒的速度肉眼可见的增长，叔叔和蕾皇赢麻了。
+
+二次元确实费拉不堪，蕾皇骂的没问题。 ...</blockquote>
+蕾皇骂的没问题那这2200w不是白赔了，我说实话凭什么罚我<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
