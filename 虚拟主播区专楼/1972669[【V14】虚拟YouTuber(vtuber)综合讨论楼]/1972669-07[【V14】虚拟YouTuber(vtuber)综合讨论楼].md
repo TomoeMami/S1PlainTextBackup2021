@@ -2303,3 +2303,55 @@ FC先行抽選は 12/10 12:00 からスタート！
 詳細はこちら▽
 [https://universal-music.co.jp/raindrops/news/2021-12-09/](https://universal-music.co.jp/raindrops/news/2021-12-09/)
 
+
+
+*****
+
+####  Unlight  
+##### 9188#       发表于 2021-12-9 19:53
+
+蕾皇回来了，那么〇〇live回旋是不是也不是不可能？（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a2276382  
+##### 9189#       发表于 2021-12-9 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870808&amp;ptid=1972669" target="_blank">Unlight 发表于 2021-12-9 19:53</a>
+蕾皇回来了，那么〇〇live回旋是不是也不是不可能？（
+
+—— 来自 S1Fun</blockquote>
+holo有那个钱么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 9190#       发表于 2021-12-9 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870808&amp;ptid=1972669" target="_blank">Unlight 发表于 2021-12-9 19:53</a>
+
+蕾皇回来了，那么〇〇live回旋是不是也不是不可能？（
+
+—— 来自 S1Fun</blockquote>
+海外大赢特赢，已经不需要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 9191#       发表于 2021-12-9 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870834&amp;ptid=1972669" target="_blank">a2276382 发表于 2021-12-9 19:55</a>
+holo有那个钱么</blockquote>
+可以找蕾皇帮忙清帐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  空集  
+##### 9192#       发表于 2021-12-9 19:57
+
+lex回旋有女粉打钱弥补 ，管人回旋又没有CN钱赚
+

@@ -3516,3 +3516,17 @@ O毒株之前在发达国家隐藏传播的可能性不大。
 
 这种观点现在当然也有，就是认为O毒株低重症率低死亡率而且抗体对德尔塔有效的圣诞礼物说。
 
+
+
+*****
+
+####  桐名  
+##### 1792#       发表于 2021-12-9 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862722&amp;ptid=2039422" target="_blank">Redis 发表于 2021-12-9 08:56</a>
+
+辉瑞的新数据怎么解读
+
+第三针就完事儿了？</blockquote>
+打满1本送1针<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
