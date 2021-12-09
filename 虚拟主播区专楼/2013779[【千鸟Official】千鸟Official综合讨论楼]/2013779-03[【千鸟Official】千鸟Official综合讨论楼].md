@@ -10851,3 +10851,22 @@ syl,王木木锐评文静玩游戏
 
 好图我偷
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4236#       发表于 2021-12-9 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870746&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-12-9 19:49</a>
+
+现在运营到底是死是活？看不明白了</blockquote>
+交 接
+
+*****
+
+####  伞沢直美  
+##### 4237#       发表于 2021-12-9 21:17
+
+文静锐评蕾÷：你怎么知道我没有发帖，我真的没有发帖喂！
+

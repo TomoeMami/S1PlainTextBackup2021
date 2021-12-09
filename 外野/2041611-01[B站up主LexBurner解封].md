@@ -1288,3 +1288,218 @@ sb，lex。叔叔，rnm，退钱
 可惜宅宅们外战怂如狗只会当鸵鸟</blockquote>
 无职转生这事就是莱克星顿的枪声，从那之后男女就彻底打起来了，未来女拳进棺材肯定有蕾丝割割一笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  🔪贱神🐟  
+##### 142#       发表于 2021-12-9 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发张老图
+<img src="https://p.sda1.dev/3/28c2b541c38a9d98224eec0edf2aea4d/6be87c4a0f017faa.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 143#       发表于 2021-12-9 21:04
+
+ 本帖最后由 古战场亡魂 于 2021-12-9 21:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871785&amp;ptid=2041611" target="_blank">Humpy 发表于 2021-12-9 21:00</a>
+
+我觉得叔叔肯定特别怀念大象公会回形针</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大象公会、回形针是个几把，那么点境外收入。哪比得上这流水。科普技术无非是用来装门面的，有你能过没你也能过。
+
+*****
+
+####  poppin  
+##### 144#       发表于 2021-12-9 21:04
+
+叔叔能不能赶紧去死，跟蕾皇一起死
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Edward_Winry  
+##### 145#       发表于 2021-12-9 21:04
+
+这舰长速度，叔叔真是赚疯了<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+— from OnePlus GM1910, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  真田源次郎信繁  
+##### 146#       发表于 2021-12-9 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871840&amp;ptid=2041611" target="_blank">🔪贱神🐟 发表于 2021-12-9 21:03</a>
+
+发张老图</blockquote>
+就是这个味，这评论味牛逼了
+
+*****
+
+####  yudms1  
+##### 147#       发表于 2021-12-9 21:07
+
+千舰了，叔叔赢麻了
+
+*****
+
+####  lpsquirrel  
+##### 148#       发表于 2021-12-9 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871847&amp;ptid=2041611" target="_blank">古战场亡魂 发表于 2021-12-9 21:04</a>
+大象公会、回形针是个几把，那么点境外收入。哪比得上这流水。科普技术无非是用来装门面的，有你能 ...</blockquote>
+毕竟回形针之前有和央视合作过，装装大尾巴狼还是很好用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古战场亡魂  
+##### 149#       发表于 2021-12-9 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871897&amp;ptid=2041611" target="_blank">lpsquirrel 发表于 2021-12-9 21:07</a>
+
+毕竟回形针之前有和央视合作过，装装大尾巴狼还是很好用的
+
+—— 来自 Xiaomi M2006J10C, Android ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正以后后又不是央视不会找人合作了，再请就是了，铁打的饭圈经济，流水的科普区牌面。
+
+*****
+
+####  asdhai  
+##### 150#       发表于 2021-12-9 21:10
+
+不是，这交了两千万他还能赚回来这么多吗
+
+
+
+*****
+
+####  Booorunestud  
+##### 151#       发表于 2021-12-9 21:11
+
+歪下楼，老E的六千多万最后怎么算的，是不是能作为参考
+
+*****
+
+####  Humpy  
+##### 152#       发表于 2021-12-9 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871932&amp;ptid=2041611" target="_blank">asdhai 发表于 2021-12-9 21:10</a>
+不是，这交了两千万他还能赚回来这么多吗</blockquote>
+能啊，所以我说要想让lex皱眉怎么也得20亿一年时间分期
+
+*****
+
+####  超阳电子炮  
+##### 153#       发表于 2021-12-9 21:13
+
+这一年都不到叔叔都等不了了吗
+
+*****
+
+####  stormist  
+##### 154#       发表于 2021-12-9 21:13
+
+为啥老蕾能活但是cha研死了！这不公平！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cube  
+##### 155#       发表于 2021-12-9 21:14
+
+“UP主想混顶流，得培养粉圈，拉拢叔叔，搞百大计划，叔叔给钱了，粉圈们才会跟着打赏，得钱之后，叔叔的钱如数奉还，韭菜的钱三七分成。”
+
+“怎么才七成啊。”
+
+“七成那是人家的！能得三成还得看叔叔的脸色。那个谁跟叔叔撕破脸，割的那点韭菜黄全搭回去了。”
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Quelaan| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  yudms1  
+##### 156#       发表于 2021-12-9 21:15
+
+做日漫的杂谈怎么能跟粉圈沾上的？这粉丝的战斗力真离谱了
+
+*****
+
+####  天使日又日  
+##### 157#       发表于 2021-12-9 21:16
+
+如果今天收入全归叔叔，光千舰就20W了，想还2000W确实不难啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 158#       发表于 2021-12-9 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871932&amp;ptid=2041611" target="_blank">asdhai 发表于 2021-12-9 21:10</a>
+
+不是，这交了两千万他还能赚回来这么多吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  如月尤菲  
+##### 159#       发表于 2021-12-9 21:18
+
+ 本帖最后由 如月尤菲 于 2021-12-9 21:19 编辑 
+
+这架势，一个月就还完了
+这钱还是好赚<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  阿酷怕苦  
+##### 160#       发表于 2021-12-9 21:20
+
+直播热门第一，你们都有责任
+
+*****
+
+####  acejoe  
+##### 161#       发表于 2021-12-9 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870286&amp;ptid=2041611" target="_blank">Map-2 发表于 2021-12-9 19:18</a>
+转发高雅创作</blockquote>
+这不来个nft艺术交易平台上架？
+
+*****
+
+####  Map-2  
+##### 162#         楼主| 发表于 2021-12-9 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872077&amp;ptid=2041611" target="_blank">阿酷怕苦 发表于 2021-12-9 21:20</a>
+直播热门第一，你们都有责任</blockquote>
+直播间15级牌子禁言，坛友不背锅嗷<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+只能说蕾孝女太猛了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油葱youcong  
+##### 163#       发表于 2021-12-9 21:23
+
+你怎么知道流水不是叔叔后台改改数据刷的。。。
+
+*****
+
+####  rsgdn  
+##### 164#       发表于 2021-12-9 21:23
+
+大的都没来，还能憋回去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
