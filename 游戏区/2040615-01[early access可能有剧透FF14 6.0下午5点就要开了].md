@@ -1732,3 +1732,12 @@ ea就在打到今天终于磨磨蹭蹭打完了，灭了三回把华哥打哭，
 
 s1有狒狒群吗
 
+
+
+*****
+
+####  HATENA  
+##### 170#       发表于 2021-12-9 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在tb买了个幻想药激活码兑换了但是等了3个多小时都没有邮件，请求特典也没有，是我漏了哪里没操作还是辣鸡se把我药吞了
+
