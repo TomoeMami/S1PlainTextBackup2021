@@ -1147,3 +1147,144 @@ sb，lex。叔叔，rnm，退钱
 
 服了这帮粉圈，那天粉圈号召搞事，这帮女的九成九真会去搞事
 
+
+
+*****
+
+####  zuckmydik  
+##### 125#       发表于 2021-12-9 20:49
+
+那只能证明宅宅没有统战价值，要是宅宅有统战价值肯定叔叔要舔宅宅
+可惜宅宅们外战怂如狗只会当鸵鸟
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  virusking  
+##### 126#       发表于 2021-12-9 20:51
+
+这➗牲已经开播了
+
+*****
+
+####  Kugimiya  
+##### 127#       发表于 2021-12-9 20:51
+
+陈睿尼玛死了
+
+*****
+
+####  Humpy  
+##### 128#       发表于 2021-12-9 20:52
+
+2000万好像不算太多吧，要是罚20亿一年内分期还完可能才会让lex皱皱眉头？
+
+*****
+
+####  nerugigannte  
+##### 129#       发表于 2021-12-9 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心情太好的可以去看眼弹幕
+
+*****
+
+####  yudms1  
+##### 130#       发表于 2021-12-9 20:55
+
+真恐怖，这么快就500舰了
+
+*****
+
+####  shhekun  
+##### 131#       发表于 2021-12-9 20:57
+
+舰队速度按秒的速度肉眼可见的增长，叔叔和蕾皇赢麻了。
+
+二次元确实费拉不堪，蕾皇骂的没问题。
+
+*****
+
+####  致远星  
+##### 132#       发表于 2021-12-9 20:57
+
+叔叔我啊，早就觉得阿宅这条尾巴该抛了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 133#       发表于 2021-12-9 20:57
+
+等级墙可太有用了，开个20级墙，不交钱不给发言，你出来看着直播间提供人气，在外面骂骂咧咧卵用没有。
+
+*****
+
+####  shhekun  
+##### 134#       发表于 2021-12-9 20:58
+
+话说按这个趋势，叔叔可以搞个百大怀旧节目嘛，让去世的百大纷纷复活。
+
+*****
+
+####  Narrative  
+##### 135#       发表于 2021-12-9 20:58
+
+还是搞饭圈挣钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Quelaan  
+##### 136#       发表于 2021-12-9 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871466&amp;ptid=2041611" target="_blank">希远闹 发表于 2021-12-9 20:40</a>
+
+还说烈士了？这不算失德？ 举报了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我群里一帮lex粉还觉得这算什么事呢
+
+*****
+
+####  Map-2  
+##### 137#         楼主| 发表于 2021-12-9 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871384&amp;ptid=2041611" target="_blank">星野莉莉 发表于 2021-12-9 20:33</a>
+盲猜回归后首次直播玩原神</blockquote>
+现在在播农<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我记得他以前也是玩农的
+
+*****
+
+####  希远闹  
+##### 138#       发表于 2021-12-9 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871767&amp;ptid=2041611" target="_blank">Quelaan 发表于 2021-12-9 20:59</a>
+
+我群里一帮lex粉还觉得这算什么事呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有用没用不说 我等会去举报
+
+*****
+
+####  Humpy  
+##### 139#       发表于 2021-12-9 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871753&amp;ptid=2041611" target="_blank">shhekun 发表于 2021-12-9 20:58</a>
+
+话说按这个趋势，叔叔可以搞个百大怀旧节目嘛，让去世的百大纷纷复活。</blockquote>
+我觉得叔叔肯定特别怀念大象公会回形针<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苑生百花  
+##### 140#       发表于 2021-12-9 21:01
+
+肥肥是真的不行，八妹琪琪都被安排了，蕾丝居然这么轻松的恰烂钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdhf028397  
+##### 141#       发表于 2021-12-9 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871599&amp;ptid=2041611" target="_blank">zuckmydik 发表于 2021-12-9 20:49</a>
+那只能证明宅宅没有统战价值，要是宅宅有统战价值肯定叔叔要舔宅宅
+可惜宅宅们外战怂如狗只会当鸵鸟</blockquote>
+无职转生这事就是莱克星顿的枪声，从那之后男女就彻底打起来了，未来女拳进棺材肯定有蕾丝割割一笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
