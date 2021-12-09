@@ -3032,3 +3032,12 @@ Oculus Quest v35 更新推出，对国内玩家比较有用的是<strong>全局�
 
 —— 来自 Xiaomi M2004J19C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hikari0805  
+##### 197#       发表于 2021-12-9 08:41
+
+oculus没有像ns一样的全局截图和全局录像功能么…次次想分享运动记录截图老费力了。每次投屏到手机都很麻烦，不重启就连不上手机
+

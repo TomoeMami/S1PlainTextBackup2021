@@ -2519,3 +2519,28 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 贴吧没怎么吵吧，好像是搬运的5ch的贴</blockquote>
 看了下几个说fns的贴都在吵
 
+
+
+*****
+
+####  Karin11974  
+##### 1750#       发表于 2021-12-9 08:48
+
+香音传怎么了，一开始就是固定c位的，这次还抽到了ur小百合，私を叶える少女たちの物語，我是运营我也4保1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  player3960  
+##### 1751#       发表于 2021-12-9 08:50
+
+就那几个熟悉的id在带节奏，这边建议他们建个群去冲运营呢，虽然演都演完了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saglork  
+##### 1752#       发表于 2021-12-9 08:51
+
+昨天看完我就知道一定会吵起来，lovelive其实饭圈臭毛病一个不少，历来毒唯都不在少数，唐可可这个高人气角色又必然放大这个，哈利路亚这歌舞台效果很好，但表演形式基本就是一个主唱四个伴舞，毒唯炸裂是再正常不过的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

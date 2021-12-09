@@ -10446,3 +10446,37 @@ syl 无内鬼，来点二表姐嗨丝
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4192#       发表于 2021-12-9 08:43
+
+挺希望能看到文静和桃皇联动的，虽然我只看桃皇切片，但那主要是因为没字幕我听不懂
+
+*****
+
+####  袜子  
+##### 4193#       发表于 2021-12-9 08:50
+
+麻中麻，早上起来不但要上班还被认知厨暴杀，这日子没法过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夜潇箫  
+##### 4194#       发表于 2021-12-9 08:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">相比文静，桃皇才是吸血鬼，势利眼，没好处她会贴上来?
+
+*****
+
+####  T型钉宫病毒  
+##### 4195#       发表于 2021-12-9 08:55
+
+桃皇出了名的自闭，真联动怕不是大家一起坐牢
+
+syl桃语入门推荐看她的高考恋爱一百天，两天摆脱字幕
+

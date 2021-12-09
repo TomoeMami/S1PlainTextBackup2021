@@ -3249,3 +3249,21 @@ FDA本周向美国得州地区的联邦法官请求，允许该机构每个月�
 法庭要求FDA公开辉瑞疫苗资料，当中包括记录 ...</blockquote>
 这东西好像和变种病毒没什么关系吧
 
+
+
+*****
+
+####  Redis  
+##### 1772#       发表于 2021-12-9 08:56
+
+辉瑞的新数据怎么解读
+
+第三针就完事儿了？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 1773#       发表于 2021-12-9 08:57
+
+这个结论你不是说我还以为是市场部做的，两针没用，三证刚刚好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
