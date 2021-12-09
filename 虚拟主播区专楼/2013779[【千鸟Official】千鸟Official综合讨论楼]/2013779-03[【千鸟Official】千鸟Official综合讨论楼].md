@@ -10646,3 +10646,30 @@ miya mnk那个小家庭都能魔怔？
 
 王木木和文静什么精神伴侣<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 4214#       发表于 2021-12-9 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼屎黄色论坛怎么已经开始特定了 这还是我认识的屎黄色论坛吗
+
+*****
+
+####  夜潇箫  
+##### 4215#       发表于 2021-12-9 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开开开。
+文静真是老头啊，不缺钱啊，难怪追着偶像梦
+
+*****
+
+####  灰色的狐狸  
+##### 4216#       发表于 2021-12-9 12:37
+
+队长再问人之初是什么意思
+所以是啥意思
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

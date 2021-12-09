@@ -2802,3 +2802,48 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 这种引战混子都看不出来，那也没法救了
 
+
+
+*****
+
+####  cybernetics31  
+##### 1769#       发表于 2021-12-9 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53864683&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-9 11:35</a>
+说起来鲤鱼以前直播是不是有开瘦脸啊（
+
+看古早直播录像脸比现在瘦不少 甚至尖下巴
+
+但是仔细看的话会感觉似 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">胖了是胖了点，再加上古早头发长，发型也有影响
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说实话昨晚fns 演出效果还不错
+
+*****
+
+####  emmer  
+##### 1770#       发表于 2021-12-9 12:33
+
+ 本帖最后由 emmer 于 2021-12-9 12:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53864683&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-9 11:35</a>
+
+说起来鲤鱼以前直播是不是有开瘦脸啊（
+
+看古早直播录像脸比现在瘦不少 甚至尖下巴
+
+但是仔细看的话会感觉似 ...</blockquote>
+当然开啦……
+
+不必纠结这种事，今时今日网络美少女没有出镜不开滤镜的
+
+各种APP都是默认开启的
+
+
+
+*****
+
+####  Norkey1  
+##### 1771#       发表于 2021-12-9 12:37
+
+这次歌选的确实有问题，不过激的争议是正常的，但是人总不能太和自己过不去，前面有人说选这首抓耳吸路人也是有道理
+分蛋糕立德多分一点其实也挺正常，队内就五个人分怎么分大家都少不了多少…
+
