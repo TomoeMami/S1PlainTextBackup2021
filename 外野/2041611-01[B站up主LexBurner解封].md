@@ -921,3 +921,229 @@ sb，lex。叔叔，rnm，退钱
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Sofiya  
+##### 100#       发表于 2021-12-9 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">谢谢叔叔
+
+*****
+
+####  机吉斯卡  
+##### 101#       发表于 2021-12-9 20:25
+
+这么有钱？？？2200万啊
+
+*****
+
+####  数独无双  
+##### 102#       发表于 2021-12-9 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871257&amp;ptid=2041611" target="_blank">MAO_DREAMER 发表于 2021-12-9 20:24</a>
+
+一直想不明白这些寄吧up一个商单怎么赚这么多的，又没啥优惠，还一堆人买，这他妈是脑控吗
+
+—— 来 ...</blockquote>
+说不定是公款捧角儿呢 
+
+*****
+
+####  三季人  
+##### 103#       发表于 2021-12-9 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871257&amp;ptid=2041611" target="_blank">MAO_DREAMER 发表于 2021-12-9 20:24</a>
+一直想不明白这些寄吧up一个商单怎么赚这么多的，又没啥优惠，还一堆人买，这他妈是脑控吗
+
+—— 来 ...</blockquote>
+这就是粉圈（juan）的威力
+
+*****
+
+####  我很费纸  
+##### 104#       发表于 2021-12-9 20:28
+
+一天的好心情被晦气的傻逼消息毁了
+
+说实话我一点不关心傻逼蕾皇的死活，但又看见某些看了两句锐评就开始无所不懂的奇葩开始跳脚批评无职是个烂片真真尼玛只能感叹CNM晦气<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天仓怜  
+##### 105#       发表于 2021-12-9 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">都回来了
+
+*****
+
+####  龙虎山张天师  
+##### 106#       发表于 2021-12-9 20:29
+
+2220万如数奉还，粉丝的钱三七分成
+
+*****
+
+####  飞姆托  
+##### 107#       发表于 2021-12-9 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871213&amp;ptid=2041611" target="_blank">(wing) 发表于 2021-12-9 20:21</a>
+
+还是个精日，哄得B战精日小朋友可开心了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">推动先审后播就是LEX，你说他是精日？
+
+*****
+
+####  luluwan  
+##### 108#       发表于 2021-12-9 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870713&amp;ptid=2041611" target="_blank">Map-2 发表于 2021-12-9 19:47</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  淼霆  
+##### 109#       发表于 2021-12-9 20:30
+
+**的恶心坏了
+
+*****
+
+####  bearsnowk  
+##### 110#       发表于 2021-12-9 20:31
+
+第一个找皇帝做广告的会是哪个手游呢
+
+*****
+
+####  一色彩羽的家人  
+##### 111#       发表于 2021-12-9 20:31
+
+咋他一解封就给我拉黑了，我还啥都没干呐
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  禹火  
+##### 112#       发表于 2021-12-9 20:31
+
+这种无才无德，还口嗨烈士的货色也能花钱消灾，秽土转生，真不愧是大B站<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  冀人燕南天  
+##### 113#       发表于 2021-12-9 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871302&amp;ptid=2041611" target="_blank">我很费纸 发表于 2021-12-9 20:28</a>
+
+一天的好心情被晦气的傻逼消息毁了
+
+说实话我一点不关心傻逼蕾皇的死活，但又看见某些看了两句锐评就开始无 ...</blockquote>
+让我想到了当年的银魂，蕾皇臭了之后某些银魂粉丝绝地逆袭，一举把喷猩猩的都定义为被蕾皇冼脑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onlv星骸  
+##### 114#       发表于 2021-12-9 20:33
+
+<img src="https://img.saraba1st.com/forum/202112/09/203155rx8tx3qfxix3xi3a.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211209203137.png</strong> (63.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 20:31 上传
+
+我寻思他之前对B站形象声誉的损害，还有网络环境的损害都没他这次复活来的大。
+
+*****
+
+####  古战场亡魂  
+##### 115#       发表于 2021-12-9 20:33
+
+<blockquote>飞姆托 发表于 2021-12-9 20:29
+推动先审后播就是LEX，你说他是精日？</blockquote>
+是不是真的精日另说，笑了，精美的也有的是看不起游戏的，精日看不起二次元也没毛病啊。
+
+*****
+
+####  星野莉莉  
+##### 116#       发表于 2021-12-9 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871342&amp;ptid=2041611" target="_blank">bearsnowk 发表于 2021-12-9 20:31</a>
+
+第一个找皇帝做广告的会是哪个手游呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜回归后首次直播玩原神
+
+*****
+
+####  L.L  
+##### 117#       发表于 2021-12-9 20:34
+
+ 本帖最后由 L.L 于 2021-12-9 20:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我在想 这个事毕竟还是年初，真要晚一年22年的话 虽然结局肯定还是阿宅被骑脸输出，但现在大环境下打拳毕竟反击上肯定还是比年初还要强不少。乐子人狂喜。LES恰MHY广告次数不少，BBB广告就蛮多的了，等一个复播原神。
+
+*****
+
+####  小拖  
+##### 118#       发表于 2021-12-9 20:35
+
+这傻x在泥潭记得有账号的啊，不出来骑个脸？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  伊良部一郎  
+##### 119#       发表于 2021-12-9 20:36
+
+这2000万，不是要给叔叔打工到退休么？
+
+*****
+
+####  棒读  
+##### 120#       发表于 2021-12-9 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蕾丝菊苣能掏出2200W赎金，购买他广告商品的人都有责任啊
+
+
+
+*****
+
+####  希远闹  
+##### 121#       发表于 2021-12-9 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871352&amp;ptid=2041611" target="_blank">禹火 发表于 2021-12-9 20:31</a>
+
+这种无才无德，还口嗨烈士的货色也能花钱消灾，秽土转生，真不愧是大B站。 ...</blockquote>
+还说烈士了？这不算失德？ 举报了
+
+*****
+
+####  wwz11s  
+##### 122#       发表于 2021-12-9 20:41
+
+****<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fantuanxiaoyi  
+##### 123#       发表于 2021-12-9 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871159&amp;ptid=2041611" target="_blank">梓鲨小队 发表于 2021-12-9 20:16</a>
+
+据说影视飓风这样的头部up一年的商单就有千万</blockquote>
+影视飓风可以说是很多专业软件和3C器材的招牌之一了。客单价和阿宅就不是一个次元的。
+
+*****
+
+####  机吉斯卡  
+##### 124#       发表于 2021-12-9 20:43
+
+服了这帮粉圈，那天粉圈号召搞事，这帮女的九成九真会去搞事
+

@@ -3017,3 +3017,22 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 尤其是那句“好～离远点离远点”，脑内自动播放香音的声音了都
 
+
+
+*****
+
+####  chenflyyy  
+##### 1787#       发表于 2021-12-9 20:28
+
+ 本帖最后由 chenflyyy 于 2021-12-9 20:33 编辑 
+
+ニードロ老师，永远的神<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">话说最近才知道ニードロ老师是国人
+话说日本人是不是出于社交礼仪不敢在推上画中之人cp，推上见到画中之人cp的不是国人就是韩国人<img src="https://p.sda1.dev/3/9967ebcffdda49285d62f70ef2dc3a88/IMG_CMP_260842239.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 1788#       发表于 2021-12-9 20:30
+
+泥老师画的中之人系列都好有意思
+
