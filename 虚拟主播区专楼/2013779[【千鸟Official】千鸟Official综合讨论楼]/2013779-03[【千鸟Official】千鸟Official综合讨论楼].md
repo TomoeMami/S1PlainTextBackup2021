@@ -11291,3 +11291,35 @@ syl a sir this way
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">没炸 文静网不好 萌娘百科有时候我都要挂梯子
 
+
+
+*****
+
+####  Quark  
+##### 4290#       发表于 2021-12-9 23:03
+
+搜其他的秒出结果 但是搜千鸟文静真的一直没有动静 好奇怪啊
+
+
+
+*****
+
+####  newperson  
+##### 4291#       发表于 2021-12-9 23:05
+
+什么叫顶级认知啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4292#       发表于 2021-12-9 23:09
+
+什么顶级认知
+
+*****
+
+####  莫洛骑士  
+##### 4293#       发表于 2021-12-9 23:20
+
+原来加入熟人社会只需要狠狠地骂文静，我学会了
+

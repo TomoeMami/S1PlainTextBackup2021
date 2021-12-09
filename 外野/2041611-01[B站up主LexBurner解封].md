@@ -1901,3 +1901,121 @@ b站某知名up直播玩游戏时口嗨烈士
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  liesley  
+##### 208#       发表于 2021-12-9 23:04
+
+版本答案了属于是，叔叔这是紧跟热点！
+
+*****
+
+####  NaYo丶  
+##### 209#       发表于 2021-12-9 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872738&amp;ptid=2041611" target="_blank">Ny 发表于 2021-12-9 22:14</a>
+重温了波士顿圆脸开团冲蕾丝的视频
+
+https://www.bilibili.com/video/BV1Lz4y1U7ks</blockquote>
+指望波士顿圆脸 我呸 早就拉黑的狗东西<img src="https://p.sda1.dev/3/33225609dbada883fc17591a3501bb3b/IMG_CMP_73655882.jpeg" referrerpolicy="no-referrer">
+就他这水平比lex恶心人 恰完流量怕了举白旗
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  保罗赫伯特  
+##### 210#       发表于 2021-12-9 23:08
+
+ 本帖最后由 保罗赫伯特 于 2021-12-9 23:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873394&amp;ptid=2041611" target="_blank">NaYo丶 发表于 2021-12-9 23:05</a>
+
+指望波士顿圆脸 我呸 早就拉黑的狗东西
+
+就他这水平比lex恶心人 恰完流量怕了举白旗</blockquote>
+选择性冲锋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了一下还是去年二月份的，这跪的也太早了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  爱尔米娜  
+##### 211#       发表于 2021-12-9 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872014&amp;ptid=2041611" target="_blank">yudms1 发表于 2021-12-9 21:15</a>
+
+做日漫的杂谈怎么能跟粉圈沾上的？这粉丝的战斗力真离谱了</blockquote>
+无所不饭圈吧，据说熊猫也有饭圈，一堆熊猫那些人能认出哪只打哪只的，认不出的都不好意思说是粉丝。
+
+*****
+
+####  织云纺雪  
+##### 212#       发表于 2021-12-9 23:10
+
+坐等其他UP有样学样，各大平台群魔乱舞。
+
+*****
+
+####  Map-2  
+##### 213#         楼主| 发表于 2021-12-9 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873434&amp;ptid=2041611" target="_blank">保罗赫伯特 发表于 2021-12-9 23:08</a>
+
+选择性冲锋
+
+看了一下还是去年二月份的，这跪的也太早了</blockquote>
+今年<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 214#       发表于 2021-12-9 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873471&amp;ptid=2041611" target="_blank">Map-2 发表于 2021-12-9 23:11</a>
+
+今年</blockquote>
+瞎了，下意识觉得已经22年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  比比巴巴波  
+##### 215#       发表于 2021-12-9 23:15
+
+得，蕾皇就喜欢你们看他不爽还只能看他收钱的样子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+以后女杨笠男蕾丝，使劲给你们喂奥利给
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特|-1|思路广|
+
+查看全部评分
+
+*****
+
+####  iuhehc  
+##### 216#       发表于 2021-12-9 23:20
+
+二次元哪有up主艺人化赚的多捏 叔叔我啊_
+
+*****
+
+####  Endix龙  
+##### 217#       发表于 2021-12-9 23:20
+
+先审后播，LEX只是被借题发挥了而已。
+
+我以为大家是想让lex糊而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

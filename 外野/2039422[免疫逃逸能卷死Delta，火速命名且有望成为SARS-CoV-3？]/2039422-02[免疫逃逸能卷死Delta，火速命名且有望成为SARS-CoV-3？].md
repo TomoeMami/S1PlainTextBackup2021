@@ -3530,3 +3530,16 @@ O毒株之前在发达国家隐藏传播的可能性不大。
 第三针就完事儿了？</blockquote>
 打满1本送1针<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  L.L  
+##### 1793#       发表于 2021-12-9 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867681&amp;ptid=2039422" target="_blank">longrider 发表于 2021-12-9 15:35</a>
+微信公众号：拍照稀烂的焦虑怪
+
+https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ</blockquote>
+这场PVE里我看到了人类高尚的品格也看到了人类丑陋的面貌，但这场pve还看不到尽头，丑陋的人没有回头路只能继续丑陋下去。
+
