@@ -1686,3 +1686,131 @@ u1s1，你们不至于真觉得蕾蝗导致先审后播吧，说他是导火索�
 
 主播这行这么赚钱吗？
 
+
+
+*****
+
+####  Map-2  
+##### 184#         楼主| 发表于 2021-12-9 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872555&amp;ptid=2041611" target="_blank">洛颜倾墨 发表于 2021-12-9 22:00</a>
+现在看是1255条评论，然后最新评论是#57248楼
+
+就算他回来，还敢开播吗？ ...</blockquote>
+已经播了啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛颜倾墨  
+##### 185#       发表于 2021-12-9 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872595&amp;ptid=2041611" target="_blank">巨灵巴谛魔 发表于 2021-12-9 22:04</a>
+
+已经播完，豪取一千三百舰长了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他是不是开了很高的牌子墙
+
+*****
+
+####  璃絵和花瑠  
+##### 186#       发表于 2021-12-9 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872657&amp;ptid=2041611" target="_blank">洛颜倾墨 发表于 2021-12-9 22:08</a>
+他是不是开了很高的牌子墙</blockquote>
+15级<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jacatay  
+##### 187#       发表于 2021-12-9 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事 最近叔叔后台改改数据
+
+再过段日子 大家都忘了
+
+*****
+
+####  如月尤菲  
+##### 188#       发表于 2021-12-9 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去俺专楼看看呗，甚至有打赏十万的，叔叔都亲自下场了，小仙女一转口风立马感恩戴德的
+
+*****
+
+####  PENTAX-DA  
+##### 189#       发表于 2021-12-9 22:12
+
+这钱是不是就是叔叔左手转右手，账面上凭空进账2200w
+
+*****
+
+####  Asukalangley33  
+##### 190#       发表于 2021-12-9 22:13
+
+既然叔叔这可以买活
+
+什么陈一发，卢本伟，木口，731学院什么的是不是也可以买活一波啊？
+
+这么看斗鱼是真的没用《格局》
+
+*****
+
+####  Ny  
+##### 191#       发表于 2021-12-9 22:14
+
+重温了波士顿圆脸开团冲蕾丝的视频
+[https://www.bilibili.com/video/BV1Lz4y1U7ks](https://www.bilibili.com/video/BV1Lz4y1U7ks)
+
+这种垃圾居然都能花钱买活, 陈睿果然没妈
+
+希望有人再开个团, 让他再死一次
+
+*****
+
+####  古战场亡魂  
+##### 192#       发表于 2021-12-9 22:17
+
+<blockquote>Ny 发表于 2021-12-9 22:14
+重温了波士顿圆脸开团冲蕾丝的视频
+
+https://www.bilibili.com/video/BV1Lz4y1U7ks
+
+</blockquote>
+都是只敢打顺风团的，他也没胆子开第二次。
+
+*****
+
+####  Buttercry  
+##### 193#       发表于 2021-12-9 22:18
+
+2000w买活钱得打多久啊
+
+lex.jpg
+(50.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-9 22:17 上传
+
+<img src="https://img.saraba1st.com/forum/202112/09/221746lleluq6bo5nbc3u8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Gerald1  
+##### 194#       发表于 2021-12-9 22:21
+
+服了，这才几个月啊
+
+*****
+
+####  skives  
+##### 195#       发表于 2021-12-9 22:21
+
+自发两杯
+
+*****
+
+####  泽塔  
+##### 196#       发表于 2021-12-9 22:24
+
+见到蕾狗就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
