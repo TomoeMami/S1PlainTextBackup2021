@@ -7639,3 +7639,14 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 别说满破了，我现在刷半天也找不到带四星五星氪金礼装的，只能大号抽了给小号用，大号自己拼人品靠路人
 
+
+
+*****
+
+####  承尘  
+##### 84694#       发表于 2021-12-9 17:54
+
+头一回挂没满破的氪金礼装也有人加好友<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
