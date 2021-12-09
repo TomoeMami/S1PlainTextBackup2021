@@ -1744,3 +1744,19 @@ Mio's gonna be a terrible mother. She spoils Ayame rotten and enables her behavi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么黑心公司 加班到日本时间凌晨1点才下工
 
+
+
+*****
+
+####  nian1538  
+##### 13670#       发表于 2021-12-9 15:36
+
+ホロライブプロダクション【公式】
+@hololivetv
+【🎉お知らせ🎉】
+オンラインクレーンゲーム「モーリーオンライン」限定で「#百鬼あやめ」「#大神ミオ」コラボグッズを、12月10日（金）18時より展開開始いたします✨
+
+直筆サイン入りタペストリーが当たるキャンペーンも👀
+🔽詳細はこちら🔽
+https://prtimes.jp/main/html/rd/p/000000207.000060567.html
+

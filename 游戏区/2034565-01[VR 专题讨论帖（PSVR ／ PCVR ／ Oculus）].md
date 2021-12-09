@@ -3099,3 +3099,15 @@ After the Fall 昨天开了
 
 需要刷刷刷，解锁武器和改枪配件
 
+
+
+*****
+
+####  hikari0805  
+##### 203#       发表于 2021-12-9 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53866289&amp;ptid=2034565" target="_blank">bypass 发表于 2021-12-9 13:54</a>
+
+Oculus Quest 有个截图快捷键（System Button + Right Trigger 应该是，记得不太清了），但蛋疼的是，那 ...</blockquote>
+好我回去试试
+

@@ -54,3 +54,15 @@ Arcane一个亿的成本，总不可能让这宝贝疙瘩跟着其他几个有�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ammk  
+##### 3006#       发表于 2021-12-9 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53865666&amp;ptid=2002246" target="_blank">CswStar 发表于 2021-12-9 12:55</a>
+
+还没看，想问一下那个一直喊“痛,太痛了”的中二杀马特有没有登场啊？好像叫破败之王什么的，LOL里就觉得他 ...</blockquote>
+小丑王是暗影岛的，被外传游戏再次鞭尸
+

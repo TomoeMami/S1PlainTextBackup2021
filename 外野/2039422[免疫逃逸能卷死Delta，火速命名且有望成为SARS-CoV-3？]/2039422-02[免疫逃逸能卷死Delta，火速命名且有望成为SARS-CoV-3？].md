@@ -3278,3 +3278,65 @@ FDA本周向美国得州地区的联邦法官请求，允许该机构每个月�
 
 反正其他科学家用活病毒做的实验不管是两针还是三针bnt都是全灭，辉瑞大可以继续自己骗自己
 
+
+
+*****
+
+####  fanisy  
+##### 1775#       发表于 2021-12-9 15:30
+
+拍老师这期挖料能力直逼塞雷了啊
+
+*****
+
+####  米村正二  
+##### 1776#       发表于 2021-12-9 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867627&amp;ptid=2039422" target="_blank">fanisy 发表于 2021-12-9 15:30</a>
+拍老师这期挖料能力直逼塞雷了啊</blockquote>
+手机浏览，有链接吗？
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  李天宝  
+##### 1777#       发表于 2021-12-9 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867637&amp;ptid=2039422" target="_blank">米村正二 发表于 2021-12-9 15:31</a>
+
+手机浏览，有链接吗？
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+[老文新发]一篇知乎问答引发的扒皮大戏……
+[https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ](https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ)
+
+*****
+
+####  longrider  
+##### 1778#       发表于 2021-12-9 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867637&amp;ptid=2039422" target="_blank">米村正二 发表于 2021-12-9 15:31</a>
+
+手机浏览，有链接吗？
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+微信公众号：拍照稀烂的焦虑怪
+
+[https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ](https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ)
+
+*****
+
+####  米村正二  
+##### 1779#       发表于 2021-12-9 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53867670&amp;ptid=2039422" target="_blank">李天宝 发表于 2021-12-9 15:34</a>
+[老文新发]一篇知乎问答引发的扒皮大戏……
+
+https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ
+
+ ...</blockquote>
+喷了，这个balloux老湿还替沪上张某说过话啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
