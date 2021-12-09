@@ -3543,3 +3543,31 @@ O毒株之前在发达国家隐藏传播的可能性不大。
 https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ</blockquote>
 这场PVE里我看到了人类高尚的品格也看到了人类丑陋的面貌，但这场pve还看不到尽头，丑陋的人没有回头路只能继续丑陋下去。
 
+
+
+*****
+
+####  sk此方  
+##### 1794#       发表于 2021-12-9 23:22
+
+ 本帖最后由 sk此方 于 2021-12-9 23:28 编辑 
+
+热刺全队13人新冠
+莱斯特城7人新冠
+大英被变异新冠干烂了？以前都是一两个一两个感染
+英超到现在还是开放座位 欧足联现在还是不让推迟比赛 要死哦<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+还有刚刚看见那个国内的特效药好像获批上市了 不知道效果咋样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  riczxc  
+##### 1795#         楼主| 发表于 2021-12-9 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873470&amp;ptid=2039422" target="_blank">L.L 发表于 2021-12-9 23:11</a>
+
+这场PVE里我看到了人类高尚的品格也看到了人类丑陋的面貌，但这场pve还看不到尽头，丑陋的人没有回头路只 ...</blockquote>
+丑陋的人会适时180度转过来摘桃子的。
+

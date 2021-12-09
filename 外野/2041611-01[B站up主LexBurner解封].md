@@ -2019,3 +2019,42 @@ https://www.bilibili.com/video/BV1Lz4y1U7ks</blockquote>
 
 我以为大家是想让lex糊而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  etnf2  
+##### 218#       发表于 2021-12-9 23:24
+
+为啥我觉得毫不意外，甚至有点想笑:-D
+
+*****
+
+####  独钓寒江雪  
+##### 219#       发表于 2021-12-9 23:24
+
+真有钱 
+
+*****
+
+####  gongge666  
+##### 220#       发表于 2021-12-9 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873394&amp;ptid=2041611" target="_blank">NaYo丶 发表于 2021-12-9 23:05</a>
+
+指望波士顿圆脸 我呸 早就拉黑的狗东西
+
+就他这水平比lex恶心人 恰完流量怕了举白旗</blockquote>
+你这也是带节奏他这部视频的确漏洞百出，用了别人P的伪造信息，你不会觉得只要能冲就算伪造证据也合理吧狩魔豪
+
+*****
+
+####  NaYo丶  
+##### 221#       发表于 2021-12-9 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873642&amp;ptid=2041611" target="_blank">gongge666 发表于 2021-12-9 23:25</a>
+你这也是带节奏他这部视频的确漏洞百出，用了别人P的伪造信息，你不会觉得只要能冲就算伪造证据也合理吧 ...</blockquote>
+用伪造证据虽然冲不了 但是恰的流量又少不了 喜欢造谣恰流量的up主罢了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

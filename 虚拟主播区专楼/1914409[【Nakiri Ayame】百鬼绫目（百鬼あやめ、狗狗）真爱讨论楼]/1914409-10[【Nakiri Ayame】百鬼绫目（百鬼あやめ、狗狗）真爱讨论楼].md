@@ -1848,3 +1848,28 @@ https://prtimes.jp/main/html/rd/p/000000207.000060567.html
 
 六期的压力<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  因为你不会  
+##### 13679#       发表于 2021-12-9 23:34
+
+绫总不会本年度kpi没完成吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  s32244153  
+##### 13680#       发表于 2021-12-9 23:34
+
+复活杂谈-&gt; 歌粹-&gt;新曲-&gt;歌粹-&gt;游戏-&gt;游戏-&gt;重大活动-&gt;摸余<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nian1538  
+##### 13681#       发表于 2021-12-9 23:37
+
+还是这句话，维持到生日下周再说吧
+

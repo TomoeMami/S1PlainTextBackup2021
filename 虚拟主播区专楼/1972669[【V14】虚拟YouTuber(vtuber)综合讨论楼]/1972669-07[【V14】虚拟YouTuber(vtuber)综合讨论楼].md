@@ -2391,3 +2391,17 @@ ymen要跟os团的朋友一起旅游几天，说是好久没出过门，打算�
 油管扫到一眼当年因诸种事端退出ban's的城星让友转生的花琴いぐさ已经混成高知县公式当地vtuber了，前几天 ...</blockquote>
 花琴伊草可不是让友转生，她出道比让友早多了，不过她中途做了一段让友是让她比以前更有些知名度了
 
+
+
+*****
+
+####  NBXX  
+##### 9196#       发表于 2021-12-9 23:30
+
+<img src="https://p.sda1.dev/3/8510e184ae7828dfd7169d3e25c93329/123666.gif" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=v5pMgjao5mo](https://www.youtube.com/watch?v=v5pMgjao5mo)
+
+[VTUBER COOKING] How to make a Homemade Bento Box
+
+开摄像头结合上绿幕，又虚拟起来了
+
