@@ -2191,3 +2191,45 @@ https://www.bilibili.com/video/BV1Lz4y1U7ks</blockquote>
 
 叔叔骗未成年的钱缺德啊
 
+
+
+*****
+
+####  散热  
+##### 236#       发表于 2021-12-10 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873892&amp;ptid=2041611" target="_blank">织云纺雪 发表于 2021-12-9 23:50</a>
+
+这垃圾玩意不死，那烈士真就白死了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">烈士牺牲是让你去看无职转生这种日本糟粕的吗？
+
+*****
+
+####  jacatay  
+##### 237#       发表于 2021-12-10 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正不看厕纸
+就单纯想蕾皇滚蛋  孝女别扯其他的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+你们家蕾皇还不是靠日本动画起家的<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
+
+*****
+
+####  织云纺雪  
+##### 238#       发表于 2021-12-10 01:17
+
+ 本帖最后由 织云纺雪 于 2021-12-10 01:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874534&amp;ptid=2041611" target="_blank">散热 发表于 2021-12-10 01:07</a>
+
+烈士牺牲是让你去看无职转生这种日本糟粕的吗？</blockquote>
+谁告诉你我看无职了？简直莫名其妙，这垃圾口嗨烈士不该死？
+
+*****
+
+####  散热  
+##### 239#       发表于 2021-12-10 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874577&amp;ptid=2041611" target="_blank">织云纺雪 发表于 2021-12-10 01:17</a>
+
+莫名其妙，这垃圾口嗨烈士不该死？</blockquote>
+别自欺欺人了，漫区阿宅们对lex口诛笔伐不就是因为无职转生吗？拉烈士出来当大旗让我还以为老蒋成功反攻大陆改信自由主义了呢。
+

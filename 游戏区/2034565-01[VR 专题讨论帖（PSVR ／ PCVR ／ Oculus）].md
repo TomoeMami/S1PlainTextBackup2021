@@ -3134,3 +3134,23 @@ After the Fall 昨天开了
 有瞬移模式吗？</blockquote>
 有，除了对战地图之外，其他都能瞬移
 
+
+
+*****
+
+####  Leona_Akari  
+##### 206#       发表于 2021-12-10 01:03
+
+after the fall打了一个多小时，可能是被alyx洗礼过了，用平移模式完全没觉得晕，大厅特搞笑，看着一堆人都是爬爬的（估计是坐姿模式？），打了一关，挺爽的，比垃圾b4b好多了
+
+*****
+
+####  dumplingpro  
+##### 207#       发表于 2021-12-10 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874501&amp;ptid=2034565" target="_blank">Leona_Akari 发表于 2021-12-10 01:03</a>
+after the fall打了一个多小时，可能是被alyx洗礼过了，用平移模式完全没觉得晕，大厅特搞笑，看着一堆人都 ...</blockquote>
+估计是身高设置bug，最好玩是有表现手势，结果跟大型聋哑人手语练习现场一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 MANN 8S, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
