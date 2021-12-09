@@ -3085,3 +3085,17 @@ After the Fall 昨天开了
 看别人联机挺上头的，虽然有些小毛病，画质也只是中规中矩，但打起来嗨， ...</blockquote>
 重复游玩性如何呢？对非开黑玩家是否友好（尤其是我这种不太爱说话的…）？
 
+
+
+*****
+
+####  dumplingpro  
+##### 202#       发表于 2021-12-9 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53866299&amp;ptid=2034565" target="_blank">bypass 发表于 2021-12-9 13:55</a>
+
+重复游玩性如何呢？对非开黑玩家是否友好（尤其是我这种不太爱说话的…）？ ...</blockquote>
+实际上大多数都是自动匹配的吧，，，单人会给你个3个AI队友
+
+需要刷刷刷，解锁武器和改枪配件
+
