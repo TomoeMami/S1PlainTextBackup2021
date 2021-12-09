@@ -2649,3 +2649,14 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1760#       发表于 2021-12-9 11:02
+
+对选歌没什么不满，从结果来看演出效果很好，就是这歌的舞蹈编排照着动画里的来跳看起来真的怪怪的
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
