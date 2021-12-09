@@ -3061,3 +3061,27 @@ After the Fall 昨天开了<img src="https://static.saraba1st.com/image/smiley/f
 
 但要全程联网，加速器也还没开始支持，我玩不了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 200#         楼主| 发表于 2021-12-9 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862619&amp;ptid=2034565" target="_blank">hikari0805 发表于 2021-12-9 08:41</a>
+
+oculus没有像ns一样的全局截图和全局录像功能么…次次想分享运动记录截图老费力了。每次投屏到手机都很麻烦 ...</blockquote>
+Oculus Quest 有个截图快捷键（System Button + Right Trigger 应该是，记得不太清了），但蛋疼的是，那个按键时好时坏，搞得我最后不想用了。
+
+*****
+
+####  bypass  
+##### 201#         楼主| 发表于 2021-12-9 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862929&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2021-12-9 09:21</a>
+
+After the Fall 昨天开了
+
+看别人联机挺上头的，虽然有些小毛病，画质也只是中规中矩，但打起来嗨， ...</blockquote>
+重复游玩性如何呢？对非开黑玩家是否友好（尤其是我这种不太爱说话的…）？
+

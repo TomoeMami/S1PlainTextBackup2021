@@ -2912,3 +2912,22 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">菜宝把她日常油管直播改成周二了，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">期待一波下周三
 
+
+
+*****
+
+####  lj205  
+##### 1778#       发表于 2021-12-9 13:51
+
+还真就是拖到最后，1st的goods也是给我拖到最后一天才邮寄，日本人可真烦
+
+*****
+
+####  chenflyyy  
+##### 1779#       发表于 2021-12-9 13:54
+
+ 本帖最后由 chenflyyy 于 2021-12-9 13:57 编辑 
+
+我就一个感觉脸没那么圆了，sayu跟初期比起来也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然有点心疼，但个人感觉瘦下来好看不少
+
