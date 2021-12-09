@@ -2405,3 +2405,17 @@ ymen要跟os团的朋友一起旅游几天，说是好久没出过门，打算�
 
 开摄像头结合上绿幕，又虚拟起来了
 
+
+
+*****
+
+####  rzrbtk  
+##### 9197#       发表于 2021-12-10 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872121&amp;ptid=1972669" target="_blank">fastary 发表于 2021-12-9 21:25</a>
+
+ymen要跟os团的朋友一起旅游几天，说是好久没出过门，打算挤出最后一点活力去乐一下
+
+虽然黑客没什么 ...</blockquote>
+还挺有精神的不是嘛，郡说起今晚本来还有个月樱因为一些原因无了，观众问是不是因为黛灰最近的状态，郡说不是，mayu那边完全积极参加的...其实是和rof那边放录播撞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">（玩笑，只是太无聊忍不住想甩锅给这个番组罢了
+

@@ -313,3 +313,30 @@
 
 那个人，他又来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/51a07f8c699f78bd811e53acef465816/IMG_20211210_012845.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  遗忘回想  
+##### 6036#       发表于 2021-12-10 01:58
+
+ 本帖最后由 遗忘回想 于 2021-12-10 02:00 编辑 
+
+不要再说麻酱的事了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+在家里看麻酱的live太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6037#       发表于 2021-12-10 02:21
+
+越聊越开心，不睡觉了吗
+
+*****
+
+####  遗忘回想  
+##### 6038#       发表于 2021-12-10 02:54
+
+听了半小时睡衣购买指南快睡着了zzzzz
+

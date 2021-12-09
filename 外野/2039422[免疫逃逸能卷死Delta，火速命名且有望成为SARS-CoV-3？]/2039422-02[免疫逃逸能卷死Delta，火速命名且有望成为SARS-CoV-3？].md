@@ -3620,3 +3620,12 @@ https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ</blockquote>
 不是说omicron导致的症状更轻一些么，加上传染力强，那样的话，是不是更容易到让抗疫躺平国达到群体免疫？ ...</blockquote>
 西方媒体一贯的粉饰太平而已，光凭一个欧美无死亡病例就开始自我催眠mild，南非12月5号因为感染omicron而去世的无基础病15岁女孩怎么没见它们报道过？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  境堺の侍  
+##### 1800#       发表于 2021-12-10 01:56
+
+真的是在自我催眠。不管是南非的死亡病例还是ICU数据都没见报导过（连外来务工人员专报都没有）。就前几天重启了商店和公交上必须戴口罩，昨晚宣布了剧院和电影院也要戴口罩。这离圣诞节还有两周，没准还能再来一次临时取消圣诞。<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+

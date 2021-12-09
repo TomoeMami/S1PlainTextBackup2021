@@ -2290,3 +2290,179 @@ https://www.bilibili.com/video/BV1Lz4y1U7ks</blockquote>
 是啊 两千万的合同 都不需要现金流</blockquote>
 所以说白了还是飞妈的某人为了赚钱呗....只要能赚钱啥事情都能做
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 244#       发表于 2021-12-10 01:50
+
+现在在这里同仇敌忾，信不信明年双十照样大会员拼车<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Quelaan  
+##### 245#       发表于 2021-12-10 01:59
+
+别人怎么样我管不着，反正我已经两年没给叔叔送过一分钱了，心安理得<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fakerの幻影  
+##### 246#       发表于 2021-12-10 02:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候和虚拟区up搞cp啊，牛子豪都能搞个花瓶出来
+
+*****
+
+####  Saphir  
+##### 247#       发表于 2021-12-10 02:09
+
+变相处刑啊，2200万，无产阶级怒了！
+
+*****
+
+####  散热  
+##### 248#       发表于 2021-12-10 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874627&amp;ptid=2041611" target="_blank">织云纺雪 发表于 2021-12-10 01:25</a>
+
+神经病，我反感这垃圾口嗨烈士跟无职有半毛钱关系？我又不看那玩意，你意淫个毛线。 ...</blockquote>
+口嗨烈士的事就是阿宅们为了无职转生而扒出来的啊，如果你确实只是因为侮辱烈士而骂lex，那最好还是捎上无职转生一块儿骂，免得被阿宅们当枪使，让无职转生这种动画公开播放也是辱没了烈士们所追求的事业。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 9战斗力 -10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 洞庭湖|-1|？？？|
+| 安卓牛祖宗|-1|思路广|
+| 爱吃冻鳗的猫|-1|欢乐多|
+| 朋友|-2|什么垃圾|
+| 希望之花|-1||
+| Map-2|-1|漫区送马来外野再送一次是吧|
+| 水琴楽树|-1|原来是水军|
+| 禹火|-1|注册时间|
+| Lyzers|-1|有你这么钓鱼的嘛|
+
+查看全部评分
+
+*****
+
+####  织云纺雪  
+##### 249#       发表于 2021-12-10 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874869&amp;ptid=2041611" target="_blank">散热 发表于 2021-12-10 02:22</a>
+
+口嗨烈士的事就是阿宅们为了无职转生而扒出来的啊，如果你确实只是因为侮辱烈士而骂lex，那最好还是捎上 ...</blockquote>
+你想骂无职你去就去骂咯。我骂那垃圾口嗨烈士，还要管它以前做过什么？你脑子有坑？
+
+*****
+
+####  weiwu  
+##### 250#       发表于 2021-12-10 02:50
+
+暗杀者这集还因为介质原因上不了
+
+*****
+
+####  pepase  
+##### 251#       发表于 2021-12-10 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874170&amp;ptid=2041611" target="_blank">Redis 发表于 2021-12-10 00:22</a>
+
+2200w
+
+这算是卖身契了吧，等于叔叔own他5年了</blockquote>
+头部up主又有饭圈加成一年就赚回来了
+
+*****
+
+####  苇原雪道  
+##### 252#       发表于 2021-12-10 02:59
+
+虽然我也认为无职不好看，但是我更认为lex是辣鸡
+
+*****
+
+####  爱尔米娜  
+##### 253#       发表于 2021-12-10 03:12
+
+啥时候批站把陈一发、卢姥爷全部挖过来啊，效果绝对爆炸
+
+*****
+
+####  宅男的爱  
+##### 254#       发表于 2021-12-10 03:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874958&amp;ptid=2041611" target="_blank">爱尔米娜 发表于 2021-12-10 03:12</a>
+
+啥时候批站把陈一发、卢姥爷全部挖过来啊，效果绝对爆炸</blockquote>
+B站已经玩脱一次了，捞了那个谁来（抱歉名字不记得了）直播，赚不出来出场费，现在直播部干挂着推荐位慢慢回钱
+
+B站现在只要B孝子，从Up到粉丝都是，你可以蠢可以笨（反正B站给你硬推），但绝对不能有二心
+
+挖人这种事B站怂的很，有资源都给孝子了
+
+*****
+
+####  如月尤菲  
+##### 255#       发表于 2021-12-10 03:51
+
+ 本帖最后由 如月尤菲 于 2021-12-10 03:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">想想泥潭每天好几个发个批站视频帖子，反正对付资本家真就没招
+
+*****
+
+####  灵魂收割机  
+##### 256#       发表于 2021-12-10 04:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872702&amp;ptid=2041611" target="_blank">如月尤菲 发表于 2021-12-9 22:12</a>
+
+去俺专楼看看呗，甚至有打赏十万的，叔叔都亲自下场了，小仙女一转口风立马感恩戴德的 ...</blockquote>
+你那张图右下角咋还是2020呢，你从哪儿毛的火星图？
+
+*****
+
+####  如月尤菲  
+##### 257#       发表于 2021-12-10 04:19
+
+ 本帖最后由 如月尤菲 于 2021-12-10 04:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875026&amp;ptid=2041611" target="_blank">灵魂收割机 发表于 2021-12-10 04:06</a>
+你那张图右下角咋还是2020呢，你从哪儿毛的火星图？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">群友投稿，草，没注意到
+不过看到这10万的打赏，叔叔确实得急着弄复活，估计指着他带货呢
+
+*****
+
+####  moeful  
+##### 258#       发表于 2021-12-10 04:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874999&amp;ptid=2041611" target="_blank">宅男的爱 发表于 2021-12-10 03:38</a>
+B站已经玩脱一次了，捞了那个谁来（抱歉名字不记得了）直播，赚不出来出场费，现在直播部干挂着推荐位慢 ...</blockquote>
+冯提莫吧
+
+*****
+
+####  yueyut  
+##### 259#       发表于 2021-12-10 04:55
+
+实际上无职的问题并不致命，充其量就是b站up主和观众之间的内部矛盾。让lex触碰到红线非死不可的事件是波士顿圆脸开的团。问题是波士顿圆脸后来承认自己是错误开团，但那时lex已经被封杀了。所以问题来了，假如没波士顿圆脸开的团，lex还会被封杀么，他还会去举报无职导致先审后播以及之后的一系列蝴蝶效应么。
+
+*****
+
+####  机动妖精  
+##### 260#       发表于 2021-12-10 05:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875058&amp;ptid=2041611" target="_blank"> yueyut 发表于 2021-12-10 04:55</a> 实际上无职的问题并不致命，充其量就是b站up主和观众之间的内部矛盾。让lex触碰到红线非死不可的事件是波士顿圆脸开的团。问题是波士顿圆脸后来承认自己是错误开团，但那时lex已经被封杀了。所以问题来了，假如没波士顿圆脸开的团，lex还会被封杀么，他还会去举报无职导致先审后播以及之后的一系列蝴蝶效应么。 </blockquote>
+没有波士顿圆脸的一波其实应该还能撑一下。
+一冲直接一波带走。
+记得当时泥潭有坛友说被波士顿圆脸这波冲锋直接带走的方式感到害怕，也有不少坛友表示你为啥害怕。
+这些其实也过去了，就看蕾丝还有多少商业价值。来自: iPhone客户端
+
