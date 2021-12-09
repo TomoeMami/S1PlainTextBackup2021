@@ -2501,3 +2501,21 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 贴吧没怎么吵吧，好像是搬运的5ch的贴
 
+
+
+*****
+
+####  chenflyyy  
+##### 1748#       发表于 2021-12-9 08:29
+
+即使我是sayu粉我也觉得这个吵起来相当正常，nga那边都吵了几天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 1749#       发表于 2021-12-9 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862513&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-9 08:21</a>
+贴吧没怎么吵吧，好像是搬运的5ch的贴</blockquote>
+看了下几个说fns的贴都在吵
+
