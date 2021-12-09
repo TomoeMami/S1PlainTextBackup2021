@@ -43,3 +43,14 @@ LOR双城这次的剧情很奇怪，看成IF线就好
 
 Arcane一个亿的成本，总不可能让这宝贝疙瘩跟着其他几个有吃书前科的弟弟们轻举妄动吧？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CswStar  
+##### 3005#       发表于 2021-12-9 12:55
+
+还没看，想问一下那个一直喊“痛,太痛了”的中二杀马特有没有登场啊？好像叫破败之王什么的，LOL里就觉得他最有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

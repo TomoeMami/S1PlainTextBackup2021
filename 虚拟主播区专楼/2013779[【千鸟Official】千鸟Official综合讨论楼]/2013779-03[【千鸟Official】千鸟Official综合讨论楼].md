@@ -10673,3 +10673,47 @@ miya mnk那个小家庭都能魔怔？
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4217#       发表于 2021-12-9 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53865468&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-9 12:37</a>
+
+队长再问人之初是什么意思
+
+所以是啥意思</blockquote>
+认知厨同音 <blockquote>认知厨：指强烈渴望自己厨的明星或偶像能认知到自己的存在，如自己发的评论、弹幕或二创作品等被介到，否则就会破防甚至粉转黑。</blockquote>
+
+*****
+
+####  灰色的狐狸  
+##### 4218#       发表于 2021-12-9 12:45
+
+谐音真多<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  四叶的花  
+##### 4219#       发表于 2021-12-9 12:46
+
+人之初就是人之初，性本善里的人之初，是指很善良的人
+
+*****
+
+####  rgauss  
+##### 4220#       发表于 2021-12-9 12:48
+
+错误的 人之初不能处
+
+*****
+
+####  小憨1  
+##### 4221#       发表于 2021-12-9 12:50
+
+人之初不灭😡
+
