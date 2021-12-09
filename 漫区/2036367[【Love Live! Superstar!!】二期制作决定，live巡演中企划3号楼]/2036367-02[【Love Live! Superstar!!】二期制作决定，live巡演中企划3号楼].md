@@ -2883,3 +2883,32 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 
 <img src="http://wx1.sinaimg.cn/mw1024/40f01d1dgy1gx6tmi3qxbj21o0190twe.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 1775#       发表于 2021-12-9 13:31
+
+所以是花田把动画写成香音传，还是上面的人要求花田把动画写成香音传？
+
+我现在更偏向后者。
+
+*****
+
+####  starring  
+##### 1776#       发表于 2021-12-9 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53865883&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-9 13:17</a>
+你确定是胖了？
+
+左2020年12月  右2021年12月</blockquote>
+这样对比，现在的样子和气质都成熟不少
+
+*****
+
+####  cybernetics31  
+##### 1777#       发表于 2021-12-9 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">菜宝把她日常油管直播改成周二了，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">期待一波下周三
+
