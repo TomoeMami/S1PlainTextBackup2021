@@ -2931,3 +2931,18 @@ FNS补了，全团不管歌舞还是表现力对比初live水准可见的提升�
 我就一个感觉脸没那么圆了，sayu跟初期比起来也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 虽然有点心疼，但个人感觉瘦下来好看不少
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1780#       发表于 2021-12-9 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53866286&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-9 13:54</a>
+
+我就一个感觉脸没那么圆了，sayu跟初期比起来也是
+
+虽然有点心疼，但个人感觉瘦下来好看不少 ...</blockquote>
+最重要的还是妆容和自拍技术的提升
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小百合当选那张都不知道谁照的，芋得不行，难为她还要置顶
+
