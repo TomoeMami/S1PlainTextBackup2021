@@ -783,3 +783,141 @@ lex最大的问题不就是骂骂无职转生的观众吗？
 
 每个月不交够保护费的话，可是有惩罚的哟
 
+
+
+*****
+
+####  五块太贵不买了  
+##### 84#       发表于 2021-12-9 20:05
+
+啥时候给他上坟再叫我
+
+*****
+
+####  interzhang  
+##### 85#       发表于 2021-12-9 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后就是李阿姨的时代了
+
+*****
+
+####  星野莉莉  
+##### 86#       发表于 2021-12-9 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雷皇啊，我愿称你为二次元肖战！
+
+*****
+
+####  czs13  
+##### 87#       发表于 2021-12-9 20:08
+
+去他直播间刷一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朝すみれ  
+##### 88#       发表于 2021-12-9 20:09
+
+跟lex有仇的不就无职粉？
+
+*****
+
+####  jacatay  
+##### 89#       发表于 2021-12-9 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871026&amp;ptid=2041611" target="_blank">czs13 发表于 2021-12-9 20:08</a>
+去他直播间刷一波</blockquote>
+15级才能发言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  czs13  
+##### 90#       发表于 2021-12-9 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871051&amp;ptid=2041611" target="_blank">jacatay 发表于 2021-12-9 20:09</a>
+15级才能发言</blockquote>
+艹，这还怎么找乐子<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  梓鲨小队  
+##### 91#       发表于 2021-12-9 20:16
+
+据说影视飓风这样的头部up一年的商单就有千万
+
+*****
+
+####  mookmoon  
+##### 92#       发表于 2021-12-9 20:18
+
+真有钱，2200万
+
+*****
+
+####  virusking  
+##### 93#       发表于 2021-12-9 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871039&amp;ptid=2041611" target="_blank">朝すみれ 发表于 2021-12-9 20:09</a>
+
+跟lex有仇的不就无职粉？</blockquote>
+这个事吧，无职下架后跟lex就没什么关系了，拳师下场的时候就跟无职没什么关系了
+
+*****
+
+####  (wing)  
+##### 94#       发表于 2021-12-9 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870773&amp;ptid=2041611" target="_blank">卡密sama 发表于 2021-12-9 19:51</a>
+
+lex最大的问题不就是骂骂无职转生的观众吗？
+
+还有啥？</blockquote>
+还是个精日，哄得B战精日小朋友可开心了
+
+*****
+
+####  Lyzers  
+##### 95#       发表于 2021-12-9 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这傻逼被拱火时直接开炮动画区UP追了三年没追上他的发言和情商，觉得只有无职粉想他死是不是有点偏颇
+
+*****
+
+####  chero  
+##### 96#       发表于 2021-12-9 20:22
+
+sb，lex。叔叔，rnm，退钱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  跌跌撞撞的店员  
+##### 97#       发表于 2021-12-9 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870400&amp;ptid=2041611" target="_blank">cgte030629 发表于 2021-12-9 19:25</a>
+
+题外话，无职动画做的还真不错</blockquote>
+看了最新一集加上漫区剧透才知道这小说这么复杂 而且战斗确实可以
+
+*****
+
+####  与天争锋_LZ  
+##### 98#       发表于 2021-12-9 20:24
+
+看乐子就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我个人希望看到lex粉丝与其他阴阳怪气男团粉丝互撕的画面，毕竟宅宅再冲也冲不死
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  MAO_DREAMER  
+##### 99#       发表于 2021-12-9 20:24
+
+一直想不明白这些寄吧up一个商单怎么赚这么多的，又没啥优惠，还一堆人买，这他妈是脑控吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

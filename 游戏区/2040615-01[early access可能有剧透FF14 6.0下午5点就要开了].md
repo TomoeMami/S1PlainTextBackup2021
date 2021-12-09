@@ -1741,3 +1741,15 @@ s1有狒狒群吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在tb买了个幻想药激活码兑换了但是等了3个多小时都没有邮件，请求特典也没有，是我漏了哪里没操作还是辣鸡se把我药吞了
 
+
+
+*****
+
+####  LrGsite  
+##### 171#         楼主| 发表于 2021-12-9 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870106&amp;ptid=2040615" target="_blank">HATENA 发表于 2021-12-9 19:08</a>
+
+在tb买了个幻想药激活码兑换了但是等了3个多小时都没有邮件，请求特典也没有，是我漏了哪里没操作还 ...</blockquote>
+国际服商城经常被人戏称为人工发货,确实时间比较久
+
