@@ -7650,3 +7650,12 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84695#       发表于 2021-12-9 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破活动别说四五星礼装了，我连挂满破三星礼装的人都找不到
+
