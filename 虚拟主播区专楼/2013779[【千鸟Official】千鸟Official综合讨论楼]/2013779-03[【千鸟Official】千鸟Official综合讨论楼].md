@@ -11519,3 +11519,29 @@ syl a sir this way
 
 贺子爆典被挂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  newperson  
+##### 4317#       发表于 2021-12-10 16:02
+
+笑嘻辽🤭
+<img src="https://p.sda1.dev/3/b87d01ac38441c2209c6058d76c1477f/93037A903A08263CB724F955584E23BC.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 4318#       发表于 2021-12-10 16:12
+
+哎，没看懂
+
+总之不要影响到那几个直播的就行
+
+*****
+
+####  GAKOTO  
+##### 4319#         楼主| 发表于 2021-12-10 16:20
+
+贺子也不是第一次被挂了，乐就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
