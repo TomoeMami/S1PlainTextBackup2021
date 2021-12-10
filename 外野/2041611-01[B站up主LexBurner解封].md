@@ -2914,3 +2914,49 @@ fake news，我都看见几个发出这句话的了
 能破的话明年我也不续了。 ...</blockquote>
 批站1080和1080高清 区别大吗？
 
+
+
+*****
+
+####  爱尔米娜  
+##### 307#       发表于 2021-12-10 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875082&amp;ptid=2041611" target="_blank">机动妖精 发表于 2021-12-10 05:44</a>
+
+没有波士顿圆脸的一波其实应该还能撑一下。
+
+一冲直接一波带走。
+
+记得当时泥潭有坛友说被波士顿圆脸这波冲 ...</blockquote>
+圆脸那波是讨贼檄文，放战国能当丞相的233
+
+*****
+
+####  出轨的三头龙  
+##### 308#       发表于 2021-12-10 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就没冲过大会员，你b真的有意思的东西不用大会员都能看
+
+*****
+
+####  d-scher  
+##### 309#       发表于 2021-12-10 10:41
+
+有一说一，还是要感谢这个逼让我彻底看清B站本质，从此不在B站看片。
+
+*****
+
+####  雷诺4001  
+##### 310#       发表于 2021-12-10 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874754&amp;ptid=2041611" target="_blank">不垃圾屌丝 发表于 2021-12-10 01:50</a>
+
+现在在这里同仇敌忾，信不信明年双十照样大会员拼车
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Ne ...</blockquote>
+我今年夏天大会员到期之后没续
+
+也不缺那一两百块，就是不爽（不仅仅是因为蕾皇）
+
+我希望明年双十我也能坚持
+
