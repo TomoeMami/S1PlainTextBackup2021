@@ -2960,3 +2960,73 @@ fake news，我都看见几个发出这句话的了
 
 我希望明年双十我也能坚持
 
+
+
+*****
+
+####  削肾客  
+##### 311#       发表于 2021-12-10 10:47
+
+这贴收藏了，等明年大会员拼车时再挖出来，到时看看辩解的嘴脸是怎样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FanFun  
+##### 312#       发表于 2021-12-10 10:47
+
+先从不冲大会员、B漫，不用会员购开始吧
+泥潭用户我看挺多的
+
+*****
+
+####  雪菜党人  
+##### 313#       发表于 2021-12-10 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870792&amp;ptid=2041611" target="_blank">shhekun 发表于 2021-12-9 19:52</a>
+比如口嗨烈士啊、骂观众是下水道生物这类小事情吧。
+
+间接导致番剧区成为现在这个样子。 ...</blockquote>
+口嗨烈士洗一下，这个是单纯因为他傻逼，倒不是不尊重烈士。
+
+*****
+
+####  雪菜党人  
+##### 314#       发表于 2021-12-10 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871840&amp;ptid=2041611" target="_blank">🔪贱神🐟 发表于 2021-12-9 21:03</a>
+发张老图</blockquote>
+p的？
+
+*****
+
+####  麻花疼  
+##### 315#       发表于 2021-12-10 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53877104&amp;ptid=2041611" target="_blank">偶像程序员POI 发表于 2021-12-10 10:21</a>
+
+批站1080和1080高清 区别大吗？</blockquote>
+看了60帧就回不到30了。。。。
+
+*****
+
+####  如将红莲  
+##### 316#       发表于 2021-12-10 11:01
+
+你逼用割割时要开会员购发票给忘了，那给蕾蝗凑8张会员购纸质票当份子钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  macos  
+##### 317#       发表于 2021-12-10 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876456&amp;ptid=2041611" target="_blank">PLD 发表于 2021-12-10 09:42</a>
+妈的，lex举报无职先审后播后，b站新番肉眼可见水平下降，我站会员冲到2025年，却不能退款。 ...</blockquote>
+仅是个引子，不是他也有其他事造成加强审核的，在国内就不要指望这些内容能上
+
+*****
+
+####  lurenasa  
+##### 318#       发表于 2021-12-10 11:04
+
+想起以前看姐妹论坛，别人反B站那是直接不用了，发链接都会被骂，虽然不知道后面回没回旋，反观宅宅们不续大会员就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
