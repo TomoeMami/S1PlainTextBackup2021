@@ -3170,3 +3170,19 @@ b站是什么样的，不早就知道了吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  蓬莱梦梦  
+##### 332#       发表于 2021-12-10 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53879905&amp;ptid=2041611" target="_blank">s01262493 发表于 2021-12-10 12:39</a>
+
+那也是一整个动画公司能赚上亿 分到个人又能赚多少 
+
+—— 来自 S1Fun</blockquote>
+如果是主创的话有分成或者靠吃周边版权费就能达到了
+
+不过关键是这个人对标的不对，b站多少万个底边主播直播一晚上都赚不了几块钱的。他就盯着人叔叔力捧的头部顶流。
+

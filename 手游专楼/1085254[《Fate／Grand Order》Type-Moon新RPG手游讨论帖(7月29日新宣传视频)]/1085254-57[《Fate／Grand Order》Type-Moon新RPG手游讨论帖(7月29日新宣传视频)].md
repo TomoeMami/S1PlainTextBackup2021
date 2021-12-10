@@ -7707,3 +7707,15 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 羡慕个毛线 一张活动礼装都没去全是绿方块</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">友情池抽3星啊(
 
+
+
+*****
+
+####  qixinno2  
+##### 84701#       发表于 2021-12-10 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53879944&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-10 12:41</a>
+
+友情池抽3星啊(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">非洲人友情点清零了都没抽到哈贝喵的第五宝
+
