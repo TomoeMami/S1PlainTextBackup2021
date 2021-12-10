@@ -3734,3 +3734,24 @@ omicron 又不是终点，就算这一波混过去了，还会继续变异呢<im
 
 这还是只考虑自然演化的情况，如果有组织故意搞破坏，就更快了。
 
+
+
+*****
+
+####  最好不说  
+##### 1809#       发表于 2021-12-10 17:28
+
+俄罗斯加马列亚中心副主任丹尼斯∙洛古诺夫表示，“奥密克戎”感染属轻症的说法不负责任。比如，没有数据表明老年人是如何承受这种毒株攻击的。 
+
+毛子好喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最好不说  
+##### 1810#       发表于 2021-12-10 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53882699&amp;ptid=2039422" target="_blank">人生长恨水长东 发表于 2021-12-10 15:54</a>
+
+子陵微博说奥密克戎在英国rt为6，这是个什么概念？</blockquote>
+dleta在美国的初期rt大约是1.5，以omicron目前在南非大约3.5的rt计算今年年底前就可以取代delta的地位成为全球主流毒株（占比90%以上），rt为6的话你可以自己想象一下
+

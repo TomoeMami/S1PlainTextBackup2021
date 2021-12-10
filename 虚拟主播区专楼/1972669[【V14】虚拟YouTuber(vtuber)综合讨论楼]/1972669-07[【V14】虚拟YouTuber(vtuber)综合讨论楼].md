@@ -2530,3 +2530,62 @@ ymen要跟os团的朋友一起旅游几天，说是好久没出过门，打算�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是要把同人作者全赶去隔壁，什么大圣人啊
 
+
+
+*****
+
+####  poipanchao  
+##### 9210#       发表于 2021-12-10 17:22
+
+民姐呢，也来玩一下啊
+
+
+
+*****
+
+####  星街こうせい  
+##### 9211#       发表于 2021-12-10 17:24
+
+你虹是不是觉得这届CM自己摊位还是太多了。
+
+*****
+
+####  ヒトニナル  
+##### 9212#       发表于 2021-12-10 17:25
+
+花姐是值得信赖但是人气好像已经大不如前了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kawana  
+##### 9213#       发表于 2021-12-10 17:28
+
+现在出道是不是有点晚了
+
+*****
+
+####  SuntoryNomu  
+##### 9214#       发表于 2021-12-10 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是很好  
+##### 9215#       发表于 2021-12-10 17:38
+
+主流出道不需要这些下三滥<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 9216#       发表于 2021-12-10 17:38
+
+去年嗓子治好了以后
+
+花姐在TC台每周都在唱
+
+不知道能不能去油管播
+
+TC台真的卡
+

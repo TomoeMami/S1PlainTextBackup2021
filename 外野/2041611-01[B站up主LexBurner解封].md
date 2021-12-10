@@ -3253,3 +3253,16 @@ b站是什么样的，不早就知道了吗
 https://space.bilibili.com/8047632/dynamic</blockquote>
 这发在动态...不关注还真不好找<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kinta  
+##### 340#       发表于 2021-12-10 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53872597&amp;ptid=2041611" target="_blank">thethird 发表于 2021-12-9 22:04</a>
+很多人不会今天才知道睿帝是个苟娘养的吧</blockquote>
+叔叔能有今天的财富肯定是一个纯粹的资本家
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
