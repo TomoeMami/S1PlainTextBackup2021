@@ -11469,3 +11469,53 @@ syl a sir this way
 
 队长这套塔罗牌抽人之初也属于把直播玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好事
 
+
+
+*****
+
+####  四叶的花  
+##### 4311#       发表于 2021-12-10 15:43
+
+乐，贺子怕不是要被冲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 4312#       发表于 2021-12-10 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53882540&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-12-10 15:43</a>
+
+乐，贺子怕不是要被冲了</blockquote>
+贺子是谁？
+
+*****
+
+####  andeloz  
+##### 4313#       发表于 2021-12-10 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53882558&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2021-12-9 23:45</a>
+
+贺子是谁？</blockquote>
+鸟吧吧主
+
+*****
+
+####  灰色的狐狸  
+##### 4314#       发表于 2021-12-10 15:53
+
+鸟吧又干嘛了。。
+
+*****
+
+####  小憨1  
+##### 4315#       发表于 2021-12-10 15:55
+
+别尬黑，千鸟祖传被盗号
+
+*****
+
+####  四叶的花  
+##### 4316#       发表于 2021-12-10 15:58
+
+贺子爆典被挂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
