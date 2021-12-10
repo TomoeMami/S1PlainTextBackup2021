@@ -3241,3 +3241,15 @@ b站是什么样的，不早就知道了吗
 
 还从B站薅了50元
 
+
+
+*****
+
+####  失落之翼  
+##### 339#       发表于 2021-12-10 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53879201&amp;ptid=2041611" target="_blank">Map-2 发表于 2021-12-10 12:06</a>
+
+https://space.bilibili.com/8047632/dynamic</blockquote>
+这发在动态...不关注还真不好找<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
