@@ -2945,3 +2945,12 @@ syl
 
 真的是岩永吗
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9245#       发表于 2021-12-10 19:27
+
+对象推特都放出来了，还是AI业界的你们在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

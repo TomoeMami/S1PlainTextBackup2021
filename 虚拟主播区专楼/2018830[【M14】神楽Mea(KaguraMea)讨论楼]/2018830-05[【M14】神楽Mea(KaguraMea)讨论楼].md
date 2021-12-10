@@ -522,3 +522,56 @@
 
 因为e太弱智了
 
+
+
+*****
+
+####  Klience  
+##### 6060#       发表于 2021-12-10 19:21
+
+经典走位接技能
+
+
+
+*****
+
+####  Klience  
+##### 6061#       发表于 2021-12-10 19:31
+
+10级站撸13级 你脑子是被车撞了吗 哪来的自信啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 6062#       发表于 2021-12-10 19:32
+
+果然还是不能要C位，少一个C确实没法玩     <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6063#       发表于 2021-12-10 19:33
+
+嘻嘻 叫你玩劫 活该坐牢
+
+*****
+
+####  我单推副会长  
+##### 6064#       发表于 2021-12-10 19:34
+
+mea玩不明白带能量条的英雄
+
+*****
+
+####  Rem-清曲  
+##### 6065#       发表于 2021-12-10 19:35
+
+没事，这局最坑的不是主播    <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6066#       发表于 2021-12-10 19:36
+
+我更怀疑她都没看技能描述<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
