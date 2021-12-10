@@ -3421,3 +3421,15 @@ https://space.bilibili.com/8047632/dynamic</blockquote>
 
 属于是小丑回魂了
 
+
+
+*****
+
+####  unlimited_blade  
+##### 356#       发表于 2021-12-11 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53886338&amp;ptid=2041611" target="_blank">banrendacha 发表于 2021-12-10 20:55</a>
+这货长得不算帅，还是个公鸭嗓，怎么那么招女生喜欢</blockquote>
+你什么时候产生当粉圈偶像需要多少硬件条件支撑的错觉的。
+尤其你看看这套的祖师爷日本，歪瓜裂枣的偶像、甚至丑比男演员靠事务所功力硬凹颜值人设，串通一堆媒体闭眼乱吹。可以说这才是基本操作。
+

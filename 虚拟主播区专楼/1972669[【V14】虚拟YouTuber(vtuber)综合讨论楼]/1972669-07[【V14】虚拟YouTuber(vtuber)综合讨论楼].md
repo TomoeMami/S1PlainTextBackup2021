@@ -3397,3 +3397,12 @@ holo斗虫楼锁了，要不开头那句就算是草履虫也要斗虫可是最�
 
 一二期元祖粉大战seeds信大战gamers信的斗虫时代离gbr出世可远着呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 9287#       发表于 2021-12-11 05:57
+
+凭什么只有nico文化算数 我看010十年网老嗨必秒兔头。 
+
