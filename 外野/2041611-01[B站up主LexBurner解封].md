@@ -2535,3 +2535,36 @@ B站已经玩脱一次了，捞了那个谁来（抱歉名字不记得了）直�
 
 今天tga再整点活直接把游戏区也炸了得了
 
+
+
+*****
+
+####  新的起源  
+##### 270#       发表于 2021-12-10 07:45
+
+lex单换uzi
+
+叔叔算盘打的好啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  新的起源  
+##### 271#       发表于 2021-12-10 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873394&amp;ptid=2041611" target="_blank">NaYo丶 发表于 2021-12-09 23:05:09</a>
+指望波士顿圆脸 我呸 早就拉黑的狗东西 v2.5.2</blockquote>这其实就是经典优势自责<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+圆脸之前在知乎被一群人喷“蹭热度”“上纲上线”
+
+然后可能确实有点牵强就自责一下
+
+现在又被人喷“投降派”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+别的论坛我没去，就lga，当时不少铁血黑lex的用户都认为圆脸蹭热度
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
