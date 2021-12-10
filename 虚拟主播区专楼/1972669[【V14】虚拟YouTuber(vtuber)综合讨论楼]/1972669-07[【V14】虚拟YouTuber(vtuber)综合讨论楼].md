@@ -3057,3 +3057,31 @@ met的生诞祭完全就是在折磨自己，笑死<img src="https://static.sara
 请问想看斗虫民有没有什么好去处啊？</blockquote>
 哪家的斗虫？彩虹的虫楼在nga
 
+
+
+*****
+
+####  天下雨  
+##### 9256#       发表于 2021-12-10 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53885568&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-12-10 19:54</a>
+
+事到如今才看老头环试玩，好想看虹主播玩然后收集到ロアの実然后一瞬语塞的样子啊（口了不会虹死了还不回来 ...</blockquote>
+最近虹人偶尔看到roa的话题都是直接提很期待她回来的啊，乳液相扑是roa企划的，ssk的新衣装是跟roa一起商量的，怎么可能尴尬，roa粉现在隔几个月还会更新虹liver配信中提及roa合集切片呢，你去管搜搜
+
+*****
+
+####  fastary  
+##### 9257#       发表于 2021-12-10 22:15
+
+黑客说过想参加马车贝个人赛可惜没撑到马车杯就休了，不知道退出的两个人有没有他<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">（不过谁退了这种事应该也不会说的吧
+
+*****
+
+####  吃咸菜的  
+##### 9258#       发表于 2021-12-10 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53886961&amp;ptid=1972669" target="_blank">asdhai 发表于 2021-12-10 21:59</a>
+哪家的斗虫？彩虹的虫楼在nga</blockquote>
+谢谢，还有别的吗？像holo斗同接或者加散户斗sc的
+

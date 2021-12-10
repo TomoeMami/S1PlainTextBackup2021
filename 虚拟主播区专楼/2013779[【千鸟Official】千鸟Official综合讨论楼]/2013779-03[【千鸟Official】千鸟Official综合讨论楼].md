@@ -11652,3 +11652,12 @@ nmmdndwd<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" re
 
 什么顶级烂活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GAKOTO  
+##### 4333#         楼主| 发表于 2021-12-10 22:12
+
+今天sc怎么这么多炸弹<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

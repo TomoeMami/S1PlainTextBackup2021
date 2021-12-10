@@ -3356,3 +3356,22 @@ https://space.bilibili.com/8047632/dynamic</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870713&amp;ptid=2041611" target="_blank">Map-2 发表于 2021-12-9 19:47</a></blockquote>
 这货长得不算帅，还是个公鸭嗓，怎么那么招女生喜欢
 
+
+
+*****
+
+####  flashenix1  
+##### 350#       发表于 2021-12-10 22:08
+
+喜欢它的是从小看b站长大的00后小仙女吧，不然好歹也是看肖战啊。蕾狗出道是蛮早的，又和其他几个up出男团。现在小仙女钱也多，叔叔阿姨抓住了未来。
+
+*****
+
+####  Map-2  
+##### 351#         楼主| 发表于 2021-12-10 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53886338&amp;ptid=2041611" target="_blank">banrendacha 发表于 2021-12-10 20:55</a>
+这货长得不算帅，还是个公鸭嗓，怎么那么招女生喜欢</blockquote>
+我觉得阴阳怪气男团那几个都😓
+包装的好吧
+
