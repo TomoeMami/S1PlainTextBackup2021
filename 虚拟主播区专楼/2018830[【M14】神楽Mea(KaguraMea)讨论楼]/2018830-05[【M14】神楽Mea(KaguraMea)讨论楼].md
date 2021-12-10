@@ -575,3 +575,42 @@ mea玩不明白带能量条的英雄
 
 我更怀疑她都没看技能描述<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘栗No.007  
+##### 6067#       发表于 2021-12-10 19:42
+
+阿鼻叫唤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6068#       发表于 2021-12-10 19:42
+
+28分钟两件 笑嘻了
+
+*****
+
+####  遗忘回想  
+##### 6069#       发表于 2021-12-10 19:49
+
+这把adc，呃呃
+
+*****
+
+####  Klience  
+##### 6070#       发表于 2021-12-10 19:53
+
+ 本帖最后由 Klience 于 2021-12-10 19:54 编辑 
+
+这把只要别给卡特那太多人头 我方派克能斩起来就好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 贪了 不该Q的 跟着A就差不多了
+
+*****
+
+####  Rem-清曲  
+##### 6071#       发表于 2021-12-10 19:56
+
+长手打短手+辅助会玩      爽局咯  <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

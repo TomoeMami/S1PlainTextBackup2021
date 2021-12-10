@@ -2954,3 +2954,31 @@ syl
 
 对象推特都放出来了，还是AI业界的你们在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 9246#       发表于 2021-12-10 19:47
+
+虹是要精简人员了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 9247#       发表于 2021-12-10 19:54
+
+ 本帖最后由 rzrbtk 于 2021-12-10 19:58 编辑 
+
+事到如今才看老头环试玩，好想看虹主播玩然后收集到ロアの実然后一瞬语塞的样子啊（口了不会虹死了还不回来吧
+
+*****
+
+####  白金口袋  
+##### 9248#       发表于 2021-12-10 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53885568&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-12-10 05:54</a>
+
+事到如今才看老头环试玩，好想看虹主播玩然后收集到ロアの実然后一瞬语塞的样子啊（口了不会虹死了还不回来 ...</blockquote>
+阿社去社长凸的时候聊天这俩应该是会玩的
+
