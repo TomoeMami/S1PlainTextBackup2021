@@ -3863,3 +3863,14 @@ r0 30来自瑞士UniBern一个流行病学教授的推特，把他们的传染�
 顺便上次的r0是30的文章其实我也没搜到（</blockquote>
 不是文章，来源是Trevor Bedford的推特
 
+
+
+*****
+
+####  烦死了  
+##### 1820#       发表于 2021-12-10 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884336&amp;ptid=2039422" target="_blank">Lord_Voldemort 发表于 2021-12-10 17:54</a>
+反正客观事实不会以人的意志为转移，看看西方这个冬天过的怎么样吧</blockquote>
+除非死亡率大幅上升 不然根本没人在怕的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
