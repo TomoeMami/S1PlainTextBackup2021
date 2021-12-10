@@ -2982,3 +2982,39 @@ syl
 事到如今才看老头环试玩，好想看虹主播玩然后收集到ロアの実然后一瞬语塞的样子啊（口了不会虹死了还不回来 ...</blockquote>
 阿社去社长凸的时候聊天这俩应该是会玩的
 
+
+
+*****
+
+####  free  
+##### 9249#       发表于 2021-12-10 20:21
+
+[https://www.bilibili.com/video/BV1dM4y1w7XJ](https://www.bilibili.com/video/BV1dM4y1w7XJ)
+
+P丸様。的首次个人虚拟演唱会「Peace Parade!!」【预告视频】
+
+怎么弄成这种渲染了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃咸菜的  
+##### 9250#       发表于 2021-12-10 20:24
+
+请问想看斗虫民有没有什么好去处啊？
+
+*****
+
+####  ヒトニナル  
+##### 9251#       发表于 2021-12-10 20:29
+
+马娘是nmmn，套皮主播也是nmmn，大家都有光明的未来
+
+*****
+
+####  FCCHua  
+##### 9252#       发表于 2021-12-10 20:29
+
+ 本帖最后由 FCCHua 于 2021-12-10 20:32 编辑 
+
+met的生诞祭完全就是在折磨自己，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

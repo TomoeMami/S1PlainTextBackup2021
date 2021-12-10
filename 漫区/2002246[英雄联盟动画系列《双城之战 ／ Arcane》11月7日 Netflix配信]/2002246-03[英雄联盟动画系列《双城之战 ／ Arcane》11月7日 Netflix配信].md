@@ -75,3 +75,17 @@ Arcane一个亿的成本，总不可能让这宝贝疙瘩跟着其他几个有�
 
 就离谱，现在B站孤勇者还有2000多人在线看。。。。这歌流量可能比双城之战动画流量还大了
 
+
+
+*****
+
+####  越未央  
+##### 3008#       发表于 2021-12-10 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53862622&amp;ptid=2002246" target="_blank">modkingr 发表于 2021-12-9 08:41</a>
+
+打了下lor的艾克剧情，发现一个严重的问题。arcane的艾克属于是非常严重的ooc，和峡谷lor的z驱动艾克完全匹 ...</blockquote>
+差异这么大吗，lor的是怎么样
+
+arcane之前，从lol的语音和cg，感觉艾克就是个少年气、天才、有义气的街头男孩
+

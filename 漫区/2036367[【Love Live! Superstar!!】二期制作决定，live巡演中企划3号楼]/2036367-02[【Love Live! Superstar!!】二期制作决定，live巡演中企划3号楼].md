@@ -3364,3 +3364,23 @@ https://share.api.weibo.cn/share/267672202.html?weibo_id=4712937359672469
 感觉后辈比鲤鱼还成熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 然后你这看后辈看到出神是怎样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我甚至觉得鲤鱼这期特别兴奋
 
+
+
+*****
+
+####  chenflyyy  
+##### 1815#       发表于 2021-12-10 20:29
+
+ 本帖最后由 chenflyyy 于 2021-12-10 20:30 编辑 
+
+女仆装好文明，二创多来点谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+https://mobile.twitter.com/egakineco/status/1469278854137380866
+<img src="https://p.sda1.dev/3/07e0d41b6df2d07979c832ac0d0ae3ad/IMG_CMP_232821706.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 1816#       发表于 2021-12-10 20:32
+
+听了歌之后只能说除了动画都懂角色啊~
+
