@@ -3403,3 +3403,21 @@ https://space.bilibili.com/8047632/dynamic</blockquote>
 
 能问下这人为什么这么多女粉，长得很帅？？？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Tree洞  
+##### 354#       发表于 2021-12-11 00:31
+
+<blockquote>——啧 发表于 2021-12-10 23:26
+能问下这人为什么这么多女粉，长得很帅？？？</blockquote>
+并不帅，个人觉得单纯是中国够大傻逼够多而已，叔叔喂啥就粉上了
+
+*****
+
+####  forelle  
+##### 355#       发表于 2021-12-11 00:39
+
+属于是小丑回魂了
+
