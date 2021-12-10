@@ -3186,3 +3186,28 @@ b站是什么样的，不早就知道了吗
 
 不过关键是这个人对标的不对，b站多少万个底边主播直播一晚上都赚不了几块钱的。他就盯着人叔叔力捧的头部顶流。
 
+
+
+*****
+
+####  ken1785  
+##### 333#       发表于 2021-12-10 14:07
+
+卸载阿b了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 334#       发表于 2021-12-10 14:16
+
+太魔幻了，各路人马的发言...
+
+*****
+
+####  jacatay  
+##### 335#       发表于 2021-12-10 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该滚的是你们这些的二次元遗老
+
+新二次元都是看着叔叔阉割延时版 听着蕾皇公鸭嗓发出哈哈哈哈的弹幕的集美跟舔狗啦
+
