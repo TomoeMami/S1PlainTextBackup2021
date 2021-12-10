@@ -2722,3 +2722,172 @@ gDUhEcR_d.webp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在你虹，被运营选上就是福报
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9224#       发表于 2021-12-10 18:42
+
+[https://note.com/todoki_uka/n/na56f434dd1b3](https://note.com/todoki_uka/n/na56f434dd1b3)
+
+QQ图片20211210183920.jpg
+(116.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 18:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/10/184224miiesgg1fex8szw6.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  星街こうせい  
+##### 9225#       发表于 2021-12-10 18:42
+
+一眼全是20年前的旧时代虹人，新时代已经没有载你们的船了。
+
+*****
+
+####  purdre  
+##### 9226#       发表于 2021-12-10 18:45
+
+笹木咲Tanabata tree
+
+@saku_sasaki
+
+20時からの配信ですが、
+
+運営さんの判断で一旦中止になりました。
+
+申し訳ないです、ごめんね…！
+
+ライバーの盾キターッ
+
+运营敢做就别耸啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 9227#       发表于 2021-12-10 18:45
+
+你虹不会真没钱了吧。
+认真想想你虹想上市是不是要保证自己的盈利能力啊。
+之前是业界龙头烧钱也就烧了。现在有一个明显更赚钱的同行在了，盲猜你虹这下得抓紧盈利能力认真输出了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBXX  
+##### 9228#       发表于 2021-12-10 18:45
+
+<img src="https://p.sda1.dev/3/67526d743cf81450a62eab9989261e1d/拼接截图.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 9229#       发表于 2021-12-10 18:47
+
+<img src="https://img.saraba1st.com/forum/202112/10/184531k7k3ee3e8dddzd3f.png" referrerpolicy="no-referrer">
+
+<strong>【ご報告】VTuberだけど結婚しました｜届木ウカ.png</strong> (41.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 18:45 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">恭喜啊 <blockquote>パートナーについて
+
+「どこの馬の骨よその女！」という人向けの妻(夫)の紹介です。
+
+同担拒否ガチ恋勢は読み飛ばしてください。
+
+妻(夫)は元々にじさんじを運営する株式会社いちから（現ANYCOLOR）のタレント事業本部長をしておりました。
+
+そして当時まだデビューして日が浅かった月ノ美兎ちゃんが初のリアルイベントをやることになり、月ノ美兎ちゃんが初めて外部コラボをした相手だから、ということで届木ウカもゲストチケットをいただきイベントを拝見させていただきました。
+
+そこの楽屋で妻(夫)と出会い、妻のいちから退職から１年後にふとしたきっかけで色々話すようになったのですが、
+
+Vの話そっちのけでSF小説家の小林泰三さんの話や名作エロゲ、サブカル系の話で意気投合し、今に至ります。人生何が起こるかわかりませんね。</blockquote>
+
+*****
+
+####  渡鸦骑士  
+##### 9230#       发表于 2021-12-10 18:48
+
+这么一位元老级的部长怎么就退职了？
+因为结婚？
+
+*****
+
+####  nian1538  
+##### 9231#       发表于 2021-12-10 18:49
+
+转型的阵痛啊
+痛到什么时候呢
+
+*****
+
+####  我不是很好  
+##### 9232#       发表于 2021-12-10 18:50
+
+该砍不良资产了，同接低于五千的都毕业，彩虹社就好起来了
+
+*****
+
+####  真飞鸟i  
+##### 9233#       发表于 2021-12-10 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就这点事楼友怎么就这么激动，马娘也是把r18一刀砍的啊，你看马娘同人少了吗。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  渡鸦骑士  
+##### 9234#       发表于 2021-12-10 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884929&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-12-10 18:52</a>
+就这点事楼友怎么就这么激动，马娘也是把r18一刀砍的啊，你看马娘同人少了吗。
+
+—— 来自 Xiaomi R ...</blockquote>
+哥，马娘那是一开始就有风声了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 9235#       发表于 2021-12-10 18:54
+
+Bsyl，前几天看见凛前辈的推，怎么感觉dlsite这活动谁上谁倒霉呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是想看一年虹棒，但也许你虹撑不到那个时候了
+
+（btw，现在觉得你虹的主流出道也属于谁上谁倒霉了）
+
+*****
+
+####  格林卡罗尔  
+##### 9236#       发表于 2021-12-10 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884882&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-10 18:48</a>
+
+这么一位元老级的部长怎么就退职了？
+
+因为结婚？</blockquote>
+退职理由不清楚，但是这对是男方离职后才见的第二面，应该和结婚没有关系
+
+*****
+
+####  雨井绫  
+##### 9237#       发表于 2021-12-10 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884869&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-12-10 18:47</a>
+恭喜啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">惊了
+
+*****
+
+####  purdre  
+##### 9238#       发表于 2021-12-10 18:58
+
+有sensitive tag和主播自己都拿自己r18作品来当谈资的业界事到如今来搞切割被炎上那不是咎由自取吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -474,3 +474,42 @@
 
 男枪这么强，你为什么不玩男枪……
 
+
+
+*****
+
+####  Klience  
+##### 6054#       发表于 2021-12-10 18:40
+
+ 本帖最后由 Klience 于 2021-12-10 18:43 编辑 
+
+老实说我也不是很懂为什么之前比赛突然会出现上单男枪这玩意 不过现在致命节奏改了 上单薇恩出场的概率估计会高 对上上单男枪不知道会怎样 比赛快点来啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  遗忘回想  
+##### 6055#       发表于 2021-12-10 18:42
+
+先辈，喜欢su！
+
+*****
+
+####  Klience  
+##### 6056#       发表于 2021-12-10 18:47
+
+机器人还行 我能想象10个钩一钩没中被对面暴打的场景了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 6057#       发表于 2021-12-10 18:50
+
+这不整个苹果机器人皮肤   <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6058#       发表于 2021-12-10 18:52
+
+好开！ 我饱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
