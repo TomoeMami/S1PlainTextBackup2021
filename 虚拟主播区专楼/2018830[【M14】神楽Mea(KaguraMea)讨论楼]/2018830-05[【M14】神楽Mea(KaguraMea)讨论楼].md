@@ -375,3 +375,33 @@
 
 昨晚最后一小时纠结那个史努比款的睡衣这么久，最后还是咬咬牙买了，希望肥婆能说到做到，多多工作赚回衣服钱<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雪风utopia  
+##### 6043#       发表于 2021-12-10 09:23
+
+来点麻脸<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂蓮華  
+##### 6044#       发表于 2021-12-10 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除了不是兔唇外比较接近那个已经隐退的铃原露露的造型，嗯，粉色系造型
+
+*****
+
+####  遗忘回想  
+##### 6045#       发表于 2021-12-10 09:34
+
+录播晚上再说，昨晚大概差了一分钟。
+
+*****
+
+####  yywzjsw  
+##### 6046#       发表于 2021-12-10 09:39
+
+你就是馋空露露
+

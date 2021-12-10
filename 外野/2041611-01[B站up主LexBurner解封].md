@@ -2690,3 +2690,113 @@ lex单换uzi
 
 一个个嘴上骂得起劲，到了萌节还不是乖乖低头拼车掏钱<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  麻花疼  
+##### 284#       发表于 2021-12-10 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876007&amp;ptid=2041611" target="_blank">edenpenn 发表于 2021-12-10 09:14</a>
+
+善用浏览器脚本插件
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+求指路
+
+*****
+
+####  泥潭小灰灰  
+##### 285#       发表于 2021-12-10 09:26
+
+猜测：现在还粉他的不是韭菜就是僵尸<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Adrien  
+##### 286#       发表于 2021-12-10 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874999&amp;ptid=2041611" target="_blank">宅男的爱 发表于 2021-12-10 03:38</a>
+B站已经玩脱一次了，捞了那个谁来（抱歉名字不记得了）直播，赚不出来出场费，现在直播部干挂着推荐位慢 ...</blockquote>
+如果是冯提莫的话，那是被某领导塞进来的，阿逼不得不要，就当是吉祥物了
+
+*****
+
+####  bigming000  
+##### 287#       发表于 2021-12-10 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875379&amp;ptid=2041611" target="_blank">西瓜爆裂 发表于 2021-12-10 08:08</a>
+
+蕾磺第一天回来就和瓶畜55开，是雷孝女武德还是燃烧瓶费拉</blockquote>
+瓶子的粉丝都不能算真“粉丝”，巴不得他死的乐子人恐怕不少，蕾蝗可是真饭圈，入圈就得抛掉脑子的那种。
+
+*****
+
+####  天野银次X美堂蛮  
+##### 288#       发表于 2021-12-10 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876194&amp;ptid=2041611" target="_blank">泥潭小灰灰 发表于 2021-12-10 09:26</a>
+
+猜测：现在还粉他的不是韭菜就是僵尸</blockquote>
+现在应该大部分是集美了吧。。。战斗力估摸着比过去单走动画区强很多。。。。个人觉得大概率蕾皇会活的比过去滋润很多。。噗
+
+*****
+
+####  橘色猫猫  
+##### 289#       发表于 2021-12-10 09:34
+
+这200W真的是谁拿谁恶心
+
+*****
+
+####  edenpenn  
+##### 290#       发表于 2021-12-10 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876168&amp;ptid=2041611" target="_blank">麻花疼 发表于 2021-12-10 09:24</a>
+求指路</blockquote>
+Chrome edge 火狐这3个开源的都可以，关键词油猴和 Greasy Fork，自己探索吧，你会打开新世界的大门<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  WA1pywa  
+##### 291#       发表于 2021-12-10 09:38
+
+现在看来斗鱼真的拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PLD  
+##### 292#       发表于 2021-12-10 09:42
+
+妈的，lex举报无职先审后播后，b站新番肉眼可见水平下降，我站会员冲到2025年，却不能退款。
+
+*****
+
+####  poipoiz  
+##### 293#       发表于 2021-12-10 09:43
+
+三七分成三七分成
+
+*****
+
+####  ClamtheElder  
+##### 294#       发表于 2021-12-10 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873520&amp;ptid=2041611" target="_blank">比比巴巴波 发表于 2021-12-9 23:15</a>
+得，蕾皇就喜欢你们看他不爽还只能看他收钱的样子
+
+以后女杨笠男蕾丝，使劲给你们喂奥利给</blockquote>
+女人给他们送钱，又不是你给他们送钱，急什么。
+真急了那找点女人不喜欢的送钱，支持他去跳女人脸，思来想去，却有只想到煮肘。
+
+—— 来自 Xiaomi M2004J19C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  撸一记  
+##### 295#       发表于 2021-12-10 09:43
+
+亏损严重，B站就指着棺材本拉一波，叔叔要跑路了
+
