@@ -1925,3 +1925,14 @@ https://prtimes.jp/main/html/rd/p/000000207.000060567.html
 
 不过百鬼组还是铁的很
 
+
+
+*****
+
+####  一仙  
+##### 13688#       发表于 2021-12-10 13:13
+
+毕竟绫总是摸鱼Vtuber里赚得最多的，赚得多的Vtuber里摸得最狠的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+百鬼众少打点钱兴许就没几个人在意了绫总怎么摸了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
