@@ -3911,3 +3911,19 @@ r0 30来自瑞士UniBern一个流行病学教授的推特，把他们的传染�
 
 按照现在这个走势，之后delta和omicron会不会同时出现在一个人身上然后合体变异出什么妖魔鬼怪啊，而且如果同时得的话死亡率会怎样……
 
+
+
+*****
+
+####  riczxc  
+##### 1824#         楼主| 发表于 2021-12-10 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884477&amp;ptid=2039422" target="_blank">礼央破流堂 发表于 2021-12-10 18:07</a>
+
+班加罗尔大公锐评班加罗尔发现奥米克戎病例：
+
+https://www.bilibili.com/video/BV1vS4y1D7ZM ...</blockquote>
+又不是什么专家的视频，也没有评出什么新意。班加罗尔有病例是一点都不奇怪。
+
+我点进去结果被浪费了几分钟。还请转些高质量的内容为好。
+

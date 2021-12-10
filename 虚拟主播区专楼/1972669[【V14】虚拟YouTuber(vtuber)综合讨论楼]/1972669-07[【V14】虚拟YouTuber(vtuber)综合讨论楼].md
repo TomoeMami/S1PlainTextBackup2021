@@ -3085,3 +3085,101 @@ met的生诞祭完全就是在折磨自己，笑死<img src="https://static.sara
 哪家的斗虫？彩虹的虫楼在nga</blockquote>
 谢谢，还有别的吗？像holo斗同接或者加散户斗sc的
 
+
+
+*****
+
+####  天下雨  
+##### 9259#       发表于 2021-12-10 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887142&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2021-12-10 22:19</a>
+
+谢谢，还有别的吗？像holo斗同接或者加散户斗sc的</blockquote>
+推上有总结虹所有配信同接和sc的数据bot，很好找，总sc斗虫可以去搜油管sc排名网站看
+
+*****
+
+####  pansherry  
+##### 9260#       发表于 2021-12-10 22:31
+
+<img src="https://img.saraba1st.com/forum/202112/10/223105mhm1g2m8itkh5dkh.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211210233016.png</strong> (174.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 22:31 上传
+
+ 好大！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shpdw  
+##### 9261#       发表于 2021-12-10 22:31
+
+抄杏抄出来这么个玩意，属于是数典忘祖把自己怎么起家的都忘了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还以为之前那些人说不知道是未告知，现在来看是撇清关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃咸菜的  
+##### 9262#       发表于 2021-12-10 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887227&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-10 22:28</a>
+
+推上有总结虹所有配信同接和sc的数据bot，很好找，总sc斗虫可以去搜油管sc排名网站看 ...</blockquote>
+数据我有在关注的，可是没有斗虫民乐趣就少了很多
+
+*****
+
+####  渡鸦骑士  
+##### 9263#       发表于 2021-12-10 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887267&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2021-12-10 22:31</a>
+
+数据我有在关注的，可是没有斗虫民乐趣就少了很多</blockquote>
+目前乐趣最多最直接的，是k岛里版的斗虫串
+[https://majeur.zawarudo.org/virtuelles/res/1158358.html#1163525](https://majeur.zawarudo.org/virtuelles/res/1158358.html#1163525)
+
+*****
+
+####  天下雨  
+##### 9264#       发表于 2021-12-10 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887267&amp;ptid=1972669" target="_blank">吃咸菜的 发表于 2021-12-10 22:31</a>
+
+数据我有在关注的，可是没有斗虫民乐趣就少了很多</blockquote>
+虹本来就没多少斗虫民啊，虹民看底边还蛮政治正确的吧，不爱开sc的liver又多，吹数据不是把自推架在火上烤
+
+*****
+
+####  渡鸦骑士  
+##### 9265#       发表于 2021-12-10 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887330&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-10 22:38</a>
+
+虹本来就没多少斗虫民啊，虹民看底边还蛮政治正确的吧，不爱开sc的liver又多，吹数据不是把自推架在火上 ...</blockquote>
+你新参吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+斗虫这项历史悠久的运动，始作俑者就是你彩虹观众阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是很好  
+##### 9266#       发表于 2021-12-10 22:39
+
+“彩虹没多少斗虫民”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃咸菜的  
+##### 9267#       发表于 2021-12-10 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887324&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-10 22:37</a>
+
+目前乐趣最多最直接的，是k岛里版的斗虫串
+
+https://majeur.zawarudo.org/virtuelles/res/1158358.html#11 ...</blockquote>
+多谢
+
