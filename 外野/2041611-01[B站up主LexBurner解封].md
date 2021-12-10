@@ -3108,3 +3108,52 @@ b站是什么样的，不早就知道了吗
 这公告地址在哪里？B站搜索看不到啊</blockquote>
 [https://space.bilibili.com/8047632/dynamic](https://space.bilibili.com/8047632/dynamic)
 
+
+
+*****
+
+####  virusking  
+##### 326#       发表于 2021-12-10 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53878337&amp;ptid=2041611" target="_blank">星野莉莉 发表于 2021-12-10 11:20</a></blockquote>
+瞅了眼没有
+
+*****
+
+####  gunterpla  
+##### 327#       发表于 2021-12-10 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53878337&amp;ptid=2041611" target="_blank">星野莉莉 发表于 2021-12-10 11:20</a></blockquote>
+假的！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gongge666  
+##### 328#       发表于 2021-12-10 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876522&amp;ptid=2041611" target="_blank">新吾 发表于 2021-12-10 09:45</a>
+
+哪个领导啊，阿批的领导吗？
+
+领导打钱哪个平台不是打，用得着带她去二刺猿平台？还是抽成这么高的平台？ ...</blockquote>
+团团可最喜欢ftm了，而且当时ftm已经和斗鱼解约了，流出来说几百上千万的说法，无非就是娱乐圈保身价的手段罢了，就像3亿请郑爽实际不过千万。还有7位数的爽哥，到底有没有7位数怎么都要打问号。只是大家太希望B站当冤大头，就像blg按照论坛说法连着2年lpl最高价格引援了，季后赛都打不进，无非就是大家都想看叔叔花冤枉钱，但叔叔到底有没有花这么多钱，财报上面可一点都看不出来
+
+*****
+
+####  蓬莱梦梦  
+##### 329#       发表于 2021-12-10 12:23
+
+<blockquote>我不怀好意 发表于 2021-12-10 07:12
+做动画的没有骂动画的挣钱</blockquote>
+那倒不是，你看魔童哪吒40多个亿了。蕾皇可是头部up，如果要对标的话这个人至少也要是头部动画制作人吧
+
+*****
+
+####  邬德强  
+##### 330#       发表于 2021-12-10 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53878337&amp;ptid=2041611" target="_blank">星野莉莉 发表于 2021-12-10 11:20</a></blockquote>
+我丁真宣布鉴定为真中真
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
