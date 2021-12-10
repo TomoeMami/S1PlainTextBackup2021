@@ -4011,3 +4011,47 @@ omicron 又不是终点，就算这一波混过去了，还会继续变异呢
 
 这病毒如果继续变异下去，到最后西方顶不住又没法成功甩锅给中国的时候，不会又会造出类似“上帝之鞭”、“天罚”，或是“这是人类进化/飞升的机遇”之类的话语来安抚民意、甩锅自然吧
 
+
+
+*****
+
+####  smy20011  
+##### 1831#       发表于 2021-12-11 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887762&amp;ptid=2039422" target="_blank">abcbuzhiming 发表于 2021-12-10 23:24</a>
+
+不妨做个推论好了，假设这东西的症状真的很轻，那得这个的人自然不会太在意（你要是觉得你只是一般感冒了 ...</blockquote>
+南非的新冠筛查是不是流程化的？比如有发烧症状就要去做核酸
+
+*****
+
+####  惊奇记事簿  
+##### 1832#       发表于 2021-12-11 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53888551&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-11 01:25</a>
+南非的新冠筛查是不是流程化的？比如有发烧症状就要去做核酸</blockquote>
+你这个流程除了中国还有哪个国家有？
+
+*****
+
+####  惊奇记事簿  
+##### 1833#       发表于 2021-12-11 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53888523&amp;ptid=2039422" target="_blank">5b25 发表于 2021-12-11 01:18</a>
+这病毒如果继续变异下去，到最后西方顶不住又没法成功甩锅给中国的时候，不会又会造出类似“上帝之鞭”、“ ...</blockquote>
+那也得说服中国一起趴下才行吧
+
+*****
+
+####  Redis  
+##### 1834#       发表于 2021-12-11 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53888523&amp;ptid=2039422" target="_blank">5b25 发表于 2021-12-11 01:18</a>
+
+这病毒如果继续变异下去，到最后西方顶不住又没法成功甩锅给中国的时候，不会又会造出类似“上帝之鞭”、“ ...</blockquote>
+这东西也算是天罚啊，难不成还能是人造的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在新冠症状没有感冒化，流行程度已经感冒化了，以后就永远跟着人类走了（也不只是人类哺乳类
+
+你把这个看成大自然控制人**炸的措施也没啥问题，各国出生率都绝赞下跌中
+
