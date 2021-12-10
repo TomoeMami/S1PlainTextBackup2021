@@ -7659,3 +7659,12 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破活动别说四五星礼装了，我连挂满破三星礼装的人都找不到
 
+
+
+*****
+
+####  qixinno2  
+##### 84696#       发表于 2021-12-10 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">麻了 十抽下去连个三星礼装都没 滚了
+

@@ -2652,3 +2652,41 @@ lex单换uzi
 
 查看全部评分
 
+
+
+*****
+
+####  麻花疼  
+##### 280#       发表于 2021-12-10 09:03
+
+你坛那么多程序员，有没有办法破解了批站的高画质和60帧啊？
+
+能破的话明年我也不续了。
+
+*****
+
+####  无动于衷  
+##### 281#       发表于 2021-12-10 09:11
+
+上上个月刚充了大会员就出这事 你睿干的好啊 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  edenpenn  
+##### 282#       发表于 2021-12-10 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875873&amp;ptid=2041611" target="_blank">麻花疼 发表于 2021-12-10 09:03</a>
+你坛那么多程序员，有没有办法破解了批站的高画质和60帧啊？
+
+能破的话明年我也不续了。 ...</blockquote>
+善用浏览器脚本插件<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yaqiulove  
+##### 283#       发表于 2021-12-10 09:23
+
+一个个嘴上骂得起劲，到了萌节还不是乖乖低头拼车掏钱<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

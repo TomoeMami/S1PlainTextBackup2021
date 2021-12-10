@@ -356,3 +356,22 @@
 
 来个百度云......又睡着了，歌回后就昏迷了
 
+
+
+*****
+
+####  JY要塞  
+##### 6041#       发表于 2021-12-10 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875661&amp;ptid=2018830" target="_blank">上坂蓮華 发表于 2021-12-10 08:45</a>
+
+人麻了，怎么突然做梦梦到露脸直播了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">速速回忆起麻脸！
+
+*****
+
+####  遗忘回想  
+##### 6042#       发表于 2021-12-10 09:18
+
+昨晚最后一小时纠结那个史努比款的睡衣这么久，最后还是咬咬牙买了，希望肥婆能说到做到，多多工作赚回衣服钱<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
