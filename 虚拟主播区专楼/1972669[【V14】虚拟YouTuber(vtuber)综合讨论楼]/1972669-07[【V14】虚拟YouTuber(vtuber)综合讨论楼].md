@@ -3269,3 +3269,54 @@ holo斗虫楼锁了，要不开头那句就算是草履虫也要斗虫可是最�
 
 好多郡的关系性之选，虽然还没开始已经对大赛充满期待惹
 
+
+
+*****
+
+####  shpdw  
+##### 9276#       发表于 2021-12-10 23:07
+
+那确实不配啊，就现在来说其他企业势有出现任何一个有天皇宅度的女人？
+
+一个看rtrt的云玩家就这点阿宅知识在你业界就能呼风唤雨了，绘畜生不行啊。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天下雨  
+##### 9277#       发表于 2021-12-10 23:08
+
+ 本帖最后由 天下雨 于 2021-12-10 23:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887484&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-10 22:54</a>
+
+倒不是对现在的虹人有什么不满。主要是你现在这个论调实在是不能太喜感了，当年月之美兔出道，脚踩什么， ...</blockquote>
+不过虹没多少虫民在现在还是属于单纯的事实，确实没什么热闹看，可能最现在好看的数据基本都在官台吧，男v现在数据好看那几个的粉都各玩各的，也没什么人斗
+
+*****
+
+####  渡鸦骑士  
+##### 9278#       发表于 2021-12-10 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887618&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-10 23:08</a>
+
+不过虹没多少虫民在现在还是属于单纯的事实，确实没什么热闹看，可能最现在好看的数据基本都在官台吧 ...</blockquote>
+社长那阵还挺热闹的，然而selen纪念回破万他们提都不提，你虹就是这样啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑漆漆的漆漆  
+##### 9279#       发表于 2021-12-10 23:14
+
+想来我还是看nga的虹虫楼入坑的，时间的车轮滚过之后什么都不剩下了。
+
+*****
+
+####  OldGlory  
+##### 9280#       发表于 2021-12-10 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887606&amp;ptid=1972669" target="_blank">shpdw 发表于 2021-12-10 23:07</a>
+
+那确实不配啊，就现在来说其他企业势有出现任何一个有天皇宅度的女人？
+
+一个看rtrt的云玩家就这点阿宅知识 ...</blockquote>
+比天皇宅的当然有啊，魔魔マラ<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
