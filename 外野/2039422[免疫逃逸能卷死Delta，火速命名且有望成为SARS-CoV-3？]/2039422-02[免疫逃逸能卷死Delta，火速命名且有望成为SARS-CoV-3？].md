@@ -3927,3 +3927,45 @@ https://www.bilibili.com/video/BV1vS4y1D7ZM ...</blockquote>
 
 我点进去结果被浪费了几分钟。还请转些高质量的内容为好。
 
+
+
+*****
+
+####  riczxc  
+##### 1825#         楼主| 发表于 2021-12-10 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53885989&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-10 20:28</a>
+
+不是文章，来源是Trevor Bedford的推特</blockquote>
+补个来源：
+
+[https://twitter.com/trvrb/status/1467245887357210624](https://twitter.com/trvrb/status/1467245887357210624)
+
+推荐这个链接，比较易读： [https://threadreaderapp.com/thread/1469157770716872708.html](https://threadreaderapp.com/thread/1469157770716872708.html)
+
+这写得还挺好，值得一读。
+
+*****
+
+####  最好不说  
+##### 1826#       发表于 2021-12-10 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887052&amp;ptid=2039422" target="_blank">死亡確認 发表于 2021-12-10 22:09</a>
+
+按照现在这个走势，之后delta和omicron会不会同时出现在一个人身上然后合体变异出什么妖魔鬼怪啊，而且如果 ...</blockquote>
+目前有疑似同时感染了omicron和delta的病例，但也需要时间和样本量来进一步判断影响，合体变异是潜力变种来源之一，但也只是之一，我觉得还是omicron家族后续的演化更焦虑点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  境堺の侍  
+##### 1827#       发表于 2021-12-10 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53886840&amp;ptid=2039422" target="_blank">黑爪爪 发表于 2021-12-10 21:47</a>
+
+数据倒是有
+
+确诊已经新一波峰值
+
+死亡数字目前还趴在地上没动，不知道过两周会不会动</blockquote>
+数据没有被主流媒体报导的话当地人是不会关心的。确诊数倒都有在报道更新，但早都已经没有一年前那么被当回事儿了；只要死亡曲线不上升，在很多人看来就 “just a big flu!"。比如我村的大学因为确诊数近几日激增，大多数是Omi，所以刚被 “升级” 为hotspot，again！但身边的人除了更加注意戴口罩外，基本行为没变化，还在计划圣诞购物（主街道上的圣诞集市生意照常），还有各种活动聚餐。LOL
+

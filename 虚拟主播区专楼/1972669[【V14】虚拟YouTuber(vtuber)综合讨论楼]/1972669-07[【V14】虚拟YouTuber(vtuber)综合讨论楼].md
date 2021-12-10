@@ -3183,3 +3183,89 @@ met的生诞祭完全就是在折磨自己，笑死<img src="https://static.sara
 https://majeur.zawarudo.org/virtuelles/res/1158358.html#11 ...</blockquote>
 多谢
 
+
+
+*****
+
+####  rzrbtk  
+##### 9268#       发表于 2021-12-10 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887104&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-10 22:14</a>
+
+最近虹人偶尔看到roa的话题都是直接提很期待她回来的啊，乳液相扑是roa企划的，ssk的新衣装是跟roa一起商 ...</blockquote>
+语塞又不是尴尬，郡郡在口了消失之后都能在玩游戏时直呼ロア，其他人有什么好尴尬的，就是想看各liver在意料之外的地方看到口了然后呆滞几秒一转回忆+深情呼唤啊
+
+口了在虹里的话题已经停滞在过去太久了，过去的联动过去的企划过去的约定，想要新的内容也就只有内容很少的音声，谁都好，来点新料吧（圭利的那种单方面也好
+
+*****
+
+####  asdhai  
+##### 9269#       发表于 2021-12-10 22:44
+
+当初木口开个虫楼是被彩虹虫楼嘲笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天下雨  
+##### 9270#       发表于 2021-12-10 22:45
+
+ 本帖最后由 天下雨 于 2021-12-10 22:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887342&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-10 22:39</a>
+
+你新参吧
+
+斗虫这项历史悠久的运动，始作俑者就是你彩虹观众阿 ...</blockquote>
+早期那主要是某人的anti和匿版爱揪着玩，可以说斗虫这个传统就脱胎于anti，随着始作俑者疯狂避风头和缩会限，现在就是没几个虫民啊，稍微想斗一斗就有人撕起来拦着了，很大程度上可能也因为这个传统脱胎于anti
+
+普通各种斗虫我也看，现在就剩下杏虫民斗虫的时候爱扯扯king吧，虹其他人和官方活动数据好看的时候一般没什么人po
+
+
+
+*****
+
+####  OldGlory  
+##### 9271#       发表于 2021-12-10 22:47
+
+斗虫也能怪到gbr头上的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">18年虹串斗得更起劲
+
+*****
+
+####  shpdw  
+##### 9272#       发表于 2021-12-10 22:53
+
+斗虫怎么说也该怪在信者卫门头上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 9273#       发表于 2021-12-10 22:53
+
+麦麦居然没参加<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 9274#       发表于 2021-12-10 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887404&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-10 22:45</a>
+
+早期那主要是某人的anti和匿版爱揪着玩，可以说斗虫这个传统就脱胎于anti，随着始作俑者疯狂避风头和缩会 ...</blockquote>
+倒不是对现在的虹人有什么不满。主要是你现在这个论调实在是不能太喜感了，当年月之美兔出道，脚踩什么，拳打什么，吹的天花乱坠。v圈的一切在这上万同接面前都是垃圾的丑恶面目还留在v综的记录力呢。
+
+holo斗虫楼锁了，要不开头那句就算是草履虫也要斗虫可是最真实的写照了。
+
+现在虹为什么斗虫民少了？因为这群人本质冠军粉，没得吹了自然不会出来跳，更有甚者，直接脱坑。
+
+当年可是正大光明的在嫌弃德龙配不上美兔的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在看斗虫很大程度上只是为了保证自己对v圈环境有个基础的认知。毕竟有些数据你不看你根本不知道居然是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 9275#       发表于 2021-12-10 22:58
+
+哈！郡郡月之鹰宫mmt绿成濑同一组，有趣人和我推的组合，爽啦！！
+
+好多郡的关系性之选，虽然还没开始已经对大赛充满期待惹
+
