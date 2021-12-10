@@ -3157,3 +3157,16 @@ b站是什么样的，不早就知道了吗
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  s01262493  
+##### 331#       发表于 2021-12-10 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53879608&amp;ptid=2041611" target="_blank">蓬莱梦梦 发表于 2021-12-10 12:23</a>
+那倒不是，你看魔童哪吒40多个亿了。蕾皇可是头部up，如果要对标的话这个人至少也要是头部动画制作人吧 ...</blockquote>
+那也是一整个动画公司能赚上亿 分到个人又能赚多少 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

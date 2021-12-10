@@ -7668,3 +7668,42 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">麻了 十抽下去连个三星礼装都没 滚了
 
+
+
+*****
+
+####  xiongxingyu  
+##### 84697#       发表于 2021-12-10 12:29
+
+惊了，这回无限池抽完一池可以不用退出来了，跳个提示点掉之后直接到下一池，我用ios手势连点可以一口气把所有票子全部抽完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84698#       发表于 2021-12-10 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876046&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-10 09:17</a>
+
+麻了 十抽下去连个三星礼装都没 滚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这池你都抽 欧羡慕了
+
+*****
+
+####  qixinno2  
+##### 84699#       发表于 2021-12-10 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53879788&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-10 12:33</a>
+
+这池你都抽 欧羡慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">羡慕个毛线 一张活动礼装都没去全是绿方块
+
+*****
+
+####  alucardcz  
+##### 84700#       发表于 2021-12-10 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53879844&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-10 12:37</a>
+
+羡慕个毛线 一张活动礼装都没去全是绿方块</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">友情池抽3星啊(
+
