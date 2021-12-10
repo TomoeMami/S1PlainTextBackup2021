@@ -1775,3 +1775,12 @@ s1有狒狒群吗
 
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  赤魔法师  
+##### 174#       发表于 2021-12-10 15:41
+
+删掉芝诺斯一切剧情都变得合理许多
+
