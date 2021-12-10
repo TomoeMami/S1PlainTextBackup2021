@@ -1762,3 +1762,16 @@ s1有狒狒群吗
 
 选了武士直升进6.0了，这个塔塔露增强版机翻真的不错
 
+
+
+*****
+
+####  private920  
+##### 173#       发表于 2021-12-10 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53880557&amp;ptid=2040615" target="_blank">摸鱼玩家 发表于 2021-12-10 13:17</a>
+选了武士直升进6.0了，这个塔塔露增强版机翻真的不错</blockquote>
+我看直播会笑死。有时错的很诙谐，比如“亲爱的约翰”，有时又特别直球“妈的！”
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
