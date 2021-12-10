@@ -7743,3 +7743,14 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">懒得刷 毕竟没新卡要练就根本不需要刷池子
 
+
+
+*****
+
+####  白金口袋  
+##### 84704#       发表于 2021-12-10 17:53
+
+看了眼FGO的漫画，更到打刷子和大拇指了
+
+感叹一句手游光看文字就感觉玛修很矫情了，漫画加上画面就更是矫情的难以形容，当然也可能有漫画作者独自解释的成分在，反正那个扭了吧唧的调调挺膈应我的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

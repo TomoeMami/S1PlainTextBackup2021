@@ -3755,3 +3755,36 @@ omicron 又不是终点，就算这一波混过去了，还会继续变异呢<im
 子陵微博说奥密克戎在英国rt为6，这是个什么概念？</blockquote>
 dleta在美国的初期rt大约是1.5，以omicron目前在南非大约3.5的rt计算今年年底前就可以取代delta的地位成为全球主流毒株（占比90%以上），rt为6的话你可以自己想象一下
 
+
+
+*****
+
+####  fw3ii9  
+##### 1811#       发表于 2021-12-10 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53873599&amp;ptid=2039422" target="_blank">sk此方 发表于 2021-12-9 23:22</a>
+热刺全队13人新冠
+莱斯特城7人新冠
+大英被变异新冠干烂了？以前都是一两个一两个感染</blockquote>
+那个国产特效药是单抗药<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  omnitoken  
+##### 1812#       发表于 2021-12-10 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53883316&amp;ptid=2039422" target="_blank">血祠 发表于 2021-12-10 16:38</a>
+6已经强炸了吧
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.1.2</blockquote>
+6的话大概元旦前后就能和delta交叉了吧
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  Lord_Voldemort  
+##### 1813#       发表于 2021-12-10 17:54
+
+反正客观事实不会以人的意志为转移，看看西方这个冬天过的怎么样吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

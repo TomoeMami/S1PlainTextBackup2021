@@ -3266,3 +3266,21 @@ https://space.bilibili.com/8047632/dynamic</blockquote>
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  6zking  
+##### 341#       发表于 2021-12-10 17:44
+
+发了个评论“不欢迎”，不到1分钟就没了
+
+*****
+
+####  kinta  
+##### 342#       发表于 2021-12-10 17:51
+
+大家看不惯他主要是他代表了国内二刺猿畸形的生态，一个靠骂垃圾动画博出位的人，过得比一线制作人员还滋润，一个靠吃行业衰败产生的垃圾的腐蚀动物混到食物链顶点，关键是他还膨胀了，真把自己当回事
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
