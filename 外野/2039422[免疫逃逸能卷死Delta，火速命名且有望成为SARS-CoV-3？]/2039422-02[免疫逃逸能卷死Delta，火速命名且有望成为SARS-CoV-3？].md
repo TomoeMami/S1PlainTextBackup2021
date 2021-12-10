@@ -3823,3 +3823,19 @@ dleta在美国的初期rt大约是1.5，以omicron目前在南非大约3.5的rt�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Maestro  
+##### 1817#       发表于 2021-12-10 18:25
+
+ 本帖最后由 Maestro 于 2021-12-10 18:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884581&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-12-10 18:16</a>
+3.5的计算我搜到了 6的文章在哪求一个
+
+顺便上次的r0是30的文章其实我也没搜到（</blockquote>
+r0 30来自瑞士UniBern一个流行病学教授的推特，把他们的传染动力学模型套进南非最开始的数据，基本上就是高度免疫逃逸或者r0非常高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+搜Christian Althaus，现在置顶的就是这条
+
