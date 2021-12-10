@@ -3030,3 +3030,62 @@ p的？
 
 想起以前看姐妹论坛，别人反B站那是直接不用了，发链接都会被骂，虽然不知道后面回没回旋，反观宅宅们不续大会员就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梦·花火  
+##### 319#       发表于 2021-12-10 11:08
+
+b站是什么样的，不早就知道了吗
+从他上市那一刻起就注定是为追逐利润而去的，这些年的变化够明显了
+
+*****
+
+####  记性绝对差  
+##### 320#       发表于 2021-12-10 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876855&amp;ptid=2041611" target="_blank">71888675 发表于 2021-12-10 10:07</a>
+我看以前的瓜说是团中央的
+
+—— 来自 S1Fun</blockquote>
+又来整重庆共青团形象大使是吧
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  逸yi  
+##### 321#       发表于 2021-12-10 11:15
+
+逸先帝搞mikufans本来也没啥追求啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  7sevenseven  
+##### 322#       发表于 2021-12-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876456&amp;ptid=2041611" target="_blank">PLD 发表于 2021-12-10 09:42</a>
+妈的，lex举报无职先审后播后，b站新番肉眼可见水平下降，我站会员冲到2025年，却不能退款。 ...</blockquote>
+这个和她关系不大吧，本来就要搞
+
+*****
+
+####  星野莉莉  
+##### 323#       发表于 2021-12-10 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53871777&amp;ptid=2041611" target="_blank">Map-2 发表于 2021-12-9 20:59</a>
+
+现在在播农
+
+我记得他以前也是玩农的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/10/112034q3ms3sar4apkyclt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4D09C336-6685-44A4-B0E6-24E68E63CE64.jpeg</strong> (93.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 11:20 上传
+
