@@ -2604,3 +2604,51 @@ lex单换uzi
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  yanghuangu  
+##### 276#       发表于 2021-12-10 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874662&amp;ptid=2041611" target="_blank">dllplayer 发表于 2021-12-10 01:32</a></blockquote>
+也说明叔叔为了两千万可以脸都不要，美股要跑路了吧
+
+*****
+
+####  yuruki  
+##### 277#       发表于 2021-12-10 08:53
+
+ 本帖最后由 yuruki 于 2021-12-10 08:54 编辑 
+
+问一下，22卡会让叔叔赚钱吗？会，我就去销了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wlhlz  
+##### 278#       发表于 2021-12-10 08:56
+
+我经常看看b站都从来没看过这人的视频，就这点破事一下刷了10楼，泥潭迫真后花园
+
+*****
+
+####  MiTu75  
+##### 279#       发表于 2021-12-10 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875743&amp;ptid=2041611" target="_blank">yuruki 发表于 2021-12-10 08:53</a>
+
+问一下，22卡会让叔叔赚钱吗？会，我就去销了</blockquote>
+会的，你用了这张卡一段时间之后，叔叔都会从你充值的话费里拿到部分抽成。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuruki| + 1|感谢解答|
+
+查看全部评分
+

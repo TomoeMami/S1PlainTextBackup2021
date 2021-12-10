@@ -3629,3 +3629,12 @@ https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ</blockquote>
 
 真的是在自我催眠。不管是南非的死亡病例还是ICU数据都没见报导过（连外来务工人员专报都没有）。就前几天重启了商店和公交上必须戴口罩，昨晚宣布了剧院和电影院也要戴口罩。这离圣诞节还有两周，没准还能再来一次临时取消圣诞。<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战斗鸡  
+##### 1801#       发表于 2021-12-10 08:52
+
+反正就现在情况看，哪怕o的确不强也别放心（或者别着急？），这病毒变异肯定还没到头呢。
+
