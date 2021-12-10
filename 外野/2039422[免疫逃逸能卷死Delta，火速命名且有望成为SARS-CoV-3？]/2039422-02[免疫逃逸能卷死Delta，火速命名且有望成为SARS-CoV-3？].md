@@ -3874,3 +3874,16 @@ r0 30来自瑞士UniBern一个流行病学教授的推特，把他们的传染�
 反正客观事实不会以人的意志为转移，看看西方这个冬天过的怎么样吧</blockquote>
 除非死亡率大幅上升 不然根本没人在怕的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冤枉呐  
+##### 1821#       发表于 2021-12-10 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53795302&amp;ptid=2039422" target="_blank">汽车屁 发表于 2021-12-3 14:08</a>
+你都把中国踢出这个世界了，我们的世界当然和你们的世界不是一个现实了。。。
+
+你们的世界，已经不可能清零 ...</blockquote>
+地球很大的……
+
