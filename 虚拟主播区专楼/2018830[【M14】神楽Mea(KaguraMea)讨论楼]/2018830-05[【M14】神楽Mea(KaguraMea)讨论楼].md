@@ -614,3 +614,123 @@ mea玩不明白带能量条的英雄
 
 长手打短手+辅助会玩      爽局咯  <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 6072#       发表于 2021-12-10 20:00
+
+会玩的辅助下路玩的确实舒服 不像某人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6073#       发表于 2021-12-10 20:02
+
+下路一塔 辅助游走跟其他人去gank 这局基本就稳了 只要队友别犯病<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 6074#       发表于 2021-12-10 20:02
+
+刚来，赢了几把了
+
+*****
+
+####  Rem-清曲  
+##### 6075#       发表于 2021-12-10 20:03
+
+好严格的游戏民，主播都是白银段位了，就不能顺从一下么  <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6076#       发表于 2021-12-10 20:03
+
+赢了三把 输了一把劫
+
+*****
+
+####  我单推副会长  
+##### 6077#       发表于 2021-12-10 20:04
+
+对线双杀，二打三一换二，经典下路四包二，杀人吃塔皮经典的女警推进流。打个字这怎么死了？？
+
+*****
+
+####  Klience  
+##### 6078#       发表于 2021-12-10 20:04
+
+必须的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 6079#       发表于 2021-12-10 20:05
+
+这么好抓的ADC，当然要多抓
+
+*****
+
+####  十九号大侠  
+##### 6080#       发表于 2021-12-10 20:07
+
+他为什么要出狂风呀，反正也不用
+
+*****
+
+####  Klience  
+##### 6081#       发表于 2021-12-10 20:08
+
+因为OPGG上面写着要出狂风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暴走的包子  
+##### 6082#       发表于 2021-12-10 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884801&amp;ptid=2018830" target="_blank">Klience 发表于 2021-12-10 18:40</a>
+老实说我也不是很懂为什么之前比赛突然会出现上单男枪这玩意 不过现在致命节奏改了 上单薇恩出场的概率估计 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上单男枪和那票咳血兄贵一个道理啊，出盾弓回血猛的要死还有个盾各种丝血反杀，e的被动也很适合对拼，打野男枪都能一套秒ad了，上单就更狠了，这b英雄对吸血的利用率是真的高
+
+—— 來自 samsung SM-F9260, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 6083#       发表于 2021-12-10 20:10
+
+这双杀这么假的吗
+
+*****
+
+####  Klience  
+##### 6084#       发表于 2021-12-10 20:11
+
+ 本帖最后由 Klience 于 2021-12-10 20:13 编辑 
+
+以前渴血被动是血越少攻击越高 渴血 血手 巨九劲夫出完 一个满W伤害可不是开玩笑的啊 不过我觉得还是野区资源这方面才使上单男枪出场 推完线直接和打野一起抢资源 个人观点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 6085#       发表于 2021-12-10 20:14
+
+男枪推线快呀，又肉。都是ad上单呀
+
+*****
+
+####  Klience  
+##### 6086#       发表于 2021-12-10 20:16
+
+笑死 这男枪卡在海克斯传送门了
+
+*****
+
+####  十九号大侠  
+##### 6087#       发表于 2021-12-10 20:17
+
+年轻人就是反应快哦
+
