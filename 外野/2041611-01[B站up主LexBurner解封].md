@@ -3211,3 +3211,33 @@ b站是什么样的，不早就知道了吗
 
 新二次元都是看着叔叔阉割延时版 听着蕾皇公鸭嗓发出哈哈哈哈的弹幕的集美跟舔狗啦
 
+
+
+*****
+
+####  Quelaan  
+##### 336#       发表于 2021-12-10 14:59
+
+不给叔叔送钱这个我已经坚持两年了，但是彻底不用b站还是做不到，国内没有替代品呀<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舌怪  
+##### 337#       发表于 2021-12-10 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53881913&amp;ptid=2041611" target="_blank">Quelaan 发表于 2021-12-10 14:59</a>
+
+不给叔叔送钱这个我已经坚持两年了，但是彻底不用b站还是做不到，国内没有替代品呀 ...</blockquote>
+听着很像苦主和黄毛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 338#       发表于 2021-12-10 15:01
+
+从来没给B站过一分钱
+
+甚至上传视频误点为原创
+
+还从B站薅了50元
+
