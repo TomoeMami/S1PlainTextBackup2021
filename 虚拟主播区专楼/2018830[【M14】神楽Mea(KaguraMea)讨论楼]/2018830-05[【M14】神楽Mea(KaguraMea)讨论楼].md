@@ -808,3 +808,21 @@ mea玩不明白带能量条的英雄
 
 什么好声音，秋秋音乐听歌还要大伙嗯评论 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 6098#       发表于 2021-12-10 21:51
+
+这是她自己剪的？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Klience  
+##### 6099#       发表于 2021-12-10 21:54
+
+不是 基本都是粉丝自己剪得 图奇视频下面有写剪辑者
+

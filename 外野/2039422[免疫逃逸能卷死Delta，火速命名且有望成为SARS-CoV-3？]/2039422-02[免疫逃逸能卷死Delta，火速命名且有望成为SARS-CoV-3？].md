@@ -3887,3 +3887,18 @@ r0 30来自瑞士UniBern一个流行病学教授的推特，把他们的传染�
 你们的世界，已经不可能清零 ...</blockquote>
 地球很大的……
 
+
+
+*****
+
+####  黑爪爪  
+##### 1822#       发表于 2021-12-10 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53874777&amp;ptid=2039422" target="_blank">境堺の侍 发表于 2021-12-10 01:56</a>
+真的是在自我催眠。不管是南非的死亡病例还是ICU数据都没见报导过（连外来务工人员专报都没有）。就前几天 ...</blockquote>
+数据倒是有
+确诊已经新一波峰值
+死亡数字目前还趴在地上没动，不知道过两周会不会动
+
+[https://www.worldometers.info/coronavirus/country/south-africa/](https://www.worldometers.info/coronavirus/country/south-africa/)
+

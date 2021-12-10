@@ -7754,3 +7754,15 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 感叹一句手游光看文字就感觉玛修很矫情了，漫画加上画面就更是矫情的难以形容，当然也可能有漫画作者独自解释的成分在，反正那个扭了吧唧的调调挺膈应我的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84705#       发表于 2021-12-10 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53870419&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-9 19:26</a>
+
+这破活动别说四五星礼装了，我连挂满破三星礼装的人都找不到</blockquote>
+我好友里有·2个满破5星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
