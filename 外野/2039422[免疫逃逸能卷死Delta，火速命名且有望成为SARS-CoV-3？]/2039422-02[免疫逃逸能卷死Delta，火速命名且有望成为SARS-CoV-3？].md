@@ -3694,3 +3694,28 @@ https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ</blockquote>
 
 最后肺部器质性损伤不会死人，但会折寿，折损劳动能力。分期付款式的非直接死亡病症了解一下（比如我长江中下游的血吸虫病，到最后变成肝硬化肝癌死亡的人们，他们的统计是什么导致死亡呢）
 
+
+
+*****
+
+####  血祠  
+##### 1806#       发表于 2021-12-10 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53882699&amp;ptid=2039422" target="_blank">人生长恨水长东 发表于 2021-12-10 15:54</a>
+子陵微博说奥密克戎在英国rt为6，这是个什么概念？</blockquote>
+6已经强炸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  liquer  
+##### 1807#       发表于 2021-12-10 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53882699&amp;ptid=2039422" target="_blank">人生长恨水长东 发表于 2021-12-10 15:54</a>
+
+子陵微博说奥密克戎在英国rt为6，这是个什么概念？</blockquote>
+Rt是受到防疫控制以后的传播系数吧，R0是无干扰的自然传播系数
+
+Rt有6的话看英国的接种率和防疫措施，R0说不定就飚到十几二十甚至三十了
+
