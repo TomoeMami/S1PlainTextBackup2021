@@ -3284,3 +3284,38 @@ https://space.bilibili.com/8047632/dynamic</blockquote>
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  爱尔米娜  
+##### 343#       发表于 2021-12-10 18:05
+
+ 本帖最后由 爱尔米娜 于 2021-12-10 18:07 编辑 
+
+和DZ梦幻联动了，家人们。。。暂时不知道真伪<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Map-2  
+##### 344#         楼主| 发表于 2021-12-10 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884453&amp;ptid=2041611" target="_blank">爱尔米娜 发表于 2021-12-10 18:05</a>
+
+梦幻联动了，家人们暂时不知道真伪</blockquote>
+一眼顶真
+
+所以是假的啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱尔米娜  
+##### 345#       发表于 2021-12-10 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884476&amp;ptid=2041611" target="_blank">Map-2 发表于 2021-12-10 18:07</a>
+
+一眼顶真
+
+所以是假的啦</blockquote>
+太假了，删图了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

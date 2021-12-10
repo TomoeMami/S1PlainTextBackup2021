@@ -3788,3 +3788,38 @@ dleta在美国的初期rt大约是1.5，以omicron目前在南非大约3.5的rt�
 
 反正客观事实不会以人的意志为转移，看看西方这个冬天过的怎么样吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  礼央破流堂  
+##### 1814#       发表于 2021-12-10 18:07
+
+班加罗尔大公锐评班加罗尔发现奥米克戎病例：
+[https://www.bilibili.com/video/BV1vS4y1D7ZM](https://www.bilibili.com/video/BV1vS4y1D7ZM)
+
+*****
+
+####  9090asd  
+##### 1815#       发表于 2021-12-10 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884063&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-10 17:32</a>
+
+dleta在美国的初期rt大约是1.5，以omicron目前在南非大约3.5的rt计算今年年底前就可以取代delta的地位成 ...</blockquote>
+都分血清型了还取代个毛
+
+各自感染各呗
+
+*****
+
+####  neptunehs  
+##### 1816#       发表于 2021-12-10 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53884063&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-10 17:32</a>
+dleta在美国的初期rt大约是1.5，以omicron目前在南非大约3.5的rt计算今年年底前就可以取代delta的地位成 ...</blockquote>
+3.5的计算我搜到了 6的文章在哪求一个
+
+顺便上次的r0是30的文章其实我也没搜到（
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

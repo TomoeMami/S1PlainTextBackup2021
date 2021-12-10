@@ -2605,3 +2605,104 @@ TC台真的卡
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">彩虹主播最近带货好勤啊
 
+
+
+*****
+
+####  rzrbtk  
+##### 9219#       发表于 2021-12-10 18:06
+
+是说这个dlsite活动，参加的真的就是被运营选中的受推人吧，酸了（恭喜惹
+
+*****
+
+####  FCCHua  
+##### 9220#       发表于 2021-12-10 18:14
+
+听说虹又半年了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 9221#       发表于 2021-12-10 18:17
+
+ 本帖最后由 winda 于 2021-12-10 18:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次靠asmr吃饭的几个都没选上，选上的应该就是被运营选中的人
+
+<img src="https://img.saraba1st.com/forum/202112/10/181959i849mmd2k6dpx6mm.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (45.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 18:19 上传
+
+<img src="https://img.saraba1st.com/forum/202112/10/182004d8bshz1s56uw5285.jpg" referrerpolicy="no-referrer">
+
+<strong>20211210181905.jpg</strong> (38.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 18:20 上传
+
+<img src="https://img.saraba1st.com/forum/202112/10/182008ybzx6zkb2kk6t8et.jpg" referrerpolicy="no-referrer">
+
+<strong>20211210181909.jpg</strong> (29.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 18:20 上传
+
+<img src="https://img.saraba1st.com/forum/202112/10/182012wchcjh3cxwuzrbds.jpg" referrerpolicy="no-referrer">
+
+<strong>20211210181914.jpg</strong> (13.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 18:20 上传
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+MTQ7YYy_d.webp
+
+2021-12-10 18:17 上传
+点击文件名下载附件
+
+20.12 KB, 下载次数: 0
+
+由手机上传
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+HkB2e0H_d.webp
+
+2021-12-10 18:17 上传
+点击文件名下载附件
+
+6.52 KB, 下载次数: 0
+
+由手机上传
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Q0PBLGK_d.webp
+
+2021-12-10 18:16 上传
+点击文件名下载附件
+
+13.98 KB, 下载次数: 0
+
+由手机上传
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+gDUhEcR_d.webp
+
+2021-12-10 18:16 上传
+点击文件名下载附件
+
+17.59 KB, 下载次数: 0
+
+由手机上传
+
