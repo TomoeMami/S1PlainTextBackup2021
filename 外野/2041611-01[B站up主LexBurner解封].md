@@ -2837,3 +2837,80 @@ Chrome edge 火狐这3个开源的都可以，关键词油猴和 Greasy Fork，�
 瓶子的粉丝都不能算真“粉丝”，巴不得他死的乐子人恐怕不少，蕾蝗可是真饭圈，入圈就得抛掉脑子的那种。 ...</blockquote>
 燃烧瓶就是这样的捏
 
+
+
+*****
+
+####  71888675  
+##### 300#       发表于 2021-12-10 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876522&amp;ptid=2041611" target="_blank">新吾 发表于 2021-12-10 09:45</a>
+哪个领导啊，阿批的领导吗？
+
+领导打钱哪个平台不是打，用得着带她去二刺猿平台？还是抽成这么高的平台？ ...</blockquote>
+我看以前的瓜说是团中央的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  diablo5  
+##### 301#       发表于 2021-12-10 10:12
+
+不看动画片不认识，不过他的粉丝都是脑残吗？
+
+*****
+
+####  czs13  
+##### 302#       发表于 2021-12-10 10:15
+
+ 本帖最后由 czs13 于 2021-12-10 10:18 编辑 
+
+这就去搞个蒙古xx的小号拿来喷人
+
+*****
+
+####  matsunaga  
+##### 303#       发表于 2021-12-10 10:15
+
+直播打游戏口嗨侮辱烈士的事情就这么带过了，叔叔问题不小啊
+
+*****
+
+####  璃絵和花瑠  
+##### 304#       发表于 2021-12-10 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53876979&amp;ptid=2041611" target="_blank">czs13 发表于 2021-12-10 10:15</a>
+这就去搞个蒙古xx的小号拿来喷人</blockquote>
+fake news，我都看见几个发出这句话的了
+<img src="https://p.sda1.dev/3/de08c5bc774728e0bd9bc0eff36bc48e/IMG_20211210_100820.jpg" referrerpolicy="no-referrer">
+我自己也测试了一下
+<img src="https://p.sda1.dev/3/524bbd526811782f793c4f739e33cad4/IMG_20211210_101834.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  惠痴  
+##### 305#       发表于 2021-12-10 10:21
+
+以前喷动画收割达利特
+
+现在搞综艺收割饭juan
+
+之后喷郭楠收割女拳
+
+这口屎大伙以后肯定要慢慢品尝的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  偶像程序员POI  
+##### 306#       发表于 2021-12-10 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53875873&amp;ptid=2041611" target="_blank">麻花疼 发表于 2021-12-10 09:03</a>
+
+你坛那么多程序员，有没有办法破解了批站的高画质和60帧啊？
+
+能破的话明年我也不续了。 ...</blockquote>
+批站1080和1080高清 区别大吗？
+
