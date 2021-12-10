@@ -3384,3 +3384,28 @@ https://mobile.twitter.com/egakineco/status/1469278854137380866
 
 听了歌之后只能说除了动画都懂角色啊~
 
+
+
+*****
+
+####  优妮可  
+##### 1817#       发表于 2021-12-10 20:56
+
+<img src="https://img.saraba1st.com/forum/202112/10/205616gng6zgggwnw5gsdg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211210_204748_com.twitter.android_edit_42984753597607.jpg</strong> (73.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 20:56 上传
+
+<img src="https://img.saraba1st.com/forum/202112/10/205616ethxg1t4ggzahtg4.jpg" referrerpolicy="no-referrer">
+
+<strong>ticket_llseries_cdl.jpg</strong> (233.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 20:56 上传
+
+跨年live线上票明天开售
+
