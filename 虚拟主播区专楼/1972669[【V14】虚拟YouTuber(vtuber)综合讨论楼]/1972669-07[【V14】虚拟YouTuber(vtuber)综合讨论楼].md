@@ -2469,3 +2469,64 @@ ymen要跟os团的朋友一起旅游几天，说是好久没出过门，打算�
 
 你虹能活到明年吗
 
+
+
+*****
+
+####  dybang  
+##### 9204#       发表于 2021-12-10 17:06
+
+又虹半年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还叫个事么
+
+*****
+
+####  free  
+##### 9205#       发表于 2021-12-10 17:07
+
+[https://www.youtube.com/watch?v=efJZah4pbZg](https://www.youtube.com/watch?v=efJZah4pbZg)
+
+<img src="https://img.saraba1st.com/forum/202112/10/170636wyze733uhz7ejeju.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (106.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 17:06 上传
+
+*****
+
+####  渡鸦骑士  
+##### 9206#       发表于 2021-12-10 17:10
+
+🌿，这位只能说老牌唱将值得信赖了。
+比之前套皮的唱见们靠谱多了（指直播歌回）
+
+*****
+
+####  星街こうせい  
+##### 9207#       发表于 2021-12-10 17:12
+
+这位更是重量级（物理）
+
+*****
+
+####  OldGlory  
+##### 9208#       发表于 2021-12-10 17:13
+
+虹弹发射！
+
+<img src="https://img.saraba1st.com/forum/202112/10/171339zp4co4l8esvl6o8u.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211210171252.jpg</strong> (90.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-10 17:13 上传
+
+*****
+
+####  winda  
+##### 9209#       发表于 2021-12-10 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是要把同人作者全赶去隔壁，什么大圣人啊
+
