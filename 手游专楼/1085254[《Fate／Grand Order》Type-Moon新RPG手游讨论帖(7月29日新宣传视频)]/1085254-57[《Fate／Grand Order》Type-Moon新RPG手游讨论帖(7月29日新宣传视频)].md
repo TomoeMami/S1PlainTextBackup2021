@@ -7719,3 +7719,27 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 友情池抽3星啊(</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">非洲人友情点清零了都没抽到哈贝喵的第五宝
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84702#       发表于 2021-12-10 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53880111&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-10 12:51:22</a>
+非洲人友情点清零了都没抽到哈贝喵的第五宝</blockquote>无限池刷少了，这次多刷点
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qixinno2  
+##### 84703#       发表于 2021-12-10 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53881491&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-10 14:25</a>
+
+无限池刷少了，这次多刷点
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">懒得刷 毕竟没新卡要练就根本不需要刷池子
+
