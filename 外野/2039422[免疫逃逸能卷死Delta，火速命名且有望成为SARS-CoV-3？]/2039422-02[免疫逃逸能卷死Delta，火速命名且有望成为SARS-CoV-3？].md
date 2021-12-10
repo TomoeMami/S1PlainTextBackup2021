@@ -3638,3 +3638,14 @@ https://mp.weixin.qq.com/s/Dx3SUGNB0-wHH1G2OX9xUQ</blockquote>
 
 反正就现在情况看，哪怕o的确不强也别放心（或者别着急？），这病毒变异肯定还没到头呢。
 
+
+
+*****
+
+####  libratest  
+##### 1802#       发表于 2021-12-10 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811898&amp;ptid=2039422" target="_blank">xiaoba329 发表于 2021-12-4 23:05</a>
+一个认识的老乡（上一辈）在英国好像因为新冠去世了，听说当年他准备黑在英国前还和周围人说过“英 ...</blockquote>
+虽然，但是……真没憋住笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

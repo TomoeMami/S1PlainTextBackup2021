@@ -3089,3 +3089,22 @@ b站是什么样的，不早就知道了吗
 
 2021-12-10 11:20 上传
 
+
+
+*****
+
+####  失落之翼  
+##### 324#       发表于 2021-12-10 12:03
+
+这公告地址在哪里？B站搜索看不到啊
+
+*****
+
+####  Map-2  
+##### 325#         楼主| 发表于 2021-12-10 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53879114&amp;ptid=2041611" target="_blank">失落之翼 发表于 2021-12-10 12:03</a>
+
+这公告地址在哪里？B站搜索看不到啊</blockquote>
+[https://space.bilibili.com/8047632/dynamic](https://space.bilibili.com/8047632/dynamic)
+
