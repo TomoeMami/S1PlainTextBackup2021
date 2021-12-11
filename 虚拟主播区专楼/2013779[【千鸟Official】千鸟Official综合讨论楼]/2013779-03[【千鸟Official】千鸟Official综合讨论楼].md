@@ -11829,3 +11829,16 @@ nmmdndwd<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" re
 
 昨天最后哼的那个是什么曲子呀 感觉好熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 4354#       发表于 2021-12-11 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53889032&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-11 06:58</a>
+鸟p已经开始关于文静生子的大鸣大方了，甚至还有“我点了个举报，米线看b站”和“作者要不要删视频切割”的 ...</blockquote>
+这速度有点快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶在一月毕业之前全部走一遍不留遗憾嘛真是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
