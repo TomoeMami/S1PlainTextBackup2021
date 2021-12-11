@@ -3503,3 +3503,16 @@ AB6B39A2-3F84-420D-B4CB-865CB37EB50C.jpeg
 
 而且无论什么时候脸颊都看着好柔软（前面那张亲板子的侧脸像面团一样），年轻妹感赞！
 
+
+
+*****
+
+####  ads147147  
+##### 1825#       发表于 2021-12-11 09:22
+
+【【中字·试听】リバーブ（Reverb）-叶月恋（CV.青山渚）《LoveLive!Superstar!!》BD第5卷特装限定版特典CD5-哔哩哔哩】 https://b23.tv/mJIlO2K
+
+恋恋每出一首歌都让我想给花田脑袋一个铁锹，三集不两分钟歌词。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
