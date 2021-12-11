@@ -181,3 +181,19 @@ lor设定不能全嫁接到其他相关作品上
 动画片就是要这样的技术力， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">知道鬼马万咒粉丝的恐惧在哪了吧
 
+
+
+*****
+
+####  厄神之息  
+##### 3016#       发表于 2021-12-12 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53892581&amp;ptid=2002246" target="_blank">小野寺熊介 发表于 2021-12-11 15:31</a>
+
+这票跟着闪电松鼠的约德尔人
+
+一个个都是开高达，还能闪电龙卷风，还能打虚空生物或者恶魔
+
+相比之下，离谱之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先，现在的阿卡丽不是暗影之拳，其次，谁也没规定暗影之拳跟武力值挂钩吧，最后那帮松鼠都不知道是不是均衡教派的呢
+
