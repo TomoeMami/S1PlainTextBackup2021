@@ -7766,3 +7766,12 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 这破活动别说四五星礼装了，我连挂满破三星礼装的人都找不到</blockquote>
 我好友里有·2个满破5星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 84706#       发表于 2021-12-11 11:01
+
+这无限池DW根本就不打算让人打的吧，活动过一半了90级本都没开，周末时间只能眼巴巴的刷低级本
+
