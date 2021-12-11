@@ -4086,3 +4086,30 @@ omicron 又不是终点，就算这一波混过去了，还会继续变异呢
 这病毒如果继续变异下去，到最后西方顶不住又没法成功甩锅给中国的时候，不会又会造出类似“上帝之鞭”、“ ...</blockquote>
 就目前看这个病毒的病死率偏低，不足以把西方zf逼到顶不住的程度，现代zf在各种现代化工具的帮助下承压能力**提升，新冠这种“掉血buf”式的小波浪攻击，不足以对现代zf构成足够的压力，至于慢性死人，稀释到每年的正常死亡里，也就没什么了，只能说，新冠来的巧，这是个碧蓝的时代
 
+
+
+*****
+
+####  最好不说  
+##### 1838#       发表于 2021-12-11 18:58
+
+<img src="https://img.saraba1st.com/forum/202112/11/185817ocn82nv7platkl28.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-e0c0446567f1cab337e061d79e9ec113_r.jpg</strong> (68.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-11 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202112/11/185823aah2rsa503fhmr5r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>v2-57407871d7e766d2b664088e927d860d_qhd.jpeg</strong> (35.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-11 18:58 上传
+
+omicron:给我翻译翻译什么叫tmd的mild
+
