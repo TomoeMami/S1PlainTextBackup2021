@@ -2074,3 +2074,26 @@ rushia：爱！
 
 昨日金句：看到了这次的Goods用的Mio的图，于是决定自己也来个差不多的表情
 
+
+
+*****
+
+####  asdhai  
+##### 13703#       发表于 2021-12-11 10:32
+
+486自己也是到处认妈的，虽然多数是后妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fami水  
+##### 13704#       发表于 2021-12-11 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53888380&amp;ptid=1914409" target="_blank">一仙 发表于 2021-12-11 00:52</a>
+
+新的官台综艺：
+
+“想要什么奖品”
+
+绫总：七十寸大电视！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">70寸的电视 是不是可以推测出绫总家的客厅非常大
+
