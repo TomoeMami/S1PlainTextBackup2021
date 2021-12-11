@@ -3423,3 +3423,21 @@ holo斗虫楼锁了，要不开头那句就算是草履虫也要斗虫可是最�
 
 2021-12-11 12:19 上传
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9289#       发表于 2021-12-11 13:26
+
+<img src="https://img.saraba1st.com/forum/202112/11/132618egnqysgszbibya55.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211211132603.png</strong> (25.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-11 13:26 上传
+
+明天就是BOOGEY VOXX × HACHI的live了，看起来舞台效果不错
+[https://twitter.com/Fra_BGV/status/1469263414195548161](https://twitter.com/Fra_BGV/status/1469263414195548161)
+
