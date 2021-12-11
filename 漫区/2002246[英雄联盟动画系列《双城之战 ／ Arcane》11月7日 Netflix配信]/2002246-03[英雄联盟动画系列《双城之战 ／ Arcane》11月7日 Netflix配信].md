@@ -140,3 +140,19 @@ lor设定不能全嫁接到其他相关作品上
 
 相比之下，离谱之刺一个抬不起拖车的究竟怎么当上暗影之拳的
 
+
+
+*****
+
+####  阿刚  
+##### 3013#       发表于 2021-12-11 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53892581&amp;ptid=2002246" target="_blank">小野寺熊介 发表于 2021-12-11 15:31</a>
+
+这票跟着闪电松鼠的约德尔人
+
+一个个都是开高达，还能闪电龙卷风，还能打虚空生物或者恶魔
+
+相比之下，离谱之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等阿卡丽出卡牌了就把你们都杀了
+
