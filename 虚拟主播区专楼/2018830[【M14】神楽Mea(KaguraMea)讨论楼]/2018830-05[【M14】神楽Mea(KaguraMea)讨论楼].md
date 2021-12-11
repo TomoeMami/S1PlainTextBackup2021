@@ -887,3 +887,21 @@ ngs这个月会有一次大更新 等级上限到35 新主线和新副本 到时
 
 你信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  汇聚群光  
+##### 6107#       发表于 2021-12-11 19:31
+
+今天会播吗？
+
+*****
+
+####  古战场亡魂  
+##### 6108#       发表于 2021-12-11 19:32
+
+ 本帖最后由 古战场亡魂 于 2021-12-11 19:35 编辑 
+
+反正又没画面，还不如lol。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

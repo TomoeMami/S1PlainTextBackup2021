@@ -3517,3 +3517,14 @@ Siu新衣服好涩<img src="https://static.saraba1st.com/image/smiley/face2017/0
 我现在能看到一些中层的v奋斗了搞出个大活让同 ...</blockquote>
 你这说法让人想吐槽啊……能有万级同接那是顶层V了吧，所谓的“中层V”能有个千人同接已经很不错了吧，现在的V可已经有几万人了啊
 
+
+
+*****
+
+####  free  
+##### 9297#       发表于 2021-12-11 19:35
+
+[https://www.bilibili.com/read/cv14379505](https://www.bilibili.com/read/cv14379505)
+
+【访谈】2021年vsinger代表——HACHI音乐上的基石『作为参考的，是玉置浩二以及Lia』
+
