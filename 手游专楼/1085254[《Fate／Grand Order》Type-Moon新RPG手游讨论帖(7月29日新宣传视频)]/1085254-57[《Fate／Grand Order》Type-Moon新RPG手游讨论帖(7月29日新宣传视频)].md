@@ -7817,3 +7817,12 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">到现在一张礼装都没掉，根本懒得刷……
 
+
+
+*****
+
+####  areklose  
+##### 84711#       发表于 2021-12-11 22:58
+
+摩根初始70np，毫不浪费，赢麻了
+
