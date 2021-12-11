@@ -338,3 +338,19 @@ Mori和Ame新衣都是换了rigger，我感觉到一点希望了
 
 长发短发和配件都好棒哦、活也整的好好哦<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sekai2014  
+##### 1536#       发表于 2021-12-11 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53890335&amp;ptid=1989758" target="_blank">nagitoY 发表于 2021-12-11 11:14</a>
+
+这是何方神圣，gigguk和kizuna ai在油管也才300w订阅啊。彩虹en在油管混得好的才20w。 ...</blockquote>
+前世就是个准金盾.
+
+萌音主播,唱歌好听.
+
+一个a破圈了
+

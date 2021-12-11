@@ -3441,3 +3441,12 @@ holo斗虫楼锁了，要不开头那句就算是草履虫也要斗虫可是最�
 明天就是BOOGEY VOXX × HACHI的live了，看起来舞台效果不错
 [https://twitter.com/Fra_BGV/status/1469263414195548161](https://twitter.com/Fra_BGV/status/1469263414195548161)
 
+
+
+*****
+
+####  free  
+##### 9290#       发表于 2021-12-11 13:42
+
+这个不就reality的祖传舞台改的吗<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">hachi的个人live跟这个也差不多啊
+
