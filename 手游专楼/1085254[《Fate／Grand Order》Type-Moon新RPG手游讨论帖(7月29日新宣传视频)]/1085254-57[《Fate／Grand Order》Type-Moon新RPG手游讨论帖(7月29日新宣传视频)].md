@@ -7786,3 +7786,14 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 这无限池DW根本就不打算让人打的吧，活动过一半了90级本都没开，周末时间只能眼巴巴的刷低级本 ...</blockquote>
 每年圣诞不都是这样吗。
 
+
+
+*****
+
+####  khxooo  
+##### 84708#       发表于 2021-12-11 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53894332&amp;ptid=1085254" target="_blank">areklose 发表于 2021-12-11 18:09</a>
+每年圣诞不都是这样吗。</blockquote>
+他的意思应该是阴间本开放时间比之前的都短了，玩家刷不了多少。
+

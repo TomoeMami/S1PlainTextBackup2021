@@ -869,3 +869,12 @@ mea玩不明白带能量条的英雄
 
 ngs最近没什么东西玩，她朋友afk了很正常，她又是跟风一起玩的
 
+
+
+*****
+
+####  Klience  
+##### 6105#       发表于 2021-12-11 18:28
+
+ngs这个月会有一次大更新 等级上限到35 新主线和新副本 到时候看她玩不玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
