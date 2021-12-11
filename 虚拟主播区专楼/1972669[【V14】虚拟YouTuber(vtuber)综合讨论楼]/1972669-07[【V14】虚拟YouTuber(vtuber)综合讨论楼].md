@@ -3689,3 +3689,28 @@ https: ...</blockquote>
 2020年6月起三人陆续退出星巡学园，米莉亚还短暂引退一段时 ...</blockquote>
 退出后还能用皮套甚至3d化，说明应该是中身自己掏钱做的皮套？这样看来星巡学院是个非常自由的箱？米莉亚好像是还在做视频，凉和部长都是直播居多了。另外部长好像再也没玩过宝可梦。
 
+
+
+*****
+
+####  nagitoY  
+##### 9311#       发表于 2021-12-12 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53901335&amp;ptid=1972669" target="_blank">Rebellionx5 发表于 2021-12-12 00:43</a>
+
+四季侦探团是三个人还在星巡学园时的组合名了
+
+2020年6月起三人陆续退出星巡学园，米莉亚还短暂引退一段时 ...</blockquote>
+b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？是用九重的艺名活动吗？
+
+*****
+
+####  格林卡罗尔  
+##### 9312#       发表于 2021-12-12 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53901851&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-12 01:45</a>
+b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？是用九重的艺名活动吗？ ...</blockquote>
+都是九重为名义的，作品在dlsite上
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

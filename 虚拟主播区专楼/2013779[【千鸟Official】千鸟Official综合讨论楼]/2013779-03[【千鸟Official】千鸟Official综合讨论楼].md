@@ -12062,3 +12062,12 @@ syl.关于米线的提高，我觉得主播的引导才是最重要的，而非�
 
 老阿姨是真的想当我妈<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4379#       发表于 2021-12-12 05:27
+
+Co宝已经开始搞气氛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望生日会直播节奏别太翻车
+

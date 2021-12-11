@@ -3928,3 +3928,14 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 鱼今天配信感言没说中文也就算了，最后不是ます应该是ました，中文模块丢失日文模块也受损，该大修了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 1847#       发表于 2021-12-12 02:16
+
+日本人说ます，不行；
+
+外国人说ます，行<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">
+
