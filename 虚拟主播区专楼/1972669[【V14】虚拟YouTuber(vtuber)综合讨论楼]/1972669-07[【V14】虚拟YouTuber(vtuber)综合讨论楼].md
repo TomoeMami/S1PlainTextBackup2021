@@ -3450,3 +3450,13 @@ holo斗虫楼锁了，要不开头那句就算是草履虫也要斗虫可是最�
 
 这个不就reality的祖传舞台改的吗<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">hachi的个人live跟这个也差不多啊
 
+
+
+*****
+
+####  OldGlory  
+##### 9291#       发表于 2021-12-11 15:31
+
+日一v的sololive
+[https://www.youtube.com/watch?v=NxsqHhzs2S0](https://www.youtube.com/watch?v=NxsqHhzs2S0)
+
