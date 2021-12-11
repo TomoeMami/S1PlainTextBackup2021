@@ -3603,3 +3603,26 @@ Siu新衣服好涩<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 看到天开司和歌衣突然想起来，今年V红白呢，往年这个时候都宣布开催了吧
 
+
+
+*****
+
+####  nagitoY  
+##### 9305#       发表于 2021-12-11 23:12
+
+说起来游戏部最初四人组有转生吗？四位我都挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">可可亚好像一直有活动，不过她重心在唱歌上也没什么影响
+
+*****
+
+####  格林卡罗尔  
+##### 9306#       发表于 2021-12-11 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53899995&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-11 23:12</a>
+
+说起来游戏部最初四人组有转生吗？四位我都挺喜欢的可可亚好像一直有活动，不过她重心在唱歌上也没 ...</blockquote>
+[https://twitter.com/Yuzuriha_honami](https://twitter.com/Yuzuriha_honami)　夢咲楓
+[https://twitter.com/Kuyuri_Official](https://twitter.com/Kuyuri_Official)　桜樹みりあ
+[https://twitter.com/Yuugasakiumi](https://twitter.com/Yuugasakiumi)　風見涼
+
+夢咲楓还上了年末的tubeout，至于晴翔至今未转生
+
