@@ -3503,3 +3503,17 @@ Siu新衣服好涩<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 差不多YTFF要开播了
 
+
+
+*****
+
+####  灵思之风jacke  
+##### 9296#       发表于 2021-12-11 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887788&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-10 23:27</a>
+
+倒是虽说现在万棒不值钱了，倒是有种变成隐性门槛的感觉。
+
+我现在能看到一些中层的v奋斗了搞出个大活让同 ...</blockquote>
+你这说法让人想吐槽啊……能有万级同接那是顶层V了吧，所谓的“中层V”能有个千人同接已经很不错了吧，现在的V可已经有几万人了啊
+

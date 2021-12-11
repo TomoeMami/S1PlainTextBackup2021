@@ -4113,3 +4113,14 @@ omicron 又不是终点，就算这一波混过去了，还会继续变异呢
 
 omicron:给我翻译翻译什么叫tmd的mild
 
+
+
+*****
+
+####  charse2r  
+##### 1839#       发表于 2021-12-11 19:21
+
+笑死,辉瑞老总开始吹风4针了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+以后不用交别的税了,就收疫苗税就行了.
+
