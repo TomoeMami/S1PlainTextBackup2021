@@ -3528,3 +3528,29 @@ Siu新衣服好涩<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 【访谈】2021年vsinger代表——HACHI音乐上的基石『作为参考的，是玉置浩二以及Lia』
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9298#       发表于 2021-12-11 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53895005&amp;ptid=1972669" target="_blank">灵思之风jacke 发表于 2021-12-11 19:10</a>
+
+你这说法让人想吐槽啊……能有万级同接那是顶层V了吧，所谓的“中层V”能有个千人同接已经很不错了吧，现 ...</blockquote>
+不阿……他们这个算超级稀有的纪念回之类的才能万棒的，平时就是小几千人，我觉得很中层了……
+
+有时候还会掉到三位数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵思之风jacke  
+##### 9299#       发表于 2021-12-11 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53895338&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-11 19:45</a>
+
+不阿……他们这个算超级稀有的纪念回之类的才能万棒的，平时就是小几千人，我觉得很中层了……
+
+有时候还 ...</blockquote>
+几百的同接倒是可以算中层V的普遍情况了
+
