@@ -3516,3 +3516,12 @@ AB6B39A2-3F84-420D-B4CB-865CB37EB50C.jpeg
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  kata魂  
+##### 1826#       发表于 2021-12-11 10:20
+
+今天又有live了吗……感觉都看麻了……
+
