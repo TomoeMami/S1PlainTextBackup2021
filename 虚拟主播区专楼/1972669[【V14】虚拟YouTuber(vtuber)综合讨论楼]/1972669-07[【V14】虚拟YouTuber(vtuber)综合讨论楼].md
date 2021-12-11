@@ -3626,3 +3626,35 @@ Siu新衣服好涩<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 夢咲楓还上了年末的tubeout，至于晴翔至今未转生
 
+
+
+*****
+
+####  nagitoY  
+##### 9307#       发表于 2021-12-11 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53900129&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2021-12-11 23:19</a>
+
+https://twitter.com/Yuzuriha_honami　夢咲楓
+
+https://twitter.com/Kuyuri_Official　桜樹みりあ
+
+https: ...</blockquote>
+三位女生都转世了挺好的。部长声音完全没变，凉总算是转世成了女生，米莉亚当初就感觉她是配音能力最强的，转世后的人设变化还挺大，没听出来是她配的。
+
+晴翔没转世我很不理解，当初游戏部四人里好像只有他不是代打吧？大乱斗和马车都挺强的
+
+*****
+
+####  nagitoY  
+##### 9308#       发表于 2021-12-11 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53900129&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2021-12-11 23:19</a>
+
+https://twitter.com/Yuzuriha_honami　夢咲楓
+
+https://twitter.com/Kuyuri_Official　桜樹みりあ
+
+https: ...</blockquote>
+这三位是分别出道，不属于一个公司或者组合吗？
+

@@ -156,3 +156,14 @@ lor设定不能全嫁接到其他相关作品上
 相比之下，离谱之 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等阿卡丽出卡牌了就把你们都杀了
 
+
+
+*****
+
+####  franly  
+##### 3014#       发表于 2021-12-11 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">补完了，真的很好看，什么时候出第二季，听说第一季就做了六年，我（。
+
+动画片就是要这样的技术力，用无可比拟的想象力讲述真人剧达不到的画面才是最棒的啊
+
