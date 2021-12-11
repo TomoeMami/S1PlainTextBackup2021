@@ -11983,3 +11983,19 @@ syl.关于米线的提高，我觉得主播的引导才是最重要的，而非�
 
 文静生子已经有好几个圈外好友给我转发了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 4370#       发表于 2021-12-11 22:26
+
+捏麻麻的，什么靠声音吓人的游戏
+
+*****
+
+####  伞沢直美  
+##### 4371#       发表于 2021-12-11 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">捂死的
+
