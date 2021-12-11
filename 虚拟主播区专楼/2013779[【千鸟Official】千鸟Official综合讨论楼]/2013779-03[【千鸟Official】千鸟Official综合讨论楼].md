@@ -11871,3 +11871,18 @@ nmmdndwd<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" re
 
 加速加速<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到不能玩阑尾梗
 
+
+
+*****
+
+####  我有一个朋友  
+##### 4358#       发表于 2021-12-11 15:44
+
+ 本帖最后由 我有一个朋友 于 2021-12-11 15:59 编辑 
+
+越逆天越能被认知，也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl.关于米线的提高，我觉得主播的引导才是最重要的，而非粉丝群体的自肃。对于鸟P这种认知厨众多的群体，倘若主播有意限制“低米线”梗和二创的被届到的频率，甚至不再提及此类内容，那么很大一部分粉丝会为了被认知而选择去做“高雅二创”……
+这个米线提高的过程中，粉丝群体的自肃只是一个助推罢了。而目前看来，这种逆天的活反而受很多鸟P欢迎，并且也算是届到了主播，所以是“越逆天越能被认知”。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
