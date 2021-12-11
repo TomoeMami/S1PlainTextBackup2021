@@ -566,3 +566,19 @@ Angel‘s Thanatos？二代音乐里比这个片那几秒带劲的也就这一�
 现在这个网络环境，游戏还没出呢，就一个概念预告的饼，网友就开始“要乳了要乳了”。很难不觉得是有些人是 ...</blockquote>
 狗改不了吃屎，你还真指望外国人做游戏有良心啊
 
+
+
+*****
+
+####  ChrisSnake  
+##### 64#       发表于 2021-12-11 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53882182&amp;ptid=2041706" target="_blank">真实之影 发表于 2021-12-10 15:19</a>
+
+山岗晃音乐不就这味儿么，寂静岭2后面的op也是摇滚风格的
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+和音乐本身无关吧 上岗晃我前两周才听了个遍 还是很有特色的
+
+主要是很多媒体都写的恐怖游戏 但看着并不是
+
