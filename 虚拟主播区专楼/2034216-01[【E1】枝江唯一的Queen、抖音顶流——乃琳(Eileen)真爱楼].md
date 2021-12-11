@@ -4147,3 +4147,90 @@ bgm：スカイハイ   ^_^
 
 晚安~做个好梦~ [爱心]</blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 320#         楼主| 发表于 2021-12-11 23:59
+
+《Sweet Counter(甜蜜筹码)》——乃琳Queen
+
+又在想念些什么 你惺忪眼神 我魂不守舍
+
+又在期待些什么 无心的问候 隐藏暗示么
+
+i wanna know
+
+oh na nana nana nana na
+
+甜蜜是 你说的话
+
+Don't pretend if it's now
+
+我不想做一个傻瓜
+
+oh na nana nana nana na
+
+天都亮了 梦该醒了
+
+baby
+
+倒 数 计 时
+
+一 不要走心
+
+二不在意
+
+三在坠入前先离去
+
+That's all we sweet counter
+
+倒计时声 tiktok tiktok
+
+时间倒流 回忆 归于 零（琳）
+
+That's all we sweet counter
+
+开始到结局 早计算好的陷阱 tik tok tik tok
+
+又在想念些什么
+
+你神秘的眼神 让我不能安分tell me why
+
+又在期待些什么
+
+无形的问候 say hey~~~~~oh
+
+oh na nana nana nana na
+
+委屈时你说的话
+
+Don't pretend if it's now
+
+我不想做一个傻瓜
+
+oh na nana nana nana na
+
+天都亮了梦该醒了 baby
+
+倒 数 计 时
+
+一 不要走心
+
+二不在意
+
+三再坠入前先离去
+
+That's all we sweet counter
+
+倒计时声 tiktok tiktok
+
+时间倒流 回忆 归于 零（琳）
+
+That's all we sweet counter
+
+开始到结局 早计算好的陷阱 tik tok tik tok
+
+syl粗听版，最终歌词请以官方为准
+

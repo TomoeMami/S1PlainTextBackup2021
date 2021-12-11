@@ -167,3 +167,17 @@ lor设定不能全嫁接到其他相关作品上
 
 动画片就是要这样的技术力，用无可比拟的想象力讲述真人剧达不到的画面才是最棒的啊
 
+
+
+*****
+
+####  Cybellybanana  
+##### 3015#       发表于 2021-12-11 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53900407&amp;ptid=2002246" target="_blank">franly 发表于 2021-12-11 23:35</a>
+
+补完了，真的很好看，什么时候出第二季，听说第一季就做了六年，我（。
+
+动画片就是要这样的技术力， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">知道鬼马万咒粉丝的恐惧在哪了吧
+
