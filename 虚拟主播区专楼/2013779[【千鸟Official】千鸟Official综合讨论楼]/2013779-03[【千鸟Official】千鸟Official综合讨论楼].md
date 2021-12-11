@@ -11770,3 +11770,19 @@ nmmdndwd<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" re
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  伞沢直美  
+##### 4347#       发表于 2021-12-11 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神经病，学什么不好学泥泥自肃
+
+*****
+
+####  lunaticfear  
+##### 4348#       发表于 2021-12-11 09:40
+
+真的是吃的太饱
+
