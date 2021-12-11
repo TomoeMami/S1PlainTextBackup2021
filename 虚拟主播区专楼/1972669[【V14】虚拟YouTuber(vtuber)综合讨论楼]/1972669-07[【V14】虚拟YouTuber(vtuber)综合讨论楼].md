@@ -3658,3 +3658,34 @@ https://twitter.com/Kuyuri_Official　桜樹みりあ
 https: ...</blockquote>
 这三位是分别出道，不属于一个公司或者组合吗？
 
+
+
+*****
+
+####  Rebellionx5  
+##### 9309#       发表于 2021-12-12 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53900473&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-11 23:38</a>
+
+这三位是分别出道，不属于一个公司或者组合吗？
+
+编辑，是四季侦探团的。但是她们三个的推特好像没特别注明 ...</blockquote>
+四季侦探团是三个人还在星巡学园时的组合名了
+
+2020年6月起三人陆续退出星巡学园，米莉亚还短暂引退一段时间
+
+[https://space.bilibili.com/533193036](https://space.bilibili.com/533193036)
+[https://space.bilibili.com/533193037](https://space.bilibili.com/533193037) 入驻b时的遗迹号，签名还是能看到星巡学园的
+
+*****
+
+####  nagitoY  
+##### 9310#       发表于 2021-12-12 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53901335&amp;ptid=1972669" target="_blank">Rebellionx5 发表于 2021-12-12 00:43</a>
+
+四季侦探团是三个人还在星巡学园时的组合名了
+
+2020年6月起三人陆续退出星巡学园，米莉亚还短暂引退一段时 ...</blockquote>
+退出后还能用皮套甚至3d化，说明应该是中身自己掏钱做的皮套？这样看来星巡学院是个非常自由的箱？米莉亚好像是还在做视频，凉和部长都是直播居多了。另外部长好像再也没玩过宝可梦。
+
