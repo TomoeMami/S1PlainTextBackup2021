@@ -914,3 +914,12 @@ ngs这个月会有一次大更新 等级上限到35 新主线和新副本 到时
 
 联动是明天么？
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 6110#       发表于 2021-12-11 22:03
+
+翻录播发现有好多白人社区有在存档mea直播，这是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单纯因为删的多吗
+

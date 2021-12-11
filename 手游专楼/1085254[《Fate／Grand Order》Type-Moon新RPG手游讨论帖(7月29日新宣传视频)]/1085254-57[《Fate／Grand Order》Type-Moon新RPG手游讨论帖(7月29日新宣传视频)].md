@@ -7797,3 +7797,14 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 每年圣诞不都是这样吗。</blockquote>
 他的意思应该是阴间本开放时间比之前的都短了，玩家刷不了多少。
 
+
+
+*****
+
+####  dante888  
+##### 84709#       发表于 2021-12-11 22:10
+
+好友里有满破礼装的能不能在狂阶挂给摩根呢，谢谢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这无限池就是给摩根定做的吧
+
