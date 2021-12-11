@@ -296,3 +296,34 @@ Boing boing Ame <img src="https://static.saraba1st.com/image/smiley/face2017/066
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">长发ame！
 
+
+
+*****
+
+####  PureIllusion  
+##### 1532#       发表于 2021-12-11 11:06
+
+长发AYAYA
+
+*****
+
+####  nagitoY  
+##### 1533#       发表于 2021-12-11 11:14
+
+<img src="https://img.saraba1st.com/forum/202112/11/111254pfg6g1zu0f8szqtm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211211111147.png</strong> (37.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-11 11:12 上传
+
+这是何方神圣，gigguk和kizuna ai在油管也才300w订阅啊。彩虹en在油管混得好的才20w。
+
+*****
+
+####  PureIllusion  
+##### 1534#       发表于 2021-12-11 11:16
+
+Mori和Ame新衣都是换了rigger，我感觉到一点希望了
+
