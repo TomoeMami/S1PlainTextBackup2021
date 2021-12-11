@@ -2097,3 +2097,12 @@ rushia：爱！
 绫总：七十寸大电视！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">70寸的电视 是不是可以推测出绫总家的客厅非常大
 
+
+
+*****
+
+####  stedckk  
+##### 13705#       发表于 2021-12-11 11:52
+
+想要大电视是真的，之前聊天的时候也说想买台大电视，虽然绫总经常强调自己一个人住，但是一个人住为什么要买大电视捏
+
