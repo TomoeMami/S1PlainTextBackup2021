@@ -326,3 +326,23 @@ lor设定不能全嫁接到其他相关作品上
 
 强，科研能力其他几个主要塑造的科学家各自有方向的突破，就她主要靠捡，叫技工差不多。战绩主要靠欺负杂兵，有名有姓的角色只能偷袭，主要战绩是坑队友或者利用前队友的同情心偷袭惨，大环境下城谁不惨，细分到个体疯妹的惨她自己至少负50%的责任，更别说她把周围人一个接一个有意无意往火坑推这么多年居然靠着三爹庇护没被直接干掉真是命太好(然后她就把这三爹也坑死了)<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Siran_China  
+##### 3026#       发表于 2021-12-12 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53907775&amp;ptid=2002246" target="_blank">消防 发表于 2021-12-12 17:18</a>
+
+美强惨
+
+美先放一边
+
+强，科研能力其他几个主要塑造的科学家各自有方向的突破，就她主要靠捡，叫技 ...</blockquote>
+金克丝，其实她真的是技工，或者说工程师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海克斯科技基础理论只有杰斯这样经受过正规学院教育的科学家才可能研发出来，杰斯本人既是科学家又是工程师，所以后面能造出锤子。金克丝呢？她拿到杰斯的研究笔记和海克斯宝石成品，没几天就逆向工程了一个鱼骨头导弹；这还没提她那一堆自研装备。我觉得她也算得上工程学天才了，够强吧。
+
+至于爆爆变金克丝后的经历，我不是疯子我不理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有锤锤，我一直觉得塔利斯议员除了太年轻没有主见之外几乎没做错任何事情，我们怎么可以因为自己都没有的品德骂他呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
