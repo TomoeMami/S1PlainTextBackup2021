@@ -3726,3 +3726,15 @@ b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  adamtheo  
+##### 9314#       发表于 2021-12-12 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53898400&amp;ptid=1972669" target="_blank">free 发表于 2021-12-11 21:58</a>
+
+看到天开司和歌衣突然想起来，今年V红白呢，往年这个时候都宣布开催了吧</blockquote>
+今年不办了，倒是港台马来西亚搞了个293人的华语Vtuber红白
+
