@@ -428,3 +428,12 @@ amesame 堡垒之夜<img src="https://static.saraba1st.com/image/smiley/face2017
 
 ame：最近你们比较少看到bottom teeth是因为在直播时自己不那么经常笑了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimmy1996  
+##### 1544#       发表于 2021-12-13 05:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">BEEG KIARA
+
