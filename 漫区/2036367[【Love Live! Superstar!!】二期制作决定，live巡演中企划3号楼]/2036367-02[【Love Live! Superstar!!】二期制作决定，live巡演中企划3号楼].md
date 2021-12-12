@@ -4303,3 +4303,52 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 翻了下推，这是pay第一次发鲤p合影，而上一次鲤鱼发鲤p合影是8月29日了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1881#       发表于 2021-12-12 20:06
+
+宝宝终于和姐姐合照了
+
+*****
+
+####  player3960  
+##### 1882#       发表于 2021-12-12 20:08
+
+巡演期间的c52算是齐了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kata魂  
+##### 1883#       发表于 2021-12-12 20:18
+
+鲤p的合照终于来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+感觉最近大家台上互动开始放得开了~
+
+*****
+
+####  ads147147  
+##### 1884#       发表于 2021-12-12 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53908082&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-12-12 17:48</a>
+虽然不想再车动画了但还是忍不住再说两句
+
+又看了一次第八集，其实我觉得剧情要素的构成真的不是问题。之前 ...</blockquote>
+花田这个78集越补丁越弱智。。从一开始就不要让恋反对不就完事了，心死到死灰复燃又不是没写过（水三年级）。这样扯越扯越蛋疼。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ads147147  
+##### 1885#       发表于 2021-12-12 20:22
+
+话说这次巡演一次都没取消了，真是要跑满20场？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
