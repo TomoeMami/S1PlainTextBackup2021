@@ -12567,3 +12567,64 @@ co德经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 在，咋了？
 
+
+
+*****
+
+####  伞沢直美  
+##### 4438#       发表于 2021-12-12 21:40
+
+咋了？噶了！
+
+*****
+
+####  灰色的狐狸  
+##### 4439#       发表于 2021-12-12 21:46
+
+房子？
+
+*****
+
+####  伞沢直美  
+##### 4440#       发表于 2021-12-12 21:46
+
+富婆，饿饿，饭饭
+
+
+
+*****
+
+####  gawain039  
+##### 4441#       发表于 2021-12-12 21:51
+
+真好，你有爹妈
+co宝的攻击性好强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4442#       发表于 2021-12-12 21:55
+
+小男友送的耳机是吧，两眼一黑
+
+*****
+
+####  T型钉宫病毒  
+##### 4443#       发表于 2021-12-12 21:57
+
+猫耳耳机只有男生会送吧，nmmd<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4444#       发表于 2021-12-12 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首播经历多说点
+
+*****
+
+####  小憨1  
+##### 4445#       发表于 2021-12-12 21:59
+
+北海巨妖猫耳版好看，但真的不好用……
+
