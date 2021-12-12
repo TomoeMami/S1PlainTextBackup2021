@@ -4376,3 +4376,39 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 看看FES是啥样的，提前为春晚做一下心理准备
 
+
+
+*****
+
+####  HGCG2  
+##### 1888#       发表于 2021-12-12 23:17
+
+求解释梗 ​​​​
+
+<img src="https://img.saraba1st.com/forum/202112/12/231701nu5jwewz5kfcnrue.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-12 23:17 上传
+
+*****
+
+####  lj205  
+##### 1889#       发表于 2021-12-12 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53911428&amp;ptid=2036367" target="_blank">HGCG2 发表于 2021-12-12 23:17</a>
+求解释梗 ​​​​</blockquote>
+微博下面评论贴了切片链接给你
+
+*****
+
+####  player3960  
+##### 1890#       发表于 2021-12-12 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53911428&amp;ptid=2036367" target="_blank">HGCG2 发表于 2021-12-12 23:17:03</a>
+求解释梗 ​​​​</blockquote>有点复杂，要结合今天live的MC1和MC2来看，b站应该有切片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
