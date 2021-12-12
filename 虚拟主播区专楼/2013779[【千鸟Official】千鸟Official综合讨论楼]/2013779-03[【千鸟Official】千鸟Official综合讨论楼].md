@@ -12080,3 +12080,33 @@ Co宝已经开始搞气氛了<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">欧阳晚会以后我已经没什么心理期待了
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4381#       发表于 2021-12-12 11:48
+
+11月：<blockquote>我（哽咽）一直在（发抖哽咽）反复的感染（哽咽）就是感染（哽咽）我一直在（哽咽）反复的低烧和（咽口水）。。。我整个人都是浮肿（颤音）的我今天早上起来的时候。。。我按了一下我自己的那个腿（颤音哽咽），它有一个坑～你们知道吗🤕，就是因为太肿～了😢🤧，（呼气吸气）我不知道我身体这么差，我也想早点爬起来给大家直播，但是的确 就是。。。而且我今天刷牙的时候，我的鼻子也在流血我的牙也在流血，我其实自己也蛮害怕（害怕得发抖的声音）的，（吸气），然后所以就对不起大家（喷麦），我不知道为什么我的身体这么差（怎么会是呢🤔），如果我好得快一点🤧啊😫</blockquote>12月：<blockquote>空着肚子等一个晚上吃好的…</blockquote>
+
+*****
+
+####  伞沢直美  
+##### 4382#       发表于 2021-12-12 11:57
+
+<img src="https://img.saraba1st.com/forum/202112/12/115425ybashwsnv8d6p0o2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6AAD0B7E-9AF7-4D7A-B849-35E41A2210CF.jpeg</strong> (210.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-12 11:54 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">第1111个👍的罕金量
+
+syl
+
+欧阳那不就是个人数加号内容减号的冰火🤣
+
+纯粹是调门起太高了，一对比反倒整出喜剧效果了
+

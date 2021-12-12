@@ -3202,3 +3202,12 @@ among us VR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 
 这玩意也能VR？
 
+
+
+*****
+
+####  katern  
+##### 210#       发表于 2021-12-12 12:01
+
+想问一下用quest2，如果戴眼镜的话会把镜片刮花吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

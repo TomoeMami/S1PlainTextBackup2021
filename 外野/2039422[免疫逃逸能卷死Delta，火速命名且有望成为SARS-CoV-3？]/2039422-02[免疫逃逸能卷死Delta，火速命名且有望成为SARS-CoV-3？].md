@@ -4197,3 +4197,20 @@ omicron:给我翻译翻译什么叫tmd的mild</blockquote>
 
 南非官方说一切尽在掌握之中，不过ICU的人表示死得有点多
 
+
+
+*****
+
+####  smy20011  
+##### 1847#       发表于 2021-12-12 12:00
+
+<img src="https://img.saraba1st.com/forum/202112/12/120012rzthg8wimwcssfa0.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-11 20.00.01.png</strong> (47.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-12 12:00 上传
+
+南非的数据
+
