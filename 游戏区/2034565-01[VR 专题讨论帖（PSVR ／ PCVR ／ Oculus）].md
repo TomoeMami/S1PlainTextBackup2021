@@ -3211,3 +3211,14 @@ among us VR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 
 想问一下用quest2，如果戴眼镜的话会把镜片刮花吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  瑕在瑾中  
+##### 211#       发表于 2021-12-12 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53904625&amp;ptid=2034565" target="_blank">katern 发表于 2021-12-12 12:01</a>
+想问一下用quest2，如果戴眼镜的话会把镜片刮花吗</blockquote>
+戴眼镜玩quest2建议淘宝或者pdd一百块左右买副磁吸镜片，舒服很多。
+

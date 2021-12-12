@@ -3750,3 +3750,12 @@ b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？
 今年不办了，倒是港台马来西亚搞了个293人的华语Vtuber红白</blockquote>
 惊了，你从哪里听说今年不办了，翻了翻天开司的推没提这事啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 9316#       发表于 2021-12-12 12:23
+
+夏色祭买了社音声<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">最近组合复活事是不是有那么一点多
+

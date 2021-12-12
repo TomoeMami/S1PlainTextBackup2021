@@ -4225,3 +4225,13 @@ omicron:给我翻译翻译什么叫tmd的mild</blockquote>
 
 — from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  卢比扬卡大饭店  
+##### 1849#       发表于 2021-12-12 12:29
+
+进入台湾了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+Omicron進入台灣，指揮中心昨天公布三名境外Omicron病例，分別來自史瓦帝尼、英國及美國，且都曾接種過兩劑疫苗，屬突破性感染。專家指出，世衛組織（ＷＨＯ）警示，Omicron每天以「五個地方」速度擴增，台灣雖開始施打第三劑，必要時可縮短間隔從五個月改為三個月。林口長庚醫院副院長邱政洵指出，Omicron已在英國造成社區感染，美國確診個案也增加，現在無法只針對某些地方，必須預設「每個地方都有Omicron」。英國近日發布，分析數百例施打兩劑ＡＺ者的血清，對於Omicron的免疫生成性研究，發現施打兩劑ＡＺ產生的中和抗體，對Omicron幾乎無效。
+
