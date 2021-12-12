@@ -4074,3 +4074,19 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 虽然他们在那胡搞也不是第一次了 但是看一次能恶心一整 ...</blockquote>
 你这心态还需要加强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中野四葉  
+##### 1861#       发表于 2021-12-12 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为是推特下面，翻了翻最近的推好像没翻到，原来是熊猫那里……这不是很正常吗
+
+*****
+
+####  优妮可  
+##### 1862#       发表于 2021-12-12 13:21
+
+你这还好，之前q群还有传含zz的图，发的人不知道当好玩到处发了。被别人当枪使那个更生气
+

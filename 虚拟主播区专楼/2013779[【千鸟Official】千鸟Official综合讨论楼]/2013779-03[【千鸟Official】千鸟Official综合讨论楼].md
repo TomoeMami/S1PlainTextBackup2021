@@ -12165,3 +12165,60 @@ syl 不早就说了学传媒的吗，我都听了不下三次了，什么艾瑞�
 
 杂谈还是太考验经验的积累了……毕竟文静也不是真的38岁老阿姨。
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4390#       发表于 2021-12-12 13:07
+
+ 本帖最后由 莫洛骑士 于 2021-12-12 01:13 编辑 
+
+脱坑回踩了，甜豆浆真不能处
+
+syl 思思的生姜给我听麻了，这又是个锤子咸豆浆<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4391#       发表于 2021-12-12 13:09
+
+什么 咸豆浆能喝？
+
+*****
+
+####  gawain039  
+##### 4392#       发表于 2021-12-12 13:09
+
+喝豆浆不喝甜豆浆的素质品味修养都很低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 4393#       发表于 2021-12-12 13:10
+
+老阿姨吓坏了
+
+*****
+
+####  希克苏鲁伯  
+##### 4394#       发表于 2021-12-12 13:12
+
+思思喝的咸豆浆居然放生姜，这下有黑点了
+
+*****
+
+####  灰色的狐狸  
+##### 4395#       发表于 2021-12-12 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">被思思吓坏了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  T型钉宫病毒  
+##### 4396#       发表于 2021-12-12 13:16
+
+活这么大才知道豆浆也有咸的，甜豆腐脑也是大学才见到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

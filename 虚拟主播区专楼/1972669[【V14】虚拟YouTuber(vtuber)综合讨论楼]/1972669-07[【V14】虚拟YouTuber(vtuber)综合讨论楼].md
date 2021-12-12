@@ -3759,3 +3759,26 @@ b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？
 
 夏色祭买了社音声<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">最近组合复活事是不是有那么一点多
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 9317#       发表于 2021-12-12 13:15
+
+<img src="https://img.saraba1st.com/forum/202112/12/131329drvcofff9ock7fcx.jpg" referrerpolicy="no-referrer">
+
+<strong>20211212_131247.jpg</strong> (125.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-12 13:13 上传
+
+<img src="https://img.saraba1st.com/forum/202112/12/131333yx55iqs5e657rrdm.jpg" referrerpolicy="no-referrer">
+
+<strong>20211212_131240.jpg</strong> (230.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-12 13:13 上传
+
