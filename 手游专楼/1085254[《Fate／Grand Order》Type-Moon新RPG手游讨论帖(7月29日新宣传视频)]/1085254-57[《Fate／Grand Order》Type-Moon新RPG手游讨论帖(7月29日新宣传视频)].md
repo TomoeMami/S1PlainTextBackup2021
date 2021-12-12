@@ -7835,3 +7835,17 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我钱20亿满了。狗粮也爆仓了。无限池四舍五入等于白刷了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84713#       发表于 2021-12-12 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53898652&amp;ptid=1085254" target="_blank">dante888 发表于 2021-12-11 22:10</a>
+
+好友里有满破礼装的能不能在狂阶挂给摩根呢，谢谢了
+
+这无限池就是给摩根定做的吧 ...</blockquote>
+一般给术呆吧，没见过给打手加满破的
+

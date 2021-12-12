@@ -216,3 +216,31 @@ lor设定不能全嫁接到其他相关作品上
 
 已经影响到下一季看不看的程度了
 
+
+
+*****
+
+####  Siran_China  
+##### 3018#       发表于 2021-12-12 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53905778&amp;ptid=2002246" target="_blank">消防 发表于 2021-12-12 13:59</a>
+
+看完了，对LOL理解为0，还是看你们讨论才知道德玛西亚和祖安人是LOL的梗
+
+音乐美术群像都是顶级，除了妹妹之 ...</blockquote>
+这是个英雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且英雄联盟最早拥有个人MV的英雄应该就是她和阿木木，她的MV《Get Jinxed》就是双城的制作方Fortiche做的，当中好多设计都用到了双城之战里。
+
+所以确实是人气角色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Siran_China  
+##### 3019#       发表于 2021-12-12 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53900407&amp;ptid=2002246" target="_blank">franly 发表于 2021-12-11 23:35</a>
+
+补完了，真的很好看，什么时候出第二季，听说第一季就做了六年，我（。
+
+动画片就是要这样的技术力， ...</blockquote>
+联盟官推：好消息是不用再等六年，坏消息是2022年出不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
