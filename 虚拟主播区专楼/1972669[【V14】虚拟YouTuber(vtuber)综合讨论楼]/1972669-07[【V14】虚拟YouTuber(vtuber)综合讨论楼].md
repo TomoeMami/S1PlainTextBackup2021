@@ -3795,3 +3795,15 @@ b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？
 一个看rtrt的云玩家就这点阿宅知识 ...</blockquote>
 山田算吗
 
+
+
+*****
+
+####  adamtheo  
+##### 9319#       发表于 2021-12-12 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53904792&amp;ptid=1972669" target="_blank">free 发表于 2021-12-12 12:17</a>
+
+惊了，你从哪里听说今年不办了，翻了翻天开司的推没提这事啊</blockquote>
+去年刚办完歌衣就说了吧，你去推特搜下v红白还能看到最近有人在感叹的
+
