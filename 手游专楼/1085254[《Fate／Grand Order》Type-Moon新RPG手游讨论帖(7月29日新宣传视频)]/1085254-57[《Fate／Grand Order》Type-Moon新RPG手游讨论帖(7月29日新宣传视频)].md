@@ -7849,3 +7849,21 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 这无限池就是给摩根定做的吧 ...</blockquote>
 一般给术呆吧，没见过给打手加满破的
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84714#       发表于 2021-12-12 14:46
+
+赌下期狐狸会不会有新卡呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+不要又是复刻
+
+*****
+
+####  里村紅葉  
+##### 84715#       发表于 2021-12-12 14:47
+
+还无限池呢，商店都搬不动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
