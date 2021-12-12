@@ -3782,3 +3782,16 @@ b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？
 
 2021-12-12 13:13 上传
 
+
+
+*****
+
+####  TiHaru  
+##### 9318#       发表于 2021-12-12 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53887606&amp;ptid=1972669" target="_blank">shpdw 发表于 2021-12-10 23:07</a>
+那确实不配啊，就现在来说其他企业势有出现任何一个有天皇宅度的女人？
+
+一个看rtrt的云玩家就这点阿宅知识 ...</blockquote>
+山田算吗
+

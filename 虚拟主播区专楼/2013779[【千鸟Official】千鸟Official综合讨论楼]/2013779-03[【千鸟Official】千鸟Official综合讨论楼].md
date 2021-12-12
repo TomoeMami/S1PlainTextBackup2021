@@ -12222,3 +12222,80 @@ syl 思思的生姜给我听麻了，这又是个锤子咸豆浆<img src="https:
 
 活这么大才知道豆浆也有咸的，甜豆腐脑也是大学才见到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4397#       发表于 2021-12-12 13:25
+
+什么豆浆馄饨<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  rgauss  
+##### 4398#       发表于 2021-12-12 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">什么豆浆馄饨
+
+*****
+
+####  莫洛骑士  
+##### 4399#       发表于 2021-12-12 13:28
+
+完蛋，Co宝生日不能说话了，输麻了啊
+<img src="https://p.sda1.dev/3/5cbfa60c815a291924950b33cdc1ae2a/IMG_CMP_211526925.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4400#       发表于 2021-12-12 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我超我不好说
+
+*****
+
+####  小憨1  
+##### 4401#       发表于 2021-12-12 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53905469&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-12 13:28</a>
+完蛋，Co宝生日不能说话了，输麻了啊</blockquote>
+鸟p不是人均两个号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我有一个朋友  
+##### 4402#       发表于 2021-12-12 13:35
+
+莫洛骑士是要以这个id被认知的啊，要了亲命了属于是……
+
+*****
+
+####  rgauss  
+##### 4403#       发表于 2021-12-12 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事 我大号也寄了
+
+*****
+
+####  小憨1  
+##### 4404#       发表于 2021-12-12 13:36
+
+开个二号机不就完事了
+
+*****
+
+####  T型钉宫病毒  
+##### 4405#       发表于 2021-12-12 13:36
+
+ 本帖最后由 T型钉宫病毒 于 2021-12-12 13:39 编辑 
+
+我也发了条一模一样的但没被口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+2021-11-3   94.6%，81.9%
+2021-12-12 95.7%，84.1%
+
