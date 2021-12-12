@@ -635,3 +635,12 @@ Angel‘s Thanatos？二代音乐里比这个片那几秒带劲的也就这一�
 
 前面的尴尬战斗和动感音乐我就当他是往b级片靠的cult味好了。hk背景还有主角那一身自我感觉良好的廉价黑衣造型，我真的忍不住有一种黄shi既视感，看看这玩意最后日本人能整成什么样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nagitoY  
+##### 69#       发表于 2021-12-12 11:36
+
+寄生兽？
+

@@ -4234,3 +4234,37 @@ That's all we sweet counter
 
 syl粗听版，最终歌词请以官方为准
 
+
+
+*****
+
+####  sanlow666  
+##### 321#         楼主| 发表于 2021-12-12 11:31
+
+乃琳Queen:[【舞蹈】乃琳《红马》| 佳人执伞 曼舞江南~（直播剪辑）](https://t.bilibili.com/603191069685105891)
+
+（运营代发）
+
+素材来自12月11日A-SOUL一周年纪念直播
+歌曲：红马
+编舞参考：BV15B4y1M7qw
+表演：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202112/12/113105tc0ca5lz88e10ptj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-12 11:31 上传
+
+*****
+
+####  negimusume  
+##### 322#       发表于 2021-12-12 11:35
+
+甜蜜筹码真的太符合乃宝给人的印象了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
