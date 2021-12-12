@@ -12342,3 +12342,12 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">弹幕被举报我已经习惯了 sc被举报才真的要了我的命 人之初地狱
 
+
+
+*****
+
+####  伞沢直美  
+##### 4411#       发表于 2021-12-12 15:51
+
+打恐怖游戏也能恋爱脑是吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

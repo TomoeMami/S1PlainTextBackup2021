@@ -4126,3 +4126,21 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天看爱知未来如风忽然想到，这歌貌似一次也没唱过录音室版本，严重怀疑录歌的时候剧情还没定好
 
+
+
+*****
+
+####  Karin11974  
+##### 1867#       发表于 2021-12-12 15:57
+
+之前花田访谈好像是说先定剧情再写歌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 1868#       发表于 2021-12-12 15:59
+
+小天使<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
