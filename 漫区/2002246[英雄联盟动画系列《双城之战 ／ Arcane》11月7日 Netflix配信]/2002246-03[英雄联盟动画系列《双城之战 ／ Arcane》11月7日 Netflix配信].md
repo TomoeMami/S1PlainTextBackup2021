@@ -300,3 +300,29 @@ lor设定不能全嫁接到其他相关作品上
 
 所以双城之战在游戏改方面非常成功，不需要预先了解背景的故事规避了游戏改的劣势，而拿人气角色当主角则充份发挥了游戏改的优势，金克丝要不是游戏里的人气得被骂死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  飞升之后  
+##### 3024#       发表于 2021-12-12 17:17
+
+金克丝对于老LOL玩家的情怀分挺高的，毕竟当然刚出时候配生的炫酷MV代表着拳头的配套游戏的亚文化产出的开始。。很多人步入社会，玩游戏越来越少，但还关注LOL不就是因为拳头的游戏亚文化产出持续又丰富。
+
+*****
+
+####  消防  
+##### 3025#       发表于 2021-12-12 17:18
+
+ 本帖最后由 消防 于 2021-12-12 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53906042&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-12-12 14:28</a>
+
+这是个英雄拜致命节奏所赐已经是版本热门adc...额，远程射手英雄了而且英雄联盟最早拥有个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+美强惨
+
+美先放一边
+
+强，科研能力其他几个主要塑造的科学家各自有方向的突破，就她主要靠捡，叫技工差不多。战绩主要靠欺负杂兵，有名有姓的角色只能偷袭，主要战绩是坑队友或者利用前队友的同情心偷袭惨，大环境下城谁不惨，细分到个体疯妹的惨她自己至少负50%的责任，更别说她把周围人一个接一个有意无意往火坑推这么多年居然靠着三爹庇护没被直接干掉真是命太好(然后她就把这三爹也坑死了)<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+

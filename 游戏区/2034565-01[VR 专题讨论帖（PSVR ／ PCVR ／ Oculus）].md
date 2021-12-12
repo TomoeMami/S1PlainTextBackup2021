@@ -3222,3 +3222,14 @@ among us VR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 想问一下用quest2，如果戴眼镜的话会把镜片刮花吗</blockquote>
 戴眼镜玩quest2建议淘宝或者pdd一百块左右买副磁吸镜片，舒服很多。
 
+
+
+*****
+
+####  褪色的雪花  
+##### 212#       发表于 2021-12-12 17:18
+
+等能不用脸书账号了再买q2
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
