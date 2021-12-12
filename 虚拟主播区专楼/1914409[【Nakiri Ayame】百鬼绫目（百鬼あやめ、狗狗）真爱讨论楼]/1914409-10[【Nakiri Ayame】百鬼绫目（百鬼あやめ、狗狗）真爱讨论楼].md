@@ -2124,3 +2124,19 @@ rushia：爱！
 
 一个人住想要大电视也没啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13708#       发表于 2021-12-12 18:45
+
+检验收录练歌练舞成果的时间终于到了
+
+*****
+
+####  Fami水  
+##### 13709#       发表于 2021-12-12 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案只能是动手动脚 不会在大了
+

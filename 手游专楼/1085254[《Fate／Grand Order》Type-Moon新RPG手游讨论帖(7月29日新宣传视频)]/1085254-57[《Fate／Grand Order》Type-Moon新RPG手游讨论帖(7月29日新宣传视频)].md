@@ -7867,3 +7867,14 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 还无限池呢，商店都搬不动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 84716#       发表于 2021-12-12 18:45
+
+<blockquote>gpx234mqx 发表于 2021-12-12 14:44
+一般给术呆吧，没见过给打手加满破的</blockquote>
+现在3套助战哪需要那么讲究
+
