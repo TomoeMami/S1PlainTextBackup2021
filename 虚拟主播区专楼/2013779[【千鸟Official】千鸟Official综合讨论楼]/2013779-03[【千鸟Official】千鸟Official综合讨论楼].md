@@ -12445,3 +12445,41 @@ co宝来了
 
 我超蜡烛头
 
+
+
+*****
+
+####  伞沢直美  
+##### 4424#       发表于 2021-12-12 19:50
+
+<img src="https://img.saraba1st.com/forum/202112/12/194949u14rb0xrn50bhmyx.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20211212194923.png</strong> (14.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-12 19:49 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝直言下次给你省麻药
+
+*****
+
+####  灰色的狐狸  
+##### 4425#       发表于 2021-12-12 19:51
+
+一氧化碳中毒笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4426#       发表于 2021-12-12 19:56
+
+一氧化碳笑死
+
+*****
+
+####  gawain039  
+##### 4427#       发表于 2021-12-12 19:57
+
+co德经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

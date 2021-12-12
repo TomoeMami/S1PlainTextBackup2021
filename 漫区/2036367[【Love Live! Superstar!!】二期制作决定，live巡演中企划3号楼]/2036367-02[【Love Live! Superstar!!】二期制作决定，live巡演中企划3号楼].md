@@ -4277,3 +4277,29 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 跨年买错买成PIA的了………………有谁用过吗？…………………………………………………………………………
 
+
+
+*****
+
+####  player3960  
+##### 1878#       发表于 2021-12-12 19:52
+
+齐了
+啦，终于齐啦，鲤p合影来了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 1879#       发表于 2021-12-12 19:56
+
+鲤p合影时隔多久了<img src="https://p.sda1.dev/3/e308450c0d78948c5d670510d7edbafa/IMG_CMP_100912472.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 1880#       发表于 2021-12-12 20:03
+
+翻了下推，这是pay第一次发鲤p合影，而上一次鲤鱼发鲤p合影是8月29日了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
