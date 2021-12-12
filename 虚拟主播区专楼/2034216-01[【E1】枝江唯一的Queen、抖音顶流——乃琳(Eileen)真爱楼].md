@@ -4268,3 +4268,13 @@ syl粗听版，最终歌词请以官方为准
 
 甜蜜筹码真的太符合乃宝给人的印象了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  别叫我宅男  
+##### 323#       发表于 2021-12-12 15:17
+
+筹码？counter！乃宝五楼自信锁下刀妹，舞剑仙爆杀炒作🐶！
+真别说，我觉得头饰就很像
+

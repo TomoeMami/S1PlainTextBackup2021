@@ -4117,3 +4117,12 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 虽然他们在那胡搞也不是第一次了 但是看一次能恶心一整 ...</blockquote>
 要想上熊猫身心愉悦，一定要坚持不看中文本和不看评论区，这不是常识吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月艾莉  
+##### 1866#       发表于 2021-12-12 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天看爱知未来如风忽然想到，这歌貌似一次也没唱过录音室版本，严重怀疑录歌的时候剧情还没定好
+
