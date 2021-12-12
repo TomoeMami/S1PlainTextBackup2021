@@ -4214,3 +4214,14 @@ omicron:给我翻译翻译什么叫tmd的mild</blockquote>
 
 南非的数据
 
+
+
+*****
+
+####  super_uni  
+##### 1848#       发表于 2021-12-12 12:05
+
+那边是夏天，一点下来的趋势都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

@@ -3738,3 +3738,15 @@ b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？
 看到天开司和歌衣突然想起来，今年V红白呢，往年这个时候都宣布开催了吧</blockquote>
 今年不办了，倒是港台马来西亚搞了个293人的华语Vtuber红白
 
+
+
+*****
+
+####  free  
+##### 9315#       发表于 2021-12-12 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53904104&amp;ptid=1972669" target="_blank">adamtheo 发表于 2021-12-12 11:10</a>
+
+今年不办了，倒是港台马来西亚搞了个293人的华语Vtuber红白</blockquote>
+惊了，你从哪里听说今年不办了，翻了翻天开司的推没提这事啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

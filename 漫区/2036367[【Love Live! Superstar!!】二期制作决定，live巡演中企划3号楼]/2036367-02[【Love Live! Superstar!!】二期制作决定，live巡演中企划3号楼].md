@@ -3971,3 +3971,59 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 被恶心到了
 算了感觉没必要为这破玩意动气
 
+
+
+*****
+
+####  chenflyyy  
+##### 1851#       发表于 2021-12-12 12:04
+
+今天到鲤鱼了
+
+*****
+
+####  lj205  
+##### 1852#       发表于 2021-12-12 12:06
+
+鲤鱼居然这么早就出来
+
+*****
+
+####  A0171050  
+##### 1853#       发表于 2021-12-12 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53903082&amp;ptid=2036367" target="_blank">musicat 发表于 2021-12-12 08:53</a>
+【【转载】【聲優手札】絕對的女主角 伊達小百合-哔哩哔哩】 https://b23.tv/nXBNDr0
+
+虽然明白偶像企划就 ...</blockquote>
+这还需要包装吗，作为一个ller还是今年3月刚毕业的高中生，抱着也想变得闪耀的梦想，入选liella成为leader，这不本身就是再传奇不过的经历了吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 1854#       发表于 2021-12-12 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53904623&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-12 12:01</a>
+
+啧。
+
+4v真是一天不犯贱不舒服
+
+被恶心到了</blockquote>
+何必在意那些不是人类的东西呢？
+
+就让他们酸嘛，跳的越厉害，越让他们日本爹觉得烦
+
+*****
+
+####  优妮可  
+##### 1855#       发表于 2021-12-12 12:17
+
+<blockquote>D麦林 发表于 2021-12-12 12:01
+啧。
+
+4v真是一天不犯贱不舒服
+
+被恶心到了</blockquote>
+咋了，下面回复又有？
+
