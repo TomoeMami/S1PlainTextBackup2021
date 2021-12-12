@@ -3939,3 +3939,14 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 外国人说ます，行<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  musicat  
+##### 1848#       发表于 2021-12-12 08:53
+
+【【转载】【聲優手札】絕對的女主角 伊達小百合-哔哩哔哩】 https://b23.tv/nXBNDr0
+
+虽然明白偶像企划就是这样的梦想包装，但是每次都还是会被触动啊，混蛋!
+

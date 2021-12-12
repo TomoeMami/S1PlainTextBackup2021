@@ -363,3 +363,12 @@ Mori和Ame新衣都是换了rigger，我感觉到一点希望了
 
 Ame: 想了很久这次新衣该怎么搞（上次做的太好了 [agreed]） 上周联系reNPC（一个画师）画了yagoo 昨天晚上想到要做成visual novel 今天kiara开播时候才想到要玩剪刀石头布 紧急联系reNPC画了素材
 
+
+
+*****
+
+####  M1NG  
+##### 1538#       发表于 2021-12-12 08:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">鲨鲨果然还是低配的空降解禁，技术力太弱了
+
