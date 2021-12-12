@@ -4166,3 +4166,16 @@ omicron:给我翻译翻译什么叫tmd的mild</blockquote>
 死亡还是变少了啊。这个咋回事。入院量猛增，但死亡降低，都是吊在呼吸机上？ ...</blockquote>
 不全是，豪登的死亡数一样在蹭蹭地涨，另外可以查一查南非这段时间的超额死亡数，全部直线上升
 
+
+
+*****
+
+####  nvis  
+##### 1844#       发表于 2021-12-12 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53903325&amp;ptid=2039422" target="_blank">coldhot3 发表于 2021-12-12 09:34</a>
+死亡还是变少了啊。这个咋回事。入院量猛增，但死亡降低，都是吊在呼吸机上？ ...</blockquote>
+两年了，新冠的重症和死亡数会滞后于感染这不是常识么？
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
