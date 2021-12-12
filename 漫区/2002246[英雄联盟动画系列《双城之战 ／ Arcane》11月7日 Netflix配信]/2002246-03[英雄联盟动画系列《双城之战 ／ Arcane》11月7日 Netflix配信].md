@@ -291,3 +291,12 @@ lor设定不能全嫁接到其他相关作品上
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  阿纳海姆电子  
+##### 3023#       发表于 2021-12-12 16:49
+
+所以双城之战在游戏改方面非常成功，不需要预先了解背景的故事规避了游戏改的劣势，而拿人气角色当主角则充份发挥了游戏改的优势，金克丝要不是游戏里的人气得被骂死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
