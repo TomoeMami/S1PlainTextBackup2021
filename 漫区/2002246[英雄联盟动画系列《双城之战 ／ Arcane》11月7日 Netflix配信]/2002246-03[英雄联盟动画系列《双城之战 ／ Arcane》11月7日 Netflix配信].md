@@ -370,3 +370,24 @@ lor设定不能全嫁接到其他相关作品上
 
 当然，我也是因为她强度拉胯（各种意义），忍不住想损一下<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  飞升之后  
+##### 3029#       发表于 2021-12-12 19:25
+
+[https://www.bilibili.com/video/B ... 265636f6d6d656e64.4](https://www.bilibili.com/video/BV1ea411r7sY?spm_id_from=333.851.b_7265636f6d6d656e64.4)这个有些牛
+
+*****
+
+####  飞升之后  
+##### 3030#       发表于 2021-12-12 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53908368&amp;ptid=2002246" target="_blank">小野寺熊介 发表于 2021-12-12 18:13</a>
+
+但阿卡丽之前也当过暗影之拳啊
+
+当然，我也是因为她强度拉胯（各种意义），忍不住想损一下 ...</blockquote>
+那个漫画里可太拉跨了
+

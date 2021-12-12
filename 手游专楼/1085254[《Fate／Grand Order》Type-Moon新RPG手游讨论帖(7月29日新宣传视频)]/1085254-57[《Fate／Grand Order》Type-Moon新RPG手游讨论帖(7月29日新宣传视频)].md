@@ -7878,3 +7878,22 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 一般给术呆吧，没见过给打手加满破的</blockquote>
 现在3套助战哪需要那么讲究
 
+
+
+*****
+
+####  qixinno2  
+##### 84717#       发表于 2021-12-12 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新主线出来后第一个池子会是杀狐池复刻么
+
+*****
+
+####  alucardcz  
+##### 84718#       发表于 2021-12-12 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53909049&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-12 19:29</a>
+
+新主线出来后第一个池子会是杀狐池复刻么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还复课 丢不丢人！  吃个大点的桃  出个暗之高扬斯卡娅
+
