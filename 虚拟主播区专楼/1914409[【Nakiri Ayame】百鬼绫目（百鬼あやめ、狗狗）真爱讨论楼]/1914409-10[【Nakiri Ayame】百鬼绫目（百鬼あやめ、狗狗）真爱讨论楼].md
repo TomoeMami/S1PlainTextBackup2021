@@ -2158,3 +2158,19 @@ rushia：爱！
 
 还能/remake不成？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AKili  
+##### 13712#       发表于 2021-12-12 22:48
+
+今天竟然摆到连生日倒数都不做的吗
+
+*****
+
+####  一仙  
+##### 13713#       发表于 2021-12-12 22:58
+
+不是发推说了明天过生吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道还想让懒狗绫总P一张倒计时图出来
+
