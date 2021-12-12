@@ -4352,3 +4352,27 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  welcom  
+##### 1886#       发表于 2021-12-12 20:37
+
+ 本帖最后由 welcom 于 2021-12-12 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53908082&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-12-12 17:48</a>
+
+虽然不想再车动画了但还是忍不住再说两句
+
+又看了一次第八集，其实我觉得剧情要素的构成真的不是问题。之前 ...</blockquote>
+这个我记得B站有个自己改第八集剧本的也是差不多的，只能说花田一开始别搞那么复杂就了事了，反正都是样板戏
+
+之前看有人把可堇之间故事串在一起的总结，中间这确实冷战了半年多再看也是觉得差一点就炸了
+
+*****
+
+####  lj205  
+##### 1887#       发表于 2021-12-12 20:43
+
+看看FES是啥样的，提前为春晚做一下心理准备
+

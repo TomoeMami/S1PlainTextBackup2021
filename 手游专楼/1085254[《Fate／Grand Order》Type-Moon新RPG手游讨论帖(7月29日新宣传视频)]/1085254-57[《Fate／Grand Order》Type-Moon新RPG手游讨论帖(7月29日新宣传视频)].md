@@ -7897,3 +7897,15 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 新主线出来后第一个池子会是杀狐池复刻么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还复课 丢不丢人！  吃个大点的桃  出个暗之高扬斯卡娅
 
+
+
+*****
+
+####  qixinno2  
+##### 84719#       发表于 2021-12-12 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53909095&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-12 19:34</a>
+
+还复课 丢不丢人！  吃个大点的桃  出个暗之高扬斯卡娅</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我相信dw就是能废物成这个样子啊 
+

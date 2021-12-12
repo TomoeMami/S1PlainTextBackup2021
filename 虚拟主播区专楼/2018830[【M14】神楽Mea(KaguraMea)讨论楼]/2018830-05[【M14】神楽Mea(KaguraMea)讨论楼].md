@@ -1003,3 +1003,14 @@ ngs这个月会有一次大更新 等级上限到35 新主线和新副本 到时
 
 没有不留档的理由<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暴走的包子  
+##### 6121#       发表于 2021-12-12 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么虹人组合
+
+—— 來自 samsung SM-F9260, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
