@@ -923,3 +923,14 @@ ngs这个月会有一次大更新 等级上限到35 新主线和新副本 到时
 
 翻录播发现有好多白人社区有在存档mea直播，这是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单纯因为删的多吗
 
+
+
+*****
+
+####  往世雷书  
+##### 6111#       发表于 2021-12-12 10:59
+
+提醒一下et，追着扣鹅可能会被版务制裁
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

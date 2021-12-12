@@ -12071,3 +12071,12 @@ syl.关于米线的提高，我觉得主播的引导才是最重要的，而非�
 
 Co宝已经开始搞气氛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望生日会直播节奏别太翻车
 
+
+
+*****
+
+####  andeloz  
+##### 4380#       发表于 2021-12-12 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">欧阳晚会以后我已经没什么心理期待了
+

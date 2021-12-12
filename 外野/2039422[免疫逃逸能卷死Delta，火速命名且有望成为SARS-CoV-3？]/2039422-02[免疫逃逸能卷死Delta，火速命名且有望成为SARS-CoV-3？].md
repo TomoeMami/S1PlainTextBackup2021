@@ -4179,3 +4179,12 @@ omicron:给我翻译翻译什么叫tmd的mild</blockquote>
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  configxxxx  
+##### 1845#       发表于 2021-12-12 11:00
+
+不过O变种在南非爆出来也两周了，那边也该到死亡人数飙升的时候了吧，所以现状如何啊？
+
