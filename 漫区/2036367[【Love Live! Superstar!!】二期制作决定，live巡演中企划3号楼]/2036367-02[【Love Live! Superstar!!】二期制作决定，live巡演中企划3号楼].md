@@ -4247,3 +4247,24 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 不知不觉，这次巡回距离结束居然已经开始倒数了
 
+
+
+*****
+
+####  寒风夜  
+##### 1875#       发表于 2021-12-12 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53908082&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-12-12 17:48</a>
+
+虽然不想再车动画了但还是忍不住再说两句
+
+又看了一次第八集，其实我觉得剧情要素的构成真的不是问题。之前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这样我觉得也不行，，说到底还是禁止梗太土了，这次理由还弱智i
+
+*****
+
+####  中野四葉  
+##### 1876#       发表于 2021-12-12 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">网易云liella的歌上线了一堆，赶紧缓存
+

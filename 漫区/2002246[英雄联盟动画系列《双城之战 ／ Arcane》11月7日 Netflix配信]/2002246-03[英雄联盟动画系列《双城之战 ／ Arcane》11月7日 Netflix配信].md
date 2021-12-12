@@ -346,3 +346,27 @@ lor设定不能全嫁接到其他相关作品上
 
 还有锤锤，我一直觉得塔利斯议员除了太年轻没有主见之外几乎没做错任何事情，我们怎么可以因为自己都没有的品德骂他呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿纳海姆电子  
+##### 3027#       发表于 2021-12-12 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53908148&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-12-12 17:52</a>
+
+金克丝，其实她真的是技工，或者说工程师海克斯科技基础理论只有杰斯这样经受过正规学院教育的科 ...</blockquote>
+塔里斯议员被黑纯粹是因为兄弟科研他曹丕罢了，还是被动的那一方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野寺熊介  
+##### 3028#       发表于 2021-12-12 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53901077&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-12-12 00:22</a>
+
+首先，现在的阿卡丽不是暗影之拳，其次，谁也没规定暗影之拳跟武力值挂钩吧，最后那帮松鼠都不知 ...</blockquote>
+但阿卡丽之前也当过暗影之拳啊<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+当然，我也是因为她强度拉胯（各种意义），忍不住想损一下<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

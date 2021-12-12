@@ -411,3 +411,20 @@ Gura跟Ina一个rigger，没像上次那么翻车，谢天谢地了。（基础�
 
 古希腊是lore accurate
 
+
+
+*****
+
+####  shimmy1996  
+##### 1542#       发表于 2021-12-12 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">新衣服collab是jackbox（想看ina画的teeko
+amesame 堡垒之夜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  shimmy1996  
+##### 1543#       发表于 2021-12-12 18:19
+
+ame：最近你们比较少看到bottom teeth是因为在直播时自己不那么经常笑了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
