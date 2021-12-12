@@ -12082,3 +12082,16 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 
 —— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  渡边菌  
+##### 2403#       发表于 2021-12-13 01:08
+
+ 本帖最后由 渡边菌 于 2021-12-13 01:15 编辑 
+
+珊瑚虽然一直没啥存在感，但木瓜摔了珊瑚第一个跑去给她擦脸，上集也是自己主动帮竞争对手。这么可爱又温柔又善良的女孩子真是看得我心都化了。
+不过作为可爱系的角色总觉得珊瑚的有些表情莫名其妙的很嘲讽，随手一截就是个阴阳怪气的表情。肯定是我的错，身为巨魔的我有罪。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+我这么肮脏的大人不配喜欢她<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
