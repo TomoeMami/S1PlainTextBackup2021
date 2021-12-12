@@ -980,3 +980,26 @@ ngs这个月会有一次大更新 等级上限到35 新主线和新副本 到时
 
 好吧没兰熊，猜错了（实质2434
 
+
+
+*****
+
+####  掉头学姐  
+##### 6118#       发表于 2021-12-12 18:21
+
+这联动早点的话能收获不少乐子<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6119#       发表于 2021-12-12 18:25
+
+你有本事就连这个也不留档。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6120#       发表于 2021-12-12 18:26
+
+没有不留档的理由<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
