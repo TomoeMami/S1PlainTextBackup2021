@@ -400,3 +400,22 @@ lor设定不能全嫁接到其他相关作品上
 
 目前的LOR和LOL背景故事的人设不用太在意，最终都会被MMO取代
 
+
+
+*****
+
+####  qxs  
+##### 3032#       发表于 2021-12-12 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53908148&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-12-12 17:52</a>
+
+金克丝，其实她真的是技工，或者说工程师海克斯科技基础理论只有杰斯这样经受过正规学院教育的科 ...</blockquote>
+说的没错，如果真的放到第三集最后爆爆的位置上，能失去的全部失去了，有一部分还是自己亲手扼杀掉的。这时候过来个人还打算刀了你，一个七八岁的小孩也很难想出其他选择<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 3033#       发表于 2021-12-12 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请注意，峡谷里的时间线和双城的时间线差了好几年。
+
