@@ -12628,3 +12628,12 @@ co宝的攻击性好强<img src="https://static.saraba1st.com/image/smiley/face2
 
 北海巨妖猫耳版好看，但真的不好用……
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4446#       发表于 2021-12-12 22:06
+
+还真是不知道生日会要提前申请啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

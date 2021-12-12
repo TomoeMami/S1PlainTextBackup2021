@@ -7909,3 +7909,15 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 还复课 丢不丢人！  吃个大点的桃  出个暗之高扬斯卡娅</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我相信dw就是能废物成这个样子啊 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84720#       发表于 2021-12-12 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53909095&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-12 19:34:27</a>
+还复课 丢不丢人！  吃个大点的桃  出个暗之高扬斯卡娅</blockquote>这个暗之xxx，是妹妹头吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
