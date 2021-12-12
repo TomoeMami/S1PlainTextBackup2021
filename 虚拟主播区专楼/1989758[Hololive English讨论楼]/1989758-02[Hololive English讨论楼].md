@@ -400,3 +400,14 @@ Ame: 想了很久这次新衣该怎么搞（上次做的太好了 [agreed]） �
 
 这tm就是原稿吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PureIllusion  
+##### 1541#       发表于 2021-12-12 09:32
+
+Gura跟Ina一个rigger，没像上次那么翻车，谢天谢地了。（基础问题还在，啥时候能把眼睛修了）
+
+古希腊是lore accurate
+

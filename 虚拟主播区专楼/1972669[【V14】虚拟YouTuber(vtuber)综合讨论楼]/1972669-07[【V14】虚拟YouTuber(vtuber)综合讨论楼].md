@@ -3714,3 +3714,15 @@ b站评论说她毕业的那三个月是去接游戏配音和asmr的工作了？
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lor  
+##### 9313#       发表于 2021-12-12 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53901476&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-12 00:57:14</a>
+退出后还能用皮套甚至3d化，说明应该是中身自己掏钱做的皮套？这样看来星巡学院是个非常自由的箱？米莉亚 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">部长有类似所属公司？3D和资源上帮了不少。四个人还有过其他频道上一起配音的小漫画
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
