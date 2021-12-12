@@ -244,3 +244,27 @@ lor设定不能全嫁接到其他相关作品上
 动画片就是要这样的技术力， ...</blockquote>
 联盟官推：好消息是不用再等六年，坏消息是2022年出不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  franly  
+##### 3020#       发表于 2021-12-12 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53905778&amp;ptid=2002246" target="_blank">消防 发表于 2021-12-12 13:59</a>
+
+看完了，对LOL理解为0，还是看你们讨论才知道德玛西亚和祖安人是LOL的梗
+
+音乐美术群像都是顶级，除了妹妹之 ...</blockquote>
+主要角色里我也不喜欢她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是她应该属于看板，官方还是很推的，大概要搞成小丑那种类型的邪道主角？
+
+*****
+
+####  franly  
+##### 3021#       发表于 2021-12-12 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53906050&amp;ptid=2002246" target="_blank">Siran_China 发表于 2021-12-12 14:28</a>
+
+联盟官推：好消息是不用再等六年，坏消息是2022年出不来</blockquote>
+有后续就好，我看到时候这个和罗小黑谁先出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

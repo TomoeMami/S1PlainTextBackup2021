@@ -4144,3 +4144,24 @@ pay酱又这么早睡啊，起来发个返图好不好<img src="https://static.s
 
 小天使<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1869#       发表于 2021-12-12 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53906934&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-12-12 15:57</a>
+
+之前花田访谈好像是说先定剧情再写歌
+
+—— 来自 S1Fun</blockquote>
+这剧情，给恋恋写wish song的怕不是头都炸了。
+
+*****
+
+####  lj205  
+##### 1870#       发表于 2021-12-12 16:19
+
+打铁放开了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
