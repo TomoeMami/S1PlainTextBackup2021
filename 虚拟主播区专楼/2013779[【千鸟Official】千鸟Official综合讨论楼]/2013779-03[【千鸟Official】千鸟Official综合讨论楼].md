@@ -12360,3 +12360,33 @@ syl
 
 笑嘻了，全员存活话音刚落触发团灭
 
+
+
+*****
+
+####  伞沢直美  
+##### 4413#       发表于 2021-12-12 17:31
+
+13号又要跑路了13号又要跑路了13号又要跑路了
+
+*****
+
+####  袜子  
+##### 4414#       发表于 2021-12-12 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">两眼一黑昏过去了
+
+*****
+
+####  lunaticfear  
+##### 4415#       发表于 2021-12-12 17:36
+
+让我暂时做一周人
+
+*****
+
+####  T型钉宫病毒  
+##### 4416#       发表于 2021-12-12 17:40
+
+亚达哟，下周又变回冰冷的鸟综了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
