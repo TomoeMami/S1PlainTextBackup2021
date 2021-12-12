@@ -12637,3 +12637,19 @@ co宝的攻击性好强<img src="https://static.saraba1st.com/image/smiley/face2
 
 还真是不知道生日会要提前申请啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 4447#       发表于 2021-12-12 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么莫相争，绷
+
+*****
+
+####  伞沢直美  
+##### 4448#       发表于 2021-12-12 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">明年摆摊卖串串，鸟又散
+
