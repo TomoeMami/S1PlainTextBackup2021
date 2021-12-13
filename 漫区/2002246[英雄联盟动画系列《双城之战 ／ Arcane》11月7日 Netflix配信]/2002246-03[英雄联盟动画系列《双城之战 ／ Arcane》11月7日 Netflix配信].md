@@ -444,3 +444,15 @@ s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版�
 
 金克斯原来还是有朋友的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿刚  
+##### 3036#       发表于 2021-12-14 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925286&amp;ptid=2002246" target="_blank">qxs 发表于 2021-12-13 23:34</a>
+
+金克斯原来还是有朋友的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吉格斯勉强能算是朋友，不过漫画里金克斯把他当成自己的幻觉了……
+

@@ -4061,3 +4061,19 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 真人比皮套还强十倍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">高达驾驶员的战斗力比高达还强
 
+
+
+*****
+
+####  nagitoY  
+##### 9339#       发表于 2021-12-14 01:09
+
+楼里说的把b站当跳板去holo6期的那个v，前世的前世是re:act的？这家企业感觉资历也挺老了，感觉一直没什么人气。最早出道之一的狮子神蕾欧娜唱摇滚挺厉害的，但是在油管也就20w不到的订阅。
+
+*****
+
+####  本间日阳  
+##### 9340#       发表于 2021-12-14 01:18
+
+其实我第一次见到三角优华也是在指原主持的综艺里
+
