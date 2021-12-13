@@ -4044,3 +4044,20 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 这live现场的舞台感也太好了，职业偶像的舞台感对vtb完全是降维打击啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">偶像步，还有机位wink。我对日本偶像的偏见开始有改观了，以前我是不知道偶像厉害的地方，现在看来就是舞台感吧
 
+
+
+*****
+
+####  nagitoY  
+##### 9338#       发表于 2021-12-13 22:37
+
+<img src="https://img.saraba1st.com/forum/202112/13/223654qjkwakazc7kvyhda.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C0BB0ACD-FA85-44C9-B445-9CB78D3FC4BF.jpeg</strong> (321.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-13 22:36 上传
+
+真人比皮套还强十倍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">高达驾驶员的战斗力比高达还强
+
