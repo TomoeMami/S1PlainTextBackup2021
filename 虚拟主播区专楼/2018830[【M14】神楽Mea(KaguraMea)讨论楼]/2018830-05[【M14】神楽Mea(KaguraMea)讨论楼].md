@@ -2782,3 +2782,16 @@ syl 找个年轻肉体都比姨强<img src="https://static.saraba1st.com/image/s
 
 倒是有共同语言
 
+
+
+*****
+
+####  往世雷书  
+##### 6329#       发表于 2021-12-14 06:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925496&amp;ptid=2018830" target="_blank">Rem-清曲 发表于 2021-12-13 23:58</a>
+叔叔先复活lex，接着又组女团，后面要干什么不敢想了</blockquote>
+我知道了，后面就是lex联动女团<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
