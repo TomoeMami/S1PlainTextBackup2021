@@ -2566,3 +2566,17 @@ syl 怎么又哭了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找到了，原来 皆切 二期生的羁绊在这里。
 
+
+
+*****
+
+####  stmule  
+##### 13757#       发表于 2021-12-13 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53924560&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-12-13 22:30</a>
+找到了，原来 皆切 二期生的羁绊在这里。</blockquote>
+去水族馆不该是约熊猫人么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+仔细一想熊猫人还和绫总有过3d联动
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
