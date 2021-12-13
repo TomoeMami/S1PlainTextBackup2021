@@ -4272,3 +4272,25 @@ Health Minister Horowitz said that he was “very troubled by Omicron.
 
 “There are all sorts of indications that it could cause serious illness. We have decided on measures and an extension of existing regulations. "
 
+
+
+*****
+
+####  kiragz  
+##### 1853#       发表于 2021-12-13 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53913662&amp;ptid=2039422" target="_blank">sk此方 发表于 2021-12-13 08:58</a>
+
+Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作人员新冠检测阳性，今天球队无法正常进行小组 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">干嘛隔离啊，轻症继续踢啊，不就是大号流感
+
+*****
+
+####  kiragz  
+##### 1854#       发表于 2021-12-13 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53889639&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-12-11 09:42</a>
+
+看拍老师的更新，不光南非，德意那也是孕妇开始容易重症？</blockquote>
+人类灭绝计划？
+

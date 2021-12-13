@@ -1643,3 +1643,40 @@ tc
 
 艹还打？
 
+
+
+*****
+
+####  Klience  
+##### 6199#       发表于 2021-12-13 14:41
+
+打到现在就输了一局 能不上头吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6200#       发表于 2021-12-13 14:43
+
+所有在座的尼特观众都为今天熬死人贡献了很多<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6201#       发表于 2021-12-13 14:48
+
+变相筛选观众 熬死的被淘汰 没被熬死的继续熬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6202#       发表于 2021-12-13 14:55
+
+哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6203#       发表于 2021-12-13 15:00
+
+这把玩的啥，怎么躺着躺着赢了
+
