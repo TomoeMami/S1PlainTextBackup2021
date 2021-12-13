@@ -2769,3 +2769,16 @@ syl 找个年轻肉体都比姨强<img src="https://static.saraba1st.com/image/s
 
 要是和指原莉乃线下上课可能真的利好肉体厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sacodina  
+##### 6328#       发表于 2021-12-14 06:14
+
+<blockquote>makourisu-2 发表于 2021-12-13 22:03
+你麻喜欢的那个麻酱不是早安少女组的嘛？不过这女人应该也看过akb48吧 ...</blockquote>
+恰好指原也是偶像厨出身，早安脑残粉，也是佐藤优树单推。
+
+倒是有共同语言
+
