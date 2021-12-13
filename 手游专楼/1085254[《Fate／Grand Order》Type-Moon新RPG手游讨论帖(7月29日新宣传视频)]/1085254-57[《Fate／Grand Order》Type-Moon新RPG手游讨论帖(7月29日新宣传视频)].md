@@ -8108,3 +8108,12 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 哦我蠢了，蛾子1是群冲，试试去</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然但是 其实不就一个结晶吗 有啥不可以（
 
+
+
+*****
+
+####  rooarr  
+##### 84740#       发表于 2021-12-14 00:41
+
+微氪吃亏在各种单体宝具没有或者1宝，都打不死2面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
