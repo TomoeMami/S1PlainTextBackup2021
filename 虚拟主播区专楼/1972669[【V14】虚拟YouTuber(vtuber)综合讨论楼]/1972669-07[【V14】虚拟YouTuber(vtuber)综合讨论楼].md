@@ -3964,3 +3964,23 @@ MC：バーチャルゴリラ
 配信▷</strong>[https://t.co/mkbeBYVzLy](https://t.co/mkbeBYVzLy)
 什么公开处刑？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9330#       发表于 2021-12-13 20:43
+
+Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer"> 
+
+（相关内容是不是应该在B综...）
+
+
+
+*****
+
+####  free  
+##### 9331#       发表于 2021-12-13 20:46
+
+这个组合太神奇了，我甚至没看懂是主要面向B还是面向油管的
+

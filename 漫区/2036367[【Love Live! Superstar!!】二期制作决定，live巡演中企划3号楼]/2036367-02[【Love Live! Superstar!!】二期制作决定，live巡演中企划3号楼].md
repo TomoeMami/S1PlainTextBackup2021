@@ -4623,3 +4623,13 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 看了个拉版关于ガチ恋的串儿，他们还真是压倒性的喜欢打铁啊。一对对的ガチ恋对象是打铁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 1911#       发表于 2021-12-13 20:56
+
+看推特回复量就知道打铁gachi恋数量多了,赞转不一定团里最多但回复数基本是最多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+素人养成系偶像本身就已经自带养gachi buff加成了，再加上她业务能力强，还很会搞饭撒，wink飞吻招手一个不少，gachi恋多也正常
+
