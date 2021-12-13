@@ -3984,3 +3984,28 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 这个组合太神奇了，我甚至没看懂是主要面向B还是面向油管的
 
+
+
+*****
+
+####  OldGlory  
+##### 9332#       发表于 2021-12-13 21:02
+
+当然是面向b站的，但这个人选过于缝合，新时代和旧时代正面碰撞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  443421870  
+##### 9333#       发表于 2021-12-13 21:11
+
+我觉得毒唯已经开战了，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  雨井绫  
+##### 9334#       发表于 2021-12-13 21:12
+
+我几年前就是从48g润出来看v的，没想到又看到宅p了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+

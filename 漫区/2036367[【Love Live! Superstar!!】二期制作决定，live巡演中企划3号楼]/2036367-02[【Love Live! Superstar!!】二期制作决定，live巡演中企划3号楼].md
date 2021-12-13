@@ -4633,3 +4633,12 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 看推特回复量就知道打铁gachi恋数量多了,赞转不一定团里最多但回复数基本是最多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 素人养成系偶像本身就已经自带养gachi buff加成了，再加上她业务能力强，还很会搞饭撒，wink飞吻招手一个不少，gachi恋多也正常
 
+
+
+*****
+
+####  蜜梨柑  
+##### 1912#       发表于 2021-12-13 21:07
+
+怎么忍心ガチsayurin的，明明今年之前还是jk啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

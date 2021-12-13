@@ -2102,3 +2102,79 @@ tc
 
 传统强项，连打来了
 
+
+
+*****
+
+####  iuhehc  
+##### 6256#       发表于 2021-12-13 21:07
+
+是真真真真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 6257#       发表于 2021-12-13 21:08
+
+不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6258#       发表于 2021-12-13 21:08
+
+德龙这手速宛若资深魔法师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6259#       发表于 2021-12-13 21:11
+
+又是连打
+
+*****
+
+####  我单推副会长  
+##### 6260#       发表于 2021-12-13 21:12
+
+德龙本来已经赢了，她选择了弹幕最多的玩法。
+
+*****
+
+####  遗忘回想  
+##### 6261#       发表于 2021-12-13 21:12
+
+星川不太能吃啊
+
+*****
+
+####  clvan_  
+##### 6262#       发表于 2021-12-13 21:15
+
+啥呀，什么东西，一脸懵逼，我还以为这联动有什么问题
+
+*****
+
+####  遗忘回想  
+##### 6263#       发表于 2021-12-13 21:17
+
+<img src="https://p.sda1.dev/3/078efceb741ccd0dfc284ad01b5340f4/IMG_CMP_264978574.jpeg" referrerpolicy="no-referrer">
+
+详情自己找
+
+*****
+
+####  Mr.shelter  
+##### 6264#       发表于 2021-12-13 21:18
+
+我直说了，我觉得其他人什么cylx，不配好吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+真没想到润了之后还能被这种操作破防一次
+
+*****
+
+####  T_Hb  
+##### 6265#       发表于 2021-12-13 21:18
+
+完了，要吃蜂窝了
+

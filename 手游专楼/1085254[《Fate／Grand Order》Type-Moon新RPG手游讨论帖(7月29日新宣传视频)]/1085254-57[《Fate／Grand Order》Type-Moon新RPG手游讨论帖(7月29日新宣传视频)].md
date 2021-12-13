@@ -8035,3 +8035,17 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 试了一堆结果第三面能稳定一下打死的还是金时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 84733#       发表于 2021-12-13 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53923204&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-12-13 20:28</a>
+
+一看到311杀本我就知道我的3宝三藏又该一年一度的上班了
+
+然后发现蛾子1+自BUFF打不死2面，3宝三藏也有局限 ...</blockquote>
+你把尼托换海伦娜
+
