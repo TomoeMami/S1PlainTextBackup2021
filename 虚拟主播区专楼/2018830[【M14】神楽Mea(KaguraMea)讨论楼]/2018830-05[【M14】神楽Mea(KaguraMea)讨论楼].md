@@ -1680,3 +1680,49 @@ tc
 
 这把玩的啥，怎么躺着躺着赢了
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6204#       发表于 2021-12-13 15:05
+
+都敢玩vn了
+
+*****
+
+####  Klience  
+##### 6205#       发表于 2021-12-13 15:07
+
+致命节奏薇恩现在T1 看她玩得怎样吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6206#       发表于 2021-12-13 15:12
+
+好死
+
+*****
+
+####  古战场亡魂  
+##### 6207#       发表于 2021-12-13 15:14
+
+你e呢？？？？？
+
+*****
+
+####  Klience  
+##### 6208#       发表于 2021-12-13 15:16
+
+这把对面刀妹肥了 不好打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6209#       发表于 2021-12-13 15:19
+
+ 本帖最后由 Klience 于 2021-12-13 15:20 编辑 
+
+好Q 好闪 好E 好走位接R<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

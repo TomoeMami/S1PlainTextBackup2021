@@ -2248,3 +2248,12 @@ rushia：爱！
 
 之前确实是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  因为你不会  
+##### 13722#       发表于 2021-12-13 15:02
+
+懂不懂两届参赛选手的含金量啊
+
