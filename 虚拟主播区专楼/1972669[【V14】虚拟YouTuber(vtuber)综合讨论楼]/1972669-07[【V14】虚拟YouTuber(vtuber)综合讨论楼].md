@@ -3893,3 +3893,18 @@ QQ截图20211212150614.jpg
 
 <img src="https://img.saraba1st.com/forum/202112/12/210458z3iid55pzosvzigg.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shpdw  
+##### 9326#       发表于 2021-12-13 17:42
+
+<img src="https://s2.loli.net/2021/12/13/RIht7BUcCj4NYvz.jpg" referrerpolicy="no-referrer">
+
+<img src="https://s2.loli.net/2021/12/13/PKwLY5nXWFO3Rsr.jpg" referrerpolicy="no-referrer">
+
+在历史上留下了一小块脚注，还是以前的半目颜可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+            
+
