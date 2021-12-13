@@ -435,3 +435,12 @@ s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版�
 
 —— 来自 Xiaomi MIX 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  qxs  
+##### 3035#       发表于 2021-12-13 23:34
+
+金克斯原来还是有朋友的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

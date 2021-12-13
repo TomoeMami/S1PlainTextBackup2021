@@ -4676,3 +4676,13 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 2.99次元也不是3……太现充的选手自带debuff
 
+
+
+*****
+
+####  chenflyyy  
+##### 1917#       发表于 2021-12-13 23:32
+
+今天是公布声优一周年了吧（日本时间），好快
+还记得当初公布声优时听说有国人就来楼里看看，结果被各种黑屁和yygq的谜语人给劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
