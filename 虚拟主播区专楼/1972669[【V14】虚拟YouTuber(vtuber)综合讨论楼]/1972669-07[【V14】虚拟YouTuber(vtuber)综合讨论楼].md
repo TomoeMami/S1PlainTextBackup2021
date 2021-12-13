@@ -4077,3 +4077,34 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 其实我第一次见到三角优华也是在指原主持的综艺里
 
+
+
+*****
+
+####  OldGlory  
+##### 9341#       发表于 2021-12-14 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925998&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-14 01:09</a>
+楼里说的把b站当跳板去holo6期的那个v，前世的前世是re:act的？这家企业感觉资历也挺老了，感觉一直没什么 ...</blockquote>
+最好玩的还是黑音毕业的时候发了这么一张图，莫欺少年穷
+<img src="https://p.sda1.dev/3/27ba08142c23d50c235c99ee6ce2a271/212513k9zi4otruj6xengf.png.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 9342#       发表于 2021-12-14 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53926202&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-12-14 01:49</a>
+
+最好玩的还是黑音毕业的时候发了这么一张图，莫欺少年穷</blockquote>
+这不是全图吧，没看懂什么意思。把react商标p在手上想表达什么？
+
+*****
+
+####  OldGlory  
+##### 9343#       发表于 2021-12-14 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53926253&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-14 02:00</a>
+这不是全图吧，没看懂什么意思。把react商标p在手上想表达什么？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗示自己被react内部霸凌了
+
