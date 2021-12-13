@@ -4684,3 +4684,14 @@ Omicron 传染这么快 是不是潜伏期更短了？
 真要做还是可以做的。防疫凸前，帮他们去灭鼠...</blockquote>
 先把hk这个毒窝管起来吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 1889#       发表于 2021-12-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53924439&amp;ptid=2039422" target="_blank">砥草 发表于 2021-12-13 22:19</a>
+我记得德尔塔是隔了有几个月的样子，最初国际上炸裂时，国内对入境人员还专门要询问是否有印度及周边国家 ...</blockquote>
+也就北半球冬天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

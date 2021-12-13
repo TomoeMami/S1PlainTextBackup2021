@@ -8117,3 +8117,12 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 微氪吃亏在各种单体宝具没有或者1宝，都打不死2面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 84741#       发表于 2021-12-14 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">放弃思考，陈宫炮击队走起，刚好c呆还有4w羁绊就11羁绊了，刷了不亏
+

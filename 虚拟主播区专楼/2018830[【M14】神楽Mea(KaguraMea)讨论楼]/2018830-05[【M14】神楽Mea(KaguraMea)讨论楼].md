@@ -2712,3 +2712,21 @@ syl 找个年轻肉体都比姨强<img src="https://static.saraba1st.com/image/s
 
 这玩意不多找几个拉夫找mea就是让她来当工具人的
 
+
+
+*****
+
+####  Joffre✔  
+##### 6321#       发表于 2021-12-14 00:52
+
+现在批站有热度的日v，同时还有本土粉的也就你麻，还听话，多好的工具人啊
+
+*****
+
+####  clvan_  
+##### 6322#       发表于 2021-12-14 01:00
+
+你麻这种偶像厨还时不时黑屁偶像文化的被拉来搞女团，突出一个怪味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+和苔苔突然搞的那个联动看起来更微妙了
+
