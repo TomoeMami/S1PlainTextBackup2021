@@ -419,3 +419,19 @@ lor设定不能全嫁接到其他相关作品上
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请注意，峡谷里的时间线和双城的时间线差了好几年。
 
+
+
+*****
+
+####  战星辰  
+##### 3034#       发表于 2021-12-13 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53907366&amp;ptid=2002246" target="_blank">新的起源 发表于 2021-12-12 16:38</a>
+金克丝只能说官方看板娘
+
+人气只能说一般</blockquote>
+s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版本现在妥妥的俩t0
+真下水道还得看上赛季的炼金<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
