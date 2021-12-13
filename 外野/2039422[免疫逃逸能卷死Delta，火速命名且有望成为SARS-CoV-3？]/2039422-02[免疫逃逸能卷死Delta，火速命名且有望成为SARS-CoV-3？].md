@@ -4248,3 +4248,14 @@ Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作
 
 —— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  Vneet  
+##### 1851#       发表于 2021-12-13 09:12
+
+<blockquote>sk此方 发表于 2021-12-13 08:58
+Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作人员新冠检测阳性，今天球队无法正常进行小组 ...</blockquote>
+众所周知，英伦足球是不存在冬假的，不如说圣诞前后才是一年热点，好戏还在后头
+
