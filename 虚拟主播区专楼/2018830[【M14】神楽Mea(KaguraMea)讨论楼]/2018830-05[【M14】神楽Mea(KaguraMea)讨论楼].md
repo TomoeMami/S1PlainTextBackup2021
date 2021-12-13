@@ -2434,3 +2434,85 @@ syl 结束了，最后秒杀了，不愧是肥坦
 
 预演啥，1年就退团的临时工，肯定都没有个人资源的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌也是合唱，live也是一起上
 
+
+
+*****
+
+####  掉头学姐  
+##### 6293#       发表于 2021-12-13 22:03
+
+这比参加什么演唱会好多了，至少有点新鲜感
+
+*****
+
+####  makourisu-2  
+##### 6294#       发表于 2021-12-13 22:03
+
+你麻喜欢的那个麻酱不是早安少女组的嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这女人应该也看过akb48吧
+
+*****
+
+####  T_Hb  
+##### 6295#       发表于 2021-12-13 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比较期待的是集训能不能把她定型成阳间人和多上点课再唱好点
+
+*****
+
+####  路人庚  
+##### 6296#       发表于 2021-12-13 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53924278&amp;ptid=2018830" target="_blank">makourisu-2 发表于 2021-12-13 22:03</a>
+
+你麻喜欢的那个麻酱不是早安少女组的嘛？不过这女人应该也看过akb48吧 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/13/221241pz3zc9vggvgkm7nv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>46726CBD-D48F-4ABD-B7DC-6E1A9B437DC8.jpeg</strong> (269.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-13 22:12 上传
+
+<img src="https://img.saraba1st.com/forum/202112/13/221100slhn8hegzhnat7az.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>65713CF7-2751-43B5-BCD4-AB97591BE2C2.jpeg</strong> (344.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-13 22:11 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| makourisu-2| + 1|好多麻酱|
+| Mr.shelter| + 1|草|
+
+查看全部评分
+
+*****
+
+####  rosevalley46  
+##### 6297#       发表于 2021-12-13 22:21
+
+喜欢mayuyu的那次我还蛮有映像的
+
+*****
+
+####  makourisu-2  
+##### 6298#       发表于 2021-12-13 22:23
+
+刚刚百度了一下渡边麻友和指原莉乃，好像这两人在akb时属于头榜竞争关系？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道你麻那时候追星时是什么态度<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6299#       发表于 2021-12-13 22:23
+
+哦对，spider看到麻烦上号，有东西发你
+

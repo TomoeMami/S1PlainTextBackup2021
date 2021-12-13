@@ -4031,3 +4031,16 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 看了下绿帽坛的帖怎么没了，链接也点不进去了，这是提前泄露出了消息吗
 
+
+
+*****
+
+####  nagitoY  
+##### 9337#       发表于 2021-12-13 22:17
+
+后知后觉，才知道铃原露露是前偶像三角优华。
+
+[https://www.bilibili.com/video/BV1v7411c7ZM?share_source=copy_web](https://www.bilibili.com/video/BV1v7411c7ZM?share_source=copy_web)
+
+这live现场的舞台感也太好了，职业偶像的舞台感对vtb完全是降维打击啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">偶像步，还有机位wink。我对日本偶像的偏见开始有改观了，以前我是不知道偶像厉害的地方，现在看来就是舞台感吧
+

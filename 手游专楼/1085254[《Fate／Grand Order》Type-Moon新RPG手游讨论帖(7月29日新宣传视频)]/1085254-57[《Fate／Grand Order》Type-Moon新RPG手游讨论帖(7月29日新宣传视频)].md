@@ -8074,3 +8074,37 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  上坂莲华  
+##### 84737#       发表于 2021-12-13 22:09
+
+ 本帖最后由 上坂莲华 于 2021-12-13 22:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53923772&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-13 21:13</a>
+
+你把尼托换海伦娜</blockquote>
+海伦娜50+30一面不够啊，我不能为了个无限池去点追加吧
+
+哦我蠢了，蛾子1是群冲，试试去
+
+*****
+
+####  sosgame67  
+##### 84738#       发表于 2021-12-13 22:15
+
+用了几次1宝三藏才想起我的五宝姑姑，这下操作顺滑多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84739#       发表于 2021-12-13 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53924328&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-12-13 22:09</a>
+
+海伦娜50+30一面不够啊，我不能为了个无限池去点追加吧
+
+哦我蠢了，蛾子1是群冲，试试去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然但是 其实不就一个结晶吗 有啥不可以（
+
