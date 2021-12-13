@@ -1726,3 +1726,46 @@ tc
 
 好Q 好闪 好E 好走位接R<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  遗忘回想  
+##### 6210#       发表于 2021-12-13 15:33
+
+ 本帖最后由 遗忘回想 于 2021-12-13 15:34 编辑 
+
+肥婆赶紧吃饭去吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">还下播午睡，麻酱的live不看了吗。
+
+终于喜迎第二败了
+
+
+
+*****
+
+####  Klience  
+##### 6211#       发表于 2021-12-13 15:33
+
+刀妹还是太强了 设计师不考虑一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6212#       发表于 2021-12-13 15:38
+
+我就知道，强制自己不睡觉就为了等麻酱的live
+
+*****
+
+####  Klience  
+##### 6213#       发表于 2021-12-13 15:38
+
+这局刀妹起来了 马尔扎哈被当提款机用 该把刀妹削一削了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6214#       发表于 2021-12-13 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么一定要把自己搞的这么累呢
+
