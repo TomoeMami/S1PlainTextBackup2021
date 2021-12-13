@@ -3944,3 +3944,23 @@ QQ截图20211212150614.jpg
 
 2021-12-13 18:36 上传
 
+
+
+*****
+
+####  FCCHua  
+##### 9329#       发表于 2021-12-13 19:21
+
+ 本帖最后由 FCCHua 于 2021-12-13 19:25 编辑 
+
+[https://twitter.com/Vspo77/status/1470351250449657857](https://twitter.com/Vspo77/status/1470351250449657857)
+<strong>12/17(金) 20:00～🎁
+理想のクリスマスデート品評会🎄🔥
+ギルくん、ぶいすぽ運営、放送作家の3人が考えた
+理想のデート映像を見ながら徹底議論🤜🤛
+#ぶいすぽ：神成きゅぴ、橘ひなの、英リサ
+デート映像 主演：ギルくん
+MC：バーチャルゴリラ
+配信▷</strong>[https://t.co/mkbeBYVzLy](https://t.co/mkbeBYVzLy)
+什么公开处刑？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

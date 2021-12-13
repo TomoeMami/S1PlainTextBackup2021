@@ -2318,3 +2318,100 @@ rushia：爱！
 
 果然不会是solo<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fami水  
+##### 13730#       发表于 2021-12-13 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总积分兑换了星姐和towa
+
+*****
+
+####  cctvyt1  
+##### 13731#       发表于 2021-12-13 19:21
+
+绫总声音被低音组盖掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cctvyt1  
+##### 13732#       发表于 2021-12-13 19:27
+
+姨性磁铁 果然有船长日南
+
+*****
+
+####  Fami水  
+##### 13733#       发表于 2021-12-13 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜下面是小粥和狗子
+
+*****
+
+####  stedckk  
+##### 13734#       发表于 2021-12-13 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会有二期生吗
+
+*****
+
+####  FCCHua  
+##### 13735#       发表于 2021-12-13 19:32
+
+ 本帖最后由 FCCHua 于 2021-12-13 19:39 编辑 
+
+草，船长好搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 怎么又哭了
+
+*****
+
+####  cctvyt1  
+##### 13736#       发表于 2021-12-13 19:33
+
+求求你杏放过大脸猫吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 13737#       发表于 2021-12-13 19:34
+
+ 本帖最后由 nian1538 于 2021-12-13 19:40 编辑 
+
+原来今天看的是Hololive Gamers的成员百鬼绫目的生日Live啊
+
+小粥也太万能工具人了
+
+&gt;Number of Hololive Gamer guests: 4
+
+&gt;Number of Hololive 0 Gen Members: 1
+
+&gt;Number of Hololive 1st Gen Members: 1
+
+&gt;Number of Hololive 3rd Gen Members: 2
+
+&gt;Number of Hololive 4th Gen Members: 2
+
+&gt;Number of Hololive 2nd Gen Members (the Gen she is from): 0
+
+*****
+
+####  s32244153  
+##### 13738#       发表于 2021-12-13 19:35
+
+小粥一个月要赶几场阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 13739#       发表于 2021-12-13 19:38
+
+舞，真的练了
+
+人，真的来了
+
+我，真的爱了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -7967,3 +7967,42 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 怎么90+又是狂那狂喜本</blockquote>
 你这是要换人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 84726#       发表于 2021-12-13 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53922507&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-13 19:25</a>
+
+你这是要换人吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">？  311何须换人 第2或者第3面暴击啊
+
+*****
+
+####  rooarr  
+##### 84727#       发表于 2021-12-13 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53922580&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-13 19:30</a>
+
+？  311何须换人 第2或者第3面暴击啊</blockquote>
+居然依赖暴击<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我还以为你要宝具连发
+
+*****
+
+####  alucardcz  
+##### 84728#       发表于 2021-12-13 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53922683&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-13 19:36</a>
+
+居然依赖暴击我还以为你要宝具连发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这怪才20几万。。狂娜现在单红射程快40万+了
+
+*****
+
+####  alucardcz  
+##### 84729#       发表于 2021-12-13 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">试了下c狗 第3面伤害居然不够  不知道带双狐+极地够不够 懒得试了  
+
