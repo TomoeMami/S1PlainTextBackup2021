@@ -2272,3 +2272,12 @@ rushia：爱！
 
 距离直播还有100分钟百鬼组已经打了40万了
 
+
+
+*****
+
+####  Fami水  
+##### 13724#       发表于 2021-12-13 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这次是solo live么
+

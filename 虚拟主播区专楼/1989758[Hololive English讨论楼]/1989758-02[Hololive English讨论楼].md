@@ -449,3 +449,14 @@ ame：最近你们比较少看到bottom teeth是因为在直播时自己不那�
 ame：最近你们比较少看到bottom teeth是因为在直播时自己不那么经常笑了</blockquote>
 do you have a timestamp of that?
 
+
+
+*****
+
+####  shimmy1996  
+##### 1546#       发表于 2021-12-13 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53918295&amp;ptid=1989758" target="_blank">wuzhengkai 发表于 2021-12-13 14:35</a>
+do you have a timestamp of that?</blockquote>
+[https://youtu.be/nc9SyfqgXfk](https://youtu.be/nc9SyfqgXfk) 11:30 (member’s stream
+
