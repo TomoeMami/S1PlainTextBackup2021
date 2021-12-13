@@ -4294,3 +4294,19 @@ Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作
 看拍老师的更新，不光南非，德意那也是孕妇开始容易重症？</blockquote>
 人类灭绝计划？
 
+
+
+*****
+
+####  creymorgan  
+##### 1855#       发表于 2021-12-13 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53916732&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-13 12:42</a>
+
+以色列卫生部长</blockquote>
+以色列防疫高度指望疫苗，对辉瑞BNT的订单下的比美国还早，应该是最早完成二针普及的。
+
+因为接种太早，今年6月保护力就开始衰减，以色列又最早展开三针普及接种的。
+
+所以对于无视疫苗的奥米克戎，自然是特别着急。
+
