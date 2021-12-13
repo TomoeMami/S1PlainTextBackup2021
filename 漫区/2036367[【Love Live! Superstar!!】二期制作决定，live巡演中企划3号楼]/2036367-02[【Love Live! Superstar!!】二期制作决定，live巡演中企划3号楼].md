@@ -4601,3 +4601,16 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 估计不是15号，一般都是提前一周，说不定20号
 
+
+
+*****
+
+####  cybernetics31  
+##### 1909#       发表于 2021-12-13 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53921683&amp;ptid=2036367" target="_blank">player3960 发表于 2021-12-13 18:22</a>
+今天肯定是不行的
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">本来还以为菜宝把油管直播时间改了会是周三…………sq有点慢啊
+

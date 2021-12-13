@@ -2281,3 +2281,40 @@ rushia：爱！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这次是solo live么
 
+
+
+*****
+
+####  一仙  
+##### 13725#       发表于 2021-12-13 19:08
+
+一直连着的吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nitro901  
+##### 13726#       发表于 2021-12-13 19:10
+
+毕竟都官宣这是播片了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cctvyt1  
+##### 13727#       发表于 2021-12-13 19:11
+
+声音还是没好 舞步比以前好点
+
+*****
+
+####  Fami水  
+##### 13728#       发表于 2021-12-13 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">劲有点大了 连着4首
+
+*****
+
+####  FCCHua  
+##### 13729#       发表于 2021-12-13 19:12
+
+果然不会是solo<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
