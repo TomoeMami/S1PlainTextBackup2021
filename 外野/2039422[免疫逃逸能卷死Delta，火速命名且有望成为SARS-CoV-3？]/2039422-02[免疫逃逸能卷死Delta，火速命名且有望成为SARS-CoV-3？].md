@@ -4707,3 +4707,27 @@ Omicron 传染这么快 是不是潜伏期更短了？
 
 <img src="https://p.sda1.dev/3/a55c3c5e43950ee31ade68360cfe7f93/IMG_CMP_67057956.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 1891#       发表于 2021-12-14 07:43
+
+阳性率上30%了
+
+South Africa COVID update: Positivity rate hits 31%
+
+- New cases: 13,992
+- Average: 20,488 (+1,087)
+- Positivity rate: 31.0% (+2.1)
+- In hospital: 6,198 (+635)
+- In ICU: 420 (+15)
+- New deaths: 11
+- Average: 25 (+1)
+
+真快
+Omicron will be dominant variant in London in 48 hours
+
+Britain says Omicron accounts for 40% of London infections （路透）
+
