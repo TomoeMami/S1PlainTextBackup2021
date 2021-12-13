@@ -4333,3 +4333,15 @@ Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作
 
 [https://www.timesofisrael.com/is ... -booster-effective/](https://www.timesofisrael.com/israeli-study-finds-2-pfizer-shots-fail-to-neutralize-omicron-but-booster-effective/) <blockquote>“The good news is with the booster dose there is significant protection. It is lower than the neutralization ability against Delta, about four times lower, but it is obviously very optimistic. Yet we don’t know if this will decrease with time and we’re working on that.”</blockquote>
 
+
+
+*****
+
+####  charse2r  
+##### 1858#       发表于 2021-12-13 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53916732&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-13 12:42</a>
+
+以色列卫生部长</blockquote>
+说好的轻症人类希望呢
+

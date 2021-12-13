@@ -1808,3 +1808,33 @@ tc
 
 还要再打一把不成，哈人
 
+
+
+*****
+
+####  遗忘回想  
+##### 6220#       发表于 2021-12-13 17:08
+
+补一下犬山那个突击空间，吊人今早这么早起是吧。今晚联动完铁定爆睡了
+
+*****
+
+####  雪风utopia  
+##### 6221#       发表于 2021-12-13 17:09
+
+播了这么久也太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6222#       发表于 2021-12-13 17:10
+
+播了快八个小时然后看live2个小时然后联动2个小时，播爆
+
+*****
+
+####  Klience  
+##### 6223#       发表于 2021-12-13 17:18
+
+联动完继续图奇lol 《充实的一天》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -12750,3 +12750,17 @@ co宝这一首送别给我整玉玉了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4460#       发表于 2021-12-13 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53920303&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-12-13 16:46</a>
+
+铃铛是带在哪的，脖子上吗？</blockquote>
+奇酷比
+
+衣服领子上的
+
