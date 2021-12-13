@@ -1568,3 +1568,26 @@ tc
 
 好，对面加油！早该制裁这种工作日杀害无辜熬夜社畜的人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6190#       发表于 2021-12-13 13:43
+
+太惨了，对面啊全员盯着mea杀……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6191#       发表于 2021-12-13 13:52
+
+终于输了
+
+*****
+
+####  遗忘回想  
+##### 6192#       发表于 2021-12-13 13:52
+
+好输，开香槟咯
+

@@ -4560,3 +4560,16 @@ https://video.weibo.com/show?fid=1034:4713657335218197</blockquote>
 
 sww，理论上青山姐大学毕业，不至于英语全忘了吧
 
+
+
+*****
+
+####  damian-wade  
+##### 1905#       发表于 2021-12-13 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53916860&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-13 12:50</a>
+sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
+麻圆也是刚毕业，还是外国人担当，并没有什么用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">霓虹那边发音基础教育就有问题，和学历关系不大吧
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
