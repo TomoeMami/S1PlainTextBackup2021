@@ -1379,3 +1379,25 @@ tc
 
 这人准备下了没，这阴间到极点的时间也是没谁了
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6169#       发表于 2021-12-13 11:01
+
+ 本帖最后由 古战场亡魂 于 2021-12-13 11:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53915224&amp;ptid=2018830" target="_blank">遗忘回想 发表于 2021-12-13 10:58</a>
+
+这人准备下了没，这阴间到极点的时间也是没谁了</blockquote>
+打的爽翻了，不是局外人，打上单能单杀，打adc能对线双杀，队伍小腿……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6170#       发表于 2021-12-13 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53915274&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2021-12-13 11:01</a>
+打的爽翻了，不是局外人，打上单能单杀，打adc能对线双杀，队伍小腿……这种感觉可好了。我发现她 ...</blockquote>
+她下了说一声吧，下午我把档丢自己号上补完得了。
+
