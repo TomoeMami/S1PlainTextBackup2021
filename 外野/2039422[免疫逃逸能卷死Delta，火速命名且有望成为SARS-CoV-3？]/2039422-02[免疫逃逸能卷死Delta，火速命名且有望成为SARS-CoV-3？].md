@@ -4310,3 +4310,26 @@ Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作
 
 所以对于无视疫苗的奥米克戎，自然是特别着急。
 
+
+
+*****
+
+####  克鲁特尼  
+##### 1856#       发表于 2021-12-13 16:21
+
+就看防疫比较好的古巴怎么样了
+
+*****
+
+####  Redis  
+##### 1857#       发表于 2021-12-13 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53919452&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-13 15:54</a>
+
+以色列防疫高度指望疫苗，对辉瑞BNT的订单下的比美国还早，应该是最早完成二针普及的。
+
+因为接种太早，今 ...</blockquote>
+以色列不是说3针之后产生的抗体的1/4可以中和omicron么
+
+[https://www.timesofisrael.com/is ... -booster-effective/](https://www.timesofisrael.com/israeli-study-finds-2-pfizer-shots-fail-to-neutralize-omicron-but-booster-effective/) <blockquote>“The good news is with the booster dose there is significant protection. It is lower than the neutralization ability against Delta, about four times lower, but it is obviously very optimistic. Yet we don’t know if this will decrease with time and we’re working on that.”</blockquote>
+

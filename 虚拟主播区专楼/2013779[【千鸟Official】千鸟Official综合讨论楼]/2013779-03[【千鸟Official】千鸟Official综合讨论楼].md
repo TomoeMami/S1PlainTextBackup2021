@@ -12714,3 +12714,12 @@ co宝这一首送别给我整玉玉了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我甚至今天才知道豆浆有咸的
 
+
+
+*****
+
+####  ml1642879  
+##### 4456#       发表于 2021-12-13 16:41
+
+反转了，耳机是女生送的，铃铛才是小男友送的
+
