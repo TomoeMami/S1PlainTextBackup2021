@@ -1886,3 +1886,88 @@ tc
 
 虽然但是，日本索尼至少能捞到几场3d直播和新歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不知道要付出什么了
 
+
+
+*****
+
+####  十九号大侠  
+##### 6230#       发表于 2021-12-13 20:28
+
+你们再说什么
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  甘栗No.007  
+##### 6231#       发表于 2021-12-13 20:32
+
+ 本帖最后由 甘栗No.007 于 2021-12-13 20:38 编辑 
+
+发生了什么？底边小麻要见top idol小指子？<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+我去，真的是女团，还是宅姐当p...
+
+不行了，看样子我真要跑了
+
+有缘再见
+
+*****
+
+####  古战场亡魂  
+##### 6232#       发表于 2021-12-13 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能和指原莉乃认识一下也不错了。
+
+就是没搞懂，叔叔你这组女团能不能目标准确点，mea和小红八竿子扯不上，和花园猫也不熟。
+
+粉丝都恨不得要打起来。mea也不是把重心放在哔哩哔哩的，其他两位在油管也混的不怎么样。
+
+你要组，直接找其他所谓p家的不成吗。
+
+*****
+
+####  T_Hb  
+##### 6233#       发表于 2021-12-13 20:33
+
+给阿b和索尼打一年工
+
+*****
+
+####  离心  
+##### 6234#       发表于 2021-12-13 20:34
+
+什么鬼，求求叔叔放过mea吧。就一个底边小主播真没什么油水可以榨了
+
+*****
+
+####  2014720  
+##### 6235#       发表于 2021-12-13 20:35
+
+虽然但是，你们怎么一开始就持悲观态度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6236#       发表于 2021-12-13 20:36
+
+这接雪糕，野良猫一个都没接到太惨了，对比肥婆纯纯坦克
+
+*****
+
+####  T_Hb  
+##### 6237#       发表于 2021-12-13 20:36
+
+ 本帖最后由 T_Hb 于 2021-12-13 20:39 编辑 
+
+我倒是没觉得啥，只要不是太占用时间，狠狠的训一下她也没啥，反正在家里也是打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+反正是阿B拉的投资，给发工资就当上班了
+
+*****
+
+####  LIPP  
+##### 6238#       发表于 2021-12-13 20:37
+
+真不是假新闻？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -8006,3 +8006,32 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">试了下c狗 第3面伤害居然不够  不知道带双狐+极地够不够 懒得试了  
 
+
+
+*****
+
+####  上坂莲华  
+##### 84730#       发表于 2021-12-13 20:28
+
+一看到311杀本我就知道我的3宝三藏又该一年一度的上班了
+
+然后发现蛾子1+自BUFF打不死2面，3宝三藏也有局限性啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+只能把尼托踢了换成道满，2面交降防快乐刷刷刷
+
+*****
+
+####  vacuumsword  
+##### 84731#       发表于 2021-12-13 20:31
+
+我用了appmedia上的海伦娜，三藏，奥伯龙组合，确实稳定
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yangun22  
+##### 84732#       发表于 2021-12-13 20:35
+
+试了一堆结果第三面能稳定一下打死的还是金时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

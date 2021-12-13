@@ -4614,3 +4614,12 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">本来还以为菜宝把油管直播时间改了会是周三…………sq有点慢啊
 
+
+
+*****
+
+####  cat1230  
+##### 1910#       发表于 2021-12-13 20:35
+
+看了个拉版关于ガチ恋的串儿，他们还真是压倒性的喜欢打铁啊。一对对的ガチ恋对象是打铁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
