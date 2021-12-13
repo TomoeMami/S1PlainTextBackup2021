@@ -12723,3 +12723,30 @@ co宝这一首送别给我整玉玉了
 
 反转了，耳机是女生送的，铃铛才是小男友送的
 
+
+
+*****
+
+####  夜潇箫  
+##### 4457#       发表于 2021-12-13 16:46
+
+铃铛?缅铃<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四叶的花  
+##### 4458#       发表于 2021-12-13 16:46
+
+铃铛是带在哪的，脖子上吗？
+
+*****
+
+####  人民de救星  
+##### 4459#       发表于 2021-12-13 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53920219&amp;ptid=2013779" target="_blank">ml1642879 发表于 2021-12-13 16:41</a>
+反转了，耳机是女生送的，铃铛才是小男友送的</blockquote>
+错误的，都是小男友送的<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
