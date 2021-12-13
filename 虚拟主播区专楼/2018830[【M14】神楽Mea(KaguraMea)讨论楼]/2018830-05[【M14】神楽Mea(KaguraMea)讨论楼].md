@@ -2332,3 +2332,105 @@ syl 结束了，最后秒杀了，不愧是肥坦
 
 能不能再多个偶像服
 
+
+
+*****
+
+####  IrisL  
+##### 6282#       发表于 2021-12-13 21:47
+
+竟然不是fake news害怕
+
+*****
+
+####  路人庚  
+##### 6283#       发表于 2021-12-13 21:47
+
+比起这些窝更希望阿咩到时候别跟指原莉乃弄出事情（
+
+<img src="https://img.saraba1st.com/forum/202112/13/214706ydzewwdw0zkh8rxw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3BABBBFA-7743-44FB-9D01-3E68B9DD8D86.jpeg</strong> (109.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-13 21:47 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|麻了|
+| 2014720| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  T_Hb  
+##### 6284#       发表于 2021-12-13 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 6285#       发表于 2021-12-13 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 6286#       发表于 2021-12-13 21:50
+
+什么替身攻击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 6287#       发表于 2021-12-13 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6288#       发表于 2021-12-13 21:52
+
+可是麻酱都毕业了啊（虽然不知道是不是一个人）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6289#       发表于 2021-12-13 21:53
+
+ 本帖最后由 T_Hb 于 2021-12-13 21:55 编辑 
+
+当然不是一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">渡边麻友20年就从娱乐圈run了
+
+*****
+
+####  梦魂落叶  
+##### 6290#       发表于 2021-12-13 21:57
+
+能不能先来丶懂哥科普一下饭圈撕part数和咖位是什么样子的，先预演一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IrisL  
+##### 6291#       发表于 2021-12-13 21:58
+
+建议先观察坤坤微博超话学习一下技巧
+
+*****
+
+####  T_Hb  
+##### 6292#       发表于 2021-12-13 21:58
+
+预演啥，1年就退团的临时工，肯定都没有个人资源的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌也是合唱，live也是一起上
+

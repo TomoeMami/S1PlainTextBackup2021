@@ -4397,3 +4397,16 @@ Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作
 
 海外输入早晚会有的，做好闭环就不怕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  omnitoken  
+##### 1864#       发表于 2021-12-13 22:00
+
+有人还记得delta从报道到出现在中国时间隔了多久嘛
+
+怎么感觉omicron速度快好多
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

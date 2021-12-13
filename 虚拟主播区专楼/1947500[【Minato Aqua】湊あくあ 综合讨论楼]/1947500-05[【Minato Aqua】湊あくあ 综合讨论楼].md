@@ -15724,3 +15724,21 @@ Joypolis的活动可能会有现地live
 
 Subs Only一开倒是感觉和平时的Crew差不多
 
+
+
+*****
+
+####  梅斯之围  
+##### 7289#       发表于 2021-12-13 21:42
+
+不知道为啥突发奇想要跑到老鼠台。
+这个点欧美那边还是大上午的，引得到鬼佬么，也就铁血crew才会追过去了
+难道是想锻炼抗压能力<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7290#       发表于 2021-12-13 21:49
+
+可能是烟瘾犯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

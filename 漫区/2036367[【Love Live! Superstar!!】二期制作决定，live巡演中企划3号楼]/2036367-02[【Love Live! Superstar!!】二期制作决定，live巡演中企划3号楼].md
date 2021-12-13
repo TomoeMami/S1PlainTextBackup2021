@@ -4642,3 +4642,12 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 怎么忍心ガチsayurin的，明明今年之前还是jk啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 1913#       发表于 2021-12-13 22:07
+
+哎我特讨厌这种，加的Q群有几个也是这样的，全是大学生，要么就讨论怎么导，昨天忍无可忍喷了一下，现在特别想退群，还好有几个正常的还能偶尔聊一下
+
