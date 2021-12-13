@@ -2415,3 +2415,85 @@ syl 怎么又哭了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cctvyt1  
+##### 13740#       发表于 2021-12-13 19:41
+
+目前来的只有TMT星街少见 其他一如往常的舒适圈成员
+
+
+
+*****
+
+####  cctvyt1  
+##### 13741#       发表于 2021-12-13 19:47
+
+好 二期正式解散 拆分到其他期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 13742#       发表于 2021-12-13 19:50
+
+能不能凑大亏分去三期嘛，这样亏哥一定对数字很满意吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 13743#       发表于 2021-12-13 19:50
+
+99651
+
+我宣布绫总才是二期的王
+
+*****
+
+####  Fami水  
+##### 13744#       发表于 2021-12-13 19:51
+
+是不是只有这首是现场的
+
+*****
+
+####  cctvyt1  
+##### 13745#       发表于 2021-12-13 19:53
+
+竟然有鼠垫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+记得绫总不太喜欢这种周边吧
+
+*****
+
+####  Fami水  
+##### 13746#       发表于 2021-12-13 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这鼠标垫强行画那么大 
+
+*****
+
+####  cctvyt1  
+##### 13747#       发表于 2021-12-13 19:55
+
+新原创 能不能再造奇观
+
+*****
+
+####  Fami水  
+##### 13748#       发表于 2021-12-13 19:58
+
+说录不好的 是这首吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 13749#       发表于 2021-12-13 20:00
+
+风格差不多但是感觉不如上一首，当然最近嗓子状态是真的不好，等听了单曲版再判断
+
+这次舞是真的练了的，但是唱的有点辣，遗憾
+
+那么接下来能播了吗
+

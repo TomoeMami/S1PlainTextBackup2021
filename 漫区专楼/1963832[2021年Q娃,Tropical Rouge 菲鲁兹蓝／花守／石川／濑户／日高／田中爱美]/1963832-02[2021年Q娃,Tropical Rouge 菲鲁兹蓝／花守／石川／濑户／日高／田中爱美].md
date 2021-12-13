@@ -12139,3 +12139,13 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 治愈好不容易把长大分别这套废了，可别再继续搞了。
 也不知道制作组怎么想的，搞成年结局除了给联动作品添堵外我看不出任何好处<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HGCG2  
+##### 2407#       发表于 2021-12-13 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53914204&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-12-13 09:49</a></blockquote>
+短发的声优就是好
+
