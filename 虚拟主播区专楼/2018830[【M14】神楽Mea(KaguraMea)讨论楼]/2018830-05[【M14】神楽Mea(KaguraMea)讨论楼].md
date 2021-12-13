@@ -2178,3 +2178,157 @@ tc
 
 完了，要吃蜂窝了
 
+
+
+*****
+
+####  2014720  
+##### 6266#       发表于 2021-12-13 21:21
+
+觉得不服去lga去隔壁喷啊，哪有在自家拉屎的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6267#       发表于 2021-12-13 21:23
+
+破防谈不上，说不定又有机会看着吊人哭呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 结束了，最后秒杀了，不愧是肥坦
+
+*****
+
+####  clvan_  
+##### 6268#       发表于 2021-12-13 21:24
+
+......我觉得原因全在“合计200w粉丝”这句话上了，太迷惑了
+
+你麻这不就是个肉盾，不安desu
+
+*****
+
+####  专业划水人员  
+##### 6269#       发表于 2021-12-13 21:24
+
+法国大力士
+
+*****
+
+####  T_Hb  
+##### 6270#       发表于 2021-12-13 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得就是阿B从上到下撸3个个人势
+
+
+
+*****
+
+####  rosevalley46  
+##### 6271#       发表于 2021-12-13 21:27
+
+没有流汗黄豆很难表达我看到这新闻的心情
+
+*****
+
+####  T_Hb  
+##### 6272#       发表于 2021-12-13 21:27
+
+ 本帖最后由 T_Hb 于 2021-12-13 21:30 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/13/212748ewjllnfljemcfpjp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-13 21:27 上传
+
+泪目
+
+*****
+
+####  clvan_  
+##### 6273#       发表于 2021-12-13 21:28
+
+马趴打一盘就结束了啊。
+
+心情复杂
+
+*****
+
+####  遗忘回想  
+##### 6274#       发表于 2021-12-13 21:29
+
+懒得管了，今天别再播了，九小时哈人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 6275#       发表于 2021-12-13 21:29
+
+这文章没看到呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被删了？
+
+*****
+
+####  遗忘回想  
+##### 6276#       发表于 2021-12-13 21:29
+
+删了也不会如何，总不可能空穴来风这么扯皮的东西
+
+*****
+
+####  专业划水人员  
+##### 6277#       发表于 2021-12-13 21:32
+
+希望能混到一两首高水平原创曲。
+
+*****
+
+####  路人庚  
+##### 6278#       发表于 2021-12-13 21:33
+
+挺欢乐的联动啊
+
+只是联动看完出来看见这么个新闻（虽然并没有感受到什么波动
+
+只是感觉你咩姐感觉像是被抓壮丁一样的就被抓上了，不过也许可以期待一个索尼出品的精致3Dmv了罢（
+
+<img src="https://img.saraba1st.com/forum/202112/13/213345ukal4lcklvlabpbk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8123B0F7-4EAB-42F8-9A83-E84FC3CAAD57.jpeg</strong> (164.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-13 21:33 上传
+
+*****
+
+####  clvan_  
+##### 6279#       发表于 2021-12-13 21:33
+
+ 本帖最后由 clvan_ 于 2021-12-13 21:36 编辑 
+
+那么，代价是什么呢。
+
+这三个人选太tm怪了，感觉之后要不暴死要不一天不得安宁<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">山雨欲来，当我是杞人忧天吧
+
+*****
+
+####  T_Hb  
+##### 6280#       发表于 2021-12-13 21:34
+
+ 本帖最后由 T_Hb 于 2021-12-13 21:40 编辑 
+
+哦，对了，还可以混件新3D
+
+这有什么代价，不就是阿B拉了投资要搞企划，抓了几个壮丁先充门面，“为企划热身”
+
+打工一年，白嫖点课；按老套路的话不就是每个月搞几期电台，3 4个月出首歌，半年或者1年搞个live，然后就退出企划了
+
+*****
+
+####  yywzjsw  
+##### 6281#       发表于 2021-12-13 21:36
+
+能不能再多个偶像服
+

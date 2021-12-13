@@ -8049,3 +8049,28 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 然后发现蛾子1+自BUFF打不死2面，3宝三藏也有局限 ...</blockquote>
 你把尼托换海伦娜
 
+
+
+*****
+
+####  khxooo  
+##### 84734#       发表于 2021-12-13 21:28
+
+没有三藏，只能换人姑姑了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84735#       发表于 2021-12-13 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次这破活动我感觉我没法满破礼装了
+
+*****
+
+####  不垃圾屌丝  
+##### 84736#       发表于 2021-12-13 21:38
+
+是我手上单体术太拉胯还是金钻头太强了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

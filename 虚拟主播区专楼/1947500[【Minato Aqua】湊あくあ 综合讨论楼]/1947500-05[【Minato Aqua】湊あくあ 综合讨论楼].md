@@ -15713,3 +15713,14 @@ Joypolis的活动可能会有现地live
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  nian1538  
+##### 7288#       发表于 2021-12-13 21:38
+
+一到Twitch就被台湾人抽烟刷屏
+
+Subs Only一开倒是感觉和平时的Crew差不多
+
