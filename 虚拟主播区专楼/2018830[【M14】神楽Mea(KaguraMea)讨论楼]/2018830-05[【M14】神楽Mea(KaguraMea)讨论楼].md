@@ -1591,3 +1591,37 @@ tc
 
 好输，开香槟咯
 
+
+
+*****
+
+####  Klience  
+##### 6193#       发表于 2021-12-13 14:12
+
+波比打铁男这不乱杀？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6194#       发表于 2021-12-13 14:16
+
+ 本帖最后由 遗忘回想 于 2021-12-13 14:18 编辑 
+
+把肥婆锁里面结果自己寄了，神必
+
+好死，多死死
+
+*****
+
+####  T_Hb  
+##### 6195#       发表于 2021-12-13 14:19
+
+完全完全不在乎
+
+*****
+
+####  Klience  
+##### 6196#       发表于 2021-12-13 14:19
+
+神分一出 护甲一堆起来 对面菜刀队根本打不动肥婆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
