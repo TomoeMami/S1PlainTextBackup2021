@@ -2525,3 +2525,70 @@ syl 结束了，最后秒杀了，不愧是肥坦
 
 没有流汗黄豆真的很难表达我的心情
 
+
+
+*****
+
+####  ashero  
+##### 6301#       发表于 2021-12-13 23:06
+
+指皇是真的很牛逼的级别 你麻能吃到多少经验值都算赚 
+
+*****
+
+####  古战场亡魂  
+##### 6302#       发表于 2021-12-13 23:13
+
+ 本帖最后由 古战场亡魂 于 2021-12-13 23:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">mea现在暴言少的多了，最近也就说说不要对努力抱有过高期待和批评一下每天上播生病卖惨的直播员……
+
+好家伙，全赶上了……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 6303#       发表于 2021-12-13 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 麻麻要经验来干嘛
+
+甚至不如认识些人 说不定能交个朋友 杂谈话题丰富一点 对V保持点新鲜和热情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6304#       发表于 2021-12-13 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925067&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2021-12-13 23:14</a>
+
+麻麻要经验来干嘛
+
+甚至不如认识些人 说不定能交个朋友 杂谈话题丰富一点 对V保持点新鲜和热情[f:03 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6305#       发表于 2021-12-13 23:16
+
+可以多上上课，狠狠的练歌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 6306#       发表于 2021-12-13 23:18
+
+ 本帖最后由 雪风utopia 于 2021-12-13 23:19 编辑 
+
+谁要和姨做朋友<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+syl 找个年轻肉体都比姨强<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 6307#       发表于 2021-12-13 23:20
+
+我觉得吧，这三个就是给海选的那个铺路的，指皇也可能是个挂名的，干涉到日常直播是肯定的，经验值不见得捞的到。
+

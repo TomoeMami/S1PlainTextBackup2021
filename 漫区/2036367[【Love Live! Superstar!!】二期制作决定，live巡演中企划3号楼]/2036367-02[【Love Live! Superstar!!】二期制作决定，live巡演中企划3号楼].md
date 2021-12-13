@@ -4660,3 +4660,19 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">按照中国人的习惯如果是国内团应该是青山最多吧，毕竟最漂亮（兼具有趣的灵魂）
 
+
+
+*****
+
+####  Norkey1  
+##### 1915#       发表于 2021-12-13 23:15
+
+虽然青山很有趣会整活，但比起其他几位更让我有一种遥不可及的感觉，这就是现充的气场吗，抹布洗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 1916#       发表于 2021-12-13 23:20
+
+2.99次元也不是3……太现充的选手自带debuff
+
