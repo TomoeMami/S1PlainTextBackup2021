@@ -4727,3 +4727,14 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Karin11974  
+##### 1922#       发表于 2021-12-14 06:41
+
+看过一些鲤鱼出道前漫展上台的视频，还有b站上以前的唱见视频，也不能说拉吧，挺悸动的，黑屁就是单纯想黑而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
