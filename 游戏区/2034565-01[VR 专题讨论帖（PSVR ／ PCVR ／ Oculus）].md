@@ -3233,3 +3233,14 @@ among us VR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Gir4ff3  
+##### 213#       发表于 2021-12-13 18:06
+
+看了看好像AMD ReLive能够比较好的支持quest 2
+
+有点想拿我的574一试了
+
