@@ -2230,3 +2230,21 @@ rushia：爱！
 
 不会真打算到前两小时开待机吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13720#       发表于 2021-12-13 14:26
+
+反正什么时候开待机都不影响百鬼组打钱的速度
+
+怎么现在回了生日推的管人除了Towa就只有哈弟，遮住ID还以为绫总是什么打枪管人
+
+*****
+
+####  FCCHua  
+##### 13721#       发表于 2021-12-13 14:34
+
+之前确实是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

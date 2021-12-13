@@ -437,3 +437,15 @@ ame：最近你们比较少看到bottom teeth是因为在直播时自己不那�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">BEEG KIARA
 
+
+
+*****
+
+####  wuzhengkai  
+##### 1545#       发表于 2021-12-13 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53908412&amp;ptid=1989758" target="_blank">shimmy1996 发表于 2021-12-12 18:19</a>
+
+ame：最近你们比较少看到bottom teeth是因为在直播时自己不那么经常笑了</blockquote>
+do you have a timestamp of that?
+
