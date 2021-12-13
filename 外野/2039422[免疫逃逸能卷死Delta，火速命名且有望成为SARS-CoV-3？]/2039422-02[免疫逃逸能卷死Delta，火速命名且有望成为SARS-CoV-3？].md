@@ -4658,3 +4658,29 @@ Omicron 传染这么快 是不是潜伏期更短了？
 双采双检是什么意思啊</blockquote>
 可能各地有细节差异，一般指不同医务人员同时采样、鼻咽两个部位同时采样、不同厂家试剂同时检测、不同检测机构同时检测、实验室两步法进行检测。
 
+
+
+*****
+
+####  droople  
+##### 1887#       发表于 2021-12-13 23:46
+
+<blockquote>引用第1885楼砥草于2021-12-13 23:40发表的  :
+
+引用:droople 发表于 2021-12-13 23:10双采双检是什么意思啊可能各地有细节差异......</blockquote>
+@砥草
+
+那入境的时候都是双采吧
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  yuandi0120  
+##### 1888#       发表于 2021-12-13 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925299&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-13 23:35</a>
+
+真要做还是可以做的。防疫凸前，帮他们去灭鼠...</blockquote>
+先把hk这个毒窝管起来吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -4686,3 +4686,33 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 今天是公布声优一周年了吧（日本时间），好快
 还记得当初公布声优时听说有国人就来楼里看看，结果被各种黑屁和yygq的谜语人给劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  cat1230  
+##### 1918#       发表于 2021-12-13 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925273&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-13 23:32</a>
+
+今天是公布声优一周年了吧（日本时间），好快
+
+还记得当初公布声优时听说有国人就来楼里看看，结果被各种黑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">就算是现在的国内，还有一边有组织（Q群）YYGQ鲤鱼，一边靠代购鲤鱼CD赚钱的淘宝店主儿呢。当初就不提了。
+
+*****
+
+####  chenflyyy  
+##### 1919#       发表于 2021-12-14 00:00
+
+还有鲤鱼也是进步很快，当初公认唱歌拉的现在1st都成团里最稳之一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 1920#       发表于 2021-12-14 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925507&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-13 23:59</a>
+就算是现在的国内，还有一边有组织（Q群）YYGQ鲤鱼，一边靠代购鲤鱼CD赚钱的淘宝店主儿呢。当初就 ...</blockquote>
+还好没在那个店买过东西
+
