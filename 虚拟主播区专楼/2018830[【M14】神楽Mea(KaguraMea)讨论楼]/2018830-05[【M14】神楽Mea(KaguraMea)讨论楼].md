@@ -1459,3 +1459,58 @@ tc
 
 这都没死
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6178#       发表于 2021-12-13 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对面为了杀mea，阵型乱了，被拉扯麻了……<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6179#       发表于 2021-12-13 12:26
+
+赶紧被暴打下播吧，日
+
+*****
+
+####  Rem-清曲  
+##### 6180#       发表于 2021-12-13 12:26
+
+工作时间的水友怎么比晚上的水友狠这么多
+
+
+
+*****
+
+####  遗忘回想  
+##### 6181#       发表于 2021-12-13 12:30
+
+哈人，你麻麻的，五点有麻酱的live所以那之前都能播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6182#       发表于 2021-12-13 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53916565&amp;ptid=2018830" target="_blank">遗忘回想 发表于 2021-12-13 12:30</a>
+
+哈人，你麻麻的，五点有麻酱的live所以那之前都能播</blockquote>
+还有个主要问题，今天队友给力，自己也给力，打到现在没输过。
+
+看这把熬夜波比了，说不定输了就休息了呢。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">开局队友送两人头，喜从天降。
+
+*****
+
+####  遗忘回想  
+##### 6183#       发表于 2021-12-13 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53916622&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2021-12-13 12:33</a>
+还有个主要问题，今天队友给力，自己也给力，打到现在没输过。
+
+看这把熬夜波比了，说不定输了就休息了呢。 ...</blockquote>
+反正这人今天精神的一批，下午我要挂着自己直播间听了
+

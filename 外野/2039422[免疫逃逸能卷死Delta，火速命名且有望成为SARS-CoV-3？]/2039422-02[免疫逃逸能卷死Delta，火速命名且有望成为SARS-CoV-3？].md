@@ -4259,3 +4259,16 @@ Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作
 Breaking：根据前BBC DO的消息，今晨曼联部分一线队球员和工作人员新冠检测阳性，今天球队无法正常进行小组 ...</blockquote>
 众所周知，英伦足球是不存在冬假的，不如说圣诞前后才是一年热点，好戏还在后头
 
+
+
+*****
+
+####  pushare  
+##### 1852#       发表于 2021-12-13 12:42
+
+以色列卫生部长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Health Minister Horowitz said that he was “very troubled by Omicron.
+
+“There are all sorts of indications that it could cause serious illness. We have decided on measures and an extension of existing regulations. "
+
