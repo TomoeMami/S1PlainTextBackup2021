@@ -1417,3 +1417,36 @@ tc
 
 饭点帮你下饭
 
+
+
+*****
+
+####  Klience  
+##### 6173#       发表于 2021-12-13 11:47
+
+不如说她打下路 下路没有打麻将就算她运气好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 6174#       发表于 2021-12-13 11:48
+
+不太懂你麻的想法，被飞n次了，还是要单走带线，难道其实很享受这个过程么<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6175#       发表于 2021-12-13 11:56
+
+爽
+
+*****
+
+####  古战场亡魂  
+##### 6176#       发表于 2021-12-13 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53915922&amp;ptid=2018830" target="_blank">Rem-清曲 发表于 2021-12-13 11:48</a>
+
+不太懂你麻的想法，被飞n次了，还是要单走带线，难道其实很享受这个过程么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不单走也是被飞的，对面也就只能强杀她了……
+
