@@ -4695,3 +4695,15 @@ Omicron 传染这么快 是不是潜伏期更短了？
 我记得德尔塔是隔了有几个月的样子，最初国际上炸裂时，国内对入境人员还专门要询问是否有印度及周边国家 ...</blockquote>
 也就北半球冬天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 1890#       发表于 2021-12-14 01:45
+
+颤抖了，老仙你还记得大壶节么？又要号召养大蛊了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/a55c3c5e43950ee31ade68360cfe7f93/IMG_CMP_67057956.jpeg" referrerpolicy="no-referrer">
+
