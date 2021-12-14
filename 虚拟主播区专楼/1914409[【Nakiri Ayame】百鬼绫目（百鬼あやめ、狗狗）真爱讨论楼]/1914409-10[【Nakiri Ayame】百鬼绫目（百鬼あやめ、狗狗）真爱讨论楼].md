@@ -2634,3 +2634,25 @@ syl 怎么又哭了
 
 人传人是吧
 
+
+
+*****
+
+####  昆西昆希昆  
+##### 13764#       发表于 2021-12-14 21:08
+
+怎么感觉有几张生日贺图和去年看过的一模一样捏。百鬼组和主播一起开摆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cctvyt1  
+##### 13765#       发表于 2021-12-14 21:16
+
+紫宝前阵子播太多休息一下挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+夸夸看起来是真的忙
+
+就绫总一副期末结束准备放假的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 昨天live都没请人画图
+

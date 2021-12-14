@@ -9113,3 +9113,36 @@ queen这就败了，太low了
 
 山治这也太强了，几乎是秒杀奎因。
 
+
+
+*****
+
+####  Yeaha123  
+##### 56208#       发表于 2021-12-14 21:00
+
+好像最近的中boss都是秒杀的
+
+*****
+
+####  银翼的维罗西  
+##### 56209#       发表于 2021-12-14 21:03
+
+queen太丢人了，作为觉醒动物系没有山治血条一半长
+
+*****
+
+####  tyauto  
+##### 56210#       发表于 2021-12-14 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53937327&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-12-14 21:03</a>
+
+queen太丢人了，作为觉醒动物系没有山治血条一半长</blockquote>
+queen本来就挺水的，大妈揍他比打布鲁克都轻松，赏金高估计和他会研发病毒有关吧，而且现在疫情期间这种角色太敏感还是早早退场为好
+
+*****
+
+####  天使的日曜日  
+##### 56211#       发表于 2021-12-14 21:15
+
+K太美型了不够硬汉，重画！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
