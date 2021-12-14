@@ -4731,3 +4731,14 @@ Omicron will be dominant variant in London in 48 hours
 
 Britain says Omicron accounts for 40% of London infections （路透）
 
+
+
+*****
+
+####  configxxxx  
+##### 1892#       发表于 2021-12-14 08:03
+
+<blockquote>克鲁特尼 发表于 2021-12-13 22:55
+要是长期化成了定局（指五年起步），那各地都得开工了</blockquote>
+要是真五年起步我觉得可以搞个隔离城了，所有入境都去那，建个一个跑道的小机场应该够了，各省派工作组进驻，然后各地方的压力应该也能小一点了
+
