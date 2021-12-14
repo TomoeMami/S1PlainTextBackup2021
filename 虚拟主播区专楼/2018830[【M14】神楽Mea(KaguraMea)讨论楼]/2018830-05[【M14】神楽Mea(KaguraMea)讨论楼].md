@@ -3264,3 +3264,37 @@ syl 看到个新关注画师，插画角色设计衣服设计都会接的那种�
 
 SYL 至少4周年保底了不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  若风之景  
+##### 6382#       发表于 2021-12-14 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  病態極端  
+##### 6383#       发表于 2021-12-14 22:16
+
+以前不是說自己絕對進不了企業嗎?
+
+神楽めあ是否變質了?
+
+*****
+
+####  T_Hb  
+##### 6384#       发表于 2021-12-14 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那是入职阿B了啊还是入职索尼了啊？
+
+*****
+
+####  Joffre✔  
+##### 6385#       发表于 2021-12-14 22:19
+
+这又不是进企业，就是参加个企划而已
+

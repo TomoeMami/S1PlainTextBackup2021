@@ -4921,3 +4921,49 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 鱼微博的小作文比推的长不少，难怪隔这么久，辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 1942#       发表于 2021-12-14 22:07
+
+最近一直忙，今天抽出时间更新下。
+分享下目前所有的巡演生肉链接吧（从群马一直更新到爱知）：
+「liella!在巡演」，点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载极速在线查看，视频原画倍速播放。
+链接：https://www.aliyundrive.com/s/LBog74FJ1RZ
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 1943#       发表于 2021-12-14 22:08
+
+熟肉方面可以找可香依然姐那边，不会日语做不了翻译。
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 1944#       发表于 2021-12-14 22:10
+
+又要泪目了，明明她的压力那么大，都只字未提还想着大家<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 1945#       发表于 2021-12-14 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一年了，现在这疫情也没办法回家…别人跨年还有家里人陪伴，鲤鱼这过年都得自己一个人
+
+这么一想忙点也好，能把节日感冲淡<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1946#       发表于 2021-12-14 22:22
+
+唉……一个人是真的不容易啊，更何况是在外国……
+

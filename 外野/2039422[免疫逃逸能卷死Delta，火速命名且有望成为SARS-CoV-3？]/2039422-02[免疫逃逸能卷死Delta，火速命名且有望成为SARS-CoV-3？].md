@@ -5197,3 +5197,12 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 
 真把瘟疫公司模型当真捏~~
 
+
+
+*****
+
+####  suhanblood  
+##### 1934#       发表于 2021-12-14 22:10
+
+瘟疫公司我现在感觉最假的甚至不是点了致死全世界病毒集体变身，而是人类科学家那可真nb，一警觉就开始研究，啥都能研究，特效药一茬茬研发，现实能有一半效率也没那多事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
