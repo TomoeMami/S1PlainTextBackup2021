@@ -4985,3 +4985,21 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 希望到时候能有几个朋友陪陪她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a92063256  
+##### 1949#       发表于 2021-12-14 22:46
+
+不太会写小作文<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">这种时候就比较捉急
+
+*****
+
+####  player3960  
+##### 1950#       发表于 2021-12-14 22:59
+
+今年除夕是一月底啊，要不让鲤鱼大年三十晚开个b站直播，陪她唠嗑跨年好了，反正好多年没看春晚了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -5218,3 +5218,19 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 瘟疫公司我现在感觉最假的甚至不是点了致死全世界病毒集体变身，而是人类科学家那可真nb，一警觉就开始研究 ...</blockquote>
 还有疫苗分发接种的效率，一开发出来就能迅速推广到全世界，tg都做不到这种程度，让发达国家在乎第三世界死活更是想都别想<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  马化云  
+##### 1936#       发表于 2021-12-14 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927724&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-14 09:40</a>
+
+新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
+耐热性？
+
+新冠有耐热一说？
+
+发个参考链接看看？谢谢
+
