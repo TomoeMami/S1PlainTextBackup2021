@@ -8307,3 +8307,15 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 有没有可能他们单纯是，抄作业成瘾
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84759#       发表于 2021-12-14 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53934493&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-14 17:25</a>
+
+有没有可能他们单纯是，抄作业成瘾</blockquote>
+问题是抄作业成瘾，这几次活动的90+也拿不出几个相对配置不是那么高的仇凛阵容啊，像这次活动一宝金时就能刷，他们还在那折腾什么百级2000芙芙3宝仇凛的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

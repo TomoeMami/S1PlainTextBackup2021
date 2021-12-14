@@ -3191,3 +3191,12 @@ syl 看到个新关注画师，插画角色设计衣服设计都会接的那种�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">看来叔叔也是坦克民，今天一天不黑叔叔了
 
+
+
+*****
+
+####  Cortana  
+##### 6374#       发表于 2021-12-14 17:21
+
+虽然没有实锤，但我还是想沿着网线冲进小麻家里狠狠地骂她<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

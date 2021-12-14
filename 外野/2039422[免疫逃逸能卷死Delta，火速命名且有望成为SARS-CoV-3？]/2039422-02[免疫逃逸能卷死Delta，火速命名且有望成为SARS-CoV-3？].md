@@ -5112,3 +5112,22 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 
 众所周知，在wenyi公司里点了传染率致死率就上不去，高传染虽然会造成短时间大面积传播，但是会提高科学家警惕性直接开始针对性研发，经常在点致死率之前就因为技能点不够而失败
 
+
+
+*****
+
+####  Redis  
+##### 1926#       发表于 2021-12-14 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53933900&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-14 16:41</a>
+
+不用等带英，南非这几周的超额死亡数已经翻倍，欧美要还是继续复读mild那等一个圣诞节火葬场爆满就完事了 ...</blockquote>
+上个圣诞也就那么回事儿，毛毛雨啦
+
+*****
+
+####  configxxxx  
+##### 1927#       发表于 2021-12-14 17:31
+
+又不是真的到得了走一百米路倒死三个的地步，欧美人民不会在乎的
+
