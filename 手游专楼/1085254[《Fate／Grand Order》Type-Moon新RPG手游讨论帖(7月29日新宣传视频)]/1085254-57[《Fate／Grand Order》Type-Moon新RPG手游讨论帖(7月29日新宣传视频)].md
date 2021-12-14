@@ -8186,3 +8186,15 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 ----发送自 STAGE1 App for Android.</blockquote>
 艹，都第11箱了还剩几个人没事刷100抽的啊，这功能的存在意义究竟是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 84747#       发表于 2021-12-14 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53930783&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-12-14 12:47</a>
+
+艹，都第11箱了还剩几个人没事刷100抽的啊，这功能的存在意义究竟是什么 ...</blockquote>
+后面才有意义啊，前面10箱本来就是活动中陆续要抽掉的，蛐蛐10箱也要不了多少时间。真正“肝”无限池的都是活动中不开箱蒙头刷，活动结束手里几万十几万的票子一次性开的，这100抽真是帮了大忙了，不光节省了抽的时间，狗粮也从2、3个一捆变成10个左右1捆，整理邮箱的时间也**减少了。当然，只要一键抽干一日不出，yls的母亲还是得在天上飞一段时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

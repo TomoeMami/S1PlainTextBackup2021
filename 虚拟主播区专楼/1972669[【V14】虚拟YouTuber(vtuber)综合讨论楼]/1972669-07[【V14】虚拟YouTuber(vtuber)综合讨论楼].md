@@ -4153,3 +4153,22 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 那要怎么样嘛，带病上肯定也要挨骂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月艾莉  
+##### 9349#       发表于 2021-12-14 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53926066&amp;ptid=1972669" target="_blank">本间日阳 发表于 2021-12-14 01:18</a>
+
+其实我第一次见到三角优华也是在指原主持的综艺里</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">指原界隈s是吧，我tm也是
+
+*****
+
+####  fastary  
+##### 9350#       发表于 2021-12-14 13:23
+
+道理我都懂啊，但是想到明年二月才能见面感觉打击好大…(つД`)
+
