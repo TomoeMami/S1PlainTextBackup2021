@@ -5060,3 +5060,46 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 天津的好歹还能回溯是波 ...</blockquote>
 之前有人说是加拿大回来的？
 
+
+
+*****
+
+####  namelessashen  
+##### 1921#       发表于 2021-12-14 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53928170&amp;ptid=2039422" target="_blank">蓝泽玲 发表于 2021-12-14 10:13</a>
+
+只能说相对delta是mild
+
+还是挺凶的</blockquote>
+如果南非数据真实的话，omicron的住院率，重症率，吸氧率，插管率，死亡率都挺低的
+
+*****
+
+####  smy20011  
+##### 1922#       发表于 2021-12-14 16:23
+
+<blockquote>namelessashen 发表于 2021-12-14 16:22
+如果南非数据真实的话，omicron的住院率，重症率，吸氧率，插管率，死亡率都挺低的 ...</blockquote>
+南非不是很好作为判断标准，一方面南非年轻人居多，自然免疫很足 另一方面有大量艾滋病人
+
+*****
+
+####  namelessashen  
+##### 1923#       发表于 2021-12-14 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53933648&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-14 16:23</a>
+
+南非不是很好作为判断标准，一方面南非年轻人居多，自然免疫很足 另一方面有大量艾滋病人 ...</blockquote>
+其实等两周看看英国情况应该就基本知道了，反正该爆炸就爆炸，mild symptoms的话也是全世界的幸运<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最好不说  
+##### 1924#       发表于 2021-12-14 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53933681&amp;ptid=2039422" target="_blank">namelessashen 发表于 2021-12-14 16:26</a>
+
+其实等两周看看英国情况应该就基本知道了，反正该爆炸就爆炸，mild symptoms的话也是全世界的幸运 ...</blockquote>
+不用等带英，南非这几周的超额死亡数已经翻倍，欧美要还是继续复读mild那等一个圣诞节火葬场爆满就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

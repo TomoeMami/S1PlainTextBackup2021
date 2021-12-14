@@ -8256,3 +8256,14 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 翻页
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84754#       发表于 2021-12-14 16:40
+
+等月球春晚再说<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
