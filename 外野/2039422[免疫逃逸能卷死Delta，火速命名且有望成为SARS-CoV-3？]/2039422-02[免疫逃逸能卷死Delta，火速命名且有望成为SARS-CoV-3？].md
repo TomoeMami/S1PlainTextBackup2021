@@ -4935,3 +4935,49 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 要是真五年起步我觉得可以搞个隔离城了，所有入境都去那，建个一个跑道的小机场应该够了，各省派工作组进 ...</blockquote>
 好家伙，然后还能给隔离城外的人们提供疫苗毒株，提供共存实验场所，甚至提供病毒治疗药物的实验人员。。。
 
+
+
+*****
+
+####  Kanoya  
+##### 1909#       发表于 2021-12-14 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53932339&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-14 14:55</a>
+好家伙，然后还能给隔离城外的人们提供疫苗毒株，提供共存实验场所，甚至提供病毒治疗药物的实验人员。。 ...</blockquote>
+装上VR仓鼠球还可以实验元宇宙生态圈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 1910#       发表于 2021-12-14 15:02
+
+<blockquote>charse2r 发表于 2021-12-14 14:53
+故意降低初期重症率也是病毒的一种策略，特别是增强传染性后，将极大的扩大传染，如果再慢慢后期转重症， ...</blockquote>
+病毒没理由转重症啊，又不是瘟疫公司，点一个变异全世界一起变。
+
+*****
+
+####  琉璃  
+##### 1911#       发表于 2021-12-14 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53928265&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-14 10:19</a>
+
+是不是mild对比最早武汉流行的毒株就行了，那个造成医疗挤兑以后是啥惨状大家都看到了，如果O变种比那个强 ...</blockquote>
+说白了就是delta相对高，而不是omicron低。
+
+早在今年8月剑桥就出了研究报告表明delta重症率是之前流行的新冠毒株的2.26倍。单从比值来看omicron甚至还是比以前的毒株重症率高一些，只不过不如delta这个特例而已——对，在重症率上delta才是特例。
+
+但问题是omicron免疫逃逸和疑似动物转播可比delta牛多了。
+
+而且，现在谁也不能明确地说omicron到底是真的相对重症率比delta低，还是只是演变到重症的周期比delta长。
+
+*****
+
+####  琉璃  
+##### 1912#       发表于 2021-12-14 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53932461&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-14 15:02</a>
+
+病毒没理由转重症啊，又不是瘟疫公司，点一个变异全世界一起变。</blockquote>
+他这个描述容易让人误解，应该换个说法，就是从轻症演变到重症的时间拉长，这确实是病毒增加隐蔽性的一种常见方式。
+

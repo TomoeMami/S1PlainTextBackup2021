@@ -3105,3 +3105,26 @@ syl 看到个新关注画师，插画角色设计衣服设计都会接的那种�
 
 刚看见这消息，人傻了
 
+
+
+*****
+
+####  onlv星骸  
+##### 6364#       发表于 2021-12-14 15:12
+
+仔细看这个就一年期间限定，估计就一起整点新曲，办个演唱会啥的。白嫖索尼音乐一年资源，之后自己发展，感觉也还不错。
+
+*****
+
+####  T_Hb  
+##### 6365#       发表于 2021-12-14 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键看工作强度
+
+*****
+
+####  onlv星骸  
+##### 6366#       发表于 2021-12-14 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就当跟前辈做偶像进修了，希望能把土妞的审美提起来啊
+

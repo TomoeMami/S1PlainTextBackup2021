@@ -4840,3 +4840,14 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 说不定要等字幕做好一起发的
 
+
+
+*****
+
+####  cat1230  
+##### 1933#       发表于 2021-12-14 15:15
+
+菜宝和鲤鱼全程中文要啥字幕啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
