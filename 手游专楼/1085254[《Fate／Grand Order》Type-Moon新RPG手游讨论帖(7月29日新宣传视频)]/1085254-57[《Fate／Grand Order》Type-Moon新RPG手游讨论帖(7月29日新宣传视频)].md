@@ -8613,3 +8613,26 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84789#       发表于 2021-12-14 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53938889&amp;ptid=1085254" target="_blank">月前琉璃 发表于 2021-12-14 23:13</a>
+
+我要是有奥伯龙会是这样子吗
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+你有奥伯龙就是秒杀三面啊
+
+955C7EF7-CCB3-4E23-B237-E89D37AD5FC9.png
+(814.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-14 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202112/14/235502krhh0y0whvhgkpip.png" referrerpolicy="no-referrer">
+

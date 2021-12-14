@@ -4251,3 +4251,20 @@ KING就是KING啊，资历地位都摆那儿，做啥都没什么好奇怪的了
 
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1gxdl6plzt6j20fh0i4qd7.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 9358#       发表于 2021-12-14 23:43
+
+riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中预告出道
+
+<img src="https://img.saraba1st.com/forum/202112/14/234309ay9ggjv499thte9t.png" referrerpolicy="no-referrer">
+
+<strong>riot.png</strong> (64.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-14 23:43 上传
+

@@ -5252,3 +5252,14 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 新变种太猛了，年底前就能把德尔塔干死了吧</blockquote>
 搞不好德尔塔和奥米克戎共存成功呢
 
+
+
+*****
+
+####  中二骚年  
+##### 1939#       发表于 2021-12-14 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53939140&amp;ptid=2039422" target="_blank">cumbland 发表于 2021-12-14 23:42</a>
+搞不好德尔塔和奥米克戎共存成功呢</blockquote>
+真正的德奥合并让全世界颤抖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
