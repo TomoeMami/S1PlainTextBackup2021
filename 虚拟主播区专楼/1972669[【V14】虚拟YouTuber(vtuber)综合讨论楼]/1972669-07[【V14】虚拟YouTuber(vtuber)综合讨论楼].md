@@ -4130,3 +4130,26 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 正好rofmao也是四人团……感觉无论是这个团吸走虹男观众还是引流到真人饭圈观众顺便看一眼维阿(虹)男都会很有乐子啊，不过维阿和虹都糊，最后井水不犯河水也很有可能
 
+
+
+*****
+
+####  dybang  
+##### 9346#       发表于 2021-12-14 13:08
+
+引流想多了吧，怎么可能撕得起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女粉比乐子人战斗力高多了
+
+*****
+
+####  fastary  
+##### 9347#       发表于 2021-12-14 13:08
+
+彻底休止对黑客本人来说是好事没错，但就虹这段时间的吃相让我很难相信是为了让他好好养病才取消一切官方活动的……或许这就是毒唯心理吧。
+
+*****
+
+####  OldGlory  
+##### 9348#       发表于 2021-12-14 13:11
+
+那要怎么样嘛，带病上肯定也要挨骂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
