@@ -5014,3 +5014,12 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 国内的爱豆从来没有这种感觉，就我自己而言。
 
+
+
+*****
+
+####  cybernetics31  
+##### 1952#       发表于 2021-12-15 00:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
