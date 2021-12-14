@@ -5263,3 +5263,15 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 搞不好德尔塔和奥米克戎共存成功呢</blockquote>
 真正的德奥合并让全世界颤抖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  环彩羽  
+##### 1940#       发表于 2021-12-15 01:11
+
+欢迎来到新冠纪元
+
+<strong>Omicron，生态化反，无限可能</strong>
+[https://zhuanlan.zhihu.com/p/445421471](https://zhuanlan.zhihu.com/p/445421471)
+
