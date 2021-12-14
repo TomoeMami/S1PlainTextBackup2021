@@ -8151,3 +8151,12 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  白金口袋  
+##### 84744#       发表于 2021-12-14 12:23
+
+话说100抽那个按钮在哪麻烦指个路？我点进去玛尔达界面还是单抽或十连啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

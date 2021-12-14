@@ -1857,3 +1857,12 @@ s1有狒狒群吗
 
 只有我觉得最后和大屁股对拳很带感吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 有种空我最后一战的感觉 虽然内核完全不同233
 
+
+
+*****
+
+####  阿刚  
+##### 180#       发表于 2021-12-14 12:11
+
+你们不觉得终末歌姬看起来很像弃天帝吗。。。
+
