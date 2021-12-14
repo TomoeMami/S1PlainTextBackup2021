@@ -4899,3 +4899,15 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
 是hiv创造了一个免疫力低下适合新冠养蛊的环境
 
+
+
+*****
+
+####  z92711  
+##### 1906#       发表于 2021-12-14 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53931490&amp;ptid=2039422" target="_blank">atomhappy 发表于 2021-12-14 13:47</a>
+
+是hiv创造了一个免疫力低下适合新冠养蛊的环境</blockquote>
+流感也是RNA病毒，感觉100年前的大流感没变异的这么夸张，那时候老美还懂得强制戴口罩。
+

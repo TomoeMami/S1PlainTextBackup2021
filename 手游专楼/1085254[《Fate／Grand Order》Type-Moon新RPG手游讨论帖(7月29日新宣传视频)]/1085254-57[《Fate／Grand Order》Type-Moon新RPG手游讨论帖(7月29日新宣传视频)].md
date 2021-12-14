@@ -8198,3 +8198,29 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 艹，都第11箱了还剩几个人没事刷100抽的啊，这功能的存在意义究竟是什么 ...</blockquote>
 后面才有意义啊，前面10箱本来就是活动中陆续要抽掉的，蛐蛐10箱也要不了多少时间。真正“肝”无限池的都是活动中不开箱蒙头刷，活动结束手里几万十几万的票子一次性开的，这100抽真是帮了大忙了，不光节省了抽的时间，狗粮也从2、3个一捆变成10个左右1捆，整理邮箱的时间也**减少了。当然，只要一键抽干一日不出，yls的母亲还是得在天上飞一段时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84748#       发表于 2021-12-14 14:35
+
+<blockquote>引用第84745楼白金口袋于2021-12-14 12:47发表的  :
+
+引用:黑上シグマ 发表于 2021-12-13 22:33第11箱开始才有----发送自 STAGE......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大概只有你这样的咸鱼才会觉得没意义
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 84749#       发表于 2021-12-14 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53929716&amp;ptid=1085254" target="_blank">月前琉璃 发表于 2021-12-14 11:47</a>
+
+在此推荐c狗双狐队，c狗需要1技能有20充能，3技能点满，50np礼装情况下，不需要绑定衣服，按照我自己的满破 ...</blockquote>
+你不如直接用c狗狐奥  伤害爆炸 还能实现好友自由
+
+不过这次阴间本不吃圣杯的c狗伤害是不够的
+

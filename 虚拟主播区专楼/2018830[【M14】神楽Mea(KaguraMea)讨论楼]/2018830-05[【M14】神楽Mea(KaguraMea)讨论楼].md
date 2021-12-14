@@ -3096,3 +3096,12 @@ syl 看到个新关注画师，插画角色设计衣服设计都会接的那种�
 
 有没有可能现在就在营业<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  燃烧的石头  
+##### 6363#       发表于 2021-12-14 14:22
+
+刚看见这消息，人傻了
+
