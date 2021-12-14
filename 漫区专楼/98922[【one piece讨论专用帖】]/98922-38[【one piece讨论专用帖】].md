@@ -9074,3 +9074,26 @@ db529e2f07082838df84bd24b299a9014c08f127.jpg
 
 Q败了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 56203#       发表于 2021-12-14 20:06
+
+K是个正常的大帅哥啊，现在我忘记前几话他那奇葩的招数了233
+
+*****
+
+####  刹那の劍  
+##### 56204#       发表于 2021-12-14 20:13
+
+K居然帅的一比
+
+*****
+
+####  chenflyyy  
+##### 56205#       发表于 2021-12-14 20:17
+
+queen这就败了，太low了
+

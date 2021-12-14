@@ -8351,3 +8351,88 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 你看今年有月姬联动吗</blockquote>
 我觉得菌皇两次提到月姬联动的访谈的语境意思都是没有（月姬联动）了
 
+
+
+*****
+
+####  exiaexa  
+##### 84763#       发表于 2021-12-14 20:04
+
+草，街机牛逼
+
+提亚马特时实装了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 84764#       发表于 2021-12-14 20:04
+
+提妈实装
+街机<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  当光停止  
+##### 84765#       发表于 2021-12-14 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有你的啊，盐川妈飞。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  v22325  
+##### 84766#       发表于 2021-12-14 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草了
+
+*****
+
+####  khxooo  
+##### 84767#       发表于 2021-12-14 20:12
+
+这个真的不能忍<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 84768#       发表于 2021-12-14 20:12
+
+街机?谁玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84769#       发表于 2021-12-14 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53936711&amp;ptid=1085254" target="_blank">zore 发表于 2021-12-14 20:12</a>
+
+街机?谁玩吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不太了解街机  问下这东西在日本到底什么水平  什么时候能死
+
+*****
+
+####  areklose  
+##### 84770#       发表于 2021-12-14 20:22
+
+其实街机最想要的还是铃鹿和女梅林，看看周五会不会爆波大
+
+*****
+
+####  zakki  
+##### 84771#       发表于 2021-12-14 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53935700&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-14 18:48</a>
+我觉得菌皇两次提到月姬联动的访谈的语境意思都是没有（月姬联动）了</blockquote>
+我也觉得是没有了，这次月姬发售fgo没动静，月姬格斗联动就给了一张呆毛的礼装，很明显想切割开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84772#       发表于 2021-12-14 20:25
+
+盐川什么时候爬啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
