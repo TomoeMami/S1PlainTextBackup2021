@@ -8436,3 +8436,73 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 
 盐川什么时候爬啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84773#       发表于 2021-12-14 20:26
+
+把最后一个剪影回收一下就完事了，瞎抱期望只会白白失望罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  阿提拉  
+##### 84774#       发表于 2021-12-14 20:26
+
+草了，废狗正统在街机。赶快搞死世嘉，我要提妈悉多梅莉悉多
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  angelooo  
+##### 84775#       发表于 2021-12-14 20:27
+
+街机你🐎死了，听见了没，不但你🐎死了你也去死吧，嘈你🐎的
+
+*****
+
+####  里村紅葉  
+##### 84776#       发表于 2021-12-14 20:30
+
+我看到街机终章实装所罗门的未来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84777#       发表于 2021-12-14 20:36
+
+4chan已经破防了，提妈在4chan那边人气一直很高，看到这个消息后立马打开4chan<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/4ad86829a472a4815d98981a3888449d/IMG_CMP_129039186.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 84778#       发表于 2021-12-14 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53936778&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-14 20:17</a>
+
+不太了解街机  问下这东西在日本到底什么水平  什么时候能死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">死了普天同乐的水平
+
+*****
+
+####  khxooo  
+##### 84779#       发表于 2021-12-14 20:42
+
+那么会不会为了和街机打对头，新年落地人王？如果是这样我可以接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 84780#       发表于 2021-12-14 20:43
+
+从我的角度来说还挺开心的
+
+刚付了首付现在穷得要死氪不动，麻烦明年周年再来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
