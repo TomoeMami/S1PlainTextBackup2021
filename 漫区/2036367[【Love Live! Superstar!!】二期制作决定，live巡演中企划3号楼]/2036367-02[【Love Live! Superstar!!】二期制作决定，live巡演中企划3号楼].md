@@ -4749,3 +4749,26 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 总之感谢鲤鱼和可可拉我回坑<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1924#       发表于 2021-12-14 08:53
+
+看来还真的不少受到那些臭鱼烂虾影响的路人啊，真是有点犯恶心。
+
+不过想想好不容易回坑，马上被花田用恋恋回暴击，真不知道谁才是真正的黑子。
+
+*****
+
+####  ads147147  
+##### 1925#       发表于 2021-12-14 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53926327&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-14 02:21</a>
+
+菜宝和鲤鱼不会拖到月底吧
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+看样子是。。录音应该是早就弄完了吧。
+
