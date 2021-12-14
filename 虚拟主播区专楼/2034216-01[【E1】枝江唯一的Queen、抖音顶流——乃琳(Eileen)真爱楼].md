@@ -4278,3 +4278,34 @@ syl粗听版，最终歌词请以官方为准
 筹码？counter！乃宝五楼自信锁下刀妹，舞剑仙爆杀炒作🐶！
 真别说，我觉得头饰就很像
 
+
+
+*****
+
+####  sanlow666  
+##### 324#         楼主| 发表于 2021-12-14 18:28
+
+乃琳Queen:
+
+（运营代发）
+
+素材来自12月11日A-SOUL周年直播
+
+歌曲：Sweet Counter
+
+表演：乃琳
+
+软件：基于Unity自研
+
+场景：自制
+
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202112/14/182831udthyvcuqshu9hwv.jpg" referrerpolicy="no-referrer">
+
+<strong>2e123377734e7efea2f02e71ccaf8d3e.jpg</strong> (103.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-14 18:28 上传
+

@@ -3200,3 +3200,15 @@ syl 看到个新关注画师，插画角色设计衣服设计都会接的那种�
 
 虽然没有实锤，但我还是想沿着网线冲进小麻家里狠狠地骂她<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  记莫更寂寞  
+##### 6375#       发表于 2021-12-14 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53934424&amp;ptid=2018830" target="_blank">Cortana 发表于 2021-12-14 17:21</a>
+
+虽然没有实锤，但我还是想沿着网线冲进小麻家里狠狠地骂她</blockquote>
+你都顺着网线冲进去了还只是骂一骂吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
