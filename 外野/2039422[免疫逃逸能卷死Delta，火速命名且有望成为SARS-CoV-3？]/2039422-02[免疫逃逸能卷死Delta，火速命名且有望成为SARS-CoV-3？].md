@@ -4742,3 +4742,15 @@ Britain says Omicron accounts for 40% of London infections （路透）
 要是长期化成了定局（指五年起步），那各地都得开工了</blockquote>
 要是真五年起步我觉得可以搞个隔离城了，所有入境都去那，建个一个跑道的小机场应该够了，各省派工作组进驻，然后各地方的压力应该也能小一点了
 
+
+
+*****
+
+####  烤烤鱼σ  
+##### 1893#       发表于 2021-12-14 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53926191&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-14 01:45:58</a>
+颤抖了，老仙你还记得大壶节么？又要号召养大蛊了？</blockquote>大仙：机会来了！看我蓄力大招，王仙的诅咒！<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
