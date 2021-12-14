@@ -4754,3 +4754,21 @@ Britain says Omicron accounts for 40% of London infections （路透）
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  z92711  
+##### 1894#       发表于 2021-12-14 09:40
+
+新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他病毒，获取它们的能力吧……Omicron不是有HIV病毒的基因片段么。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  birdma  
+##### 1895#       发表于 2021-12-14 09:44
+
+<blockquote>configxxxx 发表于 2021-12-14 08:03
+要是真五年起步我觉得可以搞个隔离城了，所有入境都去那，建个一个跑道的小机场应该够了，各省派工作组进 ...</blockquote>
+入境人员只是一方面，其他比如进出口贸易带来的，这个总不能像幕府似的就开一个口岸吧，还有就是边境偷渡来的，这个也不是那么好防。
+
