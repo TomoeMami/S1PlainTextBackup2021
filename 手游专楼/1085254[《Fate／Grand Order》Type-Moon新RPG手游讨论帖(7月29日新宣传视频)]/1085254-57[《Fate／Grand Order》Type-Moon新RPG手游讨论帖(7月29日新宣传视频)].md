@@ -8267,3 +8267,13 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  exiaexa  
+##### 84755#       发表于 2021-12-14 16:51
+
+比起魔夜，我只想让蘑菇和樱井这俩逼赶紧把FP和苍银的坑填掉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
