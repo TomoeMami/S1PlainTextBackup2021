@@ -4772,3 +4772,16 @@ Britain says Omicron accounts for 40% of London infections （路透）
 要是真五年起步我觉得可以搞个隔离城了，所有入境都去那，建个一个跑道的小机场应该够了，各省派工作组进 ...</blockquote>
 入境人员只是一方面，其他比如进出口贸易带来的，这个总不能像幕府似的就开一个口岸吧，还有就是边境偷渡来的，这个也不是那么好防。
 
+
+
+*****
+
+####  smy20011  
+##### 1896#       发表于 2021-12-14 09:55
+
+The head of the South African Medical Association refreshed her claims that the Omicron variant is 'mild' having spent one month treating patients with it.
+
+[https://www.lbc.co.uk/radio/pres ... esses-omicron-mild/](https://www.lbc.co.uk/radio/presenters/tom-swarbrick/south-africa-top-doc-angelique-coetzee-stresses-omicron-mild/)
+
+南非的首席医生（应该是这么翻译）可不可信呢？
+
