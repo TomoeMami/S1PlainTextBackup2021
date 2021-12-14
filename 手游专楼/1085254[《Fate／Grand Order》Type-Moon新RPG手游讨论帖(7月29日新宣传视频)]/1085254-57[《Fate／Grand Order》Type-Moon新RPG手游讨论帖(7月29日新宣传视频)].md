@@ -8506,3 +8506,56 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 刚付了首付现在穷得要死氪不动，麻烦明年周年再来
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 84781#       发表于 2021-12-14 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53937081&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-14 20:42</a>
+
+那么会不会为了和街机打对头，新年落地人王？如果是这样我可以接受</blockquote>
+所罗门(Prototype)<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 84782#       发表于 2021-12-14 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游这边猪都养好了，当然是随便搞，反正怎样都会氪氪氪
+
+*****
+
+####  zore  
+##### 84783#       发表于 2021-12-14 20:54
+
+翻页
+
+*****
+
+####  kyonkoism  
+##### 84784#       发表于 2021-12-14 20:56
+
+ 本帖最后由 kyonkoism 于 2021-12-14 20:58 编辑 
+
+参战街机还不是最草的，最草的是就是因为被手游仔暴打过了，所以本来就爱人类的提妈更有理由去帮忙了，虽然帮的是街机仔，，哈哈哈哈哈哈哈哈哈哈哈哈我好酸啊草！！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/14/205619b64doegj95lyzo9h.jpg" referrerpolicy="no-referrer">
+
+<strong>K4S~Y_XWM[T}]I)(TON4}B1.jpg</strong> (62.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-14 20:56 上传
+
+#看上去不太开心
+
+<img src="https://img.saraba1st.com/forum/202112/14/205800oo966a2s3arp9x3o.png" referrerpolicy="no-referrer">
+
+<strong>2M`KA937KUO$WZ[BHEQS40N.png</strong> (34.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-14 20:58 上传
+
