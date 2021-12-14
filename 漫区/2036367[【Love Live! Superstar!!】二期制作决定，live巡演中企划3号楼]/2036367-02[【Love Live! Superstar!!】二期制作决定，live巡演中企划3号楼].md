@@ -4772,3 +4772,21 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 ----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
 看样子是。。录音应该是早就弄完了吧。
 
+
+
+*****
+
+####  D麦林  
+##### 1926#       发表于 2021-12-14 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53926327&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-14 02:21</a>
+
+菜宝和鲤鱼不会拖到月底吧
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+看看今天会不会公布呗
+
+菜宝个人广播提前到今天了 不是不少人都猜是明天放节目
+
+我想了想好像昨天日子不适合公布消息 也许就是今天预告明天播呢
+

@@ -2862,3 +2862,47 @@ syl 找个年轻肉体都比姨强<img src="https://static.saraba1st.com/image/s
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6337#       发表于 2021-12-14 10:05
+
+ 本帖最后由 古战场亡魂 于 2021-12-14 10:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6338#       发表于 2021-12-14 10:12
+
+坦就是坦，到时候因为压塌舞台被指皇直接踢出去<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+健康生活也不存在的，未来只会因为彩排太累于是在放假时间半夜推限图奇tc熬死宅宅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+灰不灰不好说，肥这块铁定拿下了。
+
+*****
+
+####  古战场亡魂  
+##### 6339#       发表于 2021-12-14 10:17
+
+时隔三个月油管总算有新视频了，不过这倒数第四个是怎么回事，油管现在到底能不能留歌回啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/14/101710e5kax55d5w0k8wn0.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20211214101649536.jpg</strong> (55.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-14 10:17 上传
+
+*****
+
+####  遗忘回想  
+##### 6340#       发表于 2021-12-14 10:19
+
+这不就是生日那个嘛，以前记得也有留，可能选了点没那么容易被图图的曲子吧，加上音源自制规避ai啥的
+

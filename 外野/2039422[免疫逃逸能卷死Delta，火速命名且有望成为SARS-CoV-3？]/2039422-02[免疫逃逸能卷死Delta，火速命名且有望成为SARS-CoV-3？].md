@@ -4785,3 +4785,55 @@ The head of the South African Medical Association refreshed her claims that the 
 
 南非的首席医生（应该是这么翻译）可不可信呢？
 
+
+
+*****
+
+####  configxxxx  
+##### 1897#       发表于 2021-12-14 10:12
+
+<blockquote>birdma 发表于 2021-12-14 09:44
+入境人员只是一方面，其他比如进出口贸易带来的，这个总不能像幕府似的就开一个口岸吧，还有就是边境偷渡 ...</blockquote>
+是，不过就这么多次本土大规模确诊，似乎还是人员移动的问题大一些，比如禄口机场那次，五月份广州那次和去年年底石家庄那次，这次包邮区如果确认就是国航飞机消毒问题那似乎也可以归类为这个？这样的话我感觉大约可以相当程度降低各地防疫压力吧，陆路口岸其实相对威胁小一些的，满洲里和云南的疫情大多都集中在本地，被带出来也是因为到了旅游季，如果真的十年起步那去陆路口岸旅游的人应该会少很多吧
+
+海外货物这个似乎除了冷链还没有别的传出来的？
+
+*****
+
+####  蓝泽玲  
+##### 1898#       发表于 2021-12-14 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927938&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-14 09:55</a>
+The head of the South African Medical Association refreshed her claims that the Omicron variant is ' ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说相对delta是mild
+还是挺凶的
+
+南非入院患者得奥米克隆的重症率是31%，delta是66%
+
+Data released by the National Institute for Communicable Diseases (NICD) for Tshwane — the metropolitan area which includes Pretoria where the first suspected Omicron outbreak occurred — showed 1,633 admissions in public and private hospitals for COVID-19 between November 14 and December 8.
+
+Of those, 31 per cent were severe cases — defined as patients needing oxygen or mechanical ventilation — compared with 66 per cent early in the second wave of the coronavirus pandemic and 67 per cent in the early weeks of the first.
+
+[https://www.abc.net.au/news/2021 ... n-in-past/100689050](https://www.abc.net.au/news/2021-12-10/severe-illness-in-s-africa-s-omicron-outbreak-lower-than-in-past/100689050)
+
+*****
+
+####  configxxxx  
+##### 1899#       发表于 2021-12-14 10:19
+
+是不是mild对比最早武汉流行的毒株就行了，那个造成医疗挤兑以后是啥惨状大家都看到了，如果O变种比那个强的话…
+
+*****
+
+####  creymorgan  
+##### 1900#       发表于 2021-12-14 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927724&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-14 09:40</a>
+
+新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
+没啥奇怪的，就是感染规模大变异机会多，然后加上选择压力大。
+
+纯躺平，变异没有那么针对的方向性
+
+彻底拍死了，压根没有变异的机会
+
