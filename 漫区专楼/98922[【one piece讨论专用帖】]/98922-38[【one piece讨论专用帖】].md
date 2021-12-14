@@ -9182,3 +9182,12 @@ queen太丢人了，作为觉醒动物系没有山治血条一半长</blockquote
 
 看着尾田画丑男画多了，看king是一个正经帅哥都有点不习惯
 
+
+
+*****
+
+####  athena_1982  
+##### 56216#       发表于 2021-12-15 01:47
+
+好了，这下可以确认K不是从一拳超人那边过来客串的了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

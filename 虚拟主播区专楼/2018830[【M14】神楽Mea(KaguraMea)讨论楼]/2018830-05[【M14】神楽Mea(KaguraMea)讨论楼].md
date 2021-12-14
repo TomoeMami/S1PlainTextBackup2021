@@ -3364,3 +3364,136 @@ SYL 至少4周年保底了不是吗<img src="https://static.saraba1st.com/image/
 
 什么截图，我号一个都没了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2014720  
+##### 6394#       发表于 2021-12-15 01:41
+
+我去发吧
+
+*****
+
+####  遗忘回想  
+##### 6395#       发表于 2021-12-15 01:42
+
+他和谁共情你就说和他们的组没办法共情就完事了呗。
+
+难不成你要我半夜起来鞭一下它们前组长的尸体不成。
+
+*****
+
+####  clvan_  
+##### 6396#       发表于 2021-12-15 03:35
+
+半夜有点脑溢血。
+
+看了眼官网上指原那个视频，提到你麻的时候有点微妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鷹書たかしょ  
+##### 6397#       发表于 2021-12-15 03:50
+
+半夜被她这一搞我也有点睡不着了
+
+*****
+
+####  Rem-清曲  
+##### 6398#       发表于 2021-12-15 03:51
+
+别尬黑，这个点还没睡着肯定是自己问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2111X  
+##### 6399#       发表于 2021-12-15 03:59
+
+那个创意总监似乎是偶像中的杂谈选手，所以感觉这回会在你麻身上用点心。
+
+*****
+
+####  Rem-清曲  
+##### 6400#       发表于 2021-12-15 04:04
+
+指皇评价你麻的时候怎么还要停顿一下的，梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6401#       发表于 2021-12-15 04:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意儿看着好尬
+
+*****
+
+####  iuhehc  
+##### 6402#       发表于 2021-12-15 04:34
+
+顺其自然吧顺其自然<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6403#       发表于 2021-12-15 04:36
+
+ 本帖最后由 T_Hb 于 2021-12-15 05:01 编辑 
+
+我怎么没看到指皇锐评你咩的片段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这综艺竟然是抓着手机冲瀑布，是否有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+中国大人气日本vtuber，粉丝合计200w<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LIPP  
+##### 6404#       发表于 2021-12-15 04:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6405#       发表于 2021-12-15 04:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53940330&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-12-15 04:36</a>
+
+我怎么没看到指皇锐评你咩的片段
+
+这综艺竟然是抓着手机冲瀑布，是否有点 ...</blockquote>
+[https://youtu.be/n3OSJUsdzIw?t=112](https://youtu.be/n3OSJUsdzIw?t=112) 锐评时间戳
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  T_Hb  
+##### 6406#       发表于 2021-12-15 04:49
+
+ 本帖最后由 T_Hb 于 2021-12-15 05:30 编辑 
+
+可能没见过这么五毒俱全的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还要把她包装成偶像，想想都头疼
+
+这企划竟然在报纸上占了个版面
+
+syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2111X  
+##### 6407#       发表于 2021-12-15 05:25
+
+那不一定，vtuber撕皮看腻了，这回不得来次偶像团体撕皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

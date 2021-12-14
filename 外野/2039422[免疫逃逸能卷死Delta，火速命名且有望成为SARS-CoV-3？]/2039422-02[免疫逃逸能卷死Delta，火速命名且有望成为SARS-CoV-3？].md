@@ -5289,3 +5289,29 @@ Omicron，生态化反，无限可能
 </blockquote>
 这货人类之间的传播已经基本点满了吧，如果这次国内没破防那应该以后也没事，但是别点出跨物种传播能力啊...
 
+
+
+*****
+
+####  riczxc  
+##### 1942#         楼主| 发表于 2021-12-15 05:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53940004&amp;ptid=2039422" target="_blank">windrarara 发表于 2021-12-15 01:31</a>
+
+这货人类之间的传播已经基本点满了吧，如果这次国内没破防那应该以后也没事，但是别点出跨物种传播能力啊 ...</blockquote>
+其他变种的跨物种传播能力早就点出来了呀？
+
+*****
+
+####  riczxc  
+##### 1943#         楼主| 发表于 2021-12-15 05:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53939903&amp;ptid=2039422" target="_blank">环彩羽 发表于 2021-12-15 01:11</a>
+
+欢迎来到新冠纪元
+
+Omicron，生态化反，无限可能</blockquote>
+阴间变种其实很多，很多都没经过实践的检验。之所以第一时间就发了这个B.1.1.529的帖子（而不是拍老师之前的帖子），也是因为当时它已经证明了自己。
+
+但是，大趋势上，用遗传算法进行优化，不清零，结果很显然。不知道为什么专家们还大吃一惊。
+
