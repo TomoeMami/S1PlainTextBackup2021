@@ -4738,3 +4738,14 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  player3960  
+##### 1923#       发表于 2021-12-14 08:35
+
+我还好，当初看了第一话可可的切片，觉得这个声优中文和日语都配的好好啊，然后就认识了鲤鱼，而那些黑屁反倒是之后考古爬楼才看到的，不过那时候已经影响不到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总之感谢鲤鱼和可可拉我回坑<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
