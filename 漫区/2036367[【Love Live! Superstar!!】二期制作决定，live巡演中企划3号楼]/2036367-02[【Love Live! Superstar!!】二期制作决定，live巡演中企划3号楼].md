@@ -4851,3 +4851,32 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  D麦林  
+##### 1934#       发表于 2021-12-14 15:34
+
+清醒点 放个节目要审核啥啊
+
+*****
+
+####  chenflyyy  
+##### 1935#       发表于 2021-12-14 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53932661&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-14 15:15</a>
+菜宝和鲤鱼全程中文要啥字幕啊
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+日文字幕啊，不过想想官方说过日文字幕明年1月才出的
+
+*****
+
+####  Karin11974  
+##### 1936#       发表于 2021-12-14 15:38
+
+其实跟往常一样直接油管跟阿b同步播就是了，还搞什么字幕，只能说日本那边还是走心点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

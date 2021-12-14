@@ -4181,3 +4181,28 @@ Virtual Cinderella Project这是什么？开闭的指皇担纲<img src="https://
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">还是让他好好休息吧
 
+
+
+*****
+
+####  lor  
+##### 9352#       发表于 2021-12-14 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53909999&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-12-12 21:05:23</a>
+心跳回忆GS4这个乙游新作直播解禁以后就接二连三有人播起来了
+
+虹社第一个播的是豆猫这个男的就很搞
+
+还放了 ...</blockquote>那该尊称KING一声哥了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">也可以来看看星的岸堂天真，GS4一样是可爱TS放封面
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  rzrbtk  
+##### 9353#       发表于 2021-12-14 15:34
+
+体感上最近比较多主播在忙非直播相关事，不知是私事还是虹想搞个（工作量）大的，能有回报就好了<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
