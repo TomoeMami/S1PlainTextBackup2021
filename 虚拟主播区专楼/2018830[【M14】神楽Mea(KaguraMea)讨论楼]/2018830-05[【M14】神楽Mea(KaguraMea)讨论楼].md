@@ -2906,3 +2906,21 @@ syl 找个年轻肉体都比姨强<img src="https://static.saraba1st.com/image/s
 
 这不就是生日那个嘛，以前记得也有留，可能选了点没那么容易被图图的曲子吧，加上音源自制规避ai啥的
 
+
+
+*****
+
+####  十九号大侠  
+##### 6341#       发表于 2021-12-14 10:33
+
+指皇有啥黑历史，你们这么怕？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  雪风utopia  
+##### 6342#       发表于 2021-12-14 10:34
+
+大家可能怕的是和小红她们组队<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

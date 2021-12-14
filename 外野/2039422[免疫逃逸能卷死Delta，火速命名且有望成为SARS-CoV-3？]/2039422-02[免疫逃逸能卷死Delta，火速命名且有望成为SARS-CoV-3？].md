@@ -4837,3 +4837,24 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 
 彻底拍死了，压根没有变异的机会
 
+
+
+*****
+
+####  eveshell  
+##### 1901#       发表于 2021-12-14 10:24
+
+ 本帖最后由 eveshell 于 2021-12-14 10:26 编辑 
+
+拍总的新想法，丹麦的同期入院率对比， omicron&gt; delta，提升10%。再考虑到感染者年龄组的区别，以及接种率的区别。结论很焦虑。而且发生了9个院感病例。
+
+*****
+
+####  希斯塔姆  
+##### 1902#       发表于 2021-12-14 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927724&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-14 09:40</a>
+
+新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
+下一代直接命名为沙鲁吧，再下一代布欧<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
+
