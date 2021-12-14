@@ -8577,3 +8577,39 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">街机死球还能再把3D和这些卫星搬到手机端从头续命是吧，盐川wcnm
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84787#       发表于 2021-12-14 23:07
+
+ 本帖最后由 gpx234mqx 于 2021-12-14 23:09 编辑 
+
+现在高难究竟是咋回事
+
+都TM红宝具连发解决一切问题
+
+没有双狐奥贝隆梅林陈宫全Buff不能解决的，有就再来一个暴击
+
+6BCB15E9-9296-4E4E-B18A-CE7DB4061DDF.png
+(675.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-14 23:06 上传
+
+<img src="https://img.saraba1st.com/forum/202112/14/230646zcllzp63zzzm8lcy.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月前琉璃  
+##### 84788#       发表于 2021-12-14 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53932213&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-14 14:46:51</a>
+你不如直接用c狗狐奥  伤害爆炸 还能实现好友自由
+
+不过这次阴间本不吃圣杯的c狗伤害是不够的 ...</blockquote>我要是有奥伯龙会是这样子吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
