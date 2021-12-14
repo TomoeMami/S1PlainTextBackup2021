@@ -5275,3 +5275,17 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 <strong>Omicron，生态化反，无限可能</strong>
 [https://zhuanlan.zhihu.com/p/445421471](https://zhuanlan.zhihu.com/p/445421471)
 
+
+
+*****
+
+####  windrarara  
+##### 1941#       发表于 2021-12-15 01:31
+
+<blockquote>环彩羽 发表于 2021-12-15 01:11
+欢迎来到新冠纪元
+
+Omicron，生态化反，无限可能
+</blockquote>
+这货人类之间的传播已经基本点满了吧，如果这次国内没破防那应该以后也没事，但是别点出跨物种传播能力啊...
+
