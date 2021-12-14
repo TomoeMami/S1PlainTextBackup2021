@@ -8277,3 +8277,33 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 比起魔夜，我只想让蘑菇和樱井这俩逼赶紧把FP和苍银的坑填掉
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84756#       发表于 2021-12-14 17:11
+
+nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光炮的，因为沉没成本吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84757#       发表于 2021-12-14 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53933266&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-14 15:56</a>
+
+明年魔夜联动了</blockquote>
+你看今年有月姬联动吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 84758#       发表于 2021-12-14 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53934285&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-14 17:11</a>
+
+nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光炮的，因为沉没成本吗 ...</blockquote>
+有没有可能他们单纯是，抄作业成瘾
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5103,3 +5103,12 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 其实等两周看看英国情况应该就基本知道了，反正该爆炸就爆炸，mild symptoms的话也是全世界的幸运 ...</blockquote>
 不用等带英，南非这几周的超额死亡数已经翻倍，欧美要还是继续复读mild那等一个圣诞节火葬场爆满就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yichengyu  
+##### 1925#       发表于 2021-12-14 17:20
+
+众所周知，在wenyi公司里点了传染率致死率就上不去，高传染虽然会造成短时间大面积传播，但是会提高科学家警惕性直接开始针对性研发，经常在点致死率之前就因为技能点不够而失败
+
