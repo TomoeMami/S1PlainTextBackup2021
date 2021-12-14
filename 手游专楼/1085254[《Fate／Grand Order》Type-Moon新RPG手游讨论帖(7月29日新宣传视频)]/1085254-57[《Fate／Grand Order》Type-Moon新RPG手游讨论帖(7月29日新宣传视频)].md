@@ -8126,3 +8126,15 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">放弃思考，陈宫炮击队走起，刚好c呆还有4w羁绊就11羁绊了，刷了不亏
 
+
+
+*****
+
+####  khxooo  
+##### 84742#       发表于 2021-12-14 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53925801&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-14 00:41</a>
+
+微氪吃亏在各种单体宝具没有或者1宝，都打不死2面</blockquote>
+两宝姑姑+梅林，在宝具前加张卡，就能稳定打死大鬼了。
+
