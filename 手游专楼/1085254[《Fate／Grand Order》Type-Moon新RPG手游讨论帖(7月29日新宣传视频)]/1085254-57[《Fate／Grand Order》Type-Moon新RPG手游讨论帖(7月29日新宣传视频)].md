@@ -8160,3 +8160,29 @@ CBA宝具本？你在逗我吗<img src="https://static.saraba1st.com/image/smile
 
 话说100抽那个按钮在哪麻烦指个路？我点进去玛尔达界面还是单抽或十连啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84745#       发表于 2021-12-14 12:33
+
+<blockquote>引用第84743楼白金口袋于2021-12-14 12:23发表的  :
+
+话说100抽那个按钮在哪麻烦指个路？我点进去玛尔达界面还是单抽或十连啊</blockquote>
+第11箱开始才有
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  白金口袋  
+##### 84746#       发表于 2021-12-14 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53930569&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-13 22:33</a>
+
+第11箱开始才有
+
+----发送自 STAGE1 App for Android.</blockquote>
+艹，都第11箱了还剩几个人没事刷100抽的啊，这功能的存在意义究竟是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
