@@ -4858,3 +4858,20 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
 下一代直接命名为沙鲁吧，再下一代布欧<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  砥草  
+##### 1903#       发表于 2021-12-14 10:53
+
+<blockquote>droople 发表于 2021-12-13 23:46
+@砥草
+
+那入境的时候都是双采吧
+
+</blockquote>
+各地有可能不同……
+
+有的是一律21天，有的是14+7。集中隔离期间要做多次核酸，有的是全部双采双检，有的是某几次双采双检，有的边境地区也是集中隔离+双采双检阴性才放行。
+

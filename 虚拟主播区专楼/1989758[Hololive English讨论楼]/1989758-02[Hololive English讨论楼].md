@@ -460,3 +460,23 @@ do you have a timestamp of that?
 do you have a timestamp of that?</blockquote>
 [https://youtu.be/nc9SyfqgXfk](https://youtu.be/nc9SyfqgXfk) 11:30 (member’s stream
 
+
+
+*****
+
+####  shimmy1996  
+##### 1547#       发表于 2021-12-14 10:55
+
+Kronii likes Fortnite<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+下次可能有amesame+kroniimei一起玩<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 1548#       发表于 2021-12-14 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53922153&amp;ptid=1989758" target="_blank">shimmy1996 发表于 2021-12-13 18:59</a>
+
+https://youtu.be/nc9SyfqgXfk 11:30 (member’s stream</blockquote>
+谢谢 这个播的时候我自己开了个玩 然后发现这游戏其实很需要attention。。
+
