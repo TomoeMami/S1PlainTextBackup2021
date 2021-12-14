@@ -4343,3 +4343,14 @@ syl粗听版，最终歌词请以官方为准
 
 希望乃琳的红码不要看
 
+
+
+*****
+
+####  一般通过广纤  
+##### 329#       发表于 2021-12-15 00:56
+
+乃琳的单曲真的好听绝绝子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
