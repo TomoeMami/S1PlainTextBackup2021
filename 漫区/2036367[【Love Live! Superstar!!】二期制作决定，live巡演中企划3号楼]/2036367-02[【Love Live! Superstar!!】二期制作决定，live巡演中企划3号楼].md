@@ -4967,3 +4967,21 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 唉……一个人是真的不容易啊，更何况是在外国……
 
+
+
+*****
+
+####  lj205  
+##### 1947#       发表于 2021-12-14 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">遇见Liella！遇见鲤鱼真是太好了
+
+*****
+
+####  CAserlumos  
+##### 1948#       发表于 2021-12-14 22:30
+
+大年三十多少应该能放天假吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+希望到时候能有几个朋友陪陪她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
