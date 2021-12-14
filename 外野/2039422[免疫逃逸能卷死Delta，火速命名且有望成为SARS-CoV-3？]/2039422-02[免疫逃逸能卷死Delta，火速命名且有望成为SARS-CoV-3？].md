@@ -5131,3 +5131,25 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 
 又不是真的到得了走一百米路倒死三个的地步，欧美人民不会在乎的
 
+
+
+*****
+
+####  sjbssd  
+##### 1928#       发表于 2021-12-14 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927724&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-14 09:40</a>
+
+新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
+你理解成病毒的基因片段在细胞里就像游戏王抽卡一样，不仅洗牌，还可以印卡
+
+*****
+
+####  sjbssd  
+##### 1929#       发表于 2021-12-14 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53934402&amp;ptid=2039422" target="_blank">yichengyu 发表于 2021-12-14 17:20</a>
+
+众所周知，在wenyi公司里点了传染率致死率就上不去，高传染虽然会造成短时间大面积传播，但是会提高科学家 ...</blockquote>
+你把坏疽点开来就可以堆致死了，只要气溶胶点出来了，配合坏疽，就可以融合致死和传播两种模式
+
