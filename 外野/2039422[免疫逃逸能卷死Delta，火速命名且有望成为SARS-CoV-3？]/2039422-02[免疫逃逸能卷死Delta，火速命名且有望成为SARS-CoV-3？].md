@@ -5234,3 +5234,21 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 
 发个参考链接看看？谢谢
 
+
+
+*****
+
+####  sdefrfg  
+##### 1937#       发表于 2021-12-14 23:38
+
+新变种太猛了，年底前就能把德尔塔干死了吧
+
+*****
+
+####  cumbland  
+##### 1938#       发表于 2021-12-14 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53939105&amp;ptid=2039422" target="_blank">sdefrfg 发表于 2021-12-14 23:38</a>
+新变种太猛了，年底前就能把德尔塔干死了吧</blockquote>
+搞不好德尔塔和奥米克戎共存成功呢
+
