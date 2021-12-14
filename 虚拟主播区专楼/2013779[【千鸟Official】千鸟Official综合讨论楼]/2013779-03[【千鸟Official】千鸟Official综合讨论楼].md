@@ -12811,3 +12811,22 @@ co宝这一首送别给我整玉玉了
 —— 来自 S1Fun</blockquote>
 亚达呦 我不想知道这些
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4465#       发表于 2021-12-14 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927055&amp;ptid=2013779" target="_blank">希克苏鲁伯 发表于 2021-12-14 08:36</a>
+
+之前哪次说过奶奶送的，脚踝上吧</blockquote>
+脚踝上是妈妈送来保平安用的红绳
+
+*****
+
+####  四叶的花  
+##### 4466#       发表于 2021-12-14 14:00
+
+脚踝上那可太色了
+

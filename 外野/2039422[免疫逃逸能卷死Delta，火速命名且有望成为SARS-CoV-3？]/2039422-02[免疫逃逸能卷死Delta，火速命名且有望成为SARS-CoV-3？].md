@@ -4887,3 +4887,15 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
 和HIV病毒没啥关系，只是推测omicron可能是在艾滋病患者这种免疫缺陷人群持续感染新冠以后演化而来，而且就算同时感染了，一个在肺部上皮细胞细胞质一个在t细胞细胞核，相隔十万八千里，omicron上哪吞噬HIV片段
 
+
+
+*****
+
+####  atomhappy  
+##### 1905#       发表于 2021-12-14 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927724&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-14 09:40</a>
+
+新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
+是hiv创造了一个免疫力低下适合新冠养蛊的环境
+
