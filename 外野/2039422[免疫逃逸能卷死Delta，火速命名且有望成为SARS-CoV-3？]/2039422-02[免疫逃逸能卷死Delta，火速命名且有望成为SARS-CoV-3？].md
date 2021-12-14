@@ -4911,3 +4911,27 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 是hiv创造了一个免疫力低下适合新冠养蛊的环境</blockquote>
 流感也是RNA病毒，感觉100年前的大流感没变异的这么夸张，那时候老美还懂得强制戴口罩。
 
+
+
+*****
+
+####  charse2r  
+##### 1907#       发表于 2021-12-14 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53928170&amp;ptid=2039422" target="_blank">蓝泽玲 发表于 2021-12-14 10:13</a>
+
+只能说相对delta是mild
+
+还是挺凶的</blockquote>
+故意降低初期重症率也是病毒的一种策略，特别是增强传染性后，将极大的扩大传染，如果再慢慢后期转重症，简直就是病毒王者了。
+
+*****
+
+####  charse2r  
+##### 1908#       发表于 2021-12-14 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53926838&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-14 08:03</a>
+
+要是真五年起步我觉得可以搞个隔离城了，所有入境都去那，建个一个跑道的小机场应该够了，各省派工作组进 ...</blockquote>
+好家伙，然后还能给隔离城外的人们提供疫苗毒株，提供共存实验场所，甚至提供病毒治疗药物的实验人员。。。
+
