@@ -5010,3 +5010,22 @@ Of those, 31 per cent were severe cases — defined as patients needing oxygen o
 
 不过坐了飞机，这一飞机的人…
 
+
+
+*****
+
+####  C.W.Nimitz  
+##### 1916#       发表于 2021-12-14 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53932088&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-13 22:38</a>
+
+流感也是RNA病毒，感觉100年前的大流感没变异的这么夸张，那时候老美还懂得强制戴口罩。 ...</blockquote>
+不能这么比，100年前压根就没人去测病毒变异，变了多少次没人知道
+
+*****
+
+####  砥草  
+##### 1917#       发表于 2021-12-14 15:48
+
+所以说直接集中隔离21天为什么不听，坚持要留着7天的漏洞是想干嘛-_-
+
