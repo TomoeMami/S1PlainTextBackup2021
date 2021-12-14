@@ -9146,3 +9146,21 @@ queen本来就挺水的，大妈揍他比打布鲁克都轻松，赏金高估计
 
 K太美型了不够硬汉，重画！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qwxbtgb  
+##### 56212#       发表于 2021-12-14 21:32
+
+坐等k用那招自尊什么的
+
+*****
+
+####  qwxbtgb  
+##### 56213#       发表于 2021-12-14 21:33
+
+<blockquote>银翼的维罗西 发表于 2021-12-14 21:03
+queen太丢人了，作为觉醒动物系没有山治血条一半长</blockquote>
+百兽海贼团指和之国，看武士在哪仰卧起坐，凯多团一次就倒
+

@@ -12873,3 +12873,21 @@ co宝这一首送别给我整玉玉了
 
 白白念啥了，刚进直播间就看到个警告<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gawain039  
+##### 4472#       发表于 2021-12-14 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53937467&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-14 21:16</a>
+白白念啥了，刚进直播间就看到个警告</blockquote>
+豆瓣老帖子，一个女生和三线女艺人暧昧了一个月
+
+*****
+
+####  gawain039  
+##### 4473#       发表于 2021-12-14 21:27
+
+当时快到床战环节了
+
