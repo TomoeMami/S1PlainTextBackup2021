@@ -5266,3 +5266,14 @@ jitsuwa~</blockquote>
 
 补了下当年一直没看的水团两季，真是越看越愤怒，S2十话开始好不容易有点无印S2的味道了结果结尾整一堆神神叨叨的东西，花田真的是脑子有问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 1975#       发表于 2021-12-16 07:23
+
+菜宝鲤鱼那个节目不是提前录的话感觉都可以排除法推日子了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
