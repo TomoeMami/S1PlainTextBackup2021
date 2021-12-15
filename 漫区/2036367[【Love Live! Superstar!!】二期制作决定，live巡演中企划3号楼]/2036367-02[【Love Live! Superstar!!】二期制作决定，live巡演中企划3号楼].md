@@ -5257,3 +5257,12 @@ jitsuwa~</blockquote>
 
 盲盒真坏文明，总共开了五个，三个校服香音焯
 
+
+
+*****
+
+####  stygian  
+##### 1974#       发表于 2021-12-16 02:58
+
+补了下当年一直没看的水团两季，真是越看越愤怒，S2十话开始好不容易有点无印S2的味道了结果结尾整一堆神神叨叨的东西，花田真的是脑子有问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
