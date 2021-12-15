@@ -4285,3 +4285,14 @@ riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中�
 
 2021-12-15 00:10 上传
 
+
+
+*****
+
+####  北山玖公  
+##### 9360#       发表于 2021-12-15 09:09
+
+谱皇新曲拔刀的曲绘太帅了，光看这画功都该看一看<img src="https://p.sda1.dev/3/2612dc4b0632d53f8071c03321c10596/IMG_CMP_4098140.jpeg" referrerpolicy="no-referrer">
+
+要不是我喜欢的漫画家推荐了这个画师的作品，还不知道谱皇出了新曲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
