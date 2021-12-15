@@ -5573,3 +5573,15 @@ The Covid-19 vaccine by Sinovac Biotech is not able to produce adequate antibodi
 
 来自港大的抗体数据，bnt只剩20%有抗体反应，科兴直接是0
 
+
+
+*****
+
+####  Evomenon  
+##### 1966#       发表于 2021-12-15 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53946976&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-15 16:16</a>
+
+检测试剂可不需要做人体测试，对不上了分分钟换。</blockquote>
+原来如此，总之核酸技术相对靠谱，焦虑略有缓解<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
