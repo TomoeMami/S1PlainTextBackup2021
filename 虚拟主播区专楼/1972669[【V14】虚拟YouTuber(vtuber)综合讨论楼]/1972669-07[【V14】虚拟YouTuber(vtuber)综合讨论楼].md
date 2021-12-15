@@ -4346,3 +4346,32 @@ riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中�
 
 官网出了可以看看
 
+
+
+*****
+
+####  毛头小希  
+##### 9366#       发表于 2021-12-15 11:30
+
+12月语音
+
+原……原来如此
+
+QQ图片20211215105719.jpg
+(429.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202112/15/112939h6k758kn8k2537dk.jpg" referrerpolicy="no-referrer">
+
+QQ图片20211215111608.jpg
+(178.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202112/15/112946znx1bjnnnbx3oz1d.jpg" referrerpolicy="no-referrer">
+

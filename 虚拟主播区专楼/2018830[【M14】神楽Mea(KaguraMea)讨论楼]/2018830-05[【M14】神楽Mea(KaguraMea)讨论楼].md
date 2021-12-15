@@ -4082,3 +4082,30 @@ p丸是能力强，🤡靠公司，mea到时偶像下海，买他一笔
 
 这企划不是很精准的定位，在日对b vtb，可能想着一次整4个底边不如找三个自带粉丝的引流工具人
 
+
+
+*****
+
+####  443421870  
+##### 6477#       发表于 2021-12-15 11:20
+
+[https://boards.4channel.org/vt/thread/14637002](https://boards.4channel.org/vt/thread/14637002)
+
+英文圈基本全在扯mea啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  gongge666  
+##### 6478#       发表于 2021-12-15 11:25
+
+P丸是自己没把虚拟主播当回事跟索尼关系不大，索尼也没想好好发展
+
+*****
+
+####  T_Hb  
+##### 6479#       发表于 2021-12-15 11:29
+
+酬勤啊，又在回推
+

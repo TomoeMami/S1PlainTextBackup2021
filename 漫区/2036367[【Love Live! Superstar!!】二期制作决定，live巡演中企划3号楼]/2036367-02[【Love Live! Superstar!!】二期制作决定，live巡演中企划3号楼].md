@@ -5071,3 +5071,16 @@ ann广播又是菜鱼，给他们整明白了
 ann广播又是菜鱼，给他们整明白了</blockquote>
 所以12中旬的节目呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1957#       发表于 2021-12-15 11:32
+
+我记得鲤鱼姐是黛雅推吧，这不是狂喜。
+
+jitsuwa~
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
