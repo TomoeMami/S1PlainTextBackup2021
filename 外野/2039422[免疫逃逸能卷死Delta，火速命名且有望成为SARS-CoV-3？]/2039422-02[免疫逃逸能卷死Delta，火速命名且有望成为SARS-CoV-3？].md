@@ -5352,3 +5352,26 @@ Omicron，生态化反，无限可能</blockquote>
 真正的德奥合并让全世界颤抖</blockquote>
 德奥合并好评
 
+
+
+*****
+
+####  yweili  
+##### 1947#       发表于 2021-12-15 09:41
+
+康奈尔大学因新冠病例激增关闭了Ithaca校区。校长Martha Pollack表示，该大学的Covid-19实验室团队在“周一的大量阳性学生样本中”检测到Omicron变种的证据。
+
+[https://www.cnn.com/2021/12/14/u ... id-cases/index.html](https://www.cnn.com/2021/12/14/us/cornell-university-covid-cases/index.html)
+
+Cornell University reports more than 900 Covid-19 cases this week. Many are Omicron variant cases in fully vaccinated students.
+
+*****
+
+####  KOGmk2  
+##### 1948#       发表于 2021-12-15 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53940781&amp;ptid=2039422" target="_blank">植田佳奈 发表于 2021-12-15 08:33</a>
+
+德奥合并好评</blockquote>
+病毒的第四帝国!
+

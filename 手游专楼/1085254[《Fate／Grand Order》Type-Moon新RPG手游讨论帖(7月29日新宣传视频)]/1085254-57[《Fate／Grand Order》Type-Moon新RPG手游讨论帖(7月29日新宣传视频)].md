@@ -8690,3 +8690,19 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 反正都是dw无能，跟菌类一点关系都没有啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 84795#       发表于 2021-12-15 09:34
+
+想了想去年给的爆点
+
+四台机神（美神、农神、宙斯、马尔斯），宙斯是裆部，十二神能合体，十二神合体干爆了大王，卡奥斯
+
+狐狸变身，彷徨海掏出了天寿，冠位枪神祖，U奥尔加，道满被清明算计，金时掏出了大具足，正版天丛云
+
+先不管写的怎么样，单从讨论热度来说可以说快乐了一整年
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

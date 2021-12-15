@@ -3636,3 +3636,19 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 算了，谁没几个梦想，年轻时追梦也比老来后悔强。
 
+
+
+*****
+
+####  Mr.shelter  
+##### 6423#       发表于 2021-12-15 09:28
+
+不要紧，麻麻还年轻<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gongge666  
+##### 6424#       发表于 2021-12-15 09:34
+
+讲道理她这年纪什么都体验一下最好，反正肯定不亏，最多也就粉丝不爽罢了。索尼音乐旗下偶像，又跟指原莉乃互动过，这已经是人上人yhm了。以后老了吹牛，“我和mj、艾薇儿五五开，我也是索尼音乐旗下艺人”
+

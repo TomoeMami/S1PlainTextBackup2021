@@ -4296,3 +4296,22 @@ riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中�
 
 要不是我喜欢的漫画家推荐了这个画师的作品，还不知道谱皇出了新曲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gongge666  
+##### 9361#       发表于 2021-12-15 09:23
+
+看到隔壁3人出道偶像，突然想起来马自立原创曲做了么<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">一年没关注了
+
+*****
+
+####  adcdqre  
+##### 9362#       发表于 2021-12-15 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53939145&amp;ptid=1972669" target="_blank">free 发表于 2021-12-14 23:43:21</a>
+riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中预告出道</blockquote>别又是低音大嗓女
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
