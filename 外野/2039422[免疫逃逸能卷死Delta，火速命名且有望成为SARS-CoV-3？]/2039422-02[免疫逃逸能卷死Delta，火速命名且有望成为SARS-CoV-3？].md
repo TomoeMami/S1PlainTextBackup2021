@@ -5341,3 +5341,14 @@ Omicron，生态化反，无限可能</blockquote>
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  植田佳奈  
+##### 1946#       发表于 2021-12-15 08:33
+
+<blockquote>中二骚年 发表于 2021-12-14 23:46
+真正的德奥合并让全世界颤抖</blockquote>
+德奥合并好评
+
