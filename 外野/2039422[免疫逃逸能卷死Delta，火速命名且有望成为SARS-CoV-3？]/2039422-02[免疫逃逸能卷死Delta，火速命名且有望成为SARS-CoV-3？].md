@@ -5396,3 +5396,15 @@ Omicron，生态化反，无限可能</blockquote>
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  pushare  
+##### 1950#       发表于 2021-12-15 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941511&amp;ptid=2039422" target="_blank">yweili 发表于 2021-12-15 09:41</a>
+
+康奈尔大学因新冠病例激增关闭了Ithaca校区。校长Martha Pollack表示，该大学的Covid-19实验室团队在“周一 ...</blockquote>
+加州最近恢复了室内公共场所的强制口罩
+

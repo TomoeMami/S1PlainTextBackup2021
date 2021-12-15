@@ -8787,3 +8787,55 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  exiaexa  
+##### 84803#       发表于 2021-12-15 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941831&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-15 10:05</a>
+
+26最匪夷所思的是和风要素莫名其妙地多
+
+妖崔的宝具是捏他的午时参拜，剧情里数次提到妖高的角跟鬼种是近似 ...</blockquote>
+整个2.6和不列颠大概也就是同一块地的关系了
+
+从头开始捏人的话，不可避免的就会把本土习惯带入进去没办法的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84804#       发表于 2021-12-15 10:29
+
+话说问一下，5ch的fgo讨论在哪个版里，我去翻过好几次，按着一堆片假名读半天都找不到哪个是fgo版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 84805#       发表于 2021-12-15 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941818&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-15 10:04</a>
+
+其实fgo讲到现在该讲的东西基本都快讲完了，戴比特，2.0真相，剩余的beast，剩余的冠位，迦勒底的内幕， ...</blockquote>
+其实FGO只要慢慢用掉这些要素，收尾来个大集结就可以原地高潮了
+
+比如终章给你来个冠七集合，或者苍银联动来个双亚瑟咖喱棒这不得氪爆
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+菌类：だが、断る
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84806#       发表于 2021-12-15 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53942220&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-15 10:31</a>
+
+其实FGO只要慢慢用掉这些要素，收尾来个大集结就可以原地高潮了
+
+比如终章给你来个冠七集合，或者苍银联动 ...</blockquote>
+冠位集合我觉得极大概率是有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4324,3 +4324,14 @@ riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中�
 
 画的是八错。<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kakera9576  
+##### 9364#       发表于 2021-12-15 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53939145&amp;ptid=1972669" target="_blank">free 发表于 2021-12-14 23:43</a>
+riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中预告出道</blockquote>
+到时看看是谁转生了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+

@@ -3774,3 +3774,44 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 什么地中海镰刀贫血症<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KL25001  
+##### 6440#       发表于 2021-12-15 10:23
+
+看今晚直播决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Day_One  
+##### 6441#       发表于 2021-12-15 10:23
+
+为什么是接力直播而不是联动？
+我对小红的🌲就指望着三人一起联动来伐一伐了
+
+*****
+
+####  雪风utopia  
+##### 6442#       发表于 2021-12-15 10:25
+
+确实，该决定去留了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奇拉奇拉  
+##### 6443#       发表于 2021-12-15 10:28
+
+花园猫那边粉群我印象还好吧，旧p里算是转头反咬比较少的
+小红粉就……哈哈😄
+
+*****
+
+####  yywzjsw  
+##### 6444#       发表于 2021-12-15 10:39
+
+1个月后楼在见
+
