@@ -9250,3 +9250,14 @@ queen太丢人了，作为觉醒动物系没有山治血条一半长</blockquote
 一个猜想OP里戴面具的是不是都没有丑的…</blockquote>
 基拉脱面具很一般啊
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 56223#       发表于 2021-12-15 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53937428&amp;ptid=98922" target="_blank">tyauto 发表于 2021-12-14 21:12</a>
+queen本来就挺水的，大妈揍他比打布鲁克都轻松，赏金高估计和他会研发病毒有关吧，而且现在疫情期间这种 ...</blockquote>
+虽然大妈狂揍queen，但是queen更多是一上手就知道打不过在装死。就算这样，挨大妈一顿狂揍也连绷带都不用包
+

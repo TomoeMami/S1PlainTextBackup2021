@@ -8923,3 +8923,35 @@ DW被索尼肢解了还行</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能来个保底
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 84816#       发表于 2021-12-15 15:26
+
+肯定是不变的永恒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可是霓虹手游业界
+
+*****
+
+####  zakki  
+##### 84817#       发表于 2021-12-15 15:33
+
+看起来是在为2.0结束后考虑了，总不能2.0一结束dw真就当场暴毙吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 84818#       发表于 2021-12-15 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53946097&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-15 15:04</a>
+怎么这两天大新闻这么多</blockquote>
+毕竟年末，大新闻多一点很正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yzj134100  
+##### 84819#       发表于 2021-12-15 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趁还热乎赶紧卖出去
+
