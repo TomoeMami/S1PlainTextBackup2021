@@ -5023,3 +5023,51 @@ sww，理论上青山姐大学毕业，不至于英语全忘了吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1953#       发表于 2021-12-15 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53938575&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-14 22:46</a>
+不太会写小作文这种时候就比较捉急</blockquote>
+不会小作文就抄点诗，古人的智慧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 1954#       发表于 2021-12-15 11:14
+
+<img src="https://img.saraba1st.com/forum/202112/15/111353fd899dpc8pcj96cu.jpg" referrerpolicy="no-referrer">
+
+<strong>20211215_110548.jpg</strong> (235.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 11:13 上传
+
+ann广播又是菜鱼，给他们整明白了
+
+*****
+
+####  D麦林  
+##### 1955#       发表于 2021-12-15 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53939444&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-12-15 00:13</a>
+
+鱼fc生日祝福加了发中文可能乱码的说明…………这日语牡蛎逼得我只能英文了 ...</blockquote>
+你可以尝试用日语汉字拼装成中文语句<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 1956#       发表于 2021-12-15 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53942914&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-15 11:14</a>
+
+ann广播又是菜鱼，给他们整明白了</blockquote>
+所以12中旬的节目呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

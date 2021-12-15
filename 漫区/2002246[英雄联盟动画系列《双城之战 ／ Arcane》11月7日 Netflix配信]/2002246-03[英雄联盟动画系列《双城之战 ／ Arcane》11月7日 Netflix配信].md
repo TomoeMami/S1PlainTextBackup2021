@@ -456,3 +456,27 @@ s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版�
 金克斯原来还是有朋友的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吉格斯勉强能算是朋友，不过漫画里金克斯把他当成自己的幻觉了……
 
+
+
+*****
+
+####  新的起源  
+##### 3037#       发表于 2021-12-15 11:01
+
+鬼蟹在推特一通对中国的彩虹屁是怎么回事？
+
+要去上海和天美交流mmorpg?
+
+你们以为是魔兽世界其实做的是原神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不要啊卧槽
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  飞升之后  
+##### 3038#       发表于 2021-12-15 11:09
+
+手机版和PC版同时开发
+
