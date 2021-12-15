@@ -480,3 +480,12 @@ s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版�
 
 手机版和PC版同时开发
 
+
+
+*****
+
+####  厄神之息  
+##### 3039#       发表于 2021-12-15 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+

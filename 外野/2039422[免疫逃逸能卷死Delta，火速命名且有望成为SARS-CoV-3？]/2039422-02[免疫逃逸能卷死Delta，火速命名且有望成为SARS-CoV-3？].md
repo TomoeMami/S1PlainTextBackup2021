@@ -5585,3 +5585,12 @@ The Covid-19 vaccine by Sinovac Biotech is not able to produce adequate antibodi
 检测试剂可不需要做人体测试，对不上了分分钟换。</blockquote>
 原来如此，总之核酸技术相对靠谱，焦虑略有缓解<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aceback  
+##### 1967#       发表于 2021-12-15 17:50
+
+<img src="https://p.sda1.dev/3/fdccacf8ed4128506be619e82984ca8b/IMG_CMP_40655745.jpeg" referrerpolicy="no-referrer">
+
