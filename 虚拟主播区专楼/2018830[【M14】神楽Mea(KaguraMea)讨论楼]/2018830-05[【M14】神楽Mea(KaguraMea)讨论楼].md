@@ -4404,3 +4404,52 @@ I can't completely hate Mea. She made the same mistake that billion dollar weste
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sacodina  
+##### 6509#       发表于 2021-12-15 15:04
+
+<blockquote>遗忘回想 发表于 2021-12-15 14:17
+她以前推的麻友友和这位都是akb48的，而且好像是竞争头牌的关系（）</blockquote>
+指原跟mayuyu本身关系还不错啊。毕业con还能拉早已毕业的mayuyu过来一起唱unit曲
+
+*****
+
+####  雨井绫  
+##### 6510#       发表于 2021-12-15 15:07
+
+ 本帖最后由 雨井绫 于 2021-12-15 15:10 编辑 
+
+草，楼上不是外野48专楼楼主吗，这么多年过去还是这个头像。
+指原和麻友就算关系不差也肯定算不上很亲密的那种。两个人路线区别比较大，还争了好几年总选第一，粉丝里有不少人彼此有仇。
+
+
+
+*****
+
+####  隐士观察者  
+##### 6511#       发表于 2021-12-15 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945502&amp;ptid=2018830" target="_blank">呓亘 发表于 2021-12-15 14:16</a>
+
+我超 这什么偏见。。。。他们真的以为B站希望cover走？不是cover自己作死？cover走了VR也没起来啊 ...</blockquote>
+你什么英语，这一大段上面说吊人只是做了邪恶资本家日常都做的事。下面又一转吊人赚不到钱，都怪CHINA贸易保护，从china赚到的钱都得继续投入当地，还有不保护知识产权和抢夺专利云云。
+
+*****
+
+####  路人庚  
+##### 6512#       发表于 2021-12-15 15:18
+
+指原和麻友也许关系不错，不过这要看阿咩算不算麻友单推（或者毒唯）了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  隐士观察者  
+##### 6513#       发表于 2021-12-15 15:20
+
+mayuyu和指皇之间啥关系我不懂，反正随便一搜就知道粉丝关系铁定不好<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+所以我才说小麻铁定得抗一年压，别怕小麻，指皇不知道你曾经是mayuyu信的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

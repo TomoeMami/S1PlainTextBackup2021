@@ -5497,3 +5497,22 @@ Pfizer vaccine stops 70% of Omicron hospitalisations in South Africa: Discovery
 
 O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似
 
+
+
+*****
+
+####  listenermy  
+##### 1958#       发表于 2021-12-15 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927724&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-14 09:40</a>
+
+新冠这东西为啥变异这么快，而且变异的这么精确，载弹量、耐热性、抗体逃逸，该不会是……这东西能吞噬其他 ...</blockquote>
+什么原始异虫病毒
+
+*****
+
+####  pushare  
+##### 1959#       发表于 2021-12-15 15:18
+
+Canada considers closing border to non-essential foreign travelers, including Americans, to slow the spread of Omicron - CBC
+
