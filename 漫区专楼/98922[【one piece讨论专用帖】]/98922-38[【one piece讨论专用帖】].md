@@ -9293,3 +9293,19 @@ queen本来就挺水的，大妈揍他比打布鲁克都轻松，赏金高估计
 
 连招式都变成阎王起头
 
+
+
+*****
+
+####  fmchar  
+##### 56226#       发表于 2021-12-15 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53949865&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-12-15 19:47</a>
+
+三灾战依旧拉胯，都挂的有点快
+
+两年后九刀流被冷藏了10年，霸缠九刀流估计要留到最终战了吧
+
+这话结合之前的 ...</blockquote>
+霸缠版三刀流就能干翻皇副，霸缠版九刀流估计得打皇将级才用得到，鹰眼？？
+

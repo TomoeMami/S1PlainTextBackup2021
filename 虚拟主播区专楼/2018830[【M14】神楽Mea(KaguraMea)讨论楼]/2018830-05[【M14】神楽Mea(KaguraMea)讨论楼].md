@@ -4667,3 +4667,30 @@ syl 还有新衣服，3d还是2d呢，不管是哪个都不亏<img src="https://
 
 要是现在漫展敢出meaqua的本子，贴贴人会把整个会场挤满<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 6540#       发表于 2021-12-15 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  古战场亡魂  
+##### 6541#       发表于 2021-12-15 20:16
+
+别告诉我接力，是三个人重复播三次两个视频。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 6542#       发表于 2021-12-15 20:17
+
+指原怎么这么丑了
+
