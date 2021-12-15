@@ -5324,3 +5324,20 @@ Omicron，生态化反，无限可能</blockquote>
 
 英国把所有能马上出院的全部清空，准备迎接奥密克戎“荣登榜首”这事是真的吗？
 
+
+
+*****
+
+####  nvis  
+##### 1945#       发表于 2021-12-15 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53938580&amp;ptid=2039422" target="_blank">马化云 发表于 2021-12-14 22:47</a>
+耐热性？
+
+新冠有耐热一说？
+
+发个参考链接看看？谢谢</blockquote>
+他说的应该是德尔塔，最初发现新冠不耐高温，因此很多人认为北半球到了夏天，就能像当年SARS一样把疫情压下去。结果不仅压不下去，还养出了德尔塔，即使在热带气温下仍能保持足够的活性进行传播，就相当于点了耐热提高。
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
