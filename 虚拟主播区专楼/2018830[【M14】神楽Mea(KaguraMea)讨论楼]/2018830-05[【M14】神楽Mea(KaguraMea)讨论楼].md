@@ -3652,3 +3652,79 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 讲道理她这年纪什么都体验一下最好，反正肯定不亏，最多也就粉丝不爽罢了。索尼音乐旗下偶像，又跟指原莉乃互动过，这已经是人上人yhm了。以后老了吹牛，“我和mj、艾薇儿五五开，我也是索尼音乐旗下艺人”
 
+
+
+*****
+
+####  遗忘回想  
+##### 6425#       发表于 2021-12-15 09:47
+
+早上起来一看果然是熟悉的走向，嘿，反正至少那群暂时不会带三说话了。虽然毫无实际意义
+
+*****
+
+####  rosevalley46  
+##### 6426#       发表于 2021-12-15 09:52
+
+她这么开心自家粉丝有啥不爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真炸了再把蒙古上单叔叔也不迟
+
+*****
+
+####  隐士观察者  
+##### 6427#       发表于 2021-12-15 09:53
+
+过几天就是天狗咬人又一力证<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么不管哪家粉丝都爱玩这套<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6428#       发表于 2021-12-15 09:54
+
+反正我对这东西毫无任何期待。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明年这人能不能保持正常直播频率都是个大问题了，要真那样也不错，多点时间去提升自己得了。
+
+*****
+
+####  T_Hb  
+##### 6429#       发表于 2021-12-15 09:55
+
+这不是就是上一年班而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 6430#       发表于 2021-12-15 09:56
+
+体会下社畜的辛苦吧
+
+*****
+
+####  遗忘回想  
+##### 6431#       发表于 2021-12-15 09:58
+
+希望别把身上肥肉减掉了就行。
+
+*****
+
+####  Mikumiku831  
+##### 6432#       发表于 2021-12-15 09:59
+
+我昨晚半夜3点醒来看到动态 早上做梦就梦见小麻真人出道了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 6433#       发表于 2021-12-15 09:59
+
+不要啊，本来就没多少胸，减下来就完全是平板了
+
+*****
+
+####  璃絵和花瑠  
+##### 6434#       发表于 2021-12-15 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">坦克民早该输输了
+

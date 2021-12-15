@@ -8706,3 +8706,38 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 先不管写的怎么样，单从讨论热度来说可以说快乐了一整年
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yzj134100  
+##### 84796#       发表于 2021-12-15 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不氪之后看这些消息都无所谓了，请大力继续
+
+*****
+
+####  angelooo  
+##### 84797#       发表于 2021-12-15 09:46
+
+<blockquote>exiaexa 发表于 2021-12-15 09:11
+主要是现在整个fgo能用的大玩意儿也不剩几个了
+
+就年底狐狸、苍银，麻婆不知道要留到啥时候
+</blockquote>
+高情商：2.6完全可以当一个新游戏的剧情
+
+低情商：2.6和主线的关系很大吗
+
+*****
+
+####  zakki  
+##### 84798#       发表于 2021-12-15 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941116&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-15 09:11</a>
+
+主要是现在整个fgo能用的大玩意儿也不剩几个了
+
+就年底狐狸、苍银，麻婆不知道要留到啥时候</blockquote>
+你这么说确实，今年目前为止确实没大的，2.6对2.0的主线几乎毫无推进，以至于万圣都算点儿大的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
