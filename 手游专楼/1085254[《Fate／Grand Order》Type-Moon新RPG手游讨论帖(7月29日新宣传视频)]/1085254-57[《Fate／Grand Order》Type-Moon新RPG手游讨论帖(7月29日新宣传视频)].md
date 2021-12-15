@@ -8848,3 +8848,22 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 
 没人想过提妈进街机的话，这beast6就反过来进手游嘛
 
+
+
+*****
+
+####  vacuumsword  
+##### 84808#       发表于 2021-12-15 13:49
+
+2.0终章搞个“再见了，所有的英灵”，人王消灭召唤系统，把世界还给人类，然后图鉴全部黑掉，池子全部消失好不好啊。
+
+*****
+
+####  alucardcz  
+##### 84809#       发表于 2021-12-15 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945191&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-12-15 13:49</a>
+
+2.0终章搞个“再见了，所有的英灵”，人王消灭召唤系统，把世界还给人类，然后图鉴全部黑掉，池子全部消失 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后下一秒全部复活 播3。0 op 
+

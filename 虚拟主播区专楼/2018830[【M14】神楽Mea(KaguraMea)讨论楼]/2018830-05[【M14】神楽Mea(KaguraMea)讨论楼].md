@@ -4338,3 +4338,22 @@ UF819H6BTEUWUW[RVRHZ%YG.png
 
 雖然不知道是你們哪位發的，但是篡位者的寫法是usurper<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dualist彩  
+##### 6502#       发表于 2021-12-15 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945027&amp;ptid=2018830" target="_blank">病態極端 发表于 2021-12-15 13:33</a>
+
+雖然不知道是你們哪位發的，但是篡位者的寫法是usurper</blockquote>
+这黑屁谁的呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dualist彩  
+##### 6503#       发表于 2021-12-15 13:45
+
+晚上打个sc问问你麻是如何看待指原莉乃的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
