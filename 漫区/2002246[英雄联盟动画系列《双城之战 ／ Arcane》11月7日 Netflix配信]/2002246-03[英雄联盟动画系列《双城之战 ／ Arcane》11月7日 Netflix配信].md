@@ -518,3 +518,15 @@ s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版�
 
 拳头自己专精看重的肯定还是PC端，手机端说难听点变现
 
+
+
+*****
+
+####  qxs  
+##### 3043#       发表于 2021-12-15 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53948390&amp;ptid=2002246" target="_blank">厄神之息 发表于 2021-12-15 17:58</a>
+
+那真是抄都找不对人，想抄个原神不应该找米哈游吗？找天美干毛线啊？ ...</blockquote>
+pjb原神手机能玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

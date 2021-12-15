@@ -5327,3 +5327,115 @@ y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气
 
 上来就聊了十分钟摸鱼话题可还行
 
+
+
+*****
+
+####  onlv星骸  
+##### 6621#       发表于 2021-12-15 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">线下都见过这么多次了嘛，之前说的工作也都是这个？  真能憋啊
+
+*****
+
+####  T_Hb  
+##### 6622#       发表于 2021-12-15 21:43
+
+要录宣传视频，录综艺当然要花挺久时间的
+
+*****
+
+####  iuhehc  
+##### 6623#       发表于 2021-12-15 21:44
+
+看到这里感觉另外两位不太会抛梗接梗啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 6624#       发表于 2021-12-15 21:45
+
+感觉得靠麻酱控场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6625#       发表于 2021-12-15 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是你咩那些梗又不能玩
+
+*****
+
+####  璃絵和花瑠  
+##### 6626#       发表于 2021-12-15 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啥不能玩的，早该重振18麻荣光了！
+
+*****
+
+####  Mikumiku831  
+##### 6627#       发表于 2021-12-15 21:47
+
+看来关键节日直播是跑不了的
+
+*****
+
+####  clvan_  
+##### 6628#       发表于 2021-12-15 21:47
+
+怎么说呢，和羊兔狗效果差距过大有点不适应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以后再混熟应该能好点吧
+
+*****
+
+####  Rem-清曲  
+##### 6629#       发表于 2021-12-15 21:48
+
+实在不行打一把szb吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6630#       发表于 2021-12-15 21:48
+
+那群人都是大半夜挂着discord聊天的人，当然不一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  笋狐  
+##### 6631#       发表于 2021-12-15 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">圣诞首次组合生放。不会以后都是这种尬聊的氛围吧...难蚌...
+
+*****
+
+####  路人庚  
+##### 6632#       发表于 2021-12-15 21:50
+
+这联动观感还不错啊，比和北大路的初次对谈要好点（
+
+不过应该是线下都见过不少次了，姑且还是稍微熟悉点的
+
+*****
+
+####  T_Hb  
+##### 6633#       发表于 2021-12-15 21:50
+
+ 本帖最后由 T_Hb 于 2021-12-15 21:51 编辑 
+
+下次写台本呗，当年和爱丽丝联动，和江良联动那也是尬的飞起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 6634#       发表于 2021-12-15 21:51
+
+也没多尬吧
+
+也就突然突然沉默一下
+
+熟了就好
+
