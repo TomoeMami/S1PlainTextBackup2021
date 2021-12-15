@@ -4196,3 +4196,46 @@ China severely limits the amount of money foreign businesses are allowed to take
 
 团专楼呢？专楼开起来啊？我要看大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2111X  
+##### 6489#       发表于 2021-12-15 12:23
+
+团专楼不可能的，讨论不到一起去。
+除非都有不评论对方历史，并且假装陌生人的默契。
+难啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 6490#       发表于 2021-12-15 12:25
+
+这团在s1那一家粉丝开了专楼就掌握了送客权！
+
+*****
+
+####  黒長直姫  
+##### 6491#       发表于 2021-12-15 12:27
+
+有道理 快开
+
+*****
+
+####  Mikumiku831  
+##### 6492#       发表于 2021-12-15 12:35
+
+<blockquote>遗忘回想 发表于 2021-12-15 12:12
+没心思关心这个了，我这边两个无症状被查出，今天新加两个直接全市要求检测了。
+
+ ...</blockquote>
+没想到东莞也有看mea的
+
+*****
+
+####  黒長直姫  
+##### 6493#       发表于 2021-12-15 12:38
+
+隔壁咩楼锁力
+

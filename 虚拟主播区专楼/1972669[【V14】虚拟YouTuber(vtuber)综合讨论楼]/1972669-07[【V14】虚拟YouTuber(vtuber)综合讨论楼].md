@@ -4384,3 +4384,21 @@ QQ图片20211215111608.jpg
 
 量子少年立绘看起来不如rofmao是因为我是二次元吗(((　ﾟдﾟ))) 
 
+
+
+*****
+
+####  free  
+##### 9368#       发表于 2021-12-15 12:22
+
+量子少年这队长立绘也太霸道总裁风格了，不知道动起来啥样...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  443421870  
+##### 9369#       发表于 2021-12-15 12:26
+
+明年据说国内有五六家3d要出道<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，此时彼时
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
