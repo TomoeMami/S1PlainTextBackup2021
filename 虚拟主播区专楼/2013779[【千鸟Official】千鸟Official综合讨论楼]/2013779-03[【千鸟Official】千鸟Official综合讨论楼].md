@@ -12953,3 +12953,12 @@ co宝这一首送别给我整玉玉了
 
 嗯造千鸟五只是吧?应该没人敢发AS版的吧.  
 
+
+
+*****
+
+####  rgauss  
+##### 4481#       发表于 2021-12-15 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
