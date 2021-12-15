@@ -3815,3 +3815,139 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 1个月后楼在见
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6445#       发表于 2021-12-15 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说到底还是组合的问题，世间也不是没有29岁的女团成员，但是可没有29岁才开始努力而且卖点是努力但是也没看到怎么努力的女团成员。
+
+讲道理这乱点的有点离谱，年龄差太大了。
+
+花园猫还好，当年好歹也是企业势，转生之后为什么会变成纯养gachi的病弱属性挺让人疑惑的，你当年入企业也不可能靠这手啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 6446#       发表于 2021-12-15 10:42
+
+这个女团的平均年龄是多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6447#       发表于 2021-12-15 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53942394&amp;ptid=2018830" target="_blank">Rem-清曲 发表于 2021-12-15 10:42</a>
+
+这个女团的平均年龄是多少啊</blockquote>
+绯赤快29了吧，mea快22了?反正花园猫不可能比mea小，估计怎么平均年龄也是25岁以上了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6448#       发表于 2021-12-15 10:44
+
+ 本帖最后由 T_Hb 于 2021-12-15 10:47 编辑 
+
+一年临时工而已，今天2月不还在那振袖和服吗，怎么就22了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 6449#       发表于 2021-12-15 10:48
+
+怎么我肥羊就22了 你这什么穿越
+
+*****
+
+####  Rem-清曲  
+##### 6450#       发表于 2021-12-15 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53942412&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2021-12-15 10:44</a>
+
+绯赤快29了吧，mea快22了?反正花园猫不可能比mea小，估计怎么平均年龄也是25岁以上了。 ...</blockquote>
+小麻明年2月才21<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  隐士观察者  
+##### 6451#       发表于 2021-12-15 10:48
+
+01年虚岁也是21啊，哪来的22<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zc1996zc  
+##### 6452#       发表于 2021-12-15 10:49
+
+本子那边不是啥都能搞偶像吗，之前已经有了坦克女团和奶奶女团，29不算什么吧
+
+*****
+
+####  T_Hb  
+##### 6453#       发表于 2021-12-15 10:49
+
+ 本帖最后由 T_Hb 于 2021-12-15 10:51 编辑 
+
+我懂了，（3+38）/2=20.5 既符合了人设，又兼顾了实际，很合理
+
+*****
+
+####  古战场亡魂  
+##### 6454#       发表于 2021-12-15 10:51
+
+22-01+1，21年快过去了……算年龄习惯算虚岁了&amp;……
+
+*****
+
+####  gongge666  
+##### 6455#       发表于 2021-12-15 10:53
+
+世界名画“灰姑娘”猫猫是大姐、小红是二姐，那mea一定是灰姑娘吧，不mea是水晶鞋
+
+*****
+
+####  黒長直姫  
+##### 6456#       发表于 2021-12-15 10:54
+
+我不认可这种算法 我麻永远14岁
+
+*****
+
+####  T_Hb  
+##### 6457#       发表于 2021-12-15 10:56
+
+ 本帖最后由 T_Hb 于 2021-12-15 10:57 编辑 
+
+为什么一定要往童话上套呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这企划的意思不就和爱马仕灰姑娘女孩差不多
+
+*****
+
+####  zc1996zc  
+##### 6458#       发表于 2021-12-15 10:56
+
+灰姑娘应该是指是那个新人吧，这三个就是后妈和两个姐姐
+
+*****
+
+####  KL25001  
+##### 6459#       发表于 2021-12-15 10:56
+
+年轻真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  YoMico  
+##### 6460#       发表于 2021-12-15 10:57
+
+咩妈妈？这个可以有<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
