@@ -5677,3 +5677,15 @@ y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气
 她是不是站起来鞠躬了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我都怀疑她磕头磕桌子上了
 
+
+
+*****
+
+####  呓亘  
+##### 6662#       发表于 2021-12-16 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53946251&amp;ptid=2018830" target="_blank">隐士观察者 发表于 2021-12-15 15:18</a>
+
+你什么英语，这一大段上面说吊人只是做了邪恶资本家日常都做的事。下面又一转吊人赚不到钱，都怪CHINA贸 ...</blockquote>
+我说的是倒数第三句啊 “这就是VR和bilibili试图对cover做的事”
+
