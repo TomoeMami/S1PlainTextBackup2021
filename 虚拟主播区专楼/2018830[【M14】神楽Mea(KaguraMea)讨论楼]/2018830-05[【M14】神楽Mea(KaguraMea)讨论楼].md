@@ -5689,3 +5689,16 @@ y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气
 你什么英语，这一大段上面说吊人只是做了邪恶资本家日常都做的事。下面又一转吊人赚不到钱，都怪CHINA贸 ...</blockquote>
 我说的是倒数第三句啊 “这就是VR和bilibili试图对cover做的事”
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 6663#       发表于 2021-12-16 07:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53952565&amp;ptid=2018830" target="_blank">Cushaw 发表于 2021-12-15 23:13</a>
+看到楼友提到就去搜了一下，作为肉体厨现在快要叛变了
+
+—— 来自 S1Fun ...</blockquote>
+好哥哥，来个链接，我没找到<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
