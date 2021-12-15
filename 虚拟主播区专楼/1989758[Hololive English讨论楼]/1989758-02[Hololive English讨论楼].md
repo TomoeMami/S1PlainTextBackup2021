@@ -480,3 +480,12 @@ Kronii likes Fortnite<img src="https://static.saraba1st.com/image/smiley/face201
 https://youtu.be/nc9SyfqgXfk 11:30 (member’s stream</blockquote>
 谢谢 这个播的时候我自己开了个玩 然后发现这游戏其实很需要attention。。
 
+
+
+*****
+
+####  smy20011  
+##### 1549#         楼主| 发表于 2021-12-15 16:49
+
+看id和en马趴还是很欢乐
+
