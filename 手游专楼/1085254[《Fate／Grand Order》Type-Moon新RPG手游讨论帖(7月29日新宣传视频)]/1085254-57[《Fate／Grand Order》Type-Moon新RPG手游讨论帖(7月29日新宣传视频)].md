@@ -9028,3 +9028,16 @@ DW烂到索尼都看不下去了要做切割<img src="https://static.saraba1st.c
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  zakki  
+##### 84827#       发表于 2021-12-15 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53948876&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-15 18:37</a>
+爆点在月姬那儿是指蓝王是怎么穿越过去的吗
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+你要说fgo的爆点那肯定和月姬没关系，但我想表达的是月姬本身就是爆点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且月姬的部分新增设定和fgo是互通的，这个硬要说也能算
+
