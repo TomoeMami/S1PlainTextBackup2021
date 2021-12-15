@@ -4506,3 +4506,28 @@ QQ截图20211215200435.jpg
 
 尼哥这战术，马车团体赛真这么玩等着被烧吧
 
+
+
+*****
+
+####  winda  
+##### 9378#       发表于 2021-12-15 20:47
+
+<img src="https://img.saraba1st.com/forum/202112/15/204621w70xjq9jbqjokj7s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ZHQadg4.jpeg</strong> (176.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202112/15/204627jtnncpucatcnzzta.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0aAny9t.jpeg</strong> (117.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 20:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那边敢联动这边就接着骂了呗
+

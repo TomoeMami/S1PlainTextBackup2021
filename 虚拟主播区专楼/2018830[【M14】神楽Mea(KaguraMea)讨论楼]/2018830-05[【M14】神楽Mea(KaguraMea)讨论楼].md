@@ -4832,3 +4832,256 @@ B限发布难道是面向海外的吗
 
 这麦克是不是长根了啊
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 6560#       发表于 2021-12-15 20:40
+
+ 本帖最后由 璃絵和花瑠 于 2021-12-15 20:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53950751&amp;ptid=2018830" target="_blank">Oshino57 发表于 2021-12-15 20:39</a>
+握手券，力反馈手套是吧</blockquote>
+别让我再想起那些啊，当时的节奏真的太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 6561#       发表于 2021-12-15 20:41
+
+尬起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 6562#       发表于 2021-12-15 20:42
+
+这停顿是不是提词板问题
+
+*****
+
+####  十九号大侠  
+##### 6563#       发表于 2021-12-15 20:43
+
+面向阿B为啥不给中文字幕哇，还给个日文字幕
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Kanoya  
+##### 6564#       发表于 2021-12-15 20:44
+
+ 本帖最后由 Kanoya 于 2021-12-15 20:46 编辑 
+
+力反馈手套我可以<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这么虚拟的东西我是没想通当初怎么被冲的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6565#       发表于 2021-12-15 20:44
+
+有没有可能阿B招的人还没做完字幕呢
+
+*****
+
+####  Kanoya  
+##### 6566#       发表于 2021-12-15 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53950820&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2021-12-15 20:43</a>
+面向阿B为啥不给中文字幕哇，还给个日文字幕
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+面相日本招募樱花妹，在B播
+
+*****
+
+####  yywzjsw  
+##### 6567#       发表于 2021-12-15 20:46
+
+你麻好高兴的样子
+
+*****
+
+####  iuhehc  
+##### 6568#       发表于 2021-12-15 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53950620&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-12-15 20:31</a>
+
+但是jp宣发还有点样子，早间新闻，报纸版面
+
+意思是宣发索尼负责，阿b啥也不干 ...</blockquote>
+感觉索尼这个宣发也不是很认真 之前还搞砸过一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  htgz111  
+##### 6569#       发表于 2021-12-15 20:46
+
+这企划本质就是对日的，批站只不过作为一个人气基础
+
+*****
+
+####  T_Hb  
+##### 6570#       发表于 2021-12-15 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53950857&amp;ptid=2018830" target="_blank">iuhehc 发表于 2021-12-15 20:46</a>
+
+感觉索尼这个宣发也不是很认真 之前还搞砸过一次</blockquote>
+但是好歹别人做了宣发材料，我是没看到阿B哪里有用工的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  clvan_  
+##### 6571#       发表于 2021-12-15 20:48
+
+y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气息
+
+*****
+
+####  T_Hb  
+##### 6572#       发表于 2021-12-15 20:49
+
+这视频是直接油管上看的，不就是官网上那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6573#       发表于 2021-12-15 20:49
+
+像极了辩论文凑字水的你……
+
+*****
+
+####  yywzjsw  
+##### 6574#       发表于 2021-12-15 20:50
+
+并且还被导师发现死命辩解
+
+*****
+
+####  Kanoya  
+##### 6575#       发表于 2021-12-15 20:51
+
+计时民爆诞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 6576#       发表于 2021-12-15 20:51
+
+那他最近说忙，又早早出门，就是在搞这个？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  遗忘回想  
+##### 6577#       发表于 2021-12-15 20:52
+
+总之啥都不会改的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6578#       发表于 2021-12-15 20:52
+
+当然啊，看视频里那冲瀑布，起码录了1期综艺吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 6579#       发表于 2021-12-15 20:53
+
+没话了可以在直播间咬个打火机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 6580#       发表于 2021-12-15 20:53
+
+妹啊，不行就唱首歌混过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6581#       发表于 2021-12-15 20:53
+
+不如直接来一首梦想几度重生
+
+*****
+
+####  aisakahammer  
+##### 6582#       发表于 2021-12-15 20:54
+
+ 谢SC拖时间是吧！
+
+*****
+
+####  Kanoya  
+##### 6583#       发表于 2021-12-15 20:54
+
+这会唱一首偶像宣言可以绝杀，可惜唱不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 6584#       发表于 2021-12-15 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用你最擅长的杂谈扯皮想想办法啊kora，我快淹死了（
+
+*****
+
+####  iuhehc  
+##### 6585#       发表于 2021-12-15 20:56
+
+麻友友——
+
+*****
+
+####  ashero  
+##### 6586#       发表于 2021-12-15 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下是马友友粉叛忍了
+
+*****
+
+####  yywzjsw  
+##### 6587#       发表于 2021-12-15 20:56
+
+最喜欢的偶像很多，但绝对是指原，麻酱被抛弃了，绝情的女人
+
+*****
+
+####  T_Hb  
+##### 6588#       发表于 2021-12-15 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">见人说人话 见鬼说鬼话是吧
+
+*****
+
+####  遗忘回想  
+##### 6589#       发表于 2021-12-15 20:57
+
+这下真叛忍了，马上图图
+
+*****
+
+####  clvan_  
+##### 6590#       发表于 2021-12-15 20:59
+
+两个麻酱————
+
+这段话说得莫名阴阳怪气
+
+*****
+
+####  Mikumiku831  
+##### 6591#       发表于 2021-12-15 21:00
+
+久违的直播天赋 显现出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
