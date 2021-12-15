@@ -8867,3 +8867,50 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 2.0终章搞个“再见了，所有的英灵”，人王消灭召唤系统，把世界还给人类，然后图鉴全部黑掉，池子全部消失 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后下一秒全部复活 播3。0 op 
 
+
+
+*****
+
+####  eyeego  
+##### 84810#       发表于 2021-12-15 14:45
+
+DW被索尼肢解了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  BN桑  
+##### 84811#       发表于 2021-12-15 14:45
+
+DW把游戏业务卖给A爹了，🈶🈚️分析一波日后发展会有什么影响<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 84812#       发表于 2021-12-15 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945847&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-12-15 14:45</a>
+
+DW被索尼肢解了还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">普天同庆啊  以后产能是不是会高起来 福利是不是会多起来  什么 不变？ 那没事了
+
+*****
+
+####  exiaexa  
+##### 84813#       发表于 2021-12-15 15:02
+
+拆个鬼啊，这不就换个东家继续干，还能踢掉阿盐阿叶不成
+
+但是庄司着实赢麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 84814#       发表于 2021-12-15 15:04
+
+怎么这两天大新闻这么多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
