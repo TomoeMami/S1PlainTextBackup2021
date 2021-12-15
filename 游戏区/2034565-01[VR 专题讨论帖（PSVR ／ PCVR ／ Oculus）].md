@@ -3255,3 +3255,17 @@ among us VR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 
 我用笔记本电脑挂的V2R，ip和端口都输了，但就是死活连不上wifi。
 
+
+
+*****
+
+####  聚散浮云  
+##### 215#       发表于 2021-12-15 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53907768&amp;ptid=2034565" target="_blank">褪色的雪花 发表于 2021-12-12 17:18</a>
+
+等能不用脸书账号了再买q2
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+q2之所以这么便宜很大一部分原因就是脸书赔钱卖生态
+
