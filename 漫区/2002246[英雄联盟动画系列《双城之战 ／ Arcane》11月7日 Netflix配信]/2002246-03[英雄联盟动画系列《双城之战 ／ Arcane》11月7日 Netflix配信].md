@@ -500,3 +500,12 @@ s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版�
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  CyanCloverFern  
+##### 3041#       发表于 2021-12-15 19:18
+
+拳头出制作人，企鹅出实现团队这样还是不错的。
+
