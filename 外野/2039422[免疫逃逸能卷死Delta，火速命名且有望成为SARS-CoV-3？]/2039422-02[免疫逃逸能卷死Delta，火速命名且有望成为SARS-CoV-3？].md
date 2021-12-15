@@ -5537,3 +5537,39 @@ Canada considers closing border to non-essential foreign travelers, including Am
 什么原始异虫病毒</blockquote>
 zerg？
 
+
+
+*****
+
+####  smy20011  
+##### 1962#       发表于 2021-12-15 16:10
+
+The Covid-19 vaccine by Sinovac Biotech is not able to produce adequate antibodies to neutralise the highly mutated coronavirus strain Omicron, according to new research from the University of Hong Kong. Both the Sinovac vaccine and another by Pfizer-BioNTech produced “inadequate” antibody responses to the variant, scientists said in a statement Tuesday night. Of 25 people who received a full course of CoronaVac, none were found to have detectable levels of virus-fighting antibodies, according to study author and top infectious disease expert Yuen Kwok-yung and his team.
+
+*****
+
+####  Evomenon  
+##### 1963#       发表于 2021-12-15 16:13
+
+好家伙，BA开头的毒株有3支，要来了（不是<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+按照楼上坛友“指数vs线性”的思路，可能跟不上病毒变异脚步的除了疫苗之外，是否还有核酸检测技术？要发生怎样的变异，病毒才会攻破核酸检测的“防护罩“？
+
+*****
+
+####  creymorgan  
+##### 1964#       发表于 2021-12-15 16:16
+
+<blockquote>Evomenon 发表于 2021-12-15 16:13
+好家伙，BA开头的毒株有3支，要来了（不是
+
+按照楼上坛友“指数vs线性”的思路，可能跟不上病毒变异 ...</blockquote>
+检测试剂可不需要做人体测试，对不上了分分钟换。
+
+*****
+
+####  smy20011  
+##### 1965#       发表于 2021-12-15 16:18
+
+来自港大的抗体数据，bnt只剩20%有抗体反应，科兴直接是0
+

@@ -8964,3 +8964,19 @@ DW被索尼肢解了还行</blockquote>
 
 DW烂到索尼都看不下去了要做切割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 84821#       发表于 2021-12-15 16:10
+
+你们与其猜什么索尼制裁看不下去啥的
+
+樱花大战烂到对赌赔钱，庄司卖公司还债可能性说不定还高一点
+
+要知道当年索尼音乐的亏损可是靠FGO给扭回来的
+
+高兴得他们在财报上特别书了一笔
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
