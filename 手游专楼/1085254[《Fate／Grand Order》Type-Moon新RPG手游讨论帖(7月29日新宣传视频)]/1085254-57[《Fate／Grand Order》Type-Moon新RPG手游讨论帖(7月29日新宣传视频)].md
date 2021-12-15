@@ -8996,3 +8996,35 @@ DW烂到索尼都看不下去了要做切割<img src="https://static.saraba1st.c
 
 狐狸活动有柱子战草，不刷了，自回体吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 84824#       发表于 2021-12-15 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53947780&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-15 17:17</a>
+
+狐狸活动有柱子战草，不刷了，自回体吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">话说为什么我每次都看到你无限池狂刷。。这刷法资源为什么还没溢出
+
+*****
+
+####  都谷捻柏  
+##### 84825#       发表于 2021-12-15 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53940876&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-12-15 08:45:16</a>
+说真的，这样一搞新年落地人王的概率又**提高了。毕竟目前来看，除了圣诞从者，街机独有从者都是有意识的和 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完美复刻——看来是新年新卡先背刺龙马一波，然后复刻狂阿周那
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  都谷捻柏  
+##### 84826#       发表于 2021-12-15 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941818&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-15 10:04:41</a>
+其实fgo讲到现在该讲的东西基本都快讲完了，戴比特，2.0真相，剩余的beast，剩余的冠位，迦勒底的内幕， ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆点在月姬那儿是指蓝王是怎么穿越过去的吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
