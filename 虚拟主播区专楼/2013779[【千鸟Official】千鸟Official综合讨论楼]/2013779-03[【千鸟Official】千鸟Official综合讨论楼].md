@@ -13067,3 +13067,12 @@ syl九点见！
 
 喜欢今天的声音<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">上次住院时太像我以前的老师了
 
+
+
+*****
+
+####  rgauss  
+##### 4492#       发表于 2021-12-15 21:27
+
+开炒<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+

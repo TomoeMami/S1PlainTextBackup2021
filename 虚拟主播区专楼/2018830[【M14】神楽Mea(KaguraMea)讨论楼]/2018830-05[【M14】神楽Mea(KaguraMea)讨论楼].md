@@ -5276,3 +5276,54 @@ y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是串台了
 
+
+
+*****
+
+####  clvan_  
+##### 6615#       发表于 2021-12-15 21:21
+
+这企划在sme的份量真的够去sie要台ps5吗
+
+*****
+
+####  iuhehc  
+##### 6616#       发表于 2021-12-15 21:31
+
+ 本帖最后由 iuhehc 于 2021-12-15 21:36 编辑 
+
+额我还以为她最后也开直播间的..
+
+我才意识过来，这三个人未来一年一直要营业吗？
+
+*****
+
+####  Rem-清曲  
+##### 6617#       发表于 2021-12-15 21:35
+
+今天过后就真不熟了     <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 6618#       发表于 2021-12-15 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一段时间没看睿站这是整了个什么活，索尼？三人成团？指皇？这些关键字碎片缝合异常困难求个懂哥科普一下
+
+*****
+
+####  T_Hb  
+##### 6619#       发表于 2021-12-15 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53951576&amp;ptid=2018830" target="_blank">笋狐 发表于 2021-12-15 21:37</a>
+
+一段时间没看睿站这是整了个什么活，索尼？三人成团？指皇？这些关键字碎片缝合异常困难求个懂哥科 ...</blockquote>
+索尼+阿B，然后一堆七七八八技术支持，指原莉乃创意总监，三人1年限定成员，然后再招新
+
+*****
+
+####  onlv星骸  
+##### 6620#       发表于 2021-12-15 21:40
+
+上来就聊了十分钟摸鱼话题可还行
+
