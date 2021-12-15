@@ -5162,3 +5162,13 @@ jitsuwa~</blockquote>
 因为这是国服as那个号发的，运营商sq。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我突然觉得这个月能看到就不错了…………
 
+
+
+*****
+
+####  chenflyyy  
+##### 1966#       发表于 2021-12-15 12:41
+
+不急，该有的总会有的，等就是了，鲤鱼也比较忙，需要找档期什么的
+还有星的，谷子是真的出得又快又多，钱包大破<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

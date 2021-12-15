@@ -5408,3 +5408,35 @@ Omicron，生态化反，无限可能</blockquote>
 康奈尔大学因新冠病例激增关闭了Ithaca校区。校长Martha Pollack表示，该大学的Covid-19实验室团队在“周一 ...</blockquote>
 加州最近恢复了室内公共场所的强制口罩
 
+
+
+*****
+
+####  烦死了  
+##### 1951#       发表于 2021-12-15 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941511&amp;ptid=2039422" target="_blank">yweili 发表于 2021-12-15 09:41</a>
+
+康奈尔大学因新冠病例激增关闭了Ithaca校区。校长Martha Pollack表示，该大学的Covid-19实验室团队在“周一 ...</blockquote>
+二针rna已经彻底没用了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  砥草  
+##### 1952#       发表于 2021-12-15 13:02
+
+ 本帖最后由 砥草 于 2021-12-15 13:04 编辑 
+<blockquote>nvis 发表于 2021-12-15 08:12
+他说的应该是德尔塔，最初发现新冠不耐高温，因此很多人认为北半球到了夏天，就能像当年SARS一样把疫情压 ...</blockquote>
+现在想起来，当初我们属实是有点天真了……<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+如今看来，SARS很大程度上就是被国内防疫按死的。
+
+而且冠状病毒完全可能耐热，SARS和Covid-19有个耐热亲戚叫MERS（中东呼吸系统综合征），2012年在沙特阿拉伯发现。
+
+顺便一说，和Covid-19相比，MERS的传染性简直不值一提，有些报告称MERS的病死率超过了35%，看数据属于打瘟疫公司基本打不赢的类型。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">但种废废都在国外折腾了差不多5年，中东国家头铁得要命（字面意义的要命），顶着疫情如常搞朝觐，直到2015年，韩国还被MERS爆破。
+
+有时我有点微妙的理解他们总用“传染性炸裂但症状轻微”自我安慰，毕竟比Covid-19废物多了的他们都打不赢<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
