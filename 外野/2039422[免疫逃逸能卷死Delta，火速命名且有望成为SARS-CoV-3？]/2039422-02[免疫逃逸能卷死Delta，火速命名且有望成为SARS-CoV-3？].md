@@ -5469,3 +5469,31 @@ Omicron，生态化反，无限可能</blockquote>
 二针rna已经彻底没用了是吧</blockquote>
 3针才有点儿希望
 
+
+
+*****
+
+####  smy20011  
+##### 1956#       发表于 2021-12-15 14:05
+
+Pfizer vaccine stops 70% of Omicron hospitalisations in South Africa: Discovery
+
+两针对住院70%有效力
+
+[https://businesstech.co.za/news/ ... h-africa-discovery/](https://businesstech.co.za/news/trending/546892/pfizer-vaccine-stops-70-of-omicron-hospitalisations-in-south-africa-discovery/)
+
+*****
+
+####  smy20011  
+##### 1957#       发表于 2021-12-15 14:15
+
+<img src="https://img.saraba1st.com/forum/202112/15/141003iz00gyy699pzj7y6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>HuQmvHX.jpeg</strong> (111.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 14:10 上传
+
+O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似
+

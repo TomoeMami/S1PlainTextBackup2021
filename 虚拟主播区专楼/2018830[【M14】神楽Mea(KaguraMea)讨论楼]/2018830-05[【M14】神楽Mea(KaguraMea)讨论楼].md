@@ -4357,3 +4357,41 @@ UF819H6BTEUWUW[RVRHZ%YG.png
 
 晚上打个sc问问你麻是如何看待指原莉乃的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 6504#       发表于 2021-12-15 14:02
+
+你还不如打sc问问麻酱呢
+
+*****
+
+####  Cortana  
+##### 6505#       发表于 2021-12-15 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945158&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2021-12-15 13:45</a>
+
+晚上打个sc问问你麻是如何看待指原莉乃的</blockquote>
+不懂就问，有什么故事吗
+
+*****
+
+####  呓亘  
+##### 6506#       发表于 2021-12-15 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53943639&amp;ptid=2018830" target="_blank">隐士观察者 发表于 2021-12-15 11:59</a>
+
+I can't completely hate Mea. She made the same mistake that billion dollar western companies make ev ...</blockquote>
+我超 这什么偏见。。。。他们真的以为B站希望cover走？不是cover自己作死？cover走了VR也没起来啊
+
+*****
+
+####  遗忘回想  
+##### 6507#       发表于 2021-12-15 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945477&amp;ptid=2018830" target="_blank">Cortana 发表于 2021-12-15 14:15</a>
+不懂就问，有什么故事吗</blockquote>
+她以前推的麻友友和这位都是akb48的，而且好像是竞争头牌的关系（）
+
