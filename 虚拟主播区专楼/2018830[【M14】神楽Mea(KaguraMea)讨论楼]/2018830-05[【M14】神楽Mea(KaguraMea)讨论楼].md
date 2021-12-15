@@ -5555,3 +5555,61 @@ y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气
 
 小声和声有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月艾莉  
+##### 6648#       发表于 2021-12-15 23:24
+
+力反馈手套太先进了不会有的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我总觉会有お話し会，劝大家提前做好心理准备
+
+*****
+
+####  雪风utopia  
+##### 6649#       发表于 2021-12-15 23:28
+
+力反馈手套，能不能帮我。。。<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6650#       发表于 2021-12-15 23:32
+
+ 本帖最后由 T_Hb 于 2021-12-15 23:38 编辑 
+
+这么好的歌，又给她拉了：
+
+什么，唐突重大发表<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">  
+
+？？什么毛病，没挨过打是吧
+
+*****
+
+####  遗忘回想  
+##### 6651#       发表于 2021-12-15 23:38
+
+我操尼玛死肥婆。
+
+*****
+
+####  路人庚  
+##### 6652#       发表于 2021-12-15 23:38
+
+重大发表：我要下班了。—— by 你咩姐
+
+*****
+
+####  htgz111  
+##### 6653#       发表于 2021-12-15 23:38
+
+其实聊天尬不尬根本无所谓，主要看是放养还是索尼有企划支持，单一个有冠名节目刷脸就比单打独斗强百倍，起码这是明确有作家支持的
+
+*****
+
+####  我单推副会长  
+##### 6654#       发表于 2021-12-15 23:39
+
+该去图奇了
+
