@@ -9041,3 +9041,47 @@ DW烂到索尼都看不下去了要做切割<img src="https://static.saraba1st.c
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 你要说fgo的爆点那肯定和月姬没关系，但我想表达的是月姬本身就是爆点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且月姬的部分新增设定和fgo是互通的，这个硬要说也能算
 
+
+
+*****
+
+####  UNISONIA  
+##### 84828#       发表于 2021-12-15 19:48
+
+ 本帖最后由 UNISONIA 于 2021-12-15 19:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945852&amp;ptid=1085254" target="_blank">BN桑 发表于 2021-12-15 14:45</a>
+
+DW把游戏业务卖给A爹了，🈶🈚️分析一波日后发展会有什么影响
+
+—— 来自 Xiaomi Mi 10 Pro, Androi ...</blockquote>
+并不是卖，只是因为DW今年出了很多事情名声烂了以后洗个马甲而已
+
+DW本来就是A爹全资子公司，换个新名义的子公司+部门平行移动=没有什么变化。除了法人不再是庄司以外，部门和别的高管完全不会变动
+
+另，A爹自己管的魔法记录和扭曲仙境那边风评比（樱花革命出事前的）DW还烂的多
+
+*****
+
+####  khxooo  
+##### 84829#       发表于 2021-12-15 19:53
+
+ 本帖最后由 khxooo 于 2021-12-15 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53948808&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-15 18:32</a>
+
+话说为什么每次无限池我都看到你狂刷。。这刷法资源为什么还没溢出 ...</blockquote>
+缺，这次刷的钉子全吃完了，刷子这狗东西一吃就60个钉子，还有妖崔的也是个钉子大户，吐了。
+
+*****
+
+####  UNISONIA  
+##### 84830#       发表于 2021-12-15 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53946901&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-15 16:10</a>
+
+你们与其猜什么索尼制裁看不下去啥的
+
+樱花大战烂到对赌赔钱，庄司卖公司还债可能性说不定还高一点</blockquote>
+其实那个16年SME财报有说DW跟他们的具体关系的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个子公司换到另外一个子公司有什么区别吗
+

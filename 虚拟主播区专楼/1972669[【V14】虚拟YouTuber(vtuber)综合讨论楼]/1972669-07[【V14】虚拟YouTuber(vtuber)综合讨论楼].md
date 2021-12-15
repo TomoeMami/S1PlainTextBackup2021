@@ -4449,3 +4449,27 @@ MZM三专
 晚上7点有他们的3rdlive不留档放送
 [https://www.youtube.com/watch?v=3aOA_3uQO0Y](https://www.youtube.com/watch?v=3aOA_3uQO0Y)
 
+
+
+*****
+
+####  天下雨  
+##### 9374#       发表于 2021-12-15 19:40
+
+ 本帖最后由 天下雨 于 2021-12-15 19:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53944661&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-12-15 13:03</a>
+
+鲨鱼妹夹在南桐中间是谁搞的站位，
+
+省一楼，口了依然（只）在出音声，一年多了快复活啊 ...</blockquote>
+驾驶员亲妈啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+放心，估计以后各家粉还有很多看这个组把好姐姐夹中间参大会大a特a的机会，不过会有不满的应该早八百年就已经跑了吧，年下组还蛮定番的
+
+*****
+
+####  alcoholic1000  
+##### 9375#       发表于 2021-12-15 19:44
+
+这首千年愛太强了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
