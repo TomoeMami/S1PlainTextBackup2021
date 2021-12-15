@@ -5613,3 +5613,67 @@ y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气
 
 该去图奇了
 
+
+
+*****
+
+####  遗忘回想  
+##### 6655#       发表于 2021-12-15 23:45
+
+但是还有打游戏的力气.jpg
+
+*****
+
+####  YoMico  
+##### 6656#       发表于 2021-12-15 23:45
+
+虽然很累但是有劲打游戏 什么游戏废人人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6657#       发表于 2021-12-15 23:46
+
+🐶都不看，睡觉
+
+*****
+
+####  Rem-清曲  
+##### 6658#       发表于 2021-12-15 23:52
+
+她是不是站起来鞠躬了   <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 6659#       发表于 2021-12-15 23:54
+
+<img src="https://img.saraba1st.com/forum/202112/15/235407sltlzzlla271k2mt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F0823EAF-C7CD-4189-8874-2EF778943038.jpeg</strong> (154.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 23:54 上传
+
+《回马枪》
+
+*****
+
+####  我单推副会长  
+##### 6660#       发表于 2021-12-15 23:57
+
+看新番去了，不播图奇的话就睡了
+
+
+
+*****
+
+####  ashero  
+##### 6661#       发表于 2021-12-15 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53952965&amp;ptid=2018830" target="_blank">Rem-清曲 发表于 2021-12-15 23:52</a>
+
+她是不是站起来鞠躬了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我都怀疑她磕头磕桌子上了
+
