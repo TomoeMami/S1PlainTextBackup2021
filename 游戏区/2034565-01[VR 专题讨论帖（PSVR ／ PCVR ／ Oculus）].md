@@ -3244,3 +3244,14 @@ among us VR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 
 有点想拿我的574一试了
 
+
+
+*****
+
+####  katern  
+##### 214#       发表于 2021-12-15 22:09
+
+买的Q2到了，但是激活搞了一晚上还是没弄好<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+我用笔记本电脑挂的V2R，ip和端口都输了，但就是死活连不上wifi。
+
