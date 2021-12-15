@@ -4109,3 +4109,60 @@ P丸是自己没把虚拟主播当回事跟索尼关系不大，索尼也没想�
 
 酬勤啊，又在回推
 
+
+
+*****
+
+####  59268416  
+##### 6480#       发表于 2021-12-15 11:43
+
+看了下隔壁，所以说还是要有点事啊，mea姐和大家都活力满满啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  万世创伤伊莫库  
+##### 6481#       发表于 2021-12-15 11:48
+
+<blockquote>443421870 发表于 2021-12-15 11:20
+https://boards.4channel.org/vt/thread/14637002
+
+英文圈基本全在扯mea啊</blockquote>
+但基本上都是在借着阿咩输出国内，少数几个祝福还是国外贴贴人发的
+
+*****
+
+####  Cushaw  
+##### 6482#       发表于 2021-12-15 11:54
+
+经过锻炼的肉体才是好肉体，利好肉体厨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2111X  
+##### 6483#       发表于 2021-12-15 11:54
+
+ 本帖最后由 2111X 于 2021-12-15 11:57 编辑 
+
+这下我也是老王国民了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+建设不可攀登的信息壁垒也要有我一分力<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  隐士观察者  
+##### 6484#       发表于 2021-12-15 11:59
+
+I can't completely hate Mea. She made the same mistake that billion dollar western companies make every day. Believing in or appealing to the chinese will hurt her more than she is capable of understanding.
+
+&gt;Doing well in China
+
+There is no profit to be made in China. I promise you Mea doesn't make money there, at least not any she can take home.
+
+China severely limits the amount of money foreign businesses are allowed to take out of it. The vast majority of income they make there has to be reinvested in the chinese side of their venture. This is how most companies are tricked into doing business there. They see the potential earnings from the giant customer base and hand over their tech and IP while the chinese side of things devises ways to perform a rug-pull and force the majority of the revenue to the chinese side. It's what virtuareal is and what bilibili was attempting to do to Cover. It's happened in every major Western industry. Fortunately, the West is finally beginning to realize the chinese are snakes and should be avoided.
+
+最有意思的是这一大段，简直精神分裂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

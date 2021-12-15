@@ -4375,3 +4375,12 @@ QQ图片20211215111608.jpg
 
 <img src="https://img.saraba1st.com/forum/202112/15/112946znx1bjnnnbx3oz1d.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 9367#       发表于 2021-12-15 11:55
+
+量子少年立绘看起来不如rofmao是因为我是二次元吗(((　ﾟдﾟ))) 
+
