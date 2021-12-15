@@ -3728,3 +3728,49 @@ syl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">坦克民早该输输了
 
+
+
+*****
+
+####  dsylolicon  
+##### 6435#       发表于 2021-12-15 10:06
+
+灰姑娘和三姐妹本身都没问题，但是合在一起问题就大了，搁这两个继姐是吧
+
+估计企划者是看到偶像大师灰姑娘之后拍脑门想的，觉得用灰姑娘形容偶像不错，结果忘记原典是什么了
+
+*****
+
+####  T_Hb  
+##### 6436#       发表于 2021-12-15 10:07
+
+年龄：3-38岁
+爱称：天使
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 6437#       发表于 2021-12-15 10:13
+
+笑了
+
+*****
+
+####  遗忘回想  
+##### 6438#       发表于 2021-12-15 10:13
+
+ 本帖最后由 遗忘回想 于 2021-12-15 10:15 编辑 
+
+原来🐷也能被雅威的光辉照耀了
+
+血管里的血小板都是爱心型的对吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 6439#       发表于 2021-12-15 10:19
+
+什么地中海镰刀贫血症<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8741,3 +8741,49 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 就年底狐狸、苍银，麻婆不知道要留到啥时候</blockquote>
 你这么说确实，今年目前为止确实没大的，2.6对2.0的主线几乎毫无推进，以至于万圣都算点儿大的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 84799#       发表于 2021-12-15 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941409&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-15 09:34</a>
+
+想了想去年给的爆点
+
+四台机神（美神、农神、宙斯、马尔斯），宙斯是裆部，十二神能合体，十二神合体干爆了 ...</blockquote>
+其实fgo讲到现在该讲的东西基本都快讲完了，戴比特，2.0真相，剩余的beast，剩余的冠位，迦勒底的内幕，异星神身份，也就这些能算是爆点。今年fgo确实没啥爆点，今年的爆点都在月姬那边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 84800#       发表于 2021-12-15 10:05
+
+26最匪夷所思的是和风要素莫名其妙地多
+
+妖崔的宝具是捏他的午时参拜，剧情里数次提到妖高的角跟鬼种是近似的，亚铃的转世是西方几乎没有而东方很常见的概念，C呆和摩根的咏唱就是神道祝词的行文风格
+
+迫真japan热衷于在不列颠身上找岛国共性
+
+*****
+
+####  zakki  
+##### 84801#       发表于 2021-12-15 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941831&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-15 10:05</a>
+
+26最匪夷所思的是和风要素莫名其妙地多
+
+妖崔的宝具是捏他的午时参拜，剧情里数次提到妖高的角跟鬼种是近似 ...</blockquote>
+蘑菇惯例罢了，乌鲁克不也一堆日本人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 84802#       发表于 2021-12-15 10:23
+
+对了，有人算过卡多克睡了多久了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
