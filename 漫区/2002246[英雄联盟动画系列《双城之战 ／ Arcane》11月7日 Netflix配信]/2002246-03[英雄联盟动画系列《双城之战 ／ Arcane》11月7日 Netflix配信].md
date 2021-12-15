@@ -489,3 +489,14 @@ s11维克托登场率还行吧，然后金克斯和维克托这s12季前赛版�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希望之异热同心  
+##### 3040#       发表于 2021-12-15 19:00
+
+企鹅有手机mmorpg啊，天刀手游不就是手机的mmorpg，拳头不找企鹅找谁嘛
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
