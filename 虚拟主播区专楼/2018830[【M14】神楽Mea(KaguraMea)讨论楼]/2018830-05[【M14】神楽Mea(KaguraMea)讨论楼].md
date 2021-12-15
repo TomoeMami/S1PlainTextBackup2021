@@ -4395,3 +4395,12 @@ I can't completely hate Mea. She made the same mistake that billion dollar weste
 不懂就问，有什么故事吗</blockquote>
 她以前推的麻友友和这位都是akb48的，而且好像是竞争头牌的关系（）
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6508#       发表于 2021-12-15 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

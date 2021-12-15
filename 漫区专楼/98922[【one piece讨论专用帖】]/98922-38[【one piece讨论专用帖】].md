@@ -9229,3 +9229,24 @@ queen太丢人了，作为觉醒动物系没有山治血条一半长</blockquote
 一个猜想OP里戴面具的是不是都没有丑的…</blockquote>
 另外一个king,狙击的那个。
 
+
+
+*****
+
+####  仟音一心  
+##### 56221#       发表于 2021-12-15 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53941967&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-12-15 10:14</a>
+你们速度都好快，究竟哪里看的！</blockquote>
+情报图透出了
+
+*****
+
+####  少年包工头  
+##### 56222#       发表于 2021-12-15 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53942922&amp;ptid=98922" target="_blank">blueflames001 发表于 2021-12-15 11:14</a>
+
+一个猜想OP里戴面具的是不是都没有丑的…</blockquote>
+基拉脱面具很一般啊
+
