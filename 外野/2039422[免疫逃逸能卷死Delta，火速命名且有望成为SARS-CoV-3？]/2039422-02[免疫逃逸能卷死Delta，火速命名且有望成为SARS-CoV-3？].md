@@ -5594,3 +5594,14 @@ The Covid-19 vaccine by Sinovac Biotech is not able to produce adequate antibodi
 
 <img src="https://p.sda1.dev/3/fdccacf8ed4128506be619e82984ca8b/IMG_CMP_40655745.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 1968#       发表于 2021-12-15 23:23
+
+欧洲疾控中心（ECDC）：奥密克戎变异株极有可能会导致住院和死亡。
+
+不是一个没死吗？慌啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
