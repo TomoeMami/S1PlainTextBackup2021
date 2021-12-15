@@ -5085,3 +5085,194 @@ y1s1，这b限还不搞个有字幕的视频是真的迷惑，一股子草台气
 
 久违的直播天赋 显现出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rem-清曲  
+##### 6592#       发表于 2021-12-15 21:01
+
+活力满满 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6593#       发表于 2021-12-15 21:01
+
+杂谈型主播竟然因为偶像包袱直播坐大牢，令人迷惑。
+
+*****
+
+####  Kanoya  
+##### 6594#       发表于 2021-12-15 21:01
+
+有一说一最后这段坐牢，咩虐狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 6595#       发表于 2021-12-15 21:01
+
+果然是有趣的女人
+
+*****
+
+####  2111X  
+##### 6596#       发表于 2021-12-15 21:01
+
+直播坐大牢，什么混入水族馆女子监狱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 6597#       发表于 2021-12-15 21:04
+
+她好开心，我也好开心<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SNOWIMEA  
+##### 6598#       发表于 2021-12-15 21:04
+
+狗屎，不是9点么？我特么9点掐点进直播间，发现她正好下播<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6599#       发表于 2021-12-15 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53951129&amp;ptid=2018830" target="_blank">SNOWIMEA 发表于 2021-12-15 21:04</a>
+
+狗屎，不是9点么？我特么9点掐点进直播间，发现她正好下播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">9点半应该有个30分钟的三人联动，然后就是油管歌回。
+
+*****
+
+####  makourisu-2  
+##### 6600#       发表于 2021-12-15 21:06
+
+你麻麻的，第一次宣发就直播摆烂是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看b站这也没给啥宣发资源，不会是索尼日本那边的部门拍脑门搞出来的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T_Hb  
+##### 6601#       发表于 2021-12-15 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管他呢反正又不需要自己出钱
+
+*****
+
+####  SNOWIMEA  
+##### 6602#       发表于 2021-12-15 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53951148&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2021-12-15 21:06</a>
+9点半应该有个30分钟的三人联动，然后就是油管歌回。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只能看录播嘞
+
+*****
+
+####  gongge666  
+##### 6603#       发表于 2021-12-15 21:07
+
+有可能是日本B站搞得，虚拟区也没有推广，要不然怎么说虚拟区官号也该转发的
+
+*****
+
+####  clvan_  
+##### 6604#       发表于 2021-12-15 21:08
+
+ 本帖最后由 clvan_ 于 2021-12-15 21:11 编辑 
+
+还要三人联动啊，三个人一块再看一遍视频<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl，那就是日本睿站整的咯，难怪这边一点动静都没有，草台度更高了
+
+*****
+
+####  htgz111  
+##### 6605#       发表于 2021-12-15 21:08
+
+这企划本质就是面相日本，可以说是元事业民狂喜的本地市场了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6606#       发表于 2021-12-15 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53951165&amp;ptid=2018830" target="_blank">SNOWIMEA 发表于 2021-12-15 21:07</a>
+
+只能看录播嘞</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正这个肯定要翻译的……速通直播，然后坐大牢是真的厉害……
+
+*****
+
+####  T_Hb  
+##### 6607#       发表于 2021-12-15 21:09
+
+说实话本土宣发力度确实比阿b大，现在已经不知道这玩意儿的定位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6608#       发表于 2021-12-15 21:10
+
+ 本帖最后由 古战场亡魂 于 2021-12-15 21:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53951171&amp;ptid=2018830" target="_blank">htgz111 发表于 2021-12-15 21:08</a>
+
+这企划本质就是面相日本，可以说是元事业民狂喜的本地市场了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正别三人联动的时候到油管那个团体号就行。
+
+别搞到最后没mea自己频道直播同接多，发生这种搞笑的事情就行。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其他两位倒是可以在油管发育一下了，但是她们都定居b站了，敢引流油管也是死路一条，你猜她们现在的粉丝会不会放过她们。
+
+*****
+
+####  时雨rain  
+##### 6609#       发表于 2021-12-15 21:12
+
+那么这企划可能是麻麻枕营业索尼高层换的吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6610#       发表于 2021-12-15 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53951187&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-12-15 21:09</a>
+
+说实话本土宣发力度确实比阿b大，现在已经不知道这玩意儿的定位了</blockquote>
+要是面向本土的话 不会是因为那个没搞成的vtuber团体要一雪前耻吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  443421870  
+##### 6611#       发表于 2021-12-15 21:13
+
+三人的话不是正好apex联动嘛<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  T_Hb  
+##### 6612#       发表于 2021-12-15 21:14
+
+ 本帖最后由 T_Hb 于 2021-12-15 21:17 编辑 
+
+随它搞，上课也行，综艺也行，live也行，只要不整些一个星期都不能播的活，该发的米发了，就无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6613#       发表于 2021-12-15 21:15
+
+ 本帖最后由 古战场亡魂 于 2021-12-15 21:16 编辑 
+
+差点忘了，三个人的游戏压根不兼容。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">sony发台ps5吧，mea只狼一心没直播通关……
+
+*****
+
+####  T_Hb  
+##### 6614#       发表于 2021-12-15 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是串台了
+
