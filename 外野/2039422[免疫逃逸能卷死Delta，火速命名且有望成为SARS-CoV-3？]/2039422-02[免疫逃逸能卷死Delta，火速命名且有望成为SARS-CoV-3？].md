@@ -5516,3 +5516,24 @@ O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似
 
 Canada considers closing border to non-essential foreign travelers, including Americans, to slow the spread of Omicron - CBC
 
+
+
+*****
+
+####  克鲁特尼  
+##### 1960#       发表于 2021-12-15 15:58
+
+<blockquote>pushare 发表于 2021-12-15 15:18
+Canada considers closing border to non-essential foreign travelers, including Americans, to slow the ...</blockquote>
+现在关太迟了吧？而且就美加那边境挡不住的
+
+*****
+
+####  yario  
+##### 1961#       发表于 2021-12-15 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53946192&amp;ptid=2039422" target="_blank">listenermy 发表于 2021-12-15 15:11</a>
+
+什么原始异虫病毒</blockquote>
+zerg？
+

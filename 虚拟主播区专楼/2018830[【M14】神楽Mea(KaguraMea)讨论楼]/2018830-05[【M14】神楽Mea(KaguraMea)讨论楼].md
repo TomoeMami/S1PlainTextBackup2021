@@ -4462,3 +4462,42 @@ mayuyu和指皇之间啥关系我不懂，反正随便一搜就知道粉丝关�
 
 糊逼没立场挑三拣四 有空论坛打嘴炮不如多打两份工攒点钱给麻买碟买（可能会有的）握手券 总之single卖得出数据就算赢
 
+
+
+*****
+
+####  T_Hb  
+##### 6515#       发表于 2021-12-15 15:41
+
+我猜都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 6516#       发表于 2021-12-15 15:43
+
+如果没疫情是有没有可能来国内
+
+*****
+
+####  路人庚  
+##### 6517#       发表于 2021-12-15 15:50
+
+没有疫情也许会来吧，但现在想象没有疫情的世界线已经没啥意义了（
+
+*****
+
+####  雪风utopia  
+##### 6518#       发表于 2021-12-15 15:51
+
+保底一年半之内不会毕业()<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 还有新衣服，3d还是2d呢，不管是哪个都不亏<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6519#       发表于 2021-12-15 15:55
+
+怎么可能有新2d<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定是上活动用的3d
+
