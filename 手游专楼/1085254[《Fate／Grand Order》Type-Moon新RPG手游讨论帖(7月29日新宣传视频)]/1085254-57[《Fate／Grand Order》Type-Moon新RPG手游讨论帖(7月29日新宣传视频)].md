@@ -8839,3 +8839,12 @@ nga是怎么做到仇凛90+次次吃瘪还坚定不移的吹是全游顶级光�
 比如终章给你来个冠七集合，或者苍银联动 ...</blockquote>
 冠位集合我觉得极大概率是有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84807#       发表于 2021-12-15 13:39
+
+没人想过提妈进街机的话，这beast6就反过来进手游嘛
+

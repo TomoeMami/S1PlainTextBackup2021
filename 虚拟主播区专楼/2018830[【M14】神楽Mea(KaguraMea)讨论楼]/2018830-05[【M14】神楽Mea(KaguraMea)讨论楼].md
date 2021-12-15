@@ -4278,3 +4278,63 @@ China severely limits the amount of money foreign businesses are allowed to take
 
 还是寻求共治好一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奇拉奇拉  
+##### 6499#       发表于 2021-12-15 13:29
+
+ 本帖最后由 奇拉奇拉 于 2021-12-15 13:32 编辑 
+
+尼哥潭这人也太典了，我愿称其为虚拟＃皇<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+补一下起因
+
+L7YM8HC3(15~XRY6SJYRZ92.png
+(27.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 13:28 上传
+
+<img src="https://img.saraba1st.com/forum/202112/15/132855ccdop4f141odvc11.png" referrerpolicy="no-referrer">
+
+UF819H6BTEUWUW[RVRHZ%YG.png
+(26.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 13:28 上传
+
+<img src="https://img.saraba1st.com/forum/202112/15/132855dkzxtncpmcnxmced.png" referrerpolicy="no-referrer">
+
+6W(}%(OXB{NOSJEL4MV~_(X.png
+(127.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-15 13:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/15/133237xtjr1u53qs5jrhuq.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.shelter  
+##### 6500#       发表于 2021-12-15 13:32
+
+ 本帖最后由 Mr.shelter 于 2021-12-15 13:33 编辑 
+
+英文圈不叨叨你麻叨叨谁啊，小红？人家认识吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便支持天狗正义开楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病態極端  
+##### 6501#       发表于 2021-12-15 13:33
+
+<img src="https://p.sda1.dev/3/3ccaf2e942dad03f71879cda17e81340/usper.png" referrerpolicy="no-referrer">
+
+雖然不知道是你們哪位發的，但是篡位者的寫法是usurper<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

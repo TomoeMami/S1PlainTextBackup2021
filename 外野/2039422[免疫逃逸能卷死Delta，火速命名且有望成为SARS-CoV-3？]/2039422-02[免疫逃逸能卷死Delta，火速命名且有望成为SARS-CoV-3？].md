@@ -5440,3 +5440,32 @@ Omicron，生态化反，无限可能</blockquote>
 
 有时我有点微妙的理解他们总用“传染性炸裂但症状轻微”自我安慰，毕竟比Covid-19废物多了的他们都打不赢<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  琉璃  
+##### 1953#       发表于 2021-12-15 13:21
+
+今天看到Omicron的CT值14-18。没记错的话Delta是15-20。
+
+说是mild……这真的不是统计误差范畴吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GregMD  
+##### 1954#       发表于 2021-12-15 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53944867&amp;ptid=2039422" target="_blank"> 琉璃 发表于 2021-12-15 13:21</a> 今天看到Omicron的CT值14-18。没记错的话Delta是15-20。 说是mild……这真的不是统计误差范畴吗？ </blockquote>
+痰液样本病毒载量和症状轻重有关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Redis  
+##### 1955#       发表于 2021-12-15 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53944579&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-15 12:57</a>
+
+二针rna已经彻底没用了是吧</blockquote>
+3针才有点儿希望
+
