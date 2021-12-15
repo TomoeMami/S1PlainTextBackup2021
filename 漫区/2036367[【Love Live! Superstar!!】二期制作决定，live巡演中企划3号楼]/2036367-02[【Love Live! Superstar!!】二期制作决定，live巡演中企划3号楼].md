@@ -5106,3 +5106,14 @@ jitsuwa~</blockquote>
 所以12中旬的节目呢</blockquote>
 翻了翻微博和b动态，好像没说中旬啊。是蓝鸟那边说的吧，是不是没沟通好
 
+
+
+*****
+
+####  lj205  
+##### 1960#       发表于 2021-12-15 12:18
+
+特别节目到底什么时候吐出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+鲤鱼推鞠莉，她之前上ANN自己说的
+

@@ -4166,3 +4166,33 @@ China severely limits the amount of money foreign businesses are allowed to take
 
 最有意思的是这一大段，简直精神分裂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 6485#       发表于 2021-12-15 12:08
+
+4chan还挺有意思的，基本也都是不看好
+
+*****
+
+####  T_Hb  
+##### 6486#       发表于 2021-12-15 12:09
+
+不看好挺正常的，反正不就是混一年，又没被绑死在上面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6487#       发表于 2021-12-15 12:12
+
+没心思关心这个了，我这边两个无症状被查出，今天新加两个直接全市要求检测了。
+
+*****
+
+####  aliade  
+##### 6488#       发表于 2021-12-15 12:13
+
+团专楼呢？专楼开起来啊？我要看大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

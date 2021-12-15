@@ -12917,3 +12917,21 @@ co宝这一首送别给我整玉玉了
 趁着量子人还不多，赶紧炒一波
 <img src="https://p.sda1.dev/3/052c587249f0baebd1dd73b4dfb7fb0a/IMG_CMP_31553516.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 4477#       发表于 2021-12-15 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53943542&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-15 11:53</a>
+趁着量子人还不多，赶紧炒一波</blockquote>
+摩拉克斯是你吗？
+
+*****
+
+####  小憨1  
+##### 4478#       发表于 2021-12-15 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
