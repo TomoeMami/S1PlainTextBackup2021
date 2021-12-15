@@ -4694,3 +4694,141 @@ syl 还有新衣服，3d还是2d呢，不管是哪个都不亏<img src="https://
 
 指原怎么这么丑了
 
+
+
+*****
+
+####  yywzjsw  
+##### 6543#       发表于 2021-12-15 20:27
+
+都要变大妈了
+
+*****
+
+####  雪风utopia  
+##### 6544#       发表于 2021-12-15 20:30
+
+不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6545#       发表于 2021-12-15 20:30
+
+连个字幕都没有，就这种糊弄的态度，可以的。
+
+*****
+
+####  T_Hb  
+##### 6546#       发表于 2021-12-15 20:31
+
+ 本帖最后由 T_Hb 于 2021-12-15 20:34 编辑 
+
+但是jp宣发还有点样子，早间新闻，报纸版面
+
+意思是宣发索尼负责，阿b啥也不干
+
+*****
+
+####  Rem-清曲  
+##### 6547#       发表于 2021-12-15 20:33
+
+ 本帖最后由 Rem-清曲 于 2021-12-15 20:36 编辑 
+
+给大伙整无语了  <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 6548#       发表于 2021-12-15 20:35
+
+还真都看一遍
+
+*****
+
+####  十九号大侠  
+##### 6549#       发表于 2021-12-15 20:36
+
+到底是面向日本还是b站哦
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  依旧ing  
+##### 6550#       发表于 2021-12-15 20:36
+
+太草台力
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 6551#       发表于 2021-12-15 20:36
+
+B限发布难道是面向海外的吗
+
+*****
+
+####  yywzjsw  
+##### 6552#       发表于 2021-12-15 20:37
+
+面向阿b阿，文章都写了面向阿b的，但选拔人选是yhm
+
+*****
+
+####  十九号大侠  
+##### 6553#       发表于 2021-12-15 20:37
+
+指原很有名吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yywzjsw  
+##### 6554#       发表于 2021-12-15 20:38
+
+艹了，你把自己快进了
+
+*****
+
+####  Mikumiku831  
+##### 6555#       发表于 2021-12-15 20:38
+
+熟悉的味道<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6556#       发表于 2021-12-15 20:39
+
+你跳你麻呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Oshino57  
+##### 6557#       发表于 2021-12-15 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53946456&amp;ptid=2018830" target="_blank">htgz111 发表于 2021-12-15 15:36</a>
+
+糊逼没立场挑三拣四 有空论坛打嘴炮不如多打两份工攒点钱给麻买碟买（可能会有的）握手券 总之single卖得出 ...</blockquote>
+握手券，力反馈手套是吧
+
+*****
+
+####  十九号大侠  
+##### 6558#       发表于 2021-12-15 20:39
+
+到底还是害羞了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 6559#       发表于 2021-12-15 20:40
+
+这麦克是不是长根了啊
+

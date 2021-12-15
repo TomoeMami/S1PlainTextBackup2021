@@ -9309,3 +9309,32 @@ queen本来就挺水的，大妈揍他比打布鲁克都轻松，赏金高估计
 这话结合之前的 ...</blockquote>
 霸缠版三刀流就能干翻皇副，霸缠版九刀流估计得打皇将级才用得到，鹰眼？？
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56227#       发表于 2021-12-15 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53950408&amp;ptid=98922" target="_blank"> fmchar 发表于 2021-12-15 20:19</a> 引用:天使的日曜日 发表于 2021-12-15 19:47 三灾战依旧拉胯，都挂的有点快 两年后九刀流被冷藏了10年，霸缠九刀流估计要留到最终战了吧 这话结合之前的 ... 霸缠版三刀流就能干翻皇副，霸缠版九刀流估计得打皇将级才用得到，鹰眼？？ </blockquote>
+最后只剩个溪流了吧
+藤虎不像会敌对的样子，难不成打五老星那个拿刀的？
+按传统漫画的套路，索隆跟鹰眼很难打起来了
+一般都是鹰眼当垫脚石被打败再由索隆去打败打败鹰眼的人来证明索隆超越鹰眼
+不过鹰眼的逼格这么高，很难说会被谁打败￼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  天使的日曜日  
+##### 56228#       发表于 2021-12-15 20:34
+
+不过op的战力不能深究
+
+没习得霸王色的残血索隆九刀流可以给凯多留疤
+
+破解了K的秘密真不信K能吃索隆不缠绕霸王色的九刀流几刀不倒
+
+虽然最后还是给霸缠新招试刀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+来自: iPhone客户端
+
