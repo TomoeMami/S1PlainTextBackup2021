@@ -5694,3 +5694,21 @@ O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似</
 英国已经死了一个吧</blockquote>
 你带英死了一个跟我欧盟有啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 1975#       发表于 2021-12-16 20:55
+
+ny等占比也上去了
+
+<img src="https://p.sda1.dev/3/e174a9809e4117b7814756fd9be7b07d/IMG_CMP_78448448.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  66666  
+##### 1976#       发表于 2021-12-16 20:58
+
+为什么看不到同时德奥合体的比例分析？还是说默认德尔塔已经全体免疫了？
+

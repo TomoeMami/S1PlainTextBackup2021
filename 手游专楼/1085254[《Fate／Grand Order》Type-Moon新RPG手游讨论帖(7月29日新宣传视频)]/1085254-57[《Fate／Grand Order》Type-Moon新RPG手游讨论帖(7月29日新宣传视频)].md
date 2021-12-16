@@ -9580,3 +9580,15 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 明天中午就关活动了，我到现在一张礼装都没掉</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还好掉了，只是这次高难懒得打，现在日服摸鱼给国服腾时间
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84876#       发表于 2021-12-16 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53964009&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-16 20:00</a>
+
+萌新12池掉了1张</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30箱0张
+
