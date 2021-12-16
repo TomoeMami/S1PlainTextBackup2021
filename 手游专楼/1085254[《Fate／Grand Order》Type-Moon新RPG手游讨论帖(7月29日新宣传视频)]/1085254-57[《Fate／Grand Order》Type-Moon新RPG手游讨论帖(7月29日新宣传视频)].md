@@ -9699,3 +9699,33 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 辣鸡游戏越来越咸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 84886#       发表于 2021-12-16 23:54
+
+30池一张，撤退了，第一次这么咸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84887#       发表于 2021-12-17 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966587&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-16 23:45</a>
+
+这次无限池只刷了20池.....连礼装都没满破
+
+辣鸡游戏越来越咸鱼了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/17/000007nm77756rd0e67ne0.jpg" referrerpolicy="no-referrer">
+
+<strong>1111.jpg</strong> (453.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 00:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你对咸鱼有点误解
+

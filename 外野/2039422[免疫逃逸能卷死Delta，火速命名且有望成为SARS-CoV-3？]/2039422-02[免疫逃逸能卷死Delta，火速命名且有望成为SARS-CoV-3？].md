@@ -5784,3 +5784,83 @@ O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似</
 
 <img src="https://p.sda1.dev/3/05a13907636dee56b7e376b6a82846c3/IMG_CMP_201208681.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Alexmacau8  
+##### 1983#       发表于 2021-12-16 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966520&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-16 23:38</a>
+南非这数据</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“拐点来了” “死亡率低” ”天然疫苗”
+
+*****
+
+####  flyinwild  
+##### 1984#       发表于 2021-12-16 23:41
+
+那奥密克戎果真重症率更低住院率更低的话，形势就好一点。
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  西风之哀  
+##### 1985#       发表于 2021-12-16 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966548&amp;ptid=2039422" target="_blank">flyinwild 发表于 2021-12-16 23:41</a>
+
+那奥密克戎果真重症率更低住院率更低的话，形势就好一点。
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 S ...</blockquote>
+但是，又一个新的统计学悖论:毒力变强，感染者重症率和致死率下降。  
+
+因为毒力更强，所以危重变死亡，重症变危重，轻症变重症，轻微变轻症，无症状变轻微，未感染变无症状。 
+
+由于最后两类人数最多，使得感染者总数的增长幅度大于重症增长幅度，于是从统计数字来看感染者重症率和致死率都下降了。
+
+*****
+
+####  genjimono  
+##### 1986#       发表于 2021-12-16 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966548&amp;ptid=2039422" target="_blank">flyinwild 发表于 2021-12-16 23:41</a>
+
+那奥密克戎果真重症率更低住院率更低的话，形势就好一点。
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 S ...</blockquote>
+你要看感染小o的人的年龄构成，是年轻人居多啊
+
+*****
+
+####  最好不说  
+##### 1987#       发表于 2021-12-16 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966548&amp;ptid=2039422" target="_blank">flyinwild 发表于 2021-12-16 23:41</a>
+
+那奥密克戎果真重症率更低住院率更低的话，形势就好一点。
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 S ...</blockquote>
+在两天就翻一番的传染速度面前，就算omicron的重症率是原始株的10%也能轻松冲烂世界上所有医疗机构，而且omicron带来的医疗压力是叠加在delta的大流行上的，你以为是轮战模式其实是前后夹击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pushare  
+##### 1988#       发表于 2021-12-16 23:56
+
+英超扛不住了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+(AFP)Leicester confirm Premier League match against Tottenham postponed due to Covid outbreak 
+
+*****
+
+####  wszweill  
+##### 1989#       发表于 2021-12-16 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966548&amp;ptid=2039422" target="_blank">flyinwild 发表于 2021-12-16 10:41</a>
+
+那奥密克戎果真重症率更低住院率更低的话，形势就好一点。
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 S ...</blockquote>
+实际重症率是感染人数x重症率，只要人数够多，那都不是问题。关键南非什么人口结构，和欧美人均寿命都差不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
