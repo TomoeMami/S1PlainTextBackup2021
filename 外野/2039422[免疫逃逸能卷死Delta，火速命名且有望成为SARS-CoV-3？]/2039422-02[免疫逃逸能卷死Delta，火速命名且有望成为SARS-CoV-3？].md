@@ -5614,3 +5614,39 @@ The Covid-19 vaccine by Sinovac Biotech is not able to produce adequate antibodi
 
 The United Kingdom recorded its highest daily coronavirus cases since the start of the pandemic. A further 78,610 COVID-19 cases were reported on Wednesday, surpassing the previous high of 68,053 cases reported on Jan. 8 
 
+
+
+*****
+
+####  最好不说  
+##### 1970#       发表于 2021-12-16 11:20
+
+<blockquote>pushare 发表于 2021-12-16 10:55
+The United Kingdom recorded its highest daily coronavirus cases since the start of the pandemic. A f ...</blockquote>
+一点都不奇怪，欧洲现在最遭重的地方就是伦敦和奥斯陆，前者omicron倍增时间1.7天，后者倍增时间1.6天。而且还和delta绝赞合作中，堪称双赢典范
+
+<img src="https://img.saraba1st.com/forum/202112/16/111303fzowpbqpzqbauw4b.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-2ebfd4bfd563d47b5a288f78ef2bd33c_720w.jpg</strong> (37.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-16 11:13 上传
+
+不出意外这个冬天omicron还会和delta一起创造更多疫情记录，一个月荡平西欧，两个月打垮美帝，白马骑士赢麻了
+
+*****
+
+####  droople  
+##### 1971#       发表于 2021-12-16 11:20
+
+<blockquote>引用第1967楼最好不说于2021-12-15 23:23发表的  :
+
+欧洲疾控中心（ECDC）：奥密克戎变异株极有可能会导致住院和死亡。不是一个没死吗？慌啥呢</blockquote>
+@最好不说
+
+英国已经死了一个吧
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+

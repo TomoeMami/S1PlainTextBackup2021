@@ -9239,3 +9239,27 @@ DW本来就是A爹全资子公司，换个新名义的 ...</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  angelooo  
+##### 84846#       发表于 2021-12-16 11:09
+
+通古斯和新年不来几波大的今年可以直接判死刑了，哪有街机这么直接糊脸输出的
+
+*****
+
+####  白金口袋  
+##### 84847#       发表于 2021-12-16 11:15
+
+真没想到我这咸鱼也有看到这提示的一天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/15/211521o2l2ax2abzziwxbx.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211215211414.png</strong> (201.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 11:15 上传
+
