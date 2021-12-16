@@ -9516,3 +9516,14 @@ king queen的果实反而像减分项，queen主要靠的改造，king的本身�
 
 这节奏让我有种后边凯多团要集体仰卧起坐的感觉……毕竟恐龙的特点是血厚……
 
+
+
+*****
+
+####  ceruleancard  
+##### 56243#       发表于 2021-12-16 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53959575&amp;ptid=98922" target="_blank">yth329 发表于 2021-12-16 14:19</a>
+皇副观感不好可能是因为相比路飞，山治索隆还各自跳了一个副本没打，导致现在战力膨胀得比5皇还夸张 ...</blockquote>
+我觉得是篇幅问题，路飞打卡二多艰难，对比一下这两太轻松了
+

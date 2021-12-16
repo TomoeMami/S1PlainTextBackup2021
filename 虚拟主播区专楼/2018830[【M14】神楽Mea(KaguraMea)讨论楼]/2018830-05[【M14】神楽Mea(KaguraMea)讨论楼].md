@@ -6137,3 +6137,19 @@ bsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 又开始打广告了，广告词背的熟啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6716#       发表于 2021-12-16 18:12
+
+这被打穿了啊。
+
+*****
+
+####  T_Hb  
+##### 6717#       发表于 2021-12-16 18:12
+
+这把看着就输了
+

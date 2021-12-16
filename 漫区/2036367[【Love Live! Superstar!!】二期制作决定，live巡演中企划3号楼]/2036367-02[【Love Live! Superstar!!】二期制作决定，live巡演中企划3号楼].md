@@ -5604,3 +5604,19 @@ kumanori.JPG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">菜宝也忙起来了 不错不错 18号菜宝上麻油鸡节目 19号酸菜鱼 20号鲤鱼fc <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连轴真爽
 
+
+
+*****
+
+####  名津流  
+##### 2011#       发表于 2021-12-16 18:02
+
+接受K访谈采访，现在又参加微博的活动，感觉liyuu的运营正在预热国内
+
+*****
+
+####  cybernetics31  
+##### 2012#       发表于 2021-12-16 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">微博啥的访谈一直有的 19年就有 正常操作
+
