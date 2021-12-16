@@ -5773,3 +5773,14 @@ O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似</
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  pushare  
+##### 1982#       发表于 2021-12-16 23:38
+
+南非这数据
+
+<img src="https://p.sda1.dev/3/05a13907636dee56b7e376b6a82846c3/IMG_CMP_201208681.jpeg" referrerpolicy="no-referrer">
+

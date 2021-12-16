@@ -9688,3 +9688,14 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 新OST是几号发售来着<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 84885#       发表于 2021-12-16 23:45
+
+这次无限池只刷了20池.....连礼装都没满破
+
+辣鸡游戏越来越咸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
