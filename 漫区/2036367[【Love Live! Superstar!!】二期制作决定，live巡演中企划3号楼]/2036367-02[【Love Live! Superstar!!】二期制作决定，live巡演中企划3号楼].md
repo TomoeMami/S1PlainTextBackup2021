@@ -5351,3 +5351,63 @@ jitsuwa~</blockquote>
 
 录播也会群魔乱舞的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 1984#       发表于 2021-12-16 12:26
+
+录播，时长呢？30分钟？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 1985#       发表于 2021-12-16 12:27
+
+魔爪大战喜茶，口水巾大战辣炒米粉，上海偶像大战广东偶像，中文复健
+
+*****
+
+####  中野四葉  
+##### 1986#       发表于 2021-12-16 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53958106&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-16 12:27</a>
+魔爪大战喜茶，口水巾大战辣炒米粉，上海偶像大战广东偶像，中文复健</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">yamero！我已经想象到热评的情景了
+
+*****
+
+####  chenflyyy  
+##### 1987#       发表于 2021-12-16 12:28
+
+那确实还是录播好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 1988#       发表于 2021-12-16 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不求直播，时间能差不多1小时就行
+
+*****
+
+####  优妮可  
+##### 1989#       发表于 2021-12-16 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53958119&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-12-16 12:28</a>
+
+yamero！我已经想象到热评的情景了</blockquote>
+感觉不用想，热评百分百会这样，<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 1990#       发表于 2021-12-16 12:37
+
+还真是中旬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
