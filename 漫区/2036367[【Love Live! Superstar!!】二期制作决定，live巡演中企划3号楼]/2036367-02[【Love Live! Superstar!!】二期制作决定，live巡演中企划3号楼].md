@@ -5277,3 +5277,16 @@ jitsuwa~</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 1976#       发表于 2021-12-16 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53954084&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-16 02:58</a>
+补了下当年一直没看的水团两季，真是越看越愤怒，S2十话开始好不容易有点无印S2的味道了结果结尾整一堆神神 ...</blockquote>
+当年的节奏也是莫名其妙，搞得要光速fl一样，结果线下live搞得有声有色的，到今年还是能正常活动。只能说当年上层脑子进水，花田这个人既有责任又要背锅。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -9121,3 +9121,12 @@ SEGA其实到下半年也不太提这个事情了，他们今年的业绩情况�
 DW本来就是A爹全资子公司，换个新名义的 ...</blockquote>
 还以为anx打算把dw变成另一种形式的型月旗下游戏制作组，和stdiobb不同，名义是anx子公司实际只做型月游戏，听你这么说的话看来和现在没啥变化
 
+
+
+*****
+
+####  areklose  
+##### 84834#       发表于 2021-12-16 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这街机大尼莫真的好看。
+
