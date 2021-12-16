@@ -3269,3 +3269,15 @@ among us VR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 q2之所以这么便宜很大一部分原因就是脸书赔钱卖生态
 
+
+
+*****
+
+####  egged5  
+##### 216#       发表于 2021-12-16 17:17
+
+无线串流有什么好的路由器推荐吗？不是很懂这个，家里现在用的路由器是tplink
+隔壁推荐的天邑TY300怎么样？
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -9475,3 +9475,14 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 日本人在猜和提妈对应的手游角色是谁，毕竟独占的除了圣诞角色外都是成对的，男女梅林，拉玛希拉，男女团长 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男提妈（
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 84866#       发表于 2021-12-16 17:12
+
+总算百池了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

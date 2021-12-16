@@ -963,3 +963,32 @@ Q：中国公司开发的手游版《伊苏8》进度如何？
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  yuikonnu  
+##### 97#       发表于 2021-12-16 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53961548&amp;ptid=2042784" target="_blank">龙之峰 发表于 2021-12-16 16:49</a>
+应该不至于直接就回来吧，不然黎轨1结尾就没啥意义了</blockquote>
+我猜一个马克邦
+
+— from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  椎名mahuyo  
+##### 98#       发表于 2021-12-16 17:09
+
+60个员工减去宣发市场后勤，开发的真就没那么多了
+
+*****
+
+####  415452356  
+##### 99#       发表于 2021-12-16 17:23
+
+  我记得小胡子在SFC时代就说过开发出一个好的RPG至少要用上100人，法老控这么多年过去了才超过这个数字的一半。
+
+  不过轨迹目前这个情况哪怕是真的公司扩容了也有因为注水注的实在太长，新玩家非常难入坑，老玩家甚至还有跳坑没回来的情况。
+
