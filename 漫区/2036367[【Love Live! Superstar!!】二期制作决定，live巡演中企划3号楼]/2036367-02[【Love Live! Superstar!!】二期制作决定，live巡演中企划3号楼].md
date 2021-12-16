@@ -5312,3 +5312,42 @@ jitsuwa~</blockquote>
 
 <img src="https://p.sda1.dev/3/16d0a57b1e340e90ff19954583473966/20211216_110159.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 1979#       发表于 2021-12-16 12:14
+
+节目来了
+
+*****
+
+####  ykyin09  
+##### 1980#       发表于 2021-12-16 12:15
+
+来了 菜宝跟鲤鱼的节目 19日晚上7点来自: iPhone客户端
+
+
+
+*****
+
+####  cybernetics31  
+##### 1981#       发表于 2021-12-16 12:15
+
+还真是录播啊，嘛，先🈶️了再说
+
+*****
+
+####  中野四葉  
+##### 1982#       发表于 2021-12-16 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定录播的，不然直播间群魔乱舞就好玩了
+
+*****
+
+####  绯想alter2nd  
+##### 1983#       发表于 2021-12-16 12:25
+
+录播也会群魔乱舞的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
