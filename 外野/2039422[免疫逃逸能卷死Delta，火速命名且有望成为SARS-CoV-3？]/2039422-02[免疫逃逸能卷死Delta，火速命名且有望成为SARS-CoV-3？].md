@@ -5913,3 +5913,33 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
 每天一个新纪录<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">: UK reports 88,376 new coronavirus cases, by far the biggest one-day increase on record
 
+
+
+*****
+
+####  Humpy  
+##### 1995#       发表于 2021-12-17 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966811&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-17 00:08</a>
+12月15日，第一财经从科兴（SINOVAC）获悉，科兴先后从香港获得两株Omicron病毒株，即进行了中和试验。最新 ...</blockquote>
+单纯的中和抗体阳性率的数据没啥太大用，如果中和抗体滴度和有效率能升上去才能放心
+
+*****
+
+####  creymorgan  
+##### 1996#       发表于 2021-12-17 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966811&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-17 00:08</a>
+
+12月15日，第一财经从科兴（SINOVAC）获悉，科兴先后从香港获得两株Omicron病毒株，即进行了中和试验。最新 ...</blockquote>
+不知道这里标准，滴度超过32才被认为有保护力，但是只要有1就能测的出来。
+
+*****
+
+####  coldhot3  
+##### 1997#       发表于 2021-12-17 00:38
+
+<blockquote>Humpy 发表于 2021-12-17 00:27
+单纯的中和抗体阳性率的数据没啥太大用，如果中和抗体滴度和有效率能升上去才能放心 ...</blockquote>
+大多数人的滴度上去了都未必管用。这玩意rt太高，只要少数人滴度不够就能突破免疫屏障。
+
