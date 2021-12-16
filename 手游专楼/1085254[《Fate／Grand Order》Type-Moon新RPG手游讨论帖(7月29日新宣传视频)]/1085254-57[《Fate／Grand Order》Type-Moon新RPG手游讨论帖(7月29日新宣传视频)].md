@@ -9592,3 +9592,59 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 萌新12池掉了1张</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30箱0张
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84877#       发表于 2021-12-16 21:48
+
+ 本帖最后由 gpx234mqx 于 2021-12-16 21:54 编辑 
+
+街机的巴比伦伪王闪闪二世真名是尼布甲尼撒二世
+
+因为他现在的身体是闪闪的克隆体
+
+我方给起名叫尼布甲尼撒2.5世
+
+屏幕截图 2021-12-16 215404.png
+(150.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/215435jurrarurxbz4xd0z.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 84878#       发表于 2021-12-16 21:53
+
+58池4张<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 84879#       发表于 2021-12-16 21:57
+
+还有大船长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+屏幕截图 2021-12-16 215640.png
+(172.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/215656gdekxwsd759dejgk.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84880#       发表于 2021-12-16 22:04
+
+ 本帖最后由 黑上シグマ 于 2021-12-16 22:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你醒啦？这些玩意儿中午就有了
+

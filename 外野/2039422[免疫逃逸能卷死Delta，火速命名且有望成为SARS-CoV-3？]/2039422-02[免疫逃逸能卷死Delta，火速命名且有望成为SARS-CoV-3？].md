@@ -5712,3 +5712,17 @@ ny等占比也上去了
 
 为什么看不到同时德奥合体的比例分析？还是说默认德尔塔已经全体免疫了？
 
+
+
+*****
+
+####  wszweill  
+##### 1977#       发表于 2021-12-16 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53957243&amp;ptid=2039422" target="_blank">西风之哀 发表于 2021-12-15 22:24</a>
+
+明白逻辑了：
+
+1、O的传播效率远高于Delta，可以比Delta更快的传播全国</blockquote>
+O也没说不能再变化。如果真的血液分型可以共同感染的话，迟早点出德奥合并型DO变种<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
