@@ -6096,3 +6096,44 @@ bsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 今天好多很久没见的助かる啊
 
+
+
+*****
+
+####  遗忘回想  
+##### 6711#       发表于 2021-12-16 17:44
+
+这心情是真的好，
+
+*****
+
+####  十九号大侠  
+##### 6712#       发表于 2021-12-16 17:47
+
+恐惧工具人
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Mikumiku831  
+##### 6713#       发表于 2021-12-16 17:48
+
+挂在后台听 真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 6714#       发表于 2021-12-16 17:48
+
+对面瑞文是不是天狗啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 6715#       发表于 2021-12-16 17:54
+
+又开始打广告了，广告词背的熟啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
