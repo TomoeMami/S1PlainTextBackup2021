@@ -5454,3 +5454,30 @@ yamero！我已经想象到热评的情景了</blockquote>
 
 b小鬼总能突破我想象，在下面刷名字。
 
+
+
+*****
+
+####  cybernetics31  
+##### 1996#       发表于 2021-12-16 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">效果一般也没啥，先开个头，以后相关节目能更多吧
+
+*****
+
+####  中野四葉  
+##### 1997#       发表于 2021-12-16 16:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这龙卷风表情也太草太抽象了
+
+*****
+
+####  仟音一心  
+##### 1998#       发表于 2021-12-16 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53959812&amp;ptid=2036367" target="_blank">红叶 发表于 2021-12-16 14:36</a>
+新作应该有新人加入吧 五个人太少，九个人太多，七个人正好
+
+—— 来自 Xiaomi M2102J2SC, Android  ...</blockquote>
+就是为了五芒星设定才仅限五人的吧。
+
