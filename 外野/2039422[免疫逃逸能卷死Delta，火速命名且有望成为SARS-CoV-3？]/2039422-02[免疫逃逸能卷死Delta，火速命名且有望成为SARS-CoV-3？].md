@@ -5864,3 +5864,52 @@ O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似</
 —— 来自 Xiaomi M2007J17C, Android 11上的 S ...</blockquote>
 实际重症率是感染人数x重症率，只要人数够多，那都不是问题。关键南非什么人口结构，和欧美人均寿命都差不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  砥草  
+##### 1990#       发表于 2021-12-17 00:06
+
+插播一下，外国仰卧起坐式防疫，韩国坐起来了。
+
+韩国政府叫停与病毒共存模式
+
+https://share.api.weibo.cn/share/269075027.html?weibo_id=4715151586234425
+
+*****
+
+####  smy20011  
+##### 1991#       发表于 2021-12-17 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966588&amp;ptid=2039422" target="_blank">genjimono 发表于 2021-12-16 23:46</a>
+
+你要看感染小o的人的年龄构成，是年轻人居多啊</blockquote>
+南非艾滋病人也不少
+
+*****
+
+####  smy20011  
+##### 1992#       发表于 2021-12-17 00:08
+
+12月15日，第一财经从科兴（SINOVAC）获悉，科兴先后从香港获得两株Omicron病毒株，即进行了中和试验。最新实验室研究结果表明，使用其中一株Omicron对20份接种2剂克尔来福（CoronaVac）和48份接种三剂克尔来福（CoronaVac）的免疫血清进行中和抗体检测，20份接种两剂次疫苗后的血清中和抗体阳性率为35%（7/20），48份接种三剂次疫苗后的血清中和抗体阳性率为94%（45/48）。上述结果表明，第三剂疫苗的接种可有效提高血清对Omicron病毒株的中和能力。采用另一株Omicron病毒的对比检测正在进行中；企业正在对更多免疫后时间点及不同抗体水平的血清进行进一步的研究，以获得Omicron病毒株对疫苗影响的全面评价。目前，全球多个研究发现，尽管使用了不同方法和类型的选定血清，但结果始终表明，与其他新冠病毒变体相比，来自疫苗接受者的血清和恢复期血清对Omicron病毒的中和能力都降低了。
+
+阳性率是个什么指标?
+
+*****
+
+####  桐名  
+##### 1993#       发表于 2021-12-17 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966520&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-16 23:38</a>
+
+南非这数据</blockquote>
+If Omicron isn’t as mild as has been advertised, I expect that some people will be dying at home or in hospital parking lots.<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pushare  
+##### 1994#       发表于 2021-12-17 00:21
+
+每天一个新纪录<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">: UK reports 88,376 new coronavirus cases, by far the biggest one-day increase on record
+
