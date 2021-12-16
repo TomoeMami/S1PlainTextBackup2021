@@ -5481,3 +5481,14 @@ b小鬼总能突破我想象，在下面刷名字。
 —— 来自 Xiaomi M2102J2SC, Android  ...</blockquote>
 就是为了五芒星设定才仅限五人的吧。
 
+
+
+*****
+
+####  emmer  
+##### 1999#       发表于 2021-12-16 16:43
+
+龙卷风<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这孩子怎么这么可爱啊
+
