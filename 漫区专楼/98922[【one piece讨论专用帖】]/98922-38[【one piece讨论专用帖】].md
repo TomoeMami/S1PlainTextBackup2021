@@ -9367,3 +9367,55 @@ king queen的果实反而像减分项，queen主要靠的改造，king的本身�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Supermangunv3  
+##### 56232#       发表于 2021-12-16 10:33
+
+<img src="https://img.saraba1st.com/forum/202112/16/103249zgk5a5tbg0ct8xzn.jpg" referrerpolicy="no-referrer">
+
+<strong>20211216_102417.jpg</strong> (247.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-16 10:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/103254a7k7ncnccgznwnwk.jpg" referrerpolicy="no-referrer">
+
+<strong>20211216_102402.jpg</strong> (194.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-16 10:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/103300iafwaqany7pztyqa.jpg" referrerpolicy="no-referrer">
+
+<strong>20211216_102359.jpg</strong> (167.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-16 10:33 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/103306b8vcaav14a2az7k4.jpg" referrerpolicy="no-referrer">
+
+<strong>20211216_102357.jpg</strong> (252.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-16 10:33 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/103311ytl1z7zhhv1rr4k7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211216_102423_com.goldox.phoenix.jpg</strong> (183.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-16 10:33 上传
+
