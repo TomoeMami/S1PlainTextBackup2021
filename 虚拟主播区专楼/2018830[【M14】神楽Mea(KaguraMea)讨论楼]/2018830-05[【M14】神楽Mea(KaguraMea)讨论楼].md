@@ -6162,3 +6162,19 @@ bsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 看了下之前的战绩只输了两把可还行 这把队友也给力 老样子 别给对面ap肥起来就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 6719#       发表于 2021-12-16 18:47
+
+这波处理的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 投了可还行
+
+*****
+
+####  Rem-清曲  
+##### 6720#       发表于 2021-12-16 18:58
+
+🐭台的水友比油管的猛太多
+

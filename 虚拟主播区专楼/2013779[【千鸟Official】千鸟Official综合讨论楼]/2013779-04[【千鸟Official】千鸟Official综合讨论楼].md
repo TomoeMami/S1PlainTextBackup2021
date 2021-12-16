@@ -221,3 +221,12 @@
 
 可能有举报脚本<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4525#       发表于 2021-12-16 18:48
+
+当时发的“炒我”现在还活着，之前也有过发的一样但自己没被口，什么运气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
