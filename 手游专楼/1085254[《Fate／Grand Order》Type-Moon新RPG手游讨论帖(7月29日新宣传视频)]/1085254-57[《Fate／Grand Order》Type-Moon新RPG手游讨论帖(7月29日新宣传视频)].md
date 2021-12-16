@@ -9311,3 +9311,24 @@ DW本来就是A爹全资子公司，换个新名义的 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在好希望天上飞过来个大王说独占是坏文明把这些傻逼破坏掉
 
+
+
+*****
+
+####  UNISONIA  
+##### 84853#       发表于 2021-12-16 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53958732&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-16 13:14</a>
+
+现在好希望天上飞过来个大王说独占是坏文明把这些傻逼破坏掉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大王：独占是好文明，你看你手游里的大王有泪之星吗，能变小大王吗
+
+*****
+
+####  khxooo  
+##### 84854#       发表于 2021-12-16 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960022&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-16 14:54</a>
+大王：独占是好文明，你看你手游里的大王有泪之星吗，能变小大王吗 ...</blockquote>
+FEXL联动，保送5宝小大王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
