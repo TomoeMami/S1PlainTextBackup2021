@@ -5726,3 +5726,14 @@ ny等占比也上去了
 1、O的传播效率远高于Delta，可以比Delta更快的传播全国</blockquote>
 O也没说不能再变化。如果真的血液分型可以共同感染的话，迟早点出德奥合并型DO变种<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 1978#       发表于 2021-12-16 22:53
+
+都创新高了，冬天还有那么久
+
+France reports 65,713 new coronavirus cases, the biggest one-day increase on record
+
