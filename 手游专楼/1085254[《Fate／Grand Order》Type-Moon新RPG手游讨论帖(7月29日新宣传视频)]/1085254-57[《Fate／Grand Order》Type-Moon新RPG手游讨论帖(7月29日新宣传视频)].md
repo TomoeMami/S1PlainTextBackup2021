@@ -9406,3 +9406,19 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 <img src="https://img.saraba1st.com/forum/202112/16/152041a22iisqqfxi6sp4s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 84859#       发表于 2021-12-16 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游的氪金全都变为了街机的独占
+
+*****
+
+####  alucardcz  
+##### 84860#       发表于 2021-12-16 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我比较好奇什么都能为运营着想的日本人怎么看这次“背刺”  是已经感恩戴德了吗
+

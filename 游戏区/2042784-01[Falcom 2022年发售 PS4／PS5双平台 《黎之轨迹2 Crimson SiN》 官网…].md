@@ -706,3 +706,51 @@
 黎轨首发就买了，到现在还没过序章，掉帧、画面差，剧情没玩后面不评论，初玩体验还不如闪轨3、4，以后的轨 ...</blockquote>
 首发1个月以后的版本才是正常版本，60帧+各种画面修正<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  菟原手兒奈  
+##### 73#       发表于 2021-12-16 15:29
+
+前排前排，黎轨1的楼因为对你法失望都没怎么进去过，临发售看了OP才预购的没想到玩下来对你法重燃信心，这次就体验一下提前一年开始刷楼讨论的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 74#       发表于 2021-12-16 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960399&amp;ptid=2042784" target="_blank">龙之峰 发表于 2021-12-16 15:22</a>
+范爷在沙漠的时候也有过红色魔装鬼的形态，2的这个对手应该就是暴走形态的魔装鬼。
+
+而且既然是红色，跟阿龙 ...</blockquote>
+魔装鬼和电子老婆的来历现在都不清楚，这部分剧情应该是下作的明线
+暗线可能是大总统和结社的计划，毕竟这部分在第一作几乎完全没讲
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  DelayNoMore  
+##### 75#       发表于 2021-12-16 15:33
+
+这么干才对，续作隔一年才发售我都把之前的剧情忘光了。。。
+
+*****
+
+####  clover293  
+##### 76#       发表于 2021-12-16 15:40
+
+伊苏35周年那么我们自然要出
+
+黎之轨迹2啦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  findpkq  
+##### 77#       发表于 2021-12-16 15:43
+
+加个尾巴后怎么有点像JUSTICE<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
