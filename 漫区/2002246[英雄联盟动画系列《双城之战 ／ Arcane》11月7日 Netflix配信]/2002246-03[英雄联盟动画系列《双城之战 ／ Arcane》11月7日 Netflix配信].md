@@ -539,3 +539,12 @@ pjb原神手机能玩吗<img src="https://static.saraba1st.com/image/smiley/face
 
 mmorpg有时间表了吗，比如最早什么时候推出之类的
 
+
+
+*****
+
+####  狼影者瑞德克斯  
+##### 3045#       发表于 2021-12-16 11:52
+
+为什么你们都对拳头的mmo这么关注，作为势微的游戏形式，拳头再逆天也没法改变快餐化的游戏环境吧，我都担心会不会直接给拳头自己杠闪着腰然后一路朝着下坡路狂奔最后被鹅厂空降管理然后和天美合并了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

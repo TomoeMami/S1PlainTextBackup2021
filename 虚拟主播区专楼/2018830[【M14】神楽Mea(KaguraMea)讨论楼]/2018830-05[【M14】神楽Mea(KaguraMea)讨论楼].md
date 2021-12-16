@@ -5851,3 +5851,37 @@ bsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 五元必选小白
 
+
+
+*****
+
+####  呓亘  
+##### 6682#       发表于 2021-12-16 11:44
+
+索尼能不能要求艺人不得参加伤害独角兽的活动啊呜呜呜……
+
+*****
+
+####  呓亘  
+##### 6683#       发表于 2021-12-16 11:44
+
+圣诞节有单人直播吗……收钱的好日子啊
+
+*****
+
+####  遗忘回想  
+##### 6684#       发表于 2021-12-16 11:52
+
+一，索尼不会理会废物独角兽事业民的狗叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+二，开个关了sc的术曲歌回警告
+
+三，这联动内容用脚都能想出是什么了
+
+*****
+
+####  rosevalley46  
+##### 6685#       发表于 2021-12-16 11:59
+
+索尼和苔苔打招呼让她多带着小麻联动的可能性都比这个高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
