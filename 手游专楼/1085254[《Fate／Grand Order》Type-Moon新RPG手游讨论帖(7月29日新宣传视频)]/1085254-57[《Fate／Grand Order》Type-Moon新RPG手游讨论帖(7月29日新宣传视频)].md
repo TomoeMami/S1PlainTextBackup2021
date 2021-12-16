@@ -9486,3 +9486,50 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  里村紅葉  
+##### 84867#       发表于 2021-12-16 17:24
+
+日本人不是最喜欢搞本土独占的东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说街机完美符合这个需求
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  zakki  
+##### 84868#       发表于 2021-12-16 17:29
+
+ 本帖最后由 zakki 于 2021-12-16 17:36 编辑 
+
+非灵长快开了，突然有个想法，大胆奶一下柯扬斯卡娅，纯粹奶着玩所以才发出来，命中概率很低，看看就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大胆猜测，兽的柯扬斯卡娅最终会是BEAST IV和BEAST V双职介的BEAST，对应杀生院和迦摩的一个兽阶里两只兽 ，狐狸则是一只兽两个兽阶，她在非灵长生存圈搞事的目的就是羁绊中提到的“某个计划”即为通过获得双兽阶第4兽和第5兽来实现9尾的进化。
+
+基于我之前的想法，BEAST V目前为止都几乎没有任何线索或者提及，再者街机BEAST VI已经登场还有终局之兽异星神也登场，根据兽的连锁显现，所有兽都应该已经出现，BEAST IV和BEAST V应该也出现了。目前主线现有角色里老福麻婆不可能外，人选也只剩狐狸。
+
+具体实现双兽阶的手段可能是，目前的柯扬斯卡娅已经是一个兽阶不是IV就是V，大概率是IV。那她的目的就是在非灵长搞事获得BEAST V的兽阶。实现方法是另分出一个自己，两只柯扬斯卡娅，其中一个就是光之柯扬斯卡娅，两者成为两个兽阶的幼体，分别对应被人类迫害的东西・人类用于迫害的东西两个兽之理，最后再结合成为完全体兽并进化为九尾。
+
+最后的破局方法应该是一个对应狐狸的冠位（姜子牙？）和兽形态作为真BEAST IV登场的芙芙来削减九尾兽中BEAST IV的部分，降低九尾狐实力退化为只有BEAST V的兽最终被打败。牺牲的人，如果有的话，就是芙芙，胖所长
+
+*****
+
+####  都谷捻柏  
+##### 84869#       发表于 2021-12-16 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53958732&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-16 13:14</a>
+
+现在好希望天上飞过来个大王说独占是坏文明把这些傻逼破坏掉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后这一幕发生在街机，顺路实装一个新大王
+
+*****
+
+####  KOBI  
+##### 84870#       发表于 2021-12-16 17:35
+
+真要对位什么的也就迦勒底的人那一位了吧，新年组
+
+通古斯卡炸一点就顺手把死徒们拉过来联动，反正是非灵长圈
+

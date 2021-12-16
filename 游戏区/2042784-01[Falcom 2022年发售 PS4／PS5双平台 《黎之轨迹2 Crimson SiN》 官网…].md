@@ -992,3 +992,28 @@ Q：中国公司开发的手游版《伊苏8》进度如何？
 
   不过轨迹目前这个情况哪怕是真的公司扩容了也有因为注水注的实在太长，新玩家非常难入坑，老玩家甚至还有跳坑没回来的情况。
 
+
+
+*****
+
+####  提挈天地  
+##### 100#       发表于 2021-12-16 17:26
+
+太极宗师：广告是今后最大的课题<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  byisme001  
+##### 101#       发表于 2021-12-16 17:28
+
+黎轨这个魔王和那些大章鱼大蝙蝠大毛毛虫有没有关系啊
+
+*****
+
+####  roxas.sora  
+##### 102#       发表于 2021-12-16 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法现金流居然这么夸张么。。。。。。
+
