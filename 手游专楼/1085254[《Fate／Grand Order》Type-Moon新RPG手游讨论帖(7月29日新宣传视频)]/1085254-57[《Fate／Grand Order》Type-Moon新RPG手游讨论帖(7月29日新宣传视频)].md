@@ -9332,3 +9332,77 @@ DW本来就是A爹全资子公司，换个新名义的 ...</blockquote>
 大王：独占是好文明，你看你手游里的大王有泪之星吗，能变小大王吗 ...</blockquote>
 FEXL联动，保送5宝小大王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 84855#       发表于 2021-12-16 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960022&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-16 14:54</a>
+
+大王：独占是好文明，你看你手游里的大王有泪之星吗，能变小大王吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹
+
+*****
+
+####  UNISONIA  
+##### 84856#       发表于 2021-12-16 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960051&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-16 14:56</a>
+
+FEXL联动，保送5宝小大王</blockquote>
+Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
+
+*****
+
+####  khxooo  
+##### 84857#       发表于 2021-12-16 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960192&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-16 15:09</a>
+Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 84858#       发表于 2021-12-16 15:20
+
+背刺
+
+1EC8C8B8-5E22-4B91-8877-86395E6BEEC3.jpeg
+(505.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 15:20 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/152038o7uv5prpjririnrk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+555C0373-B55B-49B9-9D6E-CE97F9D75B2E.jpeg
+(488.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 15:20 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/152039bq84q34zua4z4upj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8B1EE0E2-85EC-4C37-93F0-91FD0720B1AC.jpeg
+(536.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 15:20 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/152040a33tzc8cbygmybm9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9F9D0479-2EC8-4C02-BA8D-82CAF5EFDA05.jpeg
+(504.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 15:20 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/152041a22iisqqfxi6sp4s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
