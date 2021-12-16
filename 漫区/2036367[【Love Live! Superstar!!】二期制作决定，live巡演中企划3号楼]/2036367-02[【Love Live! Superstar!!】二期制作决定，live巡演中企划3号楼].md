@@ -5427,3 +5427,21 @@ yamero！我已经想象到热评的情景了</blockquote>
 
 应该就半小时，该庆幸还好是录播，到时关弹幕看就是
 
+
+
+*****
+
+####  chenflyyy  
+##### 1993#       发表于 2021-12-16 14:29
+
+早就录完了怎么还这么紧张的，搞得我也紧张了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红叶  
+##### 1994#       发表于 2021-12-16 14:36
+
+新作应该有新人加入吧 五个人太少，九个人太多，七个人正好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
