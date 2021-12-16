@@ -9272,3 +9272,33 @@ DW本来就是A爹全资子公司，换个新名义的 ...</blockquote>
 
 后天能不能直接开活动啊，别再特么拖了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 84849#       发表于 2021-12-16 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">wiki瞄了眼上街机闪身的那位先生，发现他的王朝叫迦勒底朝……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  areklose  
+##### 84850#       发表于 2021-12-16 13:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">落地个女梅林证明街机的迟早落地到手游的多好
+
+*****
+
+####  黑上シグマ  
+##### 84851#       发表于 2021-12-16 13:04
+
+<blockquote>引用第84849楼areklose于2021-12-16 13:00发表的  :
+
+落地个女梅林证明街机的迟早落地到手游的多好</blockquote>
+想多了，那边早就一副“今后会有越来越多的街机独占人物，大家快来玩街机吧”的姿态了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
