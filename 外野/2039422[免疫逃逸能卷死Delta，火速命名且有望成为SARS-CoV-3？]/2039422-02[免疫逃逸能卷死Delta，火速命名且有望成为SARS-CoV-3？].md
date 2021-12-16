@@ -5737,3 +5737,39 @@ O也没说不能再变化。如果真的血液分型可以共同感染的话，�
 
 France reports 65,713 new coronavirus cases, the biggest one-day increase on record
 
+
+
+*****
+
+####  thomaszyj  
+##### 1979#       发表于 2021-12-16 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53946976&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-15 16:16</a>
+
+检测试剂可不需要做人体测试，对不上了分分钟换。</blockquote>
+但检测试剂研发要临床样本啊<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">，要是失效了，国内厂商有个巨大的劣势，就是样本太少，不知道现存的是不是改个靶点就可以继续用了
+
+*****
+
+####  creymorgan  
+##### 1980#       发表于 2021-12-16 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966250&amp;ptid=2039422" target="_blank">thomaszyj 发表于 2021-12-16 23:13</a>
+
+但检测试剂研发要临床样本啊，要是失效了，国内厂商有个巨大的劣势，就是样本太少，不知道现存的 ...</blockquote>
+这就要相信各国上传的测序数据了
+
+
+
+*****
+
+####  lazyboy  
+##### 1981#       发表于 2021-12-16 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945478&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-15 14:15</a>
+O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似</blockquote>
+不要急，前排就坐，准备好花生瓜子
+今年冬天会有好戏看的，即使没有omicron还有周期性卷土重来的delta，德奥合并更是从未见过的新冠帝国图景
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
