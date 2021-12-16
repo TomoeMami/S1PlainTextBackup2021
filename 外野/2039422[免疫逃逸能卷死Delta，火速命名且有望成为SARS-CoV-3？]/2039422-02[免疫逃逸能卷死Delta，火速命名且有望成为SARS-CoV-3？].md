@@ -5605,3 +5605,12 @@ The Covid-19 vaccine by Sinovac Biotech is not able to produce adequate antibodi
 
 不是一个没死吗？慌啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 1969#       发表于 2021-12-16 10:55
+
+The United Kingdom recorded its highest daily coronavirus cases since the start of the pandemic. A further 78,610 COVID-19 cases were reported on Wednesday, surpassing the previous high of 68,053 cases reported on Jan. 8 
+

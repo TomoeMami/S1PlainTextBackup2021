@@ -50,3 +50,15 @@
 
 早安coco是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蕾咪是个M  
+##### 4507#       发表于 2021-12-16 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53944632&amp;ptid=2013779" target="_blank">tankai 发表于 2021-12-15 13:01</a>
+
+嗯造千鸟五只是吧?应该没人敢发AS版的吧.</blockquote>
+有人P了as版的发到a吧，然后被永封了
+
