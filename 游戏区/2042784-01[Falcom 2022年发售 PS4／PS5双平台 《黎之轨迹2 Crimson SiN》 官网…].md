@@ -1147,3 +1147,24 @@ Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的�
 
 黎轨总体水平很高，除了音乐都比闪1强多了，希望这次2不要重蹈闪2覆辙吧
 
+
+
+*****
+
+####  piaoxiang123  
+##### 115#       发表于 2021-12-16 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53961680&amp;ptid=2042784" target="_blank">月夜凝雪 发表于 2021-12-16 16:59</a>
+
+考，我闪3都还没玩完这追不上进度了啊
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
+上月刚买了ns闪三打到第三章了，争取四出之前通了
+
+*****
+
+####  封面杀手  
+##### 116#       发表于 2021-12-16 21:13
+
+看社长被股东胡乱刁难得这么惨，能留下来的股东不会大部分都是中华地区的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6254,3 +6254,14 @@ pokerchase今天出新角色了，不会又是联动打牌吧<img src="https://s
 
 老树换新芽了意思是
 
+
+
+*****
+
+####  十九号大侠  
+##### 6728#       发表于 2021-12-16 21:21
+
+兔妈妈还是不错的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
