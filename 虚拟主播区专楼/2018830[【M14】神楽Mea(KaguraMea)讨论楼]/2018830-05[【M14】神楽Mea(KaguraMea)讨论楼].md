@@ -6333,3 +6333,34 @@ pokerchase今天出新角色了，不会又是联动打牌吧<img src="https://s
 你这tm不扯淡吗，打广告……组长直播间的有谁不认识mea的……</blockquote>
 她自己直播间还反复提呢，总不会觉得自己直播间里不知道的人多吧。正好能拿来当梗又能帮忙宣传不就搞联动了嘛，又不是什么坏事，不管cv还是艺人什么有大事互相走动宣传太正常了
 
+
+
+*****
+
+####  T_Hb  
+##### 6737#       发表于 2021-12-16 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑的不行了
+
+*****
+
+####  遗忘回想  
+##### 6738#       发表于 2021-12-16 22:32
+
+ 本帖最后由 遗忘回想 于 2021-12-16 22:33 编辑 
+
+啥东西这么好笑
+
+这段，思考
+
+*****
+
+####  T_Hb  
+##### 6739#       发表于 2021-12-16 22:34
+
+ 本帖最后由 T_Hb 于 2021-12-16 22:38 编辑 
+
+讲喜欢吃的，被说一股大叔味，偶像就这，后来还讲人間の白子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+top idol 禁断的asmr R18G<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
