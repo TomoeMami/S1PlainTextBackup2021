@@ -109,3 +109,14 @@
 
 多少有点哈人了···什么哈卡姆
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4513#       发表于 2021-12-16 15:55
+
+有的偏方真的哈人，想起小时候治鼻窦炎
+
+两根上了药的棉签对着鼻孔捅到底留半小时，难受的要死还屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

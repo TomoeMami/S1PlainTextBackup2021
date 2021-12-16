@@ -2064,3 +2064,13 @@ EA打到现在断断续续总算打完了
 
 额，美国时差倒着来的吉尔伽美什的话也还好。。就是头几天排的厉害
 
+
+
+*****
+
+####  言嘉  
+##### 195#       发表于 2021-12-16 16:00
+
+SE傻逼就完事了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6010,3 +6010,14 @@ bsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 这波比GANK不是挺好的
 
+
+
+*****
+
+####  十九号大侠  
+##### 6701#       发表于 2021-12-16 15:42
+
+挨打就完事了，输出交给队友
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

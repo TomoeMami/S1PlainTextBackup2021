@@ -754,3 +754,40 @@
 
 —— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  剑起苍斓  
+##### 78#       发表于 2021-12-16 15:50
+
+那么这一作该迫害谁了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  minysun  
+##### 79#       发表于 2021-12-16 15:50
+
+副标题真红原罪感觉好二
+
+*****
+
+####  瞬间少年JUMP  
+##### 80#       发表于 2021-12-16 15:55
+
+伊苏慢慢打磨也不错，三年一周期那多半也就伊苏9水平，对10代的要求肯定不应该这么低
+
+*****
+
+####  无动于衷  
+##### 81#       发表于 2021-12-16 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960399&amp;ptid=2042784" target="_blank">龙之峰 发表于 2021-12-16 15:22</a>
+
+范爷在沙漠的时候也有过红色魔装鬼的形态，2的这个对手应该就是暴走形态的魔装鬼。
+
+而且既然是红色，跟阿龙 ...</blockquote>
+该不会是终章自己扔出去的魔核变得吧
+

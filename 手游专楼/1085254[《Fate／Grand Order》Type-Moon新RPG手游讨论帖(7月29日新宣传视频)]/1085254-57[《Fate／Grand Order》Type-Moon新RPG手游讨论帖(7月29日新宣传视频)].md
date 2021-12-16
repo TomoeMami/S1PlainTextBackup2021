@@ -9422,3 +9422,37 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我比较好奇什么都能为运营着想的日本人怎么看这次“背刺”  是已经感恩戴德了吗
 
+
+
+*****
+
+####  zakki  
+##### 84861#       发表于 2021-12-16 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960662&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-16 15:40</a>
+
+我比较好奇什么都能为运营着想的日本人怎么看这次“背刺”  是已经感恩戴德了吗
+
+ ...</blockquote>
+大概没啥想法吧，如果有什么小炎上nga节奏早就带起来了
+
+*****
+
+####  gpx234mqx  
+##### 84862#       发表于 2021-12-16 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53960662&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-16 15:40</a>
+
+我比较好奇什么都能为运营着想的日本人怎么看这次“背刺”  是已经感恩戴德了吗
+
+ ...</blockquote>
+日本人有街机玩啊
+
+*****
+
+####  KOBI  
+##### 84863#       发表于 2021-12-16 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">就WIKI看来酸的还是不少的。。但没有以上了
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大概日本人是真的很习惯独占商法吧，都能看到听闻独自要素乃必须物所以一开始就放弃联动输入的家伙了
+
