@@ -9428,3 +9428,28 @@ king queen的果实反而像减分项，queen主要靠的改造，king的本身�
 
 当年明哥要是遇到现在的山治 怕是直接刮痧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  巴尔干炮  
+##### 56234#       发表于 2021-12-16 13:52
+
+KING输的莫名其妙，之前那个突然爆炸的招式也没有了。
+
+*****
+
+####  tyauto  
+##### 56235#       发表于 2021-12-16 13:53
+
+这个霸缠加成也太厉害了吧，从破不了防到直接秒.....
+
+766D39D8A42D2E28B372FD3724445EE9.jpg
+(177.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 13:52 上传
+
+<img src="https://img.saraba1st.com/forum/202112/16/135215f7mkwfh3lbmlzzm8.jpg" referrerpolicy="no-referrer">
+
