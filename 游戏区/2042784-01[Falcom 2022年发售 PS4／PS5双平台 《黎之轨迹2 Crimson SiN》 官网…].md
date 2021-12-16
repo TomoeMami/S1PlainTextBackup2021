@@ -1198,3 +1198,30 @@ Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的�
 — from Sony XQ-AT52, Android 11 of S1 Next Goose v2.5.2</blockquote>
 新角色，不然太low了
 
+
+
+*****
+
+####  kuker53  
+##### 119#       发表于 2021-12-17 01:48
+
+问一下黎轨第一部有ps5高分辨率支持了吗，之前听说会更新
+
+*****
+
+####  ky怪  
+##### 120#       发表于 2021-12-17 03:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53967541&amp;ptid=2042784" target="_blank">kuker53 发表于 2021-12-17 01:48</a>
+问一下黎轨第一部有ps5高分辨率支持了吗，之前听说会更新</blockquote>
+目前还没有，之前社长访谈说11月更新ps5补丁，感觉中文版发售前怎么也能实装了
+
+
+
+*****
+
+####  hotsmile  
+##### 121#       发表于 2021-12-17 04:21
+
+那由多是PS NS同步的吗？销量多少？
+

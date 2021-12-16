@@ -2074,3 +2074,27 @@ EA打到现在断断续续总算打完了
 SE傻逼就完事了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  营业收入  
+##### 196#       发表于 2021-12-17 02:05
+
+一天前打完了
+演出很不错，尤其是最后一张图，至少我的情绪是被完全调动起来了
+但直到6.0最终boss投降，我还是没被剧情说服，到现在我还是想加入黑化米提昂，SE真有你的，你们把整个14宇宙里的生命都设定得这么惨，就别再难为他们了行不行<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+而且这样一来我的光战在通关那一刻就直接当场成了艾欧泽亚头号小丑，甚至我没法再像我5.0想投奔爱梅那样，捏点私设把打赢大boss这事蒙混过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事到如今只能用幻想药装作我看了一个别人家光战的故事了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  qwased  
+##### 197#       发表于 2021-12-17 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53940259&amp;ptid=2040615" target="_blank">我不是套霸 发表于 2021-12-15 03:34</a>
+前几天熬夜推完，心情很复杂几天都没缓过来。
+演出很棒，音乐也很棒，众所周知FF14的💩山代码已经是相当落 ...</blockquote>
+2.x~3.x我同意，4.0拉了不太行，4.x~6.0算一脉相承的感觉（更加jrpg童话而不是现实感）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bzy那段剧情反响不好估计以后也没有这种倾向的主线了
+
