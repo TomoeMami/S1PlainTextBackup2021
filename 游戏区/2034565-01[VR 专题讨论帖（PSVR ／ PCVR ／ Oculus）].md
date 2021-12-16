@@ -3281,3 +3281,12 @@ q2之所以这么便宜很大一部分原因就是脸书赔钱卖生态
 
 —— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  弑古斯  
+##### 217#       发表于 2021-12-16 19:05
+
+灯塔过时之日，htc灭亡之时，现在htc就一卖基站的
+

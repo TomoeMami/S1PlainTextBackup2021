@@ -5639,3 +5639,66 @@ kumanori.JPG
 
 微博那个是怎么个玩法？
 
+
+
+*****
+
+####  chenflyyy  
+##### 2015#       发表于 2021-12-16 19:01
+
+ 本帖最后由 chenflyyy 于 2021-12-16 19:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53962865&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-16 18:37</a>
+微博那个是怎么个玩法？</blockquote>
+看了下大概就是带#我的二次元2021#tag在liyuu超话发帖，然后到时鲤鱼会空降超话看看（平时就空降挺多次的）最主要的是有机会能被鲤鱼回复到这样，感觉有种早年萌萌二次元的尬感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过这应该算现在少有能被鲤鱼点赞回复的机会了，认知厨狂喜<img src="https://p.sda1.dev/3/966fd73cf0421ef77d004e9bdccab813/IMG_CMP_124143652.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  A0171050  
+##### 2016#       发表于 2021-12-16 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53962279&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-12-16 17:44</a>
+
+忽然想起这张画</blockquote>
+笑死😆
+
+*****
+
+####  lj205  
+##### 2017#       发表于 2021-12-16 19:05
+
+<img src="https://img.saraba1st.com/forum/202112/16/190537n43xzyy0joqq4q7n.png" referrerpolicy="no-referrer">
+
+<strong>52B815C7-268C-43F3-A7C3-3D23D8495C33.png</strong> (262.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 19:05 上传
+
+赚了
+
+*****
+
+####  优妮可  
+##### 2018#       发表于 2021-12-16 19:08
+
+卧槽，两个可可
+
+*****
+
+####  lj205  
+##### 2019#       发表于 2021-12-16 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53963181&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-16 19:01</a>
+看了下大概就是带#我的二次元2021#tag在liyuu超话发帖，然后到时鲤鱼会空降超话看看（平时就空降挺多次的 ...</blockquote>
+…………带tag也太耻了……我在超话发帖都鼓起巨大勇气……
+
+*****
+
+####  chenflyyy  
+##### 2020#       发表于 2021-12-16 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53963352&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-16 19:12</a>
+…………带tag也太耻了……我在超话发帖都鼓起巨大勇气……</blockquote>
+开个小号发吧，大号太多私人内容发这个实在是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

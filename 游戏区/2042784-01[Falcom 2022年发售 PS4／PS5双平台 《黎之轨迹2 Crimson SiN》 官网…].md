@@ -1017,3 +1017,34 @@ Q：中国公司开发的手游版《伊苏8》进度如何？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法现金流居然这么夸张么。。。。。。
 
+
+
+*****
+
+####  JudgmentEye  
+##### 103#       发表于 2021-12-16 19:08
+
+近藤：选择《那由多之轨迹》是与IP授权部门商量后得出的结论，因为两系列新作已签约授权了出去
+
+官方把那由多之轨迹开除出轨迹系列
+
+*****
+
+####  JudgmentEye  
+##### 104#       发表于 2021-12-16 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53961141&amp;ptid=2042784" target="_blank">vickyeriko 发表于 2021-12-16 16:16</a>
+
+Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的首周销量不佳（约5万份），且有着加载时间过长等问 ...</blockquote>
+不同步出中文，活该
+
+*****
+
+####  妄想中毒  
+##### 105#       发表于 2021-12-16 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53961141&amp;ptid=2042784" target="_blank">vickyeriko 发表于 2021-12-16 16:16</a>
+
+Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的首周销量不佳（约5万份），且有着加载时间过长等问 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实黎1里只有宣传的那几张人设图是enami画的，游戏里其余插图还是闪的画师村上画的
+
