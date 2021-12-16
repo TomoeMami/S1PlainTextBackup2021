@@ -548,3 +548,15 @@ mmorpg有时间表了吗，比如最早什么时候推出之类的
 
 为什么你们都对拳头的mmo这么关注，作为势微的游戏形式，拳头再逆天也没法改变快餐化的游戏环境吧，我都担心会不会直接给拳头自己杠闪着腰然后一路朝着下坡路狂奔最后被鹅厂空降管理然后和天美合并了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  whyy  
+##### 3046#       发表于 2021-12-16 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53957625&amp;ptid=2002246" target="_blank">狼影者瑞德克斯 发表于 2021-12-16 11:52:11</a>
+为什么你们都对拳头的mmo这么关注，作为势微的游戏形式，拳头再逆天也没法改变快餐化的游戏环境吧，我都担 ...</blockquote>拳头以后的核心肯定是联盟宇宙，MMO很适合拓展宇宙世界观，但估计也就仅此而已了，估摸着是个高配豪华版LOR
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

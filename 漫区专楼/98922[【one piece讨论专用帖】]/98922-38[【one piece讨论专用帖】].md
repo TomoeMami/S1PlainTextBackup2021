@@ -9453,3 +9453,57 @@ KING输的莫名其妙，之前那个突然爆炸的招式也没有了。
 
 <img src="https://img.saraba1st.com/forum/202112/16/135215f7mkwfh3lbmlzzm8.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rt7539515  
+##### 56236#       发表于 2021-12-16 14:00
+
+是不是wt自己也发现和之国节奏有点收不住了，所以想赶紧画完
+
+*****
+
+####  银翼的维罗西  
+##### 56237#       发表于 2021-12-16 14:00
+
+索隆这招是背后出现替身了吗，起名王招式越来越花哨了
+
+*****
+
+####  blueflames001  
+##### 56238#       发表于 2021-12-16 14:08
+
+<blockquote>Supermangunv3 发表于 2021-12-16 10:33
+</blockquote>
+尾田魔术棒
+
+*****
+
+####  blueflames001  
+##### 56239#       发表于 2021-12-16 14:10
+
+<blockquote>少年包工头 发表于 2021-12-16 00:02
+king queen的果实反而像减分项，queen主要靠的改造，king的本身就有翅膀。。
+
+—— 来自 Xiaomi Mi 10 Pro, ...</blockquote>
+开什么玩笑，没有果实，你让King怎么解释那个貂自尊皇
+
+*****
+
+####  古畑任三郎2015  
+##### 56240#       发表于 2021-12-16 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53959340&amp;ptid=98922" target="_blank">rt7539515 发表于 2021-12-16 14:00</a>
+是不是wt自己也发现和之国节奏有点收不住了，所以想赶紧画完</blockquote>
+要留时间给和之国主角九虾仰卧起坐的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yth329  
+##### 56241#       发表于 2021-12-16 14:19
+
+皇副观感不好可能是因为相比路飞，山治索隆还各自跳了一个副本没打，导致现在战力膨胀得比5皇还夸张
+

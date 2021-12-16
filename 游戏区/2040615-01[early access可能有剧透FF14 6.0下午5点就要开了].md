@@ -2014,3 +2014,24 @@ EA打到现在断断续续总算打完了
 
 你游火到停卖甚至连广告都停了 甚至人最多的前几周直接送时间www。我记得吉田找社长要钱要成功了啊www
 
+
+
+*****
+
+####  TheOccuria  
+##### 190#       发表于 2021-12-16 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">炸服到停卖倒是第一次..其实这些天晚上7点前上线还行（mana）
+
+看吉田的意思是得等到1月底才能开始着手增加服务器...
+
+*****
+
+####  psvsd  
+##### 191#       发表于 2021-12-16 14:21
+
+日本人就是缺乏危机感 孝子也够孝 那就大家一起烂呗
+得亏这次日本DC除了Mana的中贝利和Ele的东北里除了晚高峰都不怎么炸 孝子们还能乐得李姐
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然对我就是免费的21天月卡，我原谅吉田了，甚至希望再多炸会
+
