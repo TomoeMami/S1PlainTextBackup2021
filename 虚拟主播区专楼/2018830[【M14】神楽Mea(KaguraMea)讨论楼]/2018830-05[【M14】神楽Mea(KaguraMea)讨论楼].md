@@ -6226,3 +6226,20 @@ pokerchase今天出新角色了，不会又是联动打牌吧<img src="https://s
 直接卢登 法伤装备啊 大乱斗出什么辅助装</blockquote>
 琴女大乱斗只有80%伤害，出不了ap装
 
+
+
+*****
+
+####  T_Hb  
+##### 6726#       发表于 2021-12-16 20:08
+
+还好，不是扑克，是烦恼相谈
+
+<img src="https://img.saraba1st.com/forum/202112/16/200815arffrrzhffhhotvv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-16 20:08 上传
+
