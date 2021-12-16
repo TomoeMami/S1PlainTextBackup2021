@@ -5650,3 +5650,47 @@ The United Kingdom recorded its highest daily coronavirus cases since the start 
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  西风之哀  
+##### 1972#       发表于 2021-12-16 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53945478&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-15 14:15</a>
+
+O在传播效率远高于delta的情况下,呼吸机和ICU人数和delta类似</blockquote>
+明白逻辑了：
+
+1、O的传播效率远高于Delta，可以比Delta更快的传播全国
+
+2、感染人数数倍于Delta的同时，造成的呼吸机和ICU人数与Delta类似
+
+所以，O相比Delta可以更快达成畜群免疫，同时造成更小的代价。
+
+计划通
+
+*****
+
+####  configxxxx  
+##### 1973#       发表于 2021-12-16 11:31
+
+<blockquote>西风之哀 发表于 2021-12-16 11:24
+明白逻辑了：
+
+1、O的传播效率远高于Delta，可以比Delta更快的传播全国
+</blockquote>
+然后再出来类似的变种的时候，再来一遍就行了，争取一年畜群免疫一次，完美.jpg，
+
+*****
+
+####  最好不说  
+##### 1974#       发表于 2021-12-16 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53957156&amp;ptid=2039422" target="_blank">droople 发表于 2021-12-16 11:20</a>
+
+@最好不说
+
+英国已经死了一个吧</blockquote>
+你带英死了一个跟我欧盟有啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
