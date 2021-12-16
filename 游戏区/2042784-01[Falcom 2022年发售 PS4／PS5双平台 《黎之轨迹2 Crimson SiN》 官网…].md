@@ -1048,3 +1048,41 @@ Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的�
 Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的首周销量不佳（约5万份），且有着加载时间过长等问 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实黎1里只有宣传的那几张人设图是enami画的，游戏里其余插图还是闪的画师村上画的
 
+
+
+*****
+
+####  红叶  
+##### 106#       发表于 2021-12-16 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53963335&amp;ptid=2042784" target="_blank">JudgmentEye 发表于 2021-12-16 19:11</a>
+不同步出中文，活该</blockquote>
+同步中文也多不了多少，不如专门请翻译让英文版同步。
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ac130-2020  
+##### 107#         楼主| 发表于 2021-12-16 19:33
+
+<blockquote>引用第103楼JudgmentEye于2021-12-16 19:11发表的  :
+
+引用:vickyeriko 发表于 2021-12-16 16:16Q：《黎之轨迹》很重视首次接触轨......</blockquote>
+你中文卖100万 日本市场也不算1本
+遑论中文销量从来没怎么高过
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  findpkq  
+##### 108#       发表于 2021-12-16 19:34
+
+还一年两作，股东们和加藤老贼应该很有共同语言吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+就周年贺图那丧心病狂的人物量，再不找外援是嫌闪画师不够过劳喔，村上画工肉眼可见被你法工作量压榨下去的
+不过建模立绘完全割裂本身就是一出歪招就是了，两头不讨好，决策上的问题
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

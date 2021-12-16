@@ -6187,3 +6187,30 @@ bsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 年轻就是好 还在打
 
+
+
+*****
+
+####  T_Hb  
+##### 6722#       发表于 2021-12-16 19:24
+
+K头有一手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 6723#       发表于 2021-12-16 19:25
+
+直接卢登 法伤装备啊 大乱斗出什么辅助装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6724#       发表于 2021-12-16 19:36
+
+ 本帖最后由 T_Hb 于 2021-12-16 19:42 编辑 
+
+怎么还打了个嗝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+pokerchase今天出新角色了，不会又是联动打牌吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

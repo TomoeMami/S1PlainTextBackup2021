@@ -2705,3 +2705,13 @@ syl 昨天live都没请人画图
 
 绫总可要管好猫阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13771#       发表于 2021-12-16 19:23
+
+卍組三个铁分奴这届终于是来齐了，应该好看
+就算赢不了起码能期待一下绫总哭哭
+
