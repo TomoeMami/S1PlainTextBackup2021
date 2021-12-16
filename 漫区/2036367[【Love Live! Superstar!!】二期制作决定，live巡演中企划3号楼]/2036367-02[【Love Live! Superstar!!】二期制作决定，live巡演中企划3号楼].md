@@ -5786,3 +5786,41 @@ kumanori.JPG
 赚了</blockquote>
 这是什么小程序？
 
+
+
+*****
+
+####  saverok  
+##### 2026#       发表于 2021-12-16 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53963911&amp;ptid=2036367" target="_blank">CAserlumos 发表于 2021-12-16 19:51</a>
+鲤鱼最近喜欢吃拉面
+
+很难不认为是青山姐带的不对，nako最近也几次带拉面表情发推，我不好说[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">立本人常吃的料理里面
+拉面算是中国人最能适应的吧
+重油重盐加蒜 味儿带劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 2027#       发表于 2021-12-16 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一次去日本的时候吃过拉面，太咸了完全吃不了了
+
+*****
+
+####  优妮可  
+##### 2028#       发表于 2021-12-16 20:29
+
+<blockquote>ykyin09 发表于 2021-12-16 20:19
+这是什么小程序？</blockquote>
+罗森ip购
+
+*****
+
+####  lj205  
+##### 2029#       发表于 2021-12-16 20:31
+
+追加开一般贩卖惹
+
