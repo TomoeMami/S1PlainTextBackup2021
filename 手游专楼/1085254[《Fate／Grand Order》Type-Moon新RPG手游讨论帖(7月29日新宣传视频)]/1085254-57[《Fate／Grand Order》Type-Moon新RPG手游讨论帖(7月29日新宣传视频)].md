@@ -9456,3 +9456,22 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">就WIKI看来酸的还是不少的。。但没有以上了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大概日本人是真的很习惯独占商法吧，都能看到听闻独自要素乃必须物所以一开始就放弃联动输入的家伙了
 
+
+
+*****
+
+####  yangun22  
+##### 84864#       发表于 2021-12-16 16:48
+
+日本人在猜和提妈对应的手游角色是谁，毕竟独占的除了圣诞角色外都是成对的，男女梅林，拉玛希拉，男女团长。顺便街机7章还出现了大人版的船长立绘npc
+
+*****
+
+####  alucardcz  
+##### 84865#       发表于 2021-12-16 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53961534&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-12-16 16:48</a>
+
+日本人在猜和提妈对应的手游角色是谁，毕竟独占的除了圣诞角色外都是成对的，男女梅林，拉玛希拉，男女团长 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男提妈（
+
