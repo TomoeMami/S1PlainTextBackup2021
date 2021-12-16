@@ -6153,3 +6153,12 @@ bsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 这把看着就输了
 
+
+
+*****
+
+####  Klience  
+##### 6718#       发表于 2021-12-16 18:37
+
+看了下之前的战绩只输了两把可还行 这把队友也给力 老样子 别给对面ap肥起来就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

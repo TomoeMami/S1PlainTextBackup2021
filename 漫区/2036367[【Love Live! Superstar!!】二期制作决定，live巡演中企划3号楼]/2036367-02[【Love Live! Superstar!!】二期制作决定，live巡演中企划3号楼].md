@@ -5620,3 +5620,22 @@ kumanori.JPG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">微博啥的访谈一直有的 19年就有 正常操作
 
+
+
+*****
+
+####  cat1230  
+##### 2013#       发表于 2021-12-16 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53962474&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-16 18:02</a>
+
+接受K访谈采访，现在又参加微博的活动，感觉liyuu的运营正在预热国内</blockquote>
+可能是个人LIVE有线上版？所以开始预热一下。否则人也回不来国，没啥好预热的活动啊，只有2月live了。
+
+*****
+
+####  lj205  
+##### 2014#       发表于 2021-12-16 18:37
+
+微博那个是怎么个玩法？
+
