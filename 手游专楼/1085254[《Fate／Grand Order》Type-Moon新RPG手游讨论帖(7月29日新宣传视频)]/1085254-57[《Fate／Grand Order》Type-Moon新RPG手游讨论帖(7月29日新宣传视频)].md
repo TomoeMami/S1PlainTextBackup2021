@@ -9161,3 +9161,32 @@ DW本来就是A爹全资子公司，换个新名义的 ...</blockquote>
 这街机大尼莫真的好看。</blockquote>
 高某人：不可以！
 
+
+
+*****
+
+####  UNISONIA  
+##### 84838#       发表于 2021-12-16 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53954806&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-16 08:30</a>
+
+把手游压稿摸鱼的立绘甩出几条街的级别，真就后妈生的</blockquote>
+尼二的画师似乎不是GINKA而是森井，大尼莫也有可能不是DANGERDROP（主要韩国佬从来没画过萝莉正太以外的人物……）
+
+*****
+
+####  都谷捻柏  
+##### 84839#       发表于 2021-12-16 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游还可以再摸一些，反正一堆人出啥都氪满，把资源都拿去专心搞街机就对了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  exiaexa  
+##### 84840#       发表于 2021-12-16 10:07
+
+这提妈满破过于好看了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
