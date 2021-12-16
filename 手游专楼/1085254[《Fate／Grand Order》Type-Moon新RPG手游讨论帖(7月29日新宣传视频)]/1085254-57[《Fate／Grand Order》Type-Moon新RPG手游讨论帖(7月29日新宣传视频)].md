@@ -9738,3 +9738,15 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 刷不动……商店还没搬完，真是累
 
+
+
+*****
+
+####  森兰丸  
+##### 84889#       发表于 2021-12-17 06:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966740&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-17 00:00</a>
+
+你对咸鱼有点误解</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可是萌新礼装满破了啊!
+
