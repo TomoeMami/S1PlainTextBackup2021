@@ -6214,3 +6214,15 @@ K头有一手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 pokerchase今天出新角色了，不会又是联动打牌吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ryy3jk  
+##### 6725#       发表于 2021-12-16 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53963597&amp;ptid=2018830" target="_blank">Klience 发表于 2021-12-16 19:25</a>
+
+直接卢登 法伤装备啊 大乱斗出什么辅助装</blockquote>
+琴女大乱斗只有80%伤害，出不了ap装
+

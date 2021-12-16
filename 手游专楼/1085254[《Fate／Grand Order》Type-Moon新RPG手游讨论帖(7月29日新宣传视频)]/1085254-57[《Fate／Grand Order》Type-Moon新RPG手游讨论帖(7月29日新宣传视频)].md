@@ -9533,3 +9533,39 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 通古斯卡炸一点就顺手把死徒们拉过来联动，反正是非灵长圈
 
+
+
+*****
+
+####  qixinno2  
+##### 84871#       发表于 2021-12-16 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53962119&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-16 17:30</a>
+
+然后这一幕发生在街机，顺路实装一个新大王</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">傻逼街机赶紧死
+
+*****
+
+####  zakki  
+##### 84872#       发表于 2021-12-16 18:04
+
+还有一点就是七个兽阶的兽存在对应关系。1对7，2对6，3对5。1对7很简单，就是1.0搞事的盖提亚和2.0搞事的异星神，雷夫对奥尔加玛丽，1诱成了7的诞生。2对6就是现在街机的剧情，同样代表海的提妈和beast VI，现在在街机也在对抗。3对5就是我上面猜测的，一兽两阶，3对4和5。不过也有可能是芙芙作为beast IV太特殊，所以没有对应，3只对5<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84873#       发表于 2021-12-16 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天中午就关活动了，我到现在一张礼装都没掉
+
+*****
+
+####  alucardcz  
+##### 84874#       发表于 2021-12-16 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53963986&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-16 19:57</a>
+
+明天中午就关活动了，我到现在一张礼装都没掉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">萌新12池掉了1张
+

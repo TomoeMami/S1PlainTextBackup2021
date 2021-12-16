@@ -1086,3 +1086,25 @@ Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的�
 
 —— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 109#       发表于 2021-12-16 19:49
+
+这采访很多地方都挺刁钻的，特别是那个同人女发言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过没怎么提音乐问题。社长：太极拳还没完全施展，你就问完了？
+
+*****
+
+####  Falcomfans  
+##### 110#       发表于 2021-12-16 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53963900&amp;ptid=2042784" target="_blank">红魔馆的糖 发表于 2021-12-16 19:49</a>
+这采访很多地方都挺刁钻的，特别是那个同人女发言
+
+不过没怎么提音乐问题。社长：太极拳还没完全施 ...</blockquote>
+不是采访，是株主提问。
+
