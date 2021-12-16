@@ -9130,3 +9130,14 @@ DW本来就是A爹全资子公司，换个新名义的 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这街机大尼莫真的好看。
 
+
+
+*****
+
+####  angelooo  
+##### 84835#       发表于 2021-12-16 08:30
+
+<blockquote>areklose 发表于 2021-12-16 08:17
+这街机大尼莫真的好看。</blockquote>
+把手游压稿摸鱼的立绘甩出几条街的级别，真就后妈生的
+
