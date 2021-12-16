@@ -9648,3 +9648,43 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你醒啦？这些玩意儿中午就有了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 84881#       发表于 2021-12-16 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53965483&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-16 22:04</a>
+
+你醒啦？这些玩意儿中午就有了</blockquote>
+加班刚回来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+你们上班太空了啦
+
+*****
+
+####  qixinno2  
+##### 84882#       发表于 2021-12-16 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">刚发现33池竟然掉了四张礼装了 什么时候抽卡能出货率这么高啊
+
+*****
+
+####  黑上シグマ  
+##### 84883#       发表于 2021-12-16 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53965587&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-16 22:14</a>
+
+加班刚回来
+
+你们上班太空了啦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这二世老哥还是真正的加勒底人，犹太教神话里还是所罗门儿子，就是搞事
+
+*****
+
+####  里村紅葉  
+##### 84884#       发表于 2021-12-16 22:19
+
+新OST是几号发售来着<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

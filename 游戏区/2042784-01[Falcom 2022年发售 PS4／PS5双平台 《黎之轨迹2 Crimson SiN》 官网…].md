@@ -1185,3 +1185,16 @@ Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的�
 
 顺便把小寺也挖回来，这样她就不用去唱梦幻模拟战了
 
+
+
+*****
+
+####  Licheus  
+##### 118#       发表于 2021-12-16 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53961772&amp;ptid=2042784" target="_blank">yuikonnu 发表于 2021-12-16 17:06</a>
+我猜一个马克邦
+
+— from Sony XQ-AT52, Android 11 of S1 Next Goose v2.5.2</blockquote>
+新角色，不然太low了
+

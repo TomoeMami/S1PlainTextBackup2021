@@ -6265,3 +6265,71 @@ pokerchase今天出新角色了，不会又是联动打牌吧<img src="https://s
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  T_Hb  
+##### 6729#       发表于 2021-12-16 22:01
+
+ 本帖最后由 T_Hb 于 2021-12-16 22:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草草草，又打广告
+
+*****
+
+####  格林卡罗尔  
+##### 6730#       发表于 2021-12-16 22:02
+
+开幕广告
+
+*****
+
+####  clvan_  
+##### 6731#       发表于 2021-12-16 22:09
+
+这联动想都不用想就是给你麻打广告的啊，黄兔子联动内容都没怎么想现开的棉花糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 6732#       发表于 2021-12-16 22:09
+
+这个偶像组合带来的偶像身份倒是能让组长和犬山玩出花来了
+
+*****
+
+####  古战场亡魂  
+##### 6733#       发表于 2021-12-16 22:09
+
+这个偶像组合带来的偶像身份倒是能让组长和犬山玩出花来了
+
+*****
+
+####  古战场亡魂  
+##### 6734#       发表于 2021-12-16 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53965534&amp;ptid=2018830" target="_blank">clvan_ 发表于 2021-12-16 22:09</a>
+
+这联动想都不用想就是给你麻打广告的啊，黄兔子联动内容都没怎么想现开的棉花糖 ...</blockquote>
+你这tm不扯淡吗，打广告……组长直播间的有谁不认识mea的……
+
+*****
+
+####  T_Hb  
+##### 6735#       发表于 2021-12-16 22:11
+
+ 本帖最后由 T_Hb 于 2021-12-16 22:18 编辑 
+
+兔妈妈昨天就帮你咩打过广告了，怎么你咩有点电音，是我的错觉吗
+
+*****
+
+####  clvan_  
+##### 6736#       发表于 2021-12-16 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53965552&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2021-12-16 22:10</a>
+
+你这tm不扯淡吗，打广告……组长直播间的有谁不认识mea的……</blockquote>
+她自己直播间还反复提呢，总不会觉得自己直播间里不知道的人多吧。正好能拿来当梗又能帮忙宣传不就搞联动了嘛，又不是什么坏事，不管cv还是艺人什么有大事互相走动宣传太正常了
+
