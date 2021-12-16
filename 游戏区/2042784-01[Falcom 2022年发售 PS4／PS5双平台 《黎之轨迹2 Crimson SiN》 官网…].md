@@ -1245,3 +1245,14 @@ Q：《黎之轨迹》很重视首次接触轨迹系列的玩家，但本作的�
 
 黎2能彻底解开真相吗？再不揭开法老控都要倒闭了
 
+
+
+*****
+
+####  Falcomfans  
+##### 124#       发表于 2021-12-17 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53967917&amp;ptid=2042784" target="_blank">hotsmile 发表于 2021-12-17 04:21</a>
+那由多是PS NS同步的吗？销量多少？</blockquote>
+ps4版半年前就出了，switch版还没出呢。
+
