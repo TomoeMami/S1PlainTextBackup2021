@@ -6358,3 +6358,15 @@ Denmark's prime minister says theaters, cinemas, concert halls, amusement parks,
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">唉，也就看看白皮们圣诞节能搞出多少病例吧
 
+
+
+*****
+
+####  Duc_d'_Muka  
+##### 2032#       发表于 2021-12-18 07:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53982801&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-12-18 01:54</a>
+
+唉，也就看看白皮们圣诞节能搞出多少病例吧</blockquote>
+带英16号已经八万八<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，圣诞过后轻轻松松日增破个十万应该不在话下
+
