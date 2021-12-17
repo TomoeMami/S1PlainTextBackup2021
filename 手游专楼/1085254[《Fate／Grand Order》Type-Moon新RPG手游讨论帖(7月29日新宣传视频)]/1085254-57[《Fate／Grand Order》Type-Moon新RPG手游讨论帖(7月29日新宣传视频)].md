@@ -10213,3 +10213,12 @@ Aaaaaaaaaaaaaaaaa!!!
 
 又是一单没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yyzcacxg  
+##### 84937#       发表于 2021-12-17 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">单抽补宝成功，继续攒石等新年了
+
