@@ -339,3 +339,15 @@
 兰音那个是新皮</blockquote>
 收到.
 
+
+
+*****
+
+####  GAKOTO  
+##### 4538#         楼主| 发表于 2021-12-17 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53967254&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-17 00:59</a>
+卡莎看文静?
+看到点赞了</blockquote>
+他应该挺早就看了，还在直播里说过
+
