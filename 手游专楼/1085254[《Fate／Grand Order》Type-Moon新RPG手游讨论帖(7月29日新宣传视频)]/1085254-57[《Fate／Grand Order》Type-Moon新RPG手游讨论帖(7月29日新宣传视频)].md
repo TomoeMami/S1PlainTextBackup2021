@@ -9854,3 +9854,42 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">咸鱼只刷了50池
 
+
+
+*****
+
+####  sosgame67  
+##### 84901#       发表于 2021-12-17 13:00
+
+60池跑路，素材还是不给力，而且狗粮只能喂100+英灵来解决了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84902#       发表于 2021-12-17 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一张都没掉，垃圾活动
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 84903#       发表于 2021-12-17 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53971913&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-17 12:29</a>
+
+咸鱼只刷了50池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也对咸鱼有误解？  14池的路过
+
+*****
+
+####  angelooo  
+##### 84904#       发表于 2021-12-17 15:01
+
+<blockquote>不垃圾屌丝 发表于 2021-12-17 11:18
+那个兽尼禄头像怎么回事，街机数据都能解析了？
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
+这个还没实锤，要是实锤了......算了没有最糟只有更糟
+

@@ -4849,3 +4849,24 @@ kmnz 1stlive 晚上5点
 
 2021-12-17 13:29 上传
 
+
+
+*****
+
+####  winda  
+##### 9406#       发表于 2021-12-17 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">en这边rpr和ipn蹭的挺欢的，直接来个本社职业哥不好吗
+@ike_eveland这倒霉蛋怎么推特还冻结了
+
+*****
+
+####  alcoholic1000  
+##### 9407#       发表于 2021-12-17 14:57
+
+<blockquote>Yeah I'm 99.9999999% sure that Vox is Connor and that his "speak of the devil" line was a nod to ironmouses talk show of the same name.
+
+He's been hinting at something for a while now and mouse probably did help him get set up if it is indeed him</blockquote><blockquote>Connor joining makes no sense. I have a feeling this is just stereotypical British-ish VA voice.
+
+For fun, here's a Connor clip about who his favorite v-tuber is.[https://www.youtube.com/channel/UCkGf4_t0tCIDgOg-jVF8P9A](https://www.youtube.com/channel/UCkGf4_t0tCIDgOg-jVF8P9A)</blockquote>如果真的是（我觉得可能性不大），结合他之前提到的加入holo=Willy Wonka golden ticket来看还挺有意思的
+

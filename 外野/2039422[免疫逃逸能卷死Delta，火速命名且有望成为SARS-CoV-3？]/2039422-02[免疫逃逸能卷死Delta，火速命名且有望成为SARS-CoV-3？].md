@@ -6031,3 +6031,19 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 想想 ...</blockquote>
 关键是对身体的破坏，后遗症这些，比单纯的死可怕多了。
 
+
+
+*****
+
+####  秀光  
+##### 2005#       发表于 2021-12-17 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53973308&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-17 13:58</a>
+
+前面都说了，一个病毒危险性并不完全看病死率和重症率，致死率只有0.5%的霍乱是我国唯二的甲级传染病
+
+想想 ...</blockquote>
+0.5%是及时治疗的数据吧，缺医少药时霍乱死亡率记得是百分之几十……
+
+新冠也一样，看似死亡率低，真到了没病床的时候就未必了
+
