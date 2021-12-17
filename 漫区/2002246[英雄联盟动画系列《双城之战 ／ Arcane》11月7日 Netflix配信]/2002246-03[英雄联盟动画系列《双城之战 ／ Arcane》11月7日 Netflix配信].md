@@ -623,3 +623,35 @@ b站搜"拳头游戏音乐"，有投稿，不过是整合版，不是按曲子�
 有单曲下载的吗</blockquote>
 就我所知没有
 
+
+
+*****
+
+####  Siran_China  
+##### 3053#       发表于 2021-12-17 11:56
+
+ 本帖最后由 Siran_China 于 2021-12-17 12:04 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/17/120220azcaxvr17u8272ro.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211217_095357.jpg</strong> (151.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 12:02 上传
+
+改一下，是这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">传错图了
+
+我是没想到为了自己喜欢的角色能洗白到这个地步…真的但凡受过点禁毒教育都说不出来这种屁话。把微光换成其他毒品妥妥的毒品合法化说辞
+
+Screenshot_2021-12-17-10-23-29-84.jpg
+(129.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 11:55 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202112/17/115531yzt8qqd3zersfksd.jpg" referrerpolicy="no-referrer">
+

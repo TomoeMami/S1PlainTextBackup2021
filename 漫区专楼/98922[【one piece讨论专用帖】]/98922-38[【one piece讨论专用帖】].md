@@ -9716,3 +9716,19 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 金不光翅膀断了，连刀都断了？</blockquote>
 索隆这暴殄天物啊，怎么说也是被灭族的唯一幸存者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 56261#       发表于 2021-12-17 11:43
+
+索隆剑士对决基本最后都是断别人刀
+
+*****
+
+####  chenflyyy  
+##### 56262#       发表于 2021-12-17 11:47
+
+该下笔墨画的不画，该省略的却一直拖<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -9805,3 +9805,43 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 事实证明有3T速刷配置的话我还是会刷一些，又帮策划完成了在线kpi了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 84896#       发表于 2021-12-17 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还差一张才能爽+10.哎。摸了摸了
+
+*****
+
+####  areklose  
+##### 84897#       发表于 2021-12-17 11:50
+
+ 本帖最后由 areklose 于 2021-12-17 11:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">趁上司都去开会随缘再刷了一下。还差一张才能爽+10.哎。摸了摸了
+
+<img src="https://img.saraba1st.com/forum/202112/17/115222ryiwyyfy538g33y3.jpg" referrerpolicy="no-referrer">
+
+<strong>qq_pic_merged_1639713103954.jpg</strong> (111.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 11:52 上传
+
+*****
+
+####  zore  
+##### 84898#       发表于 2021-12-17 11:56
+
+我的术狗只有4宝不稳定,摸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 84899#       发表于 2021-12-17 11:57
+
+最后30分钟连掉两张礼装，我开始相信DW真的有读心芯片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

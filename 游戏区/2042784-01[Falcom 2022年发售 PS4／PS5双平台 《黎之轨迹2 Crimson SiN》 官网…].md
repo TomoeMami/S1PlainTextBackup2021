@@ -1329,3 +1329,57 @@ ps4版半年前就出了，switch版还没出呢。
 
 红色魔装鬼应该是类似克洛那样的宿敌角色，希望这次neng写好点
 
+
+
+*****
+
+####  yuikonnu  
+##### 132#       发表于 2021-12-17 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53970926&amp;ptid=2042784" target="_blank">hkguty 发表于 2021-12-17 11:35</a>
+红色魔装鬼应该是类似克洛那样的宿敌角色，希望这次neng写好点</blockquote>
+如果是这样的宿敌那还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Mchaos  
+##### 133#       发表于 2021-12-17 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53971189&amp;ptid=2042784" target="_blank">yuikonnu 发表于 2021-12-17 11:51</a>
+
+如果是这样的宿敌那还是算了
+
+—— 来自 Sony XQ-AT52, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+如果还跟我来男男卖基情这一套我马上掰盘<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeaha123  
+##### 134#       发表于 2021-12-17 11:54
+
+ 本帖最后由 Yeaha123 于 2021-12-17 11:57 编辑 
+
+既然是第二作，红鬼再来一遍我是你爸爸(总统对黄毛)也不是不可能
+
+*****
+
+####  415452356  
+##### 135#       发表于 2021-12-17 11:56
+
+  法老控别写什么对手戏了，如果能厉鬼1这样一作就清算完还好
+
+*****
+
+####  如果有一天TT  
+##### 136#       发表于 2021-12-17 11:58
+
+ 本帖最后由 如果有一天TT 于 2021-12-17 12:01 编辑 
+
+为什么说销量总有人说是因为没有同步出中文啊，我没明白是怎么个逻辑。首先已知fami通统计的销量是日本实体销量，其次其他地区的版本跟falcom是一锤子买卖，那么在没有中日英同步的情况下，反而会有不会日语的人去买日版啃生不是吗（虽然不见得有多少，且无论同步不同步都玩日版的不算在内），这么一来语言不同步的情况下日版销量反而会上升才对吧（虽然可能只有一点点）<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+-----------------------------------------------------------------------------
+
+哦我懂了，是说语言同步的情况下说全球总销量会增加
+
