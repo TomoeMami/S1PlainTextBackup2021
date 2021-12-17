@@ -9969,3 +9969,108 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  angelooo  
+##### 84913#       发表于 2021-12-17 17:26
+
+这新道具，通古斯要绝赞复刻魔神柱战羁绊加攻了？
+
+（但这量也太少了
+
+*****
+
+####  alucardcz  
+##### 84914#       发表于 2021-12-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53976224&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-17 17:10</a>
+
+复刻妖兰池子 妖兰补二宝失败</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">萌新all in了  无事发生
+
+*****
+
+####  黑上シグマ  
+##### 84915#       发表于 2021-12-17 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一发11连，妖兰2宝了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  zakki  
+##### 84916#       发表于 2021-12-17 17:30
+
+同补宝all in失败，寄希望于福袋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84917#       发表于 2021-12-17 17:31
+
+话说还真可能是太公望啊，明天看看会不会公开
+
+*****
+
+####  KOBI  
+##### 84918#       发表于 2021-12-17 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">20个刷FREE本都没3W吧
+
+这种东西不就是该扔进绿方商店的玩意么DW是搞屁
+
+*****
+
+####  v22325  
+##### 84919#       发表于 2021-12-17 17:33
+
+好耶！全抽光出妖兰了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">抽到空没有想着算了抽下去突然卡了一下 金枪 妖兰
+
+*****
+
+####  alucardcz  
+##### 84920#       发表于 2021-12-17 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53976521&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-17 17:30</a>
+
+一发11连，妖兰2宝了
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可怕的欧洲人
+
+*****
+
+####  qixinno2  
+##### 84921#       发表于 2021-12-17 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53976487&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-17 17:28</a>
+
+欧 羡慕
+
+萌新all in了  无事发生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧个毛啊 不是失败了么
+
+*****
+
+####  areklose  
+##### 84922#       发表于 2021-12-17 17:44
+
+妖兰复刻？该补宝具了
+
+*****
+
+####  黑上シグマ  
+##### 84923#       发表于 2021-12-17 17:45
+
+<blockquote>引用第84919楼alucardcz于2021-12-17 17:40发表的  :
+
+引用:黑上シグマ 发表于 2021-12-17 17:30一发11连，妖兰2宝了----发送自 ST......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你见过哪个欧洲人一张礼装都不掉的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
