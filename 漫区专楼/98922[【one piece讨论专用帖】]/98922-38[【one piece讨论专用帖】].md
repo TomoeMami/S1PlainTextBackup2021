@@ -9741,3 +9741,14 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 快进到凯多被一招秒<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 56264#       发表于 2021-12-17 13:40
+
+年轻的凯多好帅啊，隐约有罗杰的痕迹
+
+难怪这么多人追随他
+

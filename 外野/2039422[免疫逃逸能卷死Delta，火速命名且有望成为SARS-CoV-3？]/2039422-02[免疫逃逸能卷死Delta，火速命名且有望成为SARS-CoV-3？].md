@@ -5987,3 +5987,13 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
 奥米克戎的发现到地区流行，只需要2周，再2周就全球流行了。
 
+
+
+*****
+
+####  烦死了  
+##### 2001#       发表于 2021-12-17 13:40
+
+美国宣传新风向是口服神药了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+疫苗这个已经没人信了
+
