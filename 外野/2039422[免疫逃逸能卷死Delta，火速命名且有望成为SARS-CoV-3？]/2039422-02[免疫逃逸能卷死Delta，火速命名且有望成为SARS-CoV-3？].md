@@ -6332,3 +6332,29 @@ Denmark's prime minister says theaters, cinemas, concert halls, amusement parks,
 
 天空新闻：omicron比较轻微 彭博社：目前没有证据表明omicron比delta轻
 
+
+
+*****
+
+####  最好不说  
+##### 2030#       发表于 2021-12-18 01:51
+
+ 本帖最后由 最好不说 于 2021-12-18 01:53 编辑 
+
+汇总一下这几天拍老师转的omicron新情报
+
+1.Omicron在支气管的复制速度大概是Delta的70倍左右，而在肺部的复制速度则是原始株的十分之一左右
+
+2.Omicron可以轻易感染鼠类，中科院也出了一篇预印本列举了很多omicron可能起源于鼠类回传的证据
+
+3. 挪威奥斯陆超级传播事件中观察到以下情况，74%罹患率，3天中位数潜伏期（差不多等于2天代际间隔)，99%有症状，聚会大多数参与者年龄在30-50岁之间，其中 96%已完全接种疫苗。
+
+可以说比想象中最坏的情况还要糟，这个冬天不但欧美会被omicron加delta暴刷战绩，国内的防疫压力也会前所未有的大，omicron和之前那几波真不是一个级别的，而且BA家族（omicron和他的两兄弟)正在随着感染人群的极速扩大而加速演化中，不到几个月保不齐就又能卷出新王，这操蛋日子真是完全看不到头啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天使日又日  
+##### 2031#       发表于 2021-12-18 01:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">唉，也就看看白皮们圣诞节能搞出多少病例吧
+
