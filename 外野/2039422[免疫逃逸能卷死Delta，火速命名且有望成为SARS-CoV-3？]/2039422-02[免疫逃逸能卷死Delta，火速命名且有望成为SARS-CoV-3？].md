@@ -6308,3 +6308,18 @@ Test positivity doubling in three days
 想不通老美这感染量，死亡率怎么那么低。要说低人权优势不去医院挤兑，可不去医院不就得不到救治，和医疗 ...</blockquote>
 因为武汉死亡率没有8%，武汉疫情最严重的时候，检测能力是彻底失灵的，事后查抗体不是发现实际上有几十万病人么，哪怕按照西方的检测力度，也会测到更多的病人。
 
+
+
+*****
+
+####  pushare  
+##### 2028#       发表于 2021-12-18 00:55
+
+Denmark's prime minister says theaters, cinemas, concert halls, amusement parks, museums and art galleries must shut down to contain the spread of the coronavirus. 
+
+丹麦再次感染量
+<img src="https://p.sda1.dev/3/143b53f86c4017784f35e6e740ff72ff/20211218_005331.jpg" referrerpolicy="no-referrer">
+
+丹麦日增住院数量
+<img src="https://p.sda1.dev/3/2d0600fdcb7cb3a94eea997eb0e0c557/20211218_005426.jpg" referrerpolicy="no-referrer">
+
