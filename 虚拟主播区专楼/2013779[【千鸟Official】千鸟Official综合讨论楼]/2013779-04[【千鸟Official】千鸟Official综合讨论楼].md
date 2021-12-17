@@ -559,3 +559,14 @@ S1没被视奸，也赢！<img src="https://static.saraba1st.com/image/smiley/fa
 
 那可能就是冰火了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4561#       发表于 2021-12-17 18:52
+
+14号公布第一批嘉宾名单，15号文静还没收到任何消息，明天18号出最后一批嘉宾名单，如果真是冰火那确实还挺急的...
+
+白白当时的3D动作都是阿b做的。偷懒的话交个干音和3D就够了，连调音都可以交给那边做虽然很烂就是了。当然也可以自己做全套直接交成品。
+
