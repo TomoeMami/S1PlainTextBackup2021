@@ -699,3 +699,14 @@ steam上不直接用重制版还是用的老版外传吗？
 
 我记得是免费的吧。。
 
+
+
+*****
+
+####  tachikoma27  
+##### 67#       发表于 2021-12-17 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53975007&amp;ptid=2042712" target="_blank">louge19891020 发表于 2021-12-17 15:42</a>
+他至少不做火纹15年了吧？火纹离开他也越活越好（咋还没新作新闻）也不知道恨为啥还能延续 ...</blockquote>
+反了反了，是加贺信者对火纹的恨意绵绵无绝期才对。贴吧隔三差五就要跳出来没有加贺的火纹已死(现在看起来可能是没有加贺战棋都已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

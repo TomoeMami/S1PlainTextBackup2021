@@ -9930,3 +9930,14 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 也是很恶心了。。。
 
+
+
+*****
+
+####  miro112233  
+##### 84909#       发表于 2021-12-17 16:40
+
+街机的惯例不是“你的东西是我的东西，我的东西还是我的东西”吗<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
