@@ -579,3 +579,12 @@ S1没被视奸，也赢！<img src="https://static.saraba1st.com/image/smiley/fa
 
 对面有兰音，按文静的小心思不得费点心搞好点<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mr.柯  
+##### 4563#       发表于 2021-12-17 19:42
+
+冰火名单之前好像偷跑过，貌似不在名单上，还是不要抱太大希望了
+

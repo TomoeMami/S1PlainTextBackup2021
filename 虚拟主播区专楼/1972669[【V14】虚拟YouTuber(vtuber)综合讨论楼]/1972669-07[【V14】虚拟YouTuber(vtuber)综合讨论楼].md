@@ -4961,3 +4961,20 @@ Elira前世友人，11月20日毕业，虹人
 
 哦~
 
+
+
+*****
+
+####  OldGlory  
+##### 9416#       发表于 2021-12-17 19:46
+
+i feel fucking awful, seriously. i learned i'm a unicorn today. watching cute girls is fun, watching cute girls + male sounds fucking dreadful. the entire atmosphere of nijiEN is changed now. they'll be interacting on twitter all the time. i'm just so fucking drained, nijiEN reinvigorated my love for vtubers and now this fucking garbage happens. who the FUCK wants men in the cute girl anime space, jesus fucking christ?!
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以白皮到底有多少独角兽
+
+*****
+
+####  毛头小希  
+##### 9417#       发表于 2021-12-17 19:55
+
+别说教授都几乎被en虹女们轮着欺负过一次以上了，id和kr的虹男还有外面的职业枪佬也都一起玩过吧？现在才出独角兽会不会晚了点？
+

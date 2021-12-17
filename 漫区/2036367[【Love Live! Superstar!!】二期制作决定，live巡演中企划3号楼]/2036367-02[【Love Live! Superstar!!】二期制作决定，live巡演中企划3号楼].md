@@ -6452,3 +6452,42 @@ F5BE1731-395A-42BA-B085-ACB64EF5A08B.jpeg
 
 2021-12-17 19:34 上传
 
+
+
+*****
+
+####  黑雪姫  
+##### 2068#       发表于 2021-12-17 19:45
+
+ 本帖最后由 黑雪姫 于 2021-12-17 19:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53978182&amp;ptid=2036367" target="_blank">zylwz 发表于 2021-12-17 19:35</a>
+
+缪斯当年是给一个游戏唱过歌的 而且还是以角色身份配的音（有点管人的味道了
+
+ ...</blockquote>
+没出名之前什么道路都尝试一下是很正常的，毕竟缪斯真正出名是在TV动画之后了，出名后就不搞了吗？
+
+*****
+
+####  zylwz  
+##### 2069#       发表于 2021-12-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53978323&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-17 19:45</a>
+
+没出名之前什么道路都尝试一下是很正常的，毕竟缪斯真正出名是在TV动画之后了，出名后就不搞了吗？ ...</blockquote>
+出名之后自家企划都忙不过来了吧
+
+不过我也挺期待搞点跨IP企划的
+
+*****
+
+####  黑雪姫  
+##### 2070#       发表于 2021-12-17 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53978355&amp;ptid=2036367" target="_blank">zylwz 发表于 2021-12-17 19:48</a>
+
+出名之后自家企划都忙不过来了吧
+
+不过我也挺期待搞点跨IP企划的</blockquote>
+AKB48都给龙珠动画唱过ED
+

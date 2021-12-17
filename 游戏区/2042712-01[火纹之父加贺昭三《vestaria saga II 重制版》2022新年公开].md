@@ -816,3 +816,17 @@ steam上不直接用重制版还是用的老版外传吗？</blockquote>
 
 FE从觉醒，IF开始到风花雪月混的好像确实越来越好了，不过我这几年最喜欢的偏偏是卖的很惨的外传回声……可能确实是年纪大了，跟不上时代了吧……
 
+
+
+*****
+
+####  長瀨香夏子  
+##### 78#       发表于 2021-12-17 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53976389&amp;ptid=2042712" target="_blank">MikawaFumika 发表于 2021-12-17 17:22</a>
+
+就看这帖子的第一页，谁恨谁还不明显么，火纹粉大多数还能正常祝福他好好搞自己的游戏，对面的那群人巴不 ...</blockquote>
+两边不都是一类人么。
+
+你说的火纹粉里面也有一批人恨不得除了火纹外所有srpg全死了，特别是旧版火纹like的游戏。
+
