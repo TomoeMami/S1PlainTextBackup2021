@@ -1443,3 +1443,21 @@ ps4版半年前就出了，switch版还没出呢。
 
 这副标题，每次在首页划过的时候总幻视成COMING SOON<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冰寒之月  
+##### 143#       发表于 2021-12-17 16:21
+
+低帧数感觉是对引擎不熟悉导致的 如果黎2引擎渲染啥的不大改那首发60帧应该还是稳的
+
+*****
+
+####  ac130-2020  
+##### 144#         楼主| 发表于 2021-12-17 16:22
+
+ps5版至少loading问题可以解决了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
