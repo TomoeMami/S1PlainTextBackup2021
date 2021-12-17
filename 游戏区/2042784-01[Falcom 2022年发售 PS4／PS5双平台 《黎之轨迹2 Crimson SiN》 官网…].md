@@ -1309,3 +1309,23 @@ ps4版半年前就出了，switch版还没出呢。
 
 说中文那个是不看人家发的啥吗，中文整个只占16%<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  悠悠你心  
+##### 130#       发表于 2021-12-17 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53970703&amp;ptid=2042784" target="_blank">Mchaos 发表于 2021-12-17 11:21</a>
+说中文那个是不看人家发的啥吗，中文整个只占16%。不说了，有剑女就支持，艾蕾茵我的艾蕾茵 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">严谨点，亚洲16%，至少还包括了韩文版
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hkguty  
+##### 131#       发表于 2021-12-17 11:35
+
+红色魔装鬼应该是类似克洛那样的宿敌角色，希望这次neng写好点
+

@@ -9688,3 +9688,31 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 才会使两年后的战斗场景里一直切来切去看不到一场完整的战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fmchar  
+##### 56259#       发表于 2021-12-17 11:26
+
+金不光翅膀断了，连刀都断了？
+
+<img src="https://img.saraba1st.com/forum/202112/17/112606x7ihscn788nair00.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211217_112336.jpg</strong> (491.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-17 11:26 上传
+
+*****
+
+####  天使的日曜日  
+##### 56260#       发表于 2021-12-17 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53970789&amp;ptid=98922" target="_blank">fmchar 发表于 2021-12-17 11:26</a>
+
+金不光翅膀断了，连刀都断了？</blockquote>
+索隆这暴殄天物啊，怎么说也是被灭族的唯一幸存者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

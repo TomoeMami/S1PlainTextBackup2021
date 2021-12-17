@@ -9796,3 +9796,12 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  yzj134100  
+##### 84895#       发表于 2021-12-17 11:42
+
+事实证明有3T速刷配置的话我还是会刷一些，又帮策划完成了在线kpi了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
