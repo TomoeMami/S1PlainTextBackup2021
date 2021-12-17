@@ -1423,3 +1423,23 @@ ps4版半年前就出了，switch版还没出呢。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果坚持要9月最后一个星期4出的话，我觉得多半是低分辨率低帧数
 
+
+
+*****
+
+####  悠悠你心  
+##### 141#       发表于 2021-12-17 15:50
+
+ 本帖最后由 悠悠你心 于 2021-12-17 15:51 编辑 
+
+你法现在的首发都是赶鸭子上架，体验多多少少都会有点不好，等段时间既有补丁加强体验，价格还下来不少，是个首发铁粉哪会受得了这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  a2042312  
+##### 142#       发表于 2021-12-17 15:56
+
+这副标题，每次在首页划过的时候总幻视成COMING SOON<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

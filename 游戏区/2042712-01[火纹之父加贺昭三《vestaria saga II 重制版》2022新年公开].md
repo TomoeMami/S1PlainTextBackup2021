@@ -668,3 +668,34 @@ steam上那作我买了啊，他敢出我敢买，敢上ks我敢筹
 为什么火纹玩家这么讨厌加贺？还让他离远一点？</blockquote>
 他至少不做火纹15年了吧？火纹离开他也越活越好（咋还没新作新闻）也不知道恨为啥还能延续
 
+
+
+*****
+
+####  S.T.A.L.K.E.R  
+##### 64#       发表于 2021-12-17 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53953861&amp;ptid=2042712" target="_blank">漫漫来 发表于 2021-12-16 01:49</a>
+这都什么年代了还在用sfc时代的素材贴图...随便找个美工把贴图换成高清的不难吧 ...</blockquote>
+严重怀疑你玩过sfc火纹没  **画面比这强多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shlyy123  
+##### 65#       发表于 2021-12-17 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974420&amp;ptid=2042712" target="_blank">兲蛋高达 发表于 2021-12-17 15:03</a>
+https://store.steampowered.com/a ... ord_of_Silvanister/
+
+外传steam商店页面已经公开了，官方汉化也在 ...</blockquote>
+steam上不直接用重制版还是用的老版外传吗？
+
+*****
+
+####  su37mkk  
+##### 66#       发表于 2021-12-17 15:58
+
+我记得是免费的吧。。
+

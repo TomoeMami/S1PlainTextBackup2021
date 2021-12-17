@@ -9919,3 +9919,14 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 那既然手游的兽在街机落地，你街机的兽在手游落地也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOBI  
+##### 84908#       发表于 2021-12-17 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">然后街机踢爆兽尼禄残骸逃回手机跟爱歌合流搞事兽尼禄和爱歌当双卡池？
+
+也是很恶心了。。。
+
