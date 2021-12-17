@@ -5997,3 +5997,23 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 美国宣传新风向是口服神药了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 疫苗这个已经没人信了
 
+
+
+*****
+
+####  毒品  
+##### 2002#       发表于 2021-12-17 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966811&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-17 00:08</a>
+12月15日，第一财经从科兴（SINOVAC）获悉，科兴先后从香港获得两株Omicron病毒株，即进行了中和试验。最新 ...</blockquote>
+今天波士顿圆脸更了一期，还说了这个事，阳性率是指抗体和病毒碰上的概率，发不发挥作用另说
+
+*****
+
+####  66666  
+##### 2003#       发表于 2021-12-17 13:58
+
+前面都说了，一个病毒危险性并不完全看病死率和重症率，致死率只有0.5%的霍乱是我国唯二的甲级传染病
+
+想想，就算病死率千分之五，按照奥密克戎这种感染速度，很可能死的人要远超原始毒株
+
