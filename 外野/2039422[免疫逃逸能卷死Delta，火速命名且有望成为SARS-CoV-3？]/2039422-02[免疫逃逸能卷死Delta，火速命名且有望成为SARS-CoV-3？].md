@@ -5960,3 +5960,30 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
  笑死
 
+
+
+*****
+
+####  钦念以忱  
+##### 1999#       发表于 2021-12-17 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53957243&amp;ptid=2039422" target="_blank">西风之哀 发表于 2021-12-16 11:24</a>
+
+明白逻辑了：
+
+1、O的传播效率远高于Delta，可以比Delta更快的传播全国</blockquote>
+我想了下，D开始传播的时候，疫苗接种率没有现在高吧，疫苗虽然现在防感染能力不行了，但防重症还是有点效果的，所以看上去O的重症率“不高”。
+
+*****
+
+####  creymorgan  
+##### 2000#       发表于 2021-12-17 12:54
+
+从半年就基本失效，到新变种
+
+现在对疫苗的信心基本上已经没有了
+
+而且流感预警那套提前半年推测对新冠好像都不怎么好使，流感的R0不到2，出现后先是慢慢传半年才流行所以来得及。
+
+奥米克戎的发现到地区流行，只需要2周，再2周就全球流行了。
+

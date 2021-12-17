@@ -455,3 +455,28 @@ S1输麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 S1没被视奸，也赢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜潇箫  
+##### 4549#       发表于 2021-12-17 12:49
+
+文静去泰国，会不会找小鲜肉<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莫洛骑士  
+##### 4550#       发表于 2021-12-17 12:52
+
+我超，女通讯录
+
+*****
+
+####  人民de救星  
+##### 4551#       发表于 2021-12-17 12:54
+
+传扬出去，文静异国逛窑子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
