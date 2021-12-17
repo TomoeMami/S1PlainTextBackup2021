@@ -6276,3 +6276,14 @@ Test positivity doubling in three days
 
 毕竟大嘤现在日增八万
 
+
+
+*****
+
+####  nh_zzz  
+##### 2025#       发表于 2021-12-17 22:12
+
+怎么我记得o的ct是20的，还是单纯个例？
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
