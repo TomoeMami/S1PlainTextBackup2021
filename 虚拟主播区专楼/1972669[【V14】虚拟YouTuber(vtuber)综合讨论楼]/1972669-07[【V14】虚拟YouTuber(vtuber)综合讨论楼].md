@@ -4812,3 +4812,22 @@ riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中�
 
 男性套皮的优势也没那么大。可能和观众对男主播的形象要求不高有关系。
 
+
+
+*****
+
+####  443421870  
+##### 9403#       发表于 2021-12-17 12:33
+
+这不是因为传统真人主播头部男性居多吗，要是自身直播素质够硬，自己就能播到top，何苦来套皮被抽成<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  死体残留  
+##### 9404#       发表于 2021-12-17 12:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">好怀念的评论 一切回到了18年
+syl 彩虹en最好招个职业哥 使劲卷 让本社多出点企划
+
