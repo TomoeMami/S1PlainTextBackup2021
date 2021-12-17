@@ -1461,3 +1461,12 @@ ps5版至少loading问题可以解决了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  妄想中毒  
+##### 145#       发表于 2021-12-17 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">A和庭院都全灭了还上哪找新的里社会势力啊
+

@@ -830,3 +830,48 @@ FE从觉醒，IF开始到风花雪月混的好像确实越来越好了，不过�
 
 你说的火纹粉里面也有一批人恨不得除了火纹外所有srpg全死了，特别是旧版火纹like的游戏。
 
+
+
+*****
+
+####  mamamiya  
+##### 79#       发表于 2021-12-17 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53978509&amp;ptid=2042712" target="_blank">長瀨香夏子 发表于 2021-12-17 20:00</a>
+两边不都是一类人么。
+
+你说的火纹粉里面也有一批人恨不得除了火纹外所有srpg全死了，特别是旧版火纹like的 ...</blockquote>
+发点来见识见识
+
+*****
+
+####  hallowilliam  
+##### 80#       发表于 2021-12-17 20:11
+
+维斯塔尼亚之前下了，
+
+其实玩不下去不是因为贴图，是那个行军时的闪烁，太难受了。
+
+*****
+
+####  長瀨香夏子  
+##### 81#       发表于 2021-12-17 20:14
+
+ 本帖最后由 長瀨香夏子 于 2021-12-17 20:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53978598&amp;ptid=2042712" target="_blank">mamamiya 发表于 2021-12-17 20:05</a>
+
+发点来见识见识</blockquote>
+按照你第一页那程度就能说有人希望火纹去死比照，那上次一个说传统火纹有没有市场的帖子就有一堆。
+
+*****
+
+####  minysun  
+##### 82#       发表于 2021-12-17 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53978080&amp;ptid=2042712" target="_blank">慕容复 发表于 2021-12-17 19:28</a>
+
+03年左右开始混火花，交往了很多一直到现在都还偶尔聊几句的FE同好……
+
+有从FC，SFC开始玩的，也有2000年后 ...</blockquote>
+另一位英雄王的RPG要素太重，SRPG的内容被冲淡不少，导致很多关卡玩起来特别没意思。老外传那会儿游戏选择没那么多加上玩家游玩习惯问题这种刷刷刷的RPG要素还挺讨喜但是放到20多年后再来这一套市场就不太买账了。不过IS新团队在这个复刻上做的很多尝试都进一步修改后沿用在风花雪月里面（像是米拉齿轮对应天刻脉动，战技和独立配置魔法这些），为后者的大卖做出了相当的贡献。
+

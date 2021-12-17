@@ -6493,3 +6493,22 @@ top idol 禁断的asmr R18G<img src="https://static.saraba1st.com/image/smiley/f
 
 之前不是有过统计么，个位数貌似
 
+
+
+*****
+
+####  T_Hb  
+##### 6753#       发表于 2021-12-17 20:18
+
+妈的，我昨天的敬业主播呢
+
+*****
+
+####  clvan_  
+##### 6754#       发表于 2021-12-17 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53977873&amp;ptid=2018830" target="_blank">rosevalley46 发表于 2021-12-17 19:11</a>
+
+之前不是有过统计么，个位数貌似</blockquote>
+她自己提到我印象里相当久之前了吧，好像还19年时候。现在是个什么比例还是挺好奇的
+
