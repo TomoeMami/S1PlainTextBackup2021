@@ -688,3 +688,29 @@ S1没被视奸，也赢！<img src="https://static.saraba1st.com/image/smiley/fa
 
 恰言落喽！happy！
 
+
+
+*****
+
+####  GAKOTO  
+##### 4572#         楼主| 发表于 2021-12-18 07:27
+
+寄<blockquote><img src="https://p.sda1.dev/3/f153eb82a1c6daf6cc27c5173a4f5a2e/IMG_CMP_230948955.png" referrerpolicy="no-referrer"></blockquote>
+
+*****
+
+####  莫洛骑士  
+##### 4573#       发表于 2021-12-18 07:37
+
+我宣布停止呼吸直到……直到铃铛复活
+
+今天遇到的文静同款变形金刚
+<img src="https://p.sda1.dev/3/521b951b2dbd27e50db8eac765b44b6b/IMG_CMP_170442648.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfear  
+##### 4574#       发表于 2021-12-18 07:42
+
+也好，该回归几天正常作息了
+

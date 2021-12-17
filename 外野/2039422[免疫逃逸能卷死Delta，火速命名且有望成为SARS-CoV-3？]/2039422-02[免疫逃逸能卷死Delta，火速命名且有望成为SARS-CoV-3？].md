@@ -6370,3 +6370,27 @@ Denmark's prime minister says theaters, cinemas, concert halls, amusement parks,
 唉，也就看看白皮们圣诞节能搞出多少病例吧</blockquote>
 带英16号已经八万八<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，圣诞过后轻轻松松日增破个十万应该不在话下
 
+
+
+*****
+
+####  有口皆悲  
+##### 2033#       发表于 2021-12-18 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53982783&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-18 01:51</a>
+
+汇总一下这几天拍老师转的omicron新情报
+
+1.Omicron在支气管的复制速度大概是Delta的70倍左右，而在肺部的复 ...</blockquote>
+张文宏最新预测，打完第三针就结束。别怕<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+ <blockquote>中国后续的第三针疫苗优化接种策略在2021年将有望全面完成，与国际社会共同进入2022年。迎接世卫组织所说的对新冠病毒的全面控制，全球的民众将会迎接普通而平稳的生活。
+
+​这个冬季和春节我们将和国际社会一起度过最后一个寒冷的冬季，我们终会“拨开云雾见天日,守得云开见月明”。</blockquote>
+
+*****
+
+####  kodachi  
+##### 2034#       发表于 2021-12-18 07:39
+
+TGFC某些反人类ID正在庆祝出了个天然疫苗是什么情况？
+
