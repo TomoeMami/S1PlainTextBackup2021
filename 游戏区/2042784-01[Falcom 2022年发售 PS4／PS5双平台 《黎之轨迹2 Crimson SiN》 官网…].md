@@ -1278,3 +1278,25 @@ ps4版半年前就出了，switch版还没出呢。
 红色的魔装鬼比起一哥更有可能的是帝国的太子，毕竟闪轨里跟绯红魔王通过神骑连接过。而且一哥不太一样的， ...</blockquote>
 新角色吧.少年少女在追寻的东西不就是红黎魔装鬼
 
+
+
+*****
+
+####  yuikonnu  
+##### 127#       发表于 2021-12-17 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53968088&amp;ptid=2042784" target="_blank">printer22 发表于 2021-12-17 07:04</a>
+黎轨1已经很接近世界真相了，只差临门一脚，但是范爷就把魔核扔了。
+
+黎2能彻底解开真相吗？再不揭开法老控 ...</blockquote>
+其实我真的很烦模拟世界那一套，真心希望别这么搞
+
+— from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  masterzx  
+##### 128#       发表于 2021-12-17 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是“可能世界”这种词都出来了啊
+

@@ -9651,3 +9651,22 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 那么和之国的剧情为什么这么长呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  owada  
+##### 56256#       发表于 2021-12-17 10:24
+
+就这?又是一刀秒了?看来御田真的是隐藏男主
+
+*****
+
+####  武男  
+##### 56257#       发表于 2021-12-17 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53967715&amp;ptid=98922" target="_blank">DGIL 发表于 2021-12-17 02:32</a>
+
+我觉得和之国篇角色就大和 king 恐龙妹子有些意思记忆点也还不错，如果大和没有一天到晚御田就好了 ...</blockquote>
+其实我觉得看到现在应该可以断言这个没顶上之战精彩了吧
+
