@@ -655,3 +655,25 @@ Screenshot_2021-12-17-10-23-29-84.jpg
 
 <img src="https://img.saraba1st.com/forum/202112/17/115531yzt8qqd3zersfksd.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ajkkdcry  
+##### 3054#       发表于 2021-12-17 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966434&amp;ptid=2002246" target="_blank">第二十三个马甲 发表于 2021-12-16 23:28</a>
+
+我肯定是要找可以下的啊</blockquote>
+不提下载谁知道你要什么。。。现在这个只有国内外各大音乐app有，没见到单曲下载的
+
+*****
+
+####  ammk  
+##### 3055#       发表于 2021-12-17 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53949791&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-12-15 19:42</a>
+
+拳头自己专精看重的肯定还是PC端，手机端说难听点变现</blockquote>
+光顾着做pc端，结果被人抄个手机端那才叫一个惨
+

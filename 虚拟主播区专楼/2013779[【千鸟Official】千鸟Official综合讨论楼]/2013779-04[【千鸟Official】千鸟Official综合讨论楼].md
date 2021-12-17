@@ -406,3 +406,27 @@
 
 粉色刀战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4545#       发表于 2021-12-17 12:19
+
+ 本帖最后由 莫洛骑士 于 2021-12-17 00:22 编辑 
+
+昨天看到被b站夹的图，留档用
+<img src="https://p.sda1.dev/3/73c483638a300dcc8c3961eedda6d5e8/1639672339116_edit_351172554783392.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| andeloz| + 1|烧🥵|
+
+查看全部评分
+

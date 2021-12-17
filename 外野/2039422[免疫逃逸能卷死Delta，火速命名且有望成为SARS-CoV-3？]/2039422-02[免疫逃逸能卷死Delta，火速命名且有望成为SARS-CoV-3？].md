@@ -5943,3 +5943,20 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 单纯的中和抗体阳性率的数据没啥太大用，如果中和抗体滴度和有效率能升上去才能放心 ...</blockquote>
 大多数人的滴度上去了都未必管用。这玩意rt太高，只要少数人滴度不够就能突破免疫屏障。
 
+
+
+*****
+
+####  charse2r  
+##### 1998#       发表于 2021-12-17 12:14
+
+<img src="https://img.saraba1st.com/forum/202112/17/121439zff0f58x2xitx0yt.jpg" referrerpolicy="no-referrer">
+
+<strong>FGLZPxAXoAQGDR6.jpg</strong> (113.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 12:14 上传
+
+ 笑死
+
