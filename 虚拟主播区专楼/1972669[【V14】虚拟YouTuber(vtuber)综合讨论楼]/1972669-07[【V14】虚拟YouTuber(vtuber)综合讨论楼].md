@@ -4879,3 +4879,28 @@ For fun, here's a Connor clip about who his favorite v-tuber is.[https://www.you
 
 期望加入holo而不得只能加入虹也算很有历史的一件事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adamtheo  
+##### 9409#       发表于 2021-12-17 15:23
+
+不太相信，虹EN不都是中之人不动了吗，要是能皮套fo中之人账号那不是彩虹管不到我，维阿EN是吧，虹女又输
+
+<img src="https://img.saraba1st.com/forum/202112/17/152012c7775dlzvwe3763y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 15:20 上传
+
+*****
+
+####  渡鸦骑士  
+##### 9410#       发表于 2021-12-17 15:35
+
+<img src="https://p.sda1.dev/3/a74c9f136a6cb0dee92e58e443c5a97d/IMG_CMP_151135588.jpeg" referrerpolicy="no-referrer">武士道先生！？
+什么时候上的抖音
+

@@ -6103,3 +6103,46 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
 伦敦，截止12月12日，Omicron入院率已明显反超Delta
 
+
+
+*****
+
+####  smy20011  
+##### 2011#       发表于 2021-12-17 15:26
+
+<img src="https://img.saraba1st.com/forum/202112/17/152614q55tw6sxvulyuxfs.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211216-232532.png</strong> (185.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-17 15:26 上传
+
+ 截图是一门艺术
+
+*****
+
+####  smy20011  
+##### 2012#       发表于 2021-12-17 15:27
+
+<blockquote>毒品 发表于 2021-12-17 13:55
+今天波士顿圆脸更了一期，还说了这个事，阳性率是指抗体和病毒碰上的概率，发不发挥作用另说 ...</blockquote>
+那科兴是在误导公众咯？
+
+*****
+
+####  creymorgan  
+##### 2013#       发表于 2021-12-17 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974807&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-17 15:27</a>
+
+那科兴是在误导公众咯？</blockquote>
+科兴只说抗体阳性没说抗体滴度。
+
+保护率是需要三期临床这种才能得出
+
+但是抗体滴度在二期临床时候就有了，好像大于32是进行三期临床的先决条件，法国巴斯特所得疫苗我记得就是因为二期临床抗体滴度数据只有十几终止三期临床计划。
+
+而科兴在“报喜”的时候没有说滴度
+
