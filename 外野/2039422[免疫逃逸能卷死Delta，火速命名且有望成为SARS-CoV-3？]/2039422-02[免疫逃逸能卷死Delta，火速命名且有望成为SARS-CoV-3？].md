@@ -6248,3 +6248,31 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  烦死了  
+##### 2023#       发表于 2021-12-17 21:29
+
+纽约市阳性率3天翻番，好起来了
+
+Um, we've never seen this before in #NYC.
+
+Test positivity doubling in three days
+
+12/9 - 3.9%
+
+12/10 - 4.2%
+
+12/11 - 6.4%
+
+12/12 - 7.8%
+
+*****
+
+####  折岛睦月  
+##### 2024#       发表于 2021-12-17 21:30
+
+毕竟大嘤现在日增八万
+
