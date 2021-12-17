@@ -6215,3 +6215,23 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 单纯的中和抗体阳性率的数据没啥太大用，如果中和抗体滴度和有效率能升上去才能放心 ...</blockquote>
 关于这个，高福明确说了，他们有结果：两针灭活加一针重组蛋白就极大有效。
 
+
+
+*****
+
+####  pushare  
+##### 2020#       发表于 2021-12-17 20:25
+
+伦敦这增长<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/18d46b0302d9cabeff6ce3f4b2e19d8c/IMG_CMP_219388077.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  Alexmacau8  
+##### 2021#       发表于 2021-12-17 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53978880&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-17 20:25</a>
+伦敦这增长</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">埃米克隆不过周末呀
+

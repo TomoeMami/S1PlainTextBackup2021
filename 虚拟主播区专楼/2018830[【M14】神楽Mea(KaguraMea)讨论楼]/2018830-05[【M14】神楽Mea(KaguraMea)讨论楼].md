@@ -6512,3 +6512,12 @@ top idol 禁断的asmr R18G<img src="https://static.saraba1st.com/image/smiley/f
 之前不是有过统计么，个位数貌似</blockquote>
 她自己提到我印象里相当久之前了吧，好像还19年时候。现在是个什么比例还是挺好奇的
 
+
+
+*****
+
+####  雪风utopia  
+##### 6755#       发表于 2021-12-17 20:38
+
+我记得今年提过，7％好像
+
