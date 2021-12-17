@@ -4738,3 +4738,25 @@ no more 职业哥 please.<img src="https://static.saraba1st.com/image/smiley/fac
 
 看看en男人再看唯阿157，得亏157搞海外联动的可能目前看来基本没有，不然光是立绘摆在一起都是公开处刑
 
+
+
+*****
+
+####  qq845629713  
+##### 9396#       发表于 2021-12-17 10:05
+
+这立绘一点都不适合欧米白皮猪当中之人吧，所以本质还是彩虹CN淘汰的男人再就业？
+
+*****
+
+####  free  
+##### 9397#       发表于 2021-12-17 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53939145&amp;ptid=1972669" target="_blank">free 发表于 2021-12-14 23:43</a>
+
+riot新人，皇美绪奈，目前还没建频道，今天可可亚的直播中预告出道</blockquote>
+出道就有原创曲
+
+[https://twitter.com/miona_s_RIOT](https://twitter.com/miona_s_RIOT)
+[https://www.youtube.com/channel/UCoAL7HK**PGuA1G4bdfHTQ/videos](https://www.youtube.com/channel/UCoAL7HK**PGuA1G4bdfHTQ/videos)
+
