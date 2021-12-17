@@ -6323,3 +6323,12 @@ Denmark's prime minister says theaters, cinemas, concert halls, amusement parks,
 丹麦日增住院数量
 <img src="https://p.sda1.dev/3/2d0600fdcb7cb3a94eea997eb0e0c557/20211218_005426.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2029#       发表于 2021-12-18 01:29
+
+天空新闻：omicron比较轻微 彭博社：目前没有证据表明omicron比delta轻
+
