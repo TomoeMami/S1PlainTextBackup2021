@@ -749,3 +749,28 @@ steam上不直接用重制版还是用的老版外传吗？</blockquote>
 
 这不dei得罪一半人<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zaku02  
+##### 71#       发表于 2021-12-17 17:18
+
+我都忘了还有这个游戏，steam圣诞节折扣补一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  角龙大剑  
+##### 72#       发表于 2021-12-17 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">某论坛有人求推荐火纹，提一嘴776就被围攻，恨意真的大
+
+*****
+
+####  MikawaFumika  
+##### 73#       发表于 2021-12-17 17:22
+
+<blockquote>louge19891020 发表于 2021-12-17 15:42
+他至少不做火纹15年了吧？火纹离开他也越活越好（咋还没新作新闻）也不知道恨为啥还能延续 ...</blockquote>
+就看这帖子的第一页，谁恨谁还不明显么，火纹粉大多数还能正常祝福他好好搞自己的游戏，对面的那群人巴不得火纹去死
+

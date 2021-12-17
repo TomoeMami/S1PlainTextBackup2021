@@ -6175,3 +6175,15 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
 广州那个o记病例已经传染给同楼门邻居了
 
+
+
+*****
+
+####  毒品  
+##### 2017#       发表于 2021-12-17 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974807&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-17 15:27</a>
+
+那科兴是在误导公众咯？</blockquote>
+阳性率测出来就是那么多，只能说“报喜”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

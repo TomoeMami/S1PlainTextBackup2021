@@ -9950,3 +9950,22 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 艹，羁绊两倍的道具，早干嘛去了。而且太少了，来1k个再说
 
+
+
+*****
+
+####  qixinno2  
+##### 84911#       发表于 2021-12-17 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复刻妖兰池子 妖兰补二宝失败
+
+*****
+
+####  不垃圾屌丝  
+##### 84912#       发表于 2021-12-17 17:21
+
+才20个，还有期限……
+等等以后有新幕间再用吧，主线就不指望了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
