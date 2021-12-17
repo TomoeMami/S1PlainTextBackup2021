@@ -5052,3 +5052,24 @@ syl 「にじさんじ」所属VTuber「売名スパチャ」煽る発言で騒�
 [https://twitter.com/RindouMikoto/status/1471827518114209794](https://twitter.com/RindouMikoto/status/1471827518114209794)
 <img src="https://p.sda1.dev/3/8087d01e9a0a0d98924bdad9b609097b/IMG_CMP_26630438.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星街こうせい  
+##### 9424#       发表于 2021-12-17 22:43
+
+管人无关但是我也不知道发在哪儿：
+
+milet, Aimer, Lilas Ikuta - Omokage (produced by Vaundy) / THE FIRST TAKE
+[https://www.youtube.com/watch?v=Z2Z9V-4DMGw](https://www.youtube.com/watch?v=Z2Z9V-4DMGw)
+
+索尼这是准备把几个新的diva捏一块儿推吗？
+
+*****
+
+####  マドマコ  
+##### 9425#       发表于 2021-12-17 22:57
+
+出道十年的罩阿姨还算新diva吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
