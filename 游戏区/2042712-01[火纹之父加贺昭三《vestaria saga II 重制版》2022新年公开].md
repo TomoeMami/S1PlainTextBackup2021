@@ -710,3 +710,42 @@ steam上不直接用重制版还是用的老版外传吗？
 他至少不做火纹15年了吧？火纹离开他也越活越好（咋还没新作新闻）也不知道恨为啥还能延续 ...</blockquote>
 反了反了，是加贺信者对火纹的恨意绵绵无绝期才对。贴吧隔三差五就要跳出来没有加贺的火纹已死(现在看起来可能是没有加贺战棋都已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  远阪士郎  
+##### 68#       发表于 2021-12-17 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974932&amp;ptid=2042712" target="_blank">霸王哆啦 发表于 2021-12-17 15:35:59</a>
+为什么火纹玩家这么讨厌加贺？还让他离远一点？</blockquote>不是有些粉丝或者拿来当枪使的人太跳的话，很多新入坑的火纹玩家不一定知道加贺这个人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兲蛋高达  
+##### 69#       发表于 2021-12-17 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53975219&amp;ptid=2042712" target="_blank">shlyy123 发表于 2021-12-17 15:57</a>
+
+steam上不直接用重制版还是用的老版外传吗？</blockquote>
+还在和日本的发行商确认，等有确切消息了，会公开的
+
+*****
+
+####  llysander  
+##### 70#       发表于 2021-12-17 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53965491&amp;ptid=2042712" target="_blank">蓮華 发表于 2021-12-16 22:04</a>
+
+别了吧，火纹好不容易变成300W级别的游戏了。
+
+他老人家该搞什么搞什么，离火纹远点就行 ...</blockquote>
+吹归吹 ，僵硬的地方也很明显
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+别说三房那样同性都结婚了，连一点苗头的烈火林/弗洛飞马支援这种卖糖文字，加贺以前的现在的都是门儿都没。
+
+这不dei得罪一半人<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

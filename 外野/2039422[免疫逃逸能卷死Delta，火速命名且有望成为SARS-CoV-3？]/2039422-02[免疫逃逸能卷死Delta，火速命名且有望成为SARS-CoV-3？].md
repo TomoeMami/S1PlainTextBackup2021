@@ -6146,3 +6146,32 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
 而科兴在“报喜”的时候没有说滴度
 
+
+
+*****
+
+####  riczxc  
+##### 2014#         楼主| 发表于 2021-12-17 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974560&amp;ptid=2039422" target="_blank">秀光 发表于 2021-12-17 15:10</a>
+死了不算在新冠死亡里就行了，比如河山硕这种，敲钟都跟丫无关</blockquote>
+超额死亡藏不住的。但也和新冠死亡在一个数量级。
+
+我觉得已经不算少了。
+
+*****
+
+####  惊奇记事簿  
+##### 2015#       发表于 2021-12-17 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974560&amp;ptid=2039422" target="_blank">秀光 发表于 2021-12-17 15:10</a>
+死了不算在新冠死亡里就行了，比如河山硕这种，敲钟都跟丫无关</blockquote>
+美国去年全年死了多少人
+
+*****
+
+####  lvcha  
+##### 2016#       发表于 2021-12-17 16:55
+
+广州那个o记病例已经传染给同楼门邻居了
+

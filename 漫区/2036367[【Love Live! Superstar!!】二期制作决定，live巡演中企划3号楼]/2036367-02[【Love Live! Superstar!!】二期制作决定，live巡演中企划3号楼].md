@@ -6079,3 +6079,19 @@ sunnypa的妹妹
 
 青山这亮瞎眼的现充闪光<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A0171050  
+##### 2049#       发表于 2021-12-17 16:43
+
+5点开始连线上live都没法看，不知道为啥安排这个时间。。
+
+*****
+
+####  努斯万克  
+##### 2050#       发表于 2021-12-17 16:57
+
+有没有腾讯会议的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
