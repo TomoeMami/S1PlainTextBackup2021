@@ -10083,3 +10083,16 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 算了，先等等吧，看看明天是啥，该准备福袋了，但是**谷歌锁区氪不了，真要我找代充吗
 
+
+
+*****
+
+####  khxooo  
+##### 84925#       发表于 2021-12-17 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53976770&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-17 17:45</a>
+你见过哪个欧洲人一张礼装都不掉的
+
+----发送自 STAGE1 App for Android.</blockquote>
+我礼装换你妖兰换不换？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6203,3 +6203,15 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
  <blockquote>现在这个热搜在专业人士眼里就相当于，北大清华的中文系学生都惨遭拉去考黎曼几何，大家都没学过都不怎么会做，然后考完了清华校领导老老实实承认学生不会做，北大校领导不仅接受采访说“北大中文系黎曼几何考试交卷率94%”，还买热搜，热搜下边还控评，纷纷拉踩表示清华虽然理科强，数学水平也不过如此。</blockquote>
 
+
+
+*****
+
+####  apple222  
+##### 2019#       发表于 2021-12-17 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53966984&amp;ptid=2039422" target="_blank">Humpy 发表于 2021-12-17 00:27</a>
+
+单纯的中和抗体阳性率的数据没啥太大用，如果中和抗体滴度和有效率能升上去才能放心 ...</blockquote>
+关于这个，高福明确说了，他们有结果：两针灭活加一针重组蛋白就极大有效。
+
