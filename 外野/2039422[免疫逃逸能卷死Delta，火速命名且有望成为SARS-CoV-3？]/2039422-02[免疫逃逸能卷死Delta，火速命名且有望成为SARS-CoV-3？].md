@@ -6287,3 +6287,12 @@ Test positivity doubling in three days
 
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  克鲁特尼  
+##### 2026#       发表于 2021-12-17 23:57
+
+挪威那个都出官方报告了？
+
