@@ -10222,3 +10222,12 @@ Aaaaaaaaaaaaaaaaa!!!
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">单抽补宝成功，继续攒石等新年了
 
+
+
+*****
+
+####  rooarr  
+##### 84938#       发表于 2021-12-17 22:02
+
+这么多年了，新手活动领的b叔终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

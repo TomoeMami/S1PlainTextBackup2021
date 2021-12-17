@@ -6568,3 +6568,27 @@ AKB48都给龙珠动画唱过ED
 
 2021-12-17 20:42 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 2074#       发表于 2021-12-17 22:01
+
+ 「LoveLive！Superstar!! Liella! First LoveLive! Tour ～Starlines～」in千叶day1
+
+居然已经是第八个城市了…！！！
+
+努力冲鸭！！！！
+
+一单打歌服↓ 
+
+DB54A4FC-CF51-4705-B591-9EFBA601D44C.jpeg
+(508.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202112/17/220117wymba66ueg1yumm3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
