@@ -6187,3 +6187,19 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 那科兴是在误导公众咯？</blockquote>
 阳性率测出来就是那么多，只能说“报喜”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  riczxc  
+##### 2018#         楼主| 发表于 2021-12-17 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974807&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-17 15:27</a>
+
+那科兴是在误导公众咯？</blockquote>
+
+这个回答就说得很好笑
+[https://www.zhihu.com/question/506244284/answer/2273200316](https://www.zhihu.com/question/506244284/answer/2273200316)
+
+ <blockquote>现在这个热搜在专业人士眼里就相当于，北大清华的中文系学生都惨遭拉去考黎曼几何，大家都没学过都不怎么会做，然后考完了清华校领导老老实实承认学生不会做，北大校领导不仅接受采访说“北大中文系黎曼几何考试交卷率94%”，还买热搜，热搜下边还控评，纷纷拉踩表示清华虽然理科强，数学水平也不过如此。</blockquote>
+
