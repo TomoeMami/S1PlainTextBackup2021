@@ -6235,3 +6235,16 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 伦敦这增长</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">埃米克隆不过周末呀
 
+
+
+*****
+
+####  lazyboy  
+##### 2022#       发表于 2021-12-17 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53979001&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-17 20:32</a>
+埃米克隆不过周末呀</blockquote>
+也过，你看中间斜率还缓了一下<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
