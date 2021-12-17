@@ -9670,3 +9670,21 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 我觉得和之国篇角色就大和 king 恐龙妹子有些意思记忆点也还不错，如果大和没有一天到晚御田就好了 ...</blockquote>
 其实我觉得看到现在应该可以断言这个没顶上之战精彩了吧
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56258#       发表于 2021-12-17 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53969973&amp;ptid=98922" target="_blank">武男 发表于 2021-12-17 10:34</a>
+
+其实我觉得看到现在应该可以断言这个没顶上之战精彩了吧</blockquote>
+怎么跟顶上比，顶上连载期间是海贼最火的时候，现在很难超越了
+
+当时高人气的顶级高手、铺垫过的大佬全部登场团战火拼，每一话都是爆点
+
+虽然我觉得尾田就是顶上尝到甜头
+
+才会使两年后的战斗场景里一直切来切去看不到一场完整的战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

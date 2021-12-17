@@ -1300,3 +1300,12 @@ ps4版半年前就出了，switch版还没出呢。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是“可能世界”这种词都出来了啊
 
+
+
+*****
+
+####  Mchaos  
+##### 129#       发表于 2021-12-17 11:21
+
+说中文那个是不看人家发的啥吗，中文整个只占16%<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

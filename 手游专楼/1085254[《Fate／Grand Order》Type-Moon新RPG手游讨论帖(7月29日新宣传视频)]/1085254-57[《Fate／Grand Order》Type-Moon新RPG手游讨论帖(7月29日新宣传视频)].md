@@ -9775,3 +9775,24 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">13池赶在关活动前一小时掉了第一张礼装刚好满破
 
+
+
+*****
+
+####  exiaexa  
+##### 84893#       发表于 2021-12-17 11:16
+
+草，你们都是秃子吗
+
+我才干了30池就跑路了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 84894#       发表于 2021-12-17 11:18
+
+那个兽尼禄头像怎么回事，街机数据都能解析了？
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
