@@ -6296,3 +6296,15 @@ Test positivity doubling in three days
 
 挪威那个都出官方报告了？
 
+
+
+*****
+
+####  钦念以忱  
+##### 2027#       发表于 2021-12-18 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974537&amp;ptid=2039422" target="_blank">东窗下的鸟 发表于 2021-12-17 15:09</a>
+
+想不通老美这感染量，死亡率怎么那么低。要说低人权优势不去医院挤兑，可不去医院不就得不到救治，和医疗 ...</blockquote>
+因为武汉死亡率没有8%，武汉疫情最严重的时候，检测能力是彻底失灵的，事后查抗体不是发现实际上有几十万病人么，哪怕按照西方的检测力度，也会测到更多的病人。
+
