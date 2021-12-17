@@ -6400,3 +6400,55 @@ F5BE1731-395A-42BA-B085-ACB64EF5A08B.jpeg
 
 但拉拉不管是烂铁还是日升都是万代的，万代下面的动画IP更多啊...
 
+
+
+*****
+
+####  中野四葉  
+##### 2063#       发表于 2021-12-17 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">给谁唱，境界战机吗？
+
+*****
+
+####  cat1230  
+##### 2064#       发表于 2021-12-17 19:27
+
+<blockquote>引用第2062楼中野四葉于2021-12-17 19:25发表的  :
+
+给谁唱，境界战机吗？</blockquote>
+@中野四葉
+
+高达啊，顺便客串几个一集便当的机试<img src="https://static.saraba1st.com/image/smiley/bundam2017/007.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 2065#       发表于 2021-12-17 19:28
+
+烂铁自己还有歌手要养 高达里的歌也是请的一水的专业歌手乐队 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">LL这企划最多联动一下别的IP罢了
+
+*****
+
+####  lj205  
+##### 2066#       发表于 2021-12-17 19:32
+
+鲤鱼这工商可以啊
+
+*****
+
+####  zylwz  
+##### 2067#       发表于 2021-12-17 19:35
+
+缪斯当年是给一个游戏唱过歌的 而且还是以角色身份配的音（有点管人的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/17/193445v66jc36egsseazmb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211217193435.png</strong> (26.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 19:34 上传
+
