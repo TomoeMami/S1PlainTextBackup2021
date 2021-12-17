@@ -1383,3 +1383,14 @@ ps4版半年前就出了，switch版还没出呢。
 
 哦我懂了，是说语言同步的情况下说全球总销量会增加
 
+
+
+*****
+
+####  旧梦囚心  
+##### 137#       发表于 2021-12-17 14:05
+
+不是说明年伊苏35周年，有伊苏10的动作嘛，居然还是轨迹，共和国篇能几部完结<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G9700, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
