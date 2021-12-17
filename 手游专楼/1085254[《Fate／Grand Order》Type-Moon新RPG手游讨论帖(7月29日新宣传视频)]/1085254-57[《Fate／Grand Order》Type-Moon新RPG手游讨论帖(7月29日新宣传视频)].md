@@ -10096,3 +10096,12 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 ----发送自 STAGE1 App for Android.</blockquote>
 我礼装换你妖兰换不换？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 84926#       发表于 2021-12-17 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">泥潭最惨还是我这个纯正非洲人.....刚第3次沉完CBA.....对着妖兰池子只能留口水....连参与的资格都没有
+

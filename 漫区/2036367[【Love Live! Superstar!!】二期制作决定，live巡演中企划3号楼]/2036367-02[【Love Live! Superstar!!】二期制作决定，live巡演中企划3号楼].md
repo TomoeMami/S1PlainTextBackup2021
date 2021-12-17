@@ -6357,3 +6357,46 @@ D8163277-CDED-4549-A1EC-776B05BD0F1F.jpeg
 
 乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2061#       发表于 2021-12-17 19:18
+
+ 本帖最后由 仟音一心 于 2021-12-17 19:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53977482&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-17 18:42</a></blockquote>
+
+混乱了
+
+4C4AFA75-7110-4DEC-BA85-A1D16F6ACF16.jpeg
+(240.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 19:18 上传
+
+<img src="https://img.saraba1st.com/forum/202112/17/191803n6pyvw2o6zq6vvop.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F5BE1731-395A-42BA-B085-ACB64EF5A08B.jpeg
+(21 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202112/17/192022tqnztrvb4144b87l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 2062#       发表于 2021-12-17 19:19
+
+话说拉拉从来没有以团队名义给其他IP动画唱OPED什么的吗？不打算搞一下吗？ 
+
+就像《突击莉莉》的OP是《邦邦》的RAISE A SUILEN唱的。  
+
+虽然两个IP都是武士道的，所以这么搞很容易...
+
+但拉拉不管是烂铁还是日升都是万代的，万代下面的动画IP更多啊...
+

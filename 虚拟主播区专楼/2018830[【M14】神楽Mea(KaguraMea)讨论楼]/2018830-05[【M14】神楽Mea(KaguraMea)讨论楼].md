@@ -6484,3 +6484,12 @@ top idol 禁断的asmr R18G<img src="https://static.saraba1st.com/image/smiley/f
 
 那么，你麻的女粉占比有多少呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rosevalley46  
+##### 6752#       发表于 2021-12-17 19:11
+
+之前不是有过统计么，个位数貌似
+
