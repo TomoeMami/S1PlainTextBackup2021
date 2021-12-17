@@ -1394,3 +1394,16 @@ ps4版半年前就出了，switch版还没出呢。
 
 — from samsung SM-G9700, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  hkguty  
+##### 138#       发表于 2021-12-17 14:41
+
+<blockquote>yuikonnu 发表于 2021-12-17 11:51
+如果是这样的宿敌那还是算了
+
+—— 来自 Sony XQ-AT52, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+先等正式pv出来看看人到底是不是他杀的，是他杀的话，似乎很难洗，可能就是纯反派，如果不是的话再看，法老控应该从克洛那里吸取教训，不要再尝试洗一个杀人犯
+

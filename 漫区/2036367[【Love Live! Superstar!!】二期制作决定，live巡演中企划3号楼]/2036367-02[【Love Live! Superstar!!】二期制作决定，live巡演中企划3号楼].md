@@ -6052,3 +6052,21 @@ sunnypa的妹妹
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可香党铁粉お星さん貌似终于中一次现场了，为他高兴
 
+
+
+*****
+
+####  D麦林  
+##### 2047#       发表于 2021-12-17 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53968312&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-17 08:06</a>
+
+这个不是抄袭狗么，终于蹭热度蹭到这了？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
+也不能说蹭吧 他无印时代就画了很多LL的同人了 就是FL后进入水水时代就淡了
+
+至于现在嘛……我就不评价了
+
+我是不太能理解他整了这么一出事以后外网人气还是那么高就是了
+
