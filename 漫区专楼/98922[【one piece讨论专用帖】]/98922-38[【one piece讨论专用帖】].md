@@ -9640,3 +9640,14 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 把九侠的戏份挪给索山二人组不好吗，我都好久没听山治报菜名了结果就那么点……谁要看御田和九侠啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  サクラ  
+##### 56255#       发表于 2021-12-17 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+那么和之国的剧情为什么这么长呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

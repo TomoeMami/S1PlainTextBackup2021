@@ -9766,3 +9766,12 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">150池掉10张。想再掉一张再凑个满破
 
+
+
+*****
+
+####  sin.yugi  
+##### 84892#       发表于 2021-12-17 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">13池赶在关活动前一小时掉了第一张礼装刚好满破
+
