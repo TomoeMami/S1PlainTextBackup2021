@@ -4445,3 +4445,28 @@ https://space.bilibili.com/672342685/
 
 2021-12-16 22:22 上传
 
+
+
+*****
+
+####  sanlow666  
+##### 335#         楼主| 发表于 2021-12-17 18:03
+
+乃琳Queen:[❤ 讲理小乃琳 ❤【直播剪辑】](https://t.bilibili.com/605147435877365388)
+
+（运营代发）
+
+节选自12月1日乃琳单播
+出镜：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202112/17/180319g5se25mpsv15a1sl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-17 18:03 上传
+
