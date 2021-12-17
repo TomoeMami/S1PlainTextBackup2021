@@ -351,3 +351,31 @@
 看到点赞了</blockquote>
 他应该挺早就看了，还在直播里说过
 
+
+
+*****
+
+####  ba娜娜  
+##### 4539#       发表于 2021-12-17 08:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">文静前几天杂谈里，弹幕刷的那个文静代餐叫啥名字啊，我记得四个字，听过之后给忘了
+
+*****
+
+####  GAKOTO  
+##### 4540#         楼主| 发表于 2021-12-17 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53968333&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2021-12-17 08:09</a>
+文静前几天杂谈里，弹幕刷的那个文静代餐叫啥名字啊，我记得四个字，听过之后给忘了 ...</blockquote>
+安蒂维娜-克莱因？
+
+*****
+
+####  ba娜娜  
+##### 4541#       发表于 2021-12-17 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53968350&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-12-17 08:12</a>
+
+安蒂维娜-克莱因？</blockquote>
+好像不是克莱因，我去翻翻录播吧
+

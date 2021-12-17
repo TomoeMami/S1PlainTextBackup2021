@@ -6030,3 +6030,16 @@ sunnypa的妹妹
 
 就是发一下日常而已
 
+
+
+*****
+
+####  ads147147  
+##### 2045#       发表于 2021-12-17 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53965942&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-16 22:45</a>
+某大车本专业户</blockquote>
+这个不是抄袭狗么，终于蹭热度蹭到这了？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

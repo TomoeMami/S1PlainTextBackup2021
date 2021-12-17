@@ -9750,3 +9750,19 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 你对咸鱼有点误解</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可是萌新礼装满破了啊!
 
+
+
+*****
+
+####  khxooo  
+##### 84890#       发表于 2021-12-17 08:14
+
+掉礼装了，又有什么用呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 84891#       发表于 2021-12-17 08:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">150池掉10张。想再掉一张再凑个满破
+
