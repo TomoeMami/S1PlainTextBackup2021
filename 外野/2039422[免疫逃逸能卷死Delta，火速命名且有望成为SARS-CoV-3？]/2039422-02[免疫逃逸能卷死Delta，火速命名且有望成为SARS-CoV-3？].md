@@ -6047,3 +6047,59 @@ If Omicron isn’t as mild as has been advertised, I expect that some people wil
 
 新冠也一样，看似死亡率低，真到了没病床的时候就未必了
 
+
+
+*****
+
+####  卡普空  
+##### 2006#       发表于 2021-12-17 15:01
+
+ 本帖最后由 卡普空 于 2021-12-17 15:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974187&amp;ptid=2039422" target="_blank">秀光 发表于 2021-12-17 14:49</a>
+
+0.5%是及时治疗的数据吧，缺医少药时霍乱死亡率记得是百分之几十……
+
+新冠也一样，看似死亡率低，真到了 ...</blockquote>
+美国现在死亡率大概是1.6%，武汉当时医疗崩了以后死亡率是8%
+
+*****
+
+####  东窗下的鸟  
+##### 2007#       发表于 2021-12-17 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974391&amp;ptid=2039422" target="_blank">卡普空 发表于 2021-12-17 15:01</a>
+
+美国现在死亡率大概是1.6%，武汉当时医疗崩了以后死亡率是8%</blockquote>
+想不通老美这感染量，死亡率怎么那么低。要说低人权优势不去医院挤兑，可不去医院不就得不到救治，和医疗崩了有多大区别
+
+*****
+
+####  秀光  
+##### 2008#       发表于 2021-12-17 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974537&amp;ptid=2039422" target="_blank">东窗下的鸟 发表于 2021-12-17 15:09</a>
+
+想不通老美这感染量，死亡率怎么那么低。要说低人权优势不去医院挤兑，可不去医院不就得不到救治，和医疗 ...</blockquote>
+死了不算在新冠死亡里就行了，比如河山硕这种，敲钟都跟丫无关
+
+*****
+
+####  令和忍者  
+##### 2009#       发表于 2021-12-17 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53973308&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-17 13:58</a>
+
+前面都说了，一个病毒危险性并不完全看病死率和重症率，致死率只有0.5%的霍乱是我国唯二的甲级传染病
+
+想想 ...</blockquote>
+霍乱没有治疗病死率可是超过50%的。
+
+*****
+
+####  yweili  
+##### 2010#       发表于 2021-12-17 15:22
+
+[https://www.zhihu.com/pin/1455193032664092672](https://www.zhihu.com/pin/1455193032664092672)
+
+伦敦，截止12月12日，Omicron入院率已明显反超Delta
+

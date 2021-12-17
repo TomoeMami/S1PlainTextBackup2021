@@ -9893,3 +9893,29 @@ Marvelous之前说过了Extella和link两作不出主题联动了，只送礼装
 —— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
 这个还没实锤，要是实锤了......算了没有最糟只有更糟
 
+
+
+*****
+
+####  qixinno2  
+##### 84905#       发表于 2021-12-17 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53974385&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-17 15:01</a>
+
+你也对咸鱼有误解？  14池的路过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无限池不是百池以下皆是咸鱼么
+
+*****
+
+####  cckuku  
+##### 84906#       发表于 2021-12-17 15:17
+
+这个兽尼禄看着就像wada画的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 84907#       发表于 2021-12-17 15:21
+
+那既然手游的兽在街机落地，你街机的兽在手游落地也很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

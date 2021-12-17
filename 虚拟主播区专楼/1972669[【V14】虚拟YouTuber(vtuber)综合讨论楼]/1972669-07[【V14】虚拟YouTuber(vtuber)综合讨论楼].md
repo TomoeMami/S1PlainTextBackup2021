@@ -4870,3 +4870,12 @@ He's been hinting at something for a while now and mouse probably did help him g
 
 For fun, here's a Connor clip about who his favorite v-tuber is.[https://www.youtube.com/channel/UCkGf4_t0tCIDgOg-jVF8P9A](https://www.youtube.com/channel/UCkGf4_t0tCIDgOg-jVF8P9A)</blockquote>如果真的是（我觉得可能性不大），结合他之前提到的加入holo=Willy Wonka golden ticket来看还挺有意思的
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9408#       发表于 2021-12-17 15:18
+
+期望加入holo而不得只能加入虹也算很有历史的一件事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
