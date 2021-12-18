@@ -6502,3 +6502,58 @@ England considering two-week "circuit breaker" lockdown to slow the spread of co
 这个算是最近看的最好消息了。虽然丹麦的数据貌似不好看。还是要看看英国的住院率是不是很高。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种想当然的结论不知道是哪个狗头教授提的，说好的mild呢？ 这么高的病毒载量，又是全身性靶点，哪怕肺顶住了，longCovid有得受了
 
+
+
+*****
+
+####  Lord_Voldemort  
+##### 2045#       发表于 2021-12-18 12:09
+
+张文宏也不是病毒进化方面的专家（这块也没有专家敢下结论吧），咋就最后一个疫情寒冬了，真以为越进化毒力越弱<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最好不说  
+##### 2046#       发表于 2021-12-18 12:16
+
+<blockquote>钞君 发表于 2021-12-18 07:49
+那会不会以后新冠就从肺炎变成支气管炎？</blockquote>
+不会，肺部复制速度慢不等于不攻击肺部细胞，也不等于毒力下降，delta在肺部的复制速度就比原始株低很多，但照样把三哥杀到尸横遍野
+
+*****
+
+####  smy20011  
+##### 2047#       发表于 2021-12-18 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53984303&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-18 10:19</a>
+
+这就是说不会发展成肺炎了？如果不能引起纤维化的话，那的确是好事。
+
+—— 来自 HUAWEI JEF-AN00, Andro ...</blockquote>
+感觉会往上呼吸道发展，很简单的道理，得肺炎患者就直接在加躺平了，上呼吸道感染说不定会打喷嚏传染给别人。
+
+*****
+
+####  smy20011  
+##### 2048#       发表于 2021-12-18 12:24
+
+关于是否更严重这个问题，看月底英国的数据就好了
+
+*****
+
+####  RJG丶one  
+##### 2049#       发表于 2021-12-18 12:24
+
+<blockquote>pushare 发表于 2021-12-18 10:22
+不浪了？
+
+</blockquote>
+lockdown就lockdown，还专门起个代号暗示说“跳闸”，成天想着合闸，可不活该被新冠爆操
+
+*****
+
+####  smy20011  
+##### 2050#       发表于 2021-12-18 12:27
+
+有种说法是，Omicron对有免疫（疫苗，感染）的人症状更轻，而什么都没有的依然还是很严厉
+
