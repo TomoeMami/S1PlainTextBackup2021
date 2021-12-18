@@ -10402,3 +10402,41 @@ Aaaaaaaaaaaaaaaaa!!!
 这120设计的就很傻逼 想喂120你还不TMD氪爆抽高宝 刷爆狗粮喂爆</blockquote>
 这就是这样拉开氪老和无氪的距离吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 84957#       发表于 2021-12-18 16:24
+
+我只把莉莉丝拉到了101.5，太费经验了…
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  壳壳牛  
+##### 84958#       发表于 2021-12-18 16:28
+
+最蛋疼的是5星满宝15绊的硬币也不够...
+要想120就只能少点一个技能...
+
+*****
+
+####  黑上シグマ  
+##### 84959#       发表于 2021-12-18 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987976&amp;ptid=1085254" target="_blank">壳壳牛 发表于 2021-12-18 16:28</a>
+
+最蛋疼的是5星满宝15绊的硬币也不够...
+
+要想120就只能少点一个技能...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以油管课佬现在都是准备抽6宝的
+
+*****
+
+####  angelooo  
+##### 84960#       发表于 2021-12-18 16:36
+
+吹水到5点能不能完啊喂，要准备晚饭去了
+

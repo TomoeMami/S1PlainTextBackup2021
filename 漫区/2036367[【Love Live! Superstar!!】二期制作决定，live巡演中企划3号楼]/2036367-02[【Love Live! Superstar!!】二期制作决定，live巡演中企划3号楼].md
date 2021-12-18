@@ -6760,3 +6760,26 @@ Liyuu：『终于到了（ようやく）后半场了。』</blockquote>
 没看live，今天sayu状态那么差吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 唉，希望她别太自责并能够成长吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 2088#       发表于 2021-12-18 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987818&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-18 16:15</a>
+
+没看live，今天sayu状态那么差吗
+
+唉，希望她别太自责并能够成长吧 ...</blockquote>
+打铁今天状态确实有点...小星星往前几首吧，有人说是几句没唱，我没注意到，目前为止反正交响乐都撑住了，安可的几首我觉得问题应该不大...
+
+*****
+
+####  lj205  
+##### 2089#       发表于 2021-12-18 16:37
+
+123有几句没唱，我眼见就有一句，嘴巴直接闭着
+
+不过感觉她们今天都各有状态，猜是不是开始春晚、加场或者是2nd的排练了
+

@@ -5145,3 +5145,15 @@ pomu也搞vrchat了，看起来效果很好</blockquote>
 
 2021-12-18 16:19 上传
 
+
+
+*****
+
+####  OldGlory  
+##### 9431#       发表于 2021-12-18 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987856&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-18 16:18</a>
+
+等等……这个模型是她自己捏的还是……</blockquote>
+粉丝做的
+
