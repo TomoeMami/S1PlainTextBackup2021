@@ -11096,3 +11096,33 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 话说经常看nga感受就是你樱井真特么你月唯一劳模啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">2.2，2.52，2.55是樱井写的，2.65又说是樱井写，新圣诞是樱井写，特么街机也说是樱井写的，什么草木皆兵
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 85033#       发表于 2021-12-18 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989528&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-18 18:22</a>
+
+话说经常看nga感受就是你樱井真特么你月唯一劳模啊2.2，2.52，2.55是樱井写的，2.65又说是樱井写， ...</blockquote>
+是啊，导致我脑子里月球就两写手，不是樱井就是菌类，偶尔来个东出，剩下的都是摸鱼怪
+
+*****
+
+####  الطائر  
+##### 85034#       发表于 2021-12-18 18:27
+
+记得平安京小玉出场（藤原尊子）的伏笔吗？搞不好晴明已经配给小玉了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 85035#       发表于 2021-12-18 18:34
+
+忽然有个想法
+
+这章凑的是光杀狐和姜太公的CP，真正爱你爱到恨不得把你宰一万遍的暗杀狐二期卡池堂堂登场
+
+苹果榜必登顶嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
