@@ -11530,3 +11530,18 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 啊啊啊~这实在是太玛丽苏幻想了。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 85076#       发表于 2021-12-19 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53995383&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-19 00:49</a>
+狐狸早年跟太公cp，跑路后再跟睛明组cp，跟白野君又ml。
+
+啊啊啊~这实在是太玛丽苏幻想了。
+
+ ...</blockquote>
+还有印度那个呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
