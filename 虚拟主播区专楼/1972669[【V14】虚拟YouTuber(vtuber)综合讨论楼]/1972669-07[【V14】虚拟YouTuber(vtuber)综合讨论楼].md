@@ -5101,3 +5101,20 @@ milet, Aimer, Lilas Ikuta - Omokage (produced by Vaundy) / THE FIRST TAKE
 
 这不是s1出口转内销吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 9428#       发表于 2021-12-18 13:40
+
+pomu也搞vrchat了，看起来效果很好
+
+<img src="https://img.saraba1st.com/forum/202112/18/133913gcl1cs5o1g0obc0f.jpg" referrerpolicy="no-referrer">
+
+<strong>FG3JkzoXsAEAfwi.jpg</strong> (231.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 13:39 上传
+
