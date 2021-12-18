@@ -6479,3 +6479,26 @@ TGFC某些反人类ID正在庆祝出了个天然疫苗是什么情况？</blockq
 
 England considering two-week "circuit breaker" lockdown to slow the spread of coronavirus, according to The Times
 
+
+
+*****
+
+####  riczxc  
+##### 2043#         楼主| 发表于 2021-12-18 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53984303&amp;ptid=2039422" target="_blank">nanrendu 发表于 2021-12-18 10:19</a>
+
+这就是说不会发展成肺炎了？如果不能引起纤维化的话，那的确是好事。
+
+—— 来自 HUAWEI JEF-AN00, Andro ...</blockquote>
+这个算是最近看的最好消息了。虽然丹麦的数据貌似不好看。还是要看看英国的住院率是不是很高。
+
+*****
+
+####  Alexmacau8  
+##### 2044#       发表于 2021-12-18 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53985318&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-18 11:57</a>
+这个算是最近看的最好消息了。虽然丹麦的数据貌似不好看。还是要看看英国的住院率是不是很高。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种想当然的结论不知道是哪个狗头教授提的，说好的mild呢？ 这么高的病毒载量，又是全身性靶点，哪怕肺顶住了，longCovid有得受了
+
