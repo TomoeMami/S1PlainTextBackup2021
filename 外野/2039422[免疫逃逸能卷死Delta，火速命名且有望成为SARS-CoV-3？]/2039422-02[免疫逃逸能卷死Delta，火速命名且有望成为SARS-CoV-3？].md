@@ -6759,3 +6759,24 @@ Vice President Kamala Harris said Friday that the administration failed to antic
 非洲大地估计都是了~</blockquote>
 omicron上个月就传遍全非洲了，不过对我国防控压力影响更大的还是欧美，按omicron在带英这个倍增速度明年一月初就可以感染全英，念了一年多的群体免疫还不知道有没有实现的那一天，全体感染已经在路上了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2070#       发表于 2021-12-18 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">埃米克隆最惨的情况是和德尔塔双株同时大流行，目前的数据是支持的。
+
+
+
+*****
+
+####  寿_ashe  
+##### 2071#       发表于 2021-12-18 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53985454&amp;ptid=2039422" target="_blank">Lord_Voldemort 发表于 2021-12-18 12:09</a>
+
+张文宏也不是病毒进化方面的专家（这块也没有专家敢下结论吧），咋就最后一个疫情寒冬了，真以为越进化毒力 ...</blockquote>
+岂止啊，张文宏也不是历史学家，也不是经济学家也不是防疫专家和营养学家，但这并不妨碍他放屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

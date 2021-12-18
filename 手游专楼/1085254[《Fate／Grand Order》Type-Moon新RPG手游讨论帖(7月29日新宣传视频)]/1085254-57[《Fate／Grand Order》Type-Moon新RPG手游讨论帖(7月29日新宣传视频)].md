@@ -11406,3 +11406,45 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐狸九条尾巴九个箭头
 
+
+
+*****
+
+####  katun  
+##### 85064#       发表于 2021-12-18 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992971&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 21:54</a>
+
+眯眯眼不是被喷的根本原因，丑才是（不
+
+看pv月球四不像搞不好是那群长着羊角兔耳虎尾鸟腿的生物而不是麋 ...</blockquote>
+谁在喷啊，我看微博集美都转上5000多条了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，你游上次有这热度还是上次
+
+*****
+
+####  Jamaisvu  
+##### 85065#       发表于 2021-12-18 22:39
+
+话说下个池子又是四五星一个职业，妖兰池我看到两次金枪了，结果全是珀西瓦尔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然常驻不会投入太多，但还是劝叶良树善良一点...
+
+*****
+
+####  angelooo  
+##### 85066#       发表于 2021-12-18 22:40
+
+<blockquote>katun 发表于 2021-12-18 22:36
+谁在喷啊，我看微博集美都转上5000多条了，你游上次有这热度还是上次 ...</blockquote>
+我的意思是丑的眯眯眼才会被喷，而月球姜子牙和丑基本扯不上什么关系233
+
+*****
+
+####  Jamaisvu  
+##### 85067#       发表于 2021-12-18 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53993541&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-18 22:36</a>
+
+谁在喷啊，我看微博集美都转上5000多条了，你游上次有这热度还是上次 ...</blockquote>
+最近那个国产动画雄狮少年的人设有点问题，NGA影视区喷的非常厉害，导致我看到姜子牙这种帅哥都有点敏感了...
+
+不过和楼上老哥说的一样，眯眯眼不是问题，丑是原罪（PV里睁眼还是挺好看的）
+
