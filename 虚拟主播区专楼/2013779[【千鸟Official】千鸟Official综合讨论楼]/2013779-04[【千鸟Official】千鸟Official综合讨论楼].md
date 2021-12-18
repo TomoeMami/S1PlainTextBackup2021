@@ -723,3 +723,12 @@ S1没被视奸，也赢！<img src="https://static.saraba1st.com/image/smiley/fa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">正好把前两天白日茶水间补了
 
+
+
+*****
+
+####  有效击穿  
+##### 4576#       发表于 2021-12-18 10:19
+
+<img src="https://p.sda1.dev/3/f95f32ea86358aa5d8a385923461209c/-1cb13801bddb835d.jpg" referrerpolicy="no-referrer">
+

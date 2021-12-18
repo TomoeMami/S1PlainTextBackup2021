@@ -6437,3 +6437,45 @@ TGFC某些反人类ID正在庆祝出了个天然疫苗是什么情况？
 
 —— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  米村正二  
+##### 2039#       发表于 2021-12-18 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53983358&amp;ptid=2039422" target="_blank">kodachi 发表于 2021-12-18 07:39</a>
+TGFC某些反人类ID正在庆祝出了个天然疫苗是什么情况？</blockquote>
+只相信自己愿意相信的，抱着omi发现初期几个医生的暴言狂吹，完全无视omi可能血清分型和没有mild的迹象。
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  烦死了  
+##### 2040#       发表于 2021-12-18 10:14
+
+白皮黑皮开开心心过圣诞呢 谁管你这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nanrendu  
+##### 2041#       发表于 2021-12-18 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53983393&amp;ptid=2039422" target="_blank">钞君 发表于 2021-12-18 07:49</a>
+那会不会以后新冠就从肺炎变成支气管炎？</blockquote>
+这就是说不会发展成肺炎了？如果不能引起纤维化的话，那的确是好事。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  pushare  
+##### 2042#       发表于 2021-12-18 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不浪了？
+
+England considering two-week "circuit breaker" lockdown to slow the spread of coronavirus, according to The Times
+
