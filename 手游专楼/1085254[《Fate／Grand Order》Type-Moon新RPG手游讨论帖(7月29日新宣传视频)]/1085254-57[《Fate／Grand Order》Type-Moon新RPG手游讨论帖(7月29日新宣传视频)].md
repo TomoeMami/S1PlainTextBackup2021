@@ -11448,3 +11448,15 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 不过和楼上老哥说的一样，眯眯眼不是问题，丑是原罪（PV里睁眼还是挺好看的）
 
+
+
+*****
+
+####  卡蓮  
+##### 85068#       发表于 2021-12-18 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53993612&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-18 22:43</a>
+
+最近那个国产动画雄狮少年的人设有点问题，NGA影视区喷的非常厉害，导致我看到姜子牙这种帅哥都有点敏感 ...</blockquote>
+姜子牙这种眯眯眼是非常传统的眯眯眼睁眼才可怕的设定，和故意丑化的宽眼距、细眯眼、吊眼角完全不是一路
+
