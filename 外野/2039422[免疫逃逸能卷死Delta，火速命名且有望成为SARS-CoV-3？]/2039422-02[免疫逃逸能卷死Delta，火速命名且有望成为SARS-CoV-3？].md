@@ -6407,3 +6407,22 @@ TGFC某些反人类ID正在庆祝出了个天然疫苗是什么情况？
 1.Omicron在支气管的复制速度大概是Delta的70倍左右，而在肺部的复 ...</blockquote>
 那会不会以后新冠就从肺炎变成支气管炎？
 
+
+
+*****
+
+####  希远闹  
+##### 2036#       发表于 2021-12-18 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53983357&amp;ptid=2039422" target="_blank">有口皆悲 发表于 2021-12-18 07:38</a>
+
+张文宏最新预测，打完第三针就结束。别怕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我信了你个鬼。
+
+*****
+
+####  yario  
+##### 2037#       发表于 2021-12-18 08:42
+
+张文宏除了那次说的把病毒闷死的话算是准的，其他预测哪次不打脸？
+
