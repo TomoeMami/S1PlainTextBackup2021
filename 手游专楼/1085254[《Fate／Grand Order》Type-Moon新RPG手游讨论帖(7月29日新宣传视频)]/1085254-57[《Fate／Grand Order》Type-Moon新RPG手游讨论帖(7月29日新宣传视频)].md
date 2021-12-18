@@ -11517,3 +11517,16 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 因为小说里姜子牙的实战真的是超级废......</blockquote>
 姜太公上千年的武廟第一，奶一個筋力A，魔力A<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lokad  
+##### 85075#       发表于 2021-12-19 00:49
+
+ 本帖最后由 Lokad 于 2021-12-19 00:51 编辑 
+
+狐狸早年跟太公cp，跑路后再跟睛明组cp，跟白野君又ml。
+
+啊啊啊~这实在是太玛丽苏幻想了。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
