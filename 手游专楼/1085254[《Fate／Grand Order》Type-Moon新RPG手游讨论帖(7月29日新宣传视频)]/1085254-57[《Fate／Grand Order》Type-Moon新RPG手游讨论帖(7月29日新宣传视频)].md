@@ -11200,3 +11200,37 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 一发11连妖兰宝具+1，去斯卡蒂池又抽了11连出了红阎魔，带上前几天出的尼莫，难道这号 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">欧 羡慕 我怎么就遇不上这种事
 
+
+
+*****
+
+####  zakki  
+##### 85043#       发表于 2021-12-18 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53991114&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-18 20:10</a>
+反正一个常驻骑阶 看样子还是个攻击宝具 强度估计也就那样</blockquote>
+攻击宝具咋了，奥伯龙不就是攻击宝具
+
+*****
+
+####  angelooo  
+##### 85044#       发表于 2021-12-18 20:45
+
+<blockquote>霧谷藤乃 发表于 2021-12-18 20:07
+印象中杀掉的只有妲己…可能还有梅山六怪（袁洪得靠女娲社稷图）？
+
+其余像是对马元用但马元是火怪就没成
+
+</blockquote>
+哦忘了还有梅山七怪的猴子......因为普通的刀砍不死，用来杀苏妲己是因为正常人看着她根本下不了手，之前几个都是陆压杀的，这玩意说是飞刀但其实是个生物兵器，陆压的法宝都阴间得很
+
+*****
+
+####  qixinno2  
+##### 85045#       发表于 2021-12-18 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53991748&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-18 20:45</a>
+
+攻击宝具咋了，奥伯龙不就是攻击宝具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">重点是常驻啊
+
