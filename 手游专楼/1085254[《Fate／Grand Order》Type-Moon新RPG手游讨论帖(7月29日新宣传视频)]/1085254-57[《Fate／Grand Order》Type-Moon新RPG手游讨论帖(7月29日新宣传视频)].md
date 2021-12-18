@@ -11486,3 +11486,34 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 想捞四星妹子的，突然觉得不会被太公GANK吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85072#       发表于 2021-12-18 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53994124&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-18 23:21</a>
+
+想捞四星妹子的，突然觉得不会被太公GANK吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以你最近的欧气 我感觉已经没有什么好怕的了
+
+*****
+
+####  里村紅葉  
+##### 85073#       发表于 2021-12-18 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53994319&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-18 23:33</a>
+
+以你最近的欧气 我感觉已经没有什么好怕的了</blockquote>
+都是之前7单没水荚膜垫的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gary76  
+##### 85074#       发表于 2021-12-18 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989452&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 18:16</a>
+因为小说里姜子牙的实战真的是超级废......</blockquote>
+姜太公上千年的武廟第一，奶一個筋力A，魔力A<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
