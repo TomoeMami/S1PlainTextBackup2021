@@ -6791,3 +6791,12 @@ omicron上个月就传遍全非洲了，不过对我国防控压力影响更大�
 几个在大英和土澳读硕士博士的同学感染了，他们都说自己还有同学都症状轻微，但是以前几波都没有人感染，这 ...</blockquote>
 目前看来网上的（个例）来说是比较轻微，但是要考虑幸存者偏差，在icu的不会上网冲浪
 
+
+
+*****
+
+####  smy20011  
+##### 2073#       发表于 2021-12-19 00:35
+
+https://www.reddit.com/r/london/comments/ries4n/is_it_just_me_or_is_london_currently_riddled_with/?sort=top 伦敦感染者的讨论
+

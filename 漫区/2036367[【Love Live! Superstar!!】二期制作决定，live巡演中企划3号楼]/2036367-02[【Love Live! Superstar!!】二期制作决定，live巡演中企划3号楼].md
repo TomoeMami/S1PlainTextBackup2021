@@ -7359,3 +7359,22 @@ sanipa还好吧，1st过程中宣布加入的
 
 打铁这傻妞到底吃了运营多少鸡汤。。。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saglork  
+##### 2122#       发表于 2021-12-19 00:26
+
+【【Liella!】声优公布一周年纪念 推特 涨粉排行榜-哔哩哔哩】 https://b23.tv/G6ZRd8Y
+
+这个有点意思，liyuu语言问题确实在动画开播前生放送和广播预热阶段很吃亏，但其他阶段都自带海外buff十分强势，尤其是动画开播阶段吃可可福利赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+小百合和青山也是稳定高增，生放送能整活太占便宜，青山还是顶着恋的动画debuff，确实硬件太好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 2123#       发表于 2021-12-19 00:30
+
+马内甲的工作就是灌爱抖鸡汤，反正红就一阵儿，之后爱咋咋地……小偶像也知道话不能全信，但又信谁呢？
+
