@@ -11010,3 +11010,89 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 翻页
 
+
+
+*****
+
+####  wolegequaaa  
+##### 85024#       发表于 2021-12-18 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga现在整一个同人女论坛属实把我看笑了
+
+*****
+
+####  AbigailWilliams  
+##### 85025#       发表于 2021-12-18 18:06
+
+ 本帖最后由 AbigailWilliams 于 2021-12-18 18:08 编辑 
+
+为什么不叫小微博（豆瓣）呢？说实话二次元手游版都能变成这样，隔壁管理真的是牛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 85026#       发表于 2021-12-18 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">我再来奶一个不同的，闻仲当年和姜子牙一起灭狐的，为的就是灭了神代迎来人代，后面闻仲去日本成为安倍清明，通古斯之战回来跟姜子牙一起灭狐，最终战死。
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">闻仲我就奶一个saber阶吧！
+
+*****
+
+####  白金口袋  
+##### 85027#       发表于 2021-12-18 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989184&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 03:57</a>
+
+封神斩将飞刀姜子牙好像就用来杀过苏妲己，多数时候还是陆压自己在用？他本人最出名最常用的还是打神鞭吧 ...</blockquote>
+打神鞭作为抢人头神器战绩确实不错，但拉胯的时候也是真拉胯，能耐比较大的基本都动不了，如果百度百科这种玩意的记录可靠的话，那抢人头的次数和被抢的次数是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/18/040559mx7e1egbnk3bjx7t.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211218040511.png</strong> (15.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:05 上传
+
+*****
+
+####  kyonkoism  
+##### 85028#       发表于 2021-12-18 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">一想到樱井大妈高概率整姜太公杀狐CP，我就充满了丰收的喜悦
+
+*****
+
+####  AbigailWilliams  
+##### 85029#       发表于 2021-12-18 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989307&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-12-18 18:07</a>
+
+我再来奶一个不同的，闻仲当年和姜子牙一起灭狐的，为的就是灭了神代迎来人代，后面闻仲去日本成为 ...</blockquote>
+反正安倍晴明一定要缝点其他人物是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 85030#       发表于 2021-12-18 18:16
+
+<blockquote>白金口袋 发表于 2021-12-18 18:07
+打神鞭作为抢人头神器战绩确实不错，但拉胯的时候也是真拉胯，能耐比较大的基本都动不了，如果百度百科这 ...</blockquote>
+因为小说里姜子牙的实战真的是超级废......
+
+*****
+
+####  johnkamsar  
+##### 85031#       发表于 2021-12-18 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989332&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-12-18 18:09</a>
+反正安倍晴明一定要缝点其他人物是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">反正得在缝人和呗缝选一个呗
+
+*****
+
+####  zakki  
+##### 85032#       发表于 2021-12-18 18:22
+
+话说经常看nga感受就是你樱井真特么你月唯一劳模啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">2.2，2.52，2.55是樱井写的，2.65又说是樱井写，新圣诞是樱井写，特么街机也说是樱井写的，什么草木皆兵
+
