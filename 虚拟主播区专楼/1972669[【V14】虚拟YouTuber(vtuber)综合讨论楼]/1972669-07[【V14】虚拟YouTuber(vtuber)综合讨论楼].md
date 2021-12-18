@@ -5285,3 +5285,19 @@ FG31JqUaQAA5ZyZ.jpg
 结果而言，在拼盘live里看看就行了，小狮子是典型的live选手。
 虽然现在react好像主推花剪刀。
 
+
+
+*****
+
+####  nagitoY  
+##### 9441#       发表于 2021-12-18 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53990243&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-18 19:14</a>
+
+因为不擅长直播吧。
+
+个人不太看她的理由是歌回掺杂谈太多，听不踏实。
+
+而且直播现场唱也不太有特色，适合 ...</blockquote>
+react一直主推花剪刀，但是花剪刀基本功感觉要差点
+
