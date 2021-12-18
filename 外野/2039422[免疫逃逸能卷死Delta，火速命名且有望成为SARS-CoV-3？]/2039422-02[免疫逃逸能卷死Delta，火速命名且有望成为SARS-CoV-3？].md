@@ -6557,3 +6557,37 @@ lockdown就lockdown，还专门起个代号暗示说“跳闸”，成天想着�
 
 有种说法是，Omicron对有免疫（疫苗，感染）的人症状更轻，而什么都没有的依然还是很严厉
 
+
+
+*****
+
+####  riczxc  
+##### 2051#         楼主| 发表于 2021-12-18 12:42
+
+疫情防控长期化，对外交流有什么脑洞？
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53985527&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-18 12:16</a>
+
+不会，肺部复制速度慢不等于不攻击肺部细胞，也不等于毒力下降，delta在肺部的复制速度就比原始株低很多 ...</blockquote>
+你说得很对，我去看看那个图，就发觉Delta也是原始株的约1/10。
+
+<img src="https://img.saraba1st.com/forum/202112/18/124159o2239socsscs4og3.jpg" referrerpolicy="no-referrer">
+
+<strong>20211215-ENG bar chart.jpg</strong> (311.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 12:41 上传
+
+[https://www.med.hku.hk/en/news/p ... ars-cov-2-infection](https://www.med.hku.hk/en/news/press/20211215-omicron-sars-cov-2-infection)
+
+*****
+
+####  smy20011  
+##### 2052#       发表于 2021-12-18 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53985762&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-18 12:42</a>
+
+你说得很对，我去看看那个图，就发觉Delta也是原始株的约1/10。</blockquote>
+看清楚了，对数坐标系，大概1/3左右
+
