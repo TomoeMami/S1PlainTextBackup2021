@@ -11460,3 +11460,29 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 最近那个国产动画雄狮少年的人设有点问题，NGA影视区喷的非常厉害，导致我看到姜子牙这种帅哥都有点敏感 ...</blockquote>
 姜子牙这种眯眯眼是非常传统的眯眯眼睁眼才可怕的设定，和故意丑化的宽眼距、细眯眼、吊眼角完全不是一路
 
+
+
+*****
+
+####  6030sylar  
+##### 85069#       发表于 2021-12-18 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直钩钓鱼佬，这是冠位troll吗
+
+*****
+
+####  Jamaisvu  
+##### 85070#       发表于 2021-12-18 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53993672&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-12-18 22:49</a>
+
+姜子牙这种眯眯眼是非常传统的眯眯眼睁眼才可怕的设定，和故意丑化的宽眼距、细眯眼、吊眼角完全不是一路 ...</blockquote>
+明白了，瓦拉几亚之夜同款眼型<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 85071#       发表于 2021-12-18 23:21
+
+想捞四星妹子的，突然觉得不会被太公GANK吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
