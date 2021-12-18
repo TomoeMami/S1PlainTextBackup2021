@@ -6591,3 +6591,36 @@ lockdown就lockdown，还专门起个代号暗示说“跳闸”，成天想着�
 你说得很对，我去看看那个图，就发觉Delta也是原始株的约1/10。</blockquote>
 看清楚了，对数坐标系，大概1/3左右
 
+
+
+*****
+
+####  riczxc  
+##### 2053#         楼主| 发表于 2021-12-18 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53985769&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-18 12:43</a>
+
+看清楚了，对数坐标系，大概1/3左右</blockquote>
+我改慢了被你抓到了。
+
+*****
+
+####  Redis  
+##### 2054#       发表于 2021-12-18 12:47
+
+omicron虽然可能住院概率低，但是同时一群人挤爆医院还是会挤兑
+
+这就是个吞吐量的问题
+
+*****
+
+####  riczxc  
+##### 2055#         楼主| 发表于 2021-12-18 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53985817&amp;ptid=2039422" target="_blank">Redis 发表于 2021-12-18 12:47</a>
+
+omicron虽然可能住院概率低，但是同时一群人挤爆医院还是会挤兑
+
+这就是个吞吐量的问题 ...</blockquote>
+而且支气管那么多病毒，说不好肺会怎样....
+
