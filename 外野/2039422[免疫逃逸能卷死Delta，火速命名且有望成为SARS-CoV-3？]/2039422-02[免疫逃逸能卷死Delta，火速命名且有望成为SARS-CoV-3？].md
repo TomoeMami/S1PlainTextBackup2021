@@ -6394,3 +6394,16 @@ Denmark's prime minister says theaters, cinemas, concert halls, amusement parks,
 
 TGFC某些反人类ID正在庆祝出了个天然疫苗是什么情况？
 
+
+
+*****
+
+####  钞君  
+##### 2035#       发表于 2021-12-18 07:49
+
+<blockquote>最好不说 发表于 2021-12-18 01:51
+汇总一下这几天拍老师转的omicron新情报
+
+1.Omicron在支气管的复制速度大概是Delta的70倍左右，而在肺部的复 ...</blockquote>
+那会不会以后新冠就从肺炎变成支气管炎？
+
