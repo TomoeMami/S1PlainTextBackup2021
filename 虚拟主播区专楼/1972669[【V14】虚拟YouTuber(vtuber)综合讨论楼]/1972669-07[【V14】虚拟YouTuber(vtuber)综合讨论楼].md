@@ -5157,3 +5157,17 @@ pomu也搞vrchat了，看起来效果很好</blockquote>
 等等……这个模型是她自己捏的还是……</blockquote>
 粉丝做的
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9432#       发表于 2021-12-18 16:50
+
+<blockquote>Mysta Rias=Kaizoku Kaito
+
+&gt;mentions he's bri'ish on Twitter
+
+&gt;Elira immediately shows a Discord/Slack/whatever interaction of him being yab</blockquote>
+11月1日毕业（这人声音像ENおばくん）
+

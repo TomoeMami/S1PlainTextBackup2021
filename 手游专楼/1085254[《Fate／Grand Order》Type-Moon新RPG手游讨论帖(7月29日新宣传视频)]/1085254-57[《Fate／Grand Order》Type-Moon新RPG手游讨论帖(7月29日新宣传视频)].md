@@ -10440,3 +10440,50 @@ Aaaaaaaaaaaaaaaaa!!!
 
 吹水到5点能不能完啊喂，要准备晚饭去了
 
+
+
+*****
+
+####  الطائر  
+##### 84961#       发表于 2021-12-18 16:44
+
+升级被动技界面明显有两个空位，未来加两个特色被动技，8宝才能升满。
+
+*****
+
+####  qixinno2  
+##### 84962#       发表于 2021-12-18 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987918&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-18 16:23</a>
+
+这就是这样拉开氪老和无氪的距离吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得最傻逼的就是那喂狗粮了 就不能直接把经验条拉满么 20个20个的喂真的恶心 反正我仇凛喂到101实在受不了了 能喂出120的才是真正的真爱吧
+
+*****
+
+####  白金口袋  
+##### 84963#       发表于 2021-12-18 16:56
+
+22号，你早点开能死啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84964#       发表于 2021-12-18 16:56
+
+理所当然的下周三
+
+*****
+
+####  霧谷藤乃  
+##### 84965#       发表于 2021-12-18 17:01
+
+艹，下周三开新活动，那昨天急匆匆的把圣诞关了干啥
+
+*****
+
+####  AbigailWilliams  
+##### 84966#       发表于 2021-12-18 17:03
+
+又能看到隔壁发病了，樱井光干得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
