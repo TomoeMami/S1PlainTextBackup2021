@@ -7284,3 +7284,28 @@ FA8E7E0C-B34F-4784-815E-E7253EE6E612.png
 
 <img src="https://img.saraba1st.com/forum/202112/18/205622afzkcie8rj8ev8nc.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 2115#       发表于 2021-12-18 21:25
+
+今天返图小星星浓度拉满，谢谢谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  musicat  
+##### 2116#       发表于 2021-12-18 21:31
+
+敌团来踩点了，危，要裂拉！
+
+说起来，5+2对应彩虹起色，加上中之人本身的日程安排不会像之前的那样忙不开，是不是原本的企划其实撒泥巴就是第六人，以后的企划活动里会经常一起玩。
+
+*****
+
+####  cybernetics31  
+##### 2117#       发表于 2021-12-18 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辛苦🐟扎马步了
+

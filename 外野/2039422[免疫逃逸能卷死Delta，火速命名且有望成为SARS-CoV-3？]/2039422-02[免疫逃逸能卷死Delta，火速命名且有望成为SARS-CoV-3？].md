@@ -6670,3 +6670,32 @@ lockdown就lockdown，还专门起个代号暗示说“跳闸”，成天想着�
 
 住院率目前是年轻人，等着吧，毒性很强
 
+
+
+*****
+
+####  pushare  
+##### 2061#       发表于 2021-12-18 21:29
+
+https://www.latimes.com/politics/story/2021-12-17/kamala-harris-in-interview-says-administration-did-not-anticipate-omicron-variant
+
+WASHINGTON — 
+
+Vice President Kamala Harris said Friday that the administration failed to anticipate the variants that have prolonged and worsened the COVID-19 pandemic and that she underestimated the role misinformation would play in prolonging the disease that has killed 800,000 Americans.
+
+*****
+
+####  海关  
+##### 2062#       发表于 2021-12-18 21:37
+
+长沙入境的+2例Omicron<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  砥草  
+##### 2063#       发表于 2021-12-18 21:38
+
+@央视新闻
+
+【#长沙入境人员检出2例奥密克戎#】湖南疾病预防控制中心对12月16日长沙市境外输入新冠病毒感染者呼吸道标本进行新冠病毒全基因组测序和序列分析，经中国疾病预防控制中心复核，均确认检出新冠病毒奥密克戎变异株（B.1.1.529进化分支）。该2例新冠病毒奥密克戎变异株感染者系入境闭环管控人员，目前在定点医院隔离治疗。（总台记者傅蕾 郭进）
+

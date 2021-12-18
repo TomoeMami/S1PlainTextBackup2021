@@ -11274,3 +11274,64 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 说起来常驻五星，更需要担心的是卡面......虽然目前的立绘还行，但考虑到之前有过双子座的卡面找不同、尼莫的摸鱼、手办娘的奇葩秋裤造型......希望剩下的卡面能保持质量吧，强度不就一个或者几个强化本的事，卡面敲定了可就没法改变了
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 85051#       发表于 2021-12-18 21:23
+
+看了pv，怎么有种姜子牙是反派的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85052#       发表于 2021-12-18 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53991576&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-12-18 20:35</a>
+
+终于轮到我欧了么！
+
+一发11连妖兰宝具+1，去斯卡蒂池又抽了11连出了红阎魔，带上前几天出的尼莫，难道这号 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">欧 超绝羡慕
+
+*****
+
+####  zakki  
+##### 85053#       发表于 2021-12-18 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53991902&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-18 20:54</a>
+重点是常驻啊</blockquote>
+不过有个好处，常驻一般强化的多，有几个强化后就特别强的，比如大公呆毛什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 85054#       发表于 2021-12-18 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992320&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 21:18</a>
+
+说起来常驻五星，更需要担心的是卡面......虽然目前的立绘还行，但考虑到之前有过双子座的卡面找不同、尼莫 ...</blockquote>
+初始的穿着风格给我一中清末民初的感觉，希望突破之后能来套商周服装吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85055#       发表于 2021-12-18 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992475&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-18 21:26</a>
+
+不过有个好处，常驻一般强化的多，有几个强化后就特别强的，比如大公呆毛什么的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而除了大公呆毛之外 剩下的我觉得更多可能是月神那种彻底被遗忘的 2.51过去那么久了真的一丁点都不带强化的也太过分了
+
+*****
+
+####  Jamaisvu  
+##### 85056#       发表于 2021-12-18 21:43
+
+真的出姜子牙了啊，红黑色调我挺喜欢的，不过眯眯眼在NGA会不会被喷爆呢2333，第一眼觉得有点像钢炼里的林皇子呢。
+
+之前和朋友讨论时觉得如果出姜子牙可能就是对应狐狸的冠位了，结果却是常驻角色，不太可能了...
+
+话说太公望如果作为预热角色在圣诞节出也没啥毛病吧，他的坐骑是四不像，也就是麋鹿，和圣诞老人一样（笑）
+
