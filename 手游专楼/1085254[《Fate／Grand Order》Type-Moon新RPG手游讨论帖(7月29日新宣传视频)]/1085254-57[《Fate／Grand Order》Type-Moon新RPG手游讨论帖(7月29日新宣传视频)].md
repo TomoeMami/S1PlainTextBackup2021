@@ -11234,3 +11234,43 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 攻击宝具咋了，奥伯龙不就是攻击宝具</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">重点是常驻啊
 
+
+
+*****
+
+####  angelooo  
+##### 85046#       发表于 2021-12-18 21:05
+
+现在攻击宝具也能当拐，关键是看技能，以及你们是不是忘了当年的初代挂比孔明也是常驻
+
+*****
+
+####  shimotsuki14  
+##### 85047#       发表于 2021-12-18 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53991754&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 20:45</a>
+
+哦忘了还有梅山七怪的猴子......因为普通的刀砍不死，用来杀苏妲己是因为正常人看着她根本下不了手，之前 ...</blockquote>
+今天看你们讨论，回头去翻了一下封神演义，想起来小时候囫囵吞枣看了个不明不白，现在看真玄乎
+
+*****
+
+####  霧谷藤乃  
+##### 85048#       发表于 2021-12-18 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">趁热打铁失败…看来和大柰柰无缘，重新攒石了
+
+*****
+
+####  khxooo  
+##### 85049#       发表于 2021-12-18 21:15
+
+重新看了看生放送，那些巨人一片漆黑，应该是拿了2.6的摩斯咀咒吧。
+
+*****
+
+####  angelooo  
+##### 85050#       发表于 2021-12-18 21:18
+
+说起来常驻五星，更需要担心的是卡面......虽然目前的立绘还行，但考虑到之前有过双子座的卡面找不同、尼莫的摸鱼、手办娘的奇葩秋裤造型......希望剩下的卡面能保持质量吧，强度不就一个或者几个强化本的事，卡面敲定了可就没法改变了
+
