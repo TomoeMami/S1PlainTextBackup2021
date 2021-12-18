@@ -10864,3 +10864,149 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 不过现在透露的这些料和pv看下来没街机大，我的心里只有巴比伦大淫 妇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 85008#       发表于 2021-12-18 17:48
+
+<blockquote>黑上シグマ 发表于 2021-12-18 17:31
+都狐狸歼灭作战了，你还要反过来打姜太公…………</blockquote>
+但这眯眯眼太公望怎么看怎么像黑幕
+
+*****
+
+####  白金口袋  
+##### 85009#       发表于 2021-12-18 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988969&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-18 03:40</a>
+
+我摊牌了，我也喜欢，都特么怪藤崎龙</blockquote>
+藤崎龙正经有点厉害的，普贤X太公望的男男CP是当年的腐女圣经，最终一幕的地球母亲妲己X太公望的男女CP也有人吃，连四不像X太公望的主仆人shou也有市场，真的是经典永流传了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 85010#       发表于 2021-12-18 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988968&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-12-18 17:40</a>
+说了什么啊，让我回顾一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">在2819页
+
+*****
+
+####  angelooo  
+##### 85011#       发表于 2021-12-18 17:53
+
+隔壁樱井ptsd也就算了，太公望立绘都出了还有人说幸好不是苍月，你家苍月画得出这？
+
+*****
+
+####  gpx234mqx  
+##### 85012#       发表于 2021-12-18 17:53
+
+ 本帖最后由 gpx234mqx 于 2021-12-18 17:55 编辑 
+
+说实在姜子牙应该有“请宝贝转身”这个宝具吧
+
+毕竟问陆压借过
+
+还有箭头七钉书
+
+*****
+
+####  AbigailWilliams  
+##### 85013#       发表于 2021-12-18 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989079&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-12-18 17:49</a>
+
+在2819页</blockquote>
+草，为什么看起来那么像是月球写得出来的逻辑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是真中奖，建议去type-moon躺平写剧情去。
+
+从看乐子的角度来说，确实属于是大活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 85014#       发表于 2021-12-18 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这剧情确实很乐子，就NGA破防的角度我也希望老哥你能蒙中啊
+
+*****
+
+####  黑雪姫  
+##### 85015#       发表于 2021-12-18 17:55
+
+姜子牙这个人设就是典型的日本少女漫里中国帅哥的人设，不知道最先确立形象的是哪部作品 D伯爵吗？
+
+*****
+
+####  angelooo  
+##### 85016#       发表于 2021-12-18 17:57
+
+<blockquote>gpx234mqx 发表于 2021-12-18 17:53
+说实在姜子牙应该有“请宝贝转身”这个宝具吧
+
+毕竟问陆压借过</blockquote>
+封神斩将飞刀姜子牙好像就用来杀过苏妲己，多数时候还是陆压自己在用？他本人最出名最常用的还是打神鞭吧（真·只对榜上有名的人才有用的特攻宝具）
+
+*****
+
+####  zakki  
+##### 85017#       发表于 2021-12-18 17:59
+
+话说生放有提这次活动形式吗，是有free本的那种一般活动形式还是类似终章那种
+
+*****
+
+####  exiaexa  
+##### 85018#       发表于 2021-12-18 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989077&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-12-18 17:49</a>
+藤崎龙正经有点厉害的，普贤X太公望的男男CP是当年的腐女圣经，最终一幕的地球母亲妲己X太公望的男女CP也 ...</blockquote>
+藤崎龙当初应该单纯就是放的开，怎么有趣怎么折腾，反正你封神演义又没人来喊碰不得
+结果阴差阳错整出一堆有意思的点子
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 85019#       发表于 2021-12-18 18:00
+
+我就一个要求，不要缝晴明，这种本土人气那么高的从者就顺应民意放去新年或者别的什么地方当高贵的限定吧，不要和一个常驻中国从者扯上关系了哈哈
+
+*****
+
+####  angelooo  
+##### 85020#       发表于 2021-12-18 18:02
+
+<blockquote>zakki 发表于 2021-12-18 17:59
+话说生放有提这次活动形式吗，是有free本的那种一般活动形式还是类似终章那种 ...</blockquote>
+好像有分时段的击退战，其他的没仔细看
+
+
+
+*****
+
+####  zakki  
+##### 85021#       发表于 2021-12-18 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989234&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 18:02</a>
+好像有分时段的击退战，其他的没仔细看</blockquote>
+我知道是分时段，但是会提前up常驻礼装就挺怪的，按理来说一般活动肯定会有3个氪金活动礼装的
+
+*****
+
+####  zakki  
+##### 85022#       发表于 2021-12-18 18:03
+
+翻页
+
+*****
+
+####  zakki  
+##### 85023#       发表于 2021-12-18 18:03
+
+翻页
+
