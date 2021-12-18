@@ -6699,3 +6699,51 @@ Vice President Kamala Harris said Friday that the administration failed to antic
 
 【#长沙入境人员检出2例奥密克戎#】湖南疾病预防控制中心对12月16日长沙市境外输入新冠病毒感染者呼吸道标本进行新冠病毒全基因组测序和序列分析，经中国疾病预防控制中心复核，均确认检出新冠病毒奥密克戎变异株（B.1.1.529进化分支）。该2例新冠病毒奥密克戎变异株感染者系入境闭环管控人员，目前在定点医院隔离治疗。（总台记者傅蕾 郭进）
 
+
+
+*****
+
+####  最好不说  
+##### 2064#       发表于 2021-12-18 21:44
+
+香港也新增了三例输入
+
+*****
+
+####  Kanoya  
+##### 2065#       发表于 2021-12-18 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992679&amp;ptid=2039422" target="_blank">砥草 发表于 2021-12-18 21:38</a>
+@央视新闻
+
+【#长沙入境人员检出2例奥密克戎#】湖南疾病预防控制中心对12月16日长沙市境外输入新冠病毒感染 ...</blockquote>
+怎么代号还没换成BA的
+
+*****
+
+####  天使日又日  
+##### 2066#       发表于 2021-12-18 21:47
+
+说明国外情况比他们统计的还烂好多倍呗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  namelessashen  
+##### 2067#       发表于 2021-12-18 21:52
+
+几个在大英和土澳读硕士博士的同学感染了，他们都说自己还有同学都症状轻微，但是以前几波都没有人感染，这次一下就感染了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">实属感染速度快速
+
+*****
+
+####  海关  
+##### 2068#       发表于 2021-12-18 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992877&amp;ptid=2039422" target="_blank">天使日又日 发表于 2021-12-18 21:47</a>
+
+说明国外情况比他们统计的还烂好多倍呗
+
+—— 来自 Sony J9210, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+非洲大地估计都是了~
+

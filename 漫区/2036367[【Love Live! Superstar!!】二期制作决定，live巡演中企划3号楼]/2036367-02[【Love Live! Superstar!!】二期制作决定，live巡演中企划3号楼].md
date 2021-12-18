@@ -7309,3 +7309,35 @@ FA8E7E0C-B34F-4784-815E-E7253EE6E612.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辛苦🐟扎马步了
 
+
+
+*****
+
+####  D麦林  
+##### 2118#       发表于 2021-12-18 21:46
+
+不知道会不会有人不高兴就是了……
+
+记得Saint Aqours Snow的时候就有人批判
+
+觉得都是自己努力打来的天下 这敌团横插一脚就是来摘果子的
+
+再加上Liella还有两人是海选组的 对这部分的粉丝来说会更不高兴吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 2119#       发表于 2021-12-18 21:57
+
+sanipa还好吧，1st过程中宣布加入的
+
+而且大家也确实好奇到底是什么样的live
+
+圣之雪主要亏在同样是敌团+live二赖子都没有你凭啥有，有人抱着水水好歹是正统但圣之雪这个属于附属自然是不满的
+
+星团方便就方便在第一有圣之雪打底，sanipa出现没什么意外
+
+第二中间还隔了一个虹团那种随时加人的模式，以后就算是5+2演出形式大家也不意外
+
+最主要的还是星团人少，如果能以两个团共演的形式赚的还是观众
+

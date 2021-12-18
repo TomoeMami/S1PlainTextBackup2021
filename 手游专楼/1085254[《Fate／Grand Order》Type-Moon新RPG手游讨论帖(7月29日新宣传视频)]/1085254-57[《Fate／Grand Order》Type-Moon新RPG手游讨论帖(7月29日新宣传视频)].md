@@ -11335,3 +11335,65 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 话说太公望如果作为预热角色在圣诞节出也没啥毛病吧，他的坐骑是四不像，也就是麋鹿，和圣诞老人一样（笑）
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 85057#       发表于 2021-12-18 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992473&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-18 21:26</a>
+
+欧 超绝羡慕</blockquote>
+但问题是感受不到欧的喜悦，想要的就没出，尼莫按我的惯例该换方块的，不过想了想暂时先留着了……
+
+*****
+
+####  alucardcz  
+##### 85058#       发表于 2021-12-18 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992802&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-12-18 21:44</a>
+
+但问题是感受不到欧的喜悦，想要的就没出，尼莫按我的惯例该换方块的，不过想了想暂时先留着了…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">萌新石不过3为什么什么都没有！
+
+*****
+
+####  霧谷藤乃  
+##### 85059#       发表于 2021-12-18 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992895&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-18 21:49</a>
+
+萌新石不过3为什么什么都没有！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你已经够欧了，印象中我不少想要的都被你单抽带走
+
+*****
+
+####  qixinno2  
+##### 85060#       发表于 2021-12-18 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992895&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-18 21:49</a>
+
+萌新石不过3为什么什么都没有！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新忘了自己暴跳的时候了么 一发十连水伽摩 单抽女团长 单抽仇信之类的这贴里只有我是真的非了
+
+*****
+
+####  angelooo  
+##### 85061#       发表于 2021-12-18 21:54
+
+<blockquote>Jamaisvu 发表于 2021-12-18 21:43
+真的出姜子牙了啊，红黑色调我挺喜欢的，不过眯眯眼在NGA会不会被喷爆呢2333，第一眼觉得有点像钢炼里的林 ...</blockquote>
+眯眯眼不是被喷的根本原因，丑才是（不
+
+看pv月球四不像搞不好是那群长着羊角兔耳虎尾鸟腿的生物而不是麋鹿
+
+*****
+
+####  ——啧  
+##### 85062#       发表于 2021-12-18 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992475&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-18 21:26</a>
+不过有个好处，常驻一般强化的多，有几个强化后就特别强的，比如大公呆毛什么的 ...</blockquote>
+屁屁枪露出了怀疑的表情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
