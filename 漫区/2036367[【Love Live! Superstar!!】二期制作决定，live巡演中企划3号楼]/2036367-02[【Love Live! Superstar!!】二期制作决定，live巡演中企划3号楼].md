@@ -6682,3 +6682,45 @@ payton nanko
 有点熟，我大喜</blockquote>
 群里有幻视成西野七濑的
 
+
+
+*****
+
+####  csolfans  
+##### 2079#       发表于 2021-12-18 15:27
+
+感觉这样唱不是事啊，syr这两天问题开始爆发了感觉
+
+*****
+
+####  lj205  
+##### 2080#       发表于 2021-12-18 15:31
+
+打铁……希望她不要自责爆发，要调整好自己，今天似乎更严重的样子…………………………做为立德这关一定要过的
+
+*****
+
+####  仟音一心  
+##### 2081#       发表于 2021-12-18 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987309&amp;ptid=2036367" target="_blank">csolfans 发表于 2021-12-18 15:27</a>
+感觉这样唱不是事啊，syr这两天问题开始爆发了感觉</blockquote>
+感觉她心态有点崩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2082#       发表于 2021-12-18 15:32
+
+千叶day2 liella之歌盲盒:
+1.Primary-liyuu nagi
+2.Memories-nako sayu
+3.Dears-nagi pay
+
+*****
+
+####  寒风夜  
+##### 2083#       发表于 2021-12-18 15:40
+
+就没多少休息时间，哎   我们也做不了什么  只能声援了
+
