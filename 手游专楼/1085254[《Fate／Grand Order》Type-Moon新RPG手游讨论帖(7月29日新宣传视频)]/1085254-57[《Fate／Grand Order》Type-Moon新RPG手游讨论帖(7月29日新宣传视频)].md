@@ -10296,3 +10296,90 @@ Aaaaaaaaaaaaaaaaa!!!
 妖兰图怎么这么多</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们这群连通的够了啊！！！！我要叫jc叔叔了！
 
+
+
+*****
+
+####  khxooo  
+##### 84945#       发表于 2021-12-18 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987114&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-12-18 15:04</a>
+
+你们这群连通的够了啊！！！！我要叫jc叔叔了！</blockquote>
+叫JC叔叔抓妖兰吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84946#       发表于 2021-12-18 15:51
+
+突然想到我还没有120的从者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 84947#       发表于 2021-12-18 15:54
+
+看不懂  120级4星最多的居然是斋藤一。。
+
+*****
+
+####  黑上シグマ  
+##### 84948#       发表于 2021-12-18 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说120了，超100的我都没
+
+*****
+
+####  alucardcz  
+##### 84949#       发表于 2021-12-18 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987614&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-18 15:55</a>
+
+别说120了，超100的我都没</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也没啊
+
+*****
+
+####  alucardcz  
+##### 84950#       发表于 2021-12-18 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">完全想不到拉谁到120。。。拉个狂娜玩玩？
+
+*****
+
+####  不垃圾屌丝  
+##### 84951#       发表于 2021-12-18 16:01
+
+羡慕有硬币能拉到120的大佬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  里村紅葉  
+##### 84952#       发表于 2021-12-18 16:02
+
+120级要5000张5星狗粮，YLS你跟隔壁四字母学的按0是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84953#       发表于 2021-12-18 16:02
+
+笑死我了，前面随便点了一个直播，up主看到2.6两位排三四的时候还在吹蘑菇yyds，结果第一是斋藤一的时候整个直播间都沉默了，那个情人节私奔宣言果然对女玩家杀伤力巨大哈哈哈哈哈
+
+*****
+
+####  alucardcz  
+##### 84954#       发表于 2021-12-18 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987680&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-18 16:01</a>
+
+羡慕有硬币能拉到120的大佬
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">草 你这么一说我去看了看。。 是想多了
+
+光妈2宝15羁绊只有200多硬币。。。。。。。。。狂娜就更不说了
+
