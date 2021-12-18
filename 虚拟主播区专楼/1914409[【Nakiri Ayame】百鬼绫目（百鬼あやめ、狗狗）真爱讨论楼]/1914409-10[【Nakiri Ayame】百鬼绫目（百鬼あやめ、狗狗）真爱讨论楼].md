@@ -2750,3 +2750,14 @@ syl 昨天live都没请人画图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">全是百鬼组打得钱 过的太滋润了
 
+
+
+*****
+
+####  nian1538  
+##### 13775#       发表于 2021-12-18 19:52
+
+重看了一下会限某些部分
+原来绫总最想播的还是pokemon，已经做好三张封面了
+另外念了4个小时最终也没能读完sc，不过这次起码没说下次再念
+
