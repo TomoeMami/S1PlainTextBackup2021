@@ -11126,3 +11126,21 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 苹果榜必登顶嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85036#       发表于 2021-12-18 18:46
+
+ 本帖最后由 zakki 于 2021-12-18 18:50 编辑 
+
+又看了遍这个pv和之前的pv，柯杨斯卡娅其实是陨石精吧，通古斯大爆炸掉落的陨石，所以是个俄国人也能解释
+
+*****
+
+####  真红眼教授  
+##### 85037#       发表于 2021-12-18 18:47
+
+任何新剧情出来隔壁都有破防的，不可不围观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

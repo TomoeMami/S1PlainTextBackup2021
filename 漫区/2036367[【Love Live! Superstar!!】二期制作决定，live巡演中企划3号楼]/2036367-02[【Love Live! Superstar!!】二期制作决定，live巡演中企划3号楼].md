@@ -6963,3 +6963,109 @@ webwxgetmsgimg.jpg
 
 <img src="https://img.saraba1st.com/forum/202112/18/183236r62v1fkwnb6zwwbk.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 2098#       发表于 2021-12-18 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987732&amp;ptid=2036367" target="_blank">player3960 发表于 2021-12-18 16:06</a>
+
+外国人技能发动!
+
+鲤鱼真是个实诚人</blockquote>
+啥意思？飙出中文了？还是说这用法是指终于解脱了的那种感觉？
+
+*****
+
+####  Cushaw  
+##### 2099#       发表于 2021-12-18 18:42
+
+还有一年<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2100#       发表于 2021-12-18 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989814&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-18 18:42</a>
+啥意思？飙出中文了？还是说这用法是指终于解脱了的那种感觉？</blockquote>
+这说法相当于『可TM终于到了后半场了』。
+没错，就是太直白了。
+
+
+
+*****
+
+####  仟音一心  
+##### 2101#       发表于 2021-12-18 18:51
+
+合照＋梗图
+
+<img src="https://img.saraba1st.com/forum/202112/18/185129kkr3a4k6s6os6xuk.png" referrerpolicy="no-referrer">
+
+<strong>15E95B6B-E953-4478-8184-32432A7FAE69.png</strong> (156 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/18/185129a7ihqgylknjig3h7.png" referrerpolicy="no-referrer">
+
+<strong>1D63CF3C-C294-492B-A61F-164F07F3EB06.png</strong> (183.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/18/185129ygjltp1vto5jpjzv.png" referrerpolicy="no-referrer">
+
+<strong>C65DA089-936E-4677-B597-D8527E0BA0A2.png</strong> (166 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/18/185129sv4f3xvj0rxym8um.png" referrerpolicy="no-referrer">
+
+<strong>4A33A395-7AB0-4C6B-AB48-902A1AFCA404.png</strong> (157.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:51 上传
+
+EA09881C-A627-47E2-950B-9E95FDAAFE2B.jpeg
+(189.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/18/185130akk0yu6x0y830dzx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FFA77A9F-F534-44FA-8B73-90A10FE308D5.jpeg
+(260.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/18/185130wdezvxm5kjv2kpvy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B66CC222-9C9C-46FC-81D9-4B8A0C90F9C8.jpeg
+(267.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/18/185130qlaxxlrx5b23f2ll.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2102#       发表于 2021-12-18 18:51
+
+我觉得鲤鱼不可能不知道这个用法是啥意思，要么心疼打铁，要么节目效果吧～
+
