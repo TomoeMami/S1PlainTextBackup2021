@@ -939,3 +939,25 @@ FE从觉醒，IF开始到风花雪月混的好像确实越来越好了，不过�
 
 老爷子已经免费发布了 下载地址见主楼<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zerofree0000  
+##### 89#       发表于 2021-12-18 09:38
+
+ 本帖最后由 zerofree0000 于 2021-12-18 09:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53975007&amp;ptid=2042712" target="_blank">louge19891020 发表于 2021-12-17 15:42</a>
+
+他至少不做火纹15年了吧？火纹离开他也越活越好（咋还没新作新闻）也不知道恨为啥还能延续 ...</blockquote>
+大概因为火纹确实越来越垃圾了。
+
+对了销量和质量没有联系。不然看看那帮子氪金手游？不过末法时代变着花样舔死宅罢了，还不如隔壁垃圾轨迹。
+
+*****
+
+####  水野貴弘  
+##### 90#       发表于 2021-12-18 09:42
+
+拿加贺四处踩人的时候爽，被反噬了不也是活该<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

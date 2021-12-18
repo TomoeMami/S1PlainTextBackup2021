@@ -526,3 +526,12 @@ en1最常开asmr的好像意外地是calli
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">歌回重播是好文明
 
+
+
+*****
+
+####  shimmy1996  
+##### 1553#       发表于 2021-12-18 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">moona重播时出来和自己对唱
+
