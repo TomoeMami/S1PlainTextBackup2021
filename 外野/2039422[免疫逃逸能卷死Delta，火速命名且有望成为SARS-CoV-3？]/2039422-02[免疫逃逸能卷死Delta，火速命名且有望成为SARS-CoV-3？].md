@@ -6747,3 +6747,15 @@ Vice President Kamala Harris said Friday that the administration failed to antic
 —— 来自 Sony J9210, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 非洲大地估计都是了~
 
+
+
+*****
+
+####  最好不说  
+##### 2069#       发表于 2021-12-18 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53993010&amp;ptid=2039422" target="_blank">海关 发表于 2021-12-18 21:56</a>
+
+非洲大地估计都是了~</blockquote>
+omicron上个月就传遍全非洲了，不过对我国防控压力影响更大的还是欧美，按omicron在带英这个倍增速度明年一月初就可以感染全英，念了一年多的群体免疫还不知道有没有实现的那一天，全体感染已经在路上了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

@@ -11397,3 +11397,12 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 不过有个好处，常驻一般强化的多，有几个强化后就特别强的，比如大公呆毛什么的 ...</blockquote>
 屁屁枪露出了怀疑的表情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 85063#       发表于 2021-12-18 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐狸九条尾巴九个箭头
+
