@@ -11177,3 +11177,26 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正一个常驻骑阶 看样子还是个攻击宝具 强度估计也就那样
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 85041#       发表于 2021-12-18 20:35
+
+终于轮到我欧了么！
+
+一发11连妖兰宝具+1，去斯卡蒂池又抽了11连出了红阎魔，带上前几天出的尼莫，难道这号和正太萝莉有缘……？
+
+*****
+
+####  qixinno2  
+##### 85042#       发表于 2021-12-18 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53991576&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-12-18 20:35</a>
+
+终于轮到我欧了么！
+
+一发11连妖兰宝具+1，去斯卡蒂池又抽了11连出了红阎魔，带上前几天出的尼莫，难道这号 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">欧 羡慕 我怎么就遇不上这种事
+
