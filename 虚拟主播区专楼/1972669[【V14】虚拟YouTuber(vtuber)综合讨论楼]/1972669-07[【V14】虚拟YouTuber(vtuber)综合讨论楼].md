@@ -5301,3 +5301,16 @@ FG31JqUaQAA5ZyZ.jpg
 而且直播现场唱也不太有特色，适合 ...</blockquote>
 react一直主推花剪刀，但是花剪刀基本功感觉要差点
 
+
+
+*****
+
+####  free  
+##### 9442#       发表于 2021-12-18 20:17
+
+[https://live.nicovideo.jp/watch/lv334465488](https://live.nicovideo.jp/watch/lv334465488)
+
+【今夜決定！最終審査】出ようぜ！VTuber Fes ステージ出演オーディション2022
+
+nico怎么还没有倒闭啊
+

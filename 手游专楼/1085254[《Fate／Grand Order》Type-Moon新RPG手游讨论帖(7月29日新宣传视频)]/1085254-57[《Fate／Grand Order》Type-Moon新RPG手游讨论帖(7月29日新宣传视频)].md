@@ -11153,3 +11153,27 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说那么早把活动关了 今天又不开活动这不是有病么 就强行长草
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 85039#       发表于 2021-12-18 20:07
+
+ 本帖最后由 霧谷藤乃 于 2021-12-18 20:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53989184&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 17:57</a>
+
+封神斩将飞刀姜子牙好像就用来杀过苏妲己，多数时候还是陆压自己在用？他本人最出名最常用的还是打神鞭吧 ...</blockquote>
+印象中杀掉的只有妲己…可能还有梅山六怪（袁洪得靠女娲社稷图）？
+
+其余像是对马元用但马元是火怪就没成
+
+封神演义里太公拿了打神鞭最多收个人头，碰上道行深的或不在榜的只有骑着四不像跑路
+
+*****
+
+####  qixinno2  
+##### 85040#       发表于 2021-12-18 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正一个常驻骑阶 看样子还是个攻击宝具 强度估计也就那样
+
