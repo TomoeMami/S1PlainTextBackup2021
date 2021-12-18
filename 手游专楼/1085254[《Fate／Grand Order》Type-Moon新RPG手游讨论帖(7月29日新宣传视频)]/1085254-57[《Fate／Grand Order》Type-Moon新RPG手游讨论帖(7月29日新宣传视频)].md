@@ -11545,3 +11545,81 @@ emmmmm现在就剧情怎么样了…..</blockquote>
  ...</blockquote>
 还有印度那个呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85077#       发表于 2021-12-19 01:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">换成手机了 以为能摆脱ipad上下蓝边 结果怎么变左右蓝边了  
+
+*****
+
+####  rooarr  
+##### 85078#       发表于 2021-12-19 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53996186&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-19 01:51</a>
+换成手机了 以为能摆脱ipad上下蓝边 结果怎么变左右蓝边了</blockquote>
+土豪你换个16：9的手机就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85079#       发表于 2021-12-19 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53996222&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-19 01:54</a>
+
+土豪你换个16：9的手机就可以了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我大苹果没有这种手机（
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">话说这辣鸡游戏什么时候能把引继功能整整好 在家用ipad出去用iphone啊 我今天还特意半夜才起来搞的 慌的要死 就怕出个万一
+
+*****
+
+####  alucardcz  
+##### 85080#       发表于 2021-12-19 02:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">一扩居然要下11g
+
+
+
+*****
+
+####  rooarr  
+##### 85081#       发表于 2021-12-19 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53996306&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-19 01:59</a>
+我大苹果没有这种手机（
+
+话说这辣鸡游戏什么时候能把引继功能整整好 在家用ipad出去用ipho ...</blockquote>
+好像除了icloud恢复之外，都不能两个设备同时登录吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在都换到手机上，不指望pad了
+
+*****
+
+####  rooarr  
+##### 85082#       发表于 2021-12-19 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53996306&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-19 01:59</a>
+我大苹果没有这种手机（
+
+话说这辣鸡游戏什么时候能把引继功能整整好 在家用ipad出去用ipho ...</blockquote>
+不对啊，我试了下12不是左右蓝边，你的是pro max？
+
+*****
+
+####  alucardcz  
+##### 85083#       发表于 2021-12-19 02:28
+
+翻页<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85084#       发表于 2021-12-19 02:29
+
+ 本帖最后由 alucardcz 于 2021-12-19 02:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53996482&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-19 02:15</a>
+
+不对啊，我试了下12不是左右蓝边，你的是pro max？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是啊13pm 主要是宝具画面
+
