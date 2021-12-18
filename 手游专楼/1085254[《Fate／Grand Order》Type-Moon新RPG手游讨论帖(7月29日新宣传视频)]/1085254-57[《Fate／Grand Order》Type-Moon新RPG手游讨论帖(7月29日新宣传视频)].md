@@ -10383,3 +10383,22 @@ Aaaaaaaaaaaaaaaaa!!!
 
 光妈2宝15羁绊只有200多硬币。。。。。。。。。狂娜就更不说了
 
+
+
+*****
+
+####  qixinno2  
+##### 84955#       发表于 2021-12-18 16:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这120设计的就很傻逼 想喂120你还不TMD氪爆抽高宝 刷爆狗粮喂爆
+
+*****
+
+####  khxooo  
+##### 84956#       发表于 2021-12-18 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987900&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-18 16:22</a>
+
+这120设计的就很傻逼 想喂120你还不TMD氪爆抽高宝 刷爆狗粮喂爆</blockquote>
+这就是这样拉开氪老和无氪的距离吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -5118,3 +5118,30 @@ pomu也搞vrchat了，看起来效果很好
 
 2021-12-18 13:39 上传
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9429#       发表于 2021-12-18 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53986373&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-12-18 13:40</a>
+
+pomu也搞vrchat了，看起来效果很好</blockquote>
+等等……这个模型是她自己捏的还是……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 9430#       发表于 2021-12-18 16:19
+
+今天vills的截图，看了这个舞台灯光就不想看了......
+
+<img src="https://img.saraba1st.com/forum/202112/18/161912u6zwui44w42tlbfn.png" referrerpolicy="no-referrer">
+
+<strong>vills.png</strong> (226.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 16:19 上传
+

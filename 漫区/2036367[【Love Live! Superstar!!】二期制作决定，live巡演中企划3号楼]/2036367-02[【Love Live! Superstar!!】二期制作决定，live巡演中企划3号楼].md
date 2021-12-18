@@ -6724,3 +6724,39 @@ payton nanko
 
 就没多少休息时间，哎   我们也做不了什么  只能声援了
 
+
+
+*****
+
+####  仟音一心  
+##### 2084#       发表于 2021-12-18 16:01
+
+Liyuu：『终于到了（ようやく）后半场了。』<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 2085#       发表于 2021-12-18 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53987677&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-18 16:01</a>
+
+Liyuu：『终于到了（ようやく）后半场了。』</blockquote>
+外国人技能发动!
+
+鲤鱼真是个实诚人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2086#       发表于 2021-12-18 16:15
+
+撑过去了，安心安心
+
+*****
+
+####  chenflyyy  
+##### 2087#       发表于 2021-12-18 16:15
+
+没看live，今天sayu状态那么差吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+唉，希望她别太自责并能够成长吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
