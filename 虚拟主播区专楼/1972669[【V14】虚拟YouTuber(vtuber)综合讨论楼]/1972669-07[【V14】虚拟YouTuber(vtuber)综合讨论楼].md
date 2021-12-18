@@ -5258,3 +5258,30 @@ FG31JqUaQAA5ZyZ.jpg
 
 作为唱见我觉得她还挺不错的，摇滚唱得好，很适合唱oor和aiymon
 
+
+
+*****
+
+####  free  
+##### 9439#       发表于 2021-12-18 19:03
+
+粉丝做的模型直接拿来用杏三年前不就这么干的，不稀奇了，有个再劣质的3D总比纸板挂墙好
+
+说到vrchat，看了前几天外野的vrchat聚会贴，加了他们的群。发现群里最喜欢干的事情之一，就是看哪个国V在播vrchat，一窝蜂的跑去人家房间一起玩，这大概就是狐叔当年梦想的形态吧。
+[https://bbs.saraba1st.com/2b/thread-2042198-1-1.html](https://bbs.saraba1st.com/2b/thread-2042198-1-1.html)
+
+*****
+
+####  渡鸦骑士  
+##### 9440#       发表于 2021-12-18 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53990005&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-18 18:57</a>
+说起来狮子神完全没讨论度，因为更偏向唱见，没什么好聊的吗？
+
+作为唱见我觉得她还挺不错的，摇滚唱得好， ...</blockquote>
+因为不擅长直播吧。
+个人不太看她的理由是歌回掺杂谈太多，听不踏实。
+而且直播现场唱也不太有特色，适合的歌唱的也不太多。
+结果而言，在拼盘live里看看就行了，小狮子是典型的live选手。
+虽然现在react好像主推花剪刀。
+
