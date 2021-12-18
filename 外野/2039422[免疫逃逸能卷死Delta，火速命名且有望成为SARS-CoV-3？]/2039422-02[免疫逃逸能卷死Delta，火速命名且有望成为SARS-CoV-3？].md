@@ -6624,3 +6624,24 @@ omicron虽然可能住院概率低，但是同时一群人挤爆医院还是会�
 这就是个吞吐量的问题 ...</blockquote>
 而且支气管那么多病毒，说不好肺会怎样....
 
+
+
+*****
+
+####  pushare  
+##### 2056#       发表于 2021-12-18 13:17
+
+说好优化人口结构的呢
+
+<img src="https://p.sda1.dev/3/04cb185bcbb685d235686179a5f3c5a3/IMG_CMP_201815925.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  台球论坛网友  
+##### 2057#       发表于 2021-12-18 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53985579&amp;ptid=2039422" target="_blank">RJG丶one 发表于 2021-12-18 12:24</a>
+
+lockdown就lockdown，还专门起个代号暗示说“跳闸”，成天想着合闸，可不活该被新冠爆操 ...</blockquote>
+这个circuit breaker是新加坡一直以来的提法，反正就是不承认是封城
+
