@@ -6426,3 +6426,14 @@ TGFC某些反人类ID正在庆祝出了个天然疫苗是什么情况？
 
 张文宏除了那次说的把病毒闷死的话算是准的，其他预测哪次不打脸？
 
+
+
+*****
+
+####  米村正二  
+##### 2038#       发表于 2021-12-18 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">沪上张某替白皮政府打包票不止一两次了,可惜别人不承他的情。
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

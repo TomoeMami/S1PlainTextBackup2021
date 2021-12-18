@@ -961,3 +961,28 @@ FE从觉醒，IF开始到风花雪月混的好像确实越来越好了，不过�
 
 拿加贺四处踩人的时候爽，被反噬了不也是活该<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  源頼光  
+##### 91#       发表于 2021-12-18 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53976359&amp;ptid=2042712" target="_blank">角龙大剑 发表于 2021-12-17 17:20</a>
+某论坛有人求推荐火纹，提一嘴776就被围攻，恨意真的大</blockquote>
+过街老鼠么是这样的咯
+
+*****
+
+####  头文字D  
+##### 92#       发表于 2021-12-18 09:49
+
+老加贺那么多年还坚持做游戏也不容易
+
+*****
+
+####  新田義史  
+##### 93#       发表于 2021-12-18 09:55
+
+这人当初跑路的时候手下人有跟着一起走么，和岛哥哥似的那种
+
