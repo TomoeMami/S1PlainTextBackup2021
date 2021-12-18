@@ -5171,3 +5171,15 @@ pomu也搞vrchat了，看起来效果很好</blockquote>
 &gt;Elira immediately shows a Discord/Slack/whatever interaction of him being yab</blockquote>
 11月1日毕业（这人声音像ENおばくん）
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9433#       发表于 2021-12-18 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988045&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-12-18 16:35</a>
+
+粉丝做的</blockquote>
+问，彩虹会怎么对待这个模型：1，自己做个更好的，2自己做个更差的3直接收为官方模型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

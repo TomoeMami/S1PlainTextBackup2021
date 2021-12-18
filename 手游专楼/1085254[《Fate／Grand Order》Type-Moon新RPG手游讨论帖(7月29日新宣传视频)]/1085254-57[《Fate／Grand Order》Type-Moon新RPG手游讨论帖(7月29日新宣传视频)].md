@@ -10487,3 +10487,169 @@ Aaaaaaaaaaaaaaaaa!!!
 
 又能看到隔壁发病了，樱井光干得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 84967#       发表于 2021-12-18 17:07
+
+站，不是，坐在陈宫前面的男人。
+
+*****
+
+####  黑上シグマ  
+##### 84968#       发表于 2021-12-18 17:08
+
+白圣杯……
+
+*****
+
+####  الطائر  
+##### 84969#       发表于 2021-12-18 17:10
+
+最后一张剪影果然是……
+
+*****
+
+####  exiaexa  
+##### 84970#       发表于 2021-12-18 17:11
+
+恭喜国服玩家喜提和谐一枚
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 84971#       发表于 2021-12-18 17:11
+
+不是拐，那可以跳过了
+
+*****
+
+####  白金口袋  
+##### 84972#       发表于 2021-12-18 17:11
+
+果然对付狐狸不是姜太公就是安培晴明
+
+至于那个俄罗斯的白毛妹不认识，有知识渊博的高人介绍一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84973#       发表于 2021-12-18 17:12
+
+舅舅又赢了
+
+*****
+
+####  仰望神的括约肌  
+##### 84974#       发表于 2021-12-18 17:12
+
+都是常驻 谢谢yls 等新年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 84975#       发表于 2021-12-18 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话，看到这个白毛，我的脑中闪过的是 白 上 吹 雪
+
+*****
+
+####  angelooo  
+##### 84976#       发表于 2021-12-18 17:17
+
+<blockquote>exiaexa 发表于 2021-12-18 17:11
+恭喜国服玩家喜提和谐一枚</blockquote>
+按之前一波正常人类外形和性别的男人理论上是安全的，而且国内一般是叫姜子牙，不过审核的脑子怎么想谁知道呢
+
+*****
+
+####  johnkamsar  
+##### 84977#       发表于 2021-12-18 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">emmmmm现在就剧情怎么样了…..
+
+*****
+
+####  rooarr  
+##### 84978#       发表于 2021-12-18 17:19
+
+居然是常驻，下一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 84979#       发表于 2021-12-18 17:21
+
+樱井ptsd玩家反应真的太乐了
+
+先不说姜子牙和狐狸爱恨情仇早就成了喜闻乐见的题材之一，仙界传都出了这么久别说这俩谈恋爱，月球直接整个原地结婚我都不奇怪
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 84980#       发表于 2021-12-18 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988537&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-12-18 17:11</a>
+
+果然对付狐狸不是姜太公就是安培晴明
+
+至于那个俄罗斯的白毛妹不认识，有知识渊博的高人介绍一下吗 ...</blockquote>
+[https://zh.wikipedia.org/wiki/多布雷尼亚·尼基季奇](https://zh.wikipedia.org/wiki/多布雷尼亚·尼基季奇)
+
+*****
+
+####  exiaexa  
+##### 84981#       发表于 2021-12-18 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988647&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 17:17</a>
+按之前一波正常人类外形和性别的男人理论上是安全的，而且国内一般是叫姜子牙，不过审核的脑子怎么想谁知 ...</blockquote>
+对付审核最好的办法就是凡事往坏了想，没有期待就没有伤害
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 84982#       发表于 2021-12-18 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988537&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-12-18 17:11</a>
+
+果然对付狐狸不是姜太公就是安培晴明
+
+至于那个俄罗斯的白毛妹不认识，有知识渊博的高人介绍一下吗 ...</blockquote>
+毛子传说的勇士多布瑞亚吧
+
+可以看这个动画
+
+[https://baike.baidu.com/item/%E5 ... /5280865?fr=aladdin](https://baike.baidu.com/item/%E5%A4%9A%E5%B8%83%E7%91%9E%E4%BA%9A%E5%92%8C%E9%BE%99/5280865?fr=aladdin)
+
+*****
+
+####  AbigailWilliams  
+##### 84983#       发表于 2021-12-18 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988662&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-12-18 17:18</a>
+emmmmm现在就剧情怎么样了…..</blockquote>
+谁知道呢，如果是樱井执笔，那么这姜子牙估计得拉个cp什么的？不过在现在这个玩家极度敏感拉cp的时代，樱井还能坚持也是厉害的。当然可能是霓虹本土无所谓，就国内敏感罢了。这样子就解释的通了，毕竟我看霓虹也吃樱井这一套<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84984#       发表于 2021-12-18 17:23
+
+所以白毛四星压根没人管是谁，全开始贷款樱井ptsd了23333
+
+*****
+
+####  KOBI  
+##### 84985#       发表于 2021-12-18 17:24
+
+居然是常驻？
+
+不会第二池光狐复刻吧。。。
+
+大的都等新年去了么
+

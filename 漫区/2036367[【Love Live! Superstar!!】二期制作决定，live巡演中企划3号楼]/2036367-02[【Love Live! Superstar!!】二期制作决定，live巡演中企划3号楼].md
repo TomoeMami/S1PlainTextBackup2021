@@ -6783,3 +6783,21 @@ Liyuu：『终于到了（ようやく）后半场了。』</blockquote>
 
 不过感觉她们今天都各有状态，猜是不是开始春晚、加场或者是2nd的排练了
 
+
+
+*****
+
+####  仟音一心  
+##### 2090#       发表于 2021-12-18 17:14
+
+信号满格
+
+BF8E832F-952C-4BB2-9E53-5057A1B882A1.jpeg
+(200.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202112/18/171451fnhymy2xovzrmar5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
