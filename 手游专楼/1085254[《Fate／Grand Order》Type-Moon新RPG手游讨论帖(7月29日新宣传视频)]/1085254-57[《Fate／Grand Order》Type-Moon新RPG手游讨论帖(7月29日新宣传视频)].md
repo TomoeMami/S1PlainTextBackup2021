@@ -10653,3 +10653,214 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 大的都等新年去了么
 
+
+
+*****
+
+####  白金口袋  
+##### 84986#       发表于 2021-12-18 17:24
+
+<img src="https://img.saraba1st.com/forum/202112/18/032403hbs1nvoqjoq0qgd2.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211218032315.png</strong> (4.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 17:24 上传
+
+该说是古人想象力丰富吗，这屠龙故事比想象中还要无厘头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 84987#       发表于 2021-12-18 17:24
+
+常驻还行，还有可能是冠位吗
+
+*****
+
+####  angelooo  
+##### 84988#       发表于 2021-12-18 17:25
+
+<blockquote>exiaexa 发表于 2021-12-18 17:21
+樱井ptsd玩家反应真的太乐了
+
+先不说姜子牙和狐狸爱恨情仇早就成了喜闻乐见的题材之一，仙界传都出了这么久 ...</blockquote>
+所以我在隔壁拱火建议他们先去冲藤崎龙，不过我开始怀疑该不会有人没看过吧23333
+
+*****
+
+####  AbigailWilliams  
+##### 84989#       发表于 2021-12-18 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988698&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-18 17:21</a>
+樱井ptsd玩家反应真的太乐了
+
+先不说姜子牙和狐狸爱恨情仇早就成了喜闻乐见的题材之一，仙界传都出了这么久 ...</blockquote>
+霓虹我不清楚，国内现在极度敏感拉cp，不管什么手游，无论男女角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这操作就是个炸药桶，做出个好cp赚不到多少，炸了就全完了。不过fgo无所谓国内什么情况就是了。
+
+*****
+
+####  AbigailWilliams  
+##### 84990#       发表于 2021-12-18 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988698&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-18 17:21</a>
+樱井ptsd玩家反应真的太乐了
+
+先不说姜子牙和狐狸爱恨情仇早就成了喜闻乐见的题材之一，仙界传都出了这么久 ...</blockquote>
+更何况月球还是个敢两头吃的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  gary76  
+##### 84991#       发表于 2021-12-18 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988750&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 17:25</a>
+所以我在隔壁拱火建议他们先去冲藤崎龙，不过我开始怀疑该不会有人没看过吧23333 ...</blockquote>
+當然有可能沒看過
+
+*****
+
+####  gpx234mqx  
+##### 84992#       发表于 2021-12-18 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988739&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-12-18 17:24</a>
+
+该说是古人想象力丰富吗，这屠龙故事比想象中还要无厘头</blockquote>
+话说第一部的史比特瓦根也说能用帽子切掉jojo手臂啊
+
+是那总有刀刃的帽子吧
+
+*****
+
+####  gpx234mqx  
+##### 84993#       发表于 2021-12-18 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988729&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 17:23</a>
+
+所以白毛四星压根没人管是谁，全开始贷款樱井ptsd了23333</blockquote>
+毛子传说真的一点人气也没有<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 84994#       发表于 2021-12-18 17:28
+
+<blockquote>AbigailWilliams 发表于 2021-12-18 17:25
+霓虹我不清楚，国内现在极度敏感拉cp，不管什么手游，无论男女角色这操作就是个炸药桶，做出个好c ...</blockquote>
+我们楼上还在讨论和谐改名的事，万一不小心中了那基本不就变成和她拉cp的是xxx关姜子牙什么事23333
+
+*****
+
+####  الطائر  
+##### 84995#       发表于 2021-12-18 17:28
+
+仔细看了下新礼装，陈宫让韦伯解的是象棋残局——七星聚会
+
+*****
+
+####  莫夜戎  
+##### 84996#       发表于 2021-12-18 17:29
+
+这次是跟狐狸一块打姜太公吗？如果是的话我还小小期待一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超阳电子炮  
+##### 84997#       发表于 2021-12-18 17:30
+
+怎么还不到下周三，姜子牙好好看<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 84998#       发表于 2021-12-18 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988816&amp;ptid=1085254" target="_blank">莫夜戎 发表于 2021-12-18 17:29</a>
+
+这次是跟狐狸一块打姜太公吗？如果是的话我还小小期待一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">都狐狸歼灭作战了，你还要反过来打姜太公…………
+
+*****
+
+####  exiaexa  
+##### 84999#       发表于 2021-12-18 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988757&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-12-18 17:25</a>
+霓虹我不清楚，国内现在极度敏感拉cp，不管什么手游，无论男女角色这操作就是个炸药桶，做出个好c ...</blockquote>
+国内这风气早他妈畸形了
+
+一个作家写什么是他的自由，你不喜欢你别氪就行了，氪金量才是人家实打实的统计数据，非要边骂边买，买了还要安慰自己我都是给我喜欢的xxx氪金嘤嘤嘤
+
+与其说什么不喜欢某某cp，不如说是不喜欢不和自己意的cp，就跟在一个日本游戏里骂别人为什么日本从者这么多/天朝从者待遇不行一样莫名其妙
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 85000#       发表于 2021-12-18 17:32
+
+年一姜子牙X狐狸了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 85001#       发表于 2021-12-18 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988852&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-18 17:32</a>
+国内这风气早他妈畸形了
+
+一个作家写什么是他的自由，你不喜欢你别氪就行了，氪金量才是人家实打实的统计 ...</blockquote>
+反正我早就无所谓了，月球上只有霓虹，其他地方什么反响重要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85002#       发表于 2021-12-18 17:36
+
+我还是挺喜欢姜子牙和狐狸cp的，这无论如何都算不上乱凑，这cp都多少人写过了，樱井的乱凑cp都是第一次出现的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 85003#       发表于 2021-12-18 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988726&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-12-18 17:23</a>
+谁知道呢，如果是樱井执笔，那么这姜子牙估计得拉个cp什么的？不过在现在这个玩家极度敏感拉cp的时代，樱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">反正别跟我之前在楼里说的那样就行，不然就他妈我跳进粪海洗不清了！
+
+*****
+
+####  shqingda_  
+##### 85004#       发表于 2021-12-18 17:39
+
+最古钓鱼佬
+
+*****
+
+####  AbigailWilliams  
+##### 85005#       发表于 2021-12-18 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988938&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-12-18 17:38</a>
+反正别跟我之前在楼里说的那样就行，不然就他妈我跳进粪海洗不清了！ ...</blockquote>
+说了什么啊，让我回顾一下<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85006#       发表于 2021-12-18 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988913&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-18 17:36</a>
+我还是挺喜欢姜子牙和狐狸cp的，这无论如何都算不上乱凑，这cp都多少人写过了，樱井的乱凑cp都是第一次出现 ...</blockquote>
+我摊牌了，我也喜欢，都特么怪藤崎龙
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85007#       发表于 2021-12-18 17:44
+
+不过现在透露的这些料和pv看下来没街机大，我的心里只有巴比伦大淫 妇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

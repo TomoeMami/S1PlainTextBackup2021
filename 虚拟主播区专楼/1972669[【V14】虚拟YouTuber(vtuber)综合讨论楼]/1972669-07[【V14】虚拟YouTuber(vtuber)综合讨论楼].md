@@ -5183,3 +5183,30 @@ pomu也搞vrchat了，看起来效果很好</blockquote>
 粉丝做的</blockquote>
 问，彩虹会怎么对待这个模型：1，自己做个更好的，2自己做个更差的3直接收为官方模型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 9434#       发表于 2021-12-18 17:26
+
+千条亚里亚12.29毕业
+[https://twitter.com/AirontheString/status/1472129670581977088](https://twitter.com/AirontheString/status/1472129670581977088)
+
+<img src="https://img.saraba1st.com/forum/202112/18/172620kombfq0wyf8qw0m8.jpg" referrerpolicy="no-referrer">
+
+<strong>千条.jpg</strong> (177.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-18 17:26 上传
+
+*****
+
+####  OldGlory  
+##### 9435#       发表于 2021-12-18 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53988374&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-18 17:01</a>
+问，彩虹会怎么对待这个模型：1，自己做个更好的，2自己做个更差的3直接收为官方模型 ...</blockquote>
+4：没有给en3d的计划
+
