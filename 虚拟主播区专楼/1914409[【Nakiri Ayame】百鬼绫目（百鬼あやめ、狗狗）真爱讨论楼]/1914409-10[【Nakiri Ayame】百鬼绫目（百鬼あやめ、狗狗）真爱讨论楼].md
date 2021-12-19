@@ -2788,3 +2788,12 @@ syl 昨天live都没请人画图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">绫总这偷吃的有点多啊
 
+
+
+*****
+
+####  越动天下  
+##### 13779#       发表于 2021-12-20 00:08
+
+直播时又说了有5 6个封面 晚上没事就做<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -8767,3 +8767,42 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 -Your Jesus was in Jerusalem.
 
+
+
+*****
+
+####  名津流  
+##### 2251#       发表于 2021-12-20 00:04
+
+<img src="https://img.saraba1st.com/forum/202112/20/000428d133z319l3hgfzfe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 00:04 上传
+
+全站在线人数排行进了前十
+
+*****
+
+####  名津流  
+##### 2252#       发表于 2021-12-20 00:11
+
+ 本帖最后由 名津流 于 2021-12-20 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007703&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-19 23:13</a>
+
+话说谁能告诉我下寂寞爱在国内是什么梗吗？</blockquote>
+曜和善子的一首歌：
+
+地元愛 ♥ 満タン☆サマーライフ
+
+地元爱 就是读作 ジモアイ 寂寞爱，可以看看2:10秒处：[https://www.bilibili.com/video/BV1EA411Y7L1](https://www.bilibili.com/video/BV1EA411Y7L1)
+
+*****
+
+####  remedios010000  
+##### 2253#       发表于 2021-12-20 00:21
+
+这个点了甚至还有3000多人在看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
