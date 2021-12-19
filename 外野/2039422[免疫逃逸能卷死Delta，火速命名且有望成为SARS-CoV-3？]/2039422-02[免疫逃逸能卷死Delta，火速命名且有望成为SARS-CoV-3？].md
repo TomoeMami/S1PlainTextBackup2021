@@ -6947,3 +6947,28 @@ Basically everyone I know in the city has tested positive, myself included, but 
 按照人类数次大 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">印度 确实基本让全民都有抗体的
 
+
+
+*****
+
+####  钢铁之魂  
+##### 2087#       发表于 2021-12-19 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53998617&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-19 10:54</a>
+毒力减轻就是有抗体的人越来越多了，对于没有保护能力的人还是很厉害。国外要不都感染的，要不都打疫苗了 ...</blockquote>
+这种抗体没意义的，病毒一个血清分型就可以让一切回到原点。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  wszweill  
+##### 2088#       发表于 2021-12-19 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53998351&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-18 21:21</a>
+
+圣诞节本来要关门，应该是封店封校最好的时候了。
+
+听起来很难听，但是商业损失最小。和我们过年类似。</blockquote>
+不是，圣诞节当天关门，但是节日前后一直是旅游购物高峰呀，要不然圣诞打折打了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 欧美人很逗都连着圣诞-新年+年假凑个小长假happy的，他封城封到1月月中。。
+
