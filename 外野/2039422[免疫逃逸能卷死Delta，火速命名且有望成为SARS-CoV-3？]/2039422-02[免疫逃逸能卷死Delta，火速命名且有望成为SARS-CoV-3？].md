@@ -7030,3 +7030,58 @@ COVID-19研究专家剑桥大学Gupta构建了Omicron假病毒感染肺泡类器
 这个研究有趣的是对delta的感染力和香港的不一样
 [https://www.citiid.cam.ac.uk/wp- ... S-OMICRON-PAPER.pdf](https://www.citiid.cam.ac.uk/wp-content/uploads/2021/12/FIGURES-OMICRON-PAPER.pdf)
 
+
+
+*****
+
+####  smy20011  
+##### 2093#       发表于 2021-12-19 12:53
+
+<img src="https://img.saraba1st.com/forum/202112/19/125240t80eahuf0wa3f3cm.jpg" referrerpolicy="no-referrer">
+
+<strong>670a19b6gy1gxizfc66cyj211a0q0k0x.jpg</strong> (113 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 12:52 上传
+
+丹麦的数据,看起来delta和omicron差不了多少,但是丹麦的delta病死率怎么才万分之七?
+
+*****
+
+####  creymorgan  
+##### 2094#       发表于 2021-12-19 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53999582&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-19 12:26</a>
+
+拍总新发的图有点意思
+
+黑线是荷兰每日新增确诊中SGTF比例随时间变化的比例，左边是未接种组，右边是完全接 ...</blockquote>
+负数保护力，这是确定有ADE了吧。
+
+*****
+
+####  configxxxx  
+##### 2095#       发表于 2021-12-19 13:01
+
+上次西班牙大流感的时候飞机还可以约等于没有呢，哪有现在这种规模的人员流动
+
+*****
+
+####  最好不说  
+##### 2096#       发表于 2021-12-19 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54000029&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-19 12:58</a>
+
+负数保护力，这是确定有ADE了吧。</blockquote>
+AZ面对delta的免疫逃逸率就很高，碰到omicron一转内鬼也不是不可能
+
+*****
+
+####  smy20011  
+##### 2097#       发表于 2021-12-19 13:03
+
+Biden's vaccine mandate applies to CDC employees, but not members of Congress
+
+Washington state Sen. Doug Ericksen dies after COVID battle
+
