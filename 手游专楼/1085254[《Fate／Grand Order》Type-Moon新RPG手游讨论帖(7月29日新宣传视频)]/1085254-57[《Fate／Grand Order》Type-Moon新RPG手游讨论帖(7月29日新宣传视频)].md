@@ -11808,3 +11808,12 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 你这么豹竟然没妖兰可还行</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你什么时候产生了萌新豹的幻觉
 
+
+
+*****
+
+####  alucardcz  
+##### 85100#       发表于 2021-12-19 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">无事发生 这合理吗
+

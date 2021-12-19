@@ -8483,3 +8483,107 @@ staff以后多注意吧，还想说录播的话也许能隔绝烂梗小鬼
 
 看了个开头就快笑死了，菜宝还好，鱼果然还是母语放得开
 
+
+
+*****
+
+####  Norkey1  
+##### 2229#       发表于 2021-12-19 23:07
+
+实际上这次拉新人的意图挺明显的，基本上一半时间都在介绍企划了。路人说不定还真只知道这两个梗，应该也是有这方面的考量了。
+不过既然核心粉丝不喜欢，官方这么做还是有点捡了芝麻的意思了
+
+*****
+
+####  黑雪姫  
+##### 2230#       发表于 2021-12-19 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007613&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-12-19 23:07</a>
+
+实际上这次拉新人的意图挺明显的，基本上一半时间都在介绍企划了。路人说不定还真只知道这两个梗，应该也是 ...</blockquote>
+这种程度西瓜不会因为梗小鬼几句话就自己跑了。
+
+*****
+
+####  qratosone  
+##### 2231#       发表于 2021-12-19 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007613&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-12-19 23:07</a>
+
+实际上这次拉新人的意图挺明显的，基本上一半时间都在介绍企划了。路人说不定还真只知道这两个梗，应该也是 ...</blockquote>
+核心粉丝巴不得变成常驻节目呢，又不会因为这么点事脱粉
+
+*****
+
+####  Norkey1  
+##### 2232#       发表于 2021-12-19 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007668&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-19 23:11</a>
+这种程度西瓜不会因为梗小鬼几句话就自己跑了。</blockquote>
+所以我才没说下一句嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2233#       发表于 2021-12-19 23:12
+
+反正那个烂梗也是最后了一段了，怕不是故意的。
+
+这次播放量真的不错，爱生活没官方号也是因为国内版权一直没办法敲定吧，又是烂铁又是日升什么的，财团b内斗问题也算传统了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  黑雪姫  
+##### 2234#       发表于 2021-12-19 23:13
+
+话说谁能告诉我下寂寞爱在国内是什么梗吗？
+
+*****
+
+####  中野四葉  
+##### 2235#       发表于 2021-12-19 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007703&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-19 23:13</a>
+话说谁能告诉我下寂寞爱在国内是什么梗吗？</blockquote>
+JIMO-AI Dash!
+
+*****
+
+####  ads147147  
+##### 2236#       发表于 2021-12-19 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007703&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-19 23:13</a>
+
+话说谁能告诉我下寂寞爱在国内是什么梗吗？</blockquote>
+日语发音中文谐音梗吧。。大概只是鲤鱼口不择言了（
+
+*****
+
+####  tamatama  
+##### 2237#       发表于 2021-12-19 23:17
+
+杨明同学是可香党啊...
+
+*****
+
+####  黑雪姫  
+##### 2238#       发表于 2021-12-19 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007721&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-19 23:14</a>
+
+日语发音中文谐音梗吧。。大概只是鲤鱼口不择言了（</blockquote>
+是吗？ 我看菜宝吐槽说是官方节目，我还以为是啥黄梗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2239#       发表于 2021-12-19 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007769&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-19 23:18</a>
+是吗？ 我看菜宝吐槽说是官方节目，我还以为是啥黄梗</blockquote>
+本来就有点那方面暗示的词语了，这个不是中国人秒懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
