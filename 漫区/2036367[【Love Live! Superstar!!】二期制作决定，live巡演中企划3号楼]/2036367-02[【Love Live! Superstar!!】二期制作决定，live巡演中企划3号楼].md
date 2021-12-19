@@ -7620,3 +7620,117 @@ syl，朋友：这节目不带字幕有点看不懂
 
 坏了，我有点母语羞涩了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 2144#       发表于 2021-12-19 19:21
+
+这两自己直播时挺正常的，上节目是用了点营业音吧，听着确实有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 2145#       发表于 2021-12-19 19:23
+
+完全变成两个重度LLer对谈了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2146#       发表于 2021-12-19 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是两个阿宅尬聊啊
+
+*****
+
+####  chenflyyy  
+##### 2147#       发表于 2021-12-19 19:26
+
+原来经典staff笑在，菜宝模仿小鸟声时他笑了（前面不笑是听不懂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 2148#       发表于 2021-12-19 19:28
+
+B站评论没有STUFF，因为STUFF就在台上啊
+
+音响协力：法元明菜
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 2149#       发表于 2021-12-19 19:28
+
+这个节目比日语生放说话要接地气啊，难道是听母语的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+阿宅对谈的感觉（？）
+
+*****
+
+####  ReginaldMorgan  
+##### 2150#       发表于 2021-12-19 19:30
+
+21:40，因为想不起来中文被迫说日语的鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2151#       发表于 2021-12-19 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两互损笑死了
+
+*****
+
+####  ReginaldMorgan  
+##### 2152#       发表于 2021-12-19 19:35
+
+菜：钟岚珠身高是165
+
+鱼：大概跟我差不多高吧
+
+菜：你有这么高吗？
+
+鱼：我167唉，你好歹看一下我的资料好嘛
+
+…………
+
+菜：看liella生放松的时候你就是那个高出来的感觉，好好笑哦哈哈哈哈
+
+鱼：……
+
+菜：唉你怎么这个表情啊
+
+鱼：好笑吗？
+
+菜：（低头看台本）我觉得好好笑哦，好……（抬头看到了鲤鱼）哦没什么
+
+鱼：好笑吗？
+
+菜：啊不不不
+
+鱼：好笑吗？真的吗？
+
+菜：不好笑不好笑
+
+鱼：好笑吗？真的吗？嗯？
+
+有队霸兄弟们
+
+*****
+
+####  lj205  
+##### 2153#       发表于 2021-12-19 19:37
+
+我要笑疯了，欺负官方听不懂中文是吧？各种放飞
+
+*****
+
+####  HGCG2  
+##### 2154#       发表于 2021-12-19 19:37
+
+你的妈在上海
+
