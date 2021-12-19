@@ -7148,3 +7148,12 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 它是指的是上面那个图，两针对o病毒的抗性，注意左边坐标</blockquote>
 如果没看错的话，这是pcr脱靶（o变种）感染，占所有阳性的比例。这玩意和ade差了不少。。
 
+
+
+*****
+
+####  charse2r  
+##### 2104#       发表于 2021-12-19 17:39
+
+说是南非已经开始死亡率下降了?
+
