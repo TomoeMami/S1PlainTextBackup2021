@@ -11817,3 +11817,13 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">无事发生 这合理吗
 
+
+
+*****
+
+####  zakki  
+##### 85101#       发表于 2021-12-19 23:54
+
+越来越觉得这次活动不是一般的活动形式，首先是时间，下周三开，一般如果开两周就跨了新年了，目前还从没出现过这种情况。然后是，讨伐战开的时间很微妙，一般活动讨伐战都是将近一周后才开，这次第二天就开。还有就是全常驻的一池。再者活动竟然会提前up常驻礼装<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我觉得这次活动就是类似终章形式的活动式主线，22号开一部分剧情，26号开剩余的剧情，然后二期卡池放到新年，活动金银铜材料都不见得有
+

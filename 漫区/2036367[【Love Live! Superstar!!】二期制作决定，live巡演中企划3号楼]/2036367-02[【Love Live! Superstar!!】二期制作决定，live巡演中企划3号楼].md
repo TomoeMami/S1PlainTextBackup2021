@@ -8642,3 +8642,128 @@ PS：第三封信真是过分了   鲤鱼都不念名字了。
 
 菜宝这个复读也太谐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 2244#       发表于 2021-12-19 23:42
+
+“每听到一句暴言就记一下，没想到这么多——
+我是纯上海人
+这个视频我已经看了100次了
+我的妈呀
+哎呦我的妈
+应该知道的朋友已经看了100来次了吧，就是我们的live和什么来着？
+要哭了崽们
+那个声音我脑子都要融化了
+我喜欢的有点多
+Lovelive！sunshine！！的魅力是什么？台本上写了
+这个袜子要腿多细的人才能穿。对的对的，要是现实中的人穿这袜子就是真的要什么啦
+我喜欢的都是那种听着脑子要融化的，都是那种角色
+好喜欢可爱的妹子啊
+我很努力，算了，我不能这么说自己
+这个是官方的节目，你不要乱说
+没啊，现在这里就我们2个人可以说啊？我们2个人在这里说了可是这个会播出去啊，你懂吗
+你这就是说别的团体都不好吗？不是，不是，你不能这样说的呀。
+我不知道中文怎么说。我也不知道中文怎么说。
+各种各样的妹子让你选是吧！这句话不太好吧
+不太好，不太好，大家请忘了这句话
+好性感呃，那个腿，那个肩膀
+反正就是很有钱。很有钱？哦
+岚珠什么时候请可可吃饭？那我请你吃肉
+身高是165。那和我差不多高呢。哦，你真的有这么高？我有一米67
+我觉得好好笑，（看了一眼鲤鱼）没事。好笑吗？不不不。好笑吗？
+你还没有加入。我是简体版没有加入而已，日本版已经加入了好吗？你还没有加入。
+你就不要欺负我了好吧？谁让你刚刚说我个很大。
+好怀念哦我的妈。你的妈在上海。
+你的作文能力真的好强哦
+可香，可香。突然？
+你喜欢唐可可的哪一点？就是她行动之前要思考很多东西啊。你为什么要重复我的话！
+你不能做一个复读机。
+就是因为她好看！我喜欢她的脸，好看哦！就没有更深层次一点的东西吗？你的脸我也很喜欢，好看哦。
+那么多年轻的女孩子做出这么性感的表情真的是。
+你要相信我，你不要怀疑我啊
+我的一世英名就毁在这里了。
+果然我魅力无限啊。哦你这样理解也行。
+无花果好吃吗？什么味啊?水果味。”
+转自微博
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  HGCG2  
+##### 2245#       发表于 2021-12-19 23:43
+
+“日语字幕看来要请她们两个自己翻了” ​​​​
+
+<img src="https://img.saraba1st.com/forum/202112/19/234354ewxg2w5whgyj4jzg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 23:43 上传
+
+*****
+
+####  普之舜舜  
+##### 2246#       发表于 2021-12-19 23:51
+
+ 本帖最后由 普之舜舜 于 2021-12-19 23:52 编辑 
+
+这个是今晚的菜包鲤鱼交流视频，你们要看的可以保存下（原视频链接 ：https://m.bilibili.com/video/BV1ZZ4y1Q7bc ）
+
+「LL中国向け番組_1218.mp4」，点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载极速在线查看，视频原画倍速播放。
+链接：https://www.aliyundrive.com/s/sHfqJ9bX5jT
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  saverok  
+##### 2247#       发表于 2021-12-19 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草  这个生放感觉已经到了立本人难以理解的高度了，就算加上字幕
+
+*****
+
+####  普之舜舜  
+##### 2248#       发表于 2021-12-19 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打链接怎么打的呀？把链接放在中间都不可以，不知道什么原因
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cqc1021  
+##### 2249#       发表于 2021-12-19 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007813&amp;ptid=2036367" target="_blank">无聊的我 发表于 2021-12-19 23:21</a>
+
+话说 国外制作的国人演出的中文节目   然后类似国内网站发行播出。
+
+这种模式 深究的话 郭嘉焚化局会禁止播 ...</blockquote>
+想多了，阿B几年前就搞过了。乃木坂46成员跟唱青驱主题曲的晓月凛（中国人）尬聊冻鳗话题，制作方是吉本，播出形式还是直播。
+
+*****
+
+####  名津流  
+##### 2250#       发表于 2021-12-19 23:55
+
+我觉得这里需要个注释才好翻译
+
+- Liyuu: It's nostalgic. Oh my mom . (the Chinese slang Version of "oh my god")
+
+- Homin: Your mom is in Shanghai.
+
+- Liyuu: <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+或者不直译，用意译的方法：
+
+-Oh，my Jesus! it's so nostalgic.
+
+-Your Jesus was in Jerusalem.
+
