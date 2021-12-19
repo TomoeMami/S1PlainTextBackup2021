@@ -7792,3 +7792,88 @@ B站评论没有STUFF，因为STUFF就在台上啊
 这句话在哪来着，没太注意到</blockquote>
 介绍星团那里，鲤鱼一直我的妈啊，菜宝来了一句你的妈在上海
 
+
+
+*****
+
+####  Norkey1  
+##### 2162#       发表于 2021-12-19 20:07
+
+乐死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这节目还会有吗
+
+*****
+
+####  稀勢のささ  
+##### 2163#       发表于 2021-12-19 20:08
+
+忘 看 了
+
+*****
+
+####  chenflyyy  
+##### 2164#       发表于 2021-12-19 20:12
+
+怎么还有来信人叫口水巾的，问的问题也是辣炒米粉，烂梗集合了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 2165#       发表于 2021-12-19 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54005064&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-19 20:12</a>
+
+怎么还有来信人叫口水巾的，问的问题也是辣炒米粉，烂梗集合了属于是菜宝都说为什么staff选这封信的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有一种可能是没得选
+
+*****
+
+####  ykyin09  
+##### 2166#       发表于 2021-12-19 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">妈的这节目全是事故
+
+*****
+
+####  cybernetics31  
+##### 2167#       发表于 2021-12-19 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真的能放给日本人看吗 那个烂梗信日本人肯定完全看不懂阿 staff咋选的
+
+*****
+
+####  lj205  
+##### 2168#       发表于 2021-12-19 20:16
+
+我都要笑疯了，每一分钟都是梗，快点出相声组合啊喂！第二期给我搞快点！
+
+*****
+
+####  lj205  
+##### 2169#       发表于 2021-12-19 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54005088&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2021-12-19 20:13</a>
+
+有没有一种可能是没得选</blockquote>
+我问的明明都很正常，让她们互相推荐自己喜欢的美食，这么正常的问题都没被选上，绝壁是官方有傻逼
+
+*****
+
+####  chenflyyy  
+##### 2170#       发表于 2021-12-19 20:18
+
+看完有点理解为什么日文字幕要那么久了，翻译难度确实有点大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 2171#       发表于 2021-12-19 20:19
+
+赶紧第二期吧，孩子等不及了
+
+*****
+
+####  cybernetics31  
+##### 2172#       发表于 2021-12-19 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
