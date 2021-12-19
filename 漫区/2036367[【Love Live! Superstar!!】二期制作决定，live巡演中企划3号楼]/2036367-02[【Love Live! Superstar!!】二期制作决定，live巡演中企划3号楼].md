@@ -8828,3 +8828,28 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了 没有故事 全是事故
 
+
+
+*****
+
+####  player3960  
+##### 2256#       发表于 2021-12-20 00:46
+
+一晚上看了快三遍了，大半夜笑的停不下来，鲤鱼拱火真的行，团霸人设进一步加强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 2257#       发表于 2021-12-20 00:57
+
+我也是看了好多遍 甚至开始担心官方能不能翻译好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 2258#       发表于 2021-12-20 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来有人在给staff桑同步翻译啊（大致内容），所以爽朗的笑声有些延迟
+
