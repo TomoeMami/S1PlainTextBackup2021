@@ -7877,3 +7877,53 @@ B站评论没有STUFF，因为STUFF就在台上啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2173#       发表于 2021-12-19 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“LLSS的魅力是什么 哦台本上写了”
+
+*****
+
+####  qratosone  
+##### 2174#       发表于 2021-12-19 20:26
+
+虹团的魅力
+
+（指菜宝现场表演夹脚）
+
+*****
+
+####  氯化磷君  
+##### 2175#       发表于 2021-12-19 20:29
+
+开场还担心两个人没得聊，一到介绍环节就嗨起来了，你们俩是真的很敢说哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 2176#       发表于 2021-12-19 20:35
+
+1个小时的节目我看了1个半小时 暂停时间笑半小时
+
+*****
+
+####  qratosone  
+##### 2177#       发表于 2021-12-19 20:37
+
+饿年级可还行，菜宝没有现场说粤语真是太可惜了
+
+*****
+
+####  player3960  
+##### 2178#       发表于 2021-12-19 20:38
+
+太搞笑了，还是母语生放有意思，各种梗接地气，就是不知道官方的反向烤肉能不能很好的传递内容<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

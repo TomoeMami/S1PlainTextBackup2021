@@ -11729,3 +11729,27 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 话说姜子牙应该没有神性，毕竟封神榜都没他名字，如果实装了有神性被动就贻笑大方了。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85094#       发表于 2021-12-19 20:33
+
+ 本帖最后由 gpx234mqx 于 2021-12-19 20:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992971&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 21:54</a>
+
+眯眯眼不是被喷的根本原因，丑才是（不
+
+看pv月球四不像搞不好是那群长着羊角兔耳虎尾鸟腿的生物而不是麋 ...</blockquote>
+这个不是眯眯眼，是狐狸眼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+601017433.jpg
+(14.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 20:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/203542j142u4zdtqz0dq2a.jpg" referrerpolicy="no-referrer">
+
