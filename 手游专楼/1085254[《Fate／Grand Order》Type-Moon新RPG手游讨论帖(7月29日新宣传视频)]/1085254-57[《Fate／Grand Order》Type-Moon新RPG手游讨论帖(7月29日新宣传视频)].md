@@ -11753,3 +11753,12 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 <img src="https://img.saraba1st.com/forum/202112/19/203542j142u4zdtqz0dq2a.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85095#       发表于 2021-12-19 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天晚上最后3石 这是不是妖兰最后的机会了
+

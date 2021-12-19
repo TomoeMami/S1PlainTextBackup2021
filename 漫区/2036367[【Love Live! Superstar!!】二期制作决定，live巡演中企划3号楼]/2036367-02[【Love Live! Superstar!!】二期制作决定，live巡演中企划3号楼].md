@@ -8005,3 +8005,51 @@ as里有不少新发型，新出的一个很像爱姐的单马尾卷发，很棒
 
 菜宝去阿部敦节目作嘉宾那个发型好看啊，企划发型真的不太行
 
+
+
+*****
+
+####  黑雪姫  
+##### 2187#       发表于 2021-12-19 21:30
+
+鲤鱼那个中文可可自我介绍配音腔水平蛮高的，之前有传鲤鱼有普通话二甲证看样也不是空穴来风
+
+*****
+
+####  sjbssd  
+##### 2188#       发表于 2021-12-19 21:31
+
+菜包！鲤鱼！呜呜呜呜，太好了e<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjbssd  
+##### 2189#       发表于 2021-12-19 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54005064&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-19 20:12</a>
+
+怎么还有来信人叫口水巾的，问的问题也是辣炒米粉，烂梗集合了属于是菜宝都说为什么staff选这封信的 ...</blockquote>
+大概是这个梗只有中国粉丝懂吧，估计是想让日本那边的粉丝也知道这个梗吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2190#       发表于 2021-12-19 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54006226&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-19 21:30</a>
+
+鲤鱼那个中文可可自我介绍配音腔水平蛮高的，之前有传鲤鱼有普通话二甲证看样也不是空穴来风 ...</blockquote>
+她亲口说的拿普通话二甲…………………………………不用怀疑…………………………………
+
+
+
+*****
+
+####  黑雪姫  
+##### 2191#       发表于 2021-12-19 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54006292&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-19 21:35</a>
+
+她亲口说的拿普通话二甲…………………………………不用怀疑………………………………… ...</blockquote>
+具体她在哪里说的发一下吗，一直有人在传，但我一直找不到确切论证。
+
