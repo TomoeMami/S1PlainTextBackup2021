@@ -8111,3 +8111,172 @@ as里有不少新发型，新出的一个很像爱姐的单马尾卷发，很棒
 
 我都觉得官方有故意搞事的人
 
+
+
+*****
+
+####  stygian  
+##### 2199#       发表于 2021-12-19 22:05
+
+一小时？不是说半小时么，这么好。。。我还在看m1反省会，晚点再补
+
+*****
+
+####  仟音一心  
+##### 2200#       发表于 2021-12-19 22:10
+
+ 本帖最后由 仟音一心 于 2021-12-19 22:16 编辑 
+
+LoveLive! Series Presents ～初次见面　岚珠和可可的特别节目～
+
+谢谢大家的观看哦[太开心]跟鲤鱼一起的节目真的超开心🥳
+
+希望大家也看的开心！能更加喜欢上lovelive系列[爱你]
+
+#法元明菜[超话]# 
+
+FE2440FD-758E-4DDA-BB55-978C208AD755.jpeg
+(884.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221017ro8dzwg8pijpjdqp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F550713D-F994-4561-932D-0D5149D9BD91.jpeg
+(312.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221017qw4xac74vdo4o86i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CB762FA8-2921-4F0B-9CEB-746A7E7700F0.jpeg
+(1.01 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221622l103u4ejpngkkkek.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BB3B491D-FEB5-4F23-87EC-487F89689953.jpeg
+(1.11 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221622pz1nv187j7npqj1f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 2201#       发表于 2021-12-19 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54006403&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-19 21:42</a>
+
+某次直播，有空可以全翻出来复习一下</blockquote>
+贴吧里有好心人给出答案了 [https://www.bilibili.com/video/BV1t44y1i7od](https://www.bilibili.com/video/BV1t44y1i7od)
+
+*****
+
+####  chenflyyy  
+##### 2202#       发表于 2021-12-19 22:12
+
+鲤鱼这手指怎么怪怪的
+
+*****
+
+####  仟音一心  
+##### 2203#       发表于 2021-12-19 22:13
+
+#Liyuu[超话]# ✨「LoveLive! Series Presents ～初次见面　岚珠和可可的特别节目～」
+
+谢谢大家的观看！！！
+
+第一次和菜宝做这样的节目都非常紧张也非常激动！希望能成为固定节目呀[可怜][可怜][可怜] 
+
+C149E1B5-52AD-41FA-BE40-FDE1EEDD9C68.jpeg
+(698.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221347lnlql45qfly2joz1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4F6CBBF2-8291-4815-93F5-E721E1E26B6D.jpeg
+(752.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221347zkmn6b3r7npmndzd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6BE0BE9F-C29A-4531-B5C0-AB9093B2D0F6.jpeg
+(825.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221347e1bcookk5jbo11jv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2204#       发表于 2021-12-19 22:17
+
+ 本帖最后由 优妮可 于 2021-12-19 22:20 编辑 
+
+这次烂梗大伙都怒了，以后会小鬼会收敛了吧
+
+20211219_221549.jpg
+(478.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221657egj0yly1p0jrxpyd.jpg" referrerpolicy="no-referrer">
+
+20211219_221547.jpg
+(434.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221657ecuhuiezr5yyrrzs.jpg" referrerpolicy="no-referrer">
+
+20211219_221604.jpg
+(402.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221657q8wpy4jcraa0ddya.jpg" referrerpolicy="no-referrer">
+
+20211219_221611.jpg
+(527.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/221658shcywjwtt5roo3j3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 2205#       发表于 2021-12-19 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
