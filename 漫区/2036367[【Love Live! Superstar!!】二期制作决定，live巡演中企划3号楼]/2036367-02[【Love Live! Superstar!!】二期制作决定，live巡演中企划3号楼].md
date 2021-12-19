@@ -8385,3 +8385,101 @@ Akina:  Your mom is in Shanghai.
 还能有啥活动 要说ll的活动那就是演唱会 然而现在可能吗（
 不过BMLSP转远程LV模式了 可以期待下明年会不会有Liella
 
+
+
+*****
+
+####  蛋疼三四郎  
+##### 2218#       发表于 2021-12-19 22:40
+
+说实话，这种在友好的氛围下相互损队友相互抬杠拱火有来有回的企划，真的比日本本土的活动有意思多了，大家彼此都很了解对方的限度这个默契，并且不是那种为了树人设而人设演出的互动就很欢乐
+
+*****
+
+####  chenflyyy  
+##### 2219#       发表于 2021-12-19 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007279&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-19 22:39</a>
+还能有啥活动 要说ll的活动那就是演唱会 然而现在可能吗（
+不过BMLSP转远程LV模式了 可以期待下明年会不会 ...</blockquote>
+我是想着至少要有个稳定运营的官方号吧，现在没有还要到处ban别人的视频真的很难懂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L7lv6  
+##### 2220#       发表于 2021-12-19 22:47
+
+<blockquote>lj205 发表于 2021-12-19 21:58
+我都觉得官方有故意搞事的人</blockquote>
+有没有一种可能，官方里也有烂梗小鬼
+
+
+
+*****
+
+####  cybernetics31  
+##### 2221#       发表于 2021-12-19 22:49
+
+企划先来个叔叔家官方账号再说吧，搁那远程打版权炮，每次生放都要用个秋叶原名字的账号太怪了也
+
+*****
+
+####  windaria  
+##### 2222#       发表于 2021-12-19 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007068&amp;ptid=2036367" target="_blank">sjbssd 发表于 2021-12-19 22:24</a>
+
+原来这就是日本人的感觉嘛，叔叔花点钱整个中文LL团体吧</blockquote>
+不如让叔叔花点钱给隔壁virtual real整点歌和动画的可能性高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 2223#       发表于 2021-12-19 22:52
+
+我的妈呀，你的妈在上海。 这种对话日文直播肯定是不会说的
+
+*****
+
+####  TTAA  
+##### 2224#       发表于 2021-12-19 22:53
+
+staff以后多注意吧，还想说录播的话也许能隔绝烂梗小鬼
+
+*****
+
+####  iuhehc  
+##### 2225#       发表于 2021-12-19 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007433&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-19 22:52</a>
+
+我的妈呀，你的妈在上海。 这种对话日文直播肯定是不会说的</blockquote>
+就太接地气了笑死
+
+*****
+
+####  depthlee  
+##### 2226#       发表于 2021-12-19 23:00
+
+这东西要怎么翻译成日语啊www
+
+企划组有的头疼了
+
+*****
+
+####  一个陆仁贾  
+##### 2227#       发表于 2021-12-19 23:01
+
+我写的信是关于tv动画的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 2228#       发表于 2021-12-19 23:03
+
+应该有有志熟肉返生字幕组做日文和英文字幕的吧
+
+看了个开头就快笑死了，菜宝还好，鱼果然还是母语放得开
+

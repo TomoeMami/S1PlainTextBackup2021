@@ -11796,3 +11796,15 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 补个猫儿 非萌哪来妖兰</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你这么豹竟然没妖兰可还行
 
+
+
+*****
+
+####  alucardcz  
+##### 85099#       发表于 2021-12-19 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007285&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-19 22:40</a>
+
+你这么豹竟然没妖兰可还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你什么时候产生了萌新豹的幻觉
+
