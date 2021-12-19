@@ -2761,3 +2761,12 @@ syl 昨天live都没请人画图
 原来绫总最想播的还是pokemon，已经做好三张封面了
 另外念了4个小时最终也没能读完sc，不过这次起码没说下次再念
 
+
+
+*****
+
+####  cctvyt1  
+##### 13776#       发表于 2021-12-19 13:01
+
+今晚应该9点宝可梦吧 可不能撞兔子新衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7085,3 +7085,23 @@ Biden's vaccine mandate applies to CDC employees, but not members of Congress
 
 Washington state Sen. Doug Ericksen dies after COVID battle
 
+
+
+*****
+
+####  smy20011  
+##### 2098#       发表于 2021-12-19 13:10
+
+ 本帖最后由 smy20011 于 2021-12-19 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54000029&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-19 12:58</a>
+
+负数保护力，这是确定有ADE了吧。</blockquote>
+言之凿凿的,那就请你证明一下呗
+
+*****
+
+####  smy20011  
+##### 2099#       发表于 2021-12-19 13:23
+
+找这个速度,如果变种加强针出来了,只能卖给中国了
+

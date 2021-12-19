@@ -11646,3 +11646,14 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 适配全面屏的时候DW提过旧宝具画面暂时还是左右蓝边，之后更新中分批适配。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我怎么感觉这好像是1年前说的事情
 
+
+
+*****
+
+####  ggyy0088  
+##### 85087#       发表于 2021-12-19 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53999612&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-19 12:28</a>
+我怎么感觉这好像是1年前说的事情</blockquote>
+基本随缘更新
+
