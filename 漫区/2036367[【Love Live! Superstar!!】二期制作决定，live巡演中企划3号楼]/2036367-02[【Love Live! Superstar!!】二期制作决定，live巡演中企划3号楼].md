@@ -7985,3 +7985,23 @@ as里有不少新发型，新出的一个很像爱姐的单马尾卷发，很棒
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Totokei  
+##### 2185#       发表于 2021-12-19 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54005666&amp;ptid=2036367" target="_blank">qratosone 发表于 2021-12-19 20:56</a>
+另外感觉岚珠的发型跟菜宝本人的脸型实在是不搭……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">圆脸配这个发型太糟糕了，现在的已经是化妆师优化了一点，第一次生放送的时候更加
+
+早两天去厂长节目的还不错
+
+*****
+
+####  cybernetics31  
+##### 2186#       发表于 2021-12-19 21:10
+
+菜宝去阿部敦节目作嘉宾那个发型好看啊，企划发型真的不太行
+

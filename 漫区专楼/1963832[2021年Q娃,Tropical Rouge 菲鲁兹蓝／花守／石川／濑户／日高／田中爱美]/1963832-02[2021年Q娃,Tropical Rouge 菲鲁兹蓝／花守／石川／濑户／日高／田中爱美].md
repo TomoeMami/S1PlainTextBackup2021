@@ -12250,3 +12250,14 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 
 一直回忆五人相遇的事，结局发刀不可避免了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最强惠酱  
+##### 2418#       发表于 2021-12-19 21:10
+
+下集在背后看萝拉的影子<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
