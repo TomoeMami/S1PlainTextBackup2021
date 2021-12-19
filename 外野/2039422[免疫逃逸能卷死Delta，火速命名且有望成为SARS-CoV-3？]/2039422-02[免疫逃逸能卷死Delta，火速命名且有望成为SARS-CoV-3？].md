@@ -7215,3 +7215,49 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 泥潭这楼还不到一个月，欧洲就炸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 差不多再有一周就可以开始医疗挤兑了
 
+
+
+*****
+
+####  cumbland  
+##### 2110#       发表于 2021-12-19 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54003309&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-19 17:39</a>
+说是南非已经开始死亡率下降了?</blockquote>
+感染人数越来越多死亡率当然降了。何况南非医院有限，检测和收治率都不高，数据未必能反应真实情况
+
+*****
+
+####  smy20011  
+##### 2111#       发表于 2021-12-19 18:05
+
+<blockquote>charse2r 发表于 2021-12-19 17:39
+说是南非已经开始死亡率下降了?</blockquote>
+我看了下，delta爆发的时候，南非死亡率也有下降，不过现在南非死亡率是历史最低水平。
+
+*****
+
+####  最好不说  
+##### 2112#       发表于 2021-12-19 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54003309&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-19 17:39</a>
+
+说是南非已经开始死亡率下降了?</blockquote>
+没有，这几天新增确诊在降，但死亡数整体在升。你说的应该是南非卫生部发的那张PPT，看起来形势大好，但问题在于统计范围，仅限于爆发后25天内豪登省Tshwane区的院内死亡，还故意把前两波爆发的起始点往后调，只能说防疫做得不咋地，编新闻倒是一套一套的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2113#       发表于 2021-12-19 18:15
+
+<blockquote>最好不说 发表于 2021-12-19 18:08
+没有，这几天新增确诊在降，但死亡数整体在升。你说的应该是南非卫生部发的那张PPT，看起来形势大好，但 ...</blockquote>
+现在南非爆发一个月了吧，豪登省是否有街上烧人的情况呢？
+
+*****
+
+####  希望之花  
+##### 2114#       发表于 2021-12-19 18:18
+
+火葬场的数据应该是最真实的
+

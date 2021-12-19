@@ -5400,3 +5400,24 @@ nico怎么还没有倒闭啊
 
 郡郡真是有够猪，，买了个俄罗斯妹跳舞视频来恶心刀也结果是ssk在主持<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，白花钱了（是说日本买这种要花6000円，还是抽象工作室实惠
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9448#       发表于 2021-12-19 18:17
+
+ 本帖最后由 alcoholic1000 于 2021-12-19 18:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54002672&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-12-19 16:41</a>
+
+郡郡真是有够猪，，买了个俄罗斯妹跳舞视频来恶心刀也结果是ssk在主持，白花钱了（是说日本买这种要 ...</blockquote>
+5640円（指正）
+
+Syl，全程看下来感觉ars，星川，豆猫，king，长尾景，axia都挺有希望的
+
+北小路没进有点意外<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+运gamer还真是延长压线晋级...
+
+Zsyl，看都看累了刀也真是铁人，enkr对大太子好点吧
+
