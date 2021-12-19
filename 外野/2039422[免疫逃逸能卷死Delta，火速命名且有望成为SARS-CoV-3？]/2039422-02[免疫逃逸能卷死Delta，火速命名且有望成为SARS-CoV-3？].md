@@ -6913,3 +6913,37 @@ Dutch PM Rutte: Netherlands will go into lockdown from Sunday
 Basically everyone I know in the city has tested positive, myself included, but symptoms seem to b ...</blockquote>
 只要你发烧流鼻涕测一下基本上全中，瞒报应该没有，但是你要考虑多少没测的。
 
+
+
+*****
+
+####  66666  
+##### 2084#       发表于 2021-12-19 10:48
+
+反正现在情况就是很明显了，国外就是躺倒任凭病毒捶，撑到病毒自然变异出低毒性的流行版本
+
+按照人类数次大流行来看可能性还是很大的，就是不知道这个时间还要多久，明年？还是更久的时间没人能确定
+
+*****
+
+####  smy20011  
+##### 2085#       发表于 2021-12-19 10:54
+
+<blockquote>66666 发表于 2021-12-19 10:48
+反正现在情况就是很明显了，国外就是躺倒任凭病毒捶，撑到病毒自然变异出低毒性的流行版本
+
+按照人类数次大 ...</blockquote>
+毒力减轻就是有抗体的人越来越多了，对于没有保护能力的人还是很厉害。国外要不都感染的，要不都打疫苗了。
+
+*****
+
+####  zqr211  
+##### 2086#       发表于 2021-12-19 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53998551&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-19 10:48</a>
+
+反正现在情况就是很明显了，国外就是躺倒任凭病毒捶，撑到病毒自然变异出低毒性的流行版本
+
+按照人类数次大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">印度 确实基本让全民都有抗体的
+
