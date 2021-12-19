@@ -9815,3 +9815,12 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 <img src="http://tiebapic.baidu.com/forum/w%3D580/sign=10a4ad5bd6d4b31cf03c94b3b7d6276f/39d9f31373f0820200e6272716fbfbedaa641bc0.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yeaha123  
+##### 56271#       发表于 2021-12-20 00:22
+
+意思是说霸缠能无视烬的种族特性吗？
+

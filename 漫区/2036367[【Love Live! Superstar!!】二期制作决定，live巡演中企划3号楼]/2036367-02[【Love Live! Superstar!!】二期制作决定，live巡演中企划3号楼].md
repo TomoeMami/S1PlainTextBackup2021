@@ -8806,3 +8806,25 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 这个点了甚至还有3000多人在看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  remedios010000  
+##### 2254#       发表于 2021-12-20 00:25
+
+大半夜给我笑麻了
+
+"这个用中文怎么说啊?"
+
+"不知道啊......"
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 2255#       发表于 2021-12-20 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了 没有故事 全是事故
+

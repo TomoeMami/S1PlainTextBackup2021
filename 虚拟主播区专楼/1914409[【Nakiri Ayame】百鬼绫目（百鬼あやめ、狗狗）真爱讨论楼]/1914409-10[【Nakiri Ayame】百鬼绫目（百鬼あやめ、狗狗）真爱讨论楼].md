@@ -2797,3 +2797,12 @@ syl 昨天live都没请人画图
 
 直播时又说了有5 6个封面 晚上没事就做<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绿色子龙  
+##### 13780#       发表于 2021-12-20 00:23
+
+看来想成为卍组本月直播时长最长的
+
