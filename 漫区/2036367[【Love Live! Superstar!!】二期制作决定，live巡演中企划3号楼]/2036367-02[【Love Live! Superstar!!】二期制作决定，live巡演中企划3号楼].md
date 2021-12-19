@@ -8587,3 +8587,58 @@ JIMO-AI Dash!
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  无聊的我  
+##### 2240#       发表于 2021-12-19 23:21
+
+话说 国外制作的国人演出的中文节目   然后类似国内网站发行播出。
+
+这种模式 深究的话 郭嘉焚化局会禁止播出的吧。
+
+不过这次只是一次小小的录播 郭嘉还没注意没管。
+
+如果今后这种类似模式多了 火了的话 （包裹但不限于LL，比如其他ACG或者非ACG领域）
+
+估计郭嘉会整顿管理  拿到版号之类的才能播出吧。
+
+PS：第三封信真是过分了   鲤鱼都不念名字了。
+
+*****
+
+####  十九号大侠  
+##### 2241#       发表于 2021-12-19 23:28
+
+李鱼好兴奋啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  qratosone  
+##### 2242#       发表于 2021-12-19 23:31
+
+ 本帖最后由 qratosone 于 2021-12-19 23:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007813&amp;ptid=2036367" target="_blank">无聊的我 发表于 2021-12-19 23:21</a>
+话说 国外制作的国人演出的中文节目   然后类似国内网站发行播出。
+
+这种模式 深究的话 郭嘉焚化局会禁止播 ...</blockquote>
+首先这种节目几乎没有可能做大，而且它本身不是商业性质的影视剧，不属于出版物，文化部门根本无权对其进行事前审核，而且实际执行能力也根本就不现实。
+
+最后估计也就是像现在的视频投稿和日V直播一样，基于负面清单进行网站自审+备案制管理。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Lynn_C  
+##### 2243#       发表于 2021-12-19 23:33
+
+“她做任何行动之前要思考很多东西啦~”
+
+“说不出她的魅力是因为她的魅力过于无限”
+
+菜宝这个复读也太谐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
