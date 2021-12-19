@@ -7261,3 +7261,12 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 火葬场的数据应该是最真实的
 
+
+
+*****
+
+####  亚尔迪8424  
+##### 2115#       发表于 2021-12-19 18:22
+
+只有机枪封城才是手段
+

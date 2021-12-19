@@ -7527,3 +7527,16 @@ A755A7AB-F9E4-4AD2-8F90-CA2CACACAC46.jpeg
 好爱这种风格</blockquote>
 啊，熟，我大爱<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 2133#       发表于 2021-12-19 18:39
+
+昨天的两场live资源
+「[20211217-20211218] 千葉公演」，点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载极速在线查看，视频原画倍速播放。
+链接：https://www.aliyundrive.com/s/Rv6LDUQvctm
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
