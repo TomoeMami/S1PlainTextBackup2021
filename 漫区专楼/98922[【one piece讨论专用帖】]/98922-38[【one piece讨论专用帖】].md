@@ -9788,3 +9788,17 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 除了阎魔，还有霸缠呀
 
+
+
+*****
+
+####  灰狼  
+##### 56269#       发表于 2021-12-19 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53973014&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-12-17 13:40</a>
+
+年轻的凯多好帅啊，隐约有罗杰的痕迹
+
+难怪这么多人追随他</blockquote>
+我倒是觉得那个嘴唇像是比较瘦的黑胡子
+
