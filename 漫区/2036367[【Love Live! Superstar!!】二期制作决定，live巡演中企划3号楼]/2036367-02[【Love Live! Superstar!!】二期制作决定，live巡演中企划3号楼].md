@@ -8862,3 +8862,31 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 好家伙，打算养一天弹幕点进去一看已经19w播放2w弹幕了，上一个有这么多弹幕的拉拉视频我都记不清是什么了
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 2260#       发表于 2021-12-20 03:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54008844&amp;ptid=2036367" target="_blank">中野四葉 发表于 2021-12-20 00:57</a>
+
+原来有人在给staff桑同步翻译啊（大致内容），所以爽朗的笑声有些延迟 ...</blockquote>
+消息来源可靠吗？
+
+*****
+
+####  DLAN  
+##### 2261#       发表于 2021-12-20 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54009591&amp;ptid=2036367" target="_blank">Mc凉月奏酱 发表于 2021-12-20 03:46</a>
+消息来源可靠吗？</blockquote>
+把音量开大一点，可以听见是同传的
+
+*****
+
+####  stygian  
+##### 2262#       发表于 2021-12-20 04:22
+
+有知道哪个字幕组准备做返生了吗，中日中英我都可以贡献一下，这期节目太有趣了挺想做做的
+

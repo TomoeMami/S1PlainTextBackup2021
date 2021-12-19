@@ -2806,3 +2806,19 @@ syl 昨天live都没请人画图
 
 看来想成为卍组本月直播时长最长的
 
+
+
+*****
+
+####  stedckk  
+##### 13781#       发表于 2021-12-20 02:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">封面是做了，但没说一定会播，或者什么时候才播
+
+*****
+
+####  soraku  
+##### 13782#       发表于 2021-12-20 02:55
+
+https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
