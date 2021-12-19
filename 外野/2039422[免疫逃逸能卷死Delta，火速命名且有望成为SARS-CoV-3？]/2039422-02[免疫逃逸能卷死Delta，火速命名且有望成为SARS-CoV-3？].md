@@ -7128,3 +7128,23 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 住院率重症率死亡率都更低，怎么就ADE了？</blockquote>
 一个想法，目前看起来住院率重症率低主要是原本不会感染的年轻人也被omicron感染扩大了基数，而不是疫苗降低了重症数
 
+
+
+*****
+
+####  骆宾王  
+##### 2102#       发表于 2021-12-19 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54000171&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-19 13:10</a>
+言之凿凿的,那就请你证明一下呗</blockquote>
+它是指的是上面那个图，两针对o病毒的抗性，注意左边坐标
+
+*****
+
+####  smy20011  
+##### 2103#       发表于 2021-12-19 17:13
+
+<blockquote>骆宾王 发表于 2021-12-19 17:09
+它是指的是上面那个图，两针对o病毒的抗性，注意左边坐标</blockquote>
+如果没看错的话，这是pcr脱靶（o变种）感染，占所有阳性的比例。这玩意和ade差了不少。。
+
