@@ -6800,3 +6800,26 @@ omicron上个月就传遍全非洲了，不过对我国防控压力影响更大�
 
 https://www.reddit.com/r/london/comments/ries4n/is_it_just_me_or_is_london_currently_riddled_with/?sort=top 伦敦感染者的讨论
 
+
+
+*****
+
+####  pushare  
+##### 2074#       发表于 2021-12-19 09:17
+
+nhs安排居家治疗了
+
+https://www.thetimes.co.uk/article/covid-patients-treated-at-home-to-protect-nhs-lts7t76kf
+
+Thousands of Covid-19 patients will be treated in their own homes in an expansion of “virtual wards” to help the health service cope with a surge in Omicron cases.
+
+Professor Stephen Powis, NHS England’s medical director, said the health service was on a “war footing”. Plans have been passed to treat 15 per cent of Covid patients at home, with remote monitoring of their oxygen levels.
+
+*****
+
+####  pushare  
+##### 2075#       发表于 2021-12-19 09:19
+
+荷兰首相说lockdown从周日开始
+Dutch PM Rutte: Netherlands will go into lockdown from Sunday 
+
