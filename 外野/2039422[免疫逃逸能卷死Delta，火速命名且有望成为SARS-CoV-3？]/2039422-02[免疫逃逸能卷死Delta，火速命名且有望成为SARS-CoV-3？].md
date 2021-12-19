@@ -6823,3 +6823,37 @@ Professor Stephen Powis, NHS England’s medical director, said the health servi
 荷兰首相说lockdown从周日开始
 Dutch PM Rutte: Netherlands will go into lockdown from Sunday 
 
+
+
+*****
+
+####  烦死了  
+##### 2076#       发表于 2021-12-19 10:08
+
+  BBC 终于使用了东方大国专用的那个词“lockdown” 在荷兰身上
+
+Covid: Dutch go into Christmas lockdown over Omicron wave
+
+Non-essential shops, bars, gyms hairdressers and other public venues will be closed until at least mid-January. Two guests per household will be allowed - four over the holidays.
+
+*****
+
+####  烦死了  
+##### 2077#       发表于 2021-12-19 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53995175&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-19 00:35</a>
+
+https://www.reddit.com/r/london/comments/ries4n/is_it_just_me_or_is_london_currently_riddled_with/?s ...</blockquote>
+Basically everyone I know in the city has tested positive, myself included, but symptoms seem to be mild. I broke the fever in 2 days. Good luck everyone!
+
+太乐了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+认识的所有人都感染， 有人计算一下实际感染人数， 瞒报了多少<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克鲁特尼  
+##### 2078#       发表于 2021-12-19 10:19
+
+荷兰居然要搞正儿八经的封城了？这可是圣诞节
+
