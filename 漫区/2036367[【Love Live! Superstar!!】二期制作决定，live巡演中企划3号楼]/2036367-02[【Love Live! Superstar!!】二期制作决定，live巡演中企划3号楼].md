@@ -8853,3 +8853,12 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来有人在给staff桑同步翻译啊（大致内容），所以爽朗的笑声有些延迟
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2259#       发表于 2021-12-20 01:11
+
+好家伙，打算养一天弹幕点进去一看已经19w播放2w弹幕了，上一个有这么多弹幕的拉拉视频我都记不清是什么了
+
