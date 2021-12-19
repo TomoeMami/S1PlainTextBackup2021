@@ -7157,3 +7157,61 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 说是南非已经开始死亡率下降了?
 
+
+
+*****
+
+####  cleaner  
+##### 2105#       发表于 2021-12-19 17:48
+
+8年抗战，现在才第二年，可以和38年中国人感同身受一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看谁来发表一下对新冠的论持久战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Aquila4869  
+##### 2106#       发表于 2021-12-19 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54003309&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-19 17:39</a>
+说是南非已经开始死亡率下降了?</blockquote>
+是不是有可能总量中年龄较低的比例上升加上总量上升结果反而出现死亡率下降的情况
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  环彩羽  
+##### 2107#       发表于 2021-12-19 17:50
+
+带嘤人口够吗？
+
+<img src="https://img.saraba1st.com/forum/202112/19/175048mr6fprxrypqtp66t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>90B17ECC-CAB3-4459-A132-A9F4D525AAA2.jpeg</strong> (261.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 17:50 上传
+
+*****
+
+####  Kanoya  
+##### 2108#       发表于 2021-12-19 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54003406&amp;ptid=2039422" target="_blank">cleaner 发表于 2021-12-19 17:48</a>
+8年抗战，现在才第二年，可以和38年中国人感同身受一下
+看谁来发表一下对新冠的论持久战</blockquote>
+纠正一下，抗战是14年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+相持阶段还在大后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lord_Voldemort  
+##### 2109#       发表于 2021-12-19 17:59
+
+泥潭这楼还不到一个月，欧洲就炸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+差不多再有一周就可以开始医疗挤兑了
+
