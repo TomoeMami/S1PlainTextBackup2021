@@ -7105,3 +7105,15 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 找这个速度,如果变种加强针出来了,只能卖给中国了
 
+
+
+*****
+
+####  lyflyflxf  
+##### 2100#       发表于 2021-12-19 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54000029&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-19 12:58</a>
+
+负数保护力，这是确定有ADE了吧。</blockquote>
+住院率重症率死亡率都更低，怎么就ADE了？
+
