@@ -6857,3 +6857,59 @@ Basically everyone I know in the city has tested positive, myself included, but 
 
 荷兰居然要搞正儿八经的封城了？这可是圣诞节
 
+
+
+*****
+
+####  riczxc  
+##### 2079#         楼主| 发表于 2021-12-19 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53998328&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2021-12-19 10:19</a>
+
+荷兰居然要搞正儿八经的封城了？这可是圣诞节</blockquote>
+圣诞节本来要关门，应该是封店封校最好的时候了。
+
+听起来很难听，但是商业损失最小。和我们过年类似。
+
+*****
+
+####  66666  
+##### 2080#       发表于 2021-12-19 10:21
+
+现在封城也太晚了，奥密克戎按目前数据保守估计传染性都是德尔塔的三倍以上
+
+*****
+
+####  最好不说  
+##### 2081#       发表于 2021-12-19 10:29
+
+<blockquote>pushare 发表于 2021-12-19 09:19
+荷兰首相说lockdown从周日开始
+
+Dutch PM Rutte: Netherlands will go into lockdown from Sunday
+</blockquote>
+封到一月14，再结合提前加强针接种，本质是为了打加强针争取时间
+
+但一不宵禁二不限制入境，这种软封城加实际效果存疑的加强针能撑多久也难说
+
+*****
+
+####  creymorgan  
+##### 2082#       发表于 2021-12-19 10:34
+
+<blockquote>riczxc 发表于 2021-12-19 10:21
+圣诞节本来要关门，应该是封店封校最好的时候了。
+
+听起来很难听，但是商业损失最小。和我们过年类似。
+</blockquote>
+商业损失很大的，制造业损失小。
+
+*****
+
+####  smy20011  
+##### 2083#       发表于 2021-12-19 10:34
+
+<blockquote>烦死了 发表于 2021-12-19 10:09
+Basically everyone I know in the city has tested positive, myself included, but symptoms seem to b ...</blockquote>
+只要你发烧流鼻涕测一下基本上全中，瞒报应该没有，但是你要考虑多少没测的。
+
