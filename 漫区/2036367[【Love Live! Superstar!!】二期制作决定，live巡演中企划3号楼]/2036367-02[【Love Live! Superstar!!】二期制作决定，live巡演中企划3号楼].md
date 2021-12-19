@@ -7540,3 +7540,83 @@ A755A7AB-F9E4-4AD2-8F90-CA2CACACAC46.jpeg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  chenflyyy  
+##### 2134#       发表于 2021-12-19 19:01
+
+来了来了，一个小时还挺长的，是生放诶，还以为只是广播
+
+*****
+
+####  普之舜舜  
+##### 2135#       发表于 2021-12-19 19:03
+
+来了，一个小时超长制作
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2136#       发表于 2021-12-19 19:04
+
+BV1ZZ4y1Q7bc
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  离心  
+##### 2137#       发表于 2021-12-19 19:05
+
+来了!
+
+*****
+
+####  蜜梨柑  
+##### 2138#       发表于 2021-12-19 19:07
+
+可可的中文自我介绍真不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 2139#       发表于 2021-12-19 19:07
+
+总觉得她们会下一刻冒出日语
+
+*****
+
+####  CAserlumos  
+##### 2140#       发表于 2021-12-19 19:10
+
+果然中文节目直接放飞自我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2141#       发表于 2021-12-19 19:18
+
+中文角色音还是第一次听，有点不习惯，你们还是用本音吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ReginaldMorgan  
+##### 2142#       发表于 2021-12-19 19:18
+
+鲤鱼：我的妈
+菜宝：不可以说粗口
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl，朋友：这节目不带字幕有点看不懂
+
+*****
+
+####  Norkey1  
+##### 2143#       发表于 2021-12-19 19:20
+
+坏了，我有点母语羞涩了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
