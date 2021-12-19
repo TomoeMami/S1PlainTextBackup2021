@@ -11762,3 +11762,15 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天晚上最后3石 这是不是妖兰最后的机会了
 
+
+
+*****
+
+####  qixinno2  
+##### 85096#       发表于 2021-12-19 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54006441&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-19 21:45</a>
+
+今天晚上最后3石 这是不是妖兰最后的机会了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了补宝这么拼的么 这池子到月底吧 你还有新活动和周常的石头可以用
+
