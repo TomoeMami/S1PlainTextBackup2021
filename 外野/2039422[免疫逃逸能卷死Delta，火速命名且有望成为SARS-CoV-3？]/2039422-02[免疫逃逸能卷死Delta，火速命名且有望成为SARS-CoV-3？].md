@@ -7117,3 +7117,14 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 负数保护力，这是确定有ADE了吧。</blockquote>
 住院率重症率死亡率都更低，怎么就ADE了？
 
+
+
+*****
+
+####  最好不说  
+##### 2101#       发表于 2021-12-19 15:29
+
+<blockquote>lyflyflxf 发表于 2021-12-19 13:24
+住院率重症率死亡率都更低，怎么就ADE了？</blockquote>
+一个想法，目前看起来住院率重症率低主要是原本不会感染的年轻人也被omicron感染扩大了基数，而不是疫苗降低了重症数
+

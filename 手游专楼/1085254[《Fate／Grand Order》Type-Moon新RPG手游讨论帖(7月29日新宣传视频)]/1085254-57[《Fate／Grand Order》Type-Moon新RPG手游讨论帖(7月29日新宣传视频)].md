@@ -11687,3 +11687,32 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩玩呢  就这？
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85091#       发表于 2021-12-19 15:24
+
+活动助战已经准备好就等开了
+
+5B26837E-15B6-4194-A573-1C9078C2D05A.png
+(937.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 15:24 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/152401z53z5kly5ogll5yl.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 85092#       发表于 2021-12-19 15:37
+
+<blockquote>alucardcz 发表于 2021-12-19 14:54
+ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩玩呢  就这？
+
+ ...</blockquote>
+我搞了个1000多的石头号500抽没五星，搞到我直接大号不想补宝了
+
