@@ -7927,3 +7927,61 @@ B站评论没有STUFF，因为STUFF就在台上啊
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 2179#       发表于 2021-12-19 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54005393&amp;ptid=2036367" target="_blank">qratosone 发表于 2021-12-19 20:37</a>
+饿年级可还行，菜宝没有现场说粤语真是太可惜了</blockquote>
+说了一句没问题
+
+*****
+
+####  一个陆仁贾  
+##### 2180#       发表于 2021-12-19 20:43
+
+感觉还行，看她们组织语言的样子，好想劝她们用日语换着表达算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  a92063256  
+##### 2181#       发表于 2021-12-19 20:50
+
+太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我要回去刷第二遍了
+
+*****
+
+####  qratosone  
+##### 2182#       发表于 2021-12-19 20:56
+
+另外感觉岚珠的发型跟菜宝本人的脸型实在是不搭……
+
+*****
+
+####  ads147147  
+##### 2183#       发表于 2021-12-19 20:56
+
+鲤鱼：缪斯为了解决学校的废校危机
+岚珠：什么是废校？
+可可：什么是危机？
+
+笑死了，一小时相声大放送
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ads147147  
+##### 2184#       发表于 2021-12-19 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54005666&amp;ptid=2036367" target="_blank">qratosone 发表于 2021-12-19 20:56</a>
+另外感觉岚珠的发型跟菜宝本人的脸型实在是不搭……</blockquote>
+as里有不少新发型，新出的一个很像爱姐的单马尾卷发，很棒的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
