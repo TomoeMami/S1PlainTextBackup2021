@@ -8280,3 +8280,108 @@ C149E1B5-52AD-41FA-BE40-FDE1EEDD9C68.jpeg
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  sjbssd  
+##### 2206#       发表于 2021-12-19 22:24
+
+原来这就是日本人的感觉嘛，叔叔花点钱整个中文LL团体吧
+
+*****
+
+####  cybernetics31  
+##### 2207#       发表于 2021-12-19 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">回来了，都回来了，这播放量这弹幕数，官方你真的不考虑再来一点吗
+
+*****
+
+####  中野四葉  
+##### 2208#       发表于 2021-12-19 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要梗小鬼收敛那得出个更low的梗才行
+
+*****
+
+####  4869Bi  
+##### 2209#       发表于 2021-12-19 22:29
+
+Liyuu:  Mamma mia!
+
+Akina:  Your mom is in Shanghai.
+
+*****
+
+####  lj205  
+##### 2210#       发表于 2021-12-19 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54006971&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-19 22:17</a>
+这次烂梗大伙都怒了，以后会小鬼会收敛了吧</blockquote>
+想太多了，说不定更兴奋
+
+*****
+
+####  TCone  
+##### 2211#       发表于 2021-12-19 22:31
+
+ 本帖最后由 TCone 于 2021-12-19 22:33 编辑 
+
+我看她俩就是在欺负staff听不懂中文<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 2212#       发表于 2021-12-19 22:32
+
+ 本帖最后由 秋月艾莉 于 2021-12-19 22:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">并不会
+
+真正的梗小鬼是不会看评论区的，自顾自过来拉完shi就走了，你们警察爱搞团建就搞个够破坏的又不是我的社区氛围
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不如说只限在口水巾这种至少不是糗事的烂梗该偷笑了，在我看来什么中文听不懂中文复健xxoo才叫弱智
+
+*****
+
+####  Toby_dak  
+##### 2213#       发表于 2021-12-19 22:32
+
+在日上海人：我的妈呀！
+留粤日本人：你老母系上海<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+好奇这段怎么翻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 2214#       发表于 2021-12-19 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人到时候看这两互损不知道是啥看法
+
+*****
+
+####  chenflyyy  
+##### 2215#       发表于 2021-12-19 22:38
+
+只看过liella的生放，酸菜鱼的生放着实要有趣不少，没有了日本人那么多条例约束各位都可以放开许多，也不再只是无聊套路的夸夸感想，读信和工商环节，不过星1st开始后的liella这两期生放有所好转，大家都比以前放得开，希望以后能多学学吧（我主推的还是星，还是希望生放能有趣点的）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+话说这是国内手游代理商盛趣搞的活动吧，要想多搞可能得多去玩手游氪金支持，想到这个就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+叔叔和万代发点力啊，来点作用啊，不趁着这热度在国内推进ll各项活动开展吗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 2216#       发表于 2021-12-19 22:39
+
+这哪是官方中之人直播，简直是两个资深拉拉死宅在面基好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 2217#       发表于 2021-12-19 22:39
+
+还能有啥活动 要说ll的活动那就是演唱会 然而现在可能吗（
+不过BMLSP转远程LV模式了 可以期待下明年会不会有Liella
+
