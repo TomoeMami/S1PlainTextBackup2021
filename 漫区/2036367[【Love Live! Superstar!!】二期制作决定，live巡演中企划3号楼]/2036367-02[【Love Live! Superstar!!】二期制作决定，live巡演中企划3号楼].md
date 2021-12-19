@@ -7405,3 +7405,114 @@ J家snowman里的佐久间大介原来也是个可可推
 
 <img src="https://img.saraba1st.com/forum/202112/19/101451mba2asajbjzdz5jf.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 2126#       发表于 2021-12-19 11:35
+
+<img src="https://img.saraba1st.com/forum/202112/19/113507wn50yw14ry3wlzay.jpg" referrerpolicy="no-referrer">
+
+<strong>20211219_113143.jpg</strong> (397.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 11:35 上传
+
+好爱这种风格
+
+*****
+
+####  welcom  
+##### 2127#       发表于 2021-12-19 11:41
+
+48C1到了，再看一遍小星星补帧版，4K 120HZ 确实效果拉满
+
+*****
+
+####  saya1892  
+##### 2128#       发表于 2021-12-19 12:34
+
+这图终于也汉化了
+[https://twitter.com/Ayu_illustrate/status/1472159108107497473](https://twitter.com/Ayu_illustrate/status/1472159108107497473)
+
+<img src="https://img.saraba1st.com/forum/202112/19/123342de6r4rt0l4il4ilu.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (292.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 12:33 上传
+
+*****
+
+####  D麦林  
+##### 2129#       发表于 2021-12-19 14:21
+
+岚珠说粤语了怎么可可不说上海话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2130#       发表于 2021-12-19 15:32
+
+钟唐访谈＋千叶花生
+
+CD567EA4-F787-4AEC-9B9E-55F23E104FC9.jpeg
+(146.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 15:31 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/153128d1bdc75j7m3az374.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+319FB5B4-9BF9-4360-8A04-DD975817CFDA.jpeg
+(237.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 15:31 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/153128ljjfjhgybeyxcnwf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A755A7AB-F9E4-4AD2-8F90-CA2CACACAC46.jpeg
+(203.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 15:31 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/153128o55bzaq225t53mmq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+06D6A172-9FE2-475E-AD0A-6E32A292D161.jpeg
+(355.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 15:31 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/153129u34l8fc8o92b8s3o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+815F8DB8-2F6E-4362-9FFF-B31A990780AA.jpeg
+(116.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 15:31 上传
+
+<img src="https://img.saraba1st.com/forum/202112/19/153129z6tqfyksoggz6grx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  saverok  
+##### 2131#       发表于 2021-12-19 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53998987&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-19 11:35</a>
+
+好爱这种风格</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">美女你哪位
+
