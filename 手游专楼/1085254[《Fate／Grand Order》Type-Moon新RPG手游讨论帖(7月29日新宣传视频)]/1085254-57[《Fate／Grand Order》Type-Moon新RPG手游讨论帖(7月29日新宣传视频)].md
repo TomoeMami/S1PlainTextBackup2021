@@ -11634,3 +11634,15 @@ emmmmm现在就剧情怎么样了…..</blockquote>
 是啊13pm 主要是宝具画面</blockquote>
 适配全面屏的时候DW提过旧宝具画面暂时还是左右蓝边，之后更新中分批适配。
 
+
+
+*****
+
+####  alucardcz  
+##### 85086#       发表于 2021-12-19 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53999396&amp;ptid=1085254" target="_blank">ggyy0088 发表于 2021-12-19 12:10</a>
+
+适配全面屏的时候DW提过旧宝具画面暂时还是左右蓝边，之后更新中分批适配。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我怎么感觉这好像是1年前说的事情
+

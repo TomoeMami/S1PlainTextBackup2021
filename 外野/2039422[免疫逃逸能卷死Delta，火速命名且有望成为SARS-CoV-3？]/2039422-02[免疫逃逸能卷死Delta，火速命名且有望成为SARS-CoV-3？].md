@@ -6972,3 +6972,61 @@ Basically everyone I know in the city has tested positive, myself included, but 
 听起来很难听，但是商业损失最小。和我们过年类似。</blockquote>
 不是，圣诞节当天关门，但是节日前后一直是旅游购物高峰呀，要不然圣诞打折打了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 欧美人很逗都连着圣诞-新年+年假凑个小长假happy的，他封城封到1月月中。。
 
+
+
+*****
+
+####  最好不说  
+##### 2089#       发表于 2021-12-19 12:26
+
+拍总新发的图有点意思
+
+黑线是荷兰每日新增确诊中SGTF比例随时间变化的比例，左边是未接种组，右边是完全接种组
+<img src="https://pic4.zhimg.com/50/v2-3d32a998ccce74acf3aab6434cd49ac7_r.jpg" referrerpolicy="no-referrer">
+
+再结合之前英国卫生局的研究
+<img src="https://pic3.zhimg.com/v2-bea23686a3cd1282dbcdf6e756e5cdaa_r.png" referrerpolicy="no-referrer">
+
+疫苗护照？感染护照！<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cumbland  
+##### 2090#       发表于 2021-12-19 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53998551&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-19 10:48</a>
+反正现在情况就是很明显了，国外就是躺倒任凭病毒捶，撑到病毒自然变异出低毒性的流行版本
+
+按照人类数次大 ...</blockquote>
+以前大流行的时代可没有全球冷链，艾滋病，环球航班。
+
+*****
+
+####  smy20011  
+##### 2091#       发表于 2021-12-19 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53999513&amp;ptid=2039422" target="_blank">钢铁之魂 发表于 2021-12-19 12:19</a>
+
+这种抗体没意义的，病毒一个血清分型就可以让一切回到原点。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上 ...</blockquote>
+O变种不是血清分型?
+
+*****
+
+####  smy20011  
+##### 2092#       发表于 2021-12-19 12:43
+
+COVID-19研究专家剑桥大学Gupta构建了Omicron假病毒感染肺泡类器官模型，读值是细胞感染力（RLU，相对感染荧光单位）。研究发现Omicron的细胞感染力比野生型和Delta要低很多，约为10e2；而野生型约为10e4，Delta约为10e5。另外Omicron细胞间传播能力低于Delta。这个结论与港大研究结果一致。
+
+<img src="https://img.saraba1st.com/forum/202112/19/124255ifp0aijawvvwqvli.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-18 20.42.44.png</strong> (27.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-19 12:42 上传
+
+这个研究有趣的是对delta的感染力和香港的不一样
+[https://www.citiid.cam.ac.uk/wp- ... S-OMICRON-PAPER.pdf](https://www.citiid.cam.ac.uk/wp-content/uploads/2021/12/FIGURES-OMICRON-PAPER.pdf)
+
