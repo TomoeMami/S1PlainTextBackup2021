@@ -7270,3 +7270,25 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 只有机枪封城才是手段
 
+
+
+*****
+
+####  riczxc  
+##### 2116#         楼主| 发表于 2021-12-19 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54003738&amp;ptid=2039422" target="_blank">希望之花 发表于 2021-12-19 18:18</a>
+
+火葬场的数据应该是最真实的</blockquote>
+且不说病程发展还需要好几周，超额死亡的数据那就更没那么快了。
+
+*****
+
+####  nvis  
+##### 2117#       发表于 2021-12-19 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54003406&amp;ptid=2039422" target="_blank">cleaner 发表于 2021-12-19 17:48</a>
+8年抗战，现在才第二年，可以和38年中国人感同身受一下
+看谁来发表一下对新冠的论持久战</blockquote>
+抗疫措施将成为常态，新疫苗研发和病毒变异进入到僵持阶段。新冠灭世论是不对的，躺平免疫论也是不对的。对抗新冠必须经历隔离防御、疫苗相持、特效药反攻三个阶段，全民抗疫、坚持抗疫是战胜新冠的根本条件和基本保证。同时，防疫方向应以出入境人员隔离和社区管控为核心，建立广阔的阻拦传播纵深，减慢传播速度，以美国换中国，争取反攻阶段的到来。另外除了社区防疫和医药研发正面战线外，还需派驻特别医疗组前往疫情严重的大后方，建立抗疫根据地，展开分点游击医疗支援，把大量病毒传播因素牵制在疫区。
+
