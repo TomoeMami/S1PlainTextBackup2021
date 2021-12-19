@@ -705,3 +705,15 @@ Screenshot_2021-12-17-10-23-29-84.jpg
 
 后期转场可以说是老生硬了，给我感觉就是剧情就靠金克丝发神经来制造冲突，然后为了让剧情能围绕金克丝转，除了强行拔高她的战斗力，其他人也得“被迫”改变下自己原来的“人设”（希尔科养女儿上瘾，黑皮女变舔狗，蔚降智成愣头青），没能做成一个真正的群像剧。
 
+
+
+*****
+
+####  9616777  
+##### 3058#       发表于 2021-12-19 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53942843&amp;ptid=2002246" target="_blank">飞升之后 发表于 2021-12-15 11:09</a>
+
+手机版和PC版同时开发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
