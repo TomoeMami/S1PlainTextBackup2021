@@ -9802,3 +9802,16 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 难怪这么多人追随他</blockquote>
 我倒是觉得那个嘴唇像是比较瘦的黑胡子
 
+
+
+*****
+
+####  tyauto  
+##### 56270#       发表于 2021-12-19 11:09
+
+ 本帖最后由 tyauto 于 2021-12-19 11:10 编辑 
+
+三刀流黑刀加会霸缠的娜美...<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这个起码准大将实力了吧！？
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=10a4ad5bd6d4b31cf03c94b3b7d6276f/39d9f31373f0820200e6272716fbfbedaa641bc0.jpg" referrerpolicy="no-referrer">
+
