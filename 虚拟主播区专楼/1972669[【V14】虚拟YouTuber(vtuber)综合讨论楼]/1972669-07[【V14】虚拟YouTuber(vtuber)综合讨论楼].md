@@ -5567,3 +5567,41 @@ Luxiem (mado)
 
 怎么白皮也Homo
 
+
+
+*****
+
+####  rzrbtk  
+##### 9460#       发表于 2021-12-20 18:02
+
+ema说圣诞节一个人过<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">（我信了
+
+*****
+
+####  alcoholic1000  
+##### 9461#       发表于 2021-12-20 18:04
+
+ 本帖最后由 alcoholic1000 于 2021-12-20 18:13 编辑 
+<blockquote>Shu Yamino=CODENAME: TORA「寅」Mysta Rias=Kaizoku KaitoLuca Kaneshiro=JavaVox Akuma= Calysto/Vadelith Ike Eveland=XanduIsBored</blockquote>
+Shu和Mysta是Vtuber转世。海賊海斗（Mysta）的前世切片我看了一部分，感觉算是比较有意思的配信主，但群友说他像Kos...
+
+Luca前世是以VRChat和GTA Online RP出名的配信者，T台也有直播，Sykkuno的朋友，土澳口音
+
+Vox，声剧爱好者，制作了一些UT同人作品，这是他创作的星战同人作品AO3，Casting call page（他在红迪的一部分关于Runescape和星战的汴京也被扒到了，有点惨）；
+
+Ike，瑞士音乐制作人同时也做翻唱（拥有3400w再生Remix作品的弦月藤士郎EN ver.），也唱过金属。
+
+Syl，EN男团的语言能力属实有点拉了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Paisley| + 1|好评加鹅|
+
+查看全部评分
+

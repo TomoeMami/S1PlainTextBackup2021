@@ -12090,3 +12090,59 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 果然和我说的一样没free<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85128#       发表于 2021-12-20 18:04
+
+加成从者除了剧情有关的都是兽科啊
+倍卡要抽有点过分了啊
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 85129#       发表于 2021-12-20 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54017852&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-12-20 17:44</a>
+
+活动到31号？也还挺赶的，不知道新年从者是谁……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">暗之高扬斯卡娅
+
+*****
+
+####  zakki  
+##### 85130#       发表于 2021-12-20 18:14
+
+大晚上的懒得刷，当主线看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85131#       发表于 2021-12-20 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻逼柱子战 除非出的是最缺的那俩材料 不然完全不想打
+
+*****
+
+####  alucardcz  
+##### 85132#       发表于 2021-12-20 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018313&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-20 18:19</a>
+
+傻逼柱子战 除非出的是最缺的那俩材料 不然完全不想打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就不一样了 随便掉什么我都没兴趣刷  除非出个人权我用苹果刷石头
+
+*****
+
+####  qixinno2  
+##### 85133#       发表于 2021-12-20 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018343&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-20 18:21</a>
+
+我就不一样了 随便掉什么我都没兴趣刷  除非出个人权我用苹果刷石头 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你只能祈祷姜子牙是个超强人权了 虽然我觉得常驻五星骑光炮就已经DEBUFF加满了
+

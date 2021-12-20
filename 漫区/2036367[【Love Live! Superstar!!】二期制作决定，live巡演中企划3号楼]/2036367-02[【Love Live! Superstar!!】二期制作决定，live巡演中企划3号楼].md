@@ -9551,3 +9551,40 @@ E1291F13-C472-4885-BF2D-A939C1763C10.jpeg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  黑雪姫  
+##### 2317#       发表于 2021-12-20 18:03
+
+ 本帖最后由 黑雪姫 于 2021-12-20 18:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54017979&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-20 17:54</a>
+
+话说感觉我们这个楼好和谐呀！基本都是熟面孔，比贴吧b战氛围好很多哈
+
+—— 来自 OP ...</blockquote>
+这废话，因为这里是星团专楼啊，拉拉这种饭圈企划的主要战点不就是各团信者大战吗？  都在专楼里圈地自萌当然比外面氛围好。
+
+你信不信只开个拉拉专楼，四个团的粉丝都能在里面讨论保证用不了几天就硝烟弥漫了。
+
+*****
+
+####  D麦林  
+##### 2318#       发表于 2021-12-20 18:22
+
+隔壁专楼刚刚大战完
+
+我不好说……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 2319#       发表于 2021-12-20 18:23
+
+话说这个特别节目的弹幕云屏蔽力度怎么这么高
+
+我一直开默认的3级云屏蔽 都快看不见弹幕了
+
+试着关了以后发现一下子多了一大堆
+
