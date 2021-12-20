@@ -9071,3 +9071,19 @@ stn竟然第一，前一段还在说首页怎么都刷不到自己
 啊，突然想问，LL为啥会有俩手游，以及好玩吗……</blockquote>
 为了热度啊，不可能只靠sif吃到老吧。好不好玩我只能说看卡面舔妹子就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 2278#       发表于 2021-12-20 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54012376&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2021-12-20 11:28</a>
+
+啊，突然想问，LL为啥会有俩手游，以及好玩吗……</blockquote>
+SIF底子太差了 在其他家偶像音游（其实主要就是CGSS）开始把3Dlive作为标配的时候 SIF连2Dlive都没有的这设计就显得越来越过时了
+
+记得好像很久很久以前KLab好像提过要给SIF实装3Dlive 但是之后迟迟没有下文 估计是在这个底子上装这么大一个东西太不划算了
+
+然后再过了一段时间就宣布AS了 主要就是为了跟上时代节奏的产物吧 但是系统又有点四不像<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 
+

@@ -7303,3 +7303,12 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 抗疫措施将成为常态，新疫苗研发和病毒变异进入到僵持阶段。新冠灭世论是不对的，躺平免疫论也是不对的。 ...</blockquote>
 有内味了....
 
+
+
+*****
+
+####  charse2r  
+##### 2119#       发表于 2021-12-20 11:58
+
+但是南非的7日死亡数也确实减少了。。
+
