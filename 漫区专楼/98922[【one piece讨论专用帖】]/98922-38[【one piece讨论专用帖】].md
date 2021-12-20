@@ -9824,3 +9824,39 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 意思是说霸缠能无视烬的种族特性吗？
 
+
+
+*****
+
+####  yoboc  
+##### 56272#       发表于 2021-12-20 09:49
+
+主要的感觉还是这转折太生硬，都不用实力进化就反败为胜了，说不清是kq两人大意放水还是山索本来实力就远强于他俩，之前好像打了半天但其实没什么卵用，最后还是一招秒了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+烬这个逼铁gay<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Supermangunv3  
+##### 56273#       发表于 2021-12-20 09:52
+
+<img src="https://img.saraba1st.com/forum/202112/20/095143npp2v76y6pzppqqk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1639965040021.jpeg</strong> (16.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-20 09:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/095148ho4fxf4zpq7olxk5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1639965093308.jpeg</strong> (27.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-20 09:51 上传
+
+所以可以在看看空岛篇了吗？
+
