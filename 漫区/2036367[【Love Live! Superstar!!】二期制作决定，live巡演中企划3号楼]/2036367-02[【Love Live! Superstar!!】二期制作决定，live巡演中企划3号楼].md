@@ -9034,3 +9034,21 @@ stn竟然第一，前一段还在说首页怎么都刷不到自己
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  cat1230  
+##### 2274#       发表于 2021-12-20 11:11
+
+直接退圈，完全红不起来吗，有点惨啊。
+
+看了下百科当年唱的动画也挺火的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 2275#       发表于 2021-12-20 11:19
+
+晓月凛不是因为家庭（主要是她妈妈）和经纪人有问题才做不下去的吗
+
