@@ -9588,3 +9588,53 @@ E1291F13-C472-4885-BF2D-A939C1763C10.jpeg
 
 试着关了以后发现一下子多了一大堆
 
+
+
+*****
+
+####  Toby_dak  
+##### 2320#       发表于 2021-12-20 18:28
+
+<img src="https://img.saraba1st.com/forum/202112/20/192823jyx799946f556m04.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 18:28 上传
+
+[https://www.youtube.com/watch?v=2ljiPvTJ-PM](https://www.youtube.com/watch?v=2ljiPvTJ-PM)
+
+*****
+
+####  iuhehc  
+##### 2321#       发表于 2021-12-20 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018419&amp;ptid=2036367" target="_blank">Toby_dak 发表于 2021-12-20 18:28</a>
+
+https://www.youtube.com/watch?v=2ljiPvTJ-PM</blockquote>
+真的有人这样直译啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2322#       发表于 2021-12-20 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018419&amp;ptid=2036367" target="_blank">Toby_dak 发表于 2021-12-20 18:28</a>
+https://www.youtube.com/watch?v=2ljiPvTJ-PM</blockquote>
+这么快就有人做了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 2323#       发表于 2021-12-20 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018356&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-20 19:23</a>
+
+话说这个特别节目的弹幕云屏蔽力度怎么这么高
+
+我一直开默认的3级云屏蔽 都快看不见弹幕了
+
+试着关了以后发现 ...</blockquote>
+因为内容重复的弹幕最容易被屏蔽。
+
