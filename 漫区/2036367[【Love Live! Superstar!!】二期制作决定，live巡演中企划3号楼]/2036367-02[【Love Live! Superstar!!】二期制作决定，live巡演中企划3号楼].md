@@ -8901,3 +8901,16 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 “你的妈在上海”我真是没绷住
 
+
+
+*****
+
+####  damian-wade  
+##### 2264#       发表于 2021-12-20 08:12
+
+缪水虹星一系列下来我看过的节目还真从来没有这么放开聊过的，确实是给国内粉丝的大礼了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+看不懂的霓虹人哭哭<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+盛趣给点力以后再来吧
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

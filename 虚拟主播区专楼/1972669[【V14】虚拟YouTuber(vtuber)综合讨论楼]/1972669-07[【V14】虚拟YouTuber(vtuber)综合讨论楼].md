@@ -5456,3 +5456,12 @@ Zsyl，看都看累了刀也真是铁人，enkr对大太子好点吧
 
 ptr的弹唱直播，唱完了那些无病呻吟的流行曲之后开始弹金属了，虽然手感很生疏，但还是听哭了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">刚才还随手弹了dragonforce的那段著名riff的一小段
 
+
+
+*****
+
+####  Suny08  
+##### 9452#       发表于 2021-12-20 08:06
+
+夜见这之前从来没转过en消息的人现在有了男人又是转推又是跑人家推下面留言的，舔洋大人舔疯了，这是犯花痴了吧，果然白皮就是人上人啊
+
