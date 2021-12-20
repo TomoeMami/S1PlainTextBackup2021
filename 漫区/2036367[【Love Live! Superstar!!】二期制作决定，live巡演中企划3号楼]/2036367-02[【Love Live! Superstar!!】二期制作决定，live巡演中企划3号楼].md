@@ -8964,3 +8964,17 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 全站在线人数排行进了前十</blockquote>
 stn竟然第一，前一段还在说首页怎么都刷不到自己
 
+
+
+*****
+
+####  星降る森  
+##### 2269#       发表于 2021-12-20 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54007790&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-19 23:19</a>
+
+本来就有点那方面暗示的词语了，这个不是中国人秒懂吗
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11 ...</blockquote>
+没什么暗示，纯粹就是官方节目不能去认可一个非官方译名而已（jimoai-dash&gt;地元爱冲刺/故乡爱冲刺），就和鲤鱼成为官方声优后不允许cosLL角色一样，会被误以为官方行为
+
