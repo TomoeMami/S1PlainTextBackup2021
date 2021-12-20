@@ -12051,3 +12051,19 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 剑双子色卡NP略优于麻雀但逊于花嫁，宝具回收也乏善可陈（需要靠打色卡连发），不具备直接充能+自buff低。那么多让步只换来一个自带无敌贯通和无视防御（以及打卡出星&amp;回NP这种奇怪的机制），就业面窄的不能再窄了
 
+
+
+*****
+
+####  rooarr  
+##### 85123#       发表于 2021-12-20 17:24
+
+周三活动的加成名单好怪啊，好几个莫名其妙的卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 85124#       发表于 2021-12-20 17:25
+
+看样子没有free本 纯柱子战啊 倍卡还得用抽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
