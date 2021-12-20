@@ -11883,3 +11883,26 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 日服咸鱼太多，让他们赶主线
 
+
+
+*****
+
+####  1a不解释  
+##### 85107#       发表于 2021-12-20 12:07
+
+刚开始推2.6下半部分，感觉难度比2.5低？
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  DARKGRAY  
+##### 85108#       发表于 2021-12-20 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54012964&amp;ptid=1085254" target="_blank">1a不解释 发表于 2021-12-20 12:07</a>
+
+刚开始推2.6下半部分，感觉难度比2.5低？
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+没差吧，都是BOSS级决战时难<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -7312,3 +7312,14 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 但是南非的7日死亡数也确实减少了。。
 
+
+
+*****
+
+####  阿纳金  
+##### 2120#       发表于 2021-12-20 12:05
+
+现在出来的信息都指向小o的主攻方向是上呼吸道，那样的话，毒力确实很可能下降了
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

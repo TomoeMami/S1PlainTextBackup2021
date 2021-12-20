@@ -9087,3 +9087,41 @@ SIF底子太差了 在其他家偶像音游（其实主要就是CGSS）开始把
 
 然后再过了一段时间就宣布AS了 主要就是为了跟上时代节奏的产物吧 但是系统又有点四不像<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  chenflyyy  
+##### 2279#       发表于 2021-12-20 12:11
+
+nagi推也10万粉了，也在搞10万粉纪念回复
+
+*****
+
+####  一个陆仁贾  
+##### 2280#       发表于 2021-12-20 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54012376&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2021-12-20 11:28</a>
+啊，突然想问，LL为啥会有俩手游，以及好玩吗……</blockquote>
+一个音游一个rpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  chenflyyy  
+##### 2281#       发表于 2021-12-20 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54012376&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2021-12-20 11:28</a>
+啊，突然想问，LL为啥会有俩手游，以及好玩吗……</blockquote>
+都是跟不上时代的垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 2282#       发表于 2021-12-20 12:20
+
+这俩游戏赶紧砍掉重开吧，素材大量复用也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
