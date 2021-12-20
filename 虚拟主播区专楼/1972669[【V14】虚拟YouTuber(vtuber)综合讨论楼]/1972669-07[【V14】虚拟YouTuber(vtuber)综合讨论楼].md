@@ -5465,3 +5465,22 @@ ptr的弹唱直播，唱完了那些无病呻吟的流行曲之后开始弹金�
 
 夜见这之前从来没转过en消息的人现在有了男人又是转推又是跑人家推下面留言的，舔洋大人舔疯了，这是犯花痴了吧，果然白皮就是人上人啊
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9453#       发表于 2021-12-20 08:24
+
+ 本帖最后由 alcoholic1000 于 2021-12-20 08:29 编辑 
+
+说好en，怎么又是Tagalog<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">这什么游戏池啊，还喜欢国家队
+
+*****
+
+####  hulaoda007  
+##### 9454#       发表于 2021-12-20 08:36
+
+-                         
+感觉可能正而八经米国人真不多。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

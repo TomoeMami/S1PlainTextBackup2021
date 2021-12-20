@@ -15835,3 +15835,13 @@ lol格斗出了会玩吗<img src="https://static.saraba1st.com/image/smiley/face
 请教一下现在加阿夸的会员的话能看以前会限同時視聴的录像吗，好像看过言叶之庭天气之子还有未闻花名？ ...</blockquote>
 看了一眼都还在，还有泣き猫和K-on
 
+
+
+*****
+
+####  nian1538  
+##### 7301#       发表于 2021-12-20 08:37
+
+https://youtu.be/kWWX2WOPkdQ?t=2642
+已经和巧克老师约会过了，买了衣服
+

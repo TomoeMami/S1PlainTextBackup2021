@@ -8914,3 +8914,19 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Toby_dak  
+##### 2265#       发表于 2021-12-20 08:27
+
+ 本帖最后由 Toby_dak 于 2021-12-20 09:31 编辑 
+<blockquote>引用第2247楼普之舜舜于2021-12-20 00:53发表的  :
+
+打链接怎么打的呀？把链接放在中间都不可以，不知道什么原因—— 来自 OPPO PDKM00, And......</blockquote>
+手机APP没有自动识别URL机能，需要在用网址前后标签。
+ [url] [/url]复制代码
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
