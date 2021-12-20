@@ -9150,3 +9150,19 @@ nagi推也10万粉了，也在搞10万粉纪念回复
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以官方赶紧进来开个号吧，不然特别节目只能靠手游就很尴尬………………国服as真的不行啊
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 2286#       发表于 2021-12-20 12:43
+
+不如FGO可还行，那我还是玩FGO好了……<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 2287#       发表于 2021-12-20 12:49
+
+先把版权集合在一起吧，ll国内版权太散了，缪现在不清楚，水在新华创、虹星动画在木棉花，游戏又是在盛趣。商品没官方渠道。感觉有点难入驻……
+
