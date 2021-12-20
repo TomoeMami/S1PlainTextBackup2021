@@ -9363,3 +9363,82 @@ b站的
 
 <img src="https://img.saraba1st.com/forum/202112/20/155915l7tn0rzxmrt03e00.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2306#       发表于 2021-12-20 16:05
+
+是Payton不是Python啊！
+
+6AC8980E-4BFE-46F4-93DE-EF36E7417C74.jpeg
+(89.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/160541yweeej5zj7k444mw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A533EA21-0719-4A09-87B7-F287995A3B93.jpeg
+(152.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/160541zz6tx4v2jjb060w3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 2307#       发表于 2021-12-20 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54015602&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-20 15:16</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2308#       发表于 2021-12-20 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016371&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-20 16:05</a>
+是Payton不是Python啊！</blockquote>
+pay酱带你一起学Python<img src="https://p.sda1.dev/3/196f3c89412a61263d9e57a54551ed75/IMG_CMP_99819776.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 2309#       发表于 2021-12-20 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016468&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-20 16:11</a>
+
+pay酱带你一起学Python
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+有人直接回这个图了
+
+5C561D8B-7FEE-4B67-9B2F-A657DD800805.jpeg
+(282.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 16:17 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/161741f0sib5iyacsbs5xx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 2310#       发表于 2021-12-20 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54015602&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-20 15:16</a></blockquote>
+你图传错了<img src="https://p.sda1.dev/3/c1edbca60c0ba8aca0a7c6183d3b91b2/IMG_CMP_180318804.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
