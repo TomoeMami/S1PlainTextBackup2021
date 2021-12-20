@@ -9166,3 +9166,14 @@ nagi推也10万粉了，也在搞10万粉纪念回复
 
 先把版权集合在一起吧，ll国内版权太散了，缪现在不清楚，水在新华创、虹星动画在木棉花，游戏又是在盛趣。商品没官方渠道。感觉有点难入驻……
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2288#       发表于 2021-12-20 13:53
+
+剧情不如fgo，但是有扫荡，能养肝啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

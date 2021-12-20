@@ -11929,3 +11929,69 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 不过有个好处，常驻一般强化的多，有几个强化后就特别强的，比如大公呆毛什么的 ...</blockquote>
 也有个坏处，后期的常驻强化很少，第二部以后的常驻只有项王、拿皇和手办拿到了强化
 
+
+
+*****
+
+####  UNISONIA  
+##### 85111#       发表于 2021-12-20 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992086&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 21:05</a>
+
+现在攻击宝具也能当拐，关键是看技能，以及你们是不是忘了当年的初代挂比孔明也是常驻 ...</blockquote>
+初代孔明这种第三章热修强化前被称为唯一抽到了需要reroll的五星？
+
+*****
+
+####  zakki  
+##### 85112#       发表于 2021-12-20 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54014294&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-20 13:44</a>
+
+也有个坏处，后期的常驻强化很少，第二部以后的常驻只有项王、拿皇和手办拿到了强化 ...</blockquote>
+也是，不过说白了还是随缘看运营心情，布妹都弱成什么样了到现在也没个强化，但手办不说强但也是中等偏上，就拿了个强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85113#       发表于 2021-12-20 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新翻页
+
+*****
+
+####  alucardcz  
+##### 85114#       发表于 2021-12-20 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992086&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-18 21:05</a>
+
+现在攻击宝具也能当拐，关键是看技能，以及你们是不是忘了当年的初代挂比孔明也是常驻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那不是因为开服炎上大整修?  你看后面还有常驻的强力拐吗  不刑还是狐狸?
+
+*****
+
+####  qixinno2  
+##### 85115#       发表于 2021-12-20 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54014384&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-20 13:51</a>
+
+也是，不过说白了还是随缘看运营心情，布妹都弱成什么样了到现在也没个强化，但手办不说强但也是中等偏上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说布妹弱的你问过月神没
+
+*****
+
+####  alucardcz  
+##### 85116#       发表于 2021-12-20 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54014503&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-20 14:00</a>
+
+说布妹弱的你问过月神没</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可曾记得剑阶5星双子
+
+*****
+
+####  areklose  
+##### 85117#       发表于 2021-12-20 14:02
+
+我手里自选还在手里，能不能来个大强化让我掏出来换一个
+
