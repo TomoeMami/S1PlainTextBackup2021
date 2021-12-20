@@ -8952,3 +8952,15 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 有知道哪个字幕组准备做返生了吗，中日中英我都可以贡献一下，这期节目太有趣了挺想做做的 ...</blockquote>
 官方会做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TCone  
+##### 2268#       发表于 2021-12-20 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54008326&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-20 00:04</a>
+
+全站在线人数排行进了前十</blockquote>
+stn竟然第一，前一段还在说首页怎么都刷不到自己
+
