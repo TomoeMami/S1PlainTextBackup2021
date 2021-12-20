@@ -8930,3 +8930,25 @@ Lovelive！sunshine！！的魅力是什么？台本上写了
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  努斯万克  
+##### 2266#       发表于 2021-12-20 08:46
+
+ 本帖最后由 努斯万克 于 2021-12-20 08:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54008326&amp;ptid=2036367" target="_blank">名津流 发表于 2021-12-20 00:04</a>
+
+全站在线人数排行进了前十</blockquote>
+宋浩依旧坚挺<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Heliko  
+##### 2267#       发表于 2021-12-20 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54009618&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-20 04:22</a>
+有知道哪个字幕组准备做返生了吗，中日中英我都可以贡献一下，这期节目太有趣了挺想做做的 ...</blockquote>
+官方会做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

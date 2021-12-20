@@ -11853,3 +11853,15 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以有没有人能给特地砍圣诞活动的时间编个合理的理由出来
 
+
+
+*****
+
+####  qixinno2  
+##### 85104#       发表于 2021-12-20 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54009918&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-20 07:55</a>
+
+所以有没有人能给特地砍圣诞活动的时间编个合理的理由出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">DW废物 YLS傻逼就完了 还需要理由么
+
