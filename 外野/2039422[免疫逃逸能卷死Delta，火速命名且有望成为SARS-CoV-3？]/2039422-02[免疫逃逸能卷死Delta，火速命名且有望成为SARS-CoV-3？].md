@@ -7323,3 +7323,28 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  pushare  
+##### 2121#       发表于 2021-12-20 14:33
+
+豪登这次omicron和第一波的一些对比
+
+<img src="https://img.saraba1st.com/forum/202112/20/143257v95m1m5eve59v4j0.jpg" referrerpolicy="no-referrer">
+
+<strong>FHB716CXEAANF5q.jpg</strong> (29.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 14:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/143304qb2t7s7x2ttz847r.jpg" referrerpolicy="no-referrer">
+
+<strong>FHB716EX0Ac_ITp.jpg</strong> (28.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 14:33 上传
+
