@@ -11906,3 +11906,26 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 —— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 没差吧，都是BOSS级决战时难<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rynchee  
+##### 85109#       发表于 2021-12-20 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54003640&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-19 18:10</a>
+刚才又去看了看立绘，差点以为太公望的右手带着指虎，还寻思这是什么暴力道士定睛一看发现只是打神 ...</blockquote>
+然而这里是月球，缝点什么进灵基是基本操作。
+
+更何况极有可能作为原型的藤崎龙版的太公望本来就缝了伏羲。
+
+*****
+
+####  UNISONIA  
+##### 85110#       发表于 2021-12-20 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53992475&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-18 21:26</a>
+
+不过有个好处，常驻一般强化的多，有几个强化后就特别强的，比如大公呆毛什么的 ...</blockquote>
+也有个坏处，后期的常驻强化很少，第二部以后的常驻只有项王、拿皇和手办拿到了强化
+
