@@ -9471,3 +9471,63 @@ yysy 打本有扫荡 抽卡有天井
 你可以认为是一个福利和游戏性都打了折的偶像版GB ...</blockquote>
 懂了，那还行<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2313#       发表于 2021-12-20 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016599&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-20 16:20</a>
+
+你图传错了
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+还有
+
+24FAFEC6-D5E4-4BF5-B1DA-6F769E55D1A0.gif
+(335.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 16:40 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/164054zcducfbcfjxwqr8d.gif" referrerpolicy="no-referrer">
+
+0207D314-EA83-4BE5-A1A8-43EC9D53DB5D.jpeg
+(127.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 16:40 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/164053x0uaxfr9u3x9rpaa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2314#       发表于 2021-12-20 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016236&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-20 15:59</a>
+
+岬百</blockquote>
+光速整活啊这
+
+92A4B2C1-2CD1-4574-BF5A-E0E01188BB92.jpeg
+(348.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 16:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/164202aoy3oyesoevjvyvo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E1291F13-C472-4885-BF2D-A939C1763C10.jpeg
+(131.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 16:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/164202k3w4wabpe3esq45e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

@@ -9878,3 +9878,17 @@ King摘了面具一点气势威严都没有，又一个败给时髦值的
 
 这就是超越顶上的大战吗，爱了爱了
 
+
+
+*****
+
+####  klzxs  
+##### 56276#       发表于 2021-12-20 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54011472&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-12-20 10:25</a>
+
+可不可以再表演一次貂自尊皇再退场啊，翼龙就是这样的，为什么你没了面具就不用了 ...</blockquote>
+那招反正也是兽形用的
+
+脱了皮套也只是去了黑色 区别不大
+
