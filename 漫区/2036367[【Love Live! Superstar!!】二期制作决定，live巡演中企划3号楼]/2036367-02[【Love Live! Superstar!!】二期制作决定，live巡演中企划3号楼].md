@@ -9008,3 +9008,29 @@ stn竟然第一，前一段还在说首页怎么都刷不到自己
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  D麦林  
+##### 2272#       发表于 2021-12-20 10:26
+
+某地出事的时候 啊好像是别的平台有人转播现场录像然后就管了海外源直播 管人转播停了快半年吧我记得
+
+然后之后海外地址就要报备才能播了
+
+拉拉这边理论上是海外直接播过来 就是自己播不是转播 报备就可以
+
+*****
+
+####  cqc1021  
+##### 2273#       发表于 2021-12-20 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54011391&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-20 10:18</a>
+@cqc1021
+
+晓月凛好久没听到了，现在还在日本唱ACG的歌吗</blockquote>
+还在日本，不过已经不做歌手了，她微博前阵子说在考翻译证书。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
