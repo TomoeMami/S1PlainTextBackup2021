@@ -7357,3 +7357,12 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 大英现在也是想着圣诞之后才封锁，什么都不可以碍着大英过圣诞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 2123#       发表于 2021-12-20 16:38
+
+(AP) Israeli ministers have agreed to ban travel to the United States, Canada and eight other countries amid the rapid, global spread of the omicron variant. The rare decision to red-list the U.S. comes amid rising coronavirus infections in Israel. Other countries that were approved to be added to the travel ban starting Wednesday are Belgium, Germany, Hungary, Italy, Morocco, Portugal, Switzerland and Turkey.
+

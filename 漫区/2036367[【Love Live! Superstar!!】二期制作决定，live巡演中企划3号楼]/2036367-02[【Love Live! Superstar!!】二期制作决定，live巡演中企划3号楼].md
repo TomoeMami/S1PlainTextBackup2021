@@ -9442,3 +9442,32 @@ pay酱带你一起学Python
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  D麦林  
+##### 2311#       发表于 2021-12-20 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54013251&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-20 12:27</a>
+
+据玩过的人说，还不如FGO。</blockquote>
+yysy 打本有扫荡 抽卡有天井
+
+比FGO还是好不少的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你可以认为是一个福利和游戏性都打了折的偶像版GBF
+
+*****
+
+####  仟音一心  
+##### 2312#       发表于 2021-12-20 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016837&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-20 16:35</a>
+yysy 打本有扫荡 抽卡有天井
+
+比FGO还是好不少的
+
+你可以认为是一个福利和游戏性都打了折的偶像版GB ...</blockquote>
+懂了，那还行<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

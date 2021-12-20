@@ -12037,3 +12037,17 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  UNISONIA  
+##### 85122#       发表于 2021-12-20 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016007&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-20 15:44</a>
+
+剑阶双子不弱，虽然自Buff低，但是宝具很稀有的自带无敌贯通和无视防御，有些时候不需要带无敌贯通礼装可 ...</blockquote>
+蓝卡剑单体的主要矛盾还是四星配布角的性能过于优秀+五星另外那俩的辅助和混队的性能很高
+
+剑双子色卡NP略优于麻雀但逊于花嫁，宝具回收也乏善可陈（需要靠打色卡连发），不具备直接充能+自buff低。那么多让步只换来一个自带无敌贯通和无视防御（以及打卡出星&amp;回NP这种奇怪的机制），就业面窄的不能再窄了
+
