@@ -11995,3 +11995,15 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 我手里自选还在手里，能不能来个大强化让我掏出来换一个
 
+
+
+*****
+
+####  qixinno2  
+##### 85118#       发表于 2021-12-20 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54014536&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-20 14:02</a>
+
+可曾记得剑阶5星双子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双子强度还行吧 毕竟有无敌贯通和无视防御 主要还是252剧情太败好感让人完全没兴趣
+

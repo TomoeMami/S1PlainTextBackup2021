@@ -2842,3 +2842,14 @@ https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/s
 原来绫总开播的时候在打的格斗道馆已经是第三个道馆了
 你这是个锤子序盘
 
+
+
+*****
+
+####  越动天下  
+##### 13785#       发表于 2021-12-20 14:14
+
+ 本帖最后由 越动天下 于 2021-12-20 14:15 编辑 
+
+看看级数就知道超没超前了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（昨晚就看了一会）
+
