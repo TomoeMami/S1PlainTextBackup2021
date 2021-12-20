@@ -9282,3 +9282,29 @@ b站的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜啊可惜，差点就四灰毛了
 
+
+
+*****
+
+####  lj205  
+##### 2299#       发表于 2021-12-20 15:24
+
+四个可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2300#       发表于 2021-12-20 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54013251&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-20 12:27</a>
+
+据玩过的人说，还不如FGO。</blockquote>
+辱sif了，音游虽然土但是娱乐性还是很不错的，我退坑也是因为反应跟不上+没时间。as的问题不在于游戏性的部分。
+
+*****
+
+####  cybernetics31  
+##### 2301#       发表于 2021-12-20 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">三灰一黑可爱
+
