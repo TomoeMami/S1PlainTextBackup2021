@@ -2862,3 +2862,14 @@ https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事 绫总做了那么多封面 又不会播完 撑死还有2 3次
 
+
+
+*****
+
+####  nian1538  
+##### 13787#       发表于 2021-12-20 17:05
+
+绫总播完了夸夸还要高强度宝呢
+
+别宝了再过2个多星期比赛了赶紧练练吧
+
