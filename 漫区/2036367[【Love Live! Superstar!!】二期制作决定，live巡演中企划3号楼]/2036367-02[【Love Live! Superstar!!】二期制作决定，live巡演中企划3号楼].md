@@ -9125,3 +9125,28 @@ nagi推也10万粉了，也在搞10万粉纪念回复
 
 这俩游戏赶紧砍掉重开吧，素材大量复用也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2283#       发表于 2021-12-20 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54012376&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2021-12-20 11:28</a>
+啊，突然想问，LL为啥会有俩手游，以及好玩吗……</blockquote>
+据玩过的人说，还不如FGO。
+
+*****
+
+####  chenflyyy  
+##### 2284#       发表于 2021-12-20 12:35
+
+今天的倒计时是nagi
+
+*****
+
+####  cybernetics31  
+##### 2285#       发表于 2021-12-20 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以官方赶紧进来开个号吧，不然特别节目只能靠手游就很尴尬………………国服as真的不行啊
+
