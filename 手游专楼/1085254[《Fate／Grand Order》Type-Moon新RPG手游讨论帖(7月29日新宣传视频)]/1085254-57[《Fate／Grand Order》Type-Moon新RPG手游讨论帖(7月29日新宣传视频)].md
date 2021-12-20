@@ -12067,3 +12067,26 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 
 看样子没有free本 纯柱子战啊 倍卡还得用抽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 85125#       发表于 2021-12-20 17:44
+
+活动到31号？也还挺赶的，不知道新年从者是谁……
+
+*****
+
+####  qixinno2  
+##### 85126#       发表于 2021-12-20 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">新年暗之高扬斯卡娅么
+
+*****
+
+####  zakki  
+##### 85127#       发表于 2021-12-20 18:01
+
+果然和我说的一样没free<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

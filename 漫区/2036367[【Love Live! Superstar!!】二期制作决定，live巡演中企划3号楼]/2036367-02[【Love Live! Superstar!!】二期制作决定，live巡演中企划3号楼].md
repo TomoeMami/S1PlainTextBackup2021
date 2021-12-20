@@ -9540,3 +9540,14 @@ E1291F13-C472-4885-BF2D-A939C1763C10.jpeg
 
 才看到菜宝和鲤鱼的生放。。聊挺好
 
+
+
+*****
+
+####  普之舜舜  
+##### 2316#       发表于 2021-12-20 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说感觉我们这个楼好和谐呀！基本都是熟面孔，比贴吧b战氛围好很多哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
