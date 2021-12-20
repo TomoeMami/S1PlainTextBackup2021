@@ -9308,3 +9308,58 @@ b站的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">三灰一黑可爱
 
+
+
+*****
+
+####  仟音一心  
+##### 2302#       发表于 2021-12-20 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54015810&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-20 15:33</a>
+辱sif了，音游虽然土但是娱乐性还是很不错的，我退坑也是因为反应跟不上+没时间。as的问题不在于游戏性的 ...</blockquote>
+说的是PRG那个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 2303#       发表于 2021-12-20 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016026&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-20 15:46</a>
+
+说的是PRG那个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有fes碾，没fes坐牢不是手游天性吗，最起码爱生活不卡qb（
+
+*****
+
+####  仟音一心  
+##### 2304#       发表于 2021-12-20 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54016079&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-20 15:49</a>
+有fes碾，没fes坐牢不是手游天性吗，最起码爱生活不卡qb（</blockquote>
+我没玩过，真不懂这些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2305#       发表于 2021-12-20 15:59
+
+岬百
+
+624C2201-8412-48F5-A08B-213E14BFBE17.jpeg
+(151.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 15:59 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/155915tft8zog15alt1p4r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9E4791C5-AB8E-47C9-A113-E1F11EE2A51A.jpeg
+(171.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 15:59 上传
+
+<img src="https://img.saraba1st.com/forum/202112/20/155915l7tn0rzxmrt03e00.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

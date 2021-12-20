@@ -12007,3 +12007,33 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 可曾记得剑阶5星双子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双子强度还行吧 毕竟有无敌贯通和无视防御 主要还是252剧情太败好感让人完全没兴趣
 
+
+
+*****
+
+####  khxooo  
+##### 85119#       发表于 2021-12-20 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54014536&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-20 14:02</a>
+可曾记得剑阶5星双子</blockquote>
+剑阶双子不弱，虽然自Buff低，但是宝具很稀有的自带无敌贯通和无视防御，有些时候不需要带无敌贯通礼装可以带黑杯增伤。
+
+*****
+
+####  johnkamsar  
+##### 85120#       发表于 2021-12-20 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54014536&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-20 14:02</a>
+可曾记得剑阶5星双子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">剑双子起码打起来挺有节奏感的，只是剧情里两只疯狗没人喜欢罢了….
+
+*****
+
+####  都谷捻柏  
+##### 85121#       发表于 2021-12-20 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54014384&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-20 13:51:51</a>
+也是，不过说白了还是随缘看运营心情，布妹都弱成什么样了到现在也没个强化，但手办不说强但也是中等偏上 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个落地不如四星，一个落地就被大公宝具本背刺身亡，其实都差不多的，你觉得布妹更拉因为她宝具是绿的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
