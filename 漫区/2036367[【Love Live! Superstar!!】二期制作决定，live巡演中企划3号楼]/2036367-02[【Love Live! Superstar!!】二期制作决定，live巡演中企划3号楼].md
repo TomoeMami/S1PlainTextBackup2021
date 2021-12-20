@@ -9220,3 +9220,65 @@ nagi推也10万粉了，也在搞10万粉纪念回复
 哪的热搜？ 推特没看到啊？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">当然是阿b热搜
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2294#       发表于 2021-12-20 15:03
+
+<img src="https://img.saraba1st.com/forum/202112/20/150329upiigbkmkbbt9siq.jpg" referrerpolicy="no-referrer">
+
+<strong>fourgrey.jpg</strong> (403.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 15:03 上传
+
+2幼驯染+2天降侠封面来了
+
+*****
+
+####  黑雪姫  
+##### 2295#       发表于 2021-12-20 15:11
+
+有个灰毛拉了，我不说是谁。
+
+*****
+
+####  离心  
+##### 2296#       发表于 2021-12-20 15:12
+
+<blockquote>黑雪姫 发表于 2021-12-20 14:57
+哪的热搜？ 推特没看到啊？</blockquote>
+b站的
+
+<img src="https://img.saraba1st.com/forum/202112/20/151247zg6gg66jpgx949yh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-20-15-12-10-855_tv.danmaku.bili.jpg</strong> (58.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-20 15:12 上传
+
+*****
+
+####  优妮可  
+##### 2297#       发表于 2021-12-20 15:16
+
+<img src="https://img.saraba1st.com/forum/202112/20/151652hiyy80g0xd18yz83.jpg" referrerpolicy="no-referrer">
+
+<strong>20211220_151426.jpg</strong> (403.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-20 15:16 上传
+
+*****
+
+####  中野四葉  
+##### 2298#       发表于 2021-12-20 15:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜啊可惜，差点就四灰毛了
+
