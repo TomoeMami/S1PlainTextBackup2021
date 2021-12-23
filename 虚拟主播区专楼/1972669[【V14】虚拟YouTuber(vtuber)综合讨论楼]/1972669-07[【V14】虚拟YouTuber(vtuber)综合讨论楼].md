@@ -5686,3 +5686,22 @@ chima 复归歌回唱哭了，看来咽喉炎的精神伤害比较大
 Shu和Mysta是Vtuber转世。海賊海斗（Mysta）的前世切片我看了一部分，感觉算是比较有意思的配信主，但群友 ...</blockquote>
 昨天Vox的SC回点进去看了下感觉属实有点culture shock，这就是女粉收割机吗
 
+
+
+*****
+
+####  nagitoY  
+##### 9467#       发表于 2021-12-24 00:20
+
+鹿乃出道很早的nico唱见吧，今天才发现她在b站180w粉丝，油管反而只有34w？一般nico唱见转油管都自带粉吧，为什么她反而是在b站人气要高？
+
+*****
+
+####  渡鸦骑士  
+##### 9468#       发表于 2021-12-24 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020663&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-24 00:20</a>
+鹿乃出道很早的nico唱见吧，今天才发现她在b站180w粉丝，油管反而只有34w？一般nico唱见转油管都自带粉吧， ...</blockquote>
+因为在阿b套皮活动过一段时间。
+而且作为洛天依的日文声库来源之一也有一定的知名度<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

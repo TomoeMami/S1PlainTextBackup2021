@@ -12444,3 +12444,14 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 以前给的都是些啥玩意儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85168#       发表于 2021-12-24 00:30
+
+ 本帖最后由 zakki 于 2021-12-24 00:34 编辑 
+
+我觉得这帮人已经疯了，草木皆兵，看什么都是樱井，太公望是樱井，尼禄是樱井，杀狐是樱井，通古斯是樱井写的，街机也是樱井写的，圣诞是樱井，万圣是樱井，幕间都是樱井的英灵。能魔怔到这个地步已经不是和樱井过不去了，是和自己过不去，以后怕是除了标明是作者的章节，他们都能说是樱井写的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
