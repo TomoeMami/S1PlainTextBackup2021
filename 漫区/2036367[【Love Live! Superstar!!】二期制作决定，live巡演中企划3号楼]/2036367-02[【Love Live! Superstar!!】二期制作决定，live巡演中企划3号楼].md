@@ -9810,3 +9810,58 @@ E02AA6E4-C7B3-4463-B650-59E1005BEA32.jpeg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  普之舜舜  
+##### 2332#       发表于 2021-12-23 23:22
+
+隔壁少歌是不是因为剧场版被顶上去了呀？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 2333#       发表于 2021-12-23 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019760&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-23 23:16</a>
+去nga那边都没什么人，感觉那个楼活跃人数很少，还是老家这里更热闹些
+
+—— 来自 OPPO PDKM00, Android 11 ...</blockquote>
+nga楼我还发了几张图
+
+*****
+
+####  普之舜舜  
+##### 2334#       发表于 2021-12-23 23:30
+
+ 本帖最后由 普之舜舜 于 2021-12-23 23:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019960&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-23 23:28</a>
+nga楼我还发了几张图</blockquote>
+话说可以问问s1的外野区在哪里?卓明谷感觉有点像，不过好像又不是。我估计平常不留意吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 2335#       发表于 2021-12-23 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019984&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-23 23:30</a>
+话说可以问问s1的外野区在哪里?卓明谷感觉有点像，不过好像又不是。我估计平常不留意吧
+
+ ...</blockquote>
+就是卓明谷
+
+*****
+
+####  普之舜舜  
+##### 2336#       发表于 2021-12-23 23:36
+
+了解了，谢谢哈。我s1平常还是动漫区逛的多，尤其是专楼，别的区很少去.。感觉专楼那种讨论氛围不错。
+其实我平常逛的比较多的就是贴吧，尤其是萌战吧之类的，可惜贴吧不行，都抽楼，无法回复，否则在贴吧专楼讨论氛围也不错，可惜百度自己作死
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

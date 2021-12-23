@@ -5614,3 +5614,43 @@ Syl，EN男团的语言能力属实有点拉了
 
 Vox和Mysta感觉是在复刻en黑黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 9463#       发表于 2021-12-23 23:30
+
+<blockquote>さいね  @sainexxx
+
+翻译自 日语
+
+C99的新书《KONLULU!!》，铃原露露的主力插画书，现在可以邮购了！ 🎨✨
+
+此外，我们有客人为 Makigo(@rollsheeeep)和Fuzichoco(@fuzichoco) 贡献插图......！我真的很感谢你！ 🙏</blockquote>
+<strong>[https://www.melonbooks.co.jp/detail/detail.php?product_id=1177014](https://www.melonbooks.co.jp/detail/detail.php?product_id=1177014)</strong>
+
+<img src="https://img.saraba1st.com/forum/202112/23/232907t1fnnsmzr8bdk271.jpg" referrerpolicy="no-referrer">
+
+<strong>FHR8t61aIAMVaa6.jpg</strong> (224.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-23 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202112/23/232911iib4u6izg6nucbvg.jpg" referrerpolicy="no-referrer">
+
+<strong>FHHsfQdakAMyaeP.jpg</strong> (375.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-23 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202112/23/232940e6z1s64x7ah4lh1h.jpg" referrerpolicy="no-referrer">
+
+<strong>FHNJegpakAA3Gz4.jpg</strong> (322.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-23 23:29 上传
+

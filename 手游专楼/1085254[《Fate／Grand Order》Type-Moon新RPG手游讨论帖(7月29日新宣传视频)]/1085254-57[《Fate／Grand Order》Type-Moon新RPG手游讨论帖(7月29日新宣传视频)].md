@@ -12326,3 +12326,76 @@ S1活了？今天这柱子战太惨烈了，毕竟这羁绊香疯了
 啊……年中初始号玩家，没有泳装黑贞，看来还是等后续活动有什么好的单体了 ...</blockquote>
 剩下三个柱子大概率一个剑，一个弓，一个狂，练练小芬奇应该可以能打狂
 
+
+
+*****
+
+####  枪聆弹语  
+##### 85154#       发表于 2021-12-23 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">万一最后是蘑菇写的太公就好笑了
+
+*****
+
+####  qixinno2  
+##### 85155#       发表于 2021-12-23 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有满破黑杯的我估计没资格1T柱子了
+
+*****
+
+####  仰望神的括约肌  
+##### 85156#       发表于 2021-12-23 23:25
+
+明天老苏巨人男剑感觉解应该不少 二姐或大卫应该都能上班
+
+*****
+
+####  上坂莲华  
+##### 85157#       发表于 2021-12-23 23:25
+
+找个5宝红卡克制单体打手带黑杯A狐换人W蛾子轰就是了，我4宝狂信长随便轰100W，后面只要没外星人估计都这阵容了
+
+*****
+
+####  霧谷藤乃  
+##### 85158#       发表于 2021-12-23 23:27
+
+这助战伊吹也太强了www
+
+*****
+
+####  里村紅葉  
+##### 85159#       发表于 2021-12-23 23:29
+
+NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">未曾设想的道路
+
+*****
+
+####  alucardcz  
+##### 85160#       发表于 2021-12-23 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019919&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-12-23 23:25</a>
+
+找个5宝红卡克制单体打手带黑杯A狐换人W蛾子轰就是了，我4宝狂信长随便轰100W，后面只要没外星人估计都这阵 ...</blockquote>
+带黑杯的话我2包黑狗单狐单奥不换人不用衣服技能已经100万了啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 85161#       发表于 2021-12-23 23:30
+
+感谢阴间机制让我的仓管土方有机会上班，虽然明天就要被超人熊值班了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 85162#       发表于 2021-12-23 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019982&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-23 23:29</a>
+
+带黑杯的话我2包黑狗单狐单奥不换人不用衣服技能已经100万了啊</blockquote>
+你叠OC比狂信多40攻，两人宝具倍率才差150，伤害差不多不是很正常
+
+等一个神性柱子狂信就能不换人不用衣服100W了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

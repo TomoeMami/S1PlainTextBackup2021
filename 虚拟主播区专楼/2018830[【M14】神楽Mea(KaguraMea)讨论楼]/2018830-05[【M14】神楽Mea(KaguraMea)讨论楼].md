@@ -7136,3 +7136,29 @@ pc:https://www.bilibili.com/blackboard/live/activity-lEPOigym7E.html
 
 <img src="https://p.sda1.dev/3/57ed06696f31ff392f1b070c8263b942/IMG_CMP_205619919.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2014720  
+##### 6824#       发表于 2021-12-23 23:21
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/91d14bd70c51729f73eaf3cd35cd469c/IMG_CMP_105417307.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 6825#       发表于 2021-12-23 23:29
+
+看来企划分量不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明天联动也不知道搞些啥
+
+*****
+
+####  T_Hb  
+##### 6826#       发表于 2021-12-23 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明天还有两个主持人呢，估计是综艺还是啥吧
+

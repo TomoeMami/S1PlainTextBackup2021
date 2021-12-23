@@ -7384,3 +7384,19 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 年轻人本来就不容易死吧……前面几轮应该也把容易死的都筛掉了
 
+
+
+*****
+
+####  yaomingkangde  
+##### 2126#       发表于 2021-12-23 23:27
+
+坐等新的阴间变异毒株再次打白皮傻|逼们的脸
+
+*****
+
+####  Litccc  
+##### 2127#       发表于 2021-12-23 23:28
+
+最近有点抑郁，想去美国反向跑毒一死了之了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
