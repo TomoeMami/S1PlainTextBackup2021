@@ -908,3 +908,25 @@ co宝一提到力宏话题就笑嘻了，瓜都嚼了几十遍了是吧<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸟吧鸟频都寄了
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4597#       发表于 2021-12-23 22:42
+
+“首先，我不会再因为大家冲我再开播了。其次，我觉得我没有谜语人。第三，我的动态也并不敷衍。”
+
+好硬的嘴，算是给我滤镜干碎了。
+
+没有谜语人念SC买彩票那段心虚什么。
+
+既然平时没少看海子姐直播，那能不能学学人家微博怎么发的，自己动态发的是个静宝。
+
+*****
+
+####  伞沢直美  
+##### 4598#       发表于 2021-12-23 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝这玩的什么弔游戏
+

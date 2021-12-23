@@ -7366,3 +7366,12 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 (AP) Israeli ministers have agreed to ban travel to the United States, Canada and eight other countries amid the rapid, global spread of the omicron variant. The rare decision to red-list the U.S. comes amid rising coronavirus infections in Israel. Other countries that were approved to be added to the travel ban starting Wednesday are Belgium, Germany, Hungary, Italy, Morocco, Portugal, Switzerland and Turkey.
 
+
+
+*****
+
+####  最好不说  
+##### 2124#       发表于 2021-12-23 22:51
+
+第一批致命性研究结果出了，南非方面说下降了80%，带英几个研究说比起delta下降了30-70%，但omicron震中伦敦目前的确诊病例绝大部分都是二三十岁的年轻人，和南非很像，可以说是非常因吹斯听了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
