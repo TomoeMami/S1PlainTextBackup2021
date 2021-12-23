@@ -5675,3 +5675,14 @@ chima 复归歌回唱哭了，看来咽喉炎的精神伤害比较大
 翻译推文
 下午7:49 · 2021年12月23日·Twitter for iPhone</blockquote>nrk受伤，年内活动全休，昨天发道歉推的时候估计已经受伤了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 9466#       发表于 2021-12-24 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018131&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-12-20 18:04</a>
+Shu和Mysta是Vtuber转世。海賊海斗（Mysta）的前世切片我看了一部分，感觉算是比较有意思的配信主，但群友 ...</blockquote>
+昨天Vox的SC回点进去看了下感觉属实有点culture shock，这就是女粉收割机吗
+
