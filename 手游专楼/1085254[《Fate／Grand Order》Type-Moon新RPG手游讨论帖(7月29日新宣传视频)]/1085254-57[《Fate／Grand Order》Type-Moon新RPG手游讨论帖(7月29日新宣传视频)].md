@@ -12467,3 +12467,61 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">反正看着那帮人对着绊5爆炸我乐到上天了
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一帮没办法正经谈剧情只能在那无能狂怒的搞笑玩意
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 85170#       发表于 2021-12-24 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020328&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-23 23:53</a>
+
+这次这个助战伊吹大概是唯一一个对得起设定实力的助战了
+
+以前给的都是些啥玩意儿
+
+ ...</blockquote>
+2.6的助战也蛮给力的，可能是2.5锁助战那几关被骂的太多，开始反思了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  exiaexa  
+##### 85171#       发表于 2021-12-24 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020770&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 00:30</a>
+我觉得这帮人已经疯了，草木皆兵，看什么都是樱井，太公望是樱井，尼禄是樱井，杀狐是樱井，通古斯是樱井写 ...</blockquote>
+樱井两个最大的黑点，武藏和旧剑，全都是帮菌鸽鸽养的才是最艹的
+特别是旧剑，给他们搞得仿佛菌鸽鸽整个人从旧剑的设定里蒸发了一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85172#       发表于 2021-12-24 01:10
+
+ 本帖最后由 exiaexa 于 2021-12-24 01:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021117&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-12-24 01:07</a>
+2.6的助战也蛮给力的，可能是2.5锁助战那几关被骂的太多，开始反思了吧 ...</blockquote>
+上一个给力的助战是超级卑弥呼啊，比2.6那堆抠抠搜搜的强化实在多了，只是对面实在太菜导致没感觉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 85173#       发表于 2021-12-24 01:10
+
+樱井光安哥拉曼纽说可能性微存
+
+*****
+
+####  exiaexa  
+##### 85174#       发表于 2021-12-24 01:11
+
+其实我真正好奇的是在fgo这么个纯种本子中二游戏里找文化认同到底是啥时候开始的，不管从任何角度在任何时间来说都太他妈弱智了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+拿天天被嘲讽的2.52来说，队友要去送了主角阻止不了然后哭着骂你个大笨蛋这种土味情节，不就是上个世代acg作品的常见套路吗，这玩意儿会被拉出来当黑话梗我至今都没整明白
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

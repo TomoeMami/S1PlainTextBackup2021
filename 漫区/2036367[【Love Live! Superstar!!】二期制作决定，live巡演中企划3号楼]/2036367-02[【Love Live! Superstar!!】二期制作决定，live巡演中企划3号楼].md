@@ -10052,3 +10052,17 @@ Liyuu觉得自己比之前线上 live瘦了，也更有体了。
 
 前辈里还有个不擅长下台阶的
 
+
+
+*****
+
+####  A0171050  
+##### 2354#       发表于 2021-12-24 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020903&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-24 00:46</a>
+
+群里刚发的最近的访谈：
+
+配音时Liyuu会读通台本，一个字一个字上网查。在给动画配音的时候重录次数其实很少 ...</blockquote>
+哈哈哈哈哈哈，soramaru不擅长下楼梯，liyuu不擅长上楼梯，绝了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+

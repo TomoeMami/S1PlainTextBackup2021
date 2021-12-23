@@ -7495,3 +7495,14 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 检测基本也爆了，除了有症状去测的，很多 ...</blockquote>
 带英检测能力前几天就已经到顶了，美国也差不多，佛州现在想买试剂也买不到，现在靠着海量新感染的年轻人注水重症率和死亡率估计还能撑几周，传统易感人群和有基础病的基本感染了以后又可以起飞了，可能这就是生活吧，always in waves<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 2136#       发表于 2021-12-24 01:08
+
+<blockquote>最好不说 发表于 2021-12-24 00:32
+带英检测能力前几天就已经到顶了，美国也差不多，佛州现在想买试剂也买不到，现在靠着海量新感染的年轻人 ...</blockquote>
+不要慌，美国可是有三亿多人呢，一年死一百万，也能撑三百多年。
+
