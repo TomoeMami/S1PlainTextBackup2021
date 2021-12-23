@@ -7515,3 +7515,20 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 帮主今晚的文章就是翻译帝国理工某教授的对英格兰这一波的分析，认为o的重症风险只是略低于d（0-30%），这一波降低重症率最多的因素是既往感染史带来的免疫保护<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2138#       发表于 2021-12-24 06:27
+
+<img src="https://img.saraba1st.com/forum/202112/24/062637ms4qsga4j2hjwjhh.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20211223_142518_620.jpg</strong> (56.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 06:26 上传
+
+三针科兴的免疫保护跟没有差不多
+
