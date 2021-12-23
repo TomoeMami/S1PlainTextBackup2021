@@ -12558,3 +12558,35 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 我觉得这帮人已经疯了，草木皆兵，看什么都是樱井，太公望是樱井，尼禄是樱井，杀狐是樱井，通古斯是樱井写 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">不是说樱井已经在推上认领了么
 
+
+
+*****
+
+####  zakki  
+##### 85179#       发表于 2021-12-24 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021163&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 01:11</a>
+其实我真正好奇的是在fgo这么个纯种本子中二游戏里找文化认同到底是啥时候开始的，不管从任何角度在任何时 ...</blockquote>
+只能说太自信了，自信到在日本游戏里找认同，更何况你月这中国逼格吹的也不低啊，结果还能看到什么冠位里没中国人只出个候补太公望是看不起中国，还有什么诺亚不配冠位骑，大禹才配等等睿智言论
+
+*****
+
+####  zakki  
+##### 85180#       发表于 2021-12-24 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021895&amp;ptid=1085254" target="_blank">编木马者死户口 发表于 2021-12-24 05:10</a>
+不是说樱井已经在推上认领了么</blockquote>
+所以说已经草木皆兵，看什么都是樱井，明明只是一个樱井共通关注的人发的推都能被说成是樱井转的推然后臆想成樱井是这章写手。
+
+*****
+
+####  exiaexa  
+##### 85181#       发表于 2021-12-24 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021895&amp;ptid=1085254" target="_blank">编木马者死户口 发表于 2021-12-24 05:10</a>
+不是说樱井已经在推上认领了么</blockquote>
+樱井个转推怪认领个啥，推测是樱井只是因为她有喜欢转自己负责的章节的习惯
+
+2.6的时候她也在转，总不能说菌鸽鸽被樱井夺舍了吧，推特认领这种事儿看看就得了，主要还是文本习惯、角色配置和官方渠道
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1119,3 +1119,22 @@ t.me/qianniao_official
 
 co宝一共播了8小时25分，热coco都熬干了
 
+
+
+*****
+
+####  伞沢直美  
+##### 4619#       发表于 2021-12-24 07:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么问题来了：co宝退款了吗
+
+*****
+
+####  lunaticfear  
+##### 4620#       发表于 2021-12-24 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022070&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2021-12-24 07:22</a>
+
+那么问题来了：co宝退款了吗</blockquote>
+那必然超过2小时了
+

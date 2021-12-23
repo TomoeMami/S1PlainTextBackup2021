@@ -7558,3 +7558,23 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 [http://www.med.hku.hk/en/news/pr ... ose-vaccine-omicron](http://www.med.hku.hk/en/news/press/20211223-hku-cuhk-third-dose-vaccine-omicron)
 
+
+
+*****
+
+####  guang1g1  
+##### 2141#       发表于 2021-12-24 07:26
+
+三针也就是减少重症的可能，毕竟后遗症这两年一过统计下来还是不少的；倒是一直看好的吸入式疫苗到现在还是只有报导没有推广，有没有大手子聊聊是为什么...<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2142#       发表于 2021-12-24 07:32
+
+<blockquote>Maestro 发表于 2021-12-24 07:18
+这图的出处都不是preprint，就是HKU医学院官网一条新闻里的图，啥信息都没有谁知道实验怎么做的
+
+HKU出来 ...</blockquote>
+等其他大学复现？
+
