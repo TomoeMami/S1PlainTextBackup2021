@@ -7532,3 +7532,29 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 三针科兴的免疫保护跟没有差不多
 
+
+
+*****
+
+####  阿纳金  
+##### 2139#       发表于 2021-12-24 07:16
+
+目前好像南非住院率已经回落了，而英国死亡人数还没上升。
+可能奥米克隆也就这样了。
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Maestro  
+##### 2140#       发表于 2021-12-24 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021976&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-24 06:27</a>
+
+三针科兴的免疫保护跟没有差不多</blockquote>
+这图的出处都不是preprint，就是HKU医学院官网一条新闻里的图，啥信息都没有谁知道实验怎么做的
+
+这篇PI虽然不是袁国勇或者管轶，但是对HKU出来的新冠新闻我是一直持怀疑态度的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[http://www.med.hku.hk/en/news/pr ... ose-vaccine-omicron](http://www.med.hku.hk/en/news/press/20211223-hku-cuhk-third-dose-vaccine-omicron)
+
