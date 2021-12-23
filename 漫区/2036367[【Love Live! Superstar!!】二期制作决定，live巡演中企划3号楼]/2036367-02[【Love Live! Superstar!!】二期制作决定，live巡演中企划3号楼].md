@@ -9865,3 +9865,100 @@ nga楼我还发了几张图</blockquote>
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 2337#       发表于 2021-12-23 23:44
+
+想起来前面楼层有提到Liyuu的唇印，我所在的一个群里还真有人有，唇印、签名、拼图，全的。
+另一个群有人在卖Liyuu早年穿过的cos服（普通400/套，和服800/套），我估计是卖不出去了。
+
+*****
+
+####  lj205  
+##### 2338#       发表于 2021-12-23 23:47
+
+卡页了又？
+
+*****
+
+####  普之舜舜  
+##### 2339#       发表于 2021-12-23 23:47
+
+没卡吧？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2340#       发表于 2021-12-23 23:47
+
+试试
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  普之舜舜  
+##### 2341#       发表于 2021-12-23 23:47
+
+再试试，错觉而已，应该没卡页<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 2342#       发表于 2021-12-23 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020225&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-23 23:47</a>
+卡页了又？</blockquote>
+翻页才会卡bug，现在只是泥潭刚恢复速度还很慢。
+
+*****
+
+####  普之舜舜  
+##### 2343#       发表于 2021-12-23 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020202&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-23 23:44</a>
+想起来前面楼层有提到Liyuu的唇印，我所在的一个群里还真有人有，唇印、签名、拼图，全的。
+另一个群有人在 ...</blockquote>
+收藏价值更大
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 2344#       发表于 2021-12-23 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020251&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-23 23:48</a>
+翻页才会卡bug，现在只是泥潭刚恢复速度还很慢。</blockquote>
+刚打了一顿话没发出来，算了
+
+明天等鲤鱼新歌
+
+*****
+
+####  仟音一心  
+##### 2345#       发表于 2021-12-23 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020260&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-23 23:49</a>
+收藏价值更大
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+想出手的话还是现在好一点，人气正旺。
+真的是很早年的衣服了，还是叫黎狱的时候。
+
+*****
+
+####  lj205  
+##### 2346#       发表于 2021-12-23 23:59
+
+这……收来做啥…………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

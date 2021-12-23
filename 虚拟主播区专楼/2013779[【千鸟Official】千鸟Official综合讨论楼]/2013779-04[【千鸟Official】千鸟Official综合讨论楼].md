@@ -993,3 +993,43 @@ t.me/qianniao_official
 
 老阿姨收收味，别发嗲了
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4607#       发表于 2021-12-23 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019230&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-23 10:42</a>
+“首先，我不会再因为大家冲我再开播了。其次，我觉得我没有谜语人。第三，我的动态也并不敷衍。”
+
+好硬的 ...</blockquote>
+还真是，11月“这个企划就这个狗艹性”，12月“我们是企业势，很多东西我觉得没必要和大家说”
+
+*****
+
+####  袜子  
+##### 4608#       发表于 2021-12-23 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019230&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-23 22:42</a>
+
+“首先，我不会再因为大家冲我再开播了。其次，我觉得我没有谜语人。第三，我的动态也并不敷衍。”
+
+好硬的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每个人都有自己的“业”
+
+或者说文静就是走进了一次，然后她自己又拉开了。多少是会有点难受的
+
+*****
+
+####  星街こうせい  
+##### 4609#       发表于 2021-12-23 23:58
+
+这不是典型的被领导PUA了还觉得自己没被PUA么。
+
+“这狗公司没救了！”
+
+“连夜搞了一个拯救公司的方案，老板居然采纳了。我真是冰雪聪明，老板真是英明神武。”
+
+“我就是千鸟的看门狗汪汪汪汪汪”
+

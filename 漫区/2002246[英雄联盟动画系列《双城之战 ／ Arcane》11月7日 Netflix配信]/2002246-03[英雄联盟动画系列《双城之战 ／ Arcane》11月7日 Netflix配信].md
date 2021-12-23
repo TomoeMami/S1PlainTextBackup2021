@@ -717,3 +717,41 @@ Screenshot_2021-12-17-10-23-29-84.jpg
 手机版和PC版同时开发</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿纳海姆电子  
+##### 3059#       发表于 2021-12-23 23:48
+
+双城之战获9项安妮奖提名
+
+最佳大众动画：EP.6
+
+最佳视觉效果：EP.8
+
+最佳动画角色制作：EP.9
+
+最佳角色设计：EP.2
+
+最佳导演：EP.9
+
+最佳艺术指导：EP.4
+
+最佳分镜：EP.6
+
+最佳配音：EP.6 Jinx
+
+最佳编剧：EP.9
+
+EP.7艾克暴打金克丝没被选上，有点可惜。离谱的是流媒体一共十一个奖双城之战提名九个，偏偏还就没有最佳音乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/23/234818bgpb44db99jp42gj.jpg" referrerpolicy="no-referrer">
+
+<strong>Annie award.jpg</strong> (124.53 KB, 下载次数: 0)
+
+下载附件
+
+梅尔看板娘
+2021-12-23 23:48 上传
+

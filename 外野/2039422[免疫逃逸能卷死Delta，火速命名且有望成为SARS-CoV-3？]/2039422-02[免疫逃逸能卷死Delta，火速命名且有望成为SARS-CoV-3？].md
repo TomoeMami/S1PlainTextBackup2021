@@ -7400,3 +7400,14 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 最近有点抑郁，想去美国反向跑毒一死了之了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eveshell  
+##### 2128#       发表于 2021-12-23 23:43
+
+<blockquote>Litccc 发表于 2021-12-23 23:28
+最近有点抑郁，想去美国反向跑毒一死了之了</blockquote>
+这个病在年轻人身上就基本没事，有事也是后遗症多，更难受。
+

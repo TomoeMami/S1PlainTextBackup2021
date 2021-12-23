@@ -12399,3 +12399,48 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 
 等一个神性柱子狂信就能不换人不用衣服100W了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 85163#       发表于 2021-12-23 23:42
+
+黑杯黑狗的话 双奥极地服1宝90级满金芙就能打120w上下 还不用带宝石 不喂金芙100w左右应该也不成问题
+
+*****
+
+####  rooarr  
+##### 85164#       发表于 2021-12-23 23:47
+
+不要急，明天肯定有新机制，现在这种组队讨论意义不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85165#       发表于 2021-12-23 23:49
+
+ 本帖最后由 exiaexa 于 2021-12-23 23:51 编辑 
+
+明天老苏当然是用西哥干爆他啊。我这就去点个通用3
+就看限制机制是啥了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85166#       发表于 2021-12-23 23:50
+
+就算满破黑杯也一样要奥伯龙出来，这次90+没有奥伯龙估计要上陈宫+土方这个阵型了，对于讨厌奥伯龙的我来说，简直要忍住恶心来选他<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85167#       发表于 2021-12-23 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019944&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-12-23 23:27</a>
+这助战伊吹也太强了www</blockquote>
+这次这个助战伊吹大概是唯一一个对得起设定实力的助战了
+以前给的都是些啥玩意儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
