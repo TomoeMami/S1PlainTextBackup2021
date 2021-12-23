@@ -7096,3 +7096,43 @@ syl 半个小时不够，多来点播播<img src="https://static.saraba1st.com/i
 
 155，那可以抱起来糙了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 6820#       发表于 2021-12-23 23:00
+
+这两年的圣诞圭利联动都蛮神必的，不过这次比上次的马车要好不少
+
+*****
+
+####  遗忘回想  
+##### 6821#       发表于 2021-12-23 23:05
+
+ 本帖最后由 遗忘回想 于 2021-12-23 23:07 编辑 
+
+终于复活了，这几天还挺精彩，嘿
+
+简单说一下这几天吊人安排，明天估计全是那个vcp的节目了，二十五有翻唱，可能联动前自己播，之后无
+
+*****
+
+####  T_Hb  
+##### 6822#       发表于 2021-12-23 23:13
+
+再来点阴间101
+
+*****
+
+####  2014720  
+##### 6823#       发表于 2021-12-23 23:16
+
+【Virtual Cinderella Project】虚拟女团团综12月24日20:00~首播！请多多支持！！
+预约抽奖动态：https://t.bilibili.com/607373693520686732?tab=2
+活动页面：
+h5:https://www.bilibili.com/blackboard/live/activity-eK5Baans1u.html
+pc:https://www.bilibili.com/blackboard/live/activity-lEPOigym7E.html
+
+<img src="https://p.sda1.dev/3/57ed06696f31ff392f1b070c8263b942/IMG_CMP_205619919.png" referrerpolicy="no-referrer">
+

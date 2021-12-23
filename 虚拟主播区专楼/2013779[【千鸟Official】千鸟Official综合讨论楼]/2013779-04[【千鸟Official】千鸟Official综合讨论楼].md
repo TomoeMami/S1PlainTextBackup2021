@@ -930,3 +930,20 @@ co宝一提到力宏话题就笑嘻了，瓜都嚼了几十遍了是吧<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝这玩的什么弔游戏
 
+
+
+*****
+
+####  GAKOTO  
+##### 4599#         楼主| 发表于 2021-12-23 23:16
+
+t.me/qianniao_official
+以防万一
+
+*****
+
+####  Niyah  
+##### 4600#       发表于 2021-12-23 23:17
+
+说小时候跟男生玩游戏那段入脑了，感受到了主播纯真的一面
+

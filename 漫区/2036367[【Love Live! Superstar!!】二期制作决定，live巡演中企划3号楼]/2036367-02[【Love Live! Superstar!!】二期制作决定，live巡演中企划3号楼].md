@@ -9766,3 +9766,47 @@ E02AA6E4-C7B3-4463-B650-59E1005BEA32.jpeg
 隔壁也是专楼但就有各种嘴上平等对待实则拉偏架的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话这楼纯良得简直不像s1
 
+
+
+*****
+
+####  普之舜舜  
+##### 2328#       发表于 2021-12-23 23:15
+
+抹布西
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2329#       发表于 2021-12-23 23:15
+
+ 本帖最后由 普之舜舜 于 2021-12-23 23:16 编辑 
+
+楼里的大家真的好久不见呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2330#       发表于 2021-12-23 23:16
+
+去nga那边都没什么人，感觉那个楼活跃人数很少，还是老家这里更热闹些
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2331#       发表于 2021-12-23 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018351&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-20 18:22</a>
+隔壁专楼刚刚大战完
+
+我不好说……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为那边没几个活跃的人呢，老实说感觉nga用不惯
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

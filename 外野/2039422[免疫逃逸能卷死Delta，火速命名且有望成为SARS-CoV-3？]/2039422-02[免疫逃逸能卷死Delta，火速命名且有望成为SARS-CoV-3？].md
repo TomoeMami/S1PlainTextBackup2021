@@ -7375,3 +7375,12 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 
 第一批致命性研究结果出了，南非方面说下降了80%，带英几个研究说比起delta下降了30-70%，但omicron震中伦敦目前的确诊病例绝大部分都是二三十岁的年轻人，和南非很像，可以说是非常因吹斯听了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ysys  
+##### 2125#       发表于 2021-12-23 23:17
+
+年轻人本来就不容易死吧……前面几轮应该也把容易死的都筛掉了
+

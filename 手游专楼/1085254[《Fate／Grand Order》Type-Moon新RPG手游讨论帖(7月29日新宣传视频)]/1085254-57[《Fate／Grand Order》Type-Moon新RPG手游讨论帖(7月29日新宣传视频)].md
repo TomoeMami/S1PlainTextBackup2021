@@ -12275,3 +12275,54 @@ S1活了？今天这柱子战太惨烈了，毕竟这羁绊香疯了
 草啊，我今天就砍了三根柱子啊。。。。。。。你们就那么饥渴嘛？！！！！！！！ ...</blockquote>
 虽然这柱子材料拉胯但这羁绊增长太恐怖了，后面几个柱子要是材料再好点，特么估计连挤都挤不进去了吧
 
+
+
+*****
+
+####  qixinno2  
+##### 85148#       发表于 2021-12-23 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我根本没见到柱子
+
+*****
+
+####  霧谷藤乃  
+##### 85149#       发表于 2021-12-23 23:05
+
+打了几下感觉要好几回合就弃了，毕竟手里没有强力单体，是时候想想拉个谁了，活动小芬骑可以么……
+
+*****
+
+####  超阳电子炮  
+##### 85150#       发表于 2021-12-23 23:05
+
+才刷了不到30回，我真的是刚进去一分钟，刚打第一回合，就显示被讨伐3000次了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85151#       发表于 2021-12-23 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019602&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-12-23 23:05</a>
+打了几下感觉要好几回合就弃了，毕竟手里没有强力单体，是时候想想拉个谁了，活动小芬骑可以么…… ...</blockquote>
+泳装黑贞带满破黑杯应该可以，小芬奇打白字肯定是不行的
+
+*****
+
+####  霧谷藤乃  
+##### 85152#       发表于 2021-12-23 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019618&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-23 23:07</a>
+
+泳装黑贞带满破黑杯应该可以，小芬奇打白字肯定是不行的</blockquote>
+啊……年中初始号玩家，没有泳装黑贞，看来还是等后续活动有什么好的单体了
+
+*****
+
+####  zakki  
+##### 85153#       发表于 2021-12-23 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019661&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-12-23 23:11</a>
+啊……年中初始号玩家，没有泳装黑贞，看来还是等后续活动有什么好的单体了 ...</blockquote>
+剩下三个柱子大概率一个剑，一个弓，一个狂，练练小芬奇应该可以能打狂
+
