@@ -1089,3 +1089,226 @@ Starlight结束之后光恋二人的关系突飞猛进，基本就像露女士�
 原来这出剧是现实中有的吗，当时还查了一下没能找到所以新国立其实就是宝冢吗……那好几个人都填 ...</blockquote>
 剧团四季和东宝。
 
+
+
+*****
+
+####  remedios010000  
+##### 68#       发表于 2021-12-24 01:50
+
+华恋分一半的闪耀给光的同时自己还能在圣翔摸鱼划水。TV结局算是闪耀再生产给那一半补了回来。到了剧场版除了失去了目标以外，华恋的演技已经进化到了令纯娜惊讶的地步。闪耀拉满的恋哥哥应该是钦定的天花板了，只能说要是一开始搁车顶来一场“想要两人一起starlight的revue”的话华恋应该能把其他8个人全秒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jyhldlagen  
+##### 69#       发表于 2021-12-24 01:55
+
+恋哥哥好帅！
+
+*****
+
+####  nh_zzz  
+##### 70#       发表于 2021-12-24 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021385&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-24 01:42</a>
+
+原来这出剧是现实中有的吗，当时还查了一下没能找到所以新国立其实就是宝冢吗……那好几个人都填 ...</blockquote>
+小日向还发过推说因为是现实有的剧所以很难演绎
+
+*****
+
+####  堆雪若叶  
+##### 71#         楼主| 发表于 2021-12-24 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021425&amp;ptid=2043629" target="_blank">remedios010000 发表于 2021-12-24 01:50</a>
+
+华恋分一半的闪耀给光的同时自己还能在圣翔摸鱼划水。TV结局算是闪耀再生产给那一半补了回来。到了剧场版除 ...</blockquote>
+TV本来就是天花板啊，约定光恋都有刷过蕉的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mc凉月奏酱  
+##### 72#       发表于 2021-12-24 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021425&amp;ptid=2043629" target="_blank">remedios010000 发表于 2021-12-24 01:50</a>
+
+华恋分一半的闪耀给光的同时自己还能在圣翔摸鱼划水。TV结局算是闪耀再生产给那一半补了回来。到了剧场版除 ...</blockquote>
+所以爱城华恋为什么是神，吊车尾是吧？乱杀！就一路车过去行了。
+
+*****
+
+####  Mc凉月奏酱  
+##### 73#       发表于 2021-12-24 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021473&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-24 01:59</a>
+
+TV本来就是天花板啊，约定光恋都有刷过蕉的含金量结尾也是光被反杀。但是剧场版再挂闪耀buff反而 ...</blockquote>
+感觉其实也不是打不过，爱城华恋看起来也没想打，就是想被捅一下（也是一种摆烂？
+
+而且剧场版里所有人都反杀了，如果光被反杀了两次也过于恶趣味了
+
+*****
+
+####  堆雪若叶  
+##### 74#         楼主| 发表于 2021-12-24 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021505&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-24 02:07</a>
+
+感觉其实也不是打不过，爱城华恋看起来也没想打，就是想被捅一下（也是一种摆烂？
+
+而且剧场版里所有人都 ...</blockquote>
+都说了不想输还能不认真吗，再放水白追一趟。不过确实古川是有意让华恋输的，也是和TV对称互相拯救。
+
+*****
+
+####  rainknine  
+##### 75#       发表于 2021-12-24 02:11
+
+住手这不是audition（
+不过本次剧场版虽然还了很多愿，光昼啊迷宫啊全开蕉啊各种各种，回想起来三年前最让我感到闪耀的还是第一话跳入舞台的华恋。
+
+剧场版没有全开恋打戏，就火车归来唱名的时候舞了一下剑就很残念<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+虽然就那两个镜头我都可以兴奋半天
+
+*****
+
+####  0aleph37  
+##### 76#       发表于 2021-12-24 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021106&amp;ptid=2043629" target="_blank">pzk 发表于 2021-12-24 01:06</a>
+
+感觉自己肯定是没有看懂，想知道蕉哥哥一开始为什么要单挑全部人，番茄又代表了什么？ ...</blockquote>
+为了让舞台少女们意识到自己的死，然后才能迈向下一个舞台。
+
+番茄是长颈鹿=观众=古川燃烧殆尽的产物，给舞台少女们前往下一个舞台的机会，我觉得之后你就可以自行理解了。
+
+*****
+
+####  0aleph37  
+##### 77#       发表于 2021-12-24 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021485&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-24 02:02</a>
+
+所以爱城华恋为什么是神，吊车尾是吧？乱杀！就一路车过去行了。</blockquote>
+哪里吊车尾啦，无论是看了新剧场版还是看了总集篇的场刊都应该知道论履历华恋可是99组top3
+
+*****
+
+####  shamanda  
+##### 78#       发表于 2021-12-24 02:17
+
+最后还是看不太明白，你都这么牛逼轰轰死而复生重新登场了，怎么也得有个逼格保护期啊，真的圣翔陈近南嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 79#       发表于 2021-12-24 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021557&amp;ptid=2043629" target="_blank">shamanda 发表于 2021-12-24 02:17</a>
+
+最后还是看不太明白，你都这么牛逼轰轰死而复生重新登场了，怎么也得有个逼格保护期啊，真的圣翔陈近南嘛[f ...</blockquote>
+输赢不重要 ，倒不如说舞台少女的重生才是新剧场版revue的目的所在，为了前往下一个舞台
+
+*****
+
+####  Mc凉月奏酱  
+##### 80#       发表于 2021-12-24 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021552&amp;ptid=2043629" target="_blank">0aleph37 发表于 2021-12-24 02:16</a>
+
+哪里吊车尾啦，无论是看了新剧场版还是看了总集篇的场刊都应该知道论履历华恋可是99组top3 ...</blockquote>
+这话回应的是TV恋啊，TV里大场奈奈自己说的
+
+至于后面那是补充的设定了，为了符合剧场版的人物形象
+
+*****
+
+####  unnilennium  
+##### 81#       发表于 2021-12-24 02:29
+
+随便先写点剧情感想以外的东西。
+1.电车上的广告是手游里出现的凛明馆等学校、华恋中学考试的传单是圣翔和青岚。
+2.99期集会上的BGM放的是企划内的单曲系列，九九组的五单約束タワー
+3.真昼和光追逐的部分，下降的圆形舞台是舞浜アンフィシアター（#2再演的会场）的奈落（舞台底部）其他的后台部分之前看repo，有参考天王洲銀河劇場（#2初演、青岚舞台、明年的手游舞台）
+都是和少歌系列作品有关的会场。
+
+不是说要强调动画服务“企划”本身。只是觉得比如说手游，在剧场版里，能稍微提一下其他学校的存在，也能考虑一些全企划和戏外有渊源的部分。懂的人自然懂，这个程度对圣翔主线刚刚好。
+
+*****
+
+####  0aleph37  
+##### 82#       发表于 2021-12-24 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021575&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-24 02:21</a>
+
+这话回应的是TV恋啊，TV里大场奈奈自己说的
+
+至于后面那是补充的设定了，为了符合剧场版的人物形象 ...</blockquote>
+那是因为光输了revue导致的缺闪耀吧，光输掉revue应该是在3月份，华恋应该是从2年级初开始摸鱼，直到5月份revue开始小光来圣翔，总计也就2个月摸鱼时间
+
+*****
+
+####  rainknine  
+##### 83#       发表于 2021-12-24 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021557&amp;ptid=2043629" target="_blank">shamanda 发表于 2021-12-24 02:17</a>
+最后还是看不太明白，你都这么牛逼轰轰死而复生重新登场了，怎么也得有个逼格保护期啊，真的圣翔陈近南嘛[f ...</blockquote>
+光捅刀子的那一下感觉是刻意反直觉了以至于直到结尾我还在等安可
+但看来相同的招式不会用第二遍<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+我的理解是在这个时间点，恋找回了站在舞台上的决心因此复活，但只有决心，还没找到自己的下一个舞台在哪，是空虚恋。
+starlight在tv已经是完美的了，剧场版要是一场大胜再说“我可能是世界上最空虚的人”感觉就很怪（
+
+换最后audition恋来全杀了（指把来看自己的小光咕掉
+
+*****
+
+####  Mc凉月奏酱  
+##### 84#       发表于 2021-12-24 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021597&amp;ptid=2043629" target="_blank">unnilennium 发表于 2021-12-24 02:29</a>
+
+随便先写点剧情感想以外的东西。
+
+1.电车上的广告是手游里出现的凛明馆等学校、华恋中学考试的传单是圣翔和 ...</blockquote>
+换句话说主线和其他企划的关系也就到此为止了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unnilennium  
+##### 85#       发表于 2021-12-24 02:57
+
+ 本帖最后由 unnilennium 于 2021-12-24 03:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021640&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-24 02:48</a>
+换句话说主线和其他企划的关系也就到此为止了</blockquote>
+个人感觉很好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+另外看到舞浜的奈落，也很感激监督当时对三森说过，这不仅是华恋她们的电影，也是给CV九位的电影，戏里戏外能看到这些确实挺舒适的
+
+*****
+
+####  堆雪若叶  
+##### 86#         楼主| 发表于 2021-12-24 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021597&amp;ptid=2043629" target="_blank">unnilennium 发表于 2021-12-24 02:29</a>
+
+随便先写点剧情感想以外的东西。
+
+1.电车上的广告是手游里出现的凛明馆等学校、华恋中学考试的传单是圣翔和 ...</blockquote>
+听到五单那里还是蛮感触的，有意做成现场音效就想到上次live不知道多久之前了
+
+*****
+
+####  ColinWine  
+##### 87#       发表于 2021-12-24 03:06
+
+我现在可能是世界上最空虚的人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  unnilennium  
+##### 88#       发表于 2021-12-24 03:18
+
+对了，Oricon综合BD销量榜，前两天少歌都是第3位。店铺也有断补货现象，希望这次能有一个好成绩。
+

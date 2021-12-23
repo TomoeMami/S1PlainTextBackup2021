@@ -1094,3 +1094,19 @@ t.me/qianniao_official
 鸟吧鸟频都寄了</blockquote>
 都有新根据地啊.
 
+
+
+*****
+
+####  小憨1  
+##### 4616#       发表于 2021-12-24 01:54
+
+才发现S1活了，今天直播看的挺开心，直播完一看各个论坛全破防了，我突然有种进入平行世界的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfear  
+##### 4617#       发表于 2021-12-24 04:43
+
+让我看看这个点还有谁在看co宝
+

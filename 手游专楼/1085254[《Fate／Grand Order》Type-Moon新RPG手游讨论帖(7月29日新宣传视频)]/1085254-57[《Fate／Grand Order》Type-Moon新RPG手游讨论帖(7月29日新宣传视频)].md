@@ -12525,3 +12525,36 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 拿天天被嘲讽的2.52来说，队友要去送了主角阻止不了然后哭着骂你个大笨蛋这种土味情节，不就是上个世代acg作品的常见套路吗，这玩意儿会被拉出来当黑话梗我至今都没整明白
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 85175#       发表于 2021-12-24 02:10
+
+樱井,是樱井把人变成了鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 85176#       发表于 2021-12-24 04:56
+
+我的评价，type-moon你干的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 85177#       发表于 2021-12-24 05:08
+
+你们能不能别这样，我还等着废狗出yls教的从者呢
+
+*****
+
+####  编木马者死户口  
+##### 85178#       发表于 2021-12-24 05:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020770&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 00:30</a>
+
+我觉得这帮人已经疯了，草木皆兵，看什么都是樱井，太公望是樱井，尼禄是樱井，杀狐是樱井，通古斯是樱井写 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">不是说樱井已经在推上认领了么
+

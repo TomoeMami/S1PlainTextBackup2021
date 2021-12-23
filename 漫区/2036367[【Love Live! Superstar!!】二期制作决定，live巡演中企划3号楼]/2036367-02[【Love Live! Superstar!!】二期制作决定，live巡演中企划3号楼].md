@@ -10066,3 +10066,16 @@ Liyuu觉得自己比之前线上 live瘦了，也更有体了。
 配音时Liyuu会读通台本，一个字一个字上网查。在给动画配音的时候重录次数其实很少 ...</blockquote>
 哈哈哈哈哈哈，soramaru不擅长下楼梯，liyuu不擅长上楼梯，绝了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  长日留痕  
+##### 2355#       发表于 2021-12-24 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020501&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-24 00:06</a>
+现役JK的纯度啊</blockquote>
+看上去憨憨的。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
