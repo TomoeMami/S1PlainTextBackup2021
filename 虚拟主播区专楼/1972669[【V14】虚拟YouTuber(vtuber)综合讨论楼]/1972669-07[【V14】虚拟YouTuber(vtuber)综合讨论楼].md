@@ -5705,3 +5705,17 @@ Shu和Mysta是Vtuber转世。海賊海斗（Mysta）的前世切片我看了一�
 因为在阿b套皮活动过一段时间。
 而且作为洛天依的日文声库来源之一也有一定的知名度<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nagitoY  
+##### 9469#       发表于 2021-12-24 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020685&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-12-24 00:22</a>
+
+因为在阿b套皮活动过一段时间。
+
+而且作为洛天依的日文声库来源之一也有一定的知名度 ...</blockquote>
+翻了下投稿，她来中国开过真人和虚拟live，而且翻唱了不少中文歌。挺重视中国市场的唱见，难怪国内粉丝多
+

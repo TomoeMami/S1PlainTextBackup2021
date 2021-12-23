@@ -12455,3 +12455,15 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 
 我觉得这帮人已经疯了，草木皆兵，看什么都是樱井，太公望是樱井，尼禄是樱井，杀狐是樱井，通古斯是樱井写的，街机也是樱井写的，圣诞是樱井，万圣是樱井，幕间都是樱井的英灵。能魔怔到这个地步已经不是和樱井过不去了，是和自己过不去，以后怕是除了标明是作者的章节，他们都能说是樱井写的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOBI  
+##### 85169#       发表于 2021-12-24 00:53
+
+ 本帖最后由 KOBI 于 2021-12-24 00:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">反正看着那帮人对着绊5爆炸我乐到上天了
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一帮没办法正经谈剧情只能在那无能狂怒的搞笑玩意
+

@@ -4582,3 +4582,25 @@ https://space.bilibili.com/672342685/
 杜宝，我也想你了</blockquote>
 [乃琳Queen_MUA!][乃琳Queen_MUA!]多看乃琳
 
+
+
+*****
+
+####  勾陈一  
+##### 343#       发表于 2021-12-24 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019956&amp;ptid=2034216" target="_blank">杜知新 发表于 2021-12-23 23:27</a>
+
+楼主真的，我哭死乃楼有您了不起</blockquote>
+杜宝，我也想你了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杜知新  
+##### 344#       发表于 2021-12-24 01:02
+
+ 本帖最后由 杜知新 于 2021-12-24 01:03 编辑 
+
+[/url]
+我希望永远都有人爱你，即使是在耀眼的舞台上，还是平淡的生活里，我希望你健健康康，希望你能够快快乐乐的。乃宝你笑起来真的很治愈你知道嘛！感觉坏心情都飞走了！[url=home.php?mod=space&amp;uid=544996]@乃琳Queen
+
