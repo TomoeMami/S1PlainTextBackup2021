@@ -12146,3 +12146,98 @@ ipad随便搞了个石头号  600石0 5星    还想说抽个妖兰挂着玩
 我就不一样了 随便掉什么我都没兴趣刷  除非出个人权我用苹果刷石头 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你只能祈祷姜子牙是个超强人权了 虽然我觉得常驻五星骑光炮就已经DEBUFF加满了
 
+
+
+*****
+
+####  沼蝇  
+##### 85134#       发表于 2021-12-20 18:26
+
+我问一哈嗷，姜子牙能自选吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 85135#       发表于 2021-12-20 18:27
+
+你想得有点多啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  qixinno2  
+##### 85136#       发表于 2021-12-20 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018393&amp;ptid=1085254" target="_blank">沼蝇 发表于 2021-12-20 18:26</a>
+
+我问一哈嗷，姜子牙能自选吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">想屁吃 连去年出的尼莫都不能自选呢
+
+*****
+
+####  khxooo  
+##### 85137#       发表于 2021-12-20 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018393&amp;ptid=1085254" target="_blank">沼蝇 发表于 2021-12-20 18:26</a>
+我问一哈嗷，姜子牙能自选吗</blockquote>
+今晚有点冷，早点睡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85138#       发表于 2021-12-20 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018385&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-20 18:25</a>
+
+那你只能祈祷姜子牙是个超强人权了 虽然我觉得常驻五星骑光炮就已经DEBUFF加满了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">指望他还不如指望2期呢  谁要常驻啊（还是个男的
+
+*****
+
+####  angelooo  
+##### 85139#       发表于 2021-12-23 22:11
+
+S1活了？今天这柱子战太惨烈了，毕竟这羁绊香疯了
+
+*****
+
+####  exiaexa  
+##### 85140#       发表于 2021-12-23 22:15
+
+ 本帖最后由 exiaexa 于 2021-12-23 22:17 编辑 
+
+今天柱子材料全部500+打个锤子啊
+
+反倒是这几天节奏快把我乐死了
+
+太快乐了，不管作者是谁加大力度不要停啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 85141#       发表于 2021-12-23 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018685&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-23 22:15</a>
+今天柱子材料全部500+打个锤子啊
+
+反倒是这几天节奏快把我乐死了</blockquote>
+昨晚睡得早，早上起来一看怎么隔壁屠版了，还以为发生了啥，找来绊五语音一看就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 85142#       发表于 2021-12-23 22:22
+
+深夜（指晚上19点）
+
+*****
+
+####  zakki  
+##### 85143#       发表于 2021-12-23 22:23
+
+翻页
+
