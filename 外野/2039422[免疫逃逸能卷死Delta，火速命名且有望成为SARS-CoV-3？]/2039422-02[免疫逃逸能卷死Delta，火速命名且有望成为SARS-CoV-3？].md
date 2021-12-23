@@ -7506,3 +7506,12 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 带英检测能力前几天就已经到顶了，美国也差不多，佛州现在想买试剂也买不到，现在靠着海量新感染的年轻人 ...</blockquote>
 不要慌，美国可是有三亿多人呢，一年死一百万，也能撑三百多年。
 
+
+
+*****
+
+####  Maestro  
+##### 2137#       发表于 2021-12-24 01:28
+
+帮主今晚的文章就是翻译帝国理工某教授的对英格兰这一波的分析，认为o的重症风险只是略低于d（0-30%），这一波降低重症率最多的因素是既往感染史带来的免疫保护<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

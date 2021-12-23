@@ -1071,3 +1071,26 @@ t.me/qianniao_official
 
 令人安心的鸟综，无论什么版本，这里都是停尸间<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莫洛骑士  
+##### 4614#       发表于 2021-12-24 01:24
+
+ 本帖最后由 莫洛骑士 于 2021-12-23 13:34 编辑 
+
+我七月的时候不会信她还挺有趣的，九月不会信这个企划要烂了，十月不会信不仅要烂还会寄，十一月初不会信靠微信投诉甚至能把陈珺扳下去，上周不会信千鸟马上企业盾谜语拉满
+
+一切的一切都是我的问题，只是千鸟转弯太快了，我好像被甩出去了
+
+*****
+
+####  tankai  
+##### 4615#       发表于 2021-12-24 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019163&amp;ptid=2013779" target="_blank">四叶的花 发表于 2021-12-23 22:38</a>
+
+鸟吧鸟频都寄了</blockquote>
+都有新根据地啊.
+
