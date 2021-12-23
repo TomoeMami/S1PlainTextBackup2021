@@ -5605,3 +5605,12 @@ Syl，EN男团的语言能力属实有点拉了
 
 查看全部评分
 
+
+
+*****
+
+####  OldGlory  
+##### 9462#       发表于 2021-12-23 22:31
+
+Vox和Mysta感觉是在复刻en黑黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
