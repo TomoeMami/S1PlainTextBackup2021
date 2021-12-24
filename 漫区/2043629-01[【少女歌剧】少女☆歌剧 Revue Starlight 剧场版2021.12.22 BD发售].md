@@ -1784,3 +1784,27 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 
 华恋小时候那么努力，怎么tv里就一直摸鱼的
 
+
+
+*****
+
+####  nh_zzz  
+##### 135#       发表于 2021-12-24 11:25
+
+可惜mmy的舞台剧没什么人烤肉，座长在舞台才是本体啊
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rainknine  
+##### 136#       发表于 2021-12-24 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54024995&amp;ptid=2043629" target="_blank">moshizhe 发表于 2021-12-24 11:11</a>
+华恋小时候那么努力，怎么tv里就一直摸鱼的</blockquote>
+光恋一体论小光背锅之前有讨论了
+想找点别的解释的话，联想一下恋之魔球，说不定一切都是恋哥哥为了在真昼女士手下活下来使用的伪装
+“继续赖床呀，继续迟到啊”
+“继续”
+“让我照顾啊”
+

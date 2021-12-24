@@ -1160,3 +1160,19 @@ co宝一共播了8小时25分，热coco都熬干了
 
 随便了，覆水难收，没有回头路。后面看千鸟工作走向如何了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gawain039  
+##### 4623#       发表于 2021-12-24 11:27
+
+有新鸟频的，通行证群号693673606
+
+*****
+
+####  gawain039  
+##### 4624#       发表于 2021-12-24 11:28
+
+<img src="https://p.sda1.dev/3/0806016ee0c1e5371f341cdfae551df7/qrcode_1640316416496.jpg" referrerpolicy="no-referrer">
+

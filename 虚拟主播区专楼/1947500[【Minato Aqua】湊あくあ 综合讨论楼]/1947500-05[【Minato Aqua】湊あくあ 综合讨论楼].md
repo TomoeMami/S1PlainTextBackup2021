@@ -15943,3 +15943,23 @@ ne：可以睡一起嘛
 楼友们有夸频吗</blockquote>
 频道搜索 aqua crew
 
+
+
+*****
+
+####  nian1538  
+##### 7310#       发表于 2021-12-24 11:25
+
+付费用户顶多退坑，很难变成6期財布的
+
+再次引用我非常喜欢的4chan老哥的话
+ <blockquote>"Gura killer" is so effective as bait, it is like the "WoW killer" people have been talking about for the past 15 years until WoW killed itself.
+
+It's the same problem with both, really.
+
+Vtubers and MMOs aren't interchangeable. If someone likes WoW they don't want a different game, they want WoW. If someone wants Gura they don't want a different chuuba, they want Gura. Neither is going to switch to something else even if it's "better", they'll only switch if the thing they like already gets much worse.</blockquote>
+
+反正只看唱歌跳舞我是根本不想看夸宝的，陪着摆了9个月也算是尽到义务了
+
+马上也新年了就按照业界传统再看夸夸半年，估计也是再摆半年，然后也可以宣布crew生涯毕业了
+
