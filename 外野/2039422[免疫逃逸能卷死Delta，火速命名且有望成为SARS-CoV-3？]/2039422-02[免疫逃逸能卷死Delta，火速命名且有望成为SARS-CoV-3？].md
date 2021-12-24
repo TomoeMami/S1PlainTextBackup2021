@@ -8153,3 +8153,28 @@ omega也是o
 这病毒不会消失的情况下 每年一到两个新变种几乎板上钉钉</blockquote>
 但是具体感染人数影响变异的潜力，几亿人养蛊和不知道哪里潜伏的养蛊肯定不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 2189#       发表于 2021-12-25 07:30
+
+<img src="https://img.saraba1st.com/forum/202112/25/072039wi3vu44f4ugcpjgm.png" referrerpolicy="no-referrer">
+
+<strong>mmexport05e09aa3c5d105b81e5afb2f1d8d0877_1640387570087.png</strong> (103.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-25 07:20 上传
+
+某些人要的图，咱们就看实际情况，这两年疫情下来有任何一个国家靠打疫苗取得完全胜利过吗？半场开香槟的倒是不少，然后全被新冠打得跪地求饶，in waves就是绝大部分国家在疫情面前的真实写照，都不用omicron来宣告这一点，今年秋天欧美那波delta大爆发就已经证明只靠疫苗建立的群体免疫跟纸糊的一样，这种情况说句疫苗防控破产有任何问题吗？
+
+*****
+
+####  橋白  
+##### 2190#       发表于 2021-12-25 07:38
+
+居然还有这么多人没屏蔽他啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
