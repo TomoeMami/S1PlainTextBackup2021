@@ -8131,3 +8131,75 @@ space不知道为什么不如tc给劲
 
 苔姨的重大发表吧
 
+
+
+*****
+
+####  古战场亡魂  
+##### 6949#       发表于 2021-12-25 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54035759&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-12-24 23:51</a>
+
+这联动后面的重大发表是啥意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还能是啥，苔苔的五等分的舞元
+
+*****
+
+####  古战场亡魂  
+##### 6950#       发表于 2021-12-25 00:03
+
+好吧，这歌的成员4个都是五等分舞元里的，可能苔苔准备这个企划的时候，mea正好约了一下歌。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 6951#       发表于 2021-12-25 00:04
+
+我说的这个
+
+<img src="https://img.saraba1st.com/forum/202112/25/000420pko1w6jabszos7jt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 00:04 上传
+
+苔总的重大发表应该标在自己推特上吧
+
+*****
+
+####  clvan_  
+##### 6952#       发表于 2021-12-25 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54035882&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-12-25 00:04</a>
+
+我说的这个
+
+苔总的重大发表应该标在自己推特上吧</blockquote>
+帮苔姨稍微宣传吧，那边联动重大发表写在标题上的
+
+*****
+
+####  古战场亡魂  
+##### 6953#       发表于 2021-12-25 00:08
+
+你都看见了不会点进去吗？？？？？
+
+<img src="https://img.saraba1st.com/forum/202112/25/000752xxavvawzwfowwghz.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20211225000734652.jpg</strong> (229.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 00:07 上传
+
+*****
+
+####  T_Hb  
+##### 6954#       发表于 2021-12-25 00:16
+
+ 本帖最后由 T_Hb 于 2021-12-25 00:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">懂了，没想到是在吐槽标题
+

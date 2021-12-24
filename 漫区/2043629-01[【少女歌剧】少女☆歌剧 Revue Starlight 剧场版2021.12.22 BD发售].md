@@ -2357,3 +2357,12 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚看完，一路令人头皮发麻的演出里始终穿插着这群人到底嗑了多少的疑问
 
+
+
+*****
+
+####  LrGsite  
+##### 182#       发表于 2021-12-25 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">卧槽卧槽太好看，纯粹的演出！绚丽的REVUE！我就是长颈鹿 我就是西红柿 舞台の燃料となる!
+
