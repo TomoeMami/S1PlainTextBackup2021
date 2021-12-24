@@ -14072,3 +14072,105 @@ BX不换人一回合感觉良好
 
 马老师用极地服看看呢
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85321#       发表于 2021-12-24 19:47
+
+没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  森兰丸  
+##### 85322#       发表于 2021-12-24 19:47
+
+才发现梅林和A狐的红魔放不能叠加<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85323#       发表于 2021-12-24 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完！！ 只打了67次
+
+*****
+
+####  不垃圾屌丝  
+##### 85324#       发表于 2021-12-24 19:47
+
+翻页
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  空气蛹  
+##### 85325#       发表于 2021-12-24 19:48
+
+刷了40次，还是大卫垫刀好用
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 85326#       发表于 2021-12-24 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033049&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-24 19:47</a>
+
+才发现梅林和A狐的红魔放不能叠加</blockquote>
+怎么可能　你怕不是带了奥师傅
+
+*****
+
+####  katun  
+##### 85327#       发表于 2021-12-24 19:49
+
+还是没活到深夜啊，至少准备个10倍吧（
+
+*****
+
+####  DARKGRAY  
+##### 85328#       发表于 2021-12-24 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032943&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-24 19:38</a>
+
+试了下，还真比二姐伤害高，难道苏哥是个假男人？不过要换人感觉还是太麻烦了……
+
+马老师用极地服 ...</blockquote>
+这次没有性别属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 85329#       发表于 2021-12-24 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033110&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-12-24 19:52</a>
+
+这次没有性别属性</blockquote>
+草，狐狸咋还切人鸡儿呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 85330#       发表于 2021-12-24 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033075&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 19:48</a>
+
+怎么可能　你怕不是带了奥师傅</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是带了奥伯龙....可我记得是狐狸先扔完技能后梅林再扔技能的....奥伯龙都还没用技能....这也有影响？
+
+*****
+
+####  alucardcz  
+##### 85331#       发表于 2021-12-24 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033221&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-24 20:02</a>
+
+是带了奥伯龙....可我记得是狐狸先扔完技能后梅林再扔技能的....奥伯龙都还没用技能....这也有影 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">仔细看看奥师傅被动　上次车ｎｇａ的时候我记得你也参与了　　怎么已经忘了
+
