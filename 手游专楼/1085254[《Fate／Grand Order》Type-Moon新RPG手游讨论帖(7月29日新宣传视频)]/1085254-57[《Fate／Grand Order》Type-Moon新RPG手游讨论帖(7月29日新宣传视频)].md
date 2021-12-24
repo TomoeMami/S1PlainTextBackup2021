@@ -13857,3 +13857,218 @@ BX不换人一回合感觉良好
 
 大卫+双奥伯龙简直乱杀，不过就是结束的时候各种上debuff耽误时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  katun  
+##### 85299#       发表于 2021-12-24 18:28
+
+<img src="https://img.saraba1st.com/forum/202112/24/182647w5jvb7v9qn3rz3nb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ABE1E767-1FA7-403D-9A3D-4D2A1F272D7C.jpeg</strong> (725.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 18:26 上传
+
+贴吧逛了一圈好像也没看到用马老师的，为啥呢，感觉8张蓝卡比三蓝大卫的制裁概率低很多啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  風卷豹  
+##### 85300#       发表于 2021-12-24 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032109&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-24 18:28</a>
+
+贴吧逛了一圈好像也没看到用马老师的，为啥呢，感觉8张蓝卡比三蓝大卫的制裁概率低很多啊 ...</blockquote>
+高宝比较难整啊，大卫这种只需要拉等级就行了，3星点技能也便宜
+
+不过如果不在意换人的话，为啥不直接小黑呢..
+
+*****
+
+####  qb0079  
+##### 85301#       发表于 2021-12-24 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031724&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 17:59</a>
+
+可你换人了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把 巴御前换成大卫就不用换人了，奥宝+杀狐直接爆，还是不需要黑杯
+
+*****
+
+####  katun  
+##### 85302#       发表于 2021-12-24 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032178&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-12-24 18:33</a>
+
+高宝比较难整啊，大卫这种只需要拉等级就行了，3星点技能也便宜
+
+不过如果不在意换人的话，为啥不直接小黑 ...</blockquote>
+我这个没换人，而且小黑伤害够吗？我用二姐都只能打一半血，马老师是有高额地特攻所以能打这么多
+
+*****
+
+####  仰望神的括约肌  
+##### 85303#       发表于 2021-12-24 18:39
+
+试了下贝爷双奥也很稳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">红卡比大卫多 以防万一后备一个换人蓝呆 怎样都翻不了车
+
+*****
+
+####  v22325  
+##### 85304#       发表于 2021-12-24 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 突然发现满破黑杯1宝藤乃+奥伯龙就成了 根本不需杀狐
+
+*****
+
+####  DARKGRAY  
+##### 85305#       发表于 2021-12-24 18:41
+
+无氪金池礼装这次靠大卫正是6加成用光茶壶的时候<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 85306#       发表于 2021-12-24 18:48
+
+上好奥伯龙3技能后发现0张红卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85307#       发表于 2021-12-24 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">奥伯龙也太强了
+
+*****
+
+####  v22325  
+##### 85308#       发表于 2021-12-24 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">绊石还抽到猫娘了 好！
+
+*****
+
+####  rooarr  
+##### 85309#       发表于 2021-12-24 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032109&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-24 18:28</a>
+
+贴吧逛了一圈好像也没看到用马老师的，为啥呢，感觉8张蓝卡比三蓝大卫的制裁概率低很多啊 ...</blockquote>
+没bx，试了一圈发现还是马老师好用，可惜没多少次可以打了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85310#       发表于 2021-12-24 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这楼里是不是只有我　钱２０亿满了材料也不缺只为了羁绊石在刷的
+
+*****
+
+####  qixinno2  
+##### 85311#       发表于 2021-12-24 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032518&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 19:00</a>
+
+这楼里是不是只有我　钱２０亿满了材料也不缺只为了羁绊石在刷的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有你这么强了 我刷了27次就刷不动了
+
+*****
+
+####  rooarr  
+##### 85312#       发表于 2021-12-24 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032518&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 19:00</a>
+
+这楼里是不是只有我　钱２０亿满了材料也不缺只为了羁绊石在刷的</blockquote>
+还有我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+20211224.jpg
+(302.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/190421qsvz0b7bs0ccbeqb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 85313#       发表于 2021-12-24 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破手机太卡,刷不动
+
+*****
+
+####  alucardcz  
+##### 85314#       发表于 2021-12-24 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032559&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-24 19:04</a>
+
+还有我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧羡慕　　你这图里３个露脸的我２个没有
+
+*****
+
+####  風卷豹  
+##### 85315#       发表于 2021-12-24 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032222&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-24 18:37</a>
+我这个没换人，而且小黑伤害够吗？我用二姐都只能打一半血，马老师是有高额地特攻所以能打这么多 ...</blockquote>
+够的稳定115万。马老师不换人要3宝才算稳。我2宝宝具本马老师80级1000芙芙刚打了个94万多…不过也就20把里面有一把的概率
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rooarr  
+##### 85316#       发表于 2021-12-24 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032737&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-12-24 19:20</a>
+
+够的稳定115万。马老师不换人要3宝才算稳。我2宝宝具本马老师80级1000芙芙刚打了个94万多…不过也就20把 ...</blockquote>
+我5宝80级马老师一样会出现94w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85317#       发表于 2021-12-24 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还剩一百万 活不到八点了
+
+*****
+
+####  alucardcz  
+##### 85318#       发表于 2021-12-24 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">今天打的这么慢？
+
+*****
+
+####  v22325  
+##### 85319#       发表于 2021-12-24 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032897&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 19:34</a>
+
+今天打的这么慢？</blockquote>
+今天八百万呢 时间也正好应该是昨天两倍
+
+速度应该差不多的 搞不好还快点
+
+*****
+
+####  katun  
+##### 85320#       发表于 2021-12-24 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032737&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-12-24 19:20</a>
+
+够的稳定115万。马老师不换人要3宝才算稳。我2宝宝具本马老师80级1000芙芙刚打了个94万多…不过也就20把 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">试了下，还真比二姐伤害高，难道苏哥是个假男人？不过要换人感觉还是太麻烦了……
+
+马老师用极地服看看呢
+

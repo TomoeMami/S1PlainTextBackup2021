@@ -10209,3 +10209,120 @@ TVアニメ『ラブライブ！スーパースター!!』挿入歌
 
 什么时候好的
 
+
+
+*****
+
+####  lj205  
+##### 2368#       发表于 2021-12-24 18:25
+
+鲤鱼的新歌有种说不出来的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+但是rap那部分不错嗷
+
+*****
+
+####  cat1230  
+##### 2369#       发表于 2021-12-24 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032071&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-24 18:25</a>
+
+鲤鱼的新歌有种说不出来的感觉
+
+但是rap那部分不错嗷</blockquote>
+不是8点才发布吗，已经偷跑了？
+
+*****
+
+####  优妮可  
+##### 2370#       发表于 2021-12-24 18:42
+
+广播有试听，有点嘈杂？
+
+
+
+*****
+
+####  chenflyyy  
+##### 2371#       发表于 2021-12-24 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032094&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-24 18:27</a>
+不是8点才发布吗，已经偷跑了？</blockquote>
+今天的周常广播有试听，16分开始
+
+*****
+
+####  普之舜舜  
+##### 2372#       发表于 2021-12-24 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031166&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-24 17:22</a>
+什么时候好的</blockquote>
+你说泥潭吗？昨天晚上恢复的
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 2373#       发表于 2021-12-24 19:23
+
+这套应该是MV中的造型了
+
+085872A0-797E-42DF-BCE4-BE816310B8D8.jpeg
+(844.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/192320tz6yq0wzybblb5u0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+95CCA6EB-89EB-4577-9253-9ABF8BC855C1.jpeg
+(737.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/192320iqn0l9lco8l8830t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D7FE2759-AC86-4C4E-B268-8A1F3E985B50.jpeg
+(658.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/192320owxwb33rv412t3xo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2374#       发表于 2021-12-24 19:29
+
+杨妈妈
+
+<img src="https://img.saraba1st.com/forum/202112/24/192936ydavz7n3qqvxz3qq.png" referrerpolicy="no-referrer">
+
+<strong>BAAC7408-939C-45C0-BFAF-68A5B60B5D55.png</strong> (61.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 19:29 上传
+
+*****
+
+####  stygian  
+##### 2375#       发表于 2021-12-24 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032862&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-24 19:29</a>
+
+杨妈妈</blockquote>
+我叫你姐，你叫我妈，咱俩各论各的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2376#       发表于 2021-12-24 19:39
+
+这两相处模式真的太国人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
