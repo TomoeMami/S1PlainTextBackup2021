@@ -12613,3 +12613,21 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 我跑去推上看了几眼她是转了七八条啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 85184#       发表于 2021-12-24 08:46
+
+这次太公望同时激怒了梦女、“文化自信”、樱井光PTSD（哪怕没确认是樱井光），节奏飞起是必然的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我的建议是，去玩原O不好吗，那边都快变成璃月神了，绝对能满足“自信”
+
+*****
+
+####  真红眼教授  
+##### 85185#       发表于 2021-12-24 08:51
+
+太公望这种语音最好多来点，看人破防真开心
+

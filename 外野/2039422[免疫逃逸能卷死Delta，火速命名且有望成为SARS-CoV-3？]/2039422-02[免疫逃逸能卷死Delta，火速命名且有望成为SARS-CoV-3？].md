@@ -7608,3 +7608,17 @@ HKU出来 ...</blockquote>
 要我说，论文里的血清抗体中和测试明明测到了2019年12月 ...</blockquote>
 总不能查吧，万一查出德特里克堡泄漏那<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 2145#       发表于 2021-12-24 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022058&amp;ptid=2039422" target="_blank">阿纳金 发表于 2021-12-24 07:16</a>
+
+目前好像南非住院率已经回落了，而英国死亡人数还没上升。
+
+可能奥米克隆也就这样了。</blockquote>
+but南非住院率回落的也就豪登这一个省，带英确诊数十天前才开始暴涨，目前还没到顶峰，想看死亡数上升还早了点
+
