@@ -10441,3 +10441,31 @@ BV1GL4y1n7tR
 
 鲤鱼穿这双鞋快1米8了吧
 
+
+
+*****
+
+####  kata魂  
+##### 2388#       发表于 2021-12-24 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我喜欢这套~~~啥时候来套西装让我看看
+
+*****
+
+####  黑雪姫  
+##### 2389#       发表于 2021-12-24 21:00
+
+原宿gamers联动店看板娘选举开始喽。
+
+大家快去给自己喜欢的角色投票。 
+
+<img src="https://img.saraba1st.com/forum/202112/24/205951td0gijfuf4njayud.jpg" referrerpolicy="no-referrer">
+
+<strong>d05677d9f2d3572c82f6c80ccf13632763d0c356.jpg</strong> (93.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 20:59 上传
+
+个人觉得悬念还是比较大的，但就日本人气，可可如果不靠中华炮感觉很难赢过香音。
+

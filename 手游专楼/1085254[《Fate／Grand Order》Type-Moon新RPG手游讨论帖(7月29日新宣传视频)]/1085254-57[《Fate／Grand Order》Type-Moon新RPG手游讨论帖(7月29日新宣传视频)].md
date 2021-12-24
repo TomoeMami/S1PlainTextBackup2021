@@ -14293,3 +14293,28 @@ BX不换人一回合感觉良好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">巨人王耐性把我所有准备好或能准备的打手全开除了，大卫还是lv1就算能喂到70也没时间打宝具本，靠外援打四次翻车两次，放弃放弃
 
+
+
+*****
+
+####  1a不解释  
+##### 85344#       发表于 2021-12-24 20:55
+
+缺打手只能用小黑，双呆加奥伯龙可以稳定击杀，除非没有蓝卡垫刀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  里村紅葉  
+##### 85345#       发表于 2021-12-24 21:00
+
+藤乃顶着一身debuff打掉了老苏两管半的血<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芭德薇  
+##### 85346#       发表于 2021-12-24 21:00
+
+大卫这随便加一下buff就千万伤害，还是挺爽的
+
