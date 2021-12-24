@@ -13395,3 +13395,179 @@ LV100黑杯+WCBA+一张CBA羁绊+666武则天=107w
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始了  八百万！
 
+
+
+*****
+
+####  katun  
+##### 85255#       发表于 2021-12-24 17:06
+
+喷了，天才运营总算想出来了终极扶绿法<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 85256#       发表于 2021-12-24 17:10
+
+除了色卡耐性还有弱体无效<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85257#       发表于 2021-12-24 17:11
+
+WDNMD
+
+这老苏还有弱体免疫，CBA落泪
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ 但是有线团，我刷暴
+
+*****
+
+####  alucardcz  
+##### 85258#       发表于 2021-12-24 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54030916&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-24 17:06</a>
+
+喷了，天才运营总算想出来了终极扶绿法</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是宣告绿卡死亡了吗？2个降防统统木大
+
+*****
+
+####  الطائر  
+##### 85259#       发表于 2021-12-24 17:12
+
+弱体免疫等于CBA可以休息了吧
+
+*****
+
+####  exiaexa  
+##### 85260#       发表于 2021-12-24 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031018&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 17:12</a>
+
+不是宣告绿卡死亡了吗？2个降防统统木大</blockquote>
+上个CBA羁绊礼装+大王技能点高点就行
+
+
+
+*****
+
+####  angelooo  
+##### 85261#       发表于 2021-12-24 17:13
+
+cba：为什么会这样的
+
+*****
+
+####  上坂莲华  
+##### 85262#       发表于 2021-12-24 17:14
+
+我黑杯弓大王才打80W，有点难顶啊
+
+*****
+
+####  v22325  
+##### 85263#       发表于 2021-12-24 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我黑杯满破圣诞大王+wcba+奥伯龙还是可以一下带走  其他没打手用了
+
+*****
+
+####  alucardcz  
+##### 85264#       发表于 2021-12-24 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031032&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 17:13</a>
+
+上个CBA羁绊礼装+大王技能点高点就行</blockquote>大佬你怎么放弃６加成了　　都放弃了不如直接黑杯红卡选手碾压不好吗
+
+萌新直接黑狗爆破　　７张红卡　洗牌衣服　　翻车可能性几乎等于０<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85265#       发表于 2021-12-24 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031054&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-24 17:14</a>
+
+我黑杯满破圣诞大王+wcba+奥伯龙还是可以一下带走  其他没打手用了</blockquote>
+有100级黑杯就不用双CBA了啊，点一下大王二技能+极地服幻想强化打TMD
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 85266#       发表于 2021-12-24 17:18
+
+弱体无效cba废了大半..弓大王我还四宝没换<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85267#       发表于 2021-12-24 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031065&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 17:15</a>
+
+大佬你怎么放弃６加成了　　都放弃了不如直接黑杯红卡选手碾压不好吗
+
+萌新直接黑狗爆破　　７张红卡　洗牌 ...</blockquote>
+我从来不玩傻屌6加成啊
+
+而且洗什么牌为啥要洗牌
+
+2+3+1+1=7个技能100%打爆，还要啥自行车
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85268#       发表于 2021-12-24 17:18
+
+<img src="https://img.saraba1st.com/forum/202112/24/171822o8h8phtur4keeoou.jpg" referrerpolicy="no-referrer">
+
+<strong>11133.jpg</strong> (509.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 17:18 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">萌新体验很好　随便一ｔ　反正我也就这３张礼装。。。。。
+
+*****
+
+####  alucardcz  
+##### 85269#       发表于 2021-12-24 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031118&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 17:18</a>
+
+我从来不玩傻屌6加成啊
+
+而且洗什么牌为啥要洗牌</blockquote>
+洗牌只是防翻车　实际上没用到过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至于技能只要开５个　比你少！
+
+*****
+
+####  exiaexa  
+##### 85270#       发表于 2021-12-24 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031131&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 17:19</a>
+
+洗牌只是防翻车　实际上没用到过
+
+至于技能只要开５个　比你少！
+
+ ...</blockquote>
+非洲人不接受任何翻车可能性
+
+当年洗牌+兔子洗牌二连黑给我留下了惨痛的记忆
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 85271#       发表于 2021-12-24 17:22
+
+低星只能上大卫了啊，这家伙居然不是男人，太不要脸了
+

@@ -5930,3 +5930,28 @@ nina只是碰到了4ch的雷点<img src="https://static.saraba1st.com/image/smil
 
 雷速登那个时候一个是虹女的男粉嗓门还大，一个是同期是🌈有史以来最强的独角兽收割机。现在看虹男的梦女巴不得还在看🌈的肥肥去死，没人会在乎这种小事的。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9492#       发表于 2021-12-24 17:10
+
+ 本帖最后由 alcoholic1000 于 2021-12-24 17:18 编辑 
+
+这个在DEBUT结束就有人特出来了，但好像只在首播当天有讨论（Vox被特的过程还挺乐的，4ch发言都被翻出来了，anon喊话他兄弟永远不要再回来这个粪坑）
+
+Syl，Mysta直播中说画色图可以，请不要画和女性的色图，会引起很多麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+Zsyl， <blockquote>Do you think it's true that Kiara was Pomu's ex?</blockquote>
+有人知道这是哪来的说法吗，编排着玩的？
+
+*****
+
+####  poipanchao  
+##### 9493#       发表于 2021-12-24 17:12
+
+收割机还没发力人就没了好吗
+这也关她事？
+当时发力的是葵熊
+
