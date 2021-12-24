@@ -16009,3 +16009,14 @@ Vtubers and MMOs aren't interchangeable. If someone likes WoW they don't want a 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有人还心存幻想吗
 
+
+
+*****
+
+####  Scardy  
+##### 7315#       发表于 2021-12-24 16:30
+
+没事，crew至少还能从百鬼众那找找自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

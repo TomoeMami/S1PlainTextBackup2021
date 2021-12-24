@@ -588,3 +588,16 @@ cute<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referr
 
 体感六七成是 4chan meme
 
+
+
+*****
+
+####  smy20011  
+##### 1558#         楼主| 发表于 2021-12-24 16:29
+
+[https://twitter.com/watsonameliaEN/status/1474210449075802115](https://twitter.com/watsonameliaEN/status/1474210449075802115)
+
+EN Studio~~~
+
+这东西以后会成为很多二创的原点
+
