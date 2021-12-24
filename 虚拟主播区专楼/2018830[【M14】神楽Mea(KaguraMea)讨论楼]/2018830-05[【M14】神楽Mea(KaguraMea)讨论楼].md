@@ -8221,3 +8221,23 @@ space不知道为什么不如tc给劲
 
  那你不如诅咒海苔男过几年中年危机，感情破裂呢
 
+
+
+*****
+
+####  GRMeA104  
+##### 6957#       发表于 2021-12-25 01:09
+
+去年舞元审判,今年五等分的舞元,不如猜明年是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说圣诞节没找野男人,没完全不找<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 6958#       发表于 2021-12-25 01:10
+
+ 本帖最后由 本间日阳 于 2021-12-25 01:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">很多年没怎么看日v了，原来现在这个版本小白都会去参加这种企划了吗
+

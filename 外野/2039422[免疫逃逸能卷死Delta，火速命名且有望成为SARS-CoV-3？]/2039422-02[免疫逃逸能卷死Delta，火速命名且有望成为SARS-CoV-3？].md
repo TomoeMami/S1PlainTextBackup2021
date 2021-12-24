@@ -8021,3 +8021,33 @@ o和d高峰重和，但英国医护缺口了，就让病人排队，才不崩溃
 
 当然疫苗也救下了至少百万人的性命，不能完全否定价值。
 
+
+
+*****
+
+####  dllplayer  
+##### 2179#       发表于 2021-12-25 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034740&amp;ptid=2039422" target="_blank">方舟售票员 发表于 2021-12-24 22:11</a>
+
+他们就没想过，病毒扩散后，继续变异的可能性？谁规定o版就是最终版本的啊 ...</blockquote>
+omicron也是o
+
+omega也是o
+
+四舍五入omicron就是最后一个啦!<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2180#       发表于 2021-12-25 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54036192&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-25 00:38</a>
+
+这就要看期望是什么了
+
+如果按照通过疫苗结束疫情，或者要求降级到疫苗能把新冠危害变成流感，破产妥妥的 ...</blockquote>
+没人觉的疫苗能让新冠病毒消失
+
+至于死亡率 等人的抗体越来越多 死亡率会越来越低 丹麦delta能统计出来万分之七的死亡率 甚至比流感还低
+
