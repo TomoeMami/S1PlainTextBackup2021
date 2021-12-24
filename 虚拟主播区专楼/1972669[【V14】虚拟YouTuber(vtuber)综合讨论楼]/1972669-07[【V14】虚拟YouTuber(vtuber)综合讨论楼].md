@@ -6077,3 +6077,14 @@ mysta前世是日文名vtb的话也就是说他日语不好是RP的？这有什�
 
 最近看虹有点找回初心了，没有太多的stf 干预，形式也很简单，就是普通的一帮人偶然的聚在一起做点什么，挂着垃圾2d聊着天，看虹两年多过去了这帮人其实也一点没变，还是挺高兴的，另外cr杯给我爬，要不是apex也不会憋了整整一年才这样
 
+
+
+*****
+
+####  fastary  
+##### 9506#       发表于 2021-12-24 22:05
+
+其实我还挺遗憾黑客平安夜圣诞节也连推都不发一条的，但是看到旅游推特回来就没动过还把置顶取消了的ymen又觉得只要人没事就好<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+哎，好担心他休息着就改变心意了，但无论如何心理健康都是第一位……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

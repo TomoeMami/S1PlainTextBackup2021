@@ -2257,3 +2257,38 @@ hfiaG23HYUIHGsfyekua2uh.gif
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 火之将熄，然位不见鹿影<img src="https://p.sda1.dev/3/094b3321b61c8af26ee2db4d2f1ac2c2/39E8324688652B0B00AAD683A8116D13.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenzhi11  
+##### 174#       发表于 2021-12-24 22:12
+
+几原说实话对于大部分人来说可能味还是太冲了，
+
+古川在大众接受度把握的还行起码看个大概是能看懂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光宗薫  
+##### 175#       发表于 2021-12-24 22:18
+
+牛逼啊牛逼，本以为tv版是昙花一现，结果人家是小试牛刀，服了
+
+*****
+
+####  巴麻耒  
+##### 176#       发表于 2021-12-24 22:19
+
+说到几原，蕉纯revue里蕉哥哥这声熊嚎全明牌致敬了百合熊吧
+
+<img src="https://img.saraba1st.com/forum/202112/24/221412p6g6gzj1isi61bin.jpg" referrerpolicy="no-referrer">
+
+<strong>0211224221346.jpg</strong> (131.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 22:14 上传
+
+看的时候就感觉很有少革企鹅罐百合熊的气息，对于非常喜欢这几部作品的我来说真是双重惊喜，不过古川哥哥的意识流比几原好懂多了，主旨比较明确，看起来不太费劲
+
