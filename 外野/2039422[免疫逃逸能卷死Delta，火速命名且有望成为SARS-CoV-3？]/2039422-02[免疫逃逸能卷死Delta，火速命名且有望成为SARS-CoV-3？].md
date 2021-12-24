@@ -7825,3 +7825,14 @@ mrna两针也跟没有差不多啊
 病毒传播又不是玩游戏，众所周知半天，也就是个游戏的常识罢了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">世界上一大半的国家连一个游戏公司都不如，更不用说您这种缺乏众所周知的人了
 
+
+
+*****
+
+####  eveshell  
+##### 2162#       发表于 2021-12-24 15:03
+
+<blockquote>smy20011 发表于 2021-12-24 13:21
+现在看来，疫苗研究出来，产能爆出来，基本上O疫情也结束了</blockquote>
+真轻巧，德尔塔结束后面有奥密克戎，在后面的还有的是。何况德尔塔还没结束呢
+
