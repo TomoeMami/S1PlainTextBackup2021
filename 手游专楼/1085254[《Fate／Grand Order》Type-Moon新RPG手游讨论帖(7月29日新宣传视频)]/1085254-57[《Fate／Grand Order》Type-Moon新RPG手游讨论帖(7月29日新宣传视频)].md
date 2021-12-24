@@ -14318,3 +14318,53 @@ BX不换人一回合感觉良好
 
 大卫这随便加一下buff就千万伤害，还是挺爽的
 
+
+
+*****
+
+####  Humpy  
+##### 85347#       发表于 2021-12-24 21:06
+
+S1大姨妈了好几天都忘了已经修好了。
+
+ 在圣诞节前赶出来了，画张妖兰一起过圣诞节，圣诞快乐！
+
+图里脱下来的衣服杂物来自于圣诞活动的妖兰礼装，恶搞眼镜来源于亲爹CHOCO在儿童画板上画的可爱短漫
+
+<img src="https://img.saraba1st.com/forum/202112/24/210558rjiyu181lsjpsryw.jpg" referrerpolicy="no-referrer">
+
+<strong>ChristmasMelusine1.jpg</strong> (585.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 21:05 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/210558u3lk7x7v66mxx7pp.jpg" referrerpolicy="no-referrer">
+
+<strong>ChristmasMelusine2.jpg</strong> (627.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 21:05 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 不垃圾屌丝| + 1|欢乐多|
+| KOBI| + 1|强者|
+| 1a不解释| + 1|😍|
+
+查看全部评分
+
+*****
+
+####  johnkamsar  
+##### 85348#       发表于 2021-12-24 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">妈的我就打了一条啊混蛋……
+

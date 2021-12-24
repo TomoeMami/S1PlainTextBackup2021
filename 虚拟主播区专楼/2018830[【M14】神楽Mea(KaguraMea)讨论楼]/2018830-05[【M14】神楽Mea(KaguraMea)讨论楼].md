@@ -7691,3 +7691,172 @@ space不知道为什么不如tc给劲
 
 忽悠立本搞笑艺人不知道人气值草
 
+
+
+*****
+
+####  clvan_  
+##### 6894#       发表于 2021-12-24 21:00
+
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 6895#       发表于 2021-12-24 21:03
+
+绷不住了
+
+*****
+
+####  斗斗一号  
+##### 6896#       发表于 2021-12-24 21:04
+
+人气刷起来了，这才正常么
+
+*****
+
+####  T_Hb  
+##### 6897#       发表于 2021-12-24 21:08
+
+这镜子的造型，是用来照啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是破的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onlv星骸  
+##### 6898#       发表于 2021-12-24 21:09
+
+草。。什么怪活
+
+*****
+
+####  2014720  
+##### 6899#       发表于 2021-12-24 21:11
+
+儿童蹦床是个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onlv星骸  
+##### 6900#       发表于 2021-12-24 21:11
+
+还是来推销手机的是吧
+
+
+
+*****
+
+####  2014720  
+##### 6901#       发表于 2021-12-24 21:11
+
+这就是虚拟主播吗，太潮了嗷
+
+*****
+
+####  T_Hb  
+##### 6902#       发表于 2021-12-24 21:11
+
+三防手机是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 6903#       发表于 2021-12-24 21:12
+
+草草草草 我针的蚌埠住了啊啊啊啊哈哈哈哈哈哈哈哈哈和
+
+*****
+
+####  iuhehc  
+##### 6904#       发表于 2021-12-24 21:12
+
+这也太迷惑了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 6905#       发表于 2021-12-24 21:12
+
+这太虚拟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 6906#       发表于 2021-12-24 21:12
+
+你麻会是什么？这日本偶像还真是被丑角阿，要不是虚拟的，，真人还不怎么被搞
+
+*****
+
+####  T_Hb  
+##### 6907#       发表于 2021-12-24 21:14
+
+烧烤手机是吧
+
+*****
+
+####  yywzjsw  
+##### 6908#       发表于 2021-12-24 21:14
+
+炎上系偶像*
+
+*****
+
+####  htgz111  
+##### 6909#       发表于 2021-12-24 21:14
+
+真·炎上
+
+*****
+
+####  onlv星骸  
+##### 6910#       发表于 2021-12-24 21:14
+
+？？？？？？？？？为什么会有这东西还是燃着的
+
+*****
+
+####  2014720  
+##### 6911#       发表于 2021-12-24 21:14
+
+虚拟主播三防测试属于是
+
+*****
+
+####  zc1996zc  
+##### 6912#       发表于 2021-12-24 21:14
+
+今年又被炎上了
+
+*****
+
+####  clvan_  
+##### 6913#       发表于 2021-12-24 21:16
+
+一年的努力全部木大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有一说一我觉得这搞笑企划还是有点想法的，而且像是你麻会提议整的活
+
+*****
+
+####  onlv星骸  
+##### 6914#       发表于 2021-12-24 21:16
+
+炎上系vtb逃不过的命运
+
+*****
+
+####  yywzjsw  
+##### 6915#       发表于 2021-12-24 21:18
+
+你麻台风还是厉害的，其她两个没你麻放得开
+
+*****
+
+####  T_Hb  
+##### 6916#       发表于 2021-12-24 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她平时联动不就是这个角色
+
