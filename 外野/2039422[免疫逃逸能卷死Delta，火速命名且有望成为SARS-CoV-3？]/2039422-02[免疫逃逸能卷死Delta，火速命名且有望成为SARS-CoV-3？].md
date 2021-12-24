@@ -7695,3 +7695,15 @@ but南非住院率回落的也就豪登这一个省，带英确诊数十天前�
 等其他大学复现？</blockquote>
 我倒不是觉得科兴怎么样，按康奈尔大学最近校内接种率95%+却两周病例数涨了20倍的例子，单纯感觉图里这条虚线画的有问题
 
+
+
+*****
+
+####  charse2r  
+##### 2151#       发表于 2021-12-24 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021976&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-24 06:27</a>
+
+三针科兴的免疫保护跟没有差不多</blockquote>
+庄时利和这种人就会挑点这种不是充要条件的数据来阴阳怪气的黑下国内，顺便引导评论区狂吹mrna
+

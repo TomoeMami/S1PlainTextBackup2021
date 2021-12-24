@@ -12995,3 +12995,60 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  北方暴雪  
+##### 85220#       发表于 2021-12-24 12:06
+
+<img src="https://p.sda1.dev/3/72dd0c1abfc8aa32c81473c71b47bcd7/IMG_CMP_140456219.jpeg" referrerpolicy="no-referrer">好耶！
+
+*****
+
+####  zakki  
+##### 85221#       发表于 2021-12-24 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026065&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-24 12:04</a>
+去LGA被恶心到都是活该，泥潭死的这三天我是宁愿发呆也没去过LGA一次
+
+----发送自 STAGE1 App for A ...</blockquote>
+只可惜我英文不好，你月国内论坛就这么几个，要是英文好就去逛4chan了，说真的nga的恶心程度在被称为粪坑的4chan之上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85222#       发表于 2021-12-24 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54025923&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 11:57</a>
+
+又在隔壁逛了会儿被玻璃心魔怔人恶心到了，再也不打开nga任何太公望的帖子了 ...</blockquote>
+一起当菌哥哥乐子人啊，我从FE开始就只会车Type-Moon傻逼
+
+只要有足够的乐子，集美们就恶心不到你
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85223#       发表于 2021-12-24 12:21
+
+草，作为碳基生物我必须说一句，这个战斗兽
+
+狐狸你审美还不如地狱博士
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 85224#       发表于 2021-12-24 12:22
+
+LGA的剧情理解能力只能用低能来形容
+
+*****
+
+####  qixinno2  
+##### 85225#       发表于 2021-12-24 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正剧情全跳得我根本不关心就是了
+

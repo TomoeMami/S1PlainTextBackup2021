@@ -1808,3 +1808,37 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 “继续”
 “让我照顾啊”
 
+
+
+*****
+
+####  remedios010000  
+##### 137#       发表于 2021-12-24 12:15
+
+剧场版这一套操作下来华恋多少有点魔怔的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又害怕小光忘记约定又害怕自己追不上小光， 得亏是虚构剧情，要是换个人或者光并没有那么喜欢演艺，估计这12年真顶不住。
+
+回头想想华恋一直都很神奇，只要跟小光有关，不管多离谱的事都能干出来。8人audition名额被光挤掉，她能半路乱入再硬挤进去；作为舞台少女，支持华恋表演的动力来自于光，不管是剧场版还是TV都坚信“舞台就是小光” ，最终话Revue尽管闪耀被光击碎，但是只要对手是光，恋哥哥必然能无数次再生产（克罗纯那表示学会了学会了）最终为starlight缔造出新结局；剧场版开局小光背刺跑路，恋哥哥空有闪耀而失去目标（这也太学婊了），皆杀Revue我动都不带动的，<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最后光好说歹说是“我在舞台上等着你”给救回来了。
+
+尽管少歌整部作品都在铺垫华恋对小光的憧憬，但是恋哥哥这12年独自坚持追求梦想的闪耀也不输任何人，恋哥哥也许只是没有意识到自己也是热爱着表演的，列车上小华恋重新点燃了对舞台的热情，明白了也有属于自己这12年努力的舞台。于光恋约定的舞台上重生的华恋终于是坦白了对光的执念，抹布洗，库亚西。燃烧过去的华恋被小光捅了个对穿后，喷薄而出的闪耀贯穿了东京塔，贯穿了光恋约定的象征，回应了光的请求“用你的闪耀，贯穿给我看啊！”，完成了starlight的最后一幕“注定会分别的悲剧”，然后，启程向下一个舞台。光最后亲手把属于恋的番茄交到华恋手上，但是我想，已经解放自己的恋哥哥已经不再需要这个象征了，因为
+
+<strong> “爱城华恋，独自驰骋于舞台之上 ！”</strong>
+<strong>
+</strong>
+
+看完剧场版的我，大概是世界上最空虚的人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+......那个列车场景也太有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+光：“用你的闪耀，贯穿给我看啊！”
+
+华恋：“贯穿个p，神乐光 ！我创死你！！！”
+
+hfiaG23HYUIHGsfyekua2uh.gif
+(1.99 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 12:13 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/121352jdq0xtjx1aakjtty.gif" referrerpolicy="no-referrer">
+
