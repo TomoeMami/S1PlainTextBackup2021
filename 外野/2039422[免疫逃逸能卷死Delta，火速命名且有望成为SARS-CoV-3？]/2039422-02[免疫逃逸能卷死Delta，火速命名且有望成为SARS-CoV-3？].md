@@ -7799,3 +7799,29 @@ mrna两针也跟没有差不多啊
 
 美国打疫苗了么所有人都，还敲不敲丧钟了
 
+
+
+*****
+
+####  yichengyu  
+##### 2160#       发表于 2021-12-24 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53936646&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-14 20:08</a>
+
+不要把模型当成真实。所有模型都是错的，当然有些模型有用。
+
+具体到这里，假设某个病毒传播率超高，一年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没想到泥潭真有这种政治家、科学家放任病毒传播也不研究如何解决，简单难度了
+
+
+
+*****
+
+####  yichengyu  
+##### 2161#       发表于 2021-12-24 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53935788&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-14 18:56</a>
+
+病毒传播又不是玩游戏，众所周知半天，也就是个游戏的常识罢了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">世界上一大半的国家连一个游戏公司都不如，更不用说您这种缺乏众所周知的人了
+

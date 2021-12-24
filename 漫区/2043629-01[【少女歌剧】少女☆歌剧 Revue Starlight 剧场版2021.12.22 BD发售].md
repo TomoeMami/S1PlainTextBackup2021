@@ -1902,3 +1902,15 @@ hfiaG23HYUIHGsfyekua2uh.gif
 也可以这么想</blockquote>
 工具人实锤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔洵千夜  
+##### 144#       发表于 2021-12-24 13:52
+
+对TV恋毫无感觉以至于剧场恋太惊喜了，最后看着画面外说这就是我们最后的表演那股meta味儿加上世界上最空虚的人那里我整个人都长颈鹿燃尽了，最后进路不明只说是选拔会不会是一种参加观众（市场）的面试卖得好就继续出的暗示啊
+阳葵和露女士也很惊喜，声优跟角色一样在向前进步，听着明显跟TV不一样了，露女士找到了属于自己的闪耀道路，以至于老母亲锤光三岁的时候我看露女士也是老母亲的微笑<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+其余几段revue我吹爆古川鸽鸽，观众想看什么舞台少女们就演什么，这个用最逗比的发型撩头发的蕉导怎么那么帅啊，花叶的镜头切换和意象叙事怎么那么色啊，迷宫舞台调情如此激烈怎么就那么懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+另外我想到个事，恋哥哥这算不算从小就被光三岁PUA了
+
