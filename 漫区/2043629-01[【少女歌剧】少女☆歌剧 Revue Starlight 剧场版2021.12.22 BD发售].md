@@ -2366,3 +2366,21 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">卧槽卧槽太好看，纯粹的演出！绚丽的REVUE！我就是长颈鹿 我就是西红柿 舞台の燃料となる!
 
+
+
+*****
+
+####  巴麻耒  
+##### 183#       发表于 2021-12-25 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54035520&amp;ptid=2043629" target="_blank">七七見奈波 发表于 2021-12-24 23:30</a>
+是老虎吧，老虎也嘎呜的（比如某老虎道场里的某位），后面纯那的歌词里也说是虎の仔 ...</blockquote>
+原来是老虎吗，主要这个叫声和百合熊里太像了，就不自觉地联系到一起了
+
+*****
+
+####  Boliva  
+##### 184#       发表于 2021-12-25 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
