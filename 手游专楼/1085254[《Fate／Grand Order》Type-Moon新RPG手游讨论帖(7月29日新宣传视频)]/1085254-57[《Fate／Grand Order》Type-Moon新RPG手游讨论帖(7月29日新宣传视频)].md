@@ -13320,3 +13320,36 @@ LV100黑杯+WCBA+一张CBA羁绊+666武则天=107w
 问题就是绑死换人，而且用武则天的话三个DEBUFF技能容易脑溢血
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 85248#       发表于 2021-12-24 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54028995&amp;ptid=1085254" target="_blank">凌云三才 发表于 2021-12-24 15:05</a>
+
+简单算了下，没有奥伯隆的话WCBA怎么着伤害都不太够，难道要满破黑杯+CBA+奥博隆吗.. ...</blockquote>
+想不换人伤害又足那基本就是要这样啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85249#       发表于 2021-12-24 15:25
+
+<blockquote>1a不解释 发表于 2021-12-24 15:20
+艹，打慢点啊，社畜还在上班呢
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+根本还没开呢  中午是开剧情  5点才开刷
+
+*****
+
+####  風卷豹  
+##### 85250#       发表于 2021-12-24 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026917&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 12:54</a>
+
+有啥区别吗 平a破掉啊 除非你5张卡次次4绿。。</blockquote>
+只是单纯的绿卡PTSD而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

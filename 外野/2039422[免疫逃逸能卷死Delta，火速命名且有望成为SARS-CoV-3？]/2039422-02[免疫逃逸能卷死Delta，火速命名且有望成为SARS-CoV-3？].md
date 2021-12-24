@@ -7854,3 +7854,15 @@ mrna两针也跟没有差不多啊
 
 即使是参考已经特批的新冠原始病毒疫苗研发速度研发O疫苗，用上也是3波之后了。
 
+
+
+*****
+
+####  天使日又日  
+##### 2164#       发表于 2021-12-24 15:29
+
+岸田桑说发现O的京都大阪冲绳三个都府县今天开始验核酸免费，这新官上任三把火有点意思，按日本延迟两天确认确诊数的习惯，有点期待后两天的数据
+当然不知道会读空气的日本民众会不会去验了<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

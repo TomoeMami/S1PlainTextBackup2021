@@ -1943,3 +1943,35 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 像喝了很烈的酒一样,这话说的太对了
 
+
+
+*****
+
+####  钱如命  
+##### 148#       发表于 2021-12-24 15:35
+
+虽然各种意象乱飞，演出看得确实很爽
+
+但是可能是打得不够吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总有种哪里不得劲的感觉
+
+看来看去，好像只有我有这种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">难道是我的问题吗
+
+*****
+
+####  暗黑能乐  
+##### 149#       发表于 2021-12-24 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026233&amp;ptid=2043629" target="_blank">remedios010000 发表于 2021-12-24 12:15</a>
+
+剧场版这一套操作下来华恋多少有点魔怔的因为5岁的约定就自己独自前行了12年，露女士那点撬墙角的小 ...</blockquote>
+这里没有直接撞上去我是不高兴的
+
+*****
+
+####  remedios010000  
+##### 150#       发表于 2021-12-24 15:42
+
+草，看到有说黑暗之魂剧场版的，MD绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
