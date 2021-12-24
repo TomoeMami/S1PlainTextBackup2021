@@ -2292,3 +2292,47 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 看的时候就感觉很有少革企鹅罐百合熊的气息，对于非常喜欢这几部作品的我来说真是双重惊喜，不过古川哥哥的意识流比几原好懂多了，主旨比较明确，看起来不太费劲
 
+
+
+*****
+
+####  rainknine  
+##### 177#       发表于 2021-12-24 23:14
+
+再看了一遍恋光战，结合楼里大家的理解大概是悟了，虽然好像又没悟但应该比以前悟了
+光捅恋的那一下其实是火箭点火的地位吧（
+
+已经完成的梦想的饯别之类的东西
+
+*****
+
+####  堆雪若叶  
+##### 178#         楼主| 发表于 2021-12-24 23:18
+
+开始复习本篇，对照剧场版看了下粗略找到几个感觉有联系的细节。
+
+华恋家里的这个恐龙闹钟只有在本篇的结尾出现过，之前在宿舍里似乎一直都没出现。
+<img src="https://p.sda1.dev/3/d9b8ffcb4e24cb0e62080d2a106f84f8/_DBD-Raws__少女☆歌剧 Revue Starlight 剧场版__1080P__BDRip__HEVC-10bit__FLAC_.mkv_20211224_223204.969.jpg" referrerpolicy="no-referrer">
+
+本篇光在选拔胜出后紧握自己的匕首出血，剧场版里则握着华恋的刀口出血。
+<img src="https://p.sda1.dev/3/7fc9963f2181a39236ff29ca97c85f7e/_DBD-Raws__少女☆歌剧 Revue Starlight 剧场版__1080P__BDRip__HEVC-10bit__FLAC_.mkv_20211224_222136.633.jpg" referrerpolicy="no-referrer">
+
+去伦敦前的回忆里添加了交换发饰的一段对白，华恋在本篇拿到的命运舞台的入场券就是这里来的。
+<img src="https://p.sda1.dev/3/245a7ff667c1abc9adc356d7bb13cba0/_DBD-Raws__少女☆歌剧 Revue Starlight 剧场版__1080P__BDRip__HEVC-10bit__FLAC_.mkv_20211224_223228.793.jpg" referrerpolicy="no-referrer">
+
+但另一方面剧场版把公园里的背景做了一些细微的改动，本篇除了滑梯和后面的摇椅外本来都是灌木丛，而剧场版却加上了凉亭单杠长椅等等，感觉又像在有意和本篇做切割。
+
+另外复习的时候才想起来本篇结尾也是十二月底，虽然日期比较暧昧，可能三年前就是在平安夜光恋登上命运的舞台<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  rainknine  
+##### 179#       发表于 2021-12-24 23:22
+
+点开再生赞美诗的歌词
+发现其实可能也已经剧透了剧场版内容
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+没被选上的（因此也是被舍弃的）过去啊
+燃烧着浴火重生啊之类的
+感觉用到新剧场版结尾也很合适
+

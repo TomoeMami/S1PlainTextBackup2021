@@ -14502,3 +14502,12 @@ S1大姨妈了好几天都忘了已经修好了。
 
 例如fex玉藻有倾国mod喊白夜做mc的帝辛，太公说妲己是金毛白面，恶劣的本源意识才是妲己？玉藻是金毛的分灵嘛，锅可以都甩给金毛身上。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 85363#       发表于 2021-12-24 23:18
+
+这次可能真的就是真相揭露然后就没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

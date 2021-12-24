@@ -6097,3 +6097,30 @@ mysta前世是日文名vtb的话也就是说他日语不好是RP的？这有什�
 
 世怜女第一个3D，现在会看这五人也不完全算是无效抽卡吧，数据上也就是正常水平（西园31w，珊瑚25w，翡翠18w，朝日南14w，琥珀10w，拿valz对比，甲斐田35w，弦月21w，ngo23w），有社交人有新一任nico女王，重要的是成员间关系还行，看着就普通挺舒适的。前几天那个圣诞联动看得我特别想吃中×东，但总觉得粉切黑重女甜妹×现充不听人话my pace妹会唤起我一些可怕回忆就不敢多想了...之前看珊瑚上兔组节目提了琥珀，乐呵呵去看结果在别的环节听到珊瑚说自己不敢确定别人是否喜欢自己的，那个不安味真的熟悉又可怕<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，喜欢惹
 
+
+
+*****
+
+####  UnhappyTails  
+##### 9508#       发表于 2021-12-24 23:03
+
+五绝只要有一个珊瑚就不亏了
+
+无论对于皇太极来说还是对于圈外人来说珊瑚都足够好了
+
+*****
+
+####  OldGlory  
+##### 9509#       发表于 2021-12-24 23:14
+
+vox和mysta前世是好友又是哪来的料
+
+*****
+
+####  撕叁  
+##### 9510#       发表于 2021-12-24 23:19
+
+这种discord矛盾级别的瓜除非爆出什么劲爆截图，基本上就只会在sjw圈子里被cancel一下，不过看出来他骗未成年妹妹确实经验丰富<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+顺便5ch独角兽最恨的en男目前是mysta<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，单纯阿宅好像看不出来他不止是在卖腐
+
