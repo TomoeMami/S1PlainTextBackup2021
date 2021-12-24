@@ -8241,3 +8241,12 @@ space不知道为什么不如tc给劲
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">很多年没怎么看日v了，原来现在这个版本小白都会去参加这种企划了吗
 
+
+
+*****
+
+####  遗忘回想  
+##### 6959#       发表于 2021-12-25 01:40
+
+圣诞今晚联动前播一下就算赢，不然就和csgo过去了。
+

@@ -8051,3 +8051,27 @@ omega也是o
 
 至于死亡率 等人的抗体越来越多 死亡率会越来越低 丹麦delta能统计出来万分之七的死亡率 甚至比流感还低
 
+
+
+*****
+
+####  wszweill  
+##### 2181#       发表于 2021-12-25 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54036401&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-24 12:12</a>
+
+没人觉的疫苗能让新冠病毒消失
+
+至于死亡率 等人的抗体越来越多 死亡率会越来越低 丹麦delta能统计出来万 ...</blockquote>
+不能这么看吧，丹麦总共死亡率也才大约千分之5，比英美好得多。北欧国家还是有国情和地理优势<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qq800as  
+##### 2182#       发表于 2021-12-25 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034658&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-24 22:02</a>
+
+美国高级官员：拜登政府将从12月31日起取消对8个非洲国家的旅行限制。 你看，登子真的有在努力控制疫情 ...</blockquote>
+美国现在70%都是O，一天30万例，防8非洲防啥？
+
