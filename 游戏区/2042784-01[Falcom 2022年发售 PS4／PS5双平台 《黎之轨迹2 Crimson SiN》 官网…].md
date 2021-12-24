@@ -1557,3 +1557,14 @@ ps5版至少loading问题可以解决了
 
 —— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  提挈天地  
+##### 154#       发表于 2021-12-24 15:44
+
+闪轨画师在黎轨里画的事件插图我都挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

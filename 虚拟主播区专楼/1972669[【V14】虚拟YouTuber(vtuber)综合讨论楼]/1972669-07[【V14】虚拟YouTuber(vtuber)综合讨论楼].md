@@ -5860,3 +5860,13 @@ oreapo今天平安夜预定要播itt，但是hnn从昨天晚上八点醒来后�
 
 只要en虹男粉不要追着给en虹女点踩辱骂就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 9484#       发表于 2021-12-24 15:49
+
+VOX好像出事了啊
+[https://v8916.tumblr.com/post/67 ... akumas-past-actions](https://v8916.tumblr.com/post/671388736653770752/caution-on-vox-akumas-past-actions)
+

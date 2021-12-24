@@ -10166,3 +10166,37 @@ as这游戏完全玩不下去，人气在我逛贴吧来看不大行。
 
 今晚8点鲤鱼发mv3<img src="https://p.sda1.dev/3/2c2a7e59ba7f412c962729844fedb1c8/IMG_20211224_140400.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2365#       发表于 2021-12-24 15:43
+
+吼啊，边吃蛋糕边看新歌
+
+*****
+
+####  Piano-Forest  
+##### 2366#       发表于 2021-12-24 15:44
+
+【💫CD情報💫】
+
+🎆2022年2月2日（水）発売🎆
+
+#SunnyPassion
+
+TVアニメ『ラブライブ！スーパースター!!』挿入歌
+
+「HOT PASSION!!」
+
+ジャケット公開✨
+
+「HOT PASSION!!」は本日配信したリエラジで1コーラス公開中🎧🎶
+
+[https://youtu.be/NcuzgV4ixlI](https://youtu.be/NcuzgV4ixlI)
+
+是非予約してゲットしてくださいね💿
+<img src="https://p.sda1.dev/3/55f7c5d16127aab96934f266fc40fa81/20211224_154321.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/6637c523685d701ec58782e6d8236b87/20211224_154322.jpg" referrerpolicy="no-referrer">
+
