@@ -2336,3 +2336,15 @@ hfiaG23HYUIHGsfyekua2uh.gif
 燃烧着浴火重生啊之类的
 感觉用到新剧场版结尾也很合适
 
+
+
+*****
+
+####  七七見奈波  
+##### 180#       发表于 2021-12-24 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034812&amp;ptid=2043629" target="_blank">巴麻耒 发表于 2021-12-24 22:19</a>
+
+说到几原，蕉纯revue里蕉哥哥这声熊嚎全明牌致敬了百合熊吧</blockquote>
+是老虎吧，老虎也嘎呜的（比如某老虎道场里的某位），后面纯那的歌词里也说是虎の仔
+
