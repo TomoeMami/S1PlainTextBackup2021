@@ -6040,3 +6040,31 @@ Zsyl， <blockquote>Do you think it's true that Kiara was Pomu's ex?</blockquote
 
 千草好有排面的圣诞3D<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adamtheo  
+##### 9503#       发表于 2021-12-24 21:27
+
+千麻在的那首是播片吧，不知道什么时候录的
+
+*****
+
+####  fastary  
+##### 9504#       发表于 2021-12-24 21:28
+
+ 本帖最后由 fastary 于 2021-12-24 21:35 编辑 
+
+虽然以vox读饥渴推和饭撒的大方程度好像调情那事也不是特别难以想象
+
+不过以他杂谈那几个切片来看倒是很难想像他欺负(?)同事的样子，无论是让观众爱自己还是特意感谢海外观众听起来都挺吸好感的，就算只是演技<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+本来看到好像vox是去杏不得才来虹所以有些梁木的，可是架不住低音炮真的很色，而且rp很认真……对神夏版福尔摩斯上头过的我不能抗拒低音炮(和南通营业)<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+话说字太多没细看，和未成年调情是他什么时候的事，纯黑历史还是出道前一直有的问题？黑历史的话没有更多新石锤可能也就那样吧……雷速登我记得不是虹女粉+有暗示他为了追虹女才进虹所以才被赶出去的吗，性质还是不太一样
+
+mysta前世是日文名vtb的话也就是说他日语不好是RP的？这有什么好rp的吗<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+等等，所以vox和mysta确实前世就是朋友了还是一切都只是直男间说好的营业小把戏？(小声)拜托了这对我真的很重要
+

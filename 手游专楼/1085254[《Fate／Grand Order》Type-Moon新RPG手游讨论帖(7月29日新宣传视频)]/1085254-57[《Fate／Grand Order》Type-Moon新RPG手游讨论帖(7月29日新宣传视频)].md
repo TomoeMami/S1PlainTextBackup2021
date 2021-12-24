@@ -14368,3 +14368,26 @@ S1大姨妈了好几天都忘了已经修好了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">妈的我就打了一条啊混蛋……
 
+
+
+*****
+
+####  v22325  
+##### 85349#       发表于 2021-12-24 21:27
+
+藤乃超巨大特攻确实好用  我就一宝都随便一个宝具一管血  
+
+今天两场都靠她了
+
+*****
+
+####  gpx234mqx  
+##### 85350#       发表于 2021-12-24 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034235&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-24 21:27</a>
+
+藤乃超巨大特攻确实好用  我就一宝都随便一个宝具一管血  
+
+今天两场都靠她了 ...</blockquote>
+忘记有这个人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

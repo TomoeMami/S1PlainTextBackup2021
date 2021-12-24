@@ -7860,3 +7860,196 @@ space不知道为什么不如tc给劲
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她平时联动不就是这个角色
 
+
+
+*****
+
+####  yywzjsw  
+##### 6917#       发表于 2021-12-24 21:21
+
+确实呢，你麻说不定真的能因为这个企划走的更远
+
+*****
+
+####  onlv星骸  
+##### 6918#       发表于 2021-12-24 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能不能放点新曲试听让我感觉没那么空虚
+
+*****
+
+####  T_Hb  
+##### 6919#       发表于 2021-12-24 21:23
+
+没点新东西给看看吗，就全是综艺<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 6920#       发表于 2021-12-24 21:23
+
+每周5都有？
+
+*****
+
+####  onlv星骸  
+##### 6921#       发表于 2021-12-24 21:24
+
+每周5都要这么来一回吗
+
+*****
+
+####  T_Hb  
+##### 6922#       发表于 2021-12-24 21:24
+
+ 本帖最后由 T_Hb 于 2021-12-24 21:28 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/24/212843oxmbxzw33mqabpuq.png" referrerpolicy="no-referrer">
+
+<strong>20211224212838.png</strong> (15.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 21:28 上传
+
+下周手机防水测试，下下周回到这个破房子寻宝
+
+感觉都没新东西看，能不能漏点企划相关呀
+
+*****
+
+####  clvan_  
+##### 6923#       发表于 2021-12-24 21:25
+
+不见得都是直播吧，瀑布那个不是已经录好了的吗
+
+*****
+
+####  古战场亡魂  
+##### 6924#       发表于 2021-12-24 21:25
+
+周更的综艺……个人感觉这两位搞笑组合水平差点意思，怎么都是玩选项的，没有其他的互动方式吗？
+
+*****
+
+####  Klience  
+##### 6925#       发表于 2021-12-24 21:25
+
+偶像企划（×） 手机压力测试（√）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 6926#       发表于 2021-12-24 21:27
+
+尬是真的尬
+
+但是我看的挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 6927#       发表于 2021-12-24 21:27
+
+有点理解苔本的创意都是哪来的了
+
+*****
+
+####  htgz111  
+##### 6928#       发表于 2021-12-24 21:27
+
+综艺完成度真的很高了 而且麻作为气氛组基本可以说carry全场 如果不是在宣发上特别草台的话这个综艺完全可以称为第一流的管人综艺
+
+至于偶像的部分就要看能不能搞个好MV了 这都要从长计议的 本身这仨人性格摆在这也不可能一开始就整什么正经八百的王道偶像 不现实
+
+结论是不管你们觉得迷惑与否作为一个常看日综的我看的是挺乐呵的 
+
+*****
+
+####  htgz111  
+##### 6929#       发表于 2021-12-24 21:27
+
+综艺完成度真的很高了 而且麻作为气氛组基本可以说carry全场 如果不是在宣发上特别草台的话这个综艺完全可以称为第一流的管人综艺
+
+至于偶像的部分就要看能不能搞个好MV了 这都要从长计议的 本身这仨人性格摆在这也不可能一开始就整什么正经八百的王道偶像 不现实
+
+结论是不管你们觉得迷惑与否作为一个常看日综的我看的是挺乐呵的 
+
+*****
+
+####  onlv星骸  
+##### 6930#       发表于 2021-12-24 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">那宣传语的王道偶像是认真的还是在巨魔
+
+
+
+*****
+
+####  htgz111  
+##### 6931#       发表于 2021-12-24 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034244&amp;ptid=2018830" target="_blank">onlv星骸 发表于 2021-12-24 21:28</a>
+
+那宣传语的王道偶像是认真的还是在巨魔</blockquote>
+答案是新人才是王道偶像 这仨人是后妈和俩姐姐
+
+*****
+
+####  onlv星骸  
+##### 6932#       发表于 2021-12-24 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034250&amp;ptid=2018830" target="_blank">htgz111 发表于 2021-12-24 21:28</a>
+
+答案是新人才是王道偶像 这仨人是后妈和俩姐姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">按这效果，我觉得新人只会是更会整活的
+
+*****
+
+####  htgz111  
+##### 6933#       发表于 2021-12-24 21:33
+
+认真的讲就是综艺能力也是偶像能力的一大部分 指皇在日本圈外认知度这么高就因为她是开闭的综艺女王 在综艺里面人设凹的好角色定位又清楚 这点你麻能从她身上取不少经
+
+至于正经偶像部分的成功与否 一方面看中日宣发 另一方面看歌和MV的硬质量 这就全是企划方面对的问题了 起码这期两首指原监制的原创曲是有着落了的 至于质量可以参考指原P的俩团=LOVE和≠ME 肯定不会太差
+
+*****
+
+####  T_Hb  
+##### 6934#       发表于 2021-12-24 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道军训还有没有，能不能狠狠的训她
+
+*****
+
+####  路人庚  
+##### 6935#       发表于 2021-12-24 21:36
+
+我就等一个索尼出品的MMDmv，日综别整太尬的就行（
+
+*****
+
+####  2014720  
+##### 6936#       发表于 2021-12-24 21:36
+
+你麻确实上心了就是，开局比我想的好
+
+*****
+
+####  thisisaspider  
+##### 6937#       发表于 2021-12-24 21:39
+
+看到了麻麻偶像厨的一面 和其他两位相比这人对指原和偶像台风更了解点 所以线基本拿捏得很好。特别是和指原“一见如故”那个氛围就很有趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 被指原说“感觉mea能担当队长“
+
+上次还是mea线下生日回和对上小峠的时候 在台上能撑得住场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  htgz111  
+##### 6938#       发表于 2021-12-24 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034349&amp;ptid=2018830" target="_blank">2014720 发表于 2021-12-24 21:36</a>
+
+你麻确实上心了就是，开局比我想的好</blockquote>
+而且指原在团就是拜金女人设 我甚至有点怀疑指原看手机那段你麻是设计过的
+
