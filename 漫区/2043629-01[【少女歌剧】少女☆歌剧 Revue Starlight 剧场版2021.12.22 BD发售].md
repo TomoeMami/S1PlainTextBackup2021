@@ -1768,3 +1768,19 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  不是很懂二次元  
+##### 133#       发表于 2021-12-24 11:09
+
+长颈鹿纷纷燃烧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moshizhe  
+##### 134#       发表于 2021-12-24 11:11
+
+华恋小时候那么努力，怎么tv里就一直摸鱼的
+
