@@ -15981,3 +15981,22 @@ Vtubers and MMOs aren't interchangeable. If someone likes WoW they don't want a 
 
 等过些日子她觉得钱赚够了，live瘾过了，嗷地一声就毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅斯之围  
+##### 7313#       发表于 2021-12-24 14:25
+
+ 本帖最后由 梅斯之围 于 2021-12-24 14:27 编辑 
+
+之前还在想，会有一个恢复元气的凑阿夸在未来等着观众的。毕竟人不会一直总站在低谷里。这个未来可能要等三四个月之后也可能是半年也可能是一年，反正慢慢等就行。
+
+不过现在来看，一个vtb的生涯又能做几个半年。
+
+碰到钉子的时候表现怎么样，能很完善的体现出一个人的性格究竟如何。主播虽然隔了一层皮，但是也能隐约察觉到。不过退坑回踩黑屁已经品鉴得够多了，变成自己讨厌的样子，属实不行。
+
+于是不播的时候我就尽量回避有关阿夸的东西，免得看到别的女人播那么勤，别的v的观众推得那么开心，反观crew（虽然不能代表大多数），越想越气然后嗷的一声疯了。
+
+希望楼友里也不要有心存幻想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
