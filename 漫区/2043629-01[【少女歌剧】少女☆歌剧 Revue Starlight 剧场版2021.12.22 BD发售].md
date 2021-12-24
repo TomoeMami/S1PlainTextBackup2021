@@ -1881,3 +1881,24 @@ hfiaG23HYUIHGsfyekua2uh.gif
   -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
 差不多就是恋之魔球了
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 142#       发表于 2021-12-24 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">空虚起来了
+
+—— 来自 HUAWEI COR-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  xuziang111  
+##### 143#       发表于 2021-12-24 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023827&amp;ptid=2043629" target="_blank">蓝灯横滨 发表于 2021-12-24 10:09</a>
+
+也可以这么想</blockquote>
+工具人实锤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

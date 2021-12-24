@@ -1546,3 +1546,14 @@ ps5版至少loading问题可以解决了
 
 老婆！！！
 
+
+
+*****
+
+####  李可  
+##### 153#       发表于 2021-12-24 13:35
+
+我现在还是比较担心明年云豹版会不会是最新的补丁版本，以及祖传负优化影响游戏体验<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
