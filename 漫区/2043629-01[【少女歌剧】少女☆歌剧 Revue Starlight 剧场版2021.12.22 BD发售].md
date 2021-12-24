@@ -1672,3 +1672,59 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 
 说到底只是毕业一时的去向而已，都约好了以后再见的
 
+
+
+*****
+
+####  remedios010000  
+##### 123#       发表于 2021-12-24 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023830&amp;ptid=2043629" target="_blank">暗黑能乐 发表于 2021-12-24 10:10</a>
+
+我觉得这其实略微有点偷懒，虽然粉丝的视角是没问题的，但用这个作为华恋的未来，我个人不算太认同，没有 ...</blockquote>
+说真的以华恋剧中的实力干什么都是轻松拿下的好吧，总之是不愁没饭吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 124#       发表于 2021-12-24 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">其实我最深的印象果然还是，配音都进步了很多，特别是华恋，不像TV各种棒读了。希望垃圾bang的动画也能有这种进步。。。
+
+*****
+
+####  JustW_2  
+##### 125#       发表于 2021-12-24 10:36
+
+<blockquote>暗黑能乐 发表于 2021-12-24 10:29
+其实我最深的印象果然还是，配音都进步了很多，特别是华恋，不像TV各种棒读了。希望垃圾bang的动画 ...</blockquote>
+岩田阳葵也很明显啊，tv第一集的棒读选手，新剧场版里把小光和我都吓到了
+
+*****
+
+####  rainknine  
+##### 126#       发表于 2021-12-24 10:37
+
+既然都说到mmy了，那在s1也发一次mmy的萌娘百科
+<img src="https://p.sda1.dev/3/90b158fe24fce65d936a93e719474a3b/IMG_CMP_101635101.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/df6bbfe8c88095dea997c7002af006b7/Screenshot_20211224_102727.jpg" referrerpolicy="no-referrer">
+一想到美少女战士和几原也有密切的联系就觉得世界妙不可言（
+以及
+<img src="https://p.sda1.dev/3/553e66c5ebac4e66f4853e6d2f0c0ee2/Screenshot_20211224_103022.jpg" referrerpolicy="no-referrer">
+什么剧场版华恋锐评tv版华恋
+
+*****
+
+####  JustW_2  
+##### 127#       发表于 2021-12-24 10:39
+
+<blockquote>暗黑能乐 发表于 2021-12-24 10:13
+那既然如此为什么不进第一歌剧团，直接选最好的不是才是最正确的选择吗 ...</blockquote>
+因为申请deadline过了（不是）
+
+*****
+
+####  堆雪若叶  
+##### 128#         楼主| 发表于 2021-12-24 10:42
+
+去年haruki在lily表现就很好了，士别三日这都三年了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

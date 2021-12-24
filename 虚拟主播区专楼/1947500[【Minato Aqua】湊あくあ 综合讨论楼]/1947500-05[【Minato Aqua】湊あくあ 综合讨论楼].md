@@ -15915,3 +15915,31 @@ ne：可以睡一起嘛
 
 这个月收租200w都不到，年末该冲波业绩了吧
 
+
+
+*****
+
+####  Scardy  
+##### 7307#       发表于 2021-12-24 10:23
+
+她还能开啥收米的台，asmr吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  面具13  
+##### 7308#       发表于 2021-12-24 10:37
+
+前提是付费用户没有大比例叛变被6期榨干。今晚平安夜随便骗gachi的钱，再来点歌回和马车练习把营业额凑到300w+就算达标了
+
+*****
+
+####  星の守  
+##### 7309#       发表于 2021-12-24 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53927273&amp;ptid=1947500" target="_blank">蓬莱广告 发表于 2021-12-14 09:01</a>
+
+楼友们有夸频吗</blockquote>
+频道搜索 aqua crew
+
