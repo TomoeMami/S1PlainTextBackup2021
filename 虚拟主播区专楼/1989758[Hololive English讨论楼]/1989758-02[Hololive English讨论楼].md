@@ -610,3 +610,21 @@ EN Studio~~~
 
 mumei过圣诞一周不播
 
+
+
+*****
+
+####  shimmy1996  
+##### 1560#       发表于 2021-12-25 07:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">Ame Xmas Karaoke
+
+
+
+*****
+
+####  shimmy1996  
+##### 1561#       发表于 2021-12-25 07:11
+
+明年年初会有ametori cover曲<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
