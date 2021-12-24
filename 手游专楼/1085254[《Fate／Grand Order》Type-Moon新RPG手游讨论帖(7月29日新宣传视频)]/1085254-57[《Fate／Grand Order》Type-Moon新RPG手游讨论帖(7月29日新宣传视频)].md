@@ -12831,3 +12831,76 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 
 当然什么屎盆子都扣她头上也不好，毕竟你游选手水平全面下滑，还有薛定谔的水濑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 85205#       发表于 2021-12-24 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023392&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-24 09:41</a>
+
+对我而言是没有，她黑点我觉得不是拉cp玛丽苏什么的，就是单纯的无聊。剧情发展是直线rpg，搞笑剧情都不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重复了八百遍的源氏进军！ 看的想吐
+
+*****
+
+####  exiaexa  
+##### 85206#       发表于 2021-12-24 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023242&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-24 09:33</a>
+
+这人剧情有什么高光的加分项么 感觉只会各种拉CP</blockquote>
+豆知识，你游拉CP樱井只配当老二
+
+至于有什么高光，你月所有写手里，唯二能整出点当地味道的算不算
+
+阿出写什么都是没味儿。你感觉换批人换个地儿都没问题；阿菌写啥都是菌味，2.6跟不列颠也就剩名字的关系，当然你非要说妖精乡可以拍个《是，女王》也没啥问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85207#       发表于 2021-12-24 09:49
+
+话说隔壁街机第七章的剧情还挺有意思的，昨天看了翻译，只可惜太短，特别是beast VI的设定，吞噬都市的繁荣之兽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 85208#       发表于 2021-12-24 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023342&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 09:39</a>
+
+目前到现在的体验来说，就异常的正常
+
+没有奇怪的矫情和谜语人环节了，我一度思考是不是因为老福被送走了 ...</blockquote>
+是樱井的话，昨天雷帝战就要开吹了，至少也得是个威压不亚于宙斯之类的，或者干脆让伊吹叠盒子
+
+但现在剧情正常的可怕，我都开始怀疑是蘑菇自己写的
+
+*****
+
+####  exiaexa  
+##### 85209#       发表于 2021-12-24 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023392&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-24 09:41</a>
+
+对我而言是没有，她黑点我觉得不是拉cp玛丽苏什么的，就是单纯的无聊。剧情发展是直线rpg，搞笑剧情都不 ...</blockquote>
+她就是整活完全停留在设定，一进正文就开始给你表演上个时代的动画脚本，全他妈土味套路，偶尔会整出两个段子但是思维还没推进到21世纪
+
+你倒是把整活的功力搬进正文啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 85210#       发表于 2021-12-24 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023342&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 09:39</a>
+
+目前到现在的体验来说，就异常的正常
+
+没有奇怪的矫情和谜语人环节了，我一度思考是不是因为老福被送走了 ...</blockquote>
+还有boss排队送 开战前和击破后仪式感拉满的赘述描写 每个boss都来一遍 格式都差不多 结果昨天雷帝居然没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -7670,3 +7670,17 @@ but南非住院率回落的也就豪登这一个省，带英确诊数十天前�
 其中42 ...</blockquote>
 感染人群里儿童和年轻人占大头也是omicron的特色了，omicron这么多突变也不知道有没有点出啥奇怪的后遗症
 
+
+
+*****
+
+####  最好不说  
+##### 2149#       发表于 2021-12-24 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023184&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-24 09:29</a>
+
+他们那里先炸的,自然先回落
+
+以这个病毒的传播速度来看,疫苗什么的根本来不及 ...</blockquote>
+这玩意院感比例也高得吓人，国内防控尤其得小心这点
+

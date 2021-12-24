@@ -1516,3 +1516,80 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 
 除了光恋组，另一个和第一志愿不一样的就只有蕉哥哥了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">这一组也算是剧场版里除了光恋之外最有不破不立味道的了吧
 
+
+
+*****
+
+####  暗黑能乐  
+##### 108#       发表于 2021-12-24 09:46
+
+ 本帖最后由 暗黑能乐 于 2021-12-24 09:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023227&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-24 09:32</a>
+
+就是剧情完成度高这个补丁才强啊，内容上甚至反哺本篇，更重要的是核心主题和本篇联系紧密的同时还能更进 ...</blockquote>
+我觉得关于恋的小时候补完很不错，但我对于光的处理有些许不满，感觉笔墨不够重，相比于前面大段大段的恋视角回忆来说，最后留给光恋的时间说实话有点短了
+
+*****
+
+####  暗黑能乐  
+##### 109#       发表于 2021-12-24 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023091&amp;ptid=2043629" target="_blank">巴麻耒 发表于 2021-12-24 09:22</a>
+
+去纽约了
+
+看了一下毕业去向分别是</blockquote>
+华恋这个不是压根说了和没说差不多吗233而且还报了一号，我甚至有点怀疑是不是进圣翔的时候（
+
+*****
+
+####  rainknine  
+##### 110#       发表于 2021-12-24 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023554&amp;ptid=2043629" target="_blank">暗黑能乐 发表于 2021-12-24 09:50</a>
+华恋这个不是压根说了和没说差不多吗233而且还报了一号，我甚至有点怀疑是不是进圣翔的时候（ ...</blockquote>
+姓氏顺位高是这样的（
+
+*****
+
+####  巴麻耒  
+##### 111#       发表于 2021-12-24 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023334&amp;ptid=2043629" target="_blank">yoboc 发表于 2021-12-24 09:38</a>
+看了一眼开头纯那的志愿，原型应该都是日本的大学，没想到居然选择去了纽约。
+
+除了光恋组，另一个和第一 ...</blockquote>
+确实，再看一下另两组，那能叫补完吗，全程我就看见在打情骂俏，要不是分级限制我看要当场大do特do
+
+*****
+
+####  JustW_2  
+##### 112#       发表于 2021-12-24 10:00
+
+<blockquote>rainknine 发表于 2021-12-24 09:37
+所以纯那的进路从早稻田大学文学部变纽约音乐戏剧大学算不算受到蕉的revue的影响？
+
+虽然文学也包括了戏剧但 ...</blockquote>
+那肯定是受影响了，蕉gg觉得纯那说“虽然还不如你们，但只是现在哦”说习惯了，成了明日复明日的逃避了，所以才开了revue
+
+*****
+
+####  巴麻耒  
+##### 113#       发表于 2021-12-24 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023554&amp;ptid=2043629" target="_blank">暗黑能乐 发表于 2021-12-24 09:50</a>
+华恋这个不是压根说了和没说差不多吗233而且还报了一号，我甚至有点怀疑是不是进圣翔的时候（ ...</blockquote>
+我看别人说是参考了声优小山百代的经历，面试场景就是参照了当初小山百代试音少歌的场景，听说裤子就是照着那时候小山百代画的
+
+所以说爱城华恋是去参加少歌的试音去了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 114#         楼主| 发表于 2021-12-24 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023464&amp;ptid=2043629" target="_blank">暗黑能乐 发表于 2021-12-24 09:46</a>
+
+我觉得关于恋的小时候补完很不错，但我对于光的处理有些许不满，感觉笔墨不够重，相比于前面大段大段的恋 ...</blockquote>
+这个确实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后解谜太短了，节奏还是有点仓促的
+
