@@ -7277,3 +7277,14 @@ space不知道为什么不如tc给劲
 
 #神乐mea线下训练一图流<img src="https://p.sda1.dev/3/61fa0bf2e10860a2bdf31198dfe3b5c0/536a2da3402e7bb8.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 6840#       发表于 2021-12-24 18:09
+
+就是个综艺节目有什么好练的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说实话我感觉她们这团准备live的训练量估计不见得比声优live训练量大多少，该坦克还是坦克
+

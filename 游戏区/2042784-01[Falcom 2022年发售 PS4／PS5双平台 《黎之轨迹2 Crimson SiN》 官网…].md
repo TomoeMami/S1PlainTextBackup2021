@@ -1568,3 +1568,16 @@ ps5版至少loading问题可以解决了
 
 —— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  fat  
+##### 155#       发表于 2021-12-24 17:48
+
+<blockquote>宛若青空 发表于 2021-12-24 10:56
+法老控今年的邮件贺年壁纸是…！ 
+
+（应该还有别的角色）</blockquote>
+赢麻了！！
+

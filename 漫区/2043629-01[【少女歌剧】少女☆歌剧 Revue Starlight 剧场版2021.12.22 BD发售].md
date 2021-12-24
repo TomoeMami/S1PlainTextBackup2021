@@ -2080,3 +2080,64 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 兴奋的不能自己，就是迷宫组戏份有点少，我想看更多的迷宫组啊
 
+
+
+*****
+
+####  南门二  
+##### 158#       发表于 2021-12-24 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54021317&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2021-12-24 01:30</a>
+
+看了眼bangumi，应该是打不过 EVA终 了
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 S1Next-鹅版 v2 ...</blockquote>
+但是快追上思春期默示录了，rank121对rank139，而且少歌均分还高一点，就是人数还没上去
+
+等一个“少女歌剧剧场版真的适合在思春期默示录以上么？”
+
+*****
+
+####  MASKA-1  
+##### 159#       发表于 2021-12-24 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031581&amp;ptid=2043629" target="_blank">南门二 发表于 2021-12-24 17:48:53</a>
+但是快追上思春期默示录了，rank121对rank139，而且少歌均分还高一点，就是人数还没上去
+
+等一个“少女歌 ...</blockquote>德不配位再加一个是吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ziyer  
+##### 160#       发表于 2021-12-24 18:07
+
+看完后确实很有燃尽感，就算企划到此为止了也是一个完美的句号了。
+
+我倒是会想，都做到这个程度了，我觉得演出也还是不如思春期默示录......几原这人到底是有多大的能量啊
+
+*****
+
+####  黑猫桑  
+##### 161#       发表于 2021-12-24 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031842&amp;ptid=2043629" target="_blank">ziyer 发表于 2021-12-24 18:07</a>
+
+看完后确实很有燃尽感，就算企划到此为止了也是一个完美的句号了。
+
+我倒是会想，都做到这个程度了，我觉得 ...</blockquote>
+我觉得少女歌剧演出重心放在了怎么“打”怎么说“情话”就落了下乘
+
+*****
+
+####  rainknine  
+##### 162#       发表于 2021-12-24 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031581&amp;ptid=2043629" target="_blank">南门二 发表于 2021-12-24 17:48</a>
+但是快追上思春期默示录了，rank121对rank139，而且少歌均分还高一点，就是人数还没上去
+
+等一个“少女歌 ...</blockquote>
+看看今年新进top100的那几部番，感觉不如都把几原的分刷上去比较合理一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+都是德不配位，少歌拉了其他几个也下不来（
+

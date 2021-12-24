@@ -13753,3 +13753,107 @@ E4F11D58-E791-409D-AF1A-01DDECECF7ED.png
 
 <img src="https://img.saraba1st.com/forum/202112/24/174058trnv8keekqvqfzkr.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85287#       发表于 2021-12-24 17:44
+
+奥伯龙杀疯了，早就说了奥伯龙强度绝对不在c呆之下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 85288#       发表于 2021-12-24 17:47
+
+一圈不换人试下来感觉马老师最稳
+
+*****
+
+####  الطائر  
+##### 85289#       发表于 2021-12-24 17:52
+
+用六红呆毛大猩猩垫刀感觉还是挺稳的
+
+*****
+
+####  qb0079  
+##### 85290#       发表于 2021-12-24 17:55
+
+ 本帖最后由 qb0079 于 2021-12-24 17:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在用6加成的巴御前+W杀狐+奥伯龙，只要发牌一张红卡就行，黑杯都不用
+
+巴御前换大卫也行，反正有特攻
+
+
+
+*****
+
+####  v22325  
+##### 85291#       发表于 2021-12-24 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我靠怎么速度下降这么快  这怕不是和昨天一样时间没了
+
+*****
+
+####  alucardcz  
+##### 85292#       发表于 2021-12-24 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031667&amp;ptid=1085254" target="_blank">qb0079 发表于 2021-12-24 17:55</a>
+
+在用6加成的巴御前+W杀狐+奥伯龙，只要发牌一张红卡就行，黑杯都不用
+
+巴御前换大卫也行，反正有特攻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可你换人了（
+
+*****
+
+####  exiaexa  
+##### 85293#       发表于 2021-12-24 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+50根收工，反正线团的燃眉之急解决了
+
+*****
+
+####  alucardcz  
+##### 85294#       发表于 2021-12-24 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刷了ｎ个苹果换了６０石　无事发生　　这波血亏　再也不刷了
+
+*****
+
+####  仰望神的括约肌  
+##### 85295#       发表于 2021-12-24 18:07
+
+ 本帖最后由 仰望神的括约肌 于 2021-12-24 18:22 编辑 
+
+看到一个大卫+换人蓝呆的配置 稳出红 不过我还是选择黑狗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 85296#       发表于 2021-12-24 18:08
+
+一个小时已经两百多万蒸发掉了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+BX不换人一回合感觉良好
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  v22325  
+##### 85297#       发表于 2021-12-24 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">?换了红卡打 用的还是1宝藤乃 同样换人黑杯w杀狐（cba）和奥伯龙  怎么伤害差那么多
+
+*****
+
+####  白金口袋  
+##### 85298#       发表于 2021-12-24 18:17
+
+大卫+双奥伯龙简直乱杀，不过就是结束的时候各种上debuff耽误时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
