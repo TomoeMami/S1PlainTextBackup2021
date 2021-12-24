@@ -10079,3 +10079,14 @@ Liyuu觉得自己比之前线上 live瘦了，也更有体了。
 
 —— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ads147147  
+##### 2356#       发表于 2021-12-24 08:13
+
+不知道游戏的话题在哪说，就在这个楼说？as游戏换发行，看贴吧的说法就是接手的那家死亡墓场了，基本要宣告寄了，这虹的故事真得正统看动画。国内受影响的可能是菜宝和鲤鱼的联动，真没第二次<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

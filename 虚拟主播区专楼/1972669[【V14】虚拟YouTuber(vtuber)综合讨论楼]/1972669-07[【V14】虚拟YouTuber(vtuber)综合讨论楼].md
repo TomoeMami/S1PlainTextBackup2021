@@ -5719,3 +5719,13 @@ Shu和Mysta是Vtuber转世。海賊海斗（Mysta）的前世切片我看了一�
 而且作为洛天依的日文声库来源之一也有一定的知名度 ...</blockquote>
 翻了下投稿，她来中国开过真人和虚拟live，而且翻唱了不少中文歌。挺重视中国市场的唱见，难怪国内粉丝多
 
+
+
+*****
+
+####  FCCHua  
+##### 9470#       发表于 2021-12-24 08:02
+
+[https://youtu.be/Qh6aSTTkmEs](https://youtu.be/Qh6aSTTkmEs)
+vspo终于出了全员（除了两位新人)翻唱，概要栏里运营写的长文<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

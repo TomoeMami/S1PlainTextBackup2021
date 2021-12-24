@@ -12590,3 +12590,26 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 2.6的时候她也在转，总不能说菌鸽鸽被樱井夺舍了吧，推特认领这种事儿看看就得了，主要还是文本习惯、角色配置和官方渠道
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85182#       发表于 2021-12-24 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022118&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 07:37</a>
+樱井个转推怪认领个啥，推测是樱井只是因为她有喜欢转自己负责的章节的习惯
+
+2.6的时候她也在转，总不能 ...</blockquote>
+问题是也没转推吧，只是共通关注的人发的推，被贴吧臆想成了樱井转推，再快进成写手是樱井
+
+*****
+
+####  exiaexa  
+##### 85183#       发表于 2021-12-24 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022245&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 08:04</a>
+问题是也没转推吧，只是共通关注的人发的推，被贴吧臆想成了樱井转推，再快进成写手是樱井 ...</blockquote>
+我跑去推上看了几眼她是转了七八条啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

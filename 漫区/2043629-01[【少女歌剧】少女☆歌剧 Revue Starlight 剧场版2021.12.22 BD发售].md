@@ -1361,3 +1361,40 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 
 再看一遍 激动又惆怅
 
+
+
+*****
+
+####  维斯瓦军团  
+##### 94#       发表于 2021-12-24 08:07
+
+突然想到西红柿在以前被认为是有毒的，被用于观赏。那无视毒性和可能带来的结果，像着魔一般地追求其美丽，这就是对revue本身的渴望啊
+
+—— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  JustW  
+##### 95#       发表于 2021-12-24 08:14
+
+[https://bbs.saraba1st.com/2b/thread-2043705-1-1.html](https://bbs.saraba1st.com/2b/thread-2043705-1-1.html)
+
+整了评分帖
+
+*****
+
+####  扶扶老奶奶  
+##### 96#       发表于 2021-12-24 08:15
+
+昨晚看完给我整失眠了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainknine  
+##### 97#       发表于 2021-12-24 08:15
+
+想看live哎
+等剧场版前的这几周开始补之前的各种九九组企划，看到3rd live的时候就觉得这帮人真是太耀眼了（顺便紧急加推楠木灯）
+但这已经是两年前的live了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+新冠和武士道我杀了你啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

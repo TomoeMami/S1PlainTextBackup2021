@@ -7578,3 +7578,20 @@ Washington state Sen. Doug Ericksen dies after COVID battle
 HKU出来 ...</blockquote>
 等其他大学复现？
 
+
+
+*****
+
+####  riczxc  
+##### 2143#         楼主| 发表于 2021-12-24 08:11
+
+ 本帖最后由 riczxc 于 2021-12-24 08:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022063&amp;ptid=2039422" target="_blank">Maestro 发表于 2021-12-24 07:18</a>
+
+这图的出处都不是preprint，就是HKU医学院官网一条新闻里的图，啥信息都没有谁知道实验怎么做的
+
+HKU出来 ...</blockquote>
+最近保护力的测试公布都是这样的一张图/一个表。要新的信息必然不可能等论文出来。
+
+而且，都是很标准的测试了，硬是要写篇论文然后再同行评议，也不会增加什么可信度和意义。发了论文也不代表能复现。
+
