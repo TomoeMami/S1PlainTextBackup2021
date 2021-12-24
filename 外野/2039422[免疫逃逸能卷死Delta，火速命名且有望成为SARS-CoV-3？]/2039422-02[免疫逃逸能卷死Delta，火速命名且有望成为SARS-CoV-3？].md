@@ -7622,3 +7622,51 @@ HKU出来 ...</blockquote>
 可能奥米克隆也就这样了。</blockquote>
 but南非住院率回落的也就豪登这一个省，带英确诊数十天前才开始暴涨，目前还没到顶峰，想看死亡数上升还早了点
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2146#       发表于 2021-12-24 09:24
+
+ 本帖最后由 Alexmacau8 于 2021-12-24 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020607&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-24 00:15</a>
+
+焦帮主说，如果毒力减轻，可以去打他的脸。看来这脸应该打定了。</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急着跳，eric ding和钟南山都还在观望呢。大英格兰刚刚创了一天入院88例小孩的新纪录。
+
+其中42例0-5岁。
+
+<img src="https://img.saraba1st.com/forum/202112/24/092530vsbsiuji6lbnr9es.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5CD5BC91-200B-4E06-AC24-3FCAD6C3A08B.jpeg</strong> (213.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 09:25 上传
+
+*****
+
+####  smy20011  
+##### 2147#       发表于 2021-12-24 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022675&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-24 08:53</a>
+
+but南非住院率回落的也就豪登这一个省，带英确诊数十天前才开始暴涨，目前还没到顶峰，想看死亡数上升还 ...</blockquote>
+他们那里先炸的,自然先回落
+
+以这个病毒的传播速度来看,疫苗什么的根本来不及
+
+*****
+
+####  最好不说  
+##### 2148#       发表于 2021-12-24 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023114&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-24 09:24</a>
+
+别急着跳，eric ding和钟南山都还在观望呢。大英格兰刚刚创了一天入院88例小孩的新纪录。
+
+其中42 ...</blockquote>
+感染人群里儿童和年轻人占大头也是omicron的特色了，omicron这么多突变也不知道有没有点出啥奇怪的后遗症
+

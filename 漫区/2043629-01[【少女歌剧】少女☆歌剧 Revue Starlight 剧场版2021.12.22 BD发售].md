@@ -1478,3 +1478,41 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 楼主可以在标题里加个不带星的“少女歌剧”，要不然以后楼沉了也不好直接搜到。 ...</blockquote>
 要对长颈鹿有信心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  堆雪若叶  
+##### 105#         楼主| 发表于 2021-12-24 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022532&amp;ptid=2043629" target="_blank">暗黑能乐 发表于 2021-12-24 08:41</a>
+
+剧情上整个感觉就是餐后甜点，本来完成度其实就挺高的了，就只是打了个补丁而已。
+
+说实话，光有点渣的，把 ...</blockquote>
+就是剧情完成度高这个补丁才强啊，内容上甚至反哺本篇，更重要的是核心主题和本篇联系紧密的同时还能更进一步，我是感觉古川超越了自己。
+
+*****
+
+####  rainknine  
+##### 106#       发表于 2021-12-24 09:37
+
+ 本帖最后由 rainknine 于 2021-12-24 09:38 编辑 
+
+所以纯那的进路从早稻田大学文学部变纽约音乐戏剧大学算不算受到蕉的revue的影响？
+虽然文学也包括了戏剧但总觉得离舞台还是要更远一点点的
+
+*****
+
+####  yoboc  
+##### 107#       发表于 2021-12-24 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023091&amp;ptid=2043629" target="_blank">巴麻耒 发表于 2021-12-24 09:22</a>
+
+去纽约了
+
+看了一下毕业去向分别是</blockquote>
+看了一眼开头纯那的志愿，原型应该都是日本的大学，没想到居然选择去了纽约。
+
+除了光恋组，另一个和第一志愿不一样的就只有蕉哥哥了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">这一组也算是剧场版里除了光恋之外最有不破不立味道的了吧
+

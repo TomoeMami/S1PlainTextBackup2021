@@ -12695,3 +12695,139 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 
 开头还看不太出来 昨天更新的那两节yjg执笔的可能性不小 也就她喜欢把バカ写成莫迦 不过总体来说目前没看出有啥问题 就算之前的2.55在我这也比2.6的体验要好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  katun  
+##### 85193#       发表于 2021-12-24 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023088&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-12-24 09:22</a>
+
+开头还看不太出来 昨天更新的那两节yjg执笔的可能性不小 也就她喜欢把バカ写成莫迦 不过总体来说目前没看出 ...</blockquote>
+一个是莫迦，一个是佳い，印象里后者还没出现，出来的瞬间就可以确定是🌸女士了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85194#       发表于 2021-12-24 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023052&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 09:20</a>
+
+无铭本来就是凑数的，后面不是换成大王了吗，大王逼格比这俩兽更高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那到时候殴打游星大王抽卡获得LOLI大王
+
+*****
+
+####  gpx234mqx  
+##### 85195#       发表于 2021-12-24 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023052&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 09:20</a>
+
+无铭本来就是凑数的，后面不是换成大王了吗，大王逼格比这俩兽更高 ...</blockquote>
+无名不在队伍里啊，闪闪也是
+
+默认就尼狐
+
+*****
+
+####  zakki  
+##### 85196#       发表于 2021-12-24 09:30
+
+要是樱井我只能说属实劳模，2.2，2.52，2.55，2.65主线一半都是她写，盐川说的fgo以蘑菇为中心还是算了吧，这叫fgo以樱井为中心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85197#       发表于 2021-12-24 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人剧情有什么高光的加分项么 感觉只会各种拉CP
+
+*****
+
+####  真红眼教授  
+##### 85198#       发表于 2021-12-24 09:34
+
+这次活动要是樱井光写的那只能说大概TM发明了什么神药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+写到现在太公望居然没有一句带括号的心理自白，你相信这是樱井的作品？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85199#       发表于 2021-12-24 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023031&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 09:19</a>
+
+关键是一群人还立牌坊，“不是ml”的问题，还有什么理客中，“我既不喜欢玉藻也不喜欢太公望但我觉得……” ...</blockquote>
+现在已经转进成，“重点是樱井拉郎配”和“樱井拉郎配写得不行”了
+
+我现在突然希望樱井阿姨别整活了，来个普普通通的收尾，我想看这群人还能转进出什么新的东西
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 85200#       发表于 2021-12-24 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁的讨论氛围是这样的啦，昨天马娘版有人感慨新主线写的不错都能因为剧情魔改现实辩了三栋楼
+
+
+
+*****
+
+####  exiaexa  
+##### 85201#       发表于 2021-12-24 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023088&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-12-24 09:22</a>
+
+开头还看不太出来 昨天更新的那两节yjg执笔的可能性不小 也就她喜欢把バカ写成莫迦 不过总体来说目前没看出 ...</blockquote>
+目前到现在的体验来说，就异常的正常
+
+没有奇怪的矫情和谜语人环节了，我一度思考是不是因为老福被送走了不用强行给他安排戏份
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+如果是樱井的话，就看后期会不会整出喊口号决战这种土味环节了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 85202#       发表于 2021-12-24 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023279&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 09:35</a>
+
+现在已经转进成，“重点是樱井拉郎配”和“樱井拉郎配写得不行”了
+
+我现在突然希望樱井阿姨别整活了，来 ...</blockquote>
+“中国从者太少”
+
+“男五星太少”
+
+“男灵衣太少”
+
+“中国冠位太少”
+
+“为什么要安排日本从者出场”
+
+“新年会不会把晴明和妲己缝一起”
+
+*****
+
+####  人生啊  
+##### 85203#       发表于 2021-12-24 09:40
+
+看梦女破防真开心啊真开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 85204#       发表于 2021-12-24 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023242&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-24 09:33</a>
+
+这人剧情有什么高光的加分项么 感觉只会各种拉CP</blockquote>
+对我而言是没有，她黑点我觉得不是拉cp玛丽苏什么的，就是单纯的无聊。剧情发展是直线rpg，搞笑剧情都不好笑，人物台词都是复读机，就比如说，她想写角色的装逼台词但写不出来，伦敦里黑王一句台词都没有只有省略号，2.55伊吹只会复读省略号和“愉快”
+
+当然什么屎盆子都扣她头上也不好，毕竟你游选手水平全面下滑，还有薛定谔的水濑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
