@@ -13285,3 +13285,38 @@ LV100黑杯+666武则天+奥伯龙+幻想强化，83w
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是中午开么 我以为是下午五点
 
+
+
+*****
+
+####  凌云三才  
+##### 85245#       发表于 2021-12-24 15:05
+
+简单算了下，没有奥伯隆的话WCBA怎么着伤害都不太够，难道要满破黑杯+CBA+奥博隆吗..
+
+*****
+
+####  1a不解释  
+##### 85246#       发表于 2021-12-24 15:20
+
+艹，打慢点啊，社畜还在上班呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  exiaexa  
+##### 85247#       发表于 2021-12-24 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54028995&amp;ptid=1085254" target="_blank">凌云三才 发表于 2021-12-24 15:05</a>
+
+简单算了下，没有奥伯隆的话WCBA怎么着伤害都不太够，难道要满破黑杯+CBA+奥博隆吗.. ...</blockquote>
+不至于不至于
+
+LV100黑杯+WCBA+666武则天=102w
+
+LV100黑杯+WCBA+一张CBA羁绊+666武则天=107w
+
+问题就是绑死换人，而且用武则天的话三个DEBUFF技能容易脑溢血
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
