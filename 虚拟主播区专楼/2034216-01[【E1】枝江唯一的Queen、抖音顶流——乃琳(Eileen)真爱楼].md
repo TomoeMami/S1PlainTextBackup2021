@@ -4639,3 +4639,16 @@ https://space.bilibili.com/672342685/
 
 x3</blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 348#         楼主| 发表于 2021-12-24 17:42
+
+乃琳Queen:[转发动态](https://t.bilibili.com/607739122221243739)
+
+A-SOUL_Official:[发布动态](https://t.bilibili.com/607738950426744808)<blockquote>Hello小伙伴们，[@乃琳Queen](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=544996) 由于身体不适无法参与今晚的【A-SOUL夜谈】直播，今晚的直播间将保持不变。请小伙伴们放心，乃琳会好好休息的。也请小伙伴们谅解，谢谢。</blockquote>
+
+琳啊！！！我的乃琳啊！呜呜呜呜呜......这都是些啥啊......-
+

@@ -13571,3 +13571,185 @@ cba：为什么会这样的
 
 低星只能上大卫了啊，这家伙居然不是男人，太不要脸了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 85272#       发表于 2021-12-24 17:24
+
+ 本帖最后由 Jamaisvu 于 2021-12-24 17:35 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/24/172309oi3zpc9o9uldi73d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211224_172215_com.excean.gspace.jpg</strong> (565.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 17:23 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/172309w0nsl0s4joc2g84g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211224_172249_com.excean.gspace.jpg</strong> (441.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 17:23 上传
+
+今天的本有巨人特攻的大卫相当好用，开局刷到两张红卡就能1T，nice。
+
+（刚才有一把两回合只刷到一张红卡，大卫被老苏喷死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  凌云三才  
+##### 85273#       发表于 2021-12-24 17:25
+
+太弱智了这个耐性无效，剥夺了我使用绿卡队的最后一点想法，直接掏出五宝90级鲅鱼圈....
+
+*****
+
+####  qixinno2  
+##### 85274#       发表于 2021-12-24 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031123&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 17:18</a>
+
+萌新体验很好　随便一ｔ　反正我也就这３张礼装。。。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">不愧是萌新 又豹了
+
+*****
+
+####  alucardcz  
+##### 85275#       发表于 2021-12-24 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031269&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-24 17:28</a>
+
+不愧是萌新 又豹了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">啊　　豹啥　友情池抽了８０万才３张也叫豹？
+
+*****
+
+####  v22325  
+##### 85276#       发表于 2021-12-24 17:29
+
+<img src="https://img.saraba1st.com/forum/202112/24/172930eomwyszovvmoo1ww.jpg" referrerpolicy="no-referrer">
+
+<strong>1640335436470.jpg</strong> (248.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 17:29 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">hhh
+
+*****
+
+####  霧谷藤乃  
+##### 85277#       发表于 2021-12-24 17:29
+
+真萌新连90+都翻车了，交了三个令咒还没打死，摸了
+
+*****
+
+####  qixinno2  
+##### 85278#       发表于 2021-12-24 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031284&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 17:29</a>
+
+啊　　豹啥　友情池抽了８０万才３张也叫豹？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">眼花看错了 以为你出了姜子牙
+
+*****
+
+####  alucardcz  
+##### 85279#       发表于 2021-12-24 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031298&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-24 17:30</a>
+
+眼花看错了 以为你出了姜子牙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">醒醒　我怎么会抽个男的　而且还是仓管
+
+*****
+
+####  qixinno2  
+##### 85280#       发表于 2021-12-24 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031325&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 17:32</a>
+
+醒醒　我怎么会抽个男的　而且还是仓管</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近太非了看谁都狗
+
+*****
+
+####  exiaexa  
+##### 85281#       发表于 2021-12-24 17:36
+
+果然还是昨天的素材太傻逼
+
+今天下降速度明显快多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  クー子  
+##### 85282#       发表于 2021-12-24 17:36
+
+<img src="https://p.sda1.dev/3/70084d4ca44b836c9f349d5bd4256052/IMG_CMP_195406444.jpeg" referrerpolicy="no-referrer">
+掏出当年情人节石头号入坑歪出来的五宝BX<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  阿提拉  
+##### 85283#       发表于 2021-12-24 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54031215&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-24 17:24:01</a>
+）</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杀狐直接自己放个宝具就凑够三红了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Jamaisvu| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  sosgame67  
+##### 85284#       发表于 2021-12-24 17:37
+
+我想想还是奥博隆杀狐带np礼装垫刀大卫了..虽然亏羁绊不过不用纠结发卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超阳电子炮  
+##### 85285#       发表于 2021-12-24 17:40
+
+看了楼里用黑狗的，我也用黑狗，好爽，无脑打
+
+*****
+
+####  gpx234mqx  
+##### 85286#       发表于 2021-12-24 17:41
+
+一回合没法做
+
+老老实实两回合超人熊
+
+E4F11D58-E791-409D-AF1A-01DDECECF7ED.png
+(742.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/174058trnv8keekqvqfzkr.png" referrerpolicy="no-referrer">
+
