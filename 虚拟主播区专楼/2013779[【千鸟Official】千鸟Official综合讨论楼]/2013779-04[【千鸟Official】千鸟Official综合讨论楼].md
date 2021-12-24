@@ -1194,3 +1194,30 @@ co宝一共播了8小时25分，热coco都熬干了
 
 s1 停尸间
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4627#       发表于 2021-12-24 16:11
+
+寄<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 4628#       发表于 2021-12-24 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开播了还刷论坛 很难不怀疑是爱坛友多一点还是千鸟多一点
+
+*****
+
+####  rgauss  
+##### 4629#       发表于 2021-12-24 16:14
+
+ 本帖最后由 rgauss 于 2021-12-24 16:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在外面没带耳机看不了直播
+
+咋是高考恋爱一百天啊 我猜文静初见单身结局
+

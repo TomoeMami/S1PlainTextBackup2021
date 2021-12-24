@@ -1984,3 +1984,19 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">已经，燃烧成灰烬惹
 
+
+
+*****
+
+####  ardito  
+##### 152#       发表于 2021-12-24 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54029498&amp;ptid=2043629" target="_blank">钱如命 发表于 2021-12-24 15:35</a>
+
+虽然各种意象乱飞，演出看得确实很爽
+
+但是可能是打得不够吧总有种哪里不得劲的感觉
+
+看来看去，好像 ...</blockquote>
+你并不是一个人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

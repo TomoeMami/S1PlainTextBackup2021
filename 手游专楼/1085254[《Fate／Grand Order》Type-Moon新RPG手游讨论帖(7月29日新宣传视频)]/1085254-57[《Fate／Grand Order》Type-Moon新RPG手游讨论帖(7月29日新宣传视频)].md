@@ -13353,3 +13353,25 @@ LV100黑杯+WCBA+一张CBA羁绊+666武则天=107w
 有啥区别吗 平a破掉啊 除非你5张卡次次4绿。。</blockquote>
 只是单纯的绿卡PTSD而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85251#       发表于 2021-12-24 16:03
+
+本来以为大卫能杀疯的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  1a不解释  
+##### 85252#       发表于 2021-12-24 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54029355&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-24 15:25</a>
+根本还没开呢  中午是开剧情  5点才开刷</blockquote>
+好吧，我说咋打完剧情啥都没有<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
