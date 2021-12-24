@@ -14452,3 +14452,53 @@ S1大姨妈了好几天都忘了已经修好了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那妲己有无辜的怪物吗
 
+
+
+*****
+
+####  zakki  
+##### 85358#       发表于 2021-12-24 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034888&amp;ptid=1085254" target="_blank">rzxa 发表于 2021-12-24 22:27</a>
+还剩5节，26日11节后开第4场raid，是要打狐狸了吧，公告写持续时间到27早上，最后两节28号才开 ...</blockquote>
+剩下两个一个虎式坦克一个多头犬，至于杀狐估计得等光点了
+
+*****
+
+####  rzxa  
+##### 85359#       发表于 2021-12-24 22:52
+
+这些和前两个差太远了，可能明天一起干了
+
+*****
+
+####  zakki  
+##### 85360#       发表于 2021-12-24 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54035120&amp;ptid=1085254" target="_blank">rzxa 发表于 2021-12-24 22:52</a>
+这些和前两个差太远了，可能明天一起干了</blockquote>
+关键现在8节下来杀狐连脸都没露，这剧情13节是绝对不可能讲的完的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lokad  
+##### 85361#       发表于 2021-12-24 22:58
+
+序章不都说了么，华丽的团灭。
+
+2.65才是正式的兽吧？
+
+*****
+
+####  Lokad  
+##### 85362#       发表于 2021-12-24 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034311&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-24 21:33</a>
+
+妲己说不定会出
+
+因为小玉不认，杀狐不是</blockquote>
+可能不是侧面，反而是玉藻深层意识的根源”金毛白面“。
+
+例如fex玉藻有倾国mod喊白夜做mc的帝辛，太公说妲己是金毛白面，恶劣的本源意识才是妲己？玉藻是金毛的分灵嘛，锅可以都甩给金毛身上。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
