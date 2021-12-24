@@ -1398,3 +1398,21 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 但这已经是两年前的live了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 新冠和武士道我杀了你啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 98#       发表于 2021-12-24 08:41
+
+剧情上整个感觉就是餐后甜点，本来完成度其实就挺高的了，就只是打了个补丁而已。
+
+说实话，光有点渣的，把整个小时候给补出来后越发的明显（
+
+*****
+
+####  无梦女  
+##### 99#       发表于 2021-12-24 08:43
+
+就一个字，劲大
+

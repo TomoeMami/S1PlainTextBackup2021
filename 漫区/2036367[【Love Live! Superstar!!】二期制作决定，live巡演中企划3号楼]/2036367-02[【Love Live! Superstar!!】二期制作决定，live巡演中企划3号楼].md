@@ -10090,3 +10090,24 @@ Liyuu觉得自己比之前线上 live瘦了，也更有体了。
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 2357#       发表于 2021-12-24 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022307&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-24 08:13</a>
+不知道游戏的话题在哪说，就在这个楼说？as游戏换发行，看贴吧的说法就是接手的那家死亡墓场了，基本要宣告 ...</blockquote>
+又不影响国内，说不定靠国内救还加大力度呢
+
+*****
+
+####  ads147147  
+##### 2358#       发表于 2021-12-24 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022381&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-24 08:24</a>
+
+又不影响国内，说不定靠国内救还加大力度呢</blockquote>
+主要是比较微妙的状态，不过确实有不少国外游戏换个国家死灰复燃。
+

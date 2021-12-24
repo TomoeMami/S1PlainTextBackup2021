@@ -5729,3 +5729,16 @@ Shu和Mysta是Vtuber转世。海賊海斗（Mysta）的前世切片我看了一�
 [https://youtu.be/Qh6aSTTkmEs](https://youtu.be/Qh6aSTTkmEs)
 vspo终于出了全员（除了两位新人)翻唱，概要栏里运营写的长文<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Porsche  
+##### 9471#       发表于 2021-12-24 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020663&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-12-24 00:20</a>
+鹿乃出道很早的nico唱见吧，今天才发现她在b站180w粉丝，油管反而只有34w？一般nico唱见转油管都自带粉吧， ...</blockquote>
+露奶就是b站用户心中的yhm本m，集中了他们对于yhm的所有美好幻想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果类比他们人生中第一个手游是〇神，那么差不多人生中遇到的第一个yhm就是露奶了
+
+另一个是花たん，你看马上也要来了
+

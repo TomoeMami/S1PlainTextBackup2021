@@ -7595,3 +7595,16 @@ HKU出来 ...</blockquote>
 
 而且，都是很标准的测试了，硬是要写篇论文然后再同行评议，也不会增加什么可信度和意义。发了论文也不代表能复现。
 
+
+
+*****
+
+####  永远健康希拉里  
+##### 2144#       发表于 2021-12-24 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53765150&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-1 01:25</a>
+电子烟肺炎当然很可疑，但不是没有抓住痛脚么。
+
+要我说，论文里的血清抗体中和测试明明测到了2019年12月 ...</blockquote>
+总不能查吧，万一查出德特里克堡泄漏那<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
