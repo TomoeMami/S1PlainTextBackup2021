@@ -1728,3 +1728,43 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 
 去年haruki在lily表现就很好了，士别三日这都三年了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  unnilennium  
+##### 129#       发表于 2021-12-24 10:43
+
+ 本帖最后由 unnilennium 于 2021-12-24 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54024277&amp;ptid=2043629" target="_blank">JustW_2 发表于 2021-12-24 10:36</a>
+岩田阳葵也很明显啊，tv第一集的棒读选手，新剧场版里把小光和我都吓到了 ...</blockquote>
+はるき挺明显的。毕竟找点少歌早期的生放AB一下，她现在普通说话的声音都有点变化。
+整体音色接近，但以前是更接近三次元艺人的“地声”，现在说话明显声音响度和音调都高，更接近女声优。完全练出来的
+
+*****
+
+####  JustW_2  
+##### 130#       发表于 2021-12-24 10:45
+
+<blockquote>堆雪若叶 发表于 2021-12-24 10:42
+去年haruki在lily表现就很好了，士别三日这都三年了</blockquote>
+突击lily tv里那个角色没有个人回，感受没这么直观
+
+*****
+
+####  Arccueid  
+##### 131#       发表于 2021-12-24 10:48
+
+露女士和恋哥哥感觉是进步最明显的
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  阿姆罗二世  
+##### 132#       发表于 2021-12-24 11:01
+
+燃尽了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

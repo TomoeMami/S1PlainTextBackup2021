@@ -1470,3 +1470,22 @@ ps5版至少loading问题可以解决了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">A和庭院都全灭了还上哪找新的里社会势力啊
 
+
+
+*****
+
+####  宛若青空  
+##### 146#       发表于 2021-12-24 10:56
+
+法老控今年的邮件贺年壁纸是…！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+（应该还有别的角色）
+
+<img src="https://img.saraba1st.com/forum/202112/24/105542o3mkdcaa0a6a868m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>289511FA-76A5-4E34-8216-2410B3E82B3B.jpeg</strong> (54.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 10:55 上传
+
