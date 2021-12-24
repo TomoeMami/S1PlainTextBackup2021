@@ -6151,3 +6151,96 @@ vox和mysta前世是好友又是哪来的料</blockquote>
 
 我震惊的是Vox原来才21？听声音也太成熟了
 
+
+
+*****
+
+####  fastary  
+##### 9513#       发表于 2021-12-25 02:10
+
+虽然我说过了但还是要再说一遍：你们欧美人南通营业真的口无遮拦……(褒义)
+
+*****
+
+####  alcoholic1000  
+##### 9514#       发表于 2021-12-25 03:03
+
+ 本帖最后由 alcoholic1000 于 2021-12-25 05:21 编辑 
+
+补了一下hero的3D披露回，舞台真热闹啊，为她开心
+
+不知道有了3D以后会不会去MZM那儿，大概不会了
+
+Syl，Vade钓观众骗小姑娘的时候才16，那时候我在干什么，扣理综<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+Zsyl，有人在推上搬运了相关文章[https://twitter.com/v89169344](https://twitter.com/v89169344) ，@VTuberCringe也发了（鳴神裁 EN ver.）
+
+<img src="https://img.saraba1st.com/forum/202112/25/050411g1hbtzjbpjjbb4t5.png" referrerpolicy="no-referrer">
+
+<strong>No15209789▶&amp;gt;&amp;gt;15209871.png</strong> (24.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 05:04 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/050634wbo1p7ju1vs3pdb4.png" referrerpolicy="no-referrer">
+
+<strong>No.15210863▶&amp;gt;&amp;gt;15210980 &amp;gt;&amp;gt;15210986 &amp;gt;&amp;gt;15211109.png</strong> (19.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 05:06 上传
+
+4ch的观点也是两极化的
+
+AND MORE
+
+<img src="https://img.saraba1st.com/forum/202112/25/051620sizly7ylxvvirvvy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BUT WAIT! THERE'S MORE PEOPLE ARE NOW DRAGGING MYSTA AND IKE INTO THE DRAMA.jpeg</strong> (223.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 05:16 上传
+
+锐评 <blockquote>Live by the fujo die by the fujo.</blockquote><blockquote>Worth keeping an eye on.
+
+The only tangible aspect of this is him dubbing an Undertale comic with rape/pedophilia tags — which is true. I just found a website that hosts all the existing chapters since it was initially uploaded on, you guessed it, Tumblr. As a mercy, chapters with 'Mature' content are given a fat red 'M' next to it, so I would only need to read those to see how these tags were handled.
+
+I want to make it very clear to everyone that I've just read an Undertale mafia comic titled 'Sooner or later, you're gonna be mine', and I'll never be the same. Still, the only 'rape' in these chapters are one thwarted attempt, and one moment where the character imagines what...Sans...is about to do to her, but doesn't. If there is any pedophilia or pedophilic themes, it's all in the subtext and likely tagged as a trigger warning rather than a glorification. The contents of the comic are tasteful enough to not raise an eyebrow that someone has elected to dub over it.
+
+The rest is just statements from other people we have no reason to care about or listen to, and deleting videos (in his case, he seemed to have deleted all his gaming streams) is protocol for people who become V-Tubers.
+
+I'd like them to provide actual evidence of him mistreating women or making working with him untenable because that's really all that's here.</blockquote>
+
+*****
+
+####  fastary  
+##### 9515#       发表于 2021-12-25 03:18
+
+草，16？就两三岁差的话怎么觉得问题不大啊，总感觉欧美校园剧这种人挺常见的(个人偏见)<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+等等，我刚刚才意识到我比他大但是看多了女粉叫daddy自己也下意识这么叫了……突然觉得有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+syl
+
+这个男人，真的很有养gachi的才能<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+(听他开场吃播的感想
+
+*****
+
+####  fastary  
+##### 9516#       发表于 2021-12-25 04:51
+
+草微博怎么已经有人在感慨塌房了，不是说首播后两天就没人提了吗，别是v综传出去大家都知道了吧()
+
+*****
+
+####  Paisley  
+##### 9517#       发表于 2021-12-25 04:54
+
+ 本帖最后由 Paisley 于 2021-12-25 05:02 编辑 
+
+16岁钓12岁真的能算炼铜吗这不是早恋吗……<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">内心是不是很希望人塌啊
+

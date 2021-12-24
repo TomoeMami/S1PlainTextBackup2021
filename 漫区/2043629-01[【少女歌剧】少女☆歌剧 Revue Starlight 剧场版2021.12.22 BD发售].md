@@ -2432,3 +2432,63 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 被这里作画失误误导了，后来也没看过BD修没修，不过你一说闹钟配音我就有响过的印象了……
 
+
+
+*****
+
+####  leommoo  
+##### 188#       发表于 2021-12-25 01:51
+
+抹布洗，今晚睡不着了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普通哈尼  
+##### 189#       发表于 2021-12-25 02:42
+
+太屌了太屌了太屌了，我燃尽了，用结局的台词来说就是“我现在可能是世界上最空虚的人了”<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Revival  
+##### 190#       发表于 2021-12-25 02:58
+
+Revue Starlight演完了，我现在可能是全世界上最空虚的人了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 191#       发表于 2021-12-25 03:04
+
+ 本帖最后由 H2Ofrozen 于 2021-12-25 03:19 编辑 
+
+一开始看到蕉纯狩りのレヴュー这结局的时候说实话还是挺伤感的。奈奈知道纯那如果坚持自己所希望的进路肯定要吃更多苦，同时也不想纯那离开自己。但能做的还是只有打开鸟笼，所以最后纯那能忍住没流泪奈奈却哭得一塌糊涂
+
+至于恋光的结局倒是完全在预料之内。看完只觉得心情就像发射出去的半截东京塔，在空中短暂停留最终还是重重落地 
+
+这大概也符合古川的本意吧。最后面整个恋光部分基本没太多煽情而是大块情感再加上堆积演出，毕竟tv12话的时候已经emo完了，就打算设计成这样轻松而厚实的结局
+
+挺好的。真好 
+
+想了想wild-screen baroque的表现方法要说的可能就是这样的地上太空歌剧吧，而东京塔最终不会冲向太空
+
+*****
+
+####  liyropen  
+##### 192#       发表于 2021-12-25 04:29
+
+两个小时塞的满满当当<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  mifarkin  
+##### 193#       发表于 2021-12-25 06:02
+
+剧场恋gg太帅了吧
+
+wild-screen circus
+
+啊 看到标题我就好了
+

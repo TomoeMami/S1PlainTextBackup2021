@@ -8075,3 +8075,81 @@ omega也是o
 美国高级官员：拜登政府将从12月31日起取消对8个非洲国家的旅行限制。 你看，登子真的有在努力控制疫情 ...</blockquote>
 美国现在70%都是O，一天30万例，防8非洲防啥？
 
+
+
+*****
+
+####  smy20011  
+##### 2183#       发表于 2021-12-25 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54036526&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-25 01:33</a>
+
+不能这么看吧，丹麦总共死亡率也才大约千分之5，比英美好得多。北欧国家还是有国情和地理优势 至 ...</blockquote>
+这病毒不会消失的情况下 每年一到两个新变种几乎板上钉钉
+
+*****
+
+####  smy20011  
+##### 2184#       发表于 2021-12-25 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034658&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-24 22:02</a>
+
+美国高级官员：拜登政府将从12月31日起取消对8个非洲国家的旅行限制。 你看，登子真的有在努力控制疫情 ...</blockquote>
+这禁令从最开始就不应该有
+
+*****
+
+####  Alexmacau8  
+##### 2185#       发表于 2021-12-25 02:13
+
+ 本帖最后由 Alexmacau8 于 2021-12-25 02:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+至于他们喜欢宣传mild，就随他去吧，不出半个月就有结果了。另外，喜欢转港灿的论文的庄某人的屁股在哪，早就公开了。
+
+<img src="https://img.saraba1st.com/forum/202112/25/021423zr73dph29ghv887v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D3E0B74B-D19C-4438-BF3D-E01FA66727B4.jpeg</strong> (171.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 02:14 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/021423cqongvzqp9sqs9s9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6693A36E-9ACB-4174-9642-CBB969CC724A.jpeg</strong> (256.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 02:14 上传
+
+[https://www.biorxiv.org/content/10.1101/2021.12.12.472269v1.full](https://www.biorxiv.org/content/10.1101/2021.12.12.472269v1.full)
+
+*****
+
+####  Yerish  
+##### 2186#       发表于 2021-12-25 02:35
+
+前两天和medical school的朋友聊学校强制打booster shot的事情，他提了句David Ho这个preprint，他的解读是现在的疫苗基本没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+只能说打了第三针至少能防delta<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至于那时候到底是d和o一起乱杀还是o干翻d就不清楚了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  呆呆兽二号  
+##### 2187#       发表于 2021-12-25 02:37
+
+暂时不出门的我还是打算O的专属疫苗出来了再打。就怕到时候更厉害的出来了。
+
+*****
+
+####  wszweill  
+##### 2188#       发表于 2021-12-25 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54036608&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-24 12:51</a>
+
+这病毒不会消失的情况下 每年一到两个新变种几乎板上钉钉</blockquote>
+但是具体感染人数影响变异的潜力，几亿人养蛊和不知道哪里潜伏的养蛊肯定不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
