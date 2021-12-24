@@ -1593,3 +1593,82 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 我觉得关于恋的小时候补完很不错，但我对于光的处理有些许不满，感觉笔墨不够重，相比于前面大段大段的恋 ...</blockquote>
 这个确实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后解谜太短了，节奏还是有点仓促的
 
+
+
+*****
+
+####  堆雪若叶  
+##### 115#         楼主| 发表于 2021-12-24 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023554&amp;ptid=2043629" target="_blank">暗黑能乐 发表于 2021-12-24 09:50</a>
+
+华恋这个不是压根说了和没说差不多吗233而且还报了一号，我甚至有点怀疑是不是进圣翔的时候（ ...</blockquote>
+华恋最后参加试音有说其实就是以当初少歌试音为原型的，实际上古川补完华恋就是参考了mmy的经历
+
+*****
+
+####  暗黑能乐  
+##### 116#       发表于 2021-12-24 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然长颈鹿说是因为观众想看才开的，但我总觉得其实都是banana安排的
+
+*****
+
+####  蓝灯横滨  
+##### 117#       发表于 2021-12-24 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023778&amp;ptid=2043629" target="_blank">暗黑能乐 发表于 2021-12-24 10:06</a>
+虽然长颈鹿说是因为观众想看才开的，但我总觉得其实都是banana安排的</blockquote>
+也可以这么想
+<img src="https://p.sda1.dev/3/e34d4c5b9d8fb0a860f327683c140ecb/IMG_CMP_208503147.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 118#       发表于 2021-12-24 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023772&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-24 10:06</a>
+
+华恋最后参加试音有说其实就是以当初少歌试音为原型的，实际上古川补完华恋就是参考了mmy的经历 ...</blockquote>
+我觉得这其实略微有点偷懒，虽然粉丝的视角是没问题的，但用这个作为华恋的未来，我个人不算太认同，没有选择继续在学校进修是不是有点太傲慢了，又不是香子那种继承家业的情况
+
+*****
+
+####  JustW_2  
+##### 119#       发表于 2021-12-24 10:11
+
+<blockquote>暗黑能乐 发表于 2021-12-24 10:10
+我觉得这其实略微有点偷懒，虽然粉丝的视角是没问题的，但用这个作为华恋的未来，我个人不算太认同，没有 ...</blockquote>
+继续深造的只有一半吧
+
+*****
+
+####  暗黑能乐  
+##### 120#       发表于 2021-12-24 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023850&amp;ptid=2043629" target="_blank">JustW_2 发表于 2021-12-24 10:11</a>
+
+继续深造的只有一半吧</blockquote>
+那既然如此为什么不进第一歌剧团，直接选最好的不是才是最正确的选择吗
+
+
+
+*****
+
+####  llysander  
+##### 121#       发表于 2021-12-24 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023091&amp;ptid=2043629" target="_blank">巴麻耒 发表于 2021-12-24 09:22</a>
+
+去纽约了
+
+看了一下毕业去向分别是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">矮油拆的四分五裂的配对
+
+*****
+
+####  暗黑能乐  
+##### 122#       发表于 2021-12-24 10:20
+
+说到底只是毕业一时的去向而已，都约好了以后再见的
+

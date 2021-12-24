@@ -12904,3 +12904,44 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 没有奇怪的矫情和谜语人环节了，我一度思考是不是因为老福被送走了 ...</blockquote>
 还有boss排队送 开战前和击破后仪式感拉满的赘述描写 每个boss都来一遍 格式都差不多 结果昨天雷帝居然没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85211#       发表于 2021-12-24 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023537&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 09:49</a>
+
+话说隔壁街机第七章的剧情还挺有意思的，昨天看了翻译，只可惜太短，特别是beast VI的设定，吞噬都市的繁荣 ...</blockquote>
+街机大银妇？一点不大也不妇，群友说这是雌小鬼
+
+989FBFFA-DE89-4134-BD37-3DA153D558C8.jpeg
+(300.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 10:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/101009oqqkjfvhjiwid8zv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85212#       发表于 2021-12-24 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023833&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-24 10:10</a>
+
+街机大银妇？一点不大也不妇，群友说这是雌小鬼</blockquote>
+这个不急，应该会有第二形态吧，现在真名都没显现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 85213#       发表于 2021-12-24 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023833&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-24 10:10</a>
+
+街机大银妇？一点不大也不妇，群友说这是雌小鬼</blockquote>
+洗衣板小龙虾，真心不太行
+

@@ -7684,3 +7684,14 @@ but南非住院率回落的也就豪登这一个省，带英确诊数十天前�
 以这个病毒的传播速度来看,疫苗什么的根本来不及 ...</blockquote>
 这玩意院感比例也高得吓人，国内防控尤其得小心这点
 
+
+
+*****
+
+####  Maestro  
+##### 2150#       发表于 2021-12-24 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022105&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-24 07:32</a>
+等其他大学复现？</blockquote>
+我倒不是觉得科兴怎么样，按康奈尔大学最近校内接种率95%+却两周病例数涨了20倍的例子，单纯感觉图里这条虚线画的有问题
+
