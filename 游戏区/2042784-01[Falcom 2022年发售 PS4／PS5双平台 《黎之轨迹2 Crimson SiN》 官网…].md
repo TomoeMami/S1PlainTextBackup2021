@@ -1503,3 +1503,19 @@ ps5版至少loading问题可以解决了
 （应该还有别的角色）</blockquote>
 这胜利者的表情<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冰寒之月  
+##### 148#       发表于 2021-12-24 12:57
+
+艾蕾因私服毛衣真好看
+
+*****
+
+####  ky怪  
+##### 149#       发表于 2021-12-24 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">就是手指有点崩
+

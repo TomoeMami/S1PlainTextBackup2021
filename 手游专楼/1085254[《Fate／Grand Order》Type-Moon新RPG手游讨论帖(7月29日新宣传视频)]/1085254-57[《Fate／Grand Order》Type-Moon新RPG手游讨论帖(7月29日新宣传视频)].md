@@ -13176,3 +13176,55 @@ BX：仿佛听到有人在叫我</blockquote>
 
 圣诞大王倒是可以算一下
 
+
+
+*****
+
+####  exiaexa  
+##### 85237#       发表于 2021-12-24 12:53
+
+ 本帖最后由 exiaexa 于 2021-12-24 12:54 编辑 
+
+试了下圣诞大王
+
+LV100黑杯+双CBA+奥伯龙+换人加攻，145w
+
+LV100黑杯+单CBA+奥伯龙+幻想强化，112w
+
+LV100黑杯+666武则天+奥伯龙+幻想强化，83w
+
+除了最后一个问题不大
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 85238#       发表于 2021-12-24 12:54
+
+我日服没老崔，不过妖崔是王姐副产品大家保有量应该够吧，实在不行还有帕里斯<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85239#       发表于 2021-12-24 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026561&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-12-24 12:33</a>
+
+真是红蓝耐性两次我要破防了，每次CBA UP都千石零宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有啥区别吗 平a破掉啊 除非你5张卡次次4绿。。
+
+*****
+
+####  exiaexa  
+##### 85240#       发表于 2021-12-24 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026913&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-12-24 12:54</a>
+
+我日服没老崔，不过妖崔是王姐副产品大家保有量应该够吧，实在不行还有帕里斯 ...</blockquote>
+帕里斯有点问题，试了下上面第一个配置
+
+只能摸72w，下回合就罚站了
+
+还不如去打掉抗性
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

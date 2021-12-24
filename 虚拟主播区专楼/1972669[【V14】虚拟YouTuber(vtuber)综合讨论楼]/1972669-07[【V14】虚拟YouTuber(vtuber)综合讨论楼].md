@@ -5833,3 +5833,21 @@ syl，怎么彩虹还不死，生气
 
 楼里又开始复读了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">en能火可能还是因为不够阴湿
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9481#       发表于 2021-12-24 12:42
+
+不如说谁喜欢阴湿的环境啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 9482#       发表于 2021-12-24 12:55
+
+ 本帖最后由 FCCHua 于 2021-12-24 12:59 编辑 
+
+oreapo今天平安夜预定要播itt，但是hnn从昨天晚上八点醒来后一直没睡，加上现在开了的歌回，一共四动，弹幕都让她去睡觉，双方对线ing<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
