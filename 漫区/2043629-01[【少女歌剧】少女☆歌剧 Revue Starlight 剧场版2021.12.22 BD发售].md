@@ -2233,3 +2233,27 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  leleq  
+##### 172#       发表于 2021-12-24 21:47
+
+ 本帖最后由 leleq 于 2021-12-24 21:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54032662&amp;ptid=2043629" target="_blank">JustW_2 发表于 2021-12-24 19:12</a>
+
+嘛，和少革最后踏出的那一步相比，少女歌剧整个系列都显得浅显稚嫩，拿这一套来做jk的高中生活和钕铜属于是 ...</blockquote>
+古川gg下一部已经公告了 考虑到时间6月份少歌剧场公映12月公告新作品 基本上没怎么歇就又上了 这点上比几原枪手多了 几原百合熊岚和皿三味差了4年 拍个企鹅罐剧场还要众筹 
+
+*****
+
+####  囧Smith  
+##### 173#       发表于 2021-12-24 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54029609&amp;ptid=2043629" target="_blank">remedios010000 发表于 2021-12-24 15:42</a>
+草，看到有说黑暗之魂剧场版的，MD绷不住了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+火之将熄，然位不见鹿影<img src="https://p.sda1.dev/3/094b3321b61c8af26ee2db4d2f1ac2c2/39E8324688652B0B00AAD683A8116D13.jpg" referrerpolicy="no-referrer">
+

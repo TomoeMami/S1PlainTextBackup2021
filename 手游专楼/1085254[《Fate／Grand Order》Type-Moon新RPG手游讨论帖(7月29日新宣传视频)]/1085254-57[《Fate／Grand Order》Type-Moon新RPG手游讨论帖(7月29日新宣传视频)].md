@@ -14391,3 +14391,41 @@ S1大姨妈了好几天都忘了已经修好了。
 今天两场都靠她了 ...</blockquote>
 忘记有这个人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85351#       发表于 2021-12-24 21:29
+
+看来妲己以后能单出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小玉不认妲己，杀狐也不是妲己
+
+*****
+
+####  gpx234mqx  
+##### 85352#       发表于 2021-12-24 21:33
+
+ 本帖最后由 gpx234mqx 于 2021-12-24 21:34 编辑 
+
+妲己说不定会出<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+因为小玉不认，杀狐不是
+
+小玉别侧面？
+
+*****
+
+####  zakki  
+##### 85353#       发表于 2021-12-24 22:01
+
+翻页
+
+*****
+
+####  zakki  
+##### 85354#       发表于 2021-12-24 22:03
+
+看这剧情越来越在玉藻和柯杨斯卡娅beast编号上做文章打马虎眼了，看来我之前的猜测第4兽＋第5兽=新9尾的可能性又增加了一点点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

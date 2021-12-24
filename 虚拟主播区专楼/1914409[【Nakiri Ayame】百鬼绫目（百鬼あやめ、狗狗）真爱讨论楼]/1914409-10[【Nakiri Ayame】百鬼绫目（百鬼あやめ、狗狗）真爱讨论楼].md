@@ -2957,3 +2957,14 @@ https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">上次竞猜我猜了8次 阿绫真给我面子
 
+
+
+*****
+
+####  Fami水  
+##### 13797#       发表于 2021-12-24 21:46
+
+这个新的模型是不是没调校过 嘴一直咧着
+
+而且着单纯的换头 还是感觉原皮更涩一点<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

@@ -8053,3 +8053,42 @@ space不知道为什么不如tc给劲
 你麻确实上心了就是，开局比我想的好</blockquote>
 而且指原在团就是拜金女人设 我甚至有点怀疑指原看手机那段你麻是设计过的
 
+
+
+*****
+
+####  yywzjsw  
+##### 6939#       发表于 2021-12-24 21:43
+
+什么心机女（
+
+*****
+
+####  路人庚  
+##### 6940#       发表于 2021-12-24 21:44
+
+是久违的心机麻
+
+*****
+
+####  makourisu-2  
+##### 6941#       发表于 2021-12-24 21:46
+
+那你麻岂不是可以反客为主当指示厨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 6942#       发表于 2021-12-24 21:47
+
+久违的巨魔麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  遗忘回想  
+##### 6943#       发表于 2021-12-24 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034378&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2021-12-24 21:39</a>
+看到了麻麻偶像厨的一面 和其他两位相比这人对指原和偶像台风更了解点 所以线基本拿捏得很好。特别是和指原 ...</blockquote>
+扣扣马上找我，**
+
