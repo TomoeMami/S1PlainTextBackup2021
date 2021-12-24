@@ -12631,3 +12631,67 @@ NND，我抽新毛妹结果被马大GANK了<img src="https://static.saraba1st.co
 
 太公望这种语音最好多来点，看人破防真开心
 
+
+
+*****
+
+####  johnkamsar  
+##### 85186#       发表于 2021-12-24 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来这次的编剧比我还八奇啊，稳了稳了
+
+*****
+
+####  zakki  
+##### 85187#       发表于 2021-12-24 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022285&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 08:10</a>
+我跑去推上看了几眼她是转了七八条啊</blockquote>
+我没关注她推，我还以为说的是前两天贴吧那个贴子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85188#       发表于 2021-12-24 09:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外两个呢
+
+1640306172926.jpg
+(60.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 09:11 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/091103uc1lzrwydwrrw41l.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85189#       发表于 2021-12-24 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红A已经定死了吧 应该不可能出什么奇怪马甲了 
+
+*****
+
+####  zakki  
+##### 85190#       发表于 2021-12-24 09:19
+
+关键是一群人还立牌坊，“不是ml”的问题，还有什么理客中，“我既不喜欢玉藻也不喜欢太公望但我觉得……”，再有就是替另一家，玉藻厨发声，“玉藻厨也很不爽”，微博那一套玩的溜溜的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85191#       发表于 2021-12-24 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022988&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-24 09:15</a>
+红A已经定死了吧 应该不可能出什么奇怪马甲了</blockquote>
+无铭本来就是凑数的，后面不是换成大王了吗，大王逼格比这俩兽更高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 85192#       发表于 2021-12-24 09:22
+
+开头还看不太出来 昨天更新的那两节yjg执笔的可能性不小 也就她喜欢把バカ写成莫迦 不过总体来说目前没看出有啥问题 就算之前的2.55在我这也比2.6的体验要好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

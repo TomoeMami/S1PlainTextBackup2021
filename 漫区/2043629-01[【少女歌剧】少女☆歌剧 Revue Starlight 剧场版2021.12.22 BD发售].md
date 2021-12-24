@@ -1438,3 +1438,43 @@ TV里十年如一日单向写信就挺哈人了，剧场版展开一下让大家
 看最后的ed图</blockquote>
 真昼天堂双叶三人进了新国立吧
 
+
+
+*****
+
+####  moshizhe  
+##### 102#       发表于 2021-12-24 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022797&amp;ptid=2043629" target="_blank">JustW_2 发表于 2021-12-24 09:02</a>
+
+真昼天堂双叶三人进了新国立吧</blockquote>
+草，说错名字了，纯那
+
+*****
+
+####  巴麻耒  
+##### 103#       发表于 2021-12-24 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022957&amp;ptid=2043629" target="_blank">moshizhe 发表于 2021-12-24 09:12</a>
+草，说错名字了，纯那</blockquote>
+去纽约了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+看了一下毕业去向分别是
+石动双叶，露崎真昼，天堂真矢加入新国立第一歌剧团
+大场奈奈去伦敦的王立演剧学院和神乐光贴贴
+西条克洛迪娜去法国的Theatre du Flamme
+花柳香子回家继承家业
+星见纯那去纽约音乐戏剧学院留学
+爱城华恋参加试音选拔
+
+九个人里有四个人远赴海外了还在三个不同的国家，再见面不知道要到什么时候了
+
+*****
+
+####  学魔乱舞  
+##### 104#       发表于 2021-12-24 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54019932&amp;ptid=2043629" target="_blank">灼眼的夏娜酱 发表于 2021-12-23 23:26</a>
+楼主可以在标题里加个不带星的“少女歌剧”，要不然以后楼沉了也不好直接搜到。 ...</blockquote>
+要对长颈鹿有信心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
