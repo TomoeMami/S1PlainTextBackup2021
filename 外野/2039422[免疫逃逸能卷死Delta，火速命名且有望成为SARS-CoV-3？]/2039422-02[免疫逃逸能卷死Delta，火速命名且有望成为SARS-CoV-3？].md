@@ -7719,3 +7719,83 @@ but南非住院率回落的也就豪登这一个省，带英确诊数十天前�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  apple222  
+##### 2153#       发表于 2021-12-24 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026105&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-24 12:07</a>
+
+庄时利和这种人就会挑点这种不是充要条件的数据来阴阳怪气的黑下国内，顺便引导评论区狂吹mrna ...</blockquote>
+上海交大也有团队做过类似的研究，全球公布了啊。灭活三针同源的效力的确不乐观。防德尔塔还好，奥米克戎就够呛。不是国内疫苗都不行，而是策略或者产能问题吧。换重组蛋白或者腺病毒加强，立马上天。这个一开始是柬埔寨和泰国等拿中国支援疫苗混打测试的，现在疾控主任高福的团队，张网红的同事团队，甚至终南山的同事们都得出类似结论了。换一种加强就ok。。当然纯腺病毒疫苗目前数据面对奥米克戎也是垃圾。这也是英国自己证明的
+
+*****
+
+####  apple222  
+##### 2154#       发表于 2021-12-24 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026571&amp;ptid=2039422" target="_blank">JJDUB3VQ 发表于 2021-12-24 12:33</a>
+
+上海前两天刚新闻播过，康希诺的
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+康希诺背靠军事医学科学院，本身应该没有推广障碍，受制于产能
+
+但丽珠和智飞两种重组蛋白作为加强针的结果已经不断揭晓了，效果的确比三针同源要好很多。
+
+*****
+
+####  apple222  
+##### 2155#       发表于 2021-12-24 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54024069&amp;ptid=2039422" target="_blank">Maestro 发表于 2021-12-24 10:24</a>
+
+我倒不是觉得科兴怎么样，按康奈尔大学最近校内接种率95%+却两周病例数涨了20倍的例子，单纯感觉图里这条 ...</blockquote>
+就新闻，两针疫苗基本都不行，三针，以色列经验能够抗衡德尔塔了，辉瑞和莫德纳老总也说过，本来他们开发了专门针对德尔塔的，后面发现同样的打第三针就解决，干脆胎死腹中。
+
+对付奥米克戎，以色列的答案是第四针mrna。
+
+中国专门针对奥米克戎的应该是紧锣密鼓研发当中了，对国内大厂而言也没难度。
+
+*****
+
+####  smy20011  
+##### 2156#       发表于 2021-12-24 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54024069&amp;ptid=2039422" target="_blank">Maestro 发表于 2021-12-24 10:24</a>
+
+我倒不是觉得科兴怎么样，按康奈尔大学最近校内接种率95%+却两周病例数涨了20倍的例子，单纯感觉图里这条 ...</blockquote>
+mrna两针也跟没有差不多啊
+
+*****
+
+####  smy20011  
+##### 2157#       发表于 2021-12-24 13:20
+
+ 本帖最后由 smy20011 于 2021-12-24 13:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026105&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-24 12:07</a>
+
+庄时利和这种人就会挑点这种不是充要条件的数据来阴阳怪气的黑下国内，顺便引导评论区狂吹mrna ...</blockquote>
+国产疫苗对O的数据,除了那个搞笑的阳性率数据,其他的应该都转了
+
+你不喜欢看，那我下次直接去源网站截图好了
+
+*****
+
+####  smy20011  
+##### 2158#       发表于 2021-12-24 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54027344&amp;ptid=2039422" target="_blank">apple222 发表于 2021-12-24 13:17</a>
+
+就新闻，两针疫苗基本都不行，三针，以色列经验能够抗衡德尔塔了，辉瑞和莫德纳老总也说过，本来他们开发 ...</blockquote>
+现在看来，疫苗研究出来，产能爆出来，基本上O疫情也结束了
+
+*****
+
+####  nobady  
+##### 2159#       发表于 2021-12-24 13:24
+
+美国打疫苗了么所有人都，还敲不敲丧钟了
+

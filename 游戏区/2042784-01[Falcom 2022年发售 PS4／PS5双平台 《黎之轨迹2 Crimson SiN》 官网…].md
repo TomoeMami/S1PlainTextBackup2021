@@ -1519,3 +1519,30 @@ ps5版至少loading问题可以解决了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">就是手指有点崩
 
+
+
+*****
+
+####  Yeaha123  
+##### 150#       发表于 2021-12-24 13:04
+
+黎轨2四舍五入**岁了
+
+
+
+*****
+
+####  悠悠你心  
+##### 151#       发表于 2021-12-24 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">我直接一个“嗨，老婆~”
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  natmk  
+##### 152#       发表于 2021-12-24 13:10
+
+老婆！！！
+

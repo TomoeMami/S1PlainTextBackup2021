@@ -2948,3 +2948,12 @@ https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/s
 
 别忘了绫总以前是用辅助进决赛的，这次好像不给用吧，不练估计进不了
 
+
+
+*****
+
+####  Fami水  
+##### 13796#       发表于 2021-12-24 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">上次竞猜我猜了8次 阿绫真给我面子
+

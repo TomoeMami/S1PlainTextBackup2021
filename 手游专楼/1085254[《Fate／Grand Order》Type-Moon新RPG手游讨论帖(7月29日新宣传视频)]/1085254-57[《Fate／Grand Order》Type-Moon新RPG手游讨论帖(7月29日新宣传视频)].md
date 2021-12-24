@@ -13228,3 +13228,60 @@ LV100黑杯+666武则天+奥伯龙+幻想强化，83w
 还不如去打掉抗性
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 85241#       发表于 2021-12-24 13:08
+
+黑杯喂满就好说，没满破就都不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 85242#       发表于 2021-12-24 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026980&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 12:57</a>
+
+帕里斯有点问题，试了下上面第一个配置
+
+只能摸72w，下回合就罚站了
+
+还不如去打掉抗性</blockquote>
+喂圣杯..算了还是平a破耐性吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85243#       发表于 2021-12-24 13:15
+
+突突突突突
+
+敌人真是火力教
+
+0449A4D3-9B91-4B4E-BBBC-8F2B1F6515C5.png
+(584.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 13:15 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/131535cc12fcofdf5ovdqc.png" referrerpolicy="no-referrer">
+
+6EF95547-E267-4D46-A8B3-DB3B5F508578.png
+(942.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 13:15 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/131537u0c5f0f75udii5f0.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85244#       发表于 2021-12-24 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是中午开么 我以为是下午五点
+

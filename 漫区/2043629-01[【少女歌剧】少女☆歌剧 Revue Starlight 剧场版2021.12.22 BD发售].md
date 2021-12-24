@@ -1868,3 +1868,16 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 之前贴吧有人说如果当年光没去英国是不是两人就是伞霙了，仔细想想的确有点这个意思。实际就剧情上两边都是相合又分离再相合最后还是分离，而且更深层的关系也很类似，核心就是对自己和对对方的感情纠缠在一块而分不清。华恋独自演了十二年对舞台的感情其实早就不仅仅只为了光，但是她实在陷的太深不敢承认，而只有认识到和光的竞争也一样是自己的爱意所以才能放手，我懂了，这波是共时性<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 141#       发表于 2021-12-24 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54024519&amp;ptid=2043629" target="_blank">Arccueid 发表于 2021-12-24 10:48</a>
+露女士和恋哥哥感觉是进步最明显的
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+差不多就是恋之魔球了
+
