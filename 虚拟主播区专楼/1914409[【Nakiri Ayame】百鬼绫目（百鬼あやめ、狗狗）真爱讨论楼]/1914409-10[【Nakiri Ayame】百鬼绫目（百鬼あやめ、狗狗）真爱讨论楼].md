@@ -2928,3 +2928,14 @@ https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/s
 
 明天会限脱头套 又想骗人加会员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13794#       发表于 2021-12-24 07:41
+
+那天的space我就记得狂聊吉鲁和吃的了
+还有就是观众问马车自己练了没有，绫总说完全没练
+不过A组这么菜，真的有机会让她混进12强
+
