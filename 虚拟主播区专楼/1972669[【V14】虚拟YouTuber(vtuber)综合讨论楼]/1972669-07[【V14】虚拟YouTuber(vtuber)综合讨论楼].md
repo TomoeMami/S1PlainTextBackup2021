@@ -6088,3 +6088,12 @@ mysta前世是日文名vtb的话也就是说他日语不好是RP的？这有什�
 
 哎，好担心他休息着就改变心意了，但无论如何心理健康都是第一位……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 9507#       发表于 2021-12-24 22:39
+
+世怜女第一个3D，现在会看这五人也不完全算是无效抽卡吧，数据上也就是正常水平（西园31w，珊瑚25w，翡翠18w，朝日南14w，琥珀10w，拿valz对比，甲斐田35w，弦月21w，ngo23w），有社交人有新一任nico女王，重要的是成员间关系还行，看着就普通挺舒适的。前几天那个圣诞联动看得我特别想吃中×东，但总觉得粉切黑重女甜妹×现充不听人话my pace妹会唤起我一些可怕回忆就不敢多想了...之前看珊瑚上兔组节目提了琥珀，乐呵呵去看结果在别的环节听到珊瑚说自己不敢确定别人是否喜欢自己的，那个不安味真的熟悉又可怕<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，喜欢惹
+

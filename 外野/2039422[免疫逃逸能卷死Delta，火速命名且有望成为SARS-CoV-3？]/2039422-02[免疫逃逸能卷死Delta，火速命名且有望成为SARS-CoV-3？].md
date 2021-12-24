@@ -7933,3 +7933,28 @@ mrna两针也跟没有差不多啊
 真就完全一个赌狗 ...</blockquote>
 他们就没想过，病毒扩散后，继续变异的可能性？谁规定o版就是最终版本的啊
 
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 2171#       发表于 2021-12-24 22:32
+
+<blockquote>kiragz 发表于 2021-12-24 16:05
+现在国外那些政府都在赌O都是轻症，且O把delta的份额快速吃掉，然后就全体免疫了
+
+真就完全一个赌狗 ...</blockquote>
+正面刚不赢，只能赌国运。
+
+*****
+
+####  riczxc  
+##### 2172#         楼主| 发表于 2021-12-24 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034740&amp;ptid=2039422" target="_blank">方舟售票员 发表于 2021-12-24 22:11</a>
+
+他们就没想过，病毒扩散后，继续变异的可能性？谁规定o版就是最终版本的啊 ...</blockquote>
+他们不想听，我猜技术官僚们也就轻轻提一嘴。乃至就压根不提这个可能性。之前病毒圈的白贝利Francois Balloux老师不就说过，delta已经达到peak fitness了吗？
+
+所以做决策的人没想过会有delta。有了delta也没想过有omicron。
+

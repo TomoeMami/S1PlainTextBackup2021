@@ -10543,3 +10543,22 @@ B9351EEC-3AC3-4C16-9EF8-3D257E7530E7.jpeg
 
 新mv 11月22日那天拍的，这么冷的天气还穿那么少<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 2396#       发表于 2021-12-24 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54034157&amp;ptid=2036367" target="_blank">型月重工 发表于 2021-12-24 21:19:55</a>
+鲤鱼现在不修音在拉拉系列全体中之人唱功水平能达到哪个等级？</blockquote>live都是没修音的吧，这么多场追下来，我觉得站稳企划内第二梯队没问题，无论唱功还是发挥稳定程度…都没啥好挑剔的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  A0171050  
+##### 2397#       发表于 2021-12-24 22:39
+
+感觉liyuu能再liella当中排第三吧，感觉pay和sayurin都会好一点
+
