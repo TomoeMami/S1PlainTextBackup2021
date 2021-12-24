@@ -2000,3 +2000,51 @@ hfiaG23HYUIHGsfyekua2uh.gif
 看来看去，好像 ...</blockquote>
 你并不是一个人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenzhi11  
+##### 153#       发表于 2021-12-24 16:57
+
+在TV的基础又一次升华了主题 恋不再被和光的约定束缚向着自己的下一个舞台去了。
+
+每个人都在TV的基础下迈出前往下一个目标。一个大主题下面套入各个cp之间问题的小主题非常简单明了 。
+
+主题其实非常朴实也很常见但要做的精彩又不乏味很少有作品能够做到。
+
+*****
+
+####  MASKA-1  
+##### 154#       发表于 2021-12-24 16:59
+
+所以为什么是女武神的骑行，有没有大佬能解谜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（真昼Revue曲的开头倒是确实有点像女武神的骑行）
+
+<img src="https://img.saraba1st.com/forum/202112/24/165830g0e06a539i9nc6ec.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (57.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 16:58 上传
+
+1.png
+(60.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-24 16:58 上传
+
+<img src="https://img.saraba1st.com/forum/202112/24/165821vkzegea4irm4ngig.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般通过宅宅  
+##### 155#       发表于 2021-12-24 17:03
+
+我也燃尽了...
+
+这把弄形式的水平和对称构图的美学配上比TV还要华丽的演出实在是太几把潮了，后面感觉像打了60min手冲一样<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+抹布洗...
+
