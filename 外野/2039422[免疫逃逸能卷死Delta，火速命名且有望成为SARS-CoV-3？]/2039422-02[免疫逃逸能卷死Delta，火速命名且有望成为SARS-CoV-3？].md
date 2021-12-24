@@ -7707,3 +7707,15 @@ but南非住院率回落的也就豪登这一个省，带英确诊数十天前�
 三针科兴的免疫保护跟没有差不多</blockquote>
 庄时利和这种人就会挑点这种不是充要条件的数据来阴阳怪气的黑下国内，顺便引导评论区狂吹mrna
 
+
+
+*****
+
+####  JJDUB3VQ  
+##### 2152#       发表于 2021-12-24 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54022082&amp;ptid=2039422" target="_blank">guang1g1 发表于 2021-12-24 07:26:04</a>
+三针也就是减少重症的可能，毕竟后遗症这两年一过统计下来还是不少的；倒是一直看好的吸入式疫苗到现在还是 ...</blockquote>上海前两天刚新闻播过，康希诺的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

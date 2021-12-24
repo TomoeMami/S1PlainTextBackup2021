@@ -1489,3 +1489,17 @@ ps5版至少loading问题可以解决了
 
 2021-12-24 10:55 上传
 
+
+
+*****
+
+####  a2042312  
+##### 147#       发表于 2021-12-24 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54024667&amp;ptid=2042784" target="_blank">宛若青空 发表于 2021-12-24 10:56</a>
+
+法老控今年的邮件贺年壁纸是…！ 
+
+（应该还有别的角色）</blockquote>
+这胜利者的表情<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

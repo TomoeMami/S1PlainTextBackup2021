@@ -13052,3 +13052,127 @@ LGA的剧情理解能力只能用低能来形容
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正剧情全跳得我根本不关心就是了
 
+
+
+*****
+
+####  angelooo  
+##### 85226#       发表于 2021-12-24 12:24
+
+<blockquote>v22325 发表于 2021-12-24 12:01
+ニキチッチ这剧情越来越可爱  当初图刚出来还觉得很烂俗</blockquote>
+毛妹最有那味的是初始卡面，其他几张确实不太行，包括满破上的lsp白龙（马），要不是剧情里这家伙还挺搞笑，感觉精细程度还不如某些怪的立绘OTZ
+
+*****
+
+####  仰望神的括约肌  
+##### 85227#       发表于 2021-12-24 12:25
+
+下午老苏根据解包消息是红蓝卡耐性各两次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85228#       发表于 2021-12-24 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026397&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-24 12:24</a>
+
+毛妹最有那味的是初始卡面，其他几张确实不太行，包括满破上的lsp白龙（马），要不是剧情里这家伙还挺搞 ...</blockquote>
+我感觉毛妹主要是表情差分做得好，指耳朵
+
+表情一多耳朵就一直在动
+
+莫名就可爱了起来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85229#       发表于 2021-12-24 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026419&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-12-24 12:25</a>
+
+下午老苏根据解包消息是红蓝卡耐性各两次</blockquote>
+BX：仿佛听到有人在叫我
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 85230#       发表于 2021-12-24 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026437&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 12:26</a>
+
+BX：仿佛听到有人在叫我</blockquote>
+前提是这个老苏是从者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  風卷豹  
+##### 85231#       发表于 2021-12-24 12:33
+
+真是红蓝耐性两次我要破防了，每次CBA UP都千石零宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85232#       发表于 2021-12-24 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026535&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-12-24 12:31</a>
+
+前提是这个老苏是从者</blockquote>
+艹，我忘了特攻的是剑阶从者了
+
+阿清三个特攻人、秩序、影也全部木大
+
+剩下的总不能用老崔
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85233#       发表于 2021-12-24 12:39
+
+翻页
+
+*****
+
+####  exiaexa  
+##### 85234#       发表于 2021-12-24 12:40
+
+去翻了下
+
+本体老苏
+
+男性、人型、恶、超巨大、巨人
+
+合体老苏
+
+男性、人型、龙、恶、超巨大、巨人
+
+*****
+
+####  zakki  
+##### 85235#       发表于 2021-12-24 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026641&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-24 12:38</a>
+艹，我忘了特攻的是剑阶从者了
+
+阿清三个特攻人、秩序、影也全部木大</blockquote>
+大王，妖崔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85236#       发表于 2021-12-24 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54026695&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 12:41</a>
+
+大王，妖崔</blockquote>
+老崔有宝具本啊，怎么会轮得到妖催
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+圣诞大王倒是可以算一下
+
