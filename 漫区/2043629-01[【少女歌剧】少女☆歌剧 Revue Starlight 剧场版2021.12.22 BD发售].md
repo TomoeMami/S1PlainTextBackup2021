@@ -2384,3 +2384,51 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nh_zzz  
+##### 185#       发表于 2021-12-25 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54035401&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-24 23:18</a>
+
+开始复习本篇，对照剧场版看了下粗略找到几个感觉有联系的细节。
+
+华恋家里的这个恐龙闹钟只有在本篇的结尾 ...</blockquote>
+恐龙闹钟电视第一话就有，罚你回去重看！！！！
+
+评论音轨还说了恐龙闹钟配音的事情
+
+*****
+
+####  nh_zzz  
+##### 186#       发表于 2021-12-25 00:55
+
+安利一个油管的佬，钢琴改编了不少revue曲。没有梯子的可以先听听微博搬运的wi(l)d-screen baroque
+[http://t.cn/A6xeGMFb?m=4718092872058712&amp;u=1937256723](http://t.cn/A6xeGMFb?m=4718092872058712&amp;u=1937256723)
+
+`)BZOQ3}(~952C}U(AQLI4D.png
+(197.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 00:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/005446i9gj9wovh449f142.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 187#         楼主| 发表于 2021-12-25 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54036270&amp;ptid=2043629" target="_blank">nh_zzz 发表于 2021-12-25 00:53</a>
+
+恐龙闹钟电视第一话就有，罚你回去重看！！！！
+
+评论音轨还说了恐龙闹钟配音的事情 ...</blockquote>
+啊看的web源发现拉进度条的时候刚好跳到后面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/d6fb62017f74969b3b4b96ff3dd783ba/1.JPG" id="aimg_uJ5tk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+被这里作画失误误导了，后来也没看过BD修没修，不过你一说闹钟配音我就有响过的印象了……
+
