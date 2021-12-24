@@ -14264,3 +14264,32 @@ BX不换人一回合感觉良好
 好像有点印象了....是不是说同样作为拐梅林强度被奥伯龙完爆之后一堆人就破防了....可我真不知道 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个ｄｅｂｕｆｆ才是主要破防点　你怎么肥似
 
+
+
+*****
+
+####  森兰丸  
+##### 85341#       发表于 2021-12-24 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033498&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 20:23</a>
+
+这个ｄｅｂｕｆｆ才是主要破防点　你怎么肥似</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道不是比梅林加的NP要多.....又有魔放又有宝威吗
+
+*****
+
+####  alucardcz  
+##### 85342#       发表于 2021-12-24 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033563&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-24 20:28</a>
+
+难道不是比梅林加的NP要多.....又有魔放又有宝威吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你在丢人！
+
+*****
+
+####  J-002  
+##### 85343#       发表于 2021-12-24 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">巨人王耐性把我所有准备好或能准备的打手全开除了，大卫还是lv1就算能喂到70也没时间打宝具本，靠外援打四次翻车两次，放弃放弃
+
