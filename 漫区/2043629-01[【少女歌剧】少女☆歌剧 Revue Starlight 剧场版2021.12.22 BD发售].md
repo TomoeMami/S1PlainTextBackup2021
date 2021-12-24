@@ -2348,3 +2348,12 @@ hfiaG23HYUIHGsfyekua2uh.gif
 说到几原，蕉纯revue里蕉哥哥这声熊嚎全明牌致敬了百合熊吧</blockquote>
 是老虎吧，老虎也嘎呜的（比如某老虎道场里的某位），后面纯那的歌词里也说是虎の仔
 
+
+
+*****
+
+####  Totokei  
+##### 181#       发表于 2021-12-25 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚看完，一路令人头皮发麻的演出里始终穿插着这群人到底嗑了多少的疑问
+

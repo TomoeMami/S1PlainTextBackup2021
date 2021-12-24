@@ -6124,3 +6124,21 @@ vox和mysta前世是好友又是哪来的料
 
 顺便5ch独角兽最恨的en男目前是mysta<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，单纯阿宅好像看不出来他不止是在卖腐
 
+
+
+*****
+
+####  fastary  
+##### 9511#       发表于 2021-12-24 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54035369&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-12-24 23:14</a>
+
+vox和mysta前世是好友又是哪来的料</blockquote>
+不是料，单纯两个人出道就推特互动显得像出道前就认识了很熟悉彼此一样，然后又在直播推上里营业口嗨过好几次饲主和狗的梗
+
+在我只看过日中主播的保守认知里一般来说前世就认识才会玩这么大还很配合，所以很想知道是顺势还是（
+
+顺便一提围观到的简中虹女粉好像纷纷表示磕拉了……我是想着欧美人口嗨过于开放才没上脑
+
+（但是domsub设定好香，完全拒绝不了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">）
+
