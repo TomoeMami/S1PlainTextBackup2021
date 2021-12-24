@@ -771,3 +771,19 @@ EP.7艾克暴打金克丝没被选上，有点可惜。离谱的是流媒体一�
 </blockquote>
 学院的不喜欢流行乐吧
 
+
+
+*****
+
+####  厄神之息  
+##### 3061#       发表于 2021-12-24 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020255&amp;ptid=2002246" target="_blank">阿纳海姆电子 发表于 2021-12-23 23:48</a>
+
+双城之战获9项安妮奖提名
+
+最佳大众动画：EP.6
+
+最佳视觉效果：EP.8</blockquote>
+说是送审是按首的，不知道送的哪一首，可能送了个enemy，然后跟得奖标准对不上就没选呗。
+

@@ -14174,3 +14174,93 @@ BX不换人一回合感觉良好
 是带了奥伯龙....可我记得是狐狸先扔完技能后梅林再扔技能的....奥伯龙都还没用技能....这也有影 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">仔细看看奥师傅被动　上次车ｎｇａ的时候我记得你也参与了　　怎么已经忘了
 
+
+
+*****
+
+####  qixinno2  
+##### 85332#       发表于 2021-12-24 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033221&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-24 20:02</a>
+
+是带了奥伯龙....可我记得是狐狸先扔完技能后梅林再扔技能的....奥伯龙都还没用技能....这也有影 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥师傅只要在场梅林技能就几率失败啊 这俩场上只能同时有一个
+
+*****
+
+####  森兰丸  
+##### 85333#       发表于 2021-12-24 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 20:04</a>
+
+仔细看看奥师傅被动　上次车ｎｇａ的时候我记得你也参与了　　怎么已经忘了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你记错了....我现在要车也就车剧情和角色.....数据和强度早已经没那个精力去研究了...都是XJBLD....打不过就抄作业
+
+*****
+
+####  森兰丸  
+##### 85334#       发表于 2021-12-24 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033297&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-24 20:08</a>
+
+奥师傅只要在场梅林技能就几率失败啊 这俩场上只能同时有一个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽之前也从没用过奥伯龙....这下知道了
+
+*****
+
+####  alucardcz  
+##### 85335#       发表于 2021-12-24 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033337&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-24 20:11</a>
+
+你记错了....我现在要车也就车剧情和角色.....数据和强度早已经没那个精力去研究了...都是XJBLD.. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">车的就是角色啊　梅林厨破防记啊　　难道你那时候连发生了都没搞清楚（
+
+*****
+
+####  angelooo  
+##### 85336#       发表于 2021-12-24 20:19
+
+<blockquote>katun 发表于 2021-12-24 20:01
+草，狐狸咋还切人鸡儿呢</blockquote>
+我前面就说了这家伙居然不是男人，为了不被二姐按在地上打切了吉尔还免疫弱体，不要脸的东西
+
+*****
+
+####  森兰丸  
+##### 85337#       发表于 2021-12-24 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033391&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-24 20:16</a>
+
+车的就是角色啊　梅林厨破防记啊　　难道你那时候连发生了都没搞清楚（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像有点印象了....是不是说同样作为拐梅林强度被奥伯龙完爆之后一堆人就破防了....可我真不知道奥伯龙还有这么个特性
+
+*****
+
+####  zakki  
+##### 85338#       发表于 2021-12-24 20:21
+
+这最终战什么鬼，怎么这么难，群体攻击，弱体无效，还上三个回合强化无效，翻了好几次车<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85339#       发表于 2021-12-24 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033478&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-24 20:21</a>
+
+这最终战什么鬼，怎么这么难，群体攻击，弱体无效，还上三个回合强化无效，翻了好几次车 ...</blockquote>
+弓呆第１回合加满ｂｕｆｆ　然后３连秒了　毫无难度啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+强化无效也可以加ｎｐ
+
+*****
+
+####  alucardcz  
+##### 85340#       发表于 2021-12-24 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54033472&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-24 20:21</a>
+
+好像有点印象了....是不是说同样作为拐梅林强度被奥伯龙完爆之后一堆人就破防了....可我真不知道 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个ｄｅｂｕｆｆ才是主要破防点　你怎么肥似
+

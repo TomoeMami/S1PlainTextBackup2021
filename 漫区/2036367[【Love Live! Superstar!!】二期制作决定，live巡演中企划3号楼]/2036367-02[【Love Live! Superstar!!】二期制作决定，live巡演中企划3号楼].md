@@ -10402,3 +10402,15 @@ D7FE2759-AC86-4C4E-B268-8A1F3E985B50.jpeg
 更之前就有以妈妈自居了，不过这次是小偶像之间这样显得更有效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 话说在本人评论区下面吵这个真的是<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 2384#       发表于 2021-12-24 20:14
+
+BV1GL4y1n7tR
+<img src="https://p.sda1.dev/3/eda7719906a9fe6e52a75a4603997e48/IMG_CMP_107707148.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/3/561892f9c929a30c7853ec6c442fe209/-22c0d7fb4aa13e9e.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

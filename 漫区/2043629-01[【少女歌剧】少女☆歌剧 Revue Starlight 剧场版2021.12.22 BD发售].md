@@ -2194,3 +2194,13 @@ hfiaG23HYUIHGsfyekua2uh.gif
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  rainknine  
+##### 168#       发表于 2021-12-24 20:09
+
+毕竟在这个时代，观众想看的不是机械天鹅<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+古川哥哥也一直都很可爱（
+
