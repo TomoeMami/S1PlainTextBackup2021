@@ -629,3 +629,55 @@ github被封过一段时间，现在也是这个待遇，github被封据说惊�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038536&amp;ptid=2043948" target="_blank"> 阿尔及利亚 发表于 2021-12-25 11:31</a> 卧槽，steam吧这个狗洞钻的老胡都自愧不如 </blockquote>
 给补个链接，学习抱团取暖先进技巧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  木架穷奇  
+##### 65#       发表于 2021-12-25 11:46
+
+IT狗检测确实是墙了，但是steam客户端倒是能上去，不懂是什么原理，日拱一卒是吧
+
+*****
+
+####  朔方原的星  
+##### 66#       发表于 2021-12-25 11:50
+
+ 本帖最后由 朔方原的星 于 2021-12-25 11:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038604&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 11:40</a>
+
+拿楼上那个恶臭婆罗门的话说，只怕这贴里相当多人是真不玩游戏。。。。 ...</blockquote>
+全世界都几把不在乎我也懒得浪费时间了，爱咋样咋样吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">聊了一圈真的没一个试试的，我服了，那你们在他妈聊啥啊
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 久保由利香| + 1|太老实了|
+
+查看全部评分
+
+*****
+
+####  aruruu  
+##### 67#       发表于 2021-12-25 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038226&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 10:50</a>
+
+得了吧，你潭天天说别的地方都不玩游戏，游戏媒体不玩游戏，贴吧不玩游戏，nga不玩游戏，搞得好像玩游戏 ...</blockquote>
+喷了，谁说nga、媒体的你找谁去，扣那么多帽子还要画靶子打，整天你谭你谭挂在嘴上，到底谁恶臭啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aruruu  
+##### 68#       发表于 2021-12-25 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038604&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 11:40</a>
+
+拿楼上那个恶臭婆罗门的话说，只怕这贴里相当多人是真不玩游戏。。。。 ...</blockquote>
+没人测试=真不玩游戏，偷换概念还是你牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
