@@ -14819,3 +14819,17 @@ HWB-M8 迎撃戦 AP: 40 推荐等级: 90+ Class：Ruler X2場
 
 从没人关系真妲己呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 85391#       发表于 2021-12-25 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040529&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-25 15:19</a>
+
+不过回忆里妲己说了自己是有苏之女
+
+狐狸妲己是用真妲己的脸吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉各个狐狸关系越来越乱 搞不好是那种有记忆但就是没有觉得是自己的状态
+

@@ -2188,3 +2188,63 @@ xxxx xxx
 为啥狗洞大师是偏兔啊，偏兔的不应该乖乖的不钻狗洞吗 ...</blockquote>
 狗洞大师觉得狗洞是兔神睿智的恩赐，是筛选群众智商的荣耀徽章，具有钻狗洞能力的人是获选的成年人，拥有明辨是非的分辨能力，和需要被灌输的未成年愚民有着格段的差别。
 
+
+
+*****
+
+####  伊克路西安  
+##### 214#       发表于 2021-12-25 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040707&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-25 15:44</a>
+
+狗洞大师觉得狗洞是兔神睿智的恩赐，是筛选群众智商的荣耀徽章，具有钻狗洞能力的人是获选的成年人，拥有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这可还行
+
+*****
+
+####  林然若水  
+##### 215#       发表于 2021-12-25 15:48
+
+把商店墙了的凶手找到了@epic游戏商城，建议击毙@平安epic
+
+*****
+
+####  zxtree  
+##### 216#       发表于 2021-12-25 15:50
+
+觉醒人vs进化人
+
+*****
+
+####  白鸟雪音  
+##### 217#       发表于 2021-12-25 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040707&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-25 15:44</a>
+
+狗洞大师觉得狗洞是兔神睿智的恩赐，是筛选群众智商的荣耀徽章，具有钻狗洞能力的人是获选的成年人，拥有 ...</blockquote>
+狗洞大师：因为我素质高，所以我可以素质低<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vaststars  
+##### 218#       发表于 2021-12-25 16:02
+
+大概找了几个地方总结下
+
+肯定是什么东西发动了，这次的待遇和以前的完全不一样。<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+现在在检查ssl套接字，之后干扰ip。商店页面会频繁出现105 118 过一会又正常。
+
+没法确定这次的待遇是长期的还是就这么几天。
+
+暂时应对方法无非是梯子代理加速器。
+
+还有个方法用steamcommunity_302 有设置可以把商店也加入反代，暂时可以正常使用。
+
+*****
+
+####  Dublin  
+##### 219#       发表于 2021-12-25 16:03
+
+18年就被墙了，你们怎么反应这么慢
+

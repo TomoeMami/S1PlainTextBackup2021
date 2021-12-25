@@ -8301,3 +8301,12 @@ space不知道为什么不如tc给劲
 
 来点怪东西<img src="https://p.sda1.dev/3/9f312e71eacd8e0e71bf0e749d0136a4/IMG_CMP_164212996.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 6965#       发表于 2021-12-25 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肤色不对看起来也太违和了吧
+
