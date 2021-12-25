@@ -6580,3 +6580,19 @@ syl
 
 真是整得一手好活
 
+
+
+*****
+
+####  winda  
+##### 9544#       发表于 2021-12-25 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">雷哥也就是口嗨，可惜惹了不该惹的自家虹粉才死了，vox这个自家支持者不反水那他想抗就能抗下去
+
+*****
+
+####  zwxclear  
+##### 9545#       发表于 2021-12-25 17:38
+
+大和德比这个要超出认知了
+

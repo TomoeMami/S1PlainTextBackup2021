@@ -2760,3 +2760,13 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 
 这个剧场版对于这个企划应该是一个完美的谢幕了，对我个人而言唯一遗憾就是光视角的成长剧情太少了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不过那样拍就成了利兹与青鸟了吧
 
+
+
+*****
+
+####  扶扶老奶奶  
+##### 210#       发表于 2021-12-25 17:42
+
+在贴吧看见有人说剧场版看不懂的去看5ds最后两集就懂了，我就去重温了一下，看到这句台词蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/24058f438e522d8eac4c57157c43570c/IMG_CMP_257382148.jpeg" referrerpolicy="no-referrer">
+

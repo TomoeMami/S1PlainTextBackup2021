@@ -10738,3 +10738,70 @@ Lga看到有人说可可live场贩周边没多受欢迎，好奇一下卖的怎�
 
 话说鲤鱼和丰崎爱生见过么……
 
+
+
+*****
+
+####  优妮可  
+##### 2413#       发表于 2021-12-25 17:26
+
+五人版裂啦歌
+
+*****
+
+####  仟音一心  
+##### 2414#       发表于 2021-12-25 17:29
+
+ 本帖最后由 仟音一心 于 2021-12-25 17:35 编辑 
+
+1.Primary-Liella！全员
+
+2.Ringing-nako liyuu
+
+3.Dears-nagi pay 
+
+F2AA1A43-038B-42CB-8A0C-FC4E0FF1DE01.png
+(91.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/172919txcs6h640ysh0hh2.png" referrerpolicy="no-referrer">
+
+2A666A2E-DDBE-48D2-B3A5-6DD5FC9AED80.png
+(117.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/173204hq0iy0tuq6urx01x.png" referrerpolicy="no-referrer">
+
+2091AA46-093B-4E00-B539-0D9DD3CA2DCF.png
+(49.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/173201wgsfgdso1bob8br6.png" referrerpolicy="no-referrer">
+
+D6BE3D39-FA6D-4F47-9E09-7DDD6B02831D.png
+(118.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/173204ozd4mqndqqfnyeme.png" referrerpolicy="no-referrer">
+
+A009CD6F-1F6A-4021-A69A-D99BF879902E.png
+(87.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/173205fvv63nhn5342ogw3.png" referrerpolicy="no-referrer">
+

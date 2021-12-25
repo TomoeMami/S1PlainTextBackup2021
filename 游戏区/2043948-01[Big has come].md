@@ -2632,3 +2632,76 @@ a shitty gxxxxxxx<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Unlight  
+##### 246#       发表于 2021-12-25 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040292&amp;ptid=2043948" target="_blank">windaria 发表于 2021-12-25 14:48</a>
+为什么回不去？因为铁拳要严管游戏连盗版渠道也封？</blockquote>
+参考美剧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rick343  
+##### 247#       发表于 2021-12-25 17:30
+
+<blockquote>yuzhaoping 发表于 2021-12-25 16:45
+插一句题外话，最近几个booru站点也没法直连了，包括但不限于：
+
+safebooru.org
+</blockquote>
+igg还有一个种子网站也是这样，以后上外国网站会越来越费劲吧（利好代理商
+
+*****
+
+####  红都剧院24排4号  
+##### 248#       发表于 2021-12-25 17:31
+
+黑神话国内大概率拿不到版号，steam除了狗东大师一般国人又上不去，是不是提前凉了？
+
+*****
+
+####  hypnossz86  
+##### 249#       发表于 2021-12-25 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么狗洞大师，照这趋势早晚狗洞都给你堵上
+
+*****
+
+####  ESAKA!!!!  
+##### 250#       发表于 2021-12-25 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038067&amp;ptid=2043948" target="_blank">路特 发表于 2021-12-25 10:32</a>
+不管怎么说 这个时间点搞steam肯定是步臭棋，我兔还是内鬼很多啊…</blockquote>
+<img src="https://p.sda1.dev/3/c724b714ed2b6f3fa2b5c78035b2e32d/IMG_CMP_144821736.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  千古奇冤施密特  
+##### 251#       发表于 2021-12-25 17:34
+
+<blockquote>574802531 发表于 2021-12-25 17:08
+取施密特的diss人家，要脸吗？
+
+—— 来自 HUAWEI CLT-AL00, Android 9上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+施密特咋了？千古奇冤施密特指的是施密特下课后国安还不如施密特在的时候呢，你是怎么理解的？
+
+*****
+
+####  病娇图兰朵  
+##### 252#       发表于 2021-12-25 17:40
+
+刚刚突然商店突然118了，刷了几次都118，但是从库里随便找个游戏访问商店页面还是能进去，顺着用搜索栏搜索其他游戏还是能用，什么鬼原理
+
+*****
+
+####  天使日又日  
+##### 253#       发表于 2021-12-25 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想买点冬促游戏都刷不开，105和118，好气啊
+

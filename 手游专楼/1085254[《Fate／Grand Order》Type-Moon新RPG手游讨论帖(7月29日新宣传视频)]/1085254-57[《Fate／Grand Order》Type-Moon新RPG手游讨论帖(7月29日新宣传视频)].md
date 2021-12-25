@@ -14871,3 +14871,54 @@ FHanPMuaAAAlqRM.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠 下面已经快没了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85395#       发表于 2021-12-25 17:20
+
+还没开刷已经死掉三组了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  angelooo  
+##### 85396#       发表于 2021-12-25 17:21
+
+这尼玛的才多久？？？
+
+*****
+
+####  الطائر  
+##### 85397#       发表于 2021-12-25 17:25
+
+太写实了，敌人就真的是一团黑影。这次大概就是图个热闹吧，根本没时间搞清楚有什么掉落。
+
+*****
+
+####  v22325  
+##### 85398#       发表于 2021-12-25 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041534&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-12-25 17:25</a>
+
+太写实了，敌人就真的是一团黑影。这次大概就是图个热闹吧，根本没时间搞清楚有什么掉落。 ...</blockquote>
+随便刷 刷绊好啊！
+
+兽人有子弹
+
+*****
+
+####  v22325  
+##### 85399#       发表于 2021-12-25 17:29
+
+三头狗有煌星和锁链
+
+*****
+
+####  katun  
+##### 85400#       发表于 2021-12-25 17:37
+
+服务器是不是快隔屁了
+
