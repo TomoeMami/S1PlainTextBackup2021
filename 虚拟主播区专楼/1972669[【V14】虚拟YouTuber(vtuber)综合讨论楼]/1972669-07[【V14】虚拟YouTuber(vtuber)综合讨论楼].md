@@ -6607,3 +6607,12 @@ syl
 
 这个聊天记录只能说患者不要随便期待找谁都能共情你，别人也没有共情你的义务啊……他的意见对青少年那个知识水平来说算是很普通的，没看出什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 9547#       发表于 2021-12-25 18:16
+
+クリスマスにこんな発表をしてしまいごめんなさい。 ショート動画を投稿しました。  【重大発表】ぐんかんですが、私達、実は……【神田笑一/にじさんじ郡道美玲】#shorts  youtu.be/KjiFsKyt1iI @YouTubeより   最近很开心的样子嘛！
+

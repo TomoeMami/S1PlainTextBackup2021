@@ -2790,3 +2790,188 @@ github在校园网不用任何工具的情况下，差不多1/10的概率能连�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">愿望单原来是集成在社区里的
 不剥离出来改造几年就上不去了
 
+
+
+*****
+
+####  afer  
+##### 263#       发表于 2021-12-25 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人之常情的抱怨或者技术文章能解决啥问题，完全是看两批臭傻逼谜语人在这自作聪明最后一起进小黑屋。
+
+*****
+
+####  厨具战士  
+##### 264#       发表于 2021-12-25 18:06
+
+这个觉醒人也有子宫驾驶舱吗？
+
+*****
+
+####  Rary  
+##### 265#       发表于 2021-12-25 18:07
+
+ 本帖最后由 Rary 于 2021-12-25 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042010&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:06</a>
+
+这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
+因为他们都没办法解决问题啊，所以才焦虑，才互怼。
+
+*****
+
+####  hypnossz86  
+##### 266#       发表于 2021-12-25 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042010&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:06</a>
+这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">面对铁拳能有什么措施和干货啊
+现在就这么两种情况
+1这几天只是技术性调整，那就等几天能恢复正常一切照旧
+2真的墙了，那只能八仙过海各显神通以后怎么上谷歌就怎么用steam了
+
+*****
+
+####  afer  
+##### 267#       发表于 2021-12-25 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041996&amp;ptid=2043948" target="_blank">hypnossz86 发表于 2021-12-25 18:04</a>
+
+愿望单原来是集成在社区里的
+
+不剥离出来改版早几年你就上不去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个我知道啊，改版之后我还高兴过一段事情，但这个和改版之后不好用好像没有任何关系。
+
+我现在就怕STEAM往扁平化还有EPIC那种傻逼界面靠拢。
+
+*****
+
+####  葛葉景明  
+##### 268#       发表于 2021-12-25 18:08
+
+ 本帖最后由 葛葉景明 于 2021-12-25 18:09 编辑 
+
+现在能上了
+
+*****
+
+####  920619lqy  
+##### 269#       发表于 2021-12-25 18:09
+
+ 本帖最后由 920619lqy 于 2021-12-25 04:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042010&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 04:06</a>
+
+这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
+那我只能建议大家能润的润，润不了躺平
+
+既然没有人对大象有想法，那可不是只能润了？
+
+*****
+
+####  afer  
+##### 270#       发表于 2021-12-25 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042034&amp;ptid=2043948" target="_blank">hypnossz86 发表于 2021-12-25 18:07</a>
+
+面对铁拳能有什么措施和干货啊
+
+现在就这么两种情况
+
+1这几天只是技术性调整，那就等几天能恢复正常 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">分析dns啥的技术流的算，狗洞大师提供钻洞手法也算，互怼发谜语算个什么几把，反正我看这互联网风气以后有些人在线下怕是中国话都不能好好说。
+
+
+
+*****
+
+####  afer  
+##### 271#       发表于 2021-12-25 18:12
+
+ 本帖最后由 afer 于 2021-12-25 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042047&amp;ptid=2043948" target="_blank">920619lqy 发表于 2021-12-25 18:09</a>
+
+那我只能建议大家能润的润，润不了躺平
+
+既然没有人对大象有想法，那可不是只能润了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是润是躺都可以，我就看见两群蠢货在这抖聪明了，嘴上看不起外野，这他妈和外野有啥区别，都开始发那堆键政小鬼的垃圾图了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 隆江猪脚饭| + 1||
+
+查看全部评分
+
+*****
+
+####  九十九忍  
+##### 272#       发表于 2021-12-25 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新阵营建设性讨饭佬
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 刘思慕| + 1|思路广|
+| 乱吃食cat| + 2|欢乐多|
+
+查看全部评分
+
+*****
+
+####  任天索尼子  
+##### 273#       发表于 2021-12-25 18:13
+
+又能上了，间歇性抽风？
+
+*****
+
+####  蕾咪莉亚  
+##### 274#       发表于 2021-12-25 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042010&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:06</a>
+
+这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
+你还想干啥活？自己挂个梯子，只能说德芙般顺滑
+
+少则几天，多则半月一月就知道是技术性调整又或是今日下一城还是彻底扬了，到时候自然有人出来分享技术
+
+真到那一步，只能说好日子还在后头呢，毕竟网文影视动画手游已经阉了几年，不会真还有人还没习惯吧，该化身乐子人了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  葛葉景明  
+##### 275#       发表于 2021-12-25 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">steam老用户表示就算早晚要封 也说了快十年了 间歇性上不去也差不多一年两三次吧
+
+*****
+
+####  afer  
+##### 276#       发表于 2021-12-25 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042120&amp;ptid=2043948" target="_blank">蕾咪莉亚 发表于 2021-12-25 18:15</a>
+
+你还想干啥活？自己挂个梯子，只能说德芙般顺滑
+
+少则几天，多则半月一月就知道是技术性调整又或是今日下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分析分析情况和对策呗，说到底还是这帖子里不管哪个派别的都是干货少嘴还欠那种，所以兴他们嘴欠我还不能嘴欠嘴欠他们。
+
+*****
+
+####  gangzhu2  
+##### 277#       发表于 2021-12-25 18:21
+
+能上早上甚至连好友都能登，现在下午6点21分也能刷出商店。
+
+喷了怎么感觉刷新商店速度还快了。。。
+

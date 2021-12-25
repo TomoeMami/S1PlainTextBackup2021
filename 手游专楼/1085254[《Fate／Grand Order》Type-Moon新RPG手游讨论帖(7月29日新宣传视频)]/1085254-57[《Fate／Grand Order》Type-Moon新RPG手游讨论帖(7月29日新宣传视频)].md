@@ -14985,3 +14985,79 @@ dw，我的fw服务器
 
 啊不对，dw好像已经死了啊，那没事了
 
+
+
+*****
+
+####  密特里奈斯  
+##### 85409#       发表于 2021-12-25 18:05
+
+尺柱子刷的很爽，土方 羁绊狂涨
+
+*****
+
+####  v22325  
+##### 85410#       发表于 2021-12-25 18:06
+
+ヤガ：火薬・角
+
+カリ：矢尻・脂
+
+ケルベロス：鎖・恒星
+
+虎戦車：髄液・炉心
+
+戦闘獣：貝殻・毛
+
+
+
+*****
+
+####  rooarr  
+##### 85411#       发表于 2021-12-25 18:07
+
+就这点数量还这么卡，贝壳根本不够抢啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85412#       发表于 2021-12-25 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">特总刷剑狂太舒适了。。然而萌新选择清完体力就溜了
+
+*****
+
+####  johnkamsar  
+##### 85413#       发表于 2021-12-25 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">艹今天又没刷到！可恶啊！！！！
+
+*****
+
+####  الطائر  
+##### 85414#       发表于 2021-12-25 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042017&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-25 18:06</a>
+
+ヤガ：火薬・角
+
+カリ：矢尻・脂
+
+ケルベロス：鎖・恒星</blockquote>
+感谢
+
+剩下那个LWB-M8：毛和核桃
+
+*****
+
+####  poor  
+##### 85415#       发表于 2021-12-25 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042233&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-12-25 18:24</a>
+感谢
+
+剩下那个LWB-M8：毛和核桃</blockquote>
+什么db跟配置？
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
