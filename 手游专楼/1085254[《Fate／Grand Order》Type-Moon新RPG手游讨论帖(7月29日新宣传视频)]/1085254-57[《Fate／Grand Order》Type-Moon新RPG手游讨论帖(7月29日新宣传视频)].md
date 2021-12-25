@@ -14542,3 +14542,21 @@ S1大姨妈了好几天都忘了已经修好了。
 
 说真的，就按手游组现在这产能，你说他们做了这么一张地图、新杂兵和配套的BGM，然后就只给一个一个多礼拜只有主线和raid没有free本的小型活动用有可能吗？反正我觉得是不怎么可能,。参考2.6，现在这活动大概率是序章，2.6.5的正片明年见，全部打完这张地图和2.5.5一样追加free本进常驻，明年上半年就这样糊弄过去了，简直完美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿提拉  
+##### 85367#       发表于 2021-12-25 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">艹，5个，还是分批来的
+
+*****
+
+####  KOBI  
+##### 85368#       发表于 2021-12-25 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哈哈哈光今天这序章就够NGA继续爆炸了吧
+
+不过太公望这是颜狗吗233
+
