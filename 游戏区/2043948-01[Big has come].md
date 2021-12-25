@@ -2248,3 +2248,74 @@ xxxx xxx
 
 18年就被墙了，你们怎么反应这么慢
 
+
+
+*****
+
+####  nessaj  
+##### 220#       发表于 2021-12-25 16:05
+
+我发现了，狗洞大师们都偏兔，不会钻洞的一个比一个恨国想润
+
+方bx是头号1450实锤了，**墙把多年的内外宣工作成果毁得一干二净
+
+CIA真该给方bx颁一个国会金质勋章
+
+*****
+
+####  暗影之诗  
+##### 221#       发表于 2021-12-25 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040845&amp;ptid=2043948" target="_blank">vaststars 发表于 2021-12-25 16:02</a>
+
+大概找了几个地方总结下
+
+肯定是什么东西发动了，这次的待遇和以前的完全不一样。</blockquote>
+虽然两者都是间歇性被干扰，但我自己测出来和github还不一样，github是直接ping不通，这玩意是443端口有概率不通，只能说确实是没见过的阵势
+
+*****
+
+####  vaststars  
+##### 222#       发表于 2021-12-25 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040872&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-25 16:06</a>
+
+虽然两者都是间歇性被干扰，但我自己测出来和github还不一样，github是直接ping不通，这玩意是443端口有 ...</blockquote>
+同意
+
+可能是老爷手里的新玩具<img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">这次可以确定是被针对了。
+
+*****
+
+####  暗影之诗  
+##### 223#       发表于 2021-12-25 16:16
+
+<blockquote>vaststars 发表于 2021-12-25 16:13
+同意
+
+可能是老爷手里的新玩具这次可以确定是被针对了。</blockquote>
+17年的时候不定期的101 103 105大餐似乎是基于dns污染的，持续了三个月。当时改host就行，现在如果长时间如此只能反代了
+
+*****
+
+####  RJG丶one  
+##### 224#       发表于 2021-12-25 16:21
+
+我解析不到香港或者日本的akamai节点了，全部往美国本土灌，被截断很正常。
+
+怎么指定解析到香港啊？我这开始能解析到香港节点，现在根本解析不到
+
+*****
+
+####  vaststars  
+##### 225#       发表于 2021-12-25 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040944&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-25 16:16</a>
+
+17年的时候不定期的101 103 105大餐似乎是基于dns污染的，持续了三个月。当时改host就行，现在如果长时间 ...</blockquote>
+怀疑不是一个部门
+
+网络管理一直是九龙治水。
+
+这次的部门有能力管出口，可能权限更高<img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">
+

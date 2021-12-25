@@ -619,3 +619,14 @@ BD 明年3/29发售
 
 <img src="http://wx4.sinaimg.cn/mw2000/007Pbfs9ly8gxopi8bi3kj30u02exkfr.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梦诗歌雪  
+##### 62#       发表于 2021-12-25 16:20
+
+<blockquote>王留美 发表于 2021-12-23 23:21
+理查德是新大陆总督……所以斧头男是印第安人还是黑奴？</blockquote>
+小辫子，康师傅同款飞斧，肤色也没有那么深，应该是印第安人
+

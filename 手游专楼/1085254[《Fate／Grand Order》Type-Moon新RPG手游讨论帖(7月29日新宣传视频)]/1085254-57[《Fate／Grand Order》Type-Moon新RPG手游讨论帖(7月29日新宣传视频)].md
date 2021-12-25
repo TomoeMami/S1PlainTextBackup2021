@@ -14833,3 +14833,14 @@ HWB-M8 迎撃戦 AP: 40 推荐等级: 90+ Class：Ruler X2場
 狐狸妲己是用真妲己的脸吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉各个狐狸关系越来越乱 搞不好是那种有记忆但就是没有觉得是自己的状态
 
+
+
+*****
+
+####  poor  
+##### 85392#       发表于 2021-12-25 16:24
+
+都是你潭姨妈的错，我都无聊到去LGA跟人对线了，然后感受到了沟通的困难。这么一想有这种理解也不奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
