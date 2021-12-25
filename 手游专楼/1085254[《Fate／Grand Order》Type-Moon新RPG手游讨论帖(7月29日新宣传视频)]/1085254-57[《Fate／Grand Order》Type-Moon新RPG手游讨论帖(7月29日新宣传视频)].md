@@ -14796,3 +14796,26 @@ HWB-M8 迎撃戦 AP: 40 推荐等级: 90+ Class：Ruler X2場
 
 褒姒跟华阳天都认下来了，但妲己是死活不认。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85389#       发表于 2021-12-25 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040144&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-25 14:34</a>
+
+听说今天剧情隔壁有破防了? 这么欢乐的吗</blockquote>
+姜子牙是颜控<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85390#       发表于 2021-12-25 15:19
+
+不过回忆里妲己说了自己是有苏之女
+
+狐狸妲己是用真妲己的脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从没人关系真妲己呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

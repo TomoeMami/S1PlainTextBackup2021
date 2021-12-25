@@ -6490,3 +6490,56 @@ syl
 但明显有努力地给建议啊，总不能因为效果不佳就cancel别人吧，还不如建议边缘人不要上网 ...</blockquote>
 问题是他不立体贴人设也没什么，反正想成名的多多少少有点，立了人设还爆这种就。EN这波要是顶下来了，可以鼓舞口了回来吗（唐突
 
+
+
+*****
+
+####  本间日阳  
+##### 9536#       发表于 2021-12-25 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 9537#       发表于 2021-12-25 15:04
+
+与其说喜欢vox不如说只是馋他的低音炮和饭撒(还有卖腐)，没到喜欢加推的地步<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+(不过确实单论他杂谈展示出来的性格还挺是那么回事的)
+
+整理的开头也写了只看了八成内容(字太多了链接也多，还是通宵状态拿翻译器辅助看的)，截图就只看到了他说告白还说没喜欢过前女友那张<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+基本上不zqsg的话我道德要求还挺低的，整理和偏维护vade的立场一个是因为确实这种程度对我来说还算能接受，一个是en男难得初始势头还挺好不太希望直接炸了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+另外上面这些截图看起来就像是懂哥试图来点饭撒，给了建议又没耐心先从开导对方变得自信做起，“你别自怨自艾了，要交朋友就要blabla”“我知道所以我才被大家讨厌”“所以说你就blabla这么做啊”“哎都是我太垃圾了”“嘿你这人怎么说不听呢”最后急了x
+
+只能说倒是非常符合未成年人的心态(非褒义)
+
+*****
+
+####  ヒトニナル  
+##### 9538#       发表于 2021-12-25 15:10
+
+草，黛gachi就是喜欢低音炮吧，性癖放出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 9539#       发表于 2021-12-25 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040340&amp;ptid=1972669" target="_blank">adamtheo 发表于 2021-12-25 14:55</a>
+问题是他不立体贴人设也没什么，反正想成名的多多少少有点，立了人设还爆这种就。EN这波要是顶下来了，可 ...</blockquote>
+上面po出来这段对现人设也还好吧，一直在给建议，攻击性比较强的话也是在责怪对方不听他人言，他不就是这种情话多的强势爹型人设（换个人来，比如宜家，可以给出更好的建议也说不定这点暂且不提）。
+
+省一楼，口了回归的障碍一直是她自己，她要回来就两条路：解释，违反了以前发的誓/不解释直接播，心里不舒服。这些点跟观众和周边liver都没什么关系，是她自己的决定，也就是她之前失踪所谓的“寻找正义”。
+
+*****
+
+####  毛头小希  
+##### 9540#       发表于 2021-12-25 15:19
+
+没人不让口了回来啊，enkr真要冻结她也不会让她出现在各种音声里了，同事们提起来态度也是很善意的
+
+唯一的障碍就是她自己了
+
