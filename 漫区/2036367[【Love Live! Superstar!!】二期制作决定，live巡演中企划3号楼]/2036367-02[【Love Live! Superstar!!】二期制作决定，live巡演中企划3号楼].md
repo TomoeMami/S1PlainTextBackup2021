@@ -11081,3 +11081,112 @@ FDAD1F3E-8E1E-4667-8692-1E2236B6F6F1.jpeg
 
 唐可可到底火不火啊，怎么看到有人说他人气也一般呢
 
+
+
+*****
+
+####  我到河北省来  
+##### 2437#       发表于 2021-12-25 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043084&amp;ptid=2036367" target="_blank">zylwz 发表于 2021-12-25 19:46</a>
+
+这种就是个人喜好的问题了
+
+单论稀有度的话
+
+小百合这种清澈又响亮的声音在普通人里很少能见到的 ...</blockquote>
+我也觉得小百合音色好，动画配音还有CD录歌的场合非常突出，星团初播时N站弹幕刷kanon音色像种田梨沙的挺多，但是小百合live现场的音色优势不是很明显，不知道是因为纯素人无演艺经历唱歌发声方式和技巧有问题，再加上歌太多高音也多又要唱跳太辛苦了体力消耗巨大气息跟不上，声带也有所损耗，在live后期阶段更是形成恶性循环。小百合单凭音色好好磨炼一下演技未来走声优道路也不是不行，虽然我不知道业界入行门槛如何ll出身的偶像声优是不是个debuff啥的
+
+*****
+
+####  黑雪姫  
+##### 2438#       发表于 2021-12-25 21:51
+
+ 本帖最后由 黑雪姫 于 2021-12-25 21:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044771&amp;ptid=2036367" target="_blank">努斯万克 发表于 2021-12-25 21:35</a>
+
+唐可可到底火不火啊，怎么看到有人说他人气也一般呢</blockquote>
+看地方
+
+5CH拉板可可人气一般，堇在拉板是人气最高。 
+
+场贩是香音最高， 现场LIVE的场贩都是香音最先卖光的。
+
+可可非场贩的周边是卖的最快也是最贵的，线上线下都是。
+
+以我观察Liella目前人气情况是 香音和可可在第一档，堇在第二档，千在第三档 &gt;&gt;&gt;&gt;&gt;&gt; 恋恋 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+如果单纯说日本人气可可有可能打不过香音的，但可可是中国人，那就不好说了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 努斯万克| + 1|了解|
+
+查看全部评分
+
+*****
+
+####  仟音一心  
+##### 2439#       发表于 2021-12-25 21:59
+
+今日份的可香堇
+
+<img src="https://img.saraba1st.com/forum/202112/25/215951jjiamvsas9s15m7a.png" referrerpolicy="no-referrer">
+
+<strong>79C00B50-944C-428C-80F8-604165DF3472.png</strong> (205.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 21:59 上传
+
+0EA58C76-8D66-4926-AEE1-A371EFA716B7.jpeg
+(71.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/215951v5i62j5ik25itok5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+50802094-BE4F-45B4-898B-51C5A96089A6.jpeg
+(177.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/215951w2qff22hq4ytltl4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BDD5F753-1780-45C0-8D31-F94122E91A76.jpeg
+(106.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/215951czja5dyzeawa73de.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A6332D60-085E-46BD-9195-902EE778AC62.jpeg
+(155.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/215951y78ktzedhp2y8n73.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A3897185-9894-4337-89A2-D66BD7A7C10A.jpeg
+(110.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/215953ug49mpxmfp9arq6u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

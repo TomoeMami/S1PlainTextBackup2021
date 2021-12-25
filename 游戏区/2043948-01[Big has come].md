@@ -4363,3 +4363,25 @@ wall其实也没什么高超的技术，都是些比较基础的东西，但它�
 
 只能说👊砸下来也是意料之中，那能咋办？能润的只是少数，剩下的不还得钻狗洞？往好的想，至少没封最便捷的两个支付方式，社区都封好几年了，还没习惯用工具玩steam？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Tring  
+##### 413#       发表于 2021-12-25 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044784&amp;ptid=2043948" target="_blank">RainbowSealife 发表于 2021-12-25 21:36</a>
+
+刚才在动态里看到一个拉脱维亚人在我一个好友购买动态下问ban了steam商店有影响没，好友问什么影响，然后对 ...</blockquote>
+关键是，现在的墙已经有一些针对反代的新技术了。
+
+其中有一个会根据其他人被墙的数据统计，来重点照顾某些目标。
+
+简单来说，就是你钻洞能上是因为墙不知道洞在这，
+
+但是如果有很多没钻洞的人往这的墙上面撞，墙就知道你这有个洞了，就会给你堵上。
+
+钻洞注定不是长久之计，
+
+现在钻洞还能用，只是因为墙的等级还没被提上来。
+

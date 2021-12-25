@@ -1508,3 +1508,33 @@ co宝今天心情很好的样子捏
 
 是不是拿其他牌子的人才更好认知到啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  rgauss  
+##### 4660#       发表于 2021-12-25 21:52
+
+ 本帖最后由 rgauss 于 2021-12-25 21:56 编辑 
+
+厕所战神我真的没绷住
+
+syl 还有浴缸限定直播是吧，滑了
+
+*****
+
+####  袜子  
+##### 4661#       发表于 2021-12-25 21:57
+
+文静脑子里都是些啥啊
+
+*****
+
+####  rgauss  
+##### 4662#       发表于 2021-12-25 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045091&amp;ptid=2013779" target="_blank">袜子 发表于 2021-12-25 21:57</a>
+
+文静脑子里都是些啥啊</blockquote>
+没有十年脑子想不出来这个企划<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+

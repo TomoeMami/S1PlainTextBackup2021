@@ -8326,3 +8326,47 @@ omega也是o
 
 2021-12-25 19:25 上传
 
+
+
+*****
+
+####  jxwats1  
+##### 2204#       发表于 2021-12-25 21:44
+
+[https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1](https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1)
+
+33人聚会，全打了三针BNT，感染21例<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alexmacau8  
+##### 2205#       发表于 2021-12-25 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044890&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-25 21:44</a>
+https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
+
+33人聚会，全打了三针BNT，感染21例[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三针算什么，欧洲在推第五针了，反正疫苗护照六个月内到期，到期寸步难行，以后有得是机会打。
+
+*****
+
+####  折岛睦月  
+##### 2206#       发表于 2021-12-25 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042884&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-25 19:27</a>
+
+慢慢共存吧，研究表明之前的味觉消失啥的是脑细胞死亡，受损，可能是长期的残疾
+
+ ...</blockquote>
+我看拍老师的文里提到有专家怀疑奥密克戎的器官嗜性变了
+
+*****
+
+####  kiragz  
+##### 2207#       发表于 2021-12-25 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044945&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-25 21:48</a>
+
+三针算什么，欧洲在推第五针了，反正疫苗护照六个月内到期，到期寸步难行，以后有得是机会打。 ...</blockquote>
+只要我加強針的的夠快，病毒就跟不上我的節奏
+

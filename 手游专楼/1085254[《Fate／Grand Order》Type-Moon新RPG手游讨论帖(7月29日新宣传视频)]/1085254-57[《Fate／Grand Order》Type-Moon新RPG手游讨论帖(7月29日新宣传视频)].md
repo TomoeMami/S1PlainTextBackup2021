@@ -15433,3 +15433,128 @@ NGA近半年来什么东西不喷？<img src="https://static.saraba1st.com/image
 
 这太公望真不是藤崎龙漫画里穿越过来的吗？信心满满一通装逼打算用抄近路用对策跳关秒最终boss，结果对策无效直接被打爆吃瘪，只能跑路乖乖回到练级打怪的老路上，根本就是漫画版开头的复刻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lokad  
+##### 85450#       发表于 2021-12-25 21:42
+
+ 本帖最后由 Lokad 于 2021-12-25 21:45 编辑 
+
+对妲己宝具的操作（对敌方封神/赋予我方特攻）看样子是带封神那套的，不知道能否在活动结尾把兔子送上天封成光属性神，这样就能跟光兔子和pv画面送烟花上天对上了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 85451#       发表于 2021-12-25 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">往好的想道士侧面的分已经丢完了剩下的就到军师的分开始装逼了吧
+
+其实唬烂狐狸那段就不错，但NGA和贴吧会不会去看就
+
+*****
+
+####  exiaexa  
+##### 85452#       发表于 2021-12-25 21:51
+
+ 本帖最后由 exiaexa 于 2021-12-25 21:55 编辑 
+
+虽然这兔子一嘴你谁啊的态度
+
+但是和太公望的态度真就充满了一种前女友的味道艹
+
+不知道是谁的编剧整活再努力一点啊，我还想看他们继续破防
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便这个“你居然认不出妲己”的论调是真的草
+
+一个东西，长得像妲己固有结界性质差不多也是兽还张了张狐狸脸，这不就是妲己吗.JPG
+
+他们是不是觉得封神原作太公吃的瘪不够多
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85453#       发表于 2021-12-25 21:53
+
+ 本帖最后由 zakki 于 2021-12-25 21:54 编辑 
+
+这波真不怪太公吧，本来就是不是冠位，迦勒底一厢情愿认为柯杨斯卡娅是妲己，太公望听说兽是妲己，立马带着对妲己宝具过来替冠位加班，最后被坑一下也不挺正常，而且才剧情前期，又不是结尾。后期有的是装逼的机会
+真正的锅在俄里翁身上，带着对野兽宝具，派过来讨伐，结果半路就把冠位扔了连兽都没见着
+
+*****
+
+####  真红眼教授  
+##### 85454#       发表于 2021-12-25 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044989&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-25 21:51</a>
+
+虽然这兔子一嘴你谁啊的态度
+
+但是和太公望的态度真就充满了一种前女友的味道艹</blockquote>
+鉴于隔壁看到樱字就破防，就当是他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  J-002  
+##### 85455#       发表于 2021-12-25 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044448&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-25 21:11</a>
+
+来我们看一下现在的几个冠位和候补
+
+第一个冠位C，被下属玩了波诈尸，最后底牌用尽超绝自爆
+
+第二个冠位C候 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">虽然梅林确实一直很欠揍，但没他强行压住提妈，乌鲁克半年前就被提妈夷平了好不……
+
+*****
+
+####  exiaexa  
+##### 85456#       发表于 2021-12-25 21:56
+
+ 本帖最后由 exiaexa 于 2021-12-25 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045036&amp;ptid=1085254" target="_blank">J-002 发表于 2021-12-25 21:54</a>
+
+虽然梅林确实一直很欠揍，但没他强行压住提妈，乌鲁克半年前就被提妈夷平了好不……
+
+ ...</blockquote>
+所以说是底牌用尽被打爆啊，哪里有问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按他们的逻辑，你是个一直活着还有千里眼的擅长幻术的准冠位C，你居然连自己会被算计都不知道？
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lokad  
+##### 85457#       发表于 2021-12-25 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045026&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 21:53</a>
+
+这波真不怪太公吧，本来就是不是冠位，迦勒底一厢情愿认为柯杨斯卡娅是妲己，太公望听说兽是妲己，立马带着 ...</blockquote>
+这波还行啦，只要杀狐能在本次活动拿下来就没什么丢脸的，我方人太少了。
+
+我其实更想看这”封神宝具“会不会是封神榜那种赋予神职的，毕竟前有光狐狸唐突落地后有封神专家参与绞兔行动。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凌云三才  
+##### 85458#       发表于 2021-12-25 22:01
+
+作为封神的原著党，倒不如说姜子牙在封神原著里一直挺小丑的，七死三灾逼格听着挺高，有看过原著都知道都啥玩意，伐商那真是属于没他不行有他又觉得多余的，逼格高的是水镜先生口中那个兴周八百年的吕尚..
+
+*****
+
+####  gpx234mqx  
+##### 85459#       发表于 2021-12-25 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045026&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 21:53</a>
+
+这波真不怪太公吧，本来就是不是冠位，迦勒底一厢情愿认为柯杨斯卡娅是妲己，太公望听说兽是妲己，立马带着 ...</blockquote>
+开始就是超人熊的问题
+
+打兔子的跑了，来一个抓狐狸的专家打兔子，咋可能有用呢<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
