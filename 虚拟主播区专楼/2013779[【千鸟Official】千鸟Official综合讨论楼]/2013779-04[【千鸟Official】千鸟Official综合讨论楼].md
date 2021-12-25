@@ -1397,3 +1397,18 @@ Merry x'mas<img src="https://static.saraba1st.com/image/smiley/face2017/170.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，如果静子被捉去隔离了，那么跟京紫同处一室，整日贴贴的其他几个……
 
+
+
+*****
+
+####  ACGN若翼  
+##### 4649#       发表于 2021-12-25 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54037879&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-12-25 10:10</a>
+上海赵子龙
+“【炸鸡图片】”
+“太三次元的事情说了就不虚拟了，肯定不会发的”</blockquote>
+查询鸟p状态
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -8248,3 +8248,19 @@ omega也是o
 
 起码要控制到流感的传播速度和死亡率，才能说不是放屁吧。
 
+
+
+*****
+
+####  smy20011  
+##### 2198#       发表于 2021-12-25 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54037755&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-25 09:54</a>
+
+看看政客的口径，flu。
+
+起码要控制到流感的传播速度和死亡率，才能说不是放屁吧。 ...</blockquote>
+死亡率有可能，毕竟特效药越来越多了
+
+传播我倒是不报希望
+
