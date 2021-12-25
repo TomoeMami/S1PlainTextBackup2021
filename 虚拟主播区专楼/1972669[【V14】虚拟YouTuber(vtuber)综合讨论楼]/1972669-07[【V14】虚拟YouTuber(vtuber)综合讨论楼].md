@@ -6543,3 +6543,20 @@ syl
 
 唯一的障碍就是她自己了
 
+
+
+*****
+
+####  fastary  
+##### 9541#       发表于 2021-12-25 15:21
+
+题外话，无论是真心想帮忙还是单纯出于优越感想对找你求助的人指点江山一番，不建议轻易对有较重自卑自闭情况的人伸出援手
+
+毕竟重要的不是给出建议而是先设法让对方从贬低自己的心态里走出来，这也不是聊两句就能做到的事，一旦中途耐心耗尽放弃了厌烦了就是二次伤害……
+
+syl
+
+喜欢低音炮怎么了嘛！大家都喜欢啊！<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+话说我是连同性格和思考在内一起喜欢黑客的，可不是只馋他的低音炮<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

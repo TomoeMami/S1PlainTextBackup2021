@@ -2137,3 +2137,54 @@ xxxx xxx
 
 我dota2非国服连英雄都刷不开了，好耶
 
+
+
+*****
+
+####  伊克路西安  
+##### 210#       发表于 2021-12-25 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040447&amp;ptid=2043948" target="_blank">minamichisei 发表于 2021-12-25 15:09</a>
+
+唉，每次种帖子就是觉醒人大战狗洞大师，可最后大家还是得钻狗洞，对于这种现状我只觉得悲伤和痛苦 ...</blockquote>
+觉醒人是啥 狗洞大师又是啥
+
+
+
+*****
+
+####  Nieven  
+##### 211#       发表于 2021-12-25 15:41
+
+<blockquote>伊克路西安 发表于 2021-12-25 15:36
+觉醒人是啥 狗洞大师又是啥</blockquote>
+简单点说可以理解为偏神的和偏兔的
+
+*****
+
+####  伊克路西安  
+##### 212#       发表于 2021-12-25 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040691&amp;ptid=2043948" target="_blank">Nieven 发表于 2021-12-25 15:41</a>
+
+简单点说可以理解为偏神的和偏兔的</blockquote>
+偏神又是啥。。。
+
+偏兔倒是能猜到是啥
+
+为啥狗洞大师是偏兔啊，偏兔的不应该乖乖的不钻狗洞吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zashou  
+##### 213#       发表于 2021-12-25 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040700&amp;ptid=2043948" target="_blank">伊克路西安 发表于 2021-12-25 15:43</a>
+
+偏神又是啥。。。
+
+偏兔倒是能猜到是啥
+
+为啥狗洞大师是偏兔啊，偏兔的不应该乖乖的不钻狗洞吗 ...</blockquote>
+狗洞大师觉得狗洞是兔神睿智的恩赐，是筛选群众智商的荣耀徽章，具有钻狗洞能力的人是获选的成年人，拥有明辨是非的分辨能力，和需要被灌输的未成年愚民有着格段的差别。
+
