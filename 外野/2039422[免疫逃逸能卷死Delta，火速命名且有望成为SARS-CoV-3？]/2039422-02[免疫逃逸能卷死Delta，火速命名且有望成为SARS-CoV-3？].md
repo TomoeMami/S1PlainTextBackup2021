@@ -8397,3 +8397,17 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 
 [https://www.timesofisrael.com/uk ... wanes-within-weeks/](https://www.timesofisrael.com/uk-agency-pfizer-boosters-ability-to-prevent-symptomatic-covid-wanes-within-weeks/)
 
+
+
+*****
+
+####  smy20011  
+##### 2210#       发表于 2021-12-26 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042884&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-25 19:27</a>
+
+慢慢共存吧，研究表明之前的味觉消失啥的是脑细胞死亡，受损，可能是长期的残疾
+
+ ...</blockquote>
+美国版焦虑怪XD
+

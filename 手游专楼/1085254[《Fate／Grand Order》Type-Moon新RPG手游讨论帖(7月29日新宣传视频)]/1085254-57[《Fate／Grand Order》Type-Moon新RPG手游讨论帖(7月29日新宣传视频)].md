@@ -15720,3 +15720,19 @@ cm太公的台词除最后你为何在此，都出现了，希望最后不会机
 
 抑制力看人其实还是很准的，问题大概是太准了
 
+
+
+*****
+
+####  都谷捻柏  
+##### 85476#       发表于 2021-12-26 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046249&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-12-25 23:47:11</a>
+然后还有天兔座这个俄里翁喜欢的猎物的传说
+
+熊真的就是柯杨小姐的全方位天敌。
+
+抑制力看人其实还是很准的， ...</blockquote>抑制力：飞龙骑脸怎么输
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
