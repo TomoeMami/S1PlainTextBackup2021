@@ -2742,3 +2742,21 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果想再看一遍的话有哪个字幕组的比较推荐，例如标注出细节或者neta之类的
 
+
+
+*****
+
+####  禦厨三九二  
+##### 208#       发表于 2021-12-25 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">空虚
+
+*****
+
+####  shikiasuka  
+##### 209#       发表于 2021-12-25 17:15
+
+剧场版真是愈发的“工整”了，整个tv给我留下最深刻的就是各种标准的中心对称构图，或者中心旋转镜头，而到了剧场版俞是如此。这么做最好的感觉就是让我身临其境的在看“舞台剧”，而且坐的是正中间的位置<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+这个剧场版对于这个企划应该是一个完美的谢幕了，对我个人而言唯一遗憾就是光视角的成长剧情太少了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不过那样拍就成了利兹与青鸟了吧
+

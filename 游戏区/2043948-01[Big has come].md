@@ -2531,3 +2531,104 @@ https://beian.miit.gov.cn/</blockquote>
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  neucom  
+##### 240#       发表于 2021-12-25 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041310&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 17:02</a>
+
+大哥这个你加www去搜才是草台吧，哪怕你用过vpn都知道pac地址不能加www
+
+—— 来自 Xiaomi Mi 10, Androi ...</blockquote>
+哦哦，刚试过了，帖子有更新，油土鳖、谷歌也都提示不在黑名单，不加3w
+
+
+
+*****
+
+####  solarcool  
+##### 241#       发表于 2021-12-25 17:06
+
+我觉得外野来的狗洞大师，直接称为野狗就可以了，每次打那么长的名字也挺累的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 920619lqy| + 1|言简意赅|
+
+查看全部评分
+
+*****
+
+####  574802531  
+##### 242#       发表于 2021-12-25 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040070&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 14:25</a>
+那你解释解释呗，取这个id是啥用意？</blockquote>
+取施密特的diss人家，要脸吗？
+
+—— 来自 HUAWEI CLT-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rsgdn| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Unlight  
+##### 243#       发表于 2021-12-25 17:19
+
+<img src="https://img.saraba1st.com/forum/202112/25/171931qzz5sffsbblvtazr.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7690.JPG</strong> (305.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 17:19 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/171931pgo260f4xubooo9f.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7689.JPG</strong> (325.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 17:19 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Cookiekira  
+##### 244#       发表于 2021-12-25 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041196&amp;ptid=2043948" target="_blank">First_Snow 发表于 2021-12-25 16:46</a>
+ https://www.reddit.com/r/pcgaming/comments/ro345o/the_global_version_of_steam_has_been_banned_in/red ...</blockquote>
+a shitty gxxxxxxx<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shbz  
+##### 245#       发表于 2021-12-25 17:24
+
+<img src="https://p.sda1.dev/3/f2e0e62862f60c5addd5bfcd49c23b2b/IMG_CMP_205589293.jpeg" referrerpolicy="no-referrer">
+贴吧看到的，和这个应该没什么关系
+最少九月份就有了
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

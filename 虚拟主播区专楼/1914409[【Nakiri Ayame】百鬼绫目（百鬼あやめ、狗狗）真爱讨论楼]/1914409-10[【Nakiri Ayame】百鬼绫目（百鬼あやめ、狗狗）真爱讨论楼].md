@@ -2988,3 +2988,12 @@ https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/s
 
 太久没发壁纸 发成公开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 13800#       发表于 2021-12-25 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说，最近绫总的一连串开播行为铜臭味太重了点。
+
