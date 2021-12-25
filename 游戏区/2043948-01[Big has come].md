@@ -2705,3 +2705,88 @@ igg还有一个种子网站也是这样，以后上外国网站会越来越费�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想买点冬促游戏都刷不开，105和118，好气啊
 
+
+
+*****
+
+####  KENN  
+##### 254#       发表于 2021-12-25 17:46
+
+前两天咋还能上，今天打开真上不了了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 255#       发表于 2021-12-25 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040646&amp;ptid=2043948" target="_blank">伊克路西安 发表于 2021-12-25 15:36</a>
+
+觉醒人是啥 狗洞大师又是啥</blockquote>
+1、觉醒人=觉青
+
+2、有墙不是有办法吗=狗洞人
+
+我目前大概看是这个意思，只能说谜语人小鬼更胜一筹
+
+*****
+
+####  dkswxd  
+##### 256#       发表于 2021-12-25 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041205&amp;ptid=2043948" target="_blank">SuperCK 发表于 2021-12-25 16:47</a>
+github有时能直连吧，虽然我自己从来不直连</blockquote>
+github在校园网不用任何工具的情况下，差不多1/10的概率能连上，感觉和直接墙了没有如何区别，需要用的时候连不上血压拉满，只能科学上网
+
+*****
+
+####  afer  
+##### 257#       发表于 2021-12-25 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041714&amp;ptid=2043948" target="_blank">病娇图兰朵 发表于 2021-12-25 17:40</a>
+
+刚刚突然商店突然118了，刷了几次都118，但是从库里随便找个游戏访问商店页面还是能进去，顺着用搜索栏搜索 ...</blockquote>
+其他都好解决，恶心的是愿望单，真就打不开，这个愿望单网络好的时候就总猝亡，我想吐槽多次了，设计差的一批，现在更打不开了，我纳闷这种轻量化设计除了好看有个屁用。
+
+*****
+
+####  afer  
+##### 258#       发表于 2021-12-25 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041836&amp;ptid=2043948" target="_blank">dkswxd 发表于 2021-12-25 17:49</a>
+
+github在校园网不用任何工具的情况下，差不多1/10的概率能连上，感觉和直接墙了没有如何区别，需要用的时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是挺纳闷这楼里二极管脑的，被铁拳了就不diss万恶的资本了，百度网盘的相关工具github没一个打得开的。
+
+*****
+
+####  ww-tls  
+##### 259#       发表于 2021-12-25 17:54
+
+能进主页，不能安装。
+
+*****
+
+####  gdsgdfhd  
+##### 260#       发表于 2021-12-25 17:57
+
+看楼上这不是没完全被墙吗？被墙不绝对就是绝对不被墙，我宣布steam根本没有被墙，狗洞大师又胜利了
+
+*****
+
+####  sungoldy  
+##### 261#       发表于 2021-12-25 18:00
+
+这倒没注意到，Stream本来也就是只是单纯用来玩+1游戏了，具体买的游戏也基本上没有玩过了。
+
+最近我越来越不想回家了， 18:00就能下班，不在办公室玩手游拖到9点不痛快。
+
+*****
+
+####  hypnossz86  
+##### 262#       发表于 2021-12-25 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041841&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 17:49</a>
+其他都好解决，恶心的是愿望单，真就打不开，这个愿望单网络好的时候就总猝亡，我想吐槽多次了，设计差的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">愿望单原来是集成在社区里的
+不剥离出来改造几年就上不去了
+

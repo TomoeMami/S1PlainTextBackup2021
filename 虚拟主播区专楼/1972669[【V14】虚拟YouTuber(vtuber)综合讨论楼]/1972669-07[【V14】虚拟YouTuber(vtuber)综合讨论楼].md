@@ -6596,3 +6596,14 @@ syl
 
 大和德比这个要超出认知了
 
+
+
+*****
+
+####  Paisley  
+##### 9546#       发表于 2021-12-25 17:53
+
+看了半天感觉vox还挺适合当vtuber的反正这个职业天然会让皮下和粉丝隔开嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这个聊天记录只能说患者不要随便期待找谁都能共情你，别人也没有共情你的义务啊……他的意见对青少年那个知识水平来说算是很普通的，没看出什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -14922,3 +14922,66 @@ FHanPMuaAAAlqRM.jpg
 
 服务器是不是快隔屁了
 
+
+
+*****
+
+####  1a不解释  
+##### 85401#       发表于 2021-12-25 17:41
+
+好卡
+
+*****
+
+####  exiaexa  
+##### 85402#       发表于 2021-12-25 17:53
+
+这材料不得劲啊，等下一波
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 85403#       发表于 2021-12-25 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">DW哟，这就是数量的暴力（真）啊
+
+服务器能不能好点
+
+*****
+
+####  霧谷藤乃  
+##### 85404#       发表于 2021-12-25 17:56
+
+这也太卡了……
+
+*****
+
+####  風卷豹  
+##### 85405#       发表于 2021-12-25 18:00
+
+最大的阻碍是延迟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85406#       发表于 2021-12-25 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡的动不了了
+
+*****
+
+####  qixinno2  
+##### 85407#       发表于 2021-12-25 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弱智柱子 懒得打了 直接等剧情解锁拿石头了
+
+*****
+
+####  angelooo  
+##### 85408#       发表于 2021-12-25 18:04
+
+dw，我的fw服务器
+
+啊不对，dw好像已经死了啊，那没事了
+
