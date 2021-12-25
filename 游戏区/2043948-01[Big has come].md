@@ -5103,3 +5103,109 @@ GITHUB从几个月前那次被跟这次STEAM一样的新技术搞了后，就一
 
 从谷歌推特到亚马逊github，自己也是**小小的网站风波也都经历过了，只不过这次是尤为不爽点，大概还是因为相比那些网站来说steam的使用频率要高多了
 
+
+
+*****
+
+####  mwj  
+##### 476#       发表于 2021-12-26 00:46
+
+<blockquote>FUZE 发表于 2021-12-26 00:29
+其实没什么好说的
+
+13年哪次直接墙了一天
+
+那一天别说商店社区了
+</blockquote>
+13年steam中国区的规模不到现在1%吧，那时候就准备干steam的话怎么能等到影响扩大100倍以上才动手的......
+
+*****
+
+####  FUZE  
+##### 477#       发表于 2021-12-26 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046714&amp;ptid=2043948" target="_blank">mwj 发表于 2021-12-26 00:46</a>
+
+13年steam中国区的规模不到现在1%吧，那时候就准备干steam的话怎么能等到影响扩大100倍以上才动手的..... ...</blockquote>
+谁知道呢
+
+他怎么想的我要是知道了，我肯定也不会再这里回复
+
+但是13年确实墙了一天
+
+那一天
+
+商店无法访问
+
+社区无法访问
+
+无法登陆
+
+也无法下载
+
+*****
+
+####  mwj  
+##### 478#       发表于 2021-12-26 00:52
+
+<blockquote>FUZE 发表于 2021-12-26 00:48
+谁知道呢
+
+他怎么想的我要是知道了，我肯定也不会再这里回复
+
+但是13年确实墙了一天
+</blockquote>
+可能13年敏感日子直接断外网了吧，未必是针对steam的。
+
+*****
+
+####  FUZE  
+##### 479#       发表于 2021-12-26 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046762&amp;ptid=2043948" target="_blank">mwj 发表于 2021-12-26 00:52</a>
+
+可能13年敏感日子直接断外网了吧，未必是针对steam的。</blockquote>
+不是断外网
+
+因为确实就墙了一天
+
+然后我挂全局代理可以登陆
+
+因为只墙了一天，可能大多数人都忘了
+
+或许13年国内接触STEAM的人也不太多？
+
+*****
+
+####  你知道我的  
+##### 480#       发表于 2021-12-26 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045833&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-25 23:07</a>
+
+SNI技术都实装了好多年了。
+
+17年左右HTTPS墙都大规模使用了。</blockquote>
+我看去年就有文章说墙遇到 TLS1.3 的加密 SNI 是直接干死，
+
+根本就不搞什么解包吧？
+
+
+
+*****
+
+####  Tring  
+##### 481#       发表于 2021-12-26 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046787&amp;ptid=2043948" target="_blank">你知道我的 发表于 2021-12-26 00:55</a>
+
+我看去年就有文章说墙遇到 TLS1.3 的加密 SNI 是直接干死，
+
+根本就不搞什么解包吧？
+
+ ...</blockquote>
+最后能不能干死我不清楚，但是就算能干死，方法和现在用的也不同。
+
+现在的嗅探技术，利用了低版本的TLS的握手包中，有一些明文形式的信息。
+
+在3版里，这部分也被加密了。
+

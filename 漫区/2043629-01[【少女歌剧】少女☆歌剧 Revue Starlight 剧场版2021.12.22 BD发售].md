@@ -3199,3 +3199,32 @@ TV我勉强可以给满分10分，但剧场版只能给7分。
 
 话说上一次轮回奈奈能轻松碾压天堂，结果tv里被小光锤爆，这一次剧场版开局近乎单挑主角团全员，结果后期又被纯那干翻，你蕉哥哥还真是永远帅不过“三秒”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+
+*****
+
+####  Django  
+##### 234#       发表于 2021-12-26 00:48
+
+我可现在可能是全世界上最空虚的人了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nyaaarlathotep  
+##### 235#       发表于 2021-12-26 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045937&amp;ptid=2043629" target="_blank">smishe 发表于 2021-12-25 23:16</a>
+
+不知道是因为最近工作压力大还是心态不对，这剧场版感觉啥都没说啊。TV故事性不足，但超强演出算是 ...</blockquote>
+不要懷疑，就是。不過我覺得算優點。
+
+*****
+
+####  modedd  
+##### 236#       发表于 2021-12-26 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046490&amp;ptid=2043629" target="_blank">hqtkkb 发表于 2021-12-26 00:16</a>
+
+大概我个人确实不是很喜欢“解开心结，相互理解”这样的剧情套路，对比豪华的演出制作，剧情这块感觉有点无 ...</blockquote>
+这不就还是硬实力最强，心理素质最差的那个蕉哥哥嘛，和TV版一个味，打纯那也是开场碾压心态一崩就蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
