@@ -6347,3 +6347,68 @@ syl
 
 (或者单纯没法反驳所以只能装死……)
 
+
+
+*****
+
+####  adamtheo  
+##### 9527#       发表于 2021-12-25 13:45
+
+ 本帖最后由 adamtheo 于 2021-12-25 13:51 编辑 
+
+汤稿主写得不够清楚 -&gt; 黛老姐翻译了一些，总结“好像没有更多实锤” -&gt; 传到管厕高赞评论“没锤就算了”，确实虹现在也不需要女粉有脑子哈（不是说黛老姐，但是我也蛮好奇喜欢黛灰的怎么会也喜欢vox，感觉共情力天差地别）。
+
+我看了眼不是有18年的聊天截图锤吗，只不过链接太多了不起眼，而且欧美那边要锤一波大的肯定套未成年、国内不吃这套罢了。
+
+当然你要是觉得他现在成熟了那当我没说。自由心证。
+
+<img src="https://img.saraba1st.com/forum/202112/25/134313ia84ewdezcznv2hb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/134321tcj0lare0wb01rr4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/134352i0liyi00002034iy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/134403vmbpymguyb8p9h8y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 13:44 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/134414gt006g0s6c9vlsms.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 13:44 上传
+
+*****
+
+####  撕叁  
+##### 9528#       发表于 2021-12-25 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039737&amp;ptid=1972669" target="_blank">adamtheo 发表于 2021-12-25 13:45</a>
+
+汤稿主写得不够清楚 -&gt; 黛老姐翻译了一些，总结“好像没有更多实锤” -&gt; 传到管厕高赞评论“没锤就算了”， ...</blockquote>
+这看上去人不是挺好的吗，够有耐心了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

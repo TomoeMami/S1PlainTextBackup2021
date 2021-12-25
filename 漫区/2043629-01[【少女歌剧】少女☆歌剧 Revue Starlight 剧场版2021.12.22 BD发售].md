@@ -2546,3 +2546,74 @@ wild-screen circus
 
 爽了90分钟不间断，太强了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  堆雪若叶  
+##### 199#         楼主| 发表于 2021-12-25 13:57
+
+ 本帖最后由 堆雪若叶 于 2021-12-25 13:58 编辑 
+
+剧场版上映第三周官方开始剧透解禁，橘子社推有个解说环节，包括剧场版制作设定以及废案的一些资料。内容比较多，有兴趣可以自己去翻一翻六月十八开始的橘子社推[https://twitter.com/KinemacINFO/media](https://twitter.com/KinemacINFO/media)
+
+摘了一些个人感兴趣的放一下
+
+首先是五岁光恋的设定图，同时还提到剧场版带有想画更多华恋的想法来做的设定，结果幼小中大足足四形态一本满足
+<img src="https://p.sda1.dev/3/372a8a6c38958089bc4ce78ad4af272a/E4uQVBEUUAgvryj.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/5557dbb73ef35362f99409a5cf22107f/E4uQVBGVEAAkBRv.jpg" referrerpolicy="no-referrer">
+
+华恋小时候喜欢钓鱼是受爸爸看的钓鱼杂志的影响，剧场版里也出现过华恋钓鱼的照片和茶几上的钓鱼杂志。另外华恋的爸爸是以一种“不在的存在”和妈妈构成对比
+<img src="https://p.sda1.dev/3/58c4a34272d2dc50a13eb6ca3d577d16/E5SfltgVUAYEnCT.jpg" referrerpolicy="no-referrer">
+
+蕉哥哥拍的一些其他照片，提到是想起来本篇蕉哥哥就有很重的拍摄癖了，不过之前都是手机，剧场版换成了拍立得，算是加强这一属性
+<img src="https://p.sda1.dev/3/9f3bedb1cf3d2acb4385d9f81de8f6f1/E5ShMzqUcAszAFx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/df639b69c3c34f387d1999ee7cf07337/E5ShMzuUUAAOP7K.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/79eba6506a21eb8ef27d3379398586dc/E5ShMztUUAMjPgF.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/503d886a7807631ce8ba8f7fd7d69a9f/E5ShMzsVkAQokzw.jpg" referrerpolicy="no-referrer">
+
+光恋外七人新的室内私服人设
+<img src="https://p.sda1.dev/3/62e0c52971129ef33d60e08dc38d5682/E6azBzJUcAMnAsM.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/6ea369663ef324e90b03f2668fb576a8/E6azBzLVkAE2Bn2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/f4499c902571b1a5dc9b401f7af2525f/E6azBzMUcAg0Dj6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/47713be4109f5ef20fa4df22293fdae5/E6a0s-lUcAA8Nyf.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/da3167ddd7c96feb05d8a6a893c7490c/E6a0s-iVcAIOmPX.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/502ce423a6338ebe3734b87e0abd4727/E6a0s-hVEAsDDQB.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/f9559a977379ed106cd84a3922df2772/E6a0s-iVIAIaJ1-.jpg" referrerpolicy="no-referrer">
+
+光在ed的便服人设。因为尺寸的原因可能很多细节很难看出来，最后光的发饰别在行李箱上了
+<img src="https://p.sda1.dev/3/695af027fc865aa91ffe4f9f9de7c669/E6a1RQaVUAEzZ1I.jpg" referrerpolicy="no-referrer">
+
+恋哥哥后宫团打包
+<img src="https://p.sda1.dev/3/22f26b558578bbf58d5f0394d8b45b49/E4uQuYhVgAcZEfH.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/c560d7ba2b02fb9adb49a228a4ca86bc/E4uQuYrVoAAecdH.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/0187e13ad2bde2ac4242c618f6d8bf92/E4uQuYsUUAE7NMO.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/3de90ca9bd538c6ff2be80e952f5d194/E4uRKKcVgAMVBrG.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/c0bb4ad21036de02f4165d18f86edb27/E8rE4jHUUAUUJQA.jpg" referrerpolicy="no-referrer">
+
+“幼光幼恋和如今关系性的不同”都是光逮着恋哥哥折磨
+<img src="https://p.sda1.dev/3/8555207683474c3772e09c8777d2ea40/hikaren.gif" referrerpolicy="no-referrer">
+
+公开剧场版制作初监督关于华恋怎么被做成T的设想，感觉这个类似本篇的工业化生产更带劲也更惊悚……
+<img src="https://p.sda1.dev/3/cc4d2dc81dfad848c9ea2f34e5d9bc23/E_flntMVUAUFGWR.jpg" referrerpolicy="no-referrer">
+
+努力创作101回starlight剧本的雨宫同学。说实话因为剧场版的粉色氛围B班这两位在道具室那一段感觉两人关系也相当暧昧
+<img src="https://p.sda1.dev/3/2f17bf3db53830a08d486802796d3570/FADUfEJUcAIsuEd.jpg" referrerpolicy="no-referrer">
+
+光被真昼打翻拖走，我知道你们就是想看这个
+<img src="https://p.sda1.dev/3/aeb8361be0822880b7e425b0fc6c5737/FBLqsS5VgAMQEIY.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/24b9367265720f327f20a7c82ac72e13/FBLqsS7UUAUFVk6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/111e938a84cfd7292234a0898eb955ae/FBLqsS-VEAItjmH.jpg" referrerpolicy="no-referrer">
+
+xs，才发现花叶两边车上都把对方画的那么小
+<img src="https://p.sda1.dev/3/aa7caa422cfa853e77b2f5b969705251/FD_2OiSaQAAce3S.jpg" referrerpolicy="no-referrer">
+
+演黄金国的班长，和单马尾恋哥哥！
+
+两个人发型其实都有变化，是为了给参观的后辈营造练习时不一样的氛围。班长拿匕首而恋哥哥拿剑是暗示光恋的诀别
+<img src="https://p.sda1.dev/3/aac6914101b43bbd03b33f8c881e1672/FFsUr4QVgAYn5Q1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/3d76b148ea9038d5ea5bd85f5d3e88c9/FFsUr4OUUAUWPTj.jpg" referrerpolicy="no-referrer">
+
+更多幼恋
+<img src="https://p.sda1.dev/3/24cb11fdecb20a333d342614409a6774/FG0MLFzaMAkqmWW.jpg" referrerpolicy="no-referrer">
+
