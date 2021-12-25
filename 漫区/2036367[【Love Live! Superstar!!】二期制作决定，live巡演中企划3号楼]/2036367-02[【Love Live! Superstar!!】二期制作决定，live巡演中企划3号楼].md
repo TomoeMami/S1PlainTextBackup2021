@@ -10636,3 +10636,17 @@ G店这个一日一限怎么判断？我就按了一下算成功了，换个ip�
 
 大眼认证色色
 
+
+
+*****
+
+####  iuhehc  
+##### 2405#       发表于 2021-12-25 09:33
+
+ 本帖最后由 iuhehc 于 2021-12-25 09:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54035002&amp;ptid=2036367" target="_blank">A0171050 发表于 2021-12-24 22:39</a>
+感觉liyuu能再liella当中排第三吧，感觉pay和sayurin都会好一点</blockquote>
+我看法是目前liella还没有唱功技巧明显高别人一截的。比起唱功，更明显的是音色和气息。小百合她发声的方式不如pay酱舒服 1stlive之后还是要去系统学一下，不然很缩短用嗓子工作的职业寿命的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

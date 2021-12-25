@@ -8214,3 +8214,15 @@ omega也是o
 疫苗防感染是没什么戏了，防不防o的重症呢</blockquote>
 我记得是70多一点
 
+
+
+*****
+
+####  yangas123  
+##### 2195#       发表于 2021-12-25 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54037224&amp;ptid=2039422" target="_blank">xiongsuper 发表于 2021-12-25 08:02</a>
+
+又轮到上海了</blockquote>
+上海怎么了？
+
