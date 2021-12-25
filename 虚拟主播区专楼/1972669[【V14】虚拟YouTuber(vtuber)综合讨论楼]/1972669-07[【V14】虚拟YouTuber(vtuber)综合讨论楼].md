@@ -6668,3 +6668,33 @@ syl
 
 雷哥比Vox严重多吧，记得当时楼内有人说是口嗨**，这种事想就算了，还发在网络
 
+
+
+*****
+
+####  poipanchao  
+##### 9553#       发表于 2021-12-25 20:24
+
+怎么回家一看oreapo一组了，甚至还组了hendy
+
+不是随机组队吗
+
+*****
+
+####  FCCHua  
+##### 9554#       发表于 2021-12-25 20:26
+
+ 本帖最后由 FCCHua 于 2021-12-25 20:30 编辑 
+
+只能说最后一场肯定不是随机，除了旅团组，另一边大妖怪也再结成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+kmt回到实家的安心感，对比之前几局话好多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBXX  
+##### 9555#       发表于 2021-12-25 20:38
+
+[https://space.bilibili.com/1308924026/](https://space.bilibili.com/1308924026/)
+
+YuNi_Official
+

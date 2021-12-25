@@ -8346,3 +8346,48 @@ space不知道为什么不如tc给劲
 
 歌好不好听无所谓，图好看就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 6970#       发表于 2021-12-25 20:30
+
+不知道曲绘睡衣是不是参考的本人的意见
+
+*****
+
+####  ashero  
+##### 6971#       发表于 2021-12-25 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043746&amp;ptid=2018830" target="_blank">路人庚 发表于 2021-12-25 20:30</a>
+
+不知道曲绘睡衣是不是参考的本人的意见</blockquote>
+肯定是 之前还抱怨过多人合唱曲绘要统合意见很麻烦
+
+*****
+
+####  T_Hb  
+##### 6972#       发表于 2021-12-25 20:35
+
+竟然换了个圣诞节的背景，我还以为她就老样子过了
+
+这两牛皮藓常驻在直播间了
+
+*****
+
+####  路人庚  
+##### 6973#       发表于 2021-12-25 20:41
+
+见面先开大（指第一首就是圣诞歌
+
+*****
+
+####  路人庚  
+##### 6974#       发表于 2021-12-25 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043766&amp;ptid=2018830" target="_blank">ashero 发表于 2021-12-25 20:31</a>
+
+肯定是 之前还抱怨过多人合唱曲绘要统合意见很麻烦</blockquote>
+主要是看咩姐的经典短裤有点即视感（
+

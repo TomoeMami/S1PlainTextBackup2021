@@ -10951,3 +10951,17 @@ FDAD1F3E-8E1E-4667-8692-1E2236B6F6F1.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/25/200039r7lxfsz0450mm7lu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2426#       发表于 2021-12-25 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042944&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-25 19:32</a>
+还能说什么，花田看看你干的好事</blockquote>
+恋的路人缘基本被干碎了吧，还在推恋的基本都是青山粉了。
+我倒是挺奇怪花田也不是没干过这种把角色当儿戏塑造的事，过去也有人戏份很诡异，难道是过去捆绑销售策略很成功？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

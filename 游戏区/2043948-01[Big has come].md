@@ -3999,3 +3999,81 @@ psn 的cdn我最近一年都上不去
 我现在跟你一样，一旦下载游戏，进商店就会118，停了之后过一段时间就会恢复 ...</blockquote>
 我正好相反，自从下载了游戏，丝般顺滑。
 
+
+
+*****
+
+####  Ronu  
+##### 374#       发表于 2021-12-25 20:23
+
+ 本帖最后由 Ronu 于 2021-12-25 20:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说steam封了，然后网民忙着键政，但是还是没人管臭打游戏的。笑死了
+
+作为一个臭打游戏的，反正朴素的建议就是时常备点梯子还是好的
+
+不管接下来几年十年紧还是松，基本各种场合都还是用得到的，没啥问题。功利点，实在点
+
+*****
+
+####  白石  
+##### 375#       发表于 2021-12-25 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043271&amp;ptid=2043948" target="_blank">圣罗.希露温 发表于 2021-12-25 20:01</a>
+
+臭玩游戏的也就是嘴上发几句牢骚，来真家伙的已经进去了，与其说自认铁拳不会砸自己身上，不如说有些就是 ...</blockquote>
+国内有能力玩真家伙的只有tg，tg这些年模模糊糊、别别扭扭、扭扭捏捏，批量的给自己制造反对派，不怕你出手，就怕你没立场。ACG领域抱怨也正常，作为没有根基的，总是被AOE莫名其妙的A到，不过反贼出来拱火就搞笑了，梯子也好、资源站也好，有几个是反贼建的，跟反贼连互相利用都做不到，一门心思把你当枪使
+
+*****
+
+####  wrnk  
+##### 376#       发表于 2021-12-25 20:29
+
+可以了么？我这儿还是不行 118 只能挂梯子<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hidewhite  
+##### 377#       发表于 2021-12-25 20:36
+
+没事，我觉得最美好的愿景里这帖子里两波人都可以去游街，到时候大家就会相互理解相互友爱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高龙  
+##### 378#       发表于 2021-12-25 20:39
+
+是我的错觉吗？我这几年六七成的Steam焦虑论都是在S1看到的。
+
+*****
+
+####  lanhao  
+##### 379#       发表于 2021-12-25 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死我了，每次遇到这种话题，就能看到“莫名aoe到”“我们这种良民xxx”。还有指责“反贼”做了什么贡献的。
+有没有想过不管是指向性技能还是aoe都是不合理的吗？
+
+*****
+
+####  白活这一生  
+##### 380#       发表于 2021-12-25 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043458&amp;ptid=2043948" target="_blank">RJG丶one 发表于 2021-12-25 20:14</a>
+
+难说到底怎么回事儿，我现在有几个思路：①steam大促扩容，撞进墙的警戒线上，被突突了；②草台，老爷拿 ...</blockquote>
+是针对域名来的，只要你访问steampowered.com不管解析到什么国外IP，都会禁止你访问这个ip一段时间。
+
+*****
+
+####  日日日日日野  
+##### 381#       发表于 2021-12-25 20:41
+
+你看，狮子王那话还是说早了，错过了前几天那一波，你以为就真的是错过去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stary  
+##### 382#       发表于 2021-12-25 20:41
+
+为啥我网卡的时候，开论坛都转半天，steam每次都能完美打开，现在网顺畅了反而打不开了...........
+
