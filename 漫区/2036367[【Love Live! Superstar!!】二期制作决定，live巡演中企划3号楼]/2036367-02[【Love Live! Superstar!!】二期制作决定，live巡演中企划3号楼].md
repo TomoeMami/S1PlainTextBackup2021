@@ -10901,3 +10901,53 @@ mv开头那花挺眼熟的，是不是侑哥哥送给步梦的那种
 
 2021-12-25 19:32 上传
 
+
+
+*****
+
+####  zylwz  
+##### 2424#       发表于 2021-12-25 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042811&amp;ptid=2036367" target="_blank">qty 发表于 2021-12-25 19:20</a>
+
+问题是音色我也是觉得青山更好听啊</blockquote>
+这种就是个人喜好的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+单论稀有度的话
+
+小百合这种清澈又响亮的声音在普通人里很少能见到的
+
+*****
+
+####  仟音一心  
+##### 2425#       发表于 2021-12-25 20:00
+
+合照
+
+E562809C-F6CA-42BE-8B5A-D49B381450DD.jpeg
+(819.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/200039dxvg3mcvzhkzxfgg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FDAD1F3E-8E1E-4667-8692-1E2236B6F6F1.jpeg
+(811.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/200039ku18lwmmzauxrulp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0AE24A61-73DD-4B10-8FF2-637986CA9881.jpeg
+(811.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/200039r7lxfsz0450mm7lu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

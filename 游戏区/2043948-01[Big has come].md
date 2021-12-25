@@ -3575,3 +3575,314 @@ AAA游戏动不动上百G，梯子再好也顶不住</blockquote>
 再轮也轮不到保险杠踩油门</blockquote>
 所以说是鼓励不是？
 
+
+
+*****
+
+####  kzf  
+##### 335#       发表于 2021-12-25 19:45
+
+看电玩巴士的微博是加黑名单了？
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nozomitech  
+##### 336#       发表于 2021-12-25 19:45
+
+完了，你们别他妈吵了，我突然发现如果steam令牌用的QQ邮箱，现在验证码收不到了，现在我登都登不了，不是墙的问题，有人遇到一样的问题吗？
+
+*****
+
+####  afer  
+##### 337#       发表于 2021-12-25 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043012&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-25 19:38</a>
+
+思考一下明年的大事件就会知道最近这一连串的收缩几乎是一定的。
+
+鹅害鹅对线是最安全的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键是这两批人根本其实就是一批人嘛，打来打去到底是性格太一样导致。
+
+*****
+
+####  solarcool  
+##### 338#       发表于 2021-12-25 19:46
+
+绷不住了，为什么真有人觉得工具都是狗洞大师提供的了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狗洞大师除了告诉你“还有狗洞可以钻不算出事”什么时候还真提供工具了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 339#       发表于 2021-12-25 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043080&amp;ptid=2043948" target="_blank">nozomitech 发表于 2021-12-25 19:45</a>
+
+完了，你们别他妈吵了，我突然发现如果steam令牌用的QQ邮箱，现在验证码收不到了，现在我登都登不了，不是 ...</blockquote>
+也别steam，QQ邮箱平时就吞邮件吞的厉害，国内也就163凑凑合合也是吞邮件的，但感官比qq好得多，劝你赶紧换。
+
+*****
+
+####  ifeinano  
+##### 340#       发表于 2021-12-25 19:48
+
+那理论上是不是steam上的游戏都不能直播
+
+*****
+
+####  gdsgdfhd  
+##### 341#       发表于 2021-12-25 19:48
+
+<blockquote>920619lqy 发表于 2021-12-25 19:39
+没什么好关心的，直接快进到全程挂梯子用就完了，能省心不少，你跟着一步步加码去捣鼓这个那个的影响自己 ...</blockquote>
+真快进了你觉得梯子还能留下？不会吧😅
+
+*****
+
+####  MaskedBlade  
+##### 342#       发表于 2021-12-25 19:49
+
+借贴问一下，steam有什么问题，我现在可以打开，是问题已经解决了吗？非反串
+
+*****
+
+####  yuzhaoping  
+##### 343#       发表于 2021-12-25 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043118&amp;ptid=2043948" target="_blank">MaskedBlade 发表于 2021-12-25 19:49</a>
+
+借贴问一下，steam有什么问题，我现在可以打开，是问题已经解决了吗？非反串 ...</blockquote>
+你试试随便下单一款游戏，看看能不能付款。这次玩的是间歇性阻断
+
+*****
+
+####  魔法酪饼  
+##### 344#       发表于 2021-12-25 19:51
+
+ 本帖最后由 魔法酪饼 于 2021-12-25 19:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">这不很明显某些企业勾结地方运营商，特意在大促的时候搞了一波dns污染么。。。这有啥好纠结的。。。
+
+最近国内反垄断，资本正规化的风声愈加猛烈，再加上游戏产业去低级产能，产业正规化。wegame之类的平台在相应的集团内部的定位又从一个占位符开始重要起来，这时间点来一波太正常不过了。
+
+*****
+
+####  nanonya2  
+##### 345#       发表于 2021-12-25 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043118&amp;ptid=2043948" target="_blank">MaskedBlade 发表于 2021-12-25 19:49</a>
+借贴问一下，steam有什么问题，我现在可以打开，是问题已经解决了吗？非反串 ...</blockquote>
+你可以理解为Steam现在受到阻断的效果是连接时断时续，而且可能与地域/运营商有关。
+
+*****
+
+####  gangzhu2  
+##### 346#       发表于 2021-12-25 19:51
+
+7点50分，我下载最高速是10M，刚才用8M下东西刷不出商店然后停了后重登直接出包括点进愿望单和商店里面
+
+*****
+
+####  sk此方  
+##### 347#       发表于 2021-12-25 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043080&amp;ptid=2043948" target="_blank">nozomitech 发表于 2021-12-25 19:45</a>
+完了，你们别他妈吵了，我突然发现如果steam令牌用的QQ邮箱，现在验证码收不到了，现在我登都登不了，不是 ...</blockquote>
+刚刚去试了一下能正常收到 我是163邮箱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你没绑手机吗用手机号试试
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  白石  
+##### 348#       发表于 2021-12-25 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042934&amp;ptid=2043948" target="_blank">圣罗.希露温 发表于 2021-12-25 19:31</a>
+
+没工具还敢自称反对派？而且现在反对派最喜欢踩油门了，没错，就是恨不得steam马上封了 ...</blockquote>
+还是自认铁拳不会砸到我身上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不过这点程度也不配叫加速，比如说把NBA彻彻底底封了，那才算真踩了油门，臭打游戏的就是这么没地位。要加速我支持，这种狗咬狗级别就敬谢不敏了，看谁能来点真家伙。
+
+*****
+
+####  wtyrambo  
+##### 349#       发表于 2021-12-25 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043136&amp;ptid=2043948" target="_blank">魔法酪饼 发表于 2021-12-25 19:51</a>
+
+这不很明显某些企业勾结地方运营商，特意在大促的时候搞了一波dns污染么。。。这有啥好纠结的。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">“都是资本的错”
+
+*****
+
+####  nozomitech  
+##### 350#       发表于 2021-12-25 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043098&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 12:48</a>
+
+也别steam，QQ邮箱平时就吞邮件吞的厉害，国内也就163凑凑合合也是吞邮件的，但感官比qq好得多，劝你赶紧 ...</blockquote>
+之前就是懒得换所以拖到现在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk此方  
+##### 351#       发表于 2021-12-25 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043175&amp;ptid=2043948" target="_blank">nozomitech 发表于 2021-12-25 19:53</a>
+之前就是懒得换所以拖到现在</blockquote>
+你看看垃圾箱里面有没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  920619lqy  
+##### 352#       发表于 2021-12-25 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043073&amp;ptid=2043948" target="_blank">kzf 发表于 2021-12-25 05:45</a>
+
+看电玩巴士的微博是加黑名单了？
+
+—— 来自 Xiaomi MI 8, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+你可以多找一些上不了的网站去查查，会发现很多都是没有记录..
+
+*****
+
+####  920619lqy  
+##### 353#       发表于 2021-12-25 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043105&amp;ptid=2043948" target="_blank">gdsgdfhd 发表于 2021-12-25 05:48</a>
+
+真快进了你觉得梯子还能留下？不会吧😅</blockquote>
+如果现在的局面不快进，那么用户可以自己快进一下，按照完全上不了的状态来对待steam
+
+如果形势快进了，那我吃个瓜<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法酪饼  
+##### 354#       发表于 2021-12-25 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043171&amp;ptid=2043948" target="_blank">wtyrambo 发表于 2021-12-25 19:53</a>
+
+“都是资本的错”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">老爷的铁拳路数不是这套，不指望老哥你辨出是什么手法，起码分清钝器和刀伤之间的区别吧
+
+*****
+
+####  nozomitech  
+##### 355#       发表于 2021-12-25 19:57
+
+ 本帖最后由 nozomitech 于 2021-12-25 12:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043146&amp;ptid=2043948" target="_blank">sk此方 发表于 2021-12-25 12:51</a>
+
+刚刚去试了一下能正常收到 我是163邮箱你没绑手机吗用手机号试试
+
+—— 来自 vivo V2055A, Androi ...</blockquote>
+那没事了，看来单纯QQ邮箱傻逼，垃圾邮件里没有，看过了，应该就是吞邮件了，手机号应该有绑，不过他默认只能用邮箱验证码啊。
+
+258B1C4E-57ED-4B3D-8091-037DAB48CABE.png
+(345.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/125741zrkarrn78nps8snn.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RJG丶one  
+##### 356#       发表于 2021-12-25 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043073&amp;ptid=2043948" target="_blank">kzf 发表于 2021-12-25 19:45</a>
+
+看电玩巴士的微博是加黑名单了？
+
+—— 来自 Xiaomi MI 8, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+九月份就有截图说黑名单了
+
+我这边是客户端随便用，网页看dns什么时候解析到一个能用的ip，用站长工具或者直接tcping之类的东西测了，实在是不明白你们是什么情况。
+
+客户端链接的远程ip可以在任务管理器-性能-资源监视器-网络，排序，找到steamwebhelper，看它远程接到哪儿了，我这客户端是真真的连着境内一个ip用的好好的
+
+*****
+
+####  afer  
+##### 357#       发表于 2021-12-25 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dragrass  
+##### 358#       发表于 2021-12-25 19:58
+
+这次很奇怪的是没引起太大反响，没怎么发酵
+
+14年，17年Steam都被墙过，14年那次我印象很深刻，当时全网炸锅，从CHH到贴吧，从知乎到NGA
+[https://games.qq.com/a/20141023/057403.htm](https://games.qq.com/a/20141023/057403.htm)
+
+17年那次发酵得也很快
+
+*****
+
+####  九一式  
+##### 359#       发表于 2021-12-25 19:59
+
+psn 的cdn我最近一年都上不去 
+
+*****
+
+####  920619lqy  
+##### 360#       发表于 2021-12-25 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043080&amp;ptid=2043948" target="_blank">nozomitech 发表于 2021-12-25 05:45</a>
+
+完了，你们别他妈吵了，我突然发现如果steam令牌用的QQ邮箱，现在验证码收不到了，现在我登都登不了，不是 ...</blockquote>
+虽然现在说太迟了，但是steam那个垃圾手机令牌有提供备用码，可以应急用（如果用的是邮箱验证码那就凉了吧
+
+
+
+*****
+
+####  afer  
+##### 361#       发表于 2021-12-25 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043175&amp;ptid=2043948" target="_blank">nozomitech 发表于 2021-12-25 19:53</a>
+
+之前就是懒得换所以拖到现在</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我最早就是塔科夫的登录邮件收不到，10封能收到一次，就趁那一次我换163没事了，从此diss QQ邮箱
+
+*****
+
+####  圣罗.希露温  
+##### 362#       发表于 2021-12-25 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043169&amp;ptid=2043948" target="_blank">白石 发表于 2021-12-25 19:53</a>
+
+还是自认铁拳不会砸到我身上不过这点程度也不配叫加速，比如说把NBA彻彻底底封了，那才算真踩了油 ...</blockquote>
+臭玩游戏的也就是嘴上发几句牢骚，来真家伙的已经进去了，与其说自认铁拳不会砸自己身上，不如说有些就是被砸过了，已经无所谓的心态了 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nozomitech  
+##### 363#       发表于 2021-12-25 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043250&amp;ptid=2043948" target="_blank">920619lqy 发表于 2021-12-25 12:59</a>
+
+虽然现在说太迟了，但是steam那个垃圾手机令牌有提供备用码，可以应急用（如果用的是邮箱验证码那就凉了 ...</blockquote>
+这个问题应该不大，我有别的设备还登着我号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，只是最近换了新手机想在新手机上登录，我研究一下怎么换那个邮箱。
+
+*****
+
+####  RJG丶one  
+##### 364#       发表于 2021-12-25 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043244&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 19:58</a>
+
+这会好了，但是支付宝支付不行，用微信就可以，怪腾讯石锤了。 ...</blockquote>
+这会儿又测了一下，相比于下午红黄交叉的测试结果，可以说是“全绿”了…
+
