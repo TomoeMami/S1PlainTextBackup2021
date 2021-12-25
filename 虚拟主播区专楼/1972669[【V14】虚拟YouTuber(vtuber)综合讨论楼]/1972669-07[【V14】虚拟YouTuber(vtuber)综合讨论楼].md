@@ -6334,3 +6334,16 @@ syl
 
 估计装死
 
+
+
+*****
+
+####  fastary  
+##### 9526#       发表于 2021-12-25 13:26
+
+ 本帖最后由 fastary 于 2021-12-25 13:32 编辑 
+
+你虹对策部门装死正常，vox无论真假都得做点什么了吧，推特follow也被mysta超了(虽然订阅还多5k)<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不过看他正常发推感觉和vade当时一样也会选择装死反正摆烂也有粉
+
+(或者单纯没法反驳所以只能装死……)
+

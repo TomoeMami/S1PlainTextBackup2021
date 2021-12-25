@@ -14690,3 +14690,38 @@ HWB-M8 是新怪
 
 杀狐说了不熟，玉藻说了不是，那妲己到底是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85381#       发表于 2021-12-25 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039388&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-25 13:05</a>
+虽然他们都奶晴明，但是我觉得新年从者是麻婆怎么破
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+我也希望是麻婆，人王这个料太大了估计会放到周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85382#       发表于 2021-12-25 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039405&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-25 13:06</a>
+垫晴明很好啊，bgo没了论坛贴吧也没了，多清净啊。</blockquote>
+玉藻就是嘴硬，但经常会说漏嘴
+
+*****
+
+####  KOBI  
+##### 85383#       发表于 2021-12-25 13:33
+
+ 本帖最后由 KOBI 于 2021-12-25 13:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">可垫晴明一点也不“CP脑”啊
+
+被柯杨小姐抓回去当眷属然后真妲己出现靠“爱之力”脱离更符合目前的人物塑造吧
+
+不过真的别出中国从者是真的
+

@@ -927,3 +927,706 @@ gitee不算github的替代品吗？为什么没人用？<img src="https://static
 
 早就该管管了！
 
+
+
+*****
+
+####  repal  
+##### 95#       发表于 2021-12-25 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038067&amp;ptid=2043808" target="_blank">路特 发表于 2021-12-25 10:32</a>
+ 不管怎么说 这个时间点搞steam肯定是步臭棋，我兔还是内鬼很多啊…</blockquote>
+兔友还是看得起自己，学不来，羡慕
+
+*****
+
+####  920619lqy  
+##### 96#       发表于 2021-12-25 10:44
+
+<blockquote>伽蓝寺听雨 发表于 2021-12-24 18:57
+我还说就这狗屎折扣力度怎么能把服务器搞崩，这下咸因了</blockquote>
+steam在我有印象的最近一次被挤爆是steamdeck开预订排队的时候。之后的几次促销都是正常的，大概比开了阿哈利姆迷宫的dota2还要稳。
+
+*****
+
+####  Nieven  
+##### 97#       发表于 2021-12-25 10:44
+
+<blockquote>路特 发表于 2021-12-25 10:32
+不管怎么说 这个时间点搞steam肯定是步臭棋，我兔还是内鬼很多啊…</blockquote>
+我很好奇，什么才算是所谓的好棋？铁拳在意过这些东西吗？
+
+*****
+
+####  920619lqy  
+##### 98#       发表于 2021-12-25 10:44
+
+<blockquote>路特 发表于 2021-12-24 20:32
+不管怎么说 这个时间点搞steam肯定是步臭棋，我兔还是内鬼很多啊…</blockquote>
+你也配喊兔
+
+*****
+
+####  thecatnie  
+##### 99#       发表于 2021-12-25 10:44
+
+<blockquote>otaku21126 发表于 2021-12-25 10:32
+坚决遵守法律法规，绝不私自架设网络代理服务器技术设置。游戏不能玩就算了，生活还是照样过。
+
+我看最近一 ...</blockquote>
+男性市场的偶像？谁啊？丁真吗？你还好这口？喜欢异域风情？
+
+*****
+
+####  aruruu  
+##### 100#       发表于 2021-12-25 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038124&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-25 10:39</a>
+去steam吧就是另一幅光景了，贴吧基本都是赞歌的，唱衰的都被喷爆</blockquote>
+我怀疑steam吧就没有几个玩游戏的，都只玩贴吧
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  千古奇冤施密特  
+##### 101#       发表于 2021-12-25 10:49
+
+<blockquote>920619lqy 发表于 2021-12-25 10:42
+（先不提技术细节，就说这个一点一点墙，分地区分时段墙的操作手法）都是当年google享受过的待遇了，有什 ...</blockquote>
+github被封过一段时间，现在也是这个待遇，github被封据说惊动了李开复，他打了电话给领导就解掉了，所以这也是未知的，就看完美的那谁有没有李开复的能量大咯
+
+*****
+
+####  ‮agur4kI  
+##### 102#       发表于 2021-12-25 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038067&amp;ptid=2043808" target="_blank"> 路特 发表于 2021-12-25 10:32</a> 不管怎么说 这个时间点搞steam肯定是步臭棋，我兔还是内鬼很多啊… </blockquote>
+很有主人翁意识啊，坛友处级以上了吧来自: iPhone客户端
+
+*****
+
+####  千古奇冤施密特  
+##### 103#       发表于 2021-12-25 10:50
+
+<blockquote>aruruu 发表于 2021-12-25 10:47
+我怀疑steam吧就没有几个玩游戏的，都只玩贴吧
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 ...</blockquote>
+得了吧，你潭天天说别的地方都不玩游戏，游戏媒体不玩游戏，贴吧不玩游戏，nga不玩游戏，搞得好像玩游戏很困难一样。。。。这婆罗门恶臭溢出严重啊
+
+*****
+
+####  chivalry  
+##### 104#       发表于 2021-12-25 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">操了，这两天商店死活打不开，折扣都进不去我还以为我这网络叒挂了
+
+*****
+
+####  onlv星骸  
+##### 105#       发表于 2021-12-25 10:52
+
+反正我这几天开商店要开加速器才能打开
+
+*****
+
+####  千古奇冤施密特  
+##### 106#       发表于 2021-12-25 10:53
+
+楼上几位着急的很啊，一个兔字就直接喷爆了，你们平时不应该yygq遗世独立嘛，怎么，装不下去了？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 6战斗力 -11
+
+|昵称|战斗力|理由|
+|----|---|---|
+| HOLIDAY|-2|哈哈，你这在其他贴里面貌也不一样啊，装不.|
+| Existinghomes|-2|滚回你外野去|
+| evagle|-2|思路广|
+| temsep|-2|急了|
+| aruruu|-1|欢乐多|
+| 魂狩?月|-2|麻辣兔头真好吃！|
+
+查看全部评分
+
+*****
+
+####  otaku21126  
+##### 107#       发表于 2021-12-25 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038180&amp;ptid=2043948" target="_blank">thecatnie 发表于 2021-12-25 10:44</a>
+
+男性市场的偶像？谁啊？丁真吗？你还好这口？喜欢异域风情？</blockquote>
+皮套人越来越走上正轨了，现在的皮套人产业大概是影视明星90年代的发展程度，或将马上迎来属于皮套人的00年代大发展
+
+央视辽宁分台的王记者今年屁大点活动就上个微博热搜top10，毫无疑问不会是自发搜索或者她本人出钱买的，那只能是央视自己买的。央视现在能懂像王记者这种个人能力和形象在传统评价体系里不是很出众的人员在男性市场中虽然不是很多但确实存在的影响力，那可以期待央视通过选拔推出能力和形象更优秀的针对男性受众的边缘领域宣传人士
+
+当然，不喜欢这些也不妨碍。人类永远不缺娱乐手段。
+
+逃荒的人还宁可耗费总量不多的体力磕虱子也要娱乐呢。怎么都能娱乐，电子游戏能玩能娱乐，电子游戏不能玩也能娱乐。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zyz9408|-1|思路广|
+
+查看全部评分
+
+*****
+
+####  qzy741147  
+##### 108#       发表于 2021-12-25 10:56
+
+真的快寄了，现在狗洞大师可以开始表演了吗
+
+*****
+
+####  椎名mahuyo  
+##### 109#       发表于 2021-12-25 10:59
+
+跟我想的差不多，现在就是一步步恶心国内用STEAM的体验，如果搞的大部分人都不想上，进行下一步就没多大阻力了
+
+*****
+
+####  Viteeee  
+##### 110#       发表于 2021-12-25 11:01
+
+A.“不让你们玩游戏还能反了不成？”
+B.“这年头还有不会科学上网的？”
+C.“我能上去啊，是不是你自己的问题？”
+D.“没事，还有3DM”
+E.“太平洋不加盖，爱待待不待滚”
+F.“不让你玩怎么啦，有本事井啊？”
+G.“看婆罗门跳脚真开心”
+
+大家对喷时不想打字的，可以直接输序号代替<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Sevenzerofive| + 1|R 润了（）|
+| tivipax| + 1|好评加鹅|
+| shyso| + 1|讲真，26个字母可能不太够用|
+| otaku21126| + 1|ABCDEFG|
+
+查看全部评分
+
+*****
+
+####  路特  
+##### 111#       发表于 2021-12-25 11:02
+
+看到没，楼上这些东西跟饿疯了的野狗看到吃的一样，随便一点鱼饵就跳出来群起攻之。现在中文互联网就是这样的环境，任何一个可以引爆舆情的事件都被盯着，这个时间点再继续叠各种debuff下去只怕这两年在年轻人群体中间建立的正面宣传会被消耗殆尽，当然分裂后两边互相攻击说不定更麻烦。
+不过内外宣都是反贼的情况下冲击一下说不定更好，说不定就不破不立了。
+steam嘛，谁关心？都是利益冲突罢了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 11战斗力 -17
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Sevenzerofive|-1|欢乐多|
+| Parsifer|-1|这唯我独醒的味呀|
+| tivipax|-1|老路中肯|
+| Existinghomes|-1|滚回外野让他们给你加回来|
+| Hidewhite|-2|欢乐多|
+| temsep|-2|思路广|
+| ‮agur4kI|-1|舆情评论员主人翁意识收一收，你成了处长我.|
+| qzy741147|-2|不如想想为什么有这么多舆情可以引爆而不是.|
+| 乱吃食cat|-2|滚|
+| 魂狩?月|-2|喷了|
+| 920619lqy|-2|什么饿疯了的你兔|
+
+查看全部评分
+
+*****
+
+####  runningcost  
+##### 112#       发表于 2021-12-25 11:02
+
+这也内鬼啊？有没有可能别人才是钢铁意志你是思想出问题的那个？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ‮agur4kI| + 1|狼人游戏里，就是狼人最喜欢装.|
+
+查看全部评分
+
+*****
+
+####  Sevenzerofive  
+##### 113#       发表于 2021-12-25 11:05
+
+现在用加速器倒是能进，但是不敢买<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 114#       发表于 2021-12-25 11:13
+
+🍾🍾🍾
+
+*****
+
+####  ciokex  
+##### 115#       发表于 2021-12-25 11:17
+
+如果过几天还恢复不了，那大概是就这样了，借着steam东风吊着口气的国产单机这回估计是真的要入土了。
+
+*****
+
+####  千古奇冤施密特  
+##### 116#       发表于 2021-12-25 11:19
+
+<blockquote>椎名mahuyo 发表于 2021-12-25 10:59
+跟我想的差不多，现在就是一步步恶心国内用STEAM的体验，如果搞的大部分人都不想上，进行下一步就没多大阻 ...</blockquote>
+看是谷歌模式还是github模式了，大概率和github一样，因为没有百度那样的替代品，13年封github让李开复发微博搞得非常被动，后面就开始温水煮青蛙模式了
+
+*****
+
+####  千古奇冤施密特  
+##### 117#       发表于 2021-12-25 11:23
+
+<blockquote>路特 发表于 2021-12-25 11:02
+看到没，楼上这些东西跟饿疯了的野狗看到吃的一样，随便一点鱼饵就跳出来群起攻之。现在中文互联网就是这样 ...</blockquote>
+你这是古早理论了，去年也许还能用用，网宣这块一直认识的很清楚，未来的主要矛盾还是贫富分化，阶级矛盾，扯民族主义的东西最后都很难不会滑向极端，这就是所谓的神兔二象性
+
+*****
+
+####  ianny544  
+##### 118#       发表于 2021-12-25 11:27
+
+打个游戏都不让打，这都不润么
+
+*****
+
+####  阿尔及利亚  
+##### 119#       发表于 2021-12-25 11:31
+
+卧槽，steam吧这个狗洞钻的老胡都自愧不如
+
+*****
+
+####  朔方原的星  
+##### 120#       发表于 2021-12-25 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038044&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 10:29</a>
+
+看NGA说好像是区域性，间断性地墙，跟github一个待遇，你潭感觉完全没nga专业啊，只知道yygq，nga好歹能 ...</blockquote>
+泥潭俩楼四页没一个试试能不能复现的，我这试了几个都是要么全通要么一起寄，没试出443和80有区别的，这种是不是局部开了污染的事就需要各地的人一起试出结果，结果算上v2那帖里一共就一个尝试复现的，那人也是全通根本没结果......<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  uswhzh  
+##### 121#       发表于 2021-12-25 11:35
+
+github十次能连一次，steam这么玩连付款都进行不了。
+
+*****
+
+####  千古奇冤施密特  
+##### 122#       发表于 2021-12-25 11:40
+
+<blockquote>朔方原的星 发表于 2021-12-25 11:34
+泥潭俩楼四页没一个试试能不能复现的，我这试了几个都是要么全通要么一起寄，没试出443和80有区别的，这 ...</blockquote>
+拿楼上那个恶臭婆罗门的话说，只怕这贴里相当多人是真不玩游戏。。。。
+
+*****
+
+####  ‮agur4kI  
+##### 123#       发表于 2021-12-25 11:42
+
+ 本帖最后由 ‮agur4kI 于 2021-12-25 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038536&amp;ptid=2043948" target="_blank"> 阿尔及利亚 发表于 2021-12-25 11:31</a> 卧槽，steam吧这个狗洞钻的老胡都自愧不如 </blockquote>
+[https://tieba.baidu.com/p/7671388127](https://tieba.baidu.com/p/7671388127?prev=frs&amp;source=index#142610024628l)给补个链接，学习抱团取暖先进技巧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+来自: iPhone客户端
+
+*****
+
+####  木架穷奇  
+##### 124#       发表于 2021-12-25 11:46
+
+IT狗检测确实是墙了，但是steam客户端倒是能上去，不懂是什么原理，日拱一卒是吧
+
+*****
+
+####  qazesz  
+##### 125#       发表于 2021-12-25 11:49
+
+技术性调整罢了，不要惊慌
+
+*****
+
+####  朔方原的星  
+##### 126#       发表于 2021-12-25 11:50
+
+ 本帖最后由 朔方原的星 于 2021-12-25 11:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038604&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 11:40</a>
+
+拿楼上那个恶臭婆罗门的话说，只怕这贴里相当多人是真不玩游戏。。。。 ...</blockquote>
+全世界都几把不在乎我也懒得浪费时间了，爱咋样咋样吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">聊了一圈真的没一个试试的，我服了，那你们在他妈聊啥啊
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 久保由利香| + 1|太老实了|
+
+查看全部评分
+
+*****
+
+####  aruruu  
+##### 127#       发表于 2021-12-25 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038226&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 10:50</a>
+
+得了吧，你潭天天说别的地方都不玩游戏，游戏媒体不玩游戏，贴吧不玩游戏，nga不玩游戏，搞得好像玩游戏 ...</blockquote>
+喷了，谁说nga、媒体的你找谁去，扣那么多帽子还要画靶子打，整天你谭你谭挂在嘴上，到底谁恶臭啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aruruu  
+##### 128#       发表于 2021-12-25 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038604&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 11:40</a>
+
+拿楼上那个恶臭婆罗门的话说，只怕这贴里相当多人是真不玩游戏。。。。 ...</blockquote>
+没人测试=真不玩游戏，偷换概念还是你牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有优越感的人mk2  
+##### 129#       发表于 2021-12-25 11:57
+
+可以看蒸蒸人乐子了吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  暗影之诗  
+##### 130#       发表于 2021-12-25 12:03
+
+IT狗的这个检测就很奇怪，除了蒸汽和一些已经失效的网站外，没有那个网站是dns没被污染，但显示被墙的。
+
+GITHUB就更离谱了，两个都是绿的我这却完全上不去。
+
+另外蒸汽商店还有个离谱的地方时，我开分流依旧会时好时坏，必须全局或者反代
+
+*****
+
+####  2082082012  
+##### 131#       发表于 2021-12-25 12:05
+
+网页版裸连不行，挂上梯子秒进<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  边缘中心  
+##### 132#       发表于 2021-12-25 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038067&amp;ptid=2043808" target="_blank">路特 发表于 2021-12-25 10:32</a>
+不管怎么说 这个时间点搞steam肯定是步臭棋，我兔还是内鬼很多啊…</blockquote>
+不是，平头老百姓也配说人家内鬼？没准人家还觉得你反贼呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千古奇冤施密特  
+##### 133#       发表于 2021-12-25 12:11
+
+<blockquote>aruruu 发表于 2021-12-25 11:52
+喷了，谁说nga、媒体的你找谁去，扣那么多帽子还要画靶子打，整天你谭你谭挂在嘴上，到底谁恶臭啊 ...</blockquote>
+嘿，不敢正面回答了？又是只会转进这一套
+
+*****
+
+####  千川ちひろ  
+##### 134#       发表于 2021-12-25 12:13
+
+好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千古奇冤施密特  
+##### 135#       发表于 2021-12-25 12:13
+
+<blockquote>aruruu 发表于 2021-12-25 11:52
+喷了，谁说nga、媒体的你找谁去，扣那么多帽子还要画靶子打，整天你谭你谭挂在嘴上，到底谁恶臭啊 ...</blockquote>
+你潭不是s1潭友经常说的嘛，现在又换风向变成坏词了？没见着有人说这个事啊
+
+*****
+
+####  南去  
+##### 136#       发表于 2021-12-25 12:14
+
+<img src="https://img.saraba1st.com/forum/202112/25/121356xzzu3nuz8h4dtd52.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211225121328.png</strong> (74.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 12:13 上传
+
+*****
+
+####  ‮agur4kI  
+##### 137#       发表于 2021-12-25 12:21
+
+手机客户端可以上，http上不了，https看一次可以，然后后面也不行了
+就算能进去也要转很久
+来自: iPhone客户端
+
+*****
+
+####  HOLIDAY  
+##### 138#       发表于 2021-12-25 12:22
+
+ 本帖最后由 HOLIDAY 于 2021-12-25 12:36 编辑 
+
+就今天、哪怕只有今天也好<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">狗洞大师，让我带你们走吧，呜呜呜
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼主我就问你能不能把标题改劲爆点，把爱钻狗洞的小杂种们引进来杀。
+
+*****
+
+####  最好不说  
+##### 139#       发表于 2021-12-25 12:27
+
+芜湖，好死
+
+*****
+
+####  dlboy1981  
+##### 140#       发表于 2021-12-25 12:28
+
+打电话给网络服务商呀，工信部投诉12345市长信箱，来一套。
+
+*****
+
+####  椎名mahuyo  
+##### 141#       发表于 2021-12-25 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038449&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 11:19</a>
+
+看是谷歌模式还是github模式了，大概率和github一样，因为没有百度那样的替代品，13年封github让李开复发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别想太多了，我觉得真的要急的是那些国内做游戏的
+
+我们这些把能做的都做了，埋头游戏差不多得了
+
+*****
+
+####  jf8350143  
+##### 142#       发表于 2021-12-25 12:31
+
+我昨天还买了新游戏……今天试了下也是正常登录的
+
+*****
+
+####  JC_AR  
+##### 143#       发表于 2021-12-25 12:34
+
+客户端商店页面打不开，118
+
+*****
+
+####  煌焰  
+##### 144#       发表于 2021-12-25 12:40
+
+怪不得这两天裸连都上不去，真就温水煮青蛙啊，最神奇的是确实有用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leliel  
+##### 145#       发表于 2021-12-25 12:41
+
+同样使用家里的网络，我手机上不了，但电脑能上是什么原因啊
+
+*****
+
+####  kevinausting  
+##### 146#       发表于 2021-12-25 12:44
+
+我这一会儿好一会儿坏
+
+*****
+
+####  CswStar  
+##### 147#       发表于 2021-12-25 12:45
+
+不会真的重回三大妈的时代吧.....估计会更糟，三大妈的时代塔还没有那么先进的赛博时代手段.......
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  hyiang98  
+##### 148#       发表于 2021-12-25 12:45
+
+别天天狗洞了，真的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  千古奇冤施密特  
+##### 149#       发表于 2021-12-25 12:50
+
+<blockquote>椎名mahuyo 发表于 2021-12-25 12:29
+别想太多了，我觉得真的要急的是那些国内做游戏的
+
+我们这些把能做的都做了，埋头游戏差不多得了 ...</blockquote>
+只是觉得光steam墙贴的回复来看，nga好歹就事论事，你潭上来就是屁股大战，好多都是连去上一下都不肯的人，这是哪来的脸骂人是屎坑的呢
+
+*****
+
+####  tepk  
+##### 150#       发表于 2021-12-25 12:54
+
+我还以为是我的网不行了，一会能上一会不行的，现在客户端商店页面是彻底打不开了，网页版倒是还行
+
+大盗版时代是不可能回去了，趁水温还不算太烫还能装作在洗澡的样子，能熬一天是一天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Booorunestud  
+##### 151#       发表于 2021-12-25 13:00
+
+ 本帖最后由 Booorunestud 于 2021-12-25 13:03 编辑 
+
+编辑，找到了
+
+*****
+
+####  煌焰  
+##### 152#       发表于 2021-12-25 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039259&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 12:50</a>
+
+只是觉得光steam墙贴的回复来看，nga好歹就事论事，你潭上来就是屁股大战，好多都是连去上一下都不肯的人 ...</blockquote>
+NGA的讨论帖已经被锁了，就事论事是你想论就论的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  minamichisei  
+##### 153#       发表于 2021-12-25 13:06
+
+我老早就日常118必须挂小软件才能看商店了，说实话加速器、支付手段和国内下载服务器还没给你端掉日子该咋过咋过呗，润不掉不就这样得过且过，哭又哭不死董卓，有功夫哭不如强化条件早日润，或者广积粮做准备。天天感恩上面也不会领情，每天惦记着这事也只会越来越糟心
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| HOLIDAY|-2|不糟心，看狗洞大师音量弱下来实际很爽.|
+
+查看全部评分
+
+*****
+
+####  r_ex  
+##### 154#       发表于 2021-12-25 13:07
+
+该学俄语了？
+
+—— 来自 BlackBerry BBF100-4, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  egged5  
+##### 155#       发表于 2021-12-25 13:11
+
+gitee不算github的替代品吗？为什么没人用？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  星空天神  
+##### 156#       发表于 2021-12-25 13:13
+
+南京 网页段商店有时能打开 客户端商店打不开
+
+*****
+
+####  gdsgdfhd  
+##### 157#       发表于 2021-12-25 13:17
+
+早就该管管了！
+
+*****
+
+####  物理毒狗  
+##### 158#       发表于 2021-12-25 13:36
+
+移动人下人以前日常史蒂姆崩溃，现在网络情况反而好多了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">跟着某图刷了三分钟也没法复现问题，商店活动贴纸倒是不挂加速领不到。
+
+*****
+
+####  你这瓜保熟吗  
+##### 159#       发表于 2021-12-25 13:37
+
+重庆，从早上八点到现在都进不去，魔法秒进
+
+*****
+
+####  akys  
+##### 160#       发表于 2021-12-25 13:38
+
+我看也未必-其实都一样-早该管管了 
+现在在第几步啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Tomek  
+##### 161#       发表于 2021-12-25 13:41
+
+所以现在有没有老哥总结一下到底是啥问题
+
+*****
+
+####  chenzl  
+##### 162#       发表于 2021-12-25 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54037598&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 09:29</a>
+
+不过楼主这id怪恶心的，正常中国男人会喜欢这货？</blockquote>
+？？？？
+
+什么情况，你什么意思这ID怎么了
+
