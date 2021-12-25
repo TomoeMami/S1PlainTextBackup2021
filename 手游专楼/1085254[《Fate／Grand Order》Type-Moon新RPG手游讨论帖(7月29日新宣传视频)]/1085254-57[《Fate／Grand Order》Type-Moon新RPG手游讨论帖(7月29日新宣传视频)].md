@@ -15152,3 +15152,28 @@ dw，我的fw服务器
 
 哪路杂鱼啊，通天手下想不起来有这等人了
 
+
+
+*****
+
+####  黑上シグマ  
+##### 85424#       发表于 2021-12-25 20:49
+
+神TM完全无效wwwwwwww
+
+*****
+
+####  Lokad  
+##### 85425#       发表于 2021-12-25 20:55
+
+越看越乐，太公望对妲己对策失败后各种念名号，这副小丑摸样绝对炸锅了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 85426#       发表于 2021-12-25 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要在主线搞这种搞笑效果啦，又不是道满
+
+不过如果真的对妲己的话双特攻宝具感觉确实能钉死？
+

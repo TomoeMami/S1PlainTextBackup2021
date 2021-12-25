@@ -6698,3 +6698,22 @@ kmt回到实家的安心感，对比之前几局话好多<img src="https://stati
 
 YuNi_Official
 
+
+
+*****
+
+####  rzrbtk  
+##### 9556#       发表于 2021-12-25 20:42
+
+ 本帖最后由 rzrbtk 于 2021-12-25 20:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043215&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-12-25 19:56</a>
+
+倒不如说我压根看不出康米姐有受什么影响，订阅同期最高（因为有欧派）酒照喝俄语照讲
+
+相较en虹女整体没 ...</blockquote>
+也许是因为人比较会说，反正视频里挺有精神也能讲话。
+
+省一楼，一年一度月之圣诞歌回，真是年味渐浓啊（刚才爆炸完败者食尘了一次，年味更浓了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+我看明白了，月之在演忌日快乐（也没有很像，也许是JOJO）啊！不知道会不会有凶手役
+

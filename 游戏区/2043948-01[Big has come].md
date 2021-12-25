@@ -4077,3 +4077,97 @@ psn 的cdn我最近一年都上不去
 
 为啥我网卡的时候，开论坛都转半天，steam每次都能完美打开，现在网顺畅了反而打不开了...........
 
+
+
+*****
+
+####  lanhao  
+##### 383#       发表于 2021-12-25 20:50
+
+最经典的还是如果风头一过，某些人就马上回喷回去了，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">突然仿佛所有gfw所有圣光黑幕所有下架都不存在了，甚至施害人都换了。
+有些时候真不知道这是中文互联网的局限性，还是人自身的问题。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 384#       发表于 2021-12-25 20:51
+
+不唱衰是准备叫好嘛。。。
+
+*****
+
+####  RJG丶one  
+##### 385#       发表于 2021-12-25 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043926&amp;ptid=2043948" target="_blank">白活这一生 发表于 2021-12-25 20:40</a>
+
+是针对域名来的，只要你访问steampowered.com不管解析到什么国外IP，都会禁止你访问这个ip一段时间。 ...</blockquote>
+我这里不是这个情况，我拿dpkg.org和pkgs.org的ip用hosts跳转，报不安全，继续后没有被重置…
+
+*****
+
+####  天堂蜘蛛  
+##### 386#       发表于 2021-12-25 20:56
+
+还是那句话，自己不要被变成代价就可以了
+
+*****
+
+####  嘉术2015  
+##### 387#       发表于 2021-12-25 20:56
+
+我今天才知道原来以前大家是可以裸上蒸汽的吗
+
+*****
+
+####  雪风utopia  
+##### 388#       发表于 2021-12-25 20:58
+
+能不能直接说结论，除了有点卡什么影响好像都没有<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 389#       发表于 2021-12-25 20:58
+
+<blockquote>嘉术2015 发表于 2021-12-25 06:56
+我今天才知道原来以前大家是可以裸上蒸汽的吗</blockquote>
+如果你不把社区和好友列表视为steam的一部分的话
+
+*****
+
+####  白活这一生  
+##### 390#       发表于 2021-12-25 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044188&amp;ptid=2043948" target="_blank">RJG丶one 发表于 2021-12-25 20:55</a>
+
+我这里不是这个情况，我拿dpkg.org和pkgs.org的ip用hosts跳转，报不安全，继续后没有被重置… ...</blockquote>
+可能不是全部地区和运营商，明显的地方很明显，刷新几遍steampowered.com，443端口就废了。
+
+
+
+*****
+
+####  Narrative  
+##### 391#       发表于 2021-12-25 21:01
+
+又不行了
+
+*****
+
+####  Tring  
+##### 392#       发表于 2021-12-25 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044248&amp;ptid=2043948" target="_blank">雪风utopia 发表于 2021-12-25 20:58</a>
+
+能不能直接说结论，除了有点卡什么影响好像都没有</blockquote>
+结论就是和几个月前墙GITHUB上用的新技术差不多。
+
+而当时的GITHUB，在一段时间内越来越差，直到完全无法访问。
+
+之后的一段时间，又稍微有所好转，但一直维持着好几分钟抽几分钟的程度，
+
+持续至今。
+
+至于STEAM以后究竟会怎样，那种预言说啥都不如你自己去想。
+

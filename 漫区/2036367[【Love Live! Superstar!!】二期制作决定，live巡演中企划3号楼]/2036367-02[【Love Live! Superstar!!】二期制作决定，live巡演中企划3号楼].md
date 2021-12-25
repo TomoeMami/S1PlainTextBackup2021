@@ -10965,3 +10965,101 @@ FDAD1F3E-8E1E-4667-8692-1E2236B6F6F1.jpeg
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 2427#       发表于 2021-12-25 20:50
+
+可可也只是因为中华炮而已，实际上一般的（）
+
+*****
+
+####  优妮可  
+##### 2428#       发表于 2021-12-25 20:51
+
+<img src="https://img.saraba1st.com/forum/202112/25/205111hv4jpqygwy4vf84t.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1640436514887.jpg</strong> (221.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 20:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/205112wnzthbh1uwuu6off.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1640436508494.jpg</strong> (203.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 20:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/205112p68qqhaq7qr9treq.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1640436512122.jpg</strong> (183.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 20:51 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/205112y4iyzd9ynrmyyr68.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1640436506638.jpg</strong> (183.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 20:51 上传
+
+*****
+
+####  chenflyyy  
+##### 2429#       发表于 2021-12-25 20:54
+
+恋恋的人气只能靠二期动画才能救了，即使青山再优秀歌曲再好也很难救回，毕竟动画才是传播最广的，花田来点作用啊，做不到直接滚好吗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 2430#       发表于 2021-12-25 20:55
+
+过去?这我就不得不提一下胶水手露比了，活活把人气给玩没了
+
+
+
+*****
+
+####  musicat  
+##### 2431#       发表于 2021-12-25 20:56
+
+圣诞节还要打工的小偶像啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 2432#       发表于 2021-12-25 20:58
+
+记得之前播出的时候就有人讲过
+
+看来不是花田的爱好问题 是能力问题 他就只会这么写
+
+被迫害担当的用力过猛问题和正经角色的谐星化问题成了他造梗和推动剧情发展的唯一手段
+
+我恐怕第二季只会变本加厉
+
+*****
+
+####  红叶  
+##### 2433#       发表于 2021-12-25 20:58
+
+明年 哦 不对 后年 有机会上红白吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  macos  
+##### 2434#       发表于 2021-12-25 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043265&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-25 20:00</a>
+合照</blockquote>
+大鱼海唐
+
