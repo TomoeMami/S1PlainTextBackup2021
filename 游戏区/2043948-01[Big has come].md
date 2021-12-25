@@ -2319,3 +2319,76 @@ CIA真该给方bx颁一个国会金质勋章
 
 这次的部门有能力管出口，可能权限更高<img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GALLADE  
+##### 226#       发表于 2021-12-25 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040859&amp;ptid=2043948" target="_blank">nessaj 发表于 2021-12-25 16:05</a>
+
+我发现了，狗洞大师们都偏兔，不会钻洞的一个比一个恨国想润
+
+方bx是头号1450实锤了，**墙把多年的内外宣工 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞧瞧这XX不识字何故乱翻书的死相，搁那盛唐李世民也就联合你爹最多日掉你伟大传统文化里4个常用字而已，今天你这无父无君的逆种皇帝清单都有多长了啊谁给你写的清单啊
+
+*****
+
+####  zashou  
+##### 227#       发表于 2021-12-25 16:30
+
+<blockquote>nessaj 发表于 2021-12-25 16:05
+我发现了，狗洞大师们都偏兔，不会钻洞的一个比一个恨国想润
+
+方bx是头号1450实锤了，**墙把多年的内外宣工 ...</blockquote>
+狗洞大师只是以会钻洞为荣，并不是只有狗洞大师会钻洞。
+
+只是除去狗洞大师之外的种族都觉得不得不钻洞是一种无奈且不正常的事罢啦。
+
+*****
+
+####  RJG丶one  
+##### 228#       发表于 2021-12-25 16:31
+
+测了半天解析到的全是美国，中间夹个荷兰<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+我还是倾向于网页版steam扩容扩到墙的死地去了，客户端区域内置了dns，能得到稳定的ip，网页版得到的ip是随机扩容的，谁知道被没被屏蔽过…
+
+<img src="https://img.saraba1st.com/forum/202112/25/162306xrrwwrz6smnessse.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 16:23 上传
+
+*****
+
+####  vaststars  
+##### 229#       发表于 2021-12-25 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040972&amp;ptid=2043948" target="_blank">RJG丶one 发表于 2021-12-25 16:21</a>
+
+我解析不到香港或者日本的akamai节点了，全部往美国本土灌，被截断很正常。
+
+怎么指定解析到香港啊？我这开 ...</blockquote>
+dns变化自己没招
+
+有个叫UsbEAm Hosts Editor工具和steamcommunity_302是一个作者的
+
+可以方便的修改steam目标地址
+
+不过我测了，对目前的干扰方式没什么鸟用<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+不太确定两者一起开启有什么用
+
+*****
+
+####  Viteeee  
+##### 230#       发表于 2021-12-25 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039936&amp;ptid=2043948" target="_blank">缺德猫 发表于 2021-12-25 14:08</a>
+等一个“欢迎Steam回归中国大陆，但必须遵守中国法律 ”</blockquote>
+不是“我们从未封锁任何网站，都是网站自己的问题”么？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
