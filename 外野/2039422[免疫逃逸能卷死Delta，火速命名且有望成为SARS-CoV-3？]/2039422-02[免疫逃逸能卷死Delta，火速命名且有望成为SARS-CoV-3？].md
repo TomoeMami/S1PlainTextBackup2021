@@ -8277,3 +8277,17 @@ omega也是o
 传播我倒是不报希望</blockquote>
 实际死亡率和传播速度是相关的，而且高速传播造成的医疗挤兑能增加其他疾病的死亡率。
 
+
+
+*****
+
+####  smy20011  
+##### 2200#       发表于 2021-12-25 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038464&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-25 11:21</a>
+
+实际死亡率和传播速度是相关的，而且高速传播造成的医疗挤兑能增加其他疾病的死亡率。 ...</blockquote>
+但是这波南非也没见到医疗挤兑啊 住院已经下降了
+
+住院资源也会随着年份逐渐增加 特效药的出现也会减少住院时间
+
