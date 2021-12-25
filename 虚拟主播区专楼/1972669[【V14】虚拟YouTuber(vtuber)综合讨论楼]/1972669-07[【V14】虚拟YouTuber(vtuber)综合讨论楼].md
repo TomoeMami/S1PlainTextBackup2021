@@ -6289,3 +6289,19 @@ syl
 16岁的时候会在粉丝群里跟女孩子调情(包括12 ...</blockquote>
 还有据说放纵频道成员怒斥kpop粉丝！然后透露者也顺便踩了一脚说“确实人家品味差但也不能骂人啊”，kpop粉好惨😭
 
+
+
+*****
+
+####  本间日阳  
+##### 9521#       发表于 2021-12-25 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最让我吃惊的地方是他竟然这么年轻
+
+*****
+
+####  FCCHua  
+##### 9522#       发表于 2021-12-25 10:25
+
+同样对实际年龄感到震惊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

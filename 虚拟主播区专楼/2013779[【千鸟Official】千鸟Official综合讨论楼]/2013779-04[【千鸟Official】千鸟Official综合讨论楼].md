@@ -1379,3 +1379,21 @@ Merry x'mas<img src="https://static.saraba1st.com/image/smiley/face2017/170.png"
 “太三次元的事情说了就不虚拟了，肯定不会发的”
 “我被抓去隔离了”
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4647#       发表于 2021-12-25 10:23
+
+复查路过中高风险地区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  伞沢直美  
+##### 4648#       发表于 2021-12-25 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，如果静子被捉去隔离了，那么跟京紫同处一室，整日贴贴的其他几个……
+
