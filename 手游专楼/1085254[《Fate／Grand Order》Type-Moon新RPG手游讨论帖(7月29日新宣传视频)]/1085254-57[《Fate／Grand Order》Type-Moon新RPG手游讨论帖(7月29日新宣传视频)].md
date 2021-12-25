@@ -14629,3 +14629,43 @@ HWB-M8 是新怪
 
 这太公望立了这么多死旗  怕不是快退场了
 
+
+
+*****
+
+####  zakki  
+##### 85375#       发表于 2021-12-25 12:50
+
+ 本帖最后由 zakki 于 2021-12-25 12:52 编辑 
+
+所以早就说了，就别出中国从者，前面吹了一百遍太公和中国神代的逼格，然后人自己脑补臆想一个垫晴明开始狂喷，现在我就这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 85376#       发表于 2021-12-25 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039253&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 12:50:45</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给了你这么多快乐，不是很好吗
+要我说，他们想法挺好的，按这个路子来也不错啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zakki  
+##### 85377#       发表于 2021-12-25 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039280&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-25 12:53</a>
+给了你这么多快乐，不是很好吗
+要我说，他们想法挺好的，按这个路子来也不错啊</blockquote>
+我其实不理解他们的思路，太公把她当妲己打翻车了，然后换晴明来把她当玉藻来打不也是翻车？人家特么是通古斯爆炸的兔子啊，原产地俄罗斯，和特么晴明有个屁的关系，分的清太公不克制就分不清晴明也不克制？真就脑子都不带了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85378#       发表于 2021-12-25 13:00
+
+ 本帖最后由 zakki 于 2021-12-25 13:01 编辑 
+
+我还是那个想法，如果太公不行，那靠的就是都是B4的成体的芙芙，说白了，芙芙和迦勒底才是和柯杨斯卡娅有直接关联和恩怨的人，和特么太公晴明有个毛关系，杀狐都说了真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

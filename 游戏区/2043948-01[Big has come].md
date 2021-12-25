@@ -806,3 +806,69 @@ GITHUB就更离谱了，两个都是绿的我这却完全上不去。
 
 同样使用家里的网络，我手机上不了，但电脑能上是什么原因啊
 
+
+
+*****
+
+####  kevinausting  
+##### 83#       发表于 2021-12-25 12:44
+
+我这一会儿好一会儿坏
+
+*****
+
+####  CswStar  
+##### 84#       发表于 2021-12-25 12:45
+
+不会真的重回三大妈的时代吧.....估计会更糟，三大妈的时代塔还没有那么先进的赛博时代手段.......
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  hyiang98  
+##### 85#       发表于 2021-12-25 12:45
+
+别天天狗洞了，真的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  千古奇冤施密特  
+##### 86#       发表于 2021-12-25 12:50
+
+<blockquote>椎名mahuyo 发表于 2021-12-25 12:29
+别想太多了，我觉得真的要急的是那些国内做游戏的
+
+我们这些把能做的都做了，埋头游戏差不多得了 ...</blockquote>
+只是觉得光steam墙贴的回复来看，nga好歹就事论事，你潭上来就是屁股大战，好多都是连去上一下都不肯的人，这是哪来的脸骂人是屎坑的呢
+
+*****
+
+####  tepk  
+##### 87#       发表于 2021-12-25 12:54
+
+我还以为是我的网不行了，一会能上一会不行的，现在客户端商店页面是彻底打不开了，网页版倒是还行
+
+大盗版时代是不可能回去了，趁水温还不算太烫还能装作在洗澡的样子，能熬一天是一天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Booorunestud  
+##### 88#       发表于 2021-12-25 13:00
+
+ 本帖最后由 Booorunestud 于 2021-12-25 13:03 编辑 
+
+编辑，找到了
+
+*****
+
+####  煌焰  
+##### 89#       发表于 2021-12-25 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039259&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 12:50</a>
+
+只是觉得光steam墙贴的回复来看，nga好歹就事论事，你潭上来就是屁股大战，好多都是连去上一下都不肯的人 ...</blockquote>
+NGA的讨论帖已经被锁了，就事论事是你想论就论的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

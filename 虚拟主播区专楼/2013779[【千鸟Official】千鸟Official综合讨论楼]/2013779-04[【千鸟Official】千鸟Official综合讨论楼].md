@@ -1421,3 +1421,14 @@ Merry x'mas<img src="https://static.saraba1st.com/image/smiley/face2017/170.png"
 
 好隔离，但我歌回是不是又无了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Quark  
+##### 4651#       发表于 2021-12-25 12:50
+
+回复 @量子儿子-西塞罗 :播呀！！照常歌会！！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
