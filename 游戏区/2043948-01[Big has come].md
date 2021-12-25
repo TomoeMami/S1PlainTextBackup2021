@@ -4988,3 +4988,118 @@ GITHUB从几个月前那次被跟这次STEAM一样的新技术搞了后，就一
 
 还好下载暂时没有什么问题……
 
+
+
+*****
+
+####  thecatnie  
+##### 466#       发表于 2021-12-26 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046527&amp;ptid=2043948" target="_blank">FUZE 发表于 2021-12-26 00:21</a>
+
+乐个屁
+
+他们就一个买KEY的
+
+哪里去激活？</blockquote>
+现在的状态是客户端能正常登陆，商店打不开，不耽误玩，但是买不了新游戏了
+
+*****
+
+####  mookmoon  
+##### 467#       发表于 2021-12-26 00:26
+
+唉，没有安全感
+
+*****
+
+####  FUZE  
+##### 468#       发表于 2021-12-26 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046560&amp;ptid=2043948" target="_blank">thecatnie 发表于 2021-12-26 00:25</a>
+
+现在的状态是客户端能正常登陆，商店打不开，不耽误玩，但是买不了新游戏了 ...</blockquote>
+商店也打不开
+
+那么离登陆登不上又有多远
+
+*****
+
+####  Kojimaru  
+##### 469#       发表于 2021-12-26 00:28
+
+ 本帖最后由 Kojimaru 于 2021-12-26 00:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046453&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-26 00:10</a>
+怕你不知道提一嘴，DLSITE官中越来越多了。某P站X站中文部分还整了好多花活 ...</blockquote>
+因为dl能通过支付宝买点数付款，而且dl在微博、b站都有官号宣传活动
+不过就算它被墙，多娜多娜中文版竟然能卖几万份，可以说是非常恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FUZE  
+##### 470#       发表于 2021-12-26 00:29
+
+其实没什么好说的
+
+13年哪次直接墙了一天
+
+那一天别说商店社区了
+
+连登陆下载都做不到
+
+那天开始，基本上都是温水煮青蛙倒计时了
+
+*****
+
+####  暗影之诗  
+##### 471#       发表于 2021-12-26 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046581&amp;ptid=2043948" target="_blank">Kojimaru 发表于 2021-12-26 00:28</a>
+
+因为dl能通过支付宝买点数付款，而且dl在微博、b站都有官号宣传活动
+
+不过就算它被墙，多娜多娜中文版竟然 ...</blockquote>
+所以基本盘在这，无非以后增量会不足而已。固定的受众已经很庞大了
+
+*****
+
+####  zashou  
+##### 472#       发表于 2021-12-26 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046399&amp;ptid=2043948" target="_blank">sdefrfg 发表于 2021-12-26 00:03</a>
+
+铁拳总不是真就克苏鲁吧？还是说分管这个领域的从上到下全是一条心就为了干死你游戏？ ...</blockquote>
+不是克苏鲁，毕竟人克苏鲁是讲道理的。
+
+你不发糖他不出来。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗影之诗  
+##### 473#       发表于 2021-12-26 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046582&amp;ptid=2043948" target="_blank">FUZE 发表于 2021-12-26 00:29</a>
+
+其实没什么好说的
+
+13年哪次直接墙了一天
+
+那一天别说商店社区了</blockquote>
+这次的情况和17年的非常像，频繁101 103 105，也是分地区分人分阶段，不过那次的手段太拙劣，一眼被人就看出来是分IP段的dns污染。这次的手段高明太多，大多数小白第一时间想的是去ping或者TCPING根本没发现有问题，查端口才能查出来。
+
+*****
+
+####  Attack_on_Pig  
+##### 474#       发表于 2021-12-26 00:41
+
+每天一个润buff
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Nieven  
+##### 475#       发表于 2021-12-26 00:45
+
+从谷歌推特到亚马逊github，自己也是**小小的网站风波也都经历过了，只不过这次是尤为不爽点，大概还是因为相比那些网站来说steam的使用频率要高多了
+
