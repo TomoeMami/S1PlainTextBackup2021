@@ -6412,3 +6412,32 @@ syl
 汤稿主写得不够清楚 -&gt; 黛老姐翻译了一些，总结“好像没有更多实锤” -&gt; 传到管厕高赞评论“没锤就算了”， ...</blockquote>
 这看上去人不是挺好的吗，够有耐心了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 9529#       发表于 2021-12-25 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">两个都未成年不是早恋么，传的怎么和炼铜一样，这东西放欧美算是事么
+
+*****
+
+####  adamtheo  
+##### 9530#       发表于 2021-12-25 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039839&amp;ptid=1972669" target="_blank">撕叁 发表于 2021-12-25 13:56</a>
+
+这看上去人不是挺好的吗，够有耐心了吧</blockquote>
+一个劲否定别人完了“这么简单大家都是这样你为什么不行”也算有耐心的吗
+
+*****
+
+####  撕叁  
+##### 9531#       发表于 2021-12-25 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039981&amp;ptid=1972669" target="_blank">adamtheo 发表于 2021-12-25 14:15</a>
+
+一个劲否定别人完了“这么简单大家都是这样你为什么不行”也算有耐心的吗 ...</blockquote>
+只能说是我的话可能连回都不会回捏
+
