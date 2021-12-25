@@ -10618,3 +10618,12 @@ G店这个一日一限怎么判断？我就按了一下算成功了，换个ip�
 
 看完鲤鱼采访，想想一个外国人，不到半年的准备时间。就要面对人生正式配音且是第二主角，除了音标，连阅读习惯都要改变。接下来就是记下所有演出歌词和舞蹈，甚至同时还要准备自己的专辑。这过程中，各种流言蜚语质疑，只身一人面对，永远满怀笑容出现在大家面前。一直担心她的压力，现在觉得她比想象中强大很多，真的希望她能收获更多更多<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 2403#       发表于 2021-12-25 08:34
+
+鲤鱼在微博发的mv两次都被夹了，这都能色？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
