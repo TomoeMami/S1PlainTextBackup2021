@@ -2975,3 +2975,137 @@ github在校园网不用任何工具的情况下，差不多1/10的概率能连�
 
 喷了怎么感觉刷新商店速度还快了。。。
 
+
+
+*****
+
+####  宗汝  
+##### 278#       发表于 2021-12-25 18:26
+
+商店页面有了，但是点不进去商品页面，愿望单也进不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  还是得挂梯子
+
+*****
+
+####  920619lqy  
+##### 279#       发表于 2021-12-25 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042081&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 04:12</a>
+
+是润是躺都可以，我就看见两群蠢货在这抖聪明了，嘴上看不起外野，这他妈和外野有啥区别，都开始发 ...</blockquote>
+人类的社会活动就是政治本身，这是回避不开的
+
+*****
+
+####  剑鹰  
+##### 280#       发表于 2021-12-25 18:28
+
+ 本帖最后由 剑鹰 于 2021-12-25 18:29 编辑 
+
+又能打开页面了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">北京联通，不过商店不行
+
+*****
+
+####  namelessashen  
+##### 281#       发表于 2021-12-25 18:29
+
+狗洞大师们的再一次胜利<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  2082082012  
+##### 282#       发表于 2021-12-25 18:30
+
+我这边一下能上一下又不能，薛定谔的steam<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  solarcool  
+##### 283#       发表于 2021-12-25 18:30
+
+说要对策的还想要什么对策呢，除了肉身不就科学上网一条路，无非也就是自搭和买现成的区别<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+至于整天接触虚拟机的论坛，说起话来谜语得更厉害，国内明面上可不允许讨论这种玩意<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蕾咪莉亚  
+##### 284#       发表于 2021-12-25 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042155&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:18</a>
+
+分析分析情况和对策呗，说到底还是这帖子里不管哪个派别的都是干货少嘴还欠那种，所以兴他们嘴欠 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 你说的这种情况，我上次看到还是e绅士差点要关站，不爽直接回复对线啊，我是支持的，上个相关帖子我也是这么干的
+
+至于干货，真封了以后肯定会有教程的，现在一个梯子基本就能解决 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nozomitech  
+##### 285#       发表于 2021-12-25 18:34
+
+现在不好说，但是就算没撑过这波，steam能维持到现在本来就不错了，屁民又能说啥呢？或者说说了又有啥用呢？
+
+现在最关键的psn eshop Microsoft store这三兄弟还有多少时间？
+
+*****
+
+####  北欧王座  
+##### 286#       发表于 2021-12-25 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042090&amp;ptid=2043948" target="_blank">九十九忍 发表于 2021-12-25 18:13</a>
+
+新阵营建设性讨饭佬</blockquote>
+绝学，从分析情况的，聊自身经历的，猜测的，互相怼的中间跳出来互相怼的。并表示自己寻找的是更具有现实效用的回复。组成了360度全方位防御。一个人在封之前不能抱怨被封的风险，因为没有被封；在半封之后不能抱怨，因为他没有分析和提供钻洞方案。
+
+那么为什么不能抱怨呢？因为看烦了！是的，只要将一个群体的行为描述成老套的，重复的，每次都雷同的行为。仿佛就自动使得这个行为变得无聊，无聊就等于没意义，没意义就等于不该发，就等于值得批判的。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 鸡翼大绅士| + 1|欢乐多|
+| 920619lqy| + 2||
+
+查看全部评分
+
+*****
+
+####  afer  
+##### 287#       发表于 2021-12-25 18:38
+
+ 本帖最后由 afer 于 2021-12-25 18:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042307&amp;ptid=2043948" target="_blank">蕾咪莉亚 发表于 2021-12-25 18:31</a>
+
+你说的这种情况，我上次看到还是e绅士差点要关站，不爽直接回复对线啊，我是支持的，上个相关帖 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没，我来个“干货”，我重启了下路由器换了个ip现在好多了。
+
+这帖子里这种简单的交流都不存在，谜语小鬼们人话都说不出来这类基本就算干货了吧
+
+*****
+
+####  kimmmmmm  
+##### 288#       发表于 2021-12-25 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042378&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:38</a>
+
+没，我来个“干货”，我重启了下路由器换了个ip现在好多了。
+
+这帖子里谜语小鬼们人话都说不出来这 ...</blockquote>
+然后5分钟以后又进不去了……
+
+*****
+
+####  解语L  
+##### 289#       发表于 2021-12-25 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042307&amp;ptid=2043948" target="_blank">蕾咪莉亚 发表于 2021-12-25 18:31</a>
+
+你说的这种情况，我上次看到还是e绅士差点要关站，不爽直接回复对线啊，我是支持的，上个相关帖 ...</blockquote>
+AAA游戏动不动上百G，梯子再好也顶不住
+

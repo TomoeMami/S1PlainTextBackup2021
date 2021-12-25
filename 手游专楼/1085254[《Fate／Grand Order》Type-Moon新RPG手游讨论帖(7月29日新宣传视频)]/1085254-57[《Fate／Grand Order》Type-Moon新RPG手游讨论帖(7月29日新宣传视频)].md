@@ -15061,3 +15061,40 @@ dw，我的fw服务器
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  الطائر  
+##### 85416#       发表于 2021-12-25 18:29
+
+ 本帖最后由 الطائر 于 2021-12-25 18:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042238&amp;ptid=1085254" target="_blank">poor 发表于 2021-12-25 18:25</a>
+
+什么db跟配置？
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+三个怪（1个40万血，2个10万血），它对人科威力上升对魔兽型防御力下降、魔性、各一次毅力（1万血），无敌贯通、它对无敌状态的敌人威力降低
+
+*****
+
+####  v22325  
+##### 85417#       发表于 2021-12-25 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042233&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-12-25 18:24</a>
+
+感谢
+
+剩下那个LWB-M8：毛和核桃</blockquote>
+ヤガ：火薬・角　複数剣　回避2回
+
+カリ：矢尻・脂　複数狂　攻撃力ダウン
+
+ケルベロス：鎖・恒星　単体騎　ターン終了時無敵
+
+虎戦車：髄液・炉心　単体弓　スキル封印1ターン
+
+戦闘獣Lv90+：貝殻・毛　単体秤　宝具攻撃時強化解除
+
+戦闘獣Lv90：種・毛　複数殺　ガッツ1回
+
