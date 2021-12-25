@@ -757,3 +757,52 @@ GITHUB就更离谱了，两个都是绿的我这却完全上不去。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼主我就问你能不能把标题改劲爆点，把爱钻狗洞的小杂种们引进来杀
 
+
+
+*****
+
+####  最好不说  
+##### 77#       发表于 2021-12-25 12:27
+
+芜湖，好死
+
+*****
+
+####  椎名mahuyo  
+##### 78#       发表于 2021-12-25 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038449&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 11:19</a>
+
+看是谷歌模式还是github模式了，大概率和github一样，因为没有百度那样的替代品，13年封github让李开复发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别想太多了，我觉得真的要急的是那些国内做游戏的
+
+我们这些把能做的都做了，埋头游戏差不多得了
+
+*****
+
+####  jf8350143  
+##### 79#       发表于 2021-12-25 12:31
+
+我昨天还买了新游戏……今天试了下也是正常登录的
+
+*****
+
+####  JC_AR  
+##### 80#       发表于 2021-12-25 12:34
+
+客户端商店页面打不开，118
+
+*****
+
+####  煌焰  
+##### 81#       发表于 2021-12-25 12:40
+
+怪不得这两天裸连都上不去，真就温水煮青蛙啊，最神奇的是确实有用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leliel  
+##### 82#       发表于 2021-12-25 12:41
+
+同样使用家里的网络，我手机上不了，但电脑能上是什么原因啊
+

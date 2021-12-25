@@ -1412,3 +1412,12 @@ Merry x'mas<img src="https://static.saraba1st.com/image/smiley/face2017/170.png"
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4650#       发表于 2021-12-25 12:29
+
+好隔离，但我歌回是不是又无了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
