@@ -5209,3 +5209,70 @@ SNI技术都实装了好多年了。
 
 在3版里，这部分也被加密了。
 
+
+
+*****
+
+####  你知道我的  
+##### 482#       发表于 2021-12-26 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046827&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-26 01:00</a>
+
+最后能不能干死我不清楚，但是就算能干死，方法和现在用的也不同。
+
+现在的嗅探技术，利用了低版本的TLS的 ...</blockquote>
+对呀，遇到明文 SNI 的就检查，如果目标不对就全丢了，
+
+遇到加密 SNI 直接就丢
+
+*****
+
+####  Tring  
+##### 483#       发表于 2021-12-26 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046886&amp;ptid=2043948" target="_blank">你知道我的 发表于 2021-12-26 01:07</a>
+
+对呀，遇到明文 SNI 的就检查，如果目标不对就全丢了，
+
+遇到加密 SNI 直接就丢 ...</blockquote>
+没问题啊，
+
+你想说啥？
+
+*****
+
+####  你知道我的  
+##### 484#       发表于 2021-12-26 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046893&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-26 01:09</a>
+
+没问题啊，
+
+你想说啥？</blockquote>
+就是说 TLS1.3 也没啥用啊，该墙还是墙
+
+*****
+
+####  Tring  
+##### 485#       发表于 2021-12-26 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046899&amp;ptid=2043948" target="_blank">你知道我的 发表于 2021-12-26 01:09</a>
+
+就是说 TLS1.3 也没啥用啊，该墙还是墙</blockquote>
+当然不能一刀切，全部加密的报文都丢掉啊。
+
+碰到加密就丢，那所有国外网站的包全都会被丢，还搞啥墙啊，
+
+直接掐了光缆不好么？
+
+*****
+
+####  飞姆托  
+##### 486#       发表于 2021-12-26 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045584&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-25 22:40</a>
+为什么要让steam死？死了怎么往上面发产品？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">请往wegame发谢谢，九一分成
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

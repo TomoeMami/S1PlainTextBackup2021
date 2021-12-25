@@ -11489,3 +11489,12 @@ Sayuri
 
 不过青山本人人气还是很高的，现场live深蓝的棒子仅次于小百合的橙色，但是相对来说现场的鲤鱼的浅蓝和上尉的绿色就真的比较少了。
 
+
+
+*****
+
+####  chenflyyy  
+##### 2462#       发表于 2021-12-26 01:16
+
+看到pop子要出第二季时，第一反应是想着能让鲤鱼和sayu来配一集吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
