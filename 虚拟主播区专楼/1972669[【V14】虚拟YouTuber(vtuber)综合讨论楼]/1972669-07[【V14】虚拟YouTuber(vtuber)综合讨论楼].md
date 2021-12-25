@@ -6441,3 +6441,39 @@ syl
 一个劲否定别人完了“这么简单大家都是这样你为什么不行”也算有耐心的吗 ...</blockquote>
 只能说是我的话可能连回都不会回捏
 
+
+
+*****
+
+####  rzrbtk  
+##### 9532#       发表于 2021-12-25 14:21
+
+现在感觉这些黑料都在微妙的范围…频道侵权-有合伙人、网恋调情未成年人-自身也未成年、语言暴力-但是没有自己踩歧视那种雷区（群主要不要为群成员言论负责再另说），与我而言比较难在今后喜欢上他的点反而是很怂的销号跑路无回应（也许有回应但是销号了），
+水深火热外国同人区（针对他的ao3文）的炼铜帽子说实话我一直不太认同，当年看东方都能被骂感觉多少有点过激了（结界组根本就是人外怎么还有人骂紫喜欢小的），不一定很多人跟吧。
+
+省一楼，东堂琥珀今早才发千草3Drepo，昨晚是不是去圣诞趴体了，对同期好点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adamtheo  
+##### 9533#       发表于 2021-12-25 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039997&amp;ptid=1972669" target="_blank">撕叁 发表于 2021-12-25 14:16</a>
+
+只能说是我的话可能连回都不会回捏</blockquote>
+说实话不回可能还好些，这种“以为是能依靠的人结果跟身边人一样看不起我”对人伤害更大
+
+二次元小姑娘们啊，不要听男的说“要爱你自己”就心动了，网上冲浪看了模仿两句谁都会
+
+*****
+
+####  撕叁  
+##### 9534#       发表于 2021-12-25 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040051&amp;ptid=1972669" target="_blank">adamtheo 发表于 2021-12-25 14:23</a>
+
+说实话不回可能还好些，这种“以为是能依靠的人结果跟身边人一样看不起我”对人伤害更大
+
+二次元小姑娘们 ...</blockquote>
+但明显有努力地给建议啊，总不能因为效果不佳就cancel别人吧，还不如建议边缘人不要上网<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

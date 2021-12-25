@@ -1833,3 +1833,114 @@ steampowered.com的80可以通，443不行
 
 这一天还是来了
 
+
+
+*****
+
+####  千古奇冤施密特  
+##### 181#       发表于 2021-12-25 14:24
+
+<blockquote>千古奇冤施密特 发表于 2021-12-25 14:17
+你和那人的贴被合并了呗，那个回复是我对那贴的回复</blockquote>
+事实上现在用网页版看，这贴的楼主还是显示为刘思慕这个sbid
+
+*****
+
+####  千古奇冤施密特  
+##### 182#       发表于 2021-12-25 14:25
+
+<blockquote>刘思慕 发表于 2021-12-25 13:49
+说的是我的ID，我也发了个帖子跟你的被版主合并了，这下真的千古奇冤了 ...</blockquote>
+那你解释解释呗，取这个id是啥用意？
+
+*****
+
+####  RJG丶one  
+##### 183#       发表于 2021-12-25 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039955&amp;ptid=2043948" target="_blank">nessaj 发表于 2021-12-25 14:11</a>
+我试了一下，
+
+store.steampowered.com 的80和443都是reset by peer
+
+steampowered.com的80可以通，443不行 ...</blockquote>
+没store的查ip是香港节点，有store的是美国德克萨斯节点，为什么会解析到美国节点而不是就近的香港节点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 184#       发表于 2021-12-25 14:29
+
+  泥潭有些人是不是生活乐趣只剩下键政了
+
+*****
+
+####  煌焰  
+##### 185#       发表于 2021-12-25 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039759&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 13:47</a>
+
+锁就锁呗，你个人态度是几个网络版主就能把你搞完的吗，那你也太脆弱了，自己的日子是自己过的，又不是版 ...</blockquote>
+你觉得问题是在版主身上？难怪
+
+*****
+
+####  洗刷刷  
+##### 186#       发表于 2021-12-25 14:31
+
+能不能联系李开复再让他谏言一次啊，steam的命也很重要!
+
+*****
+
+####  iceplatinum  
+##### 187#       发表于 2021-12-25 14:39
+
+和7字党有什么好聊的？还聊游戏。。。这群傻逼估计只会玩wow
+
+*****
+
+####  裤袜大落  
+##### 188#       发表于 2021-12-25 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">狗洞大师先是吹了一波nga就事论事 然后一转直接对别人ID开喷 不得不佩服 
+七字党有部分不是狗比
+
+*****
+
+####  nessaj  
+##### 189#       发表于 2021-12-25 14:40
+
+ 本帖最后由 nessaj 于 2021-12-25 14:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040094&amp;ptid=2043948" target="_blank">RJG丶one 发表于 2021-12-25 14:29</a>
+
+没store的查ip是香港节点，有store的是美国德克萨斯节点，为什么会解析到美国节点而不是就近的香港节点[f ...</blockquote>
+23.206.253.62        Japan         Tokyo        Tokyo
+
+不是得州，是akamai的日本节点
+
+另外我多换了几次pop情况基本一样
+
+<img src="https://img.saraba1st.com/forum/202112/25/144305sef71uz2f6efpmet.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-25 144258.png</strong> (49.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 14:43 上传
+
+                                        23.42.182.65Hong Kong <img src="https://www.iplocation.net/assets/images/flags/hk.gif" referrerpolicy="no-referrer">Hong KongHong Kong
+
+*****
+
+####  本间日阳  
+##### 190#       发表于 2021-12-25 14:42
+
+这年头竟然还有活的七字党！就像活的公知一样稀有！
+
+*****
+
+####  宗汝  
+##### 191#       发表于 2021-12-25 14:44
+
+七字党还是去微博狂吠吧
+

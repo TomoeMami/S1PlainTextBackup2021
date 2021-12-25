@@ -14725,3 +14725,22 @@ HWB-M8 是新怪
 
 不过真的别出中国从者是真的
 
+
+
+*****
+
+####  alucardcz  
+##### 85384#       发表于 2021-12-25 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">听说今天剧情隔壁有破防了? 这么欢乐的吗
+
+*****
+
+####  AbigailWilliams  
+##### 85385#       发表于 2021-12-25 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039253&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 12:50</a>
+所以早就说了，就别出中国从者，前面吹了一百遍太公和中国神代的逼格，然后人自己脑补臆想一个垫晴明开始狂 ...</blockquote>
+fgo霓虹游戏，出什么还用看国内脸色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我巴不得它天天出，看那群在霓虹游戏追求写好国内角色然后破防简直不要太爽。
+不过都在霓虹游戏追求写好国内相关了，为什么不追求欧美人写中国剧情呢，因为都知道会黑是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
