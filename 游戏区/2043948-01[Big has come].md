@@ -1944,3 +1944,149 @@ steampowered.com的80可以通，443不行 ...</blockquote>
 
 七字党还是去微博狂吠吧
 
+
+
+*****
+
+####  RJG丶one  
+##### 192#       发表于 2021-12-25 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040204&amp;ptid=2043948" target="_blank">nessaj 发表于 2021-12-25 14:40</a>
+
+23.206.253.62        Japan         Tokyo        Tokyo
+
+不是得州，是akamai的日本节点
+
+另外我多换了几次 ...</blockquote>
+好吧，我顺手搜了ip.cn在里面查的，ip138的数据确实是东京节点
+
+*****
+
+####  千古奇冤施密特  
+##### 193#       发表于 2021-12-25 14:47
+
+<blockquote>iceplatinum 发表于 2021-12-25 14:39
+和7字党有什么好聊的？还聊游戏。。。这群傻逼估计只会玩wow</blockquote>
+看我发的贴就知道我玩过啥了，果然婆罗门只会转进说没玩过游戏，玩游戏是很难的操作吗
+
+*****
+
+####  九十九忍  
+##### 194#       发表于 2021-12-25 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">几个回复看着就像2012年穿过来的
+
+*****
+
+####  撸一记  
+##### 195#       发表于 2021-12-25 14:47
+
+七字党到底是啥，怎么感觉释义有点混乱
+
+*****
+
+####  thecatnie  
+##### 196#       发表于 2021-12-25 14:47
+
+大连联通现在是约等于连不上了，冬促前直连还很顺畅呢
+
+*****
+
+####  windaria  
+##### 197#       发表于 2021-12-25 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039291&amp;ptid=2043948" target="_blank">tepk 发表于 2021-12-25 12:54</a>
+
+我还以为是我的网不行了，一会能上一会不行的，现在客户端商店页面是彻底打不开了，网页版倒是还行
+
+大盗版 ...</blockquote>
+为什么回不去？因为铁拳要严管游戏连盗版渠道也封？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 乱吃食cat|-2|你觉得铁拳会管你正版盗版？|
+
+查看全部评分
+
+*****
+
+####  南去  
+##### 198#       发表于 2021-12-25 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040278&amp;ptid=2043948" target="_blank">撸一记 发表于 2021-12-25 14:47</a>
+七字党到底是啥，怎么感觉释义有点混乱</blockquote>
+xxxx xxx
+
+*****
+
+####  千古奇冤施密特  
+##### 199#       发表于 2021-12-25 14:49
+
+<blockquote>本间日阳 发表于 2021-12-25 14:42
+这年头竟然还有活的七字党！就像活的公知一样稀有！</blockquote>
+体育的七字是当年利物浦球迷借来调侃罗杰斯的，现在有罗杰斯的新闻下面还是会出现一堆七字的，不知道是不是虎扑发明的我忘记了，反正看球的那年就挺流行，也就是注册的那年，施密特是国安的前主教练，下课也三四年了
+
+*****
+
+####  sk此方  
+##### 200#       发表于 2021-12-25 14:54
+
+修好了吗 我这之前上不去现在又随便上了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  千古奇冤施密特  
+##### 201#       发表于 2021-12-25 14:57
+
+<blockquote>sk此方 发表于 2021-12-25 14:54
+修好了吗 我这之前上不去现在又随便上了
+
+—— 来自 vivo V2055A, Android 11上的 S1Next-鹅版 v2.4 ...</blockquote>
+分时段分地区，有些人有些时候会上不了，目前看基本是这样，谷歌被封前待遇，很简单的事有些人故意几十楼污染版面也不说清楚
+
+*****
+
+####  pRll7R  
+##### 202#       发表于 2021-12-25 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">昨天只能进商店主页 今天能进到购物车界面了但是购买的时候身份验证失败
+
+只好挂个加速器去手机端买了……
+
+*****
+
+####  RJG丶one  
+##### 203#       发表于 2021-12-25 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040334&amp;ptid=2043948" target="_blank">sk此方 发表于 2021-12-25 14:54</a>
+
+修好了吗 我这之前上不去现在又随便上了
+
+—— 来自 vivo V2055A, Android 11上的 S1Next-鹅版 v2.4 ...</blockquote>
+我看到的信息给我自己的结论是：冬促扩容扩到被墙日过的半死人ip上了，过了冬促减容才能盖棺被日的是不是steam。
+
+*****
+
+####  zhwpjy  
+##### 204#       发表于 2021-12-25 15:00
+
+知乎不是有引进steam大神 怎么不站出来来说话吗
+
+*****
+
+####  iceplatinum  
+##### 205#       发表于 2021-12-25 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040274&amp;ptid=2043948" target="_blank">千古奇冤施密特 发表于 2021-12-25 14:47</a>
+
+看我发的贴就知道我玩过啥了，果然婆罗门只会转进说没玩过游戏，玩游戏是很难的操作吗 ...</blockquote>
+差不多，epic用户，估计这2年才开始平台游戏，当然对steam这样态度
+

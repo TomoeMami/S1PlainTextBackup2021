@@ -6477,3 +6477,16 @@ syl
 二次元小姑娘们 ...</blockquote>
 但明显有努力地给建议啊，总不能因为效果不佳就cancel别人吧，还不如建议边缘人不要上网<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adamtheo  
+##### 9535#       发表于 2021-12-25 14:55
+
+ 本帖最后由 adamtheo 于 2021-12-25 14:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040073&amp;ptid=1972669" target="_blank">撕叁 发表于 2021-12-25 14:25</a>
+
+但明显有努力地给建议啊，总不能因为效果不佳就cancel别人吧，还不如建议边缘人不要上网 ...</blockquote>
+问题是他不立体贴人设也没什么，反正想成名的多多少少有点，立了人设还爆这种就。EN这波要是顶下来了，可以鼓舞口了回来吗（唐突
+

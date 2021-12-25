@@ -14744,3 +14744,55 @@ HWB-M8 是新怪
 fgo霓虹游戏，出什么还用看国内脸色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我巴不得它天天出，看那群在霓虹游戏追求写好国内角色然后破防简直不要太爽。
 不过都在霓虹游戏追求写好国内相关了，为什么不追求欧美人写中国剧情呢，因为都知道会黑是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85386#       发表于 2021-12-25 14:47
+
+眷属I 迎撃戦 AP: 40 推荐等级: 80 Class：Saber Berserker X5場
+眷属IV 迎撃戦 AP: 40 推荐等级: 80 Class：Berserker X4場
+眷属III 迎撃戦 AP: 40 推荐等级: 90 Class：Archer X3場
+眷属V 迎撃戦 AP: 40 推荐等级: 90+ Class：Rider X3場
+LWB-M8 迎撃戦 AP: 40 推荐等级: 90 Class：Assassin X3場
+HWB-M8 迎撃戦 AP: 40 推荐等级: 90+ Class：Ruler X2場
+
+迴避+雙方野獸型從者上必中
+
+降50%NP率+降攻3回合
+
+封技封換人
+
+開場滿氣+我方受一次傷降一次防
+
+全體無敵+根性10000+無敵貫通
+
+留个记录
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 85387#       发表于 2021-12-25 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040283&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-25 14:47</a>
+
+眷属I 迎撃戦 AP: 40 推荐等级: 80 Class：Saber Berserker X5場
+
+眷属IV 迎撃戦 AP: 40 推荐等级: 80 Class ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">降50%NP率+降攻3回合和開場滿氣+我方受一次傷降一次防纯白给啊  感觉会死很快
+
+*****
+
+####  Lokad  
+##### 85388#       发表于 2021-12-25 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039435&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 13:10</a>
+
+玉藻就是嘴硬，但经常会说漏嘴</blockquote>
+这次否定不像嘴硬，最明确的是直接讲出妲己跟褒姒华阳天的区别了。
+
+褒姒跟华阳天都认下来了，但妲己是死活不认。
+
