@@ -4784,3 +4784,86 @@ qq/foxmail刚用了是可以的
 估计是cdn扩容到以前被干的地址池里了，抽到池子的就断，没抽到就能连</blockquote>
 我也感觉是akamai cdn节点的问题，是不是针对steam的要打个问号
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 450#       发表于 2021-12-25 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045591&amp;ptid=2043948" target="_blank">18300625949 发表于 2021-12-25 22:41</a>
+只是因为你上s1的时间太多了……外国文化产品（steam、日漫、外国电影）焦虑论最风行的地方是知乎，书记在 ...</blockquote>
+可恶啊，这下给书记装到了
+
+
+
+*****
+
+####  不乖  
+##### 451#       发表于 2021-12-25 23:36
+
+为人进出的门紧锁着
+为狗爬出的洞也锁了
+一个声音高喊：怎么都锁了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  尤伽  
+##### 452#       发表于 2021-12-25 23:40
+
+孟德尔赢麻了，虽然我希望他输麻
+
+*****
+
+####  绯夜殃雨  
+##### 453#       发表于 2021-12-25 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045877&amp;ptid=2043948" target="_blank">‮agur4kI 发表于 2021-12-25 23:11</a>
+
+墙不过是让梯子成了必需品
+
+它看起来不被承认存在, 但是翻过它却犯法, 非法架设信道, 没有许可证非法经营,  ...</blockquote>
+当只剩下梯子的时候
+
+一旦梯子也被某种方式取缔了，你就会发现自己已经什么都没有了。
+
+每当觉得不可能的时候，想想教培行业，就知道没什么不可能。
+
+不要小看力量。
+
+*****
+
+####  白左  
+##### 454#       发表于 2021-12-25 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045833&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-25 23:07</a>
+
+SNI技术都实装了好多年了。
+
+17年左右HTTPS墙都大规模使用了。</blockquote>
+破解的也不是https啊，只是使用https的流量特征
+
+就像不能也没必要破解密码保险柜，但可以先把找可疑卖家买密码保险柜的人先抓起来
+
+*****
+
+####  Tring  
+##### 455#       发表于 2021-12-25 23:43
+
+ 本帖最后由 Tring 于 2021-12-25 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046203&amp;ptid=2043948" target="_blank">白左 发表于 2021-12-25 23:42</a>
+
+破解的也不是https啊，只是使用https的流量特征
+
+就像不能也没必要破解密码保险柜，但可以先把找可疑卖家买 ...</blockquote>
+我也没说完全破解加密算法啊，我只说早墙掉了。
+
+嗅探的就是TLS的明文报头，当然也算是破解https的一部分。
+
+当然，你要死抠“破解”这个词的含义的话，
+
+那行吧，你说的对。
+

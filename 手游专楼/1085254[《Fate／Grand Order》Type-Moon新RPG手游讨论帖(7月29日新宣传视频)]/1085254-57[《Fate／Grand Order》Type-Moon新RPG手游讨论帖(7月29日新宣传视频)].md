@@ -15696,3 +15696,12 @@ cm太公的台词除最后你为何在此，都出现了，希望最后不会机
 
 无敌贯通兽特攻全体宝具<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85474#       发表于 2021-12-25 23:39
+
+话说马修这个黑枪是不是太强了（指游戏），剧情战，马修开一技能就能放一发5宝500%的哈贝喵宝具，还能给对面挂耐性down的debuff，总算是在游戏机制里也能体会黑枪有多bug了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
