@@ -3886,3 +3886,116 @@ psn 的cdn我最近一年都上不去
 这会好了，但是支付宝支付不行，用微信就可以，怪腾讯石锤了。 ...</blockquote>
 这会儿又测了一下，相比于下午红黄交叉的测试结果，可以说是“全绿”了…
 
+
+
+*****
+
+####  solarcool  
+##### 365#       发表于 2021-12-25 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043245&amp;ptid=2043948" target="_blank">dragrass 发表于 2021-12-25 19:58</a>
+
+这次很奇怪的是没引起太大反响，没怎么发酵
+
+14年，17年Steam都被墙过，14年那次我印象很深刻，当时全网炸 ...</blockquote>
+你可以去贴吧看看，现在人口最多的贴吧几乎是一边倒地骂唱衰的人。舆论环境不一样了，也就些游戏论坛普遍唱衰了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+不过建议还是别真的去，浓度高到让人恶心<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 366#       发表于 2021-12-25 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043275&amp;ptid=2043948" target="_blank">nozomitech 发表于 2021-12-25 06:01</a>
+
+这个问题应该不大，我有别的设备还登着我号，只是最近换了新手机想在新手机上登录，我研究一下怎 ...</blockquote>
+记得要把初始邮箱给记下来，steam的客服处理被盗号申诉的时候据说只认这个邮箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nozomitech| + 1|知道了，感谢提醒|
+
+查看全部评分
+
+*****
+
+####  afer  
+##### 367#       发表于 2021-12-25 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043316&amp;ptid=2043948" target="_blank">RJG丶one 发表于 2021-12-25 20:05</a>
+
+这会儿又测了一下，相比于下午红黄交叉的测试结果，可以说是“全绿”了… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这会特么过于丝滑
+
+*****
+
+####  heirenzeng  
+##### 368#       发表于 2021-12-25 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043324&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-25 20:05</a>
+
+你可以去贴吧看看，现在人口最多的贴吧几乎是一边倒地骂唱衰的人。舆论环境不一样了，也就些游戏论坛普遍 ...</blockquote>
+也没有一边倒，蒸汽吧一开始就有人一直往服务器泼脏水，现在也是两边在撕逼，其他地方也只是处于求生欲不讨论而已<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病娇图兰朵  
+##### 369#       发表于 2021-12-25 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043144&amp;ptid=2043948" target="_blank">gangzhu2 发表于 2021-12-25 19:51</a>
+
+7点50分，我下载最高速是10M，刚才用8M下东西刷不出商店然后停了后重登直接出包括点进愿望单和商店里面 ...</blockquote>
+我现在跟你一样，一旦下载游戏，进商店就会118，停了之后过一段时间就会恢复
+
+*****
+
+####  RJG丶one  
+##### 370#       发表于 2021-12-25 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043343&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 20:06</a>
+
+这会特么过于丝滑</blockquote>
+难说到底怎么回事儿，我现在有几个思路：①steam大促扩容，撞进墙的警戒线上，被突突了；②草台，老爷拿着错误的ip-地理位置表，配错了防御工事（下午我测的时候有个工具显示被丢包最狠的那个ip是法国akamai的，去别的地方查都说是香港的），看到一个域名对应多个目标ip、目标ip位置全球分散（实际是对应表错误，目标ip位置几乎全部对应香港和日本节点）、还流量较大，管它是什么先轰下来；③老爷就是要迫害你打游戏。
+
+难说到底为啥<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[https://www.itdog.cn/tcping/store.steampowered.com:443](https://www.itdog.cn/tcping/store.steampowered.com:443)
+
+*****
+
+####  gangzhu2  
+##### 371#       发表于 2021-12-25 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043430&amp;ptid=2043948" target="_blank">病娇图兰朵 发表于 2021-12-25 20:12</a>
+
+我现在跟你一样，一旦下载游戏，进商店就会118，停了之后过一段时间就会恢复 ...</blockquote>
+我是开百度下东西
+
+关了瞬间恢复
+
+现在也开着试了一下直接刷出网盘速度7.7M
+
+*****
+
+####  阿尔及利亚  
+##### 372#       发表于 2021-12-25 20:19
+
+晏子出使楚国。楚王知道晏子身材矮小，在大门的旁边开一个五尺高的小洞请晏子进去。晏子不进去，说：“出使到狗国的人从狗洞进去，今天我出使到楚国来，不应该从这个洞进去。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 373#       发表于 2021-12-25 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043430&amp;ptid=2043948" target="_blank">病娇图兰朵 发表于 2021-12-25 20:12</a>
+
+我现在跟你一样，一旦下载游戏，进商店就会118，停了之后过一段时间就会恢复 ...</blockquote>
+我正好相反，自从下载了游戏，丝般顺滑。
+
