@@ -681,3 +681,79 @@ IT狗检测确实是墙了，但是steam客户端倒是能上去，不懂是什�
 拿楼上那个恶臭婆罗门的话说，只怕这贴里相当多人是真不玩游戏。。。。 ...</blockquote>
 没人测试=真不玩游戏，偷换概念还是你牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗影之诗  
+##### 69#       发表于 2021-12-25 12:03
+
+IT狗的这个检测就很奇怪，除了蒸汽和一些已经失效的网站外，没有那个网站是dns没被污染，但显示被墙的。
+
+GITHUB就更离谱了，两个都是绿的我这却完全上不去。
+
+另外蒸汽商店还有个离谱的地方时，我开分流依旧会时好时坏，必须全局或者反代
+
+*****
+
+####  2082082012  
+##### 70#       发表于 2021-12-25 12:05
+
+网页版裸连不行，挂上梯子秒进<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千古奇冤施密特  
+##### 71#       发表于 2021-12-25 12:11
+
+<blockquote>aruruu 发表于 2021-12-25 11:52
+喷了，谁说nga、媒体的你找谁去，扣那么多帽子还要画靶子打，整天你谭你谭挂在嘴上，到底谁恶臭啊 ...</blockquote>
+嘿，不敢正面回答了？又是只会转进这一套
+
+*****
+
+####  千川ちひろ  
+##### 72#       发表于 2021-12-25 12:13
+
+好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千古奇冤施密特  
+##### 73#       发表于 2021-12-25 12:13
+
+<blockquote>aruruu 发表于 2021-12-25 11:52
+喷了，谁说nga、媒体的你找谁去，扣那么多帽子还要画靶子打，整天你谭你谭挂在嘴上，到底谁恶臭啊 ...</blockquote>
+你潭不是s1潭友经常说的嘛，现在又换风向变成坏词了？没见着有人说这个事啊
+
+*****
+
+####  南去  
+##### 74#       发表于 2021-12-25 12:14
+
+<img src="https://img.saraba1st.com/forum/202112/25/121356xzzu3nuz8h4dtd52.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211225121328.png</strong> (74.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 12:13 上传
+
+*****
+
+####  ‮agur4kI  
+##### 75#       发表于 2021-12-25 12:21
+
+手机客户端可以上，http上不了，https看一次可以，然后后面也不行了
+就算能进去也要转很久
+来自: iPhone客户端
+
+*****
+
+####  HOLIDAY  
+##### 76#       发表于 2021-12-25 12:22
+
+ 本帖最后由 HOLIDAY 于 2021-12-25 12:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼主我就问你能不能把标题改劲爆点，把爱钻狗洞的小杂种们引进来杀
+

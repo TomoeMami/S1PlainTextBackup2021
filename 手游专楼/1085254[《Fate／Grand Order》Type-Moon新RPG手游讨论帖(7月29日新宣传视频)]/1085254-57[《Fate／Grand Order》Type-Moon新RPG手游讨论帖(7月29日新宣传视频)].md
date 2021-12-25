@@ -14602,3 +14602,30 @@ HWB-M8 是新怪
 
 杀狐看上去根本不认得这个太公望
 
+
+
+*****
+
+####  zakki  
+##### 85372#       发表于 2021-12-25 12:11
+
+隔壁现在就是樱井症候群发病大型观察所，屁大点儿东西还没有呢一个劲的咬文嚼字的犯病，我很迫不及待的想看看这个病末期会是什么症状<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85373#       发表于 2021-12-25 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54038871&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 12:11</a>
+隔壁现在就是樱井症候群发病大型观察所，屁大点儿东西还没有呢一个劲的咬文嚼字的犯病，我很迫不及待的想看 ...</blockquote>
+最精彩的应该就是
+菌鸽鸽:嗨，没想到吧，又是我写的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85374#       发表于 2021-12-25 12:21
+
+这太公望立了这么多死旗  怕不是快退场了
+
