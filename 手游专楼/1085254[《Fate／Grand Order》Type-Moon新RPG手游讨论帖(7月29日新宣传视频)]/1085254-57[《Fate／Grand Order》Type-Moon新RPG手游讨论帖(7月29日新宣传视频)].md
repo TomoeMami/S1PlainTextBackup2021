@@ -15705,3 +15705,18 @@ cm太公的台词除最后你为何在此，都出现了，希望最后不会机
 
 话说马修这个黑枪是不是太强了（指游戏），剧情战，马修开一技能就能放一发5宝500%的哈贝喵宝具，还能给对面挂耐性down的debuff，总算是在游戏机制里也能体会黑枪有多bug了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOBI  
+##### 85475#       发表于 2021-12-25 23:47
+
+ 本帖最后由 KOBI 于 2021-12-25 23:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后还有天兔座这个俄里翁喜欢的猎物的传说
+
+熊真的就是柯杨小姐的全方位天敌。
+
+抑制力看人其实还是很准的，问题大概是太准了
+
