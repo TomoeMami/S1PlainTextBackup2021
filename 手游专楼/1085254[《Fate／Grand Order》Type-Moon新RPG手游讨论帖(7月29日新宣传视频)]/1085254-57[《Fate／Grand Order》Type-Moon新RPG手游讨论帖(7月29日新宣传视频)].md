@@ -15600,3 +15600,30 @@ NGA近半年来什么东西不喷？<img src="https://static.saraba1st.com/image
 
 cm太公的台词除最后你为何在此，都出现了，希望最后不会机械降神般结束吧
 
+
+
+*****
+
+####  v22325  
+##### 85465#       发表于 2021-12-25 22:24
+
+<blockquote>rzxa 发表于 2021-12-25 22:22
+cm太公的台词除最后你为何在此，都出现了，希望最后不会机械降神般结束吧 ...</blockquote>
+你别说  搞不好演到这来一个等2.6.5
+
+*****
+
+####  保罗赫伯特  
+##### 85466#       发表于 2021-12-25 22:34
+
+今天打狐狸用了一下好友的超人熊，拳拳暴击真爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+所以超人熊为啥要在2.51早早地就出场，现在才是需要他的时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 85467#       发表于 2021-12-25 22:38
+
+剧情这情况是不是跟昨天老苏不带男人属性一个样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11190,3 +11190,114 @@ A3897185-9894-4337-89A2-D66BD7A7C10A.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/25/215953ug49mpxmfp9arq6u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2440#       发表于 2021-12-25 22:26
+
+东京塔周边香音可可已经卖完了好像
+
+*****
+
+####  仟音一心  
+##### 2441#       发表于 2021-12-25 22:30
+
+鱼 pay nako
+
+BDD7B8CA-CC08-4512-8F38-230F4CAB50CE.jpeg
+(741.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/223010u895cmtjrm8zx5rk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F3B92BA5-957E-4D1F-897B-65A5F5B2234C.jpeg
+(800.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/223010t6iepn2niin2w2z7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+98B65CE1-40E0-4FB4-BA0B-D1BF87181FE8.jpeg
+(486.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/223010m433x8wqe887syz3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 2442#       发表于 2021-12-25 22:31
+
+花田的风格就是基于角色大概性格想出一个煽情的场景，然后把整体剧情全往那边靠，全为制造出这个场景而服务
+
+因为多少有些强行所以有时候人物性格看起来会有些偏离，故事逻辑也是如此
+
+这套玩法好的时候效果好得批爆，比如可香，硬要说的话可香的故事也有些逻辑问题和刻意感但就是好，好到就算故事去到11话前都是中日最强CP
+
+又比如切克闹一话救可堇，好到10话后CP搜索浏览量直接飞升到星星第一，有些画师一段时间内甚至上头到一天一可堇
+
+又又比如说缪剧场版剧情也挺emmmm的，但煽情效果就是够好，谁看了不呜呜呜呜呜缪斯我的缪斯
+
+但不好的时候，情没煽起来的时候的造成的后果就是观感迷惑，因为人物性格和故事逻辑偏离更是凸显这一点
+
+LL作为歌舞偶像番要写比赛，要写胜负，光凭歌舞对决很明显是不够的
+
+那么决定胜负的关键因素是什么呢？自然就是心境了，境界到了就能赢了，境界不够歌舞再好也不行
+
+我为什么把你爆杀了？因为老娘的思想觉悟比你高
+
+为了凸显心境的成长，足够煽情的场景是必要的，花田这个思路对于LL来说是正确的，他最大的问题比起能力不够而是这套做法从根子上不够稳定
+
+虽然都在说样板戏，但排除掉一些系列传统元素，可以看出花田还是有在考虑到角色区分度努力整活的，只不过有时好活，有时烂活罢了
+
+*****
+
+####  黑雪姫  
+##### 2443#       发表于 2021-12-25 22:36
+
+恋人气低的问题可不光是因为花田的剧本，无印凛的动画个人回写的够好了吧，凛人气高吗？
+
+*****
+
+####  仟音一心  
+##### 2444#       发表于 2021-12-25 22:39
+
+nagi
+
+24889E50-D95B-4894-8E52-20CA7449AA1A.jpeg
+(330.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/223931pt7tb8ic8ct4o2u5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F2B721D9-9A03-41DB-9A31-15C888E54343.jpeg
+(265.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/223931k0iliq7g4ufcn0in.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+70027AB9-AE42-4856-9CC8-D902BF2521A6.jpeg
+(841.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/223931eyus1frrc1rhkuvk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

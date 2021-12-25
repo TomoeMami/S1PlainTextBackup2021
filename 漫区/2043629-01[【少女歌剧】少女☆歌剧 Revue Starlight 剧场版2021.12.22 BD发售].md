@@ -3083,3 +3083,23 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 约定之塔能被你想成棺材</blockquote>
 我觉得最后阿恋确实装棺材里啦，就那个T形的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Acatv  
+##### 224#       发表于 2021-12-25 22:26
+
+动画里的恋在日常里一直给我一种元气笨蛋的刻板印象
+
+这次回忆中的华恋在追梦途中倒是多了很多踌躇和纠结的小情绪，有的地方给我感觉有点像久美子了（笑
+
+*****
+
+####  于干  
+##### 225#       发表于 2021-12-25 22:40
+
+太棒了。看的过程中随时都想发病，长颈鹿烧起来，我也跟着着火了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -8382,3 +8382,18 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 直接看每月火葬场死亡的总人数就行了，这个是最准确的，就算玩统计猫腻也躲不过。 ...</blockquote>
 话说去年美国不是很多棺材直接埋地里吗 后面有挖出来火化吗？
 
+
+
+*****
+
+####  烦死了  
+##### 2209#       发表于 2021-12-25 22:38
+
+大英机构表示辉瑞加强针剂预防有症状的COVID的能力在数周内减弱<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+英国卫生安全局（UKHSA）审查了该国68489个Omicron病例。据评估，辉瑞和Moderna疫苗在接种第三针后的2-4周内预防有症状的疾病的效果约为70%（对以前占主导地位的Delta变体的效果下降了约90%）。
+
+使用辉瑞公司的增强剂，到10周时这一比例下降到45%，但Moderna增强剂的效力至少在9周内保持在70%左右。
+
+[https://www.timesofisrael.com/uk ... wanes-within-weeks/](https://www.timesofisrael.com/uk-agency-pfizer-boosters-ability-to-prevent-symptomatic-covid-wanes-within-weeks/)
+

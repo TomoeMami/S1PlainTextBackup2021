@@ -4497,3 +4497,105 @@ steam墙没墙对我来说反正是无所谓，也别给我瞎扣帽子
 游戏行业也没啥像李开复那样能上达天听的人吧？倒不如说中国游戏行业的掌权者都巴不得steam死。 ...</blockquote>
 就不提国内被一巴掌干死的教培了，国外品牌在国内被橄榄的也不是一个两个了吧。日亚没人权是吧，八国联军的亚马逊不封就封它，连个吹风的批判的新闻都没有。还有什么乐天之类的，都是人畜无害的日本购物网站，说清理就清理，这谁定得住啊
 
+
+
+*****
+
+####  千千千千鸟  
+##### 424#       发表于 2021-12-25 22:25
+
+ 本帖最后由 千千千千鸟 于 2021-12-25 22:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">前面开了下商店发现秒开，还以为又是狼来了，看到群里有人说真的上不去才想起来，电脑自启动clash。
+
+关了梯子试了下居然真的不能上了，也好，这下就没有天天复读加速和狗洞的B，感慨一下，自从用了clash之后真的模糊了墙的概念，全设备基本都是直通。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+发完试了下，又可以裸连了，不懂了，不过无所谓，反正有本事就把海底光缆断了
+
+*****
+
+####  格林达姆  
+##### 425#       发表于 2021-12-25 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045247&amp;ptid=2043948" target="_blank">洗刷刷 发表于 2021-12-25 22:07</a>
+这个东西太可怕了。没有公告，也没个让人遵守的法律法规，连负责的机构和实际控制人都不清楚。不知道什么站 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">First time?
+
+*****
+
+####  暗影之诗  
+##### 426#       发表于 2021-12-25 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045449&amp;ptid=2043948" target="_blank">千千千千鸟 发表于 2021-12-25 22:25</a>
+
+前面开了下商店发现秒开，还以为又是狼来了，看到群里有人说真的上不去才想起来，电脑自启动clash。 ...</blockquote>
+现在是在G*W测试新玩具阶段，每个人都可以有一定时间上得去。
+
+我的建议是大家养成看好商品光速购买的习惯，因为亲测只能维持一到两分钟时间，再不能像以前那样慢慢逛了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ts1abaras  
+##### 427#       发表于 2021-12-25 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045247&amp;ptid=2043948" target="_blank">洗刷刷 发表于 2021-12-25 22:07</a>
+这个东西太可怕了。没有公告，也没个让人遵守的法律法规，连负责的机构和实际控制人都不清楚。不知道什么站 ...</blockquote>
+大惊小怪，gg占全球多少
+
+—— 来自 Xiaomi MI 8 SE, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Dreki  
+##### 428#       发表于 2021-12-25 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045435&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-25 22:23</a>
+
+这种力量的代价，可是全中国过半的超级机算力。
+
+在信息时代，能集合如此之庞大的算力，确实是能堪比神力 ...</blockquote>
+超算怎么算这个？感觉自己白用了这么久超算
+
+*****
+
+####  千千千千鸟  
+##### 429#       发表于 2021-12-25 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045510&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-25 22:32</a>
+
+现在是在G*W测试新玩具阶段，每个人都可以有一定时间上得去。
+
+我的建议是大家养成看好商品光速购买的习惯 ...</blockquote>
+ 无所谓，像STEAM,github这些网站，早就当成被墙来对待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑兽  
+##### 430#       发表于 2021-12-25 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043904&amp;ptid=2043948" target="_blank">高龙 发表于 2021-12-25 20:39</a>
+
+是我的错觉吗？我这几年六七成的Steam焦虑论都是在S1看到的。</blockquote>
+泥潭是游戏论坛中最爱讨论的，甚至为讨论专门建了分区<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zashou  
+##### 431#       发表于 2021-12-25 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045387&amp;ptid=2043948" target="_blank">洗刷刷 发表于 2021-12-25 22:19</a>
+
+游戏行业也没啥像李开复那样能上达天听的人吧？倒不如说中国游戏行业的掌权者都巴不得steam死。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">为什么要让steam死？死了怎么往上面发产品？
+
+*****
+
+####  18300625949  
+##### 432#       发表于 2021-12-25 22:41
+
+ 本帖最后由 18300625949 于 2021-12-25 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043904&amp;ptid=2043948" target="_blank">高龙 发表于 2021-12-25 20:39</a>
+
+是我的错觉吗？我这几年六七成的Steam焦虑论都是在S1看到的。</blockquote>
+只是因为你上s1的时间太多了……外国文化产品（steam、日漫、外国电影）焦虑论最风行的地方是知乎，书记在知乎说steam肯定会被墙还被s1官博挂了
+
