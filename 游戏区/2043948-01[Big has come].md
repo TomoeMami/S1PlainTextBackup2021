@@ -3226,3 +3226,97 @@ AAA游戏动不动上百G，梯子再好也顶不住</blockquote>
 —— 来自 Xiaomi Mi 10, A ...</blockquote>
 谁给你克总只有两只靴子的错觉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  afer  
+##### 302#       发表于 2021-12-25 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042498&amp;ptid=2043948" target="_blank">HOLIDAY 发表于 2021-12-25 18:50</a>
+
+建你妈建还建设性看见狗洞大师吃瘪就很爽，这是一种很纯粹的快乐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去外野去贴吧不是操的很开心？肏逼逛窑子这是真理啊，干嘛非得去饭店找乐子。
+
+*****
+
+####  psvsd  
+##### 303#       发表于 2021-12-25 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042081&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:12</a>
+ 是润是躺都可以，我就看见两群蠢货在这抖聪明了，嘴上看不起外野，这他妈和外野有啥区别，都开始发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为分析技术没人听，听了也没用
+我现在跟你说域前置，你能现在马上拿出全平台解决方案（对，域前置以我了解到的信息目前还没有一个主流的移动平台解决方案）推广到国内半数以上的steam玩家且不被监管机构橄榄吗
+
+最终手段还是得推墙，但现在游戏婆罗门都会早该管管了，那不就只能在这里互相阴阳怪气了
+
+*****
+
+####  afer  
+##### 304#       发表于 2021-12-25 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042365&amp;ptid=2043948" target="_blank">北欧王座 发表于 2021-12-25 18:37</a>
+
+绝学，从分析情况的，聊自身经历的，猜测的，互相怼的中间跳出来互相怼的。并表示自己寻找的是更具有现实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恶心的是啥？恶心的不是狗鸡漏出来了还装文明人？都发键政小将的图了，开开心心去外野开个副本不好么？都不在乎这五块钱了在这放谜语干嘛？是当斑竹傻逼还是你们真傻逼？人家真有建设性的好好聊天的也懒得搭理你们不是，也就我这种和你们一样神经病的还过来操一操。
+
+*****
+
+####  lanhao  
+##### 305#       发表于 2021-12-25 19:15
+
+“有没有可能是tg内部有加速人在捣鬼” <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  avig1n  
+##### 306#       发表于 2021-12-25 19:15
+
+有懂哥说说吗，我现在学校邮箱收不到steam发的邮件了，和这次有关系吗，想登录steam验证码都收不到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 307#       发表于 2021-12-25 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042734&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 19:12</a>
+
+恶心的是啥？恶心的不是狗鸡漏出来了还装文明人？都发键政小将的图了，开开心心去外野开个副本不好 ...</blockquote>
+谢谢你
+
+*****
+
+####  afer  
+##### 308#       发表于 2021-12-25 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042694&amp;ptid=2043948" target="_blank">psvsd 发表于 2021-12-25 19:09</a>
+
+因为分析技术没人听，听了也没用
+
+我现在跟你说域前置，你能现在马上拿出全平台解决方案（对，域前 ...</blockquote>
+这帖子一开始还是有人发点有用信息的，后面就都是屁股和人身攻击了，许他们操人那也许我说他们没劲不是？有本事外野开帖片啊，反正已经不在乎五块钱了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 309#       发表于 2021-12-25 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042770&amp;ptid=2043948" target="_blank">北欧王座 发表于 2021-12-25 19:16</a>
+
+谢谢你</blockquote>
+您老客气了~是我应该操的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 310#       发表于 2021-12-25 19:21
+
+最差情况就是cdn也被干死，不过就算是这样也还能买个网盘会员去三大妈下分流版（当然都到了这一步了，推荐直接玩学习版了）我们玩独立的就麻麻了
+
+*****
+
+####  xyfxu  
+##### 311#       发表于 2021-12-25 19:21
+
+我还是建议狗洞大师们嫌无聊可以把他们的话都实名发微博上，一个个@网警看看最后能活几个，另类大逃杀不是吗
+
