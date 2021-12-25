@@ -3320,3 +3320,258 @@ AAA游戏动不动上百G，梯子再好也顶不住</blockquote>
 
 我还是建议狗洞大师们嫌无聊可以把他们的话都实名发微博上，一个个@网警看看最后能活几个，另类大逃杀不是吗
 
+
+
+*****
+
+####  白石  
+##### 312#       发表于 2021-12-25 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042034&amp;ptid=2043948" target="_blank">hypnossz86 发表于 2021-12-25 18:07</a>
+
+面对铁拳能有什么措施和干货啊
+
+现在就这么两种情况
+
+1这几天只是技术性调整，那就等几天能恢复正常 ...</blockquote>
+这两边阵营是不是反了，按道理应该是反对派找工具，忠诚派看热闹。现在是忠诚派找工具，反对派看热闹。亚空间魔幻地新的一天。
+
+*****
+
+####  白石  
+##### 313#       发表于 2021-12-25 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042010&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:06</a>
+
+这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
+都忙着键政呢，谁管你臭打游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 314#       发表于 2021-12-25 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042823&amp;ptid=2043948" target="_blank">xyfxu 发表于 2021-12-25 19:21</a>
+
+我还是建议狗洞大师们嫌无聊可以把他们的话都实名发微博上，一个个@网警看看最后能活几个，另类大逃杀不是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一说倒是挺好玩，觉青张口是恨但实际上内心里期待靴子落地能合法，而狗东大师张口是爱但实际上干的是自己能被请去喝茶的，真是相爱相杀，缠绕攻击，一时间分不出爱恨，引来漫天妖娆。
+
+*****
+
+####  920619lqy  
+##### 315#       发表于 2021-12-25 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042847&amp;ptid=2043948" target="_blank">白石 发表于 2021-12-25 05:24</a>
+
+这两边阵营是不是反了，按道理应该是反对派找工具，忠诚派看热闹。现在是忠诚派找工具，反对派看热闹。亚 ...</blockquote>
+没有反，现在流行的就是鼓励踩油门。
+
+*****
+
+####  wtyrambo  
+##### 316#       发表于 2021-12-25 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">找JB工具，被墙了翻就是了还有什么讨论的，还不如多骂骂那些把翻墙当作圣上赏赐的狗洞大师
+
+*****
+
+####  920619lqy  
+##### 317#       发表于 2021-12-25 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042694&amp;ptid=2043948" target="_blank">psvsd 发表于 2021-12-25 05:09</a>
+
+因为分析技术没人听，听了也没用
+
+我现在跟你说域前置，你能现在马上拿出全平台解决方案（对，域前 ...</blockquote>
+只能说配得上这锅热水了
+
+*****
+
+####  afer  
+##### 318#       发表于 2021-12-25 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042881&amp;ptid=2043948" target="_blank">920619lqy 发表于 2021-12-25 19:26</a>
+
+没有反，现在流行的就是鼓励踩油门。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只是觉得这群傻逼污染版面不去外野开片可惜了，在这个观点上我油门是到底的，所以如此有正义心的各位谁去踩到底来一脚，让我见识见识。
+
+*****
+
+####  龙娘777  
+##### 319#       发表于 2021-12-25 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042753&amp;ptid=2043948" target="_blank">lanhao 发表于 2021-12-25 19:15</a>
+“有没有可能是tg内部有加速人在捣鬼”</blockquote>
+谢谢你 我好受些了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白石  
+##### 320#       发表于 2021-12-25 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042881&amp;ptid=2043948" target="_blank">920619lqy 发表于 2021-12-25 19:26</a>
+
+没有反，现在流行的就是鼓励踩油门。</blockquote>
+在车顶上的踩什么油门<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zashou  
+##### 321#       发表于 2021-12-25 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042900&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 19:28</a>
+
+我只是觉得这群傻逼污染版面不去外野开片可惜了，在这个观点上我油门是到底的，所以如此有正义心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这种贴本来就是开出来对线的，认真讨论对策可以再开一个帖子。
+
+你进来前都已经击剑击成这样了，你进来后要照着你的意思转向，是不是干部当多了。<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 322#       发表于 2021-12-25 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">所以有人关心进展情况吗，我看到这贴去试了STEAM打不开，后来行了现在连续对着商店刷了半小时还没出现过打不开。虽然感觉帖子发出来就要打不开了。
+
+*****
+
+####  圣罗.希露温  
+##### 323#       发表于 2021-12-25 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042847&amp;ptid=2043948" target="_blank">白石 发表于 2021-12-25 19:24</a>
+
+这两边阵营是不是反了，按道理应该是反对派找工具，忠诚派看热闹。现在是忠诚派找工具，反对派看热闹。亚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 没工具还敢自称反对派？而且现在反对派最喜欢踩油门了，没错，就是恨不得steam马上封了
+
+*****
+
+####  白左  
+##### 324#       发表于 2021-12-25 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041605&amp;ptid=2043948" target="_blank">红都剧院24排4号 发表于 2021-12-25 17:31</a>
+
+黑神话国内大概率拿不到版号，steam除了狗东大师一般国人又上不去，是不是提前凉了？ ...</blockquote>
+一边是做gacha躺着数钱，优秀文化奖杯拿到手软，还有小将免费当卫道士
+
+一边是用心做产品还被内外各方势力轮流打压釜底抽薪，被舆论口诛笔伐人人喊打，本来就没多少的玩家自己分裂互掐，还赚不到钱
+
+现在做单机的真的是需要梦想才能坚持得下去
+
+*****
+
+####  havoc_cc  
+##### 325#       发表于 2021-12-25 19:33
+
+记得google刚被墙的时候，很长一段时间靠改hosts还能用，但是明显的使用频率就慢慢降低。
+
+*****
+
+####  afer  
+##### 326#       发表于 2021-12-25 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042927&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-25 19:31</a>
+
+这种贴本来就是开出来对线的，认真讨论对策可以再开一个帖子。
+
+你进来前都已经击剑击成这样了，你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有，我观点很明确，就是进来搞个大AOE就跑，他们不是要第三阵营么。
+
+另外，我是真的进来看有没有新闻或者有啥有见地的看法的，结果看了几页键政小鬼的玩意就烦了。
+
+*****
+
+####  920619lqy  
+##### 327#       发表于 2021-12-25 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042927&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-25 05:31</a>
+
+这种贴本来就是开出来对线的，认真讨论对策可以再开一个帖子。
+
+你进来前都已经击剑击成这样了，你 ...</blockquote>
+其实也没有什么特殊到值得单独拿出来说的对策，别的站怎么上，steam就怎么上，纠结什么下载一个游戏几百GB的，那你也得硬着头皮榨干管子流量不是吗。
+
+再不然就是润，当然这个难度一下子就上去了。
+
+当然没人敢去想推墙的事情，也没那个本事，再多说怕是要出事了。
+
+*****
+
+####  tokimon  
+##### 328#       发表于 2021-12-25 19:36
+
+同一锅温水，还有青蛙觉得只是泡澡
+
+*****
+
+####  920619lqy  
+##### 329#       发表于 2021-12-25 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042950&amp;ptid=2043948" target="_blank">havoc_cc 发表于 2021-12-25 05:33</a>
+
+记得google刚被墙的时候，很长一段时间靠改hosts还能用，但是明显的使用频率就慢慢降低。 ...</blockquote>
+因为这就是计划内的效果，只要你用着不舒服，就会慢慢的弃用它，去寻找替代品，前例太多了。
+
+*****
+
+####  zashou  
+##### 330#       发表于 2021-12-25 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042847&amp;ptid=2043948" target="_blank">白石 发表于 2021-12-25 19:24</a>
+
+这两边阵营是不是反了，按道理应该是反对派找工具，忠诚派看热闹。现在是忠诚派找工具，反对派看热闹。亚 ...</blockquote>
+思考一下本质即可破解你的迷惑。
+
+本质就是不管是狗洞大师还是狗洞西斯，本质上都是游戏人。
+
+就好象某个日本动画观众群体爆发神兔大战，不管谁摆什么屁股，本质都是日漫受众。
+
+对外面的人，比如反而次元吧的人看起来，这都是一群精日，无非是精日内讧而已。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zashou  
+##### 331#       发表于 2021-12-25 19:38
+
+ 本帖最后由 zashou 于 2021-12-25 19:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042972&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 19:35</a>
+
+没有，我观点很明确，就是进来搞个大AOE就跑，他们不是要第三阵营么。
+
+另外，我是真的进来看有没 ...</blockquote>
+思考一下明年的大事件就会知道最近这一连串的收缩几乎是一定的。
+
+鹅害鹅对线是最安全的。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+整个文娱业界都屏息等大的落地，区区一个Steam平台的非官方用户真的很平静了。
+
+*****
+
+####  920619lqy  
+##### 332#       发表于 2021-12-25 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042932&amp;ptid=2043948" target="_blank">tillnight 发表于 2021-12-25 05:31</a>
+
+所以有人关心进展情况吗，我看到这贴去试了STEAM打不开，后来行了现在连续对着商店刷了半小时还没出 ...</blockquote>
+没什么好关心的，直接快进到全程挂梯子用就完了，能省心不少，你跟着一步步加码去捣鼓这个那个的影响自己生活质量。
+
+*****
+
+####  Mozlynx  
+##### 333#       发表于 2021-12-25 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042881&amp;ptid=2043948" target="_blank">920619lqy 发表于 2021-12-25 03:26</a>
+没有反，现在流行的就是鼓励踩油门。</blockquote>
+再轮也轮不到保险杠踩油门<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  920619lqy  
+##### 334#       发表于 2021-12-25 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043059&amp;ptid=2043948" target="_blank">Mozlynx 发表于 2021-12-25 05:43</a>
+
+再轮也轮不到保险杠踩油门</blockquote>
+所以说是鼓励不是？
+

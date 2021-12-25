@@ -15116,3 +15116,19 @@ dw，我的fw服务器
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只剩虎战车和战斗兽了 
 
+
+
+*****
+
+####  sosgame67  
+##### 85420#       发表于 2021-12-25 19:26
+
+拉跨素材，体力打完摸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85421#       发表于 2021-12-25 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没打完么
+

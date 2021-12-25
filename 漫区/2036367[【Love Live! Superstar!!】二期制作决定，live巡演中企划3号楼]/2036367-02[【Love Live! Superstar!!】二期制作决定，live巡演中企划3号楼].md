@@ -10870,3 +10870,34 @@ mv开头那花挺眼熟的，是不是侑哥哥送给步梦的那种
 
 佩佩今天贴鲤鱼贴好紧～<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 2422#       发表于 2021-12-25 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042591&amp;ptid=2036367" target="_blank">zylwz 发表于 2021-12-25 18:58</a>
+
+老天爷赏饭当然说的是音色这种先天条件啊
+
+青山姐好歹是参加过阿卡贝拉合唱团 唱过音乐剧的
+
+演唱技巧当然 ...</blockquote>
+问题是音色我也是觉得青山更好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 2423#       发表于 2021-12-25 19:32
+
+还能说什么，花田看看你干的好事
+
+<img src="https://img.saraba1st.com/forum/202112/25/193229h9pd9i3iddla3b6b.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2p-bbd1ZqT3cSps-mb.jpg</strong> (158.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 19:32 上传
+
