@@ -11431,3 +11431,50 @@ Sayuri
 
 其实水水的黑泽黛雅那边的剧情我挺喜欢的，三年生和姐妹线都很突出角色个性的，也许花田就比较擅长已有的深层次关系的描写和发展吧（虽然曜千也），星团就一对青梅其他人都不熟，也许需要铺垫的时间长点吧，下一季说不定渐入佳境...
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2457#       发表于 2021-12-26 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045552&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-25 22:36</a>
+恋人气低的问题可不光是因为花田的剧本，无印凛的动画个人回写的够好了吧，凛人气高吗？ ...</blockquote>
+我怎么听说日本凛推还挺多的
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  黑雪姫  
+##### 2458#       发表于 2021-12-26 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046386&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2021-12-26 00:01</a>
+
+我怎么听说日本凛推还挺多的
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+听说没用，多不多看投票的排名最客观
+
+*****
+
+####  kata魂  
+##### 2459#       发表于 2021-12-26 00:12
+
+今天有没有人投票，为什么我昨天晚上11点（日本那边0点）投了一次，现在还投不了~不是说一天能投一次吗
+
+*****
+
+####  黑雪姫  
+##### 2460#       发表于 2021-12-26 00:18
+
+ 本帖最后由 黑雪姫 于 2021-12-26 00:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045935&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-12-25 23:16</a>
+
+凛那种人设好像普遍不讨喜啊，恋学生会长脱线反差按理说应该挺受欢迎才对，不过恋角色设计有点普通可能会对 ...</blockquote>
+看了一眼5CH拉板讨论..
+
+基本就是说这种前期扮黑脸一本正经的反差萌学生会长人设已经腻了（絵里とダイヤで食傷してんだわ ）
+
+更有甚者说出 だって人気出る要素が何もないじゃん
+

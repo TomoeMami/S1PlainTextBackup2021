@@ -4911,3 +4911,80 @@ SNI技术都实装了好多年了。
 
 如果大陆游戏市场真的萎缩，厂商还愿意出中文甚至同步中文吗？趴地上想了想还是拿出积灰的标日吧
 
+
+
+*****
+
+####  Litccc  
+##### 459#       发表于 2021-12-26 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045890&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-25 23:12</a>
+
+GITHUB从几个月前那次被跟这次STEAM一样的新技术搞了后，就一直一蹶不振了。
+
+要上，要么用国内镜像，但是 ...</blockquote>
+想起来用gitee克隆了某个不可描述的项目之后被锁定仓库了，还好没封号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗影之诗  
+##### 460#       发表于 2021-12-26 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046403&amp;ptid=2043948" target="_blank">Kojimaru 发表于 2021-12-26 00:03</a>
+
+如果大陆游戏市场真的萎缩，厂商还愿意出中文甚至同步中文吗？趴地上想了想还是拿出积灰的标日吧
+
+ ...</blockquote>
+怕你不知道提一嘴，DLSITE官中越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。某P站X站中文部分还整了好多花活
+
+*****
+
+####  DawnGuardian  
+##### 461#       发表于 2021-12-26 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046403&amp;ptid=2043948" target="_blank">Kojimaru 发表于 2021-12-26 00:03</a>
+
+如果大陆游戏市场真的萎缩，厂商还愿意出中文甚至同步中文吗？趴地上想了想还是拿出积灰的标日吧
+
+ ...</blockquote>
+这其实才是最麻烦的问题，就拿steam来说，中文化的普及离不开steam国区的发展，真要退回2013年以前，恐怕大量独立游戏/中型制作将再也无法进入国内玩家的视野
+
+*****
+
+####  缺德猫  
+##### 462#       发表于 2021-12-26 00:17
+
+丝滑打开首页，然后点了打折中的游戏，-103
+
+*****
+
+####  thecatnie  
+##### 463#       发表于 2021-12-26 00:21
+
+真要墙了商店，杉果这种二道贩子不得乐疯了
+
+*****
+
+####  FUZE  
+##### 464#       发表于 2021-12-26 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046521&amp;ptid=2043948" target="_blank">thecatnie 发表于 2021-12-26 00:21</a>
+
+真要墙了商店，杉果这种二道贩子不得乐疯了</blockquote>
+乐个屁
+
+他们就一个买KEY的
+
+哪里去激活？
+
+*****
+
+####  pRll7R  
+##### 465#       发表于 2021-12-26 00:22
+
+从冬促到现在能打开商店的次数屈指可数
+
+最后去手机上挂了加速器才买到双人成行<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+还好下载暂时没有什么问题……
+
