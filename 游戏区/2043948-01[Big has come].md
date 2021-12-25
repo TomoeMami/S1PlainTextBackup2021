@@ -5289,3 +5289,192 @@ g*w有生之年能拆么。。</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  whzfjk  
+##### 488#       发表于 2021-12-26 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044660&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-25 21:28</a>
+
+这没必要黑，墙就是最高段位的网络技术，世界级的。
+
+原理可能并不难，但是要实现全中国出口带宽的吞吐量 ...</blockquote>
+其实按ZF屏蔽海外娱乐服务的随性态度，一直搞不懂为什么筛查网络流量不用一刀切和摆烂拉低QoS的巨婴思路？
+
+*****
+
+####  夜游的树  
+##### 489#       发表于 2021-12-26 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046399&amp;ptid=2043948" target="_blank">sdefrfg 发表于 2021-12-26 00:03</a>
+
+铁拳总不是真就克苏鲁吧？还是说分管这个领域的从上到下全是一条心就为了干死你游戏？ ...</blockquote>
+因为老爷怕不真的就朴素的觉得，现在的年轻人都打游戏看视频去了不奋斗了，那不行我把游戏都干死他们就会去干活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你想想之前的未成年游戏禁令还有搜题软件。小孩子不学习净打游戏怎么办，那我把游戏关了。小孩子不做作业了怎么办，那我把搜题软件关了。你看，思路一脉相承，还是几千年父母官封建大家长的老想法。
+
+至于以前不管，估计是懒得管怕麻烦，现在整体文化领域的大背景都在收紧了，那当然就到了下刀的时候。至于还没动刀短视频，我估计一是老爷平时也在看，二是这个确实牵涉比较大，但迟早有一天，那是肯定要下手的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  havoc_cc  
+##### 490#       发表于 2021-12-26 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54047218&amp;ptid=2043948" target="_blank">夜游的树 发表于 2021-12-26 02:07</a>
+
+因为老爷怕不真的就朴素的觉得，现在的年轻人都打游戏看视频去了不奋斗了，那不行我把游戏都干死他们就会 ...</blockquote>
+所以一开始封耽美的时候，S1外野一堆人叫好我是最莫名其妙的
+
+*****
+
+####  Tring  
+##### 491#       发表于 2021-12-26 02:16
+
+ 本帖最后由 Tring 于 2021-12-26 02:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54047212&amp;ptid=2043948" target="_blank">whzfjk 发表于 2021-12-26 02:05</a>
+
+其实按ZF屏蔽海外娱乐服务的随性态度，一直搞不懂为什么筛查网络流量不用一刀切和摆烂拉低QoS的巨婴思路 ...</blockquote>
+我觉得应该从更具战略意义的角度来考虑墙这东西。
+
+虽然现在主要是拿来折磨屁民的，但是这东西能够做的事却比这要多的多。
+
+不管是技术层面，还是ZZ层面。
+
+我觉得对ZF来说，这东西就是战略级武器。
+
+也就是因果关系是反过来的，
+
+并不是为了折磨屁民而造了墙，
+
+而是因为墙恰巧能够折磨屁民，所以就顺便拿来用了而已。
+
+*****
+
+####  enhancedmusic  
+##### 492#       发表于 2021-12-26 02:17
+
+每年都有人再说Steam被墙，希望今年能成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  evaqyqx  
+##### 493#       发表于 2021-12-26 02:20
+
+我这边可以正常上了
+
+*****
+
+####  evaqyqx  
+##### 494#       发表于 2021-12-26 02:27
+
+大意了，又上不去了
+
+*****
+
+####  wangchaofire  
+##### 495#       发表于 2021-12-26 02:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">间歇性的在能上和不能上之间波动
+
+*****
+
+####  風舞雪  
+##### 496#       发表于 2021-12-26 02:38
+
+中国房价暴跌
+
+美国股市暴跌
+
+steam被墙
+
+每年都这些议题<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YFIIII  
+##### 497#       发表于 2021-12-26 02:41
+
+商店现在确实在间歇性的抽风，太tm神奇了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yang6451  
+##### 498#       发表于 2021-12-26 02:56
+
+好像又能上了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ztgmeteor  
+##### 499#       发表于 2021-12-26 03:01
+
+年年steam年年被封，今年会成真么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千本blur  
+##### 500#       发表于 2021-12-26 03:44
+
+经过长期的观察，我无比确信我国的科研机器臃肿而低效是因为养了大量连谷歌和github都TM上不去的贵物。
+
+所以能不能让我们这些国男也有点底线思维：别TM墙steam我超。
+
+*****
+
+####  oskneo  
+##### 501#       发表于 2021-12-26 03:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045449&amp;ptid=2043948" target="_blank">千千千千鸟 发表于 2021-12-25 22:25</a>
+前面开了下商店发现秒开，还以为又是狼来了，看到群里有人说真的上不去才想起来，电脑自启动clash。 ...</blockquote>
+clash怎样解决上b站分别看国区的片和港澳台片的问题
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  920619lqy  
+##### 502#       发表于 2021-12-26 05:02
+
+<blockquote>FUZE 发表于 2021-12-25 10:55
+不是断外网
+
+因为确实就墙了一天
+
+然后我挂全局代理可以登陆
+</blockquote>
+13年有点早了，我那时候账号上应该就一个dota2，第一笔消费距离账号注册整一年，还是为了买dota2饰品。当时我还想着毕业回国呢
+
+*****
+
+####  920619lqy  
+##### 503#       发表于 2021-12-26 05:04
+
+<blockquote>18300625949 发表于 2021-12-25 08:41
+只是因为你上s1的时间太多了……外国文化产品（steam、日漫、外国电影）焦虑论最风行的地方是知乎，书记在 ...</blockquote>
+现在应该可以把包括里神乐在内的一串狗洞大师拉出来鞭尸了
+
+*****
+
+####  lemuever17  
+##### 504#       发表于 2021-12-26 05:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045449&amp;ptid=2043948" target="_blank">千千千千鸟 发表于 2021-12-25 22:25</a>
+
+前面开了下商店发现秒开，还以为又是狼来了，看到群里有人说真的上不去才想起来，电脑自启动clash。 ...</blockquote>
+你真当他们不敢切光缆么
+
+*****
+
+####  920619lqy  
+##### 505#       发表于 2021-12-26 05:17
+
+<blockquote>Tring 发表于 2021-12-25 11:11
+当然不能一刀切，全部加密的报文都丢掉啊。
+
+碰到加密就丢，那所有国外网站的包全都会被丢，还搞啥墙啊， ...</blockquote>
+TLS1.3刚开始有网站使用那段时间就是直接被打断的，可以认为墙在那个时候遇到无法解析但是有特征的加密连接直接就干。后来怎么样我就没关心了。规则挺多的
+

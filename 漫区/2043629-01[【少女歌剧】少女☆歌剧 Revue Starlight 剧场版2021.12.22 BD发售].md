@@ -3282,3 +3282,109 @@ tv版banana回都得吃掉二十分钟呢（
 
 最尽头的部分有个亮起来的部分，这个就是摘星之塔的样子
 
+
+
+*****
+
+####  矮矮人  
+##### 242#       发表于 2021-12-26 02:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然演出很好看，但是剧情完全没懂啊，或者说是毕业破事水了两小时
+感觉就是几个mv剪在一起了，有点犯困
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.0-play
+
+*****
+
+####  Cybellybanana  
+##### 243#       发表于 2021-12-26 02:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045676&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-25 22:50</a>
+
+你是否在说这个</blockquote>
+？哈哈
+
+*****
+
+####  Kyoto  
+##### 244#       发表于 2021-12-26 02:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蕉哥哥把你们都鲨了，牛逼了这剧场版，艺术！
+
+*****
+
+####  堆雪若叶  
+##### 245#         楼主| 发表于 2021-12-26 02:27
+
+ 本帖最后由 堆雪若叶 于 2021-12-26 02:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54047054&amp;ptid=2043629" target="_blank">whzfjk 发表于 2021-12-26 01:30</a>
+
+这个企划感觉唯一的遗憾是没有必杀技，决胜点基本就是平时的对剑加个飞纽扣的画面
+
+光的闪耀的再生产也就是 ...</blockquote>
+必杀：nonnon哒哟
+
+草感觉最后恋哥哥真输在这上面了（
+
+*****
+
+####  最终兵器狂战  
+##### 246#       发表于 2021-12-26 02:58
+
+我看完了。感觉大受震撼.jpg
+
+不愧是舞台少女。填个志愿一个个都填的轰轰烈烈要死要活的。把人都扔到舞台上，聚光灯特效打满，各种意象带来的仪式感把矛盾拉到了最为夸张的程度。这种环境下少女们以剑交心的场面真的只能用闪耀来形容了。啊。。。抹布洗。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不过单轮各组的感觉的话，
+
+花叶组：从新人拌嘴熬成了结婚8年的老夫老妻床头吵架床尾和。
+
+光之魔球：总觉得小光进电梯后，得捏着小刀缩在角落，看着外面的露女士一锤子一锤子把电梯门的半边都砸烂，然后从洞里露出脸来一句“Here's Mahiro chan.” <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+啊！蕉蕉："吼吼，没有逃走而是朝蕉蕉我走过来了么？"
+
+maya库洛：库洛子的小虎牙太棒了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+光恋之魂：你恋哥哥初见受苦后三百六十五地路开着火车冒着沙尘暴回来捡尸体了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奇拉奇拉  
+##### 247#       发表于 2021-12-26 03:05
+
+觉得‘剧情没意思’‘几乎啥也没说’的朋友也别怀疑自我，你们的感觉是没啥问题的。
+如果从‘剧情’这边分析，这剧场版唯一的意义就是补完了阿恋的形象，剩下的都可以说是屁事儿水。
+主要好评还是制作组回应了观众的期望，所谓‘淦他娘塞爆’
+
+*****
+
+####  PLANETDANCE  
+##### 248#       发表于 2021-12-26 03:18
+
+恋哥哥…太重辣<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">单方面写信12年，届不到就当场去世什么的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Mc凉月奏酱  
+##### 249#       发表于 2021-12-26 04:06
+
+剧情方面个人感觉最遗憾的还是大场奈奈这个角色
+
+如果不是古川在制作TV时候的创造，这个角色其实没有这么多花样
+
+从TV到RRR再到皆杀，大场奈奈成了推动整个系列的线索人物，最后简简单单落在跟纯那的revue里太可惜了
+
+除去光恋就这个角色最有深入挖掘的价值了，要是当初没给大场奈奈分配个CP，不知道少歌会拍成什么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 250#       发表于 2021-12-26 05:48
+
+转
+
+[发病记录] 少女歌剧 剧场版 真星为你，关于爱城华恋的补完计划，还有长颈鹿想看的是什么。
+[https://bbs.nga.cn/read.php?tid=30003180](https://bbs.nga.cn/read.php?tid=30003180)
+

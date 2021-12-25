@@ -11498,3 +11498,21 @@ Sayuri
 
 看到pop子要出第二季时，第一反应是想着能让鲤鱼和sayu来配一集吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2463#       发表于 2021-12-26 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046781&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-26 00:55</a>
+不过青山本人人气还是很高的，现场live深蓝的棒子仅次于小百合的橙色，但是相对来说现场的鲤鱼的浅蓝和上尉 ...</blockquote>
+恋那个深蓝色很亮眼，所以视觉上感觉会很多而已
+
+*****
+
+####  cat1230  
+##### 2464#       发表于 2021-12-26 03:10
+
+pay抓着鲤鱼的手臂又滑落到手掌看着要握住了确滑落了，这镜头看着还挺扭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
