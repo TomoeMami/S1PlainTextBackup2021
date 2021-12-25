@@ -10691,3 +10691,14 @@ https://realsound.jp/2021/12/post-933687.html
 
 今天倒计时：小泉萌香
 
+
+
+*****
+
+####  Karin11974  
+##### 2409#       发表于 2021-12-25 13:09
+
+感觉鲤鱼的声音就跟这曲风不太搭，还有最后那个贴脸镜头看着真的很憨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

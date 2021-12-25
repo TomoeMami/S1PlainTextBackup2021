@@ -872,3 +872,58 @@ GITHUB就更离谱了，两个都是绿的我这却完全上不去。
 只是觉得光steam墙贴的回复来看，nga好歹就事论事，你潭上来就是屁股大战，好多都是连去上一下都不肯的人 ...</blockquote>
 NGA的讨论帖已经被锁了，就事论事是你想论就论的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  minamichisei  
+##### 90#       发表于 2021-12-25 13:06
+
+我老早就日常118必须挂小软件才能看商店了，说实话加速器、支付手段和国内下载服务器还没给你端掉日子该咋过咋过呗，润不掉不就这样得过且过，哭又哭不死董卓，有功夫哭不如强化条件早日润，或者广积粮做准备。天天感恩上面也不会领情，每天惦记着这事也只会越来越糟心
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| HOLIDAY|-2|不糟心，看狗洞大师音量弱下来实际很爽.|
+
+查看全部评分
+
+
+
+*****
+
+####  r_ex  
+##### 91#       发表于 2021-12-25 13:07
+
+该学俄语了？
+
+—— 来自 BlackBerry BBF100-4, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  egged5  
+##### 92#       发表于 2021-12-25 13:11
+
+gitee不算github的替代品吗？为什么没人用？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  星空天神  
+##### 93#       发表于 2021-12-25 13:13
+
+南京 网页段商店有时能打开 客户端商店打不开
+
+*****
+
+####  gdsgdfhd  
+##### 94#       发表于 2021-12-25 13:17
+
+早就该管管了！
+

@@ -1432,3 +1432,21 @@ Merry x'mas<img src="https://static.saraba1st.com/image/smiley/face2017/170.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 4652#       发表于 2021-12-25 13:04
+
+庆祝一下。
+
+*****
+
+####  莫洛骑士  
+##### 4653#       发表于 2021-12-25 13:17
+
+“固定QA没什么必要吧？很多时候有什么突发的问题都直播回答了，固定周期的QA反而不利于解决问题，我觉得我直播回答就可以了”
+
+“欢迎大家把想要问的问题发送到千鸟邮箱，之后每周QA会挑选予以解答”
+

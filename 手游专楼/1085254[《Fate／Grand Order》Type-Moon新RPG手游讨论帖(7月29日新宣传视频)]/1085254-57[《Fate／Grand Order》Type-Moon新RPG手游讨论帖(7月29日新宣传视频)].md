@@ -14669,3 +14669,24 @@ HWB-M8 是新怪
 
 我还是那个想法，如果太公不行，那靠的就是都是B4的成体的芙芙，说白了，芙芙和迦勒底才是和柯杨斯卡娅有直接关联和恩怨的人，和特么太公晴明有个毛关系，杀狐都说了真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 85379#       发表于 2021-12-25 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039311&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 12:57:38</a>
+我其实不理解他们的思路，太公把她当妲己打翻车了，然后换晴明来把她当玉藻来打不也是翻车？人家特么是通 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然他们都奶晴明，但是我觉得新年从者是麻婆怎么破
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Lokad  
+##### 85380#       发表于 2021-12-25 13:06
+
+垫晴明很好啊，bgo没了论坛贴吧也没了，多清净啊。
+
+杀狐说了不熟，玉藻说了不是，那妲己到底是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

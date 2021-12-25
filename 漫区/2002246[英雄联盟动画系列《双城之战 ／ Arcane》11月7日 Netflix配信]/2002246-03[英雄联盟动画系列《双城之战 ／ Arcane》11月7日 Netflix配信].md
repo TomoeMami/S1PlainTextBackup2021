@@ -803,3 +803,12 @@ EP.7艾克暴打金克丝没被选上，有点可惜。离谱的是流媒体一�
 最佳视觉效果：EP.8</blockquote>
 背景图配个梅尔皱眉头是嘛意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  powerpyc  
+##### 3063#       发表于 2021-12-25 13:24
+
+音乐没提名确实挺耐人寻味的
+
