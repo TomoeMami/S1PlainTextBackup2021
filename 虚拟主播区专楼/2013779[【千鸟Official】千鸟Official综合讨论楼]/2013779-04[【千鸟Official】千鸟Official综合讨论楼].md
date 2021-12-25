@@ -1347,3 +1347,23 @@ Merry x'mas<img src="https://static.saraba1st.com/image/smiley/face2017/170.png"
 
 圣诞快乐捏<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4644#       发表于 2021-12-25 09:52
+
+草
+文静被拉去隔离了
+开盒！
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  伞沢直美  
+##### 4645#       发表于 2021-12-25 09:56
+
+我超！？隔离
+
