@@ -3257,3 +3257,28 @@ tv版banana回都得吃掉二十分钟呢（
 现在这样虽然没什么故事，但感情是真挚的，人物是鲜活的，演出是热烈的，这很revue starlight，很宽屏巴洛克，就挺够的了。
 好故事虽然也并不是能轻易找到的东西但一年下来终归还是能看到一些，但发射东京铁塔这种事情感觉就完全是见一次少一次了，这也是少歌这个作品的魅力所在。
 
+
+
+*****
+
+####  whzfjk  
+##### 240#       发表于 2021-12-26 01:30
+
+这个企划感觉唯一的遗憾是没有必杀技，决胜点基本就是平时的对剑加个飞纽扣的画面
+
+光的闪耀的再生产也就是加了点特效
+
+
+
+*****
+
+####  七七見奈波  
+##### 241#       发表于 2021-12-26 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045424&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2021-12-25 22:22</a>
+
+我觉得最后阿恋确实装棺材里啦，就那个T形的</blockquote>
+<[img src="https://s2.loli.net/2021/12/26/Swq6pdF9APavjOe.png" referrerpolicy="no-referrer">
+
+最尽头的部分有个亮起来的部分，这个就是摘星之塔的样子
+
