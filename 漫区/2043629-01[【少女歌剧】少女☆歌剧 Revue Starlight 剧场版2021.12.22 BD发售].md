@@ -2971,3 +2971,115 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 
 东京铁塔玩起来花样比eva终的扔埃菲尔铁塔还多
 
+
+
+*****
+
+####  MASKA-1  
+##### 221#       发表于 2021-12-25 22:11
+
+ 本帖最后由 MASKA-1 于 2021-12-25 22:15 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/25/220021nhsp6o8h2jfh5soa.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (48.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220027r02x1yfukdku22uy.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (53.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220033mtta1v5aavsv1dla.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (44.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220040almhkvhzj7fukbqj.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (53.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220047q1xhch6phda2p6p6.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (44.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220053hllgh48rsvlzgg2g.png" referrerpolicy="no-referrer">
+
+<strong>7.png</strong> (54.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220100wcm1tw23f3cd33j3.png" referrerpolicy="no-referrer">
+
+<strong>8.png</strong> (55.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220105tifafphpvzvf2zf8.png" referrerpolicy="no-referrer">
+
+<strong>9.png</strong> (52.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:01 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/220110ac76iq81y766bq7m.png" referrerpolicy="no-referrer">
+
+<strong>10.png</strong> (53.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:01 上传
+
+第一遍看这段就觉得很带感。她们盯着我，发现原来观众席这么近，我也发现原来舞台离我这么近。21世纪二十年代，感觉大多数人看着屏幕都模糊和演员之间的距离，印象中上次有人在动画里正经说这事还是痞子拿个摇臂搁那把电影院的阿宅拍进 真心为你，然后问你ki不kimoji。（话说阿恋连着问几句，回答却只有无情的souyo和电流噪音，是真的顶不住。以及最后地上pz周围的形状应该是棺材吧）
+
+1.png
+(372.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/221456qhcxdy4hixxd64x1.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 222#         楼主| 发表于 2021-12-25 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045303&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2021-12-25 22:11</a>
+
+第一遍看这段就觉得很带感。她们盯着我，发现原来观众席这么近，我也发现原来舞台离我这么近。21世纪二十 ...</blockquote>
+约定之塔能被你想成棺材<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 223#       发表于 2021-12-25 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045354&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-25 22:16</a>
+
+约定之塔能被你想成棺材</blockquote>
+我觉得最后阿恋确实装棺材里啦，就那个T形的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

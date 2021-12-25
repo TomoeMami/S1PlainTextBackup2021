@@ -1538,3 +1538,30 @@ syl 还有浴缸限定直播是吧，滑了
 文静脑子里都是些啥啊</blockquote>
 没有十年脑子想不出来这个企划<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  haruhiismer  
+##### 4663#       发表于 2021-12-25 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044769&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-25 21:35</a>
+文半首
+
+是不是拿其他牌子的人才更好认知到啊 
+
+什么厕所限定直播</blockquote>
+我牌子都没有，认知好几次了只要看得多发得多很容易认知
+
+*****
+
+####  rgauss  
+##### 4664#       发表于 2021-12-25 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045313&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2021-12-25 22:12</a>
+
+我牌子都没有，认知好几次了只要看得多发得多很容易认知</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">我也被认知好几次了啊
+
+我是说带其他牌子是不是更容易而已
+

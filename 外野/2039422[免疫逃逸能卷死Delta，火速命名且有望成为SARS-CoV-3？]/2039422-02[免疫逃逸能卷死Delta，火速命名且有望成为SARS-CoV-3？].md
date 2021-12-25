@@ -8370,3 +8370,15 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 三针算什么，欧洲在推第五针了，反正疫苗护照六个月内到期，到期寸步难行，以后有得是机会打。 ...</blockquote>
 只要我加強針的的夠快，病毒就跟不上我的節奏
 
+
+
+*****
+
+####  モトロ  
+##### 2208#       发表于 2021-12-25 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54039067&amp;ptid=2039422" target="_blank">z92711 发表于 2021-12-25 12:30</a>
+
+直接看每月火葬场死亡的总人数就行了，这个是最准确的，就算玩统计猫腻也躲不过。 ...</blockquote>
+话说去年美国不是很多棺材直接埋地里吗 后面有挖出来火化吗？
+

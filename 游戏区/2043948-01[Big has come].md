@@ -4385,3 +4385,115 @@ wall其实也没什么高超的技术，都是些比较基础的东西，但它�
 
 现在钻洞还能用，只是因为墙的等级还没被提上来。
 
+
+
+*****
+
+####  洗刷刷  
+##### 414#       发表于 2021-12-25 22:07
+
+这个东西太可怕了。没有公告，也没个让人遵守的法律法规，连负责的机构和实际控制人都不清楚。不知道什么站会被墙，也不知道哪天被墙。连是被墙还是出现网络故障都要猜半天。
+
+轻而易举就能干掉一个国际游戏分发平台三分之一的流量和收入，恐怖如斯。
+
+如果在古代，拥有这种能力的一定会被视作神明吧。
+
+*****
+
+####  乱动的大图书馆  
+##### 415#       发表于 2021-12-25 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045247&amp;ptid=2043948" target="_blank">洗刷刷 发表于 2021-12-25 22:07</a>
+这个东西太可怕了。没有公告，也没个让人遵守的法律法规，连负责的机构和实际控制人都不清楚。不知道什么站 ...</blockquote>
+老爷的网络管控能力真的是世界独一档了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就算以后外星人来了也会连连称奇吧
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  susan28  
+##### 416#       发表于 2021-12-25 22:11
+
+路过。。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  马僧虔  
+##### 417#       发表于 2021-12-25 22:13
+
+有没有熟练的来论证一下这又是好事？
+
+*****
+
+####  魔法使い2019  
+##### 418#       发表于 2021-12-25 22:14
+
+不是说是克苏鲁吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+"甚至没有恶意"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sdefrfg  
+##### 419#       发表于 2021-12-25 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045247&amp;ptid=2043948" target="_blank">洗刷刷 发表于 2021-12-25 22:07</a>
+
+这个东西太可怕了。没有公告，也没个让人遵守的法律法规，连负责的机构和实际控制人都不清楚。不知道什么站 ...</blockquote>
+最离谱的是这种事要么就是神神yygq，要么就是狗洞党大喊好事
+
+没见到人去想点什么办法，网上这么多公务员连个谁决定q谁是负责人谁是执行人都没说清楚过，难不成真是某个深藏不露的大boss坐在小黑屋里握着个按钮么？
+
+*****
+
+####  egged5  
+##### 420#       发表于 2021-12-25 22:18
+
+哪有什么岁月静好，只是有人在为你负重前行
+
+突然想起这句话
+
+steam墙没墙对我来说反正是无所谓，也别给我瞎扣帽子
+
+但是我感觉大家还是应该感谢一下那些还在为玩家争取利益的人，而不是在一旁说风凉话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  洗刷刷  
+##### 421#       发表于 2021-12-25 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045357&amp;ptid=2043948" target="_blank">sdefrfg 发表于 2021-12-25 22:16</a>
+
+最离谱的是这种事要么就是神神yygq，要么就是狗洞党大喊好事
+
+没见到人去想点什么办法，网上这么多公务员 ...</blockquote>
+游戏行业也没啥像李开复那样能上达天听的人吧？倒不如说中国游戏行业的掌权者都巴不得steam死。
+
+*****
+
+####  Tring  
+##### 422#       发表于 2021-12-25 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045247&amp;ptid=2043948" target="_blank">洗刷刷 发表于 2021-12-25 22:07</a>
+
+这个东西太可怕了。没有公告，也没个让人遵守的法律法规，连负责的机构和实际控制人都不清楚。不知道什么站 ...</blockquote>
+这种力量的代价，可是全中国过半的超级机算力。
+
+在信息时代，能集合如此之庞大的算力，确实是能堪比神力。
+
+*****
+
+####  暗影之诗  
+##### 423#       发表于 2021-12-25 22:25
+
+。
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045387&amp;ptid=2043948" target="_blank">洗刷刷 发表于 2021-12-25 22:19</a>
+
+游戏行业也没啥像李开复那样能上达天听的人吧？倒不如说中国游戏行业的掌权者都巴不得steam死。 ...</blockquote>
+就不提国内被一巴掌干死的教培了，国外品牌在国内被橄榄的也不是一个两个了吧。日亚没人权是吧，八国联军的亚马逊不封就封它，连个吹风的批判的新闻都没有。还有什么乐天之类的，都是人畜无害的日本购物网站，说清理就清理，这谁定得住啊
+

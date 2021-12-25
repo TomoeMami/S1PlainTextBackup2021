@@ -15558,3 +15558,45 @@ NGA近半年来什么东西不喷？<img src="https://static.saraba1st.com/image
 
 打兔子的跑了，来一个抓狐狸的专家打兔子，咋可能有用呢<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  超阳电子炮  
+##### 85460#       发表于 2021-12-25 22:10
+
+今天剧情也太谐了笑劈叉，望哥一通吟唱稳如狗，结果对面人不对不好使
+
+*****
+
+####  zakki  
+##### 85461#       发表于 2021-12-25 22:11
+
+现在这都什么nc节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">话说有个东西我记不清了，医生认出来了雷夫和盖提亚了么
+
+*****
+
+####  真红眼教授  
+##### 85462#       发表于 2021-12-25 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045311&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-25 22:11</a>
+
+现在这都什么nc节奏啊认错就认错呗，什么特么你没牛逼到认出来你就是垃圾，什么狗屁强盗逻辑，这群 ...</blockquote>
+医生这边是反过来，雷夫认不出老板还在那儿各种垃圾话就特别小丑
+
+*****
+
+####  zakki  
+##### 85463#       发表于 2021-12-25 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045333&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-12-25 22:14</a>
+医生这边是反过来，雷夫认不出老板还在那儿各种垃圾话就特别小丑</blockquote>
+想起来了，罗曼走到盖提亚面前了他都不敢认，难道盖提亚也小丑了？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">更何况你太公望和妲己也就宿敌关系，认不出来就认不出来啊，你要说妲己是前女友没认出来还能说说，这不正好说明了太公望和妲己真没啥的吗
+
+*****
+
+####  rzxa  
+##### 85464#       发表于 2021-12-25 22:22
+
+cm太公的台词除最后你为何在此，都出现了，希望最后不会机械降神般结束吧
+
