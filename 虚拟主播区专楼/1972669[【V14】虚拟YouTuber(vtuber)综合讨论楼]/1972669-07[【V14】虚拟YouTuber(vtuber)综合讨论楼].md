@@ -6765,3 +6765,44 @@ lena姨毕业前三天的live
 
 什么在线开盒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 9561#       发表于 2021-12-25 23:11
+
+太喜欢了，朋友们，可以当成是我的圣诞礼物了，看到这个的一瞬间所有对郡郡的爱都复苏了，站在寒风中大笑十分钟，
+
+每当觉得郡郡最近真温顺啊真老实啊是不是自我反省了啊之后都会被狠狠打脸，流石不快女王冬日也能带来如此温暖，味太正...
+
+最近对郡郡的巨魔度评分大概是20/100（评价：纯真），现在一举加了三十分有余惹<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+(也非常感谢对面nori氏，急了之后笑果更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+[【悲報】Vtuberのネタツイにクソリプを送った弱者男性さん、煽られて効いてしまう](https://twitter.com/takigare3/status/1474681360300142592)
+
+<img src="https://img.saraba1st.com/forum/202112/25/230911pt54qz1tpftmqapt.jpg" referrerpolicy="no-referrer">
+
+<strong>Xmas1.jpg</strong> (171.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/230912kigpmq84aqmgbzqf.jpg" referrerpolicy="no-referrer">
+
+<strong>Xmas2.jpg</strong> (100.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/230914srar9zj9wzb9n9nn.jpg" referrerpolicy="no-referrer">
+
+<strong>Xmas3.jpg</strong> (37.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 23:09 上传
+

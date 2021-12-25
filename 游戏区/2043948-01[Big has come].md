@@ -4685,3 +4685,102 @@ g*w有生之年能拆么。。
 这些 ...</blockquote>
 看这说法是已经能破解https了？墙有这能力？
 
+
+
+*****
+
+####  wrnk  
+##### 442#       发表于 2021-12-25 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045760&amp;ptid=2043948" target="_blank">mwj 发表于 2021-12-25 22:59</a>
+
+看这说法是已经能破解https了？墙有这能力？</blockquote>
+真破解https头疼的就是cia了，怎么可能
+
+*****
+
+####  Tring  
+##### 443#       发表于 2021-12-25 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045760&amp;ptid=2043948" target="_blank">mwj 发表于 2021-12-25 22:59</a>
+
+看这说法是已经能破解https了？墙有这能力？</blockquote>
+SNI技术都实装了好多年了。
+
+17年左右HTTPS墙都大规模使用了。
+
+你现在看到一些HTTPS网站返回RESET错误的，都是SNI墙的结果。
+
+不过对TLSv3，现在实装的SNI技术并不管用。
+
+但v3标准在墙的SNI技术测试阶段时都有草案了，因此墙也一直在寻找对策。
+
+事实上，现在某些使用v3的网站，有时候也会出现一次RESET，
+
+我觉得现在应该是已经有针对TLSv3的技术在实验中了，
+
+就看到底是v3先普及，还是新墙技术先实装了。
+
+*****
+
+####  CyanCloverFern  
+##### 444#       发表于 2021-12-25 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045558&amp;ptid=2043948" target="_blank">千千千千鸟 发表于 2021-12-25 22:36</a>
+
+无所谓，像STEAM,github这些网站，早就当成被墙来对待了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">魔法被攻击了，想着去github找一下star的c实现c编译工作的一个项目，以前等一等还有反应，现在是一点反应也不给
+
+*****
+
+####  黑兽  
+##### 445#       发表于 2021-12-25 23:10
+
+qq/foxmail刚用了是可以的
+
+估计是cdn扩容到以前被干的地址池里了，抽到池子的就断，没抽到就能连
+
+*****
+
+####  ‮agur4kI  
+##### 446#       发表于 2021-12-25 23:11
+
+ 本帖最后由 ‮agur4kI 于 2021-12-25 23:23 编辑 
+
+墙不过是让梯子成了必需品
+
+它看起来不被承认存在, 但是翻过它却犯法, 非法架设信道, 没有许可证非法经营, 提供侵入、非法控制计算机信息系统程序、工具真是照着法条找了好久呢, 不过, 法理从来都不是最重要的问题
+
+*****
+
+####  Tring  
+##### 447#       发表于 2021-12-25 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045858&amp;ptid=2043948" target="_blank">CyanCloverFern 发表于 2021-12-25 23:08</a>
+
+魔法被攻击了，想着去github找一下star的c实现c编译工作的一个项目，以前等一等还有反应，现在是 ...</blockquote>
+GITHUB从几个月前那次被跟这次STEAM一样的新技术搞了后，就一直一蹶不振了。
+
+要上，要么用国内镜像，但是镜像流量太大容易被502，
+
+要么就直接git上用SSH。
+
+*****
+
+####  wrnk  
+##### 448#       发表于 2021-12-25 23:17
+
+我现在是能连上 几分钟以后就又断了 明天再看看吧  <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  password  
+##### 449#       发表于 2021-12-25 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045870&amp;ptid=2043948" target="_blank">黑兽 发表于 2021-12-25 23:10</a>
+
+qq/foxmail刚用了是可以的
+
+估计是cdn扩容到以前被干的地址池里了，抽到池子的就断，没抽到就能连</blockquote>
+我也感觉是akamai cdn节点的问题，是不是针对steam的要打个问号
+

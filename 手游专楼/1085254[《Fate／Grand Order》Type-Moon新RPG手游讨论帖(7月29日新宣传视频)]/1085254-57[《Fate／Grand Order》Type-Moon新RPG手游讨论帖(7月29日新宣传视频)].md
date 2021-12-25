@@ -15659,3 +15659,40 @@ cm太公的台词除最后你为何在此，都出现了，希望最后不会机
 不是之前公布了一共就13节  现在已经10了。。讲了个啥。。啥都每讲</blockquote>
 光点还没开放，那是啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  الطائر  
+##### 85471#       发表于 2021-12-25 23:02
+
+等下，变魔术的宫廷小丑（指用幻术全身而退）这个称号不是高扬斯卡娅原文台词吗 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85472#       发表于 2021-12-25 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045575&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-25 22:38</a>
+剧情这情况是不是跟昨天老苏不带男人属性一个样啊</blockquote>
+建议把这个到nga发一个贴绝对有戏剧性<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85473#       发表于 2021-12-25 23:03
+
+ 本帖最后由 gpx234mqx 于 2021-12-25 23:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045535&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-12-25 22:34</a>
+
+今天打狐狸用了一下好友的超人熊，拳拳暴击真爽啊
+
+所以超人熊为啥要在2.51早早地就出场，现在才是需 ...</blockquote>
+4拳打死<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+超人熊第二宝具就是对应今天的boss轮战状态的
+
+无视兽属性的一切防御和特殊技能，对100射程里的兽属性无限增殖的敌人自动展开杀戮
+
+无敌贯通兽特攻全体宝具<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

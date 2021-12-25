@@ -11335,3 +11335,76 @@ F2B721D9-9A03-41DB-9A31-15C888E54343.jpeg
 
 鲤鱼发了5人视频，连微博B站都发了～
 
+
+
+*****
+
+####  kata魂  
+##### 2449#       发表于 2021-12-25 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这是liyuu的b站号上第一次有其他成员的视频吧
+
+*****
+
+####  仟音一心  
+##### 2450#       发表于 2021-12-25 23:06
+
+Sayuri
+
+607A1932-8E61-4738-9F37-C47562AFAB1E.jpeg
+(674.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/230557q1eokjokriorogt8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+500FD3CC-B434-4BA2-BCC9-2A7C62616FC1.jpeg
+(997.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/230557nfu5nuj985hox7u9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+827007AB-A95A-425A-A3A7-2A0A2CF24697.jpeg
+(814.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/230557g7i7h64uzkphkum7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2451#       发表于 2021-12-25 23:09
+
+ 本帖最后由 chenflyyy 于 2021-12-25 23:13 编辑 
+
+看了下感觉动画前后差不多啊，可香一档，千堇一档，恋恋最低，没有太大的变化，就是同档之间排名换了下，但也没拉开多大差距，恋恋动画前人气就最低，只是受动画影响被拉大了差距，太惨了，是这种类型比较不受欢迎么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2452#       发表于 2021-12-25 23:16
+
+确实是在国内第一次发有团里其他成员出场的视频，希望以后多来点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2453#       发表于 2021-12-25 23:16
+
+明天不知道会不会提一下恐龙～
+
+*****
+
+####  Norkey1  
+##### 2454#       发表于 2021-12-25 23:16
+
+凛那种人设好像普遍不讨喜啊，恋学生会长脱线反差按理说应该挺受欢迎才对，不过恋角色设计有点普通可能会对人气有影响，但动画角色塑造还是背大锅的
+

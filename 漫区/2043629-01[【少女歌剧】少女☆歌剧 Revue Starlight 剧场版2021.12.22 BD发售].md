@@ -3144,3 +3144,47 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 
 日本编剧似乎特别不待见 “木得感情的卡拉泼容器”，日式acg里这种有一个算一个都被打脸。再一想好像全世界都这样，倾向歌颂人性。
 
+
+
+*****
+
+####  wuliaozheX  
+##### 229#       发表于 2021-12-25 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045676&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-25 22:50</a>
+你是否在说这个</blockquote>
+真的像，怎么说，神似<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  wuliaozheX  
+##### 230#       发表于 2021-12-25 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045762&amp;ptid=2043629" target="_blank">llysander 发表于 2021-12-25 22:59</a>
+讲道理，准备室下mr.white斗兽棋提了两回“你真弱”的地方首席一脸娇羞小受样，克洛还是挺了解首 ...</blockquote>
+maya:我就是没有感情的演剧机器
+克洛：你就是个寄吧（一刀砍掉头）
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  smishe  
+##### 231#       发表于 2021-12-25 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+TV我勉强可以给满分10分，但剧场版只能给7分。
+
+*****
+
+####  remedios010000  
+##### 232#       发表于 2021-12-25 23:22
+
+跑去看了眼OVA,恋哥哥练了一个月棒球然后打了个球速160的全垒打,什么水平?<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+(真昼:我才打到150)
+
