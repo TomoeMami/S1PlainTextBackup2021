@@ -15357,3 +15357,79 @@ dw，我的fw服务器
 
 冠位 Alterego 堂堂登场
 
+
+
+*****
+
+####  wolegequaaa  
+##### 85441#       发表于 2021-12-25 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这瘪吃的也太欢乐了，我喜欢
+
+*****
+
+####  贤娘萌娘  
+##### 85442#       发表于 2021-12-25 21:27
+
+ngahe贴吧那群人疯了吧，这种有点搞笑的桥段都骂来骂去，这魔怔的样子比哥谭那位都更小丑
+
+*****
+
+####  gpx234mqx  
+##### 85443#       发表于 2021-12-25 21:28
+
+这种问题
+
+出门前问元始天尊借个照妖镜不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85444#       发表于 2021-12-25 21:29
+
+这下绊五语音能解释了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85445#       发表于 2021-12-25 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044642&amp;ptid=1085254" target="_blank">贤娘萌娘 发表于 2021-12-25 21:27</a>
+
+ngahe贴吧那群人疯了吧，这种有点搞笑的桥段都骂来骂去，这魔怔的样子比哥谭那位都更小丑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">中午赞美妲己美貌都能破防 还有什么不能喷的
+
+*****
+
+####  gpx234mqx  
+##### 85446#       发表于 2021-12-25 21:33
+
+突然想到，今天圣诞节还有那么多人联网打boss，真是欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+眷属の群れ…秒間898体(20.4バトス)(平均歴代最高)
+
+每秒20.4巴托斯
+
+*****
+
+####  zakki  
+##### 85447#       发表于 2021-12-25 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044710&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-25 21:31</a>
+中午赞美妲己美貌都能破防 还有什么不能喷的</blockquote>
+中午还狂喷舔狗拉cp，这节过去一点儿迹象都没有反而转喷别的了，这波人还真是一天一个喷点<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 85448#       发表于 2021-12-25 21:37
+
+NGA近半年来什么东西不喷？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 85449#       发表于 2021-12-25 21:39
+
+这太公望真不是藤崎龙漫画里穿越过来的吗？信心满满一通装逼打算用抄近路用对策跳关秒最终boss，结果对策无效直接被打爆吃瘪，只能跑路乖乖回到练级打怪的老路上，根本就是漫画版开头的复刻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

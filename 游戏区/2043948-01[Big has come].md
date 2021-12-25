@@ -4276,3 +4276,90 @@ wall其实也没什么高超的技术，都是些比较基础的东西，但它�
 今天我挂了梯子，除了steam玄学墙，其他都能上，这是嘛情况啊</blockquote>
 开全局，不要指定加速，问题不应该在主域名上，所以pac开了也没用，应该是它转东转西的服务器里有一个被干挺了，只要抽到那个就会猝，而且会引发自动机制连跪，除非你知道是哪个跪了手动加到pac大礼包里，否则抽到就猝。
 
+
+
+*****
+
+####  暗影之诗  
+##### 405#       发表于 2021-12-25 21:27
+
+<blockquote>pRll7R 发表于 2021-12-25 21:18
+救救steam，我还想过下班回来打打游戏的咸鱼生活
+
+看着这报错 现在加班都没心思加了
+</blockquote>
+没关系，手快趁着能放问的那一分钟把想买的游戏买了慢慢玩就行。下载亲测没问题
+
+*****
+
+####  wl235678  
+##### 406#       发表于 2021-12-25 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043080&amp;ptid=2043948" target="_blank">nozomitech 发表于 2021-12-25 19:45</a>
+
+完了，你们别他妈吵了，我突然发现如果steam令牌用的QQ邮箱，现在验证码收不到了，现在我登都登不了，不是 ...</blockquote>
+我用163的邮箱也不行，估计国内的都不行了
+
+*****
+
+####  Tring  
+##### 407#       发表于 2021-12-25 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044368&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-25 21:06</a>
+
+wall其实也没什么高超的技术，都是些比较基础的东西，但它的问题在于不透明，除了它的运维谁能说得清[f:004 ...</blockquote>
+这没必要黑，墙就是最高段位的网络技术，世界级的。
+
+原理可能并不难，但是要实现全中国出口带宽的吞吐量，除了靠超级机力大飞砖外，技术还是很顶的。
+
+当然，破解方面的技术，根本不关心他本身实现起来有多难。
+
+*****
+
+####  mashav  
+##### 408#       发表于 2021-12-25 21:29
+
+21：26 上海电信 300m 没用加速器
+
+进入商店正常，买了 回溯依存 和 bean and nothingness，结算正常
+
+下载不太正常，最高只有4.4mb/s
+
+*****
+
+####  Hanzong  
+##### 409#       发表于 2021-12-25 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044653&amp;ptid=2043948" target="_blank">wl235678 发表于 2021-12-25 21:28</a>
+我用163的邮箱也不行，估计国内的都不行了</blockquote>
+哪有，我163没问题
+<img src="https://p.sda1.dev/3/d2f1fd8ed1dc1e7317898d6a2fb27d58/IMG_CMP_222899210.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  wl235678  
+##### 410#       发表于 2021-12-25 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044690&amp;ptid=2043948" target="_blank">Hanzong 发表于 2021-12-25 21:30</a>
+
+哪有，我163没问题</blockquote>
+是验证的邮件，购买和打折的邮箱我收的到
+
+*****
+
+####  Hanzong  
+##### 411#       发表于 2021-12-25 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044704&amp;ptid=2043948" target="_blank">wl235678 发表于 2021-12-25 21:31</a>
+是验证的邮件，购买和打折的邮箱我收的到</blockquote>
+起码冬促前能接收，现在没验证不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RainbowSealife  
+##### 412#       发表于 2021-12-25 21:36
+
+刚才在动态里看到一个拉脱维亚人在我一个好友购买动态下问ban了steam商店有影响没，好友问什么影响，然后对面丢了个红迪链接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说👊砸下来也是意料之中，那能咋办？能润的只是少数，剩下的不还得钻狗洞？往好的想，至少没封最便捷的两个支付方式，社区都封好几年了，还没习惯用工具玩steam？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

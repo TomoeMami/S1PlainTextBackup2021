@@ -2920,3 +2920,21 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Cookiekira  
+##### 218#       发表于 2021-12-25 21:25
+
+又劲又爽<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 219#       发表于 2021-12-25 21:38
+
+ 本帖最后由 七七見奈波 于 2021-12-25 21:43 编辑 
+
+天堂和克洛的revue曲在歌词上有很好玩的对应，就是在两人说完“现在的你是最可爱的！”“老娘无论何时都很可爱！”（）的对话之后紧接着的唱词。克洛的歌词是「<strong>まや</strong>かしの微笑み 布切れを破いてやる」接下来是天堂的歌词「見せてみたい <strong>くろ</strong>に染められゆく感情」，正巧各自唱了对方的名字。
+
