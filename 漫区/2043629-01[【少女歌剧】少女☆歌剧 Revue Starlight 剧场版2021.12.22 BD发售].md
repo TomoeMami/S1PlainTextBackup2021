@@ -3103,3 +3103,44 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  堆雪若叶  
+##### 226#         楼主| 发表于 2021-12-25 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045456&amp;ptid=2043629" target="_blank">Acatv 发表于 2021-12-25 22:26</a>
+
+动画里的恋在日常里一直给我一种元气笨蛋的刻板印象
+
+这次回忆中的华恋在追梦途中倒是多了很多踌躇和纠结的 ...</blockquote>
+你是否在说这个
+<img src="https://p.sda1.dev/3/97fc327a18f9477731794373e31bd727/1.JPG" id="aimg_erDj6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/3/639f9f044d76c0772563741dc50ee40c/2.JPG" id="aimg_I1rFj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  藤宮はすみ  
+##### 227#       发表于 2021-12-25 22:56
+
+---
+
+剧场版看完了，看了楼里的分析感觉补完了一些观后的疑惑，还是应该先复习一下之前的剧情的。
+
+但不管怎么说，剧场版真的是看的太爽了。
+
+*****
+
+####  llysander  
+##### 228#       发表于 2021-12-25 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042020&amp;ptid=2043629" target="_blank">蓝川澈 发表于 2021-12-25 18:06</a>
+
+看完了一本满足啊，为啥有人要说空虚。我是只追了tv版和总集篇剧场版的，舞台剧啥的没追。新剧场版相当于把 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">讲道理，准备室下mr.white斗兽棋提了两回“你真弱”的地方首席一脸娇羞小受样，克洛还是挺了解首席弱点。 
+
+再来装什么我是木德感情的神之容器也太迟了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+日本编剧似乎特别不待见 “木得感情的卡拉泼容器”，日式acg里这种有一个算一个都被打脸。再一想好像全世界都这样，倾向歌颂人性。
+

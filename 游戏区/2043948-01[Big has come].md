@@ -4599,3 +4599,89 @@ steam墙没墙对我来说反正是无所谓，也别给我瞎扣帽子
 是我的错觉吗？我这几年六七成的Steam焦虑论都是在S1看到的。</blockquote>
 只是因为你上s1的时间太多了……外国文化产品（steam、日漫、外国电影）焦虑论最风行的地方是知乎，书记在知乎说steam肯定会被墙还被s1官博挂了
 
+
+
+*****
+
+####  Tring  
+##### 433#       发表于 2021-12-25 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045538&amp;ptid=2043948" target="_blank">Dreki 发表于 2021-12-25 22:35</a>
+
+超算怎么算这个？感觉自己白用了这么久超算</blockquote>
+深包解析需要很高算力，尤其是吞吐量还这么夸张的场景下。
+
+墙曾经就是国产超级机的最主要应用场合。
+
+这些年可能别的方面的应用慢慢多起来了，但是墙依旧还是会需要大量超级机来支撑。
+
+*****
+
+####  节艾司  
+##### 434#       发表于 2021-12-25 22:46
+
+应该还是没事，真出事的时候应该表现为几天之内pc和主机各大平台相继出事。
+
+*****
+
+####  ASDZ  
+##### 435#       发表于 2021-12-25 22:49
+
+如果真强了，那就买xgp玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  九一式  
+##### 436#       发表于 2021-12-25 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045662&amp;ptid=2043948" target="_blank">ASDZ 发表于 2021-12-25 22:49</a>
+如果真强了，那就买xgp玩</blockquote>
+。。。微软后门早关了
+
+*****
+
+####  HOLIDAY  
+##### 437#       发表于 2021-12-25 22:50
+
+隔壁雕图出得快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/329e7b2c83e0889f0c9cc6d09a3513fa/20211225-224907.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  九一式  
+##### 438#       发表于 2021-12-25 22:51
+
+g*w有生之年能拆么。。
+
+*****
+
+####  九一式  
+##### 439#       发表于 2021-12-25 22:53
+
+狗洞不是没填，是填的慢
+什么时候拆墙可能就好起来了
+
+*****
+
+####  jf8350143  
+##### 440#       发表于 2021-12-25 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044704&amp;ptid=2043948" target="_blank">wl235678 发表于 2021-12-25 21:31</a>
+
+是验证的邮件，购买和打折的邮箱我收的到</blockquote>
+我今天下午都还能正常用163的邮箱收到验证码
+
+*****
+
+####  mwj  
+##### 441#       发表于 2021-12-25 22:59
+
+<blockquote>Tring 发表于 2021-12-25 22:45
+深包解析需要很高算力，尤其是吞吐量还这么夸张的场景下。
+
+墙曾经就是国产超级机的最主要应用场合。
+
+这些 ...</blockquote>
+看这说法是已经能破解https了？墙有这能力？
+

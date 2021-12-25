@@ -11301,3 +11301,37 @@ F2B721D9-9A03-41DB-9A31-15C888E54343.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/25/223931eyus1frrc1rhkuvk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 2445#       发表于 2021-12-25 22:52
+
+有人知道动画前角色人气情况如何吗？想了解下动画前后角色人气排行的变化
+
+*****
+
+####  优妮可  
+##### 2446#       发表于 2021-12-25 22:54
+
+现在live后都可以发推特视频了？
+
+*****
+
+####  秋月艾莉  
+##### 2447#       发表于 2021-12-25 22:55
+
+ 本帖最后由 秋月艾莉 于 2021-12-25 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045694&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-25 22:52</a>
+
+有人知道动画前角色人气情况如何吗？想了解下动画前后角色人气排行的变化 ...</blockquote>
+壁吧星团楼18页起
+
+*****
+
+####  lj205  
+##### 2448#       发表于 2021-12-25 22:56
+
+鲤鱼发了5人视频，连微博B站都发了～
+

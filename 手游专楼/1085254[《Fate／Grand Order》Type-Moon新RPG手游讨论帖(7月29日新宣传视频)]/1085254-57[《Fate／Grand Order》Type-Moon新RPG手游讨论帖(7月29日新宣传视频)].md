@@ -15627,3 +15627,35 @@ cm太公的台词除最后你为何在此，都出现了，希望最后不会机
 
 剧情这情况是不是跟昨天老苏不带男人属性一个样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85468#       发表于 2021-12-25 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045445&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-25 22:24</a>
+
+你别说  搞不好演到这来一个等2.6.5</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是之前公布了一共就13节  现在已经10了。。讲了个啥。。啥都每讲 
+
+*****
+
+####  真红眼教授  
+##### 85469#       发表于 2021-12-25 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045575&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-25 22:38</a>
+
+剧情这情况是不是跟昨天老苏不带男人属性一个样啊</blockquote>
+太正确了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85470#       发表于 2021-12-25 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045608&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-25 22:43</a>
+
+不是之前公布了一共就13节  现在已经10了。。讲了个啥。。啥都每讲</blockquote>
+光点还没开放，那是啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
