@@ -15177,3 +15177,183 @@ dw，我的fw服务器
 
 不过如果真的对妲己的话双特攻宝具感觉确实能钉死？
 
+
+
+*****
+
+####  v22325  
+##### 85427#       发表于 2021-12-25 21:01
+
+ 本帖最后由 v22325 于 2021-12-25 21:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044189&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-25 20:55</a>
+
+越看越乐，太公望对妲己对策失败后各种念名号，这副小丑摸样绝对炸锅了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也不算小丑吧  我觉得就是比较天然傻  之前老是觉得他腹黑还聪明 反差挺可爱的啊
+
+想定妲己来指定对策 结果人根本不是
+
+*****
+
+####  exiaexa  
+##### 85428#       发表于 2021-12-25 21:05
+
+虽然这个翻车都猜到了
+
+但是我都想替太公望说一声别奶了
+
+全程整得就生怕别人不知道要翻车，笑出声
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85429#       发表于 2021-12-25 21:05
+
+用抓狐狸的法术抓兔子当然不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不去借一个照妖镜？
+
+*****
+
+####  rzxa  
+##### 85430#       发表于 2021-12-25 21:06
+
+失败后面还是有挽回颜面的表现的，我觉得还行
+
+*****
+
+####  Lokad  
+##### 85431#       发表于 2021-12-25 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044288&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-25 21:01</a>
+
+这也不算小丑吧  我觉得就是比较天然傻  之前老是觉得他腹黑还聪明 反差挺可爱的啊 ...</blockquote>
+主要是作为友方正式打兽，刚登场自称能当双冠，道中又带着咕哒一通分析，还自信满满说带了对兽宝具。
+
+结果是宝具行不通再次转移回去分析失败原因。
+
+开【封神演义】前所长跟达芬奇一通乱吹，最后被杀狐嘴角一翘就化解掉了，加上前面部份自信满满的态度和对爱玩之兽时那段自白，真的很丑角啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85432#       发表于 2021-12-25 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044374&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-25 21:06</a>
+
+主要是作为友方正式打兽，刚登场自称能当双冠，道中又带着咕哒一通分析，还自信满满说带了对兽宝具。
+
+结果 ...</blockquote>
+目标搞错了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+所以陨石到底是啥
+
+*****
+
+####  exiaexa  
+##### 85433#       发表于 2021-12-25 21:11
+
+ 本帖最后由 exiaexa 于 2021-12-25 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044374&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-25 21:06</a>
+
+主要是作为友方正式打兽，刚登场自称能当双冠，道中又带着咕哒一通分析，还自信满满说带了对兽宝具。
+
+结果 ...</blockquote>
+来我们看一下现在的几个冠位和候补
+
+第一个冠位C，被下属玩了波诈尸，最后底牌用尽超绝自爆
+
+第二个冠位C候补，底牌用尽被打爆
+
+第三个冠位C候补，坑了自己人不说底牌用尽被打爆，然后用脚跑回来挽尊
+
+冠位弓拿了神装，超绝自爆
+
+冠位枪无可挑剔，完美表现
+
+冠位骑只见其人不见战绩
+
+冠位杀直接把献祭冠位，最后主力输出也不是他，那一剑到底是人牛逼还是冠位自爆牛逼都还要画个问号
+
+真觉得FGO冠位表现力好到无所不能吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85434#       发表于 2021-12-25 21:14
+
+就这非冠位灵基开了思想键文以后能拿回神仙级战斗力还有什么不满意的
+
+十二神都搬出来当对照组了，这不是在吹狐狸牛逼吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85435#       发表于 2021-12-25 21:14
+
+ 本帖最后由 v22325 于 2021-12-25 21:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">">这种搞笑桥段和当小丑应该还是不一样的……
+
+*****
+
+####  真红眼教授  
+##### 85436#       发表于 2021-12-25 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044448&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-25 21:11</a>
+
+来我们看一下现在的几个冠位和候补
+
+第一个冠位C，被下属玩了波诈尸，最后底牌用尽超绝自爆
+
+第二个冠位C候 ...</blockquote>
+杀不是在动画版已经沦落到张嘴开吃了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lokad  
+##### 85437#       发表于 2021-12-25 21:17
+
+是不是搞笑桥段得看后续，我觉得本次活动大概率就是个序章。
+
+跟着跑路还好，折在这活动里就完了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85438#       发表于 2021-12-25 21:19
+
+这击退战也太难打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85439#       发表于 2021-12-25 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044507&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-12-25 21:17</a>
+
+杀不是在动画版已经沦落到张嘴开吃了么</blockquote>
+那个我觉得单纯是表现力问题
+
+估计原本是打算表现一下悲壮的手段用尽，最后为了掩护主角拼上老命
+
+结果最后整成个生吃海鲜
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 85440#       发表于 2021-12-25 21:21
+
+<img src="https://img.saraba1st.com/forum/202112/25/212023o0mb0ydk0fy885d8.jpg" referrerpolicy="no-referrer">
+
+<strong>Servant331.jpg</strong> (8.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 21:20 上传
+
+冠位 Alterego 堂堂登场
+

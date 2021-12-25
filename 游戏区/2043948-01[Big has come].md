@@ -4171,3 +4171,108 @@ psn 的cdn我最近一年都上不去
 
 至于STEAM以后究竟会怎样，那种预言说啥都不如你自己去想。
 
+
+
+*****
+
+####  solarcool  
+##### 393#       发表于 2021-12-25 21:06
+
+wall其实也没什么高超的技术，都是些比较基础的东西，但它的问题在于不透明，除了它的运维谁能说得清<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+个人端这边怎么测试都不可能得出完全准确的结论，测来测去也就那几种手段，能强行“建设性”到哪儿去呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  七氷  
+##### 394#       发表于 2021-12-25 21:07
+
+呜呼<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  梦飘零  
+##### 395#       发表于 2021-12-25 21:08
+
+我看能打开呀，之前出什么事了😳
+
+*****
+
+####  920619lqy  
+##### 396#       发表于 2021-12-25 21:09
+
+<blockquote>solarcool 发表于 2021-12-25 07:06
+wall其实也没什么高超的技术，都是些比较基础的东西，但它的问题在于不透明，除了它的运维谁能说得清[f:004 ...</blockquote>
+相关的研究也不少了，从摸索黑箱的角度来看可以说成果颇丰
+
+*****
+
+####  fuochai  
+##### 397#       发表于 2021-12-25 21:09
+
+首页能打开 登录会被重置连接<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mooerfoes  
+##### 398#       发表于 2021-12-25 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044394&amp;ptid=2043948" target="_blank">梦飘零 发表于 2021-12-25 21:08</a>
+
+我看能打开呀，之前出什么事了😳</blockquote>
+大致就是：正常连上十几二十秒以后必然会突发超时错误，然后过几分钟变正常。现在不确定哪些地区受到了这个情况的影响
+
+*****
+
+####  afer  
+##### 399#       发表于 2021-12-25 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043458&amp;ptid=2043948" target="_blank">RJG丶one 发表于 2021-12-25 20:14</a>
+
+难说到底怎么回事儿，我现在有几个思路：①steam大促扩容，撞进墙的警戒线上，被突突了；②草台，老爷拿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正是搞不明白，我今晚倒是丝滑了。
+
+*****
+
+####  你这瓜保熟吗  
+##### 400#       发表于 2021-12-25 21:13
+
+重庆，现在还是打不开
+
+*****
+
+####  雪风utopia  
+##### 401#       发表于 2021-12-25 21:15
+
+今年是steam最后一年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大鸟转转壬  
+##### 402#       发表于 2021-12-25 21:17
+
+今天我挂了梯子，除了steam玄学墙，其他都能上，这是嘛情况啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pRll7R  
+##### 403#       发表于 2021-12-25 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">救救steam，我还想过下班回来打打游戏的咸鱼生活
+看着这报错 现在加班都没心思加了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  afer  
+##### 404#       发表于 2021-12-25 21:20
+
+ 本帖最后由 afer 于 2021-12-25 21:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044508&amp;ptid=2043948" target="_blank">大鸟转转壬 发表于 2021-12-25 21:17</a>
+
+今天我挂了梯子，除了steam玄学墙，其他都能上，这是嘛情况啊</blockquote>
+开全局，不要指定加速，问题不应该在主域名上，所以pac开了也没用，应该是它转东转西的服务器里有一个被干挺了，只要抽到那个就会猝，而且会引发自动机制连跪，除非你知道是哪个跪了手动加到pac大礼包里，否则抽到就猝。
+
