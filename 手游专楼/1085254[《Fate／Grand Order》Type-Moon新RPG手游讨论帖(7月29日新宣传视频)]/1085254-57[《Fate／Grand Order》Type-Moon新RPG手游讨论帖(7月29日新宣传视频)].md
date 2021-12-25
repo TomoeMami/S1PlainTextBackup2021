@@ -15098,3 +15098,12 @@ dw，我的fw服务器
 
 戦闘獣Lv90：種・毛　複数殺　ガッツ1回
 
+
+
+*****
+
+####  在海岸  
+##### 85418#       发表于 2021-12-25 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣诞石头出了2宝 好耶
+

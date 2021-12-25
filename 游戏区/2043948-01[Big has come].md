@@ -3109,3 +3109,120 @@ github在校园网不用任何工具的情况下，差不多1/10的概率能连�
 你说的这种情况，我上次看到还是e绅士差点要关站，不爽直接回复对线啊，我是支持的，上个相关帖 ...</blockquote>
 AAA游戏动不动上百G，梯子再好也顶不住
 
+
+
+*****
+
+####  920619lqy  
+##### 290#       发表于 2021-12-25 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042365&amp;ptid=2043948" target="_blank">北欧王座 发表于 2021-12-25 04:37</a>
+
+绝学，从分析情况的，聊自身经历的，猜测的，互相怼的中间跳出来互相怼的。并表示自己寻找的是更具有现实 ...</blockquote>
+从“不允许讨论”到各种形式的“自发的闭嘴”也算是下了一城。
+
+*****
+
+####  蕾咪莉亚  
+##### 291#       发表于 2021-12-25 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042378&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:38</a>
+
+没，我来个“干货”，我重启了下路由器换了个ip现在好多了。
+
+这帖子里这种简单的交流都不存在，谜 ...</blockquote>
+试了下你的干货，不行呢....换梯子秒进<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  炎阳之谶  
+##### 292#       发表于 2021-12-25 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">有人觉得网络社区至少不该是情绪垃圾桶，有人觉得网络社区就该是情绪垃圾桶，大抵如此
+
+*****
+
+####  afer  
+##### 293#       发表于 2021-12-25 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042405&amp;ptid=2043948" target="_blank">kimmmmmm 发表于 2021-12-25 18:41</a>
+
+然后5分钟以后又进不去了……</blockquote>
+差不多这个情况，过了这阵子再说吧，想买的E宝这轮促销很大，已经买完了，最可气的是steam有几个想买的老游戏这轮就没打折就很迷幻………………………………………………
+
+社区刚出事那会其实比这个抽的还厉害，总之要是需要创意工坊要“辅助”是常态了，看这波风波咋过吧。
+
+*****
+
+####  蕾咪莉亚  
+##### 294#       发表于 2021-12-25 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042413&amp;ptid=2043948" target="_blank">解语L 发表于 2021-12-25 18:42</a>
+
+AAA游戏动不动上百G，梯子再好也顶不住</blockquote>
+无限流量管够就是了，铁拳真砸下来，那也只能这样了 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HOLIDAY  
+##### 295#       发表于 2021-12-25 18:50
+
+建你妈建还建设性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看见狗洞大师吃瘪就很爽，这是一种很纯粹的快乐
+
+*****
+
+####  解语L  
+##### 296#       发表于 2021-12-25 18:51
+
+ 本帖最后由 解语L 于 2021-12-25 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042470&amp;ptid=2043948" target="_blank">蕾咪莉亚 发表于 2021-12-25 18:48</a>
+
+无限流量管够就是了，铁拳真砸下来，那也只能这样了</blockquote>
+你没懂我的意思，整个国家的海外带宽水管就那么大点。VPN下游戏的人够多话是整个国家海外流量堵塞。大盘鸡价格也会水涨船高
+
+*****
+
+####  蕾咪莉亚  
+##### 297#       发表于 2021-12-25 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042509&amp;ptid=2043948" target="_blank">解语L 发表于 2021-12-25 18:51</a>
+
+你没懂我的意思，整个国家的海外带宽水管就那么大点。人人都要用来下游戏的话是整个国家海外流量堵塞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 这其实不用太担心，很多人玩游戏不是必须娱乐，有了墙这一门槛，能筛掉不少人了的
+
+更何况还有学习版<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法使い2019  
+##### 298#       发表于 2021-12-25 18:58
+
+快进到“我不在意steam， 只在意打你脸” <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 299#       发表于 2021-12-25 18:58
+
+打不开商店，随便点了一下游戏下载完能打开商店页面了，不清楚原理。当然很快又打不开了。
+
+*****
+
+####  林登·万  
+##### 300#       发表于 2021-12-25 19:03
+
+多刷新个几遍 有时会打开一会  跟抽卡似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Kanoya  
+##### 301#       发表于 2021-12-25 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041297&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 17:01</a>
+我现在心态很平和，反正知道扔靴子的事情，那不如你早点扔省得我等一宿
+
+—— 来自 Xiaomi Mi 10, A ...</blockquote>
+谁给你克总只有两只靴子的错觉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

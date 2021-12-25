@@ -2908,3 +2908,15 @@ starlight结束了代表着光与恋的约定的塔和发卡也完成了它们�
 
 太爽了
 
+
+
+*****
+
+####  千魄万斩  
+##### 217#       发表于 2021-12-25 18:51
+
+爱了爱了，剧场版很有趣也
+［充满了决心］
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
