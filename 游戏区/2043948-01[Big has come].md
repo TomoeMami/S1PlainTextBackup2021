@@ -2392,3 +2392,142 @@ dns变化自己没招
 等一个“欢迎Steam回归中国大陆，但必须遵守中国法律 ”</blockquote>
 不是“我们从未封锁任何网站，都是网站自己的问题”么？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  長瀨香夏子  
+##### 231#       发表于 2021-12-25 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54040707&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-25 15:44</a>
+
+狗洞大师觉得狗洞是兔神睿智的恩赐，是筛选群众智商的荣耀徽章，具有钻狗洞能力的人是获选的成年人，拥有 ...</blockquote>
+我原以为狗洞是指鸵鸟心态，想不到是这个意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuzhaoping  
+##### 232#       发表于 2021-12-25 16:45
+
+插一句题外话，最近几个booru站点也没法直连了，包括但不限于：
+
+safebooru.org
+
+gelbooru.com
+
+konachan.net
+
+anime-pictures.net
+
+*****
+
+####  vaststars  
+##### 233#       发表于 2021-12-25 16:45
+
+ 本帖最后由 vaststars 于 2021-12-25 16:47 编辑 
+
+黑猫老爷提供的消息
+
+[https://beian.miit.gov.cn/](https://beian.miit.gov.cn/)
+
+<img src="https://img.saraba1st.com/forum/202112/25/164507oy6f4ysf4zuuuusy.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211225164117.jpg</strong> (54.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 16:45 上传
+
+但是github.com不在名单上 一样上不去
+
+另外差不了进黑名单的时间，有人能查的话望告知
+
+*****
+
+####  First_Snow  
+##### 234#       发表于 2021-12-25 16:46
+
+[https://www.reddit.com/r/pcgaming/comments/ro345o/the_global_version_of_steam_has_been_banned_in/](https://www.reddit.com/r/pcgaming/comments/ro345o/the_global_version_of_steam_has_been_banned_in/)reddit上也有贴子了，热评第一个还挺唏嘘的
+
+屏幕截图 2021-12-25 164530.png
+(112.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-25 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202112/25/164613q6k7ja60j9gs7kao.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuperCK  
+##### 235#       发表于 2021-12-25 16:46
+
+放心，过个几年大家的记忆就是steam竞争不过wegame自己选择退出中国了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 乱吃食cat| + 2|欢乐多|
+| k1414| + 2||
+
+查看全部评分
+
+*****
+
+####  SuperCK  
+##### 236#       发表于 2021-12-25 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041192&amp;ptid=2043948" target="_blank">vaststars 发表于 2021-12-25 16:45</a>
+黑猫老爷提供的消息
+
+https://beian.miit.gov.cn/</blockquote>
+github有时能直连吧，虽然我自己从来不直连
+
+*****
+
+####  neucom  
+##### 237#       发表于 2021-12-25 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041192&amp;ptid=2043948" target="_blank">vaststars 发表于 2021-12-25 16:45</a>
+
+黑猫老爷提供的消息
+
+https://beian.miit.gov.cn/</blockquote>
+您查询的域名： [www.steampowered.com](http://www.steampowered.com)
+
+原备案/许可证号为： 暂无没有符合条件的记录
+
+黑名单管理相关文件请查询《关于建立境内违法互联网站黑名单管理制度的通知》（工信部联电管【2009】371号）
+
+加个3w就不在名单上了，究竟是草台还是胡来？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 238#       发表于 2021-12-25 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在心态很平和，反正知道扔靴子的事情，那不如你早点扔省得我等一宿
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  afer  
+##### 239#       发表于 2021-12-25 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54041289&amp;ptid=2043948" target="_blank">neucom 发表于 2021-12-25 17:00</a>
+您查询的域名： www.steampowered.com
+
+原备案/许可证号为： 暂无没有符合条件的记录
+
+黑名单管理相关文件 ...</blockquote>
+大哥这个你加www去搜才是草台吧，哪怕你用过vpn都知道pac地址不能加www
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
