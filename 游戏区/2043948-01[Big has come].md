@@ -7203,3 +7203,54 @@ oh，真的是这样的逻辑吗？那别人只是说能用加速器访问，怎
 
 我这今天开始变成了只要打开商店页面，第一次必出324或者101，再刷新一次就会刷出页面来，而且到付款都没问题。一旦把steam切到托盘等一段时间，就会重复如上过程
 
+
+
+*****
+
+####  afer  
+##### 670#       发表于 2021-12-27 01:31
+
+ 本帖最后由 afer 于 2021-12-27 01:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057706&amp;ptid=2043948" target="_blank">病娇图兰朵 发表于 2021-12-27 01:20</a>
+
+我这今天开始变成了只要打开商店页面，第一次必出324或者101，再刷新一次就会刷出页面来，而且到付款都没问 ...</blockquote>
+刚才流畅了一阵子，现在又是-118中，也就时间能检验一切了，我觉得其他都是玄学，就是分时段，看抽没抽到不行的几个服务器，无脑把商店加pac地址吧。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zashou  
+##### 671#       发表于 2021-12-27 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057362&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-27 00:39</a>
+
+oh，真的是这样的逻辑吗？那别人只是说能用加速器访问，怎么觉醒人就像被踩了尾巴一样张口就咬呢？
+
+我是 ...</blockquote>
+狗洞大师怎么这会儿又没关系了，狗洞大师不是都破防破到高潮了吗。
+
+狗洞大师可不是说使用狗洞的人哦，而是钻狗洞钻出自豪感，觉得人生在世本来就是钻狗洞的人。
+
+当然狗洞大师本来就不要脸，所以觉得自己等于狗洞也是可以的。
+
+狗洞大师要是有本事让人不用钻狗洞也能上steam当然别人就不用挤占你们自豪的狗洞空间了呀。
+
+不知道狗洞大师能不能为了自己充满荣誉感的狗洞选民身份去为民请命呢？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zashou  
+##### 672#       发表于 2021-12-27 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057362&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-27 00:39</a>
+
+oh，真的是这样的逻辑吗？那别人只是说能用加速器访问，怎么觉醒人就像被踩了尾巴一样张口就咬呢？
+
+我是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我就问你是不是喜欢钻出去？
+
+是不是觉得建墙让你钻的和家人一样亲？
+
+是不是觉得上steam就该钻出去上？
+
+是的话你就是狗洞大师嘛，何必推脱呢，这不是充满荣誉感的称呼嘛。
+
