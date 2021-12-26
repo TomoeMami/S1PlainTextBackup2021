@@ -3595,3 +3595,26 @@ maya每次入戏都是最快的，皆杀纯那直到最后都没入戏，让蕉�
 
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  unnilennium  
+##### 269#       发表于 2021-12-26 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049549&amp;ptid=2043629" target="_blank">JustW_2 发表于 2021-12-26 12:24</a>
+恋在刚进圣翔的时候还是kirakira的，一种解释是光恋一体论，小光在英国输了revue后，短暂忘记了与恋的约定 ...</blockquote>
+剧场版能看出华恋是有动摇的部分，拿孩子开玩笑的小姨就是屑啦（不是）
+在此之前还是普通学校，加入剧团，别人眼里特别的存在，升高中第一年环境变了，周围全是个性鲜明的舞台少女，状态自然也会变。
+这里想象的空间蛮大的，我这个是比较无聊的一种解释<img src="https://static.saraba1st.com/image/smiley/face2017/248.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 270#         楼主| 发表于 2021-12-26 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049742&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2021-12-26 12:46</a>
+
+想了想，新剧场版蕉和每个人都交流了（1v6以及和阿恋单独），唯独和光面对面是在总集篇，果然为了完整性总 ...</blockquote>
+剧场版有暗示，光在开幕前的唱名其实就是对蕉哥哥在列车上唱baroque的回应
+

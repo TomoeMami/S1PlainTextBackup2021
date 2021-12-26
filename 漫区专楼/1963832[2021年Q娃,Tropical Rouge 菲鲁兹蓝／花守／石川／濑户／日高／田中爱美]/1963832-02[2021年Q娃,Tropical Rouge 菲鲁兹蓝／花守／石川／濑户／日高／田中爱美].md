@@ -12288,3 +12288,16 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 
 前半日常真是不错，感觉结局有刀。后半变身了反而画面还有点崩坏<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2422#       发表于 2021-12-26 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大家都觉得只要萝拉把规矩废了就行了，结果萝拉亲自说出口了，这不是没法了吗。。。这刀子味爆炸啊。
+
+话说直到这两人说有空去对方那里，我才反应过来，这不就是真夏父母的相处方式吗，异地工作，有空去对方那里。。
+
+不过作画力全集中在那段萝拉真夏日常里了，后半崩的有点厉害。。。下集预告真夏教你如何用肉身掰开鲸鱼嘴巴
+
