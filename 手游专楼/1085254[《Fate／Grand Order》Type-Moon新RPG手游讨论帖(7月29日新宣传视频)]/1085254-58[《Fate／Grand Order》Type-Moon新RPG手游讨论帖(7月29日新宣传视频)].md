@@ -282,3 +282,140 @@ fate吧为啥逢月必反了</blockquote>
 
 反正玉藻、金毛白面都是从天照那分出来的就是了。
 
+
+
+*****
+
+####  alucardcz  
+##### 85525#       发表于 2021-12-26 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">血有点多啊  最高难度
+
+*****
+
+####  v22325  
+##### 85526#       发表于 2021-12-26 17:05
+
+怎么打好啊？ 旁边小怪掉东西但打了又加BUFF……之打兽掉什么啊？
+
+*****
+
+####  gpx234mqx  
+##### 85527#       发表于 2021-12-26 17:16
+
+我掉了这些
+
+E2213529-F19B-46B9-9EBB-D0487641A3FE.png
+(674.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:15 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/171559j4kco3jejwwjwkyk.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85528#       发表于 2021-12-26 17:16
+
+不全灭的话，稳定2回合<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+F65EDA7B-0BF2-4900-8E53-EBCC5BBFE765.png
+(1.11 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/171635u5b9dc5yks85x44y.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85529#       发表于 2021-12-26 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052146&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-26 17:05</a>
+
+怎么打好啊？ 旁边小怪掉东西但打了又加BUFF……之打兽掉什么啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">戈尔贡2回合  而且2个回合至少一个回合要有2张红卡。。 算了我摸了
+
+*****
+
+####  空气蛹  
+##### 85530#       发表于 2021-12-26 17:18
+
+狼王和妖兰都能打红字，满破黑杯换人奥伯龙的话应该都能打
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  poor  
+##### 85531#       发表于 2021-12-26 17:19
+
+听说小怪也掉，不会打等个作业
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  v22325  
+##### 85532#       发表于 2021-12-26 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052221&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 17:16</a>
+
+我掉了这些</blockquote>
+掉妖精鳞粉的是不是最后两个小怪啊？
+
+我妖蓝1宝三回合清四个小怪打不到最后两个……
+
+*****
+
+####  v22325  
+##### 85533#       发表于 2021-12-26 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 17:18</a>
+
+戈尔贡2回合  而且2个回合至少一个回合要有2张红卡。。 算了我摸了</blockquote>
+看别人狼王wcba只打杀兔一回合  
+
+还有高宝妖兰蓝宝具单体一回合的
+
+*****
+
+####  الطائر  
+##### 85534#       发表于 2021-12-26 17:21
+
+小怪只加10万点最大HP，如果全体宝具连发，很快就灭了本体，感觉要晕她一回合，先偷袭小怪。
+
+*****
+
+####  vacuumsword  
+##### 85535#       发表于 2021-12-26 17:22
+
+狼王奥伯龙CBA一回合可以190w，极地服
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 85536#       发表于 2021-12-26 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052281&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-12-26 17:22</a>
+
+狼王奥伯龙CBA一回合可以190w，极地服
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+狼王 几宝？
+
+*****
+
+####  v22325  
+##### 85537#       发表于 2021-12-26 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小怪掉落都挺不错的 折腾了一下 可以妖兰三连宝具小怪也全部清光了
+

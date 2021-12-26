@@ -11875,3 +11875,57 @@ A50539A5-57D5-4D3C-9411-46DD77B776E7.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/26/154850rra464oottaa4e1t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2480#       发表于 2021-12-26 17:10
+
+在上海这么多年我见到雪的次数也屈指可数
+
+24A3F6D8-708D-4249-BC69-9E9FC2464DA7.jpeg
+(132.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/171018qzjyuq8d44g7ujyr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0892B18B-EB44-407F-B3E8-013A1F8BCDDA.jpeg
+(136.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/171018ugwz7abb8fy78fa8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+63BC6486-5211-43BA-8241-3F3BA6206FE6.jpeg
+(127.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/171018e39t4420q2omkja9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CAE4F788-B952-4FBB-A3AC-46C4B4CF5DD1.jpeg
+(140.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/171019up6fc4kr7y7ks14u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3BF6A83E-649E-4DB7-BEA0-C0D292C4ADEB.jpeg
+(123.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/171019jdn67ki4p64gie47.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
