@@ -11611,3 +11611,26 @@ pay抓着鲤鱼的手臂又滑落到手掌看着要握住了确滑落了，这�
 本来恋还能走彻底一本正经的路线，结果还是被花田拿去玩女同梗了。而且雪菜也罢外冷内热扩展的人设扩展了 ...</blockquote>
 走届不到的女同路线呗
 
+
+
+*****
+
+####  秋月艾莉  
+##### 2473#       发表于 2021-12-26 13:42
+
+做好单体剧情都不够，除非做得特别好
+
+最现实的办法应该是
+
+<img src="https://img.saraba1st.com/forum/202112/26/133939zpites8ettjyzstt.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211225213118.png</strong> (11.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 13:39 上传
+
+让无敌的CP狗来解决一切困难
+
+本来觉得考虑到平衡和千堇组最好，现在这个情况还是跟2TOP贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
