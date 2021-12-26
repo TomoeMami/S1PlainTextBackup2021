@@ -1421,3 +1421,162 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">羡慕拐齐全的，啥都没有的我，只能靠伊吹自己打，两个辅助加起来一共提供50加攻，还每自buff高
 
+
+
+*****
+
+####  exiaexa  
+##### 85633#       发表于 2021-12-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055691&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-26 22:18</a>
+
+羡慕拐齐全的，啥都没有的我，只能靠伊吹自己打，两个辅助加起来一共提供50加攻，还每自buff高 ...</blockquote>
+这次拐缺个1、2个都还有调整的可能
+
+打手全1宝的几乎注定要吃屎了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85634#       发表于 2021-12-26 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055788&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-26 22:25</a>
+
+这次拐缺个1、2个都还有调整的可能
+
+打手全1宝的几乎注定要吃屎了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新打手基本都１宝　脚打！
+
+*****
+
+####  都谷捻柏  
+##### 85635#       发表于 2021-12-26 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055788&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-26 22:25</a>
+
+这次拐缺个1、2个都还有调整的可能
+
+打手全1宝的几乎注定要吃屎了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀狐奥伯龙梅林我都没有，伊吹也就2宝
+
+*****
+
+####  exiaexa  
+##### 85636#       发表于 2021-12-26 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055803&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 22:26</a>
+
+萌新打手基本都１宝　脚打！</blockquote>
+不清楚你们萌新对脚打的定义
+
+至少我觉得这个情况，1t要清场在全1宝的情况下是个限制非常大的问题
+
+如果常用打手能整个2、3宝，调整空间会非常的大
+
+至少不会受羁绊满了这种问题的影响
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85637#       发表于 2021-12-26 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055875&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-26 22:32</a>
+
+杀狐奥伯龙梅林我都没有，伊吹也就2宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">单说狐狸的话你可以上狼王ｃｂａ借奥师傅　一回合直接秒了就是了（
+
+*****
+
+####  alucardcz  
+##### 85638#       发表于 2021-12-26 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055883&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-26 22:33</a>
+
+不清楚你们萌新对脚打的定义
+
+至少我觉得这个情况，1t要清场在全1宝的情况下是个限制非常大的问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">根据隔壁测试　狼王１宝可以直接秒了狐狸　　不打小怪的话
+
+*****
+
+####  exiaexa  
+##### 85639#       发表于 2021-12-26 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055910&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 22:35</a>
+
+根据隔壁测试　狼王１宝可以直接秒了狐狸　　不打小怪的话</blockquote>
+你去跟楼上CBA羁绊满了的打一架
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85640#       发表于 2021-12-26 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055938&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-26 22:37</a>
+
+你去跟楼上CBA羁绊满了的打一架</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没看到啊
+
+*****
+
+####  都谷捻柏  
+##### 85641#       发表于 2021-12-26 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055894&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 22:33</a>
+
+单说狐狸的话你可以上狼王ｃｂａ借奥师傅　一回合直接秒了就是了（ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/26/223854uwo3u0w2bs0l3qzc.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211226223816.jpg</strong> (556.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 22:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接秒亏素材啊，凑一凑3t还是可以凑出来，全靠伊吹
+
+*****
+
+####  qixinno2  
+##### 85642#       发表于 2021-12-26 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在都无所谓出卡了 只想再抽到个黑杯把黑杯满破
+
+*****
+
+####  exiaexa  
+##### 85643#       发表于 2021-12-26 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055957&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 22:39</a>
+
+没看到啊</blockquote>
+85562，请
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芭德薇  
+##### 85644#       发表于 2021-12-26 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054665&amp;ptid=1085254" target="_blank">modkingr 发表于 2021-12-26 21:04</a>
+
+有人说下一宝妖兰怎么操作可以3T吗？杀狐奥伯梅林都有 不管我怎么操作 P1的两个小怪都打不死啊  ...</blockquote>
+我只有80级的黑杯，第一回合技能全开右边小怪都要剩一万左右，只能选择第一回合放弃一只，这样发卡好可以剩一只，发卡不行就剩俩。
+
+100级满破黑杯应该可以做到全清，起手自己技能全开加上两个杀狐的3技能，礼装加攻，指令卡补刀左边高血小怪，第二回合杀狐1技能充满再开一次3技能，有指令卡回蓝的话就把奥博隆换出来加个1技能，这波小怪全清应该是没问题的，最后一回合就是自己1技能，奥博隆技能全开，三回合里有一张红卡打到boss身上应该就行。
+
+*****
+
+####  exiaexa  
+##### 85645#       发表于 2021-12-26 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055975&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-26 22:40</a>
+
+直接秒亏素材啊，凑一凑3t还是可以凑出来，全靠伊吹</blockquote>
+就是这么个问题，现在你要么3t全清，要么1t清场，单秒BOSS太亏了越打越憋屈
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

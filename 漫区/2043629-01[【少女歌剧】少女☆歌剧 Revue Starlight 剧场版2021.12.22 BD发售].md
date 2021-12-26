@@ -4093,3 +4093,29 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 三年前我刚摸到少女歌剧手游的时候就感觉第二季要无，所以现在算纯赚的了（） ...</blockquote>
 现在这个成绩应该也是武士道也没想到的吧，本来八月就要下映了，结果延期到现在还没下映。其实也看得出武士道本来也没抱多大期望。
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 312#       发表于 2021-12-26 22:29
+
+ 本帖最后由 H2Ofrozen 于 2021-12-26 22:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052746&amp;ptid=2043629" target="_blank">ads147147 发表于 2021-12-26 18:09</a>
+
+剧场版的感受给我的感觉和eva还真没啥共同的地方吧，看了两遍没看出来有人刷再见全部的舞台少女的意义，取 ...</blockquote>
+相对于tv确实有很大程度的反叛甚至颠覆，这方面拿eva终来类比我觉得可以理解
+
+但古川还是会委婉一点，不像痞子那样更加直白激进
+
+*****
+
+####  一般通过宅宅  
+##### 313#       发表于 2021-12-26 22:38
+
+[https://www.bilibili.com/video/BV1p3411v7Sk](https://www.bilibili.com/video/BV1p3411v7Sk)
+
+这个剪的好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+之前也是做少歌MAD的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

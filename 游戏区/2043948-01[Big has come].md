@@ -6677,3 +6677,95 @@ steam的这个套路像github，从各个地方的反响来看这是最鸡贼的
 
 测试什么啊测试，还需要测试什么端口什么DNS的吗？以前不都是这样，隔段时间就来一次网络波动，就是不让你用的顺心。等到真封的那天也有心理准备。也可能完全是自己吓自己，这么小的圈子没人想管。总之都是薛定谔的猫，没到真的被墙的那一天你永远无法确定究竟是怎么回事。不过有句话说得对，要是有一天动真格的真的给你封了STEAM，那肯定是想翻墙都出不去的，梯子都给你全拆完。
 
+
+
+*****
+
+####  printer22  
+##### 623#       发表于 2021-12-26 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055713&amp;ptid=2043948" target="_blank">dragrass 发表于 2021-12-26 22:20</a>
+
+我记得当时对pixiv的套路就是先dns污染，改dns可以访问
+
+然后慢慢的改dns或者hosts也访问不了了</blockquote>
+关键是P站没有反复过，一气呵成很快就全封了。这破蒸汽每个月都来这么几次，过后又像没事一样随便上，反反复复的搞人心态。
+
+*****
+
+####  新八  
+##### 624#       发表于 2021-12-26 22:25
+
+冷知识，官方口径的话谷歌现在也没被墙，上不了谷歌那是谷歌自己的问题 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李喜睡  
+##### 625#       发表于 2021-12-26 22:29
+
+感觉得整个大点的硬盘把所有游戏都下下来，我这好多买了还没咋玩呢，要不血亏
+
+*****
+
+####  dragrass  
+##### 626#       发表于 2021-12-26 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055757&amp;ptid=2043948" target="_blank">printer22 发表于 2021-12-26 22:23</a>
+关键是P站没有反复过，一气呵成很快就全封了。这破蒸汽每个月都来这么几次，过后又像没事一样随便上，反反 ...</blockquote>
+我觉得很可能这次以后没法随便上了，至少也是维持现在的样子
+
+这明显至少要整成github模式，你说我封了，明明可以上，你说没封，反正没加速器没法用
+
+类比17年那次，17年封steam非常激烈，根本没整什么一会能上一会不能上，但是17年持续时间很短就恢复了
+
+这次已经五天了
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  暗影之诗  
+##### 627#       发表于 2021-12-26 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055854&amp;ptid=2043948" target="_blank">dragrass 发表于 2021-12-26 22:30</a>
+
+我觉得很可能这次以后没法随便上了，至少也是维持现在的样子
+
+这明显至少要整成github模式，你说我封了， ...</blockquote>
+你这记忆又有偏差了，当时可是三四个月呢，知道8.17那个神奇的日子结束的。
+[https://bbs.saraba1st.com/2b/thread-1515584-1-1.html](https://bbs.saraba1st.com/2b/thread-1515584-1-1.html)帖子在这，泥潭的留档
+
+*****
+
+####  dragrass  
+##### 628#       发表于 2021-12-26 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055905&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-26 22:35</a>
+你这记忆又有偏差了，当时可是三四个月呢，知道8.17那个神奇的日子结束的。
+
+https://bbs.saraba1st.com/2 ...</blockquote>
+哦哦，我可能和14年那次记混了
+
+14年那次好像两天就恢复了
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  afer  
+##### 629#       发表于 2021-12-26 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055573&amp;ptid=2043948" target="_blank">lockoff0131 发表于 2021-12-26 22:07</a>
+
+贴吧有人做了测试， 结论是把steam的域名指向epic的ip会导致epic也无法访问，然后停止访问steam一段时间后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">终于有点正常帖子了，这个就是自动墙机制啊。
+
+就是你点的链接如果是墙的网站，你点多了提供链接的那个网站或者相关联最近的那个网站也会被墙一阵子，要等一会或者换ip才能开。
+
+*****
+
+####  林登·万  
+##### 630#       发表于 2021-12-26 22:41
+
+时好时坏 小火慢炖是吧 折磨是吧 MLGBD<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

@@ -12440,3 +12440,20 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 
 唉哟，这是怎么回事呢？我记得她没关注鲤鱼经纪人吧？而且还不止一次～
 
+
+
+*****
+
+####  chenflyyy  
+##### 2502#       发表于 2021-12-26 22:28
+
+从宫城场开始就没有goto优惠回到4000日元了，只想看首尾的没薅到资本主义羊毛感觉好亏，还好跨年场还能有优惠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过现在有追加场后宫城场想看欲望也下降了，歌单应该不会变，想着要不看切片和repo算了，追加场还能看sunpa首秀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2503#       发表于 2021-12-26 22:33
+
+宫城看点还挺大的吧？打铁回归家乡和鲤鱼生日
+
