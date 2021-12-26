@@ -3478,3 +3478,36 @@ maya库洛：库洛子的小虎牙太棒了。。。<img src="https://static.sar
 
 本来觉得露女士重，没想到在恋哥哥的重面前那就是浮云
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 258#       发表于 2021-12-26 11:04
+
+这个剧场版本身就是粉丝向的作品，所以一切的内容都是都是为了回应粉丝。而少歌吸引的地方正是在于revue丰富演出和炽热的感情，故事本身不是什么重要的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  阿姆罗二世  
+##### 259#       发表于 2021-12-26 11:10
+
+相比起TV，剧场版的revue更狂野玩的更嗨皮，TV的revue还算是一板一眼，剧场版没了这么大的预算限制在狂野度上直接拉满
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  damian-wade  
+##### 260#       发表于 2021-12-26 11:14
+
+看完了，抹布洗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+只是讲毕业那点事很水吗，我倒是觉得信息量太大，做成第二季都绰绰有余<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+比较遗憾的是没有感觉很抓耳的新曲，最带感的还是舞台少女心得的BGM
+
+露女士虽然重力输给了恋哥哥，但是那段revue是特别好的病娇素材<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
