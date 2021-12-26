@@ -644,3 +644,14 @@ RT是俄罗素的新闻媒体
 
 去年苏州不是胡搞过吗，给骂翻了。
 
+
+
+*****
+
+####  9616777  
+##### 66#       发表于 2021-12-27 06:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不反方向一波
+
+就利用这个去申请绿卡怎样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
