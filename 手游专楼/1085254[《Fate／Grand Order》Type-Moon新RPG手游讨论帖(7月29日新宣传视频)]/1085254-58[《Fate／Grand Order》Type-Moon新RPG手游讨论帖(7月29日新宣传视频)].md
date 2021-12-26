@@ -812,3 +812,77 @@ EE0DE2BF-7165-442C-86ED-83F38D37C3D8.png
 
 那段就不能只初见放一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 85576#       发表于 2021-12-26 18:27
+
+&gt;&gt;ビーストが死なないように手加減して戦うってどういうことだよ…
+
+&gt;愛玩ってどういう意味か知ってる？
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑死
+
+*****
+
+####  alucardcz  
+##### 85577#       发表于 2021-12-26 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052571&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-26 17:51</a>
+
+九发单抽出的二宝水院有地方用了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是欧皇吗 羡了羡了
+
+*****
+
+####  黑上シグマ  
+##### 85578#       发表于 2021-12-26 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052891&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-26 18:23</a>
+
+有时候进本会卡住，加载不出人类恶生殖的动画
+
+那段就不能只初见放一次吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我已经黑屏两次了
+
+*****
+
+####  gpx234mqx  
+##### 85579#       发表于 2021-12-26 18:35
+
+超稳三回合全灭
+
+1E376FDF-98A3-41C1-AA7E-CC1D9AFDDC22.png
+(882.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/183530pzwaeti2wc2upzox.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85580#       发表于 2021-12-26 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 我也卡了一次
+
+*****
+
+####  1a不解释  
+##### 85581#       发表于 2021-12-26 18:39
+
+为啥开局动画老是黑屏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，还得重启一下
+
+*****
+
+####  qixinno2  
+##### 85582#       发表于 2021-12-26 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052921&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 18:29</a>
+
+这就是欧皇吗 羡了羡了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么多年唯一欧的一次 关键欧的没啥意义
+

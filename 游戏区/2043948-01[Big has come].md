@@ -6206,3 +6206,20 @@ xbox也抽了，一个原因吧，我看别人说cdn的问题
 打击盗版不知道是为了什么，现在连入正版的机会都不给了，那就只能玩回盗版了啊。 ...</blockquote>
 外国正版跟中国正版不是一回事
 
+
+
+*****
+
+####  crosz  
+##### 581#       发表于 2021-12-26 18:36
+
+已经快进到搭梯子能上就不叫被墙的阶段了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/26/183642r14hszrah0hd1hia.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20211226183512708.jpg</strong> (10.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:36 上传
+

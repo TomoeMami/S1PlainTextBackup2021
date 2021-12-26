@@ -3838,3 +3838,24 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Parad0gs  
+##### 290#       发表于 2021-12-26 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这片子比起真星为你更像是retake吧
+
+指过激姛杀必死属实有点多（
+
+*****
+
+####  unnilennium  
+##### 291#       发表于 2021-12-26 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052746&amp;ptid=2043629" target="_blank">ads147147 发表于 2021-12-26 18:09</a>
+
+剧场版的感受给我的感觉和eva还真没啥共同的地方吧，看了两遍没看出来有人刷再见全部的舞台少女的意义，取 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">大概是上次总集篇有几个大出血的镜头，变成字面意思上的“死与新生”了
+
