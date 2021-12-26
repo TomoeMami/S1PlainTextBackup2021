@@ -948,3 +948,67 @@ EE0DE2BF-7165-442C-86ED-83F38D37C3D8.png
 
 <img src="https://img.saraba1st.com/forum/202112/26/185748xmutw4we5t57eoui.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qb0079  
+##### 85587#       发表于 2021-12-26 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要设计小怪回血我懂了，怕你冲太快光炮直接把兔子冲死了
+
+刚妖兰差点2T直接把兔子秒了，还剩5W血，吓死我了
+
+*****
+
+####  poor  
+##### 85588#       发表于 2021-12-26 19:04
+
+艹，昨天抽到妖兰今天就用上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yangun22  
+##### 85589#       发表于 2021-12-26 19:05
+
+邪龙比水院稳，宝具自带技能封印和减暴，保证boss不暴击普攻3连<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 85590#       发表于 2021-12-26 19:14
+
+1t每次都用换人服板砖拍一下 目前没被晕过
+
+
+
+*****
+
+####  khxooo  
+##### 85591#       发表于 2021-12-26 19:15
+
+抄了个福利多的3T内容，不过黑杯只有40级，只能打4T了，不过算是比较舒服的一个阵容了
+
+*****
+
+####  sosgame67  
+##### 85592#       发表于 2021-12-26 19:17
+
+鳞粉的掉落还是太蛋疼了..<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85593#       发表于 2021-12-26 19:23
+
+福利多的3T阵容有点舒服，没有白练她
+
+*****
+
+####  v22325  
+##### 85594#       发表于 2021-12-26 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

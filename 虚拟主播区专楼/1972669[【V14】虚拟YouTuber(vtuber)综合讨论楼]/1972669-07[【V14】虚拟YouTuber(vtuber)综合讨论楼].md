@@ -6853,3 +6853,13 @@ lena姨毕业前三天的live
 
 哦，葛叶的新3d直接把live衣服用上了啊
 
+
+
+*****
+
+####  free  
+##### 9567#       发表于 2021-12-26 19:14
+
+冰火歌会年终SP，这次来了这么多人不知道要唱到几点...
+[https://live.bilibili.com/blackboard/activity-kWr4sz97Ku.html](https://live.bilibili.com/blackboard/activity-kWr4sz97Ku.html)
+

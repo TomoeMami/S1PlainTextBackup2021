@@ -11987,3 +11987,12 @@ B303F888-0265-4EFB-A8C8-826D70C6695B.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/26/184835t6t70a8nz86gnns8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2485#       发表于 2021-12-26 19:13
+
+犹豫要不要买宫城和追加场的特典票，每个月不知不觉要往这个企划扔进1000左右
+
