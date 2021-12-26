@@ -1180,3 +1180,33 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">打不动了  看明天起来还在不在吧
 
+
+
+*****
+
+####  Jamaisvu  
+##### 85610#       发表于 2021-12-26 20:24
+
+<img src="https://img.saraba1st.com/forum/202112/26/202220dg8is4d3ka3rx4rr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211226_202044_com.excean.gspace.jpg</strong> (296.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-26 20:22 上传
+
+这个狐狸脑袋一开始还以为是奇美拉兔兔缝了个鳄鱼，后来一想，单独拿出来应该就是狐狸头吧，金眼白面...
+
+（还以为是neta东京残酷警察里那个下半身是鳄鱼的妹子...）
+
+*****
+
+####  alucardcz  
+##### 85611#       发表于 2021-12-26 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053924&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-26 20:07</a>
+
+雪藏多年的2宝枪狐终于有机会上场了...带战斗服奥伯龙梅林A狐....一脚下去170万左右 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">羡慕 限定枪！
+

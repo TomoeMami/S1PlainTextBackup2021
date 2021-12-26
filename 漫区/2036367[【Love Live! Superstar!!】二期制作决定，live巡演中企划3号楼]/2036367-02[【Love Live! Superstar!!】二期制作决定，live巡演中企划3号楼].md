@@ -12212,3 +12212,115 @@ ni老师这图绝了，迪士尼警告
 
 <img src="https://img.saraba1st.com/forum/202112/26/201440jey0o14zw4t0xk0w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2490#       发表于 2021-12-26 20:25
+
+鲤鱼，我的超人
+
+CDAEE132-3B3D-4469-BA85-C123FF1B1596.jpeg
+(600.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/202547ezo2oalur02a30w0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7291D3F5-D521-4FED-A48E-AD432D4092FF.jpeg
+(1.02 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/202547av0j4uj5b5za4be4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+EF35FF00-01A9-4E64-A05A-BAC33D4A7E5D.jpeg
+(500.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/202547j43f1ljjpv90t3pt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E585D3DB-E30B-4D05-9C68-EC4AFECB72A4.jpeg
+(173.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/202548ujqopixtplfpv388.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6BD15BA5-8A9F-47CD-8507-B240FF6395DD.jpeg
+(572.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/202548u2mmq27mw7qqqr7r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7D7A8051-26FF-4455-AC4F-2568A928AE08.jpeg
+(198.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/202548p6b2r0m33c6birib.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+85E5E604-6F8A-41BB-B1E4-8531138784F7.jpeg
+(379.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/202548guaa3d3kc3e3us7t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  starring  
+##### 2491#       发表于 2021-12-26 20:29
+
+请教一下，eplus注册时地区是不是不可以选大陆和日本，选HK的话自机IP不是HK有没影响？
+
+准备买宫城day2和追加场
+
+*****
+
+####  wwyyw  
+##### 2492#       发表于 2021-12-26 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054187&amp;ptid=2036367" target="_blank">starring 发表于 2021-12-26 20:29</a>
+请教一下，eplus注册时地区是不是不可以选大陆和日本，选HK的话自机IP不是HK有没影响？
+
+准备买宫城day2和追 ...</blockquote>
+不会检查 ip ，选 HK 可以的
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  player3960  
+##### 2493#       发表于 2021-12-26 20:38
+
+今天没看live，才知道鲤鱼裂啦之歌三连，那这整场除了两首歌几乎全勤了，去微博夸一下鲤我超去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 2494#       发表于 2021-12-26 20:39
+
+鲤鱼新歌mv播放后劲有点不足啊，才挂了半天热门就没了，才十几万播放。反倒是昨天十几秒的视频都快四十万了，现在还在热门。不过引来很多低俗恶臭评论就是了，举报不过来。
+

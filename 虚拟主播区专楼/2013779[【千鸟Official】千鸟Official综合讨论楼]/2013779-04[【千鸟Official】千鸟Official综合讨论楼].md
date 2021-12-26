@@ -1795,3 +1795,19 @@ co宝波了，静子过来臊皮<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">电压不够是什么鬼啊
 
+
+
+*****
+
+####  rgauss  
+##### 4688#       发表于 2021-12-26 20:31
+
+卧槽了 她不是说不开播么 我在赶报告完全没注意开播了
+
+*****
+
+####  袜子  
+##### 4689#       发表于 2021-12-26 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑是电脑没装好，酒店负载再差一间也得2000W
+
