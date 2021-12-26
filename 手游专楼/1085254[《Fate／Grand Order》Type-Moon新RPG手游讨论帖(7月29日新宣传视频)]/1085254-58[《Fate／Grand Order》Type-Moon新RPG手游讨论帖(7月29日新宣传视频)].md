@@ -1580,3 +1580,65 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 就是这么个问题，现在你要么3t全清，要么1t清场，单秒BOSS太亏了越打越憋屈
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 85646#       发表于 2021-12-26 22:44
+
+一宝妖兰没有氪金礼装还是别尝试3t全清了..直接嫖别人的打手都更快<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85647#       发表于 2021-12-26 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055981&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-26 22:40</a>
+
+85562，请</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那是个欧皇什么都有　你会错意了
+
+*****
+
+####  exiaexa  
+##### 85648#       发表于 2021-12-26 22:51
+
+ 本帖最后由 exiaexa 于 2021-12-26 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056043&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 22:45</a>
+
+那是个欧皇什么都有　你会错意了</blockquote>
+他是欧皇跟她不想打有什么关系
+
+我要是蓝卡红卡秒不掉我也不想打啊
+
+去拉几个不想拉羁绊的角色去打本图啥嘛，给自己增加垃圾游戏时间吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  風卷豹  
+##### 85649#       发表于 2021-12-26 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054665&amp;ptid=1085254" target="_blank">modkingr 发表于 2021-12-26 21:04</a>
+有人说下一宝妖兰怎么操作可以3T吗？杀狐奥伯梅林都有 不管我怎么操作 P1的两个小怪都打不死啊  ...</blockquote>
+借杀狐，换人服，奥博龙后排，黑杯妖兰
+一回合妖兰技能全开，第一只杀狐技能全给妖兰，第二只杀狐技能3，衣服加攻，开炮。一定概率术阶怪不死，随便找个人摸一下，最好是妖兰摸一下，但是妖兰红卡要给本体。
+2回合妖兰np要30以上，如果你没晕对面很容易达成，兽狐就是充电宝。杀狐1技能，奥博龙1技能，有妖兰红卡就把杀狐2技能也交了，再开妖兰3技能保证第二面火力。
+3回合妖兰1技能，奥博龙23技能。
+当然说了那么多我的建议是直接去up池抽个2宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  芭德薇  
+##### 85650#       发表于 2021-12-26 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056145&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-12-26 22:54</a>
+
+借杀狐，换人服，奥博龙后排，黑杯妖兰
+
+一回合妖兰技能全开，第一只杀狐技能全给妖兰，第二只杀狐技能3， ...</blockquote>
+第一回合为什么杀狐要技能全给，妖兰自己技能全开不都溢出30np了，这用完技能后也没换后排上来放其他技能啊……另外靠对面打出30np太看脸了，曾经吃过对面3连暴击的表示还是按自己充能能补满的方向来留技能才稳。
+

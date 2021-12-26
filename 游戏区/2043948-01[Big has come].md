@@ -6769,3 +6769,29 @@ https://bbs.saraba1st.com/2 ...</blockquote>
 
 时好时坏 小火慢炖是吧 折磨是吧 MLGBD<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuhailz  
+##### 631#       发表于 2021-12-26 22:51
+
+我这里能上了，是不是墙的管理部门学习了国产氪金手游的经验啊，把本来应该给你的东西按照概率抽给你，反而会有种别样开心的感觉
+
+*****
+
+####  ‮agur4kI  
+##### 632#       发表于 2021-12-26 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055779&amp;ptid=2043948" target="_blank">新八 发表于 2021-12-26 22:25</a>
+
+冷知识，官方口径的话谷歌现在也没被墙，上不了谷歌那是谷歌自己的问题  ...</blockquote>
+我说华春莹为什么让外国人反思中国人上不去推特和youtube的问题
+
+*****
+
+####  KENN  
+##### 633#       发表于 2021-12-26 22:58
+
+就是上一会儿然后又不行，上一会儿又不行搞你心态吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

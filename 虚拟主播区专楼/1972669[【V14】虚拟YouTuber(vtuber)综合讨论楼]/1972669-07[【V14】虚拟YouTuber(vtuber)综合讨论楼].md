@@ -7017,3 +7017,22 @@ ssk！！！
 
 chima在和谁一起直播？还是说是和自己的录音一起唱？
 
+
+
+*****
+
+####  黑之和  
+##### 9586#       发表于 2021-12-26 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055215&amp;ptid=1972669" target="_blank">zpbzpb123123 发表于 2021-12-26 21:40</a>
+最后蓝龟壳谁丢的啊 直接改变世界线
+恭喜任任女孩</blockquote>
+看有人复盘说是星川
+
+*****
+
+####  LilighT  
+##### 9587#       发表于 2021-12-26 22:58
+
+重看一遍SSK视角，最后一盘一共丢了三个蓝龟壳，节目效果真是拉满了
+
