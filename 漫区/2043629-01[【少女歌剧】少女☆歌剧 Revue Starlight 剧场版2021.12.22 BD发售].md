@@ -3409,3 +3409,22 @@ maya库洛：库洛子的小虎牙太棒了。。。<img src="https://static.sar
 大概我个人确实不是很喜欢“解开心结，相互理解”这样的剧情套路，对比豪华的演出制作，剧情这块感觉有点无 ...</blockquote>
 手游里后来阿蕉也没打过maya，tv再演里次次输那个天堂真矢多半得理解成吸老婆没吸够属性值不足的一人star孤星maya，那自然是孤不过阿蕉了。而且在没有maya的削剧世界线，首席是克洛，蕉是次席，所以其实连克洛也打不过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lyzers  
+##### 253#       发表于 2021-12-26 09:23
+
+光看TV和剧场表现，蕉放到特摄里就是那种，一阶常态初登场天花板，B格拉满吊打主角团（轮回蕉吊打鹅，剧场版轻松一穿六）；二阶过渡被主角压制（打不过闪耀光恋）；到了故事最终阶段心态爆炸，甚至打不过唯心力拉满的主角团末位（剧场版纯那）的阶段boss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然特摄只是稍微了解不知道这么说对不对
+
+*****
+
+####  海晟天锻  
+##### 254#       发表于 2021-12-26 09:37
+
+古川对蕉的定位不就是“需要被打败的反派boss”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要是蕉真的心理素质硬的爆棚那加上高面板还怎么打
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

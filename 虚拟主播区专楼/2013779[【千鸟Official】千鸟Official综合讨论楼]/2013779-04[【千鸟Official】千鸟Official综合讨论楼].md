@@ -1752,3 +1752,14 @@ co宝波了，静子过来臊皮<img src="https://static.saraba1st.com/image/smi
 
 这下团建了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人民de救星  
+##### 4683#       发表于 2021-12-26 09:40
+
+喜报：文静进去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
