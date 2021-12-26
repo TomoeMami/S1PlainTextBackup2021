@@ -3948,3 +3948,12 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 
 再见吧，所有的长颈鹿们，去寻找属于自己的舞台吧。
 
+
+
+*****
+
+####  格林达姆  
+##### 298#       发表于 2021-12-26 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这女同浓度比tv高了好多啊
+

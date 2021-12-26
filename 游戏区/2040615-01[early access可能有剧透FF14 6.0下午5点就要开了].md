@@ -2175,3 +2175,17 @@ SE傻逼就完事了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  onemoment  
+##### 205#       发表于 2021-12-26 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053615&amp;ptid=2040615" target="_blank">超赛锡纸烫 发表于 2021-12-26 19:40</a>
+
+必须要用购买游戏的psn账号玩，不能跨账号玩。
+
+要买本体＋晓月，本体=2.0+3.0，晓月=4.0+5.0+6.0。</blockquote>
+了解了，感谢
+

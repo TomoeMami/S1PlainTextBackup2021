@@ -1055,3 +1055,77 @@ EE0DE2BF-7165-442C-86ED-83F38D37C3D8.png
 
 虽然现在说已经晚了，不过今天的绊要多一点点，特地把茶壶省到今天喝赚了呀。
 
+
+
+*****
+
+####  khxooo  
+##### 85599#       发表于 2021-12-26 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053503&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 19:29</a>
+
+邪龙1宝不行，得2宝
+
+而且根本不用怕暴击啊</blockquote>
+福利多有技能封印，不怕对面给你来个恐怖。
+
+*****
+
+####  gpx234mqx  
+##### 85600#       发表于 2021-12-26 19:50
+
+ 本帖最后由 gpx234mqx 于 2021-12-26 19:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053648&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-26 19:44</a>
+
+福利多有技能封印，不怕对面给你来个恐怖。</blockquote>
+？？？
+
+100万以下才会加恐怖吧
+
+这都第三回合了，一波带走
+
+根本不用在意对面技能
+
+你看我上面的截图，这个比例扣血根本不用担心恐怖
+
+*****
+
+####  qixinno2  
+##### 85601#       发表于 2021-12-26 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053694&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 19:50</a>
+
+100万以下才会加恐怖吧
+
+这都第三回合了，一波带走</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">随机的 我有时候第一回合懒得拍晕上过几次恐怖
+
+*****
+
+####  khxooo  
+##### 85602#       发表于 2021-12-26 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053694&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 19:50</a>
+
+？？？</blockquote>
+那就不清楚了，我看棉被打，有时候被恐怖一个眩晕就拖到下回合了。
+
+*****
+
+####  gpx234mqx  
+##### 85603#       发表于 2021-12-26 19:58
+
+ 本帖最后由 gpx234mqx 于 2021-12-26 20:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053721&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-26 19:52</a>
+
+随机的 我有时候第一回合懒得拍晕上过几次恐怖</blockquote>
+院院单独显现加精神异常耐性
+
+不怕晕吧
+
+而且第一技能解除弱体
+
+完全不用在意
+
+其他人万一中了，第二回合术呆也能解弱体
+
