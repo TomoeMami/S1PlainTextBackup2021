@@ -7112,3 +7112,65 @@ oh，真的是这样的逻辑吗？那别人只是说能用加速器访问，怎
 既然你说不当君子那就敞 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我都和你对骂了，我还怕骂回去？另外我可没清高，我是说<strong>物理意义上的你们没营养</strong>。
 
+
+
+*****
+
+####  solarcool  
+##### 661#       发表于 2021-12-27 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057423&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-27 00:45</a>
+
+我都和你对骂了，我还怕骂回去？另外我可没清高，我是说物理意义上的你们没营养。 ...</blockquote>
+那就对骂呗，还站道德制高点说别人不在乎上不去的人？另外没营养这点你也是一样的，我没看到你在这贴里有多少“建设性”，你是提供什么对策了啊？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 662#       发表于 2021-12-27 00:47
+
+那现在有啥解决方案可以进去啊
+
+*****
+
+####  afer  
+##### 663#       发表于 2021-12-27 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057444&amp;ptid=2043948" target="_blank">格雷殿下 发表于 2021-12-27 00:47</a>
+
+那现在有啥解决方案可以进去啊</blockquote>
+网易uu，不花钱，无脑挂。
+
+*****
+
+####  afer  
+##### 664#       发表于 2021-12-27 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057442&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-27 00:47</a>
+
+那就对骂呗，还站道德制高点说别人不在乎上不去的人？另外没营养这点你也是一样的，我没看到你在这贴里有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我提供什么你也不看啊，我和别人好好说话您也不看啊，我和你废话有屁用
+
+*****
+
+####  solarcool  
+##### 665#       发表于 2021-12-27 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057466&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-27 00:50</a>
+
+我提供什么你也不看啊，我和别人好好说话您也不看啊，我和你废话有屁用 ...</blockquote>
+那我是真好奇你有什么对策，说实话我只想得到推荐别人通道好的小鸡加速器之类，以前过于wall的贴子里我也推荐过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+你觉得没有用就不要回，既然都是废话你孜孜不倦回什么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 666#       发表于 2021-12-27 00:58
+
+ 本帖最后由 afer 于 2021-12-27 00:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057510&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-27 00:54</a>
+
+那我是真好奇你有什么对策，说实话我只想得到推荐别人通道好的小鸡加速器之类，以前过于wall的贴子里我也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">前面推人uu您也是瞎，推人重启换ip您也是瞎，您推个小鸡都能吹，那我推uu和别人聊最近啥体验我也算有方案，您tm在这帖子里说了个寂寞？从头就是你回复我，既然您嫌我回您，那我不回您了，滚草。
+

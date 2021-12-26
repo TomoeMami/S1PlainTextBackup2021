@@ -8436,3 +8436,23 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 
 你们以为新冠是超级流感，其实是超级水痘。
 
+
+
+*****
+
+####  yuandi0120  
+##### 2213#       发表于 2021-12-27 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057377&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-27 00:40</a>
+
+https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247486975&amp;idx=1&amp;sn=3d6932379b651344a2c448ac69 ...</blockquote>
+要怎么样的脑回路才能想出给J液做核酸啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nkscorpio  
+##### 2214#       发表于 2021-12-27 01:02
+
+精液有病毒 这明显影响下一代健康吧 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+裸猿准备绝育了？
+
