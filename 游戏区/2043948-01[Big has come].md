@@ -5572,3 +5572,15 @@ TLS1.3刚开始有网站使用那段时间就是直接被打断的，可以认�
 
 上一次全国规模的间歇性访问异常持续了三个多月呢，17年的5月到8月，看看这次持续多久，如果不升级屏蔽策略或者不解除那这种时好时坏有的反复呢
 
+
+
+*****
+
+####  zashou  
+##### 516#       发表于 2021-12-26 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043136&amp;ptid=2043948" target="_blank">魔法酪饼 发表于 2021-12-25 19:51</a>
+
+这不很明显某些企业勾结地方运营商，特意在大促的时候搞了一波dns污染么。。。这有啥好纠结的。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">我早就说过，国内黑客都在干原神，不接这种单的。
+
