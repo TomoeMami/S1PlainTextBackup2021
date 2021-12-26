@@ -6312,3 +6312,66 @@ xbox也抽了，一个原因吧，我看别人说cdn的问题
 
 可以上了
 
+
+
+*****
+
+####  Hidewhite  
+##### 590#       发表于 2021-12-26 21:03
+
+ 本帖最后由 Hidewhite 于 2021-12-26 21:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054608&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-26 21:00</a>
+
+对的，所以steam已经完蛋了，从今天开始，谁再说能上steam，能玩库里的游戏谁就是狗洞，好不好
+
+ ...</blockquote>
+steam完蛋个鬼啊，外国人不一直上得去。全中国人上不去，steam都不会完蛋。大概某某中国人能玩确实比洋大人能玩特别高贵特别特别，中国人耶，能玩耶，是中国人的珍惜品种耶，特别了不起
+
+*****
+
+####  超赛锡纸烫  
+##### 591#       发表于 2021-12-26 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054656&amp;ptid=2043948" target="_blank">Hidewhite 发表于 2021-12-26 21:03</a>
+
+steam完蛋个鬼啊，外国人不一直上得去。全中国人上不去，steam都不会完蛋。 ...</blockquote>
+here we go “装外宾了是吗”
+
+既然不允许说steam没事可以正常访问，说洗洗还能用一顶狗洞的均码帽子就来了，那可不就是只有完蛋了吗
+
+*****
+
+####  解语L  
+##### 592#       发表于 2021-12-26 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么是pua，这就是pua
+
+*****
+
+####  Hidewhite  
+##### 593#       发表于 2021-12-26 21:14
+
+ 本帖最后由 Hidewhite 于 2021-12-26 21:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054770&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-26 21:11</a>
+
+here we go “装外宾了是吗”
+
+既然不允许说steam没事可以正常访问，说洗洗还能用一顶狗洞的均码帽子就来 ...</blockquote>
+steam没事可以正常访问是怎么得出的结论？
+
+有人2077打下来没遇到bug，这游戏就没bug？这年头互联网的弱智真是一山更有一山高
+
+别人喊你狗洞大师，你也不必跑我面前表演弱智啊
+
+*****
+
+####  超赛锡纸烫  
+##### 594#       发表于 2021-12-26 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054820&amp;ptid=2043948" target="_blank">Hidewhite 发表于 2021-12-26 21:14</a>
+
+steam没事可以正常访问是怎么得出的结论？
+
+有人2077打下来没遇到bug，这游戏就没bug？这年头互联网的弱智 ...</blockquote>
+非常赞成啊，所以说steam完蛋了，用不了了，访问不了了，谁再说能访问steam能玩的肯定是不正常的，是狗洞，是弱智。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

@@ -3976,3 +3976,12 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 【一头长颈鹿在看完少歌剧场版后，这是它发出的呐喊-哔哩哔哩】 [https://b23.tv/C3By9yY](https://b23.tv/C3By9yY)
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 301#       发表于 2021-12-26 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">等你古川gg的新作了  
+
