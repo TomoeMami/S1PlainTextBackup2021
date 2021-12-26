@@ -7263,3 +7263,24 @@ oh，真的是这样的逻辑吗？那别人只是说能用加速器访问，怎
 
 能进了能进了，神神如丧考妣！
 
+
+
+*****
+
+####  我就再氪一单  
+##### 674#       发表于 2021-12-27 07:04
+
+感觉最近几个月一直电脑开机steam就会处于薛定谔的链接状态，直接弹个框说连不上服务器的那种。运营商问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  魔法酪饼  
+##### 675#       发表于 2021-12-27 07:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055352&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-26 21:50</a>
+
+不用自己在那高潮曝露圣诞夜失败的性生活连续高潮辣，目前来说，只要承认steam在中国是被官方针对，并且随 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">总之结论就是：和你意见不同=狗洞大师
+

@@ -674,3 +674,25 @@ RT是俄罗素的新闻媒体
 我读书少别骗我，这么明显的钓鱼真的能钓上人吗…………</blockquote>
 比起疫苗藏芯片，5G传新冠，好歹是几万里以外的事情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  买表大户  
+##### 69#       发表于 2021-12-27 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057270&amp;ptid=2044214" target="_blank">aji47 发表于 2021-12-27 00:30</a>
+确确实实造成了负面影响。你在外网辩护中国。
+白皮猪就会来一句 social credt+10000
+瞬间结束对话 ...</blockquote>
+那是他自己觉得结束了对话，人本身就是上来复读的没有这个换句话一样可以一击脱离
+
+*****
+
+####  大宋圣女波丽娜  
+##### 70#       发表于 2021-12-27 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058061&amp;ptid=2044214" target="_blank">半分宅 发表于 2021-12-27 03:30</a>
+所以你觉得RT这些俄宣平时都在干啥？</blockquote>
+得了吧，RT在早就是fake news propaganda的代表了
+
