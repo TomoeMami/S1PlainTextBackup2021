@@ -6185,3 +6185,24 @@ UU可以`UU加速STEAM不是免费的吗
 这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
 更搞的是，当初劝他们拿出解决办法那些人，还会被扣帽子识别成两方里其中一方，一起按着打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  硫儿  
+##### 579#       发表于 2021-12-26 17:36
+
+xbox也抽了，一个原因吧，我看别人说cdn的问题
+
+—— 来自 OPPO PDSM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  mcq_2  
+##### 580#       发表于 2021-12-26 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54048233&amp;ptid=2043948" target="_blank">ことわり 发表于 2021-12-26 09:52</a>
+
+打击盗版不知道是为了什么，现在连入正版的机会都不给了，那就只能玩回盗版了啊。 ...</blockquote>
+外国正版跟中国正版不是一回事
+

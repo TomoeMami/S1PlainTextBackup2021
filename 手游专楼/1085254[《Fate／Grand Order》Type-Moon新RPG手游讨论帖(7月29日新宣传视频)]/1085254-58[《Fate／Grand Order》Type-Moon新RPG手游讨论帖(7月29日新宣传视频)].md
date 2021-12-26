@@ -419,3 +419,188 @@ F65EDA7B-0BF2-4900-8E53-EBCC5BBFE765.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小怪掉落都挺不错的 折腾了一下 可以妖兰三连宝具小怪也全部清光了
 
+
+
+*****
+
+####  莫夜戎  
+##### 85538#       发表于 2021-12-26 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052221&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 17:16</a>
+
+我掉了这些</blockquote>
+剩下的问号是镜子、骑士勋章、铃铛……还有各种秘石
+
+*****
+
+####  霧谷藤乃  
+##### 85539#       发表于 2021-12-26 17:28
+
+萌新就不打爱玩级了，不过杀戮级借了好友90级2宝带活动礼装的伊吹，第一回合伊吹能三红的话直接秒……
+
+*****
+
+####  alucardcz  
+##### 85540#       发表于 2021-12-26 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052268&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-26 17:21</a>
+
+看别人狼王wcba只打杀兔一回合  
+
+还有高宝妖兰蓝宝具单体一回合的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/26/172757j7c7potm2wit55jt.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (519.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:27 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/172802o6r3k636my66kzyw.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (570.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:28 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">的确可以  那么问题来了 小怪有掉落吗
+
+*****
+
+####  miro112233  
+##### 85541#       发表于 2021-12-26 17:28
+
+好在兽杀狐是个充电宝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85542#       发表于 2021-12-26 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052356&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 17:28</a>
+
+的确可以  那么问题来了 小怪有掉落吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有  掉落有铃铛和鳞粉
+
+*****
+
+####  alucardcz  
+##### 85543#       发表于 2021-12-26 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052367&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-26 17:29</a>
+
+有  掉落有铃铛和鳞粉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那还是用我的戈二贡算了
+
+*****
+
+####  khxooo  
+##### 85544#       发表于 2021-12-26 17:31
+
+也不是不能打，是用金钻头打，就是要看3个宝具，而且肯定打不死，等金钻头死了后就让伊吹上来一个宝具收尾，肯定能打死狐狸+枪阶小怪。这个已经是我想到的最好的方法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85545#       发表于 2021-12-26 17:31
+
+今天三千万  打的慢也不要紧  我就三回合了
+
+Screenshot_2021-12-26-17-30-09-29.jpg
+(408.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/173042c3dzng3ddhzg1jwq.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 85546#       发表于 2021-12-26 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052356&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 17:28</a>
+
+的确可以  那么问题来了 小怪有掉落吗</blockquote>
+有，掉指环神酒和小钟，尤其是小钟疑似是最后两只才掉
+
+*****
+
+####  里村紅葉  
+##### 85547#       发表于 2021-12-26 17:32
+
+我是来刷QP的，素材就不管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85548#       发表于 2021-12-26 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052281&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-12-26 17:22</a>
+
+狼王奥伯龙CBA一回合可以190w，极地服
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+超人熊三红一套就能带走<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+三拳能打250万以上
+
+问题就是发牌员的制裁
+
+*****
+
+####  rooarr  
+##### 85549#       发表于 2021-12-26 17:34
+
+最好打的确实是妖兰宝具3连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85550#       发表于 2021-12-26 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好卡啊
+
+*****
+
+####  Jamaisvu  
+##### 85551#       发表于 2021-12-26 17:40
+
+ 本帖最后由 Jamaisvu 于 2021-12-26 17:42 编辑 
+
+因为不小心翻车了，所以等着B4蓄力想看看大招是啥......结果没技能名称，咏唱几句扔个陨石就结束了...
+
+（不知道为啥C玉是克制相性，平A通关了...）
+
+*****
+
+####  Jamaisvu  
+##### 85552#       发表于 2021-12-26 17:42
+
+最好刷的是妖兰3T，B4身上带一个祭神诅咒...看来兔子在2.6受的伤还真重啊。
+
+*****
+
+####  KOBI  
+##### 85553#       发表于 2021-12-26 17:42
+
+狼王3宝开CBA宝具可以确杀爱玩
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">撑住啊，CBA的绊
+
+*****
+
+####  v22325  
+##### 85554#       发表于 2021-12-26 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好耶 铃铛和鳞粉刚用完 这要一次刷回来
+
+*****
+
+####  katun  
+##### 85555#       发表于 2021-12-26 17:42
+
+有不换人的3T打法吗，没有的我话我继续伊吹了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

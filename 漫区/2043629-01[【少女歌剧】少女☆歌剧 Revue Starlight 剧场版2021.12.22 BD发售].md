@@ -3775,3 +3775,46 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 
 痞子懂个屁的 终   “再见了 所有的补胎烧酒”<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 285#       发表于 2021-12-26 17:25
+
+又看了一遍，剧场版就是TV的补完，说是真星为你真的没错
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仓鼠酱  
+##### 286#       发表于 2021-12-26 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051732&amp;ptid=2043629" target="_blank">海晟天锻 发表于 2021-12-26 16:18</a>
+
+看到有人找到一个细节
+
+蕉在tv和总集篇里再演时对99届圣翔祭的形容是“如燃烧宝石般的闪耀”
+
+到了剧场版里这 ...</blockquote>
+草，这么想的话不就有意思起来了？当时就感觉皆杀蕉对纯那出刀那里和狩猎开头**，蕉真是蛮多私心的，整场剧情绪变化最大的地方是被纯纯反攻的时候<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，不管再演的真相如何，把这句形容99圣翔祭的话放在纯身上可真的太香了。。。
+
+阿蕉对纯要么是“如燃烧宝石般的闪耀”，要么是“没有人会把我的纯那叫做纯纯”，情感太重太牙白了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dpeey  
+##### 287#       发表于 2021-12-26 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54047460&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-26 04:06</a>
+
+剧情方面个人感觉最遗憾的还是大场奈奈这个角色
+
+如果不是古川在制作TV时候的创造，这个角色其实没有这么多 ...</blockquote>
+说句不客气的，看蕉哥这个走向我甚至产生了一点对于暴殄天物的愤怒
+
+这也是我一直以来觉得少歌离谱的原因，而且我越喜欢演出越觉得它离谱，明明这个片子可以有更高的上限，最后给大家看的，大家津津乐道的也就是女孩子们嗯贴
+
+不过剧场版迷宫组还是不错的，这俩人的贴贴我也能get到点了，这对我觉得没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
