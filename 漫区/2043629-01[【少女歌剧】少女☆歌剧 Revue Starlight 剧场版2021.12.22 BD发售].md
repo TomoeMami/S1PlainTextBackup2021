@@ -3726,3 +3726,30 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 
 难怪对露女士的进攻毫无感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝川澈  
+##### 281#       发表于 2021-12-26 16:09
+
+ 本帖最后由 蓝川澈 于 2021-12-26 16:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无端联想
+
+负责点亮这个舞台的角色，没有办法忍受炽热而被燃尽的悲剧，没错，就是——雪菜x长颈鹿✔
+
+<img src="https://pt.sjtu.edu.cn/picbucket/85152_164050615453.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 282#       发表于 2021-12-26 16:18
+
+看到有人找到一个细节
+蕉在tv和总集篇里再演时对99届圣翔祭的形容是“如燃烧宝石般的闪耀”
+到了剧场版里这句话又对纯那说了一遍“我终于见证了，这如燃烧宝石般的闪耀”
+我合理怀疑蕉再演的动机不像她说的那样单纯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -256,3 +256,15 @@ fate吧为啥逢月必反了</blockquote>
 那边主要还是一直不太爽型月这几年的作品质量。</blockquote>
 和这个没关系，他们就是带节奏黑逢月必反，信息茧房养蛊养成粪池了。而且作品质量？里面有几个人看完剧情的，只会挑个片段变着法的带节奏罢了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85523#       发表于 2021-12-26 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051204&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-26 15:26</a>
+
+本次活动太公回忆说女娲把守墓状态的三妖叫出来消灭商朝，但后续妲己不顾使命进一步诱惑纣王，脱离原定指 ...</blockquote>
+轩辕坟那个巨人是太阳一样，大本这是天照级吧
+
