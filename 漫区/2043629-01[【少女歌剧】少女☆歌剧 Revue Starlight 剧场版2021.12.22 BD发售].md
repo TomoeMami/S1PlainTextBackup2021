@@ -4134,3 +4134,32 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 
 还有点人的板块都去看了遍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuliaozheX  
+##### 315#       发表于 2021-12-27 00:23
+
+蕉哥出场那通鼓真是绝了，来回看好多遍
+隧道 ，狂风，列车疾驰，白衣revue服，旗帜，音响
+一通鼓，逆光蕉现身<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+拔刀带风压<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+帅哭
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gearbox  
+##### 316#       发表于 2021-12-27 00:27
+
+呜呜呜，好耀眼
+
+*****
+
+####  阿卡拉兰斯  
+##### 317#       发表于 2021-12-27 00:36
+
+转自隔壁论坛<img src="https://p.sda1.dev/3/beea575fce49553cd9fa5541b459f56f/IMG_CMP_187555038.jpeg" referrerpolicy="no-referrer">
+

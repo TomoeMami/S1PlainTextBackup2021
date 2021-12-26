@@ -7055,3 +7055,60 @@ https://bbs.saraba1st.com/2 ...</blockquote>
 我骂你们我也没骂建设性的或者抱怨的网友，也没不站队就扣帽子啊，确实没啥两样啊，我操的就是狗 ...</blockquote>
 讲道理哈，我也没骂抱怨网络和上不去的。我骂狗洞大师不行？你要掺和进来一脚，那你被反击不是再正常不过了？你既然划了两个阵营，还都要骂，那被当成第三阵营真有什么奇怪的地方么？你要是纯交流连接状况那我突然来骂你那确实是你有理<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  afer  
+##### 657#       发表于 2021-12-27 00:27
+
+ 本帖最后由 afer 于 2021-12-27 00:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057146&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-27 00:19</a>
+
+讲道理哈，我也没骂抱怨网络和上不去的。我骂狗洞大师不行？你要掺和进来一脚，那你被反击不是再正常不过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">明明你先接我话啊，你们君子不党的还挺有自知之明还挺抱团，没个偏执症或者自己高风亮节不搭理我就算了吧，事到如今又来这种话，咱们双标的不是彼此彼此么。
+
+到底这帖子里和你们纠缠不清这种破玩意还是进了你们high点啊，到底是玩论坛爽啊，你们压根不在乎steam上不上的去吧大哥们？你们既然是摆明了进来操人来的，被我aoe了是不是也能感同身受一下？
+
+*****
+
+####  超赛锡纸烫  
+##### 658#       发表于 2021-12-27 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055352&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-26 21:50</a>
+
+不用自己在那高潮曝露圣诞夜失败的性生活连续高潮辣，目前来说，只要承认steam在中国是被官方针对，并且随 ...</blockquote>
+oh，真的是这样的逻辑吗？那别人只是说能用加速器访问，怎么觉醒人就像被踩了尾巴一样张口就咬呢？
+
+我是没关系啊，持开放观点，觉醒人说什么都可以对，steam被官方搞过，而且已经完蛋了。只是从今天，不，从6年前开始，还在用steam，说还能访问steam的，说觉得还能访问steam的，在觉醒人眼里都是“狗洞”，所以请觉醒人严以律己，不要用steam钻“狗洞”了，ok？这不就是你们的主张，哪怕在圣诞夜性生活失败也要到处派发狗洞帽的原动力吗？
+
+其实，这些都不重要，既然主张被官方搞，反对别人用自己的网络环境和方法访问steam并称之为狗洞，那么，<strong>从自己做起，拒绝你们自己所界定的“狗洞”，请。</strong>
+
+*****
+
+####  solarcool  
+##### 659#       发表于 2021-12-27 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057236&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-27 00:27</a>
+
+明明你先接我话啊，你们君子不党的还挺有自知之明还挺抱团，没个偏执症或者自己高风亮节不搭理我就 ...</blockquote>
+您这立于不败之地啊，只要你在贴子里回第一贴，来回复的都是接你话是不是<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+既然你说不当君子那就敞开说啊，你也是来骂人的啊，还怕被骂回去呢？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+至于说什么“不在乎steam上不上的去吧大哥们”就纯道德绑架，既然要认小人还站道德制高点呢，另外从发帖频繁度来看，沉迷论坛更多的是你吧……为什么你好意思说别人玩论坛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+你要是真纯骂人那我也不一定来搭话，然而不是你自己又要骂人又要装清高么<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 660#       发表于 2021-12-27 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057375&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-27 00:40</a>
+
+您这立于不败之地啊，只要你在贴子里回第一贴，来回复的都是接你话是不是
+
+既然你说不当君子那就敞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我都和你对骂了，我还怕骂回去？另外我可没清高，我是说<strong>物理意义上的你们没营养</strong>。
+

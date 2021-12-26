@@ -12640,3 +12640,17 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 退坑很久了对现在人气不太理解，彩虹社的一期生，最早的一批直播势管人，同接sc收入在当初的彩虹社内也就中游水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 不过开过2000人场的个人live，单曲销量记得有个6，7千，放到声优应该算不错了
 
+
+
+*****
+
+####  cxj649  
+##### 2523#       发表于 2021-12-27 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056931&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-26 23:59</a>
+
+想集齐四灰毛的只有国内拉拉人在想，日本人从一开始就没这想法。</blockquote>
+5CH拉版还是不少想凑齐4灰毛的
+
+之前还嫌雪菜粉不看空气
+

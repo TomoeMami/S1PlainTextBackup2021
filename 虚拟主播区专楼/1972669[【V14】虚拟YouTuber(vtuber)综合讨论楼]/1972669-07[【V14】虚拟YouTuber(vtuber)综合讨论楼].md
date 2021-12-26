@@ -7074,3 +7074,12 @@ chima在和谁一起直播？还是说是和自己的录音一起唱？
 <img src="https://p.sda1.dev/3/da9e33371ab27eb20280cc744d6b05fa/QQ图片20211227000951.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/be8e24765140d3c9fc29aa24879a7802/QQ图片20211227001059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9590#       发表于 2021-12-27 00:24
+
+加油，再卖个一千超了彩虹那张拼盘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

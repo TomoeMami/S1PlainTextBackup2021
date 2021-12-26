@@ -8425,3 +8425,14 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 33人聚会，全打了三针BNT，感染21例[f:0 ...</blockquote>
 一点都不奇怪。
 
+
+
+*****
+
+####  creymorgan  
+##### 2212#       发表于 2021-12-27 00:40
+
+[https://mp.weixin.qq.com/s?__biz ... 5392809066496000#rd](https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247486975&amp;idx=1&amp;sn=3d6932379b651344a2c448ac69ccae22&amp;chksm=c1b29684f6c51f924ff3a87baed08b4c11e03f0b4ee4b8fb79a1cbdf47467299e09e21de70bb&amp;scene=178&amp;cur_album_id=2065392809066496000#rd)
+
+你们以为新冠是超级流感，其实是超级水痘。
+
