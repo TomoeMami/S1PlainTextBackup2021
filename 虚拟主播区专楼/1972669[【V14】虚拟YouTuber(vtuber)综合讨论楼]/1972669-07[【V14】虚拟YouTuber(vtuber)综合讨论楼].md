@@ -7036,3 +7036,28 @@ chima在和谁一起直播？还是说是和自己的录音一起唱？
 
 重看一遍SSK视角，最后一盘一共丢了三个蓝龟壳，节目效果真是拉满了
 
+
+
+*****
+
+####  swordofsoul1  
+##### 9588#       发表于 2021-12-26 23:08
+
+<img src="https://img.saraba1st.com/forum/202112/26/230754vyzy33c6ce3yoc5v.png" referrerpolicy="no-referrer">
+
+<strong>269939002_982925049270653_2433235740207808654_n.png</strong> (219.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 23:07 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/230939uvlsg8jtvclxuguu.png" referrerpolicy="no-referrer">
+
+<strong>270106459_1617009181996588_1471492471650115627_n.png</strong> (136.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 23:09 上传
+
+绊爱的E看来是真材实料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

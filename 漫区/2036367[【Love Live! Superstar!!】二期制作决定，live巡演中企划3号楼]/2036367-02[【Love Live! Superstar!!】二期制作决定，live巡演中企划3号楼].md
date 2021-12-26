@@ -12457,3 +12457,58 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 
 宫城看点还挺大的吧？打铁回归家乡和鲤鱼生日
 
+
+
+*****
+
+####  chenflyyy  
+##### 2504#       发表于 2021-12-26 23:18
+
+第二弹封面投票结果，两立德和两迫害役是什么奇怪搭配<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2505#       发表于 2021-12-26 23:18
+
+<img src="https://img.saraba1st.com/forum/202112/26/231736ou595jus7j7tc9bj.png" referrerpolicy="no-referrer">
+
+<strong>95E303DE-903B-4BF2-85ED-8E724E83D9F9.png</strong> (696.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 23:17 上传
+
+好新鲜的搭配……
+
+*****
+
+####  player3960  
+##### 2506#       发表于 2021-12-26 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056473&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-26 23:18:31</a>
+好新鲜的搭配……</blockquote>双立德+双吃瘪役，估计这四位就是上次投票各团的第二位了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 2507#       发表于 2021-12-26 23:22
+
+新私服造型～这次是可恋糖～<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 2508#       发表于 2021-12-26 23:22
+
+草，是不是忽略了两立德就是四吃瘪了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2509#       发表于 2021-12-26 23:24
+
+香音善子步梦第二我信，我妮厨不敢相信妮可第二了
+

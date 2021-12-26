@@ -6795,3 +6795,55 @@ https://bbs.saraba1st.com/2 ...</blockquote>
 
 就是上一会儿然后又不行，上一会儿又不行搞你心态吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dragrass  
+##### 634#       发表于 2021-12-26 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056110&amp;ptid=2043948" target="_blank">kuhailz 发表于 2021-12-26 22:51</a>
+我这里能上了，是不是墙的管理部门学习了国产氪金手游的经验啊，把本来应该给你的东西按照概率抽给你，反而 ...</blockquote>
+能上一会，然后就断<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+买游戏够用的，但是浏览就不够了
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  zashou  
+##### 635#       发表于 2021-12-26 23:10
+
+ 本帖最后由 zashou 于 2021-12-26 23:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055609&amp;ptid=2043948" target="_blank">Kojimaru 发表于 2021-12-26 22:11</a>
+
+额，能再弱智点吗</blockquote>
+要用弱智来对抗弱智啊。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+毕竟对腾讯等诸厂来说，搞米哈游可比搞Steam合理多了。
+
+*****
+
+####  solarcool  
+##### 636#       发表于 2021-12-26 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055386&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-26 21:53</a>
+
+所以我说的有啥错了？也没新新闻，也没舅舅党，也没新的解决方案，就是看这两群傻逼在这秀智商呗， ...</blockquote>
+但你到现在也就是秀屁股啊，也没见你有发什么建设性的东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  solarcool  
+##### 637#       发表于 2021-12-26 23:17
+
+而且说实话，发海盗网站就叫建设性的话，那可能还不如三大妈搞steam下载分流有建设性<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  csgjjg  
+##### 638#       发表于 2021-12-26 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看来真的是要转战EPIC了
+

@@ -1642,3 +1642,74 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 一回合妖兰技能全开，第一只杀狐技能全给妖兰，第二只杀狐技能3， ...</blockquote>
 第一回合为什么杀狐要技能全给，妖兰自己技能全开不都溢出30np了，这用完技能后也没换后排上来放其他技能啊……另外靠对面打出30np太看脸了，曾经吃过对面3连暴击的表示还是按自己充能能补满的方向来留技能才稳。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85651#       发表于 2021-12-26 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055284&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-26 21:44</a>
+
+这个狐狸
+
+虽然1t就能送走，但是这个材料塞了一半的毒也太打击积极性了
+
+ ...</blockquote>
+1T没钟啊
+
+这种新材料用起来很快
+
+*****
+
+####  exiaexa  
+##### 85652#       发表于 2021-12-26 23:06
+
+翻页
+
+*****
+
+####  風卷豹  
+##### 85653#       发表于 2021-12-26 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056270&amp;ptid=1085254" target="_blank">芭德薇 发表于 2021-12-26 23:03</a>
+第一回合为什么杀狐要技能全给，妖兰自己技能全开不都溢出30np了，这用完技能后也没换后排上来放其他技能 ...</blockquote>
+哦那里的确是我搞错了，因为有把我狐狸没放出一技能就下去了，记混了。
+其实一面有蓝卡的话可以换奥博龙上来用1技能补伤害，就是对23面np留存要求更高了。
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  exiaexa  
+##### 85654#       发表于 2021-12-26 23:16
+
+ 本帖最后由 exiaexa 于 2021-12-26 23:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056271&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 23:04</a>
+
+1T没钟啊
+
+这种新材料用起来很快</blockquote>
+打得快就行了，两只小怪基本每只2个掉落，狐狸单体是9个，掉落是随机的，没钟单纯是你黑
+
+你1把21个+600w，我两把26个+1000w，真的可以赢
+
+但是你单打BOSS的话，两把就亏到坐公交，还没快多少
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1a不解释  
+##### 85655#       发表于 2021-12-26 23:16
+
+我两宝妖兰+20级黑杯1t都要前后各垫一刀，要是只有杀狐的卡就只能开战斗服加攻才能打死，然后这样的话2t就得把奥伯龙拿上来开一技能，太费脑子了。水杀生院只有一宝估计也不够
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  modkingr  
+##### 85656#       发表于 2021-12-26 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打急眼了直接去池子捞了一个二宝妖兰出来 这下稳稳的3T全收了
+
