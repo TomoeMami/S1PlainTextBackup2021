@@ -6904,3 +6904,82 @@ lena姨毕业前三天的live
 阿望原来也动了啊
 [https://www.youtube.com/watch?v= ... D%E3%82%8B%E3%81%A3](https://www.youtube.com/watch?v=MlV2ylbcwIg&amp;ab_channel=%E3%81%AE%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E3%81%AD%E3%82%8B%E3%81%A3)
 
+
+
+*****
+
+####  空き地卯木  
+##### 9572#       发表于 2021-12-26 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">什么护送KING 如今的KING能追上尊都不错了
+
+*****
+
+####  alcoholic1000  
+##### 9573#       发表于 2021-12-26 21:25
+
+ 本帖最后由 alcoholic1000 于 2021-12-26 21:27 编辑 
+
+ssk！！！
+
+任任女孩！拿下！<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhawp  
+##### 9574#       发表于 2021-12-26 21:26
+
+虹女之光熊猫人！
+
+*****
+
+####  FCCHua  
+##### 9575#       发表于 2021-12-26 21:27
+
+虹女终于拿冠军了！好啊！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 9576#       发表于 2021-12-26 21:28
+
+恭喜ssk，初代马车queen诞生，nrk进预选后的flag回收了，不知她这个笹kids怎么想<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 9577#       发表于 2021-12-26 21:31
+
+葛尊最后还是在一起了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LilighT  
+##### 9578#       发表于 2021-12-26 21:31
+
+哭了，三年的夙愿终于达成了，夺冠的瞬间我喊的比LPL夺冠声音还大<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+我永远喜欢任任女孩！
+
+*****
+
+####  Suny08  
+##### 9579#       发表于 2021-12-26 21:34
+
+是不是差个喷喷就任任大满贯了
+
+*****
+
+####  Porsche  
+##### 9580#       发表于 2021-12-26 21:37
+
+最后躲蓝龟壳真的可以称之为绝杀<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpbzpb123123  
+##### 9581#       发表于 2021-12-26 21:40
+
+最后蓝龟壳谁丢的啊 直接改变世界线
+恭喜任任女孩
+

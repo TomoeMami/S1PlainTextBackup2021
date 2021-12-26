@@ -1250,3 +1250,41 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 
 小怪掉什么呀？我现在妖兰1-2t打
 
+
+
+*****
+
+####  qixinno2  
+##### 85615#       发表于 2021-12-26 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054693&amp;ptid=1085254" target="_blank">沼蝇 发表于 2021-12-26 21:06</a>
+
+小怪掉什么呀？我现在妖兰1-2t打</blockquote>
+2.6的小钟和鳞粉
+
+*****
+
+####  不垃圾屌丝  
+##### 85616#       发表于 2021-12-26 21:29
+
+三分之一没有了，按这速度应该能扛到明天天亮吧
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rooarr  
+##### 85617#       发表于 2021-12-26 21:34
+
+有点不爽，3t打起来好慢，1t又觉得亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85618#       发表于 2021-12-26 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055130&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-26 21:34</a>
+
+有点不爽，3t打起来好慢，1t又觉得亏了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新我2ｔ　虽然我就刷了５把
+
