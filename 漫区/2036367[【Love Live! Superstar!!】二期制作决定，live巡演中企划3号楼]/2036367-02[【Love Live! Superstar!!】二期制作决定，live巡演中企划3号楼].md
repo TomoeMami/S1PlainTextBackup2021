@@ -12701,3 +12701,12 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 虹团雪菜没啥悬念
 星团算上中华炮那可可必然赢面很大
 
+
+
+*****
+
+####  stygian  
+##### 2528#       发表于 2021-12-27 06:54
+
+这几天一直在补水团和虹团录音室作品和生配信的档，看下来guilty kiss九月那场是最精彩的，特别是深海茧开始三首重歌连唱那段，反复看了好几遍，其他轻歌MEG带队重编曲也比录音室版效果好，就是逢田姐唱的比较拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

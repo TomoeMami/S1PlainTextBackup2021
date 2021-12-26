@@ -655,3 +655,22 @@ RT是俄罗素的新闻媒体
 
 就利用这个去申请绿卡怎样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  厨具战士  
+##### 67#       发表于 2021-12-27 06:44
+
+哎，老外都在说，中国人自己居然不知道，真是悲哀。
+
+*****
+
+####  wszweill  
+##### 68#       发表于 2021-12-27 06:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056656&amp;ptid=2044214" target="_blank">Cthululives 发表于 2021-12-26 10:33</a>
+
+我读书少别骗我，这么明显的钓鱼真的能钓上人吗…………</blockquote>
+比起疫苗藏芯片，5G传新冠，好歹是几万里以外的事情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
