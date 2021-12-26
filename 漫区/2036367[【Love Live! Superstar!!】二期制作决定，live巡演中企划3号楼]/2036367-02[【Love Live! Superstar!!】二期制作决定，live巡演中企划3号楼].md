@@ -11634,3 +11634,27 @@ pay抓着鲤鱼的手臂又滑落到手掌看着要握住了确滑落了，这�
 
 本来觉得考虑到平衡和千堇组最好，现在这个情况还是跟2TOP贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 2474#       发表于 2021-12-26 15:14
+
+话说昨天导演那个地方是不是地震了呀？怎么看着一直晃动呀？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没看到楼里有人提
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2475#       发表于 2021-12-26 15:16
+
+ 本帖最后由 普之舜舜 于 2021-12-26 15:17 编辑 
+
+<strong>昨天的录播</strong>
+
+「[MP4]ラブライブ!スーパースター!! Lie...s~ 福井公演 DAY1.mp4」[https://www.aliyundrive.com/s/xivmkXsav9m](https://www.aliyundrive.com/s/xivmkXsav9m)
+
+点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载极速在线查看，视频原画倍速播放。
+
