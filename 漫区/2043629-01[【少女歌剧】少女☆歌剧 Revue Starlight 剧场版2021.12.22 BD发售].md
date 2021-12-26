@@ -4119,3 +4119,18 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 
 之前也是做少歌MAD的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  凝灵  
+##### 314#       发表于 2021-12-26 23:35
+
+空虚，好久没有这种燃尽之后的空虚感了。
+
+感觉回到了十多年前，看动画的感觉。
+
+看完之后，跑各种讨论版，看大家的发言。
+
+还有点人的板块都去看了遍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

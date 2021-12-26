@@ -6847,3 +6847,35 @@ https://bbs.saraba1st.com/2 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看来真的是要转战EPIC了
 
+
+
+*****
+
+####  afer  
+##### 639#       发表于 2021-12-26 23:27
+
+ 本帖最后由 afer 于 2021-12-26 23:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056385&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-26 23:12</a>
+
+但你到现在也就是秀屁股啊，也没见你有发什么建设性的东西啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我就是草了一下秀屁股的啊，然后和上不去的水友交流交流，你自认是朋党自觉被X了当然不爽，到底也没看见你们哪里上不去，抱怨怎么上不去，体验如何，就看你们脱裤子还不许我脱裤子了？我就是脱裤子了，来击剑啊，你们特么这么众正盈朝的也没看你们去隔壁板块塔塔开，有种也别装文明人当岳不群啊。
+
+*****
+
+####  afer  
+##### 640#       发表于 2021-12-26 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056285&amp;ptid=2043948" target="_blank">dragrass 发表于 2021-12-26 23:05</a>
+
+能上一会，然后就断
+
+买游戏够用的，但是浏览就不够了</blockquote>
+我昨天发现支付宝转跳也不好使，倒是微信一直很好使，这玩意支持微信之后微信一直比支付宝速度快倒是真的
+
+*****
+
+####  PPB3008  
+##### 641#       发表于 2021-12-26 23:39
+
+问下 现在你们一般可以一次浏览多久
+
