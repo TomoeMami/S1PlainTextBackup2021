@@ -268,3 +268,17 @@ fate吧为啥逢月必反了</blockquote>
 本次活动太公回忆说女娲把守墓状态的三妖叫出来消灭商朝，但后续妲己不顾使命进一步诱惑纣王，脱离原定指 ...</blockquote>
 轩辕坟那个巨人是太阳一样，大本这是天照级吧
 
+
+
+*****
+
+####  Lokad  
+##### 85524#       发表于 2021-12-26 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051593&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 16:05</a>
+
+轩辕坟那个巨人是太阳一样，大本这是天照级吧</blockquote>
+我说的是金毛白面啦，ccc里说金毛白面是天照恶的一面。
+
+反正玉藻、金毛白面都是从天照那分出来的就是了。
+

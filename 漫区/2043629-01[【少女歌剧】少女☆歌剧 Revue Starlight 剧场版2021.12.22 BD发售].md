@@ -3753,3 +3753,25 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 283#       发表于 2021-12-26 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051464&amp;ptid=2043629" target="_blank">saverok 发表于 2021-12-26 15:53</a>
+看完了  恋女士这也太重女了，露女士一比算个啥
+
+难怪对露女士的进攻毫无感觉 ...</blockquote>
+露女士一直是内因吧，只是刚好赖上了颓废期的恋哥哥而已。剧场版追着光追杀太草了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  VT118  
+##### 284#       发表于 2021-12-26 16:40
+
+痞子懂个屁的 终   “再见了 所有的补胎烧酒”<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
