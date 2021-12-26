@@ -15901,3 +15901,15 @@ beast IV＋beast V=九尾</blockquote>
 不还是因为基本都默认这次剧情是樱井写的。要是蘑菇就是，大家不要急，等这次剧情出完了再喷不迟。再不济还 ...</blockquote>
 说来好笑，隔壁看到一个樱井光ptsd末期患者。自己写的一些狗屁不通，瞎ky的回复被人点踩了还假想成樱井光粉丝点的踩，樱井光有个屁的粉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 85493#       发表于 2021-12-26 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049148&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-26 11:44</a>
+
+😂虽然知道没几节了  但怎么就这么直接打兽了  打之前还报菜名一样全员说一堆口号  好奇怪哦这打完肯定要出 ...</blockquote>
+突出一个对面硬开形态，搞不好真就交代在这里了，265是别的BOSS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

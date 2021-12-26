@@ -6012,3 +6012,47 @@ g*w有生之年能拆么。。</blockquote>
 
 今天努力刷新了好几次一直是-118<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 561#       发表于 2021-12-26 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049315&amp;ptid=2043948" target="_blank">iqbsh 发表于 2021-12-25 22:01</a>
+
+但问题是我联通 不挂代理就是打不开</blockquote>
+截图的时候建议给用户名之类的打码
+
+*****
+
+####  iqbsh  
+##### 562#       发表于 2021-12-26 12:32
+
+ 本帖最后由 iqbsh 于 2021-12-26 12:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049391&amp;ptid=2043948" target="_blank">tillnight 发表于 2021-12-26 12:08</a>
+
+现在是现在，别人说的是前两年。你觉得为什么现在上不去了会有人发帖？两年前就上不去了会一直没人说？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">一直是这样 不是这两天 这两年我都是买个岛风狗去网页上买游戏 我又没法让时光倒转去以前测网页能不能打开和楼上一样有时候家里打不开单位能打开 单位能打开家里打不开 别提多难受
+
+*****
+
+####  iqbsh  
+##### 563#       发表于 2021-12-26 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049565&amp;ptid=2043948" target="_blank">920619lqy 发表于 2021-12-26 12:26</a>
+
+截图的时候建议给用户名之类的打码</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">名字月月换 无所谓啦
+
+*****
+
+####  tillnight  
+##### 564#       发表于 2021-12-26 12:37
+
+<blockquote>iqbsh 发表于 2021-12-26 12:32
+一直是这样 不是这两天 这两年我都是买个岛风狗去网页上买游戏 我又没法让时光倒转去以前测网页能 ...</blockquote>
+所以你不在大多数中国人的位面有什么问题？你觉得为什么这贴这么高楼？本来就一直上不去，只是因为这两天大家都开始用steam了萌新们问题真多？
+
+认真的说steam商店以前就一直上不去的请自己检查自己的电脑有没有装什么奇奇怪怪的安全软件/路由器有什么问题/前几年自己设置的dns配置没有解除之类的常见问题，或者人是否处于某些网络管理更严格的特殊地区。不然跑出来一个难道你们一直上得去steam只能被反嘲回去不在本位面了。
+

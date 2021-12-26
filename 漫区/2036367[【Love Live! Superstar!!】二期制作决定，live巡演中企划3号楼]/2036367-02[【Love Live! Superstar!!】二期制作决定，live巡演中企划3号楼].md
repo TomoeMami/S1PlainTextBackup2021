@@ -11568,3 +11568,17 @@ pay抓着鲤鱼的手臂又滑落到手掌看着要握住了确滑落了，这�
 
 恋恋那个玩偶好像到现在还没卖光....<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2470#       发表于 2021-12-26 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046498&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-26 00:18</a>
+
+看了一眼5CH拉板讨论..
+
+基本就是说这种前期扮黑脸一本正经的反差萌学生会长人设已经腻了（絵里とダイヤで ...</blockquote>
+本来恋还能走彻底一本正经的路线，结果还是被花田拿去玩女同梗了。而且雪菜也罢外冷内热扩展的人设扩展了很多，我现在很好奇倒时候栞子上位后又是一个学生会长不知道要怎么弄，这是吃了业界内卷的亏。
+
