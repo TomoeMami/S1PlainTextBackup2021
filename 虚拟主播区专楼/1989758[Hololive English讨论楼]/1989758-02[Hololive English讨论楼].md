@@ -628,3 +628,12 @@ mumei过圣诞一周不播
 
 明年年初会有ametori cover曲<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimmy1996  
+##### 1562#       发表于 2021-12-26 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">Ame今天还会有一首圣诞歌曲cover
+

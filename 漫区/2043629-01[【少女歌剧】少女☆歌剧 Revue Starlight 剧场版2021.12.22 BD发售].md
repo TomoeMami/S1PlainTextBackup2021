@@ -3397,3 +3397,15 @@ maya库洛：库洛子的小虎牙太棒了。。。<img src="https://static.sar
 
 爱城华恋这个角色的弧光非常细腻漫长，但不易察觉。tv第一集和最后一集开场词的微妙变化，还有新剧场版结尾华恋只叫ひかり而没有酱，这种很细微的地方都是有设计的。华恋小时候让险些放弃的小光重生了，光恋一体的命运开始转动，最后也在东京塔断裂那一刻结束，光与恋成为了独立的人。
 
+
+
+*****
+
+####  ardito  
+##### 252#       发表于 2021-12-26 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54046490&amp;ptid=2043629" target="_blank">hqtkkb 发表于 2021-12-26 00:16</a>
+
+大概我个人确实不是很喜欢“解开心结，相互理解”这样的剧情套路，对比豪华的演出制作，剧情这块感觉有点无 ...</blockquote>
+手游里后来阿蕉也没打过maya，tv再演里次次输那个天堂真矢多半得理解成吸老婆没吸够属性值不足的一人star孤星maya，那自然是孤不过阿蕉了。而且在没有maya的削剧世界线，首席是克洛，蕉是次席，所以其实连克洛也打不过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
