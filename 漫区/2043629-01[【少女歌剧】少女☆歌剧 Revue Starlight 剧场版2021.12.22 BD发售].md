@@ -3818,3 +3818,23 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 
 不过剧场版迷宫组还是不错的，这俩人的贴贴我也能get到点了，这对我觉得没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 288#       发表于 2021-12-26 18:09
+
+剧场版的感受给我的感觉和eva还真没啥共同的地方吧，看了两遍没看出来有人刷再见全部的舞台少女的意义，取了痞子再见是在此相见的意思？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Tehebe  
+##### 289#       发表于 2021-12-26 18:21
+
+老夫老妻们一定要在毕业前一定要打一架相互确认下心意么，这燃烧的青春感好棒啊，爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

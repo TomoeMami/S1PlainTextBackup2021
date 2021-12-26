@@ -675,3 +675,140 @@ Screenshot_2021-12-26-17-30-09-29.jpg
 有，掉指环神酒和小钟，尤其是小钟疑似是最后两只才掉</blockquote>
 前面也掉的，抱大佬5宝大腿两回合四小怪也能出两个小钟
 
+
+
+*****
+
+####  v22325  
+##### 85564#       发表于 2021-12-26 18:05
+
+ 本帖最后由 v22325 于 2021-12-26 18:06 编辑 
+
+一个小时不到三百万 而且大多数都是3T刷素材  这能打到明天早上了吧？
+
+*****
+
+####  KOBI  
+##### 85565#       发表于 2021-12-26 18:06
+
+ 本帖最后由 KOBI 于 2021-12-26 18:08 编辑 
+
+师叔在这最后（？）的本里发光发热啊
+
+1T3杀确实爽。。就是不太好找
+
+*****
+
+####  gpx234mqx  
+##### 85566#       发表于 2021-12-26 18:06
+
+ 本帖最后由 gpx234mqx 于 2021-12-26 18:12 编辑 
+
+找到最合适的了
+
+院院宝具三级发，全部打死，稳定高效
+
+都不是人
+
+DB920905-BE8F-438F-BFDD-3DAC827A2D12.png
+(1.23 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/180651f4bng6tjhx6yztmb.png" referrerpolicy="no-referrer">
+
+5A4D4964-62F7-4EB2-A6A8-93AC20D129FF.png
+(761.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/181155us2v16obmvu1st1v.png" referrerpolicy="no-referrer">
+
+EE0DE2BF-7165-442C-86ED-83F38D37C3D8.png
+(804.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/181155el899jll33ab3g9p.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85567#       发表于 2021-12-26 18:07
+
+按照这个速度，狐狸活不过今晚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 85568#       发表于 2021-12-26 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052703&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-26 18:05</a>
+
+一个小时不到三百万 而且大多数都是3T刷素材  这能打到明天早上了吧？</blockquote>
+今天这个想定是打到明天中午的
+
+*****
+
+####  qb0079  
+##### 85569#       发表于 2021-12-26 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">妖兰3连冲的真舒服，只有一次被对面2晕了2t翻车了
+
+*****
+
+####  vacuumsword  
+##### 85570#       发表于 2021-12-26 18:16
+
+太公望自buff+奥伯龙宝威不够杀枪阶小怪的么
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zakki  
+##### 85571#       发表于 2021-12-26 18:17
+
+打的太麻烦了，还要3t。今晚有可能打死吗，想看剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 85572#       发表于 2021-12-26 18:18
+
+用伊吹了，就是怕2t暴毙，我是说对面......
+
+*****
+
+####  v22325  
+##### 85573#       发表于 2021-12-26 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">想给妖兰升宝具！
+
+*****
+
+####  KOBI  
+##### 85574#       发表于 2021-12-26 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052806&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-12-26 18:16</a>
+
+太公望自buff+奥伯龙宝威不够杀枪阶小怪的么
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+1宝的话会差一点点，3000-5000的线吧，偶尔也能直接打死
+
+*****
+
+####  miro112233  
+##### 85575#       发表于 2021-12-26 18:23
+
+有时候进本会卡住，加载不出人类恶生殖的动画<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+那段就不能只初见放一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
