@@ -5880,3 +5880,102 @@ g*w有生之年能拆么。。</blockquote>
 
 —— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  alleriawr9  
+##### 547#       发表于 2021-12-26 11:43
+
+真想玩游戏总是有办法的，狗洞封了我都不信我玩不到游戏，但死的是国产单机
+
+*****
+
+####  carfisher  
+##### 548#       发表于 2021-12-26 11:44
+
+加速！冲刺到底！
+
+*****
+
+####  iqbsh  
+##### 549#       发表于 2021-12-26 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不挂代理常年连商店都打不开 第一次用steam？
+
+*****
+
+####  weige  
+##### 550#       发表于 2021-12-26 11:47
+
+昨天不开加速器dota都玩不了
+
+*****
+
+####  饮度  
+##### 551#       发表于 2021-12-26 11:50
+
+<blockquote>iqbsh 发表于 2021-12-26 11:47
+不挂代理常年连商店都打不开 第一次用steam？</blockquote>
+不知道您这两年用的那个位面的steam<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iqbsh  
+##### 552#       发表于 2021-12-26 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049209&amp;ptid=2043948" target="_blank">饮度 发表于 2021-12-26 11:50</a>
+
+不知道您这两年用的那个位面的steam</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我这个位面的steam不挂代理打开商店页面的几率是50% 打开创意工坊的几率是0%
+
+*****
+
+####  57042711  
+##### 553#       发表于 2021-12-26 11:54
+
+湖北荆门这边是时好时坏  下载一切正常···刚才商店好的时候我甚至进去买了东西付款什么的也没有问题，这次真的很神秘了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 554#       发表于 2021-12-26 11:56
+
+<blockquote>iqbsh 发表于 2021-12-26 11:51
+我这个位面的steam不挂代理打开商店页面的几率是50% 打开创意工坊的几率是0% ...</blockquote>
+创意工坊本来就是和社区一起的，以为别人不懂是在墙外吗。商店打不开只能说你和大多数中国人一直不在这个位面or你的运营商是移动(铁通)二选一。
+
+*****
+
+####  iqbsh  
+##### 555#       发表于 2021-12-26 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049275&amp;ptid=2043948" target="_blank">tillnight 发表于 2021-12-26 11:56</a>
+
+创意工坊本来就是和社区一起的，以为别人不懂是在墙外吗。商店打不开只能说你和大多数中国人一直不在这个 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/26/120002cll7bhnp7hhosjlp.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211226115944.png</strong> (81.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/120055luuejzu7ur7zckec.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211226120046.png</strong> (42.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 12:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">但问题是我联通 不挂代理就是打不开
+
+*****
+
+####  soranoguiji  
+##### 556#       发表于 2021-12-26 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 三天了都只能开加速器进商店，上头是不是学聪明了不给你一刀切而是慢慢折磨你
+

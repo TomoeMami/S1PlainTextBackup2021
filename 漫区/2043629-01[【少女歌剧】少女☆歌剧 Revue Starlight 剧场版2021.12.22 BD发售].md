@@ -3523,3 +3523,16 @@ maya库洛：库洛子的小虎牙太棒了。。。<img src="https://static.sar
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  wuliaozheX  
+##### 262#       发表于 2021-12-26 12:01
+
+maya每次入戏都是最快的，皆杀纯那直到最后都没入戏，让蕉哥哥很失望，香子跟恋一样还以为要演starlight蕉：当初不是你们说不要再演的吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+不过这么一想恋哥哥一下就逼格高起来了，她十二年来一直在戏里，换隔壁芙丽莲就是睡觉都开着魔力压制<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+蕉哥一开头皆杀没把恋拉进去也就是她还没从starlight退场的意思是吧
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -15867,3 +15867,37 @@ beast IV＋beast V=九尾<img src="https://static.saraba1st.com/image/smiley/fac
 beast IV＋beast V=九尾</blockquote>
 就是4+5=9啊，我不是一直这么说吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 85489#       发表于 2021-12-26 11:44
+
+😂虽然知道没几节了  但怎么就这么直接打兽了  打之前还报菜名一样全员说一堆口号  好奇怪哦这打完肯定要出问题吧
+
+*****
+
+####  rzxa  
+##### 85490#       发表于 2021-12-26 11:47
+
+狐狸现在是六尾
+
+*****
+
+####  kuarwbwe  
+##### 85491#       发表于 2021-12-26 11:51
+
+不还是因为基本都默认这次剧情是樱井写的。要是蘑菇就是，大家不要急，等这次剧情出完了再喷不迟。再不济还能甩锅给别人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然，fate吧除外，毕竟是个知名的逢月必反的地。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85492#       发表于 2021-12-26 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049221&amp;ptid=1085254" target="_blank">kuarwbwe 发表于 2021-12-26 11:51</a>
+不还是因为基本都默认这次剧情是樱井写的。要是蘑菇就是，大家不要急，等这次剧情出完了再喷不迟。再不济还 ...</blockquote>
+说来好笑，隔壁看到一个樱井光ptsd末期患者。自己写的一些狗屁不通，瞎ky的回复被人点踩了还假想成樱井光粉丝点的踩，樱井光有个屁的粉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
