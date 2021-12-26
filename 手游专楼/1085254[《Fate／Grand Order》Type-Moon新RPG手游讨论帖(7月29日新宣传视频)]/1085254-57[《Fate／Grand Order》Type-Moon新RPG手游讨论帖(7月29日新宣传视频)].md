@@ -15969,3 +15969,36 @@ beast IV＋beast V=九尾</blockquote>
 本次活动太公对妲己的回 ...</blockquote>
 希望狐狸兔子能一并解决了吧，再开个异闻带解决妲己，不说太公了，我都受不了（笑哭）
 
+
+
+*****
+
+####  里村紅葉  
+##### 85498#       发表于 2021-12-26 13:26
+
+对兽第二宝具有10%的效果所以特攻量就是10%吗，这不是本来就没什么用吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 85499#       发表于 2021-12-26 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049062&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-26 11:34</a>
+
+越来越怪了，名字是异闻带：beast IV，怎么这么着重强调这个beast IV，总感觉越来越像我之前说的那样，柯杨 ...</blockquote>
+打完兔子后，I消失，变成beast V<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（BLEACH零刃牙密并感）
+
+*****
+
+####  gpx234mqx  
+##### 85500#       发表于 2021-12-26 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54048374&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-26 10:12</a>
+
+另外我估计杀兔是认识或者知道姜子牙的，否则不会没来由说他是“宫廷小丑”（可能是我想多了，不过“道化 ...</blockquote>
+是这样的，冰房子融化的狐狸请求兔子让它住一晚，但是狐狸进门就把兔子敢出树屋霸占了房子
+
+我怀疑二期就是妲己现身
+
