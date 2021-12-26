@@ -12627,3 +12627,16 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 星这边是挺符合第一档top2人气的，记得虹那边ksks人气不是挺高的吗，p站图最多，而且应该会有不少人投四灰 ...</blockquote>
 想集齐四灰毛的只有国内拉拉人在想，日本人从一开始就没这想法。
 
+
+
+*****
+
+####  chenflyyy  
+##### 2522#       发表于 2021-12-27 00:03
+
+ 本帖最后由 chenflyyy 于 2021-12-27 00:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056829&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2021-12-26 23:48</a>
+有没有懂管人的老哥说说这位在日本什么人气</blockquote>
+退坑很久了对现在人气不太理解，彩虹社的一期生，最早的一批直播势管人，同接sc收入在当初的彩虹社内也就中游水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过开过2000人场的个人live，单曲销量记得有个6，7千，放到声优应该算不错了
+

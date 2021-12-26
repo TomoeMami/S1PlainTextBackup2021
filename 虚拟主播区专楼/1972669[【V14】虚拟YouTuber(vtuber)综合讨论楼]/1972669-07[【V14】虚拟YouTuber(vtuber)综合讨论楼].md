@@ -7061,3 +7061,16 @@ chima在和谁一起直播？还是说是和自己的录音一起唱？
 
 绊爱的E看来是真材实料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  noHentai  
+##### 9589#       发表于 2021-12-27 00:12
+
+今年大概就是这样了，总的来说是木口大赢特赢的一年。
+
+顺便星街那张专还有8000+的配信销量，属实是管人最强solo了。
+<img src="https://p.sda1.dev/3/da9e33371ab27eb20280cc744d6b05fa/QQ图片20211227000951.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/be8e24765140d3c9fc29aa24879a7802/QQ图片20211227001059.png" referrerpolicy="no-referrer">
+

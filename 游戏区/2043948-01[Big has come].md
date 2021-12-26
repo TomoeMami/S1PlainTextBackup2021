@@ -6981,3 +6981,77 @@ https://bbs.saraba1st.com/2 ...</blockquote>
 说个有趣的事 若干年前刚接触pixiv和steam我都以为要加速 一直都是开着上的 就来才知道不需要
 几年后p无了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PPB3008  
+##### 652#       发表于 2021-12-27 00:04
+
+<img src="https://img.saraba1st.com/forum/202112/27/000059krfm4bloloz4t4vj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211227000042.png</strong> (5.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 00:00 上传
+
+<img src="https://img.saraba1st.com/forum/202112/27/000100yloo2feom6x1aago.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211227000035.png</strong> (13.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 00:01 上传
+
+我这边11点的时候打开steam=&gt;访问正常=&gt;打开部分商品页面=&gt;108
+
+出现了两次，然后就彻底正常了，到现在快一个多小时了没任何问题....
+
+看了一下节点被切到香港akamai去了，而且一直没有被切到别的地方所以十分丝滑...
+
+*****
+
+####  afer  
+##### 653#       发表于 2021-12-27 00:10
+
+ 本帖最后由 afer 于 2021-12-27 00:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056928&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-26 23:59</a>
+
+亏你能这么理直气壮，不是你要装文明人，装建设性，自己以为正义使者，其实也就是个秀屁股的，还孜孜不倦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我骂你们我也没骂建设性的或者抱怨的网友，也没不站队就扣帽子啊，确实没啥两样啊，我也不乐意学你们分门派啊，我操的就是狗东大师和魔怔觉青，你们一上来就给我来个第三方阵营的帽子那我就如你们所愿稳当教主好了，说人话的能交流的我就说人话，遇到鬼我就说鬼话，说明我儒雅随和。
+
+*****
+
+####  afer  
+##### 654#       发表于 2021-12-27 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056964&amp;ptid=2043948" target="_blank">fuochai 发表于 2021-12-27 00:01</a>
+
+说个有趣的事 若干年前刚接触pixiv和steam我都以为要加速 一直都是开着上的 就来才知道不需要
+
+几年后p无了[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">说个有趣的事，当年没墙屎绿色的steam也上不去，而且这玩意当初就是个纯社交流氓软件，害得CSS和DODS买了正版也上不去。
+
+*****
+
+####  afer  
+##### 655#       发表于 2021-12-27 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056992&amp;ptid=2043948" target="_blank">PPB3008 发表于 2021-12-27 00:04</a>
+
+我这边11点的时候打开steam=&gt;访问正常=&gt;打开部分商品页面=&gt;108
+
+出现了两次，然后就彻底正常了，到现在快一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">现在看来暴雷集中在日本那个节点上，肯定是墙乐啥东西
+
+*****
+
+####  solarcool  
+##### 656#       发表于 2021-12-27 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057053&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-27 00:10</a>
+
+我骂你们我也没骂建设性的或者抱怨的网友，也没不站队就扣帽子啊，确实没啥两样啊，我操的就是狗 ...</blockquote>
+讲道理哈，我也没骂抱怨网络和上不去的。我骂狗洞大师不行？你要掺和进来一脚，那你被反击不是再正常不过了？你既然划了两个阵营，还都要骂，那被当成第三阵营真有什么奇怪的地方么？你要是纯交流连接状况那我突然来骂你那确实是你有理<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

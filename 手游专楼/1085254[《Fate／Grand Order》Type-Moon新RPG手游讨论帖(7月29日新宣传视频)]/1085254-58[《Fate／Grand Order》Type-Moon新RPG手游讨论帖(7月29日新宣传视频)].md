@@ -1732,3 +1732,12 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 打急眼了直接去池子捞了一个二宝妖兰出来 这下稳稳的3T全收了</blockquote>
 YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eden_hazard  
+##### 85659#       发表于 2021-12-27 00:18
+
+我也中了叶良树的奸计，花了360石妖兰二宝，3T真是爽
+
