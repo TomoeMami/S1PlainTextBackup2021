@@ -7094,3 +7094,68 @@ chima在和谁一起直播？还是说是和自己的录音一起唱？
 
 oreapo居然在双排，明明giru也在播apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 9592#       发表于 2021-12-27 02:24
+
+睡前瞄了眼，en虹男都能7k了
+
+虹女还是毕业吧
+
+*****
+
+####  443421870  
+##### 9593#       发表于 2021-12-27 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057958&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-12-27 02:24:11</a>
+睡前瞄了眼，en虹男都能7k了
+
+虹女还是毕业吧</blockquote>别尬黑，国内有很多梦女翻出去看了，不知道😖为啥在国内也爆火了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  本间日阳  
+##### 9594#       发表于 2021-12-27 02:38
+
+我之前早上八点在微博搜vox，实时排序，发现几分钟就有一条微博
+
+*****
+
+####  poipanchao  
+##### 9595#       发表于 2021-12-27 02:41
+
+ 本帖最后由 poipanchao 于 2021-12-27 02:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057985&amp;ptid=1972669" target="_blank">443421870 发表于 2021-12-27 02:38</a>
+
+别尬黑，国内有很多梦女翻出去看了，不知道😖为啥在国内也爆火了
+
+  -- 来自 有消息提醒的 Stage1官方 Andr ...</blockquote>
+我是不觉得靠国内同接能顶到7K……
+
+syl，去看了下楼友吹过的vow
+这声音确实有点东西啊
+不排不行
+
+*****
+
+####  purdre  
+##### 9596#       发表于 2021-12-27 02:52
+
+ 本帖最后由 purdre 于 2021-12-27 02:53 编辑 
+
+欧洲东南亚流量吧，同接高的基本都在东南亚+欧洲时间。
+
+NA时间？2000同接走起。美国人不行。
+
+*****
+
+####  撕叁  
+##### 9597#       发表于 2021-12-27 05:56
+
+同接最强的是mysta，不过看前世好像精神状态一直很那啥，前世毕业的时候好多粉丝怕他是不是想不开要remake，这什么大不列颠menhera男<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

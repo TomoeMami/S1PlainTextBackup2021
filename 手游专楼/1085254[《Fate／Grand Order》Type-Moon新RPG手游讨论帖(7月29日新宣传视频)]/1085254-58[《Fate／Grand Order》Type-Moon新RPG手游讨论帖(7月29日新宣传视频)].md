@@ -1757,3 +1757,29 @@ YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.
 
 离解锁120级还差38w羁绊，可惜明天要上班，得睡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  katun  
+##### 85662#       发表于 2021-12-27 01:55
+
+<img src="https://img.saraba1st.com/forum/202112/27/015019dewrgttwti55hrpw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5923EA4E-9B6A-4B5B-ADE1-A202AF32DA1F.jpeg</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 01:50 上传
+
+伊吹换人打了快100把实在是要吐了，水院又只有一宝，推特上抄来了个不换人的3T配置，试了几把感觉挺稳的，太公望2技能封印技能不吃恐怖，前2T给闪避别让他被打死，然后随便补几刀暴击伤害就够了，有2宝以上的可以试试看
+
+*****
+
+####  LMH  
+##### 85663#       发表于 2021-12-27 05:56
+
+叶良树计划通了，刷了100根柱子后上头进卡池追了妖兰满宝，这妖兰的宝具动画真是能看到关服都看不腻<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
