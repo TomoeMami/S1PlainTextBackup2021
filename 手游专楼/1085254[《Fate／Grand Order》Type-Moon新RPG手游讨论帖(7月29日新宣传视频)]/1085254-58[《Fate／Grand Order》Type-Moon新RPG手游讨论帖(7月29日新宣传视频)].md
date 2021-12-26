@@ -604,3 +604,74 @@ Screenshot_2021-12-26-17-30-09-29.jpg
 
 有不换人的3T打法吗，没有的我话我继续伊吹了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 85556#       发表于 2021-12-26 17:45
+
+试了一圈妖兰杀生院最后还是伊吹2t无脑..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 85557#       发表于 2021-12-26 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052492&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-26 17:42</a>
+
+有不换人的3T打法吗，没有的我话我继续伊吹了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">妖兰3连
+
+*****
+
+####  katun  
+##### 85558#       发表于 2021-12-26 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052522&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-26 17:46</a>
+
+妖兰3连</blockquote>
+妖兰不是要双狐+奥吗，还是我打法不对
+
+*****
+
+####  不垃圾屌丝  
+##### 85559#       发表于 2021-12-26 17:50
+
+狼王一发入魂，前面垫个太公望宝具收杂兵，不贪后面杂鱼掉落了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  miro112233  
+##### 85560#       发表于 2021-12-26 17:50
+
+退出来一看妖精粉只剩十几个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还好前几轮都是我不要的材料打了一管体力就歇了
+
+
+
+*****
+
+####  qixinno2  
+##### 85561#       发表于 2021-12-26 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">九发单抽出的二宝水院有地方用了
+
+*****
+
+####  黑上シグマ  
+##### 85562#       发表于 2021-12-26 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这次绊点那么美味，上15绊CBA太亏，所以狼王战术在我这里是不存在的
+
+*****
+
+####  芭德薇  
+##### 85563#       发表于 2021-12-26 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052384&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-26 17:31</a>
+
+有，掉指环神酒和小钟，尤其是小钟疑似是最后两只才掉</blockquote>
+前面也掉的，抱大佬5宝大腿两回合四小怪也能出两个小钟
+
