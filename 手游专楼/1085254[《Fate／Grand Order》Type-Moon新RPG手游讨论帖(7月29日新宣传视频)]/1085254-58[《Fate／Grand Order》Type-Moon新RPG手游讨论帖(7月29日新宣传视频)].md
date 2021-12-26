@@ -886,3 +886,65 @@ EE0DE2BF-7165-442C-86ED-83F38D37C3D8.png
 这就是欧皇吗 羡了羡了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么多年唯一欧的一次 关键欧的没啥意义
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85583#       发表于 2021-12-26 18:46
+
+ 本帖最后由 gpx234mqx 于 2021-12-26 18:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052832&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-26 18:18</a>
+
+想给妖兰升宝具！</blockquote>
+推上都开始换院院术呆呆的队伍了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+比妖蓝稳
+
+1宝就行
+
+屏幕截图 2021-12-26 185319.png
+(151.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/185340hteeueap7tbattf3.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 85584#       发表于 2021-12-26 18:49
+
+顶配黑杯小芬奇C狐换人外加多看几个C呆宝具能3T...
+
+百级三宝大概率4T...
+
+*****
+
+####  khxooo  
+##### 85585#       发表于 2021-12-26 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052828&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-26 18:18</a>
+用伊吹了，就是怕2t暴毙，我是说对面......</blockquote>
+伊吹几宝？如果1宝求个队伍。
+
+*****
+
+####  gpx234mqx  
+##### 85586#       发表于 2021-12-26 18:57
+
+小钟太美味了
+
+半分钟3个
+
+720DD5FD-39A1-46BC-8E4E-53445295DBEF.png
+(805.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/185748xmutw4we5t57eoui.png" referrerpolicy="no-referrer">
+

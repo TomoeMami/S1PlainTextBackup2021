@@ -3859,3 +3859,46 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 剧场版的感受给我的感觉和eva还真没啥共同的地方吧，看了两遍没看出来有人刷再见全部的舞台少女的意义，取 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">大概是上次总集篇有几个大出血的镜头，变成字面意思上的“死与新生”了
 
+
+
+*****
+
+####  蓝川澈  
+##### 292#       发表于 2021-12-26 18:45
+
+这小萝莉有个护食的小动作超可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"><img src="https://pt.sjtu.edu.cn/picbucket/85152_164051552070.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 293#       发表于 2021-12-26 18:51
+
+Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的贺图也有人整活<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+1.jpg
+(97.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/184816z3f20xk8lwxfddwd.jpg" referrerpolicy="no-referrer">
+
+2.jpg
+(137.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/184823fh6l668d4uv9n4yd.jpg" referrerpolicy="no-referrer">
+
+3.jpg
+(179.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/185002yb77z2esebzbew7w.jpg" referrerpolicy="no-referrer">
+
