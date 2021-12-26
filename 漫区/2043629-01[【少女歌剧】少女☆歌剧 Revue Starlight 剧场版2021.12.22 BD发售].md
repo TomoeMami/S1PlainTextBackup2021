@@ -4191,3 +4191,17 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 
 蕉输了，但也赢麻了，甚至输了比赢了赢得更麻，这种扭曲无解boss味属实太正了。
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 320#       发表于 2021-12-27 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057338&amp;ptid=2043629" target="_blank">阿卡拉兰斯 发表于 2021-12-27 00:36</a>
+
+转自隔壁论坛</blockquote>
+怎么回事 咋没有杭州啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+这是在哪个论坛看到的 NGA？
+

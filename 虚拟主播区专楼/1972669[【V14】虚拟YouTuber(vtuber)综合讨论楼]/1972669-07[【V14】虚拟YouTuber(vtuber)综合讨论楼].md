@@ -7083,3 +7083,14 @@ chima在和谁一起直播？还是说是和自己的录音一起唱？
 
 加油，再卖个一千超了彩虹那张拼盘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 9591#       发表于 2021-12-27 01:06
+
+ 本帖最后由 FCCHua 于 2021-12-27 01:07 编辑 
+
+oreapo居然在双排，明明giru也在播apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

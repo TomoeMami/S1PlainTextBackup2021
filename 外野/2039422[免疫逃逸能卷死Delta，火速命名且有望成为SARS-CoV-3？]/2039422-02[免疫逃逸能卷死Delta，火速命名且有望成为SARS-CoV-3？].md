@@ -8456,3 +8456,46 @@ https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247486975&amp;idx=1&a
 精液有病毒 这明显影响下一代健康吧 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 裸猿准备绝育了？
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2215#       发表于 2021-12-27 01:05
+
+ 本帖最后由 Alexmacau8 于 2021-12-27 01:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057578&amp;ptid=2039422" target="_blank">nkscorpio 发表于 2021-12-27 01:02</a>
+
+精液有病毒 这明显影响下一代健康吧 
+
+裸猿准备绝育了？</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是活病毒，只是病毒RNA  片段碎片，可以通过PCR检出。类似的论文去年就有了，被选择性无视而已。
+
+*****
+
+####  Kanoya  
+##### 2216#       发表于 2021-12-27 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057448&amp;ptid=2039422" target="_blank">yuandi0120 发表于 2021-12-27 00:48</a>
+
+要怎么样的脑回路才能想出给J液做核酸啊</blockquote>
+下一步就是眼球颜色变红，道德底线下降，以及性欲超级加倍了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月出皎兮  
+##### 2217#       发表于 2021-12-27 01:07
+
+偏个题，今年冬天北美东岸异常的温暖啊，相比之下西岸的西雅图和大温被冻成狗了，往年北美天气也是这样的嘛？
+
+*****
+
+####  creymorgan  
+##### 2218#       发表于 2021-12-27 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057599&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-27 01:05</a>
+
+不是活病毒，只是病毒RNA  片段碎片，可以通过PCR检出。类似的论文去年就有了，被选择性无视而已 ...</blockquote>
+前面有超过31天在组织中检出sgRNA的，表明病毒仍存在复制。
+

@@ -7174,3 +7174,32 @@ oh，真的是这样的逻辑吗？那别人只是说能用加速器访问，怎
 那我是真好奇你有什么对策，说实话我只想得到推荐别人通道好的小鸡加速器之类，以前过于wall的贴子里我也 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">前面推人uu您也是瞎，推人重启换ip您也是瞎，您推个小鸡都能吹，那我推uu和别人聊最近啥体验我也算有方案，您tm在这帖子里说了个寂寞？从头就是你回复我，既然您嫌我回您，那我不回您了，滚草。
 
+
+
+*****
+
+####  SpicyHam  
+##### 667#       发表于 2021-12-27 01:06
+
+好顶支持！
+
+*****
+
+####  solarcool  
+##### 668#       发表于 2021-12-27 01:07
+
+ 本帖最后由 solarcool 于 2021-12-27 01:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057534&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-27 00:58</a>
+
+前面推人uu您也是瞎，推人重启换ip您也是瞎，您推个小鸡都能吹，那我推uu和别人聊最近啥体验我也 ...</blockquote>
+我推个双向CN2小鸡不能吹，你推个uu和重启路由器就能吹了啊。首先只要你ip指向商店过一会就废了，这个基础上推荐重启路由器不是白瞎？uu倒确实有用，不过我觉得uu已经很有名了。顺便说一下，我不在这贴里推小鸡，还是因为自搭达到加速器那样的效果难度太高，我觉得对一般人不容易操作不好推广<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+如果真有适合大众的简单方法那我也想说啊，但问题我想不到，加速器大家都能想到不是？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病娇图兰朵  
+##### 669#       发表于 2021-12-27 01:20
+
+我这今天开始变成了只要打开商店页面，第一次必出324或者101，再刷新一次就会刷出页面来，而且到付款都没问题。一旦把steam切到托盘等一段时间，就会重复如上过程
+
