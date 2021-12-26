@@ -40,3 +40,14 @@ Beast IV 的头上长着弯曲的角，头发遮住眼睛，而且是兔子…�
 
 <img src="https://img.saraba1st.com/forum/202112/26/135234dorzg0otva7vmccs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 85504#       发表于 2021-12-26 14:07
+
+我没有伊吹不太清楚，她原来就是这种性格吗？怎么感觉跟255不太一样，会不会是妲己顶号？本来的妲己被兔子顶了，于是她就来顶伊吹，不过看太公望回忆一直强调残忍，但是羁绊5又感觉有点什么特殊的感情（好的方面），不知道最后要怎么圆
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
