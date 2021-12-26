@@ -696,3 +696,19 @@ RT是俄罗素的新闻媒体
 所以你觉得RT这些俄宣平时都在干啥？</blockquote>
 得了吧，RT在早就是fake news propaganda的代表了
 
+
+
+*****
+
+####  midearth  
+##### 71#       发表于 2021-12-27 07:31
+
+前两天隔壁帖子还看到有人说发诈骗app就是拿来搞全民监控的呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  bwjx88  
+##### 72#       发表于 2021-12-27 07:36
+
+在加拿大的我 也经常听同事问我这个 只是我也是很懵逼完全不知道是啥
+

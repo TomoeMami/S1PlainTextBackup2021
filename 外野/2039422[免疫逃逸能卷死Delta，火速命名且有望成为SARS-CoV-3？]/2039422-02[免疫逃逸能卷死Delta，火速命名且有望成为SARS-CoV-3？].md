@@ -8499,3 +8499,15 @@ https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247486975&amp;idx=1&a
 不是活病毒，只是病毒RNA  片段碎片，可以通过PCR检出。类似的论文去年就有了，被选择性无视而已 ...</blockquote>
 前面有超过31天在组织中检出sgRNA的，表明病毒仍存在复制。
 
+
+
+*****
+
+####  痴货  
+##### 2219#       发表于 2021-12-27 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057625&amp;ptid=2039422" target="_blank">月出皎兮 发表于 2021-12-27 01:07</a>
+
+偏个题，今年冬天北美东岸异常的温暖啊，相比之下西岸的西雅图和大温被冻成狗了，往年北美天气也是这样的嘛 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">应该不是，以往这时候都下雪了
+
