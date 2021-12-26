@@ -8411,3 +8411,17 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
  ...</blockquote>
 美国版焦虑怪XD
 
+
+
+*****
+
+####  riczxc  
+##### 2211#         楼主| 发表于 2021-12-26 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044890&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-25 21:44</a>
+
+https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
+
+33人聚会，全打了三针BNT，感染21例[f:0 ...</blockquote>
+一点都不奇怪。
+
