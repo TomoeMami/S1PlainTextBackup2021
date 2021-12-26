@@ -15811,3 +15811,15 @@ cm太公的台词除最后你为何在此，都出现了，希望最后不会机
 
 剧情助战就用过一次伊吹  还以为黑枪是跟以前一样那种不痛不痒的支援 感觉亏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85483#       发表于 2021-12-26 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54048644&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-12-26 10:43</a>
+
+剧情助战就用过一次伊吹  还以为黑枪是跟以前一样那种不痛不痒的支援 感觉亏了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个伊吹强到爆炸  昨天打狐狸就是碾压的
+

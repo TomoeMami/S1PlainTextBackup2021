@@ -5817,3 +5817,37 @@ ICP备案查询：请输入单位名称或域名或备案号查询，请勿使�
 
 得了，臭打游戏怎么了，自怨自艾个什么劲，教培行业那么大的市场和从业人员，还不是说砸就砸了，铁拳之下，众生平等，这就是利维坦 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拳塔一体  
+##### 540#       发表于 2021-12-26 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045680&amp;ptid=2043948" target="_blank">九一式 发表于 2021-12-25 22:51</a>
+g*w有生之年能拆么。。</blockquote>
+买办上台的话估计就拆了
+
+
+
+*****
+
+####  雨落飘零  
+##### 541#       发表于 2021-12-26 10:47
+
+-118，遭不住了
+
+*****
+
+####  2082082012  
+##### 542#       发表于 2021-12-26 10:58
+
+昨天不行今天就基本畅连，搞人心态属于是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NaYo丶  
+##### 543#       发表于 2021-12-26 10:58
+
+我也开始-118了
+
