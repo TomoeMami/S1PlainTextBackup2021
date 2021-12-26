@@ -628,3 +628,19 @@ Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万�
 不明白后半句是指什么</blockquote>
 RT是俄罗素的新闻媒体
 
+
+
+*****
+
+####  24k纯帅  
+##### 64#       发表于 2021-12-27 06:07
+
+很有可能那些黑民真的用这个变了很多故事申绿卡<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Licheus  
+##### 65#       发表于 2021-12-27 06:21
+
+去年苏州不是胡搞过吗，给骂翻了。
+
