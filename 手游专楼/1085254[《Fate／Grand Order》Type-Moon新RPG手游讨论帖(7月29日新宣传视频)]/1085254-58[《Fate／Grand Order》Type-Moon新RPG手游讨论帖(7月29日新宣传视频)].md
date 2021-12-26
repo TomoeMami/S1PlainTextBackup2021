@@ -245,3 +245,14 @@ fate吧为啥逢月必反了</blockquote>
 还少了某个AI</blockquote>
 那个是被涂掉的
 
+
+
+*****
+
+####  zakki  
+##### 85522#       发表于 2021-12-26 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051199&amp;ptid=1085254" target="_blank">kuarwbwe 发表于 2021-12-26 15:25</a>
+那边主要还是一直不太爽型月这几年的作品质量。</blockquote>
+和这个没关系，他们就是带节奏黑逢月必反，信息茧房养蛊养成粪池了。而且作品质量？里面有几个人看完剧情的，只会挑个片段变着法的带节奏罢了
+

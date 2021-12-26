@@ -3705,3 +3705,24 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 排除法啊，这就是个趣味quiz吧。开车的时候女武神骑行、花之华尔兹、致爱丽丝哪个曲子最危险，就这一个和 ...</blockquote>
 有道理<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝川澈  
+##### 279#       发表于 2021-12-26 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54045676&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2021-12-25 22:50</a>
+
+你是否在说这个</blockquote>
+想一块儿去了，既视感太强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 280#       发表于 2021-12-26 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了  恋女士这也太重女了，露女士一比算个啥
+
+难怪对露女士的进攻毫无感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

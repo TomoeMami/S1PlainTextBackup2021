@@ -11671,3 +11671,207 @@ pay抓着鲤鱼的手臂又滑落到手掌看着要握住了确滑落了，这�
 —— 来自 OP ...</blockquote>
 昨天晃的我以为是自己吃了感冒药头晕，好像说是因为那个机位的观众跳的太欢快引起的震动
 
+
+
+*****
+
+####  仟音一心  
+##### 2477#       发表于 2021-12-26 15:42
+
+今天选妃是pay
+
+CB75BEFD-05E4-4A31-89EB-9B954567C80F.jpeg
+(155.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154215liqwili7eofls77d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+29F2AEDD-BBEC-4328-8585-59FE7E376A96.jpeg
+(133.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154215avkk30l3txkg0lk3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8AB4E4AD-538A-4DCB-A690-939D44B7190F.jpeg
+(154 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154215wbc3cz55wbkkjimi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E045792A-A61D-4572-B98D-A75F0BAD4FC8.jpeg
+(121.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154216o87zk8rc4uiwzmrr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+837DADD1-9F09-4047-AB77-AFA2D79C1C95.jpeg
+(162.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154216zgwssfvf4gdwr6z1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AB52CAD3-51A3-4D4D-9EB3-D1E92E1BDDDB.jpeg
+(160 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154216ixrezxxyc0kou9kk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+768AA736-B13F-47AF-A090-C2C5A3404303.jpeg
+(166.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154216luj9p44q39u5c344.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+14B36CBE-CE92-4C94-BFFF-46AFDB87D26C.jpeg
+(115.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154216s6isg14dsx0ssgsy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2478#       发表于 2021-12-26 15:45
+
+鲤鱼真是越来越棒了，这难道没养成感吗？
+
+*****
+
+####  仟音一心  
+##### 2479#       发表于 2021-12-26 15:45
+
+ 本帖最后由 仟音一心 于 2021-12-26 15:50 编辑 
+
+福井day2 liella之歌:
+
+01.Primary-liella！
+
+02.Anniversary-nagi liyuu
+
+03.Ringing!-nako liyuu
+
+鲤鱼三连！
+
+E920E3EB-D6D0-44C1-A968-4B260800A27B.png
+(171.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154849rk60hx2mv6z255kk.png" referrerpolicy="no-referrer">
+
+02193DE2-D773-4173-A383-8C36A86BCA0A.png
+(60.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154849a6yhql567p6lhqk7.png" referrerpolicy="no-referrer">
+
+EC91844D-E328-4BA7-B805-1432F0E6C271.jpeg
+(129.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154849xfc4gckgq2aazfq4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+ADC7BE4C-6EDF-4E57-BC29-D79FB26F9746.jpeg
+(140.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850mpv39xvn17k43px7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3EEC4CF1-FEB9-429B-9A89-32A7AE99A445.jpeg
+(118.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850eu0mbgmjzq0q0ykg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+62E42F11-55B1-47ED-A64B-B592B75C43D7.jpeg
+(111.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850k1exz19989uja4v0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A6C6D656-E98B-42F0-AED9-59DED61ED713.jpeg
+(101.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850c9onmm9oqhinizmo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8A10E9C6-AC04-4FB0-AFFF-FB1CF8F2609D.jpeg
+(93.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850hyylpmsp6nhums19.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+72A7E4A5-A26C-476B-B6B4-558E0A1956CD.jpeg
+(109.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850ptl8udnlzynzu7us.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F1DCA605-1DEE-483E-96F9-BE4A5B6C2620.jpeg
+(95.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850zo5zev5etyndovv5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A50539A5-57D5-4D3C-9411-46DD77B776E7.jpeg
+(163.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 15:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/154850rra464oottaa4e1t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
