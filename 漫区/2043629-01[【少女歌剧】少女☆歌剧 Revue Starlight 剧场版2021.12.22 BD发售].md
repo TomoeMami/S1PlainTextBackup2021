@@ -3650,3 +3650,22 @@ maya每次入戏都是最快的，皆杀纯那直到最后都没入戏，让蕉�
 
 我这2小时tm看了些什么蛇精东西？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mika-S  
+##### 274#       发表于 2021-12-26 14:48
+
+再见了，所有的舞台少女<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝川澈  
+##### 275#       发表于 2021-12-26 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54023827&amp;ptid=2043629" target="_blank">蓝灯横滨 发表于 2021-12-24 10:09</a>
+
+也可以这么想</blockquote>
+souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视点，这次的剧场版依然是蕉哥哥看得最透彻，反派boss味确实削没了。我感觉和junna打的那场也是一个“确证”，说是了断，实际上蕉哥估计心里已经有数，就是想再看一眼junna的kirameki
+
