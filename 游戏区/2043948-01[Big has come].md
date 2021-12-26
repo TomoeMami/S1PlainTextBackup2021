@@ -6879,3 +6879,105 @@ https://bbs.saraba1st.com/2 ...</blockquote>
 
 问下 现在你们一般可以一次浏览多久
 
+
+
+*****
+
+####  afer  
+##### 642#       发表于 2021-12-26 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056729&amp;ptid=2043948" target="_blank">PPB3008 发表于 2021-12-26 23:39</a>
+
+问下 现在你们一般可以一次浏览多久</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">昨晚忙时按点击次数算，大概55开，长时间浏览不行，倒是后半夜很丝滑。
+
+今晚烦了干脆挂了uu，今天就没统计。
+
+*****
+
+####  巨灵巴谛魔  
+##### 643#       发表于 2021-12-26 23:47
+
+狗洞大师笑归笑，现在铁拳来了，还不是要乖乖钻狗洞<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PPB3008  
+##### 644#       发表于 2021-12-26 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056768&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-26 23:43</a>
+
+昨晚忙时按点击次数算，大概55开，长时间浏览不行，倒是后半夜很丝滑。
+
+今晚烦了干脆挂了uu，今 ...</blockquote>
+很神奇，我半个多小时前开了steam出了两次108，然后不停的点页面，一直点到现在没任何问题...
+
+*****
+
+####  afer  
+##### 645#       发表于 2021-12-26 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056817&amp;ptid=2043948" target="_blank">PPB3008 发表于 2021-12-26 23:47</a>
+
+很神奇，我半个多小时前开了steam出了两次108，然后不停的点页面，一直点到现在没任何问题... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你一说我试了试，这会过于丝滑，北方联通，赶紧把要搜要找的看一遍……
+
+*****
+
+####  bwsusaga  
+##### 646#       发表于 2021-12-26 23:56
+
+网页版一直可以上没任何问题，
+
+玩库里的在线游戏也没问题，
+
+就是客户端一直在抽风。
+
+*****
+
+####  暗影之诗  
+##### 647#       发表于 2021-12-26 23:57
+
+我之前就建议了，现在各大营销号那边找好要买的游戏，然后闪电找到并付款开始下载。没法再像以前那样逛超市一样悠闲了
+
+*****
+
+####  天才名名  
+##### 648#       发表于 2021-12-26 23:59
+
+ 本帖最后由 天才名名 于 2021-12-27 00:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这帖子颇有一种围观凌迟处刑的快感。
+
+死囚们窃窃私语：这一刀没切中要害啊，没事没事，还能坚持<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  solarcool  
+##### 649#       发表于 2021-12-26 23:59
+
+ 本帖最后由 solarcool 于 2021-12-27 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056589&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-26 23:27</a>
+
+我就是草了一下秀屁股的啊，然后和上不去的水友交流交流，你自认是朋党自觉被X了当然不爽，到底也 ...</blockquote>
+亏你能这么理直气壮，不是你要装文明人，装建设性，自己以为正义使者，其实也就是个秀屁股的，还孜孜不倦战到现在。我承认我就是来骂狗洞大师，然而你也是这样而已，没有什么两样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 650#       发表于 2021-12-26 23:59
+
+当（）不可怕，可怕的是当（）还当出（）来了
+
+（）说的
+
+*****
+
+####  fuochai  
+##### 651#       发表于 2021-12-27 00:01
+
+说个有趣的事 若干年前刚接触pixiv和steam我都以为要加速 一直都是开着上的 就来才知道不需要
+几年后p无了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

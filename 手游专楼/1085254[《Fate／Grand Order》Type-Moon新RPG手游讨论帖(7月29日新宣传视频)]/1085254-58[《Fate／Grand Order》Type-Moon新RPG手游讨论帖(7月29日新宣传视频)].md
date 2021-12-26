@@ -1713,3 +1713,22 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打急眼了直接去池子捞了一个二宝妖兰出来 这下稳稳的3T全收了
 
+
+
+*****
+
+####  zakki  
+##### 85657#       发表于 2021-12-26 23:49
+
+月姬不好联动，但魔夜其实挺容易联动的，看看明年联动会不会是魔夜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85658#       发表于 2021-12-26 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056463&amp;ptid=1085254" target="_blank">modkingr 发表于 2021-12-26 23:17</a>
+
+打急眼了直接去池子捞了一个二宝妖兰出来 这下稳稳的3T全收了</blockquote>
+YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

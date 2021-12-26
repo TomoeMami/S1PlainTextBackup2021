@@ -12572,3 +12572,58 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 
 这团是真的跟吃干上了，真就是出去找吃的顺便开个live的感觉
 
+
+
+*****
+
+####  chenflyyy  
+##### 2517#       发表于 2021-12-26 23:41
+
+ 本帖最后由 chenflyyy 于 2021-12-26 23:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056632&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-12-26 23:31</a>
+草，居然看到德龙了，虽然挺长时间没看v了…不知道是v圈太热了，还是拉拉要过气了 ...</blockquote>
+德龙也是烂铁艺人，还是老拉拉人，有联动挺正常，之前就有联动过了，那时对ll只是看过动画，现在在这里看到之前追的管人心情挺复杂的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 2518#       发表于 2021-12-26 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056746&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-26 23:41</a>
+
+德龙也是烂铁艺人，还是老拉拉人，有联动挺正常，之前就有联动过了，那时对ll只是看过动画，现在在这里看 ...</blockquote>
+德龙是烂铁艺人我知道，只是当时我挺长时间没关注拉拉了…有联动我还真没注意过<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+管人挺多拉拉厨我倒是没意外的
+
+*****
+
+####  蜜梨柑  
+##### 2519#       发表于 2021-12-26 23:48
+
+有没有懂管人的老哥说说这位在日本什么人气
+
+*****
+
+####  kata魂  
+##### 2520#       发表于 2021-12-26 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056829&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2021-12-26 23:48</a>
+
+有没有懂管人的老哥说说这位在日本什么人气</blockquote>
+人气不好说，因为视频势半死不活后基本都是直播势的天下
+
+德龙虽然也做直播，但本职更偏向歌势，简单来说如果知道v圈喜欢唱歌的观众，德龙还是蛮有名的
+
+
+
+*****
+
+####  黑雪姫  
+##### 2521#       发表于 2021-12-26 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056628&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-26 23:30</a>
+
+星这边是挺符合第一档top2人气的，记得虹那边ksks人气不是挺高的吗，p站图最多，而且应该会有不少人投四灰 ...</blockquote>
+想集齐四灰毛的只有国内拉拉人在想，日本人从一开始就没这想法。
+
