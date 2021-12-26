@@ -3536,3 +3536,25 @@ maya每次入戏都是最快的，皆杀纯那直到最后都没入戏，让蕉�
 
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Acatv  
+##### 263#       发表于 2021-12-26 12:15
+
+这么执着的恋哥哥为什么进了圣翔之后直接划了一整年水<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unnilennium  
+##### 264#       发表于 2021-12-26 12:16
+
+ 本帖最后由 unnilennium 于 2021-12-26 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049322&amp;ptid=2043629" target="_blank">wuliaozheX 发表于 2021-12-26 12:01</a>
+
+maya每次入戏都是最快的，皆杀纯那直到最后都没入戏，让蕉哥哥很失望，香子跟恋一样还以为要演starlight ...</blockquote>
+
+其他人都暂时找到了下一个“目标”，以退为进或者定了目标看似前进却忽略了眼前最重要的“情热”，但是华恋没有，开头的志愿调查书甚至是空白，逃避和没有目标虽然类似但也不同
+毕竟也有戏外主角的特殊性，跟别人画出了一线的要求，蕉的单独对话也是告诉华恋列车会前进，你必须要找到自己的下一个舞台
+
