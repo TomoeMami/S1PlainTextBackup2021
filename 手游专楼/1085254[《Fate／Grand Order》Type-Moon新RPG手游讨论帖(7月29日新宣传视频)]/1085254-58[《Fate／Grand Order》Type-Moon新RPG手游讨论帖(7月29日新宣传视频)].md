@@ -51,3 +51,45 @@ Beast IV 的头上长着弯曲的角，头发遮住眼睛，而且是兔子…�
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  超阳电子炮  
+##### 85505#       发表于 2021-12-26 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54050368&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 13:52</a>
+
+哎，不可名状</blockquote>
+妈诶，好掉san
+
+*****
+
+####  都谷捻柏  
+##### 85506#       发表于 2021-12-26 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049221&amp;ptid=1085254" target="_blank">kuarwbwe 发表于 2021-12-26 11:51</a>
+
+不还是因为基本都默认这次剧情是樱井写的。要是蘑菇就是，大家不要急，等这次剧情出完了再喷不迟。再不济还 ...</blockquote>
+fate吧为啥逢月必反了
+
+*****
+
+####  KOBI  
+##### 85507#       发表于 2021-12-26 14:22
+
+MYROOM里就这种大姐姐性格了吧
+
+255更偏向灵衣的无机质神灵状态
+
+不过伊吹是怪怪的没错
+
+*****
+
+####  khxooo  
+##### 85508#       发表于 2021-12-26 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54050483&amp;ptid=1085254" target="_blank">poor 发表于 2021-12-26 14:07</a>
+我没有伊吹不太清楚，她原来就是这种性格吗？怎么感觉跟255不太一样，会不会是妲己顶号？本来的妲己被兔子 ...</blockquote>
+你看看伊吹的语音集吧，到现在还有人说是女娲附身我也是服了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+

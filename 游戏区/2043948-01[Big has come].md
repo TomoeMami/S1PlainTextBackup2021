@@ -6146,3 +6146,31 @@ UU可以`UU加速STEAM不是免费的吗
 有人试过UU吗？行的话我就续了。</blockquote>
 加速商店页面又不用充钱
 
+
+
+*****
+
+####  酱稀饭  
+##### 575#       发表于 2021-12-26 14:27
+
+下午上不去了。。。。。。。。
+
+*****
+
+####  HazukiShion  
+##### 576#       发表于 2021-12-26 14:33
+
+<blockquote>tillnight 发表于 2021-12-26 14:21
+加速商店页面又不用充钱</blockquote>
+我还要用来加速游戏王和伊甸。。。
+
+*****
+
+####  smy20011  
+##### 577#       发表于 2021-12-26 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54043136&amp;ptid=2043948" target="_blank">魔法酪饼 发表于 2021-12-25 19:51</a>
+
+这不很明显某些企业勾结地方运营商，特意在大促的时候搞了一波dns污染么。。。这有啥好纠结的。。。 ...</blockquote>
+明显个P张口就来，这玩意是DNS污染么？
+
