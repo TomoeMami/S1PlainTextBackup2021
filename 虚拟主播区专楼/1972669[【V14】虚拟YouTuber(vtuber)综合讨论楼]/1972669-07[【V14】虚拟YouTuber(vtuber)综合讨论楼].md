@@ -6883,3 +6883,24 @@ lena姨毕业前三天的live
 
 葛尊进决赛了，尊妈加油尽力保护king登基吧
 
+
+
+*****
+
+####  OldGlory  
+##### 9570#       发表于 2021-12-26 20:46
+
+[https://www.youtube.com/watch?v=w6CqugOeVSw&amp;ab_channel=nayuta](https://www.youtube.com/watch?v=w6CqugOeVSw&amp;ab_channel=nayuta)
+
+忘记发了
+
+
+
+*****
+
+####  OldGlory  
+##### 9571#       发表于 2021-12-26 20:52
+
+阿望原来也动了啊
+[https://www.youtube.com/watch?v= ... D%E3%82%8B%E3%81%A3](https://www.youtube.com/watch?v=MlV2ylbcwIg&amp;ab_channel=%E3%81%AE%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E3%81%AD%E3%82%8B%E3%81%A3)
+

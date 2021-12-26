@@ -3966,3 +3966,13 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 
 听你楼的去看了下5ds最后两集，真的绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死宅真恶心  
+##### 300#       发表于 2021-12-26 20:49
+
+【一头长颈鹿在看完少歌剧场版后，这是它发出的呐喊-哔哩哔哩】 [https://b23.tv/C3By9yY](https://b23.tv/C3By9yY)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

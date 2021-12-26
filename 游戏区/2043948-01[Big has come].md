@@ -6291,3 +6291,24 @@ xbox也抽了，一个原因吧，我看别人说cdn的问题
 
 夏季折扣的时候完全没这种感觉。
 
+
+
+*****
+
+####  超赛锡纸烫  
+##### 588#       发表于 2021-12-26 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053173&amp;ptid=2043948" target="_blank">Hidewhite 发表于 2021-12-26 18:56</a>
+
+“我玩2077没出bug所以这游戏没bug”，风头上要是这么说大概早被打死了
+
+——看样子玩游戏对智力的损害程度 ...</blockquote>
+对的，所以steam已经完蛋了，从今天开始，谁再说能上steam，能玩库里的游戏谁就是狗洞，好不好
+
+*****
+
+####  zhumiaomiao1991  
+##### 589#       发表于 2021-12-26 21:01
+
+可以上了
+

@@ -1210,3 +1210,27 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 雪藏多年的2宝枪狐终于有机会上场了...带战斗服奥伯龙梅林A狐....一脚下去170万左右 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">羡慕 限定枪！
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85612#       发表于 2021-12-26 21:01
+
+ 本帖最后由 gpx234mqx 于 2021-12-26 21:02 编辑 
+
+看了下，守坟的金色白面的确是神灵 天照大神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+现在还存在着
+
+所以受女娲命令下朝歌的妲己绝对不是
+
+屏幕截图 2021-12-26 210155.png
+(143.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/210221eexe66xtie4gezil.png" referrerpolicy="no-referrer">
+

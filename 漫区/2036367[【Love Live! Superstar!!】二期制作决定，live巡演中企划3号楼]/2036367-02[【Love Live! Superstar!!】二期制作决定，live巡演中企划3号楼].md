@@ -12324,3 +12324,17 @@ E585D3DB-E30B-4D05-9C68-EC4AFECB72A4.jpeg
 
 鲤鱼新歌mv播放后劲有点不足啊，才挂了半天热门就没了，才十几万播放。反倒是昨天十几秒的视频都快四十万了，现在还在热门。不过引来很多低俗恶臭评论就是了，举报不过来。
 
+
+
+*****
+
+####  普之舜舜  
+##### 2495#       发表于 2021-12-26 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054320&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-26 20:39</a>
+鲤鱼新歌mv播放后劲有点不足啊，才挂了半天热门就没了，才十几万播放。反倒是昨天十几秒的视频都快四十万了 ...</blockquote>
+新歌毕竟需要中文，没中文看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+那个日常分享虽然很短，但挺有趣的
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

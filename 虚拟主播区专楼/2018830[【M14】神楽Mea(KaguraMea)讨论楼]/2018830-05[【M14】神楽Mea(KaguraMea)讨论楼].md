@@ -8702,3 +8702,14 @@ special thanks:舞元
 
 不对，剃须还差不多（
 
+
+
+*****
+
+####  2014720  
+##### 7009#       发表于 2021-12-26 21:01
+
+https://mobile.twitter.com/kingkanko/status/1475013515928760322
+
+该线下了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+

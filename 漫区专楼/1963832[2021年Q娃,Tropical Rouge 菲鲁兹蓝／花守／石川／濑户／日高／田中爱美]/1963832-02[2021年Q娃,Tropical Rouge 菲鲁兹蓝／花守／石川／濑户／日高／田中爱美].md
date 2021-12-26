@@ -12320,3 +12320,20 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 
 传说中的凤梨？？？
 
+
+
+*****
+
+####  leleq  
+##### 2425#       发表于 2021-12-26 20:49
+
+前半大家都画的好可爱 后半<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+天文部这项目也太硬核了吧
+
+罗拉唱歌夏夏没听到的伏笔要用上了？ 会长（前）这小媳妇样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+吃包子这里flag立的<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+房间里的夏夏可怜巴巴的 在罗拉回家这事上夏夏完全没有任何办法 只能等着罗拉自己想办法
+
