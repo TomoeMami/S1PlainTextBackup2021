@@ -3693,3 +3693,15 @@ souka，和tv那个镜头一致。蕉哥哥既是剧中人又带着超越的视�
 所以为什么是女武神的骑行，有没有大佬能解谜（真昼Revue曲的开头倒是确实有点像女武神的骑行） ...</blockquote>
 排除法啊，这就是个趣味quiz吧。开车的时候女武神骑行、花之华尔兹、致爱丽丝哪个曲子最危险，就这一个和交通有关的。而且女武神那个怪异的调调，又作为《尼伯龙根的指环》第一幕，指向后来诸神黄昏，属实不吉利。瓦格纳是“一直认为女性身上有救赎和毁灭两种特性，这种矛盾性使他创造的女性形象通常都是复杂的、怀着巨大痛苦的英雄女高音”，和蕉哥哥形象一致。顺带一提，前楼有说到尼采的，尼采在《悲剧的诞生》里面说到了酒神和日神，而这本书前言就直接“献给瓦格纳”，确实是融贯一致。再说得直白点就是这曲子激昂归激昂，阴阳怪气属实让人不舒服，开车放这个<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MASKA-1  
+##### 278#       发表于 2021-12-26 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051100&amp;ptid=2043629" target="_blank">蓝川澈 发表于 2021-12-26 15:12</a>
+
+排除法啊，这就是个趣味quiz吧。开车的时候女武神骑行、花之华尔兹、致爱丽丝哪个曲子最危险，就这一个和 ...</blockquote>
+有道理<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

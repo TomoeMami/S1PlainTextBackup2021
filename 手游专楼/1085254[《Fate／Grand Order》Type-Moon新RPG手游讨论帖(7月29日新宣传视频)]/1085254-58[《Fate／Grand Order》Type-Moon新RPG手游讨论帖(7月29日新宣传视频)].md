@@ -198,3 +198,50 @@ MYROOM里就这种大姐姐性格了吧
 
 <img src="https://p.sda1.dev/3/0013e93f40a5cda63796520f26c65bc6/IMG_CMP_126889921.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuarwbwe  
+##### 85518#       发表于 2021-12-26 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54050622&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-26 14:21</a>
+
+fate吧为啥逢月必反了</blockquote>
+那边主要还是一直不太爽型月这几年的作品质量。
+
+*****
+
+####  Lokad  
+##### 85519#       发表于 2021-12-26 15:26
+
+ 本帖最后由 Lokad 于 2021-12-26 15:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051013&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 15:03</a>
+
+小玉明确不承认妲己，应该是大本相同的分灵吧
+
+妲己不给立绘问题很大</blockquote>
+本次活动太公回忆说女娲把守墓状态的三妖叫出来消灭商朝，但后续妲己不顾使命进一步诱惑纣王，脱离原定指令了。就是当时本体下来了，不然也担不起兽级啊。
+
+封神时期很可能是妲己一狐担起抵挡周朝大军的使命，起码太公话语中妲己是强的不讲道理。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（脱离掌控也不下来救场的屑女娲）
+
+*****
+
+####  khxooo  
+##### 85520#       发表于 2021-12-26 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051034&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-26 15:06</a>
+我记得有说过人类恶XX后面的XX都代表人类恶获得羽化的条件，而人类恶显现则是代表已经是成体的人类恶了，目 ...</blockquote>
+还少了某个AI<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85521#       发表于 2021-12-26 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54051326&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-26 15:41</a>
+还少了某个AI</blockquote>
+那个是被涂掉的
+
