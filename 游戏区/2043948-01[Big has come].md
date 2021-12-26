@@ -5516,3 +5516,59 @@ TLS1.3刚开始有网站使用那段时间就是直接被打断的，可以认�
 —— 来自 S1Fun</blockquote>
 对不起，没版号发不了哦亲
 
+
+
+*****
+
+####  2082082012  
+##### 510#       发表于 2021-12-26 08:28
+
+我没挂梯子但进steam网页版是美元$？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ranqI  
+##### 511#       发表于 2021-12-26 08:37
+
+上海  不狗洞完全没问题，甚至比原来还快了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/26/083616vjtq3g55texqdtxq.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20211226083532.png</strong> (297.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 08:36 上传
+
+*****
+
+####  缺德猫  
+##### 512#       发表于 2021-12-26 08:40
+
+之前能打开商店页面，但打不开具体游戏，现在商店页面都打不开了，-118
+
+*****
+
+####  暗月杀人兔  
+##### 513#       发表于 2021-12-26 08:43
+
+一开始还能刷出来，甚至觉得丝滑，没几分钟就-118了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk此方  
+##### 514#       发表于 2021-12-26 08:43
+
+我这从昨晚开始很神秘感觉进网页和客户端商店更流畅了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">之前偶尔还卡一下错误代码
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  暗影之诗  
+##### 515#       发表于 2021-12-26 08:44
+
+上一次全国规模的间歇性访问异常持续了三个多月呢，17年的5月到8月，看看这次持续多久，如果不升级屏蔽策略或者不解除那这种时好时坏有的反复呢
+
