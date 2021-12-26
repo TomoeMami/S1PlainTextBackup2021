@@ -11996,3 +11996,194 @@ B303F888-0265-4EFB-A8C8-826D70C6695B.jpeg
 
 犹豫要不要买宫城和追加场的特典票，每个月不知不觉要往这个企划扔进1000左右
 
+
+
+*****
+
+####  仟音一心  
+##### 2486#       发表于 2021-12-26 19:22
+
+ 本帖最后由 仟音一心 于 2021-12-26 19:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052969&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-26 18:33</a>
+
+今天没看live有哪些爆点（或者糖）咩</blockquote>
+
+爆点有前面说过的鲤鱼选妃终于选到了pay，pay兴高采烈地抓起鱼鳍就往自己脑袋上糊来顺毛，鱼还touch了一下pay的胸口。
+
+剩下的看图吧
+
+E296A6DD-783C-4C69-A8DE-FB5A3FFA70A1.jpeg
+(72.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133t7c837w0l2n718b0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CF6E5C6C-C5FD-4B75-AB8B-F897542D27D8.jpeg
+(73.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133uncichu5cfpnus96.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1F975054-9D93-4EF0-8D33-92C77AE081E2.png
+(199.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133x0dn6rp0dzbocojc.png" referrerpolicy="no-referrer">
+
+1360AAC8-02AF-47E7-8A65-683DFCD8F887.png
+(167.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133omzlkt3mnl4qn8m6.png" referrerpolicy="no-referrer">
+
+3032689B-8424-45FC-B587-E8A86D357660.jpeg
+(212.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133yhds7vs7ib7jpsgv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7F7E5084-4B66-45DB-910F-AEE3B7365B46.jpeg
+(82 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133ul0pidmcdavc70mc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6381D993-494B-4E36-AABE-773778E187E5.jpeg
+(143.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133d0m8a129h2yw9hwt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BD51A25E-395C-4886-ABB3-3A1390B10468.jpeg
+(340.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133nc1tf035s8v16i18.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+EFBDC008-5A71-4967-85AF-51E1866A4F64.jpeg
+(137.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192133drffcnhw24fhr3hy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+88C9B8AE-9BD4-477A-8C3F-8C9952FD12CA.jpeg
+(49.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192134w7rj7446zs4usgss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6D7C68B3-EF8E-4FE0-946A-76837648ACFE.jpeg
+(42.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192134df2gfpdfaazcf880.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E3A44418-8A67-48D3-9485-F79A636BC375.jpeg
+(41.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192134dp9b7szaopa17vd5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3A3BC14C-FAA2-4871-B510-B700EB44CA28.png
+(110.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192246uxvs1nmbbo1nbbbv.png" referrerpolicy="no-referrer">
+
+18109052-A17F-4D90-9BC3-C406526C08FF.jpeg
+(49.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192408ljiriqiijqjjl8bc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+DB776514-06A4-42AF-B9B9-3E5708A2C321.jpeg
+(44.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192408kf6io15j1f7q5f56.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5CB41DC4-0570-4A38-A5D1-5E426E685088.jpeg
+(60.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192408wmkfx7gp7mjnx7tg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+48300211-C3AA-4F7E-892F-2721DD19AB74.jpeg
+(40.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192409l4px9x4xx1f77y2o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+89FCAB17-0069-41A2-AEA6-5BB22F51BF48.jpeg
+(52.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-26 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202112/26/192409puqliwiaozic8aoa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  山岚夜雨  
+##### 2487#       发表于 2021-12-26 19:35
+
+ 本帖最后由 山岚夜雨 于 2021-12-26 19:38 编辑 
+
+国木田花丸的饰演者·高槻加奈子将出演12月举办的公演的通知
+关于出演方面 ，经过慎重的讨论，国木田花丸的饰演者·高槻加奈子将按照预定出演以下公演：
+【LoveLive!Sunshine!! Aqours EXTRA LoveLive! ~DREAMY CONCERT 2021~ 】
+【LoveLive! Series Presents COUNTDOWN LoveLive! 2021→2022~ LTVE with a smile!~】<img src="https://p.sda1.dev/3/26ae485f76ca492c63cdb6079c2e4f38/IMG_CMP_72022316.jpeg" referrerpolicy="no-referrer">
+能回来就好
+

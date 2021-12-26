@@ -2134,3 +2134,44 @@ SE傻逼就完事了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  onemoment  
+##### 201#       发表于 2021-12-26 19:25
+
+买了个ps5数字版的晓月，之前没在ps上玩过，怎么账号登不进去，提示没有play权限要我购买数字版游戏（已经买过了...），这还没到link se和psn那步<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，有好心人知道是什么原因吗
+
+*****
+
+####  zikimi  
+##### 202#       发表于 2021-12-26 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053462&amp;ptid=2040615" target="_blank">onemoment 发表于 2021-12-26 19:25</a>
+买了个ps5数字版的晓月，之前没在ps上玩过，怎么账号登不进去，提示没有play权限要我购买数字版游戏（已经 ...</blockquote>
+是不是只买了资料片啊要一口气把本体和之前的资料片全买了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 203#       发表于 2021-12-26 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053543&amp;ptid=2040615" target="_blank">zikimi 发表于 2021-12-26 19:33</a>
+
+是不是只买了资料片啊要一口气把本体和之前的资料片全买了</blockquote>
+原来是这样，确实没有买前面的那些，商城里目前只能买到晓月，看来是绝育的问题了
+
+*****
+
+####  超赛锡纸烫  
+##### 204#       发表于 2021-12-26 19:40
+
+<blockquote>引用第200楼onemoment于2021-12-26 19:25发表的  :
+
+买了个ps5数字版的晓月，之前没在ps上玩过，怎么账号登不进去，提示没有play权限要我购买数字版游......</blockquote>
+必须要用购买游戏的psn账号玩，不能跨账号玩。
+要买本体＋晓月，本体=2.0+3.0，晓月=4.0+5.0+6.0。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

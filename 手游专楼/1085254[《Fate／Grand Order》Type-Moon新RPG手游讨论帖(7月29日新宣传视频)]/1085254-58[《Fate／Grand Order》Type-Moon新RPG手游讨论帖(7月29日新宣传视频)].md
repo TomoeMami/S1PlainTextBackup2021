@@ -1012,3 +1012,46 @@ EE0DE2BF-7165-442C-86ED-83F38D37C3D8.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85595#       发表于 2021-12-26 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053268&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-12-26 19:05</a>
+
+邪龙比水院稳，宝具自带技能封印和减暴，保证boss不暴击普攻3连</blockquote>
+邪龙1宝不行，得2宝
+
+而且根本不用怕暴击啊
+
+*****
+
+####  DARKGRAY  
+##### 85596#       发表于 2021-12-26 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053503&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 19:29</a>
+
+邪龙1宝不行，得2宝
+
+而且根本不用怕暴击啊</blockquote>
+暴击1HIT怕回收不够吧
+
+*****
+
+####  gpx234mqx  
+##### 85597#       发表于 2021-12-26 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053554&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-12-26 19:34</a>
+
+暴击1HIT怕回收不够吧</blockquote>
+所以邪龙没院院稳呢
+
+*****
+
+####  الطائر  
+##### 85598#       发表于 2021-12-26 19:38
+
+虽然现在说已经晚了，不过今天的绊要多一点点，特地把茶壶省到今天喝赚了呀。
+

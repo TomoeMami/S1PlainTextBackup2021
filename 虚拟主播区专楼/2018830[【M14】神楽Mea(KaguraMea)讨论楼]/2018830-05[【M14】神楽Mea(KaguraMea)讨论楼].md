@@ -8679,3 +8679,26 @@ special thanks:舞元
 
 就爱肉腿 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 7006#       发表于 2021-12-26 19:27
+
+好好的青春学园恋爱，在五元出来后感觉变成了社会大叔和jk
+
+*****
+
+####  T_Hb  
+##### 7007#       发表于 2021-12-26 19:27
+
+变成了搞笑动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 7008#       发表于 2021-12-26 19:29
+
+不对，剃须还差不多（
+
