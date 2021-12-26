@@ -5706,3 +5706,66 @@ ICP备案查询：请输入单位名称或域名或备案号查询，请勿使�
 
 最新的steamcommunity302还是能用的
 
+
+
+*****
+
+####  Lunamos  
+##### 529#       发表于 2021-12-26 10:04
+
+看了这个帖才知道Github被墙了……
+
+之前还推荐海外的mod作者用github发布给中国玩家看，不会被墙<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  传说中的天才  
+##### 530#       发表于 2021-12-26 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54048280&amp;ptid=2043948" target="_blank">未知 发表于 2021-12-26 09:59</a>
+借贴问下，用科学的话是能上，但买东西不是有可能会封号吗？我看价格都变成所在国了，这怎么处理呢？搞得不 ...</blockquote>
+无所谓的，最核心的还是支付方式没问题。
+
+*****
+
+####  otaku21126  
+##### 531#       发表于 2021-12-26 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54048321&amp;ptid=2043948" target="_blank">Lunamos 发表于 2021-12-26 10:04</a>
+
+看了这个帖才知道Github被墙了……
+
+之前还推荐海外的mod作者用github发布给中国玩家看，不会被墙 ...</blockquote>
+你应该推荐海外的mod作者用回去N网，只有N网是能正常访问的
+
+*****
+
+####  sk此方  
+##### 532#       发表于 2021-12-26 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54048280&amp;ptid=2043948" target="_blank">未知 发表于 2021-12-26 09:59</a>
+借贴问下，用科学的话是能上，但买东西不是有可能会封号吗？我看价格都变成所在国了，这怎么处理呢？搞得不 ...</blockquote>
+你不挂梯子多刷几次看看能不能刷进去 我现在是十次有一次会卡住要刷新<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还有不是去低价区的话一般不会被封吧 
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  大喇叭花田  
+##### 533#       发表于 2021-12-26 10:20
+
+真封了就海贼算了，当年互联网不发达时10块一张盗版光盘的时代都经历过了，现在发生啥都无所谓
+
+*****
+
+####  葛葉景明  
+##### 534#       发表于 2021-12-26 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">笑死了，想玩盗版就去玩，还在这找理由。还都是新账号，这届年轻人也不行啊
+
+让我想起以前遇到的人“刺客信条出中文我就买正版”
+
+“3代有中文啊？”
+
+“哦。没有简体中文啊”
+
