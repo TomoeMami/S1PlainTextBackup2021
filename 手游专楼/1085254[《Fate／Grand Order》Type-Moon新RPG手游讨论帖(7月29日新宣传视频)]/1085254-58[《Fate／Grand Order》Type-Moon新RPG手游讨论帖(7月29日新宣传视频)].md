@@ -1288,3 +1288,89 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 有点不爽，3t打起来好慢，1t又觉得亏了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新我2ｔ　虽然我就刷了５把
 
+
+
+*****
+
+####  giddenslee  
+##### 85619#       发表于 2021-12-26 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054665&amp;ptid=1085254" target="_blank">modkingr 发表于 2021-12-26 21:04</a>
+
+有人说下一宝妖兰怎么操作可以3T吗？杀狐奥伯梅林都有 不管我怎么操作 P1的两个小怪都打不死啊  ...</blockquote>
+一宝全清3T除非精准前后各垫一刀吧，甚至能打掉也可能导致清不掉P2的小怪，怎么着都是少打两个……反正我试了半天发现自己的一宝+满破黑杯打起来还不如直接嫖大佬五宝来得舒服，就躺平了。
+
+*****
+
+####  exiaexa  
+##### 85620#       发表于 2021-12-26 21:44
+
+ 本帖最后由 exiaexa 于 2021-12-26 21:46 编辑 
+
+这个狐狸
+
+虽然1t就能送走，但是这个材料塞了一半的毒也太打击积极性了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  森兰丸  
+##### 85621#       发表于 2021-12-26 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054255&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-26 20:35</a>
+
+羡慕 限定枪！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看到这么多人还有闲情周回小怪刷材料就羡慕.....像我1T直接干死BOSS打了几把就收手了
+
+*****
+
+####  alucardcz  
+##### 85622#       发表于 2021-12-26 21:46
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 85623#       发表于 2021-12-26 21:46
+
+再翻页
+
+*****
+
+####  alucardcz  
+##### 85624#       发表于 2021-12-26 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055304&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-26 21:46</a>
+
+看到这么多人还有闲情周回小怪刷材料就羡慕.....像我1T直接干死BOSS打了几把就收手了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也没刷啊　钱２０亿满了　　材料也不缺　羁绊还差１０几万　懒得动了
+
+*****
+
+####  qixinno2  
+##### 85625#       发表于 2021-12-26 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也不想刷 但我异常缺金术饼干 其他饼干最少的都有300多个 就术的现在算上刷的一共才55个
+
+*****
+
+####  仰望神的括约肌  
+##### 85626#       发表于 2021-12-26 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54054665&amp;ptid=1085254" target="_blank">modkingr 发表于 2021-12-26 21:04</a>
+
+有人说下一宝妖兰怎么操作可以3T吗？杀狐奥伯梅林都有 不管我怎么操作 P1的两个小怪都打不死啊  ...</blockquote>
+我1宝妖兰拉到100换人服加攻都有可能打不掉1t俩小怪 2t可能有时也会漏 可以选中第三位的小怪 宝具后跟两张不同从者的指令卡补刀 但妖兰红卡暴击补不到boss身上的话可能3t干不掉  看2t如果boss血量紧张就只能放弃补刀小怪了 总之运气好能3t全清 不过前提还是拉到100级
+
+*****
+
+####  不垃圾屌丝  
+##### 85627#       发表于 2021-12-26 22:00
+
+等等，看了看时间表，不管什么时候打完都要28号才能看后面剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -6438,3 +6438,181 @@ I see
 
 唉。。。好好打个游戏还是花钱平时微信支付宝的正规买卖，付款也有电子依据，搞这出，很多人不懂也只是玩steam联机和朋友打打csgo厨房这种。 就普通合法的游戏加速器希望免费利好吧
 
+
+
+*****
+
+####  相田・明日香  
+##### 600#       发表于 2021-12-26 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042010&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:06</a>
+
+这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
+解决方案这贴里的人都知道啊，要么科学上网要么肉身翻墙，你还要讨论什么干货？<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zashou  
+##### 601#       发表于 2021-12-26 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055285&amp;ptid=2043948" target="_blank">相田・明日香 发表于 2021-12-26 21:44</a>
+
+解决方案这贴里的人都知道啊，要么科学上网要么肉身翻墙，你还要讨论什么干货？ ...</blockquote>
+他要看人聊到红线然后进去啊，这么明显的意图。
+
+*****
+
+####  Kazuhira  
+##### 602#       发表于 2021-12-26 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055285&amp;ptid=2043948" target="_blank">相田・明日香 发表于 2021-12-26 21:44</a>
+解决方案这贴里的人都知道啊，要么科学上网要么肉身翻墙，你还要讨论什么干货？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我来发点外国三大妈链接？
+
+到时候别再来每月一帖“海外三大妈迟早要完”
+
+*****
+
+####  zashou  
+##### 603#       发表于 2021-12-26 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055241&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-26 21:41</a>
+
+I see
+
+说steam能正常访问--&gt;触逆鳞--&gt;狗洞
+
+说steam还能救--&gt;触逆鳞--&gt;狗洞</blockquote>
+不用自己在那高潮曝露圣诞夜失败的性生活连续高潮辣，目前来说，只要承认steam在中国是被官方针对，并且随时可能会GG的人就多半不会是狗洞大师，能不能上或者觉得能不能救以及完蛋不完蛋都不是什么必要条件。
+
+反过来说，觉得steam没有被官方搞过，也不会被官方搞，都是刁民自己网不行或者庸人自扰，一切问题都是资本家的阴谋的，很难不是狗洞大师。
+
+*****
+
+####  w2210059  
+##### 604#       发表于 2021-12-26 21:50
+
+反正我已经一天118了，有哪个鳖孙能承认下是他们的责任不。这样我好果断点骂他死鳖孙<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相田・明日香  
+##### 605#       发表于 2021-12-26 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055334&amp;ptid=2043948" target="_blank">Kazuhira 发表于 2021-12-26 21:48</a>
+
+那我来发点外国三大妈链接？
+
+到时候别再来每月一帖“海外三大妈迟早要完” ...</blockquote>
+我以为是怎么上steam的干货呢，外国三大妈也算吗
+
+*****
+
+####  segecong  
+##### 606#       发表于 2021-12-26 21:50
+
+百花齐放、百家争鸣，图你这五块钱的账号呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 607#       发表于 2021-12-26 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54052098&amp;ptid=2043948" target="_blank">Kazuhira 发表于 2021-12-26 17:00</a>
+
+更搞的是，当初劝他们拿出解决办法那些人，还会被扣帽子识别成两方里其中一方，一起按着打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟说火箭烧煤的人怎么看都比柴米油盐的有学识不是，“抖机灵”还能加鹅，所以为啥批站一个猴教人骂街视频耍起来几百万播放量，正经视频没人看啊。
+
+*****
+
+####  windhawind2  
+##### 608#       发表于 2021-12-26 21:52
+
+steam很久以前商店就时灵时不灵了 这次说崩溃也没感觉啥 反正用uu加速器就登上了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 609#       发表于 2021-12-26 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055285&amp;ptid=2043948" target="_blank">相田・明日香 发表于 2021-12-26 21:44</a>
+
+解决方案这贴里的人都知道啊，要么科学上网要么肉身翻墙，你还要讨论什么干货？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以我说的有啥错了？也没新新闻，也没舅舅党，也没新的解决方案，就是看这两群傻逼在这秀智商呗，这人就不能说实话，说出来天地都得毁灭不是？
+
+*****
+
+####  zashou  
+##### 610#       发表于 2021-12-26 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055386&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-26 21:53</a>
+
+所以我说的有啥错了？也没新新闻，也没舅舅党，也没新的解决方案，就是看这两群傻逼在这秀智商呗， ...</blockquote>
+S1那么多贴为什么这贴对你的引力这么大，因为有你喜欢的人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相田・明日香  
+##### 611#       发表于 2021-12-26 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055386&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-26 21:53</a>
+
+所以我说的有啥错了？也没新新闻，也没舅舅党，也没新的解决方案，就是看这两群傻逼在这秀智商呗 ...</blockquote>
+不是，你该不会觉得因为没人想要讨论大家都知道的解决方案，所以大家就该乖乖闭嘴，这贴就该沉掉是吧
+
+你算老几啊搞笑
+
+*****
+
+####  九一式  
+##### 612#       发表于 2021-12-26 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">就是以后费事了，没到完全不敢用就照常吧。
+看戏
+
+*****
+
+####  afer  
+##### 613#       发表于 2021-12-26 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055402&amp;ptid=2043948" target="_blank">相田・明日香 发表于 2021-12-26 21:54</a>
+
+不是，你该不会觉得因为没人想要讨论大家都知道的解决方案，所以大家就该乖乖闭嘴，这贴就该沉掉是吧
+
+你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 614#       发表于 2021-12-26 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055400&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-26 21:54</a>
+
+S1那么多贴为什么这贴对你的引力这么大，因为有你喜欢的人吗？</blockquote>
+你看见回复不点进来么？<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+行了，你别回了，我也不进了
+
+*****
+
+####  Kazuhira  
+##### 615#       发表于 2021-12-26 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055359&amp;ptid=2043948" target="_blank">相田・明日香 发表于 2021-12-26 21:50</a>
+
+我以为是怎么上steam的干货呢，外国三大妈也算吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">你们不是说怎么上三大妈不用别人教么，那发点别的没意见吧
+
+*****
+
+####  相田・明日香  
+##### 616#       发表于 2021-12-26 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055464&amp;ptid=2043948" target="_blank">Kazuhira 发表于 2021-12-26 21:59</a>
+
+你们不是说怎么上三大妈不用别人教么，那发点别的没意见吧</blockquote>
+听不懂你在说什么，三大妈和steam能不能上有什么关系，你们又是谁，为什么你们要有意见，为什么你们有没有意见要来问我
+
