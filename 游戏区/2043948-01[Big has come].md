@@ -6616,3 +6616,64 @@ S1那么多贴为什么这贴对你的引力这么大，因为有你喜欢的人
 你们不是说怎么上三大妈不用别人教么，那发点别的没意见吧</blockquote>
 听不懂你在说什么，三大妈和steam能不能上有什么关系，你们又是谁，为什么你们要有意见，为什么你们有没有意见要来问我
 
+
+
+*****
+
+####  lockoff0131  
+##### 617#       发表于 2021-12-26 22:07
+
+ 本帖最后由 lockoff0131 于 2021-12-26 22:08 编辑 
+
+<img src="https://p.sda1.dev/3/5185c15860965e087213f7a2e0233f21/IMG_CMP_127273115.jpeg" referrerpolicy="no-referrer">贴吧有人做了测试， 结论是把steam的域名指向epic的ip会导致epic也无法访问，然后停止访问steam一段时间后都会恢复访问
+
+—— 来自 HUAWEI YAL-AL50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Kojimaru  
+##### 618#       发表于 2021-12-26 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54047952&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-26 09:02</a>
+我早就说过，国内黑客都在干原神，不接这种单的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">额，能再弱智点吗
+
+*****
+
+####  第二十三个马甲  
+##### 619#       发表于 2021-12-26 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54037274&amp;ptid=2043948" target="_blank">dragrass 发表于 2021-12-25 08:15</a>
+
+就问一下，话说这个被墙检测到底是写全域名还是主域名啊？</blockquote>
+这是什么网站啊
+
+*****
+
+####  月华驱霾  
+##### 620#       发表于 2021-12-26 22:17
+
+今天试了一下，118、324轮着来
+
+*****
+
+####  dragrass  
+##### 621#       发表于 2021-12-26 22:20
+
+我记得当时对pixiv的套路就是先dns污染，改dns可以访问
+然后慢慢的改dns或者hosts也访问不了了
+
+steam的这个套路像github，从各个地方的反响来看这是最鸡贼的套路，没有直说你违法，所以影响极大的游戏直播和自媒体都暂时可以继续搞
+而且整活的时间卡在冬促，这里面没高人我是不信的
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  printer22  
+##### 622#       发表于 2021-12-26 22:20
+
+ 本帖最后由 printer22 于 2021-12-26 22:21 编辑 
+
+测试什么啊测试，还需要测试什么端口什么DNS的吗？以前不都是这样，隔段时间就来一次网络波动，就是不让你用的顺心。等到真封的那天也有心理准备。也可能完全是自己吓自己，这么小的圈子没人想管。总之都是薛定谔的猫，没到真的被墙的那一天你永远无法确定究竟是怎么回事。不过有句话说得对，要是有一天动真格的真的给你封了STEAM，那肯定是想翻墙都出不去的，梯子都给你全拆完。
+

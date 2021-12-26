@@ -1374,3 +1374,50 @@ T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 85628#       发表于 2021-12-26 22:07
+
+后面到底有什么大的，藏着掖着不让人看，好在意啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85629#       发表于 2021-12-26 22:10
+
+看到有人有绿卡困扰，提供一个不用点对面的蓝卡阵容吧
+
+5宝摩根（加成）+5宝金钻头（LV100黑杯）+C呆+换人奥伯龙
+
+技能扔完以后就摩根+金钻头宝具，摩根宝具副效果oc+1，金钻头相当于3oc，175%的恶特攻
+
+*****
+
+####  DARKGRAY  
+##### 85630#       发表于 2021-12-26 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055357&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-26 21:50</a>
+
+我也不想刷 但我异常缺金术饼干 其他饼干最少的都有300多个 就术的现在算上刷的一共才55个 ...</blockquote>
+金术其实修炼场出率很不错的<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85631#       发表于 2021-12-26 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055605&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-12-26 22:10</a>
+
+金术其实修炼场出率很不错的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">术修炼场也要40AP打3T 我干嘛不刷掉一大堆东西的柱子
+
+*****
+
+####  都谷捻柏  
+##### 85632#       发表于 2021-12-26 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">羡慕拐齐全的，啥都没有的我，只能靠伊吹自己打，两个辅助加起来一共提供50加攻，还每自buff高
+
