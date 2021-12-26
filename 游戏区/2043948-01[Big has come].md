@@ -6174,3 +6174,14 @@ UU可以`UU加速STEAM不是免费的吗
 这不很明显某些企业勾结地方运营商，特意在大促的时候搞了一波dns污染么。。。这有啥好纠结的。。。 ...</blockquote>
 明显个P张口就来，这玩意是DNS污染么？
 
+
+
+*****
+
+####  Kazuhira  
+##### 578#       发表于 2021-12-26 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54042010&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-25 18:06</a>
+这帖子现在完全没有参考的价值了，就是傻逼狗洞大师VS傻逼恨国觉青，一点踏马干活也没有，也没有人 ...</blockquote>
+更搞的是，当初劝他们拿出解决办法那些人，还会被扣帽子识别成两方里其中一方，一起按着打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
