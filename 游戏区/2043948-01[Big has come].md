@@ -5862,3 +5862,21 @@ g*w有生之年能拆么。。</blockquote>
 
 偶尔能看看冬促主页 商店界面从来都进不去
 
+
+
+*****
+
+####  黑雪姫  
+##### 545#       发表于 2021-12-26 11:23
+
+这贴这么建政狗叔不杀几个头是想让论坛再次关一个月吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk此方  
+##### 546#       发表于 2021-12-26 11:31
+
+是不是还看地区 人在江西这两天压根没见过118<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

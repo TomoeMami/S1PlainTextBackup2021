@@ -3511,3 +3511,15 @@ maya库洛：库洛子的小虎牙太棒了。。。<img src="https://static.sar
 
 露女士虽然重力输给了恋哥哥，但是那段revue是特别好的病娇素材<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 261#       发表于 2021-12-26 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54048887&amp;ptid=2043629" target="_blank">damian-wade 发表于 2021-12-26 11:14:30</a>
+看完了，抹布洗</blockquote>其实是给走剧情的时间太少了，revue一个小时，补完恋哥哥的形象半个小时，实际上走剧情的时间只有不到半个小时，所以只能把矛盾核心的毕业线走了，光看剧情确实会觉得比较单调，不过嘛，看少鸽谁看剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

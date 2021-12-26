@@ -15832,3 +15832,38 @@ cm太公的台词除最后你为何在此，都出现了，希望最后不会机
 
 伊吹是真的好用，就是我自己卡不行，每天的剧情还要贴条令咒给伊吹满血
 
+
+
+*****
+
+####  zakki  
+##### 85485#       发表于 2021-12-26 11:32
+
+不止是伊吹强啊，是马修的黑枪强，开一发后马修甚至能单挑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85486#       发表于 2021-12-26 11:34
+
+ 本帖最后由 zakki 于 2021-12-26 11:36 编辑 
+
+越来越怪了，名字是柯杨斯卡娅：beast IV，怎么这么着重强调这个beast IV，总感觉越来越像我之前说的那样，柯杨斯卡娅有两体，一个是beast IV，一个是beast V。
+又或者是beast IV后面打了个问号，现在的柯杨斯卡娅已经是beast IV＋beast V的形态了吗
+
+*****
+
+####  发条提灯  
+##### 85487#       发表于 2021-12-26 11:39
+
+beast IV＋beast V=九尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85488#       发表于 2021-12-26 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54049099&amp;ptid=1085254" target="_blank">发条提灯 发表于 2021-12-26 11:39</a>
+beast IV＋beast V=九尾</blockquote>
+就是4+5=9啊，我不是一直这么说吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
