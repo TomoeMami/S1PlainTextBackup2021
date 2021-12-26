@@ -1129,3 +1129,54 @@ EE0DE2BF-7165-442C-86ED-83F38D37C3D8.png
 
 其他人万一中了，第二回合术呆也能解弱体
 
+
+
+*****
+
+####  qixinno2  
+##### 85604#       发表于 2021-12-26 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54053803&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-26 19:58</a>
+
+院院单独显现加精神异常耐性
+
+不怕晕吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是的 我也没说怕 就是说下那技能随机而不是看血量
+
+*****
+
+####  森兰丸  
+##### 85605#       发表于 2021-12-26 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">雪藏多年的2宝枪狐终于有机会上场了...带战斗服奥伯龙梅林A狐....一脚下去170万左右
+
+*****
+
+####  angelooo  
+##### 85606#       发表于 2021-12-26 20:08
+
+<blockquote>khxooo 发表于 2021-12-26 18:55
+伊吹几宝？如果1宝求个队伍。</blockquote>
+刚看到，用的洗牌服W杀狐，伊吹带的倍卡五星礼装，不过感觉还是你现在用的那个福利多阵容会好些，宝具防一手对面眩晕暴击
+
+*****
+
+####  sosgame67  
+##### 85607#       发表于 2021-12-26 20:12
+
+才反应过来水杀三破造型才是克制<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难怪我3宝作业一直抄不对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  在海岸  
+##### 85608#       发表于 2021-12-26 20:14
+
+T1拍个板砖就行了，还能省掉对面平A时间，T2放恐怖T3不会晕
+
+*****
+
+####  v22325  
+##### 85609#       发表于 2021-12-26 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">打不动了  看明天起来还在不在吧
+

@@ -1772,3 +1772,26 @@ co宝波了，静子过来臊皮<img src="https://static.saraba1st.com/image/smi
 
 这下只能去其他女人房间sc聊天惹
 
+
+
+*****
+
+####  Quark  
+##### 4685#       发表于 2021-12-26 20:13
+
+静姨也来冰火二台是吧 真就拿另一个手机看冰火？
+
+*****
+
+####  T型钉宫病毒  
+##### 4686#       发表于 2021-12-26 20:15
+
+送的台式电脑，电压不够开不了机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 4687#       发表于 2021-12-26 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">电压不够是什么鬼啊
+
