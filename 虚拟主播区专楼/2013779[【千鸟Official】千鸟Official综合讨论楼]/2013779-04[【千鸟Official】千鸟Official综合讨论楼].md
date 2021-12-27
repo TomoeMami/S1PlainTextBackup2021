@@ -2028,3 +2028,14 @@ co要五天连播8小时<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tankai  
+##### 4716#       发表于 2021-12-27 16:58
+
+WOC,艾瑞思前几天有个征集新年愿望活动,我还写了一篇陋文发过去,结果昨晚在文静那臊皮把这茬儿忘记了.刚想起来去搜千鸟录播.看见有读我的信了.好亏啊.<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+注;在文静那儿臊皮好危险（SC不想给）。发弹幕还会被人举报<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">。
+

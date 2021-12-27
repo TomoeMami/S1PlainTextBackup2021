@@ -7357,3 +7357,26 @@ syl
 
 姐你也太实诚了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nrnl  
+##### 9615#       发表于 2021-12-27 16:44
+
+笑死，反应过来了但没完全反应是吧
+
+*****
+
+####  あのん  
+##### 9616#       发表于 2021-12-27 16:45
+
+hololive滚出中国！
+
+*****
+
+####  dybang  
+##### 9617#       发表于 2021-12-27 16:53
+
+没汉化组炎上不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道能搞成一个组么，毕竟新进来不少路人，不会读空气的
+
