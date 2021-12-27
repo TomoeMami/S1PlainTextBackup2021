@@ -749,3 +749,38 @@ Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万�
 
 结果投了大把钱发现都被各路贪污了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  犀利  
+##### 76#       发表于 2021-12-27 08:33
+
+结果就是cia发现懂中国的全都不可信任喽
+
+毕竟信息黑洞，懂了的瞬间就被同化了对吧。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  last_regret  
+##### 77#       发表于 2021-12-27 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058061&amp;ptid=2044214" target="_blank">半分宅 发表于 2021-12-27 03:30</a>
+所以你觉得RT这些俄宣平时都在干啥？</blockquote>
+那除了保守派外有西方有多少人对俄国抱有好感呢
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  卡爹  
+##### 78#       发表于 2021-12-27 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055759&amp;ptid=2044214" target="_blank">雪地白狼 发表于 2021-12-26 22:23</a>
+“社会信用分”，外网喜欢用这个表达镰刀锤子主义国家的高压统治，你做了什么就会导致扣分从而生活受到限制 ...</blockquote>
+啥？社会信用体系不是公知高华嘴里西方的优越性代表吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1950A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

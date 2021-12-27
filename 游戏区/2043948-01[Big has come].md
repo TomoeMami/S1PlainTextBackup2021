@@ -7347,3 +7347,38 @@ UU的加速，302设置里除了社区还可以添加一个商店也能进<img s
 
 四就是胡搅蛮缠，试图搅浑“被墙”的定义以及狗洞大师这一荣誉头衔本身的定义，最近几页的回复大都如此
 
+
+
+*****
+
+####  HOLIDAY  
+##### 680#       发表于 2021-12-27 08:26
+
+可能是我那句话伤害到小心肝儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但这贴能在自尊心的作用下一直置顶我乐见其成啊
+
+*****
+
+####  路西恩  
+##### 681#       发表于 2021-12-27 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055713&amp;ptid=2043948" target="_blank">dragrass 发表于 2021-12-26 22:20</a>
+我记得当时对pixiv的套路就是先dns污染，改dns可以访问
+然后慢慢的改dns或者hosts也访问不了了</blockquote>
+智力全花在这种地方，只能祝病魔早日战胜它了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  木架穷奇  
+##### 682#       发表于 2021-12-27 08:33
+
+我想请问以后会不会发展到连steamcommunity 302都不能连上的情况？
+
+*****
+
+####  Geyorkias  
+##### 683#       发表于 2021-12-27 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">商店域名社区域名啥的都好解决，怕就是下载CDN都迁出去墙掉，那是真的麻烦
+

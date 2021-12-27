@@ -1802,3 +1802,21 @@ YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.
 
 翻车点为狐狸在1T 2T低概率放恐惧把妖兰晕了
 
+
+
+*****
+
+####  UNISONIA  
+##### 85665#       发表于 2021-12-27 08:31
+
+万万没想到T0打手其实是龙姐（弗栗多）……
+
+浣浣和妖兰都只能靠边站，尤其是妖兰还容易吃晕
+
+*****
+
+####  zore  
+##### 85666#       发表于 2021-12-27 08:38
+
+2宝90妖兰紧急上班,孩子打的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
