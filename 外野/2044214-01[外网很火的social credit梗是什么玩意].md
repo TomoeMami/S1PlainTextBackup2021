@@ -712,3 +712,16 @@ RT是俄罗素的新闻媒体
 
 在加拿大的我 也经常听同事问我这个 只是我也是很懵逼完全不知道是啥
 
+
+
+*****
+
+####  上将郝萌  
+##### 73#       发表于 2021-12-27 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057270&amp;ptid=2044214" target="_blank">aji47 发表于 2021-12-27 00:30</a>
+确确实实造成了负面影响。你在外网辩护中国。
+白皮猪就会来一句 social credt+10000
+瞬间结束对话 ...</blockquote>
+这不就跟5毛/5美金/5卢布到账了一样，普通的亮屁股台词<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
