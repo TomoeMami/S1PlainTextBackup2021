@@ -1883,3 +1883,31 @@ YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.
 布妹哪有什么T0，一出就被四星值班……</blockquote>
 T0指的是福利多
 
+
+
+*****
+
+####  khxooo  
+##### 85673#       发表于 2021-12-27 10:36
+
+打了73条，收工了。有个想法，如果杀狐是通古斯的时候才诞生，那么她为什么知道这么多事情。会不会是源自她头顶那颗杀生石，所以这也导致她的外貌和气息都这么像狐狸。
+
+*****
+
+####  poor  
+##### 85674#       发表于 2021-12-27 10:38
+
+1宝妖兰满破黑杯，我没有狐狸所以都是单狐，前面用的奥狐摩，摩带NP礼装，第一回合垫个摩根宝具，脚打，第二回合开换人服加攻，低概率打不死右边的，随便补一刀（或者你愿意牺牲妖兰20NP被动点个对枪特攻），问题就是晕跟NP不够，NP愿意算大概还有办法，晕的话，我打了1个免晕，两个净化纹章都逃不了。摩根不知道能不能换杀狐，虽然逆克制但是有特攻，但是增伤可能没有摩根多
+
+被制裁几次以后研究了个比较麻烦的枪龙娘CAR米拉阵容，CAR米拉没开被动需要满破宝石，有人需要我再写吧，因为真的很麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好处是比较无脑，不用补刀，应该不会被制裁，因为我还没遇到过最黑的情况，不知道能不能打死
+
+*****
+
+####  都谷捻柏  
+##### 85675#       发表于 2021-12-27 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54059559&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-27 10:23</a>
+
+T0指的是福利多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦，看错了，刷傻了
+

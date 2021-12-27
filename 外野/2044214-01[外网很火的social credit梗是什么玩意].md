@@ -947,3 +947,12 @@ N年前看帖子：
 
 当年我觉得这是老红脖子没见识，现在只觉得姜果然是老的辣<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一顿王八拳  
+##### 95#       发表于 2021-12-27 10:26
+
+其实想一想，人家白皮特别是老美很多都信福音的，本身就是一群反智的东西，连身边的科学都不相信的沙皮就不要期待他们能对根本见不到的海对岸有什么真实理解了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
