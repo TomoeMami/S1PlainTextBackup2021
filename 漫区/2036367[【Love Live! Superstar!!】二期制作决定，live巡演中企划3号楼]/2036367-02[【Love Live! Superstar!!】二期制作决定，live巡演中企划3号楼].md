@@ -12773,3 +12773,67 @@ live卡农周边最先卖完与其说是卡农的人气不如说是小百合的�
 重量级</blockquote>
 第二个是谁
 
+
+
+*****
+
+####  Blackson  
+##### 2534#       发表于 2021-12-27 11:22
+
+找管人宣传也算是顺应潮流了
+想起隔壁爱马仕闪耀色彩也是找彩虹社的管人来参与宣传
+
+*****
+
+####  stygian  
+##### 2535#       发表于 2021-12-27 11:23
+
+ 本帖最后由 stygian 于 2021-12-27 11:24 编辑 
+
+roland这种臭傻逼还是别沾了把。。。找德龙挺好
+
+元牛郎现投资家，靠做杀猪盘骗女人钱财发家
+
+*****
+
+####  优妮可  
+##### 2536#       发表于 2021-12-27 11:23
+
+<blockquote>chenflyyy 发表于 2021-12-27 11:19
+第二个是谁</blockquote>
+著名牛郎
+
+*****
+
+####  蜜梨柑  
+##### 2537#       发表于 2021-12-27 11:24
+
+怎么不找隔壁j家宫田小哥<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2538#       发表于 2021-12-27 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54060402&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-27 11:23</a>
+著名牛郎</blockquote>
+牛郎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2539#       发表于 2021-12-27 11:35
+
+<blockquote>chenflyyy 发表于 2021-12-27 11:28
+牛郎怎么看都跟宅宅搭不上边，找这个干嘛，真不如管人</blockquote>
+不清楚，想引一波牛郎女粉？反正人品要是有问题那边网友会骂的。只要官方不找那些立场屁股有问题的人，我都可以接受。
+
+*****
+
+####  stygian  
+##### 2540#       发表于 2021-12-27 11:38
+
+ROLAND前几年就赚够了不做牛郎现在主页投资副业上节目做艺人，大小的确是个有名人，虽然定位也就穷人版GACKT
+
+牛郎这行本身就有原罪，和キャバ嬢还不一样，做牛郎基本就是赚黑心钱，但是日本社会本身性别格差就大不太在意这个
+

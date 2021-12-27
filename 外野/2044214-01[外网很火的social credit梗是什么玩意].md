@@ -1017,3 +1017,18 @@ N年前看帖子：
 “天哪，中国竟然 ...</blockquote>
 记得一个国人分享去美国南方小镇玩，对方直接“Holy shit！你眼睛比我眼睛都大！”
 
+
+
+*****
+
+####  last_regret  
+##### 101#       发表于 2021-12-27 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54059991&amp;ptid=2044214" target="_blank">轮太 发表于 2021-12-27 10:54</a>
+还是有点作用，美帝保守派大佬们又不会给底下红脖子讲俄国的情况
+
+但是从这几年观察看不少基层白右已经快 ...</blockquote>
+我意思就是争取保守派，无论是上层还是基层的好感没啥意义
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
