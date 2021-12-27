@@ -7928,3 +7928,47 @@ oh，觉醒人终于想起来人民啦？
 
 — from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
+
+
+*****
+
+####  超赛锡纸烫  
+##### 728#       发表于 2021-12-27 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066056&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-27 19:02</a>
+
+态度审查本来是狗洞大师先搞的，最开始大家只是在喷墙，没有也不可能有任何理由去喷翻墙的人。
+
+这时候有些 ...</blockquote>
+故事编的不错，唯一的漏洞是，我翻了一下近期的s1，你说的“先跳出来攻击他人”的“有些觉得自己会翻墙就很屌的人”在哪里呢？
+
+我看到或表示自己能访问steam，或猜测是不是负载问题，或认为steam不是google不会被完全ban之类的人的发言莫名被觉醒人扣上“狗洞”帽。不知道这些人是怎么攻击到了“他人”，还是觉醒人不能容忍别人哪怕就steam可及性问题单纯表达自己的看法和设想？还是别人在觉醒人面前只能这么卑微这么顺从不能有差异化的看法？
+
+这一串发言下来，觉醒人对自己的逻辑自洽都修正了不知道多少版本了，不过话又说回来了，不知道连觉醒人兜售的红药丸也吞了的我又是“觉得自己会翻墙就很屌”呢还是“先跳出来攻击他人”呢还是触了“觉醒人”不为人知的逆鳞呢？所以要被想方设法要扣一顶帽子还不够，又是大搞超级加辈年龄出警，还得劳您拿出引以为豪的那点性张力来尝试“性冒犯”？顺便为觉醒人的品味格调加油。
+
+*****
+
+####  zashou  
+##### 729#       发表于 2021-12-27 21:57
+
+ 本帖最后由 zashou 于 2021-12-27 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067998&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-27 21:52</a>
+
+故事编的不错，唯一的漏洞是，我翻了一下近期的s1，你说的“先跳出来攻击他人”的“有些觉得自己会翻墙就 ...</blockquote>
+小公举您的意思是你翻不到就没有对吧，在您用棉花糖和奶瓶装点起来的美好世界里，你所知道的一切就是世界的边界，你没看到不是你无知和你懒，是不存在噢。<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+那要不要，我翻给你看好不嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+以及我不知道别人的逻辑是什么，我没有修正过自己的逻辑。而且，这楼里的大部分人，我看他们也没修正过自己的逻辑，从头到尾就是你自己跳进来对着你脑海里的“觉醒人”疯狂高潮而已，我都不认识你是谁。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+而且我也不是第一，第二甚至第三第四个点你的，你都被人点到-70鹅了，我可1鹅没动过你。对不起，我们都不够老成，没法包容你的任性呢。<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+*****
+
+####  节艾司  
+##### 730#       发表于 2021-12-27 22:00
+
+<blockquote>中已矣 发表于 2021-12-27 18:37
+是觉青-觉醒青年，这用觉醒人来代感觉就很变扭。吵架的两边感觉是在双簧戏。 ...</blockquote>
+跟前几天nga有个贴子“觉醒的人越来越多了”有关吧
+

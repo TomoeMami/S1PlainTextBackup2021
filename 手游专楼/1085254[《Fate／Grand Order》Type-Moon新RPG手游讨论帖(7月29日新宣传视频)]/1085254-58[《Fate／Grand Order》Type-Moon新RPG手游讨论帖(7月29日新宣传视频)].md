@@ -2257,3 +2257,49 @@ T0指的是福利多</blockquote>
 
 没注意被裁怪坑掉了好几次毅力
 
+
+
+*****
+
+####  qixinno2  
+##### 85711#       发表于 2021-12-27 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067603&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-27 21:17</a>
+
+不，我一点都不心疼，不如说很高兴，我讨厌他，我希望永远都抽不到他 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超阳电子炮  
+##### 85712#       发表于 2021-12-27 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">打的我好难受
+
+*****
+
+####  v22325  
+##### 85713#       发表于 2021-12-27 21:46
+
+ 本帖最后由 v22325 于 2021-12-27 21:47 编辑 
+
+上来debuffnp减半……辅助+np都减半……拉了太公望红叶狼王妖兰一顿宝具乱轰打死了
+
+*****
+
+####  angelooo  
+##### 85714#       发表于 2021-12-27 21:48
+
+ 本帖最后由 angelooo 于 2021-12-27 21:52 编辑 
+
+np减半这个恶心死了，还有那个尺子小怪
+
+对了还有强化成功率下降，这尼玛的拼脸是吧
+
+*****
+
+####  sosgame67  
+##### 85715#       发表于 2021-12-27 21:57
+
+第一把误打误撞最后一条血被裁阶小怪全员即死了，后续重来老是翻车，我还是等攻略（令咒）吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
