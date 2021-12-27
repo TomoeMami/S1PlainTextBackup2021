@@ -7981,3 +7981,22 @@ oh，觉醒人终于想起来人民啦？
 
 我epic也连不上了，不过应该是我这边网络问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  codecloud  
+##### 732#       发表于 2021-12-27 22:30
+
+奇怪,我这边今天又正常了,再观察几天,看到底是老外过耶诞节狂欢的锅还是老爷的锅
+
+*****
+
+####  lemuever17  
+##### 733#       发表于 2021-12-27 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54068423&amp;ptid=2043948" target="_blank">codecloud 发表于 2021-12-27 22:30</a>
+
+奇怪,我这边今天又正常了,再观察几天,看到底是老外过耶诞节狂欢的锅还是老爷的锅 ...</blockquote>
+不可能是冬促的锅，挂个梯子就能正常访问怎么可能是冬促的锅
+

@@ -1213,3 +1213,26 @@ N年前看帖子：
 
 他们黑这个Social Credit 系统的时候忘了自己不也是每天活在Transunion这种credit check agency的控制下？
 
+
+
+*****
+
+####  crystalspire  
+##### 117#       发表于 2021-12-27 22:32
+
+白皮吃了文化亏，美国英国对中国是单向信息透明的，中国人去了解英语信息很容易；反过来白皮会中文的没几个，天天听轮子和台巴子造谣，想想感觉真可怜
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  xiaoba329  
+##### 118#       发表于 2021-12-27 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54068437&amp;ptid=2044214" target="_blank">crystalspire 发表于 2021-12-27 22:32</a>
+
+白皮吃了文化亏，美国英国对中国是单向信息透明的，中国人去了解英语信息很容易；反过来白皮会中文的没几个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为这群高华和国内的精神高华，中美整天打低端局。
+
+再看看冷战时期的美苏，真的是有种——老美你对华才这点了解，是不是瞧不起我们的感觉？
+

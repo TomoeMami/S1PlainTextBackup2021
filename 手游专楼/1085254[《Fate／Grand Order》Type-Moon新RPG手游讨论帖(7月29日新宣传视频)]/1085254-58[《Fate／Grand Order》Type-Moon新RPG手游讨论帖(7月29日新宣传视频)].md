@@ -2328,3 +2328,26 @@ np减半这个恶心死了，还有那个尺子小怪
 
 我总共大概是狼王2发 太公望1发 红叶2发 马修一发 妖兰两发
 
+
+
+*****
+
+####  exiaexa  
+##### 85718#       发表于 2021-12-27 22:36
+
+为了看剧情懒得动脑子直接砸了令咒
+
+结果打完告诉我明天见
+
+亏爆
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vacuumsword  
+##### 85719#       发表于 2021-12-27 22:44
+
+看到有拿c狐单挑的，诅咒毒死杀兔
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

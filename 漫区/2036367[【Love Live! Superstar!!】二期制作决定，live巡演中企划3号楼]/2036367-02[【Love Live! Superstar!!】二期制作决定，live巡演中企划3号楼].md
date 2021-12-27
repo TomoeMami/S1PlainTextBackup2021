@@ -13174,3 +13174,34 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 鲤鱼应该不会不知道可能出现中华炮的情况，就这样还专门出来拉票，我怀疑是不是staff跟她说赢了的有奖励啊 ...</blockquote>
 不止她啊，每个人都出来拉票了。就是例行工商
 
+
+
+*****
+
+####  lj205  
+##### 2580#       发表于 2021-12-27 22:26
+
+是不是明天有个广播节目
+
+
+
+*****
+
+####  D麦林  
+##### 2581#       发表于 2021-12-27 22:35
+
+（NSFW相关
+我看最近的更新怎么感觉Tem10江郎才尽了
+越来越没有以前那种惊艳感和跨界感了
+（还是单纯我被这种肉块组成的视觉冲击搞审美疲劳了
+
+*****
+
+####  chenflyyy  
+##### 2582#       发表于 2021-12-27 22:37
+
+ 本帖最后由 chenflyyy 于 2021-12-27 22:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54068374&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-27 22:26</a>
+是不是明天有个广播节目</blockquote>
+只知道有周常的裂垃圾，这周是鲤鱼，sayu和nako，三团那个是29号吧，对29号<img src="https://p.sda1.dev/3/603af51ca42bce4faaf33ffdf51335a3/IMG_CMP_111474243.jpeg" referrerpolicy="no-referrer">
+
