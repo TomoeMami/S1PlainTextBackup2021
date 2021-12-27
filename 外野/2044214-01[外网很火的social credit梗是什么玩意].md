@@ -866,3 +866,52 @@ Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万�
 
 ----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  厨具战士  
+##### 87#       发表于 2021-12-27 09:25
+
+他们只是讨厌中国这个国家，并不讨厌中国人吧。
+
+*****
+
+####  xiaoba329  
+##### 88#       发表于 2021-12-27 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一部分是，但是更多的二者一样讨厌。
+
+*****
+
+####  爱尔米娜  
+##### 89#       发表于 2021-12-27 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+真是这样的话英国留学生就不会被人爆头了，白皮猪新冠死得没优越性了这不得找个地方输出。还有那个美国猪说拿中国人头盖骨当凳子的，早点认清盎撒匪帮真面目<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Alexmacau8  
+##### 90#       发表于 2021-12-27 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老话术了，它们只讨厌CPC，不讨厌中国人民。
+
+
+
+*****
+
+####  边缘中心  
+##### 91#       发表于 2021-12-27 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+“（一大堆针对xxx的歧视言论），我不是歧视xx，我有很多xx朋友”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

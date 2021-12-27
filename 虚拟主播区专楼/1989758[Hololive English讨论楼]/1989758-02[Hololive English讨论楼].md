@@ -664,3 +664,23 @@ bae的cupcake有点像隔壁的iron mouse<img src="https://static.saraba1st.com/
 
 艹。。发cover提前说啊
 
+
+
+*****
+
+####  smy20011  
+##### 1566#         楼主| 发表于 2021-12-27 09:43
+
+bae不愧是星的铁粉。。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 1567#         楼主| 发表于 2021-12-27 09:43
+
+bae不愧是星的铁粉。。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

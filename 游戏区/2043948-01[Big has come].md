@@ -7468,3 +7468,49 @@ UU的加速，302设置里除了社区还可以添加一个商店也能进<img s
 
 这次被针对了应该是肯定的，但是完美这么久还没把保护费交齐才是让人担心的。
 
+
+
+*****
+
+####  dragrass  
+##### 693#       发表于 2021-12-27 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058911&amp;ptid=2043948" target="_blank">lyt77777 发表于 2021-12-27 09:23</a>
+这次被针对了应该是肯定的，但是完美这么久还没把保护费交齐才是让人担心的。 ...</blockquote>
+17年那次持续了几个月，最后弃了社区
+
+而且现在完美有什么动力交保护费？反正csgo和dota2两个亲儿子在蒸汽平台
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  D麦林  
+##### 694#       发表于 2021-12-27 09:32
+
+现在还觉得完美能有用吗 我从之前开始就觉得完美能量其实根本没有那么大了（
+
+上次弃了社区 这次还有啥好弃的 再弃只能把国际版国区彻底弃了
+
+好歹现在UU还能免费加速 但也不知道能持续多久 真的铁了心要来搞你的话这么大的漏洞肯定不会放着不管
+
+*****
+
+####  dragrass  
+##### 695#       发表于 2021-12-27 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058903&amp;ptid=2043948" target="_blank">dragrass 发表于 2021-12-27 09:22</a>
+我刚才连续浏览了半个小时没啥问题，坐标深圳电信
+
+应该是自24号晚间以来浏览时间最长的一次</blockquote>
+还是不行，坚持了四十多分钟<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  4600  
+##### 696#       发表于 2021-12-27 09:43
+
+蒸汽平台可不是摆设而已！哈哈哈！
+
