@@ -2029,3 +2029,19 @@ T0指的是福利多</blockquote>
 
 看解包数据，两个nega技能，对妲己特攻正好50%，我的一体两兽的猜测可能性又增加了一丢丢，不过鉴于只剩两节了，除非开真2.65，不然很难想象有什么大展开啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85689#       发表于 2021-12-27 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54065793&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-27 18:38</a>
+
+看解包数据，两个nega技能，对妲己特攻正好50%，我的一体两兽的猜测可能性又增加了一丢丢，不过鉴于只剩两 ...</blockquote>
+你忘了光点吗？
+
+明显就是这个
+
+等出妲己
+
