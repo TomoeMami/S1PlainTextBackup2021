@@ -8713,3 +8713,32 @@ https://mobile.twitter.com/kingkanko/status/1475013515928760322
 
 该线下了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mikumiku831  
+##### 7010#       发表于 2021-12-27 12:08
+
+<img src="https://img.saraba1st.com/forum/202112/27/120757yzp8opxovp2jtdpm.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20211227120520.jpg</strong> (248.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 12:07 上传
+
+mea suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|没想到还有人真天天听管人唱歌啊.|
+
+查看全部评分
+

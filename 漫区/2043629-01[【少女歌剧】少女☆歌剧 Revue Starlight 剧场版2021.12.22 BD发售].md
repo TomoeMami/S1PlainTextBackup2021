@@ -4280,3 +4280,23 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 纯纯的ATF太强了，蕉哥这风（疯）格 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽说如此，看到纯那哭的时候，我还是很不厚道的笑出了声。。。
 
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 327#       发表于 2021-12-27 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057640&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-27 01:08</a>
+怎么回事 咋没有杭州啊
+
+这是在哪个论坛看到的 NGA？</blockquote>
+NGA和萌战吧都有线下观影群的帖子
+
+*****
+
+####  阿卡拉兰斯  
+##### 328#       发表于 2021-12-27 12:07
+
+加一个深圳的<img src="https://p.sda1.dev/3/f15ce4811b16caad3b4c8e7dab36ad99/IMG_CMP_150697757.jpeg" referrerpolicy="no-referrer">
+
