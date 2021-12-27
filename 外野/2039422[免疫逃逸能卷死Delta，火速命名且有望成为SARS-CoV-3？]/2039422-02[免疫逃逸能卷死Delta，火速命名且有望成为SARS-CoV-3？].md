@@ -8547,3 +8547,33 @@ rna进了细胞后，只要细胞没死就会不停复制吧，但如果只有�
 https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247486975&amp;idx=1&amp;sn=3d6932379b651344a2c448ac69 ...</blockquote>
 庄时利和那种外国疫苗无敌派是肯定不会转相关的论文的
 
+
+
+*****
+
+####  Dreki  
+##### 2223#       发表于 2021-12-27 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54044890&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-25 21:44</a>
+
+https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
+
+33人聚会，全打了三针BNT，感染21例[f:0 ...</blockquote>
+实在太好笑了
+
+*****
+
+####  creymorgan  
+##### 2224#       发表于 2021-12-27 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54062176&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-27 13:32</a>
+
+庄时利和那种外国疫苗无敌派是肯定不会转相关的论文的</blockquote>
+这恰恰是疫苗派的武器呀
+
+按照焦虑的方向理解，这意味着感染过即便临床痊愈也会在神经系统留根，水痘因为终身免疫，所以就算留根也无法侵入引发全身感染只能沿着寄宿的神经来一溜带状疱疹。
+
+新冠可不是终身免疫，那冒出来的就不是局部炎症了，按照水痘-带状疱疹的复发节奏再配合新冠不同年龄层的症状，那就是青年感染得轻症，老年复发得重症。
+
+按这个逻辑得过新冠的人，无论是否大环境是否新冠流行，都必须要终生间隔性接种保持抗体水平，这对疫苗来说是多大的利润啊。
+
