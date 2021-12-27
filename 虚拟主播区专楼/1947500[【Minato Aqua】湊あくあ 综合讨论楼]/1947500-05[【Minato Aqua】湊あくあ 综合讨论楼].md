@@ -16264,3 +16264,14 @@ Subaru: 感觉夸夸在Nene面前像妈一样，却天天什么事情都来找�
 
 那可以肯定最近会播mc了吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7333#       发表于 2021-12-27 12:49
+
+现在MC找得到人吗，都在高强度马车，还有马上到期的宝
+
+马车不赶紧练到时候小组赛都出不去又要哭
+

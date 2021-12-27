@@ -1052,3 +1052,51 @@ N年前看帖子：
 
 但是外宣继续做的好的话，可能以后就会选上来真心亲俄的人了
 
+
+
+*****
+
+####  犀利  
+##### 103#       发表于 2021-12-27 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25:43</a>
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>什么古墓派说法<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  雷囧羊  
+##### 104#       发表于 2021-12-27 12:50
+
+曾经鬼佬同事就玩过这个梗
+
+最早我还解释一下征信和蚂蚁分
+
+后来就“啊对对对”，浪费时间
+
+*****
+
+####  last_regret  
+##### 105#       发表于 2021-12-27 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54061441&amp;ptid=2044214" target="_blank">轮太 发表于 2021-12-27 12:40</a>
+这怎么会没意义呐
+
+懂王上台前两年普京那叫一个爽啊
+
+懂王可能是有把柄在KGB手里</blockquote>
+保守派最后还是会回到America first的路子上的
+而且真吸引保守派的那些东西和国内也没啥关系
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Dreki  
+##### 106#       发表于 2021-12-27 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055722&amp;ptid=2044214" target="_blank">miao123177 发表于 2021-12-26 22:20</a>
+发帖减刑确有其事 不过是让服刑人员去控评 算劳动行为 给你争取减刑 你在监狱正常劳动 不惹事也会给你争取 ...</blockquote>
+五毛一条不是当年南大校内论坛定体问太多，学校找人控评五毛一条么，我是听我们老师说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

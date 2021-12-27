@@ -812,3 +812,22 @@ EP.7艾克暴打金克丝没被选上，有点可惜。离谱的是流媒体一�
 
 音乐没提名确实挺耐人寻味的
 
+
+
+*****
+
+####  第二十三个马甲  
+##### 3064#       发表于 2021-12-27 12:46
+
+ost集齐了，等下放链接
+
+*****
+
+####  彩虹肥宅  
+##### 3065#       发表于 2021-12-27 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54061526&amp;ptid=2002246" target="_blank">第二十三个马甲 发表于 2021-12-27 12:46</a>
+
+ost集齐了，等下放链接</blockquote>
+/dev diary: World of Arcane 有这个预告视频在40秒的时候开始的bgm吗
+
