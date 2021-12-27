@@ -7972,3 +7972,12 @@ oh，觉醒人终于想起来人民啦？
 是觉青-觉醒青年，这用觉醒人来代感觉就很变扭。吵架的两边感觉是在双簧戏。 ...</blockquote>
 跟前几天nga有个贴子“觉醒的人越来越多了”有关吧
 
+
+
+*****
+
+####  李喜睡  
+##### 731#       发表于 2021-12-27 22:22
+
+我epic也连不上了，不过应该是我这边网络问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

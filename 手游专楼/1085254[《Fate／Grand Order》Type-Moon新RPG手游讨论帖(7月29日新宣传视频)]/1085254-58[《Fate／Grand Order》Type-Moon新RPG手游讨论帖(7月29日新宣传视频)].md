@@ -2303,3 +2303,28 @@ np减半这个恶心死了，还有那个尺子小怪
 
 第一把误打误撞最后一条血被裁阶小怪全员即死了，后续重来老是翻车，我还是等攻略（令咒）吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 85716#       发表于 2021-12-27 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067945&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-27 21:48</a>
+
+np减半这个恶心死了，还有那个尺子小怪
+
+对了还有强化成功率下降，这尼玛的拼脸是吧</blockquote>
+其他还好，强化成功下降这个是最致命的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85717#       发表于 2021-12-27 22:04
+
+ 本帖最后由 v22325 于 2021-12-27 22:07 编辑 
+
+其实战续发动有+np  都上魔兽类型多放宝具就行了 普通攒一个  战续发一个 中间第几管血就有耐性下降了  太公望放后面再上  
+
+我总共大概是狼王2发 太公望1发 红叶2发 马修一发 妖兰两发
+

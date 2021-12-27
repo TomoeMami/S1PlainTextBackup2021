@@ -4552,3 +4552,16 @@ JC那么阳光的恋哥哥虽然是装的，但这Topstar的底子装出来根�
 搜了一下台词没搜到 难道是原创的？ ...</blockquote>
 好像说宝冢有
 
+
+
+*****
+
+####  stevenzero  
+##### 349#       发表于 2021-12-27 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067553&amp;ptid=2043629" target="_blank">Acatv 发表于 2021-12-27 21:12</a>
+问一下开头华恋和纯那排练的是哪部戏啊 有没有原型的 突然很感兴趣
+搜了一下台词没搜到 难道是原创的？ ...</blockquote>
+从NGA看来的
+<img src="https://p.sda1.dev/3/594cd3d98c218da1c3fb97d83d16e2b3/IMG_CMP_151176317.jpeg" referrerpolicy="no-referrer">
+

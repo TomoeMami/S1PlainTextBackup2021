@@ -13163,3 +13163,14 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 于是投了堇<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 2579#       发表于 2021-12-27 22:18
+
+<blockquote>名津流 发表于 2021-12-27 21:31
+鲤鱼应该不会不知道可能出现中华炮的情况，就这样还专门出来拉票，我怀疑是不是staff跟她说赢了的有奖励啊 ...</blockquote>
+不止她啊，每个人都出来拉票了。就是例行工商
+

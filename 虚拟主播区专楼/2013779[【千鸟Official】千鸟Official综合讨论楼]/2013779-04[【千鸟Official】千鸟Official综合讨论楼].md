@@ -2048,3 +2048,12 @@ WOC,艾瑞思前几天有个征集新年愿望活动,我还写了一篇陋文发
 
 co宝今天11还是12个小时了吧，属于是我没上班她先上工，我吃完饭她才下班了
 
+
+
+*****
+
+####  rgauss  
+##### 4718#       发表于 2021-12-27 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">思思看这节目说这别墅说是80平，实际上送了有不少面积吧
+
