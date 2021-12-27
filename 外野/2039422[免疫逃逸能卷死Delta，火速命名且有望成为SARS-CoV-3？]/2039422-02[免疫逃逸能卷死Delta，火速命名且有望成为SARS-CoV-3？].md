@@ -8577,3 +8577,40 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 
 按这个逻辑得过新冠的人，无论是否大环境是否新冠流行，都必须要终生间隔性接种保持抗体水平，这对疫苗来说是多大的利润啊。
 
+
+
+*****
+
+####  charse2r  
+##### 2225#       发表于 2021-12-27 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54062446&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-27 13:53</a>
+
+这恰恰是疫苗派的武器呀
+
+按照焦虑的方向理解，这意味着感染过即便临床痊愈也会在神经系统留根，水痘因为 ...</blockquote>
+不不不，他们的意思是国外疫苗无敌可以和病毒共存，你中国的不行怪不得不敢共存，所以他们是不敢面对共存的可怕后果的。
+
+*****
+
+####  smy20011  
+##### 2226#       发表于 2021-12-27 14:13
+
+这世界上没有没打过疫苗的国家了吧，抗体没用还有其他免疫机制，你以为两针mrna，几乎没有抗体，能减少重症是怎么来的
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 2227#       发表于 2021-12-27 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54062645&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-27 14:09</a>
+
+不不不，他们的意思是国外疫苗无敌可以和病毒共存，你中国的不行怪不得不敢共存，所以他们是不敢面对共存 ...</blockquote>
+这论文对跟这观点不冲突吧
+
+冲突的是自然得病派的观点，得病和接种结果都一样，接种还不知道打进去啥。
+
+如果焦虑属实，那么就是不一样，疫苗实现的免疫不会落根，得病会。
+

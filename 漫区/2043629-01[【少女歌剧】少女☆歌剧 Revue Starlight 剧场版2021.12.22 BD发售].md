@@ -4351,3 +4351,31 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 
 杭州的，还没想好该怎么组织，总之先建个群吧<img src="https://p.sda1.dev/3/f428942df1a81390a2594297e4c744a4/IMG_CMP_258457931.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_2  
+##### 333#       发表于 2021-12-27 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">草，怎么这么多线下观影，刚回老家的嗦不出话
+
+*****
+
+####  saverok  
+##### 334#       发表于 2021-12-27 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蕉哥哥还好看上的是纯那，内心比较坚定那种
+
+要是看上小光这种跑路党不知道这故事会扭成啥样
+
+*****
+
+####  Mc凉月奏酱  
+##### 335#       发表于 2021-12-27 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54062749&amp;ptid=2043629" target="_blank">JustW_2 发表于 2021-12-27 14:19</a>
+
+草，怎么这么多线下观影，刚回老家的嗦不出话</blockquote>
+你在哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">窝进去看了几个，最起码都得排到一二月份以后去
+
