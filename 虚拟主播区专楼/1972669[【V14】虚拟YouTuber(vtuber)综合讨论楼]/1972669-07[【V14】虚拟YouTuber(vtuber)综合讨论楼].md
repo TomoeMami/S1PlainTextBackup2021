@@ -7594,3 +7594,22 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 
 虾最近接连做主办，这就是之前（半年前）说过的努力的结果？
 
+
+
+*****
+
+####  Ketestrait  
+##### 9639#       发表于 2021-12-27 22:56
+
+补充：
+
+特典相关
+<img src="https://tvax2.sinaimg.cn/large/7c16af6bly1gxss62sdtyj20yx0jiadx.jpg" referrerpolicy="no-referrer">
+<img src="https://tva2.sinaimg.cn/large/7c16af6bly1gxss6l9h1mj20z00jlq5v.jpg" referrerpolicy="no-referrer">
+
+被联系出书的契机：在阿喵喵的MC图书馆企划里写的两个短篇被看到了
+<img src="https://tva4.sinaimg.cn/large/7c16af6bly1gxss7i5al4j20yx0jowia.jpg" referrerpolicy="no-referrer">
+
+帮助提供三题的队友们，提供的点子已全部写进书里
+<img src="https://tva4.sinaimg.cn/large/7c16af6bly1gxss7n569hj20yz0jnq6h.jpg" referrerpolicy="no-referrer">
+

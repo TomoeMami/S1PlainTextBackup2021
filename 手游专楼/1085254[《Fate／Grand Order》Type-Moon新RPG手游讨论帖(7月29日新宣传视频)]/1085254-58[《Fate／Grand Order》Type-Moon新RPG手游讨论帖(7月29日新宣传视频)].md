@@ -2351,3 +2351,29 @@ np减半这个恶心死了，还有那个尺子小怪
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  alucardcz  
+##### 85720#       发表于 2021-12-27 22:50
+
+<img src="https://img.saraba1st.com/forum/202112/27/225022q150tf3xi2ictkc1.jpg" referrerpolicy="no-referrer">
+
+<strong>23.jpg</strong> (573.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 22:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第1把用了条令咒结果翻车了。。第2把。差一点点再次翻车
+
+*****
+
+####  仰望神的括约肌  
+##### 85721#       发表于 2021-12-27 23:01
+
+试了两把 用了条令咒 过了 
+
+心得 拐就别上了 兽科从者拉满再带个马修打他妈的 妖兰狼王福利多助战伊吹 最后排的c狐都还没大施拳脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
