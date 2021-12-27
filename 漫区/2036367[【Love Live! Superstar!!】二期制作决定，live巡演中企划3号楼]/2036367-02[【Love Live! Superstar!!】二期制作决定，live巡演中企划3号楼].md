@@ -13205,3 +13205,14 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 是不是明天有个广播节目</blockquote>
 只知道有周常的裂垃圾，这周是鲤鱼，sayu和nako，三团那个是29号吧，对29号<img src="https://p.sda1.dev/3/603af51ca42bce4faaf33ffdf51335a3/IMG_CMP_111474243.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2583#       发表于 2021-12-27 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54068510&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2021-12-27 22:37</a>
+只知道有周常的裂垃圾，这周是鲤鱼，sayu和nako，三团那个是29号吧，对29号 ...</blockquote>
+谢谢，加上30号的，看来春晚前每天都有节目
+

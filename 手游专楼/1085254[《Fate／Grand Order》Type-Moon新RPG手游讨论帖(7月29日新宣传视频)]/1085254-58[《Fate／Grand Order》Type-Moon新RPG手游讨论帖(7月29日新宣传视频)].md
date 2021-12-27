@@ -2377,3 +2377,14 @@ np减半这个恶心死了，还有那个尺子小怪
 
 心得 拐就别上了 兽科从者拉满再带个马修打他妈的 妖兰狼王福利多助战伊吹 最后排的c狐都还没大施拳脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 85722#       发表于 2021-12-27 23:23
+
+没用令咒过了，前三条血用水杀c狐双呆磨掉，最后一条血妖兰单刷。真是今年第一阴间本<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
