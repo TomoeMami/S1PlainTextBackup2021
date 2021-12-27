@@ -12379,3 +12379,28 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 
 2021-12-27 11:03 上传
 
+
+
+*****
+
+####  saya1892  
+##### 2430#       发表于 2021-12-27 11:17
+
+这集日常部分确实不错，战斗反正一直就是那个样
+
+不过这是一路奔着分离END去了吗？flag简直都没地方插了啊
+
+
+
+*****
+
+####  暗黑能乐  
+##### 2431#       发表于 2021-12-27 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54060308&amp;ptid=1963832" target="_blank">saya1892 发表于 2021-12-27 11:17</a>
+
+这集日常部分确实不错，战斗反正一直就是那个样
+
+不过这是一路奔着分离END去了吗？flag简直都没地方插了啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">会不会来点让小朋友内心蒙上阴影的变成泡沫之类的
+

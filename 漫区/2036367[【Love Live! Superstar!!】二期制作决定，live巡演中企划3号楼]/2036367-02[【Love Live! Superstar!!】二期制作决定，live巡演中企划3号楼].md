@@ -12738,3 +12738,38 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 
 live卡农周边最先卖完与其说是卡农的人气不如说是小百合的人气，但如果只论动画唐可可比较高也毫不奇怪。
 
+
+
+*****
+
+####  lj205  
+##### 2531#       发表于 2021-12-27 11:06
+
+ 本帖最后由 lj205 于 2021-12-27 11:11 编辑 
+
+自删了，不想再讨论这些。
+
+*****
+
+####  优妮可  
+##### 2532#       发表于 2021-12-27 11:14
+
+<img src="https://img.saraba1st.com/forum/202112/27/111426esiqxg78rza3z6g7.jpg" referrerpolicy="no-referrer">
+
+<strong>20211227_110402.jpg</strong> (343.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 11:14 上传
+
+重量级
+
+*****
+
+####  chenflyyy  
+##### 2533#       发表于 2021-12-27 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54060255&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-27 11:14</a>
+重量级</blockquote>
+第二个是谁
+

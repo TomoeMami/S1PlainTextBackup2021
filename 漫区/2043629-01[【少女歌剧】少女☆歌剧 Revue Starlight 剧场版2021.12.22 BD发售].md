@@ -4266,3 +4266,17 @@ Pixiv上确实有人做了两张EVA风的海报，还挺好看。而且上映的
 看完剧场我对蕉纯这对的感觉进一步变成了特别扭曲天才x心智极端坚定
 纯纯的ATF太强了，蕉哥这风（疯）格换一般人真扛不住
 
+
+
+*****
+
+####  暗黑能乐  
+##### 326#       发表于 2021-12-27 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54059433&amp;ptid=2043629" target="_blank">尚风悦 发表于 2021-12-27 10:15</a>
+
+看完剧场我对蕉纯这对的感觉进一步变成了特别扭曲天才x心智极端坚定
+
+纯纯的ATF太强了，蕉哥这风（疯）格 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽说如此，看到纯那哭的时候，我还是很不厚道的笑出了声。。。
+

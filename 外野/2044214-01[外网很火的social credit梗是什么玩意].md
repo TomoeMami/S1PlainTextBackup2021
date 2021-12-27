@@ -991,3 +991,29 @@ N年前看帖子：
 他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
 早年公知也是说爱__不爱__，现在大家都知道这帮人是个什么货色了
 
+
+
+*****
+
+####  Rapids  
+##### 99#       发表于 2021-12-27 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055931&amp;ptid=2044214" target="_blank">laotoutou 发表于 2021-12-26 22:37</a>
+
+看美国人讨论中国的信用分，仿佛看到一群猪圈里的猪在嘲笑栏外面的人要被做成红烧肉。。 ...</blockquote>
+是“一盘红烧肉看着猪圈里的猪在玩猪会被做成什么的meme”
+
+*****
+
+####  Rapids  
+##### 100#       发表于 2021-12-27 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54059441&amp;ptid=2044214" target="_blank">品味有问题 发表于 2021-12-27 10:15</a>
+
+N年前看帖子：
+
+有个中国人到美国南方偏僻小镇去玩，那里有个老红脖子第一次见到中国人。
+
+“天哪，中国竟然 ...</blockquote>
+记得一个国人分享去美国南方小镇玩，对方直接“Holy shit！你眼睛比我眼睛都大！”
+
