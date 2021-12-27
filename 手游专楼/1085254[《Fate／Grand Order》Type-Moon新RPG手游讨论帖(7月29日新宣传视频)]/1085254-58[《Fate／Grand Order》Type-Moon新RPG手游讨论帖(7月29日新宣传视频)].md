@@ -1959,3 +1959,37 @@ T0指的是福利多</blockquote>
 
 周一看来大家都很忙啊，击杀速率不高，估计要打到晚上六七点了...
 
+
+
+*****
+
+####  沼蝇  
+##### 85681#       发表于 2021-12-27 14:48
+
+神马情况，我才发现学妹90级了，我火星了多长时间？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 85682#       发表于 2021-12-27 15:18
+
+妲己：你高扬斯卡娅能顶芙芙的号，我顶不了你的号？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沼蝇  
+##### 85683#       发表于 2021-12-27 15:20
+
+翻页
+
+*****
+
+####  不垃圾屌丝  
+##### 85684#       发表于 2021-12-27 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54063084&amp;ptid=1085254" target="_blank">沼蝇 发表于 2021-12-27 14:48</a>
+神马情况，我才发现学妹90级了，我火星了多长时间？</blockquote>
+2.6通关开90级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
