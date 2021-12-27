@@ -7877,3 +7877,30 @@ oh，觉醒人终于想起来人民啦？
 
 为什么这贴从外面看比里面少了八十多楼
 
+
+
+*****
+
+####  afer  
+##### 725#       发表于 2021-12-27 21:13
+
+ 本帖最后由 afer 于 2021-12-27 21:19 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/27/211346moq8z696va8adq2a.jpg" referrerpolicy="no-referrer">
+
+<strong>41c464061d950a7b45fa04144fd162d9f0d3c95b.jpg</strong> (296.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 21:13 上传
+
+<img src="https://img.saraba1st.com/forum/202112/27/211341cm7mmllai7r1jjmj.gif" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211227211258.gif</strong> (529.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 21:13 上传
+
+转贴吧，🐴爸爸来乐。
+

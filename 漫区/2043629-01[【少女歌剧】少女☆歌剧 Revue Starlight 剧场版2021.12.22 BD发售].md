@@ -4532,3 +4532,23 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 恋光这对怎么说呢，阿光罪大恶极，把Topstar级别的恋哥哥玩成了重女，但要是恋哥哥不是个重女她就成不了Topstar<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 JC那么阳光的恋哥哥虽然是装的，但这Topstar的底子装出来根本就是大杀四方啊。阿光你真有种，这么放心。
 
+
+
+*****
+
+####  Acatv  
+##### 347#       发表于 2021-12-27 21:12
+
+问一下开头华恋和纯那排练的是哪部戏啊 有没有原型的 突然很感兴趣
+搜了一下台词没搜到 难道是原创的？
+
+*****
+
+####  rainknine  
+##### 348#       发表于 2021-12-27 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067553&amp;ptid=2043629" target="_blank">Acatv 发表于 2021-12-27 21:12</a>
+问一下开头华恋和纯那排练的是哪部戏啊 有没有原型的 突然很感兴趣
+搜了一下台词没搜到 难道是原创的？ ...</blockquote>
+好像说宝冢有
+

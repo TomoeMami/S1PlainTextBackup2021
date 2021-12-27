@@ -2166,3 +2166,24 @@ T0指的是福利多</blockquote>
 
 这最终战啥情况，本来剩个狼王叠了一大串降最大HP的DEBUFF准备投了，然后发现对面打我不掉血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85702#       发表于 2021-12-27 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067433&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-27 21:03</a>
+
+这最终战啥情况，本来剩个狼王叠了一大串降最大HP的DEBUFF准备投了，然后发现对面打我不掉血 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你骗我 萌新带了个狼王进去直接翻车了
+
+*****
+
+####  khxooo  
+##### 85703#       发表于 2021-12-27 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067197&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-27 20:44</a>
+竟然没奥宝 有点惨</blockquote>
+不，我一点都不心疼，不如说很高兴，我讨厌他，我希望永远都抽不到他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
