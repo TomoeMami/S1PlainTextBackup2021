@@ -13244,3 +13244,12 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 2586#       发表于 2021-12-27 23:46
+
+跟少歌没啥好比的吧，少歌也不是吹剧情，就是那个意识流演出好看，换到拉拉这里不就是live做的好看点咯。
+

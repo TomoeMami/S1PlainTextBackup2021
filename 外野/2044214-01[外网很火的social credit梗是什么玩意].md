@@ -1236,3 +1236,27 @@ N年前看帖子：
 
 再看看冷战时期的美苏，真的是有种——老美你对华才这点了解，是不是瞧不起我们的感觉？
 
+
+
+*****
+
+####  杉田悠一  
+##### 119#       发表于 2021-12-27 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+你认真的吗…
+一个小孩上左派全国级电视节目说杀光中国人的国家，你感觉会怎么样，
+以前混过几年英文社区，最岁月静好小确幸的imgur上我都看到过中国人就是该死类型的言论，
+4ch这样的黑洞就更憋提了，掉san值，
+
+*****
+
+####  薄皮破船  
+##### 120#       发表于 2021-12-28 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54055759&amp;ptid=2044214" target="_blank">雪地白狼 发表于 2021-12-26 22:23</a>
+
+“社会信用分”，外网喜欢用这个表达镰刀锤子主义国家的高压统治，你做了什么就会导致扣分从而生活受到限制 ...</blockquote>
+但是讲道理，中国人看到这个东西第一反应肯定是学习国外的（公知吹的国外）
+
