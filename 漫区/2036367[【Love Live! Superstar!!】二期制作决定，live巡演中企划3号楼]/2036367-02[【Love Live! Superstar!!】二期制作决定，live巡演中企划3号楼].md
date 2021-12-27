@@ -13064,3 +13064,35 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">未有拉票前已经投了几天了，希望最后结果能让鲤鱼姐开心一下，冲了
 
+
+
+*****
+
+####  kata魂  
+##### 2567#       发表于 2021-12-27 19:30
+
+看你们这么自信满满，看来要输惹
+
+*****
+
+####  优妮可  
+##### 2568#       发表于 2021-12-27 19:31
+
+开香槟咯
+
+*****
+
+####  cybernetics31  
+##### 2569#       发表于 2021-12-27 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ip轮着换每天投 怎么输
+
+*****
+
+####  damian-wade  
+##### 2570#       发表于 2021-12-27 19:33
+
+这玩意有没有传统中报的，有的话不必着急吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
