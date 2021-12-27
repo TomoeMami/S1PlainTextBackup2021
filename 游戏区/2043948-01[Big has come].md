@@ -8105,3 +8105,60 @@ steam真的亡了RIP
  ...</blockquote>
 真想要解决的话，可以花点时间折腾反代。
 
+
+
+*****
+
+####  精钢魔像  
+##### 743#       发表于 2021-12-28 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069962&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-28 01:41</a>
+
+真想要解决的话，可以花点时间折腾反代。</blockquote>
+这回反代也不行了
+
+我一直用群晖的反代连社区，现在也是动不动刷不出来
+
+*****
+
+####  Tring  
+##### 744#       发表于 2021-12-28 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069985&amp;ptid=2043948" target="_blank">精钢魔像 发表于 2021-12-28 01:47</a>
+
+这回反代也不行了
+
+我一直用群晖的反代连社区，现在也是动不动刷不出来</blockquote>
+我自己用的手制土炮能用。
+
+说明理论上是没问题的，肯定是哪里没弄对。
+
+*****
+
+####  Mcdull07  
+##### 745#       发表于 2021-12-28 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069447&amp;ptid=2043948" target="_blank">codecloud 发表于 2021-12-28 00:18</a>
+
+商店内游戏的页面一切正常,但下面评论区就不能看了.
+
+也许这就是温水煮青蛙了,先封社区,再封评论区,老爷们 ...</blockquote>
+自从发现评论区有一帮人致力于发某位的头像，我就觉得这这评论区迟早也会被阉割掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sssacpgdr  
+##### 746#       发表于 2021-12-28 03:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069788&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-28 01:05</a>
+
+不过说现在评论区有啥好看的，不是傻逼们承认自己是傻逼的评论，就是他妈有人发某位的符号图，如果 ...</blockquote>
+发符号图的不就是在动森那里得了甜头，再来复刻一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 747#       发表于 2021-12-28 05:25
+
+突然想到这样一来恐怕又要失去一个舆论阵地了，以前意见不合还能打打差评炮
+

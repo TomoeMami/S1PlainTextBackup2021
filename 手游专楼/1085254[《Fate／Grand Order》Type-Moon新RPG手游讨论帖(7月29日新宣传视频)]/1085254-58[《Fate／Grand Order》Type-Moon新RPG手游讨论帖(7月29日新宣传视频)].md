@@ -2491,3 +2491,14 @@ np减半这个恶心死了，还有那个尺子小怪
 
 令咒复活伊吹不敢开宝具就只能平a裁阶小怪，狐狸玩命回血用了三四回合才打死，要不是伊吹不吃宝具就得碎石头了
 
+
+
+*****
+
+####  zore  
+##### 85731#       发表于 2021-12-28 04:26
+
+钓鱼佬也就图一乐,真无敌还是东瀛小蛇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令咒都不用花
+
+最后一个ruler怪是真的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
