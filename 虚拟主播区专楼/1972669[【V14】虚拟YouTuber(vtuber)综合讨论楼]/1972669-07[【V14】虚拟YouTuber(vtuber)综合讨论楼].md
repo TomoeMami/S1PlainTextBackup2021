@@ -7316,3 +7316,44 @@ JP虹男是不是被分流挺多的，我看B站黑黑新曲热评一堆“常�
 
 又让4ch抓到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 9612#       发表于 2021-12-27 16:20
+
+ 本帖最后由 fastary 于 2021-12-27 16:25 编辑 
+
+草，这鱼钓的…你虹都这么久了都不知道跟liver提前科普这个最容易钓鱼的问题吗，什么废物运营<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">等等，这不是他今早刚搞完没多久就转链接可见了的那场直播吗，反应倒是挺快哈
+
+刚推特出道就fo了kson然后反应过来又取关的也是他吧，这么没心眼倒是很符合他的人设<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头小希  
+##### 9613#       发表于 2021-12-27 16:35
+
+ 本帖最后由 毛头小希 于 2021-12-27 16:39 编辑 
+
+这组en虹男里有两个憨憨
+
+一个是天真纯洁型憨憨，不论假不假的问题，至少大部分人都觉得可爱贴皮就够了，也不容易出事，顶多撕皮
+
+一个是上蹿下跳型憨憨，这种最容易夺人眼球男顶流也往往是这种比如king，但也最容易出事，你看这不就来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看后续处理吧，烧烧更健康的话也是虹人必经的道路之一了
+
+syl
+
+链接可见有多大用，该看到不是还能看到，真反应过来不应该像五等分舞元一样先锁定回炉一下么
+
+*****
+
+####  Ketestrait  
+##### 9614#       发表于 2021-12-27 16:38
+
+<img src="https://tva3.sinaimg.cn/large/7c16af6bly1gxshatdvr9j20n00k00ty.jpg" referrerpolicy="no-referrer">
+
+姐你也太实诚了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+

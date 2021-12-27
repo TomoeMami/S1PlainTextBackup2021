@@ -7723,3 +7723,33 @@ oh，觉醒人终于想起来人民啦？
 就是不知道steam用户代表人民呢，还是翻墙代表人民呢，还是用屈辱的表情翻 ...</blockquote>
 哪里人多哪里就是人民呀，你现在应该好好学习，争取考上高中。
 
+
+
+*****
+
+####  超赛锡纸烫  
+##### 711#       发表于 2021-12-27 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54063792&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-27 15:47</a>
+
+那你哈心态说一下嘛，光打滚有啥用呢？
+
+我问你三次了呀。</blockquote>
+哦呀？我在前面早就说了啊，我持开放观点啊，为什么又看不见呢？还求偶，这里是有什么性张力吗？
+
+人们为着各种原因，带着各种心情，用着各种方式访问和使用steam，有什么本质上的差别吗？
+
+吹皱一池春水，你管别人是什么用心态和态度在访问steam？干卿何事？
+
+做着一样的事情，却要搞态度审查，观点审判，代表这代表那，这样的搞法和行为不好笑不滑稽？
+
+*****
+
+####  超赛锡纸烫  
+##### 712#       发表于 2021-12-27 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54063956&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-27 16:00</a>
+
+哪里人多哪里就是人民呀，你现在应该好好学习，争取考上高中。</blockquote>
+很好，那保持用屈辱的表情使用steam的请举手，我们来数一数，来看看代表性。
+
