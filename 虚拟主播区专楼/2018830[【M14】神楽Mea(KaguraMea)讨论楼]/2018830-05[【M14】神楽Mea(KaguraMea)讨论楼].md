@@ -8778,3 +8778,37 @@ mea suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" re
 
 不过就算这么仔细看下来，今年我歌单前十可能也就针（无法算入次数）和きらり来源于这人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  专业划水人员  
+##### 7015#       发表于 2021-12-27 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">还有这事？
+
+IMG_20211227_160531.jpg
+(19.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202112/27/160609c7qfb078vf8svzvo.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  雪风utopia  
+##### 7016#       发表于 2021-12-27 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54064026&amp;ptid=2018830" target="_blank">专业划水人员 发表于 2021-12-27 16:07</a>
+还有这事？</blockquote>
+两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.shelter  
+##### 7017#       发表于 2021-12-27 16:25
+
+救命少女会咩咩的声线我好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
