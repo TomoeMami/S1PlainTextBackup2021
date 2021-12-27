@@ -13026,3 +13026,41 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 没啥 输了就表明拉拉在中国真就小众IP了
 
+
+
+*****
+
+####  lucksolo  
+##### 2563#       发表于 2021-12-27 18:45
+
+ 本帖最后由 lucksolo 于 2021-12-27 18:48 编辑 
+
+原来是谭友地址不对= =正确地址：[https://www.gamers.co.jp/special/harajuku_kanban/](https://www.gamers.co.jp/special/harajuku_kanban/)
+
+点开直接显示 已投。
+
+是我IP问题吗
+
+*****
+
+####  player3960  
+##### 2564#       发表于 2021-12-27 18:46
+
+输就输呗，本来就有机会，又不是德不配位刷票硬撑，反正选不选的上了她的谷子应该也不愁卖<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  chenflyyy  
+##### 2565#       发表于 2021-12-27 18:51
+
+人开店的还是清楚哪位角色的商品卖的比较快的，可可的商品经常是最早卖切的一个，当然希望中华炮来介入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 2566#       发表于 2021-12-27 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">未有拉票前已经投了几天了，希望最后结果能让鲤鱼姐开心一下，冲了
+

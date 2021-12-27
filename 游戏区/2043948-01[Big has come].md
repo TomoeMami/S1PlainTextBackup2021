@@ -7828,3 +7828,34 @@ oh，觉醒人终于想起来人民啦？
 
 国安法后那帮觉青不会分饰两角在唱戏文吧
 
+
+
+*****
+
+####  Cybellybanana  
+##### 721#       发表于 2021-12-27 18:55
+
+今天发现被墙后最难受的就是外区转回来了，开了梯子就回不来，不开梯子又打不开界面...
+
+*****
+
+####  zashou  
+##### 722#       发表于 2021-12-27 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54064304&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-27 16:32</a>
+
+哦呀？我在前面早就说了啊，我持开放观点啊，为什么又看不见呢？还求偶，这里是有什么性张力吗？
+
+人们为 ...</blockquote>
+态度审查本来是狗洞大师先搞的，最开始大家只是在喷墙，没有理由去喷翻墙的人。
+
+这时候有些觉得自己会翻墙就很屌的人过来说，你们有什么好喷的呢？你们不是还可以翻墙吗？你们这态度是什么垃圾？如果真的要封会让你们翻墙吗？现在你们可以翻墙出去还喷什么喷？
+
+然后这些人变成狗洞大师被打翻了，现在派出你这么一条出来表示：“你管我们用什么心态访问steam？”
+
+嘻嘻嘻，就这还开放的态度，还观点审判，没事继续装吧。确实好笑而且滑稽呢。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+重点从来不是你用什么心态上steam，重点在于明明是你们这些人先跳出来攻击他人，现在被按住抽了一顿，想要缩回去说别人审判你了？
+
+你活该呀～～<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

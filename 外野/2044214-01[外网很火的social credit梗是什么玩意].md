@@ -1142,3 +1142,36 @@ N年前看帖子：
 但是从这几年观察看不少基层白右已经快 ...</blockquote>
 后面那句，为啥？
 
+
+
+*****
+
+####  轮太  
+##### 111#       发表于 2021-12-27 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54065496&amp;ptid=2044214" target="_blank">王留美 发表于 2021-12-27 18:12</a>
+
+后面那句，为啥？</blockquote>
+共和党大佬们和白左穿一条裤子，那只能在敌人那里找精神慰藉了
+
+加上RT最擅长的就是输出YYGQ白左的内容短片
+
+*****
+
+####  last_regret  
+##### 112#       发表于 2021-12-27 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54065496&amp;ptid=2044214" target="_blank">王留美 发表于 2021-12-27 18:12</a>
+后面那句，为啥？</blockquote>
+你说一个反绿，反lgbt的硬汉形象领导(别管多少是真的)合不合右翼胃口？
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  xiaoba329  
+##### 113#       发表于 2021-12-27 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到白右和俄国，我现在已经有点搞不清楚白右拿波兰阴阳怪气白左的时候是真心觉得波兰干得不错（波兰的确也挺保守的），还是想借用波兰指代俄国。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我大概能理解到洋人如果懂中文在大陆论坛上看到一堆越南是啥心情了。
+

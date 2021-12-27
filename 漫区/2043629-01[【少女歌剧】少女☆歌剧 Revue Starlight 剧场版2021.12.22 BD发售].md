@@ -4451,3 +4451,22 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  stevenzero  
+##### 343#       发表于 2021-12-27 18:47
+
+终于能进楼了，终于在我这可怜的通勤时间里看完了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+燃尽了，这是何等媚宅又何等艺术啊，看片时一直在颤抖，我不知道接下来是什么情节，但是我就是知道，“观众想看的就是这个啊！”<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+在我心目中这片子才是终极的“宅的傲慢”，除了能自己领会的，根本就没办法往外推<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+场面no1 给英雄予试炼，给圣者予诱惑，而给我予你！
+场面no2 有种你就杀了我，大场奈奈！
+场面no3 好像喝了极烈的酒一样。
+
+这种美真是难以言表。特别是蕉哥哥，说了3遍台词没人接，最后还被人吐槽。这么尬的事在这里都是如此时髦。
+
