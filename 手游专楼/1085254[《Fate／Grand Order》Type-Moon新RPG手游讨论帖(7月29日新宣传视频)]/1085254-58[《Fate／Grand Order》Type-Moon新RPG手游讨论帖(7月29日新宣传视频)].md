@@ -2409,3 +2409,29 @@ np减半这个恶心死了，还有那个尺子小怪
 看明白了，这关就是按以前蓝卡磨队或者卖拐宝具爆破的打法就会恶心死，老老实实抱NPC大腿早早把学妹大炮轰 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我第1把翻在最后一管血没看小怪技能一个aoe我自己死了。。没注意看屏幕也没来得及sl。。
 
+
+
+*****
+
+####  newfaceryo  
+##### 85725#       发表于 2021-12-28 00:06
+
+ 本帖最后由 newfaceryo 于 2021-12-28 00:08 编辑 
+
+蓝卡队也没什么不能打的，c狐和c呆都挺硬的。
+
+没用系统助战没用学妹没有加成礼装纯蓝卡队瞎打也能打到最后一管血。
+
+然后就被尺子小兵坑了。坑了两次带了个狼王直接秒掉就过了。
+
+*****
+
+####  保罗赫伯特  
+##### 85726#       发表于 2021-12-28 00:12
+
+等了一发令咒，总算是把beastIV打过去了。最后那个裁定者职介小怪的即死buff真的是恶心，本身因为职介原因就很硬了，不快点解决的话杀狐又会给他回血，对光炮从者真的很不友好。sl了好多次才找到了避免伊吹被即死的世界线，让我想起了以前星战高难黑暗圆桌那个看脸的机制。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这次助战的伊吹是真的不错，buff多，伤害高，最后杀狐还有30多万，一张红卡加蓝卡暴击就结束了。另外，听人推荐上了马修，开一技能，在该回合选完卡之后确实会有哈贝喵出来放一炮，但伤害貌似是取决于学妹本身的练度，没怎么练过学妹，伤害就是刮痧了。<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+同前几楼的看法，建议在后排放一个仇阶从者，来针对最后一面那个裁定者职介的小怪。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

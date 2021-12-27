@@ -13253,3 +13253,37 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 跟少歌没啥好比的吧，少歌也不是吹剧情，就是那个意识流演出好看，换到拉拉这里不就是live做的好看点咯。
 
+
+
+*****
+
+####  普之舜舜  
+##### 2587#       发表于 2021-12-28 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069169&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-27 23:46</a>
+跟少歌没啥好比的吧，少歌也不是吹剧情，就是那个意识流演出好看，换到拉拉这里不就是live做的好看点咯。 ...</blockquote>
+少歌那叫一个震撼呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剧情方面其实挺不错的了，至少给人回想和解读。
+少女歌剧和拉拉都是偶像企划，花田和古川都是戴着枷锁跳舞的，但是古川却能在那么短的篇幅去描述9个人的故事，花田可以进步的地方挺多的了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  稀勢のささ  
+##### 2588#       发表于 2021-12-28 00:08
+
+非要比只能说这个剧场版古川GG让大部分粉丝开心了（大概） 
+
+花田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 加油吧
+
+*****
+
+####  优妮可  
+##### 2589#       发表于 2021-12-28 00:11
+
+<blockquote>普之舜舜 发表于 2021-12-28 00:07
+少歌那叫一个震撼呀剧情方面其实挺不错的了，至少给人回想和解读。
+
+少女歌剧和拉拉都是偶 ...</blockquote>
+又唱又跳，又打搞女同，又是飙血飞东京塔的。场面当然好看啦，你总不能让星团剧场开高达吧
+

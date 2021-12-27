@@ -8020,3 +8020,17 @@ steam真的亡了RIP
 
 先等冬促这阵过了再看吧，现在连创意工坊都抽起来了
 
+
+
+*****
+
+####  codecloud  
+##### 736#       发表于 2021-12-28 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54068570&amp;ptid=2043948" target="_blank">lemuever17 发表于 2021-12-27 22:43</a>
+
+不可能是冬促的锅，挂个梯子就能正常访问怎么可能是冬促的锅</blockquote>
+商店内游戏的页面一切正常,但下面评论区就不能看了.
+
+也许这就是温水煮青蛙了,先封社区,再封评论区,老爷们大概是不允许咱们屁民呱呱叫了吧
+
