@@ -7199,3 +7199,17 @@ NA时间？2000同接走起。美国人不行。
 
 mysta我没跟全但看repo好像是说过自己原来因为口音被霸凌过比较自闭没朋友，然后生活技能比较差。看过他展示off状态的切片，不是rp的话好像也能理解怎么有点menhera感……能组合转生出道挺好的
 
+
+
+*****
+
+####  caupollen  
+##### 9600#       发表于 2021-12-27 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058392&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-12-27 08:07</a>
+
+图片更新
+
+https://twitter.com/meemokie/status/1475194643638001664</blockquote>
+怎么vrlink也进去了
+

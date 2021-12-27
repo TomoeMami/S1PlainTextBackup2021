@@ -934,3 +934,16 @@ Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank"> 厨具战士 发表于 2021-12-27 09:25</a> 他们只是讨厌中国这个国家，并不讨厌中国人吧。 </blockquote>
 他们说的喜欢是一等人看二等人的优越，现在要平起平坐了直接<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">you are guilty！！！来自: iPhone客户端
 
+
+
+*****
+
+####  品味有问题  
+##### 94#       发表于 2021-12-27 10:15
+
+N年前看帖子：
+有个中国人到美国南方偏僻小镇去玩，那里有个老红脖子第一次见到中国人。
+“天哪，中国竟然是真实存在的！我以为只是宣传出来的假象。”
+
+当年我觉得这是老红脖子没见识，现在只觉得姜果然是老的辣<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

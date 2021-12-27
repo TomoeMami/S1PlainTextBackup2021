@@ -1872,3 +1872,14 @@ YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.
 布妹哪有什么T0，一出就被四星值班……</blockquote>
 而且加强都没有捞到，被运营当做不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 85672#       发表于 2021-12-27 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54059132&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-27 09:46</a>
+布妹哪有什么T0，一出就被四星值班……</blockquote>
+T0指的是福利多
+
