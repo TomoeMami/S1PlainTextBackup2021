@@ -4565,3 +4565,16 @@ JC那么阳光的恋哥哥虽然是装的，但这Topstar的底子装出来根�
 从NGA看来的
 <img src="https://p.sda1.dev/3/594cd3d98c218da1c3fb97d83d16e2b3/IMG_CMP_151176317.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angela5d30  
+##### 350#       发表于 2021-12-27 23:26
+
+回忆少女歌剧TV断片的时候想到大伙的''闪耀''是制定刀刃长短的因素，继而联想到纯那的武器是弓，而箭则是舞台提供的，把箭犹同名言金句般投射出去、好比闪耀就是半借来的，跟她那种喜欢靠他者的话语来支撑自己信念的性子很搭（虽然很惨，但是x）
+
+其实在九个人里我最喜欢的就是纯纯的，所以剧场版的处理真的完全是<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。纯那在revue里打灯大概率都打不到自己身上的，而''狩猎''对人来说也有备好武装去挑战野兽，这种类似自我挑战的象征意义在吧？那段带着自己名字的词汇搁在舞台灯光聚焦的角色之旁/后的演出真的越想越对味，能把这么简单的故事以这种形式来诠释，这真就是动画片才能搭建的架构。。。
+
+怎么这剧场版的后劲那么大的啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -2388,3 +2388,24 @@ np减半这个恶心死了，还有那个尺子小怪
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85723#       发表于 2021-12-27 23:32
+
+看明白了，这关就是按以前蓝卡磨队或者卖拐宝具爆破的打法就会恶心死，老老实实抱NPC大腿早早把学妹大炮轰掉然后上满加成从者瞎打反而容易过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 85724#       发表于 2021-12-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069052&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-27 23:32</a>
+
+看明白了，这关就是按以前蓝卡磨队或者卖拐宝具爆破的打法就会恶心死，老老实实抱NPC大腿早早把学妹大炮轰 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我第1把翻在最后一管血没看小怪技能一个aoe我自己死了。。没注意看屏幕也没来得及sl。。
+

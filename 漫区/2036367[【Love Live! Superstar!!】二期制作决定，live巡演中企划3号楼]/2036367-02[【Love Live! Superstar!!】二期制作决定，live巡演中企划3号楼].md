@@ -13216,3 +13216,31 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 只知道有周常的裂垃圾，这周是鲤鱼，sayu和nako，三团那个是29号吧，对29号 ...</blockquote>
 谢谢，加上30号的，看来春晚前每天都有节目
 
+
+
+*****
+
+####  普之舜舜  
+##### 2584#       发表于 2021-12-27 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54018107&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2021-12-20 18:03</a>
+这废话，因为这里是星团专楼啊，拉拉这种饭圈企划的主要战点不就是各团信者大战吗？  都在专楼里圈地自萌 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">楼外开始大战了
+[https://bbs.saraba1st.com/2b/thread-2044209-1-1.html](https://bbs.saraba1st.com/2b/thread-2044209-1-1.html)
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2585#       发表于 2021-12-27 23:25
+
+ 本帖最后由 普之舜舜 于 2021-12-27 23:33 编辑 
+
+希望星团的剧场版能做到有古川哥哥的《少女歌剧剧场版》一半精彩我就很满足了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+先在这里占一楼回头看看花田还能不能突破自己。
+什么群里有人说花田超越不了古川，两者都是带着枷锁跳舞的，希望花田给点力
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
