@@ -7159,3 +7159,34 @@ NA时间？2000同接走起。美国人不行。
 
 同接最强的是mysta，不过看前世好像精神状态一直很那啥，前世毕业的时候好多粉丝怕他是不是想不开要remake，这什么大不列颠menhera男<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 9598#       发表于 2021-12-27 08:07
+
+ 本帖最后由 SuntoryNomu 于 2021-12-27 08:09 编辑 
+
+图片更新
+
+<img src="https://img.saraba1st.com/forum/202112/27/080508kp4911254114984d.jpg" referrerpolicy="no-referrer">
+
+<strong>FHjxssTVUAATuj3.jpg</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 08:05 上传
+
+[https://twitter.com/meemokie/status/1475194643638001664](https://twitter.com/meemokie/status/1475194643638001664)
+
+9月旧图
+
+<img src="https://img.saraba1st.com/forum/202112/27/080901gydbtponyuoli5yc.jpg" referrerpolicy="no-referrer">
+
+<strong>FANCLvuVcAMA_DS.jpg</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 08:09 上传
+

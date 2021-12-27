@@ -725,3 +725,27 @@ RT是俄罗素的新闻媒体
 瞬间结束对话 ...</blockquote>
 这不就跟5毛/5美金/5卢布到账了一样，普通的亮屁股台词<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  鏡鑑星影  
+##### 74#       发表于 2021-12-27 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057733&amp;ptid=2044214" target="_blank">爱尔米娜 发表于 2021-12-27 01:24</a>
+国外好多本来就是唯心主义的，印度网民还说古印度和唐朝平起平坐呢</blockquote>
+唐朝负责起和坐，三哥负责平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  休達  
+##### 75#       发表于 2021-12-27 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54056753&amp;ptid=2044214" target="_blank">破罐子 发表于 2021-12-26 23:41</a>
+Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万的浏览，评论里一群弱智心疼中国老百姓，看的 ...</blockquote>
+造谣造太多连CIA都信了，都觉得中国人苦不堪言外面吹一口气就自动裂成八瓣。
+
+结果投了大把钱发现都被各路贪污了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
