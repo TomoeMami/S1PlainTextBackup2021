@@ -1100,3 +1100,23 @@ N年前看帖子：
 发帖减刑确有其事 不过是让服刑人员去控评 算劳动行为 给你争取减刑 你在监狱正常劳动 不惹事也会给你争取 ...</blockquote>
 五毛一条不是当年南大校内论坛定体问太多，学校找人控评五毛一条么，我是听我们老师说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dreki  
+##### 107#       发表于 2021-12-27 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+咋都快2022年了怎么还有这种话术，还是建议润出去看一看就知道他们到底讨厌什么了
+
+*****
+
+####  Vzero  
+##### 108#       发表于 2021-12-27 13:07
+
+<blockquote>厨具战士 发表于 2021-12-27 09:25
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+他们只是讨厌黄种人，顺便讨厌黄种人的国家
+

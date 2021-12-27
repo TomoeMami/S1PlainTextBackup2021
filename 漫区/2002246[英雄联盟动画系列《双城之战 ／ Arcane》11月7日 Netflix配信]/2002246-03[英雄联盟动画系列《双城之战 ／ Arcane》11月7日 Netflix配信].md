@@ -831,3 +831,15 @@ ost集齐了，等下放链接
 ost集齐了，等下放链接</blockquote>
 /dev diary: World of Arcane 有这个预告视频在40秒的时候开始的bgm吗
 
+
+
+*****
+
+####  第二十三个马甲  
+##### 3066#       发表于 2021-12-27 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54061663&amp;ptid=2002246" target="_blank">彩虹肥宅 发表于 2021-12-27 12:57</a>
+
+/dev diary: World of Arcane 有这个预告视频在40秒的时候开始的bgm吗</blockquote>
+来个视频链接
+

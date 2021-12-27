@@ -12868,3 +12868,21 @@ J社只能看缘分当自来水，没那么好请
 
 本人愿意事务所也不一定放
 
+
+
+*****
+
+####  pliee  
+##### 2544#       发表于 2021-12-27 13:09
+
+找roland还行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 2545#       发表于 2021-12-27 13:13
+
+那个管人应该不是什么猴楼的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正管人不怎么看哎
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

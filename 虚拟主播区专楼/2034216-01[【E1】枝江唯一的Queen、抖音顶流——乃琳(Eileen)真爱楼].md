@@ -4809,3 +4809,26 @@ https://b23.tv/A7wdEhX
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四季度上舰礼物还没拿，咋办呢，等不到50w纪念直播了
 
+
+
+*****
+
+####  sanlow666  
+##### 364#         楼主| 发表于 2021-12-27 13:06
+
+ 本帖最后由 sanlow666 于 2021-12-27 13:07 编辑 
+
+乃琳Queen:[发布动态](https://t.bilibili.com/608769386097111397)
+
+你，陷入我的甜蜜陷阱了吗？
+乃琳首支个人单曲《Sweet Counter》现已上线。
+（运营代发）
+
+<img src="https://img.saraba1st.com/forum/202112/27/130555kupbauxo8ciiyamz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 13:05 上传
+

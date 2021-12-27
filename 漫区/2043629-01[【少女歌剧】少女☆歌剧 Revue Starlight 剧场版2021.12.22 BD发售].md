@@ -4300,3 +4300,27 @@ NGA和萌战吧都有线下观影群的帖子
 
 加一个深圳的<img src="https://p.sda1.dev/3/f15ce4811b16caad3b4c8e7dab36ad99/IMG_CMP_150697757.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Boliva  
+##### 329#       发表于 2021-12-27 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">上海竟然没有~
+
+*****
+
+####  chenzhi11  
+##### 330#       发表于 2021-12-27 13:22
+
+上海有的
+
+<img src="https://img.saraba1st.com/forum/202112/27/132207k1kiab5ybf5sbdx8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>991AE754-F54F-4E63-A855-7F7C2CE37566.jpeg</strong> (214.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 13:22 上传
+
