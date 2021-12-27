@@ -12982,3 +12982,47 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">未有2期前这段时间内一切投票胜负应该都是伊達おじVS中华炮了
 
+
+
+*****
+
+####  saverok  
+##### 2557#       发表于 2021-12-27 18:27
+
+没墙？结果还需要看吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2558#       发表于 2021-12-27 18:30
+
+除非暗箱操作，线下票系数拉满，很难想象怎么输<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说这店还有官博的
+
+*****
+
+####  黑雪姫  
+##### 2559#       发表于 2021-12-27 18:30
+
+艹 GAMERS中国官方微博在宣传这次原宿店看板娘选举，连投票链接都写上了， 这是官方在邀请中华炮介入吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 2560#       发表于 2021-12-27 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们是不是自信了点，中华炮没干过本地热情大叔的例子不是没有啊
+
+*****
+
+####  lj205  
+##### 2561#       发表于 2021-12-27 18:35
+
+到时输了你们…………
+
+*****
+
+####  黑雪姫  
+##### 2562#       发表于 2021-12-27 18:38
+
+没啥 输了就表明拉拉在中国真就小众IP了
+

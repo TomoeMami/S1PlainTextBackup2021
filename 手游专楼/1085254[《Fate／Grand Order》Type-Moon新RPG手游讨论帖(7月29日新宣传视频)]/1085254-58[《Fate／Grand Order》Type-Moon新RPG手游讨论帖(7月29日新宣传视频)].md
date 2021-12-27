@@ -2020,3 +2020,12 @@ T0指的是福利多</blockquote>
 
 可以吃完晚饭了。
 
+
+
+*****
+
+####  zakki  
+##### 85688#       发表于 2021-12-27 18:38
+
+看解包数据，两个nega技能，对妲己特攻正好50%，我的一体两兽的猜测可能性又增加了一丢丢，不过鉴于只剩两节了，除非开真2.65，不然很难想象有什么大展开啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
