@@ -7305,3 +7305,14 @@ JP虹男是不是被分流挺多的，我看B站黑黑新曲热评一堆“常�
 
 虹人也要分新时代人和旧时代人了？
 
+
+
+*****
+
+####  OldGlory  
+##### 9611#       发表于 2021-12-27 16:00
+
+[https://streamable.com/z9dfhe](https://streamable.com/z9dfhe)
+
+又让4ch抓到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
