@@ -2187,3 +2187,73 @@ T0指的是福利多</blockquote>
 竟然没奥宝 有点惨</blockquote>
 不，我一点都不心疼，不如说很高兴，我讨厌他，我希望永远都抽不到他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  1a不解释  
+##### 85704#       发表于 2021-12-27 21:27
+
+为啥这最终战强化老是miss，看DEBUFF好像没有相关的呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  不垃圾屌丝  
+##### 85705#       发表于 2021-12-27 21:27
+
+抱着NPC太公望大腿打过去了，最后一条血学妹退场换了CBA上来正好对策即死
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  里村紅葉  
+##### 85706#       发表于 2021-12-27 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067576&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-27 21:14</a>
+
+你骗我 萌新带了个狼王进去直接翻车了</blockquote>
+我也没搞清楚状况不要学啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 85707#       发表于 2021-12-27 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067709&amp;ptid=1085254" target="_blank">1a不解释 发表于 2021-12-27 21:27</a>
+为啥这最终战强化老是miss，看DEBUFF好像没有相关的呀
+
+—— 来自 OnePlus GM1910, Android 10上的  ...</blockquote>
+看杀狐的BUFF，降40%呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  不垃圾屌丝  
+##### 85708#       发表于 2021-12-27 21:32
+
+封神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  qixinno2  
+##### 85709#       发表于 2021-12-27 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">瞎JB打 三划令咒复活过了 加BUFF各种MISS 开场充能DEBUFF也太恶心了
+
+*****
+
+####  KOBI  
+##### 85710#       发表于 2021-12-27 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弗呆狐打掉3条血最后伊吹上来补刀了
+
+接宝具那两回合术呆宝具很幸运没MISS
+
+没注意被裁怪坑掉了好几次毅力
+

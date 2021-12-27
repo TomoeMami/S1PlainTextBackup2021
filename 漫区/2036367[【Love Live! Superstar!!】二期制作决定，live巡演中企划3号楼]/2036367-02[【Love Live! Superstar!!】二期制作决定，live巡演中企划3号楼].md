@@ -13147,3 +13147,19 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 想抽对谈，但是感觉好耻<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 2577#       发表于 2021-12-27 21:31
+
+鲤鱼应该不会不知道可能出现中华炮的情况，就这样还专门出来拉票，我怀疑是不是staff跟她说赢了的有奖励啊？比如跟上次一样的可丽饼什么的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kos_mos  
+##### 2578#       发表于 2021-12-27 21:35
+
+于是投了堇<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+

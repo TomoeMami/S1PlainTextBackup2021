@@ -7904,3 +7904,27 @@ oh，觉醒人终于想起来人民啦？
 
 转贴吧，🐴爸爸来乐。
 
+
+
+*****
+
+####  1096beam  
+##### 726#       发表于 2021-12-27 21:23
+
+我愿望单怎么被清空了？有人和我一样吗？
+
+刚说完又有了，搞我心态啊
+
+*****
+
+####  dragrass  
+##### 727#       发表于 2021-12-27 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067668&amp;ptid=2043948" target="_blank">1096beam 发表于 2021-12-27 21:23</a>
+我愿望单怎么被清空了？有人和我一样吗？
+
+刚说完又有了，搞我心态啊</blockquote>
+应该是暂时没读出来
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+

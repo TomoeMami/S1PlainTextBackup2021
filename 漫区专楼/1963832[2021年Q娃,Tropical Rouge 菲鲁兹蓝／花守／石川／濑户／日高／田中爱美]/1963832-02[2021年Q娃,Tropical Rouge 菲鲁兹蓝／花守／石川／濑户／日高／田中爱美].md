@@ -12404,3 +12404,14 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 不过这是一路奔着分离END去了吗？flag简直都没地方插了啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">会不会来点让小朋友内心蒙上阴影的变成泡沫之类的
 
+
+
+*****
+
+####  红焖菠菜  
+##### 2432#       发表于 2021-12-27 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54060348&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-12-27 11:20</a>
+会不会来点让小朋友内心蒙上阴影的变成泡沫之类的</blockquote>
+无数狗大友都期待这一幕呢<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
