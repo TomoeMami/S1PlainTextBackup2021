@@ -7416,3 +7416,55 @@ UU的加速，302设置里除了社区还可以添加一个商店也能进<img s
 
 这种事别揣测别转进, 特定时间就会来一场的, 又不是头一次, 哪次封死门路了, 稍微用点心就能解决的事. 每年都要讨论1,2次累不累. 
 
+
+
+*****
+
+####  gugu153  
+##### 688#       发表于 2021-12-27 09:05
+
+屁民们是没有办法，但总要天天骂几句那些个鳖孙的
+
+*****
+
+####  shiroamada  
+##### 689#       发表于 2021-12-27 09:18
+
+我看了下我第一次转正是18年，这几年一直用，从没有遇到过本楼里说的，以前也经常这样
+
+*****
+
+####  dragrass  
+##### 690#       发表于 2021-12-27 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058865&amp;ptid=2043948" target="_blank">shiroamada 发表于 2021-12-27 09:18</a>
+我看了下我第一次转正是18年，这几年一直用，从没有遇到过本楼里说的，以前也经常这样 ...</blockquote>
+主要是14年和17年两次大崩
+那两次明显是被针对了，但是后来恢复了
+
+至于促销崩，我遇到过一两次，但没有遇到过崩的这么均匀而且持续的
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+*****
+
+####  dragrass  
+##### 691#       发表于 2021-12-27 09:22
+
+ 本帖最后由 dragrass 于 2021-12-27 09:23 编辑 
+
+我刚才连续浏览了半个小时没啥问题，坐标深圳电信<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+应该是自24号晚间以来浏览时间最长的一次
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  lyt77777  
+##### 692#       发表于 2021-12-27 09:23
+
+这次被针对了应该是肯定的，但是完美这么久还没把保护费交齐才是让人担心的。
+

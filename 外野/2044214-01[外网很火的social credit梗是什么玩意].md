@@ -826,3 +826,43 @@ Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万�
 
 当时我回答的是：“确实是真的，而且还能通过大数据预测你接下来24小时的行为举止”
 
+
+
+*****
+
+####  Fly_Fools  
+##### 83#       发表于 2021-12-27 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057396&amp;ptid=2044214" target="_blank">野上由加奈 发表于 2021-12-27 00:42</a>
+
+有一个十几年前公知们特别喜欢讲的经典故事说的是，有个德/法/英/美/日/澳/意国人半夜开车路过一个路口， ...</blockquote>
+这。。。前一段时间不是在批学生举报告密？这双标玩的溜啊
+
+*****
+
+####  上将郝萌  
+##### 84#       发表于 2021-12-27 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058524&amp;ptid=2044214" target="_blank">犀利 发表于 2021-12-27 08:33</a>
+结果就是cia发现懂中国的全都不可信任喽
+
+毕竟信息黑洞，懂了的瞬间就被同化了对吧。</blockquote>
+经典名片《摇尾狗》
+"电视说有战争，报纸说有战争，各大媒体都说有战争，所有人都说有战争，你（国防军官）说根本就没有，你觉得谁在撒谎？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"
+
+*****
+
+####  panda_vs_panda  
+##### 85#       发表于 2021-12-27 09:16
+
+他们的想象力太低下了，根本不用分
+
+*****
+
+####  绚烂航迹云  
+##### 86#       发表于 2021-12-27 09:23
+
+想太多，人有真拿钱的专门在互联网上造负面meme，没有这个也有其他的，不如自己造个一起玩咯
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
