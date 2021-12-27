@@ -12837,3 +12837,12 @@ ROLAND前几年就赚够了不做牛郎现在主页投资副业上节目做艺�
 
 牛郎这行本身就有原罪，和キャバ嬢还不一样，做牛郎基本就是赚黑心钱，但是日本社会本身性别格差就大不太在意这个
 
+
+
+*****
+
+####  cybernetics31  
+##### 2541#       发表于 2021-12-27 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么想都是隔壁J家小哥好啊…………企划现在是请不到？
+
