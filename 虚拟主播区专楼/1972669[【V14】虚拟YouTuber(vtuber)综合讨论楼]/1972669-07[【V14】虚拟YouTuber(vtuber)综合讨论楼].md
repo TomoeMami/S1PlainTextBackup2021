@@ -7644,3 +7644,12 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 
 足球工商感想：你虹的动捕房是真的大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十四洲  
+##### 9643#       发表于 2021-12-28 01:05
+
+刚看完虚研社动捕条件的表示唏嘘
+
