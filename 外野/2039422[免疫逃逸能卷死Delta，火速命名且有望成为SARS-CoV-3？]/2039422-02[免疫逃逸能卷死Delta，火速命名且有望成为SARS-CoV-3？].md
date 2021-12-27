@@ -8634,3 +8634,12 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  sjbssd  
+##### 2230#       发表于 2021-12-27 19:58
+
+精液变色主要是温度问题吧？你导出这个结果的时候慌不慌啊
+

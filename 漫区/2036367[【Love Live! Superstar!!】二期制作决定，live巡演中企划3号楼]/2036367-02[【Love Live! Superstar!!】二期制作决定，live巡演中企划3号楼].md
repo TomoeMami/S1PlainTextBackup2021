@@ -13096,3 +13096,36 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 2571#       发表于 2021-12-27 19:43
+
+挺想看鱼和爱香灯一起来个生放的
+
+*****
+
+####  emmer  
+##### 2572#       发表于 2021-12-27 19:47
+
+每天换IP投了几次，希望可可能胜出，让鲤鱼姐开心一下
+
+*****
+
+####  sjbssd  
+##### 2573#       发表于 2021-12-27 19:53
+
+这投票一点打击感都没有，也看不到现在多少票了，这不随便黑箱？快进到liyuu微博水溅跃屁用没有
+
+*****
+
+####  黑雪姫  
+##### 2574#       发表于 2021-12-27 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066603&amp;ptid=2036367" target="_blank">sjbssd 发表于 2021-12-27 19:53</a>
+
+这投票一点打击感都没有，也看不到现在多少票了，这不随便黑箱？快进到liyuu微博水溅跃屁用没有 ...</blockquote>
+你第一次投票？ 历届拉拉投票哪次透明过？
+
