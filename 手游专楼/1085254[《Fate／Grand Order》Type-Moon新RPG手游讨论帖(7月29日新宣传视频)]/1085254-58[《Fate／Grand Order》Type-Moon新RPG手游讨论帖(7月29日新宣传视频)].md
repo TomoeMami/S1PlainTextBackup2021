@@ -2131,3 +2131,38 @@ T0指的是福利多</blockquote>
 杀狐抽了，之后就没有出过了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这你半年有点短！
 
+
+
+*****
+
+####  qixinno2  
+##### 85698#       发表于 2021-12-27 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067099&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-27 20:37</a>
+
+杀狐抽了，之后就没有出过了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">竟然没奥宝 有点惨
+
+*****
+
+####  不垃圾屌丝  
+##### 85699#       发表于 2021-12-27 20:45
+
+终于倒了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  angelooo  
+##### 85700#       发表于 2021-12-27 20:58
+
+一天多终于死完了
+
+*****
+
+####  里村紅葉  
+##### 85701#       发表于 2021-12-27 21:03
+
+这最终战啥情况，本来剩个狼王叠了一大串降最大HP的DEBUFF准备投了，然后发现对面打我不掉血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
