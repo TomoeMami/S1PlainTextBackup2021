@@ -12886,3 +12886,35 @@ J社只能看缘分当自来水，没那么好请
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  zylwz  
+##### 2546#       发表于 2021-12-27 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54061886&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-27 13:13</a>
+
+那个管人应该不是什么猴楼的吧？反正管人不怎么看哎
+
+—— 来自 OPPO PDKM00, Android 11上 ...</blockquote>
+彩虹社的
+
+就以我之前还在看管人时的记忆来看 猴楼并没有什么特别铁的拉拉人 基本都是蹭热度的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+彩虹社那边倒是有几个铁粉
+
+*****
+
+####  D麦林  
+##### 2547#       发表于 2021-12-27 13:30
+
+是烂铁签约艺人 可能因此好请（
+
+*****
+
+####  player3960  
+##### 2548#       发表于 2021-12-27 13:36
+
+roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -4324,3 +4324,30 @@ NGA和萌战吧都有线下观影群的帖子
 
 2021-12-27 13:22 上传
 
+
+
+*****
+
+####  hlllter  
+##### 331#       发表于 2021-12-27 13:25
+
+苏州长颈鹿有兴趣的可以进来看看
+
+522040959
+
+DR9IN4D[$00DN5JS~85R{S0.jpg
+(81.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 13:25 上传
+
+<img src="https://img.saraba1st.com/forum/202112/27/132504ve1iv618enox0d0a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tsyan  
+##### 332#       发表于 2021-12-27 13:37
+
+杭州的，还没想好该怎么组织，总之先建个群吧<img src="https://p.sda1.dev/3/f428942df1a81390a2594297e4c744a4/IMG_CMP_258457931.jpeg" referrerpolicy="no-referrer">
+

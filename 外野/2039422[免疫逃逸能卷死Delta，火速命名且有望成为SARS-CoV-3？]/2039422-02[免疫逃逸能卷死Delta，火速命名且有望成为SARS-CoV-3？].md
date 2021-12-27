@@ -8535,3 +8535,15 @@ STD新冠！
 前面有超过31天在组织中检出sgRNA的，表明病毒仍存在复制。</blockquote>
 rna进了细胞后，只要细胞没死就会不停复制吧，但如果只有片段的话无法组成完整病毒，应该没有感染其他细胞的能力。
 
+
+
+*****
+
+####  charse2r  
+##### 2222#       发表于 2021-12-27 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057377&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-27 00:40</a>
+
+https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247486975&amp;idx=1&amp;sn=3d6932379b651344a2c448ac69 ...</blockquote>
+庄时利和那种外国疫苗无敌派是肯定不会转相关的论文的
+

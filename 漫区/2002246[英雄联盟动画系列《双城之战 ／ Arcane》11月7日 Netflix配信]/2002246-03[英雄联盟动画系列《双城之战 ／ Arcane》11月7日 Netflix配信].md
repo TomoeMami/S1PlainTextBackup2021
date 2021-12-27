@@ -843,3 +843,22 @@ ost集齐了，等下放链接</blockquote>
 /dev diary: World of Arcane 有这个预告视频在40秒的时候开始的bgm吗</blockquote>
 来个视频链接
 
+
+
+*****
+
+####  Siran_China  
+##### 3067#       发表于 2021-12-27 13:26
+
+OST不是QQ和网易云都已经上了吗，我都听了好几天了
+
+*****
+
+####  彩虹肥宅  
+##### 3068#       发表于 2021-12-27 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54061735&amp;ptid=2002246" target="_blank">第二十三个马甲 发表于 2021-12-27 13:02</a>
+
+来个视频链接</blockquote>
+[https://youtu.be/D9NoXdWn10s](https://youtu.be/D9NoXdWn10s) 国内转载的没找到
+
