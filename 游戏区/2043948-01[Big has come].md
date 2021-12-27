@@ -7580,3 +7580,72 @@ UU的加速，302设置里除了社区还可以添加一个商店也能进<img s
 
 和其他人做一样的事情，但是觉醒人钻狗洞就是钻出了格调钻出了风采，别人就是只是狗洞。
 
+
+
+*****
+
+####  zashou  
+##### 703#       发表于 2021-12-27 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54063012&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-27 14:42</a>
+
+啊哈哈哈，原来觉醒人也钻狗洞啊，明明干着和别人一样的事情，其他人以能访问steam自豪的发言我是没看到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">不不，觉醒人只是人而已。
+
+狗洞大师是大师。
+
+觉醒人觉得人不该钻狗洞。
+
+狗洞大师觉得只有钻狗洞的才是人。
+
+觉醒人觉得人不得不钻狗洞是一件让人遗憾的事。
+
+狗洞大师觉得会钻狗洞是一种天赐的福利。
+
+你就不必把所有钻狗洞的人等同于狗洞大师了。
+
+因为只有你们这种给墙叫好，给狗洞欢呼，并且以有狗洞可钻为名义叫人感恩的垃圾才是狗洞大师。
+
+其他人的脸皮够不上你的等级，大师混不上了。
+
+撑死了混个助教。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zashou  
+##### 704#       发表于 2021-12-27 14:59
+
+ 本帖最后由 zashou 于 2021-12-27 15:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54063012&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-27 14:42</a>
+
+啊哈哈哈，原来觉醒人也钻狗洞啊，明明干着和别人一样的事情，其他人以能访问steam自豪的发言我是没看到 ...</blockquote>
+狗洞大师意识到自己教化失败，惹了众怒了，这会儿想要混到人民中去啦？
+
+说着“墙都不会翻，还想玩游戏？”的你们这会儿想要把自己捆绑成大多数啦？
+
+说着“不是还可以翻墙吗？算什么封了？”的你们这会儿要说自己代表所有翻墙党啦？
+
+原来你也知耻啊？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+还你<strong>没看到</strong>，哈哈哈。
+
+*****
+
+####  超赛锡纸烫  
+##### 705#       发表于 2021-12-27 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54063172&amp;ptid=2043948" target="_blank">zashou 发表于 2021-12-27 14:56</a>
+
+不不，觉醒人只是人而已。
+
+狗洞大师是大师。
+
+觉醒人觉得人不该钻狗洞。</blockquote>
+我来翻译翻译：
+
+我钻狗洞，屈辱中带着不甘，不甘中捎着不舍，不舍中透着遗憾，所以我是高贵的觉醒人
+
+你们胆敢和我心态不同，面部表情不一致的，就是狗洞
+
+恭喜觉醒人进入论心不论迹的领域。宗教裁判所也到不了这高度啊
+
