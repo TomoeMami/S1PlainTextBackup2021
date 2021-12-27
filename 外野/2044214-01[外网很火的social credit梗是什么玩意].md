@@ -1032,3 +1032,23 @@ N年前看帖子：
 
 —— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  轮太  
+##### 102#       发表于 2021-12-27 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54060675&amp;ptid=2044214" target="_blank">last_regret 发表于 2021-12-27 11:40</a>
+
+我意思就是争取保守派，无论是上层还是基层的好感没啥意义
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的  ...</blockquote>
+这怎么会没意义呐
+
+懂王上台前两年普京那叫一个爽啊
+
+懂王可能是有把柄在KGB手里
+
+但是外宣继续做的好的话，可能以后就会选上来真心亲俄的人了
+

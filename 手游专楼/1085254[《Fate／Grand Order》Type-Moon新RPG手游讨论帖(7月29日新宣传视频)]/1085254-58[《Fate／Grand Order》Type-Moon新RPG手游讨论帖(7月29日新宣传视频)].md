@@ -1929,3 +1929,24 @@ T0指的是福利多</blockquote>
 
 怎么还没结束  不给力了 马丝塔们<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOBI  
+##### 85678#       发表于 2021-12-27 12:25
+
+更阴谋点说柯杨成兽这事可能有妲己的推动
+
+是借机来第五回复活战还是纯粹落下地有石片受影响呢。。
+
+*****
+
+####  gpx234mqx  
+##### 85679#       发表于 2021-12-27 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54060480&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-27 11:28</a>
+
+怎么还没结束  不给力了 马丝塔们</blockquote>
+三回合太费神了
+
