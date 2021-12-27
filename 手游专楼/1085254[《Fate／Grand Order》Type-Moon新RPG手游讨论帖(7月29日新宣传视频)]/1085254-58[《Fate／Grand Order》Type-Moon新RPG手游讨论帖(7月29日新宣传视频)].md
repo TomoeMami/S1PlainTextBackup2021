@@ -1829,3 +1829,24 @@ YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.
 
 邪龙真是闷声赚大钱的主，简直常驻之荣，落地的圣诞无限池就不说了，毕竟倍卡。第二年BBA祭也能加班，这回的杀狐柱更是最优解之一。同样圣诞落地的尻枪，你除了屁股还有什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 85668#       发表于 2021-12-27 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058656&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-12-27 08:51</a>
+
+邪龙真是闷声赚大钱的主，简直常驻之荣，落地的圣诞无限池就不说了，毕竟倍卡。第二年BBA祭也能加班，这回 ...</blockquote>
+龙姐好像出了以后T0已经三次了（落地圣诞唯一T0艾金弗组合，没有任何一个指向技能；大尼禄祭；打假B4有技封连15%的晕概率都不用考虑了），真正闷声发大财
+
+先不提尻枪，妖兰狩猎那两次强抬吃相蛮难看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这次杀狐柱也算PU期间强抬了
+
+*****
+
+####  gpx234mqx  
+##### 85669#       发表于 2021-12-27 09:18
+
+活得太久了吧，得打到中午了
+

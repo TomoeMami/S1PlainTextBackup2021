@@ -12710,3 +12710,12 @@ FC6241AD-7FEC-4A49-91B3-A31FE170F0C1.jpeg
 
 这几天一直在补水团和虹团录音室作品和生配信的档，看下来guilty kiss九月那场是最精彩的，特别是深海茧开始三首重歌连唱那段，反复看了好几遍，其他轻歌MEG带队重编曲也比录音室版效果好，就是逢田姐唱的比较拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2529#       发表于 2021-12-27 09:02
+
+决定买宫城第二日和追加场千秋乐特典票
+
