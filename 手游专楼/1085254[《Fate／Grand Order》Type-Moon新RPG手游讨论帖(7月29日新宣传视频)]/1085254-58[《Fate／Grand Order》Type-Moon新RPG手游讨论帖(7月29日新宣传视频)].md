@@ -2045,3 +2045,67 @@ T0指的是福利多</blockquote>
 
 等出妲己
 
+
+
+*****
+
+####  qixinno2  
+##### 85690#       发表于 2021-12-27 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">妖兰二宝成功 果然人不能放弃希望
+
+<img src="https://img.saraba1st.com/forum/202112/27/200415t0zytdqosyey2tnu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (185.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 20:04 上传
+
+*****
+
+####  khxooo  
+##### 85691#       发表于 2021-12-27 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066716&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-27 20:04</a>
+
+妖兰二宝成功 果然人不能放弃希望</blockquote>
+欧羡慕，我已经半年没有出过新5星了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85692#       发表于 2021-12-27 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066716&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-27 20:04</a>
+
+妖兰二宝成功 果然人不能放弃希望</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是欧皇吗 萌新好久没5星了
+
+*****
+
+####  qixinno2  
+##### 85693#       发表于 2021-12-27 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066889&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-27 20:19</a>
+
+这就是欧皇吗 萌新好久没5星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">萌新面前我只是个普通非洲人
+
+*****
+
+####  qixinno2  
+##### 85694#       发表于 2021-12-27 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066855&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-27 20:17</a>
+
+欧羡慕，我已经半年没有出过新5星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">半年不可能吧 你难道没抽杀狐奥宝？
+
+*****
+
+####  qixinno2  
+##### 85695#       发表于 2021-12-27 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且这三石还是我的红花小芬奇的羁绊石头 是有灵魂的
+

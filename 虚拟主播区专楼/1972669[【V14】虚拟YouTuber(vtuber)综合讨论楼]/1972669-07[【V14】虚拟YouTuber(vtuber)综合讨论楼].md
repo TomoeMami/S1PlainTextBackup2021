@@ -7523,3 +7523,14 @@ hololive滚出中国！
 
 nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 9634#       发表于 2021-12-27 20:18
+
+十分十分难得地进了asaki那就在那聊了一会儿en男……
+
+只能说英国佬好像确实是绝杀啊
+

@@ -13129,3 +13129,12 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 这投票一点打击感都没有，也看不到现在多少票了，这不随便黑箱？快进到liyuu微博水溅跃屁用没有 ...</blockquote>
 你第一次投票？ 历届拉拉投票哪次透明过？
 
+
+
+*****
+
+####  cybernetics31  
+##### 2575#       发表于 2021-12-27 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">鲤鱼一专上线上签和对谈的挂了。。。。。销量估计不会特别差 live就。。。。。。。。
+
