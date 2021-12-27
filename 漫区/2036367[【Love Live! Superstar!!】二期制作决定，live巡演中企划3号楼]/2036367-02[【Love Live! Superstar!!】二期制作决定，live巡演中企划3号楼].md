@@ -12934,3 +12934,28 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 有没有管人做liella live同步视听的，日本那边因为版权限制可能比较少，国内的也可以
 
+
+
+*****
+
+####  lj205  
+##### 2551#       发表于 2021-12-27 17:40
+
+鲤鱼这新专活动不少，犹豫是要广撒网还是集中冲其中一家
+
+*****
+
+####  cat1230  
+##### 2552#       发表于 2021-12-27 17:41
+
+鲤鱼在微博拉票了，看来她真的喜欢这活动，已投<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  chenflyyy  
+##### 2553#       发表于 2021-12-27 17:54
+
+拉票再正常不过，nagi比较早就发推拉票了，这下中华炮稳了，颤抖吧日本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
