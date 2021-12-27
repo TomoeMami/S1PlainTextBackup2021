@@ -8760,3 +8760,21 @@ mea suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" re
 
 可能是有链接的问题？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 7013#       发表于 2021-12-27 14:26
+
+今天有播吗
+
+*****
+
+####  遗忘回想  
+##### 7014#       发表于 2021-12-27 14:28
+
+网易云啊，这东西我很久没用电台这东西了。
+
+不过就算这么仔细看下来，今年我歌单前十可能也就针（无法算入次数）和きらり来源于这人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

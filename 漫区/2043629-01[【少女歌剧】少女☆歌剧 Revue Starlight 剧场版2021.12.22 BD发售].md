@@ -4379,3 +4379,15 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 草，怎么这么多线下观影，刚回老家的嗦不出话</blockquote>
 你在哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">窝进去看了几个，最起码都得排到一二月份以后去
 
+
+
+*****
+
+####  JustW_2  
+##### 336#       发表于 2021-12-27 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54062788&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-27 14:22</a>
+
+你在哪啊窝进去看了几个，最起码都得排到一二月份以后去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二月年后回北京，这之前都在小县城
+
