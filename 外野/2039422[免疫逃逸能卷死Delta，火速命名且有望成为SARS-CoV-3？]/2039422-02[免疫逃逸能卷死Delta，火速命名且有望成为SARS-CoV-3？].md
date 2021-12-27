@@ -8511,3 +8511,27 @@ https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247486975&amp;idx=1&a
 偏个题，今年冬天北美东岸异常的温暖啊，相比之下西岸的西雅图和大温被冻成狗了，往年北美天气也是这样的嘛 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">应该不是，以往这时候都下雪了
 
+
+
+*****
+
+####  烤烤鱼σ  
+##### 2220#       发表于 2021-12-27 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057448&amp;ptid=2039422" target="_blank">yuandi0120 发表于 2021-12-27 00:48</a>
+
+要怎么样的脑回路才能想出给J液做核酸啊</blockquote>
+STD新冠！
+
+
+
+*****
+
+####  03e7  
+##### 2221#       发表于 2021-12-27 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057702&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-27 01:19</a>
+
+前面有超过31天在组织中检出sgRNA的，表明病毒仍存在复制。</blockquote>
+rna进了细胞后，只要细胞没死就会不停复制吧，但如果只有片段的话无法组成完整病毒，应该没有感染其他细胞的能力。
+

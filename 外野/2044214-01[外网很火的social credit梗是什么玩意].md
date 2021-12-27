@@ -784,3 +784,45 @@ Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万�
 
 —— 来自 vivo V1950A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  劲霸男  
+##### 79#       发表于 2021-12-27 08:49
+
+老外很愚蠢，你用造谣的方式去辟谣只能适得其反。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡爹  
+##### 80#       发表于 2021-12-27 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057270&amp;ptid=2044214" target="_blank">aji47 发表于 2021-12-27 00:30</a>
+确确实实造成了负面影响。你在外网辩护中国。
+白皮猪就会来一句 social credt+10000
+瞬间结束对话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这种人有什么交流价值，你还不如接话茬说你马上就要100W分了，到时候国家会奖励你一枚东风用来炸死他
+
+—— 来自 vivo V1950A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  weary11  
+##### 81#       发表于 2021-12-27 08:58
+
+别交流，鸡同鸭讲。就新冠两年了，那么多谣言能满天飞，这群人'智商就这样
+
+*****
+
+####  Asukalangley33  
+##### 82#       发表于 2021-12-27 09:03
+
+这个外国人是真信的
+
+疫情前因为工作接触过一个芬兰和二毛老哥
+
+中午食堂吃饭的时候就问我中国是不是有”信用分”，然后摄像头照一下就能显示出你的个人信息和行动轨迹
+
+当时我回答的是：“确实是真的，而且还能通过大数据预测你接下来24小时的行为举止”
+
