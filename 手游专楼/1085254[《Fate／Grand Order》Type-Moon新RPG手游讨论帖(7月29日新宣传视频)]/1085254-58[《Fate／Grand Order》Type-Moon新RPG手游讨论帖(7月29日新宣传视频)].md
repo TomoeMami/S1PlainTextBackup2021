@@ -2444,3 +2444,17 @@ np减半这个恶心死了，还有那个尺子小怪
 
 妖兰加buff直接秒了小怪就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85728#       发表于 2021-12-28 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069580&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-28 00:35</a>
+
+妖兰加buff直接秒了小怪就好最后剩下妖兰开无双，一刀红卡暴击20w ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">主要是不知道 直接就死了 没来得及sl
+
+去各地逛了逛 居然有不少喷这战太难
+

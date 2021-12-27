@@ -7622,3 +7622,25 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 
 足球工商感想：呜呜，果然还得是饭屋
 
+
+
+*****
+
+####  noHentai  
+##### 9641#       发表于 2021-12-28 00:44
+
+作为厕纸爱好者必须来说两句了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+首先没想到唐突来这么一手正经厕纸作者出道，还是因为MC图书馆企划这种契机。
+其次，多年厕纸经验告诉我，这封面一看就烂俗故事，这是好事，能卖得动。但插画作为当今厕纸第一生产力，封面很关键，这个封面太普通了，不太吸引人，希望泉彩的彩插能救一下。
+
+最后，MF文库J加个新文艺把我惊到，甚至还是第二弹，仔细一看还真是正经B6判出版，推上不少厕纸人都在吐槽MFJ是要重新定义新文艺了。
+不过之前没关注第一弹是啥，再一搜，就是今年轻厉单行本TOP1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 9642#       发表于 2021-12-28 00:48
+
+足球工商感想：你虹的动捕房是真的大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
