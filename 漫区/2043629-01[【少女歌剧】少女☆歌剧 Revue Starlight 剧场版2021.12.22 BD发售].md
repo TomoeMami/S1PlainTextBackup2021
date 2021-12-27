@@ -4489,3 +4489,46 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 
 哪个小机灵做的图
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 345#       发表于 2021-12-27 20:36
+
+<img src="https://img.saraba1st.com/forum/202112/27/203520s22ob2eblo2dbrbd.jpg" referrerpolicy="no-referrer">
+
+<strong>2d78178c46f8fd2e.jpg</strong> (451.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 20:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/27/203520j2nooh3n4ds3u2v7.jpg" referrerpolicy="no-referrer">
+
+<strong>-49f4b92a7d5aa133.jpg</strong> (447.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 20:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/27/203520t83ry6y62bvwj5wu.jpg" referrerpolicy="no-referrer">
+
+<strong>33172bf23e0d3280.jpg</strong> (194.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 20:35 上传
+
+广州线下观影的还做了门票，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stevenzero  
+##### 346#       发表于 2021-12-27 20:40
+
+这次篇幅最大的恋光明场面也很多但就是冲击度感觉就是太直白了。恋哥哥光速去世这个估计玩梗度会很高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+恋光这对怎么说呢，阿光罪大恶极，把Topstar级别的恋哥哥玩成了重女，但要是恋哥哥不是个重女她就成不了Topstar<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+JC那么阳光的恋哥哥虽然是装的，但这Topstar的底子装出来根本就是大杀四方啊。阿光你真有种，这么放心。
+

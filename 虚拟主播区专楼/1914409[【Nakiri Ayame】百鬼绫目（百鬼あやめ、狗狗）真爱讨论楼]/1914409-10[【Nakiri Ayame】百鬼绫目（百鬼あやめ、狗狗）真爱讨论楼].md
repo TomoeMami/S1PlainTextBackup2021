@@ -3135,3 +3135,14 @@ https://youtu.be/XQgU6qDPuM8晦气<img src="https://static.saraba1st.com/image/s
 
 昨晚皆切营业味太重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stmule  
+##### 13815#       发表于 2021-12-27 20:31
+
+我悟了，皆切就是木口的咲唯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

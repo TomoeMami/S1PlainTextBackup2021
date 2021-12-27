@@ -7534,3 +7534,27 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 
 只能说英国佬好像确实是绝杀啊
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9635#       发表于 2021-12-27 20:37
+
+<img src="https://img.saraba1st.com/forum/202112/27/203704mnp901996p7756eg.png" referrerpolicy="no-referrer">
+
+<strong>【 #葛葉新3DPO 】新3D衣装で遊ぶ【葛葉】.png</strong> (48.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-27 20:37 上传
+
+牛郎king
+
+*****
+
+####  黑之和  
+##### 9636#       发表于 2021-12-27 20:38
+
+表情包可爱啊，还有虚拟小狗
+

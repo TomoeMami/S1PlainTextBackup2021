@@ -13138,3 +13138,12 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">鲤鱼一专上线上签和对谈的挂了。。。。。销量估计不会特别差 live就。。。。。。。。
 
+
+
+*****
+
+####  lj205  
+##### 2576#       发表于 2021-12-27 20:36
+
+想抽对谈，但是感觉好耻<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

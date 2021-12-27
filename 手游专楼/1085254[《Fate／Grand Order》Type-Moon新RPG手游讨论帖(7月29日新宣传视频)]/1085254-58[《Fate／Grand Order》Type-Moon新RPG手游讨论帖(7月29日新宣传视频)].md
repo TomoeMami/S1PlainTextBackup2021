@@ -2109,3 +2109,25 @@ T0指的是福利多</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且这三石还是我的红花小芬奇的羁绊石头 是有灵魂的
 
+
+
+*****
+
+####  khxooo  
+##### 85696#       发表于 2021-12-27 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066913&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-27 20:21</a>
+
+半年不可能吧 你难道没抽杀狐奥宝？</blockquote>
+杀狐抽了，之后就没有出过了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85697#       发表于 2021-12-27 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54067099&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-27 20:37</a>
+
+杀狐抽了，之后就没有出过了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这你半年有点短！
+
