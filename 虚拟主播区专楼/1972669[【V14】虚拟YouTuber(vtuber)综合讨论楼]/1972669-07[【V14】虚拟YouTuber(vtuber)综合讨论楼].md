@@ -7213,3 +7213,19 @@ mysta我没跟全但看repo好像是说过自己原来因为口音被霸凌过�
 https://twitter.com/meemokie/status/1475194643638001664</blockquote>
 怎么vrlink也进去了
 
+
+
+*****
+
+####  noHentai  
+##### 9601#       发表于 2021-12-27 10:43
+
+JP虹男是不是被分流挺多的，我看B站黑黑新曲热评一堆“常回家看看”，一些群里现在也是en浓度颇高<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 9602#       发表于 2021-12-27 10:59
+
+还是圈外引流多吧，毕竟jp虹男直播可看不到这么多直球自称国人粉请主播说两句中国话的(没说这样不好)
+

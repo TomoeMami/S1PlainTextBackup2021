@@ -956,3 +956,38 @@ N年前看帖子：
 
 其实想一想，人家白皮特别是老美很多都信福音的，本身就是一群反智的东西，连身边的科学都不相信的沙皮就不要期待他们能对根本见不到的海对岸有什么真实理解了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  EVA_01  
+##### 96#       发表于 2021-12-27 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+你也不是昨天才上网的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轮太  
+##### 97#       发表于 2021-12-27 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058549&amp;ptid=2044214" target="_blank">last_regret 发表于 2021-12-27 08:38</a>
+
+那除了保守派外有西方有多少人对俄国抱有好感呢
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+还是有点作用，美帝保守派大佬们又不会给底下红脖子讲俄国的情况
+
+但是从这几年观察看不少基层白右已经快把俄罗斯当地上天国了
+
+*****
+
+####  隰有苌楚  
+##### 98#       发表于 2021-12-27 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+早年公知也是说爱__不爱__，现在大家都知道这帮人是个什么货色了
+
