@@ -2502,3 +2502,12 @@ np减半这个恶心死了，还有那个尺子小怪
 
 最后一个ruler怪是真的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 85732#       发表于 2021-12-28 07:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟东瀛小蛇可是限定卡 还是新秀红卡 岂是常驻过期绿卡钓鱼佬能比的
+
