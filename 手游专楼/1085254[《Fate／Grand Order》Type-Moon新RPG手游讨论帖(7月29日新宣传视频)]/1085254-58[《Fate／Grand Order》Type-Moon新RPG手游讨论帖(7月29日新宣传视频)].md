@@ -1993,3 +1993,14 @@ T0指的是福利多</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85685#       发表于 2021-12-27 17:03
+
+四百万了，不知道能不能撑过七点
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

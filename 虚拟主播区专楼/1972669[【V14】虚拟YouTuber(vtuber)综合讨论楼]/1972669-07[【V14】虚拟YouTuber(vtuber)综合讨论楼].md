@@ -7380,3 +7380,28 @@ hololive滚出中国！
 
 没汉化组炎上不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道能搞成一个组么，毕竟新进来不少路人，不会读空气的
 
+
+
+*****
+
+####  IDIDIDID  
+##### 9618#       发表于 2021-12-27 17:06
+
+糊是最好的保护色，没事的
+
+*****
+
+####  OldGlory  
+##### 9619#       发表于 2021-12-27 17:12
+
+破圈了和糊了只能选一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">检验是不是真破圈的时候到了。
+
+*****
+
+####  喜闻乐见  
+##### 9620#       发表于 2021-12-27 17:20
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1gxsihks68bj20jg0gr46b.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1gxsihoycjwj20fv0efn03.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1gxsiijlh5uj22yo1nm1kz.jpg" referrerpolicy="no-referrer">
+

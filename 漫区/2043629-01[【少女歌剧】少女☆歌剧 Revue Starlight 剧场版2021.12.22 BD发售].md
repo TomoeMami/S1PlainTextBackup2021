@@ -4418,3 +4418,12 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 
 我看花园上熟肉只有幻之字幕组的，你们看的都是什么字幕？
 
+
+
+*****
+
+####  Leomai  
+##### 340#       发表于 2021-12-27 17:04
+
+刚才又看到剧场版延长上映的推特，在看剧场版之前最大的印象就是粉丝不停的在剧院多刷，还有不停的能看到追加场次延长的消息。可见这剧场版是真的很毒<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

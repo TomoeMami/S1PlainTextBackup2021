@@ -12918,3 +12918,19 @@ J社只能看缘分当自来水，没那么好请
 
 roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Norkey1  
+##### 2549#       发表于 2021-12-27 17:05
+
+猴楼西恩倒是有个拉拉人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2550#       发表于 2021-12-27 17:12
+
+有没有管人做liella live同步视听的，日本那边因为版权限制可能比较少，国内的也可以
+
