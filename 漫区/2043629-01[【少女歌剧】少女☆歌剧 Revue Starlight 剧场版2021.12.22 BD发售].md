@@ -4427,3 +4427,15 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 
 刚才又看到剧场版延长上映的推特，在看剧场版之前最大的印象就是粉丝不停的在剧院多刷，还有不停的能看到追加场次延长的消息。可见这剧场版是真的很毒<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  luciferion  
+##### 341#       发表于 2021-12-27 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54020806&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2021-12-24 00:34</a>
+
+这里有个问题解释不了就是为什么之前华恋一直摆烂，蕉在那里无限loop的时候华恋把速8，要是她真天天惦记 ...</blockquote>
+光在大英梭哈revue把闪耀浪没了，一体轮，所以华恋唐突吃瘪
+

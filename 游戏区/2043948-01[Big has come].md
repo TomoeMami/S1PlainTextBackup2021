@@ -7753,3 +7753,15 @@ oh，觉醒人终于想起来人民啦？
 哪里人多哪里就是人民呀，你现在应该好好学习，争取考上高中。</blockquote>
 很好，那保持用屈辱的表情使用steam的请举手，我们来数一数，来看看代表性。
 
+
+
+*****
+
+####  ellis0811  
+##### 713#       发表于 2021-12-27 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54063948&amp;ptid=2043948" target="_blank">骑兵突击步枪 发表于 2021-12-27 16:00</a>
+
+发现个方法，进入steam后不要直接点商店，先点下帮助，再点steam客服，然后再点商店，似乎就能访问商店了， ...</blockquote>
+可用
+

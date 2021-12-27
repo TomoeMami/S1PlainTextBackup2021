@@ -7405,3 +7405,51 @@ hololive滚出中国！
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1gxsihoycjwj20fv0efn03.jpg" referrerpolicy="no-referrer">
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1gxsiijlh5uj22yo1nm1kz.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saintsimpler  
+##### 9621#       发表于 2021-12-27 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">作家出道
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Ketestrait  
+##### 9622#       发表于 2021-12-27 17:22
+
+<img src="https://tvax3.sinaimg.cn/large/7c16af6bly1gxsikl3ttoj20z10lfjum.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 9623#       发表于 2021-12-27 17:30
+
+老爱这是请不起大牌了只能募集了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烤冷面加蛋  
+##### 9624#       发表于 2021-12-27 17:32
+
+听了听录播，讲完of course I do还补了几句根本不了解有哪些国家，不认识奥地利，英国都不教地理课的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 9625#       发表于 2021-12-27 17:37
+
+夏芽这资源是花了多少积分
+
+*****
+
+####  毛头小希  
+##### 9626#       发表于 2021-12-27 17:39
+
+会让读者猜哪个角色是以哪个同事为原型么
+
