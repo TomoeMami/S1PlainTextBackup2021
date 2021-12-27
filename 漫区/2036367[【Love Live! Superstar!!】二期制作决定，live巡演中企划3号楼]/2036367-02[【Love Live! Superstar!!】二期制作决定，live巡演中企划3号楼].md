@@ -12959,3 +12959,26 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 拉票再正常不过，nagi比较早就发推拉票了，这下中华炮稳了，颤抖吧日本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 2554#       发表于 2021-12-27 18:05
+
+我不觉得有什么中华炮这次应该是香音
+
+*****
+
+####  仟音一心  
+##### 2555#       发表于 2021-12-27 18:09
+
+投票地址[https://www.gamers.co.jp/special/harajuku_kanban/no.html](https://www.gamers.co.jp/special/harajuku_kanban/no.html)没墙，结局已经注定了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 2556#       发表于 2021-12-27 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">未有2期前这段时间内一切投票胜负应该都是伊達おじVS中华炮了
+

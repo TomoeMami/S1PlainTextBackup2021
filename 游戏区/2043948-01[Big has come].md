@@ -7783,3 +7783,25 @@ oh，觉醒人终于想起来人民啦？
 
 我领了一天贴纸，一直提示失败<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 716#       发表于 2021-12-27 18:07
+
+觉醒人这个说法是真的牛逼，放几年前还以为是什么人槽满了开了啥大招
+
+至于这几年……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+坐标南京，这几天确实偶尔会打不开商店页面，程度堪比之前战网打不开购买页面
+
+利益相关，我也破防啦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  truepants  
+##### 717#       发表于 2021-12-27 18:17
+
+大师们洗不了自然就会表示“看烦了”来让你闭嘴
+

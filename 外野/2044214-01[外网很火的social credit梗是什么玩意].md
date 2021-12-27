@@ -1129,3 +1129,16 @@ N年前看帖子：
 
 轮轮和1450 带出来的节奏
 
+
+
+*****
+
+####  王留美  
+##### 110#       发表于 2021-12-27 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54059991&amp;ptid=2044214" target="_blank">轮太 发表于 2021-12-27 10:54</a>
+还是有点作用，美帝保守派大佬们又不会给底下红脖子讲俄国的情况
+
+但是从这几年观察看不少基层白右已经快 ...</blockquote>
+后面那句，为啥？
+

@@ -4439,3 +4439,15 @@ DR9IN4D[$00DN5JS~85R{S0.jpg
 这里有个问题解释不了就是为什么之前华恋一直摆烂，蕉在那里无限loop的时候华恋把速8，要是她真天天惦记 ...</blockquote>
 光在大英梭哈revue把闪耀浪没了，一体轮，所以华恋唐突吃瘪
 
+
+
+*****
+
+####  蓝川澈  
+##### 342#       发表于 2021-12-27 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54064131&amp;ptid=2043629" target="_blank">沼蝇 发表于 2021-12-27 16:17:28</a>
+我看花园上熟肉只有幻之字幕组的，你们看的都是什么字幕？</blockquote>8L坛友分享的字幕非常不错
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -7477,3 +7477,23 @@ hololive滚出中国！
 
 反而在这种时候感觉到enkr的确真是enkr啊。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9630#       发表于 2021-12-27 18:12
+
+彩虹演唱会这个全程单人直拍这么便宜……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+感觉好像不太好
+
+
+
+*****
+
+####  FCCHua  
+##### 9631#       发表于 2021-12-27 18:15
+
+夏芽，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
