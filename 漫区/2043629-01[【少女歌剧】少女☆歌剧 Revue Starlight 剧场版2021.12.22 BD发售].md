@@ -4605,3 +4605,16 @@ JC那么阳光的恋哥哥虽然是装的，但这Topstar的底子装出来根�
 
 是不是说华恋一直认为自己一路走过来是为了一起starlight，光跑了就没目标的，最后承认一路走过来是因为不想输
 
+
+
+*****
+
+####  中二小旋风  
+##### 354#       发表于 2021-12-28 00:27
+
+不行，这两天疯狂loop蕉哥哥的戏份，出不去了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">蕉哥哥，抹布洗。。。。
+
+蕉哥哥，太上头。。。
+
+体会到蕉哥哥当初无限轮回的心情了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

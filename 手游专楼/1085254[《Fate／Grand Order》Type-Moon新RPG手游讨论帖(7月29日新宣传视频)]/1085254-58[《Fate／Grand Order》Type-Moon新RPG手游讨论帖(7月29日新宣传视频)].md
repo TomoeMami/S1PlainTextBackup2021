@@ -2435,3 +2435,12 @@ np减半这个恶心死了，还有那个尺子小怪
 
 同前几楼的看法，建议在后排放一个仇阶从者，来针对最后一面那个裁定者职介的小怪。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 85727#       发表于 2021-12-28 00:35
+
+妖兰加buff直接秒了小怪就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

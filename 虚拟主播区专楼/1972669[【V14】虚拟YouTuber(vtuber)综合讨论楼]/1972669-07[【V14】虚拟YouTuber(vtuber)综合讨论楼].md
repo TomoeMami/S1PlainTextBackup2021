@@ -7613,3 +7613,12 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 帮助提供三题的队友们，提供的点子已全部写进书里
 <img src="https://tva4.sinaimg.cn/large/7c16af6bly1gxss7n569hj20yz0jnq6h.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 9640#       发表于 2021-12-28 00:39
+
+足球工商感想：呜呜，果然还得是饭屋
+
