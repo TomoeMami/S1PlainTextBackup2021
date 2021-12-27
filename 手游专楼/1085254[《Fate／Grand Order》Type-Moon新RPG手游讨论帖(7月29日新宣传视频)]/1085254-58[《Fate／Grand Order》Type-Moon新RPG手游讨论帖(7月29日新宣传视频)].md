@@ -2469,3 +2469,25 @@ np减半这个恶心死了，还有那个尺子小怪
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  J-002  
+##### 85730#       发表于 2021-12-28 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069700&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-28 00:51</a>
+
+主要是不知道 直接就死了 没来得及sl
+
+去各地逛了逛 居然有不少喷这战太难 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">难是因为各种debuff需要刷脸，运气不好能卡死人，尤其是对我们这样新入坑能拿出来的从者不多的
+
+我开场忘了让玛修叫哈贝喵，玛修就被加了cd然后就没然后了
+
+第二管还剩8万时没发伊吹卡结果打不死狐狸还回了血拖了三回合造成伊吹被打的剩两千血
+
+第三管是唯一比较顺的，然后伊吹就没了
+
+令咒复活伊吹不敢开宝具就只能平a裁阶小怪，狐狸玩命回血用了三四回合才打死，要不是伊吹不吃宝具就得碎石头了
+

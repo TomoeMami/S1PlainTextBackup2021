@@ -8079,3 +8079,29 @@ steam真的亡了RIP
 也许这就是温水煮青蛙了,先封社区,再封评论区,老爷们 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不过说现在评论区有啥好看的，不是傻逼们承认自己是傻逼的评论，就是他妈有人发某位的符号图，如果说那群傻逼说自己是傻逼算是陈述事实的话，那么发符号的图那些傻逼我真就不理解哪高兴了，感觉是人又傻还缺乏自制力那种，要么就是蓄意搞破坏打算炸掉steam。
 
+
+
+*****
+
+####  FLZB  
+##### 741#       发表于 2021-12-28 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069722&amp;ptid=2043948" target="_blank">Nieven 发表于 2021-12-28 00:54</a>
+
+创意工坊是社区的一部分啊
+
+社区老早就墙掉了，跟这次无关</blockquote>
+关键不就是社区早就被墙掉了，我不能是直连创意工坊吧？
+
+*****
+
+####  Tring  
+##### 742#       发表于 2021-12-28 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54065978&amp;ptid=2043948" target="_blank">Cybellybanana 发表于 2021-12-27 18:55</a>
+
+今天发现被墙后最难受的就是外区转回来了，开了梯子就回不来，不开梯子又打不开界面...
+
+ ...</blockquote>
+真想要解决的话，可以花点时间折腾反代。
+
