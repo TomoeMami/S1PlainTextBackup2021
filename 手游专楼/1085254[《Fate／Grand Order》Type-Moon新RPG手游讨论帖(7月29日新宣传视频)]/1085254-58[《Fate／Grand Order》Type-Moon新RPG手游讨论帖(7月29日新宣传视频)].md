@@ -1850,3 +1850,25 @@ YLS：计划通<img src="https://static.saraba1st.com/image/smiley/face2017/053.
 
 活得太久了吧，得打到中午了
 
+
+
+*****
+
+####  都谷捻柏  
+##### 85670#       发表于 2021-12-27 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058810&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-27 09:12</a>
+
+龙姐好像出了以后T0已经三次了（落地圣诞唯一T0艾金弗组合，没有任何一个指向技能；大尼禄祭；打假B4有技 ...</blockquote>
+布妹哪有什么T0，一出就被四星值班……
+
+*****
+
+####  UNISONIA  
+##### 85671#       发表于 2021-12-27 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54059132&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-27 09:46</a>
+
+布妹哪有什么T0，一出就被四星值班……</blockquote>
+而且加强都没有捞到，被运营当做不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

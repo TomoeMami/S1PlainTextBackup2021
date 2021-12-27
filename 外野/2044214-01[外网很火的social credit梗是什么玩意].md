@@ -915,3 +915,22 @@ Youtube有人专门做假视频煞有其事的介绍中国信用分，几百万�
 他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
 “（一大堆针对xxx的歧视言论），我不是歧视xx，我有很多xx朋友”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ztgmeteor  
+##### 92#       发表于 2021-12-27 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank">厨具战士 发表于 2021-12-27 09:25</a>
+他们只是讨厌中国这个国家，并不讨厌中国人吧。</blockquote>
+现在**先反华的时代已经十几年了，怎么还有人这样想<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saikou  
+##### 93#       发表于 2021-12-27 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058931&amp;ptid=2044214" target="_blank"> 厨具战士 发表于 2021-12-27 09:25</a> 他们只是讨厌中国这个国家，并不讨厌中国人吧。 </blockquote>
+他们说的喜欢是一等人看二等人的优越，现在要平起平坐了直接<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">you are guilty！！！来自: iPhone客户端
+

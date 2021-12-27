@@ -7514,3 +7514,14 @@ UU的加速，302设置里除了社区还可以添加一个商店也能进<img s
 
 蒸汽平台可不是摆设而已！哈哈哈！
 
+
+
+*****
+
+####  nanonya2  
+##### 697#       发表于 2021-12-27 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54058414&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-27 08:12</a>
+知乎原来说自动wall的答主目前在贴吧推翻了之前的见解，为什么不是在知乎推翻？知乎问题爆破了呗。 ...</blockquote>
+问题没爆破的时候 他也编辑答案在后面补充了
+
