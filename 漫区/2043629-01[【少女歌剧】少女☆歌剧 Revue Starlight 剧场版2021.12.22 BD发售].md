@@ -4735,3 +4735,12 @@ Screenshot_2021-12-28-06-35-58-56.png
 关键我铃声好久之前改成ki-ringtone了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我闹钟也是这个几年了，还有一次因为这个被加了微信
 
+
+
+*****
+
+####  Lyzers  
+##### 364#       发表于 2021-12-28 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">棒骨米上排名已经追上死与新生了，虽然人数不是一个量级
+

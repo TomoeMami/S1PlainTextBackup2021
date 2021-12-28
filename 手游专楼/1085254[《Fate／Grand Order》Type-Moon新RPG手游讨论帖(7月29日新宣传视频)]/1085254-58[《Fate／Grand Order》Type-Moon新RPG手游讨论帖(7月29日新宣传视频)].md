@@ -3038,3 +3038,45 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 没续，就租一年</blockquote>
 那么紫苑说的大工程估计就是搬家了。
 
+
+
+*****
+
+####  alucardcz  
+##### 85783#       发表于 2021-12-28 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076288&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 15:18</a>
+
+比较好奇如果2.65和杀狐没关系那还能讲啥，2.65肯定算主线吧，主线肯定就必须得和主线人物有关联，像大奥， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有可能那个点其实什么都不是 纯粹是个背景（
+
+*****
+
+####  الطائر  
+##### 85784#       发表于 2021-12-28 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54073331&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-28 11:38</a>
+
+新会社名字叫ラセングル，小野义德当老大</blockquote>
+螺旋轱辘
+
+*****
+
+####  zakki  
+##### 85785#       发表于 2021-12-28 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076345&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-28 15:23</a>
+
+我完全忘了 冬木那说清楚了么？</blockquote>
+冬木那个肯定也会拖到终章的
+
+*****
+
+####  zakki  
+##### 85786#       发表于 2021-12-28 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076390&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-28 15:26</a>
+
+有没有可能那个点其实什么都不是 纯粹是个背景（</blockquote>
+最好是这样，今天下午打完就能看到2.7标题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

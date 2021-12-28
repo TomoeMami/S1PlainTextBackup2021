@@ -8834,3 +8834,28 @@ SARS-CoV-2 is widely distributed, even among patients who died with asymptomatic
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  eveshell  
+##### 2242#       发表于 2021-12-28 15:37
+
+<img src="https://img.saraba1st.com/forum/202112/28/153741tc1cppb6k1auqj5a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1640677026855.jpeg</strong> (52.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-28 15:37 上传
+
+*****
+
+####  最好不说  
+##### 2243#       发表于 2021-12-28 15:42
+
+<blockquote>eveshell 发表于 2021-12-28 15:37
+</blockquote>
+大一丢，指一个月爆掉全美医疗系统
+
