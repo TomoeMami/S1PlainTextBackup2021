@@ -2511,3 +2511,17 @@ np减半这个恶心死了，还有那个尺子小怪
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟东瀛小蛇可是限定卡 还是新秀红卡 岂是常驻过期绿卡钓鱼佬能比的
 
+
+
+*****
+
+####  zakki  
+##### 85733#       发表于 2021-12-28 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066178&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-27 19:15</a>
+
+你忘了光点吗？
+
+明显就是这个</blockquote>
+所以说就很悬啊，谁知道这次活动13节会不会完结，如果接光点2.65新年继续开那还好，但要真就这么结束了也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

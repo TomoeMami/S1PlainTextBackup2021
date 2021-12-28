@@ -693,3 +693,14 @@ bae不愧是星的铁粉。。
 
 六期生这么飘的吗，准备和cali英语联动？？？
 
+
+
+*****
+
+####  shimmy1996  
+##### 1569#       发表于 2021-12-28 09:07
+
+前几周Cali在推上约了至少10个jp开英会話直播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+kiwawa今天说想和同样比较话痨的kyr collab
+ame前一段好像也有提到6期想找忍忍
+
