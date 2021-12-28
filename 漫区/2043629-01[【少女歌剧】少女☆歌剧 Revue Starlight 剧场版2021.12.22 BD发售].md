@@ -4681,3 +4681,34 @@ Ps.人家几原徒弟都能搞到这个程度了，看看你，庵野哥哥<img 
  不行，这两天疯狂loop蕉哥哥的戏份，出不去了蕉哥哥，抹布洗。。。。  蕉哥哥，太上头。。。 </blockquote>
 我也<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hac0101  
+##### 360#       发表于 2021-12-28 14:13
+
+「我们已在舞台之上」
+
+为了一句话时髦了一个剧场版。爽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  remedios010000  
+##### 361#       发表于 2021-12-28 14:14
+
+今天早上突然发现我家闹钟在给我整活
+
+关键我铃声好久之前改成ki-ringtone了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Screenshot_2021-12-28-06-35-58-56.png
+(73.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 14:12 上传
+
+<img src="https://img.saraba1st.com/forum/202112/28/141206bfclc3000zr3iazl.png" referrerpolicy="no-referrer">
+

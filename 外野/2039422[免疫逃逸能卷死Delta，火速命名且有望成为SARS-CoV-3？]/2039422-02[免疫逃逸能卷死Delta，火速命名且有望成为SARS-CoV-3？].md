@@ -8779,3 +8779,14 @@ SARS-CoV-2 is widely distributed, even among patients who died with asymptomatic
 这世界上没有没打过疫苗的国家了吧，抗体没用还有其他免疫机制，你以为两针mrna，几乎没有抗体，能减少重症 ...</blockquote>
 ？你在说什么。无论那种疫苗都不是直接打抗体的。传统疫苗直接注射抗原，mRNA只是让体内无辜细胞表达抗原蛋白，本质上都是激活免疫反应刺激T细胞-细胞免疫和B细胞-抗体。其中细胞免疫负责干掉感染细胞，抗体负责阻止病毒传播，以及其他辅助作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2237#       发表于 2021-12-28 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075023&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-28 13:40</a>
+正常人类有血睾屏障的。就算只是RNA碎片，如果不是尿道里污染进X液的，那意味着病毒可以突破这个屏障，能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突破血脑屏障也许对新冠来说都是小开司，虽然目前最新的解释是新冠病毒通过鼻神经进而感染中枢神经系统，但是也不能排除直接突破血脑屏障的可能性，毕竟脑脊液中检出阳性的案例不要太多。
+
