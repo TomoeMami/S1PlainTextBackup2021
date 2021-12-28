@@ -8936,3 +8936,15 @@ CDC已经减半感染病毒隔离时间，并鼓励患者在家里治疗（感�
 
 不论是既往感染（南非）还是mRNA疫苗（日内瓦大概八成接种率，BNT/Moderna）都挡不住omicron的传播，这个时候不依靠物理防疫还怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  桐名  
+##### 2251#       发表于 2021-12-28 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54062675&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-27 14:13</a>
+
+这世界上没有没打过疫苗的国家了吧，抗体没用还有其他免疫机制，你以为两针mrna，几乎没有抗体，能减少重症 ...</blockquote>
+朝鲜啊，给疫苗不要，说请分配给更需要的国家<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

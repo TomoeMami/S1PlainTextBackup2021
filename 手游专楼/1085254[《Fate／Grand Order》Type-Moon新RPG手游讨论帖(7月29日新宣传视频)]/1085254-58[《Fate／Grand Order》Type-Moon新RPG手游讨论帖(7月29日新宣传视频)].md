@@ -3565,3 +3565,120 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 不要慌，这是给你们打个预防针，我有预感宇宙大统领的剧情会更扯淡
 
+
+
+*****
+
+####  zakki  
+##### 85835#       发表于 2021-12-28 18:27
+
+地球大总统肯定是迦勒底亚斯-奥尔加玛丽-老所长这条线了，感觉问题应该不大，铺垫过多到水到渠成了。我现在最怕的是戴先生，柯杨斯卡娅和贝先生的逼格已经没了，千万别祸祸戴先生了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 85836#       发表于 2021-12-28 18:32
+
+ 本帖最后由 KOBI 于 2021-12-28 18:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">贝利尔之后柯杨也就这么寄了可还行
+
+尼玛一转从者宇宙，是不是哪天开SW3可以去通古斯星继续刷狐柱啊
+
+*****
+
+####  不垃圾屌丝  
+##### 85837#       发表于 2021-12-28 18:32
+
+太公望和猫娘最后一条信息也没解锁
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  不垃圾屌丝  
+##### 85838#       发表于 2021-12-28 18:35
+
+<img src="https://p.sda1.dev/3/97a97ba5398f24bcfd8bdbc37a8080f7/IMG_CMP_245389849.jpeg" referrerpolicy="no-referrer">
+现在再看这张图，其实不是融合，就是个陨石衍生物吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  angelooo  
+##### 85839#       发表于 2021-12-28 18:35
+
+杀兔这设定太拉了，我不信从头到尾没改过，要是真的没改过我只能说做设定的脑回路和正常人不太一样
+
+*****
+
+####  v22325  
+##### 85840#       发表于 2021-12-28 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078753&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-28 18:35</a>
+
+现在再看这张图，其实不是融合，就是个陨石衍生物吧
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1N ...</blockquote>
+应该是  最后猫娘那段不是说杀了不知道是龙还是虫的东西 才碰到杀狐的么 
+
+*****
+
+####  超阳电子炮  
+##### 85841#       发表于 2021-12-28 18:38
+
+太莫名其妙了吧，前面cue了妲己半天，结果妲己呢，我那么大一个妲己呢
+
+*****
+
+####  v22325  
+##### 85842#       发表于 2021-12-28 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来最？？？的是PV太公望那句“你为什么在这里” ，我看之前到处都是在猜太公望碰到个不可能出现的人，大多都猜真妲己啊什么的。
+
+结果是逼问式侦探解密
+
+*****
+
+####  miro112233  
+##### 85843#       发表于 2021-12-28 18:39
+
+菌类还说“戴比特的故事要娓娓道来”呢（指2.4之后没任何戏份全部推到2.7）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且2.7肯定要先写南美异闻带的生态，新从者和异闻带王，异星使者也差不多轮到麻婆了，冠位从者和大蜘蛛，还有菌类推到2.7的玛修成长线，这还不算菌类会不会突然对某个角色厨力放出，我倒是好奇2.7能有多少戏份留给戴比特去“娓娓道来”
+反正认识几个喜欢A组的朋友也差不多死心了，没到贝里尔那水平就算赢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  exiaexa  
+##### 85844#       发表于 2021-12-28 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078754&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-28 18:35</a>
+
+杀兔这设定太拉了，我不信从头到尾没改过，要是真的没改过我只能说做设定的脑回路和正常人不太一样 ...</blockquote>
+你就直接当他们脑子有问题就行了
+
+型月这群人有个毛病就是喜欢憋
+
+特别喜欢整硬卡某个角色，然后死命出相关的人，最后整成几种说法，估计全是罗生门重度患者
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+杀兔从卡落地到现在物理上天，站在事后角度来说怎么看都是不想出妲己，硬是用小玉脸来钓你胃口
+
+*****
+
+####  exiaexa  
+##### 85845#       发表于 2021-12-28 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078802&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-28 18:39</a>
+
+菌类还说“戴比特的故事要娓娓道来”呢（指2.4之后没任何戏份全部推到2.7）
+
+而且2.7肯定要先写南美 ...</blockquote>
+别生态了，2.6充分证明了月球产不出托尔金
+
+到时候再来一次结局摆烂那真的是要吐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

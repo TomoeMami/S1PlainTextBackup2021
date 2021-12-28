@@ -4807,3 +4807,29 @@ Screenshot_20211228_164034.jpg
 真心为你vs真星为你差0.7
 不慌不慌，评分体系没崩
 
+
+
+*****
+
+####  MASKA-1  
+##### 370#       发表于 2021-12-28 18:28
+
+bangumi从超过少革剧场版开始就在讨论版跟踪更新了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  remedios010000  
+##### 371#       发表于 2021-12-28 18:41
+
+ 本帖最后由 remedios010000 于 2021-12-28 18:42 编辑 
+
+B站动态看见一个观影团连观影特典都整出来了
+
+没有舞台就创造舞台！，没有特典就创造特典！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+看了一眼还挺近的，可以考虑一个票的蹭
+
+只能说少歌太适合影院了，麻了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
