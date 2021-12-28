@@ -8162,3 +8162,15 @@ steam真的亡了RIP
 
 突然想到这样一来恐怕又要失去一个舆论阵地了，以前意见不合还能打打差评炮
 
+
+
+*****
+
+####  木架穷奇  
+##### 748#       发表于 2021-12-28 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54070350&amp;ptid=2043948" target="_blank">whzfjk 发表于 2021-12-28 05:25</a>
+
+突然想到这样一来恐怕又要失去一个舆论阵地了，以前意见不合还能打打差评炮 ...</blockquote>
+我倒是很期待以后还有没有刷we need chinese的
+
