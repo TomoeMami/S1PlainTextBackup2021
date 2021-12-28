@@ -8484,3 +8484,18 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 
 编辑
 
+
+
+*****
+
+####  ギナ  
+##### 777#       发表于 2021-12-28 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075265&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-28 14:00</a>
+就我的观察而言发头像的99%没有恶意，基本都是跟风甚至是善意，然而不需要你批评和反对。
+
+其实我从蒸汽开 ...</blockquote>
+这纯粹是V社自己懒外加觉得优势很大不需要罢了，包括gog在内的几个平台都有买水军炒热度的（年轻人的第一款3A.jpg）
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

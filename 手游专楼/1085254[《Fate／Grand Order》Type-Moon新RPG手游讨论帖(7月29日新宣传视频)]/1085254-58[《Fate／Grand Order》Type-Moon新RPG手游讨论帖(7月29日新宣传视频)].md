@@ -3682,3 +3682,65 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 到时候再来一次结局摆烂那真的是要吐了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 85846#       发表于 2021-12-28 18:46
+
+<blockquote>exiaexa 发表于 2021-12-28 18:39
+你就直接当他们脑子有问题就行了
+
+型月这群人有个毛病就是喜欢憋
+</blockquote>
+然后妲己在街机落地了，神作
+
+*****
+
+####  zakki  
+##### 85847#       发表于 2021-12-28 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078802&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-28 18:39</a>
+菌类还说“戴比特的故事要娓娓道来”呢（指2.4之后没任何戏份全部推到2.7）
+而且2.7肯定要先写南美 ...</blockquote>
+所以才说最担心，真的急需一个51区的2.65来填坑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85848#       发表于 2021-12-28 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078880&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-28 18:46</a>
+
+然后妲己在街机落地了，神作</blockquote>
+还不够，得太公望再来一个冠位落地，顺手送狐狸到人理之外才行
+
+毕竟专门给狐狸准备了条生路
+
+然后我们又有乐子可以看了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85849#       发表于 2021-12-28 18:50
+
+所以说31号晚上的会是啥，妲己肯定是不可能了，好像还没讲迦勒底一帮人回彷徨海的剧情
+
+*****
+
+####  v22325  
+##### 85850#       发表于 2021-12-28 18:53
+
+<blockquote>zakki 发表于 2021-12-28 18:50
+所以说31号晚上的会是啥，妲己肯定是不可能了，好像还没讲迦勒底一帮人回彷徨海的剧情 ...</blockquote>
+回去发现家没了！
+
+*****
+
+####  yangun22  
+##### 85851#       发表于 2021-12-28 19:00
+
+最后么还有迦勒底全灭的演算结果
+
