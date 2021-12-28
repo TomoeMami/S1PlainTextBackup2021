@@ -4744,3 +4744,12 @@ Screenshot_2021-12-28-06-35-58-56.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">棒骨米上排名已经追上死与新生了，虽然人数不是一个量级
 
+
+
+*****
+
+####  unnilennium  
+##### 365#       发表于 2021-12-28 16:24
+
+剧场版BD首周Oricon综合BD榜第3，销量12670张，挺好了
+

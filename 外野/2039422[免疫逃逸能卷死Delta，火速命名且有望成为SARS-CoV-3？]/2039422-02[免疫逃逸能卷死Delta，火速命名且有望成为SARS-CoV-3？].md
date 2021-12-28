@@ -8859,3 +8859,24 @@ SARS-CoV-2 is widely distributed, even among patients who died with asymptomatic
 </blockquote>
 大一丢，指一个月爆掉全美医疗系统
 
+
+
+*****
+
+####  66666  
+##### 2244#       发表于 2021-12-28 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076596&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-28 15:42</a>
+
+大一丢，指一个月爆掉全美医疗系统</blockquote>
+CDC已经减半感染病毒隔离时间，并鼓励患者在家里治疗（感觉是叫人家死也要死在家里），我觉得下次美国就可以宣布新冠已经流感化了，反正美国能算人的不多，平民别说死80万，死800万都没事
+
+*****
+
+####  crysannia  
+##### 2245#       发表于 2021-12-28 16:23
+
+<blockquote>eveshell 发表于 2021-12-28 15:37
+</blockquote>
+这个子陵在听歌是微博上那个子陵么？如果是，那我觉得有点无语…接种什么新冠疫苗也没有到千分之二的死亡率吧（按最保守的数据估计）
+
