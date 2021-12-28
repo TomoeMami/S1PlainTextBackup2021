@@ -9028,3 +9028,12 @@ mea给如月的最后一条推文（大概？）点赞了，仅此而已
 
 感觉房间应该开空调了，这温度不开怎么打游戏；说的廊下，应该是出房间被冻到了
 
+
+
+*****
+
+####  Klience  
+##### 7043#       发表于 2021-12-28 09:51
+
+阴间时间lol 狗都不看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

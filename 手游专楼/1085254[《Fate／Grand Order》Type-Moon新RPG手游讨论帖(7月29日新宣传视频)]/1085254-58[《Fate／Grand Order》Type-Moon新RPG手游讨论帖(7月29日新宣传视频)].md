@@ -2541,3 +2541,85 @@ np减半这个恶心死了，还有那个尺子小怪
 
 子牙实在是太脆了......而且用他居然还有10%强化失败的概率简直了，最后还是换成系统伊吹
 
+
+
+*****
+
+####  angelooo  
+##### 85736#       发表于 2021-12-28 09:40
+
+<blockquote>保罗赫伯特 发表于 2021-12-28 00:12
+等了一发令咒，总算是把beastIV打过去了。最后那个裁定者职介小怪的即死buff真的是恶心，本身因为职介原因 ...</blockquote>
+我也想到了黑暗圆桌，这种拼脸的本真的是OTZ
+
+*****
+
+####  gpx234mqx  
+##### 85737#       发表于 2021-12-28 09:42
+
+ 本帖最后由 gpx234mqx 于 2021-12-28 09:43 编辑 
+
+这关要点是先打死杂兵
+
+第一排不用管，直接打死兔子
+
+第二排打死三头犬，这货加2回无敌
+
+第三排打死狂阶
+
+第四排按照杀戮兽（被攻击即死）》虎战车（特殊防御）〉兔子的顺序打
+
+*****
+
+####  gpx234mqx  
+##### 85738#       发表于 2021-12-28 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069700&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-28 00:51</a>
+
+主要是不知道 直接就死了 没来得及sl
+
+去各地逛了逛 居然有不少喷这战太难 ...</blockquote>
+没有角神那个难度
+
+但也很难的，没法速通
+
+*****
+
+####  gpx234mqx  
+##### 85739#       发表于 2021-12-28 09:47
+
+ 本帖最后由 gpx234mqx 于 2021-12-28 09:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071264&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 09:22</a>
+
+所以说就很悬啊，谁知道这次活动13节会不会完结，如果接光点2.65新年继续开那还好，但要真就这么结束了也 ...</blockquote>
+没发现兔子身上有2个反xx
+
+一般beast只有一个反Xx
+
+兔子这次有2个，怀疑是双兽
+
+反武器是兔子自带权能
+
+这个反自我，带个C就有问题了，不是兔子的权能
+
+A49B8EC3-7ED5-43A6-BB4D-8E2A6BEEA80E.jpeg
+(428.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 09:48 上传
+
+<img src="https://img.saraba1st.com/forum/202112/28/094848q080x5c1tzj5txtd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85740#       发表于 2021-12-28 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071580&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-28 09:47</a>
+
+没发现兔子身上有2个反xx
+
+一般beast只有一个反Xx</blockquote>
+我知道啊，前面我不就这么说过吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题是如果要展开只剩两节是绝对不可能的，但又不敢保证一定会有光点2.65接通古斯的剧情。所以才说很悬
+
