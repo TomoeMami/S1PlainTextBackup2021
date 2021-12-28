@@ -2758,3 +2758,36 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年新年从者是不是又要是外星人了    剑外星人剑外星人这定律还要保持下去吗
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85755#       发表于 2021-12-28 11:09
+
+麻婆反水进卡池你们跟不跟
+
+*****
+
+####  DARKGRAY  
+##### 85756#       发表于 2021-12-28 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071617&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 09:50</a>
+
+我知道啊，前面我不就这么说过吗问题是如果要展开只剩两节是绝对不可能的，但又不敢保证一定会有 ...</blockquote>
+接也可以先不开嘛，真BOSS说句谢谢你们让我得手然后溜了不就完了
+
+*****
+
+####  qixinno2  
+##### 85757#       发表于 2021-12-28 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出什么新卡都跟我没什么关系了 现在只有今天签到的一张呼符 
+
+*****
+
+####  zore  
+##### 85758#       发表于 2021-12-28 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿拐外星人
+
