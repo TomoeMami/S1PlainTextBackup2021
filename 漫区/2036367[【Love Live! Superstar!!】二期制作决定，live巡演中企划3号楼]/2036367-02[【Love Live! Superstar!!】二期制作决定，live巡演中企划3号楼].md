@@ -13675,3 +13675,100 @@ v2.5.2</blockquote>
 我其实挺想知道，当初黑屁鲤鱼的时候有没有如此群情激愤仗义执言的 ...</blockquote>
 那时候普遍对她的表现是有顾虑的，对她的身份更是偏见拉满，很难有人完全出于道义给她说话吧……
 
+
+
+*****
+
+####  稀勢のささ  
+##### 2625#       发表于 2021-12-28 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼某S1群 合着这波是邦邦粉头大战拉拉粉头
+
+*****
+
+####  chenflyyy  
+##### 2626#       发表于 2021-12-28 22:02
+
+当初还是能看到不少澄清摩天轮的，不过这本来就黑得莫名其妙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2627#       发表于 2021-12-28 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祝好死
+
+*****
+
+####  lj205  
+##### 2628#       发表于 2021-12-28 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080986&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-28 21:59</a>
+这个楠木灯超话主持人说了啊，他发这个就是替店主出头来了，是非什么的他才不管呢。
+顺便，顺着那个店主 ...</blockquote>
+看到微博里有几个平时喊鲤鱼喊的欢的人也在那不分是非的转我就哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 2629#       发表于 2021-12-28 22:03
+
+当初前20页那个样子不就是嫌鲤鱼污染了他们的圈子吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这种行为我看似乎也不比“糊咖不配碰我哥哥”高明得到哪里去呢
+
+*****
+
+####  kata魂  
+##### 2630#       发表于 2021-12-28 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080937&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2021-12-28 21:54</a>
+
+有也没用 没法形成战斗力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">现在鲤鱼火了，粉丝战斗力提升，当初黑屁的战斗力也跟着一起提升了呗，开始大声说话了有人替着出头了。
+
+看不起没出名的小偶像，被殴打后还嘴硬的一批
+
+懂了，这是致敬贝吉塔
+
+看不起下级战士遭受社会的毒打，各种不服，然后被迫自爆
+
+现在是集齐龙珠复活时间
+
+复活后是不是得来一句“鲤鱼你的粉圈恶臭才是No.1啊”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 2631#       发表于 2021-12-28 22:14
+
+放以前我还会说和气生财维护圈子环境，现在我就是TMD
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 2632#       发表于 2021-12-28 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080513&amp;ptid=2036367" target="_blank">進藤あまね 发表于 2021-12-28 21:16</a>
+
+https://weibo.com/2258350604/L8aQuw0LO</blockquote>
+嗯？等会儿，这微博说的西西是偶像3群群主，我就在这个群里啊，他不还是群主吗？什么叫已被下？为了给自己壮声势还能这么造谣的吗？
+
+*****
+
+####  player3960  
+##### 2633#       发表于 2021-12-28 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081155&amp;ptid=2036367" target="_blank">player3960 发表于 2021-12-28 22:14:33</a>
+放以前我还会说和气生财维护圈子环境，现在我就是TMD</blockquote>qtmd,吃瓜看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 2634#       发表于 2021-12-28 22:17
+
+这个挂人的晒鲤鱼开始那几个签名和写真就是有意引导呗，你新粉有资格说我老粉？
+

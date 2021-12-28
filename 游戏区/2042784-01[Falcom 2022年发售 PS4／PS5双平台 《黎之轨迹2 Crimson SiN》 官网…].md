@@ -1672,3 +1672,37 @@ ps5版至少loading问题可以解决了
 
 炼金工作室那个公司貌似也是一年一作
 
+
+
+*****
+
+####  悠悠你心  
+##### 161#       发表于 2021-12-28 22:02
+
+ 本帖最后由 悠悠你心 于 2021-12-28 22:04 编辑 
+
+剧本打磨时间越短，我越倾向于编剧会套用熟悉的模板（不排除注水）来达到减少缩短开发时间的目的。
+
+那么结果就是看了前面就会知道后面的发展，这点对老玩家来说挺致命的。
+
+当然，你法特色就是喜欢“重剧情”，靠大文本量和一些故事发展和庞大世界观作卖点。但是涉及到章节模板本来就不多，但愿这次能做的有点惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Yeaha123  
+##### 162#       发表于 2021-12-28 22:11
+
+还好上一作反派死光了，这次反派大概是新人，多少有些新鲜感
+
+*****
+
+####  无动于衷  
+##### 163#       发表于 2021-12-28 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080884&amp;ptid=2042784" target="_blank">Yeaha123 发表于 2021-12-28 21:48</a>
+
+炼金工作室那个公司貌似也是一年一作</blockquote>
+你想多了 2021年这一年就没出工作室新作
+

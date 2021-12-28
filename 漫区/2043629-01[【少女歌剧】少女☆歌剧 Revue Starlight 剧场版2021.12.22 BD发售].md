@@ -4866,3 +4866,14 @@ B站动态看见一个观影团连观影特典都整出来了
 
 满篇幅的revue看得好爽
 
+
+
+*****
+
+####  学魔乱舞  
+##### 375#       发表于 2021-12-28 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078964&amp;ptid=2043629" target="_blank">无聊者X 发表于 2021-12-28 18:53</a>
+北京的群是已经满了吗</blockquote>
+没满，搜群号580215006/剧场版百京组团
+
