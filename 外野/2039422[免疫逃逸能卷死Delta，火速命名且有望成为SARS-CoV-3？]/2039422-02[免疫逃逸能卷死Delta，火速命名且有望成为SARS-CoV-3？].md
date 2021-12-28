@@ -8748,3 +8748,22 @@ SARS-CoV-2 is widely distributed, even among patients who died with asymptomatic
 说点题外的，我打疫苗第二针以后，精液出了点问题，连续一周咖啡色或者说可乐色的精液。一周后慢慢恢复了。 ...</blockquote>
 你不看一下？有人说这是精液出血
 
+
+
+*****
+
+####  langnan88862  
+##### 2234#       发表于 2021-12-28 13:39
+
+看来是要和人类共存了
+
+*****
+
+####  wszweill  
+##### 2235#       发表于 2021-12-28 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54057599&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-26 12:05</a>
+
+不是活病毒，只是病毒RNA  片段碎片，可以通过PCR检出。类似的论文去年就有了，被选择性无视而已 ...</blockquote>
+正常人类有血睾屏障的。就算只是RNA碎片，如果不是尿道里污染进X液的，那意味着病毒可以突破这个屏障，能否感染精母细胞真不好说。精子毕竟发生两次减数分裂，细胞质状态和普通细胞很不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我觉得得等大体老师解剖看看精母细胞才好说。
+
