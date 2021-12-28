@@ -2985,3 +2985,17 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 运营方针什么的东西照样不会变
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85778#       发表于 2021-12-28 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075704&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-28 14:35</a>
+
+哦有点看错了 看成“用契约书换停留一年 你不变了吧？“
+
+实际上是问“用契约书换停留一年时间快到 ...</blockquote>
+没续，就租一年
+
