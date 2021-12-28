@@ -9043,3 +9043,23 @@ covid住院率没那么高啊，这算是样本选取的偏差罢了。这个算
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  jxwats1  
+##### 2259#       发表于 2021-12-29 01:23
+
+ 本帖最后由 jxwats1 于 2021-12-29 01:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082625&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 01:01</a>
+
+covid住院率没那么高啊，这算是样本选取的偏差罢了。这个算是小样本研究，所以我用了似乎这两个字。
+
+—  ...</blockquote>
+
+所以单单从这15名病例来看，退一万步讲就算omicron感染产生的抗体（而不是由于疫苗或者先前感染）能中和delta，也不是啥好消息啊，老老实实打疫苗不好吗。
+
+要是得omicron真像子陵在听歌说得如打疫苗那么好，这项研究起码缺了好几点：之前没感染没接种过疫苗+得了omicron后症状轻到不需要住院+对delta中和效果显著。但其实你去看这个preprint的第7页上面的图，没打疫苗的四位，*只有一位*在感染omicron后产生了对delta的显著中和能力（而且这位患者入组时的抗体水平就接近及格线，鬼知道之前是不是有过感染）
+
+要是不说明白这点就想靠这个小规模研究暗示得了omicron可能还是件好事，那这媒体也病得不轻。比如上面朋友贴的子陵的微博回复，或者这则新闻里转述的推：“The expected large number of people infected with Omicron in Israel and around the world may therefore significantly increase the level of immunity of the entire population and help eradicate Delta and at least some of the other variants” 就属于有大病了。还是那句话，有这闲工夫盼着感染omicron能增强群体免疫的话，直接打疫苗不好吗
+
