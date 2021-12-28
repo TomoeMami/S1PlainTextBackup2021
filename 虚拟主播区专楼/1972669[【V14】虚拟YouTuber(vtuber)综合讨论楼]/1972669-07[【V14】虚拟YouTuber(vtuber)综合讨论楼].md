@@ -7705,3 +7705,49 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">叶山你的3d披露还没就上这节目了么
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9650#       发表于 2021-12-28 20:02
+
+ 本帖最后由 alcoholic1000 于 2021-12-28 20:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202112/28/200005g6dqlqic2hmqxwdi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>#NJU歌謡祭2021 .jpeg</strong> (589.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 20:00 上传
+
+ <blockquote>12月31日15時半より前半後半の2部構成で
+
+にじさんじユニット歌謡祭 を 開催！！
+
+総勢58名のライバーがユニットを組み
+
+3Dで歌を披露するぞ🎤
+
+<strong>2部構成の間には2D番組も</strong>👀✨     ←考虑周到
+
+組み合わせやどんな歌を歌うのかは
+
+当日までのお楽しみ！
+
+ユニットや楽曲の予想など
+
+歌謡祭に関する呟きは #NJU歌謡祭2021 へ</blockquote>
+
+Syl，有3D但没上的成员：
+
+渋谷ハジメ、鈴谷アキ、物述有栖、魔界ノりりむ、轟京子、鈴木勝、 卯月コウ、雨森小夜、小野町春香、戌亥とこ、雪城眞尋、エクス・アルビオ、黛灰、ラトナ・プティ、健屋花那、 シェリン・バーガンディ、フミ、ルイス・キャミー、奈羅花、甲斐田晴、西園チグサ
+
+*****
+
+####  FCCHua  
+##### 9651#       发表于 2021-12-28 20:17
+
+想看sky参加，但是考试最重要<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+

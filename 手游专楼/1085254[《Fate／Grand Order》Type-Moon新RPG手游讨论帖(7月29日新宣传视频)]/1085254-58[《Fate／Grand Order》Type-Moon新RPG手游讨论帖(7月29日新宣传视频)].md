@@ -3975,3 +3975,116 @@ G高达里多蒙不就是这么嘴炮东方不败的<img src="https://static.sar
 
 不知道是不是这几天打奇美拉兔打累了，剧情看着没啥劲，杀狐逼格骤降（虽然伽摩已经把beast的脸丢尽了），你以为是西游记后传的无天（？），其实是东游记的穿山甲（？？）。总的来说像看了场奥特曼的剧场版（还是高斯的）...
 
+
+
+*****
+
+####  katun  
+##### 85874#       发表于 2021-12-28 20:08
+
+说到藤崎龙演义，因为这次活动我去搜了下才发现出了全彩上色版，于是开始重看，隔了这么多年还是觉得好看啊，把我被这破剧情整出的瞌睡全给憋回去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 85875#       发表于 2021-12-28 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079714&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-28 20:00</a>
+
+你好，你的第一段问题请去看月世界天朝前传之仙界传封神演义
+
+你的违和感就会和兔子一起去外太空了
+
+[f:067 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">说不定他私藏了呢，毕竟我们也不知道
+
+*****
+
+####  exiaexa  
+##### 85876#       发表于 2021-12-28 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079854&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-28 20:11</a>
+
+说不定他私藏了呢，毕竟我们也不知道</blockquote>
+妲己应该是没藏的，毕竟覆水难收都给妲己流血用了
+
+只是没想到还他妈能这么解释覆水难收出处的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 85877#       发表于 2021-12-28 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">这剧情，怎么说呢，又是机械降神？最后直接一个马虎眼说认错人拍拍屁股就走人了…..如果31号不来点正常的，那我很怀疑樱井是不是救过蘑菇他妈而这么被看重……
+
+*****
+
+####  yukinouta  
+##### 85878#       发表于 2021-12-28 20:16
+
+ 本帖最后由 yukinouta 于 2021-12-28 20:17 编辑 
+
+2.6虽然说不上精彩绝伦吧好歹是菌类执笔（可以挽尊x） 但这杀兔主线剧情接得真是让人感觉断层太大<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">整得跟个支线活动剧情似的 还没万圣剧情有意思
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">太公望到最后都是个妲己复读机是我没想到的 不过两天“好美啊”的自白剧情下来也不对这个角色抱什么期待了……
+
+*****
+
+####  J-002  
+##### 85879#       发表于 2021-12-28 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079418&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-28 19:31</a>
+
+恐龙之神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">加勒底里的霸王龙打了个喷嚏
+
+*****
+
+####  angelooo  
+##### 85880#       发表于 2021-12-28 20:21
+
+我觉得，要是通古斯像是大奥、虚数海这类独立性比较高的剧情我还能理解，杀兔这个从2.0序章就登场的角色，铺垫了好几个大章节，你跟我说就这？也别黑什么道满贝屑掉光逼格了，杀兔这设定我只觉得我的智商被侮辱了，有意思吗
+
+*****
+
+####  都谷捻柏  
+##### 85881#       发表于 2021-12-28 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079885&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-28 20:15</a>
+
+妲己应该是没藏的，毕竟覆水难收都给妲己流血用了
+
+只是没想到还他妈能这么解释覆水难收出处的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的是杀狐
+
+*****
+
+####  exiaexa  
+##### 85882#       发表于 2021-12-28 20:22
+
+ 本帖最后由 exiaexa 于 2021-12-28 20:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079892&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-12-28 20:15</a>
+
+这剧情，怎么说呢，又是机械降神？最后直接一个马虎眼说认错人拍拍屁股就走人了…..如果31号不来点 ...</blockquote>
+只能说这俩人大概思考逻辑同步率就是没理由的高
+
+你仔细回忆一下樱井的幺蛾子是不是都有菌类一份
+
+单看设定或者某一段落你甚至搞不清楚这俩人谁是谁
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85883#       发表于 2021-12-28 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079953&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-28 20:21</a>
+
+我说的是杀狐</blockquote>
+这种问题就应该交给本子，再不济交给Koikatsu
+
+反正现在塞进虚数空间了除了钓鱼佬别人也找不到
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
