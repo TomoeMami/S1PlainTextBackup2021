@@ -3794,3 +3794,95 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 杀狐回忆是一瞬间被杀的所以动物的悲鸣与痛苦跟这陨石混合（？）就诞生了
 
+
+
+*****
+
+####  v22325  
+##### 85856#       发表于 2021-12-28 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079269&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-28 19:17</a>
+
+发动尼比鲁效果然后发现没有准备TOKEN，于是随手拿张妲姬代替
+
+—— 来自 Sony XQ-AT72, Android  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞不好杀狐刚诞生的时候不是长这样的 后来听了九尾的传闻要当九尾样子就变成那样了呢
+
+*****
+
+####  里村紅葉  
+##### 85857#       发表于 2021-12-28 19:21
+
+看完唯一的感想是型月的地球这么多年终于往地球外送东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 85858#       发表于 2021-12-28 19:24
+
+还有啊，一个通古斯爆炸就能整出个人类恶了，那恐龙灭绝的陨石得搞出个什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85859#       发表于 2021-12-28 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079320&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-28 19:21</a>
+
+看完唯一的感想是型月的地球这么多年终于往地球外送东西了</blockquote>
+这玩意和多啦A梦的红豆饼一样恶劣<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85860#       发表于 2021-12-28 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079343&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-28 19:24</a>
+
+还有啊，一个通古斯爆炸就能整出个人类恶了，那恐龙灭绝的陨石得搞出个什么啊 ...</blockquote>
+那是因为通古斯的时候人类已经发展起来了，动物都知道人类武器的厉害，恐龙的时候哪来人类？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  里村紅葉  
+##### 85861#       发表于 2021-12-28 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079404&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-28 19:29</a>
+
+那是因为通古斯的时候人类已经发展起来了，动物都知道人类武器的厉害，恐龙的时候哪来人类？ ...</blockquote>
+恐龙：跟人类不搭边死的多惨也是白死，是我冒昧了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85862#       发表于 2021-12-28 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079404&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-28 19:29</a>
+
+那是因为通古斯的时候人类已经发展起来了，动物都知道人类武器的厉害，恐龙的时候哪来人类？ ...</blockquote>
+恐龙之神<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 85863#       发表于 2021-12-28 19:39
+
+ 本帖最后由 KOBI 于 2021-12-28 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079165&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-28 19:09</a>
+
+为啥陨石掉落会产生自然神
+
+然后选择狐狸的灵基</blockquote>
+大概是天照的锅。。。
+
+自光辉诞下之物即等同吾子这瞎几把认女儿然后再参考了同属性的玉藻和生出妖魔的九尾最后就变成了玉藻族
+
+*****
+
+####  超阳电子炮  
+##### 85864#       发表于 2021-12-28 19:40
+
+看完剧情感觉望哥好惨，被上司忽悠过来打完全不认识的cosplay爱好者
+

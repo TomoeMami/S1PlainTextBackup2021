@@ -7678,3 +7678,30 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 
 我郡在唱歌方面颇无才能怎么敢去这种地方啊，去演小品吗<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 9647#       发表于 2021-12-28 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">神田都回老家了 有很多人是录像吧
+
+*****
+
+####  fastary  
+##### 9648#       发表于 2021-12-28 19:39
+
+感性：年末大会和活动这么多却正好碰上黑客病休，真可惜啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+理性：说得好像不病休他就会去参加一样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+呜呜，只能说年末还能看到他直播就是胜利，不可多奢求了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 9649#       发表于 2021-12-28 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">叶山你的3d披露还没就上这节目了么
+

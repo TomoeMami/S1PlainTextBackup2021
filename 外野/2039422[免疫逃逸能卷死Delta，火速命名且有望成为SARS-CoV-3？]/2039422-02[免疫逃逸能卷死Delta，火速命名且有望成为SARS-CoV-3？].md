@@ -8948,3 +8948,15 @@ CDC已经减半感染病毒隔离时间，并鼓励患者在家里治疗（感�
 这世界上没有没打过疫苗的国家了吧，抗体没用还有其他免疫机制，你以为两针mrna，几乎没有抗体，能减少重症 ...</blockquote>
 朝鲜啊，给疫苗不要，说请分配给更需要的国家<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wszweill  
+##### 2252#       发表于 2021-12-28 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075517&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-28 01:21</a>
+
+突破血脑屏障也许对新冠来说都是小开司，虽然目前最新的解释是新冠病毒通过鼻神经进而感染中枢神 ...</blockquote>
+我觉得不必太教条，屏障本来就是保护大脑的。达到感染大脑的目的就行了，毕竟有血脑屏障，免疫系统功能也受限制，影响脑部运作才是值得注意的。至于具体通路。。泥潭又不负责研发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
