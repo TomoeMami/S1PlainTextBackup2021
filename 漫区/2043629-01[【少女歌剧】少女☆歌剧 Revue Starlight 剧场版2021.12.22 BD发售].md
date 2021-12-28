@@ -4753,3 +4753,26 @@ Screenshot_2021-12-28-06-35-58-56.png
 
 剧场版BD首周Oricon综合BD榜第3，销量12670张，挺好了
 
+
+
+*****
+
+####  wuliaozheX  
+##### 366#       发表于 2021-12-28 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076379&amp;ptid=2043629" target="_blank">Lyzers 发表于 2021-12-28 15:25</a>
+
+棒骨米上排名已经追上死与新生了，虽然人数不是一个量级</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真星为你
+
+和真心为你还有不小差距
+
+Screenshot_20211228_164034.jpg
+(229.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 16:58 上传
+
+<img src="https://img.saraba1st.com/forum/202112/28/165806nkvfpf2vfuvpvflt.jpg" referrerpolicy="no-referrer">
+

@@ -3142,3 +3142,25 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 这就是人类的觉悟啊威力加强版</blockquote>
 那是小太刀，为啥不能是1.0终章咕哒单挑人王的威力加强版呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 85793#       发表于 2021-12-28 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077175&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 16:28</a>
+
+那是小太刀，为啥不能是1.0终章咕哒单挑人王的威力加强版呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿圣剑XJB砍应该比终章铁拳殴打人王好看点
+
+*****
+
+####  zakki  
+##### 85794#       发表于 2021-12-28 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077457&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-28 16:50</a>
+
+拿圣剑XJB砍应该比终章铁拳殴打人王好看点</blockquote>
+我觉得可以做进战斗里，反正也完结了，就让玩家真正意义上手操一次咕哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
