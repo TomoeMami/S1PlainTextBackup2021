@@ -1706,3 +1706,22 @@ ps5版至少loading问题可以解决了
 炼金工作室那个公司貌似也是一年一作</blockquote>
 你想多了 2021年这一年就没出工作室新作
 
+
+
+*****
+
+####  Yeaha123  
+##### 164#       发表于 2021-12-28 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081142&amp;ptid=2042784" target="_blank">无动于衷 发表于 2021-12-28 22:12</a>
+
+你想多了 2021年这一年就没出工作室新作</blockquote>
+没出工作室，但是出了个蓝反帝
+
+*****
+
+####  如果有一天TT  
+##### 165#       发表于 2021-12-28 22:42
+
+确实，成也年年新作，败也年年新作
+

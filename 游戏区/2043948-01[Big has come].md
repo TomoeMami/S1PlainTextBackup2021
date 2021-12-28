@@ -8580,3 +8580,29 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 建议就别和那个zashou汴经了，动不动满嘴“废物”“高中生”，打赌的时候只知道喊输的给狗叔打钱，完全不 ...</blockquote>
 另外steam被干了，按照我们的赌注你可以给狗叔打100块钱啦～～是不是废物100块钱也要赖啊～～
 
+
+
+*****
+
+####  黑兽  
+##### 784#       发表于 2021-12-28 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075265&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-28 14:00</a>
+
+就我的观察而言发头像的99%没有恶意，基本都是跟风甚至是善意，然而不需要你批评和反对。
+
+其实我从蒸汽开 ...</blockquote>
+神tm善意<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 那个区域的标题是消费者评测，是让你评论游戏用的而不是刷毫无关系的字符画
+
+*****
+
+####  处男鉴黄师  
+##### 785#       发表于 2021-12-28 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071161&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-28 09:12</a>
+
+如果相当长时间内，都是只有蒸汽被干扰，而其他平台相安无事的话。
+
+那就是蒸汽商店自己某个独有的东西被盯 ...</blockquote>
+你这还不如阴茅论企鹅投资了epic所以要干死蒸汽<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

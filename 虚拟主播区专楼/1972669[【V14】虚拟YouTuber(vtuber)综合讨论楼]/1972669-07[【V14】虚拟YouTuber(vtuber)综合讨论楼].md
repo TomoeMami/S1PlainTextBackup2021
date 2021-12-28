@@ -7798,3 +7798,14 @@ GDB翼豹，FD，RX8，Swift Sport
 
 还有个开EVO9的姬友<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  本间日阳  
+##### 9654#       发表于 2021-12-28 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080109&amp;ptid=1972669" target="_blank">NBXX 发表于 2021-12-28 20:35</a>
+https://twitter.com/azuma_lim/status/1475799527483650050</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">真难啊
+

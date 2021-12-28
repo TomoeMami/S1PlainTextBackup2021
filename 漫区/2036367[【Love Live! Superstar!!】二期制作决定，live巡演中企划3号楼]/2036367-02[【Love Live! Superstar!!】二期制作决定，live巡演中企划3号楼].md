@@ -13772,3 +13772,143 @@ https://weibo.com/2258350604/L8aQuw0LO</blockquote>
 
 这个挂人的晒鲤鱼开始那几个签名和写真就是有意引导呗，你新粉有资格说我老粉？
 
+
+
+*****
+
+####  player3960  
+##### 2635#       发表于 2021-12-28 22:20
+
+看它避重就轻就知道了，就是个带节奏的，下面评价还一堆不明真相在那理客中，但凡它能去s1楼里截几张这店长的恶臭“名言”放上去，除了好死活该，我都想不出别的词来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  shamanda  
+##### 2636#       发表于 2021-12-28 22:21
+
+等一下等一下，这还是我认识的中老年巨魔聚集地S1嘛？黑屁小偶像居然还算罪状，要这样miku老师真爱楼和音宝真爱楼里的不都得被拉出去吊路灯啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2637#       发表于 2021-12-28 22:22
+
+没啊，所以大家都在吃瓜看戏呗
+
+*****
+
+####  cybernetics31  
+##### 2638#       发表于 2021-12-28 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081212&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-28 22:21</a>
+等一下等一下，这还是我认识的中老年巨魔聚集地S1嘛？黑屁小偶像居然还算罪状，要这样miku老师真爱楼和音宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么不巨魔，大家都盼着打起来呢
+
+*****
+
+####  秋月艾莉  
+##### 2639#       发表于 2021-12-28 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081160&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-28 22:15</a>
+
+嗯？等会儿，这微博说的西西是偶像3群群主，我就在这个群里啊，他不还是群主吗？什么叫已被下？为了给自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友玩微博吗，不去下面留个言吗
+
+*****
+
+####  稀勢のささ  
+##### 2640#       发表于 2021-12-28 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081212&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-28 22:21</a>
+
+等一下等一下，这还是我认识的中老年巨魔聚集地S1嘛？黑屁小偶像居然还算罪状，要这样miku老师真爱楼和音宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟楼友说不管用啊 你得说服看了黑屁的mmr不去冲
+
+
+
+*****
+
+####  仟音一心  
+##### 2641#       发表于 2021-12-28 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081231&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-12-28 22:23</a>
+楼友玩微博吗，不去下面留个言吗</blockquote>
+刚和群里说了这事儿，大家也是我说了后才知道（毕竟是一个小时前才发的），我看能不能讨论出点对策。
+
+*****
+
+####  中野四葉  
+##### 2642#       发表于 2021-12-28 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不是说好了立正挨打了吗，现在看起来怎么还是一副我好委屈的样子，嘻嘻，打起来
+
+*****
+
+####  kata魂  
+##### 2643#       发表于 2021-12-28 22:29
+
+<img src="https://img.saraba1st.com/forum/202112/28/222853myhkiv592wwy5ye9.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (74.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202112/28/222855tjaef4591ndza661.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (78.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202112/28/222848jvvtzey8cdd0djkv.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (95.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 22:28 上传
+
+这玩意不挺有意思的吗，谁去发个微博
+
+*****
+
+####  chenflyyy  
+##### 2644#       发表于 2021-12-28 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081041&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-28 22:03</a>
+看到微博里有几个平时喊鲤鱼喊的欢的人也在那不分是非的转我就哈哈 ...</blockquote>
+有抽奖啊，奖品我也挺想要的，反正都是吃瓜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2645#       发表于 2021-12-28 22:32
+
+嗨呀，人家肯定打滚说我已经认错道歉了，又不是没见过他之前什么样，发了个博文全避开重点到是通篇拿松雾给他背书<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2646#       发表于 2021-12-28 22:36
+
+吃瓜还有可能拿签名，这不更得吃嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2647#       发表于 2021-12-28 22:37
+
+这位博主到底是想帮车西还是还是害他啊，抽这奖有屁用。之前他店里鲤鱼一专100+销量，现在退货到六十多。还嫌多是吧，我的还没退，扩大是想更多的人退货吗？
+
+*****
+
+####  lj205  
+##### 2648#       发表于 2021-12-28 22:39
+
+这波玩的太6了是吧？要不要把淘宝店主唤回专楼给大家也聊聊？
+

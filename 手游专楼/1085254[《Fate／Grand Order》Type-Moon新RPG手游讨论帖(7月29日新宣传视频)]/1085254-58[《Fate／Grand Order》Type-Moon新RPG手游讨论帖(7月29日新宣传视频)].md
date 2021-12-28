@@ -4363,3 +4363,43 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正还有盖总兜底 提妈也不是没可能召唤出来 感觉没什么好怕的
 
+
+
+*****
+
+####  zakki  
+##### 85908#       发表于 2021-12-28 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081197&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-28 22:19</a>
+反正还有盖总兜底 提妈也不是没可能召唤出来 咕哒圣剑在手 感觉没什么好怕的了 ...</blockquote>
+干脆31号直接莾穿第七异闻带，手刃大蜘蛛和大总统算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 85909#       发表于 2021-12-28 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">讲道理A狐这章剧情是挺不好写的....本身就是大熟人了.....双方老底都已经摸透了....作为这章舞台的固有结界又是除了A狐和诂哒一行外一个有自我的知性生命体都没有....新角色也就一个太公望和一个冷门的要死的4星。
+
+基本上构成剧情最基本要素的角色和对未知的探索感都没有....这你让人怎么写....也就只能在结局这里超展开一把了
+
+*****
+
+####  厄神之息  
+##### 85910#       发表于 2021-12-28 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081174&amp;ptid=1085254" target="_blank">凌云三才 发表于 2021-12-28 22:17</a>
+
+我感觉31号真有可能又是经典冠位和兽错位，姜子牙走了妲己来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，反正姜子牙也不是冠，走了再空降个冠位日本人不就完了吗
+
+*****
+
+####  qixinno2  
+##### 85911#       发表于 2021-12-28 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081236&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 22:23</a>
+
+干脆31号直接莾穿第七异闻带，手刃大蜘蛛和大总统算了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区区蜘蛛和总统 直接从者宇宙走起 我咕哒可是能跟X毛拉刀光的
+
