@@ -4785,3 +4785,25 @@ Screenshot_20211228_164034.jpg
 
 还有断货的影响吧，看了眼少战真的强……
 
+
+
+*****
+
+####  阿卡拉兰斯  
+##### 368#       发表于 2021-12-28 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077567&amp;ptid=2043629" target="_blank">wuliaozheX 发表于 2021-12-28 16:58</a>
+真星为你
+
+和真心为你还有不小差距</blockquote>
+快进到bgm帖子怒斥德不配位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainknine  
+##### 369#       发表于 2021-12-28 17:32
+
+死与新生vs死与星生差0.6
+真心为你vs真星为你差0.7
+不慌不慌，评分体系没崩
+

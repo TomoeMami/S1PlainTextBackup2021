@@ -3218,3 +3218,70 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zakki  
+##### 85801#       发表于 2021-12-28 17:23
+
+ 本帖最后由 zakki 于 2021-12-28 17:39 编辑 
+
+编辑
+
+*****
+
+####  zakki  
+##### 85802#       发表于 2021-12-28 17:36
+
+结果杀狐这铺垫四年的角色还真就13节交代了？还特么是第10节才登场<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且照这个意思看起来芙芙也不可能会显现兽形态了，真就是被消灭了
+
+*****
+
+####  zakki  
+##### 85803#       发表于 2021-12-28 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077888&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-28 17:21</a>
+
+还有个之前每章开头的51区，骑车的戴维特·布鲁布克在现实时间里已经被不明红色怪人枪击两年了
+
+从 ...</blockquote>
+有道理，2.65可能是51区去解密推主线。不过51区看起来应该也不会有什么战斗吧，可能是个纯解密的章节。问题是什么时候才能看到呢。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凌云三才  
+##### 85804#       发表于 2021-12-28 17:40
+
+这最后几节的剧情实在太脱力了...我几乎是捏着鼻子看完的，樱井：没想到吧，是大团圆哒！你们猜的全部木大！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 85805#       发表于 2021-12-28 17:42
+
+<img src="https://img.saraba1st.com/forum/202112/28/174219i46uarso88ahv8vx.jpg" referrerpolicy="no-referrer">
+
+<strong>k.jpg</strong> (65.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 17:42 上传
+
+*****
+
+####  凌云三才  
+##### 85806#       发表于 2021-12-28 17:44
+
+姜子牙那个CUTIN帅是挺帅的，但是我看的时候内心一点波动没有，你这最后整这一出，我只有一种“憋了一年的响屁最后就噗的轻轻一声”的无力感...
+
+*****
+
+####  alucardcz  
+##### 85807#       发表于 2021-12-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078106&amp;ptid=1085254" target="_blank">凌云三才 发表于 2021-12-28 17:40</a>
+
+这最后几节的剧情实在太脱力了...我几乎是捏着鼻子看完的，樱井：没想到吧，是大团圆哒！你们猜的全部木大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">互 相 理 解 
+
