@@ -9063,3 +9063,68 @@ covid住院率没那么高啊，这算是样本选取的偏差罢了。这个算
 
 要是不说明白这点就想靠这个小规模研究暗示得了omicron可能还是件好事，那这媒体也病得不轻。比如上面朋友贴的子陵的微博回复，或者这则新闻里转述的推：“The expected large number of people infected with Omicron in Israel and around the world may therefore significantly increase the level of immunity of the entire population and help eradicate Delta and at least some of the other variants” 就属于有大病了。还是那句话，有这闲工夫盼着感染omicron能增强群体免疫的话，直接打疫苗不好吗
 
+
+
+*****
+
+####  smy20011  
+##### 2260#       发表于 2021-12-29 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082765&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-29 01:23</a>
+所以单单从这15名病例来看，退一万步讲就算omicron感染产生的抗体（而不是由于疫苗或者先前感染）能中和d ...</blockquote>
+我同意你说的，打疫苗要比感染好很多。只是之前o能突破感染d的患者，现在发现o的抗体对d有效，也就是说，o说不定能把d干灭绝了，而不是共存传播。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  wszweill  
+##### 2261#       发表于 2021-12-29 03:19
+
+ 本帖最后由 wszweill 于 2021-12-28 14:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082248&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-28 11:02</a>
+
+我说的是，测不出血液中的抗体，但是研究表示，疫苗还是有防重症的效果啊
+
+— from Google Pixel 3 XL, A ...</blockquote>
+我印象中这是两个分别的调查，一个是打疫苗N个月后抗体浓度下降--这个属于初次免疫应答，因此抗体浓度下降时病人终归会得病；但是这个不代表病毒入侵后再次免疫--记忆B的应答--不生效（二次免疫需要时间，新冠在此期间形成无症状-轻症感染本身是很合理的），也就是统计上防止重症的效果和作用上是否依赖抗体并无直接关系。
+
+这并不意味着抗体浓度下降，疫苗的作用就和抗体无关了。比如没有疫苗的时候，绝大多数人血液里没有新冠抗体，但是仍然又有90%的病人是轻症，这并不意味着这些90%的患者痊愈就和抗体没关系，他们就是靠人自己的一次免疫产生的抗体+T细胞痊愈的，只不过没有疫苗，天然建立一次免疫需要比较长的时间，挺不过去就重症或者GG。
+
+*****
+
+####  Maestro  
+##### 2262#       发表于 2021-12-29 04:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083101&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 02:32</a>
+我同意你说的，打疫苗要比感染好很多。只是之前o能突破感染d的患者，现在发现o的抗体对d有效，也就是说， ...</blockquote>
+图里unvaccined那几个点只有一个算对delta有效，只能说omicron激活了对（打了疫苗的人）delta的既存免疫，不能说omicron会产生对delta的抗体吧
+
+帮主今天的文章又说英国对o的测序结果里混进了d才有的突变，除了同时感染还有啥可能的解释么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2263#       发表于 2021-12-29 04:25
+
+ 本帖最后由 smy20011 于 2021-12-29 04:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083278&amp;ptid=2039422" target="_blank">Maestro 发表于 2021-12-29 04:14</a>
+图里unvaccined那几个点只有一个算对delta有效，只能说omicron激活了对（打了疫苗的人）delta的既存免疫 ...</blockquote>
+同时感染病例也是正常的，不过是个例还是持续的现象？
+
+alpha和beta也有过共同感染
+
+https://www.npr.org/sections/coronavirus-live-updates/2021/07/12/1015242810/belgian-woman-infected-2-covid-variants
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Redis  
+##### 2264#       发表于 2021-12-29 05:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076596&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-28 15:42</a>
+
+大一丢，指一个月爆掉全美医疗系统</blockquote>
+不大可能，之前都没爆掉，方法多的是
+

@@ -1743,3 +1743,21 @@ ps5版至少loading问题可以解决了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oskneo  
+##### 168#       发表于 2021-12-29 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080782&amp;ptid=2042784" target="_blank">ac130-2020 发表于 2021-12-28 21:40</a>
+比起投资 法老控这种一年必须一座的开发体制才是最大问题
+
+哪家公司这种大型3DRPG游戏一年一座出的
+
+公司并不 ...</blockquote>
+如龙组也是年年吧，
+而且玩起来也像rpg
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

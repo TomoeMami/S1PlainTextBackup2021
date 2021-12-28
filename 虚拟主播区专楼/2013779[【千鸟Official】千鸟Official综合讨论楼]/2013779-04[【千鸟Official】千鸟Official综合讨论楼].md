@@ -2426,3 +2426,26 @@ co宝持续上工中<img src="https://static.saraba1st.com/image/smiley/face2017
 看完beyond the game 整个人都emo了
 然后回来看个动态被bu直接干懵逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Quark  
+##### 4752#       发表于 2021-12-29 01:48
+
+不懂 是觉得静姨这么聊 对比显得自己爸爸很没有责任感吗
+
+*****
+
+####  tankai  
+##### 4753#       发表于 2021-12-29 02:35
+
+如果她觉得没错就需要近一步切割了，没什么理好论的。
+
+*****
+
+####  狂拽猫少  
+##### 4754#       发表于 2021-12-29 03:31
+
+看那条动态下面还有因为文静对王老菊的态度破防的，笑死
+

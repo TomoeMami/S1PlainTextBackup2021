@@ -8861,3 +8861,30 @@ store.steampowered.com/中国x产x</blockquote>
 至于你说的
 香港黄尸黄之锋就鼓励过曱甴在steam和任天堂平台上传递反华内容，但是他已经进去了，他的手足们寂寞了，想撩了传一点反华内容给你撞上你也没辙来自: iPhone客户端
 
+
+
+*****
+
+####  AtlachNacha  
+##### 810#       发表于 2021-12-29 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54070350&amp;ptid=2043948" target="_blank">whzfjk 发表于 2021-12-28 05:25</a>
+
+突然想到这样一来恐怕又要失去一个舆论阵地了，以前意见不合还能打打差评炮 ...</blockquote>
+鞭炮火力，不会被在意的
+
+
+
+*****
+
+####  天才名名  
+##### 811#       发表于 2021-12-29 02:36
+
+喷了，禁一个steam就把你们弄的鸡飞狗跳的，真tm菜鸡互啄。
+
+日子会越来越好，但恐怕这德性熬不到那时候。
+
+最优解是赶紧重新投个胎做个人。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
