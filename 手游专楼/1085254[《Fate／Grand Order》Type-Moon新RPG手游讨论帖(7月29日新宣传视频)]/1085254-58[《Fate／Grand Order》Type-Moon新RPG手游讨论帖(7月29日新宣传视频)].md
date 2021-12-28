@@ -3080,3 +3080,12 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 有没有可能那个点其实什么都不是 纯粹是个背景（</blockquote>
 最好是这样，今天下午打完就能看到2.7标题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 85787#       发表于 2021-12-28 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说我没看剧情 2.6里咕哒拿到了C呆村正牌圣剑 是过了剧情就没了还是之后一直在手上 以后的剧情能拿圣剑砍人么
+
