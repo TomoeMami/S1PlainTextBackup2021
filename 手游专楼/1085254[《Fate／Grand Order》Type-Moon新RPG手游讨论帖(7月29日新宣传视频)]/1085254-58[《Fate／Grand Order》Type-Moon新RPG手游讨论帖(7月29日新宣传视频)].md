@@ -3744,3 +3744,53 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 最后么还有迦勒底全灭的演算结果
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85852#       发表于 2021-12-28 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079046&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-12-28 19:00</a>
+
+最后么还有迦勒底全灭的演算结果</blockquote>
+继续打下去，再来9800万根<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 85853#       发表于 2021-12-28 19:09
+
+为啥陨石掉落会产生自然神<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+然后选择狐狸的灵基<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+完全牛头不对马嘴啊
+
+*****
+
+####  不垃圾屌丝  
+##### 85854#       发表于 2021-12-28 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079165&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-28 19:09</a>
+为啥陨石掉落会产生自然神
+
+然后选择狐狸的灵基</blockquote>
+发动尼比鲁效果然后发现没有准备TOKEN，于是随手拿张妲姬代替<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  v22325  
+##### 85855#       发表于 2021-12-28 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079165&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-28 19:09</a>
+
+为啥陨石掉落会产生自然神
+
+然后选择狐狸的灵基</blockquote>
+最后猫娘那段有说爆炸的时候他是在现场的 杀了一个不知道是龙还是虫的东西 
+
+杀狐回忆是一瞬间被杀的所以动物的悲鸣与痛苦跟这陨石混合（？）就诞生了
+

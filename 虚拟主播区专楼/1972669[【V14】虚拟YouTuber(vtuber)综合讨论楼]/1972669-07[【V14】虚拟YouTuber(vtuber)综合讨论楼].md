@@ -7662,3 +7662,19 @@ nina已经在爽玩EN虹男了，hololive真不是人呆的地方<img src="https
 
 管人真是<img src="https://p.sda1.dev/3/c37e4444d7f0343094892300753fd9e2/IMG_CMP_88403377.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 9645#       发表于 2021-12-28 19:05
+
+58人的跨年银趴，这不比躲避球大会刺激多了
+
+*****
+
+####  rzrbtk  
+##### 9646#       发表于 2021-12-28 19:09
+
+我郡在唱歌方面颇无才能怎么敢去这种地方啊，去演小品吗<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
