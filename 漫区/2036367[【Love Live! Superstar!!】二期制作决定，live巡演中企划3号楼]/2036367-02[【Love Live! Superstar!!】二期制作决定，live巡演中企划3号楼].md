@@ -13413,3 +13413,28 @@ pay酱这拉票又让大家投爱投的，格局一下子大了。
 
 <img src="https://img.saraba1st.com/forum/202112/28/121303up85kkttk3zzt9dn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  离心  
+##### 2600#       发表于 2021-12-28 12:22
+
+今天是king
+
+*****
+
+####  优妮可  
+##### 2601#       发表于 2021-12-28 12:23
+
+<blockquote>我到河北省来 发表于 2021-12-28 11:11
+小百合没有出来拉这个看板娘的票吧，她倒是发推给打铁广播（就杏树之前上过那个）拉票了，不出意料肯定是 ...</blockquote>
+应该还没发而已，这种和店家合作的，总得帮忙打个广告宣传的吧。
+
+*****
+
+####  stygian  
+##### 2602#       发表于 2021-12-28 12:33
+
+老王这嗓子感觉还是不稳啊
+
