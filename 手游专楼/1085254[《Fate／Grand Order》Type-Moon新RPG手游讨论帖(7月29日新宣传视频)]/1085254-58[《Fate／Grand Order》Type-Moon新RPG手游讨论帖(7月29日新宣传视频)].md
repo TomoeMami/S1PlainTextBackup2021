@@ -4088,3 +4088,92 @@ G高达里多蒙不就是这么嘴炮东方不败的<img src="https://static.sar
 反正现在塞进虚数空间了除了钓鱼佬别人也找不到
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85884#       发表于 2021-12-28 20:26
+
+ 本帖最后由 zakki 于 2021-12-28 20:29 编辑 
+
+本来还觉得杀狐和提妈是一档的，现在逼格骤降，只能和迦摩杀生院一档了，一档，老盖异星神尼禄，二档，提妈，三档迦摩杀生院杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 85885#       发表于 2021-12-28 20:28
+
+其实这次最大的小丑是某个开局被ban的谜语人
+
+谁还记得他252打完爱玩之兽说她最后会成为我最大的敌人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 85886#       发表于 2021-12-28 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079970&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-28 20:24</a>
+
+这种问题就应该交给本子，再不济交给Koikatsu
+
+反正现在塞进虚数空间了除了钓鱼佬别人也找不到
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">朝思暮想的妹子，再也寻不得。突如其来的缘分，又见了一面，虽然不是本人，但是照着本人来的是不是，这种千载难逢的机会，错过了就是永久。
+
+元始天尊真不亏待徒弟之人，算准了这一卦，把他骗过来，可不就是了却徒弟的遗憾。
+
+*****
+
+####  zakki  
+##### 85887#       发表于 2021-12-28 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079950&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-28 20:21</a>
+我觉得，要是通古斯像是大奥、虚数海这类独立性比较高的剧情我还能理解，杀兔这个从2.0序章就登场的角色， ...</blockquote>
+道满有啥逼格本来就是个小丑，还嫌给他一整个2.55的篇幅太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 85888#       发表于 2021-12-28 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079959&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-28 20:22</a>
+
+只能说这俩人大概思考逻辑同步率就是没理由的高
+
+你仔细回忆一下樱井的幺蛾子是不是都有菌类一份
+
+单看设定 ...</blockquote>
+你要说文笔的话那差距还是很明显的，樱女士词汇量真的太低了
+
+蘑菇的老/毛病（泥潭神奇屏蔽词）是喜欢搞捧杀亲女儿/亲儿子的操作，杀狐剧情地位这么重要应该设定里也有他参与
+
+你月现在写手摆烂主要就体现在一开始写得嗨，然后大概率烂尾，但能全程都写得这么索然无味，算是樱女士独一份的本事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85889#       发表于 2021-12-28 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080035&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-28 20:29</a>
+
+朝思暮想的妹子，再也寻不得。突如其来的缘分，又见了一面，虽然不是本人，但是照着本人来的是不 ...</blockquote>
+明明是被坑死了吧
+
+被骗下来上班，结果空了两个大不说，还得替妲己擦屁股，还好最后顺风顺水打爆了对面
+
+结果还是白跑一趟
+
+虽然最后用这也算是我们文化圈的事儿挽了一下尊看起来没这么惨
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 85890#       发表于 2021-12-28 20:36
+
+<blockquote>zakki 发表于 2021-12-28 20:31
+道满有啥逼格本来就是个小丑，还嫌给他一整个2.55的篇幅太多了</blockquote>
+道满最大的问题在于，他那么low比，那2.4的狂那岂不是......同样的，贝屑在2.6的表现，我为队长和佩佩不值
+

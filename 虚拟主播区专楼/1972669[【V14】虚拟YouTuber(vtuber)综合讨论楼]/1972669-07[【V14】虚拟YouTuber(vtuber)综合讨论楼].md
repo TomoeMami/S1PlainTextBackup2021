@@ -7751,3 +7751,17 @@ Syl，有3D但没上的成员：
 
 想看sky参加，但是考试最重要<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 9652#       发表于 2021-12-28 20:35
+
+[https://twitter.com/azuma_lim/status/1475799527483650050](https://twitter.com/azuma_lim/status/1475799527483650050)
+
+[img]https://p.sda1.dev/3/fc95307c4ac134d048f4b9870212bb5f/L@L8_OT5CS4@NDZ813CHLAP.png[/img]
+<img src="https://p.sda1.dev/3/b8091a7f37d8bf28124e5805db7540f1/9_IGL_3L1O_P__X86BH_S_H.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/fe4341f087e9d6bad06e43456af025a9/_G`89PI_Y8~_2P_8_5__27Y.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/5e13ea2bb6e7443573eee325a0310a22/XF9E_L__`038B17H8GZ~9AP.png" referrerpolicy="no-referrer">
+

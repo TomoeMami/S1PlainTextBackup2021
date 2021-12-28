@@ -2130,3 +2130,101 @@ co宝持续上工中<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4726#       发表于 2021-12-28 20:31
+
+ 本帖最后由 T型钉宫病毒 于 2021-12-28 20:33 编辑 
+
+我超，老菊来上舰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/28/203325i44ljz4ej196w9zl.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211228203256.png</strong> (14.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 20:33 上传
+
+*****
+
+####  袜子  
+##### 4727#       发表于 2021-12-28 20:34
+
+追星成功了这下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  faithlifer  
+##### 4728#       发表于 2021-12-28 20:34
+
+王哥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  faithlifer  
+##### 4729#       发表于 2021-12-28 20:36
+
+人之初的丑态<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  人民de救星  
+##### 4730#       发表于 2021-12-28 20:37
+
+人之初，真下头
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  希克苏鲁伯  
+##### 4731#       发表于 2021-12-28 20:37
+
+纯路人，这就是你们整天说的文静吗，怎么就像个小丑
+
+*****
+
+####  T型钉宫病毒  
+##### 4732#       发表于 2021-12-28 20:38
+
+我怎么没收到<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/28/203744hdbtawnuk03u40b3.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211228203721.png</strong> (9.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 20:37 上传
+
+*****
+
+####  灰色的狐狸  
+##### 4733#       发表于 2021-12-28 20:38
+
+什么人之初<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4734#       发表于 2021-12-28 20:39
+
+这就是人之初的丑态！
+
+*****
+
+####  伞沢直美  
+##### 4735#       发表于 2021-12-28 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丑态毕露了家人们
+
