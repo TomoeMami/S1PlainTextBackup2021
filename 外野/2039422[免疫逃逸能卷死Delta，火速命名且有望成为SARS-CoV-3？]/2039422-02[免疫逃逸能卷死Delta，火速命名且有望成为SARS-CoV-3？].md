@@ -9128,3 +9128,25 @@ https://www.npr.org/sections/coronavirus-live-updates/2021/07/12/1015242810/belg
 大一丢，指一个月爆掉全美医疗系统</blockquote>
 不大可能，之前都没爆掉，方法多的是
 
+
+
+*****
+
+####  ak123  
+##### 2265#       发表于 2021-12-29 06:29
+
+看了下李三金圣诞扫街视频，美国人出门玩的大概只有三分之一戴口罩的，毫不畏死，看来一月有望突破60万日新增<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 2266#       发表于 2021-12-29 06:31
+
+ 本帖最后由 ak123 于 2021-12-29 06:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082121&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-28 23:47</a>
+
+CDC 显然看不上物理防疫
+
+ CDC 宣布缩短无症状感染者自我隔离时间 （10天 减为5天），以便于快速 ...</blockquote>
+我们这种物理防疫严防死守，从一开始就被米国人因为意识形态批倒批臭了，找了一堆科学家论证封城死的人比共存多百倍，中国必然失败，有空我找下原文给你们看看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
