@@ -8567,3 +8567,16 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 
 你这个吃老婆软饭的砂卵。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zashou  
+##### 783#       发表于 2021-12-28 21:59
+
+ 本帖最后由 zashou 于 2021-12-28 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079108&amp;ptid=2043948" target="_blank">ouba 发表于 2021-12-28 19:05</a>
+
+建议就别和那个zashou汴经了，动不动满嘴“废物”“高中生”，打赌的时候只知道喊输的给狗叔打钱，完全不 ...</blockquote>
+另外steam被干了，按照我们的赌注你可以给狗叔打100块钱啦～～是不是废物100块钱也要赖啊～～
+

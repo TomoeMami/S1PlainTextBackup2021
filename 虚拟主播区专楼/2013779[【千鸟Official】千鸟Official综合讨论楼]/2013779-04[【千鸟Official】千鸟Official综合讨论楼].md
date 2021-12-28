@@ -2268,3 +2268,16 @@ co宝持续上工中<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">什么银爬
 
+
+
+*****
+
+####  袜子  
+##### 4741#       发表于 2021-12-28 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080355&amp;ptid=2013779" target="_blank">rgauss 发表于 2021-12-28 20:57</a>
+米虫确实挺烦的，我家的米都要定时拿出来晒</blockquote>
+米虫可以试试找个纸包，塞点八角，花椒，草果在里面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

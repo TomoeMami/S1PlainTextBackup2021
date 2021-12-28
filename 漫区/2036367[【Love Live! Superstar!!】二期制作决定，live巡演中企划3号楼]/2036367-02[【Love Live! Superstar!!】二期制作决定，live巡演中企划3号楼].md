@@ -13606,3 +13606,72 @@ nako发情串淘到的，可可典型pose</blockquote>
 —— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 塞了2nd live 抽选，销量一般跟剧情关系不大
 
+
+
+*****
+
+####  remedios010000  
+##### 2618#       发表于 2021-12-28 21:45
+
+ 本帖最后由 remedios010000 于 2021-12-28 21:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54068987&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-27 23:25:45</a>
+
+v2.5.2</blockquote>
+但是古川GG的场地魔法放的好啊，相比之下花田可是整出来过星8蜜汁鼓掌的迷惑操作<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+星团总共就5个人，但凡花田能讲好3/5的故事都不会被批的这么惨
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kata魂  
+##### 2619#       发表于 2021-12-28 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2620#       发表于 2021-12-28 21:51
+
+这个人简直恶心，他自己说过以后他群里再有说鲤鱼的他自己都会出马吧？到这里又是被威胁的了？还有挂的那个怎么不把当初S1前20页内容也一起放出来呢？这样顺便还能给鲤鱼一波黑。可以可以
+
+*****
+
+####  player3960  
+##### 2621#       发表于 2021-12-28 21:53
+
+恶人自有恶人磨，祝好死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 2622#       发表于 2021-12-28 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080866&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-12-28 21:46</a>
+
+我其实挺想知道，当初黑屁鲤鱼的时候有没有如此群情激愤仗义执言的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有也没用 没法形成战斗力
+
+*****
+
+####  仟音一心  
+##### 2623#       发表于 2021-12-28 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080912&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-28 21:51</a>
+这个人简直恶心，他自己说过以后他群里再有说鲤鱼的他自己都会出马吧？到这里又是被威胁的了？还有挂的那个 ...</blockquote>
+这个楠木灯超话主持人说了啊，他发这个就是替店主出头来了，是非什么的他才不管呢。
+顺便，顺着那个店主的道歉微博还能找到几个一直暗搓搓黑松雾宁祈的，算是物以类聚了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 2624#       发表于 2021-12-28 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080866&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-12-28 21:46</a>
+
+我其实挺想知道，当初黑屁鲤鱼的时候有没有如此群情激愤仗义执言的 ...</blockquote>
+那时候普遍对她的表现是有顾虑的，对她的身份更是偏见拉满，很难有人完全出于道义给她说话吧……
+
