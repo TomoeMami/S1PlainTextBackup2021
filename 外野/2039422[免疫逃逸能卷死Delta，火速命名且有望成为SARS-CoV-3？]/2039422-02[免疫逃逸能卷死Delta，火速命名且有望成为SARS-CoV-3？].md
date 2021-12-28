@@ -8916,3 +8916,23 @@ CDC已经减半感染病毒隔离时间，并鼓励患者在家里治疗（感�
 
 —— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  有口皆悲  
+##### 2249#       发表于 2021-12-28 17:46
+
+疫苗人传人喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maestro  
+##### 2250#       发表于 2021-12-28 18:00
+
+据日内瓦医院的统计，omicron在总病例中的比例增速和南非豪登基本一致，四个星期从0增长到了70%（剩下的应该全是delta
+
+[https://twitter.com/C_Althaus/status/1475401830037340167](https://twitter.com/C_Althaus/status/1475401830037340167)
+
+不论是既往感染（南非）还是mRNA疫苗（日内瓦大概八成接种率，BNT/Moderna）都挡不住omicron的传播，这个时候不依靠物理防疫还怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

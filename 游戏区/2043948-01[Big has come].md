@@ -8468,3 +8468,19 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 社区、好友、工坊、个人资料评论墙这些地方早就都被干掉了，现在整个蒸汽在墙内还能打字的只剩商店review ...</blockquote>
 只要能打字，老爷就神经紧张
 
+
+
+*****
+
+####  Cirle  
+##### 775#       发表于 2021-12-28 17:54
+
+今天看到这个帖子steam就抽风了，挂代理能显示商店但是登陆不上去，生气<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tjodrek  
+##### 776#       发表于 2021-12-28 18:02
+
+编辑
+

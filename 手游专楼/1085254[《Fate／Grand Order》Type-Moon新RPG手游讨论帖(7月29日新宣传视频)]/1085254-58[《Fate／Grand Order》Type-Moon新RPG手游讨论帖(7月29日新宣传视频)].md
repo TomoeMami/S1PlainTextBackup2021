@@ -3285,3 +3285,181 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 这最后几节的剧情实在太脱力了...我几乎是捏着鼻子看完的，樱井：没想到吧，是大团圆哒！你们猜的全部木大 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">互 相 理 解 
 
+
+
+*****
+
+####  wolegequaaa  
+##### 85808#       发表于 2021-12-28 17:47
+
+这太公望什么哆啦A梦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85809#       发表于 2021-12-28 17:48
+
+草，这结局算不算，完美领会了仙界传妲己核心精神的二创
+
+即视感太强了，但是皮套得还可以，最后被太公望自己圆回来了
+
+总好过几个月前他不是他你不是你，最后全员皮套人大战扯不下去直接摆烂的菌哥哥
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85810#       发表于 2021-12-28 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我现在非常后悔为什么要浪费时间看这剧情 有这时间睡一会不好吗
+
+*****
+
+####  凌云三才  
+##### 85811#       发表于 2021-12-28 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078202&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-28 17:48</a>
+
+草，这结局算不算，完美领会了仙界传妲己核心精神的二创
+
+即视感太强了，但是皮套得还可以，最后被太公望自 ...</blockquote>
+杀狐那个CG我第一反应也是仙界传最后的妲己...（致敬，都是致敬）
+
+*****
+
+####  v22325  
+##### 85812#       发表于 2021-12-28 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么着就和解要把杀狐扔外太空了    杀狐那张挺漂亮但我一点触动都没有
+
+他们自顾自的就说妥了但特别突兀啊
+
+*****
+
+####  exiaexa  
+##### 85813#       发表于 2021-12-28 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077720&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-28 17:10</a>
+
+为啥非要选虎战车啊</blockquote>
+2.3排掉死人活人的其他见过的生物不就只剩下虎战车了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 85814#       发表于 2021-12-28 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078216&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-28 17:48</a>
+
+怎么着就和解要把杀狐扔外太空了    杀狐那张挺漂亮但我一点触动都没有
+
+他们自顾自的就说妥了但特别 ...</blockquote>
+打又打不死只能往太空丢垃圾了
+
+致敬哆啦A梦分裂药水
+
+*****
+
+####  v22325  
+##### 85815#       发表于 2021-12-28 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078226&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-28 17:49</a>
+
+2.3排掉死人活人的其他见过的生物不就只剩下虎战车了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">生…物？
+
+*****
+
+####  真红眼教授  
+##### 85816#       发表于 2021-12-28 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078064&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 17:36</a>
+
+结果杀狐这铺垫四年的角色还真就13节交代了？还特么是第10节才登场而且照这个意思看起来芙芙也不可 ...</blockquote>
+12节就交待了
+
+13节是惯例的一群从者消失然后骗氪
+
+*****
+
+####  zakki  
+##### 85817#       发表于 2021-12-28 17:57
+
+至少没有之前那帮人贷款吃的屎的情节不挺好的吗，只能说是毫无乐趣，这剧情出不出都一样，还不如融合进2.6里面，反正信息量也就杀狐那一点儿，太公望大型幕间<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85818#       发表于 2021-12-28 17:58
+
+ 本帖最后由 v22325 于 2021-12-28 18:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078298&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-12-28 17:55</a>
+
+12节就交待了
+
+13节是惯例的一群从者消失然后骗氪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要杀狐跟了这么久没想到最后解开谜底就这么点戏份……村正退场可比这豪华多了
+
+是不是不搞共斗送材料能认真多写点啊  
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这后几节我觉得有点感觉的就杀狐回忆+最后猫娘夫妇一起回忆那段解密是他给杀狐起名字的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">跨越了六个异闻带的虎头蛇尾？ 基本每个异闻带都有大段戏份还多次合作救场最后就这个退场方式啊……
+
+*****
+
+####  真红眼教授  
+##### 85819#       发表于 2021-12-28 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078322&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 17:57</a>
+
+至少没有之前那帮人贷款吃的屎的情节不挺好的吗，只能说是毫无乐趣，这剧情出不出都一样，还不如融合进2.6 ...</blockquote>
+原本就是个周年小活动，配合杀狐落地骗氪的，太公望解包编号都在泳装前面
+
+结果蘑菇的2.6重写直接跨周年庆了，居然一直拖到现在才出
+
+*****
+
+####  贤娘萌娘  
+##### 85820#       发表于 2021-12-28 18:00
+
+最后也没说为什么杀狐长得和妲己一样，31号的剧情会不会妲己突然出现
+
+*****
+
+####  Lokad  
+##### 85821#       发表于 2021-12-28 18:04
+
+哪是太公望幕间，这不是妲己幕间吗？
+
+一直在回忆妲己呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 85822#       发表于 2021-12-28 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078398&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-28 18:04</a>
+
+哪是太公望幕间，这不是妲己幕间吗？
+
+一直在回忆妲己呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看这描述最后怕不是相爱了（狗头
+
+*****
+
+####  alucardcz  
+##### 85823#       发表于 2021-12-28 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">等31号来个大了。。就现在这点情报这个活动可以说是拉中拉 莫名其妙
+
+*****
+
+####  zakki  
+##### 85824#       发表于 2021-12-28 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078345&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-12-28 17:59</a>
+原本就是个周年小活动，配合杀狐落地骗氪的，太公望解包编号都在泳装前面
+
+结果蘑菇的2.6重写直接跨周年 ...</blockquote>
+这个也不一定吧，从者图鉴经常跳号的
+
