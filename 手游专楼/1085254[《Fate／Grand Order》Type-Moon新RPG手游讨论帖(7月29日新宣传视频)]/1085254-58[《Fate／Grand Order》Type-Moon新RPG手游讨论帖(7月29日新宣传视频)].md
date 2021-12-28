@@ -2694,3 +2694,67 @@ PV里满身疮痍的狐狸也还没回收吧，搞不好真是太公望搞事，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口新年送一个自选五星礼装不过分吧 
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85749#       发表于 2021-12-28 10:48
+
+【【FGO日服】系统助战伊吹童子 单挑 BeastⅣ决战【附流程】-哔哩哔哩】 https://b23.tv/9yUqD7j
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zore  
+##### 85750#       发表于 2021-12-28 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54072397&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-28 10:45</a>
+
+奶一口新年送一个自选五星礼装不过分吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85751#       发表于 2021-12-28 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54072488&amp;ptid=1085254" target="_blank">zore 发表于 2021-12-28 10:50</a>
+
+两个!我黑杯宝石都缺一张</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一张都很想屁吃了 两张不要做梦了
+
+*****
+
+####  gpx234mqx  
+##### 85752#       发表于 2021-12-28 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54072188&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-12-28 10:33</a>
+
+场地紫苑帮续期了吧，前提是这次不团灭。最后两节应该还有真正的团灭要素。
+
+PV里满身疮痍的狐狸也还没回收 ...</blockquote>
+从岛上搬家，然后岛被大蜘蛛炸了都有可能
+
+*****
+
+####  الطائر  
+##### 85753#       发表于 2021-12-28 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54072125&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-12-28 10:28</a>
+
+日本新年零点一到 光点扩大满屏幕放射烟花 组成四个大字“谨贺新年” 并赠送玩家呼符一张 随即消失 ...</blockquote>
+大胆一点，这个新年是FGO第7个年头，送7个……
+
+……
+
+圣晶片不过分吧？
+
+*****
+
+####  alucardcz  
+##### 85754#       发表于 2021-12-28 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年新年从者是不是又要是外星人了    剑外星人剑外星人这定律还要保持下去吗
+
