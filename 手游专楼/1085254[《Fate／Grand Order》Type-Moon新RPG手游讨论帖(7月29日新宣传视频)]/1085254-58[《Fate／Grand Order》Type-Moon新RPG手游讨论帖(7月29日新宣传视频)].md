@@ -2901,3 +2901,35 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 —— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅 ...</blockquote>
 没有啊，紫苑不是跟那群老家伙续租了吗。
 
+
+
+*****
+
+####  都谷捻柏  
+##### 85771#       发表于 2021-12-28 13:46
+
+你们整天想着搞事，事实就是能莫则摸
+
+*****
+
+####  不垃圾屌丝  
+##### 85772#       发表于 2021-12-28 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54074739&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-28 13:18</a>
+没有啊，紫苑不是跟那群老家伙续租了吗。</blockquote>
+<img src="https://p.sda1.dev/3/5ffea0f869f428b08ccdc9f835111273/IMG_CMP_173746544.png" referrerpolicy="no-referrer">
+这是活动开头说的
+我的理解是2017年12月31日跑路到彷徨海以后到现在这段时间就是用第八张契约书换来的啊
+我还去看了枣黑子的翻译视频，也是这个意思吧
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  不垃圾屌丝  
+##### 85773#       发表于 2021-12-28 13:55
+
+翻页
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
