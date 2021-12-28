@@ -8551,3 +8551,19 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 
 坐标魔都这两天都畅联......回学校也没问题，下载也很快......
 
+
+
+*****
+
+####  zashou  
+##### 782#       发表于 2021-12-28 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079108&amp;ptid=2043948" target="_blank">ouba 发表于 2021-12-28 19:05</a>
+
+建议就别和那个zashou汴经了，动不动满嘴“废物”“高中生”，打赌的时候只知道喊输的给狗叔打钱，完全不 ...</blockquote>
+我喜欢拿给狗叔打钱和人打赌你也要管啊。
+
+我就算和你打赌喂猪吃必胜客也是我的自由啊。
+
+你这个吃老婆软饭的砂卵。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

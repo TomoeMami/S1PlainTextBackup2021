@@ -13541,3 +13541,68 @@ nako发情串淘到的，可可典型pose</blockquote>
 
 [https://weibo.com/2258350604/L8aQuw0LO](https://weibo.com/2258350604/L8aQuw0LO)
 
+
+
+*****
+
+####  lj205  
+##### 2611#       发表于 2021-12-28 21:21
+
+哇哦哇哦～～搬凳子吃瓜，某群主好可怜噢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 2612#       发表于 2021-12-28 21:27
+
+<img src="https://p.sda1.dev/3/12cafe754349c3340cd08f53c730dfbc/IMG_CMP_60810317.jpeg" referrerpolicy="no-referrer">第四卷是78集，为什么销量还不错呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2613#       发表于 2021-12-28 21:28
+
+ 本帖最后由 普之舜舜 于 2021-12-28 21:34 编辑 
+
+编辑掉，编辑
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 2614#       发表于 2021-12-28 21:31
+
+虽然粉头确实不是什么好文明，但那老板也不无辜吧，不管怎么样都跟我没利害关系，安心吃瓜看乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 2615#       发表于 2021-12-28 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是上次来楼里那个老哥吗  那我建议吃瓜前可以先翻翻专楼前20页
+
+*****
+
+####  lj205  
+##### 2616#       发表于 2021-12-28 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080648&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-28 21:28</a>
+编辑掉，编辑
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+看上一页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 2617#       发表于 2021-12-28 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080641&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-28 21:27</a>
+第四卷是78集，为什么销量还不错呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+塞了2nd live 抽选，销量一般跟剧情关系不大
+
