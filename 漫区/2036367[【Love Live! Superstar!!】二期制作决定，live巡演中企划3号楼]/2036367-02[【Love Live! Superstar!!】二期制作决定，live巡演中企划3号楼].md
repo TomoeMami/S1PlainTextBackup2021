@@ -14145,3 +14145,23 @@ https://weibo.com/2258350604/L8aQuw0LO</blockquote>
 
 to签和cd分开寄的？面谈好像还得日本那边电话？不好搞………………算了，反正fc里已经预定支持了
 
+
+
+*****
+
+####  Norkey1  
+##### 2677#       发表于 2021-12-29 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082365&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-29 00:18</a>
+不如抽G店面对面</blockquote>
+在面谈视频里结结巴巴说小作文什么的，那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2678#       发表于 2021-12-29 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082377&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-12-29 00:20</a>
+to签和cd分开寄的？面谈好像还得日本那边电话？不好搞………………算了，反正fc里已经预定支持了 ...</blockquote>
+我买了fc,yahoo和limista的，面对面还在犹豫，g店可以网上下单竞争会比较大，a店规定只能店铺现金购买，可能几率高些
+
