@@ -8205,3 +8205,43 @@ steam真的亡了RIP
 
 昨天发现挂工具买东西的话，愿望单加购物车没法买了，继续购物那按钮是灰的，但是在游戏商店页面点进去能买
 
+
+
+*****
+
+####  Nanachi  
+##### 752#       发表于 2021-12-28 09:24
+
+<img src="http://tva1.sinaimg.cn/large/007WH5Y2ly1gxtae35hj0j327j1dru0x.jpg" referrerpolicy="no-referrer">
+
+前几天我很确信打不开steam商店页面，今天试了下又能行了。
+
+*****
+
+####  LHO  
+##### 753#       发表于 2021-12-28 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071220&amp;ptid=2043948" target="_blank">椎名mahuyo 发表于 2021-12-28 09:18</a>
+
+昨天发现挂工具买东西的话，愿望单加购物车没法买了，继续购物那按钮是灰的，但是在游戏商店页面点进去能买 ...</blockquote>
+像这种一般是因为工具的规则名单里没有购物车逻辑的相关地址, 简单的解决方法就是开全局模式
+
+*****
+
+####  nightraven  
+##### 754#       发表于 2021-12-28 09:32
+
+现在回想起来，万圣节那会我这就有问题，支付宝支付后的成功页面跳不出来，但钱已经扣了，游戏也在库里<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  黒長直姫  
+##### 755#       发表于 2021-12-28 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071295&amp;ptid=2043948" target="_blank">Nanachi 发表于 2021-12-28 09:24</a>
+
+前几天我很确信打不开steam商店页面，今天试了下又能行了。</blockquote>
+登录试试 我开主页也OK 完全登录不了
+

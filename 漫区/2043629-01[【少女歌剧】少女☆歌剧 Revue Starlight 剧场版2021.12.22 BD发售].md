@@ -4662,3 +4662,22 @@ Ps.人家几原徒弟都能搞到这个程度了，看看你，庵野哥哥<img 
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  尚风悦  
+##### 358#       发表于 2021-12-28 09:37
+
+突然意识到，迷宫最后那一场，那个高台和无限落下的玫瑰
+古川哥哥你到底看了多少遍思春期默示录啊
+
+*****
+
+####  masshiroo  
+##### 359#       发表于 2021-12-28 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069523&amp;ptid=2043629" target="_blank">中二小旋风 发表于 2021-12-28 00:27</a>
+ 不行，这两天疯狂loop蕉哥哥的戏份，出不去了蕉哥哥，抹布洗。。。。  蕉哥哥，太上头。。。 </blockquote>
+我也<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
