@@ -8787,3 +8787,31 @@ store.steampowered.com/中国x产x
 
 这几天商店上不去了反而好友列表从没加载不出过……
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 803#       发表于 2021-12-29 00:45
+
+ 本帖最后由 ESAKA!!!! 于 2021-12-29 00:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082231&amp;ptid=2043948" target="_blank">欠损 发表于 2021-12-29 00:00</a>
+好家伙，轮媒的图都上了</blockquote>
+泥潭扒的，完全没看过轮媒也没兴趣了解出自哪，只觉得这图切中了要害。倒是老兄你对轮媒挺熟悉的样子啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sssacpgdr  
+##### 804#       发表于 2021-12-29 00:45
+
+我是南京电信，除了前几天评论区刷不出来之外，一切正常
+
+*****
+
+####  边缘中心  
+##### 805#       发表于 2021-12-29 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081832&amp;ptid=2043948" target="_blank">鳗鱼提灯 发表于 2021-12-28 23:19</a>
+我猜想，国家并不排斥主机游戏本身，只是主机游戏是红海市场，且西方占据绝对优势，大力推广经济效益不佳， ...</blockquote>
+说得好，那国内版号发了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

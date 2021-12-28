@@ -9011,3 +9011,20 @@ https://www.timesofisrael.com/small-study-suggests-omicron-antibodies-could-prov
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  jxwats1  
+##### 2257#       发表于 2021-12-29 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082307&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 00:09</a>
+小规模研究表示o的抗体似乎对delta有效
+
+https://www.timesofisrael.com/small-study-suggests-omicron-ant ...</blockquote>
+我还专门去看了preprint的结论，人家明明是这么说的：
+
+“However, participants in this study have likely been previously infected, and more than half were vaccinated. Therefore, it is unclear if what we observe is effective cross-neutralization of Delta virus by Omicron elicited antibodies, or activation of antibody immunity from previous infection and/or vaccination.”
+
+而且研究里的15名患者中有11名需要住院… 就算感染omicron真的能够交叉中和, but at what cost?<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
