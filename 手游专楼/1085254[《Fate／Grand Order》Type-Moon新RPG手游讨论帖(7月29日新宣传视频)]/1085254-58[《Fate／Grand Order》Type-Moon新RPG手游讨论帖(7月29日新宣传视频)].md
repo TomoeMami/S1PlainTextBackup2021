@@ -2831,3 +2831,41 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 接也可以先不开嘛，真BOSS说句谢谢你们让我得手然后溜了不就完了</blockquote>
 如果真有的话，他最好是31号晚上开，别特么整个迦勒底快要团灭了，然后半年后开2.65的神秘操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要还是现在的剧情处于一个说多不算多，说少不算少的位置上，就这么完结了根本对不起铺垫杀狐4年的时间，但如果在开一个章节去讲的话，好像现在也讲的差不多了，剩下的内容不够一个章节。
 
+
+
+*****
+
+####  zakki  
+##### 85764#       发表于 2021-12-28 11:50
+
+ 本帖最后由 zakki 于 2021-12-28 12:00 编辑 
+
+说真的2021年来个爆点吧，就这么结束了这一年也太混了（指主线），2.6那么长一章特么对2.0主线零推进。几个爆点全藏着掖着不放出来，达芬奇寿命，老福秘密，加拉哈德，人王，异星神身份，迦勒底不可信之人，老所长目的，咕哒新衣服疑似所长服等等，这一堆东西总不能全堆到2.7和终章讲吧，谁知道2.7又要等到什么时候，分成几段放送
+
+*****
+
+####  DARKGRAY  
+##### 85765#       发表于 2021-12-28 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54073389&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 11:42</a>
+
+如果真有的话，他最好是31号晚上开，别特么整个迦勒底快要团灭了，然后半年后开2.65的神秘操作主 ...</blockquote>
+不灭了，之前结论会灭只是因为算不到这两个支援者，成功撑过这一轮，杀狐也讲得差不多了，真BOSS跑掉后的事情另作打算<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85766#       发表于 2021-12-28 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54073561&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-12-28 11:53</a>
+
+不灭了，之前结论会灭只是因为算不到这两个支援者，成功撑过这一轮，杀狐也讲得差不多了，真BOSS跑掉后的 ...</blockquote>
+紫苑在fgo主线里基本算是蘑菇的化身下场剧透一些剧情，他要是最后说是计算错误，那就是纯遛猴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzxa  
+##### 85767#       发表于 2021-12-28 12:02
+
+已经连开几个新活动了，马上新年，1月9日冬祭第二场，高概率复刻事件簿吧
+
