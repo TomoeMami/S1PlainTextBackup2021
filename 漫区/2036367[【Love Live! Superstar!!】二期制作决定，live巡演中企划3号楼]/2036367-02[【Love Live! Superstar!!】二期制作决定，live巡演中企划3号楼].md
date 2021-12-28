@@ -13912,3 +13912,49 @@ https://weibo.com/2258350604/L8aQuw0LO</blockquote>
 
 这波玩的太6了是吧？要不要把淘宝店主唤回专楼给大家也聊聊？
 
+
+
+*****
+
+####  优妮可  
+##### 2649#       发表于 2021-12-28 22:44
+
+看到默然大佬也在吐槽
+
+*****
+
+####  仟音一心  
+##### 2650#       发表于 2021-12-28 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081329&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-28 22:32</a>
+嗨呀，人家肯定打滚说我已经认错道歉了，又不是没见过他之前什么样，发了个博文全避开重点到是通篇拿松雾给 ...</blockquote>
+那微博下真鲤黑都开始聚集了。
+
+*****
+
+####  仟音一心  
+##### 2651#       发表于 2021-12-28 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081456&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-28 22:44</a>
+看到默然大佬也在吐槽</blockquote>
+我问了下西西本人，他说不用管，他已经想放过这店主了。
+算了，吃瓜看戏<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2652#       发表于 2021-12-28 22:52
+
+人红了黑粉肯定也会有的嘛，坐着看就是了
+
+*****
+
+####  lj205  
+##### 2653#       发表于 2021-12-28 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081489&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-28 22:49</a>
+那微博下真鲤黑都开始聚集了。</blockquote>
+看热闹就是，里面已经有个度吧知名搅屎棍在拱火了。
+
+聊这破事不如把今天广播听听，听她们回忆这一周年的各种事不是更好
+

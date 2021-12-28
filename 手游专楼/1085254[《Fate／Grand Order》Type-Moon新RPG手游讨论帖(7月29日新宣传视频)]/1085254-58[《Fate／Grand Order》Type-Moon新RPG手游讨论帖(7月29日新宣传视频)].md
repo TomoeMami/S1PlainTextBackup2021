@@ -4403,3 +4403,53 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 干脆31号直接莾穿第七异闻带，手刃大蜘蛛和大总统算了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区区蜘蛛和总统 直接从者宇宙走起 我咕哒可是能跟X毛拉刀光的
 
+
+
+*****
+
+####  exiaexa  
+##### 85912#       发表于 2021-12-28 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081325&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-12-28 22:31</a>
+
+讲道理A狐这章剧情是挺不好写的....本身就是大熟人了.....双方老底都已经摸透了....作为这章舞台的 ...</blockquote>
+爆点不足基本是板上钉钉，对面一个怪物准冠位一个拿着天丛云还送了一发2令咒黑枪，没被当场打死都不错了
+
+只是割裂感问题更大一点以至于观感不够顺畅吧
+
+比如太公和狐狸搞CP是没问题的，但是你兔子中间横插一脚就算了最后突然就一转藤崎龙是咋回事儿，一般路子这时候不是应该告诉她妲己故事背后的真相之类的吗
+
+但凡真的跟妲己扯上点关系，比如什么接触过/憧憬/受过照顾/让她来找太公望啥都可以，结果告诉你当年是白龙娘照顾过她，跟你太公望真的没关系就让观众艹得不行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85913#       发表于 2021-12-28 22:45
+
+ 本帖最后由 khxooo 于 2021-12-28 22:46 编辑 
+
+我倒是觉得是紫苑会搞事，因为紫苑推测这次迦勒底全灭，所以实行自己隐藏的计划，然后迦勒底们回来，两方看着对面都傻眼。然后新年活动，紫苑就落地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 85914#       发表于 2021-12-28 22:54
+
+刚看完剧情 看之前就在想怕不是跟之前众人猜的一样 光点建在 这就是个序 1号再见 
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85915#       发表于 2021-12-28 22:55
+
+还是不期不待吧，安静看看到底要整个什么，省的我像之前那样犯病奶了一大堆，结果最后其实啥爆点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85916#       发表于 2021-12-28 22:58
+
+话说2.0序章也是31号5点开的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">17年大达芬奇被背刺，这次要换小达芬奇了吗
+

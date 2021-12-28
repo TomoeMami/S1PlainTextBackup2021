@@ -8606,3 +8606,15 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 那就是蒸汽商店自己某个独有的东西被盯 ...</blockquote>
 你这还不如阴茅论企鹅投资了epic所以要干死蒸汽<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗影之诗  
+##### 786#       发表于 2021-12-28 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081316&amp;ptid=2043948" target="_blank">黑兽 发表于 2021-12-28 22:31</a>
+
+神tm善意 那个区域的标题是消费者评测，是让你评论游戏用的而不是刷毫无关系的字符画 ...</blockquote>
+不是针对游戏啦，是针对这个梗的对象的善意，对游戏当然是十足的恶意了
+

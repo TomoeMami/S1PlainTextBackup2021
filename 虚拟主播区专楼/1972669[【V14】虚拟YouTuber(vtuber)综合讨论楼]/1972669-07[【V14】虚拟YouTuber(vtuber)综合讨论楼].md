@@ -7809,3 +7809,14 @@ GDB翼豹，FD，RX8，Swift Sport
 https://twitter.com/azuma_lim/status/1475799527483650050</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">真难啊
 
+
+
+*****
+
+####  fastary  
+##### 9655#       发表于 2021-12-28 22:50
+
+偷懒没去管开了b的转播看vox一命只狼
+
+弹幕问游戏的，说到自己以前不看v的，以为入驻了的……怎么说呢，真的很直观地显示确实破了点圈，就是总觉得有些心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
