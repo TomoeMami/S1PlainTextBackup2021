@@ -2252,3 +2252,19 @@ co宝持续上工中<img src="https://static.saraba1st.com/image/smiley/face2017
 
 米虫确实挺烦的，我家的米都要定时拿出来晒
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4739#       发表于 2021-12-28 21:06
+
+我小学总被女生同桌欺负藏我书，她也一定是暗恋我吧<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4740#       发表于 2021-12-28 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">什么银爬
+

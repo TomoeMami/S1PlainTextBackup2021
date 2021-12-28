@@ -4304,3 +4304,26 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是安日天这个之前就有孽缘的，之前主场和大奥都没啥 ...</blockquote>
 杀生院有安徒生这个天克的确没办法哈哈哈哈哈哈
 
+
+
+*****
+
+####  poor  
+##### 85902#       发表于 2021-12-28 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079668&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-12-28 19:55</a>
+所以搞到最后这次事件是因为在6章帮忙挡了诅咒才不得不提早羽化，而挡诅咒是因为奥贝龙杀了某人好友 ...</blockquote>
+原来如此，谢谢你，奥宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  qixinno2  
+##### 85903#       发表于 2021-12-28 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080404&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 21:02</a>
+
+话说光兔那个三破怎么解释</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一开始还以为能像C呆那样改资料之类的 没想到通完剧情也就这样了
+
