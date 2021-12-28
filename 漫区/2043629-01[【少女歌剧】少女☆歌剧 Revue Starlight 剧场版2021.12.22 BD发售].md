@@ -4721,3 +4721,17 @@ Screenshot_2021-12-28-06-35-58-56.png
 
 看完一周了，蕉蕉的lalalala还时不时的出现在耳边，我好像中了少歌的蛊，古川哥哥你烧了我吧，大场奈奈你带我走吧。
 
+
+
+*****
+
+####  JustW  
+##### 363#       发表于 2021-12-28 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075421&amp;ptid=2043629" target="_blank">remedios010000 发表于 2021-12-28 14:14</a>
+
+今天早上突然发现我家闹钟在给我整活
+
+关键我铃声好久之前改成ki-ringtone了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我闹钟也是这个几年了，还有一次因为这个被加了微信
+

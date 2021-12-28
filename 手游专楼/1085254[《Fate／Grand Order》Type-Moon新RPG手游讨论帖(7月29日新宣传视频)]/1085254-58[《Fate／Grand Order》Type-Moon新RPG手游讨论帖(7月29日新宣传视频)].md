@@ -2999,3 +2999,42 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 实际上是问“用契约书换停留一年时间快到 ...</blockquote>
 没续，就租一年
 
+
+
+*****
+
+####  zakki  
+##### 85779#       发表于 2021-12-28 15:18
+
+比较好奇如果2.65和杀狐没关系那还能讲啥，2.65肯定算主线吧，主线肯定就必须得和主线人物有关联，像大奥，虚数海那种都是和主线弱关联。2.55好歹也是解决了道满这条2.0支线。
+
+和杀狐无关的话，对面已经没多少人了，麻婆，搞事能力不足只想当个忠实的使徒，现在在南美异闻带；异星神，戴比特，大蜘蛛，这也都是2.7的。除此之外还有谁？人王，是友军，而且只看戏。老福，再怎么反水也不会搞出一个特异点级别。硬要说的话只有一个人了，那就是加拉哈德，但都隐身到现在了，估计也会隐身到终章吧
+
+所以我看这个光点，所谓的2.65可能压根就不是个大地图主线，没准是个类似于2.0序章，2.3—intro的过度性质的主线剧情，正好对上彷徨海租借到期
+
+*****
+
+####  qixinno2  
+##### 85780#       发表于 2021-12-28 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看好麻婆最后再捅奥尔加一刀
+
+*****
+
+####  v22325  
+##### 85781#       发表于 2021-12-28 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076288&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 15:18</a>
+
+比较好奇如果2.65和杀狐没关系那还能讲啥，2.65肯定算主线吧，主线肯定就必须得和主线人物有关联，像大奥， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我完全忘了 冬木那说清楚了么？
+
+*****
+
+####  khxooo  
+##### 85782#       发表于 2021-12-28 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075937&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-28 14:54</a>
+没续，就租一年</blockquote>
+那么紫苑说的大工程估计就是搬家了。
+
