@@ -4871,3 +4871,30 @@ https://b23.tv/A7wdEhX
 
 我就是来说一声，我想你们啦！！</blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 366#         楼主| 发表于 2021-12-28 17:19
+
+乃琳Queen:[【翻唱】❀ 乃琳《流光记》❀（直播剪辑）](https://t.bilibili.com/609218454987922986)
+
+（运营代发）
+
+素材来自12月22日直播
+歌曲：流光记
+原唱：银临
+翻唱：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202112/28/171941nlt2gr8qzgqqfl9g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 17:19 上传
+

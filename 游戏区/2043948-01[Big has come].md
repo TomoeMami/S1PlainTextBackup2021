@@ -8425,3 +8425,26 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 
 当然，参考某些手游某段时期连改ID功能都下线这点来看，可能确实还有提升的空间，毕竟你连字都敢写，接下来（以下略<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zashou  
+##### 772#       发表于 2021-12-28 17:15
+
+ 本帖最后由 zashou 于 2021-12-28 17:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075468&amp;ptid=2043948" target="_blank">超赛锡纸烫 发表于 2021-12-28 14:17</a>
+
+那不然呢，你以为forum drama是什么，还值当我花心思全s1检索吗，掌握多少说多少啊，你大可以从s1翻出来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">狗洞大师急成这副批样了，看来是破防破进细胞核了。
+
+不就是steam真的被搞了一群人骂之前给墙洗地的狗洞大师把你这个自我代入的小大师溅射破防了吗？要不就是你大号做了啥被封了？
+
+说白了，被溅射疼了，想通过这种层次的侮辱来反伤一下对家，就你也配吗？
+
+我很难去专心阅读你这种垃圾级别的挑衅，连骂人都骂的这么扭捏矫情没文化，像个被男人蹬了之后进贴吧骂街的技校女。还TMD跟老子一声“Oh”+“黑喂狗”，你觉得你阴阳怪气的很到位，我看你的眼神比看傻逼还感到滑稽，哪一方水土养出的你这种傻鸟，切尔诺贝利还是福岛，国家终究来迟一步，没机会拯救你的大脑。
+
+反正steam波动一天，大家就把你们这些垃圾挂上去艹一天当出气筒，干不动大象还干不动替罪的狗吗？你还是自己急不可待地自己挂上去的。<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+创作灵感不会用在你身上的，你带不起那么多戏。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

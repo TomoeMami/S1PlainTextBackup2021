@@ -3164,3 +3164,57 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 拿圣剑XJB砍应该比终章铁拳殴打人王好看点</blockquote>
 我觉得可以做进战斗里，反正也完结了，就让玩家真正意义上手操一次咕哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 85795#       发表于 2021-12-28 17:03
+
+ 本帖最后由 qixinno2 于 2021-12-28 17:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077568&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 16:59</a>
+
+我觉得可以做进战斗里，反正也完结了，就让玩家真正意义上手操一次咕哒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">食我星爆气流斩啦 顺便边上最好飘个C呆当灵体给我拍BUFF 整成龙马那样就行了
+
+*****
+
+####  发条提灯  
+##### 85796#       发表于 2021-12-28 17:07
+
+大的要等到12.31的18:00？
+
+*****
+
+####  v22325  
+##### 85797#       发表于 2021-12-28 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥非要选虎战车啊 
+
+*****
+
+####  zhc016  
+##### 85798#       发表于 2021-12-28 17:13
+
+大的要来了大的要来了
+
+*****
+
+####  alucardcz  
+##### 85799#       发表于 2021-12-28 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又来这套路 31号见
+
+*****
+
+####  miro112233  
+##### 85800#       发表于 2021-12-28 17:21
+
+ 本帖最后由 miro112233 于 2021-12-28 17:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54076288&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 15:18</a>
+比较好奇如果2.65和杀狐没关系那还能讲啥，2.65肯定算主线吧，主线肯定就必须得和主线人物有关联，像大奥， ...</blockquote>
+还有个之前每章开头的51区，骑车的戴维特·布鲁布克在现实时间里已经被不明红色怪人枪击两年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+从名字看肯定是诱导玩家认为戴维特和戴比特是同一个人或者有关系的（而且戴比特的出生地就是内华达也就是51区），但是现在咕哒的主视角并不知道有戴维特这么个人存在，也不知道戴维特视角里51区还留着（咕哒视角的51区是最早白纸化的），只有玩家的上帝视角才知道。不管是不是目前普遍猜测的戴维特和主视角是两个世界线，51区肯定有什么特殊之处才会是白纸化的开端或者到最后都没白纸化的地方，还有自称在等戴维特却直接开枪的红人的真实身份也是个迷。总之51区放在265接27的戴比特，或者275接终章解密都挺正常的，要是完全不提或者塞在某一章里一笔带过就有点对不起之前的铺垫了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
