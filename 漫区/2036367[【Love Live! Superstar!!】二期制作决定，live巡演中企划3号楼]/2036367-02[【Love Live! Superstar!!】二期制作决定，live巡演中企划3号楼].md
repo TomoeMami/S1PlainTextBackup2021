@@ -13387,3 +13387,29 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 
 鲤鱼这发售活动绕的我头晕，感觉哪家店买3张都抽不赢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 2599#       发表于 2021-12-28 12:13
+
+<blockquote>终于要到了【LoveLive！Superstar！！官方合作店】原宿Gamers决定看板娘的总选举啦💫
+
+“已经投过票了哦〜( ´ ꒳ ` )ﾉ”这样说的大家，谢谢你们💚
+
+大家的支持真是帮大忙啦！
+
+“好喜欢她，就她了！”请给能让自己这么想的孩子投票哦(*´ω｀*) </blockquote>
+
+pay酱这拉票又让大家投爱投的，格局一下子大了。
+
+45DCB87E-683B-400E-9406-32CD4E71AF62.jpeg
+(214.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-28 12:13 上传
+
+<img src="https://img.saraba1st.com/forum/202112/28/121303up85kkttk3zzt9dn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

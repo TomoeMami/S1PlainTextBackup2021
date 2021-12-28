@@ -2869,3 +2869,12 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 已经连开几个新活动了，马上新年，1月9日冬祭第二场，高概率复刻事件簿吧
 
+
+
+*****
+
+####  sosgame67  
+##### 85768#       发表于 2021-12-28 12:14
+
+主要这波通古斯活动完全是个击退活动，265再拖个半年就拉了，不过考虑到今年主线基本0进度<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
