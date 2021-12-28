@@ -2623,3 +2623,40 @@ A49B8EC3-7ED5-43A6-BB4D-8E2A6BEEA80E.jpeg
 一般beast只有一个反Xx</blockquote>
 我知道啊，前面我不就这么说过吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题是如果要展开只剩两节是绝对不可能的，但又不敢保证一定会有光点2.65接通古斯的剧情。所以才说很悬
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85741#       发表于 2021-12-28 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071617&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 09:50</a>
+
+我知道啊，前面我不就这么说过吗问题是如果要展开只剩两节是绝对不可能的，但又不敢保证一定会有 ...</blockquote>
+还有一个奇怪的
+
+姜尚buff有金色白面特攻
+
+但是兔子没金色白面属性
+
+*****
+
+####  sosgame67  
+##### 85742#       发表于 2021-12-28 10:17
+
+阿塔拉斯院礼服+c狐压轴无令咒无碎石过了，上来前排兰陵王+学妹+助战伊吹，兰陵王给完技能伊吹开技能，只要学妹开了1技能第一轮有一张伊吹红卡就能过1面，二面伊吹np满了一炮过，后面基本是妖兰狼王xjb打，关键是狼王要四面满np而且别挂（中间几次忘了开1技能减伤被打死，最后c狐单挑战车+兔子基本没压力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85743#       发表于 2021-12-28 10:18
+
+翻页
+
+*****
+
+####  yangun22  
+##### 85744#       发表于 2021-12-28 10:18
+
+年底搞事不是惯例么，最后肯定搞出点什么花样让你等新年了
+
