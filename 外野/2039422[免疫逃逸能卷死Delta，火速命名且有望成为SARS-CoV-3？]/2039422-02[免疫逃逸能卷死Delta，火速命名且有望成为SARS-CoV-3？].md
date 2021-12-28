@@ -8643,3 +8643,108 @@ https://www.medrxiv.org/content/10.1101/2021.12.22.21268021v1
 
 精液变色主要是温度问题吧？你导出这个结果的时候慌不慌啊
 
+
+
+*****
+
+####  烦死了  
+##### 2231#       发表于 2021-12-28 13:09
+
+观察者网：【美新研究发现：新冠病毒可在心脏、脑部存留数月】
+
+据美国彭博社12月27日报道，美国国立卫生研究所（NIH）对44具新冠死者的尸体进行了解剖后，对于新冠病毒有了新的发现。
+
+该研究所最新的发现证实，新冠病毒在感染一个人后，可能会在其体内存留数个月之久，并扩散到包括在心脏和脑部的全身各个位置。
+
+研究人员说，这项新研究有助于了解病毒持续存在的机制，帮助改善对感染者的护理，以消除病毒造成的长期影响。
+
+这些研究结果于25日发表在《自然》（Nature）杂志的一份初稿中，该初稿正在审查中，预计将发表在《自然》杂志正刊上。
+
+研究结果指出，病毒在体内迟迟得不到清除，是造成新冠病毒患者持续症状的原因。
+
+国立卫生研究所（NIH）研究人员称，他们对现有关于病毒在体内残存的数据研究是最完整的。
+
+他们对44具新冠病毒死者的尸体进行了解剖，以确定新冠病毒在身体里存在的位置和数量。
+
+这些解剖共包括85处人体组织和体液的取样，其中79处都检测出了新冠病毒。
+
+研究揭示，新冠病毒可以从呼吸系统蔓延到几乎全部器官，在身体内部广泛扩散，感染全身各处细胞，包括大脑、眼部组织、肌肉、皮肤、周围神经、心血管、胃肠道、内分泌和淋巴系统。
+
+除此以外，新冠病毒还可以在体内长期存在，研究者通过分析一名患者RNA发现，在症状首次出现后，新冠病毒在其体内仍存在了230天。
+
+密苏里州退伍军人事务圣路易斯卫生保健系统临床流行病学中心主任齐亚德·阿尔-阿里（ Ziyad Al-Aly）说：：“这是非常重要的工作，很长一段时间以来，我们一直困惑于新冠病毒为何会影响了那么多器官组织。
+
+这篇论文提供了一些线索，可能有助于解释为什么即使是患有轻度或无症状的患者，也会长时期在体内保留新冠病毒。
+
+”
+
+阿尔-阿里教授表示，新冠病毒能够侵入大脑的发现意义重大，因为这可以帮助科学家了解“长期新冠”患者的神经认知衰退和其他神经精神症状。
+
+不过，这次研究也有一定的不足，目前科学家仍然没有完全搞清新冠对病人的长期影响。
+
+比如，NIH的解剖研究的对象都是在新冠疫情爆发的首年去世的，那时还没有疫苗面市。
+
+因此打了疫苗的人在感染新冠后，病毒在其体内的长期影响仍不得而知。
+
+一些医学专家对于这次研究给出了积极的意义，但也担忧新冠病毒长期存在带来的后续危险。
+
+悉尼新南威尔士大学全球生物安全教授雷娜·麦金太尔（Raina MacIntyre）说：“我们不完全了解新冠病毒在体内长期存在的情况，但这些研究可以解释持续的症状。
+
+我们还不知道未来几年新冠慢性病会造成什么样的负担。
+
+我们会在幸存者身上看到早发性心力衰竭或早发性痴呆吗？”
+
+麦金太尔表示，这些都是没有答案的问题，需要采取预防性的公共卫生措施来减缓这种病毒的后续传播。
+
+preprint的链接  [https://assets.researchsquare.co ... ed.pdf?c=1640020576](https://assets.researchsquare.com/files/rs-1139035/v1_covered.pdf?c=1640020576)
+
+abstract  ：COVID-19 is known to cause multi-organ dysfunction in acute infection, with
+
+ prolonged symptoms experienced by some patients, termed Post-Acute Sequelae of SARSCoV-2 (PASC) . However, the burden of infection outside the respiratory tract and time
+
+to viral clearance is not well characterized, particularly in the brain . We performed
+
+complete autopsies on 44 patients with COVID-19 to map and quantify SARS-CoV-2
+
+ distribution, replication, and cell-type specificity across the human body, including brain,
+
+ from acute infection through over seven months following symptom onset. We show that
+
+SARS-CoV-2 is widely distributed, even among patients who died with asymptomatic to
+
+ mild COVID-19, and that virus replication is present in multiple pulmonary and
+
+ extrapulmonary tissues early in infection. Further, we detected persistent SARS-CoV-2
+
+ RNA in multiple anatomic sites, including regions throughout the brain, for up to 230 days following symptom onset. Despite extensive distribution of SARS-CoV-2 in the body, we observed a paucity of inflammation or direct viral cytopathology outside of the lungs. Our data prove that SARS-CoV-2 causes systemic infection and can persist in the body for months. 
+
+摘要机翻：已知COVID-19在急性感染中会导致多器官功能障碍，一些患者会出现长时间的症状，称为SARSCoV-2的急性后遗症（PASC）。然而，呼吸道以外的感染负担和病毒清除的时间还没有很好的定性。
+
+然而，呼吸道以外的感染负担和病毒清除的时间还没有得到很好的描述，特别是在大脑中。我们对44名患者进行了
+<strong>我们对44名COVID-19患者进行了完整的尸检，以绘制和量化SARS-CoV-2的分布、复制和细胞类型的特异性，包括大脑，从急性感染到症状出现后七个多月。我们表明，SARS-CoV-2分布广泛，甚至在无症状至轻度COVID-19死亡的患者中也是如此，而且在感染早期，病毒复制存在于多种肺部和肺外组织。此外，我们在多个解剖部位检测到持续的SARS-CoV-2 RNA，包括整个大脑区域，在症状出现后长达230天。</strong>尽管SARS-CoV-2在体内广泛分布，但我们观察到在肺部以外很少有炎症或直接的病毒细胞病理学。我们的数据证明SARS-CoV-2引起全身性感染，并能在体内持续数月。
+
+通过[www.DeepL.com/Translator](http://www.DeepL.com/Translator)（免费版）翻译
+
+通过[www.DeepL.com/Translator](http://www.DeepL.com/Translator)（免费版）翻译
+
+*****
+
+####  不乖  
+##### 2232#       发表于 2021-12-28 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54064532&amp;ptid=2039422" target="_blank">藤岛鸣海 发表于 2021-12-27 16:51</a>
+说点题外的，我打疫苗第二针以后，精液出了点问题，连续一周咖啡色或者说可乐色的精液。一周后慢慢恢复了。 ...</blockquote>
+你这是连续打了一周的飞机么。。。
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  smy20011  
+##### 2233#       发表于 2021-12-28 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54064532&amp;ptid=2039422" target="_blank">藤岛鸣海 发表于 2021-12-27 16:51</a>
+
+说点题外的，我打疫苗第二针以后，精液出了点问题，连续一周咖啡色或者说可乐色的精液。一周后慢慢恢复了。 ...</blockquote>
+你不看一下？有人说这是精液出血
+

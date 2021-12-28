@@ -2878,3 +2878,26 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 主要这波通古斯活动完全是个击退活动，265再拖个半年就拉了，不过考虑到今年主线基本0进度<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 85769#       发表于 2021-12-28 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54073840&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-12-28 12:14</a>
+
+主要这波通古斯活动完全是个击退活动，265再拖个半年就拉了，不过考虑到今年主线基本0进度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟2.6四舍五入等于无事发生
+
+*****
+
+####  khxooo  
+##### 85770#       发表于 2021-12-28 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54072154&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-28 10:31</a>
+不是说彷徨海的场地租期要到了嘛，新年肯定要搞事情的
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅 ...</blockquote>
+没有啊，紫苑不是跟那群老家伙续租了吗。
+
