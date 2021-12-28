@@ -2946,3 +2946,42 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 我的理解是2017年12月31日跑路到彷徨海以后到现在这段时间就是用第八张契约书换来的啊 ...</blockquote>
 主要这通讯不容易这次活动开头刚发起的么？难道都打完6个了 这群人才跳出来说你之前没付房租住了这么久该补房租了……
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 85775#       发表于 2021-12-28 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075560&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-28 14:25</a>
+主要这通讯不容易这次活动开头刚发起的么？难道都打完6个了 这群人才跳出来说你之前没付房租住了这么久该 ...</blockquote>
+这不是在问续不续租吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  v22325  
+##### 85776#       发表于 2021-12-28 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075616&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-28 14:29</a>
+
+这不是在问续不续租吗？
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦有点看错了 看成“用契约书换停留一年 你不变了吧？“
+
+实际上是问“用契约书换停留一年时间快到了你还改不改了"
+
+*****
+
+####  UNISONIA  
+##### 85777#       发表于 2021-12-28 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54073331&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-28 11:38</a>
+
+新会社名字叫ラセングル，小野义德当老大</blockquote>
+其实前段时间传小野也过去就证明了完全就是洗名义了，毕竟小野之前就是DW的CEO
+
+运营方针什么的东西照样不会变
+

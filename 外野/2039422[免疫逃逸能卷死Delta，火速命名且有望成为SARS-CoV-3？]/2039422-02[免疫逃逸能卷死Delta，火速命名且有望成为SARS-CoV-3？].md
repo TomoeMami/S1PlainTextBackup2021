@@ -8790,3 +8790,47 @@ SARS-CoV-2 is widely distributed, even among patients who died with asymptomatic
 正常人类有血睾屏障的。就算只是RNA碎片，如果不是尿道里污染进X液的，那意味着病毒可以突破这个屏障，能 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突破血脑屏障也许对新冠来说都是小开司，虽然目前最新的解释是新冠病毒通过鼻神经进而感染中枢神经系统，但是也不能排除直接突破血脑屏障的可能性，毕竟脑脊液中检出阳性的案例不要太多。
 
+
+
+*****
+
+####  yhaos  
+##### 2238#       发表于 2021-12-28 14:28
+
+很多人工物质都能突破血脑屏障嘛，自然生成的病毒能突破也很正常。或者可以理解为合并了乙脑特性
+
+*****
+
+####  藤岛鸣海  
+##### 2239#       发表于 2021-12-28 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54074748&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-28 13:19</a>
+你不看一下？有人说这是精液出血</blockquote>
+去医院了，没查出啥原因
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  藤岛鸣海  
+##### 2240#       发表于 2021-12-28 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54074721&amp;ptid=2039422" target="_blank">不乖 发表于 2021-12-28 13:17</a>
+你这是连续打了一周的飞机么。。。
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+差不多，一天一次，颜色越来越淡，慢慢正常了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  藤岛鸣海  
+##### 2241#       发表于 2021-12-28 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54066663&amp;ptid=2039422" target="_blank">sjbssd 发表于 2021-12-27 19:58</a>
+精液变色主要是温度问题吧？你导出这个结果的时候慌不慌啊</blockquote>
+因为我恰好疫苗前一天射了一次，是正常的。打疫苗后一天有射了一次，就不正常了。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
