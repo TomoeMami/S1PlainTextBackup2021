@@ -3110,3 +3110,35 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 话说我没看剧情 2.6里咕哒拿到了C呆村正牌圣剑 是过了剧情就没了还是之后一直在手上 以后的剧情能拿 ...</blockquote>
 还在，达芬奇好像说过正在解析，这次剧情也有提到，因为正在解析所以拿不出来对付狐狸。
 
+
+
+*****
+
+####  qixinno2  
+##### 85790#       发表于 2021-12-28 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077003&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 16:15</a>
+
+终章咕哒冠位剑打大总统，别说可能性还不低，真要这么搞也挺燃的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是人类的觉悟啊威力加强版
+
+*****
+
+####  qixinno2  
+##### 85791#       发表于 2021-12-28 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077118&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-28 16:24</a>
+
+还在，达芬奇好像说过正在解析，这次剧情也有提到，因为正在解析所以拿不出来对付狐狸。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">希望以后来个圣剑专属礼装 爷要用礼装放光炮打怪
+
+*****
+
+####  zakki  
+##### 85792#       发表于 2021-12-28 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54077157&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-28 16:27</a>
+
+这就是人类的觉悟啊威力加强版</blockquote>
+那是小太刀，为啥不能是1.0终章咕哒单挑人王的威力加强版呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

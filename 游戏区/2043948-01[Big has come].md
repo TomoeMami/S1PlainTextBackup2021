@@ -8403,3 +8403,25 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 
 需要玩家之间疑神疑鬼、自我管理本身就够荒诞的了
 
+
+
+*****
+
+####  Viteeee  
+##### 770#       发表于 2021-12-28 16:34
+
+坛友“超赛锡纸烫”我拉黑时写的备注是“小号搅屎棍”，供参考<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Viteeee  
+##### 771#       发表于 2021-12-28 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071161&amp;ptid=2043948" target="_blank">暗影之诗 发表于 2021-12-28 09:12</a>
+如果相当长时间内，都是只有蒸汽被干扰，而其他平台相安无事的话。
+
+那就是蒸汽商店自己某个独有的东西被盯 ...</blockquote>
+社区、好友、工坊、个人资料评论墙这些地方早就都被干掉了，现在整个蒸汽在墙内还能打字的只剩商店review了好吧。
+
+当然，参考某些手游某段时期连改ID功能都下线这点来看，可能确实还有提升的空间，毕竟你连字都敢写，接下来（以下略<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
