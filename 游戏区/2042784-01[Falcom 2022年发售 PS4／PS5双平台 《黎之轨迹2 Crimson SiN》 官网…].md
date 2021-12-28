@@ -1734,3 +1734,12 @@ ps5版至少loading问题可以解决了
 
 两年一作，那估计现在还在帝国内战呢，难道真要拖到玩家当爷爷了才完结？招人分成两个开发组才最符合当下的状况，两个组交替出游戏，每作两年打磨时间，甚至两部轨迹同时开发。只可惜社长没权力这么激进的扩张
 
+
+
+*****
+
+####  masterzx  
+##### 167#       发表于 2021-12-29 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

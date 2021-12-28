@@ -8960,3 +8960,19 @@ CDC已经减半感染病毒隔离时间，并鼓励患者在家里治疗（感�
 突破血脑屏障也许对新冠来说都是小开司，虽然目前最新的解释是新冠病毒通过鼻神经进而感染中枢神 ...</blockquote>
 我觉得不必太教条，屏障本来就是保护大脑的。达到感染大脑的目的就行了，毕竟有血脑屏障，免疫系统功能也受限制，影响脑部运作才是值得注意的。至于具体通路。。泥潭又不负责研发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烦死了  
+##### 2253#       发表于 2021-12-28 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078352&amp;ptid=2039422" target="_blank">Maestro 发表于 2021-12-28 18:00</a>
+
+据日内瓦医院的统计，omicron在总病例中的比例增速和南非豪登基本一致，四个星期从0增长到了70%（剩下的应 ...</blockquote>
+CDC 显然看不上物理防疫<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+ CDC 宣布缩短无症状感染者自我隔离时间 （10天 减为5天），以便于快速回去工作<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[https://www.cdc.gov/media/releas ... ntine-guidance.html](https://www.cdc.gov/media/releases/2021/s1227-isolation-quarantine-guidance.html)
+

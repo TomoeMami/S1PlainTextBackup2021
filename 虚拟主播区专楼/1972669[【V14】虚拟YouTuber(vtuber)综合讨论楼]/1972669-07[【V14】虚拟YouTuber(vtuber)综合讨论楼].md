@@ -7820,3 +7820,12 @@ https://twitter.com/azuma_lim/status/1475799527483650050</blockquote>
 
 弹幕问游戏的，说到自己以前不看v的，以为入驻了的……怎么说呢，真的很直观地显示确实破了点圈，就是总觉得有些心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 9656#       发表于 2021-12-28 23:59
+
+EN最近满天飞的我都怀疑虹买推广了。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

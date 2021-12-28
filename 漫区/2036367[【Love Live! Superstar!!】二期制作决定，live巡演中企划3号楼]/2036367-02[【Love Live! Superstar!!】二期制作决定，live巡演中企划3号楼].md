@@ -14029,3 +14029,35 @@ https://weibo.com/2258350604/L8aQuw0LO</blockquote>
 日语翻译版出来了吗</blockquote>
 中文节目吗？官方要1月，管上有野生字幕了，可以搜一下
 
+
+
+*****
+
+####  sjbssd  
+##### 2663#       发表于 2021-12-28 23:42
+
+烦死了，你们是不是把投票的事情忘到脑后了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2664#       发表于 2021-12-28 23:44
+
+当然是投完接着吃瓜
+
+*****
+
+####  cybernetics31  
+##### 2665#       发表于 2021-12-28 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">投票当然在投啊，自家闺女怎么不投
+
+*****
+
+####  Norkey1  
+##### 2666#       发表于 2021-12-28 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082025&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-28 23:38</a>
+不是，那个3群进了很多新粉，想支持鲤鱼一专，群里就说别去米娅亲这家。有的新粉知道原因后就想退货，但 ...</blockquote>
+这个 肯定 是主观推断还是真有其事啊，如果店主真不给退那这根本不能叫“站直挨打”了，被差评不冤。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那现在看来挂人的这位确实是被人当枪使了？
+
