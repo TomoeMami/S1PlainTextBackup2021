@@ -3463,3 +3463,105 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 结果蘑菇的2.6重写直接跨周年 ...</blockquote>
 这个也不一定吧，从者图鉴经常跳号的
 
+
+
+*****
+
+####  qixinno2  
+##### 85825#       发表于 2021-12-28 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不懂日文的丈育只能全跳过
+
+*****
+
+####  zakki  
+##### 85826#       发表于 2021-12-28 18:09
+
+杀狐这贯穿6个异闻带，换了6件衣服的角色待遇也太差了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85827#       发表于 2021-12-28 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈说那几件衣服就真不整个暗之高扬斯卡娅或者给杀狐整个灵衣么 明明那几件都挺好看的
+
+*****
+
+####  黑上シグマ  
+##### 85828#       发表于 2021-12-28 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078359&amp;ptid=1085254" target="_blank">贤娘萌娘 发表于 2021-12-28 18:00</a>
+
+最后也没说为什么杀狐长得和妲己一样，31号的剧情会不会妲己突然出现</blockquote>
+讲了啊，听说那边厢有个金毛玉面，吾当效法之（
+
+*****
+
+####  Lokad  
+##### 85829#       发表于 2021-12-28 18:15
+
+ 本帖最后由 Lokad 于 2021-12-28 18:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078446&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 18:09</a>
+
+杀狐这贯穿6个异闻带，换了6件衣服的角色待遇也太差了吧</blockquote>
+2.3跟始皇帝和虞姬混的挺热闹的，到了这次活动便属于一问三不知，明显中途改剧情了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+菌类：假的玉藻系终究不是吾爱，我爱的是真玉藻系！妲己好美好美好美好美。
+
+*****
+
+####  exiaexa  
+##### 85830#       发表于 2021-12-28 18:15
+
+我跟你们讲，这活动最大的进步是什么
+
+是型月这群逼人终于知道侦探剧的爽点在哪儿了
+
+我管你是侦探还是萝卜，我要的只是你装逼的过程和装逼的结果，你的思考过程和你惊不惊讶谁管你啊
+
+你在中途哔哔哔半天连个屁都放不出来还天天吃瘪
+
+太公望最后开思想键纹思考的那段节奏控制得算是比较好了
+
+推理引导个两三段，然后提示重点，再配着BGM点名真相，简单明了收工完事儿
+
+趁着老福回家休眠，以后别天天在RPG流程里插侦探环节又不给侦探片节奏了，体验吊差
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 85831#       发表于 2021-12-28 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078520&amp;ptid=1085254" target="_blank">Lokad 发表于 2021-12-28 18:15</a>
+2.3跟始皇帝和虞姬混的挺热闹的，到了这次活动便属于一问三不知，明显中途改剧情了。
+
+菌类：假的玉 ...</blockquote>
+拿别的章说还行，拿2.3说还是算了吧，2.3才是最偏离主线的章节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzxa  
+##### 85832#       发表于 2021-12-28 18:19
+
+光之高扬怎么来的完全没说，以后还有机会吗
+
+*****
+
+####  不垃圾屌丝  
+##### 85833#       发表于 2021-12-28 18:21
+
+看完感觉，就这？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  angelooo  
+##### 85834#       发表于 2021-12-28 18:24
+
+不要慌，这是给你们打个预防针，我有预感宇宙大统领的剧情会更扯淡
+
