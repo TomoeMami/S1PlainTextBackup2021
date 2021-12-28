@@ -8675,3 +8675,53 @@ steam和epic最大的区别不就是没有社区，这么看外来的和尚想�
 </blockquote>
 好家伙，轮媒的图都上了
 
+
+
+*****
+
+####  ouba  
+##### 793#       发表于 2021-12-29 00:09
+
+<blockquote>zashou 发表于 2021-12-28 21:59
+另外steam被干了，按照我们的赌注你可以给狗叔打100块钱啦～～是不是废物100块钱也要赖啊～～
+
+ ...</blockquote>
+本来懒得回你了，既然你提赌注了，那我勉为其难来回复一下你，我的赌注是10000rmb，但我对捐狗叔没兴趣，steam真被干了的那天我自然会贴我支付宝公益里的捐款证明。你就别一会儿500一会儿100了，已经不指望你这种满地打滚的东西到时会履约了，你和你们那群抱团自high的巨婴我这两个月来已经鉴赏够了。
+
+*****
+
+####  zashou  
+##### 794#       发表于 2021-12-29 00:10
+
+ 本帖最后由 zashou 于 2021-12-29 00:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082306&amp;ptid=2043948" target="_blank">ouba 发表于 2021-12-29 00:09</a>
+
+本来懒得回你了，既然你提赌注了，那我勉为其难来回复一下你，我的赌注是10000rmb，但我对捐狗叔没兴趣， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">你对捐狗叔没兴趣那有B用，谁知道是你捐的，谁知道是不是有人托你捐的，谁知道不是你用别人的图？狗叔有什么对不起你的地方嘛，我觉得捐狗叔挺好呀～
+
+不行，必须捐狗叔。
+
+你先捐一个，我不敢跟那我不是马上闭嘴了吗？还需要你勉为其难地回复我吗？
+
+*****
+
+####  ‮agur4kI  
+##### 795#       发表于 2021-12-29 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071762&amp;ptid=2043948" target="_blank"> Hidewhite 发表于 2021-12-28 09:59</a> 真是评论区那至少还有其他平台，EPIC那玩意居然因此有优越性了，简直滑稽 当初只是禁了社区的作风也挺意外的，不知道还有没有精准手术刀了 发头像自然有意为之，不如说这手段居然还不算恶毒还让人意外点，不知道是不是相对平和的手段更不容易引起警觉。另外忽然想起多年前知乎满是第三代的梗，不知道是不是在吸取当年的教训 </blockquote>
+17年冬促是有人反复访问
+store.steampowered.com/毛xx
+store.steampowered.com/中国x产x
+这种链接，触发自动屏蔽模式
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  saintgory  
+##### 796#       发表于 2021-12-29 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082143&amp;ptid=2043948" target="_blank">printer22 发表于 2021-12-28 23:50</a>
+
+是啊，你敢真的墙STEAM人家美国那肯定直接反手封了莉莉丝米哈游腾讯网易的那几个大IP，甚至可以拉着日本一 ...</blockquote>
+我觉得想多了，在国外发行运营游戏根本没什么政策方面的门槛，符合当地法律法规根本没理由封，太看得起这个行业了
+

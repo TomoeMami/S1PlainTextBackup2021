@@ -8976,3 +8976,38 @@ CDC 显然看不上物理防疫<img src="https://static.saraba1st.com/image/smil
 
 [https://www.cdc.gov/media/releas ... ntine-guidance.html](https://www.cdc.gov/media/releases/2021/s1227-isolation-quarantine-guidance.html)
 
+
+
+*****
+
+####  smy20011  
+##### 2254#       发表于 2021-12-29 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075134&amp;ptid=2039422" target="_blank">wszweill 发表于 2021-12-28 13:48</a>
+？你在说什么。无论那种疫苗都不是直接打抗体的。传统疫苗直接注射抗原，mRNA只是让体内无辜细胞表达抗原 ...</blockquote>
+我说的是，测不出血液中的抗体，但是研究表示，疫苗还是有防重症的效果啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2255#       发表于 2021-12-29 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54078352&amp;ptid=2039422" target="_blank">Maestro 发表于 2021-12-28 18:00</a>
+据日内瓦医院的统计，omicron在总病例中的比例增速和南非豪登基本一致，四个星期从0增长到了70%（剩下的应 ...</blockquote>
+对变种的加强针咯，物理防疫对欧美又不可能。圣诞元旦不让他们回家，就直接跑出去游行了。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2256#       发表于 2021-12-29 00:09
+
+小规模研究表示o的抗体似乎对delta有效
+
+https://www.timesofisrael.com/small-study-suggests-omicron-antibodies-could-provide-immunity-against-delta-too/
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

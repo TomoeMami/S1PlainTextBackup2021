@@ -14061,3 +14061,87 @@ https://weibo.com/2258350604/L8aQuw0LO</blockquote>
 不是，那个3群进了很多新粉，想支持鲤鱼一专，群里就说别去米娅亲这家。有的新粉知道原因后就想退货，但 ...</blockquote>
 这个 肯定 是主观推断还是真有其事啊，如果店主真不给退那这根本不能叫“站直挨打”了，被差评不冤。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那现在看来挂人的这位确实是被人当枪使了？
 
+
+
+*****
+
+####  优妮可  
+##### 2667#       发表于 2021-12-29 00:01
+
+<blockquote>Norkey1 发表于 2021-12-28 23:53
+这个 肯定 是主观推断还是真有其事啊，如果店主真不给退那这根本不能叫“站直挨打”了，被差评不冤。[f:0 ...</blockquote>
+我的就没退，我点退货，他说了下单了不能退，找各种理由搪塞你，还说跟松雾误会啥的解开了，巴拉巴拉。我就想着反正还没发货就留着观察，他要是再犯就继续退了呗。很多在他家买的想退货都能看到这话术。
+
+*****
+
+####  Norkey1  
+##### 2668#       发表于 2021-12-29 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082238&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-29 00:01</a>
+我的就没退，我点退货，他说了下单了不能退，找各种理由搪塞你，还说跟松雾误会啥的解开了，巴拉巴拉。我 ...</blockquote>
+退了吧，现在走Limista还能抽to签<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2669#       发表于 2021-12-29 00:11
+
+好奇你们找代购下单的时候就选好哪家店铺特典了吗？因为一般都会有发售活动，所以我都是等活动内容确认才会去下单，除非是特别想要的特典
+
+*****
+
+####  cybernetics31  
+##### 2670#       发表于 2021-12-29 00:13
+
+我就是等着，然后鲤鱼fc买的一专豪华版，现在看还得再搞个抽to签的………………
+
+
+
+*****
+
+####  iuhehc  
+##### 2671#       发表于 2021-12-29 00:14
+
+想再买张试试运气但是没有日本地址<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 2672#       发表于 2021-12-29 00:16
+
+我一直都很好奇怎么有这么多有莫名恶意的东西一直盯着鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉上好像也拿这种东西没什么办法，而且感觉上去对线这件事本身就输了
+
+*****
+
+####  优妮可  
+##### 2673#       发表于 2021-12-29 00:16
+
+<blockquote>Norkey1 发表于 2021-12-29 00:08
+退了吧，现在走Limista还能抽to签</blockquote>
+明天看看情况，看车西是装傻不发声支持这位博主，还是出来发话背刺。
+
+*****
+
+####  lj205  
+##### 2674#       发表于 2021-12-29 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082301&amp;ptid=2036367" target="_blank">Norkey1 发表于 2021-12-29 00:08</a>
+退了吧，现在走Limista还能抽to签</blockquote>
+不如抽G店面对面<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2675#       发表于 2021-12-29 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082355&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-29 00:16</a>
+我一直都很好奇怎么有这么多有莫名恶意的东西一直盯着鲤鱼感觉上好像也拿这种东西没什么办法，而且 ...</blockquote>
+没必要上去对线啊，坐着看就行，虽然这次咋看都是车西这货亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2676#       发表于 2021-12-29 00:20
+
+to签和cd分开寄的？面谈好像还得日本那边电话？不好搞………………算了，反正fc里已经预定支持了
+
