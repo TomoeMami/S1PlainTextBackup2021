@@ -13367,3 +13367,14 @@ roland是ksks厨吧，反正和星团也没什么关系<img src="https://static.
 不止她啊，每个人都出来拉票了。就是例行工商</blockquote>
 小百合没有出来拉这个看板娘的票吧，她倒是发推给打铁广播（就杏树之前上过那个）拉票了，不出意料肯定是可可当选，伊達おじ再热情也不至于像国内一些魔怔饭圈人读不了空气吧，更何况角色和中之人的人气不能一概而论
 
+
+
+*****
+
+####  saglork  
+##### 2597#       发表于 2021-12-28 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069169&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-27 23:46</a>
+跟少歌没啥好比的吧，少歌也不是吹剧情，就是那个意识流演出好看，换到拉拉这里不就是live做的好看点咯。 ...</blockquote>
+同意，少歌的剧情系构没啥出彩的，强的是演出，你要想拉拉做出少歌的效果，该抽鞭子的不是花田而是京极，直接京极换成几原好了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

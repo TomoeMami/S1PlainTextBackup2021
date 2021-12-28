@@ -2791,3 +2791,43 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿拐外星人
 
+
+
+*****
+
+####  qixinno2  
+##### 85759#       发表于 2021-12-28 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出也是红卡打手 毕竟目前外星人红卡只有阿比和泳装阿比 需要新鲜血液了
+
+*****
+
+####  贤娘萌娘  
+##### 85760#       发表于 2021-12-28 11:24
+
+活动五星礼装卡面是狐狸，效果是红绿魔放，已知玉藻前是蓝拐，柯杨斯卡娅是红拐，xjb奶一口妲己是绿拐
+
+*****
+
+####  发条提灯  
+##### 85761#       发表于 2021-12-28 11:35
+
+奶一口新年落地暗狐妲己同时开启2.65
+
+*****
+
+####  黑上シグマ  
+##### 85762#       发表于 2021-12-28 11:38
+
+新会社名字叫ラセングル，小野义德当老大
+
+*****
+
+####  zakki  
+##### 85763#       发表于 2021-12-28 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54072915&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-12-28 11:14</a>
+
+接也可以先不开嘛，真BOSS说句谢谢你们让我得手然后溜了不就完了</blockquote>
+如果真有的话，他最好是31号晚上开，别特么整个迦勒底快要团灭了，然后半年后开2.65的神秘操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要还是现在的剧情处于一个说多不算多，说少不算少的位置上，就这么完结了根本对不起铺垫杀狐4年的时间，但如果在开一个章节去讲的话，好像现在也讲的差不多了，剩下的内容不够一个章节。
+

@@ -8274,3 +8274,22 @@ steam真的亡了RIP
 
 昨晚开始发现浏览正常了。
 
+
+
+*****
+
+####  Cybellybanana  
+##### 759#       发表于 2021-12-28 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54069962&amp;ptid=2043948" target="_blank">Tring 发表于 2021-12-28 01:41</a>
+
+真想要解决的话，可以花点时间折腾反代。</blockquote>
+最后还是去找那位国内大佬的博客寻找帮助了，果然，还是他有办法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leo204672099  
+##### 760#       发表于 2021-12-28 11:43
+
+我是-324错误，然后刷新一遍就能进了
+
