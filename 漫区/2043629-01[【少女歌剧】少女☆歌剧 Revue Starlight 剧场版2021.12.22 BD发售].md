@@ -4647,3 +4647,18 @@ JC那么阳光的恋哥哥虽然是装的，但这Topstar的底子装出来根�
 其实我觉得光恋的情节在本篇已经很好很好了，到 ...</blockquote>
 tv和新剧场版的光恋线主旨快是相反的了，这点我还是很惊讶的。其他几对铺垫的确比较少，有印象的只有洗衣房里交代了一句双叶去新国立是克洛推荐的，所以花叶revue开头克洛客串了一下。
 
+
+
+*****
+
+####  qingshuihe  
+##### 357#       发表于 2021-12-28 09:02
+
+没文化，只能说几句。
+我想现在没有比我更空虚的了。
+就像喝了烈酒。
+我是长颈鹿，燃尽了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+Ps.人家几原徒弟都能搞到这个程度了，看看你，庵野哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
