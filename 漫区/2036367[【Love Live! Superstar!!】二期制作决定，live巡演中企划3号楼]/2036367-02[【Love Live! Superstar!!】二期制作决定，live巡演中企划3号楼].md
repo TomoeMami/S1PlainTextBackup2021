@@ -13494,3 +13494,16 @@ pay酱这拉票又让大家投爱投的，格局一下子大了。
 
 nako发情串淘到的，可可典型pose
 
+
+
+*****
+
+####  普之舜舜  
+##### 2608#       发表于 2021-12-28 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080050&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-12-28 20:30</a>
+nako发情串淘到的，可可典型pose</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

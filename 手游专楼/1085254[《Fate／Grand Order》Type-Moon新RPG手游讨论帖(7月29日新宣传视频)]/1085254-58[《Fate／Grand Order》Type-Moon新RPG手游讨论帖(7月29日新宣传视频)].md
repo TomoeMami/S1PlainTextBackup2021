@@ -4177,3 +4177,130 @@ G高达里多蒙不就是这么嘴炮东方不败的<img src="https://static.sar
 道满有啥逼格本来就是个小丑，还嫌给他一整个2.55的篇幅太多了</blockquote>
 道满最大的问题在于，他那么low比，那2.4的狂那岂不是......同样的，贝屑在2.6的表现，我为队长和佩佩不值
 
+
+
+*****
+
+####  zakki  
+##### 85891#       发表于 2021-12-28 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080123&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-28 20:36</a>
+道满最大的问题在于，他那么low比，那2.4的狂那岂不是......同样的，贝屑在2.6的表现，我为队长和佩佩不 ...</blockquote>
+狂娜也没问题，剧情上就是空有输出没头脑的类型。贝屑的确收尾的是不行，反正还是那句话，就怕戴比特也被这么祸祸
+
+*****
+
+####  exiaexa  
+##### 85892#       发表于 2021-12-28 20:42
+
+ 本帖最后由 exiaexa 于 2021-12-28 20:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080098&amp;ptid=1085254" target="_blank">katun 发表于 2021-12-28 20:34</a>
+
+你要说文笔的话那差距还是很明显的，樱女士词汇量真的太低了
+
+蘑菇的老/毛病（泥潭神奇屏蔽词）是喜欢搞捧 ...</blockquote>
+所以我说了是设定或者某个段落啊
+
+脑回路怎么思考是一回事儿，写出来是啥样是另一回事儿
+
+这俩人踩着原点XJB发挥写设定，喜欢整阵营围着某人转的毛病根本就一模一样
+
+就菌哥哥从阿瓦隆之庭开始到2.6的这堆放飞自我，换成樱井早就被精神不列颠人问候祖宗十八代了
+
+对我来说这俩人每次同时出现肯定要出幺蛾子，杀伤力比单个小太刀可怕太多了
+
+只是小太刀整不出乐子，这俩人乐子多得是
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 85893#       发表于 2021-12-28 20:44
+
+ 本帖最后由 v22325 于 2021-12-28 20:47 编辑 
+<blockquote>zakki 发表于 2021-12-28 20:26
+本来还觉得杀狐和提妈是一档的，现在逼格骤降，只能和迦摩杀生院一档了，一档，老盖异星神尼禄，二档，提妈 ...</blockquote>
+尼姑我觉得挺符合兽的定位形象啊 虽然她目的是比较那个  也不是像人王提妈搞大场面  但当初psp上和ccc活动的角色魅力还是很足的
+
+夹馍倒是印象比较小家子气
+
+杀狐要没有之前异闻带的戏份还不如夹馍呢  这活动就这
+
+*****
+
+####  exiaexa  
+##### 85894#       发表于 2021-12-28 20:44
+
+ 本帖最后由 exiaexa 于 2021-12-28 20:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080123&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-28 20:36</a>
+
+道满最大的问题在于，他那么low比，那2.4的狂那岂不是......同样的，贝屑在2.6的表现，我为队长和佩佩不 ...</blockquote>
+狂那哪里有过一丁点逼格，从2.4生放送那段
+
+迦尔纳一眼看出对面是阿囧的时候，他就注定一点逼格都没有了
+
+结果果然是1.5再放送，弓阿囧的人格修正幕间本全部白打
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 85895#       发表于 2021-12-28 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080004&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 20:26</a>
+
+本来还觉得杀狐和提妈是一档的，现在逼格骤降，只能和迦摩杀生院一档了，一档，老盖异星神尼禄，二档，提妈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得杀生院比那俩丢人货高个半档 毕竟真的赢过了一次 不过被剧情杀了而已 
+
+*****
+
+####  zakki  
+##### 85896#       发表于 2021-12-28 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080221&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-28 20:44</a>
+尼姑我觉得挺符合兽的定位形象啊 虽然她目的是比较那个  也不是像人王提妈搞大场面  但当初psp上和ccc活动 ...</blockquote>
+我说的是逼格，强度上的，杀生院和迦摩还是太弱了，连兽的眷属都没有，其他兽都有，盖提亚有魔神柱，提妈有拉赫姆，兔子有异闻带收集来的，尼禄有魔兽赫
+
+*****
+
+####  zakki  
+##### 85897#       发表于 2021-12-28 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080276&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-28 20:49</a>
+我觉得杀生院比那俩丢人货高个半档 毕竟真的赢过了一次 不过被剧情杀了而已  ...</blockquote>
+这个确实，但杀狐不也赢一手没被打死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 85898#       发表于 2021-12-28 20:55
+
+ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是安日天这个之前就有孽缘的，之前主场和大奥都没啥大问题，夹馍直接大奥主场被打哭，到泳6直接变成比黑贞还好搞定的女人，杀兔......我现在只想把和她有关的剧情全从脑子里清出去
+
+*****
+
+####  qixinno2  
+##### 85899#       发表于 2021-12-28 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080325&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 20:54</a>
+
+这个确实，但杀狐不也赢一手没被打死吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得还不如被打死了算了
+
+*****
+
+####  zakki  
+##### 85900#       发表于 2021-12-28 21:02
+
+话说光兔那个三破怎么解释<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85901#       发表于 2021-12-28 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080331&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-28 20:55</a>
+
+ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是安日天这个之前就有孽缘的，之前主场和大奥都没啥 ...</blockquote>
+杀生院有安徒生这个天克的确没办法哈哈哈哈哈哈
+

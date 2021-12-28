@@ -2228,3 +2228,27 @@ co宝持续上工中<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丑态毕露了家人们
 
+
+
+*****
+
+####  ba娜娜  
+##### 4736#       发表于 2021-12-28 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">文静笑得好小女孩
+
+*****
+
+####  小憨1  
+##### 4737#       发表于 2021-12-28 20:48
+
+对天狗爱搭不理，追星就发大水
+文静，现在的你很卑鄙<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4738#       发表于 2021-12-28 20:57
+
+米虫确实挺烦的，我家的米都要定时拿出来晒
+
