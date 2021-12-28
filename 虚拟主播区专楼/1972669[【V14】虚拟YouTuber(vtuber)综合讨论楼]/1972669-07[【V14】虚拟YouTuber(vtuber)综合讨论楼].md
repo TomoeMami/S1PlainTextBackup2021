@@ -7829,3 +7829,28 @@ https://twitter.com/azuma_lim/status/1475799527483650050</blockquote>
 
 EN最近满天飞的我都怀疑虹买推广了。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 9657#       发表于 2021-12-29 01:08
+
+就算买了推广能转化出5.4w人气的转播也很厉害了……弹幕比维阿一些底边开播刷得都快
+
+*****
+
+####  443421870  
+##### 9658#       发表于 2021-12-29 01:15
+
+你们直接看高能榜行不行，现在高能榜基本就能反应出大致同接了，转播之狼六百多高能榜，国一男v阿萨游戏回四百多高能榜
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  OldGlory  
+##### 9659#       发表于 2021-12-29 01:16
+
+推广效果这么好两年前怎么不买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

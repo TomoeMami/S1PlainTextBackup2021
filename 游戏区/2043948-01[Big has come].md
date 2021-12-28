@@ -8815,3 +8815,29 @@ store.steampowered.com/中国x产x
 我猜想，国家并不排斥主机游戏本身，只是主机游戏是红海市场，且西方占据绝对优势，大力推广经济效益不佳， ...</blockquote>
 说得好，那国内版号发了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zashou  
+##### 806#       发表于 2021-12-29 01:03
+
+ 本帖最后由 zashou 于 2021-12-29 01:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082481&amp;ptid=2043948" target="_blank">ouba 发表于 2021-12-29 00:38</a>
+
+你就继续表演你最拿手的打滚吧。第一公益捐赠是有证书的，虽然在不暴露我真名的情况下确实不能证明是我捐 ...</blockquote>
+捐狗叔凭据就是狗叔，选狗叔就是因为有直接中间人靠谱。捐公益还没证据有个证书有屁用，你自己都承认不能证明是不是你捐的或者用没用别人的图，还在和我说硬不硬，你怎么这么秀。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+想帮助人公益走一万就不要拿在打赌上，打赌就是一种非理性的幼稚行为，玩不起就别玩。另外很多公益捐款证书上都可以留个言什么的，你写个S1：ouba嘛，我教你以前我怎么写的：XX谨代表S1支援XX小学同学学业，ouba～。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nocode  
+##### 807#       发表于 2021-12-29 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082362&amp;ptid=2043948" target="_blank">‮agur4kI 发表于 2021-12-29 00:17</a>
+17年冬促是有人反复访问
+store.steampowered.com/毛xx
+store.steampowered.com/中国x产x</blockquote>
+这么一说我也想起来社区彻底寄之前也是莫名其妙突然连不上突然又好，结果发现是社区一些评测家搞冲塔，如果运气不好在主页展示中刷出来了相应内容就会引发自动屏蔽。感觉和这次有点像，又刚好是冬促之后大量出现，有没有大佬排查过冬促的网页里是不是藏了什么会引发自动屏蔽的私货？
+

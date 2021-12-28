@@ -9028,3 +9028,18 @@ https://www.timesofisrael.com/small-study-suggests-omicron-ant ...</blockquote>
 
 而且研究里的15名患者中有11名需要住院… 就算感染omicron真的能够交叉中和, but at what cost?<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2258#       发表于 2021-12-29 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082551&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-29 00:48</a>
+我还专门去看了preprint的结论，人家明明是这么说的：
+
+“However, participants in this study have lik ...</blockquote>
+covid住院率没那么高啊，这算是样本选取的偏差罢了。这个算是小样本研究，所以我用了似乎这两个字。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
