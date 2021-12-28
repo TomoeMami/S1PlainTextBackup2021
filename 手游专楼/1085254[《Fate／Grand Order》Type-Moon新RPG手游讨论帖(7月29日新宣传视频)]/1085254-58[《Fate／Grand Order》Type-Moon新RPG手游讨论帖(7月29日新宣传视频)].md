@@ -3886,3 +3886,92 @@ PV里满身疮痍的狐狸也还没回收 ...</blockquote>
 
 看完剧情感觉望哥好惨，被上司忽悠过来打完全不认识的cosplay爱好者
 
+
+
+*****
+
+####  johnkamsar  
+##### 85865#       发表于 2021-12-28 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079343&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-28 19:24</a>
+还有啊，一个通古斯爆炸就能整出个人类恶了，那恐龙灭绝的陨石得搞出个什么啊 ...</blockquote>
+之前有说法是外星神？
+
+*****
+
+####  保罗赫伯特  
+##### 85866#       发表于 2021-12-28 19:46
+
+最后这段看的好无语啊。上太空这种超展开情节也不第一次看到了，比较好的例子有jojo2里面最后卡兹变成小行星，比较差的例子有国家队一言不合打上太空，fgo这次的剧情给我的感觉就是很勉强，为了让上宇宙这个情节展开加了许多设定。杀狐从一开始人类捕杀者的形象变成了对人类并不在乎，志在守护自己造物的万兽之母，身份也从玉藻战队成员变成了陨石砸死动物的怨念的聚集体。太公望突然和隔壁街机的诺亚连上了，展示了能把一整个固有结界送到时空缝隙里的奇技。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">         
+
+除此之外，说杀狐的人类爱是因为人类也是动物的一员，这个解释也感觉很勉强，虽然可以理解这么写为了表达人与自然的主题。（什么环保主义写手）<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+最后一节还不忘插入太公望对妲己的回忆，能看出来作者真的想拉这个cp。然而，看完之后，我只感觉姜子牙好变态啊，喜欢欣赏受苦挣扎着的妲己，什么抖s+R18g爱好者。<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 85867#       发表于 2021-12-28 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079576&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-12-28 19:46</a>
+
+最后这段看的好无语啊。上太空这种超展开情节也不第一次看到了，比较好的例子有jojo2里面最后卡兹变成小行 ...</blockquote>
+G高达里多蒙不就是这么嘴炮东方不败的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 85868#       发表于 2021-12-28 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079415&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-28 19:31</a>
+
+恐龙：跟人类不搭边死的多惨也是白死，是我冒昧了</blockquote>
+毕竟人类恶，没有人类哪来人类恶？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 85869#       发表于 2021-12-28 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079576&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-12-28 19:46</a>
+
+最后这段看的好无语啊。上太空这种超展开情节也不第一次看到了，比较好的例子有jojo2里面最后卡兹变成小行 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个霹雳里经常有，那边叫改线，这边不敢这么叫
+
+*****
+
+####  katun  
+##### 85870#       发表于 2021-12-28 19:54
+
+现在才看剧情，佳し出来的那一瞬间能100%确定是🌸女士了，当然看着这流水账一样的催眠剧情和匮乏到吓人的词汇量基本也八九不离十了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 85871#       发表于 2021-12-28 19:55
+
+所以搞到最后这次事件是因为在6章帮忙挡了诅咒才不得不提早羽化，而挡诅咒是因为奥贝龙杀了某人好友<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85872#       发表于 2021-12-28 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54079576&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-12-28 19:46</a>
+
+最后这段看的好无语啊。上太空这种超展开情节也不第一次看到了，比较好的例子有jojo2里面最后卡兹变成小行 ...</blockquote>
+你好，你的第一段问题请去看月世界天朝前传之仙界传封神演义
+
+你的违和感就会和兔子一起去外太空了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+变不变态另说，但是专门给她开发了个送出人理术式只能说是念念不忘了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 85873#       发表于 2021-12-28 20:03
+
+不知道是不是这几天打奇美拉兔打累了，剧情看着没啥劲，杀狐逼格骤降（虽然伽摩已经把beast的脸丢尽了），你以为是西游记后传的无天（？），其实是东游记的穿山甲（？？）。总的来说像看了场奥特曼的剧场版（还是高斯的）...
+
