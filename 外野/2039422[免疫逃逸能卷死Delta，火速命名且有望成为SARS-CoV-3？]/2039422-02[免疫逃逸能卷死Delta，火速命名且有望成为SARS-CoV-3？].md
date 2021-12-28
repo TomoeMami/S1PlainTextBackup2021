@@ -9159,3 +9159,33 @@ CDC 显然看不上物理防疫
 
 o疫苗论今天拍老师驳斥了：完全没有的事
 
+
+
+*****
+
+####  洞庭湖  
+##### 2268#       发表于 2021-12-29 07:27
+
+ 本帖最后由 洞庭湖 于 2021-12-29 07:31 编辑 
+
+Scientists estimate record U.S. COVID cases attributed to the omicron variant Over the next month, scientists estimate that the U.S. could face a record-breaking 400,000 new cases each day.
+
+科学家预计每天新增40万例，看看全美医院看护病床数和ICU病床数的实时跟踪就行。
+[https://protect-public.hhs.gov/pages/hospital-utilization](https://protect-public.hhs.gov/pages/hospital-utilization)
+
+<img src="https://img.saraba1st.com/forum/202112/29/072607fkbjci5x9nikscpc.png" referrerpolicy="no-referrer">
+
+<strong>1228-1.png</strong> (108.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 07:26 上传
+
+<img src="https://img.saraba1st.com/forum/202112/29/072607pakmww515r9a7j1q.png" referrerpolicy="no-referrer">
+
+<strong>1228-2.png</strong> (122.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 07:26 上传
+
