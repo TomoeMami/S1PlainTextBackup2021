@@ -4453,3 +4453,24 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 话说2.0序章也是31号5点开的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">17年大达芬奇被背刺，这次要换小达芬奇了吗
 
+
+
+*****
+
+####  khxooo  
+##### 85917#       发表于 2021-12-28 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081594&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-28 22:58</a>
+
+话说2.0序章也是31号5点开的吧17年大达芬奇被背刺，这次要换小达芬奇了吗 ...</blockquote>
+小芬奇估计差不多了，在剧情里咕哒都发现小芬奇脸色不对劲了。
+
+*****
+
+####  zakki  
+##### 85918#       发表于 2021-12-28 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081695&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-28 23:06</a>
+小芬奇估计差不多了，在剧情里咕哒都发现小芬奇脸色不对劲了。</blockquote>
+是差不多该结束了，只不过31号的剧情别就回去，发现小芬奇顶不住了，告别，就完了这么简单就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

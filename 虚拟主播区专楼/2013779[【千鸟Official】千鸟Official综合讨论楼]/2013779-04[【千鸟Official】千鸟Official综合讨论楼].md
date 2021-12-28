@@ -2281,3 +2281,26 @@ co宝持续上工中<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Quark  
+##### 4742#       发表于 2021-12-28 23:17
+
+红毛鸡蛋直言向鸟p投降
+
+*****
+
+####  GAKOTO  
+##### 4743#         楼主| 发表于 2021-12-28 23:17
+
+前著名文静天狗，Aaafio(彭于晏头像)老师因为“父亲”话题对文静梁木，sc独轮车要求道歉后大量删帖，疑似脱坑
+
+*****
+
+####  逸yi  
+##### 4744#       发表于 2021-12-28 23:23
+
+什么父亲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

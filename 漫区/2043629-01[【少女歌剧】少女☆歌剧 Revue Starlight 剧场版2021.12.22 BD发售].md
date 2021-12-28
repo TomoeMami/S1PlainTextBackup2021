@@ -4877,3 +4877,12 @@ B站动态看见一个观影团连观影特典都整出来了
 北京的群是已经满了吗</blockquote>
 没满，搜群号580215006/剧场版百京组团
 
+
+
+*****
+
+####  ardito  
+##### 376#       发表于 2021-12-28 23:14
+
+这销量海星啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前订了都忘了，今天突然想起来一看，这么多天居然还没到转运库，喷了
+
