@@ -9037,3 +9037,24 @@ mea给如月的最后一条推文（大概？）点赞了，仅此而已
 
 阴间时间lol 狗都不看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gongge666  
+##### 7044#       发表于 2021-12-28 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54068463&amp;ptid=2018830" target="_blank">2014720 发表于 2021-12-27 22:34</a>
+
+如月这边她好像还没来过，怎么吃席都不吃席的，</blockquote>
+她不是典型的关系越好越不喜欢明面贴贴的人么
+
+*****
+
+####  遗忘回想  
+##### 7045#       发表于 2021-12-28 10:33
+
+今年不会播跨年的样子。一个人整太寂寞了（），但是普通的直播大概会整，年末好像会和爸妈出去吃饭的样子。
+
+1-2号都有联动，找人约的，自己整企划太麻烦了算了
+
