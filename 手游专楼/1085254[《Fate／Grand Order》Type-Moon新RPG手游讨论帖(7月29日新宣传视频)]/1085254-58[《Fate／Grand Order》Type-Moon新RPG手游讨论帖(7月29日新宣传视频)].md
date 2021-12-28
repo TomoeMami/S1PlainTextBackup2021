@@ -4474,3 +4474,16 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 小芬奇估计差不多了，在剧情里咕哒都发现小芬奇脸色不对劲了。</blockquote>
 是差不多该结束了，只不过31号的剧情别就回去，发现小芬奇顶不住了，告别，就完了这么简单就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 85919#       发表于 2021-12-28 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081174&amp;ptid=1085254" target="_blank">凌云三才 发表于 2021-12-28 22:17</a>
+我感觉31号真有可能又是经典冠位和兽错位，姜子牙走了妲己来了</blockquote>
+应该不会吧，要不然岂不是变成了，望仔给老相好精心准备了火星船票，但是因为被师傅忽悠了日程没对上，只好先给别的女人用了，等到老相好出来人已经回去了，结果老相好被别的男人直接拍死的尴尬场面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
