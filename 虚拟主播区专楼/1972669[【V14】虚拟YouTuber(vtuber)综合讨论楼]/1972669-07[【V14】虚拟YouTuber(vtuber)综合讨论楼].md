@@ -7999,3 +7999,14 @@ vt和jp还是有几个虹楼的，最活跃的应该是EN楼
 
 4chan虹en楼人一直蛮多的啊，就是en从虹观众到虹主播基本上都是木口入管
 
+
+
+*****
+
+####  caupollen  
+##### 9675#       发表于 2021-12-29 23:04
+
+ 本帖最后由 caupollen 于 2021-12-29 23:06 编辑 
+
+4ch的v版是4ch全版最恨中国人最反华的比政治版更甚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看多了的确可以锻炼免疫力
+
