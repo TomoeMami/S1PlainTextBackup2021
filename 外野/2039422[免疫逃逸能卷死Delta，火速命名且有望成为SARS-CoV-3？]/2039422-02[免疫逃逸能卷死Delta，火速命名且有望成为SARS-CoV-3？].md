@@ -9302,3 +9302,71 @@ https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
 </blockquote>
 有力气帮你丑国爹吹牛逼，还是留着嚎丧吧。那样还孝一点。
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2276#       发表于 2021-12-29 08:42
+
+ 本帖最后由 Alexmacau8 于 2021-12-29 08:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083732&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 08:31</a>
+[https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg](https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg)
+
+这篇文章的结论在这里</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你也算常驻疫情楼老面孔了，虽然不少人把你屏蔽了。。。
+
+*****
+
+####  smy20011  
+##### 2277#       发表于 2021-12-29 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083820&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-29 08:42</a>
+
+你会看进化图嘛？ 你这输出真是天真烂漫呀
+
+你也算常驻疫情楼老面孔了，虽然不少人把你屏 ...</blockquote>
+那你解释下，为什么O和A是同辈关系，O和D反而是八杆子打不着
+
+*****
+
+####  Alexmacau8  
+##### 2278#       发表于 2021-12-29 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083830&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 08:43</a>
+那你解释下，为什么O和A是同辈关系，O和D反而是八杆子打不着</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乖，去看看原版，这是简化版本。
+
+*****
+
+####  riczxc  
+##### 2279#         楼主| 发表于 2021-12-29 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083777&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-12-29 08:36</a>
+
+然后点名字想看看其他的 然后就是电脑版要注册手机版要app了
+
+只好关掉
+
+所以发公众号有啥不好的 至少手机 ...</blockquote>
+电脑上的微信公众号也没办法浏览啊。手机上微信也需要应用程序。
+
+一邱之貉。
+
+*****
+
+####  creymorgan  
+##### 2280#       发表于 2021-12-29 08:51
+
+<blockquote>smy20011 发表于 2021-12-29 08:31
+https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
+
+这篇文章的结论在这里
+</blockquote>
+b.1.1.529当然和b.1.1.7是同辈，他们有相同的夫系节点。
+
+从7和529来看发现的时间是差很多的。
+

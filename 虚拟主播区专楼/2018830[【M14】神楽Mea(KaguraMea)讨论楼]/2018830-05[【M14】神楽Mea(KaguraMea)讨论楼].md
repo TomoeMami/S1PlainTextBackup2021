@@ -9144,3 +9144,33 @@ mea给如月的最后一条推文（大概？）点赞了，仅此而已
 
 呵呵，我直接睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  春风女神狄璐卡  
+##### 7056#       发表于 2021-12-29 08:58
+
+是不是感觉这个灰姑娘计划也挺摸的
+
+宣发这么久了，出道曲试听都无
+
+*****
+
+####  gongge666  
+##### 7057#       发表于 2021-12-29 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083963&amp;ptid=2018830" target="_blank">春风女神狄璐卡 发表于 2021-12-29 08:58</a>
+
+是不是感觉这个灰姑娘计划也挺摸的
+
+宣发这么久了，出道曲试听都无</blockquote>
+按照日本做事效率基本是宣发之后3个月才会有动作
+
+*****
+
+####  T_Hb  
+##### 7058#       发表于 2021-12-29 09:01
+
+有一说一，企划还没开始
+
