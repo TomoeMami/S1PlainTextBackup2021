@@ -9115,3 +9115,12 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 让臭打游戏的好过，会导致老爷们椅子坐不稳？</blockquote>
 和椅子没关系，很可能老爷真的觉得为你们好，臭打游戏的父母大概率也是不喜欢游戏的
 
+
+
+*****
+
+####  Kusabi  
+##### 831#       发表于 2021-12-30 06:46
+
+当初出台未成年人1小时政策时都在振臂高呼，想不到现在是单机先死了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
