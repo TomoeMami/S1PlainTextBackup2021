@@ -3001,3 +3001,21 @@ QQ图片20211229181620.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">喝的下嘴吗
 
+
+
+*****
+
+####  人民de救星  
+##### 4814#       发表于 2021-12-29 20:46
+
+快来听配音，大滑特滑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伞沢直美  
+##### 4815#       发表于 2021-12-29 20:51
+
+co宝的软妹音<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

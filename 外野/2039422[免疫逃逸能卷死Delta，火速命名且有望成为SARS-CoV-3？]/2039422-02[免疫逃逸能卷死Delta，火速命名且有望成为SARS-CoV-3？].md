@@ -10010,3 +10010,14 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 等人均身边五六个死亡的时候他们就该上点心了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按邓巴数150算，得死一千万人
 
+
+
+*****
+
+####  pushare  
+##### 2342#       发表于 2021-12-29 20:53
+
+难怪说联邦没法管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/3/be32b5e0aeb711984245cf6a18b188fd/IMG_CMP_52187223.jpeg" referrerpolicy="no-referrer">
+

@@ -7914,3 +7914,12 @@ innk没有了，azki现在也属于杏本社，黑青蛙又写真情实感小作
 
 在工商和玩游戏和比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lkjh  
+##### 9666#       发表于 2021-12-29 20:44
+
+刷到了就留个脚印吧……EN男确实是B站首页刷到的，然后垂直入坑现在补课中，摸到了4chan不过不知道是不是大本营而且还有些黑话看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
