@@ -1784,3 +1784,56 @@ ps5版至少loading问题可以解决了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Total_Lau  
+##### 171#       发表于 2021-12-29 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54080782&amp;ptid=2042784" target="_blank">ac130-2020 发表于 2021-12-28 21:40</a>
+
+比起投资 法老控这种一年必须一座的开发体制才是最大问题
+
+哪家公司这种大型3DRPG游戏一年一座出的
+
+公司并不 ...</blockquote>
+你当艺术品来看待
+
+他们当流水工业产品来看待
+
+反正怎么样的成品都只有死忠掏钱了
+
+能躺平为什么要站起来
+
+*****
+
+####  椎名mahuyo  
+##### 172#       发表于 2021-12-29 11:32
+
+一年一作就一年一作，但是你能多找点人来做不
+
+*****
+
+####  ac130-2020  
+##### 173#         楼主| 发表于 2021-12-29 11:38
+
+<blockquote>引用第170楼Total_Lau于2021-12-29 11:30发表的  :
+
+引用:ac130-2020 发表于 2021-12-28 21:40比起投资 法老控这种一年必须一座......</blockquote>
+这和艺术品啥关系工业品品控工期很重要 
+现在明明就是工期不够硬凑
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  悠悠你心  
+##### 174#       发表于 2021-12-29 11:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我又不是股东，更不是精股，属于想玩就玩，不好玩就跑的玩家。
+
+想通这一点后，我突然轻松了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

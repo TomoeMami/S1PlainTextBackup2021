@@ -2515,3 +2515,21 @@ co宝这月末抱佛脚的模样像极了我<img src="https://static.saraba1st.c
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Quark  
+##### 4763#       发表于 2021-12-29 11:27
+
+合着运营给静子送了个烂电脑去吗 只能找白白代播官号
+
+*****
+
+####  小憨1  
+##### 4764#       发表于 2021-12-29 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54085984&amp;ptid=2013779" target="_blank">Quark 发表于 2021-12-29 11:27</a>
+合着运营给静子送了个烂电脑去吗 只能找白白代播官号</blockquote>
+大概率是文静自己没整明白电脑
+

@@ -8935,3 +8935,16 @@ github被处理了，v2ex是咋地了才被墙的？
 臭打游戏出来bb两句就被劝自杀，宁真是极端的像是是境外势力
 我要指控宁给境外势力递刀子煽动矛盾来自: iPhone客户端
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 816#       发表于 2021-12-29 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084152&amp;ptid=2043948" target="_blank">欠损 发表于 2021-12-29 09:15</a>
+是啊，这图和大锅煮兔子图几年前在Google+上面被一帮标着“独立思考”的号天天发，都™看吐了。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然是轮子画的，但是居然提前几年就预见到了现在的狗洞大师，足见因人废言不可取啊
+

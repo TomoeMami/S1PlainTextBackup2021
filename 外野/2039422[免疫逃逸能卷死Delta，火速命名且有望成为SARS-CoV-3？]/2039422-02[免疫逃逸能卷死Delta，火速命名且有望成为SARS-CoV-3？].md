@@ -9533,3 +9533,65 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 —— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  moliyumi  
+##### 2296#       发表于 2021-12-29 11:30
+
+？？？好久没关心了，美帝现在还能每天死两三千人？？？属实不可战胜了
+
+*****
+
+####  Alexmacau8  
+##### 2297#       发表于 2021-12-29 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54085286&amp;ptid=2039422" target="_blank">REI-000 发表于 2021-12-29 10:42</a>
+
+不要小看米帝勇士。昨天（12.27）已经54万了，努力一下，60万可能不用等到1月...
+
+— from Sony Xperia X ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不懂老美，纽约州检测能力早就到顶了，快筛包？ 不好意思，测不准。
+
+<img src="https://img.saraba1st.com/forum/202112/29/113152ej28qff4tzjn0g7j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>61734C8D-AD5E-4F9E-9EBC-97FAFB3BFBD3.jpeg</strong> (403.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 11:31 上传
+
+*****
+
+####  烦死了  
+##### 2298#       发表于 2021-12-29 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086063&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-29 11:31</a>
+
+你不懂老美，纽约州检测能力早就到顶了，快筛包？ 不好意思，测不准。
+
+ ...</blockquote>
+根据ASM 上文章， 真实世界 PCR 只有80% sensitivity快筛的大概只有40-50%
+
+<strong>Even the most sensitive testing method (PCR) on the best specimen type (nasopharyngeal swabs) does not achieve 100% clinical sensitivity, but is closer to 80% sensitive</strong>, even during the first week of symptoms. PCR testing, therefore, represents the first drop in the testing cascade. Comparison of rapid testing and PCR performance in real-world settings, as opposed to small, controlled studies, predicts that<strong> rapid-antigen based SARS-CoV-2 tests are around 50% as sensitive as PCR.</strong>
+
+[https://asm.org/Articles/2021/De ... -19-Rapid-Antigen-T](https://asm.org/Articles/2021/December/Real-World-Performance-of-COVID-19-Rapid-Antigen-T)
+
+*****
+
+####  最好不说  
+##### 2299#       发表于 2021-12-29 11:38
+
+<blockquote>moliyumi 发表于 2021-12-29 11:30
+？？？好久没关心了，美帝现在还能每天死两三千人？？？属实不可战胜了</blockquote>
+广谱疫苗的小小副作用罢了，不要慌，第n次群体免疫即将达成
+
+*****
+
+####  有口皆悲  
+##### 2300#       发表于 2021-12-29 11:41
+
+日死2000，死3亿人要四百年后了。
+
