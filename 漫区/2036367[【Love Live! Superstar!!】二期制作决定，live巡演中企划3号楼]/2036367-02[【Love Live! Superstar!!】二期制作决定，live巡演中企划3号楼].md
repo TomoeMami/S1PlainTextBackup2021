@@ -14769,3 +14769,14 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 明晚九点吧，31号还有一个虹星的联合广播</blockquote>
 是今晚吧？明晚是虹星
 
+
+
+*****
+
+####  starring  
+##### 2731#       发表于 2021-12-29 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54089008&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-29 15:22</a>
+是今晚吧？明晚是虹星</blockquote>
+我记错了，今晚六点是三团广播，明晚虹星生放送
+
