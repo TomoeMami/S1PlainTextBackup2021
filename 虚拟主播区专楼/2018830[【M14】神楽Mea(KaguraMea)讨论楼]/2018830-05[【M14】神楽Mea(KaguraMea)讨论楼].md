@@ -9275,3 +9275,29 @@ mea给如月的最后一条推文（大概？）点赞了，仅此而已
 
 今晚不播可能性还挺大这样看
 
+
+
+*****
+
+####  汇聚群光  
+##### 7069#       发表于 2021-12-29 18:11
+
+话说31号晚上不是还有vcp的节目吗？（虽说大概率是播片）
+
+*****
+
+####  ashero  
+##### 7070#       发表于 2021-12-29 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54091138&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2021-12-29 18:11</a>
+
+话说31号晚上不是还有vcp的节目吗？（虽说大概率是播片）</blockquote>
+外景 大概纯播片
+
+*****
+
+####  T_Hb  
+##### 7071#       发表于 2021-12-29 18:23
+
+大过年谁给资本家打工，节目是手机防水性能测试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

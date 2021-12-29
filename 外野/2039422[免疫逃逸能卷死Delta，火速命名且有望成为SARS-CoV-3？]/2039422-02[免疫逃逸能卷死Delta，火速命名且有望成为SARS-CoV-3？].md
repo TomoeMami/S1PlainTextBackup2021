@@ -9954,3 +9954,12 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为华尔街已经接受了广谱人传人疫苗的安利，形式一片大好，但两周以后呢？
 
+
+
+*****
+
+####  LeroyKincaid  
+##### 2336#       发表于 2021-12-29 18:04
+
+南加大的同学身边已经有五六例了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

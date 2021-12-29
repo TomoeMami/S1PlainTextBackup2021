@@ -2962,3 +2962,33 @@ b综更纯良是什么意思捏，你把话说清楚</blockquote>
 
 半年126w弹幕，🐦p人均人少p话多
 
+
+
+*****
+
+####  ba娜娜  
+##### 4811#       发表于 2021-12-29 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090945&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-29 17:54</a>
+
+把张冰火那天的表情截成了动图
+
+无文字版：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">妈妈骂我
+
+*****
+
+####  Quark  
+##### 4812#       发表于 2021-12-29 18:17
+
+泰国的饮料都这么新潮的吗
+
+QQ图片20211229181620.jpg
+(173.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 18:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/29/181647i1001616jg0jro26.jpg" referrerpolicy="no-referrer">
+
