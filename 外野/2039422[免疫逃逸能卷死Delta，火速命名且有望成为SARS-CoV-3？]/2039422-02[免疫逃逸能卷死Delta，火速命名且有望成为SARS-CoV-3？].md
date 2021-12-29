@@ -9941,3 +9941,16 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 就怕还有更猛的来。O毒株南非先报送，被西方喷成这样。后续估计就算发现新的，也没人报送了。 ...</blockquote>
 入境防疫会报的
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2335#       发表于 2021-12-29 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090598&amp;ptid=2039422" target="_blank">点点杠 发表于 2021-12-29 17:23</a>
+
+看这楼，还以为外国要丸了，结果石油还涨起来了，这是屁话满天</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为华尔街已经接受了广谱人传人疫苗的安利，形式一片大好，但两周以后呢？
+

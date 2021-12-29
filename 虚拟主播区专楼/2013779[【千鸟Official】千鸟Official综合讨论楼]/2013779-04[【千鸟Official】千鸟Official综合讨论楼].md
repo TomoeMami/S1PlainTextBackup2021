@@ -2926,3 +2926,39 @@ b综更纯良是什么意思捏，你把话说清楚</blockquote>
 
 原来的鸟批话术（虽然也是到处偷的）：呃呃，还真是，正确的，亚达
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4809#       发表于 2021-12-29 17:54
+
+把张冰火那天的表情截成了动图
+
+无文字版：
+
+<img src="https://img.saraba1st.com/forum/202112/29/175045av3apmqq8mqav8ab.gif" referrerpolicy="no-referrer">
+
+<strong>13.gif</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 17:50 上传
+
+有文字版：
+
+<img src="https://img.saraba1st.com/forum/202112/29/175045l8hjh8nhaz0jy0wl.gif" referrerpolicy="no-referrer">
+
+<strong>14.gif</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 17:50 上传
+
+*****
+
+####  suzumiya123  
+##### 4810#       发表于 2021-12-29 18:02
+
+半年126w弹幕，🐦p人均人少p话多
+
