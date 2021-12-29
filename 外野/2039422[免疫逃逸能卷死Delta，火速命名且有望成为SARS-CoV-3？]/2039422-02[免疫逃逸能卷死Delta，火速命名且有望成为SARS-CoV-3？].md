@@ -9796,3 +9796,14 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 就怕还有更猛的来。O毒株南非先报送，被西方喷成这样。后续估计就算发现新的，也没人报送了。 ...</blockquote>
 隐瞒的前提是能发现，非洲除了南非以外压根没几个国家有大量测序的能力，大部分第三世界国家也是这样，新变种出现以后传遍了全国可能都发现不了
 
+
+
+*****
+
+####  天使日又日  
+##### 2321#       发表于 2021-12-29 14:07
+
+英超没停，nba没停，形势还不严峻<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

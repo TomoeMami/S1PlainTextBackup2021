@@ -14702,3 +14702,25 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 本来还想着跨年拿到棒 ...</blockquote>
 我也是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卡在离开境外出口互换局好几天了，不知道是不是年底查的严还是怎么的了
 
+
+
+*****
+
+####  名津流  
+##### 2725#       发表于 2021-12-29 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082355&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-29 00:16</a>
+
+我一直都很好奇怎么有这么多有莫名恶意的东西一直盯着鲤鱼感觉上好像也拿这种东西没什么办法，而且 ...</blockquote>
+前几年国人特有的病态心理，凡事只要提到coser，必然先带着有色眼光来看人，跟有些人讨论护士、厂妹必称不能娶的群体一个样
+
+*****
+
+####  lj205  
+##### 2726#       发表于 2021-12-29 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088153&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-29 14:01</a>
+
+我也是卡在离开境外出口互换局好几天了，不知道是不是年底查的严还是怎么的了 ...</blockquote>
+要么是日本那边接近元旦速度放缓，要么就是等其他货一起上飞机，反正只能等了，去年寄过一次国际EMS貌似都没这么慢
+

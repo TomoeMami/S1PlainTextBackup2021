@@ -4740,3 +4740,19 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 理论上每个英灵每个boss都能自爆 这 ...</blockquote>
 就像沙鲁要自爆，然后突然和午饭和解，离开了地球一样
 
+
+
+*****
+
+####  zakki  
+##### 85940#       发表于 2021-12-29 14:10
+
+能不打就不打呗，真要这么仇恨心大，不先替被拉赫穆吃了的乌鲁克村民把提妈扬了？反倒是一堆羡慕街机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 85941#       发表于 2021-12-29 14:15
+
+话说fate吧也够好懂的，昨天剧情把太公吹上天了，然后就几乎没节奏了，整版的论战力<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
