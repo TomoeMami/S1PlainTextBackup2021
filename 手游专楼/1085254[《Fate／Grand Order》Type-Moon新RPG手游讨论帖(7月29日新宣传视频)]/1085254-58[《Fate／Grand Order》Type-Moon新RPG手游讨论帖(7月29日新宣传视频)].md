@@ -4840,3 +4840,37 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 应该不会吧，要不然岂不是变成了，望仔给老相好精心准备了火星船票，但是因为被师傅忽悠了日程没对上，只 ...</blockquote>
 我是太公望我就反了呀的。这人理不救也罢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holyblood  
+##### 85951#       发表于 2021-12-29 16:49
+
+虽然但是，杀狐最后那张能不能出个卡面什么的？至少来个礼装吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超阳电子炮  
+##### 85952#       发表于 2021-12-29 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090024&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-12-29 16:43</a>
+
+我是太公望我就反了呀的。这人理不救也罢</blockquote>
+现在能看出来他脾气非常好<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85953#       发表于 2021-12-29 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54089963&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-12-29 16:38</a>
+
+所以日本人看封神的底本是藤崎龙版的么？</blockquote>
+一般来说，是安能务版的
+
+但是这逼的版本已经变成了七大姑八大姨那种级别
+
+藤崎龙干脆就妈都不认识了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

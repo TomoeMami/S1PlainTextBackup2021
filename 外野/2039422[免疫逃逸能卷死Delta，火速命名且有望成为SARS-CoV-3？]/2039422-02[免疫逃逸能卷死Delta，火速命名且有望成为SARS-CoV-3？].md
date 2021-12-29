@@ -9852,3 +9852,53 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 不信谣不传谣明明最新的日新增（12/28）只有38万</blockquote>
 但是12/27超了啊，54万<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  charse2r  
+##### 2327#       发表于 2021-12-29 17:08
+
+普利策奖得主打加强针第二天心脏病死了。。是个例吗。。好像美媒没几个发的嘛
+
+*****
+
+####  totoneko  
+##### 2328#       发表于 2021-12-29 17:11
+
+看了下，今天东京感染76人（34人二针完毕，28人一针未打），比上周同比增加36人。周平均45，57%的增长量。
+
+然而明天C99开幕<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  coldhot3  
+##### 2329#       发表于 2021-12-29 17:11
+
+<blockquote>charse2r 发表于 2021-12-29 17:08
+普利策奖得主打加强针第二天心脏病死了。。是个例吗。。好像美媒没几个发的嘛 ...</blockquote>
+这种倾向于是个例。pv信号没有那么好的精度，毕竟正常人多了也有心脏病挂了的。
+
+*****
+
+####  neptunehs  
+##### 2330#       发表于 2021-12-29 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090421&amp;ptid=2039422" target="_blank">totoneko 发表于 2021-12-29 17:11</a>
+看了下，今天东京感染76人（34人二针完毕，28人一针未打），比上周同比增加36人。周平均45，57%的增长量。
+
+ ...</blockquote>
+虽然我很期待c99的本子
+但真的不知道这一波之后会死多少画师
+
+为什么不能继续airC呢
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  点点杠  
+##### 2331#       发表于 2021-12-29 17:23
+
+看这楼，还以为外国要丸了，结果石油还涨起来了，这是屁话满天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
