@@ -14673,3 +14673,32 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 </blockquote>
 你觉得这种黑粉是真粉那就是，我不觉得是我的事。路转粉转黑，粉转黑都正常，纯黑子还是各种发帖黑的突然就转真粉了 我不信
 
+
+
+*****
+
+####  lj205  
+##### 2722#       发表于 2021-12-29 13:54
+
+现在ems怎么这么慢？包裹已经几天了一直是离开境外出口互换局未抵达中国邮政<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+本来还想着跨年拿到棒子，现在看只能希望追加场前到手
+
+*****
+
+####  D麦林  
+##### 2723#       发表于 2021-12-29 13:56
+
+我知道这事纯属私人恩怨以后我更生气
+无语的是明明是私人恩怨那原博非得扩大化到整个圈子
+地下拱火乐子人就开始转火鲤鱼粉丝甚至鲤鱼本人
+
+*****
+
+####  a92063256  
+##### 2724#       发表于 2021-12-29 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088082&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-29 13:54</a>
+现在ems怎么这么慢？包裹已经几天了一直是离开境外出口互换局未抵达中国邮政
+本来还想着跨年拿到棒 ...</blockquote>
+我也是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卡在离开境外出口互换局好几天了，不知道是不是年底查的严还是怎么的了
+

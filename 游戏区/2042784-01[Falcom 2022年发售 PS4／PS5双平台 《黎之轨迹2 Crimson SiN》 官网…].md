@@ -1862,3 +1862,14 @@ ps5版至少loading问题可以解决了
 
 伊苏轨迹每次新作都有游戏核心战斗系统的创新 而且大多还挺有意思 虽然平衡性会小崩 但在噩梦高难度下刚好适合当逃课手段。光是战斗系统的打磨水平我觉得比很多大厂jrpg舒服多了
 
+
+
+*****
+
+####  龙娘777  
+##### 178#       发表于 2021-12-29 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086434&amp;ptid=2042784" target="_blank">Yeaha123 发表于 2021-12-29 11:55</a>
+躺平这个词不适合吧，法老控真要躺平，现在怕不是还在玩二头身小人轨迹伊苏 ...</blockquote>
+那样他们反而制作起来更轻松上手 剧本，演出，游戏体验，细节打磨的会更精细 出现赶工期注水的概率**下降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

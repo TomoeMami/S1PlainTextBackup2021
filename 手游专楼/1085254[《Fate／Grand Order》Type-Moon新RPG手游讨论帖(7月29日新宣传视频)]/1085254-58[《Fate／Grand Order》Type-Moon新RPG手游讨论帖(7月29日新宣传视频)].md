@@ -4713,3 +4713,30 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 太乐了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85938#       发表于 2021-12-29 13:47
+
+ 本帖最后由 gpx234mqx 于 2021-12-29 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087592&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-29 13:12</a>
+
+地方就不说了，云玩家是真的快乐，能问出就这么原谅兔子加勒底员工同意吗这种弱智问题
+
+不原谅难道大家一起 ...</blockquote>
+没办法，得和云玩家们解释这种兔子要自爆的条件下，又不能继续打又逃不了只能和解啊
+
+*****
+
+####  gpx234mqx  
+##### 85939#       发表于 2021-12-29 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087847&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-29 13:33</a>
+
+主要是杀狐说干脆自爆算了听起来太唬烂了，哪有说爆就爆的。
+
+理论上每个英灵每个boss都能自爆 这 ...</blockquote>
+就像沙鲁要自爆，然后突然和午饭和解，离开了地球一样
+
