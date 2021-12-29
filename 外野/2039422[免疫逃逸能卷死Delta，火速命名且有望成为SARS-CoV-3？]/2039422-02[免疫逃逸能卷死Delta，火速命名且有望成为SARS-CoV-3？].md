@@ -9201,3 +9201,25 @@ Scientists estimate record U.S. COVID cases attributed to the omicron variant Ov
 o疫苗论今天拍老师驳斥了：完全没有的事</blockquote>
 这位为啥只发公众号啊，想从电脑上找他的文章真不好找
 
+
+
+*****
+
+####  neptunehs  
+##### 2270#       发表于 2021-12-29 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083577&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 08:03</a>
+这位为啥只发公众号啊，想从电脑上找他的文章真不好找</blockquote>
+那也比知乎点个啥都要先下app再注册好 现在我不管哪个平台都看不到拍老师知乎写的文 跟公众号两边好像还不一样
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  烦死了  
+##### 2271#       发表于 2021-12-29 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083381&amp;ptid=2039422" target="_blank">ak123 发表于 2021-12-29 06:29</a>
+看了下李三金圣诞扫街视频，美国人出门玩的大概只有三分之一戴口罩的，毫不畏死，看来一月有望突破60万日新 ...</blockquote>
+现在试剂不够 检测点排长龙，家用快速测试缺货 数据也就这样了冲不到60万的
+

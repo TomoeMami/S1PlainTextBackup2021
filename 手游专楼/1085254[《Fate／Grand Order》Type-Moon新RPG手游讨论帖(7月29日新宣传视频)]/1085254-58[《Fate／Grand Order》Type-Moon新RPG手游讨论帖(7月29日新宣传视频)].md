@@ -4536,3 +4536,14 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 其他兽都是A
 
+
+
+*****
+
+####  zakki  
+##### 85924#       发表于 2021-12-29 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082701&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-29 01:13</a>
+还有的是，这次B4的资料也写了，B4的关键词是自然、动物，可以算是将长久以来7兽对应7大罪的观点推翻了？ ...</blockquote>
+七个兽本来就不对应七大罪啊，对应七大罪的是巴比伦大 淫 妇的七个龙头，分别是七大罪的名字。巴比伦大yin妇就是吸收了被带走的人类的罪恶
+
