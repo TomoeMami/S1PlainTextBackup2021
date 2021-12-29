@@ -2533,3 +2533,19 @@ co宝这月末抱佛脚的模样像极了我<img src="https://static.saraba1st.c
 合着运营给静子送了个烂电脑去吗 只能找白白代播官号</blockquote>
 大概率是文静自己没整明白电脑
 
+
+
+*****
+
+####  tankai  
+##### 4765#       发表于 2021-12-29 12:20
+
+不是电压不足么？
+
+*****
+
+####  T型钉宫病毒  
+##### 4766#       发表于 2021-12-29 12:22
+
+文静解锁新名字“吱吱”，还差点把自己盒开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

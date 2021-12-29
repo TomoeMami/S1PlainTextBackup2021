@@ -8948,3 +8948,14 @@ github被处理了，v2ex是咋地了才被墙的？
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然是轮子画的，但是居然提前几年就预见到了现在的狗洞大师，足见因人废言不可取啊
 
+
+
+*****
+
+####  欠损  
+##### 817#       发表于 2021-12-29 12:19
+
+<blockquote>ESAKA!!!! 发表于 2021-12-29 11:24
+虽然是轮子画的，但是居然提前几年就预见到了现在的狗洞大师，足见因人废言不可取啊 ...</blockquote>
+那么，你又是如何不通过狗洞大师找到的这图呢？
+

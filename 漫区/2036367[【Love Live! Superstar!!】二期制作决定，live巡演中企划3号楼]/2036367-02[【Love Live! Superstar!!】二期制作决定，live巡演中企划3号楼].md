@@ -14550,3 +14550,65 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没必要来咱这解释的，有空写小作文还不如把退货啥的处理好
 
+
+
+*****
+
+####  仟音一心  
+##### 2710#       发表于 2021-12-29 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086428&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-12-29 11:54</a>
+躺平了，爱干嘛干嘛吧</blockquote>
+算了还是帮你一下吧，你2696楼的对你们三个人关系的解释，是平息这次全输局面最后的机会，而不是你那篇5000字的心路历程。
+你如果还有一点想挽回的想法，就用这个向微博上的吃瓜群众们解释清楚。
+
+*****
+
+####  优妮可  
+##### 2711#       发表于 2021-12-29 12:14
+
+松雾是鲤鱼超话主持人，帮鲤鱼开团正常。那位楠木灯超话的来开这个团，上头成这样。
+
+*****
+
+####  li463900160  
+##### 2712#       发表于 2021-12-29 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086583&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-29 12:05</a>
+
+算了还是帮你一下吧，你2696楼的对你们三个人关系的解释，是平息这次全输局面最后的机会，而不是你那篇50 ...</blockquote>
+感谢兄弟，我去回复了，也希望这楼关于这件事情也能平息下来
+
+大家还是一起开心看小偶像最重要，都要跨年了，闹着出，先给大家道歉了
+
+*****
+
+####  仟音一心  
+##### 2713#       发表于 2021-12-29 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086714&amp;ptid=2036367" target="_blank">优妮可 发表于 2021-12-29 12:14</a>
+松雾是鲤鱼超话主持人，帮鲤鱼开团正常。那位楠木灯超话的来开这个团，上头成这样。 ...</blockquote>
+松雾根本没开团，就已经被一群不知哪来的黑（可能是店主的粉，话说店主都能有粉？）追杀了。
+
+*****
+
+####  秋月艾莉  
+##### 2714#       发表于 2021-12-29 12:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说什么感情很深其实还不是low咖凭啥蹭我真主那套想法吗，挂人的时候倒是爱说人饭圈
+
+拉圈最难看就是这一点，臭偶像厨还要自命清高
+
+*****
+
+####  仟音一心  
+##### 2715#       发表于 2021-12-29 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086737&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-12-29 12:15</a>
+感谢兄弟，我去回复了，也希望这楼关于这件事情也能平息下来
+
+大家还是一起开心看小偶像最重要，都要跨年 ...</blockquote>
+行吧，那个微博我也不会去看了，该咋样咋样吧。
+知道这事原来是私人恩怨的时候，笑意已经盖过一切了，如果这真是个仅圈内流传的笑话就好了。
+可惜没有如果。
+
