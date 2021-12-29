@@ -7886,3 +7886,13 @@ innk没有了，azki现在也属于杏本社，黑青蛙又写真情实感小作
 
 【全編公開】enogu one-man Live 2021 Winter - #雲外蒼天 - 壱章 / 全曲生バンド演奏【えのぐ】
 
+
+
+*****
+
+####  hulaoda007  
+##### 9663#       发表于 2021-12-29 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">enogu能持续到今天真的不容易...
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">话说夏亚写的小说到时候要是去看无料汉化的话，会不会对不起夏芽？
+

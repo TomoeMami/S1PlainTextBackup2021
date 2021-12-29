@@ -8970,3 +8970,15 @@ github被处理了，v2ex是咋地了才被墙的？
 那么，你又是如何不通过狗洞大师找到的这图呢？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用狗洞的又未必是狗洞大师，倒不如说这图本身就是嘲讽狗洞大师的，怎么可能是狗洞大师发的
 
+
+
+*****
+
+####  欠损  
+##### 819#       发表于 2021-12-29 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087447&amp;ptid=2043948" target="_blank">ESAKA!!!! 发表于 2021-12-29 13:01</a>
+
+用狗洞的又未必是狗洞大师，倒不如说这图本身就是嘲讽狗洞大师的，怎么可能是狗洞大师发的 ...</blockquote>
+确实，能主观定义谁是狗洞大师的已经不是一般的狗洞大师了，可以称得上是狗洞之主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

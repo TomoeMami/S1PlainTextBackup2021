@@ -4653,3 +4653,24 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 全灭flag还是调低期待看看就好 带着千里眼的盖总当初也是对着5、6异闻带cjb 迦勒底这把要送了云云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 85934#       发表于 2021-12-29 13:10
+
+如无意外说的就是输了完蛋赢了自爆一起完蛋，快新年了家炸了什么的每一部顶多玩一次就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 85935#       发表于 2021-12-29 13:12
+
+ 本帖最后由 exiaexa 于 2021-12-29 13:17 编辑 
+
+地方就不说了，云玩家是真的快乐，能问出就这么原谅兔子加勒底员工同意吗这种弱智问题
+
+不原谅难道大家一起感受艺术的极致吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
