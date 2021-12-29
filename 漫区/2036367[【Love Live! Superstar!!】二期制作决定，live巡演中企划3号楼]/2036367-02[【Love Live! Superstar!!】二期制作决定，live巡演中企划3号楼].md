@@ -14875,3 +14875,14 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 
 小百合
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2741#       发表于 2021-12-29 20:09
+
+杏树，我的杏树<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
