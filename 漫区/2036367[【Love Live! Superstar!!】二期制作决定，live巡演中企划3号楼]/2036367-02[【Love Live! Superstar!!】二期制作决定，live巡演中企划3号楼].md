@@ -14807,3 +14807,16 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 
 水团衣服一套看着比一套冷。。。
 
+
+
+*****
+
+####  黑雪姫  
+##### 2735#       发表于 2021-12-29 18:33
+
+ 本帖最后由 黑雪姫 于 2021-12-29 18:36 编辑 
+
+恋恋那个娃娃终于在今天16点卖光了...我该说可喜可贺吗？<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+不对..好像是5CH拉板日本人P的图...好像还没卖光...?<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
