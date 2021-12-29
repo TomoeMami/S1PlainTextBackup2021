@@ -10109,3 +10109,32 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 NHS绝赞爆仓中<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  smy20011  
+##### 2349#       发表于 2021-12-30 07:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096033&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-30 06:53</a>
+
+NHS绝赞爆仓中</blockquote>
+The data includes patients whose primary diagnosis is not COVID, and the proportion may be higher with Omicron. Nonetheless, a COVID diagnosis adds to the NHS burden, whatever the primary diagnosis.
+
+[https://covidactuaries.org/2021/ ... ases-and-hospitals/](https://covidactuaries.org/2021/12/29/bbc-news-cases-and-hospitals/)
+
+<img src="https://img.saraba1st.com/forum/202112/30/070722w4x4ojefvwo2onn9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FHyf2s8WUAAU2ac.jpeg</strong> (123.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 07:07 上传
+
+*****
+
+####  greemoore1981  
+##### 2350#       发表于 2021-12-30 07:17
+
+下一个变种点出ADE，躺平的就真躺平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
