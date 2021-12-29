@@ -9816,3 +9816,39 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 美国日确诊突破50W了啊。。。
 
+
+
+*****
+
+####  jxwats1  
+##### 2323#       发表于 2021-12-29 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54089694&amp;ptid=2039422" target="_blank">麻木的chuck 发表于 2021-12-29 16:17</a>
+美国日确诊突破50W了啊。。。</blockquote>
+不信谣不传谣<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  令和忍者  
+##### 2324#       发表于 2021-12-29 16:46
+
+白皮会不会哪天就不再公布感染死亡人数了？
+
+*****
+
+####  weary11  
+##### 2325#       发表于 2021-12-29 17:00
+
+白等不是说抗疫靠个州么？联邦场面已经躺平了
+
+*****
+
+####  totoneko  
+##### 2326#       发表于 2021-12-29 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090040&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-29 16:43</a>
+
+不信谣不传谣明明最新的日新增（12/28）只有38万</blockquote>
+但是12/27超了啊，54万<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
