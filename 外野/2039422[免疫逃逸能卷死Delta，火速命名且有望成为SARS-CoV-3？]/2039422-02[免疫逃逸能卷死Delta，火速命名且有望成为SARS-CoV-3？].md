@@ -9595,3 +9595,75 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 日死2000，死3亿人要四百年后了。
 
+
+
+*****
+
+####  configxxxx  
+##### 2301#       发表于 2021-12-29 11:54
+
+今天的日死对应的是十来天以前的日增，十来天以前日增有十万嘛。另外我觉得如果O变种真如前面所说是广谱疫苗的话，那不是挺好嘛，疫情结束了大家都开心啊，反正也不用咱们死人和有后遗症，代价都是他们出，咱们等着就行了。如果不是广谱疫苗那就可以接着看笑话，这不都挺好嘛。就是我怎么记得德尔塔那会我就这么说过…
+
+*****
+
+####  creymorgan  
+##### 2302#       发表于 2021-12-29 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54085848&amp;ptid=2039422" target="_blank">米村正二 发表于 2021-12-29 11:19</a>
+
+根据美国约翰斯·霍普金斯大学统计数据，截至北京时间2021年12月29日6时22分，美国新冠肺炎累计确诊病例达 ...</blockquote>
+还是看七日平均，大家都知道新冠在外国过双休日的。
+
+*****
+
+####  KOGmk2  
+##### 2303#       发表于 2021-12-29 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084094&amp;ptid=2039422" target="_blank">soranoguiji 发表于 2021-12-29 09:10</a>
+
+这是发威了啊，世卫还说明年结束疫情，等机械降神吗</blockquote>
+进化出了超杀品种~~~死亡率突破5%,强制全蓝星使用社会学手段防疫
+
+*****
+
+####  渊鲤  
+##### 2304#       发表于 2021-12-29 11:56
+
+现在媒体不是都在吹Omicron是天然疫苗吗，全球所有人得一遍就没事了
+
+*****
+
+####  KOGmk2  
+##### 2305#       发表于 2021-12-29 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084214&amp;ptid=2039422" target="_blank">Litccc 发表于 2021-12-29 09:21</a>
+
+那国内咋办</blockquote>
+互联网攻防物理拉线破一切......防疫工作物理隔绝破一切~~~除非进化出精神感染能力
+
+*****
+
+####  Jet.Black  
+##### 2306#       发表于 2021-12-29 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086234&amp;ptid=2039422" target="_blank">有口皆悲 发表于 2021-12-29 11:41</a>
+日死2000，死3亿人要四百年后了。</blockquote>
+绝育了几十年就死光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  configxxxx  
+##### 2307#       发表于 2021-12-29 11:59
+
+没搞懂啥叫国内咋办，外国人都得了该死的都死光疫情不就结束了吗？咱们啥也不用干啊
+
+*****
+
+####  KOGmk2  
+##### 2308#       发表于 2021-12-29 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086424&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-29 11:54</a>
+
+今天的日死对应的是十来天以前的日增，十来天以前日增有十万嘛。另外我觉得如果O变种真如前面所说是广谱疫 ...</blockquote>
+各国生化实验室全部是如临大敌,我国几个有权的疫苗开发单位最近加班到恨不得007,有些事情是能做不能说的
+

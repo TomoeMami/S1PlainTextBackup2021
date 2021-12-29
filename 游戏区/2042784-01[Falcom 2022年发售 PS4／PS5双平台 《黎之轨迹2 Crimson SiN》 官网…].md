@@ -1837,3 +1837,12 @@ ps5版至少loading问题可以解决了
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Yeaha123  
+##### 175#       发表于 2021-12-29 11:55
+
+躺平这个词不适合吧，法老控真要躺平，现在怕不是还在玩二头身小人轨迹伊苏
+

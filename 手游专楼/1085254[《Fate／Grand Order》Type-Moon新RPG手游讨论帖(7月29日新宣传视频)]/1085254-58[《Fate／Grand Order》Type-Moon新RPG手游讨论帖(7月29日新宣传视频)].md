@@ -4616,3 +4616,31 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85931#       发表于 2021-12-29 11:51
+
+ 本帖最后由 gpx234mqx 于 2021-12-29 11:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54085934&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-29 11:24</a>
+
+エピローグの不安要素
+
+①霊裳大社って結局何？
+
+②コヤンとホームズの関係</blockquote>
+全灭宣言是因为没有预测到会和解吧
+
+继续打下去兔子就会自曝，直接全灭
+
+芙和兔子都打不赢，只能和解
+
+*****
+
+####  khxooo  
+##### 85932#       发表于 2021-12-29 11:55
+
+全灭的预测我认为应该只是从迦勒底的战力计算，没算到太公望、猫娘和咕哒的嘴炮。
+

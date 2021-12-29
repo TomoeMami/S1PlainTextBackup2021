@@ -14395,3 +14395,158 @@ po主想挂人，被挂的其实也没啥事，自己损失了一套签名
 
 当然我目前所遭受的一切都是因为我之前做的错事的报应，但是我还是无法接受你的兄弟在背后捅你刀子这件事情。
 
+
+
+*****
+
+####  kata魂  
+##### 2697#       发表于 2021-12-29 11:44
+
+转发抽奖引来那么多奇葩，现在想普通过去怎么可能，这种事自己私下不解决跑微博伸张正义，那就别怪闹大了啊。
+
+*****
+
+####  a92063256  
+##### 2698#       发表于 2021-12-29 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086233&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-12-29 11:41</a>
+说实话，松雾挂我我是从来没有任何恨意的，首先第一点，他是光明正大挂，而且我跟他后续交流之后也是沟通 ...</blockquote>
+按你的说法这是私下你们几个的事情，但那位非得发微博还开抽奖不就是要把事情闹大吗？引来一堆鲤黑还能反手给鲤鱼粉扣个屎盆子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我建议你们三位主角先私底下把事情捋顺了吧，这不是你发个矫情长文能化解的事
+
+*****
+
+####  L7lv6  
+##### 2699#       发表于 2021-12-29 11:48
+
+<blockquote>li463900160 发表于 2021-12-29 11:22
+我写了五千多字，就是为了让能好好静下来读的人去读，去想想自己看拉拉这个企划的感觉。而不是单独截出来 ...</blockquote>
+抱歉，我全看完了，但核心就这两段，其他都是小作文，没必要看。
+
+*****
+
+####  li463900160  
+##### 2700#       发表于 2021-12-29 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086331&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-29 11:48</a>
+
+按你的说法这是私下你们几个的事情，但那位非得发微博还开抽奖不就是要把事情闹大吗？引来一堆鲤黑还能反 ...</blockquote>
+现在也不是我能化解的了，现在该退款退款，该拉黑拉黑，剩下的都是乐子人的狂欢
+
+
+
+*****
+
+####  lj205  
+##### 2701#       发表于 2021-12-29 11:50
+
+按前面谭友说法，不是因为你不同意退款别人没办法才出此下策吗？那你要赚这个钱，付出代价是合理的吧？
+
+*****
+
+####  li463900160  
+##### 2702#       发表于 2021-12-29 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086334&amp;ptid=2036367" target="_blank">L7lv6 发表于 2021-12-29 11:48</a>
+
+抱歉，我全看完了，但核心就这两段，其他都是小作文，没必要看。</blockquote>
+那说明你是个合格的鲤鱼厨
+
+*****
+
+####  D麦林  
+##### 2703#       发表于 2021-12-29 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086233&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-12-29 11:41</a>
+
+说实话，松雾挂我我是从来没有任何恨意的，首先第一点，他是光明正大挂，而且我跟他后续交流之后也是沟通 ...</blockquote>
+我说了 开转发抽奖那位 那篇原博内容避重就轻和拉偏架味道太重
+
+看似帮你说话实际是把你架在火上烤
+
+你与其在这和大家说这些还不如去那条原博下面切割切割
+
+你接受不了那人要背刺你 你就想办法直接点艹他
+
+而不是留着原博那种开地图炮的言论来代表你
+
+*****
+
+####  仟音一心  
+##### 2704#       发表于 2021-12-29 11:54
+
+ 本帖最后由 仟音一心 于 2021-12-29 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086233&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-12-29 11:41</a>
+
+说实话，松雾挂我我是从来没有任何恨意的，首先第一点，他是光明正大挂，而且我跟他后续交流之后也是沟通 ...</blockquote>
+
+好家伙！闹这么大原来是私人恩怨，线下一两句话能解决的事非要线上写小作文搞抽转拉踩，笑不活了要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+行，你们继续表演吧，你都说了全输，那就看输到什么时候为止吧。
+
+老图，送你们。
+
+C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
+(71.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 11:55 上传
+
+<img src="https://img.saraba1st.com/forum/202112/29/115533mx77lc76fuczk3lp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 2705#       发表于 2021-12-29 11:54
+
+妈的 那条博文 最让我生气的一点不是别的
+
+而是那种莫名奇妙的优越感又开始显现了
+
+啊 就又开始定义小鬼 又来“还是人少的时候好”
+
+拉圈难得注入一波新鲜血液 正有向好的趋势
+
+你们这些沉淀多年的污泥又开始蠢蠢欲动要往上翻腾
+
+*****
+
+####  li463900160  
+##### 2706#       发表于 2021-12-29 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086416&amp;ptid=2036367" target="_blank">仟音一心 发表于 2021-12-29 11:54</a>
+
+好家伙！闹这么大原来是私人恩怨，线下一两句话能解决的事非要线上写小作文搞抽转拉踩，笑不活了要[f:067 ...</blockquote>
+躺平了，爱干嘛干嘛吧
+
+*****
+
+####  li463900160  
+##### 2707#       发表于 2021-12-29 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086360&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-29 11:50</a>
+
+我说了 开转发抽奖那位 那篇原博内容避重就轻和拉偏架味道太重
+
+看似帮你说话实际是把你架在火上烤
+
+你与其 ...</blockquote>
+可惜的事我做不出这种搞朋友的行为，哪怕他已经不把我当朋友了
+
+*****
+
+####  li463900160  
+##### 2708#       发表于 2021-12-29 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086356&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-29 11:50</a>
+
+按前面谭友说法，不是因为你不同意退款别人没办法才出此下策吗？那你要赚这个钱，付出代价是合理的吧？ ...</blockquote>
+因为许多商品是预定好的，的确不好退款。。。
+
+*****
+
+####  cybernetics31  
+##### 2709#       发表于 2021-12-29 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没必要来咱这解释的，有空写小作文还不如把退货啥的处理好
+
