@@ -4674,3 +4674,42 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 不原谅难道大家一起感受艺术的极致吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 85936#       发表于 2021-12-29 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087592&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-29 13:12</a>
+
+地方就不说了，云玩家是真的快乐，能问出就这么原谅兔子加勒底员工同意吗这种弱智问题
+
+不原谅难道大家一起 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是杀狐说干脆自爆算了听起来太唬烂了，哪有说爆就爆的。
+
+理论上每个英灵每个boss都能自爆 这么久了也没真见到几次。
+
+比较传统的都是在解决BOSS之后 boss马上要挂了鱼死网破，这时候自爆会有很长一段时间让主角一行逃出，FGO之前也有几次这种逃跑桥段。杀狐这突然整个固有结界那么大一块地呢，马上爆马上死也太突兀了。
+
+还是玩的太烂，其实这活动要换着花样写剧情不改都能写的更好点，结果就这，爆炸结局！退钱！
+
+*****
+
+####  exiaexa  
+##### 85937#       发表于 2021-12-29 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087847&amp;ptid=1085254" target="_blank">v22325 发表于 2021-12-29 13:33</a>
+
+主要是杀狐说干脆自爆算了听起来太唬烂了，哪有说爆就爆的。
+
+理论上每个英灵每个boss都能自爆 这 ...</blockquote>
+因为你没看到原帖所以生草程度没拉上去
+
+他们先手来了个yjg三连，然后几个人不知道为啥就真的当作是樱井阿姨恋爱闹发作脑控加勒底原谅了，然后快乐的发散了起来
+
+后排终于有人跑出来辟谣，结果这几人直接装死了
+
+太乐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

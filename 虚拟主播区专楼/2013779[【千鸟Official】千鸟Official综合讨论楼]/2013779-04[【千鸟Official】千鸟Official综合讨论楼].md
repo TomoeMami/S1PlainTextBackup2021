@@ -2692,3 +2692,28 @@ b综更纯良是什么意思捏，你把话说清楚<img src="https://static.sar
 
 反转了，去nga臊皮去了
 
+
+
+*****
+
+####  小憨1  
+##### 4784#       发表于 2021-12-29 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087613&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-29 13:14</a>
+b综更纯良是什么意思捏，你把话说清楚</blockquote>
+反正都是被拷打，去B综被拷打还能顺带看其他人的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Quark  
+##### 4785#       发表于 2021-12-29 13:37
+
+主要还是b综可以邂逅2649老师捏 文克最强！
+
+*****
+
+####  tankai  
+##### 4786#       发表于 2021-12-29 13:38
+
+谁啊?出来说话,
+
