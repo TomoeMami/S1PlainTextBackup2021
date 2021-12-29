@@ -14612,3 +14612,49 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 知道这事原来是私人恩怨的时候，笑意已经盖过一切了，如果这真是个仅圈内流传的笑话就好了。
 可惜没有如果。
 
+
+
+*****
+
+####  仟音一心  
+##### 2716#       发表于 2021-12-29 12:28
+
+今天倒计时：Sayuri
+
+*****
+
+####  Erikas  
+##### 2717#       发表于 2021-12-29 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">进来围观自我意识过剩粉头
+
+*****
+
+####  普之舜舜  
+##### 2718#       发表于 2021-12-29 12:32
+
+ 本帖最后由 普之舜舜 于 2021-12-29 12:35 编辑 
+
+麻将里有唐可可或者其他星团人物的小鹅吗？我找找。<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+没有的话，等我有空自己或者找人做出来哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 2719#       发表于 2021-12-29 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该投票了，今天打铁，明天兔，后天杏树吧
+
+*****
+
+####  K·os  
+##### 2720#       发表于 2021-12-29 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086080&amp;ptid=2036367" target="_blank">TRIScRE 发表于 2021-12-29 11:32:25</a>
+我是从来不信有什么盯着黑的人会真转粉这种事情的</blockquote>有没有一种可能性，盯着黑的才是粉？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+泥潭miku老师楼妖女楼天音楼都还在呢，多看看
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

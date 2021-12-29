@@ -9678,3 +9678,84 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 没搞懂啥叫国内咋办，外国人都得了该死的都死光疫情不就结束了吗？咱们啥也不用干啊 ...</blockquote>
 问题就是白皮死不光，新变种也断不绝，所以waves也没有尽头，疫苗建立的群体免疫没用，全员感染建立的群体免疫也没用，求生不得求死不能大概就是这种感觉。最恶心的是没法物理隔绝国内外，被这群猪逼带着一起在waves里浮沉，虽然我们有船而他们裸泳
 
+
+
+*****
+
+####  configxxxx  
+##### 2310#       发表于 2021-12-29 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086653&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-29 12:10</a>
+
+问题就是白皮死不光，新变种也断不绝，所以waves也没有尽头，疫苗建立的群体免疫没用，全员感染建立的群 ...</blockquote>
+那就是疫情没结束，那维持现状看乐子就行了，我说啥也不用干的意思是万一O变种真如白皮所说是广谱疫苗的话，那就可以由别人付出代价来结束疫情了，算好事吧
+
+
+
+*****
+
+####  qianhe12  
+##### 2311#       发表于 2021-12-29 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086037&amp;ptid=2039422" target="_blank">moliyumi 发表于 2021-12-29 11:30</a>
+
+？？？好久没关心了，美帝现在还能每天死两三千人？？？属实不可战胜了</blockquote>
+一句老话送给你，说难听点，这点人够干啥的？<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+现在真应该理解美国不在乎这点死人了吧……
+
+*****
+
+####  母星  
+##### 2312#       发表于 2021-12-29 12:25
+
+以后会不会出一个新词，叫covidecade或者coviage，感觉新冠疫情持续时间不会比二战更短
+
+*****
+
+####  藤岛鸣海  
+##### 2313#       发表于 2021-12-29 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086907&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-29 12:25</a>
+以后会不会出一个新词，叫covidecade或者coviage，感觉新冠疫情持续时间不会比二战更短 ...</blockquote>
+更可能是maskage吧
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  neptunehs  
+##### 2314#       发表于 2021-12-29 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086961&amp;ptid=2039422" target="_blank">藤岛鸣海 发表于 2021-12-29 12:29</a>
+更可能是maskage吧
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+上面不是有人说的也就1/3人口罩么
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  小_猪  
+##### 2315#       发表于 2021-12-29 12:34
+
+朋友公司定期发快筛盒，在症状最严重的时候，测两次都测不出来，症状开始好转的时候才测出来阳性。
+
+目前这波omicron，打完两针辉瑞的基本防不住，不过好消息症状都很轻，没有进医院的，自己在家躺3-7天就差不多好了，后遗症依然是…脱发。
+
+我们这种康复者+两针辉瑞的，都没被感染，说明中和抗体水平还比较高，大家加油打第三针吧。
+
+—— 来自 HUAWEI VOG-L04, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  jxwats1  
+##### 2316#       发表于 2021-12-29 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087034&amp;ptid=2039422" target="_blank">小_猪 发表于 2021-12-29 12:34</a>
+朋友公司定期发快筛盒，在症状最严重的时候，测两次都测不出来，症状开始好转的时候才测出来阳性。
+
+目前这 ...</blockquote>
+打完第三针可能也只有50%不到的保护力，我身边已经有三针bnt一个多月后的确诊病例了。所以说能打尽快打，打完了也别大意
+

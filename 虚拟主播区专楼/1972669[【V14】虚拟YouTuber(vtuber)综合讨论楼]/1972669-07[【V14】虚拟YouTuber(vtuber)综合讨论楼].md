@@ -7875,3 +7875,14 @@ EN最近满天飞的我都怀疑虹买推广了。<img src="https://static.sarab
 
 innk没有了，azki现在也属于杏本社，黑青蛙又写真情实感小作文了
 
+
+
+*****
+
+####  winda  
+##### 9662#       发表于 2021-12-29 12:27
+
+[https://www.youtube.com/watch?v=kO5ExO2d6Mc](https://www.youtube.com/watch?v=kO5ExO2d6Mc)
+
+【全編公開】enogu one-man Live 2021 Winter - #雲外蒼天 - 壱章 / 全曲生バンド演奏【えのぐ】
+
