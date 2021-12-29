@@ -4756,3 +4756,38 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 话说fate吧也够好懂的，昨天剧情把太公吹上天了，然后就几乎没节奏了，整版的论战力<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxas.sora  
+##### 85942#       发表于 2021-12-29 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">考虑到迦勒底全程被神界仙界直播。。。太公望这波丢人怕是大伙都知道了，元始天尊看到他空大两次想必一定在大笑吧
+
+*****
+
+####  超阳电子炮  
+##### 85943#       发表于 2021-12-29 14:57
+
+怀疑是平时望仔说话太KY这群老板就是想看乖徒乐子
+
+*****
+
+####  angelooo  
+##### 85944#       发表于 2021-12-29 14:58
+
+<blockquote>roxas.sora 发表于 2021-12-29 14:52
+考虑到迦勒底全程被神界仙界直播。。。太公望这波丢人怕是大伙都知道了，元始天尊看到他空大两次想 ...</blockquote>
+这帮看直播的怕是故意的，真·乐子人
+
+*****
+
+####  roxas.sora  
+##### 85945#       发表于 2021-12-29 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088752&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-29 14:58</a>
+
+这帮看直播的怕是故意的，真·乐子人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">元始天尊感觉就是故意误导忽悠他的，神仙的生活就是很枯燥啊，得找点乐子，这下喜欢妲己和空大算是传遍了神仙界了
+

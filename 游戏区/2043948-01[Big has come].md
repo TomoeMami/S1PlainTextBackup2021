@@ -9008,3 +9008,14 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 这次工信部都出来回答问题, 虽然是打个太极, 但要真想封死的怎么想也不会在新闻上露面吧.反正工具这玩意怎么着你都得需要, 你就是搜国内的网站, 也得用他(感谢百度做的屎一样的搜索), 更别提看网飞玩外服游戏. 工具如果本来就是必备的工具, 又不难找(随便加个外服游戏群问一下, 一大堆), 真封了又如何.
 <strong>所以, 就是P大个事</strong><img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 822#       发表于 2021-12-29 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087509&amp;ptid=2043948" target="_blank">欠损 发表于 2021-12-29 13:05</a>
+确实，能主观定义谁是狗洞大师的已经不是一般的狗洞大师了，可以称得上是狗洞之主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看油盐社那篇文章可以去看，少云一点对大家都好
+

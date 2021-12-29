@@ -2773,3 +2773,19 @@ b综更纯良是什么意思捏，你把话说清楚</blockquote>
 
 确实 东野圭吾的ylg太多了 我觉得他只能是个社会派推理作家
 
+
+
+*****
+
+####  ba娜娜  
+##### 4793#       发表于 2021-12-29 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">静静真的要手机直播尬聊半个月吗，太强惹
+
+*****
+
+####  灰色的狐狸  
+##### 4794#       发表于 2021-12-29 14:59
+
+还是想方法快点把电脑搞好吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
