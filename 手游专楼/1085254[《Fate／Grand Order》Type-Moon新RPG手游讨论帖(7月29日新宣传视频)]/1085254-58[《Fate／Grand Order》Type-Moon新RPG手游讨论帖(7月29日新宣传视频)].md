@@ -4812,3 +4812,19 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 又不是第一次空大</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太公望选择了弹幕最多的打法
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 85948#       发表于 2021-12-29 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">拖了几天才打了剧情，有点难度不过意外的没用过去了…做了点功课还是有用的……
+
+*****
+
+####  holyblood  
+##### 85949#       发表于 2021-12-29 16:38
+
+所以日本人看封神的底本是藤崎龙版的么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
