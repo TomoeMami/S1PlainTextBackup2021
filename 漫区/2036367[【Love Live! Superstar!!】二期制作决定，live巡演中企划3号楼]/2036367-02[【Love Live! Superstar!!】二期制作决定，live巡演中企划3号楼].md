@@ -14186,3 +14186,66 @@ to签和cd分开寄的？面谈好像还得日本那边电话？不好搞……�
 发博的那个朋友他明显也不是为了我了，毕竟这事闹这么大怎么可能是对我好，他生气的是B的背刺，一起玩了3年 ...</blockquote>
 你是当事人B吧？这么写我有点晕了。
 
+
+
+*****
+
+####  ads147147  
+##### 2681#       发表于 2021-12-29 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082355&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-29 00:16</a>
+我一直都很好奇怎么有这么多有莫名恶意的东西一直盯着鲤鱼感觉上好像也拿这种东西没什么办法，而且 ...</blockquote>
+绿魔：人们不想看英雄，而是想看英雄陨落。
+
+不过很明显这点是传媒刻意引导的结果，正能量卖不出去钱。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  L7lv6  
+##### 2682#       发表于 2021-12-29 11:11
+
+<img src="https://img.saraba1st.com/forum/202112/29/111027one9hwwhwv9h9w9h.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-29-11-08-21-520_com.sina.weibo.png</strong> (141.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-29 11:10 上传
+
+<img src="https://img.saraba1st.com/forum/202112/29/111031tzv75ca8r2qq7a27.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-29-11-09-03-929_com.sina.weibo.png</strong> (205.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-29 11:10 上传
+
+*****
+
+####  lj205  
+##### 2683#       发表于 2021-12-29 11:19
+
+自己都把自己绕晕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+赶紧支棱起来啊
+
+*****
+
+####  li463900160  
+##### 2684#       发表于 2021-12-29 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54085710&amp;ptid=2036367" target="_blank">L7lv6 发表于 2021-12-29 11:11</a></blockquote>
+我写了五千多字，就是为了让能好好静下来读的人去读，去想想自己看拉拉这个企划的感觉。而不是单独截出来，让人看看这个人是不是给自己洗白狡辩
+
+*****
+
+####  仟音一心  
+##### 2685#       发表于 2021-12-29 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54085888&amp;ptid=2036367" target="_blank">li463900160 发表于 2021-12-29 11:22</a>
+我写了五千多字，就是为了让能好好静下来读的人去读，去想想自己看拉拉这个企划的感觉。而不是单独截出来 ...</blockquote>
+问题是种这事相关的就这两段啊，其他心路历程谁管你啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个资深LLer没写过几篇这种文的？
+

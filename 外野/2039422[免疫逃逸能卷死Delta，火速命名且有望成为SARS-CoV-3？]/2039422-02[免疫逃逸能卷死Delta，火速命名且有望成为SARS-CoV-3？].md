@@ -9520,3 +9520,16 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 — from Sony Xperia XZ2 Compact, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  米村正二  
+##### 2295#       发表于 2021-12-29 11:19
+
+根据美国约翰斯·霍普金斯大学统计数据，截至北京时间2021年12月29日6时22分，美国新冠肺炎累计确诊病例达到53105450例，累计死亡病例达到820458例。在过去约24小时里，美国新增确诊病例511836例，新增死亡病例2732例。
+
+我草，五十万了
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
