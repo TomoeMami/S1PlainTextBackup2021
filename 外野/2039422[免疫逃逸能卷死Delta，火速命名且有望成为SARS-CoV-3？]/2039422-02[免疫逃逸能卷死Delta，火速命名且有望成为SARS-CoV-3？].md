@@ -9223,3 +9223,82 @@ o疫苗论今天拍老师驳斥了：完全没有的事</blockquote>
 看了下李三金圣诞扫街视频，美国人出门玩的大概只有三分之一戴口罩的，毫不畏死，看来一月有望突破60万日新 ...</blockquote>
 现在试剂不够 检测点排长龙，家用快速测试缺货 数据也就这样了冲不到60万的
 
+
+
+*****
+
+####  smy20011  
+##### 2272#       发表于 2021-12-29 08:31
+
+ 本帖最后由 smy20011 于 2021-12-29 08:35 编辑 
+
+[https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg](https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg)
+
+这篇文章的结论在这里 <blockquote>Omicron的毒力：
+
+比原始株更高，
+
+比最近祖先B.1.1也更高，
+
+比同辈Alpha还是更高，
+
+比八竿子打不到一块儿的大表哥Delta则略低0~30%左右。
+
+所以很可惜，
+
+新冠病毒的毒力演化规律并没有发生转向，
+
+还是在越变越强~
+
+摊手~</blockquote>
+他可以说，Omicron比B.1.1要强，所以一直朝着毒力更强的方向进化。
+
+我也可以说，Omicron是一个比delta更弱的毒株，新冠的进化会朝着毒性越来越弱的方向发展
+
+毕竟从这个图上来看，新变种都不是从老变种进化来的
+
+<img src="https://img.saraba1st.com/forum/202112/29/083251knyqgndimhsmmgqd.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-28 16.32.30.png</strong> (60.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 08:32 上传
+
+而且为什么Omicron是alpha的同辈我也搞不清楚，毕竟从这图上来看，Omicron和Alpha一样是八杆子打不着的关系
+
+*****
+
+####  riczxc  
+##### 2273#         楼主| 发表于 2021-12-29 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083585&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-12-29 08:05</a>
+
+那也比知乎点个啥都要先下app再注册好 现在我不管哪个平台都看不到拍老师知乎写的文 跟公众号两边好像还 ...</blockquote>
+拍老师使用的是知乎的想法功能，电脑版不会显示在时间线上。
+
+*****
+
+####  neptunehs  
+##### 2274#       发表于 2021-12-29 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083738&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-29 08:32</a>
+拍老师使用的是知乎的想法功能，电脑版不会显示在时间线上。</blockquote>
+然后点名字想看看其他的 然后就是电脑版要注册手机版要app了
+只好关掉
+所以发公众号有啥不好的 至少手机看得到焦虑 真的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  crazyt  
+##### 2275#       发表于 2021-12-29 08:39
+
+<blockquote>smy20011 发表于 2021-12-29 08:31
+https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
+
+这篇文章的结论在这里
+</blockquote>
+有力气帮你丑国爹吹牛逼，还是留着嚎丧吧。那样还孝一点。
+

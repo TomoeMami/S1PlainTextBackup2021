@@ -2458,3 +2458,26 @@ co宝持续上工中<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">后半都给我看睡着，竟然还能有节奏
 
+
+
+*****
+
+####  ba娜娜  
+##### 4756#       发表于 2021-12-29 08:29
+
+草我之前看直播的时候也以为是SC<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">卡了发了四次，真没get到破防的点
+
+*****
+
+####  Finsty  
+##### 4757#       发表于 2021-12-29 08:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话 就算复盘了还是没get到点
+
+*****
+
+####  四叶的花  
+##### 4758#       发表于 2021-12-29 08:43
+
+有的🐦p怎么跟玻璃人一样，动不动就破防的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
