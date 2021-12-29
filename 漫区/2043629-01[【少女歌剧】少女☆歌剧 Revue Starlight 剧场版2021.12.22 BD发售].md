@@ -4910,3 +4910,12 @@ B站动态看见一个观影团连观影特典都整出来了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  脚底心，洗则白  
+##### 379#       发表于 2021-12-29 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">神啊，把我烧了吧！古川哥哥在剧场版里藏了太多哲学上的隐喻，看不懂啊。但还是好兴奋，悲喜交加，陷入迷狂[mania]，何时能摘下摩耶的面纱？
+
