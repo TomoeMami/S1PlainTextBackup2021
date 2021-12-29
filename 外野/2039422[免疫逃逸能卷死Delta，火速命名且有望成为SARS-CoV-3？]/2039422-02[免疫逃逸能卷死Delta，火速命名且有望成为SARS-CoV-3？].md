@@ -10021,3 +10021,22 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 <img src="https://p.sda1.dev/3/be32b5e0aeb711984245cf6a18b188fd/IMG_CMP_52187223.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有口皆悲  
+##### 2343#       发表于 2021-12-29 21:41
+
+这时候最怕民众恐慌，挤着去医院哭喊着抢床位。所以宣传o是人传人疫苗云云是最好的选择（对统治阶级），当然死多少人那是另外一回事。
+
+*****
+
+####  riczxc  
+##### 2344#         楼主| 发表于 2021-12-29 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54091808&amp;ptid=2039422" target="_blank">暗铁 发表于 2021-12-29 19:12</a>
+
+按邓巴数150算，得死一千万人</blockquote>
+这个估算虽然很有趣，但这应该是个上界，因为每个人所认识的150人有很大的重复。
+

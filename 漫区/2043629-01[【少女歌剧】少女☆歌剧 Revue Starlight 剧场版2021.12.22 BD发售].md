@@ -4945,3 +4945,17 @@ B站动态看见一个观影团连观影特典都整出来了
 那么这部作品就是
 其实古川新作关键词也出现马戏团，是不是巧合还不好说
 
+
+
+*****
+
+####  modedd  
+##### 381#       发表于 2021-12-29 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54062787&amp;ptid=2043629" target="_blank">saverok 发表于 2021-12-27 14:22:22</a>
+蕉哥哥还好看上的是纯那，内心比较坚定那种
+
+要是看上小光这种跑路党不知道这故事会扭成啥样 ...</blockquote>反过来想，要是能分配个真昼麻麻这样的小天使怕不是闪耀光恋都能给扬喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
