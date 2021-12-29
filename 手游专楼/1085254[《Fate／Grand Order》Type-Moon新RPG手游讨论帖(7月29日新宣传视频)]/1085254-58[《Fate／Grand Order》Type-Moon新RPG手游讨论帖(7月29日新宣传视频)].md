@@ -4904,3 +4904,22 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 草，日服吧那个舅妈又暗示了，年底剧情有真名溶解，新年从者大家猜到差不多了是个熟人不会真是老福 ...</blockquote>
 卧槽这个有点劲爆啊，给个链接？
 
+
+
+*****
+
+####  DARKGRAY  
+##### 85957#       发表于 2021-12-30 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54094945&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-30 00:06</a>
+
+难道说老福那句杀狐是他最大敌人真不是胡诌，杀狐一寄他就溶解吗，问题是老福现在不是在彷徨海的吗 ...</blockquote>
+所以全灭说的真是家炸了？他这个外人退去本来就不该回去，这么说其实就是暗示要偷家了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 85958#       发表于 2021-12-30 04:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这老福除了叫福尔摩斯之外就一股怪味
+

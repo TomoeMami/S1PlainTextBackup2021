@@ -8010,3 +8010,12 @@ vt和jp还是有几个虹楼的，最活跃的应该是EN楼
 
 4ch的v版是4ch全版最恨中国人最反华的比政治版更甚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看多了的确可以锻炼免疫力
 
+
+
+*****
+
+####  集合酱  
+##### 9676#       发表于 2021-12-30 04:14
+
+半夜四点vox转播间一堆人版聊 刷的比很多小v都快了
+

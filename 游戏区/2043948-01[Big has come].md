@@ -9096,3 +9096,22 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 
 让臭打游戏的好过，会导致老爷们椅子坐不稳？
 
+
+
+*****
+
+####  蕾咪莉亚  
+##### 829#       发表于 2021-12-30 03:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 毕竟随着总路线一起摇摆，观泥潭外野教育方面帖子有感
+
+*****
+
+####  边缘中心  
+##### 830#       发表于 2021-12-30 04:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54095463&amp;ptid=2043948" target="_blank">五元请收好 发表于 2021-12-30 01:27</a>
+
+让臭打游戏的好过，会导致老爷们椅子坐不稳？</blockquote>
+和椅子没关系，很可能老爷真的觉得为你们好，臭打游戏的父母大概率也是不喜欢游戏的
+

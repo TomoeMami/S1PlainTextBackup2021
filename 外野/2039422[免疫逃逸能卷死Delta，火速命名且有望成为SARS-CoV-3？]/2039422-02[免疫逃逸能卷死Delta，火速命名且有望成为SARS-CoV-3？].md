@@ -10071,3 +10071,20 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  Duc_d'_Muka  
+##### 2347#       发表于 2021-12-30 05:37
+
+带英日增已经绝赞18万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正在往20w的目标飞速努力
+
+<img src="https://img.saraba1st.com/forum/202112/30/053755spxspjod417oqzod.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2021-12-29 213112.png</strong> (31.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 05:37 上传
+
